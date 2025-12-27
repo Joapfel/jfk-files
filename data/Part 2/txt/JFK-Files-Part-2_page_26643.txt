@@ -1,0 +1,46 @@
+CRUISE 
+MISSILE 
+BALLISTIC 
+MISSILES 
+SECRET 
+NO FOREIGN 
+DISSEM 
+(-- TOP SECRET TRINa--
+us 
+DESIGNATION IOC 
+SS-N-3 1961 
+SS-N-4 1960 
+SS-N-5 1963 
+SS-N-6 Probably 
+1968 
+Soviet 
+Submarine-Launched 
+Missiles 
+TOP SECRET TRINE 
+OPERATIONAL WARHEAD 
+RANGE WEIGHT REMARKS 
+250 NM 1,000- Carried by E-I and E-11-
+2,000 lbs. class nuclear submarines 
+and by J-class diesel units. 
+A few W-class diitsel torpedo 
+attack submarines were modified 
+to carry this missile. Surface 
+launched. 
+300 NM About Carried by most G-class 
+2,200 lbs diesel submarines and by 
+some H-class nuclear units. 
+A few Z-class diesel torpedo 
+attack submarines were 
+modified to carry this missile. 
+Surface launched. 
+650 NM 1,600- Carried by most H-class 
+2,400 lbs nuclear submarines and by 
+some G-class diesel units. 
+Underwater launched. 
+1,500 NM 700- Probably intended for the 
+1,700 lbs new Y-class nuclear sub-
+marines. These 16-tube 
+Polaris-type units first 
+went into service in 
+mid-1968. 
+TOP SECRET TRINE 

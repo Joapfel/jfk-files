@@ -1,0 +1,95 @@
+13-00000 
+·computer Art: The Search ~eyond Manipulation 
+Grace C. Hertlein 
+California State University-Chico 
+O,ico, Calif. 95926 '., 
+•Computer arts are still in the highly experimental stage of emergence." 
+In present computer art, the naive onlooker could 
+readily misconstrue that mathematical processing of 
+data and manipulation of design represent the total 
+modus operandi of this new form, rather than just 
+the initial phases of exploration. A review of the 
+varied computer arts reveals diverse input of pat­
+terns and subsequent manipulation or transformation, 
+creating a series of new, perceptual audio or visual 
+images. There appears a similarity of approaches 
+and some variation of the techniques utilized by 
+practitioners of the cybernetic arts: graphics, 
+sculpture, film, dance, music, textile design, weav­
+ing, poetry, and architecture. 
+• There is a tendency to forget that the computer 
+arts are still in the highly experimental stages of 
+emergence, and although some attractive and very 
+pleasing works have been accomplished, this new me­
+dium has generally not progressed much beyond its 
+mathematical and scientific origins. At times, in 
+viewing or hearing the output of the computer arts, 
+one would relegate the resultant art form to the 
+category of interesting sound or visual patterns, 
+experimental/initial exercises, or mathematical and 
+scientific visualization, rather than as works of 
+art per se. (This latter statement is equally true 
+of contemporary manual experimental art.) There is, 
+at the present time, a tendency for the computer 
+arts to relate to an elite coterie, made up of 
+scientists and intellectuals, rather than the public 
+at large. However, as this new art medium is given 
+greater space in the mass media, this audience 
+should enlarge greatly, as exposure acquaints the 
+general audience with the potential of this new art 
+form. 
+This article 11 reprinted by permission from the Proceedin{II of the 
+ln-,ftational lntemational Exhibit of Computer Arts, T-5. Zagreb, 
+Yugoslavia, June-July 1973. Grace C. Hertlein is Assistant Professor 
+In the Computer Science Department at California State University­
+Chico, Chico, Calif, 95926. Her computer art has been published for 
+many years in Computers and Automation and currently some of 
+her computer art is being exhibited at an art exhibition in Bordeaux, 
+Fnnc:e. 
+Pattern Manipulation 
+Manipulation of design by 'the computer may be de­
+liberate, (or at times highly experimental) as 
+change or transformation of the original pattern is 
+achieved via a host of techniques developed within 
+the past twelve years. However, in attempting to· 
+see precedent in manipulation of design, one ob­
+serves ample evidence of a growing interest by ar­
+tists and critics in combining (manually) mathemat­
+ics and art. Since the turn of the century, such 
+techniques and philosophy have been practiced and 
+even more verbally expressed by electronic and con­
+crete musicians. Further, the concept of pattern 
+manipulation is as old as man's art, and one finds 
+ample evidence.of this concept throughout art his­
+tory. A few such examples are: Offset X/Y patterns 
+in Persian sculptural reliefs; repetitions of design 
+in serial imagery from early Greek vases; reversals 
+of pattern in the compositions of Bach; mirror im­
+ages and mathematical progressions of design in the 
+Foundation Course exercises of the Bauhaus School; 
+juxtaposition and superposition of musical patterns 
+throughout musical history; and randomization of 
+musical variations via throwing of dice, as prac­
+ticed by Mozart. The world was quite ready philo­
+sophically and mathematically for further explora­
+tions in such transformation of pattern, yet it was 
+not until the speed of the computer afforded this 
+electronic manipulation, that it became feasible to 
+such a degree. (Alteration, change, and transforma­
+tion of pattern is revealed in other technological 
+systems that may or may not use the computer as an aid in 
+creation: synthesized video, sound, and the film.) In 
+other words, science and technology now afford fur­
+ther exploration of ideas and techniques that have 
+been practiced by experimental artists for years. 
+The philosophy and practice of twenJieth century 
+music shows a very great similarity between the ma­
+nipulative techniques used by musicians since the 
+early 1900's and the present-day computer procedures. 
+Examination of the philosophy of the Bauhaus and 
+study of the works emanating from this revolutionary 
+school, also re~eals great similarities in th- ap­
+proaches to creation, and in the final works of art 
+of this school and present-day computer arts. 
+• 
+• 

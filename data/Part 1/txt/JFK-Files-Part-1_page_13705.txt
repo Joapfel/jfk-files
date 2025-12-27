@@ -1,0 +1,52 @@
+14-00000 
+.-
+:i 
+\ 
+'SEC,RfT 
+c•ti_-n F,/1,.d lnJ 
+. . 
+PER.so'MALITY FILE ACTION 'REQUEST 
+' . 
+,-r-cr;::. Cf'Jn1ul1 '"" ·-io·rC:-ont10I Sr•t•,. R•f•r•nr,. t1•ttuel 
+brfur• rn•p/,1i~I l1ii• for•. ,o,~ •u ■ r b• lyp•d or 
+pr,nt•,d ,'11 blot.~ l•tt•r•. 
+TO : RID/?Oi 3cct1on 
+FROM: 
+cWcc• z•• ,_011 101 J z. £•CLuor: Tauc '!!;"'[ ; • .,... .. ac~1N[ LIST f J. 
+:~~~:.!~. 00 NOT CH(CKI .-. 1 f f •• , ' f , .. ,:: .••. , f 
+R.[!t.TAICT[O 
+.. 
+I • .• 
+I ... I, ··_ I •• J 
+•• sou•cc OOCU~[NT 
+7. 111,1,III~ (L'ut) _, (Tl,.,) 
+; ·_) . •' ··.~., '~- './. J -f,1 
+(lliddi•J 
+NAMf VAR,IANf 
+10 ~::E (L .. I) 
+''""', (lllddh) 
+II. OAT[ o, 81ATM' 
+f• I • 
+IZ. COUN1AY OF·BIRTH_, IJ, CITY/TOWN OF BIRTH 
+16. "FILllTION CODE 17_. 
+PB PATTFRN ONLY AOOITIONAL COOES • PB PATTERN ONLY 
+e. sex I•· rwoto 
+.. I I , -, , .. I ,- I •• I 
+VARIAT'IONS IN. er'o. OATA 
+u u I n • ·, eo I 11 I ea I u I 10 I 71 I ,a I 11 I 1• I 75 7e I 77 I 71 I 79 I ·,o 
+LJ __ .._____.,_.._____.,___.___'-=-_,____._----~--J, _ __.___.__+--_._____.__.._____.__-f 
+18, ORGANIZATIONAi. OIi GROUP AFrlLIATION (Cle!lr ltJtl) 19. ORGIGROUP c"OO[ 
+20., OCCUPATION/POSITION (Clrar te•t) 
+28, CAYPTONYM 
+-28, COMM[NTS 
+831 "" "•rvtout 
+IOlflOIII, 
+21. occ/POS ABBRlYIATtON 
+i.: :-! i'__. {;-.-~ ' 
+I i ·; 
+Z4, SECONOA•Y O[SK COD[ 
+Z7, PS[UOC,NYM 
+30. 
+IDN- 201-
+SECRET IHI 
+I • 

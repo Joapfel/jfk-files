@@ -1,0 +1,88 @@
+14-00000 
+SECRE·r 
+r-~ 
+D ii • ., 
+,QUAL IF I CAT.IONS SYSTEM RECORD CHANGE 
+(",.-,, qll'." INI 
+,, ~fi'LIC~l.'T ·COOHlG DAU 
+1, io 2.-APP~. ~ .. :... ::..:.""-~"£ "'· .. 
+<· 2 
+,t>-C' .; .• ~ "tiJ$i ._:.:NlAlN ;\)~01'G,1 T,S 
+• ' • .. 
+. OAT[ er 81A•Jia 5. C'AT[ c ... "c-.r::- TH[ 04i"A &BOV[ ( I ![-iS 2 THAU 5) w I.\, BC ,.11..LIO IN 
+MO CA >"11 M.:i wA . . ~-R Wtt[N .. CODl'1G AN APPi.. • CANT roA '"C ,.,AST T IMC. 1H1s 
+•• 
+I I • F'OR'f, ,s fHCN -~ TT ACHC0 TO •CAM l'?::-2, ,,ASl'[f,I QU~l..l,.ICA• 
+I I TICNS CCO,l<G ACCCAD, 
+... 
+L~Jl.'GU~Gi: .CODIIIG DATA • • f"OR'-1 4li1:c 
+1. ID 2 cvp1,,.:,cc .... .:~ '- ""''! ... ~ l-'N:;UAC.,_!= ('I-' TA CCC't 
+~3 
+3-L(TTCR!S BAS[ CODt 
+·/ 
+R 
+I 
+w 
+·I 
+p s u T YR 
+• • • 
+5- DA re sue.-.. 1 t '!c=- u ;"-'TC .;.-r BIRTH 
+444c 
+. 
+MO 0& ,R ,.;:, c~ 
+• I I • I 
+04 T4 4if"~!"R TCST 
+flAS[ COD[ R \,' ? 
+' • I H I 
+1. 10 2. l'-'P/ .-.PP&.. N:\ !\4."-'[ 
+~ 
+,3•Lt':'T£RS 
+4 • • 
+TYPE -.:~c '! 1 
+BAS!: 1 2 
+le le 
+• • 
+• • 
+le le 
+lit le 
+• • 
+le 
+" • • 
+• • 
+• 1962a 
+I 
+WH[N l"OR~ 0CNOT[S NO 1..ANGU4i~C 
+YA 
+)COMP[T(NCt, CNT[R THC f"CLI..OWIN:. 1N 
+, , T[" 4: "NOH-LANGUAGt" (12•DIGIT!!) 
+LANGU~G( PROf"ICICNCY TEST DATA 
+~.CODC 
+T 
+~- LANGUACC 04T4 ecr~Rt rcsr 
+BAS[ coot R • p s u 
+•}Ji_) f ... - ,4 • ..'-l /-i H H 
+DATA •.:.-A ITC ... 2 .,H .. U 7 IS 
+CsTAACT[~ rACH ~ORI-' 1273, 
+1.,ANGU4.:..!: PAOI" I C,I 
+H 3 1967 
+'. 
+QUALi Fi OT IONS RECORD CH~NGE ' 
+[NTCR Ut~O[R "rvpc" -
+A - A001TION TO A[COAO 
+C - CHANG( TC (XISTING ACCCA0 
+D - D(LC T ! ON c,· OATA •AO>t c, ST ING REC6RO 
+C~C!: • 2 
+~ YR BASE 1 2 , YA 
+• 
+• 
+• 
+; 
+• 
+• 
+• 
+• 
+,: 
+• ; 
+• 
+SECRET 
+YR 

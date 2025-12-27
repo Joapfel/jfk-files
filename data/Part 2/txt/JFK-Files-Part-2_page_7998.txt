@@ -1,0 +1,149 @@
+13-00000 
+is a part of the evolution leading up to computers 
+'and that the basic cause of his failure was the in­
+ability to organize a complex society. In the very 
+enjoyable Funco File (Cole), when the question is 
+raised, "Has it become your ruler, your god ... "?, 
+the response is, "Well, no. Not exactly. It's more 
+like where our technology triumphs have finally got 
+us to. I guess you might say our real ruler was al­
+ways an idea of what's normal or not. Conformity, I 
+guess you'd call it ... I suppose the Machine -
+plus the F.D.I. - working together - have sort of 
+externalized it once and for all." In the stories 
+where there is a struggle between man and the com­
+puter, it is not a struggle to retain control but to 
+get it back once it has knowingly been given away or 
+unwillingly allowed to slip away. 
+Consequences of Bigness , . 
+The persistent theme in these stories is that of 
+~ss - big states and big computer systems -
+ana its consequences. This bigness is well described 
+in an article by Weizenbaum. This article is impor­
+tant because it is one of the few expository state­
+ments of this serious theme. 
+These often gigantic systems are put to­
+gether by teams of programmers, often working 
+over a time span of many years. By the time 
+the systems come into use, most of the origi­
+nal programmers have left or turned their at­
+tention to other pursuits. It is precisely 
+when gigantic systems begin to be used that 
+their inne~ workings can no longer be under­
+stood by any single person or by a small team 
+of individuals .... This situation, which is 
+now upon us, has two consequences: first that 
+decisions are made on the basis of rules and 
+criteria no one knows explicitly, and second 
+that the system of rules and criteria becomes 
+immune to change. ("On the Impact of the Com­
+puter on Society," pp. 612-613). 
+What is the effect of this situation on individuals 
+and on society? Two side effects are discussed by 
+Weizenbaum. 
+First of course, there is the psychological 
+impact on individuals living in a society in 
+which anonymous, hence irresponsible, forces 
+formulate the large questions of the day and 
+circumscribe the range of possible answers. 
+••• But even worse, since computer-based know­
+ledge systems become essentially unmodifiable 
+except in that they can grow, and since they 
+induce dependence and cannot, after a certain 
+threshold is crossed, be abandoned, there is 
+an enormous risk that they will be passed from 
+one generation to another, always growing. 
+(!!ill!,, p. 613) 
+Computen Are Not Gadgets 
+The reader may argue the degree to which these 
+side effects are already present in our society, but, 
+if be reads sicence-fiction, he cannot ignore them. 
+While the first theme of the differences of man and 
+machines·may be the most repeated, this second theme 
+ii probably the most important. The science-fiction 
+writers maintain their importance ,s poets of the 
+"computer revolution" by redirecting our attentio11 
+from the computer as "gadget" to the computer as an 
+integral part of the modern configuration of govern­
+ment-academe-industry-management which shares skills, 
+resources, techniques, personnel, and goals. Just as 
+our image of the scientist has changed from the man 
+standing lonely vigil over a bubbling retort to 
+prove his scorned hypothesis, the isolated computer 
+with a programmed quirk, asked the wrong question or 
+fed the wrong data, is no longer hero. Franken­
+stein's monster, or the more recent, Karl, Emmy, and 
+Siema; for example, are very limited creations with 
+identifiable creators, circumscribed environments, 
+and restricted effects. We now have instead Shal­
+maneser, Project 79, Vulcan 3, Allied ~lastercomputer, 
+or simply, The Machine. The new computer-hero has 
+remote access, varied input and output devices, pro­
+cesses large amounts of data supplied by different 
+agencies, works in real-time, makes policy decisions 
+based on quasi-mathematics, commands vast resources, 
+and affects large numbers of people. 
+Bibliography 
+Fiction 
+l. Anderson, Poul. "Sam Hall". Astounding Science 
+Fiction, September 1953, as reprinted in (10). 
+2. Asimov, Isaac. "Franchise". If, Vol. 5, No. 5, 
+August 1955. 
+3. ----,-,--in (23). 
+"Someday". 1956, as reprinted 
+4. Boulle, Pierre. "The Perfect Robot". Time Out 
+of Mind, Vanguard Press, 1966 (quote p. i5, 
+Signet edition, 1969). • 
+5. Brunner, John. Stand on Zanzibar. Ballahtine 
+Books, 1968, (quotes pp. 101, 645, 649). 
+6. Burdick, Eugene. The 480. Dell Publishing Co., 
+1964. 
+7. Caidin, Martin. The God Machine. E.P. Dutton 
+& Co., 1968. 
+8. Cameron, Lou. Cybernia. Fawcett Publications, 
+Inc., 1972. 
+9. Cole, Burt. The Funco File. Doubleday, 1969, 
+(quote p. 187, Avon edition, 19iO). 
+10. Conklin, Groff, ed. Selections from Science­
+Fiction Thinking Machines. Vanguard, 1954. 
+11. Delany, Samuel R. The Fall of the Towers. 
+Sphere Books, Great Britain, I9il (originally 
+published as Bk. I- Out of the Dead Ci tv; 
+Bk. II - The Towers of Toron; Bk. III -
+City of a Thousand Suns). 
+12. Dick, Philip K. "Autofac". Galaxy Publishing 
+Corp., 1955, as reprinted in (14). 
+13. ------ "The Variable Man". Space Pub­
+lications Inc., 1953, as reprinted in (14). 
+14. ____ ..,....._ The Variable Man and Other Stor-
+ies. Ace Books, 1957. 
+15. ----,,....,...,,-.-- Vulcan's Hammer. Ace Books, 
+1960. 
+16. Dnieprov, Anatoly. "Siema". More Soviet Sci­
+ence Fiction, Collier Books, 1962. 
+17. Ellison, Harlan. "I Have No Mouth and I Must 
+Scream". If, 1967, as reprinted in I Ha\·e !';o 
+Mouth and !Must Scream, Pyramid Books, 196i, 
+(quote p. 34). 
+18. Es carpi t, Robert. The No\·el Computer. Flamma­
+rion, 1964, (English translation Martin 
+Secker and Warburg, Ltd., England, 1966). 
+19. Fairman, Paul W .. I, the Machine. Lancer Books, 
+1968. 
+20. Galouye, Dan. Counterfeit World. Victor Gol­
+lanz, Great Britain, 1964. 
+21. Heinlein, Robert A. The Moon is a Harsh Mis­
+tress. Putnam-Berkley Medallion Books. 1966. 
+22. Johii'iiiiesson, Olof. A Tale of the Big Computer 
+(English translation). Coward-Mccann, Inc., 
+1968. ' 
+23. Knight, Damon, ed .. The Metal Smile. Belmont 
+Production, 1968. 
+24. Mason, Douglas R. Matrix. Ballentine Books, 
+1970. 
+25. Miller, Walter M., Jr. 
+inq Science Fiction. 
+printed in (10). 
+"Dumb Waiter". Astound­
+April 1952, as re-
+.. 

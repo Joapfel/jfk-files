@@ -1,0 +1,147 @@
+13-00000 
+The ·comp11ter artist is manipulating patterns, be­
+cause this is an inherent potential of the computer 
+medium. The manual artist (or scholar), by con­
+trast, is bound to laborious manual processing of 
+data and pattern, and thus generally discovers to a 
+lesser degree, further sources of innovative and 
+perceptual changes, i.e., manipulation as practiced 
+in the computer arts is not feasible manually. When 
+perceptual change is accomplished manually (many of 
+the works in Graphis afford excellent examples), 
+such change is not only excessively time-consuming, 
+but represents a manual tour de force. It could be 
+more readily accomplished via the computer. 
+The manual artist is generally not concerned with 
+perceptual change or alteration of the original im­
+age. On the other hand, since the computer readily 
+affords such changes, the cybernetic artist may 
+literall} exploit component designs, taking them 
+t~ what may appear to be unlimited design 
+changes. The more abstract the component design, 
+the more readily it lends itself to mathematical 
+variation and processing, termed design state 
+variation. 
+Design State Variation 
+This is a term devised by the writer, adapted 
+from given "state" variations used in printmaking, 
+in which one may revise a plate or stone, and al-
+ter it by additions and/or changes of pattern, re­
+sulting in a series of new works. The term denotes 
+known variations of pattern that are possible, which 
+may be used as sub-routines or stored on the com­
+puter library and merely called by the user, who de­
+fines the values of the given parameters of the spe­
+cific algorithms being utilized. One of the most 
+provocative concepts emerging in computer art is 
+that of being to literally predict innumerable de­
+sign state variations, in which a basal component 
+will be visually or auditorially pleasing. The art­
+ist may use only those design states that reflect 
+personal expression of design. (One might compare 
+design state variations to the many kinds of chisels 
+the sculptor may use in execution of a work of art, 
+each giving unique effects.) Further, this library 
+of manipulative design state variations is constantly 
+being enlarged by experimenters in the computer 
+arts. A brief listing follows: 
+"Offsets of pattern on the X, Y, X/Y (pro­
+gressions in music) 
+Mirror images or reversals on the X, Y, X/Y 
+Scalar variations or duration o! pattern in 
+superposition of form 
+~otation, in open or closed forms 
+Irregular radiation of images and forms with 
+growing scalar values 
+Redundant serial imagery in closed form 
+Polygon serial imagery, with circular, square, 
+or varied final form 
+Positive and negative variations of repeated 
+or design-related patterns 
+Disintegrating variants of images and sounds 
+in redundant or transform pattern 
+Metamorphic variations of images or sounds 
+in predetermined sequences 
+Transformations of pattern, in which one de­
+sign becomes another 
+Alterations of design by mathematical algor­
+ithms 
+Pseudo-randomizations of patterns with artist­
+imposed parameters 
+Overlays of images and sounds in dimensional 
+forms 
+Combinations o! related patterns, using any of 
+the above design states 
+·11ulti-media combinations, using any of the 
+aforementioned 
+Prior to design state variation, the artistic 
+idea is stated in coherent, sequential steps. lt may 
+be flow-charted before translation into a computer 
+program. Thus the art idea is transformed into ana­
+lyzed data, using synthetic machine languages, and 
+is then subject to processing and manipulation via 
+the computer using design state variations, reveal­
+ing innumerable new, final works. Examples include: 
+The warp and weft patterns in weaving 
+Classical ballet positions, with designations 
+of the head, arms, and feet 
+Structural modules in sculpture and archi­
+tecture 
+Derivations of design from art or musical 
+history, including the archaic, \he classi­
+cal, or the contemporary 
+Formulae and transformations from science or 
+mathematics 
+Stylistic analysis of a given artist's style, 
+with designation and statement of a speci­
+fic set of definitions describing the style 
+Artistic composition of a given musical era, 
+with-parameters of such rules 
+Thus the art idea is initially expressed in the 
+manner of science, but it does not end there. The 
+choice of the art idea or problem should express the 
+personal philosophy of the originator, whether it is 
+mathematical formulae, natural derivations from the 
+environment, or analyses of prior styles of artists. 
+The personal focus of the original idea, ensuing 
+variation and execution cannot be too strongly 
+stressed! The design stii'tevariations allow the 
+artist to choose the given direction of psychic ex­
+pression. Further, selection of specific computer 
+systems and art materials affords a highly individ­
+ual element within cybernetic creation. And }astly, 
+the varying techniques of execution, which may be 
+preplanned or participant, add a unique and personal 
+opportunity to spontaneously pariicipate within the 
+formation of the work of ar-t, or to maximize the ca­
+pacities of the computer in artistic execution, us­
+ing preplanned or heuristic modes. 
+Diverse Philosophies of Computer Art 
+Stylistic analysis and resultant design deriva­
+tion are highly visible in the computer arts and 
+possess decided benefits: these techniques allow one 
+to analyze more thoroughly the subject under study, 
+and in addition, they allow the artist to gain per­
+ceptual variations and permutations of the original 
+source not obtainable by manual methods. (The writer 
+and many other.s have often found these new departures 
+from the design source to be as or more aesthetic 
+than the original input source.) There is, however, 
+a great tendency among humanists to concern them­
+selves· with past styles and subject matter, as being 
+more "pure" aesthetically than the present. On the 
+other hand, there is an equal tendency among scien­
+tists to exploit mathematical manipulation, disre­
+gard art totally, and to have the computer and its 
+peripheral devices accomplish the work of art, with­
+out intervention by man. Here one finds two ex­
+tremes, with beginning dogmatic statements by art­
+ists of varying capacities and philosophies. The in­
+sightful computer artist, however, seeks }o unite 
+personal philosophy and expression with the highest 
+level of computer usage.in a statement of artistic 
+unity. However, one is conscious of new visions 
+emerging throughout history, which are subsequently 
+categorized and "cast in bronze," as "the way." Com­
+puter art appears to be 110 exception to this gre·at 
+(please tum to page 31 J 

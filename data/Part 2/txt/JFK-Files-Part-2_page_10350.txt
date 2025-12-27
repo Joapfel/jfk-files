@@ -1,0 +1,49 @@
+... 
+SUBJECT: Dome,tic Tests·for Agency Resfrch and 
+.- Develop~ent Efforts 
+• 
+-c. Tclephqne Intrusion Study - The objec-. 
+tive of this current program 1s to aevelop a 
+means-to utilize foreign telephone systems as 
+a communication link without the kno,,·lcdge of 
+the.host system. In order to carry out this 
+objective, it .is necessary to learn the com­
+plete supervisory s:j.gna.lling and· sequencing 
+control system hierarchy for the various foreign 
+telephone systc~s. Many of these arc patterned 
+after the U.S. system and, for this reason, 
+limited monitoring to test the operation of 
+intercept equipment· in the United States is 
+planned. The data to be collected would be 
+merely the signal tones from which supervisory 
+codes can be extracted. Message content is 
+of no interest and will n,<;>t be recorded. ·over­
+seas_ testing i~ plnnncd at a subsequent date. 
+To date, some domestic testing of this concept 
+has been carried out at the contractor's plant. 
+No recordings hnve been mode of such data. Ex­
+tremely brief tests cxer~ising U.S. and foreign 
+telephone systems through supervisorj tone sig­
+nalling have b6en carried out to verify initial 
+concepts. The duration·of testing was less 
+than one-half hour. 
+d~- Other Sensor Testin~ - Examples of 
+engineer1ng develop~ent tests of special sensors 
+within tl1~ Uni tccl Stat'cs include infrared .and . 
+high-altitude photography, forward-looking IR 
+(FLIR) flights, laser scanners, industrial efflu­
+ent sampling for isotopes, and airborne magne­
+tomcte~ surveys for metal (rifl~s and trucks). 
+In all these cases, the data o"utput of such 
+.testing hns been used for engineering develop-: 
+rnent rind the content has been restricted to 
+dissemination to those in Government involved 
+with the engineering de~ign. 
+\. 
+2 
+I 
+! 
+. I 
+I. 
+-00230 
+,' ... "i 

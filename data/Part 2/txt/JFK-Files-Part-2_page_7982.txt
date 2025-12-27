@@ -1,0 +1,105 @@
+13-00000 
+±nizw--?dr"t#tN<z 1rt i:1:frri:w;;Hh:riftitit iatitdiriiiifJSStTs"fi"'·-w n' .·,·r ;1:ifiiitit:t•s ·£5:rrr H' 
+EDITORIAL 
+The Understanding of Natural Language by Computers 
+Proposition: Computers are making long strides towards 
+understanding natural language as used by human 
+beings, and will eventually understand such language 
+as well as many human beings do. 
+What do we mean by: computers? understanding lan­
+guagefnatural language? And what is the evidence for this 
+proposition? 
+The word "computers" here refers to powerful comput­
+ers that have appropriate programs written by human be­
+ings plus the programmed capacity to improve their pro­
+grams by using experience. An example of such improve­
+ment is Dr. A. L. Samuels' famous checker-playing pro­
+gram, which can learn from experience, and which plays 
+far better checkers than Dr. Samuels himself can play. 
+The experience may consist of the following at least: 
+Answers from human beings to questions posed by 
+the computer; 
+Differences between computed results and a priori 
+specified results; 
+Signals from the environment, such as instrument 
+readings; 
+Information obtained by "looks" at the environment, 
+as for example recognition of the character A, as 
+in optical character recognition; 
+The interpretation of words, as with FORTRAN ex­
+pressions. 
+Probably there are even more categories of experience 
+which a powerful computer program can use to modify it­
+self to become even a better program. 
+In regard to "understanding language", there are over 
+S00 languages which computers have been programmed to 
+understand, when written precisely according to stated 
+rules: among them, BASIC, FORTRAN, COBOL, many 
+kinds of machine language, etc. 
+"Natural language" is the ordinary language used by hu­
+man beings, subject to the requirement that for a computer 
+implicit understandings must be stated. For example, when 
+a speaker exclaims "Ouch!", a great deal of the meaning 
+comes from the listener's observations of the speaker. But 
+a computer, like a blind man, cannot "see" the situation, 
+and must be told more than the ordinary. listener. 
+With some definitions taken care of, let us consider evi­
+dence for the main proposition stated above. This evidence 
+includes the information published in several recent ar­
+ticles in Computers and Automation. • 
+The article "'Do What I Mean' - The Programmer's As­
+sistant", by Warren Tcitelman, in the April 1972 issue, 
+• described a "programmer's assistant", called "DWIM"; this 
+was a "'front end" or preprocessor to an interactive pro­
+gram for operating with LISP expressions. The front end 
+was tolerant of the programmer's mistakes in typing, in low-. . . . - . . . . ... .. .. . 
+mistake occurred, it would inquire of the human program­
+mer what he meant, suggesting the correctly spelled alter­
+native, and so on. In this way the human programmer was 
+relieved of much of the burden of expressing himself ex­
+actly and correctly the first time, and his efficiency in 
+using the LISP interactive program greatly increased. 
+The three articles "Computer Programming Using Natu­
+ral Language" by Edmund C. Berkeley, Andy Langer, and 
+Casper Otten, in the June, July, and August 1973 issues, 
+demonstrated the understanding by a computer program 
+called GENIE of at least some sets of instructions in ordi­
+nary natural language. The vocabulary though small was 
+free; and there was unlimited freedom in putting the words 
+together, with about a 90% chance of complete under­
+standing. The computer program that did this could be 
+called 1S% GENIE, because, as the authors emphasized, it 
+was still in an early stage of development. 
+The article "Latest Computers See, Hear, Speak, and 
+Sing - and May Outthink Man" by David Brand, in the 
+October 1973 issue, enumerated many instances of com­
+puters (and robots equipped with computers) whicll could 
+deal with concepts expressed in natural language. One of 
+the programs mentioned could for example decipher natu­
+ral language commands dealing with the stacking of blocks 
+of various shapes, sizes, and colors. 
+The main tasks for understanding natural language ap­
+pear to be the following: 
+Recognition of the framework of a sentence; 
+Recognition of the common meaning of groups of 
+synonyms, the collection of words that "say 
+the same thing"; 
+Knowledge of context: the context is regularly 
+specified to the computer, so that it does not 
+have to deduce the context from "what is being 
+said"; • 
+Knowledge of a limited vocabulary consisting of per­
+haps 300 to 500 words - knowledge in the sense 
+that the computer program can attach meaning to 
+the words either by themselves or in phrases, as 
+for example it may attach the meaning of doing 
+something three times to the numeral 3; 
+Capacity to accept variation in the way something is 
+stated by a human programmer. 
+The three articles referred to above show instances of 
+the achievement of all of these tasks separately. Combin­
+ing all the achievements should not be too hard, especially 
+since children as young as four years old show complete 
+capacities to listen to many kinds of natural language, un­
+derstand, and respond. 
+• 

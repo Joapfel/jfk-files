@@ -1,0 +1,89 @@
+i._ 
+I. 
+·'I 
+,i 
+·1 
+·, 
+'i 
+-/ 
+.., 
+I 
+,· 
+), .. 
+/.·· 
+!schedule D (Form 1040) 1975 
+■ ®l\'11 Capital Loss Limitation-Where Losses Are Shown on Both Lines 12{a) AND 13 
+17 Enter loss front line 5; if line 5 is zero or a gain, enter a zero . 
+18 Enter loss from line 13 . 
+19 Enter gain, if any, from line 5; if line 5 is zero or a loss, enter a zero 
+20 Reduce loss on line 18 to the extent of the gain, if any, on line 19 ·__3___·1 · _· <' / o· · ,· 
+21 Combine liries 3 and 11 and if gain, enter gain; if zero or a loss, enter a zero / _ ~ 
+Note: If the entry on line 21 is zero, OMIT lines 22 through 28, and enter on line 29 the 
+loss shown on line 12(a). • 
+22 Enter gain, if any, from line 11 . 
+23 Enter smaller of amount on line 21 or line 22 . 
+24 Enter excess of gain on line 21 over amount on line 23 
+25 Enter loss from line 4(a); if line 4(a) is blank, enter a zero . 
+26 Reduce gain, if any, on line 24 to the extent of lo_ss, if any, on line 25 (see Instruction K) 
+27 Enter loss from line 12(a) . 
+28 Add the gain(s) on line(s) 23 and 26 
+22 f/Qf 
+23 ~t lJ5 
+24 ► - 0::.: 
+25 -o-
+26 •• -" --
+27 (/3?22. J 
+2s f I ~ 
+29 Reduce the loss on line 27 to the extent of the gain, if any, on line 28 (see Instruction L) 
+30 Enter smaller of amount on line 29 or line 20 (if line 29 is zero, enter a zero) . 
+31 Subtract amount on line 30 from the loss on line 20 
+32 Enter 50% of the amount on line 31 . 
+33 Add lines 17, 30, and 32 . 
+34 Entur here and u11l1:r a:; a (loss) 011 Form 10'10, li111: 7.9a, tl1u :;111allc:,t of: 
+(a) Amount on line 33; 
+17 
+18 
+19 
+~J __ o 
+29 
+30 
+31 
+32 
+33 
+(b) $1,000 ($500 ii marri_ed and filing a separate return-see Instruction N for a highe~ limit not to exceed $1,000); or, 
+(c) Taxable Income, as adjusted (see Instruction M) . 34 • ( / (J ?J t) • 
+■@fM Complete Part V _if You are Married Filing a Separate Return and Losses are Shown on Lines 4(a) and 
+14 (See Instruction N) 
+35 Combine lines 3 and 11 and if gain, enter gain; if zero or a loss, enter a zero 35 ---
+Note: It. the entry on line 35 is zero, OMIT lines 36 through 42, and enter on /inc 43 the loss shown on .. 
+line 4(a). 
+36 Enter gain, if any, from line 3 36 --
+37 Enter smaller of amount on line 35 or line 36 37 
+38 Ente.r excess of gain on line 35 over amount on line 37 38 --
+39 Enter loss from line 12(a); if line 12(a) is blank, enter a zero 39 --
+40 Reduce the gain, if any, on line 38 to the extent of the loss, if any, on line 39 (sec Instruction K) 40 --
+41 Enter loss from line 4(a) . 41 --
+42 Add the gain(s) on line(s) 37 and 40 . 42 --
+43 Reduce the loss on line 41 to the extent of the gain, if any, on line 42 (see Instruction L) . 43 
+1$19• Computation of Alternative :rax {See Instruction W to See if the Alternative Tax Wilf Benefit You) 
+44 Enter amount from Form 1040, line 47 . 44 --
+45 Enter amount from line 15(a) . 45 
+46 Subtract amount on line 45 from amount on line 44 (but not less than zero) 46 
+47 Enter smaller of amount on line 13 or line 14 47 
+If line 47 does not exceed $50,000 ($25,000 if married filing separately), check here ► O and omit 
+lines 48 through 54 . 
+48 Enter your share of certain long-term gains from partnerships, fiduciaries, and small business cor-
+porations referred to as "certain subsection (d) gains" (sec Instruction W) 48 ' .. --
+49 Enter amount from line 48 or $50,000 ($25,000 if married filing separately), whichever is larger . 49 
+If line 49 is equal to or greater than line 47, check here ► D and omit lines 50 through 54. 
+50 Multiply amount on line 49 by 50% 50 
+51 Add amounts on lines 46 and 50 51 
+52 Tax on line 44 or 45, whichever is greater (use Tax Rate Schedule in instructions) 52 --
+53 Tax on the amount on line 51 (use Tax Rate Schedule in instructions) 53 --
+54 Subtract amount on line 53 from amount on line 52 54 --
+55 Tax on the amount on line 46 (use Tax Rate Schedule in instructions) . 55 --
+56 If the block on line 47 or 49 is checked, enter 50% of line 45; otherwise enter 25% of line 49 56 --
+57 Alternative Tax-add amounts on lines 54 (if applicable), 55, and 56. If smaller than the tax figured 
+on the amount on Form 1040, line 47, enter this alternative tax on Form 1040, line 16a 57 
+* U.S. GOVERNMENT PRINTING OFFICE ; 11/r-O-575-054 16-"s2s11-1 
+33 

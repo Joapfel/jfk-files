@@ -1,0 +1,58 @@
+(JI 
+ii;:. 
+(JI 
+(JI 
+\0 
+Record ID no {104/180): 104-10078-10014 
+vol folder: F21 status: 
+Top Secret Date of Report: 04/02/2001 
+Print One Document with Issues - All Input Fields 
+Sorted by Issue 
+104 No: 
+SAN 
+104-10078-10014 jfk id no: 
+record number 
+1995.09.27.16:41 :00:970028 
+meeting date: 
+status validation SAN postpone count: 9 first postpone date: 
+fed registry notice no: fed registry date: 
+Next Doc Issue Date: 
+new postpone date: 
+12/01/2005 
+General Comments: SAO PAULO AND RIO de JANEIRO, SAOP; PROTECT (BE) RELEASE (TIDE); OPS DETAIL: LIGHT STATE 
+ISSUES Subform: 
+issue: BE DIGRAPH 
+action date: 
+issue: CABLE PREFIX 
+action date: 
+issue: CIA INSTALLATION 
+action date: 
+issue: OPERATIONAL DETAILS 
+action date: 
+occur count: 2 action 
+issue comment: SEE 104-10017-10041. OTHER DOCS W/LATER DATES. - -
+occur count: 1 action 
+issue comment: NOTE EXCEPTIONS TO 2017 RELEASE IN DOC COMMENTS - -
+occur count: 5 action 
+issue comment: NOTE EXCEPTIONS TO 10/2017 IN GENERAL COMMENTS 
+- - -
+occur count: .1 action 
+issue comment: NOTE EXCEPTIONS TO 2017 IN GENERAL COMMENTS 
+Top Secret Page 1 of 1 
+-
+-
+-
+box number JFK17 
+8/25/98 
+doc issue date 
+- - - - - -·· - -
+doc issue date 
+- - - - - - - -
+doc issue date 
+- - - - - - -
+doc issue date 
+12/01/2005 
+10/01/2017 
+10/01/2017 
+- - - - -
+10/01/2017 

@@ -1,0 +1,11 @@
+OFFICIAL USE ONLY 
+li2 
+10 
+VENEZUELA 
+--+----+---+--+ Selected railroad 
+2 
+34168 lCHl3 
+50 100 
+50 JOO 200 Kllometers 
+64 62 60 
+I 

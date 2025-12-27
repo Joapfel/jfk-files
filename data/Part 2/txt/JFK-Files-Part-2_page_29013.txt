@@ -1,0 +1,100 @@
+\ 
+-•\· 
+. . 
+\ 
+SCHEDULE SE 
+• (Form 1040) 
+Department of the Treasury 
+Internal Revenue Service 
+Computation of Social Security Self-Employment Tax 
+► Each self-employed person must file a Schedule SE. 
+► Attach to Form 1040. ► See lnstru,ctions for Schedule SE (Form 1040). 
+• If you had wages, including tips, of $13,200 or more that were subject to social security taxes, do not fill in this form. 
+• If you had more than one business, combine profits and losses from all your businesses and farms on this Schedule SE.· 
+lmportant.-The self-employment income reported below will be credited to your social security record and used in figuring social security benefits. 
+NAME OF SELF-EMPLOYED P~SON (AS SHOWN ON SOCIAL SECURITY CARD) I Social security number of 
+f JI. 'I I. L / .J' F,.. tA.._B._ V • . self-employed person ► 3 
+Business'.?ctivities subject to self-~;-yment tax (grocery store, restaurant, farm, etc.) ► .J .,._ A-/2,. 
+• If you have only farm income complete Parts I and Ill. • If you have only nonfarm income complete Parts II and Ill. 
+• If you have both f;irrn .:ind 11011farm income complete Parts I, II; and Ill. • 
+■@I Computation of Net Earnings from FARM Self-Employment 
+A farmer rnay elect to compute net farm earnings using the OPTIONAL METHOD, line 3, instead of using the Regular Method,· 
+line 2, if his gross profits are: (1) $2,400 or less, or (2) more than $2,400 and net profits are less than $1,600. However, lines 1 and 
+2 must be completed even if you elect to use the FARM OPTIONAL METHOD • • 
+REGULAR METHOD { (a) Schedule F, line 54 (cash method), or line 74 (accrual method). 
+1 Net profit or (loss) from: (b) Farm partnerships .. 
+2 Net earnings from farm self-employment (add lines l(a) and (b)) . . . . . . . . 
+3 If gross profits (a) Not more than $2,400, enter two-thrrds of the gross profrti . . . . FARM OPTIONAL METHOD{ • • } 
+from farming ' are: (b) More than $2,400 and the net farm profit is less than $1,600, enter $1,600 . . 
+1 Gross profits from farming are the total gross profits from Schedule F, line 28 (cash method), or line 72 (accrual ~~=..,-rr,==-~~r. 
+method), plus the distributive share of gross profits from farm partnerships (Schedule K-1 (Form 1065), line ~ • ~ 
+15) as explained in instructions-fgr Schedule SE. - ~ 
+4 Enter here and 011 line 12(a), the a111oum on line 2, or line 3 if you elect the farm optional method 
+■:.fflii ■ Computation of Net Earnings from NONFARM Self-Employment 
+(a) Schedule C, iine 21. (Enter combined amount if more than one business.) 
+. . (b) Partnerships, joint ventures, etc. (other than farming) 
+REGULAR METHOD 
+5 Net profit or 
+(loss) from:· 
+(c) Service as a minister, member of a religious order, or a Christian Science prac­
+titioner. (Include rental value of parsonage or rental allowance_ furnished.) If 
+you filed Form 4361, check here O and enter zero on this line . 
+(d) Service with a foreign government or international organization . 
+O (Sea Form 1040 in- - . 
+(e) ther slructions for line 37.) Specify ►--····················-·····-············ ......... . 
+6 Total (add lines 5(a), (b), (c), (d), ana le)) . 
+7 Enter adjustments if any ~attach statement) 
+8 Adjusted net earnings or (loss) from nonfarm self-employment (line 6, as adjusted by line 7) .. 
+If line 8 is $1,600 or more OR if you do not elect to use the Nonfarm Optional Method, omit lines 9 
+through 11 and enter amount from line 8 on line 12(b), Part Ill. • 
+Note: You may use the nonfarm optional method (line 9 through line 11) only if line 8 is less than $1,600 am! 
+les~ than two-thirds of your gross nonfarm profits.' and you had actual net earnings from self-employment of 
+$400 or more for ;it least 2 of the 3 following years: 1971, 1972, and 1973. l he nonfarm optional method can 
+only be used for 5 taxable years. 
+'Gross profits from nonfarm business are the total of the gross profits from Schedule C, line 3, plus the distribu­
+tive share of gross profits from nonfarm partnerships (Schedule K-1 (Form 1065), line 15) as explained in 
+instructions for Schedule SE. Also, include gross profits from services reported on lines 5(c), (d), and (e), as 
+adjusted by line 7. • 
+NONFARM OPTIONAL METHOD 
+9 (a) Maximum amount reportable, under both optional methods combined (farm and nonfarm) 
+(b) Enter amount from line 3. (If you did not elect to use the farm optional method, enter zero.) 
+(c) Balance (subtract line 9(b) from line 9(a)) 
+10 Enter two-thirds of gross nonfarm profits' or $1,600, whichever is smaller . 
+11 Enter here and on line 12(b), the amount on line 9(c) or line 10, whichever is smaller 
+•:F.r.1 ■ 11• Computation of Social Security Self-Employment Tax 
+12 Net earnings or (loss): (a) From farming (from line 4) 
+(b) From nonfarm (from line 8. or line 11. if you elect to use the Nonfarm Optional Method) 
+1--)___,'(___.[b"-=-r'---
+1-Yc,-?, --
+• 
+■ 
+1■•■--~ I -$1,600 00 --
+--
+--
+j 
+--2-~ --
+13 Total net earnings or (loss) from self-employment reported on line 12. (If line 13 is less than $400, 
+you are riot subject to self-employment tax. Do not fill in rest of form.) . 1.,-YOJ> __ 
+14 The largest amount of combined wages and self;emptoyment earnings subject to social security tax for 1974 is $13, 200 00 
+15 (a) Total "FICA" wages as indicated on _Forms W-2 . . . -I ·_ , • • ~ -
+(b) Unreported tips, if any, subject to FICA tax from Form 4137, line 9 • -_ ef~ .. -
+(c) Total of lines 15(a) and (b) . . -o-
+16 Balance (subtract line 15(c) from line 14) . 
+17 Self-employment income-line 13 or 16, whichever is smaller • . 
+18 If line 17 is $13,200, enter $1,042.80; if less, multiply the amount on line 17 by .079 ' .. 
+19 Railroad employee's and railroad employee representative's adjustment from Form 4469, line 10 
+20 Self-employment tax (subtract line 19 from line 18). Enter here and on Form 1040, line 55 .. 
+* U.S. GOVERNMENT PRINTING OFFICE 1 1974-0·548-055 
+1 !~ 
+C90 
+I 7 h 
+NW 3832:ti Dodd:31145535 
+f 
+I
+,, 
+' ~ 
+•. _: ~ 
+. 
+6 ~-
+' ,'\ 
+r­t 

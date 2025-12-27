@@ -1,0 +1,111 @@
+13-00000 
+ACROSS THE EDITOR'S DESK 
+Computing and Data Processing Newsletter 
+Table of Contents 
+APPLICATIONS 
+National American Bank Installs Computer­
+Based Security System 
+Nova Computer Checks Str~ngth of Roof in 
+..-.:;- Coal Mi ne 
+,1::i-hone Books by Computer 
+EDUCATION NEWS 
+DigHal;Equipment Corp. Computer Aids M.I.T. 
+Music Project 
+APPLICATIONS 
+NATIONAL AMERICAN BANK INSTALLS 
+COMPUTER-BASED SE CUR ITV SYSTEM 
+Tom Burbank 
+National American Bank 
+200 Carondelet 
+New Orleans, La. 70130 
+42 
+42 
+43 
+A computer-based system designed to prevent un­
+authorized access to high security areas has gone 
+into operation at National American Bank here -
+one of the first U.S. banks to install such a svs­
+tem. The IBM Controlled Access System (CAS) at.Na­
+tional American is based on the use of magnetically 
+encoded, wallet-sized identification cards similar 
+to bank credit cards. 
+Each person authorized to enter a security area 
+is assigned a card coded with his own security num­
+ber. Employees seeking entry to an area covered by 
+the system simply insert their cards into .compact 
+reading devices on entrance doors, and. the informa­
+tion is transmitted to an IBM System/7 computer for 
+identification. 
+Stored in the computer's memory is a list of em­
+ployee numbers and building areas these numbers are 
+designated for. If the number of the card entitles 
+the bearer access· to that area, the computer signals 
+the door to unlock. If the person is unauthorized 
+to enter, the door remains closed and a security 
+guard is notified. The elapsed time is approximately 
+one second. 
+If a card is lost or stolen, a new card (with a 
+new number) is issued and the system is alerted to 
+deny entry to the original card.· If the old card 
+is used, the guard is alerted. 
+As an additional safeguard, the system can auto­
+matically log all entrance activity by individual 
+security code, door number, date and time of day. 
+This helps track who is where and for how long. 
+National American can now analyze the number of 
+Composing by Computer at ISU 
+Student Programs Computer for Remedial 
+Instruction 
+RESEARCH 
+"Talking" Ballpoint Pen· Under Development 
+MISCELLANEOUS 
+ICCP Names Directors and Officers 
+IFIP Congress '74 Travel Grants 
+44 
+44 
+45 
+45 
+47 
+times an individual enters and at what time of day 
+or night this activity occurs. The system also has 
+built-in failsafe mechanisms which insure security 
+in the event of a power failure. 
+"Unfortunately, we are doing business in a time 
+when public and private institutions are increas­
+ingly vulnerable to lawless elements," said National 
+American President Louie J. Roussel III. "By adding 
+the IBM Controlled Access System to our current se­
+curity procedures, we are taking a major step to in­
+sure that our customers and employees are protected. 
+And, by controlling access to the collateral'instru­
+ment storage areas, we can make it very difficult 
+for unauthorized people to gain access to valuable 
+assets st-0red in the bank." 
+NOVA COMPUTER CHECKS STRENGTH 
+OF ROOF IN COAL MINE 
+Edgar E. Geithner 
+Data General Corp. 
+Southboro, Mass. 01772 
+Data General's minicomputers track hurricanes 
+from airplanes for the U.S. Air Force: the Armv has 
+mounted them in helicopters: Scripps Oceanographic 
+Institute has one ~n a ship; a scientist bounces 
+over Canadian glaciers with one mounted in his 
+tracked vehicle; and an oil company uses one of the 
+computers to control an oilfield in the Libyan des­
+ert. Now engineers at the University of Texas ·(Aus­
+tin) have a minicomputer in the bottom of a mine. 
+/ 
+Dr. A. L. Podio, an assistant ~rofessor in the 
+university's Department of Petroleum Engineering, 
+and a team of researchers from the Center for Earth 
+Sciences and Engineering, use a Nova 820. computer to 
+detect possible weak spots in the roofs of mines. 
+The computer system, developed for t~e U.S. Bu~eau 
+of Mines, has been .on the job on the floor of Kaiser 
+Corporation's York Canyon coal mine in New Mexico. 
+"One of the most frequent causes of mine accidents 
+is roof collapse," Dr. Podio said. "This system was 
+de~igned to use the principles of seismic explora­
+tions to identify failure planes and fracture zones 
+in the rocks overlaying the mine roof. If tests 

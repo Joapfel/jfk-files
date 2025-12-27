@@ -1,0 +1,138 @@
+13-00000 
+wide'toux. working with Professor Vercoe on the 
+project are Richard J. Steiger, a graduate student, 
+and Stephen Haflich, a recent M.I.T. graduate. 
+COMPOSING BY COMPUTER AT ISU 
+Information Service 
+Iowa State University of Science and Technology 
+Ames, Iowa 50010 
+Music composers at Iowa State University may turn 
+from their piano keyboards and hand-writt~n scor!s 
+to a more efficient instrument for composing music 
+- a computer. ISU faculty members are building a 
+computerized electronic mus~c s~udio - a_system 
+that will technologically simplify composing elec­
+tronic music. The studio is being designed and 
+built by an interdisciplina,rr group from lo~a 
+State's music, computer science, and electrical en-
+,...eering departments, under the direction of ~tefan 
+st-lverston, assistant professor of computer science, 
+Terry Smay, professor of electrical engineering, and 
+Gary White, associate professor of music. 
+Electronic music is produced by purely electronic 
+means and the Iowa State,-Computerized Music System 
+(ISMUS) will be doing just that - generating music 
+with computer equipment. A composer will sit at the 
+computer and write a musical composition using an 
+electronic keyboard. 
+The new system, which was expected to be operable 
+this fall, should be an easier method of modifying 
+and editing a musical piece. The normal hand opera­
+tions of changing notations on a printed score or 
+splicing tapes of recorded music are "more time:­
+consuming and inaccurate" processes for correcting 
+a composition, according to Gary White. 
+The computer composing process begins when the 
+composer inserts introductory instructions into a 
+teletype machine. On an electronic keyboard he then 
+begins to compose his piece. The computer records 
+all musical instructions which are transformed 
+through a digital-to-analog sound converter and 
+loudspeaker into sound. This immediate feedback 
+system enables the composer to hear what he is com­
+posing simultaneously. The computer also allows- the 
+composer to automatically play back and edit what he 
+has written simply by striking another key. 
+The musician has now completed one "layer" of 
+music. If he wants to add further musical instruc­
+tions to the composition, he repeats the entire pro­
+cess again. All layers merge together to obtain the 
+product - a completed electronic composition. 
+The music instructions which the composer inserts 
+into the system are a special electronic music nota­
+tion - a "computer language." The English words it 
+uses can be compared to musical notation found on a 
+conventional score - treble and bass clefs, notes, 
+rests, and the like. 
+Electronic music has been used in commerci-al re­
+cordings, and as background music for television, 
+radio and film. The l'owa State system will be so­
+phisticated enough for use in serious compositional 
+study, the production of background music for vari­
+ous media, and for the demonstration of sound prop­
+erties. 
+The ISMUS presently being built is a protytype of 
+a full-scale model. If the "test-system" proves 
+satisfactory, "we will look for funding to build a 
+full-scale model," says White. The project is pres­
+ently supported by a $1,170 grant from Western Elec-
+tric and a National Science Foundation institutional 
+grant of $8,698. The prototype employs a mini-com­
+puter that is owned by Iowa State. 
+The studio wi 11 be used as a .teaching tool for 
+the ISU music program. Computer software, the pro­
+grams (sequences of operations to be pe~formed by 
+the computer) written for the system, will be devel­
+oped so a composer can use the studio equipment 
+without having prior knowledge of computer program­
+ming. Students will be able to learn b~sic a~ousti­
+cal concepts and principles of electronic music syn­
+thesis and to develop sensitivity to timbre with the 
+ISMUS. Also contributing to introductory computer 
+science courses, the system will be a povel example 
+of computer application in a non-scientific field. 
+STUDENT PROGRAMS COMPUTER 
+FOR REMEDIAL INSTRUCTION 
+Edward J. Canty 
+Digital Equipment Corp. 
+Maynard, Mass. 01754 
+Using programs developed by a local high school 
+student, School District 91 in Idaho Fall!, has put 
+its newly-acquired computer t9 work as a super_ 
+tutor" in remedial studies for disadvantaged child­
+ren in this southeastern Idaho community. Designed 
+·to improve the arithmetic and language art~ skills 
+of children in grades 2 through 6, the proJect was 
+introduced by director of curriculum Or. \liallace 
+Manning with federal Title· 1 aid during the dis­
+trict's 1973 summer session for children largely 
+from rural farm families. According to John A. 
+Christensen, computer sciences coordinator, the 
+project proved so successful in its initial appli­
+cation that it has been continued in the fall se­
+mester, 
+The student programmer is Robert Huntsman, 18. a 
+June graduate of Idaho Falls' Skyline High School. 
+Using the district's PDP-11/20 timesharing computer 
+system installed last December by Digital Equipment 
+Corporation, Huntsman developed programs for arith­
+metic and language drill to serve between 40 and 50 
+pupils on each of two teletypewriter terminals situ­
+ated in local elementary schools. 
+In a typical arithmetic routine, the computer 
+types a problem and waits for the pupil's response 
+- ten seconds if the problem is a memory exercise,. 
+longer if it involves several columns for addition 
+or several digits for multiplication. If the stu­
+dent's answer is correct, Huntsman's program directs 
+the terminal to ring a bell in congratulation; if 
+incorrect, the computer supplies a hint on where the 
+mistake occurred and encourages him to try again. 
+Answers to English and social studies workbook 
+questions have been entered in the computer memory, 
+allowing students to do their homework at a terminal 
+and receive immediate response. The computer keeps 
+score of right and wrong answers to produce reports 
+for teacher guidance. Spelling-recognition exer­
+cises are also in use and Huntsman has undertaken 
+development of an arithmetic program involving frac­
+tions 
+"One of the computer's major advantages is its 
+ability to pay attention to individuat children," 
+Christensen said. •:Every chi Id enrolled in the 
+regular summer session was able to get experience 
+at a terminal and benefit from these interactive 
+programs." He said high scho~l laboratory assist­
+ants will continue to write instructional programs 
+for elementary and junior high levels, expanding the 
+library begun by Huntsman. For future summer ses-

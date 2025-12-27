@@ -1,0 +1,61 @@
+13-00000 
+1 
+3 
+4 
+5 
+6 
+9 
+I . 
+TYPE YE,AR NUMBER', 1/1 DOC. NO. 
+,E 
+75 76 77 78 
+DOCUMENT DESCRIPTION (30 CHARACTERS) 
+CABLE 
+DISPATCH 
+i------.... 
+MEMO .' 
+REPORT 
+FROM/ORIGINATOR (30 CHARACTERS) 
+CLASS WHERE LOCATED (10 OiARACTERS) 
+SUBJECT (BO CHARACTERS) 
+81 82 83 84 BS 86 B7C 
+OF FOIA 
+REFERRED BY (10 CHARACTERS) 
+v/3 I 
+J1 J1B J1C J1E J1F K1 
+OF PA 
+NEW DOCUMENT RECORD 
+Instructions (or Divisions and Sta((s: 
+1. Fill in shaded areas only. 
+2. Additional comments should be written on back of form. 
+DAY MONTH 
+TO/RECIPIEN.T (30 CHARACTERS) 
+ODO? 
+TYPE 
+OF 
+REVIEW 
+DO FILE NUMBER (20 CHARACTERS) 
+IAL 
+DATE 
+OF 
+REVIEW 
+DAY MONTH 
+E. Sustain initial denial in toto 
+F. Sustain initial release of 
+of sanitized version 
+G. Release additional information 
+581 582 583 584 
+OF E.O. 116S2 
+Exemptions are being claimed to protect the following: 
+Iii~ 
+:~ 
+ft 
+;' 
+h 
+j/~~.J;.:\~t'_~-~-:.: 
+.\f ':{? ·:~.-;:\'~ ... 
+''t~- -:·:. -
+;\j{,:;:;,.;_?(,:,,. ·,,," .. ,, ,/~Yf,:;tl~~l,~· 
+YEAR 
+73 
+YEAR 

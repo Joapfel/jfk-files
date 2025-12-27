@@ -1,0 +1,137 @@
+13-00000 
+,, .. ,. nirtt, fraud, sabotage, EDP equipment mal-
+d human errors are considered the most , • .,. ''"••• an 
+t ....... dl1t9f'rl, 
+Ga•llff terminals connected to central processors 
+fr• ,_o,e points are more exposed to violations 
+• .., •••t••• The Increasing populari~y of time­
+,,., 199 111,ems among large corporations and ser­
+••c• ~ur~aus has given rise to even more potential 
+,..c.rllJ breaches. Data transmitted ?Ver a c?m-
+.. ,,,,,1on line could be subject to wire tapping and 
+• ,~, oC other hazards such as piggyback.entry, 
+_...,.~, the Intruder intercepts and compromises 
+•-■ &cation between a terminal and the processor 
+■'Ill•• lrgltlmate user is inactive but still hold­
+•••''" line open. The intruder can even cancel 
+••• •••r•• sign-off signal and continue operating 
+11 ••• aal!lf', A knowledgeable person could enter 
+,,~ changes from a terminal and play havoc with 
+,-. -.,itt'III, 
+Nead for Protection 
+~ to the increasing popularity of computing 
+••rYICf"S, the issue of control and security pro-
+1re1lon has become more important. It is evident 
+1h1 1 lmc-shari ng systems present few· obstacles to 
+•••uthorlzed parties. The security problem has been 
+-.sr ~uch more critical by the growing number of 
+..,.~Pl" trained in computers and by the fading of the 
+,~•••er mystique, In addition, communication by 
+..,,,, oC time-sharing systems has no more protection 
+•••• telephone conversations or Morse-coded methods, 
+ti ■<• the technological skills necessary to inter­
+,,., c0111puterized data are widespread. More and 
+.. ,. coeipanies are appointing security monitors from 
+•••Ir t:111' staffs to centralize security matters. 
+fra4r organizations such as the American Management 
+&,ioclatlon and the Bank Administration Institute, 
+c.,..,,11rr firms, and research firms such as Advance­
+••• Management Research, Inc. find their seminars 
+.. coeputer security overcrowded by data processing 
+-.aaagrrs and security officers from business and 
+tnernment, 
+Target of Attacks 
+Coeputers have become an important source of in­
+f•raetlon and, as a result, the target of many at­
+••~l•. Some of the general information targets for 
+I...Sustrlal espionage are sales and service informa­
+tloa. market analysis strategies, bid prices, cor­
+porate finance, stockholder information, legal ne­
+t 0 •1atlons, planned policy changes, expansion plans, 
+product drvelopments, personnel changes, payroll 
+data, v•neral administrative matters; and the list 
+'"Id be expanded even more, 
+Threats 
+The case ot an 18 year-old Cincinnati youth who 
+atrd long distance telephone to tap the lines of a 11•-sharlng system firm in Louisville, Kentucky, 
+'" •••ncted data from its ledgers as well as rec-d • ' •r I o. Its customers, is representative of the type 
+•I risk 10 which computer installations are expo~ed. 
+Accldrnts can have serious consequences such as 1'• lecldent in which income tax return records for 1--.,q •ere erased by energy emitted from the radar of 
+• ~•rby airport in Austin, Texas. 
+Safeguards 
+la 11 Important to consider that too much control 
+•...S too 111ny security safeguards can become bother­
+,_. •nd costly, The measures to protect data from 
+::•••• 0rlzed access vary from one system to another. 
+,.!0 ~dlng to _Richard F, Cro!s, Security Office.for 
+'Ink or Ne~ York. 11Pr.11r11v ,;v,;tpm,; .:hn11J1I ,n-
+elude each of the following segments: physical se­
+curity; personnel security; procedural security; 
+audit control; insurance; and any needed interfacing. 
+The quality and level of protection required de­
+pends on the sensitivity of the data handled, Never­
+theless, control and security in a time-sharing en­
+vironment should encompass the whole system, since 
+it is well known that even the strongest control 
+measures can be violated at the weakest point. These 
+measures should be taken in the central processing 
+unit, software, personnel, communication lines, the 
+terminal, and its users. 
+Methods and Provisions -
+Central Processing Unit 
+The central processor is threatened mostly by 
+sabotage, fire, water, theft, EDP equipment mal­
+functions, human accidental errors and environmen­
+tal problems, 
+The computer center of any company is the heart 
+of the organization, and protection of the equip­
+ment against these threats can be provided by a 
+carefully planned computer room. Luis Scoma, Presi­
+dent of Data Processing Security,· Inc., recommends 
+that the computer center be located out of the main 
+traffic areas. It must be fireproof, dustfree, and 
+waterproof and provided with temperature and humid­
+ity control and carbon dioxide fire extinguishers . 
+Water lines should not run through the computer 
+room. A separate, fireproof storage area should be 
+provided for data files, documentation, and oper­
+ating supplies. It should also have alarm devices 
+sensitive to magnetism, humidity, heat, pressure, 
+dust, theft, power blackout, etc. There should be 
+strong access control including armed guards, 
+fenced areas, TV ~onitors, personnel identification 
+(visual, voice print, fingerprint, badge, passwords, 
+etc.), well-performed maintenance service, and a 
+number of extra provisions for protection. 
+Data Processing Security, Inc. has developed,.for 
+high security necessities, an electronically oper­
+ated double door entry system for access control in­
+to -the computer room, When a person enters the buf­
+fer zone, the door locks behind him while he is sub­
+jected to electronic search. If something is de­
+tected, the system freezes and automatically alerts 
+the security guard. The second door can be opened 
+only with a special badge key, 
+A carbon dioxide (CO2) fire extinguishing system, 
+such as the one installed at the Chase Manhattan 
+Bank's New York City headquarters, has proved use­
+ful. Engineered by Walter Kidde & Co., Inc., this 
+system uses a battery of remotely located cylinders 
+containing the liquid gas. When activated by smoke 
+detectors, the gas discharges and builds up an in­
+ert atmosphere in the immediately surrounding area, 
+extinguishing the fire without damaging equipment or 
+data files. Employees can go back to work within 
+five minutes after the fire has been put out and the 
+ventilation systems restarted, 
+Another fire-fighting system which has been de­
+veloped by the Ansul Company uses Halon extinguish­
+ing agents which are discharged in the form oi a 
+colorless, odorless, and non-toxic gas. 'Since Halon 
+agents do not work by diluting oxygen, they are 
+well-suited for areas-where humans are present,_ 
+The Guaranty Bank and Trust Co. of Worcester, 
+Mass,, has adopted another approach to fire-fighting, 
+a system installed by Security Control Systems which 
+detects fire, smoke and excessive temperatures and 
+humiditv fluctuations and causes a monii~iinQ and 

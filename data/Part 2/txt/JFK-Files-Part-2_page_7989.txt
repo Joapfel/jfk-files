@@ -1,0 +1,148 @@
+13-00000 
+i ,-•d-wrltP access to data sets. The volume de­
+:..:,io• 1wltch alerts the control program when the 
+1_,.,.· h Increased; this protects data from being 
+~;,,,r ■ upon. This switch provides additional pro-
+1 ..-110■ tor read-only volumes. 
+Insurance 
+If data security measures fail, the use of EDP 
+••••r•ocr can back-up or soften the blow. Every 
+1,._ ... ,. 11 or person who ·now has !n in-house computer, 
+. ,.,a,,.1 or is a user of a service bureau, or trans­
+•••• data 10 a data center should be computer-secur-
+111 ,o"1cious. Ins~rance_is one of the back-up 
+• ,,.,,., if prevention fails. However, not all 
+... ,,.,. 11 can afford or even need an elaborate and 
+••-••avr security system; thus, evaluation of the 
+••!orr.u Ion becomes necessary to determine those 
+,ec1ioa1 or the system which require this protection. 
+~ 1ubject matter of ordinary insurance coverage 
+u piipacal damage to tangible property. In this 
+, 11 ,., 1of1ware and data are not covered. Business 
+1a1•rr"ption insurance protects you in the event of 
+f1rr or other interruptions to normal business but 
+,._, not cover the consequences. Boiler explosion 
+;411c1,.s which also insure other heating mishaps do 
+"' co\"t•r computer operations. Theft and employee 
+4ltboaesty are also insured in terms of general 
+r u~. \'aluable papers and records' coverage pro­
+••~•• protection in the event of destruction of such 
+••••"i•blcs as notes and account receivable records 
+hi Jo,•s not include such computer media as valuable 
+f•~r•. Public liability insures the company for 
+111 acts or omission of acts which give rise to 
+clalas by outsiders against the company. 
+ln•"rance can prevent 
+.,_,o■ lng a catastrophe. 
+••••nee policy, he knows 
+If a loss does occur. 
+an unfortunate event from 
+When a person buys an in­
+that he will be indemnified 
+So- of the insurance companies which write EDP 
+rollc it-s are the Saint Paul Fi re and Marine Insur­
+••cr Co,, Insurance Company of North America, The 
+tiow Insurance Co., and Royal Assurance of America. 
+la1urance premiums generally correspond to the 
+l'"911lar fire policy rates plus an added loading fac­
+tor for the additional EDP perils. 
+toJoubtedly any computer installation, regardless 
+•ft ►• .. quality and level of its security system, 
+""'"' approa.:h the state of no risk of loss. Se­
+car11y is based on a "cost-benefit" concept; in 
+.,,,., words the cost of violating the system should 
+.,_. trratrr than the gain derived therefrom. 
+References 
+•a11 About Time-Sharing Services." Data Processing 
+~..!.!• \'ol. 18, No. 3, March, 1972. 
+Iurato■, Jf'!frey N. • "The Terminal that Thinks for 
+l1,.-1r.• Computer Decisions. Vol. 5, No. 1, 
+,h1111ary, 1'173. 
+.. fl' 111 , Pf'lPr. •Software Security." Data Proces-
+1 !~~l!J .. 5 1. Vol. 18, No. 4, April, 1972. 11• 11 •n. U.-nnis K. "Privacy and Protection in Op­
+rJra111111 Systems." Computer. Vol. 6, No. 1, 
+• 11111ry, 1973. 1' 1 '• ~-1\"yn. "How Sare is Your Syn.em?" Data 
+( .._ tr~~r .. ulnq Digest. Vol. 18, No. 4, Apri~i972. 
+.... 11 ,.:, •· r •·• r • k W "C ii,;• .•ue & • omputers and Cryptology." 
+{,. - -.J_""111011. \'ol. 19, No. 1, January, 1973. 
+1 "1.~.•..!:.r :\,•1os • Vol. 16, No. 6, June, 1972. 
+;'·'\·.~-:~~- \'ol. lb, No. 10, October, 1972. 
+u,;'" 1
+10P""nU in Data Transmission." EDP Analyzer. 0 • ll, No. 3, March, 1973. 
+Dickey, C. Lewis. "Securing the Computer." Journal of 
+Systems Management. Vol. 23, No. 2, February, 1972. 
+"Distributed Intelligence in Data 
+EDP Analyzer. Vol. 11, No. 2, 
+"The Emerging Computer Networks." 
+Vol. 11, No. 1, January, 1973. 
+Communication." 
+February, 1973. 
+EDP Analyzer. 
+Gi rsdansky, M. 8. "Cryptology, the Computer, and 
+Data Privacy." Computers and Automation. Vol, 
+21, No. 4, April, 1972. 
+Goldstein, Seth. "A New Life for Time-Sharing." 
+Dun's. Vol. 101, No. 1, January, 1973 . 
+Hebdi tch, D. ·L. "A Simple Terminal Language for a 
+Database." Computer Bulletin. Vol. 16, No. 1, 
+January, 1972 . 
+Koehn, Hank E. "Are Companies Bugged aboiit Bugging?" 
+Journal of Syster,1s Management. Vol. 24, No. 1, 
+January, 1973. 
+Murphey, Wayne E. and Daniel V. Olson. "Controlling 
+Access to Large Tape Files." Data Processing 
+Magazine. Vol. 14, No. 1, Spring, 1972. 
+Salzman, Roy M. and Arthur D. Little. "An Outlook 
+for the Terminal Industry in the United States." 
+Data Processing Digest. Vol. 18, No. 1, January, 
+1972. 
+"Security in Data Processing." Data Processor. 
+Vol. 16, No. 1, February, 197~. 
+Simis, T. L. "Telephone Service: The Rules of the 
+_ Game When the Game is Changing." Computers and 
+Automation. Vol. 21, No. 12, December, 1972. 
+"Toward Distributed Computing." EDP Industry Re­
+port. Vol. 7, No. 6, January 17, 1972. 
+Van Tassel, Dennis. Computer Securi tY Management. 
+Englewood Cliffs, N.J., Prentice-Hall, 1972. 
+1.aiden, Dennis J. "Special EDP Insurance: Who Needs 
+It?" Data Processing Magazine. Vol. 14, No. 1, 
+Spring, 1972. □. 
+Cerullo - Continued from page 9 
+Procedure for Withdrawal 
+Sixth, a procedure should be established for 
+withdrawal from the cooperative. If the withdraw­
+ing firm has not been a member for a predetermined 
+time, perhaps one or two years, a sliding scale 
+penalty fee for withdrawal should be established. 
+Procedure for Admission 
+Finally, procedures must be determined to govern 
+the admi~sion of new members into the cooperative. 
+Perhaps a unanimous affirmative vote by current mem­
+bers should be required to_ admit a new member. The 
+current members should also decide if a newly admit­
+ted member should be required to pay a predetermined 
+portion of the cooperative's startup costs and if 
+the cooperative should limit membership to firms of 
+the same approximate size as current members. 
+Conclusion 
+With due care taken in following the above steps, 
+establishing a successful cooperative service bureau 
+should be relatively easy. Companies would be well 
+advised to consider the idea seriously, for cooper­
+ative service bureaus offer a viable and in many ways su­
+perior alternative to the more costly inhouse computer 
+and the less satisfactory outside service bureau. 
+Foothotes 
+1. Computers in Business: An RIA Survey of Users and 
+Nonusers (New York: Research Institute of Ameri­
+ca, 1969), p. 4 . 
+2. Ibid., p. 17. 
+3. Michael J. Cerullo. "Service Bureaus: User Ap­
+praisal." Datamation, Vol. 18, May 1972, p. 86. 
+4. Ibid., p. 89. 
+5. ADAPSO Eighth Management Symposium. 
+erate a Service Bureau for Profits." 
+"How to Op-
+1963, p. 49. 
+n 

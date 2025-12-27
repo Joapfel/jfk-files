@@ -1,0 +1,101 @@
+13-00000 
+sions, he added, the district hopes to make such 
+compute'r assistance available at a nearby rural ele­
+mentary scnool attended by children of migrant farm 
+workers. 
+RESEARCH FRONTIER 
+.. TALKING" BALLPOINT PEN UNDER DEVELOPMENT 
+Ronald I. Deutsch 
+Stanford Research Institute 
+Menlo Park, Calif. 94025 
+A prototype model of a simple, inexpensive "talk­
+ing" ballpoint pen, under development at Stanford 
+Research Institute (SRI), could reduce massive pa­
+perwork and delay in routine business transactions. 
+The pen is similar to an ordinary pen in size and 
+swo except that it is wired to a computer system. 
+tre:'~omputer is programmed to receive signals gener­
+ated instantaneously as a person hand-prints charac­
+ters with the pen to record information. 
+"Such instantaneous and remote processing of data 
+might be invaluable to large businesses engaged in 
+daily consumer-oriented services, such as banks, in­
+surance companies and utilities," says staff scien­
+tist Dr. Hewitt D. Crane, the inventor. For exam­
+ple, the pen could be used by a bank teller credit­
+ing a savings or checking account. In this case, 
+according to Dr. Crane, the data would not have to 
+be retranscribed from a piece of paper by another 
+employee, or the paper itself put through expensive 
+automatic reading equipment. Thus, costs.and de­
+lays could be reduced in crediting accounts or es­
+tablishing cash requirements. 
+In another case, a meter reader making his rounds 
+for a utility could use the pen in combination with 
+a cassette recorder. When he returned to his of­
+fice, the cassette tape would be programmed into the 
+system, thus eliminating the need for manual re­
+transcription of a day's worth of data. 
+In the present laboratory version, the pen is 
+hooked to an audio unit as well as a teleprinter, 
+so that as a person writes, the characters appear on 
+the teleprinter and are spoken by the audio unit. 
+SRI holds a patent on the pen and is currently 
+seeking financial support for further development, 
+Dr. Crane says. He estimates that the pen itself 
+might cost about $25 to $50. A central computer 
+unit would be extra but could serve many pens. 
+MISCELLANEOUS 
+ICCP NAMES DIRECTORS AND OFFICERS 
+Paul M. Pair, Secretary & Chairman 
+Institute for Certification of Computer Professionals 
+P.O. Box 1442 
+0,icago, Ill. 60690 
+At a meeting in late September, the incorpora­
+tors of the Institute for Certification of Computer 
+Professionals, Chicago, Ill., adopted bylaws for 
+the newly-formed organization and named a board of 
+directors which, in turn, held its first meeting and 
+elected officers. The ICCP is the outgrowth of over 
+t- 0 years of intensive preparation and study by rep­
+resentatives of major computing societies. Its pri­
+■ary focus is the enhancement of certification ac-
+. . .• .. : . -_ ':,. 
+j',t 111 .. •'1. 
+~ . 
+:·.-.: .: . 
+--....--:.;;•l .• l·, 
+'~~-'~ 
+tivities in the computing industry. It was incor­
+porated August 13, 1973. 
+Elected as officers by the board of directors 
+were: 
+President - John K. Swearingen, Computer Sci­
+ences Corp., Las Vegas, Nev., representing 
+Data Processing Management Association CDPM). 
+Vice President - Fred H. Harris, University of 
+Chicago, Association for Computing Machinery. 
+Treasurer - William S. Eick, Alexander Grant 
+& Co., Chicago, Association of Computer Pro­
+grammers and_Analysts. 
+Secretary - Paul M. Pair, Control Data Institute, 
+Chicago, Association for Educational Data 
+Systems. 
+Ten professional societies.participated in the 
+organization of ICCP and are eligible for charter 
+membership. Of these, seven have exercised their 
+right to such membership, and are entitled to two 
+members on the ICCP board. The seven charter mem­
+bers are: Association of Comeuter Programmers a"d 
+Analysts: Society of Certified Data Processors: As­
+sociation for Computing Machinery: Association for 
+Educational Data Systems; Society of Professional 
+Data Processors: Data Processing Management Associ­
+ation: and Automation l Association. 
+, 
+The other three associations eligible for charter 
+membership are: Canadian Information Processing So­
+ciety, the Computer·society of the Institute of 
+Electrical and Electronics Engineers and the Society 
+of Data Educators. 'IJtey are expected to act before 
+the end or 1973. (please tum to page 47) 

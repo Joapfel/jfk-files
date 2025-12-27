@@ -1,0 +1,70 @@
+13-00000 
+,.Alienation and the Systems Analyst -~--
+Alan E. Brill 
+Supervising Systems Analyst 
+The Chase Manhattan Bank N.A. 
+New York, N. )'". 10005 
+-Systems analysts . . . must be seen as full-fledged members of the firm." 
+A Wall of Managerial Attitudes 
+In most large organizations, the systems and data 
+"processing departments are separated from the rest 
+of the firm by a wall of managerial attitudes. While 
+employees in most jobs are encouraged to gain a wide 
+variety of experience in various departments as ~hey 
+rise through various management levels, it is rare 
+that a systems analyst or a programmer is given an 
+equal opportunity. The general attitude is "He's a 
+computer man, not a manager (or a businessman, or a 
+banker). He wouldn't fit in. Besides, he's doing a 
+good job where he is." 
+As a result, the analyst has exactly no motiva­
+tion to think of himself as an insurance man or a 
+businessman, or a banker, or an accountant. He is 
+made to feel like a consultant. He can serve the 
+organization, but he isn't free to move within it. 
+To make matters worse, some firms rotate the people 
+in their management development programs through a 
+stint in the systems department. It is little won­
+der that there is a high turnover in systems ana­
+lysts, The company does very little to make him 
+feel like a member of the family. 
+Potential Source of Talent 
+But beyond the problems brough~ about by the per­
+sonnel turbulence, the firm is ignoring a potential 
+source of fine managerial talent. Many analysts 
+joining major corporations hold degrees as Master, 
+Business Administration. Their educational back­
+grounds, when combined with their ability to objec­
+tively define problems and see solutions, and the 
+detailed working knowledge of the company gained in 
+the system design process, should put them in the 
+management spotlight. Instead, the system analyst 
+finds that he has been given the indelible label of 
+"computer person" and that his upward mobility is 
+-limited to the systems department. As a result, 
+systems analysts leave the firm, and often leave the 
+systems profession. 
+If companies hope to attract and hold talented 
+personnel for their systems activities, they need 
+to offer them an equ,al chance to develop to their 
+full potential. They must be seen as full-fledged 
+members of the firm - not as consultants who are 
+here today, but who could move on tomorrow. 
+Experience in Systems 
+As businesses come more and more to depend upon 
+data processing to support their operations, it 
+will be desirable for a significant number of man­
+agement team members to have experience in systems. 
+Yet, by their actions, managements have forced many 
+talented people to avoid beg"inning their careers in 
+data processing for fear of becoming stereotyped. 
+So it would seem that a number of the problems 
+that businesses face in their systems activities are 
+a result of a regrettable but widespr9ad management 
+attitude. 
+Only when systems analysts are regarded as having 
+a potential for advancement to positions in general 
+management, and are given an equal chance to rise in 
+the organization, will the systems man lose his- al­
+ienation and see himself as a member of the company 
+team. 0 • 

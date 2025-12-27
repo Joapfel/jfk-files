@@ -1,0 +1,17 @@
+C 
+07D 18-1 
+FOR C:OMDR, EGLI.N AFB 
+FOR DIR OSI 
+FOR DO ~l 
+. FOR FILE 
+... Atchs 1 •""" 19 
+15 • 
+NW 38613 Docld:345.30447 16 
+0 
+PENDING 
+1470 
+• ReviewelBy AFOSI 
+'For Public Disclosure 
+i}l1 Accordance W~t 
+JFKARCA, 1992 
+14 A 95' 

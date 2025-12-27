@@ -1,0 +1,70 @@
+HRG Record Print 
+ID: 
+File Title: 
+Job Num: 
+Location: 
+Box Num: 
+Vol/Folder: 
+Title: 
+Title Res: 
+Date of Document: 
+Status: 
+From: 
+From Res: 
+To: 
+To Res: 
+SECRET 
+1998.05.22.10:14:03:840082 
+JFK 
+80T01357A 
+HRG 
+JFK64-12 
+F5 
+Print don: 7/11/2001 
+201 FILE OF PROTECTABLE SOURCE. 
+N 
+0/0/0 
+DIF 
+Pages: 152 
+Orig. Classification: S 
+Originator: CIA 
+Last Reviewer: 
+Review Date: 
+Exemptions: 
+Medium: 
+Last Inputter: 
+NARA Comments: 
+Agency Comments: 
+Release: 
+Release Date: 
+Doc Num: 
+Keywords: 
+Duplicate Document Of: 
+COMPONENT DATE TASKED 
+Sent to NARA: 
+Agency Name: 
+Agency Number: 
+Disk Number: 
+Control Number 
+lA lB 
+PAPER 
+ramsayr 
+lC 2 3 4 5 
+RELEASE DELAYED UNTIL DEATH OF SUB ECT. 
+PER ARRB DECISION OF 13 MAY. AGEN Y REQUIRED TO 
+DETERMINE STATUS ANNUALLY. 
+201-329-609 
+LITAMIL-9 
+Res: 
+Res: Y 
+y 
+Component Review Info 
+DATE REVIEWED 
+y 
+CIA 
+104 
+10176 
+10075 
+SECRET 
+RESPONSE APPEAL DATE DECISION 
+1998.05. 2.10:14:03:840082 

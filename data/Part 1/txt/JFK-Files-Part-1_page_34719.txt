@@ -1,0 +1,88 @@
+l 4~00000 
+'. I 
+INSTRUCTIONS: lnmt "ASSIGN" olror 201. ii number n11odod. 
+I 
+. /'­
+',',\LPL:-- 1 
+·tlt~·r,,.. f'fA.Mlii: 
+lio~:t 
+Ml(JUL( NAM£ I 201- ,, J ' / l 
+SU , ,,._1, (,, blPUtt 7 COllN-T"RY OP' AUUH I c1rvtrowN 01' 8~----'----I 
+I-' 1; .'l:i1· 1i1:1-I 1·111):t Jl:i,·:111:1 
+Cttii'iNR,u'i- _____ • -------...,,,-,O,-f;\!UrATl--:0=-:.,~------------1-ccA-r'"'~-,c---,--,--,.-~"'li------------1 
+-------- . I -~--------~-------1 Ol"HUI NA.Ml:&• OT"-T& TYi'~ CAKA. ALIAO. MAIUIPU 
+ADDITIONAL IN,-OAM--.T10N1 
+.l!ltl?t!tt-ntiu..p.;· •-•1-1,.;, ...,-1._-.. ,,_~Mto••1"1-il-.-l:'-f,.,..,-➔h;,.· ,.,.,-:.-J~!t,l.ft: 
+,~_i!.!.:.___'.! _r __ ~:1~\.U.2•_; o: __ \j _I _I_"-•---'~ nr1an1!" .J~o J -:.!'.17 'i'.17). 
+Al;: 14 • • i, nt,hl_,, ii tt• 11-...u1 I'"·""',-''' ,.,,, •id.o, 
+MIDtiLI. NAM& 
+2 11' .• 
+• li.\111/ fll(lp 
+YIY5.N NANC 
+,'l:1I111.-I I 
+201• • J ,,, ,-1 ,,,, ./ 
+/ ...... •'/ 
+3 
+GUI I DATE OP- DIRTH 
+~, I c_oUNTRY OF e1nrH CITY/TOWN OP- BIRTH 
+CITIZ&N8HII" . I OCCU .. ATION IIHIDINCK 
+,J:I7 SI, t.I1& S 1- • Apt. :! 
+OTHIR NAMKO • 8TAT& TY .. 11 CAltA, ALIA8, MAIOINI MJami, J."l01·iil11 
+AODITIONAL INl"ORMATION1 
+OURNAMB 
+DIU( 
+F 
+\ , . . ,. 
+.J'<f'lt s • .-
+\' ,I 
+J':',.,1, . \· .......... o, 
+,. .. , 
+1 
+OATK 01" BIRTH 
+]::,· SPptemlu,1· 
+CITIZKNOHIP 
+ill& lu1hJ1 l f:ii t f ,tslJA 1 Pud111 H. 
+-f lffl:r"~5-1 ) 
+·a,vtN NAME MIDDLlt NAM& I 2 / i ·) /; r,, J 
+1-:.'l 1111: r I! I ta OI• A '(,, • '-'.) 
+I 
+COUNT_R_Y_o_P-_D_I_A_T_H ___________ ,_c-,T'--,-,rr=-,o'-w-N_O_l'_D_I_R_f __ H ________ -4 
+.I ~):lo (_:11 li11 ll:1\'/lll:t 
+· 1 OCCUPATION AK ■ IDIINC& 
+OTHBA NAMIID • •TATII TY"& CAICA, ALIAD, MAIDaNt 
+ADDITIONAL INP"ORMATION1 
+JO fl' nf ~IO~'l'l'.1/0 J.111111w, 11!,•;inlo (:!lll-:!'J.::i2!). 
+\ Wc.cesA 1; .a 111·8ri1'.I~ Ir dr111!'t-RJi;.;:. tr flfl~rt ,._, --'-~ 1-tto::,c111a,1,~ • 
+I_ ; 
+4 
+euRNAM11 \ ~ 11i,u I1a:,:z, ,~:~~~,~;:~" M,ocL" ,.A .. 11 I 
+l-0'"'11""x,-----.,~o:.,.A-=T-=e:-:o"',,-=-=n"',-=n==,-:-:H--------1~c-=0 7u:-:N:-;T;:R:-;Y::-::o:-::,,:--::B-:-:1A:-:T;:H-:---------,,-:c:-:,-::yy:-:,=rr,o-=cw=N:--::o:-::,,-c-a=1A"'T:::N-:--------f 
+F ti Se;,u:::i!ir:r .l!JO'l' Cuh11 ll111·.n1111 
+ClTIZIENDHIP , I OCCUl'ATION Rl:DIDl:NC& 
+OTHER NAM&.B .. &TA.Tl' TYPE tAKA. ALIAS, MAIDKH, 
+ADDITIONAL INNRMATION1 
+~!,~Iller of 1:.-\l.<"L\-llr:11111 llo.lrli;1wz 1 l/,1f:i 1,I I·'., (:.!01-2:-l!UO). 
+ii ! a.1!80 I 4H lit t; ........ -d.L-J"'Prlrnt··,-.yBft.11.l ¼ere Lh·i R ea4'Wf.! • 
+L / 
+l l' Gl'VC:N NAME NICOL.I: NAME I ~ _..,,, .' 
+' 201•;".-·', .. • -,/. • 
+5 J---=:----.~~l~l;;l;;A;-:Z~. ;-1.;1-;-;i;;;\';;:;l'~. r_o_, ____ ·10• u--;::;I ,.l-;-;o:;.:-;;~:;.-;,;-;;=-------1r=;-;;;:;;;;;;;-;:;;;.-;;;';;:;; • ..-· _._-_.·_. __ ,. _.-_· __ --1 
+OURNAMC 
+aitx I o.-..Tir orr a1RTH I couNTRY o~ DIRTH clTY/TowN OP' DIRTH 
+~I 1-1 .-\11;•11sl l()Oj Cutia l'i11ar ,1,,1 Jlln 
+l-c-,-T-IZ_K_N=a""Hc:-l,.::1------'---,---- 7,r.:;o:;.c-;;C:;-U;-;Pc-;A~T;-;l;:;O:;:N;--------------i~,.~E~ ... ~.~0'=11:c:'Nc::C:-:S=~-~--------t 
+X1. 1 ,,rill',),' 
+OTHER NAMED - 8TATC TYPIE. tA•A. ALIAS, MAIDI.Nt 
+ADDITIONAL INP"OANATIOH: 
+AfiHlll1i t i 
+.s t\1 s••.?•••• 10 l,r,h·ell ,,· ~JUtl.t:rt h111, 1 j1¥+Ti~u• 
+i rr i s T .1 i :, ") 
+tro111• 
+,o ... 53d 
+oaaol.1.Tc PA1l'V1oue 
+&.01TION■ 
+CLA•Bl~ICATION 
+S E C R E T iii ,:ONTINUllD 
+I 
+.. AQlt NO. 
+26 

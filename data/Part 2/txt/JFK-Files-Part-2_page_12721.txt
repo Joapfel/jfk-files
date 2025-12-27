@@ -1,0 +1,128 @@
+( 
+( 
+NW 38321 
+\ 
+, .ON 87. SECURITY INVESTIGATI 
+·• 
+87D 
+III. Sex 
+Male 
+Female 
+M 
+·F 
+IV. 
+v. 
+VII. 
+VIII. 
+IX. 
+x. 
+XI. 
+XII. 
+2055 
+Citizenship 
+Native born NB 
+Naturalized ~.A 
+Alien .AL 
+(If citizenship status is unknown when security 
+index card is recommended, space should be left 
+blank but status should be ascertained and sub­
+mitted by FD-122.) 
+Organizational affiliation or nationalis•tic te·ndency 
+American Socialist Clubs ASC 
+American Workers' 
+Communist Party 
+.Anarchist 
+Black Nationalist 
+[Black Panther Party 
+Communist Party, US.A 
+Johnson-Forest Group 
+Minutemen 
+Nation of Islam 
+Nationalist groups 
+advocating independence 
+for Puerto Rico 
+Progressive Labor Party, 
+Proletarian Party of America 
+Revolutionary Action Movement 
+Socialist Workers Party 
+Spartacist League 
+Student National Coordinating 
+Committee 
+?tudents for a Democratic 
+Society 
+Workers World Party 
+Bulgarian 
+Cuban 
+Czechoslovakian 
+Hungarian 
+Romanian 
+Russian 
+Yugoslavian 
+Priority designation 
+Priority I 
+Priority II 
+Priority III 
+.AWC 
+'ANA 
+BNT 
+BPP] 
+COM 
+JFG 
+MIN 
+NOI 
+PRN 
+PLP 
+PPA 
+RAM 
+SWP 
+SPL 
+SDS 
+WWP 
+BUL 
+CUB 
+CZE 
+HUN 
+ROM 
+RUS 
+YUG 
+p I 
+P II 
+P III 
+Top functionary designation 
+Top funct~onary 
+(where applicable) 
+TF 
+Special section cards 
+.Atomic energy program 
+employees 
+Cuban special section 
+Espionage subjects 
+-Foreign government employees 
+Pro-Tito subjects 
+United Nations employees 
+U. s. Government employees 
+Unavailable section cards 
+Missing 
+Out of country • 
+Imprisoned 
+Date and place of birth 
+.AEP 
+CUB 
+ESP 
+FGE 
+YUG 
+UNE 
+GOV 
+MI 
+oc 
+PR 
+Key facility geographical reference number obtained from 
+Department of Defense Key Facilities List and abbrevia­
+tion denoting agency having security responsibility for 
+k~y facility {where applicable} 
+Residence address 
+49 
+2-13-70 
+\ 
+-I 
+f 

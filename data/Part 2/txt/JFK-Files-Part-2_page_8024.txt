@@ -1,0 +1,408 @@
+13-00000 
+MONTHLY COMPUTER CENSUS 
+Neil Hacdondd 
+Survey Editor 
+COMPtrrERS AND AtrrOMATION 
+'!he following is a summary made by ·coMPtrrERS AND AtrrOMATION of re­
+port■ and eatilllatea of the number of general purpose digital computers 
+manufactured and installed, or to be manufactured and on order. These 
+figures are mailed to individual computer manufacturers quarterly for 
+their information and review, and for any updating or colllllll!nta they 
+may care to provide. Pleaae note the variation in dates and relia­
+bility of the information. A few manufacturers refuae to give out, 
+confirm, or co-nt on any figures. 
+Part 1 of the IIDnthly Computer Censua contains reports for United 
+States manufacturers, A to H, and is published in January, April, July, 
+and October. Part 2 contains reports for United States manufacturers, 
+I to z, and is publiahed in February, May, August, and November. 
+Part 3 contains reports for manufacturers outside of the United States 
+aml 1a published in March, June, September, and December. , ' 
+~nsus seeks to include all digital computers manufactured any­
+vherer-·ile invite all manufacturers located anywhere to submit infor­
+that ·would help make these figures aa accurate and complete as possible. 
+The following abbreviations apply: 
+(A) authoritative figures, derived essentially from information 
+sent by the maDufacturer directly to COMPtrrERS AND 
+AUTOMATION 
+C - figure is combined in a total 
+(D) - acknowledgment 1a given to DP Focus, Marlboro, Hass., for 
+their help in eatimating many of these figures 
+E - figure estimated by COHPtrrERS AND AtrrOMATION 
+(N) - manufacturer refuses to give any figures on number of in­
+stallations or of orders, and refuses to comment in any 
+vay on those nulllbers stated here • 
+(R) - figures derived all or in part from information releaaed 
+indirectly by the manufacturer, or from reports by other 
+sources likely to be informed 
+(S) - sale only, and sale (not rental) price 1a atated 
+X - no longer in production 
+- information not obtained at press time and/or not releaaed 
+by manufacturer 
+S'IJHMAIIY AS OF OCTOBER 15, 1973 
+IIAME OF 
+MANUFACTURER 
+Part 2. United States Manufacturers 
+IBM 
+White Plains, N,Y. 
+(N) (D) (Oct. 1973) 
+Interdata 
+Oceanport, N,J. 
+(A) (Oct, 1973) 
+I-Z 
+305 
+IIAME OF 
+COHPtrrER 
+650 
+1130 
+1401 
+1401-G 
+1401-B 
+1410 
+1440 
+1460 
+1620 I, II 
+1800 
+7010 
+7030 
+. 704 
+7040 
+7044 
+705 
+7020, 2 
+7074 
+7080 
+7090 
+7094-I 
+7094-II 
+System/3 Hodel 6 
+Syatem/3 Hodel 10 
+Syatem/3 Hodel 15 
+Syatem/7 
+360/20 
+360/25 
+360/30 
+360/40 
+360/44 
+360/50 
+360/65 
+360/67 
+360/75 
+360/85 
+360/90 
+360/91 
+360/190 
+360/195 
+370/115 
+370/125 
+370/135 
+370/145 
+370/155 
+370/158 
+370/165 
+370/168 
+370/195 
+• Hodel 1 
+Hodel 3 
+K,del 4 
+K,del ,5. • 
+KDdel 7/16 
+KDdel 7/32 
+K,del 15 
+Model 16 
+Model 18 
+IIDdel 50/55 
+Model 70 
+K,del 74 
+Model 80 
+KDdel 85 
+DATE OF 
+nRST 
+INSTALLATION 
+12/57 
+]D/67 
+2/66 
+9/60 
+5/64 
+6/67 
+U/61 
+4/63 
+lD/63 
+9/60 
+1/66 
+lD/63 
+5/61 
+12/55 
+6/63 
+6/63 
+11/55 
+3/60 
+3/60 
+8/61 
+11/59 
+9/62 
+4/64 
+3/71 
+1/70 
+11/71 
+12/65 
+1/68 
+5/65 
+4/65 
+7/66 
+8/65 
+11/65 
+10/65 
+2/66 
+12/69 
+11/67, 
+4/71 
+4/73 
+5/72 
+9/71 
+2/71 
+-/73 
+5/71 
+-/73 
+6v3 12 70 
+5/67 
+8/68 
+U/70 
+-/74 
+-/74 
+1/69 
+5/71 
+6/71 
+5/72 
+10/71 
+2/73 
+lD/72 
+6/73 
+AVERAGE OR RANGE 
+OF HJNTHLY RE~'TAL 
+$(000) 
+3.6 
+4.8 
+1.5 
+5.4 
+2.3 
+1.3 
+17.0 
+4.1 
+10.0 
+4.1 
+5,1 
+26.0 
+160,0 
+32.0 
+25,0 
+36,5 
+38.0 
+27,0 
+35.0 
+60.0 
+63,5 
+75,0 
+83.0 
+1,0 
+1.1 
+0.35 and up 
+2.7 
+5,1 
+10.3 
+19.3 
+11.8 
+29.1 
+57.2 
+133,8 
+66.9 
+150.3 
+232,0 
+8,2-13.8 
+14.4 
+23.3 
+48.0 
+49,5-85,0 
+98.7 
+93.0-170,0 
+190.0-270.0 
+3, 7 
+13.1 
+8,5 
+X 
+20.0 
+X 
+X 
+NUMBER OF INSTALLATIONS 
+In Outaide In 
+U.S,A, U,S,A, World 
+40 
+50 
+2580 
+2210 
+420 
+180 
+156 
+.1690 
+194 
+285 
+416 
+67 
+4 
+12 
+35 
+28 
+18 
+io 
+44 
+13 
+4 
+10 
+6 
+8 
+5 
+15 
+7161 
+1112 
+5487 
+2454 
+109 
+1135 
+604 
+65 
+50 
+11 
+5 
+1 
+13 
+1 
+13 
+2 
+2 
+1 
+3 
+1 
+244 
+274 
+70 
+40 
+1 
+2 
+75 
+466 
+41 
+15 
+1, 
+15 
+18 
+1227 
+1836 
+450 
+140 
+11"6 
+1174 
+63 
+186 
+148 
+17 
+1 
+1 
+27 
+13. 
+3 
+3 
+26 
+2 
+2 
+4 
+4 
+6075 
+759 
+2535 
+1524 
+57 
+445 
+144 
+6 
+17 
+1 
+2 
+3 
+75 
+115 
+20 
+1li 
+6 
+7 
+10 
+116 
+8 
+3 
+55 
+68 
+3807 
+4046 
+870 
+320 
+272 
+2864 
+257 
+471 
+564 
+84 
+5 
+13 
+62 
+41 
+21 
+13 
+70 
+15 
+6 
+· 14 
+lD 
+13236 
+1871 
+8022 
+3978 
+166 
+1580 
+748 
+71 
+67 
+12 
+15 
+9 
+319 
+200 
+389 
+•90 
+64 
+7 
+9 
+85 
+582 
+49 
+18 
+~"UMBER OF 
+UNFILLED 
+ORDERS 
+1780 
+1287 
+1363 
+39 
+662 
+562 
+99 
+12 
+55 
+48 
+X 
+32 
+X 
+X 
+X 
+X 
+115 
+107 
+126 
+20 

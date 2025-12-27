@@ -1,0 +1,70 @@
+14-00000 
+-
+SECRET 
+.. ,w,-," ,,ll•d Int 
+I 1,. ~ I I 
+.5~1.113 I/ . 
+-~ ·I UNGUAGE DATA RECORD. 
+PAIIT 1-GtJ[RAL 
+,. ""atiit (L••r•,,r,t•W•ddl•) t.,. :•) 1- f'ATf:- C,• .. , . , .. (7,• ),}I 
+•::>" •• 
+'"' ..... .. 
+P~ILL•f< ,1 Z>Hu/::> A- 0•-7~~- 'll ,~-:.,_ 
+.. l. AJ1i11G~1&r.r t )t • I ,1 .. f/"Jl)A" • ~ Ol Tt I,.-. It t •· 
+--~"•'•. . .. ., .. .. . ... □,.:..~. -o "•oncii.""c-. 
+r-n.~~ ·)(. 5· ,~ ~ c) ,,. .... , ,o ■ l 1<.,hl l. ,,.W:uaG1 
+l. 
+. PAIIT 11-L.lllGUlG[ [LCMEl1'3 
+SECTION -· R,-n,linK (40) 
+' o, 1n-.n Tl• r~ 
+~· ••• oir,1cutrv. 
+"' • GI ~f 51Al .. Afl1A( u• ,. I I I l p, I ... f AM I l I Ail ., , .... ".:";l'\t,; ,., 0 Ir Tl iJ\i.lD1 ,. Cl'IIL'W Rl.lllll' . .. 
+I c-.,. Ar,o ··u, ,s N .. U'ST fili AOl 5 or 111rt.tClJL h. ,;r . \,,r,LJUI "1Aft,r.1 ,,. " 
+I I IL OS I . .. f.1-'IILl,U' .•1 , ... u, ! .. C. fN! 
+'. OICIIOf'U,ln 1',."'.C: 1.$1," .. 4L LY. 
+0 
+I C..:.\"f A{ll" u~r, "' 
+A'i'tMAGl 01rr1ct,1..:1r ( nr•'P"f"'' •. rr Ir, anc ~ ,.., , , '" , .. fl tc.). u 11 .. ~ ,., ~J(TIOPIAAY ) FRl g;.1r,. h. 'W, 
+I 4, 
+' "" 
+.tr 4D S IWPL( Tl 'CT~, SUCH •• STRU r s, r.,.s. -.(■ 5PAP[A .. t.lOLl'tfS, £TC • US IN li TH( 0 IC,!' I I".,: .. .I .. T r1'{0\Jfl1'L'f. , 
+5, 
+'· 
+"av.: •o Hl '-I') 1-.,:. "-Bl t. IJV ,. '"' 
+LA'1GUAC£, . . / 
+SECTION 8. WritinR (41) 
+' 
+•' I C •• WA I 'i .-£ 1:uc:, 'L llTH:l~ ••o "I &Vil All UAT£A I .l~ ■ I ru CG.,PLfTI .._,,r.n:a •• ,uour lJS t-.G, Tn[ ~ 1r;r10,.aaY. 
+' 
+CA .. 
+,. •'II Tl •ACTUAi.. ~ 4.qll ,TI Vl 'NU [,.PO:, I T('lln' -..1 Tf ft I Al • I TN R'f A":.'J""A lj~f CLAJll1', ., '" vc qy ... C,AJl.,..,.I TIC AL 11t•o1ts. 
+" .. 1111.ArtYl S 'YL[. l;~ "~ tHL 0 IC f I O-.1.A, (l",il'r AARl l'T. 
+I 
+"" 
+•R, re t(lilS,:'l,.lL Lf JTfFIS 
+"" 
+SUlflAR S IIIPl ( titAlCIJIAL Wt ht COWPl(f{ success. us ... i. ,., C>ICTIO,.AA''I' 
+~"""" 2.· A"Rlt. Y, 
+' 
+Cil,S .Wtttlf._ J ACTUAL ~AIUUTI 'o-l A!,1O l~POS I rl)_q'l Wlllfll AL ■ I ht IHA50JrfAIU.C Cl AAI rv. ■ I ht 
+''" 
+, ...... A,=t•a. 
+f AlfOlfS, eur .... -, ~ iYl..f ■ Ii IC"4 .. ., •u r . , ,.ATI VI. lJS ll'\IG TN( Ol(fltlNAII! OCC AS I CN "L l Y • 
+I C<N WA ITC PCA~O ... A.I. LCTTCIS ANO SIWILAA !SIWPI,( iiaTr•IAl. ■ JTH lllrA101ifAIII.I SUCClH ,. CO•YlTINC .,., llf(A,.l~Q• 
+J. IUT .,,,. OCCAS I 01141. .. f,.OA GRAWtUTICA.: L••o~s • ,.i;; ,,.- 0lv1o·u:av POAl I G"'il • Al"-•••o STYU, ut l"G T•l DICTIOIIIAIIY 
+OCCAS IO~A.ll Y .. 
+4- I c•• W'll li. PLA'ii;.., •L LCfllAS A.II,:} S 1-..1 L •A S J.UPL f triU.HRIAL • . , '" If( 4Si.! ... Al1l l 5U((£SS ,. CC,1' y( t ,._,; .... 111, .... ,.i.. 
+Out •• r .. "'"" ,....,.,..A1 IC"l iAAORS •~o " • Y(R" fCII[ I c;.,., ••-•"•o STHt. t,S I fllC. TH[ 01CTl~l"IA•r f ll(QlJ(N Tl. 't'. 
+0) I CA,.,.01 WIIIT[ IM TH[ L A,.C.UAGI. 
+SECTIOI C. Praurte'intam (42) 
+,. .. , PR!l~U-.~IATIIJ'- .. ,._._TI 'w(. 
+z, WNft.[ NA':1'1'(5 c•, ~lTlCT •• ACCl"'9 T ,. IIY P RO,.U"IC t AT IC,._ THlY 1-UVf ,o DI IJ I Cl.II. T'f VNO(atTANC.UIW Nl. 
+1 
+J. .. , P••jfiilU .. CIATIOl'I IS 08WIOUSLV ,-,lit[ IGN. aur 011l.'t' AAll(t.'f CAUSES OlrJICULTY 
+'°" 
+... r1 .. ,, TO U'l018St• ... O. 
+<-::0•" 
+,-A,11111.J .. C I ,IT 1,;, I$ .:,ccas1 o,.ALL v OtJrtCVLf ,aa "" fl 'fl 'i to u11C,(lrSt&._O. 
+~- I HIV( ,o \• IL\. '' ••~ll'IL!..,CI .\TIO'C 
+~ Cct\Tl.'iLF. Cl1i 11£\"F'.RSE SIDE ~ 
+SECRET 

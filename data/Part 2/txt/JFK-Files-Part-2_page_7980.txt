@@ -1,0 +1,127 @@
+13-00000 
+YoL 22, No. 11 
+November, 1973 
+Editor 
+Alfistant 
+Editor, 
+Software 
+Editor 
+A"'1~ 
+Dlrutor 
+Contributing 
+Editors 
+Advl6ory 
+Committee 
+Editorial 
+Offices 
+Advenislng 
+Contact 
+Edmund C. Berkeley 
+Barbara L Chaffee 
+Linda Ladd Lovett 
+Neil D, Macdonald 
+Stewart B. Nelmn 
+, ., 
+Edmund C. B•keley 
+John Bennett 
+~M. B•lin 
+Andrew D. Booth 
+John W. Carr Ill 
+Ned Chapin 
+Leslie Mezei 
+Be,nhard W. Romberg 
+Ted S~ters 
+Richard E. Sprague 
+Ed Burnett 
+James J. Cryan 
+B•nard Quint 
+B•keley Enterprises, Inc. 
+816 Washington St. 
+Newtonville, Mass. 02160 
+617-332-5453 
+The Publisher 
+Berkeley EnterpriRs, Inc. 
+816 Washington St. 
+Newtonville, Mass. 02160 
+617-332-5453 
+"Computers and Automation" Is pub­
+llahad monthly, 12 lssuas per year, at 815 
+Wa1hlngton St., Newtonvllla, Mass. 02160, 
+by Berkeley Enterprises, Inc. Printed in 
+U.S.A. Second Class Postage paid at Boston, 
+Maa., and additional malling points. • 
+Subacrlptlon rates: United States, $11.50 
+for one year, $22.00 for two years. Canada: 
+add $1 a year; foreign, add $6 a year. 
+NOTE: The above rates do not include 
+our publlcatlon "The Computer Olractory 
+and Buyer.I' Guida", If you elect to r• 
+calve "The Computer Olrectory end Buyers' 
+Gulde", plea■e add $12,00 per year to your 
+IUbsc:rlptlon rate In U.S. and Canada, and 
+$15,00 per year elsewhere, 
+Please address all mall to: Berkeley 
+Enterprises, Inc.. 815 Washington St.. N-• 
+tonvllla, Mass. 02160. 
+P01tma1tar: Plaa■e sand all forms 3579 
+to Berkeley Entarprlsea, Inc., 815 Washin9-
+10n St., Newtonvllla, Mau. 02160. 
+'6> Copyright 1973, by Berkeley Enter• 
+prl■es, Inc. 
+Change of addren: If your addrasa 
+changes, plaa■a send u1 both your n­
+addr- and your old addrasa (as It ap­
+pear■ on the magazine addraa Imprint), and 
+allow three weeks for the chanaa to be 
+UNTIL DECEMBER 31, 1913 
+com~uters 
+and automation 
+STARTING JANUARY 1, 1914 
+The Computer Industry· 
+computers 
+and people 
+8 Cooperative Facilities to Obtain the Advantages [T A) 
+of Computers 
+by Michael J. Cerullo, State University of New York, 
+Albany, N.Y. 
+How to plan, before operations begin, a cooperative service 
+bureau that will provide its sponsors with all the advantages 
+of electronic data processing, plus the advantages of greatly 
+reduced expenses. T 
+10 Control in Time-Sharing Systems [T Al 
+by Fermin Caro del Castillo, Fort Worth, Texas 
+How time-shared computer systems should be controlled, 
+made secure, and protected against incursions and hazards. 
+14 Alienation and the Systems Analyst [T A] 
+by Alan E. Brill, The Chase Manhattan Bank, New York, N.Y. 
+How systems analysts are often looked upon as in a 
+"computer department" and outside of the firm - and 
+what might be done to correct this practice. 
+Computers and Art 
+18 Computer Art: The Search Beyond Manipulation (T A] 
+by Grace C. Hertlein, California State University-Chico, 
+Chico, Calif. 
+How computer art is ranging through variation in patterns, 
+variations in design, and varying philosophies of art - and 
+where it may go. 
+Computers and the Future 
+20 Computers in Science Fiction - II [NT A) 
+by Marcia Ascher, Professor of Mathematics, Ithaca College, 
+Ithaca, N.Y. 
+A survey of some two dozen themes of importance in 
+the real world that are reflected in science fiction when 
+astute writers explore the significance of computers to 
+human beings. 
+6 The Understanding of Natural language by Computers (NT E] 
+by Edmund C. Berkeley, Editor, Computers and Automation 
+Some rather convincing evidence suggests that before long 
+some large areas of ordinary natural language will be un­
+derstood by computers. 
+World Affairs and Social Policy ,,. 
+15 Strategy and Action on World Trade [NT A] 
+by James H. Binger, Chairman, Honeywell Inc., Minneapolis, 
+Minn. 
+Why it is important for the well-being of the people of • 
+the United States to aid the international division of 
+-labor and production: - a discussion bv the head Df a 
+• 

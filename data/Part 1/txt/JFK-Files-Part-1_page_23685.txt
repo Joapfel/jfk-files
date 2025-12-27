@@ -1,0 +1,69 @@
+14-00000 ' • ~· ·~ ... 
+·1 • 
+STANDARD VELOCITY AldllUMITION, DAYLIOBT: 
+'I 
+RANGE 
+100 
+100 
+100 
+100 
+yda. 
+yda. 
+yd111. 
+yda. 
+RA!IP SETTINO 
+Ro. 2 
+No. I 
+No. 2 
+No. 8 
+·,4; 
+SJ<lHT TYPB 
+- !f,, 
+Pe4p Ii·· Pea,p . f' 
+0;,G•D lloo4i • 
+Ope•n •~L 
+1' . J 
+On 
+On 
+24" 
+36" 
+t ·.OlLOADBD AIDI\JNITIOR, OPD SIGBTi;IDOD• . DAYLIGBTs 
+RANGE 
+25 yds. 
+25 yds. 
+so yds. 
+75 yds. 
+100 yds. 
+100 ydH. 
+100 :Vil"'. 
+12~ yds. 
+125 ydti. 
+150 yda. 
+J yds. 
+RAMP SBT'l'IHU 
+No. 2 
+l'io. 6 
+Ho. 6 
+fto, 6 
+lull Elevation 
+full JUevaUOD 
+Full llevaUoD 
+tio 2 
+hall BlovaUo• 
+lull Blevatlon 
+run Blavauon 
+. ,· 
+• • • ,.1 •. 
+•'·• 
+POINT O.I~ IMPACT 
+(JUUJTt,m TO JilOilff OJ' AIBS) 
+S" 
+3" 
+011 
+4•• 
+e·• 
+011 
+8" 
+8" 
+On 
+On 

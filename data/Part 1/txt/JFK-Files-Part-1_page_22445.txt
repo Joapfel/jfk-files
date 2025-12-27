@@ -1,0 +1,54 @@
+14-00000 
+n .l 
+r ,. 
+l 
+'-
+.,,i, 
++ <renrt:rr::;:--:------;.. •' 
+lnfomuuion About S11b;«I 
+I. $eqllft.Ce !'.umber and !'.a.me 
+I. Scs aad Date ol Birth 
+3. Otizrnship 
+4. Mace ol Birth 
+s. Oca,patfaa 
+8. Occupatioa Code 
+7. Tat 
+Doa,fflfflr &fn"'" Dato Crir.,p 
+8. 201 Kamber 
+9. ~ame T>p, Indicator 
+10. 01 Coda 
+11. Rerord Date bear onJ7) 
+12. Refn-mce 
+ISC Cont,ol lnfor,nallon 
+SECllET 
+lO IIOV 10 
+if 
+13. Date of btnt apcl.te of IJw -,,,d 
+J4. STAR ladea Record ~umbu 
+SECRET 
+.- . - : •. -~~~"tzt .. ; ~ . ,,.; -~•-''t1Jf~~l,-,:..s,,.:.-,_:,~:::_;..~-~ :_::>.-_:-,:-:., --~.-
+. ~ -
+DOHB i0-J-1 
+CJJAPT.Efi m. A:-:~F.X n 
+15 No\·ember J!>i•I 
+00l>JS\S 
+'o 
+i . 1 
+• l 
+- ! !:·.,·.-..-,. 
+i 
+L 
+I .. 
+j 
+1 
+~ 
+• I 
+c; 
+I 
+Cj. 
+I; 
+~ 
+J: 
+• F 
+a 
+e ., 

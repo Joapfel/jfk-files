@@ -1,0 +1,43 @@
+' FD-36 (Rev. 7-27-76) 
+TRANSMIT VIA: 
+D Teletype 
+O Facsimile 
+~ Airtel 
+O Immediate 
+O Priority 
+D Routine 
+CJ TOP SECRET ,.. 
+□ SECRET 
+D CONFIDENTIAL 
+OEFT0 
+0 CLEAR 
+, ... ~---i Date 2/_l/'!_!_ 
+~----------------------------------------------------
+Lt,) I 
+.~· ·! 
+TO DIRECTOR, FBI (62-117290) 
+(Attention: Congressional Inquiry Unit, 
+Records Management Division) 
+FROM SAC, CHICAGO (62--7385) (C) 
+1) 
+SUBJECT: HQJJSE SELECT COMMT:XIEE 
+ON ASSASSINATIONS 
+ReButelcall to Chicago 2/1/78. 
+1 , Enclosed for the Bureau are two copies each of ten 
+l letters from JERRY RAY to MARJORIE LOUISE FETTERS. 
+i All of the above letters were originally received. 
+\ from the Newark Division in a Xeroxed condition thus the 
+~ quality of the above enclosures is not entirely satisfactory. 
+'
+k.'~· i However, per referenced Bureau telep\hone call, Chicago w:ill 
+i. l maintain the original Xerox copy in its file 44--1114. 
+{. \ 
+I ' ._-....,.,-. ......... ~ 
+WLD :j eo 
+(4) 
+,. 
+4 F£B 3 197;3 
+.. 
+Transmitted --,-,---~=-------~--
+<Number) (Time) Per -==----~--
+GPO : !977 0 • 225-539 

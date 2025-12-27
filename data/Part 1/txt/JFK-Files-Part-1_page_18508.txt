@@ -1,0 +1,64 @@
+14-00000 
+_ ... SECFt'Et· 
+_ .. (\;,.,·,i fi1',_,-,; ·IN)·' 
+.-_ ,' 
+ll N~i--!( 
+' MUS t . ~ O~ 1 A IN ?(}•0 l GIT S' 
+• 
+MO DA 
+•. 
+r I 
+'TH[·OAfA, llB<'V-[--(,Tc·~•s.2·,HRU' 5) ·,;11LL<D[ ... •LLCO_ :iN 
+w"c" coo·,~~ ·;;N'APPL.,-CANT ·i-oR rHi: ri_RST ,_., .. , •. '"'' 
+-.~" .. ·:,_, i~c-,. A,T;.;f~co· To_ ·•oRM. 1_9,62, MUTER ·1iu&L1flCA• 
+~ '~! o:Ns .. ~~o. 1 t::·~ A[~CC"A0 ~ 
+i.;;,.....;;;_._a;;:,;..a.;,.~"-',,=:..;..=.c..=-=-"'---------f• _1,·....:;L_._ .. .;;;.;.,;,u_A'.;;,;cc,...;C'.:Ac;'.:•~·.::c.::o:;:o:!c:..;..(_....,...;.._p_...., __ s_...., __ u_....,,___T _ _,,__Y..,A--1 
+BAS[ c <JDC • A : ' ~ ' 
+3 3 
+LANGUAGE P,Rc'f"IC I CNCY :rcsr _DATA 
+1..10 2.CMPLOYC[ 1'JO. l'.l. NA"4[ !1. CIJOC 'i. LANGUAGE DATA ucroRc TCST 
+15 
+3-1.CTTCRS C-A-0 0ASC CvOE 
+I 
+R. , w 
+I 
+p I 
+s 
+I 
+u I 
+T YR 
+• ~- •· • .. . . . 
+O. LloN<.UAG: DATA ArTtA T(ST 7. DATC-·Or T[ST DATA .-oR IT[M 2_THRU 7 is 
+13ASC coot R' Iii p s u T YR MO DA YR 
+> 
+[XTRAC,TCD ,.ROM ro~ 12!3• 
+le •. 
+I ., 
+LANGUAGE PAO,.ICICNCT ANO 
+AWA.ROS DATA. 
+' QUALIF"ICATIONS RECORD ~HA>Jr:~ ' 
+'· 
+ID 2. c,-p/ APPL uo. 3 UAP,.[ ·un.:n UNO~R 
+11
+TYP£ Tl -. 
+~-4 
+)•LCTTCR9 :A - AOOITION TO RCCORD 
+• • C ;. CHANG( TO ex_ 1 ST ING RECORD 
+0 - DCLCT•ON or DATA rROl-I [XISflN(l RCCORD 
+TYPE 
+COD[ ,1 1 CODE II 2 
+EIAS[, 1 2 1 ' , YR BASE 1 2 1 YR 
+a 0 • 
+lo le • -
+• • • 
+• lo • 
+• ii . . 0 . . ... . - . . . . .. . . 
+ii • . • . 
+·- . . 
+It • • 
+• le • 
+lo ilt • 
+JC'IIU 
+1962a SECRET. I 
+GIIOUP I ., ( 4• 111 10- ,. tac..woto ,,ro .. awTOIUIIC 00.-CILIOHIG. 
+aflO DICUISlll(HiOII 

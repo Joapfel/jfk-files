@@ -1,0 +1,54 @@
+14-00000 
+.. ( 
+SECRET 
+v. 
+DOHB 70-1-1 • 
+CHAPTER Ill, ANNEX B 
+15 November 1974 
+All standard. lis~ings are c',imulative; previous .editions must. ,be destroyed 
+upon receipt of current editions. These listings are by their very nature extremely 
+sensi:•::~:.::::: :::-~ti~n _~:;~;i\\~'Y possilile_safegumd. 
+' Base: 1~n ~:::~m~~~~f' •. , .... 
+(2) o~_codes_ ~~atio~'l\~ce
+1
+af~ilia_ti~n)_~ • .. 
+(3) C1tizensh1p ®\~t'-J.:, · : · · • 
+·:(4)_ Ye~ of birth (pl~r min~s a given number o_f yea_rs) __ 
+. ( 5) Occupation. . . . ·. •- . -. 
+These selection criteria may ·be used singly or in combinations .• For example, 
+a user could obtain a list bf all 201 personalities who have been· assigned the 
+l CI· code of XX or codes of XX, XY, or XZ. A 201 personaiity list-·co~id also ·be 
+j produced of all persons who were. born in Germany. between the years 1915 
+t_: and. 1920, with the occupation computer ·specialist, who are now citiz~ns of the 
+I United States, located in Mexico, and who had be.en assigned the 01 code AA. 
+f Note however that the listi.ng would contain only those personalities with an 
+I_·_ OI code AA. Those personalities with an 01 code other. than AA and those 
+I_ with no 01 code would be excluded. The requester could however ask that 
+l persons who have not been assigned an OI code also be included. Note also 
+i
+. ·· that when retrieving lists based on occupation, the listing will be only as specific 
+as the occupation code • (Attachment 1). The· occupation code for a courier 
+~- cover:s only a documented courier. Some ·occupation ·codes cover more than orie 
+occupation. For example, the occupation code CRAF covers those who practice' 
+!-.. •_: somde t
+1
+rade or manual 
+1
+occupation, Le.d, cfarpe
+1
+nters; brick~ayer painters, mechanics 
+f . :m e ectricians. If a ist is requeste or e ectricia~ rs in this category 
+• • will be included in -the printout. These n ~ • • s may be sorted 
+.. (arranged) acco~_diilg to -~Y., but nw;..m~,ni ~t o e followi~g keywords: 
+•.• :~ ~:t':am~itlD M_\ ~~ii\~ 
+.. (. c) ·Date· of birth. •• @)~~~i\S?) . ' 
+• ( d) Country_ of birth \\
+1 
+~ - . . , 
+( e) Citizenship 
+(f) ·01 code 
+( g) Location 
+26.9 
+SECRET 
+0001775 
+·,.:· .. 

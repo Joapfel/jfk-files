@@ -1,0 +1,70 @@
+• 
+SECRfr 
+In connection with the operation of various control files 
+there may be set up a complete or partial group of subfiles for each 
+field office. For ready reference, the standard subfile list is set 
+out below: 
+Office Subfile 
+Albany 1 
+Albuquerque 62 
+Anchorage 22 
+Atlanta 2 
+.:Baltimore 3 
+·Birmingham 4 
+Boston 5 
+Buffalo 6 
+Butte 7 
+Charlotte 8 
+Chicago 9 
+Cincinnati 10 
+Cleveland 11 
+Columbia 66 
+Dallas 12 
+Denver 13 
+Detroit 15 
+El Paso 16 
+Honolulu 18 
+Houston 19 
+Indianapolis 21 
+Jackson 20 
+Jacksonville 63 
+Kansas City 23 
+Knoxville 24 
+Las Vegas 65 
+tittle Rock 25 
+Los Angeles 26 
+Louisville 27 
+• NW Docld:32989ti45 36 
+Office Subfile 
+Memphis 28 
+Miami 29 
+Milwaukee 30 
+Minneapolis 43 
+Mobile 61 
+Newark 31 
+NE:lw Haven 32 
+New Orleans 33 
+New York 34 
+Norfolk 56 
+Oklahoma City 35 
+Omaha 36 
+Philadelphia 37 
+Phoenix 38 
+Pittsburgh 39 
+Portland 40 
+Richmond 41 
+St. Louis 42 
+Salt Lake City . 44 
+San Antonio 45 
+San. Diego 46 
+San Francisco 47 
+San Juan 48 
+Savannah 49 
+Seattle· 50 
+Springfield 52 
+Tampa 64 
+Washington Field 53 
+StCRf.l 
+Control-Reference Files 
+Page 6b Revised 
+January 24, 1966 

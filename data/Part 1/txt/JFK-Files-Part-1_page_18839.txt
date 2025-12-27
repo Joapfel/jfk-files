@@ -1,0 +1,29 @@
+14-00000 
+' ! • 
+I. --- I. 
+• 64 700 
+'s. 0.0 $Al.__, UTI 
+3 U1,t\80. 11/ly0/6~ 
+/-N~ e~r.ESS LwOP I 
+I 
+I 
+I It, PAY STATltS AT· fNI~ OF' W.11TING PERIOD 
+I L~OP STATUS AT fN0 ~F WAITING PE~IOD 
+'' ;. 
+',, 
+1. ~ AChON 
+. PSI 
+CL~riKJ l~ttlA~S AUUIT~D YY 
+. 0 , . . 0 , . . tc... •• : . \\}01 
+I CEATlrY TMAT lHf.WOR~ 0~. JHE ABOVE NAMED EMP~OYEE IS 
+ur AN ·_A_CCEPTABLE LEV,f::L o_.-._ COHPET·ENCE. • . / 
+......... , .. £~[r(E)~H§:3L~•m/1i)~ 
+., PAY CHANGE NOTIFICATION •• 
+Z'i S60 
+,, 
+• ;:::. ~ 
+~ i~~t~:,,' 
+-. ~-· 
+! . 
+\ 
+l _ I 

@@ -1,0 +1,58 @@
+14-00000 
+: 
+~
+I I 
+SJ.JTl:"-iG 
+~·r SEC:'.;: T 1· DATE- : 2 p:g 6, ., -.., . : I 
+~ .I 
+; .: I . . 
+-.---·· ----- -------- .. 
+i ! I 
+---. 2! II/,: 7P'' .. 
+TO : DI RECTO~ .~1-11 \.I• 
+. 1419z 63 I FROM : SOtiN f'E:B 2 
+~--: . I 
+;ACTION: £:£: 6 i 
+---
+-I 
+I 
+INFO C 1, CI/C?S 1 Fl, CDC,_ TSD 5, Af 4 SR 6, s/c z . ROUTINE i : I 
+l ., ,. . 
+I 
+i 
+-· .. .. ·- -, . 
+-j PRITY FRAN rnro·oIR BRUl CITE ao::~: -1139 
+. ' ~~-~___;...;._--=~~ 
+! Y.A~VARD LCrn?ROVE CAVATA TECHS ~- IR--;;;,-.c. 
+i/ REF FP.All 6399 ~ ~~c.2d?& 1 . . . . 
+• I I •. SINC_E_ TH.IS. IS _AJ>PAREtiTLY. A'. KUBAB:L_~,;-~_AND....-.OlHG.INAL-,QUERY •. ,:.,;--.'.'..c;-~,- ~ ,\se:CY--'-; 'c•-= ·-"=-"' 
+_~__,.f:--;;:-_~-'~;:.;.~:;.-,:s.-----:-,--.--r~~~-:~:~-:-.....-;_ •• ~,-.--._._.,1:,---.·,. --~:::-::..,",:?
+0
+'..~·-..,...-•' • .:--_,--;-_-~~-·:•.,:•:'--;;_--_.~·:.,-···;•'""-•.·· :··· ·--_-··- ·:·,;;·· .- .-- •• -·. - ' -~. •• i ... ·--- • 
+~-1':£ FRC:it CAVATA TO lW;lARK ELEME1-.'T OCA, .FA.IL Ul:!JERSTAND NEED 
+,·, -• >· rbi(~t~lJHfffN&~·~fpt\/ro~cfivATA 'vn? s d·'.\;:?.~~/ A~SO ti~ ~o;·· 
+IN[.0901 
+ITEL rr NECZSSAiH cm-rfocr .CA'/ATA CHIC:F., w F:ES?ONSC: ROUT;.It-.'E • 
+,".J:.~··,-,-c-, ·,·•··~••-··.·---•.:.·:~.:· ,:·,_;: ... ::...:.·, __ ,;..'. .. ,~-•.;·~.·:· .... -.. •----'.-~'-·-;·•· .. : . : .. ,._ ~--.:.-~,--i~ • ••• ·-•,c-':_1-_-- •• -· •. r'--l-<;·..,..·'·•-.--·"....:~•,e,-•-·;.:c... 
+I .\JOR:<H!G LEVEL CA\'ATA QUERY. THIS HAY E::7 .~TT::r-JPT ON WILLMS 
+: PART TO FIND EXCUSE VISIT C!-.'IATA CHIEF •. 
+. 
+• ( 2. IF THIS ROUTINE CAE::ZCNE CASS FEEL ST.;GE I DE:BRIEFWG 
+AND ASSES~:-:rnr WHICH NO~i-!ALL'f PASSSD CAV:,7:.. \J!LL SATISFY LATTER"S 
+t.ZEDS. 0~1 OTHER HA-ND IF KU2..AIIK °Ji.~S co:;rt:r..:rnG OPERATIONAL 
+1 _.o· r_ 
+• ... , "" _ 
+0
+-:° : '~: .. INTEREST A.s ?ARA GRAPH 2. IMtLJES s_~E,_C~K _IN£C~'.L CAVATA-ACC~J?.,On.'GL-Y-=.. ~-,,- ~,,':-:~ .. ·,"';;c=•·~ ~ '",--0~.; 
+i?Tu;tf ~;~~]£~~~i~~f ~~~~~ii~~~~~0;~~~t~~~i?::"<~;d 1J'·c?c~i~t;£;,~?'~;;ifDi~~;E 
+tND CF Mc:ss;~~ • I 
+cis Cv!1!·'.ENT: +fRt-N ASKED s:.!.-tl ADVIS.:: lr cr.:s1=:.::s WILLMS Cr.ECK IN WITH 60NN 
+_PR!CR VISIT CAVATA. 
+' . 
+I 
+I 
+LXCLU~CP r~OH AUTO• 
+SEC R.;;: T MAT, c ccw'-ICRAD"'c & 
+._ ________ __,_ Ot:Ct.As:,1r1CATION 
+REPRODUCTION BY OTH~R THAN TH:: ISSUi0;G OrflCE IS PH.JHIBITED. Copy No. 
+-- ,-, -~----- ---·-- -;=-

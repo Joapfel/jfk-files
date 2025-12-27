@@ -1,0 +1,41 @@
+14-00000 
+' . 6ECRE.f 
+(MMn'F•//;._, ln) 
+,REQUEST FOR .llEDICAL,EVALUATION,~J . r "'l l I' •~ _\ : •• 1 
+I. ~"'.'AMIE (L..,. Fvn,t~ ~l~ 
+f'!, r:;.: 0,;.:.. :-.,,, ·: m 1. 
+I ... OIUtOflil TITLli j•• OJIAD• 
+W'b ·o ,y: :. ~~ ~-:lq__ 
+•• -OP'P'ICIE. c,~lsu .......... aA,\fliiliCH 0. 1:MP\.Oll'f•S 11 .. f . 
+n;~:>/'tR :·s{r~· UQ..,.\,;, n·nr. ~ l~\----------~--'---------11 
+-·-
+D PRl:-CliilPLOYNINT 
+\ t,. 
+(SJ I.NTAUIIICt ON DUTY 
+; 
+D ov1:RS1: ,.. .. SRutTuAN 
+~ 
+'· 
+D TOY ST,\NQISI 
+D SP&:CU,\. TR:&.ININO 
+D ANNU"-L 
+D P'ITMtSS fl'.)A 0UTY 
+D Mt.0tCAL .. l!:TIREMENT 
+D u:s 
+D HO 
+10. REPORT OJ' EV.-,"'-l.'"-Th),_ 
+04TE 
+usE·P•t,.1..:,.,.,.s 
+IEDIT•;)lr,,,,.S... 
+}. P'u'IP091: OP' a.v,\LUATION 
+• -- - ,---------------------, 
+SECRET 
+IITII 
+STATION 
+.---~- fDY OR PCS 
+1:''nl 
+TYPE g,- CO'iER 
+NO, OP' OEPF.:NOENTS• Rf.:PORTS 01" NEDICo\L 
+HISTORY (Str 69) ATTAC.:H&.0 
+r .. -•_ .... 
+:HJ 

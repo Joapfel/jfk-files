@@ -1,0 +1,58 @@
+14-00000 
+SECRET . . . . 
+pf 
+Name 
+f11l/N, z, l)Oli A LJ) u)· 
+a 
+Va~nina, Daniele S. 
+Weaver, C.arol M. 
+West, Bill C. 
+Williams, James H. 
+Wolfe, Elizabeth L. 
+Woodyear, Frances A. 
+Meybaum, Heino W. 
+Edger, Ruth C. 
+Kelley, Joseph B': 
+SSN 
+D~1Di 
+485105490 
+231640291 
+330361880 
+113332128 
+578701385 
+412667301 
+579501526 
+565464787 
+447461282 
+579388251 
+Typ~ EP1ploye~ Cocles ~·---· . 
+CE - Contract Employee 
+CA - Career Associate 
+IC - Independent Contractor 
+Conslt - Consultant 
+FN - FBIS Foreign National 
+., 
+SFN 
+055849 
+641680 
+586457 
+015790 
+662217 
+663774 
+133351 
+051918 
+679606 
+016617 
+SECRET 
+6 
+TE ORG Terinination Date 
+CE AF 27Mayl977 
+CE OTR 30 J'une l 977 
+CE AF IO May 1977 
+IC OSR 13 May .1977 
+CE LOG 30 June 1977 
+CE OSIG 18June 197-7 
+CE EA 6 May 1977 
+CA EUR 10 June 1977 
+CE LA IO June 1977 
+Consl.: OGC 31· May 1977 

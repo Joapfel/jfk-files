@@ -1,0 +1,134 @@
+13-00000 
+show the area around a roof is weakening, it can be 
+supported by beams or roof bolts." 
+In ~eismic exploration, a high energy explosion 
+is set off, and sensitive instruments determine the 
+structure and makeup of surrounding land by record­
+ing how fast the shock waves travel through the 
+ground. The.waveforms can be interpreted to pin­
+point probable deposits of oil, and to describe rock 
+formations. "Using a large energy souce like an ex­
+plosion in a mine is out of the question," Dr. Podio 
+said, "so a manually controlled impact device was 
+designed to generate the shock waves." The impact 
+device, which works like a BB gun, uses air pressure 
+to shoot a round projectile at a striker plate 
+mounted at the end of the barrel. 
+When the striker plate is pressed against the 
+wall or roof of the mine and the device is triggered, 
+shock waves are .sent through t'he surrounding rock. 
+Tb£..»ock waves are picked up by wideband transduc­
+err.::-.••1Hgitized by a fast transient recorder, and 
+processed through the Nova 820 for waveform enhance­
+ment. The waveform is then displayed on an oscil­
+loscope, with the results of velocity and depth cal­
+culations. Permanent records of the waveform can be 
+made on paper tape, or by transmitting the data to a 
+large scale remote computer. 
+"A mine could make daily checks with the system 
+to detect changes in rock strata as the working face 
+of the mine advances," Dr. Podio said, "or the sys­
+tem could be transported throughout the mine to make 
+daily checks on the condition of roofs at predeter­
+mined key locations." Dr. Podio noted that similar 
+systems could be used to predict the quality of rock 
+in rapid excavation projects or could be used in 
+nondestructive tests of large concrete structures. 
+PHONE BOOKS BY COMPUTER 
+Peter A. Cassels 
+Bell Telephone Laboratories 
+Mountain Ave. 
+Murray Hill, N.J. 07974 
+The Bell System is using computer technology to 
+modernize production of the White Pages telephone 
+books. A system designed to improve customer serv­
+ice, control costs and streamline massive record­
+keeping operations is now being implemented. The 
+SYJ!tem - called DIR/ECT (for DIRectory projECTJ -
+was developed by Bell Laboratories, the research 
+and development unit of the Bell System. Michigan 
+Bell Telephone Company recently issued its first 
+directory containing listings produced by the sys­
+tem. Michigan Bell also is using the system to 
+produce some of its directory assistance records. 
+DIR/ECT is a more sophisticated outgrowth of its 
+prototype, PHOTAC, a similar process developed by 
+the New York Telephone Company under sponsorship of 
+the nationwide Bell System. The first directory 
+produced by the PHOTAC system was distributed in 
+1966. Since then, New York Telephone has converted 
+some 4.5 ~illion listings to the process. Currently 
+the 12 maJor downstate White Pages directories are 
+produced by PHOTAC. 
+The DIR/ECT system stores in a computer memory 
+directory information such as the cultomer's name, 
+address, telephone number - even telephone book 
+delivery instructions. The information in the com­
+puter memory then is fed into a device called a 
+photocomposer, which provides ready-to-print list­
+ings for White Pages. Besides the annual White 
+Pages directories, DIR/ECT produces daily updates of 
+new listings and monthly reprints for the telephone 
+companies' directory assistance operators. 
+Although customers may see no obvious differences 
+in the computer-produced directory, listings are 
+easier to read and pages cleaner looking. The di­
+rectories also have uniform abbreviations. The sys­
+tem has built-in cross-checks for consistent spell­
+ing of street names and for obvious errors in street 
+and telephone numbers. There also is provision for 
+massive directory listing changes, caused by renam­
+ing of streets and buildings. 
+Today, listings for phone directories are-gener­
+ally set line-by-line in metal type, Changes in 
+listings must be reset and inserted by hand. Kith 
+the new system, changes can be made quickly (because 
+information is stored on magnetic computer tape and 
+not metal type), the need to store tons of lead type 
+will end, and the growing cost of publishing direc­
+tories will be lessened. 
+EDUCATION NEWS 
+M.I.T. MUSIC PROJECT USES DEC COMPUTER 
+News Office 
+Maachusem Institute of Technology 
+Cambridge, Ma/iS. 02139 
+The Massachusetts Institute of Technology has be­
+gun work on a project aimed at making the Institute 
+a major center for the study and composition of 
+electronic music. Barry Vercoe, assistant professor 
+of music, working with a computer given to the De­
+partment of Humanities' music section by Digital 
+Equipment Corp. of Maynard, is in the early stages 
+of developing a major electronic music production 
+facility at the Institute. 
+Professor Vercoe said the computer facility "lr.'i 11 
+be a tool both in the hands of the teacher and the 
+composer that will greatly aid the development of 
+creativity. The facility also will provide an ex­
+cell~nt tool in the teaching of musical composition 
+for conventional instruments. 
+"This is definitely not a scientific project. I'm 
+not interested in merely getting a computer to sound 
+exactly like a trumpet. The technological applica­
+tion, however, will interest some students who might 
+not approach music otherwise and some of these will 
+be drawn into its aesthetic considerations, through 
+the back door as it were," Professor Vercoe said. 
+Why compose music for a machine at all? 
+"I suppose someone asked that very question when 
+man first composed music for what are now traditional 
+instruments, instead of for the human voice alone," 
+Professor Vercoe said. "Electronic music merel\' ex­
+pands the forces available to the practicing co~­
+poser." 
+The PDP-11/45 computer - coupled with music in­
+put - also will lend itself to other forms of music 
+research, such as syntactic analysis of music struc­
+tures. 
+Professor Vercoe is the author of tht!"widely used 
+Music 360 language for digital sound synthesis. He 
+has taught at M.I.T. _for two years and is director 
+of the Experimental Music Studio. His work, "~feta­
+morphoses for Orchestra," was given its Boston pre­
+mier early this year by the M.I.T. Symphony and lr.'as 
+performed by the orchestra on its subsequent nation-

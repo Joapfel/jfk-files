@@ -1,0 +1,24 @@
+thrust reversers to the aircraft design, but we have the flexibility to under-
+take this development on an exploratory basis concurrent with the overall 
+program, and terminable at will if costs should exceed anticipated benefits. 
+The second area in which Boeing's approach seemed likely to produce 
+more complicated development problems was its proposed power 1>lant-i11st~1,­
+lation with top-mounted inlets. The Fourth Evaluation Report commented that 
+Boeing's location of the inlets on top of the fuselage, in combinaUon with the 
+Boeing subsonic diffuser design, results in significant distortion of the air 
+flow at the engine face under most conditions, and prohibitive distortion during 
+I 
+high angle of attack operation. The Report noted that the effect of this 
+distortion on engine operation is virtually impossible to predict accurately, 
+and it can only be determined by actual testing of the engine in flight under 
+the distortion conditions delivered by the induction system. 
+In contrast, General Dynamics chose a conventional "straight thr~ugh" 
+installation and inlet design which the Evaluation Group considered to be a 
+good selection for the TFX aircraft -- one which should give the best 
+trade-off in terms of performance, complexity and operational problems. 
+The top-mounted inlet does minimize the problem of foreign object 
+damage during ground operations, but there is no reason .to believe that 
+the more conventional General Dynamics solution for this problem will not 
+be effective, and it avoids all of the other uncertainties of the Boeing approach. 
+22 
+NW 50955 Docld:32424709 Page 144 

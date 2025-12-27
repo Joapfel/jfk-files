@@ -1,0 +1,91 @@
+14-00000 
+SECRET. 
+(1-11 ~r, "'I LLro IN) ., a . --. 
+QUALIF !CATIONS SYSTEM RECORD CHANGE 
+Al'PLICM/T COOING DATA 
+1. I 0 2, APPL. tlO,, -, NA--•t 
+<· 2 
+b-0,c;,1 rs '..1:-.,::- ~:.,:st CC'tHA1N 2Q•01G1T~ 
+• • 
+4 OAT[ or 81ATH 5 OAfC ,, ... cco THC CA 1 A A&o·.-c ( lr[MS 2 111nv 5) "' LL !JC r 1 LLtti IN 
+l◄ O DA YA ••o DA ,A W~CN coo,~~ AN APPLICAN1 rc,n Hi£' rtR9T 'f IV(,, THIS 
+• f I • I 
+l"QAY IS fH[N AfTACH[O TO rORf-4 1962, uAs•tA ~v•L••tCA• 
+I 
+• 
+T•ONS CCOING A(COAO. 
+LMJGUAGE COD I NG DA TA • f'CRM 11l14, 
+1. 10 2. CMPLOYtt ~0. ,. NA"-tC I; LANGUAG( r>•TA. COO[ 
+~3 
+J•LtTTtRS OASt COO£ R w p s u T 
+• • • 
+5, OAT[ SVllM I TT[O 16. OAT[ or ISIRTH 
+Wl<[N •o~ 444c Dt,,.OTtS NO LANQUAQ[ MO DA YR MO DA 
+• I I • I 
+2. tMPI.OYCC NO. . NAM[ 
+3•t.CTTtRS 
+• ;.sis 'l • 
+0 
+c_ 
+DATA ArTCR TtST 
+OAS£ CODt R w p 
+• 
+s 
+E 
+1. ID 2. £MP/APPL uo: B NAM£ 
+~4 
+3•LtTTERS 
+• • 
+TYPE CODC # 
+OAS[ 1 2 
+• • 
+i. 19 
+• • 
+• • 
+It • 
+i. i. 
+It It 
+• • 
+It It 
+Po 
+I 
+1 
+YA > COMPtT[,,.C[, tNTtR .Tift. rOLLOWINQ IN 
+1 T[M 4: "NO+-+LM,GUAGE" (12-0101 TS) 
+LANGUAGE PROF'ICICNCY TEST DATA 
+!1, CODE 't.ANGUAG[ DATA ocrORC 
+C•A•O BASC CODE .R W 
+• 
+7. DAT[ or TEST 
+YA 
+DA~A ron_tTt~ 2 TH~Y 1 IS 
+. CXTRACT[i:;° ~ROM r';,t,.< 1'.273, 
+> 
+LANGUAGE PR,;.-, c I CNCV :AND .• l 
+AWAH09 OAT A• 
+CUALIF'ICATIONS RECORD C"A""'-<" 
+tNTCR UIIDCR "TYP[ 11 
+- ! • 
+A - ADDITION TO iltCORD 
+C - CHANGC TO [~•STING RECORD 
+0 - DCLCTtON or OATA rnOM cx1sT,,.~ A~~':.RO 
+coot I 2 
+3 YR BASC 1 2- ., 
+• 
+• 
+• 
+• 
+• 
+• 
+• 
+• 
+• .. .... 
+to••• 19624 0 8 JUN 7968 SECRET 
+~ -·~~Jt@§i&ZLRWt&L&tM .t4&U£: .&S&tztb a_ C~&Ll.ra..u Ji&..Wi.C m ca s csw:r a, CC.J £& AL !t. L 
+YR 
+C 
+.. 
+.' 
+YR 
+...... 
+J :QQJWWW_A3.LJ£SC:&£i 

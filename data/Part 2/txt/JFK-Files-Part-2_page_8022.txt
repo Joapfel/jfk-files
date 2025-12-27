@@ -1,0 +1,184 @@
+13-00000 
+NEW CONTRACTS 
+l2 
+Sanders Associates, Inc., 
+Nashua, N.H. 
+ITT Creed Limited, 
+Great Britain 
+Univac Div., Sperry Rand 
+Corp., Blue Bell, Pa. 
+!!Q! 
+CAE Electronics, 
+Montreal, Canada 
+British Post Office 
+Auto Tell Services, Inc., 
+Villanova, Pa. 
+Display system segment of Canadian Joint En­
+route Terminal System (JETS) Program; first 
+phase consists of seven Enroute and two 
+Terminal Systems for air traffic control 
+6000 machines - teleprinters and associ­
+ated equipment - to be used mainly for 
+Telex customer-to-customer teleprinter 
+s stem 
+1100 Univac DCT-515 Data Communications TP-r­
+minals to be used by automobile dealers who 
+subscribe to ATS services on-line computer­
+ized services 
+Computer Sciences Corp., National Aeronautics and Space Computer services support to Simulator Com-
+El Segundo, Calif. Administration (NASA) puter System Branch at Ames Research Center, 
+~ 
+18.6 million 
+$11 million 
+$7 million 
+$6. 7 million 
+Mountain View, ~C~a~l~if~·,.,..,..-,--,--:---,--;:,-,,----=--:-:=-=-=---~H~olllV--.-~1~1-,--=-I-n-c-.,-------,-S=t~a~t~e-o~f-A~r-i~z-o_n_a-,-------~A""-::H~on~e~y~w~e~l~l---::-Mu'-\ltics (Multiplexed Informs- $5+-million 
+wellesley Hills, Mass. Phoenix, Ariz. lion and Computing Service) system, for 
+use b 13 state agencies 
+Computer Sciences Corp., 
+El Sequndo1 Calif. 
+Philco-Ford Corp. 
+Willow Grove, Pa. 
+Raytheon Data Systems. 
+Norwood, Mass. 
+National Cash Register 
+Co., Dayton, Ohio 
+Computer Sciences Corp., 
+El Segundo, Calif. 
+Interdata, Inc., 
+Oceanport, N.J. 
+lcDonnell Douglas Automation 
+Co. (IICAUTO), St. Louis, Mo. 
+Informatics Inc., Western Div., 
+Cenoqa Park 1 Calif. 
+Logicon, Inc., Torrance, 
+Calif. 
+TRW Inc., Redondo Beach, 
+Celi!. 
+Systems Engineering Labora­
+tories, Inc., Ft. Lauderdale, 
+Fla. 
+. Boeing Conanercial Airplane 
+Co., Renton, Wash. 
+Atlantic Research Corp., 
+Alexandria, Va. 
+Bunker Ramo Corp., Trumbull, 
+Conn. 
+Collins Radio Co., Dallas, 
+Texas 
+Diablo Systems, Inc., 
+Subsidiary of Xerox Corp. 
+Harward, Calif. 
+IIRI Systems Corp., Austin, 
+Texas 
+National Aeronautics and Space 
+Administration (NASA) 
+U.S. Army Electronics Conanand. 
+Fort Monmouth, N.J, 
+Eastern Air Lines, Miami, 
+Fla. 
+Publix Super Markets, Inc., 
+Lakeland, Fla. 
+National Aeronautics and Space 
+Administration (NASA) 
+DATRAN (Data Transmission Co.), 
+Vienna, Va. 
+Buffums 
+Southern California 
+Illinois Bell Telephone Co., 
+Chicago, Ill. 
+U.S. Air Force 
+Los Angeles County Road 
+Department (LACKO), Calif. 
+Singer Simulation Products, 
+Div. of Singer Co. 
+Manufacturing Technology Div., 
+A.F. Materials Labs .. Wright 
+Patterson AFB, Ohio 
+Arkansas State Educational 
+Television Commission 
+Reliance Federal Savings & 
+Loan Asso. of New York, 
+Jamaica, N.Y. 
+U.S. Ai! Force 
+Wang Laboratories, Tewks­
+bury, Mass. 
+U.S. Dept. of Agriculture, 
+!a!hingto~, D.C. and New 
+Engineering and related services to NASA's 
+Wallops Station, Wallops Island, Va. 
+Improving computerized communications net­
+work, identified as '73 AEP for AUTODIN En­
+hancement Program, at 10 overseas AU~ODIN 
+sites, Ft. Monmouth, N.J., and Fort Det­
+rick, Md. 
+Data display terminals and associated equ_ip­
+ment as part of expansion of EAL' s Automated 
+Passenger Processing and Reservation Svstem 
+30 NCR 255 supermarket checkout systems in­
+volving a total of 357 NCR 255 terminals 
+and 30 NCR 726 in-store minicomputers plus 
+120 NCR 250 free-standing electronic cash 
+r isters 
+Analysis and programming services to Lang­
+ley Research Center, Hampton, Va. 
+Dual processor Model 55 data communications 
+concentrators, with software and technical 
+support, for an in!ormation network DATRAN 
+is designed and installing on a turnkey basis 
+for International Brotherhood of Teamsters 
+Computer processing of all company data; 
+includes accounts payable, receivables. 
+sales analyses. payroll, inventory con­
+trol and statistics 
+Design and applications programming sup­
+port for a new pavroll/personnel system 
+Verifying and validating CV&V) critical mis­
+Bile fligl!t safety OIFS) software used on 
+western test range of Space and Missile Test 
+Center (SA)ITEC) 1 Vandenberg AFB, Calif. 
+Designing Integrated Information Manage­
+ment (IIMS); 10 subsystems cover account­
+ing; billing; budgets; management of con­
+tracts, and projects, inventory control. 
+production and performance, and road in­
+ventor information 
+Central control and simulation element of 
+a Nuclear Plant Simulator for Carolina 
+Power & Light Co., Raleigh, N.C . 
+Developing Air Force Computer Aided Manu­
+facturing (AFCAM) master plan 
+Engineering studies and detailed plans for 
+four new ETC (Educational Television) sta­
+tions, and an interconnecting microwave network 
+31 BR 2001 Universal Teller Terminals for 
+equipping teller stations in all nine Reli­
+ance offices; terminals will be tied by 
+bighspeed communications circuits to a 
+Univac 9480 computer 
+Continuing development of systems and equip­
+ment for the U.S. Air Force Satellite Com­
+munication System 1AFSATCOM); eventual pro­
+duction awards, depending upon Air Force re­
+gui rements, could total more than $125million 
+Series 40 disk drives to be incorporated 
+into Wang's new line of mini computer systems 
+Lease of SYSTEM 2000 for Farm management ap­
+plications; at least nine SYSTE~ 2000 data 
+$5 million 
+(approximate) 
+$4 .6 mi Ilion 
+$2+-million 
+$2 million 
+(approximate) 
+$1.2 million 
+$1-r mi Ilion 
+$725,000 • 
+(approximate) 
+$500,000+-
+$365,000 
+$365.000 • 
+$330,000 
+$251,000 
+$37,000 
+# --

@@ -1,0 +1,95 @@
+13-00000 
+• ··- -·-------------------------------------------
+I • 
+The ·magazine of the design, applications, and implications of 
+information processing systems - and the pursuit of truth in 
+Input, output, and processing, for the benefit of people. 
+World Affairs and Social Policy ( continued) 
+33 Virtue. in Spite of Erroneous Conceptions [NT A] 
+by J. P. Frankel, Dean of the Faculty, Harvey Mudd 
+College, Claremont, Calif. 
+Which projects and problems should scientists work on? 
+and which projects and problems should receive support 
+by the government and which from other sources? 
+The Profession of Information Engineer and the Pursuit of Truth 
+~--
+3'!:unsettling, Disturbing, Critical [NT F] 
+Statement of policy by Computers and Automation 
+3 The Pursuit of Important Truth [NT F] 
+by Edmund C. Berkeley, Editor 
+Four kinds of truth that are regularly unexplored and 
+unmentioned. 
+38 Nixon and the Mafia - Conclusion [NT A] 
+by Jeff Gerth, SunDance Magazine, San Francisco, Calif. 
+The many connections of President Richard M. Nixon 
+with organized crime, scandal, etc. 
+26 Burying Facts and Rewriting History - II [NT A] 
+by Edmund C. Berkeley, Editor, Computers and Automation 
+Taken together the information published May 1970 to 
+November 1973 in Computers and Automation effectively 
+destroys a large segment of the beliefs, the rewritten history, 
+that the establishment in the United States has arranged for 
+the people in the United States to believe. 
+28 Political Assassinations in the United States [NT R] 
+Inventory of 41 articles published in Computers and 
+Automation May 1970 to October 1973 on the assassi­
+nations of President John F. Kennedy, Senator Robert 
+Kennedy, Reverend Martin Luther King, and other polit­
+ically important persons in the United States: titles, 
+authors, and summaries. 
+rJ The Watergate Crimes [NT R] 
+Inventory of 12 articles published in Computers and 
+Automation August 1972 to September 1973 on the 
+burglarizing of the Democratic National Committee offices 
+in the Watergate Building, Washington, D.C., June 17, 
+1972, and _the ramifications: titles, authors, and summaries. 
+Computers, Puzzles, and Games 
+35 Numbles [T CJ 
+by Neil Macdonald 
+Corrections . 
+For changes in "The Path to Championship Chess by Computer" by 
+Professor Donald Michie published in the January 1973 issue of 
+Computers and Automation, see page 23 of this issue, or page 24 of 
+the July issue. 
+For changes in the reprinting and the indexing of "Communication -
+Three Wav: Chimnanzee. Man. Comouter".oublished in the Julv issue. 
+Three eighth graders - each from 
+a different continent - are working 
+together to solve complex mathe­
+matics problems. They are at the 
+new United Nations International 
+School, and are Laurence Ling May, 
+a Chinese-Thai American; Catharina 
+Nilson of Stockholm, Sweden; and 
+Arun Al~gappan of India. The 
+minicomputer system is a gift from 
+Digital Equipment Corp. For more 
+information, see page 43 of the 
+July 1973 issue. 
+Departments 
+42 Across the Editor's Desk -
+Computing and Data 
+Processing Newsletter 
+60 Advertising Index 
+50 Calendar of Coming Events 
+32 Classified Advertisement 
+48 Monthly Computer Census 
+46 New Contracts 
+47 New Installations 
+23 Statement of Ownership 
+Key 
+[A] - Article 
+[CJ - Monthly Column 
+[E] - Editorial 
+[F] - Forum 
+[NT] - Not Technical 
+[R] - Reference 
+• [Tl - Technical 
+NOTICE' 
+•D ON YOUR ADDRESS IMPRINT 
+MEANS THAT YOUR SUBSCRIP­
+TION INCLUDES THE COMPUTER 
+DIRECTORY. "N MEANS THAT 
+YOUR PRESENT SUBSCRIPTION 
+DOES NOT INCLUDE THE COM• 
+DI ITC 0 n1 QCrTnQv • 

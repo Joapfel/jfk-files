@@ -1,0 +1,52 @@
+13-00000 
+i •, 
+I 
+I 
+! I 
+t 
+Item Manu_script 
+259 331 
+260 . 331 
+267 337 
+268 337 
+269 337 
+*275 394 
+295 424 
+297 425 
+299 426 
+301 427 
+302 427 
+304 430 
+306 431 
+312 442 
+313 450 
+329 480 
+Page 
+DOD 
+DOD 
+DOD 
+'DOD 
+DOD 
+01' 
+DDO 
+DDO 
+DDO, 
+DDb, 
+NSA 
+NSA 
+DOD 
+NSA 
+NSA 
+Tab C 
+Continued 
+(SAFSS) 
+(SAFSS)- • 
+(Navy) 
+(Navy) 
+(Navy) 
+·NSA 
+o_c, NSA 
+(Navy)· 
+NSC Staff 
+*Can be sanitized and portions released. 
+-2-

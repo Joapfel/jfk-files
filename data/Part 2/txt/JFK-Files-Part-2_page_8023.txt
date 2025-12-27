@@ -1,0 +1,138 @@
+13-00000 
+Burroughs B 4700 system 
+Control Data CYBER 70 Model 74 
+system 
+Colit . l Data CYBER 70 Model 76 
+system 
+Control Data 3150 system 
+IBM System 370 Model 155 system 
+IBM System/370 Model 168 system 
+Interdata Model 70 systems 
+NCR Century 101 system 
+NCR Century 200 system 
+NCR Century 251 system 
+Dnivac 1106 system 
+Dnivac 1110 system 
+Pnivac 9480 system 
+I., 
+Al 
+C0111puter Management Group (CMG) . 
+Ltd,, North-west London, England 
+Walter E. Heller & Co., Chicago, 
+Ill. 
+(2 systems) 
+Century Research Center Corp. 
+(CRC), Tokyo, Japan 
+Atmospheric Environment Service 
+of Canada, Montreal, Canada 
+Ingalls Iron Works Co., Birming­
+ham, Ala. 
+Educational Information Services 
+(EIS), Princeton University, 
+Princeton, N.J, 
+Datacrown Limited, Willowdale, 
+Ontario, Canada 
+U.S. Army Electronics Command, 
+Fort Monmouth, N.J, 
+(2 s stems) 
+Radyne Limited, 
+Great Britafn 
+Green Shield Trading Stamp Com-
+pany of Edgware, Colindale, England 
+Columbia EDP Centers, Inc .. 
+Columbia, Mo. 
+British Gas Corp., Hinckley, 
+England 
+University of Connecticut Medical 
+Center, Farmington, Conn. 
+Pacific International Computing 
+Corp., Gaithersburg, Md. 
+Reliance Federal Savings & Loan 
+Asso, of New York, Jamaica, N.Y. 
+NEW INSTALLATIONS 
+The first. of two 84700 systems (which are included 
+in a five-system order) to be Installed at c~•s 
+North-west London, England center 
+(entire 5 computer system order valued at $4.3 
+million) 
+Providing internal processing speed to keep pace 
+with continued growth of data processing operations: 
+system will allow expansion without reprogra:nming or 
+recompi 11 ng: replaces two Burroughs B3:'i00 s,·stems 
+Increasing CRC's processing capabilities to include 
+remote batch data processing services via high 
+1peed communication line control devices, and offer 
+a wide range-of services to various types of users: 
+system will be connected to a previously installed 
+CDC 6600 computer • 
+(s stem valued at. 3 million) 
+Upgrading weather forecasting facilities throughout 
+the country: system in.stalled at Canadian ~leteoro­
+logical Center·in Montreal, Canada 
+(system valued at $6.3 million) 
+Expanding auto:nated design activities: system wi 11 
+operate in conjunction with a previously installed 
+CDC 3150 to support CONSTRUCTS, an automated en-
+ineerin desi n software ·oacka e 
+Linking with university s IB:11 System,360 ~laciel 91 
+to significantly expand a variety of data proces­
+sing services 
+The first of two systems that will more than double 
+current batch processing capacity and increase its 
+capability to provide for transaction-oriented ter­
+minals: replaces Model 165 currently in use 
+(systems valued at $12 million) 
+Use in experiments involving automated tactical 
+surveillance and target acquisition 
+An advanced inventory management and control system 
+(system valued at $6.3 million) 
+Expansion of automated stock control system for its 
+gift houses and new Argos chain of catalog showrooms 
+General data processing services to a variety of 
+customers including several banks 
+Assistance in controlling National Grid pipeline by 
+performing forward simulations on a real-time. 
+round-the-clock-basis: in addition. system will act 
+as a service bureau to scientific and engineering 
+departments within the Corporation 
+All aspects of Medical Center's work including pa­
+tient admissions, monitoring patient care, schedul­
+ing outpatient appointments, support of library in­
+formation and research statistical programs. and 
+general accounting and payroll processing chores 
+(system valued at $1.3 million) 
+The first of two systems whose primary applications 
+include project management, engineering and busi­
+ness data processing: the system will also include 
+time-sharing capabi 11 ty as well as remote job entry 
+from terminals in the field 
+Faster customer service at any bank branch 
+Across the Editor's Desk - Continued from page 45 The Division of Mathematical Sciences of the l'\a­
+tional Research Council will administer the program 
+and award grants to qualified people from the l'ni ted 
+States whose accomplishments in and potential con­
+tributions to the field of information processing 
+IFIP CONGRESS 74 TRAVEL GRANTS 
+P. E. Welch 
+U.S. Committee for IFIP Congress 74 
+Box 426 
+New C8naan, Conn. 06840 
+The National Science Foundation.will support a 
+travel grant program for attendance at IFIP Congress 
+74 to be held August 5-10, 1974, in Stockholm. The 
+triennial IFIP (International Federation for Infor­
+mation Processing) Congresses have become the major 
+International media for exchange of information 
+among developers and users of information processing 
+techniques and technology. 
+are most noteworthy, regardless of the formal labels 
+for their specialties. 
+Younger members of the information science com­
+munity are urged to apply. ~illiam F. ~tchison of 
+the University of Maryland, Financial ~upport Chair­
+man of the U.S. Commi.ttee for IFIP, said that spe­
+cial efforts wi 11 be ·made to support their attendance. 
+Applications may be obtained through the Math Di­
+vision, National Research Council, Washington, D.C. 
+20418. Applications must be received on or before 
+December 31, 1973. 

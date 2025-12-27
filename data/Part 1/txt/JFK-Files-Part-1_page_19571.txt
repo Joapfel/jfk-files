@@ -1,0 +1,70 @@
+14-00000 
+SECRET 
+I -- .. (;,o I I' rrLL'D INl 
+-
+QUALIFICATIONS SYSTEM RECORD CHASGE .,7 ;LP -:-i.' 4.,,, 
+·-
+AfFLICt.rlT CODING .DAH 
+1- 10 2. APPL• NO. 1 "-IA•'[ ....... ~ ... J,.~.....:.,• . 
+<· 
+0-0,c.,,rs MUST CONTAIN 2\J•DIGI TS· 
+2 • • 
+4, o, l C or BIRTH 5 OAT[ co_cco Ttt_[ OATA ABOVC (ll["S 2 T~RL' :) ·w,n et F' 1 \.LED >N . -
+MO DA Yll MO DA YA WH(t,1 C.,001 NG AN APPl I CANl ,..c~ r.,.t r1RST TIM[• THIS 
+• • ·, ,. 
+-- <OR" 15 TH[N AllACHtD 1C re-.. ~~~2 • '"""'!l[A QUAl1r1cA-.,. •. . . I I _:-:,-,:;: .· • TIOU!) cco,~c. RtCCAO. ., 
+.. , 
+L.\NGUAGC CODWG. DATA - f"ORM ~l,~c -
+I. 10 2 [,_.PLOY[( Nt,, I,. NA"[ l, LAN~UAG( OATA COO[ 
+~3 
+J-LtTTtAS OAS[ COCt R w p s u T YR 
+• 0 • ·-
+5, 0~ T[ SUS,.,ITTiO 16. OAT[ or O•RTH 
+li44c Wt-t[N ,..OA"-4 DtNOTtS 
+'"' 
+LA"'l.'..U"'G[ MO DA YR MO DA VA 
+• . , ,.- • I I 
+>~~~ .. U~[_T_[N~[ 1 CHTt11 THC_ F'('\'-.l~'"'H ... ~ ! ... 
+• , rr.n 4: "NOHLANGUAGt" (12-e>o,.ps) 
+LANGUAGE PROflCIErlC'f TEST DATA 
+1. 10 2 tMPLCYCC "o . NAM( :: LANGUAC.C ;: 4. T~ etr--.:-,.u: T[ST 
+.•,. 
+J-LtTTCAS C·A•D UAS[ COOC 
+• (l, 
+:-. 
+R 
+1;. 
+p s u T"" 'YR ~--. --· 
+v· 
+~ 
+HST 7. OATC qi TEST 
+DAS[ COO[ R w p s YR '10 DA YR 
+• 
+QUALi flC,\T IONS RECORD CHANGE 
+I. 10 2. rv.P/ APPL NO. l "'""t UHCR Ut~OCR 
+11
+T'rPt
+11 
+-
+~-4 
+3-L[TTCRS A - AOC! TION TO RtCOAO 
+• • C - CHANGf:. TO EX IS:' IN.'.. R£~.:N.:-
+D - OCLCTION or OAT-. rR.7'N c \.. s·, ~:. ifE:..:ORD 
+TYPE 
+COO[ ii I .: .:---::: i -
+BAS[ I 2 1 'YR BASt: l - 1 YR 
+• • 
+I 
+• 
+• le • 
+ii • • . 
+• • • 
+le le ' 0 
+ii le 1 
+• 
+• • • 
+Ill 
+" • 
+ii ii I· 
+roN-, 
+10,U 1962a SECRET 

@@ -1,0 +1,125 @@
+14-00000 
+... ; 
+: 
+i j 
+I i 
+\ 
+i· 
+! 
+j 
+l l ; 
+l 
+,J 
+:. 
+~ • ~ . 
+~ .-.~ . .:.-·.-~. _...:.~·,_,,_. ~·. 
+.12.;~.li ,ii;\1-;QN, I::rnli:;t,o 
+ASRS',.l P,W, ~rt_;io 
+. Ai.V:;;_;;J ,\irl'UiiA, r'ulix 
+i.~I\- rili. FU~;NTC::.i, Rodolfo do J • 
+l~\·J ~uu1t1,;u::;.::, Carlos l. 
+C,~.u.i:::iO hOUi(lGUi:,;l, lillurio . 
+. CA5~ p;:;t-;AFJWYA, Holanc.Jo J. 
+cAS·,~v CtJi:l..LO, r'u.l.5encio O. 
+Cii.li~ s.:..u:l'I:.,TA, To:J!a.S 
+Dil.-...\00 Fi:.:Hl-..Ai'W!::i, Mario 
+Uil...i..u>O NiJ,i~~ JO, i::ui;onio M, 
+Dil.GAi.\J ::;U;ih-.;/., Pwlf llo I• 
+i.J IA.: CAiifu:li.A, ·Adolfo 
+l.JIA.: !Liuli'.NUi:;.:;, Hodolfo 
+LWU.!,~U~ CADAL:50, Atilano 
+&."\i'·l./;O A:lClJi:;, Jorc:o 
+F;•;S .. \,1..\Ul::~ U,J..HAU, .t:;mc:;to fo 
+F~~ia; ,\.'iLli:L Pi.:;iJhl:-iO, Jut\l'l do J • 
+G,\F..,Ti:,;. ~OA,. Hi0'1.1el A, 
+GU. ;l::~"l,\NUI:;l, Fuli;t:ncio It. 
+• G1.,:;,-:.:;-.:, OYAHlABAL, llu1~0 
+co.-; .:;.w;::; (; A:.imci, Jo :;e 
+'GO~i. . .U.~ rtll:li'l'E.S, Jos~ 
+GU,;~ L,ll.i1tAlJA, Ha.fuel 
+wN~ i,;oi~UN, Joso 
+Go,;.::._.,i.:;.;;; l'".i::;-.E2, l::nriq•ie 
+H:::~'.A'WJ::l llllliZ, Armando 
+L,\V,La'v..'E!H,i '1'01UUJO, lhlogio R, 
+LOP~ U.C: LA CHUZ, Juno R, 
+l.:,,\~i;:;.IRA Pb1lliZ, Jose 
+M;,;;l::~L'~ r.:ou.lLL, Arturo L. 
+:ww,; ROSALt:S, Josc'A. • 
+• 1-:0:;roro GONlALtl, liilario 
+NA\'. .-ll.:j;.B°f.::; FillUJAl~L>EZ, Natividad 
+NAVA.."-.'-;l)· Vi:.GA, v{ctor 
+PJ::a'i iU:.. ~rUN:.-0, Mlcuel 
+. P:.:~~ PADHON, FrcU'lci9CO 
+Qlili,l'.JJA 13rl'.:l30N, Hamon L, 
+l~Y-.::.S l3ill.O, Pedro H. 
+IS~U uA!tt.:IA, Manuel • 
+P.Hc:1'.0 ;._,uc;::;,illA, Gerardo 
+E.Oll:.l uiJ i::Z AL V ~ n::z, 0 r lando. 
+1w~::.1JJ~ r'EF.l'!i,NDEZ, .Alfredo i:;. 
+l~GD:,rw:.:;_..: WNZ.U..i:I.. Jo.coma 
+S,~\!.A'.~ LOi,UJ2D, Hugo R, 
+S . .;:~CH:::Z }@(ZJ::AU, Raul 
+SL.'IS..\. V . .:J..iJ;;.s, Paulino 
+-r:::..r;;a ,;J'l'lliJLZ, Joso H. 
+'i'O.'u~ fITAr Haul de la 
+To:;:.~ :..:tfrH.!0\, Marcos G. 
+TO:...;~ J li·SNa, Ha.f ael 
+TO..'i.~ :@iA, fernando 0 1 
+TOO...~S i-;.:.."iA, Ju:i. n F • • 
+V A,.,;,.o:a W,;SLANC' Hi[;oterto 
+Tot.al: 
+. , ~ l'/5 .oo 
+1,350.00 
+1,0;0.00 
+175.00 
+700.00 
+1,600,00 
+1,000.00 
+225.00 
+.l,l.!5,00 
+525.00 
+250.00 
+5;.::5.00 
+350.00 
+250.00 
+l, 575 .OO 
+700.00 
+225.00 
+675.00 
+: ·-015.00 
+·2,'450,00 
+700.00 
+• 2~·6:.::5.00 
+350.00 
+l,IJ25,00 
+5;.;5.00 
+1,1.75.00 
+2,975.00 
+900.00 
+875.00 
+J,400.00 
+. 1,525.00 
+· 5.25,QO_ 
+350.00 
+275.00 
+700.00 
+2,975.00 
+225.00 . 
+525.00 
+:350.00 
+31150,00 
+:.:,soo.oo 
+.225.00 
+700.00 
+175.00 
+525.00 
+900,00 
+700.00 
+225.00 
+700.00 
+175.00 
+175,00 
+500.00 
+175.00 
+2,91;,oo 
+i 52,soo.oo 

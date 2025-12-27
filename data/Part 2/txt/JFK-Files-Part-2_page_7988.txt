@@ -1,0 +1,137 @@
+13-00000 
+reporting device to alert four pre-selected phone 
+numbers for help, 
+Software 
+Protection of data files, whether in the Corm of 
+punch cards, magnetic tapes, or discs, is the key 
+element in any computer facility. 
+Some specific examples of software security con­
+trol measures are audit trails, access regulations, 
+strong supervision of computer operators, the use 
+and control of programs utilizing program documen­
+tation methods, the use of a Jog for all significant 
+events (such as user identification, file use and 
+attempts of unauthorized use), regulations to pre­
+vent unauthorized personnel Crom browsing through 
+the files, and the use oC a semi-automatic data in­
+ventory cont!ol system. 
+~nnel 
+Physical control as to who is allowed near the 
+computer and the files is advisable. Note that this 
+does not .mean "employees only"; it implies a careful 
+screening of employees, repairmen, and visitors to 
+determine which of them should be allowed this prox­
+imity to the system. Intimately involved with time­
+sharing installations are three types of personnel: 
+operators, programmers, and maintenance engineers. 
+According to Uennis Van Tassel, mathematician and 
+bead programmer at San Jose State College, all oper­
+ators must understand that there exists a protection 
+philosophy: IC personnel are expected to help en­
+force and to comply with this protection philosophy, 
+it must be clearly defined and specified. 
+It is advisable to use the following provisions 
+for personnel control: control oC logs and monitor, 
+division of responsibilities, rotation of duties, 
+adequate supervision to reduce the risk of losses 
+caused by accident or error, careful handling of 
+data files, cleanliness regulations, control access 
+to private files, and appropriate instruction in 
+case of disasters. 
+Terminals 
+Some of the most common pitfalls encountered 
+when using terminals are frequent communication in­
+terruptions, risk of communication interception, 
+difCicult access control, and noisy lines. 
+Among the greatest disadvantages of time-sharing 
+services are those in connection with the communi­
+cation lines which link the terminals to the central 
+processing unit. Telephone lines are designed for 
+voice communication rather than data communication, 
+and the results have been that such lines are too 
+noisy and have too many interruptions for appropri­
+ate handling of data communication. 
+There have been some recent developments in the 
+improvement of data transmissions. Bell System has 
+developed its Digital Data Service (DDS), a data 
+transmission system which has been introduced early 
+this year in five cities (New York, Boston, Phila­
+delphia, Washington, and Chicago); and, by the end 
+of 1974, twenty-four cities are expected to have it. 
+Bell further plans to· provide cont i n11ous monitoring 
+oC their DDS channels. When errors of transmission 
+are detected, DDS will notify the customer. Deci­
+sion on retransmission will be the customer's re­
+sponsibility. Another development in data communi­
+cation is DIN (data under voice). By late 1973 this 
+technique will be in service between New York and 
+Chicago; consequently, communication problems should 
+become virtually nonexistent within the near future, 
+and this system will become even more popular. 
+Telephone lines are vulnerahle to three types of 
+security problems: wire tapping, piggyback, and 
+user's sign-off signal cancellation. These common 
+threats may be avoided by the use of a privacy 
+transformation method (also called scramblers or 
+tryptographic techniques). This is a non-singular 
+(reversible) operation which conceals the original 
+message either by the substitution of new characters, 
+rearrangement of the characters, or by the adding of 
+strings of digits to the original message. 
+Some new techniques for encrypting data have 
+evolved, such as high speed transmission and signal 
+scrambling. In spite of all of these new tech­
+niques, it is still possible to intercept and tap 
+the information. According to Tuckerman, unauthor­
+ized users (intruders) who possess only limited ma­
+terial and information with which to work, can read­
+ily extract the original text of enciphered mes­
+sages by making use of the speed, capacity, and 
+computationa 1 abilities of the computer .. 
+The greater the efficiency .of the privacy trans­
+formation, the more difficult it becomes for unauth­
+orized copying of files. 
+Access Control 
+Access to the system throughout the communication 
+lines should be controlled by the central processing 
+unit and by the user's own procedures. This is pos­
+sible by cryptographic and scramble techniques, per­
+sonnel regulations, user identification, appropriate 
+terminal location, or by ciphering and deciphering 
+hardware. 
+Computer software packages have been written to 
+cipher data transmissions. Ciphering software is 
+an attractive technique because it can be done auto­
+matically by the program which creates the data and 
+at a very low cost. Only programs using the match­
+ing deciphering technique are able to use this data. 
+These special hardware cipher devices can be located 
+at the terminal·and at the computer to protect 
+transmitted data, 
+Scramblers or voice privacy devices are currently 
+being used by people who readily acknowledge the in­
+security of transmitted information, Scramblers are 
+used by large corporations such as the oil industry 
+as well as by union representatives during contract 
+negotiation time. (Scramble phones are currently a 
+20 to 30 million-dollar business, excluding law en­
+forcement and military purchases). Scramble devices 
+are now being built for time-sharing operations. 
+These devices offer protection similar to encryption. 
+Scramblers convert data into something resembling 
+channel noise or a malfunctioning circuit. 
+Other features for terminal~ include print in­
+hibit, security keylock, operator identification 
+card reader, and the use of a terminal identifier. 
+With print inhibit the terminal operator can enter 
+data, such as security passwords, without its being 
+physically displayed, A physical keylock can be at­
+tached to the terminal which will not. aUow the 
+entry of data. The operator identification card 
+reader reads magnetically encoded information on a 
+magnetic strip card. The card can be used to supply 
+the user's password and/or name, 
+Direct access device security features include 
+file mask, volume detection, and write-exhibit 
+switch. The file mask controls or allows· read-only 
+~ 
