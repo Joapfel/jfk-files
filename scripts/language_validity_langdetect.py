@@ -6,7 +6,6 @@ from langdetect import detect_langs, LangDetectException
 # Paths
 BASE_DIR = Path(__file__).parent.parent
 DATA_DIR = BASE_DIR / 'data'
-MODEL_PATH = BASE_DIR / 'lid.176.bin'
 OUTPUT_FILE = DATA_DIR / 'languageValidity.json'
 
 # Part directories to process
@@ -16,22 +15,17 @@ PART_DIRS = [
     'Part 3'
 ]
 
-# Valid languages (English by default, add more if needed)
-VALID_LANGUAGES = {'en'}
+# Language settings
+VALID_LANGUAGES = {'en'}  # English
 MIN_CONFIDENCE = 0.8
 MIN_LENGTH = 20
 
-def download_model():
-    """No need to download model separately with langdetect"""
-    pass
-
-def load_model():
-    """No model loading needed with langdetect"""
-    return None
-
-def is_valid_language(text: str, model) -> dict:
-    """Check if text contains valid human language."""
-    if len(text.strip()) < MIN_LENGTH:
+def is_valid_language(text: str) -> dict:
+    """Check if text contains valid human language using langdetect."""
+    text = text.strip()
+    
+    # Check minimum length
+    if len(text) < MIN_LENGTH:
         return {
             "valid": False,
             "reason": f"Text too short (min {MIN_LENGTH} chars required)",
@@ -51,7 +45,7 @@ def is_valid_language(text: str, model) -> dict:
             "confidence": confidence,
             "reason": "" if language_code in VALID_LANGUAGES else f"Unsupported language: {language_code}"
         }
-    except Exception as e:
+    except LangDetectException as e:
         return {
             "valid": False,
             "reason": f"Language detection error: {str(e)}",
@@ -66,7 +60,6 @@ def process_files(max_files: int = None) -> dict:
         max_files: Maximum number of files to process (None for all)
     """
     results = {}
-    model = None  # Not needed with langdetect
     files_processed = 0
     
     for part in PART_DIRS:
@@ -81,6 +74,7 @@ def process_files(max_files: int = None) -> dict:
             if max_files is not None and files_processed >= max_files:
                 print(f"\nReached maximum of {max_files} files. Stopping processing.")
                 return results
+                
             try:
                 with open(txt_file, 'r', encoding='utf-8', errors='ignore') as f:
                     content = f.read()
@@ -88,8 +82,9 @@ def process_files(max_files: int = None) -> dict:
                 # Get relative path for the output
                 rel_path = str(txt_file.relative_to(DATA_DIR)).replace('\\', '/')
                 
-                # Check language validity (passing model=None since it's not used with langdetect)
-                results[rel_path] = is_valid_language(content, model)
+                # Check language validity
+                results[rel_path] = is_valid_language(content)
+                files_processed += 1
                 
                 print(f"  {txt_file.name}: "
                       f"Valid: {results[rel_path]['valid']} "
@@ -118,8 +113,8 @@ def main():
     # Create data directory if it doesn't exist
     DATA_DIR.mkdir(parents=True, exist_ok=True)
     
-    # Process files and save results (only 10 files for testing)
-    results = process_files(max_files=10)
+    # Process files (set max_files=None to process all files)
+    results = process_files(max_files=None)
     save_results(results)
     
     # Print summary
