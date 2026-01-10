@@ -5,3 +5,5 @@ To retrieve the OCR-based text provided in the original files, the large PDF fil
 Language Detection References:
 - langdetec, see [Presentation](https://de.slideshare.net/slideshow/language-detection-library-for-java/6014274#27)
 - FastText, see facebook's [Github](https://github.com/facebookresearch/fastText?tab=readme-ov-file)
+
+As the original PDFs contain poor quality OCR, the [dots.ocr](https://huggingface.co/rednote-hilab/dots.ocr) model was used to retrieve higher quality text. The `ocr_dots.py` script (which is an extension of [this Demo App](https://huggingface.co/blog/prithivMLmods/multimodal-ocr-vlms#ii-dotsocr)) was used to retrieve the text. As the script operates on images, the `pdf_to_png.py` script was used to convert the PDFs to images. The images are not included into this repository due to their size. The final text can be found in the `ocr-dots-md` directory.
