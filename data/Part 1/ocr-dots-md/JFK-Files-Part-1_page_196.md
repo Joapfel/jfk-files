@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_196.png
+
+Convert to Markdown-3-
+
+21. American Committee for Cultural Freedom - Manhattan, New York (8) 08
+
+An unwitting American affiliate of the exposed Congress for Cultural Freedom (CCF) (Project QKOPERA). It raised legitimate funds for CCF.
+
+22. American Fund for Free Jurists, Inc. - Wilmington, Delaware (17)
+
+Proprietary funding conduit for International Commission of Jurists under Project QKFARFUL.
+
+23. American Society of African Culture - Manhattan, New York (24) 08
+
+Action organization under Project TPFOUMART.
+
+24. Committee of Correspondence, Inc. (CC) - Manhattan, New York (44) 08
+
+Action organization for international women's activities under Project JEFERVENT.
+
+25. Farfield Foundation, Inc. - Manhattan, New York (56)
+
+Funding conduit for CCF and other activities under Project QKOPERA.
+
+26. Whitney Trust for Charitable Purposes, John Hay, u/d dated 29 December 1959 - Manhattan, New York (141)
+
+Funding conduit under Project QKOPERA (LPCORSET/68).
+
+27. Whitney Trust for Charitable Purposes, John Hay, u/d dated 29 December 1958 - Manhattan, New York (142) 08
+
+Funding conduit under Project QKOPERA (LPCORSET/68) 01
+
+28. Fund for International Cooperative Development - Chicago, Illinois (64) 29
+
+Funding conduit for Cooperative League of the U.S.A. (CLUSA) under Project WSFLUFFER.
+
+29. Institute of International Labor Research, Inc. (ILLR) - Manhattan, New York (83) 08
+
+SENISSIVE
+SECRET
+
+29/BR

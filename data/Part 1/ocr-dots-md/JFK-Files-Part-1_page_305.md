@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_305.png
+
+Convert to Markdown14-00000
+
+For -> PATERSON - HSCA
+AMTAUP-2 - Oscar ANGULO - Reyer
+AMLAME-1 - Arleu SUEI'RAS y Ceez
+AMBLEAK-1 - Fernando F. CABADA Jr
+AMICE 27 - Nestor Antonio MORENO Lopez
+AMING-1 - Abel MESTRE

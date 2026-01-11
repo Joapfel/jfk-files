@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_145.png
+
+Convert to MarkdownSECRET
+
+CSHB 43-14
+
+CHAPTER III, ANNEX B
+
+CLANDESTINE SERVICES
+HANDBOOK NO. 43-1
+
+15 February 1960
+
+of the Cuban desk on the dramatis personae. In addition to 201 per-
+sonalities, such lists should contain the names and identifying data
+of persons who should be kept track of, although they may only be of
+tangential interest or on whom there may be little or no data other
+than that given in the listing itself.
+
+4. To accommodate this type of requirement in the 201 system, identifiable personalities concerning whom enough information is not yet available to require the opening of a file may be assigned numbers of the following type but in the same series:
+
+IDN-123457
+
+These are relabeled "201" if a file is opened. IDN numbers are carried with 201 numbers in appropriate general or special listings, where they are identified by the letter "I" in the "Type of Name" column. IDN numbers are not CS file numbers.
+
+5. All 201 code numbers are assigned by RID at headquarters, either upon receipt of Form 831, or of a field dispatch. If a dispatch is written about a personality not yet in the system, a 201 number for it may be requested simply by writing under headquarters file number in the dispatch form as follows:
+
+<table>
+   <tr>
+    <td>
+     Dispatch Symbol and No.
+    </td>
+   </tr>
+   <tr>
+    <td>
+     XYZA-12345
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Headquarters File No.
+    </td>
+   </tr>
+   <tr>
+    <td>
+     201-
+    </td>
+   </tr>
+  </table>
+
+6. IDN numbers are assigned by RID at headquarters upon the request of stations or desks which are developing special identification programs within the 201 system. The field receives current notification of new 201 openings and IDN numbers through the Field Index Card Service.

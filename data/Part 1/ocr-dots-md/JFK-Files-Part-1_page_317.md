@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_317.png
+
+Convert to Markdown104-10061-10132
+
+SECRET
+
+15 JUN 1978
+
+MEMORANDUM FOR: DDO/ISS/IP/LIS
+
+FROM : V. L. Latta
+Plans and Review Group
+Central Cover Staff
+
+SUBJECT : House Select Committee on Assassinations
+(HSCA) Request
+
+REFERENCE : Letter for OLC from Chief Counsel/Director of HSCA, dtd 8 Jun 78 (OLC #78-2030)
+
+1. In response to the request in Reference, CCS files contain information on a Marie L. PRISEBCH, a pseudonym officially assigned to Neda Massing, U.S. citizen, born 6 January 1900, who was an Agency contract agent from 1956 until her retirement in 1975. The information is contained in approximately 60 documents, virtually all of which concern the establishment and maintenance of cover.
+
+2. CCS files contain no information on the remaining individuals listed.
+
+s/ M. L. Latta
+M. L. Latta
+
+Distribution:
+
+Orig & 1 - Addressee
+1 - SA/DO/O
+1 - 10-4H (HSCA)
+1 - 19984 (Massing)
+1 - CCS/PRG chrono via board
+1 - NLD chrono
+
+MLLatta:acn
+
+E2 IMPDET
+CL BY 026000
+
+SECRET
+
+#1542

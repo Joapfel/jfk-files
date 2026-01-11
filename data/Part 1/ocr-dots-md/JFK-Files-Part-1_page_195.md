@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_195.png
+
+Convert to Markdown-2-
+
+11. [Hoblitzelle Foundation - Dallas, Texas (LPCORSET/3) (72)]
+12. [Independence Foundation - Boston, Massachusetts] (LPFUNNEL/2, CCS proprietary) (75)
+13. [Jones Foundation, Inc., W. Alton] - Manhattan, New York (LPCORSET/1) (99)
+14. [Jones-O'Donnell Foundation - Dallas, Texas (LPCORSET/25)] (100)
+15. [Littauer Foundation, Inc., Lucius N.] - Manhattan, New York (LPCORSET/50) (106)
+16. [McGregor Fund - Detroit, Michigan (LPCORSET/32) (109)]
+17. [Rabb Charitable Foundation, Sidney and Esther - Boston, Massachusetts (LPCORSET/59) (126)]
+18. [Rosenthal Foundation, Benjamin J. - Chicago, Illinois] (LPCORSET/22) (130)
+
+B.
+
+Two CA/B1 Project Organizations
+
+19. [Committee for Self-Determination, Inc.] - Manhattan, New York (43)
+Established under Project TPTONIC and taken over by International Development Foundation (88) (IDF) (CA Project QRBEND). FY 1964 - 1965. Phased out before WH took over IDF (88) under Project UOALIBI.
+20. [Paderevski Foundation, Ignacy Jan] - Manhattan, New York (191)
+Funded under TPTONIC for many years, and thereafter by IDF (88)
+
+C.
+
+Eleven CA/B3 Project Organizations
+
+SENSITIVE
+SECRET
+
+29,10,01
+29,10,01
+29,10,01
+29,10,01
+29,10,01
+29,10,01
+29,10,01
+29,10,01
+29,10,01
+29,10,01
+29,10,01
+29,10,01
+29
+29
+29
+291BR

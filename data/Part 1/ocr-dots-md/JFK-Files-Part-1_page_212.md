@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_212.png
+
+Convert to MarkdownRamparts
+
+53 English Speaking Union* San Francisco, Cal.
+54 English Speaking Union, Chicago Branch* Chicago, Ill.
+55 Experiment in International Living, Inc., The* Putney, Vt.
+61 Hartford Foundation, Inc.* Man., NY 1966
+67 Farmers and World Affairs, Inc.* Phila., Pa.
+68 Florence Foundation, The* Dallas, Texas 1965,66
+69 Foreign Policy Association Man., NY
+75 Free China Fund for Medical And Refugee Aid, The* Man., NY
+77 Freedom Fund, Inc.* Man., NY
+79 Freedom House, Inc.* Man. NY
+85 Friends of India Committee* Wash., D.C.
+88 Fund for International Cooperative Development* Chicago, Ill.
+95 Fund for International Social and Economic Education* Pittsburgh, Pa. (formerly: Center for Rural Development- Phila., Pa.)
+96 Fund for the Relief of Cuban Exiles, Inc.* Coral Gables, Fla.
+97 Fund for the Relief of Russian Scientists and Writers in Exile, Inc.* Man., NY
+98 Governmental Affairs Institute* Wash., D.C.
+102 Library Fund, The* Boston, Mass. 1966
+108 Harnischfeger Foundation* Milwaukee, Wis.
+111 Hobby Foundation* Houston, Texas 1966
+112 Moblitzelle Foundation* Dallas, Texas 1965,66
+113 Hochschild Fund, Inc. Man., NY 1966
+114 Homeland Foundation, Inc.* Man., NY
+115 Independence Foundation, The* Boston, Mass. 1966
+116 Independent Research Service Man., NY
+117 Institute for American Strategy* Chicago, Ill. Yar, & no funds-
+118 Institute for International Order, Inc.* Man., NY
+119 Institute for International Youth Affairs* Man., NY

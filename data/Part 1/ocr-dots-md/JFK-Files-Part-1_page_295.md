@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_295.png
+
+Convert to Markdown1. REDWOOD
+
+2. KLJUMP
+
+3. 'CDACLD
+
+4, IPOWER
+
+5. KUDOVE
+
+6. AEOCEAN
+
+7, REDCOAT
+
+8. SATIN WOOD
+
+9. AEFAIRWXY

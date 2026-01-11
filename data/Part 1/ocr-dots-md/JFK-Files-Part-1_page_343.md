@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_343.png
+
+Convert to Markdown14-00000
+
+KYOH! SAKI or SASAKI
+26 Condon Court
+San Mateo, California 94403
+(451) 349 - 7287
+
+Rosenbaum, LEO
+1815 Oakwood Drive
+McLean, Va 22101
+
+Tele 356 - 5283
+
+Fax 5-29-60 to 10-25-65
+Interpreted 10 apr 78.
+
+Fonis, Dainard.
+9104 Forest Glen Court
+Silver Springs, Md 20910
+
+Office: 949 - 4338 Ext. 31
+Home: 588 - 2953
+
+01C - 78 - 3010 - 17 am 78
+Interiewer. 31 aug 1978 - 10/10/78

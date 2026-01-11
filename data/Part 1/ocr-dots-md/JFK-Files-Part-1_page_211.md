@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_211.png
+
+Convert to Markdown14-00000
+
+Ramparts
+
+Anderson Foundation, M.D.* Houston, Texas 1965,66
+Association for International Development* Paterson, N.J.
+Atlantic Council for the Unites States, Inc.* Wash., D.C.
+
+Uvalon Foundation Manh., NY
+Xenton Foundation, William* Man., NY 1966
+Jodman Foundation, The* Man., NY
+
+N. Branta Foundation* N White Plains, NY 1966,
+Broad-High Foundation* Columbus, Ohio
+
+Brown Foundation, The J. Frederick* Boston, Mass. 1966
+Carnegie Endowment for International Peace Man., NY
+Catherwood Foundation, The* Philadelphia, PA.
+Center for Cross Cultural Communication Wash., D.C. 1964,65,66 -
+Center For Information on America, The* Washington, Conn.
+Center for the Study of International Development* BostonMass1966
+Church Foundation, Frederic C.* Boston, Mass. 1965,66
+Colt Foundation, Inc.* N Man., NY 1965,66
+Commission for International Development* Man., NY
+Committee for Self Determination, Inc.* Man., NY
+Committee of Correspondence, Inc.* Man., NY
+Committee of Seventy, Inc.* Phila., Pa.
+Community Development Foundation, Inc.* Norwalk, Conn.
+Council of International Programs for Youth Cleveland, Ohio
+Leaders and Social Workers, Inc., The*
+Council on Race and Caste in World Affairs, Inc.* Man., NY
+(Leductility terminated as of Dec. 31, 1966)
+Dearborn Foundation* Chicago, Ill.
+Dodge Foundation, Inc. Cleveland H. Man., NY 1966
+Eisenhower Exchange Fellowship, Inc.* Phila., Pa.
+English Speaking Union* Man., NY

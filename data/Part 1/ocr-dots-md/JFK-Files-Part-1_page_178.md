@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_178.png
+
+Convert to Markdown## -4-
+
+e. Eleven unwitting organizations which received grants from project organizations for operational or cover reasons or which cooperated with project organizations.
+
+8. We cannot say with complete assurance that all 55 of the apparently innocent organizations on the Ramparts list in fact never had any Agency ties. Our researches have shown that RID indices are often incomplete. We have found operational use data in CCS files on organizations with no record in RID. The same is true in other cases where information was available in CA Staff or area division files on organizations which drew a blank in RID. It seems likely, however, that any undetected operational interest in the organizations was in the period of the early 1950's and of a marginal nature.
+
+9. In reviewing available information on the listed organizations we attempted to determine whether there was a logical external basis for Ramparts' interest in the organizations or whether some form of internal Agency leak might be involved. Our reviews and analysis show fairly conclusively that Ramparts has been proceeding on the basis of overtly available information, supplemented by interviews with project personnel:
+
+a. All but three of the 42 terminated but hitherto unexposed project organizations and 24 of the 55 organizations which actually had no Agency ties are somehow related to project organizations or funding instruments previously exposed. Some of the organizations made legitimate or covert grants to previously exposed organizations, others received covert or legitimate grants from previously exposed funding instruments or from innocent foundations that had made legitimate grants to exposed organizations, and still others had officers who were associated with exposed CIA organizations.
+
+b. Thirty-one innocent organizations on the Ramparts list and three of the hitherto unexposed organizations of former interest to the Agency have no such known ties to exposed Agency organizations. In most of these cases, however, the names of the organizations are similar to those of exposed organizations or are of a nature that makes them suspect.

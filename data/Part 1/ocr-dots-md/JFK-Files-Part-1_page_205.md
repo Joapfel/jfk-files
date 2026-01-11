@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_205.png
+
+Convert to Markdown-4-
+
+19. [English Speaking Union] - Manhattan, New York (52)
+   [Arthur Houghton, Jr.] President of FYSA (SOGUESSER) was an officer.
+06
+
+20. [English Speaking Union] - San Francisco, California (53)
+   See above. There may be a tie to [TAF (DTPILLAR)] officers.
+
+21. [English Speaking Union] - Chicago, Illinois (54)
+   See above.
+
+22. [Institute for American Strategy] - Chicago, Illinois (77)
+   Advisory committee includes [Frederick Barghoorn] (used in Project AEWILDFIRE), Evron Kirkpatrick of OPR (118) and [APSA (23)] and Dr. Kurt London, former DDI staff employee. Received legitimate grants from Carnegie Endowment (35). 08
+
+23. [League of Women Voters Education Fund] - Washington, D.C. (104)
+   [Mrs. Jean (Harvey) Picker and Ann Lord Strauss] who were on CC (44) (JEFERVENT) board were active in League of Women Voters. 08
+
+24. [Roxco Foundation] - Boston, Massachusetts (131)
+   Trustee is [Paul Hellmuth of J. Frederick Brown Foundation (34)] and [Independence Foundation] (75).
+
+F.
+
+<u>Thirty-One Organizations With no Evident Connections</u>
+<u>To the Others, Except That Their Names May be</u>
+<u>Suspect</u>
+
+25. African-American Students Foundation, Inc. - Manhattan,
+New York (3) 08
+
+SECRET
+25/BR

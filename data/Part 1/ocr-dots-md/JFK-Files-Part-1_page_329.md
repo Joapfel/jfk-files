@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_329.png
+
+Convert to Markdown14-00000
+
+HASHIMA, Robert S
+Contract emp. 10 kyo
+
+Ret
+
+Harris, Vergil L
+1858 E. Glenmore St.
+Mesa, Arizona 85003
+(602) 833-7243 (485)
+
+Re: C/5R/6. oct 62 - Mar 64
+
+Good pasture, Anne
+PO BOX 372
+LIVINGSTON, TENN 38570
+
+10

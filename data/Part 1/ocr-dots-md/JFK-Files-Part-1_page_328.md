@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_328.png
+
+Convert to Markdown14-00000
+
+BERTRAM MARINE
+
+JEROME FOX
+Project Manager
+
+3863 N.W. 21 STREET, MIAMI, FLORIDA 33142/TELEPHONE: (305) 634-2997
+
+A DIVISION OF Whittaker CORPORATION
+
+TELEX: 519268
+
+This is man Willcott identified as having told him Oswald was an agent. Zap spoke to him in Florida
+
+FLORES, DANIEL
+
+STA. IN MEXICO
+
+Re AMMUC-1
+
+9

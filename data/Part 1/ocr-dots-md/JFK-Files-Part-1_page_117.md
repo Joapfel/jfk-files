@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_117.png
+
+Convert to MarkdownUnited States territorial waters. REUTEMAN advised AMCARBON-1 that KUBARK had played no role in mounting a provocation operation against the GOC. At the same time, REUTEMAN pointed out that it was highly unlikely that GUIROLA was a GOC agent. As a result of this conversation, arrangements were made for JMWAVE to check out certain aspects of the GUIROLA story. At the same time, AMCARBON-1 was prevailed upon not to write a story which might lead the public to speculate on whether GUIROLA was an agent or a plant in a propaganda play designed to embarrass the GOC.
+
+**7. PROPAGANDA OUTLET.** AMCARBON-1 has been used successfully, during the period covered by this report, as a propaganda outlet through which items of interest to KUBARK could be surfaced in the free world press. Examples of how AMCARBON-1 has been harnessed in this field are outlined below:
+
+a. **AMCRAB-1.** The AMCRAB-1 defection story originally surfaced in the Miami area on 13 October 1963 via the Diario de las Americas, which played up an API release from Montevideo. The API Montevideo story highlighted AMCRAB-1's information relative to GOC activities in Uruguay. The story in the Diario de las Americas had an extremely limited impact on Spanish readers in the Miami area. As a result, it was decided to do a series of feature stories on AMCRAB-1, pointing up the fact that AMCRAB-1 was typical of the veterans of the Granma expedition, who felt they had been betrayed by CASTRO and had been relegated to positions of obscurity once the revolution had put CASTRO in power. AMCARBON-1 was briefed in detail on the AMCRAB-1 story, and he was given an opportunity to debrief AMCRAB-1 under controlled conditions in a JMWAVE safehouse. After completing his debriefing, AMCARDON-1 wrote a series of feature articles on AMCRAB-1. The first article in the series received front page headline play. The series of articles on AMCRAB-1 were well written, and they provided an excellent peg for JMWAVE to mount a replay operation via other propaganda assets. AMCARBON-1's story on AMCRAB-1 was picked up by UPI, API and others, and it was played throughout Latin America. The details of this surfacing can be found in WAVE 5826, dated 14 October 1963; WAVE 6092, dated 19 October 1963; and, WAVE 6174, dated 21 October 1963.
+
+b. **Charles GRIFFIN Shrimp Boat Story.** On 26 February 1964, JMWAVE learned that when Mr. Charles GRIFFIN's sons went to Cuba to reclaim the hijacked shrimp boat, JOHNNY REB, they found that select items were missing from the boat when it was turned over to them. It was believed that this information would make a good human interest story which JMWAVE assets could use to counter GOC propaganda claims that United States officials had stolen items from the Cuban fishing boats which had violated United States territorial waters. In view of this opinion, a steering tip was given to AMCARBON-1 to have the Identity 3 representative in Key West interview Mr. GRIFFIN. This interview was carried out, and an article outlining the points which were of interest to JMWAVE was published in the 27 February 1964 edition of the Identity 3.
+
+c. **LAYC Story.** The March 1964 LAYC meeting in Santiago, Chile, was not receiving appropriate coverage in the South Florida newspapers; as a result, REUTEMAN contacted AMCARBON-1 on 5 March 1964 and suggested that the LAYC meeting was a story which the Identity 3 should pursue. AMCARBON-1 was grateful for this steering tip, and he assigned the task of preparing the story on the LAYC to one of the members of his staff. A story on the LAYC was subsequently published in the 6 March 1964 edition of the Identity 3
+
+(COMMENT: Copies of the articles cited in subparagraphs a through c above are attached for Headquarters information.)
+
+FORM 5-60 (40) 53a USE PREVIOUS EDITION.
+
+SECRET
+
+CONTINUED
+
+PAGE NO.
+6.

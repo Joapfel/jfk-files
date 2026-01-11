@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_155.png
+
+Convert to Markdown14-00000
+
+I worked in the Vietnam and my superior and the National Police of Vietnam appreciated my work. The Vietnamese government awarded me with the rose award of the National Police Medal of Honor. I felt grateful through that my work was found meaningful although I could not maintain it.
+
+I am still very keen and active gladly come over to discuss with you after 4th November when the Personnel Officer returns to duty, if you want me to. There is a very important point I wish to discuss concerning a personal matter which can delay my future work by a few months if everything works out satisfactorily after discussion. It concerns my daughter, son-in-law and grandson who are intending to leave Rayong for good for Australia. I look forward to hearing from you in due course. Once again I thank you for your letter.
+
+Late best wishes,
+
+JOHLA
+
+201-072217

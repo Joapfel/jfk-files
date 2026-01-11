@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_292.png
+
+Convert to Markdown1. REDWOOD - Action Indicator For SR Div.
+
+2. RUTUMP - Office of Operations
+
+3. LPOVER - For info. call CCS/Reg.
+
+4. KUDOVE - Deputy Director For Plans and Clandestine Services
+
+5. AEOCEAN - SEReg - (For info. call)
+
+6. REDCOAT - Info. Indicator For Soviet/East European Division
+
+7. SATINWOOD - For info. call EUR/Reg.
+
+8. AEFAIRWAY - Se/Reg. (For info. call)
+
+All aliases & pseudos of:
+
+* DAVID AREE PHILLIPS
+* Langévin, Paul D. (com.)
+* Choaden, Michael M.
+* A) Bracton, Walter B.
+* TA) Paddock, David A.
+
+② MICHAEL J. KING

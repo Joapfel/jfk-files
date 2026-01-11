@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_147.png
+
+Convert to Markdown<table><thead><tr><th style="text-align: left;">DISPATCH</th><th style="text-align: center;">CLASSIFICATION<br>SECRET</th><th style="text-align: center;">PROCESSING ACTION</th></tr></thead><tbody><tr><td colspan="2" style="vertical-align: top;"><strong>TO</strong><br>Chief, WHD</td><td style="vertical-align: top;"><input type="checkbox" checked disabled> MARKED FOR INDEXING<br><input type="checkbox" disabled> NO INDEXING REQUIRED</td></tr><tr><td colspan="2" style="vertical-align: top;"><strong>INFO.</strong><br>Chief, SAS; Chief of Station, WAVE</td><td style="vertical-align: top;"><input type="checkbox" checked disabled>X disabled> ONLY QUALIFIED DESK CAN JUDGE INDEXING<br><input type="checkbox" disabled> MICROFILM</td></tr><tr><td colspan="2" style="vertical-align: top;"><strong>FROM</strong><br>Chief of Station, Mexico City</td><td></td></tr><tr><td colspan="2" style="vertical-align: top;"><strong>SUBJECT</strong><br>Contact Report/LITAMIL-9</td><td></td></tr><tr><td colspan="3" style="text-align: left;"><strong>ACTION REQUIRED - REFERENCES</strong></td></tr><tr><td colspan="3"><strong>PURSUAN LITAMIL 9</strong><br>Attached herewith are contact reports of meetings with LITAMIL-9 on 17 and 29 July 1963.</td></tr><tr><td colspan="3"><strong>Attachment:</strong><br> Contact Report<br> <strong>Distribution:</strong><br> 2 - C/WHD w/2/att<br> 2 - C/SAS w/2/att<br> 2 - COS WAVE w/2/att<br> 3 - Files</td></tr><tr><td colspan="3"><table><tr><td>CROSS REFERENCE TO</td><td>DISPATCH SYMBOL AND NUMBER</td><td>DATE</td></tr><tr><td></td><td>HMA 21849</td><td>31 July 1963</td></tr><tr><td></td><td>CLASSIFICATION</td><td>HQS FILE NUMBER</td></tr><tr><td></td><td>SECRET</td><td>201 - 330173</td></tr></table></td></tr></tbody></table>
+
+Willard C CURTIS
+
+<table><tr><td>GROUP 1<br>Included from automatic tracking and declassification</td></tr></table>
+
+<table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td></td><td>HMA 21849</td><td>31 July 1963</td></tr><tr><td></td><td>CLASSIFICATION</td><td>HQS FILE NUMBER</td></tr><tr><td></td><td>SECRET</td><td>201 - 330173</td></tr></tbody></table>
+
+03628

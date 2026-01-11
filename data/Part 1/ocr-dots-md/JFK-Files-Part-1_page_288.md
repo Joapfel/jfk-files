@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_288.png
+
+Convert to Markdown1. REDWOOD
+
+2. KUTUMP
+
+3. OACAD
+
+4. LPOVER
+
+5. KUDOVE
+
+6. AEOCEAN
+
+7. REDCOAT
+
+8. SATINWOOD
+
+9. AEFAIRWAY

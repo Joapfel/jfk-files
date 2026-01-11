@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_345.png
+
+Convert to Markdown14-00000
+
+SMITH, Joseph Burkholder
+1301 South First Street Ocean 14
+Jacksonville Beach, Fla 32250
+
+(This is "Little Joe" author of
+"Portrait of a Cold Warrior")
+
+S LO BOGIN, Peter M (Ret)
+MISTIC AVE
+Rockport, Maine 04853
+
+In Tokyo 6 - 11 - 61 - 18 - 11 - 64
+
+SHAW, Robert T.
+(3715 Acosta Road)
+Fairfax Va 22030
+591-6445
+
+Currently employed I G
+
+I. Abandoned

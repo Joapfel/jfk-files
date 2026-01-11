@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_352.png
+
+Convert to Markdown14-00000
+
+YAMADA, SHIZUO
+1131 University Blvd. West
+apt 1109 or V114
+Silver Spring, Md 20802
+
+WOODS, James & Louise (Wife)
+Current employee
+
+Intern Mar 27 - May 78 090 hrs
+
+WINCH, Richard L.
+11707 Tipton Dr.
+Potomac, Md. 20854
+
+299-3530
+
+Research Sept of SR-6 oct 60-apr 64
+
+33

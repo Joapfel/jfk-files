@@ -1,0 +1,50 @@
+# JFK-Files-Part-1_page_252.png
+
+Convert to MarkdownSECRET
+
+AMCLATTER-5
+Alberto de Jesus ALBERTY Garcia
+201-262136
+
+AMHAWK-2
+Jesus EXPOSITO Lorenzo 201-281692
+
+AMHAWK-1
+Manuel Antonio VARONA y Loredo
+201-196435
+
+CIRAKE-1
+Check with Venezuela Desk. CI
+digraph was assigned to that desk.
+
+JMNET
+
+Roselli (pseudo)
+This no doubt is the Mafia type,
+Johnny Roselli.
+
+MASH
+
+AMCHIRP
+Which number? there are several.
+
+AMPALM-4
+Angel FERNANDEZ Varela 201-273453
+
+AMWAIL-3
+Joaquin SANJENIS Perdomo 201-266348 -
+Deceased.
+
+HUMAIL
+Which number, there are several.
+Check with the appropriate area
+deak assigned the digraph HU. Costa Rica
+
+QDCOVE
+Ricardo Luis de la LORIE-Bals
+201-262328
+
+GALBOND (pseudo)
+This was Oliver G. GALBOND, pseudo
+for former C/WHD, Col. J. Caldwell
+King, deceased.

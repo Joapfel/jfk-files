@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_353.png
+
+Convert to Markdown104-10061-10208
+
+<table><tr><td colspan="3">WILL CHECK CLASSIFICATION TOP AND BOTTOM</td></tr><tr><td>CLASSIFIED</td><td>CONFIDENTIAL</td><td>SECRET</td></tr><tr><td colspan="3">OFFICIAL ROUTING SLIP</td></tr><tr><th scope="col">TO</th><th scope="col">NAME AND ADDRESS</th><th scope="col">DATE</th><th scope="col">INITIALS</th></tr><tr><td>1</td><td>Bob Baker, FR/Plans</td><td></td><td></td></tr><tr><td>2</td><td>EU-6</td><td></td><td></td></tr><tr><td>3</td><td></td><td></td><td></td></tr><tr><td>4</td><td></td><td></td><td></td></tr><tr><td>5</td><td></td><td></td><td></td></tr><tr><td>6</td><td>SUSAN WATKINS</td><td></td><td></td></tr><tr><th scope="col"></th><th scope="col">ACTION</th><th scope="col">DIRECT REPLY</th><th scope="col">PREPARE REPLY</th></tr><tr><td></td><td>APPROVAL</td><td>DISPATCH</td><td>RECOMMENDATION</td></tr><tr><td></td><td>COMMENT</td><td>FILE</td><td>RETURN</td></tr><tr><td></td><td>CONCURRENCE</td><td>INFORMATION</td><td>SIGNATURE</td></tr><tr><td colspan="4">Remarks:<br/>Russell Brines - Possible<br/>Claudio Benedi<br/>Mary Ellen Scott - Possible<br/>Gladys Benedi - Resigned 8.9.78<br/>Jose Manuel Berenguer<br/>Walter Briggs<br/>Enoc Waters Possible<br/>Leonard J. Desmond Possible<br/>Howard Hao-Sheng Chao ACTIVE - CURRENTLY NY.<br/>Edward Hau-Sang Lee<br/>Russell Brines - Possible<br/>Fred Zusy - Possible<br/>Peter Knauer<br/>Francisco Chen</td></tr><tr><td colspan="4">FOLD HERE TO RETURN TO SENDER</td></tr><tr><th scope="col">FROM: NAME, ADDRESS AND PHONE NO.</th><th scope="col"></th><th scope="col">DATE</th><th scope="col"></th></tr><tr><td>Susan Watkins CAS 1323</td><td>29 Mar 78</td><td></td><td></td></tr><tr><th scope="col">UNCLASSIFIED</th><th scope="col">CONFIDENTIAL</th><th scope="col">X</th><th scope="col">SECRET</th></tr></table>
+
+237 Use previous editions
+
+(40)

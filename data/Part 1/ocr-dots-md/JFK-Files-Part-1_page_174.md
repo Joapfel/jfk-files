@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_174.png
+
+Convert to MarkdownD.
+
+Three Organizations with Which There Have Been Some
+Witting Contacts
+
+30. International Rescue Committee, Inc. (IRC) - Manhattan, New York (93)
+
+Under Project QKGAUNT, $2,500 was furnished IRC in 1950 - 1951 to obtain biographic data on defectors. In December 1962, IRC Chairman Leo Cherne offered cover and FI use of IRC to Romans Brown, DC/CA. C/EE declined the offer, indicating there already were useful contacts.
+
+IRC received legitimate grants from J. Frederick Brown Foundation (34) and J. M. Kaplan Fund (101).
+
+31.

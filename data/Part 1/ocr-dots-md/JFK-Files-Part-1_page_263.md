@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_263.png
+
+Convert to Markdown14-00000
+
+QDBIAS - Pedro Luis DIAZ Lang contact LA/Reg.
+
+Bernard REICHHART (P) ?
+
+AMULAR - Ken M. Crosby contact LA/Reg.
+
+CITASTE - Walter DONNELLY, Jr.
+
+JMARC - Opas for Cuba, overall
+
+JMNET - no record
+
+AMWAIL - Justo CARRILLO Hernandez
+
+AMHAWK - AMDIP I - Manuel Antonio VARONA
+AMDIP Z - Justo Exposito LORENZO
+
+JMMASH - no record
+
+AMYUM - MRR (Revolutionary Movement)
+
+GUPTON (P) - Lino Benavente FERNANDEZ Martinez
+
+JMATE - Opas for Cuba, overall
+
+JMZIP - routing indicator
+
+AMLOON I - Ricardo Rafael SARDINAS Sanchez
+
+KUHOOK - Paramilitary Operation Staff
+
+ODURGE - Immigration + Naturalization Service
+
+Terry x 1767

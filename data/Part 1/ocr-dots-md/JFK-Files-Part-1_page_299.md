@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_299.png
+
+Convert to Markdown14-00000
+
+SECRET
+
+2.
+
+3. DOUGLAS L. FREAKPANE
+
+4. ZRMETAL - Washington D.C.
+
+5. From ARETZ - Need more info
+
+6. JACK MALONE [ASSET-DECEASED]
+
+7. MICHAEL MALONE [SOME AS 6]
+
+8. PHILLIP Q. ELMARD
+
+9. AMRAZZ - 1
+
+10. AMKNOB - 1
+
+11. CUIS -CBM INTEL Service
+
+SECRE

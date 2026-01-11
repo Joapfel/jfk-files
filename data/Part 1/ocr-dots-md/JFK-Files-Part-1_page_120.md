@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_120.png
+
+Convert to MarkdownSECURITY INFORMATION.
+CONFIDENTIAL
+
+**From:** BOGOTA
+**Report No.:** TLB-1624 Local File No:
+**No. of Pages:** Two
+**No. of Enclosures:** None
+**Report Made By:** George S. Vinodh/maf
+**Approved By:** J.L. Vincent
+
+**Distribution:**
+By copy to:
+
+Washington - 2 Havana - 1
+Guatemala City - 1 Caracas - 1
+Cuito - 1 Maracaibo - 1
+Guayaquil - 1 Files - 2
+
+Orally to:
+
+**Source Cryptonym:** See below **References:** None
+
+**Source, Operational Data, and Comments:**
+
+The information in this report was obtained from a local detective who works for the National Police. An informant of the Police in Paris provided a report to the latter concerning activities of the Colombian delegation, and he added names of delegates of certain other countries. This informant is studying in Paris and he accompanied the delegates to Berlin. It is likely that the interested stations have this information, but it is thought it might serve to confirm, or possibly add a bit to, the material already on hand.
+
+IN COPY
+
+**Classification:** CONFIDENTIAL
+
+**Security Information**
+
+FORM NO.
+FEB 1980 81-30
+
+APERTURE CARD REPRODUCTION
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992

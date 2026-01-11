@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_206.png
+
+Convert to Markdown-5-
+
+26. American Academy of Political and Social Science (no address) (6) 08
+
+27. American Foundation for Overseas Blind - Manhattan, New York (12) 08
+
+28. American Fund for Czechoslavak Refugees, Inc. - Manhattan, New York (16) 08
+
+29. American Institute of Pacific Relations, Inc. - Manhattan, New York (19) 08
+
+30. American Institute for Research in the Behavioral Sciences - Pittsburgh, Pennsylvania (20) 08
+
+31. American Labor Conference on International Affairs, Inc. - Manhattan, New York (22) 08
+
+32. Atlantic Council for the United States, Inc. - Washington, D.C. (28) 08
+
+33. Center for Cross Cultural Communication - Washington, D.C. (37) 08
+
+34. Center for the Study of International Development - Boston, Massachusetts (39) 08
+
+35. Community Development Foundation, Inc. - Norwalk, Connecticut (46) 08
+
+36. Council for International Programs for Youth Leaders and Social Workers, Inc. - Cleveland, Ohio (47) 08
+
+37. Farmers and World Affairs, Inc. - Philadelphia, Pennsylvania (57) 08
+
+38. Free China Fund for Medical and Refugee Aid - Manhattan, New York (60) 08
+
+39. Fund for the Relief of Cuban Exiles, Inc. - Coral Gables, Florida (66) 08
+
+40. Fund for the Relief of Russian Scientists and Writers in Exile, Inc. - Manhattan, New York (67) 08
+
+41. Institute for Propaganda Analysis, Inc. - Manhattan, New York (80) 08

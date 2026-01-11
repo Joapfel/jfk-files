@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_310.png
+
+Convert to Markdown14-00000
+
+<table><tr><td colspan="2">A WILL CHECK.</td></tr><tr><td>CLASSIFIED</td><td>SIGNIFICATION TOP A<br/>CONFIDENTIAL</td></tr><tr><td colspan="2">OFFICIAL ROUTING SLIP</td></tr><tr><th>TO</th><th colspan="3">NAME AND ADDRESS</th><th>DATE</th><th>INITIALS</th></tr><tr><td>1</td><td colspan="3">RCS/rol/Shep/ack</td><td></td><td></td></tr><tr><td>2</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>3</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>4</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>5</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>6</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>ACTION</td><td>DIRECT REPLY</td><td colspan="2">PREPARE REPLY</td><td></td><td></td></tr><tr><td>APPROVAL</td><td>DISPATCH</td><td colspan="2">RECOMMENDATION</td><td></td><td></td></tr><tr><td>COMMENT</td><td>FILE</td><td colspan="2">RETURN</td><td></td><td></td></tr><tr><td>CONCURRENCE</td><td>INFORMATION</td><td colspan="2">SIGNATURE</td><td></td><td></td></tr><tr><td colspan="6">Remarks: Shop: Before passing identities to HSCA please Advise Scott. I am Concerned with HSCA staying in contact from now on until we have our knowledge doc.</td></tr><tr><td colspan="6">FOLD HERE TO RETURN TO SENDER</td></tr><tr><td colspan="2">FROM: NAME, ADDRESS AND PHONE NO.</td><td colspan="3"></td><td>DATE</td></tr><tr><td colspan="2">UNCLASSIFIED</td><td>CONFIDENTIAL</td><td>K</td><td></td><td>SECRET</td></tr><tr><td colspan="6">(40)</td></tr></table>
+
+FORM NO. 237 Use previous editions
+
+1-67

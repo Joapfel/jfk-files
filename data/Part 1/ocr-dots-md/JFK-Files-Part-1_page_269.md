@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_269.png
+
+Convert to Markdown1. AMPATROL (Project)
+2. HUMAIL-1
+3. DTRACCOON
+4. AMWAII -5
+5. AMCIGAR
+6. AMDIP-3
+7. LITAINI-1
+8. KUSODA
+9. AMCLATTER-5
+10. AMOT-3
+
+1. Peter N. LICARI
+2. SOUTHERN
+3. GEBIEN
+4. Jim SMITH
+5. E.N.ZEL
+6. KEATOR

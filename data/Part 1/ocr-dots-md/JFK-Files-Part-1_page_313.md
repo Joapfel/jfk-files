@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_313.png
+
+Convert to MarkdownCynthia Cooper
+
+LIE TEMPO -1
+ER THYROID -3
+PBSWING
+ODYOKE
+FBRUMED (PBRUMEN)
+LI TAMI L9
+LI TAMI L7
+~~MAAAASUZ~~
+LIE NVOY
+ODACID
+KUBARK
+KUSOD (KUSODA)
+
+Cuban
+
+State Dept
+CIA
+Jff of Secur'ty
+
+14-00000

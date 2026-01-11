@@ -1,0 +1,282 @@
+# JFK-Files-Part-1_page_296.png
+
+Convert to Markdown14-00000
+
+KEYWAY
+SMABOVE-
+LNERGO
+SMABLE
+
+EVR actin industry
+John Starnes, Director General of RCMP Security Service
+RCMPSecurity Service
+
+FBI
+
+RCMP
+
+55790
+
+4226
+
+Gibbs
+Boltlick
+Geo.
+
+1106
+
+Cattie Pullen
+
+Clairine
+XS441
+
+Thursday
+Eastern John Mains
+Panorama
+5
+
+Thursday Eastern John Mains Terry XS441
+
+3:45
+1:04
+
+1:04
+C.U.
+2:30
+
+ today
+  3:45
+  1:04
+  Panorama
+   5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5
+  Thursday
+   Eastern
+    John
+     Mains
+      Terry
+     XS441
+  5

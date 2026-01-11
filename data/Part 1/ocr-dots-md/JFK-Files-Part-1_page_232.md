@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_232.png
+
+Convert to MarkdownSECRET
+
+SENSITIVE
+
+IG 75-0509
+
+7 February 1975
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Requests from Mr. Ober for Basic Documentation Circa Mid-1967
+
+1. Subsequent to his second appearance before the Rockefeller Commission on 3 February 1975, Mr. Ober returned to Headquarters the afternoon of 6 February and the morning of 7 February to continue his review of the files he had developed while Chief, CI/SO. At the request of the Commission, he was particularly interested in locating documentation which supported the creation of the Special Counterintelligence Operation.
+
+2. He had previously taken note of the 15 August 1967 memorandum from the DDP to C/CI but was interested in determining whether there was any other documentation that could be used. In this context I showed him the following list of documents which I had unearthed in various and sundry places:
+
+*   **TAB A** 4 August 1967 memorandum from Mr. Fred Vinson, Jr., Assistant Attorney General, Criminal Division, Department of Justice to the Director of Central Intelligence
+*   **TAB B** The Director's response to TAB A
+*   **TAB C** DIRECTOR 25628, 4 August 1967 -- book message originated in WH Division in response to TAB A
+*   **TAB D** WH/COG 67-259, 10 August 1967 -- Memorandum from Mr. Broe, C/WH Division, to Mr. Houston, General Counsel, detailing actions taken to respond to the 4 August letter of Mr. Vinson (TAB A)
+
+E2 IMPDET
+CL BY 014848
+
+SENSITIVE
+
+SECRET
+
+5862 (but not here)

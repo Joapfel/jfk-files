@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_287.png
+
+Convert to Markdown14-00000
+
+Cigus
+
+JH. I BAR
+W.O. IFIRM
+KUBARK
+KO/STARK.
+ODYOKT
+KUSOTA
+LNYAPA.
+OD. ENDOY.
+AM BARB -1
+AN SHAG -1
+SH SWIRL -1

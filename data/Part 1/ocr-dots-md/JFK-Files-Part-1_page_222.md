@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_222.png
+
+Convert to MarkdownSECRET
+
+27 MAY 1968
+
+MEMORANDUM FOR: Chief, Executive Officer
+Project HBILKA/JBGREED
+
+SUBJECT : PUGH, Robert West
+[03]
+02
+0Z
+#789 656]
+
+1. Reference is made to your request dated 4 January 1966 for a Covert Security Approval to permit Subject's use as a First Officer in the Far East under Project HBILKA/JBGREED. Concurrent with issuance of the approval, the following is offered for your information.
+
+2. Investigation has recently been completed with generally favorable results. However, Subject's military file indicated that he had been found unfit for duty due to excessive drinking, and had been allowed to retire in the best interests of the Navy. His Navy record stated that this drinking problem adversely affected his judgment, reliability, and personal behavior. This weakness had been discussed to no avail with Subject on several occasions. It should be noted that domestic inquiries developed no indication of over-indulgence since his departure from the military on October 1964.
+
+3. Additionally, it was developed that Subject's brother Bartholomew, aka: Bart PUGH, was the Subject of an FBI investigation in 1941, which was conducted to resolve allegations regarding the loyalty of Subject's brother. Subject's brother was determined to have been associated with known Communists and was active in Communist matters in the Los Angeles, California area during this period of time. However, it was noted that these activities had caused a break with this individual and his family, who were not in sympathy with his viewpoints and activities. There was no
+
+SECRET
+
+<table><tr><td>GROUP 1</td></tr><tr><td>Excluded from automatic</td></tr><tr><td>downgrading and</td></tr><tr><td>declassification.</td></tr></table>
+
+SYNOPSIS OF DOCUMENTATION PROCEDURE
+See Oo#
+#451

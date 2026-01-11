@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_237.png
+
+Convert to Markdown14-00000
+
+5 Feb. 1962.
+
+MEMORANDUM FOR : M. de Vosjoli
+SUBJECT : Report on Antonio RODRIGUEZ Echasabal
+
+Antonio RODRIGUEZ Echasabal was born in Cuba on 17 August 1913. He has a master's degree in agriculture, professionally has no religion but is a Mason. RODRIGUEZ is married to Edith JONES, who was born in Cuba on 10 March 1917; she is, however, of Haitian origin, being the daughter of a former Haitian Ambassador to Belgium, and she is a devout Episcopalian. The couple is known to have three children: a son who was last reported to be in Havana, Cuba; a daughter married to a man of German birth who was employed in the Castro land-reform organization until his departure for Germany in December 1961; and a son, Antonio RODRIGUEZ Jones, born 24 August 1943 at Havana, who was studying at the Ecole Francaise Internationale in Washington, D. C. in 1961. This son has been reported to be anti-U.S. and to have requested permission of his father to go to Cuba or to another "socialist" country to continue his education.
+
+Antonio RODRIGUEZ Jones resided in Washington, D. C. with Yvonne JONES, his aunt and sister of the wife of Antonio RODRIGUEZ Echasabal. Miss JONES was born 10 April 1910 at Antwerp, Belgium; she was unmarried and was a secretary at the Pan American Health Organization. She became a U. S. citizen in 1959. Since the Castro regime has come to power, Miss JONES is said to have spoken quite openly for Castro and against the U. S. Government.
+
+RODRIGUEZ lived in Haiti for about eighteen years prior to the commencement of his diplomatic career, having been barred by the Batista government from returning to Cuba. He became a Haitian citizen and was the owner of a Port-au-Prince meat market called "El Ose Blanco". When Castro assumed power in Cuba, RODRIGUEZ took over the Cuban Embassy in Port-au-Prince in January 1959 after the Batista-appointed officials had fled to the Dominican Republic. Soon thereafter he was named Ambassador to Haiti.
+
+Following his appointment to the diplomatic post, RODRIGUEZ continues to maintain contact with persons in opposition to President Duvalier of Haiti.

@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_323.png
+
+Convert to Markdown14-00000
+
+C H R I S T , A K A C A R S W E L L , D A N
+Interviewed under alias by Cornwall & Hardway.
+
+Chechavadze, David Ret
+
+3801 Windom Pl., N.W.
+Washington, D.C.
+
+Tele : 363 - 7362
+
+Re : DC / SR - 6 - May - Nov 1961
+234 - 5132
+
+Bustos - Videle, Charlotte
+
+Elie Scallate.

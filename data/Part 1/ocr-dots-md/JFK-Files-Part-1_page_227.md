@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_227.png
+
+Convert to Markdown106 Chung Shan Road, North, 2nd Section
+Taipei, Taiwan
+
+REC'D WAS OCT 4 1966
+
+PND-DP-66/4427
+
+27 September 1966
+
+Mr. R. W. Pugh
+Taipei, Taiwan
+
+Dear Mr. Pugh:
+
+This letter will confirm acceptance of your resignation effective 27 September 1966 at the close of business.
+
+A final pay check representing any unpaid salary due you less any debits you may have on the Company books will be forwarded to your bank:
+
+Bank of America
+4th Street 08
+Santa Rosa, California.
+
+You have given us your forwarding address as:
+
+(756 Baird Road 08
+Santa Rosa, California
+U. S. A.)
+
+We thank you for your past service and wish you success in the future.
+
+/lcc: Paymaster
+C.C:
+Assistant for Personnel via INDR, President
+
+[tr. ... W. Pugh] F/O T.M., L03 8 February 1966
+
+Mr. Pugh resigned effective 27 September 1966 (ob). He indicated to us that he wished to quit flying and go home.
+
+MICROFICHE REPRODUCTIONS
+DESTROY AFTER USE
+
+7/PV
