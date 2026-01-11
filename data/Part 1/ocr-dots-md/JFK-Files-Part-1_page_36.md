@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_36.png
+
+Convert to Markdown13-00000
+
+Bunnar NORDENSTAM. One of the 4 1960-61 Sued exchange students. Married Natalya Korshinskaya, tourist guide in Leningrad: He left Lgrad Aug 61, home to Collembury, As of spring '62, wife not yet out. (Acc to press report, she got out e. April. See her 201 under Nordenstam. Another ref says she got visa Feb 62 and joined him in March.
+
+John SANDOR 201-276469, American g. Hung extraction. Lawyer born 1914. First wife killed in train wreck during WW II. July 1956 he was in Moscow as member of tourist group from Natl Editorial Assoc. Love at first sight w/ Viktoriia Ivanova KOCHUROVA 201-276469, Inturist interpreter/guide at Hotel Moskva. Proposed same day, she accepted next day. They still married to Sov bndols and BLINKOV Anton Moseyevich (sic). JS's bros ran out before they could marry. [Gaps in story]. She

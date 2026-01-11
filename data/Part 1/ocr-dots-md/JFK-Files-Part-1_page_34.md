@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_34.png
+
+Convert to Markdown13-00000
+
+* Moscow or Tokyo?
+
+A society for men to marry bureau of arts.
+
+Proofs of samty head been demonstrated by Sov authorities. LEHRMAN would not confirm story - no comment for reporter; but university sources said the couple was told no wedding till she got certif of samty. Emb officials said they had never heard of such a remit.
+
+Moscow AP, 3/27. What year?
+
+Lee Harvey OSWALD. abstract: DBA-20883,
+201-289.248 30.8.62
+
+Nils THELIN, Swedish exchange student of
+1960-61 program. Has not yet been able to
+bring out Russian wife, which may explain
+his "pro-Sov friendliness" at present.
+Nils is one of
+the three in
+that years
+
+TICRYSTAL-1 // Contact 10 Apr 62. group (94) who N.I.S. was acq. o AEGIRISTE-1 + wife Rimma KRAVTOVA, married Sov girls. who married in June 65.
+
+Kurt JOHANSSON, Swedish Exchange =or= student
+married Tamara SEREBRENNI KOVA, who was
+TASS journalist. AEPROMISE (201-274504)
+Married July 61; Finally united in
+Sweden in April 62. After various diffi-
+culties". He is the third of the Swed-Sov
+scholarship students to marry Sorgal; the
+other 2 were able to bring their wives home

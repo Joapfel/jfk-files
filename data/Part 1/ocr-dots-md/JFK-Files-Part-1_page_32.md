@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_32.png
+
+Convert to MarkdownIn three cases there was a gap of several months between application and issuance of the Soviet exit visa (five months in one case, six in the second, and nine in the third). In another case the western husband was reluctant to leave the USSR without his Soviet wife. He did so some six months after the wedding only because the Soviet authorities told him that her exit application could not be processed until he had left. The visa was issued only about six weeks after his departure, but it may have been applied for when they were married or at any time during the next six months.
+
+In four other cases it is possible to infer approximate time limits for the granting of an exit visa. One was granted within four to five months, the second within six to seven months, the third within nine months, and the fourth within eleven months. In three additional cases visa issuance took a minimum of seven, eleven, and twelve months respectively.

@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_31.png
+
+Convert to Markdownparted alone. In one more of the 23, the wife preceded her husband because he had been jailed a month or two previously for violation of travel regulations, and in the seven other cases the sequence is not known.
+
+3. The information in the third enclosure to Mr. Meeker's letter regarding length of time taken by Soviet authorities to process visa applications of Soviet wives of American citizens substantially corresponds with the conclusions which we expressed in paragraph 7 of this our 6 April memorandum. In eleven of the 25 cases, this time period is known fairly definitely or can be inferred. In three cases it took from five to nine months. Inferring in the other eight cases, three took about six months, two were issued in not more than nine to eleven months, and three took a minimum of seven to twelve months. Apparent inconsistencies between these statistics and those provided by the State Department undoubtedly arise from a difference in approach by the State Department and CIA.

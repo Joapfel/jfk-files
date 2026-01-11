@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_14.png
+
+Convert to Markdown13-00000
+
+① Our reply addressed to the kopfli, a native of Seri, is accompanied by the deposit, simultaneously, with ) jorja genes out of 56.
+
+Paid on demand, 12.6 cases (10 US) made in the form of 70 cases in Seri and 84 left - Seri.
+
+Left - Seri - 4
+
+- 1 case, 9 III's
+- 2 cases, 7 Cases with photo in envelope, addressed to the post office, send with it.
+- 1 case, 6 cases with photos in envelopes, send with it.
+
+Left Seri (native) done left 56 cases - 14
+
+Send a lot of money - 7

@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_33.png
+
+Convert to Markdown13-00000
+
+Miscellaneous notes on Jews married to foreigners
+
+Adolf & ZASLAVSKY has for husband; has hired his Harold BERMAN to plead case & get him out of USSR. (2 Oct 62)
+
+Yelena KNYAZKINA Leonard KIRSCH'S for wife has arrived in USA. Joseph of FOND EM, resident of former BritCamers.
+
+Joseph cf. FOND EM, resident of former Brit Camersons.
+Came to USR 24.12.60. Has been visiting AuEmb
+are continuing his studies in U.S. Married to:
+sor girl. Claims she ostracized by family &
+friends - she, he, & baby son have to scrounge
+housing in Moscow by = staying people's
+extra rooms at 30-40 rubles per month which
+illegal, claims his plight shared by a
+member of other African students married
+to sor girls. For authorization is compound problem
+by not letting wives leave country. Embassy
+notes FOND EM as questionable and opportunistic.
+AmEmb Moscow Despatch A-308, 31.8.62.
+
+Edgar LEHRMAN, US exchange sys at Moscov U.; prof of lit at Emory Univ., Atlanta, Ga. To be married tomorrow to Miss Ruth MAKAROVA, 24-yr old best of art student atMoscow Univ. Today they submitted a certificate of
+
+apd 36
