@@ -11,6 +11,7 @@ from pathlib import Path
 from typing import List, Optional
 import concurrent.futures
 from tqdm import tqdm
+import re
 
 try:
     from pdf2image import convert_from_path
@@ -23,7 +24,7 @@ except ImportError as e:
 
 
 class PDFToPNGConverter:
-    def __init__(self, dpi: int = 300, output_format: str = "PNG", quality: int = 95):
+    def __init__(self, dpi: int = 300, output_format: str = "PNG", quality: int = 95, natural_sort: bool = False):
         """
         Initialize the PDF to PNG converter.
         
@@ -31,10 +32,16 @@ class PDFToPNGConverter:
             dpi: Resolution for conversion (higher = better quality, larger files)
             output_format: Output format (PNG, JPEG)
             quality: Quality for JPEG (1-100)
+            natural_sort: Use natural sorting for proper page order
         """
         self.dpi = dpi
         self.output_format = output_format.upper()
         self.quality = quality
+        self.natural_sort = natural_sort
+        
+    def _natural_key(self, text):
+        """Natural sorting key that handles numbers properly."""
+        return [int(c) if c.isdigit() else c.lower() for c in re.split(r'(\d+)', text)]
         
     def convert_pdf_to_images(self, pdf_path: str, output_dir: str, prefix: str = None) -> List[str]:
         """
@@ -61,21 +68,17 @@ class PDFToPNGConverter:
         
         try:
             # Try using pdf2image first (better quality)
-            images = convert_from_path(pdf_path, dpi=self.dpi, output_folder=output_dir, 
-                                     output_file=prefix, fmt=self.output_format.lower(),
+            # Don't use output_folder parameter to avoid naming conflicts
+            images = convert_from_path(pdf_path, dpi=self.dpi, fmt=self.output_format.lower(),
                                      thread_count=4, use_pdftocairo=True)
             
-            # Rename files to include page numbers
+            # Save images manually with proper naming
             output_files = []
             for i, image in enumerate(images):
-                old_path = image.filename
-                new_filename = f"{prefix}_page_{i+1}.{self.output_format.lower()}"
+                # Keep the original PDF filename, just change extension
+                new_filename = f"{prefix}.{self.output_format.lower()}"
                 new_path = output_dir / new_filename
-                
-                # pdf2image already saves the file, just rename it
-                if old_path != new_path:
-                    os.rename(old_path, new_path)
-                
+                image.save(new_path)
                 output_files.append(str(new_path))
                 
             return output_files
@@ -112,8 +115,8 @@ class PDFToPNGConverter:
                 # Get page dimensions
                 pix = page.get_pixmap(matrix=fitz.Matrix(2, 2))  # 2x zoom for better quality
                 
-                # Save as PNG
-                output_filename = f"{prefix}_page_{page_num + 1}.{self.output_format.lower()}"
+                # Keep the original PDF filename, just change extension
+                output_filename = f"{prefix}.{self.output_format.lower()}"
                 output_path = output_dir / output_filename
                 
                 if self.output_format == "PNG":
@@ -158,7 +161,13 @@ class PDFToPNGConverter:
             print(f"No PDF files found in {input_dir}")
             return {"total_files": 0, "successful": 0, "failed": 0, "total_pages": 0}
         
-        print(f"Found {len(pdf_files)} PDF files to convert")
+        # Sort files (natural or alphabetical)
+        if self.natural_sort:
+            pdf_files = sorted(pdf_files, key=lambda x: self._natural_key(str(x.name)))
+            print(f"Found {len(pdf_files)} PDF files (naturally sorted)")
+        else:
+            pdf_files = sorted(pdf_files)
+            print(f"Found {len(pdf_files)} PDF files (alphabetically sorted)")
         
         stats = {"total_files": len(pdf_files), "successful": 0, "failed": 0, "total_pages": 0}
         
@@ -206,6 +215,7 @@ def main():
     parser.add_argument("--quality", type=int, default=95, help="JPEG quality 1-100 (default: 95)")
     parser.add_argument("--workers", type=int, default=4, help="Number of parallel workers (default: 4)")
     parser.add_argument("--recursive", action="store_true", help="Search subdirectories recursively")
+    parser.add_argument("--natural-sort", action="store_true", help="Use natural sorting for proper page order (page_1, page_2, page_10)")
     parser.add_argument("--prefix", help="Prefix for output filenames (default: PDF filename)")
     
     args = parser.parse_args()
@@ -216,11 +226,11 @@ def main():
         sys.exit(1)
     
     # Create converter
-    converter = PDFToPNGConverter(dpi=args.dpi, output_format=args.format, quality=args.quality)
+    converter = PDFToPNGConverter(dpi=args.dpi, output_format=args.format, quality=args.quality, natural_sort=args.natural_sort)
     
     # Convert files
     print(f"Converting PDF files from '{args.input_dir}' to '{args.output_dir}'")
-    print(f"Settings: DPI={args.dpi}, Format={args.format}, Workers={args.workers}")
+    print(f"Settings: DPI={args.dpi}, Format={args.format}, Workers={args.workers}, Natural Sort={args.natural_sort}")
     
     stats = converter.convert_directory(
         args.input_dir, 
