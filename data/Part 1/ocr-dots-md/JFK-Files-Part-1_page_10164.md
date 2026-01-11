@@ -1,0 +1,126 @@
+# JFK-Files-Part-1_page_10164.png
+
+Convert to Markdown<table><tr><td>14-00890</td></tr></table>
+
+SECRET
+
+14 May 1963
+
+Subject: LITANI-7
+
+On 13 May 63, I went to Cuban's home with LITANI-7. NO SECURITY PREMISES NOTED. Time: 1200-1900.
+
+LITANI-7 reported as follows:
+
+1. On 6 May 63, "courtesy" visas on separate piece of paper were issued to 13 Ecuadorians. Two tickets to Cuba only were also provided. (COMMENT: This might mean that this group plans on returning via another route.)
+
+On 10 May 63, "courtesy" visas were issued on separate paper to 2 Argentines and 2 Brazilians. The latter group was issued a visa collectiva, i.e. one visa with the names of all the group on the paper. The 2 Argentines were provided with Otana "round trip" tickets.
+
+On 11 May 63, no "courtesy" visas were issued. (separate)
+
+On 13 May 63, 9 Argentines were issued "courteny" visas.
+
+I-7 said that there were four other persons with the above 9, who had already received "courtesy" visas on separate piece of paper in Santiago, Chile. She said she believes they were Argentines but she is not sure.
+
+On 13 May 63, "courtesy" visas outside the passport were issued to 1 Peruvian and to 1 Uruguayan.
+
+On 12 May 63, I-7 informed that two "courtesy" visas on separate pieces of paper were issued to 2 Peruvians.
+
+2. I-7 reported that the two Cuban couriers, Agustín FARRILLAS and Federico GARCIA, were scheduled to arrive on 13 May 63, according to a cable she received.
+
+3. I-7 reported that the following Cubans are living independently at the Embassy: Manuel VEGA Perez, Buenaventura; RIVES Acosta, Armando SÁNDERS, Jose LAGOSTRA Garcia, and probably Ente-dio EXTERNA VEGA Calero.
+
+4. I-7 reported that Dr. BRITO called to见 Joaquín ERNANDEZ the last time. This conversation came up on 5 May 63.
+
+MICROFILMED
+FEB 25 1970
+DOC. MICRO. SER.
+
+US COPY
+
+CS COPY
+
+MICROFILMED
+JUN 25 1963
+
+<table><tr><td>MICROFILMED</td></tr><tr><td>FEB 25 1970</td></tr><tr><td>DOC. MICRO. SER.</td></tr></table>
+
+201-330173
+
+201-345991
+
+201-556162
+
+201-556102
+
+201-66144
+
+201-9903
+
+201-99173
+
+201-99202
+
+201-99239
+
+201-99242
+
+201-99245
+
+201-99247
+
+201-99249
+
+201-99250
+
+201-99251
+
+201-99253
+
+201-99254
+
+201-99255
+
+201-99256
+
+201-99257
+
+201-99258
+
+201-99259
+
+201-99260
+
+201-99261
+
+201-99262
+
+201-99263
+
+201-99264
+
+201-99265
+
+201-99266
+
+201-99267
+
+201-99268
+
+201-99269
+
+201-99270
+
+201-99271
+
+201-99272
+
+201-99273
+
+201-99274
+
+201-99275
+
+201-99276
+
+201-9

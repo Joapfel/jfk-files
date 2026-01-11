@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_10106.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>CLASSIFIED MESSAGE</td>
+    <td style="text-align: right;">SECRET</td>
+    <td style="text-align: right;">IN PAGE</td>
+  </tr>
+</table>
+
+PAGE TWO MEXICO CITY 5139 SECRET
+BASIS OF FOXTROT, REACTIVATED 5 APRIL.
+
+4. STATION PLANS MAINTAIN OCCASIONAL CONTACT LITAMIL-7 WHENEVER PERSONNEL OR OPERATIONALE REQUIREMENTS WARRANT SUCH CONTACTS. IT PROBABLE HOWEVER SHE WILL REMAIN RETICENT UNTIL FINAL PAYMENT PARA 2 ABOVE.*
+
+SECRET
+
+<table>
+   <tr>
+    <td>
+     SECRET
+    </td>
+   </tr>
+  </table>

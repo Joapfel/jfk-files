@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_10098.png
+
+Convert to MarkdownSECRET
+
+ABOMA-35523
+30-120-13
+30 September 68
+
+B. LITAMIL-7: The ............... continued to July and August, but she still is not prepared to return to work.

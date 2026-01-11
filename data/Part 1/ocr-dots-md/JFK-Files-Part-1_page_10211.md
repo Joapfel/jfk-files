@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_10211.png
+
+Convert to MarkdownSECRET
+
+AGENCY SERVICE RECORD
+
+1. Agent Cryptonym: LILINC-3
+2. Project: LILINKE
+3. Agent Recruited By: Wallace P. ACCTON
+4. Capacity in Which Agent Served: Access agent to Cuban embassy; Information on Central American revolutionary groups and activities.
+5. Rate of Pay: Did not receive regular salary, but was given between 3000 and 3500 Mexican pesos per month. (Equivalent to $240 to $280).
+6. Other Commitments: None
+
+7. Agent Dismissed By: Leonard S. TOARET. Dismissal effective 1 July 1969.
+
+8. Reason for Dismissal: Agent in effect terminated himself, since he failed to initiate contact with Station after being turned over to TOARET by ACCTON.
+
+9. Security Risks: Lilino-3 has not made hitting or bullet interest in this case. He knew both H. TON and TOARET in alias. No safecrates were exposed to LILING-3. LILING-3 was met once in TOARET'S car vehicle.
+
+10. Security Risks:
+
+11. Manner of Dismissal: As stated above, no direct dismissal was made, since LILING-3 broke off contact with the station.
+
+12. Letter of Termination Signed: No
+
+13. Cost of Termination: None
+
+14. Station Case Officer: Leonard S. TOARET
+Acting (Signature in Pseudonym)
+15. Chief of Station: Horace E. FARRATT
+(Signature Pseudonym)
+
+APPROVED:
+WH CONTRACT APPROVING OFFICER
+
+SECRET
+
+REVIEWED:
+Special Contracting Officer
+
+CS COPY
+
+H/0 att. 1
+
+HMM A-37759
+
+201-798301

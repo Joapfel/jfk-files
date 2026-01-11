@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_10101.png
+
+Convert to MarkdownHMRA-34623
+
+10 May 1968
+
+19-120-13/1
+
+E. LITAMIL-7: LITAMIL-7, the Station's only physical penetration of LIRING, was finally retired by LIRING. This had been in the wind for some time. The problem was that according to Mexican laws LIRING had to be terminated as a salary for every year worked, and she had worked for LIRING 38 years. She was notified on 28 March that on instructions from the Foreign Ministry her employment with LIRING was being terminated effective 31 March 1968. On 28 March, all her phone books, keys, etc. were taken away, and her appearance on 29 March was a mere formality. Her termination pay
+
+($6,000 U.S.) is being given in three installments, with the last one the end of April. LITAMIL-7 gave her Case Officer no advance notice of her release, probably for fear of compromising her retirement benefits. Station will, however, continue to maintain casual contact with her after she receives the last installment of her severance pay. She may be of help in the future in identifying LIRING visitors or newcomers. Now that LITAMIL-7 is gone, the Station plans to activate LISAMPAN/CHARLIE, which, it is hoped, will become a regular source of information on LIRING.

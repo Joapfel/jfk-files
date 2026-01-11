@@ -1,0 +1,77 @@
+# JFK-Files-Part-1_page_10171.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>DATE : 12 JAN 63</td>
+    <td>
+     CLASSIFIED MESSAGE
+     <table>
+      <tr>
+       <td>SECRET</td>
+      </tr>
+     </table>
+    </td>
+   </tr>
+   <tr>
+    <td colspan="2">TO : DIRECTOR</td>
+   </tr>
+   <tr>
+    <td>FROM : MEXICO CITY</td>
+    <td>
+     ROUTING
+     <table>
+      <tr>
+       <td>1</td>
+       <td>4</td>
+      </tr>
+      <tr>
+       <td>2</td>
+       <td>5</td>
+      </tr>
+      <tr>
+       <td>3</td>
+       <td>6</td>
+      </tr>
+     </table>
+    </td>
+   </tr>
+   <tr>
+    <td rowspan="2">ACTION: TFW 10 (TFW COPY SLOTTED AT 2200 14 JAN 63 DM)</td>
+    <td>JAN 15 0300Z 63</td>
+   </tr>
+   <tr>
+    <td>PRIORITY</td>
+   </tr>
+   <tr>
+    <td>NFO : DDP, ADDP, DODS, DODS/M 4, CA 2, SROG, CA/PEG, CA/PROP, CA/O 4, CI/OPS, CI/IC 2, FI, FI/D, FI/INT 2, IW 2, WH 7, DD/I, AD/CI 2, AD/NE, S/C 2</td>
+    <td>IN 4:0880</td>
+   </tr>
+  </table>
+
+PRITY DIR INFO WAVE CITE MEXI 391
+
+GYROSE LITAMIL-7
+
+1. ON 14 JAN 63 LITAMIL-7 REPORTED THAT AMB CARLOS LECHUGA. HIS WIFE AND CHILD LEFT MEXICO FOR HAVANA VIA CUBANA ON THAT DATE. WHEN QUERIED WHETHER THEY RETURNING MEXI WIFE LECHUGA TOLD L-7 "WE DO NOT KNOW" AND AMB LECHUGA TOLD HER HE RETURNING MEXI AS HE STILL CUBAN DELEGATE UNITED NATIONS. L-7 HAS FEELING LECHUGA NOT RETURNING AS AMB MEXI.
+
+2. L-7 COMPLETELY SURPRISED AT DEPARTURE WIFE LECHUGA whom SHE SAW 12 JAN AND WHO MADE NO COMMENT IMPENDING DEPARTURE FOR CUBA. LECHUGA DID NOT MAKE APPOINTMENT WITH MANUEL TELLO SCHEDULED FOR 1960 ON 11 JAN AND ON 12 JAN RAMON SINOBAS ASKED L-7 CALL FOREIGN OFFICE ASCERTAIN WHETHER APPOINTMENT SCHEDULED FOR 14 JAN CONFIRMED. L-7 CALLED BUT NO ANSWER FROM FOREIGN OFFICE. L-7 BELIEVES LECHUGA TELLO MEETING HELD MORNING 14 JAN AS LECHUGA LEFT EMBASSY EARLY.
+END OF MESSAGE
+
+<table>
+   <tr>
+    <td>
+     SECRET
+    </td>
+    <td>
+     EXCLUDED FROM AUTO-
+     <br/>
+     MATIC DOWNGRADING &
+     <br/>
+     DECLASSIFICATION
+    </td>
+   </tr>
+  </table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

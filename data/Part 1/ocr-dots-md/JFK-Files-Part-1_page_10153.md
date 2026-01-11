@@ -1,0 +1,61 @@
+# JFK-Files-Part-1_page_10153.png
+
+Convert to Markdown14-00000
+
+LIIA.11-7's promotion
+
+B2-951 May 63
+4-7-7226
+
+Level of U.A.'s in Data
+Info from these files (4 sources) combined for a distem.
+CS-3/5-8,859
+Portion from LIIA 11-7 who left the agency for some of people were on separate orders, that he would pick up work for all.
+Next as opt. clause, to no eval by Field.
+
+She gave a "3" to:
+
+-EU-7225 Apr 63
+
+Resignation of D.B. and to Bureau
+To Disse (by SA), - also must be confirmed by other sources.
+This request was not a "3" - it is for the Bureau to followup and confirm this.
+
+X. EU-7238 May 63
+
+(Found it - called attn to S.O. for. 11-783 re source data.)
+New job of the Ex-Jovan Inst. of Cultural Relations
+CS-3/5-2,928
+(S.) not yet prepared)
+
+EU-7261 May 63
+
+Cuban (female) studying nursing at Hexi
+Info still that she studying during in. and in Govt scholarship.
+Capital info in LIXI,
+03/3/5-6,531
+Field gave her a 3 on this one, cut to C for dissen
+
+EU-7251 May 63
+KXXI 4515
+
+Cancellation of Otham Festivities Planned for 4 July
+TDG-3/446,672 - Disseminated by TAO. Field gave it a "3" - and so did IAG - which is wrong. Can't say why TAO disseminated it, is hard to determine. I don't think they even have a source card on her - at least not one giving her a "3" - that's certain.
+Perhaps the field's argument in the supdata swayed them. It said: "Source U.A.-7 who station definitely considers B source. Most info submitted by 1-7 is obtained directly from Cuban Embassy records. In present case 1-7 personally read cable rec'd in Data."
+
+That still doesn't qualify her for a 3 - that would up the air raiseal of content.
+
+EUN-7353 31 Jun
+
+Cuban Embassy Financial Transactions
+(Title misleading - lists 2 banks in Mexico were Lab has accounts - nothing more. So with taken out - but doubt whether it's worth
+dissemin, unless it represents some change.)
+
+"Source data sheet says: "Source recd info personally from Penaventure" agrees.
+
+"nafe made to Sa for Bix 715b & 7225. If attention called to Eu 725a (lcm 45lb) wherein the Sta pointed out that it .efinitely considers IMAII-7 a B source. It is requested that Fj reconsider its C eval s and raise LIIA 11-7 to A which the Sta feels to be a more proper eval."
+
+They gave the report an A
+
+Dissemination -
+in 1st place / 10th place

@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_10115.png
+
+Convert to Markdown# SECRET
+
+Chief of Station, Mexico City
+
+X
+
+Chief, WH Division
+PHUKEN/LISAMPAN
+Cuban Embassy Floor Plan
+
+Action Required: Update Floor Plans, Cuban Embassy, Mexico City
+
+Reference : MEXICO CITY 1231 (IN 54233)
+
+1. It would be appreciated if the Station would prepare up-to-date as possible seating and office plans of all floors of the Cuban Embassy in Mexico City in order to assist Headquarters in following LISAMPAN and LIKVOY take. Locations of the various telephone numbers, etc., will be provided in this connection. If architect floor plans are available, these would be welcome but sketches are acceptable. Presumably LIFEUD-2, LITAIHT-2 and LITAMIL-7 would contribute to this requirement.
+
+2. What type of and how much activity is there in reference office?
+
+3. Please indicate the probable location of the room AMBATEL-1 alleged the Cubans described as the only one not bugged by WOFACT (UFGA-27310). Is a LISAMPAN unit scheduled for installation in this room?
+
+Andrew F. MERTON
+
+Distribution:
+2 - COS, Mexico City
+
+50-6-75/3
+
+RERV-15446
+
+3 May 1967
+
+50-6-145/3
+
+SECRET
+
+WH/1 J. Stewart pen
+
+6954
+
+RI
+Chrono
+50-6-75/3
+LITAMIL-7
+
+WR/COG/CICS

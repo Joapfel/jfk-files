@@ -1,0 +1,63 @@
+# JFK-Files-Part-1_page_10139.png
+
+Convert to Markdown14-00000
+
+TOTAL COPIES: 19
+
+REPRODUCTION PROHIBITED
+
+<table>
+  <tr>
+    <td>FROM</td>
+    <td>
+      <table>
+        <tr><td>✓ SECRET</td></tr>
+        <tr><td colspan="2">PERSON/UNIT NOTIFIED</td></tr>
+      </table>
+    </td>
+    <td>
+      <table>
+        <tbody>
+          <tr><td>9</td><td>5</td></tr>
+          <tr><td>2</td><td>6</td></tr>
+          <tr><td>3</td><td>7</td></tr>
+          <tr><td>8</td><td>18</td></tr>
+        </tbody>
+      </table>
+    </td>
+  </tr>
+  <tr>
+    <td>ACTION</td>
+    <td>ADVANCE COPY ☐ LENS ☐ SLOTTED ☐ TOGO ☐</td>
+    <td>TSG ☐ BY</td>
+  </tr>
+  <tr>
+    <td>100</td>
+    <td colspan="2">VR, FILE, P62, GAB, SIFIN' CAFER</td>
+  </tr>
+</table>
+
+SECRET 0722092
+DIR CITY NEXT 1849
+LIRANCH
+REP A. MMA-24694
+B. DIR 65339 4
+C. DIR 65334
+
+⑈1DECMMN37862⑈
+
+I. FOLLOWING KEYED TO REF B:
+
+A. PARA 2. CALVILLO CHARGED TO OOA DURING ALL FY 64. WISH HAVE HIS PT-63 OBLIGATIONS CHARGED LILISP X AS STATED IN REF A. OWING PURLY KUCAGE DUTIES. SO CHARGING AT STATION. LITAIMT 2 CHARGED LILISP X DURING ALL FY 64. SINCE DUTIES NOT IN KUCAGE FIELD STATION CHARGING HIM TO OOA DURING FY 63 AND WISH HIM INCLUDED IN LIRANCH. ABOVE DO NOT REPRESENT OBLIGATIONS OVER AND ABOVE THOSE LISTED LILISP X.
+
+B. PARA 3. LIHUFF AMOUNTS LISTED PARA II A REF A WERE CHARGED OOA UNTIL 1 MAR '64. DURING FY 63, THROUGH NOV 64, 4100 DOLLARS PAID LIHUFF FROM LILISP X FOR STUDENT ACTIVITIES. FOR OVER YEAR STATION ADMITTING WORD ON PROJECT ACTION ONE WAY OR OTHER. STATUS REPORT MMA-24692 OF 8 NOV REVIEW FLEA FOR DECISION. WOULD LIKE EITHER TERMINATE OR GET ON WITH IT.
+
+D. PARA 7. PROJECT IN PREPARATION.
+
+<table>
+   <tr>
+    <td>
+     SECRET
+    </td>
+   </tr>
+  </table>

@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_1004.png
+
+Convert to Markdown14-00000
+
+HALL, Loran Eugene (aka Lorenzo HALL, Skip HALL, Lorenzo PASCILLO)
+
+1. MEMO FOR THE RECORD (6 Sept 77, Russ Holmes)
+page 3: ...following names, some of whom may have been in contact with Loran HALL.
+
+2. BLAKEY Request, 12 Sept 77 (OLC #77-3890) confirms oral request for all the Agency's files on Loran Eugene Hall. This request was made orally to you on [signature] Tuesday, August 30, and Mr. Holmes made available what he stated were all the Agency's files on Mr. HALL on Thursday, September 1.
+
+3. BLAKEY Letter, 28 Sept 77 re discrepancy on what Holmes provided..."at that time, the two staff members were provided with one CIA-generated document on Loren Eugene Hall that had not been located previously....
+
+4. Holmes Memo, 29 Sept 77
+
+The Agency's file on Hall contained one Agency document-- HAVA 2037 (IN 46987), 21 April 1959. Other documents included in Hall's file were 9 FBI reports and 1 Army Report...
+
+5. OLC 77-4405/a, 5 Oct 77 (George L. Cary to Blakey) ref: Blakey letter of October 3, 1977 asking to be informed as to whether any relationship existed between Mr. Loran HALL and the CIA. A diligent search of our files fails to disclose any record of any relationship whatsoever between the CIA and Mr. Hall either as an employee or an independent contractor.
+...fails to disclose any record of any secrecy agreement....so far as this Agency is concerned we see no reason at this time why Mr. Hall should not feel free to fully respond to any inquiry from the HSCA.
+
+6. O/SECURITY (GAMBINO, 19 Oct 77) Memo to OLC
+Info provided

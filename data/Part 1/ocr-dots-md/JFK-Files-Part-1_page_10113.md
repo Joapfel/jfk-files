@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_10113.png
+
+Convert to Markdown7018
+
+Dos. :13.- 2h abril 67.-
+
+168.- Entrada a las 1045hs.- MF con Chelo.- PLATICA PERSONAL/ --- HF invita a Chelo a comer con ella hoy para platicarla do Lugo.-- Cholo acepta.-- 198.
+
+209.- Salida al 196648.- 1054hs.- Chelo con Conchis,- Asuntos personales, - Chelo le pido disculpas por haborse violenta do el otro día con ella por lo de Lugo,--- Conchis se encuen tra agripada,--- Chelo: que lo habló María Elena y que lo di ce que se va a Oaxaca para el casamiento de Pila y que hoy ella va a comer con ella,-- 244.-Chelo como con María Elena,
+
+258.- Salida al 135807.- llorens.- Chelo con Miguel no hore un pedido de papel, sobres y artículos do escritorio.- 312
+
+326.- 358. Salida al 111727.- 1118hs.- Chelo con HF le pide que anden a una persona para que revisen la máquina IEN que us a el embajador.- HF que van a hacer todo lo posible por pasar en la mañana,--- 405.
+
+443. Salida al 462220.- 1130hs.- Chelo con HF que le diga a la Srita.Jasso y al Lic. Santana, haber si es posible que el dr.Subsecretario pueda recibir hoy a Abreu porque sale mañana,-- HF que les pasará el recado,--- 466.
+
+467.- Salida a las 1132hs.- Chelo con HF el Lic. García Cam beros hablan sobre una cita solicitada por Abreu y Cicard - con el dr DIRECTOR.- García: que va a ver si os posible que los reciba hoy, que luego lo llama,--- 490.
+LIENTA VIVA A-3197 22May67
+FILE.WH-1 CITAMILA
+
+504.- Salida al 141326.- 1304hs.- Chelo con Guerrero hablan sobre el pago de ciento cincuenta pesos por unos bolatos de la Cruz Roja.-- 533.
+FILE.WH-1 CITAMILA
+
+542.- Salida al 109551.- 1311hs.- Chelo con HF la Srita.luna le pide dos ojemplares del Anuario Financiero do México, cu yes ojemplares cuestan 150 pesos cada uno.- Chelo queda en mandar recogorlos,--- 589.
+FILIALS 201-330173
+
+590.- Salida a la embajada de Suiza.- Chelo con la embajado - no de none confirma el nom de los bolatos de la Cruz Roja..

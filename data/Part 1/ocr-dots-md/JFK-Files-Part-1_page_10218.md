@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_10218.png
+
+Convert to Markdown12 December, 1968
+
+Subject: LIRING/3 Receipt of Letter from Gustavo Colindres.
+
+1. LIRING/3 reported to Rowton at 1700 on 12/12/68 that he had received a letter from Gustavo Colindres, a Guatemalan of about 40 years of age - whom he had met in the Pavón prison in Guatemala City. LIRING/3 stated that Colindres is the uncle (mother's side) of the León Barrios brothers, although he does not have the same name of sra. Barrios. L/3 explained that they were born of different fathers. L/3 added that Colindres was imprisoned some 18 months ago for responsibility in an arms cache discovered in or near his home.
+
+2. The following is Rowton's translation of the original letter which LIRING/3 gave Rowton for copying:
+
+"I hope that when you arrived in your Mexico, you found only peace and satisfaction in being once again in the warmth of your home. Here on the farm we have missed you and felt badly at not hearing from the artist and the professor, and now that I have succeeded in obtaining your address, I am taking the liberty of dropping your a few lines. I want you both to keep abreast of what's going on at the old farm, even though we're still struggling to turn it over to new owners, but they haven't as yet agreed to the price. I guess I'll be the last to leave the ship, since I haven't a chance to get off. The lions are the next to leave their cage. 'Lorenzana' left a month ago and the Queen left on the 2nd of December. Promise me that when you take a drink you'll toast the farm and the date that is approaching.
+
+My best to your wife, kisses to your child, and my best wishes for your welfare. May this year of strange experiences engrave in your mind the memory of a friend.
+
+Guat. 7/12/68
+
+/s/ G.Colindres
+
+Please send your correspondence to me in the name of my wife, Isabel Donis de Colindres, 5 av. y 7a Calle, lote 6-Manzana 26, Colonia Santa Marta, Zona 19, Guat.Cuidad, América Central.
+
+3. LIRING/3 told Rowton he understood the "lions are next to leave their cage" to mean that the León Barrios brothers are soon to be released and that this letter is a signal to him to be on the alert for a contact from them in the near future. L/3 told Rowton that he intended to reply to this
+
+*

@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_12.png
+
+Convert to MarkdownSECRET
+
+6. In response to a question from Mr. Slawson I stated that most of the 26 cases upon which we based our statements involved foreign students, exchange teachers and other relatively transient persons, and while a number of cases have certain points in common, they bear little similarity to the OSWALD case in that none involved a defector who married prior to repatriating. I noted that paragraph 6 of our 6 April 1964 memorandum to the Commission had pointed this out. Mr. Slawson indicated that he was now satisfied on this matter.
+
+7. Concerning the length of time taken by Soviet authorities to process exit visas for Soviet citizens married to foreign nationals (question 3c above), I stated that, in my opinion, the information provided by State (in the third enclosure to Mr. Meeker's letter) substantially corresponded to the views expressed in paragraphs 6 and 7 of our memorandum to the Commission dated 6 April 1964. Mr. Slawson asked if it would be possible to elaborate paragraph 7 of our memorandum of 6 April by providing a statistical breakdown of the cases on which our statements were based. I indicated that this could be done.
+
+8. At this point Mr. Slawson stated that as a result of our discussion he felt that the question of possible inconsistencies had been resolved. However, he asked that we send a brief written reply to the Commission's letter of 3 July 1964 embodying the substance of what I had said concerning the basis for statements included in our 6 April 1964 memorandum. [This would include the gist of the draft reply to the Commission which I showed to C/SR on 8 July plus an elaboration of our statements concerning Soviet visa applications.]
+
+9. Mr. Slawson indicated that he would be sending parts of his report dealing with the Soviet intelligence services to CIA for checking as to their accuracy. He did not say when this would occur.
+
+10. After concluding the meeting with Mr. Slawson, I read Volume 52 of the transcript of testimony before the Commission. This included the reinterview of Marina OSWALD.
+
+Lee H. Wigren
+C/SR/CI/Research
+
+SECRET
+
+201-25924.8

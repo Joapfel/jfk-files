@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_10154.png
+
+Convert to Markdown24 June 1963
+
+MEMORANDUM FOR: CI/OA
+
+SUBJECT : LITANIL-7
+C-101653
+201-330173
+
+Attached is the PRQ part II on LITANIL-7. An
+Operational Approval is requested.
+
+John H. Whitten
+Chief, WH/3
+
+SECRET

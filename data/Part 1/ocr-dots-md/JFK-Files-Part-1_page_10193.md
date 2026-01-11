@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_10193.png
+
+Convert to MarkdownJULY CYROSE PROGRESS REPORT
+
+LITAKILS - No previous progress report other than regular operational reporting has as yet been forwarded on the LITAKIL group. Their activities have expanded considerably during July, and this report will attempt to give a birds-eye view of the overall activity as a basis for future progress reporting. In summary during July 1962 the LITAKILS recruited a new penetration of the Cuban Embassy in Mexico City and a former employee of that ... seems to be involved in somebiey carcases; they may be one or several functioning actively during the month; they located a site for their clandestine radio; they have a cover company possibility which is being seriously considered for activation; and they have approximately seven legal traveler operations under development or active. The LITAKILS now number 13, practically all of them are active in one or more of these phases. The principal men behind the entire activity are LITAKILS 1 and 2.

@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_1016.png
+
+Convert to MarkdownHSCA Request 3 Nov 77:
+
+8. Uncropped copies of photographs of the "Mexico City Oswald" These include CIA photographs......
+
+C/CI Memo to OLC (CI 622-77, 29 Nov 77:
+
+c. (attached) A black notebook containing copies of 12 photographs of the "unidentified individual" who was seen entering or leaving the Cuban and Soviet Embassies in Mexico City.
+
+Eleven of the twelve photographs were released under the FOIA. A copy of each of these photographs is included in the attached notebook.
