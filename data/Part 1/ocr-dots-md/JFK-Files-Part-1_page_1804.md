@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_1804.png
+
+Convert to MarkdownORGANIZATION AND ACTIVITIES OF THE
+DEPUTY DIRECTOR (SUPPORT)
+
+Security Office
+
+We recommend that the burden on the Security Office for support of the DD/P be reviewed (see DD/P section). In the meantime, we believe that a careful look at the Security Office is necessary to insure that the volume of work it is carrying is not in any way jeopardizing its primary responsibility of insuring that every possible measure is taken to keep the Agency secure.
+
+We recommend that all security clearances be centralized under the Office of Security; e. g., clearances that are issued by DPD, OCI, NPIC, and other Agency components. While we would leave the policy of granting clearances with the appropriate officials, we believe that the Office of Security should maintain a centralized index for special clearances and do all of the processing of these clearances.
+
+Audit Staff
+
+We recommend that the Inspection and Audit Staff check regularly on activities in the Lockheed plant which are of vital concern to the Agency.

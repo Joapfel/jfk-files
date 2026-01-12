@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_692.png
+
+Convert to Markdown14 Sept XX IX 56
+
+Washington
+
+X
+R. S. Travis 2268
+
+New York
+
+SECRET
+
+MCCANN FROM SUPPORT (TRAVIS) WA 8598
+CASE 9145. RAY MILLARD HAS REQUESTED THAT YOU MKE PASS SOME INFORMATION ON TO LEO CHERNE. XXXXXXX YOU KNOW, AS DOES CHERNE, THAT THE NEW LEADER IS DOING WORK FOR LEO, HAS ALSO BEEN WRITING FOR [THE NEW LEADER], AS WELL AS EXIST DOING OTHER JOBS. IT IS UNDERSTOOD THAT THE EDITOR OF THE "NEW LEADER", S. O. LEVITAS, IS GOING TO TAKE A TRIP TO THE AREA WHERE OUR BOY IS LOCATED, AND WILL SEE HIM. WHEN OUR BOY SEES [LEVITAS], HE IS GOING TO TELL HIM THAT HE DOES SOME WORK FOR LEO CHERNE, AND OTHERS, besides submitting articles for the "new leader". He will not of course, identify himself with the agency. [LEVITAS] is unwitting of any agency relationship, and it is desired that he be kept this way. On the off chance that CHERNE MAY KNOW [LEVITAS], and if on the further chance that upon his return to the US, [LEVITAS] may see CHERNE and tell him that he ran into our boy who indicated that he was doing some work for CHERNE, will you tell CHERNE that [LEVITAS] is not writing of the fact that the new boy is connected with the agency, and that he should not indicate to [LEVITAS] what or assume that [LEVITAS] knows, [THE AGENCY] relationship. Thanks very much.
+
+SECRET
+
+07462

@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_1385.png
+
+Convert to Markdown14-0000
+
+C. INFIL-EXFIL PLANS
+
+1. The tentative date for the infiltration of A/2 and 3 at Punta La Jijira is 18 May 1963. The infiltrees will make their way to A/3's father's farm one kilometer from the coast and from there A/2 will be provided with transportation to go to Guanabo or Havana.
+
+2. The exfiltration of A/3 will occur three days after his infiltration. This arrangement, as yet, is not definite.
+
+3. The exfiltration of A/2 is tentatively planned for 31 May 1963 at Punta La Jijira or Puerto Escondido. A/3 feels that Puerto Escondido would afford a more secure point for exfiltration but that a reconnaissance of the area would be necessary before final decision is reached. Prearranged telegram signal would indicate his preference.
+
+4. The above dates fall within a favorable moon phase for maritime operations. In addition the infil-exfil schedule will allow for an extra margin beyond the 10 days which A/2 considers the minimum acceptable period of time to make his contacts.
+
+D. OPERATIONAL ASSETS WITHIN CUBA
+
+1. Following the successful infiltration of A/2 and 3 the two men will work their way to a farm owned jointly by [A/3's father and Santos SUAREZ], located 1 kilometer from the point of infiltration.[CRUZ] They will make contact with the manager of the farm named (Pedro CRUZ.) [CRUZ] is (35 to 40) years of age, is married and has an elementary school education. He has no record of underground activity. A/3 will depend upon [CRUZ] to make the following contacts in order to obtain transportation to Guanabo or Havana:
+
+a. Roman HERNANDEZ who lives a few kilometers away in Sierra del Arzobispo (HERNANDEZ owns a small farm and a butcher shop in the area and also owns a truck. He is 37 to 40 years of age, married with six or seven children. He was jailed for a brief period in the past for counter-revolutionary activities).
+
+b. If [CRUZ] is unsuccessful in getting (HERNANDEZ) truck he will contact Augusto MACHIN who operates a farm next to [A/3's father's] farm. He is (45-50) years old, married, no children, wife's name is Alicia. He was the mayor of Santa Cruz del Norte in 1954. He owns a jeep.
+
+S E C R E T
+
+19-6-81/1/1

@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_1610.png
+
+Convert to Markdown14-00000
+
+7 March 1966 (Roberts) received letter from Itkin but his secretary advised that (Roberts) was on vacation in Austria. Itkin contacted (Roberts) in (Austria) and set up meeting in (Geneva, Switzerland.)
+
+15 March 1966 Meeting at (Hotel Beau Rivage) in (Geneva). Present were Itkin and (wife) (Jim Marcus), (Littman) and (wife). Meeting lasted three days. No projects get off the ground.
+
+Nov 1966 (Roberts) in New York City, met at (Marcus's) apartment with Itkin and (Marcus's) father. Then met Itkin again at a dinner given by (Mario Brod.)
+
+Nov 1967 (Roberts) again in New York and contacted Itkin. Had lunch with Itkin and (Brod.) Last time (Roberts) saw or heard of Itkin until he read in the press about the (Marcus) scandal.

@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_1620.png
+
+Convert to MarkdownSUBJECT: Request for Services of Collins Modern Field Service Engineer
+
+CONCURRENCE:
+
+(Signed) RICHARD H. LANSDALE
+Office of General Counsel
+
+Director of Security
+
+APPROVAL:
+
+/s/ Dow H. Ennecomer
+Director of Personnel
+
+Distribution:
+
+Original & 1 - Addresssee w/att.
+1 - Director of Security w/o att.
+1 - Director of Personnel w/o att.
+✓1 - General Counsel w/o att.
+
+Date
+
+9 FEB 1967
+Date
+
+8 Feb 1967
+Date

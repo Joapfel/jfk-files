@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_1429.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Page 13: Mr. Colby is quoted by the author indicating certain information revealing complications between Mr. Colby and Dr. Kissinger. In addition to breaching personal confidences, the author contradicts what he had indicated earlier to be an intent to permit Mr. Colby to speak for himself.
+
+Page 14-18: Mr. Phillips again refers to "Abe" and his evaluations of the various congressional select committees investigating the CIA. In effect these comments are suggestive of Agency judgments and evaluation regarding the conduct and success of the investigative efforts as well as other personalities critical of the Agency.
+
+Chapter 3
+
+Page 5: Have the circumstances regarding Mr. Wisner's death ever been surfaced with such particulars as provided in this text?
+
+Page 14: The information regarding the "laundering of money" as set forth in the first paragraphs of this page serves as a confirmation of official involvement in such activities. This should be deleted.
+
+Page 21: There is a serious question raised regarding the author connecting Ernest Hemmingway and the Havana Chief of Station implying the prospect of a professional as well as personal affiliation.
+
+Page 48: If it is in fact correct, has it ever been officially acknowledged that a U.S. citizen, a businessman in Havana, implied by the author as being a CIA agent was executed? Note: This chapter is replete with a profusion of illustrations of tradecraft and operational activities too numerous to set forth.
+
+Chapter 5
+
+Page 1: Mr. Phillips in his writing provides a historical chronology of senior assignments within the Agency with particular reference to the LA or WH Division. This is illustrated on this page in his reference to Colonel King "regaining leadership of the WH Division". Anyone interested in noting the organizational hierarchy and key personalities in the WH or LA Division during the period of Mr. Phillips' tenure with the Agency, would be aided considerably on page 2 and further as the author proceeds to identify Mr. Winston Scott as the Chief of Station Mexico.

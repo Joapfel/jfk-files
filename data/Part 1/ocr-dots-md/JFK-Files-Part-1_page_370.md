@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_370.png
+
+Convert to Markdown#1 Retired from CI staff in 1969. Last known address unknown
+
+#2 Retired under cover from FI Staff. Last Known Address (slee71) 3607 Jones Bridge Road, Chevy Chase, MD 20015
+
+\* \#3 - State Cover - DDoS = PDS/Eval Group
+\# 9 NR
+
+\* \#6 Contract terminated in the field (Mexico City) 28 Feb 1977. "No cover problems of consideration" per memo of 30 Jan 77 in OPD file. Suggest Bill Sturhillo, LA Div, be contacted before for further details as he was NOC. Contract Agent from Nov 51 - March 73 in Mexico City when he retired. Retired as Independent Contractor 7 Feb 76. Living in Mexico City
+
+\# 5 State Cover - LA Division
+
+\# 6
+
+\# 7 Retired from OTR in July 1975- Open-
+70 address Sharon
+
+\# 8 - Retired under Cover from LA Division, 12/31/77.
+Suggest LA also be contacted. Last Known Address: 12412 Over Ridge Road, Potomac, Md. 20854
+
+\# 9 - NR
+
+\* \# 10 State Cover - LA Division

@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_1906.png
+
+Convert to Markdown14-00000
+
+104-10121-10191
+
+SECRET
+
+17 NOV 1961
+
+MEMORANDUM FOR: Chief, WH Division
+
+ATTENTION : J. J. MULLANE
+Room 2919 Quarters Eye
+
+FROM : Deputy Director of Security (Investigations and Support)
+
+SUBJECT : ACCOMMODATION ADDRESSES
+
+1. Reference is made to your memorandum dated 10 October 1961 requesting the cancellation of the following facilities:
+
+* #48 807 [Andrew L. JACKOLOW] [1 Twin Oaks Drive, Staten Island, N. Y.] 08
+* 39 418 David S. MORALES, [227 Laverne Avenue, Long Beach, California] 08
+* 57 368 [Charles A. BERTELLI] [1734 Arlington Blvd., Falls Church, Va.] 08
+* 190 584 [Jacob SACKLOVE] [6843 Matilija Avenue, Van Nuys, California] 08
+* 219 512 [Harold HAMILTON] [1171 Eddy Street, Providence, Rhode Island] 08
+* 226 414 [Bernard Alvin PARKS] [92-45 115th Street, Queens, New York] 08
+* 229 643 [Maria Fernandezy SANCHEZ] [27 Stebbins Avenue, Staten Island, N.Y.] 08
+* 229 646 [Carmen Rodriquizy MENDOZA] [157 Sheridan Terrace, Ridgewood, N.J.] 08
+* 243 855 [Norman R. HARTHERODT] [331 First Street,N. E., Washington, D. C.] 08
+
+2. This is to advise that these facilities have been cancelled.
+
+FOR THE DIRECTOR OF SECURITY:
+
+VICTOR R. WHITE
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+SECRET
+
+17/90

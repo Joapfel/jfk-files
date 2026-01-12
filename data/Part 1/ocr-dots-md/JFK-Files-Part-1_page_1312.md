@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_1312.png
+
+Convert to MarkdownSECRET
+
+class, had little sense of security. It is obvious that he
+trusted SZULC and VOLSKY far beyond what normal prudence
+would dictate. He probably was not a CASTRO agent, but he
+did help leak operational details and general plans to
+people who helped to spread the information more widely and
+who, themselves, were not trustworthy.
+
+LAD/JFK Tas Force 1977 Marty Miller: rp
+
+Copy filed: 201-312091
+
+SECRET
+
+VPV

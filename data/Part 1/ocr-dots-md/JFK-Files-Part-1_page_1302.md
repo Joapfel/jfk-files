@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_1302.png
+
+Convert to MarkdownSECRET
+
+was less sure than in earlier days and was frequently sensationalist and full of inaccuracies. (See, especially, article in NYT for 14 July 1972 on a terrorist Headquarters in Zurich and other wild statements.)
+
+q. Since 1974 SZULC's articles have been highly critical of the Agency and he has used the background information he gathered in the 1960's to attack the Agency and to criticize its operations.
+
+r. In May 1975 SZULC accused the Agency of rifling the files of U.S. Senators. This was only one of many irresponsible and false articles he wrote trying to dis-credit the Agency. One of the more spectacular efforts was a series in _Esquire_ magazine, in which, among other things, he charged that the U.S. intelligence community had a hidden budget of $25 billion dollars and a network of 200,000 spies.
+
+s. In, _Inside the Company: A CIA Diary_, Philip AGEE credits SZULC's daughter, Nicole, for having "obtained vital research materials in New York and Washington, D.C." There is reason to believe, particularly in view of the extreme views Tad SZULC has manifested in the past two years, that he may have aided his daughter in her "research."
+
+**SUMMATION**
+
+The case against Tad SZULC as a foreign agent is weak. However, his most recent activities are entirely consonant with the view that he has already served the Soviets well and can
+
+SECRET

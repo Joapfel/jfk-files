@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_1025.png
+
+Convert to MarkdownPEREZ, Eduardo
+
+1. MEMO FOR THE RECORD (6 Sept 77, Russ Holmes)
+
+page 3: ...following names, some of whom may have been in contact with Loran HALL.
+
+2. BLAKEY Reuqest, 12 Sept 77 (OLC #77-3890) confirms oral request for all agency files on Edwardo PEREZ, aka Eddie Bayo.
+
+3. Holmes Memo For the Record, 29 Sept 77 re meeting with HSCA reps.
+
+I said I had many reference to Perez and would need some ~~SK~~ specific biographic information to determine which Perez was of interest to the Committee. Triplett was unable to be more specific.
+
+4. O/SECURITY (CAMBINO, 19 Oct 77) Memo to OLC
+No RECORD.

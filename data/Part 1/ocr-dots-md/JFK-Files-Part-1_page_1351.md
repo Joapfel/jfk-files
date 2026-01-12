@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_1351.png
+
+Convert to MarkdownSECRET
+SENSITIVE
+
+Draft
+
+23 Nov, 1962
+
+OPERATIONAL PLAN - CUBA
+
+I. **SITUATION:**
+
+A. The purpose of this plan is to outline the action to be undertaken by the Central Intelligence Agency against the Castro/ Communist government of Cuba during FY-63 and for such longer period as may be directed.
+
+B. For the purpose of this plan the following assumptions are made:
+
+1. National objectives with respect to Cuba are essentially as follows:
+
+a. Isolate Castro/Communist from other Western Hemisphere nations.
+
+b. Discredit the Castro/ Communist regime in Cuba and in the Hemisphere.
+
+c. Maintain moderate economic and political pressure on the Castro/Communist regime to retard development of the Cuba economy and maintain a drain on bloc resources.
+
+d. Maintain maximum coverage of Cuban intelligence requirements.
+
+THIS DOCUMENT IS A SOURCE REFERENCE IN CS HISTORICAL PAPER NO. _________
+—DO NOT DESTROY—
+
+e. Be prepared to capitalize on any significant uprising, split in Cuba, or split
+
+SECRET
+SENSITIVE
+
+GROUP SLIP Excluded from automatic upgrading and classification

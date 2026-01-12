@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_843.png
+
+Convert to MarkdownSECRET
+
+21. SAKAMOTO Yoshikazu - Assistant professor at Tokyo University.
+
+22. HIDAKA Rokuro - professor at Tokyo University.
+
+23. IIDA Momoko - writer.
+
+24. TSURUMI Yoshiyuki - employed at International House in Tokyo.
+
+25. TERAYuki Minako
+
+26. ANAI Fumihiko
+
+27. NASU Masanao
+
+28. MATSUMOTO Ichiju
+
+29. FUKUTOMI Setsuo
+
+30. KURIHARA Yukio
+
+31. etc: ANDO Jimbei, CHIBA Hido, EGAWA Taku, FUJII Nittatsu, HARIYU Ichiro, HOSHINO Yasusaburo, ICHII Saburo, IKEYAMA Juro, ISHIDA Takeshi, KANAI Yoshiko, KASAI Seiichi, KATAGIRI Yuzuru, KATO Shuichi, KAZAMA Michitaro, MATSUURA Sozo, KIDOKORO Masao, KITAKOJI Satoshi, KOBAYASHI Shoichiro, KOMATSU Sakyo, KOBAYASHI Tomi, KUNO Osamu (Shu), KURODA Hidetoshi, MARUYAMA Masao, MIDORIKAWA Toru, MIZUSAWA Yana, MORITAKI Ichiro, MUCHAKU Seikyo, MURAMATSU Hiro, NISHIO Noboru, NODIMA Koichi, OGOSHI Teruo, OTUKOTSU Yoshiko, SERIZAWA Tae, SHIRAI Shimpei, SHINMERA Takeshi, SHISHIDO Hiroshi, SUGIURA Mitsuo, SUGIYAMA Tatsumaru, SUZUKI Masahira, TAKEUCHI Yoshitomo, WADA Nagahisa, YAMADA Kunemitsu, YAMADA Toshio, YAMAGUCHI Kosaku, YAMANISHI Kiichi, YASUDA Takeshi, YOSHINO Genzaburo, YOSHIWARA Koichiro, OKAHOTO Taro, MATSUMOTO Seicho, EI Rokusuke, IZUMI Taku, AWA YA Noriko, KATO Yoshiro, SHIROYAMA Saburo, TAKAHASHI Taketomo, ODAGIRI Hideo, OKUMA Minoru, SANO Kenji, SUZUKI Michihiko, KUBATA Hanya, SHINOHARA Seiei, MARUYAMA Kunio,
+
+SECRET
+
+14-00000

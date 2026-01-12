@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_1491.png
+
+Convert to Markdown3. Page 63, line 21; the name "Frank Holcomb" Mr. Holcomb retired under cover and his past relationship with the CIA should not be exposed. It is additionally recommended that the entire paragraph wherein Mr. Holcomb's name appears (lines 21-24) should be deleted because it acknowledges CIA operations in support of anti-communist political operations in Italy. (page 105, lines 18-21.)
+
+4. Page 63, line 30 beginning with "By" and ending with "arrangement" on line 33, page 63. It is recommended that this passage be deleted since its inclusion not only is not pertinent to the narrative but it unnecessarily jars liaison with the British and is an implied insult to the French liaison services. (page 106, lines 4-7.)
+
+5. Page 66 beginning with "Finis" on line 24 and ending with "world" on line 27. This passage describes a specific CIA operation which resulted in the production and distribution of an animated cartoon based on George Orwell's Animal Farm. (Page 111, lines 6-9.)
+
+6. Page 68, the pseudonym "John F. Rittenhouse" on line 34. The author's original CIA pseudonym was classified, and even though compromised, never appeared in the press and still exists on various currently classified documents. (page 114, line 23.)
+
+7. Page 71, beginning with "Spanish" on line 28 and ending with "America" on line 20, page 72, and including the footnotes on pages 71 and 72. This passage should be deleted because it describes the Agency's role in subsidizing, producing and distributing "El Campesino's" book, Life and Death in the USSR. (pages 120 [lines 4-20, including footnote] - 121 [lines 1-16, including footnote].)
+
+8. Page 72 beginning with "Eudocia" on line 21 and ending with "Scribner's" on line 32. This should be deleted because it describes the Agency's role in the translation, publishing and distribution of Eudocio Ravines' book, The Yenan Way. It also describes William Buckley's role in that operation as a CIA officer. (Page 121, lines 17-23 and page 122, lines 1-6.)
+
+9. Page 73 beginning with "Mexican" on line 5 through "Rivera" on line 8. This should be deleted because it not only describes sources and methods but also identifies a specific CIA operation. (Page 122, lines 19-21 and page 123, line 1.)

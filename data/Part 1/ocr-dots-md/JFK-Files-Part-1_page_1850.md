@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_1850.png
+
+Convert to MarkdownEYES ONLY
+
+- 15 -
+
+**Chapter XIII (commencing at p. 218)**
+
+1. The tenor of remarks in this chapter and in the conclusion of the previous chapter is that the meeting with Rusk included the President, Rostow, and Stevenson. [Other authoritative accounts have included only Rusk, Cabell and Bissell; Tracy Barnes has said he also was present. It is believed that the President was not at the meeting but was contacted by Rusk on the telephone at his Virginia home. There is no other indication, other than Hamilton's allegation, that Walt Rostow was present]. (p. 219)
+
+2. Hamilton's and other anti-Cabell views are expressed, with an indication that the call-off of the second air strike would not have happened had Dallas been in Washington (pp. 222-223).
+
+[SECRET
+EYES ONLY]

@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_1593.png
+
+Convert to MarkdownSECRET
+
+4. Judge Hoeveler asked Mr. Sakowitz to cross-examine Mr. Briggs to determine whether he had any information which might be relevant to Hemming's defense. Mr. Sakowitz stated that although he was aware that Mr. Hemming wished to call Mr. Briggs as a witness, he was not fully informed of all aspects of the case and, therefore, reluctant to question Mr. Briggs. Thereupon, Judge Hoeveler, swore in Mr. Briggs and proceeded to ask him a series of questions to determine whether Mr. Briggs interaction with Mr. Hemming had been in any way connected with his CIA employment. At the conclusion of this examination the Judge gave Mr. Sakowitz a second opportunity to question Mr. Briggs and when Mr. Sakowitz again declined, he stated that in light of the national security consequences which had been brought to his attention he was not inclined to permit questions relating to Mr. Briggs CIA employment.
+
+5. At the conclusion of the conference in chambers, but before the jury was admitted into the courtroom, Mr. Sherouse informed Mr. Hemming that Mr. Briggs was available as a witness. When the trial proceeded Mr. Hemming concluded his defense without calling Mr. Briggs. Mr. Sherouse, however, did call Mr. Briggs as a rebuttal witness. On cross-examination Mr. Hemming asked Mr. Briggs whether he was with CIA. Mr. Sherouse promptly objected to the question, the Judge sustained the objection and Mr. Hemming went on to the next question. The trial concluded soon afterwards without Mr. Barteaux being called as a witness. It was subsequently learned that Mr. Hemming was found guilty as charged.
+
+Edmund Cohen
+
+EC: jz
+
+Distribution:
+
+Original LITIGATION-CRIMINAL, Hemming Gerald P.
+
+1 - EC Signer
+
+1 - Chrono
+
+SECRET
+
+"JHZJ
+
+SUGGESTIONS FOR THE ENGLISH LITERATURE CLASS,"
+
+DAILY NEWSPAPERS, AND THE like,"
+
+AND OTHERS,"
+
+AND OTHERS,"
+
+MAY BE READ IN THE PUBLIC LIBRARIES OF THE UNITED STATES,"
+
+AND elsewhere.
+
+THESE DISTRIBUTION-SIGNATURES,"
+
+MUST BE RETAINED BY THE SIGNATURES, AND NOT BE GIVEN TO ANYONE ELSE,"
+
+UNTIL THE END OF THE TERM, OR UNTIL ALL THE SUBSCRIBE HAVE RETURNED THE ORIGINALS,"
+
+WHEN THE ORIGINALS HAVE BEEN RETURNED, THE SIGNATURES MAY GIVE THEMSELF THE RIGHT TO DELETE THE SUBSCRIBE FROM THE LIST OF REGISTRANTS,
+
+AND IF THIS IS DONE, THE SIGNATURES ARE ENTIRELY FREE TO DO WITH THE ORIGINALS ANYTHING, BUT MUST RETURN THEM TO THE SIGNATURES AS SOON AS POSSIBLE.

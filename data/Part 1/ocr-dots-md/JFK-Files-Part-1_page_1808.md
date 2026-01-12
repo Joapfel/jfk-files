@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_1808.png
+
+Convert to Markdown# Coordination
+
+We note your intention to abolish the present office of the
+Assistant for Coordination and to create in its stead an Assistant
+to DCI for Coordination and Intelligence Community Guidance.
+
+With the exception of Mr. Coyne, we are fully in accord. We set
+forth below our concept of the principal functions of this Assistant.
+
+a. He should be the DCI's principal advisor on coordination matters within the community and his personal representative in dealing on such matters with top officials of the community.
+
+b. When so directed he should represent the DCI in negotiations and discussions on intelligence matters with appropriate officials of foreign governments.
+
+c. He should be responsible for development of Comint and Elint policy insofar as this is an Agency function.
+
+d. He should keep continually under review the general extent and direction of the intelligence efforts of the community to insure that such efforts fully and effectively support national policy, submitting reports and recommendations to DCI as appropriate.
+
+e. He should correspondingly maintain a continuing review of activities and efforts of the Agency to insure that they remain fully and effectively coordinated with the activities and efforts of other members of the community.

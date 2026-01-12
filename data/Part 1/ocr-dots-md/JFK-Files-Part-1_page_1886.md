@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_1886.png
+
+Convert to MarkdownSECRET
+
+28 August 1972
+
+MEMORANDUM FOR: Deputy Chief, SRS
+THROUGH : Chief, LEOB/SRS
+SUBJECT : KORENGOLD, Robert J. #495685
+REFERENCE : CIA Cable No. 689548 dated 22 August 1972 from [London] 15-1
+
+1. Information contained in Subject's file is of a miscellaneous nature. He has had no Agency affiliation or use.
+
+2. An FBI reply dated 19 October 1966 to an inquiry from this Agency stated that FBI files contained references to Subject's assignment in Moscow as a correspondent for Newsweek but did not contain any information of a derogatory nature concerning KORENGOLD.
+
+3. Extract of Foreign Service Dispatch No. 392 from Amembassy Moscow to the Department of State, Washington, D. C. dated 12 December 1960 listed Robert KORENGOLD as UPI correspondent in Moscow. No remarks were made concerning KORENGOLD.
+
+4. An Overseas Press Bulletin dated 24 April 1965 reported that Newsweek's bureau chief, Robert KORENGOLD, gave a cocktail party for visiting Newsweek's foreign editor, Robert CHRISTOPHER.
+
+5. On page 4 of a Department of State report of investigation dated 14 December 1965 regarding the activities of a Department of State employee in Moscow, William Henry LUERS, LUERS said that Robert KORENGOLD, Newsweek correspondent, was interested in interviewing a Soviet painter whose work had been shown in Paris. The report further stated "At KORENGOLD's request, LUERS
+
+<table><tr><td>WARNING: NOT TO BE<br/>SENSITIVE INFORMATION STORED<br/>AND USES INVOLVED</td></tr></table>
+
+SECRET
+
+<table><tbody><tr><td>CLASSIFIED BY<br/>EXEMPT FROM GENERAL PROCLASSIFICATION<br/>SCHEDULE OF E. O. H. <br/>SCHULE OF INFORMATION SYSTEMS<br/>§ 521.1(c), (f) <br/>AUTOMATICALLY DELETE ON<br/>(unless impossible, insert date or event)</td></tr></tbody></table>

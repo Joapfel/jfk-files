@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_1329.png
+
+Convert to Markdown14-0000
+
+104-10103-10038
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+<table><tr><td colspan="7">UNCLASSIFIED</td></tr><tr><td colspan="6">[ ] INITIAL USE ONLY</td></tr><tr><td colspan="6"><input type="checkbox" checked disabled> CONFIDENTIAL</td></tr><tr><td colspan="6"><input type="checkbox" checked disabled> SECRET</td></tr><tr><td colspan="7">ROUTING AND RECORD SHEET</td></tr><tr><td colspan="7">SUBJECT: (Optional)</td></tr><tr><td colspan="7">FROM: Director of Finance 1212 Key Building</td></tr><tr><td colspan="7">TO: (Officer designation, room number, and building)<br/><table border="1"><thead><tr><th rowspan="2"></th><th colspan="2">DATE</th></tr><tr><th>RECEIVED</th><th>FORWARDED</th></tr></thead><tbody><tr><td>1. Inspector General 2 F 24 HQS.</td><td>27 Feb '74</td><td></td></tr><tr><td>2. Backeridge</td><td></td><td>R</td></tr><tr><td>3. Lichard</td><td></td><td></td></tr><tr><td>4. ~~Wigley~~</td><td></td><td></td></tr><tr><td>5. Sandy-Ausdel - wfile</td><td></td><td></td></tr><tr><td>6.</td><td></td><td></td></tr><tr><td>7.</td><td></td><td></td></tr><tr><td>8.</td><td></td><td></td></tr><tr><td>9.</td><td></td><td></td></tr><tr><td>10.</td><td></td><td></td></tr><tr><td>11.</td><td></td><td></td></tr><tr><td>12.</td><td></td><td></td></tr><tr><td>13.</td><td></td><td></td></tr><tr><td>14.</td><td></td><td></td></tr><tr><td>15.</td><td></td><td></td></tr></tbody></table></td></tr><tr><td colspan="7">EXTENSION NO.<br/><input type="text" value="27 February 1974"></td></tr><tr><td colspan="7">OFFICER'S INITIALS<br/><input type="text" value="R"></td></tr><tr><td colspan="7">COMMENTS (Number each comment to show from whom to whom. Draw a line across column after each comment.)<br/><input type="text" value=""></td></tr><tr><td colspan="7">RETURN TO CIA<br/>Background Use Only<br/>Do Not Reproduce</td></tr></table>

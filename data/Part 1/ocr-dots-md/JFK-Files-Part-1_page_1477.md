@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_1477.png
+
+Convert to MarkdownAPPROVED FOR RELEASE 1993
+CIA HISTORICAL REVIEW PROGRAM
+
+**350 - 4443**
+
+**7/8**
+**H#**
+
+HA - FE.
+
+Dudley Lively
+
+Colt
+
+Tons
+
+H#

@@ -1,0 +1,58 @@
+# JFK-Files-Part-1_page_939.png
+
+Convert to Markdown104-10077-10067
+
+DATE: 07/05
+21 NOVEMBER 63
+
+TO: JENWAVE
+FROM: DIRECTOR
+CONF: S49 H
+INFO: FD 3, DDP, CCS 3, OP 2, VR
+
+TO: WAVE
+INFO:
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+Typic/Pers
+
+REF: A. UFGT-4905 (para 4)
+B. UFGT-4735
+C. DIR 31166
+
+MR. [FRANK A JOHNSON] CONTRACT EXPIRED 28 OCT 63. ADVISE
+TO BE RENEWED.
+VIA CABLE ASAP IF
+NEGOTIATED AT JENAVE.
+
+ORIGINAL CONTRACT
+
+END OF MESSAGE
+
+SAS COMMENT: Request Headquarters payroll Subject starting with April 63 salary.
+
+C/SAS/Finance
+
+Richard Cummings
+FB/CEAS (telecon 21 Nov. 63)
+
+COORDINATING OFFICERS
+
+DESMOND FITZGERALD
+CHIEF, SAS
+BELFASING OFFICER
+
+ORVILLE C. DANSE
+C/SAS/PERSONNEL
+AUTHORIZING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No. 11572
+
+S E C R E T
+
+<table><tr><td>GROUP I<br>Ledger Line<br>Comm.amt. and<br>Ref. no.</td></tr><tr><td>SUBMIT THIS FORM</td></tr></table>
+
+11572

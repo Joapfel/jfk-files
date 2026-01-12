@@ -1,0 +1,65 @@
+# JFK-Files-Part-1_page_520.png
+
+Convert to MarkdownORIG: UNIT: EXT:: DATE:
+
+RESTRICTED HANDLING
+
+CLASSIFIED MESSAGE
+
+Copy of ________
+
+<table><tr><td>SECRET</td></tr></table>
+
+(CLASSIFICATION)
+
+(DATE AND TIME FILED)
+
+CITE HEADQUARTERS
+
+TO
+SECRET
+PAGE TWO
+
+REQUEST TO LIAISON, BUT WOULD APPRECIATE ANY PERTINENT MHCHAOS-
+RELATED INFO WHICH COMES STATION'S ATTENTION. EX-2 APDIR WN-SISM.
+
+END OF MESSAGE
+
+| C/E/F | Darryl Hargy |
+|---|---|
+| C/EUR | Bill Connery |
+| C/FR/TBL | Danusha Little |
+| C/FE | Tom Laguano |
+
+Based on: Paris 2592, 5 Jul 72
+Sens, 30 June 72
+
+Action: RG
+File:
+700-8-88/MISC
+Indexed: J
+
+cc: Chris (1)
+Client Info (4)
+C/EUR Div (3)
+C/FE DIV (6)
+
+**Distribution:** AGS-OF
+19 July
+FOW-1
+24 July
+
+C/CI/SO Richard Ober COORDINATING OFFICERS
+
+RELEASING OFFICER
+
+<table><tr><td>SECRET</td></tr></table>
+
+AUTHENTICATING OFFICER
+
+THIS FORM FOR USE BY AUTHORIZED RESTRICTED HANDLING MESSAGE USERS ONLY!
+
+GROUP I
+EXCLUDES FROM ACTUAL
+DISTRIBUTION AND
+DECLARATION.

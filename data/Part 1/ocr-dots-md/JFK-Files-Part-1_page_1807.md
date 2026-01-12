@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_1807.png
+
+Convert to Markdown# PART II
+
+This section contains comments and recommendations on areas of the work of the Central Intelligence Agency and activities of the intelligence community in which the working group was either unable to agree, or felt that considerably more study was needed before action is taken. These views are presented herewith so that they may assist and guide those who may be asked to pursue these matters further.

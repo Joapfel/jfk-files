@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_1151.png
+
+Convert to Markdown104-10092-10267
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+<table><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION: CA/O & (CA/O COPY SLOTTED AT 1405, 3 OCT, LMG)</td></tr><tr><td>INFO : CA 2, CA/PEG, CA/PROP, CI/IC 2, FI, FI/INT, WE 4, WH 7, RF, VR</td></tr></table>
+
+SECRET 031610Z
+PRIORITY DIR INFO PALP CITE MEXI 6385
+DTDORIC HBEPITOME
+REF MEXI 6384 (in 32461)
+IDENS OF REF: A, [ALFONSO DIBILDO], B, CNE, C, FUSA.
+SECRET
+
+3 Oct 63 IN 32419
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+<table><tr><td></td></tr></table>

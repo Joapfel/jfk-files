@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_1734.png
+
+Convert to MarkdownBOBB Foundation. On 22 October 1965 a POEA was issued to HOBKY for the same use in WJ/Cuba activities as that outlined for his mother. This Provisional clearance was firmned into a Covert Security Approval on 4 February 1966 for the same use.
+
+Sarah K. Hall
+
+Atta:
+
+Deo 67 RAMPARTS
+Memo dtd 24 Nov 67 (SF-633-87
+Memo dtd 30 Jan 67 to II/P
+HIT 2/26/67
+HIT 2/19/67
+
+SECRET
+
+14-00000

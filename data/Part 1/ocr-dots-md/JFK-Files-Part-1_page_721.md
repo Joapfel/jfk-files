@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_721.png
+
+Convert to Markdown14-00000
+
+# Sorte Pantere” for en sosial revolusjon
+
+## «Panteren» Bobby Seale kom til Oslo idag
+
+— Vi vil bevise at det sosialistiske samfunn er bedre enn det kapitalistiske: vi vil innføre dette i USA og vi vil samarbeide med revolusjonære i alle land, sa lederen for det amerikanske «Black Panthers»partiet da han i morges kom til Oslo. Seale er på besøk i Skandinavia for å fortelle om sitt syn på kampen mellom rasene i USA. Som arranger for besøket i Norge står den norske «Black Panthers»komité og Rød Front.
+
+— Intet har bedret forholdene for det sorte Amerika under tidligere president Johnson, og president Nixon's forslag om å innføre «sort kapitalisme» i ghettoene vil bare øke følelsen av sort rasehat, hevdet Seale, som understreket at de «sorte pantere» ikke ønsker sitt eget, adskilte samfunn. Rasene har levet adskilt i 200 år, og nu er det på tide å gå fremover, sa den meget veltalende Bobby Seale. Hans uttrykksmåte var overveiet og polert, bortsett fra i gjentatte henvisningsger til politiet i USA som han kalder «griser» (pigs).
+
+Forste gang «Black Panthers»partiet gjorde seg kjent var da Bobby Seale og en annen av partiets ledere, Huey P. Newton, i oktober 1966 organiserte væpnede partuljer som skulle overvåke politiets behandling av negrene. Newton sitter nu fengslet for å ha skutt en politimann, og et av partiets mål er å få ham frigitt.
+
+— USA er en politistat, fortsatte Seale og hevdet at det sorte samfunn må læres opp til selvforsvar. Han tror ikke på flere såkalte «hete sommere», fordi han mener at det sorte samfunn har innsett utilstrekkeligheten av spontane oppror. Men effektivt arbeidende organisasjoner har man respect for, la han til.
+
+Et av de første tiltak partiet har satt i verk er å organisere felles frokost for fattige barn, for det meste negre. Dernest håper partiet på å organisere sosialistiske bysamfunn for de som måtte være interessert. Partiet arbeider nemlig ikke bare for negre, men for alle undertrykte minoriteter. Dessuten søker partiet å samarbeide med hva Seale kaller «progressive hvite» elementer i samfunnet.
+
+— Vi godtar ikke betegnelsen «krigers» (militant). Vi, hevder nødvendigheten av selvforsvar, det har vist seg å være nødvendig. Selv Marthin Luther King var ikke frem-
+
+Lederen for det amerikanske «Black Panther»-parti, Bobby Seale, ved ankomsten til Fornebu.
+(Foto: Brynjulf Aarthun)
+
+med for tanken om alt annet hadde sviktet. Stokely Carmichael er statsminister i vår «skyggeregjering», men har kommet med enkelte uttalelser om agressivitet og separatisme som vi ikke helt kan godta, sa Bobby Seale, som møtte Norge med Mao-profil i luen, og en beklagelse over at ikke fjernsynets kameramenn var møtt frem for å dekke begivenheten.

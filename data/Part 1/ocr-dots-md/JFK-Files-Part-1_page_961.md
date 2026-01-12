@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_961.png
+
+Convert to Markdown# Technical Corrections By NaraID
+
+05-Oct-99
+
+| NARA ID | Date Of Change | Meeting Date | Page | Change of Postponement | Comments |
+|---|---|---|---|---|---|
+| 104-10077-10371 | 11-Dec-98 | 06-Aug-98 | 2 | 12 vice 7 | ARRB missed reviewing page 2. One name and 2 digraphs are protected on page 1; 2 names of CIA employees need to be protected and are on the list for protection. See pages 48-49, para 2.a. of ARRB final report for justification. |
+| 104-10078-10014 | 15-Dec-98 | 25-Aug-98 | | 9 vice 8 | Additional postponement conforms to previous ARRB determination. Substitute missed words with "official cover" per page 56, para 3.k. of ARRB Final Report. Also, see 180-10145-10233. |
+| 104-10093-10032 | 05-Oct-99 | 23-Sep-98 | | 9 vice 11 | Document partly illegible; only redactions needed are protection 9 digraphs--root words can be released. Slug line/pseudos are releasable. See 104-10093-10033. |
+| 104-10093-10033 | 14-Dec-98 | 23-Sep-98 | | 9 vice 8 | The document sent to ARRB was partly illegible; the only redactions needed are 9 digraphs. ARRB protected 4 crypts, the root word is now released. 5 more digraphs of this crypt were missed; 4 other authorized postponements are released. |
+| 104-10103-10333 | 02-Dec-98 | 25-Aug-98 | | 27 vice 25 | Additional postponements conform to previous ARRB determinations. Protection of two missed digraphs approved by ARRB elsewhere in this document. |
+| 104-10106-10383 | 08-Dec-98 | 25-Aug-98 | 1 | 7 vice 6 | Additional postponement conforms to previous ARRB determination - missed name on cover sheet was protected by ARRB elsewhere on this page. |
+| 104-10106-10421 | 10-Dec-98 | 25-Aug-98 | 1 | 14 vice 13 | Additional postponement conforms to previous ARRB determination. Missed dispatch prefix was protected by ARRB elsewhere in this document. |
+
+9 age2 90125232c:plcc01 65555 MM

@@ -1,0 +1,360 @@
+# JFK-Files-Part-1_page_953.png
+
+Convert to MarkdownP.A.MACCIO:cmf
+C/SAS/MOB/FI
+6957 X
+10 DECEMBER 03 X
+
+JYWAVE
+
+FOWLER, DIRECTOR
+
+IMMEDIATE WAVE
+
+88119
+
+RYBAT TYPIC AMWEB AMPADNA
+
+REFS
+
+A) WAVE 8316 (IN 70529)
+
+B) WAVE 8346 (IN 70905)
+
+C) DIR 87628
+
+D) DIR 87290
+
+E) DIR 87508
+
+F) WAVE 8762 (IN 76933)
+
+FOR NEUTRAL
+
+PLEASE BRIEF DAFBOLD ON WAVE'S VIEWS RE AMWEB -1) CACHING AND MAKING DEAD DROPS AT THIS TIME IN LIGHT BY F. REASONABLE TO ASSUME -01 (AMWEB-1) UNDER DSE SURVEILLANCE, PARTICULARLY SINCE EXfiltrATION -01 (AMWEB-2) AND AMFAINA-147 KEYWAY DEEM CONFERENT CONTINUE UNE -01 (ATTAIN-1) FOR cache and making news under correct circumstances. END OF MESSAGE
+
+WE/4 (S. Mungor) by phone
+
+WE/5 (T. Bassett) by phone
+
+AC/SAS
+
+C/SAS/MOB
+
+SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+10-7
+
+12168
+
+# SECRET
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6/PJ
+
+10-7
+
+12168
+
+# SECRET
+
+6

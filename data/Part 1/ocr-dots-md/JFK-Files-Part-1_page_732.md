@@ -1,0 +1,60 @@
+# JFK-Files-Part-1_page_732.png
+
+Convert to Markdown14-00000
+
+<table><tr><td>MESSAGE FORM<br/>TOTAL COTTER</td></tr><tr><td style="text-align: center;"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td style="border-bottom: 2px solid black; padding: 5px;">SECRET</td></tr></tbody></table></td></tr></table>
+
+<table><thead><tr><th colspan="3">ACCOUNT AND/OR NAME - SEE NOTES BY</th></tr></thead><tbody><tr><td>1</td><td></td><td>6</td></tr><tr><td>2</td><td></td><td>7</td></tr><tr><td>3</td><td></td><td>8</td></tr><tr><td>4</td><td></td><td>9</td></tr><tr><td>5</td><td></td><td>10</td></tr></tbody></table>
+
+UNIT:
+EXT:
+DATE:
+
+CABLE SECRETARIAT DISSEMINATION
+
+BY _______________ PER __________ #__________
+
+CONFID
+☐ RID COPY ☐ INDEX ☐ DESTROY ☐ RETURN TO __________ BRANCH ☐ FILE ID __________
+
+NO INDEX ☐ FILE IN CS FILE NO.
+
+INFO:
+FILE __________ VR __________
+
+ELITE ( Classification )
+
+DATE end time filed
+
+Reference number
+
+CITE DIRECTOR 92664
+
+TO
+
+FIVE FEET ELEVEN INCHES, WEIGHT 160-175 POUNDS, MEDIUM BUILD, BROWN HAIR, PROBABLY CUT SHORT, BLUE OR HAZEL EYES, MEDIUM COMPLEXION, RACE WHITE. OCCUPATION: HAS CLAIMED EMPLOYMENT AS SEAMAN. REMARKS: NOTICEABLY PROTRUDING LEFT EAR; REPORTEDLY IS A LONE WOLF; ALLEGEDLY ATTENDED DANCE INSTRUCTION SCHOOL; HAS REPORTEDLY COMPLETED COURSE IN BARTENDING; CONSIDERED ARMED AND EXTREMELY DANGEROUS.
+
+2. WILL POUCH PHOTO OF GALT TO ANY ADDRESSEE DESERING IT. ADVISE.
+
+3. GALTS CURRENT WHEREABOUTS UNKNOWN. WHILE HAVE NO REASON BELIEVE GALT HEADED FOR YOUR AREA, DESIRE COVER ALL POSSIBILITIES.
+
+4. REQUEST ADDRESSEES MAKE EVERY EFFORT DETERMINE IF GALT IS OR HAS BEEN IN YOUR AREA. MEDICAL INFORMATION PARA ONE SHOULD BE PASSED TO LIAISON AND ANY OTHER LIKELY SOURCES.
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+RELEASING OFFICER
+
+GROUP 1
+Included from automatic summarizing and classification
+
+AUTHORIZING OFFICER:
+
+REPRODUCTION ONLY IF NEEDED FOR ANALYSIS
+
+COMMITTEE APPROVED.
+
+IS CONFIDENTIAL.
+
+NOTICE: THIS DOCUMENT MAY BE COPIED UNLESS SPECIFICALLY NOTED.

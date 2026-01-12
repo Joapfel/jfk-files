@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_1568.png
+
+Convert to MarkdownU.S. Lets Swiss
+And Red Envoys
+Talk to Defector
+
+Nosenko Again
+Voices Desire
+For Asylum.
+
+By Chalmers M. Roberts
+Staff Reporter
+
+Soviet secret police de-
+fector Yuri I. Nosenko is
+in the United States where
+he was interviewed yester-
+day by officials of both the
+Russian and Swiss Em-
+bassies...
+
+The State Department said
+each interview lasted less than
+an hour and that a Department
+official was present each time:
+Nosenko reaffirmed his earlier
+request for asylum in the
+United States and it will be
+granted...
+
+State Department spokesman Richard I. Phillips, in giving out this information, declined to say where the interviews took place or to give any details. Earlier he had said it was possible that newsmen here will be allowed to talk with Nosenko.
+
+Soviets Kicks up Fuss
+
+These developments came as the Soviet Union kicked up a diplomatic fuss over the disappearance of Nosenko on Feb. 4, from Geneva, where he had been assigned as an "expert" in the Soviet delegation at the 17-nation disarmament conference. Phillips said he was "on temporary duty from KGB (secret police) headquarters in Moscow."
+
+Up to yesterday Moscow
+had been directing its public
+diplomatic wrath at the
+Swiss, charging them with
+loose security. The provision
+for a Swiss diplomat to inter-
+view Nosenko was to assure
+the Swiss that the United
+States had taken part in no
+illegal act on their soil.
+
+The Swiss already had strongly rejected the Soviet charges.
+
+On Wednesday, Phillips re-
+See DEFECTOR, A5, Col. 1
+
+WAST
+2/15/64

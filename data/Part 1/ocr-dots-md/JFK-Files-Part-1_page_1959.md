@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_1959.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+Page 2
+
+7. August 27 - Joseph Smith, FE Division, introduced to Maheu as Joseph Sims.
+
+8. Smith emphasized need for a solid cover story and back-stopping. Maheu suggests, in view of [omitted] close relationship with movie colony, may induce [omitted] who represents several movie interests, to set up an arrangement that would also include necessary funding mechanisms.
+
+9. September 23 - Maheu and O'Connell, Security, met with [omitted] in New York City (Hampshire House). Agreed, if he co-operative, would brief him re Agency interest and objective of Project to get maximum effort from him. He responded enthusiastically and offered his complete service and facilities to set up a secure cover mechanism. He suggested that [omitted] be told of general Government interest (not CIA) at the outset due to her sharp perceptiveness which may cause her to speculate at a later date.
+
+10. Cover Story - [omitted] would commission her to perform an "on location survey" in certain FE areas for the proposed filming of "Journey to the Center of the Earth." This could be done very naturally because [omitted] has the rights to the film and is contemplating shooting it in near future.
+
+11. September 23 - [omitted] arrived New York City (St. Regis). Maheu met her alone for first time and told her of Government interest. She seemed to be relieved about certain misgivings she had of assignment. (She knew true identity of Maheu, having been introduced to him socially by [omitted]. She also knew that he had a personal relations organization.)
+
+12. September 23 (afternoon) - Maheu introduced "Sims" to [omitted]. Was given a gradual briefing on assignment, determining at various points whether she was still interested. She indicated she understood exactly what was expected of her and could leave country in 30 days.
+
+13. September 21 - "Sims" again met with [omitted] at which time she was told she would be accompanied by a female traveling companion, [omitted] (GS-12). Would obviously be her secretary, but would be, in fact, the person she would look to for direction.
+
+EYES ONLY
+
+SECRET
+
+14-00000

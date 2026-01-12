@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_775.png
+
+Convert to MarkdownSECRET
+
+DESENSITIZED
+
+# CONTACT REPORT NO. 2
+
+9 October 1967
+
+TO: AMCLOCK/1 File
+
+FROM: Peter J. DI GERVENO/JMWAVE
+
+SUBJECT: Meeting with AMCLOCK/1,
+27 September 1967
+
+REFS: DO BASE/NEW YORK 3362 and 3359;
+DIRECTOR 37254 and 37960
+
+NYM-2234
+
+Distribution:
+
+1-Unit A Chrono DUMMY
+1-Unit B Chrono DUMMY
+4-AMCLOCK/1 File
+(Original via ELMARD)
+
+## Operational Chronology
+
+1. On 27 September 1967 AMCLOCK/1 met DI GERVENO from 1130 to 1530 for lunch at the Beekman site. The agent was not seen entering or leaving the site and he stayed out of sight when food was brought up from the restaurant downstairs. The meeting was conducted under secure conditions and without interruptions. Only AMCLOCK/1 and DI GERVENO were present at the meeting.
+
+2. AMCLOCK/1 reported that he had been assigned to work in (Iden A) with (Iden B), same as last year. A few days before his departure from PBRUMEN, (Iden C) told AMCLOCK/1 to watch out for (Iden B who is a member of the intelligence service and will be reporting on AMCLOCK/1). The implication was that AMCLOCK/1 was still under observation by the AMTHUG regime and (Iden C) actually told him to bend backwards in every way possible to prove himself while in New York. AMCLOCK/1 explained that this meant to live a model life while abroad and to perform extra work whenever required, without complaining. AMCLOCK/1 believes that (Iden B is being trained to take over AMCLOCK/1's position as an expert in economics for the AMTHUG regime. If this is the case, this may be the last time AMCLOCK/1 is sent to (Iden A). Still, under much probing, AMCLOCK/1 could not come out with any clear indication that he was suspected or was falling out of grace with the AMTHUG regime. Although the agent has a tendency to emphasize his "delicate" position, the case officer believes that he is not mistrusted and still enjoys a favorable position in the government, although probably considered too bourgeois to be completely integrated with their communist philosophy.
+
+3. Regarding the recent changes made in PBRUMEN diplomatic personnel abroad, AMCLOCK/1 was not aware of any security shake up taking place in the Foreign Ministry. He regarded these changes as a routine matter in accordance with their policy to bring back to PBRUMEN for a reorientation tour all those diplomats stationed abroad for three consecutive years or more. AMCLOCK/1 actually
+
+SECRET
+
+DESSENSITIZED
+
+SMILOSTVOVANJE
+
+DESENSITIZED
+
+14-00000

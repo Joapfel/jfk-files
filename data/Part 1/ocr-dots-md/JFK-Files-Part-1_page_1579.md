@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_1579.png
+
+Convert to MarkdownSECRET
+
+Itkin and his wife had for a long time been struggling to maintain custody over her children from her second marriage. Claiming that she had violated the custody stipulations of a New York court by moving them more than 50 miles from New York without his permission, Frederick Hersh, Mrs. Itkin's former husband, gained custody of the children by means of a ruling from the British court in 1966. Mrs. Itkin began legal procedures in New York to regain the children. As part of their effort they swore affidavits that Mrs. Itkin had taken the children to England at the request of the CIA. Itkin embellished on his CIA record by stating that he had worked for CIA for many years prior to 1963, and insisted that his original contact had been set up between Harold Stassen and Allen Dulles in Philadelphia in the summer of 1954. Most of these assertions were fabrications. MONCURE'S CIA relationship was exposed in various legal circles in New York. The Agency wanted to avoid MONCURE's having to contradict Mr. and Mrs. Itkins' affidavits in court. The FBI seemed to have been more interested in protecting Itkin's reputation as a witness than in protecting MONCURE'S reputation for honesty.
+
+3. MONCURE did not appear in court. The Federal authorities eventually placed protection around Itkin and his wife, keeping them on a military reservation, while he appeared as a star witness in numerous Mafia cases which led to convictions.
+
+4. One small side issue is worth noting: (Thomas L. Roberts,) who was a (law partner of Itkin) until mid-1961, became a (CIA staff agent under cover in Africa.)²³ The many fraudulent activities of Itkin spread a scintilla of suspicion around (Roberts,) The latter was given a polygraph examination in Frankfurt. He answered questions on his relationship with Itkin including financial and his few contacts with Marcus to the satisfaction of his interrogators.
+
+5. Comments: The thrust of the file is mainly defensive. CIA was reacting to Itkin's tactics to help his wife gain custody over her children. Itkin's numerous trips to England and Europe were made on behalf of the FBI, and they were part of an FBI attempt to gain information on the Mafia. Before the recruitment of Itkin and his utilization by the FBI, CIA did pass to the Attorney General in 1963 information on a Department of Labor official's alleged criminal involvement with the Mafia, which MONCURE had elicited from Itkin. The file also refers to MONCURE's continued contact with one Mafia figure Lenzieri, who was a legal client, as a means of self-protection as Lenzieri represented a channel back to the Mafia
+
+SECRET²-

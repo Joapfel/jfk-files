@@ -1,0 +1,75 @@
+# JFK-Files-Part-1_page_552.png
+
+Convert to Markdown14-00000
+
+<table>
+   <tr>
+    <td>
+     2
+    </td>
+    <td>
+     6
+    </td>
+   </tr>
+   <tr>
+    <td>
+     3
+    </td>
+    <td>
+     7
+    </td>
+   </tr>
+   <tr>
+    <td>
+     4
+    </td>
+    <td>
+     9
+    </td>
+   </tr>
+  </table>
+
+# CRET
+CITE DIRECTOR C. W. P. D.
+
+DEN (REPORTED 2/27/69). U.S. CITIZEN. U.S. PP G914919.
+J. DAVIDSON, CRAIG; MALE, LAST KNOWN LOCATION STUTTGART,
+MANY (REPORTED 6/1/70) (28 HEINRICH-BALUANN STRASSE, STUTTGART,
+MANY). U.S. CITIZEN.
+
+K. DAVIS, PAUL L.; WHITE MALE, 5'10" 155 LBS, BROWN HAIR, BLUE
+S, BORN 10/29/26 AT NEW YORK, N.Y. LAST KNOWN LOCATION LONDON W.
+ELAND (REPORTED 2/24/69). ALIAS: SOLOMON, SAUL, KING, MILES A.,
+NUMBER, CLIFF. CITIZEN OF U.S. LIVING IN EUROPE.
+
+L. DAVOREN, EDWARD MICHAEL; WHITE MALE, 5' 10" BROWN HAIR, BLUE
+S, BORN 8/4/40 AT IRELAND. LAST KNOWN LOCATION LONDON ENGLAND
+REPORTED 6/5/69). ALIAS: DEVOREN, EDWARD MICHAEL. CITIZENSHIP UNKNOWN.
+
+H. DUTSCHKE, RUDOLPH ALFRED WILLIE; WHITE MALE, 5'7" 140 LBS,
+BROWN HAIR, BROWN EYES, LAST KNOWN LOCATION LONDON N. W. ENGLAND (REPORTED
+(7/69). ALIAS: DUTSCHKE, RUDI. CIT OF GERMANY. W. GERMAN REYNOLDS EX
+1582612.
+
+N. FALLET, VERNON ROGER DONALD; WHITE MALE, 5'9" 165 LBS,
+N JAIR, BLUE EYES, BORN 3/29/34 AT DOMBRESSON, SWITZERLAND LAST
+N LOCATION NEUCHATEL, SWITZERLAND (REPORTED 11/7/68). SWISS CITIZEN.
+
+O. GETZ, KARL IGOR; WHITE MALE, BROWN HAIR, BLUE EYES, BORN
+46 AT PARIS, FRANCE. LAST KNOWN LOCATION MUNICH GERMANY (REPORTED
+
+COORDINATING OFFICER
+
+AUTHENTICATING
+
+GROUP
+Included from original
+documenting unit
+
+[ ] [x] [ ] [ ] [ ] [ ] [x] [ ] [x] [x] [x]
+[ ] [ ] [ ] [ ] [ ] [ ] [ ] [ ] [ ]
+[ ] [ ] [ ] [ ] [ ] [ ] [ ] [ ] [ ]
+[ ] [ ] [ ] [ ] [ ] [ ] [ ] [ ] [ ]
+[ ] [ ] [ ] [ ] [ ] [ ] [ ] [ ] [ ]
+[ ] [ ] [ ] [ ] [ ] [ ] [ ] [ ] [ ]
+[ ] [ ] [ ] [ ] [ ] [ ] [ ] [ ] [ ]

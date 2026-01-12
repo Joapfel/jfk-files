@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_616.png
+
+Convert to MarkdownSECRET
+
+SENSITIVE
+
+1. Ernesto Rodriguez y Moreno ✓ Cities Service Station Marathon Shores, Florida Age 35, married, three children, owner of gas station.
+
+2. Laureano Batista ✓ 157 S. E. 12th Street Miami, Florida Son of prominent and reputable Havana banker, Augustin Batista ✓
+
+3. Victor Paneque ✓ Age 42. Former July 20th Commander. Presently in Cuba.
+
+APPROVED FOR RELEASE 1993
+CIA HISTORICAL REVIEW PROGRAM
+
+SECRET
+
+SENSITIVE
+
+S-29

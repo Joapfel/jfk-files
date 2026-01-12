@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_864.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table>
+
+<table><tr><td>SECRETARIAT DISSEMINATION</td><td><input type="checkbox" /> INDEX <input type="checkbox" /> NO INDEX <input type="checkbox" /> RETURN TO BRANCH <input type="checkbox" /> FILE RID</td></tr><tr><td colspan="2"><input type="checkbox" /> PER __<br/><input type="checkbox" /> FILE IN CS FILE NO.</td></tr></table>
+
+<table><tbody><tr><td>I<br/>N<br/>F<br/>O<br/></td><td>FILE, VA.</td></tr></tbody></table>
+
+<table><thead><tr><th>(classification)</th><th>(date and time filed)</th><th>(reference number)</th></tr></thead></table>
+
+CITE DIRECTOR 070597
+
+GERMANY (REPORTED 4/8/69). ALIAS: BOECK, WERNER. CIT OF GERMANY.
+BB. LUNDGREN, ASA MONICA; WHITE FEMALE, BORN 11/25/30 AT
+SWEDEN, LAST KNOWN LOCATION LUDVIGBERGATAN 39, STOCKHOLM, SWEDEN
+(REPORTED 5/11/66). CITIZEN OF SWEDEN.
+
+CC. LUNDGREN, TORD ALVAR, WHITE MALE, BORN 7/10/31 AT SWEDEN,
+LAST KNOWN LOCATION LUDVIGSBERGSATAN 39, STOCKHOLM, SWEDEN
+(REPORTED 1/27/67). CITIZEN OF SWEDEN.
+
+DD. MAHLER, HORST; WHITE MALE, BORN 1/23/36 AT HAYNAU SILESIA, B
+BROWN HAIR AND EYES. LAST KNOWN LOCATION BERLIN, GERMANY - (REPORTED
+6/10/69). CITIZEN OF GERMANY.
+
+EE. MANCHANDA, ABHIMANYA; WHITE MALE, 5'7", BORN 9/4/19, AT
+INDIA. LAST KNOWN LOCATION LONDON ENGLAND (REPORTED 2/18/69). ALIAS:
+MANCHANDA, MANU. CITIZEN OF BRITAIN OF INDIAN DESCENT.
+
+FF. MARTIN, EDDIE LEE; WHITE MALE, 6'1", 175 LBS, BLOND HAIR,
+HAZEL EYES, LAST KNOWN LOCATION FRANKFURT, GERMANY (REPORTED
+6/11/70). U.S. CITIZEN.
+
+COORDINATING OFFICERS
+
+RELEASED OFFICER
+
+GROUP I
+Included from Automatic
+Decoding and
+Deciphering List
+
+AUTHENTICATING
+OFFICER
+
+REPRODUCTION BY OTHERS IS EXPRESSLY FORBID. SECRET

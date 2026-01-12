@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_1970.png
+
+Convert to Markdown# NAME GIVEN BY DE ARMAS
+
+John VALDAVIAN
+(aka: BLADABIAN)
+
+A. NASS
+
+Anselmo ALLIEGRO (HIJO)
+
+Justo ALFONSO
+(aka: "El Gallego")
+
+Ricardo MORALES NAVARRETE
+
+Armando RUIZ
+
+Antonio de LEON
+
+Mario MEJIA RICARD
+(aka: RICART)
+
+OS FILE, IF ANY, AND COMMENTS
+
+No Office of Security traces regarding all variations.
+
+Probably identifiable with Donald L. NESS, State Department. RSO in Santo Domingo.
+
+No Office of Security traces.
+
+No Office of Security traces.
+
+No Office of Security traces.
+
+Possibly identifiable with Armando VALENZUELA RUIZ, SF#752 358. OA request by WH/3/Columbia for use as a PA in Colombia or PRC; not used due to significant derogatory information developed.
+
+Possibly identifiable with Sergio Antonio LOPEZ DE LEON, SF#740 227, who was apparently used by WH/1/Mexico as a LP operator from December 1964 to May 1973 in Mexico.
+
+Probably identifiable with Marcio MEJIA RICART, CR to SF#244 148 (Manuel Moises LAMARCHE SALAS). In June 1960 latter advised FBI that RICART was a Venezuelan active in anti-TRUJILLO activities and had visited Miami in April to buy B-26's and weapons for an attack on the Dominican Republic; also advised that RICART was an instructor at Caracas University, was associated with Director of Economic
+
+SECRET
+
+3

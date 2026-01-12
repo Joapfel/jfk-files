@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_1878.png
+
+Convert to MarkdownSTANDARD FORM NO. 84
+
+SECRET
+
+# Office Memorandum • UNITED STATES GOVERNMENT
+
+TO : Chief, Special Security Branch
+DATE: 14 December 1950
+FROM : Chief, Overseas Branch
+SUBJECT: John F. RITTENHOUSE (Pseudo - OPC)
+#23500
+
+Re : Clearance dated 7 December 1950
+
+Please cancel your security clearance dated 7 December 1950. The decision has been made that the subject is to be considered a semi-covert employee integrated into the [REDACTED] He will not be considered deep cover. Subject was integrated into the [REDACTED] as of 13 December 1950.
+
+JOSEPH S. REFF
+
+SECRET
+
+14-00000
+104-10120-10319
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+Case Closed By
+March 12/1/1950.
+file - 1074

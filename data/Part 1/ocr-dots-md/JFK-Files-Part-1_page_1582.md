@@ -1,0 +1,121 @@
+# JFK-Files-Part-1_page_1582.png
+
+Convert to MarkdownOUTGOING TELEPOUCH
+
+R
+O
+U
+T
+I
+N
+G
+
+<table>
+   <tr>
+    <td>
+     1
+    </td>
+    <td>
+     2
+    </td>
+   </tr>
+   <tr>
+    <td>
+     3
+    </td>
+    <td>
+     6
+    </td>
+   </tr>
+  </table>
+
+SIGNAL CENTER USE ONLY
+
+DATE - TIME GROUP
+
+DISPATCH NUMBER
+
+FAM-4125
+
+CLASSIFICATION
+
+SECRET
+
+MESSAGE HANDLING INDICATOR
+
+TELEPOUCH
+
+0 INDEX 0 NO INDEX
+
+RETURN TO:
+
+IP FILES
+
+OCG SUBJ: ITKIN, HERBERT
+
+E 2 IMPDET
+
+CL BY: 034405
+
+COURT CASE IN ENGLAND IN JULY 1973 BY ITKIN.
+
+B. IN HIS TESTIMONY IN ENGLAND MR. ITKIN CLAIMED TO HAVE BEEN RECRUITED BY CIA IN AN "UNDERCOVER CAPACITY" IN ABOUT 1954. HE CLAIMED HE WAS WITH THE C.I.A. UNTIL MARCH 1963 AT WHICH TIME BY SOME ARRANGEMENT HE WORKED FOR BOTH THE FBI AND CIA, UNTIL JANUARY 1968.
+
+C. MOFFITT ASKS FOR INFORMATION ON THE STATUS OF MR. ITKIN DURING THE YEARS 1964 TO 1969 AND FOR COPIES OF "ANY RELEVANT AFFIDAVITS OF PERSONS IN AUTHORITY IN THE FBI OR CIA USED IN PROCEEDINGS IN USA."
+
+D. MOFFITT NOTED THAT IN THE INTERESTS OF PRIVACY HE ROUT- ED HIS LETTER VIA THE AUSTRALIAN-DIPLOMATIC POUCH, AND ASKED THAT THE REPLY BE RETURNED TO HIM BY THE AUSTRALIAN EMBASSY IN WASHINGTON.
+
+2. MR. MOFFITT'S REQUEST WAS HANDLEDBY THE OFFICE OF GENERAL COUNCIL (OGC) WHO MADE AVAILABLE FOR MR. MOFFITT COPIES OF THREE AFFIDAVITS (ALL OF WHICH IN PUBLIC DOMAIN) RELEVANT TO HERBERT ITKIN AND HIS AFFILIATION WITH THE CIA. OGC CONCLUDED THEIR REPLY BY SAY- ING THAT HERBERT ITKIN FURNISHED INFORMATION TO THE CIA OVER A PERIOD OF MANY YEARS, BUT THAT HE WAS NOT SENT TO ENGLAND TO COLLECT ANY
+
+<table>
+  <tbody>
+    <tr>
+      <th scope="row">DATE:</th>
+      <td>ORIG:</td>
+      <td>UNIT:</td>
+      <td>EXT:</td>
+      <th scope="col">COORDINATING OFFICERS</th>
+      <th scope="col">IP USE ONLY</th>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <th scope="row">RELEASING OFFICER</th>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <th scope="row">CLASSIFICATION</th>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <th scope="row">SECRET</th>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <th scope="row">CROSS REFERENCE</th>
+      <td></td>
+      <th scope="col">FILE NUMBER</th>
+      <td>(c) 1963-67</td>
+      <td></td>
+      <td></td>
+    </tr>
+  </tbody>
+</table>

@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_1529.png
+
+Convert to Markdown21 April 1958
+
+EMBASSY OF THE UNION OF
+SOVIET SOCIALIST REPUBLICS
+
+Note No. 9
+
+The Embassy of the Union of Soviet Socialist Republics presents its compliments to the Department of State of the United States of America and, referring to the Aide-Memoire of the Department of State dated March 31, 1958 and containing a reply of the Government of the United States of America to the Aide-Memoire of the Soviet Government dated March 5 concerning a violation of the Soviet state border in the Far East by an American military jet aircraft, has the honor to communicate the following:
+
+In the reply Aide-Memoire of the Department of State an attempt is made to deny the fact of an American military aircraft having violated the Soviet border.
+
+As has already been communicated, the Soviet Government has at its disposal carefully verified data on this violation, the reliability of which leaves no room for doubt. According to these data, on March 2, 1958, at 4:05 a. m. Moscow time, an American military reconnaissance aircraft of the Lockheed U-2 type, having appeared from the direction of the Sea of Japan, violated the state border of the Soviet Union in the area of the settlement Velikaya Kema, 32 kilometers south of that settlement. Then the violating aircraft deeply penetrated the airspace of the USSR and, after remaining over its territory for a considerable period of time, passed beyond the limits of the Soviet territory 45 kilometers south of the Olga Bay at 8:11 a. m.
+
+In the light of the established facts the reply of the Government of the United States of America can in no way be recognized as satisfactory. Naturally, the question arises as to how to explain such a reply of the American Government: whether it was misled deliberately by its military representatives in the Far East or whether it considered it possible to protect such persons subordinate to it, who, without regard to the possible consequences, sanction violation of Soviet borders, thus creating a threat of international complications.

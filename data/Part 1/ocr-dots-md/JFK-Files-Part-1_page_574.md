@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_574.png
+
+Convert to MarkdownSECRET
+
+DON 1-1462
+
+DDO NOTICE
+NO. 1-1462
+
+ORGANIZATION
+
+29 September 1976
+
+(4) Provide career development services and training for records management, computer and micrographics specialists assigned to the Directorate.
+
+(5) Serve as the Directorate focal point for Privacy Act and Freedom of Information Act matters, and other litigation involving Directorate information, and handle and coordinate all Privacy Act and FOIA requests addressed to the Operations Directorate.
+
+### f. International Activities Staff (IAS)
+
+The International Activities Staff will be responsible for
+
+(1) Monitoring the activities of and developing operations into the permanent staffs of worldwide organizations, including
+
+(a) the United Nations and its specialized agencies;
+
+(b) the international staff of Communist parties;
+
+(c) foreign labor organizations that are international in scope;
+
+(d) Treaty organizations, such as NATO and the EC;
+
+(e) foreign multilateral trade organizations and foreign-owned companies; and
+
+(f) commercial organizations with truly international status, such as foreign-owned banks, tourism and sports.
+
+(2) Coordination of CIA relationships with the Israeli liaison services, including provision of headquarters guidance and support to the Tel Aviv Station.
+
+(3) Provision of staff guidance for and coordination of Directorate operational efforts in the fields of international economics and energy.

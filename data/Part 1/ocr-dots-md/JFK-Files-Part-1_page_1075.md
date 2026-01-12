@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_1075.png
+
+Convert to MarkdownSECRET
+
+14-00000
+
+SECRET
+
+USE PREVIOUS
+EDITIONS
+
+E-2, IMPDET CL. BY: 062147
+
+(4-8-38)

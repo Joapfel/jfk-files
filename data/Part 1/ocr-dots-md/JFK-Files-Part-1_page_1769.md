@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_1769.png
+
+Convert to MarkdownSECRET
+
+7 July 1977
+
+MEMORANDUM FOR: Office of Security, Clearance Division
+
+ATTENTION : Mr. Joe Murphy
+
+FROM : OP/Contract Personnel Division
+
+SUBJECT : Notification of Contract Terminations
+
+Listed below are contract terminations received during the month of June 1977.
+
+| Name | SSN | SFN | TE | ORG | Termination Date |
+|---|---|---|---|---|---|
+| Annis, Carole Ann | 005428507 | 672196 | CE | EA | 25 March 1977 |
+| Barga, Judy K. | 519501284 | 654601 | CE | OSIG | 26 May 1977 |
+| Brown, Thomas J. | 081160726 | 087840 | IC | OGCR | 30 May 1977 |
+| Bull, Katherine S. | 493440700 | 182961 | CE | EUR | 29 April 1977 |
+| Day, Walter L. | 507076762 | 683575 | IC | ICS | 22 May 1977 |
+| Fishow, Evelyn M. | 291180012 | 546928 | CE | ISS | 3 June 1977 |
+| Frey, Frederick W. | 108221041 | 676214 | IC | OSI | 15 June 1977 |
+| Gleason, Robert D. | 210409564 | 676971 | CE | FBIS | 23 May 1977 |
+| Goodpasture, Ann L. | 446149768 | 013914 | IC | IG | 20 May 1977 |
+| Greenstein, Fred I. | 331261868 | 663902 | IC | OSI | 15 June 1977 |
+| Hargrove, Erwin C., Jr. | 497325244 | 671272 | IC | OSI | 15 June 1977 |
+| Harnage, William A. | 223804686 | 619339 | CE | OSIG | 15 June 1977 |
+| Holsti, Ole R. | 548404442 | 677885 | IC | OSI | 15 June 1977 |
+| Jensen, Beverly | 564569690 | 391891 | CE | NE | 4 June 1977 |
+| Keegan, Patricia A. | 231584387 | 237031 | CE | NE | 12 May 1977 |
+| Kiev, Ari | 083267818 | 609830 | IC | OSI | 15 June 1977 |
+| Loecher, Karl F. | 051428566 | 789641 | IC | OPR | 30 April 1977 |
+| Martinez, Barbara Jean | 525828737 | 672329 | CE | LOG | 3 June 1977 |
+
+SECRET E2IMPDET
+CLBY063837
+
+21g08

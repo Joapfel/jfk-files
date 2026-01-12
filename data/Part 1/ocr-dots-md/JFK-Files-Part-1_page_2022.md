@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_2022.png
+
+Convert to Markdown24 JAN 1965
+
+MEMORANDUM FOR: Chief, CI/OA
+
+SUBJECT : 201-274330
+#214 485
+
+1. Reference is made to your memorandum dated 15 January 1965 requesting an appropriate investigation in connection with your Provisional Operational Approval interest only for Subject's use as a (PA-PROP Asset) in Miami by WH/SA/IOS under Project JMATE.
+
+2. A search of our indices was made in the name of the Subject and reflected the attached information.
+
+3. This case is being closed in our office pending further notification from you.
+
+Victor R. White
+Deputy Director of Security
+(IOS)
+
+Attachment:
+As stated
+
+CLOSED
+DALY/vsf
+21 January 1965
+
+(174)

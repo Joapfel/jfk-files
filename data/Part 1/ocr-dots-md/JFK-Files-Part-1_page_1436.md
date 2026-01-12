@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_1436.png
+
+Convert to MarkdownSECRET
+
+3
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+know I own the Chow dog. To avoid damaging further
+what cover I have left, I would appreciate Mr. Phillips
+simply citing "dog" or calling it a "poodle."
+
+John H. Stein
+
+SECRET

@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_452.png
+
+Convert to Markdownquestion so that we could respond only with respect to the particular companies or individuals in which he was interested. As a concession, he cut down the period from the last ten years to "since 1971" and I said we would note his request.
+
+b. Thompson asked about CIA relationships with the Mormon church, the Summa Corporation, or the Hughes Tool Company. (Thompson said he had specific information that we had something with the Mormon church.) I suggested that if he is interested in whether the Agency had any relationship with these three institutions in connection with CIA's relationship with the Mullen Company; he rephrase the question. Thompson refused to do this and I said we would note his request.
+
+c. Thompson wanted a full explanation of the "WH flap." I told Thompson this involved a sensitive and active situation which had been explained to Senator Baker and that Lukoskie was not an Agency witness in this respect, but we would note his interest and see what could be provided. (I believe Thompson has already been fully exposed to the "WH flap" in an executive hearing with Bennett during which Baker asked if Bennett knew what the WH flap was all about. Baker later told me that Bennett did know, and explained it to Baker. I assumed that Bennett may have gotten this information from Jim Everett.) Thompson observed the parallel which exists between the position of CIA with respect to the "WH flap" and the White House with respect to issues it did not wish to be explored by the Attorney General in connection with the activities of the Plumbers (an observation I have been expecting for some time, but this is the first time it has been presented directly.)
+
+Mr. Lukoskie's testimony was excellent with no surprises and generally paralleled that given to Senator Baker in the Senator's office on 11 December 1973:
+
+a. Concerning any general logs that CCS maintains on contacts with cover firms, Lukoskie explained that internal procedures had changed some time in December 1972 on the information to be maintained in the logs. To assure his responsiveness to a specific question, I refreshed Lukoskie's

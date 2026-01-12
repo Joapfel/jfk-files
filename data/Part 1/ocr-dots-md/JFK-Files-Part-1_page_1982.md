@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_1982.png
+
+Convert to MarkdownSECRET
+
+23 FEB 1965
+
+MEMORANDUM FOR: Deputy Director for Support
+SUBJECT : Key Assignments
+Office of Security
+
+1. This memorandum submits proposed key assignments in the Office of Security for your information and approval; such assignments are contained in paragraph 2.
+
+2. The following key assignments for the Office of Security are proposed for the summer of 1965:
+
+a. Mr. Arthur C. Sheridan, GS-15, Chief, Technical Division, will replace Mr. James P. O'Connell, Jr. in (3-17) Okinawa as Chief, Far East Regional Security Staff during July 1965.
+
+b. Mr. James W. McCord, Jr., GS-15, who is presently attending the Air War College, will replace Mr. Sheridan as Chief, Technical Division during June 1965.

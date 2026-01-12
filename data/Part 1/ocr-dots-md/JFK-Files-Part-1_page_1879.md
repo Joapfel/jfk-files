@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_1879.png
+
+Convert to MarkdownDWAYNE ORVILLE ANDREAS
+
+1. According to press reports of 25 August 1972, Mr. Andreas is Chairman of the First Oceanic Corporation, Minneapolis, Minnesota. It was his $25,000 check which was given to Mr. Kenneth Dahlberg, Midwest Regional Chairman of the Finance Committee to Re-elect the President, and which eventually made its way into the Miami, Florida, bank account of Watergate participant Bernard L. Barker.
+
+2. Mr. Dwayne Andreas was born on 4 March 1918 at Worthington, Minnesota. He is a recognized agricultural expert, and from April 1952 to the present has responded to intelligence requirements levied by the Central Intelligence Agency through his relationship with its Domestic Contact Service.
+
+3. Beginning in 1962, Mr. Andreas served as Principal Officer of the Andreas Foundation, a funding mechanism of this Agency. The latter activity was terminated in 1967.
+
+4. Mr. Andreas' firm, the Archer Daniels Midland Company, Decatur, Illinois, provided cover for five operational assets of this Agency between 1964 and 1969. In arranging for this activity, a total of 11 of the firm's employees were briefed over the years. The Agency's principal contact with the firm was Mr. Andreas' brother, Lowell W. Andreas. Mr. Dwayne Andreas was not made witting of these cover arrangements.

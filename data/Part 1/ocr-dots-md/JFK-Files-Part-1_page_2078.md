@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_2078.png
+
+Convert to MarkdownSECRET
+
+140
+
+V6/39/84 11:04 AM
+
+# POSITION CONTROL REGISTER
+
+<table><thead><tr><th rowspan="2">EMPLOYEE NO.</th><th rowspan="2">DEPARTMENT</th><th colspan="2">PLAN</th><th rowspan="2">Position<br>Number</th><th rowspan="2">C.A.</th><th rowspan="2">ID</th><th rowspan="2">EMPLOYEE NUMBER</th><th rowspan="2">POSITION<br>BODY<br>N.D.</th><th rowspan="2">Title</th><th rowspan="2">Direct Supervising W.<br>P.P.</th><th colspan="2">DATE OF DEACH<br>(GMAIL)</th><th rowspan="2">Supervisor Mo., Do. & Yr.</th><th rowspan="2">Department Mo., Yo.</th><th rowspan="2">Line Mgr. Mo., Yo.</th></tr><tr><th>AGE</th><th>SEX</th><th>SUPERVISOR MO.</th><th>SUPERVISOR DO.</th><th>ASSISTANT MO.</th><th>ASSISTANT DO.</th></tr></thead><tbody><tr><td>REPORTS OFFICER<br>KISHIDA MALCOLM H</td><td>OPERATIONS</td><td>05-0132,08</td><td>12</td><td>1</td><td>1923</td><td>D</td><td>064820</td><td>C</td><td>21</td><td>M</td><td>10</td><td>090996</td><td></td><td>37587</td><td></td><td></td></tr><tr><td></td><td></td><td>05-0132,08</td><td>12</td><td></td><td>4923</td><td>D</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>INTELLIGENCE ASSIST<br>KIEFE PATRICIA M<br>MCCLINTOCK TAYLOR C</td><td>OPERATIONS<br>INTELLIGENCE</td><td>05-0301,26</td><td>07</td><td>1</td><td>1925</td><td>D</td><td>034831<br>036695</td><td>C<br>C</td><td>39<br>40</td><td>F<br>F</td><td>10<br>10</td><td>032964<br>032964</td><td></td><td>37587<br>37587</td><td></td><td></td></tr><tr><td></td><td></td><td>05-0301,26</td><td>06</td><td></td><td>1929</td><td>D</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>05-0301,26</td><td>06</td><td></td><td>1929</td><td>D</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>CLASSIFIED<br>OFFICE TYPE</td><td>TYPE B</td><td>05-0322,01</td><td>09</td><td>1</td><td>1927</td><td>D</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td>10</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><

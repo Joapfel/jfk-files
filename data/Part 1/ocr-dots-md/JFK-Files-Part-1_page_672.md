@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_672.png
+
+Convert to MarkdownSECRET
+Security Information
+
+Office Memorandum • UNITED STATES GOVERNMENT
+
+TO : Chief, Contact Division, CO
+
+FROM : Chief, Cover Division, PLANS/OSO
+
+SUBJECT: Field Trip to Interview Leo CHERNE
+
+Reference: CS-1357
+
+DATE: 6 June 1952
+
+1. On Wednesday, June 4, 1952, an interview was arranged by the Contact Division, CO, for Mr. Rose of the Cover Division, PLANS/OSO with Mr. Leo Cherne, President of the Research Institute of America. The meeting was held at 11:30 a.m. in Mr. Cherne's office at 292 Madison Avenue, New York City, and Mr. Rose was accompanied by Mr. Clark of the New York field office of Contact Division, CO.
+
+2. Mr. Cherne, who is currently backstopping an operation within the United States, had expressed the wish to be provided with some form of letter indicating that the Agency was requesting his cooperation, and the purpose of the interview was to inform Mr. Cherne that this was against Agency policy.
+
+3. This information was accordingly conveyed by Mr. Clark and Mr. Rose to Mr. Cherne who accepted it with good grace. In reply to a question by Mr. Rose he indicated that this refusal would in no way mitigate his desire to be of service to the Agency.

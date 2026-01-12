@@ -1,0 +1,73 @@
+# JFK-Files-Part-1_page_1506.png
+
+Convert to MarkdownTRUE
+
+107. BARQUIN, Casimiro
+108. MORALES David S.3643
+
+110. NEWMASTER, Harry Richard
+111. NASARENKO, Michael
+112. PIEPER, Harry C. 3-19a - 633
+113. PHILLIPS, William D. 2610
+114. GREENE, Harris
+115. PASLAWSKY, Nicholas
+116. PAWLYSZYN, Myroslaw
+117. FRANK, Maryado
+118. MOORE, Robert Butler
+119. PRIBANYEC, Janos
+120. None
+
+121. RASTENIS, Jonas
+122. REYNOLDS, Malcolm Eugene/032?
+123. RAUS, Juris
+124. RIKAND, Enno
+125. AMLFO-3 (Crypt)
+126. RATCLIFF, Richard
+127. REEVES, John M. Jr.10691
+
+129. REYNOLDS, Robert E.
+131. RUCKER, Lucian O. Jr.10764
+
+133. SULLIVAN, Dennis B. 25-3591
+
+136. STAROSTENKO, Henry
+137. IMLER, Norman C. 2052
+138. SLEEPER, Gordon
+139. None
+140. None
+141. GONZALO, QUESADA Jr.
+142. SAGER, John 4/192 - N-122 K-5911
+143. SMITH, Edmund Gambrill - 48-338
+144. SLENYS, Lindas K.
+145. SOLNZEFF, Henry
+146. SOLER, Eva Diana
+147. SATINSKAS, Henry
+148. STEVENS, George A.
+149. WALLIN, Jack
+150. TASHEFF, Mary
+
+TRUE
+
+151. AIMAN, James Henry WJ-48-
+152. STOIAKEN, Nicholas P.112-
+153. TALLEY, Ulo
+154. TURK, Leo L.
+
+156. THOMAS, Edward
+157. None
+158. TRIANOSKY, Harry 349
+159. VINING, James L. 25-557 - K
+160. VAN COURTNEY, Donald
+161. HARVEY, William K.N.C. 2375
+162. BULIK, Joseph 3734
+163. WILL, Kenneth John Jr.- 381
+164. SHORTALL, John W. Jr. 1485
+165. WATTS, Roy Furniss 25-3011
+166. MERTZ, Richard 2601
+167. None
+168. ZANKIN, Myroslaw
+169. ALAGAZE-1 / (Crypt)
+
+LODYGEJE SKRIPNIK - JR. 1
+
+184

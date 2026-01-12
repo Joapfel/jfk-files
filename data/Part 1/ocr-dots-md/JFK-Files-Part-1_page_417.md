@@ -1,0 +1,75 @@
+# JFK-Files-Part-1_page_417.png
+
+Convert to MarkdownNAMES
+
+1. FAULKNER, Jack W.
+2. FERRIE, David
+3. FIELDS, Dr. Edward
+4. FISCHER, Ronald B.
+5. FLICK, Charles
+6. FOX, Jerry
+7. FOX, Martin Zamora & Petro Fox
+8. FRAZIER, Buell Wesley
+9. FREERS, Edward L.
+10. FRITZ, J.W.
+
+OF MEMORANDUM & DATE
+
+78-1057 8 Mar 78
+78-0351/1 19 Jan 78
+78-0674/1 13 Feb 78
+78-1057 8 Mar 78
+78-0433/1 6 Mar 78
+78-0433/1 6 Mar 78
+78-0588/1 16 Feb 78
+78-1057 8 Mar 78
+78-1035/1 15 Mar 78, 78-0070/1
+78-1057 8 Mar 78
+
+11. FERNANDEZ, Santiago
+12. FALLA, Laureano Batista
+13. FURADO, Humberto Solis (No. 72)
+
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+
+1. GARRISON, Jim
+2. GIVENS, Charles Douglas
+3. GOLDBERG, Abraham Isaac
+4. GOLDSTEIN, Frank Richard
+5. GOLUB, Gregory Yeugenyvick
+6. GOODPASTURE, Ann
+7. GRANDA, Martin
+8. GROOM, Dewey F.
+9. GUARISCO, Peter
+
+78-0070/1 12 Jan 78
+78-1057 8 Mar 78
+78-1069/1 15 Mar 78
+78-0588/1 16 Feb 78
+78-0070/1 12 Jan 78
+78-0433/1 6 Mar 78, 78-1455/
+78-0070/27 1 Mar 78
+78-0070/22 28 Feb 78
+78-0070/22 28 Feb 78
+
+10. GENE, John Koch
+11. GONZALES, Max Gorman
+12. GIL, Manuel
+13. GRIMADER, Carlos
+14. GUITART, Augustine
+15. ISRAEL, Mesa GONZALES (No. 68)
+16. GUTIERREZ, Gervelio (No. 68)
+17. GODOY Y SOLIS, Joaquin
+18. GEIZZAFFI, John M. 8/7/27
+
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1534/1 25 Apr 78

@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_683.png
+
+Convert to Markdown14-00000
+
+DRAFT
+
+Dear __________,
+
+I am happy to know that you are agreeable to assisting
+on a continuing basis as set out in your recent communication.
+However, this letter is being prepared to formalize our under-
+standing and to make it a matter of record.
+
+Effective April 1, 1956, you are appointed a Research
+Consultant for a period of two years with an annual salary of
+$5,000.00.

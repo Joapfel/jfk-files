@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_1779.png
+
+Convert to MarkdownII. Office of DD/P
+
+1. Page 9: Important to move on an Assistant DD/P for Paramilitary operations and air support. There is continuing criticism of the Agency for lack of professionalism in these activities, most particularly airborne.
+
+2. Domestic Division.
+
+Care must be exercised and the merger of Contact Division with the balance of the Domestic Division and also care must be exercised to be sure that the Domestic Division "gathers up" all fragments of CIA's activities dispersed throughout the United States with the exception of Security Division.
+
+3. Deputy Chief of the Division of British Commonwealth
+
+Definition of this office must be worked out to avoid confusion with respect to small British areas such as Hong Kong, Singapore, British Guiana, etc. The purpose of this office probably to handle Commonwealth versus Colonial Office affairs.
+
+4. CIA/State Relations.
+
+Review of salary allowances, expense accounts, living conditions, etc., of CIA agents under State cover versus Foreign Service Officers comparable conditions should be made and if criticism legitimate, corrective measures should be taken without impairing ability of Station to handle special costly situations which might be done by specific authorization. Also audit and control of personal expenses of COS must be developed immediately.
+
+III. Office of DD/I
+
+1. Carter and McCone should agree on selection of a DD/I, Deputy DD/I and Chief of OCI as initial step in improving personnel within this office.
+
+2. Merger of O/NE and OCI should be delayed until new DD/I is installed and makes his recommendations.

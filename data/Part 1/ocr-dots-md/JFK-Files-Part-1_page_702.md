@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_702.png
+
+Convert to MarkdownSECRET
+
+Office Memorandum • UNIT
+
+STANDARD FORM NO. 08
+
+TO : Chief, Contact Division, 00
+
+FROM : Chief, Cover Division, PLANS/OSO
+
+SUBJECT: Appointment with William A. BARRON, and Lee CHERNE
+
+Reference: CS-1512 and CS-1337, CAMP 4195, Can 14's
+
+1. This will confirm Mr. Rose's verbal request that Contact Division/00 ask its Boston field office to arrange appointments for Mr. Edward Rose of Cover Division, PLANS to see Mr. William A. Barron, Chairman of the Board, Gillette Safety Razor Company, and Mr. John J. Toulmin, Senior Vice President of the First National Bank of Boston, at their convenience on Wednesday May 21, 1952. The purpose of the visit is to explore the willingness of these gentlemen to act as estensible donors of funds to support a current operation.
+
+2. This will also confirm Mr. Rose's request that the New York City field office of the Contact Division/00 arrange an appointment for Mr. Rose to see Mr. Lee Cherne, President of the Research Institute of America at Mr. Cherne's convenience on Thursday May 22, 1952. Mr. Cherne, who has for some time been backstopping the activities of an agent in this country, has apparently expressed willingness to provide cover for this agent abroad. The purpose of the interview is to discuss more fully Mr. Cherne's proposal. Cover Division would be happy to have an 00 field office representative present to insure continuity.
+
+3. As a result of the above request, Mr. Barron found to his regret that he was unable to cooperate with the Agency at the present time. Mr. Toulmin, on the other hand, was most cooperative. Mr. Cherne, unfortunately, was out of town. The New York field office has been asked to try to arrange a meeting with Mr. Cherne, as outlined above, for Wednesday afternoon, June 4, 1952.
+
+SECRET
+
+Security Information
+
+07471

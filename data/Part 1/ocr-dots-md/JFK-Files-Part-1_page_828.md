@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_828.png
+
+Convert to Markdown14-00000
+
+SECRET
+CONTINUED
+
+CLASSIFICATION
+
+FORM
+5.60
+(40)
+53d
+USE PREVIOUS EDITION.
+
+SECRET
+
+S
+
+E
+
+C
+
+R
+
+E
+
+T
+
+X
+
+PAGENO.
+
+13

@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_1384.png
+
+Convert to MarkdownSECRET
+08 - 3 -
+
+2. AMTRUNK/3, a [22] year old Cuban, in contrast to A/2, is volatile, immature and impulsive. On the other hand he is quite loyal to A/2 and his quick wit is appealing to his fellow team members. He worked under A/2 in the underground as an action type, principally engaging in sabotage. His underground work began while he was in secondary school when in 1958 he supported the revolution against Batista. In late 1960 he sided with the counter-revolutionaries and began full time anti-Castro activities. After the crack down following the Bay of Pigs invasion he avoided detection and continued to engage in underground activities. Finally when the situation became hopeless he left Cuba by air for Miami in August 1962. While A/3 has performed satisfactorily in his training up to date, his performance falls far short of the other three members. A/3 feels KUBARK should only function as support for this operation and should not interfere in the actual plans of the operation. Fortunately his role in this operation is comparatively minor and he appears willing to comply with whatever A/2 decides. Nevertheless, direct control of A/3 offers problems in the future.
+
+## B. TASKS
+
+1. Conduct black infiltration landing at Punta La Jijira (AMS 3785 I) and establish contact with the farm manager at A/3's father's farm in the Galera section (AMS 3885 III, Coords 993614).
+
+2. Through contacts of A/3 obtain transportation for A/2 to Guanaba or Havana.
+
+3. Although not definite, A/3 may remain at his father's farm and train assets in maritime reception and clandestine communications. Having completed this he would then be exfiltrated at Punta Jijira.
+
+4. A/2 will go to Havana and obtain safehouse and operational support through his contacts.
+
+5. A/2 will contact and develop two potential assets with high level connections within the Rebel Army.
+
+6. A/2 will train support and operational assets in clandestine communications as well as arrange for transportation for his exfiltration.
+
+7. Exfiltration of A/2 at Punta La Jijira or Puerto Escondido (AMS 3885 II).

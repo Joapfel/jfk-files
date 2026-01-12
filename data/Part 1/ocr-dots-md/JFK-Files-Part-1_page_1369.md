@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_1369.png
+
+Convert to MarkdownSECRET
+
+m. Another officer, Seymour Young, wrote in 1965:
+> "After reading and re-reading this man's various files, I began to feel that this man in his position would be an ideal 'agent of influence'. It was noted that he is always in a crisis area and usually in advance of the crisis and writes articles which are more concerned with the Communist successes."
+
+n. In about August 1965, SZULC was sent to Madrid as the NYT representative for Spain and Portugal. He stayed overseas until December 1968. He was present in Prague during the Soviet invasion of August 1968 and in December he was expelled, apparently for being too inquisitive. However, the West German Service has remained suspicious of the circumstances of SZULC's expulsion and the details have never been clarified. (It is interesting that SZULC wrote articles reflecting the official CZECH line concerning the defection of General Jan SEJNA who was in the Czech Intelligence service.)
+
+o. SZULC was reported by an FBI source to have gone horseback riding with Boris V. YAROCHEVSKIY, a suspect KGB officer, in Washington in June or July 1971. SZULC's file reflects no regular contact with Bloc diplomats.
+
+p. In 1972 and 1973 SZULC covered Watergate extensively and demonstrated an extreme bias against the CIA. By July 1972, SZULC's inquiries of the Department of State and his articles had taken on a distinctly anti-US Government tone. His coverage of guerrilla and terrorist groups
+
+7
+SECRET

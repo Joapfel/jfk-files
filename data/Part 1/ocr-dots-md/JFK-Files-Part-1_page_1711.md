@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_1711.png
+
+Convert to Markdown14-00000
+
+UNITED STATES GOVERNMENT
+
+Memorandum
+
+SECRET
+
+<table>
+   <tr>
+    <td>GROUP 1</td>
+   </tr>
+   <tr>
+    <td>Estimated from automatic</td>
+   </tr>
+   <tr>
+    <td>Billing and</td>
+   </tr>
+   <tr>
+    <td>Classification</td>
+   </tr>
+  </table>
+
+TO : File
+
+FROM : Chief, Alien Affairs Staff
+
+SUBJECT: Miguel Angel DIAZ Isalgués
+DPOB: 14 February 1937, Matanzas, Cuba
+#253233(C)
+
+DATE: 5 April 1968
+
+1. (Robert Fambrini) WH/4A, R.L. 1069, reported subject is scheduled for TDY travel to Argentine. He is a paroled Cuban and will be traveling in alias.
+
+(1) 2. (Fambrini) is submitting a request to TSD for an Argentine Passport with B-2 visa imprinted. This document will be used for travel in South America.
+
+3. An I-512, Reentry Document, will be requested from the Service to permit his reentry as parolee.
+
+Lars Wjenckowski
+
+OS/AAS/LW:es 5 April 1968
+
+SECRET
+
+3/1VW

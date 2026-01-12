@@ -1,0 +1,57 @@
+# JFK-Files-Part-1_page_1862.png
+
+Convert to Markdown<table><tr><td>MESSAGE FORM<br/>TOTAL COPIES:</td></tr><tr><td><table><tr><td>SECRET</td></tr></table></td></tr></table>
+
+ORIG:
+CIN:
+EXT:
+DATE:
+
+<table><thead><tr><th colspan="2">ROUTING AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>1</td><td>6</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></tbody></table>
+
+CABLE SECRETARIAT DISSEMINATION
+
+☐ INDEX ☐ DESTROY ☐ RETURN TO: _________ BRANCH ☐ FILE RID
+
+BY: _______________ PER: _______________
+
+NO INDEX ☐ FILE IN CS FILE NO.
+
+CONF:
+
+[ ] RID COPY
+
+INFO:
+FILE: V2
+
+SECRET
+(classification)
+
+PAGE 4
+(date and time filed)
+
+(elite)
+(reference number)
+
+CITE DIRECTOR
+
+TO CORRESPONDENT, PLEASE INSURE THAT THERE WILL BE NOMENTION BY HIM OF NAMES OF JKLANCE PERSONNEL AND THAT ANYTHING SAID BY YOU WILL BE FOR BACKGROUND USE ONLY, NOT FOR QUOTATION AND NOT FOR ATTRIBUTED PUBLICATION. THERE IS A VERY REAL CONCERN FOR PERSONNEL IDENTIFIED AS JKLANCE BECOMING TARGETS FOR PHYSICAL HARM BY EXTREMISTS, A PROBLEM WHICH HAS ACTUALLY ARISEN IN SOME AREAS. PLEASE ADVISE ANY CONVERSATIONS YOU HAVE WITH NEWSWEEK CORRESPONDENTS GIVING DETAILS OF QUESTIONS ASKED AND REPLIES GIVEN.
+
+END OF MESSAGE
+
+Thomas H. Karamessines
+DDP
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tr><td>GROUP I<br/>ded from automatic<br/>downgrading and<br/>declassification</td></tr></table>
+
+AUTHENTICATING OFFICER.
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

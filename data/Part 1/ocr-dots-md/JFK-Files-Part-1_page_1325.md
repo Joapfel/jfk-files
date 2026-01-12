@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_1325.png
+
+Convert to Markdownc. A/2 may also attempt to contact the following operational asset if he has an opportunity to make contact.
+
+RODRIGUEZ, age late 30s early 40s, married, former member of the Partido Pueblo Cubano. He fought with Raul Castro in the Sierra Cristobal Area. Following the Castro takeover he served as head of one of the military zones within Havana province. Eventually he was given lesser assignments and A/2 thinks he is now working in INRA in Oriente Province. He claims RODRIGUEZ assisted his underground group during 1961 by supplying trucks for transporting weapons and materials.
+
+E. COVER AND COMMUNICATIONS
+
+1. Cover
+
+A/2 will be issued documentation claiming he is an employee of a local brewery in Havana. A/3 on the other hand will be issued documentation as a bus driver within the city of Havana. Both will also be issued drivers licenses and additional items such as immunization certificates, Cuban receipts, etc. The two men will also be outfitted with disguises.
+
+2. Communications
+
+Primary communications will be established through an SW system. Both men will be given SW instruction and will be issued accommodation addresses in Miami. This instruction and these addresses in turn will be passed on to the recruited assets in PBRUMEN for use as the operation develops. Pre-arranged signals will also be devised for use by the team via telegram to indicate their progress and confirm their place and time of exfiltration. Both members will also be given an OWVL system to provide them with quick instructions in case of an emergency.
+
+F. OPERATIONAL AND SECURITY EVALUATION
+
+1. The operational aspects of Phase I portrays a mission which has considerable potential but also considerable risk. The area of infiltration is within five miles of a cruise missile site and its accompanying radar. In addition boat patrols are known to work this portion of the coast at frequent intervals. Once infiltrated the team will not have to travel far before their first contact. However, A/3 is leary of staying at his father's farm for any length of time and he does not want his father to know of his presence in Cuba. For this reason the farm will not be able to serve as a safehouse. A/2 plans on leaving the farm the same day he lands. This presents the problem of what to do with A/3. On approach is to take A/3.
+
+SECRET

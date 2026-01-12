@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_720.png
+
+Convert to Markdown104-10071-10102
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+<table><tr><td>DISPATCH</td><td><table><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr><tr><td>SECRET/RYBAT</td><td>MARKED FOR INDEXING</td></tr><tr><td></td><td>NO INDEXING REQUIRED</td></tr><tr><td></td><td>ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td></td><td>MICROFILM</td></tr></table></td></tr><tr><td>TO<br/>Chief, WOMUSE</td><td></td></tr><tr><td>INFO<br/>Chief, European Division</td><td></td></tr><tr><td>FROM<br/>Chief of Station, Oslo</td><td>NMP</td></tr><tr><td>SUBJECT<br/>RYBAT/MECHAOS Transmittal of Clippings</td><td>ACTION REQUIRED - REFERENCES</td></tr><tr><td colspan="2">Transmitted herewith are three untranslated clippings from Norwegian newspapers which may be of interest to WOMUSE.</td></tr><tr><td colspan="2"><table><tr><td>Raymond N. Mansour</td></tr></table></td></tr><tr><td>Attachment:<br/>Clippings - h/w</td><td>Distribution:<br/>2 - Chief, WOMUSE w/attachment h/w<br/>2 - Chief, European Division w/o attachment</td></tr><tr><td>CROSS REFERENCE TO</td><td><table><tr><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr><tr><td>OWOT-2911</td><td>19 March 1969</td></tr><tr><th>CLASSIFICATION</th><th>HQS FILE NUMBER</th></tr><tr><td>SECRET/RYBAT</td><td>200-006-387/3</td></tr></table></td></tr></table>

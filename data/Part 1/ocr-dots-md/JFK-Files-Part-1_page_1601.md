@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_1601.png
+
+Convert to MarkdownSECRET
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+CS-3640
+#18333
+
+7 October 1976
+
+MEMORANDUM FOR: Chief, Contract Personnel Division
+
+ATTENTION : Mr. Rod Brooks
+
+FROM : Joel E. Keys, Chief
+Corporate Cover Branch
+Central Cover Staff
+
+SUBJECT : Request for Letter of Agreement
+
+1. Please prepare a Letter of Agreement between the Agency and LPBLUE, which, through the President of the firm, Mr. Emmett M. Steele, has agreed to place on retainer a Contract Agent of Europe Division, TPHONE/1. John J. Murray, Jr. represented the Agency in these negotiations. Identities will be forwarded under separate cover.
+
+2. Effective 1 October 1976, LPBLUE will place on retainer TPHONE/1 at an annual retainer of $9,000, which will be paid to him in monthly increments of $750 by LPBLUE. The Company will overtly negotiate a retainer contract with TPHONE, which will make eminently clear that both are negotiating and concluding the contract as independent parties; that the Company, LPBLUE, will have no obligation to withhold Federal, or state income taxes, or Social Security taxes.
+
+3. In consideration of the support rendered, the Agency will pay LPBLUE $10,000 annually. Provision is made in this amount to offset any nominal expenses the firm incurs in its overt associations or support of TPHONE/1. It also serves, in part, to minimize the chances that auditing personnel will identify a wash transfer between the notional facility and payments to TPHONE/1.
+
+4. The Agency will reimburse LPBLUE in quarterly increments via a contrived contractual arrangement between LPBLUE and a notional facility of the Agency. Cancelled checks will serve as adequate accounting for monies paid LPBLUE.
+
+5. Please include the usual paragraphs of appreciation, secrecy, and prohibition of bona fide employment.
+
+6. All information relating to this agreement is classified secret. Both the Agency and the Company agree that the most stringent safeguards will be taken to protect this information, including the
+
+E-2 IMPDET
+CL BY 055087
+
+<table>
+   <tr>
+    <td>
+     WARMING NOTICE
+     <br/>
+     SENSITIVE INTELLIGENCE SOURCES
+    </td>
+   </tr>
+  </table>

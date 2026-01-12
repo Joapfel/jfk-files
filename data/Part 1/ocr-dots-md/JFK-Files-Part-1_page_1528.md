@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_1528.png
+
+Convert to MarkdownThe attention of the Government of the USA is invited to
+the fact that in the present situation the violation of the airspace of
+the USSR by an American military aircraft takes on a particularly
+dangerous character since, as has been repeatedly reported, Ameri-
+can military planes make flights around the clock over many countries
+of the world carrying thermonuclear bombs. The Government of the
+USA cannot fail to be aware of what genuinely catastrophic consequences
+for the cause of peace will ensue when an American plane with such a
+load will find itself shot down.
+
+The attention of the Government of the USA has already been
+previously directed to cases of violation of the state boundaries of
+the Soviet Union by American military aircraft. However, as proven
+by the case cited, the authorities of the USA have not taken the necessary
+measures to prevent such violations.
+
+It is absolutely obvious that it is the duty of the governments of
+the USSR and the USA to do everything possible to prevent any acts
+capable of complicating the situation and the relations between the
+Soviet Union and the USA.
+
+The Soviet Government cannot but protest against the violations
+of Soviet frontiers by an American military aircraft and it expects that
+the Government of the United States will punish severely those guilty
+of the violation of the airspace of the USSR which has taken place and
+that it will take steps to prevent such violations in the future.
+
+Taking into account the present situation, where a summit con-
+ference is being prepared, and also the spirit and purpose of the nego-
+tiations being conducted between our governments, the Soviet Government
+would not like to make this matter public or subject it to discussion in
+the UN.
+
+The hope is expressed that this matter will be settled satisfac-
+torily between the governments of the USSR and the USA and that there
+will be no need for the Soviet Government to resort to other means for
+its settlement.
+
+(Initialled by M. Menshikov)
+
+Washington, March 5, 1958
+
+(Initialled by M. Menshikov)

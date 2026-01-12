@@ -1,0 +1,77 @@
+# JFK-Files-Part-1_page_651.png
+
+Convert to Markdown14-00000
+
+**Identity 2** Father of berta amarilla,
+
+**Identity 3** Ramon **AVIN** 4283 E. Flagler Rd., Miami, FL 33115
+
+**Identity 4** Berta **SAMPEDRO**, 4284 NE 6th St., Apt. 204, Miami
+
+**Identity 5** Frank **RAEZ** (born 14 October 1910, Havana)
+Resides 1742 SW 1st Ave., Miami, Fla.
+
+**Identity 6** Margarita de **ARMAS** (born 7 December 1908, Havana)
+Resides 735 Calatrava Ave., Coral Gables, Fla. (101-324-1244)
+
+**Identity 7** "Pancho" VILLA
+
+**Identity 8** Ruben **DIAZ** Saniti, Cuba
+
+**Identity 9** Tomas **OROPESA**, employed of Ministry of Education, Havana
+
+**Identity 10** (Lt.) Rolando P. **DOBOUE Vidaud** (born 30 September 1928, Oriente, Cuba)
+
+**Identity 11** Maria Luisa **JAIMERENA Lastre** (born 21 June 1931, Bahia Honda, Pinar del Rio Cubana) Resides 501 26th Ave., Apt. 5, Vedado, Havana, Cuba.
+
+**Identity 12** Luis **RODRIGUEZ Rodriguez** aka **Andres** **FUENTE**
+
+**Identity 13** (Dr.) Tomas **QUESADA**, Liberian Consul, Havana
+
+**Identity 14** Electo **REYES de Leon** (born 14 May 1932, Santiago de Cuba)
+Former Flight Captain of Cubana Airlines who defected In Nassau, 8 March 1967.
+
+**Identity 15** (Comandante) Evelio **ADUQUE**
+
+**Identity 16** Sergio **MILIAN**
+
+**Identity 17** Antonio **GARCIA**
+
+**Identity 18** Adalio **PEREZ**
+
+**Identity 19** Miguel **PENTON Alfonso**aka **"Ramon"**
+
+**Identity 20** (fmj) **REYES**
+
+**Identity 21** Miguel Angel **RIVAS Parra** (born 13 December 1922, La Habana, Cuba)
+
+**Identity 22** Fernando **DEBENE** mar - of Puerto Rico, Guanajuato, Cuajone
+
+**Identity 23** Manolo **MAY CANEVA**
+
+**Identity 24** "Hugo"
+
+**Identity 25** "Antibal"
+
+**Identity 26** Jose **AGUIRRECHO** Sanchezaka **"El Jefe"**
+
+**Identity 27** Candida **NURGA Cristó** (201-307492 ex. 211-220)
+
+**Identity 28** Camillo **NAVARA**, Havana (merchant)
+
+**Identity 29** Alfredo **FORMOSO Prieto** (born 19 May 1921, Corunna, Cuba)
+
+SECRET
+
+CS COPY
+
+1976-01-06
+SIGNATURE: ACOHN MIGUEL
+ISSUED BY: FLEETCOR
+DATE: 01/10/1986
+DUE DATE: 02/07/1986
+PAYEE: CUBAN AIRLINES
+DUE DATE: 02/14/1986
+MORTGAGEE:
+TITLE: SECRET
+COPY: 1/1

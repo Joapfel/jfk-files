@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_666.png
+
+Convert to MarkdownSECRET
+Security Information
+
+7 February 1952
+
+MEMORANDUM FOR: Mr. Edward A. Rose
+
+SUBJECT: Cover Story for Research Institute of America
+
+1. Mr. Acon, who has his MA in International Economic Relations from the University of Chicago, has been working for ECA. He has been hired by the Research Institute of America to do economic research and writing for their weekly newsletter on economic subjects having to do with Western Europe. (Mr. Acon knows Dutch, German, French and Italian.) It could be admitted that he would like eventually to do such writing abroad, but has not yet found a way.
+
+2. His hiring may be delayed for some time. Mr. Leo Cherne will be informed when the story is to be used. By that time, Mr. Acon will have called on Mr. Cherne.
+
+(DANIEL J. WHEALTON)
+
+WE-4
+
+DJW/atp
+
+07439

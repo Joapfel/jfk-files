@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_1870.png
+
+Convert to Markdown18 MAY 1961
+
+MEMORANDUM FOR: Chief, WH Division
+ATTENTION : Mr. Calvin W. Hicks, W-4
+Room 2828 B
+Quarters Eye
+
+FROM : Deputy Director of Security (Investigations and Operational Support)
+
+SUBJECT : HITCH, Cal William (A)
+54333
+
+1. This memorandum confirms receipt of Mr. Hicks' verbal request on 17 May 1961 for security approval for the issuance of documentation in the captioned alics.
+
+2. This memorandum also confirms the verbal security approval furnished to Mr. Richard Major, TSD/IB, on 17 May 1961 for the issuance of the requested documentation.
+
+3. It is understood that the documentation to be issued will include a D. C. driver's license, a Social Security Card, and an AIA Insurance Card. It is also understood that the requested documentation will not be backstopped and will be used only for flash purposes in connection with an operational assignment in Florida. According to Mr. Hicks the alias has been registered with RID/OR.
+
+h. Upon termination of Mr. Hicks assignment the documentation should be returned to TSD/IB.
+
+FOR THE DIRECTOR OF SECURITY:
+
+CC: TSD/IE
+SG: JHKAS/csm (5-16-61)
+CLOSED
+
+Victor E. White
+
+ZEPHYR
+
+<table><tr><td>DDS/J&S</td></tr><tr><td>ADDS/J&S</td></tr><tr><td>Chief/JSD</td></tr><tr><td>Dcp Chief</td></tr><tr><td>A to Chief</td></tr></table>
+
+P5D
+
+<table><tr><td>To:</td><td>Closed</td></tr><tr><td></td><td></td></tr><tr><td>Fax(s)</td><td>P5D</td></tr></table>
+
+24MAR1961

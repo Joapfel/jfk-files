@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_1361.png
+
+Convert to MarkdownSECRET / SENSITIVE
+
+on-island anti-Castro forces, and tying up CIA time, money,
+and manpower for an operation of their own creation. Following
+are some reasons which might have contributed to its failure:
+
+a. The controversial nature of the principal initiators, Tad SZULC, Jorge VOLSKY and MORENO. The AMTRUNK operatives made it known that they were anti-U.S.G. and anti-CIA and accepted assistance only to accomplish their own purposes. They were not under CIA control.
+
+b. SZULC, although reportedly not directly involved in the operation, was kept fully informed of its activities by MORENO and perhaps others.
+
+c. SZULC's direct contact with the White House, if true, placed him in a position to pass U.S. policy information on Cuba to the opposition. (There is a note by Richard Helms on a 23 September 1963 cover sheet requesting Alfonso RODRIGUEZ to maintain periodic contact with SZULC on Cuban matters at Presidential request going back many months.)
+
+d. RABEL (AMLEO-3), who "defected" to the U.S. in 1962, was knowledgeable of on-island AMTRUNK targets. RABEL, following termination, returned to Cuba allegedly to bring out his family, and never returned. There is a possibility that he was a CASTRO agent.
+
+e. CUBELA was knowledgeable of at least some of the AMTRUNK agents. GUIN (AMTRUNK-10) was a codefendant in the CUBELA trial. (Believe GUIN may have been given a stiffer sentence than CUBELA and may still be in prison.)
+
+4
+
+SECRET / SENSITIVE
+
+SECRET / SENSITIVE

@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_434.png
+
+Convert to Markdown14-00000
+
+2 Mar Regno 7 See reverse side
+Who interviewed
+
+N/M dx 78 - 10 35 - { items 16, 17, 18, more info
+N May 79 - 156 5 / 11 19-NR
+Note they have numbers li
+
+Price back
+
+17 Grayston Lynch - se-
+Key West Towers
+Apt 411-A
+S. Roosevelt Blvd,
+Key West 33040 mid 1972

@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_1106.png
+
+Convert to MarkdownSECRET
+
+CSI NO. 10-5
+
+CLANDESTINE SERVICES
+INSTRUCTION NO. 10-5
+
+SECURITY
+
+39 September 1963
+
+f. Unless otherwise designated by the Office of Security, investigative data in either Operational Approval or Covert Security Approval cases involving aliens may be shown to proper offices of the division and may, if deemed necessary by the division, be forwarded to the field. The dispatch or cable in such cases will be coordinated with the Counter Intelligence Staff and the Office of Security. No investigative data will be transmitted or disclosed to other than Agency staff officials without the specific prior approval of the Office of Security. The need-to-know principle will be applied strictly in such cases. No investigative data regarding United States citizens will be transmitted to the field without the specific prior approval of the Counter Intelligence Staff and the Director of Security and subsequent to such approval without coordination with the Office of Security on the dispatch or cable involved.
+
+8. COVERT SECURITY APPROVALS FOR LIAISON WITH UNITED STATES OFFICIALS
+
+Requests for Covert Security Approvals for Liaison with U.S. officials, whether such officials are in the United States or abroad, will be transmitted directly to the Office of Security. Each request shall be specifically indicated as a request for a Covert Security Approval for Liaison. The request shall be accompanied by all available biographic information, to include wherever possible in cases of civilian employees of United States Government agencies the name, date and place of birth, the employing agency, and the position and assignment of the person involved. In cases involving military personnel the minimum biographic information required shall consist of the name, date and place of birth, rank and serial number, and the parent service. In each case the details of the liaison with the individual must be set forth.
+
+7. SERVANTS OF AGENCY EMPLOYEES
+
+Requests to headquarters for appropriate checks on domestic personnel employed in the homes of Agency employees overseas shall be forwarded by the requester to the Office of Security accompanied by all available biographical information and the results of overseas investigations.
+
+8. EMPLOYEES OF OTHER U.S. GOVERNMENT AGENCIES
+
+Proper clearance of staff or contract employees (including indigenous employees) of other U.S. Government agencies for operational use includes notification to and approval by the employee's parent agency in Washington. Requests for clearance will be forwarded to the Chief, Counter Intelligence Staff, Attention: CI/Liaison. Clearance will not be given until the approval of the parent agency has been obtained. If, after such approval is obtained, it is decided that the employee will not be used as requested, or upon termination of use, CI/Liaison will be notified so that the employee's parent agency may be advised.
+
+9. EMPLOYEES AND OFFICIALS OF FOREIGN SERVICES
+
+Requests for searches of the indices of other United States agencies or the Office of Security, or investigation of employees or officials of foreign
+
+REPRODUCTION PROHIBITED SECRET
+
+004138

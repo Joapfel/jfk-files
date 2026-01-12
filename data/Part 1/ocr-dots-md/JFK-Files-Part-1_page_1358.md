@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_1358.png
+
+Convert to MarkdownSECRET SENSITIVE
+
+AMTRUNK Operation
+
+INTERIM WORKING DRAFT
+
+14 February 1977
+
+1. It is possible that the AMTRUNK Operation might have been a political action operation run against the U.S.G./CIA. (See the separate memorandum on "Operations to Split the Castro Regime.")
+
+2. In late 1962 or early 1963, pressure was exerted on CIA by Higher Authority (State Department and the White House) to consider a proposal for an on-island operation to split the CASTRO regime. The proposal was presented to Mr. HURWITCH, the State Department Cuban Coordinator, by Tad SZULC (AMCAPE-1) of the New York Times. On 6 February 1963, Albert C. DAVIES, (Lt. Col. on military detail to WH/4 - Cuba) met with SZULC at SZULC's residence, to discuss the plan. SZULC referred to it as the "Leonardo Plan." While at first hesitant, SZULC finally revealed that Dr. Nestor MORENO (AMICE-27) was one of its prime originators. SZULC said that he first thought of bringing the plan to the attention of President KENNEDY, as he had had a standing invitation, since November 1961, for direct contact with President KENNEDY, Attorney General KENNEDY, or Mr. McGeorge BUNDY, on matters concerning Cuba. He decided against that approach, however, and instead determined to use the Cuban Coordinating Group. SZULC later said that George VOLSKY (AMTRUNK-1) masterminded the plan, assisted by MORENO. It was agreed that CIA representatives would meet with SZULC and the two Leonardo planners, MORENO and VOLSKY, in Washington.
+
+SECRET SENSITIVE

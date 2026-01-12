@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_793.png
+
+s in his office and never the office director. They were interested in Manton, Thompson and Peary.
+
+10. Plans: The next meeting will be on 28 April at 1400. [WUSLAB/1] goes to Baltimore on 29 April to have his eyes checked.
+
+FLOYD B. MCCULLY
+
+SECRET,
+
+NO FILE DISTRIBUTION
+
+9/BR

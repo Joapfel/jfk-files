@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_890.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>SECRET/NOFORN<br/>CONTINUED CONTROL</td>
+  </tr>
+</table>
+
+OPERATIONAL AND SOURCE COVER SHEET
+
+**FROM:** Mexico City **REPORT NO:** JEM-5348
+**REPORT MADE BY:** Dolores R. CASSAVETIS:pg30 **NO PAGES:** 1
+**REPORT APPROVED BY:** Willard C. CURTIS **NO. ENCLOSURES:**
+**DATE OF REPORT:** 16 December 1960 **REFERENCES:** JEM-5321
+
+DISTRIBUTION:
+
+By copy to: # 1-Headquarters Headquarters File No.
+1-EM, PAO, NA, MA, AA, I&NS 201-
+Orally to: 1-LA Field File No.
+3-Files P-7035
+JMPUCK
+
+SOURCE CRYPTONYM: LIFEAT ID NO. IG NO.
+KRYPTON: ☐ YES ☐ NO
+
+SOURCE, OPERATIONAL DATA, AND COMMENTS:
+
+SUBJECT : Jose Xavier CORTES Hernandez
+
+COMMENTS: Father Manuel PEREZ Alonso, Jesuit and contact of COS, was the source of field comment no. 2. According to Father PEREZ Alonso, CORTES was never a priest but had been a seminarian. Father PEREZ Alonso has been conferring with Archbishop Miguel Dario Miranda, Primate of Mexico, regarding CORTES Hernandez and possible actions against him.
+
+FORM 4-80 1987 USE PREVIOUS EDITIONS.

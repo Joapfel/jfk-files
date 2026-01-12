@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_1500.png
+
+Convert to MarkdownSECRET
+
+Subject: Name Trace - Henry L. Britton and Praetor Publishing Corporation (Con't)
+
+2. The results of this check are forwarded in this format to allow you to respond as you may wish to OCC who had requested an answer by 13 January. This confirms my phone conversation of this date.
+
+Lee F. Patton
+Chief, OSC/OC
+
+-2-
+
+SECRET

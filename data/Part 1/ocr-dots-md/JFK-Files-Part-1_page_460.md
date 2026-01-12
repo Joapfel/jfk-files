@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_460.png
+
+Convert to Markdown14-00000
+
+<table><thead><tr><th>DOC REF/SECONDARY(2)</th><th>FCN</th><th>DATE</th><th>FSM</th></tr></thead><tbody><tr><td>MMMT-06312</td><td>AMROD WAS 201-020481</td><td>019-124-032/03 23/02/66</td><td>S-E-C-R-E-T</td></tr><tr><td>MMMT-06347</td><td>NAMES TRACE REQUEST-FRANK KENNEDY, ETC</td><td>050-002-004 03/03/66</td><td></td></tr><tr><td>MMMT-06470</td><td>TRANSCRIPTION OF PCM/PPS MEETING ON 20 MARCH 1966 MARKING THE CLOSING OF WEEK OF SOLIDARITY WITH VIETNAM</td><td>050-009-006 07/04/66</td><td></td></tr><tr><td>MMMT-06479</td><td>KAPOK RECD 18 APR 66 LIRAVINE-3</td><td>201-0792623 12/04/66</td><td></td></tr><tr><td>MMMT-06591</td><td>NATIONAL CONFERENCE OF DEMOCRATIC STUDENTS 26-29 APRIL 1966</td><td>050-004-110 04/05/66</td><td></td></tr><tr><td>MMMT-06710</td><td>TYPEC/LIRING/LIENVOY/TRANSMITTAL OF TRAFFIC</td><td>050-006-075/04 26/05/66</td><td></td></tr><tr><td>MMMT-06736</td><td>TRANSMITTAL OF REPORT-REORGANIZATION OF SECURITY OF DFS SECURITY SQUAD</td><td>050-005-008 26/05/66</td><td></td></tr><tr><td>MMMT-06763</td><td>TRANSMITTAL OF TRAFFIC</td><td>050-006-075/04 02/06/66</td><td></td></tr></tbody></table>
+
+E2 IMPDET CL BY 011981
+
+<table><thead><tr><th>CODE ROUTING</th><th>SECONDARY/DOC REF</th></tr></thead><tbody><tr><td>AO WH/C/C</td><td></td></tr><tr><td>AO C/WH/1</td><td></td></tr><tr><td>AO IP</td><td></td></tr><tr><td>AO WH/REG</td><td></td></tr><tr><td>AO WH/REG</td><td></td></tr><tr><td>AO C/WH/1</td><td></td></tr><tr><td>AO C/WH/1</td><td></td></tr><tr><td>AO C/WH/1</td><td></td></tr></tbody></table>

@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_1274.png
+
+Convert to MarkdownSECRET
+SENSITIVE
+
+2. Assist State in the development of post-Castro concepts, leaders, and political groups.
+
+3. Provide covert support to the CRC and to such other Cuban political groups as appropriate.
+
+4. Develop contacts in the "power centers" of the Cuban government as a possible means of offsetting the regime.
+
+**E. Economics!**
+
+1. Participate in inter-agency economic action planning and execution.
+
+2. Prevent essential material and supplies from reaching Cuba.
+
+3. Encourage free World Trade with Cuba.
+
+**D. Political!**
+
+1. Develop, maintain, and exploit the will of the Cuban people to resist Castro/Communist.
+
+2. Discredit the Castro regime in Cuba, in the United States and elsewhere.
+
+3. Develop and exploit tensions between Cuba and Soviet bloc members.
+
+**F. Resistance!**
+
+1. Be prepared to covertly provide limited personnel
+
+SECRET
+SENSITIVE
+
+our ally
+excluded from automatic
+downgrading and
+declassification
+
+significant international
+
+CONFIDENTIAL
+FOR INTERNAL USE ONLY

@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_1777.png
+
+Convert to MarkdownSECRET
+
+1. The organization of the DCI/DDCI's office is currently under study.
+
+2. The Audit Staff is removed from the DD/S area and placed under the Inspector General.
+
+3. The Controller is removed from the DD/S area, given greatly expanded responsibilities, and will report directly to the DCI/DDCI's office.
+
+4. The General Counsel's office is removed from under the DD/S, will resume responsibility for Congressional relations, and will report directly to the DCI/DDCI's office.
+
+5. The Office of Operations is disbanded. Contact Division to DD/P as nucleus for Domestic Division. Foreign Documents Division to be combined with OCR Library. Foreign Broadcast Information Division to be independent unit reporting directly to DD/I.
+
+6. Position of Assistant DD/P for Covert Action abolished.
+
+7. Assistant DD/P for Paramilitary and Air Support Operations created.
+
+8. Central Support Staff under DD/P created. This will draw together such support as personnel, logistics and budget and will also take over technical support from those operating units of TSD which remain in the DD/P, e.g., secret writing, audio operations, etc. The Central Support Staff will also absorb the present Operational Services Staff and certain other activities.
+
+9. A Special Task Force is created for such operations of a magnitude that transcends the capabilities of one division.
+
+10. The International Organizations Division and Covert Action Staff are combined, putting together our largest activities in this field.
+
+11. A Domestic Division is created. This will absorb as its nucleus Contact Division of CO from the DD/I, the Commercial Staff, the Air Proprietary Branch from DPD, ultimately the management of CAT from the DD/S, and those aspects of cover which involve contacts with the U. S. business community.
+
+12. A Deputy Director for Research is created. This organization will take over the Office of Scientific Intelligence from the DD/I, Special Projects from DPD, all research and development from TSD, and other research and development activities currently located in various units of the Agency such as the Office of Communications, NPIC, etc.
+
+SECRET

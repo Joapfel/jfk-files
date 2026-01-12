@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_2043.png
+
+Convert to Markdown14-0000
+
+<table><tr><td>104-10131-10014</td></tr></table>
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+MEMORANDUM FOR: Director of Personnel
+
+ATTENTION : Mrs. Dorothy Turner
+Room 5E03
+
+FROM : Deputy Director of Security (Investigations and Operational Support)
+
+SUBJECT : (SAFLEY, Harold F.) (A) #73036 07
+
+1. This is to advise that a CIA Identification Card will be issued in the above captioned alias to an employee of TFW. You are requested to establish an indices card in the above alias in order that the Office of Personnel will be in a position to acknowledge any inquiries that might be received concerning the Subject.
+
+2. Upon receipt of any inquiry, you are further requested to promptly acknowledge Agency employment for such individual and then to advise the Chief, Cover Support Section of the Office of Security, extension 6280 or 7380 or in the latter's absence, Mr. George Ladner, TFW/Security, extension 6055.
+
+FOR THE DIRECTOR OF SECURITY:
+
+Victor H. White
+
+cc: 00/C
+
+KUHNKE/efb
+
+6 November 1962
+
+PENDING M/R: See TFW memorandum dated 5 November 1962 which was concurred in by Moorhouse of CCS with the understanding that I would advise Mr. Bannerman of the action taken and obtain his approval upon the latter's return on or about 9 November 1962. An exception was made in this case to the general rule that CIA identification in alias <u>will not</u> be issued to (State Department) integrees. The exception was granted because of the Subject's position and long experience in matters of this nature and due to the fact that it will be strictly controlled and limited to assignment which will be directly by Mr. Harvey.
+
+Ervan E. Kuhnke, Jr.

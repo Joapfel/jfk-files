@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_589.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+to have been maltreated.
+
+8. According to articles in the Cuban papers the three technicians were arrested while in the apartment over the NCNA office and completing the installation of the equipment. The press article adds that the key to Mrs. Lennox's apartment was found on one of the technicians who identified the apartment to which it belonged. All Cuban press releases have referred to the men by alias and have not identified them as Government or Agency employees. It is unclear at present what story had been agreed upon by the technicians and station personnel to be used in the event they were caught. (While being interrogated with Neet, Christ indicated that Neet was his boss, and Neet consistently denied any knowledge as to why he was being held.) The sub-lease for the apartment in which the men were caught is in the name of the stay-behind agent with the original lease being in the name of [Mills], the FE Division Case Officer.
+
+9. Initial information indicated that the three technicians would be charged with espionage "against the people of China". Subsequent press releases have been unclear on this point. An attempt by Consul Hugh Kessler to contact the three men at 1730 hours on 17 September was unsuccessful. He was not permitted to see them but was told they were in custody.
+
+10. The three technicians travelled to Cuba as tourists under very light commercial cover, two of them working for a company in New York and the third, one in Baltimore. In each case the cover company consists of a telephone answering service and a name on the door. Telephone messages and mail are picked up periodically by an Agency contract employee. The men were provided with this cover as well as unbackstopped home addresses for use when entering or leaving Cuba as tourists since the filling out of the landing card requires this information. Subsequent to their detention the home addresses have been partially backstopped so that inquiries will indicate that someone with this alias name had lived in the apartment house in question. Insofar as the cover companies are concerned, efforts are being made to provide a backstop to withstand inquiries from the press should the Cubans reveal this information. In view
+
+14-00000

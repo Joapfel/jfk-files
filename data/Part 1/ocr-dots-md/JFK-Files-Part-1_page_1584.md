@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_1584.png
+
+Convert to MarkdownCONFIDENTIAL
+
+10 April 1963
+
+Security Division
+Federal Aviation Agency
+Washington 25, D. C.
+Attention: Mr. Charles F. Niles
+Subject: HARVEY, WILLIAM K.
+
+Dear Sir:
+
+In accordance with existing arrangements made with the Federal Aviation Agency and to confirm our oral notification, it is requested that your files reflect the above-named individual, an employee of this Agency, as having been issued Federal Aviation Agency Credential Number 4883, on 2 January 1963.
+
+In the event of an inquiry, this information may be released to verify the authenticity of this credential.
+
+Nicholas R. Zubon
+Chief, Building Security Branch
+Office of Security
+
+FORM 10-62 1995
+
+CONFIDENTIAL
+
+GROUP I
+Excluded from automatic downgrading and declassification
+
+(4-40)

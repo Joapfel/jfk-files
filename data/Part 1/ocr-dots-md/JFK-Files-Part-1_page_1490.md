@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_1490.png
+
+Convert to MarkdownCONFIDENTIAL
+
+SUBJECT: Manuscript and Galley Proof of Undercover: Memoirs of an American Agent by E. Howard Hunt
+
+NOTES:
+
+A. Pages and lines underlined and appearing at the beginning of the items below refer to the galley proof.
+
+B. Corresponding page and line listings as they appear in the manuscript are provided in brackets at the end of each item.
+
+1. Page 57, line 6 from bottom of page; the name (Henry Pleasants') Mr. [Pleasants] retired under cover and his past relationship should not be exposed. It is also recommended that efforts be made to have the name "John Richardson" also removed from the same sentence containing Mr. [Pleasants'] name. (Page 96, line 17.)
+
+2. Page 59, line 38 beginning with "However" and ending on page 60, line 2 with "milieu". Rutherford T. "Pinky" Walsh retired under cover and his CIA relationship should not be exposed. His assignment in [Paris under student cover] is similarly classified. The description of this activity just a couple of pages before the author gratuitously mentions the lack of an agreement between the Agency and the [French barring unilateral operations in France] (Item 4 below) is potentially an additionally damaging blow to liaison relationships. (Page 100, lines 10-14.)
+
+CONFIDENTIAL
+
+C11
+
+5/70C

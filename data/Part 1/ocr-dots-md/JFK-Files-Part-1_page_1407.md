@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_1407.png
+
+Convert to Markdown<table>
+  <tr>
+    <td rowspan="2">14-0000</td>
+    <td colspan="2" rowspan="2">104-10104-10172</td>
+    <td colspan="2">2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992</td>
+  </tr>
+  <tr></tr>
+</table>
+
+<table><thead><tr><th>CLASSIFICATION<br>S E C R E T</th><th colspan="3">PROCESSING</th></tr><tr><th>TO<br>Chief, WH</th><th>PRO-POSED</th><th>ACTION</th><th>ACCOM-PISHED</th></tr></thead><tbody><tr><td>INFO.</td><td>XXX</td><td>MARKED FOR INDEXING attachment<br>NO INDEXING REQUIRED</td><td></td></tr><tr><td>FROM<br>Chief of Station, JMWAVE</td><td></td><td>ONLY QUALIFIED HEADQUARTERS DESK CAN JUDGE INDEXING</td><td></td></tr><tr><td>SUBJECT<br>TYPIC</td><td></td><td>ABSTRACT</td><td></td></tr><tr><td>Contact Report - IDEN *A</td><td></td><td>MICROFILM</td><td></td></tr><tr><td>ACTION REQUIRED · REFERENCES</td><td colspan="3">ACTION REQ: See Para 4</td></tr></tbody></table>
+
+1. IDEN A, a wealthy and prominent New Orleans businessman, was recommended to JMWAVE and made available by Headquarters. He had been cleared by Headquarters for JMWAVE use under date of 15 December 1962 in DIR-05291.
+
+2. IDEN A was initially contacted for JMWAVE by Eli A. SACHTSCHALE, who was introduced to him by the New Orleans KUJUMP office on 27 December 1962. The JMWAVE cover situation was discussed with IDEN A by SACHTSCHALE and IDEN A's assistance was requested. IDEN A was first enlisted as the President of YOCOUGH, a JMWAVE cover company. Also cleared and used as officers of YOCOUGH are IDEN D and IDEN E. Although cleared and witting, these individuals are contacted only when their signatures on YOCOUGH documents are required, all contact normally being with IDEN A. IDEN A also permits use of his own company as a funding mechanism for YOCOUGH. He has acted as a spotter for JMWAVE and has recommended several other businessmen who are being used by JMWAVE. He has also made available several oil companies in which he owns interests for use in back-stopping cover of JMWAVE operational vessels. It is known that he is used by Headquarters for several JBECHO activities. IDEN A is contacted several times each month by JMWAVE.
+
+3. IDEN A has met Rufus E. MANGROLL and Colin R. HOWGRIND as well as Eli A. SACHTSCHALE. He knows YOCOUGH, YOAFT and the JMWAVE operational vessel IDEN B. He knows that Miami attorney IDEN C participates in JMWAVE activities. So far as is known, he knows no other JMWAVE personnel or assets.
+
+4. It is requested that a 201 number be assigned IDEN A and that it be made known to JMWAVE.
+
+ANDREW K. REUTEMAN
+
+ATTACHMENT;
+Identities u/s/c
+
+<table><tr><td>CROSS REFERENCE TO</td><td>DATE TYPED</td><td>DATE DISPATCHED</td></tr><tr><td></td><td>12 May 65</td><td>MAY 19 1965</td></tr></table>
+
+DISTRIBUTION:
+✓ 3 - C/WH/C w/att
+u/s/c
+
+DISPATCH SYMBOL AND NUMBER
+
+UFGA-21422
+
+HEADQUARTERS FILE NUMBER
+
+201-
+
+<table><tr><td>CLASSIFICATION<br>SECRET</td></tr></table>

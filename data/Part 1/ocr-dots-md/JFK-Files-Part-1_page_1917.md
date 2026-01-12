@@ -1,0 +1,74 @@
+# JFK-Files-Part-1_page_1917.png
+
+Convert to MarkdownRETURN TO CIA
+Background Use Only
+- Do Not Repro duce
+
+INTERVIEW PROCESSING SHEET
+
+ROутИНg
+
+Subject: Morale David J. # 39418
+
+advice received reveals that the subject person is scheduled
+for overseas travel as indicated below -
+
+| Departure Date | 28 7/7/55 | Title & Grade | GS-12 | S. Alemson-Bale |
+|---|---|---|---|---|
+| 16-17 | [Illegible] | Office & Division | VY H | |
+| Destination | [Illegible] | | | |
+| Cover | State Integrees | Passport Type & No. | | |
+
+Return Date
+
+PRELIMINARY PROCESSING - A review of this file and the above information reveals:
+
+No special briefing topics or See below
+
+No special cover problems or See below
+
+No special debriefing by other or Requires debriefings on (as circled) SI Q CRYPT
+
+No special badges or credentials or See remarks
+
+REMARKS
+
+Date of Polygraph 10/5/53
+
+INTERVIEW - On the indicated date subject was interviewed on the following points:
+
+1. Security regulations in general.
+
+2. ✓ Travel Precautions (to carry nothing identifying him with CIA).
+
+3. Cover Story (nature of cover; adequacy of prior briefing; possibility of inconsistencies; briefing of spouse).
+
+4. Personal Affairs (proper handling of bank account, credit accounts, forwarding of mail).
+
+5. ✓ Personal Correspondence (no mention of CIA in letters to and from subject).
+
+6. Personal Conduct (a. general good behavior, b. no black market or currency transactions, c. no undue duriosity in natives in his area, d. no attempts to identify or approach otherCIA personnel in area except for official business and through official channels).
+
+7. Other Travel (only official travel in or through Soviet controlled areas).
+
+8. Other:
+
+ACTION -
+
+[ ] Security debriefing by the undersigned completes action necessary in this case.
+
+or
+
+[ ] The following were obtained from subject and forwarded appropriately for disposition.
+
+[ ] Subject was referred to the following for the indicated additional briefing:
+
+[ ] Subject was permitted to retain the following for turn in at a later date.
+
+By: R. Dale Wills
+
+Date: 28 NFFS3 /1/45
+
+V/V
+
+H/W

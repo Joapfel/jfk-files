@@ -1,0 +1,143 @@
+# JFK-Files-Part-1_page_750.png
+
+Convert to MarkdownSEPARATE COVER ATTACHMENT
+
+to HMMA-34792
+
+IDENTITIES:
+
+1. Ricardo *GARIBAY Ortega*, an independent Mexican socialist, political editorialist in "EXCELSIOR" and prize-winning author of political books.
+2. "PRENSA SELECTA INTERNACIONAL"
+3. Eunice ODIO Infante, a naturalized Guatemalan of Costa Rican origin who resides in Mexico City and writes for "EL SOL" and "EL DIA".
+4. Alfonso *MARTINEZ Estevez*, former personal secretary to deposed Guatemalan Communist president Jacobo ARBENZ.
+5. Ernesto de la *PENA y Munoz*, lexicographer and linguist employed by Encyclopedia Britannica's Spanish language edition. He has a reputation as a fair poet in Mexico and writes for the leftist "EL DIA" and the center-left "EXCELSIOR".
+6. Manuel CALVILLO, Mexican author and editorialist in the Sunday literary sections of Mexican newspapers.
+7. Alicia REYES, writer for the newspapers "EL SOL" and "EL UNIVERSAL". Once a member of the Mexican CP and resident of Moscow.
+8. Francisco *ZENDEJAS*, book critic for "EXCELSIOR", Mexico City TV channel #4 and Radio Station XEW. He was once personal secretary to Leon TROTSKY. Chronic alcoholic.
+9. Rodrigo GARCIA Trevino, Mexican political author, historian and literary critic.
+10. René *ARTEAGA*, former head of the Young Communists of El Salvador. Exiled to Guatemala and later to Mexico. Economic reporter for "EXCELSIOR" and formerly for "EL DIA". No longer active in CP.
+
+CS COPY
+SECRET
+
+14-00000
+
+SECRET
+
+UNCLASSIFIED
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-08
+
+1971-07-0

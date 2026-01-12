@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_1189.png
+
+Convert to MarkdownS-E-C-P-E-T
+
+- 3 -
+
+D. Det. J furnish 1 C-54 and crew in steady capacity until further notice. Standby capacity is herein defined as capability to position the aircraft at any port of entry in east, south or southwest U. S. from Boston to Los Angeles within 15 hours.
+
+E. Assuming the subjects will be released in Havens or Mexico City, Det. I will prepare mission folders for flights from most probable ports of entry to Isolation and Andrews Air Force Base.
+
+RICHARD J. SKINNER
+
+Distribution:
+
+Original & 1 - CI Staff
+3 - OS
+3 - CP
+3 - MB
+3 - C/FE
+3 - C/TSD
+3 - CCG
+3 - TFW
+3 - C/WH
+3 - LFD/DDR

@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_1785.png
+
+Convert to Markdown# PART I
+
+This section deals primarily with the organization of the Central Intelligence Agency and represents the view of the entire Working Group.
+
+SECRET

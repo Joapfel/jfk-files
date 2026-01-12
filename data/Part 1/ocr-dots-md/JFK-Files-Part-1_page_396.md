@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_396.png
+
+Convert to Markdown14-00000
+
+snarch 78 Request
+Maycrusk - (wesogue)
+
+2. George Breen
+3608 Mason St
+Fairfax, Va 22038
+} Tokyo Field
+
+3. Eleanor Breen
+Tokyo - Last May - Dep.
+} Tokyo Field
+
+4. William Broe
+Mass.
+
+5. Juni Delaney - cover - Field
+(Bangkok DC OS)
+
+6. Jenny Fox (SR off) Ret Fla.
+PO Box 5935-14 AM F
+Miami, Fla 33159
+
+} Tokyo Field
+} Tokyo Field
+} Cover - Field
+} Ret Fla.
+} 5935-14 AM F
+} Miami, Fla 33159"}]

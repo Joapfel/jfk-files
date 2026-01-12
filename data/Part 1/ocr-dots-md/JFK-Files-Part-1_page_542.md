@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_542.png
+
+Convert to MarkdownSECRET
+
+Attachment No. 2
+
+# Some BEHEIREN Activities and Accomplishments
+
+1. Regular once-per-month demonstrations at a public park in Tokyo, consisting of anti-American speeches and followed by street marches.
+
+2. An all night TV "teach-in" with BEHEIREN activist leaders, along with special guest, U. S. pacifist Carl Oglesby (Chairman of the Students for a Democratic Society.)
+
+3. A full page advertisement in the New York Times (16 November 1965), followed by another full page ad in the Washington Post (3 April 1967), appealing to Americans to stop the war in Vietnam.
+
+4. A "Meet in Conference of Two Nations for Peace in Vietnam," held in Tokyo in August 1966, and attended by BEHEIREN activists and seven U.S. pacifist leaders (including Dave Dellinger), and observers from France, England, Canada, the USSR, Pakistan, and Mongolia.
+
+5. A mass meeting in Tokyo in October 1966, guest speakers of which were French pacifists, Jean-Paul Sartre and Simone de Beauvoir.
+
+6. Nationwide tours of Japan for lectures and peace rallies for such anti-Vietnam war pacifists as Professor Howard Zinn and the late A. J. Muste of the United States, Claude Bourdet of France, and Thich Nhat Hanh of South Vietnam.
+
+7. A mass meeting in Tokyo in January 1967, sponsored by BEHEIREN and featuring U.S. folk singer and pacifist Joan Baez.
+
+8. A continuing program of direct distribution of pamphlets to U.S. troops stationed in Japan, and those coming to Japan on warships, and for rest or hospitalization from Vietnam.
+
+9. Participation by two BEHEIREN activist leaders (Kyoto University professor KUWABARA Takeo and International House staffer TSURUKI Yoshikyuki, taking advantage of a trip to the U.S. to attend a non-political Japan-America Congress on Cultural Problems) in anti-Vietnam war speech rallies and demonstrations at Dartmouth University in early May 1967, followed by an unsuccessful attempt to invite Cassius Clay to visit Japan on behalf of BEHEIREN.
+
+10. Continuing efforts to bring to Japan for a nationwide
+
+SECRET
+
+14-00000

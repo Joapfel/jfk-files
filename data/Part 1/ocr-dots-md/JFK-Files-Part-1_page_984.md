@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_984.png
+
+Convert to Markdown14-00000
+
+BANNISTER, Guy
+
+1. MEMO FOR THE RECORD (6 Sept 77, Russ Holmes)
+
+page 3: ....following names, some of whom may have been in contact
+with Loran Hall: BANNISTER, Guy (plus 12 others).

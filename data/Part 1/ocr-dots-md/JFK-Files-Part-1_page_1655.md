@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_1655.png
+
+Convert to MarkdownWe just greeted each other. he said he heard PROBERT was coming to Mexico and asked if he were here. He wanted to call and say hello. I said yes. I immediately informed PROBERT, and suggested the latter; read Phil's file at the Station as it was my understanding there was some problem about his resignation, but did not know all the details. (This was true as personnel matters in the Station were kept very close by the front office.) I do not know if, when, or how many times PROBERT might have met with Phil. At this time Phil looked neat and well kept, as I recall.
+
+3. SUBJECT'S KNOWLEDGE OF SCALETTI, PROJECTS, OR OPERATIONS IN WHICH SCALETTI PARTICIPATED
+
+a). Phil could definitely identify me as a long-time BKTRUST employee
+
+b). Phil probably knew that Mexico was my first overseas assignment, and possibly that I had a medical hold before. He knew I had spent "many years" in Branch 1, and was privy to almost everything going on at the Mexico City Station. He knew I was assigned to Mexico under tourist cover but worked inside the Embassy. He knew my husband was here as a professor at the University of the Americas, and that he did not work for BKTRUST.
+
+c). In Headquarters Phil knew I handled mostly the support projects plus such extras as LI(LINK) and LPGLOBE (both NOC). LI(LINK) had closed down either just as Phil came to the Branch, or just before. However, Gary H. REYMANDER, formerly with LI(LINK), was assigned to the Branch then, and talked with Phil about Mexico, and possibly about LI(LINK). I remember keeping the LPGLOBE material very close, in my own safe, and I do not think Phil knew of LPGLOBE (LIREALM was then in Mexico under LPGLOBE), but may have learned of LPGLOBE program and LIREALM through Ex-LIADLIB (see paragraph 4).
+
+In Mexico City Phil knew I was in the Cuban section, and privy to all operations being run against the Cuban target. He did not know of operations in particular except possibly LIARM-1 (now terminated) who we hoped to use against the Cuban olympic target. The Cuban Section tried to talk with Phil many times about the Cuban delegations to the Olympics, but as I recall, C/Cuba only succeeded in
+
+SECRET/SENSITIVE
+
+(WPV)

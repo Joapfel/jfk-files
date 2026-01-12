@@ -1,0 +1,87 @@
+# JFK-Files-Part-1_page_972.png
+
+Convert to MarkdownHSCA Chron, page 5
+
+27 Jan 78 Stokes Letter to DCI re procedures for HSCA staff personnel investigating on "full access" basis.
+
+30 Jan 78 DCI Letter to Stokes: Amended Secrecy Agreement.
+
+31 Jan 78 O/Security Memo to OLC re HSCA Request for Denied FOI Material
+
+8 Feb 78 Blakey Request: 22 names (KING Investigation)
+1) National States Rights Party
+2) Jessie B. Stoner
+3) Edward Fields
+4) Robert DePugh
+5) National Front/Liberty Party
+6) George Wright
+7) Front Nationale
+8) National Democratic Party & Hitler Welle -
+9) VMO or Flemish VMO
+10) Roger Stinnewijn
+11) Alistair Wicks
+12) Randolph Erwin Rosenson w/@
+13) Charles Stein
+14) Gus Porsch
+15) Jerry William Ray
+16) John Larry Ray
+17) Southern Christian Leadership Conference
+18) James Earl Raynes et al
+19) Frank Lee Legis
+20) Lee Leland
+21) Martin Bishop
+22) H. Hunt
+
+21 Feb 78 Blakey Request: Statement of reasons for which 201 file opened; criteria presented
+~~23 Feb 78~~ Bateaux Memo to SA/DOO le OLC next Dec 77
+
+23 Feb 78 Congressional Record: "Providing For Funds for the SCA" Report/Plans/Budget/Security etc.
+
+28 Feb 78 Congressional Record: Report of the Select Committee on Assassinations; Stokes remarks
+
+27 Feb 78 Blakey Request: 29 names (request access to 201 files)
+1) Davis, Bruce Frederick
+2) Dutkaniez, Joseph
+3) Sloboda, Vladimir
+4) Lawson, John Howard
+5) Amron, Irving
+6) Block, Mollie
+7) Block, Morris
+8) Citrynell, Harold
+9) Dubinsky, Shirley
+10) Greendlinger, Martin
+11) Mitchell, Vernon F.
+12) Parker, James Dudley
+13) Petrulli, Nicholas
+14) Webster, Robert Edward
+15) Winston, Henry
+16) Meyer, Karl Henry
+17) Frank, Susan Heligman
+18) Martinkus, Anthony V.
+19) Pittman, John Orion
+20) Frank, Richard Cyril
+21) Gold, Robert
+22) Jones, Louis Henry
+23) Ricciardelli, Libero
+24) Halperin, Maurice H.
+25) Martin, William H.
+26) DuBois, David aka McCanns
+27) Jones, Sgt. (fnu)
+28) Fletcher, Sgt. Ernie
+29) Coe, Virginius Frank & CI Defector files re Robt.WEBSTT
+
+27 Feb 78 Blakey Request: 14 names (all files & index references to)
+1) Barney Baker
+2) Bunny Breen etc.
+3) James Eckford Breen
+4) Thomas E. Davis III
+5) Dewey F. Groom-
+6) Peter Guarisco
+7) Milton Jaffe
+8) James Herbert Martin
+9) Mrs. James Herbert Martin
+10) Nofio Pecora
+11) Helen Afance Roan/Cooley
+12) Joseph E. Slatin
+13) Irwin S. Weiner
+14) Edward P. Morgan

@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_636.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>CONTINUATION OF<br/>DISPATCH</td>
+    <td>CLASSIFICATION<br/>S E C R E T</td>
+    <td>DISTRIBUTION SYMBOL AND NUMBER<br/>UFGA-4703</td>
+   </tr>
+  </table>
+
+skillful in the practice of security. He has built a false identity which he uses wherever possible in his operational contacts, he is usually selective and cautious in his choice of collaborators, he takes pains to check on the security of his sub-agents, and he uses a system of cutouts for much of his work.
+
+6. Some of AMFAUNA-1's older collaborators know him by true name, but wherever possible he introduces himself to new contacts by the name of ("Julio" "ROJO").⁷ Evidently he is now living the part-of (Julio ROJO) to such an extent that he has in effect a double identity. In one of his S/W messages he asked that the widow of AMCUSP-1 be warned not to reveal that ("Julio") is in Cuba. Since AMFAUNA-1 is in Cuba legally, and all his family/and friends know it, this can only mean that she should not reveal that AMFAUNA-1 and ("Julio ROJO") are identical.
+201-291230 DEFUSE@NYMNN USED by Sub. of 201
+
+7. In recruiting sub-agents, AMFAUNA-1 relies primarily on his own judgment and intuition. If he approves of a person, he will recruit him. However, he has shown himself to be very cautious in granting his approval. He has reported two persons whom he does not completely trust because, while otherwise well qualified, they drink too much and are indiscreet. For two other examples, AMBOA-1 and LITAU-5 approached him separately and revealed their relationship with KUBARK, hoping to collaborate with him; AMFAUNA-1 treated them both with reserve while he checked them out with JMWAVE. He has submitted the names of other contacts for checking. In the case of AMFAUNA-4, whom he recruited without prior checking because time did not permit it, he put his misgivings in writing: "Right away AMFAUNA-1 arranged for a personal interview, taking utmost precautions, since we have had sad previous experiences with members of CASTRO's armed forces."
+
+8. Once he has recruited a sub-agent, AMFAUNA-1 manages to keep an independent eye on the former's security. On more than one occasion he has reported that one of his sub-agents is under G-2 surveillance, and that for the time being he is staying away from him.
+
+9. In general AMFAUNA-1 seems to trust in the efficiency of his security precautions. On 25 February 1962 he reported that Identity 11 had been caught, but that he was in no danger because he had been compartmented from her.⁹ This compartmentation is achieved by the use of five cutouts: AMFAUNA-2, AMFAUNA-3, AMFAUNA-4, AMBOA-1, and AMFAUNA-5, who maintain contact for AMFAUNA-1 with most if not all of his sub-agents. Chart A, which shows AMFAUNA-1 in direct contact with AMFAUNAS 7 through 13, may be in error on this point. It would be more in keeping with AMFAUNA-1's known modus operandi for him to have cutouts between himself and these sub-agents. If there is a cutout or cutouts here, their identity is not yet known. There may also be an unreported cutout between AMFAUNA-1 and AMFAUNA-4.
+
+10. Except for AMFAUNA-4, all the above-mentioned cutouts are women. Two of his support agents, including his mail drop, are also women. AMFAUNA-1 has not been explicit on this point, but it is believed that he shares his favors between them.¹⁰ If so, he has the best of cover for his relations with them. It also clarifies the otherwise puzzling picture of a legal resident of Cuba sleeping in a different bed each night. This practice must certainly reduce the possibility that the G-2 will pick him up for routine questioning.
+
+**Communications:**
+
+11. The bulk of AMFAUNA-1's communications come via S/W. His messages to JMWAVE are sent to accommodation addresses serviced by AMPAN-2 and AMCUTLER-1. JMWAVE's messages to him are addressed to AMFAUNA-14. AMFAUNA-1 can also use diplomatic cour

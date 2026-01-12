@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_472.png
+
+Convert to Markdown14-00000
+
+S-E-C-R-E-T
+
+E2 IMPDET CL BY 011981
+
+<table><thead><tr><th>DOC REF/SECONDARY(2)</th><th>FCN</th><th>DATE</th><th>FSN</th></tr></thead><tbody><tr><td>HIMMA-22315</td><td>AQUATIC<br/>SENT TO TSD</td><td>23/10/63</td><td></td></tr><tr><td>HIMMA-22316</td><td>RYBAT</td><td>01/10/63</td><td></td></tr><tr><td>HIMMA-22317</td><td>RECD 22 OCT 63 KEYWAY/SMOTH WH/REG<br/>201-0350663 18/10/63</td><td></td><td></td></tr><tr><td>HIMMA-22318</td><td>KAPOK RECD 28 OCT 63 LISICLE-1<br/>200-008-005 22/10/63</td><td></td><td></td></tr><tr><td>HIMMA-22319</td><td>DIFTAG/ZODIAC/OPERATIONAL--TRAVEL OF CZECH NATLS<br/>201-0204656 22/10/63</td><td></td><td></td></tr><tr><td>HIMMA-22320</td><td>DIFTAG/ZPDOAC/OPERATIONAL--RETURN OF EMIL HRADECKY /201-204656/<br/>201-0294839 22/10/63</td><td></td><td></td></tr><tr><td>HIMMA-22321</td><td>PCS DEPARTURE OF ZBYNEK SAMONIL /201-294839/<br/>201-0283512 22/10/63</td><td></td><td></td></tr><tr><td>HIMMA-22322</td><td>DIFTAG/ZODIAC/OPERATIONAL--RETURNAOF LUDVIK HUBENY /201-283512<br/>201-0730509 22/10/63</td><td></td><td></td></tr><tr><td>HIMMA-22323</td><td>DIFTAG/ZODIAC/OPERATIONAL--FRANTISEK HETZL /201-730509/<br/>050-008-003 22/10/63</td><td></td><td></td></tr><tr><td>HIMMA-22324</td><td>BEDOX/OPERATIONAL--FNU SZAPINSKI AKA CZAPINSKI<br/>201-0059400 22/10/63</td><td></td><td></td></tr><tr><td>HIMMA-22325</td><td>BEDOX/OPERATIONAL--ADAM SCHAFF /201-59400/<br/>024-008-015 22/10/63</td><td></td><td></td></tr><tr><td>HIMMA-22326</td><td>LCHARVEST/OPERATIONAL-THE SMUGGLING OF CHINESE COMMIE MONEY INTO ECUADOR<br/>201-0735346 22/10/63</td><td></td><td></td></tr><tr><td>HIMMA-22327</td><td>LCHARVEST/THE (SGOAL-1) OPERATION<br/>201-0285165 18/10/63</td><td></td><td></td></tr><tr><td>HIMMA-22328</td><td>PBRUMEN-ATTEMPTED RECRUITMENT OF DR. ARSENIO MINSAL MARROQUIN<br/>201-

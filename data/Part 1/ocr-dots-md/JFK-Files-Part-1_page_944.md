@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_944.png
+
+Convert to Markdown<table><thead><tr><th>MULTI-ADDRESSEE CABLE SELECTED FOR TRANSMISSION</th></tr></thead><tbody><tr><td>STC SECR</td></tr><tr><td>X</td></tr></tbody></table>
+
+65387
+
+MULTI-ADDRESS SEE CABLE
+PERPETUAL PRIME
+
+CABLE SEC: [PLS POUCH CABLE TO FOLLOWING:) (FRENCH POUCH)
+
+| STC | FROB | BONN | HAMB | BRIN | MUNI | VIEW | ATTE |
+|---|---|---|---|---|---|---|---|
+| BERN | GNVA | CAIR | BEIR | TENE | TELA | RIOD | SAOP |
+| HEXI | MRID | SAGO | KONT | BUEN | CARA | LAPA | LIMA |
+| QUIT | GUAT | SNTO | HELS | TOKY | HONG | WAVE | BARC |
+| HELS | LISB | MILA | OTTA | TRIE | |
+
+SECRET
+
+AUTHENT CATS.
+OFFICE
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. - Copy No.

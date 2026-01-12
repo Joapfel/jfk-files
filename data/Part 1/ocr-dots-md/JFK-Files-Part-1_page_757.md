@@ -1,0 +1,166 @@
+# JFK-Files-Part-1_page_757.png
+
+Convert to Markdown14-00000
+
+<table>
+   <tr>
+    <td>SECRET</td>
+   </tr>
+  </table>
+
+FIELD INFORMATION REPORT
+
+COUNTRY:
+
+SUBJECT: Guatemalan Exile Activities
+
+PLACE ACQUIRED: Costa Rican, San Jose
+
+SOURCE, SOURCE EVALUATION, APPRAISAL OF CONTENT:
+
+High level Central American exile (F). Appraisal of Content: Confidential.
+
+On 11 January 1956 (Col. Carlos PAZ Tejada, under the alias of N. Palomar), wrote in Col. Francisco COSENZA Galvez in Costa Rica from San Salvador, that he was addressed to the accommodation address ("Just JARCIA" Partado 2697), San Jose, which is used by COSENZA, and is currently translated as follows:
+
+"Although I have wanted very much to answer your letter of 7 December 1956 very-much, many things have obstructed it and so time has slipped by again; my wish, so that I have been able to write you only today.
+
+"In spite of the latest news which you must be familiar with, I think that what happened is nothing but an incident, natural to the trade. I really believe that the easy one with whom we were dealing was trying to negotiate and participate in the winnings which there would be without much risk on his part. If the business failed for one reason or another, it does not signify anything more than a loss of time and some short-range hopes, but not in an important manner. Far from that. Something positive is being accomplished within a general line of forcing Maria Dolores to act in a manner which is good for us. I hope to continue in the activity and I have exactly the patience of a spider repairing its net as wait for a fly to fall into it.
+
+"With relation to what you transcribed from Dona Tioha, that is due to the fact that the fat one, who was formerly so close to me, has believed from me and has dedicated himself to the task of defaming me because he was unable to get something he wanted from me. Since he has nothing else to say, he says that I have very strange relations or that I belong to the comrades. As you will understand, this is nothing more than a disloyal means, in which he is an expert. The friend who recently arrived from El Indiente can increase your information concerning this. I have already written to the good friend of 'mi morena' so that he may explain if there is an opportunity. Although she is really suffering a strong affection in her actions and I do not think she will recuperate. [Signature]
+
+"I have strengthened the connections with Roque¹⁰ and other friends of the
+
+FORM NO. 51-58
+1 NOV 53
+
+PREVIOUS EDITIONS MAY BE USED.
+
+[Seal]
+SECRETS
+OF
+THE
+AMERICAN
+DISEASE
+BARBECUE
+COOKBOOK
+
+EDUCATED
+CONFIDENTIAL
+UNCLASSIFIED
+ORIGINAL
+COLLECTED
+FROM
+DOCUMENTS
+COLLECTED
+BY
+THE AMERICAN
+DISEASE
+BARBECUE
+COOKBOOK
+ORIGINAL
+COLLECTED
+FROM
+DOCUMENTS
+COLLECTED
+BY
+THE AMERICAN
+DISEASE
+BARBECUE
+COOKBOOK
+SECRET
+OF
+THE
+AMERICAN
+DISEASE
+BARBECUE
+COOKBOOK
+ORIGINAL
+COLLECTED
+FROM
+DOCUMENTS
+COLLECTED
+BY
+THE AMERICAN
+DISEASE
+BARBECUE
+COOKBOOK
+ORIGINAL
+COLLECTED
+FROM
+DOCUMENTS
+COLLECTED
+BY
+THE AMERICAN
+DISEASE
+BARBECUE
+COOKBOOK
+SECRET
+OF
+THE
+AMERICAN
+DISEASE
+BARBECUE
+COOKBOOK
+ORIGINAL
+COLLECTED
+FROM
+DOCUMENTS
+COLLECTED
+BY
+THE AMERICAN
+DISEASE
+BARBECUE
+COOKBOOK
+ORIGINAL
+COLLECTED
+FROM
+DOCUMENTS
+COLLECTED
+BY
+THE AMERICAN
+DISEASE
+BARBECUE
+COOKBOOK
+SECRET
+OF
+THE
+AMERICAN
+DISEASE
+BARBECUE
+COOKBOOK
+ORIGINAL
+COLLECTED
+FROM
+DOCUMENTS
+COLLECTED
+BY
+THE AMERICAN
+DISEASE
+BARBECUE
+COOKBOOK
+ORIGINAL
+COLLECTED
+FROM
+DOCUMENTS
+COLLECTED
+BY
+THE AMERICAN
+DISEASE
+BARBECUE
+COOKBOOK
+SECRET
+OF
+THE
+AMERICAN
+DISEASE
+BARBECUE
+COOKBOOK
+ORIGINAL
+COLLECTED
+FROM
+DOCUMENTS
+COLLECTED
+BY
+THE AMERICAN
+DISEASE
+BARBECUE

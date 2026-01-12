@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_1813.png
+
+Convert to Markdownother departments to determine whether such a memorandum hasn't
+already been prepared or might be in the process of preparation.
+
+## White House Relations
+
+We are concerned about Agency relationships with the White
+House insofar as handling of intelligence matters is concerned. We
+would like the opportunity to discuss this with you orally before
+framing recommendations.
+
+# Research on International Communism
+
+We are concerned about the reported inadequacy of research
+done on International Communism. At the present time some is
+done in the DD/I area in both OCI and ONE, some is done in the DD/P
+area in the International Communism Division of the Counter Intelli-
+gence Staff, and some is done in the State Department in the Special
+Studies Group of INR. The DD/I expressed himself as believing
+this was sufficiently covered. The Chief, CI Staff believes it is
+insufficiently covered. Representatives of the Department of State
+urged that greater expertise be brought to bear on the subject.
+Inasmuch as it will fall squarely on the shoulders of the DCI if not
+enough is being done, we urge that the matter be reviewed by the DCI
+at an early date to satisfy himself that all necessary research in this
+field is being accomplished.

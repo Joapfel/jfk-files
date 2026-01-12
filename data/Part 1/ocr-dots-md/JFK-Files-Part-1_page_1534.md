@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_1534.png
+
+Convert to Markdown14-0000
+
+SC-02164-58
+
+7. Confusion and track loss seemed to be related to the presence of large numbers of fighters although the saturation point has not been determined because of insufficient data.
+
+8. The question of radars for height finding, the capabilities of TOKEN in this role, the introduction of ROCK CAKES and later developments are discussed in another section. It is believed, however, that these missions were a catalyst in the introduction of ROCK CAKES.

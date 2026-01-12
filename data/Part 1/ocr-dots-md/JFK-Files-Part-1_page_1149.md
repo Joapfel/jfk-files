@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_1149.png
+
+Convert to MarkdownSECRET
+
+DOHB 70-1-1
+CHAPTER III, ANNEX B
+
+15 November 1974
+
+persons who are only of local interest to a field station or Headquarters desk and on whom no DDO records correspondence exists are not a part of the DDO records system and are to be maintained by that unit. Some desks levy requirements on ISG for automatic 201 openings on certain categories of persons whose names appear in incoming dispatches. These are listed in Attachment 2. 201 dossiers should be opened in the following categories:
+
+(1) Subjects of provisional operational approval and operational approval requests. However, a file need not be opened when a POA is requested for persons being trained for a foreign liaison service and who are of operational interest for training purposes only.
+
+(2) Persons for whom the field requests a 201 opening.
+
+(3) MHFIXTURE personalities: bonafide diplomats of other than denied area countries, in close association with staff personnel.
+
+(4) Subjects of a Personal Record Questionnaire Part I.
+
+(5) Persons on whom a Main Index search reveals information in five or more documents (see DOI 70-20).
+
+(6) Subjects of Interagency Source Register memoranda from LSN/ISR (opened only by IP/RMS).
+
+b. Requesting a 201 File Opening
+
+Headquarters desks may open a 201 file by filling out and submitting a 201 Personality File Action Request (Form 831) to the Records Maintenance Section (IP/RMS). Form 831 is also used to create or amend the master 201 record and 201 machine listings and to register the assignment of a cryptonym to a 201 personality. Attachment 3 consists of sample 201 Personality File Action Requests for opening and amending 201's. A field station may request the opening of a 201 file by writing 201- in the Headquarters file or cross-reference box on the dispatch form and/or after the subject's name in the body of the dispatch. A telepouch request for a 201 opening is made by indicating 201- in the file number line. A cable request is made by placing 201- after the term file on the last line of the transmission. IP/AN will open 201 files as requested by dispatch or telepouch but it is the responsibility of the desk to respond to cable requests. Field stations are notified of 201 openings through receipt of the field-master 201 record.
+
+SECRET
+
+.0004183

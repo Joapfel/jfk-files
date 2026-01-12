@@ -1,0 +1,65 @@
+# JFK-Files-Part-1_page_657.png
+
+Convert to Markdown6th August,1964
+
+SECRET
+
+MEXICO
+
+IGNACIO ACOSTA, University graduate.
+
+FRANCISCO ARGUELLO, Member of the Federal Parliament.
+
+ALONSO AGUILAR, Professor of the National School of Economics.
+
+ANABELA AGUIRRE, anthropologist.
+
+BERTHA ARENAL, Professor at the National School of Odontology.
+
+SOL ARGUEDAS, journalist.
+
+RAMON BARBOSA C., Member of the Federal Parliament.
+
+ALBERTO BREMAUNTZ, Magistrate at the District Federal High Court of Justice.
+
+ANGEL BALTAZAR BARAJAS, President of the Michoacan University Professors' Federation.
+
+RAFAEL BANALES, General Secretary of the Kleinenmar Rolling Mill Workers' Union.
+
+RAMIRO BERMUDES ALEGRIA, member of the board of Governors of Lower California University.
+
+CLEMENTINA BATALLA DE BASSOLS, University graduate.
+
+NARCISO BASSOLS BATALLA, Chemical engineer.
+
+ALFONSO BARRAZA, SANTOS BARCENAS engineer.
+
+ROGELIO BLANCO DESDER, FERNANDO BENITEZ, writer and journalist.
+
+CELERINO CANO, teacher, FERNANDO CARMONA, University graduate, EMILIO CARBALLIDO, dramtist, CUAHTEMOC CARDENAS, engineer, AURELIANO GABALLERO C and LEANDRO CASTILLO V., members of the Federal Parliament
+
+PERU
+
+OSCAR AGUIRRE, MP.,
+
+ABUNDIO ARAUZO, MP.,
+
+FELIZ ARIAS SHEREIBER, university leader.
+
+JACINTE CACERES PILARES, MP.,
+
+SXITE COELLO JARA, Senator, specialist for penl law.
+
+LUIS CERENADO VIGIL, MP.
+
+CARLOS MALPICA, MP.,
+
+FERNANDO MANRIQUE, MP, President of the Jose Carlos Mariategui Institute.
+
+ERNESTO MORE, writer, MP., President of the Peruvian Peace Movement.
+
+EFRAIN RUIZ CARO, MP., journalist.
+
+TAMAYO PEZUA, MP.,
+
+WILBERT SALAS, MP.

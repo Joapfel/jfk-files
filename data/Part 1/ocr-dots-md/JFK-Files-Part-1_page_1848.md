@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_1848.png
+
+Convert to MarkdownEYES ONLY
+
+- 13 -
+
+# Chapter XI
+
+1. Hamilton moved to Washington to assist Knight [presumably Dave Phillips] in the propaganda work. An attempt to secure Mexican cooperation to obtain a re-fueling stop for the Guatemalan-based aircraft scheduled to bomb Cuba failed because of the venality of a Mexican air force officer whose price CIA would not meet. In Hamilton's view, this was an error.
+
+2. As the Frente leaders were clamoring for invasion information, it was determined to bring them to New York and to tell them if they wanted to learn the assault plans and go to the beachhead, they would have to agree to remain in isolation from that date forward. Hamilton stresses the "voluntary" basis for this agreement, to counter later charges that CIA had kidnapped the Frente and imprisoned them by force (p. 200).
+
+3. With regard to the selection of the Bay of Pigs landing site, Hamilton states that assault plans were almost entirely in the hands of the Pentagon (p. 203). Relations with Lem Jones' public relations firm in New York are noted (p. 204).
+
+4. A CIA project officer is flown to the Carrier Boxer, flagship of a naval task force that was assembled in Puerto Rican waters. This officer was to serve as liaison between the naval task force commander, CIA Headquarters and the Cuban Brigade (p. 205).
+
+SECRET
+EYES ONLY

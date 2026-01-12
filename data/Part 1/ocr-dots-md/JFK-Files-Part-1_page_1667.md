@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_1667.png
+
+Convert to Markdown14:00000
+
+104-10110-10527
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+MEMORANDUM FOR THE FILES
+
+FROM : (George WeeseMAN)
+
+SUBJECT : MOVIMENTO DEMOCRATICA CRISTIANO #353 012
+
+1. Subject Organization is of interest to (CA/1) because it forwarded the attached letter (prepared by Laureano BATESTI falls--- 212 635) to Bela Kiraly of the Hungarian Freedom Fighters Inc.---a CA sponsored activity, James Conlon,²⁷(CAI) asked for any available Office of Security data concerning Subject Organization or the writer of the letter.²⁴ If there was nothing unfavorable available concerning either of them, (CA was going to permit) Kiraly to meet with the representative of Subject Organization in order to determine whether Kiraly could be of help to Subject group.
+
+2. A review of Office of Security records revealed that Subject Organization is an Anti-Castro group and that the writer of the letter was of interest to the Agency under an Operational Approval in 1960.
+
+cc: 212 635✓
+
+SECRET
+
+GROUP I
+Enclosed item automatic:
+excluding and
+declassification

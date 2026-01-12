@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_857.png
+
+Convert to MarkdownSECRET
+
+Albanian Cryptographic Material
+
+DOMESTIC COLLECTION DIVISION
+Operations Services Group/OSB
+910 Key J (French)mw
+
+HH-28312
+
+20 September 1976
+
+LA/COG
+3D5317
+
+ATTN: Chris Hopkins
+
+Attached for your information
+
+cc: Copy sent to SE/BB/A
+
+to: Ruth Elliff
+
+From: Jim Harrison
+
+The following OSG records are attached:
+
+They contain information on:
+
+SECRET
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+O/M
+
+28312
+
+10379

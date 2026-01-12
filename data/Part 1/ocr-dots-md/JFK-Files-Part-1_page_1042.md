@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_1042.png
+
+Convert to Markdown14-00000
+
+✓ 10 July 62 DBA 63719
+✓ 30 Aug 62 DBA 64405
+✓ 30 Aug 62 DBA 20883
+✓ 31 Oct 63 DBA 64406
+10 Sep 63 DBA 51407
+24 Sep 63 DBA 52355
+25 Oct 63 DBA 55777
+31 Oct 63 DBA 55715

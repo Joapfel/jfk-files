@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_1933.png
+
+Convert to Markdownthe project negotiations, Gold expressed concern about who he learned was
+
+Gold asked Maheu to put a bug in room to determine the extent of with. The technician involved in the assignment was discovered in the process, arrested, and taken to the sheriff's office for questioning. He called Maheu in the presence of sheriff's personnel and informed him that he had been detained. Subsequently, the Department of Justice announced its intention to prosecute Maheu along with the technician.
+
+On 7 February 1962 the Director of Security briefed the then Attorney General Robert Kennedy on the circumstances leading up to Maheu's involvement in the wiretap. At our request, prosecution was dropped.
+
+7. In May 1962 Mr. William Harvey took over as Roselli's case officer and it is not known if he was used officially from that point on. It was subsequently learned from the FBI that Roselli had been convicted on six counts involving illegal entry into the United States some time during November 1967. On 2 December 1968 Roselli along with four other individuals was convicted of conspiracy to cheat members of the Friar's Club of $400,000 in a rigged gin rummy game. Mr. Harvey reported his contacts with Roselli to this office during November and December of 1967 and January of 1968. Roselli was facing deportation at that time but felt that he would win an appeal.
+
+8. On 17 November 1970 Mr. Maheu called James O'Connell, Roselli's first case officer, to advise that Maheu's attorney, Ed Morgan had received a call from Thomas Waddin, Roselli's attorney, who stated that all avenues of appeal had been exhausted and Roselli faced deportation. Waddin indicated that if someone did not intercede on Roselli's behalf, he would make a complete expose of his activity with the Agency. On 13 November 1970 Mr. Helms was briefed on this latest development and it was decided that the Agency would not in any way assist Roselli. Maheu was advised of the Agency's position and was in complete agreement. He stated that he was not concerned about any publicity as it affected him personally should Roselli decide to tell all. Subsequently Roselli or someone on his behalf furnished Jack Anderson details of the operation. Anderson wrote two columns regarding this operation.

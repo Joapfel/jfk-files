@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_593.png
+
+Convert to Markdown3. Request for black transport should in:
+
+1. Request that RELEASE CONTINGENCY PLAN 62-2 be implemented.
+
+2. Port of entry.
+
+3. Date, local time, and airfield destination for pick up.
+
+4. Desired destination.
+
+5. Other requirements, i.e., stretchers or bunks in the event subjects are hospital cases.
+
+6. Name, organization and telephone number of requesting party.
+
+7. Name and telephone number of NUBARK contacts at loading and off-loading points.
+
+C. The following personnel are knowledgeable and charged with the responsibility of activating this plan:
+
+1. Major Richard J. Skitterer, AC/ASD/DG/P
+Organization: Air Support Division, MD/P
+Home Phone: JR 3-109
+Office Phone: Sterile Numbers ME 8-6205, EX 3-8515
+Extensions 6862,7664,7367
+Red Line 1058
+
+2. Mr. Robert Marrero
+Organization: Air Support Division, MD/P
+Home Phone: JA 4-3599
+Office Phone: Same as 1.
+
+3. Major Billy R. Campbell, Commander, Det. L.
+Organization: Det. L, 1045th Operational Evaluation and Training Group, Eglin Air Force Base, Florida.
+Home Phone: 662-737
+Office Phone: Eglin Air Force Base, Florida 631590
+
+4. Major Kenneth R. Burton, Camp Officer, Det. L.
+Organization: Det. L, 1045th Operational Evaluation and Training Group, Eglin Air Force Base, Florida.
+Home Phone: 662-664
+Office Phone: Eglin Air Force Base, Florida 631213
+
+H-T-C-R-M-T

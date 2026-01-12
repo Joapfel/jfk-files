@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_1783.png
+
+Convert to Markdown6 April 1962
+
+MEMORANDUM FOR: Director of Central Intelligence
+
+SUBJECT : Final Report of Working Group on Organization and Activities
+
+1. I have the honor to present herewith the final report of the working group which you established in January to consult with you and advise on the organization and activities of the Central Intelligence Agency, and of its relationship with other agencies in the intelligence community. This report reflects the views of the working group and is divided into two parts. The first part deals primarily with the organiza- tion of the Central Intelligence Agency and reflects the unanimous views of the working group. The second part contains comments and recom- mendations on areas dealing with the work of the Central Intelligence Agency and activities of the intelligence community in which the working group was either unable to agree or felt that considerably more study was needed before action was taken.
+
+2. For the record I would note that the working group held its first session on January 3 and met on 35 different days between that date and its final session with you on March 28. During its work the group had approximately 100 briefings. Most of these briefings dealt with the organization and activities of the Central Intelligence Agency, but also included a full day spent with the Department of State in addition to several briefings on State Department activities and its relations with CIA; approxi- mately one-half day spent in the Pentagon in addition to other briefings by the Defense Intelligence Agency; and a full week spent visiting SAC, NORAD and other activities in the United States. We were briefed by the head of every major component in the CIA with the exception of three DD/P area divisions whose briefings had to be excluded because of the pressure of time. However, we feel that having heard from four other area divisions the working group had a knowledge of the activities and problems of these units. In addition to the 100 briefings, the working group had more than ten executive sessions in which it discussed and debated at great length its findings and conclusions. Finally, there were
+
+SECRET
+
+17684 cm 7

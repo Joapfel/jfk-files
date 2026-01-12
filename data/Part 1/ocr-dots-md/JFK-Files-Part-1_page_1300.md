@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_1300.png
+
+Convert to MarkdownSECRET
+
+j. SZULC persistently sought a continuing contact with an Agency representative in Washington shortly after he arrived until it was granted in December 1962. The first contact was with Albert C. DAVIES (Lt. Col. on military detail to CIA - Cuba), and was arranged at the behest of Colonel GROGAN, the Assistant to the Director, on SZULC's request.
+
+k. In early 1963, at President Kennedy's urging, contact with SZULC was made into a formal relationship and was continued until October 1964. The meetings were used by SZULC to cross check his information from other sources, including various Cuban exiles and the Department of State. He became, by virtue of his contacts with the exile community and throughout Washington, one of the most knowledgeable people in the area of Cuban affairs, anti-CASTRO activities, and U.S. Government policy. (See CI study on Jorge VOLSKY for more information on this period.)
+
+1. The Agency officer, Alfonso RODRIGUEZ, who maintained official contact with SZULC in 1963 and 1964 said in July 1964:
+
+"The special friendship and mutual admiration society that has existed between Tad SZULC, Jorge VOLSKY, and Manuel RAY and the JURE is not something that is transparent or easily explained. This alliance may be something unholy and Machiavellian; I just do not know, but I can find no evidence to prove it."
+
+SECRET
+
+6

@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_1597.png
+
+Convert to MarkdownS.D. of Fla.
+
+US vs Hemming
+
+Case No 76-71-Cr-CA
+Judge Hoeveler
+
+P.O. Bldg & Ct House 300 N.E. First Ave., Miami, Florida
+Megzanne Floor 350-4136
+1ST Ave 351
+
+Thomas M. Sherouse
+Sec Mary Jones
+Ast US Attorney (305) 350-5449 or 4471
+300 Ainsley Bldg.
+hm 856 22PS

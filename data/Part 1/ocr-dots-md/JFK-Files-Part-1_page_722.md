@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_722.png
+
+Convert to Markdown14-00000
+
+"Black Panthers✓ for a
+Social Revolution
+
+"Panther" BOBBY SEALE ✓ came to
+Oslo today
+
+We will show that Socialist society is better than Capitalist society; we will introduce it in the United States and we will cooperate with revolutionaries in all countries, said the leader of the American "Black Panther" Party when he came to Oslo this morning. SEALE is on a visit to Scandinavia to express his views about the struggle between the races in the United States. The Norwegian "Black Panther" Committee and Red Front arranged the visit.
+
+Nothing has improved conditions for Black America under former President Johnson, and President Nixon's proposal to introduce "Black Capitalism" in the ghettoes will only increase feelings of black racial hate, asserted SEALE, who emphasized that the "Black Panthers" are not seeking their own separate society. The races have lived separately for 200 years and now it is time to go forward, said the very eloquent BOBBY SEALE. His manner of expression was judicious and polished, aside from repeated references to the "Police Force" in the US, which he calls "pigs".

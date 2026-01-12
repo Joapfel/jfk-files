@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_1792.png
+
+Convert to MarkdownORGANIZATION AND ACTIVITIES OF THE
+DEPUTY DIRECTOR (PLANS)
+
+Office of the DD/P
+
+We commend the decision of the DD/P to abolish the position of the A/DDP/A, and believe that the restoration of the previous organization with just the DD/P and COP in the line of command in the front office will result in a clear delineation of responsibilities and more efficient operations.
+
+The Staffs
+
+We studied at some length the staffs in the DD/P. We considered a possible merger of the FI, CI and CA staffs. We also studied proposals for divesting the staffs of all operational responsibilities. We believe that while both are desirable objectives, neither are practicable under present circumstances. We therefore urge that the FI, CI and CA staff functions be drawn closer together under the Chief of Operations and that these organizations insofar as practical act in the classical sense as staffs for the DD/P. We further believe that the Operational Services Staff, the Central Staff, and the residual of the Cover and Commercial Staff, after the changes recommended below are completed, be transferred to the Central Support Staff which is proposed.

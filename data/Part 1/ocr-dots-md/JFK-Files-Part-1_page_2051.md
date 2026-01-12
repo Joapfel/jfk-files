@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_2051.png
+
+Convert to MarkdownMr. Boris D. TARASOFF
+OS #104 887 08
+SS# 079-05-9624
+DOB: 2 November 1908
+POB: Ekaterinosav, Russia
+Rancho Contento, S.A.
+Apartado Postal 2707
+Guadalajara, Jal., Mexico
+
+2. A written report regarding your handling of this matter is not necessary.

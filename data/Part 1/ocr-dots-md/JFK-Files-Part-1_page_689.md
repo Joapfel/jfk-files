@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_689.png
+
+Convert to Markdown14-00000
+
+STANDARD FORM NO. 64
+# Office Memorandum • UNITED STATES GOVERNMENT
+
+TO : Chief, Contact Division
+Attn : Support (Travis)
+
+FROM : Chief, New York Office
+
+SUBJECT: Case 9145 [rest]
+WA 0350
+
+DATE: 5 March 1956
+
+1. We mistakenly advised Mr. Raymond Millard, last week, that we had forwarded to your division a copy of the letter which Leo Cherne had dispatched to Mr. [...]. As you pointed out in your WA 0350 we merely advised you that we had a copy and did not forward it to Headquarters.
+
+2. Attached you will find a replica of the letter written by Mr. Cherne.
+
+R.W.McCann:cr
+Attachment
+
+Mar 7 1957 12:10PM
+
+07461

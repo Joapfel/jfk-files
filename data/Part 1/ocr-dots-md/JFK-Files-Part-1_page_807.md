@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_807.png
+
+Convert to Markdown14-00000
+
+SECRET NYBA
+
+SEPARATE COVER ATTACHMENT 1 TO:
+QEPA-1058
+
+IDENTITIES
+
+A - Carlene Hatcher Polite
+
+B - Emily Moore
+
+C - Julia Herve
+
+D - The National Council on the Arts (USA)

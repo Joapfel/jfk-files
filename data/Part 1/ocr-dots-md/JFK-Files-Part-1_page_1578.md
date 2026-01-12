@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_1578.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+1 November 1977
+
+MEMORANDUM FOR: Chief, Counterintelligence Staff
+
+FROM : (William H. Godson) CI/R&A/O
+
+SUBJECT : Herbert Itkin File
+
+1. I have reviewed the material in the Herbert Itkin file which is divided into two main divisions. The first concerns the details of Itkin's use as an unpaid witting informant on matters concerning an attempt by Haitian exiles in 1963 to unseat then President Duvalier. This involved a large number of contacts with Haitian exiles in New York, Washington, the Dominican Republic and Puerto Rico. Itkin became a legal advisor for a Haitian Government-In-Exile and put up $15,000 of his "own funds" for this Haitian enterprise. Bernard E. MONCURE (P) a CI Staff staff agent in New York, rode piggy-back on Itkin's contacts with the Haitians to make his own operational contacts within the group. He also provided a small amount of money to them ($4,300) from CIA funds. It would seem from information in the file that there was high-level governmental interest in removing Duvalier from office in 1963. This information is contained in handwritten notes which are paraphrased and indicate high-level interest in the activities of the Haitian exile group. (I suggest that this material be kept in case there are Freedom of Information Act requests on CIA activities involving Haiti in 1962-1963.)
+
+2. The second and bulkier section of material concerns Itkin's efforts to involve MONCURE and CIA in his attempts to secure custody of his wife's children from her second marriage. Itkin had been heavily involved as a lawyer and confidant with Mafia syndicates and labor unions, particularly the teamsters. While doing this he had gained a large amount of information on the Mafia. In March 1963, MONCURE had recruited Itkin for the FBI for domestic issues while maintaining for CIA the use of Itkin for foreign intelligence matters. The FBI and the federal prosecutors in New York starting in 1968 found Itkin to be a very important witness in a series of criminal indictments starting with New York City Water Commissioner Marcus.
+
+E2 IMPDET
+CL BY 019816
+
+<table><tr><td>WARNING NOTICE</td></tr><tr><td>SUGGESTIVE INTELLIGENCE SOURCES AND METHODS INVOLVED</td></tr></table>
+
+SECRET
+
+UPV

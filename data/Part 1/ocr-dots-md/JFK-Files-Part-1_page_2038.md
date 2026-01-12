@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_2038.png
+
+Convert to Markdownon former FBI personnel probably would enhance such suspicions, particularly in Latin America where "FBI" means "intelligence" since its WW II activities there.
+
+6. CCS/NC on occasion receives requests for advice to business organizations as to setting up security systems at overseas installations. We recently referred a request of this type, involving a major oil company, to the Physical Security element of the Security Office. Conceivably, the Agency might make some arrangement to advise Wackenhut of such requests, providing our own Security Office is satisfied as to Wackenhut's competence. [We could then place an Agency representative, if desired, in the team dispatched overseas by Wackenhut should his company successfully secure the contract.]
+
+7. Wackenhut said he would be willing to dispatch teams to set up personal security systems for foreign chiefs of state whom the Agency wants protected. He is amenable, in fact, to any reasonable application of his capabilities to Agency problems. He would be willing to negotiate financing in equitable proportions in the event an overt operation, set up at Agency behest, were not financially self-sustaining.
+
+8. Wackenhut impressed me as a clean-cut, energetic, ambitious young business man who is obviously proud of what appears to be a superior organization of its type. He is interest/ in profits, but it is my impression he is sincerely eager to do what he can to assist the government and feels that CIA offers one possible opportunity. Incidentally, he appears somewhat younger in person than in the pictures appearing in the promotional material given the writer.
+
+9. Copies of this memorandum are being furnished those Agency components which might have an interest in utilizing subject company. Inquiries may be directed to the writer.
+
+FRED R. YOUNGBLOOD
+Chief, CCS/NC
+
+JRS
+
+201-1339
+
+H.R.S.

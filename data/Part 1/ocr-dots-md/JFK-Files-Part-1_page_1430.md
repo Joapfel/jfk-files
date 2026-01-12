@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_1430.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Page 3: Although it has been publicly surfaced that Mr. William F. Buckley had worked for CIA in the past, the author on this page now ties him in with Howard Hunt and Mexico City and further as an American contract agent. The best interests of the Agency are not served nor for that matter the interests of Mr. Buckley and Mr. Hunt are not served by such revelations.
+
+Page 4-6: The SSU believes it is totally unwise to have the mission and organization of the Mexico City Station outlined as explicitly as contained in these pages.
+
+Page 5-6: The above observation is further complicated by the author's remarks regarding operations levied against the Cuban Embassy in Mexico.
+
+Page 8: The SSU further challenges the information set forth on this page regarding the biographic details of Mr. Winston Scott's assignments in Cuba, (London), Eur Division and Mexico City.
+
+Page 15: The undersigned does not believe the content of the information set forth regarding the Agency's procedures associated with the purchasing of scotch liquor. He is implying things which may perhaps have been unique to that station but certainly has not been a worldwide practice. Mr. Phillips' anecdote about the prospects of the Agency printing counterfeit tax stamps and the details involved in such planning, even though perhaps presented in jest would not be viewed as such in the eyes of many individuals in the United States today.
+
+Page 16: Because Philip Agee has revealed the secret of the camera operation in his book, is it necessary for Mr. Phillips to repeat and in effect collaborate what a diseffected employee of the Agency is purporting? From a friendly alumnus of the Agency, this serves as a verification of Agee's statements and provides a violation of sources and methods of this organization.
+
+Page 18-19: Pursuing the aspect of sources and methods, the SSU questions the author's anecdote regarding the identification and employment techniques of the material "why me". It would seem that in so far as any chemical or technical devices of this nature used by the Organization should not be surfaced in a book such as this.

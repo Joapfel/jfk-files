@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_992.png
+
+Convert to Markdown14-00000
+
+DAVIS, Howard
+
+1. BLAKEY Req7est Sept 12, 1977 (OLC #77-3890)
+
+...this will also confirm the oral request for all Agency files on the following....Howard DAVIS. (Note: unable locate "oral" request.)

@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_725.png
+
+Convert to Markdown14-00000
+
+SECRET
+
+24 May 1955
+
+BRIEFING TO THE FUND: (1) ANNUAL BRIEFING
+(2) PRELIMINARY DEBRIEFING OF ANNA THERIAULT
+TUNNERS 13 MAY 1955, 2030-2130.
+
+1. Prior to my departure for New York to handle the preliminary debriefing of THERIAULT, I discussed the following subjects with CNEA-5:
+
+    1) In view of the fact that THERIAULT's expenses on her recent trip to India have been greater than was anticipated, $11,000 additional funds have or are to be shortly deposited to her bank. This will be done by sterile check. It is to be accounted for under the terms of the original contract.
+
+    2) CNEA-5 suggested that I take her reports up with me for possible annotation and expansion. Upon examination on 14 May, this appears unfeasible in view of the fact that there are CIA comroe indicators and RI symbols attached directly to the reports.
+
+    3) CNEA-5 suggested that I pursue with THERIAULT the possibility of developing an interest in Krishna Menon, utilizing a cleared publisher who could request Menon to write a book. This a proach to be based on Menon's acute susceptability to flattery.
+
+    4) CNEA-5 suggested that THERIAULT be asked to review the areas of her influence in order to lay the groundwork for an official invitation to visit this country being extended to the Prime Minister in the future. He suggested Sen. George and Chester Bowles as possible points of departure.
+
+    5) THERIAULT is to be informed that her reports have been of immeasurable assistance to the Ambassador and to the U.S. Government vis-a-vis policy planning for India.
+
+    6) THERIAULT is to be asked to come to Washington for a day or so in the very near future for further debriefing. This is to be arranged at her convenience.
+
+    7) In view of the fact that THERIAULT has been unwitting of the Agency's role in sponsoring her trip, I suggested that I now make her witting in terms of the security involved. It seemed advisable to me since it is likely that there will be future contacts with THERIAULT. CNEA-5 agreed to this.
+
+    8) THERIAULT is to be advised that she is at liberty to discuss any and all aspects of her trip with anybody with the exception of the Agency's role in sponsoring it.
+
+Removed from Project PAFLIPPER
+CS Classification: NONG
+JCB #66-66/59
+Box: -
+Fold# 2
+
+SECRET
+
+SNOITSDUODERREJGAGH JORDESHUUS 3001254A

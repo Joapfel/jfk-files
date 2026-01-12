@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_1292.png
+
+Convert to MarkdownII. Exploitation of Exile Groups: We will continue the clandestine exploitation of exile groups for intelligence collection, psychological warfare and other approved missions.
+
+As feasible, we will act to mount as much of this effort as possible from areas outside the continental United States, and particularly from Latin America. If Higher Authority decides on a "Track Two" concept or on any similar concept which contemplates heavy uncontrolled and only generally directed action operations of Cuban groups against Cuba, it is believed that efforts should be made to transfer as much as possible of the responsibility for this non-clandestine, non-intelligence type operation into the political field, which is the province of the Department of State. In this connection, it is believed it would be advisable to press for the creation within the Department of State of an office of Cuban Exile Affairs to handle the overt government relationships with Cuban exile groups.
+
+IV. ORGANIZATIONAL AND PROCEDURAL CHANGES:
+
+Maximum implementation of the above plan which provides for the most intensive feasible collection of intelligence, the implementation of related programs as outlined, and the maintenance of capabilities to exploit targets of opportunity as well as take advantage of any future substantial changes in internal Cuban conditions will, it is believed, permit and make advisable the following:

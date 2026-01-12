@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_1304.png
+
+Convert to MarkdownSECRET
+
+14 January 1977
+
+MEMORANDUM
+
+SUBJECT: Jose Ricardo RABEL Nunez (AMLEO-3) (201-249386)
+
+1. Born 7 April 1922 in Havana, Cuba, the son of a native-born American citizen, RABEL was brought up in comfortable circumstances. He attended high school in Cuba, completed the last year in New Orleans, Louisiana, and entered Tulane University in September 1938. He enlisted in the U.S. Army in December 1940 and eventually saw combat in France, Belgium, Germany and Austria. After discharge in December 1945, RABEL returned to Cuba to attend the University of Havana and this began a life of job changes, moving back and forth between the U.S. and Cuba, and, in general, rootless living.
+
+2. RABEL's background reads like that of a man with no allegiances or loyalties and no particular goals. Viewed in retrospect, his career presents a picture of unreliability. It is probable that RABEL'S rootlessness and apparent unreliability applied both to his relations with CASTRO and to those with the Agency. It is quite possible, therefore, that he not only served the Agency in a superficial way but that he did the same for CASTRO at various times when it suited his purposes. Without postulating this sort of dual role (one which fits very well with his previous life) it is almost impossible to explain some of the reasonably good things he did for the Agency and the quite certain allegations that he was a CASTRO agent. This explanation is not fully satisfactory, but it does explain his career better than the charge
+
+SECRET
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+# 12923
+
+SECRET
+
+14-00000
+104-10102-10231
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992

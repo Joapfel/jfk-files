@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_1590.png
+
+Convert to Markdown14-0000
+
+<table>
+   <tr>
+    <td>104-10107-10008</td>
+    <td>2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992</td>
+   </tr>
+  </table>
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+11 January 1977
+
+MEMORANDUM FOR: Chief, SE Division
+
+ATTENTION : Division Security Officer
+
+FROM : (Thomas L. Briggs)
+SE/X/LA
+
+SUBJECT : Appearance As Witness In Behalf of the United States Government
+
+REFERENCE : USA V. Gerald P. Hemming, Et Al. (76-371-CR-CA)
+
+1. During the period of my employment as a Special Agent at the Drug Enforcement Administration (May 1971 - Jan. 1977), I conducted an interview of Gerald Patrick Hemming (DPOB 1 March 1937, at Los Angeles, California) on 23 May 1975 at DEA Headquarters in Washington, D.C. My report concerning that interview has become part of the case file in USA v. Gerald P. Hemming, Et Al., Case Number 76-371-CR-CA, Southern District of Florida, Miami, Florida.
+
+2. Upon my entrance on duty in SE Division on 5 January 1977, I orally informed the Division Security Officer, Billy Hix, about the information in paragraph 1 above. Mr. Hix asked me to submit the information in writing as soon as I was settled in the Division. On 7 January 1977, however, Special Agent Robert Fredericks telephonically contacted (Hope Mason), DC/SE/X/LA, and told her that the United States Attornery, Southern District of Florida, had requested that I appear at the U.S. Courthouse, Miami, Florida on 10 January 1977 to confer with the Assistant United States Attorney, Karen L. Atkinson, regarding my appearance as a witness in behalf of the U.S. Government in the trial of Gerald P. Hemming.
+
+3. During the afternoon of 7 January 1977 I conferred with Mr. Hix who advised me to contact the Office of the General Counsel. I talked to Mr. Edmund Cohen who advised me to get in touch with the Office of Security, External Activities Branch (OS/EAB). I completed an Outside Activity Approval Request (Form 879), obtained the concurrence of DC/SE, Mr. John Stein, and submitted the Form 879 to OS/EAB. OS/EAB sent me to Central Cover Staff (Mr. Blandford) and then to the Office of the General Counsel. After discussions with Mr. Cohen, I called Z/PV

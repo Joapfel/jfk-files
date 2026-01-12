@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_1836.png
+
+Convert to MarkdownEYES ONLY
+
+# Chapter I
+
+1. The chapter opens in 1956 in Ambassador Gardner's office in Havana, where a courtesy call was being paid on the Ambassador by the CIA Central American and Caribbean Chiefs of Station who are holding their annual regional meeting. It is noted that one of the reasons for selecting the place of meeting was the "absence of Communist embassies" (p. 6). The presence of Col. J. C. King, Division Chief, is mentioned. Col. King remarks that Castro was "heavily involved" in the Bogotazo, setting the stage for Hamilton's subsequent comment. [Actually Castro played a junior role in the Bogotazo, and it was after the Bay of Pigs that Mr. Dallas assigned Hamilton the task of determining Castro's role in the Bogotazo.] (p. 7). Hamilton states that in the subsequent three years, while funds were being collected in South America for Castro's 26th of July Movement, there were no orders from CIA Headquarters to penetrate pre-Castro groups abroad (p. 10). He then states that in March 1960 he was "having coffee with the newly-elected president of the country to which I was assigned." (p.10) [This could reveal the author's relationship with President Nardone of Uruguay who became President in early March 1960.]
+
+2. Mr. Richard Bissell and Mr. Tracy Barnes are mentioned and the author adds that he had worked with Barnes as a member of the team that ousted President Arbenz from Guatemala (p. 11). At this point Hamilton is recalled to Headquarters to become Chief of Political Action in an Eisenhower-approved project to assist Cuban exiles in overthrowing Castro. His duties would include organizing Cuban leaders into a government-in-exile which would form a provisional government in Cuba when Castro was forced out. Hamilton's base was to be in Costa Rica, provided ex-President Pepe Figueroa could obtain Costa Rican agreement (p. 11). [This link could be quite embarrassing in view of Figueroa's recent re-election as President of Costa Rica.]
+
+3. At this point the manuscript introduces the Project Chief as Jake (presumably Mr. Esterline), who is referred to as Jake throughout (p. 12). We also meet Droller about whom there is some "diversity in attitudes" among CIA officers. Droller's operational name of Frank Bender is noted (p.13), and he is referred to as Bender throughout the rest of the manuscript. [This is not the first time Droller has been identified as Bender; his name was blown by Arthur Schlesinger in his book *A Thousand Days* in 1965.] Bender's cover telephone arrangements in Miami and New York, which allowed him to answer local calls there at his Washington desk, are disclosed (p.14).
+
+Hamilton states that Bender told him that as far as he knew "Richard Helms, Chief of Operations for the Clandestine Services, had not been cut in" (p. 14).
+
+SECRET
+EYES ONLY

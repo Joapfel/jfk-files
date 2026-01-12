@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_1969.png
+
+Convert to MarkdownDE ARMAS made to TOMLEY in which DE ARMAS wanted to know once and forever if there were any openings for him. DE ARMAS' security file reflected no subsequent activity except for the attached cable traffic following his "defection."
+
+4. Regarding the personalities mentioned by DE ARMAS in his Havana press conference, it appears that several individuals may be identical to former WH Division assets, as shown below. It should be noted that DE ARMAS did not identify any bona fide Agency staff employees or agents nor does it appear that he identified any past or current operations. It seems likely that DE ARMAS was provided a list of known or suspected Agency assets by the DGI as part of Cuba's ongoing anti-CIA, anti-U. S. Government campaign designed to offset adverse criticism to Cuba's military assistance to Angola. Set forth below are those individuals alleged to have been connected with Agency operations by DE ARMAS; results of Office of Security indices searches and file reviews follow each name where a possible identification could be made.
+
+| NAME GIVEN BY DE ARMAS | OS FILE, IF ANY, AND COMMENTS |
+|---|---|
+| Bob DYNES<br>(aka: DINUS, DAYNES) | No Office of Security traces regarding all variations. |
+| Robert Bud MILES (alleged to have been the supplier of explosives used in the murder of Rolando MASFERRER)* | No Office of Security traces. |
+| Lazaro ALVAREZ | Possibly identifiable with Lazaro Gustavo ARECES ALVAREZ, SF#753 905, on whom a POA was requested by WH Division (JMATE) in June 1964 for use as a PM/Maritime asset; files canceled in October 1964. |
+| Fred DUNCAN | No Office of Security traces; believed to be a DEA officer stationed in Caracas. |
+| Doug PHILLIPS | No Office of Security traces; believed to be a DEA officer stationed in Caracas. |
+
+SECRET
+
+14-00000
+
+SECRET

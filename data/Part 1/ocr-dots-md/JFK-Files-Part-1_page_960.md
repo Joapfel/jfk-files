@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_960.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+<table><tr><td>ORIG:</td><td>A. SHATTON: jg</td></tr><tr><td>UNIT:</td><td>SAS/DOB</td></tr><tr><td>EXT:</td><td>6153</td></tr><tr><td>DATE:</td><td>14 DEC. 63</td></tr></table>
+
+SECRET
+
+<table><tr><td colspan="2">JONES</td></tr><tr><td></td><td>X</td></tr></table>
+
+TO : [16-27] CIA HISTORICAL REVIEW PROGRAM
+FROM: DIRECTOR
+CONF: SAS 8
+INFO : DOP, CI, CI/OPS, CI/OA, CC 3, FI, FI/INT 2, EE 4, AM 7, VR
+
+RELEASE AS SANITIZED
+1998
+
+<table><tbody><tr><td>TO [16-27]</td><td>INFO [16-20] WAVE</td><td>CHE 10</td><td>80299</td></tr></tbody></table>
+
+DYVOUR PBRUMEN [02] TIDE
+
+REF: [21-27] 4538 (IN 80402)
+
+MR. ALEXANDER SHATTON ETA SAO PAULO PAN AIR DO BRASIL
+201 ON 20 DECEMBER. TRAVELLING [ 24 ] EOC
+
+WILL CONTACT [16-27] ON ARRIVAL.
+
+END OF MESSAGE
+
+C/S COMMENT: •CONCERNED BRIEFING AND TRAINING OF [02] TIDE.
+
+C/SAS/BOB Lts
+
+J. C. KING
+C/WB
+
+DESKOND FITZGERALD
+C/SAS
+
+COORDINATING OFFICER
+
+G.B.C.R.U.P.

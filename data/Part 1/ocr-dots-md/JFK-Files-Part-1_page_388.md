@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_388.png
+
+Convert to Markdown14-00000
+
+personnel were assigned to
+the Soviet section of Tokyo Station.
+
+A. Tom Ikuzato (Ret in Japan)
+
+B. Tom Matsue (Still employed by Station)
+
+C. Morakci Nogai (Ret)
+
+26 Condon Court
+San Mateo, California 94403
+
+Tele: (415) 349-7289
+
+d. Kyoshi Uzuki Sasuke

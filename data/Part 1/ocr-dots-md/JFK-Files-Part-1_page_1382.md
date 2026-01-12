@@ -1,0 +1,62 @@
+# JFK-Files-Part-1_page_1382.png
+
+Convert to Markdown31 March 1963
+
+PROJECT AMTRUNK OPERATIONAL REVIEW
+
+I. STATUS REPORT ON TRAINING AND PROCESSING, 4-31 MARCH.
+
+The AMTRUNK Team, consisting of AMICE/27, AMICE/14, AMTRUNK/2,
+and AMTRUNK/3 were safehoused on 4 March 1963 at Safesite #164
+on Plantation Key. Andrew S. PARMERS, KUROAR instructor from
+headquarters, was already at the training site when the team
+was brought there by the two case officers, Irving N. PEGGINS
+and Hobart J. VANDEBORN. PARMERS remained at the safesite
+until 16 March during which time he conducted training in
+clandestine methods and techniques. This training included
+security, cover and compartmentation, clandestine communica-
+tions, agent spotting, selection, recruitment and management,
+and operational planning and reporting. The training included
+group discussion and participation in a series of appropriate
+operational situations, several problems, and daily physical
+training. During this two week period, either PEGGINS or
+VANDEBORN visited the safesite every day, spending an average
+of two or three hours with the group in operational dis-
+cussions and processing. During the week of 18 thru 23 March,
+both case officers spent a majority of the time with the group,
+debriefing them in detail on their operational contacts, workin-
+out operational details of their infiltration, and continuing
+their training on an informal basis. The week of 25 through
+30 March was spent in PM-type training with emphasis on compass
+and map reading, including two night problems, and on weapons
+familiarization and firing. During the period under dis-
+cussion the AMTRUNK group were all LCFLUTTERED, were assessed
+by the KUROAR assessment team, were given an initial series
+of immunizations, were issued clothing, were processed for
+alias documentation, were processed for disguises, and were
+further processed on cover and finance problems. The re-
+sults of the LCFLUTTER examinations were sent to headquarters
+under cover of UFGA-8111, on 13 March 1963. Based on DIR
+26430, no further LCFLUTTER is planned at the present time.
+Transmitted as attachment "A" to this dispatch is PARMERS
+report on his training of the AMTRUNK group, transmitted as
+attachment "B" are the results of the assessments of the
+AMTRUNK group, and transmitted as attachment "C" is the
+training report for the week of 25 March.
+
+II. AMTRUNK MISSION OBJECTIVE
+
+The project AMTRUNK Mission objective is to overthrow the existing Cuban government by means of a conspiracy among high level military and civilian leaders of the government culminating in a coup d'etat which will oust both Castro and
+
+DESSENSITIZED
+
+per CSH-43-43
+
+SECRET
+
+Removed from Project AMTRUNK
+CS Classification: 19-6 - 8/4/3
+Date: 4/8-4/9/6
+MI: 710
+
+14-00000

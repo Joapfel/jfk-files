@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_791.png
+
+Convert to Markdown104-10072-10243
+
+SECRET
+
+<table>
+   <tr>
+    <td>CS COPY</td>
+   </tr>
+  </table>
+
+24 April 1970
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Meeting With [WUSLAB/1] on 22 April 1970
+
+1. Arrangements and Security: The meeting took place in the [office/safehouse] at 1400 on the above date and ended at 1500. There were no incidents of a security nature.
+
+2. Production: Bolivian Ambassador Julio Sanjines Goytia talked on the phone to president Ovando on 20 April. Ovando said that there was pressure from the civilian members of the cabinet on the Debray case. They related their request that Debray should be released to a letter Ovando wrote the Italian novelist Alberto Moravia which they claimed stated he would release Debray. Ovando commented to Sanjines that he had not committed himself to release Debray. The civilians think that the release of Debray and Bustos would take the pressure off the government. Ovando admitted that the government could not control the students. The Minister of Education had been destroyed when the USIS installation was damaged. Ovando commented that he would reconsider the Debray situation and commented that there were no legal precedents for Debray's release. The military will go along with it if Ovando and the cabinet will put down the union members if needed. Marcelo Quiroga still claims to be able to influence a segment of the mineworkers. Ovando does not want to suppress by force the student demonstrations. Ovando indicated that there is a wave of uneasiness in the country. He is thinking about taking a stronger hand in certain issues and compromise on other issues.
+
+3. Minister of Planning Jose Ortiz Mercado is coming to Washington on 2 May for a four day visit before he goes, to San Jose for the inauguration of Pepe Figueres. [WUSLAB/1] believes that Ortiz will be [frank] with him, and tell him what the situation is like back in La Paz. He will attend the [CIAP] review of the Bolivian program.
+
+4. Sanjines described the Rogelio Miranda Baldivia problem (Miranda is the Army Chief of Staff in Bolivia) as a personal matter which has now become ideological. He does not get along with General Juan Jose Torres, the Commander of the Armed Forces. Miranda is now trying to change some commanders in field commands.
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+SECRET
+
+<table>
+   <tr>
+    <td>CONFIDENTIAL</td>
+   </tr>
+   <tr>
+    <td>Excluded from automatic download and declassification</td>
+   </tr>
+  </table>
+
+<table>
+   <tr>
+    <td>5</td>
+   </tr>
+   <tr>
+    <td>BR</td>
+   </tr>
+  </table>

@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_958.png
+
+Convert to MarkdownTop Secret
+
+Date of Report: 04/02/2001
+
+Print One Document with Issues - All Input Fields
+Sorted by Issue
+
+Record ID no (104/180): 104-10078-10014 104 No: 104-10078-10014 jfk id no: 1995.09.27.16:41:00:970028 box number JFK17
+vol folder: F21 status: SAN record number meeting date:
+status validation SAN postpone count: 9 first postpone date:
+fed registry notice no: fed registry date: new postpone date:
+Next Doc Issue Date: 12/01/2005
+
+General Comments: SAO PAULO AND RIO de JANEIRO, SAOP; PROTECT (BE) RELEASE (TIDE); OPS DETAIL: LIGHT STATE
+
+ISSUES Subform:
+
+issue: BE DIGRAPH occur count: 2 action doc issue date 12/01/2005
+action date: issue comment: SEE 104-10017-10041. OTHER DOCS W/LATER DATES.
+
+issue: CABLE PREFIX occur count: 1 action doc issue date 10/01/2017
+action date: issue comment: NOTE EXCEPTIONS TO 2017 RELEASE IN DOC COMMENTS
+
+issue: CIA INSTALLATION occur count: 5 action doc issue date 10/01/2017
+action date: issue comment: NOTE EXCEPTIONS TO 10/2017 IN GENERAL COMMENTS
+
+issue: OPERATIONAL DETAILS occur count: 1 action doc issue date 10/01/2017
+action date: issue comment: NOTE EXCEPTIONS TO 2017 IN GENERAL COMMENTS
+
+Top Secret
+
+Page 1 of 1

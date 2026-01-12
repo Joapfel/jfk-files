@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_673.png
+
+Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+
+TO : Files
+
+FROM : Coleman
+
+SUBJECT: Case 9145
+
+DATE: 4 MARCH 1954
+
+On 3 March Ormond requested that a meeting be set up for him with Leo Cherne, President of the Research Institute of America. Ormond said that he would not need more than a half an hour. Galled Connor who had Bob McCann set up meeting with Cherne for Monday(8th March) at 3:00 p.m. Ormond will go to the New York Office at 2:15 on Monday to meet McCann and take off for the meeting. This meeting was requested as a Cat III, and McCann will have to bow out after introduction. Ormond is happy, New York is happy.
+
+07445

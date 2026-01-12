@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_1310.png
+
+Convert to MarkdownSECRET
+
+trusted "operational authorities" (the CIA). (VOLSKY originally took full credit for the plan, called "Leonardo Plan," which eventually became known as the AMTRUNK Operation.)
+
+4. The Leonardo Plan was well thought-out and caught the fancy of the KENNEDY Administration. HURWITCH bought it to the CIA with the blessings of the Department of State. Thus, from the very beginning, SZULC, VOLSKY, and MORENO, each of whom had outside interests to some degree in conflict with AMTRUNK, were involved in AMTRUNK policy and planning meetings. Moreover, all three were to some degree antipathetic to the Agency for various reasons and were difficult or impossible to control.
+
+5. MORENO's indiscretions were a serious problem that limited his effectiveness as a direct participant in the AMTRUNK Operation by arousing the concern of other participants. While the Station attempted to cut out VOLSKY and SZULC after the initial policy discussions in Washington, VOLSKY always remained involved to some degree and kept SZULC fully informed. Under the circumstances, the censure of MORENO for talking to SZULC was just an attempt to plug one of many leaks. The fact is that MORENO, SZULC, and VOLSKY believed they had an inside track in Washington because of their contacts there and all three disliked following Agency instructions that conflicted with their own diverse interests. However, because JMWAVE Station and AMICE-14 (Miguel A. DIAZ Isalgue) objected to MORENO's continued involvement in the AMTRUNK Operation after learning of his free talk with SZULC and others, the Station
+
+SECRET
+
+2

@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_638.png
+
+Convert to Markdown<table>
+   <thead>
+    <tr>
+     <td>CONTINUATION OF</td>
+     <td>CLASSIFICATION</td>
+     <td>DEPARTMENT SYMBOL AND NUMBER</td>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td>DIPATCH</td>
+     <td>S E C R E T</td>
+     <td>UFGA-4703</td>
+    </tr>
+   </tbody>
+  </table>
+
+b. **AMFAUNA-3:** AMFAUNA-1's first mention of her is in his S/W message No. 127 dated 4 May 1962. She has provided information on military hospitals and has a trusted contact (Identity 7) in the G-2. She also was AMFAUNA-1's cutout to Identity-12, who was a Havana contact of the guerrilla leader Oswaldo RAMIREZ. In early June 1962 she was approached by Identity-8 who claimed to be the new contact to the RAMIREZ organization. (See also paragraph 58 below.) On 15 March 1962 AMFAUNA-3 was traced by ODIBEX who proposed to use her in their Operation CASINO. A negative trace reply was given at that time. Headquarters is requested to ascertain whether ODIBEX has a valid prior claim on this agent.
+
+c. **AMFAUNA-4:** He is a high-ranking Cuban Army officer who has provided AMFAUNA-1 with documentary information which ought to be of some value, although JMWAVE has not yet seen it, it having gone to Headquarters via Madrid through the channel described in paragraph 11 above. He also claims to be receiving information from Identity-9 and Identity-10. AMFAUNA-1 was introduced to AMFAUNA-4 by AMCOG-2 who in turn was introduced to him by Identity-13. For a further discussion of this matter, see paragraph 56 below.
+
+d. **AMBOA-1:** The origin of AMFAUNA-1's contact with this agent, who has also been recruited independently by JMWAVE, is uncertain. He first mentioned her in October 1961 as his cutout to Identity-14, a Cubana Airlines pilot who had formerly been a contact of AMCUSP-1 and who subsequently defected. AMFAUNA-1's last mention of her was on 15 November when he reported that she had given him a map showing artillery installations on the south coast of Las Villas. It is possible that AMFAUNA-1 has broken contact with her, but since he has not reported having done so it is considered more likely that she remains his cutout to two Cubana Airlines pilots who are known to be still reporting:
+
+(1) **AMFAUNA-18:** He was recruited in March 1962, and has provided AMFAUNA-1 with passenger lists and the location of artillery emplacements which he has spotted from his aircraft. It is not known how AMFAUNA-1 first met AMFAUNA-18, and it is possible that AMFAUNA-1 meets directly with him. It is only surmised that AMBOA-1 is his cutout to him.
+
+(2) **AMFAUNA-19:** He was recruited at the same time as AMFAUNA-18. Although AMFAUNA-1 did not explicitly say so, it can be inferred that he and AMFAUNA-18 are witting of each other's recruitment.
+
+e. **AMFAUNA-5:** AMFAUNA-1 first reported her as an agent in September 1961. She is the sister-in-law of AMFAUNA-23, a former naval officer who had been an agent of AMFAUNA-1 as early as July 1961 but had been caught and imprisoned for trying to leave Cuba illegally. She has been the source of information on Cuban airfields, and is the cutout to a group of people employed at Rancho Boyeros Airport. It is believed that the identities of all these people have not yet been reported, but they seem to be effective. On 29 May 1962 AMFAUNA-1 reported the arrival of an undocumented Soviet plane (at Rancho Boyeros), and forwarded the passenger list which he said one of his agents had obtained clandestinely. Following are the persons with whom AMFAUNA-5 is known to be in contact.
+
+(1) **AMFAUNA-20:** her husband. AMFAUNA-1 has written that he has broken personal contact with this man.

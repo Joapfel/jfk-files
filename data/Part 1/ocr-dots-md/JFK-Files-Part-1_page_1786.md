@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_1786.png
+
+s to the DCI, that daily staff meetings be held for a full exchange on the activities of the staff, and that all personnel in the Agency be advised as to how to keep the DCI's staff informed properly of the activities of the Agency.
+
+## Comptroller
+
+We recommend that the Comptroller's office be brought out from under the DD/S, report directly to the DCI's office and receive full authority for total fiscal control of the Agency.
+
+We recommend that the Comptroller be designated Chairman of a Financial Policy and Budget Committee composed of the appropriate senior officers of the Agency. We believe that
+
+SECRET

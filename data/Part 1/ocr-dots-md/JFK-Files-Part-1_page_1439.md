@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_1439.png
+
+Convert to MarkdownDRAFT
+
+7 Jan 76
+
+Chapter XI
+
+Page 10: Though Camp Perry has received much publicity, there appears no good reason to confirm the use of this facility by the Agency. Unless we plan on officially opening Camp Perry as a CIA training facility, it should not be mentioned. (Check OTR)
+
+Page 15: The "Phoenix Program" originated before William Colby became DEPCORDS, COMUSMACV. Ambassador Komer started the program and asked that Colby replace him as DEPCORDS so that there would be some continuity in the effort to deal with criminal elements of the Viet Cong infrastructure. It is unfair to subjectively state that the "Operation Phoenix" was Colby's _own_ albatross. Certainly Colby doesn't believe this though he is receiving considerable flack from those who would like others to believe that the whole program was one of assassination of which Colby, as head of the CIA, was in charge.
+
+Page 39: We're still putting audio devices in coke bottles -- all these techniques and methods should not be discussed since we may very well want to use them again in the future.

@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_831.png
+
+Convert to Markdown14-00000
+
+87. Wednesday, 20 November, was spent on the same key. A very long radio message was received during the day. AMFAUNA-14 and AMWEB-2 both helped the radio man to decipher it, and their combined efforts took about three hours. Then they put out again for the Cayo Megano rendezvous point. By this time their drinking water was all gone. The boat was overloaded, so much of the food and equipment was left behind on the key. Again no ship appeared. This time, instead of returning to their original hiding place, the crew took the boat to Cayo Mosquito.
+
+88. Here they spent the remainder of the night, and all of Thursday, 21 November. Their water was gone, there was very little food left, and there was only enough gasoline left for one more one-way trip out to the rendezvous point. At 1400 hours on 21 November another radio message was received. With the combined efforts of the radio man, AMFAUNA-14 and AMWEB-2, it took between two and three hours to decipher it. Everybody was very optimistic; they were all sure that they would be picked up that night.
+
+89. Promptly at 2300 hours the ship was seen approaching. The boat put out immediately, and its passengers were taken aboard the ship. AMFAUNA-14 was taken into the sick bay where she was given a pill, a little water, and somewhat later some warm broth.
+
+90. From the moment she stepped into the boat on 18 November, until she was hauled out by the armpits on 21 November, AMFAUNA-14 never left the boat. Her side and legs were bruised from the pounding of the waves against the boat. A little blood vessel in her right eye was broken by a twig snapping in her face as she walked through the mangrove. This was treated by the ship's doctor.
+
+91. AMFAUNA-14 says that the AMHICK team performed very well. The pickup in the park was done excellently. The slight delay while they looked her over, she says, was due to the fact that the men had expected another woman to be with her, and they were waiting a few minutes in case the other woman should show up. The AMHICK team said that they had also been briefed that she would be wearing her hair in a bun. She had not been briefed accordingly, and she was wearing her hair down her back in a pony tail. This discrepancy did not cause any confusion, because every other item of the visual recognition signals tallied perfectly, and the AMHICK team were well briefed on all of them.
+
+92. AMFAUNA-14 was impressed by the precise timing of the team's movements, by the fact that everybody was where he was supposed to be at the time indicated. She expressed admiration for their seamanship, and their ability to pick out one spot of mangrove from another in the pitch darkness.
+
+93. She says that, during these trying days, the team members were always in calm control of the situation, and never failing in their courtesy to her.
+
+94. Regarding AMCUTLER-2, AMFAUNA-14 is sure that the exfiltration instructions reached her. They were taken, she said, by Lolita FORMOSO who had been standing by for them from Friday to Sunday. What Lolita did with them, AMFAUNA-14 does not know. She knows that we had suggested that Lolita take them to AMFAUNA-1's mother, but she also knows that we had indicated to AMCOG-3 that AMFAUNA-1's mother might be under surveillance, so she thinks Lolita might have taken them directly to AMCUTLER-2. In any case, she knows that messages sent previously by AMCOG-3 to AMCUTLER-2 reached the latter, and she sees no reason to assume that these instructions did not.
+
+95. It does not surprise AMFAUNA-14 that AMCUTLER-2 did not follow the orders. AMCUTLER-2, she says, plays her own game with little consideration for others. Between the time that AMFAUNA-1 left Cuba on 11 September, and the time that AMFAUNA-14 was arrested on 7 October, AMCUTLER-2 had visited AMFAUNA-14's apartment twice. On both occasions,

@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_1122.png
+
+Convert to MarkdownAPPROVED FOR RELEASE 1994
+CIA HISTORICAL REVIEW PROGRAM
+
+S.E. RET
+
+REPRODUCTION
+
+NO. INSTRUCTION SHEET 733
+
+<table><thead><tr><th colspan="3">REMOVE</th><th colspan="3">INSERT</th><th rowspan="2">EXPLANATION</th></tr><tr><th>REG. NO.</th><th>PAGE NO.</th><th>DATE</th><th>REG. NO.</th><th>PAGE NO.</th><th>DATE</th></tr></thead><tbody><tr><td>HR 20</td><td>111<br>125-<br>127</td><td>2/6/73<br>3/9/64</td><td>HR 20</td><td>111<br>125-<br>127</td><td>2/23/73<br>2/23/73</td><td>Paragraph 53 is revised to redefine categories of contract personnel. Minor revisions are made to update the paragraph.</td></tr><tr><td>|</td><td>128</td><td>6/16/70</td><td></td><td>128 -<br>131</td><td>2/23/73</td><td>Former paragraph 54, Procurement Contracts for the Services of Individuals, is renumbered 55 with no change in text.<br>New paragraph 54, Agents, is added to establish authorities and responsibilities for the management of agents and to clearly distinguish between agents and contract personnel.</td></tr><tr><td>HN 20-</td><td></td><td></td><td></td><td></td><td></td><td>Rescinded.</td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+DISTRIBUTION: AB
+
+E2 IMPDET
+
+8-E-C-R-E-T CL BY: 002230
+
+0004154

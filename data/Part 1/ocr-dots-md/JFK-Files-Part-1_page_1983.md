@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_1983.png
+
+Convert to MarkdownSECRET
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+c. Mr. James P. O'Connell, Jr., GS-15, will be assigned to a GS-16 position as Chief, Investigations Division upon his return to Headquarters in August 1965. After Mr. O'Connell has had a brief period of orientation in this assignment, I plan to recommend that he be promoted to GS-16.
+
+(SIGNED)
+Howard J. Osborn
+Director of Security
+
+The assignments contained in paragraph 2 are approved 26 Feb 65 Date
+
+L. K. White
+Deputy Director for Support
+
+Distribution:
+
+Original - Return to OS
+J - DDS
+C - PersBr,
+
+OS/A&TS/ELHardt/ph (x6200 - 19 Feb 65)

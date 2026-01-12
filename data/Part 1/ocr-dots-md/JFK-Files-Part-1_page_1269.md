@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_1269.png
+
+Convert to Markdown<table><tr><td colspan="2">14-00000</td></tr><tr><td>104-10101-10256</td><td>2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992</td></tr></table>
+
+<table><tbody><tr><td>LIVE ROOM ASK BODG</td></tr><tr><td>BUDG CARA CULT LDM</td></tr><tr><td>MMA MOIT PRIU QUTT</td></tr><tr><td>RJGD 3400 SJOS SDOM</td></tr><tr><td>TCUD NELI LAPA BALV</td></tr><tr><td>FACY DATA GORG RBCI</td></tr><tr><td>WAVE KOJA OTTA</td></tr></tbody></table>
+
+MADNOTE
+
+BOOK MESSAGE
+
+1. [x] NOW ACTIVE MEMBER ALARMED AND AUTHORIZED HANDLE NOTICE CLASSIFIED CLEAR TEXT. ROUTING INDICATOR NOW ARMED.
+
+2. [x] OTTA NOW ACTIVE MEMBER ALARMED. ROUTING INDICATOR NOW ARMED.
+
+ONLY KOREAN TRAFFIC HANDLED BY OTTAMA.
+
+END OF MESSAGE
+
+OC-SD
+AUTHORIZING OFFICE*
+
+OC-8 - JG
+
+OC-T - Dn 10B
+
+COORDINATING OFFICERS
+
+<table><tr><td>SZCZS</td></tr></table>
+
+GROUP:
+Included from automatic declassification and deactivation
+
+OC-AB
+AUTHORIZING OFFICE*
+16191
+Copy No.

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_1371.png
+
+Convert to Markdownend his career as an overt propagandist taking advantage of the current furor over the CIA to do the greatest possible damage. The current paralysis of all anti-Communist action by the Agency attests to the effectiveness of AGEE, SZULC, the Soviets, et al.
+
+B
+
+NOTE: (See attachment/from a highly sensitive source.
+
+Any use of the SECRET/SENSITIVE attachment requires C/CI approval.) The source reported that Nicole, while working with the DGI in Cuba to expose the Agency, said that except for her father, her whole family were "fascists." She said that her father quit the NYT because of the restrictive editorial policy and he wished to write according to his beliefs.
+
+LAD/JFK Tas Force 1977/Marty Miller:rp
+
+2 Attachments, a/s
+
+Copy filed: 201-50539
+
+SECRET

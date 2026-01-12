@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_1394.png
+
+Convert to Markdowng. Target personalities who are suspected of being disaffected and on whom A/27 and A/14 will attempt to gather information in Havana are as follows:
+
+1. Comandante "Macho" Parra
+
+2. Cdte. Oscar Guerra
+
+3. " Jose Pinares
+
+4. Capt. FNU Lawton
+
+5. " Manuel Avila
+
+6. Cmdte. Rene de los Santos
+
+7. " Pedro Miret
+
+8. Capt. Juan Nuiry
+
+9. Cmdte. Rafael Suarez More
+
+10. Capt. Fernando Fernandez Superville
+
+11. Capt. FNU Guerra Matos
+
+12. Capt. Sandy Olivares
+
+13. " Jose Fernandez Alvarez
+
+These names have all been checked through JMWAVE RI and in most cases also with AMLEO/3. In a majority of cases there appears to be some evidence to indicate the subjects may be disaffected. In the case of Jose Pinares however, it would appear that he is completely loyal to the regime. This information was passed on to A/27 and A/14. RI files were negative on Avila and Lawton.
+
+## E. COVER AND COMMUNICATIONS
+
+AMICE/27 and AMICE/14 will live black during their entire stay in Cuba. They will be equipped with alias documentation and with disguises. Both of them have previously lived in the Havana area and know the city well. They will be trained in Secret Writing (SW) and will plan to train at least two and possible three agents in Havana in SW, prior to their own exfiltration. In addition, it is planned to train A/27 and A/14 in OWVL. At the time of infiltration, exfiltration plans will have been laid on with the agents. In the event that a change in time or location of exfiltration becomes necessary, an OWVL message could be sent to the agents. Any urgent and immediate message which might have to be sent by the agents during their short stay in Havana would be on a prearranged open code system by commercial telegram. Such a system will be worked out to cover several possible contingencies. Internal communications of whatever net is organized by A/27 and A/14 will be arranged by courier, cut-out, live and dead drops.
+
+## F. OPERATIONAL AND SECURITY EVALUATION
+
+1. The LCFLUTTER examinations on both AMICE/27 and AMICE/14 were inconclusive. Although it is the opinion of both the case officers and the training personnel who have been in close contact with these individuals that both agents are
+
+SECRET

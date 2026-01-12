@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_2048.png
+
+Convert to MarkdownEru:
+Geoагадає called & requested alia as C/IA credentia
+SWENSON
+Harald F. Kjeldsen
+Svenson is a Stated Attorney in his practice area
+said Svensen is a smooth guy who is more than just a smooth guy
+thirsty O.K.
+
+5-Nov-62
+
+Wolfgang

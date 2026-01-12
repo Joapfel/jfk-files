@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_872.png
+
+Convert to Markdown"Jacques DUCLOS made a special report emphasizing that this was one of the most important tasks: to be carried out by the Communists within the C.I.O.
+
+"Besides the above, the question of Greece and Turkey was discussed, notably the question of boycotting of war materials sent to those countries."
+
+"Finally, the different speakers spoke of the necessity of defending the U.S.A. by all possible means."
+
+"André MARY is said to have specially dealt with the question of labour in the colonies, emphasizing the necessity of bringing about unity of action among the blacks, throughout the African Continent, e.g., in French, British and Belgian possessions."
+
+"The above, according to our source, were the principal points which had been studied during the various meetings of Communist chiefs in Paris."
+
+"We understand that all other details about FOSTER's arrival and departure from this country have already been passed to you by M. I. S."

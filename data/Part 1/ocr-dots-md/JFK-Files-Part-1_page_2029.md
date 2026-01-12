@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_2029.png
+
+Convert to Markdown104-10130-10339
+
+CONFIDENTIAL
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+Memorandum for the File
+
+TARASOFF, Boris
+
+13 February 1962
+
+About two weeks ago Mr. [Sounitza], 00/C extension 3026, called and said that they needed an interpreter for a Soviet Delegation for one afternoon and Subject had been selected. Mr. [Sounitza] said that Mr. Kuhn had given his approval recently on the Subject.
+
+Mr. [Sounitza] said that a new exchange program is now under negotiation.
+
+Subject will be under [State Department] cover (as a contractor for the language school.)
+
+No security objection was interposed to Subject's use.
+
+R. C. Swendiman
+
+5/17/62

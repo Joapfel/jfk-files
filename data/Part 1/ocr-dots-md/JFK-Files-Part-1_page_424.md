@@ -1,0 +1,66 @@
+# JFK-Files-Part-1_page_424.png
+
+Convert to Markdown14-00000
+
+21. ROWLAND, Arnold
+26. RODRIGUEZ, Arnesto, Jr.
+27. ROQUE, Juan Manuel Salvat
+28. RODRIGUEZ, Santiago Alvereaz
+29. RUBENSTEIN, Jack aka Jack Rubin
+30. SMITH, Helen Kay aka Pixie Lynn
+31. STONE, John Eli
+32. SARGENT, Andres Nazar (No. 59)
+33. SAMUEL,
+34. STURGIS, Frank (See No. 22)
+35. SUN, Loo Mrs.
+36. STEIN, Charles Joseph
+37. STERN, Samuel
+38. STINNEWIYN, Robert
+39. STONER, Jessie B.
+40. STUCKEY, William
+41. STURGIS, Frank aka Frank Fiorino
+42. STOVALL, Richard S.
+43. SWEATH, Allan
+44. SHAW, Clay
+45. SARGENT, Andres Nazar (No. 59)
+46. SUGAR, Frank
+47. URBAN, Walter
+48. VON DREYER, Rudolf
+49. WATKINSON, James
+
+7. .057 8 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-0070/9 1 Feb 78
+78-1057 8 Mar 78
+78-0433/1 6 Mar 78
+78-1057 8 Mar 78
+78-0070/1 12 Jan 78
+78-0588/1 16 Feb 78
+78-0588/1 16 Feb 78
+78-1057 8 Mar 78
+78-0095/1 30 Jan 78
+78-0070/22 28 Feb 78
+78-0433/1 6 Mar 78
+78-0070/17 21 Feb 78
+78-1057 8 Mar 78
+78-0351/1 19 Jan 78
+78-0095/1 30 Jan 78
+77-5685/2 28 Dec 77
+78-0095/1 30 Jan 78
+78-0433/1 6 Mar 78
+78-0674/1 13 Feb 78
+78-0674/1 13 Feb 78
+77-5685/2 28 Dec 77
+78-0351/1 19 Jan 78
+78-1057 8 Mar 78
+78-1057 8 Mar 78
+78-1035/1 15 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1534/1 25 Apr 78
+78-1534/1 25 Apr 78

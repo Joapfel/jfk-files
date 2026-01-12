@@ -1,0 +1,93 @@
+# JFK-Files-Part-1_page_1228.png
+
+Convert to Markdown14-0000
+
+<table>
+  <tbody>
+    <tr>
+      <td colspan="3">CLASSIFIED MESSAGE</td>
+    </tr>
+    <tr>
+      <td>UNIV<br/>EXT<br/>DATE</td>
+      <td>FE/CIOF<br/>5602<br/>12 OCTOBER 1968</td>
+      <td>[ ] INDEX<br/>[ ] NO INDEX<br/>*) FILE IN CS FILE NO.201-736/31</td>
+    </tr>
+    <tr>
+      <td colspan="2">TO: MEXICO CITY</td>
+      <td></td>
+    </tr>
+    <tr>
+      <td>FROM: DIRECTOR</td>
+      <td>C/Fc 6</td>
+      <td></td>
+    </tr>
+    <tr>
+      <td>REF:</td>
+      <td colspan="2">A DP, C/CT, C/FT 2, C/WH 5, D/OS 2, RF, IVR</td>
+    </tr>
+    <tr>
+      <td colspan="3">CITE DIR 75338</td>
+    </tr>
+  </tbody>
+</table>
+
+TO
+
+DAMDIATE MENI
+
+INFO
+
+KAPCK LCHARVEST
+
+REF MENI 6483 (IN 38148)*
+
+1. LIAN SZE CHEN 2733 1335 2052, 201-736761 BOM 1901, T.X.
+
+LANGUAGE ENGLISH. MEMBER OOP.
+
+**BACKGROUND:**
+
+1923 BA TSINGHUA UNIV
+
+28 BA, MA UNIV HONI
+
+28 MA HARVARD
+
+28-31 PROF AT NATIONAL FORNEASTERN UNIV, CELIA RESEARCH RESEARCH
+
+31-41 RESEARCH FELLOW, DEPARTMENT OF CENSUS ARCHITECTURE
+
+32-33 PROF NATIONAL Peking Univ; PROF NATIONAL Tsinghua
+
+UNIV, PEKING
+RESEARCH
+
+41-43 RESEARCH FELLOW, ACADEMIA SINICA
+
+18 PROF NATIONAL TSINGHUA UNIV, PEKING
+
+47 BONUSARY PHD YALE: VISITING PROF YALE
+
+10-01 MEMBER OF TSINGHUA UNIV
+
+55-61 HEAD OF DEPT OF CIVIL ENGINEERING AND ARCHITECTURE,
+
+TSINGHUA: VICE PRESIDENT ARCHITECTURE & C.I.C.
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+GROUP:
+Included from autograph
+doing-studying and
+correspondence
+
+(CONFIDENTIAL)
+AUTHENTICATING
+OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.
+15912

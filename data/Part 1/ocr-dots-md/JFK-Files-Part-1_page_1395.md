@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_1395.png
+
+Convert to MarkdownSECRET
+
+- 14 -
+
+highly motivated and strongly anti-communist, this point will remain basically unresolved since it is almost certain that A/27 would refuse a second LCFLUTTER examination if asked. It is believed that A/27 was withholding information during the LCFLUTTER and subsequently. The nature, seriousness, and possible consequences of this are as yet not clear.
+
+2. A/27 has told at least two people something about this operation. Although he says that he did not give any details of the operation, he does admit to having discussed it in very general terms with two individuals whom he named at the time of the LCFLUTTER test. One of these is a friend of Gutierrez/Menoyo and one a friend of Vargas Gomez.
+
+3. AMICE/27 has not seen his contacts in the army for the past two years. Although it is difficult to assess how well he knows various persons in the military about whom he speaks, it is the case officer's opinion that few of these contacts might be considered really close. AMICE/14 has been out of direct touch with his operational contacts since July 1961.
+
+4. The infiltration into Cayo Cinco Leguas is dependent upon having a good guide in the boat. At this time, Phase II is awaiting the recruitment of AMTRUNK/4 as guide.
+
+5. Control over AMICE/27 and AMICE/14 is basically lacking. Some control can be exerted through the implied threat of withholding support to the operation. Control however will remain tenuous at best and A/27 will continue to be a difficult handling problem.
+
+6. On the positive side of the ledger is the calibre of the agents, both of whom are well educated, astute, and highly motivated. Both agents have experience in clandestine operations, particularly A/14 who has made a number of previous clandestine entries and exits and has many operational contacts. To date both have performed in a superior manner in training.
+
+## V. FUTURE PLANS
+
+During the week of 1 through 6 April, the team will receive maritime instruction. During the week 8 through 13 April, they will receive SW training, possibly OWVL training, disguise training, and further operational planning sessions.
+
+## VI. COMMITMENTS
+
+1. According to AMICE/27, the following principle, which he feels is a commitment from ODYOKE, was enunciated during his initial trip to ZRMETAL: "ODYOKE will recognize a new Cuban SECRET"}]

@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_397.png
+
+Convert to Markdown14-00000
+
+7 Robert S. Hadlhamie (Tokyo field contract) cover
+
+4 Charles D. Martin - Ret. Cal? Blacked
+
+9 Carl W. Martin
+Route #2, Box 100
+T. Allston, Massachusetts 02104
+
+10 Bob Ajivie - Log off Tokyo
+
+11 Jack Randall
+3508 Frederick Place
+Kensington, Md. 20795
+open Ret Jan 1972 -
+
+14 Kam Takeda (NR) TDEAM!
+Head Office Tokyo
+
+15 Shiguro Yamada
+1131 University Blvd. West
+appt 1114
+Silver Spring, Md. 20902

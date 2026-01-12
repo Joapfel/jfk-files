@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_454.png
+
+Convert to Markdown14-00000
+
+they had no desire to obtain. I said that I felt that serious consideration should be given to either advising Mr. Colby about the particulars, or if that was not satisfactory, to at least advise our oversight Committee chairmen and ask them to investigate whatever serious leads had been developed in the secure environment structured for the oversight of sensitive CIA matters. Mr. Thompson admitted this suggestion had some merit.
+
+LYLE L. MILLER
+Deputy Legislative Counsel
+
+Att.
+
+Distribution:
+
+Original - Subject
+
+1 - DCI
+
+1 - DDCI
+
+1 - ER
+
+1 - OGC
+
+✓ 1 - IG
+
+1 - DDO
+
+1 - OS
+
+1 - Chrono

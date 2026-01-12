@@ -1,0 +1,62 @@
+# JFK-Files-Part-1_page_1880.png
+
+Convert to Markdown28 February 1961
+
+MEMORANDUM FOR THE RECORD
+
+FROM : Chief, SB/2 Desk
+SUBJECT: COVER, (NONOFFICIAL) - GENERAL
+(Proposal for A&E Assessment of Potential REDSKIN Agent Candidates)
+#90682
+
+1. Reference is made to my previous memorandum pertaining to the subject as captioned, ending with the Memorandum for the Record dated 21 February 1961.
+
+2. As indicated in the referenced memorandum, CCG feels that the PSYCHOLOGICAL ASSESSMENT ASSOCIATES (see copy of SR memorandum-dated 3 February 1961 and my memorandum dated 21 February 1961) should not be utilized. This decision was made as a result of a conversation between Mr. Howard OSBORNE, Deputy Chief, SR Division, and Mr. Jack SOUTHARD, Chief, CCG/NC.
+
+3. A meeting was called on 27 February 1961 to determine the type of cover organization that should be substituted for this purpose. After considering the matter at length, it was ascertained that the Agency has a cleared employment service in (Pittsburgh) which could possibly be utilized as an initial A&E assessment. This firm, the EMPLOYMENT SERVICE COMPANY, is located in the Union Trust Building, Pittsburgh, Pennsylvania, and is managed by Margaret A. KEARNEY (see SSD File 95018). It was agreed that if the EMPLOYERS SERVICE COMPANY could provide the needed cover, two OTR psychologists would be documented in true name with that firm in Pittsburgh, CCG (Frank O'MALLEY) will make a trip to Pittsburgh in the next few days to determine whether Miss (KEARNEY) is amenable to the proposed arrangement. The two psychologists selected were Doctors BRADT and MCKEE, on whom credit checks were recently completed with negative results as to Agency employment.
+
+4. It was further ascertained at this time that Mr. Howard OSBORNE desired that all training and assessment of REDSKIN Agents who pass the initial screening be conducted
+
+SECRET
+
+<table>
+   <tr>
+    <td>DCS/35</td>
+   </tr>
+   <tr>
+    <td>DCS/125</td>
+   </tr>
+   <tr>
+    <td>CSD</td>
+   </tr>
+   <tr>
+    <td>Chief</td>
+   </tr>
+   <tr>
+    <td>A. Chief</td>
+   </tr>
+   <tr>
+    <td>Lt. Chief</td>
+   </tr>
+   <tr>
+    <td></td>
+   </tr>
+   <tr>
+    <td></td>
+   </tr>
+   <tr>
+    <td></td>
+   </tr>
+   <tr>
+    <td></td>
+   </tr>
+   <tr>
+    <td></td>
+   </tr>
+   <tr>
+    <td></td>
+   </tr>
+   <tr>
+    <td></td>
+   </tr>
+  </table>

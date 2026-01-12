@@ -1,0 +1,97 @@
+# JFK-Files-Part-1_page_418.png
+
+Convert to Markdown14-00000
+
+1. HALL, Harvey aka Harry Haller, Harry Helfgett
+2. HANES, Arthur
+3. HARGRAVES, Roy Emory
+X 4. HARVEY, William
+X 5. HASHIMA, Robert S.
+6. HAYGOOD, Clyde A.
+X 7. HELMS, Richard
+8. HERNANDEZ, Victor Dominador Espinosa
+9. HICKS, Johnny B.
+10. HILL, Gerald Lynn
+11. HOKE, John Lindsay
+12. HOKE, Sylvia Ludlow
+13. HOLMES, Harry D.
+14. HOPKINS, Louis
+15. HOWARD, Lawrence aka Lorenzo Salcedo
+16. HOWARD, Dr. Rex J.
+17. HOWARD, Dr. Rex Z.
+X 18. HUNT, E. Howard
+19. HYDE, Loretta
+
+20. HERNANDEZ, Celso (No. 15)
+21. HECHEVARRIA, Alberto Hernandez
+22. HERNANDEZ, Celso Macario
+23. HERNANDEZ, Carlos
+24. HEMMING, Gerald Patrick ( No. 64)
+25. HIRIGOYEN, Mario A.
+
+J CONTINUED
+
+8. JOHNSON, William
+
+78-0588/1 16 Feb 78
+78-0095/1 30 Jan 78
+78-0070/9 1 Feb 78
+78-0070/1 12 Jan 78
+78-0433/1 6 Mar 78
+78-1069/1 15 Mar 78
+78-0433/1 6 Mar 78
+78-0070/9 1 Feb 78
+
+78-1069/1 15 Mar 78
+78-0070/3 26 Jan 78
+78-0070/3 26 Jan 78
+78-1069/1 15 Mar 78
+78-0070/1 12 Jan 78
+78-0070/9 1 Feb 78
+78-0070/1 12 Jan 78
+78-0070/1 12 Jan 78
+78-0070/1 12 Jan 78 0433/1
+78-0070/17 21 Feb 78, 78-0986
+
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+78-1179/1 22 Mar 78
+
+78-1179/1 22 Mar 78
+
+78-0952/1 14 Dec 78
+
+78-0433/1 6 Mar 78
+
+78-1179/1 22 Mar 78
+
+78-1179/1 22 Mar 78
+
+78-1179/1 22 Mar 78
+
+78-1179/1 22 Mar 78
+
+78-1179/1 22 Mar 78
+
+78-0952/1 14 Dec 78
+
+78-0095/1 30 Jan 78
+
+78-0070/9 1 Feb 78
+
+78-0070/1 12 Jan 78
+
+78-0433/1 6 Mar 78
+
+78-1069/1 15 Mar 78
+
+78-0070/1 12 Jan 78
+
+78-0070/9 1 Feb 78
+
+78-0070/1 12 Jan 78
+
+78-0070/1 1

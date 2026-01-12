@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_2034.png
+
+Convert to MarkdownSECRET
+
+28 July 1975
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Wackenhut Corporation
+SF#493 364
+
+1. The files on George R. Wackenhut (SF#254 530) and his company, Wackenhut Corporation, were opened in May of 1960. Agency interest in Mr. Wackenhut and his company was for the purpose of obtaining cover support for Western Hemisphere Agency employees assigned to Florida.
+
+2. Mr. Wackenhut, a former Federal Bureau of Investigation agent, was investigated by this Agency with favorable results, and a Covert Security Approval for his use was granted on 21 November 1961. Subsequently, his company provided cover backstopping to Western Hemisphere employees stationed in the Miami, Florida, area.
+
+3. In April of 1967 due to the notoriety that Mr. Wackenhut had received in connection with his activities in Florida, Mr. Wackenhut's Covert Security Approval was rescinded and this Agency severed our relations with him. However, in November of 1974 it was learned that Wackenhut Corporation was providing guard coverage to Global Marine Development, Incorporated (GMDI), Los Angeles, California, a firm that the Agency office of DDS&T was dealing with. This Agency made no attempt to persuade GMDI to terminate their contract with Wackenhut Corporation, and it is assumed that GMDI is still receiving guard coverage from them.
+
+E2 IMPDET
+CL BY 063994
+
+SECRET
+
+3/RS

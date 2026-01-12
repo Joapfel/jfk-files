@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_1815.png
+
+Convert to Markdownof top-flight people who for some years have dealt almost exclusively with just such problems.
+
+We recognize all the difficulty, in the course of a project of this type, of shifting responsibility from one deputy to the other; and we realize that development must also lap over into the operational phase. We suggest having as a general rule (but granting that exceptions will arise) that when operation begins the responsibility for the _operations_ should be the DD/P's, but that DD/R should retain his responsibility for seeing that the equipment he has developed continues to function properly. There is here attached a specially classified annex.
+
+SECRET
