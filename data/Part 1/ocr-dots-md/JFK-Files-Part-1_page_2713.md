@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_2713.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - June 1955-January 1960)
+
+Operational Activities (1958-1960)
+Deputy Chief of the American-British Commonwealth Section
+
+According to NOSENKO, the Seventh Department was reorganized in June 1958, and NOSENKO's section, which theretofore had been concerned with operations against foreign tourists from all countries, was split into two new sections, one concerned with tourists from the United States and the British Commonwealth and the other with tourists from Europe, Latin America, and all other countries. NOSENKO claimed that at that time he was promoted to the position of Deputy Chief of the American-British Commonwealth Section, "the most important section of the Seventh Department".
+
+In September 1958, he claimed to have personally recruited Gisella HARRIS. It was also in 1958, he said, that he supervised the sexual entrapment of Virgil KRAFT, although Seventh Department Chief DUBAS made the actual approach. Beginning in the spring of 1959 he said he directed his agents YEFREMOV and VOLKOV in a series of successful entrapments—DREW, LUKIS, WILBY, TAYLOR, and MERTENS. NOSENKO stated that he also used these homosexual agents in 1959 in compromising two American guides at the Sokolniki Exhibit, BARRETT and WILLER-FORD. Finally, NOSENKO said, he recruited the Moscow representative of the American Express Company, FRIPPEL. NOSENKO claimed that his operational success during 1959 earned him a commendation from the KGB Chairman. [He has since retracted all claims to any awards earned during his KGB service.] It was because of his position as Deputy Chief of the American-British Commonwealth Section, NOSENKO said, that he first became involved with Lee Harvey OSWALD.
+
+NOSENKO asserted that the recruitment of agents among foreign tourists was secondary to his department's principal mission, the detection of Western intelligence officers and agents among the increasing flow of tourists visiting the Soviet Union. In line with that counterintelligence mission, on General GRIBANOV'S order in the fall of 1959, NOSENKO
+
+TS No. 197124
+Copy 10
+
+Top Secret
+
+G/BR
+
+6061397

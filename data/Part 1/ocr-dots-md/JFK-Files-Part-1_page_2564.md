@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_2564.png
+
+Convert to MarkdownIn regard to (a), the papers are only a rather minute part of
+the total papers prepared in the First Section during 1958 - 1960.
+The lack of any information in these papers which directly or indirectly
+indicates that the KGB made a recruitment of an American in the
+Embassy or had an American source in the Embassy during the 1958 -
+1960 period is only a matter for consideration. It is not conclusive
+proof that a recruitment was not made or that an American source
+did not exist. The papers do not contain a positive statement on
+either matter.
+
+In regard to (b), the quite specific information in the papers
+that Petr S. POPOV was uncovered by the KGB as a result of KGB
+surveillance on George Payne WINTERS, Jr., who mailed a letter to
+POPOV in January 1959, this information should be considered as
+possibly information of a deceptive nature unless an adequate explanation
+can be made for its presence in the papers. POPOV was recalled to
+Moscow from East Germany in November 1958 ostensibly for TDY.
+The circumstances under which he was recalled and collateral infor-
+mation have given adequate grounds for a belief that by November
+1958 POPOV was suspected by the KGB of cooperating with Western
+Intelligence or that the KGB may even have been sure POPOV had
+been cooperating with United States Intelligence.
+
+It may be presumed that any lead to the KGB in regard to
+POPOV or the fact that United States Intelligence, more specifically
+
+0001254

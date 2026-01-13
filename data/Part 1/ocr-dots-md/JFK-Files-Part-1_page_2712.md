@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_2712.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - June 1955-January 1960)
+
+went back to England, they would tell who they were with [report their contacts in the USSR]. They would probably question BIRSE especially, as one who used to work in intelligence... BIRSE would say: 'There was this man from the Ministry of Culture, NIKOLAYEV. He was with us all the time, even went to Leningrad with us.' So they would say: 'How does he look [what does he look like]?' He would say: 'He looked so-and-so.' I'd go there, and they would look at me and say: 'How come this man--his name is NOSENKO, and yet he is very similar to the one described by BIRSE?' That was why it was decided I have to go again under the name NIKOLAYEV. Just a matter of conspiracy. Since I already became known as NIKOLAYEV to the Britishers, this would be noticeable."
+
+**Comment:** That NOSENKO (as NIKOLAYEV) took the trips is corroborated by British records, according to which, a Yuriy Ivanovich NIKOLAYEV, born 30 October 1927, arrived at London from Brussels on 20 August 1957. His visa application described him as a member of a group invited by the Light Athletics Association to participate in contests in London. He left on 27 August 1957. With the same name and date of birth, NIKOLAYEV arrived again at London on 12 October 1958 with seventeen others, all described as boxers. His visa application described him as an "office worker", but on his landing card, NIKOLAYEV was listed as a boxer. He left London on 19 October 1958. On neither visit did NIKOLAYEV attract the attention of any British security service. While these trips are corroborated, they are not material to NOSENKO's claims to have served in the KGB positions he alleges he held at the time.
+
+0001396
+
+TS No. 197124
+
+Copy _______

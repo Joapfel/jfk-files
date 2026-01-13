@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_3930.png
+
+Convert to Markdown14-0000
+
+Att. 55 to UFGA-21693 dated
+UFGA-21693/14
+
+SUBJECT: <u>PERDIGON</u> (mat. Wk.), Presbistero C.T. Cua. Doc. c/1930 Cilia Syenit N-101-7-1938 G-2. Urab area.
+
+1. Source met Subject about February 1960 at which time both were working at the Ministerio de Obras Publicas. Source is not able to provide any information regarding Subject's life prior to this time. Source stated their relationship was merely that of fellow employees. Source last saw Subject in December 1961 at which time Source resigned his post at the Ministerio de Obras Publicas. Source believes that although Subject is a militia man and has a position in the Purchasing Department at the Ministerio de Obras Publicas, Subject really works for the DSE or G-2 as Subject used to go frequently to the personnel department where he secured information from the personal files of the employees. Source does not know if Subject has ever travelled outside of Cuba, if Subject has any relatives outside Cuba, or if Subject has ever received any political, military or "intelligence" training. In Source's opinion Subject is a staunch supporter of the Cuban Communist regime. Subject is married to (fnu) FERNANDEZ (mat. unk.) who is a sister of Osmin FERNANDEZ (mat. unk.) C-t. Cuba 15 Julio 1961
+
+2. Physical description: DPOB: circa 1930, San Juan y Martinez, Pinar del Rio. Race: white. 5'10", 150 lbs., dark hair, dark eyes, long face, slim build. No visible scars.
+
+3. JMWAVE traces:
+
+a. Previstare PERDIGON is G-2 and head of the supply department for the Public Works, Havana (Navy Intel Info Rpt 9-8-61, 13 December 1961).
+
+b. Prebistereo PERDIGON, DOB: c. 1932, is Chief of Unidad 22, Materials Supply for the Ministry of Public Works, via Blanca and Paso Superior, Havana. Subject is also a Lt. in the Rebel Army and wears a uniform (DCE 15394, 5 August 1962).
+
+c. Previstareo PERDIGON, DPOB: 1930, Pinar del Rio. Subject is 5'8" tall, 108 lbs., black hair and eyes, a G-2 agent in Ministerio de la Construccion. Works as "Responsable de Suministros de la Regional Habana" of MICON. Office in the MICON warehouse in Carratera de Rancho Boyeros. Subject is a miliciano and a member of the Rebel Army (Source: Olga FORNES Lopez de Espino, AMSIGH-1ebriefing, dated 15 September 1964).

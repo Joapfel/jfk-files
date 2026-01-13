@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_2940.png
+
+Convert to MarkdownTop Secret
+
+(OTHER ASPECTS OF NOSENKO'S KGB CAREER)
+
+NOSENKO said in October 1966 interrogations that he had
+lied when he had claimed in 1964 to be a lieutenant colonel,
+that actually he had been but a captain. Asked why he had
+claimed in 1962 that he had been a major, NOSENKO denied
+that he had ever even mentioned his rank to CIA in 1962.
+
+Conclusion
+
+NOSENKO has stated that he became a senior lieutenant in the KGB in 1952, April 1953, 1954, or 1956. He was promoted to the rank of captain in 1956 or September/October/December 1959; a major in December 1958 or 1959; and a lieutenant colonel in October/November 1963. He brought to Geneva in 1964 an official KGB document dated November 1963 identifying him as a KGB lieutenant colonel. In retracting his claim that he was ever a major or lieutenant colonel, NOSENKO asserts that nevertheless as a captain, he held the position of First Deputy Chief of the Seventh Department.
+
+NOSENKO's contradictions and retractions with respect to his KGB rank parallel and are apparently related to his contradicted and retracted claims regarding Naval RU service, date of entry to the KGB, KGB assignments and positions held, and in short, to the totality of his claims regarding KGB service, few of which are credible.
+
+0001624
+
+TS No. 197124
+
+Copy 10

@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_2144.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="10">POSITION CONTROL REGISTER</th></tr><tr><th rowspan="2">INSTRUMENT NAM</th><th rowspan="2"></th><th rowspan="2">RAC<br>NAME</th><th rowspan="2">BAG<br>PAGS</th><th rowspan="2">PAGS<br>TOTAL</th><th rowspan="2">BEN<br>BOMB</th><th rowspan="2">CASH<br>BILL<br>GATE</th><th rowspan="2">OFFICE<br>AUTO<br>N.M.</th><th rowspan="2">COG<br>CAPS</th><th colspan="3">SUPERVISOR</th><th rowspan="2">P.O.<br>OFFICE</th><th rowspan="2">LAWYER<br>FULL NAME</th><th rowspan="2">SECURITY KEY</th></tr><tr><th>DIVISION</th><th>STAFF</th><th>GROUP</th></tr></thead><tbody><tr><td>WILLIAM H. SMITH</td><td>S3 0186-0110</td><td>DR</td><td></td><td></td><td>2</td><td>87</td><td>C 21</td><td>19</td><td></td><td></td><td></td><td></td><td>SMITH, WILLIAM S</td></tr><tr><td>LINDA L. MILES</td><td>S3 0186-0110</td><td>DR

@@ -1,0 +1,52 @@
+# JFK-Files-Part-1_page_2731.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - June 1955-January 1960)
+
+Seventh Department operation: by NOSENKO's other statements,
+she was not a "tourist" and she would have been the target
+of the Moscow Oblast KGB because of her intention to marry
+a Soviet citizen.
+
+While NOSENKO's participation in the attempted recruit-
+ment of the targets he describes, even where not confirmed,
+is not disputed, the evidence suggest that he was an
+English-speaking specialist in sexual entrapment, not a
+counterintelligence officer responsible for the identifi-
+cation of foreign agents among tourists or for the develop-
+ment, recruitment, and exploitation of agents for the KGB.
+
+Nothing NOSENKO has said indicates that there was any
+material change in his duties and responsibilities after
+he was allegedly promoted to Deputy Chief of the American-
+British Commonwealth Section. The evidence is that he was
+more active, but not that he had any administrative and
+supervisory responsibilities.
+
+Knowledge of other Seventh Department
+American Tourist Operations
+
+NOSENKO said that upon his return to the Seventh Depart-
+ment in 1962 as Chief of the American-British Commonwealth
+Section, he reviewed the section's activities during his
+two-year absence, e.g. January 1960 to January 1962. In
+the course of that review he made written notes of the
+section's operational targets during that period notes
+which he brought to Geneva in 1964. (See p. 319.) NOSENKO
+could not describe the operations other than to say that he
+recorded the target's names and such details as he could
+acquire at the time of his review. Eleven of the operations
+included in his notes were those against Bernard PECHTER,
+Patrick PRESSMAN, John RUFE, Gerald SEVERN, Sofia SHATTAUER,
+fnu KARLOV, Norman FISK, Ralph MATLAW, Marvin KANTOR,
+Ob Michael GINSBERG, and William TARASKA: All were from the
+period 1956-1959 and six of the eleven individuals were
+identified by the KGB as homosexuals. All of these cases
+are described in Annex B.
+
+GOC1415
+
+TS No. 197124
+Copy 10
+S/BR

@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_2485.png
+
+Convert to Markdownnot an adequate reason to transfer responsibility for the agent and it
+appears the KGB considers that the continuation of an established
+handler-agent relationship has considerable merit.
+
+NOSENKO, as previously indicated, has stated that he had the
+responsibility for work against code clerks at the United States Embassy
+during 1960 - 1961. Except for the period of time that he claims respon-
+sibility for supervision of work against the Service Attaches in early
+1960, he was, according to NOSENKO, responsible for supervision of
+the work of Vadim A. KOSOLAPOV, Gennadiy I. GRYAZNOV, Vladimir
+DEMKIN and Yevgeniy GROMAKOVSKIY.
+
+GRYAZNOV and KOSOLAPOV worked only against code clerks
+and therefore were supervised solely by NOSENKO, whereas DEMKIN
+and GROMAKOVSKIY, who handled indigenous agents in American
+House, came under the supervision of NOSENKO only in those cases
+where these agents were directed against code clerks.
+
+It is quite clear that the knowledge of NOSENKO concerning the
+code clerks, code machine mechanics and pouch clerks who, according
+to NOSENKO, were included in his targets in 1960 - 1961, was much
+greater than his knowledge of any other category of American employees
+at the United States Embassy during this period except for ABIDIAN.
+
+0001180

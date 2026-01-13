@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_2691.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - June 1955-January 1960)
+
+**Comment:** SOBOROVA was an Inturist guide for a number of American tourists, including CIA agents, between 1957 and 1959. [SUTTON] has identified her. In 1959 she was the head of all English-language interpreters at Inturist headquarters in the National Hotel, Moscow.
+
+Vladimir MURMTSEV
+
+MURMTSEV, KGB cryptonym "LEEDEV", was recruited by NOSENKO from Inturist in 1955. He was NOSENKO's agent until called into the army in about 1959, when he was sent to a Soviet Air Force Academy in Central Asia to serve as an interpreter with Syrian students there. During that period his file was held by the KGB organization in Central Asia. When he returned to Moscow he was re-employed by the KGB Second Directorate.
+
+**Comment:** NOSENKO has said elsewhere that MURMTSEV had been a Second Chief Directorate agent "since 1958", implying that someone else recruited him and that he thus could not have been NOSENKO's agent in 1955. MURMTSEV was identified in 1957 as an Inturist guide by two CIA sources.
+
+Nikolay ROGOV
+
+ROGOV, KGB cryptonym "OZERO", was recruited in 1955. He had been formerly a "confidential contact" of the KGB. He worked in the central Inturist office which assigned interpreters to British and American citizens visiting the USSR.
+
+C001375
+
+TS No. 197124
+
+Copy 10
+
+Top Secret
+
+V/SR

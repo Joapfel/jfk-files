@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_2735.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - June 1955-January 1960)
+
+for spotting, contacting, and assessing and, eventually,
+communicating with agents in the Soviet Union. BLAKE
+confessed to passing the document to the KGB as soon as it
+came into his possession.
+
+Comment: It is not advanced that NOSENKO should neces-
+sarily have known of BLAKE, although his
+statements on the matter have been ambiguous.
+Asked in 1962 whether he knew of BLAKE (whose
+earlier arrest had been publicized), NOSENKO
+affirmed that he did but indicated that BLAKE
+was a less important source than the Canadian
+Ambassador (WATKINS) or the agent in the
+British Admiralty (VASSALL). When BLAKE was
+mentioned in 1964, NOSENKO asked "Who's BLAKE?"
+
+The significance of BLAKE is that his
+confession established that the KGB was fully
+aware of the status and character of American
+and British Intelligence tourist operations
+while NOSENKO alleges he was in the Seventh
+Department. It is judged, by any measure as
+well as by NOSENKO's statements about the KGB,
+that the substance of the information if not
+the document itself would be brought to the
+attention of a key KGB counterintelligence
+officer concerned, the Deputy Chief of the
+American-British Commonwealth Section, which
+NOSENKO claims was himself.
+
+KGB Study of American Intelligence Tourist Operations
+
+In 1961 CIA acquired a lengthy KGB Top Secret study on the subject of the use of tourists by American Intelligence for espionage and operational support in the Soviet Union. The KGB study draws recognizably upon the information supplied by BLAKE and, although concerned primarily with American tourist operations in 1960, it also refers to American agents whom KGB counterintelligence elements identified among tourists in the years 1958 and 1959, while NOSENKO claims he was Deputy Chief of the American-British Commonwealth Section and during which time he claims the KGB identified no American Intelligence agents.
+
+G001419
+
+TS No. 197124
+Copy 10
+
+Top Secret

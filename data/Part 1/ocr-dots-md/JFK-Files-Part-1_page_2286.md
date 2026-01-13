@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_2286.png
+
+Convert to MarkdownCABLE SEC DISSEM BY ____ PER ____
+PERSON/UNIT NOTIFIED _________
+
+TOTAL COPIES
+SECRET
+
+RUN BY
+
+REPRODUCTION BY OTHER ISSUING OFFICE IS PROHIBITED
+
+ADVANCE COPY ISSUED/SLOTTED
+
+BY AT Z
+
+<table><thead><tr><th>ACTION UNIT</th><th>1.</th><th>RF. FILE.</th><th>VR.</th></tr></thead><tbody><tr><td>I.</td><td></td><td></td><td></td></tr><tr><td>N</td><td></td><td></td><td></td></tr><tr><td>F</td><td></td><td></td><td></td></tr><tr><td>O</td><td></td><td></td><td></td></tr><tr><td>ACTION #</td><td>2.</td><td></td><td>5.</td></tr><tr><td></td><td>3.</td><td></td><td>6.</td></tr></tbody></table>
+
+STAFF
+
+T 325447 EIA549
+
+PAGE 02-02
+
+IN 459495
+
+TOR:091001Z NOV 77
+
+(HAGU) 33077
+
+IS OF INTEREST IN VIEW HIS NOTORIOUS ROLE AT THE TIME OF THE DEATH OF GEORGE DE MOHRENSCHILD. LATTER WAS OF INTEREST BOTH TO SENATE SELECT COMMITTEE ON INTELLIGENCE AND HOUSE ASSASSINATIONS SUBCOMMITTEE. IF HOS DEEMS IT APPROPRIATE, NO STATION OBJECTION TO CONVEYING ABOVE, WITH ADEQUATE SOURCE PROTECTION, TO PROPER CONGRESSIONAL AUTHORITIES.
+
+4. FILE: 281-155221, E2, IMPDET.
+
+SECRET
+
+c/s SUGGESTS ADD DISSEM TO: OJCC

@@ -1,0 +1,6 @@
+# JFK-Files-Part-1_page_3524.png
+
+Convert to Markdown<table><caption>ORIENTATION PROGRAM<br/>AMBIDDY-1</caption><tbody><tr><th scope="row">PROGRAM PERIOD: 6 - 18 January 1964</th><td></td></tr><tr><th scope="row">TOTAL HOURS : 83</th><td></td></tr><tr><th scope="col">SRIOD</th><th scope="col">SUBJECT</th><th scope="col">INSTRUCTOR</th><th scope="col">INTERPRETER</th></tr><tr><td>6 January<br/>1930-2130</td><td>Orientation and Review of Schedule</td><td>REUTENAN and ZAMKA</td><td>None</td></tr><tr><td>7 January<br/>1300-1800</td><td>Nature and Elements of Clandestine Activities</td><td>MASENGILL</td><td>None</td></tr><tr><td>8 January<br/>0900-1400</td><td>Security (Personal, Physical, Organizational and Operational), Cover</td><td>MASENGILL</td><td>None</td></tr><tr><td>1700-2200</td><td>The Infiltration Team Principles and Concepts, Organization of a Resistance Net</td><td>PIRNACK</td><td>DECONBAND</td></tr><tr><td>9 January<br/>0900-1200</td><td>Compartmentation and Clandestine Communications</td><td>MASENGILL</td><td>None</td></tr><tr><td>1300-1500</td><td>Organization of Basic Net for Clandestine Activity</td><td>MASENGILL</td><td>None</td></tr><tr><td>10 January<br/>0900-1200</td><td>Caching and Sabotage Techniques</td><td>PIRNACK</td><td>DECONBAND</td></tr></tbody></table>
+
+GROUP I
+Included from automatically generated file.

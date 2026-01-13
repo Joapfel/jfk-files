@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_2626.png
+
+Convert to Markdown# Top Secret
+
+(FOUNDATIONS OF NOSENKO'S CLAIMS)
+
+Comment: (Continued)
+the KGB with a mock code machine rotor. He
+further acknowledged that he had been recon-
+tacted by the KGB in the United States in
+1957, where he met KGB officers regularly
+until September 1962. He identified by photo-
+graph all of the KGB officers described by
+NOSENKO as having taken part in the operation.
+NOSENKO "cannot be certain" that he did not
+know about "ANDREY" while he served in the
+Embassy Section in 1953-1955, and when pressed
+to describe specifically the source of his
+information, he invariably indicated that he
+learned of the American agent later, informally
+from KGB colleagues.
+
+Edward Ellis SMITH
+
+NOSENKO's Information
+
+In the context of a 1962 discussion of KGB operations against the American Embassy in Moscow, NOSENKO was asked whether he knew "about SMITH". He answered: "SMITH? The red-head. Listen, he headed the FBI, he was a colonel and headed counterintelligence." NOSENKO went on to describe the mounting of a blackmail operation, of which he was the case officer, against SMITH (whose KGB cryptonym was "RYZHIY", or "REDHEAD").
+
+SMITH had been sleeping with his Russian housemaid, who
+was an agent planted on him by the KGB. When the KGB was
+unable to obtain actual incriminating photographs, she was
+instructed to take photographs of herself on SMITH's bed.
+These were then combined with photographs of SMITH to
+produce photomontages, copies of which were delivered to
+SMITH together with a letter inviting him to a meeting with
+the KGB. SMITH came. The KGB was represented at the
+meeting by GRIBANOV, NOSENKO and one other officer. At
+this initial meeting SMITH was not interrogated nor asked
+for classified information. SMITH agreed to come to further
+meetings.
+
+00013C8
+
+TS No. 197124
+
+Copy 10
+
+Top Secret

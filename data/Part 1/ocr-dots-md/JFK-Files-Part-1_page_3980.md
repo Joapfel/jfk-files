@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_3980.png
+
+Convert to Markdownaid pro et seq. arrangement whereby:
+
+a. Artino would use his force to patrol the coast of these countries and prevent smuggling of arms and/or general contraband,
+
+b. Artino would receive, in exchange for this service, permission from these governments to keep any arms which he might capture and be allowed to maintain bases from which to launch operations against Cuba.
+
+Some of the specifications follow:
+
+Colombia
+
+Artino would purchase petroleum, food, and clothing from the government for a group to be stationed there and a beachhead to establish a camp,
+
+If there is a landing in Cuba, Artino would immediate recognition by the Colombian Government as head of a government in exile,
+
+Artino would guarantee to wipe out smuggling and would patrol from Limache to the Florida border. He could also guarantee to police the guerrilla groups by using two small groups. The group to conduct operations against Cuba and the other to act as instructions and field advisors to the Colombian army.

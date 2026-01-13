@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_3154.png
+
+Convert to Markdown2:
+
+ДИПЛОМАТИЧЕСКАЯ ВИЗА
+
+Вид. Виза.
+
+REPUBLICA ARREGENTINA
+Ministerio de Pasaiones
+Exteriores y Culto
+
+ДОкнUNEВЬЕТВИЙНА БРАБАНА МБ СССР
+
+19
+
+P.
+с處ва любов'єй погранчыкий вузьт
+
+м. и. Подмоскве
+
+ДИПЛОМАТИЧЕСКАЯ ВИЗА
+
+ДОКТОР ПЕСЕТА НЕ СССР
+
+Изгreadо, ар. пат. № 27
+д. с...е. 1968 г. Con: Passport
+diplomatico N.º183. conyuga
+por la Régina de la Republi...
+en ULLS.
+al社...о с...е.
+
+13

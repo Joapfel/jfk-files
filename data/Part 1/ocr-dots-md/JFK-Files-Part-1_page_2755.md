@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_2755.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+PREISFREUND was used in no KGB operation other than in the development of STORSBERG. His usefulness declined because he was suspected, particularly by his fellow Finns, of having some relationship with the KGB.
+
+Comment: A report of the Finnish security service advised CIA in December 1960 that PREISFREUND "is a Soviet agent who calls at the America Club in Moscow and develops Americans in an attempt to penetrate Western circles".
+
+After GOLITSYN's defection [in December 1961] NOSENKO (who had by then transferred back to the Seventh Department) and KOVSHUK concluded that PREISFREUND thereby had been identified as a KGB agent to American Intelligence; and that PREISFREUND should not be used again against American Embassy personnel. NOSENKO was told to use the Finn in Seventh Department operations, but he was unsuitable since he knew only Finnish and Russian.
+
+NOSENKO'S Information-1965
+
+In the February-March 1965 interrogations NOSENKO provided some additions as well as further amendments to what he had related earlier about STORSBERG. GRYAZNOV wrote the initial operational plan, which NOSENKO read and approved. The plan called for a detailed study of STORSBERG and the creation of some basis on which to make an operational approach. The case developed slowly in 1960. From a female clerk named YAZHINSKAYA and other employees in the Finnish Embassy, PREISFREUND obtained background information on STORSBERG, who sometimes visited the sauna in the Finnish Embassy. PREISFREUND was directed to visit America House in order to strike up an acquaintance with STORSBERG, and when he was successful, he managed to lure STORSBERG to his hotel room, where the KGB obtained incriminating photographs of STORSBERG and the female agent Inga VARLAMOVA. STORSBERG visited PREISFREUND's rooms many times at different hotels in Moscow, but the KGB took incriminating photographs on
+
+0001439
+
+TS No. 197124
+Copy 10
+
+Top Secret

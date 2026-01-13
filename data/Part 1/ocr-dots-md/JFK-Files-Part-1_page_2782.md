@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_2782.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+Svetlana IVANOVA, a maid or waitress at America House reported to DEMKIN, her case officer, everything she saw or heard concerning [MORONE] and KOSOLAPOV visited her several times with DEMKIN to discuss [MORONE] and NOSENKO himself met her once or twice in one of the two safe apartments that DEMKIN had at his disposal. NOSENKO did not recall any specific information from IVANOVA on [MORONE] which was interesting or useful.
+
+SARWAT EL SHAZLY, an Egyptian employed at the Egyptian Embassy and an agent of the Sixth (Underdeveloped Countries) Department of the KGB Second Chief Directorate, visited America House and met [MORONE], but he reported nothing of value that NOSENKO recalled.
+
+Pietro CECCHI, an Italian cook at the American Embassy and KOSOLAPOV's agent, reported everything he heard or saw about Americans to KOSOLAPOV, but NOSENKO recalled nothing specific that CECCHI had reported about [MORONE].
+
+In early 1960 GRYAZNOV went to East Berlin to obtain two German women who could be used against the residents of America House. One of these, Hanna, a blonde, was documented as a West German. NOSENKO never met her but instructed [PREISFREUND] (see the [STORSBERG] case) to take her to America House and leave her on her own. Hanna went several times to America House in 1961, but NOSENKO can recall nothing that she may have reported on [MORONE]. The second East German girl was documented as an Austrian. NOSENKO never met her but he recalled that she was asked for her documents at America House on her first or second visit there. She replied that she had left them at her hotel, left America House, and never returned. (NOSENKO did not remember the time when this incident occurred, beyond the fact that he was still in the Embassy Section and that ABIDIAN was the Embassy security officer at the time.)
+
+From one of these agents, or possibly in some other manner, the KGB learned that [MORONE] was planning to go on leave in Warsaw. NOSENKO, KOSOLAPOV, and GRYAZNOV thereupon decided to employ a Polish female agent in an attempt to compromise him. KOSOLAPOV wrote the draft of the operational plan for the attempt, which was approved by GRIBANOV after
+
+0001466
+
+TS No. 197124
+
+Copy ________

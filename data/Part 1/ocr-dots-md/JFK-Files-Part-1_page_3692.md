@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_3692.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">CABLE SECRETARIAT DISSEMINATION</th><th>CLASS: SECRET</th><th>TOTAL COPIES</th><th>RATING AND/OR INITIALS: SEEN OF</th></tr></thead><tbody><tr><td colspan="2"><strong>FOR INTERNAL USE ONLY</strong></td><td><strong>SECRET</strong></td><td>39</td><td></td></tr><tr><td>ADVANCE COPY ☐</td><td>ISSUED ☐</td><td>SLIPPED ☑</td><td></td><td></td></tr><tr><td colspan="5"><strong>REPRODUCTION OF THIS COPY PROHIBITED</strong></td></tr><tr><td>PAPER: <input type="checkbox" checked disabled/> PRINT: <input type="checkbox" disabled/></td><td>CLARITY TO COPY NO.:</td><td colspan="3"></td></tr><tr><td>BY: <input type="text" disabled/></td><td>REF TO COPY NO.:</td><td colspan="3"></td></tr><tr><td>DERIVED BY 23 PER .</td><td>☐ FILE RD ☐ RETURN TO ____________ BRANCH ____________</td><td colspan="3"></td></tr><tr><td>ACTION UNIT WH8 O1-2</td><td colspan="4">FILE, VE R/LAN, F12, c1, c1/08, c1/162, S88, D04 DDP, ADDP, CSDD</td></tr><tr><td>ACTION NO. 873</td><td colspan="4"></td></tr></tbody></table>
+
+SECRET 212213Z MAY 70 CITE LIMA (6942 POLLICOVE ACTING)
+
+MANAGUA INFO DIRECTOR, WH/MIAMI
+
+21 MAY 088069
+
+REF: MANAGUA 7336 (IN085604)
+
+I. FOLLOWING COMMENTS RE REF MAY BE USEFUL COS MANAGUA:
+
+A. PERU MAKING REAL EFFORT BECOME WORLD'S LARGEST PRODUCER AND EXPORTER FISHMEAL. EXPECTED KICK-BACK ON COMMISSION TO GENERALS NOT SURPRISING. GENERALS PROBABLY INCLUDE ARTOLA.
+
+B. RE PARA TWO REF, STATION HAS NO KNOWLEDGE OF OUSTING LEFTIST CIVILIAN ADVISOR TO PRESIDENT VELASCO ALVARADO, WITH POSSIBLE EXCEPTION OF RUIZ ELDRIDGE, WHO WAS BEEN NAMED PERUVIAN AMBASSADOR TO BRAZIL. NOT CLEAR WHETHER RUIZ BEING EASED OUT BECAUSE LEFTIST/PRO-COMMUNIST LEANINGS AS RESULT OF PRESSURE FROM ARMY OR WHETHER APPOINTMENT REPRESENTS REWARD TO RUIZ - POSSIBLY COMBINATION BOTH.
+
+C. GOVERNMENT SPOKESPERSON, PARTICULARLY VELASCO AND ARTOLA CONTINUE DENY COMMUNIST INFLUENCE IN GOVERNMENT, DESPIKE THIS COMMON KNOWLEDGE. GOVT OFFICIALS PRIVATELY
+
+CS COPY
+SECRET
+
+<table><tr><td>ANQH</td></tr><tr><td>ABX</td></tr><tr><td>H</td></tr><tr><td>L</td></tr><tr><td>L</td></tr><tr><td>S</td></tr><tr><td>PL</td></tr><tr><td>WH2N</td></tr></table>

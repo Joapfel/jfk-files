@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_3402.png
+
+Convert to MarkdownA. - Yes. We dream of independence with liberty, liberty with culture, culture with bread, bread for honest work, honest work with respect for the dignity of the human being; and all this in a democratic regime of Latin American character and Christian morality.
+
+Q. - Would your group favor keeping some laws of the Revolution if it is proved that they correspond to some need, or do you think that the Fidel epoch should be swept out completely and a fresh start made?
+
+A. - When Fidel's regime is overthrown, Cuban needs are going to be quite different from those of our country with the tyrant in power. I believe the laws he made which could answer real Cuban needs were badly conceived and ^directed even worse^.
+
+I believe that without fundamentally changing the 1940 constitution, which means for Cuba a return to the rule of law, it will be possible to make laws which will meet Cuban needs.
+
+Q. - Are you opposed to the negroes?
+
+A. - No; nor am I opposed to the whites, which means the same thing to me. What interests us is not the color of the skin but the color of the soul and of the ideals.
+
+Perhaps that is why our movement is the one that has more black brothers in its ranks, including the highest civil and military positions.
+
+Q. - Do you favor, as has been stated, establishment in Cuba of a semi-confessional state with open predominance of the most conservative elements of the Catholic Church?

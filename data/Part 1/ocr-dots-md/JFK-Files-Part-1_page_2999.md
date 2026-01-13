@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_2999.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+9. It should, perhaps, be noted here that in an informal exchange with Mrs. Donald WEBSTER, TOMEU's supervisor at the Defense Language Institute, Anacostia Naval Annex, 4 June 64, Mrs. WEBSTER volunteered the information that "all of the other 'Brigade students here' have told me they think very highly of TOMEU, and that he is a very brave man, because he and his family were very wealthy in Cuba and he gave it all up to go into exile and fight the Castro Regime."
+
+WR/3A/SO/XS
+C. PAUL FLUMB, JR.
+
+SECRET
+
+<table><tr><td>GROUP I</td></tr><tr><td>Member has automatic</td></tr><tr><td>downgrading and</td></tr><tr><td>declassification</td></tr></table>

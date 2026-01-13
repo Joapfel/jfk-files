@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_3534.png
+
+Convert to Markdown<table><thead><tr><th colspan="4">SENDER WILL CHECK CLASSIFIED ATION TOP AND BOTTOM</th></tr><tr><th>UNCLASSIFIED</th><th>CONFIDENTIAL</th><th colspan="2">SECRET</th></tr></thead><tbody><tr><td colspan="4">CENTRAL INTELLIGENCE AGENCY<br/>OFFICIAL ROUTING SLIP</td></tr><tr><th>TO</th><th>NAME AND ADDRESS</th><th>DATE</th><th>INITIALS</th></tr><tr><td>1</td><td>SA/50/5B</td><td></td><td>SJS</td></tr><tr><td>2</td><td>SA/50/AR</td><td></td><td>J.J.</td></tr><tr><td>3</td><td>Raul</td><td></td><td>(EJB)</td></tr><tr><td>4</td><td></td><td></td><td></td></tr><tr><td>5</td><td></td><td></td><td></td></tr><tr><td>6</td><td>SA/50/Bobbi</td><td></td><td></td></tr><tr><th>ACTION</th><th>DIRECT REPLY</th><th>PREPARE REPLY</th><th rowspan="4"></th></tr><tr><th>APPROVAL</th><th>DISPATCH</th><th>RECOMMENDATION</th></tr><tr><th>COMMENT</th><th>FILE</th><th>RETURN</th></tr><tr><th>CONCURRENCE</th><th>INFORMATION</th><th>SIGNATURE</th></tr><tr><td colspan="4">Remarks: File: Ambidgy!</td></tr><tr><td colspan="4">Interesting a quite new done in some areas & his remarks. Formerly think that he fielded the sy. to June very well - giving credit to晕人搞 organization. He</td></tr><tr><td colspan="4">PLEASE HERE TO RETURN TO SENDER</td></tr><tr><td colspan="2">FROM: NAME, ADDRESS AND PHONE NO.</td><td colspan="2">DATE</td></tr><tr><td colspan="2">UNCLASSIFIED</td><td colspan="2">CONFIDENTIAL</td></tr><tr><td colspan="2"></td><td colspan="2">MARCH 27</td></tr></tbody></table>
+
+FORM N° 237 Use previous editions
+
+(468)
+
+* U.S. GOVERNMENT PRINTING OFFICE; 1981 O-01280

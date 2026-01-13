@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_3248.png
+
+Convert to MarkdownIrving Amron
+260 Marshall Court
+Long Branch, New Jersey
+
+September 28, 1964
+
+Mr. Paul Peters
+Box 1390
+Main Post Office
+Washington, D. C.
+20013
+
+Dear Mr. Peters:
+
+I greatly appreciate the time you spent with me during our interview in Philadelphia. My intentions to work for your organization have not changed. I am very busy at my job at present and cannot, due to this, send you a different copy of my autobiography. I hope that this will not unduly influence the conclusions of your organization relating to my employment.
+
+Yours truly,
+
+Irving Amron

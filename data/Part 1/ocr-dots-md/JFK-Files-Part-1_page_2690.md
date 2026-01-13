@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_2690.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - June 1955-January 1960)
+
+NOSENKO'S Soviet Agents
+
+The Seventh Department Tourist Section, just established when NOSENKO was transferred to it in mid-1955, had no agent network for operations against American and British tourists. Consequently, NOSENKO said, he and the other case officers had to "start from the beginning".
+
+As a first step NOSENKO was introduced by a fellow officer to a number of "trusted persons" in Inturist. These were not agents, he explained, but "just persons a KGB man could approach with questions about somebody or something". NOSENKO collected information on these and others with the aim of formalizing their recruitments. By the end of 1955, he estimated, he had a network of about eight agents, all of them Inturist interpreters. During the following four years, the number of agents whom NOSENKO handled varied. Agents would be transferred from one case officer to another, some would leave Inturist, and "things were sort of changing all the time, back and forth". In 1956, NOSENKO said, he had about ten agents, in 1957 there were about twelve, in 1958 about eight, and at the end of 1959 (when he was preparing to return to the American Department) he had approximately twelve. The substance of NOSENKO's description of his agents is as follows:
+
+Larissa SOBOROVA
+
+An Inturist English-language interpreter, SOBOROVA was one of the first agents recruited in 1955 by NOSENKO within Inturist. She reported to him on all foreigners with whom she worked as an interpreter. She worked with NOSENKO when he served as a guide for British subjects [BIRSE] and [LANE] in the summer of 1957. During 1957-1959 she was involved and possibly sexually intimate with American travel writer Horace SUTTON. SOBOROVA was NOSENKO's agent until 1959, when she married and "retired".
+
+0001374
+
+104
+
+TS No. 197124
+
+Copy _________

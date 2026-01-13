@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_2126.png
+
+Convert to Markdown
+
+BOSTON CONTROL REGISTER
+
+4-16-75
+
+<table><thead><tr><th>NAME</th><th>POSITION</th><th>DIVISION</th><th></th><th></th><th></th><th></th></tr></thead><tbody><tr><td colspan="2">JOSEPH ADVISOR</td><td>C-0316.01</td><td>18</td><td>1940</td><td>1 SLA</td><td>26 1940</td></tr><tr><td colspan="2">JOSEPH ADVISOR</td><td>C-0316.01</td><td>18</td><td>8030</td><td>83 M11459 C 19 A 10</td><td>031MPY 17937</td></tr><tr><td colspan="2">WILLIAM S. PAPILION</td><td>C-0318.01</td><td>07</td><td>1 B148</td><td>10</td><td>56 1900</td></tr><tr><td colspan="2">JOSEPH F. ELLIOTT</td><td>C-0318.01</td><td>05</td><td>8148</td><td>0</td><td>02444 C 88 C 10</td></tr><tr><td colspan="2">ROBERT L. O'BRIEN</td><td>C-0201.01</td><td>14</td><td>1 B194</td><td>186</td><td>44 1940</td></tr><tr><td colspan="2">ROBERT L. O'BRIEN</td><td>C-0201.01</td><td>12</td><td>1 8043</td><td>458</td><td>56 1900</td></tr><tr><td colspan="2">CHARLES W. CHAMPS</td><td>C-0201.01</td><td>12</td><td>4043</td><td>80</td><td>00691 C 28 A 10</td></tr><tr><td colspan="2">NANCY J. D. HARRIS</td><td>C-0201.01</td><td>11</td><td>1 B193</td><td>63P</td><td>061726 37937</td></tr><tr><td colspan="2">MARGERY K. STEDD</td><td>C-0318.07</td><td>06</td><td>1 8043</td><td>45</td><td>03334 C 84 P 10</td></tr><tr><td colspan="2">EUGENIE CLARIDGE</td><td>C-0310.18</td><td>14</td><td>1 8144</td><td>YH</td><td>031490 27937</td></tr><tr><td colspan="2">JULIE COOPER</td><td>C-0310.18</td><td>18</td><td>8104</td><td>80</td><td>01894 C 28 A 10</td></tr><tr><td colspan="2">ANNA ELLEN D.</td><td>C-0310.18</td><td>17</td><td>8144</td><td>58</td><td>03700 C 28 A 10</td></tr><tr><td colspan="2">RUDY M. HARRIS</td><td>C-0201.02</td><td>08</td><td>1 B148</td><td>48K</td><td>01894 C 28 A 10</td></tr><tr><td colspan="2">L

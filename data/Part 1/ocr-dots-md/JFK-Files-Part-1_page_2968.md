@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_2968.png
+
+Convert to Markdown# Top Secret
+
+(Annex B)
+
+**Comment:** In 1963 [OMELICH] reported his earlier contacts with Soviet officials at Squaw Valley. He denied that he had ever met KGB officers later, or that any meeting arrangements were made for Switzerland, although he admitted "he may have given the impression of sympathy toward Soviets".
+
+[PECHTER, Bernard]
+
+## NOSENKO's Information
+
+[PECHTER] was recruited by the KGB in Moscow in 1959.
+
+**Comment:** In December 1959, a month after [PECHTER]'s return from the USSR, the FBI learned that he had revealed his homosexual compromise and recruitment by the KGB to a member of his tour group. NOSENKO cited the [PECHTER] case not [06] from memory, but from his written notes brought to Geneva in 1964. Although presumably a Seventh Department case, NOSENKO did not relate it to his service there in 1959, nor did he indicate the source of his information.
+
+[PRESSMAN, Aron]
+
+## NOSENKO'S Information
+
+[Patrick (sic) PRESSMAN] visited the USSR in October 1957 with a delegation of American metallurgists and was recruited at that time by the KGB. The case was afterwards turned over to the First Chief Directorate.
+
+0001652
+
+420
+
+Top Secret
+
+TS No. 197124
+
+Copy ________

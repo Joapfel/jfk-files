@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_2629.png
+
+Convert to MarkdownTop Secret
+
+CHAPTER II
+EXAMINATION OF NOSENKO'S BONA FIDES
+
+What NOSENKO has said about himself, the information about the KGB which he has provided, and the apparently corroborative statements which Soviet officials have made since his defection represent prima facie evidence that NOSENKO is a former senior KGB officer. To permit a conclusive judgment that he is a bona fide defector, the information NOSENKO provides about his life and related persons and events must be coherent, and his accounts of important events must be consistent. Allowing for personal vagaries such as lapses of memory and so forth, as well as for factors of accident and coincidence, the information he relates must conform within reasonable limits with that which is known from independent and reliable sources to the United States Government about Soviet realities and about the events, topics and individuals NOSENKO describes. Lastly, the information NOSENKO provides must plausibly relate primarily to the KGB positions he held, and his account of how he functioned in these positions must be substantiated by verisimilar detail.
+
+The following portions of this paper, organized in chronological fashion insofar as possible, summarize this examination of the significant aspects of NOSENKO's claims.
+
+**Notes for the Reader**
+
+In order to follow the examination as presented the reader should note the following:
+
+The examination tests the validity of the presumptive evidence favoring NOSENKO in terms of coherence, consistency, and compatibility with fact and plausibility.
+
+G001311
+
+TS No. 197124
+
+Copy 10
+
+Top Secret

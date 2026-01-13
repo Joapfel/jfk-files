@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_2977.png
+
+Convert to Markdown# Top Secret
+
+(Annex B)
+
+Comment: [STEVENS], after his compromise concerned for his safety for the remainder of his 1961 visit to Moscow, did deposit with the Embassy a letter to his mother. However, he also gave Ambassador Thompson a written report of the KGB entrapment, immediately after the incident, and he was interviewed about the matter by the Minister Counsellor the following day. Inter Viewed periodically by the FBI following his return to the United States in 1961, [STEVENS] has denied any further contact with the KGB.
+
+According to the notes which NOSENKO brought to Geneva in 1964, on the basis of which he reported the [STEVENS] case, [STEVENS] recruitment was accomplished jointly by the American-British Commonwealth Section of the Seventh Department and the American Depart- ment's Embassy Section.
+
+TARASKA, William
+
+NOSENKO'S Information
+
+[TARASKA, a New York City policeman], had been developed by the KGB while visiting the Soviet Union in 1958. Although considered in 1958 a "stupid and unpromising target", the Ukrainian KGB was still interested in attempting to recruit him while he was in the Soviet Union in June 1963.
+
+Comment: [TARASKA], who had visited the Soviet Union in 1958, was recruited by CIA for a mission in 1960. When he returned to the United States he reported that the KGB had attempted to recruit him on both visits. [TARASKA] returned to the USSR in 1963 and later reported to the FBI that the KGB had again attempted to recruit him during that visit.
+
+6001661
+
+TS No. 197124
+Copy 10
+
+Top Secret
+
+8/80

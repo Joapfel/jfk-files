@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_2674.png
+
+Convert to Markdown# Top Secret
+
+(AMERICAN EMBASSY SECTION - ca. 1953-June 1955)
+
+NOSENKO said that the KGB learned nothing interesting about [MICKELSON] from concealed microphones, telephone taps, or surveillance, and that no operational approach or recruitment was attempted. There was, in fact, no interesting or derogatory information on [MICKELSON] from any source.
+
+Comment: [MICKELSON] was involved in at least two incidents inside the Soviet Union which NOSENKO has not reported. In May 1954 he was arrested in Tbilisi on the (false) charge of having photographed a bridge. In August 1954 [MICKELSON] was arrested again for illegal photography south of Kharkov; on this occasion he was held for two hours before being released. It is judged that such events, particularly those staged by the KGB, would be known to the KGB case officer responsible for the attache officer concerned.
+
+[MEARNS]
+
+NOSENKO accurately identified [Fillmore K. MEARNS] as [MICKELSON]'s replacement and said that he was the responsible case officer. There were two agents and one operational contact working against [MEARNS]. Of these, NOSENKO could recall the name only of NOVIKOVA, the same maid who reported earlier on [MICKELSON]. Besides being told to attempt to overhear [MEARNS] conversations, NOVIKOVA was instructed to search his clothing and to copy any notes she might find, but she never overheard or found anything of interest to the KGB. NOSENKO recalled that [MEARNS] personal effects were searched by the KGB while they were being shipped to Moscow from the United States, and that all his service records had been discovered and photographed. (NOSENKO has told this same story about [MICKELSON].) NOSENKO described [MEARNS] as being more "active" in Moscow than [MICKELSON] had been and said that information from concealed microphones showed him to have a strong character. Nothing of interest concerning him was received from these microphones or from telephone taps.
+
+TS No. 197124
+
+Top Secret
+
+Copy ______
+
+0001358

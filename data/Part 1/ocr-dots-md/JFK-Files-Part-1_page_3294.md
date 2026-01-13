@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_3294.png
+
+Convert to MarkdownEB-2753, Case No. 23 - 23 resp 65 (cont.)
+
+20. If you have ever had any citizenship other than Cuban, so indicate, giving dates and other pertinent details.
+No.
+
+21. List your travel outside of Cuba, giving dates and purposes of such travel.
+
+To the U.S. on vacation more than 5 times since childhood. In 1961, already an exile, to Spain, France and Italy.
+
+22. List any membership in professional and/or social organizations.
+Aerospace Medical Association. Cuban National Medical Association and Havana Medical Association. Cuban Endocrinology Society.
+
+23. List your educational background, giving the names and locations of the schools attended and listing any degrees received.
+Grammar school and high school in "Colegio de la Salle," Vedado section, City of Havana. Graduated as a medical doctor in Havana University. Aviation Medicine on 4 Apr 58, Texas, U.S.A.
+
+24. List any languages spoken besides Spanish, and estimate your fluency in reading, writing and speaking as poor, fair, good or excellent, as indicated.
+
+| Language | Reading | Writing | Speaking |
+|---|---|---|---|
+| English | excellent | excellent | excellent |
+| French | good | fair | fair |
+| Italian | good | poor | poor |
+| German | fair | poor | poor |

@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_2365.png
+
+Convert to Markdowncan differ as to the weight which should be given to the value of this
+type of information.
+
+NOSENKO has furnished information concerning SCD, KGB,
+recruitments of United States citizens and foreign nationals covering
+the period of 1953 through 1963. This should not be interpreted as a
+statement that NOSENKO has furnished information in regard to all
+SCD recruitments, even of Americans, during this period. His infor-
+mation based on personal knowledge is in general limited to the First
+Department and Seventh Department. He has furnished information
+concerning cases of several other departments in the SCD and some
+FCD cases, but this information was in general acquired indirectly
+from social or business conversations with other KGB officers.
+
+NOSENKO has furnished information in regard to a number of
+cases which were previously known to United States Intelligence. While
+the value of such information cannot be considered high, the additional
+details which NOSENKO has provided in a number of cases cannot be
+dismissed as being of no value to Western Intelligence, even if the
+information cannot be regarded as damaging to the KGB. Furthermore,
+inasmuch as there is no reason to question his sourcing of information
+already known, there is no basis for suspicion of NOSENKO for his
+having provided such information.
+
+001069
+
+SECRET
+
+14-00000

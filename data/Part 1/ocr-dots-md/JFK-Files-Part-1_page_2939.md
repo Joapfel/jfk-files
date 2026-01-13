@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_2939.png
+
+Convert to Markdown**Top Secret**
+
+**(OTHER ASPECTS OF NOSENKO'S KGB CAREER)**
+
+with the use of KGB operational documents. He stated that thus he was a senior lieutenant still in 1959, and although GRIBANOV had promised him that he would be promoted directly to major at that time, an administrative error was made in the personnel office, and he was just promoted to captain. Instead of rectifying the mistake, NOSENKO said, GRIBANOV persuaded him to remain a captain until (if a major) in 1963 he became eligible for promotion to lieutenant colonel. In October 1963, he concluded, he was promoted directly to the rank of lieutenant colonel; he was never a major, and he had served as senior lieutenant from 1953 to 1959, and a captain from 1959 to 1963.
+
+Comment: According to this chronology, NOSENKO was merely a captain when he claimed to have been Deputy Chief of the American Embassy Section, and still a captain for much of the time that he was Deputy Chief of the Seventh Department.
+
+In August 1965 interrogations NOSENKO still claimed that he was proposed for advancement to captain in 1956, but he stated that he was not promoted because of shortcomings in his work. [He earlier had claimed he was being punished for misuse of operational documents.] In response to his interrogator's question, NOSENKO replied that he had claimed earlier in 1962 and 1964 to have been a major because he thought the truth would not have been believed.
+
+In a voluntary statement written in April 1966, NOSENKO alleged that he had been promoted to the rank of senior lieutenant in 1956 [he earlier claimed 1953], to captain in December 1959 [he could not previously remember the month] and that at the end of 1963 he was recommended for the rank of major. Continuing, NOSENKO said he had never held the rank of lieutenant colonel, and the travel order [which he brought to Geneva in 1964] indicating his rank as lieutenant colonel, was filled out erroneously.
+
+GOC1623
+
+352
+
+TS No. 197124
+
+Copy _________

@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_2826.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+in the information as it did not relate to agents or agent activities. NOSENKO noted, however, that the material concerned messages from the Secretary of State to the American Ambassador, Moscow. All of this material was highly sensitive, and few people were permitted to see it or even to know of its existence. NOSENKO stated that it was treated more carefully than Top Secret information.
+
+Unable to describe the techniques of the KGB Eighth Directorate in breaking U.S. Department of State cryptographic systems, NOSENKO nevertheless did indicate methods as known to him. One method, mentioned by NOSENKO on 12 June 1962, stemmed from the habit of certain Embassy officials (notably Ministers Counsellor FREERS and MCSWEENEY) dictating the text of outgoing cables aloud. When the texts were picked up on the KGB microphones, the Eighth Directorate compared them against enciphered traffic intercepted by other means.
+
+NOSENKO has referred to the Eighth Directorate's interest in equipment sounds and snatches of technical conversations picked up by the microphones in the State Department and military code rooms.
+
+"Now, we also listened to the code room and the teletype office, but we could never get anything out of the teletype office because of interference [equipment noises which drowned out conversations]. In the military code room--that was where [James H.] STORSBERG and later [Matthew P.] ZUJUS worked--we didn't get much. We could hear [STORSBERG] swearing on occasion, and then he would mention a group of numbers. This was, of course, all recorded and we turned it over at once to the Eighth Directorate, dealing with coding and decoding. Of course, all other intercepts were turned over to them also."
+
+With respect to the use of code clerks by the American Department, NOSENKO recalled that in 1948 or 1949 the KGB was helped a great deal by [James H.] McMILLAN [a military code clerk of the Embassy staff who defected in 1948], and by "ANDREY" [Dayle SMITH, see p. 33]. It was thanks to
+
+001510
+
+TS No. 197124
+Copy _________

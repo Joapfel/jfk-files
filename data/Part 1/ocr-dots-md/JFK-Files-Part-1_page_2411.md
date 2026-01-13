@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_2411.png
+
+Convert to MarkdownSECRET
+
+could have provided NOSENKO with some type of document which
+would support at least one of his claimed positions in the SCD, KGB.
+
+Even the Cherepanov Papers do not in any way support the claim of
+NOSENKO that he was Deputy Chief of the First Section, First
+Department, SCD, in 1960 - 1961, nor do they even support the claim
+of NOSENKO that there was such a position in the First Section in
+1960 - 1961 or even in 1958 or 1959.
+
+0001111

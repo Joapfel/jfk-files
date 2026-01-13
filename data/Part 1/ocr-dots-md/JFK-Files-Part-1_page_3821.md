@@ -1,0 +1,82 @@
+# JFK-Files-Part-1_page_3821.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>Yes ☐ do</td>
+    <td></td>
+    <td>CLASSIFIED MESSAGE O TOTAL COPIES 4</td>
+  </tr>
+  <tr>
+    <td colspan="3">TO FILE NO.2-1-24</td>
+  </tr>
+  <tr>
+    <td>RE RSD ☐ REF. TO BRANCH ☐</td>
+    <td colspan="2">SECRET</td>
+  </tr>
+  <tr>
+    <td>DESTROY ☐ S1G.</td>
+    <td colspan="2">PERSON/UNIT NOTIFIED</td>
+  </tr>
+  <tr>
+    <td>Firm A</td>
+    <td colspan="2"></td>
+  </tr>
+  <tr>
+    <td>A02</td>
+    <td colspan="2"></td>
+  </tr>
+  <tr>
+    <td>ACTION</td>
+    <td>[ ] RED COPY</td>
+    <td>ADVANCE COPY [x] SLOWE [ ] SLIGHT [ ] MOVED UNIT TIME BY</td>
+  </tr>
+  <tr>
+    <td>INFO FILE VP CLWHA, CISO3 CLHDFZ CLHINTZ</td>
+    <td colspan="2"></td>
+  </tr>
+</table>
+
+SECRET 052245Z CITF MANAGUA 6085
+
+DIRECTOR INFO JMWAVE, PANAMA CITY
+
+RYBAY TYPIC AMWORLD
+
+REF: DIRECTOR 97509
+
+DESENSITIZED
+
+6 Apr 67
+
+<table><tr><td>AM/FM</td><td>FI</td></tr><tr><td>B5</td><td>FM</td></tr><tr><td>ABSTRACT X</td><td></td></tr></table>
+
+1. INSPECTION AND REPACKING COMPLETED. ORIGINAL ESTIMATE CUBE TOO HIGH. MEASURED VOLUME OF 184 REMAINING BOXES TOTALS 418 CUBIC FEET. ALLOWING 20 PERCENT FOR STACKING LOSS ESTIMATE LOAD CAN BE PLACED IN SPACE 500 CUBIC FEET. LONGEST ITEM 70 INCHES. ESTIMATED WEIGHT 15,000 POUNDS.
+
+2. NO INCENDIARIES OR DETONATING DEVICES. TEN BOXES FRAGMENTATION HAND GRENADES. ALL IN ORIGINAL SEALED CANS. FIVE BOXES 60 MM MORTAR AMMO. ONE BOX 81 MM MORTAR AMMO. ONE BOX TNT IN SMALL BLOCKS. ALL ABOVE BOXES MEASURE 24 BY 14 BY 15 INCHES. DEFER TO HQS ORDINANCE EXPERTISE ON WHETHER THIS MATERIAL SAFE FOR SHIPPING.
+
+3. CONSIDERABLE QUANTITY C-3 AND C-4 PLASTIC EXPLOSIVE. ALL IN APPARENT GOOD CONDITION.
+
+4. DETAILED LIST ENTIRE CACHE BEING POUCHED PRIORITY
+
+7 APRIL.
+
+201-267437
+6 april 1967
+
+L
+
+S
+E
+N
+S
+I
+T
+I
+V
+E
+N
+T
+
+2
+
+<table><tr><td>SECRET</td></tr></table>

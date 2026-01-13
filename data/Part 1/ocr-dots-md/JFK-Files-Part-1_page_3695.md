@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_3695.png
+
+Convert to MarkdownEDITIONS
+
+<table><tr><td>CABLE SECRETARIAT DISSEMINATION</td><td>CLASS: <u>CONFIDENTIAL</u></td><td>TOTAL COPIES: 20</td><td>PRINTING AND DISTRIBUTION SCHEDULE</td></tr></table>
+
+<table><tr><td>ADVANCE COPY ☐</td><td>ISSUED ☐</td><td>SLOTTED <u>SECRET</u></td><td></td><td>1</td><td>5</td></tr><tr><td colspan="3"></td><td></td><td>2</td><td>6</td></tr><tr><td colspan="4">REPORT ON UNIT FOUND</td><td>3</td><td>7</td></tr><tr><td>NOTE ☐</td><td>NOTE ☐</td><td>NOTE <u>CONFIDENTIAL</u></td><td>RECEIVED ☑<br/>NOTE <u>CONFIDENTIAL</u></td><td>1</td><td>7</td></tr><tr><td>BY: <u>NAME</u><br/>30 PER</td><td></td><td>CLAIMS TO BE FILED NO:<br/>SEE TO BE FILED NO:<br/>FILE NO: <u>NAME OF BRANCH</u></td><td></td><td></td><td></td></tr><tr><td>AUTHORISED BY: <u>NAME OF BRANCH</u></td><td>PER <u>NAME OF BRANCH</u></td><td>FILE TO BE RETURNED<br/>TO <u>BRANCH</u></td><td></td><td></td><td></td></tr></table><table><tbody><tr><td rowspan="2">ACTION UNIT WHP 8</td><td>FILE, VZ R/L AN FZ ci c16ps DOP ADOP CSDO</td><td>950 c1/c2</td></tr><tr><td colspan="2"><b>SECRET 121859Z MAY 70 CITE MANAGUA 7332 (CONFIL)</b></td></tr><tr><td colspan="3">LIMA INFO DIRECTOR, WH/MIAMI</td></tr><tr><td colspan="3">REF: MANAGUA 7157, 14 OCT 69 (IN 65339) <u>CONFIDENTIAL</u></td></tr></tbody></table>
+
+1. AMBIDDY-1 VISITED COS MANAGUA NIGHT 7 MAY. IN COURSE LONG CONVERSATION MENTIONED; MAD BEEN PHONED; NIGHI BEFORE IN MIAMI BY GENERAL GUILLERMO LEIGH OF REFERENCE. LEIGH PASSING THRU MIAMI EN ROUTE NEW YORK, SAID WOULD CONTACT AMBIDDY ON RETURN 10 MAY. APPARENTLY INTERESTED IN PLACING SOME MONEY IN U.S. BANKS. REMARKED THAT VELASCO ESSENTIALLY WEAK, BEING RUN BY CIVILIAN ADVISERS AMONG WHOM SOME COMMIES. AMBIDDY WILL REPORT ON RESULTS AND STATION WILL RELAY DETAILS LIMA.
+
+2. AMBIDDY CLARIFIED THAT SUBJECT IS NOT LEGITIMATE GENERAL. WAS MILITARY CLASSMATE PRESENT OFFICERS THAT RANK, LEFT ARMY OWING TO SERIOUSLY IMPAIRED EYESIGHT, IS CALLED "GENERAL" AS COURTESY BY ARMY FRIENDS WITH WHOM HE STILL KEEPS CLOSE RELATIONSHIPS.
+
+3. FILE: 201-860098, 201-267437. GP-1
+
+SECRET
+
+<table><tbody><tr><td>AU</td><td>AJ</td><td>AK</td><td>AH</td><td>AI</td><td>AJ</td><td>AH</td><td>AU</td><td>AH</td></tr><tr><td>DESMTD</td></tr><tr><td>N/A</td></tr></tbody></table>
+
+SECRET
+
+CO COPY FILED 201-860098
+
+201-860098
+
+201-267437 12 may 70
+
+10.

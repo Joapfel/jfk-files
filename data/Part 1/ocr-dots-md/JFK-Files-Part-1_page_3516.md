@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_3516.png
+
+Convert to MarkdownSECRET
+
+3
+
+15. A-1 was cautioned not to place all his trust in Cornelio Orlich.
+
+16. A-1 was asked for his opinion about transporting the rest of the infiltration people now in Miami to Costa Rica by means of an off-shore transfer. This would be done in a manner similar to the transfer of sabotage equipment. A-1 advised we would need at least two weeks prior notice. A-1 sounded enthusiastic about the idea and he said he would consider it.
+
+Raul J. Hernandez
+WH/SA/SQ/HH
+
+File:
+AMBIDDY-1 - 201
+Conversations
+Finance
+Commercial
+
+SECRET
+
+<table><tr><td>Excluf</td></tr><tr><td>down</td></tr><tr><td>dai</td></tr></table>
+
+L
+
+J

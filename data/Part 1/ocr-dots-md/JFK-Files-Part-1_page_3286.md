@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_3286.png
+
+Convert to Markdown5. Many instances of periodic injury were observed immediately after the operation. This injury is similar to that observed in patients through the atricle.
+
+6. No were able to observe a fast deviation of the QRS axis towards the left, accompanied by signs of left ventricular hypertrophy, which shows severe mitral insufficiency.
+
+5. The possibility of myocardial infarction following the trans-ventricular mitral dilatation is mentioned.
+
+## CHRONIC OBSTRUCTIVE EMPYEMA (e)
+### PSYCHOPATHOLOGY
+
+By Dr. Alberto Orlandini N.(**)
+
+(*) Presented before the First Regional Congress on Stomatology of Southern Oriente, on 29 October 1964.
+
+(**) Resident of the Psychiatric Service, Provincial Training Hospital of Santiago de Cuba.
+
+## SUMMARY
+
+The chronic obstructive emphysema with breathing inefficiency of the fourth degree originates first dilirium, and then catatonic stupor. The psychic disturbances following the changes of consciousness are described.
+
+## CARDIOVASCULAR ASPECTS OF SICKLE CELL (e)
+
+By Dr. Jose Cabrera Flores(**) and
+Dr. Hugo Canargo Gallegos(**)
+
+(*) Presented before the First Regional Congress on Stomatology of Southern Oriente. Santiago de Cuba, October 1964.
+
+(**) Dr. Enrique Cabrera Cosío Cardiovascular Department, Provincial Hospital of Santiago de Cuba.
+
+## CONCLUSIONS
+
+After studying eight patients with Sicklecella, the most important observation has been the enlargement of the electric systole shown by the electrocardiograms. This is to be confirmed in subsequent studies. Other observations are the presence of the Heglin syndrome in the two cases presenting the lowest hemoglobin level, the evolution with normal cardiac rhythm in most cases. This phenomenon is present in the evolution of chronic anemic syndromes and has not been fully explained yet.

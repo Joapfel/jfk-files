@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_3726.png
+
+Convert to Markdownadministration's Cuban policy. He expects this policy to be more hard-line but has not specifically said that REBOZO has said this would be so. He recently told me that some of my ideas on enforcing the economic blockade had been passed on to REBOZO.
+
+6. In response to my queries as to what direction the new Cuba policy might take, ARTIME said in March 1969 that he did not expect the NIXON administration to address itself to the Cuban problem before May of this year. Then he expects a concerted effort to make the economic blockade work. If that does not yield results, he expects that a go-ahead will be given for the resumption of Cuban exile raids against Cuba from non-U.S. bases. He hopes to be the man chosen to lead in this endeavor. Again, in response to my questions, he said that exiles could be trained in Nicaragua. He favors using Haiti as the actual base of operations, i.e., the raiding parties would leave from there. He mentioned having talked with President DUVALIER and indicated that he has DUVALIER'S approval for such operations.
+
+7. ARTIME said that operations against Cuba would be designed to knock out shipping and port facilities. He has not recently referred to his earlier invasion plan as outlined in MANAGUA 6752 of 23 October 1968.
+
+8. ARTIME is still as charming as ever, lots of fun to be around socially--full of jokes, anecdotes, etc. He has not lost faith, is one of the few of what have been termed elsewhere "the old exile hacks" who have not given up. He really does seem determined to play a leading role in unseating CASTRO. He is beginning to go to fat a bit. I saw him in a bathing suit not long ago and thought that he would do well to get into trim if he hopes to lead in any military operation.
+
+9. ARTIME has never made any discernable efforts to pry secrets from me; indeed, he seems to have taken special pains not to do so. He is mature and quite objective--can see various facets to just about any problem. I believe it is well worthwhile maintaining occasional contact with him.
+
+SECRET
+
+14-00000

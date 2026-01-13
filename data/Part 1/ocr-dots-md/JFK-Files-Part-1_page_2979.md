@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_2979.png
+
+Convert to Markdown# Top Secret
+
+(Annex B)
+
+**Comment:** (Continued)
+
+KUNGAROVA was interviewed by the FBI in June 1965. She confirmed that she had been intimate with [THOMPSON] in 1959 but denied that she had been instructed to compromise him.
+
+NOSENKO has claimed KUNGAROVA was his agent in 1959, although he has not related that claim to his description of her role in the [THOMPSON] case.
+
+[TORREY, Carmen]
+
+## NOSENKO's Information
+
+[TORREY] who was in love with a Soviet citizen, was recruited by Seventh Department case officers on that basis in 1960 and turned over to the First Chief Directorate, which helped her obtain employment at the UN (also given as NATO). NOSENKO was in the American Department at the time.
+
+**Comment:** In 1960 it was reported that [TORREY] planned to defect to the USSR because she was in love with a Soviet citizen. In 1961 she married an American. In 1962 GOLITSYN reported KGB attempts to recruit an American identifiable as [TORREY] during her October or November 1959 visit to Moscow. [TORREY] worked for the [Pan American Union] in 1954-1959, but there is no indication that she was ever employed by the UN or by NATO.
+
+NOSENKO has not indicated the source of his information on [TORREY]. In 1959, when GOLITSYN reported the KGB attempted to recruit [TORREY], NOSENKO claims he was in the Seventh Department, not the American Department.
+
+0001663
+
+TS No. 197124
+Copy 10
+
+Top Secret
+
+10/SR

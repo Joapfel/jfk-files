@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_3990.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+d. Travel costs of Artime and MRR officers $ 2,000
+
+e. Support of dependent families and survivors of MRR members (mostly in Cuba) $ 5,000
+Total $14,865
+
+3. If approved, these funds will be channeled through the secure AMWORLD funding channels, which are still in operation.
+
+APPROVED:
+
+Deputy Chief, WHD/C
+cc WH/B&F
+
+SECRET.

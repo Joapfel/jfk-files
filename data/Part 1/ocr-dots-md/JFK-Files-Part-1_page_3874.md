@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_3874.png
+
+Convert to Markdown<table><tr><td>TRANSMITTAL SLIP</td><td colspan="2">DATE</td></tr><tr><td></td><td colspan="2">11/15/87</td></tr><tr><td>TO:</td><td colspan="2">J. W. Hatcher</td></tr><tr><td>ROOM NO.</td><td>BUILDING</td><td></td></tr><tr><td colspan="3">REMARKS: Source A time. Follow-up on his meeting with Lisseny in Miami. What has happened on this case?</td></tr><tr><td>FROM:</td><td colspan="2">EM</td></tr><tr><td>ROOM NO.</td><td>BUILDING</td><td>EXTENSION</td></tr><tr><td>PINK IN</td><td colspan="2">241</td></tr><tr><td>1FEB 87</td><td colspan="2">REPLACES FORM 39-6 WHICH MAY BE USED.</td></tr></table>
+
+(0)

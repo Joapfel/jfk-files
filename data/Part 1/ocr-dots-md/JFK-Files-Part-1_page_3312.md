@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_3312.png
+
+Convert to MarkdownCOOPERATION--The Cuban doctors taking part in the special conference of the Pan-American medical confederation in La Paz, Leopoldo Arana and Jose Angel Bustamante, were received by Chilean presidential candidate Salvador Allende during their brief stopover in Santiago de Chile on their way to Bolivia. (Eavana Spanish Americas 1100 GMT 26 June 1963--E) ...

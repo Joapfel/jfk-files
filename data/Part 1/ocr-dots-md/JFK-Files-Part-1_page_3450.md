@@ -1,0 +1,6 @@
+# JFK-Files-Part-1_page_3450.png
+
+Convert to Markdownimage for ARTIMÉ. In talking with Sulec, the subject of ARTIME arose from time to time. Sulec mentioned that it had come to his attention that ARTIME was in New York with some bebe or another and nowhere near the scene of the strike. Sulec was also extremely critical of the press releases made by ARTIME. I took this occasion to say that I had discussed the matter of ARTIME with people who are much more familiar with his activities than I, given that they are in another geographical area, and that it was my impression that ARTIME is not being given as much credit for his efforts as perhaps he should be and that it may well be that he has fairly solid plans which cannot be actually initiated until such a time as he has welded together the nucleus of a new organization under fire. Once experienced in their present activity, it could well be that ARTIME could follow the RAY concept of developing resistance therein. I told Sulec that I believed that the activities of ARTIME and Kloy GUTIÉREZ Menoyo could not but help RAY's program. Sulec's basic reaction to favorable statements regarding ARTIME may be best described as a snort.
+
+Alfonso Rodríguez
+VI/SA/SO/AR

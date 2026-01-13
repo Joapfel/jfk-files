@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_2379.png
+
+Convert to MarkdownSECRET
+
+NOSENKO, during his five contacts in Geneva, made many statements which in retrospect were impossible, and the investigation of which could only have raised certain questions concerning NOSENKO.
+
+The following is a list of the more obvious areas in which NOSENKO made gross exaggerations or made incorrect or impossible statements.
+
+(a) NOSENKO claimed he personally was with Oleg M. GRIBANOV, Chief of the SCD, during the recruitment pitch to James STORSBERG (This was a lie and an interview with STORSBERG with display of photograph would have disclosed that NOSENKO did not participate.)
+
+(b) NOSENKO was involved in the recruitment approach to Russell LANGELLE. (This was a lie and LANGELLE was available for interview.)
+
+(c) NOSENKO said he recruited LUNT (Horace LUNT) in Bulgaria. (Actually NOSENKO never met LUNT.)
+
+001081
+
+SECRET

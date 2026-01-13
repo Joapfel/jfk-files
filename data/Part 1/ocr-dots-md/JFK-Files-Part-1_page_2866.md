@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_2866.png
+
+Convert to MarkdownTop Secret
+
+SEVENTH DEPARTMENT - January 1962-January 1964)
+
+Visits to the Geneva KGB Legal Residency
+
+Virtually every day, NOSENKO told CIA in 1962, he went to the KGB Legal Residency in Geneva, and if he stayed away for more than a day or two, Legal Rezident S.I. GAVRICHEV would invariably ask NOSENKO where he had been keeping himself. GAVRICHEV, according to NOSENKO, treated him with deference, and shortly after his arrival in Geneva in March 1962, NOSENKO gave a lecture on counterintelligence to the assembled members of the Legal Residency. This lecture was given at GAVRICHEV's request, although it was only after some hesitation on the part of the Legal Rezident that all of his subordinates were brought together to hear NOSENKO. In return for helping the Legal Residency to perform countersurveillance on several occasions, NOSENKO said, he was sometimes allowed by GAVRICHEV to have the use of an operational car and driver to go shopping and carry out other private errands. [NOSENKO was not under CIA surveillance at any time in 1962 in Geneva and his claims as to his activities there, aside from his meetings with CIA, can be neither confirmed nor refuted.]
+
+KGB Officers within the Soviet Delegation
+
+NOSENKO claimed that he would know of any others, and he was the sole KGB officer within the Soviet Disarmament Delegation in 1962. Among delegates he identified only Oleg GRINEVSKIY as having any connection with the KGB. GRINEVSKIY was one of NOSENKO's own agents within the delegation: in Moscow he was handled by KGB officers of the Intelligentsia and Correspondents Department of the Second Chief Directorate. Among other delegates NOSENKO described A.K. KISLOV and V.G. FILATOV. According to NOSENKO, KISLOV was head of the American Section of TASS and was "a genuine correspondent"; "definitely not an intelligence officer".
+
+**Comment:** CIA had tentatively identified all three of the delegates as KGB officers. KISLOV was observed in apparent KGB operational activity in both Washington and Moscow. FILATOV served as an alternate contact with the KGB agent in NATO, Georges PAQUES. British Intelligence has reported that GRINEVSKIY was a member of the permanent Soviet delegation in Geneva who handled
+
+0001550
+
+TS No. 197124
+Copy 10
+
+Top Secret
+
+VBR

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_2453.png
+
+Convert to MarkdownSECRET
+
+William Stanley WILBY) in June 1959, the recruitment of David TAYLOR in the summer of 1959, the recruitment of Gerard MERTENS)in July - August 1959, and the recruitment of Arsene FRIPPEL)in 1959. The foregoing is not a complete list of all cases in which NOSENKO claims personal involvement, but is representative of cases in which his alleged participation has been confirmed by interviews with the individual who was the KGB target.
+
+(Sir Allen LANE, Arthur BIRSE, William Stanley WILBY, and (David TAYLOR) were (British) citizens and the other above-named individuals were (United States) citizens. This would seem to substantiate the claim of NOSENKO that during 1955 - December 1959 he was an officer engaged in KGB operations against American-British Commonwealth tourists in the USSR.
+
+In addition, NOSENKO has furnished specific information about an operation against Martin MALIA, an American tourist who was in the Soviet Union from approximately September 1955 to December 1955. (MALIA)has not been interviewed and will not be interviewed, so at this time no particular 1955 case in which NOSENKO claims involvement or personal knowledge has been substantiated by interview of the individual involved.
+
+0001149
+
+2
+
+SECRET
+
+14-00000

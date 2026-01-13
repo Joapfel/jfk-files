@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_2736.png
+
+Convert to Markdown14-0000
+
+# Top Secret
+
+(SEVENTH DEPARTMENT - June 1955-January 1960)
+
+## SEVENTH DEPARTMENT - 1955-1960: Summary and Conclusion
+
+NOSENKO'S description of the activities of the Second Chief Directorate Seventh Department in this period is almost solely restricted to his account of these fifteen KGB operations. Other than to allege that certain KGB officers he named were his subordinates, he provided no information to substantiate his claim that he had any supervisory or administrative responsibilities. The common feature of the operations do not relate to NOSENKO's own description of the function of the Seventh Department's Tourist Section or later, to the American-British Commonwealth Section. Most were sexual or other entrapment operations, and he acknowledges that several were operations conducted by KGB elements other than his own section. In short, NOSENKO need not have been in the Seventh Department sections, as he claims, to have learned of or participated in the activities he describes. Although NOSENKO gives a graphic account of the Second Chief Directorate's (and his own) counterintelligence mission, his knowledge is not of counterintelligence operations among tourists; in the only three such operations he describes, the counterintelligence aspects were incidental. Contrary to his claims, NOSENKO is aware neither of all important KGB operations conducted against American tourists during the period, nor what was known to the KGB about American Intelligence and British tourist operations.
+
+## Conclusion
+
+While NOSENKO was associated with a KGB element conducting operations against American and other foreign tourists during the period 1955-1960, he was neither a senior case officer nor Deputy Chief of the Seventh Department American-British Commonwealth Section.
+
+0001420
+
+TS No. 197124
+
+Top Secret
+
+Copy _______

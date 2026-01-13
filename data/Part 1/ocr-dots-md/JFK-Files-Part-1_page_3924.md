@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_3924.png
+
+Convert to Markdown14-00000
+
+Att. No. 49 to UFGA-21693
+
+SUBJECT: MENDez, Placido
+aka: "El Gallego"
+
+UFGA - 0103/14
+
+1. Source met Subject about 1955 through a mutual friend Ezequiel GOMEZ, when they both were engaged in activities against the Batista regime. Source was exiled in Mexico with the Subject in 1957 in Mexico City, where both resided at calle Milan No. 40. In late 1959 Subject told source (in the street) that he was working in an Electrical Appliances store near Carlos Tercero, Havana. About 1960 source learned from a mutual friend that Subject was under arrest and source believes as of March 1964 Subject was still in jail. Source heard that Subject has a son, who is presently about 18 years of age. Source believes that the Subject is truly anti-communist, and that this is the reason why he is under arrest.
+
+2. Physical Description: DPOB: circa 1925, place of birth unknown to source. Race: white. 5'9", 160 lbs. Hair: blond. Eyes: light. Shape of face: round. Physique: mid-heavy. No visible scars.
+
+3. JEWAVE Traces:
+
+a. Placido MENDEZ Ramos was listed as under investigation by the Cuban G-2 for anti-Castro acts December 1960 (HKHA 7210, 16 December 1960).
+
+b. One Placido MENDEZ Ramos, formerly MIR Chief for Havana was imprisoned at the Isle of Pines (CK 234, 16 August 1968)
+
+c. Placido MENDEZ, member of the MID was taken prisoner (AMPAID/4 Production, 31 October 1962)
+
+US COPY
+
+SECRET
+
+UFGA - 21693/14

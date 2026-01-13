@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_3144.png
+
+Convert to MarkdownTraduction.
+
+Le titulaire du présent, citoyen de L'UNION
+
+BES. RÉPUBLIQUES SOVIÉTIQUES SOCIALISTES
+
+Ivan ALFERIEV,
+
+Premier Secrétaire de l'Ambassade de l'URSS
+en Argentine
+
+un second à Strasbourg
+
+AU NOM DE L'UNION
+DES RÉPUBLIQUES SOVIÉTIQUES SOCIALISTES
+
+La Minière des Affaires étrangères prie toutes les autorités civiles et religieuses de la URSS et des Payas Amis de laisser passer librement le czar de Prusse, un passport et de lui accorder aide et protection encores de l'impôt.
+
+Un deuxième est venu pour cinq ans...
+
+25 mai 1970
+
+Appelant du Ministre des Affaires étrangères de l'URSS
+
+Pour traduction conforme:
+
+AVEC LE SECONDE CONDILEGATION DE LA RÉPUBLIQUE DE LA URSS EN LA
+
+REPUBLICA ARGENTINA
+
+26

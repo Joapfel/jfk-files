@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_2289.png
+
+Convert to Markdown104-10150-10004
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+<table><tr><td>1 October 1968</td></tr><tr><td>CONCLUSIONS AND COMMENTS</td></tr><tr><td>IN THE CASE OF</td></tr><tr><td>YURIY IVANOVICH NOSENKO</td></tr></table>

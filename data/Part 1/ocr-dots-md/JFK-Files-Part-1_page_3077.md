@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_3077.png
+
+Convert to Markdown4
+SECRET
+
+individual with a fairly good sense of humor. He appears to understand a fair amount of English but it is hard to judge his speaking ability since he seems to be reluctant to talk at length in the language. He also appears to know some Georgian. He claims to know the Soviet Union west of the Urals rather well but gives the impression that he has never traveled in the eastern part of the country. From his comments and from observation it can be assumed that he enjoys Mexican and modern American records and perhaps even prefers them to the new, socially conscious Soviet music. His one detracting mannerism is a heavy and constant blink.
+
+**Subject's wife:** Subject's wife is also attractive and has a warm personality. She dresses well and is interested in theater, music and ballet. She enjoys going to the Colon but thinks the ballet at the Bolshoy is much better. She claims to enjoy dancing and apparently does not drink very much. Her Spanish is halting but adequate to make herself understood.
+
+**Their Relationship:** Subject and his wife appear to be a couple who, if not in love, have grown used to each other and each other's ways. Despite reports and direct evidence of their squabbling, it would be dangerous to assume that this constitutes a weakness or domestic problem. They appear to rely upon each other and complement each other in social situations to the point where a deeper understanding between them can be assumed. (An interest/occurrence was the wife's flat declaration that the Soviet Union was rapidly becoming a matriarchal society. Subject agreed with a smile.) Although Subject does not take open issue with his wife on topics where he may not be in complete accord, he manages to get his point across with a joke and a smile. All in all, Subject and his wife appear to be two that could take part successfully in any social gathering.
+MARGANDE thinks they are a "fun couple." !!
+
+SECRET
+
+14-00000

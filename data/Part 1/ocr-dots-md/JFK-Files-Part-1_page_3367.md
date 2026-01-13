@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_3367.png
+
+Convert to Markdown25. Source further reports that Iden B had homosexual relations with Iden A (source #1). In turn, this Iden A also has homosexual relations with a known homosexual named Iden G, aka "Campeona", who lives with Iden B and AMBIDDY/1.
+
+According to source, this group of "ladies" used to meet with Olga* GUILLOT Vidal both in Cuba and here in Miami to hold "parties". One of Iden B's friends is Aida PEREZ Pozo, aka "La Gorda", who together with Pat (aka "La Americana") are partners of a man called "Chucho" who is in jail on charges of narcotics trafficking in which he was recently surprised.
+
+Source states that she is well acquainted with Iden B's intimate affairs because she knew her in Cuba and lived in her house here in Miami for one year.
+
+26. Source 3: AMCRAG/1
+
+On 17 May 1964, Francisco TABERNILLA Palmero talked to AMWORM/1 and told him KUBARK was investigating the private lives of AMBIDDY/1 and Iden B, because it seems it is feared AMBIDDY/1 is being infiltrated by "batistiano" elements.
+
+The investigation that is being made of AMBIDDY/1 is quite publicly known in Miami.
+
+ANDREW K. REUTERMAN
+
+<table><tr><td>FORM<br/>8-100<br/>(48)<br/>85a</td><td>USE PREVIOUS EDITION.</td></tr><tr><td colspan="2">CLASSIFICATION</td></tr><tr><td colspan="2">SECRET</td></tr><tr><td>☐ CONTINUED</td><td>PAGE NO.</td><td>8</td></tr></table>

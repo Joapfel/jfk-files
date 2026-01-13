@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_2908.png
+
+Convert to Markdown14-00000
+
+# Top Secret
+
+(SEVENTH DEPARTMENT - January 1962-January 1964)
+
+## NOSENKO'S Written Notes
+
+After returning to KGB Headquarters from Geneva in 1962, NOSENKO said, he had availed himself of various opportunities to record what he learned of KGB operations in order to inform CIA, and to pilfer appropriate KGB documents to which he had access, when he could safely do so. He brought to Geneva in 1964 three KGB documents and a large number of handwritten notes. The latter reflected items which he had excerpted from various documents to which he had access, principally the Seventh Department Chief's special file containing periodic summaries of all Seventh Department operations. He last had access to this special file, he stated, in connection with his review of it in December 1963 to confirm that it was intact after the CHEREPANOV affair. While the file contained no true names, he claimed he learned such true identities as were contained in his notes by asking KGB colleagues. For safekeeping, NOSENKO said he kept the notes and documents in a wall safe of the office which he occupied alone, as Deputy Chief of the Department.
+
+Questioned repeatedly about the KGB operations referred to in his notes, NOSENKO in many instances could not expand on what he had written: He insisted he had written everything he could discover, and knew no more.
+
+**Comment:** NOSENKO'S sourcing for the notes does not explain how he learned of the cases described in the notes dating from 1957-1959, a period not covered by the documents NOSENKO claimed he reviewed. Neither can NOSENKO explain why he was not knowledgeable, without the notes, of operations which occurred while he was Deputy Chief of the Seventh Department's American-British Commonwealth Section. NOSENKO acknowledges that his access to a personal safe in
+
+0001592
+
+TS No. 197124
+Copy 10
+
+Top Secret

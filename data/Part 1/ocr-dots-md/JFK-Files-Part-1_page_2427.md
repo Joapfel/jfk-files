@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_2427.png
+
+Convert to Markdown14-00000
+
+3. **Bogdanovskiy** - an deputy of chief of the navy intelligence of I Fleet (on agents) in 1957-1958.
+
+4. **Bulakh** - an officer of the navy intelligence point of intelligence of the I Fleet in Sovietk, Kaliningrad's district in 1952.
+
+5. **Chikin** - in 1950² - a colonel, worked in the departments of foreign affairs of the ministry of defence.
+
+6. **Chevril'skiy** - a colonel, in 1950² worked in the department of foreign affairs of the ministry of defence.
+
+7. **Demchenko** Petz - an officer of navy intelligence point of intelligence of IFBet in Sovietsk, Kaliningrad's district.
+
+8. **Denisenko** - in 1962-1964 a military attaché of soviet embassy in Bern.
+
+9. **Bol'shakov** Yori - an officer of GRU (colonel), was in the USA, works under cover of press-agency "News".
+
+10. **Bulgarin** Lev N., in 1950² worked in GRU.
+
+11. **Ioliyev** - an officer of GRU in 1950² (or Dyevlev).
+
+12. **Kaloshin** - a colonel, in 1950-1953 a chief of personnel department of the navy intelligence.
+
+13. **Kononenko** - in 1950 finished the institute of international relations, in 1977 taken in the home intelligence and sent to work in Berlin. A. V.....
+
+0001125

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_3295.png
+
+Convert to MarkdownSECRET
+
+**TO:** AMT-2
+
+**FROM:** RADIAL-2
+
+**SUBJECT:** Dr. Leopoldo ARAUJO Bernal, President of the Cuban National Medical Association. Case No. 237.
+
+**DATE:** 23 Feb 65.
+
+**CC:**
+
+Attached herewith is Part II of the Defection Form giving biographical data on Dr. Leopoldo ARAUJO Bernal, President of the Cuban National Medical Association.
+
+SECRET

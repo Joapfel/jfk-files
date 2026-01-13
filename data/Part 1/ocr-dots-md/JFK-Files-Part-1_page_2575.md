@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_2575.png
+
+Convert to MarkdownSECRET
+
+(URBAN, (Colonel) - IV,E,24,25
+
+VASSALL, William - III, E, 9; III, G, 5; IV, D, 9
+
+(WASHENKO, Steve) - IV, E, 53
+
+WILBY, William Stanley - IV, D, 2
+
+WINTERS, George Payne, Jr. - IV, E, 53; V, C, 4-7
+
+ZENKIN, FNU - IV,E,32-34
+(Very possibly Igor Alekseyevich ZENKIN, but is now considered also identical to Igor Alekseyevich SERGEYEV, Igor Alekseyevich SUKHOV and very possibly Igor A. SMIRNOV.)
+
+(ZUJUS, Matthew) - IV, E, 26-28
+
+ZWANG, Maurice - IV, E, 40-42
+
+0001284
+
+SECRET

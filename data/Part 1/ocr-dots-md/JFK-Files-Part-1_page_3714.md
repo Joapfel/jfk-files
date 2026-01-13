@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_3714.png
+
+Convert to MarkdownSECRET
+
+(40)
+
+FORM 1-63 610a USE PREVIOUS EDITIONS
+
+SECRET
+
+<table><thead><tr><th colspan="2">PROCESING</th><th colspan="2">TO: ACTION BRANCH</th></tr><tr><td colspan="2">1. Fill in Sect. 2 or next. Detach back flap and forward to RD.<br>2. Destroy torn cover sheet unless it records significant action taken of documents requiring preservation.</td><td colspan="2">If the no. and title shown are not given, insert proper no. below and forward document to R.D., AK.</td></tr><tr><th>FROM:</th><th></th><th colspan="2">RECEIVED NO.: (20040503)</th></tr></thead><tbody><tr><td>RID/AN<br>WERDEN, PHILIPPA<br>RID/AN<br>DIV-192<br>EXT. 4238</td><td>GALOO<br>TUBE GT-7</td><td colspan="2"></td></tr><tr><th rowspan="2">TO</th><th rowspan="2">ROOM<br>NO.</th><th colspan="2">DATE<br>RECEIVED (20040503)</th></tr><tr><th>P.O. #<br>13111</th><th>O.S.T.A.<br>P-111</th></tr><tr><td>1.<br>C/W</td><td></td><td>Feb-<br>13 MAY</td><td>K<br>P-111</td></tr><tr><td>2.<br>J/D</td><td></td><td>13 MAY<br>1969</td><td>P-111</td></tr><tr><td>3.<br>L/W</td><td></td><td></td><td>Sec P 12-9</td></tr><tr><td>4.<br>A/W</td><td></td><td>13 MAY 1969</td><td></td></tr><tr><td>5.<br>M.S</td><td></td><td>13 May</td><td>JW</td></tr><tr><td>6.<br>M. H</td><td>H MAY</td><td>May</td><td>ZH</td></tr><tr><td>7.<br>N.W</td><td>JX<br>19 MAY 1969</td><td></td><td></td></tr><tr><td>8.<br>J/K</td><td></td><td></td><td>MG</td></tr><tr><td>9.<br>A/C W</td><td></td><td></td><td></td></tr><tr><td>10.<br>A/C W</td><td></td><td></td><td></td></tr><tr><td>11.<br>A/C W</td><td></td><td>20 MAY<br>1969</td><td>WK</td></tr><tr><td>12.<br>J/K</td><td></td><td></td><td></td></tr><tr><td>13.<br>R.M</td><td></td><td></td><td>BM</td></tr><tr><td>14.<br>L.C.</td><td></td><td></td><td>JN</td></tr><tr><td>15.<br>P.H</td><td></td><td></td><td>Pa</td></tr><tr><td>16.<br>R.H</td><td></td><td></td><td></td></tr><tr><th colspan="2">FILE TITLE</th><th colspan="2"></th></tr><tr><th rowspan="2">TRACE<br>REQUEST</th><th colspan="2">ABSTRACT</th><th>FILE NUMBER (PRIMARY CODE)</th></tr><tr><th colspan="2">INDEX</th><th>201-267437</th></tr><tr><th>DATE MICROFILMED</th><th colspan="2"></th><th>DOCUMENT DATE</th><th>DOCUMENT NUMBER</th></tr><tr><td></td><td colspan="2"></td><td>1 May 69</td><td>MNMA 04324</td></tr></tbody></table>

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_2526.png
+
+Convert to Markdownare discussed in the previous summary: the cases of [Wallace Everett JOHNSON, William Carroll JONES, Natalie BIENSTOCK, and Horst BRAUNS]. Apparent conflicts between information from NOSENKO and information derived from subsequent interviews with these individuals were cited as evidence impugning NOSENKO. It is not believed that the previous comments concerning these cases constitute any substantial evidence that NOSENKO did not hold the claimed position of Chief of the First Section, Seventh Department, during January - July 1962. That there were KGB operations against JOHNSON, JONES, BIENSTOCK and BRAUNS has been confirmed through interviews by the FBI of all four individuals.
+
+A few additional remarks in regard to the above four cases are warranted, not because it is considered that there are any substantial discrepancies between what NOSENKO has said and what each individual stated when interviewed, but because they may provide additional clarification.
+
+In the [Wallace Everett JOHNSON] case, it was previously noted that [JOHNSON] arrived in Moscow on 31 December 1961 and that the KGB operation against him occurred on 5 January 1962. The summary suggested that the short lapse of time indicated that the homosexual tendencies of [JOHNSON] were known to the KGB prior to his arrival, contrary to the statements of NOSENKO. NOSENKO during current interviews
+
+0001220
+
+SECRET
+
+14-00000

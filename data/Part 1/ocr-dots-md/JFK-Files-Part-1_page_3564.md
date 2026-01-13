@@ -1,0 +1,63 @@
+# JFK-Files-Part-1_page_3564.png
+
+Convert to Markdown14-0000
+
+<table><tr><td rowspan="2">MESSAGE JOHN TOTAL COPY</td><th colspan="3"></th><th colspan="3">ACCOUNTING AND LOGISTICS - SHEET BY</th></tr><tr><td>SECRET</td><td></td><td></td><td></td><td></td><td></td></tr></table>
+
+JOHN M. BURKE
+WHD/COG
+7144/1819
+7 JAN 71
+
+FILE SECRETY AT DISSEMINATION
+
+☐ INDLE ☐ NO INDEX ☐ RETURN TO ____ BRANCH ☐ FILE SD
+
+PER ____
+
+FILE IN 1S FILE NO.
+
+RE:
+
+FILE.VB. John Cilene, c/dp., FL,
+
+**(Classification)** SECRET
+
+**Date and time filed:** 10AM 71 21 292
+
+**CITE DIRECTOR:**
+
+WH/MIAMI
+
+RE DIR 100 371?
+
+10037.2
+
+C. 76331
+
+1. IDEN IS RUBEN MARTINEZ, 17240 S. W. 89 COURT, MIAMI, FLORIDA 33157. TELEPHONE 305-233-7894. EMPLOYED BY PROVIDENT MUTUAL INSURANCE COMPANY, MIAMI.
+
+2. NO FILE. GP-1.
+
+END OF MESSAGE
+
+WILLIAM V. BROE
+C/WHD
+
+WESLEY L. LAYBOURNE
+AC/WH/COG
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+GROUP 1
+Included from automatic downgrading and declassification
+
+RELEASING OFFICER
+
+AUTHENTICATING OFFICER
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

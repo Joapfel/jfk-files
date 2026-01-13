@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_3767.png
+
+Convert to MarkdownCentral South Internacional Inc.
+
+P O BOX 1453 LITTLE RIVER STATION, MIAMI, FLA. 33198
+
+CABLE: CENSON
+
+Miami 12 de Junio de 1967
+
+Querido Jim:
+
+So lo unas letras para informarte:
+
+1-El senor Allan Gross Quiros suele escribir frecuentemente a las siguientes direcciones en los Estados Unidos: J.B.Pastora P.O. Box 676 Brattleboro,Vermont 05301
+
+Anibal Ibarra Gonzalez 1515 Engel Rd # 423 Lawrence,Kansas 66044
+
+Leonel Garcia The School for International Training of the Experiment in International Living Battleboro Vermont 05301
+
+El Dr. Aragon,comunista como el ,connotado en los círculos comunistas de la Universidad de Leon,escribe a las siguientes direcciones:
+
+Lac, Roger Argenal Arauz 2515 Rio Grande Austin Texas 78705
+
+Dr Enrique Gallo Zeledon P.O. Box 21986 University Station Rio Piedras,Puerto Rico 00931
+
+Dr. Eduardo Bisogni Sucre 1461 16 281 Buenos Aires Argentina
+
+(Recordar informes de carta anterior sobre estos dos individuos)
+
+2-Accidentadamente,mi secretario Eugenio Claude,hablo con un amigo llamado Pedro Pino,que vive en 1132 W 71 st.Hialeah 33012,el cual le conto que su amiga/ourdes Beilo,que vive en 1124 West 71 Fl.Hialeah,Fla.,y que vivia en esta direccion hacia poco,ha recibido una correspondencia que debe de ser para el inquilino anterior de dichaizacion,cuya correspondencia venia de CU BA y consistia de propaganda subversiva.Toda la correspondencia va dirigida a CS COPY
+
+D-19-5-52
+
+201-267437
+
+L

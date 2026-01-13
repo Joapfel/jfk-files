@@ -1,0 +1,78 @@
+# JFK-Files-Part-1_page_3067.png
+
+Convert to Markdown14-00000
+
+11
+U. S. A.
+FORWARD
+
+8 de enero de 1969
+
+CARCETE CY 026
+
+Página 5
+
+(SIGUE).
+
+- Le - Fara confiando calcula / mfs o menos «.
+
+- Ia - Paru octo media va estar員uro - Jepyuda el mes que viene nos vemos de vacaciones •
+
+- la - adi que el mes que viene van de vacaciones &
+- la - 3f - Mucho entrojamos yn - Ja entrepren unos cuantos -
+
+- Ia - 3f / af -
+
+- la - Por 17 huy / llenyuda no hay rfa - Adc ontá anotado el número suyo - El suyo / puede ser que otro de los dos sea el otro y es la hora / adi hablo con el patron -
+
+- Ia - Como no - (e)
+
+- Ia - con la en MALLARV -
+- Ia - hablo con la embajada &
+- Ia - Af -
+- Ia - lo habla JASMIN / donde Moncu - Buenos dína -
+
+- Ia - buenos días -
+- Ia - Por favor me podra llamar a Iván ALLARD & -
+- Ja - Un momento / ahora voy a prevenirr ------ (as oye decir a HALLARV "Ihijul Konstantinovich (Va.GOV) / por favor llamo a ALLARD / lo llimar JASMIN donde MALLA / rápido / rápido / parque tiempo corre ------ aga) -----nouche / esparce un momento / ahom el vi a lojer - Ua tenfa que llamar por otro número - Porque al entus en otro número - adom el ya viente -
+
+- JA - Yo tango of trm números - le contó mucho para comunicarse con Ud - Tenho nac 35-5271 -
+
+- Ia - No / no / no en uno - Tenfa que llamar al 42-1552 -
+- JA - No / me dieron sello电子on trm números y con el último puto comunicar -
+- Ja - bueno /ominuo llegu aALLARD / gutero prentur / qut
+
+JA - el ent de Moneu •
+
+- Ia - Ikce mucho frío - Enjo 20 -
+- Ia - Y navotrou aror tenimoo 52 -
+- Ia - Ah que lindo / con que tanto irrimon allí puro calenturno un poco -
+
+- Ja - (le rie) - Ud viene a Buenon aren - ------
+- Ja - No / nonotrou etromog of do piano on|"nerodaro" - Nonotrou yamon a Chile -
+- Ja - chile •
+- Ja - Nouotrou yamon u tener un tarne / do "DILACO" - Am que viajamos para Chile para Juier -
+
+- Ia - Y por quéd no vienen of •
+- Ia - Noverou con mucho gato / lbro no nous dejan -
+- NA - Que uin varguenzas (no rie) -
+- JA - Ahf, entímto encerrado -
+- Ia - Qud bien que so cya a Ud - Jaremo que yo ontoq en Honau -
+
+- JA - "Tambien yo lo olgo bien -
+- NA - Y ademana quid novadones lny •
+- Ia - Con quién hablo yo •
+- Ja - Con la persona que outa de gardín -
+- Ja - Mucho gato - Hace pocon yo native en Mexico - he visto un muchos amicalion que Ivin tros Jato - He visto a Iván de LAMK
+
+VA - Iván ANDRÉNCO / traveldo met on la Argentina -
+- Ja - Lo ad / con al yo me encuentro varied venoa - Hice poco me encuentro con al en MEXICO -
+
+- Nk - Que jactins que Ula no vienen- Nasotrou lon esparzáoo el alio piendo -
+
+- Ia - Y no aule -
+- Ia - Y ento milio yn no vinen &
+
+- Ia - No oreo / parque nilí on la argentina el torneo outt para terminar - Alvaro nilí Juguen Hungaros - Austrinos / pero nosotroo no participimos - Huontron van a Juicar Vincion en Uruguay -
+
+- Ia - Poro

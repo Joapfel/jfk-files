@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_2292.png
+
+Convert to MarkdownG. Is There Evidence of a Political or Any Other Type Objective Which Could Justify a Dispatch of NOSENKO by the KGB With Permission to Speak Freely to CIA Concerning His Knowledge of the KGB and Without NOSENKO Being Given a Specific Mission or Missions?
+
+H. Is There Any Evidence That the Contacts of NOSENKO in 1962 or in 1964 With CIA Were Known to the KGB Prior to His Defection or That NOSENKO Was Ever Briefed by the KGB Relative to His Behavior or KGB Objectives During These Contacts or After His Defection?
+
+IV. Comments Concerning Previous Conclusions in Regard to NOSENKO
+
+A. NOSENKO Did Not Serve in the Naval RU in Any of the Capacities or at the Places and Times He Claimed
+
+B. NOSENKO Did Not Enter the KGB in the Manner or at the Time He Claimed
+
+C. NOSENKO Did Not Serve in the American Embassy Section Throughout the 1953 - 1955 Period as He Claimed
+
+D. During the Period 1955 - 1960, He Was Neither a Senior Case Officer in, nor Deputy Chief of, the Seventh Department American-British Commonwealth Section
+
+E. NOSENKO Was Neither Deputy Chief of the American Embassy Section nor a Senior Officer or Supervisor in the Section During the Period 1961 - 1962 (sic)
+
+F. NOSENKO'S Claims, That in 1962 He was Chief of the American-British Commonwealth Section and Was Thereafter a Deputy Chief of the Seventh Department, Are Not Credible
+
+G. NOSENKO Has no Valid Claim to Certainty That the KGB Recruited No American Embassy Personnel Between 1953 and His Defection in 1964
+
+0001004

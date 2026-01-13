@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_3893.png
+
+Convert to MarkdownUFGA-21693/14
+
+Att. No. 11 to UFGA-21693
+
+SUBJECT: BARRENA Barrena, Obdulio
+
+1. Source met Subject about 1960 at which time source was working at the Ministerio de obras Publicas as "Chief Buyer" for the District of Havana. Source and Subject became very close friends. Subject resigned his post about 1963, in order to arrange for his exit permit, and is waiting to leave Cuba for Madrid, Spain. Source says he believes Subject was never a communist and is sincerely against the present GOC. Since 1960 Subject resided at calle San Anastasio #678, la Vibora, Havana City. Source heard that Subject was separated from his wife and is living with his mother at the above mentioned address. Subject has never traveled out of Cuba; and has a cousin Berta NORIEGA (this is husband's patronymic) who lives in Miami, address unknown. Subject has never received any political, military or intelligence training.
+
+2. Physical Description: DPOB: circa 1930, Havana City.
+Race: white. 6'2", 155 lbs. Hair: dark. Eyes: dark. Shape of face: long. Physique: slim. No visible scars.
+
+3. JEWAVE Traces: None.
+
+SECRET

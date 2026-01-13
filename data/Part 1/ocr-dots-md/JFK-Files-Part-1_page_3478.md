@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_3478.png
+
+Convert to MarkdownGuantanamo, Oriente Province 7 June 1916 may be identical with the subject of an AMOT report listing him as candidate for councilman of Guantanamo City Hall on the PSP slate during the Grau regime and stating that his son is private secretary to Carlos Olivares, Undersecretary of Foreign Relations Ministry of the GOC. A-19 was so informed and was asked to have an investigation made, taking into consideration both the CI and operational leads aspects of the matter.
+
+8. Aida PEREZ Pozo. Guertler asked what her function was with AMWORLD. A-19 admitted that he was surprised to see her name on the payroll. She is working with Mole in intelligence. She has all the lesbian contacts in the city and knows everything that goes on. Nothing can be done about it because she is another "woman of confidence" of AMBIDDY-1.
+
+7. The Case Officer brought up the matter of telephone security, the possibility that A-19's private line and his home phone could be tapped, and suggested the use of pay phones for operational calls, especially to the Consejo. In order to make use of direct dialing A-19 could call the Consejo giving his number and await the return call. (The Consejo might want to bring this up with A-1) According to A-19 Mole's group is monitoring all calls to AMYUM headquarters but he does not think his private line (the one used by GUERTLER) is monitored. In reply to the Case Officer's question A-19 said that A-1 does his business calls from his home, i.e. the house of his mistress. The Case Officer commented that this fact was known to another group (unspecified) and let the matter drop.
+
+9. The reason for the blown AMYUM safe house: While the AMYUMS were on the roof stringing the antenna one of them drove his car onto the lawn of the neighbor so that it would be in the shade of the neighbor tree. Naturally the neighbor came out to see what was going on. He did see. As A-19 said, when he learned of the incident he had to laugh (albeit somewhat hysterically). The only alternative would be to kill the idiot. Guertler agreed. We can only hope that the next safe house will be very isolated.
+
+Warren K. Guertler

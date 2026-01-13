@@ -1,0 +1,600 @@
+# JFK-Files-Part-1_page_3658.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>
+     1
+    </td>
+    <td>
+     T. W. Sargent
+    </td>
+    <td>
+     5
+    </td>
+   </tr>
+   <tr>
+    <td>
+     2
+    </td>
+    <td>
+     D. L. Henson
+    </td>
+    <td>
+     6
+    </td>
+   </tr>
+   <tr>
+    <td>
+     3
+    </td>
+    <td>
+     J. R. Stover
+    </td>
+    <td>
+     7
+    </td>
+   </tr>
+   <tr>
+    <td>
+     4
+    </td>
+    <td>
+     E. M. Hall
+    </td>
+    <td>
+     8
+    </td>
+   </tr>
+  </table>
+
+SECRET
+
+17-00000
+
+LAWRENCE OF STEEPEFIELD
+AM/COG.
+7451 R. 1948
+20 NOVEMBER 1972
+
+<table>
+  <tbody>
+    <tr>
+      <td colspan="3">MILITARY COMMISSIONS TOTAL CASH</td>
+      <td>£</td>
+    </tr>
+    <tr>
+      <td>1</td>
+      <td>2</td>
+      <td>3</td>
+      <td>5</td>
+    </tr>
+    <tr>
+      <td>2</td>
+      <td>3</td>
+      <td>4</td>
+      <td>6</td>
+    </tr>
+    <tr>
+      <td>3</td>
+      <td>4</td>
+      <td>5</td>
+      <td>7</td>
+    </tr>
+    <tr>
+      <td>4</td>
+      <td>5</td>
+      <td>6</td>
+      <td>8</td>
+    </tr>
+  </tbody>
+</table>
+
+SECRET
+
+THEODORE G. SHACKLEY
+C/WHD
+RELEASING OFFICER
+
+SECRET
+
+EXTRACT FROM AUTOMATIC
+DESK COMPUTER, 7 DEC.
+DESCRIPTION: SECRET
+
+COORDINATING OFFICERS
+
+SECRET
+
+RELEASING OFFICER
+
+SECRET
+
+AUTHENTICATING OFFICER
+
+COPY NO.
+
+END OF MESSAGE
+
+C/WH/COG
+
+C/WH/2
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET

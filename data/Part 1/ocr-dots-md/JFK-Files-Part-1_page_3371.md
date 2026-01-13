@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_3371.png
+
+Convert to Markdownrefuses to comprehend or does not realize the hugh scandal potential of this relationship. Has proven insidious to low-key advice that scandal could ensue and that its full exploitation by Castro would be foregone conclusion.
+
+4. Above inventory of major defects in AMWORLD probably incomplete and partly based on hearsay and derived from patently prejudiced sources. Some manifestations of disarray may merely be concomitant of organizational shakedown and elimination of marginal personnel. Others may be presumed academic bills of most resistance organisms left to own devices plus Cuban propensity to fractionalize. In final analysis we could probably justify the Agency input as long as AMBIDAY-1 produces an occasional Pilon. Reconstruction of viable resistance movements inside Cuba, however, is remote prospect, especially if we conclude that target area now virtually denied to all but singleton, short-term operators. Commando raids may continue to prosper as long as we are permitted to render intel support on its present level.
+
+Henry D. Hecksher
+II/SA/SD/HE
+
+cc: DC/WK/AA
+
+HDI/bh
+
+Distribution:
+
+Grig - Addressee
+1 - WH/SA/Esec (blind)
+1 - Wb/SA/SD/HE - Policy File
+
+SECRET
+
+<table>
+   <tr>
+    <td>GROUP I</td>
+   </tr>
+   <tr>
+    <td>Facilitating node automatic</td>
+   </tr>
+   <tr>
+    <td>Broadcasting and</td>
+   </tr>
+   <tr>
+    <td>Crossloe transmission</td>
+   </tr>
+  </table>

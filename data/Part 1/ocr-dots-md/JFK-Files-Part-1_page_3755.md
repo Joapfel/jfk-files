@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_3755.png
+
+Convert to MarkdownSECRET
+
+4. For further information regarding one Allan GROSS Quiros, you are referred to our CBCI 316 03614-67 being disseminated to the Bureau.
+
+5. It is requested that your files be checked for any information they may contain on ARGENAL and GALLO. We would appreciate being apprised of the results of any investigation you might undertake in regard to this matter.
+
+CSCI-316/03615-67
+
+Attachment
+
+28 August 1967
+
+DDP/WH/COG/CICS:L. Carberry:jaf
+
+Source: AMBIDDY
+File: 201-267437
+      201-819744
+
+Distribution:
+
+Orig & 1 - Addressee
+
+1 - RID
+1-CI/LIA
+1-CI/R&A
+1-WH/2/Nicaragua
+1-WH/COG/CICS
+1-Originator
+
+Based on: LX 3254 of 12
+           June 1967
+           CSCI 316/03614-67
+
+SECRET
+
+14-00000

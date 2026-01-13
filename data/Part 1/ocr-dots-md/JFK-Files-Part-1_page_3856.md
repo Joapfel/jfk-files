@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_3856.png
+
+Convert to MarkdownMESSAGE FORM
+
+TOTAL COPIES:
+
+<table><tr><td>DATE:</td><td>SUBMIT: 10 MAR 1974</td></tr><tr><td>SET:</td><td>DUE DATE: 21 MAR 1974</td></tr><tr><td>FILE NO:</td><td>FILE NO. 10 CS FILE NO.</td></tr></table>
+
+MESSAGE FORM
+TOTAL COPIES:
+
+<table><thead><tr><th colspan="2">PROFILING</th></tr></thead><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
+
+FROM: DIRECTOR
+
+TO: SECRET
+
+RECEIVED
+
+CONF.:
+
+CITE ON: CITE DIRECTOR
+
+WH/COG COMMENT:
+
+REPORT ON 16 JAN MARKETING WITH LISASSY/1, PARA FIVE:
+LIRING/1 PROVIDED ELABORATE AND OVER COMPLICATED COMMO
+INSTRUCTIONS WHICH APPEAR ENAMATE FROM HAVANA.
+
+C/WH/COG/CICS
+WH/COG/MO E. CFIOCCA (DRAFT)
+WH/COG/FI
+WH/1/MEXICO
+
+WILLIAM E. BROE
+C/WHD
+
+THOMAS J. FLORES
+C/WH/COG
+
+RELAYS OFFICER
+
+COORDINATING OFFICERS
+SECRET
+
+GROUP I
+Included from automatic declassification and declassification
+
+AUTHENTICATING OFFICER
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+201-267457

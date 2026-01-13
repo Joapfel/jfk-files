@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_3127.png
+
+Convert to Markdown6. PSICUICAS.
+
+No muestra tensión nerviosa de ninguna índole casi nunca. Sabe dominarse muy bien. Es frío y calculador. Nada de tics. Lejos de ser historioo. Se enoja en muy raras ocasiones. De- muestra su enoje más bien con gestos (puertazo) que palabras. No trata despectivamente a nadie. Mejor de ser sumiso, pero es muy paciente.
+
+7. SENTIDO DEL HUMOR.
+
+Brenca no muy a menudo, si lo hace, se nota un fine sentido de humor en sus brenas. No cuenta ninguna clase de cuentos obsecnos. No creo que le gusta escuchar precocidades y profa- niidades. Su mujer lo reta a menudo y muchas veces lo insulta. Su reacción aparente es no prestarle ni menor atención. En mns de un año de escucha no note en el referencias al sexo.
+
+8. HABITOS, INTERESES Y HOBBIES.
+
+a) tiene intereses, habites o manualidades especiales? No se note. Al parecer hace palabras cruzadas. Lee revistas y diarios asiduamente. Ve TV.
+
+b) Lo agradan bebidas alcoholicas? Consume de alcohole en moderado. Vermuth, coca "Reserva San Juan" y Fernet Branca son las bebidas preferidas. Al parecer no tema vino con las comidas.
+
+c) Tiene inclinación especial hacia el sexo? (quienes) No muestra aparente inclinación hacia el sexo. Su mujer de -ve- vés en cuando lo hace esencia de celes. No creó que el sexo le domina, pere tampoco que no va a oírler alguna que etro aventura (nada profundo) si se le presenta oportunidad. En una oportunidad Rosa le reproche (haciendo un gran escan- dale) porque le vie besar en la boca a una mujer (también de la embajada, no se encuentra a quien).
+
+d) Hablan referencias a cigarillos en la casa. No tiene too habitual.
+
+e) Cuales son sus comidas preferidas. No hay referenciaa. Las sobre este ver Rosa A.
+
+f) Cuales son sus compañías preferidas? No truta con sus colegas y familia? En que grande? Te monciene ya el grupo de sus amistados dentre de tuorpe diplomático. Alforév en un tipo que suele hacer amistados fácil. No parece tener amigos íntimes. Sus colegas le quie- ren y respetan al parecer conminceridad.
+
+g) Tienó hábito de gastar dinero? Te queja (el e su familia) de falta de dinero? Cuales son sus rencillas ante quejas de carácter económico? No tiene hábito de gastar dinero. Te lo centrarte. In éste coinicia con Rosa, lo egósta, sin ser男equine.
+
+SECRET
+
+14-00000

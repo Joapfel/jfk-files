@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_3383.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+Well, Manolin, there is nothing else for the time being; in reality, so much has been said about the situation that there is no ______ to resist the atmosphere.
+
+Your mother and I send our blessing and will never forget you.
+
+M. Artime and Otilla Buesa
+
+I congratulate you on P:lon. Emilita also asked me to congratulate you.
+
+SECRET
+
+GROUP I
+(Enrolled) (Approved)
+BASIC B C.D.
+CLASS C
+DISTRIBUTION OF THIS GROUP TO BE PROCEEDING WITH CAREFUL OBSERVATION FOR THE PURPOSES OF FURTHER DEVELOPMENT BY A COMMITTEE TO BE FORMED OF THE OFFICERS IN QUESTION. THOSE WHO DO NOT CONFORM TO THE SPECIFIED REQUIREMENTS MAY BE EXCLUDED FROM THE COMMITTEE AND THEREBY REMOVED FROM PARTICIPATING IN THE DISCUSSIONS ON THE SUBJECT. BUT IF ANY PROBLEMarises during the implementation of this policy which the Committee deems it necessary to alter or suspend, it shall immediately convene a sub-committee consisting of the original members of the sub-committee and such other members of the organization as may be deemed necessary by the Committee, and shall report thereto within 48 hours after such meeting, giving its reasons for the action so taken.

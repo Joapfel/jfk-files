@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_3380.png
+
+Convert to MarkdownUNITED STATES SENATE
+
+COMMITTEE ON FINANCE
+
+June 9, 1964.
+
+Mr. Manuel Artine Bussa
+Movimiento de Recuperacion Revolucionaria
+221? Northeast 2nd Court
+Miami 37, Florida
+
+Dear Mr. Artine:
+
+This is to acknowledge and to thank you for your thoughtfulness in writing to me.
+
+It was very gratifying for me to mention your daring raid on the port of Pilon in my speech of May 20th. Felicidades. I wish you the very best in your future actions against Castro who poses a grave menace to all of the Americas.
+
+I am very pleased that through the Referendum the Cuban exile community now enjoys a central voice which can serve to co-ordinate effective anti-Castro activity. Hopefully, my Government will turn away from its ill-advised policy of restricting the Cuban exiles, and aid people like yourself to liberate the Cuban people from the Castro-Communist dictatorship. To that end let us assure you of my continued support.
+
+Please do not hesitate to write me again.
+
+With every best wish, I am
+
+GAF: mps

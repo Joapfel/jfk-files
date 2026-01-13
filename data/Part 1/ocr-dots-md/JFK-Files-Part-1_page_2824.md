@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_2824.png
+
+Convert to Markdown# Top Secret
+
+## (AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+States relations (and hence of priority interest to the KGB), as the U-2 and President Eisenhower's visit. Of the microphones which produced useful information, NOSENKO describes those in the Minister Counsellor's office, the office of the Army Attache, and in the code room; when challenged to cite examples of information obtained, he asserts that none produced any information of interest to the Embassy Section. Lastly, although he stresses the value of the chancery microphones as sources of information on which he relied to direct operations against code clerks and other Embassy personnel, he again can describe no actual instance. In the single case in which he asserted that he relied on information procured from microphones, (KEYSERS' failure to report receipt of the defection invitation), he was in error.
+
+Conclusion
+
+From the foregoing it is concluded that, NOSENKO's claims to the contrary, his information on the chancery microphones does not sustain his claim either to have been Deputy Chief of the Embassy Section, or his claim that he personally reviewed the KGB microphone monitoring reports.
+
+### Cryptologic Attack on Embassy Communications
+
+As former Deputy Chief of the Embassy Section of the American Department NOSENKO claimed to be knowledgeable of the extent of KGB success in its cryptologic attack on Embassy communications. He has consistently asserted that the KGB had never succeeded in reading enciphered communications of the service attaches [for which reason he claimed
+
+00015C8
+
+TS No. 197124
+
+Copy _________

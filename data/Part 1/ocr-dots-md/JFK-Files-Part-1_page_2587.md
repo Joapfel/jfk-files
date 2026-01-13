@@ -1,0 +1,84 @@
+# JFK-Files-Part-1_page_2587.png
+
+Convert to MarkdownTop Secret
+
+CONTENTS
+
+PAGE
+
+VIII SEVENTH DEPARTMENT (January 1962-January 1964)
+(Cont.)
+
+Deputy Chief of Seventh Department
+(July 1962-January 1964) 291
+
+KGB Operations 292
+
+Recruitment of [SVENCHANSKIY] 06 292
+
+Investigation of [SLESINGER] 06 293
+
+Arrest and Interrogation of [KOTEN] 06 295
+
+GRU Agent [SHUBIN] 06 296
+
+Arrest of BARGHOORN 298
+
+Investigation of OSWALD 303
+
+Residence in USSR 303
+
+Request to Return to USSR 305
+
+Post-Assassination Review of KGB File 307
+
+The CHEREPANOV Papers 309
+
+Contents 314
+
+NOSENKO's Travel Document 315
+
+Return to Geneva (January-February 1964) 316
+
+Purpose of Trip 317
+
+Visits to KGB Legal Residency 318
+
+Availability for Meetings with CIA 318
+
+NOSENKO's Written Notes 319
+
+NOSENKO'S Defection 320
+
+Knowledge of Other Seventh Department
+Operations 325
+
+Operational Activities (July 1962-
+January 1964) 326
+
+KGB Counterintelligence Operations Among
+American Tourists 326
+
+Information Furnished the KGB by
+George BLAKE 327
+
+KGB Study of American Intelligence
+Tourist Operations 327
+
+NOSENKO'S Information 330
+
+Summary 331
+
+Summary and Conclusion 331
+
+(vi)
+
+0001271
+
+TS No. 197124
+
+Top Secret
+
+Copy
+
+4/5R

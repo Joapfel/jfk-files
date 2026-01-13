@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_2695.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - June 1955-January 1960)
+
+which she obtained on foreign delegates or foreign tourists who visited the Exhibit in Moscow, and on foreign delegates attending meetings at the Ministry of Agriculture, where she served as an interpreter in English and Greek. RYTOVA served several times as an interpreter for Khrushchev and once participated in a conversation he had with the Iowa farmer [Roswell] GARST. In 1959 or 1960 she was sent as an interpreter with a small delegation visiting GARST's farm in the United States, and was used by the KGB Legal Residency in Washington to report observations made enroute and while there. RYTOVA was married to a captain or major who works in a military office in Moscow. She had one daughter, approximately 14 years old.
+
+**Comment:** RYTOVA served as an interpreter for Roswell GARST in the USSR in 1955, 1959 and 1963 and she visited the U.S. in 1958 and 1962. Her biographic data is consistent with the information related by NOSENKO.
+
+## Yevgeniya ("Jane") DANKO
+
+DANKO, KGB cryptonym "OKSANA", worked in the American Express Company office in Moscow for Arsene FRIPPEL (NOSENKO's agent, see p.137) and later for FRIPPEL's successor, Michael JELISAVCIC. NOSENKO took DANKO over from Seventh Department case officer I.A. KONSTANTINOV in 1955-1957. She was used to report on JELISAVCIC.
+
+**Comment:** DANKO was an Inturist guide in 1956, 1958 and 1959, and she was working for the American Express Company office in 1960. FRIPPEL left Moscow in 1961, by which time NOSENKO had transferred from the Seventh Department.
+
+0001379
+
+TS No. 197124
+Copy 10 7/8R

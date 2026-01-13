@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_3565.png
+
+Convert to MarkdownSECRET
+
+DO BASE NEW YORK, TEGUCIGALPA
+INFO MANAGUA WH/MIAMI
+
+REF: TEGUCIGALPA 9118 (IN 179726)*
+
+1. UNLESS DO BASE NEW YORK WES-HE3 CONTACT HQS SEES NO C-82064 NEED AMBIDDY-1 CONTACT NEW YORK
+
+2. FILE 201-267437.
+
+END OF MESSAGE
+
+WH Comment: *COS Tegucigalpa met AMBIDDY-1 in Managua 4 Oct. A/1 asked by SAMOZA to join Nicaraguan delegation to UN Assembly as special advisor. Dofer to Hqs. contact AMBIDDY-1.
+
+E/DO/I/B2 Bob Baker (Telcoord)
+C/WH/COS L. Zúñiga
+C/WH/2/N Thoyts
+C/WH/2 Chifley
+wh/cos/srs Chief
+
+JOHN MARKHAM
+IC/DOI/2
+
+WILLIAM V. BRICE
+C/WHD
+
+COORDINATING OFFICERS
+
+RELEASING OFFICER
+
+GROUP I
+Excluded from Automatic Deemستان and Socialization
+
+AUTHENTICATING
+OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+COPY R.

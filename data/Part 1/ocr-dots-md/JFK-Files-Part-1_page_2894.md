@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_2894.png
+
+Convert to Markdown# Top Secret
+
+(SEVENTH DEPARTMENT - January 1962-January 1964)
+
+## Post-Assassination Review of KGB File
+
+NOSENKO next learned of OSWALD's activities as a result of President Kennedy's assassination. About two hours after President Kennedy was shot, NOSENKO was advised of this fact in a telephone call to his home from KGB Headquarters. A short while later he was told, again by telephone, that the President had died. About two hours later, NOSENKO was told that OSWALD had been arrested, and he and the other officers of the American Tourist Section were called in to determine whether the KGB had any information concerning him. After establishing OSWALD's identity from KGB files and learning that his file was still in Minsk, NOSENKO phoned the KGB office in Minsk on GRIBANOV's orders. The local KGB dictated over the telephone a summary of its file on OSWALD. This summary concluded with the statement that the KGB in Minsk had attempted "to influence OSWALD in the right direction". GRIBANOV had been greatly disturbed about the local KGB's efforts because it had been given specific instructions to carry out nothing other than passive measures against OSWALD there. He ordered that all records in Minsk pertaining to OSWALD's stay there, as well as an explanation of the meaning of the statement about influencing OSWALD, be flown immediately to Moscow by military aircraft. NOSENKO personally read the explanation from Minsk concerning the meaning of this statement and thoroughly reviewed OSWALD's file when it arrived by plane. He then turned the file over to S.M. FEDOSEYEV, the Chief of the American Department of the KGB Second Chief Directorate, who prepared a two-page summary memorandum for GRIBANOV. This memorandum, which NOSENKO read, was forwarded to KGB Chairman Semichastnyy, and Semichastnyy in turn reported to the CPSU Central Committee and to Khrushchev concerning it.
+
+OSWALD's file from Minsk contained no information to indicate that the KGB in Minsk had taken any action with respect to OSWALD contrary to instructions from KGB Headquarters. From the date of OSWALD's arrival in the USSR until his departure, the KGB had no personal contact with him and had not attempted to utilize him in any manner.
+
+0001578 TS No. 197124
+Copy 10
+
+Top Secret
+
+307
+
+10-00000

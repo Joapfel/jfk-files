@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_2675.png
+
+Convert to Markdown# Top Secret
+
+## (AMERICAN EMBASSY SECTION - ca. 1953-June 1955)
+
+<table><tr><td>RICHARDS</td></tr></table>
+
+NOSENKO correctly identified Ira B. RICHARDS as a lieutenant colonel who served as an Assistant Army Attache in Moscow. The one agent reporting on RICHARDS whom NOSENKO could name was the maid Mariya NEVEROVA, KGB cryptonym "SHVEDOVA", but she had never provided any worthwhile information about RICHARDS. In addition, some Soviet drivers reported on RICHARDS, but nothing useful was obtained from them.
+
+Comment: RICHARDS served in Moscow from July 1954 to July 1956. There was a microphone in the office which he shared first with MICKELSON and later with MEARNS.
+
+RICHARDS confirmed that Mariya NEVEROVA was his maid and described her as a "mousy" woman who had a heart attack during the period she was employed by him, an incident which was not recalled by NOSENKO.
+
+For about four months of his Moscow tour, RICHARDS took Russian-language lessons from Ludmila GROMAKOVA in his apartment. During these lessons, RICHARDS often discussed labor conditions and wages in the United States and, on one occasion, had her record her speech on his tape recorder. GROMAKOVA was pregnant and unmarried at the time. In another context, NOSENKO named GROMAKOVA as a KGB agent during 1960-1962 but did not relate her to RICHARDS or to the 1953-1955 period.
+
+RICHARDS identified one "Volodya" (the diminutive of Vladimir) as his principal driver. About 62 years old in 1954, Volodya's father was a rich jeweler in Moscow at the time of the Revolution. Volodya himself was well educated and, on one occasion while picnicking outside Moscow, he spoke intelligently with
+
+G001359
+
+TS No. 197124
+Copy 10
+
+Top Secret
+
+15/88

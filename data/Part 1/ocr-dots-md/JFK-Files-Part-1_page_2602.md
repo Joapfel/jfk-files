@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_2602.png
+
+Convert to Markdown**Top Secret**
+
+(FOUNDATIONS OF NOSENKO'S CLAIMS)
+
+successes, when in fact they didn't exist, the figures about how the USSR had passed the USA in the production of butter and milk, when in the stores they were available only infrequently. The endless promises of a better life when in fact nothing of the sort is taking place. All this similarly forced me to re-evaluate not only the events which were taking place in the country, but already the entire ideology of the Party, its external and internal course.
+
+The events in Novocherkassk where 20,000 to 25,000 people rose up and the way in which this popular indignation was suppressed by troops with many casualties. This also made a deep impression on me. When I was resting in the summer of 1961 in Nikolayev, from my relatives--my father's brothers--I understood well the real relation of the workers both to the leadership and to the Party as a whole. At the same time I saw how the workers really lived, how they eat, what they have and what they can buy with their wages.
+
+I heard a great deal from my father about the domestic policies of Khrushchev in regard to the development and the course of construction in industry, about his complete illiteracy in engineering technology and industrial economics, about incorrect decisions in regard to many industries, and this was not only the opinion of my father, but also of other important leaders in various fields of industry. But no one dared to open his mouth and when in December 1955 my father tried, as an engineer, to prove that a certain decision would be incorrect, he received such a rebuff from Khrushchev that he was profoundly shaken and in the opinion of my mother this brought him to his illness and death in August 1956.
+
+The events in Germany and especially in Hungary showed with absolute clarity the bankruptcy of communist ideology. What was especially important for me was the fact that in these countries it was a protest not of individuals or groups, but of the
+
+0001284
+
+TS No. 197124
+Copy 10
+
+Top Secret

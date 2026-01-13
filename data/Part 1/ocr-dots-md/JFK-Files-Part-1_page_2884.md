@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_2884.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - January 1962-January 1964)
+
+NOSENKO'S Information
+
+SHUBIN was a native of California of Russian ex-
+traction, a Russian speaker, and a university professor
+in New York City. SHUBIN, who had visited the Soviet
+Union twice before, visited the Soviet Union in 1958
+or 1959, while NOSENKO was serving his first tour of
+duty in the Seventh Department. At that time, SHUBIN
+was the target of Seventh Department case officer
+A.A. VETLITSKIY, NOSENKO heard later that SHUBIN was
+placed under surveillance, and when the KGB surveillance
+observed SHUBIN as a passenger in a Ministry of Defense
+automobile, the GRU was asked about the American. "They
+very furtively said that they were interested in him,"
+from which the KGB concluded that SHUBIN was a GRU agent.
+
+In 1962 (sic) NOSENKO was reviewing a list of foreign
+visitors to the Soviet Union and he noted [SHUBIN's name] 06
+and recalled his earlier identification as a GRU agent.
+NOSENKO himself telephoned GRU General SOKOLOV's office
+and informed SOKOLOV of [SHUBIN's] presence (or, according
+to another version, SOKOLOV's office was advised by
+others). SOKOLOV's office eventually apologized for
+having failed earlier to notify the KGB of the GRU's
+interest in [SHUBIN].
+
+Comment:
+
+[SHUBIN] had no valid U.S. passport between 1940 and June 1961; if he visited the Soviet Union during that period it was not as an American tourist under his true name. Consequently, he could not then have been the tourist target of the Seventh Department case officer, as NOSENKO claimed. If NOSENKO erred, and actually was referring to [SHUBIN]'s visit in 1961, there is a further contradiction: NOSENKO could not have noticed his name while reviewing tourist lists in the Seventh Department, because he claims he was in the American Department at the time. 06
+
+297
+
+TS No. 197124
+
+Top Secret
+
+0001568
+
+Copy 10
+
+11/BR
+
+14-00000

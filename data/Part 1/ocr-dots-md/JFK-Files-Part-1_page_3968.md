@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_3968.png
+
+Convert to Markdown19 March 1965
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Chief, VI remarks on Termination of AMWORLD
+
+1. At a meeting with DCWMD/C and Mr. Jenkins on 18 March, Chief, VI expressed general satisfaction with the status of termination of AMWORLD and the plans therefor. He stated specifically that he was pleased with the cooperation of AMBIDDY-1 and AMJAVA-4 and would make it a point to inform higher levels in the Agency and the U. S. Government and put a good word for them on the record. He also directed that they be told:
+
+a. He personally appreciates their cooperation and the good sense, goodwill and maturity they displayed in accepting and executing the U. S. Government decision to terminate their operations.
+
+b. He wants to meet with them personally, at the earliest mutually convenient time, in order to discuss the situation with them.
+
+c. After termination of the paramilitary project is completed, he has some other ideas for ventures of mutual interest which he wishes to pursue with them.
+
+2. The gist of the above points had been passed to AMBIDDY-1 and AMJAVA-4 previously by Mr. Jenkins, and on the night of 18 March he confirmed by telephone to AMJAVA-4 that Chief, VI had expressed the above sentiments.
+
+File:
+AMBIDDY-1 201
+AMJAVA_4 201
+Policy
+
+Carl E. Jenkins
+VE/C/CA/EK
+
+SECRET
+
+GROUP I
+Enclosure III is electronic
+Communication and
+Declassification

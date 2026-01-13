@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_3804.png
+
+Convert to MarkdownSECRET
+
+farmers the chance to take their products to big markets,
+through the construction of highways, silos to store grains
+and favorable legislation for the small farmers. The
+only thing that worries me is the extraordinary influence
+that "Che Lainez" has on him in economics. There are
+diverse commentaries about this individual on whether he is
+a member of the Communist Party or not; but the truth is
+(I know him personally) that he is a social outcast, bitter,
+very intelligent and very ambitious. Furthermore, when
+he tries to please someone he acts like their servant. If
+he is not a Communist then he is easy material for the
+Communists.
+
+3. Somoza has promised me to continue to move the subject of Cuba in the international spheres, and in his appearance in "Meet the Press" he has already done it.
+
+4. There is a "GARCIA" who is a syndicate leader of the Wharfs? of New York, who through Adolfo Jimenez told me about a new invasion that was planned for Haiti, directed by me and leaving from Nicaragua. I responded negatively. It seems that they spoke with others about the project and a rumor started which said that I was preparing an invasion of Haiti from Nicaragua; I then went to see the Haitian consul in Miami to make it clear to him and his Government that I was not an adventurer, and that neither I nor the Nicaraguan Government had the slightest intention of interfering with Duvalier.
+
+SECRET

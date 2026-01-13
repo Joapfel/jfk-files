@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_2773.png
+
+Convert to Markdown# Top Secret
+
+## (AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+Although the KGB later discovered that JENNER was not a code clerk but a pouch clerk, he remained a target for development. Since he did not telephone "SOLISTKA" after one or two months, the KGB arranged for her to encounter him at the railroad station or airport when he went alone to meet the couriers. JENNER saw her but did not approach her, turning away. The KGB took no further steps to cultivate JENNER. The KGB "had nothing on JENNER at all except a suspicion he may have been a homosexual, but there was no proof".
+
+On 26 October 1966 NOSENKO confirmed the identification of other CIA sources by identifying a photograph as that of Vadim Viktorovich KOSOLAPOV, [born in Perm, 19 February 1928] his former subordinate of the Embassy Section. The photograph shown NOSENKO was that of one Victor Dmitriyevich KOLOSSOV, employee of Vneshtorg, born 19 March 1927, in Perm, who arrived in Finland by train from the USSR on 31 March 1960 [the day JENNER left] and departed on 2 April. NOSENKO acknowledged that that data accurately reflected KOSOLAPOV's alias, cover, and itinerary during his trip to Helsinki to accompany JENNER back to Moscow in 1960.
+
+On 26 October 1966 NOSENKO was confronted with the Finnish train manifest showing that Paul JENNER was the single passenger departing Helsinki for Moscow on 31 March 1960 and that KOSOLAPOV/KOLOSSOV travelled on 2 April on a train carrying no Americans. Repeating the substance of the KGB operation and citing his recollection from reading KOSOLAPOV's report of the trip, NOSENKO insisted that KOSOLAPOV travelled on the same train with JENNER, and that the Finnish manifests must be in error. [See accompanying exhibits.]
+
+### JENNER'S Information
+
+After arriving in Moscow on 1 April 1960 JENNER reported that he was approached on the train from Helsinki by two young Russians, "a boy and a girl, probably university students". The two Russians struck up a conversation and were soon baiting him on the question of racial discrimination in the United States. They said that they might see JENNER in Moscow. About three months later, on 29 June, JENNER was performing his normal duty of escorting Embassy couriers
+
+0001457
+
+Top Secret
+
+TS No. 197124
+Copy 10
+
+187

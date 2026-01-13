@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_3340.png
+
+Convert to Markdown3. Without being asked A-I stated he wanted to clarify his financial situation since his return from prison. A-I reported he has earned $4,500 from the sale of Marchas de Guerra y Cantos de Presidio; from the sale of the book Bay of Pigs he has so far earned $4,300 in royalties of which $1,000 has been sent to the underground in Cuba. His personal bank account at present totals $1,700. A-I also maintains he has no other bank account in any other country.
+
+4. We again mentioned to A-I that our sole purpose was to bear the facts from him to prevent the waggling of idle tongues.
+
+Paul J. Bernandan
+VI/8A/8C/HH
+
+Date:
+AMBassy-1 - 201
+Adelaida - 201
+Antonio Barr - 201
+
+SECRET
+
+<table>
+  <tr>
+    <td>CABINET</td>
+  </tr>
+  <tr>
+    <td>SECRET SERVICE</td>
+  </tr>
+  <tr>
+    <td>BORDER GUARDS</td>
+  </tr>
+  <tr>
+    <td>MILITARY PERSONNEL</td>
+  </tr>
+</table>

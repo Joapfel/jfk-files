@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_2262.png
+
+Convert to MarkdownHenry Charles Bishop
+
+DOB : 017891 09 February 1932
+
+January 1960 - Station E.
+October 1962 - Nicosia
+October 1964 - Headquarters
+Office of Communications GS-13
+
+Still active
+
+1954
+5' 9"
+170 lbs.
+brown eyes
+brown hair
+
+4/80

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_3925.png
+
+Convert to MarkdownAtt. No. 50 to UFGA-2:693
+
+UFGA - 21693/14
+
+SUBJECT: *MENDEZ, Segundo
+
+1. Source met Subject about 1948 at the Tricunal de Cuentas, Plaza Civica, Havana as source's sister, Blanca MONDEJAR Rodriguez, used to work in the same office of which Subject was the Director. Source last saw Subject in Cuba in early 1963, at which time Subject was leaving Cuba for Mexico. Source saw Subject again in Mexico in 1964. Source does not know if Subject has relatives outside Cuba, or if Subject has received any political, military or intelligence training. Source intends to maintain correspondence with Subject.
+
+2. Physical Description: DPOB: circa 1918, place of birth unknown to source. Race: mulatto. 6'0", 210 lbs. Hair: gray. Eyes: dark. Shape of face: round. Physique: very heavy. No visible scars.
+
+3. JEWAVE Traces: None.
+
+SECRET
+
+UFGA-21693
+
+39

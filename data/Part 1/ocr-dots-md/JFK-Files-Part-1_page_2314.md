@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_2314.png
+
+Convert to MarkdownC. Has NOSENKO given an acceptable explanation of his motivation in contacting CIA in 1962 and for his defection in 1964?
+
+D. Is the information furnished by NOSENKO to CIA concerning KGB operations, personalities, and organization reasonably commensurate with his claimed KGB career?
+
+E. Can the information furnished by NOSENKO be considered in toto as having resulted in material damage to the KGB and/or has the information furnished by NOSENKO been of significant benefit to Western Intelligence?
+
+F. Is there evidence of KGB deception or "give away" in information furnished by NOSENKO which would warrant a conclusion that NOSENKO was dispatched by the KGB?
+
+G. Is there evidence of a political or any other type objective which could justify a dispatch of NOSENKO by the KGB with permission to speak freely to CIA concerning his knowledge of the KGB and without NOSENKO being given a specific mission or missions?
+
+0001023
+
+SECRET

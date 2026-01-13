@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_2859.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - January 1962-January 1964)
+
+Comment: From their modus operandi the "doctor from Riga" is undoubtedly VOLKOV and the "student" YEFREMOV. NOSENKO frequently used the operational pseudonym Yuriy Ivanovich NIKOLAYEV and was called Georgiy.
+
+Although JOHNSON apparently confirmed NOSENKO's role, NOSENKO'S version of the case is incompatible with what must have been the actual time frame. According to NOSENKO'S version, within five days of JOHNSON'S arrival in Moscow the KGB had discovered that he was a homosexual, concluded from "two or three" censored letters that he was a threat, and arranged his entrapment. The rapid pace of events suggests that JOHNSON'S homosexuality was already known to the KGB (if not to NOSENKO before JOHNSON'S arrival in Moscow. NOSENKO'S ignorance of JOHNSON'S preaching (probably the actual cause of KGB concern) is further evidence that NOSENKO did not know the complete background of the KGB operation, and that his role was merely that of playing the "Police Chief".
+
+NOSENKO'S participation in this case contradicts his assertions about the timing of his transfer from the American Department.
+(See p. 260.)
+
+William Carroll JONES
+
+NOSENKO'S Information
+
+JONES, a wealthy Baptist layman, visited the USSR on six or seven occasions, each time meeting with Russian Baptists. He is personally acquainted with President Johnson and knew President Kennedy. He was the target of Seventh Department case officer Vitaliy DERA. While visiting the Soviet Union in 1962 JONES became involved with a Soviet female. Although she was not a KGB agent, the KGB took control of her relationship with JONES and, on JONES' subsequent trips to the Soviet Union, unsuccessfully sought to obtain incriminating photographs.
+
+0001543
+
+TS No. 197124
+Copy ________

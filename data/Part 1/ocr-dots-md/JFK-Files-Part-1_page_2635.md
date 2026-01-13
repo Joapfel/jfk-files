@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_2635.png
+
+Convert to Markdown(PRE-KGB BIOGRAPHY)
+
+# Attendance at the Moscow Institute of International Relations (1945 - ca. 1950)
+
+In all of his accounts, NOSENKO has stated that he entered the Institute's Faculty of International Law and English in September 1945. He completed his first year in spring 1946.
+
+In 1947, on completion of his second year at the Institute, NOSENKO claims he received a commission as a junior lieutenant "in the reserves"; he does not recall in what arm he received a commission, other than being sure that it was not in the Navy.
+
+Comment: Soviet students completing their second year of higher institutions are commissioned, but in an arm (Army, Navy, Air Force) of Soviet defense forces. At that time they receive their voyennybilet (military booklet) which reflects their assigned MOS and category (sostav). CIA interrogators were unable to resolve why NOSENKO pleaded ignorance on this matter, and concluded it may relate in some manner to his claims to subsequent commissioned service in the Navy.
+
+In 1947, also, NOSENKO married the daughter of a Soviet Army Lieutenant General, Augustina K. TELEGINA "just after" her father had been arrested in connection with Stalin's campaign against Marshal Zhukov's associates. NOSENKO recalls neither the date of that marriage, in what season of the year it occurred, nor how long after her father's arrest. [The significance of this first marriage lies in NOSENKO'S contradictory statements about when and how he obtained his divorce. See below.]
+
+0001319
+
+TS No. 197124
+
+Copy _______

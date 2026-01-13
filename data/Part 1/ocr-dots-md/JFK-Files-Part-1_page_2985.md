@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_2985.png
+
+Convert to MarkdownTop Secret
+
+BARTHELEMY, Thomas Franklin 402, 403
+BEGGS, Frank 193, 195, 197, 198
+BELANOVSKIY, Victor (KGB cryptonym "STROYEV") 110, 116
+BELITSKIY, Boris Yefimovich 106, 268, 280, 282-287, 291
+317, 331, 332, 337
+"BELKIN" (KGB cryptonym for Boris BELITSKIY) 282
+BELOGLAZOV, Viktor 159, 221, 222, 225, 246
+BELOV, Ivan Andreyevich 391
+BENSON, John S. 87, 93-96, 98
+BENYAMINOV, Aleksandr Aleksandrovich 50, 363
+BERMAN, Harold 403
+BIENSTOCK, Natalie 273, 274
+BINDER, Peter 203, 204, 234, 403-405
+BIRSE, Arthur 104, 114, 122, 123, 125, 126, 144
+BIRYUKOV, Vadim Osipovich 427, 428
+BLAKE, George 30, 102, 148, 149, 247, 263, 327, 331
+BOBKOV, Filip Denisovich 269
+BOLSHAKOV, Georgiy Nikitovich (GRU) 398
+BORODIN, Nikolay Mikhaylovich (aka Norman M. BORODIN)
+35, 94, 95
+BORISOV, Ivan Dmitriyevich 411
+BORISOV, Petr Pavlovich 377
+BOWDEN, Lewis W. 139, 141, 142, 242, 314
+BRADLEY, Jerome G. 178
+BRAUNS, Horst 268, 288-291
+BROCHES, Adam 405, 406
+BROCHES, Alexander 405
+BROCHES, Ignacy 406
+BRODNEY, Kenneth 80
+BROWN, G. Stanley 202, 226, 227, 244
+BUBNOV, Oleg Sergeyevich 32
+BUDYLDIN, Valeriy 83, 84
+BUHLE, Johannes 402
+BUNDARIN, Eugene Peter 406, 407
+BURGI, Richard 99, 110, 113, 115-120, 144, 344, 346
+BUTENKO, John W. 298, 368
+CARDELLA, James 87, 97
+CECCHI, Pietro 194, 198, 199, 200, 208
+CHELNOKOV, Col. Vladimir Dmitriyevich 18, 29, 139, 140,
+142, 259, 276, 292, 305, 346
+CHEREPAKOV, Aleksandr Nikolayevich 76, 264, 309-313, 319,
+322, 326, 381, 411, 412
+CHERNYAVSKIY, Viktor Petrovich 387, 390, 395
+CHERNYSHEVA, fnu (Eddy GILMORE'S sister-in-law) 77
+CHRISTNER, Robert Charles 407
+CHUCHUKIN, Vladimir Aleksandrovich 370, 372
+CHURANOV, Vladimir Aleksandrovich 30-31, 97
+
+0001669

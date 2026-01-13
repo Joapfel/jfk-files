@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_3393.png
+
+Convert to MarkdownDC-10568
+
+THE TROOPS THAT WILL OVERTHROW CASTRO ARE ALREADY IN CUBA
+TEY ARE THE PEOPLE WHO CHANGED HIM WHEN THEY BELIEVED HIM A HERO OF OUR LIBERTIES
+
+Following is a translation of an interview of Manuel Artine by Agustín Camargo, as reported in the Spanish language magazine Bohemia Internacional, Caracas, Venezuela, 7 June 1964.
+
+Q. - Your group has initiated a new offensive against the Castro regime during the last few days in cooperation with one carried out by other revolutionary units. Do you expect victory soon?
+
+A. - Everyone knows when wars begin, but never when they end.
+
+I would like to say that it will be soon, but my duty as a leader is to prepare the people of Cuba and the Cubans in exile for the kind of war we expect: a long, hard war, but one that we shall win if all Cubans pull together in accordance with their ability.
+
+There may be imponderable factors, "surprises" which could bring about the fall of the tyrant; but we must never count on "miraculous" solutions, on invasions that do not exist or on organizations that will pull our chestnuts out of the fire.
+
+Q. - Are you considering the possibility of eventually uniting your men and resources with those of the Cuban Revolutionary Junta or the Alpha 66 - II Front - MRP or any other unit that may be currently carrying on the struggle inside Cuba?
+
+A. - The frontiers of our movement have never been closed to anyone who wants to fight for Cuba, with the exception of totalitarian movements either of the right or of the left.
+
+What we do think wise to explain is that we do not believe in political action units in exile. We believe only in

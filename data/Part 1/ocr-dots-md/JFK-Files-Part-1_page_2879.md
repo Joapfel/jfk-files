@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_2879.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - January 1962-January 1964)
+
+was promoted to the position of a (one of three) Deputy Chief of the entire Seventh Department. A year later, he was made First Deputy Chief, and thus second-in-command to CHELNOKOV and general supervisor of all Second Chief Directorate tourist operations. The Seventh Department, which had a strength of about 100 KGB officers, was responsible for all operations against tourists in the Soviet Union. From this period NOSENKO claimed to have learned, either by virtue of his position as Deputy Chief or otherwise, of a number of KGB operations against Americans, including two arrests, one recruitment, and investigations of a suspected FBI agent and of Lee Harvey OSWALD. NOSENKO as well attributes to his senior KGB posi- tion during this period his knowledge of an American GRU agent and of the KGB investigation of a disaffected American Embassy Section officer, the latter occurring just before NOSENKO re- turned to Geneva for the second time, and defected.
+
+Recruitment of SVENCHANSKIY
+
+NOSENKO'S INFORMATION
+
+In September 1963, NOSENKO took over from his subordinate, Seventh Department case officer Ye.N. NOSKOV, the management of KGB agent Alexander SVENCHANSKIY (cryptonym "ANOD"). SVENCHANSKIY was the president of "Afton Tours", a travel agency in New York City, and the owner of a Chicago Russian-language bookstore. There was originally some suspicion that SVENCHANSKIY might be an FBI informant, and the KGB was also concerned over SVENCHANSKIY's contacts with AMTORG per- sonnel in New York City. NOSKOV, the case officer at the time, "felt" that SVENCHANSKIY was not an FBI informant and recruited him in 1960 or 1961 after he was arrested for blackmarketering while visiting the Soviet Union. SVENCHAN- SKIY's cooperation was secured against KGB promises that Inturist would refer business to the agent's New York travel agency.
+
+[SVENCHANSKIY]'s task was to screen visa applications of prospective tourists to the Soviet Union for persons who might be connected with American Intelligence. If he suspected such a person, he would make a signal by moving the photograph on the visa application slightly, or making a small pin-prick or pencilled mark on the application form.
+
+0001563
+
+TS No. 197124
+Copy ________

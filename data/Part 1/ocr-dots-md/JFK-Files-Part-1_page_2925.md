@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_2925.png
+
+Convert to Markdown# Top Secret
+
+## (OTHER ASPECTS OF NOSENKO'S KGB CAREER)
+
+### Communist Party Status
+
+In addition to other stringent requirements, candidates for the KGB must normally be Communist Party or Komsomol members. The significance of NOSENKO's statements about his Party status is the extent to which they are consistent with what is known about Party activity in the KGB, and consistent with NOSENKO's account of his KGB career.
+
+NOSENKO said his formal participation in Communist Party activities began in late 1943 or early 1944 when he joined the Komsomol at the Naval Preparatory in Baku. The step was a casual one, he said, and he took it without much thought, mainly because all of his friends were joining. He continued his pro forma membership in the Komsomol while in the Naval RU, and when he "transferred" to the KGB in spring 1953, he transferred routinely to the KGB Komsomol organization from his Naval RU Komsomol unit in the Baltic. He was registered with the KGB Komsomol, he said, without referring the matter to his former Baltic Komsomol unit.
+
+**Comment:** According to knowledgeable KGB defectors, a member's acceptance in another Komsomol unit is contingent upon the endorsement of the individual's former unit; NOSENKO's acceptance by the KGB Komsomol without referring the matter to his Komsomol unit in the Baltic "is impossible".
+
+In the fall of 1953 NOSENKO claims he was elected secretary of the Second Chief Directorate Komsomol organization. He was elected, he said, at a meeting of the Komsomol membership.
+
+6001609
+
+338
+
+TS No. 197124
+
+Copy _______
+
+Top Secret

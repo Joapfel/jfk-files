@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_3080.png
+
+Convert to MarkdownChief of Station, Buenos Aires
+
+Chief, of Station, Panama City
+
+Chief, SE via Chief, WU
+
+RYPAT REILTOP ALTARERT TECHS
+Assignment of Cryptonys
+
+Reference: NABA 1975, 8 August 1968
+
+In answer to Paragraph A of Reference, the cryptonys ARLANYAPD has been assigned to this operation.
+
+TEUNIS C. PACHATTE
+
+Distribution:
+
+2 - COS, Buenos Aires
+3 - COS, Panama City
+
+HARP 11212
+
+SECRET
+
+SR/O/PT
+
+CLIFF MUNT/rho
+
+10 August 1968
+
+74-120-223
+
+G587
+
+E/SE/O/TT
+SH/O/WII
+TRD/AOR
+WII/4/AR
+
+B/ RANNAN, by phone
+
+Comm 14

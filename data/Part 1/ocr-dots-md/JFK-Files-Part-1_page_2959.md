@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_2959.png
+
+Convert to Markdown# Top Secret
+
+(Annex B)
+
+HAMZAVI, Charles P.
+
+NOSENKO's Information
+
+An American, one Charles KHAMZAI (sic) was the object of considerable interest to the KGB during his 26 October-1 November 1963 visit to the USSR. A KGB officer under cover was in contact with him in Moscow and the KGB planned to resume this contact in the United States. The Seventh Department action with respect to KHAMZAI was in response to a request from the First Chief Directorate for assistance in developing a contact with him in Moscow.
+
+Comment: NOSENKO's lead has been identified as Charles P. HAMZAVI, who has been noted in frequent contact with Soviet officials from 1955, when he immigrated to the United States, until 1963. According to the FBI, he was in Moscow in 1963, when he was in contact with a Foreign Ministry official which CIA identifies as KGB officer I.D. BORISOV.
+
+HARMSTONE, Richard
+
+NOSENKO's Information
+
+In 1958 or 1959 the American Department's Embassy Section attempted to recruit HARMSTONE, a Second or Third Secretary at the Embassy. Both male and female agents were used against him, and photographs were obtained of HARMSTONE's homosexual activities. When confronted, however, HARMSTONE refused to collaborate with the KGB. HARMSTONE reported the approach to American officials, but asserted that he was involved just in heterosexual compromise.
+
+NOSENKO reviewed the CHEREPANOV documents (see p. 309) in 1964, including the KGB plan of operations against HARMSTONE. NOSENKO confirmed the substance and eventual success of the plan, which was to get HARMSTONE drunk and photograph him.
+
+0001643
+
+TS No. 197124
+Copy 10
+
+Top Secret
+
+11/SR

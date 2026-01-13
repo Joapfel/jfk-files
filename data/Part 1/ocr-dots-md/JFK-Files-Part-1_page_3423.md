@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_3423.png
+
+Convert to MarkdownSECRET
+
+2 June 1964
+
+MEMORANDUM FOR: Under Deputy Chief, VI/SA
+SUBJECT: AMB WORLD—Haynes Johnson, Author of "Bay of Pigs"
+
+Subject had the clause to attempt to get in touch with AMBIDY-1 in Miami. He asked for an interview, indicated willingness to go to Central America and "spread Bay information from Central America."
+
+Henry D. Bochanser
+VI/SA/SO/EX
+
+Re: COS, JEWAVE
+
+MDK/bh
+
+**Distribution:**
+
+* Orig - Addressed
+* 1 - Publicity File
+* 1 - AMBIDY-1 2017
+
+SECRET
+
+<table><tr><td>COD#:</td></tr><tr><td>Addressed from automatically generated and</td></tr><tr><td>Auto addressed all</td></tr></table>

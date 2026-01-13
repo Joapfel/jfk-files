@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_3765.png
+
+Convert to MarkdownLX-3254
+
+Miami, 12 June 1967
+
+Dear Jim:
+
+Just a few lines to inform you:
+
+1. (Mr.) Allan GROSS Quiros frequently writes to the following addresses in the United States:
+J.B. PASTORAL
+P.O. Box 676
+Brattleboro, Vermont 05301
+Anibal IBARRA Gonzalez
+1515 Engel Rd. #423
+Lawrence, Kansas 66044
+Leonel GARCIA
+The School for International Training
+of the Experiment in International Living
+Brattleboro, Vermont 05301
+(Dr. ARAGON, Communist like him and well-known in the Communist circles at the University of Leon, writes to the following addresses:
+(Lic.) Roger ARGENAL Arauz
+2515 Rio Grande
+Austin, Texas 78705
+(Dr.) Enrique GALLO Zeledon
+P.O. Box 21986
+University Station
+Rio Piedras, Puerto Rico 00931
+(Dr.) Eduardo BISOGNI
+Sucre 1461 16 281
+Buenos Aires, Argentina
+
+Refer to my previous letter for data on these two individuals.

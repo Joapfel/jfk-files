@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_3439.png
+
+Convert to Markdowncritical period following the Miami press conference, AMYUM-19 was the only available, cleared channel to AMBOLD and time, in view of Guacido's unfavorable reaction, was of the essence. AMJAVA/4 was asked to convey this explanation to AMBIDDY-1 and to stress that we consider AMYUM-19 his senior rep in FAPRIM.
+
+8. AMJAVA/4 stated that there had been many betrayals and consequently AMBIDDY-1 was always careful. At times he might even think that AMYUM-19 was not loyal which, AMJAVA/4 added, "Of course is not true." As AMBIDDY-1 analyzes his own performance, he is satisfied that he is performing well. He has been in the resistance business since Batista's days and many intimate friends have be- trayed him. At the present moment, he does not have 100% confidence in anyone. Everything he is told, he analyzes. As an example, AMJAVA/4 briefs Chavez (the Mexican) on a projected operation. AMBIDDY-1 will question AMJAVA/4 closely in order to make sure that the instructions did not deviate from the plan as conceived by him.
+
+9. Among matters which should be taken up with AMBIDDY-1 direct, no matter how ticklish, was e.g. the case of ...MOLE. AMJAVA/4 and AMYUM-19 know that KUBARK have a poor opinion of him. Then why beat around the bush? AMJAVA/4 at least had not witnessed any mention of this by BECKHOFF in AMBIDDY-1's presence. Instead AMYUM-19 had reported GUEZKILLER'S statement that he con- sidered MOLE a poor choice for the intelligence job to AMBIDDY-1 and the latter had jumped to the conclusion that it was AMYUM-19 putting words into GUEZKILLER's mouth.
+
+10. BECKHOFF commented as follows: AMYUM-19 will have to tell GUEZKILLER or myself if in a given instance a personal derangement is indicated. There are certain things which, with AMBIDDY-1 out of the country, simply cannot be put on the shelf. We have no choice but to tell GUEZKILLER to tell AMYUM-19 who, however, should feel free to counsel us not to use him as a channel. Headquarters rep conceded that AMBIDDY-1 could rightly recent anything which smacks of a junior officer (i.e. GUEZKILLER) giving orders to him via AMYUM-19, an impression we would do our best to eradicate.
+
+STREET REPORTER!

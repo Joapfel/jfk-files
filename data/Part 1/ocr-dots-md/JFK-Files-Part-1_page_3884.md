@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_3884.png
+
+Convert to MarkdownJohnson of Costa Rica and he (Ouber) was the Kennedy.
+I'm lucky that they are stupid and that they are not aware
+of the fact that an attack is being created and they are
+not prepared for that emergency. I am prepared." Ouber
+then told source of an airfield on his farm close to the
+Nicaraguan border where at the determined moment he could
+receive arms.
+
+SECRET
+
+14-00000

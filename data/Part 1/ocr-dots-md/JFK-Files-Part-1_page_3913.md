@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_3913.png
+
+Convert to MarkdownUFGA-21693/14
+
+Att. No. 36 to UFGA-21693
+
+SUBJECT: GRANADO, Miguel
+
+1. Source met Subject about April 1960 when source was appointed to his position at the Ministerio de Obras Publicas, where Subject was the Administrador of the Distrito #3, Havana. Subject remained in that position until early 1961, at which time he was transferred to another job located in the main building at the Plaza Civica, in the Ministerio de Obras Publicas. Since then source has seen him about two or three times, meeting him casually in the street. During the period of time in which source and Subject were working together they became friends although not close friends. Source is not able to provide information on Subject's life prior to the time in which they met. Source believes, based on the conversations he had with Subject, that Subject is against the Cuban communist regime although Subject's brother (fm) GRANADO was the Sub-secretario tecnico de Obras Publicas about 1961. Source does not know if Subject has any relatives outside Cuba or if Subject has received political, military or intelligence training.
+
+2. Physical Description: DPOB: circa 1915, place of birth unknown to source. Race: white. 5'7", 125 lbs. Hair: bald. Eyes: light. Shape of face: long. Physique: slim. No visible scars.
+
+3. JEWAVE Traces: None.
+
+SECRET
+
+UFGA-21693
+
+27

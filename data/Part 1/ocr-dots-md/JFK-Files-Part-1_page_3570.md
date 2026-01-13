@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_3570.png
+
+Convert to Markdown<table><tr><td>CSRC: RICHARD HARRINGTON<br/>JAN: WH/2/HUGES?<br/>DATE: 7163/1948<br/>DATE: 22 SEPTEMBER 1969</td></tr></table>
+
+SECRET
+
+CITE DIRECTOR: 30886
+
+TO MANAGUA INFO SAN SALVADOR, TEGUCIGALPA, WH/MIAMI
+
+REV: MANAGUA 7059 (IN 07442)
+
+22 17 50s Sdp
+23 SEP 1969
+
+1. REQUEST COS MANAGUA CONTACT AMBIDDY-1 AND DEBRIEF ON REF TRIP TO SAN SALVADOR. OF PARTICULAR INTEREST IS ANY INFO AMBIDDY-1 HAS ON HONDURAS/SALVADOR ARMS PURCHASES.
+
+2. FYI: ON 17 SEPTEMBER HQS LEARNED FROM IUSTEER-1 THAT AMBIDDY-1 ARRANGED CONTACT FROM MIAMI FOR A HONDURAS ARMS BUYER TO PURCHASE ARMS IN SPAIN. FOR THIS SERVICE AMBIDDY-1 WILL RECEIVE A COMMISSION FROM THE HONDURAS ARMS BUYER BASED ON THE TOTAL ARMS PURCHASE PRICE. DO NOT REVEAL THIS INFO TO AMBIDDY-1.
+
+S. NO INDEX. FILE: 201-267437 AND 201-283488
+
+END OF MESSAGE
+
+WH/COMMENT: On 22 July COS Managua received urgent phone call from AMBIDDY-1. AMBIDDY-1 said he just received phone call from Salvador and they (Salvadorans) needed eight pilots and wanted to consult with AMBIDDY. A Salvadoran visa had been authorized. COS Managua instructed AMBIDDY to proceed to San Salvador and obtain info on Salvador war plans. Once he acquired this info AMBIDDY was to inform the Salvadorans that he could not be involved in any way. AMBIDDY agreed and told COS Managua that he would contact COS on his return from the trip to San Salvador
+
+AC/WH/2/NIC
+WU/COG/OPS
+JOSEPH Y. KIYONAGA
+
+WILLIAM V. BROE
+C/WHD
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+<table><tr><td>included from outstation down toding and declassification</td></tr></table>
+
+AUTHENTICATING
+OFFICER
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_2842.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+Comment: (Continued)
+
+Caracas on 17 November, and departed Caracas for Havana on 19 November. According to flight manifests, on 13 December NOSENKO arrived in Amsterdam from Havana en route to Moscow and left Amsterdam via air for Moscow on 15 December.
+
+NOSENKO was travelling on a service passport; he did not enjoy diplomatic immunity. It is thus highly unlikely that he did serve as a courier, bearing documents of the nature he described as he claimed.
+
+NOSENKO's planned trip to the United States and his confirmed travel to Cuba damages his claim that he was supervising operations during this period against Embassy code clerks in Moscow. The trip occurred at the time his alleged target, State Department code clerk MORONE, was to be entrapped on the train en route to Warsaw (15 November) and while his subordinate KOSOLAPOV was in Helsinki (12-16 November) in connection with another code clerk target, JOHN GARLAND.
+
+Travel to Bulgaria and the LUNT Case (April-May 1961)
+
+In Geneva in 1962 NOSENKO reported that he had been sent to Sofia as a KGB response to a Bulgarian Ministry of Interior (MVR) request that the KGB provide a Second Chief Directorate American Department officer to discuss operations with Bulgarian counterparts. While in Sofia NOSENKO asserted he played a key role in the compromise of American professor Horace G. LUNT.
+
+NOSENKO'S Information
+
+Consultation with the MVR
+
+NOSENKO first heard of the Bulgarian assignment from S.I. YEGOROV, Chief of the KGB unit handling liaison with Bloc counterintelligence representatives in Moscow. YEGOROV
+
+0001526
+
+TS No. 197124
+
+Copy _______

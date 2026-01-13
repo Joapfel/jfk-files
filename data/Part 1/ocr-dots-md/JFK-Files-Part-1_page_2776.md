@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_2776.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+Information From Other Sources
+
+I. Ye. SERGEYEV, a KGB officer and the Soviet Consul in Helsinki, contacted the chief of the Helsinki police on 31 March 1960 to ask his assistance in locating an American named [Paul F. JENNER], who was due to arrive in Helsinki the day before.' SERGEYEV explained that he had some "business" with [JENNER]. But he did not specify its nature. Reportedly, this was the first time that SERGEYEV had made such a request of the police chief. GOLITSYN identified the Helsinki police chief as a Soviet intelligence agent from "about 1945 on".
+
+Development of [JENNER]: Summary and Conclusion
+
+NOSENKO's version of the [JENNER] case in some degree resembles less the facts about [JENNER] than KGB activities directed against [John GARLAND] (see below), activities which NOSENKO asserts never occurred. [GARLAND], not [JENNER], travelled on the same train as KOSOLAPOV, and [GARLAND], not [JENNER], travelled "in the middle of the month". The Helsinki Residency's query to the Helsinki police chief about [JENNER] indicates that KOSOLAPOV'S cable contained information about [JENNER], not just notice that KOSOLAPOV was coming to Helsinki. It was at the airport in Moscow, not on the train, that "[SOLISTKA]" gave [JENNER] her telephone number, an event which would be presumably memorable to NOSENKO (as supervisor of all code clerk operations) if only because of his futile wait for [JENNER] to call. Finally, NOSENKO is unaware of the actions of KGB agents who were employed as maids by [JENNER]. From the foregoing it is concluded that NOSENKO was neither KOSOLAPOV'S supervisor, nor in this instance, supervisor of all KGB operations against American code clerks.
+
+0001480
+
+TS No. 197124
+Copy 10
+
+Top Secret 15/88

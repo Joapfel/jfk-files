@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_3175.png
+
+Convert to Markdown# SPECIAL REPORT
+
+## I.- SUBJECT
+
+Ivan Gavrilovich ALFERIEV was born in Moscow (U.S.S.R.), on the 20th of January 1928, diplomatic passport No. 091.477, married to Rosa Alekseevna ALFERIEVA, born on September 20th, 1934, in Moscow, diplomatic passport No. 019.468. Subject is assigned as 2nd Counsellor of the U.S.S.R. Embassy in Buenos Aires. He arrived in this country on the 27th of January 1968, taking up residence on Uruguay 117b, 5th Floor, Apt. "A" in the Federal Capital, Tel. 41-5405, living at said address until 6e 7th of October 1969 when he moved to live at the Posadas Club (residence for the officers of the soviet representation).
+
+ALFERIEV had been for a short time in Argentina during the month of September 1958; in Havana in September 1959; in Quito in January and February 1962 and in Tijuana in September 1963. He was representative of FRAVDA in Mexico during 1960 and 1964.
+
+In view of the fact that subject lived separately from the rest of the Embassy personnel, his mission based on information was thus made easier.
+
+It should be pointed out, that during his residence on Uruguay, he was kept under surveillance through a technical penetration carried out by this Section.
+
+As a result of the exploitation of these lines, as well as the Case "ASADO" (summer home) and information from the "LORD" case, certain details concerning his personality, private life and contacts have been ascertained.
+
+Through thorough study of above mentioned sources, it is apparent that the ALFERIEVS have certain differences, during which he is the object of vituperation from his wife Ross, which Ivan thoroughly ignores to the great exasperation of his wife.
+
+## II.- PERSONALITY OF IVAN ALFERIEV
+
+He is an introvert, clever, cautious and distrustful. He knows how to hide his feelings and he has an excellent self-control, showing violent feelings on very rare occasions. (See Section IV).
+
+With relation to his cultural level, nothing much is known, as he has never been heard speaking on themes of general culture. When he speaks at social gatherings he is joking, using double meaning phrases (usually funny). Sl. att 1 to HABA 01080 CS COPY 901-236701

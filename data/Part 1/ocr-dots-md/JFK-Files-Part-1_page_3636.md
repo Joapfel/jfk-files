@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_3636.png
+
+Convert to MarkdownSECRET
+
+d. Rafael Aurelio Cipriano QUINTERO-Ibarbia
+(201-281270)
+
+DPOB: 16 September 1940, Camaguey, Cuba
+
+Father: Fernando QUINTERO
+
+Mother: Juana Maria IBARBIA
+
+Brother: Rafael A. QUINTERO
+
+Occupation: . Presently registered with ISR as
+working for the Department of Navy.
+
+CIA Affiliation: Deputy to ARTIME in the MRR.
+
+e. Edgar SOPO-Granda (201-283205)
+
+DPOB: 26 July 1939, Guantanamo, Cuba
+
+Mother: Josefa SOPO
+
+Wife : Alina Elona CORSA Farray
+
+Occupation: Radio Announcer and Salesman
+
+CIA Affiliation: Propaganda officer for the MRR.
+
+3. The two individuals who had access to funds belonging to this Agency; and who would have had the opportunity of diverting these funds to their personal accounts, were Manuel ARTIME and Sixto NESA. There had been allegations that Agency monies were misused and appropriate investigations were conducted but no evidence was found that this had happened.
+
+Orville Bathe
+C/WH/COG
+
+SECRET
+
+14-0000

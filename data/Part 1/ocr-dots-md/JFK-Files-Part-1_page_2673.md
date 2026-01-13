@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_2673.png
+
+Convert to Markdown(TOP SECRET)
+
+(AMERICAN EMBASSY SECTION - ca. 1953-June 1955)
+
+and KUKOLEV but said that the face of VOROBYEV was familiar,
+adding that he thought his name was VOROBYEV. When shown
+the Embassy biographic cards on SHNYRYEV and KUKOLEV, he
+identified each of them as his agents during the 1954-1955
+period in the American Department and equated them to the
+cryptonyms given previously. In the case of SHNYRYEV, when
+shown the biographic information, which listed SHNYRYEV as
+"chauffeur for the military attache," NOSENKO exclaimed:
+"Oh my God, this is my own agent." He later said it was a
+good photograph of SHNYRYEV.
+
+**NOSENKO's Targets**
+
+Asked in February 1965 to list the Army Attache personnel
+for whom he was directly responsible during 1954 and 1955,
+NOSENKO orally listed the following names: "MICKELSON,
+MEARNS, RICHARDS, FELCHLIN, BENSON, MULE, STROUD, and
+CARDELLA."
+
+Comment: In the order as given by NOSENKO, the list comprises two generations of Army Attaches in Moscow. It is neither in alphabetical order nor chronological according to date or service in Moscow. It is, however, in descending order of rank from [Colonel MICKELSON] through [Captains MULE] and [STROUD] to Chief Warrant Officer CARDELLA.
+
+MICKELSON
+
+NOSENKO correctly identified Earl L. MICKELSON as a
+colonel and the Army Attache in Moscow during 1954 and 1955.
+PANKRATOV was the case officer originally handling MICKELSON,
+and the case was turned over to NOSENKO in 1954. When asked
+about agents who might have been working against MICKELSON,
+NOSENKO said that there was one cook, a KGB operational
+contact whose name he did not recall, and MICKELSON's maid,
+whose name NOSENKO believed was NOVIKOVA. In addition to
+these two, the only other source reporting on MICKELSON was
+his chauffeur, whose name NOSENKO also did not remember.
+
+87
+
+Top Secret
+
+C061357
+
+TS No. 197124
+
+Copy 10
+
+12/18R

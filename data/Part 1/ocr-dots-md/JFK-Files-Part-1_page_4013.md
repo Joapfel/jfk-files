@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_4013.png
+
+Convert to MarkdownPANAMA, REPUBLICA DE PANAMA
+
+TELEFONO: 2-1001 (NO LIMITE)
+
+CABLE: HOLLANDS
+
+would be in at their beginning of this effort which could have major effects throughout Latin America. He would be learning and also teaching.
+
+The Bishop suggested that he could use another man as well and further suggested that four of Newton's friends from Miami might want to come and take Father Steele's course in January at San Francisco.
+
+It costs about $60 a month, including everything.
+
+The Bishop knew Manuel, having met him in Chicago at some meeting, and he has the highest record for him. He suggested that he could meet with his furthermost step-father, Col. Harry Scheibla, 6491 Allison Island Rd., Miami Beach. I called Manuel and he said Newton will see the Bishop on the morning of June 28. I told the Bishop that financing for Newton could be arranged, as agitating possibly the Fundx but making nothing definite. I suggest that if all this meets with your approval you may wish to contact Manuel and/or Newton and pin down the financial part of it. I would suggest that Newton be paid about $200 a month. That is what Oswaldo Rodriguez gets.
+
+Incidentally this Oswaldo is really first class — a good man to work for. You may want to just let things go as they are but in any case the Bishop expects Newton to be firm/financed somehow.
+
+I am off to Colombia tomorrow...
+
+All the best,
+
+J.J.

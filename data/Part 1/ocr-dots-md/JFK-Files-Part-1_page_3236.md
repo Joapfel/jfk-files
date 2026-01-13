@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_3236.png
+
+Convert to MarkdownTHIRD AGENCY DOCUMENTS
+
+201-759831 Irv· ng AMKUO
+
+FBI Unnumbered XEX Jul; 18, 1963 Newark, New Jersey
+FBI F#105-2862; B#105-100312 2/28/64 Newark, New Jersey
+FBI .. #105-2862; B#105-100312 5/25/64 Newark, New Jersey
+FBI Unnumbered Sept 10, 1965 Newark, New Jersey
+FBI Unnumbered July 24, 1969 Washington, D.C.,
+FBI Unnumbered Sept. 19, 1969 New York, N.Y.

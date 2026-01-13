@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_2619.png
+
+, chief of the secretariat, but he's close to the Minister. All papers for the Minister go through him. He's not an intelligence officer. He is meeting with the KGB now." Several KGB officers received the Order of Lenin for their part in the operation, including the London Rezident RODIN. NOSENKO learned of the agent's existence, but not of his identity, from his friend and colleague in the Second Chief Directorate, V.A. CHURANOV, who had made the recruitment while chief of a section in the British Department.
+
+**Comment:** GOLITSYN had earlier provided a lead to a KGB agent who was the source of Admiralty documents which GOLITSYN had reviewed in KGB Headquarters. On the basis of that lead, British security authorities on 11 June 1962 passed to CIA a list of twenty suspects, including VASSALL. On 17 June CIA gave the British authorities a preliminary report on NOSENKO's information, on the basis of which the twenty-man list was reduced to VASSALL and one other suspect. Full
+
+G001301
+
+TS No. 197124
+
+Copy _______

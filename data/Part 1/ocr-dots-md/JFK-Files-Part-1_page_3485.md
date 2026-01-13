@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_3485.png
+
+Convert to MarkdownAs soon as the job is finished, the results of these interrogations will be passed on to the Superior Offices for information.
+
+That the undersigned took note and suspended all production of the passes for the Naval Base which were previously received, waiting to receive the new passes offered in this report.

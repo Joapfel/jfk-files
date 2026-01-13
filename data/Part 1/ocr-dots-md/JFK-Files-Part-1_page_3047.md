@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_3047.png
+
+Convert to Markdown# PARTE 2
+
+irse de vacaciones en primeros días de mayo.
+
+271 Salio Ivan
+
+423 Telefono vecinos sin contestar.
+
+509 Portero electrico. Vecinos.
+
+502 Le migo.
+
+1605 Se levantan las porsianas. Pasos. Puertas internas. Se levanto Rosa.
+
+1930 Puerto comunalias. Entro Ivan.
+
+Conversan corto tiempo. Entre otras cosas Rosa lo procura si va al cine y si tiene frío. Para primera procura no se ocuaba 1 respuesta, para segunda, respuesta negativa. Lecan diarios. No Hablan.
+
+Rreta 3125 sin cambios.
+
+FINAL DEL BOLLO .

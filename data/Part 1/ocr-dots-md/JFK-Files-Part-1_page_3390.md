@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_3390.png
+
+Convert to MarkdownAMBORLD Meeting in May, 7-8 June 1964
+
+SUBJECT: Purchase of House
+
+1. I asked AMBIDY-1 about rumors that he has brought a house in Miami and he admitted the fact without any show of embarrassment.
+
+2. He claimed to have sunk his savings from the "Bay of Pigs" honorarium into the acquisition, i.e., $3,000, to have borrowed money from AMB WORLD. Senora Padron y Cruz had also chipped in to the tune of $1,500. I did not delve into the financial aspects of the transaction. AMBIDY-1 claims that the home where he now lives with subject has been registered in the name of Nilo Messer. He mentioned in passing that a house might come in handy if his parents should be permitted to emigrate to the United States.
+
+Henry D. Heckseber
+ML/SA/BO/MU
+
+File:
+PADRON
+AMBIDY-1 201
+
+SECRET
+
+<table><tr><td>Group 1</td></tr><tr><td>Including Ben Messner</td></tr><tr><td>Now PADRON and</td></tr><tr><td>Subject: Miami</td></tr></table>

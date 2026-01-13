@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_3298.png
+
+Convert to MarkdownSECRET
+
+Part II (cont.)
+
+19. List his close friends in Cuba, particularly those holding high positions in the Government or the Communist Party, and give their positions if you know them.
+
+I don't know.
+
+20. List, with brief background and biographic data, plus your personal assessment, any individual in Cuba who might be willing to act as a go-between to contact this person, such as a relative, a close friend, a mistress, a working associate, etc.
+
+I don't know.
+
+21. If you are not on friendly terms with this individual, list any incidents or individuals in his life or background which might be used to pressure him. (Give all pertinent details.)
+I don't know any such incidents.
+
+a. Has he ever been involved in an assassination or assassination attempt?
+
+Not to my knowledge.
+
+b. Has he ever committed any act of violence such as murder?
+
+Not to my knowledge.
+
+c. Has he ever been involved in any embassies, misuse of public or private funds, etc.
+
+Not to my knowledge.
+
+d. Does he have a mistRESS or mistresseS? Can you identify?
+
+Not to my knowledge.
+
+-3-
+SECRET

@@ -1,0 +1,60 @@
+# JFK-Files-Part-1_page_3102.png
+
+Convert to Markdown14-0000
+
+OUTGOING MESSAGE
+
+SIGNAL CENTER USE ONLY
+
+<table><tr><td>0</td><td>1</td><td></td><td></td><td></td><td></td><td></td><td>.</td><td>.</td><td>.</td></tr><tr><td>2</td><td></td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td></tr><tr><td>3</td><td></td><td></td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td></tr><tr><td>4</td><td></td><td></td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td></tr><tr><td>5</td><td></td><td></td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td></tr><tr><td>6</td><td></td><td></td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td></tr><tr><td>7</td><td></td><td></td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td></tr></table>
+
+OMF
+
+CLASSIFICATION
+
+SECRET
+
+MESSAGE HANDLING INDICATOR
+
+CONF:
+
+DATE-TIME GROUP
+
+INFO: FILE
+
+CIT
+
+MESSAGE REFERENCE NUMBER
+
+0 NO DATA
+0 NO FILES
+0 RETURN TO PER
+
+IDENTIFIED ALFERYEV IN JUN 65 AS HAVING WORKED AT KGB HAS DURING 52-53. THERE WAS ALSO SOME SPECULATION THAT HE MIGHT HAVE BEEN THE KGB RESIDENT WHILE IN BUENOS AIRES. ALFERYEV WAS MENTIONED IN APPENDIX D OF JOHN BARRON'S BOOK, "THE KGB". ALFERYEV IS KNOWN KGB.Y
+
+4. FYI: WHILE IN BUENOS AIRES, ALFERYEV WAS THE TARGET OF JOINT AUDIO OPERATION FROM AUG 68 TO SEP 69 AND WAS SUBJECTED TO PERIODIC SURVEILLANCE. THIS IN CONJUNCTION WITH THE FACT THAT HE WAS IN DIRECT CONTACT WITH STATION OFFICERS AND THAT HE AND HIS WIFE EXPERIENCED MARITAL DIFFICULTIES MADE HIM A PRIORITY TARGET.
+
+END FYI.Y
+
+5. FYI: PER PDSTORAGE (DOI: L4). ALFERYEV IS AN OFFICER OF THE FIFTH DEPARTMENT (LATIN AMERICAN), FIRST CHIEF DIRECTORATE, KGB. WHO WAS ASSIGNED TO THE RESIDENTURA IN MEXICO CITY IN 61. SOURCE HAD NO INFORMATION ON SUBJECT'S SPECIFIC DUTIES IN MEXICO. ALFERYEV GRADUATED FROM THE INSTITUTE OF FOREIGN LANGUAGES CIRCA 67. HE ENTERED THE KGB INTELLIGENCE SCHOOL IN 58 AND GRADUATED IN 60. SOURCE DOES NOT KNOW SUBJECT'S KGB ASSIGNMENT FOR PERIOD FROM
+
+DATE:
+GRG:
+UNIT:
+EXT:
+
+EQUIPMENT OFFICE
+
+CLASSIFIED
+
+SECRET
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+CL by: 0462963
+
+IMPORT
+
+IMPOET
+
+42401a

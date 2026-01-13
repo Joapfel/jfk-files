@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_3481.png
+
+Convert to MarkdownMiami, fla. 25 March 64
+
+**From:** Incencio ALONSO
+**To:** AMYUM-19
+**Re:** Report #9
+**SUBJECT:** ACTIVITIES DEVELOPED BY OUR AGENT MACIN SINCE LAST REPORT DATED MARCH 18 64.
+
+Report of MR. MARIO CASAS WHO WORKS WITH SP-1 IN THE RAILWAY SECTOR OF ORIENTE.
+
+He informs that in Guantánamo, Oriente the railway sector has organized a cell. It is composed of: Pablo Eduardo, Coordinator; Jose Sanches, Vice (coordinator); Luis, Organization and Romualdo, Military Coordinator, promising to advise later on who the Treasurer is.
+
+He also advises that railway equipment continues in the same state; breakages, accidents and stoppages at the Sugar Central for lack of sugar cane and transport equipment. They continue to move equipment and troops at night in large scale. The opinion is that this movement is merely a bluff.
+
+REPORT OF BERNARDO KIEVARES, OF HAVANA, KNOWN BY BENNY.
+
+Advises he is anxious to have news and instructions from us; states that although true that he has made a pact with us, he will not be able to continue under present conditions. Initiates it is necessary he be given plans of concrete jobs and instructions he can give the men who are anxious to fight over there; that as long as this does not happen, he feels he is only on the border of activities and while we may be satisfied, he would not like to land anyone (in Cuba) specially under the present circumstances where repression throughout the islandis tremendous.
+
+He insists we be sincere with him and give him replies to these various points: What has the National Direction in Exile of the MRR resolved concerning the "MIR" and its integrated organizations. "What plans will they carry out (his group) in the internal fight for the liberation of Cuba?" Secondly: "We urgently need a more effective communication; hoping that you already have the necessary means.- On our part, we are already in contact and making arrangements with embassies for the correspondence with Miami.- We'll advise you the results." - Thirdly: "It is necessary that you urgently answer me if we can make contact with the American boats stationed in front of Havana, in order to exfil "DIABLO" and other compatriots who are in such danger". We have the necessary ship to transport them." The boat will give 3 flashes at one minute intervals each with a lapse of 10 to 15 minutes." "I ask you to try and do what you can to help these brothers in misfortune," Fourth - "On the 13th (March) one of our men," Michel Adam," left for Lebanon via Mexico with correspondence for the address in Miami", - Fifth - Dr. Gonsalves' contact has not proved as effective as we had hoped; we have not only twice and nothing else has happened,"

@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_3398.png
+
+Convert to Markdownthe situation on the island and treat with Castro as if they believed that all hope of liberation had expired. Can you tell us something about the internal struggle against communism?
+
+A. - To think that all hope of liberation has expired in Cuba is to show a complete lack of knowledge of the condition and character of the Cuban people. The history of Cuba is a history of repeated martyrdom in search of real liberty.
+
+I can say very little about the internal struggle that does not affect its security. But let it be sufficient to say that today there are guerrillas in five of the six provinces of Cuba; that the tyrant knows about them and that he has not been able to wipe them out because of the peasants' support for them; that in the cities the sentiment of the workers has begun to be mobilized toward passive resistance, and that within the very ranks of the militia Cuban patriots are forming independent cells.
+
+Q. - From the days of the Bay of Pigs you seemed to trust blindly in North American material backing for your struggle. But lately we see you shifting your interest toward Latin American countries. Why?
+
+A. - Actually my first glance was toward Latin America. I took residence in Mexico where I published my book Traición (Treasonery) and I traveled around Latin America carrying the shout of alarm against communism. Afterward I went to North America in constant search of resources for the war, and although I have

@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_2680.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - ca. 1953-June 1955)
+
+Comment: STROUD, with BENSON and MULE, was the victim of the Soviets' seizure of technical equipment in Stalingrad and was declared persona non grata on 7 May 1955. On 31 January 1955 he travelled to Kharkov from Moscow with First Secretary Frank SISCOE to interview an American defector living there. According to NOSENKO, SISCOE was suspected by the KGB of being a CIA officer. The visit of ex-FBI agent SISCOE and a military officer to an American defector is judged to be an event in which the KGB would have taken interest and one which the Attache's KGB case officer would find memorable.
+
+NOSENKO correctly identified Walter MULE as an Assistant Army Attaché and as such said that he was the case officer responsible for him. NOSENKO described an operational approach to MULE in which he himself participated: In 1953 or 1954 there had been several defection approaches to Soviets in the United States with the promise of money and a new life. After the KGB Second Chief Directorate decided to try the same measures, MULE was selected. He was only a captain despite his lengthy service in the Army and information from concealed microphones indicated that he was often disparaged by the other Attaches. When MULE received letters from home, he threw them in the trash, and the maids turned these over to the KGB. From this mail it was understood that MULE did not have a house in the United States but lived with his family in a trailer. The father of two children, MULE had sent his wife from Moscow to Germany for an abortion, as a third child would have imposed too great an economic burden. On the basis of all this the KGB appointed N.M. BORODIN, a recruiter of the American Department, to attempt to defect MULE. Together with BORODIN, KOVSHUK, and L.A. LEBEDEV (from the Second Chief Directorate's special technical section), NOSENKO travelled to Leningrad for the operation. LEBEDEV installed a clock containing a concealed camera as well as microphones in MULE'S hotel room,
+
+06
+06
+06
+06
+06
+06
+06
+06
+06
+06
+
+001364
+
+Top Secret
+
+TS No. 197124
+
+Copy _________

@@ -1,0 +1,50 @@
+# JFK-Files-Part-1_page_3456.png
+
+Convert to MarkdownSECRET
+
+11 May 1964
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Telephone Conversation between Mike GEIDEL and Martin Ferrer
+
+DATE : 8 May 1964 at 1030 hours
+
+1. The undersigned reminded Mike GEIDEL that it is essential that AMBIDDY-1 meet with "RODEMEYER" when the former returns to Miami.
+
+2. Mike stated that YERGO (MRR Dominican Republic delegate) had received a telephone call from President Reid or some other high official in the Dominican Republic which stated that President Reid would like to meet with AMBIDDY-1 on 12 May in the Dominican Republic. YERGO was also informed that they could have anything they wanted in the Dominican Republic. YERGO was also informed that they could have anything they wanted in the Dominican Republic.
+
+3. Martin next brought up the subject of the MID. It was GEIDEL's impression that this organization might be nothing more than a provocation. This opinion is also shared by JMWAVE. Mike commented that AMYUM-19 has met with members of this organization who for the most part are unwilling to return to Cuba. A-19 would like to test their mettle before negotiating with them any further. A-19 intends to give this organization some sabotage materials and see what happens.
+
+File:
+Dominican Republic
+AMBIDDY-1 - 201 ✓
+Other Exile
+Convicts
+
+Raul J. Hernandez
+WH/SA/SO/HH
+
+Above conversation conducted
+in prearranged frequently
+changed privacy code
+
+SECRET
+
+<table>
+  <tr>
+    <td>CONFIDENTIAL</td>
+  </tr>
+  <tr>
+    <td>LIMITED DISTRIBUTION</td>
+  </tr>
+  <tr>
+    <td>NOTICE: DO NOT DELIVER OR USE</td>
+  </tr>
+  <tr>
+    <td>THIS DOCUMENT IS</td>
+  </tr>
+  <tr>
+    <td>FORFEIT TO US</td>
+  </tr>
+</table>

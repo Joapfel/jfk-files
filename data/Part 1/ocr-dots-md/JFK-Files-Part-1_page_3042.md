@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_3042.png
+
+Convert to MarkdownI'll tell ((you)) that the nature of women is to exaggerate at times. And I would say not sometimes, but very often, very often. And why do you... don't you think that you (3G), that he is noting badly toward you? Let him make mistakes...
+
+C. continues soothing and lecturing B, and tries to convince her that her husband isn't so bad. A remains silent.
+
+C. changes the subject and suggests that Ivan finish his drink. He talks about food and smoke. C and A drink up and leave the room. The radio is on. B is walking around the room, apparently cleaning up. A bit later, she turns off the radio.
+
+End of Recording
+
+((Transcribers note: Contrary to the Log listing, there is no further recorded conversation, possibly due to faulty recording.))
+
+SECRET,

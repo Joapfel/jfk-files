@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_2912.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - January 1962-January 1964)
+
+agreed to open a number of new cities and tourist itineraries
+in this connection. Semichastnyy had decided that it was
+time to call a conference to discuss new "tactics and stra-
+tegies" for handling the increased number of tourists
+expected. Since NOSENKO had been placed in charge of the
+entire conference, he was directed to leave at once to
+prepare a basic report on the KGB handling of tourists; the
+report would be read to the conference either by himself or
+by someone from the leadership of the KGB or the Second Chief
+Directorate. NOSENKO explained that he was the only one
+who could do this job as Lt. Col. A.G. KOVALENKO, the KGB
+Headquarters Department senior officer, was a relatively new
+man in this line of operations, having been there only four
+or five years, perhaps less. NOSENKO also told CIA that "by
+great coincidence" he had learned, just before the cable
+arrived, he was being moved to the Soviet villa on the
+morning of 5 February. He had arranged for a Soviet chauf-
+feur to bring a car around at 0930 hours the next morning
+for the move. His absence would be noted at that time, and
+therefore "the main thing is to cross the Swiss border
+before morning". NOSENKO felt, however, that there would
+be considerable confusion among the Soviets in Geneva for
+a time following his disappearance, and that there would be
+no real concern until the evening. To foster Soviet
+uncertainty, he had left his clothing lying around his hotel
+room and had brought no personal effects to the CIA safe-
+house. NOSENKO estimated the first Soviet queries to Swiss
+authorities would probably be made late on 5 February or
+early on the 6th.
+
+NOSENKO was driven to Frankfurt the night of 4 February and remained in a safehouse there until 11 February, when press publicity about the defection and Soviet demands for an immediate interview with NOSENKO dictated that he be brought to Washington as soon as possible. He arrived in the United States on the evening of 12 February 1964.
+
+G001586
+
+TS No. 197124
+
+Copy 10
+
+Top Secret

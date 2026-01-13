@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_2370.png
+
+Convert to Markdownname). He identified "ZHARI" (phonetic) as an American code clerk who defected to the USSR in 1961. An internal assumption was made based on the original lead information from NOSENKO that "ZHARI" was Victor Norris HAMILTON, aka Fouzi Mitri HINDALY, a former NSA employee who defected to the USSR in 1962, and the information from NOSENKO was never disseminated or investigated.
+
+Prior to the surfacing of John Discoe SMITH by the Soviets in the fall of 1967, <u>information concerning KGB knowledge of American code clerks was being investigated; and John Discoe SMITH was a leading suspect.</u> After the surfacing of SMITH by the Soviets, it became apparent that SMITH, rather than HAMILTON, was identical to "ZHARI." Investigation disclosed that no definite information could be established in regard to the actual whereabouts of SMITH after circa mid-1960. It cannot be positively stated that appropriate investigation in 1964 of the "ZHARI" lead would have led to the identification of John Discoe SMITH as "ZHARI." However, such identification would have been of considerable interest to the Department of State and CIA, and could very well have permitted certain action which would have at least lessened the propaganda effect of the surprise announcement by the Soviets in the fall of 1967.
+
+NOSENKO, in June 1962, furnished information from which William VASSALL could be quickly identified. GOLITSYN, in late 1960 - early 1961, had furnished information concerning a Soviet penetration of the British Government on the basis of which the British
+
+SECRET

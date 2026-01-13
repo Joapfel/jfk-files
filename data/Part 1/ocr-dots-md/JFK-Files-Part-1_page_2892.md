@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_2892.png
+
+Convert to Markdown# Top Secret
+
+(SEVENTH DEPARTMENT - January 1962-January 1964)
+
+NOSENKO did not know who eventually granted OSWALD permission to reside temporarily in the USSR or who approved issuance of his temporary residence permit. The KGB gave instructions that he not be allowed to live in the Moscow area. Either the Soviet Red Cross or the Ministry of Foreign Affairs may have made this decision to assign OSWALD to Minsk. The Seventh Department updated his file, and it was sent, along with a cover letter prepared by KRUPNOV, to the local KGB organization in Minsk. KRUPNOV's letter summarized the case and specifically instructed local authorities there to take no action concerning OSWALD except to observe his activities "passively" to make sure that he was not an American Intelligence agent on temporary "sleeper" status. NOSENKO read this letter, and it was signed by DUBAS. On the basis of the instructions contained in the letter, NOSENKO said, no active steps could be taken in Minsk without KGB Headquarters approval. It was NOSENKO's opinion that the only coverage of OSWALD during his stay in Minsk consisted of periodic checks at his place of employment, questioning of his neighbors and associates, and coverage of his mail. After OSWALD's threatened second suicide attempt, the KGB "washed its hands of him" and that even though there was considered to be some possibility that he was a "sleeper agent," KGB Headquarters interest in him while he was in Minsk was "practically nil."
+
+## Request to Return to the USSR
+
+The KGB Second Chief Directorate was not concerned with OSWALD's return to the United States in June 1962, by which time NOSENKO was Deputy Chief of the Seventh Department. No further word on him was received at KGB Headquarters until he appeared at the Soviet Embassy in Mexico City in September 1963 and requested a visa to return to the Soviet Union. The Mexico Legal Residency reported his visit to KGB Headquarters by cable, requesting information. The KGB First Chief Directorate had no record on OSWALD. M.I. TURALIN, Deputy Chief of the First Chief Directorate's Service Number Two (Counter-intelligence Abroad) called the Seventh Department to see if the latter element had any information on OSWALD. The Chief of the Sixth Section of the Seventh Department, V.K. ALEKSEYEV, received the call and reported the inquiry to Seventh Department Chief CHELNOKOV or to KOVALENKO.
+
+0001576 TS No. 197124
+Copy 10
+
+Top Secret
+
+305

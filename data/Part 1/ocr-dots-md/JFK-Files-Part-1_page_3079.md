@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_3079.png
+
+Convert to Markdown# SUMMARY OF ANY YARD TRANSCRIPTS - OCTOBER 1968
+
+(HADA-2008L, 27 November 1968)
+
+Subject appears to be quite hen-pecked. His wife constantly mimics him, tells him what to do and how to do it, finds fault with him for no apparent reason. She is over-bearing -- doesn't give Subject a chance to answer her rhetorical questions before blasting him with accusations of never listening to her good advice.
+
+On 30 October 1968 Subject mentioned that he would have to be going to Uruguay. There is no verification of his having made the trip.
+
+Entire transcripts and covering dispatch filed in 74-120-221.

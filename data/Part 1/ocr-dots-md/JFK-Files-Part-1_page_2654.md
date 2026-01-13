@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_2654.png
+
+Convert to Markdown# Top Secret
+
+## (KGB ENTRY)
+
+NOSENKO states that in March 1953 he was already twenty-five and a half years old, a member of only the Komsomol, and that he had not been recommended for Party membership. He further claimed that on entry to the KGB he became secretary of the Second Chief Directorate Komsomol organization.
+
+**Comment:** Eligibility for Party membership, if not membership itself, is a requisite for KGB appointment. By Komsomol statutes of that time, twenty-five was at that time the maximum age. Thus, at the time of NOSENKO's claimed KGB appointment, he was within six months of being dropped by the Komsomol as well as still unqualified for Party membership. He could not have been secretary of the Second Chief Directorate Komsomol organization, as discussed on p. 338.
+
+NOSENKO has referred frequently to having contracted tuberculosis for which he was periodically hospitalized.
+
+**Comment:** According to KGB defectors familiar with the standards in force at the time, no candidate was accepted who had ever had tuberculosis.
+
+### KGB Processing for Entry
+
+NOSENKO has stated (in chronological order) that at his initial interview with a KGB personnel, it was not necessary for him to complete any forms or questionnaires since the KGB had his Naval RU file; that he was told that the KGB would request the Naval RU file and meanwhile he was given three copies of a four to six-page biographic form to complete at home; and (at his last interrogation in 1966) that he
+
+TS No. 197124
+Copy ____
+
+G001338
+
+Top Secret

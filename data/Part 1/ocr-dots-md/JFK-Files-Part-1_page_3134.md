@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_3134.png
+
+Convert to Markdown14-00000
+
+SECRET
+
+CS COPY
+
+SECRET
+
+8 Feb 71
+201-236701
+
+<table><tr><td>5</td></tr><tr><td>6</td></tr><tr><td>7</td></tr><tr><td>8</td></tr></table>
+
+<table><tr><td>1</td></tr><tr><td>2</td></tr><tr><td>3</td></tr><tr><td>4</td></tr></table>
+
+SECRET
+
+CABLE SECRETARIAT DISSEMINATION
+
+CLASSIFIED MESSAGE
+
+TOTAL COPIES
+
+ROUTING AND/OR INITIALS-SEE
+
+PERSON UNIT NOTIFIED
+
+ADVANCE COPY ☐ ISSUED ☐ SLOTTED
+
+BY: ____________________ AT: ____
+DISTRIBUTION BY: Y PER:
+
+ACTION UNIT
+
+FILE, VR
+
+ACTION NO. 800 FI FBAN, wh8, CE, CT/OP, cit/cd
+
+SECRET 081810Z FEB 71 CITE BUENOS AIRES 7271 (SHROYER ACTING)
+
+DIRECTOR
+
+REDTOP AEKICK BIOGENESIS
+
+REF: BUENOS AIRES 7069 (J 246580)
+
+D.FEB. 26 1321 d,
+
+1. BIBAFFLES REPORT IVAN GAVRILOVICH ALFERYEV RETURNED BUENOS AIRES 5 FEBRUARY VIA SWISSAIR 200 FROM DAKAR.
+
+STATION HAS NO INFO ON PURPOSE OF TDY BUT BELIEVE IT NOT UNLIKELY HE SUMMONED FOR DISCUSSIONS RE AEPARADISE 64 CASE.
+
+2. FILE: 281-236701. GP-1.
+
+SECRET
+
+<table><tbody><tr><td>M/E/C</td></tr><tr><td>J.J.</td></tr><tr><td>P.P.</td></tr><tr><td>F.I.</td></tr></tbody></table>

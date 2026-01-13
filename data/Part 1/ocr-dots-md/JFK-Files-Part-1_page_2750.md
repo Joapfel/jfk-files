@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_2750.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+Comment: Two of GOLITSYN's leads may refer to [STORSBERG] or [GARLAND] (see below). The other leads, more than one of which may refer to the same individual, have not resulted in an identification of any code clerk target of the KGB.
+
+Operations Against Military Code Clerks
+
+Comment: According to official U.S. Government records, Service Attaches of the Embassy in Moscow as of 1960 shared a single cryptographic center and a single military code clerk (except when two code clerks overlapped during periods of turnover). The military code clerk was responsible for enciphering and deciphering the traffic of all three military services. In practice, at least one other member of the Service Attaches' offices in Moscow held a cryptographic clearance and was trained to replace the regular military code clerk when the latter was absent.
+
+[James STORSBERG] was the only military code clerk assigned to the Moscow Embassy from February 1960 to September 1961, when his successor, [Matthew ZUJUS], arrived. [STORSBERG] himself arrived in Moscow in January 1960 and departed in November 1961.
+
+During the period of [STORSBERG]'s tour in Moscow, back-up cryptographic duties were performed by the [Military Communications Officer, CWO-2 HURLEY]. [HURLEY] performed these duties on a number of occasions, including the night of the KGB approach to [STORSBERG], and he could be loosely termed a code clerk. (Although NOSENKO has distinguished between [STORSBERG]'s function as "military code clerk" and [HURLEY]'s duties as "military code machine mechanic", he considered both to be within the general category
+
+G001434
+
+TS No. 197124
+Copy _________

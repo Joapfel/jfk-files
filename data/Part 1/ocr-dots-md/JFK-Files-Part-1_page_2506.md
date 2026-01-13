@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_2506.png
+
+Convert to MarkdownA few comments are appropriate concerning remarks in the previous summary on pages 199 - 204. Comments were made there concerning five code clerks, Maurice ZWANG, John TAYLOR, Frank DAY, Robert DWELLY and Joseph GAFFEY, and although it is not specifically stated, the suggestion is apparent that the reporting of NOSENKO on these cases was considered evidence that NOSENKO was not supervisor of all KGB operations against code clerks. The following observations may assist in placing these cases in their proper perspective:
+
+(a) Maurice ZWANG - ZWANG was identified by NOSENKO as a code clerk who was actively "worked on" during 1960 - 1961. The previous summary suggested that the knowledge of NOSENKO regarding KGB activity against ZWANG was inadequate. First, reporting of NOSENKO on ZWANG contained no reference to the relationship of ZWANG with his maid, whom NOSENKO in another case has identified as a KGB agent. Although (ZWANG) denied sexual relations with his maid, he did admit to some intimacies with her in her apartment.
+
+During polygraph examination (ZWANG) reacted when he
+
+SECRET
+
+G0012C1

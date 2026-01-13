@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_3164.png
+
+Convert to MarkdownSECRET
+
+29 June 70
+
+1. BIOGENESIS REPORTS FOLLOWING TRAVEL.
+
+A. IVAN GAVRILOVICH ALFERYEV AND WIFE ROZA ALEKSEYEVNA DEPARTED FOR USSR, PROBABLY ON HOME LEAVE, 27 JUNE VIA AIR FRANCE 982 TO PARIS.
+
+B. NIKOLAY ALEXANDERovich NAUMOV DEPARTED PCS WITH WIFE VALENTINA IVANOVNA AND DAUGHTERS MARINA AND TATYANA 25 JUNE VIA KLM 792 TO AMSTERDAM.
+
+2. FILE: 291-236781 AND 291-817222. GP-1.
+
+SECRET
+
+CS COPY
+SECRET
+
+<table><tr><td>MICRO FILMED</td></tr><tr><td>JUL 30 1970</td></tr><tr><td>DOC. MICRO. SER.</td></tr></table>
+
+<table><thead><tr><th>DATE</th></tr></thead><tbody><tr><td>APR</td></tr><tr><td>AB X0</td></tr><tr><td>P</td></tr><tr><td>T0 V</td></tr><tr><td>XU48</td></tr><tr><td>DATED</td></tr><tr><td>F1</td></tr></tbody></table>

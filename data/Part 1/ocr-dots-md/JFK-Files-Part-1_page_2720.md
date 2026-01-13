@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_2720.png
+
+Convert to Markdown# Top Secret
+
+(SEVENTH DEPARTMENT - June 1955-January 1960)
+
+~~[MERTENS]~~ 06 when he visited Lvov and Minsk before leaving the USSR. NOSENKO said that he had used the name "George" with ~~[MERTENS],~~ but he could not recall what last name he had given him.
+
+When he related the case in 1962, NOSENKO could not recall the American's name. In 1964 he stated the name was [MARTIN], or [MARTINS].
+
+**Comment:** In a signed statement given to the FBI on 5 August 1964, [MERTENS], an American professor, generally confirmed NOSENKO's account. He names his recruiter as one "George PETERSON" and stated that NOSENKO'S photograph might be that of a person whom he had met while visiting the Soviet Union in 1959. [MERTENS] 06 reported one KGB attempt to recontact him after he returned to the United States. In September 1959, according to arrangements made at the time of his recruitment, he received a letter signed "George PETERSON" telling him to be at a rendezvous point in New York. By the time he received the letter, however, the date of the meeting had already passed and so he ignored it. [MERTENS] claimed that there were no further attempts by the Soviets to contact him.
+
+## Compromise of BARRETT (1959)
+
+### NOSENKO's Information
+
+~~[Robert BARRETT], a guide at the U.S. Exhibition in Moscow]~~ in 1959, had become friendly with the homosexual agents VOLKOV and YEFREMOV whom he met at the [fairground]. Although ~~[BARRETT]~~ was not an active homosexual, VOLKOV succeeded after a long period of development in involving him in homosexual acts, which were photographed by KGB personnel from an adjoining hotel room. As case officer for VOLKOV and YEFREMOV,
+
+0001404
+
+TS No. 197124
+
+Copy ______
+
+Top Secret
+
+12/84

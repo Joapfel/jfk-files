@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_2787.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+in SKVORTSOV's company the night SKVORTSOV lured [STORSBERG] 06 to the hotel where the KGB tried to recruit him.
+
+Operation Against MORONE: Summary and Conclusion
+
+NOSENKO relates but one aspect of the [MORONE] case, the use of the Polish UB female agent. He is apparently unaware of information known to KGB agents (and hence to the KGB), such as [MORONE]'s sexual involvements with IVANOVA's friends and at SARWAT EL SHAZLY's apartment, his illicit currency dealings with CECCHI, and his relationship with UMANETS. He errs in relating to [MORONE] the East German female agent sent to America House: the incident occured, but later, when [MORONE] was no longer in Moscow nor was NOSENKO himself still in the Embassy Section. (See p. 183.) The KGB did not lack a sufficient basis for attempting to recruit [MORONE]: if it refrained from the attempt, it was for other reasons. KGB inaction did not relate to Khrushchev's concern for Soviet-United States relations; this was the period between the U-2 incident (May 1960) and the Berlin crisis (August 1961).
+
+Even with respect to the Polish UB agent, there is persuasive evidence that neither NOSENKO nor KOSOLAPOV played the roles NOSENKO described: NOSENKO was travelling to Cuba and KOSOLAPOV was in Finland in connection with the GARLAND case.
+
+It is concluded from the foregoing that NOSENKO, in this instance, was not supervisor of all KGB operations against American code clerks nor would he necessarily have known of recruitments among Embassy personnel.
+
+Other KGB Targets Among State Department Code Clerks
+
+In connection with his responsibility for directing KGB operations against American code clerks in 1960-1961, NOSENKO has commented on five other State Department code clerks who served in Moscow during that period. Their brief treatment in this paper reflects not their unimportance but NOSENKO's limited comments and the lack of collateral
+
+0001471
+
+TS No. 197124
+Copy 10
+
+Top Secret
+
+199
+
+8/SR

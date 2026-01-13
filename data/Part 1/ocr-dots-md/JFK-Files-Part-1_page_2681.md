@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_2681.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - ca. 1953-June 1955)
+
+and BORODIN entered the room to await MULE's return. When MULE started to enter the room, he caught sight of BORODIN and tried to back out, but NOSENKO and KOVSHUK closed the door from the hall and prevented his escape. BORODIN reviewed for MULE the facts the KGB had accumulated about his lack of success in the Army, the disdain of his fellow Attaches, and his shortage of money and then offered him a job as a "consultant". BORODIN had either $5,000 or $10,000 in an envelope to encourage MULE to accept. According to NOSENKO, MULE refused outright, telling BORODIN to get out.
+
+Comment: MULE reported this incident. He said that he was locked in his hotel room and subjected to a recruitment attempt by an MVD agent calling himself Jack SIEGAL, who offered him $10,000 for "work" on a long-range basis. SIEGAL emphasized that MULE would not be required to procure documents from the Embassy, and according to MULE, SIEGAL was aware of facts concerning MULE's personal life that could have been obtained only from listening devices in MULE's apartment or office. SIEGAL left after about 20 minutes, having warned MULE not to report the incident. MULE identified SIEGAL/BORODIN by photograph, but was unable to identify NOSENKO.
+
+KGB lack of interest in recruitments, which NOSENKO elsewhere cited to explain his ignorance of the personal backgrounds of his Army Attache targets, is belied by the MULE case.
+
+BENSON, MULE and STROUD Expulsion from the Soviet Union
+
+After NOSENKO had been transferred to the Seventh Department in 1955, BENSON, MULE and STROUD were the targets of a KGB operation which resulted in all three men being declared persona non grata. NOSENKO gave the following account of this incident: For some time the Second Chief Directorate had been trying to acquire a small, convenient piece of
+
+CCU1365
+TS-No. 197124
+Copy 10
+
+Top Secret
+
+17/8R

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_2926.png
+
+Convert to MarkdownTop Secret
+
+(OTHER ASPECTS OF NOSENKO'S KGB CAREER)
+
+**Comment:** The Komsomol membership elects only the Komsomol Committee. The latter elects the secretary.
+
+NOSENKO cannot describe the duties of a Komsomol secretary in any specific manner. He does not know who was the secretary of the KGB Komsomol organization, nor could he describe his dealings with that official's office.
+
+**Comment:** The secretary of the Second Chief Directorate Komsomol organization is directly subordinate to the KGB Komsomol secretary and would have occasion to deal with the latter frequently.
+
+NOSENKO stated that he did not know whether there was a Komsomol Congress while he was Komsomol secretary of the Second Chief Directorate, but that the Congresses were ordinarily held yearly.
+
+**Comment:** The first Komsomol Congress since 1948 was held in March 1954, entailing considerable work by every Komsomol member and especially by the unit secretaries.
+
+As Komsomol secretary, NOSENKO collected the dues of the members of his unit: All members paid in the amount of two percent of their monthly salaries.
+
+0001610
+
+TS No. 197124
+Copy 10
+
+Top Secret

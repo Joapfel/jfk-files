@@ -1,0 +1,394 @@
+# JFK-Files-Part-1_page_3572.png
+
+Convert to MarkdownSECRET
+
+28 JUL 1969
+
+SECRET
+
+CABLE SECRETARY DISSEMINATION
+
+CLASSIFIED MESSAGE TOTAL COPIES
+
+OUTING AND/OR DETAILS - SEEN BY
+
+<table>
+  <tbody>
+    <tr>
+      <td rowspan="5">PERSONAL NOTIFIED</td>
+      <td>—</td>
+      <td></td>
+      <td rowspan="3" style="vertical-align: top;">☑ SECRET<br/>(Marked Filled In)<br/>GROUP I<br/>ECLIPSES FOR INFORMATION<br/>APPEARANCE OF<br/>MAYOR'S CANDIDACY</td>
+      <td>1</td>
+      <td>6</td>
+    </tr>
+    <tr>
+      <td>—</td>
+      <td></td>
+      <td>2</td>
+      <td>7</td>
+    </tr>
+    <tr>
+      <td>ADVANCE COPY ☐ OBJECT ☐ SLIPPED</td>
+      <td></td>
+      <td>3</td>
+      <td>8</td>
+    </tr>
+    <tr>
+      <td>BY — AT —<br/>DISTRIBUTION BY 5 PER # —</td>
+      <td></td>
+      <td>4</td>
+      <td>9</td>
+    </tr>
+    <tr>
+      <td>DUE TO FILE NO. ____________<br/>FILE ID ☐ REFT TO BRANCH ☐ DESTROY ☐ SHG.</td>
+      <td></td>
+      <td>5</td>
+      <td>10</td>
+    </tr>
+    <tr>
+      <td>ACTION WHK ☐ RID COPY<br/>INFO FILE VE CLOA.FI Z BILAN SOHL</td>
+      <td></td>
+      <td>—</td>
+      <td colspan="3"></td>
+    </tr>
+    <tr>
+      <td colspan="5">146<br/>SECRET 261548Z JUL 1969 CIE PORT AU PRINCE 6311 26 Jul 10768<br/>(RACICOT ACTING)</td>
+    </tr>
+    <tr>
+      <td colspan="5">MANAGUA INFO DIRECTOR, WH/MIAMI<br/>REF: A. MANAGUA 7069 (IN 10406)<br/>B. WH/MIAMI 4709 (IN 09904)</td>
+    </tr>
+    <tr>
+      <td colspan="5">1. APPRECIATE INFORMATION REFS. STATION ALWAYS INTERESTED IN ANY DUVALIER OR OPPONENT ARMS DEALING DUE SITUATION IN HAITI, WELCOME ANY INFORMATION AMBIDDY MAY BE ABLE TO PROVIDE.<br/>2. FILE 201-267437.</td>
+    </tr>
+    <tr>
+      <td colspan="5">SECRET</td>
+    </tr>
+  </tbody>
+</table>
+
+SECRET
+
+14-00000
+
+7-10-69 28 JUL 1969
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET

@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_2596.png
+
+Convert to MarkdownTop Secret
+
+(Summary of Case)
+
+During NOSENKO's absence from Washington, consultations
+were held with the FBI regarding steps to be taken to restrict
+his movements and activities. This Agency was concerned
+that his behavior would attract undesirable attention and
+publicity, perhaps police arrest, and that doubts about his
+bona fides, which were becoming known to a widening group
+in the U.S. Government, might be inadvertently revealed to
+NOSENKO himself. The FBI on 1 April indicated it would
+"not interpose objection" to the CIA plan to limit NOSENKO's
+freedom of movement, and the Acting Attorney General, the
+Department of State, and the White House were advised.
+
+On 4 April NOSENKO was driven to a new safehouse in a
+Washington suburb, and told that this safehouse thenceforward
+would be his regular place of residence. Since that time
+NOSENKO has had contacts with CIA personnel only, has been
+under full-time guard, and has not been permitted access to
+news media.
+
+Intensive interrogation of NOSENKO, including a polygraphic
+examination, was begun on 4 April 1964 in order to obtain
+information which he had been reluctant to divulge earlier,
+and to clarify contradictions in what he had already reported.
+The polygraph examination results were inconclusive. This
+phase of the interrogations was terminated on 24 April 1964.
+
+Despite the searching nature of the questions and the
+implicitly and explicitly expressed doubts of his veracity,
+NOSENKO asserted that he was willing to answer, or to try to
+answer all questions put to him. Because more information
+pertinent to the question of his bona fides was needed, a
+new series of interrogations was begun in mid-May 1964.
+Different interrogators were introduced and questioning was
+resumed in a neutral, non-hostile manner. The period of
+neutral questioning continued until mid-November 1964.
+
+After further consultations with the FBI, a round of hostile interrogations began on 26 January 1965. Between then and 5 March, NOSENKO was questioned for a total of about 140 hours by individual interrogators and interrogation teams, and he was directly challenged on many of his previous assertions. He admitted that certain of his earlier statements had been incorrect, and that he could not explain contradictions
+
+0001278
+
+TS No. 197124
+
+Copy ________

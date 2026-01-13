@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_2989.png
+
+Convert to Markdown# KOMAREK (See KAZAN-KOMAREK)
+
+- KOMAROV, Vladimir Mikhaylovich (alias of V.M. KOVSHUK) 33, 412
+- KONSTANTINOV, Ivan Alekseyevich 108, 109
+- KOPEYKIN, Viktor 418
+- KOROLEV, Yuriy Dmitriyevich 396, 397
+- KORNIENKO, Georgiy Markovich 366
+- "KOSHIKIN" 110
+- KOSIENKO, Yelena S. (KGB cryptonym "AGLODINA") 79
+- KOSOLAPOV, Vadim Viktorovich 155, 156, 159, 160-163, 182, 185-196, 199-204, 206, 223, 235, 254, 261, 435
+- KOSTYRYA, Vladimir Viktorovich 141
+- KOTEN, Bernard 295, 296, 326, 421
+
+- KOVALENKO, Anatoliy Grigoryevich 273, 298-300, 302, 305, 317, 323, 346
+- KOVALEV, Feliks 366
+- KOVSHUK, Vladislav Mikhaylovich 33-36, 78, 94, 95, 153-159, 161, 163, 167, 168, 172, 174-177, 186, 195, 206, 209, 217, 222, 223, 226-229, 242, 244, 245, 250, 259-261, 290, 412, 422, 428
+- KOZHEVNIKOVA, Lyudmila Yulianovna 55, 57
+- KOZLOV, Anatoliy Sergeyevich 117-120, 255, 257
+- KOZLOV, Veniamin Alekseyevich 76-79, 216, 218
+- KRAFT, Virgil 127, 129, 130
+- KROTKOV, Yury Vasilyevich 372
+- KRUPNOV, Kim Georgiyevich 273, 289, 290, 301, 303-305, 419, 432
+- "KRYMOVA" (See Marina RYTOVA)
+- KUKOLEV, Dmitriy 86, 87
+- KULEBYAKIN, Nikolay Panteleymonovich 370, 374, 379, 394, 398
+- KUNGAROVA, Tamara 107, 112, [418, 419] 430, 431
+- KURILENKO, Ivan Yakovlevich 159, 222
+- KUROCHKIN, fnu 372
+- KUSKOV, Vyacheslav Aleksandrovich 153, 311, 314, 415, 422
+- KUZMIN, Nikolay Yakovlevich 226, 228
+- KUZNETSOV, Aleksandr Ivanovich 252
+- LAINE, V.A. 402, 403
+- LANE, Sir Allen 104, 114, 122, 125, 144
+- LANGELLE, Russell 153, 205, 207, 210, 213, 214, 241, 260, 3

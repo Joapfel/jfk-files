@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_2945.png
+
+Convert to MarkdownTop Secret
+
+(SUMMARY OF CONCLUSIONS)
+
+Given the conclusion that NOSENKO is not a bona fide defector, it is necessary to attempt to determine his true motives for contacting American Intelligence and for providing the information he has given. Here, it must be recognized that the evidence, largely consisting of NOSENKO's own assertions, does not permit unequivocal conclusions. Nevertheless, the question cannot be ignored. The character of the information NOSENKO has conveyed, the fact that some of his false claims have been corroborated by Soviet officials, and the necessity to make decisions about NOSENKO's future all require that at least a provisional judgment be made.
+
+Of the reasonable explanations advanced for NOSENKO'S misrepresentations, the chief ones are that he is a swindler posing as a former KGB officer for reasons of personal advantage; that he suffers from a deranged personality or unbalanced mind; that he has greatly exaggerated his actual rank, status and access in the KGB, for simply personal reasons; or, finally, that he is a dispatched KGB agent.
+
+The first two possibilities are easily dismissed. That NOSENKO is not simply a swindler who falsely claims for personal advantage to have been a KGB officer is evident, we believe, from the confirmed details of KGB organization, personnel and operations which he has provided and which could only derive from within the KGB itself.
+
+Second, as noted in the text, extensive psychiatric and psychological examination by qualified specialists rule out the possibility that NOSENKO'S actions and testimony are the product of a deranged personality or unbalanced mind.
+
+It is somewhat more plausible that NOSENKO is a KGB officer who served in at least some of the components for some or all of the time periods that he claims, but who greatly exaggerated his positions, rank and access to information, and invented some matters outright, to achieve greater status with American Intelligence. This explanation, however, fails to accommodate the fact that several KGB officers have asserted that NOSENKO did in fact hold senior
+
+0001629
+
+TS No. 197124
+Copy 10
+
+**Top Secret**
+
+359

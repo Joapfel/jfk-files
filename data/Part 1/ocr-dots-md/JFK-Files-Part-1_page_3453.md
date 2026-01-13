@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_3453.png
+
+Convert to MarkdownSECRET
+
+AMHOLD Meeting in Washington, 19 May 1964
+
+SUBJECT: Delivery of DAINOLD's Letter
+
+1. ANJAVA-4 was handed a message, in AMBIDOT-1's code, conveying DAINOLD's congratulations upon the Pilots paid.
+
+2. The original message was read to AMJAVA-4.
+
+Henry D. Rockeffer
+WJ/BA/BO/HH
+
+File:
+
+AMBIDOT-1 201
+
+Attachment:
+Letter
+
+<table><tr><td>SECRET</td></tr></table>
+
+ORPORATE I
+IDENTIFIED AS A PRIVATE
+6 ORG. NO. NOT KNOWN
+FORMULA FOR CALCULATING

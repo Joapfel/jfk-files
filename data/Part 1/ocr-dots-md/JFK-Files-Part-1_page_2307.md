@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_2307.png
+
+Convert to MarkdownTo the best of your knowledge, was PENKOVSKY exposed to the KGB because of the mass surveillance on the British Embassy? Yes.
+
+Was there any misleading information in the notes you brought out from the Soviet Union? No.
+
+Did you intentionally exaggerate your personal association with GRIBANOV? No.
+
+Are you hiding any adverse information about your background? No.
+
+Subject's polygraph test reflected no significant responses indicative of deception regarding the relevant questions asked. No further polygraph tests were administered on this date because the examiner did not want to risk of fatigue setting in and thus possibly causing adrenaquin question.
+
+Polygraph testing was resumed on 6 August 1968. The following questions were asked on test four:
+
+Did you join the KGB in March 1953? Yes.
+
+Where you a KGB officer from 1953 to 1964? Yes.
+
+Were you a Deputy Chief of the Seventh Department? Yes.
+
+Are you only a Captain at this time? Yes.
+
+Where you an officer in the U.S. Embassy Section from March 1953 to May 1955? Yes.
+
+1958 and 1959 were you the Deputy Chief of the American-English-Canadian Section in the Seventh Department? Yes.
+
+January 1960 to December 1961 were you the Deputy to the First Section of the First Department? Yes.
+
+January to July 1962 were you the Chief of the First Section of the Seventh Department? Yes.
+
+You an officer in the First Section, First Department, SCD, at the time of the Stalingrad operation against [Benson, Mule] and [Stalin]? Yes.
+
+0001017

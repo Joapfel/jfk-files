@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_2790.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+Comment: [DAY] was in Moscow from May 1960 until October 1961. In July 1961 he travelled to the Caucasus with his friend and former overt CIA employee, Agricultural Attache BROWN. The two were under surveillance by five persons at all times on this trip. On one occasion they found "repairmen" in their hotel room upon returning unexpectedly ahead of schedule, and on another an "attractive and available Soviet female" was believed to have been planted in their train compartment.
+
+[Robert DWELLY]
+
+Reviewing an American Embassy telephone list in September 1964, NOSENKO said that he "believed" [DWELLY] was a code clerk during the 1960-1961 period. There was no approach to [DWELLY] and he knew no details of the operational plan against [DWELLY] nor the identity of any agent who might have been used against him. [DWELLY]'s case officers were KOSOLAPOV and GRYAZNOV.
+
+Under interrogation in February 1965, however, NOSENKO said that the KGB was "100 percent sure" that he was a homosexual on the basis of his "behavior when visiting a public men's room". There was a "big hunt" for [DWELLY] and on a number of evenings when [DWELLY] was known to be free from work, NOSENKO himself, GRYAZNOV, KOSOLAPOV, and NOSENKO's homosexual agents YEFREMOV and VOLKOV waited in vain in a KGB surveillance car in the hope that [DWELLY] would visit downtown Moscow and they could establish contact with him. No photographs of [DWELLY] were obtained: there was no approach and no recruitment.
+
+NOSENKO later added that "perhaps" GRYAZNOV'S homosexual agent "VOLODYA" had spoken with [DWELLY] in a public toilet in a museum or a park and it was on this basis that he concluded [DWELLY] was a homosexual.
+
+06
+
+06
+
+06
+
+06
+
+06
+
+06
+
+06
+
+TS No. 197124
+
+Copy ____
+
+001474
+
+Top Secret
+
+BRO 13/88
+
+12/88
+
+Copy _______

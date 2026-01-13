@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_3510.png
+
+Convert to MarkdownSECRET
+
+DECEASED
+
+Report of 10-7-65, 6-27, as follows (some.)
+
+"That some persons because he is a Communist, either due
+on Cuban soil, he wants there to be talk everywhere about the
+liberation of Cuba.
+
+"That some persons because him of being a socialist, others of being a communist, and others of being an opportunist. That persons who work in favor of collective interests always have detractors. So there who accuse him of being an opportunist, he says that if using some opportunity in benefit of the freedom of Cuba is being an opportunist, then he is the first opportunist.
+
+"ARTEM said that previous Cuban rulers had had their mistakes. That when the Constitution of 1940 had been written it had also had its mistakes, but as it functioned barely we don't know what those mistakes are. For that reason, until the Cuban people give themselves another Constitution our sole goal upon our arrival at Free Cuba should be to enforce the Constitution of 1940.
+
+"As spoke of the Cuban Case in the international field, in the sense
+that he does not understand the attitude of the US. or of the rest of
+the Latin American countries which are allowing their fields to be
+taken by Castro-Communist guerrillas. ARTTEM mentioned that he has not
+the slightest hope the C.A.S. will do something in benefit of Cuba.
+
+"A lady from the audience who said she was a teacher from Marujada,
+las Villas province, asked ARTTEM why help was not given to her young
+students who were fighting in las Villas province without shoes, food
+or ammunition. She also mentioned that some days ago five of her young
+boys were executed, including a minor.
+
+"When ARTTEM went down among the audience to accompany this lady
+to the microphone, she whispered a name to ARTTEM but the audience could
+not catch the name. ARTTEM replied 'You have mentioned a name who is
+not now in this room because he is helping in the liberation of Cuba.
+He is one of my greatest helps.' However, ARTTEM did not mention the
+name either.
+
+"ARTTEM then said that help is being given to the freedom fighters
+in Cuba, but that he has very few boats and the boats which go to the
+
+that he has very few boats and the boats which go to the freedom fighters
+in Cuba, but that he has very few boats and the boats which go to the freedom fighters

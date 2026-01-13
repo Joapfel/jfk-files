@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_2416.png
+
+Convert to Markdownenjoyed considerable authority and trust despite personal short-
+comings, and whose defection, 'the greatest loss ever suffered
+by Soviet Intelligence', paralyzed the work of a KGB Legal Residency,
+and justified the formulation of plans to assassinate him."
+
+"The examination has compared each element of NOSENKO'S biography relevant to his claimed KGB service with known facts and reasonable surmise. The examination reflects the test to which his accounts were put: whether his accounts are internally coherent and consistent with known fact, and whether he actually gained the information he has from occupying the KGB positions he claims to have held. In short, is he what he says he is, according to his own accounts?"
+
+"This examination had led to the following findings, arrived at independently:
+
+A. NOSENKO did not serve in the Naval RU in any of the capacities or at the places and times he claimed.
+
+B. NOSENKO did not enter the KGB in the manner or at the time he claimed.
+
+C. NOSENKO did not serve in the American Embassy Section throughout the 1953-1955 period as he claimed.
+
+001115
+
+SECRET
+
+GEOINT

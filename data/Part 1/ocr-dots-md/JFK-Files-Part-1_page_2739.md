@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_2739.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+NOSENKO therefore asked DUBAS to try to retain him. DUBAS later told NOSENKO that he had twice spoken to Second Chief Directorate Chief O. M. GRIBANOV on his behalf, but to no avail. In January 1960 the official orders transferring NOSENKO were issued.
+
+On the day NOSENKO reported to V.A. KLYPIN, Chief of the American Department, to begin his new job, he was told to report to GRIBANOV's office. NOSENKO expressed his misgivings about the change of assignment to GRIBANOV. GRIBANOV replied that DUBAS had spoken to him but that he, GRIBANOV, "had his own plans and that was all". GRIBANOV told NOSENKO that he thought NOSENKO could bring "fresh air" to the American Embassy Section's operations and that he was to pay particular attention to operations against American code clerks, the "number one target".
+
+## Predecessor as Deputy Chief
+
+Asked on 17 April 1964 whom he had relieved upon reporting for duty in the American Embassy Section, NOSENKO replied: "No one." He assumed responsibility for the Embassy security file from KOVSHUK. Various case officers earlier had been responsible for Embassy Security Officer Russell LANGELLE, including MALYugin, then KUSKOV, KOVSHUK, and KLYPIN; but LANGELE had been expelled from the Soviet Union in October 1959 and his successor, John ABIDIAN, was not to arrive until March 1960.
+
+On several occasions between January and June 1964 NOSENKO had referred to a KGB officer named Mikhail Fedorovich BAKHVALOV--but never in connection with the American Embassy Section. Thus, in January he first identified him as Colonel Mikhail BAKHVALOV, the Deputy Chief of the Fifth (Eastern Countries) Department. In February he identified a V.A. ALEKSEYEV as the alias of a Mikhail Fedorovich, last name not recalled, who was Deputy Chief of the Fifth Department. In June, in listing KGB officers who had received various awards for their service, NOSENKO included the name of Mikhail BAKHVALOV, Deputy Chief of "an unremembered department" of the Second Chief Directorate.
+
+GOG1423
+
+TS No. 197124
+Copy 10
+
+Top Secret

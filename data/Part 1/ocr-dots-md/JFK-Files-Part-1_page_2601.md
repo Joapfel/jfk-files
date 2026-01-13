@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_2601.png
+
+Convert to MarkdownTop Secret
+
+(FOUNDATIONS OF NOSENKO'S CLAIMS)
+
+Up to 1953, over the course of my entire life--at school, in the Institute, at work, at home in the family--it was always pounded into my head that Stalin was a great genius, that he was good, keen, etc., and the thought never occurred to me to question his words or his deeds because everything that he said, and everything he did, were completely axiomatic. The arrests and trials only involved traitors and it was considered and explained that the betrayer of the people was Yezhov, the head of the NKVD. Not even the shadow of doubt fell on the name of Stalin. Soon after Stalin's death in 1953 I read a certain document given me by my father. This was a secret letter of the Central Committee of the CPSU on the 'case of the doctors;' it was not addressed to all communists but only to members and candidate members of the Central Committee. I was deeply shaken by this letter which described in detail how these people, important specialists in the field of medicine, were brought to such a condition that they condemned themselves; that is, they confessed to things which had never happened, to things which they had never done. They were simply forced to give the evidence which was needed by the investigators. The secret letters on the cult of Stalin and much that I heard in the KGB about the reign of Stalin, all this left its mark and forced me to think deeply about the real truth and to look at everything more critically. I no longer had faith in all those ideas which for years had been pressed into my head.
+
+The new leaders (Khrushchev and Company) used the same methods but already diluted with the water of democracy, with playing up to the people and attempts to convince them that a new era would arise, a new and better life, and that now the Party was always going to concern itself with the welfare of the people. In fact, it was a struggle for power and the use of all means in this struggle, even micro-phones (they listened to the conversations of Beriya and his friends; later they listened to the conversations of Molotov, Malenkov, Kaganovich, and others). Khrushchev's endless blabbing about
+
+0001283
+
+TS No. 197124
+
+Copy _______

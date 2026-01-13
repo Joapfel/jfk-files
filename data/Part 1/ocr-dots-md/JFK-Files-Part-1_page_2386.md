@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_2386.png
+
+Convert to MarkdownSECRET.
+
+American female employee of the American Embassy in Moscow through a male Soviet friend, but that the attempt had failed. GOLITSYN also furnished information that the woman had left Moscow by the time he learned of the information but that the Soviets hoped she would return to Moscow so that further work could be undertaken to effect her recruitment. He did not recall the name of the secretary, but did recall that it was a long and "German sounding" name.
+
+NOSENKO has furnished information in regard to a
+recruitment attempt against Collette SCHWARZENBACH,
+who it is considered is identical to the "American secretary"
+referred to by GOLITSYN. However, (SCHWARZENBACH)
+was not a female secretary in the American Embassy, but
+had been employed as a secretary to the wife of Ambassador)
+BOHLEN during 1955 - 1956 and from 1958 - 1959 was employed
+as a correspondent by the United Press in Moscow.) The
+recruitment attempt against SCHWARZENBACH, according to
+NOSENKO, occurred in 1959 and was an operation of the First
+Section, First Department, SCD.
+
+0001088
+
+CIEFETE

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_2704.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - June 1955-January 1960)
+
+out, and the basis was prepared for the man to say: 'All right, I agree to help'... We showed him the pictures. He was embarrassed of course--he was naked. Then we prepared the basis: 'You have a noble task. You teach; you have students; the students may become future specialists on Russia or may work as diplomats, etc., but many of these students can be used by intelligence. They may be sent somewhere with special tasks. Maybe you will tell us who among the students is preparing for government service, how they are distributed, etc.'... During the first conversation everything was made completely clear... He was not at all willing to help or work for Soviet Intelligence. He was told that he must understand that in this case 'helping Soviet Intelligence' was a very broad term. I remember that I told him: 'Understand, nobody is going to ask you that you help our friends over there, or me, if I should be there, or that you do anything bad or conduct any kind of subversive activities, that you organize explosions or murder.' After the Soviet Union, he was supposed to go to Italy, to visit the [Russicum] of the [Vatican], and here KOZLOV grabbed the subject and began to ask questions about this school. He told us a bit about the [Russicum] and we asked him to write about it and he wrote down some names of the professors who teach Russian subjects..."
+
+According to NOSENKO, the discussion lasted about five hours; at its end [BURGI] signed a short statement that he agreed "to assist the organs of Soviet Intelligence". (NOSENKO first said that it was he who took this statement from [BURGI] but later he could not remember whether it was he or KOZLOV.) [BURGI] was then taken to a hotel.
+
+This was the first time NOSENKO met [BURGI]. Following the recruitment, he moved into the same hotel, a floor above [BURGI], and for the remainder of [BURGI]'s stay in Kiev became his constant companion and guide. An attempt was made "to smooth out all the dirty business that had been brought up during the recruitment talk". NOSENKO took [BURGI] to an old
+
+0001388
+
+118
+
+TS No. 197124
+
+Copy ________

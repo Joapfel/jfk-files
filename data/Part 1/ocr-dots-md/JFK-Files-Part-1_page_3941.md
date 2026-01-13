@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_3941.png
+
+Convert to Markdown14-0000
+
+Att. No. 67 to UFGA-21693
+
+UFGA - 1093/14
+
+SUBJECT: TOMAS, Israel
+
+1. Source not Subject in early 1961 when Subject was appointed Chief of Distrito #3, Havana in the Ministry of Obras Publicas where source also works. Source claims his relation with Subject was as fellow employees and they never became friends. Source heard in the Ministerio de Obras Publicas that Subject had been appointed to that post because of his old membership in the Communist Party. Source is unable to provide any information on Subject's life prior to this period. Source heard that Israel TOMAS is not the real name of the Subject, but an aka used according to Communist practice. Source last saw Subject on December 1961 at which time Source resigned his post at said Ministerio. Source is sure that Subject has to be a PURS member. Source does not know if Subject has ever traveled outside Cuba. Source does not know if Subject has any relatives outside Cuba, or if Subject has ever received any military, political, or intelligence training. Source does not know any information on Subject's private life.
+
+2. Physical Description: DPOB: circa 1910, Havana Province. Race: white. 5'11", 210 lbs. Hair: gray. Eyes: light. Shape of face: round. Physique: heavy. No visible scars.
+
+3. JEWAVE Traces: Believed to be identical with 201-31878.

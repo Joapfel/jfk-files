@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_3158.png
+
+Convert to Markdown14-00000
+
+<table><thead><tr><th colspan="2">First Name & Birth Place</th></tr></thead><tbody><tr><td>Isaac</td><td>Moshe</td></tr><tr><td>Eliot</td><td>Shalom</td></tr><tr><td>Dan</td><td>Israel</td></tr><tr><td>Sarah</td><td>Leah</td></tr><tr><td>Abraham</td><td>Abraham</td></tr><tr><td>Susan</td><td>Sara</td></tr><tr><td>Michael</td><td>David</td></tr><tr><td>Jessica</td><td>Sarah</td></tr><tr><td>George</td><td>David</td></tr><tr><td>Elizabeth</td><td>Barbara</td></tr><tr><td>Robert</td><td>James</td></tr></tbody></table>
+
+<table><caption>Second Name & Birth Date</caption><tbody><tr><td>Katz</td><td>8/16/97</td></tr><tr><td>Samuel</td><td>2/20/98</td></tr><tr><td>Michael</td><td>5/30/97</td></tr><tr><td>Born: 8/16/97</td><td>Died: 2/20/98</td></tr><tr><td>Died: 5/30/97</td><td>Married: 8/16/97/2/20/98</td></tr></tbody></table>
+
+<table><thead><tr><th>Full Name</th><th>Date of Birth</th></tr></thead><tbody><tr><td>Michael Katz</td><td>8/16/97</td></tr><tr><td>Isaac Moshe Katz</td><td>2/20/98</td></tr><tr><td>Michael Samuel Katz</td><td>5/30/97</td></tr><tr><td>David David Katz</td><td>8/16/97/2/20/98</td></tr><tr><td>Leah Leib Katz</td><td>5/30/97</td></tr><tr><td>Shalom Shalom Katz</td><td>8/16/97</td></tr><tr><td>David Israel Katz</td><td>2/20/98</td></tr><tr><td>Sarah Yona Katz</td><td>5/30/97</td></tr></tbody></table>
+
+<table><thead><tr><th>State of Residence</th><th>Date of Birth</th></tr></thead><tbody><tr><td>New York, New York</td><td>8/16/97</td></tr><tr><td>Los Angeles, California</td><td>2/20/98</td></tr><tr><td>Tampa, Florida</td><td>5/30/97</td></tr><tr><td>Anne Arundel, Maryland</td><td>8/16/97</td></tr><tr><td>Boston, Massachusetts</td><td>2/20/98</td></tr><tr><td>Seattle, Washington</td><td>5/30/97</td></tr><tr><td>Houston, Texas</td><td>8/16/97</td></tr></tbody></table>
+
+<table><thead><tr><th>Past Address</th><th>Date of Birth</th></tr></thead><tbody><tr><td>6646 12th Avenue South, Suite 100</td><td>8/16/97</td></tr><tr><td>1900 K Street, Suite 100</td><td>2/20/98</td></tr><tr><td>1020 West 32nd Street, Suite 100</td><td>5/30/97</td></tr><tr><td>1100 West Oakton Street, Suite 100</td><td>8/16/97</td></tr><tr><td>6651 N. Lake St., Suite 100</td><td>2/20/98</

@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_3639.png
+
+Convert to Markdown<table><tr><td colspan="2">TRANSMITTAL SLIP</td><td>DATE</td></tr><tr><td colspan="3">TO: LSN/ISR</td></tr><tr><td>ROOM NO.</td><td>BUILDING</td><td></td></tr><tr><td>2E 306</td><td></td><td></td></tr><tr><td colspan="3">REMARKS: please file in Artline 201 201-267437</td></tr><tr><td colspan="3">FROM:</td></tr><tr><td>ROOM NO.</td><td>BUILDING</td><td>EXTENSION</td></tr><tr><td>NEW ID</td><td>REPLACES FORM 29-8</td><td>WHICH MAY BE USED.</td></tr><tr><td>1FEB 85</td><td>241</td><td>(67)</td></tr></table>

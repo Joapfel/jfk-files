@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_2465.png
+
+Convert to MarkdownSECRET
+
+E. NOSENKO WAS NEITHER DEPUTY CHIEF OF THE AMERICAN
+EMBASSY SECTION NOR A SENIOR OFFICER OR
+SUPERVISOR IN THE SECTION DURING THE
+PERIOD 1961 - 1962 (sic)
+
+0001160
+
+SECRET
+
+<table><tr><td>GROUP 1</td></tr><tr><td>Excluded from automatic cross-border trading and</td></tr></table>

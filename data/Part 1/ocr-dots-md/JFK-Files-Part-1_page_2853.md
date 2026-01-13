@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_2853.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - January 1962-January 1964)
+
+06
+[FRIPPEL] was a weak agent: "he was afraid and gave practically nothing." NOSENKO said that although he had recruited him, "honestly speaking, [FRIPPEL] was not an agent." The KGB nevertheless hoped that [FRIPPEL] would be reassigned to Moscow at some future date. (See p.137 for details of the [FRIPPEL] case.) 06
+
+Comment: [FRIPPEL] agrees with NOSENKO that they met twice in the USSR in 1963. However, [FRIPPEL] asserts he also met NOSENKO in Odessa in February 1962, which NOSENKO flatly denies. [FRIPPEL] is known to have planned to travel to the Soviet Union at that time, and there is no apparent reason why he would make a false claim on this matter.
+
+06
+Johannes PREISFREUND
+
+The KGB considered [PREISFREUND] compromised to American Intelligence after GOLITSYN's defection (in December 1961) and thus unsuitable for further use against Americans at the Embassy in Moscow. For this reason, NOSENKO was told to take [PREISFREUND] with him when he transferred to the Seventh Department. As the agent spoke only Finnish and Russian, however, he was of no use against English-speaking tourists. NOSENKO met with [PREISFREUND] on the latter's visits to Moscow in 1962, but did not use him in any operations.
+
+06
+Comment: [PREISFREUND] asserts that he was no longer a KGB agent after the STORSBERG operation (see p.175) and that although he saw NOSENKO on his frequent return visits to Moscow, it was only because NOSENKO sought a companion for wenching and drinking.
+
+06
+6001537
+
+TS No. 197124
+
+Copy _________

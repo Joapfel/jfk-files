@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_2550.png
+
+Convert to MarkdownSECRET
+
+ANNEX
+
+The previous summary contained an Annex "A" and an Annex
+"B" covering pages 316 - 435. Limited comments concerning Annex
+"A," Statements of Soviet Officials About NOSENKO, and Annex "B,"
+Summaries of Cases Not Examined in Text, are attached. In addition,
+there is an Annex "C" to this summary which is entitled, "The
+Cherepanov Papers."
+
+Attachments:
+
+* Annex A
+
+* Annex B
+
+* Annex C
+
+0001242
+
+<table><tr><td>GROUP I<br/>Excluded from automatic<br/>changing and<br/>redeclassification</td></tr></table>
+
+SECRET
+
+0001242

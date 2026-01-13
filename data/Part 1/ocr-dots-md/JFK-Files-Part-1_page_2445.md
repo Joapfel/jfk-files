@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_2445.png
+
+Convert to Markdownto be prepared in early 1955 which necessitated a decision as to whether
+he would be fired from the KGB or transferred to some other component.
+
+The influence of his family is quite apparent in the above since
+his father was advised of his difficulties in 1954 by an official of the
+KGB and his mother interceded on his behalf in 1955 with the Chief of
+SCD. The result in 1955 was that NOSENKO was transferred to the
+Seventh Department and not fired from the KGB.
+
+The question has been raised as to how NOSENKO could remain
+in the KGB when after 1954 he was not a member of the Komsomol and
+was not eligible to become a candidate for the Communist Party. This
+is a valid question but a plausible explanation is again the fact that he was
+the son of the then Minister of Shipbuilding.
+
+NOSENKO has stated during previous and current interviews that
+following his entry into the KGB and until circa mid-1954 he was respon-
+sible for work against American correspondents in Moscow. He has not
+claimed that he had any successes and has stated that the work with news-
+paper correspondents already recruited was being handled by other officers.
+
+NOSENKO has explained that during this time he was a "new officer,"
+indicating he could hardly have been expected to act as an experienced
+officer. His knowledge of correspondents in Moscow during this period
+of time, together with his knowledge of other KGB officers and his
+
+001141
+
+SECRET

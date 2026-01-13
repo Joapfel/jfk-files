@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_3459.png
+
+Convert to MarkdownSECRET
+
+15 May 1964
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Telephone Conversation Between AMBIDDY-1 and Carl E. Jenkins
+
+DATE : 1800 hours, 12 May 1964
+
+1. AMBIDDY-1 called to report that he had just arrived in Miami and was on his way to a meeting with Al Rodriguez at the Holiday Inn.
+
+2. I told him that some of our friends had notified some activity that indicated mother and baby might be up to something tonight. AMBIDDY-1 said he didn't know anything about it but would check and let us know. I asked him to try to confirm it so we could help him if he wished us to.
+
+File:
+AMBIDDY-1 201
+Conversations
+Op ZENON VIERA II
+
+SECRET
+
+<table><tr><td>GROUP I</td></tr><tr><td>Excluded from Automatic</td></tr><tr><td>downline and</td></tr><tr><td>deletion</td></tr></table>

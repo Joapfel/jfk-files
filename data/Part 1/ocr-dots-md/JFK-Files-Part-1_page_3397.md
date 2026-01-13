@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_3397.png
+
+Convert to Markdownthey respect the dignity of man.
+
+This is not the first time we say publicly that this war of liberation of our enslaved Cuba must be carried on "no matter whom it pleases, no matter whom it displeases", since it is true that powerful nations have international obligations to carry out and it is also true that we Cubans have our inescapable duties to our enslaved country.
+
+Q. - If armed action within Cuba -- guerrilla war in the mountains and war of terror in the cities -- should, as expected produce a wave of popular uprisings both among students and workers and in the military units of the dictatorship, do you think that the democratic nations of the hemisphere would come to our help? Aren't you afraid of a repetition of what happened in Budapest?
+
+A. - Although I am convinced that at some definite moment they would come to our help, we cannot base our war on collective assistance. We must plan our strategy as a purely Cuban struggle from beginning to end.
+
+Many Latin American nations have already helped us in accordance with their ability and thanks to them we can do what we are doing.
+
+As for the fear of a repetition of what happened in Budapest taking place in Cuba, we cannot forget that Cuba has no frontier with Russia.
+
+Q. - Some foreign analysts and some governments have studied

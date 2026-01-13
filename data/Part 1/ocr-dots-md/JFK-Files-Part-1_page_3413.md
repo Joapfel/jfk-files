@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_3413.png
+
+Convert to MarkdownMANUEL ARTIME EN LA TRIBUNA DE BOHEMIA
+
+LA TROPA QUE DERROCARA A CASTRO
+YA ESTA EN CUBA
+
+Es el pueblo que lo aplaudió cuando veía en él a un héroe de nuestras libertades.
+
+Preguntas de AGUSTIN TAMARGO Letras de Guapo
+
+P.—Su grupo ha iniciado en los últimos días una nueva ofensiva contra el régimen castrista, al unirlo con la que desarrollan otras entidades revolucionarias. ¿Considera Ud. que la victoria será pronta?
+
+R.—Las guerras se sabe cómo emplazan pero nunca como terminan.
+No gustaría decir que será breve, pero si deber como dirigente es orientar al pueblo de Cuba y al exito cubano hacia el tipo de guerra que nos esperan: una guerra dura y larga, pero que ganaremos al todos los cubanos colaboran en laمعa de su fuerza.
+
+Puede haber factores imputables, "sorpresas", que comprometen la calida del Tirano; pero aún debemos desechar en soluciones "militagrosas" de invariances que no existen ni en organizaciones que nos acquiera las casetas del fuego.
+
+P.—¿Contempla Ud. la posibilidad de una unión eventual de sus hombres y recursos con los de la Junta Revolucionaria Cubana, los del grupo Alpha 66-Il Frente-MRP, o cualquier otro que entre luchando actualmente dentro de Cuba?
+
+R.—Las frontonas de nuestro Movimiento jamás han estado cerradas para nadie que tenga el derecho de combatir por Cuba, excepto para los movimientos totitutarios, sean de loqueros o de derecha.
+
+Lo que el es conveniente actuar es que no creas en uniones polítiqueras del exilio. Creemos seriamente en la unidad del martirio, del sacrificio, del combate. Nosotras desdenmos el mayor éxito a las organizaciones revolucionarias hermanas, que jama's recibirán ataque(s) de parte nuestra puse a nuestro onlyóma esemigo (el Comunismo).
+
+P.—A Ud. personalmente y al M.R.R. en general se las ha explicado siempre como "favoritas" de clario sector o agonía:
+
+ciwas gubernamentales norteamericanas ¿Es eso cierto?
+R.-Yo quisiera que los que hablan de este favoritismo me respondieran:
+Consideran favoritismo el episodio de BAHIA DE COCHINOS?
+Consideran favoritismo los dos años que me pasó en la cárcel esperando el paredón de fusilamiento?
+Consideran favoritismo el estдо de abandono en que quedar el M.R.R. clandestino en Cuba después de Playa Girón?
+Consideran favoritismo el que a mi regreso de la cárcel taviera que comer con el Consenso Revolucionario porque se había convertido en un instrumento para no llevar la guerra a Cuba?
+Consideran favoritismo el que hayamos tenido que abandonar el territorio norteamericano para poder seguir luchando contra Castro?
+Consideran favoritismo el que tengamos que realizar una guerra larga por no recibir ayuda de quienes podían hacerla breve?
+Pero no me extrañan unas campañas de "favoritismos". Yo sé que el Comunismo internacional no puede reconocer publicamente que está viendo derrotado por el pequeño pueblo cubano que no recibe más ayuda que la de las Hermanas de Latinoamérica, la de El Far y el indefatigable dosdo de ser Libre,
+P.—Ud. había hoy de provocar levantamientos en las fuerzas internas del régimen castrista y parque continuar en ello como la major vía para liberar a la lala del dominio soviético y comuniata. A qué atribuye el no haber assumido hace 3 años esta peonión, que era eniones tan correcta como hoy?
+R.—Hace 8 años assumeamos la misma postura que hey hablamos assumeda. Y conveniente recordar que el M.R.R. fue la primera organización revolucionaria
+
+Cuba sure libre, gisela a quien la gato y piña a quien la panz
+nara que así contra el ti-
+rano Castro para legrar el des
+fuegualmente por relación in-
+tenso, cuando morimos ya cisa-
+ban convenidas de que Fidel
+era comuniata pero decían "que
+ésta no era el momento de do-
+cimento al puente".

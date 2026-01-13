@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_3833.png
+
+Convert to Markdown14-0000
+
+CIA INTERNAL USE ONLY
+
+INTELLIGENCE INFORMATION CABLE
+
+DATE 18 MARCH 1967
+IN 24609
+PAGE 1 OF 3 PAGES
+
+The following intelligence information, transmitted from a CIA Field Station, requires review within the Confidential Services before being released outside the Agency. Pending results of this review, a copy is being provided for your advance information.
+
+Distribution for BACKGROUND USE ONLY to SDQ 2, D/CNE
+
+<table>
+   <tr>
+    <td>USDT</td>
+   </tr>
+   <tr>
+    <td>Distributed from Washington</td>
+   </tr>
+   <tr>
+    <td>CONFIDENTIAL</td>
+   </tr>
+  </table>
+
+**COUNTRY:** HAITI/CUBA
+
+**DOI:** EARLY MARCH 1967
+
+**SUBJECT:** FORMATION OF CUBAN-HAITIAN EMIGRE ALLIANCE WITH THE GOAL OF INVADING HAITI
+
+**ACQ:** UNITED STATES, MIAMI (16 MARCH 1967) UFG-8833
+
+**SOURCE:** A HAITIAN BUSINESSMAN WITH GOOD CONTACTS AMONG HAITIAN EMIGRES. HE IS AN UNTESTED SOURCE. HE OBTAINED THIS INFORMATION FROM A FORMER LATIN AMERICAN DIPLOMAT WHO MAINTAINS RELATIONS WITH OFFICIALS OF LATIN AMERICAN COUNTRIES, AND FROM EUGENE MAXIMILIEN, HAITIAN CONSUL GENERAL IN MIAMI.
+
+1. IN EARLY MARCH 1967 CERTAIN CUBAN AND HAITIAN
+
+SECRET

@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_2585.png
+
+Convert to MarkdownTop Secret
+
+CONTENTS
+
+PAGE
+
+VI SEVENTH DEPARTMENT (June 1955-January 1960)
+(Cont.)
+
+Operational Activities (1955-1958) 113
+- Entrapment of [MALIA] 06 114
+- Recruitment of [BURGI] 06 115
+- Attempted Recruitment of [GEHRCKENS] 06 121
+- Contact with [LANE] and [BIRSE] 06,06 122
+- Recruitment of [SUNDAR] 06 123
+Travel to London (1957 and 1958) 124
+Operational Activities (1958-1960) 127
+- Recruitment of [HARRIS] 06 128
+- Compromise of [KRAFT] 06 129
+- Recruitment of [DREW] 06 130
+- Recruitment of [LUKIS] 06 131
+- Recruitment of [WILBY] 06 131
+- Recruitment of [TAYLOR] 06 132
+- Recruitment of [MERTENS] 06 133
+- Compromise of [BARRETT] 06 134
+- Compromise of [WILLERFORD] 06 136
+- Recruitment of [FRIPPEL] 06 137
+- Lee Harvey OSWALD 143
+Summary 144
+Knowledge of other Seventh Department
+- American Tourist Operations 145
+Seventh Department Counterintelligence
+- Operations (1955-1960) 146
+- NOSENKO's Information 146
+- Information Furnished KGB by George BLAKE 148
+- KGB Tourist Study 149
+Summary and Conclusion 150
+
+VII AMERICAN EMBASSY SECTION OF AMERICAN DEPARTMENT
+(January 1960-January 1962) 151
+
+Deputy Chief of Section 151
+Transfer to Section 152
+Predecessor as Deputy Chief 153
+Responsibilities 154
+Deputy and Occasional Acting Chief 156
+General Supervisory Duties 159
+
+(iii)
+
+Top Secret
+
+TS No. 197124
+
+Copy 10
+
+0001269

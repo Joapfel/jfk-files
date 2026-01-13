@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_3339.png
+
+Convert to MarkdownSECRET
+
+AMWORLD Meeting in Miami, 28 June 1964
+
+SUBJECT: AMBIDDY-1's Dream House and Personal Finances
+
+1. Without impugning AMBIDDY-1's right to purchase a home we advised him that many derogatory reports have reached our ears concerning his purchase of a home and for this reason only we wanted to get the record straight and thereby be in a better position to combat malicious rumors. A-1 said he understood and it was evident A-1 did not take it (the inquiry) as a personal affront. During a break in the meeting A-1 went home to obtain the necessary data on the house. Within a few hours A-1 returned with the information plus a blueprint of the house.
+
+2. A-1 stated the only house he owns is the one in which he and Adelaida are now residing. This house is located at 1270 N. E. 85 Street, Miami, Florida. The original downpayment was $6,500. The monthly payment on the house is $230. The funds for the downpayment were obtained from:
+
+   a. His own personal bank account ($4,000).
+
+   b. Adelaida contributed money she had received from an automobile accident ($1,000).
+
+   c. The balance was borrowed from Sixteennoon ($1,500).
+
+A-1 added that the money borrowed from Adelaida and Ann was paid back to them. According to A-1 the house is valued at $35,000. A-1 was asked why the house was not registered in his name. A-1 replied this was done to prevent rumors from starting as to where he had gotten the money. For this reason the house is registered in the name of Antonio Ann (A-1's bodyguard). As soon as Adelaida departs for Nicaragua, A-1 intends to lease the house to Ann for $130 a month.
+
+SECRET
+
+<table><tr><td>1</td></tr></table>

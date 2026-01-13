@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_3512.png
+
+Convert to MarkdownReport @ D-745, 0-37, 23 in. CH (cont.)
+
+already out in the open.
+
+"As a personal comment, I don't think BIS has would have come out too well because it was reasonable that the H.M.R. elements present were willing to protect their chief in any eventuality."

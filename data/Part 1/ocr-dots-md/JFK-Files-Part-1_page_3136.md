@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_3136.png
+
+Convert to Markdown<table><tr><td>CAB. SECRETARIAT DISSEMINATION</td><td>CLASSIFIED MESSAGE</td><td>TOTAL COPIE</td></tr><tr><td colspan="3">PERSONAL UNIT NOTIFIED</td></tr><tr><td>ADVANCE COPY ☐</td><td>ISSUED ☐</td><td>SLOTTED ☑</td></tr><tr><td colspan="3">BY AT:</td></tr><tr><td>DISSENT BY PER:</td><td colspan="2"></td></tr><tr><td>ACTION UNIT</td><td>IPO</td><td>FILE, VR w/p 8 RIMMS, J/LOPS (J1C2, F1)</td></tr><tr><td>ACTION NO.</td><td colspan="2">978</td></tr></table>
+
+SECRET 182102Z JAN 71 CITE BUENOS AIRES 7069
+
+DIRECTOR
+
+REDBOT BIOGENESIS AEKICK
+
+1. BIBAFFLE TRAVEL CONTROLS REPORT IVAN GAVRILOVICH ALFERYEV, KNOWN KGB, DEPARTED FOR USSR WITHOUT WIFE 17 JANUARY VIA KLM 792 TO AMSTERDAM. PER BILOCULAR, TRIP IS FOR CONSULTATION.
+
+2. FILE: 201-236701. JP-1.
+
+SECRET
+
+18 Jan 71
+
+CS COPY
+
+SECRET
+
+<table><tbody><tr><td>SECRET</td></tr></tbody></table>

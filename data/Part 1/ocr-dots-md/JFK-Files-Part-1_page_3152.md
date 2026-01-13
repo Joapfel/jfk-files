@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_3152.png
+
+Convert to MarkdownLe titulaire du présent, citoyen... de L'UNION
+DES RÉPUBLIQUES SOVIÉTIQUES SOCIALISTES
+
+Traduction.
+
+Boza ALFERIEVA,
+
+spouse du Premier Secrétaire de l'Amcassada.
+de l'URSS en Argentine
+
+be rend à l'étranger
+
+AU NOM DE L'UNION
+DES RÉPUBLIQUES SOVIÉTIQUES SOCIALISTES
+
+La Mésatire des Affaires Extremes prie toutes les autorités civiles
+militaires et des Pays Amis de la界r paix et de la paix, de la croissance
+du développement et de la croissance sociale.
+
+Pour une licence pour cinq ans...
+
+25. de mai 1970.
+
+Republique du Périmètre
+des Extremes de l'URSS
+
+Pour une traduction conforme:
+DR DE LA DIPUTATION CONSULAR DE LA
+SEPARADA DE LA URSS EN LA
+REPUBLICA ARGENTINA
+
+12

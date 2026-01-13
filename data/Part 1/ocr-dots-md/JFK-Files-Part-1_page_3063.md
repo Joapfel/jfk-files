@@ -1,0 +1,64 @@
+# JFK-Files-Part-1_page_3063.png
+
+Convert to MarkdownCARRETE CH 026
+
+SIGUE) - Es - Para confirmando / me da el efecto de las vacaciones -
+- EJ - Para oeste norte va estar Requirements - Esupera el mes que viene
+y no va a tener vacaciones -
+- Je - Ahí que el mes que viene van de vacaciones &
+- EJ - Sf - Mهوه ورشه کانسوس نم تاریخ یه ور شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شورشود تو شorshod تو shorshod
+- Sf - Sf / sf -
+- EJ - Por 17 may / Depuis no hay refs - Esthf ente notado el
+númerozero - El suyo / puede ser que dentro de una hora este zero
+Llamene a la tarde / es un hable con el patron -
+- Ja - Como no - (c)
+- EJ® con la son HALLAOV -
+- Jo - Hablo con la encargada &
+- Ja - Sf -
+- EJ - Lo habla JASINN / donde lamento - Buenos días -
+- Ja - buenos días -
+- JA - Pur favor me podría llamar a Ivan ALLANLEV & -
+- Ja - Un momento / short: voy a presentar --- (so que decir a
+IvánLEV "Ivan Konstantinovich (vilelev) / por favor llame
+y sigo a. ALLANLEV / lo llamo JASINN donde MACU / rápido /
+rapido / porque tiempo corre ----- ja) ----encargo / espane
+un momento / short del vi a lo leder - Ua tenfa que llamar por
+otro número - Parque el entre en otro número = short el ya
+viente -
+- JA - Yo tango naf tron numberou - Le costó mucho para comunicarse
+con Ud - Tempe net 85-5271 -
+- Ja - No / no / no eu eee - Tenso que llamar al 42-1552 -
+- JA - No / me dieron solo entonces tron numbers y con el último
+me pudo comunicar -
+- Ja - bueno / contrino lle, yo ALLANLEV / quiero prevenir / que
+tal estím Ud-
+- Ja - Lleve mucho frío - Bujo 20 -
+- Ja - Y nonotrou ar tenimmo 32 -
+- JA - Ah que lindo / con suse puto irminou all's pe'm onenturnos
+un pozo -
+- Ja - (Se rie) - Ua viento n Buenos Aires -
+- Ja - No / nonotran retomaron af do pero en "herodaro" - Honera
+vamos a Chile -
+- Ja - A Chile &
+- Ja - Nonotran vemos a temer un torneo / do "DILLANO" - Ani que
+viajamos para Chile paraumar -
+- Ja - X pur qued no vienen nen &
+- Ja - Nonotran con mucho puto / pero no nos dejan -
+- Ja - Que uin varguonssm (no ria) -
+- Ja - Ales ente el gato encerrado -
+- NA - Sud bien que se cay a Ud - Juroco que yo antay en Honau -
+- Ja - Tmbien yo lo olko bien -
+- Ja - X andema qu'd newedon liny &
+- Ja - Con quién hablo yo &
+- Ja - Con la parmon que outa de guarda &
+- Ja - Mucho quate - Hace poco yo entive en Mexico - He visto
+& muchos anullamientos que I've seen jato - He visto a Ivan allá
+y Vila - Iva ALLANLEV / tamando nen en la Argentina -
+- Ja - Lo ud / ond el yo no encontrd variu veoua - Hice poco he
+encontré on el en Mexico -
+- Ja - Cua butima que Uda no vienen- Nonotran los esperamos el
+solo minuke -
+- Ja - X ho rule -
+- Ja - X ente illo yn no vienen &
+- JA - No oreo / porque nilf en la argentina el torneoo ente para
+terminar - Algor

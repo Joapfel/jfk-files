@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_3277.png
+
+to Dr. Fernando Barral in the psychiatric department of a clinic in Havana for personnel of the Ministry of the Interior. He is ignorant and illogical, constantly bragging of revolutionary experiences with Castro in the mountains. Age 35-40, 5' 4", 140 pounds, black hair.</td>
+            <td>201-34062</td>
+            <td></td>
+            <td></td>
+            <td></td>
+        </tr>
+        <tr>
+            <td>Dobric 1948</td>
+            <td>O. Villanueva, Florencio. Visiting professor at the Naval Hospital and the University of Oriente in Santa Fe de Cuba from September 1945 to June 1946. A life-long Communist. Florencio has a brother who is the physician for the Cuban Embassy in Madrid. Both brothers were born in Spain. Age 45-50, 5' 6", 140 pounds, black hair.</td>
+            <td>201-112630</td>
+            <td></td>
+            <td></td>
+            <td></td>
+        </tr>
+        <tr>
+            <td>RD B. Mil</td>
+            <td>P. Araujo, Leopoldo. President of the Cuban Psychiatric Association and Professor/Assistant Director of the Department of Medical Psychiatry, University of Havana Medical School. /Es es fully integrated with the regime but held important posts, such as head of the Psychiatrics' Association, under Batista as well.

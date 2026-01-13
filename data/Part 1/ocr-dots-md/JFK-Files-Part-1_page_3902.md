@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_3902.png
+
+Convert to MarkdownUFGA
+
+Att. No. 20 to UFGA-21G03
+~1945/14
+
+SUBJECT: **CUEVA, Cosar Ramon**
+
+1. Source met Subject in Mexico City in 1957 where Subject was then residing at calle Chapultepec, Colonia Narvarte. During the two months source was in Mexico he saw Subject frequently and they became very close but source has not seen or heard from Subject since about February 1958. In 1959 he heard rumors that Subject was stationed at the Estado Mayor in the Ciudad Libertad, Havana City, and also that Subject worked for a period of time at the Ministerio de Recuperacion de Boiones, but was later transferred to G-2 in Cuauhtey City. Source later heard that Subject was appointed to a post in the Cuban Embassy in Mexico City. Source is not able to provide any information on Subject's mentioned positions or as to where he might be working at the present time. Subject's father prior to 1959 owned a drug store in Guanajay, Pinar del Rio Province. Source does not know if Subject has ever traveled to any of the communist countries or if he has any relatives outside Cuba, nor whether Subject has ever received any political, military or intelligence training.
+
+2. Physical Description: DPOB: circa 1937, Guanajay, Pinar del Rio Province, probably. Race: white. 5'8", 160 lbs. Hair: dark. Eyes: dark. Shape of face: round. Physique: heavy. No visible scars.
+
+JEWAVE traces: Subject above believed identical with Cosar CUEVACA Montoto, 201-328945. (Salud 2 days in Cosar CA, Cosar Ramon) Lado was Calle. Running investigation, July 15-17, 1963. Depending in G-2 in Cuauhtey City.
+SECON
+
+MFGA. 21693/14
+
+16
+
+SECRET
+
+16-000001

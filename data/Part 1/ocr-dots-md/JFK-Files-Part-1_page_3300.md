@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_3300.png
+
+Convert to MarkdownSECRET
+
+FEB 23 1965
+
+**Report:** FT 2753
+
+**TO:** Amot-2
+
+**FROM:** ARCHIVE
+
+**SUBJECT:** File traces requested on:
+
+AMAUJO Eernal, Dr. Leopoldo
+
+**FIL. DATA:**
+
+**Source:** E. p. n. leopoldo
+
+Information on this person was submitted in Report # 33-1970, of 15 October 1964 (UFGA-18378, 4 Nov 1964).
+
+**New Data:**
+
+**ARACJO, Leopoldo**
+
+President of the National Medical Association and Communist during many years.
+
+**SOURCE:** request of file traces Amot-2, 12 Aug 64.
+
+Medical doctor. President of the National Medical Association. Will take part in a tribunal on the blood banks, to be held at Havana in the current month, organized by the Ministry of Public Health. It will be held in the Medical Association Building.
+**SOURCE:** REVOLUTION Newspaper, 5 Sep 64, page 2.
+
+Medical doctor. President of the National Medical Association. Attended a luncheon offered in the restaurant "Rio Cristal" at Havana, by the Ministry of Public health, as homage to the 247 new physicians graduated at the University of Havana.
+**SOURCE:** LA TALLE Newspaper, 10 Sep 64, page 5.
+
+President of the National Medical Association. Attended the act of graduation of 25 new doctors in the Theater of the UTC, Havana, to which attended and spoke the Prime Minister.
+**SOURCE:** REVOLUTION Newspaper, 11 Sep 64, page 2.
+
+President of the National Medical Association. In the Presidential stand during the graduation of the 247 new physicians at the UTC Theater, on the 10th of October (Thursday).
+**SOURCE:** FONDAN Magazine, 18 Sep 64, page 64.
+
+Member of the National Medical Association. Attended the celebration of the centennial of the International, held at the Medical Association, Havana.
+**SOURCE:** REVOLUTION Newspaper, 22 Sep 64, page 3.

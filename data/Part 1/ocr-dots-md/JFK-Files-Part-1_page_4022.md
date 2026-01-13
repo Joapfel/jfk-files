@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_4022.png
+
+Convert to MarkdownSECRET
+
+-3-
+
+survivors of MRR people, for delegates, the *Tridente*, and radio broadcasting had been approved for $12,000 monthly. He was gratified to receive continued support for the movement. I told him we would try to get the July payment into the bank through the old AMWORLD funding mechanism pending development of a new funding system.
+
+Carl F. Jenkins
+WH/C/CA/EA
+
+File:
+AMBIDDY-1 201
+
+SECRET

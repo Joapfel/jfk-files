@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_3470.png
+
+Convert to Markdown9 May 1964
+
+**MEMORANDUM FOR:** Chief, WE/SA/External Operations Branch
+**SUBJECT:** AMWORLD—Ottilia Buena
+
+1. Subject, who is Manuel Artime's aged mother, has last been reported as hiding out in Iglesia Cristo de Limpias in Havana city.
+
+2. Artime has been without news from her for the last two months. His link to her used to be the Spanish Commercial Attache in Havana.
+
+3. We have promised Artime to study ways and means of contacting her in order to ascertain her state of health, her husband's whereabouts and any personal needs she may have.
+
+4. Can you come up with any ideas?
+
+Henry D. Backsher
+WH/SA/SO/HH
+
+HDI/bh
+
+Distribution:
+Orig & 1 - Addressee
+1 - WH/SA/SO/HH - Artime 201
+
+SECRET
+
+<table><tr><td>GROUP I<br/>Included in this automatic<br/>classification and<br/>dissemination</td></tr></table>

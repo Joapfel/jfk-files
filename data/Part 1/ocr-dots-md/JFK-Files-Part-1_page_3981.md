@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_3981.png
+
+Convert to MarkdownSECRET
+
+-3-
+
+Artigue would seek private financing from
+healthy Cubans exiles and Latin American sympathizers.
+
+**Panama**
+
+Artigue would start a "concordats rurales"
+operation, similar to that which was the base
+of III strength in rural Cuba.
+
+Artigue would launch a civic action program
+and also would interdict Cuban infiltration
+operations.
+
+The above plan would be carried out mainly
+in Chiriqui Province.
+
+**Bilacillamoc**
+---
+
+We have no information on what Artigue proposed
+in Venezuela but assume it is much the same as for
+Colombia and Panama. We also believe Artigue may ask
+CLA to continue to assist him in radio broadcasting
+to Cuba, financing the III magazine, and helping him
+maintain continued contact with the Cubola group.
+This would be in return for his counter insurgency
+program outlined above.
+
+JOHN L. HART
+FEBRUARY/C
+
+SECRET

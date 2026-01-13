@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_2599.png
+
+Convert to MarkdownTop Secret
+
+(Summary of Case)
+
+NOSENKO has not been interrogated since October 1966. The period since has been devoted to the examination and review of the accumulated interrogation notes, transcripts and other materials, and in the preparation of the present paper.
+
+G001281
+
+TS No. 197124
+Copy 10

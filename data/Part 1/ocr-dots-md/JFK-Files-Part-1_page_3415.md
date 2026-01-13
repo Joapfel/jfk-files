@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_3415.png
+
+Convert to Markdown# LEAR POR LA INDEPENDENCIA DE LA PATRIA QUE PEDIRLE PERMISO A NADIE
+
+—las frontiras del MEX están estrechas para todo el mundo
+
+—los Cubans se pueden dar en Bedegast
+
+—no me consta que Rusia está absteniéndose a Castro.
+
+P.—¿Qué opina el merito la conducta de machines como Iniaterra y Francia que, de;aldas a principios que dica sustentar y a consideraciones mismas de orden moral y hu- mán, se vienen dedicando a apuntalar al sagriento regi- men de Castro por medio de cultivos y todo tipo de operací- das financieras?
+
+R.—¿Quéوعا, soyal quiera considerar a los paises con los gobiernos. La mayor parte de los
+
+pasables son lasvecinas de los atacados y tradicionales de su gobierno.
+
+Del Gobierno Inglés nos me extrajé una conducta por- que alge Exchange in Cones, donde son soldados mortán hir- ande contra las cimas de China de la Manchuria roja, entre otras las vendidas a Pekín.
+
+Del Gobierno francesa de no ha deblado. En la figura del Gral. De Gallei ml corragdo de poes rubano teve la images del Dc
+
+Gallei Mares de la 3ª Genwa Mundial, idén de la revolução do snzalo en la back costa el extranjero Inverno.
+
+Me constó trabajo prensa qo esta indeed hombre divía la co-pada a los principios qo le leyeron quafido por el encanado Úbre. Es lusón que una crema tan brillante se hayá esca- rado en su ojoa.
+
+To todas masmas, aldea día Cuba sardíne y pondrá estar seguros encos Gobleros que al no cambian de conducta rec-
+
+Despues de saltar de pruéba y pondrás cañas en cua ayata, podo'do'de entoces, so ádo no lo le visto, sino qoe al atender lo visto la posibilidad de consigoate.
+
+No sato nl interva so ha de-dando hach. Latronotidora, chno también ni gratitud hacia edos posibles que nos haa abner-ba los靠as para brindarme ayata cuando todas las puertas sa nss estabas cerrado. Gran- cis a elles podamos continuar la loca.
+
+UNA PERSONALIDAD CONTROVERSIAL
+
+críticos de la cordera cívica de Manuel Artime. Su par- ticipación en di —heroida por lo demás en la perro- nal— contribuyó a arrojar sobre su figura la sombra de nuevos gigantes y asapachas. Pero lo convirtió en la voz en un iedar de primer rengo, que la madures de la priación y la actividad compulsive y revolucionaria pao-torír no han podido más que accionarla.
+
+Manuel Artime constituye hoy, por virtud dei ata- que de sus fuerzas a Puerto Pilón, un punto principal de la actualidad cubana. Su movimiento es ha forjado como uno de los más disciplinados, numerosos y eficie- tos en esta lucha heróica del pueblo de Cuba por su libertad. Por lo tanto, todo lo que éi haga y diga es de aspicionante interlo para el pueblo ortátil en el des- torno. Un pueblo que desde conocer de cara —y con misma reason— el permanimiento y la sociedad de los hom- bres que probablemente lo habrán de dirigir en el fu- turo.
+
+Es por eso que Manuel Artime viene a este pági- na cubana de BOHEMÍA —que es, así, y requirién siendo la tribuna cívica ideal del pueblo de Cuba.
+
+Artime tiene la pacífica...
+
+A. T.

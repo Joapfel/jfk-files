@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_3713.png
+
+Convert to MarkdownThe Ambassador
+
+12 May 1969
+
+Political Attaché
+
+Statements of Jose Maria "Chema" ZELAYA
+
+1. On 12 May I was contacted by a close friend of mine who is engaged in negotiations with "Chema" ZELAYA which may lead to the two forming a business partnership. While my source is not normally a source of intelligence information, I have found him to be a good observer and to be reliable. He told me that ZELAYA told him the following at a meeting on 9 May.
+
+2. The ROCKEFELLER visit is merely a political maneuver on the part of President NIXON to furnish an excuse if anything goes wrong in Latin America. It is preposterous to expect Governor ROCKEFELLER to learn anything about a country in twenty four hours. ROCKEFELLER will go back to the United States, make his report to NIXON, and then go about his normal duties. NIXON will adopt those recommendations regarding U.S. policy for Latin America that are agreeable to him, paying no attention to the rest. If anything goes wrong, NIXON can pin the blame on ROCKEFELLER. In this way he has a scapegoat and also has an opportunity to lessen the prestige of a potential political rival. No possible good can come from this mission.
+
+3. ZELAYA said that he has managed to obtain the blessing (bendición) of the Catholic Church. Now he is working on the blessing of the American Ambassador. In this respect he has proposed setting up youth centers around the country--places where youngsters can go to read good books, play ping pong, etc. -- and the American Ambassador is interested.
+
+4. My friend is of the opinion that ZELAYA is strongly anti-American.
+
+<table>
+   <tr>
+    <td>MICROFILMED</td>
+   </tr>
+   <tr>
+    <td>MAY 23 1969</td>
+   </tr>
+   <tr>
+    <td>DOC. MICRO. SER.</td>
+   </tr>
+  </table>
+
+CS COPY
+
+SECRET
+
+Sic att: 1
+HNMA-04335
+
+201-267437

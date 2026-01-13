@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_2613.png
+
+Convert to Markdown# Top Secret
+
+### (FOUNDATIONS OF NOSENKO'S CLAIMS)
+
+formerly belonging to other numbered directorates, and individual officers prominent in each. NOSENKO was not as productive with respect to KGB operational methods and Headquarters procedures, although he furnished numerous examples, particularly regarding operations mounted against Embassy personnel, which provided useful insight on these topics.
+
+## Significant KGB Operations Not Directly Related to NOSENKO's Claimed Service
+
+All of the KGB operations which NOSENKO has described are favorable evidence of his bona fides, but they break down into two qualitatively different groups. Operations which NOSENKO related to specific KGB positions he held at particular times are described in the following section in connection with an examination of his KGB career. The remaining operations are those which NOSENKO said he learned of informally, or by accident, or even despite (not because of) the KGB position he held at the time. Since these are not material to his claimed positions at various times in the KGB, they are summarized in Annex B. (NOSENKO's leads to most non-American KGB agents belong in this latter group, but for reasons of brevity they are omitted from this paper.)
+
+Among the items of information which NOSENKO provided but which do not relate to specific KGB positions he held at particular times, there are several which merit special note here. These, which are among the most significant of his revelations, are the leads to Sgt. Robert Lee JOHNSON, "the KGB agent in the British Admiralty" (William VASSALL), "SASHA" (the KGB agent in American Military Intelligence), "ANDREY" (Embassy military code clerk Dayle W. SMITH), Edward SMITH (CIA officer) and the KGB electronic attack on the West German Embassy in Moscow.
+
+## "The KGB Agent in Paris" (Sgt. Robert Lee JOHNSON)
+
+The first item of information given by NOSENKO upon meeting CIA in Geneva in 1964 was a lead to a KGB agent who was an American serviceman stationed at a sensitive U.S. military installation in the Paris area. The agent had been the source of documentary intelligence which had been
+
+0001295
+
+TS No. 197124
+Copy ______
+
+Top Secret

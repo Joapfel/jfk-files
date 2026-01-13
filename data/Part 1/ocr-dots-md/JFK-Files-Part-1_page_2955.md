@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_2955.png
+
+Convert to MarkdownTop Secret
+
+(Annex B)
+
+Comment: (Continued)
+
+BUNDARIN and parents associate with CPUSA members and participate in CP front organization activities.
+
+NOSENKO's information was limited to that contained in his written notes which he brought to Geneva in 1964.
+
+CHRISTNER, Robert Charles
+
+NOSENKO'S Information
+
+While reviewing after his defection in 1964 a list of Americans who had visited the Soviet Union, NOSENKO noted that one CHRISTNER had been arrested while touring the Soviet Union by automobile. He did not indicate the source or date of his acquisition of the information.
+
+Comment:
+
+As described in press accounts of the period and stated in a KGB document on American tourists which GOLITSYN provided, [CHRISTNER] 06 was arrested in the Soviet Union on charges of espionage in the summer of 1961. He had a CIA mission at the time, but he reported that he had managed to maintain his tourist cover throughout his intensive interrogations. In the summer of 1961 NOSENKO claims he was in the Embassy Section of the American Department.
+
+FAIN, Thomas
+
+NOSENKO'S Information
+
+[FAIN], an "American consul" stationed in Yugoslavia, visited Moscow in 1959. During that visit he encountered NOSENKO's agent, VOLKOV, who reported his suspicion that
+
+0001633
+
+TS No. 197124
+
+Copy 10
+
+7/8R

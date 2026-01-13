@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_3917.png
+
+Convert to MarkdownAtt. No. 40 to UFGA-21693
+UFGA-21693/1
+
+SUBJECT: DRJOHN, Roberto
+
+1. Source met Subject in January 1959 when both held positions at the Presidential Place under the direct orders of Cusi AULST. In early 1960 source heard rumors from mutual friends that Subject had a position in the Cuban Embassy in Santiago de Chile but source is not able to provide any information on Subject's position in said Embassy. Source last saw Subject on January 1964 at the Ministerio de Relaciones Exteriores in Havana City, where source went in order to arraign some of his documents for his future departure from Cuba. At this time Subject was wearing a militia uniform and he told source he was now working at the Ministerio de Relaciones Exteriores. Source does not know Subject's political ideologies, if he has traveled to the communist countries, if Subject has any relatives outside Cuba, or if he has received any political, military or intelligence training.
+
+2. Physical Description: DFOB: circa 1930, place of birth unknown to source. Race: white, 6'8", 135 lbs. Hair: dark, Eyes: dark, Shape of face: thin, Physique: slim, No visible scars.
+
+3. JEWISH Traces:
+
+a. One Roberto de JOHN replaced Julio T. CRUZ as Cuban Civil Attache in Chile. His wife, Hidia ACOSTA is replacing Carmita SUENIGA as secretary to the Cuban Ambassador (ECSA 6372, 13 January 1961).
+
+b. Roberto de JOHN Pragua, a Diplomat, entered Mexico on 11 September 1961 and departed Mexico on 14 September 1961 (Travel Manifests).
+
+c. Roberto de JOHN Pragua, Diplomat, departed Mexico on 30 March 1962 (Travel Manifests).

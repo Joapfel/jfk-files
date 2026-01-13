@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_2310.png
+
+Convert to MarkdownIRD # 67491
+Page 6
+
+Did you read the official report of KOSOLAPOV on his contact with JENNER on a train from Helsinki to Moscow? Yes.
+
+Are you intentionally withholding any information concerning KGB knowledge of CIA personnel in Moscow? No.
+
+Is there any possibility that the KGB would dispatch an officer to defect to the Americans? No.
+
+Subject's polygraph test of 6 August likewise reflected no indications of deception.
+
+CONCLUSION
+
+Based solely on the overall analysis of Subject's polygraph tests, it is the opinion of the undersigned that the Subject has been substantially truthful in answering the relevant questions asked.
+
+SECRET
+
+001020

@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_3309.png
+
+Convert to MarkdownLa Habana,
+5 do Octubre
+do 1964 "AÑO DE
+LA ECONOMIA"
+
+COLEGIO MEDICO NACIONAL
+
+Collo 23 No. 201
+esq. a N, 3er. piso,
+Vedado, La Habana,
+
+Pizarras: 32-9551
+
+Dr. Leopoldo Araujo Bernal, Presidente C
+
+Dr. Rubén Rodríguez Gavaldá, Secretario General C
+
+Dr. Daniel Alonso Mendez, Tesorero C
+
+Sr. Lucas Escalante Bravo, Contador del C點itó Executivo C
+
+Dr. Ramón Grzmados Navarro, Vice-Presidente C
+
+Dr. Alfredo Gómez Sánchez, Vice-Secretario C
+
+Dr. Genaro Suárez Suárez, Vice-Tesorero C
+
+Comp. Clara Cos, Jefe de Despacho

@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_3460.png
+
+Convert to Markdown11 May 1964
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Telephone Conversation between AMBIDDY-1 and Martin Ferrer
+
+DATE : 11 May 1964 at 0930
+
+1. AMBIDDY-1 telephoned from the Miami airport to say that he would be leaving in two hours for the Dominican Republic to meet with President Reid on the morning of 12 May 1964.
+
+3. A-1 expects to meet with PETER C. KNITTEL and Tom Murphy at the Miami Airport this morning before A-1 departs for Dominican Republic.
+
+3. A-1 was advised that Mr. Alfredo RODEMEYER would like to meet with him at the Holiday Inn at Coral Gables upon A-1's return tomorrow. A-1 stated he would be at the Holiday Inn after 1800 on 12 May 1964. A-1 was assured this meeting had nothing to do with our operations and not to worry.
+
+4. A-1 has given the commo plans to A-19 who will give them to Mike GUERTLER (P) sometime this afternoon.
+
+5. Due to AMJVA-4's late arrival in Nicaragua the entire schedule for the operation has been pushed back one day since the ship left one day late. A-1 also mentioned there have been some minor changes in the land operation.
+
+6. Manolin Hernandez is now in Panama dealing with Mike Petrosky concerning the DC-3. A-4 apparently had a narrow escape on a Nicaraguan plane and A-1 appears determined to have his own plane in the air.
+
+SECRET
+
+<table><tr><td>CORPORATE</td></tr><tr><td>SECRET</td></tr></table>

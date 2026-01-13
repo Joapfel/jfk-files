@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_3897.png
+
+Convert to MarkdownUFGA
+
+21693/14
+
+Att. No. 15 to UFGA-21693
+
+SUBJECT: *CALZADILLA, Fmu
+
+1. Source net Subject in early 1959 when both were appointed to similar positions at the Presidential Palace under the direct supervision of Cusi AULET. Source maintained with Subject the normal relations of fellow employees until source left that position in December 1959. Source last saw Subject in June 1959. Source is not able to provide any info on Subject's life prior to the time they met. Source does not know if Subject has ever traveled outside Cuba, or if he has any relatives outside Cuba. Source does not know if Subject has received any political, military or intelligence training. Due to the fact that source was in personal contact with Subject for a very short time, source is not able to provide any information regarding Subject's political sympathies.
+
+2. Physical Description: DPOB: circa 1937, Matanzas City, probably. Race: white. 5'11", 170 lbs. Hair: blond. Eyes: light. Shape of face: oval. Physique: medium. No scars.
+
+3. JEWAVE Traces: None.

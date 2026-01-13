@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_2830.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+Comment: ABIDIAN was a State Department officer coopted by CIA. Although not a CIA staff employee, he was for all intents the CIA "Resident" in Moscow from February 1960 until November 1961.
+
+Steve WASHENKO
+
+WASHENKO was identified as a CIA officer on the basis of his mailing of one or two letters to KGB-controlled double agents in the Baltic area. Additionally, from a KGB microphone he was overheard dictating an intelligence report shortly after he returned from a field trip.
+
+Comment: [WASHENKO] was a CIA employee detached from his Washington overt assignment as an economic analyst to be assigned to Moscow. He was used there for limited operational support activity, including clandestine mailings. He reverted to overt CIA employment after his Moscow assignment.
+
+Lewis BOWDEN
+
+BOWDEN was suspected of being a CIA officer for reasons unknown to NOSENKO. KOVSHUK was in contact with BOWDEN under Ministry of Foreign Affairs cover.
+
+Comment: BOWDEN had no affiliation with CIA.
+
+TS No. 197124
+Copy _______
+
+Top Secret
+
+0001514
+
+242

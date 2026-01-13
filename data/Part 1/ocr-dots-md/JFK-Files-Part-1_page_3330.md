@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_3330.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+In this context, we mentioned sentiments expressed by AMBIDDY-1 on Venezuela TV deprecating largescale revenge during the reconstruction phase and voiced hope that he would do his share to see these noble ideas put into effect.
+
+Henry D. Hecksher
+
+cc: Policy Artimes's 201 file
+
+SECRET
+
+L
+
+J

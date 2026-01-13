@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_3082.png
+
+Convert to MarkdownSECRET
+
+HAI-19,735
+
+Having gained assured access, the problem of a suitable LP presented itself. A quick check of the occupants in the same building disclosed that the occupant directly above the target apartment was a military colleague (IDENTITY D) of BICOMMERS-64 (the BIRAUYLE chief). Contact was established; immediately and although IDENTITY D was willing to help, he had already routed the apartment to another and could not reorganize. He agreed however to hold it one more month and to grant the BIRAUYLE team access before he turned it over to the new company.
+
+4. While still seeking a suitable LP, the BIRAUYLE went ahead and installed six miles (two miles "peter" miles—8000 feet—in each row, thus creating a bilateral installation). The holes were drilled from the floor above to the ceiling of the target apartment. (Once the installation was completed, the target apartment was entered (HL-220071 had not yet moved in) and photographs were taken (we forward them under separate cover as Attachments at B)).
+
+5. After considerable searching, a suitable LP was located at IDENTITY I which was used first. After consultation with BICOMMERS-46, an agreement was reached whereby BIRAUYLE-18 (one of the Station's unilateral amate) would rent the apartment and serve as LP monitor. The apartment was routed by BIRAUYLE-18 on 1 July 1963.
+
+6. The running of the wire from the apartment above the target to the LP was delayed due to BICOMMERS-14's other priority tasks and by a shortage of suitable cable (we obtained the cable from Headquarters). This final phase of the operation was completed on 7 August 1963. The distance between the target and the LP is 800 feet. The LP will be equipped by three binary source tape recorders provided by Headquarters.
+
+### EXPLOITATION
+
+7. To are just now beginning to receive the task from this operation. The tapes come directly to us from the LP and Matthew F. CARTWELL processes them. The English language portion, which we assume will be light, will be processed by BIRAUYLE.
+
+### HEADQUARTERS ACTION REQUESTED
+
+8. Please assign a duty man to this operation.

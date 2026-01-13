@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_2808.png
+
+Convert to Markdown# Top Secret
+
+## (AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+Comment: (Continued) nor filed the initial surveillance report of ABIDIAN's visit to the Pushkin Street site. If he transferred to the Seventh Department two days after ABIDIAN's visit, as he claimed (and NOSENKO's participation in the W.E. JOHNSON case indicates that he was working against tourists by 5 January 1962), he could neither have visited the site as he described nor could he have received thereafter the daily surveillance reports. He could not, of his own knowledge, assert that the surveillance was terminated after three months, since well before the three months' surveillance ended he was abroad in Geneva. Lastly, it cannot be for the reason NOSENKO claimed (that the surveillance was unsuccessful) that NOSENKO did not mention ABIDIAN's activities to CIA in Geneva in 1962.
+
+**Case Officer for John ABIDIAN: Summary and Conclusion**
+
+If for no other reason than ABIDIAN's security functions with the Khrushchev entourage, files of the First Chief Directorate would record his name: If NOSENKO states to the contrary, that traces were negative, NOSENKO did not run the traces himself nor know the results. According to NOSENKO, ABIDIAN was "one of the most important targets of the Second Chief Directorate"; all KGB resources were employed for two years, including 24-hour surveillance, the exploitation of all agents with access to him, audio surveillance, and technical aids, with almost absolutely negative results. The results could not have been negative: for NOSENKO to so assert can only mean that NOSENKO was not informed of the results. In the two instances NOSENKO cited of Embassy agents' activities against ABIDIAN, he made fundamental errors: ABIDIAN's maid was not employed by ABIDIAN at the time NOSENKO insists she was applying the metka, and GROMAKOVA taught ABIDIAN Russian throughout his stay in Moscow, not just "several times". NOSENKO acknowledges
+
+TS No. 197124
+
+Copy ______
+
+Top Secret
+
+0001492

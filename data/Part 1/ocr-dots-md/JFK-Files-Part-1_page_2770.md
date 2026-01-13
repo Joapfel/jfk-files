@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_2770.png
+
+Convert to Markdown# Top Secret
+
+## (AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+Comment: NOSENKO has in other contexts identified UMANETS as a long-time KGB agent employed in America House. He never related her to ZUJUS.
+
+In that same interview with CIA ZUJUS described having met in Moscow a person from Damascus who had been in Beirut, or a person from Beirut who had been in Damascus, he could not recall which. ZUJUS met him while acting as doorman at America House, but they conversed only for about 15 minutes and ZUJUS could not recall what they had talked about. He may have seen the man on several other occasions, but he did not know his name nor why he was in Moscow, and he could provide no physical description of ZUJUS did not recall that this person gave him Lebanese vodka, but he acknowledged he favored the beverage. ZUJUS confirmed to CIA that his father, Matas, is secretary of the Lithuanian Roman Catholic Alliance of America, an emigre organization concerned with the liberation of Lithuania. ZUJUS indicated that his father often travels abroad in connection with his emigre activities.
+
+Comment: Emigre organizations, including the Lithuanian, have been traditional KGB targets and most have been penetrated by KGB agents. The fact of the elder ZUJUS's emigre activities is almost certainly to have been known to the KGB, making ZUJUS a matter of KGB concern for reasons quite separate from his cryptographic duties.
+
+From NOSENKO's unfamiliarity with ZUJUS' father's activities, ZUJUS' intimacy with KGB agent "Lillian" and relationship with KGB agent UMANETS, it is concluded that NOSENKO's role in the case, if any, was limited to his relationship with WEISS and that NOSENKO exercised no supervisory function in the development of ZUJUS.
+
+0001454
+
+TS No. 197124
+
+Copy ________

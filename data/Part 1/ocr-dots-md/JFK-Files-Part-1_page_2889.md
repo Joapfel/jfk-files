@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_2889.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - January 1962-January 1964)
+
+the missile documents.) The first sessions
+concentrated on general matters, such as
+BARGHOORN's life history.
+
+After one and one half hours of questioning BARGHOORN agreed that the materials were on him when he was arrested, but he maintained that they had been placed on his person. He said that he thought they were "newspapers or something," that he did not know what they were. The package was then opened and shown to BARGHOORN; it contained about 20 to 25 pages of information on missiles. "BARGHOORN was not, of course, given a close look" at the materials.
+
+Following BARGHOORN's admission, another declaration was drawn up by KRUPNOV and signed by KRUPNOV, KOVALENKO, and GRIBANOV. NOSENKO and KRUPNOV then took it to the office of the Chief Prosecutor where the incident report, the first interrogation, and the first and second declarations were reported to MISHUTIN, the First Deputy Chief Prosecutor. GRIBANOV directed that all materials on BARGHOORN, including information from KGB Archives, be given to the KGB Department of Prosecution so that they could begin legal proceedings against BARGHOORN. After this, all interrogations were conducted by that department; KRUPNOV was dropped from the case, although YEFREMOV continued to act as interpreter.
+
+Comment: BARGHOORN'S version of his entrapment, arrest, and interrogation coincide fairly precisely with the version provided by NOSENKO. He identified NOSENKO from a photograph as a KGB officer present at one stage of the interrogation on the second day of his arrest and said NOSENKO took some part in the proceedings. He recalled NOSENKO as being "clever and quick-witted" and as "giving the impression that he was not a dedicated careerist, but opportunistic and adaptive: he seemed not to care about what he was doing, but doing a good job nevertheless."
+
+001573
+
+302
+
+TS No. 197124
+
+Copy _________
+
+Top Secret

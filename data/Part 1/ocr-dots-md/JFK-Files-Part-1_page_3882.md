@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_3882.png
+
+Convert to MarkdownHOTEL MÉRIDA
+
+MERIDA, YUCATAN. MEXICO.
+
+De regulará además que cualquier persona podrá llamá a la opinió
+a nombre de L. G. o podra establecer una
+cita refiriendo este nombre.
+Se lepedrán los contactos a horasawnada
+y se esperará en las fuentes de contacts
+pÚnicamente 10 min. antes o después.
+Al pan este tiempo se esperarán 10
+graus más y en el期 case or traslado
+el contacts para el día siguiente.

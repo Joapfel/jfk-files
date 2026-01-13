@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_3556.png
+
+Convert to Markdown11. A-1 promised to call this office again this afternoon.
+
+Raul J. Hernandez
+
+File:
+AMBIDAY-1 201
+Conversations
+MCRL
+Costa Rica
+V.Starke 201
+R.Cabezas 201
+
+Above conversation conducted
+in heightened frequency
+changed privacy code
+
+SECRET

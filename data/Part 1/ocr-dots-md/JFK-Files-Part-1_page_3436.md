@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_3436.png
+
+Convert to Markdown27 May 1964
+
+AMBOSLOW MEETING IN WASHINGTON, D.C. 19 May 1964
+
+SUBJECT: AMBIDDY's Reaction to Advice to Delay Return to U.S.
+
+1. AMJAVA/4 reported that AMYIN-19 conveyed to AMBIDDY-1 my advice that he not return to PEPRISE right away, but permit the dust to settle. According to AMJAVA/4 this advice led AMBIDDY-1 to conclude that COACID did not want him back in PEPRISE. In order to test this theory, AMBIDDY-1 decided to make a beeline for the U.S. Embassy in Managua to pick up his immigration visa.
+
+2. (Headquarters has learned that the visa was promptly granted and we presume AMBIDDY-1's concern that he had been exiled a second time has as a result been assuaged.) I asked AMJAVA/4 to tell AMBIDDY-1 that we would be honored to welcome him as a potential fellow-citizen. Also, our relationship was based upon complete mutual trust. Our job was to protect his rear in PEPRISE. What we were concerned about was that AMBIDDY-1, should he return at this time, would undoubtedly be talked to by COACID, ODEMYT and the press. All this it would be best to sidestep.
+
+3. AMJAVA/4 was asked to convey to AMBIDDY-1 that we will tell him when the coast is clear. If this notwithstanding he should return to PEPRISE, the decision would, of course, be his. "It is his right to come back at any time, but I think my advice is good."
+
+File: AMBIDDY-1 201
+
+SECRET
+
+<table><tr><td>Enclosed is a copy of the decision. Please see me and discuss it.</td></tr></table>

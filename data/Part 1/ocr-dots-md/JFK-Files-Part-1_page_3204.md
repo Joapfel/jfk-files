@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_3204.png
+
+Convert to MarkdownSECRET
+
+USC Attachment to HABA-20693
+
+IDENTITY: Diplomatic Association
+
+MICROFILMED
+JUL 25 1989
+APR. MICHIGAN SER.
+
+SECRET
+
+S/e am, to HABA 20693
+EC COPY
+
+201-2.36701

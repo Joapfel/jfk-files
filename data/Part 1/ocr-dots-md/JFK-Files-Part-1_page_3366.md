@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_3366.png
+
+Convert to MarkdownSECRET
+
+LFGA-16512
+
+documents, valuables and jewelry which AMWORLD/2 keeps in a
+safety deposit box.
+
+**WAVE Comment:** The Station is investigating these rumors of an alleged love nest being built for Iden B. AMYUM/19 claims that he is unaware of any validity to the rumor.
+
+19. At present, Iden B lives with her two sons, **AMBIDDY/1** and a maid named Iden G who is also a homosexual. This Iden G has brothers in Cuba who are militiamen and she corresponds with them. Iden G's husband is known as "El Gallego", and he is now in the training camps. Iden G has been a friend of Iden B for many years, and is the one who used to accompany her to her dates with BATISTA. According to source, Iden G knows too much about Iden B and is the one who really directs her.
+
+20. Source further reports that the current AMYUM Chief of Intelligence, Iden H, is married to a woman named Iden I, who practices prostitution. **AMBIDDY/1** has ordered the Intelligence Chief to collect information on Iden B, but all the reports he submits on her are good because the AMYUM Intelligence Chief is an unconditional supporter of Iden B. One time the AMYUM Intelligence Chief hit an AMYUM member because he made unfavorable comments about Iden B.
+
+21. Source learned from Iden B that Juan **AMADOR Rodriguez** is one of the newspapermen in exile who receive money from **AMBIDDY/1**. Iden B also told source that the articles and declarations made by Iden J are written by Iden K.
+
+22. Source further reports she learned **AMBIDDY/1** had difficulties with the ERACORN brothers because Hugo ELIAS Martinez, stationed in one of the encampments, brought contraband whiskey into Nicaragua and this angered the ERACORN brothers. Source also learned that an individual named Raul LEAL Garcia deserted from the encampments together with 21 men. This Raul LEAL is now living in marital relations with Martha BRAVO, a very close friend of Iden D.
+
+23. **Source 2: Iden L**
+
+Both Iden B and her sister Iden D are homosexuals. Iden C works at the Eden Rock in Miami Beach and lives with a Miami Beach gangster in addition to practicing prostitution. Iden M is an accountant, is registered in the Association of Cuban Accountants in Exile and works on Miami Beach.
+
+24. According to source, Iden B was Fulgencio **BATISTA Zaldivar**, a mistress and had a son by him. In order to avoid trouble in this affair, **BATISTA** married her off to Iden C, a member of the Constitutional Army with a terrible moral reputation.
+
+Iden B used to "pose" with her sister to please her lover **BATISTA** and her husband. Afterwards, Iden C continued to exploit Iden B with this "posing".
+
+When Iden B arrived in the U. S., (source does not remember date) she became the mistress of former Venezuelan President Marco PEREZ Jimenez, and later the mistress of Pedro SUAREZ, a former Mariano Councilman. SUAREZ gave Iden B an automobile for which he made the down payment and paid some installments until he quarreled with her. **AMBIDDY/1** finished paying for this automobile,
+
+<table>
+   <tr>
+    <td>FORM<br/>8.62<br/>(40)</td>
+    <td>58a</td>
+    <td>USE PREVIOUS EDITION.</td>
+    <td>CLASSIFICATION<br/>SECRET</td>
+    <td><img src="data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAABAAAAAQCAYAAAAf8/9hAAAAAXNSR0IArs4c6QAAAARnQU1BAACxjwv8YQUAAAAJcEhZcwAADsMAAA7DAcdvqGQAAABYSURBVDhPY6AGaAKIAmJgYPgP8H+P//P/P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P0/P//P

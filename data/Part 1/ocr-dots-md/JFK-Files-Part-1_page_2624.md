@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_2624.png
+
+Convert to MarkdownTop Secret
+
+(FOUNDATIONS OF NOSENKO'S CLAIMS)
+
+RHODES. Little by little, however, "ANDREY" resumed his meetings with the KGB, "having little other choice".
+
+KOVSHUK turned "ANDREY" over to a member of the Washington Legal Residency and returned to Moscow. NOSENKO did not know who succeeded KOVSHUK as the handler, but KOVSHUK's successor eventually turned the case over to N.G. BAGRICHEV, who concluded his tour in Washington in 1961. NOSENKO did not know BAGRICHEV's successor, but asserted that there must have been one since "ANDREY" was still working with the KGB in 1962.
+
+NOSENKO'S INFORMATION-1964
+
+While continuing to associate "ANDREY's" recruitment with RHODES' presence in Moscow, NOSENKO in different discussions of the case asserted that "ANDREY" was recruited in "1948-1949", "in 1952 or earlier", or "in 1953".
+
+"ANDREY" had been recruited by KOVSHUK and N.M. BORODIN. After returning to the United States, "ANDREY" worked at the Pentagon, "in codes", but by the time KOVSHUK recontacted him in the United States he was nearing the end of his enlistment, and he was working in an Army recruiting office. He was still working in the recruiting office when BAGRICHEV took over the case from KOVSHUK.
+
+It was not RHODES' trial at which "ANDREY" appeared, but he was among persons called during the pre-trial investigation. "ANDREY" was called just once, and he was scared to death. "ANDREY" did not testify at the RHODES trial.
+
+In Moscow, "ANDREY" had explained to the KGB how the code machines in the Embassy worked and may have given the KGB parts of code machines such as "discs" [sic, meaning rotors]. Aleksandr SELEZNEV, a deputy department chief in the Communications Directorate of the KGB, had been involved in the "ANDREY" case: NOSENKO first saw him in 1953 during the period that "ANDREY" was working for the KGB in Moscow. SELEZNEV came to meetings in the American Department to discuss and plan KGB meetings with "ANDREY". The reason for SELEZNEV's presence was that the case officers were not technical specialists, and SELEZNEV would supply them with
+
+G0013C6
+
+TS No. 197124
+
+Copy 10

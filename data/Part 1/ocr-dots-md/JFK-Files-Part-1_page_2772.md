@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_2772.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+A proposal for the operation was prepared for the approval of the KGB Chairman which explained that code clerks were assigned to Moscow usually only for one year [thus limiting their accessibility to the KGB for development] and that it was necessary to attempt to place an agent near them even before they arrived in Moscow. When the Chairman's approval was granted, NOSENKO prepared the kharakteristika (official form) on KOSOLAPOV for the trip and gave it to the Personnel Office. KOSOLAPOV wrote a cable for Helsinki explaining that he was coming for two or three days. NOSENKO didn't sign the cable, but read it, and it was taken to KLYPIN for his signature and thereafter KOSOLAPOV took it to the Second (European) Department of the First Chief Directorate for release. There was no other correspondence with the Helsinki rezidentura concerning the operation before KOSOLAPOV departed Moscow. NOSENKO discussed the plan with GRYAZNOV and KOSOLAPOV and "maybe" they discussed it with KOVSHUK the day before KOSOLAPOV left. KOSOLAPOV had JENNER's photograph and his name, and expected that the Helsinki residency could obtain a ticket for KOSOLAPOV on JENNER's train. NOSENKO did not recall precisely when KOSOLAPOV left Moscow or under what name he travelled. KOSOLAPOV was gone for about a week and he travelled both ways by train.
+
+NOSENKO read KOSOLAPOV's otchet (official account) of his trip, and the report of the female agent, "SOLISTKA". According to those reports, KOSOLAPOV became acquainted on the train with JENNER as planned, as did "SOLISTKA", whom GRYAZNOV took to Vyborg and placed in JENNER's car. "SOLISTKA" gave JENNER her Moscow telephone number. While in Helsinki KOSOLAPOV had spoken with the Rezident and Deputy Rezident about obtaining their help in Helsinki with the work against code clerks, and about using Helsinki agents against American code clerks en route to Moscow. Nothing came of the discussion, however; although the Rezident and Deputy Rezident said they would see about it, the Embassy Section later learned the Residency had "more important questions".
+
+G001456
+
+TS No. 197124
+Copy _______

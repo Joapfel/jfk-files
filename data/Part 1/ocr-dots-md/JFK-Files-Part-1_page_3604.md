@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_3604.png
+
+Convert to Markdown14-00000
+
+<table><tr><td>104-10163-10130</td></tr></table>
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+DISTRIBUTION STATEMENT: NEWSPAPER
+
+DATE : 7 AUG 1978
+
+RECEIVED
+
+DATE : 7 Aug 1978
+
+RETURNED
+
+REVISED BY
+(PRINT NAME)
+
+Leslie WIZELMAN
+
+SIGNATURE OF
+REVIEWING OFFICIAL
+
+NO DOCUMENTS MAY BE COPIED OR REMOVED FROM THIS FILM.
+
+<table><thead><tr><th>DATE RECEIVED</th><th>DATE RETURNED</th><th>REVISED BY (PRINT NAME)</th><th>SIGNATURE OF REVIEWING OFFICIAL</th></tr></thead><tbody><tr><td>7 AUG 1978</td><td>7 Aug 1978</td><td>Leslie Wizelman</td><td></td></tr></tbody></table>

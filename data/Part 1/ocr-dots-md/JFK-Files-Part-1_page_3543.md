@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_3543.png
+
+Convert to Markdowneasily, more so when one has been condemned to death. It is possible this plan exists but I do not know since I do not have access to these ultra liberals. It is possible they are looking for someone to do it, this is possible. I can guarantee you one thing. I am not doing this because my power comes from men who believe as I do, as you do, and who are located south of the Rio Grande. These men are gambling the lives of the people in their own countries.
+
+Because they know if they do not help in overthrowing Fidel Castro in less than two years, their own countries will be victims of communism. I am a product of the desperation of the Latin American countries.
+
+**Questions:** Dr. Artime, how can we unite the Cubans in order to make the cause of those fighting inside felt more deeply?
+
+**Answer:** Very good question. Very good. A North American friend of mine once said he would rather carry ten cats in a bag than work with two Cubans. I said to him that he was quite right; however, Cubans are not the only ones that are hard to understand. The Latin American is also difficult to understand. Thank God, we are very individualistic and that is why the communists are having such a difficult time. Because we are very individualistic. The war is the only thing which can unite the Cubans. The only thing which can create an unbreakable bond, between rich, poor, Negroes, whites, Catholics, Protestants, Mason, everyone, is sacrifice. I do not believe in theoretical unions.

@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_2935.png
+
+Convert to Markdown# Top Secret
+
+## (OTHER ASPECTS OF NOSENKO'S KGB CAREER)
+
+**Comment:** (Continued)
+
+in service. NOSENKO entered the Naval RU in 1950, he said, and should have received the medal in 1960, but did not because of some administrative mixup. (See p.56 for NOSENKO's eventual claim that he entered the RU in 1951.)
+
+In 1963, NOSENKO said, he received another commendation from GRIBANOV for "general good work", and GRIBANOV told him that along with others he would receive the Order of Lenin "for inspiring the Seventh Department" on 20 December 1963, the KGB anniversary. NOSENKO said because he left for Geneva, he did not actually receive the medal. [NOSENKO arrived in Geneva on 19 January 1964.]
+
+Interrogated in August 1965 regarding his claim to having received a commendation from KGB Chairman Shelepin for his recruitment of the three Americans and three British citizens in 1959, NOSENKO said that he was nominated for the Order of the Red Banner for these successful recruitments, but he did not receive it, probably because he transferred to the American Embassy Section at that time.
+
+**Comment:** NOSENKO apparently is referring to the KGB practice of conferring decorations on KGB anniversary, 20 December. NOSENKO claims he transferred to the Embassy Section in January.
+
+When NOSENKO's claims to various KGB awards was reviewed with him during the October 1966 interrogations, he said that during his KGB service he had received only the Red Army anniversary medal and an award for satisfactory completion of ten years' service, and that he had received no KGB award, decoration, or commendation for his operational work.
+
+0001619
+
+TS No. 197124
+Copy _______

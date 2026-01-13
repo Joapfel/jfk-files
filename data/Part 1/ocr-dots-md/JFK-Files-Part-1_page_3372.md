@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_3372.png
+
+Convert to Markdown16 June 1964
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Telephone Conversation between AMYUM-19 and Raul Hernandez
+
+DATE : 18 June 1964 at 0930 hours
+
+1. AMYUM-19 called to say that he had passed the message to AMBIDDY-! that GUERTLER had given him stating that the Consejo is interested in meeting A-1. A-19 was advised to tell A-1 the meeting would be preferable at the end of next week, 26 or 27 June in New Orleans, whichever date suits A-1. A-19 also mentioned that he had informed A-1 that there was too much loose talk in the organization.
+
+2. A-19 has forwarded to the Consejo the letter requesting the July budget. Also accompanying this letter is a request for funds to purchase uniforms, tools, bedding, etc. for the camps which according to A-19 has been previously discussed.
+
+3. A-4 has asked A-19 to send the DMJM plans to Nicaragua. A-19 inquired if we knew where these plans are. Also A-19 added he was promised the blueprints for the landing field. The undersigned mentioned that Dick was not in the office and if A-19 would call back later we would have the answers for him.
+
+4. A-19, when asked if the charter fee for the ADELAIDA had been paid for this month, stated he did not know if it had been sent but would check with Mesa.
+
+Above conversation concluded in group B, usually changed prior to each meeting.

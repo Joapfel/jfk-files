@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_3928.png
+
+Convert to Markdown14-0000
+
+Att. No. 53 to UFGA-21693
+
+SUBJECT: *PERAZA, Luis
+
+1. Source met Subject in Mexico City in December 1957 at which time Subject was in exile there. Source stated he was only an acquaintance of the Subject and never became a close friend. During this period he learned that Subject's father was Captain Adjutant for General Ruperto CABRERA, during the regime of Pres. Prio. After source returned to Cuba in early 1958 he didn't see Subject again until early 1959 at which time source visited at his home, located on the second floor of a house located at Ave. 41 about two blocks from the Obellisco near Camp Libertad. Source made this visit because a few days previously someone had thrown a hand granade into the Subject's house and Subject's brother Sergio PERAZA was severely wounded. Source believes Subject has never held a position in the Castro regime and that Subject has never traveled to any of the Soviet countries, nor received any political, military or intelligence training.
+
+2. Physical Description: DPOB: circa 1938, Havana Prov. probably.
+Race: white. 5'7", 140 lbs. Hair: dark. Eyes: dark. Shape of face: long. Physique: slim. No visible scars.
+
+3. JHWAVE Traces:
+
+a. One Luis PERAZA Barrios recently arrested by BRAC as a communist suspect. Distributor of PSP propaganda under Abelardo J. ADAN y Garcia (HKHA 4549, 14 August 1958)
+
+b. Luis PERAZA Barrios admitted having enlisted in the Republican Army in Spain in 1938 during the Spanish Civil War. He was repatriated from France after the war and returned to Cuba. He said he had been affiliated with the PSP since 1946 and had continued to engage in clandestine activities for the Party after it was declared illegal in Cuba (HKH 1693, 13 August 1958).
+
+c. Luis PERAZA Garcia, common passport 251992 arrived in Montevideo from Paris 23 November 1963 on Air France flt 97. (MONT 8411, 28 November 1963)
+
+d. Luis PERAZA organized the Cuban Branch of Cuban-Polish Friendship Society, DOI: 3 October 1960. (JAVE 8244, 28 November 1963)
+
+e. Luis PERAZA Cabrera is a member of the G-2 with an officer's rank. His mother has a pharmacy at 50 meters from AMRICK/2 (SOURCE) father's home. PERAZA supports CASTRO fanatically. His family is very detested in the neighborhood (AMRICK/2, 22 February 1964).

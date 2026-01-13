@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_3407.png
+
+Convert to Markdownment ought to do in Cuba in respect to these matters, my answer is: Regarding private education: protect it in every possible way, and raise public education to the same level as private. Regarding the press: liberty of the press and assistance for the school for reporters to make Cuban newspaper men more efficient. The Cuban press will educate our peoples' background so as to definitively wash the wounds which communism has inflicted on the spirit of our children and young people.
+
+Regarding private enterprise: protection for it, assistance for small business, and by means of modern tax laws make sure that business performs its social function. The United States, Western Germany and many other countries can give us an exact idea of what we want.
+
+Q. - What is your final message to your exiled people in this grave moment of history?
+
+A. - That we cannot and must not trust in international solutions nor in easy paths to our country's independence. That we must return to the romantic spirit of our war of independence, to that difficult, self-sacrificing, hard war of a Martí collecting pennies and a Maceo spending them on bullets; to that war of Cubans within and Cubans without against those who are no longer Cubans.
+
+If every Cuban offers what he can; if we obtain, as was done in 1895, the fraternal embrace of our brother peoples; if we put the interests of a country that must be saved before our personal interests, Cuba will be independent. Because this bat-

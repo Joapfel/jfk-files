@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_2727.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - June 1955-January 1960)
+
+When FRIPPEL returned, he brought another American, so NOSENKO had to invent for himself a suitable cover (Inturist) on the spot. The three returned to the hotel and drank some more, everyone getting drunk. During this contact, FRIPPEL reported "nothing of importance", and his most interesting news was that he might again be reassigned to Moscow in December 1963 as the American Express Company representative. (NOSENKO said he later read a report that FRIPPEL had been assigned elsewhere, and it was therefore unlikely that his agent would return to Moscow. This report was submitted by V.V. KOSTYRYA (alias VLADIMIROV), a member of the KGB Legal Residency and overtly an Inturist employee in New York City, who was a former Second Chief Directorate colleague of NOSENKO.)
+
+FRIPPEL provided no interesting information during NOSENKO's two meetings with him in 1962 and 1963, when FRIPPEL returned to the Soviet Union as a tour guide.
+
+On 3 February 1964, while reviewing the CHEREPANOV papers (see p.309) in Geneva, NOSENKO was asked about the following passage dealing with FRIPPEL which appeared in the KGB operational plan against BOWDEN:
+
+"He [BOWDEN] showed himself to be an indiscreet person... One day, as though by chance, he [BOWDEN] blurted out to our agent SHVEDOVA [the fact of] 'ARTUR's' affiliation with American intelligence."
+
+Asked who SHVEDOVA was, NOSENKO said she was "probably a cleaning woman". [Elsewhere NOSENKO described SHVEDOVA as his own agent working against American Army Attachés, see p. 85.] Asked what connection FRIPPEL had with American intelligence, NOSENKO replied that he could not say. To the inquiry why not, since he was FRIPPEL's case officer, NOSENKO was silent.
+
+[Spencer ROBERTS] [whose KGB recruitment is described on p.424] in August 1962 became friends with a young Soviet male who acknowledged having been a KGB agent used against French-speaking foreigners. Included among the
+
+GOC1411
+
+TS No. 197124
+Copy 10

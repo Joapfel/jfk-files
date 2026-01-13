@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_2983.png
+
+Convert to MarkdownTop Secret
+
+(Annex B)
+
+YOUNGER, Ralph and Evelyn
+---
+
+NOSENKO'S Information
+
+The YOUNGER couple were identified as American Intelligence agents and arrested and recruited by the KGB while they visited the USSR in 1961. However, later they failed to meet their KGB case officer as planned, in Denmark. The case was handled by the American Department while NOSENKO was in the Seventh Department. NOSENKO's former subordinate, V.V. KOSOLAPOV, was directly involved in the case.
+
+**Comment:** The YOUNGERS were on a mission for the U.S. Army at the time of their arrest, and they reported their recruitment immediately upon leaving the Soviet Union. KGB officer KOSOLAPOV travelled to Copenhagen under alias in 1961, at the time when the YOUNGERS were scheduled to meet with the KGB in Denmark.
+
+NOSENKO did not indicate the source of his information which he related to CIA in Geneva in 1962.
+
+ZIRING, Stanley
+---
+
+NOSENKO'S Information
+
+ZIRING, a student who visited the USSR in 1960, was recruited by the KGB after being apprehended in blackmarket dealings.
+
+**Comment:** Interviewed in London in 1964, ZIRING admitted blackmarketeering but denied recruitment. British authorities concluded that he may have given the impression of willingness to cooperate without realizing the purpose of the Soviet offer. British authorities report no evidence of subsequent contacts between ZIRING and Soviet officials.
+
+NOSENKO claims he was in the American Department at the time ZIRING was recruited by the Seventh Department.
+
+435 06
+
+0001667
+
+TS No. 197124
+Copy 10
+
+Top Secret
+
+9/8R

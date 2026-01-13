@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_3071.png
+
+Convert to MarkdownGARÚNTE GR 026
+
+(SIGUE) - JA- (ll Representantes d4) van a visitar el URGUNY - A la mejor ellos van hacer una visita a la Argentina - Ahora no le puedo asensurar -
+- Ja - Bueno / solo puzz come husspidos / ya no venos hablar del tormo -
+- JA - Bueno / en còmo fuere que una huie una visita de "Sokolini- ke" a "Arbat" &
+- A - Aal es (so rie) — Parque os "tan cerca" — Escuohc / nosotros hemos un calor turbano - Ayer hací un calor in- suportable - hoy es un poco mejor -
+- JA - Estó bien / porque hay brisa del viento / no hace calor -
+Nosotros recorrimos on Brasil - Aluf si que lince calor - Nosotras llamamos a las uiete de la mañana y hacia 29 grados -
+- NA - Un momento / ya llegó ALFREUD -
+- ALFRED con JASHIN (LUCINE)
+- Al - Loya -
+- JA - Salud Vida (Ivan)
+- Al - Buenos días / ¡pero allí es ya koche !
+- JA - Cómo -
+- Al - Primero "Feliz Afo Nuevo" -
+- JA - También para ti "Feliz Afo Nuevo" - Y te saludan todos muchachos -
+- Al - Le agrдоzeo que no han alivido el viejito -
+- JA - Yo pensé que si voy a tener oportunidad de llamararte te voy a llamar -
+- Al - De dónde llame tú &
+- JA - De "aeroonam" -
+- Al - X adónde van Ud & -
+- JA - A Santiago - Allí tenemo tomado -
+- Al - Yo no sabín a qué hora Und van a pasar / parque yo iría a aeropuerto - Yo sencé que Und pasa mis días -
+- JA - Nosotro venimos de Italia - Noutros hamos jugando en Itulio dos ...
+- Al - ( Lo interrompe) ....... Yo saibn que Und se van a pasar puz
+nod en trámite / pero no saibn ni qué día ni a qué hora -
+- JA - Y bueno -
+- Al - Busto Love (Leon) te dasco mucha suerte en Chile -
+Después llamanme de Chile - Adónde van Und desapude &
+- JA - Nonotrou hasemos Chile / Ieru / Colombia / Ecuador -
+- Al - Busto / yo te voy a mandar algo / parque voy a tener oda-
+-icen -
+- JA - Cuándo &
+- Al - Un proximo días -
+- JA - Adónde / a Chile &
+- Al - Uf -
+- JA - Y tú no puedes venir a Chile &
+- Al - No creo -
+- JA - Y tan close &
+- AL - No creo / desacuerdo complicado -
+- JA - Escuohc / yo podría impartir uloro un pequeño presente /
+poro tengo todo allí -
+- Al - Estó bien / prucino -
+- JA - Y allí en Chile a quien puede entremeter el abscidente &
+- AL - Al convul / creo yo &
+- JA - X quién reemplaza a MUNIDU (MUNDU) &
+- Al - No creó tu degirtelo - Vas a entramar el consul -
+- JA - Fara o en - Creo que voy a ver a todos - Porque nosotros
+no vamos a quedar allí tres semanal. -

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_2268.png
+
+Convert to MarkdownFrank Patrick Bishop
+004736
+
+DOB : 25 April 1914
+
+Office of Finance
+
+March 1958 - Headquarters
+April 1969 - Inspector
+
+Retired 29 June 1973 GS-17(5)
+
+1949
+
+5' 11-1/2"
+145 lbs.
+blue yes
+brown hair
+
+1973
+
+grey hair

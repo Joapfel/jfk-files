@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_2745.png
+
+Convert to Markdown# Top Secret
+
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+Comment: NOSENKO knows neither that [William N. MORELL] was identified formally by the Embassy to the Soviet Government to be a CIA employee, nor that KOVSHUK (who was aware of this fact), was in personal contact with [MORELL].
+
+## General Supervisory Duties
+
+In interrogations of January 1965 NOSENKO was questioned in considerable detail about his supervisory duties as Deputy Chief of the Embassy Section. He didn't know what major duties occupied most of his time, nor which were the most important: He stated that "everything" was important. His subordinates were GRYAZNOV and KOSOLAPOV (responsible for code clerk operations), [Vladimir] DEMKIN assisted by [Yevgeniy] GROMAKOVSKIY (residents of America House), [N.A.] GAVRILENKO (Air Attaches personnel and the aircrews of the Ambassador's aircraft), [I.Ya.] KURILENKO (Army Attache personnel), and [Victor] BELOGLAZOV (Naval Attache personnel). Except for "little questions" which the officers decided for themselves, NOSENKO said he directed their activities, discussed with them various aspects of their work, and responded to their questions as required. If he could not answer their questions, NOSENKO stated, or if the problem was not within his authority, NOSENKO discussed the matter with KOVSHUK. If it was necessary, NOSENKO claimed he thereafter would discuss the matter with American Department Chief KLYPIN or his successor, [S.M.] FEDOSEYEV, and on some occasions, with Second Chief Directorate Chief GRIBANOV.
+
+NOSENKO stated he accompanied his subordinates to some meetings with their agents, not because he didn't trust them, but to hear for himself what the agent was reporting. He cited as hypothetical examples occasions when DEMKIN might relay reports from Ella UMANETS or Inga VARLAMOVA (agents working against America House residents), reports which NOSENKO would want to hear for himself, personally. NOSENKO would not estimate to his interrogators what percentage of Embassy Section agents he met in this fashion.
+
+0001429
+
+TS No. 197124
+
+Copy 10
+
+Top Secret
+
+2/8RJ

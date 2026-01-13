@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_3536.png
+
+Convert to MarkdownSECRET
+
+# SYNOPSIS OF AMBIDDY-1'S SPEECH TO AREC
+
+18 March 1964
+
+"You will forgive me if before a gathering the Agrupacion de la Reconstruccion Economical of Cuba I do make profound economic or technical analysis of the reconstruction of Cuba, the reason is very simple, it is because I don't know. Inasmuch as I do not like to talk about things which I know nothing of I prefer not to touch upon the subject. Here at this gathering there are men more capable than I . . . men who will have the difficult task of the reconstruction of Cuba upon their shoulders.
+
+I want to talk about what I know about. But first let me present my credentials. Why the presentation of credentials? When two people speak for the first time the first portion is the presentation and this is the first time I talk with AREC, although I have the pleasure of speaking to some of its members separately and in great lengths. Why this presentation of credentials? Because I know our movement is very controversial. They say we are of the extreme right, they say we are of the extreme left, they say we are opportunist and they say we are ambitious. I do not expect to change anyone's mind by this talk. I believe it is my duty to assert certain principles and to mention our beliefs. Not a criteria of profound economic principles ! . . . I am not an economist nor an expert on the subject. I believe it useful for our movement to assert before this assembly some of its principles
+
+SECRET
+
+CS00-3/60/94

@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_2916.png
+
+Convert to Markdown# Top Secret
+
+(SEVENTH DEPARTMENT - January 1962-January 1964)
+
+"With the objectives of accomplishing subversive activities, a so-called 'Information Center; has been established in the US with the participation of the Department of State. The 'Center' officially advertises that its purpose is to inform intending American tourists to the Soviet Union about the opportunities and restrictions existing there. Actually, however, the 'Center' is involved in the ideological preparation of American tourists, whom it instructs regarding their conduct in the Soviet Union and the methods to be used there for propagandizing the American way of life. The 'Center' collects information about the Soviet Union from returning American tourists, including the political attitudes of certain Soviet citizens, their addresses, etc. The direction of the 'Center' is controlled by experienced intelligence officers of CIA.
+
+"Candidates for missions to the USSR are selected carefully. They ordinarily possess knowledge of the Russian language, know the fundamentals of photography, have specific technical training and must look upon their mission as a responsible assignment and not as a pleasure trip. American Intelligence organs prefer to use persons who have previously visited the USSR and person having relatives there.
+
+"Once selected, the American tourist agent is instructed as to his intelligence assignment and his route, and he is acquainted with the security conditions in the USSR, including passport controls, documentation and customs controls, the hazard of both physical and technical surveillance, as well as the possibility of provocations and compromise making the agent vulnerable to blackmail.
+
+"Among American Intelligence tourist agent tasks there are included visual observation and clandestine photography, the establishment of contact with Soviet citizens, and spotting among such citizens persons who may be developed as sources of information. For American Intelligence, any Soviet citizen, regardless
+
+6001600
+
+328
+
+Top Secret
+
+TS No. 197124
+Copy ___

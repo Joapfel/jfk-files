@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_2862.png
+
+Convert to MarkdownTop Secret
+
+(SEVENTH DEPARTMENT - January 1962-January 1964)
+
+Travel to Geneva (March-June 1962)
+
+NOSENKO visited Geneva between 10 March and 15 June 1962 as a security officer accompanying the Soviet delegation to the Disarmament Conference. In addition to performing that function, NOSENKO claimed he supervised the activities of another KGB case officer's meetings with a KGB-controlled CIA agent, visited the KGB rezidentura in Geneva and associated with KGB officers in Switzerland during the period. Six days before his return to the Soviet Union, NOSENKO contacted CIA.
+
+Purpose of Trip to Geneva
+
+NOSENKO arrived in Geneva on 10 March 1962 listed officially as an "expert" of the Soviet Ministry of Foreign Affairs attached to the Soviet delegation to the Disarmament Conference. NOSENKO explained that after GOLITSYN'S defecation in Finland [in December 1961] an order was issued that no delegation was to be permitted to depart the Soviet Union without an accompanying KGB security officer. [NOSENKO has since stated that he can recall no such order.]
+
+Explaining in 1962 how he came to be designated, as the security escort, NOSENKO said he argued that he was needed to direct the fifteen case officers in his section, but GRIBANOV stated that Foreign Minister Gromyko was leading the delegation and that someone of an appropriate senior rank should accompany the delegation, not just a senior case officer, but a section chief or a deputy chief or a chief of a department. NOSENKO was the most junior section chief. His immediate superior in the Seventh Department approved the trip on the basis that it would last only a month.
+
+0001546
+
+TS No. 197124
+
+Copy 10
+
+Top Secret
+
+275

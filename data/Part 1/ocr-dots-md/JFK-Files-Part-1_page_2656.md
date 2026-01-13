@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_2656.png
+
+Convert to Markdown# Top Secret
+
+(KGB ENTRY)
+
+**Comment:** Persons not holding a valid KGB identity document were not permitted entry to or movement in the building without escort. The interviewer's name did appear on the building pass. The interviewer's name was essential to the issuance of the pass: the interviewer had complete responsibility for the visitor's custody while on KGB premises.
+
+## Initial Service in KGB (1953)
+
+NOSENKO stated that in the period of Beriya, in March-June 1953, the two existing directorates were the First Chief Directorate, which was the foreign intelligence directorate, and the Second Chief Directorate, the counter-intelligence directorate. The designations were later reversed for a few months, he said, by Kruglov, Beriya's successor.
+
+**Comment:** Beriya reversed the designations of the First and Second Chief Directorates in March 1953, and they were not changed back until March 1954. NOSENKO does not know how his own directorate was designated either at the time he allegedly entered on duty or during his entire first year of KGB service.
+
+NOSENKO described the KGB identity document of the period, but in spite of repeated questioning could not recall anything unusual about it.
+
+0001340
+
+TS No. 197124
+Copy _______

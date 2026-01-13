@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_2845.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+KOZLOV and the Chief of the MVR American Department were very interested in NOSENKO's lead, and KOZLOV appealed to NOSENKO for his help, since "the MVR had never recruited an American". The three discussed the matter with General DUMKOV, the Chief of the MVR Second Chief Directorate, and NOSENKO suggested that a MVR homosexual agent should be employed, an apartment prepared, and preparations made for clandestine photography. They then advised YEGOROV, the senior KGB advisor to the MVR, and KOZLOV called GRIBANOV in Moscow. GRIBANOV prohibited NOSENKO's personal involvement in the entrapment of [LUNT], and NOSENKO'S role thereafter was merely advising the MVR officers, "who didn't know what to do".
+
+NOSENKO suggested that the MVR officers get two homosexual agents, since "[LUNT] wouldn't like one of them", and he advised them to weigh the time element in deciding whether to entrap [LUNT] with a view to attempting to recruit him at once, or merely to obtain evidence for later blackmail. The MVR American Department Chief and his Tourist Section chief were to attempt the recruitment.
+
+NOSENKO remained in a MVR office where he could be reached by telephone in the event the MVR officers needed further assistance.
+
+NOSENKO learned from the MVR officers involved that the recruitment had been successful, and that [LUNT] had agreed to meet them again on the following day. NOSENKO later was told that the MVR did not give [LUNT] arrangements for a contact in the United States because he was expected to return to Bulgaria for a Slavic Language conference in 1962 or 1963.
+
+[LUNT]'s Information
+
+[LUNT] travelled directly from Sofia to Belgrade and there on 9 May 1961 he reported to American Ambassador George Kenhan and to CIA that he had been recruited under duress by the MVR in Sofia on 5 May. After being entrapped with a homosexual and accepting recruitment, he was instructed to meet clandestinely with a MVR officer in Paris en route back to the United States. He was given no other tasks.
+
+0001529
+
+TS No. 197124
+
+Copy 10
+
+Top Secret
+
+257
+
+7/8R

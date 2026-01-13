@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_2931.png
+
+Convert to Markdown# Top Secret
+
+## (OTHER ASPECTS OF NOSENKO'S KGB CAREER)
+
+### Visitor's Pass Procedures
+
+NOSENKO has described procedures entailed in a non-KGB visitor's gaining access to a KGB installation, but he maintained that the interviewer's name did not appear on the visitor's pass. (See p. 70.)
+
+**Comment:** The interviewer's name does appear on the pass, a fact which a senior officer of more than a decade's KGB Headquarters service would recall, since he would have frequent occasion to admit visitors to KGB buildings.
+
+### Name Checks of KGB Central Files
+
+NOSENKO on many occasions claimed that in connection with his direction of an operation he personally performed the check of the target's name against KGB files. Prominent among these cases were [BURGI] (see p.115) and ABIDIAN (p.205).
+
+**Comment:** NOSENKO could not describe specifically how he performed the name checks he claimed, and his description contained numerous errors of fact. Among these were assertions that the Militia retained court records of all Soviet citizens, and that the First Special Department holds its criminal index separate from political and security card indices. NOSENKO was unfamiliar with the KGB term spetsproverka, meaning a clearance check. Despite NOSENKO's claim that he performed name checks of American Embassy personnel, he pleaded ignorance of any aspect of the files held by the First Chief Directorate, where any KGB record on foreigners is kept.
+
+0001615
+
+344
+
+TS No. 197124
+
+Copy _________

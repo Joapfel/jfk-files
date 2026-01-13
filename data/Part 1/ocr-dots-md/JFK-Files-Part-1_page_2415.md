@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_2415.png
+
+Convert to MarkdownSECRET
+
+PREVIOUS CONCLUSIONS RE NOSENKO
+---
+AS CONTAINED ON PAGES 357 - 360 OF
+---
+
+"THE EXAMINATION OF THE BONA FIDES OF A KGB DEFECTOR"
+
+The following is a quote of the previous conclusions in the case of Yuriy Ivanovich NOSENKO. (The specific conclusions have been given the designation of A - G for purposes of easier correlation with other sections of this summary.)
+
+"SUMMARY OF CONCLUSIONS
+
+CONCERNING NOSENKO'S BONA FIDES"
+
+"NOSENKO claims that he served for a decade in the KGB in successively senior positions of authority from which he derived extensive knowledge of the scope, character, and results of KGB operations against Americans in the Soviet Union in the period 1953-1963. To substantiate his claim, he provides an impressive array of information about KGB personnel, organization and operations which, to the extent that it has been confirmed, is presumptive evidence of his bona fides. Various Soviet officials, including intelligence officers, have generally corroborated NOSENKO's claims. According to some of these sources, NOSENKO was a senior KGB officer who occupied a series of sensitive positions, who
+
+0001114

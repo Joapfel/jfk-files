@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_3891.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+Att. No. 8 to UFGA-21693
+
+SUBJECT: AULET, Inu
+aka: Pichi
+
+1. Source met Subject in early 1959 when both were appointed to a position in the Presidential Palace and they remained in contact, but not close friendship, until June 1959 when source left this position. Source has not seen Subject since. In 1961 source heard rumors that Subject had a post at the Ministerio de Relaciones Exteriores, but source does not know exact position held. About 1962 source heard rumors that Subject was in some communist country studying mechanics. When source left Cuba in March 1964 he was under the impression that Subject was still in this communist country studying. Subject is single and lived in Reparto Santos Suarez, exact address unknown. Source does not know if Subject has received any political, military or intelligence training, or if Subject has any relatives outside Cuba.
+
+2. Physical Description: DPOB: circa 1938, place of birth unknown to source. Race: white. 5'7" 125 lbs. Hair: dark. Eyes: dark. Shape of face: thin. Physique: slim. No visible scars.
+
+3. JEWAVE Traces: None.

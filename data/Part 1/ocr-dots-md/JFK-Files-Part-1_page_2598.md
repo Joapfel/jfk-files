@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_2598.png
+
+Convert to Markdown14-0000
+
+# Top Secret
+
+(Summary of Case)
+
+look foolish, but he was not able to suggest any changes of
+fact or presentation which would make them more accurate.
+Commenting on the use of interrogation reports, NOSENKO said
+on 4 March 1965: "My life story is absolutely correct.
+Anything I have signed is absolutely correct. I absolutely
+understand what I am doing when I am signing any paper.
+This is an official document, and I fully understand what
+I'm doing when I sign it as being absolutely correct."
+
+Further questioning was conducted from 26 July until
+14 August 1965 with the participation of Petr DERYABIN, a
+former KGB officer. These interrogations, held in Russian,
+were for the purpose of using DERYABIN's KGB experience to
+obtain a clearer understanding of NOSENKO's claimed personal
+and professional background.
+
+During the period 19-25 October 1966, NOSENKO was
+questioned for seven days on specific aspects of selected
+topics ranging from his identity to his involvement in and
+knowledge of specific KGB operations. Questioning was in
+both Russian and English. Although the interrogations
+identified topics and time periods in NOSENKO's accounts
+which contained the greatest number of contradictions and
+discrepancies, neither the contradictions nor the discrepancies could be resolved.
+
+Because of the incidence of deranged persons CIA has
+encountered among would-be defectors, the question of
+NOSENKO's mental stability was a matter considered early
+after his defection in Geneva. From his arrival in the
+United States in 1964 NOSENKO has been under psychiatric
+observation. A CIA psychiatrist and a CIA psychologist,
+both with extensive experience with Soviet Bloc defectors,
+monitored many of NOSENKO'S interrogations. In May 1965
+the psychologist for three weeks questioned NOSENKO on his
+life from birth until 1953, when NOSENKO claimed he joined
+the KGB, in an attempt to identify psychological factors
+which might underlie NOSENKO'S contradictory and inconsistent
+accounts. The psychiatrist has continued his periodic
+observations of NOSENKO to the present time. The psychiatrist
+and the psychologist concluded independently, on the basis
+of their observations, that NOSENKO was mentally stable.
+
+0001280
+
+TS No. 197124
+
+Copy ____

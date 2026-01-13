@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_2954.png
+
+Convert to MarkdownTop Secret
+
+(Annex B)
+
+Comment: (Continued)
+
+Interviewed by the FBI, BROCHES said that he escorted tours to the USSR three times in 1960, and that on his last trip, in September 1960, he was approached by Soviet officials for information on members of his tour group. BROCHES claimed he refused to cooperate and denied that he had ever been a Soviet agent. BROCHES said, however, that the allegation might refer to another of his brothers, Ignacy now dead.
+
+NOSENKO's information was limited to that contained in his written notes which he brought to Geneva in 1964. NOSENKO claimed to have been in the American Department when the Seventh Department recruited BROCHES.
+
+BUNDARIN, Eugene Peter
+
+NOSENKO's Information
+
+BUNDARIN, born in 1917, the son of a Russian emigre, and an employee of the "Four Winds Travel Agency" in New York City, was recruited by the KGB in 1962 on ideological grounds. He left the Four Winds agency and his case is inactive because the KGB is waiting for him to open his own travel bureau. BUNDARIN was handled by Seventh Department case officer V.G. DERA.
+
+Comment:
+
+BUNDARIN, born 25 April 1917, the son of an emigre and an employee of the Four Winds agency visited the Soviet Union for eighteen days in 1962. He left the Four Winds agency in 1962 to travel abroad, and he now works for Hermes Travel of California. Interviewed by the FBI, BUNDARIN denied any connection with Soviet Intelligence. FBI reports indicate
+
+0001638
+
+Top Secret
+
+TS No. 197124
+Copy ____ 16BR

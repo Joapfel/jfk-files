@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_2816.png
+
+Convert to MarkdownTop Secret
+
+(AMERICAN EMBASSY SECTION - January 1960-January 1962)
+
+NOSENKO said that "many" microphones were installed in the chancery building before the Americans occupied it, but he did not know how many were installed in all, how many were in any particular room on KOVSHUK's list, or where they were located in specific rooms. He did recall that most of the microphones were emplaced in the outside wall, the wall nearest Chaykovskiy Street, as most of the offices faced this street and microphones emplaced there were less vulnerable to technical search and discovery.
+
+According to NOSENKO, there were no fixed microphones in America House, the Embassy quarters of enlisted military personnel. In 1960-1961 there had been a discussion of using KGB agents employed there to emplace temporary audio devices for one or two days at a time in the rooms of the Americans, as well as in the Embassy garage. These plans were vetoed, however, because of the risk of discovery. For the same reason there was no attempt made in this period to emplace a device temporarily in Spasso House, the Ambassador's residence, or in the apartments of Embassy officers. The KGB was afraid that they would be detected and there would be a scandal.
+
+## Performance Characteristics of the Microphones
+
+According to NOSENKO in 1962, the audibility of the microphones in 1960-1961 ranged from very clear to zero, but the microphone system was deteriorating. The KGB could do nothing about it because they could not gain access to the inside of the Embassy. Referring to the microphone in the Minister Counsellor's office, NOSENKO said that it was becoming increasingly difficult to work with its product. The microphone was fading, and the recording tape sounded as if "somewhere far away, somewhere in the cellar, someone is speaking in a whisper". KUZMIN, the KGB officer responsible for the monitors, said that soon the KGB could recover nothing. Of the microphones then (in 1962) in place, about twenty no longer were operative.
+
+In 1964 NOSENKO referred again to the microphone in the Minister Counsellor's office. NOSENKO learned from DMITRIYEV [Deputy Chief of the English-language Section of OTU Second Special Department] how difficult it was to
+
+0001500
+
+TS No. 197124
+
+Copy ________
