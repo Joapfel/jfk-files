@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_7710.png
+
+Convert to Markdown14-00000
+
+<table><thead><tr><td>CC</td><td>DISPATCH SYMBOL AND NUMBER</td><td>DATE</td></tr></thead><tbody><tr><td>CROSS REFERENCE TO</td><td>HMMA-36581</td><td>25 February 1969</td></tr><tr><td></td><td>CLASSIFICATION</td><td>HCS THE INFORMATION</td></tr><tr><td></td><td>SECRET</td><td>✓ 201-285412</td></tr></tbody></table>
+
+<table><tr><td colspan="3">SUBJECT REDTOP<br/>Personality Assessment Questionnaire on Valentin Sergeyevich LOGINOV<br/>(201-285412)<br/><br/>ACTION REQUIRED - REACH OUTS<br/><br/>1. Forwarded herewith is a Personality Assessment Questionnaire on LOGINOV prepared by LIREALM-1 in February 1969.<br/><br/>2. By virtue of membership in the same club in which they are both active participants in the same activity, LIREALM-1 has known LOGINOV for a little over two years. In this club they have several mutual contacts. As a result LIREALM-1 has met LOGINOV several times at social activities in the homes of these contacts. Although LOGINOV has never been a formal target for LIREALM-1, the relationship has been close enough and of sufficient duration for LIREALM-1 to fill out a meaningful Personality Assessment Questionnaire.</td></tr><tr><td colspan="3">Flawless J. Congne<br/><br/>for/Willard C. CURTIS</td></tr><tr><td colspan="3"><strong>Attachment:</strong><br/>Personality Assessment Questionnaire h/w<br/><br/><strong>Distribution:</strong><br/>2 - C/SB w/att h/w<br/>2 - C/WH w/o att<br/>1 ATT (h/w) CS COPY 201-285412</td></tr></table>

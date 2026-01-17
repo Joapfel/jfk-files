@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_8615.png
+
+Convert to MarkdownSECRET
+
+-10-
+
+13. One of the above Mexicans turned out to be Alfonso SIBAJA C., who described himself as a mechanical engineer and industrial consultant. His address is Ezequiel 82, Mexico 14, D.F., and his telephone number is 17-88-85. This man is the husband of a lady he described as Press and Cultural Attache of the Greek Embassy. SISTONE was also introduced to her somewhat later and got the impression that she is not Greek but either all Mexican or perhaps of partial Greek ancestry. SIBAJA and SISTONE exchanged calling cards (SIBAJA'S is attached). SIBAJA said that he and his wife attend such functions as this reception quite frequently and definitely recalled not having met SISTONE before. The latter explained his recent arrival. SIBAJA claimed that he is a good singer of folklore songs and that his wife knows how to dance them. They have performed spontaneously quite often at diplomatic and consular affairs. Asked whether he would be going on the Cuerpo Consular excursion scheduled for late October, SIBAJA said he would like to go. He is a working man, however, and was not sure he could get away. SIBAJA and wife and SISTONE and wife established rapport rather easily, and all agreed they should meet again rather shortly. SIBAJA said that he is of partial French ancestry. He looks as though he might be Mideastern, however. He is proud that he is from JUAREZ' home state of Oaxaca. It would seem to SISTONE that this is
+
+SECRET

@@ -1,0 +1,57 @@
+# JFK-Files-Part-1_page_4517.png
+
+Convert to Markdown14-0000
+
+MESSAGE FORM
+TOTAL COPIES: 32
+
+ORIG : W.WAINWRIGHT:kas
+UNIT : SOD/AB/OPS/3 [ ] INDEX
+EAT : 4475 [X] NO INDEX
+DATE : 10 Jan 66 [X] FILE IN CS FILE NO.
+
+<table><tr><td>31</td><td>SECRET</td></tr></table>
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
+
+10 JAN 66 23 322
+
+TO : LEOPOLDVILLE JMWAVE
+
+FROM: DIRECTOR SJD CEN
+
+CONF: SOD 6 INFO: VR . FILE [X] RID COPY AF 7 WH/C 8 DDE/AIR, CT/OA,
+
+TO LEOP CHAPPIE WITHRUSH PBRUMEN
+
+REF: DIR 70172*
+
+WITH STATION CONCURRENCE AND IF SUBJ REFS NOT ALREADY DEPARTED,
+REQUEST THEY' held LEOP UNTIL MOCERINO (M) RETURN O/A 18 JAN 66. FYI, M
+DESIRES RE-EVALUATE AS RESULT PERSONAL EXAMINATION THEIR RECORDS AT
+MEANWHILE .
+WAVE. PERHAPS SUBJS USEFUL IN ADMIN DUTIES.
+Bartee
+Navarro
+END OF MESSAGE
+
+*Hqs concurred termination contracts two WITHRUSH pilots*
+
+SOD/AB/OPS/3
+AF/5
+WR/O/MO
+
+Brian Mills (phone)
+
+AP/COPA
+RELEASING OFFICER
+
+COOPERATING OFFICER
+
+SECRET
+
+RICHARD J. FINAN, JR.
+C/MO/All
+AUTHORIZING OFFICER
+
+SUBMITTING TO RESERVE CALLS ...

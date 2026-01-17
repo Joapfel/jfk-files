@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_9126.png
+
+Convert to MarkdownCorporación de Comercio Extranjero
+C. F. M. Co.
+
+a) Cortlydes Vinillos, S.A.
+
+b) Talleres Industriales, S.A.
+
+c) Monomercos Espanoles, S.A.
+
+d) Formica Espanola, S.A.
+
+e) Distylas, S.A.
+
+f) Sunyol, S.A.
+
+g) Casa Neel, S.A.
+
+Food Machinery Corporation
+1205 Piquemam Avenue
+San Jose, California 95106
+
+International Machinery Corporation Espanola, S.A.
+Dr. Elendino 35
+Mathis (16)
+Sale and rental of food processing machinery.
+
+Food Machinery & Chemical Co.
+(FNC Corporation)
+P.O. Box 1178
+San Jose, California
+
+Food Machinery Espanola, S.A.
+Fat 29
+Valencia 3
+Manufacturer of fruit packing machinery.
+
+General Electric Company
+International Division
+159 Madison Avenue
+New York, N.Y. 10016
+
+1. International General Electric Company of Spain, S.A.
+Madrid, España
+Arteca, José Antonio 38
+Malva (23)
+Representations.
+
+2. General Electricos Españoles, S.A.
+Flora MadridoROYUN 4
+Bilbao
+Manufacturer of electric machinery and equipment.
+
+3. Electrificación Dehesa
+Espanola, S.A. (E.D.E.S.A.)
+Central Carretero 3
+Bilbao:
+Manufacturer and distributor of electric household appliances.

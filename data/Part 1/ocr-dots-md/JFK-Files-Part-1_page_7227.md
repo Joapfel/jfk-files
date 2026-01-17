@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_7227.png
+
+Convert to Markdown- y reconienda vee la embajada de elgin otro pafla Latino - Americano.
+
+3 May.66
+
+Se pone en contacto con el capitán del barco "Volchovik" en Veracruz y pregunta si you apancoí do el marinero ruso. (Posteriormente se supo que dicho marinero había faltado a su babor por cuestiones de faldas)
+
+10 May,66
+
+El Dr. JUAN MANUEL FERNANDEZ RODRIGUEZ que dijo ser representante del Gobierno del Estado de México, le colicita viesa. LOQUINOV lo invita a que pase malana a la embajada.
+
+11 May.66
+
+ERICKA KAMERMAN iniste en tener sus documentos para poder aprovechar su viaje a Europa y visitar Moscó. LOQUINOV ofreció hablar con el embajador si es necesario " por la importancia que siente ; or ella".
+
+13 May.66
+
+Llamo la atención al gerente de la Agencia Vagon & Cook porque siempre que mandan pasaportes para sus vías no van bien requisitados.
+
+20 May.66
+
+Comisionado por KAZANTSEV, comunica al Lio. FERNANDO FLORES TRJEDA de Relaciones Exteriores el constante robo y extorsión de pinces en los autos diplomáticos.
+
+24 May.66
+
+DAVID ORNELAS de Mundos Toure, agradeció el obsoquo de folletos y revistas de la embajada.
+
+26 May.66
+
+BOCORRO FLORES replica d® visa al paaporte que no tiene fecha de vencimiento. LOQUINOV manifiesta que solamente d® visas a los paaportes en regla y que no lo importa que esa persona vaya en visita oficial.
+
+30 may.66
+
+Reserva paajees para Veracruz.
+
+10.Jun.66
+
+HERTA GONZALEZ PADILLA reclamá el incumplimiento del contrato de arrendamiento de la casa en Cuernavaca para el personal de la embajada.

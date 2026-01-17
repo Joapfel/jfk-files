@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_8341.png
+
+Convert to MarkdownI repeat, I am not interested in discussing relations with you or anyone else. I value your friendship too much to risk it that way. But there is something close at stake.
+
+**Risk to American businessman.** Your provocative statements to me in public can make it difficult for me to do business here. I think there is a great opportunity here to do business, and I want to take advantage of it. You are jeopardizing this. I have studiously avoided political involvement here. You make such involvement inevitable.
+
+**Threat to go to embassy.** If you continue to harrass me, I will go to the US Embassy and report your harrassment to the Security Officer. I will even ask to see someone in the CIA. And if I don't get satisfaction there, I'll go to the Mexican Foreign Office and tell them my story. I'll ask them to see that the harrassment is stopped and that I be protected from further provocations.
+
+**Would prefer not to do so.** There are several reasons why I would rather not do all that.
+
+1. First. It would probably put you on the spot. This would serve no real purpose since someone else would simply take over your assignments. And I consider you a personal friend, and would not want to see you in turn harrassed by the Foreign Service or denied entry to the United States. I would hope some day you might be assigned to the United States and see it first hand.
+
+2. Second. I have had very little contact with the embassy. I have very little confidence in civil servants. They usually are working for the government because they could never survive in private business. This may or may not be the case in your own embassy. The exception that proves the rule is our economic section which I have found helpful on various occasions.
+
+If I were to report you to the embassy, I would probably be harrassed by all the little functionaries far more than you have been able to do.
+
+If the CIA knew that I had a Soviet for a friend, I am sure that they would have all sorts of ideas about who I should say to you. This is one of the reasons I have never invited you to my home--and probably never will. I do not want the CIA to know of our friendship and to try to use it.

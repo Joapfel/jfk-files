@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_5460.png
+
+Convert to MarkdownSECRET
+
+15 June 1967
+
+MEMORANDUM FOR: C/WH/7
+
+SUBJECT: Clemard Joseph CHARLES
+
+1. At 1500 hours, the DCS representative, George Musulan, informed the Haiti Desk that Mr. BRUN, lawyer for Clemard Joseph CHARLES, had met COLONEL HOWARD L. BURRIS on 14 June and had passed the "word" to him plus allegedly the two letters from CHARLES. BURRIS assured BRUN that his plea would be taken to the White House level.
+
+2. DCS will keep Haiti Desk informed of further developments.
+
+R. Lehmann
+
+SECRET
+
+14-00000
+
+14-00000

@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_8638.png
+
+Convert to MarkdownPROD'T SALES REPORT
+
+COPIES MADE
+
+1. Salesman Oleo Chouchenko
+2. Supervisor John Francis - LIREAM-1
+3. Date/mccting 13-IX-69, 1000-1100 hours
+Site French Club
+4. Date/nศต mtg. None planned
+Site
+
+5. Administrative
+Not applicable
+
+6. Instructions to salesman
+Not applicable
+
+7. Report by salesman
+Has been playing tennis for two years. However, has always been active in sports, especially basketball and volleyball.
+
+Hovde. Asked is I new Bill Hovey (could have been Hovde). Said this was a businessman, an American but with military rank. The Directory shows
+
+Col. William J. Hovde (Am.); wife, Norma G. (Am.)). Destilby S.A., Miguel Cervantes Saavedra 25, z.17. Tel. 45-65-60. Res. Rio Escondido 20, Lomas-Hip.,z.10. Tel.20-71-38.
+Clubs: ChapGolf, WhFr, NavyL.
+
+Note: Win's address is Rio Esc. 16.
+
+8. Competition
+See item #9.
+
+9. Supervisor's comments
+
+1. It is possible that Oleg had been planning to contact me and had deliberately had placed himself in my path.
+
+2. It is also possible that Oleg, like all the other Soviets, hates to spend money and would rather play with another club member than to spend money on an instructor. He may be trying to build up a group of friends or acquaintances with whom he can paxxixxxxxxxxxplay.
+
+(continued next page)

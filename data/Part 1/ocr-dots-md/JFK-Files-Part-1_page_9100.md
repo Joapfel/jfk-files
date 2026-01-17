@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_9100.png
+
+Convert to MarkdownCONFIDENTIAL
+
+14-00000
+
+Larry Others
+
+Lorillard, Inc. and features of its business and operations of the Company are disclosed only in connection with certain uses or purposes of such material as follows:
+
+1. Ted Richman, President of TVT (TVT is a division of TheTVCo, Inc.)
+
+2. Marites de Vitera and Lahti Salas, BANK OF AMERICA, N.A.
+
+3. Floriano Mazzacuso, President of FMTO Films
+
+4. Jejomar de la ROSA, member of the in EBCA family (ship-building) in Lissabon
+
+5. Donald Daniels, President of International Commodities Corp.
+
+6. Mr. J. Coma, Executive Vice President
+
+CONFIDENTIAL
+
+Lorillard, Inc. and features of its business and operations of the Company are disclosed only in connection with certain uses or purposes of such material as follows:
+
+1.

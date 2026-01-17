@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_7218.png
+
+Convert to Markdown30 July 1968
+
+S.B.C. 
+
+the office 
+of the Secretary of State.
+
+1. On 29 July 1968, the C.O., and the following Soviet travel arrangements: Serrovy Konstruktivnyy, V. Semy�elev, and child, Nikita, confirmed on Sabena for 24 August, Leningrad/Moscow, 26 August. Vladimir Gorcharenko, V.V. (wife), children, Horina and Vladimir, Sabena, 7 August. Brussela/Moscow, 9 August.
+
+Re Licencinado Luciano Lara- dropped into Subj's office 28 July (?) and was every official. When Subj did not have confirmed travel to Satellite countries (including Romania and Czechoslovakia) ready, Lara fused and said he would go to Moscow and make his arrangements from there. Plans stay in Moscow a month. Has free ticket on Approved Mexico to Madrid. Subj booked him for travel from Madrid to Moscow, via Amsterdam, and return.
+
+Valentin Logvinov had dropped in to Subj's office on 27 July but Subj was too busy to see him. Logvinov called Subj on 28 July and made an appointment to see Subj at 1200 on 29 July at the Flor de Mexico restaurant near Subj's office.
+
+The C.O. agreed to Subj that he continue to play the same tune with Loginov of friends, yes-work, no.
+
+2. On 30 July the C.O. saw Subj briefly in his office; Subj's wife had accompanied him to the office because she will be remaining it while Subj is away on his European trip starting 30 July. According to Subj, his wife is not sitting of the C.O. except as a friend of his. Both the wife Esther, around, Subj was able to manage only a brief meeting of his meet-with Loginov on 29 July. The evicted power play by Loginov did not take place- he met with Subj just to confirm Pavel Yatskov's travel arrangements and to ask Subj again if they could bring Subj anything from Moscow. Tatshev dropped in to the Flor de Mexico too, but contributed nothing to the conversation. Subj said he didn't want anything from Moscow (he had given Prilozhsko fifty dollars to bring him back two kilos of caviar).
+
+For the promised additional information on the group who were going to the Microbiological Congress in Moscow (see previous Contact Report for complete list), Subj turned over to the C.O. the attached list which gives only telephone numbers of the professionals going to the Congress, and in some cases the positions.
+
+The C.O. told Esther that he might drop in to the office, if he could do anything for her. Note: Subj not due back until the end of August.
+
+C.Y. to P-855
+P-11712
+
+P-9137
+P-9371
+
+O.O. to Leningrad
+P-2712
+
+P-2712

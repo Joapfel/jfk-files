@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_6164.png
+
+Convert to Markdown2. (U) Background:
+
+a. On 7 August 1975, Ms. Nancy Barnes wrote the CIA requesting "...any information and documents that concern..." an organization called the African Research Group. Ms. Barnes explained that the African Research Group is "an inactive, but still existant" research group of which she is the president. Ms. Barnes also stated: "...as an individual I would like to request any information concerning my activities."
+
+b. The 6 April 1976 response to Ms. Barnes stated seven DDO documents were being released in sanitized form. This memorandum also stated that FBI and State Department documents had been surfaced in our search and that these were being referred to the originating agency for action. Ms. Barnes was also informed of her right to appeal.
+
+c. On 5 May 1976, Ms. Barnes appealed.
+
+d. At the initial review, the search was limited to information about Ms. Barnes, including any association with the African Research Group. During the appeal review the search was broadened to include any information about the African Research Group, regardless of Ms. Barnes's association with it. This later search located additional documents which are included in this appeal package.
+
+3. (U) Recommendations:
+
+a. Tab A-1 contains nine overt documents that I recommend be released to Ms. Barnes in toto.
+
+b. Tab B contains the DDO documents that were considered in this appeal case. The Appeal Review Form attached to each of the documents reflects my recommendations concerning the release of the information in the document. All meaningful, non-exempt information applicable to this request has been identified and is recommended for release. A classification review has been conducted on each of the DDO documents reviewed in this appeal case. A DDO officer with national security classification authority has asserted that each document is properly classified and marked in accordance with E.O. 11652, as amended.
+
+SECT..

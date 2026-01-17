@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_4209.png
+
+Convert to Markdown<table><thead><tr><th>CLASSIFIED MESSAGE</th><th>TOTAL<br>Copies</th></tr></thead><tbody><tr><td colspan="2">SJE CRET 84223BZ<br>DIR CTE SJOS 7163<br>BRIEF/TYPIC/TOGSS/AMERLD</td></tr><tr><td colspan="2">25 Nov 64 min 30071</td></tr><tr><td colspan="2">MANUEL ARTIME BUESA LEFT COSTA RICA 29 NOV PAA 501.</td></tr><tr><td colspan="2">SECRET</td></tr></tbody></table>

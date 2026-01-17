@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_8280.png
+
+Convert to Markdowncommented that the existing problem was created by Subject and his
+not compliance with the instruction; the only way out of it now is
+to do what I told him in the car.
+
+8. In reply to F's question Subject stated that the 2 Americans who arrived here on Sunday July 6 were interested in investing capital in a large number a housing project for people of low income. He added that one of them is owner of a mining corporation and the other one is from the Beneficiary (if remembered correctly) Insurance Co. He believes that they were satisfied with the findings so far but it will take about a month before the deal materializes, because the approval of appropriate board was needed.
+
+9. Subject showed to F a calling card of Mr. C. Lester McGee (or MacGee), President of Moon Valley Mining Corporation, 3113 Oakland Ave (or Street), Dallas, Texas. There were at least two other addresses listed which he did not remember. Subject went on to say that Mr. MacGee was interested in buying platinum, but Subject told him that Mexico had no platinum and that once the Soys were trying to sell a quantity in Mexico. Mr. MacGee told Subject to look into the matter and explained him the mechanics of the deal. Soyl would have to make a firm offer to a Swiss company which is controlled by a Canadian company which is in fact a subsidiary of an American company: ultimate destination of the platinum is the U.S. Reportedly, the deal is all the way through a clean legal commercial transaction and terms of payment would be Irrevocable, Confirmed Lester of Credit, cash on delivery in Switzerland. The initial purchase would be 5,000 ounces but there is still to buy up to 1 trillion dollars worth of platinum. Subject asked he should he ask LOC are the Soys interested in the deal.
+
+10. If told Subject he should tell about it to LOC if there is a commission for the person who facilitates the deal. According to Subject there is a US$1.- commission per ounce if he can provide the goods. If told Subject he should express the desire that LOC obtain the info himself and if the answer is favorable and the price right then LOC can introduce Subject to the Sov official who will

@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_9322.png
+
+Convert to Markdown14-00000
+
+Re "Stalin" Photos
+---
+Shub's returned to him = highest
+# = #68
+102 photos limmowed out for
+return to CIA Monday.
+CIA has sent us
+202-68 shuts = 134
++ #208-227. 25
++ ## 228-235 sec'd
+Aug. 1, '50. 8
+---
+TOTAL 167
+Returning 102
+Should leave 65
+---
+Actually taking 83 "yes"s to Mrs. P. Monday.

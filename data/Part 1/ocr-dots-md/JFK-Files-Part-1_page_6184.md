@@ -1,0 +1,466 @@
+# JFK-Files-Part-1_page_6184.png
+
+Convert to Markdown<table>
+    <tr>
+        <td>INCF: ☐ YES ☑ NO</td>
+        <td>19</td>
+    </tr>
+    <tr>
+        <td colspan="2">CLASSIFIED MESSAGE B TOTAL COPIES</td>
+    </tr>
+    <tr>
+        <td colspan="2">1374, 5/27/86 10:05 AM</td>
+    </tr>
+    <tr>
+        <td>B-REF TO FILE NO.</td>
+        <td></td>
+    </tr>
+    <tr>
+        <td>FILE RID ☑ RET. TO BRANCH ☐</td>
+        <td>D. T. Wallace</td>
+    </tr>
+    <tr>
+        <td>DESTROY ☑ SIG.</td>
+        <td></td>
+    </tr>
+    <tr>
+        <td colspan="2">D. S. E. 25/M.</td>
+    </tr>
+    <tr>
+        <th>ACTION</th>
+        <th>ADVANCE COPY ☑ RID COPY ☐</th>
+        <th>UNIT</th>
+        <th>TIME</th>
+        <th>BY</th>
+    </tr>
+    <tr>
+        <td>MIL C 8</td>
+        <td>[x] [ ] [ ]</td>
+        <td></td>
+        <td></td>
+        <td></td>
+    </tr>
+    <tr>
+        <td colspan="3">WAVE<br/>JAN 25 1975</td>
+        <td></td>
+        <td></td>
+    </tr>
+    <tr>
+        <td colspan="5">SECRET GROUP SITE (MAY 17 1975)</td>
+    </tr>
+    <tr>
+        <td colspan="5">MADRID INFO DIRECTOR</td>
+    </tr>
+    <tr>
+        <td colspan="5">TYPE: REF MADRID 9464 (05.20.86)*</td>
+    </tr>
+    <tr>
+        <td colspan="5">1. NO ADDITIONAL DETENTION TRACES SUBJ REF 20 Oct 66 IN 22060</td>
+    </tr>
+    <tr>
+        <td colspan="5">2. VIEW SUBJS CONNECTION ANHINTS, STATION WOULD APPRECIATE RECEIVING RESULTS SUBJS DEARIEFING, SECRET! *REQUEST TRACES RENE BRANCO</td>
+    </tr>
+    <tr>
+        <td colspan="5">ST</td>
+    </tr>
+    <tr>
+        <td colspan="5">SECRET</td>
+    </tr>
+</table>
+
+9T
+
+19-124-26/3
+
+20 Oct, 1966
+
+SECRET
+
+SECRET
+
+SECRET
+SECRET
+SECRET
+
+SECRET
+SECRET
+
+SECRET
+SECRET
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET

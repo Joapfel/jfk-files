@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_5744.png
+
+Convert to MarkdownSECRET
+
+TO:
+
+1. Bw
+2.
+3.
+
+DATE: 31 Jan 74
+
+SUBJECT OF REQUEST:
+201- 169934
+Coe, Virginia
+..................................................
+...................................................
+
+REQUESTER: Jackie
+COMPONENT: IP/EIBa
+PHONE: X1885
+T.C. ✓ or P.C. __
+
+FILE REQUESTED:
+DOC. REQUESTED:
+SYMBOL & NO.
+DATE:
+
+REASON REQUESTED:
+trace for FBI. Any derogatory
+No Delay
+
+ACTION TAKEN:
+
+SECRET

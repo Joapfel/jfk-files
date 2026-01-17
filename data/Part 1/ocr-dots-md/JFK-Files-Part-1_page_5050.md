@@ -1,0 +1,66 @@
+# JFK-Files-Part-1_page_5050.png
+
+Convert to Markdown10/09/84
+
+SECRET
+FRP: .2.7 .2.7 .
+
+INTEL
+
+ACTION: LA-13 (287) INFO: FILE, VR, DDD-4, C/PCS, CI-4, EPS/EG-2, IID, IP/DMS, LSN/ID, ODPD-D, PCS/INT-5, SIA, SIA/FL, SIA/IC, (37/n)
+
+78 0366244
+
+PAGE 001 OF 001
+TOR: 281740Z FEB 78
+
+IN 0366244
+CARA 35621
+
+SECRET 281715Z FEB 78 INTEL
+
+CITE CARACAS 35621
+
+TO: DIRECTOR INFO LA/MIAMI.
+
+INNTELU INTEL KMSTONE
+
+SUPDATA: SOURCE: WKDIET/WKDIET-5 DIRECTLY AS DESCRIBED IN CARACAS 35583. NOT FOR LIAISON. OD OBJECTIVE: J.1.
+FILE DEFERRED. CL BY 013533.
+
+FILED: 281715Z XXXXX
+
+TDFIR DB-315/02855-78
+MVC-7858
+
+<table>
+  <tr>
+    <td>RECORD COPY</td>
+  </tr>
+</table>
+
+SECRET
+
+
+
+<table>
+   <tr>
+    <td colspan="3"> feb 17 1978 </td>
+   </tr>
+   <tr>
+    <td> 20 - 299292 </td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td> 30 7th 78 </td>
+    <td></td>
+    <td></td>
+   </tr>
+  </table>
+
+14-00000
+
+104-10164-10099
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992

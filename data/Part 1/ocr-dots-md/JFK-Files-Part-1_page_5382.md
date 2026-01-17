@@ -1,0 +1,57 @@
+# JFK-Files-Part-1_page_5382.png
+
+Convert to Markdown# INFORMATION REPORT
+CENTRAL INTELLIGENCE AGENCY
+
+The information contained in this report affecting the National Defense of the United States under the control of the Intelligence Laws, Title 18, USC Section 743 and 754, shall not be transmitted or reproduced by any manner to an unauthorized person, nor shall it be used by any other Government agency.
+
+C-0-8-7-1-D-9-7-1-A-1
+
+CONTROLLED UNCLASSIFIED
+
+CIA INTERNAL USE ONLY
+
+NO DISSEMINATION ABROAD
+
+COUNTRY Haiti
+
+REPORT NO OC-6/22/77/14068-68
+
+DATE DISTR
+
+NO. PAGS 2
+
+REFERENCES DCB Cases 40,556 and 47,540
+Supplement to: 00-8-321/12106-68
+
+SUBJECT Cleaver Joseph-Charles Must Raise US $600 Thousand Before He Can Become His Banking And Other Activities/Outlier Of Charles's Plans/President Devalier Reportedly Hopes To Improve His Image And To Attract Foreign Capital And Business Activity/ Restore Conditions Concerning Possible Reorganization Of Haitian Government at DATE OF INFO May 68
+
+PLACE & DATE ACQ Port-au-Prince, Haiti, May 68
+
+THIS IS UN EVALUATED INFORMATION
+
+SOURCE: Naturalized US citizen of Haitian birth. Source maintains close contacts with Haitians in the US and with prominent business and political figures in Haiti and travels at irregular intervals to the Caribbean countries.
+
+1. Cleaver Joseph-Charles was released from prison during the evening of 23 Apr 68 in return for a "reason" of US $600 thousand.
+
+2. Charles has been given until 24 May 68 to produce the US $600 thousand. This sum must be in an irrevocable letter of credit on an American bank in favor of the National Bank of the Republic of Haiti. It has been intimated that the 24 May 68 deadline can be extended, should Charles be experiencing any really unusual difficulties in producing the required money.
+
+3. In order to obtain his release from prison, Charles had to sign a memorandum of understanding that he would produce the US $600 thousand plus some unidentified real property. These terms were agreed to by both Charles and his wife prior to the release. At the same time, Charles wrote a personal letter to President Devalier asking for release and promising to hand over the money and property in question.
+
+4. Charles is now under house arrest in Port-au-Prince, Haiti.
+
+5. Charles's immediate resources consist of about US $100 thousand in cash in two US banks (no additional data available), various homes, businesses (essential cells, an automobile dealership and others (no additional data available)), buildings, land and about US $100 thousand worth of Haitian government bonds. He did have another US $300 thousand in personal funds in Haiti. He can no longer count on this money to help raise the US $600 thousand, however, because prior to his release from prison the Haitian authorities (no additional data available) confessed it.
+
+6. Charles has agreed to raise the US $600 thousand on condition that it be used to pay off legitimate claims of depositors in his Banque Commerciale d'Haïti. He has stated that he will permit the money to be paid out only to those depositors who are able to produce documentary proof that they had deposited funds in his bank.
+
+INFORMATION REPORT INFORMATION REPORT
+
+<table><tr><td>U</td></tr><tr><td>80</td></tr></table>
+
+<table><tr><td>Ledoit<br/>Insured from insurance<br/>purchasing the<br/>underlying debt</td></tr></table>
+
+<table><tr><td>S</td></tr><tr><td>80</td></tr></table>
+
+CONFIDENTIAL/CIA INTERNAL USE ONLY
+
+The dissemination of this document is limited to civilian employees and active duty military personnel within the intelligence components of the USIB member agencies, and to those senior officials of the member agencies who must act upon the information. However, unless specifically controlled in accordance with paragraph B of DCID 1/7, it may be reissued to those components of the departments and agencies of the U.S. Government directly participating in the production of National Intelligence. IT SHALL NOT BE DISSEMINATED TO CONTRACTORS. IT SHALL NOT BE disseminated to organizations including consultants, under a contractual relationship to the U.S. Government without the written permission of the originator.

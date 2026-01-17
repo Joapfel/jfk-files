@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_8556.png
+
+Convert to MarkdownSECRET
+
+Section Chief: C/SB
+COS:
+DCOS:
+C/IC:
+EXEC. ASST.
+RECEIVED: SB/SEC P-2712
+P-7442
+
+DATE: 4 Aug 69 P-11,712
+P-1812
+P-2270
+
+1. Agent/Subject: LICOZY-5
+
+2. Case Officer Vincent P. RIZZUTO
+
+3. Date and site of contact: 4 Aug 69 at Restaurant Parque
+
+4. Date and site of next meeting: Subject will call--see below
+
+5. Administrative (salaries, accountings, etc.)
+
+Subject mentioned near the close of the meeting that he owed me $600 (US) for the TV set which COIGNE had obtained for him. I said that I thought this was a gift but Subject said no, he insisted on paying for it and would do so shortly. Meanwhile, a part has burned out and he can not obtain a replacement in Mexico because this particular model is not made in Mexico. He will call in with the details and I will try to get it for him.
+
+6. Information/Instructions passed agent:
+
+None
+
+7. Report/Information received from agent: (use back if necessary)
+
+Subject had been in Europe and Israel for several weeks since our last meeting. Nothing of particular interest developed on this trip.
+
+Before he left, Subject was invited by NECHIPORENKO (P-7442) to celebrate the latter's birthday (which happens to be 4 July). Subject tried to beg off but NECHIPORENKO refused to take no for an answer and actually came to Subject's apartment with KOSTIKOV to bring Subject to NECHIPORENKO's apartment. Since NECHIPORENKO'S wife was away, three girls from the Piano sky Chorus were awaiting the three men. Considerable drinking was done and Subject said it was obvious why they had asked him since the third girl needed a partner. Her name was Nina BUCHAROVA. Subject said that all of the girls were quite attractive and "available for anything." Subject said that he understood that most of the girls in the Chorus fit this category and that they would simply wait until their housemother was asleep before going out and getting some action.
+
+Subject and NECHIPORENKO actually have a good personal relationship.
+
+8. Security:
+None
+
+9. Miscellaneous:
+
+Subject solved a mystery of where GESTATNER was during his recent visit. Subject had not GESTATNER at the airport and had wined and dined his family during most of the time that GESTATNER was here. No wonder GESTATNER had no time for LIBERTY-5 or anybody else.

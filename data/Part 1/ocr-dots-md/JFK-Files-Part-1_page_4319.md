@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_4319.png
+
+Convert to Markdown-3-
+
+| | |
+|:---|---:|
+| Antonio Crespo Olivero | 300.00 |
+| Angel Garcia Alvarez | 275.00 |
+| Antonio Banz de Acedo | 200.00 |
+| **TOTAL EXPENSES** | **$12,530.00** |
+
+As you see, in July I spent $530.00 more than I received, without taking into account the expenses for my travel in Latin America, or my personal expenses of my family, with which I have to maintain my wife, two sons and parents.
+
+AUGUST
+
+Received from the Conselho - $12,000
+
+I spent it as follows:
+
+"Tridente" magazine $ 3,000.00
+Radio Time 1,805.00
+Office
+(I had to increase expenses as follows:
+Office supplies $100.00
+Light & telephone 50.00
+Mile Messenger
+ (secretary) 275.00
+$ 1,825.00
+Delegated in Costa Rica 350.00
+Delegated in Venezuela 450.00
+Delegation in Spain (I cancelled Hago Robrero) 400.00
+Delegated in Honduras 350.00
+Delegated in Guatemala 200.00
+Clanpestine work 4,625.00
+---
+TOTAL FOR AUGUST $12,705.00
+
+As you see, in August I spent $705.00 more than I received, without accounting for my travel expenses, nor my personal expenses of maintaining my home and parents.
+
+DECEMBER
+
+Received from the Conselho - $12,000
+
+I spent it as follows:
+
+"Tridente" magazine $ 3,000.00

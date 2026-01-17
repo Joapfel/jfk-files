@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_6534.png
+
+Convert to Markdown14-00000
+
+- 2 -
+
+NY#399-69
+
+12 June 1969
+
+3. We wish to emphasize that Cummings made none of the statements to us that he did in paragraph two of reference memo. On the contrary, in response to our direct question, Cummings said that his objections were those of principle rather than of manner of approach by the NYPO. At no time during our conversation with him did he make any objection to the procedure set up between him and C/S Elliff to facilitate the acquiring of the information we requested. We do not have any doubts that Cummings did indeed make the statements attributed to him in reference memo, but it is at least interesting that he specifically refuted them in our presence. After displaying nothing but hostility toward the Agency during our entire meeting, he invited us to call upon him in the future if he "could ever do anything for us personally." Obviously we do not expect to contact him on any basis in the future and we are certain that he does not anticipate further inquiries from this office.
+
+4. C/S Elliff reports as follows on her contacts with Cummings and other officials of the Dept. of Immigration, US Catholic Conference:
+
+"The first contact with Cummings was on 11 Sept 68 and the results of that meeting are contained in NY#677-68 of 11 Sep 68. This was a straight-forward request for information on how the US Catholic Conference would handle the influx of refugees. As can be seen from the memo, Cummings was cooperative and, in fact, offered more assistance to us than we later requested. We spoke on the telephone with Cummings a few weeks later to say that, in all likelihood, we would only be needing to ask for address information on selected refugees occasionally. For this information, he referred us to Mrs. Irene Bilinski. On 12 Dec we saw Mrs. Bilinski who was cooperative in furnishing information on a specific Czechoslovak refugee. Upon our return from Washington in late January 1969, a number of requests had piled up and we tried to obtain the needed information through Mrs. Bilinski. She pleaded that they were very busy, extremely behind in their filing and asked that we call on her later. B-69-169"}]

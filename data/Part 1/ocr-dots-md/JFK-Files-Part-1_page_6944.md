@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_6944.png
+
+Convert to Markdown# Dame Fortune keeps popping up
+## in life of SFU's oldest professor
+and has taken him to Mexico, Cuba,
+Moscow — and to 'best place of all'
+
+After the war, Dr. Halperin worked with the United Nations for a couple of years and then joined the faculty of Boston University where he was involved in the establishment of an interdisciplinary department of Latin American studies.
+
+During this period he visited Brazil twice, lecturing at the University of Sao Paulo and serving as a consultant to the state government of Sao Paulo. After his second visit, he was decorated by the Brazilian government with the Order of the Southern Cross.
+
+It was then that chance interposed again, this time in a most malicious way.
+
+"My stay at Boston coincided with the most intense period of McCarthyism and this raised problems for a great number of people at the time. In my own case, I was given the choice of co-operating with the Inquisition or, as it turned out, losing my job.
+
+"Among other disagreeable aspects of co-operating, it would have turned me into an informer against people who, as far as I know, had committed no crime. I just couldn't think of facing my students with their knowledge that I was an informer."
+
+Leaving Boston University, he went to the National University of Mexico City where he remained for six years. While working there, he did some consulting work for the Mexican government, thereby gaining further practical experience on the problems of underdevelopment in Latin America.
+
+This experience led directly to his next position - a three-year appointment at the Academy of Sciences in Moscow. Halperin explains:
+
+"At that time, the period when Kruschev was trying to loosen up some of the rigid controls of Stalin's dictatorship, there was a desire at the Academy to have some western expertise on Latin American developmental problems. In other words, my Mexican experience was a direct prerequisite for the Moscow invitation.
+
+"It's strange how, in retrospect, what seemed to be a rather difficult choice in 1953 turned out to be very lucky. You never know. Something happens that can crush you or, on the contrary, can make you healthier and more robust than you've ever been before.
+
+"And, when the invitation came from Moscow, I was footloose and free. My status in Mexico was always that of a visiting professor, so I had no problem of security - tenure or pension, for example - to tie myself down when it came. I had nothing to lose and everything to gain."
+
+Dr. Halperin spent three years at the Academy and found it to be an extraordinary experience. "I wasn't there as a tourist; neither was I there as an outside researcher. I was actually in the machine, with no permanent ties to it. I was working in the factory, rather than just studying it."
+
+Foto once again intervened in his life, this time in the form of the celebrated Latin American guerrilla loader, Che Guevara.
+
+"Late one night, there was a knock on my door and I opened it and there stood Che with a couple of his Cuban friends. He had been told about me by mutual friends in Mexico and they suggested that, in view of the need for competent educators and social scientists in Cuba, I might be interested in accepting an invitation to teach at the University of Havana."
+
+As it happened, Dr. Halperin was interested. He spent the next six years in Cuba, and after leaving, produced a book on the country – *The Rise and Decline of Fidel Castro: An Essay in Contemporary History*. It was published by the University of California Press and a second edition, in paperback, has recently appeared. (Incidentally, Dr. Halperin's published work spans 45 years and "several thousand pages.")
+
+As with the Moscow appointment, it was the fact that he was freed of concerns about job security, since he had none, which allowed him to accept Guevara's offer.
+
+Although Cuba was "a very pleasant country," Dr. Halperin found life there to be somewhat concerning since, "as a highly-paid foreign expert, I lived high off the hog and didn't share the austerity of the rest of the country."
+
+"And it was troubling, you know, when neighbors would knock on our door to see if we could spare a thimbleful of salt or a tablespoon of cooking oil and there we were, sitting with everything at our disposal."
+
+And a further quirk of fate, naturally, brought him to Simon Fraser in 1968. He'd met a Canadian while in Havana and one day, about a year later, he received a phone call "from a place called Burnaby." It was the same Canadian, inviting him to participate in a seminar on Latin America, with "all expenses paid."
+
+When he received the invitation, in the spring of 1968, he had already resigned his position in Havana and was planning to return to the United States the following September. "When the invitation came,

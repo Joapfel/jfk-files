@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_5033.png
+
+Convert to MarkdownCONTINUATION OF
+DISPATCH
+
+CLASSIFICATION
+SECRET
+
+DEPARTMENT AND NUMBER
+HDCA-11056
+
+D. It appears that BOSCH entered Guatemala City by air on 30 March and departed 31 March (p. 15).
+
+E. BOSCH arrived in Santo Domingo at Las Americas airport on 31 March (p. 15).
+
+3. BOSCH told EMCLIPPER-1 that the real PANIAGUA had undertaken most of the travel shown in the passport, but EMCLIPPER-1 did not establish the date the passport was acquired by BOSCH or how.
+
+4. As reported Ref A, BOSCH was deported to Costa Rica via Managua on 29 August on Iberia Flight 979. EMWISE-15 reported that the PANIAGUA passport was used to deport BOSCH.
+
+Rutherford J. LYNER
+
+No. CONTINUED

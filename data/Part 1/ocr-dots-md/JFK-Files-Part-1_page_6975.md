@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_6975.png
+
+Convert to MarkdownRETURN TO: LYNCH
+
+DATE: 9/18/68
+File # 100-21511
+
+NAME: HALPERIN, EDITH
+NEE: FRISCH
+
+Born: 7/6/07
+Indiana
+
+INS & AS 332 326
+
+ADDRESS: Medellin, 36, Apt. 9, Col. Roma, Mexico
+
+SEP 10 1968
+
+19 SEP 1968
+
+NAD 80 FEB 1950 U4S
+
+11 OCT 1968
+
+PP
+
+201--128561
+
+19 SEP 1968

@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_6759.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="5">DOCUMENT TRANSFER AND CROSS REFERENCE</th></tr><tr><th>SUBJECT OF DOCUMENT</th><th colspan="4">DOCUMENT IDENTIFICATION</th></tr><tr><td>American Communists in Mexico and Their Contacts</td><th>RI FILE NO.</th><td>50</td><td>4</td><td>120</td><td>30</td></tr><tr><td></td><th>DISPATCH OR SOURCE DOC. SYMBOL NO.</th><td colspan="4">HNN-1300</td></tr><tr><td></td><th>SOURCE CRYPTOGRAM</th><th>DATE OF INFO.</th><th>EVALUATION</th><td></td><td>B-Doo</td></tr><tr><th>ANALYST</th><th>DATE PROCESSED</th><th>DISSEMINATED IN</th><th>DATE</th><td></td><td></td></tr><tr><td>D Heron</td><td>13 Sept 57</td><td></td><td></td><td></td><td></td></tr><tr><th colspan="6">DOCUMENT DISPOSITION</th></tr><tr><th>X</th><th>CROSS REFERRED TO THIS FILE</th><th>TRANSFERRED TO RI FILE NO.</th><th></th><th></th><th></th></tr><tr><th colspan="6">PERTINENT INFORMATION</th></tr><tr><td colspan="6">Report from Mexico City, Mexico</td></tr><tr><td colspan="6">Source: IFEAT/LITHOSPHERS</td></tr><tr><td colspan="6">Date of Info: 12 Sept - 21 Oct 55</td></tr><tr><td colspan="6">VERBATING:</td></tr><tr><td colspan="6">The following information concerning American Communists in Mexico and their contacts has been developed.</td></tr><tr><td colspan="6">1. On 12 September a meeting was held of stockholders in the ice cream business which functions under the management of the American Communist, Robert STRAND. This business is believed actually to be owned by the leading American Communist, Frederick Vanderbilt FIELD. The meeting was held at the home of STRAND, and was attended by the American Communists Maurice HALPERIN and Noah SEBORER and possibly by other stockholders.</td></tr></thead><tbody><tr><td colspan="2">FILE THIS FORM IN FILE NO.</td><td>201</td><td colspan="2">189053</td></tr></tbody></table>
+
+SECRET
+
+14-00000
+
+<table><tr><td>Form no.</td><td>867</td><td>Revised from 007. 1 Nov 96</td></tr><tr><td>1 Mar 96</td><td></td><td></td></tr></table>

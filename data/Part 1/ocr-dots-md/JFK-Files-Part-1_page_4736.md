@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_4736.png
+
+Convert to MarkdownCUTTING MESSAGE
+
+<table><tr><td>0</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td></tr><tr><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td></tr><tr><td>1</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td></tr><tr><td>2</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td></tr><tr><td>3</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td><td>-</td></tr></table>
+
+CONF.:
+
+EPO: FILE
+
+855957
+
+D - D - D - D - D - D - D - D - D - D - D - D - D - D - D - D - D - D - D - D - D
+
+EASSEMS OF:
+PER
+S
+
+NYC UNDER THE SPONSORSHIP OF CUBAN NATIONALISTIC ASSOCIATION (CAN) AND THE MIRR. IN 1967, HE WAS CHARGED WITH VIOLATION OF FLORIDA STATE LAW CONCERNING THE TRANSPORTATION OF EXPLOSIVES.
+
+IN 1968, HE WAS CONVICTED IN A MIAMI FEDERAL COURT OF CHARGES RELATING TO BOMBING OF SHIPS, CONSPIRACY AND EXTORTION. SERVED A SENTENCE IN THE ATLANTA FEDERAL PENITENTIARY AND WAS RELEASED ON PAROLE IN DECEMBER 1972. HE SUBSEQUENTLY FOUNDED A SMALL ACTION GROUP OF CUBAN EXILES CALLED ACCION CUBA. (AC). IN 1974 THE FBI HAD AN ARREST WARRANT OUT FOR BOSCH AND CONSIDERED HIM DANGEROUS. HIS GROUP HAD CLAIMED CREDIT FOR SENDING PACKAGE BOMBS TO CUBAN CONSULATES IN LIMA, OTTAWA AND MADRID. IN NOVEMBER 1974, HE WAS REPORTED TO BE IN CARACAS USING ALIAS DOCUMENTATION AND DISGUISE. IN FEBRUARY 1976, HE WAS ARRESTED IN SAN JOSE, COSTA RICA FOR ENTERING THE COUNTRY WITH ILLEGAL CHILEAN DOCUMENTS.
+
+VARIOUS SOURCES REPORTED BOSCH WAS SUPPOSEDLY PLANNING TO KILL SECSTATE KISSINGER AND/OR CUBAN AMBASSADOR IN CARACAS OR A NEPHEW OF SALVADOR ALLENDE, CHILEAN EXILE LUIS ANDRES PASCAL ALLENDE, WHO WAS THEN IN SAN JOSE. IN APRIL 1976, HE WAS
+
+DATE:
+ORIG:
+UNIT:
+EXT:
+
+SECRET SERVICE OFFICER
+
+CLASSIFICATION:
+
+REPRODUCTION:
+
+THREE TIMES THE ISSUED OFFICE IS TO BE SWAP BY: SECRET
+
+CL BY:
+
+IMPORT/OUTGOING
+
+14-00000

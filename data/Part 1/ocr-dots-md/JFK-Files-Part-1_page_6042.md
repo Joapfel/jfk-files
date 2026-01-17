@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_6042.png
+
+Convert to Markdownamong all the Delegations and a day was appointed for their publication in
+all places of the continent. Thus, a great success was achieved. This
+same the photographs were published in almost all the Latin American news-
+papers, and, later, they were even published in extra-continental press.
+
+It is of vital importance to point out the success achieved by the photog-
+graph exhibition, organized by the photograph department of the Section of
+International Relations. This exhibition was composed of 30 enlarged
+photographs to be shown at public squares and organizations and were sent
+to each Delegation. These exhibitions are still being shown in Latin Amo-
+rica. Thousands of persons have visited them and the success achieved
+up-to-date has been great,
+
+7. **Intelligence and Agitation.** During one long year we have received through the Delegations many informations on Castrost activities throughout the continent, as well as on Communist activities in general. Stirring has neither been absent - Two libraries of the Communist Party were destroyed in Montevideo, a place where support for Fidel Castro was received was also destroyed in Montevideo, and students groups in Venezuela have been trained.
+
+THE CHANCELLORS ' CONFERENCE
+
+When the Chancellors' Conference was held in January 1961, there was a plan
+to turn public opinion in favor of taking energetic steps against the Castro
+regime. For this purpose, the 25th of January was appointed as the day in
+which "La Marcha del Silencio" (The Silence March) was to be carried through in
+the principal Latin American cities, to give support to the Conference and protests
+for the crimes accomplished by the Castro Communist Regime. The results were truly
+astonishing. In Bolivia more than 20,000 people took part in " La Marcha del Si-
+lencio", they all carried lighted torches since it was at night fall. In Peru,
+more than 10,000 persons were assembled and in Guayaquil, Ecuador, around 5,000.
+Also smaller manifestations were made in Honduras, Panama, Mexico, and Colombia.
+The DRE Delegation sen to the Chancellors' Conference visited several countries
+before arriving at Montevideo, so as to develop in them the labor of propaganda
+and organization previous to the events that would take place during the Confe-
+rence. This Delegation was divided in two groups. The first one was composed
+by Juan M. Salvat, Fernando Garcia Chacon, Jose Maria Iasa, Ernesto Fernandez
+Travieso, and Mario Pita. This group visited Bolivia, Peru, Chile, and Argenti-
+na. The second group was composed only by Eduardo Munis, who visited Honduras,
+Costa Rica, Panama, and Brazil. During this trips, press conferences, inter-
+views with secretaries of Foreign Relations, and with Presidents of the nations,
+were held. In Uruguay, the first photograph exhibition was shown in the Plaza
+Libertad, a gigantic meeting was held in Montevideo and four meetings were held
+in other cities of the country (San Carlos, Piriapolis, Minas, and Maldonado),
+pest bombs were placed at the Communist meeting in the University, press con-
+ferences were held, and radio programs were broadcasted, all during the Confer-
+ence.
+
+In a general form, we have explained some of the activities developed by the
+Section Of International Relations of the DRE. It would be impossible to des-
+cribe them all completely.

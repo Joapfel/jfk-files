@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_5443.png
+
+Convert to MarkdownIn connection with the possibility of finding a political leader,
+as indicated above, I must say that I have been in contact with a man
+whom, I feel, could very well fill the position. His name is Clémard
+Joseph Charles, President of the Commercial d'Haiti, President of
+Haiti's Chamber of Commerce, a director of several other business and
+industrial organizations in Haiti.
+
+I have known Mr. Charles since 1951. We have been friends and
+business associates eversince. To me, Mr. Charles is a true and sincere
+patriot. Of course, today, a number of people question his patriotism
+on the basis of his close cooperation with the Duvalier regime. I have
+myself, sometimes, felt that he went too far. I have also told him so,
+many times. His answers on such occasions have, most of the time, satisfy
+my own judgement. In fact, Mr. Charles told me that, knowing Duvalier,
+as he knows him, it would have been a question of life or death if he
+were to behave in a different manner. What would his death serve if he
+had taken a position of non-compromise? He feels that in order to be
+able to control the situation and outlive Duvalier, it was better to be
+"in" than "out" or to put it another way to be alive than dead. I can
+say that on several occasions, was it not for Mr. Charles' influence on
+Duvalier, this latter would have done more harm to the poor people of
+Haiti, in general, than he has done so far.
+
+I have always maintained a dialogue with Mr. Charles and passed on to him as much as possible the judgements of Haitians and others with whom he had no direct contact. I must say that I have always found him receptive to their opinions.
+
+Eversince I have known Mr. Charles, he has always told me of his ambitions and determination to be a great Haitian. He asked me to never let him down and to stay with him to help him carry out his dream. Though it has cost me some of my friends, I have extended to him everything that I could possibly offer to help him reach his goals.
+
+Unlike the majority of Haitian politicians, Mr. Charles has an un-
+surmountable faith in the future of his country. He feels that if Haiti,
+under Duvalier, has considerably regressed in every way, the time will come
+
+/...

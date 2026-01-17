@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_8693.png
+
+Convert to Markdown9.01.15 Al fumar
+
+(a) Deja acumular mucha ceniza en el cigarrillo
+Sacude la ceniza normalmente
+Presta extraordinaria atención al cenicero
+
+(b) Deja apagar la ceniza en la alfombra
+Pone la mano ahuecada bajo el cigarrillo
+Siempre usa el cenicero
+
+9.01.16 Al apagar el cigarrillo, diga si
+Usa el cenicero con mucha ceremonia
+Parece apagarlo de manera normal
+Parece descuidado al apagarlo
+
+9.01.17 Diga si
+Fuma con visible fruición
+Fuma con placer normal
+Fuma por fumar, mecánicamente
+
+9.01.18 Diga si es persona que ofrece lumbre a otros
+Siempre ______ Raras veces ______
+Con frecuencia ______ Nunca ______
+
+9.01.19 Diga si es persona que
+Cruza la pieza para brindar lumbre a una dama
+Brinda lumbre a una dama como cualquiera lo haría
+Rara vez ofrece lumbre a una dama
+
+9.01.20 Que usted sepa, ¿ha dejado de fumar por motivos de salud?
+Sí ______ No ______
+
+9.01.21 Diga si le ha ido decir que
+Debería dejar de fumar pero no puede
+Ha tratado y no ha podido dejar de fumar
+
+9.01.22 Diga si le ha ido decir que le molesta el olor de
+Tabacos ______ Pipal ______ Cigarrillos ______
+Si nunca le ha ido mencionar ninguno de los tres
+
+9.01.23 ¿Tienen sus hábitos de fumar alguna particularidad que requiera mención o descripción especial? En tal caso, describela.

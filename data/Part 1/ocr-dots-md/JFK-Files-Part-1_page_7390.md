@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_7390.png
+
+Convert to Markdown14-0000
+
+☐ UNCLASSIFIED ☐ INTERNAL USE ONLY
+
+☐ CONFIDENTIAL ☑ SECRET
+
+<table><thead><tr><th colspan="6">ROUTING AND RECORD SHEET</th></tr><tr><td>SUBJECT: (Officer)</td><td></td><td>EXTENSION</td><td>NO.</td><td>Date</td><td></td></tr><tr><td>FROM:</td><td>Director of Finance<br/>1212 Key Building</td><td></td><td></td><td colspan="2">27 February 1974</td></tr><tr><td>TO: (Officer designation, room number, and building)</td><td></td><td>DATE</td><td rowspan="2">OFFICER'S INITIALS</td><td rowspan="2">COMMENTS (Number each comment to show from whom to whom. Draw a line across column after each comment.)</td><td></td></tr><tr><td></td><td></td><td>RECEIVED</td><td>FORWARDED</td></tr></thead><tbody><tr><td>1. Inspector General<br/>2 F-24 HQS.</td><td>J.J. Bucuridge</td><td>27 Feb '74</td><td>R</td><td></td><td></td></tr><tr><td>2.</td><td>Lorillard</td><td></td><td></td><td></td><td></td></tr><tr><td>3.</td><td>W. A. W. J. Jctt.</td><td></td><td></td><td></td><td></td></tr><tr><td>4.</td><td>Sandy-Anadel - W. File</td><td></td><td></td><td></td><td></td></tr><tr><td>5.</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>6.</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>7.</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>8.</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>9.</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>10.</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>11.</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>12.</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>13.</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>14.</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>15.</td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>

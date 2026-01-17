@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_5696.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+<table><thead><tr><th colspan="14">PROCESS SHEET FOR DOMESTIC CONTACT SERVICE COLLECTIONS</th></tr><tr><td rowspan="2"></td><td colspan="5">FOR FIELD USE ONLY</td><td colspan="7">FOR HEADQUARTERS USE ONLY</td></tr><tr><td colspan="3">B. REQ. CODE<br>11 12 13 13 15</td><td>C. CASE NUMBER<br>16 17 18 19 20</td><td colspan="2">FORWARDED<br>MO. DA. YR.</td><td colspan="3">REPORT NO.<br>A B C D E F<br>8<br>27 12 29 30 31 32 33</td><td colspan="2">J O U<br>34 35 36</td><td rowspan="2"></td></tr><tr><th>FIELD OFFICE</th><th>1</th><th>2</th><th>3</th><th>4</th><th>X</th><th>M</th><th>I</th><th>N</th><th></th><th></th><th></th><th></th><th></th></tr></thead><tbody><tr><td colspan="13"><b>D. SUBJECT AND AREA</b><br>General Lopez Arellano Unwilling to Lead Coup d'etat at Present/Army Officers Being Trained in Peru/Zumiga's Stratagems to Retain Present Power (Honduras)</td></tr><tr><td colspan="13"><b>E. CONTACT (Name, Title, Organization, Address)</b><br>Rogelio Wenceslao Cisneros<br>Bella Trading Corporation<br>5574 S.W. 8th Street<br>Coral Gables, Florida</td></tr><tr><td colspan="13"><b>F. SOURCE (Name, Title, Organization, Address)</b><br>Same</td></tr><tr><td colspan="13"><b>G. SUB-SOURCE (Name, Title, Organization, Address)</b><br>INDIVIDUAL NO.<table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td>SUBJECT</td></tr></tbody></table><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td>AREA</td></tr></tbody></table></td></tr><tr><td colspan="4"><b>H. METHOD OF COLLECTION</b><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td>INTERVIEW</td></tr></tbody></table><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td>TRIP REPORT</td></tr></tbody></table></td></tr><tr><td colspan="2"><b>OTHER DOCUMENT</b><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td>OTHER (specify below)</td></tr></tbody></table></td></tr></tbody></table></caption></table>
+
+SECRET
+
+(20-41)

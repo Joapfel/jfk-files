@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_9045.png
+
+Convert to Markdown10 June 1968
+
+MEMORANDUM FOR: Chief, EUR/IB/Spain
+SUBJECT : Project WUBRINY - Edward G. TICHBORN (P)
+
+1. Forwarded herewith is the revised proposal from WUBRINY/1 to Edward G. TICHBORN (P) covering the latter's assignment to Spain. It differs from the original in that the journalistic feature is dropped in favor of strictly commercial endeavors. Added is the possibility of developing a movie deal for submission to investors.
+
+2. TICHBORN had two meetings with QUSALT/1, both of which went well from the cover point of view. The first meeting involved TICHBORN and QUSALT/1, while TICHBORN brought his wife for the second in which QUSALT/1 was wined and dined. TICHBORN said that QUSALT/1 is all in favor of TICHBORN's proposed assignment. However, in view of past WUSALINE/Iberia inactivity, QUSALT/1 has an attitude of "I will believe it when I see it." QUSALT/1 was particularly intrigued with the possibility of a movie deal and said that Spain is by far the cheapest place to make movies.
+
+3. The one disquieting feature of the meetings with QUSALT/1 concerned TICHBORN's wife. She took the occasion to query QUSALT/1 on all aspects of living in Spain. All went well until the subject of health came up. QUSALT/1 commented that everyone should expect to get hepatitis and said that he had a severe case. This comment shook TICHBORN's wife whose best friend in Mexico caught hepatitis and whose children subsequently got it.
+
+4. The undersigned specifically asked TICHBORN if his wife's concern with hepatitis posed the possibility of a refusal to accompany him. TICHBORN said that he thought not, but that he was going to drop the matter for a week. The undersigned stressed to TICHBORN that the Agency views his assignment as very important as
+
+SECRET
+
+<table><tr><td>1</td></tr><tr><td>Aatic</td></tr><tr><td>cnd.</td></tr><tr><td></td></tr></table>
+
+2c1-253203

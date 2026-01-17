@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_8985.png
+
+Convert to Markdownwould be extremely valuable if properly handled.
+
+b) Recommends that the Ll families be approached on a millionaire to millionaire basis to cooperate with a reasonable reformist movement. also that they be approached by the quick time he would be
+
+c) That the son of Rodriguez Luis - son is head of the Economics Dept at the University- be approached by Moscoso and himself and asked to cooperate for at least a year's trial basis. The son is a very moving orator, but Marxist oriented, and skeptical about the success of the Alliance, but not an inflammatory type & would tea fair candidate in any issue.
+
+d) That an effective student/ youth newspaper be developed which is a newspaper and not a propaganda sheet, which appeals to the student body.
+
+e) That he use his newly formed contacts the Minister of Public Works- Julio A. Norbergus - to get an introduction to Rivera when he is in Washington. Subject Claims a very intimate relationship with Julio & is positive that Julio would party include him in gatherings while and would like to have at least a cocktail relationship with Rivera.
+in washington that would provide a close contact with Rivera.

@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_9330.png
+
+Convert to MarkdownSECRET
+
+(10) SIZE OF BOOK? A maximum of 75 pages of photos. This would give some 36 or 37 two-page sets of Hitler-Stalin photos.
+
+(11) CAPTIONS? I think we will need them, and should have them; at least for a good many of the photos. (I think this will prove to be the case when you come to make up any actual dummy).
+
+(12) Something a good deal more eye-catching and forceful, as a TITLE than the tentative "Stalin Is Hitler" should be forthcoming?
+
+"You Leader?" "Do you want this man?" "Slave-master"
+No
+"Man of Steel, -and blood", "This Man Wants War!"
+
+(13) CAN 36 SETS OF PHOTOS SHOWING PARALLELS BETWEEN H & S BE PRODUCED? Undoubtedly yes. But:
+
+(14) HOW MANY PARALLEL CLOSE-UP PHOTOS CAN YOU SUGGEST?
+
+I.e., we can have parallels showing each dictator receiving a bouquet from an awe-struck child; parallels of each of them "voting", -- with suitably biting captions under each; parallels of Hachina on the carpet at Berchtesgaden, alongside some Satellite minister summoned to Moscow.
+
+But how, with any close-up photos of H & S can you deal with such matters as Slave Labor, the Gestapo, the MVD. For these, it seems to me, it will be necessary to have non-close-up photos, i.e., photos in which H & S do not appear. But the parallel between the two regimes can be emphasized (a) in the Captions, and (b) by some such typographic device as:
+
+8
+
+(15) OVER-PRINT A SWASTIKA & HAMMER-SICKLE in the upper corner/of each set of non-close-up photos.
+
+(16) TEXT? Captions, it seems to me, will be found necessary, and perhaps even some inter-leaved pages of parallel texts. E.C., you can have, on a left-hand page, a photo of Witzleben (and/or some of the other bomb-plot German Generals being executed in 1944), and on the right-hand page photos of Tuchachevsky and the 6 other Red Army generals who were executed along with him (with no photographers present) in 1937. But how can any photo of Tuchachevsky et al. begin to do justice to the subject of the Purge-as-a continuous-feature-of-Soviet-life-ever-since-1917?????
+
+"The first & greatest misunderstanding about the Purges has to do with their duration. To most Americans / also Western Europeans, he says, elsewhere: Kravchenko, "I Chose Justice", p.145/, a Soviet purge is something
+
+ECRET
+
+14-00000

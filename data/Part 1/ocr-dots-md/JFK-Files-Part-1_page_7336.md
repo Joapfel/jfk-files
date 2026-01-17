@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_7336.png
+
+Convert to Markdown8 December 1965
+
+SUBJECT: Contact/Report/LICO:3
+8 Dec 1900-1945, Subj's office
+
+1. The C/O arrived at Subj's office while Subj was on his way down to the street to meet Valentin Loginov who had called by phone to ask Subj to step down to the street. It turned out that all Loginov was interested in was to give Subj two tickets for the Ballet for 9 December. Loginov finaglingly asked Subj if he had gone to the meeting of the two presidents at the border- and Subj rejoined that he didn't make that meeting but would be on hand for the turning over of the Charnizal. /Comment: the C/O was not aware of any Soviet littering about as he entered Subj's building/.
+
+2. Subj reported that Alexander Prikhodko had dropped in to the office unexpectedly on 3 Dec, but was prevented from talking to Subj because Subj's wife and son were there. Prikhodko asked when he could have lunch with Subj, and Subj told him to call next week, but that he was terribly busy during the Christmas rush.
+
+The C/O took the opportunity to impress on Subj again that he was to do nothing, absolutely nothing, for the Soviets. Even if the Soviets only wanted to know about charged visa requirements for travel in Latin America - Subj was not to give them the time of day.
+
+3. The C/O brought up the subject of Jacobo Zabludovsky's mention to Subj of Echeverria's interest in assisting the support of influential Jews in his bid for the Presidency, and asked if Subj had heard anything further on this. Subj said "no."
+
+But he related the story again for the C/O:
+
+Back in October 1965 Echevarría was attending a conference at which Subj was present. Echevarría came down off the presidium directly to Subj's table and greeted him.
+
+Subj related this to Zabludovsky, and it was then that Zabludovsky told Subj that Echevarría had spoken to him and said he feels he is a strong candidate for the Presidency, and would like to have a committee of five people in the Jewish community to coordinate with him. Zabludovsky told Subj he was intending to propose Subj. Zabludovsky did not care any others.
+
+The C/O asked Subj who he sought some of the other likely Jewish leaders might be. Subj said it was hard to say, but he named two: *Wickay* Feldman, a marker and *Fernando Jana*, the head of B'nai B'rith.
+
+The C/O asked Subj to check with Zabludovsky on the whole matter again, when he had the opportunity. Subj said he would do so.
+
+4. Subj is intending to take a two day trip to Colombia, either 9 or 10 Dec, in connection with the Petroleum Congress.
+
+PRM
+
+CA V A R E D I T E D
+
+P-11712 P-2270 P-7924
+
+P-5530
+
+P-5530
+
+P-2712

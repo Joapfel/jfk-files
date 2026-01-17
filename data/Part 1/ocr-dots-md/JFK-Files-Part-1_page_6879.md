@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_6879.png
+
+Convert to MarkdownATTORNEYS AT LAW
+
+August 25, 1958
+
+Dr. Maurice Halperin
+Medellin 36 - 9
+Mexico 7, D. F.
+
+Dear Dr. Halperin:
+
+In view of your general financial situation, I have revised downward my original estimate to you. Hence the enclosed bill.
+We shall ourselves pay out of this money the local counsel fee.
+
+Leonard E. Fowdin

@@ -1,0 +1,135 @@
+# JFK-Files-Part-1_page_4116.png
+
+Convert to Markdown<table>
+  <tbody>
+    <tr>
+      <td>FORM D-04<br/>1403</td>
+      <td>CLASSIFICATION</td>
+      <td></td>
+      <td>PAGE NO.</td>
+    </tr>
+    <tr>
+      <td>63a</td>
+      <td>USE PREVIOUS EDITION</td>
+      <td>SECRET</td>
+      <td>2</td>
+    </tr>
+    <tr>
+      <td colspan="2"></td>
+      <td>CONTINUED</td>
+      <td></td>
+    </tr>
+  </tbody>
+</table>
+
+<table>
+  <tr>
+    <td>YBM 10 | M2LW 8/91</td>
+  </tr>
+</table>
+
+<table>
+   <thead>
+    <tr>
+     <td>
+      FORM
+     </td>
+     <td>
+      53a
+     </td>
+     <td>
+      USE PREVIOUS EDITION.
+     </td>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td>
+      SECRET
+     </td>
+     <td>
+     </td>
+     <td>
+     </td>
+    </tr>
+   </tbody>
+  </table>
+
+<table>
+  <tr>
+    <td>SECRET</td>
+    <td>CONTINUED</td>
+    <td>2</td>
+  </tr>
+</table>
+
+14-00000
+
+<table>
+  <tr>
+    <td>CONTINUATION OF</td>
+  </tr>
+  <tr>
+    <td>DISPATCH</td>
+  </tr>
+  <tr>
+    <td>SECRET</td>
+  </tr>
+  <tr>
+    <td>UFGV 5472</td>
+  </tr>
+</table>
+
+for immediate destruction by the custodians should an attempt be made to seize them. AMBIDDY-I said he had neither plans nor money to reactivate any bases, except as they might be used for local civic action type programs.
+
+4. AMBIDDY-1 was advised by his case officer in strongest terms to sell or throw away everything from the Central American camps, to concentrate on trying to project a new image of himself as a constructive and progressive leader involved in community development and civic action type programs in Latin America by invitation of the local governments, and to stop talking or acting as a paramilitary operator. He was advised in even stronger terms to get out of the WAVE area as soon as possible to remove himself as a target of constant personal attacks against which he could not defend himself. He agreed in principle, subject to waiting three months for his wife to deliver their first child.
+
+5. WAVE may assure the ANLILAC leader that, to the best knowledge of KUBARK, the AWORLD program is dead, that AMBIDDY-1 has no real intention and only limited capability of mounting raids, and that anything he might do along the lines of paramilitary action would certainly be without ODYOKE support or blessing given the present political climate in HQS area.
+
+6. FTI, HQS continues to try to influence AMBIDDY-1 to stay out of paramilitary matters entirely. To this end, we shall try to keep his top operational personnel otherwise occupied in KUBARK or other employment, to keep him as fully and usefully occupied as possible away from the WAVE and PERUMEN area, and to convince him to sell or lease his two Swift boats to commercial enterprises or to another KUBARK program outside the WAVE area.
+
+7. HQS will welcome continued reporting on AMBIDDY-1's activities from WAVE sources, which serves a useful purpose as a check and monitor for the case officer to compare and contrast with AMBIDDY-1's reports to him. In addition, we are recruiting the former AWORLD Deputy for Support and Administration, who also serves as legal and political advisor to AMBIDDY-1. He is now residing in the HQS area, is back on the staff of a large university and has agreed to assist in keeping AMBIDDY-1 on the straight and narrow path following the lines of paragraphs 4 and 6 above.
+
+NEST A. LUBBY
+
+Distribution:
+
+3 - COS, JMWAV
+
+201-267437
+
+continued
+
+2
+
+201-267437
+
+continued
+
+2
+
+201-267437
+
+continued
+
+2
+
+201-267437
+
+continued
+
+2
+
+201-267437
+
+continued
+
+2
+
+201-267437
+
+continued
+
+2
+
+201-26743

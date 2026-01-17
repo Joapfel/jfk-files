@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_5930.png
+
+Convert to MarkdownCIA - 105
+2 April 1982
+
+Chief, Task Force/U
+Chief of Station, JETAVE
+Operational/CYTOSE
+FAL/Vertice Tres
+
+1. On 31 March 1962 [Albertovario Parojon Cardona, A 12895479], born 11 December 1933, a bank employee, Miami address: (4901 NW 16th Ave.), no telephone, was interviewed.
+
+2. Source said he was a member of SAC, FAL and Vertice Tres ("The Third Position").
+
+3. Source said that SAC (Salvar a Cuba) was destroyed by Cuban security forces.
+
+4. Source said that FAL (Fuerza Anti-Communiste de Liberacion) is well organized, the best organized being the forces in Pinar del Rio Province. He said that FAL has some arms and ammunition, and is an action type group, conspiring to provoke an uprising and cutting off communications. Source was reluctant to name any FAL contact, but finally named Rona Parojon Perez as a contact man. He said that he could arrange bona fides with Parojon, and he was told that perhaps in the future someone would call upon him and introduce themselves as "enigos de Roberto" and discuss th is in further detail. He agreed. He said that some months ago the 'FAL sent out microfilmed maps showing ultras for landing arms and also its proposed caching sites, but he did not know to whom this information was passed.
+
+MR. Perez, personally, has no information to transmit on this subject.
+
+5. Source said that he was also associated with Vertice Tres, and described this organization as being composed of intellectuals and professionals. Its mission is not clear because as he described it one of the functions is to explain the horrors of the Communist system to the masses by the adoption of a third position. Vertice is also interested in more subtle approaches, such as industrial slowdowns and sabotage. The emphasis, however, appears to be on propaganda and he said Vertice is on the point of obtaining a radio plant. He was asked if this was a "pirate radio", but he replied no, that it would remain on the air so that it could be heard. When asked about the DFing problems, he said he was told by an engineer who is working on this project that it was a "Delta System Radio" and they would not have to be afraid of DFing. (This does not make sense, but it was all the source knew on this subject.)
+
+6. Source said that Vertice needs supplies, such as Hinox cameras, but he would not or could not give the name of a Vertice contact in Havana.
+
+He said there/
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+5/BR

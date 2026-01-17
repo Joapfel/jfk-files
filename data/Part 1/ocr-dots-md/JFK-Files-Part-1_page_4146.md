@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_4146.png
+
+Convert to Markdownin CIA's relations with AMBIDRY-1. For purposes of ARWORLD, the fact is band is in the realm of paramilitary and not political warfare.
+
+Henry D. Rockeher
+VI/SA/GO/MR
+
+cc: DC/WI/ZA
+
+KDE/bh
+
+Distribution:
+
+Orig - Addressees
+1 - AMBIDRY-1 201
+1 - Policy File
+1 - Counterintelligence File
+
+cc: COS, JWAVE
+
+SFCCET
+
+<table><tr><td>Excluded from review due to机密性 and declassification</td></tr></table>

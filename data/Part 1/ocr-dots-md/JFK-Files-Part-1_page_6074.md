@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_6074.png
+
+Convert to Markdown"Terrei algumas dúvidas a respeito do Marxismo e entendi que algumas interpretações foram equivocadas, e será preciso revê-las? Não tenho a menor dúvida sobre ele !"
+
+"Algumas pessoas têm me indagado se eu pensava, quando do ataque ao Quartel Moncada (26-7-53) como penso hoje".
+
+"Quem quer que leia o que diziamos naquela ocasião verá... que se trata de um documento escrito com muita cautela: "Se o tivéssemos escrito sem cuidado, se houveíssemos lançado um programa mais radical... não teria conseguido a amplitude que teve e que tornou possível a vitória". "Não se poderá esquecer jamais, a meu credito, os primeiros dias depois do triunfo, os visitantes que chegavam a minha casa". "... repugnava-me de verdade aquela procissão em torno de mim de toda aquela gente naquele dia. Bem, mas, em primeiro lugar, que estarão acaso acreditando? E eu dizia: os que acreditam, melhor. Quanto maior número acreditar que pudera vir até cá e contar comoço, melhor! MAIOR SERA A SURPRESA QUE ELES TERÃO"!
+
+Ei-lo ai, em suas próprias palavras. Marxista há muito tempo, ne-gou essa condição durante muitos anos e acredita que o bloco socialista está em ascensão do mundo e que a força do "imperialismo" está em decadência com relação a ele.
+
+Pois bem: o "podervoso" Bloco Socialista, liderado por um grande país, que conta com 45 anos de socialismo, não pode salvar a econo-mia cubana. Isso está sendo já demonstrado... com as leis e palavras dos próprios comunistas cubanos.
+
+## A Economia, Talvez, mas a Liberdade, Não.
+
+Agora vamos proceder a concessões no campo da logica para. F. vamos conceder muito... Tanto como nem sequer Krushev concederia... (F se não o acreditam, verifiquem seu discurso, de março de 1962 — 45 anos de socialismo — sobre a agricultura na URSS). Vamos conceder que o problema económico possa vir a ser resolvido daqui a 100 ou 150 anos... Mas o que não se pode solucionar é a falta de liberdade; e com isso passamos ao segundo argumento.
+
+As dificuldades inerentes ao início de toda revolução — conseqüência da eliminação da oposição da Direita — não foram grandes.
+
+Isso foi reconhecido pelo príparo Fidel Castro. (7)
+
+"O Comunismo comba a traição de um setor e a guerra de classe. Nos queremos a união deacos e setores e de todas as classes simplesmente porque devemos prevenir colaboração em todos os setores da vida social. F. isso já o conseguimos, contando a Revolução entre 20 e 95% do povo, pois a priva de nada e nada fala exige e tem dívida adota leis profundamente revolucionárias".
+
+O Povo, de fato, apontou Castro em seu programa,
+
+Encontran-se nas mais infames concessões. (note-se o lixo chão, e a falta de assistência médica).
+
+Mas o Povo, lago depois, devendo a sua traição, se opõs a Castro. F. é por isso que se quizzam casas comerciais, industriais e cana-viais.. Por isso, o trabalho é mal feito. Por isso, as prisões estão cheias. Por isso, é grande o número de presídios. Por isso, fuzila-se constantemente.
+
+(7) Palavras de F. Castro no CMQ-TV 21º Maio 1959

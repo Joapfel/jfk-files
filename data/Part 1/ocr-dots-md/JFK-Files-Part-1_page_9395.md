@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_9395.png
+
+Convert to MarkdownSECRET
+
+Infor.mal memo.
+
+Can you communicate this information to C.O. - as soon
+as practicable? (I will do so, if you prefer.)
+
+A cable from Jim Burnham, states thin: Max Morgan was
+not satisfied with the way he was handled at the Cultural Congress
+in Berlin,
+
+His complaints:
+
+His speech - described as "excellent" - was cut
+off at the microphone.
+
+He did not, apparently, receive the kind of
+attention he thought was due him.
+
+He is expected to make an adverse report to Schiller.
+
+Burnham would like offie to appoase Schiller by assuring hin
+that the staff of the Congress had their hands full trying to
+control the bunch of assorted wrouoans there, and could
+not give sufficient line and attention to his delegates.
+And that they intend to use Morgan's excellent material in
+press, radio, book and pamphlet form, giving it wide
+distribution. In comparison to this, Burnham considers
+the actual promulgation at the sessions of the Congress
+a minor matter.

@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_7423.png
+
+Convert to MarkdownEVERETTE HOWARD HUNT, JR.
+
+1. Subject, a former GS-15 Operations Officer assigned to DDP/Europe, is 53 years of age and married. He served with the Office of Strategic Services during World War II, and was employed by this Agency from November 1949 until his voluntary retirement on 30 April 1970. In 1971, Subject served as an advisor to President Nixon in relation to his trip to China. Subject is of current interest to the Central Cover Staff.
+
+2. Subject graduated from Brown University in 1940. He served with the United States Navy from early 1941 until late 1942. After a year with Time, Incorporated, he entered the Air Force, where he was detailed to the Office of Strategic Services. He served in the Far East until January 1946. Subject engaged in writing, and then from May 1948 until February 1949 was employed by the Economic Cooperation Administration, serving in Paris, France, as an aide to Avarell Harriman.
+
+3. A background investigation conducted by the Federal Bureau of Investigation in July 1949 revealed no indication of instability on Subject's part, but it was later learned that Subject had been refused an increase in salary with the Economic Cooperation Administration and had been permitted to resign. He was described as highly intelligent, but blindly selfish and egotistical.
+
+4. Subject's wife, Dorothy Louise Coutieres Hunt, was investigated for Agency employment in 1948. Her former husband was described as a habitual drunkard, and Subject's wife was described as slightly unstable and not inclined to remain in one place for any length of time. She did not enter on duty, having accepted a position with the Economic Cooperation Administration in Paris. Our Paris sources later reported that Subject's wife was formerly his mistress and was openly flouted as such for several months. She was then described as an amoral and dangerous individual who underhandedly attacked those persons who incurred her enmity.

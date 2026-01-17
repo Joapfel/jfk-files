@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_8224.png
+
+Convert to Markdown**Henry P. Lopez**
+
+Birthdate: May 28, 1920
+
+Birthplace: Denver, Colorado
+
+Education:
+
+A) B.A., University of Denver, 1944
+
+B) Graduate School of Economics, Harvard University, 1944-45
+
+C) LL.B, Harvard Law School, 1948
+
+D) Graduate study, Universidad Nacional de Mexico, 1955
+
+Residence: 4933 Augustus, Los Angeles, California
+
+Family: Wife, Mildred and three minor children.
+
+Employment:
+
+A) Psychiatric Interviewer, Massachusetts General Hospital,
+Boston, Mass. 1945-46
+
+B) Legal Consultant, National Labor Relations Board,
+Los Angeles, California 1948
+
+C) Attorney, specializing in trial work, Los Angeles
+1949-present
+
+Veteran: U.S. Army Medical Corps, staff sergeant 1942-43
+
+### Political and Organizational Activities:
+
+A) Committee on Federal Rules, Los Angeles Bar Association 1953
+
+B) Panel for Indigent Defendants, U.S. District Court 1950-57
+
+C) President, Los Angeles Young Democrats 1950-51
+
+D) Southern California Chairman for James Roosevelt - Helen Douglas Campaign
+
+E) Dollars for Democrat Chairman, 63rd Assembly District
+
+F) President, Council of Mexican-American Affairs, Board of Districts O.I. Forum, Member of Urban League and HAACP

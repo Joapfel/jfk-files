@@ -1,0 +1,50 @@
+# JFK-Files-Part-1_page_7529.png
+
+Convert to Markdown# United States Department of Justice
+## Federal Bureau of Investigation
+
+Washington 21, D. C.
+
+CONFIDENTIAL
+BY SPECIAL SERVICE
+
+Date: September 11, 1951
+
+To: Director
+Central Intelligence Agency
+2430 E Street, N. W.
+Washington, D. C.
+
+Attention: Major General W. O. Byrnes
+Office of Special Operations
+
+From: John Edgar Hoover - Director
+Federal Bureau of Investigation
+
+Subject: THILLMAN DURDIN
+INTERNAL SECURITY - R
+
+In connection with an official investigation being con-
+ducted by this Bureau, we are desirous of obtaining certain information
+from Mr. Thillman Durdin, who is presently located o/o Hong Kong, Tiger
+Standard, 108ндар House, Victoria, Hong Kong. It would be appreciated
+if you would have one of your representatives interview Mr. Durdin in
+Hong Kong along the line set out below.
+
+For your information, Dardin is a foreign correspondent for
+the New York Times newspaper. He is an American citizen born March 19,
+1907, at Elkhart, Indiana, and has been employed as a foreign correspondent
+for the New York Times for many years, possibly since at least the early
+1930's.
+
+A reliable informant has advised that in 1939 Durdin was in Shanghai, China, acting as City Editor of the newspaper China Press. At that time Durdin was said to be sharing an apartment with Franz Joseph Eisblatt, described as an American citizen then in China as a newspaper reporter.
+
+According to our informant, Eisblatt was at that time a clone
+associate of one Harold Iessac. Iessac, an American citizen presently
+living in New York City, was said by our informant to have been employed
+
+DFB-11880
+201-6556
+Sept 14/95L
+
+14-0000

@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_6334.png
+
+Convert to MarkdownSECRET
+
+Attachment to: UFGA-3936 dated 2 May 1967
+
+Number assigned: Subject: Source:
+
+CKA 176: Office of the Secretary of the Presidency: A 12 903 884
+(SHX UFGA - 3930)
+
+CKA 176: Rescue at Sea: A 12 444 373
+(SHX UFGA - 3930/1)
+
+CKA 177: Clemente RODRIGUEZ Remos: A 12 903 499
+(SHK UFGA - 3930/2)
+
+CKA 179: DRF/POAC-Habana: A 12 903 419
+(SHK UFGA - 3930/3)
+
+CKA 179: Information on Bayamo, Oriente Province: A 12 903 494
+(SHK UFGA - 3930/4)
+
+CKA 180: UR/Habana to Guantánamo Navy Base: A 12 903 434
+(SHK UFGA - 3930/5)
+
+CKA 181: Legal Traveler: A 12 903 498
+(SHK UFGA - 3930/6)
+
+CKA 182: 30 November/Habana: A 12 903 426
+(SHK UFGA - 3930/7)
+
+CKA 183: Independent Operator/Miami to Matanzas: [Jesus Gregorio PEREZ]
+(SHK UFGA - 3930/8)
+
+CKA 184: List of Cubans Entering the U.S. with False Visas: Nelson L. BAYNOCK
+(SHK UFGA - 3930/9)
+
+CKA 185: OCA/Habana: A 12 903 501
+(SHK UFGA - 3930/10)
+
+CKA 187: Organización Auténtico-Roscata/Matanzas: A 12 903 514
+(SHK UFGA - 3930/11)
+
+CKA 188: Beauty of Calabazo/Contact to Isle of Pines: A 12 903 509
+(SHK UFGA - 3930/12)
+
+CKA 194: List of Cubans Entering the U.S. with False Visas: Nelson L. BAYNOCK
+(SHK UFGA - 3930/13)

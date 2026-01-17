@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_8914.png
+
+Convert to Markdown14-00000
+
+SECRET
+
+<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
+
+<table><thead><tr><th colspan="3">ROUTING</th></tr></thead><tbody><tr><td>1.</td><td>O</td><td>| 4 | SS</td></tr><tr><td>2.</td><td></td><td>| 5 |</td></tr><tr><td>3.</td><td></td><td>| 6 | F</td></tr></tbody></table>
+
+TO : DIRECTOR
+FROM : MEXICO CITY
+ACTION: W18
+INFO : CI/DA, EE 4, FE 6, OS 2, VR
+
+SECRET CSB121Z
+
+DIR CITE NEXI 9349
+LCPLUTTER
+REF DIR 19396 *
+
+FREQUENTLY
+LIXAYAK-2
+LIXAYAK-20
+LIMOTOR-19
+12K00
+SIMONA-N1
+
+EOMAHIN78380
+
+1. AGREE TEST THOSE NAMED REF EXCEPT LIMOTOR 19 WHO TESTED OCT 63, LINILE WHO CASE OFFICER FEELS UNDER NO OBLIGATION BE TESTED AND WOULD BE ALIENATED.
+
+2. STATION NOT NOW IN CONTACT WITH LIXAYAK 23. HOPE ESTABLISH CONTACT SOON TO GET FEEL OF LIXAYAK 2 ALTER E30. ONCE THIS DONE AGREE LCPLUTTER DESIRABLE.
+
+3. WISH ADD DMPETAL TO LIST.
+
+4. ADVISE TEAM ITINERARY.
+
+SECRET
+
+C/S COMMENT: *REQUESTED CABLE WHETHER STA CONCURS LCPLUTTER CANDIDATES.
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tr><td>EOMA</td></tr></table>
+
+Copy No.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+<table><tr><td>Ae</td></tr></table>

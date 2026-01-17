@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_7829.png
+
+Convert to Markdown14-00000
+
+SECRET
+- 14 -
+
+**15. CONTACTS: Continued**
+
+b. Non-Soviet:
+
+34) Tatiana RAKOFF Vda de MARCHAND (P-370), widow of Rene MARCHAND Boisselet, former professor at UNAM and director of the Jules Slav Cultural Institute. She is evidently a native Russian, but French citizen.
+
+Tatiana was seen visiting Subject at the Soviet Embassy on 3 January and 16 April 1967; Subject seemed very friendly with her, and on 18 April 1967 left the Embassy together with her. (7) On 9 January 1967 it appeared that she had asked Subject for a visa. She also told him she had the information on the man who had been consul, but Subject cut her off and said that it would be better for them to get together to discuss it. On 25 February 1965 she told Subject she would help him join a club. On 16 May 1967 she asked Subject if he had called the poles, but he said he had forgotten and would do it right away. (1)
+
+35) (Dr.) Alfonso MARTINEZ Alvarez (P-1799), Guatemalan leftist doctor, has house at Lake Tequesquiten go to which he often invites groups of Soviets.
+
+MARTINEZ was reported in contact with Subject in fall 1966 and in January 1967 inviting Subject and other Soviets to his house on the lake. Subject was also in contact with his son, Eduardo MARTINEZ (no identifiable traces). (1)
+
+36) (General) Raul MENDIOLEA Cerecero (P-5700) deputy chief of the Federal District Police.
+
+On 27 October 1966 Subject called the police to ask what MENDIOLEA's rank was. (1)
+
+37) William de NIER (P-5552), British citizen, general manager of KLM airline in Mexico.
+
+In May 1967 Subject was reportedly discussing Soviet travel via KLM with de NIER. (1, 6)
+
+38) (Lic.) Oscar OBREGON, Jr., not further identified.
+
+On 2 June 1967 OBREGON, who appeared to be a friend of Subject's, told Subject he would like to invite the Bolshoy troups to his house, but Subject said they would have little time in Mexico City. OBREGON also asked Subject if he could get him some caviar, and Subject said he would bring him some back from Moscow after his vacation. (1)
+
+39) David ORNELAS, of Mundus Tours.
+
+ORNELAS has been Subject's principal contact at Mundus Tours in regard to making travel bookings. There has been no indication of anything more than a business relationship between them, except that in June 1966 Subject gave ORNELAS some magazines. (1).
+
+40) Salvador PAZ Plata (P-12775), shipping agent with Representaciones Marítimas, Soviet Commercial contact.
+
+On 1 March 1966 it was reported that Subject had met PAZ in Mazatlan, and they used the familiar form of address with each other. During 1966 they were occasionally reported making luncheons dates or planning to get together after work. There has been no record of recent contact. (1)

@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_4167.png
+
+Convert to MarkdownSECRET/RYBAT
+
+-7-
+
+Although Adelaida PADRON maintains "intimate" relations with several of her girl friends in Miami, she has confessed that the one she likes completely is her "intimate girl friend", the wife of Dr. Pedro RAMOS, well known doctor who resides in Miami, Florida.
+
+Dr. Pedro RAMOS resides at 213 NW 50 St., Miami, Florida.
+
+**Victoria PADRON:**
+
+She is the sister of Adelaida PADRON. She is tied in this matter because she introduced and directs all of her sister's activities.
+
+Victoria PADRON is married to an Italian-American whose name is unknown.
+
+Victoria PADRON lives in common-law with Mr. Raul GRANDA, married, ex-chief of the Military G-1 in the era of General BATISTA.
+
+According to what Aida PEREZ Pozo informed to Mr. Manolin GARCIA, when the counter-revolution will succeed, Mr. Raul GRANDA will occupy his post because it is a family affair through ARTIME, Adelaida, etc.
+
+NOTE: In all this love intrigue around Dr. Manuel ARTIME Buesa, there could be the influence of two factors: either the infiltration of BATISTA elements, as almost all the components of the groups have some link with him; or else infiltrees of Castroites who work in the USA, since there are involved the relatives of Lucia CANO, who are communists and still in Cuba. There is also the link of Adelaida PADRON's sister with Major William GALVEZ.
+
+DESENSITIZED
+SECRET/RYBAT
+
+DESENSITIZED
+
+SECRET/RYBAT

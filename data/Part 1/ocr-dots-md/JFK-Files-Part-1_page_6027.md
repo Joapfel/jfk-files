@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_6027.png
+
+Convert to MarkdownD. R. E.
+
+DIRECTORIO REVOLUCIONARIO ESTUDIANTIL
+
+Jose antonio acévereira con tus ideas en marcha
+
+With no visits by anyone of the Central Office of International Relations. In other words, the D.R.E. delegation at Venezuela asked through all its members more frequent visits in order to avoid a feeling of forlornness during our common struggle.
+
+C.- Future possibilities
+
+The D.R.E. has huge future possibilities in Venezuela. The president it actually has: add the people and inside government circles opening new fields for a near future in all the aspects. We will synthesize these possibilities in the following points,
+
+1.- More "person-lity-billing" courses" in order to double the number of Venezuelan students receiving them.
+
+2.- Organization of briefings to encounter Communists and move them out from the Central University of Venezuela in the elections next year.
+
+3.- Increase in the propaganda
+
+4.- Spreading of activity throughout all the States of the country.

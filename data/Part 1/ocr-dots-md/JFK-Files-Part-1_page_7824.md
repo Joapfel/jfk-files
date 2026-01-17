@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_7824.png
+
+Convert to MarkdownSECRET
+
+- 9 -
+
+15. CONTACTS: Continued
+
+b. Non-Soviet:
+
+5) (Inr.) Manuel ANAYA S., employee of Mexican Ministry of Hydraulic Resources, visited the USSR in summer 1965.
+
+On 19 July 1966 ANAYA thanked Subject for his visa and said he would get together with Subject when he got back in order to discuss his trip. (17)
+
+6) Emilia ARCSAMENA Vallarina (P-10933, 201-771073), Panamanian Consul General in Mexico, in contact with several Soviets.
+
+On 15 November 1965 Aleksandr Vladimirovich PRIKHODKO said he wanted to introduce Subject to AROSAMENA, because Subject had some questions to ask her. Presumably related is a report that the Panamanian Counselor Jose B. CALVO, told Subject on 19 November 1965 that he had no answer for Subject yet. (1)
+
+7) Miriam AVILA Katz (P-581, 201-814144), employee of Mundus Tours travel agency, about to leave Mexico to marry an American and live in New York.
+
+Subject was first reported in contact with AVILA in April 1966 in connection with travel bookings Subject made. (1) On 2 June 1966 Subject flirted with her, and said he would invited her to a volleyball game. (1) During the rest of 1966 Subject invited her out a few times, told her he was married but that his wife was not in Mexico, asked her to introduce him to some of her friends and especially wanted to know, if she knew anyone in the U.S. Embassy. In April 1967 Subject reluctantly agreed to issue a visa to Dr. KUTTLER (q.v.), whose travel AVILA was arranging, and asked as a return favor that she introduce him to some of her friends. (6) In June 1967 Subject reportedly stopped AVILA coming out of work to ask her about the Israeli War. (6)
+
+8) Celia BAYARDI Torres, no traces.
+
+On 7 February 1966 an unidentified man visited Subject at the Soviet Embassy. This man came to the Embassy in a car driven by a woman, who remained in the car, with license plates registered to Celia BAYARDI Torres, Arquitector 46, Colonia Escandon, telephone 15-34-02. The phone is listed to Francisca TORRES Vda de BAYARDI. (7)
+
+9) Leila S. BELAVAL, via officer at U.S. Embassy.
+
+In June 1967 BELAVAL reported that she had been in contact with Subject over visa matters, that Subject had asked her what she did in the evenings, whether she spent her off hours with other U.S. Embassy employees, and had said that he was unmarried. In June 1967 he offered to take her to the Ukrainian Ballet when it came to Mexico. She refused his invitations. (27)
+
+10) Carlos BLANCO Solano (P-9328), former Federal Security (DFS) agent, now with Judicial Police. In 1960-61 BLANCO invited several U.S. Embassy girls out and offered his services to the U.S. Embassy. BLANCO works for Carlos CASAMADRID Miranda, who is suspected of having a clandestine relationship with KGB officer Pavel Antonovich YATSKOV.
+
+On 1 November 1965 BLANCO called Subject at the Soviet Embassy and remarked that they had not seen each other for a long time. Subject said he would call BLANCO to get together the following Wednesday. (1) On 8 September 1966 Graciela SOTO (q.v), who described herself

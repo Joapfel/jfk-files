@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_8298.png
+
+Convert to Markdownspx.
+
+spoke to Subject in a heavy accented broken English and was delighted when Subject suggested that they speak Spanish. LOGINOV's general line of conv was that the essential thing in the life is understanding and to be able to understand others one must get to know them; this in turn calls for having as many friends as possible. The same applies to countries and nations. Before leaving the party LOGINOV stated that he would like to become friendly with Subject and asked him would he be willing to meet with him. Subject agreed and they met next Friday at the Tecali Restaurant.
+
+b. The conv at the Tecali was to an extent dealing with the theme of friendship and understanding with an added emphasis that if there was understanding and, consequently, friendship between the U.S. and Soviet Union we would be living in a much better world. Subject stated his agreement with LOG's views. In a further part of the conv LOGINOV was interested in knowing whether Subject had many friends in Mexico Subject claims to have stated that he had many good friends here. (NOTE: It is quite likely that he bragged about the number of influential friends he had here). At the end LOGINOV told Subject that he would like to see him again and Subject asked him to come to his house. According to Subject, LOGINOV asked would not the fact of receiving a Sov official com-promise Subject or lead him into some kind of troubles. Subject assured him that the receiving of a Sov or any foreign official could not affect him in no way. Then, LOGINOV asked Subject would they be alone and Subject answered affirmatively. (Note: At this point Subject indicated that he received LOGINOV at the apt at the Icithitz 297). Finally, LOGINOV agreed to come to Subject's apt.
+
+c. In the apt LOGINOV did not feel at ease for some time. Initially, he did not drink from the Vodka which

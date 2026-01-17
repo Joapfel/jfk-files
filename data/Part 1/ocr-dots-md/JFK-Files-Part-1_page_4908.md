@@ -1,0 +1,63 @@
+# JFK-Files-Part-1_page_4908.png
+
+Convert to Markdown14-00000
+
+<table>
+   <tr>
+    <td colspan="3">SECRET</td>
+   </tr>
+   <tr>
+    <td>Stempel: A</td>
+    <td>A</td>
+    <td>S</td>
+   </tr>
+   <tr>
+    <td colspan="2">SECURITY CODE: 895234</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td colspan="2">CODE: 635970</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td rowspan="3">SIGNATURE: E. J. D.</td>
+    <td>OFFICE: F</td>
+    <td>v.a.</td>
+   </tr>
+   <tr>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+  </table>
+
+T 034604 514849
+
+PAGE 82
+
+IN 861689
+
+TOR:2718832 OCT 76
+
+8480 39332
+
+AND CHILEAN GOVERNMENTS IN THIS PLOT, WE ADDED THAT OF COURSE
+WEITHER ME NOR PRESIDENT DOUBED PLACED ANY CREDENCE IN THIS CLAIM,
+WHICH THE COSTA RICAN GOVERNMENT HAD INVESTIGATED.
+
+3. ACCORDING TO AMBASSADOR ARANDA, FACIO SUGGESTED TO HIM THAT THE CHILEAN GOVERNMENT MAKE AN EFFORT TO RECOVER DOSCH'S ALIAS CHILEAN DOCUMENTATION FROM GUATEMALAN POLICE AUTHORITIES. THE DOCUMENT DOES NOT SAY (AND F-49 DID NOT KNOW) WHY GUATEMALAN AUTHORITIES HAD THE DOCUMENTS, BUT APPARENTLY DOSCH RETAINED THEM WHEN HE WAS EXPELLED FROM COSTA RICA.
+
+4. STATION DEFERS TO MOS ON HOW TO HANDLE THIS INFORMATION.
+COPIES OF BOTH DOCUMENTS BEING FUCHED 2 NOVEMBER.
+
+5. AS SIDE ISSUE, STATION BECOMING CONCERNED OVER SOURCE PROTECTION FOR FUOCORLEO-49 IN THIS MATTER. BECAUSE HE MADE SAME ERROR ON DATES IN COMMENTS TO EMBASSY OFFICER (EMBASSY SANTIAGO (c/o3/2/02) 10187) AND IN INITIAL REPORT TO STATION (PER REF B. 1966 DATE APPLIES TO EARLIEST DOCUMENT IN HIS POSSESSION, WHICH WAS MOTOR VEHICLE TITLE, NOT PASSPORT). CORRECTION TENDS TO CALL ATTENTION TO THIS COINCIDENCE. STATION PREPARED REF B WITH HIS REGULAR SOURCE DESCRIPTION, BUT IF POSSIBLE WITHOUT MISLEADING CONSUMERS OR PROVIDING FALSE CONFIRMATION. WOULD PREFER USE ALTERNATE,
+
+6. BY REPT. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .

@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_5207.png
+
+Convert to MarkdownCIA HISTORICAL REVIEW PROGRAM
+RELEASE IN FULL
+
+1999
+
+IX-104
+
+30 April 1963
+
+CONTACT REPORT
+
+WUBRINY - Haitian Operation
+
+1. WUBRINY/1 telephoned from his residence on the sterile limit at approximately 0930 hours to report the following.
+
+2. WUBRINY/1 said that he believed that the meeting that is to be held by Mr. CHARLES and WUBRINY/1 plus an unnamed third party would involve a Mr. Tardieu.
+
+3. I told WUBRINY/1 there had been considerable interest in this general development on the part of the Department of State and cited (without identification) A-406, Amambassy, Port-au-Prince, dated April 11, 1963, subject: U.S. Businessman Signs Contracts with Haitian Government and Local Bank. I told WUBRINY/1 that the Department information I had before me cited Le Moniteur of March 13, 1963 and said that the Airgram also mentioned a Mr. Bert Cindine TARDIEU. I also gave WUBRINY/1 the points raised under "comment" on page 2 of the Airgram.
+
+4. WUBRINY/1 said that he agreed with all of these comments as he had come to the same conclusions.
+
+5. I told WUBRINY/1 that there was obviously considerable interest in any reporting that he can do on this subject and requested that he let me know when the meeting takes place and continue his detailed reporting as heretofore. He agreed to do so.
+
+C. FRANK STONE, III
+Chief
+DO/COEO
+
+DO/COEO/CFS;jj(30 Apr 63)
+Distribution:
+
+Ozis = EC subject
+I = EC chromosome
+L = WUBRINY OpS
+
+<table><tr><td>CONFIDENTIAL</td></tr><tr><td>Excluded from distribution</td></tr><tr><td>Amended and revised</td></tr><tr><td>Reproduced</td></tr></table>

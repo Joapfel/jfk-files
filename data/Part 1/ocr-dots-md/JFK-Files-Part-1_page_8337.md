@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_8337.png
+
+Convert to MarkdownSubject said that if LUGINOV received an invitation to ANDREA's party, that it might have come from CHIRNYSH (P-13.042). During his conversations with ANDREA, she never mentioned the fact that LUGINOV went to the party. She never told Subject exactly who went.
+
+3. Concerning ANDREA CATANO: P-13591
+
+About ten days ago ANDREA went to Commercial Moxirana to do the weekly grocery shopping. Subject dropped by her house while she was gone. Shortly after arriving at her house, she called home and he talked to her on the phone. She said that she had some problems at the store and asked if he could come down and bring some money. He went with her brother, and on arriving at the store found her in custody of two managers and a Policeman. They had caught her trying to walk out with a stolen jar of face cream (she admitted it) and she did not have the money to pay for it. Subject talked to the managers, telling them that she was just a young girl, etc., and convinced them to do nothing about it. Rafael paid for the face cream and they took her home. (Rafael thinks this is a very unusual side of her character that he has never seen before).
+
+ANDREA has not mentioned CHIRNYSH to Subject since my last report.
+Rafael said that he will begin to pump ANDREA for some further information (in
+a discreet way). As far as he knows, she has not seen CHIRNYSH lately. (perhaps
+since the party on 1 March).
+
+4. Concerning Rafael's Mother and her work at the embassy:
+
+(I asked Subject several questions about his mother, but he dodged them. He seemed unwilling to discuss her, and after several tries I stopped pushing).
+Rafael said that his Mother has one particular student in Spanish (at the Embassy) who has repeatedly expressed the desire to meet and become friends with Rafael. His Mother likes the man (her student) and said that she will shortly invite him home for dinner so that he and Rafael can become acquainted. (Rafael by now is suspicious of any Embassy official who wants to become friends). The man is

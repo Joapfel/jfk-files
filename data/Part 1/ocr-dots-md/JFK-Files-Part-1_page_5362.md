@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_5362.png
+
+Convert to MarkdownX 172-2845
+
+EX 00 A(8) 322/17056-69
+
+COUNTRY: Haiti
+
+19 June 1969
+
+SUBJECT: Cleland Joseph Charles Spared
+
+In Court Procedures in the Matter of Executions
+
+During Acquired Access to Court Records
+
+BAC Case: 47,540
+
+In Fortlaşenin Pilson/Charles Must Produce Supplement to:
+Houssens Money/Charles In Living Under sig
+Oronas Prison Conditions/Data Conceding
+Bozo Debrouwe Delruier, Insus Pirlor of
+Charies
+
+00-A(8) 322/14367-69
+
+1. During the week of 27 May 1969, the Government of Haiti (GCH) is reported to have carried out early executions among the prisoners held in Fortlaşenin pilson. Cleland Joseph Charles, Haitian banker, was not being United executed, because his life was spared on direct orders from President Duvalier.
+
+2. The GCH is becoming more insistent than ever that Charles produce the remains of United thousand, which it has not as the price for his release. Charles now intends to feel that if he does not produce the money, he will be executed. During May 1969, he gave to his wife, Indiana Louise Pilson Charles, a general power of attorney. This joined with attorney (徒) to Mac Charles the right to function as her husband's alter ego and sell or otherwise dispose of any or all of his assets.
+
+3. Charles still has the US$100 thousand in cash in New York City banks /Collector's Note: See reference, Paragraph Four./ His holdings in GCH bonds total US$400 thousand /Collector's Note: See reference, Paragraph Two/. These bonds are guaranteed by the International Monetary Fund (IMF). Mac Charles is now endeavoring to collect the US$100 thousand cash and to pledge as collateral the US$400 thousand in GCH bonds, in the hope that the IMF will accept as payment of the US$400 thousand reason whatever she is able to realize from the bonds plus the total of the cash. She notices to place this sum in the reorganized Banque Commercial d'Haïti (BCI) /Collector's Note: See reference, Paragraph Two/ and hopes that the IMF will accept that as the payment on the loan.
+
+4. Charles is not being treated as well in Port-au-Prince
+
+CS COA! 201-3572025
+
+COPY 1400000

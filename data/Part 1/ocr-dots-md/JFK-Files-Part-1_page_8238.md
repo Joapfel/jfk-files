@@ -1,0 +1,61 @@
+# JFK-Files-Part-1_page_8238.png
+
+Convert to MarkdownICAP Corporation is an in- ternational consulting and financial organization, spe- cializing in the developing countries, which offers three principal services to its clients:
+
+■ Financial and industrial studies, particularly feasibility reports and market research
+
+■ Negotiation of international joint ventures
+
+■ Investments and financing
+
+ICAP's professional services are primarily intended for the industrial investor or financial institution interested in entering a foreign country. If the initial feasibility and market studies are favorable, ICAP can advise on the most appropriate way of entering the new market: whether through a licensing or dis- tribution agreement, contract manufacturing, a joint venture, or a partially or wholly owned subsidiary.
+
+The local ICAP affiliate can guide the investor through the entire course of such an undertaking, from the initial exploration of the prospects to the selection of the local partner, the raising of local capital, and, if appropriate, the eventual listing of the shares of the resulting enterprise on the local stock exchange.
+
+ICAP is as concerned with enabling a client com- pany to recognize as early as possible the fact that it should not undertake a major commitment in a foreign country as it is with giving effective assist- ance to companies who determine to go forward.
+
+It brings to these tasks a full range of professional skills which have performed to the standards of governments, major banks, and industrial companies of international standing.
+
+It brings to the service of its clients close relation- ships on all levels of local government, banking and industry. Thus, in addition to analyzing such ques- tions as product demand, industrial technology, financing, site selection and the like, ICAP can counsel the prospective investor on the govern- mental attitudes he will face, and help him make friendly contact with those in the business and official communities with whom he should deal.
+
+DIRECTORS OF ICAP CORPORATION
+
+Julian Allen
+Formerly Vice President, European Branches,
+Morgan Guaranty Trust Company
+
+Hoyt Ammidon
+Chairman, United States Trust Company
+
+Charles D. Hilles, Jr.
+Director and former Executive Vice President,
+International Telephone & Telegraph Corporation
+
+R. Carter Nicholas
+Trustee
+
+Michael V. Forrestal
+Partner, Shearman & Sterling
+
+John P. C. Train
+President
+
+OFFICERS
+
+John P. C. Train, President
+
+George E. Economakis, Vice President
+
+R. Carter Nicholas, Treasurer
+
+Edward H. Tuck, Secretary
+
+Peter Forrestal, Investment Officer
+
+John J. Trask, Jr., Investment Officer
+
+Edwin I. Gasperini, Assistant Secretary-Treasurer
+
+Telephone: PL 3-1944
+Cables: INTRATRUST NEWYORK
+Telex: INVEST 420083

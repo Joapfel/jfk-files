@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_5637.png
+
+Convert to MarkdownU.S. Embassy in Port au Prince commented that, with regard to the most recent plotting of Charles, "the possibility cannot be excluded that Charles could be a provision to determine the real motives of the United States Government toward the Duvalier regime." We concur in the Embassy's views.
+
+4. During the past three years, the VI Division has been kept advised of the contact between DCB and Brun and his relationship with Charles. We are also aware from DCB and other sources of the efforts by Brun to obtain support from the United States Government for Charles. Brun is, of course, a close collaborator of Charles and a business representative of his in New York City. Brun has contacted officials of the Department of Defense, the Department of State, and even a person with access to President Johnson on Charles' behalf. The Chief of Caribbean Affairs of the Department of State categorically told Brun in June 1967 that the United States Government was not interested in supporting the plots of Charles or anyone else against Duvalier, but this advice seems to have fallen on deaf ears. The most recent example of Brun's loffying was in May 1969 when Brun passed on to DCB a request from Charles for a secret meeting between a U.S. envoy and a representative of the "military junta." Brun's involvement with Charles requires that he be considered a biased source of information. While some of the information Brun has obtained from Charles has been of interest, there is hardly anything that was not available through other channels and indeed, such of it was slanted
+
+5 As was set forth in VI/7 memorandums to the Operational Support Staff, DCB, on 16 July 1968 and 23 May 1969, we interpose no objection to DCB maintaining contact with Brun for its own purposes. However, the relationship between Brun and Charles has now taken on operational characteristics (agent/sub-agent) with Brun levying requirements on Charles in Haiti to service on behalf of DCB. The relationship between Brun and Charles also has manifested political and security aspects which could adversely affect the interests of the United States Government regarding Haiti. Accordingly, we request that the contact between Brun and Clemard Joseph Charles on behalf of DCB be terminated.
+
+William V. Broe
+Chief
+Western Hemisphere Division
+
+SECRET

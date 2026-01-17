@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_8982.png
+
+Convert to Markdown1917
+
+CLASSIFIED MESSAGE
+
+ORIG : PORTER GOSB
+UNIT : WH/3/CAN.
+EXT : 64.00
+DATE : 6 JUNI 1968
+
+<table><tr><td colspan="2">S-K-C-IL-L-T</td></tr><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>8</td></tr></table>
+
+TO : SAN SALVADOR PRIORITY INFO: MEXICO CITY
+FROM : DIRECTOR
+CONF : WH 8
+INFO : PG 2, CI, CI/OPS, CI/OA, S/C 2
+
+<table><tr><td>S/G CEN</td></tr><tr><td>DEFERRED</td></tr><tr><td>ROUTINE</td></tr><tr><td>OUT 207208</td></tr><tr><td>OUT 207208</td></tr></table>
+
+TO PRITY SALV
+
+INFO PEXI
+
+CITE DIR
+
+| | |
+| :--- | :--- |
+| 5052 | 5052 |
+| | |
+
+1. IF PRESIDENT RIVERA AND OR MINISTER OF PUBLIC WORKS JULIO NOLTEJUS COMING TO ZERMETAL, ADVISE EGS ETA.
+
+2. TICIDORN PLANS TO CONTACT NOLTEJUS IN ZERMETAL FOR FURTHER DEVELOPMENT AND POSSIBLE INTRODUCTION TO RIVERA.
+
+END OF MESSAGE
+
+WH/3/Mexico Al Wedemeyer
+
+JCI/COPS
+
+MED P. HOLLAN
+C/AH/3
+
+RELEASING OFFICE
+
+COORDINATING OFFICES
+
+<table><tr><td>S-S-C-R-E-T</td></tr></table>
+
+AUTHENTICATING OFFICES
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

@@ -1,0 +1,69 @@
+# JFK-Files-Part-1_page_7835.png
+
+Convert to MarkdownSECRET
+
+SEPARATE COVER ATTACHMENT TO HMMW-
+
+19. SOURCES:
+
+1) LIENVOY, passim.
+
+2) PACY-7280, December 1961
+
+3) HZPA-11914, 11 January 1962, passport photographs
+
+4) LIFIRE travel reports
+
+5) HMMA-26881, 12 August 1965, LITEMP passport photographs.
+
+6) LICOZY-5 case file, passim.
+
+7) LILYRIC & LIMITED surveillance
+
+8) LICOWL-1 case file, passim.
+
+9) LNERGO report, 21 December 1965
+
+10) Contact Report, of meeting with KADIDDLE, 28 December 1965
+
+11) LICANNY-1 case file, passim.
+
+12) LNPURE memorandum, 21 January 1966
+
+13) Station memorandum, 27 January 1966
+
+14) LNPURE memorandum, 11 February 1966
+
+15) LIROAN-1 information
+
+16) Station memorandum, information from LITEMPO-8, 22 July 1966.
+
+17) Summary on Subject prepared by LIENVOY, 22 July 1966.
+
+18) LICALLA surveillance, passim
+
+19) BESABER information.
+
+20) Station memorandum, 30 January 1967
+
+21) LIROCKET-1 information
+
+22) LIROBBIN-2 information
+
+23) LITEASE-1 information
+
+24) LNPURE memorandum, 28 February 1967
+
+25) LIREALM Information
+
+26) Info from Subject of 201-814144,
+
+27) Station memo of 27 June 1967, info from LNPURE officer
+
+28) HMMW-13985, 16 September 1965, HQS traces on Subject.
+
+29) HZPA-11859, 22 December 1961
+
+30) Information from Subject of 201-880412.
+
+SECRET

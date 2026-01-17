@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_6505.png
+
+Convert to MarkdownATTN:
+
+Chief, Contact Division
+Anthony P Czajkowski
+Chief, Pittsburgh Office
+
+Case 10978 - Source Leads from IEC Files
+
+1. Contact with Eklecik, Kotas, and Loposzko on 31 Jul 52 indicates low foreign intelligence potential. They have been away from Poland for about ten years and get no pertinent information in letters from relatives remaining in Poland. They are better acquainted with persons and conditions around Bologna, Italy.
+
+2. They are cooperative, but unless you have reason to believe that worthwhile requirements might result from a request, we do not intend to send in name checks.
+
+CHARLES B KAUFMANN, JR
+
+HD/sec
+
+SECRET
+City Information

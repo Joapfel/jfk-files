@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_5461.png
+
+Convert to Markdown15 June 1967
+
+MEMORANDUM FOR: C/WHD
+SUBJECT: Clemard Joseph CHARLES
+
+1. At 1530 hours, the DCB representative, George Musulin, called WH/7/Haiti Desk to report the following:
+
+"On 14 June 1967, Mr. BRUN met Colonel HOWARD L. BURRIS in Washington, D. C. They discussed in private the current developments in Haiti. Colonel BURRIS, who thinks very highly of CLEMARD JOSEPH CHARMILES, told BRUN that he fully supports the banker's (CHARLES) plans and that he will see the President as soon as possible.
+
+BURRIS told BRUN that he will urge the President to consider giving U. S. Government support to CHARLES."
+
+2. No other information available.
+
+SECRET
+
+201-357029

@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_8612.png
+
+Convert to MarkdownS E C R E T
+
+-7-
+
+daily a resume of the most important Mexican events, much of which he obtains from the Mexican press. He added, with a smile, that he, of course, has to supplement such newspaper accounts with information from his own contacts. SISTONE asked if this meant, among other things, getting handouts from Government offices. SARATOV dismissed such sources as unimportant. He said this daily resume which he sends home by Telex takes him about two or three hours. He said he is the lone TASS representative here. He has his own office separate from the Embassy and prefers it that way. SARATOV claimed to have traveled around Mexico quite a bit. He seemed to be impressed with the Yucatan and wanted to know if SISTONE has visited there. The latter replied that he has not yet visited the Yucatan since being stationed here, but that, as a tourist, he had seen the ruins there some years ago. SARATOV said that he is from Siberia, and in answer to a SISTONE question said he thinks the Georgians are the warmest and friendliest people of the Soviet Union. SARATOV obviously likes to brag about having been stationed previously in Washington. He also said he would very much like to have been assigned to the new TASS office being opened in San Francisco. According to SARATOV, per an agreement between the United States and the U.S.S.R, the former will have a Consulate in Leningrad and the latter a Consulate in San Francisco. The opening of
+
+S E C R E T

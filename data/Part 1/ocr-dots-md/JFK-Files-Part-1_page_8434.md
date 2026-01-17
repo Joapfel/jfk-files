@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_8434.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+with the Vatican, to the point where it had an Ambassador to
+the Vatican and had celebrated some months ago some distinction
+accorded by the Pope to the Papal Nuncio in Havana by lighting
+up the churches at government expense. CICARD readily admitted
+that there were many "good Communists" in Cuba who were also
+good Catholics, even, he said, among people fairly high up in
+the government. He, CICARD, was a dedicated revolutionary,
+however, who did not give any part of his loyalty to the regime
+to any type of religion. CICARD went on to emphasize that
+the close CASTRO relations with the Vatican were a demonstra-
+tion of the democratic nature of Fidel's regime. On several
+instances the undersigned joked about Raúl CASTRO'S recent
+speech which brought about the nationalization of every last
+small enterprise and further rationing in Cuba of such things
+as beer and soft drinks. On one occasion he also told CICARD
+that the latter's country was at the end of its rope economically,
+with hard currency reserves at an all-time low since the CASTRO
+revolution. CICARD agreed that the "economic situation of his
+country was bad," particularly as far as hard currency reserves
+were concerned. He naturally attributed this in part to the
+so-called American blockade and in other part to the efforts
+that had previously been made by the government to buy as much
+machinery as possible to go on with its plan of industrial
+expansion. When the undersigned mentioned shortages of meat,
+fruit, et cetera, CICARD readily admitted these were being
+sold to purchase badly needed equipment. As far as the sugar
+crop was concerned, he also admitted that the one of this
+year would not match that of last year, but he would not agree
+that it would not go over 5,000,000 tons. He and his colleague,
+however, repeated time and again that they were convinced, as
+Fidel has promised them, that by 1970 Cuba would have a
+10,000,000 ton harvest of sugar. As a matter of fact, the
+date 1970 came up in the conversation about other matters,
+as if that date were that from which Cuba would have no more
+economic problems. Someone in the group mentioned to CICARD
+that there had been rumors in the press of rapprochement
+between Cuba and the United States. CICARD said he did not
+think so because, he said, relations between the two countries
+were at present "very bad." The undersigned jokingly asked
+CICARD about Cyrus EATON's visit at the purpose of it. All
+CICARD would say was that EATON had a meeting with Fidel
+(photographs of EATON and CASTRO appeared in the local news-
+papers). As to the reason for the trip, CICARD rather
+
+S E C R E T

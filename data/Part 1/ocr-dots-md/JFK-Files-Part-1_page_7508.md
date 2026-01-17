@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_7508.png
+
+Convert to Markdownor until he decided to return to his own country—and even then, the complex nature of American law on this general subject make it hard to tell what could be done aside from perhaps denying another passport to go abroad again.
+
+11. The important thing, as shown by a long list of cases gravely investigated by congressional committees, is to have the postwar Central Intelligence Agency or some comparable group such as the Federal Bureau of Investigation keep track of the wealth of information available. Too much waste effort goes into the many duplications of inquiry.
+
+CONFIDENTIAL
+SHEETON 90-1171
+
+14-00000

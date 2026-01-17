@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_6203.png
+
+Convert to MarkdownHOMBRE
+
+F (continuación)
+
+VERNADE DEZ GARAY, Antonio
+FERNANDEZ GARCIA, Simeon J.
+PUENTE CORDOVES, Gerardo de la
+FERNANDEZ RITTO, Rosario Corina Perez (madre) 229 N.E. 24 St. Miami
+FERNANDEZ, Jose V.
+
+O
+
+GUERRA GA BRERA, Jose
+GILLO GONZALEZ, Eulalio
+GONZALEZ HARROSC, Bernardo
+GONZALEZ LARA, Anselmo
+GARCA-HERNANDEZ, Onofre
+GARCIA ARRIENOUL, Mirela Miguel y Digna García (padres)2423 Biscayne Blvd. Miami
+GONZÉZ QUESADA, Oswaldo
+GUERRA VIDAL, Erna Delia E. Guerra (esposa) 312 S.A. 31 Ave., Miami, Fla.
+GONZALEZ NANCY, Luis P.
+GONZALEZ CASTILHO, Ana W.S. Olga Castillo(tfa)
+GARRIDO ARTUELLAS, Waldo-
+GOÑEZ ROQUE, Juan Manrique
+GONZALEZ GONZALEZ, Héctor
+GARCIA AGRAMONTES, Ignacio
+GARRIDO GARRIDO, José
+GARZA PERDOMO, Leonardo
+GARTT, Nelson
+GUERRERO, NORBERTO
+OBLELER ERF ER, Juan May
+GOMEZ BARRIGUEO, Ramiro
+GARCIA ROSALES, Leona Nelson García(hernandez) St. Marys Jesuit H., St. Marys, Kansas
+
+- GOMEZ PONSECA, Federico
+- GONZALEZ MONTERO, Alfonso Mila Balbuena
+- GONZALEZ GONZALEZ, Hernando
+- GONZALEZ RODRIGUEZ, Adela
+- GARCIA VALDES, Valeria
+- GARCIA TORO, Maria
+- GONZALEZ HERREVO, Inmaculada
+- GARCIA CARRERA, Carmen
+- GRAVERAN FURENC, Noemi
+- GARCIA FERNANDEZ, María ALONSO, Martha
+- GRAU MESA, Walter
+- GRILLO GONZALEZ, Rafael
+- GONZALEZ SILVA, Theodora
+- GONZALEZ CUBRERO, Marlene
+- GARCIA OSINTES, Silvia Crews
+- GONZALEZ BORRERO, Jose
+- OUTIKERIS, Jose

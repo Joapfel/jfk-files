@@ -1,0 +1,71 @@
+# JFK-Files-Part-1_page_8816.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPIES:</th><th>ROUTING AND/OR INITIALS - START BY</th></tr></thead><tbody><tr><td colspan="2"><table><tr><td>SECRET</td></tr></table></td><td><table><tbody><tr><td>DNH</td><td>8</td></tr><tr><td>C1</td><td>0</td></tr><tr><td></td><td>7</td></tr><tr><td></td><td>9</td></tr></tbody></table></td></tr></tbody></table>
+
+JR'O: L. MESTRES/mvb
+UNIT: C/SB/X/WH
+EXT: 6412, R-1315
+DATE: 7 MARCH 1969
+
+CABLE SECRETARIAT DISSEMINATION
+☐ INDEX ☐ NO INDEX ☐ RETURN TO __________ BRANCH ☐ FILE ID
+
+BY 46 PER SB * 1/24
+☐ FILE IN CS FILE NO. ________________
+
+CONF:
+
+FILE. VR. DDP, ADD, CWD
+
+Egus Only
+
+(classification)
+
+SECRET
+
+(Date and time filed)
+
+(elite)
+(reference number)
+
+(CITE DIRECTOR)
+
+TO PRIORITY MEXICO CITY
+
+DESKILLIFIED TOP LIREALM AEDIEHARD AEKICK AWD
+
+REFERENCES: A. DIRECTOR-81435
+
+B. MEXICO CITY-9375 (IN 08492)
+
+C. MEXICO CITY-9381 (IN 08490)
+
+1. 201-285412 HAS BEEN ASSIGNED AEDIEHARD.
+
+2. THERE APPEAR TO BE TWO KEY OBJECTIVES WHICH SHOULD BE SOUGHT IN THIS LATEST LIREALM/AEDIEHARD DEVELOPMENT. THEY ARE:
+
+A. PROTECT AND STRENGTHEN LIREALM'S COVER IN A NATURAL MANNER, AND
+
+B. OPERATIONALLY EXPLOIT AEDIEHARD'S AGGRESSIVE ATTITUDE IN POSITIVE TERMS SO THAT STATION CAN DEVELOP ADDITIONAL ACCESS TO HIM WHILE MAINTAINING THAT WHICH IS ALREADY EXISTENT.
+
+3. IF OUR ACTIONS ARE CAREFULLY PLANNED, THESE OBJECTIVES NEED NOT CONFLICT. REVIEW OF AEDIEHARD'S FILE REVEALS FOLLOWING GENERAL CONCLUSIONS:
+
+A. DESPITE HIS AGGRESSIVE ATTITUDE AND VISIBILITY, THERE DO NOT APPEAR TO BE ANY SIGNIFICANT SUSCEPTIBILITIES.
+
+COORDINATOR: J.S. Copy
+
+(RELEASING OFFICE)
+
+(CONTINUED)
+
+S E C R E T
+
+<table><tr><td>SIGNATURE</td></tr><tr><td>Designed by Airman A.E.</td></tr><tr><td>Reviewing and Approved by Airman B.E.</td></tr></table>
+
+<table><tr><td>DBA W</td></tr><tr><td>AB X</td></tr><tr><td>Isa</td></tr><tr><td>E</td></tr><tr><td>PB</td></tr><tr><td>BY</td></tr><tr><td>BUD FPD</td></tr><tr><td>FI</td></tr></table>
+
+AUTHORIZING OFFICE
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+COPY NO.

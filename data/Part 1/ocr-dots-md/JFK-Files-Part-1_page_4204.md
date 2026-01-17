@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_4204.png
+
+Convert to Markdown23 November 1964
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Telephone Conversation Between AMBIDDY-1 and Dick
+
+DATE: 21 November 1964, 1600 hours
+
+1. At 1600 hours, 21 November 1964, I complied with AMBIDDY-1's request relayed through the Security Office that he be called on Franklin 3-1568 in Miami.
+
+2. AMBIDDY-1 described reports reaching him of mysterious phone calls being received by various Cubans in Miami, mostly MRR personnel or wives of MRR members. These calls started during the morning of 21 November. The caller was a North American who spoke Spanish and gave his name as "Bill Jones." The caller sought in each case to solicit derogatory information about AMBIDDY-1, with particular emphasis on A-1's alleged participation in smuggling activities. The caller offered money (A-1 did not know how much) for derogatory information.
+
+3. A-1 mentioned two persons who received calls: AMYUM-19 and the wife of Manolin Hernandez. In addition to smuggling, A-19 was also asked if the reason he broke with A-1 was because of the marriages of AMJAVA-4 or A-1. A-19 denied these allegations to the caller.
+
+4. A-1 said that the story spreading through Miami as a result of these calls is that the U.S. Government -- and probably CIA specifically -- was attempting to discredit A-1 as a basis for denouncing him. A-1 was obviously distressed by these speculations, and in reporting them he was in reality asking the question. I gave him my unequivocal assurance that the U.S. Government was not responsible for the calls.
+
+5. I asked A-1 who he thought was responsible and he said "maybe the Miami Herald." A-1 said that he had seen Al Burt earlier in the day (Saturday, 21 November) and that Burt was angry because he felt that the recent
+
+SECRET
+
+<table><tr><td>Caribbean 1</td></tr><tr><td>Automatic</td></tr><tr><td>CONFIDENTIAL</td></tr><tr><td>SUBJECT TO REDACTION</td></tr></table>

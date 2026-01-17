@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_7535.png
+
+Convert to MarkdownFBI REPORT
+
+DATE: JULY 51
+CLASS: CONFIDENTIAL
+SUBJ: UNKNOWN
+FBI FILE #: 100-68282 (NEW YORK)

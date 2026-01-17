@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_4195.png
+
+Convert to Markdown12 November 1964
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Telephone Conversation Between AMBIDDY-1 And Martin Ferrer
+
+DATE : 12 November 1964, 1100 hours
+
+1. AMBIDDY-1 reported that Antonio Sanz returned from Spain last night (11 Nov) and according to Sanz a representative of the dissident group will be leaving for Spain on 15 Nov. Sanz does not have the name of the representative, however, all indications point to Dr. Faustino Perez. A-1 has only talked to Sanz briefly by phone and therefore did not have all the details of Sanz trip.
+
+2. According to A-1 Sanz talked to the captain of the Caonao and the captain is more willing than ever to deliver the ship to AMWORLD. The Caonao will leave Spain on 16 Nov. A-1 said he would like a reading from Carl on the status of the Caonao operation.
+
+3. A-1 stated that some of his men who were formerly in the U. S. Army are being recalled. A-1 requested that we do whatever possible to remedy this situation. A-1 was advised to submit a list of names of the individuals involved and we would review the problem.
+
+4. Santiago Alvarez Rodriguez is encountering difficulties with I&NS in leaving the U. S. A-1 did not elaborate as to the difficulty, however, it appears to be a matter of time having the proper papers.
+
+5. A-1 said he is very pleased by the intelligence section in Miami, particularly the debriefing of Cuban exiles. A-1 promised to give Headquarters copies of all intelligence reports.
+
+Below conversation conducted
+in prearranged frequently
+changed privacy codes
+
+SECRET
+
+<table><tr><td>GHO IF</td></tr><tr><td>Enclosed is autographic</td></tr><tr><td>Date</td></tr><tr><td>Feb 11 1964</td></tr></table>

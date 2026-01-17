@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_8297.png
+
+Convert to Markdownwho once shorel him that the Gobernacion hed more than a foot high
+file on hin and Subject told hin they should not bother trying to do
+something agalnst hin because thay cannot even kick hin out of the country:
+he has a friend to whom he is authorized to turn if he is in any kind of
+trouble and he asked his Gobernacion to dial the phone which he gave him
+and the phone was answered by CISNLROS of the Presidency: Subject claims
+that he has influencial friends in practically every ministry (Secretaria)
+of the Federal government; Subject also prides himself with women friends
+he has and they are influencial.
+
+6. In answer to its question Subject stated that he called on Mr. [Cess] at the U.S. Embassy because he had a fairly close relation with Valentin LOGINEV (P-11,712) of the Soviet Embassy and he would not want to be judged wrongly if the WOIRN people get to know about his friendly relation with LOGINEV.
+
+7. F commented that he hoped that Subject realized that the title on his credentials really spells Counter Intelligence, which, for example, means that if F saw Subject robbing a bank he could not care less because that would be the matter concerning the criminal police, or if was charged for having a child out of wedlock, because that would be a matter for the judiciary authority, but when it comes to spies then that is a matter which concerns F and the service he is working for. In view of the well established fact that LOGINEV is a spy and Subject is his friend (sic) this matter is of concern for the American Counter Intelligence. Therefore, would appreciate if Subject stated clearly what was the purpose of his visit to the U.S. Embassy. Subject answered without hesitation nor embarrassment that he believed that he made himself clear even at the Embassy that he wanted to cooperate with the U.S. Service and be of help as much as it stood in his power. F commented that he would probably ask Subject does he still want to help the U.S. Counter Intelligence before we close our meet today.
+
+8. In reply to his questions Subject stated:
+
+in February 1969
+
+a. He met LOGINOV at a social party in the house of Dr. Frederico MARIN, who is as is commonly known a Communist by his ideology. He does not know where other Soviet officials at the party. LOGINOV first

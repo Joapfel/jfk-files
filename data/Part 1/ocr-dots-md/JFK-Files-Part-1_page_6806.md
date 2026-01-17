@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_6806.png
+
+Convert to Markdown# HALFERN
+
+Maurice HALPERN (201-
+
+American born expatriate, went to Moscow ca 1958-59. Writes propaganda articles for the Soviets. is economist. Father lives New York City.
+
+Is his sister Leontina Rizhik?
+
+The following is SECRET:
+
+HALFERN, Maurice Lyman
+Traveled to the USSR in
+October 1958
+
+On 15 July 1960 Maurice Lyman HALEFRIN and his wife, Edith Frisch HALEFRIN applied at the United States Embassy in Moscow, USSR for a renewal of their passes. HALEFRIN is reported to have stated that he had been in the USAR since December 1958 as a visiting professor of the Social Sciences Division of the USAR Academy of Sciences on a contract which expires in 1961. In 1948 Elisabeth DENTLEY, an admitted former Soviet espionage agent, stated that she had become acquainted with HALEFRIN in the latter part of 1952 through arrangements made by Jacob OLOLS, a known Soviet espionage agent. She further stated that during the time HALEFRIN was employed by the Office of Strategic Services in Washington, D. C., he supplied OLOLS with information to which he had access in his office. In late 1953 HALEFRIN left
+
+the United States for Mexico after refusing on constitutional grounds to toll the U. S. Senate Internal Sub-Committee whether he was ever a member of the Communist Party. In 1958, following the efforts made by the Government of Mexico to deport a number of American Communists, HALFERN and his wife went to the USSR where they now reside.

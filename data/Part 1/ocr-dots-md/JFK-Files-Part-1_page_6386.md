@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_6386.png
+
+Convert to MarkdownCONFIDENTIAL/US OFFICIALS ONLY
+
+00-B-30681
+
+- 2 -
+
+**PUBLICATIONS:**
+
+"Essay on Theory of Car Collect retarders on the Gravity Marshalling Yards"; "Prospects on the Automatic Car-Retarders on Classification Tracks of Marshalling Yards"; "Hand book for Motion-Dynamical Calculations of Shunting Plants, Resistance of Trains and Car-Cuts, Calculation of Car-Retarders, Design of Various Types of Shunting Yards Profile" etc (in process of completion); several short publications in different Latvian technical periodicals.
+
+**COMMAND OF LANGUAGES:** Subject speaks and reads English fluently, writes it fairly well. He is fluent in French, German and Russian.
+
+- end -
+
+TYPE ACT-DATE INFO-TFR-DATE AREA
+
+CONFIDENTIAL/US OFFICIALS ONLY

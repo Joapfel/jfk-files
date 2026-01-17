@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_6119.png
+
+Convert to MarkdownWorking Copy
+
+Elaine Fuller
+4401 Pine St.
+Philadelphia, Pa. 19104
+
+Gene F. Wilson
+Information and Privacy Coordinator
+Central Intelligence Agency
+Washington, D.C. 20505
+
+Dear Gene Wilson,
+
+On 23 March, 1976 I received some material on myself from your files which only partially answered my request for information. Your letter indicated that an appeal should be directed to you. This letter constitutes that appeal pursuant to subsection (a) (6) of the Freedom of Information Act (5 U.S.C. 552).
+
+As provided for in the Act, I will expect to receive a reply within 20 working days.
+
+A
+PR 26
+7
+SS AH '76

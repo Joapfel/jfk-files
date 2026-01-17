@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_9186.png
+
+Convert to MarkdownCONFIDENTIAL
+
+SECRET
+
+17 May 1951
+
+## PHONED SHUB
+
+Lou Scherer (RE) phoned to say that he had to see Levitas, editor of New Leader, in connection with a new project, and with several other matters. Would like to see him for about an hour. CSP had suggested I ask Boris Shub to arrange the appointment.
+
+I phoned Boris Shub, and phoned Scherer back that Shub would meet him at 10.50 a.m. tomorrow in the bookstore below (2) the IL office at 7 E. 15 St. Shub will introduce Scherer to Levitas at 11.
+
+## Re PHOTO BOOK
+
+Boris said there are 3 matters which "we can live without, but it would distinctly strengthen the book if you could perhaps get them at the Library of Congress."
+
+(1) It is conceivable that there exist photos of crowds being fired upon in Nov.—Jan. 1917-1918, in connection with rioting on the dissolution of the Constituent Assembly. (See Shub's Lenin).
+
+(2) Fighting in Moscow, Nov. 1917 (There was no fighting in Petersburg).
+
+(3) Collectivization. Some think it is conceivable there exist photos of peasants being shipped north to Siberia during Collectivization.
+Cf. CIA Graphics?
+Cf. Library of Congress.
+
+## Re RUSSIANS AS ALLIES
+
+Boris has just heard from a Russian friend, and has sent to London for confirmation—seen nothing in the papers about it here— that there has been formed in London a BRITISH SOCIETY FOR A FREE RUSSIA, with Major Hilton (author and ex-military attaché in Moscow) as president and the Duchess of Atholl as vice-president. Encouraging, he thought.
+
+He also mentioned the FREEDOM UNION FOR GERMAN-RUSSIAN FRIENDSHIP reported in the May 11 NY Herald-Trib, with Mayor Reuter and some Russians among the members.
+
+## Re PHOTO BOOK
+
+LAY-OUT of the book received from Munson in SP/MI today.
+
+SECRET

@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_7471.png
+
+Convert to Markdown26 OCT 1965
+
+TO: Director
+Federal Bureau of Investigation
+ATTN: Special Agent in Charge of
+Washington Field Office
+
+FROM: Deputy Director for Plans
+
+SUBJECT: ISAACS, Harold Robert
+
+Reference is made to the request dated 14 October 1965 concerning Subject. Attached for your retention is a copy of our CSCI-316/04169-65, dated 13 October 1965, subject: **ISAACS, Harold Robert**. It is noted that a portion of the information appearing in said CSCI was previously forwarded to you in our SODB 20568, dated 2 December 1949, subject: **Harold Robert ISAACS**.
+
+CSCI-316/04352-65
+
+Encl. 1 name check
+1 attachment as stated above
+
+RID/CE: JMA/CPL/ell
+
+Based on: CSCI-316/04169-65
+
+CS COPY
+
+SECRET
+
+TO FOREIGN DISSEM.
+
+IN 201-18446 T
+
+<table><tr><td>635P 1</td></tr><tr><td>Date can be changed</td></tr><tr><td>Check one and</td></tr><tr><td>cross out</td></tr></table>

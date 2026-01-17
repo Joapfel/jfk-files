@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_5686.png
+
+Convert to Markdown<table><tr><td>C-0-N-F-I-D-E-N-T-I-A-L</td></tr></table>
+
+DCID 17 establishes the concept for the dissemination and use of the intelligence and intelligence information in this report. The dissemination of this document is limited to military and active duty military personnel within the intelligent component of the USAF member agencies, and to those senior officials of the member agencies who must be apprised of the information. However, unless specifically controlled in accordance with paragraph 8 of DCID 1/7, it may not be released to those components of the Department and agencies of the U.S. Government directly participating in the production of National Intelligence Dissemination of this report outside the States of the United States, or to any individual or organization, other than those specified above, to be used without the specific approval of the Domestic Collection Division, Directorate of Operations.
+
+<table><tr><td>U</td><td>S</td><td></td></tr><tr><td>YES</td><td>YES</td><td>C-O-N-F-I-D-E-N-T-I-A-L</td></tr></table>
+
+**CONTROLLED DISSEM**
+
+**NO DISSEM ABROAD**
+
+5
+
+4
+
+3
+
+2
+
+1
+
+6
+
+4
+
+3
+
+2
+
+1
+
+<table><tr><td>Classified by 007672. Exempt from general declassification schedule of E.O. 1652. Exemption category 5B27. Inexpensible to determine cause of automatic declassification.</td></tr></table>

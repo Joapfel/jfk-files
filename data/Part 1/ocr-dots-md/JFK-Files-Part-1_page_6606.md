@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_6606.png
+
+Convert to MarkdownSTANDARD FORM NO. 04
+
+# Office Memorandum • UNITED STATES GOVERNMENT
+
+TO : Chief, Contact Division
+Attn : Mr. Anthony Czajkowski, Allen Branch
+
+FROM : Chief, Detroit Office
+
+SUBJECT: Failure to Locate Source Leads
+
+DATE: 4 October 1954
+
+I have made numerous attempts to locate the following source leads you furnished this office some time ago and without any success:
+
+Mr. Jan Kolar
+22 Charlotte Street
+Detroit, Michigan
+
+Mr. Stanislav Rehak
+1800 Westenaw
+Ann Arbor, Michigan.
+
+W.Konicki/bn
+
+File: Mr. Jan Kolar
+Mr. Stanislav Rehak
+
+CONFIDENTIAL

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_9279.png
+
+Convert to Markdown19, Sept. 11, 1990
+
+"...interpretation of Stalin's personality, doctrines and aims are pregnant with tragic misunderstandings between Americans and the Russian people— the best potential ally in the struggle for freedom,"
+
+"The Russian people were the first victims of the totalitarian yoke. They dream not of expansionism but only of the restoration of human freedom...Is it to Stalin, he \"spits\" as Lenin once said, on Russian interests, because Russia must merely be 'used as a base for world revolution,'"
+
+"Stalin...and all his international benchmen fanatically believe that 'the capitalist system as a whole is already ripe for revolution.' They fanatically believe, as Lenin proved, that 'the importance of war as a midwife of Revolution can scarcely be exaggerated'..."
+
+Alexander Korensky
+
+I imagine the "spits" is a correct quote from Lenin, but referring to someone else (perhaps himself) rather than to Stalin. J. was wondering.

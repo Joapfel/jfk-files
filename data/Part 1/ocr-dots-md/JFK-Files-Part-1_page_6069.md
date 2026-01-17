@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_6069.png
+
+Convert to Markdown- Mando que se cumpra e execuite a presente ordem em todas as suas partes.
+
+Palacio da Presidencia, en Havana, a 12 de Marzo de 1962
+
+Oscardo Portuaz Torralba
+Presidente
+
+Fidel Castro Ruz
+Primeiro Ministro
+
+Márgio Berman Berman
+Ministro do Comercio Interior
+
+Nessa mesma noite, Fidel faltou com amargura e animação o provinente racionamento. Disse que "a situação piorá a prova a capacilará da Revolução e dos revolucionários. Nem tudo são rosas. Ha também espinhos no caminho".
+
+Enquanto o "Nova Clóea" come e bebe...
+
+Anunciação que se adotará nos meados drásticas contra os especuladores... "Se for necessário chegar ao parcelão contra os especuladores, chegaremos ao parcelão".
+
+Disse também, como de costume, QUE A CULPA DE TUDO CABE AO IMPERIALISMO NORTEAMERICANO e que "é difícil construir o paraíso", mas "a grande tarefa revolucionária é construir para o futuro...
+
+No dia seguinte, entrava em vigor a primeira Resolução da Junta Nacional para a Distribuição dos Gêneros, que é a seguinte:
+
+POR QUANTO - O Conselho de Ministros faria, con a data de 12 de março de 1962, a lei nº 1015, criando a Junta Nacional para a Distribuição dos Gêneros, encarregando-a de propor ao mesmo Conselho de Ministros todas as medidas condizentes à melhor distribuição do abastecimento dos artigos de consumo atualmente;
+
+MINISTÉRIO DE COMERCIO INTERIOR
+
+LIBRETA DE CONTROL
+DE ABASTECIMENTOS
+
+CON LA GUARDIA
+EN ALTO
+
+o povo passa lome.
+— 9 —

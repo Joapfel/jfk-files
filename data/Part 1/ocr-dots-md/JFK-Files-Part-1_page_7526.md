@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_7526.png
+
+Convert to MarkdownSECRET
+
+7 November 1951
+
+Assistant Director for Policy Coordination
+Attention: Security Officer
+Chief, Special Security Division
+
+1. Reference is made to a memorandum from your office dated 3 July 1951 in which you requested that a Special Inquiry be conducted to resolve information concerning an allegation that Subject is sympathetic to and/or connected with Communist activities.
+
+2. On 31 August 1951, Mr. Kenneth Patrum of the Security Office was advised that partial results have been received as a result of inquiries at several national agencies. The partial information reflected that Subject had been connected with at least two factions of the Communist Party while living in the Far East. It was suggested that extreme caution be used in contacting or associating with the Subject.
+
+3. This office has completed the investigation of the Subject, which includes a check of records of the appropriate Federal agencies. As a result of this investigation, the files of this office contain a great deal of information concerning Subject's association with questionable organizations and individuals. Although Subject has denied any current activities with the Communist Party, his associations and activities are highly questionable and his political sympathy has not been unqualifiedly resolved at the present time.
+
+4. In view of the information as set forth above, it is recommended that extreme caution be exercised in dealing with the Subject. Under no circumstances should Subject be contacted with regard to possible use by this agency prior to receiving a final security determination by this office.
+
+FOR THE SECURITY OFFICER, CIA
+
+ROBERT H. CUNNINGHAM
+
+SECRET
+
+C O P Y
+
+SECRET
+
+SECRETS
+
+14-00000"}]

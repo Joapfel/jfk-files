@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_7753.png
+
+Convert to Markdown11.02 Humor:
+
+11.02.01 Is he a person whom you
+Have never seen tease anyone
+Have frequently seen tease someone
+Cannot imagine ever teasing anyone
+Consider his tendency to tease like that of most people X
+
+11.02.02 Is he a person
+Who obviously cannot take teasing
+Whom most people enjoy teasing
+Whom most people would never consider teasing
+Who obviously likes to be teased
+
+11.02.03 His sense of humor is
+About like that of most people
+Notably absent Clever Subtle
+Dry Heavy Crude
+
+11.02.04 Does he tell jokes and anecdotes?
+Never
+Sometimes
+Frequently X
+
+11.02.05 As a story teller, he is
+Very good Average Poor X
+
+11.02.06 Is he more inclined to tell a story
+To a group of people X
+Quietly to a friend or acquaintance
+Only when encouraged
+
+11.03 Overall impression of temperament and sense of humor:
+(Check the most appropriate description.)
+
+11.03.01 He is a hearty, hale fellow who laughs with gusto and pleasure.
+His humor is forthright, not subtle, and although he is sometimes loud, he is rarely unpleasant or objectionable. Most of the time, his good humor is contagious.
+
+11.03.02 He is a hearty fellow who, when he laughs, does so with considerable gusto. However, he is frequently dour and sometimes intolerant and somewhat humorless. His humor is direct, even crude, and at times, inappropriate. He tends to be the kind of person who laughs more at people than with people. X

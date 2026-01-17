@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_4164.png
+
+Convert to MarkdownSECRET/RYBAT
+
+-4-
+
+They began to visit the MRR offices, and several of its members complained because of their lack of morals.
+
+Nevertheless, Mrs. Aida PEREZ Pozo was assigned in the Intelligence department of the MRR with a salary of $100.00 per month. It is rumored this was because of her close friendship with Adelaida PADRON and ARTIME.
+
+Adelaida PADRON:
+
+Of humble family, she is known as servant of Mrs. Maria Luisa GOMEZ-MENA, famous lesbian of the high society of Cuba.
+
+She is her favorite servant and takes her along in her trips to Europe, having great regards for her.
+
+At the time that Adelaida PADRON was working for Mrs. Ma. Luisa GOMEZ-MENA, the chauffeur of the latter was a brother of the well known lesbian, Mrs. Luiza CANO, better known by the nickname of "La Campeona" (The Champion).
+
+This is the reason for the great friendship between Adelaida PADRON and Lucia CANO - "La Campeona".
+
+Adelaida PADRON is also a close friend of Flor de Lotto LARRUA and Toni LAVERNIA, famous artists in Cuba.
+
+Adelaide PADRON has arrived to her corruption. She boasts of having had intimate contacts with leading women of the Cuban society.
+
+While she was still married to Major Roger ROJAS, she gave a party at her house at 445 NE & 30 Ave., Miami, where among the approximately thirty persons who assisted, there were about fifteen lesbians and about five homosexuals. There is a picture of this party in the "Revista Farandula", published about one and a half years ago.
+
+General Fulgencio BATISTA was the witness at the wedding of then Lieutenant Roger ROJAS Lavernia and "Miss" Adelaida PADRON.
+
+This wedding took place with great roar in the Night-Club Tropicana, of Havana, Cuba.
+
+It is said that Adelaida PADRON maintained intimate relations
+
+DESENSITIZED
+
+SECRET/RYBAT
+
+SECRET/RYBAT

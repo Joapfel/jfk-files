@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_7354.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>CHECK CLASS</td>
+    <td>ENTION TOP AND BOTTOM</td>
+    <td>1/</td>
+   </tr>
+   <tr>
+    <td colspan="3">SECRET</td>
+   </tr>
+   <tr>
+    <td>(R)</td>
+    <td></td>
+    <td></td>
+   </tr>
+  </table>
+
+22 February 1974
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Conversation with Sam Halpern
+
+1. I met with Sam Halpern for about 20 minutes this morning in GG10, where he is cleaning up some details before he goes to his new assignment as DC/DCD. I told him generally about our attempt to reconstruct Howard Hunt's assignments and financial transactions, and asked him particularly for recollections he may have of Hunt's assignment in Spain in mid-1965 to the fall of 1966.
+
+2. Halpern said that he has no recollection about such an assignment. In June 1965 he moved from WH Division with Des FitzGerald when he became the DD/P. At about that time Halpern's father died and he was in New York for the funeral and ten days of religious observations following that. He was back in mid-June and in and out from then on as he got ready to attend the National War College which began in August. He did not return to that office until the end of June 1966.
+
+3. Halpern observed that during this period Karamessines was ADDP with Helms moving up to be DDCI. He thought it entirely possible that Helms and Karamessines could have handled this on their own.
+
+4. Halpern said that Evan Parker had come into the office of the DD/P shortly before Helms became DDCI, and had returned from Honolulu for that purpose. He stayed on for FitzGerald until Halpern returned from the National War College. He suggested someone might talk to Evan Parker who may have known something about it (although he may not). He also suggested talking to Georgia.
+
+/s/ S. D. Breckinridge
+S. D. Breckinridge
+
+<table>
+  <tr>
+    <td rowspan="2"></td>
+    <td>IMPMT CL BY</td>
+    <td>0:31:00</td>
+  </tr>
+  <tr>
+    <td colspan="2"></td>
+  </tr>
+</table>

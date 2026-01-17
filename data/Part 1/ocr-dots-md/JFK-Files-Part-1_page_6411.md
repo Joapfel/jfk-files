@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_6411.png
+
+Convert to Markdown# Notes
+
+* "Nevertheless, it may be noted that there are various stateless persons in Hong Kong, with their respective passports in order, awaiting accreditation on one of the five cities of the long Long-Duoro Airs line: the "BESSAYNE," "HYS," "JISINO," "KERRING," and "TALLINNA." (1)
+
+The difficulties which the international organisations encounter in obtaining complete and reliable information on the immigrants are due to a large extent to the fact that those immigrants always reside in areas far removed from the locales of the organisations' offices. One must also recognise the fact that included among the stateless immigrant is a large number of persons useful to Brazil, such as the following types of workers: mechanics, engineers, electricians, chemists, etc.
+
+There are twelve international organizations who are responsible for preparing the immigrants for the journey - or better, the exit - of those stateless refugees from China and various European countries. They are:
+
+1. A.J.D.C. - American Joint Distribution Committee, with offices in Rio and São Paulo.
+
+2. E.O.I. - Entr'Aiio Ouviore Internationale (International Workers' Mutual Aid).
+
+3. H.I.A.S. - Hebrew Immigrant Aid Society, with offices in Rio and São Paulo.
+
+4. I.G.M.C. - International Catholic Migration Commission, with offices in Rio and São Paulo.
+
+5. I.S.S. - International Social Service, with offices in Rio and São Paulo.
+
+6. I.R.C. - International Rescue Committee. Has no representatives in Brazil.
+
+7. L.W.F. - Lutheran World Federation, with offices in Rio and São Paulo.
+
+8. W.C.W.C. - National Catholic Welfare Conference, with offices in Rio and São Paulo.
+
+9. S.A.E. - Swiss Aid to Europe. Has no representation in Brazil.
+
+10. T.F. - Tolstói Foundation, with offices in Rio and São Paulo.
+
+11. U.U.A.H.C. - United Ukrainian American Relief Committee.
+
+12. W.C.C. - World Council of Churches, with offices in Rio and São Paulo.
+
+Two of these organisations handle the largest number of arrivals. One in the W.C.C. whose office in Rio is located at Praia do Flamengo, 180, apt. 602; its office in São Paulo is at Rua D. Vicente, 300. The São Paulo office is under the direction of Rosa Rachel de CARVALHO.¹² The other organisation is the M.C.W.C., whose office in Rio is at Avondiá Churchill 60; its office in São Paulo is in the Church of Peace (Igreja da Paz) on Rua Almirante. The São Paulo office is under the direction of Father Mario.¹³
+
+Since 25 April 1954, many stateless persons who have been unable to obtain a visa for Brazil, Canada or Australia have been repatriated to the U.S.S.R. As a result of this repatriation, it is possible, though not probable, that some elements may be sent from China to Brazil to engage in subversive activities here, while members of their families, who have been repatriated to Russia, are held as hostages there.¹⁴

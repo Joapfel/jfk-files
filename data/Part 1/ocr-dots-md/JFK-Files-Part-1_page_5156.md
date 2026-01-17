@@ -1,0 +1,179 @@
+# JFK-Files-Part-1_page_5156.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>OMF</td>
+    <td>0</td>
+    <td>0</td>
+    <td>0</td>
+    <td>0</td>
+    <td>0</td>
+    <td>J</td>
+    <td>3Y-3</td>
+    <td>1</td>
+  </tr>
+  <tr>
+    <td colspan="9">CLASSIFICATION</td>
+  </tr>
+  <tr>
+    <td colspan="9">-SECRET</td>
+  </tr>
+  <tr>
+    <td colspan="9">MESSAGE HANDLING INDICATOR</td>
+  </tr>
+  <tr>
+    <td>STAFF</td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+  </tr>
+  <tr>
+    <td>CONF:</td>
+    <td>LA8</td>
+    <td>INFO:</td>
+    <td>FILE</td>
+    <td>MIAN, 554, PS/CC 2,<br/>LSN110, YOPS, 0003,<br/>0051761, 000100, C14, SS/S0G'Y</td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+  </tr>
+  <tr>
+    <td colspan="9">TO: PRIORITY SANTIAGO INFO SAN JOSE, CARACAS. Y UNINTEL Y</td>
+  </tr>
+  <tr>
+    <td colspan="9">1. ON 12 NOVEMBER 1976 THE "WASHINGTON POST" PUBLISHED AN ARTICLE BY JOE CRANKSHAW IN MIAMI WHICH REPORTED THAT FBI HAD BEEN TOLD OF A DINA PLOT TO USE CUBAN EXILES TO KILL LUIS ANDRES PASCAL ALLENDE AND ANNE MARIE BRUSSIER (SIC - SHOULD BE BEAUSIRE). FOLLOWING ARE EXCERPTS FROM ARTICLE: Y</td>
+  </tr>
+  <tr>
+    <td colspan="9">A. RICARDO MORALES, VENEZUELAN INTEL OFFICIAL, REPORTED TO FBI THAT HE HAD BEEN TOLD OF A PLOT TO KILL PASCAL AND BRUSSIER BY ROLANDO OTERO. ACCORDING TO OTERO, HE WENT TO SANTIAGO IN EARLY FEBRUARY AND IDENTIFIED HIMSELF TO DINA OFFICIALS AS A FUGITIVE FROM THE U.S. AT DINA HQS, OTERO SAID HE WAS TOLD THAT THE SECRET POLICE SUPPORT THE CUBAN EXILES' CAUSE AND WOULD PROVIDE FUNDS AND ARMS FOR THEM IN RETURN FOR A "FAVOR." THE FAVOR WAS TO KILL PASCAL AND BRUSSIER IN COSTA RICA BEFORE 22 FEBRUARY 1976. OTERO QUOTED DINA SPOKESMEN AS SAYING BOSCH WOULD BE BACKUP IF OTERO failed IN the mission. ACCORDING TO OTERO, HE REFUSED TO DO THE "FAVOR," LEFT CHILE AND TOLD MORALES, HE THEN RETURNED TO</td>
+  </tr>
+  <tr>
+    <td>BAT:</td>
+    <td></td>
+    <td>CRIG:</td>
+    <td></td>
+    <td>UNIT:</td>
+    <td></td>
+    <td>LXT:</td>
+    <td></td>
+    <td></td>
+  </tr>
+</table>
+
+GROSS FILE COPY FOR
+B01-2.9/2/2
+
+DO NOT DETROXY
+
+AUTHENTICATION OFFICE
+
+RELEASING OFFICE
+
+COOPERATING OFFICES
+
+ASSISTING OFFICERS
+
+CL BY:
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+E 2 IMPORT
+
+CL BY: 018788
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET

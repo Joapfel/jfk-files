@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_4417.png
+
+Convert to Markdown**Name:** Carlos Orlando Piloto Valle
+**Age:** 29 years old
+**Civil Status:** Single
+**Nationality:** Cuban
+**Address:** 5830 W. 15 Ct. Hialeah, Fla.
+**Telephone:** 821-0325
+**Occupation in Cuba:** Businessman. Underground against communism; 5 months in jail before leaving the country in Pinar del Rio Prov.-- 
+**Occupation in U.S.A.:** Working for the liberation of Cuba. Member of the Bay of Pigs Invasion (Bon. 3 Infantery) 22 more months in jail.
+**Studies:** High School in Cuba (Bachillerato)
+**Experience:** Student until 1958. Working as a businessman until 1960. In training camps from 1961. Bay of Pigs Invasion. In jail until Dec.1962. Working for the liberation of Cuba from 1962 until today.

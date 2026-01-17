@@ -1,0 +1,62 @@
+# JFK-Files-Part-1_page_7038.png
+
+Convert to Markdown14-0000
+
+<table><tr><td>104-10172-10265</td></tr></table>
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+SECRET
+
+SBSR-843
+
+23 February 1973
+
+C.I. INFORMATION REPORT
+
+SUBJECT: Anatoliy Mikhaylovich GOLITSYN
+
+SOURCE: AESMASH
+
+REFERENCE: SBSR-547
+
+DISSEMINATION
+
+CONTROLS: Any further dissemination must be coordinated with C/SB/CI/P.
+
+COMMENTS:
+
+Attached are SB requirements based on Reference, and a report containing Source's reply to those requirements.
+
+ORIGINATOR: Frank McNulty, SB/CI/P
+
+DISTRIBUTION:
+
+2 - IP/AN/SB for [74]6-756/4 x-ref to 201-294855
+2 - SB/CI/P 201-C79 735
+1 - SS/CI/I
+1 - SS/CI/X
+1 - SS/CI/R
+1 - SS/COPS
+1 - C/CI/OPS
+1 - SB/IO
+1 - SS/I/USSR
+
+1 - SB/XO
+1 - SB/X/EUR
+1 - SB/RIS
+1 - EUR/SC
+
+SECRET
+
+E2. COPY: CL BY: 007622
+
+CONTENTS CLASSIFIED BY OS5348
+
+(13-20-62)
+
+3187c
+
+2/BR

@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_6771.png
+
+Convert to MarkdownMAURICE HALPERIN
+
+DESARROLLO ECONOMICO
+Y CRISIS EN LA
+AMERICA LATINA
+
+Ediciones de la Universidad Obrera de México
+1961 CS COPY
+
+20-12-8561
+
+20 Oct 61
+
+Encl. To HMMN 17988
+
+23

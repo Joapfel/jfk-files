@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_4202.png
+
+Convert to MarkdownSECRET
+
+21 November 1964
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Telephone Conversation Between AMBIDDY-1, Norman Santell and Martin Ferrer
+
+DATE : 21 November 1964, 1030 hours
+
+1. The undersigned telephoned AMBIDDY-1 to see if he had an opportunity to speak with President Orlich. A-1 stated he was unable to reach the President but did speak to the President's secretary. The secretary advised A-1 that he was unaware of the Hendrix story but he assured A-1 the entire story would be denied. A-1 informed Headquarters that he has sent Manolin Hernandez with a copy of the story to see President Orlich. A-1 commented that the initial reaction in Miami to the story was one of indignation toward Hendrix.
+
+2. When we called A-1, he was on his way to see Al Burt. A-1 had already talked to Burt by phone and they had made an appointment to discuss the entire matter this morning. Burt told A-1 on the phone that rumors concerning A-1's activity had reached him. A-1 said he would tell Burt that President Orlich would issue a complete denial of the Hendrix allegations. A-1 was cautioned not to forget that Burt is primarily a newspaperman and therefore to be on guard as to what he tells Burt.
+
+3. A-1 was advised to take a first stand against Philco concerning Jim Lee. Lee should be sent back to the U. S. as soon as possible. A-1 was requested to reject any proposals by Philco for consultations in Miami or Central America concerning Lee. A-1 should tell King to telephone Philco on Monday (23 Nov) and make it quite clear AMWORLD cannot afford to pay needless travelling expenses of Philco representatives. King should also ask for a price list for the spare parts. If Philco cannot comply, A-1 was advised to/them he will buy his spare parts elsewhere.
+
+SECRET
+
+Above consultation conducted
+In pre-arranged frequently
+changed agency code

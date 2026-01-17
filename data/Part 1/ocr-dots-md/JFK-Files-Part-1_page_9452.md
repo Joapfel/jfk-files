@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_9452.png
+
+Convert to Markdown31 May 1950
+
+TO: PDQUICK
+
+Conversations with Mr. Carpenter (25 May) and with Mr. Richards (31 May
+with reference to attendance at Cultural Congress of Mrs. Burnham:
+
+Both Carpenter and Richards agree that Mrs. Burnham may travel
+to the Congress, at the invitation of the Congress, in her own right,
+crawling money from travel fund for that purpose, without consideration
+of Burnham's status vis-a-vis CIA. This on the theory that
+the travel is desirable because of services she may render to the
+Congress (not as a delegate necessarily) and because of the
+involvement of Burnham's cover. The Congress, as ostensibly
+independent financially, would make any such arrangements
+without consideration of rules of CIA regarding travel of
+employees and agents.
+
+L. C. ?

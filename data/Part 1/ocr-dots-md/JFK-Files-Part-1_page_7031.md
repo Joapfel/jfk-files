@@ -1,0 +1,84 @@
+# JFK-Files-Part-1_page_7031.png
+
+Convert to Markdown14-0000
+
+<table>
+  <tr>
+    <td>OUTGOING MESSAGE</td>
+  </tr>
+  <tr>
+    <td></td>
+  </tr>
+  <tr>
+    <td></td>
+  </tr>
+  <tr>
+    <td></td>
+  </tr>
+  <tr>
+    <td></td>
+  </tr>
+  <tr>
+    <td></td>
+  </tr>
+  <tr>
+    <td></td>
+  </tr>
+</table>
+
+BASIC CENTER USE ONLY
+
+OMF 0 0 0 0 0 0
+
+CLASSIFICATION
+SECRET
+
+MESSAGE HANDLING INDICATOR
+
+DATE THE GROUP CTC
+
+CONF. C/OP 2 INFO: FILE 1 PLAN RAR 8 SE 8
+
+TO: PRIORITY [COPENHAGEN.Y]
+
+CKTOP NEFEATHER Y.
+
+REF: A. [COPENHAGEN] 16539 (FN 628011)
+B. DIRECTOR 274523
+C. [COPENHAGEN] 11904 Y (FN NUMBER FORMulated on REQUEST)
+
+<table><thead><tr><th>PTN</th><th>NM</th></tr></thead><tbody><tr><td>SAM</td><td>THE NEW ORDER IS TO BE FIRMLY DEEMED AS IF IT WERE IN PERSONAL HAND OF THE DIRECTOR.</td></tr><tr><td>C279</td><td>(S) 10. 2. 84<br>DEPT. FIST NAME & SURNAME<br>DIRECTOR'S INITIAL</td></tr><tr><td>PTRK</td><td>PROOF REFS CORRECTLY FORMATED ON ONE SIDE AND RETURNED WITHIN 2 DAYS.</td></tr><tr><td>PTRD</td><td>FOR REFERENCE ONLY. NOT FOR DISTRIBUTION.</td></tr></tbody></table>
+
+0 - TOP SECRET
+
+714734
+
+D NO DATE DISSENT BY 9:30
+
+D NO DATE
+
+D RETURN TO PER
+
+<table><thead><tr><th>PTN</th><th>NM</th></tr></thead><tbody><tr><td>SAM</td><td>THE NEW ORDER IS TO BE FIRMLY DEEMED AS IF IT WERE IN PERSONAL HAND OF THE DIRECTOR.</td></tr><tr><td>C279</td><td>(S) 10. 2. 84<br>DEPT. FIST NAME & SURNAME<br>DIRECTOR'S INITIAL</td></tr><tr><td>PTRK</td><td>PROOF REFS CORRECTLY FORMATED ON ONE SIDE AND RETURNED WITHIN 2 DAYS.</td></tr><tr><td>PTRD</td><td>FOR REFERENCE ONLY. NOT FOR DISTRIBUTION.</td></tr></tbody></table>
+
+1. THE SITUATION CONCERNING PDLADLE REMAINS THE SAME AS REF B.
+   IT IS STILL NOT IN BKHERALD'S INTEREST TO PUBLISH MATERIAL FROM PDLADLE WHO HAS NOT RPT NOT BEEN SURFACED. FYI, THERE IS ADDITIONAL FACTOR OF HIGH LEVEL BKHERALD LIAISON EQUITIES RE PDLADLE INPUT AS WELL AS HIS PERSONAL WISH REMAIN ANONYMOUS. THEREFORE, ARTICLE CONTAINED REF C OR ANY PORTION THEREOF SHOULD NOT RPT NOT BE PUBLISHED.
+
+2. DEFER TO STATION'S JUDGMENT RE POSSIBLE EFFECT ON OPERATIONAL CLIMATE OF PUBLICATION PARA 1 REF A NEFEATHER BACKGROUND PIECES. E2 IMPDET.h
+
+**RETURN TO CIA**
+Background Use Only
+Do Not Reproduce
+
+<table><tr><td colspan="2">RECORD COPY</td></tr><tr><td>C/CIOG</td><td>Steven Wild</td></tr><tr><td>SE/X/EU</td><td>Lynn Jank</td></tr><tr><td>SE/C1/X</td><td>Karen J. Dwyer</td></tr><tr><td>SE/SAME</td><td>E.g. Myranda</td></tr><tr><td>E/SC/D</td><td>Susanne D. Stein</td></tr></table>
+
+DATE: E. TSIKERDANOS
+ORIG: 9 JULY 1975
+UNIT: C/CIOG/SO
+E1: 1791
+
+9 JULY 1975
+201-99788
+
+ABG/ EUR/NR-
+RELEASING OFFICE

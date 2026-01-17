@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_6039.png
+
+Convert to Markdownin the city of Manzanillo in Oriente province, Cuba, he stated that in his trip through South America he had seen certain stirring in favor of a group of prisoners caught in Cuba. ( He was evidently talking about the campaign in favor of Muller ). This Campaign clearly showed the great possibilities we had in Latin America and the urgent need to carry through all the nations the great truth of what was happening in Cuba.
+
+DEVELOPMENT OF INDIAN AMERICAN PLAN
+
+In August, 1961, the first conversations to achieve the economic support for our plan were held. They lasted for approximately one month because we were not in accordance on several points. It was decided that permanent delegations were to be established in Latin America and for such purpose we made a well-studied and detailed plan in which we exposed our opinion on how to develop the labor throughout the continent. Unfortunately, many of the points we exposed in the plan were not approved (time gave us after the reason for as labor was being developed it was necessary to enforce many of the points which had once been rejected) and we began to develop the plan through the limited means we passed to achieve the objectives we had assigned ourselves. The main objective in the first plan of the IDE were;
+
+A.- Make the DRZ known through continental public opinion, principally the Students' opinion.
+
+B.- Make openly known the truth of what was happening in Cuba through all the means which could be useful.
+
+C.- Stir public opinion in favor of our cause.
+
+Delegation were established in less than three months in the following countries : Costa Rica, Venezuela, Mexico, Bolivia, Brazil ( Sao Paolo ), Peru, Argentina, Chile, Uruguay. Later, Delegations were established in Colombia, Ecuador, Panama, Honduras, Guatemala, Puerto Rico and Santo Domingo and Brazil ( Rio de Janeiro) The activity unfolded since then needs not be narrated, not only because it would take much time , but also because evident facts demonstrate the importance and the dimension achieved by the labor in the plan of the DRE for Latin America. In general form we will list some of the most important events during this period of time.
+
+1.- **27th of November:** day of duel for Latin American Students in memory of the Students executed in Cuba. At the IV Latin American Assembly of Students (CLAS) to which a DRE Delegation assisted and which we detail later on this report, it was decided to declare the 27th of November (date in which 8 students of Medicine were shot by the Spanish soldiers during the Cuban war of Independence) day of duel for Latin American students. This date was commemorated in almost all the Latin American countries, being this one of the first great blows we achieved coordinately throughout the continent. All the acts which were performed and the propaganda which was issued are filed in our office.
+
+2.- Student manifestation in Costa Rica on the 17th of October. It was possibly

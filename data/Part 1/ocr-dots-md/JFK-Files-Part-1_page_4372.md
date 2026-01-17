@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_4372.png
+
+Convert to MarkdownPANEL
+
+ntal. Se llama "La llogueta Feliz". Pones a Juana de Arco en la actualidad y, por supuesto, Juana de Arco llevada por su espiritualismo combate contra el Communismo.
+
+Se reúne la Dirección del Partido Comunista Francés y toman una línea contra Juana de Arco... ¿Quemaría? ¡No!, porque se crean un martir... (INFAMARIA! Y empiezan a decir que Juana de Arco lleva una vida libre, que Juana de Arco ha entregado a los dragos, que Juana de Arco vive con los Capitanes de su Ejército... y el drama termina cuando Juana de Arco, llorando, le conflica a los comienzantes ¡que la quemen! Y el Dirigente del Partido Comunista le dice: ¡NO!, ya te están quemada hace rato...
+
+Fue una vieja compaña... que puede circular dentro de ciertos límites, pero, después de enteros límites, ya no circula.
+
+Ya de gana de reír, porque el otro día me encontré yo con el ducho de una Joyería y me dijeron: "¡Te sabes que dicen que me diste 16,000 personas ...?" Yo lo dije: "Empiezamelos a pagar, porque de verdad que me hará gran falta....
+
+Yo al tengo riqueza... pero no son esas. La riqueza mía es encar que nosotros tenemos una organización, en toda el área del Cartibe que está veiendo por la seguridad de esos países y más de un Presidente nos debe la vida a nosotros.
+
+La riqueza mía es saber que entre nosotros es una pequeña
+
+"Granja Modelo" donde se están formando hombres para el futuro y, a partir del mes que viene, empezaran a venir indios latino-americanos a recibir formación para cambiar el medio ambiente e a que ellos se están desarrollando.
+
+La riqueza mía es saber que hay diez muchachos, en distintas universidades, preparándose en campos en que, hasta ahora, Cuba no tenia técnicos y los tendrá en el futuro.
+
+La riqueza mía es saber que las vidas y los familiares de los presos ouranos so están abandONDAS ni van a passer hombre.
+
+La riqueza mía está en saber que, dentro de Cuba, se recibe la ayuda del Movimiento... y eso no cuenta mucha sangre.
+
+¿Qué la única riqueza que yo le deje a mi hija sea el nombre mio, limpio... porque, por demanda, ni我要ler una negra de vida me quieren hacer las compañías aneguradoras. ¡Sera el único que, por tristeza, le pueda dejar yo a mi familiar! Y como lo+cido. y eso si lo cuidaro hams... y la última conference...
+
+NORMAN DIAZ: Doctor Artine, todo proceso revolucionario produce siempre nuevas figuras. Y el monaje de la revolución democrática cubana entraña un gran anhelo, que solo puede llevarse adelante con figuras, como usted acabe de decir hace unos momentos, de proclamaciones limpias y sin compromisos, passados.
+
+¡Serán estas figuras, que emer-
+
+gen de este proceso, las que li-
+ven a Cuba liberada el noble men-
+saje de estos años de sacrificio,
+de dolor, para darnos une patria
+mejor que la que teníamos? ¿Tie-
+ne usted fe en la fuerza espiritual
+de su generación? ¿Es usted emi-
+nentemente e revolucionario, Doctor?
+ARTIME: Yo me considero revolo-
+cionario, Norman, porque yo quiero
+revocar todas las medidas dema-
+gógicas y desastrozas que se han
+implantado en mi Patria. Yo quiero
+acabar con el paredón; yo quiero
+acabar con la abolición de la pro-
+piedad privada; yo quiero acabar
+con la discriminación de los hom-
+bres que hoy, más vistamente
+que nunca, se está estableciendo
+en mi Patria; yo quiero acabar con
+la oligarquía que disfruta de las
+riquezas de mi Patria, mientras
+el pueblo se siente de hombre.
+
+Yo tengo fe en mi generación, Norman. Pero mi generación no es de edad; mi generación es histórica. La generación mía en la de todos los hombres limpios de todos los gobiernos, de todas las edades, de todas las clases

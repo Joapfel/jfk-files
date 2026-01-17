@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_9109.png
+
+Convert to MarkdownIn addition to the various below interested in, Volen-
+cruet, he was then a pen pal for a bit of Intuition.
+
+Comme il est-il dit d'un autre côté, pour George Ensign,
+the Lepore Lepore, who wrote: Alonso-Castrillo a très
+bien deISTICS FOR THE WORLD IN GENERAL.
+
+In recent years he has served as the "secretary" of
+the shadow cabinet of Don Juan de Bourbon, attending
+periodic meetings in Lisbon even though he "knows
+it's a lost cause." I further suspect he would enjoy
+a little extra cash, but his professional reason for
+helping the bank would be the experimental psychological
+satisfaction of being involved in something with an
+international flavor and political friability. In
+addition to his duties at ENSE, Alonso-Castrillo
+is a member of the board of directors of the following
+firms: Parnellon, S.r.l. (artificial drugs), Fenilbarica, S.a.
+(antibacterial, antimicrobial Centero, S.a. (real estate),
+artes Graficas Aron (printmaking). artes Graficas Clavileno
+(practising).
+
+He is a writer with a trade for scholarly pursuits
+as evidenced by his having worked for Imago's Degrees
+in International Law and as Assistant and at Paris University.
+However, he is an associate professor of International
+Law at the University of Paris and has published several
+books and articles.

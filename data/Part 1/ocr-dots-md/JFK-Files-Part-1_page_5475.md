@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_5475.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+NO FOREIGN DISEASE/CONTROLLED DISSEMINATION
+
+-2-
+
+CDD-B-31.2/01625-67
+
+5. Charles had no contact with Haitian exile groups until early May 1967, when he sent an emissary to New York City to talk to Louis Sansanrieq, a prominent anti-Duvalier exile, whose entire family was killed by Duvalier's henchmen. Sansanriec agreed to support Charles in a final showdown with Duvalier and promised to line up some of his fellow exiles to support Charles. A close friend of Charles was planning to go to New York in mid-May 1967 ostensibly to discuss port development projects in Port-au-Prince with a U.S. construction firm; however, the real purpose of the trip is to contact Haitian exiles to gain their support for Charles.
+
+6. On 19 May 1967, a group of prominent Haitian exiles held a meeting in New York City to celebrate Haitian Flag Day. One of the organizers of the meeting was Dr. Jumelle (fmu),⁴ a medical doctor whose brother was a former Haitian Minister of Finance and who was killed by Duvalier. Another exile who attended the meeting was Vixomar (fmu)? who claims to be a legal advisor to the Republic of Chad and who said that he was going to be the next president of Haiti. The group of Haitian exiles, believed to call itself the "National Organization of Haitian Exiles", has some members who back Charles.
+
+7. Following are prominent Haitians who Charles believes must be eliminated after the coup:
+
+a. Col. Gracia Jacques of the Presidential Guard - Jacques, who is no longer blindly loyal to Duvalier, will be needed in the execution of the coup, and can be bought; however, once power is in the hands of a military junta and Charles, Jacques will be eliminated.
+
+b. Lue Desir, head of the Tonton-Macoute.
+
+c. Clovis Desinor, Minister of Finance - an "anarchist" with presidential aspirations who has an "underground movement in Haiti."
+
+d. Gen. Gerard Constant, Chief of Staff.
+
+e. Col. Jacques Larocke, Deputy Chief of Staff - a "convinced Communist."
+
+8. If the coup is successful, Charles hopes to give Andre Theard, former Haitian Ambassador to the United States, a diplomatic post; Theard is strongly pro-U.S. Charles regards Gerard Philippoux, Minister of Health, as a very sick man with no further political aspirations.
+
+9. Close friends of Charles are convinced that Charles has no choice but to carry out a coup with or without foreign help, and that his chances of success are good because several of Duvalier's new appointees to key positions are friends of Charles; also, that Charles must act soon because the morale of many of Duvalier's military and civilian supporters has reached an all-time low and because the Haitian Treasury is almost empty.
+
+Headquarters Comments
+
+1. Coisou may be Maj. Bergs Coisou.
+
+2. Probably Lt. Col. Lus Pierre-Louis.
+
+3. Another source has identified Preval as Capt. Walter Preval.
+
+S-E-C-R-E-T
+
+NO FOREIGN DISEASE/CONTROLLED DISSEMINATION

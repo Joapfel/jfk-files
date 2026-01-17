@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_5898.png
+
+Convert to MarkdownSECRET
+
+2.
+
+2. I phoned Reichhardt on 9 September and we discussed the following matters:
+
+a. I told him about the visit of Angel ROS. He said he had talked with [REICH] on this matter and that [ROE] reported that ROS came to Miami on 1 September and left on 3 September. [REICH] thinks ROS is a secret police agent. Bernie is to see [ROE] for details on this. (Comment: Reichhardt's report was received on 11 September.)
+
+b. Reichhardt asked me to check on his money situation since no deposit has been made.
+
+c. Reichhardt asked if I had seen copies of the now letter being distributed by Emilio NUNEZ Portuondo called Latin American Events. NUNEZ is listed as editor and publisher and the firm is Latin American Affairs Inc., 1028 Connecticut Avenue, Washington. The first issue was published on 7 August. The 17 August issue includes a list of Communists. (Comment: I am arranging for the CIA library to procure loan copies of the publication for me to review.)
+
+d. NUNEZ was in Miami last week. CRIEGA did not see him, but according to CRIEGA's sources, NUNEZ strongly implied that he has succeeded in obtaining US support in the Departments of State and Defense including commitments for training sites in the United States. NUNEZ also said that he is in touch with Col. King. This was covered in USA-15.
+
+3. On 15 September I talked with Reichhardt concerning the following:
+
+a. Ricardo LORIB saw ROS. Bernie will see LORIB about this.
+
+b. Bernie will see FOX this week.
+
+c. The addresses for the two evacuees who came by way of El Salvador are not correct. I told Bernie to try to find out where they are from the third, with whom he is in contact.
+
+d. Bernie asks that his local travel order be renewed. (Comment: I checked this and the order has been renewed through 31 December 1969.)
+
+e. On 16 September the following matters were discussed with
+Reichhardt:
+
+SECRET
+
+4/BR

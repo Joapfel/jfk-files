@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_8121.png
+
+Convert to MarkdownSECRET
+
+DOCUMENT
+
+Box Number: JFK64-10
+Source Number: 104-10174-10031
+CADRE Ref ID: C00556281
+Pub Date: 05/05/1960
+Pages: 1
+
+C00556281
+
+104-10174-10031
+
+SECRET
+
+11/4/2014 7:33 AM

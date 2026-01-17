@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_4842.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">CABLE BE COME BY P. N° 106</th><td>Handwritten: 8/5-2/6<br/>SECRET</td></tr></thead><tbody><tr><td colspan="2">PERMIT NOTED</td><td>Handwritten: S</td></tr><tr><td colspan="3"><table><tbody><tr><td>ADVANCE COPY</td><td>FOR NOTER AD 105, BY J. AL 105.</td></tr><tr><td>ACTION UNIT</td><td>FILE VR</td></tr><tr><td>JFCT'S</td><td>flying fowls</td></tr><tr><td>FCHNG #</td><td>DVD</td></tr></tbody></table></td></tr><tr><td colspan="3"><table><tbody><tr><td>STAFF'S</td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr></tbody></table></td></tr><tr><td>T 696468</td><td>EIA963</td><td>PAGE 81</td></tr></tbody></table>
+
+RECORDS OFFICE
+
+T0R:1917382 FEB 76
+
+The follow up to EJOS:
+
+SIGNATURE
+R.O.
+
+TO: IMMEDIATE DIRECTOR INFO IMMEDIATE CARACAS.
+BYBAT VWLOFTY
+REF1 DIRECTOR 809281
+
+SECRET SERVICE REP MASTROVITO ADVISED OF CONTENTS REF. AT HIS REQUEST, AND IN VIEW QUESTION OF LENGTH BOSCH DETENTION. STATION ARRANGED FOR MASTROVITO TO INTERVIEW BOSCH AT HUFABRIC MOS AT 1400 HRS LOCAL TIME 19 FEBRUARY. NO STATION REP WILL PARTICIPATE THAT INTERVIEW. MASTROVITO HAD INTERVIEWED BOSCH SEVERAL YEARS AGO IN THE U.S.
+
+COSTA RICANS ARE DISCUSSING HOW LONG THEY CAN HOLD BOSCH ON ENTRY WITH FALSE DOCUMENTS CHARGE. THEY CONSIDERING CONTACTING GENERAL GENI IN MANQUA AND DEPORTING HIM TO THAT COUNTRY. WILL KEEP MOVED ADVISED FURTHER DEVELOPMENTS.
+
+STATION WAS REMINDED DOM OF BACKGROUND THIS CASE (ESSENCE PARA 1 AND 2 SAN JOSE 19237), OF PLANNED MASTROVITO INTERVIEW, AND ESSENCE REF.
+
+TRAVEL PROGRAM
+
+INDEX
+
+PREPAGE FOR FILMING
+
+CODE NO. (2, 3)
+RETREAT RATE
+GARDE GEN (II)
+RTD (A)
+FOR FILming
+
+RECORD COPY
+
+SECRET
+
+19 MAR 76
+24 - 297298
+
+<table><tr><td>P/M</td><td>X</td></tr><tr><td>P/CAN/V</td><td></td></tr><tr><td>D/M/S</td><td></td></tr><tr><td>G/CAU</td><td>L/AON</td></tr></table>

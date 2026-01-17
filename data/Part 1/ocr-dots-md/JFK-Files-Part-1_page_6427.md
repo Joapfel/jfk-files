@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_6427.png
+
+Convert to MarkdownUNITED STATES OF AMERICA
+OPERATIONS MISSION TO GERMANY
+
+Office for Field Coordination
+Escapes Program
+c/o American Consulate General
+Frankfurt/Ein, Germany
+
+October 10, 1954
+
+Frankfurt
+
+Dear Sir,
+
+In June of 1954 this office received a case from UACB for a citizen by the name of PLEASOW. Port單位, the last two in field, Czechoslovakia, on March 31, 1927. At the time her case was submitted to this office she was a student in Geneva residing at 3 Avenue Cuvier, and she was being processed for immigration to South America.
+
+During a routine check conducted on this individual this office learned that Pleasilova was associated with one (Gleason Filly, a compatriot) of Pleasilova's agents in Switzerland. The information did not indicate that Pleasilova was implicated in Lilly's activities. On the other hand, it was indicated that an entry visa to France was e-mailed by the French authorities. It was indicated that our consuls in Geneva did not have direct access to police files on Pleasilova which are called to be voluminous. No attempt was made on the part of American personnel to analyze the case at that time. However, it was the opinion of a competent American officer in Geneva that Pleasilova should have been questioned in detail about her background and activities for the past seven years.
+
+Based on the above information, Pleasilova was denied USAP eligibility. On August 23 I wrote to the American Consulate in Geneva advising the late Mr. Pleasilova had left Switzerland and immigrated to Mexico on July 2, 1954. Her transportation was covered by a revolving fund loan from the International rescue Committee because USAP eligibility had been denied. I advised the Consulate that it was my opinion that this information should be brought to the attention of proper American authorities in Geneva, in that Pleasilova's presence in Mexico might not be in the best interests of the United States.
+
+INDEX
+
+63 007
+
+CONFIDENTIAL
+
+SCHAFER 004307 DEM 80-14037
+
+NEW
+REVISED
+CROSSWALK
+EXTRACTED
+REDO
+REDACTED
+
+EHOUL] 1

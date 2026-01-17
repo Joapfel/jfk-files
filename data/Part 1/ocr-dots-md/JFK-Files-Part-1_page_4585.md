@@ -1,0 +1,76 @@
+# JFK-Files-Part-1_page_4585.png
+
+Convert to Markdown14-0000
+
+<table><tr><td>104-10164-10032</td></tr></table>
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+[ ] UNCLASSIFIED
+
+[ ]iaoTERRA
+
+ONLY
+
+[ ] CONFIDENTIAL
+
+[ ] SECRET
+
+OUTING AND RECORD SHEET
+
+SUBJECT: Options
+
+FROM: WZ/2 MARION E. LINDSE
+
+TO: (Office designator, name, job title)
+1. C/M 12/2
+2.
+3. CI/Madison
+4.
+5. RI/AR
+6.
+7.
+8.
+9.
+10.
+11.
+12.
+13.
+14. R/D / MIS
+15. R12 / FI
+
+DATE: 2/26 February 1959
+
+COMMENTS (number each comment to show how it relates to the item being commented upon):
+
+OFFICE'S DETAILS
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+D.D.
+
+33 FEB 1958
+
+BLOCK MORRIS
+
+ABSTRACT
+
+INDEX
+
+DATE 12/7/1958
+
+FORM 1060, 610 USE PREVIOUS VERSIONS
+
+SECRET
+
+CONFIDENTIAL
+
+INTERNAL
+
+USE ONLY
+
+UNCLASSIFIED
+
+CIA, GOVERNMENT PRINTERS AND COPIES: 1000 E • 610 REV

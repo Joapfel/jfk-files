@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_9157.png
+
+Convert to MarkdownOFFICE OF STRATEGIC SERVICES
+
+630 FIFTH AVENUE
+NEW YORK, N. Y.
+
+By Courier
+
+November 14, 1944
+
+Colonel William J. Donovan
+Office of Strategic Services
+Washington, D. C.
+
+To the Colonel:
+
+You may have heard already about Mrs. Luce's campaign of political warfare in respect of the British Empire, but it's so interesting and so relevant to our operations that I am adding a chance on boring you with a repetition:
+
+Then Mrs. Luce went to the circle at some time ago she had an interview with Auchinleck, among others, and obtained from him some extremely important and previously confidential information. According to one account, she even learned the state of affairs the British offensive in North Africa was due to begin. She wrote this information down in her notepads -- and also inserted her opinion of Auchinleck and of the British Administration. In that part of the world and elsewhere, all of this in extremely uncomplimentary terms.
+
+Previous to her return to America, she persuaded Monckton to put her notes under some kind of an official British seal with the idea that this would clear them without inspection, through any British posts she might be passing on her way home. In addition to these notes under seal, Mrs. Luce also had further notes in her possession which she wrote after the earlier material was sealed. When she arrived at the British censorship in Trinidad, a British official looked through her winded papers and found among them the notes in which she had expressed herself with considerable feeling on the British. The official was moved by this discovery to break the seal which Monckton had placed on the earlier material, and said that too. Mrs. Luce felt very strongly about this action, and протested with great feeling, but the official at Trinidad has not determined.
+
+So given a view was taken in Trinidad of Mrs. Luce's notes, and most particularly of the information she had obtained from Auchinleck, that all the papers were sent to London. According to one version, they even went to Mr. Churchill himself. They were then sent to Washington--apparently to the White House. It was only after these several examinations that they were returned to Mrs. Luce.
+
+This history is supposed to explain the disciplinary action taken against both Monckton and Auchinleck some time ago, and it's firmly believed, in at least some quarters, that Mrs. Luce's experience was not altogether unconnected with the "Open Letter" to the British people recently published in Life Magazine.

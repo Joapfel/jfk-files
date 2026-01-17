@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_4288.png
+
+Convert to MarkdownSECRET
+
+Separate Cover Attachment to WGA-83186
+
+IDEN A - mas *KING* (probably William Kenneth KING-GODFREY
+(201-742345)
+
+IDEN B - Edgar *SOPO* Barrato (probably 201-283208)
+
+IDEN C - Wilo MESSIA Pujol (201-294655)

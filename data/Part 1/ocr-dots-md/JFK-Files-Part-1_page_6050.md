@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_6050.png
+
+Convert to Markdown# Bombardero a Cuba fue militarmente premeditado - dicen jóvenes cubanos
+
+300 mil son los exilados que luckan por liberar a Cuba de rojos
+
+Los exiliados cubanos nue actualmente se encuentran en el país. De lo que ignora la derecha, Rolando Fernández, Delegado Oficial en el Perú del DRE, y Roberto Pérez San Ramón y Rafael Quintero, miembros de la Brigada de Asalto 2506.
+
+Que el último bombardeo a la Habana, por miles de soldados del Directorio Revolucionario Estudiantil, fue "militante e impredecible", revelaron a LA CRONICA. Roberto Pérez San Román y Rafael Quintero, miembros de la Brigada de Asalto, confirman que participaron en la invasión a la isla Colombia y que actualmente están en el Perú. El primero, tiene el cargo de Jefe de Artillería. En su vena a nuestro diario estuvieron acompañados de Rolando Fernández, delegado del DRE en el Perú.
+
+Manifiestan también que eso es así siagan preparando este lance tiempo y en el momento del bombardeo al hoteel ICAP, Fidel Castro se encuadraría con los técnicos que, "De allí el bombardeo al hoteel", diron.
+
+Revistan igualmente que el co-bombardeo de Y del Cipro, va a fusilar a sus journales, entre ellos estudiantes y liberales norteamericanos, cañadóes, de s f actores de los bombardeos Fido, am judgments previos.
+
+Cuba va ser el bombardeo a La Habana, yaíd proyecta en la noche del viernes 21 del presente, hecho que mucha que Cuba envíase a Estados Unidos, no más de un mes, con el anor intellectual.
+
+No parecían tan bien. Roberto Pérez San Román, miembro del Comité Central de la Revolución Cubana, refuerza toda la confirmación de Cuba. Ellos ya han visitado Colombia, Montevideo y Santiago, y posteriormente encaminarán a Colombia y de allí a Centro América.
+
+Igualmente también que vendrian la iluminación, para recibir toda ayuda que estos países pedirían proporciones.
+
+cubanos, ministro del Consejo Revo-
+vividorio Cubano, representante de
+La Habana, ron el obediencia de in-
+formación sobre la verdadera situación
+de Cuba. Éllos ya han visto Cas-
+cas, Montevideo y Santiago, y pas-
+terotécua encaminarán a Colombia
+y de allí a Centro América.
+
+Reclaren también que vendrian la iluminación, para recibir toda ayuda que estos países pedirían proporciones.
+
+Y en particular, deberá equivalerle en la consideración de los pro-pósitos porteamericanoos, porque如果如今是美國國會，則必將有如下的決議：「我們的大陸公民，除非得到我們的領袖們許可，否則我們絕不發表任何聲明或意見。」但願這句話能進一步證明我們的立場。
+
+"El primer democráтиco de los cubanos en el exilio y de los cubanos de la resistencia en Cuba contra el régimen de Castro, retebre, o discreta totalmente de toda actividad o política que pretenda dirigirse o se diverta aocher una existencia con el comité que desechiera a la revolución del Caribe. Estamos, por el contrario, de acercarnos con toda posición que no significue daño para la democracia continental y si, más bien, el degradamiento y la construcción del papeles que ha de tener en cuenta su未来."}, {"bbox": [748, 1515, 1213, 1541], "category": "Text", "text": "Y la目標 es: «¿qué dos exiliados»"}, {"bbox": [1229, 1281, 1711, 1467], "category": "Text", "text": "cubanes, minimums del Consenso Revo-\nvividorio Cubano, representantes de\nLa Habana, ron el obediencia de in-\nformación sobre la verdadera situación\nde Cuba. Éllos ya han visto Cas-\ncas, Montevideo y Santiago, y pos-\nterotécua encaminarán a Colombia\ny de allí a

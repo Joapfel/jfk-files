@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_9081.png
+
+Convert to MarkdownICAP CORPORATION
+
+375 PARK AVENUE
+NEW YORK, N. Y. 10022
+
+PLAZA I-1944
+CABLES INTRATRUST NEWYORK
+
+CAPITAL FOR DEVELOPMENT
+FINANCIAL CONSULTANTS
+
+December 20, 1967.
+
+Sr. Ismael Aguila
+President
+Diamond de Panama
+S.A.
+Apartado 4297
+Panama City, Panama
+
+Dear Ismael:
+
+Please forgive me for not having submitted my accounting sooner than this. As you know, I have been away from New York on several trips and my correspondence has accordingly fallen behind. Should there be any question concerning the data which you will find on the attached sheet, please let me know, and I shall be happy to submit any clarification you desire.
+
+At the moment I am devoting all my time to the Sattelite City project in Venezuela, and have consequently let matters ride with respect to the Mexican border development program.
+
+Please let me know when you are coming to New York, for I would like to take you to that wonderful Latino restaurant you mentioned in our recent phone conversation.
+
+Un abrazo carinoso
+
+Henry P. Lopez.

@@ -1,0 +1,72 @@
+# JFK-Files-Part-1_page_7058.png
+
+Convert to Markdown14-0000
+
+<table>
+   <tr>
+    <td>
+     ASSIGNED MESSAGE
+    </td>
+    <td>
+     TOTAL COPY
+    </td>
+   </tr>
+   <tr>
+    <td colspan="2">
+     [SECRET]
+    </td>
+   </tr>
+   <tr>
+    <td colspan="2">
+     PELPONLUNI NOTETIR
+    </td>
+   </tr>
+   <tr>
+    <td colspan="2">
+    </td>
+   </tr>
+   <tr>
+    <td colspan="2">
+     MEXICO CITY
+    </td>
+   </tr>
+   <tr>
+    <td>
+     WH8 ☑ RID COPY
+    </td>
+    <td>
+     ADVANCE COPY ☐ .... ☐ .... ☐ ....
+    </td>
+   </tr>
+   <tr>
+    <td colspan="2">
+     FILE VR, CT, C/OPS, FI, SR8, CITIC2, CT/GB
+    </td>
+   </tr>
+  </table>
+
+S E C R E T 071903Z
+
+DIR ÇITE MEXİ 5837
+
+REDCOAT LCIMPROVE LICANNY-I
+
+REF A HMMW 12821 AUG 64 B MEXI 5372 NOV 65
+
+7 JAN 1992 09:09
+
+I. DURING ROUTINE CONTACTS WITH PBSWING OFFICER DURING JAN SUBJ ADVISED HE IN CONTACT PAVEL YATSKOV (201-120123) AND VALENTIN LOGINOV (201-285412), BOTH SUSPECT XGB. SOVS ASKED HIM PREPARE TRAVEL INFO ON TRAINS AND SHIPS BETWEEN MEXICO, NEW YORK AND EUROPE. LOGINOV APPEARS FRIENDLY AND TOLD SUBJ HE HOPES THEY WILL BE FRIENDS.
+
+2. PBSWING OFFICER TURNED SUBJECT OVER TO STATION OFFICER TO whom AGREED. ACT AS ACCESS AGENT. REQUEST HOS REPROCESS HIS POA.
+
+SECRET * REF., LAURICLE
+
+CFN 5837 -1 HMMW-12821 65 5372 65 PBSWING PAVEL YTASKOV 20. - 120123
+
+VALENTIN LOGINOV 201-285412 KGB SOVS NEW YORK EUROPE LOGINOV
+
+PBSWING LOGINOV HOS POA
+
+ST
+
+SECRET

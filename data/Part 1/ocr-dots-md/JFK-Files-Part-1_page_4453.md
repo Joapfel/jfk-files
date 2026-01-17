@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_4453.png
+
+Convert to MarkdownSECRET
+
+Cover Sheet Page Two
+
+UFG-7951
+
+NAME: FERNANDEZ Miranda, Roberto
+SEX : M
+DOB : ?
+POB : ?
+Cit : Cuban
+
+Occ or Status: Activities in Miami for Fulgencio BATISTA, his brother-in-law.
+
+NAME: SAIF Vapor, Nicolas Jacobo
+SEX : M
+DOB : ?
+POB : ?
+Cit : ?
+Occ or Status: Fulgencio BATISTA's brother-in-law.
+In Miami. Activities on behalf of BATISTA.
+
+NAME: TORRA, Antonio D.
+SEX : M
+DOB : ?
+POB : ?
+Cit : ?
+Occ or Status: Member of BAR, Fulgencio Batista's personal organization in Miami. On Batista payroll.
+
+NAME: GUERRA Suarez, Florencio
+SEX : M
+DOB : 30 Oct 1999
+POB : Cuba
+Cit : Cuban
+Occ or Status: Former Cuban ambassador. Enگre in Miami. Member of BAR, Batista's personal organization in Miami. On Batista payroll,
+
+NAME: COGAS Reyes, Marie
+SEX : M
+DOB : ?
+POB : ?
+Cit : Cuban
+Occ or Status: Former Cuban Vice of Transportation, enگre in Miami. Member of BAR, Batista's personal organization in Miami. Also journalist, radio commentator. On Batista payroll.

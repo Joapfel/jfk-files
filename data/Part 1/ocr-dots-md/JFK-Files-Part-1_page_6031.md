@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_6031.png
+
+Convert to Markdown# DIRECTORIO REVOLUCIONARIO ESTUDIANTIL
+
+Jose antonio echeverría con tus ideas en marcha
+
+## SITUACIÓN DE LA R.E. DELABATIENTE EN SU SEPOLO
+
+The case of the O.R.I. Delegation at Sao Paolo which is composed by Raúl González Simon and Antonio Vega, can be considered as an exceptional case inside the Latin American plan. In Sao Paolo, I had the opportunity to hold deep conversations with Raúl González Simon, and we reached at the following conclusions.
+
+1.- In one whole year the ORE delegation at Sao Paolo has NOT ANY AIM TO ACCOUNT FOR, AND SPECIFY THE PURPOSES OF THIS SECOND DELEGATION, nor has been published by the ORE, not one single article of the delegation's appearance in the press. Not one single word of the delegation, not one of the communications and instructions by the section of International Relations has been carried through. Summing up the genuine words of the ORE delegate at Sao Paolo, Raúl González Simon, to other states: the conversations held at my arrival at Miami with Antonio Vega, another member of the delegation at Sao Paolo, we reached at the following conclusion.
+
+2.- During one year no effective labor has been accomplished in the city of Sao Paulo on the Cuban problem.
+
+3.- Time has been wasted uselessly to obtain only as a result a standing failure.
+
+The motives for this failure can be outlined as follows:
+
+1.- The ORE delegates in Sao Paolo have been submitted to the arbitrary direction of Mr. Vlatimir Lydoskem, director of the S.E.I. (service of Inter-American Studies) who during the whole year prohibited the delegates to work in the name of the State, submitting them to a labor system which was nothing to do with the Cuban problem. It would be wise to point out that for the Chancellors' Conference held at Santa Del Monte, special funds and been dedicated to the Cuban cause, but Mr. Lydoskem, did absolutely nothing about this, remaining thus دون laication of such fund.
+
+2.- The ORE delegates did not take in time the decision of working independently in order to accomplish something useful, and consequently, continuation submitted an entirely disrespected or unism which is the S.E.I.
+
+## FUTURE POSSIBILITIES.
+
+Beta Mr. Raúl González Simon and Mr. Antonio Vega are willing to continue working with the S.E.I. For such end, Mr. Gonzalez Simon and Mr. Antonio Vega are preparing numerous and detailed reports which will openy disclose the attitude taken by Mr. Vlatimir Lydoskem, for what he has used the

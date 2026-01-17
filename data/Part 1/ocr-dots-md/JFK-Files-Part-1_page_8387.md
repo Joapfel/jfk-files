@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_8387.png
+
+Convert to Markdown14-0000.
+
+CONTACT REPORT
+
+SUBJECT : DESAMER (P-8777)
+
+DATE OF MEETING : 22 January 1969
+
+1. Following a phone call from Subject, I met him at his hotel room for lunch. The meeting lasted from 14:35 until around 16:00. The next meeting will be arranged by phone when Subject is back in Mexico City.
+
+2. During the past month, Subject was still with Smoke and, following recovery, spent all of his time on business matters rather than on subjects of operational interest. As usual, he is up to his ears in financial woes, though he just discovered that his position is not nearly as bad as he thought.
+
+3. Subject said he thinks Polish Ambassador MAJCHRZAK may come to visit him in Cuernavaca this Sunday, though plans are not definite. I urged him again to get busy courting MAJ. a bit moreaggressively and not to let the relationship grow cold. Subject said that the reason he has not been more active lately is that Lolita is in the early months of pregnancy and has not been feeling up to any large-scale entertaining.
+
+4. Yesterday afternoon, 21 January, Subject ran into Valentin LOGINOV as Florencia and Hamburgo. They exchanged brief greetings and LOGINOV commented "We have had a very good beginning of the year." (whatever that means).
+
+5. Subject recently received a post card from BEWEEP advising that BEWEEP has-seen Subject's sister in Warsaw. Nothing more than this other than routine greetings.
+
+6. Subject said that haj secretary has been looking for an
+
+Ilo : P. 8777
+R11712

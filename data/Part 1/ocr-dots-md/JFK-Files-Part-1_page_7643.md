@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_7643.png
+
+Convert to MarkdownOn Saturday 28 I went to a party at the house of the Greek Consul General Leander Vourvoulias, and I saw there Vladimir Loguinov engaged in a heated discussion with an american consul whose name is Sherry. Sherry was arguing that there were a lot of Communists an North Viet Nam, and Loguinov was arguing that it was a pity that such a big nation as the US should be fighting an small and poor nation like Viet Nam.
+
+I had a talk with Loguinov, who I think now is in charge of consular affairs and he told me that he thought that negotiations for the cultural agreement with Mexico were still going on, but that those/who had been awarded the fellowships had already gone. But according to what he said there were quite a few more than ten.
+
+Loguinov was with his wife and talking about the Bolshoi ballet he told me that I should have rang him up and he would have taken us, me and my wife, to see the ballet and to see the dancers behind the stage. He said that the ballet was coming to Canada for the fair and probably would come again to Mexico.
+
+The Russians will give a party for the consuls, film and drinks, sometime during February..
+
+Loguinov asked me if I thought that some consuls would not show up at the Russian embassy as they did when they were invited by the Cubans. I told him that the position was entirely different because most countries had diplomatic and consular relations with the URRS.

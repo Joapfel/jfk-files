@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_5935.png
+
+Convert to Markdown14-0000
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+104-10169-10139
+
+BYPASS COVER ATTACHMENT TO
+2007-14304, 31 January 1968
+
+IDENTITY & is Mr. James Brown, a security officer on EOT from Headquarters.
+
+CUT

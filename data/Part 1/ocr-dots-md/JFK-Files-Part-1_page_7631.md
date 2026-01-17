@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_7631.png
+
+Convert to MarkdownSECRET
+
+17 March 1967
+
+MEMORANDUM FOR: Mr. Nathan L. Ferris, Legal Attache
+FROM: Winston H. Scott
+SUBJECT: Unidentified Visitor to Soviet Embassy
+
+1. A sensitive, reliable source has reported that on 9 March 1967 a man who appeared to be an American stopped at the Soviet Embassy in Mexico City to talk with Soviet Consul Valentin Sergeyevich LOGINDV. The man did not enter the Soviet Embassy. He was driving what appeared to be a late model Buick Electra with Florida tags # 10-W-7778.
+
+2. A photograph of the above man will be furnished to your office when prints are available.
+
+THIS INFORMATION IS FROM A CONFIDENTIAL SOURCE. IT MUST NOT BE DISSEMINATED IN WHOLE OR IN PART OUTSIDE YOUR OFFICE WITHOUT PRIOR APPROVAL OF THE ORIGINATING OFFICE IN MEXICO CITY.
+
+# 11581
+
+**Distribution:**
+
+Original - Addressee
+1 - 50-2-4/A
+1 - 50-8-10/11
+1 - Memo Chron
+1 - Wash pouch
+
+Jonathan L. WEENING/fkm
+
+17 March 1967
+
+SECRET
+
+<table><tr><td>OHGSP I</td></tr><tr><td colspan="2">Excluded from automatic<br/>declassification and<br/>Circulation</td></tr></table>

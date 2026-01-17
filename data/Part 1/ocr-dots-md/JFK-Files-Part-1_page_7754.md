@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_7754.png
+
+Convert to Markdown11.03.03 He is a good-humored fellow who sometimes can be considered jolly and carefree. His humor is clever and well timed. He is quite sensitive to the moods and feelings of others and often can do a good job appropriately living up a party. Although something of a tease, he is never cruel or insensitive.
+
+11.03.04 He is generally a rather quiet and somewhat complacent person who, at times, can be surprisingly gay and carefree. However, when gay, he sometimes overdoes it and causes some strain for those around him. His humor is often clever but he can be quite sarcastic and even biting on occasion.
+
+11.03.05 He is an urbane fellow, generally quite conventional and appropriate. He does not necessarily appear to be a humorless person, but he seldom displays his sense of humor. It is sometimes difficult to tell whether he is in a good humor, because of the way he covers or controls his feelings. His humor is more studied than spontaneous yet it is never crude or inappropriate.
+
+11.03.06 He is a dour and humorless person, always serious and intense. It is difficult to joke around him partly because he is not responsive and partly because he seems to disapprove.
+
+11.03.07 He is a sensitive, sophisticated fellow with a subtle wit. He can be quite charming and amusing in the right sort of setting. However, there is something of an aristocratic quality to his sense of humor and he can be quite condescending towards people who do not understand or appreciate his sense of humor.
+
+11.03.08 He is an arty, somewhat cynical person who can be quite flippant at times. His humor tends to be a bit far out. He seems to have private jokes he shares with intimates. It is sometimes difficult to tell whether he is being amusing or subtly hostile.
+
+11.03.09 None of these fit. I would describe him as:

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_7592.png
+
+Convert to Markdownwhite film of the Olympics to Ramrez Vasquez. No Indian around.
+No Greek either. Chucha Valden, formerly de Lanz Duret, with
+her new husband, licenciado Lozano. She is the owner of Universal.
+He was nobody until he married, now he is a well known jurist.
+
+Francisco Aguera Cenarro, the director of Revista Internacional,
+trying to impress the French ambassador with the fact that he
+had printed an editorial on Israel if his magazine. Revista
+Internacional has a circulation of about fivehundred copies, but
+gives Aguera a good ten thousand pesos a month.
+
+It was a fairly good party as far as diplomatic parties go, but sterile in results. Nobody appeared to have any worry very much about the war in the East, and some people like the Paraguayan and the Tobias Eguizabal had the idea that everything had been prepared in advance by the United States and the URSS.
+
+That there had been a meeting in which the question had been
+attested.
+
+Loguinov called me to the office to tell me he had tickets for me and my wife for the Bolshoi ballet for Sunday night. We had been unable to secure anything at the office.

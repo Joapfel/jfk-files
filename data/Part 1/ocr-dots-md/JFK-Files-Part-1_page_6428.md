@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_6428.png
+
+Convert to MarkdownCONFIDENTIAL
+
+On October 1, 1954, I received a letter from the Consulate in Comay. This letter stated that "If you would indicate the particular authorization here to whom the fact that this woman has proceeded to Mexico might be of interest, I shall be glad to communicate with her."
+
+This office does not feel that we should tell the Consulate in Comay which American officer would be interested in the type of information set forth above. It is felt that you might wish to transmit this information.
+
+CONFIDENTIAL
+
+2 Nov '54
+S-1-8266
+72-5-58-143

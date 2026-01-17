@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_9007.png
+
+Convert to MarkdownCONFIDENTIAL
+
+<table><thead><tr><td colspan="2">SPEED LETTER</td><td>REPLY REQUESTED</td><td colspan="2">DATE</td></tr><tr><td colspan="2"></td><td>YES NO</td><td colspan="2">LETTER: B02 6-5147 PERSOIN</td></tr><tr><td>TO:</td><td>E/IE/S</td><td colspan="3">FROM:<br/>OSG/OC, 2 R 16. Hqs</td></tr><tr><td>ATTN:</td><td colspan="4"></td></tr></thead><tbody><tr><td>SUBJECT:</td><td colspan="4">LOPEZ, Henry P.</td></tr><tr><td colspan="5">A review of OSG/OC records indicates Subject has an Operational Approval which is five years old or older. Uploading the OA is <u>required</u> at this time. If updating is required, OSG/OC will use the following:<ul><li>Updated PRQ I—new information reflecting changes in address, employment, family status, etc. (There is normally no need to submit a complete new PRQ I form.)</li><li>Updated traces together with current operational use and area of use.</li></ul></td></tr><tr><td>NOTE:</td><td colspan="4"><ol><li>PLEASE CHECK APPROPRIATE SQUARE BELOW AND RETURN TO OSG/OC.</li><li>The existing OA will continue in effect until updating is completed and your office notified of results.</li></ol></td></tr><tr><td colspan="3">SIGNATURE</td><td>REPLY</td><td>DATE</td></tr><tr><td colspan="5"><table><tr><td>☑</td><td>Active case: Agent is currently being utilized. (If case requires updating Desk will forward update traces and PRQ I to OSG/OC.)</td></tr><tr><td>☑</td><td>Inactive case: Agent is no longer active and OA should be cancelled and OSG/OC folder retired.</td></tr><tr><td>☐</td><td>An Office of Security approval has superseded the OA which is thus no longer required. Please cancel OA and relative folder. (Please specify type of current OS clearance: FC, U, C, CSC, Other ...)</td></tr></table></td></tr><tr><td>2</td><td>O/0154</td><td colspan="3">SIGNATURE</td></tr><tr><td colspan="5">RESPONDER'S FILE</td></tr></tbody></table>
+
+CONFIDENTIAL
+
+FORM 9871 1831 USE PREVIOUS EDITIONS
+
+CONFIDENTIAL

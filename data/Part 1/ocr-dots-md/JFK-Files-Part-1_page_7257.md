@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_7257.png
+
+Convert to Markdownusual effervescent self, asked immediately if I had gotten the papers he left for me, stated that he had decided to go to Moscow, rattled off his schedule, gave me the names of the only other two travel agents he knew were going, repeated several times he'd be happy to give me a report when he returned, and asked, as if he hoped I didn't, if there was anything I wanted to tell him before he left. I got the floor about this time and proceeded to backtrack over some of the ground just covered. As for his schedule and itinerary, he plans to leave for Moscow on 23 October via Air France, stopping over briefly in Paris; to make a side trip to Kiev on 27 and 28 October; and to leave Moscow for Paris via Air France on 30 October. He will fly from Paris to Genoa for a day on travel business and then return to Mexico from Paris on Air France via New York, where he plans to pick up a couple of suits and take in "Superman" on Broadway. He will arrive back in Mexico on 3 October. November.
+
+3. Subject said that in addition to the other three agents whom he had mentioned last time as having been invited to the Intourist Conference--Moises SCHUSTER of Mundos Tours, Carlos IBARGUEN of De Carlo Tours, and Edmundo GARZA of Garza Travel Service--he had learned that Isaac BULAEVSKY of Jet Travel Agency had also received an invitation. Besides himself, however, only SCHUSTER and BULAEVSKY are going, the other two having decided against the trip for unknown reasons. Subject mentioned that SCHUSTER is going to take his son, who is in his early teens.
+
+4. I asked Subject if he had been in touch with anyone at the Soviet Embassy about the trip or if anyone there seemed to be responsible for lining up participants
+
+C A T S E D
+O N I V I
+E R O F
+S O H J E T
+G n i l
+P - 8 4 1 5
+
+CO CO 9-7447-1 C o n t a c t   R e p o r t   2 1 8   O c - 6 6
+
+14-00000

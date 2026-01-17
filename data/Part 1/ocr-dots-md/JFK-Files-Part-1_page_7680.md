@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_7680.png
+
+Convert to Markdown13. (12: cont.)
+
+On 20 Jan 1966 Cristobal TORRES Ponce, chauffeur employed by the U.S. Embassy in Mexico, was sent to the Soviet Embassy to pick up the passport of the wife of a U.S. Embassy official who was planning a trip to the USSR. Subject talked to TORRES, asked him if he would like to visit the USSR or receive Soviet magazines, and if he knew anyone who would be willing to give him English lessons, and finally made a dinner date with TORRES for 24 Jan 1966. When TORRES did not keep the date, Subject called on him on 8 and 9 Feb 1966 in an attempt to keep the contact alive.
+
+(12, 14).
+
+Subject dealt with the Federal District police several times in July 1966 in regard to a radio that had been stolen from his car. On 20 Jul 1966 the policeman (LNO) who had been handling the radio case reported to his superior, General Luis CUETO Ramírez, that Subject had offered him 5,000 pesos (4,000 dollars) a month if he would work for him. After consulting with the Minister of Interior, CUETO told the policeman to accept Subject's offer, which he reportedly did on 21 Jul 1966. Subject's first assignment to the policeman was to locate Venezuelan citizens Nicolas Juan BOSTROEM and his wife. (16). (Comment: Nothing further has been learned about this case. BOSTROM is a native Russian employed by Stephens-Adamson de Mexico, his wife teaches Russian at the Ibero-American University.)
+
+Subject has occasionally been reported visiting the small general store located across the street from the Soviet Embassy. On 5 Nov 1966 Subject reportedly questioned the store owner about occupants of one apartment building in the same block as the store, and on 6 Dec 1966 he asked general questions about the new apartment building at the end of the block. (8).
+(Comment: Both of these buildings contain base houses for the fixed surveillance of the Soviet Embassy.)

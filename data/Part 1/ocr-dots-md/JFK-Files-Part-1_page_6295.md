@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_6295.png
+
+Convert to MarkdownSECRET
+RYBAT
+
+6
+
+J. On 4 January 1962 the Rome periodical Vie Nuove stated that CUMMINGS was hired by CIA as an expert in arms and ballistics.
+
+k. In December 1962 the Office of Security recommended against his use by Domestic Contact Service as a source, and in December 1964 the CI Staff advised that it had no operational interest in Subject. (Comment: As was noted above, this statement is correct, because Subject's activity is not directed by the Agency. He volunteers information.)
+
+1. An Interagency Source Register memo to ACSI, dated 1 June 1965, stated that at that time there was "no record of a current operational interest in Subject."
+
+m. An Agency report of 24 February 1966 cited CUMMINGS as trying to procure military equipment from Communist Bloc countries on behalf of DIA.
+
+n. Agency reports of February and May 1967 stated that CUMMINGS had been in close contact with the BND (West German foreign intelligence service) for a year or more, that he had been given requirements by the BND, and that these included lists of Soviet and Bloc arms for procurement. It was also reported that he showed a BND representative a copy of a purchase order for the procurement of a Soviet T-54 tank, the order having originated with DIA. BND officials have often stated that CUMMINGS is a CIA agent.
+
+o. A form dated 1 June 1967 was directed to the Interagency Source Register by "DA", presumably Department of the Army.
+
+5. Agency records contain numerous references to INTERARMCO.
+
+SECRET
+RYBAT

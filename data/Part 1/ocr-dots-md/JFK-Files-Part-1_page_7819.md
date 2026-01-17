@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_7819.png
+
+Convert to Markdown# SECRET
+
+- 4 -
+
+## 10. PERSONALITY, CHARACTER, HABITS:
+
+a. All sources agree in describing Subject as smooth and completely self-controlled. He is an aggressive conversationalist. One source described him as vulgan, crude, ill-mannered, short-tempered and a tyrant, who thinks he is a big shot. (6)
+
+b. Subject seems to have made a play for every girl he has met. In at least one instance he has claimed to be unmarried when inviting a girl out. (27) When his wife was staying in the dacha in Cuernavaca he reportedly made dates with other women. (8) On 13 September 1966 he was seen in a cafe with a Mexican-looking woman. (18)
+
+c. Subject is interested in sports and is good at them. In September 1966 it was reported that he did not play tennis, (15) and by April 1967 he was said to be a good tennis player, claimed that he had been playing for less than a year and never played more than once a week. (25) He is said to have the build of a trained athlete, the brutish look of a boxer or wrestler, and the grace of a natural athlete. (25) He has said that he boxed when he was younger, and that he plays basketball and volleyball (25), also that his favorite sports are skiing and speed skating. (21). He also plays chess but is not an addict. (25) He has belonged to the French Club in Mexico City since ca. November 1965 (1) and has been seen there frequently on weekends, sometimes with his wife and child. (15) One Sunday (20 March 1966) Subject and Yevgeniy Nikolayevich GORLITSYN were seen playing badminton with their wives at the French Club. (15)
+
+d. One source reported that Subject smoked "Fiesta" cigarettes (8), and another source reported in April 1967 that Subject did not smoke. (25) One source reported that Subject downs several beers after playing tennis (25), but another source reported that on a social occasion Subject did not even finish one Scotch and water. (19) On 8 February 1966 Subject and Vladislav Sergeyevich KORMUSHKIN reportedly drove into the Soviet Embassy at 0300 hours roaring drunk (8), which may or may not be accurate reporting.
+
+e. Subject has apparently been taking English lessons since early 1966 at the Instituto de Interpretes y Traductores, which is located at Tiber 113 very near the U.S. Embassy. He seems to have made friends with a number of people through these classes. (1) (Cf. under Contacts)
+
+f. In February 1966 it was reported that Subject's wife had bought a tape recorder. (1) In June 1967 Subject himself ordered a Grundig tape recorder. (1)
+
+g. Subject was reported having an operation on 1 February 1966 (17); no further details are available.
+
+## 11. CURRICULUM VITAE:
+
+Subject claims that he has served in the Red Army. (8)
+
+(Subject's name was reportedly listed in February 1960 as about to be assigned to Buenos Aires as Soviet Military Attache; it would appear that either this was another person with the same name, or that Subject was being considered for assignment there as D diplomatic attache.)
+
+**14 September 1960:** Subject and his family arrived in Havana, where Subject was assigned as Attache at the Soviet Embassy. (3, 28)
+
+**December 1961:** Subject toured Latin America as escort and interpreter for the Dynamo soccer team. (28)

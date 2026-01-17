@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_5020.png
+
+Convert to MarkdownSECRET 0722162 SEP 76 STAFF
+
+CITE MEXICO CITY 37673
+
+TO: MANAGUA INFO DIRECTOR.
+
+1. REQUEST PASS FOLLOWING MESSAGE FROM LEGAL ATTACHE
+MEXICO CITY: "FOR: ROBERT FAMBRINI-MANAGUA, FROM: LEGAT.
+MEXICO. URGENTLY REQUEST THAT GENERAL GENIE BE APPROACHED
+FOR ANY CONFIRMATION THAT ORLANDO BOSCH, ANTI-CASTRO
+ACTIVIST, WAS IN MANAGUA AS OF SEPTEMBER TWO LAST."
+
+2. FILE 50-2-4/A, E2. IMPDET.
+
+<table><tbody><tr><td>RECEIVED</td><td>X</td></tr><tr><td colspan="2">SUBJECT CONTRACT FILE</td></tr><tr><td>FILED</td><td>E</td></tr><tr><td>FOR REFERENCE ONLY</td><td>MAY 19 76</td></tr><tr><td>BILL OF COSTS</td><td>CASE FILE (1)</td></tr><tr><td>ADDED later</td><td>(1)</td></tr><tr><td>FOR FILING</td><td>FOR FILING</td></tr></tbody></table>
+
+<table><tr><td>RECORD COPY</td></tr><tr><td>SECRET</td></tr></table>

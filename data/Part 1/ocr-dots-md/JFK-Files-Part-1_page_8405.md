@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_8405.png
+
+Convert to Markdownforthcoming Acapulco film festival. L/l stated that he was not sure
+if he would journey there and SARATOV stated that he and his wife planned
+to attend.
+
+4. LIROBBIN/L stated that during a recent conversation which he had with Stratford JONES (US citizen representing AP in Mexico), JONES commented that he knew both SARATOV and SYCHEV. JONES remarked that he had been to a party at SYCHEV's during the Olympics. REEX- Furthermore, JONES related that he knew the KUCHEROV's (TASS) and that Mrs. KUCHEROV had been sent home before the departure of KUCHEROV. JONES strongly implied that security reasons were behind the rather abrupt departure of Mrs. KUCHEROV. L/l did not press the issue any further.
+
+5. LIROBBIN/L also reported that the Foreign Press Club is in a chaotic state in that the president, Jose QUIROGA, has accused the club director, Katherine MANJARREZ, of embezzling funds. The truth of the matter, however, seems to be that QUIROGA is engaged in either shady dealing or is guilty of sloppy administration of finances. At any rate, L/l commented that all members must pay cash for all services and that the club's creditors are pushing for cash payments of all services. The "scandal" seems to have shaken the Club and many members are staying away until the financial situation is corrected.
+
+6. The undersigned inquired of L/l as to whether he knew of any US citizens who might be looking for an apartment. L/l stated that he was currently unaware of anyone desiring housing but that he would keep his ears open and make a few discreet inquiries without revealing that he knows of any vacancies.
+
+MONROES N. REIDEMANN
+
+1900000143

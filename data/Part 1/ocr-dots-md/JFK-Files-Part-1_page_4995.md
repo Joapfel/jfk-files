@@ -1,0 +1,61 @@
+# JFK-Files-Part-1_page_4995.png
+
+Convert to MarkdownOUTGOING MESSAGE
+
+<table><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></table>
+
+OMF 0 0 0 0 0 0 0
+
+SECRET
+
+STAFF
+
+CONF. LA8
+
+2237122
+
+DIREC TOR
+
+937046
+BROKEN BY:
+
+C I
+
+C C I
+
+R O
+
+I A
+
+S E C
+
+TO: CABLE SEC. V
+
+PLS RELAY CARACAS 30907 (IN 043608) TO SANTO DOMINGO FOR INFO.
+
+E2 IMPDET.A
+
+COPY ATTACHED.
+
+COORD:
+C/LA/CAR
+
+DATE: 20 SEPT '76
+ORIG: HARRIET WEILER
+UNIT: C/LA/V/R
+BAT: 9454
+
+C/LAD
+RELEASING OFFICER
+
+CLASSIFICATION
+SECRET
+
+COORDINATING OFFICERS
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+B/2 IMPORT
+SL BY: 907285
+
+92-00000

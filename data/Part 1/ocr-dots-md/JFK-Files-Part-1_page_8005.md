@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_8005.png
+
+Convert to Markdown14-0000
+
+CONFIDENTIAL
+
+CO: BObens
+Report No: EHB-1218 Local File No:
+NO. OF PAGES: 7
+Date of Issue: 5.8.65
+Report Made By: A. P. Young/S/W
+Assumed By: Stanford P. Reporting SYR
+
+**Distribution:**
+By copy to: 2 - Washington
+1 - Eub, IA
+1 - IA
+2 - Files
+1 - IA
+Orally to: None
+
+Source Cryptogram: Para 1 - AMERICAN References: EHB-1212
+Source, Operational Data, and Comments:
+
+**Subject:** Revolutionary Activities
+
+**Comments:**
+
+1. A copy of the letter summarized in Paragraph 1 is on file at this station.
+
+2. The information contained in Paragraph 2 was obtained by ANGIVALENT from Juan PUERTAS Yero and Roberto LEOH Leusis.
+
+Classification:
+
+CONFIDENTIAL
+[ COPY ] 19-4-110 36
+
+FOUNDED 01-25
+RE 104 01-25

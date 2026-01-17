@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_6250.png
+
+Convert to MarkdownNoticiero
+ESTUDIANTIL
+
+CIEN ESTUDIANTES PANAMEÑOS A MOSCU - Según César Bruglan, estudiante en la Universidad Patricia Lumumba de Moscú y dirigente de la Asociación de Estudiantes Panameños en la capital moscovita, trainta jóvenes de Panama estudian actualmente allí; su número se elevará muy pronto al centenar. Los becados panameños se dirigen a Moscú vía México, La Habana y Praga.
+
+EN EL FUTURO: UNION DE ESTUDIANTES UNIVERSITARIOS CENTROAMERICANOS - Dirigentes estudiantes de las universidades de Costa Rica, Guatemala, Honduras, Nicaragua, El Salvador y Panamá se hallan laborando local y colectivamente en pro del propósito de fundar una Unión de Estudiantes Universitarios Centroamericanos. La idea no es nueva, pero ahora gana fuerza y es probable que se convierta en realidad antes de que transcurran muchos meses.
+
+EL PROGRAMA DE COOPERACIÓN POPULAR, MOTIVO DE DISCORDIA EN PÉRÚ - Los partidos de oposición convienen en la utilidad del programa de Cooperación Popular - asistencia técnica para proyectos comunes - auspiciado por el presidente Belaunde e impulsado por los estudiantes en gran parte, pero se ponen a su controlización de control en las manos personales de aquél. La coalición apoderamiento - encabezada por el APRA - reclama que Cooperación Popular sea "municipalizada" o sen que cada municipio reciba los fondos pertinentes y los utilice localmente como estimo conveniente. "Así se evitará la infiltración de comunistas en el programa", alega el APRA.
+
+PARA VISITAR ALEMANIA OCCIDENTAL, UN REQUISITO: NO SER JOVEN - Alemania del Este permite que sus ciudadanos de avanza edades visiten a familiares en Alemania Occidental, pero no deje que los jóvenes den ese viaje. Excusa alegado: "Es más fácil que allá tomen representaciones con los jóvenes y no con los viejos". Y agrega el periódico Neues Deutschland de Alemania Oriental, como quien pone un parque: "Nadie debe pensar que nuestro gobierno no tiene confianza en la juventud..."
+
+UN "NUEVO CAMINO" PARA LA UNIVERSIDAD CATÓLICA DE CHILE - En conclave reciente, los estudiantes de la Universidad Católica analizaron "la necesidad de adaptar sus estudios y la Universidad a las exigencias sociales del mundo de hoy". Punto aprobado, entre otros: que la Universidad actúe "con mayor independencia fronte a la jerarquía eclesiástica", imprimidaasele a ese centro de altos estudios "el espíritu renovador de la Iglesia de Juan XXIII y de Paula VI. contenido en el actual Concilio Ecumánico.
+
+ESTUDIANTES UNIVERSITARIOS GUATEMALTECO S EN CAM-PAÑA DE ALFABETIZACIÓN - Por baca de su presidente, la Asociación de Estudiantes Universitarios de Guatemala se ha comprometido a emprender una campaña de alfabetización a escuela nacional. Se espera que un buen número de alumnos de las dos universidades del país (la de Guatemala y la denominada Rafael Landivar) coopere con la Coordinación de Alfabetización AEU creada al efecto.
+
+CHILE - Santiago: La Federación de Estudiantes de la Universidad Católica (FEUC) llevó a cabo su SEXTA CONVENCION ORDINARIA DE ESTUDIANTES del 30 de septiembre al 3 de octubre, en ella se abordaron temas de gran solidez como: "Ideo de Universidad", "Naturaleza y Problemas Actuales de la Universidad"; "Evolución y Situación de la Universidad Latinoamericana", etc. Llegando a conclusiones que abren el camino de una Reforma Universitaria moderna y eficaz. La documentación base se halla condensada en el libro especialmente editado por FEUC: "La Universidad: Nuestra Tarea", única abra en su género en Latinoamérica.
+
+Juanín
+Pereira
+Varela
+
+Los hombres que alcanzan a comprender el sentido de la existencia no pueden orientarse a un mero sustituir. Sus vidas encuentran razón y objetivo sólo en el servicio. Servicio a Dios y al prójimo. Quizás estos palabras encierran la grandeza de todos los hombres que han

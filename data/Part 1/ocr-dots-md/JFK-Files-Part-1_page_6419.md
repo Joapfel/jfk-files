@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_6419.png
+
+Convert to MarkdownSECRET
+
+14-00000
+
+CARTER
+DOCTRINA E FUGITIVIS
+
+ROUTING AND RECORD SHEET/1231 26615.1231
+
+<table><tr><td rowspan="2">DOCUMENT NUMBER<br/>OF PA-26615.</td><td>FROM</td><td>PVAN</td><td>TO</td><td>DUE NO.</td><td>DATE</td><td>NARRATOR<br/>1917-06-18</td></tr><tr><td colspan="4"></td><td></td><td></td></tr><tr><td rowspan="3" style="vertical-align: top;">DOCUMENT DATE<br/>8 June 1957</td><td colspan="6">COMMENTS</td></tr><tr><td colspan="6">NOTE: If a copy is offered before the delivery date of the original and the text below, it is recorded as received from the delivery point and/or at the office of the copy and/or each document handler. If this COPY COPY is to be returned to the files of the (end) file and the Central File Section for permanent files.</td></tr><tr><td colspan="6"></td></tr><tr><td rowspan="3" style="vertical-align: top;">FILE NUMBER<br/>300 124 3/17 45</td><td colspan="6">Enclosure<br/><br/>DATE PROCESSED<br/>14 JAY 1957</td></tr><tr><td colspan="6"></td></tr><tr><td colspan="6"></td></tr><tr><td rowspan="2" style="vertical-align: top;">COPY PROOF 610a</td><td colspan="6">SECRET</td></tr><tr><td colspan="6"></td></tr><tr><td colspan="6">REPRODUCTIONS</td></tr><tr><td colspan="6"></td></tr></table>
+
+D O R P H I N I V I D I T A M E N T S F U L L B O O K C A S E . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_8618.png
+
+Convert to Markdown1 October 1969
+
+Below is translation of document written by LIBAC. Is re his friend
+HERNANES who lives in San Juan del Rio.
+
+"HERNANES
+
+A Spaniard born in the province of ASTURIA. During the Spanish Civil War was taken to the USCR with other children. Completed his elementary schooling in Spanish children's schools. Entered Leningrad University majoring in history, and following graduation was a given a chair in the same department. Arrived in Mexico, I believe, in 1957, with the aid of his sister, who lives in San Juan del Rio. Is a manager of a restaurant. Henares is a very intelligent, sensitive, fellow. Always studied with pleasure. Has very fine form of nature and animals. During periods of vacation from the elementary schools, instead of just fooling around as did the other kids, he would work as a shepherd, water boy, in vineyards, took long walks, read, swim, and always tried to be a loner. Therefore, he was not very well liked, was teased, and once, knowing that he was not a good swimmer, was thrown from a steep bank into the river ALMIZAR. My mother dragged him out. He always loved her, and to this day has great affection for her. Whenever he visits Mexico he never fails to call on her. Being acquainted with his character and sentiments, I would say that now, living in a large city, he suffers greatly. I suppose that because of his loneliness he incorporated a stupid, old-fashioned, Indian girl. His political views are the most liberal, and being an intelligent fellow, he was never placed in an uncomfortable position, although he was not fully trusted.
+
+I think, that were it possible to use these characteristics, we could
+use him to our great advantage."
+
+I told Subject that we would make no move whatsoever, until, and perhaps
+not even then, he provided me with personal biographic data re the above
+individual.
+
+D. F. DIT. NOSCH

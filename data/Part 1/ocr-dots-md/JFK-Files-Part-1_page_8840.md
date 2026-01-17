@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_8840.png
+
+Convert to Markdown14-0000
+
+MEMORANDUM FOR: WH/BAF
+SUBJECT : Transfer of funds via CCS/EC to LINEAR Activity, Mexico City
+REFERENCE : DIB 33750 3 Aug 65
+
+It is requested that $8,500.00 from Project LILISP-X be transferred through CCS/EC to the LINEAR activity in Mexico City. The details on the actual transfer from a New York bank to the Instituto Cultural Inter-Americano, Banco Nacional de Mexico, Sucursal Lomas, Mexico D.F., Mexico of $4,500.00 allegedly being made by Cass Canfield, and a Cashier's check from a New York bank for $4,000.00 allegedly donated by Robert Dowling to be pounced to the Station from Headquarters, has been discussed with CCS/EC.
+
+W.J. Kaufman
+Chief, SH/1
+
+Distribution:
+
+Orig. & 1 - Addressee
+1 - CCS/EC
+1 - 50-126-36/2
+>1 - 201-253203 (TICHB:Ca)
+1 _-WL/1
+
+DOP/WN/1/Hallivoll:bp
+
+23 Oct 65
+
+201-253203

@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_6969.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>CONTINUATION OF</td>
+    <td></td>
+    <td>S E C R E T</td>
+    <td>OCON-13G68</td>
+   </tr>
+   <tr>
+    <td>DISPATCH</td>
+    <td colspan="2"></td>
+    <td></td>
+   </tr>
+  </table>
+
+4. "Therefore, in consultation with our legal branch, we have drawn up the attached draft "Solemn Declaration" which we feel satisfies the conditions set out by the Board and which we propose to use in the case of Maurice Human HALPERIN. As you will note, we have provided information which in the opinion of our legal branch will be the minimum requirement if our declaration is to be found valid.
+
+5. "We would therefore request that you ascertain if consideration can be given to have your Agency authorize us to include the information contained in lines nine, ten and eleven of the attached draft "Solemn Declaration". The decision of your Agency should be made with the understandings that the declaration would be available to HALPERIN and his counsel at both the Immigration Special Inquiry and the Immigration Appeal Board Hearing.
+
+6. "Our case against HALPERIN rests on whether or not we receive approval for the use of the information furnished by your Agency, since we have to show that HALPERIN was ineligible for admission at the time he entered Canada. We appreciate the problems inherent in a request of this nature and if after weighing all the considerations your Agency finds it impossible to authorize release, we intend to advise the Department of Manpower and Immigration that we are unable to issue the required "Solemn Declaration" and will study other ways and means of overcoming our problems in cases of this nature."
+
+Attachm: R/W
+
+As Stated
+
+Distribution:
+
+3 - Chief, EUR w/att h/w
+2 - Chief, WOMAN w/att h/w

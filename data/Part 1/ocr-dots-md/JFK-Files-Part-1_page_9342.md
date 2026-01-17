@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_9342.png
+
+Convert to MarkdownSECRET
+
+IV. Future Plans
+
+The first meeting of the Executive Committee, which will be con-
+trolled by OPC, is scheduled for Paris, in September, at which time
+arrangements will be made for future sessions of the Congress and
+the continued exploitation of its activities and the anti-communist
+declarations of its members.
+
+OPC plans for the exploitation of this operation called for
+clamorous dissemination of the output of the Congress, especially
+its resolutions, speeches and manifestos, throughout East Germany
+and the Soviet satellites. East Germany has already been covered
+once, through a special edition of the Neue Zeitung and reports
+carried by other papers which the OPC mission subsidizes and secretly
+distributes in Soviet Germany.
+
+Plans are now being perfected for circulation, in a number of
+languages, of millions of copies of the speeches, declarations and
+resolutions of the Congress. Much of this material has already been
+carried by the Voice of America and by Radio BIA3. Since the Congress
+has determined to perpetuate itself through a Continuation Committee,
+OPC will encourage additional statements and declarations by key per-
+sons, these also to be distributed throughout the satellite area.
+Many millions of people, some of them cut off from any news of resis-
+tance to communist tyranny over the thoughts of men, will be informed
+that not only are the philosophers and scientists and cultural leaders
+of the world outraged at the attempted obliteration of intellectual
+freedom, but that they propose to fight it.
+
+SECRET-

@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_8524.png
+
+Convert to MarkdownSECRET
+
+24 August 1967
+
+MEMORANDUM FOR : COS
+FROM : C/SB
+SUBJECT : Policeman Recruited by LOGINOV
+
+1. In reviewing LOGINOV's SPR which WEENING has just completed, I note that LOGINOV recruited this policeman 13 months ago and that his first requirement was on the BOESTROM couple. At that time we gave LITEMPO-8 traces on LOGINOV saying that he was a dangerous KGB officer. LITEMPO-8 subsequently mentioned that the case was continued and that he, himself, was directing it.
+
+2. If you think that LITEMPO-8 will cooperate, I would like to know the following about this case:
+
+(a) Is it still active?
+
+(b) Did the policeman pass info to LOGINOV on the BOESTROM couple? If so, what? Was there any follow-up?
+
+(c) What type of requirements has LOGINOV given to the policeman? Are any Americans involved?
+
+(d) Have any other Soviets been involved with this case?
+
+(e) Who is handling him while LOGINOV is in the USSR on vacation (he left Mexico on 16 July 1967 and returned on 17 July 1967)
+
+3. As a basis for discussing this case you could mention that we are especially concerned about LOGINOV because he specializes in US operations. He tried to recruit a chauffeur at the Embassy and tried to develop a female Foreign Service Officer (true). You might also say he is running a sensitive case into the US (false). Thus many of his requests to the policeman may be in support of American operations although this would not necessarily be apparent. Therefore we would like to know what he is asking for. Our traces would help both ourselves and LITEMPO-8, etc.
+
+SECRET

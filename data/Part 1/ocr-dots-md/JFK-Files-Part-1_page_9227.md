@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_9227.png
+
+Convert to MarkdownBiltmore recently / with ISt/. But your letter of November 8, 1950 had this footnote:
+
+'Please be sure not to say anything at all to anyone about the mutual friend who was mentioned at lunch / Wilson/, very important; he'll explain why she is and if he sees you, perhaps within a week or two.' / This was just that Wilson was anxious about security for Swen/.
+
+"Without a final decision on type of publisher it is exceedingly difficult to determine character, also, tone and scope of the book. It would help me a great deal to know what's up on that score. Simon & Schuster presents one type of problem —and suggests one kind of approach. The mutual friend, who I assure (without being 100% sure) is the publisher you referred to in the note you sent to the Biltmore—suggests something quite different—perhaps much simpler and direct—and more out-of-the-way.
+
+"If this question cannot be clarified by mail, please arrange for us to get together soonest. Once this is out of way, I hope to move fast. I'd be a four-flower and liar if I pretended that I had made notable progress until now. I've been held up not only by the above, but—being painfully human—by a lingering desire to keep THE CHOICE from being embalmed in the Decothing, Sloth & Plerde Funeral Parlors. I've now given it about all I've got and still do my best to do it is not to allow it to cause me any further loss of sleep or diversion of energy from the job on hand."
+
+6. Hinson had a long phone conversation with Shub November 17, at Sim's request, and planned to see him November 21.
+Koyarikat 20 Hinson told Sims that Swen will publish the book.
+
+7. A Contract between Shub and CIA was drawn up by Joe Kallay and Sims, and signed Sept. 16, 1950, whereby "the Government" will own all rights to the book, and Shub will return his royalties "to CIA".
+
+Now that Swen is to be the publisher, I have asked Joe Kallay whether it will be OK that the rights should be owned by Swen (a CIA-controlled corporation) and the royalties returned to Swen, or whether he wants to amend the contract.
+
+8. Progress on the book. Last summer Shub and I got some 150 photos from CIA Graphics, of which I sent him sterilized duplicates to New York. He also got 75 excellent ones from New York photo agencies. I have from time to time sent him a lot of suggestions for photos and captions, and if he wants anything done down here he will let me know.
+
+Shub wrote us, December 14:
+
+"This is just a brief note to give you the latest on the picture front. I won't fill you in on the details because our mutual friend / Wilson/ will be in Washington early next week and will give you all the info. So far so good.
+
+"Office it to say that my collaborator / when Swen has authorized him to pay $35 per die/ is one of the top lay-out men on

@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_4449.png
+
+Convert to MarkdownJohn V. HANNON (T)
+
+Harold V. KARABLY (P)
+
+1971 - Retired as Staff employee
+
+1971 - June - Picked up as contract employee by FR Division
+
+1972 - June 30 - that contract terminated.
+
+1972 - June 30 - retired under CIARDS.
+
+1972 - June - new contract with FR Division as a retired annuitant. Came aboard as independent contractor.
+
+1973 - 30 June - that contract was terminated.
+
+FR Division has the following address for
+HANNON, but does not know the date of the info:
+
+150 Ridgewood Drive
+San Rafael, Calif 94901
+Tele: 454-1322
+
+14-00000

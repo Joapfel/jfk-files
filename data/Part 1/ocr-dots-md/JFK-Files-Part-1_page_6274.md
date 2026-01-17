@@ -1,0 +1,60 @@
+# JFK-Files-Part-1_page_6274.png
+
+Convert to MarkdownCUBANOS
+A LA
+GUERRA
+
+EMPLEARE TODAS MIS ENERGIAS A FIN DE DESEMBARCAR
+EN TIEMPO PRUDENCIAL EN LA ISLA AMADA"
+
+Capitan Vicente Mendez.-
+
+VICENTE MENDEZ Y SUS HOMSRE
+ESTAN PELEANDO EN CUBA
+
+a Promesa se ha Cumplido!
+
+ALPHA 66 CONVOCCO
+
+al Magno acto de INFORMACION DE GUERRA a cargo de
+ANDRES NAZARIO SARGEN
+
+Secretario General de ALPHA 66
+
+AGOSTO 30 • 1 p.m.
+
+Embassy Auditorium
+
+GRAND Ave. Y 9th STREET
+
+GIL LOPEZ
+PRESIDENT
+
+Roma7 Interiors
+
+- ALFOMBRAIS Y CORTINAS
+
+COMPRE DIRECTAMENTE A LA FABRICAY
+!!! AHORRE DINERO!!!
+
+PHONE: 748-5306 1422 W. PICO BLVD.
+      748-5307 LOS ANGELES, CA. 90015
+
+Almacenes
+
+Mamá
+
+Fabricantes de Joyas Finas de Otra N°
+Objos para Reglos · Camaras · Pre中山on
+Electros Elèctricos · Televisos · Radios
+Discos Latinos.
+
+CREDITO IMMEDIATE
+USCO COMPRA EN ALAMAR Y PARA UN ANUN-
+TELFS.
+483-0626
+483-0636
+
+LOS ANGELES, CA. 90026
+
+21477

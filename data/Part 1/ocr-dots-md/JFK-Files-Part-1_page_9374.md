@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_9374.png
+
+Convert to MarkdownSECRET
+
+4 August 1950
+
+MEMORANDUM FOR: CEE
+TERCUGH: MR. SCHREYER, Ee 3
+SUBJECT: Activities of Mr. Melvin Lasky in connection with Congress for Cultural Freedom (Project PDQUICK)
+
+1. This is in response to your request that we examine our files and submit a statement concerning the undue prominence given to Mr. Melvin Lasky in connection with the Cultural Congress.
+
+2. Lasky was publicly identified, early in the preparations for the Congress, as the spark plug and leading light. This unsatisfactory position was anticipated by Mr. Wiener, who, in his approval of Project PDQUICK, cautioned against emphasis on Lasky's participation. (Attachment A).
+
+3. From the beginning, the home office was cognizant of the danger of a spotlight being thrown on any overt U. S. employee, and, in addition to previous warnings, on 7 April cabled specific instructions for the retirement of Lasky to the background. This and other admonitions, from the home office and the OPC German Mission chief, will be found at attachment B.
+
+4. However, a review of the publicity which the Congress received shows an unfortunate amount of concentration on Lasky. In Berlin, for instance, where the Congress received its greatest publicity output, out of 180 newspaper clippings which are available, approximately 15 specifically featured Lasky, some of them photographically. Of the U. S. and British press clippings which were available, several featured Lasky prominently. In a feature article in the New Leader, the subject of which was the Cultural Congress, Lasky was referred to as the initiator of the Congress and he was featured in at least two of the formal press releases which were given out in Berlin. Of the 73 photographs which covered the Congress and which were released for press and historical purposes, Lasky is prominently featured in 6. ('a large amount of this publicity material, including photographs, press cuttings and press releases, is available in our files.') While Lasky's part as General Secretary was over-emphasized in a number of newspapers and periodicals, the most damaging article appeared as a review of the Congress in the Manchester Guardian, written by the prominent historian, Mr. H. R. Trevor-Roper in which Lasky was described as connected with American Information Services and the organizer of the Congress. The statement was unfortunate because this was the only critical article of the Congress known to have appeared in the Western press. It passing, it might be mentioned that the London Economist also picked up Lasky's appointment as General Secretary, as suggesting U. S. sponsorship. Its review,
+
+SECRET
+
+COPY 1 OF 6 COLES
+
+14-00000

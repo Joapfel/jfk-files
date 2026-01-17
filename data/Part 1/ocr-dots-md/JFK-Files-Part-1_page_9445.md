@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_9445.png
+
+Convert to MarkdownSECRET
+
+9 June 1980
+
+PENORATION FOR: EE
+
+SUBJECT: Status of Advanced Accounts (PQUICK)
+
+1. With reference to advances of money for PDUICK, referred to in memorandum of 7 June signed by Chief, Staff III, four of these advances, involving participation of Mr. Carmel Offie, are itemized as follows:
+
+$12,000 delivered to Mr. Offie on 26 April 1980 for which a receipt was obtained dated 27 April 1950 from Mr. Jay Lovestone of the Free Trade Union Conference.
+
+$10,000 advanced to L. Glaser on 19 May for which a receipt is on file signed by Jay Lovestone dated 19 May.
+
+$7,500 delivered to Mr. Offie about 20 May for which receipt is on file, this money delivered to National Committee for Free Europe.
+
+2. The first two items referred to above report a duplication. This was called to Mr. Offie's attention on 26 May, again on 31 May, and again on 7 June. On those occasions, Mr. Offie stated that he was aware of the situation (that TUC had received an extra $10,000 for PQUICK) and that he would either have the money returned or would see that it was designated for another project. This adjustment is now in process of handling.
+
+LOUIS GLASER
+RR III
+
+EE/III/IO/fdr
+
+cc: III - 3
+
+SECRET

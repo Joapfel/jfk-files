@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_6163.png
+
+Convert to MarkdownSECRET
+
+19 September 1977
+
+MEMORANDUM FOR: Chairman, Information Review Committee (U)
+ATTENTION : Mr. H. G. Sean, Assistant for Information (U)
+SUBJECT : FOIA Appeal - Nancy Barnes (F-75-1681) (U)
+REFERENCES : A. Initial Request dated 7 August 1975 (U)
+B. CIA's Response dated 6 April 1976 (U)
+C. Appeal Letter dated 5 May 1976 (U)
+
+1. (U) Summary of Recommendations:
+
+a. Release additional information from three documents initially released in segregated form. Deleted portions are exempted under (b)(1), (b)(3) and (b)(6) of FOIA.
+
+b. Sustain initial denial in toto of four documents under exemptions (b)(1), (b)(3), (b)(6) and (b)(7)(C) of the FOIA as applicable.
+
+c. Release in segregated form twenty-one documents discovered in the appeal process. Deleted portions are exempted under (b)(1), (b)(3), (b)(6) and (b)(7)(C) of the FOIA as applicable.
+
+d. Deny in toto seven documents that were located in the appeal review. These documents are being denied under exemptions (b)(1), (b)(3), (b)(6) and (b)(7)(C) of the FOIA.
+
+**OCOLE.** Pass in toto six overt documents located during the appeal review.
+
+f. Refer to the FBI for their action on identification list of nine additional FBI reports that were located during the appeal review.
+
+g. Refer one document located during the appeal review to the Department of the Army for their action.
+
+CONFIDENTIAL When
+Detached From
+Attachments -
+
+SECRET
+
+<table><tr><td>IMPMT CL 9.</td></tr></table>

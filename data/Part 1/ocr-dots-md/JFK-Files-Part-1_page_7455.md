@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_7455.png
+
+Convert to Markdown14-0000
+
+-J-
+
+"Far Eastern Tros Corrassondencoo," cable address
+Yenpreep, P. G. Box 1928. On October 6th Issaca and
+C. Frank Glass moved from 130 Molhuiwei Road to House
+No. 8, Passage No. 177, Avenue Dubail. The police state
+that this address was formerly known as Number 25 Avenue
+Dubail and is the boarding house at which Agnes Smedley
+resided from May, 1929, to May 1930. The police report
+that Agnes Smedley frequently visits Issaca and Class
+at this address.
+
+In my monthly political report for November, on page 15 it was stated that the bodies of numerous members of the family of a certain Kou had been murdered, allegedly by communists in retaliation for Kou's turning traitor to the communist cause. In connection with this matter Issaca addressed an open letter to the various newspapers of Shanghai, under date of November 24, 1931, in which he scored them for branding these alleged murders as "horrible" and "dastrously," while at the same time they did not raise their editorial voices against the wholesale murders committed by Chiang Kai-shek, the Garrison Commander of Shanghai and other Chinese militarists.
+None of the papers saw fit to publish this letter but I
+I have received a copy thereof, and copies are enclosed.
+I have also received a photostatic copy of the last page
+containing the signature of Mr. Issaca.
+
+Enclosure:

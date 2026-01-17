@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_8732.png
+
+Convert to MarkdownSECRET
+
+-7-
+
+when he met with some "youths" in private conversations. However, ARNDRIFF stated she did not ever hear any mention of any contacts of Soviet contacts in relation with the student disorders, any mention of the level of involvement of these contacts in the student organizations, any mention of Soviet guidance to the student movement, financing of the student movement, or the like. She really doesn't know that the Soviets had any contacts with direct access to information to these activities, but she strongly assumes that they did, based on their level of activity and the strong tenor that LOGANOV and other case officers gave to the idea that the contacts they were making were dangerous ones for them to be seen with during this period.
+
+Debriefing conducted 1-6 June 1970: ARNDRIFF questioned re 1968 student disorders again, for clarification previously reported details. She stated that the Soviets had some different types of rifles in the Commercial Office which served as samples of guns which they were trying to sell commercially in Mexico. One night about 11 o'clock, during the period of student riots, LOGANOV came to the Commercial Office with MITOPOSSKI (ARNDRIFF was there watching TV). They got "some" rifles - ARNDRIFF could not see how many or what kind. They took them cut in some sort of bags. The next morning "some" rifles were returned to the Commercial Office, but ARNDRIFF doesn't know whether all of them were brought back. She doesn't know whether or not LOGANOV might have been duty officer for the Embassy for that night.
+
+ARNDRIFF stated that MEGHICHEKO's trip back to the USSR during the 1968 riots may well have been to report on the riots. However, she didn't know that this was the case and none specifically told her so.
+
+SECRET

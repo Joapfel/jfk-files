@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_8044.png
+
+Convert to MarkdownReport No: TEL-1510.
+Date: February 20, 1962
+
+SOURCE COMMENT: The owners of the Cruzeilles plant are in the process of reducing the labor force by 50-60% and hope to maintain the same production rate as before. The discharged workers will be transferred to a new plant in the process of construction where the detergent, "FAB", is to be manufactured. The workers are discouraged because they claim that the work performed in the Cruzeilles plant requires all of the present labor force and the company should hire additional men to work in the FAB plant. The attempt of the Cruzeilles owners to reduce the labor force in this manner is against standing labor laws of the country, but the Cruzeilles syndicate let by the Ortodox labor leaders who are being advised by their communist friends, is taking advantage of the present situation in furthering their own interests.
+
+~~LC~~

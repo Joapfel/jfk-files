@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_5804.png
+
+Convert to MarkdownTHE WASHINGTON POST
+
+Thursday, June 4, 1953
+
+Coe Calls Charges
+'Outrageous, False'
+
+By Herbert Foster
+United Press Reporter
+
+V. Frank Coe, former secretary of the International Monetary Fund, yesterday denounced as "outrageous and false" charges that he was a fugitive and once tried to regulate Austrian currency valuations to favor the Communists.
+
+He read his statement to reporters after secret questioning by the Senate Permanent Investigating Subcommittee. Acting Chairman Karl E. Mundt (R-S.Dak.) said Coe refused to say under oath whether he is a Red.
+
+Apparently there was little testimony concerning charges by two former United States officials in Austria that Coe tried in 1949 to block negotiations to devalue the Austrian shilling because Communist Czechoslovakia had objected.
+
+Mundt gave Coe until Friday to go over his records. At that time, he will be questioned in private again before testifying in public.
+
+Coe told reporters the subcommittee had released "two serious allegations concerning me... that I was a fugitive, and that I in some manner had attempted, in concert with the Russians or Czechs in 1949, to have the Austrian currency devalued in a way desired by those governments."
+
+"Those allegations are outrageous and false," he said.
+
+Mundt said Coe testified that he is not a spy now nor was he one last December 2. But he said the witness refused to say whether he had been a spy on December 1, when he was questioned by the Senate Internal Security Subcommittee.
+
+Last Friday, Mundt announced that the subcommittee was un-
+
+FRANK COE
+
+able to locate Coe and was asking the Attorney General to search for him.
+
+The 46-year-old Coe said he has been out of work since his forced resignation from the Monetary Fund last December and had traveled in Canada, Cuba, the Bahamas and Mexico looking for a job. He would not say why his wife did not know his whereabouts.

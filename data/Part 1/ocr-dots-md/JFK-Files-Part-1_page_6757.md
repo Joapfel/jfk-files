@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_6757.png
+
+Convert to Markdown22 September 1955
+
+S. H. Johnson
+
+James A. PERRY
+#90178
+
+James A. PERRY, Jr., mailed two letters from Washington, D. C., on 29 June 1955, one to his father, and another to Severino D. GOMEZ; however, in so doing, PERRY placed the letter to his father in the envelope addressed to GOMEZ, and the letter to GOMEZ in the envelope addressed to his father. When the letters were received by PERRY, Sr. and GOMEZ, both noting the error, they exchanged letters. However, GOMEZ considered the contents of the letter he had at first received important enough to turn over to his brother M. Leal GOMEZ, who in turn referred it to the Boston Office of the FBI.
+
+The letter, in substance, indicated that while PERRY was serving in South America, under cover for this Agency, he had revealed his true status to his wife's father, Mr. CONSALVES, on a visit to South America, and who later had revealed this information to PERRY's father. In correspondence following PERRY's father having become knowledgeable of PERRY's true status, he indicates that therein he might have initiated that his work was not so hush-hush, and that on that basis PERRY's father "had dropped his guard" in effect, and had told others of PERRY's true status. This letter was a warning to PERRY's father that he should attempt to correct the indiscretion of revealing PERRY's status while he was in South America. The letter refers to other letters which PERRY indicates contained information revealed through indiscretion on his part, and which he asks his father to destroy.
+
+According to our records, PERRY was granted an Operational Clearance on 22 May 1953, for use as a writing informant or as a contract agent on anti-Communist student activities. He was used as a contract agent from September 1953 to February 1955 in Brazil under LID cover.
+
+He is of Portuguese extraction, and he or his father had changed the family name from Faria to Faria, his wife's initial name was CO. SALVES. She was a resident of Maracay, on Venezuela prior to attendance at North-Western University.
+
+He attended Northeastern University from 1947 to 1951 and received an AB Degree; Boston University from 1951 to 1952 where he received an MA Degree in Latin American Regional Studies; and at Vanderbilt University from 1952 to 1953 working toward a Ph.D. degree.
+
+SECRET file: en
+
+He received the degree of Bachelor of Science in Education from the University of Texas in Austin, and was awarded by most informants as no more than professor-student relationship; however, Professor GOMEZ to receive...

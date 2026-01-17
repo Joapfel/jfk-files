@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_7825.png
+
+security chief of Astilleros de Veracruz, S.A. a shipyard in Veracruz. Said to be the adverturer-type, once worked for the Federal Security Police but was fired because of involvement in arms contraband.
+
+CHAZARO Probably did meet Subject on 5 May 1966 in Veracruz. CHAZARO undoubtedly fabricated his story that Subject tried to recruit him after that and set up a 50,00 peso bank account in CHAZARO's name. (30)

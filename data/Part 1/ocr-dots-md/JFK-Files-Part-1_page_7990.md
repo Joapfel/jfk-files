@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_7990.png
+
+Convert to MarkdownCONFIDENTIAL.
+
+COUNTRY REPORT NO. 178-154
+SUBJECT Nielson Daniel RIVAS Y Caneo DATE OF REPORT 20 August 1957
+NO. OF PAGES 2
+
+REFERENCES
+
+DATE OF 8 July 1957
+BY.
+PLACE & D. A. Radan, prior to 8 July 1957
+
+QUALIFIED AMERICAN OBSERVER (S). APPENDIX OF CONTENTS 2.
+
+SOURCE:
+
+In a private conversation on 8 July 1957, Mario Daniel RIVAS y Carideo, a national leader in the youth sector of the Inscribed Orthodox Party, made the following comment:
+
+1. There is no Communist penetration of the Orthodox Party youth organization, whether there are probably a few "fellow travelers" or Communist-oriented persons in that organisation; if so, however, they have no influence. Its part or segment between the Orthodox youth organization and the Inscribed Socialist Party (or, Cuban Communist Youth Organization) now exists on either side of a clear divide. The youth segments of the party and its Socialists (POP, Cuban Communist Party) and the little outlying in Cuba, however, all of the opposition parties and their youth sectors participated with Communist representatives in opposition meetings and shared a platform with them. This procedure on the part of the other opposition currents had nothing to do with the Cuban Communist Party's position, but was carried on for strictly tactical purposes by each opposition group. It is a Communist practice to use without qualification the names of leaders of other opposition groups in their manifestations and declarations at interviews. In fact, REVISTA's name was used by the Communist on a number of occasions without his knowledge, and has had recently to be dropped as a consequence to the press to clarify that he is not a Communist, and never has been. Another a Communist, a sympathizer or friend of the enemy. He has been active in Orthodox Party affairs since the 1950s. Although he believes that Communist Ideology and economic theory is not applicable to the Cuban situation and that it holds nothing of value for Cuban politics.
+
+2. As the end of the 1950s general elections, the combined numerical strength of the Orthodox Party youth was between 70,000 and 65,000. Since that time, however, the Socialist Nationalist wave has advanced (POP, Nationalist Revolutionary Party) led by José Martí Mella, and the 70th of July Revolution under the leadership of Raúl Faria. Since then, there has been a commitment to a program of October 1953, so that the June group is at present considering election. REVISTA with a small fraction from the Orthodox youth organization and affiliates himself with the POP. It is a great danger of Jose Martí Mella who believes has a bright political future in Cuba. On the other hand, Faria (MARINA) of Other Parties, a national leader of the Democratic Christian Party, is not likely to emerge until after the latter's appeal to Cuban youth. If accepted into REVISTA that the several independent groups of the Orthodox Party could unite to form an Independent Union.
+
+3 - Washington w/nat
+
+1 - President de Cuba
+
+1 - Privately, legal attaché
+
+2 - Files
+
+T-0-B-1-D-S-N-J-I-A-L
+
+<table><tr><td>3</td></tr></table>

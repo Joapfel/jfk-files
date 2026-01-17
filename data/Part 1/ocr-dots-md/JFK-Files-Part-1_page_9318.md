@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_9318.png
+
+Convert to Markdown28 Aug. 1950
+
+BORIS
+
+Mrs. Poland is going to get the 62 duplicates made just as fast as she can. She couldn't give a time limit on it this a.a.
+
+Incidentally, re the 68 photos for which you got the agencies' bill of about $150 this morning, she says agencies like those often sell you photos for a dollar or two for your own private use, but that the usual fee for use for publication is .66 or more. So you'd better make sure when on the point of publishing whether you've paid for the publishing right.
+
+(The photo were in doubt about one of CLA's)
+
+VSS
+
+Paul Breitsweiser is charging the $150-odd temporarily against SCHOUSS
+
+SECRET

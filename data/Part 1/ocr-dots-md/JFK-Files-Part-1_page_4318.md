@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_4318.png
+
+Convert to MarkdownACCOUNTING FOR AMERICAN SUBSIDIARIES
+
+FOR JULY, AUG & SEPTEMBER
+
+(TRANSLATION)
+
+Gentlemen:
+
+I have the pleasure to submit accountings for money received from the Consejo de Liberacion for the months of July, August and September.
+
+JULY
+
+Received from the Consejo - $12,000
+
+I spent it as follows:
+
+"Tridente" magazine
+(Printing, collaborations, circulation) $ 3,000.00
+
+Radio Time
+ Recording, collaborations, broadcasts) 1,805.00
+
+Office
+Rent $200.00
+Manuel Guillot 400.00
+Valdo Castilla 200.00
+Rafael Gracia 500.00
+
+Delegates in Costa Rica (Luis Arrizurrieta) 260.00
+Delegates in Venezuela (Maximo Diaz) 450.00
+Delegates in Spain: Enrique Tous 150.00
+Coco Leon 250.00
+Milo Robrero 250.00
+Delegates in Honduras (Jose Antonio Mole) 250.00
+Delegates in Guatemala (Oscar Vila) 200.00
+
+Clandestine work:
+Delivered to Father Llorente to be sent through the Spanish Embassy 2,000.00
+
+Delivered to the following persons to maintain them in Costa to families of prisoners or killed in their provinces
+Incumbent Almonte
+Alfredo Borges Caigast
+Rolando Tapares
+Gustave Fernandez Vidales
+Donato Borges Cunbot
+Emilia del Mar
+Silvia Berodia
+Jacinto Lamarraga
+(Here I had to advance 3 months for the wife's operation)
+275.00
+250.00
+200.00
+200.00
+200.00
+100.00
+125.00
+200.00

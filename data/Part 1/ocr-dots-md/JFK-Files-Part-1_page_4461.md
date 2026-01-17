@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_4461.png
+
+Convert to MarkdownCONFIDENTIAL
+CONTROLLED DISSEMINATION
+NO FOREIGN DISEASE
+
+-5-
+
+UFG-7951
+
+8. Batista feels that it is useless to attempt to finance a war against Castro with personal funds. Such ventures are costly and the results are negative. Therefore, he refuses to consider plans for military action.
+
+Field Comments:
+
+9. TDCSDB-315/03734-65 from an independent source, reported that Batista had instructed his representatives in the United States to attempt to gain control of RECE.
+
+10. According to the source of paras. 1 to 7, Freyre has appeared on Kramer's radio program twice.
+
+11. The last issue of Mundo Americano was published in New York on 29 November 1965. An independent source reported that a new weekly newspaper called Nuevo Mundo Americano will be published in New York. Rolando Masserrer Rojas will be the director of the newspaper. It was believed that Batista would provide $20,000 with which to establish the publication. (Cf. ).
+
+Source Comment. Masserrer writes under the name Policarpo Pineda.
+
+CONFIDENTIAL
+CONTROLLED DISSEMINATION
+NO FOREIGN DISSEMINATION

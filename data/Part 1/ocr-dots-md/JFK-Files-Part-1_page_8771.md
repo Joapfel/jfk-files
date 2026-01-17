@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_8771.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">DIPLOMA/DELEGATE</th></tr></thead><tbody><tr><td>VISA</td><td>9-0446057<br/>Sønderborg<br/>IN</td></tr></tbody></table>
+
+Vlkle poort:
+
+~~Vanla vกรัม : Banlakar~~
+
+Jalil for:
+
+~~چیوه شیر در مرمر و قرار بر روی کم~~
+
+(و) Visa en iul lae pod u/leu (enlaxi)
+
+(د) Visum in scind. vaat cnaqve decuscatas.
+
+Ch visa is valid for entire term(s).
+
+3 dekada awad
+
+12 meydene a vane
+
+v. to be completed before
+
+Arenzina : Pater estampiller votre rensér et la frontière
+Opéral : Permettez à tout deur d'avoir l'ordre
+Assom : Repartir au sens du senser
+
+Sihamara et asa
+Estampade, un stempel
+
+VOE AMBASSADEUR,
+voor dere,
+
+Д № 010264
+
+- 17 -
+
+- 18 -

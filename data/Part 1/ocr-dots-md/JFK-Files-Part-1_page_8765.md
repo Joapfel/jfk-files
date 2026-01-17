@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_8765.png
+
+Convert to MarkdownLe titulaire du présent, citoyen de L'UNION
+DES RÉPUBLIQUES SOVIÉTIQUES SOCIALISTES
+
+Valentin LOGUINOV,
+
+Troisième Secrétaire de l'ambassade de l'URSS
+au Mexique,
+
+se rend à l'étranger
+
+AU NOM DE L'UNION
+DES RÉPUBLIQUES SOVIÉTIQUES SOCIALISTES
+
+Le Ministère des Affaires Étrangères prie toutes les autorités civiles et militaires de l'URSS et des Pays Amis de laisser passer librement le titreilaire du présent passeport et de lui accorder aide et protection en cas de besoin.
+
+Ce passeport est valable pour cinq ans
+
+24 juin 1965
+
+Pour traduction conforme: PL
+
+PL

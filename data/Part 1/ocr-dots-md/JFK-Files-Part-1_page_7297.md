@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_7297.png
+
+Convert to Markdown7.08 The kind of man who is often quite late—and indifferent about it—inclined to be short and curt in his greetings and is sometimes awkward when he enters a room.
+
+7.09 None of these.
+I would describe him as:
+
+8. **Meeting People:**
+
+8.01 When he shakes hands or Do you most often have to move toward him Does he move toward you
+
+8.02 When he shakes hands, is his grip Firm Average Limp
+
+8.03 When he shakes hands, does he Pump your hand Squeeze your hand Let you do all the work
+
+8.04 Is there anything about the way he shakes hands worthy of special mention? If so, please describe:
+
+8.05 When he is first introduced, does he Look the person in the eye to whom he is being introduced Cock his head toward the introducer but look at the person to whom he is being introduced Cock his head and look at neither

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_6049.png
+
+Convert to MarkdownDKE
+
+DIRECTORIO REVOLUCIONARIO ESTUDIANTIL
+
+Jose antonio echeverría con tus ideos en marcha
+
+The Delegation at Fm. performed the following activities:
+
+A.- It gave out numerous press communique denouncing the presence of Soviet troops in Cuba.
+
+b.- Declarations about the attack to Havana's seacoast by members of the D.F. were made and great support was obtained.
+
+C.- An article appeared on the "Line" magazine of September 7, 1962 was translated and distributed in great amount. The article narrated the present and past actions of the Directorio Revolucionario Estudiantil
+
+Removed
+CS Cia.
+JGB a/b/c/d
+Box: 10
+Date: 1962-10-19
+Handwritten: 19-128-26/3
+
+VBR

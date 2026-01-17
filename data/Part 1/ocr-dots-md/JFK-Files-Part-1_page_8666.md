@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_8666.png
+
+Convert to Markdown14-00000
+
+SECRET
+
+LOGINOV, Valentin Sergeyevich
+
+Born: 23 December 1927, Moscow
+
+Wife: Aleksandra Dmitriyevna, born 20 August 1928, Moscow
+
+Children: Two
+
+LOGINOV was an Attache at the Soviet Embassy in
+Havana from September 1960 to September 1963. He was Third
+Secretary/Vice Consul at the Embassy in Mexico City from
+August 1965 to October 1969, replacing NECHIPORENKO. We
+have no information to indicate he has ever been expelled
+from a country. He accompanied a Soviet soccer team on a
+Latin American tour as escort and interpreter December 1961.
+
+Languages: Fluent Spanish and poor English
+
+SCLALI
+
+Loyd M. CAPRINI

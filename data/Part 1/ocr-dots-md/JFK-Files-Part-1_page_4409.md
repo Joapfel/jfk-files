@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_4409.png
+
+Convert to Markdown14-00000
+
+<table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr><tr><td>INDEX: ☐ YES ☐ NO<br>CLASSIFY TO FILE NO.<br>B-REF TO FILE NO.<br>FILE RIC ☐ RET. TO BRANCH ☐<br>DESTROY ☐ SIS.</td><td>24</td><td>SECRET<br>PERSONal unit notified</td></tr><tr><th>ACTION<br>FROM<br>LUH/8</th><th>RID COPY</th><th>DIVANCE COPY<br>☐ ISSUED ☐ EROTTED ☐ OVED</th><th>UNIT<br>TIME</th></tr></thead><tbody><tr><td>REPRODUCTION PROHIBITED</td><td></td><td></td><td>E1<br>E2<br>T<br>F1</td></tr><tr><td></td><td></td><td></td><td>G<br>J<br>P<br>L</td></tr></tbody></table>
+
+<table><tr><td>S</td><td>SECRET 262327Z</td><td rowspan="5" style="vertical-align: top; text-align: right;">Rohlfusg<br>27 Jan 89 42124</td></tr><tr><td>WAVE INFO DIR PACY CITE MANA 5584</td><td></td></tr><tr><td>TYPIC AMTABBY-27 AMLITAINT-1 AMWORLD</td><td></td></tr><tr><td>REF: WAVE 8529 (IN 3654C)</td><td></td></tr><tr><td>1. STATION HAS NO INFO RE ATTEMPT TO OBTAIN ERACORN-1 PERMISSION TO REOPEN MONKEY POINT CAMP. HOWEVER AMBIDDY-1 ARRIVED MANA 17 JAN VIA LANICA FROM MIAMI.</td><td></td></tr><tr><td>2. ERACORN-1 LEFT MANA 24 JAN FOR PBPRIME VIA LANICA. ACCORDING LOCAL PRESS PERSONAL BUSINESS IS PURPOSE OF VISIT. ERFACT-1 SAYS REASON IS MEDICAL RECHECK.</td><td></td></tr><tr><td>SECRET</td><td></td></tr><tr><td>CFN 5984 AMTABBY-27 AMLITAINT-1 AMWORLD 8529 NO INFO RE ERACORN-1 MONKEY POINT CAMP AMBIDDY-1 17 JAN VIA LANICA MIAMI 24 PBPRIME ERFACT-1 BT</td><td></td></tr><tr><td></td><td>'SECRET</td></tr></table>

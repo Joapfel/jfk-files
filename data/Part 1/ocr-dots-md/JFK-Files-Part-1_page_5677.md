@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_5677.png
+
+Convert to MarkdownCONFIDENTIAL
+(When Filed In)
+
+E 2 INVOICE CL BY 007622
+
+<table><tr><td colspan="3">RESPONSE TO DOMESTIC CONTACT SERVICE REQUEST FOR SECURITY CHECKS</td><td>35 FILE NUMBER<br/>532 652</td></tr><tr><td colspan="3">FROM: Clearance Support Branch, Personnel Security Division</td><td>DATE<br/>7 May 1973</td></tr><tr><td colspan="3">TO : Domestic Contact Service. FO: MIAMI (MDubris)</td><td>20 October 1972</td></tr><tr><td>SUBJECT'S NAME<br/>Last Name / First Name / Middle Name</td><td>US CITIZEN</td><td>ALIEN</td></tr><tr><td>CISCOBOS</td><td>Rosalie</td><td>Venceaoo</td></tr><tr><td colspan="3">OTHER NAMES USED INCLUDING MAIDEN, ALIASES, ETC.</td></tr><tr><td colspan="3">CISCOBOS Día, Rosalia Venceslav</td></tr><tr><td>THIS NOTICE IS VALID THRU <u>May 1978</u><br/>(Moj-Yr.)</td><td colspan="2">USE OF SUBJECT DURING THIS PERIOD BY OFFICES OTHER THAN DCS<br/>(except those having prior interest) MUST BE COORDINATED WITH DCS.</td></tr><tr><td colspan="3">1. Reference is made to your request for security checks on the Subject person. If the identifying information furnished is erroneous in any way, this division should be notified immediately. Checks based upon erroneous information are invalid.<br/>2. The necessary checks have been completed and no pertinent information has been obtained except as noted below:<br/><b>CITIZEN:</b><ul><li>x Passport data attached.</li><li>Subject was last favorably investigated in ________</li><li> Denied Area Case: FBI Check was completed ________ Other NACs were completed ________. This officer has no objection to Subject being used in accordance with DCT's memorandum dated 25 November 1961.</li><li> Summary of noteworthy information is attached for your consideration in determining the extent and level of your use of Subject.</li></ul><b>ALIEN:</b> This is not an approval for this alien's access to classified information.<ul><li> FBI has no objection to your preliminary contact with Subject. (Resubmit with full biographic date if contact is to continue.)</li><li> x FBI has no objection to continuing contact with Subject. <u> x </u> Pertinent information has been developed, and is attached.</li></ul><br/>3. This advisory on investigative results is for contact purposes only and is not to be construed as a clearance of Subject person beyond that.<br/><b> Coordination of prior covert interest:</b><ul><li> Not necessary <u> x </u> No objection interposed by ________</li><li> Please contact ________</li></ul><b> S. Remarks:</b><br/>Chief, Personnel Security Division</td></tr><tr><td colspan="3">FOR DC5/HQS USE ONLY</td></tr><tr><td colspan="3">APPROVED/SECRET</td></tr></table>
+
+FORM 2-70 2941 USE PREVIOUS EDITIONS
+
+CONFIDENTIAL
+
+3 - DC5/HQ

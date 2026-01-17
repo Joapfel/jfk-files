@@ -1,0 +1,60 @@
+# JFK-Files-Part-1_page_9135.png
+
+Convert to MarkdownPÁGINAS FALTANTES
+
+ALBADA POCINO, Leandro.
+Director Ingeniero de Industrias Textiles, E.T.S. de Ingenieros Industriales de Tarragona.
+ITP Graduate School of Business Administration, Universidad de Harvard.
+Política de Empresas.
+
+ALEGRET RICART, Alberto (°)
+Director Ingeniero Naval, E.T.S. de Ingenieros Navales de Madrid.
+Collaborador Científico:
+Compartimiento Humano en la Organización.
+
+ARANDA NICOLAS, Fernando
+Ingeniero de Industrias Textiles, E.T.S. de Ingenieros Industriales de Tarragona.
+Collaborador Científico Visitante:
+Dirección Comercial.
+
+ARGANDOARA RAMÍZ, Antonio.
+Licenciado en Ciencias Económicas, Universidad de Barcelona.
+Profesor Mercantil, Escuela de Alfonso Estudios Mercantiles de Barcelona.
+Collaborador Científico:
+Política de Empresa.
+
+ARQUER ARMANGUE, Joaquín de.
+Doctor Ingeniero Industrial, E.T.S. de Ingenieros Industriales de Barcelona.
+Profesor Agregado:
+Compartimiento Humano en la Organización.
+
+RANARES MARTI, Guillermo (°).
+Licenciado en Derecho, Universidad de Barcelona.
+Collaborador Científico:
+Relaciones Financiera.
+
+SULTO FONT, Manuel (°)
+Licenciado en Derecho, Universidad de Barcelona.
+Profesor Agregado:
+Política de Empresas.
+
+CAMACHO Y FERNÁNDEZ DE CANEIRO, Fernando
+Licenciado en Derecho, Universidad de Madrid.
+Collaborador Científico Visitante:
+Dirección Financiera.
+
+CAVALLE PINOS, Carlos.
+Doutor emeritus Industrial E.T.S. de Ingenieros Industriales de Barcelona.
+ITP Graduate School of Business Administration, Universidad de Harvard.
+Profesor Agregado:
+Dirección de Producción.
+
+DIAMANTE CAMPOS, Juan A. (°)
+Director emerito de Caninos, Cataluña y Puertos, E.T.S. de Ingenieros de Caminos, Cataluña y Puertos de Madrid.
+Catedrás de Historia de la Educación.
+Caninos Catalúnia.
+
+JÓN SÁVEL L. Ambróis.
+Universidad de Vigo.
+Forne párroco.
+Asociación Sindicalista

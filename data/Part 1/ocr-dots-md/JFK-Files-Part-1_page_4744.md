@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_4744.png
+
+Convert to Markdown14-0000
+
+VI. 7 Jul '76
+
+F2
+
+CENTRAL AMERICA
+
+Further Details
+
+Paris APP in Spanish 2329 GMT 6 Jul 76 PA
+
+[Text] San Jose, 6 Jul--Costa Rican Foreign Minister Gonzalo Pacifico denied today that he went to Guatemala because a coup was being planned there against President Kjell Laugerud. At a news conference Pacifico said that he went to Guatemala to discuss with his colleague Adolfo Holina the rumors circulating here to the effect that Guatemalan groups led by the Cuban Orlando Beach are attempting to create problems in Costa Rica, provoking a delicate situation.
+
+Pacifico added that Bosch and the Guatemalans are plotting outside Guatemala and that they would implement a subversive plan in Costa Rica, including the assassination of President Daniel Oduber and Pacifico himself. He added that for months Guatemalan groups (words indistinct) the Costa Rican Government. Pacifico said repeatedly that he went to Guatemala accompanied by Public Security Minister Mario Charpentier to report on the rumors to the Guatemalan Government.
+
+OPPOSITION PARTY DEMANDS VESCO'S EXPULSION
+
+Panama City ACAN in Spanish 1649 GMT 6 Jul 76 PA
+
+[Text] San Jose, 6 Jul (ACAN-EPK)--The opposition Democratic Renovation Party [PRD] has asked the Supreme Electoral Tribunal to have U.S. millionaire Robert L. Vesco expelled from Costa Rica on the charge of meddling in the country's domestic politics. The accusation was made by the President of the PRD's Executive Committee, Rodrigo Carazo Odio, based on public charges which have been lodged here..
+
+One of those charges is based on former President Jose Figueroa's statements to a newsmann from Mexico City's newspaper EXCELSIOR to the effect that Vesco had financed several political parties during the 1974 election campaign. Another one is based on statements by Deputy Sigurd Koberg who some time ago said that Vesco had offered financial aid to his party. Carazo Odio also recalled the incident of a speech delivered by Vesco justifying his presence in Costa Rica, his businesses and his ties with politicians, a speech based on notes drafted by Figueroas himself while in office as president.
+
+A constitutional norm forbids foreigners from interfering in domestic politics. Vesco came to Costa Rica in 1972 and immediately caused intense discussions over his investments and his ties with known politicians. Here he has escaped from legal action to recover $224 million belonging to the investors Overseas Services, a mutual fund which he managed.
+
+EL SALVADOR
+
+PEOPLE'S COMMITTEE UNITED AGAINST GOVERNMENT
+
+Panama City ACAN in Spanish 1530 GMT 1 Jul 76 PA
+
+[Text] San Salvador, 1 Jul (ACAN-EPK)--It was learned here today that a 30 July Committee of People's Organizations (COP-30 de Julio) has been created which, according to its members, seeks to rally support this month for mass mobilization "to honor the memory of our student heroes who were killed on the aforementioned date" during the repression of a demonstration.
+
+Peasant, worker, student organizations and opposition parties—the National Revolutionary Movement (MIN), Christian Democratic Party (PUC) and the Nationalist Democratic Union (UDN)—announce that the committee also seeks to strengthen the unity and fighting spirit of the people in their struggles against what they term a "dictatorship."

@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_7482.png
+
+Convert to MarkdownACSI - Lt. Whipple via Jane Roman
+
+DATE 14 Oct 63
+
+TRKBY Moran CRUIB'D BY Reply
+
+ISAACS, Harold Robert
+NAME born 1910
+
+OTHER IDENTIFYING DATA
+
+REFERENCES
+
+Author of many books on China - S. E. Asia
+
+Harold R. Isaacs authority on China
+
+Harold R. Isaacs teaches at MIT
+
+are all the names the same person?
+
+CS COPY
+
+FILEN 2118446*

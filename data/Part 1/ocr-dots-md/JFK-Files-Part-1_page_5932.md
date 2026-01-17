@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_5932.png
+
+Convert to Markdown14-0000
+
+<table><thead><tr><th colspan="2">DISPATCH</th><th>SECRET</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>TO:</td><td colspan="2">Chief of Station, JMBAVE</td><td>X NO ORDER REQUIRED</td></tr><tr><td>INFO.</td><td colspan="3"></td></tr><tr><td>FROM:</td><td colspan="3">Chief, WHD</td></tr><tr><td>SUBJECT:</td><td colspan="3">TYPIC/OPERATIONAL<br>D Headquarters traces</td></tr><tr><td>ACTION REQUIRED · REFERENCES</td><td colspan="3"></td></tr><tr><td>ACTION REQUIRED:</td><td colspan="3">FYI</td></tr><tr><td>REFERENCE:</td><td colspan="3">UFGA-24799</td></tr></tbody></table>
+
+<table><tr><td>MICROFILMED</td></tr><tr><td>AUG 30 1966</td></tr><tr><td>DOC. MICRO. ITEM.</td></tr></table>
+
+1. Headquarters traces on the Subjects of reference and the Hudson Institute follow:
+
+A. Alberto LLERAS Camargo (201-102576) was born in Bogota, 3 July 1906. He left school at the age of seventeen to become a journalist. He traveled to Argentina and lived in Buenos Aires for three years (1926-29) writing for various Argentina periodicals. His political career began upon his return to Colombia in 1929, when he was appointed secretary of the Liberal Party (1930-33) and received tremendous impetus under the aegis of Alfonso LOPEZ, Liberal Party leader and former President of Colombia (1934-38 and 1942-45). Subsequently, LLERAS served in the National House of Representatives (1931-34). When alfonso LOPEZ was inaugurated President in 1934, he took LLERAS into his government as Secretary General of the Presidency (1934-35), and later made him Minister of Government from 1943 to 1945. The latter year he was made Minister of Foreign Affairs, as well as First Vice President of Colombia. His public service culminated then in his accession to the Presidency on the resignation of President LOPEZ in 1945. After discharging the duties of Chief Executive for a year (1945-46), LLERAS was elected Secretary General of the Pan American Union in 1947, a post which he held until 1954. He then resigned and returned to Colombia to accept the position of Rector (President) of the University of The Andes (1955-56). Devoting himself once again to politics, LLERAS began writing a column in the Liberal Daily El Espectador. In his columns he strongly criticized the Rojas regime (1953-57) and called for the return of constitutional government in Colombia. In March 1956, he was elected President of the Liberal Party and shortly thereafter (June 1956) travelled to Spain and had conversations with Laureano GOMEZ, a leader of the Conservative Party and former President of Colombia (1950-53). These two political leaders signed a manifesto condemning the Rojas regime and
+
+CS COPY
+
+(CONTINUED)
+
+<table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td></td><td>UFGW-6130</td><td>(25 AUG 1958)</td></tr><tr><td>B-201-102576<br/>201-102576</td><td>GROUP: EXcluded fromomatico desembarque 201-308736</td><td>HOS PLE WEBSITE</td></tr><tr><td>1 - WH/C/RR/OS<br/>1 - WH/C/ESEC<br/>1 - 201-308736</td><td>OFFICE W/H/C/RR/OS</td><td>Typist W. 011 87<br/>At 22 Aug 88</td></tr><tr><td></td><td>CORRESPONDENCE</td><td></td></

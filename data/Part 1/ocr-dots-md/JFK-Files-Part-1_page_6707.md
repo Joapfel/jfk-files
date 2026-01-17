@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_6707.png
+
+Convert to Markdown14-0000.
+
+September 11, 1963
+
+Dr. Agustin Guitart
+4009 Elba Street
+New Orleans 25, La.
+
+Dear Dr. Guitart,
+
+Thank you for your letter about the man who arrived from Cuba shortly before my last visit to New Orleans. I appreciate your having taken the trouble to write.
+
+Since I have nothing from you concerning Rene, I assume that Rene has not written to the address provided him in "our" letter. Should you receive something, please call me to collect immediately and forward the letter via Air Mail to me. My office telephone number is Washington, D.C. 356-9574.
+
+Within three weeks of today, I expect to be in New Orleans and will call you soon after arriving to arrange a meeting at a convenient time.
+
+Westfall Associates
+P.O. Box 7224
+Apex Station
+Washington, D.C., 20004

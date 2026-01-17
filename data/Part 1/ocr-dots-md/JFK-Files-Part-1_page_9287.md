@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_9287.png
+
+Convert to Markdownbut, with brevity, it paints a picture, after a fashion.) After all, words alone can paint pictures, and evoke emotions, and as your basic aim is to evoke an emotional response, there's no need to cramp your style with a self-imposed restriction banning the use of words. I should think the test would be: If the reader wants to stop reading it in the middle, the caption, however true, is bad; if you've held his interest to a pitch where he really wants to read or, _and_ is painting pictures in his own mind as he reads, then it's OK.
+
+E.g., if you have the photo of the three purges Bykov, K., & Z., and then continue in your caption to the time "there was a bullet in the back of the head for X, and for Y, and for Z too" it will be, _fante de nique_, OK if the reader is already gripped to the point of picturing to himself all these Comrades being ground thru the mill of "opposition"—dission—arrest—"confession"—death.
+
+E.g., also, I'd strongly recommend, offhand, inclusion of the striking photo of Kind貌enty, circles under his eyes, at the trial, and then you could add to the effect that he is merely the highest-ranking of the.e.g., more than 12,000 Catholic church who have been imprisoned in Czechoslovakia since 1948. (I have the figures).
+
+**Re his PAINTING**, to get back to it. The best I can suggest is that you could have either (a) one of the rare, if existing at all, photos, of a famine scene or (b) a photo of a normal Village Scene, Harvest Scene, with the caption: It could have been like this, but Big Brother wanted an ORGANIZED PAINTING, plus the most devastating quote you can get from the highest-ranking non-anti-Stalinist source, and/or plus brief list human-interest quotes from Pirogov and/or Kravchenko, whereby you translate into human-interest terms the cold statistics of several million dying of famine.
+
+**Make it PAINTING**. It's a problem, how to do it justice, and I'd suggest you have to: at least two things: (a) make it believable & believed, end
+
+RET

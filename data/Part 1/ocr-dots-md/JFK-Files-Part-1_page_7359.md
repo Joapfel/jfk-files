@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_7359.png
+
+Convert to MarkdownS. Ret. coming to Mr. O'Malley's previous responsibilities in coordinating funding for the covert action activities of Mr. E. Howard Hunt, the issue was raised as to whether or not the funding of Mr. Hunt's projects continued between July 1965 and September 1966 while Mr. Hunt was a contract employee stationed at Madrid, Spain. Mr. O'Malley recalled that at the time of Mr. Hunt's assignment to Madrid the statement disseminated for consumption within the Agency was that Mr. Hunt was retiring. Mr. O'Malley stated that this was not generally believed. Mr. O'Malley was quite certain that during this period his office handled no project funding for Mr. Hunt. In response to specific question Mr. O'Malley stated that on Mr. Hunt's return to staff employment the projects and funding which stopped in July 1965 were again resumed. Mr. O'Malley was not aware of any project names or funding mechanisms or post-assignment accountings in connection with Mr. Hunt's activities in Madrid.
+
+Frederick N. Evans
+
+Lawrence J. Howe

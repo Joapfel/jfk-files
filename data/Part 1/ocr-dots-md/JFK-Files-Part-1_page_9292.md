@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_9292.png
+
+Convert to Markdown223..Painting of Stalin & Red Army General Staff, in Red Army Hall,
+Pyongyang, Korea (1)
+
+226..East German People's Police march in Red-sponsored torchlight parade
+celebrating Stalin's 70th birthday, 1949.
+
+228..East German People's Police in Instadtarten Sq. during CP youth demonstration,
+23/5/50
+
+229..People's Police, Instadtarten Sq., May Day 1950
+
+214..East German Police (left) & W.G. Police as buffer on Berlin border 1950.
+...Students vote for Moscow People's Court, Feb. '49; Soviet source.
+
+53..Voting for Moscow People's Court, Feb. '49; Soviet source.
+
+216..Russians (left) take over guard duties from US, 1949, at Spandau Prison,
+where many former top Nazis are serving sentences.
+
+227.."Frankfurter Allee" in East Sector renamed "Stalin Allee", 70th birthday.
+
+53..Army personnel get ballot for election of Moscow People's Court,
+Feb. '49; Soviet source.
+
+229..Front page of anti-C underground paper, 1949.
+
+228..Part of rev'ty pamphlet from anti-C u'ground press "somewhere in Russia".
+"The "fork of freedom" is u'ground symbol. 1949.
+
+141..general view of Moscow.
+
+22..Stalin accepts flowers from Russian kids, 70th birthday.
+
+21..Moscow univ. students being examined in math.
+
+104-5-6..Stalin, 1943.
+
+98..Head of statue of Stalin placed on snapped off light pole by German
+soldiers, 1941.
+
+97..Stalin, no date.
+
+2.3.no data
+
+1..Opening of XI Olympiad, Instadtarten, 1936.
+
+6..Nazi Party Day, Berlin, 1938.
+
+8..Labor Day demonstration, Tempelhof Field, 1934.
+
+7..Marching for Hitler, Adolf Hitler Plats, Berlin, Party Day '38.

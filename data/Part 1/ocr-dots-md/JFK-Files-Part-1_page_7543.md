@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_7543.png
+
+Convert to MarkdownSECRET
+
+have been connected with Communist activities in the United States and China. Correspondence between him and his Chinese wife, Miss Alice Liang, a prior to their marriage, indicates that they were both apathetic to activities being conducted by the Communists in China. On 29 January 1936, Miss Liang was entrusted by Dr. Victor Liang, the Chinese defense attorney, with teaching the English language to five young men, the four-year old son of a lairait and Chinese MOUNTAIN.
+
+5. On 4 April 1936, the CCP, under the pseudonym of LD SEM, published an article in the for militant, organ of the anti-communist party in New York, entitled "Revolt in China ready to embrace Chiang Kai-shek - Offer Red Army in return for Resurrection of the Deceased 1927 Comintern." It is believed that L-SEM later joined the Fourth International, organized by Trotsky subsequent to the latter's exile from Russia.
+
+6. During World War II the CCP was a major correspondent for Newsweek in China. In July 1945 he was refused entry into China by Chinese Nationalist authorities, presumably as a result of anti-nationalist articles written by L-SEM for Newsweek.
+
+7. Harold Robert L-SEM is currently Special Features Editor for Newsweek, 152 West 4th Street, New York, New York. He is the author of several books, including *The People in Asia and the Far East of the Chinese Revolution*. L-SEM's current political beliefs are unknown to this agency.
+
+8. Should L-SEM leave this country, this agency would appreciate being advised of his intended destination, date of departure and any other pertinent details.
+
+FOR THE DIRECTOR OF CIE.TEAL. E.TTUGENGT,
+
+ROBERT A. CHIANG
+Assistant Director
+
+80 am 20568
+
+cc Federal Bureau of Investigation
+
+PF
+bdo
+
+- 2 -
+
+# REGISTAR-COPY

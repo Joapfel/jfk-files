@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_6146.png
+
+Convert to MarkdownCONFIDENTIAL
+
+5. One more document (not indexed into the 201 file or any other records of this office) has become available: Transmittal Manifest 599888, dated 28 August 1969, forwarded by COS, Ottawa. This manifest lists Subject among passengers arriving in Canada from Cuba. No covering dispatch was used and no source is given, but the information may be presumed to have been provided by foreign liaison (Canadian). The material is thus probably exempt under (b)(1), 5(B)(1) (foreign liaison), and is certainly exempt under (b)(3) (intelligence methods). The format and the nature of the information do not make it feasible to segregate and release it to Subject without making it possible for him to adduce the Agency had access to the passenger manifest of a Cuban controlled ship.
+
+4. Attached is a segregable portion of internal Agency memorandum EX-3663, dated 24 October 1969. This document is a 25 page paper on the Committee of Returned Volunteers, and refers briefly to requestor, repeating in part the reference to requestor's travel as reported in EMMA-37509 (paragraph 1b above), but also includes the fact that he served in the Peace Corps. The excised portion of the document is considered exempt under (b)(3)(a) and (b)(6).
+
+5. Also attached are copies of three additional Agency cables. Mexico City 330, dated 24 June 1969, is referred to in EMMA-37509 (paragraph 1b above), and provides the same information (except for copies of passports). The reference cited in this cable, in turn, is Headquarters 876, dated 24 June 1969, which requested that names and passports of groups traveling to Cuba be cabled, as the information was urgently needed for a paper being prepared for the White House. This cable in turn refers to Mexico City 329, dated 23 June 1969, which explains the reason for the investigation of requestor's foreign travels. Although Headquarters 876 and Mexico City 329 do not mention requestor by name they are attached for background information.
+
+Alan P. White
+Chief, International Terrorism Group
+Operations Staff
+
+Attachments: a/s
+
+14-00000

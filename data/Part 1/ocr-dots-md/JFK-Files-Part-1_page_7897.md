@@ -1,0 +1,60 @@
+# JFK-Files-Part-1_page_7897.png
+
+Convert to Markdown14-00000
+
+INDEX ☐ YES ☐ NO
+CLASSIFY TO FILE NO. ____
+K-REF TO FILE NO. ____
+FILE RID ☐ RET. TO BRANCH ☐
+DESTROY ☐ SIG. ____
+
+**CLASSIFIED MESSAGE A**
+**TOTAL COPIES 22**
+
+<table><tr><td>SECRET</td></tr><tr><td>PERSON/UNIT NOTIFIED</td></tr></table>
+
+<table><tbody><tr><td colspan="2">REPRODUCTION PROHIBITED</td></tr><tr><td>A</td><td>B</td></tr><tr><td>C</td><td>D</td></tr><tr><td>E</td><td>F</td></tr><tr><td>G</td><td>H</td></tr></tbody></table>
+
+ACTION
+
+WTH8
+
+☑ RID COPY
+
+ADVANCE COPY
+
+☐ ISSUED ☐ SLOTTED ☐ USED
+
+UNIT
+
+TIME
+
+BY
+
+INFO
+
+FILE, V.K., SB-8, C.I., CI/0PS, FE
+
+SEC RE T 152330Z CITE MEXICO CITY 0699
+
+DIRECTOR
+
+REDCOAT
+
+1. PER LILYRIC ON 9 MARCH A MAN DRIVING WHAT APPEARS TO BE LATE MODEL BUICK ELECTRA WITH FLORIDA TAGS 10-W-7776 STOPPED AT SOVIET EMBASSY AND TALKED WITH CONSUL VALENTIN S. LOGINOV. MAN DID NOT ENTER EMBASSY.
+
+2. INFORMING LOCAL LNERGO.
+
+SECRET
+
+BT
+
+15 MAR 07
+
+22585
+
+Loopna
+
+SKCMT
+
+201-285412

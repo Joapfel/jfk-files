@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_6681.png
+
+Convert to Markdown14-00000
+
+<table><tr><td>FORM G-329 A REV. 6-1-87</td></tr><tr><td>BIOGRAPHIC INFORMATION</td></tr></table>
+
+UNITED STATES DEPARTMENT OF JUSTICE
+Immigration and Naturalization Service
+
+NOL JUL 3
+
+SEC. 1. PL 89-732
+
+<table><thead><tr><th colspan="2">BIRTH NAME (FIRST NAME)</th><th>(MIDDLE NAME)</th><th>SEX<br/>MALE - ☑<br/>FEMALE ☐</th><th>BIRTHDATE (MO-DAY-YR.)</th><th>NATIONALITY</th><th>ALIEN REGISTRATION NO.<br/>(OF Mkt) 77567741</th></tr></thead><tbody><tr><td colspan="7">CITIZENSHIP TO AGUSTIN RHONIN<br/>ALL OTHER NAMES USED NONE<br/><br/>FAMILY NAME GUITAR AGUSTIN<br/>PATRICK PATRICK AGUSTIN MOTHER'S NAME TORO HAGENAN</td></tr><tr><td>Father's first name</td><td>SPOUSE (IF MINE, SO STATE) (FOR WIFE, GIVE MAIDEN NAME)</td><td>PRIEST NAME DAISY</td><td>BIRTHDATE 2-7-30</td><td>CITY & COUNTRY OF BIRTH San Antonio de Coahuila<br/>STATE DEC. 23-26-70</td><td>COUNTY COAHUACHA<br/>PLACE OF MARRIAGE AMARILLO<br/>DATE AND PLACE OF TERMINATION OF MARRIAGE CU 310</td><td>SOCIAL SECURITY NO.<br/>(OF MKT) 436-32-227</td></tr></tbody></table><table><caption>FORMER SPOUSES (IF NONE, SO STATE)</caption><thead><tr><th>FATHER'S FIRST NAME</th><th>MOTHER'S FIRST NAME</th><th>FATHER'S BIRTHDATE</th><th>MOTHER'S BIRTHDATE</th><th>DATE AND PLACE OF MARRIAGE</th><th>DATE AND PLACE OF TERMINATION OF MARRIAGE</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table><table><thead><tr><th rowspan="2">STREET AND NUMBER</th><th rowspan="2">CITY</th><th rowspan="2">PROVINCE OR STATE</th><th rowspan="2">COUNTRY</th><th colspan="2">FROM</th><th colspan="2">TO</th></tr><tr><th>MONTH</th><th>YEAR</th><th>MONTH</th><th>YEAR</th></tr></thead><tbody><tr><td>362 Louisiana Rue Puy</td><td>New Orleans</td><td>LOUISIANA</td><td>USA</td><td>12</td><td>67</td><td rowspan="4">PRESENT TIME<br/>12</td><td rowspan="4">67</td></tr><tr><td>362 Louisiana Dec Party</td><td>New Orleans</td><td>LOUISIANA</td><td>USA</td><td>7</td><td>66</td></tr><tr><td>200 E. Fine Street</td><td>New Orleans</td><td>Louisiana</td><td>USA</td><td>6</td><td>66</td></tr><tr><td>1430 5th St</td><td>Afters</td><td>HAWAII</td><td>USA</td><td>12</td><td>60</td></tr><tr><td colspan="7">Last Foreign Residence of More Than One Year If Not Shown Above (INCLUDE ALL INFORMATION REQUESTED ABOVE.)<br/>APR 7 Jul 78<br/>APR 7 Jul 78 TJP#</td></tr></tbody></table><

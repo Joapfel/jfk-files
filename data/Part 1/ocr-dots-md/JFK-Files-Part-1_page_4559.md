@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_4559.png
+
+Convert to MarkdownSECRET
+
+CLASSIFIED MESSAGE TOTAL COPIES 25
+
+<table><tr><td>INDEX: ☐ YES ☐ NO</td></tr><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>X-REF TO FILE NO.</td></tr><tr><td>FILE RID ☐ RET. TO BRANCH ☐</td></tr><tr><td>DESTROY ☐ SIG.</td></tr><tr><td colspan="2">FROM JMWAVE</td></tr><tr><td>ACTION SODL</td><td>RID COPY</td><td>ADVANCE COPY ☑</td><td>SLOTTED ☐</td><td>TUBED ☐</td><td>UNIT TIME BY</td></tr><tr><td>INFO FILE, UR, AF7, WH/C8, C10A</td></tr></table>
+
+SECRET 152331Z
+
+DIR CITE WAVE 6607
+CHAPPIE WYTHRUSH PBRUMEN
+
+REF WAVE 3062 GUN92924) *
+
+LORENTZ MIAMI SENDS:
+
+REQUEST INFO CLEARANCE STATUS OF FRANCISCO (BARTES) CLARENS.
+
+SECRET * REQUESTED POA RE Su6j .
+
+CFN 6607 3062 LORENTZ FRANCISCO BARTES CLARENS
+
+BT
+
+SECRET
+
+NNN

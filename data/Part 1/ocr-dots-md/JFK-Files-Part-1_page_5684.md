@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_5684.png
+
+Convert to MarkdownSECRET
+
+A-14-12-37
+
+ROGELIO WENCESLAV CISNEROS DIAZ
+
+549 De Leon Drive
+Miami Springs, Florida
+
+Phone: 887-8830
+
+BUSINESS:
+
+Subject is with:
+
+Alk1238 - Post, Buckley, Mooney and Schuh Inc., Engineers, 225 Westward Drive,
+Miami Springs, Florida
+
+Subject is now affiliated with the following organization as of October 1972:
+ALF2020 - Relma Trading Corporation, Coral Gables, Florida

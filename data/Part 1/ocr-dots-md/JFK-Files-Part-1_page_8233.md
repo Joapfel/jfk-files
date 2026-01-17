@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_8233.png
+
+Convert to Markdown# PROFESSIONAL ASSOCIATES
+
+Lambert Ralph, Representative in Mexico
+President, Minos Huruapa, S. A.
+
+Joseph Porter, Consultant
+Manager, Ste. Genevieve Limestone Division
+
+Henry P. Lopez, Consultant
+Attorney at Law
+
+E. T. Knight, Consultant
+Mining Engineer
+
+BANK
+
+The Bank of New York, New York
+
+COUNSEL
+
+Gasperini, Koch & Savage, New York
+Creel y Ogarrio, Mexico
+
+AUDITORS
+
+Arthur Andersen & Co., New York and Mexico
+
+Telephone: 751 1944, New York
+Cables: PETROVEST NEWYORK
+Telex: 420050, New York

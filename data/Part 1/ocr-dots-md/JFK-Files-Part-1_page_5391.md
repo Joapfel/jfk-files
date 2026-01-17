@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_5391.png
+
+Convert to MarkdownSECRET
+
+2 May 1968
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Cleland Joseph-Charles - Plans for Payment of Ranson
+
+1. Mr. George Musulin (DCS) called today to give WH/7/Ehiti advance notice of a report his office has received relative to the release from prison of Cleland Joseph-Charles.
+
+2. Louis BRUN, who is the business representative of CHARLES in New York, has been urgently requested to come to Port au Prince. The request came to BRUN from one Edmond VILAIRE who, BRUN asserts, represents CHARLES in Haiti. BRUN plans to leave New York on 2 or 3 May and return on 6 May.
+
+3. According to BRUN, CHARLES has agreed to pay $605,000 to the Duvalier Government for his release from prison. BRUN claims not to know where the money is located but suspects that it may be in Europe. He further suspects that he will be asked to act as courier.
+
+4. BRUN, who is a naturalized U.S. citizen, has some qualities about his own safety in Port au Prince and has asked his DCS contact in New York, Mr. Mitchell, that the Embassy in Port au Prince be advised of his arrival. He was told that he should go to the Embassy himself upon arrival and make his position known.
+
+5. Mr. Musulin said he assumed WH/7/Ehiti would pass the information to the State Department.
+
+John B. Kensett
+
+SECRET

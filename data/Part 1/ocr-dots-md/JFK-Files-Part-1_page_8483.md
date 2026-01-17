@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_8483.png
+
+Convert to MarkdownCONTACT REPORT
+
+SUBJECT: BESABER P-3777
+DATE OF MEETING: 28 September 1967
+
+1. I met Subject in his room at the Del Paseo from 1415-1530.
+
+Subject will call me a day in advance to set the date of the next meeting, which as usual will be in the Del Paseo.
+
+2. Subject had not seen or talked with CHMYKHOV or any other Soviet since he and CHMYKHOV were out together on the evening of 4 August. At that time, CHMYKHOV suggested that he and Subject have dinner together the next time Subject was in Mexico City.
+Subject agreed and told CHMYKHOV he'd call him the next time he was in town. Due to Subject's tight schedules on his visits to Mexico City, however, it wasn't until 28 September that he called CHMYKHOV. When Subject called the Embassy, however, he was told CHMYKHOV wasn't in. He therefore asked for LOGINOV, who proved to be in. LOGINOV immediately recognized Subject's voice and sounded very pleased to hear from him. He stated that he had had a wonderful holiday in the USSR (he returned on 27 August), but was now swamped with work. He added that he had planned to call Subject as soon as he got things under control. Subject thereupon said that he was actually calling for CHMYKHOV, because he didn't think LOGINOV had returned to Mexico yet. LOGINOV replied that CHMYKHOV wasn't in just then, but they'd both very much like to visit Subject in Cuernavaca. Subject said that he'd like to have them, but suggested they hold off for a week or so until the weather got better. LOGINOV agreed and said he'd talk to CHMYKHOV
+
+File cc: P-6235 P-11712

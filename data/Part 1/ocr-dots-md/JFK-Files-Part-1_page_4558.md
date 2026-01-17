@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_4558.png
+
+Convert to Markdown14-0000
+
+MESSAGE FORM
+TOTAL COPIES: 29
+
+ORIG : W.WAINWRIGHT:kas
+UNIT : SOD/AB/OPS3 ☐ INDEX
+EXT : 4475 ☐ NO INDEX
+DATE : 25 OCT '65 ☐ FILE IN CS FILE NO.
+
+<table><thead><tr><td colspan="2">ROUTING</td></tr></thead><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
+
+TO : JMWAVE (FOR LORENTZ)
+
+FROM: DIRECTOR
+
+CONF: SODG
+
+INFO: VR, FILE ☐ RID COPY WH/A8,AF7,CJ/A8
+
+26 Oct 65 22 00 E
+
+SIG CEN
+
+TO : WAVE (FOR LORENTZ) INFO : CITE DIR :
+
+CHAPPIE WITHRUSH PBRUMEN
+
+REF: WAVE 6607 (IN 74001)*
+
+SUBJECT GRANTED POA.
+
+END OF MESSAGE
+
+*Requested clearance status of Subject.
+
+WH/C/MO Mr Moughan Telecon
+SOD/AB/COPS G.J.
+GI/OA G.Boll/Telconn
+
+BERNARD J. PERNAN, JR.
+C/BUD/AN
+AUTHORIZING OFFICE PROMPTLY
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED, COPY NO. 65-100

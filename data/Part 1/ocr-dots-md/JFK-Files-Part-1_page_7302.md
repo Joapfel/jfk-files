@@ -1,0 +1,58 @@
+# JFK-Files-Part-1_page_7302.png
+
+Convert to Markdown9.02 Eating:
+
+9.02.01 Is his mode of eating
+Typical of most of his colleagues X
+Somewhat different than most of his colleagues
+Markedly different than most of his colleagues
+
+9.02.02 Is he a
+Hearty eater ____ Average eater X Light eater
+
+9.02.03 Is the fact that he has marked food preferences Very noticeable
+Not particularly noticeable
+Not at all noticeable
+
+9.02.04 Does he
+Eat with relish
+Enjoy his food in a conventional manner
+Seem indifferent to food X
+
+9.02.05 Does he eat
+Quickly ____ Average X Slowly
+
+9.02.06 Is he generally inclined
+To take second helpings
+To take all he wants the first time around X
+Often leaves some of his food untouched
+
+9.02.07 Does he
+Dwell on how much he misses his native foods
+Show conventional interest in local foods X
+Indicate considerable interest in new and unusual foods
+
+9.02.08 (a) He does not eat while
+Talking ____ Listening ____
+(b) He does eat while
+Talking X Listening X
+
+9.02.09 Does he show a tendency to adapt to the table etiquette of the
+people with whom he is dining? Marked ____ Average X
+Maintains his familiar style of eating at all times
+
+9.02.10 When given a chance, does he, for other than business reasons,
+suggest a preferred place to eat? Always ____ Sometimes ____
+Rarely, if ever X
+
+9.02.11 When eating out It is very difficult for him to select his meal
+Waits to hear what his companion orders and orders same thing
+Always knows what he wants very quickly
+
+9.02.12 When eating out, he is-
+Somewhat extravagant when he knows you are paying
+Very cost-conscious when he knows he is paying
+Very cost-conscious no matter who is paying
+Generally indifferent about cost no matter who is paying
+
+-23-

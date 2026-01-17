@@ -1,0 +1,58 @@
+# JFK-Files-Part-1_page_8907.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+<table><tr><td colspan="2">C. W. COLLER<br>C/WH/2<br>6868</td></tr><tr><td>CC:</td><td>SECRET</td></tr><tr><td>SUBJECT:</td><td>MEXICO SANTIAGO</td></tr></table>
+
+13 MAY 1964
+
+TO MEXICO SANTIAGO
+
+FROM: DIRECTOR
+
+CONF: WILB
+
+INFO: CA 2, CA/D 1, CI, CI/OPS, FI, VR
+
+<table><tbody><tr><td rowspan="4"><table><tbody><tr><td>1</td><td>2</td><td>3</td></tr><tr><td>A</td><td>B</td><td>C</td></tr><tr><td>D</td><td>E</td><td>F</td></tr></tbody></table></td><td>23 MAY 84</td><td>15 52Z</td></tr><tr><td colspan="2"><table><tbody><tr><td>SIG.</td><td>LAWEN</td></tr><tr><td>RULEN</td><td></td></tr></tbody></table></td></tr><tr><td colspan="2">ROUTINE</td></tr><tr><td colspan="3" style="text-align:center;">PRIORITY</td></tr></tbody></table></td></tr></tbody></table>
+
+CITE DIR
+
+PRIORITY MEXI INFO SAGO
+
+FUASPEN TICHBORN
+
+REF: MEXI 9577 (IN 88422)
+SAGO 7034 (IN 89145)
+
+1. CONCUR TICHBORN MAKE ARRANGEMENTS PER PARA I B REF.
+
+2. TICHBORN IDENTIFYING HIMSELF AS HENRY SHOULD CONTACT WALLACE R. PARLETT AS SOON AS HE ARRIVES NEW YORK TO SET UP BRIEFING IN WASH NOT LATER THAN 28 MAY, TICHBORN COULD LEAVE FOR SAGO ON 29 MAY. PARLETT'S OFFICE EXTENTION IS 6868. HOME NUMBER IS IN VIRGINIA SECTION OF WASH DIRECTORY.
+
+3. FOR SAGO: IN ORDER TO AVOID OVERLAPS AND CROSSING OF LINES IT IMPORTANT STICK TO CONCEPT TICHBORN'S UTILIZATION PER REF B, L.E., HE WILL BE STATION EYES AND EARS BUT NOT BECOME INVOLVED IN ORGANIZING CAMPAIGN FOR INDEPENDENTS OR OTHER ELEMENTS.
+
+END OF MESSAGE
+
+C/S COMMENT: *REF RYBAT.
+
+W. KOHN
+
+DESMOND FITZGERALD
+C/WHD
+RELEASING OFFICE
+
+WH/3
+
+(COORDINATING OFFICE)
+
+<table><tr><td>SECRET</td></tr></table>
+
+CO-ORD
+
+G/RWHD
+
+A.D. C/WH/2
+OFFICIAL
+OFFICE
+
+AUGmentation by OTHER THAN THE ISSUING OFFICE IS PROhibited. Gen. 201-253203

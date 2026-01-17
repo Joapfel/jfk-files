@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_9121.png
+
+Convert to MarkdownFilm Companies and Publications
+
+Los S.
+Pons Quirós
+Cines Faro de los Cuatro
+
+Espana...
+Jose Fili
+Cines Faro de la Concepción
+
+Muniz S.r.o.
+Filme Broters (Cessà, Cinn and Pelle)
+several companies in Madrid, Barcelona, Furniture
+
+Rodrigo S...
+Jose Maria Gonzalez
+one of the older and larger construction companies
+
+Folk Pictures and Publications
+
+Suave Films
+Cassino Contables
+Largest producer, distributor, exhibitor in Spain
+
+Izaro Films S.r.o.
+Florinito Beynselçam
+Largest distributor and exhibition in Madrid
+
+Baroto Films
+Bentio Baroto
+Independent producer (filmed with permanent fixtures)
+
+La Republic and Magazine
+
+Provenza Española S.r.o.
+Guilleredo (from 1906)
+Publishers also, largest daily, and other pages
+
+Diario Vangeneve
+Conde de Ordo
+Largest daily in Barcelona, publications large, etc.
+
+Huller S.r.o.
+Murillo Publishing
+Teatral y musical, also magazines

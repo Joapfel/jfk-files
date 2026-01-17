@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_5887.png
+
+Convert to Markdown14-00000
+
+Thomas Edgar Davis
+1596 Neil Avenue
+Columbus, Ohio
+Act Head of Research
+OSU Research Foundation
+BSC - Bus Adm 1939
+Ohio State U.
+1939-1942 Art & Audito
+Dean's office
+has been art & direc-
+Research Foundation 1942

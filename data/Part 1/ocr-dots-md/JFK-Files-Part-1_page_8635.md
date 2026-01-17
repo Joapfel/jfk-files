@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_8635.png
+
+Convert to Markdownthe things turn out right or wrong, but S will be left only with guesses as to what transpired between the case officer and A in Russian.
+
+h. It is the fate of any officer making the pitch to him be burned if the exgersice ends in anything less than a success. Therefore, it would be worthwhile considering to get a suitable language speaker case officer from Eqs for this purpose.
+
+6. I am aware of the fact that thus the above discussed scheme has a quite certain weakness in as much as it is built on and around an untested asset as S is. Nevertheless, in terms of security and protection of Agency/ Assistant Station assets the scheme is advantageous, which is selfevident.
+
+7. It should be assumed that S might come up with some objections when it comes to introducing another person to A from fear that he would deal himself out of the game and terminate his usefulness to us. I do not consider it difficult to put him at ease.
+
+8. For your consideration and comments.
+
+BHFernald
+
+This is not a bad plan, but I think it breaks down on the following points (more), which Fernald himself has pointed out:
+
+1) Do you think SOB would artistically sound like an unknown quantity to build any type's approach around?
+
+2) Do you agree that it is desirable to use a different approach? Why should we worry about what's on the tape (he can say he wants just same as in someone's benefit) to a tape which is not likely to be a favourite one?
+
+3) Is that true we can get a technically adequate tape?
+
+4) Is it possible now only 10% until he leaves so soon - possibly as early as 8 October - so we have time to sort it properly. Never the less was brought out within the period at hand: how to make a pitch to� create...

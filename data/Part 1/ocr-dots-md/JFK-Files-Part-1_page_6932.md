@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_6932.png
+
+Convert to Markdown<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>SECRET</td><td>SECRET (AND NO)</td></tr><tr><td>TO<br/>NPO</td><td>IPM-A-11154<br/>REORDER FROM NO</td></tr><tr><td>FROM<br/>SUN</td><td>50-4-120-1<br/>1 October 1958</td></tr><tr><td>SUBJECT</td><td>RE 43 - [CHECK 1] ONE</td></tr><tr><td>ACTION REQUIRED</td><td>X MARKED FOR INDOERING<br/>NO INDICING REQUIRED</td></tr><tr><td></td><td>INDICING CAN BE JUDGED<br/>BY QUALIFIED NO DEEM ONLY</td></tr></table>
+
+I. Lini Fuhr STOUMEN - reported to have been detained but this was never verified.
+
+J. Felix SAUNDERS (husband of STOUMEN) - reported to have been detained but this never verified.
+
+10. During all the time that the pick-ups were occurring Carmen GARRASCO Molino, who acted as intermediary for Helen GOBELL with Lic. Luis GANCHEZ Ponton was busy at the MALTZ residence making attempts to gather funds with which to force the Mexican authorities to rescind the pick-up orders and to help the American Communists as a group in efforts to solidify their status in Mexico.
+
+11. Apparently the papers of the people who were deported as well as those who were picked up were correct so far as technicalities were concerned.
+
+Willard C. CURTIS
+
+GFB/cps
+
+26 September 1958
+
+Distribution:
+3 - Hqs
+5 - Files
+
+US PREVIOUS ENTRY REPLACES FORM 3128A AND IS 3129 WHICH ARE CURRENT
+
+CLASSIFICATION
+
+SECRET
+
+[ ] CONTINUED
+
+PAGE NO.

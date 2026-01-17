@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_9404.png
+
+Convert to MarkdownFOREIGN SERVICE EDUCATIONAL FOUNDATION
+
+1906 FLORIDA AVENUE, N. W.
+WASHINGTON 9, D. C.
+
+SCHOOL OF ADVANCED INTERNATIONAL STUDIES
+THE MIDDLE EAST INSTITUTE
+OFFICE OF THE PRESIDENT
+
+June 13, 1950
+
+American Express Company
+65 Broadway
+New York, New York
+
+ATTENTION: Mr. O. J. Gilmore
+
+Dear Mr. Gilmore:
+
+Thank you for your letter of June 13, 1950. This will authorize you to arrange for the side trip to Stockholm as requested by Mr. Burnham and charge us to our account.

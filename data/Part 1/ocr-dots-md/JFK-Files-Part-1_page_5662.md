@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_5662.png
+
+Convert to Markdown14-00000
+
+LASQUE COMMERCIALE D'HAITI
+
+Le Président
+
+Annexe 1
+
+-2-
+
+Jo vous prie, excellence, de recevoir l'expression de mes hommages respectueux, et en même temps vous accorder à mes semblaient indissolubles d'attachement et d'union.
+
+CJC/pal
+
+LES EXCELLENCE
+L'EMDRAILLE JOSÉ P. MARGEUET
+VICE-PRÉSIDENT DU SECONDUIS D'AFRIQUE
+WASHINGTON, D.C.

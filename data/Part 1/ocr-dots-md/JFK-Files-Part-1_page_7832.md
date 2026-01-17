@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_7832.png
+
+Convert to MarkdownSECRET
+
+- 17 -
+
+15. CONTACTS: Continued
+
+b. Non-Soviet:
+
+53) Rafael VIDIELLA Ruiz (P-4805, 201-238943) Continued
+
+On 19 May 1967 VIDIELLA's wife tried to call Subject, saying that she was calling on behalf of the Instituto de Interpretes y Traductores, and that her husband had written a letter in Russian about some tourists and she wanted a Russian typewriter to have it typed up on. (1)
+
+54) (Col. and Lic.) Rafael VILLAURRUTIA Lopez, also reported in contact with the Cuban Embassy in Mexico.
+
+On 30 January 1967 VILLAURRUTIA said that he had to go out of town and could not keep his appointment with Subject. (1)
+
+55) Ralph WIEGANDT (P-2254), German who came to Mexico in 1955 and has paint factory, member of French Club.
+
+On 13 March 1967 Mrs. Ruth WIEGANDT, using the familiar form of address with Subject, invited Subject and his wife to Sunday dinner. (1) In April 1967 it was reported that Subject was quite friendly with the WIEGANDTs at the French Club. (15)
+
+56) Douglas H. WILTSHIRE, American employed with SERVISA Travel Agency.
+
+On 10 May 1967 WILTSHIRE planned to pick up some passports from Subject at the Soviet Embassy and mentioned that he would like to invited Subject to his house. (1)
+
+57) Michael ZAREBSKI (P-8777, 201-744856), businessman from Cuernavaca, Canadian citizen,
+
+On 11 October 1966 Subject reminded the Polish Consul, JAKOWIEC, that ZAREBSKI was going to sell some of his items to the Soviets. On 13 October 1966 JAKOWIEC said he could introduce Subject to ZAREBSKI, or Subject could call him directly. (1) Subject had originally met ZAREBSKI at a Polish Embassy recepiton on 14 December 1965, and at another on 4 October 1966, and they finally did get together on 12 January 1967. Subject asked ZAREBSKI to help the Soviets find a house for a dacha in Cuernavaca, which he eventually did. On 24 February 1967 Subject and several other Soviets visited ZAREBSKI's factory and had lunch with him in Cuernavaca. On 20 May 1967 Subject and Boris Aleksandrovich CHMYKHOV visited ZAREBSKI in connection with the dacha, and on 15 July 1967 Subject and CHMYKHOV visited the factory. (19)
+(COMMENT: Subject and CHMYKHOV had known each other before in Cuba, and both had mestkom responsibilities for the dacha, so their going to Cuernavaca together is not remarkable, although CHMYKHOV is a GRU officer.)
+
+16. PAST OPERATIONAL ACTIVITY AGAINST SUBJECT:
+Under Separate Cover

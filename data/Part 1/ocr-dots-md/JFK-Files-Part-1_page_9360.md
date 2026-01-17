@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_9360.png
+
+Convert to MarkdownI told him that feeling coincided entirely with our own views and
+that we would expect him to conduct himself in that fashion.
+It was agreed that he should continue as a member of the Inter-
+national Committee of Twenty-five but should take no active overt
+part in organizational or policy matters and would operate behind
+the scenes only when so directed.
+
+5. I discussed with him the problem raised by the presence of David Rousset and Ignacio Silone on the Executive Committee. Rousset argued that neither of these individuals could be considered fully reliable but explained it had been impossible to exclude them from the Committee because of their prominence and the interests which they represented. He said he preferred Rousset as a person who considered himself basically on the American side even though from time to time he had to make noises of a sort to satisfy his leftist constituents. He also described Rousset as a bit of a bluffer who could be handled by a combination of firmness and tact, particularly so long as he continued to desire to be an American ally. Rousset described Silone as a more complex case--a vain, egocentric person of strong intellect but weak will and an inert politician who insisted on engaging in politics solely to satisfy his ego. Rousset said Silone probably would have been lost to the cause entirely had he not been given a prominent role including a position on the Executive Committee but that, as it was, he appeared on the surface now to be a convert, albeit a dubious one. Rousset expressed belief, however, that Silone could be controlled if handled expertly and that, if worst case to worst, he could be separated from the Committee without disastrous effect. Rousset said that in his opinion Arthur Koestler and Carlo Schmid were altogether reliable politically and could be depended upon to counterbalance Silone and Rousset even though it would be unwise to take them fully into confidence as to the nature of the Congress' backing. Irving Brown, of course, is considered completely reliable.
+
+6. In addition as the Executive Committee is a creature of the Committee of Twenty-five and draws its membership from that Committee, the latter constitutes the real point of control in the Congress organization. The Committee of Twenty-five, as it stands, is reliable on balance. If necessary, it could be weighted more heavily in our favor by exercise of the privilege of co-opting additional members on whom we could depend. Rousset said. He suggested that it might be well to establish a principle either of rotating members of the Executive Committee or of conducting regular elections of the parent Committee of Twenty-five, probably preferably the latter. This mechanism would provide means whereby obstreperous Executive Committee members might be sidetracked. Rousset agreed that this might prove a workable scheme.
+
+JOHN E. BAKER
+
+14-00000

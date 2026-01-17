@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_7145.png
+
+Convert to Markdown14 February 1966
+
+MEMORANDUM FOR THE RECORD:
+
+FROM: Oronsky
+SUBJECT: LICOWL-1
+
+1. I met Subject on Friday, 11 February at 1900 hours. The meeting was a very short one since I only wanted to determine if he had found a girl for SILNIKOV to "paint". He said he was still looking.
+
+2. The boy who watches Subject's store at night did not show up on 7 February and Subject was forced to sleep above the store himself. At 0300 hours on Tuesday (8 February) he was awakened by the noise of a car horn and looked from the window to see Valentin S. LOGINOV and Vladislav S. KORMUSHKIN blowing the horn of their car in the driveway of the Embassy. Both Soviets were drunk and were yelling for the gate guard (who happened to be SILNIKOV) to open the gate for them. They were driving car 337-D (LEONOV's) or 336-D (KORMUSHKIN's). Subject returned to his bed and did not see them leave the Embassy.
+
+3. Since both LOGINOV and KORMUSHKIN live in apartments outside the Embassy and since they would not willingly go to the Embassy at 3 a.m. while drunk, it is likely that they were working when they got drunk and therefore had no fear of being reprimanded for it. They may have returned to the Embassy to make a report or to secure some classified materials before going home. Both men replaced known KGB officers and both work under Pavel YATSKOV.
+
+4. I set our next meeting 24 February.
+
+COPIES MADE P 11712

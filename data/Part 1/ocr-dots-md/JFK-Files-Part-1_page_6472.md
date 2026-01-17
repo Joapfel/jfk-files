@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_6472.png
+
+Convert to MarkdownSECRET
+
+Plan of assistance for the ability with the basic objective being their eventual resettlement in a country of immigration or, if this is not possible, re-establishment within the economy of their present country of residence. Although the Escapee Program Division of the U.S. Operations Mission for Germany has contracts with both Tolstoy Foundation and AFRP to carry out a counselling program for Soviet escapees, and has spent approximately $14,000 on each agency in this connection, to date the agencies have not completely counselled all of their caseloads. Accordingly, it is most difficult to make any kind of analysis of the amount of assistance rendered as compared to the extent of need. On December 7, representatives of both agencies were advised by the Escapee Program Division, that the counselling program must be completed in the near future, and that USEP will be in a much better position to evaluate the program of assistance to Soviet escapees.
+
+Despite the admittedly unsatisfactory situation outlined in the previous paragraph, certain positive action has been taken by the EPO and the voluntary agencies to provide assistance to Soviet escapees. Reportedly, AFRP has distributed in the neighborhood of 815,000 in supplemental assistance in the form of food, clothing, lodging, etc., to escapees registered in their caseload. The Tolstoy Foundation has distributed in the neighborhood of 219,000. In addition, three special housing aid projects have been established in Germany: the Friendship House in Munich with a capacity of 10 persons, and the center in Kaiserlautern, with a capacity of 36 -- both sponsored by AFRP, and the Tolstoy home in Karlefeld which has a capacity of 80 to 100. A word about each of the following installations:
+
+The Friendship House in Munich is small and is always full. The length of stay varies per individual as its primary purpose is to furnish temporary housing for Russian escapees who come to Munich looking for work. In some cases these periods of residence have dragged out. At this home full care and maintenance is given, as the residents are mostly ineligible for relief grants in Bavaria.
+
+- The Karlefeld house was opened on September 4 and has accepted 26 escapees to date. In addition to the fact that each applicant is screened by the agency and then by a consular and USEP representative, the admission process is complicated by the need to transfer unemployment and relief benefits from other areas. While this installation is not meant to be a housing project of semi-permanent quarters, the type of aid needed by most persons selected will probably result in a fairly stable population, once the home is filled. The Kaiserlautern home reported, as of November 15,
+
+* 19 current residents
+* 11 persons moved to private quarters
+* 5 persons moved to Labor Service Units
+* 10 persons returned to former residence
+* 5 dependents placed in jobs
+
+All ...

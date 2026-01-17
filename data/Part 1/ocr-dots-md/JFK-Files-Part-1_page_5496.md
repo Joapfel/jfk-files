@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_5496.png
+
+Convert to Markdown4. Gerard Philloyais, Minister of Health. In early May 1967, he was in New York City to seek treatment of alogic brain tumor condition. A very sick man, he no longer has political aspirations.
+
+5. General Victor Constant, chief of staff. To be eliminated.
+
+f. Tridam, a former ambassador to the US. He is strongly pro-USSR. Charles "bopes" to give him a diplomatic post when he is in a position to get one.
+
+g. Colonial Jacques Larouche, deputy chief of staff, "a connivance Communist." To be eliminated.
+
+12. Charles stated that Dr. Laughlin, a US citizen, at M.D., who lives with his son in Port-au-Prince, is "an undercover agent for Duvalier." As one-time Laughlin was running a treasury for Duvalier, his son is now in charge of an extensive rice plantation.
+
+13. If Charles receives no US help against Duvalier, he will act on his own. However, he knows that without US help (armament, weapons) it is any taking several months before he and his friends are ready to strike. During the interim period, he will endeavor to undermine the Duvalier government on the economic front. To be specific, he plans to sell his foreign friends connected with the International Monetary Fund and the World Bank that they must abandon the present regime to complete economic collapse. In addition to furnishing a copy of his memorandum addressed to Duvalier to the US ambassador in Haiti on the wrongdoings of Henri Bialias, president of the Haitian Tobacco and Match Monopoly, he gave copies to "foreign Democrats." Charles fuels that even the "economic situation of Haiti is absolutely hopeful," he and his friends will be able to carry out the coup.

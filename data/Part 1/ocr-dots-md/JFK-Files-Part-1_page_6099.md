@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_6099.png
+
+Convert to Markdown26 January 1977
+
+MEMORANDUM FOR: Chairman, Information Review Committee
+ATTENTION : Mr. H. G. Bean, Assistant for Information
+SUBJECT : E.O. 11652--Richard D. Mahoney (E 76-124)
+REFERENCES : A. Initial Request dated 8 January 1976.
+B. GSA Referral Letter w/att. dated 19 April 1976.
+C. IPS Reply dated 26 July 1976.
+D. Appeal Letter dated 15 August 1976.
+
+1. Summary of Recommendations: Sustain the initial determination to deny the document in toto under provision 5(B)(2) of E.O. 11652, as amended. Add provision 5(B)(3).
+
+2. Background:
+
+a. On 8 January 1976, Mr. Richard D. Mahoney requested a mandatory review of two classified CIA documents under provisions of Executive Order 11652 Section 5(C). The documents were in custody of the National Archives and Records Service (NARS) in the John F. Kennedy Library.
+
+b. On 19 April 1976, the NARS referred Mr. Mahoney's request with copies of the documents to CIA. The Agency was asked to review the documents. If declassified, they were to be marked appropriately.
+
+E2 IMPDET
+CL BY 012170
+
+CONFIDENTIAL When
+Detached From
+Attachments
+
+SECRET
+
+This image does not contain any tables.

@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_6614.png
+
+Convert to Markdownold farmer who was imprisoned a year before because he had not been able to meet his quota. He was speechless with fright and despair. When he was finally convinced that he was a free man, he broke down and wept, overcome with joy. I had to carry him away."
+
+## Prisoners Are Freed...
+
+### A LOCKSMITH
+
+(WERNER MENGELSDORF is a locksmith. He led the heroic liberation of 80 political prisoners in Magdeburg.)
+
+"A mob of 3,000 strong stormed into the court-yard of the prison in Magdeburg. The prisoners pressed their worn, pale faces against the bars. A woman in the crowd started to scream as she recognized her husband who had been arrested only two days before.
+
+"The wooden doors of the prison splintered under the weight of the surging crowd. The guards fled. The metal door to the cell block was pried open. Mengelsdorf called for the locksmiths and together they opened the cell doors. Indescribable scenes followed. One prisoner cried, 'Freedom! Freedom!', then fell to the floor crying. A young man sentenced to 25 years for crimes against the state stepped out of his cell into the arms of the girl to whom he had been engaged. Neither knew the other was there until the doors opened. They embraced, wordless.
+
+"Soviet tanks rumbled into the prison yard before all the prisoners could be released. Mangelsdorf himself barely escaped with his life. His only route of escape lay in swimming the Landwehre canal which separates East and West Berlin at certain spots. He waited until dark and then made it, narrowly escaping death from Soviet bullets which peppered the water around him. He is today in one of the camps in West Berlin, destitute but resolved that one day will come when all of East Germany as well as the satellite countries will again be free."
+
+Two hours later when I had the honor of installing the Bear Flag of West Berlin, the Russians had brought three tanks into the square. As I began pulling up the flag they began to fire. Somehow I was able to finish my task and jump to the ground. The flag of West Berlin was in its right place and, miraculously, I was safe.
+
+At Magdeburg...
+
+### A BAND LEADER
+
+(Hans-Henrikdag, band leader at the city��, was the strike leader under whose guide the FDJ (Communist Youth Movement) office, Communist Party headquarters and the home of the Chief Commissioner of Police were stowed. No event of the day impressed me as much as the occurrence at Magdeburg station.)
+
+"After we disarmed the Vopos (People's Police) on duty at the station, we tore down the hated 'Passage of Interzone-Dispatching Signs.' As though this in itself could accomplish the task, the crowd began shouting, 'There are no borders anymore.'
+
+"As the interzonal train arrived in the station, the frightened passengers locked the doors and windows, fearing an attack by Communist soldiers and police. As soon as they saw our sign 'The SED is beaten,' the windows and doors were opened and the people burst out, embracing each other, shouting, crying and some even giving away their possessions in celebration, assuming that the union of the East and West was an accomplished fact.
+
+"We asked them to spread the word along on their way to Berlin. At this time we still thought that rebellions were taking place only in Magdeburg and Berlin. We were jubilant a few hours later when we learned from RIAS (Voice of America) and NWDR (West Berlin station) that uprisings were occurring all over East Germany.
+
+"The next train to arrive contained a prisoner car. After a few tense moments we managed to gain control of the train and get the cells open. One of the prisoners was a 74-year-
+
+14-00000

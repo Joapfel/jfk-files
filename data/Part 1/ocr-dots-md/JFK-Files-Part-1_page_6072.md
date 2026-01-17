@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_6072.png
+
+Convert to MarkdownNão nos interessa analizar aqui a parte moral ou jurídica da questão. (Hasta dizer que todas as organizações revolucionárias cubanas rechaçaram tal proposta de negociação do Tirano):
+
+É interessante frisar apenas a necessidade urgente que têm as коммунистас кубанов de conseguir dólares.
+
+Explicação? Muito sutil. A sua maior fonte de divisas é a indústriá açucareira. Mas, a troca de compradores — U.S.A. pelo Bloco Socialista — teve resultados inteiramente negativos, apesar das declarações do atual Ministro das Indústrias, Ernesto "Che" Guevara, em março de 1960:
+
+> "FALA-SE EM DIMINUIR A COTA DE AÇUCAR CUBANO E MESMO SUSPENDÊ-la INTEIRA-MENTE. QUANTO ANTES MELHOR; PARA CUBA ERA UM SIMBOLO DO COLONIALISMO. NÓS NOS ARRUMAREMOS MELHOR SEM OS JUGOS IMPERIALISTAS".
+
+Sirva como ilustração das consequências desta "libertação do imperialismo" o seguinte fato: em 1957, o total dos salários pagos aos trabalhadores agrícolas e industriais, no setor açucareiro, subiu a 327 milhões de pesos (dólares), cifra que representava quase 50% do valor total da produção dêsse ano, e que era o resultado das conquistas devidas à Federação Nacional dos Trabalhadores Açucareiros (Os outros tatores da produção eram: os colonos — empreiteiros agrícolas — e os fazendeiros — empresários industriais —).
+
+O valor total da produção açucareira vendida ao Bloco Socialista, segundo o Convênio que serviu de base para regular a safra de 1961, elevou-se a $320 milhões de pés (4 milhões de toneladas a $0,04 as 460 gramas). Isso quer dizer que o total percebido pela safra vendida ao Bloco Socialista não chegou a cobrir o que era antes a participação de um só dos fatores da produção açucareira.
+
+Além disso, essa quantidade paga-se, sobretudo, em mercadorias de ná qualidade e não em dólares.
+
+E como se isso fosse pouco, a safra (como todas as demais atividades do país) foi bastante fraca. Em março de 62, afirmou "Che" Guevara, numa reunião de trabalhadores açucareiros: "A primeira afirmação a fazer é que a safra foi má".
+
+> F afirmou que a secta afectou os canavrais, mas que a principal razão da baixa da produção foi o trabalho agricola e industrial mal feitos.
+>
+> Depois de revelar que somente três ou quatro das cento e sessenta usinas de açucar haviam conseguido as cotas previstas, acrescentou: "Trabalha-se com deficiência no cumprimento das metas pré-estabelecidas". Segundo Guevara, a produção dêste ano atingiu somente a 3 milhões de toneladas de açúcar bruto.
+
+Por último, revelou que em muitos pontos do território também foram queimados muitos canavrais.
+
+RESUMINDO:
+
+— Não foram criadas novas indústrias.
+
+— Alguns industrias foram paralisadas.
+
+— Diminuiu a produção.
+
+— Caina qualidade dos produtos.
+
+— Há necessidade urgente de divisas.
+
+— O trabalho foi mal feito.
+
+— Há sabotagem.
+
+Tudo isso por que?
+
+Os marxistas apresentam dois motivos: o primeiro, as agressões do imperialismo ianque; o segundo, as dificuldades inerentes ao co-meco de toda Revolução.
+
+Söhre o primeiro, deve-se afirmar claramente, e de uma vez por todas, que foi Fidel Castro quem, deliberadamente, procurou o apoio do Bloco Socialista e a iminizade dos Estados Unidos. E assim procedeu com todo o cinismo, enquanto proclamava o contrario, fazendo-se de vitina.
+
+A 17 de abril de 1959, em seu discurso perante a Associação Norte-Americana de Diretores de Jornais em Washington, Fidel Castro declarou (em inglês):
+
+— Dese

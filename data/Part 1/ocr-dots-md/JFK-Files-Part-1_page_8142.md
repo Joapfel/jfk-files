@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_8142.png
+
+Convert to MarkdownSECRET
+(WHEN FILLED IN)
+
+DOCUMENT NUMBER
+
+14-00000
+
+<table><thead><tr><th colspan="4">ROUTING AND RECORD SHEET</th></tr><tr><td colspan="2">INSTRUCTIONS</td><td colspan="2"></td></tr><tr><th>PRIOR TO FILING</th><th>TO: ACTION BRANCH</th><th colspan="2"></th></tr></thead><tbody><tr><td>1. Fill in Sect. 2. on back. Detach back flap and forward to RID.</td><td rowspan="2" colspan="3">If file no. and title shown are not proper, insert proper file no. below and forward document to RID/AN.</td></tr><tr><td>2. Destroy front cover sheet, unless it records significant action taken or comments requiring preservation.</td></tr><tr><th>FROM:</th><th>PROPER FILE NO.</th><th colspan="2"></th></tr><tr><td>RID/<br/>RU/AN</td><td></td><td colspan="2">TO: ALL ADDRESSEES<br/>FILL IN SECTION I ON BACK, IF APPROPRIATE<br/>COMMENTS</td></tr><tr><th>TO</th><th>ROOM NO.</th><th colspan="2">DATE</th></tr><tr><td></td><td></td><th>RECEIVED</th><th>FORWARDED</th></tr><tr><td>WH 046 Barton</td><td></td><td></td><td>3 JA 1968 6/2</td></tr><tr><td>2.</td><td></td><td></td><td>AX</td></tr><tr><td>3.</td><td>W.H. Olson '57</td><td>5/15</td><td>J.W. HARRIS</td></tr><tr><td>4.</td><td>Grumwell</td><td>5 Jan. 9</td><td>LSD</td></tr><tr><td>5.</td><td>WH/CALF</td><td></td><td>AX</td></tr><tr><td>6.</td><td></td><td></td><td></td></tr><tr><td>7.</td><td></td><td></td><td></td></tr><tr><td>8.</td><td></td><td></td><td></td></tr><tr><td>9.</td><td></td><td></td><td></td></tr><tr><td>10.</td><td></td><td></td><td></td></tr><tr><td>11.</td><td></td><td></td><td></td></tr><tr><td>12.</td><td></td><td></td><td></td></tr><tr><td>13.</td><td></td><td></td><td></td></tr><tr><td>14.</td><td></td><td></td><td></td></tr><tr><td>15.</td><td></td><td></td><td></td></tr><tr><td>16.</td><td></td><td></td><td></td></tr><tr><td>17.</td><th>RID/FI</th><td colspan="2">FILE TITLE<br/>TIGHERSON EDWARD G. (C)</td></tr><tr><th>TRACE REQUEST</th><th>ADD'l'ACK<br/>UNCLASSIFIED</th><td>X</td><td></td></tr></tbody></table>

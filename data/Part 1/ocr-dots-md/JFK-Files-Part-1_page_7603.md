@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_7603.png
+
+Convert to Markdown480: Subject (giving name as WILSHER), an American, asks for LOGUINOV and tells him that he just wanted to be sure that LOGUINOV would be in as he had called yesterday (9 May) and he had not been in. LOGUINOV tells WILSHER that 9 May is a Holiday and commemorates the Russian Victory in Berlin, Germany on 9 May 1945. WILSHER says he remembers that as he was in the war in that area at the time and remembers that. WILSHER wants to go by to see LOGUINOV to pick up some passports. WILSHER also would like to invite LOGUINOV out to his house. LOGUINOV says he can come by to pick up the visas.
+
+156055
+
+10 mar. 1967
+
+P-11712
+
+480-
+
+(norteamericano)
+
+Entrada.- IF WELCHER (?) pregunta por LOGUINOV para el puede pasar a vorlo, puos se trata do la agonoina do viaje. Servisa. VALA dico que espero. Después WELCHER comonta co: LOGUINOV quo el estuvo en el año de 1945 cuando la onida Berlin y conoce un poco la historia de la victoria rusa o los nazi-fascistas. LOGUINOV cambia de toma y pregunta si tione algunas visas pendientes. WELCHER dico que tiene al least pasaportes que pasar a recoger y sirve quo lo invita a su... LOGUINOV lo espera.- 521-
+
+480:
+
+Subject (giving name as WILSHER), an American, asks for LOGUINOV and tells him that he just wanted to be sure that LOGUINOV would be in as he had called yesterday (9 May) and he had not been in. LOGUINOV tells WILSHER that 9 May is a Holiday and commemorates the Russian Victory in Berlin, Germany on 9 May 1945. WILSHER says he remembers that as he was in the war in that area at the time and remembers that. WILSHER wants to go by to see LOGUINOV to pick up some passports. WILSHER also would like to invite LOGUINOV out to his house. LOGUINOV says he can come by to pick up the visas.
+
+156055
+
+10 mar. 1967
+
+P-11712

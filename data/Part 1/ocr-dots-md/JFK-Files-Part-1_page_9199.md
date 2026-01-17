@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_9199.png
+
+Convert to MarkdownSECRET
+
+30 March 1951
+
+MR. EASTON—
+
+I have just phoned Boris Shub, AC-2-0164. He will expect Jack Morgan to get in touch with him. 510 West 110th St., NY 25.
+
+Shub can be reached there any time any morning. In the evenings he is working in the apartment of a collaborator, and prefers not to be phoneed there.
+
+He expects to be in town both Tuesday and Wednesday.
+
+VSS
+
+Shub and his collaborator work all Sundays and Mondays at the latter's apartment. Therefore if Morgan wants to phone him Monday he had better catch him at breakfast.
+
+SECRET

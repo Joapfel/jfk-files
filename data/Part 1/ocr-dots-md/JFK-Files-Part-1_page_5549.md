@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_5549.png
+
+Convert to MarkdownRETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+# RETURT
+
+On Friday, 19 June, departed Miami for Kingston. Jamaica via Pan American, leaving Miami at 0800 and arriving Kingston via Montego Bay at 10:15 AM. This flight continues to on to San Juan, Puerto Rico, and Latin passengers are commonplace. In passing through immigration and customs, it is necessary to give the immigration inspector the name of a specific hotel or address at which you can be reached in Jamaica.
+
+Obtained rental car from Hertz Car Rental and departed Kingston Airport at 10:45 AM via Highway A-1 for Fort Antonio of the north coast. Highway A-1 follows the coast around the eastern tip of the island. There is another route to Fort Antonio, over the mountains, but it is not recommended. As shown on the standard highway map of the island, there is a small cove about seven miles east of Port Antonio designated as "Blue Hole". The cove is roughly 200 feet wide by 500 feet long, and completely protected from the open sea and weather. The cove is extremely deep, and is reported to have a minimum depth of six feet at the entrance. Tidal range appears to be very small, perhaps one to two feet.
+
+When I arrived at Blue Hole, which is about 2-1/2 hours by road from Kingston, Robin Moore was not available; I went into Port Antonio and secured a room at the Bonnie Vue Hotel. I returned to Blue Hole about five o'clock and there met Robin Moore. Mr. Moore owns most of the land surrounding Blue Hole, with the Jamaican government owning the balance. On the beach facing the sea, Moore has built and operates a bar-restaurant which he calls the Teahouse of the Blue Lagoon. This accounts for the confusion between Blue Hole and Blue Lagoon. On the side of the mountain descending to the water, Moore has built and lives in a small studio apartment. He also owns another small house overlooking Blue Hole. This House was occupied temporarily by a girl who was introduced to me as his fiancée, Margot Palmer, and her mother, Rita Palmer. They are supposed to return to their home in Vancouver, B.C., about the end of June.
+
+About five o'clock I introduced myself to Moore as a friend of Antonio de la Carrera, and gave him the note with the recognition symbol. We talked from five o'clock until about 7:30 at which time we had dinner and parted until the next morning at 11:30.
+
+I spent the night at the Bonnie Vue Hotel and noted in passing that a U. S. destroyer escort based at Guanacamo Bay was anchored in the harbor for the weekend, with the sailors being given liberty in Port Antonio. This seems to be a common occurrence, and could perhaps be a source of information about Cuban patrol practices along the south coast.
+
+Saturday morning, 20 June, met Moore again, and continued our discussion of the previous day. During our conversation, he introduced me to Fred Barrett, a native Jamaican (colored), who is in charge of the operation of the bar-restaurant. I left Mr. Moore and Blue Hole about 2:00 o'clock and drove to Kingston, catching the 6:30 Pan American flight back to Miami, via Montego Bay.
+
+Following my two serious conversations with Moore, plus my observations of the man himself, plus my reconnaissance of the site itself. I submit the following items of information as being of significance:
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce

@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_7542.png
+
+Convert to MarkdownSECRET
+
+CENTRAL INTELLIGENCE AGENCY
+WASHINGTON 25, D. C.
+
+DEC 2 1949
+
+<table><tr><td>MICROFILMED</td></tr><tr><td>FEB 3 1966</td></tr><tr><td>DOC. MICRO. BER.</td></tr></table>
+
+ATTENTION: SIR. Rose H. Ingorsoll
+Subject: Harold Robert Isacksen
+
+1. This is in reply to Mr. Jack B. Neal's request for information concerning Harold Robert ISAACS, made by telephone on 23 November 1949.
+2. According to information obtained from a source considered reliable, Harold Robert ISAACS was born in New York City on 13 September 1910. He arrived in Shanghai fromirlaia in December 1930 and was in possession of American passport 177026. IsACS was first employed in Shanghai by the Shanghai Evening Post & Times, an English language daily published in Shanghai. After a few weeks, he became associated with the Chinese Press, another English-language daily published in Shanghai, and was with this paper until May 1931. In June of the same year ISACS made a trip up the Yangtze River with Nicil Frank GLASS, a British subject and member of the British Communist Party, suspected of being an agent for the Third International in China.
+
+3. On 15 June 1931, Edmond NOULENS, with aliases, was arrested by the Shanghai Municipal Police on charges of espionage in behalf of the Third International. ISAACS because the Shanghai secretary of the Comité international pour la défense de Paul et Gertrude Engage (COMITE) formed to aid the NOULENSS in their defense against charges of espionage preferred by the Chinese government. Our files reflect that ISAACS was in correspondence with IIII H. MILLERBERG, the president of the Committee with headquarters in Berlin. MILLERBERG was an active agent in Germany for the Third International. ISAACS is also known to have been in contact with Agnes SMEDLEY in Shanghai at this time.
+
+(SIR'S) HAROLD R. ISAACS
+
+4. On 29 August 1932,ISAACS gave notice to the American Consulate General in Shanghai of his intention marriage to (née) Violent ORRIN, an American citizen born 10 June 1910 in New York City. ORRIN arrived in Shanghai on 26 August 1932 from Vancouver, Canada, aboard the C.S.S. "Empress of Asia", and was in session of American passport 382046 issued in New York on 14 July 1931. The modeling was held on 14 October 1932 at the American Consulate General in Shanghai. (SIR'S) HAROLD R. ISAACS may believe to be correct. 201-18446
+
+SECRET
+
+JUN 18 1966
+
+<table><tbody><tr><td>JOHNNY KILLINGS</td></tr><tr><td>JANET E. MORGAN</td></tr></tbody></table>

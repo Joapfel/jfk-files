@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_7999.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>SECRET</td>
+   </tr>
+  </table>
+
+FIELD INFORMATION REPORT
+
+**COUNTRY:** Cuba
+**REPORT NO.:** HHH-1477.
+**SUBJECT:** Views of Rafael GARCIA Bárcena on Cuban Political Situation
+**DATE OF INFO:** 6 May 1957
+**DATE ACQUIRED:** 6 May 1957
+**PLACE ACQUIRED:** Habana
+**DATE OF REPORT:** 6 May 1957
+
+SOURCE, SOURCE EVALUATION, APPRAISAL OF CONTENT:
+
+Source: Qualified American Observer (A), from an Opposition Political Leader (P). Appraisal of Contents: 3
+
+1. Rafael GARCIA Bárcena said that recently he had been in conference with Robert GRANDONTE, leader of one of the three factions of the Partido del Pueblo Cubano (Ortodoxo) and that he had been asked to try to bring together the three factions of the Ortodoxo Party, the groups of AGRANITE, Eilko OCHDA, and Carlos PARQUEZ Sterling.
+
+2. GARCIA Bárbara would like to maneuver himself into the position of being the Ortodoxo candidate for President of Cuba in the 1958 elections. He said that it is too soon to attempt a reconciliation in the Party and that his own tactic is to maintain contact with all the opposition political leaders in the hope that at a propitious time he will be the one person about whom no faction would have any strong objections. Subject said there was no first-class political party in Cuba but that the Ortodoxos were the least objectionable and the name of the party had not been tarnished as was true of the Auténticos, nor was it a party of petty politicians seeking power. Of the three factions in the Ortodoxos, OCHDA controls the party political machinery, AGRANITE controls the exorbitant and revolutionary group in which youth and students are prominent, and PARQUEZ Sterling leads only a small segment of the party. He said that the "Ortodoxo Youth" will not present a difficult problem within the party once they can be convinced that the way to power is not through violence but through participation in the 1958 elections. The Youth are strong enough to veto a presidential candidate but probably will not take a leading part in selecting one. He did not feel that MARILYN MCKINNON or Francisco CAJONE had a great deal of influence among the Youth at present and said that María DIVALLA was the most respected of the Youth leaders. This group eschews violent revolutionary action.
+
+3. GARCIA Bárbara pictures herself as the person who can influence the Ortodoxo Youth to abandon revolutionary methods, and toward this end he is writing a series of articles for such widely-read magazines as El Nacional, in which he points out to the Youth that times have changed since he (GARCIA Bárcena) led the Youth in the assault on Camp Columbia. He said that his complete reversal of policy is going to confuse Cuban youth, but he feels it is the only way to bring unity to the party and prepare for the elections of 1958. He fears that May will be a month of increased violence in Habana; but, once the revolutionaries realise that they have
+
+SECRET
+
+FORM NO. 51-58 PREVIOUS EDITIONS MAY BE USED.
+
+COPY 9

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_4521.png
+
+Convert to Markdown**SECRET /SENSITIVE**
+
+Director, Domestic Contact Service
+
+Attn.: Operational Support Staff -2-
+
+MC-383-56
+28 Dec 66
+
+leave Cuba because of the fact that her family is there and that she would not leave unless she could also get her family out. He believes that, despite the risk involved, she would be willing to act as an agent in place.
+
+9. My relations with Mr. Bartos have been very good, and I am inclined to believe what he says. However, this whole matter, of course, would have to be evaluated by the Clandestine Services.
+
+9. There is one other matter I could like to mention in connection with Mr. Bartos: and that is that he served for two and a half months with a group of Cuban filters in the Congo, as he holds a pilot's license. He did not tell me and I did not ask who the sponsors of this group were or what their duties were. He did, however, mention a Colonel Weber and a Mr. Saunders. I strongly suspect, of course, that this was an agency operation and, if so, the Clandestine Services will already have a good deal of information about Mr. Bartos.
+
+10. I pass this on for whatever it is worth and, if there is any further information which I can provide, I shall be glad to do so.
+
+Lloyd A. Ray
+
+SECRET /SENSITIVE
+
+14-00000

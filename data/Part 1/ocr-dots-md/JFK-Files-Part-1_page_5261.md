@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_5261.png
+
+Convert to MarkdownHonors & Awards :
+
+Knight of the National Order " Honor & Merit "
+
+Officer of the Labor Order
+
+Commander of the Civil Merit Order
+
+Honorary Citizen of the City of New York - Honorary Citizen
+
+Of the City of Long Beach, L.I.,N.Y.
+
+Mr. Charles married his wife, Sophie, in 1952; they have one adopted son.
+
+June 21, 1962
+
+14-0000

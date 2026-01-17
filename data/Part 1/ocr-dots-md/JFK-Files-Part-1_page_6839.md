@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_6839.png
+
+Convert to MarkdownCONTINUED CONTROL
+
+- 9 -
+
+b) Subject's check payable to Larry Edmonds Bookshop is enclosed in an envelope addressed to the bookshop and postmarked 3 October 1959. Also enclosed is the letter listed above, on which WILZ has added his comments, noting that AMANS has died and that Subject will await delivery of the books ordered.
+
+c) Letter dated 28 October 1959, addressed to Subject's wife, is signed "Hilton." Apparently in answer to a request made by Subject's wife, the letter lists works by CHEKOVY which the book shop has in stock.
+
+13. Correspondence with Seven Seas Books, Olinkastrasse 13 - 15, Berlin, Germany. (Attachment 13)
+
+a) A letter dated 22 September 1959 and signed by Kay PAXN tells Subject that Seven Seas Publishers is sending him thirty copies of The Cross and the Arrow in care of Larry Edmonds Bookshop in Hollywood.
+
+b) Letter from Seven Seas Books, dated 5 October 1959, is signed "Gertrude" (Gertrude GORDON, chief editor). Gertrude has been and continues to be in poor health. She writes about what appears to be sales figures for a particular publication, perhaps one of Subject's books.
+
+14. Correspondence with Dillie, Czechoslovak Theatrical and Literary Agency, Prague, Czech Republic. (Attachment 14)
+
+a) Letter from Dillie, dated 21 September 1959, is signed by Dr. Vojtěch SITKA. Subject is requested to send another copy of his play Black Pit for the Slovak translation.
+
+b) Letter from Dillie, dated 29 September 1959, is signed by "Darnan." The writer acknowledges receipt of signed copies of an agreement for the Czech edition of The Cross and the Arrow. The last paragraph of the letter concerns stories by one Mr. FORRTS, Penitenciaria 469-8, Guadalajara, Jalisco, which Dillie has forwarded to publishers for consideration.
+
+c) A letter from Dillie dated 9 October 1959 informs Subject that an advance on the Czech edition of The Journey of Leon Reference, to be published by the State Publishing House of Political Literature of Prague, has been transferred to Subject's account with the Banco Nacional de Mexico.
+
+SECRET/CONFIRM
+CONTINUED CONTROL

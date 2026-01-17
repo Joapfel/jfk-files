@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_6147.png
+
+Convert to MarkdownJUL 16 1975
+
+June 23, 1975
+
+# Department of Commerce
+Washington, D.C. 20505
+
+Dear Mr. Young,
+
+The Investigation Service Committee
+at Washington, D.C. 20505
+
+Your Size:
+
+This is in response to your letter of May 30 denying release of three documents in your case about my foreign strain.
+
+I hereby appeal this decision. I would like to know the basis for this decision. I wish to advise you that I am making the advice of counsel.
+
+C. Congressman Bob Harrett

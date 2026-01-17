@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_7164.png
+
+Convert to Markdown3 March 1966
+
+Contact Report: L-852-5
+3 March 1700, Subject's office
+
+1. Subj reported that on Monday, 22 Feb, he was visited by Valentin Lominov, his new case officer, who dropped in without prior notification to arrange for accommodations for Nikolai Kulebnikov and for Irigova and daughter for the week. Lominov wanted to talk, but Subj said he had no time to make an appointment and immediately arranged a luncheon meet for 25 Feb at 1400 at the La Corda Restaurant on Molfver Street. Comments: Subj stated that he called in to the Station on 23 Feb after the luncheon. Had the C.O. been apprised of this call, the Station probably would have received the advance notice to Kulebnikov and his Soviet flight companions.
+
+2. Lominov came to Subj's office on 23 Feb and together they went to the La Corda Restaurant.
+
+Lominov repeated Alexander Prishodko's interest in Subj's health and offered to send the report on Subj's condition from the Temple Clinic to Moscow. Subj asked Lominov why he wanted the report, and Lominov answered "we want to take care of your health." Comments: Subj will not comply.
+
+Lominov startled Subj by asking what he knew about the super-secret Jewish organization "Pluga". Comment: Subj explained to the C.O., that "Pluga" was formed all over Latin America after the arrest of Richter had caused Nazi-like anti-Semitic organizations to spring into being in the Latin countries. Jews formed "Pluga" (which is a Hebrew word meaning some kind of military unit) in order to receive military training. Subj knows about the organization through his contracts in the Israeli Embassy in Mexico although he is not a member. No cause the Mexican contingent at about 25 to 30. The Israeli Govt sent an organizer and instructor to Mexico. Members have gone from Mexico to Israel for training (Subj knows because he handled their travel arrangements).
+
+Lominov stated that he would like to know about the members of "Pluga", because "it would be interesting if this organization could work for them (the Soviets)".
+Lominov was pleased with Subj's remark that the organization was militantly anti-Nazi. Subj indicated without too much enthusiasm that he would do what he could.
+Lominov put another request to Subj in a rather decultory manner, asking Subj's cooperation if Subj "wants to, can or will" comply. Lominov remarked:
+
+COPIES MADE P-117102
+
+P-117102

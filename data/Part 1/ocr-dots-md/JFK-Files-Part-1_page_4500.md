@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_4500.png
+
+Convert to MarkdownSECRET
+
+CENTRAL INTELLIGENCE AGENCY
+
+# Intelligence Information Cable
+
+COUNTRY
+DATE OF
+INFO.
+
+TDCS
+DISTR.
+
+SUBJECT
+
+PLACE &
+DATE ACQ.
+
+REF
+IN IN 89148
+
+SOURC:
+AND
+APPRAISAL:
+
+FIELD REPORT NO.
+
+1. ON 10 JUNE 1965, CRISTINA ALEJOS, DAUGHTER OF ROBERTO ALEJOS ARZU, A GUATEMALAN MILLIONAIRE LIVING IN EXILE IN MIAMI BEACH, FLORIDA, SAID THAT HER FATHER HAD CANCELLED HIS PLANS TO VACATION IN EUROPE THIS SUMMER. SHE SAID THAT HE CANNOT OBTAIN THE FUNDS THAT HE HAS IN GUATEMALA AND THAT HE DOES NOT WANT TO USE THE MONEY HE HAS IN THE UNITED STATES FOR THE TRIP.
+
+(FIELD COMMENT: ACCORDING TO TDCSDB-315/01726-65, DATED 20 MAY 1965, THE SAME SOURCE REPORTED THAT ALEJOS HAD PLANNED TO TAKE HIS WIFE AND DAUGHTER ON A EUROPEAN VACATION IN EARLY JUNE AND THAT HIS ITINERARY INCLUDED ITALY, FRANCE, AND SWITZERLAND).
+
+This material contains information affecting the National Defense of the United States within the meaning of the Classification Laws, Title 18, U.S.C., Secs. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
+
+SECRET
+
+STATE/FROM DIA ARMY/ACGI NAVY AIR AC SCDU MSA NIC AIB USA OCI OH! GCI ONI GO GO
+
+<table><tr><td>U</td></tr><tr><td>S</td><td>M</td><td>H</td><td>A</td><td>R</td><td>T</td><td>E</td><td>N</td><td>O</td><td>D</td><td>C</td><td>A</td><td>L</td><td>O</td><td>K</td><td>A</td><td>T</td><td>E</td></tr><tr><td colspan="19">NOD</td></tr></table>

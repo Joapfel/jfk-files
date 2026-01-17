@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_8550.png
+
+Convert to Markdownother to appear so his (S) own fear from the mere possibility that something
+might go wrong and he would have nowhere to turn to. F told him that
+going to TANG ONLY in connection with the matter of publishing the article
+could do him no harm; denying having contact with LOG recently is not
+sufficient; TANG could bring up the question for an extensive purpose
+of wanting to send a message to S Sov friend and the fact of not seeing
+each other during the past 2 - 3 weeks means nothing beside-nothing, be-
+cause S is supposed to be able to reach a friend; S must be ready to
+meet any question by TANG not by denying previous statements but by
+emphasizing that he was thinking carefully about what he told TANG and
+he reached the conclusion that that would get away with it in a situation
+he was never before, and, consequently, knows nothing about possible con-
+sequences; therefore, he decided to keep out a field he is ignorant in.
+
+5. As far as the other requirements concerning the chinese are concerned, I told S to do nothing for the time being and, especially, to keep away from trying to ascertain the name of Chinese working in the Chinese Rm. S should claim that he was spending his time on trying to get the name of the next Presidential candidate before the President sends the name of the candidate to PRI for approval. Further, S can always be in no more hurry than LOG was to get him an answer on the platinum coin.
+
+6. In spite of his reactions concerning the business part of the
+meeting, S was flat-out with LOB invitation to spend a day with him and
+his family in Cuautla "to celebrate his birthday together". I asked F
+would it be appropriate if he and Josephine took a present to Mrs. LOG,
+as for example, a silver brush or something similar. I told him that
+the maximum he could take for Mrs. LOG and the toy was a box of chocolate
+candies in the value of L30.- and I'd not imply that he would pay for
+it.
+
+7. S read through the remainder of the FAQ and it was true that he
+was able to give very few answers if he did not have an opportunity to
+observe LOG in the circle of his family and in conditions less formal then
+they usually meet. It may be noted that I read the questionnaire 2 - 3
+times to get a feel for how he regarded me. So I requested: that
+I bring his back the portion which is already filled out because he was not

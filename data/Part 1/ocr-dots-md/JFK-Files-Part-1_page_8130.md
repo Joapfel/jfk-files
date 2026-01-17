@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_8130.png
+
+Convert to Markdown14-0000
+
+104-10174-10043
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+Dear Mr. Tichborn:
+
+The following is set forth as clarification of your present mission, and the procedures which will be followed in the conduct of it. Please indicate your agreement by signing below.
+
+A. Operational
+
+1. You will be briefed generally on some aspects of the Cuban situation while in Washington on this date.
+
+2. The major briefing to be given you concerning the local political situation, security precautions, and more detailed instructions on your present mission will be undertaken upon your arrival in Havana.
+
+3. Upon arrival in Havana a tourist card will be issued by the Cuban Immigration authorities. You will give your true name and occupation in the United States and state that you are in that area as a "tourist".
+
+4. Your initial contact in Havana will be with IDEN A (name and telephone number attached hereto). When making this call, you will identify yourself as Fred Morse.
+
+5. IDEN A will then give you the briefing mentioned in paragraph 2 above.
+
+6. IDEN A will also arrange to put you in contact with about two individuals for the purpose of starting you on your assignment. It is anticipated that other leads and contacts will result from these introductions, both in Havana and the interior.
+
+7. When talking to any local contacts you make while in Cuba, your cover story will be the following: that you are talking to them on the behalf of some (unnamed) American businessmen and investors in order to assess discreetly their position and legal resources as concerns the revolutionary laws and to determine the possibility for future financial development and investments.

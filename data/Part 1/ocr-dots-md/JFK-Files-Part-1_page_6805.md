@@ -1,0 +1,62 @@
+# JFK-Files-Part-1_page_6805.png
+
+Convert to Markdown14-0000
+
+675
+
+CLASSIFIED MESSAGE
+
+ORIG: BIRCH D. O'NEAL
+UNIT: CI/SI
+EXT : 2356
+DATE: 30 DECEMBER 1960
+
+<table><tr><td></td><th colspan="3" style="text-align:center;">ROUTING</th></tr><tr><td>1</td><td>4</td><td></td><td></td></tr><tr><td>2</td><td>5</td><td></td><td></td></tr><tr><td>3</td><td>6</td><td></td><td></td></tr></table>
+
+TO : MEXICO
+
+FROM: DIRECTOR
+
+CONF: CI/SI
+
+INFO: CI, CI/OPS, WH 4, S/C 2
+
+RE Filing (check one):
+No CS Record Value. Destroy.
+
+RI file this copy as indicated
+Branch copy filed as indicated
+
+RE Indexing (Check one):
+Marked ☐ None required ☑
+
+Signature:
+
+CITE DR 1899N
+
+| TO | PRIORITY | MEXI | INFO | CITE DR |
+|---|---|---|---|---|
+|  |  |  |  |  |
+
+1. ODENVY ADVISES DAVID HALPERIN SON OF MAURICE HAS SCHEDULED ARRIVE HARRY (Dec.-12/29) WIL SURVEILLANCE IN MEXICO CITY 29 DECEMBER BY CAR. IS ENROUTE EUROPE WHERE WILL MEET FATHER.
+ODENVY ENDEAVORING DEVELOP MORE ON INTINERARY AND HAS NOT AS YET MADE SPECIFIC REQUEST FOR COVERAGE.
+
+2. DESIRE YOU COORDINATE WITH LOCAL ODENVY REP AND OBTAIN ANY COVERAGE POSSIBLE CONSISTENT WITH ODENVY INTEREST.
+
+END OF MESSAGE
+
+CHIEF, WH 3/MEX
+
+COORDINATING OFFICERS
+
+SECRET
+
+ACTING CHIEF, CI STAFF
+
+AUTHENTICATING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.
+
+FORM 1389a_ (33)

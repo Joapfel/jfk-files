@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_8591.png
+
+Convert to MarkdownSECRET
+
+-4-
+
+(AMIDRIFF sometimes passed by this bar and would look inside, although she never went in.)
+
+KUPLYAKOV - Possible PCM Contract - AMIDRIFF stated that she was told by Daniel Montiel (Daniel MÉNEZ Montiel, 201-258951), the Soviet's chauffeur, that his brother, who is a Central Committee member of the PCM and who worked on the PCM publication "La Voz de México," was in contact with KUPIYAKOV. In addition, AMIDRIFF stated that she believed that Armando VERDUGO (Iden with Armando MARTÍNEZ Verdugo, 201-851726) had an uncle, also named Armando VERDUGO, who is First Secretary of the PCM and who is in contact with KUPIYAKOV. At least this was strongly inferred by Montiel, according to AMIDRIFF. (Editor note: Arnoldo MARTINEZ Verdugo, 201-054254, who is brother of Armando, is First Secretary of PCM).
+
+AMIDRIFF stated that KUPIYAKOV always seemed to be very interested in and knowledgeable of what appeared in "La Voz de México" and in the PCM publication "La Época." She stated that, in general, KUPIYAKOV paid so much attention to local politics and seemed to be so well informed on PCM matters that she felt certain he had something to do with the PCM.
+
+AMIDRIFF stated that KUPIYAKOV'S wife was a good friend of Salvador GONZÁLEZ Marin, head of the Fondo de Cultura Popular. GONZALEZ' wife works in the Museum of Anthropology. GONZALEZ sold a lot of Soviet books, according to AMIDRIFF, and for that reason was in contact with KUPIYAKOV, but she commented that GONZALEZ may also have been utilized by KUPIYAKOV in some other operational way. Most of KUPIYAKOV'S contacts seem to be journalists. (These were the people AMIDRIFF saw talking to him at receptions, etc.).
+
+SECRET

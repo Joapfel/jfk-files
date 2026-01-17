@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_5114.png
+
+Convert to MarkdownH/,. Attachment to
+
+TM 180212, 16 Dec 76
+
+Informe. Noviembre 22 de 1976
+
+Respecto a sus instrucciones de indagar sobre las actividades de
+Orlando Boch durante sus visitas a Guatemala, paso a informarle lo si-
+guiente.
+
+El Embajador de Costa Rica en Honduras, Edwa Góngora, me dijo
+(21 de noviembre) que a principios de este año recibió de su Gobierno
+instrucciones de averiguar cuales eran sus contactos en Guatemala. Dijo
+que el propio ministro de relaciones exteriores de Costa Rica, Gonzalo
+Faccio, le había mostrado un documento procedente de la CIA (estas fu-
+ron sus palabras) en el cual se demostraba que Boch había tenido rela-
+ciones en Guatemala con el hijo del ex-presidente Arana, Jorge Roberto
+Areña España (Tito).
+
+Agregó Góngora que era muy probable que el contacto entre Boch y Tito Arana se hubiera hecho por medio de los cubanos Gerardo Sampedro y Moreira, con quienes el segundo tiene negocios.
+
+Recurso que, efectivamente, cuando Góngora me habló de esta asun-
+to, a principios de este año (más o menos en mayo) me mencionó la circuna-
+tancia de que Faccio fúe a Guatemala para comunicar al canciller guatemal-
+taco, Adolfo Molina Orantea, los temores del Gobierno costarricense por
+las actividades de Boch. Góngora recordó en nuestra última conversación
+que tal visita había coincidido con el estantado de que fúe víctima Tito
+Arana y que, inclusive, se mencionó que una cosa y la otra podrían ester
+relaciones: sus contactos con Boch y el estantado.
+
+Comentó Góngora también que Tito Arana había frecuentemente viajes a
+Miami, donde se posible -dijo- que hubiera hecho amistad con otros cubanos
+anticastristas residentes allí.
+
+Agregó Góngora que cuando se la comunicó de parte de su gobierno
+este asunto, requerda haber escuchado que el otro hijo del expresidente
+Arana (Carlitos) también estaban relacionado con las actividades subversivas
+contra Odsuez. Comentó que Carlitos es avador y pudo haber ofrecido ayuda
+aotaa, mediante sus amigos que tiene en las FAQ.
+
+Dise Góngore que Faccio le mencionó también la posibilidad de que
+Boch hubiera tenido conexión con el vicepresidente Guatemalteco, Mario Ban-
+deval Alarcón, pero que esa relación de frusbee sobre ella. Me dijo ahora que
+el Presidente Laugerud le ofreció a Faccio poner preso a esas actividades y

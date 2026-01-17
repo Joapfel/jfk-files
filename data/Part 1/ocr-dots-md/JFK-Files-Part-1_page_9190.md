@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_9190.png
+
+Convert to MarkdownPublication of a book of photos with text exposing evils of Stalin and his regime throughout his career.
+
+a. Great progress has been made in collecting the books, by E. B. H. HEADLEY and a collaborator. They are planning on a book of 175-195 pages, with some 600 photos.
+
+b. The publisher is proceeding for a September 10 press date, and has lined up a Chicago press.
+
+U. S. Slim
+
+SECRET
+
+14-00000

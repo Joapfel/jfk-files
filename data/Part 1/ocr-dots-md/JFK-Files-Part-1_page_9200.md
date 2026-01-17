@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_9200.png
+
+Convert to MarkdownSECRET
+
+30 March 1951
+
+SIMS phoned SHUB, 1200
+
+To ask him to see Jack Morgan (LA) (on an LA job). Shub said he will be in town both Tuesday and Wed., and that Morgan can always reach him in the mornings, anytime.
+
+In the evenings he is working at his collaborator's apartment, and prefers not to be phoned there.
+
+I told him I would phone him on the 16th, so that we can get together. He wants me to see the lay-out, which should be pretty complete at that time, "minus the final text". They were working on it till a.m. last night; evenings are the only time his collaborator can work, except Mondays which he has off; they work on it all day Sundays and Mondays.
+
+They have locked over 6,000 photos.
+
+I told him Dawson would be sending him a couple of dozen photos.
+
+SECRET
+
+19

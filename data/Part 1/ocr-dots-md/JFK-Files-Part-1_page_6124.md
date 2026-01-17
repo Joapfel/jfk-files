@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_6124.png
+
+Convert to MarkdownI am writing this letter on behalf of myself and Dr. Carlton Goodlett and Reporter Publications.
+
+Pursuant to the Freedom of Information Act, 5 U.S.C. §552, as amended by Pub. L. 93-502, 88 Stat. 1561, we wish to obtain access to and the opportunity to copy the following documents:
+
+1. All directives, memoranda, letters, orders, reports, investigations, studies or other records, including written memoranda of telephone conversations, which relate to the formation, existence, activities, operations, membership, size or presence of any of the following organizations at Camp Pendleton Marine Base, California:
+   a. Ku Klux Klan;
+   b. California Ku Klux Klan;
+   c. United Klans;
+   d. Knights of the Ku Klux Klan;
+   e. United Klans of America;
+   f. Southern Ku Klux Klan;
+   g. White Knights of the Ku Klux Klan;
+   h. White Brotherhood;
+   i. United Klans of America Knights of the Ku Klux Klan;
+   j. Minutemen;
+   k. Secret Army Organization;
+   l. Christian Crusade Church;
+   m. American Rangers;
+   n. Invisible Empire of the Ku Klux Klan;
+   o. Christian Defense League;
+   p. The National States Rights Party;
+   q. California Anti-Communist League;
+   r. Christian National Alliance;
+   s. American Volunteers Group;
+   t. Provisional National Government of the U.S.A.;
+   u. American Nazi Party;
+   v. National Socialist White Peoples Party;
+   w. Legion of Justice;
+   x. Operation Unicorn-And other similar groups.
+
+2. All directives, memoranda, letters, orders, reports, investigations, studies, or other records, including written memoranda of telephone conversations, which relate to the foundation, existence, activities, operations, size, membership or presence of any of the organizations named in No. 1 above in the United States Marine Corp.
+
+3. All directives, letters, memoranda, orders, reports, investigations or other records which describe, analyze or otherwise relate to racism at Camp Pendleton Marine Base.

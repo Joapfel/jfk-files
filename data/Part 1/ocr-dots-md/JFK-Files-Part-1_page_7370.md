@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_7370.png
+
+Convert to Markdown3. Mr. Rocca was thoroughly candid and cooperative during the course of this interview. He was unable to suggest alternate means of attempting to determine if any official Agency sponsorship of Mr. Hunt did in fact exist. Mr. Rocca did venture the opinion that he felt that in all probability an official acquiescence on the part of senior officials might have been involved rather than an official sponsorship. It was agreed by all in this discussion that the nature of any informal support given to Mr. Hunt would be far more difficult to define in the absence of any formalized agreements.
+
+Lawrence J. Howe.

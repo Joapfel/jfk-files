@@ -1,0 +1,63 @@
+# JFK-Files-Part-1_page_8834.png
+
+Convert to Markdown<table>
+   <tr>
+    <td colspan="4">CLASSIFIED MESSAGE</td>
+   </tr>
+   <tr>
+    <td>SECRET</td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td rowspan="5">
+     [Illegible text]
+    </td>
+    <td colspan="3"></td>
+   </tr>
+   <tr>
+    <td colspan="3"></td>
+   </tr>
+   <tr>
+    <td colspan="3"></td>
+   </tr>
+   <tr>
+    <td colspan="3"></td>
+   </tr>
+   <tr>
+    <td colspan="3"></td>
+   </tr>
+   <tr>
+    <td colspan="2"><hr></td>
+    <td colspan="2"></td>
+   </tr>
+   <tr>
+    <td>[Illegible text]</td>
+    <td>[Illegible text]</td>
+    <td>[Illegible text]</td>
+    <td>[Illegible text]</td>
+   </tr>
+  </table>
+
+15 Nov 65
+
+95063
+
+DER INFO LAPA CITE MEXI 5309 (EASBY ACTING)
+
+KICAPER LIREAM
+
+1. AFTER EXTENSIVE CONSULTATION WITH TICHBORN, STATION UNABLE TO DEVELOP ACCEPTABLE PROPOSAL FOR HIS COVER IN LA PAZ. HAVE EXAMINED AND DISCARDED THREE MAIN POSSIBILITIES:
+
+AT LAWYER WITH MINING CLIENTS.
+
+AUTHWRITER WITH FOUNDATION GRANT.
+
+C. PRODUCER OF Fossiels MOVIE.
+
+2. IN REGARD TO (IA) TICHBORN BELIEVES HE CERTAIN TO RUN INTO HENRY HILL, WHO LEGITIMATELY INTERESTED IN POLIVIAN AUTHORITY MINING, HAS CONSULTED IN FAST WITH TICHBORN. AND WOULD RECOGNIZE FISKY NATURE HIS PRESENCE LA PAZ. TICHBORN BELIEVES HILL WOULD REACT BADLY, SPREAD WORD THEIR MUTUAL CIRCLE.
+
+3. PROPOSAL IS SMELLS TOO STRONGLY OF OPERATION CAMELOT, AND WOULD OPEN TICHBORN TO ATTACK EVEN FROM THOSE TO WHOM THIS COVER MIGHT APPEAR PLAUSIBLE.
+
+4. PROPOSAL IC WOULD IMMEDIATELY DRAW ATTENTION FROM ALFARO MUTIS, CLOSE ACQUAINTANCE OF TICHBORN, AND LATIN AMERICAN REP OF.

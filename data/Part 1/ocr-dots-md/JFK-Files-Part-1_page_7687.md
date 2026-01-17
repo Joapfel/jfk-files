@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_7687.png
+
+Convert to MarkdownSubject was first reported in contact with AVILA in April 1966 in connection with travel booking. Subject made (1). On 2 Jun 1966 Subject flirted with her, and said he would invite her to a volleyball game (1). During the rest of 1966 Subject invited her out a few times, told her he was married but that his wife was not in Mexico, asked her if she knew anyone in the U.S. Embassy. In April 1967 Subject reluctantly agreed to issue a visa to Dr. KUTTLER (q. v.), whose travel AVILA was arranging, and asked as a return favor that she introduce him to some of her friends. (26). In June 1967 Subject reportedly stopped AVILA coming out of work to ask her about the Israeli War (6).
+
+8). Cella *BAYARDI Torres, no traces.*
+
+On 7 Feb 1966 an unidentified man visited Subject at the Soviet Embassy. This man came to the Embassy in a car driven by a woman, who remained in the car, with license plates registered to Cella BAYARDI Torres, Arquitector 46, Colonia Escandon, telephone 15-34-02. The phone is listed to Francisca TORRES Vda de BAYARDI. (7).
+
+9). Lella S. BELAVAL, visa officer atU. S. Embassy.
+
+In June 1967 BELAVAL reported that she had been in contact with Subject over visa matters, that Subject had asked her what she did in the evenings, and had whether she spent her off hours with other U. S. Embassy employees./said that he was unmarried. In June 1967 he offered to take her to the Ukrainian Ballet when it came to Mexico. She has refused his invitations. (27).
+
+former
+10). Carlos BLANCO Solano (P-9328), Federal Security (DFS) agent, now with Judicial Police. In 1960-61 BLANCO invited several U. S. Embassy girls out and offered his services to the U.S. Embassy. BLANCO works for Carlos CASAMADRID Miranda, who is suspected of having a clandestine relationship with KGB officer Pavel Antonovich YATSKOV.

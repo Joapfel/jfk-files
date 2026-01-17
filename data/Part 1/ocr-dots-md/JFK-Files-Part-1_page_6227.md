@@ -1,0 +1,63 @@
+# JFK-Files-Part-1_page_6227.png
+
+Convert to Markdown<table><thead><tr><th>CLASSIFIED MESSAGE</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td colspan="2">84 SECRET</td></tr><tr><td colspan="2">PERFORM/UNIT NOTIFIED</td></tr><tr><td colspan="2">16-120-26</td></tr><tr><td>ADVANCE COPY</td><td>UNIT TIME BY</td></tr><tr><td>☐ (00:00)</td><td>☐ FILMED</td><td>☐</td><td></td></tr><tr><td colspan="3">ACTION</td><td>WHIC</td></tr><tr><td colspan="4">INFO<br/>VR. FILE W-17, CF/07, PGZ</td></tr></tbody></table>
+
+**SECRET** 222047Z
+
+**DIR** INFO SAGO CITE WAVE 2126
+
+**TYPE** C ANSPELL FUBIAS
+
+**REF** A. DIR 12292
+B. SAGO 5581
+
+22 MAY 65 M 73874
+
+1. WAVE HAS NO PLANS USE FUBIAS-5 (2J1-288237) LOCALLY.
+
+AFTER HIS ARRIVAL WAVE AREA, STATION WILL DISCUSS HIS QUALIFICATIONS WITH AMHINT-2. HOWEVER, HE WILL BE PLACED AMSPELL PAYROLL ONLY IF AMSPELL NEEDS REPLACEMENT AS STATION DOES NOT INTEND INCREASE PAYROLL.
+
+2. DEFER HQS RE USE ELSEWHERE LATIN AMERICA. REF B INDICATES FUBIAS-5 HAS STRONG SENSE LOYALTY TO AMSPELL. TO AVOID PROBLEMS DIVIDED LOYALTY, SUGGEST RECRUITMENT FOR LATIN AMERICAN ASSIGNMENT SHOULD BE SINGLETON BASIS WITH NO COVER OR OTHER RELATIONSHIP WITH AMSPELL.
+
+SECRET ** CABLE OVER A YEAR OLD.
+
+**R** SECRET
+**I**
+**C** CFN
+**O**
+**P**
+**Y**
+
+**R** I
+**C** O
+**P** Y
+
+**R**
+**I**
+**C**
+**O**
+**P**
+**Y**
+
+**R**
+**I**
+**C**
+**O**
+**P**
+**Y**
+
+**R**
+**I**
+**C**
+**O**
+**P**
+**Y**
+
+**R**
+**I**
+**C**
+**O**
+**P**
+**Y**
+
+(35)

@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_6401.png
+
+Convert to MarkdownCONFIDENTIAL
+
+RESTRICTED
+
+UNCLASSIFIED
+
+<table><tr><td colspan="3">EVALUATION SHEET</td></tr><tr><td>OFFICE OF ORIGIN<br/>(CIA)</td><td>REPORT NO.<br/>008 47445</td><td>DATE OF DISTRIBUTION<br/>14 Mar.51</td></tr><tr><td colspan="2"><strong>VALUE</strong></td><td colspan="2"><strong>EVALUATION OF CONTENT</strong></td></tr><tr><td>☐ A CONSIDERABLE VALUE<br/>☐ B OF VALUE<br/>☐ C SLIGHT VALUE ONLY<br/>☐ D NO VALUE<br/>☐ E ALREADY SUFFICIENTLY KNOWN<br/>☐ F NO DATA PERMITTING ASSESSMENT</td><td colspan="2">☐ 1 CONFIRMED BY OTHER SOURCES<br/>☐ 2 PROBABLY TRUE<br/>☐ 3 POSSIBLY TRUE<br/>☐ 4 DOUBTFUL<br/>☐ 5 PROBABLY FALSE<br/>☐ 6 CANNOT BE JUDGED</td><td></td></tr><tr><td colspan="4">NOTE: IF FURTHER INFORMATION IS DESIRED ON THE CONTENTS OF THIS REPORT, OR IF SUBJECTS FOR FURTHER INVESTIGATION ARE SUGGESTED BY THIS REPORT, PLEASE INDICATE, FOR OUR GUIDANCE YOU ARE REQUESTED TO MAKE YOUR COMMENTS AS COMPLETE AND DEFINITE AS POSSIBLE.</td></tr><tr><td colspan="4">COMMENTS: (PLEASE TYPE OR PRINT)<br/><br/>B.R. has no previous record of subject Report is of interest here from a biographic standpoint.</td></tr><tr><td>SIGNATURE<br/>P. Campbell</td><td>DIVISION<br/>APCD</td><td>DATE<br/>21 Mar.51</td><td>DEPARTMENTS OR AGENCIES WILL RETURN THIS SHEET TO THEIR PROPER CIA LIAISON OFFICER.</td></tr></table>
+
+FORM NO.
+JUL 1950
+
+70-10 UNCLASSIFIED
+
+RESTRICTED
+
+CONFIDENTIAL
+
+SECRET

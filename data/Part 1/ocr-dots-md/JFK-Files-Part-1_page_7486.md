@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_7486.png
+
+Convert to Markdown14-00000
+
+SECRET
+
+CONFIDENTIAL
+
+UNCLASSIFIED
+
+<table><thead><tr><th>UNCLASSIFIED</th><th colspan="3">CONFIDENTIAL</th><th>SECRET</th></tr></thead><tbody><tr><td colspan="5"><strong>ROUTING AND RECORD SHEET</strong></td></tr><tr><td colspan="5">INSTRUCTIONS: Officer designations should be used in the "TO" column. Under each comment a line should be drawn across sheet and each comment numbered to correspond with the number in the "TO" column. Each officer should initial (check mark if sufficient) before further routing. This Routing and Record Sheet should be returned to Registry.</td></tr><tr><td rowspan="2">FROM:<br/>RI/ANALYSIS</td><td colspan="2">TELEPHONE<br/><table><tr><td>NO.</td><td>NPK-A-428K</td></tr><tr><td>DATE</td><td></td></tr></table></td><td rowspan="2"></td><td rowspan="2"></td></tr><tr><td>OFFICERS' INITIALS</td><td>DATE</td></tr><tr><td>TO<br/><table><tr><td>NE</td><td>1609</td><td>7 MAY 1956</td></tr><tr><td>Mel</td><td></td><td>FEB 24</td></tr><tr><td>Ctk</td><td></td><td>Mar 4</td></tr><tr><td>CC</td><td></td><td>April 1</td></tr><tr><td>Lt</td><td></td><td>May 2</td></tr><tr><td></td><td></td><td>Jun 1</td></tr><tr><td></td><td></td><td>Jul 1</td></tr><tr><td></td><td></td><td>Aug 1</td></tr><tr><td></td><td></td><td>Sep 1</td></tr><tr><td></td><td></td><td>Oct 1</td></tr><tr><td></td><td></td><td>Nov 1</td></tr><tr><td></td><td></td><td>Dec 1</td></tr><tr><td></td><td></td><td>Jan 1</td></tr><tr><td></td><td></td><td>Feb 1</td></tr><tr><td></td><td></td><td>Mar 2</td></tr><tr><td></td><td></td><td>Apr 1</td></tr><tr><td></td><td></td><td>May 1</td></tr><tr><td></td><td></td><td>Jun 1</td></tr><tr><td></td><td></td><td>Jul 1</td></tr><tr><td></td><td></td><td>Aug 1</td></tr><tr><td></td><td></td><td>Sep 1</td></tr><tr><td></td><td></td><td>Oct 1</td></tr><tr><td></td><td></td><td>Nov 1</td></tr><tr><td></td><td></td><td>Dec 1</td></tr></table></td><td>COMMENTS</td><td>Cdrus. Efras. Mitres - Parastern<br/>Mefon<br/>See attached list for request from Barbara Under or 24 May 56 w/cw<br/>CARDED BY Hefner</td></tr><tr><td>ROOM NO.<br/><table><tr><td>19.21 RI/FI</td><td>1409 L</td></tr></table></td><td>OFFC'D<br/><table><tr><td>18 MAY 1956</td></tr></table></td><td>RECEIVED</td><td>APR 21 1956</td><td>UNCLASSIFIED (cont)</td></tr><tr><td colspan="3"></td><td>ABSTRACT X INDEX K</td><td>DATE 14 MAY 1956 /</td></tr><tr><td colspan="3"></td><td></td><td></td></tr></tbody></table>
+
+FORM NO. 610 REPLACES FORM D-18 WHICH MAY BE USED

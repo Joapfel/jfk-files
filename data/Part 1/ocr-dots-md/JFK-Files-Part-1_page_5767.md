@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_5767.png
+
+Convert to MarkdownSM-64-72
+
+26 Jan 72
+c. 57.962
+
+with the FCI in the past. Needless to say, Waters maintains a high regard for Robert Coo and felt such questions were an infringement upon Coe's privacy and were completely unwarranted.
+
+J. Della our conversation with Waters be left the room separately fly and went into Robert Coe's office directly across the aisle. Then he returned he explained that he told Coe about our presence and asked him to join us for a few moments. He could not. "Unless directed" otherwise we plan to further action on this matter.
+
+JEROME V. ROSSI
+
+cc. 181/51

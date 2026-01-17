@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_5516.png
+
+Convert to Markdown14-0000
+
+**INFORMATION REPORT**
+**CENTRAL INTELLIGENCE AGENCY**
+
+This material contains information affecting the National Defense of the United States within the meaning of the Espenar v. Lee, Title 18, U.S.C. Secs. 793 and 794, the transmission or relabulation of which in any manner to an unauthorised person is prohibited by law.
+
+S-E-C-R-E-T
+NO FOREIGN DISSEM
+
+COUNTRY Haiti
+SUBJECT Efforts by Haitian Civilians And Military to Gain Power In Haitian Government
+
+REPORT NO. CS-311/05457-67
+DATE DISTR. 10 May 1967
+NO. PAGES 2
+
+REFERENCES
+
+DATE OF April 1967
+INFO.
+PLACE &
+DATE ACQ. 28 April 1967
+
+FIELD REPORT NO.
+
+THIS IS UNEVALUATED INFORMATION SOURCE GRADINGS ARE DEFINITIVE APPRAISAL OF CONTENT IS TENTATIVE
+
+SOURCE: A foreign businessman who has lived in Haiti for a number of years and who is acquainted with high officials of the Haitian Government. He is an untested source. Source obtained this information from a high-level Haitian Government official.
+
+1. Haitians Clemard Joseph Charles and Herve Boyer are contending for power in the Haitian Government, and each has hopes of succeeding President Francois Duvalier. Although they are working together and will join forces in order to get rid of Duvalier, they probably will start fighting between themselves once this objective is obtained.
+
+2. Colonel Jacques Laroche is the military's primary contender for power, and undoubtedly he will be the one to consolidate a military movement against Duvalier. Since the dismissal of high-ranking military officers by Duvalier in November and December 1966, Laroche has enjoyed the greatest power within the Army.
+
+3. If Duvalier is assassinated, it is likely that there will be bloodshed in the streets. In this event, it would be the Army who would step in immediately and control the situation. Despite the fact that the Army is small and weakened from its loss of high-ranking officers, it still would be powerful enough to neutralize any effort by the Haitian militia (VAN) because the VAN is disorganized and would be unable to cope with the confusion which would be caused by an unnatural death of Duvalier. However, if Duvalier dies a natural death there would be less chance of hostilities because the people around Duvalier would have a better chance of taking power.
+
+4. There is little chance that Duvalier will step down from power voluntarily because of his pride. However, in this respect his family, particularly Mrs. Duvalier, has constantly encouraged him to give up the presidency and appoint a successor.
+
+<table><tr><td>STATE</td><td>DIA</td><td>ARMY</td><td>NAVY</td><td>AIR</td><td>NSA</td><td>AID</td><td>OCE</td></tr><tr><td colspan="8">CINCSO #</td></tr><tr><td colspan="8">(Note: Field distribution indicated by "#") (Also sent Port-au-Prince)</td></tr></table>
+
+S-E-C-R-E-T
+NO FOREIGN DISSEM
+
+<table><tr><th scope="row">GA/INT</th><td>2</td><td>WI/7/Ut</td><td>6</td><td>WIC/CA</td><td>1</td><td></td><td></td></tr><tr><th scope="row">GA/PROP</th><td>1</td><td>WI/PRIN</td><td>1</td><td>WIC/WAVE</td><td>1</td><td></td><td></td></tr><tr><th scope="row">WH/R</th><td>1</td><td>WIC/MO</td><td>1</td><td>WI/FACIX (CINCSO)</td><td>1</td><td></td><td></td></tr><tr><th scope="row"></th><td></td><td>WIC/FI</td><td>1</td><td></td><td></td><td></td><td></td></tr><tr><th scope="row" colspan="8">TOTALS IN 2, CI 2, FI 3, CA 3, WH/COG 3 (1), WH 7 (2), DO/II 1.</th></tr></table>
+
+<table><tr><td style="vertical-align: top; padding-right: 20px;"><table><tr><

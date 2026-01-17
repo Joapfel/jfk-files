@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_4572.png
+
+Convert to MarkdownAmendment No. 2
+
+Pay Scale
+
+1. As employee is hired as a Pilot, you will receive $600.00 base plus $5.00 per hour over 60 hours actual flight time.
+
+2. Once certified in writing as Pilot in Command, your base pay automatically is raised to $800.00 per month - pro-rated to that portion of the month applicable. Additionally while acting as Aircraft Captain, all time over 60 hours flying is compensated at the rate of $10.00 per hour. However, although certified as Pilot in Command, any time over 60 hours not considered command time (Co-Pilot), the hourly compensation is reduced to $7.50 per hour.
+
+3. All flight time must be actual flight time and Dead Heading, Passenger, etc. time may not be recorded as meeting minimum hours, overtime or hazard pay.
+
+4. The Chief Pilot has sole discretion of upgrading and/or down grading pilot status in writing and the employee shall have no recourse towards this decision.

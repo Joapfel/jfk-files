@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_4864.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>10-0000</td>
+   </tr>
+  </table>
+
+<table><tr><td colspan="4">SECRET</td></tr><tr><td rowspan="2">ACTION NO.</td><td>#10.69A LA A.C.N.1800,</td><td>FILE VR</td><td>ASJN, SEWRY, LSN/ID</td></tr><tr><td>LA IS</td><td>señita 5, Van DDE, Deelco</td><td>DIVD 2,</td></tr></table><table><thead><tr><th>STAFF</th><th></th><th></th><th></th></tr></thead><tbody><tr><td>A</td><td></td><td></td><td></td></tr><tr><td>B</td><td></td><td></td><td></td></tr><tr><td>C</td><td></td><td></td><td></td></tr></tbody></table>
+
+Y 680340
+
+E14832
+
+PAGE 8!
+
+TUR:1717572 FEB 76
+
+IN 820704
+CARA 29189
+
+SEC R & T 1717222 FEB 76 STAFF
+
+CITE CARACAS 29189
+
+TO: IMMEDIATE BUENOS AIRES, SAN JOSE INFO IMMEDIATE DIRECTOR SANTIAGO,
+BRASILIA, RIO DE JANEIRO, LIMA, BOGUTA, GUATEMALA CITY,
+
+VHLOFTY MMSPIKE
+
+REFS: A. CARACAS 29029 (BEING RELAYED ALL ADDRESSEES LESS AN JOSE, BUENOS AIRES) / 818997
+U. CARACAS 29076 (BEING RELAYED ALL ADDRESSEES LESS SAN JOSE) / 826512
+C. CARACAS 29118 (HVC-7327)
+
+1. WKSCARLET-3 LOCATED ORLANDO B O S C H AVILA IN SAN JOSE 16 FEBRUARY AND SPOKE BRIEFLY BY TELEPHONE WITH HIM TO ARRANGE INTERVIEW IN SAN JOSE FOUR OR FIVE DAYS HENCE. WKSCARLET-3 LEAVING CARACAS WITH WKSCARLET-1 FOR BUENOS AIRES AFTERNOON 17 FEB AND ANTICIPATES STAYING BUENOS AIRES FOR ABOUT THREE DAYS BEFORE GOING SAN JOSE. WKSCARLET-3 CAN BE CONTACTED IN EITHER BUENOS AIRES OR SAN JOSE BY TELEPHONE CALL FROM NATIVE SPANISH SPEAKER IDENTIFYING HIMSELF AS "RAMIREZ." HE WILL BE STAYING SHERATON HOTEL IN BUENOS AIRES BUT DOES NOT YET KNOW NAME OF HOTEL IN SAN JOSE, AT BOTH LOCATIONS WE WILL BE ALERT FOR CALL SECRET
+
+<table><tr><td>GROSS FILE COPY FOR<br/>201- 0 149 141</td></tr></table>
+
+DO NOT DESTROY
+
+SEC R&T
+
+<table><tr><td>STAFF</td><td></td><td></td><td></td></tr><tr><td>A</td><td></td><td></td><td></td></tr><tr><td>B</td><td></td><td></td><td></td></tr><tr><td>C</td><td></td><td></td><td></td></tr></table>

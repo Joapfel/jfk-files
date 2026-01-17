@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_5715.png
+
+Convert to MarkdownCONTROLLED DISSEM
+
+C-O-N-F-I-D-E-N-T-I-A-L
+
+-2-
+
+00-B-321/00869-68
+
+4. Two or three months ago I met three Cuban nationals, Jose de Jesus Flana, Carlos Morris, and Eduardo Garcia, members of the "Confederacion Latino Americana Cristiana", CLAC, with central offices in Caracas. These individuals travel through Latin America with the purpose of familiarizing groups with Communist methods of operation and spreading democracy. I talked several times with them, and with people who had attended their meetings. It is my impression, as well as that of others, that they tended to create the wrong impression. Several times they justified the actions of Fidel Castro, and seemed to be anti-American in their line of propaganda. Certainly they did not do anything worthwhile to aid democracy. These individuals claimed not to have any association with the US, and to receive financial support from Germany.
+
+-end-

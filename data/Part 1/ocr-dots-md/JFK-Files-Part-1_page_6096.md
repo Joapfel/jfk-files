@@ -1,0 +1,60 @@
+# JFK-Files-Part-1_page_6096.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>Office of Origin: (REDACTED)</td>
+    <td>Report Made At:</td>
+    <td>Date:</td>
+    <td>Foreign Cover:</td>
+    <td>Status:</td>
+   </tr>
+   <tr>
+    <td></td>
+    <td>Rosalyn</td>
+    <td>23 February 1945</td>
+    <td>BR/037 &amp; RE/02</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td colspan="2">Subject:</td>
+    <td colspan="3">OPERHARD NEUERANH</td>
+   </tr>
+   <tr>
+    <td colspan="2">Classification:</td>
+    <td colspan="3"></td>
+   </tr>
+   <tr>
+    <td colspan="2">Reference:</td>
+    <td colspan="3">Sgt. Thomas E.</td>
+   </tr>
+   <tr>
+    <td colspan="5">Report YKI-870 dated 13 Jan. 1945 entitled WEINMANN(f)</td>
+   </tr>
+  </table>
+
+As requested by Running, the following was furnished by two members of Air Ground Forces Resources and Technical Staff.
+
+The first source, M/Sgt. Harry Sime states that Heussmann's first name is ERHARD. He was born and educated in Germany. Heusemann frequently mentioned the type of education he received under the Germans and also the methods of instructions. Sgt. HUNES said that HEUERANN was a mechanic with the AVO prior to entering the U.S. Army. Due to his work with the AVO, HEUERANN is a close friend of General CHATT. He is a quiet fellow and very seldom enters into conversation. He is bald due to typhus.
+
+The second source, Mr. J. R. M. Stott, states that W. B. H. was exiled from Germany and has been in China for a long time. Prior to joining the AVO, he was an engineer. According to Mr. W. B. H., Heussmann never expressed any political sentiments. He is a quiet fellow and seldom engages anyone in conversation. This source also states that he never heard Heussmann mention his family relations.
+
+## UNDEVELOPED leads:
+
+At Running, this case is considered to be closed at Beijing. The Running office may obtain further information from other fellow soldiers of the Air Ground Force's Resource and Technical staff.
+
+<table>
+   <tr>
+    <td>Evaluation:</td>
+    <td>J-1</td>
+   </tr>
+   <tr>
+    <td>Distribution:</td>
+    <td>1 - Washington, D.C.<br/>1 - Demo<br/>1 - net. 202<br/>2 - Kunming<br/>1 - Roselyang</td>
+   </tr>
+  </table>
+
+<table>
+   <tr>
+    <td>Office in Charge</td>
+   </tr>
+  </table>

@@ -1,0 +1,65 @@
+# JFK-Files-Part-1_page_8756.png
+
+Convert to Markdown4-0000
+
+ORIG: Charles V. Belt
+UNIT: WH/1 3E04
+EXT: 6954/9041
+DATE: 16 October 1969
+
+MESSAGE FORM
+TOTAL COPIES:
+
+<table><tr><td>SECRET</td></tr></table>
+
+<html><body><table><thead><tr><th colspan="2">ROUTING AND/OR INITIALS, SEEN BY</th></tr></thead><tbody><tr><td>1</td><td>8</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table></body></html>
+
+CABLE SECRETARIAT DISSEMINATION
+
+BY 41 PER 8
+
+FILE IN CS FILE NO.
+
+☐ INDEX ☐ NO INDEX ☐ RETURN TO __________ BRANCH ☐ FILE RID
+
+CONF: WH.8 NO FILE. VR. RILAN, SB8, e, CLOPS, CALOA,
+
+<html><body><table><thead><tr><th>(classification)</th><th>(date and time filed)</th></tr></thead><tbody><tr><td>S-E-C-R-E-T</td><td>17 23 40z Oct 69</td></tr></tbody></table></body></html>
+
+TO
+
+MEXICO CITY
+
+REDLEG AEDIEHARD AEKICK
+
+REF: A) MEXICO CITY-163S (IN 62539)*
+
+B) DIRECTOR-14106, 21 JUNE 69**
+
+1. SUBJECT OF REF ASSIGNED 201-853538. Jimmy Saberi
+
+2. REF B ADVISED NO RECORD SUBJECT. RETRACES UNDER NAME VARIATION IN PRQ NEGATIVE. COVERT NAME CHECKS WITH NATIONAL AGENCIES PENDING.
+
+3. STATION IS REQUESTED TO CONTINUE PROCESSING CASE UNDER CSI-F-10-5, PARA 19. PRIMARY EMPHASIS SHOULD BE ON SUBJECT'S RELATIONSHIP WITH AEDIEHARD (201-285412) WHO HAS BEEN CULTIVATING SUBJECT SINCE FEBRUARY 69. SUBJECT EVIDENTLY ATTRACTIVE TO AEKICK ON BASIS WIDE RANGE OF CONTACTS AMONG PROMINENT MEXICANS.
+
+FILE: 201-853538; 201-285412.
+
+END OF MESSAGE
+
+RELEASING OFFICEA
+
+COORDINATING OFFICER
+
+<table><tr><td>SECRET</td></tr></table>
+
+GROUP T
+Included from beginning
+Corresponding and
+Receptionist's report
+
+AUTHENTICATING
+OFFICER
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

@@ -1,0 +1,99 @@
+# JFK-Files-Part-1_page_7694.png
+
+Convert to Markdown31). (Dr.) Yury N. IUTLER (P-1573), dentist, Soviet contact, Communist sympathizer.
+
+In Apr 1966 Subject was reported making a dental appointment with the tourist agency representative, KUTTLER (1). In Apr 1967 when Miriam AVILA Katz, was trying to get a visa for KUTTLER, Subject spoke scathingly of him and said he would not give him a visa unless he fulfilled all the requirements (1). Subject explained that he had once gone to KUTTLER to have some dental work done and that KUTTLER had charged him too much, and that this was why he did not want to issue him the visa (26).
+
+32). Jacques LEMAIRE, representative of French steamship company in Mexico, scheduled to leave Mexico soon, member of French Club, where he probably met Subject.
+
+On 14 Jul 1967 LEMAIRE Invited Subject to the French Embassy reception that day, but Subject was unable to go. LEMAIRE sent regards to Subject's wife, (1).
+
+33). Yuliya LIPOVSKAYA, probably identical with the Julla *YASCHIN* listed in the telephone book as living at Mexicali 175, phone 15-35-47, presumably the wife of Sak Solomon (aka Jullo) YASCHIN. YULIYA LIPOVSKAYA
+
+A MEXICO
+AMERICA
+APRIL 1967 I DONT KNOW IF THIS IS THE ONE WITH THE NAME JULIA YASCHIN. IF SO, MAYBE IT IS THE ONE WITH THE PHONE NUMBER 15-35-47. GOOD LUCK TO ALL. IF ANY OF THEM SHOW UP, LET ME know. THANK YOU FOR YOUR HELP. if anyone recognizes this woman, let me know. THANK YOU AGAIN. SEE YOU SOON. HATE TO GO, BUT NEED TO. MAY GOD保佑每個人。
+
+GOKKODOHORI SHIO
+1980.
+Masaaki Iwazato
+The Sankaku Sekaisai 1980
+Art Director: Masayoshi Matsumura
+Kanada 1980
+Publication Date: March 22, 1980
+Printers: Tokyo News Printing Co., Ltd.
+Kanada Press Co., Ltd.
+Kanada 1980
+Editor: Toshiyuki Ohashi
+Design: Shin'ichi Yamagata
+Kanada News Printing Co., Ltd.
+Kanada 1980
+Cover Design: Kenji Iwatsuki
+Kanada 1980
+Editor: Toru Aoki
+Kanada 1980
+Art Director: Masamitsu Ueda
+Kanada 1980
+Distribution: Editorial & Marketing Dept.
+Tokyo News Printing Co., Ltd.
+Kanada 1980
+Distribution: Distribution Dept.
+Tokyo News Printing Co., Ltd.
+Production Manager:
+Masayoshi Matsumura
+Production Department:
+Kanada 1980
+Distribution: Editorial & Marketing Dept.
+Tokyo News Printing Co., Ltd.
+Kanada 1980
+Distribution: Distribution Dept.
+Tokyo News Printing Co., Ltd.
+Production Manager:
+Masayoshi Matsumura
+Production Department:
+Kanada 1980
+Distribution: Editorial & Marketing Dept.
+Tokyo News Printing Co., Ltd.
+Kanada 1980
+Distribution: Distribution Dept.
+Tokyo News Printing Co., Ltd.
+Production Manager:
+Masayoshi Matsumura
+Production Department:
+Kanada 1980
+Distribution: Editorial & Marketing Dept.
+Tokyo News Printing Co., Ltd.
+Kanada 1980
+Distribution: Distribution Dept.
+Tokyo News Printing Co., Ltd.
+Production Manager:
+Masayoshi Matsumura
+Production Department:
+Kanada 1980
+Distribution: Editorial & Marketing Dept.
+Tokyo News Printing Co., Ltd.
+Kanada 1980
+Distribution: Distribution Dept.
+Tokyo News Printing Co., Ltd.
+Production Manager:
+Masayoshi Matsumura
+Production Department:
+Kanada 1980
+Distribution: Editorial & Marketing Dept.
+Tokyo News Printing Co., Ltd.
+Kanada 1980
+Distribution: Distribution Dept.
+Tokyo News Printing Co., Ltd.
+Production Manager:
+Masayoshi Matsumura
+Production Department:
+Kanada 1980
+Distribution: Editorial & Marketing Dept.
+Tokyo News Printing Co., Ltd.
+Kanada 1980
+Distribution: Distribution Dept.
+Tokyo News Printing Co., Ltd.
+Production Manager:
+Masayoshi Matsumura
+Production Department:
+Kanada

@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_5624.png
+
+Convert to MarkdownSECRET
+
+BY#632-69
+29 August 1969
+
+3. We wish also to point out that Brun, as a regular supplier of foreign intelligence on Haiti, has supplied data which originate with Haitians other than Charles, and, therefore, that Brun is not merely Charles's mouthpiece. Specifically, Louis Leveque and Alfonse Lahens are two of Brun's Haitian sources. Leveque is a well-known Haitian businessman; Lahens is a former deputy.
+
+4. We are not concerned with Charles, but are very much so with Brun. We do not believe that Brun is involved in any current revolutionary scheme in Haiti. We are, however, disturbed at the un-professional way in which Brun handled the questions concerning foreign companies in Haiti. We did not request Brun to consult Charles about the requirements on foreign companies and in view of the manner in which Brun handled our requirements we shall continue only to accept informa-tion which he proffers on his return from his frequent trips to Haiti and shall refrain from briefing him. We have requested our DD/I consumers to give us an evaluation of Brun's intelligence reporting. Unless this evaluation is unfavorable, we shall continue to exploit Brun in the manner just described. Insofar as contact between Brun and Charles is concerned, (a) we cannot prevent Brun from talking to Charles (or anybody else) but (b) we have never in the past and shall not in the future request that Brun contact Charles on behalf of DC3.
+
+6. Please pass the foregoing information to Col./7.
+
+JEMitchell:kf
+
+File: Louis A. Brun, President
+B&B International Corporation
+230 Fifth Avenue
+New York City
+
+SECRET

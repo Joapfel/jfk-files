@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_8456.png
+
+Convert to MarkdownSECRET
+
+3 May 1968
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: (fnu) LAMBERT, British Subject
+
+1. At 0945 hours 2 April 1968, Subject called for Valentin Sergeyevich LOGINOV and left a message that he was the person who was going to give LOGINOV English lessons. He also left his telephone number: 11-02-88. (This is listed in the reverse directory for Maya Internacional SA de CV; it does not appear however in the current telephone directory.)
+
+2. At 1208 hours on 2 April, Sra. Cora (lnu) tells LOGINOV that the teacher she recommends for him is 21 years of age, studying for his doctorate in literature in Mexico, and prior to returning to England is willing to give lessons; he is presently giving classes for other PhD's.
+
+3. At 1320 hours, LAMBERT tells LOGINOV that Sra. Cora told him to get in touch with LOGINOV regarding English lessons. LAMBERT would like to talk about it. LOGINOV agrees, but says he is very busy right now and will call LAMBERT at the end of the week to make arrangements.
+
+4. Source: LIENVOY 2 April 1968, all on 15-60-55.
+
+Wanda L. VERMILYE
+
+File:
+P-11712
+
+SECRET

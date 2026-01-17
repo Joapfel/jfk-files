@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_8580.png
+
+Convert to MarkdownAugust 26, 1969.
+
+Contact Report
+
+Subject: Jimmy SABORI (P-13,870).
+
+Date of Meet: August 26 at Chez Rene at 1400 hrs
+
+1. The meet was prearranged and S came on time. The meet lasted two hours and 30 minutes.
+
+WRY: Morn; Sept 8 at the same place at 1400 hrs.
+
+2. S apologized for not bringing the copy of the report he gave to AEDIEHARD: he did not think of it this morning when he left the house.
+
+3. I told S that the fact that AEDIEHARD would remain here at least five additional month did not please me, because I was not able to let the things go the way they were going until now and be just an observer. In reply to my questions S stated he was ready and determined to anything we tell him to do: he is willing to drop the association with AEDIEHARD; he is equally ready to do or tell AEDIEHARD anything we instruct him even if it was certain that AEDIEHARD would drop him; he is willing to go through any doing we consider necessary. I believe S was sincere in his statements.
+
+4. I told S not to call A under any circumstances before their next meet (Sept 10); keep away from the Chinese Embassy; if he gets the add from Luau Restaurant S can advise him by phone; take proof of the article as was promised but avoid any comr whatsoever; if Josephine feels like going to the French Club on Sat (Aug 30) S can go with her, but I see no point in him going along alone. S stated that he understood what he was told and he would not do a move without checking with me.
+
+5. S asked in a matter of fact tone that he would like to know where he could work with us; Did we want him to carry out the work we request for patriotic reasons; do we intend give him a salary or make a worthwhile present. I told him that he can rest sure that we realized that he was not in a financial position to be able to work out of patriotic feelings, and consequently, he would be paid for his work as much as it is worth to us.
+
+6. No next meeting: According to the statement of Dr Enrique SOLANOS Cacho, cousin of GDO with whom GDO plays domino every Tuesday.

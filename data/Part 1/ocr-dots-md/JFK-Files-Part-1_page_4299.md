@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_4299.png
+
+Convert to MarkdownMovimiento de Recuperacion Revolucionaria
+
+2318 N. E. 9 COURT
+MIAMI, FLORIDA
+
+(2)
+
+TELEFONOS:
+271-6407
+271-6408
+
+Honduras (Jose Antonio Molé) 350.00
+Guatemala (Oscar Vila,) 200.00
+
+Clandestinaje:
+
+Entregado al Padre Llorente para
+enviar a traves de la Embajada de España-$2,600.00
+
+Entregado a los siguientes sujetos para
+hacerlos efectivo en Cuba a familia-
+res de presos o fusilados de sus pro-
+vincias:
+
+| | |
+| :--- | ---: |
+| Inocencio Alonso | 275.00 |
+| Alfredo Borges Caignet | 250.00 |
+| Rolando Tapanes | 200.00 |
+| Gustavo Fernandez Vidales | 300.00 |
+| Domingo Borges Carbot | 300.00 |
+| Emilia del Mar | 100.00 |
+| Silvia Heredia | 125.00 |
+| Jacinto Luzarraga | 300.00 |
+| (Aqui tuve que adelantar 3 meses por operación de la senora,) | |
+| Antonio Crespo Olivero | 300.00 |
+| Angel García Alvarez | 275.00 |
+| Antonio Sanz de Acedo | 200.00 |
+
+**TOTAL DE GASTOS:** $12,530.00
+
+Como se ve, en Julio invertí en los gastos $530.00 más que lo que re-cibi,sin contar con los gastos de mis viajes por latino-America,ní mi subsidio familiar con el que tengo que mantener mujer,dos hijos y mis dos padres.

@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_7429.png
+
+Convert to Markdown3 September 1965
+
+MEMORANDUM FOR: Chief, Contract Personnel Division
+
+SUBJECT : General - Terrence S. CRABANAC - Supplement
+Specific - Paragraph Entitled "Offset"
+
+REFERENCE : A. OGC Opinion 65-2476a, dated 12 August 1965
+
+B. Our Memo, dated 8 July 1965, Same Subject
+
+1. This office herein recommends an amendment to CRABANAC'S Supplement dated 4 July 1965, to delete paragraph 7. entitled "Offset."
+
+2. This office acknowledges the OGC opinion, Reference A, which determined CRABANAC may retain without Agency salary offset any future royalties earned as a result of his literary efforts based on the fact cover does not include role of a writer.
+
+3. As Subject's cover "activities" have been officially clarified as being only a light one of a retired Foreign Service Officer for which the Agency will be making all entitlement payments and actually he will receive no funds from any cover, this paragraph, which is misleading, has no meaning in Subject's contract and it is hereby recommended that it be deleted from CRABANAC's Supplement.
+
+4. Further, in future cases when a cover is so light that Subject will not be receiving funds from cover it is recommended that no "Offset" paragraph be included in Supplements or Contracts.
+
+WILLIAM R. CAULEFIELD
+Chief, Covert Claims Branch
+
+Attachment
+
+Ref. A and B
+
+<table><tr><td>STAR</td></tr><tr><td>THE OFFICE OF STAR<br/>COVERT claims</td></tr><tr><td>OFFICE</td></tr></table>

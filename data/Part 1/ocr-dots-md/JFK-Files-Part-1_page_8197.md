@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_8197.png
+
+Convert to MarkdownSECRET
+
+28 February 1961
+3-13 A (Mullen)
+
+MEMORANDUM FOR: Chief, CA Staff
+
+ATTENTION : Personnel Office
+
+SUBJECT : Henry P. Lopez (T)
+
+1. Finance Division has provided this office with a U.S. Treasury Department, Internal Revenue Service, Form 1099 which reflects payment of $1,300.00 to subject in 1960. In accordance with your instructions to Finance Division, this Form 1099 shows the source of these funds to be a backstopped notional organization provided by this office.
+
+2. It is requested that you advise Central Cover Division, Nonofficial Cover (CCD/NC) at the earliest date possible whether you wish to pass this Form 1099 to subject personally or if you desire it to be mailed to him from the address of the ostensible source of the income.
+
+3. In the event you wish it transmitted through cover channels, we request that you advise this office in writing that subject has been alerted to expect receipt of these forms.
+
+4. If further information is required, please contact Mr. John W. Mullen, x8266, Room 2-1005 - T-4.
+
+JOHN G. SOUTHARD
+CHIEF, CCD/NC
+
+SECRET
+
+201753203

@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_8131.png
+
+Convert to Markdown8. We are providing you with a letter from a cover company (attached hereto) which you will use only in the case of extreme emergency in the event that you come to the attention of the Cuban authorities. This letter states that you are there on a vacation and that this company has asked you to get some first-hand information on the subjects mentioned in paragraph 7 above while there if you are so inclined. This will provide you with a plausible excuse for being both a tourist and one interested in talking with local personalities.
+
+9. Your mission generally is to talk with as many knowledgeable persons as possible regarding the political situation in Cuba, with special emphasis on the opposition, its strengths, weaknesses, plans and programs. Of particular interest is the possibility or feasibility of a coalescence of these opposition groups.
+
+## B. Administrative
+
+1. While on your present assignment you will keep a record of your expenses which will enable you to submit the required accounting for funds upon your return. In keeping the accounts you should note times of arrival and departure, detailed notation of expenses incurred, and the rate of exchange obtained when exchanging U. S. dollars into local currency.
+
+2. Upon your return you will submit two accountings. One will include your salary under "services rendered", and also your expenses and will be in true name to the following company:
+
+Ashmead, Haniford Associates
+1615 Spruce Street,
+Philadelphia, Pennsylvania
+
+3. The second accounting will also include salary and operational expenses and will be submitted in pseudonym to:
+
+Henry W. Parkin
+P. O. Box 8105
+Southwest Station
+Washington, D. C.
+
+signature
+
+date
+
+11/24

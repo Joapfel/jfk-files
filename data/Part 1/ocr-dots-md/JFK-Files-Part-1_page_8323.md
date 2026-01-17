@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_8323.png
+
+Convert to MarkdownMay 8, 1969.
+
+LIBACON-1
+
+Brieſs on Keet Held Kay 7 from 1630 to 2035 hrs.
+
+When came I asked till what hour he can be with me. He said 1830.
+At 1815 I paid the bill, but he insisted that we stay a little longer
+and for the rest he would pay the bill: he had 2 additional drinks
+while I had my third coffee and a drink.
+
+As we got together he told me that he was on May 3 with his
+wife at Cuautla and as he was enetring the pool area LOG was leaving.
+LOG cornered him for a 15 minutes talk which consisted of pressuering
+LIBACON into making some arrangements that LOG would be able to meet
+LIOYAL-1. When LIBACON turned him down LOG insisted that they have a lunch
+on Thur. May 8 at the restaurant El Ferro Andalusi ( or similar ) at
+the Copenhagen about 1230 hrs . LIBACON accepted.
+
+LIBACON brought me a bio sketch on LOGINT, which was an
+interesting paper. We discussed the paper which enabled me to obtain
+explanations and facts on which LIBACON based his general statements,
+
+LIBACON readily gave me info on Prof. K. LUBAN. There was
+not much, but sufficient to ascertain that he did not attempt to
+ withhold info from us. (This was best - no further details needed)
+
+He also gave me some info on KASEL WINDEL who is presently
+conducting a tour of Mexicans through Europe and was in Prague with the
+group a day before Dubcek was kicked out...
+
+Be teachers of Spanish at the Sov Eab other than his mother
+LIBACON did not know anything but promised to ask his mother on Sat
+when she will be at his home.
+
+It took me some time to explain to LIBACON that attitude to
+take toward LOG during the lunch.
+
+Detailed report will be prepared. Now
+handling in notes on my instruction to LIBACON concerning how to
+handle the lunch with LOG. Also handed in is the Bio sketch on LOG.

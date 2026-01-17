@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_9171.png
+
+Convert to MarkdownMay 5, 1942
+
+R. Boulton
+Maj. David Bruce
+
+Report by Mr. Jester, Consul at Lagos
+
+In the early part of April the attached Abstract of file 1896 (accessioned about April 1) was prepared at the request of Mr. Shapiro. There subsequently came to the attention of the African Section the attached memorandum to Colonel Donovan from Mr. Zindel on the same subject. It could appear that (1) Colonel Donovan must have seen Mr. Zindel's memorandum of March 12 already sent and (2) that the present Abstract of file 1896 is now possibly inappropriate.
+
+Let this very important matter may have become sidetracked or mislaid through some accident of routine, I send you herewith all the pertinent data of which I have knowledge.
+
+R. B.

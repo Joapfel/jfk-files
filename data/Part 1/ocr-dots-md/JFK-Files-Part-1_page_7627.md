@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_7627.png
+
+Convert to MarkdownCOPIES MADE
+
+here in Mexico City. Subject also said that Alejandro and his
+firm were good customers of Mundos Tours, and that Alejandro
+had in fact just recently returned from a three week trip to
+Germany. He spoke some English.
+
+7. The appearance of ALVAREZ, who by now was ordering his first of two martinis, seemed to end any remaining chances of getting anywhere with the girl. As it worked out, however, his appearance had just the opposite effect, because it provided more than an hour of conversation on an increasingly friendly and personal level. By her second drink, Subject was even managing a few laughs. Eventually we got onto the subject of Israel, which, thanks to the information supplied by LICOZY-5, I knew she had visited and had become romantically involved with, she herself being half Jewish. I expressed considerable interest in her trip and Israel in general, and she seemed delighted to tell me about both. It then turned out that her mother--who Subject said is a U.S. citizen--had lived in Moldavia, had told her daughter vivid stories of pogroms carried out by the Russians against the Jews, and had fled Rumania before the invading Russians (evidently during World War II.) The fact that I had been in Rumania and Moldavia was good for another ten minutes of conversation and seemed to impress Subject far beyond its worth. In any event, by the time ALVAREZ left, Subject and I were on a first name basis and she was telling me how glad she was she had met me--all of which I attribute to luck (ALVAREZ, who even quietly paid the check when leaving) and dubonnet cocktails.

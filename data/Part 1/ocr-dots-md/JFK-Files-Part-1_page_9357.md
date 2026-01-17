@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_9357.png
+
+Convert to MarkdownCONFIDENTIAL
+
+14 August 1950
+
+The following views of LEI GOMSV on the Berlin Congress have been reported as of interest to the sponsors of the Congress.
+
+1. The Berlin Congress is regarded in France as a movement exclusively of the extreme left, of former Communists and present non-Socialist Marxists. Observers regard with disfavor the fact that the Congress was extremely mild in its attack against the Soviet regime. They point out that:
+
+(a) The Soviet regime as such is not mentioned in a single resolution, which limited themselves to the condemning "totalitarian regimes."
+
+(b) The issuance of an anti-Franco resolution in the absence of an anti-Stalin resolution is significant,
+
+(c) The refusal to recognize the representatives of the Russian RTS group present at the Congress as "listed delegates" confirms the extreme leftist nature of the Congress.
+
+CONFIDENTIAL
+
+Q2/224
+
+Q2/224

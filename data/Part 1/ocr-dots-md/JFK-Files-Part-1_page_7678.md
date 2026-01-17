@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_7678.png
+
+Convert to Markdown10 Oct 1965
+
+Subject's wife and son arrived in Mexico (4).
+
+August 1965
+
+Subject was apparently promoted to Consul General after Pavel Antonovich YATSKOV left Mexico on 4 Aug 1966 for home leave. In Sep 1966 Subject was telling everyone in town that he was now the Consul (1, 6, etc.)
+
+16 Jul 1967
+
+Subject, accompanied by his wife and son, left Mexico for Moscow via Paris (4). Also travelling with them on LOGINOVA's passport was Tatyana, the daughter of Boris Aleksandrovich MALAKHOVICH (4). Subject has told several people that this is home leave and that he will be returning to Mexico (1, 6, 21, 22).
+
+SR TRAVEL INPUT PROGRAM
+
+12. INTELLIGENCE AFFILIATION: Known KGB, based on his having taken over an agent previously handled by known KGB officers Oleg Maksimovich NE CHIPOR ENKO (201-305870) and Aleksandr Vladimirovich PRIKHODKO (201-202379), as well as his other intelligence activities given below.

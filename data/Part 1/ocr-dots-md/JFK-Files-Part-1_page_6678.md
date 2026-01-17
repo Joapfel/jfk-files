@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_6678.png
+
+Convert to Markdown# SECRETARIO
+
+23. En el caso de la Fuerente en que el no son la persona correspondiente para haberlo comprobado con la Sujeto, satisقا la Fuerente a alguna otra persona que prisiona conمع facilitarle para hacer contacto con la Sujeto para traer a cabo lo reclutamiento? Si es así, ¿cómo descripción completa de este sujeto y indíquese sus relaciones con el Sujeto a capotar.
+
+No.
+
+24. Conbase la Fuerente a alguien en Cuba que octo en poder de hacer contacto con el Sujeto para свидетельствовать? De una descripción completa de este sujeto e indique sus relaciones con el Sujeto a capotar.
+
+No.
+
+TECNICO HANDE:
+
+25. Datos biográficos de la Fuerente:
+
+*   a. Nombre: Olavide JAMEU Fernández.
+*   b. Patrulla: A. 173297.
+*   c. Lugar y Fecha de Nacimiento: Rogla, Prov. Habana, Cuba; 2h. Enoro 1923.
+*   d. Dirección en Cuba: Calle 25-A No. 118, Miramar, T.M. Marianaao, Prov. Habana.
+
+24-703418

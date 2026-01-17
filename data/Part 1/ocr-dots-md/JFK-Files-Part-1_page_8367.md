@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_8367.png
+
+Convert to MarkdownSECRET
+
+26 FEBRUARY 1969
+
+MEMORANDUM FOR THE FILE
+
+SUBJECT: New Soviet Embassy Car
+
+LILYRIC reported that Valentin Sergeyevich LOGINDV (P-11712) entered the Soviet Embassy on 23 February 1969 in a 1969 Chevrolet Cheyvella. LOGINDV, according to LIENVOY was scheduled to go to the border the week of 16 Feb 1969 to pick up his new car.
+
+ghfarnilant
+
+HLES: 50-8-10/7
+
+cc: P-11712
+
+SECRET

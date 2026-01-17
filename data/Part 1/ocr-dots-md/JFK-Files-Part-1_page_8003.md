@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_8003.png
+
+Convert to Markdown26 of July Movement Youth
+Certain working youths
+
+3. The letter lists the following agreements arrived at at this meeting:
+
+1) Publish a manifesto remudiating partial elections and calling for new section against the SATISTA Government.
+
+2). Name a youth commission to contact leaders of each political party demanding that they repudiate partial elections.
+
+3) Send a letter to the Federacion Estudiantil Universitaria (FEU, University Students' Federation) in Habana demanding that they declare a traitor any ex-FEU member supporting partial elections.
+
+4) Create "fighting committees" (conferences de luchas) in every youth center regardless of politics.
+
+5) Carry out a commemorative march on 12 August.
+
+The letter closes by indicating that the Committee agrees wholeheartedly with the results of the 18 July meeting in Oriente Province and invites all youth groups to unite in support of the above agreements.
+
+4. Source states that, as a result of the 10 July convention in Santiago de Cuba, the US is promoting a similar youth meeting for Habana.
+
+Field Report. Provenza Libra, 8 July 1956, published an agreement of the National Executive of the Oriente Youth, even the signatures of José Sánchez, Joaquín SALVADOR, Mario FIAMINELLA, Oscar OROZ,arcos MUNO and others, rejecting the proposed partial elections. Avance, 7 July 1956, carried an article stating that "under FEDERATION José Carlos Martínez announced the decision opposed the partial elections and would pass judgment upon such of its members as had accepted the Government's electoral plans in their present capacity of opposition party leaders." Among such ex-members were named Federico HUMAS, now Secretary General of the Partido Nacionalista Revolucionario (PNR), Nationalist revolutionary Party), and Daniel F. AMB, State political chief in Oriente Province.
+Information, 9 July 1956, said in an article that the secondary school association in Santiago de Cuba had not agreed to a united front against partial elections. PNR official Juán ARTUJO participated as a delegate, and it was reported to conduct a civil march in the city on 12 August. The local press of 12 August reported that ARTUJO and 22 students were arrested in Santiago on 11 - 12 August in connection with public manifestations against the Government.

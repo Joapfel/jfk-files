@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_8552.png
+
+Convert to MarkdownATTACHMENT
+
+August 6, 1969
+
+Subject: Jimmy SABORI (P-15830) Report on His
+Meet with LOGNOV (P-11,712) on Aug 4 at Eamborne-San Angel
+at 2000 hrs.
+
+1. The meet was prearranged and it lasted 2 hours and 15 minutes. As in all previous cases & and LOG met in front of the restaurant. LOG came 3 minutes earlier.
+
+THEIR NEXT MEET: On Aug 16 & and Josephine are to come to Quautla at the "Banos" about 1000 hrs to be guests of LOG and his family (to celebrate & birthday which is on Aug 15 ). On Aug 25 at Eamborne-San Angel at 2000 hrs a business meet will be held.
+
+2. LOG and & 2 Vodka cocktails, club sandwich and a beer. LOG claimed that he had already eaten something and & felt a stomach discomfort.
+
+3. LOG asked & did he finish reading the book (in English) about Rasputin which he gave him about a month ago. & answered affirmatively and they spoke about the book. LOG promised to give & another book, written as a British, titled "USSR 1941-45" or similar. LOG wants & to be familiar with the suffering of Scv people during the WW II.
+
+4. Then, LOG asked & what was the situation with the US Embassy Phone Directory. & stated that the fictitious girl Patricia showed up for few day and returned to the States for family reasons. He brought up in a conv with her the Directory and she told him that it was tightly controlled. & left it at that point and he told LOG that he would have to start working on the matter from scratch if LOG wanted the Directory but & would appreciate LOG's suggestions as to how to go about it. LOG told & to forget it because he know that the directory was well controlled.
+
+5. The next question by LOG was what progress did & make with MR. TANG. & told him about his meet with TANG on Aug 1 (see PERKALDE FADONI Contacts Report dated Aug 2,'67). LOG listened to the story without interrupting and then he told & that he was not certain that

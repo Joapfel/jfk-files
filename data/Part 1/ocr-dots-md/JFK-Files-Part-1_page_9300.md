@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_9300.png
+
+Convert to Markdown14-0000
+
+COPY.
+
+September 2, 1950
+
+Received from Robert W. Headley the sum of one hundred (100) dollars in as part payment for services in procuring photographs for the Stalin picture book project.
+
+W. J. Green
+
+original given to
+John Bischoff
+5 Sept. 50.
+W. S. S.
+
+61

@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_8624.png
+
+Convert to Markdowna,t. 23, Moscow. Subj was not sure he had the correct numerical address, nor did he know what region of Moscow the street was in. Tanya further explained that KIRASOV was engaged in some unspecified underground work, possibly in anti-government activity, and that one member of this group was actually employed by the CIA. He was not further identified.
+
+4. Subj then went on to relate two other & "odd" experiences he had had prior to his coming to Mexico. They are not worth repeating here. I told Subj I would try to locate the afore mentioned street on the Moscow map but that I did not take any of this very seriously. Although Subj realized that I was amused by this tale he was not seemed angered by my attitude saying he did not know what to make of it himself.
+
+DFDDITMANSON

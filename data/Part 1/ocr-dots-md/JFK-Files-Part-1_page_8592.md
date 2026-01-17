@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_8592.png
+
+Convert to MarkdownSECRET
+
+-5-
+
+ARMIDRIFF stated that Leopoldo AREAL, whose wife is the daughter of David Alfaro Siguieros, is another Soviet asset who is handled by KUPLYAKOV (she heard VANOVSKY talk about this). ARMIDRIFF said that ARREAL works with Eduardo ARAÚJO (economic consultant for "Minera Contingental," S.A.), mentioned in Commercial Office). She also stated she knew that AREAL went at times to the Embassy to see KUPLYAKOV. ARMIDRIFF said that ARREAL goes to Moscow every year or so. (AREAL identical with Leopoldo AREAL Faster, 201-117959).
+
+SECRET

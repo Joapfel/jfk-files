@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_8493.png
+
+Convert to MarkdownCONTRACT REPORT
+
+SUBJECT: BRIEFER P-5777
+DATE OF MEETING: 27 July 1967
+
+1. I am not Subject from 1530-1645 on 27 July in his room at the Hotel Paso. The next meeting is scheduled for 4 August at 1400 at the Hotel Paso. Subject will call on the 3d or 4th to give me his room number.
+
+2. Number of Subjects in Production. Subject will hold a private exhibition of his factory's latest lines of furniture and artifacts at the Hotel Presidente from 24 August, between 1000 and 2000. Sanborns' buyers will get a sneak preview on Tuesday, 1 August. Subject will consequently be in Mexico City from 31 July thru 4 August. No said he planned to send out invitations to all the Embassys, but had not yet done so.
+
+3. SALLMAN COMPANY. Subject had neither seen nor heard from GOMAR.
+
+4. Col. Laurence HIGGINS. Subject's wife learned from Mrs. HIGGINS that the Colonel is due back in Mexico on 12 or 14 August.
+
+5. CHMENSOV. CHMENSOV dropped in on Subject at Subject's home in Guernavaca about 1800 on Wednesday, 26 July. After homing and hawking around for a few minutes, CHMENSOV finally said that look, they were friends now and he wanted to ask Subject's advice on a matter. The doctor whom Subject had recommended for CHMENSOV's son, CHMENSOV said, had diagnosed the boy - stomach trouble as an adventure case of one of the worst strains ofanasms and had advised that the child be kept in bed and under observation. CHMENSOV said the child was consequently being kept in bed at home in Mexico City. The doctor, according to CHMENSOV, had also expressed concern that theanasmas
+
+COPIES MADE

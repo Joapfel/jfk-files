@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_7488.png
+
+Convert to MarkdownTOP SECRET
+
+TO: Director
+Federal Bureau of Investigation
+Attention: Mr. S. J. Papich.
+
+FROM: Deputy Director, Plano
+
+SUBJECT: Fernando INSURRAO, also known as Fernando Lapear, AGNES
+
+1. Reference is made to a communication from this Agency dated 30 August 1955, captioned as above, our reference US CI-2542.
+
+2. Attached for your information is a copy of a letter written by subject and addressed to the post office box mentioned in the referenced memorandum. The letter was signed by subject as FULY, his finishing pseudonym. It should also be explained that English is not subject's native language; therefore, the grammar and spelling used by subject in his letters are to be expected.
+
+3. This office interprets subject's letter as follows:
+
+a. Aunt Josephine is Jose/LANGAN, with whom subject has been in contact the past several months and who has been indoctrinating subject with leftist ideology. LANGAN has not admitted to subject that he is a Communist, although in his conversations with subject he sticks very close to the current line of the Philippine Communist Party (PNP).
+
+b. Harold ISMICS (FBI File No. 100-286243) is well known to the Bureau.
+
+c. Enclo MANUEL is probably the late Philippine President Manuel CUNEO, who sponsored Jose LANGAN's entry into the United States in 1937 when LANGAN studied at Columbia University. William CARTER, Jr. has not yet been identified by this office.
+
+d. PAILILIO, who is probably Dr. Filadelfo PAILILIO, former Associate Professor of Mechanics at the University of the Philippines. PAILILIO received his B.S. from the University of the Philippines and his M.S. and Ph.D. at the University of Michigan.
+
+COPY OF original
+
+291-18446

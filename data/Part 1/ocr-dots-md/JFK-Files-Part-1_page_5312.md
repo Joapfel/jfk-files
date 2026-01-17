@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_5312.png
+
+Convert to MarkdownSECRET
+
+NO FOREIGN DISSEM
+
+24 July 1963
+
+TO: Assistant Chief of Staff, Intelligence
+Department of the Army
+Attention: Source Register
+
+FROM: Interagency Source Register
+
+SUBJECT: CLEMARD, Joseph Charles
+aka: CHARLES, Clemard Joseph
+
+80-11612
+
+1. Reference is made to your request for registration dated 3 June 1968 concerning Subject. You are referred to OO-E-324/ 06340-66 dated 14 April 1966, subject: Clemard Joseph Charles Believed to be President Duvalier's Personal Financial Manager/ Biographical Data on C J Charles; OO-A(S) 322/14068-68 dated May 1968, subject: Clemard Joseph-Charles Must Raise US $605 Thousand Before He Can Resume His Banking and Other Activities; and OO-A(S) 322/14367-68 dated 22 May 1968, subject: Rearrest of Clemard Joseph Charles/Charles Is Not Able to Raise US$605 Thousand/Ransom/ Data Concerning Charles' US Bank Accounts/President Duvalier Might Settle for US$100 Thousand Cash/Charles Has Credit of US$300 Thousand in National Bank of the Republic of Haiti and Claims an Additional US$100 Thousand. Copies are attached for your retention.
+
+2. The Interagency Source Register has no record of a current operational interest in Subject. DC8 reserves the right to contact Subject under the provisions of DCID 2/3.
+
+IEM-28,910
+
+Reel. 3 attachments as stated above
+
+RID/CE: JMA/JD/bdt
+BASED ON: 201-357029
+FILE IN: 201-357029*
+
+FILE IN 201. 357029
+
+SECRET
+NO FOREIGN DISSEM
+
+GROUP 1
+Excluded from automatic
+d収amento and
+classification
+
+<table>
+  <tr>
+    <td>Group 1</td>
+  </tr>
+  <tr>
+    <td>Excluded from automatic<br/>d収amento and<br/>classification</td>
+  </tr>
+</table>

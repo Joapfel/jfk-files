@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_9363.png
+
+Convert to Markdowncontinue its backing. I repeat my request that this be delivered to the field as an instruction and that it be so regarded and acted upon within this headquarters. I do not wish to create the impression that I am in any way opposed to the continuation of the operation, provided it can be sanitized and handled with a greater degree of sophistication and technical expertise than has characterized our performance up to date. However, I do not wish to be associated with any repetition of what we have seen thus far.
+
+F.G.M.
+
+FGW:lgw
+
+P.S. Since dictating the foregoing, I have just learned from General Magruder that he showed our report on this Congress to Secretary Johnson, together with his own very complimentary appraisal of the operation. Secretary Johnson was so favorably impressed with this report and General Magruder's comment that he took the papers over and showed them to the President, who expressed himself as being very well pleased. I can only hope that the very rough edges which have recently appeared are not brought too sharply to the attention of those lofty officials. In any case this development underscores in red everything which I have said about the necessity for tidying up this operation and eliminating all of the "Irish pennants".

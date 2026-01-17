@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_5210.png
+
+Convert to MarkdownCIA HISTORICAL REVIEW PROGRAM
+
+RELEASE IN FULL
+1999
+
+IX No. 76
+
+23 April 1963
+
+MEMORANDUM FOR: DO/COEO
+
+ATTENTION : Mr. Gale W. Allen
+
+SUBJECT : Trace Reply - Clemard Joseph CHARLES
+
+REFERENCE : DO/COEO Memorandum dated 23 April 1963
+requesting traces on CLEMARD, Joseph Charles
+
+1. There are no traces on Clemard Joseph CHARLES (201-357-029) born 21 April 1923 at Gonaives, Haiti, who is President and General Manager of the Commercial Bank of Haiti, in RID or at the WH/Haitian Desk. In March 1963, Biographics Register prepared a summary of information on Mr. CHARLES for inclusion in the Biographic Intelligence Report on Haitian Opposition Personalities. This summary is made up of information obtained from several different sources. One source classifies CHARLES as a slippery character who is active on the Haitian scene and refers to him as a "promoter" rather than a businessman, who endeavors to attract United States "venture" capital for various Haitian projects and then becomes a partner by virtue of the promotion. Biographics Register has a very high opinion of this Source, who is the State Department's Haiti Desk Officer. During a debriefing on CHARLES, in February 1963, this same source stated that CHARLES is a confidant of President Duvalier and that he has emerged as an active businessman by virtue of his privileged position with the President.
+
+2. Another source of information regarding CHARLES' business interests is the President of the National Bank of Haiti who considers CHARLES, himself, as dishonest. For example, according to Source, CHARLES approved a loan of $14,000.00 on his daughter's signature alone. Also, the Commercial Bank of Haiti held a worthless portfolio made up
+
+SECRET

@@ -1,0 +1,66 @@
+# JFK-Files-Part-1_page_6363.png
+
+Convert to MarkdownCLASSIFICATION CONFIDENTIAL/US OFFICIALS ONLY
+
+CENTRAL INTELLIGENCE AGENCY
+
+REPORT NO. 00 -B-30993
+
+# INFORMATION REPORT
+
+CD NO. 7618 Guide 40
+
+COUNTRY Hungary/Austria
+
+DATE DISTR. 14 Apr 51
+
+SUBJECT Biographical Data - Denes Szentkuti
+
+NO. OF PAGES 1
+
+PLACE ACQUIRED Austria
+
+NO. OF ENCLS. (LISTED BELOW)
+
+DATE ACQUIRED BY SOURCE --
+
+SUPPLEMENT TO REPORT NO.
+
+DATE OF INFORMATION --
+---
+
+<table><thead><tr><th colspan="6">GRADING OF SOURCE BY OFFICE OF ORIGIN</th><th colspan="6">SOURCE'S OPINION OF CONTENT</th></tr><tr><th>COMPLETELY RELIABLE</th><th>USUALLY RELIABLE</th><th>FAIRLY RELIABLE</th><th>NOT USUALLY RELIABLE</th><th>NOT RELIABLE</th><th>CANNOT BE JUDGED</th><th>TRUE</th><th>PROBABLY TRUE</th><th>POSSIBLE True</th><th>DOUBTFUL</th><th>PROBABLY FALSE</th><th>CANNOT BE JUDGED</th></tr></thead><tbody><tr><td>A.</td><td>B.</td><td>C.</td><td>D.</td><td>E.</td><td>F. X</td><td>1.</td><td>2. X</td><td>3.</td><td>4.</td><td>5.</td><td>6.</td></tr></tbody></table>
+
+THIS DOCUMENT CONTAINS INFORMATION AFFECTING THE NATIONAL DEFENSE OF THE UNITED STATES WITHIN THE MEANING OF THE Espionage Act of 1918, as amended. ITS TRANSMISSION OR THE REVELATION OF ITS CONTENTS IN ANY MANNER TO AN UNAUTHORIZED PERSON IS PROHIBITED BY LAW. REPRODUCTION OF THIS DOCUMENT IS FORBIDTED.
+
+## THIS IS UNEVALUATED INFORMATION
+
+**SOURCE**
+
+Foreign representative of a US resettlement agency which is interested in bringing the subject of this report to the US. The following information was forwarded to the headquarters of that agency to determine placement possibilities in the US. To date, no decision has been reached.
+
+**NAME:** Denes Szentkuti
+
+**DATE AND PLACE OF BIRTH:** 2 June 1921 at Kormand, Hungary
+
+**PRESENT ADDRESS:** Austria
+
+**NATIONALITY:** Hungarian
+
+**MARITAL STATUS:** Single
+
+**EDUCATION:**
+Graduated in 1939 from secondary school in Szombathely, Hungary; attended Technical University at Sopron, Hungary, from 1939 to 1943, graduated in the latter year, majored in metallurgical engineering.
+
+**EXPERIENCE:**
+From 1943 to 1945, worked for Hungarian Wagon & Machine Factory Ltd in Gyor, Hungary, as an engineer specializing in problems of forging and hardening steel; engineer in ordnance service for American Military Government in Austria from 1945 to 1946; consultant in construction and operation of chemical plants for Donau-Chemie Ltd Aluminum Works Ltd at Linz, Austria, from 1946 to 1948; technical and engineering consultant for Austria Oil Ltd Refinery at Grundlsee, Austria, from 1943 to 1949; metallurgical and construction engineer for TEAS Company in Grundlsee, Austria, from 1950 to February 1951.
+
+**COMMAND OF LANGUAGES:** Speaks, reads and writes English fairly well. Knows Hungarian, German and French.
+
+- end -
+
+PROCESSSED
+
+CLASSIFICATION CONFIDENTIAL/US OFFICIALS ONLY
+
+<table><thead><tr><th>STATE</th><th>NAVY</th><th>NSA</th><th>DISTRIBUTION</th></tr></thead><tbody><tr><td>ARMY</td><td>AIR</td><td>FBI</td><td></td></tr></tbody></table>

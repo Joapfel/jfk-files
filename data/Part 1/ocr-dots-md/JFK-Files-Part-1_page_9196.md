@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_9196.png
+
+Convert to MarkdownSECRET
+
+MEMO OF RECORD
+
+SIMS saw Munson in his hotel 19 March 1953
+
+In addition to the details which he gave about "Communist Zoo" and the
+"Stalin" photo-book, Munson said:
+
+Re Swen. "Tell Joe I need a man who knows the book publishing business, as a 'consultant' or part-time helper. To be paid something like $300 to $400 a month, for which he would give, say, a week of his time each month."
+
+I asked if he would like to have any CIA man detailed to do liaison with and be part-time helper of Swen; Munson said he didn't think a staff man would be very secure. He'd need to travel, deal with other publishers, etc.
+
+Swen offices are established in Taipei, Tokyo, Manila, Hong Kong, Bangkok,
+
+Swen will reproduce material in any language, in any format. If anybody wants him to do a job, let them contact him.
+
+I asked how about getting material translated; he said you can always get it done in New York.
+
+The finished product would be cargoes out to the field.
+
+Re ROCKPORT, the artist. Munson has been paying him ($350 a month I think), and now feels he has gotten about as much material out of him as he will need.
+"Why not suggest to SCHILLER that The Challenge employ him on a regular basis?"
+
+J. said that the editors of The Challenge (all Russian-speaking) must already know him, since they have used his drawings. That when he finds himself unemployed he can, and quite likely will, approach them anyway. Why not let them decide whether they want to employ him, rather than for us to complicate matters, through SCHILLER, by forcing this extremely "difficult" men on them? Munson agreed we should let it ride.
+
+If the editors themselves want to employ him, we can then decide whether and how much of the DEXCISE funds should be used to pay him. As he is very difficult and dilatory it might be better to stipulate that he be paid on a piece-work basis.
+
+Be "Great Swindle" and Swen's distribution problem in general.
+
+Munson said that, while the photo-books should pay their own way, it was never contemplated that The Great Swindle would be a commercial success. Distribution of such material is Swen's great problem.
+
+SCHILLER wrote Munson that he (FTUC) couldn't use The Great Swindle. Munson thinks professional jealousy entered into this. SCHILLER made some criticism to the effect that the booklet bears no Trade Union logotype, whereas he should know perfectly well that lithographed material never does.
+
+SCHILLER should simply be told: "Put out so many copies of the Great Swindle." Alternatively, the geographic Divisions should give indigenous Anti-Communist groups $25,000 or $2,500 and say: "This is yours if you mail out umpteen thousand copies of the booklet with it,"
+
+Re State Dept. and Great Swindle. Munson suggested my giving a copy of
+the Great Swindle to Mrs. Crosswell or Col. Stubbs and asking them to recommend
+it to MacKnight as something they had come across, with the suggestion that the
+State Department buy copies of it for all their Reading Rooms.
+
+SECRET

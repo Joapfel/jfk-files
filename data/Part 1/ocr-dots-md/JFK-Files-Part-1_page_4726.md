@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_4726.png
+
+Convert to MarkdownThe saga of Orlando Bosch (AT: October 29)
+
+The case of the anti-Castro terrorist leader whose network reportedly extends from Miami deep into Latin America has taken its most bizarre turn.
+
+Amid widespread speculation about Orlando Bosch's involvement in both the September 21 car-bomb slaying in Washington of former Chilean ambassador Orlando Letelier and the October 6 crash of a Cuban airline jet that claimed the lives of all 73 persons aboard, Venezuelan authorities suddenly announced the arrest of the 49-year-old Miami pediatrician and old CIA hand on October 14. Since then, the veil of intrigue around Bosch has begun lifting, threatening to implicate the CIA, FBI, Miami-based Cuban exiles and high-ranking officials of Venezuela and Chile...
+
+It all began when Caracas police rounded up 14 anti-Castro Cubans—including Bosch and Venezuela's own former security chief—and accused them of involvement in a terrorist ring responsible for the Letelier assassination and the Cuban plane sabotage. Further attacks in the U.S. and six Latin nations were said to have been planned.
+
+The next day, speaking at a mass funeral rally in Havana for the Cuban plane crash victims, Castro accused the CIA of backing a campaign that had resulted in nine incidents against Cuban diplomatic missions and its national airline since April G. Thearetz, he announced, he was canceling the 1975 Cuba-U.S. anti-Castro agreement. Castro also warned a Venezuelan photographer, Melvinide Rigg 3, that a CIA agent who had information about the Cuban airline's cloning, Henry Kissinger principally (along with U.S. Complut),...
+
+In January 1984, weeks in the ill-treated Cuban jailhouse, Rigg and his pilot
+
+Then, on October 22, three U.S. journalists arrived in Venezuela on the same plane with a group of nicotine police and prosecutors. One of the journalists—Hassan Inklan of the Miami News—recruited a man greening the Honduran officials as Ricardo (the Monkey) Morales Navarrete—a former CIA agent and FBI informant in Miami who is today the number-two man in Venezuela's intelligence service.
+
+Anti-Castro terror police with the body
+of a passenger on the bombed plane
+
+When the reporters tried to interview Morales — addressing him by his true name — in front of his fellow security officers, he became outraged and placed them under house arrest. After being held incomunicado for 10 hours, Inclán, Taylor Branch of Esguera and freelance John Rothschild were forcibly expelled from Venezuela and placed on flights back to Miami, Branch flew on to Washington to meet with State Department officials and propose a written formal protest. (The Venezuelan government denied the American journalist' charge.)
+
+Notably was talking about how Morales—another member of other anti-Castro Cultures—happened to hold such high positions in the Venezuelan government, but this much seemed clear: the Morales affair, like all the rest, focused strictly on Orlando Borch, Morales, a former CIA operative
+
+Cuba, who was orthopedic surgery at Louisiana State, told him 1 month's American College of Surgeons meeting in Chicago that "a dead fist sleeps inside an unchanging environment and gradually leaves its sensitivity, mobility and individual muscle strength." The average person who wakes barefoot has much less energy
+
+Cuba's leaders and the pilot
+
+Veracruz, Yucatán, and Co.,
+Cuba, who was orthopédic
+surgery at Louisiana State,
+told him 1 month's
+American College of Surgeons
+meeting in Chicago that "a dead
+fist sleeps inside an unchanging
+environment and gradually leaves
+its sensitivity, mobility and individual
+muscle strength." The average person who
+wakes barefoot has much less energy
+
+Coronel Elmer Ybarra, the son of one of the envoys to President Fidel Castro, said the U.S. had sent agents to do the same thing in Colombia, Venezuela and Peru. He added: "We are not really concerned with the United States."

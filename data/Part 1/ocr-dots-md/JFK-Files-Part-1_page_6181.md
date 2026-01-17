@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_6181.png
+
+Convert to Markdown<table><thead><tr><th></th><th>DEBITS</th><th>CREDITS</th><th>PREV BAL</th></tr></thead><tbody><tr><td>MAY 27</td><td></td><td>58,900.00</td><td>7,718.12</td></tr><tr><td>JUNE 1</td><td>349.89</td><td></td><td>57,718.12</td></tr><tr><td>12</td><td>150.00</td><td></td><td>57,377.13</td></tr><tr><td>17</td><td>5,768.00</td><td></td><td>57,427.13</td></tr><tr><td></td><td>48,000.00</td><td></td><td>51,527.13</td></tr><tr><td></td><td>2,000.00</td><td></td><td>11,527.13</td></tr><tr><td></td><td></td><td></td><td>9,527.13</td></tr><tr><td>18</td><td>2,800.00</td><td></td><td>6,727.13</td></tr><tr><td>JULY 3</td><td></td><td>86,582.88</td><td>93,227.13</td></tr><tr><td>9</td><td></td><td>15,000.00</td><td>108,227.13</td></tr><tr><td>29</td><td>5,000.00</td><td></td><td>103,227.13</td></tr><tr><td>AUG 26</td><td>100,000.00</td><td></td><td>3,227.13</td></tr></tbody><tfoot><tr><td colspan="4">THE DEPOSIT OF $86,900</td></tr><tr><td>BUST THIS PARA PLEASE. THANKS.</td><td></td><td></td><td></td></tr></tfoot></table>
+
+THE DEPOSIT OF $86,900 RPT $86,900 ON 3 RPT 3 JULY WAS IN THE FORM OF A CHECK DRAWN BY MARIA SOLEDAD ALBA RPT MARIA SOLEDAD ALBA, MIAMI BEACH, FLORD RPT FLORIDA.
+
+THE DEPOSIT OF $15,000 RPT $15,000 ON 9 RPT 9 JULY WAS IN THE FORM OF A CHECK DRAWN ON THE BANK OF NOVA SCOTIA, NEW YORK. THE DRAKER'S SIGNATURE WAS ILLEGIBLE.
+
+THE DEBIT OF $100,000 RPT $100,000 ON 26 RPT 26 AUGUST WAS A WITHDRAWAL IN CASH MADE ON THAT DATE BY CARLOS WHO ASKED FOR BILLS OF ONE THOUSAND DOLLAR DENOMINATION BUT WAS GIVEN MOSTLY ALL ONE HUNDRED DOLLAR BILLS AND A FEW OF FIVE HUNDRED DOLLAR DENOMINATION.

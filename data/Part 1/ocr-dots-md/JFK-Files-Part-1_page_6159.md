@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_6159.png
+
+Convert to Markdown12 Arnold Circle
+Cambridge, Mass 02139
+
+February 24, 1976
+
+Mr. Gene F. Wilson
+Information and Privacy Coordinator
+Central Intelligence Agency
+Washington, D.C. 20505
+
+RE: FOIA Appeal
+
+Dear Mr. Wilson,
+
+By letter dated 11 and 26 April 1975, I asked for my file. By letter dated, 19 February 1976, you responded with some of the requested documents. However, some were censored and others were withheld altogether. I hereby appeal these deletions.
+
+I look forward to hearing from you within 20 days, as required by law.
+
+MAR 1 2 1976
+
+FEB 11
+
+Mar 1 21 1976
+
+14-00000
+
+This image does not contain any tables."}]

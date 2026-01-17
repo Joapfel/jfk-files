@@ -1,0 +1,70 @@
+# JFK-Files-Part-1_page_4746.png
+
+Convert to Markdown<table>
+   <tr>
+    <td colspan="2">23</td>
+    <td>SEPT</td>
+   </tr>
+   <tr>
+    <td rowspan="4">APRIL 10, 1975</td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>STAFF</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>#</td>
+    <td>OF FILE #</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>F</td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>C</td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>O</td>
+    <td></td>
+    <td></td>
+   </tr>
+  </table>
+
+T 870870
+
+614233
+
+PAGE 02
+TO:11317332 JUL 76
+
+In 070269
+
+QUAT 19637
+
+WITH PLOT. ESLOGIC-27 CLAIMED NOT TO KNOW ANYTHING ABOUT DABANSO AND SAID WE WOULD BE INTERESTED IN HERALD TRACES.
+
+3. IN GENERAL CONVERSATION BASED ON MEDIA COVERAGE THIS SUBJECT. ESLOGIC-27 PROFESSED NO KNOWLEDGE ABOUT PLOT AND REITERATED OPINION EXPRESSED BY SOME THAT COSTA RICANS PERIODICALLY COME UP WITH PLOT STORY TO TAKE PRESSURES OFF OTHER PROBLEMS. PER SAN JOSE AND MOS GUIDANCE, STATION CASE OFFICER DID NOT ASK ESLOGIC-27 ANY QUESTIONS BASED ON INFORMATION PROVIDED IN PREVIOUS TRAFFIC THIS SUBJECT.
+
+4. NO STATION TRACES DABANSO. WOULD APPRECIATE RECEIVING ADDEE-traces indicating what, if anything, can be passed liaison.
+
+5. RE ACCUSATIONS OF TITO ARANA INVOLVEMENT REPORTED REF. 9. JULY. GUATEMALA CITY PRESS QUOTED STATEMENT BY FACIO CATEGORICALLY CONDEMNING "IRRESPONSIBLE AND UNFOUNDED SPECULATION BY NEW COMMENTATORS" LINKING TITO ARANA TO "SUBVERSIVE ACTIVITIES AGAINST COSTA RICAN GOVERNMENT."
+
+6. FILE1 18-9-5, 201-0261695, 201-0104706, E2, IMPORT.
+
+SECRET
+
+14-00000

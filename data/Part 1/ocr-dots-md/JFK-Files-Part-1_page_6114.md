@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_6114.png
+
+Convert to Markdown# Administrative - Internal Use Only
+
+(6). Subject: Marian Elaine Fuller
+Date: 30 June 1972
+Origin: Washington, D.C.
+File Number: 100-47256
+
+(7). Subject: Marian Elaine Fuller
+Date: 12 October 1972
+Origin: Washington, D.C.
+No Bureau File Number or Field File Number provided.
+
+b. One INS report entitled "Sugar Cane Cutters Returning from Cuba," dated 29 April 1970, originating in Portland, Maine. A copy of this document is attached for referral to the Immigration and Naturalization Service so they can correspond directly with the requester.
+
+c. Three documents originating with this Agency, of which sanitized versions are attached. Further descriptions are as follows:
+
+(1). Name Trace Request dated 12 November 1968, exempt per (b)(3)(a)(sources and methods), (b)(6)(privacy) and (b)(1)(properly classified) of the Freedom of Information Act, as amended.
+
+(2). Memorandum dated 21 November 1968, exempt per (b)(3)(b)(CIA Act of 1949) and (b)(1) (properly classified) of the Freedom of Information Act, as amended.
+
+(3). Cable dated 20 February 1970, exempt per (b)(3)(b)(CIA Act of 1949) and (b)(1) (properly classified) of the Freedom of Information Act, as amended.
+
+Charles A. Briggs
+Chief, Services Staff
+
+Administrative - Internal Use Only
+
+-2-

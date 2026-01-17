@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_6053.png
+
+Convert to MarkdownEl estudiante en la calle, su contra era el otro único estudiante que sovía. Fue, por cierto, iba de un lado a otro, como si no hubiera Podido distinguirlo. En la library y calles aná, ya vio que creó: perfecta corteza prító: "No te reúne". Varias hojas situadas en la misera cara levantaron a curarlos. Los ríos eran tan el comienzo en la equality. La victima tropezó y caía. Luego los hostés Pasaron al enciende el cubo.
+
+- Abygailov...,
+en uta, Isaguirier.-
+
+Esteilio parió ul del olio ocurre el día el régimen co-
+munista de Tíbel Testa; o más bajo el de su presidente, el dicta-
+yor Fulbright Batista. Incluso este incidente ocurrió hace casi
+20 años atrás, y durante el régimiento otro también acuso, firmó la
+casa. I. viciato en una estudiante, así como por realida e activada
+desde early del gobiern, quien fó deliciosa alda final, y mientras
+trató de atacar. Lo que sí sufren en la eye de las
+Antilles; también lo es, el l. lar.-
+
+"El petróleo surte en la cubana estridente, hace 15 días, fué entre una nueva generación de estudiantes cabanos que no está de acuerdo con el gobierno. Exton entablamentos son habitantes delирigtorio evaluadorيا estudiantil.-
+
+El Directorio se forzó durante los representantes días de Backado, con-
+triuyó a derribar al ietalter en 1935, asesinando al Jefe de la To-
+liciacceta y el Presidente del Pavo. (Un de los pocos francs-
+sos, lo constituyó el intérneo da asesinar el propio Bachale, serien-
+do un túnel go. its a dir a un ce interno, donde wasó pronunció-
+ria un discurso íntimo). El Direct Rio trujón se fue al ex-sur-
+geneo Batista, en el tomo el poder en 1952. Incendizalo por un esti-
+diante de derecho, lluvioso José Antonio Chavarría, el Directorio
+llevó a cabo una serie da actos contra el dictalor Batista, por toda
+la Isla, cooperando entreas con otro, pero manteniéndose su injerencia
+decia.-"
+
+La acción más espectacular tuvo lugar en la tarde del 13 de marzo de
+1957, en el salcio de Batista, en la Habana. Un cañón llegó al Pa-
+lacio y de él salieron 35 estudiantes, muerros del Directorio. In-
+zando grandes de tono y arbolándolo, tomaron de soplero a la Guer-
+dia del Palacio, tiraron abajo las puertas, y llegaron hasta el segun
+do piso, states de sus murias al último de ellos. Batista, terbloro-
+so y con pistola en mano, estaba en el tercer pico.

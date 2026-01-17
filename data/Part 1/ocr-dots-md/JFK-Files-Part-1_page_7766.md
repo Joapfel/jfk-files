@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_7766.png
+
+Convert to Markdown16.07 In appearance, he looks Robust and healthy X Essentially like most people his age ______ Unhealthy ______
+
+16.08 Does he have A flushed face A pot belly A tendency to breathe hard with exertion Cold clammy hands A tendency to sweat to any unusual degree Foul breath ______
+
+16.09 To your knowledge, does he adhere to a special diet or health regimen? Yes No If Yes, please explain:
+
+16.10 As an overall impression, does he strike you as a person who is
+Highly energetic and tireless X
+Energetic, but in spurts
+Moderately energetic
+Lethargic, listless
+
+16.11 Is there anything about the state of his health or his family's health that warrants further comment?

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_4317.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+INSTRUCTIONS
+
+1. If funds, in the form of other than U.S. Dollars were on hand, received, or disbursed during the accounting period, all pertinent data, i.e., rate, method of acquisition, etc., must be shown. If advances have been made to third parties, enter the total of such advances outstanding at the beginning of the accounting period on line la.
+
+2. If more space is required to explain receipts, prepare receipt form, number, and attach hereto. In every case, completely identify the source of receipts.
+
+3. Attach a voucher for each expenditure and assign a number thereto in numerical sequence. The voucher may be the receipt obtained from the payee. When a receipt is not obtained, prepare a certificate and attach as a voucher. When space on form is not sufficient to list all vouchers, prepare a listing on a separate sheet and enter the total under item 3. If advances to third parties are outstanding at the close of the accounting period, attach an itemized list and enter the total on line 3a.
+
+4. Final credit will not be given for disbursements which are advances to be accounted for. When accounting for advances are obtained, list as expenditures or refund of cash, as appropriate.
+
+5. Total receipts entered on the line "Total to Account For" must agree with the total disbursements entered on the line following "Total Accounted For."
+
+SECRET

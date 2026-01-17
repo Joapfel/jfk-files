@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_6152.png
+
+Convert to Markdown12. Report dated 8 June 1967, Cincinnati, Ohio; Field office file CI 100-13602; Bufile 100-438262. Subject: Larry Wolf Rubin
+
+13. Report dated 7 July 1967, Detroit, Michigan; (no file #s) Subject: Students for a Democratic Society
+
+14. Report dated 22September 1967, Detroit, Michigan; File # 105-11627; Bufile 62-110030. Subject: Inter- University Committee for Debate on Foreign Policy
+
+15. Report dated 7 December 1967, Phoenix, Arizona; (no file #s) Subject: Anti-draft activities December 4-8, 1967; Demonstration at Selective Service Hqs, Tucson, Arizona, December 4, 1967
+
+16. Report dated 14 December 1967, Portland, Oregon; (no file #s) Subject: Antidraft Activities, Portland, Oregon
+
+17. Report dated 11 December 1967, Cincinnati, Ohio; Field office file CI 100-15928; Bufile 105-142056. Subject: Carl Preston Oglesby, Jr. - Security Matter - SDS
+
+18. Report dated 31 January 1968, Washington, D.C.; (no file #s) Subject: Carl Preston Oglesby, Jr. - Internal Security - CU.
+
+19. Report dated , 24 June 1968, Cincinnati, Ohio; Field office file CI 100-15928, Bufil. 105-142056. Subject: Carl Preston Oglesby, Jr.
+
+20. Report dated 10 October 1968, Washington, D.C., (no file #s) Subject: Foreign Travel - New Left Groups -
+
+21. Report dated 18 November 1968, Jacksonville, Florida; Field office file 105-1613 (no Bufile #) Subject: Philip E. Sanford
+
+22. Report dated 12 December 1968, New York, N.Y.; Field office file 100-148047 (no Bufile #) Subject: Students for a Democratic Society - IS - SDS
+
+23. Report dated 6 January 1969, San Francisco, Calif.; (no file #s) Subject: Carl Preston Oglesby, Jr.

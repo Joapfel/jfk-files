@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_4844.png
+
+Convert to Markdown14-0000
+
+<table><tr><td colspan="6">OUTGOING MESSAGE</td></tr><tr><td>01F</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr><tr><td colspan="6">SECRET</td></tr><tr><td>STAFF</td><td colspan="5">DIRECTOR</td></tr><tr><td>com/c/2815</td><td>TO: FILE c/o/suas, sec/K 4 close po 0</td><td>809923</td><td>DISTRIBUTION 01-27</td><td></td><td></td></tr><tr><td></td><td></td><td>0</td><td></td><td>PER 1A</td><td></td></tr><tr><td></td><td></td><td>0</td><td></td><td></td><td>06</td></tr></table>
+
+TO: IMMEDIATE MANAGUA INFO IMMEDIATE SAN JOSE, CARACAS.V
+
+RYBAT VULOFTY V
+
+REF: CARACAS 29076 |IN 826512|V
+
+1. COSTA RICAN LIAISON HUFABRIC HAS REPORTED THAT ORLANDO BOSCH AVILA, TERRORIST AND LEADER OF ANTI-CUBAN GOVERNMENT GROUP KNOWN AS ACCION CUBANA, WAS ARRESTED IN SAN JOSE AT MIDDAY ON 18 FEBRUARY. HE WAS CHARGED WITH ENTERING COSTA RICA WITH ILLEGAL DOCUMENTS AND COULD BE HELD FOR MINIMUM 24 HOURS. AT REQUEST SECRET SERVICE REP MASTROVITO, SAN JOSE STATION ARRANGED FOR MASTROVITO TO INTERVIEW BOSCH AT HUFABRIC HAS AT 1400 HOURS LOCAL TIME 19 FEBRUARY. MASTROVITO HAD INTERVIEWED BOSCH SEVERAL YEARS AGO IN U.S.Y
+
+2. COSTA RICANS ARE DISCUSSING HOW LONG THEY CAN HOLD BOSCH ON ENTRY WITH FALSE DOCUMENTS CHARGE. THEY CONSIDERING CONTACTING ERYTHROID-33 IN MANAGUA AND DEPORTING HIM TO THAT COUNTRY.V
+
+3. VARIOUS SOURCES REPORTED POSSIBLE PLANS OF BOSCH TO KILL DR. HENRY K I S S I N G E R AND/OR CUBAN AMBASSADOR IN CARACAS OR CHILEAN EXILE LUIS ANDRES P A S C A L ALLENDE, NEPHEW OF SALVADOR
+
+DATE:
+TIME:
+UNIT:
+EXT:
+
+<table><tbody><tr><td>P/DN</td><td>X</td><td>TRAVEL PROGRAM</td><td rowspan="9"></td></tr><tr><td>P/C/N</td><td></td><td>ABSTRACT</td></tr><tr><td></td><td>MDDX</td><td>PREPARE FOR FLAMM</td></tr><tr><td></td><td>CODL NO. (2. 3)</td><td></td></tr><tr><td></td><td>NITRAT (E) C.O.</td><td>19 JA 76</td></tr><tr><td></td><td>CODIE IDN (11)</td><td>ZAN-299282</td></tr><tr><td></td><td>HID (8)</td><td></td></tr><tr><td></td><td>(OR I'VERIFICATION C'DT</td><td></td></tr><tr><td>P/T/M</td><td></td><td>RECORD COPY</td></tr></tbody></table>
+
+RELEASED OFFICE
+CLASSIFICATION
+SECRET
+
+COORDINATING OFFICE
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED U 2 IMPROT
+CL,BY: 054524
+
+<table>
+   <tr>
+    <td>
+     RECORD COPY
+    </td>
+   </tr>
+  </table>

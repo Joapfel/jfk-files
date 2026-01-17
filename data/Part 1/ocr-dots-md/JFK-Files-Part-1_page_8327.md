@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_8327.png
+
+Convert to MarkdownValentin LOGINOV
+
+Edad aproximada de 43-45 años, aunque aparenta menos. Fisicamente
+de complexión atlética, alto. Juega muy bien al ténis. Recientemente
+quedó en segundo lugar en el campeonato del D.F. que tuvo lugar
+en el Club Francia, donde practica este deporte. Cuida muchísimo
+su condición física y más que nada su apariencia. En este sentido
+es muy vanidoso. Muy pocos amigos saben que tiene una hija de
+16-17 años. Cuando le preguntan si tiene hijos hable solo de su
+hijo de 11 años de edad. Le da pena presentar a su mujer, que es
+muy amable y buena, porque se ve de más edad que él. No fuma, toma
+muy poco, aunque cuando la ocasión requiere de tomar mucho aguanta
+y siempre se le ve sereno. Es muy amable en el trato. Nunca trata
+de imponer sus ideas, pero siempre pendiente de convencer por las
+buenas a sus contrincantes. Cuando ve que no puede hacer lo último,
+rompe diplomaticamente los relaciones amistosas con el sujeto.
+En sus ideas es de la escuela estalinista: solo cuenta lo Unión
+Soviética y la última línea a seguir del Partido. Eso quiere decir
+que no tiene ideas propias. Sigue ridelisivamente la "línea" porque
+sabe muy bien que es la única forma rápida y eficaz de escalar en
+su carrera. Le gusta muchísimo la vida buena, tipo occidental,
+aunque antes se dejaría cortar un brazo que confesarselo así mismo.
+Es muy ambicioso y se ve que tiene problemas con sus compañeros de
+trabajo. Hable despectivamente de ellos. No le gusta nada la idea
+de tener que permanecer en Moscú los dos años que vienen. No dijo
+que haría lo posible que al transcurrir esos años lo mandaran de
+preferencia otra vez a México. Su ilusión más grande es trabajar
+en España. Adora a los españoles. La forma de ser de los mejicanos
+no le gusta. Por eso si quiere regresar, quiere decir que profiere
+cualquier lugar donde vivir, menos Rusia. Creo que precisamente

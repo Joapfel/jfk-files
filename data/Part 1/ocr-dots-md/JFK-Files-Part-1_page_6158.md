@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_6158.png
+
+Convert to Markdown(7) Three FBI files, in addition to those unearthed during the initial search, were discovered. DRC-02629 and DBB-89223 were referred to the FBI on 5 October 1976 for direct contact with the requester, and DBB-24857 was similarly forwarded on 26 April 1977.
+
+(8) Three State Department documents were forwarded to the Bureau of Public Affairs on 1 October 1976. Two of these were State memoranda addressed to the CIA. Passport called on 26 October 1976 to advise that both had already been referred earlier. The third document--Tab 21(D)--was cleared for release by the same telephone call.
+
+c. A classification review has been conducted on all DPO documents involved in this appeal, and all have been marked to reflect this review. In those cases where segregation of non-exempt data has been possible, such has been identified and recommended for release to Mr. Ogleby. In those cases where the documents have been denied in toto, meaningful segregation of non-exempt data pertaining to him has not been feasible.
+
+3. (U) Recommendations: See Tabs 12-48.
+
+4. (U) This memorandum has as yet not been coordinated with Mr. Ziebell of the Office of the General Counsel.
+
+Winthrop W. Brown (C)
+DPO Appeals Officer (U)
+
+Attachments:
+
+* Tab R -- References
+* Tabs 12-48 -- As Stated

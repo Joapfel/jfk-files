@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_7249.png
+
+Convert to MarkdownS E C R E T
+
+CONTACT REPORT
+
+SUBJECT: LICOWL-1
+DATE OF MERTING: 13 December 1966
+
+1. I met Subject on 13 December 1966 at the corner of Nazas and Molchor Ocampo at 1400. The meeting was held in my car and lasted until 1515. I paid him 800 MN salary for December and 800 MN Christmas bonus for 1966. Next meeting is for Tuesday, 3 January 1967 at 1500 at the same place.
+
+2. Subject started out by showing me 4 pieces of paper he had picked up near the incinerator. They were worthless and I later told him not to attempt to pick up any more paper since it is not worth the risk.
+
+3. I then reviewed the SGSWIRL examination with him. I told him that because of his lies and exaggerations, none of his previous information was considered valid and that rather than "being more useful to us" his material had meant a lot of work for nothing. I told him that I would give him another chance and that we were starting a new operation. Throughout my talk he was quite uncomfortable. He did not try to defend himself but simply agreed to whatever I said. Although he thanked me for the second chance he did not appear to be too contrite.
+
+4. Following are the few interesting items from his notes :
+
+a. On 12 December at ca 1700 KORMUSHKIN came in with another Soviet. KORMUSHKIN asked Subject when he was going to invite him to his home for a drink. Subject suggested Sunday, 18 December. They agreed to meet at the store at 1500. Subject described the other Soviet as a young diplomat ca 29-30 with a thin build who comes in only seldom. He was a friend of Oleg NECHIPORENKO (was already here when NECHIPORENKO was here) and went to the fiesta at Subject's home which was attended by NECHIPORENKO and KDSTIKOV and wives. (COMMENT: I remember a report on this fiesta but can't find it anywhere). Subject asked me for instructions, dinner, girls, etc? I told him to go along with it, have them to his house without other guests and offer them only liquor and snacks. Subject is to determine KORMUSHKIN's motive in asking himself to Subject's home. By the way whenever Subject has mentioned KORMUSHKIN in the last few months he has invariably remarked that he is a very heavy drinker.
+
+b. On 6 December LOGINOV came in from 1230 to 1242. He had previously asked Subject about helping the Soviets to find a house for their school. This time he asked about the new (LILYRIC) building - how much an apartment costs (1500 MN), who lives there (chemical engineer in penthouse (LILYRIC), a German family on the second floor, etc. LOGINOV's questions were general and so were Subject's answers.
+
+c. On Saturday 3 December 1966 SILNIKOV came in from 1412 to 1430. He asked for two receipts of ca 5 MN each for bread, saying that he had lost the real ones. Subject thinks he uses these small sums to buy beer and girlie magazines. SILNIKOV then leafed through a girlie magazine and then said he wants Subject to find him a girl for whose favors he is willing to pay 100 MN. (COMMENT: chiseling 10 MN in false receipts and in the next breath offering 100 MN for a girl?)
+
+FILE: P-8764 P-11707 P-11712 P-6414

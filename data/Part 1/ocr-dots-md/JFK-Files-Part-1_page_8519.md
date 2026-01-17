@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_8519.png
+
+Convert to MarkdownCONTRACT REPORT
+
+SUBJECT: BEsABER P-87.77
+DATES OF MEETINGS: 11 and 19 January 1968
+
+1. I met Subject in his room at the Del Paseo Hotel from 14:15-15:45 on 11 January and from 14:15-15:15 on 19 January. The next meeting will be arranged by telephone.
+
+2. The Soviets. As of 19 January, Subject had not seen or talked with any of the Soviets since his telephone conversation with LOGINOV on 28 September. Subject did, however, receive a Christmas card from LOGINOV. With my agreement, Subject sent inexpensive gifts along with Christmas cards to LOGINOV and CHEYKHOV, but they weren't delivered until the week of 15 January. Subject explained that before Christmas, he assigned his salesman the job of delivering a score of Christmas gifts, including LOGINOV'S and CHEYKHOV'S, around town, but shortly after Christmas, found that the salesman had not delivered any of them. This discovery caused Subject to fire the salesman, who had been increasingly derelict in performing his job over the past few months and who, Subject had recently learned, had begun taking dope. Subject consequently wrote "better-late-than-never" notes on the cards accompanying the undelivered gifts and had his new salesman deliver them. I have instructed Subject to leave the initiative for the next contact up to the Soviets.
+
+3. Goliman COHARY. Subject ran into COHARY on the street one day during the first week of January. COHARY seemed delighted
+
+COPIES MADE p-11712
+
+File cc: P-6235 (p.1) P-10,056 (pp.1-2)
+P-11712 (p.1) , P-9097
+
+14-00060

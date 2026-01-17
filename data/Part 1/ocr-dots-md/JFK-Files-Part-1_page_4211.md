@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_4211.png
+
+Convert to Markdown7 December 1964
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Telephone Conversations with AMBIDDY-1 and Martin Ferrer
+
+DATE: 6 December 1964, 1630 and 1645 hours
+
+1. After being notified by the Office of Security that AMBIDDY-1 had called on the emergency number, the undersigned returned A-1's call. A-1 stated he had just received a message from AMJAVA-4 saying the SANTA MARIA was located at Cerrania Bank due to bad weather and would remain six hours at that position. In the message A-4 said he would comply with the order given him to return, however, requested Operation VICTORIA be reconsidered. A-1 requested that the following portion of A-4's message be passed to appropriate persons: "I (A-4) request the suspension of Operation VICTORIA be reconsidered for the good of future operations because a person who loses faith in operations, believing himself subject to foreign decisions, is a demoralized person." In light of A-4's message, A-1 urged that suspension of Operation VICTORIA be reconsidered. I assured A-1 that his message would be delivered.
+
+2. DC/WH/SA was notified of the above message. On the instructions of DC/WH/SA the undersigned called A-1 and advised him that the contents of his conversations with Mr. Santell (Sanchez) on 5 December were still valid and our position regarding Operation VICTORIA remained the same.
+
+File:
+A-1 201
+Conversations
+Op VICTORIA
+
+SECRET
+
+<table><tr><td>GROUP I</td></tr><tr><td>Enclosed is Information</td></tr><tr><td>for Group I only</td></tr><tr><td>and declassified</td></tr></table>
+
+Above conversation conducted
+in prearranged frequently
+changed privacy code

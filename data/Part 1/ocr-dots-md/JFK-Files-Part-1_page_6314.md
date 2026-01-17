@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_6314.png
+
+Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+<table><thead><tr><td colspan="3">DISPATCH</td></tr><tr><td colspan="2">CLASSIFICATION<br/>SECRET</td><td>PROCESSING</td></tr></thead><tbody><tr><td>TO</td><td colspan="2">Chief, Task Force W</td></tr><tr><td>FROM</td><td colspan="2">Chief of Station, JGA-18</td></tr><tr><td>RECEIVED</td><td colspan="2"></td></tr><tr><td>STATUS</td><td colspan="2">OBSOLETE/Operational—Transmittal of CAC Reports</td></tr><tr><td>ACTION REQUIRED</td><td colspan="2"></td></tr><tr><td>EXPLOSION</td><td colspan="2">OFSA 3787, 16 April 1962</td></tr><tr><td>ACTION</td><td colspan="2">: For your information</td></tr><tr><td colspan="3">Transmitted herewith are CIA reports, made 134 through 149, and 156.<br/>An index is attached.</td></tr><tr><td colspan="3">END OF DISPATCH</td></tr><tr><td colspan="3">Attachments: (Handwritten)<br/>CIA-146 thru 149, 1 ea.<br/>CIA-156 (1 copy)<br/>CIA Index, in duplicate</td></tr><tr><td colspan="3">Distribution:<br/>J - TP/N, w/atts. (h/s)</td></tr><tr><td colspan="3" style="text-align:right;">RETURN TO CIA<br/>Background Use Only<br/>Do Not Reproduce</td></tr><tr><td>CROSS REFERENCE TO</td><td colspan="2"></td></tr><tr><td>CLASSIFICATION</td><td colspan="2">SECRET</td></tr></tbody></table>
+
+<table><tbody><tr><td>DATE COMPLETED</td><td>APR 20 1962</td></tr><tr><td>DISTRIBUTION AND NUMBER</td><td>UFGA-3546/3</td></tr><tr><td>HEADQUARTER'S FILE NUMBER</td><td># 29-130-55</td></tr></tbody></table>

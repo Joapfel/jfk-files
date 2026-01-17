@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_7481.png
+
+Convert to MarkdownSECRET
+
+NO FOREIGN DISSEN
+
+c. In July 1933 the Nanking Government ordered the Municipality of Greater Shanghai to take drastic measures to stop the propaganda appearing in a number of publications including the China Forum, published by Subject. Subject's magazine allegedly published Communist propaganda; in this connection a protest was to be lodged against him with the American Consulate.
+
+d. Subject was described as a "self-confessed Communist" in 1933. The following year he wrote an article entitled "I Break With The Chinese Stalinists" which appeared in the September-October 1934 edition of The New International, a Communist propaganda organ published in New York.
+
+2. An undated report from an unknown source indicated that Subject had turned against the Stalinist Government of the USSR, becoming a Trotskyite (probably during the mid-1930's). Friends of Subject stated that even during the height of his Trotskyist career he never accepted money from any group, that he was open and above board, and that he never engaged in any conspiracies to overthrow established government. They also stated that Subject was attracted to Communism by "sheer idealism." Immediately after Pearl Harbor, ISAACS broke with the Trotskyite group as he had broken with the Communists and began writing propaganda for the United States Government.
+
+3. According to a report dated 25 June 1951 from a fairly reliable source, Subject served at that time as a Ford Foundation advisor on Far Eastern Projects.
+
+4. For additional information concerning Subject you are referred to the Federal Bureau of Investigation and to the Department of the Navy (no documentation available).
+
+CSCI-3/778,880
+
+Encl: 1 attachment as stated above.
+
+RID/CE: JHA/AI/dc1
+
+Based on:
+
+FE/1, 201-18446*
+
+CHINA CIA OP 1, SMPD 2713, 10-11-32
+CHINA CIA OP 1, SMPD 4606, 16-5-33
+CHINA CIA OP 1, SMPD 4718
+CHINA CIA OPI, SMPD 4685 & 4685/C
+CHINA CIA OP 1, SMPD 5454-8, 21-12-33
+CHINA CIA OP 1, SMPD 6628
+FDZ, 201-488-8
+SO for NAVY referal.
+
+SECRET
+
+NO FOREIGN DISSEN
+
+CS COM
+
+<table><tr><td>SECRET</td></tr><tr><td>KO FOREIGN DISSEN</td></tr><tr><td>(91)</td></tr></table>
+
+USDA FOR OFFICIAL USE BY WAY OF REFERENCE ONLY. NO COPYRIGHT OR OTHER FORM OF PROPERT Y IS EXPRESSED OR IMPLIED.

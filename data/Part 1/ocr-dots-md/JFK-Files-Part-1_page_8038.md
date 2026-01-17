@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_8038.png
+
+Convert to MarkdownSECRET
+
+part in Latin American relations. In the latter part of 1952, the military plan was drawn up by Sanchez Arango with the aid of Foreign Minister Raül Ovegueda and often in the conferences the presidential candidate (Costa Rica) Jose Figueroa took an active part, promising the support of Costa Rica should he be elected president. Dr. Juan Jose Arevalo participated as well, to the extent of using his influence with the Guatemalan officials that they might join the movement later. On the Caribbean coast of Guatemala is a place called Livingston. To the east, there is a road which leads to a little native village (Indigera) named for the moment forgotten by this agent. To the south-west of this place, there is a very bad road which ends in a little valley at the end of which there is a series of low hills. Back of these hills is situated a camp of the Caribbean Legion. Here is established the General Headquarters of Aureliano Sánchez Arango. There existe here a force of 4,000 men regularly trained, quartered and fed. Their practice is held daily under the direction of General Abolárdos Cúndra, veteran of the Spanish Civil War and one of the organizers of the movement of Cayo Confitres.
+
+The force situated here is divided into two battalions, one named Battalion #4, PABLO ER LA TERRIERE BRAU, the other Battalion #5, IGUALIO AGUIRREZ. The force is divided into small groups and taught to use machine guns (tripod type), also hand-type Garand Rifles, automatic repeating rifles #1-#3. Nearly all the officers are veterans of the Spanish Civil War. In addition to the military practice, the officers get together once a week for conferences over historical and political matters as expounded by Juan José Arevalo, Romulo Betancourt, Aureliano Sanchez Arango, etc.
+
+Near Livingston there is a little gulf on which is situated Puerto Barrios. South of this port, there is a tiny port not marked on the map, named Montagua. In this place with landing craft, practice is held with the idea of disembarking in Cuba. From Montagua, several shipments of arms have been made to Cuba. The other large concentration of men and arms is in Costa Rica.
+
+Northwest of Puerto Limón on the Caribbean coast of Costa Rica, there is a place known as La Virgen. Back of this reached by a small country road, back of some low hills, is found the camp. Here are 2,000 men or more divided into three battalions, #1 Augusto Cesar Sandino, #2 Morazan, #3 Antonio Matoo. A little north of this camp, there is a kind of landing field which contains four (English) Lancaster Barbards, acquired from Canada by Engineiro Carlo Hevia in Canada. The men in this camp carry English repeating rifles, but they also have Thompson machine guns and Honda machine guns with plenty of ammunition. The men in Guatemala also have this additional arm.
+
+The plan is that on landing in Cuba of the "patriots" those arms will be given to all the civilians who are sympathetic with the cause. Cubans generally are more familiar with this type of arm than the English repeating rifle, whose use is not easy to learn in a few minutes. One crew of the planes are English. The leader of the outfit is a Canadian named Chrishole, who was a Captain in the Air Force during the war, flying Lancaster Barbards. He is a personal friend of Carlos Eson Ponegrove. This camp did not amount to much when Cilento Ulato was President of Costa Rica, but the minute Figueroa came to power, the arms and men began to
+
+CGH
+
+Seated

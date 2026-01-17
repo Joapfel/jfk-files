@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_7489.png
+
+Convert to MarkdownTOP SECRET
+
+According to a usually reliable source of this agency, PALLITO was not able to completely refect to Philippines life after having lived in the United States. He is known for his strong pro-American views and according to sources probably his greatest desire is to reside permanently in the United States. Although it is known that PALLITO was on friendly terms with Jose LACAYO there is no reason that he shared LACAYO's political views.
+
+Jr. F. DELANEY is probably Father DELAIREY, Jesuit Chaplain at the University of the Philippines.
+
+f. Cyprus for Cyprus University may possibly be Syracuse University.
+
+S. Ito is probably Ricardo LAZAR, Philippine newspaperman who was allegedly associated with Harry KALANES in the International Longshoremen's and Warehousemen's Union (ILWU) in Honolulu. LAZAR was born on 3 April 1915 in Manila, however, most of his life has been spent in Hawaii. He was naturalized a U.S. citizen in 1948 and returned to the Philippines in 1949, where he lost his U.S. citizenship in 1952. There is no information in the files of this office which indicates that LAZAR has returned to Hawaii. For additional information concerning LAZAR, reference is made to a memorandum to the Bureau, dated 23 November 1949, subject: "Ricardo LAZAR (aka Ricardo LAZAR)", our reference 50 ES-20307.
+
+h. Uncle Tom is Hon CUYGAM, Uncle Ben is Walter CUYGAM with whom the Bureau is familiar as a result of previous correspondence concerning his daughter, Caron Jane CUYGAM (FBI File No. 105-52561). From the wording of subject's letter this office assumes that Walter CUYGAM is aware that the Federal Bureau of Investigation is investigating Hor CUYGAM. It also appears that Walter CUYGAM gave subject a letter to deliver personally to his brother Hor CUYGAM, possibly to avoid a bill intercept by the Bureau. It should be noted that subject stated that he mailed the letter instead.
+
+4. In view of the sensitivity of the source of the above information, it is requested that no further dissemination be made of the information without prior clearance with this Agency.
+
+CS CE-2763
+
+Attachment - A copy of a letter to Adreese only
+
+Distribution:
+
+TOP SECRET
+
+21-19116

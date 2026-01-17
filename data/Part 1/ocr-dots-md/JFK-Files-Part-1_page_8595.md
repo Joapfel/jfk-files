@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_8595.png
+
+Convert to MarkdownFiles: P-13,042
+P-13,623
+P-13,223
+P-11,712
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Conversation with Ed ELLY with USIS
+
+DATE : 3 December 1969
+
+1. On 3 December 1969 I had a brief conversation with Ed ELLY to find out if he knew any of the Soviets at the French Club, and to brief him on these individuals. He did not know neither CHERNYSH (P-13,042) or SHEVCHINKO (P-13,623) by name and when I showed him pictures, he said that he did not recognize them by sight either. Since he is a relatively good player and they are relatively poor, it is not likely that they would play together. He said, however, that he would keep his eyes open for them and would try to identify some of the contacts they appear to be making at the French Club. I explained to him who the two Soviets were and why we were interested in them, and he said that he would be only to happy to do what he could.
+
+2. I also asked him about Gloria PINTO (P-13,223) and showed him a picture of her, but while he thinks he may have seen her, he does not know her. He will check with his wife who may very well know her since she is a regular player and probably more or less in the same league with Gloria. I told ELLY that Gloria had been very close to LOGINOV (P-11,712) and that I was interested to find out if she would now, since he has departed, transfer her attention to one of the other Soviets. (I was specifically interested in finding out whether or not Gloria and CHERNYSH had met on the morning of 29 November as indicated by LIENVOY, but ELLY had not been at the French Club that morning.)
+
+3. ELLY commented that he had found it hard to make contacts at sports clubs in Mexico than in other countries. Mexicans were particularly difficult to become friendly with and it was not at all uncommon to have a tennis match with no personal contact whatsoever. He said, however, that he thought the French Club was better than most in Mexico City. Even though the people at the French club were rather elanish, it was easier to get to know them there than, for example, at Chapultepec.
+
+Vincent P. RIZZUTO
+
+SECRET
+
+TR

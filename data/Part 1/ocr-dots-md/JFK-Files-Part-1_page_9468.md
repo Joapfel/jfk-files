@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_9468.png
+
+Convert to Markdown17 May 1950
+
+Subject: Report on Distribution of Der Monat through an Exemplary Outlet
+
+While in Berlin I acquired a copy of the report dated March 13, 1950. I do not know whether it has been made available. The information in it seems to me interesting in itself and valuable for what it suggests in terms of further activities.

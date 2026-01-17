@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_5255.png
+
+Convert to Markdown# CONSEIL TECHNIQUE
+
+Dr. Lebert JEAN-PIERRE : Ancien Membre du Conseil d'Administration de la B. N. R. H. — 1960-1961
+
+St. Louis JEANTY : Ancien Directeur Général des Contributions
+1947-1950
+
+J. Remusat THEBAUD : Ancien Directeur de la B. N. R. H.
+1912-1958
+
+Moïss E. CADET : Ancien employé de la B.N.R.H.
+1946-1949
+
+Nelson GELIN : Ancien employé de la B. N. R. H.
+1949-1957
+
+# CORRESPONDANTS ETRANGERS
+
+IRVING TRUST COMPANY : New-York
+
+EMPIRE TRUST COMPANY : New-York
+
+PAN AMERICAN BANK OF MIAMI : Miami
+
+MANUFACTURERS HANOVER TRUST COMPANY : New-York
+
+THE AMERICAN EXPRESS COMPANY Inc. : New-York
+
+AMERICAN TRUST COMPANY : New-York
+
+FIRST NATIONAL BANK OF BOSTON : Boston, Massachusetts
+
+MIDLAND BANK LIMITED : London, Angleterre
+
+CREDIT LYONNAIS : Paris, France

@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_5088.png
+
+Convert to Markdown# "The bus has left with the dogs": How they blew up the Cuban plane
+
+The following account of the bombing of the Cubana Airline jet is based on secret Venezuelan court documents. Most of the information comes from the confessions, since repudiated, of the men charged with the crime.
+
+Hernan Ricardo, 22, had been working at the private detective office of Luis Posada in Caracas for about a year when, on September 10, 1976, Posada introduced him to a "Mr. Panyagua." Posada assigned Ricardo to help "Mr. Panyagua" get around, as he was a stranger in the country. After a few days of helping "Mr. Panyagua," Ricardo realized that he was really Orlando Bosch, "the maximum lender of the Cuban people."
+
+On the night of October 5, Ricardo, Bosch and Freddy Lugo, 25, met at a Cuban exile meeting. At midnight that same day, Ricardo and Lugo flew to Trinidad aboard a Pan American flight. They stayed overnight, and the next morning inquired about Cubana Airline flight 455, stopping in Barbados en route to Cuba. The clerk told them that the Cuban plane had been delayed, but that there was another flight to Barbados leaving immediately. Ricardo protested, but had trouble getting his message across since his English was not very good.
+
+Standing behind Ricardo in line were a few members of Cuba's championship fencing team, who were returning home after an international tour. One of the fencers, also booked on Cubana flight 455, translated for Ricardo. "He says that he doesn't want to go on an earlier flight. He only wants to travel on Cubana 455 and he's willing to wait until it's ready to go."
+
+Lugo and Ricardo each checked a bag, and Lugo carried with him a dark alligator shoulder bag with two cameras and a tube of Colgate toothpaste in it. With 16 Cuban fencers, 6 medical students from South America, 5 Koreans and 45 other, mostly Cuban, passengers and crew, Lugo and Ricardo finally got on the plane. About half-way through the 20-minute flight, Ricardo got up to go to the bathroom to plant the explosive.
+
+The bomb made a big bulge in Ricardo's pocket and he was very nervous.
+
+It took only a few minutes in the toilet, but then Ricardo found he couldn't get out. He panicked and started banging on the door. The stewardess tried to open the door from the outside, but she couldn't. She called one of the pilots from the cockpit who kicked at it three times with his foot. Finally the door opened and Ricardo stumbled out. By the time he got back to his seat he was drenched in sweat and appeared very nervous. For the rest of the flight Ricardo held a newspaper in front of his face.
+
+They got off the plane in Barbados, collected their luggage, and made their way to the Hotel Village. At one point in the cab ride Ricardo told the driver to stop, jumped out and looked up at a passing plane. He was very agitated and nervous.
+
+Lugo described the scene ten minutes later as follows. "The people in the streets were very agitated and pointing up to the sky, saying that a plane had fallen. Ricardo said that we were in big trouble because we had traveled on false passports. At the hotel Ricardo told me to take the bags up to the room while he registered in a false name. He said he was calling Venezuela for advice."
+
+He had difficulty getting through. One call that he did get through was to his girlfriend, Marines Vegas. She testified that he gave her a number and told her to get the following message to Luis or Gustavo: "Tell them I am in a desperate situation and that they should send someone quick. That this is a question of life or death and that 'the bus has left with the dogs.' Tell them that I threw away the phone numbers."
+
+Ricardo got a phone call back from Caracas during which Lugo quotes him as saying, "What's happening. Luis? I have a lot of problems. I don't know what to do. The bug has fallen into the water. Tell this to Panyagua [Bosch]."
+
+Just as he put down the phone Ricardo saw someone starting at him and ran up to the room in a panicle. Lugo says Ricardo told him, "Let's get out of here right away. The man who stared at me in the lobby is a C-2 (agent of Castro's secret police)."
+
+"We took a cab to the docks," Lugo said, "and Ricardo threw something in the water. Then he said, 'We should get the first plane out of here, no matter where.'"
+
+They caught a plane to Trinidad, leaving their bags in the hotel room in Barbados. On the plane Ricardo buried his head in his

@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_7644.png
+
+Convert to Markdown<table><tr><td>Martes 3 LICALLA</td><td>A las 1114 Hs. llego al Club una mujer de poco más de 50 años, misma que passó al interior del Recididor en el cual tuvo contacto con LLO, dicha mujer se fú as a las 1242 Hs.</td></tr></table>

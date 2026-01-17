@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_5418.png
+
+Convert to MarkdownSECRET
+LINDIS
+
+-2-
+
+in supporting plotting of this nature, that our policy had not changed, and that he should know this categorically. Brun smilingly accepted this statement, but obviously considered the "approach" in Port-au-Prince was more important than my exposition of U.S. policy.
+
+Brun said he was in regular contact with Major James Balog who, he described, as an intelligence officer from the Pentagon. He said that he, Brun, had written a report on his opinion re things Haitian and had given one copy to Major Balog and one to Mr. Burris. He then handed me a copy which is attached. This report is basically a plea for U.S. prior indication to Charles that the U.S. would support any Charles-formed provisional government created following the overthrow of Duvalier.
+
+I closed the half hour meeting with Brun insisting again that he should clearly understand the U.S. Government was not interested in becoming involved in this sort of an operation.
+
+Attachment
+
+ARA:CAR:ETLong:jr
+
+SECRET
+LINDIS
+
+JACQUA
+1967
+
+SECRET
+LINDIS

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_8786.png
+
+Convert to MarkdownSECRET
+
+H/W Attachment to FUMA-37762, 27 August 1969
+
+24 August 1969
+
+# PROGRESS REPORT
+
+Subject: LIBACON-1
+Period Covered: January 30 to August 14, 1969
+
+1. LIBACON-1 was recruited by Samuel J. KARTASUK on January 30 and was handled by him until March 26. During this period they held nine ops meetings.
+
+2. Bruce H. FERNALD took over LIBACON-1 on March 26 and handled him to August 14, when he turned it over to Douglas F. DITMANSON. During this period 16 ops meetings were held.
+
+3. After a fine recruitment job KARTASUK also accomplished the difficult task of converting LIBACON-1's agreement to work for KARTASUK personally into a regular working arrangement.
+
+4. Of the nine meetings KARTASUK held with LIBACON-1, actually only six were working meetings. Info was obtained on LIBACON-1's personal background as well as his ops potential. LIBACON-1 was SGSWIRLED with satisfactory results. Further, LIBACON-1 was motivated to work for us and he was mentally prepared to accept another handler. During this period the condition which LIBACON-1 had placed on his agreement to work for us was respected (i.e., that he would not be asked to report on his personal friends such as Standards, his students, or Mexicans to whom he is emotionally attached). LIBACON-1 did complete for KARTASUK a 15-line written report on AEDIEHARD.
+
+5. FERNALD encountered no problems in getting along with and handling LIBACON-1, whom he got accustomed to following instructions and to submitting reports in writing.
+
+6. LIBACON-1's initial attitude was that he had agreed to work, or more accurately, to assist us in our work against AEKICK, but he was determined to keep himself away from everybody and everything associated with AEKICK. He did not see AEDIEHARD for more than four months, and when they met accidentally in a resort, LIBACON-1 was decisively turning down everything AEDIEHARD asked for. He went so far as to accept a lunchtime appointment with AEDIEHARD, and then a day before it was to take place he postponed it indefinitely.

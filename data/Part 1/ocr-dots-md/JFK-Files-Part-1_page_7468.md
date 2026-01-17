@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_7468.png
+
+Convert to MarkdownSECRET
+
+Priority Urgent.
+
+Telephone Request for Name Check For Use of Rf Name Check Control Office
+
+FROM PSB/FBI DATE 24 NOV 1965
+TAKEN BY Gerry F. CHECKED BY REPLY
+ROBINSON, Viola NAME ALIAS AND SPELLING VARIATIONS
+U.S. 6/20/10 DATE AND PLACE OF BIRTH
+
+OTHER IDENTIFYING DATA
+
+REFERENCES
+
+26-NOV-65N 201-18446

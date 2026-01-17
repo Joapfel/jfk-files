@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_4448.png
+
+for Spanish-speaking affairs--and Bernard BARKER, who they think is the key man ("A CIA agent recruiter"), together.
+
+HARPER also visited Felipe FAZOR, a well-known
+Cuban economist who, at present, is with the Intel-American
+Development Bank. Harper might have also seen some Chilean
+dips, but this is only an inference on my part.
+
+The other birds on the list that I gave you were
+specifically tied to the Killeberg case. They were brought
+up from Miami--armed--to physically disrupt Killeberg's appearance
+before a Congressional Committee. The Cubans were unable to
+get to him, but did fight with some of his supporters, who
+were arrested. The Cubans were not. Official protection is
+what they are looking for in this particular case.

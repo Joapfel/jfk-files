@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_9008.png
+
+Convert to MarkdownDecember 19, 1968
+
+Mr. Miguel Tirado
+2925 Waverley Drive
+Los Angeles, California
+
+Dear Friend,
+
+Merry Christmas!
+
+I regret that it has taken this long to settle the matter of your letter of September 22, 1968, but better late than never, I guess. Although your efforts in our behalf with Hank were not successful, we do appreciate the fact that you and your wife went out of your way to try to help us.
+
+I referred the matter of your late moving bill to the appropriate individual. Unfortunately, this bill was received too late, as all your accounts had been settled. He has asked me to extend his regrets on this matter.
+
+Please accept my best wishes for a Joyous Christmas and the hope that 1969 will indeed be a good year for you and yours.
+
+Enclosure: $267.00 Check

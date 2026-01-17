@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_4097.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+Pinto who has been there about 10 years. He is a dynamic young man who has lead the villagers to rebuild their village and church to develop their land and organize a cooperative and small credit facilities. The village is only 1,200 people but they raised by themselves $1,000 to buy materials and then built a training center capable of housing, feeding and training 60 men at a time in rural cooperatives and rural development. One of their ideas is to select bright looking leaders and potential leaders from rural areas, first in Panama and later, hopefully, from other nearby countries for visits of a few days in which they hope to brain-wash them of Communist type propaganda they may have heard and show them what can actually be done so they can take the good word with them to their own communities. This is in addition to the regular formal course of 4 months for selected young potential leaders from rural communities in Panama and all over Latin America.
+
+3. Another leading light in the program is Father Steele who was thrown out of Dominica by Trujillo for organizing cooperatives and is a recognized authority on the subject. Father Steele uses Veraguas as a home base but travels to Chile, Colombia and other countries conducting short training courses on the ground. There are some Dutch priests on the staff whom Bishop McGrath personally recruited. Father Vasquez Pinto has sent about 10 to 15 local boys to the Antigonish School in Nova Scotia and they are back for duty. Mr. Lodge describes the group as a highly motivated and energetic group and Father Vasquez Pinto as a young and effective Panamanian priest who is a good operator. Mr. Lodge has two men from Harvard University there to study the program and assist in any way they can. The Peace Corps has 54 people in the Central Provinces of Panama, about 30 of them in Veraguas Province. They cooperate with the center, in fact the two Harvard men are interviewing each of the Peace Corps volunteers about their work. Mr. Lodge said they are coming up with some good information and ideas which otherwise would be lost as there is a good deal of experience among the Peace Corps kids but they don't know to recognize its significance or how to organize it into useable form.
+
+4. The above group is trying to organize the center as a viable base with an effective staff to continue the training program even if the present leaders should move on. They hope it will become a pilot program for Latin America and that they will be able to seed other similar programs from
+
+SECRET

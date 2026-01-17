@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_8789.png
+
+Convert to MarkdownSECRET
+
+u/s/c Attachment to HMMA-37762, 27 August 1969
+
+IDENTITIES
+
+IDENTITY A - Vasil CHICKOV (201-207254)
+
+IDENTITY B - Aleksandr BROVKIN (201-185114)
+
+IDENTITY C - Ricardo CASTELLOTE
+
+IDENTITY D - Carmen CASTELLÓTE de WOLNY
+
+IDENTITY E - Karel WENDEL (201-267892)

@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_7848.png
+
+Convert to Markdown<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>TO<br/>Chief, W</td><td>CLASSIFICATION<br/>SECRET</td></tr><tr><td>INFO<br/>Chief, E3</td><td>PROCESSING ACTION<br/><u>MARRED FOR INDEXING</u></td></tr><tr><td>FROM<br/>Chief of Station, Mexico City</td><td><u>NO INDEXING REQUIRED</u></td></tr><tr><td>SUBJECT REDCOAT<br/>LROCKEF-1 Progress Report, 1 August - 8 December 1967</td><td><u>ONLY QUALIFIED OFFICE CAN JUDGE INDEXING</u></td></tr><tr><td>ACTION REQUIRED · REFERENCES<br/>REFERENCE: EEMA-52768, 10 August 1967</td><td>Ono V</td></tr><tr><td colspan="2">Monroe N. Roidemann took over the handling of LIROCKET-I from Keith B. Lavenderis on 28 July 1967. There has been no change in the objectives of the operation, and meetings with LIROCKET-I have continued to be devoted largely to debriefing him on his sessions with the Soviets. Forwarded herewith is Roidemann's progress report for the period 1 August through 8 December 1967.</td></tr><tr><td colspan="2">for/Willard C. CERTIS</td></tr><tr><td colspan="2">Attachment:<br/>Progress Report</td></tr><tr><td colspan="2">Distribution:<br/>2 - C/WB, w/att.<br/>2 - C/EW, w/att.</td></tr><tr><td>Cross REFERENCE TO</td><td colspan="2"><table><tr><td>DISPATCH SYMBOL AND NUMBER</td><td>DATE</td></tr><tr><td>EEMA-52739</td><td>26 December 1967</td></tr><tr><td>CLASSIFICATION</td><td>HQS FILE NUMBER</td></tr><tr><td>SECRET</td><td>201-788767</td></tr></table></td></tr></table>
+
+LOGANOV
+201-788767
+SOL-285412

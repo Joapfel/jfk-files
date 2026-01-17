@@ -1,0 +1,163 @@
+# JFK-Files-Part-1_page_8180.png
+
+Convert to MarkdownSECRET
+
+CONTRACT INFORMATION AND CHECK LIST
+
+W. Lee
+TELEPHONE EXTENSION
+
+INSTRUCTIONS: Complete all steps, inserting "A" when feasible, are not applicable. Forward original and one copy for prep.
+
+DATE
+
+SECTION A:
+
+GENERAL
+
+| | |
+| :--- | :--- |
+| **NAME** XX | **PHONE** XXXX |
+| **ADDRESS** Bldg., Flr., Rm. # | **PROJECT** JNOPLAB-30 |
+| CLEVELAND, Ohio 77115 | **PERMANENT STATION** |
+| | **ALLOTMENT NO.** 3 |
+| | **SLOT NO.** 4 |
+
+5. PREVIOUS CIA PSEUDONYM OR ALIASES
+
+<table><tr><td>INDIVIDUAL IS PRESENTLY ENGAGED</td><td>OR HAS BEEN ENGAGED BY CIA OR ITS ALLIED</td></tr><tr><td>TO WORK IN SOME CAPACITY (I.E.</td><td>YES NO</td></tr><tr><td colspan="2">(If yes, describe and include salary.)</td></tr></table>
+
+Contract Agent (Independent Contractor) Contact signed
+Oct 1959. Basic salary $50.00 per day.
+
+7. SECURITY CLEARANCE (Type and date)
+
+8. CONTRACT IS TO BE WRITTEN IN STERILE FORM. (E.I., U.S. GOVERNMENT)
+
+9. INDIVIDUAL WILL WORK UNDER "CONTROLLED CONDITIONS". I.E., REGULAR OFFICE HOURS, AWAY FROM SUBJECT'S HOME AND PERFORMED UNDER THE SUPERVISION OF A STAFF EMPLOYEE OR STAFF AGENT
+
+10. PROPOSED CATEGORY (Contract agent, contract employee, etc.)
+
+Contract Agent
+
+SECTION E:
+
+PERSONAL DATA
+
+11. CITIZENSHIP
+United States
+
+12. IF NOT U.S. CITIZEN, INDIVIDUAL IS A PERMANENT RESIDENT
+
+<table><tr><td>ALIEN</td><td>VISAS</td></tr></table>
+
+13. AGE
+41
+
+14. DATE OF BIRTH (Month, day, year)
+28 may 1970
+
+LEGAL RESIDENCE (City and state or country)
+Milwaukee Blvd., Los Angeles, California
+
+15. CURRENT RESIDENCE (City and state or country)
+
+17. MARITAL STATUS (Check as appropriate)
+
+[ ] SINGLE
+[ X ] MARRIED
+[ ] WIDOWED
+[ ] AMBULATED
+[ ] SEPARATED
+[ ] DIVORCED
+
+18. NUMBER OF DEPENDENTS (Not including individual) RELATIONSHIP AND AGE:
+
+2 Sons - aged 9, and Gregory 6 years old;
+1 Daughter - Orvilleta 3 years old.
+
+19. INDIVIDUAL IS RELATED TO A STAFF EMPLOYEE, STAFF AGENT OR AN INDIVIDUAL CURRENTLY WORKING FOR THE AGENCY IN SOME CAPACITY
+
+RELATIONSHIP:
+
+SECTION III:
+
+U.S. MILITARY STATUS
+
+20. RESERVE
+
+21. VETERAN
+Yes
+
+22. IF RETIRED, INDICATE CATEGORY (Longevity, combat disability, service disability non-combat)
+
+23. DUTY OF SERVICE
+Army, Medical Corps
+
+24. Rank or grade
+Staff Sergeant
+
+25. DRAFT ELIGIBLE
+Yes No
+
+26. DRAFT DEFERMENT OBTAINED
+No
+
+27. BASIC
+1,000.00 per yr.
+F.A.
+H.A.
+
+28. POST DIFFERENTIAL
+29. COVER (Breakdown, if any)
+
+30. TAXES TO BE WITHHELD BY
+COVER
+CIA
+NOT WITHIN 10
+
+SECTION IV:
+
+COMPENSATION
+
+31. QUARTERS
+H.A.
+
+32. POST
+H.A.
+
+33. OTHER
+
+34. COVER (Breakdown, if any)
+
+Commercial
+
+SECTION VI:
+
+TRAVEL
+
+35. TYPES
+[ ] VCS
+[ ] DOMESTIC OPERATIONAL
+[ X ] FOREIGN OPERATIONAL
+
+36. WITH DEPENDENTS
+[ ] YES [ X ] NO
+
+37. HOUSEHOLD EFFECTS TO BE SHIPPED
+YES NO
+
+38. PERSONAL VEHICLE TO BE SHIPPED
+[ X ] YES [ ] NO
+
+39. TRANSPORTED VEHICLE TO BE USED FOR OPERATIONAL TRAVEL
+VCS YES NO
+
+40. IF WITH DEPENDENTS STATE RELATIONSHIP, CITIZENSHIP, AGE AND DATE OF BIRTH
+
+NOTE:
+PLEASE AND ACCOUNTABILITY WILL BE IN CONFERENCE WITH
+THE ORDERER/ASSISTANT ON DUE DATE
+☐ PERSONNEL
+☐ OPERATIONAL VEHICLES
+☐ OTHER V

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_5456.png
+
+Convert to MarkdownSECRET
+
+21 June 1967
+
+Bob,
+
+Mr. Musulin (DO), extention 2268, called to say that Dorothy Matlack had called to inform him that she had reached Mr. B and that per instructions Mr. B. would pass info for Matlack to Balog in New York. Mr. Musulin said that from his conversation with her he believed that Matlack wanted to be cut in on this activity and wanted to receive copies of any disseminations.
+
+Mr. Musulin mentioned that if Mr. B had told Matlack that he had heard that the operation (tonsillectomy) was performed on Charles and he is feeling fine.
+
+SECRET

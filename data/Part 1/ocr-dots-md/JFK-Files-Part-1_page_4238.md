@@ -1,0 +1,73 @@
+# JFK-Files-Part-1_page_4238.png
+
+Convert to Markdown14-0000J
+
+MESSAGE FORM
+TOTAL COPIES:
+
+ORIG: E.SCOCCHI:ST
+UNIT: AM/C/CICS
+EXT: 9286
+DATE: 2 DECEMBER 1965
+
+☐ INDEX
+☑ NO INDEX
+☐ FILE IN C3 FILE NO. 201-747618
+
+<table><thead><tr><th colspan="2">ROUTES</th></tr></thead><tbody><tr><td>1</td><td>SICS S F</td></tr><tr><td>2</td><td>C</td></tr><tr><td>3</td><td>F3 7</td></tr><tr><td>4</td><td>R 8</td></tr></tbody></table>
+
+2 DEC 65 23 6:26
+
+TO : MEXICO CITY JAWAVE
+
+FROM: DIRECTOR
+
+CONF: WH/C8
+
+INFO: VR, FILE ☑ RID COPY WH8
+
+SIG-GEN
+
+TO MEXI
+**TYPIC AMBIDDY**
+
+REF: DIR 58809*
+
+CITE DIR
+
+62469
+
+AMBIDDY/1 ASKED BY HQS CO TO IDENTIFY CUBAN INTERROGATORS IN
+EFFORT DETERMINE IF ONE COULD HAVE BEEN ABREU. A/1 STATED UNABLE
+MAKE IDENTIFICATION BECAUSE CONSTANT FOCUS BRIGHT LIGHT IN EYES
+PROHIBITED SEEING INTERROGATORS.
+
+END OF MESSAGE
+
+*Ref concerns Hqs attempts identify AMKNOB/1 CO who claimed he interrogated AMBIDDY/1 Cuba
+
+C/WH/C/CICS Lick
+WH/1 U. Devere
+NH/C/MO E.J. Chiversa
+WH/C/F1/T2
+
+WILLIAM V. BROE
+C/MID
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+<table><tr><td>SECRET</td></tr></table>
+
+GROUP I
+Excluded from operation due to security and design issues
+
+JOHN L. HART
+DCNHD/C
+
+AUTHENTICATING
+OFFICER
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

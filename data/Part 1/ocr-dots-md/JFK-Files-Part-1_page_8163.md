@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_8163.png
+
+regarding some sick leave during my absence. This will be the only addition to reports previously made.
+
+I would be glad to make reservations for you if you will let us know the details of your arrival.
+
+With best wishes,
+
+Sachar Fels

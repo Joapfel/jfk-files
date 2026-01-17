@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_7841.png
+
+Convert to MarkdownSECRET
+
+II-14A-33769
+
+the first question, she stated that LOGINOV had come to her office a couple of times on visa and Soviet travel business, but that she otherwise had not seen him. Although given ample opportunity, she said nothing about LOGINOV having waited for her in front of her apartment or about his questioning her about local reaction to the Israeli-Arab war. As for the second question, she assured LEVENDERIS that she had told no one of her contact with him or LAUREL.
+
+10. We are inclined to believe that Subject lied about not telling anyone of her contact with us because it would have been extremely embarrassing for her to admit that she had failed both to follow instructions and to keep her promise. While it is uncertain exactly why she did tell LICOZY-5, the apparent timing (the second day of the Israeli-Arab war) suggests it was the result of her agitated state of mind, her anger at the Soviets for their support of the Arabs, her possible imminent departure for Israel and the uncertainty of her fate, and her warm regard and respect for LICOZY-5 as a fellow pro-Zionist. (Subject, whose mother is Jewish and who became romantically involved with Israel and Zionism after visiting Israel a couple of years ago, told LEVENDERIS on 2 August that she had indeed gone to the Israeli Embassy to volunteer to serve in Israel and had been immediately accepted because she had had training in nursing. She said she had been told to stand by for transportation to Israel and had expected to be called literally at any minute. She said that the brevity of the war had made her services unnecessary, however.)
+
+11. While it is clear Subject lied about not having revealed her contact with LAPURE to anyone, we are inclined to believe that LICOZY-5 made up the story of LOGINOV waiting for Subject in front of her apartment and questioning her about local reaction to the war. Knowing LICOZY-5, it seems very possible that he invented the story in order to explain why Subject confided in him - i.e., she was already emotionally upset about the war and when LOGINOV contacted her she understandably told Subject, which led to her revealing the whole story. In any event, we consider the case closed and do not intend to pursue the question of who is telling the truth with LICOZY-5.
+
+for/Willard C. CURTIS

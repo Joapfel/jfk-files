@@ -1,0 +1,63 @@
+# JFK-Files-Part-1_page_7879.png
+
+Convert to Markdown14-0000
+
+Chief of Station, Mexico City
+
+X
+
+Chief, VI Division
+
+REDCOAT/POA for Subjects of Reference
+
+Action Required: Submission of PRQ Parts I and II
+
+Reference : MEXICO CITY-1638, 3 June 1967
+
+A Provisional Operational Approval was granted for use of
+Subject of reference as an access agent to the Subject of 201-285412
+(KIB Officer in Mexico City). Please submit PRQ Parts I and II in
+order that a full Operational Approval can be requested.
+
+Laura J. UTRINER
+
+Distribution:
+
+Orig & 1 - COS, Mexico City
+
+201-285412 JUL 1967
+
+MEM - 15623
+
+SECRET
+
+13 JUL 1967
+
+10 July 1967
+
+<table><tr><td>GROUP I</td></tr><tr><td>Excluded from automatic downgrading and declassification</td></tr></table>
+
+201-285412
+
+WH/1
+
+J. Zerunce
+
+jkf
+
+4167
+
+1 - RT
+
+1 - Chrono
+
+1 - SB/O/WH
+
+SB/O/WH
+
+(Subject of ref: Miriam
+AVILA-Kats)
+
+C/VI/1
+
+W. J. Kauftman

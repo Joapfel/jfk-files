@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_4624.png
+
+Convert to Markdown14-00000
+
+SECRET
+(see attached file)
+
+<table><thead><tr><th colspan="7">DOCUMENT TRANSFER AND CROSS REFERENCE</th></tr></thead><tbody><tr><td rowspan="5">SPEC OF DOCUMENT</td><td colspan="6">DOCUMENT IDENTIFICATION</td></tr><tr><td>RE FILE NO.</td><td colspan="3"></td><td colspan="2"></td></tr><tr><td>B. DISPATCH DE SOURCE DOC. BY whom DE</td><td colspan="3"></td><td colspan="2"></td></tr><tr><td>F. SOURCE COPIES TO</td><td>S. DATE OF LATE</td><td>D. EXECUTION</td><td colspan="3"></td></tr><tr><td>G. ANALYZED</td><td>H. DATE PROCESSED</td><td>I. DISSEMINATED IN</td><td>J. DATE</td><td colspan="3"></td></tr><tr><td colspan="7">DOCUMENT DISPOSITION</td></tr><tr><td colspan="2">I. CROSS REFERRED TO THIS FILE</td><td colspan="5">I. TRANSFERRED TO OF FILE NO.</td></tr><tr><td colspan="7">CERTIFICANT INFORMATION</td></tr><tr><td colspan="7">BOSCH AVILA, ORLANDO<br/>201-299252<br/>SEX M C08 ?<br/>CIT CUBA<br/>CCC ?<br/>POSSIBLE RAID PLANS BY ORLANDO BOSCH AVILA, LEADER OF MOHIMIENTO INSUR- RECCIONAL DE RECUPERACION REVULU- CIOPANIA/MINK, INSURRECTIONAL MOVEMENT FOR REVOLUTIONARY RECOVERY/<br/>019-002-004<br/>UFGA-23848<br/>22 NOV 69<br/>+19-2-4-2<br/>A02<br/>FILE IN 201-299252<br/>R 6512031956</td></tr><tr><td colspan="7">SECRET</td></tr><tr><td colspan="7">(100)</td></tr></tbody></table>

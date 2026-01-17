@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_4827.png
+
+Convert to Markdown14-00000
+
+VI. 27 Feb 76
+
+An advantage can be gained and no good conclusions reached from a visit which lasted less than a day and during which in spite for only a half hour with each foreign minister, the first secretary of the Soviet Embassy said.
+
+In this regard, Socialist Action Party Deputy Nara Valverde said Kissinger's visit was a failure for U.S. imperialism, since the chiefs of state who had men invited to the meeting decided not to come, considering Dr Kissinger's visit of little interest.
+
+Nothing can be achieved in such a short period of time, the Soviet official said.
+
+Regarding former President Nixon's visit to the PRC, the Soviet official said it will not affect Soviet foreign policy in any way. It is only another of the many tourist or courtesy trips to the PRC. This is why we do not attribute any importance to it, he said.
+
+Regarding Fidel Castro's participation in the CPUB congress which began 2 days ago, Mr Arnold Mosklov said all countries in the world were represented at the Congress, but that the visitors were participating as observers in the discussions of what the Soviet people have done and will do in the field of development.
+
+The Soviet official said regarding Cuba's intervention in Angola: The Cuban Government is helping Angola because the latter needs it. Previously, when the U.S. Government blocked aid to Cuba, the latter had to ask for the Soviet Union's cooperation, because it was being suffocated by the economic blockade imposed by the U.S. Government. How the Angolan people had to ask for Cuba's help because the United States refused to help and in addition was blocking aid.
+
+On this issue of the peoples' liberation struggle the blank lies with the United States, the first secretary of the Soviet Embassy concluded.
+
+CUBAN EXPELLED FOR PLOT AGAINST PASCAL ALLEND?
+
+Panama City AGAN in Spanish 0123 GMT 26 Feb 76 PA
+
+[Excerpt] San Jose, 25 Feb--(ACAN-EPS)--The Costa Rican Government ordered anti-Gastro Cuban Orlando Bosch to leave the country. He is allegedly involved in a plan to attack Chilean Marxist leader Andree Pascal Allende, in exile in Costa Rica.
+
+It was reported that Bosch, who entered this country on 19 February, resides in the Dominican Republic and entered Costa Rica with a Chilean passport.
+
+He categorically denied any links with subversive groups and the authorities were unable to prove this association, but as a preventive measure they ordered him to leave the national territory.

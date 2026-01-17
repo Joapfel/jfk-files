@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_9185.png
+
+Convert to Markdownas they exceed his annual salary. I asked "What portion?" and Lyle said "oh, perhaps 4 or 1/3," which, if the excess were $12,000—a figure Lyle suggested as possible— would bring him in an extra $4 or $6,000.
+
+Shub's contract with CIA expires 31 Dec. 1951. His contract with Swen, Lyle pointed out, would still be in effect after that. / But his contract with Xerox CIA would still no doubt obligate him to return royalties to CIA, i.e. Swen, even after 31 Dec. 1951./
+
+I said this mightn't be a bad idea, as Shub may tend to go somewhat sour, seeing his collaborator getting his much larger salary and 7½% royalties on top of that. On second thoughts, however, it is doubtless a very poor precedent —and we could perhaps obtain and quote to Shub CIA Legal's opinion to that effect— that OPC employees should take royalties from commercial enterprises with which they happen to be connected.
+
+I believe he is paid quite a generous figure, which ought to keep a married man with no dependents ahead of the Collector of Internal Revenue. If not, or if it is thought he is really worth more, the possibility of suggesting to him a salary raise, when his contract as Agent comes up for renewal, could be considered. At any rate, in the interests of keeping his morale up during the final phases of work of the book, I suggest the whole matter should be handled not too brusquely.
+
+RE "COMUNIST 200", and refusal of many US retailers to handle it, see attached Memo of Record of what Munson told me.
+
+Munson: "We have to face plain facts. My experience with "CZ" shows that we have to mix in glasses of orange juice with the castor oil. "CZ"is about as vicious as the traffic will bear. If the "Stalin" photo-book smacks too strongly of propaganda, a lot of retailers just won't even handle it."
+
+CONCLUSION. We should stay in NY long enough to
+
+* (a) Hear everything Shub can say in defense of his version;
+
+* (b) Do a strong devil's advocate job against the pages we think he should delete
+
+* (c) Insist that, in the remaining 66 pages, certain topics must be adequately dealt with: Slave Labor, Defections, Cultural Purges, Purges of top Communists in Iron Curtain countries.
+
+* (d) Hope for the best and be prepared to accept what may be a not too satisfactory bargain, especially in view of what Lyle says about retailers, and about maintaining Swen's reputation.
+
+7SS
+
+SECRET

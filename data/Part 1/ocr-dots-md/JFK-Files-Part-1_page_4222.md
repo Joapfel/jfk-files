@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_4222.png
+
+Convert to Markdowncompetent businessman to supervise his financial affairs. Further, once located (preferably by us) future support payments would be made to the business manager instead of to A-1, with stricter accounting and double-checking involved. It would also be suggested that less security would be observed and more direct looking into A-1's business would be the order of the day. As such, it is also recommended that the undersigned be allowed to actually visit the farm and report back on the actual status of the farm. A-1 would also be told that henceforth, except on FI collection missions, he should confine his efforts to the farm and developing a sensible program for cooperative training of Cubans, not Nicaraguans, or any other nationals.
+
+7. In summary A-1 should be told that unless he is prepared to refocus his activities more realistically the Agency's gravy train is about to pull into the station.
+
+Andrew D. Rohlfing
+WH/C/CA/RW
+
+SECRET
+SECURITY

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_4438.png
+
+Convert to MarkdownIn response to your letter of March 10, we wish to advise
+we are unable to provide you with any information concerning
+~~Mr.~~ employment of Mr. Bernard L. Barker.
+
+With regard to your concern for the safety of your daughter-
+in-law, we are unaware of any cases of a former resident being
+kidnapped and returned to Cuba. Furthermore, since it is assumed
+
+Mrs. Moffett is a U. S. citizen, such a possibility seem appears
+
+mather
+warrant
+soo remote to justify the apprehension expressed by her family,
+
+24 MAR 1970 from Jose Garcia

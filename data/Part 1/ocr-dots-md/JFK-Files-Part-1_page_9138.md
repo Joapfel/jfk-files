@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_9138.png
+
+Convert to MarkdownASISTENTES DE INVESTIGACION
+
+SONIA NAREZ VELAPLANA, José María
+
+Ph.D. Industrial, E.T.S. de Ingenieros Industriales de Barcelona
+Research in Production.
+
+JOSE F. MASQUEL, Antonio
+
+Post-Graduate Student, E.T.S. de Ingenieros Industriales de Barcelona
+Research in Production, Pr. Education.
+
+JOSÉ ANTONIO DEL RÍO, Francisco
+
+Ph.D. in Ciencia y Economía, Universidad de Zaragoza
+M. Gral. de Historia e Estadística Comarca de Andalusia
+Member of the School of Business Administration, University of Harvard
+
+RODRIGO CALVO MATA
+
+M. Gral. en Enginyeria Industrial, Universidad de Barcelona
+Member in Ciencias Empresariales, Universidad de Barcelona
+Financier
+
+CONCEBIA LOPEZ GEANA, Sandelio Pedro
+
+Ph.D. in Ciencias Económicas, Universidad de Madrid
+Contributor a la revista "Organización"
+
+CAROLINA GARCIA, José O.
+
+MSc in Industrial Textiles, E.T.S. de Ingenieros Industriales de Terrassa
+Ph.D. in Materials
+
+FERNANDO DAVILA, Juan-José A.
+
+Ph.D. in Ciencias Económicas, Universidad de Barcelona
+M. Gral. en Metàmorfosis, Escuela Superior de Comunicación e Arte
+Graduate Student at Business Administration, Harvard University
+Journalist for "Empresas"
+
+1. Con mayoria de las actividades del I.B.S.E., el estudiante ha completado:
+   * La titulación del posgrado: "Business Administration" de la Universidad de Harvard, en el año académico de 1955-56.
+   * La titulación del doctorado en ciencias por la Universidad de Stanford, durante el segundo semestre de 1955-56.
+   * El Doctorado en Ciencia, en Chicago, en el verano de 1955-56.

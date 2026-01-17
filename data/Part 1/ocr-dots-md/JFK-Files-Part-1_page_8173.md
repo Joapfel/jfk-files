@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_8173.png
+
+Convert to Markdown23 May 1961
+
+MEMORANDUM FOR: Chief, Central Cover Group
+
+ATTENTION : Mr. John W. Sullivan
+Building T-4, Room 2-1005
+
+SUBJECT : Edward G. TICHEMANN (p)
+
+REFERENCE : Memorandum from Chief, WHD to Chief, Central Cover Group,
+Game Subject, dated 22 May 1961
+
+1. Subject will be employed as legal counsel by John Nicolls Manson, III, a United States citizen who is the owner of Producciones Marco IV, S.A., Melchor Cuenca 463, Mexico, D.F., Mexico. Security clearances are being initiated on Manson, who will be unvitting.
+
+2. Subject will also be provided with a backstopping letter from ITEWARGO, a WHD foundation.
+
+J. C. KING
+Chief
+Western Hemisphere Division

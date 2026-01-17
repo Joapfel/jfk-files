@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_8276.png
+
+Convert to Markdownhigh school she went to a school for mechanical tech-
+nicians where she studied about a year and gave it up
+because she did not like it. She competed to enter the
+school of modern languages at the university but she
+failed. Then, she entered the M.I.M.O. ( L-1 does not
+know what it stands for ) and after 5 months _she had_
+to go to Mexico.
+
+d.L-l told her that he would look her up occasionally
+and she appeared to be pleased with the idea.
+
+e. Description: apparent age 25 - 26; hight about 5 ft
+3 in (possibly less); hair light brown; very nice eyes
+( L-1 does not remember the color ); buildt rather
+stout; face rather long; in general: pleasant appear-
+ance.
+
+6. Before leaving L-1 left with her a note for LOG in which he stated that he can still be reached at the Institute between 1500 and 1600 hrs and at home and added his phone numbers and concluded that if he did not hear from LOG it would prove he had a friend who turned out to be no good.
+
+7. During L-1's waiting in the reception room Yurly CHERNISE passed by and they exchanged few inconsequential words. L-1 asked YOU did he give LOG the message he sent to LOG from that party ( at Andres OATANO ) and he said that he did it with pleasure and added few words of his own. When YOU left L-1 asked Alla when was LOG leaving and she said LOG would leave in October '69.
+
+8. At 1510 hrs of the same day LOG phoned to L-1 in the Institute and after some verbage they agreed to meet on Monday July 14 at the Marinera restaurant at 1500 hrs (AV Chapultspec with or near Liverpool). Both of them stated that they would be there without fail.
+
+9. With regard to the meet LOG - L-1 I repeated my previous in-
+struction to L-1 concerning his attitude if LOG comes out again with
+the request to meet LIOVAL-1.
+
+10. With regard to L-1a acquaintance with Alla I suggested L-1 to ask his mother about her. There is a possibility of finding out her full

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_8900.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>CONTINUATION OF
+DISPATCH</td>
+    <td></td>
+    <td>SECRET</td>
+    <td>HAMA-24353</td>
+   </tr>
+   <tr>
+    <td colspan="4">3. Taking all the foregoing into consideration and to avoid complications with his present projects or TICHBORN, the Station asked him what understanding he had on the proportion of his time to be devoted to KUBARK activities. He said that his present contract was predicated on approximately 60 to 60-2/3% of his time being utilized by KUBARK. His present estimate is that he is devoting 85 to 90% of his time to KUBARK activities; and, if he is to do the kind of job that is desired on the two intellectual projects recently acquired, he will sustain that percentage. Of course, he continues to be available for appropriate election of political assignments (such as FUASPEN) in other countries from time to time; but, it has to be recognized that when he is absent from Mexico, this represents 100% of his time.</td>
+   </tr>
+   <tr>
+    <td colspan="4">4. The Station agrees with his analysis on current commitments against his time on behalf of KUBARK. Therefore, it was indicated to TICHBORN that he should be prepared to take up this matter with Headquarters at the time he makes his late October trip to PBPRIME in connection with the new intellectual magazine (see reference) and that the Station would request Headquarters to be prepared to discuss the matter at that time. It is the Station's understanding that his present contract extension expires 19 November 1964.</td>
+   </tr>
+   <tr>
+    <td colspan="4">5. The Station would like to emphasize that this matter was brought up at its initiative in order to try (a) to assure that demands being placed on TICHBORN recently could be reasonably expected to be fulfilled and (b) to get a complete understanding on all aspects of TICHBORN's contractual status (written and unwritten) so that neither the Station nor TICHBORN get committed to these continuing activities and suddenly find themselves in contention about the time/salary involved. It should also be emphasized that TICHBORN has not complained about recent requirements, but has devoted whatever time required to handle them and do the job expected.</td>
+   </tr>
+   <tr>
+    <td colspan="2"></td>
+    <td colspan="2">for<br/>Willard C. CURTIS</td>
+   </tr>
+  </table>

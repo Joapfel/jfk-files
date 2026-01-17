@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_8897.png
+
+Convert to MarkdownSeparate Cover Attachment 41 to -
+
+HMMA-24457
+
+Identity A - John Nichols MANSON III
+
+Identity B - Magnun TV and Mark IV Productions
+
+SECRET
+
+CS COPY
+
+081-253205
+
+ATT NAM 041701 H24457

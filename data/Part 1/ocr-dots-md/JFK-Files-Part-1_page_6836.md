@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_6836.png
+
+Convert to MarkdownSECRET/NOFORM
+CONTINUED CONTROL
+
+- 6 -
+
+a) In a letter dated 16 September MALTZ asks KALTZ to give his preference for attorneys to consult with respect to the possibility of litigation against the Immigration Service.
+
+b) Subject's answer to the foregoing is dated 23 September. Since Rebinovits and Rodin had represented him previously, Subject writes, he would be reluctant to hire any other law firm unless there were a "solid reason" to do so.
+
+7. Correspondence with Bernard FALK, Public Accountant, JUBILEE BANK, San Francisco, Calif., for 1959, Studio City, California. (Attachment 7)
+
+a) Four pieces of correspondence, dated early October 1959, concern Subject's finances.
+
+b) A letter from SKAIRCH, dated 22 September 1959, deals with real estate investment opportunities as well as with Subject's finance.
+
+c) With a letter dated 13 October 1959 SKAIRCH sends Subject a copy of Walter FUNK'S petition for a writ of certiorari to review an earlier judgment preventing his travel to China.
+
+d) In an envelope postmarked 22 October 1959 SKAIRCH mailed Subject his check book analysis for September. e.f. - c.s.
+
+8. Correspondence with Philip and Janet STEVENSON, 2101 Stanley Mill Drive, Los Angeles, California. (Attachment 8). Meeting of Albert and Janeth. 201-5239
+
+a) In an envelope postmarked 16 September 1959 Philip STEVENSON sends Subject a copy of a memorandum dated 14 September 1959 which STEVENSON has sent to By ALAN LE. STEVENSON is sending ALAN. "the finished screen treatment of Albert KALTZ's novel, The Cross and the Arrow, under the working title of The Hill Water Seam." The memorandum concerns financial agreement for this under contract.
+
+b) A letter dated 13 September 1959 sets forth STEVENSON's ideas for writing a screenplay, presumably based on La Rosa film. STEVENSON may go to Mexico for a few days on 20 September to discuss the book.
+
+c) Personal thank-you note, dated 3 October 1959, from Janet STEVENSON to Margaret KALTZ, following Philip STEVENSON's return from a visit with the Russians.
+
+SECRET/NOFORM
+CONTINUED CONTROL

@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_9346.png
+
+Convert to Markdown11 December 1950
+
+32-C:GAT:
+
+SUBJECT: American Ballet
+
+TO:
+Chief, FJCAPS
+Washington, D. C.
+ATTN: Joseph K. Stribling
+
+EJO: Chief, DTRAPD
+
+1. For the reasons outlined below, we have been forced to take emergency action on the following matters.
+
+2. During the period of preparation for FDQUICK, Wallison had in hand a project which involved bringing the American Ballet to Berlin for a brief series of performances in both the east and west sectors of the city. We encouraged him in this idea, since the performance dates coincided with FDQUICK, and would have added substantially to the culture surrounding the central event. Wallison, however, was faced with a complicated financing problem, since the business manager of the ballet company wouldn't accept marks, and Wallison had no dollars for such purposes. At that time we indicated, because of the advantage to FDQUICK, that we would resolve his difficulty by exchanging his money for him.
+
+3. For a variety of reasons, the ballet was delayed and couldn't include Berlin during the period in question. We regarded the deal as dead and put it out of our minds, but not Wallison. He chose to regard our commitment as open, and without consulting us until today, has obligated himself to pay 3050 green dollars to the ballet company, which is arriving in Berlin tomorrow, and whose business manager expects to be paid immediately on arrival. Both Wallison, and indirectly Balster, have appealed to us to take him off the hook. We have informed him that such deals are contrary to FJCAPE policy, and anyway our original reason for considering such assistance is no longer operative. But because he and his shop are extremely useful to us in a variety of ways, we have told him we might perform the service of exchanging his marks on the open market, citing a six-to-one rate as probably the best obtainable.
+
+4. Regardless of what Wallison has been told, we do not wish to involve this mission in local open market transactions. We are, therefore, exchanging from our funds here 3050 green dollars for 18,300 Deutsche marks from Wallison. He will, of course, obtain a mark receipt from the ballet company's business manager in order to keep his books straight, and no paper outside FJCAPE files referring to this matter will exist. We believe this operation secure and not disadvantageous to FJCAPE from either a financial or influence standpoint.

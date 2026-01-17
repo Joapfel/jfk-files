@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_7262.png
+
+Convert to MarkdownSECRET
+
+LICOWL General Notes Turned in on 6 October 1966
+
+22 September 1968 (Thursday)
+
+(LOGINOV) came in for cigarettes. He said that there are 52 Mexicans studying at Luxumba. These students are going to be the directors in the schools of the Politechnico Nacional since one of them has come back well prepared in physics. (They follows a distribe against those bad Mexicans who want to make Mexico another Cuba.)
+
+23 September 1966 (Friday)
+
+The"Spanish type" came in with a briefcase and bought Raleighs with filters. He had the same type of billfold as the other Soviets. He then went directly to the Embassy. (I asked if he had a moustache; he said, yes. This is probably GAZIYEV).
+
+24 September 1968 (Saturday)
+
+In the afternoon SILNIKOV was there when (ISAYEV) came in. I asked the latter about the watches and he said that they wouldn't arrive until the end of the year. SILNIKOV left at 1630.
+
+25 September 1966 (Sunday)
+
+Unimportant
+
+26 September (Monday)
+
+A useless blurb about an unnamed Soviet who came in and discoursed on MADRAZO, saying that he will set up a new party and an anti-Soviet blast.
+
+27 September (Tuesday)
+
+(DENISOV) came in at 1210 and made a phone call. I heard him mention Delicias and del Rio. Since these towns are near the border near San Diego, I think he was talking about smuggling arms to Guatemala (sic). Afterwards I asked after his wife. He said that she and their daughter are in Moscow and that he is a bachelor. I asked if he was able to find a girl. He answered, of course, but they all want a house. He left at 1230.
+
+23 September 1968 (Wednesday)
+
+An account from a friend that a Soviet will be PNGed for being involved with the Guatemalan arms smuggling.
+
+S E C R E T
+
+P-11712

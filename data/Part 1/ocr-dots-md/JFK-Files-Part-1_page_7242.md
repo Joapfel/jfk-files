@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_7242.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: LICOZY-5 Meeting with PRIKHODKO and LOGINOV on 7 September 1968
+
+1. LICOZY-5 reported that he had a meeting with PRIKHODKO and LOGINOV at 1500 on 7 September at a Restaurant in town.
+
+2. LILYRIC reports that on 7 September LOGINOV left the Embassy alone in his own car at 1403 going north on Tacubaya. PRIKHODKO left alone on foot to the east at 1416. They both returned together in LOGINOV's car at 1720.
+
+3. Thus LOGINOV picked up PRIKHODKO somewhere and took him to the LICOZY-5 meeting. This is not only a good anti-surveillance device but also helps to prevent us associating the two.
+
+Paul Dillon
+
+FILE: P-2712 P-2270 P-11712
+
+SECRET

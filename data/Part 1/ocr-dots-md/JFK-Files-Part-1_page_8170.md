@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_8170.png
+
+Convert to Markdown14-0000
+
+ORIG: BEN EVANS
+UNIT : WH/3/H&E
+EXT : 3054
+DATE : 9 JUNE 1961
+
+CLASSIFIED MESSAGE
+
+<table><tr><td>S-E-C-F-B-T</td></tr></table>
+
+BOUTING
+
+<table><tr><td>1</td><td>WA</td><td>4</td></tr><tr><td>2</td><td></td><td>5</td></tr><tr><td>3</td><td></td><td>6</td></tr></table>
+
+TO , CIUDAD TRUJILLO (OPERATIONAL, INDIATES) INFO: MEXICO CITY (ROUTINE)
+FROM: DIRECTOR
+CONF: WH 5
+INFO: CI, CI/OPS, FI, S/C 2
+
+9/25/61 15:48Z
+
+OFFICE CEN
+ROUTINE
+
+OUT64603
+6-06-61
+
+TO TRUJ (OPIN) INFO MEXI (ROUTINE) CITE DIR 44408
+REF: MEXI 8186 (IN 21801)*
+
+LOPEZ DUE TO ARRIVE TRUJ. 405 PM PANAM FLIGHT 431. WILL PROBABLY STAY AT REBAJADOR HOTEL AND HAS BEEN TOLD CONTACT RAYNOCK UPON ARRIVAL. LOPEZ CAN ONLY REMAIN TRUJ THREE DAYS, BUT WILL PROBABLY BE APLE RETURN SITUATION AFTER 18 JUNE.
+
+END OF MESSAGE
+
+WH/Comment: *Discussed efforts LOPEZ obtain visa and observed time inadequate for full assessment situation. (LOPEZ and RAYNOCK well acquainted from previous contact in Havana.)
+
+S. C. KING, C/MID
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+H.D.P. HOLLY, C/W/3
+
+AUTHENTICATING OFFICER
+
+<table><tr><td>S-E-C-F-B-T</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No. 201253203

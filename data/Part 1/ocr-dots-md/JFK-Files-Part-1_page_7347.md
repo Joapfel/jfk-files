@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_7347.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+SUBJECT: Howard Hunt
+
+determined that $33,500 was advanced to him for travel and transportation of household goods to and from Madrid with one trip to Paris for he and his family to renew their Spanish visas. All of this advance was fully accounted for. However, in his accounting, one item appeared unusual. It was an expenditure of $1,600 for a sensitive operation which was approved for write-off by Mr. Desmond Fitzgerald on 1 June 1966 without further accounting.
+
+3. Also, we confirmed that no other Agency advance accounts were established for Mr. Hunt during this period.
+
+4. At the beginning of his non-official cover tour, it was necessary to establish a bank account in his name. The EUR Division accordingly requested we open an account at the Chase Manhattan Bank in Mr. Hunt's name to receive all non-salary payments. (Mr. Hunt had an account at Riggs National Bank to receive his salary and allowance payments). The following deposits were made to the account during 1965 and 1966:
+
+Account opened: 13 July 1965
+
+| Date | Amount |
+|---|---|
+| 13 July 1965 | $10,000 |
+| 22 July 1965 | 5,000 |
+| 15 September 1965 | 5,000 |
+| 6 October 1965 | 5,000 |
+| 19 July 1966 | 5,000 |
+| **Total** | **$30,000** |
+
+All of the above have been accounted for by submission of travel and transportation accountings.
+
+5. We feel at this time without specific guidelines that further searching would be somewhat fruitless. One strange aspect of the non-official cover assignment in Madrid is that all the costs were charged to the support allotment of the EUR Division which is not normal as non-official cover people are usually assigned to a project. It is unusual to have a case officer abroad for one year on an operational assignment without him incurring operational expenditures.

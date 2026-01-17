@@ -1,0 +1,67 @@
+# JFK-Files-Part-1_page_4335.png
+
+Convert to MarkdownAlvaro Infante
+Tarrerero
+
+Barrio Cañamara:
+Juan Guerra Pérez:
+Calle Marina Norte #60
+Cañamara
+
+Federico Peña:
+María Páez:
+Marina Norte &N
+
+Austergilio Hernández:
+del comercio
+
+Miguel Pérez:
+Correo frente al mercado
+
+Pablo Sastre:
+Delenate Provincial Oriente Sector Ferroviaria
+
+y viva en Guantánamo
+
+Antonio Cusco:
+Calle 2ª. Oeste o/. y 6. Sur, Guantánamo.
+
+Dr. Ramón Robé Leyte:
+Faseo o/. 1 y 2
+Guantánamo
+
+Míla Robe Leyte:
+Faseo 1º a/. Bonete, Miraflores y Vareza
+
+Sra. María del Río:
+Calle Beneficiosa o/. 8 y 9 sur Guanacaste.
+
+Hernando García:
+Militar, Garaje #1383 Sur, Guanacaste
+
+Vicente de Bara de Bara:
+Coordinador
+
+Manolo Baróth:
+Coordinador Militar
+
+Leticiaega Vega:
+Nunocrato
+
+Organización
+Etelia Helia Quayado Peña:
+Coordinadora
+
+Elvira de Menéndez:
+Gerente de Servicios
+Seraparca
+
+María José López Milian:
+Coordinador Militar
+
+Teóforo Llamazas:
+Asesor Especial
+Organización
+
+Jesús Elías Quevedo Peña:
+Coordinador

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_7877.png
+
+Convert to MarkdownSECRET
+
+HUBB-32761
+
+31 March: LIROBBIN-2 telephoned PRIKHOV about a week in advance and invited him to dinner on this date. He accepted, but failed to show up and never called to apologize.
+
+12 July: LIROBBIN-3 set LOGINDV at an Indian embassy reception. During a brief conversation with him he told her he was about to leave for the USA on vacation and that PRIKHODKO would be doing the same later in the month.
+
+3. As can be seen from the above run down, none of the LIROBBINS' Soviet contacts have made any effort to see them since early March, and PRIKHODKO even missed a dinner party without so much as calling to apologize. It therefore appears that the LIROBBINS have at least temporarily been put on the shelf by the Soviets, if not dropped altogether. We expect to get a more definite reading in the fall, when the large number of Soviets now on vacation, including PRIKHODKO and LOGINDV, have returned and the Soviets have resumed their normal routines.
+
+4. In the course of the reporting period, the LIROBBINS also provided information on 14 non-Soviet acquaintances of interest to the Station.
+
+for/Willard C. CURTIS
+
+<table><tr><td>DATE:</td><td>03 MAR</td></tr><tr><td>CORPORATION:</td><td>UNIVERSITY OF ILLINOIS</td></tr><tr><td>JOB CODE:</td><td>X1</td></tr><tr><td>JO:</td><td>8</td></tr></table>

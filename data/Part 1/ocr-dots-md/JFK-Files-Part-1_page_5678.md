@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_5678.png
+
+Convert to MarkdownSUBJECT:
+
+NUMBER:
+
+DATE:
+
+The passport file of SUBJECT in: [ ] name as shown above; or [ ] under the variation _________ was reviewed at the Passport Office, Department of State, with the following results:
+
+BIRTH: On [ ] at [ ]
+
+PASSPORTS ISSUED:
+
+Most recent-# [ ], issued on [ ] at [ ] for (time) [ ] travel to or residence in [ ]. [ ] for purpose of [ ]. [ ] SPOUSE: Name [ ] ; born at [ ] [ ] and on [ ] Married (date) [ ] and [ ] due [ ].
+
+[ ] Never Married [ ]
+
+FATHER: Name
+Born at [ ]
+If foreign born, U. S. citizen: [ ] Yes [ ] No [ ] Deceased
+
+MOTHER: Name
+Born at [ ]
+If foreign born, U. S. citizen: [ ] Yes [ ] No [ ] Deceased
+
+PERMANENT RESIDENCE: [ ]
+
+MAILING ADDRESS: [ ]
+
+OCCUPATION: [ ]
+
+Previous - [ ] Over [ ] File at FRC, Suifland, Md., (Check if applicable)
+
+[X] In circle indicates verification of information on this form. Any discrepancies or variations are written in as shown on Passport application. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .

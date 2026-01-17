@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_7689.png
+
+Convert to Markdownwould call her back. On 10 May 1966 she tried to call Subject, who was out,
+saying that she wanted to know about the arrival of a man from Russia. On
+11 May 1966 Subject told her he still had no answer on her papers. She
+said she planned to take a business trip to Brussels and Paris in June and
+mentioned that Elke (LNU) was in Paris visiting her son. On 10 Jun 1966
+Subject asked for KAMMERMANN at 18-65-61 and was told she was in
+Europe for a month (phone listed to importing firm Incomex, S. A. at
+Isabel la Catolica 45-914). On 6 Jul 1966 Subject called her at 12-78-32
+(listed to the Banco de Mexico at Cinco de Mayo 2) and told her he had a
+document for her. On 11 Jul 1966 she told Subject that she needed his
+signature on the document, also sent regards to Subject's wife and children.(1).
+(~~28~~) Ernesto CHAZARO Peregrino (P-12818, 201-800-412), Assistant security chief of Astilleros de Veracruz, S.A., a shipyard in Veracruz. Said to be the adverturer-type, once worked for the Federal Security Police but was fired because of involvement in arms contraband.
+
+CHAZARO probably did meet Subject on 5 May 1966 in Veracruz.
+~~KALENTIN LERSKY (21-285 4/2)~~
+CHAZARO undoubtedly fabricated his story that Subject tried to recruit him
+after that and set up a 50,000 peso bank account in CHAZARO's name. ~~(30)~~.

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_7414.png
+
+Convert to Markdown14-0000
+
+February 1974
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Interview with Mr. Raymond A. Rocca on the David St. John Novels
+
+1. On the morning of 14 February 1974 Messrs. Frederick Evans and Lawrence Howe interviewed Mr. Raymond A. Rocca, Deputy Chief, Counter Intelligence Operations. The purpose of the interview was to follow up on information contained in Office of Security files which stated the belief that individuals in the Counter Intelligence Operations office had knowledge of the writing activities of Mr. E. Howard Hunt. This belief was a matter of record in the files of the former Security Research Staff and was attributed to Mr. Paul Gaynor, now retired, and Mr. Edward Sayle.
+
+2. During this interview Mr. Rocca was specifically asked whether or not he had knowledge of the existence of any form of official sponsorship or encouragement to Mr. E. Howard Hunt to write novels to improve the image of this Agency. Additionally, Mr. Rocca was asked whether or not any assistance was ever requested of the Counter Intelligence Operations office to be provided to Mr. Hunt or whether or not that staff had ever had any relationship with Mr. Hunt whatsoever. In response to these questions Mr. Rocca responded "on the record" that he has no knowledge of any such arrangements nor at any time was he party to any assistance or any requests for assistance to Mr. Hunt. Mr. Rocca stated that the particular section which he had been most actively concerned in the past years was responsible for handling a variety of tasks categorized under the area of "setting the record straight." In this sense, the "image" mission of the office was to counter misinformation currently in the media or otherwise believed to be part of an effort to discredit the Agency. Mr. Rocca feels that any assumption that Mr. Hunt was engaged in any form of Agency sponsored image activity would have probably lead to the conclusion that it was done under the Counter Intelligence Operations. However, Mr. Rocca emphatically stated that this was not the case.

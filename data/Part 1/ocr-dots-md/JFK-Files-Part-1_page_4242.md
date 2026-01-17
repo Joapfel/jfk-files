@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_4242.png
+
+Convert to MarkdownAntonio Cruz de Leão 200.00
+Kilo General Pujol 275.00
+Supplemento Claudio 100.00
+TOTAL 85,000.00
+
+Andrew D. Belilow
+W/C/CI/SF
+
+EAP/TI/C/CA/DU/Balancing mark
+Distribution:
+
+Grig & I - Andradees
+I - Cervantes
+I - Andradey Filio

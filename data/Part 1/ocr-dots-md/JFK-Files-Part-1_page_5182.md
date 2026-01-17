@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_5182.png
+
+Convert to Markdown4.- El Gobierno de Costa Rica estudia la posibilidad de empulgarlo, pero no existe un paie interesado en darle asilo.
+
+5.- Al aer dotenido BOSCH AVILA portaba la siguiente do cumentación:
+
+a) Certificado de Nacim into extendido en el Rerin- tro Civil de Quinta Normal el 8.AGOSTO.1975 a nombre de HECTOR EMILIO RAMON DAVANCO CINTOLESI, firmado por Alberto Casal, Je- fe Seccíón del Registro Civil. Hacido el 6.AGOSTO.1927.Inscrip ción N° 953 Circumcripción de Barrancas. Hijo do Héctor Davan to y de Amalia Enriqueta Cintolesi.
+
+b) Carnet de Identidad N° 2357422, del Cabinet de Santiago. RUT. 2.357.422-5.
+
+c) Conservador de Bienes Rafces Stgo. Registro de Vehículos Motorizados N° 882722. Auto Fímoa 1000. Focha 21.3K. TIEMBRE.1966.
+
+d) PASAPORTE corriente (color rojo) N° 26583, de 25 SEPTIEMBRE. 1975 , extendido a nombre de HECTOR EMILIO RAMONDA VANZO CINTOLESI. Registro del Libroto de Pasaportes do la Ca- sa de Moneda N° 14441-3.1975. Existen sollos, timbre de agua en la fotograffa y las firmas de VICTORIA MURAN DOREN y MARIA ELE NA BELMAN.
+
+Este documento tiene registradas las siguientes notaciones:
+
+= 26. XIII. 1975. Salida de Chile, por Pudahuel.
+
+= 29. XII. 1975. Entrada y salida de Panamá, por Tp
+
+= 29. XII. 1975. Entrada en El Salvador.

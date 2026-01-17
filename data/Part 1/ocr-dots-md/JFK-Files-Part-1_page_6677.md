@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_6677.png
+
+Convert to Markdown## SEGUNDO
+
+14. Viajes al aeropuerto: Desconozco.
+
+15. Actividades de Interculturas: Lengua.
+
+16. Contactos y Amigos: Conoces.
+
+17. Debilidades Personales: El amante, Danilo CUIRARI Martínez, Director del Instituto de Geografía de la Universidad de Cuenca.
+
+### SEGUNDA PARTE:
+
+16. Cual es los lados de anistad entre la Fuente y el Sujeto? Expleta donde que fea su conoce, qué grado de anistad han tenido, etc.
+
+Conoce al la Sujeto desde 1963, aprisa; siempre lo llevaron bien, considerando la Sujeto que la fuente era amigo del Sujeto.
+
+19. ¿Ha estado la fuente en contacto con la Sujeto después de que la fuente abandonó Cuba? Cuando tuvo la última que tuvo la fuente contigo con la Sujeto?
+
+Después de que la Fuente abandono Cuba, no ha estado en contacto con la Sujeto. La última vez que la Fuente via a la Sujeto fue el 15 Octubre 1965, en el Instituto de Oceanología.
+
+20. Crea la fuente de que se pueda reclusurar a la Sujeto? De porrasas cumplas si es que sí o que no. Si la Fuente creó que sí en quín se larga?
+
+Estimada la Fuente de que la Sujeto es una fiel seguidora de su amante, Dr. Darío CUIRARI Martínez, adopto al régimen, por cada razón la Sujeto es también adopteda al régimen.
+
+21. Si la Fuente no creó que la Sujeto pueda ser reclusurada a base de ideología política, etnica, etc., conoce la Fuente a alguna persona o incidente o debilidad personal en el pasado o la Sujeto que pudiera servir para proporcionarla al reclusuramiento? De cuándolas.
+
+No.
+
+22. Son las relaciones entre la Fuente y el Sujeto do tal tipo que permitan a la fuente hacer contacto con la Sujeto para trazar su reclusuración? Si os así, establecerá la fuente después a hacer contacto con la Sujeto, si se preventara la oportunidad, eso es, en caso de que la Sujeto saliera de Cuba y estuviera en posesión del poder hato en contacto?
+
+No sé la Fuente como pudiera reconocerla la Sujeto del día de su Karenza del sigło; sin embargo, que hayan el 15 Octubre 1965, las relaciones entre él(s) hermanos cualquier contacto. Por su parte, la fuente casualmente a realizar cualquier contacto en cualquier momento, alquilero whatever instrucción al respecto.

@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_6025.png
+
+Convert to Markdown# DIRECTORIO REVOLUCIONARIO ESTUDIANTIL
+
+jose antonio scheverrie con tus ideas en marcha
+
+## REPORT
+
+SUBJECT. Eduardo Lario's trip to Latin America.
+
+This report is aimed on narrating briefly the results of Mr. Eduardo in his recent trip to several countries of Latin America carried through for the purpose of visiting the D.R.A. delegations.
+
+In order to make easier the understanding of its points, we will outline the impressions gathered during the different countries according to the order in which they were visited, and dividing them into the following aspects.
+
+A.- Actual situation of the delegation.
+
+B.- Deficiencies.
+
+C.- Future possibilities.
+
+## VENEZUELA
+
+A.- Actual situation of the delegation.
+
+Indubitably, the J.N.A. delegation at Venezuela is at present the best delegation the J.N.A. has in Latin America.
+
+There are many reasons for which this Delegation has reached to occupy the first place in the Latin American Plan of the J.N.A. Suming them as they are the following.
+
+1.- It is identified with the nation's problems and national aims.
+
+2.- Team-work coordination and unity in the accomplishment of labor
+
+3.- A high sense of duty and a skillful plan of labor intelligently organized.
+
+Consequently, the J.N.A. delegation at Venezuela has succeeded in attaining a high prestige for the Directorio revolucionario Estudiantil among the most representative elements and institutions of the Venezuelan people agreeing their ideals with ours. The central management of the J.N.A. delegation at Venezuela is located in Caracas. It is a small office situated at a central city point.

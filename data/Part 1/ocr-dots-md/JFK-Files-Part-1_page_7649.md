@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_7649.png
+
+Convert to MarkdownUVI ILU INIUL
+
+recently rejoined RAY'S firm after previously leaving it and
+working for another firm in Mexico City. (The man is undoubtedly
+John G. *PAGE*, who is listed in the 1966-67 Anglo-American Directory
+as Sales Manager for Tele-Revista, S.A. The 1961-62 Anglo lists
+a John G. PAGE as being with Richard K. TONPKINS y Assoc.--i.e.,
+clearly the predecessor of "TONPKINS, RAY, MARTEL.") According
+to Subject, Mrs. PAGE's mother is Dr. Anita BRENNER, an American
+and the editor of "Mexico This Month." Mr. PAGE looks to be
+35-40 years old and his wife about 30. PAGE is half Jewish and
+one of his parents was born in Russia. PAGE consequently speaks
+some Russian and spoke a little with KUCHEROV. LIROBBIN-1 saw
+RAY a few days after the film showing, and RAY mentioned that
+PAGE had told him that KUCHEROV had made a definite effort to
+make friends with him (PAGE), but that he (PAGE) had no interest
+in making friends with Communists.
+
+4. As it turned out, Gulliver's Travels wasn't shown after all, as the film turned out to be in very poor condition and kept breaking when run on the projector. In its place, the Soviets showed a Soviet film about a poor young woman in 19th or early 20th century Russia who marries a wealthy old man and is corrupted by her new found riches. The kids and everyone else were disappointed, but Subject found some consolation in the fact that the flick at least was clean.
+
+5. **15 February.** On this date Subject and LIROBBIN-1 attended an evening reception at the Indian Embassy at the invitation of their friend K.D. FARASHAR, the Indian Consul. LOGINOV and SOKOLOV were also there, both without wives. Subject at first
+
+CARDED
+
+P-11712
+
+LIRORRIN-2 Contact Report, 28 Feb 1967

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_5491.png
+
+Convert to MarkdownRE: May 1971, Charles B. Ruffin (Resigned)
+
+Subject: New Messages from Clarair J. Charles/Current Haitian Rules Activities in New York City
+
+1. On 20 May 1971, Louis A. Bria, President, B & B International Corporation, New York City, furnished the following information:
+
+2. Charles Joseph Charles, President, Barque Commercial d'Haiti, Port-au-Prince, claims that his military and civilian anti-Haitian forces are organized in "strong cells ready to strike when the time arrives." He also claims to have supporters among Haitian allies in the US and "on the islands surrounding Haiti."
+
+3. Charles relaived his previous assertion that he will dispose Rivalier with or without the help of the US, but he would prefer to make contact with a "US liaison man in Port-au-Prince to speed up things."
+
+4. The financial crisis demand each day. Business are falling, and foreign capital continues to stay away. Attitude to sell Treasury bonds abroad and attract tourists have utterly failed. In an effort to attract foreign investors, Mr. Auguste, Haiti's former ambassador to the US and recently appointed Ambassador to East Germany,願ormal a businessman from Egypt (name not given) to have an audience with President Rivalier on 25 May 1971 in order to discuss a business deal. Charles expects to be present on this occasion.
+
+5. Rivalier is not well. In addition to diabetes, he has what Charles describes as "artificial血糖payrolls." He is very much upset by the failure of his son-in-law, the Minister of Finance, to call Haiti to foreign tourists. He is also disturbed about the most behavior of his other son-in-law, Lt. Col. Maxwell Baudinay. According to Charles, Dominique insured the presidential wrap by moving out of the palace with his wife and Mrs. Rivalier without Papa's permission. After Rivalier personally brought the party to the palace, Dominique resigned his palace assignment via his wife. Rivalier integrally refused to accept the letter of resignation from his daughter saying that, "as long as I am the president, people cannot resign--they are fired."

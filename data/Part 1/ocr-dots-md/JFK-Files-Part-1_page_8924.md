@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_8924.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+TO : DIRECTOR
+FROM : MEXICO CITY
+ACTION: C/WH 5 (WH COPY SLOTTED AT: 2105, 3 FEB 64 DO)
+INFO : ADOP, C/CI, VR
+
+14 FEB 64 MIN 1629
+
+S E C R E T 840936Z
+
+PRIORITY DIR INFO PRIORITY GUAT CITE MEXI 8361
+
+DECRIZED
+
+REF DIR 98833
+
+1. TICHBORN CONTACTED ESGAIN-7 BY TELEPHONE AT 1700 LOCAL 3 FEB. WILL MEET AT 1730 LOCAL 3 FEB.
+
+2. AWAIT FURTHER INSTRUCTIONS.
+
+S E C R E T
+
+C/S COMMENT: *RE PLS CABLE REPORT ON INITIAL CONTACT AND INSTRUCTIONS WILL FOLLOW.
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+Copy No.

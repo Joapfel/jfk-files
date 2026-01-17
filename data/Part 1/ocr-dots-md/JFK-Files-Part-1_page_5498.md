@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_5498.png
+
+Convert to MarkdownCase 47,540 (Received) New Developments in Plans of Haitian Banker, Claud Joseph Charles to Overthrow the Davalier Government
+
+NY-419-67
+
+Chief, New York Field Office (JDialog/br)
+
+15 May 1967
+
+Director, DCS
+
+ATT: OCS (Ramalin)
+
+Contacts:
+
+Louis A. Brun
+B & B International Corp.
+New York, N. Y.
+
+and
+
+Edmond Vilaire
+Commission Agent
+Shipping Service
+Box 916
+Fort-de-France, Haiti
+
+A copy of this memorandum will be furnished to DO/UY.
+
+Info contained herein is responsive to requirements of W/E which "Major" Dialog received from Ken Ripley. On 12 May 67, in telecon with Ken and his boss, Dialog passed on portions of this memo. They requested this memo indicating that new info is "vital."
+
+Info on stealing of UU funds comes from Brun's wife, an employee of the UEMP in NYC. Brun, who has been a contact of the FNI in NYC, on Haitian issues matters, decided not to tell his FNI contact about Charles' plans.

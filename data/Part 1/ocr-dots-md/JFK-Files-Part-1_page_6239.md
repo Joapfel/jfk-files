@@ -1,0 +1,75 @@
+# JFK-Files-Part-1_page_6239.png
+
+Convert to Markdown14-00000
+
+CLASSIFIED MESSAGE TOTAL COPIES
+
+COPY PRODUCTION PROHIBITED
+
+<table><tr><td>FILE ID</td><td colspan="2">☐ REFER TO BRANCH ☐</td></tr><tr><td>DESTROY</td><td colspan="2">☑ SOR ☐</td></tr></table>
+
+<table><tbody><tr><td rowspan="5"><strong>SECRET</strong><br/><strong>PERSON/UNIT NOTIFIED</strong><br/><strong>ADVANCE COPY</strong><br/><strong>ISSUED</strong> ☐ <strong>SLOTTED</strong> ☐ <strong>TUBED</strong> ☐</td><td>1</td><td>9</td><td></td></tr><tr><td>2</td><td>6</td><td></td></tr><tr><td>3</td><td>7</td><td></td></tr><tr><td>4</td><td>8</td><td></td></tr><tr><td>TIME</td><td>BY</td><td></td></tr><tr><td>ACTION</td><td>WVNC8</td><td></td></tr><tr><td>INFO</td><td colspan="2">VR. FILE DP, WH7 CN, CNECRP c/f T. C./U./L.</td></tr></tbody></table>
+
+S SECRET 232057Z
+
+WAVE INFO DIR CITE SAGO 8956
+
+TYPIC AMSPELL
+
+REF: SAGO 8923 CH 24230
+
+R
+I
+C
+O
+P
+Y
+
+AMMINT LETTER ARVD SAGO 23 MARCH ACCOMPANIED BY POLITICAL PRISONER PROP. FUBIAS GROUP WILL ATTEMPT ARRANGE DIRECT INTERVIEW WITH FREI APPROX FIRST WEEK APRIL THRU FERNANDO SANHUEZA, PDC DEPUTY. F-5 WILL PRESENT LETTER TO FREI AND THEN REQUEST FREI ASSISTANCE. WILL ATTEMPT TO ARRANGE INTERVIEW JUST BEFORE SOLIDARITY WITH POL PRISONERS WEEK TO INCREASE PUBLICITY AND EFFECTIVENESS. IF FREI REFUSES MAKE ANY COMMENTS SAGO WILL REPLAY LETTER IN LOCAL PRESS INDICATING FREI RCVD ORIGINAL AND NOW STUDYING MATTER. ALSO PLAN FUBIAS PRESS RELEASE, RADIO AND PRESS REPLAY.
+
+R
+I
+C
+O
+P
+Y
+
+SECRET
+
+CFN MAJ. MATTIA. T. FUBIAS 16 MAR 85
+
+R
+I
+C
+O
+P
+Y
+
+23 MAR 65
+
+29240 Dm
+
+R
+I
+C
+O
+P
+Y
+
+R
+I
+C
+O
+P
+Y
+
+R
+I
+C
+O
+P
+Y
+
+RI COPY
+
+(35)

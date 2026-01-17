@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_7583.png
+
+Convert to Markdowncame in about 1530 and ROMANCHEVKO about 1540. All watched the fight until it ended about 1550, after which the class began.
+
+1700-1830 -- KOVALEV and SOKOLOV.
+
+20 June
+
+1530-1700 -- BEDRIN, GONCHARENKO, ROMANCHENKO.
+
+1700-1800 -- KAZANTSEV. KAZANTSEV began talking about his trip on his own initiative. He said he left Mexico City on 30 May and arrived in Moscow on 3 June. (He did not say when he returned to Mexico.) He gave no reason for the trip, but said he had "several conferences and meetings" in Moscow. Subject interjected that he thought the trip might have had something to do with the Middle East crisis, since it broke out just about the time KAZANTSEV left. KAZANTSEV laughed spontaneously at this idea and replied that what he knew about the Middle East wouldn't do anyone any good. He then went on to say he had spent his first weekend in Moscow with his son, who shortly thereafter left for his summer job in "Siberia." He said he spent the second weekend (10-11 June) with his daughter. The daughter, according to KAZANTSEV, had planned to go "south" for a 2-3 week vacation in early June, but postponed the vacation when she learned her father was coming. (The implication, according to Subject, was that KAZANTSEV's trip came about fairly suddenly.) What KAZANTSEV was most interested in talking about, however, was the fact he had unexpectedly had to take his English proficiency test in Moscow. He consequently set aside the last three days of his stay for the test, which can often take that long. The first day is taken up by an oral test, and if one passes that, he goes on to the written test, which can take up to two days. KAZANTSEV, however, did so well on the oral test that he was exempted from the written test. He said his examiners gave him a "4" (on a 1-5 scale) and would have given him a "5" except for the fact he hadn't read any books in English since his last test. One is supposed to read four or five books a year in English, according

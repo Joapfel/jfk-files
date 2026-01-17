@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_5437.png
+
+Convert to MarkdownSECRECY
+
+Director, Domestic Contact Service
+
+FOR : OHS
+Chief, New York Office
+
+Case 47,540 - Cleland Joseph Charles of Haiti
+
+NY-556-67
+
+22 June 1967
+
+1. Please forward attached letter of Haitian banker Cleland Joseph Charles to Mrs. Dorothy Natlack, Department of Defense. In his letter Charles asks the Department of Defense to support him against President Bavalier.
+
+2. Mrs. Natlack asked Louis A. Brus, President, US Inter-national Corp., EIC, to have letter forwarded to her by "Major" Balog.
+
+Judson R. Horton
+
+Balog:gh
+Attachment: a/s
+
+<table>
+   <tr>
+    <td>SECRET</td>
+   </tr>
+   <tr>
+    <td>EXCLUDED FROM</td>
+   </tr>
+   <tr>
+    <td>Excluded w/wars, dawag, and</td>
+   </tr>
+   <tr>
+    <td>classified materials</td>
+   </tr>
+  </table>
+
+L
+
+14-00000

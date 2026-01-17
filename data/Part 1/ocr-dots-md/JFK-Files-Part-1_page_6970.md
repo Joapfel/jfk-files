@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_6970.png
+
+Convert to MarkdownSOLEMN DECLARATION
+
+I, ________, an officer of ________, SMABOVE
+
+______ do solemnly declare,
+
+THAT I am veritably informed that
+
+Maurice Hyman HALPERIN
+born March 3, 1906 at
+Boston, Massachusetts,
+United States of America,
+
+last reported residing at 600 Smith Avenue, Apt. 131-M,
+Coquitlam, New Westminster, B.C. has been and is currently
+considered to be an agent of the Russian Intelligence
+Service. Based upon this information I believe that
+Maurice Hyman HALPERIN is a member of a class of persons
+described in Section 5, paragraph (n) of the Immigration
+Act, Chapter 325, R.S.C. 1952.
+
+I make this solemn declaration conscientiously
+believing it to be true, and knowing that it is of the
+same force and effect as if made under oath and by
+virtue of the Canada Evidence Act.
+
+Declared before me )
+at _______________________________ )
+this ______ day of ) )
+_______, A.D. 19_____) ) )
+
+(Sgd.)

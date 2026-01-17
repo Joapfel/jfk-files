@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_5384.png
+
+Convert to Markdown14-00000
+
+# INFORMATION REPORT INFORMATION REPORT
+## CENTRAL INTELLIGENCE AGENCY
+
+This material contains information affecting the National Defense of the United States within the meaning of the Espionage Laws. Title 18, U.S.C. Sec. 793 and 794, the transmission or receipt of which in any manner to an unauthorized person is prohibited by law.
+
+<table><tr><td>CONTROLLED DISSEM</td></tr></table>
+
+CIA INTERNAL USE ONLY
+
+NO DISSEMIN ABROAD
+
+COUNTRY Haiti
+
+REPORT NO
+
+DATE DISIR
+
+NO PAGES
+
+REFERENCES DCJ Cases 40,556 and 47,540
+Supplement to: 00-B-321/12/06-68
+
+SUBJECT Cleland Joseph-Charles Must Raise US $605
+Thousand Before He Can Resume His Banking And Other
+Activities/Outline Of Charles's Plans/President
+Duvalier Reportedly Hopes To Improve His Image And
+To Attract Foreign Capital And Business Activity/
+Beware Continuing Possible Reorganization
+Of Haitian Government.
+DATE OF INFO May 68
+
+PLACE & DATE ACQ Port-au-Prince, Haiti May 68
+
+THIS IS UN EVALUATED INFORMATION
+
+SOURCE Naturalized US citizen of Haitian birth. Sources maintains close contacts with Haiti in the US and with prominent business and political figures in Haiti and travels at irregular intervals to the Caribbean countries.
+
+1. Cleland Joseph-Charles was released from prison during the evening of 25 Apr 68 in return for a "freedom" of US $605 thousand.
+
+2. Charles has been given until 24 May 68 to produce the US $605 thousand. This must be in an irrevocable letter of credit on an American bank in favor of the National Bank of the Republic of Haiti. It has been intimated that the 24 May 68 deadline can be extended, should Charles be experiencing any really unusual difficulties in producing the required money.
+
+3. In order to obtain his release from prison, Charles had to sign a statement of understanding that he would produce the US $605 thousand plus some unidentified real property. These terms were agreed to by both Charles and his wife prior to the release. At the same time, Charles wrote a personal letter to President Duvalier asking for release and promising to hand over the money and property in question.
+
+4. Charles is now under house arrest in Port-au-Prince, Haiti.
+
+5. Charles's immediate resources consist of about US $100 thousand in cash in two US banks (no additional data available), various loans, businesses (essential oils, an automobile dealership and others (no additional data available)), buildings, land and about US $400 thousand worth of Haitian government bonds. He did have another US $300 thousand in personal funds in Haiti. No one so long can say on this money to help raise the US $605 thousand, however, because prior to his release from prison the Haitian suborder/issue (no additional data available) confiscated it.
+
+6. Charles has agreed to raise the US $605 thousand on condition that it be used to pay off legitimate claims of depositors in his insurance Company d'Haiti. He has stated that he will permit the money to be paid out only in those deposits who are able to provide documentary proof that they had deposited funds in his bank.
+
+The dissemination of this document is limited to civilian employees and active duty military personnel within the intelligence components of the USG member agencies, and to those senior officials of the member agencies who must act upon the information; However, unless specifically controlled in accordance with paragraph 8 of DCD 1/1., it may be referred to these components of the departments and agencies of the U. S. Government directly. IT CANNOT BE DISSEMINATED TO CONTRACTORS. It shall not be disseminated to organsa-

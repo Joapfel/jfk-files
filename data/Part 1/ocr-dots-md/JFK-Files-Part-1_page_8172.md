@@ -1,0 +1,63 @@
+# JFK-Files-Part-1_page_8172.png
+
+Convert to Markdown<table>
+   <tr>
+    <td rowspan="2">JUNE 1961</td>
+    <td>SECRET</td>
+   </tr>
+   <tr>
+    <td>ROUTING</td>
+   </tr>
+   <tr>
+    <td>1</td>
+    <td rowspan="3">Pride</td>
+    <td>4</td>
+   </tr>
+   <tr>
+    <td>2</td>
+    <td>5</td>
+   </tr>
+   <tr>
+    <td>3</td>
+    <td>5</td>
+   </tr>
+   <tr>
+    <td colspan="3">JUN 6. 2254Z 1961</td>
+   </tr>
+   <tr>
+    <td colspan="3">OPERATIONAL IMMEDIATE</td>
+   </tr>
+   <tr>
+    <td colspan="3">IN 21119</td>
+   </tr>
+  </table>
+
+CITE
+
+GPIM DIR CITE MEXI 8172
+
+REF: DIR 43275 (out 62337)***
+
+1. LOPEZ PRESENCE LOS ANGELES REQUIRED 14 TO 18 JUNE.
+
+2. HIS INQUIRY DEVELOPS NO VISAS TO CUBANS OR DOMINICANS FROM MEXICO. VISAS FOR AMERICANS FROM MEXICO VIEWED EXTREME SUSPICION.
+
+3. LOPEZ SUGGESTS BETTER HE TRAVEL FROM LA TO CJ AFTER 15. JUNE USING PRETEXT REPRESENTATION AMERICAN INVESTMENT INTERESTS BUYING UP FRIGHTENED CAPITAL.
+
+4. PARAS 1, 2, 3 NOTWITHSTANDING SHOULD HOS WISH, LOPEZ WILLING DEPART MEXI IMMEDIATELY FOR MIAMI, ATTEMPT OSTAIN VISA FROM MIAMI TO CJ.
+
+5. PLEASE ADVISE.
+
+END OF MESSAGE
+
+CS COMMENT :* DISSEMINATION APPLICABLE TO RYSAT CABLES.
+
+** REQUESTED STATION CONTACT MR HENRY LOPEZ INSTRUCTING HIM GO CIUDAD TRUJILLO TO FILL OUTLINED REQUIREMENTS.
+
+<table>
+  <tr>
+    <td>SECRET</td>
+  </tr>
+</table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED, Copy No.

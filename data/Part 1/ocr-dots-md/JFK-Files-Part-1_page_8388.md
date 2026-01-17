@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_8388.png
+
+Convert to MarkdownSECRET
+
+10 JANUARY 1968
+
+MEMORANDUM FOR THE FILE
+
+SUBJECT: Valentin Sergeyevich LOGINOV (P-11712)
+
+On 16 December 1968 LICALLA reported that a light-complexioned woman had entered the Soviet Embassy grounds at 1106 that day. She was seen exiting at 1122 hours. While inside the Soviet Embassy grounds, this woman had contact with Subject (LOGINOV).
+
+LILYRIC reported that on that same date, 16 December 1968, an unidentified light-complexioned woman had entered the Soviet Embassy at 1106 hours. She was exiting at 1122 hours. She was driving a car with D.F. plates 964 FC. LIKAYAK reported on 7 January 1969 that these plates were registered to:
+
+Raquel* URTULER de *DALLAL
+Residence: Rio Ro 95 - 1
+Mexico 5, D.F.
+
+They are registered to a 1965 Opel Sedan.
+
+There are no Station Traces on the woman cited above.
+Attached are photographs of the woman seen in contact with LOGINOV,
+as well as the LIKAYAK placard check results.
+
+Grace H. FARMILANT
+
+CAPTIVE
+
+SECRET
+
+J. 11,712
+
+14-0000G

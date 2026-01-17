@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_4812.png
+
+Convert to Markdown14-00000
+
+bíes/Judiciales
+
+# Endo Bosch noVARÁ SU VIDA OTERRORISTA
+
+La pérdida de su hermano en el accidente de la carretera fue el KO de las dos personas muertas.
+
+Hasta ahora se desconocen los motivos del accidente, pero el fallecimiento de su hermano en la carretera ha causado un gran impacto en la vida de los familiares de Endo. La muerte del chico no es la primera en este país, y al igual que en los other, el asunto ha been aterrizado, lo que le da la ocasión a los familiares de Endo de analizar la cuestión. A pesar de que la familia está en el ámbito latineamericano y con sus entrelazamientos por los pares se han mostrado interesados en darle asilo, excepto en los que tienen dependientes varias cuentas con la justicia.
+
+Bosch disfruta en la cárcel de una libertad de moviliones excepcionales y ha captado la simpatía de todos
+
+los familiares de Endo. El asunto fueAGES de Endo y su hermano en la carretera, y él mismo
+
+Antes de ser referido a la cárcel de l'Artsga, Endo fue detenido por interroarme, informó por un agente de la Central de Inteligencia Norteamericana, según manifestó.
+
+"Un sobor macho, con el pelo churo, hablando con un号do Inglés y acompañado de un perillot (alderón cubano de apellido Menéndez estuvo a interrogarme en la Torre Compañia. Aunque incialmente acepté responder a unas preguntas, me lacitine
+
+Ibérico, con el nombre sumario el hombre que ha tenido que salivar la dignidad mientras vea su manzanaida del pueblo cubano."}, {"bbox": [1105, 907, 1502, 1078], "category": "Text", "text": "Lo survey de otro lado que undos de los corresponsora que ha influyendo en su totalidad, la cosa de faita. Lo cuyo a la PUA. Mira que debate con él más que un día en uno de los:"}, {"bbox": [1113, 1086, 1506, 1281], "category": "Text", "text": "Escribo de otro lado que hago que mis coches queden en la Llanada con su cama de bebedura. La cuenta a la tuvo. Siempre me duerme a lo que sea"}, {"bbox": [1116, 1281, 1510, 1485], "category": "Text", "text": "Endo ha赖s lamenso el hombre que ha tenido que salir la dignidad antes que vea su manzanaida del pueblo cubano. \"pura alguna tenece que saber ponerse alito bu hi—gruña\"."}, {"bbox": [1121, 1488, 1513, 1603], "category": "Text", "text": "Alarma también que es parte de un frente continuó tal vez contra el regimiento de Fidel Castro."}, {"bbox": [1126, 1608, 1521, 1868], "category": "Text", "text": "Asegura que, \"hemos castigado durante al enemigo en América\" y cita el caso del embajador cubano en Argentina, \"el enlace entre la isquierda argentina y el comunismo cubano, el cual否pé milagrosamente de un atentado\"."}, {"bbox": [1131, 1873, 1528, 2101], "category": "Text", "text": "Opina firmemente que Castro está ampliando su esfera de influencia en América, gracias a la actitud femminista de políticos y gobernantes, entre los cuales includes, también, a los nuevos."}, {"bbox": [1137, 2104, 1532, 2254], "category": "Text", "text": "Dijo que los diplomáticos latinoamericanos son flexibles, feminoides disfraces para los bufets, las comidas y la intriga."}, {"bbox": [1

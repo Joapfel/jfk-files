@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_8689.png
+
+Convert to Markdown7.08 El tipo de hombre que a menudo llega muy tarde y no le preocupa, que tiende a ser breve y brusco al saludar y a veces da la impresión de torpeza al entrar en una pieza.
+
+7.09 ninguna de las anteriores.
+
+Yo lo describiría así:
+
+## 8. Presentaciones:
+
+8.01 Al dar la mano Avanza hacia la otra persona
+
+Las más de las veces el otro tiene que avanzar
+
+8.02 Al dar la mano, el apretón es:
+- May fuerte ✓ Promedio
+- Fuerte ____ Flojo ____
+- Imperceptible ____
+
+8.03 Al dar la mano
+- Sacude la del otro
+- Aprieta la del otro ✓
+- Deja que el otro apriete ____
+
+8.04 ¿Hay algo en su manera de dar la mano que deba mencionarse? En caso afirmativo, describalo.
+
+8.05 Al ser presentado por primera vez:
+- Mira al otro directamente en los ojos ____
+- Inclina la cabeza hacia el que presenta pero se fija en el presentado ____
+- Inclina la cabeza y no mira a nadie ____

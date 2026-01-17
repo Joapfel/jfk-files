@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_7831.png
+
+Convert to Markdown15. CONTACTS: Continued
+
+b. Non-Soviet:
+
+47) Antonio SARMIENTO de la Barrera (P-12703), businessman who belongs to the French Club and has been reported friendly with several Soviets particularly Subject's predecessor, Oleg Maksimovich NECHIFORENKO, and currently Leonid Vasilyevich NIKIFOROV.
+
+On 24 April 1966 Subject was seen playing chess at the French Club with SARMIENTO and then went swimming with his wife. As of September 1966 Subject was reportedly still very friendly with the SARMIENTOs at the French Club. (15) On 17 December 1965 Mrs. SARMIENTO invited NIKIFOROV to a Christmas party and said to bring Subject and Sergey Sergeyevich KONSTANTINOV along. (1)
+
+48) Francis S. SHERRY, consular officer of the U.S. Embassy.
+
+Subject has met SHERRY at consular corps functions. On 28 January 1967 they discussed playing tennis together. (20)
+
+49) (Dr.) Emilio SORIA NO-Ariz (P-6741), doctor frequently consulted by the Soviets in Mexico.
+
+In November 1965 Subject took a sick Soviet sailor to be treated by SORIA NO. In December 1965 and January 1966 Subject himself was being treated by SORIA NO. (1)
+
+50) Graciela SOTO, no traces.
+
+On 8 September 1966 Graciela, who described herself as Carlos BLANCO's friend (q.v.), invited Subject to the baptism of her son Rafael's child, also mentioned Rosita, who may be Rafael's wife (no traces on Rafael or Rosita SOTO). On 9 November 1966 Graciela called Subject, started to chat about having a toothache and that she had tried to call him before, but Subject cut her off and said he would call her the next day and to say hello to everyone. On 10 November 1966 Carlos BLANCO invited Subject to a party and said they would first go to the church near Graciela's house on Tamaulipas. (1) (One Alfredo SOTO, no traces, is listed at Tamaulipas 115.)
+
+51) Jiri SVESTKA (P-7111, 201-265441), Czech Second Secretary and Consul, suspect intelligence officer.
+
+Subject and SVESTKA seem to be quite friendly, dan dinner together as well as discussing consular business. (1)
+
+52) Leopoldo VAN DYCK, employee of Air France, said to be a homosexual, has been friendly with other Soviet consular officers.
+
+On 6 and 13 September 1965 Subject was reported in contact with VAN DYCK in regard to visas for Air France passengers. (17) On 5 July 1966 Subject told David ORNELAS of Mundus Tours to give VAN DYCK his regards, adding that VAN DYCK would know what kind of regards they were. (1)
+
+53) Rafael VIDIELLA Ruiz (P-4805, 201-238943), came to Mexico in 1956 with his mother, Lucia RUIZ Garcia (P-4413), who lived in Moscow for 17 years and taught Spanish there - KGB officer Aleksandr Mikhailovich BROVKKIN was reportedly one of her students. In 1958-59 Rafael translated for the Soviet TASS correspondent in Mexico, in 1961 he was teaching Russian at the IICMR (Soviet Cultural Institute), and he is currently teaching at the Instituto de Interpretes y Traductores. His current address is Romero de Terrercos 922-1, telephone 43-80-16.

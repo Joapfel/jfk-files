@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_6990.png
+
+Convert to Markdown16 August 1960. On this date, according to LNT article of 5 Sept 60, the call for the US Emb for renewal of his American passport. (Reproduction of article is in with Martin and Mitchell material in Kay Grady's NSA file.) Renewal was apparently being delayed, possibly because of renewed attempts within the US Govt to deny passports to communist sympathizers.
+
+5 Sept 60. The same LNT article reported just above said that he had just attained a State Department report that he was working as an advisor to the Sov Govt on Latin American affairs--Said he was professor associated with Academy of Sciences, writing book on Latin American economy 1945-58. "There is nothing mysterious or dubious about my being in Moscow. Since my arrival I have filed two US income tax returns, listing my salary and employer. I am not working for the Soviet Govt any more than Van Cliburn was when he performed in a Govt-owned concert hall. I am a visiting prof in the USFRAS and not the first American to be associated with it." By appointment and my Soviet visa expires in July 1961.

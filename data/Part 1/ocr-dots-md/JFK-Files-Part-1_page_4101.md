@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_4101.png
+
+Convert to MarkdownSECRET
+
+5 August 1965
+
+MEMORANDUM FOR: Deputy Chief, WHD/Cuba
+VIA : Chief, WH/Budget & Fiscal foc
+SUBJECT : Payment to AMBIDDY-1 for Month of August 1965
+
+It is requested that you approve a payment of $12,000 for the month of August 1965 to be given to AMBIDDY-1. These funds will be used by him for propaganda and political activity of the MRR, plus payment of support to dependents and survivors. In order to expedite getting the funds to AMBIDDY-1, the AMWORLD funding channel will be used until another mechanism has been established which can be more closely controlled by Headquarters.
+
+APPROVED:
+DCM/D/C
+cc: WH/B&F
+
+SECRET
+
+L
+
+L

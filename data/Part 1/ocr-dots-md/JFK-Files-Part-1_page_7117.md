@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_7117.png
+
+Convert to Markdown005
+
+25. October 1965
+
+Valentin S. LOGINOV
+
+In their reply to a request we sent them for traces of
+subject, our headquarters have replied as follows:-
+
+" Valentin S. LUGINOV was Assistant Naval Attnchó at the Soviet Embassy in BUENOS AIRES in 1960, and was listed as Attache in HAVANA in 1961-63, where his exact duties were not known. If he now assumes MECHIPORENKO's post of Vice-Consul, his career appears to be an unusual one, and he must be presumed to be an intelligence officer".
+
+2. Does this check with your own information?
+
+COPIES MADE
+
+P - 11712

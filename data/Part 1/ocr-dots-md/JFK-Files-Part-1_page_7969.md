@@ -1,0 +1,52 @@
+# JFK-Files-Part-1_page_7969.png
+
+Convert to MarkdownPOOR QUALITY REPRODUCTION
+"UNAVOIDABLE"
+
+VIA: ATM
+
+GATEWAY ON THE DOOR OF A POLICE
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+DATE: 27 November 1957
+
+TO : Chief, MID
+APTE : EUDER/ICD - Cedrio B. Papet
+FROM : Chief of Station, Habana 597
+SUBJECT: general — Communist Matters
+RECIPIENT: Líona Guillermo SOTO Prieto
+
+1. When Subject was arrested on 24 September 1957, a number of scraps of paper containing incomplete notes were found in his possession. The following names were legible:
+
+*   **Eduardo OJECIA**, Juventud Obrera Catolica, Vedado.
+
+No previous record in Station files.
+
+*   **Dr. Salvador FASSIF** - Avenida 9 No. 802, Tel. 89-1388.
+
+Files show him to be a professor at the University of Habana and father of Salvador Fassif. Valdez who has a long record of Communist activities.
+
+*   **Argelia VELON**, Calle 20 No. 272-2, Tel. P-4988.
+
+Files show he is an active member of Nuestro SIomo, controlling cultural organisations, Cuba.
+
+*   **Agustín CALIAT**, Calle Cuba 165, Apt. 12-bajos. No previous file record.
+
+*   **Gilberto LEO**, Calle Infanta 113.
+
+Files list one Gilberto LEON and a Communist who was active in local matters inJM and Cuba also, a Gilberto LEO with the name received a UNO scholarship in 1955 to study agriculture in Mexico.
+
+*   **R. D. GAYETón**, Calle R. Ocasio 16.
+
+This person may be related with Fuenca Party with affiliates, who is the General of the party. He is treated in the files for three years. No further information of the National Curative Committee of the party, and the National Curative Committee of the party.
+
+**Koster Intermational**, Calle A y 1ª, Regla.
+
+No previous record in files.
+
+EPA, 61-23A
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+COPY 20155332

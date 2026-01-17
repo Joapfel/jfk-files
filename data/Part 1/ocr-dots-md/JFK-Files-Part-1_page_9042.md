@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_9042.png
+
+Convert to MarkdownSECRET
+
+exercises varying somewhat from those prescribed by TICHBORN's New York doctor. TICHBORN said that his back pains him toward the end of the day. Dr. Feffer opined that this condition should be cleared up within three months.
+
+4. TICHEORN appeared to be in excellent spirits at the luncheon. He was very enthusiastic about movie deals as a substantial part of his cover arrangements. He obviously is at home in this field and believes it will give excellent access to operation targets in Spain. TICHBORN has contacts in the U. S. movie industry, one of whom is a friend interested in making a movie in Spain. TICHBORN plans to meet this friend and other contacts in Los Angeles the first week of July.
+
+5. At the request of EUR/IB/Spain, the undersigned asked TICHBORN to be available in Washington, D. C. during the period 8-10 July 1968 to meet the contract agent whom TICHBORN will be replacing in Spain. TICHBORN agreed to do so and also to stay loose later in July for conversation with the Deputy Chief of Station, Madrid.
+
+6. The undersigned informed TICHBORN that from the cover point of view, it would be desirable for TICHBORN, enroute to Spain, to view the operation of WUBRINY/E in Greece. While there, we would like TICHBORN to assess a Greek whom WUBRINY/1 considers to have good operational potential.
+
+7. TICHBORN said that he has not received a reply from the IRS to his request for a copy of his 1966 income tax return (requested by C/DO/Pers). TICHBORN said that he is, therefore, writing another letter.
+
+Gale W. Allen-
+DO/C
+
+CC: TICHBORN file
+WUBRINY/Ops
+chrono
+
+SECRET!

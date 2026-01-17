@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_7040.png
+
+Convert to MarkdownPara. 3 : It is stated here that Source's connection, while visiting her parents in Helsinki, heard GOLITSYN'S story (presumably this means his defection) and also met his wife. The word order implies that she got Mrs. GOLITSYN after hearing about the defection, but this could not be, since Mrs. GOLITSYN defected with her husband. Please clarify this and give details of the GOLITSYN story she heard. That were the dates of her visit to Helsinki?
+
+Para. 3-b : The wording of this paragraph is almost identical to much of paragraph 3-b of Source's report on Yuriy Ivanovich KOSINKO, regarding COLBRUY's instructions, if belief that both defectors had visited England, any attempts to locate them, etc. The only difference as given in these reports is that KOSINKO is said to have been in the UK in 1965, and GOLITSYN "several times". Since KOSINKO did not visit the UK in 1965 but we understand that GOLITSYN did make several visits, some wonder (in view of the strong similarities in wording) if there may be a garble in Source's reporting. Does Source have any idea as to why the KGS: believed either of the two defectors had visited the UK?
+
+SECRET
+
+7

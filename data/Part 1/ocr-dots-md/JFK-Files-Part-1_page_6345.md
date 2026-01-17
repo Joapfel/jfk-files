@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_6345.png
+
+Convert to MarkdownSECRET
+(WHEN FILLED IN)
+
+FORM
+4-60
+
+25
+
+OBSOLETE PREVIOUS
+EDITION
+
+SECRET
+
+(20-41)

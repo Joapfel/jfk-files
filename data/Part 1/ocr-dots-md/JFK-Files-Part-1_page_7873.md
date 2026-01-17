@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_7873.png
+
+Convert to Markdownno indication that SHPAKEVICH was ever riotous or dead drunk. He is neither a skirt-chaser, although with his fluent Spanish and a human tank for a wife, SHPAKEVICH would be justified in immersing investigating grasshopper pastures among the Mexican women. But he is decidedly devoid of any imagination.
+
+Despite her great bulk, SHPAKEVICH'S wife, Tatyana Ivanovna, seems to be a very amiable person and all the Soviet wives agree that she is very "nice". Tatyana is two years SHPAKEVICH'S junior, but she acts like a protective mother-then-towards him. She has high blood pressure and that was probably why she left for Moscow over a month ago. Consequently SHPAKEVICH is here all by himself for the present and some of his friends, who refer to him simply as "SHPAK", invite him occasionally for dinner or lunch.
+
+Yet SHPAKEVICH can also hurt some people's feelings with his callous indifference. Once, when Nina Atanasyevna ILYU NIKITINA, wife of the films representative, Aleksandar Aleksandrovich, begged EVKOVICH to drive her home from the Embassy, since she was dead tired after running errands for the Nestron, SHPAKEVICH told her in an indifferant manner that he had no desire to do so and walked away. NIKITINA was so hurt by SHPAKEVICH'S attitude that she cried in the street on her way home. Acts of this nature cannot endear him to some people and by all indications, SHPAKEVICH does not seem

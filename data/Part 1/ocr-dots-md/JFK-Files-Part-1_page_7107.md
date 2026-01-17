@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_7107.png
+
+Convert to MarkdownSECRET
+
+Chief, SR Division
+
+Chief, Mr: COS, Montevideo
+Chief of Station, Mexico City
+REDWOOD - Rustem O. * BAKHTOV (201-783564)
+
+REFERENCES: A. MEXI-6621.
+B. BUEN-5339
+C. CIR-90901
+
+1. As reported in Reference A., Subject and his wife arrived in Mexico City at 0550 hours on 20 March 1966 via Canadian Pacific flight 421 from Buenos Aires. They departed Mexico City at 1300 hours on 21 March 1966 via Cubana flight 405 for Havana. Of also the mention of their departure from Mexico City in the newspaper clipping forwarded as Attachment A.
+
+2. According to LIENVOY, on 19 March 1966 Soviet Vice Consul Valentin Sergeyovich LOGirov (201-235412, known KGB) made reservations at the Hotel Agnes in Mexico City (frequently used by Soviets) for a couple with a child for the night of 20 March 1966. This reservation was undoubtedly for Subject; however, there has been no other mention of the child. At 0830 on 21 March 1966 [Subject] called the Soviet Embassy from the Hotel Agnes and said he would like to come over to pay [perhaps for the room and the Cutaus tickets].
+
+3. LICALLA reported seeing Subject at the Soviet Embassy in Mexico City at 1015 hours on 21 March 1966. Subject was seen talking principally with Embassy Counselor Boris Aleksandrovich KAZANTSEV (201-028975), suspect CPSU representative), and also briefly with Second Secretary Aleksandr Mikhailovich DENISOV (201-726491) known GRU), Ambassador Semen Tarasovich GAZAROV (201-049257) and Consul Pavel Antonovich YATSKOV (201-120123, known KGB). At 1040 Subject was seen entering the Embassy building with KAZANTSEV through the entrance which leads to the Referentura but also connects with other
+
+- continued -
+
+Attachments:
+
+A. Newsclip
+
+B. LICALLA photos
+
+Distribution:
+
+2 - CSR, w/att., as stated, H/M
+
+1 - CHH, w/o atts.
+
+1 - COS/montevideo, w/o att.
+
+<table><tr><td>SGIP 1</td></tr><tr><td>Excluded from automatic<br/>downgrading and<br/>declassification</td></tr></table>
+
+HEINA - 28591
+
+28 MARCH 1966
+
+SECRET
+
+200-4-64

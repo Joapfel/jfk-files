@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_9455.png
+
+Convert to Markdown02.179
+
+23 MAY 1950
+
+To: Colonel LOGAN GLASTON
+
+Subject: Information from Mr. MELVIN LASKY Concerning the Berlin Congress
+
+1. I attach (a) a copy of the letter received from MELVIN LASKY, (b) a list which he prepared of the expected American delegates at the Congress, (c) together with three additions to the British list.
+
+2. LASKY evidently means the American list to be definite as of this date. However, according to my information, at least two or three of the delegates whom he lists are still uncertain; for example, SIDNEY HOOK and DAVID LILLIPNUTZAL.
+
+3. The idea of a strong Soviet delegation, gathered from Western Germany seems to me excellent, and capable of major exploitation as we noted yesterday. However, it does not seem to require SHUB's presence in Germany.
+
+4. I don't know exactly what arrangements LASKY has in mind for continuing the payments necessary to maintain the new York office. One sentence in this letter suggests that he plans to make payment from Berlin. This matter ought to be clarified immediately.
+
+5. You will note in the LASKY letter the address and telephone number of the New York office.

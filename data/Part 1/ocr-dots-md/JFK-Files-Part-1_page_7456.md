@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_7456.png
+
+Convert to MarkdownEnclosure!
+
+1/- Copy of open letter from Harold B. Issacs, dated November 24, 1931.
+
+PRJ MB
+CC08
+
+In quadruplicate.
+
+No Copy to Location.

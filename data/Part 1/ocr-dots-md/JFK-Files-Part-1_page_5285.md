@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_5285.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+Immigration and V. eniorization ·-Service
+
+Instructions: Any handwritten entries should be in block capital letters. All Spanish names shall be hyphenated with the father's name first and the mother's name following.
+
+Director, Federal Bureau of Investigation
+Department of Justice
+Washington 25, D. C.
+
+<table>
+   <tr>
+    <td>
+     FILE NO. (# any)
+    </td>
+   </tr>
+   <tr>
+    <td>
+    </td>
+   </tr>
+   <tr>
+    <td>
+     DATE
+    </td>
+   </tr>
+   <tr>
+    <td>
+     12-13-64
+    </td>
+   </tr>
+  </table>
+
+The alien listed below has been admitted to the United States under the provisions of section 101 (a) 15 (A) or 101 (a) 15 (G) of the Immigration and Nationality Act,
+
+Other agencies are requested to furnish any deregulatory subversive information regarding this alien to the F. B. I.
+
+Form 1-67
+(Rev. 7/85-67)
+
+FILE IN '201-3570-29+

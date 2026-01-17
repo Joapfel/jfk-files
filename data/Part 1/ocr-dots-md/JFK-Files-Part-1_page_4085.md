@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_4085.png
+
+Convert to MarkdownSECRET
+
+W/C 65-303
+
+19 July 1965
+
+**MEMORANDUM FOR:** Chief, Monetary Division
+**VIA** : Chief, II/D budget & Fiscal
+**SUBJECT** : Transfer of Funds
+
+Please cable instructions to your representative in Frankfurt to contact the bank in Zurich to cable transfer the amount of $13,000 to the First National City Bank, New York, for credit to the account of Gregory Cardinal or Charles Ransuy.
+
+Carl E. Jenkins
+W/C/CA/EA
+
+cc: W/C/M
+
+BEP/WC/CA/EA/CEJenkins:hh (19 Jul 65)
+
+Distribution:
+
+Orig & 1 - Addressee
+1 - W/C/Res
+2 - W/C/CA/EA
+
+SECRET,

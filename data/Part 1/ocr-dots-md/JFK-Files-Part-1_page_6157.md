@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_6157.png
+
+Convert to Markdownreleasing six of the DDO documents in segregated versions and denying the remaining 21. IPS advised Mr. Oglesby that the non-DDO documents were being referred to the originating agencies for direct response to him.
+
+b. Mr. Oglesby appealed on 24 February 1976 requesting full release of all withheld data, and this triggered an additional search with the following results:
+
+(1) Nine press items, not considered under earlier guidelines were located.
+
+(2) As a result of an exchange of referrals between the DDO and the O/S, DDO accented responsibility for five documents not located during the initial review--i.e. those covered by Tabs 28, 30, 32, 33 and 34.
+
+(3) As a result of a Privacy Act request levied by Mr. Oglesby on the FBI, the latter referred three DDO memoranda, per P 76-180. Two of these--CSCI 516/02677-67 and CSCI 516/05757-67--had not previously surfaced, but the third had been handled initially under Tab 19(H). We informed the FBI we would handle the former two in the appeal.
+
+(4) In addition to the documents discovered per (2) and (3), 17 DDO documents were located through re-checking files and running down references. These additions have resulted in a total of 51 DDO documents being treated in this appeal, an increase of 24 since the IPS response, and nine press items.
+
+(5) Four EX memoranda--895, 1070, 2187 and 3363--were referred to the FBI on 5 October 1976 for coordination regarding FBI information therein. The FBI replied on 28 October 1976 regarding portions to be withheld and exemptions to be applied.
+
+(6) FJTA-48,789 dated 6 December 1965 (Tab 20) was referred to the US Air Force on 5 October 1976 for coordination regarding Air Force data therein. The Air Force responded on 29 October 1976 releasing its input.

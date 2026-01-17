@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_7119.png
+
+Convert to Markdown3. November 1965
+
+MEMORANDUM FOR THE RECORD
+
+FROM: ORONSKY
+SUBJECT: LICOWL-1
+
+Below is a summary of the noteworthy items from Subject during meetings with him in September and October.
+
+1. During September the meeting site was changed to the streets between Merida and Morel on Puebla street in Colonia Roma. Subject walks along Puebla street and I pick him up in the car and drive elsewhere for the meeting. I attempted to change the time of the meeting as well but Subject does not close his store until just before 2100 hours each day and feels that it would appear odd if he were to close the store at various times of the evening on different days of the week. His wife is not always in the store and he would have to close the store in order to meet me. He closes at 1400 hours on Sundays. I also instructed him to change the speed of the recorder from 1 7/8ths to 3 3/4ths. We have no recorders in the Station that will take a large reel at 1 7/8ths and this extremely slow speed is not necessary.
+
+2. During early September Subject commented that there is a new apartment building being constructed on the corner of Gelati and General de los Santos, across the street from the Soviet Embassy. (This is our new basehouse). I took considerable notes on this as though I had never heard of the
+
+COPIES MADE
+
+P-8764
+
+P-8764
+
+P-11712

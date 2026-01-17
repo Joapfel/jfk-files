@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_7150.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+TO : Regional Security Officer
+
+FROM : Francisco Díaz Gómez, Sr., Security Assistant
+
+SUBJECT: Cristobal TORRES Ponce - Embassy Chauffeur
+
+DATE: January 21, 1966
+
+Yesterday noon Mr. TORRES came up to my office and reported that he was sent to the Russian Embassy in order to pick up Higs. MUELLER's passport and that he was approached by Valentin S. LOGUINOV, 3rd. Secretary, who asked him if he would like to go to Russia and that if he would like to receive Russian magazines and that if the U.S. Embassy uses to send somebody to follow its employees when they go some place in town, and that this individual finally invited Mr. TORRES to have supper with him next Monday, January 24, 1966, and that they will meet one each other at the corner Insurgentes Sur with Baja California, under big advertisement "CANADA", at 1830 hours.
+
+Mr. TORRES also commented that this individual told him that in order to get a Visa for Russia, takes time, because they have to call Russia in order to get authorization, same process the U.S. Embassy does when the Russian Embassy requests a visa for one of the members of its Staff.
+
+fdg/-
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan

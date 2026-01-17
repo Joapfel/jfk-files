@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_7698.png
+
+Convert to Markdown46). Fernando SALOMON, José SALOMON Vallecillo, from Nicaragua.
+
+On 24 Oct 1966 SALOMON told Subject that he had a letter from the Socialist Party of Nicaragua addressed to the Soviet Consul and that he had come specially from Nicaragua to deliver it. Subject said he would talk to SALOMON the next day at the Soviet Embassy. (1). (SALOMON also made an appointment to see the Cuban Ambassador the same day.)
+
+47). Antonio SARMIENTO de la Barrera (P-12703), businessman who belongs to the French Club and has been reported friendly with several Soviets, particularly Subject's predecessor, Oleg Makslmovich NECHIFORENKO, and currently Leonid Vasilievich NIKIFOROV.
+
+On 24 Apr 1966 Subject was seen playing chess at the French Club with SARMIENTO and then went swimming with his wife. As of Sep 1966 Subject was reported still very friendly with the SARMIENTOs at the French Club. (15).
+
+48xx On 17 Dec 1965 Mrs. SARMIENTO Invited NIKIFOROV to a Christmas party and said to bring Subject and Sergey Sergeyevich KONSTANTINOV along (1).
+
+48). Francis S. SHERRY, consular officer of the U.S. Embassy.
+
+Subject has met SHERRY at consular corps functions. On 28 Jan 1967 they discussed playing tennis together. (20).
+
+49). (Dr.) Emilliano SORIANO Arlz (P-6741), doctor frequently consulted by the Soviets in Mexico.
+
+In Nov 1965 Subject took a sick Soviet sailor to be treated by SORIANO.
+
+In Dec 1965 and Jan 1966 Subject himself was being treated by SORIANO. (1).
+
+50). Graciela SOTO, no traces.
+
+On 8 Sep 1966 Graciela, who described herself as Carlos BLANCO's friend (q. v.), invited Subject to the baptism of her son Rafael's child, also mentioned Rosita, who may be Rafael's wife (no traces on Rafael or Rosita SOTO). On 9 Nov 1966 Graciela called Subject, started to chat about having a toothache and that she had tried to call him before, but Subject cut her off and said he would call her the next day and to say hello to everyone. On 10

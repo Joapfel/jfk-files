@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_9432.png
+
+Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+WASHINGTON 25, D. C.
+
+MAY 29 1950
+
+MEMORANDUM FOR: THE ASSISTANT DIRECTOR FOR POLICY COORDINATION
+
+SUBJECT: Lectures at Berlin House of Culture
+
+1. Attached are reports and a brochure concerning lectures at the Berlin House of Soviet Culture.
+
+2. May we ask you to inform us if this material is useful to you and if you are interested in receiving any other material of the sort that we may obtain.
+
+ROBERT A. SCHOW
+Assistant Director
+Special Operations
+
+SO DB-25432
+
+Encl: Two
+
+1. A Brochure Concerning Lectures at Berlin House of Culture
+2. Reports Concerning Lectures at Berlin House of Culture
+
+SECRET

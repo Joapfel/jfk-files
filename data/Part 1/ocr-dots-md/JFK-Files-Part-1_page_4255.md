@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_4255.png
+
+Convert to MarkdownSECRET
+
+in the Caracas area. He is located at either the convent of Nuestra Senora de Fatima or Nuestra Senora del Rosario. Gutierrez has offered to put A-1 in contact with the leader and has even given him contact instructions. A-1 is to proceed to Caracas and call on a Dr. Morelos, who A-1 suspects may be a priest. The Doctor will then take him to the leader. The conspirators have enlisted the support of a prominent COPEI leader of the right-wing faction but again his name remains a mystery. In addition, the garrison a Maracai, the Provinces of Oriente and Bolivar states have already given their tacit consent to join. The judicial police of Caracas are also willing to go along with the plotters.
+
+The actual plan will consist of a group of commandos (who are currently being trained by ex-WW II German Army officers) surrounding the homes of 60 of the most prominent Civil and Military leaders of the country on a date designated as the "night of the long knives". Simultaneously, the above-mentioned garrisons will rise up and take over the leadership of the Armed forces. Again, A-1 awaits KUBARK instructions as to whether or not to attend a meeting with the secret leader of the coup group.
+
+Andrew D. Rohlfing
+WH/C/CA/EW
+
+SECRET

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_8239.png
+
+Convert to Markdown# AFFILIATED COMPANIES
+
+ICAP Hellas, Ltd., 54A Queen Sophia Ave., Athens 672, Greece
+Chairman: Christopher S. Stratou, Former Minister of Communications and Minister of Education; Vice-Chairman, Hellenic Association of Manufacturers
+Co-Chairman: John P. C. Train, President, ICAP Corporation, New York
+Managing Director: George E. Economakis, Formerly Managing Director, Investment Bank of Egypt
+
+ICAP Benelux, S.A., 21, Rue des Drapiers, Brussels 3, Belgium
+Chairman and Managing Director: Willy de Fraipont, Managing Director, SOBELED (Associated group of Belgian banks and industrial companies)
+
+ICAP Iberia, S.A., Juan Bravo, 2, Madrid 6, Spain
+Chairman: Gustaf Jansson, Stockholms Enskilda Bank
+Managing Director: Miguel Echegaray, Director, Banif, S.A.; Formerly, International Finance Corporation
+Director: George F. Train, Formerly Chief of Marshall Plan in Spain and Portugal
+
+ICAP Italia, Galleria Paraggiarella, 2, Milan, Italy
+Chairman: Conte Ing. Pietro Antonelli, Managing Director, Caboto, S.p.A.
+Managing Director: Dott. Giovanni Nanes, Formerly Director, Italian Frozen Foods Institute
+
+INFICO, Marshall House, Hanuman Road, New Delhi, India
+President: Sardar Mohan Singh, Formerly Deputy General Manager, Punjab National Bank
+Director: Dan Singh Bawa, Proprietor, D.S. Bawa & Co., Chairman, Northern India Plywoods (Pvt.) Ltd.

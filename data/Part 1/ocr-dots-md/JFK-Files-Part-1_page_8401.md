@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_8401.png
+
+Convert to Markdown4-0000
+
+RE: G. P. Valero
+DATE: 11 DEC 1968
+
+Luis R. Caliente. For various reasons, I would like to know if there is any information in the files on Tony.
+
+INTEREST IN RUSSIA. Tony has shown an unusual interest in Valentin Loguinov. He recently made a date with Val to play tennis at the French Club. Tony admitted to making quite an effort to keep his date, despite other commitments which had come up. Val, however, did not show and did not call Tony. Tony seemed far more annoyed than would be normal under the circumstances.
+
+TONY'S FATHER, AMERICAN. Tony has a large family here and in the US. His father is an American and Tony speaks excellent English. He is very friendly, well-liked, pro-US!!, excellent tennis player.
+
+P-11712
+
+44-0000

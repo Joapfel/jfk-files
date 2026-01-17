@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_7851.png
+
+Convert to Markdown12. BADRIN was absent from class from 10 August to 19 September. During this period he was on home leave.
+
+13. On 19 September, BADRIN returned to class and commented that he had not looked at his English lessons since August. BADRIN related that he had spent most of his vacation in the Leningrad area which is his home as well as his wife's.
+
+14. On 21 September the subject of conversation turned to alcoholic beverages. BADRIN stated that he couldn't drink vodka like he used to as it gives him too much of a hangover the following day. BADRIN stated that he preferred whisky (Canadian Club and Seagrams) to any other drink.
+
+15. During the classroom discussion of books on 10 October, LIROCKET-1 noted that BADRIN has somewhat of an obsession with books of a pornographic nature. BADRIN had previously remarked to LIROCKET-1 that he enjoys a good spicy story and that during a 1966 layover in Brussels, he sought out and enjoyed viewing a number of sex movies.
+
+16. On 12 October, LIROCKET-1 commented that he might visit the States during the last of October. BADRIN, privately, asked LIROCKET-1 to purchase for him two 7 inch reel recording tapes and two 8 inch reel tapes. BADRIN said that "another friend" had brought him some tapes in the past. This was the first time BADRIN had ever requested LIROCKET-1 to perform any personal favor. On 31 October BADRIN canceled the order relating that he did not need the requested tapes inasmuch as a "friend" had purchased some Grundig tapes for him while in the US.
+
+17. On 16 November, KAZANTSEV strongly advised KAZANTSEV to remain for his class rather than skipping it. (See KAZANTSEV, 16 November incident).
+
+18. Valentin Mikhaylovich KORNYUKHIN (201-374727) began classes on 21 November, in the company of KAZANTSEV. KORNYUKHIN possesses good, fluent English although his grammar is somewhat unpolished. He speaks with a decidedly British accent. KORNYUKHIN stated that he had been in Mexico for approximately five months and had served previously in Burma from approximately 1962-65. After his assignment in Burma, KORNYUKHIN had worked in Moscow (1965-67). KORNYUKHIN appears to be between 35 and 40 years of age, blonde hair, trim, athletic appearance, approximately 6 feet tall and weighing between 165-170 pounds.
+
+19. On 23 November, KAZANTSEV and KORNYUKHIN studied together. During the lesson a slight difference of opinion arose between the two over what their government's position was during the 1964 Cyprus crisis. The exchange reflected the obdurate, somewhat dogmatic character of KORNYUKHIN. LIROCKET-1 characterized KORNYUKHIN as

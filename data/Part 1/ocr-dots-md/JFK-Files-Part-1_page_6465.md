@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_6465.png
+
+Convert to MarkdownRESTRICTED
+
+Anondnont Io. 1
+
+to
+
+Provisional Guide No. I. (Cost)
+
+CRITERIA FOR FRIJNITY ASSISTANCE UNDER ESCAPES PROGRM
+
+Sub paragraph E of unnumbered paragraph following paragraph five
+of Provisional Guide No. 1 is amended to read:
+
+"e. Is recognized by the competent authorities of the country in
+which he resides or other country outside of the area of
+Soviet domination as having the rights and obligations which
+are attached to the possession of citizenship of that country
+e.g. German refugees and exiles, persons of Turkish ethnic
+origin from Armenia and Bulgaria are excluded from assistance
+under this paragraph."

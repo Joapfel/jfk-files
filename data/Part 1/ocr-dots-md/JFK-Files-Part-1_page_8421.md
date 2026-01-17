@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_8421.png
+
+Convert to MarkdownMéxico, D.F.
+
+2 July, 1968
+
+Re: CALLE NEBRASKA 160
+
+Source: L/3
+Date: 1 July, 1968
+Ref.: Station request, 25 June, last.
+
+Attached, for our retention, is a report on the inhabitants of the Apt. bldg. at captured address.

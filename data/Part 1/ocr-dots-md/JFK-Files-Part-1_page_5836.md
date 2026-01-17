@@ -1,0 +1,6 @@
+# JFK-Files-Part-1_page_5836.png
+
+Convert to MarkdownSECRET
+(See Paged In)
+
+<table><tr><td colspan="5">DOCUMENT TRANSFER AND CROSS REFERENCE</td></tr><tr><td>SUBJECT OF DOCUMENT</td><td>DOCUMENT IDENTIFICATION</td><td colspan="2"></td><td></td></tr><tr><td rowspan="4"></td><td>E. BI FILE NO.</td><td colspan="2"></td><td></td></tr><tr><td>F. DISPATCH OR SOURCE DOC. SYMBOL NO.</td><td colspan="2"></td><td>G. DATE</td></tr><tr><td>H. SOURCE CRYPTOKEY</td><td>I. DATE OF INFO.</td><td>J. EVALUATION</td><td></td></tr><tr><td>K. ANALYST</td><td>L. DATE PROCESSED</td><td>M. DISSEMINATED IN</td><td>N. DATE</td><td></td></tr><tr><td colspan="5">DOCUMENT DISPOSITION</td></tr><tr><td>O. CROSS REFERRED TO THIS FILE</td><td>P. TRANSFERRED TO</td><td colspan="2"></td><td>N. BI FILE NO.</td></tr><tr><td colspan="5">PERTINENT INFORMATION</td></tr><tr><td colspan="5">14.</td></tr><tr><td colspan="3"><table><tr><td>CUESTA (DFL) VALLE, ANTONIO<br/>201-281313<br/>SEX M DOB ?<br/><br/>CIT CUBA<br/>OCC ?<br/>&lt; CUBA, HAVANA</td><td>100-009-014<br/>DRC -23A57<br/>22 JUL 68<br/>FBI</td></tr><tr><td colspan="2">R 6901100852</td></tr><tr><td colspan="4" style="text-align: center;">FILE IN 201-281313</td></tr><tr><td colspan="5">15. FILE THIS FORM IN FILE NO.</td></tr></table></td></tr></table>

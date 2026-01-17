@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_4346.png
+
+Convert to Markdown14-00000
+
+Correos y Teléfonos de la República Dominicana
+
+AÑO.
+
+SÉRIE A. NÚMERO
+
+SÉRIE B. NÚMERO
+
+SÉRIE C. NÚMERO
+
+NÚMERO DE COMUNICACIÓN
+
+NÚMERO
+
+NÚMERO
+
+NÚMERO
+
+NÚMERO
+
+CÓDIGO
+
+Independencia No. 7.
+
+Independencia No. 89.
+
+10 de Octubre No. 6 (Sevilla 4).
+
+Republica a/1.Santa Maria del Rosario.
+
+Abol Santamaría, Nro. 55.
+
+Arroyo Mirabal. Callao No. 56
+
+Cerro El Tefé No. 396.
+
+Vera I Señora No. 19.
+
+Transito No. 10
+
+Ente de Feria No. 2.
+
+Indonesia No. 38.
+
+10 de Octubre 274.
+
+Jesús A. Boverón No. 16
+
+Jesús Navarro Fumí No. 28.
+
+Manuel Pérez, condenado a muerte por el

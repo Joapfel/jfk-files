@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_6837.png
+
+Convert to MarkdownSECRET/NOFORN
+CONTINUED CONTROL
+
+- 7 -
+
+d) A copy, preferably prepared by Subject, presents the final array in The Cross and the Arrow and is addressed to Philip Stahl.
+
+e) A personal letter from MARY K. VILLAN to the HALLOWE is dated 7 October 1959. With thanks, STEVENS acknowledges receipt on 6 October of the material on The Cross and the Arrow. The writer is apparently working on a story, probably Inara's, an outline of which he will send the manuscript.
+
+f) It is a letter dated 20 October 1959. Subject writes his comments and revisions of STEVENS's screenplay outline of La Lucha.
+
+g. Correspondence with Mary HAWKPORT, 501 North Bedford Drive, Beverly Hills, California. (Attachments J)
+
+a) In a letter dated 30 September 1959 and addressed to MARGaret Stahl, Mary HAWKPORT discusses plans for playing one form, a Mexican girl, in the home of a certain PATTEN family in California.
+
+b) Agramant HALLOWE, in a personal letter dated 9 October 1959, acknowledges receipt of the foregoing letter by thanking Mary for visiting Mrs. PATTEN. Subject's wife tells her correspondent that she (Margaret) is going to be interviewed on television in Spanish in a couple of weeks. As indicated in this letter, Mrs. HAWKPORT has visited Mexico.
+
+h. Correspondence with Dr. Adis FURSEL, Governor's Press Office, Tel Aviv, Israel. (Attachment I)
+
+i) A personal letter dated 24 September 1959 and signed "Mirlan" is addressed to Subject's wife. The envelope bears the above return address.
+
+j) In an unsigned letter bearing the above return address, dated 2 October 1959, the writer asks whether Subject has received the Merry Go Round renewal Assignment. (see paragraph 15 - 1)
+
+k. Correspondence with Dr. Adis FURSEL, Governor's Press Office, Tel Aviv, Israel. (Attachment II)
+
+SECRET/NOFORN
+CONTINUED CONTROL
+
+3

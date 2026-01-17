@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_4592.png
+
+Convert to Markdown<table><thead><tr><td>FORM<br/>8-64<br/>1401</td><td>CLASSIFICATION</td><td>PAGE NO.</td></tr></thead><tbody><tr><td>93a USE PREVIOUS EDITION.</td><td>☐ CONTINUED</td><td></td></tr></tbody></table>
+
+6S OCT
+
+CS CCH
+
+* CP 7135
+* AP HIA IAT
+* 100E PT
+
+Investigation reflects that DCBCH has a friend or representative of his organization in Panama, same and address unknown. Circumstances indicate that DCBCH may have telephoned or cablegrammed this individual on or about 7 July 1966, from Miami, Florida, requesting that the above-quoted telegrams be transmitted.
+
+3. Headquarters received the above information from LINCOR accompanied by a request to initiate appropriate inquiries in Panama City in an effort to determine the source of the aforementioned transmission and also to discover if Orlando BACH Avila or one of his immediate associates may have been responsible for having this message sent. LINCOR cautioned that its role as the source of the above information should not be revealed in making the requested inquiries, though the data itself could be utilized.
+
+4. If feasible, it is requested that JNOEBH check its sources and report any information which connects BACH or any of his associates with the transmission of the above-quoted telegrams.
+
+Alicia J. BORCHGEN

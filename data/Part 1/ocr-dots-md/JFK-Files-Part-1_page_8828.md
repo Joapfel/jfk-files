@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_8828.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Chief of Station, Mexico City.
+
+Chief, Benefits and Services Division/OP
+HOSPITALIZATION
+Hospitalization Claim - Edward C. TICEROT
+
+(a) BKT - 5791, dated 9/22/65
+
+(b) BKT - 6030, dated 12/9/65
+
+1. Please inform subject employee that a check in the amount of $642.93 was forwarded to DTEARU on 4 December 1965. This amount represents all benefits payable under subject's Contract Hospitalization Insurance policy for the claim to be submitted with reference (a).
+
+2. If subject has any further questions regarding transmittal of his settlement, he should contact DTEARU.
+
+Distribution:
+3, COURIER City
+
+<table><tr><td>EMPLOYEE DATA FORM</td></tr><tr><td>Enclosed is your contract number.</td></tr><tr><td>Be sure to read instructions in parentheses.</td></tr></table>
+
+BKT - 4493
+
+27 December 1965
+
+CONFIDENTIAL
+
+CP/BSD/IB
+
+Mukichalaeki llo
+
+5408
+
+1 ID
+
+AC/ID
+
+1 WB
+
+WTL/Park.

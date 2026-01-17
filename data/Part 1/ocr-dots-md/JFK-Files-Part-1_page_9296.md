@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_9296.png
+
+Convert to Markdown17..27986 82
+269.A.3 Newsletters, SJF300930, NY Bureau; 8/4/86
+165..CIA-P-2958
+168..CIA-P-4010 Secret
+167..CIA-P-4003 Secret
+79...CIA 25716 Conf.
+81...OSS 771112
+84...OSS 969079
+78...OSS 771093
+76...OSS 771238
+71...OSS Pictorial Records Division; 473.23
+1891
+
+B 915 USSR Moskva 22480
+72 27...OSS Pict. Records Div. 473.23 M891 B 915 USSR; 22639
+74...OSS Pict. Records Div. 473.23 M891; b 915 USSR 22505
+68...CIA 2506 Graphics Donor #6; Restr.
+83...CIA 30047 Secret
+14...CIA 25686 Conf.
+58...CIA 28941 Conf.
+85...CIA 30034 Secret
+65...CIA 28797 Conf.
+77...CIA 25717 Conf.
+69...CIA 26017 Conf.
+66...CIA 28789 Conf.
+86...no description
+96...CIA 28441 Conf. (also in Bedell Smith's book).
+89...CIA 32617 Conf.
+88...CIA 2166
+Restr. Graphics Donor #6
+92...OSS 771227
+94...CIA 27996 Secret
+95...CIA 17361 Restr.
+120...OSS-P-11172 Signal Corps Photo.
+
+82 total

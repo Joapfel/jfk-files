@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_5900.png
+
+Convert to MarkdownSECRET
+
+h.
+
+g. In connection with my earlier query re the report from Cuba that the Revolutionary Air Force is planning to remove a couple of planes from the US to Cuba without an export permit, Bernie got the following information from [STPSS] A Cuban air force mission is in Miami concerning the aircraft. The Cubans are happy with the way [BIFRS] has handled things for them even though they don't have the export license yet. [BYERS] has been asked to a party in Havana to be given by Juan Almida in his honor. He may go on Friday. Do we have requirements for him?
+
+5. On the morning of 17 August I phoned Bernie to tell him about the followup on the report concerning the planes (Raba 2653). he said [Keynolds] phoned him on the evening of 16 September about this. bernie said he passed the information to Customs, who said that since the Cuban air force are the owners of the planes (they are AT 6's) there is little that can be done if they file flight plans for a local flight and then leave for Cuba. They asked Bernie for suggestions and he said he had none. [BIFRS] reports that the Cubans asked him if he could find American pilots for the planes - and he said he'd try, but actually has no intention of doing so. [BIFRS] was expressed at the speed and accuracy of our information, but believes that the Cuban Government is being precipitate in expecting to get the planes out.
+
+T. J. Flores
+WH/III/40
+
+SECRET
+
+7/BR

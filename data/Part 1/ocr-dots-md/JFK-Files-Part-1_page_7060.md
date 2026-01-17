@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_7060.png
+
+Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CENSORSHIP STATEMENT<br/>CLASSIFICATION: SECRET</td><td>RECEIVED NOV 16 1974</td></tr><tr><td colspan="3">Attache and suspect KGB officer Vladimir Sergeyevich KORANSEKIN (201-744341) in KORANSEKIN'S car. On 3 December he was seen leaving with MANHUN and PRASHUKIN.<br/><br/>4. Attached is a photograph of the visitor taken by LILYRIC.<br/><br/>5. Station Mexico would appreciate it if the attached photograph could be circulated at Headquarters for possible identification.</td></tr><tr><td colspan="3">for/Willard C. CURTIS</td></tr><tr><td>(CENSORED)</td><td>RECEIVED</td><td>NOV 17 1974</td></tr></table>

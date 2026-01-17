@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_8722.png
+
+Convert to MarkdownVI. POSICION IDEOLÓGICA
+
+15. General
+---
+
+15.C2 En general:
+
+Es hombre de opiniones francas y evidentes. Es capaz
+de expresar dichas opiniones sin importarlo al parecer
+los acentimientos y actitudes de otros.
+
+Es hombre de muchos prejuicios e ideas dogéticas.
+Puede expresarse acalorada y resueltamente cuando
+es necesario.
+
+Es hombre que posiblemente desvía opiniones de
+controversia con ligerza o buen humor. A veces
+es difícil conocer sus opiniones porque es difícil
+hacerlo hablar con seriedad.
+
+Es hombre que puede tener muchas opiniones firmes
+pero se le hace difícil mostrarlas. Tiendo a
+disculparse y a mostrar tinción y desasosiego
+cuando se avecina una discusión.
+
+Es hombre cuyas verdaderas opiniones son difíciles
+de conocer: Usualmente es diplomático y convencional
+cuando se discuten temas polémicos o prohibidos.
+
+Es hombre serio y resuelto a portarse en forma
+apropiada y convencional. Tiene las maneras de una
+persona bien disciplinada que solamente dice lo que
+se supone decir o lo que otros esperan que diga.
+
+Es un hombre de opiniones muy educadas. Está bien
+informado y es capaz de sostener un argumento de
+manera considerableMENTE articulará, pero a veces
+se vuelve clínico o sutilmente sarcástico.
+
+Es hombre tímido y taciturno en cuanto a sus op-
+cionnes. Es muy difícil hacerlo expresarse sobre
+un tema, particularmente si es tema polémico.
+
+Kinguna de las anteriores descripciones sirve; so
+le describe mejor como sigue;

@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_8583.png
+
+Convert to Markdownwhile cell acting info for A. S pretended he was hesitant to receive money but did not drag the story long ( from fear that A might change his mind ).
+
+7. After the brief "ceremony" about giving and accepting the money S asked if he have any news about the US Embassy Phone Directory. He reminded him that he told at their last meet that he had no way of getting it. She asked if he know anybody working in the MI USIS. When S answered that he did not think so A told him there was a number of girls working for USIS, they work on the 3rd floor (of the Emb building) and several of them live in the Hotel Geneve; they carry out some propaganda; A is not sure "how far" can one get with them ( in terms of having good time ), but there is no problem of getting them ( although, the internet is limited to one girl) to go out for dinner and dancing. This is something she should look into. S commented to the effect did A have an idea how much it takes to take a chick like those for an evening of good time; such a bill runs about MN 700.- . A replied that money was no problem; if S lines up something it is enough if he phones him a day earlier and he will bring him the money.
+
+8. At this point A gave S the following instruction: If S ever needs something from A, as money, or he has something for A he should call the Emb and state that he wants to speak to Vladimir of the Consulate and stress that it was Vladimir calling. If A is in his office he will take the phone and there will be "just mucho gusto de saludarle" from both sides. If A is not there he(S) is to request to give the message that Vladimir called. The call should be made in the morning if possible.
+Regardless, whether S gets to speak to A or not he is to go the same evening at 2000 hrs to their meeting place at Samborna-San Angel.
+
+said
+
+9. She would see what could be done and asked A was it possible that he was not able to do anything about the platinum. A apologised that it skipped his memory to tell S that he spoke to their Commercial Counselor Viktor IVANOV (full name mentioned by A) about the matter and that VI wanted first to know through which Swiss bank would the transaction be carried out; terms of the deal the buyers propose and be advised that Sovs were not interested in any deals which would be less than 1 million US Dollars. As soon as S submits the info, S and IVANOV will start working on the deal; if IVANOV leaves before the deal is closed it will not

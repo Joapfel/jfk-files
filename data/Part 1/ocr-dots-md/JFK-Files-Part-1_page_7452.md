@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_7452.png
+
+Convert to MarkdownDecember 2, 1932.
+
+No. 1480.
+SECRET:
+
+MEMORANDUM.
+
+Sixth reference to R.A. memorandum No. 1305 of December 4, 1931, regarding Harold ISAACS and his connection with Milaire NOULING, it has just been learned that one Viola ROBINSON arrived in Shanghai on August 22, 1932, by the C.I.M.R.S. express of ASIA. On August 29, Miss ROBINSON, together with Harold ISAACS of the CHINA FORTN, gave notice to the United States Consulate General of their intended marriage, which actually took place on the 14th September. In his marriage application, ISAACS particularly requested that no publicity be given to the forthcoming ceremony. It appears that Miss ROBINSON is a follower of the suffragette, Lucy STONE, who, some fifteen or twenty years ago, advocated among American women the retention of the maiden name after marriage. According to officials of the United States Consulate General, Viola ROBINSON, therefore, will not be known as Mrs. ISAACS.
+
+In connection with Viola ROBINSON's activities in China, in a letter, dated Szochuen, July 24, 1931, Harold ISAACS wrote to Viola ROBINSON as follows:
+
+"You are in the swim, Viola. I'm coming back to dive in and swim alongside. What do you think? It is all extremely fortuitous from our standpoint that I should have seen the light at last. Your work with CUC and the future in it is far more important than anything you could do out here or anywhere else for that matter. I'll get back - no matter a possible delay - no matter how - there will be a job to be done and by our gods I'm going to get into it..."
+
+Attention is called to the name CUC mentioned in the above extract.
+
+A TRUE COPY
+OF THE SIGNED
+ORIGINAL
+
+RECORD COPY
+
+H/W ATT'n To 35256
+
+1-772-

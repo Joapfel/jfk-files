@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_9012.png
+
+Convert to Markdown22 October 1963
+
+MEMORANDUM FOR: OF/CSTU/CAAS
+THROUGH : DO/Personnel
+SUBJECT : Contract Agent Cover Report
+          for Edward G. TIGHBORN (P)
+
+Contract Agent Edward G. TIGHBORN (P) was paid by his cover company, WUSALINE, $17,000 in calendar year 1967 and $11,333.28 for the period 1 January to 31 August 1968. He was also upon termination paid through a second DO cover company a one-time lump sum taxable payment of $3,311.00. The latter payment was made on 12 September 1968. TIGHBORN's effective termination date was 31 August 1968.
+
+Gale W. Allen
+DO/CO/C
+
+CC: DO/Personnel
+
+SECRET
+
+201-253203

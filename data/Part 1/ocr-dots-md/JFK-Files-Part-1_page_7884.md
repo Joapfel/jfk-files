@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_7884.png
+
+Convert to Markdown14-00000
+
+PRECEDENT
+
+HMM-11.179
+TDCS-314/08252-67
+
+<table><tr><td>INDEX: ☐ YES ☑ NO</td></tr><tr><td>CLASSIFIED TO FILE NO.</td></tr><tr><td>A-REF TO FILE NO.</td></tr><tr><td>FILE RID ☐ REF. TO PRANCH ☐</td></tr><tr><td>DESTROY ☐ SIO.</td></tr><tr><td>DISTRIBUTED BY 3 PER #</td></tr><tr><td>ACTION JW (ACD) ☑ RID COPY</td></tr><tr><td>ADVANCE COPY <input type="checkbox" checked disabled />-14 ☐ ISSUED ☐ SLIPPED ☑ DATED</td></tr><tr><td>UNIT SDD</td></tr><tr><td>TIME -</td></tr><tr><td>BY A</td></tr></table>
+
+INFO VR. FILE, ADDP. CA 2, CA/PEG, CA/PROP, CI/OPS, CI/IC 2, FI, FI/D CS/DD FI/INT 6, SOD 4, CA/O 4, CI, CI/PS, CI/SP, FI/SPG, RI/AN, CS/SGO, NE 12, WH 8, SB/MC 6, SB/S/RR 3, DO 5, SB/C 5.
+
+SECRET 081940Z CITE MEXICO CITY 1707
+
+PRIORITY DIRECTOR INFO PRIORITY PANAMA CITY, MONTERREY (POUCH)
+
+INTEL
+
+8 JUN 67 W1 85325
+
+SUPDATA: SOURCE RAYMOND A FRADYER FROM SUBJECTS DURING CONSULAR OFFICERS MEETING 7 JUNE. NO LIASON. RI INDEX. REF DIRECTOR 07730.
+
+FILED: 081940Z
+
+S-E-C-R-E-T
+
+201-285412

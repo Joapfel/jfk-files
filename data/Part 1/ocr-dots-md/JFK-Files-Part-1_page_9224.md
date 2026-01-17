@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_9224.png
+
+Convert to MarkdownSECRET
+
+12 Jan. 1951
+
+QUESTION for Hudson:
+
+Re the second photo-book: Stafni B. Ólfráðsson.
+
+Any dates or figures that could go in a progress report? First April.
+
+What does he e estimate will be total number of photos? 150.
+
+Any tentative estimate on the selling price? No.
+
+Has his collaborator gotten permission from his employers
+to use their files and/or to sign the book as collaborator? Unknown.
+
+Re first photo-book:
+
+What is best estimate of date it should be on sale? April- May.
+
+SECRET

@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_5211.png
+
+Convert to MarkdownSECRET
+
+SUBJECT: Trace Reply, - Clemard Joseph CHARLES
+
+of notes guaranteed by political figures. This Source
+also stated that CHARLES was "something of a favorite of
+the President, who gave him support."
+
+3. Attached to this memorandum is a copy of Department of State Airgram No. A-325, dated 16 February 1963, from the United States Embassy, Port-Au-Prince, Haiti, subject: Banking: Balance Sheet of the Banque Commerciale d'Haïti which includes some information on CHARLES' life story. You will note the comment in the last paragraph of Airgram A-325 that reads, ". . . Be all that as it may, the Embassy has no strongly adverse information concerning Mr. Charles' integrity or banking honesty. And as the balance sheet shows, his bank, if not thriving, is at least still a going concern.
+
+4. It may be that a check with OO/C through Mr.
+Schreyer's office and a request for field station traces will
+provide additional information concerning CHARLES. A copy of
+this memorandum is being forwarded to RID with a request
+for a 201 file on Subject which will be forwarded to you on
+permanent charge.
+
+Enclosures:
+
+1. State Airgram No. A-325 (copy)
+
+2. Draft BR Summary
+
+SECRET

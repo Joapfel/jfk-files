@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_7254.png
+
+Convert to MarkdownSECRET
+
+CONTACT REPORT
+
+SUBJECT: LICOWL-1
+DATE OF MEETING: 21 November 1966
+
+1. I picked Subject up at the corner of Nilo and Melchor Ocampo at 1100 on 21 November 1966. The meeting was held in my car on a side street and lasted 50 minutes. I paid Subject 800 MN, his salary for November 1966. Next meeting is for 1100 on 1 December at the above place. Subject will be given an SGSWIRL examination at this meeting.
+
+2. Subject didn't have a word to say about LOGINOV's attempt to recruit him. When I asked about it, he said he thinks that LOGINOV is out of town since he hasn't seen LOGINOV since his last meeting with me. His notes for 17 November say that at 1210 Yurly (ISAYEV) came in with another "diplomat" and both bought cigarettes. ISAYEV told Subject (apparently out of the blue) that LOGINOV had been very busy and therefore hadn't been able to see Subject. ISAYEV then added Subject shouldn't forget about what LOGINOV had asked him. Subject answered that he didn't know what ISAYEV was talking about. ISAYEV simply answered, "Good, he will come to see you). I asked Subject why ISAYEV would be discussing LOGINOV's business with him. Subject had no idea, except that he thinks, because of this, that they are connected professionally. (COMMENT: GRU and KGB?)

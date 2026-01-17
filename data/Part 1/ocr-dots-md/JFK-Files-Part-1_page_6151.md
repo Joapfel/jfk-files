@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_6151.png
+
+Convert to MarkdownIdentification of FBI documents mentioning Carl Preston Oglesby, Jr., IRS 75-1161, 30 April 1965.
+
+1. Report dated 28 June 1965, Detroit, Michigan; (no file numbers) Subject: Communist Infiltration of Students for a Democratic Society
+
+2. Report dated 6 August 1965, Detroit, Michigan; Subject: Carl Oglesby (no Bujile file #, no FOF #)
+
+3. Report dated 4-8 October 1965, Detroit, Michigan; File # 100-33032, Bujile 105-142056; Subject: Carl Preston Oglesby, Jr. - Security Matter - SDS
+
+4. Report dated 6 December 1965, Washington, D.C.; File # (1S) 105-142056 (no Bujile #) Subject: Carl Preston Oglesby - Security Matter - C
+
+5. Report dated 17 May 1966, Washington, D.C.; Subject: Carl Preston Oglesby (no file #)
+
+6. Report dated 17 May 1966, Washington, D.C.; Subject: International Days of Protest, March 25-26, 1966 (no file #)
+
+7. Report dated 20 May 1966, Detroit, Michigan; Re: Carl Preston Oglesby, Jr. (no file #)
+
+8. Report dated 30 June 1966, Detroit, Michigan; File # 100-33032, Bujile 105-142056; Subject: Carl Preston Oglesby, Jr. - Security Matter - SDS
+
+9. Report dated 14 September 1966, Detroit, Michigan; Subject: Carl Preston Oglesby, Jr. (no file #s)
+
+10. Report Dated 27 October 1966, Detroit, Michigan; bujile 105-142056, Field office file 100-23032; Subject: Carl Preston Oglesby, Jr. - Security Matter - Students for a Democratic Society
+
+11. Report dated 28 October 1966, Detroit, Michigan; Subject: Carl Preston Oglesby, Jr. (no Bujile, no FOF #)

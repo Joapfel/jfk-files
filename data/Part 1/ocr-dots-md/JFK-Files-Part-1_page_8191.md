@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_8191.png
+
+Convert to Markdownlatter might find it very profitable to contact Tichborn (P) and discuss the Salvadoran situation with him (see SALV 3630, IN 16568, dated 10 March 61). As a result, Tichborn (P) was apprised upon his arrival that if he did meet with Mr. Mann that he should not conceal the fact that he had gone to El Salvador on behalf of CIA. (In the meantime, Mr. Mann was being informed of this relationship by WHD in order to avoid any possible embarassing situations.) Tichborn (P) was anxious to talk with Mr. Mann and Mr. Paxton was attempting to set up an appointment with him. However, Mr. Mann was occupied on other matters and Mr. Paxton therefore suggested to Mr. Devine that he might meet with Tichborn (P). A meeting was suggested by Mr. Devine for 2:30 Thursday the 16th, but Tichborn (P) stated that since he had an appointment at the White House at 3 pm that it would not be possible. Mr. Paxton asked Tichborn (P) to call Mr. Devine on this and that maybe they could work out another time. No more was heard from Tichborn (P) by Mr. Paxton or by CA/PAG. We had, however, talked with Tichborn (P) Wednesday morning when he called for Mr. Paxton's number and I asked him if we could be of any more assistance and he replied in the negative.
+
+4. Administratively, Tichborn's (P) salary ($1,000) was paid him in cash as he requested on 14 March. Expense money for his transportation to, and his stay in, El Salvador were advanced to him by the Station and the related accounting was taken care of there. The only funds which are now due Tichborn (P) are his expenses while in Washington for the debriefing. He stated that he would forward his hotel bill, airplane tickets, and other receipts upon his return to California. He was cautioned to mail the true name receipts (plane tickets, hotel bills, etc.) in one envelope and his accounting sheet, signed in pseudonym, in a separate one.
+
+5. WHD is transcribing the tapes of Tichborn's (P) debriefing and we will receive a copy thereof when completed.
+
+ESVidal:ma
+
+Distribution:
+
+1 - Addressee
+1 - Chrono
+1 - Subject file
+
+SECRET

@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_7125.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+2 November 1965
+
+MEMORANDUM FOR: Mr. Henry C. Johnson,
+Legal Attache
+
+FROM: Winston M. Scott
+
+SUBJECT: Travel of Soviet to Mazatlan
+
+1. This office has received a report that Soviet Vice-Consul Valentin Sergeyevich LOGINOV planned to travel to Mazatlan from 26 to 28 October 1965 by plane. The purpose of the trip was to take mail to a Soviet ship which was in port in Mazatlan. The name of the ship is believed to be "Lira."
+
+2. This office would appreciate any information available to you concerning LOGINOV's trip.
+
+THIS INFORMATION IS FROM A CONFIDENTIAL SOURCE. IT MUST NOT BE DISSEMINATED IN WHOLE OR IN PART OUTSIDE YOUR OFFICE WITHOUT PRIOR APPROVAL OF THE ORIGINATING OFFICE IN MEXICO CITY.
+
+Distribution:
+
+Original - Addressee
+1 - 50-2-4/A
+1 - P-11712
+1 - Ruth Leach
+
+# 9808
+
+SECRET
+
+EPA 1
+Security and classified
+background and national security

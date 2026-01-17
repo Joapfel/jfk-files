@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_5519.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+NO FOREIGN DISSEM/CONTROLLED DISSEM
+
+-2-
+
+CSDB-312/01428-67
+
+4. Charles has stated that should he become President of Haiti, he would pursue a pro-U.S. policy, eliminating the Duvalierists and the Communists and establishing a "liberal democratic" regime.
+
+5. Charles still is pretending to be a loyal supporter of Duvalier; however, his position has become shaky and he believes that his life is in danger. He feels that he may fall victim to Duvalier unless he (Charles) strikes first. For the time being, Charles will continue to support Duvalier in an effort to allay the President's suspicions. As president of the Haitian Chamber of Commerce, Charles soon will deliver a speech praising the achievements of Duvalier. He is anxious for the U.S. to know that his overtures toward Duvalier are pretense and that he is determined to go into action against the present regime.
+
+## Headquarters Comments
+
+CB-311/05457-67, from another reliable source, reported that Charles and Herve Boyer, former Minister of Finance under Duvalier, were contending for power in the Haitian Government.
+
+1. In the past several months, Charles has made numerous attempts to elicit support from several U.S. Government agencies for his plot against the Duvalier Government.
+
+2. No reason was given for Charles' belief that it would be in the best interest of the U.S. to support his scheme to overthrow Duvalier. However, he may be referring to his claim that should he become President of Haiti following the overthrow of Duvalier, he intends to pursue a pro-U.S. policy and establish a "liberal democratic" regime.
+
+3. **Source Comment:** Cayard, who enjoys the confidence of Duvalier, is a secret ally of Charles.
+
+S-E-C-R-E-T
+
+NO FOREIGN DISSEM/CONTROLLED DISSEM

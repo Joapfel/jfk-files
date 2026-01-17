@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_6789.png
+
+Convert to Markdownlugar, ha sido sumamente exagerado y ha dejado de satisfa-
+cer en todos sentidos, sociales o económicos, las necesidades
+de desarrollo de la región. Para concretar, la característica
+decisiva de este desarrollo es que dejó de proporcionar o
+establecer las bases para un incremento suficiente y rápido
+en la capacidad productiva y reproductiva de las rutas de
+la economía cuyas deficiencias fundamentales son la causa
+principal de la perpetuación del subdesarrollo. Consecuentemente,
+la crisis actual de Latinoamérica no marca el fin
+de una era de progreso, sino la culminación de un proceso
+que agravó, en aspectos esenciales, los males crónicos internos
+y la vulnerabilidad externa de la economía subdesarrollada y dependendiente de la región.
+
+Los factores que deforman la economía de Latinoamérica e impiden su desarrollo, están entrelazados tan estrechamente que no se pueden remediar por separado. Los problemas de la tenencia de la tierra y su utilización, de las industrias básicas y de la vulnerabilidad hacia factores externos, son facetas de un problema mayor: Las ramificaciones políticas y económicas de la función dominante en toda la región, que es la exportación de materias primas bajo términos y condiciones dictados desde el exterior.
+
+El "florecimiento óptimo" que hemos estudiado y la crisis que engendró, indican con suficiente claridad que la econo- mía latinoamericana ha llegado a la coyuntura donde la eliminación de la dependencia neocolonial debe ser situada en la agenda y con ello el abandono del tratamiento espon- táneo del subdesarrollo. Sólo sobre esta base será posible adoptar los objetivos sociales y los métodos económicos racionales que requiere un ataque victorioso contra el subdesarrollo.¹³
+
+Anotaciones
+
+1.—El Mercado Común Latinoamericano. Naciones Unidas, 1959, pág. 51. Aparte del fin de la prosperidad de post-guerra, otros factores son los cambios en la producción y en la técnica, que afectan el consumo de materias primas natu- rales, las distintas clases de discriminaciones y competencias en los países importadores de productos latinoamericanos, el Mercado Común Europeo, competencia africana, etc.
+
+2.—Entre 1939 y 1945, la posesión de oro y valores extranjeros aumentó en cinco veces de acuerdo con Post War Price Relations in Trade between Under-Developed and Industriallzed Countries. Naciones Unidas, 23 de febrero 1949, pág. 114.
+
+3.—De El Mercado Común Latinoamericano pág. 46.
+
+4.—A partir del 1955, en los Estados Unidos el ritmo de aumento medio anual del producto per cápita ha sido de alrededor del 1%. Para una mayor comprensión del ritmo de Latinoamérica, es interesante hacer notar que en el período que estamos considerando ha sido más elevado que en el conjunto de los países subdesarrollados del Sudeste de Asia, pero mucho menor que en los países socialistas del Este de Europa, en donde, según las apreciaciones más conservadoras, el aumento per cápita de los bienes materiales, con toda seguridad ha promediado más del 7% anual en todos los países y en algunos hasta el 10%. Economic Survey of Europe, 1956. Naciones Unidas, 1957, Capítulo II, pág. 2). De 1957 a 1959, cuando el desarrollo de Latinoamérica se paralizó, "el promedio anual del ritmo de desarrollo llegó al 17%" [15% per cápita] para todos los países socialistas y el 10% en la Unión Soviética [9% per cápita]" de acuerdo con un informe de N. S. Jruschov, Kommunist, No. 1. Enero de 1961, pág. 10.
+
+5.—Análisis y Proyecciones del Desarrollo Económico V. El Desarrollo Económico de la Argentina. Naciones Unidas, 1959, vol. 1, pág. 15. El ritmo de expansión global fue de 4.5% por

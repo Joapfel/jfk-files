@@ -1,0 +1,79 @@
+# JFK-Files-Part-1_page_6909.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>
+     ROUTING
+    </td>
+    <td>
+     20-19 S.W.
+    </td>
+   </tr>
+   <tr>
+    <td>
+     1
+    </td>
+    <td>
+     78
+    </td>
+   </tr>
+   <tr>
+    <td>
+     2
+    </td>
+    <td>
+     5
+    </td>
+   </tr>
+   <tr>
+    <td>
+     3
+    </td>
+    <td>
+     6
+    </td>
+   </tr>
+   <tr>
+    <td colspan="2">
+     OCT-21-7282-58
+    </td>
+   </tr>
+   <tr>
+    <td colspan="2">
+     ROUTINE
+    </td>
+   </tr>
+   <tr>
+    <td colspan="2">
+     IN 17033
+    </td>
+   </tr>
+  </table>
+
+DATE:
+
+TO : DIRECTOR
+
+FROM : BERN
+
+ACTION: WH 5 *
+
+INFO : CI, CI/OPS, CI/IC, CI/SP, FI, FI/OPS, EE 4, NEA 4, SR 4, WE 4, S/C2
+
+CITE : BERN 3096
+
+RE BERN 3089 (IN 16287) **
+
+LIAISON REPORTS. SUBJECTS RETURNED ZURICH 21 OCT. SPENT HOUSE AND HALF CSR CONSULATE ZURICH, CANCELLED RESERVATIONS TO TEL AVIV, SCHEDULED LEAVE FOR FRAG VIA AUSTRIA BY RAIL 23 OCT. LIAISON PLANS EITHER SEARCH EFFECTS CLANDESTINELY IN HOTEL OR THROUGH CUSTOMS CHECK AT BORDER.
+
+END OF MESSAGE
+
+S/C COMMENT: *RELAY OF THIS CABLE TO TELA HAS BEEN STOPPED BY WASH SIGNAL CENTER. A RELAY REQUEST OF FORM 12 IS REQUIRED TO EFFECT RELAY.
+
+C/S COMMENT: *ACTION UNIT DETERMINED AS THOUGH INDICATOR DYYOUR USED.
+
+**MAURICE HALPERIN AND WIFE, AMERICAN COMMUNISTS, ARRIVED ZURICH FROM LISBON 15 OCT. TRAVELLED GENEVA 15-18 OCT. EXPECTED RETURN ZURICH 20 OCT. SUBJECTS UNDER DISCREET INANITION SURVEILLANCE.
+
+G-E-C-R-E-T
+
+REFORUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED Conv No.

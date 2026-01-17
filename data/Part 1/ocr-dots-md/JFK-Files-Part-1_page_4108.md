@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_4108.png
+
+Convert to Markdown<table><tr><td>INDEX: ☐ YES ☐ NO</td></tr><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>E-DEF TO FILE NO.</td></tr><tr><td>FILE EID ☐ DET. TO BRANCH ☐</td></tr><tr><td>DESTROY ☐ SIS</td></tr><tr><td>FROM: SAN JOSE</td></tr><tr><td>ACTION: AN 8</td></tr><tr><td>FILE: VA, WNEB, CH, IJORS, FI</td></tr></table>
+
+SECRET 122229Z
+
+DIR INFO WAVE C11E SJCS 7870
+
+1. MANUEL ARTIME BUESA ARRIVED IN COSTA RICA 10 AUGUST ON TACA 773 FROM MANAGUA.
+
+2. PLEASE ADVISE STATION IF HEADQUARTERS STILL DESIRES TRAVEL OF SUBJECT.
+
+SECRET
+
+CFN 7870 MANUEL ARTIME BUESA COSTA RICA 10 TACA 773 MANAGUA
+
+ET
+
+SECRET
+
+WH/2/CR-NIC wie anweset - made Telecon. CC:G

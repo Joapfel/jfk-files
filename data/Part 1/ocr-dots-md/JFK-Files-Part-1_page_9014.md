@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_9014.png
+
+Convert to MarkdownSECRET
+
+14 October 1968
+
+MEMORANDUM FOR: DO/CO/C
+ATTENTION: Gale W. Allen
+SUBJECT: Howard T. FAZZARE
+REFERENCE: Your Memorandum dated 26 September 1968
+
+1. In the reference you stated that DO will send FAZZARE a sterile check for his expenses incurred in his efforts to persuade TICHBORN's wife to agree to an assignment in Spain. You also forwarded a bill which FAZZARE sent for additional air freight expenses from Madrid for which he has not been reimbursed.
+
+2. EUR does not wish to reimburse FAZZARE for this claim. When he resigned from the Agency he submitted his final accounting and signed a Quit-Claim for all expenses. In his note to you, a copy of which you forwarded with reference, he asked that you forward his bill "to the Spanish Section for reimbursement if not too late..." We would appreciate it if you could send FAZZARE a note when you forward his sterile check and state that we are sorry but this final accounting has been completed, that the books have been cleared, and that it is indeed too late to authorize additional funds.
+
+E/IB
+
+SECRET

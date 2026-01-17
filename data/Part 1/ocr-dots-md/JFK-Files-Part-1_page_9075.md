@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_9075.png
+
+Convert to Markdown1 February 1968
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Project WUBYZAS Status Report
+
+REFERENCE: Memorandum for record, dated 23 January 1968. Same Subject.
+
+1. Ref. noted that John A. BLENKINSOP (P) had suggested certain changes in his proposed contract and that these suggested changes had been referred to the OGC for comment.
+
+2. Attached are the OGC comments on BLENKINSOP's suggested changes. In brief, the OGC stood firm on the proposed contract as written and rejected BLENKINSOP's suggested changes. One change suggested by BLENKINSOP, i.e. to allow interim hotel expenses greater than $1000.00 in Istanbul, if necessary, was considered administrative by the OGC and left to DO for decision. In view of the rejection of BLENKINSOP's other suggested changes, it was decided to accept BLENKINSOP's request for interim hotel expenses to exceed $1000.00 if necessary. BLENKINSOP's suggested change reads "Barring extraordinary circumstances, these /expenses/ are not to exceed the amount of $1000.00." In his justification for this change, BLENKINSOP notes that time in transit for furniture could extend to six weeks and that in this case hotel expenses could be closer to $2000.00.
+
+3. WUBRINY II was advised on 24 January 1968 of our position on the contract. He will relay it to WUBRINY I and/or BLENKINSOP. BLENKINSOP's reaction is awaited.
+
+Gale Allen
+DO/CO
+
+Distribution:
+
+* 1 - For the Record
+* 1 - WUBYZAS file
+* 1 - DO/CO Chrono
+
+CABIN

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_8508.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+5. We checked out of the hotel at 18:30. At 18:40 we saw LOGINDV's car ahead of us on the Reforma headed toward the Soviet Embassy. Two men were in it whom I did not recognize.
+
+6. LILYRIC has LOGINOV and BARANOV leaving the Soviet Embassy in LOGINDV's car at 15:36 on 8 March. Neither were back by 18:30 when LILYRIC secured. I instantly recognized BARANOV's photos as the Soviet with the camera.
+
+7. Also per LILYRIC, LOGINDV left the Embassy in his car at 09:41 and returned on foot at 10:51. This was the period we were waiting for Subject. However he could not have seen me at the Hotel Prince since I left there at 09:50 the first time and at 10:40 the second time.
+
+Francis J. COIGNE

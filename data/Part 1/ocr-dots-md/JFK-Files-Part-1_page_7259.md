@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_7259.png
+
+Convert to Markdown14 October 1966
+
+SUBJECT: CONTRACT FOR LICOY-5
+14 Oct 1200-1245, Subj's office
+
+1. Subj requested that Valentin Loginov had dropped by the office during the week and went to have coffee with Subj (Subj remarked that Loginov doesn't seem to want to talk in the office). Loginov had brought along visa application forms for Subj, and Subj filled them out for himself and his son, Marcos, and turned them over to Loginov along with the passports (attached are copies of the visas - notes: the visas are good for over 20 days in the Soviet Union, although the ATTUPIST conference is from 24 Oct to 29 Oct).
+
+Loginov told Subj that Pavel Yatskov wanted to see him (presumably Yatskov has brought something back for Subj). Subj asked Loginov what Yatskov is doing. The Soviet replied that Yatskov has a job in the Embassy. Subj promised "that kind of a job. It's worthwhile that you gave him a good job." Loginov replied: "You want to know too much."
+
+2. The C/O asked Subj what decided him to go to the Soviet Union. Subj replied that he had a commission from the Petroleum Congress (Subj is involved in organizing the Congress for Mexico for 2 to 8 April 1967), actually in behalf of KLM and his own interests, to persuade the Soviets that they use some other airline than Aeroflot to transport the Soviet delegates to Mexico. /Comments: the C/O saw a confidential letter from KLM which set out the probability that the Soviets would want to use Aeroflot but that they had not committed themselves as yet as to number of delegates that would attend or the means by which they would transport delegates; attached is a copy of a letter to Dr. H.S. Nametkin appointing Subj in his visit to Moscow to talk to Dr. Nametkin - the letter states that "the future visit of Subj is exclusively connected to assist the National Committee" which is patently not the case since Subj is attending the ATTUPIST conference/.
+
+At any rate Subj has decided to go to Moscow, and is taking his nonx-jon.
+
+Subj repeated his tactic in Moscow as far as contacts with the Soviets are concerned. He will not see them out, not even Mechiporenko, and if contacted by them he will be affordable and non-committal, and not put the sharp issue to them that he is through. He said the latter remains his position in Mexico, or anywhere else but in the Soviet Union.
+
+3. The attached booklet of the World Petroleum Congress contains the names of the National Committees of the Iron Curtain countries. Attached are listings of the Czechoslovak delegates and a letter detailing the Hungarian delegates along with financial arrangements for them.
+
+4. The C/O will see Subj before he leaves Mexico on 22 October.

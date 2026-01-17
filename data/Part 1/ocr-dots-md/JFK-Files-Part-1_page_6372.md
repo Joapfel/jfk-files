@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_6372.png
+
+Convert to MarkdownCLASSIFICATION CONFIDENTIAL/US OFFICIAL ONLY
+
+CENTRAL INTELLIGENCE AGENCY
+
+INFORMATION REPORT
+
+REPORT NO. 00-B-30989
+
+COUNTRY Czechoslovakia/France
+SUBJECT Biographical Data - Frantisek Kovarna
+
+DATE acquired by source --
+DATE OF INFORMATION --
+
+<table><thead><tr><th colspan="6">GRADING OF SOURCE BY OFFICE OF ORIGIN</th><th colspan="5">SOURCE'S OPINION OF CONTENT</th></tr><tr><th>COMPLETELY RELIABLE</th><th>USUALLY RELIABLE</th><th>FAIRLY RELIABLE</th><th>NOT USUALLY RELIABLE</th><th>NOT RELIABLE</th><th>CANNOT BE JUDGED</th><th>TRUE</th><th>PROBABLY TRUE</th><th>POSSIBLY TRUE</th><th>DOUBTFUL</th><th>PROBABLY FALSE</th><th>CANNOT BE JUDGED</th></tr></thead><tbody><tr><td>A</td><td>B.</td><td>C.</td><td>D.</td><td>E.</td><td>F. X</td><td>I.</td><td>J.</td><td>X</td><td>G.</td><td>S.</td><td>6.</td></tr></tbody></table>
+
+THIS DOCUMENT CONTAINS INFORMATION AFFECTING THE NATIONAL INTEREST OF THE UNITED STATES, WITHIN THE MEANING OF THE Espenagoe Act of 1940 and 28 CFR part 702 and the National Security Act of 1952. ITS TRANSMISSION OR REVELATION OF THIS CONTENT IS AN UNAUTHORIZED PERSON MAY BE PROHIBITED BY LAW.
+
+THIS IS UNEVALUATED INFORMATION
+
+**SOURCE**
+
+Foreign representative of a US resettlement agency which is interested in bringing the subject of this report to the US. The following information was forwarded to the headquarters of that agency to determine placement possibilities in the US. To date, no decision has been reached.
+
+**NAME:** Frantisek Kovarna
+
+**DATE AND PLACE OF BIRTH:** 2 February 1905 in Krpy, Czechoslovakia
+
+**PRESENT ADDRESS:** 11 bis, rue Jacques Coeur, Paris 4, France
+
+**NATIONALITY:** Czech
+
+**MARITAL STATUS:** Married; wife Jarmila (nse Valesku), age 44; daughter Marie, age 15; son Jan, age 12.
+
+**EDUCATION:**
+Attended Classical Lyceum in Prague, Czechoslovakia, from 1916 to 1924; attended Charles University from 1924 to 1930, graduated in latter year, majored in history and esthetics; received Ph D in art at Charles University in 1931.
+
+**EXPERIENCE:**
+Assistant in Institute of History of Arts at Charles University from 1932 to 1935; held chair of lecturer in common esthetics; faculty of philosophy, at Charles University from 1935 to 1938; lectured on plastic esthetics, Faculty of Architecture, Czech High Institute of Tech., Prague, from 1938 to 1939; lectured on art and esthetics at Charles University from 1945 to 1947; professor of esthetics at Charles University from 1947 to 1948; lectured on history of Czech civilization at the Masaryk Academy at Ludwigsburg, Germany during 1948; chairman of Committee of Free Czechoslovakia, Paris, France during 1949.
+
+**PUBLICATIONS:**
+Has authored over 30 books on art and literature, including *Contemporary Painting*, published in 1932. Collaborated with Encyclopedia Italiana branch of Czechoslovak plastics arts. Founded periodical *Plane and Works* to explain esthetics of production, monthly review for esthetics of production, *Tvar*.
+
+**COMMAND OF LANGUAGES:** Speaks, reads and writes English fairly well. Knows Czech, Italian, Russian, French and German.
+
+**COMMENTS BY SOURCE:** Kovarna escaped in 1948 and crossed German border with family. He has been stripped of his posts and honors and sentenced to death by the Communist Government "for collaboration with American authorities".
+
+end
+
+CLASSIFICATION CONFIDENTIAL/US OFFICIALS ONLY
+
+<table><tr><td rowspan="2">STATE</td><td>[X]</td><td>NAVY</td><td>[X]</td><td>NSRO</td><td rowspan="4">DISTRIBUTION</td><td

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_6175.png
+
+Convert to MarkdownChief, Contact Division
+
+-2-
+
+22 September 1954
+
+4. Echil) docker pointed out that, although the criminal cases against Prio and Curti had been ended with pleas of nolo contendere and fimus, censure were still pending against four other Cubans exiles who are allegedly engaged in the gun-running plot. He said that insomuch as the cases were primarily the interest of the Customs Department, the FBI was not immediately interested. His voice the opinion that Customs representatives were maintaining surveillance on the defendants in the various suits.
+
+5. Returning from the FBI office, I telephoned Jackson, an arranged, at 3:00 p.m. and identified myself as directed in No-9779. Jackson said that it would be impossible to arrange a meeting with the Cubans that afternoon, since the leader of the group would not be available. He said that a meeting could be arranged for the following morning, Sunday, 19 September, at 11:00 a.m., and I accordingly arranged to meet the group in a room at the Columbus Hotel which I had reserved for that purpose. I suggested a preliminary meeting with Jackson so as to obtain information about the persons I was to see, but he said that that would not be feasible on Saturday and that he would drop in on Sunday morning a few minutes ahead of the rest of the group.
+
+6. Jackson arrived at the designated room on Sunday morning at 10:45 a.m. He did not request the exhibition of credentials and I did not exhibit them. He said that the meeting with the Cubans would have to be postponed until 4:00 o'clock Sunday afternoon, instead as the leader of the group was at that time engaged in preparing a speech. He said he would bring two members of the group to the Columbus Hotel at 4:00 p.m., and I agreed to meet them at that time.
+
+7. Jackson said that the two men he wanted me to talk to were Senior Carlos Navia and a Captain Verson, whose full name Mr. Jackson did not know. He said that Carlos Navia is a leading Cuban consulting engineer and is a graduate of the US Military Academy of the class of 1919. For a short time he was President of Cuba and was subsequently Ambassador to the US. He is a member of Frio's Authentic Party, but belongs to the conservative wing which is highly critical of Jose of Frio's actions. Navia was exiled from Cuba when his name was found on an envelope in the possession of Sanchez Arango. He is under indictment in the US District Court but has pleaded not guilty to charges of gun-running and growing out of the same incident concerning which Frio pleaded "nolo contenda."
+
+8. Captain Verson, according to Jackson, is and has been for many years the president of the Anti-Communist League of Cuba. During a part of the terms of Grau San Martinis and Prio, Verson held the rank of Captain in the Cuban army and was in charge of a counter-espionage section dealing with Cuban Communists. Verson, in his official capacity, was largely instrumental in having the Soviet Embassy in Havana closed. He was removed by Batista from his Army post in 1952 and, after operating some months in sanctuary in the Uruguayan Embassy in Havana, he came to Miami in June of 1954.
+
+9. Jackson also wished me to meet Prio, Dr. Pedro Martinez Faraga and Luis Ortiz. Prio was currently in New York. Martinez was formerly Ambassador to the US and a delegate to the United Nations. He was described by Jackson as one of the most brilliant persons he had ever met and he said that I could obtain a

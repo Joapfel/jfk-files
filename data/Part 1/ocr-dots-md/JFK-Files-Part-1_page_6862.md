@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_6862.png
+
+Convert to Markdown14-0000
+
+**SLUHET**
+**NOFORN CONTINUED CONTROL**
+
+As of 23 October HALFFRIN had made three telephone calls: one to GERMANY, Arlesheim/Brussel, Brusselsstr. 14, one to Carlo HELLI A.G., Zurich, home in Fuesnacht; and one to SCANDIN, Zurich. All of the above are either timber and lumber importers or dealers.
+
+On 24 October the couple visited the Czech Consulate General at 1025 H. where they remained for 25 minutes. At 1110 H. they went to the snack bar of the Zurich University. HALFFRIN then visited for 30 minutes the Seminarium für social economics, commercial sciences and statistics. At 1515 H. HALFFRIN went to a travel agency to cash a cheque of 50 %.
+
+On 25 October HALFFRIN inquired for trains departing for LUGANO and obtained various prospectus of this town. From 1025 - 1055 H. the couple called at the Czech Consulate General. On the way back they changed 200 %; at 1311 H. they left by train for LUGANO.
+
+Up to this date the couple had not received any visitors and as far as could be ascertained had no suspicious telephone calls while staying in ZURICH. They ostensibly endeavored to cut down expenses to a minimum, taking meals in cheap restaurants or buying food to be eaten in their room at the hotel. The luggage deposited at Kloten airport was discreetly searched. The personal belongings were of rather poor quality. A list showed that they had sold furniture and household goods prior to their departure from Mexico. Amongst various articles there were also two pocket editions of dictionaries in Chinese and Russian. All this and their demeanour seemed to indicate that the couple plan to settle definitely in the East.
+
+At 1625 H. of 25 October the couple arrived at LUGANO, where they rented a room at the hotel garni "LUX" for 3 or 4 days.
+
+On 26 October they went on an excursion to the Monte Bre. At 1730 H. of that day HALFFRIN inquired at the main post office for the telephone number of a certain Alfred STERN in PRAGUE. No such extension was found in the directory, however.
+
+On 27 October they made an outing to Cassaranto and Campione and back to LUGANO.
+
+On 28 October HALFFRIN again went to the telephone exchange at 0915 H. where he asked to be connected with Leandro FELIPE in PRAGUE, Mr. 67856. The partner in PRAGUE being absent, the call was postponed to the afternoon; it went through at 1640 H. and a certain Mr. STERN answered the call on the number indicated. HALFFRIN talked in Spanish, announcing himself as Professor Maurizio HALFFRIN from Mexico. He explained that he was a friend of LOHARDO, with whom they (the partners on the phone) had accidentally met last year at the shop of Dr. Berta ARENARRES. At present he (HALFFRIN) was staying in LUGANO and waiting for the visa to go to PRAGUE. There he would like to find his American friends, the STERN family, whom his partner should also know. He then wanted to know when LOHARDO would arrive in PRAGUE from MEXICO.
+
+SECRET
+- 2 -
+NOFORN CONTINUED CONTROL
+
+NOTE: CONTINUED CONTROL

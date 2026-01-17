@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_8032.png
+
+Convert to Markdown<table><tr><td>VIA: AIR<br>(Original is in red)</td><td>DISPATCH NO. SCS-A-634</td></tr><tr><td colspan="2"><table><tr><td style="text-align:center; font-weight:bold;">SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table></td></tr><tr><td>TO : Chief, MI</td><td>DATE : 21 FEB 1954</td></tr><tr><td colspan="2">FROM : Chief of Mission, Habana.</td></tr><tr><td>SUBJECT: GENERAL- Operational specific- Report of Revolutionary Preparations in Central America Against Cuban Government</td><td></td></tr><tr><td>REF: HKH-W-525</td><td></td></tr></table>
+
+1. No additional information concerning alleged plans of the Caribbean Legion to attack the Batista government has been received by the Mission. The latest available information regarding revolutionary activities against that government is contained in HKH-678.
+
+2. Reports received in the past concerning the Caribbean Legion's attempts to enlist BATISTA's support for Legion revolutionary activities have been given a low evaluation (as to content), as indicated in the pertinent portions of HKH-467 and HKH-397. To date the Mission has received no information which would warrant changing such an evaluation.
+
+3. Indications here are that the Batista regime is too preoccupied with a possible revolt attempt originating within the country to permit planning for any offensive action against any other country in the Caribbean. Recent friendly overtures by BATISTA, in the form of decorations bestowed on Hector TRUJILLO of the Dominican Republic and PEREZ Jimenez of Venezuela, also serve to indicate that the present Cuban government is not contemplating any action against those countries.
+
+4. As to a possible attack on the Batista regime from outside Cuba, the Cuban Armed Forces and security agencies have long been alerted to a possible air attack on key installations in Habana as well as multiple assaults from the sea. Mexico, Costa Rica, and Guatemala have been mentioned as possible take-off points for the planes to be used in the air attack.
+
+5. The Mission has no information to confirm the allegations made in the attachment to the Department of State Instruction cited in the referenced dispatch
+
+concerning the/
+
+RI COPY
+SECRET
+CLASSIFICATION
+
+51-28A
+
+200-7-38-K91

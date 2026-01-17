@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_4406.png
+
+Convert to Markdown<table><thead><tr><th colspan="4">SECRET 3,22567</th></tr><tr><td>DIR INFO LIMA CITE WAVE 8858<br/>TYPIC<br/>REF: LIMA 5423 /INV 5015)</td><td colspan="3">SINCE ALL CONTACT WITH ARTIME/HANDLED BY HQS DEFER TO HOS FOR<br/>ANSWER REF.</td></tr><tr><td colspan="4">SECRET</td></tr><tr><td colspan="4">CFN 8858 8423 ARTIME HQS HOS<br/>BT</td></tr></thead><tfoot><tr><td colspan="2" style="text-align:center; font-weight:bold;">STCIT</td><td colspan="2"></td></tr><tr><td colspan="2" style="text-align:center; font-size:smaller;">AS COPY</td><td colspan="2"></td></tr></tfoot></table>

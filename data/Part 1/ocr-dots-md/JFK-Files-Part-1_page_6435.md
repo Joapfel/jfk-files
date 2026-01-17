@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_6435.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+REMITTANCE NO.
+
+ASSOCIATION, PARIS
+
+(1) The name of the person appearing in connection with the real and false names cited. This report on the information contained in this leaflet has been given without the knowledge or consent of the individuals concerned. It is not intended to be a prelude to any action against any individual, but it is a necessary corollary for the investigation of the case, which, as far as we know, is not being pursued. During this period his work has been hampered by the fact that he has had to leave the country for health reasons. Where the law permits, further reports will be sent from time to time.
+(2) In a report dated 5 August 1947 reflecting some activities in France carried out by the FdV and DNK, it was stated that Flammkiewicz would be allowed to have an unassisted life contract with Soviet officials particularly in the Soviet Foreign Office. As this statement did not meet the criteria laid down in Article I of the International Covenant on Human Rights of 1948, and all this contributed to his death, to France's disapproval and punishment with the Soviet Union. In any event, he was conducted with difficulty to get his Soviet certificate so as to be證real with U.S.-Soviet citizenship, out of the USA. His posterior DOB was calculated by him with the assumption that the death toll through personal interaction with Soviet officials could not be excluded from Washington for the Soviet authorities were willowy. By the time of Flammkiewicz's publication. This
+
+ASSOCIATION
+
+AUTHENTICATING OFFICE
+
+REMITTANCE NO. 3
+
+ASSOCIATION, PARIS
+
+GOUVERNEMENT LE GOUVERNEMENT DE LA RÉpublique SUD-OFFICIELLE INTERNATIONALE LE SUISSIE
+
+Reference: A-10/11, dated 31 October 1947
+
+1. The file of the files mentioned above shows the following information concerning the subjects:
+
+(a) The name of his family appeared, an identification with the real and false names cited. No report on the information contained in this leaflet has been given without the knowledge or consent of the individuals concerned. It is not intended to be a prelude to any action against any individual, but it is a necessary corollary for the investigation of the case, which, as far as we know, is not being pursued.
+
+The report further states that in 1947 after the Germans had withdrawn from France having broken with the nazis, they were the Reichsbesitzgeboten, and they found that the Reichsbesitz were also breaking with the Nazis. As of 1947 the Reichsbesitz were still friendly with both of the nazi regimes and saw each other from time to time.
+
+(b) In a report dated 5 August 1947 reflecting some activities in France carried out by the FdV and DNK, it was stated that Flammkiewicz would be allowed to have an unassisted life contract with Soviet officials particularly in the Soviet Foreign Office. As this statement did not meet the criteria laid down in Article I of the International Covenant on Human Rights of 1948, and all this contributed to his death, to France's disapproval and punishment with the Soviet Union. In any event, he was conducted with difficulty to get his Soviet certificate so as to be證real with U.S.-Soviet citizenship, out of the USA. His posterior DOB was calculated by him with the assumption that the death toll through personal interaction with Soviet officials could not be excluded from Washington for the Soviet authorities were willowy. By the time of Flammkiewicz's publication. This
+
+ASSOCIATION
+
+AUTHENTICATING OFFICE
+
+REMITTANCE NO. 3
+
+ASSOCIATION, PARIS
+
+GOUVERNEMENT LE GOUVERNEMENT DE LA RÉpublique SUD-OFFICIELLE INTERNATIONALE LE SUISSIE
+
+Reçu

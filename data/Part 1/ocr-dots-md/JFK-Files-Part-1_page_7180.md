@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_7180.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+31 May 1966
+
+MEMORANDUM FOR:
+Legal Attache
+Winston H. Scott
+Travel of Soviets
+
+FROM:
+SUBJECT:
+
+1. This office has received a report that Soviet Vice-Consul Valentin Sergeyevich LOGINOV travelled to a Mexican port ca. 27 May 1966. He expected to be back in Mexico City ca. 1 June 1966. He is believed to have gone to Veracruz.
+
+2. Any information available to you on LOGINOV'S travel would be appreciated.
+
+THIS INFORMATION IS FROM A CONFIDENTIAL SOURCE. IT MUST NOT BE DISSEMINATED IN WHOLE OR IN PART OUTSIDE YOUR OFFICE WITHOUT PRIOR APPROVAL OF THE ORIGINATING OFFICE IN MEXICO CITY.
+
+# 10525
+
+Distribution:
+Original - Addressee
+1 - 50-2-4/A
+1 - P-11712
+1 - Memo Chron
+
+<table><tr><td>07 Jun 1</td></tr><tr><td>Excluded from distribution.</td></tr><tr><td>Corresponding and confidential copies</td></tr></table>
+
+SECRET

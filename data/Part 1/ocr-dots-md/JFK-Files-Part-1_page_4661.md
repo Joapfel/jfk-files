@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_4661.png
+
+Convert to MarkdownImpresada pulgar derecha.
+Thumb-side, right hand.
+
+REPUBLICA DE COSTA RICA
+PASAPORTE
+(PASSPORT)
+
+LA DIRECCION GENERAL DEL MINISTERIO DE SEGURIDAD Y ORDEN DE LA REPUBLICA
+
+Sólo se a las autoridades civiles y militares provide the civil and military authorities of the country.
+
+do los paseos por donde transite el portador,
+thruout which the bearer travels, so provided
+no lo pengen obstaculo y la protected equity
+protection en caso necesario.
+
+assistance without delay or hindrance and pro-
+tection as may be necessary.
+
+20 Páginas
+
+24 Páginas
+
+<table>
+  <tr>
+    <td>RECORD COPY</td>
+  </tr>
+</table>

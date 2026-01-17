@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_9189.png
+
+Convert to MarkdownMailed to SHR'B, May 3, 1951.
+
+LITHUANIAN DAYS, Vol. 2, No. 2, March 1951, published at
+9204 S. Broadway, Los Angeles 3, California. With note:
+
+"FYI, page 5 / rather blurred photos of Lithuanian resistance fighters and bodies of Soviet victims / and elsewhere as marked."
+
+No text is so clear in any of the materials.
+
+Page 19: "Lithuanian Genocide Show in Waterbury.
+
+Two American newspapers, the WATERBURY SUNDAY REPUBLICAN and the AMERICAN carried two long articles on Feb. 11 and 12 marking the opening of a genocide exhibit organized by Waterbury, Conn., Lithuanians.
+
+The exhibit, the first of its kind in the U. S., has on display Soviet deportation orders, documents on confiscation of farms, actual photographs of atrocities committed by the Soviet Union in Lithuania, and other evidence. We reprint here a portion of the article which appeared in the WATERBURY AMERICAN."
+
+Page 20: Poem, LITHUANIA CRUCICIFIED, by Nadas Rastanis; 6 verses in English. _?

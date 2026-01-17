@@ -1,0 +1,60 @@
+# JFK-Files-Part-1_page_6402.png
+
+Convert to Markdown14-0000
+
+CLASIFICATION: CONFIDENTIAL/US OFFICIALS ONLY
+
+CENTRAL INTELLIGENCE AGENCY
+
+REPORT NO. 00 -B-29444
+NO. OF ENCLS.
+(LISTED BELOW)
+
+INFORMATION REPORT
+
+COUNTRY: USSI/Germany
+
+SUBJECT: Biographical Data - Boris Abramenko
+
+DATE ACQUIRED BY SOURCE Up to Feb 51
+
+DATE OF INFORMATION Up to Feb 51
+
+<table><thead><tr><th colspan="7">GRADING OF SOURCE BY OFFICE OF ORIGIN</th><th colspan="6">SOURCE'S OPINION OF CONTENT</th></tr><tr><th>COMPLETELY RELIABLE</th><th>USUALLY RELIABLE</th><th>FAIRLY RELIABLE</th><th>NOT USUALLY RELIABLE</th><th>NOT RELIABLE</th><th>CANNOT BE JUDGED</th><th>TRUE</th><th>PROBABLY TRUE</th><th>POSSIBLY TRUE</th><th>DOUBTFUL</th><th>PROBABLY FALSE</th><th>CANNOT BE JUDGED</th></tr></thead><tbody><tr><td>A.</td><td>B</td><td>C</td><td>D</td><td>E</td><td>F. X</td><td>1.</td><td>2. X</td><td>3.</td><td>4.</td><td>5.</td><td>6.</td></tr></tbody></table>
+
+THIS DOCUMENT CONTAINS INFORMATION AFFECTING THE NATIONAL DEFENSE OF THE UNITED STATES WITHIN THE BOUNDARY OF THE EXPANDED ACT 50 OF THE CIVIL WAR, AND AS SUCH IS TO BE TOLERATED AS IF THIS WAS KNOWN TO BE THE CASE.
+
+THIS IS UNEVALUATED INFORMATION
+
+**SOURCE:** Foreign representative of a US resettlement agency which is interested in bringing the subject of this report to the US. The following information was forwarded to the headquarters of that agency to determine placement possibilities in the US. To date, no decision has been reached.
+
+**NAME:** Boris Abramenko
+
+**DATE AND PLACE OF BIRTH:** June 22, 1907, at Krivy Rih, Ukraine, USSR
+
+**PRESENT ADDRESS:** BuckenborgSerne, Pforzheim, Germany
+
+**RELIGION:** Orthodox
+
+**NATIONALITY:** Ukrainian
+
+**MARITAL STATUS:** Single
+
+**EDUCATION:**
+* Attended elementary and high schools in Krivy Rih, Ukraine, in 1923.
+* Attended the Mining Institute at Yuzovka, USSR, from 1923 to 1927, graduated.
+* Attended the Scientific Institute at Yuzovka, USSR, from 1927 to 1929; majored in mathematics and mining, received degree of Doctor of Mathematics.
+
+**EXPERIENCE:**
+* Employed as research worker from 1927 to 1929 at the Yuzovka Scientific Research Institute, USSR.
+* Employed as mining engineer from 1929 to 1942 at the Donbas Mines in the USSR.
+* Employed at forced farm labor from 1944 to 1945 at Saalfeld, Germany.
+* Employed as a clerk in his own field by the US Army and IRO from 1945 to 1950 in Germany.
+
+**COMMAND OF LANGUAGES:** Speaks, reads and writes fair English. Knows Ukrainian, Russian, German and Spanish.
+
+**COMMENTS BY SOURCE:** Subject is an outstanding engineer and research worker.
+
+CLASSIFICATION: CONFIDENTIAL/US OFFICIALS ONLY
+
+<table><tr><td rowspan="2">STATE</td><td>X NAVY</td><td>X NSRB</td><td colspan="8">DISTRIBUTION</td></tr><tr><td>X AIR</td><td>X FBI</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></table>

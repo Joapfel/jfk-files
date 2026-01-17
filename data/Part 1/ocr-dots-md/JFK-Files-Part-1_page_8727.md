@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_8727.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+had blend hair, was of medium height, no glasses, large grey eyes. (ARMIDRIFF thought him quite attractive). LOGUEVO told "Michael" that he would call him the next day on urgent business. "Michael" was alone. ARMIDRIFF assumed that they did not have a private conversation. She estimated this encounter took place about September 1959.
+
+GOLCUZOV - ARMIDRIFF stated that GOLCUZOV used her in the same manner, i.e., took her about 3 times in all to Cine Chapultepec, then left her during the movie to make some sort of contact.
+
+Debriefing conducted 12-16 May 1970:
+
+Concerning Soviet Contacts in the Mexican Police: ARMIDRIFF stated that she overheard GOLCUSOV and DYONIN talk about many contacts which they had in the police here. She said she had also overheard KOLCYAKOV, BAKULIN, AND CHENTCHEV talk about how many good police contacts the Soviets have. However, each specific example which ARMIDRIFF could give concerned some non-operational favor which the Soviets could get taken care of, e.g., when the Soviets wanted to get something through Aduana; when some Soviet was missing and police cooperation was needed; getting advance notice when some demonstration hostile to the Soviets was about to take place, etc. She was not able to recall any hints that Soviets had operational contacts in the police; agents reporting on what the police were doing; assets who assisted Soviets operationally in some way. However, ARMIDRIFF thought the Soviets probably have such assets.
+
+Concerning Soviet contacts in West German Police: ARMIDRIFF recalled that when she went to Germany as interpreter for Soviet surgeon and textbook writer, Pablo AMASOV, in January 1958 (they went to Cologne
+
+SECRET
+
+464
+
+14-00000

@@ -1,0 +1,178 @@
+# JFK-Files-Part-1_page_4261.png
+
+Convert to MarkdownSECRET
+
+TDCS DB-
+
+315/03788-65
+
+FOR FINANCIAL AID FOR THE CAMPAIGN OF COLONEL MIGUEL ANGEL PONCIANO SAMAYOA, THE CANDIDATE OF THE MLN FOR PRESIDENT, AND HE WILL ALSO URGE RIVERA TO EXERT POLITICAL PRESSURE UPON COLONEL ENRIQUE PERALTA AZURDIA, CHIEF OF THE GUATEMALAN GOVERNMENT, THROUGH THE MEDIUM OF DIPLOMATS AND MILITARY OFFICERS, TO BACK PONCIANO'S CANDIDACY.
+
+2. ON 22 NOVEMBER SANDOVAL PLANS TO GO FROM EL SALVADOR TO MANAGUA, NICARAGUA, TO MEET PRIVATELY WITH ROBERTO ALEJOS ARZU, GUATEMALAN EXILE RESIDENT IN MIAMI. THIS MEETING BETWEEN SANDOVAL AND ALEJOS WAS ARRANGED ON 18 NOVEMBER BY ALEJOS THROUGH THE FORMER NICARAGUAN CONSUL IN MIAMI BY TELEPHONE TO SANDOVAL IN GUATEMALA CITY. ALEJOS TOLD SANDOVAL THAT GENERAL SOMOZA HAD ASKED HIM TO COOPERATE POLITICALLY AND FINANCIALLY WITH THE MLN DIRECTLY THROUGH SANDOVAL. IN MANAGUA ON 22 NOVEMBER SANDOVAL WILL REACH AN AGREEMENT WITH ALEJOS IN FAVOR OF PONCIANO'S CANDIDACY.
+
+3. ON 17 NOVEMBER JOSE IVAN ALEGRETTE, FORMER NICARAGUAN VICE CONSUL IN MIAMI, WHO IS INVOLVED IN A PLOT TO OVERTHROW THE GOVERNMENT OF COSTA RICA, MET WITH ALEJOS, MANUEL ARTIME BUESA, A CUBAN EXILE, AND A GUATEMALAN KNOWN AS "BRAN" DESCRIBED AS THE RIGHT HAND MAN OF ALEJOS. ALEJOS AND BRAN ASKED ALEGRETTE TO ARRANGE A MEETING FOR THEM IN NICARAGUA WITH COLONEL PONCIANO AND WITH GENERAL ANASTASIO SOMOZA. ALEGRETTE AGREED TO DO THIS. ALEJOS HOPES TO OBTAIN SOMOZA'S BACKING OF A PLOT TO OVERTHROW THE GUATEMALAN GOVERNMENT AS WELL AS HIS ASSISTANCE IN OBTAINING WEAPONS. (FIELD COMMENT: "BRAN" IS PRESUMED TO BE IDENTICAL WITH CARLOS ADOLFO BRAN SANCHEZ, FORMER GUATEMALAN RIGHTIST LEADER AND DEPUTY, ARRESTED ON SEVERAL OCCASIONS)
+
+SECRET
+
+NO FOREIGN DISSEM/CONTROLLED DISSEM
+
+2
+
+9-666
+07-31
+
+MPO-44 (28) IN 9-666 07-31
+
+14-00006
+
+Liberation
+Freedom
+Democracy
+Human Rights
+No
+Power
+To
+IBE
+LIBERTAD
+VIRTUD
+PROTESTA
+COMPETENCIA
+DÉVIDA
+VOTO
+ELECTED
+OFFICE
+DEMOCRATICA
+IN
+LIBERTAD
+VIRTUD
+PROTESTA
+COMPETENCIA
+DÉVIDA
+VOTO
+ELECTED
+OFFICE
+DELEGADO
+DIPUTADO
+PROVINCIAL
+ASamblea
+Legislativa
+Parlamentaria
+Sevilla
+Palacio
+Patio
+Auditorium
+Plaza
+Electoral
+Vista
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general
+ general

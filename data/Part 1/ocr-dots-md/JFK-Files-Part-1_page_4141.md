@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_4141.png
+
+Convert to Markdown8 July 1964
+
+MEMORANDUM FOR: Chief, Western Hemisphere Division
+
+VIA : Deputy Chief, VI (Special Affairs)
+
+SUBJECT : AMWORLD--Proposed Meeting between
+Chief, VI and AMBIDDY-1 in August 64
+
+1. AMBIDDY-1 has expressed a desire to meet with Chief, Western Hemisphere Division after the meeting in August 64.
+
+3. We have replied via AMJAVA-4 that Chief, VI will be glad to meet with AMBIDDY-1 at that time.
+
+3. We intend to hold on to the Maryland safehouse until after the meeting has taken place.
+Preferably AMBIDDY-1 should be routed via San, Puerto Rico, to Baltimore Friendship Airport whence he would be picked up at a nearby hotel and taken to the safehouse.
+
+Henry D. Hecksher
+WH/EA/SO/MH
+
+HHD/gt (6 July 64)
+
+Distribution:
+Orig - C/WHD
+
+File:
+
+SECRET
+
+<table><tr><td>ReceIVED</td></tr><tr><td>Forwarded to HWD</td></tr><tr><td>Getting Translated</td></tr></table>

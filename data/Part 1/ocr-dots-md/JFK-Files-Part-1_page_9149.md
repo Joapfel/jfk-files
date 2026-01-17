@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_9149.png
+
+Convert to MarkdownJuly 11, 1967
+
+Breakfast & trip..................    1.50
+Hotel room........................   15.00
+Phone calls........................    .40
+Cab rides...........................    1.40
+Lunch................................   2.70
+Drinks w/ Lasia Romany, Burrena 6.80
+Dinner w/ Vissia....................   10.20
+                                   ............   38.00
+                                                                    ......
+                                                                    $ 38.00
+
+July 12, 1967
+
+Breakfast & Trip..................    1.80
+Cab rides to from BAAIF & Trip    1.40
+Lunch a/C Category..............    9.10
+Cab to Madrid airport & Trip     2.70
+Luggage - extra weight..........    2.90
+Tapes to Madrid hotelmerida    4.00
+Tapes to Madrid airport portes   1.00
+Barcelona airport to Hotel       2.70
+Tapes at Barcelona airport & Hotel  1.00
+Hotel room........................   9.20
+Long distance call to NY office   32.75
+Dinner................................   3.80
+                                   ............   72.85
+                                                                    ......
+                                                                    $ 72.85

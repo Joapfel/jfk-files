@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_5531.png
+
+Convert to MarkdownSECRET
+
+24 April 1967
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Telephone Conversation with Genevieve ALYEA, Domestic Contact Service re Clemard Joseph CHARLES (201-357029)
+
+1. At 1500 hours, 21 April 1967, Miss Genevieve ALYEA, Domestic Contact Service, X3026 (Green Phone 3024) called the undersigned to inform the Haiti Desk of comments made on a teletype message from their DCS representative in New York City, Mr. BALOG. According to Miss ALYEA, Mr. BALOG had interviewed a U.S. businessman who travels frequently in Latin American (later identified as Luis BRUN), on conditions in Haiti. Mr. BALOG had teletyped the report to DCS Headquarters, and had added the following comment at the end of the report.
+
+"On 20 April, Mr. BALOG in New York City, interviewed the source (BRUN). The source visited Port au Prince during the latter part of February 1967 and spent one week as the guest of CLEMARD JOSEPH CHARLES (President of the Commercial Bank of Haiti). Source, who maintains telephone and cable contact with CHARLES, is convinced the latter (CHARLES) has decided with his unnamed Army friends, to overthrow President DUVALIER now. Source says CHARLES had asked his U.S. business partner, Joseph DRYER, Palm Beach, Florida (Home phone: 665-2610; Business phone: 832-6331) and another person identified as "EARL" (probably Earl O. FINNEY, AID official) to get in touch with the U.S. State Department before the end of this week. "EARL", who is supposed to have influential friends at the State Department, will try to persuade the U.S. Government that CHARLES, who has presidential aspirations, now has the power and determination to get rid of DUVALIER. CHARLES, who now fears for his life, sent his son to New York City a few weeks ago for a medical checkup and advised him to remain in the U.S."
+
+2. Mr. BALOG then referred to Paragraph 6 of the intelligence report which contained the following question and answer:
+
+**Question:** What is your assessment of youths, their political orientation or lack of one and their general outlook for the future?
+
+SECRET
+
+14-00000

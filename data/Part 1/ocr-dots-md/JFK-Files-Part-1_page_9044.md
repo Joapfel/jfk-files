@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_9044.png
+
+Convert to MarkdownSECRET
+
+14 June 1968
+
+MEMORANDUM FOR: Chief, SD/3/OSD
+SUBJECT: Enrico Covi (A)
+
+1. As discussed with Mr. Gilbert of your office on 14th June 1968, it is requested that this above named Subject be added to:
+
+P. O. Box 432
+Church Street Station
+New York, New York - 10008
+
+2. The individual involved in a covert act of this Division who will possibly need the address to give to an un-cleared medical specialist in the D.C. area when Subject undergoes treatment on 19 June 1968. Should he not have to provide the address, you will be advised to terminate further interest. If he has to give it, we will want daily service through August 1968 with any mail received forwarded to the undersigned.
+
+cc: Mr. Gale Allen
+
+SECRET
+
+<table><tr><td>GROUP I<br/>Each led from automatic<br/>downgrading and<br/>classification</td></tr></table>

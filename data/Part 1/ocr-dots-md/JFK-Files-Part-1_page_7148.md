@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_7148.png
+
+Convert to Markdown27 Jan 1965
+
+MEMO FOR RECORD
+
+FROM: Marvin A. Cabot
+
+SUBJECT: Soviet Attendance at PRI Lecture.
+
+I. On the evening of 26 Jan 1966 the following Soviet Embassy officers were identified as attending xa a lecture given by Prof. Jose VAZQUEZ Amaral on the subject of "The Experiences of a Mexican Professor in a University in the United States"; Svyatoslav Fedorovich KUZNETSOV and Valentin Sergeyevich LOGINOV. KUZNETSOV was seated on the dais behind the principal speaker. LOGINOV was seated in the rear portion of the audience. There were six U.S. Embassy officers present.

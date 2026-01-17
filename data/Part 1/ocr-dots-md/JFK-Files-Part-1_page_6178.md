@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_6178.png
+
+Convert to Markdown14-00000
+
+City, Office of Collection & Dissemination ... 8 September 1953
+
+Contact Division, CO (L/A Branch)
+
+Transfer of Funds by Prio Securities (MD-6-5999, MD-946)
+
+A 116921 S-27877 S-116921
+
+US Bank at which Carlos and Priscilla Prio Securities have accounts
+with each other. Carlos has asked the bank's advice on
+pension plans.
+
+Carlos' account shows that in early June 1953 there was a balance of $31,641.72 on 19 June 1953, but that the highest balance reached was $31,436.34. There has been no further activity since that date.
+
+Total amount shown as follows:
+
+| Date | Credits | Provided Balances |
+|---|---|---|
+| May | 50,000 | 57,718.12 |
+| June | -20,859 | 57,377.13 |
+| July | 150,000 | 57,287.13 |
+| Aug. 9 | 5,700.30 | 51,527.20 |
+| Aug. 10 | 40,000.00 | 51,527.13 |
+| Aug. 11 | 2,000.00 | 9,527.10 |
+| Aug. 12 | 2,500.00 | 6,727.13 |
+| Sep. 1 | 80,400 | 93,227.11 |
+| Sep. 2 | 25,000 | 108,227.13 |
+| Sep. 3 | 5,000.00 | 103,227.13 |
+| Sept. 4 | 100,000.00 | 3,227.11 |
+
+Deposit of US$6,500 on 3 July was in the form of a check drawn by
+Bank of Miami Bank, Fla.
+7-8
+
+Deposit of US$15,000 on 9 July was in the form of a check on the Bank
+of New York, the drawer's signature illegible.
+
+The withdrawal of 26 August was in cash. Carlos asked for one thousand
+was given mostly one hundred dollar bills and a few five hundred
+
+June 1952, the most unusual activity of Carlos' account was the deposit
+on 23 October, a US$150,000 deposit on 25 September, and a withdraw-
+ing total of US$140,000. Since the withdrawal was by check, which was
+to the depositor after cancellation, the identity of the payee is not
+known.
+
+Mr. Prio has a safety deposit at a branch of this bank and her husband

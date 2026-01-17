@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_5962.png
+
+Convert to MarkdownC-O-N-F-I-D-E-X-T-I-A-L
+When Filled In
+
+SECRET
+
+15 Jan 1976
+
+(date)
+
+Review of 201 File on U.S. Citizen
+
+In accordance with the DDO's notice of 9 December 1974, I have reviewed the 201 file on FRANK SUSAN (surname) (201 number indicated below), and have determined that it can most accurately be categorized as indicated below:
+
+☐ should be closed.
+
+☐ witting collaborator. OI Code A1.
+
+☐ potential witting collaborator; date opened OI Code A2.
+
+☐ former witting collaborator (relationship terminated). OI Code A3.
+
+☐ potential witting collaborator never contacted (security reasons, deregatory information). OI Code A4.
+
+☐ counterintelligence case (i.e., involving a foreign intelligence or security service). OI Code A5.
+
+☑ all others. OI Code A6.
+
+Signed M C Hart
+(name)
+(title) OPS/ITG
+ component
+ieract
+
+This assignment of category has been entered into STAR.
+
+Signed [initials] 19 JAN 1976 197
+(date)
+
+This document is a permanent part of this file.
+
+SECRET
+
+When Filled In
+C-O-N-F-I-D-E-X-T-I-A-L
+
+201-19/10/88
+
+E2 IMPORT
+CL BY 034979_

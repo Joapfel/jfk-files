@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_8447.png
+
+Convert to MarkdownSECRET
+
+-3-
+
+3. Among other nasty little remarks made by LOGINOV, including references to the open letter against the Ambassador, the war in Vietnam, the Negro problem, the difficult financial position of the dollar, et cetera, was a reference to this Station. LOGINOV at one point asked the undersigned where he worked (not the first time he has asked this). The undersigned told him that he worked in the Consular General's Office. LOGINOV then said, "What about the fifth floor?" The undersigned told him that the fifth floor comprised both the Ambassador's Office and the Political Section. LOGINOV went on to say something like, "I know about the Ambassador, but what about the other offices, those occupied by WOFIRM?" The undersigned let that one go by as LOGINOV had obviously found it very funny. He proceeded to pay back the Soviets a little later by counting on his fingers the number of visas issued at the Soviet Embassy each year, the number of cultural exchanges handled by the Embassy staff, and "all the work done for trade promotion with Mexico." The undersigned felt that the Soviets probably issued some five visas a month, if that many, had about ten cultural exchanges a year, and had practically no trade with the Mexicans. What, then, he asked, were the 40 odd "diplomats" in the Soviet Embassy doing in Mexico? LOGINOV laughed, but he laughed green and promptly broke off this conversation.
+
+4. The undersigned had no opportunity to talk at any length with Ambassador HANUS, who was very busy at the reception. The Ambassador, however, greeted him warmly and gave him a prolonged bear hug as he left. The undersigned had no talk with the Cubans except a few words which he exchanged with Sergio MARTINEZ, whom he had not met before.
+
+Raymond A. FRADYER
+
+Distribution:
+
+Orig - 7
+1 - P-8691 (Hanus)
+1 - P-5510 (Wiesley)
+1 - P-12397 (Baboun)
+1 - P-7111 (Svestka)
+①- P-11712 (Loginov)
+
+RAF: lmp
+
+SECRET

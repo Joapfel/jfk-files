@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_8482.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+By this he meant the Embassy's lawyer, not the legal attaché.
+Subject just laughed at him.
+
+7. On 7 October Miguel ALEMAN Jr. came to Subject and said that he and Jacobo ZABLUDOWSKY had just seen Ambassador BAZAROV. They wanted BAZAROV to make arrangements to get them to the USSR for television coverage of the 50th Anniversary celebrations. BAZAROV had told them that things were very tight but if they went to Subject and he could arrange accommodations, BAZAROV would see that they got to the USSR. (Comment: From LIENVOY we know that the two had an appointment with BAZAROV on 9 October and thay they had been agitating for permits for about a week. I feel that by sending them to Subject, BAZAROV was giving them the brush off. If the Soviets were really interested in seeing them go, they would handle it differently.)
+
+Francis J. COIGNE
+
+SECRET
+
+220

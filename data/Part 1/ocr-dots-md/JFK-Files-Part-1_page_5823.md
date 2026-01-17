@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_5823.png
+
+Convert to MarkdownCIA LETTERHEAD
+
+Suggested reply to Mrs. CUESTA's letter of 4 August 1975
+
+Mrs. Lourdes Cuesta
+2155 S.W. 5th Street
+Miami, Florida 33135
+
+Dear Mrs. Cuesta:
+
+This is in reply to your letter o· 4 August 1975 and
+subsequent conversations with one of our ~~Hmami, Florida~~
+representatives.
+
+In response to your inquiry, we wish to advise that
+your ex-husbands alleged activities, cited as Attempts No.
+21 and 22 in the newspaper article enclosed with your letter,
+were in no way sponsored by or associated with this Agency.
+Concerning prior knowledge of such activities, we can only
+say that anticipated activities of some of the independent
+exile groups often became public knowledge because of
+discussion within the exile community of such activities.
+
+Assistant to the Director

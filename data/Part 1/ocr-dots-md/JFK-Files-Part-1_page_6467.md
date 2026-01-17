@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_6467.png
+
+Convert to MarkdownSECRET
+
+4. Questions What are the criteria for accepting a Soviet escapee as a relief recipient and what office or regulations determine case?
+
+There is enclosed the basic provisional guide concerning eligibility, together with subsequent clarifications issued to the field on the Soviet. This is the criteria under which a person is extended, and declared eligible for, Program assistance. These regulations were adapted from a general policy issued by the U.S. Department of State. Within the framework of these regulations, the Escapee Program condones a security investigation which establishes a man's eligibility from a security point of view. Simultaneously the man is conditioned in an effort to determine his needs from a socioeconomic and economic angle. The results of these investigations determine the course of action upon which the Escapee Program proceeds. However, in the majority of cases, humanitarian assistance is extended to individuals pending the complete security investigation, or until material sufficiently regressive to deny eligibility is discovered. (Attention should be directed to paragraph 7 of the eligibility guide, which enables USEP to confer eligibility on any individual or individuals of interest to other U.S. agencies, regardless of normal eligibility criteria.)
+
+5. <u>Question</u>: What is the source of the policy which maintains that there must be a leaning-over-backward to avoid the risk of any political implication in applying the USEP program?
+
+The Escape...

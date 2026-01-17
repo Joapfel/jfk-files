@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_5630.png
+
+Convert to MarkdownSECRET
+
+15 AUG 1969
+
+MEMORANDUM FOR: Director, Domestic Contact Service
+
+SUBJECT : DCS Case 47540 - Contact with
+Louis A. Brun/Clemard Joseph Charles
+
+1. On 29 July 1969, Station Port au Prince advised that Clemard Joseph Charles had passed a list of nine questions concerning the Haitian economy to an official of the United States Embassy in Port au Prince. The list of questions was written in English in standard U.S. Government format and, although sterile, appeared to be intelligence requirements. Charles told the Embassy official that he had just finished a "big job" for the Pentagon and implied that the list also case from the Pentagon. The Embassy official suspected that Charles had passed a copy of the list to the National Palace.
+
+2. On 2 August, a representative of the WH/Haiti Desk contacted Mr. George Musulin, Operational Support Staff of DCS, and learned that the DCS office in New York had briefed Mr. Louis A. Brun and had orally passed a list of CTRL requirements to Brun concerning Haiti prior to his trip to Haiti during the week of 21 July. Mr. Musulin speculated that Brun had probably noted the DCS requirements on paper and then had passed a copy to Charles upon his arrival in Haiti.
+
+3. For a number of years, the United States Govern-
+ment has been aware of the political ambitions of Charles
+and his alleged plotting to overthrow the Duvalier regime.
+In 1967, this rather open plotting led to his imprison-
+ment for over one year. Also, since May 1963, Charles
+has been trying to obtain support from the United States
+Government for his plots but he has been consistently
+rebuffed. Charles is not held in high esteem by U.S.
+officials and his motives are highly questionable. He
+owes his position in Haiti to his relationship with
+Duvalier and his ability to successfully manage some of
+
+SECRET!

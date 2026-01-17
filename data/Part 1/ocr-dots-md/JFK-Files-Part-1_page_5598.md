@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_5598.png
+
+Convert to Markdown<table><tr><td colspan="4">SECRET</td></tr><tr><td>16 SEPT THRU 11 OCTOBER. REPORTS ENCODED IN PRIVATE NUMERICAL CODE USED BETWEEN EVEMEETS AND EC, MAILED TO EVEMEET/1 (ONE LETTER ONLY) WHICH SAME AS THAT USED BY EVEMEET/1.</td><td colspan="2">C. E. D. M. &amp; F. PLANNING OVERCOME DUVALIER AND SET UP ALVES AS JUNTA. TIFING NOT GIVEN. IDEN B FINANCING THE PLOT TO JNE OF $600,000. INSIDE WITTING PARTIES ARE IDENS D AND POSSIBLY F. INSIDE WITTING PARTIES ARE EVEMEET/1, EVEMEET/4 IDENS F, AND POSSIBLY F.M.VHO BROKER OF IDEN F.</td></tr><tr><td colspan="4">3. CHRONOCLOGY OF BC INVOLVEMENT IS AS FOLLOWS: 21 AUG, BC MEETING WITH IDEN B, WHO INDICATED HE PLANNING SUPPORT COUP WHICH CAPTURED BUT NEEDS HELP IN REMOVING OBSTACLE OF PRESIDENTIAL GUARD. GAVE FIRST NAMES OF RELIABLE INDIVIDUALS AT SPECIFIC POSTS AND SUGGESTED APPROACH TO IDEN E VIA IDEN D. 11 SEPTEMBER, BC MEETING WITH IDEN B WHO REVEALED THAT HE DEALING WITH IDEN C. BC PLACED</td></tr></table>
+
+SECRET
+
+<table><tr><td>2204769-70536</td></tr></table>
+
+14-00000
+
+<table><tbody><tr><td>ADMITTANCE</td><td rowspan="2"><div style="text-align:center;">SECRET<br>(WILL BE OPEN)</div></td><td rowspan="2"></td><td rowspan="2" style="vertical-align:top;">ADMISSIONS OF NEW COMMUNITIES</td><td rowspan="2"></td></tr><tr><td>EQUIVALENT</td></tr><tr><td>J</td><td>AT</td><td>1140</td><td></td><td></td></tr><tr><td>SIGNATURE</td><td>F.C.</td><td></td><td></td><td></td></tr><tr><td>AGE</td><td></td><td></td><td></td><td></td></tr><tr><td>HNO</td><td></td><td></td><td></td><td></td></tr><tr><td>CINITY</td><td></td><td></td><td></td><td></td></tr><tr><td>JOINTS</td><td></td><td></td><td></td><td></td></tr><tr><td>PURCHASE</td><td></td><td></td><td></td><td></td></tr><tr><td>LIMIT</td><td></td><td></td><td></td><td></td></tr><tr><td>FILE, VA.</td><td colspan="4">001,002,003, 004, 005, 006, 007, 008, 009, 010, 011, 012, 013, 014, 015, 016, 017, 018, 019, 020, 021, 022, 023</td></tr><tr><td>DATE</td><td colspan="4">01, 02, 03, 04, 05, 06, 07, 08, 09, 10, 11, 12, 13, 14, 15, 16, 17, 18, 19, 20, 21, 22, 23, 24, 25, 26, 27, 28, 29, 30, 31, 32, 33, 34, 35, 36, 37, 38, 39, 40, 41, 42, 43, 44, 45,

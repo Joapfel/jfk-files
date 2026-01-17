@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_6438.png
+
+Convert to Markdown(o) A GIC report on F-14U. Warr7 and his wife dated 27 August 1950 in- dicated a list of men he said they would later be eliminated from the subjects. The list of Louis Vincennes, 237 Hudson Avenue, New York City 16, telephoned 11/24-2-9341 expressed several times and the date 15 December 1947 continued. The list of HICs also appeared in a hot headed "letters".
+
+(2) In a document from a usually reliable source dated 27 September 1951, Louis Fischall, an American citizen born in Philadelphia (2 February 1933, was reported as staying at the Hotel Indochina in Borneo from 3 April to 23 April 1951. It was accompanied by his alleged wife, Dora Fischer, born in Latvia in 2 January 1930. It was in possession of passenger No. 35133 dated 1 November 1950 and his wife, No. 15733 dated 23 February 1948, both born in Washington. Dora was reported as departing for Florence on 7 April 1951 there at same time he was joined by her. According to personnel of the hotel, Fischer was a commercial. He claimed to be a journalist, but there were some doubts as to this claim. When leaving Borneo, he left his trunk with Hotel Personnel, and it was later picked up by an unidentified friend. In his Hotel had contacts with fellow-Americans. The purpose of his trip to Italy was unclear.
+
+(3) A report dated 19 September 1951 stated that one GRABHICK and wife, and CIVARI and wife spent the holiday of Easter, 1951, at Verona (near Milano) together with the “Wall-inwan” anti-Stalderotouperean, Louis Fischer." This report also stated that GRABHICK had Commitment affiliation but that CIVARI gave no indication of being course of this.
+
+(4) In a report dated 22 December 1951 Louis Fischer was included among delegates to a conference of the International Labor Organization to be held 1) December 1952 in Vienna, India. This report also stated that it was prepared that Fischer was from France but that this was not definitely known.
+
+(5) In a document dated 20 January 1951, Louis Fischer was reported to have made contributions to the SOE, a political organization composed of the敌lieve segments of the resistance movement. Such carries on both court and parliamentary activities dated at the eventual overtures of the Soviet Politburo. His activities of this organization have beenfirmly deniedby Fischer, contributions, and indirectly by Harvard University through the Institute for the Study of the Soviet Union which is staffed wholly by SOE personnel.
+
+2. There is also a reference to Louis Fischer in WP-8135 dated 23 May 1952.
+
+3. In requesting information concerning subject, WP-97th invited our attention to the following references: WP-8135 dated 24 December 1950, WP-8170 dated 23 December 1950, and D. C. Tynell's minutes of 5 January 1951. It is the opinion of Nicholas A. Bernard, author of WP-8135, that Louis Fischer described in these references is not identical with Louis Fischer cited in the KATZ synthesis.

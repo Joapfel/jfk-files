@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_8345.png
+
+Convert to MarkdownSUBJECT: Ruth Niewandt
+
+DATE OF INFORMATION: March 13, 1969. 1300 Hours
+
+PLCS ACQUIRED: None of and Zuracusa (spelling)
+
+My wife and Ruth Niewandt were present at a
+lunch upon women tennis players. In the course of
+their conversation they discussed the other mixed
+doubles group to which they both belong, including
+Valentin Boguinov. My wife told Ruth that she was
+looking forward to having her turn of having the
+entire group at our home for lunch. But that we
+were waiting for Val to leave for Moscow. My wife
+said that she thought it illadvised for an American
+to entertain a Soviet. Ruth agreed.
+
+E.C. -257
+
+P-11742

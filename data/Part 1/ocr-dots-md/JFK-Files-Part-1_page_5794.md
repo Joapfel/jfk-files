@@ -1,0 +1,237 @@
+# JFK-Files-Part-1_page_5794.png
+
+Convert to MarkdownTO: Mr. and Mrs. Charles Joseph Jeannerot
+
+FROM: H. Z. Jeannerot, S.A. Engineer
+CS Research & Evaluation Service
+9-10 Jan. 1962
+
+I have been informed by a source that交 may be corollated with references that an American at the name of Fau, COE is arriving in Prague as Angels and will arrive until September (July, October) and as a tourist, and his hotel room booked beforehand by the Party and quarters /be lived in is the new hotel "International".
+
+During air stay there has been several conferences with the Communists. American resident in Prague, George J. WHEELER and his CIGS. COE is apparently a layman making in the fifties with dark hair and rather small hands about 45 cm.
+
+Regarding the recent U.S. detector to CUBA. Prof. Charles JURICE, who came to Prague with wife and children, everything was properly prepared before his arrival. His son Larry had a Czech letter after arrival and the hotel room had been booked.
+
+FILE IN 201-169934
+
+ANNUAL FILED IN 201-310906
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26 Jan 62
+
+26

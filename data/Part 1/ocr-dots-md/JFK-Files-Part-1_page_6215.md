@@ -1,0 +1,63 @@
+# JFK-Files-Part-1_page_6215.png
+
+Convert to Markdown# PRINCIPIOS ESENCIALES DEL GREMIALISMO ESTUDIANTIL
+
+Un Centro de Estudiantes, para considerarse ORGANISMO GREMIAL, debe distinguirse por su:
+
+## UNICIDAD:
+
+- Debe ser único por eficacia, convenlencía económica, educación del estudiante en materia de solidaridad y fondamentos legales de representatividad de TODO el estudiantado.
+
+- En muchos poises (el nuestro) no se da por la violenta división política.
+
+## NEUTRALIDAD:
+
+- No puede identificarse con intereses de grupo.
+
+- Su formulación aparea en un artículo de los estatutos que senalo la aconfesionalidod y el oportidismo del gremio.
+
+- No significa desinterés por los actividades religiosas o políticas.
+
+- Tampoco puede significar la neutralidad, que el gremio no puede pronunciarse frente a la realidad: contra el engano y en favor de la verdad.
+
+## DEMOCRACIA INTERNA:
+
+- Principio que tiende a promover y a garantizar lo libre contribucion de todos los estudiantes en todo lo que atiene a la vida misma del Gremio Estudiantil.
+
+## REPRESENTATIVIDAD:
+
+- Un Centro de Estudiantes debe ser el UNICO gremio estudiantil de derecho y de hecho.
+
+- La Unicidad y la Democracia Interna son bases de la Representatividad.
+
+- Lo fundamental es el contenido: SERVICIO DEL BIE COMUN ESTUDIANTIL.
+
+<table><tr><td>HACIA UN GREMIALISMO</td></tr><tr><td>ESTUDIANTIL VENEZOLANO</td></tr></table>
+
+Gráficos Ateneo - Tel. 53.52.02
+
+10.000
+
+OFICINA AL
+SERVICIO DEL
+ESTUDIANTADO DE
+EDUCACION
+MEDIA
+
+DIRECCION PROVISIONAL:
+
+QUINTA ARAGONESA - LOS CAOBOS
+
+(FRENTE A LA ESTATUA DE C. COLON)
+
+TELEFONO 55 54 01
+
+HAGAMOS NUEVA PATRIA
+
+ESTUDIANDO
+JUGANDO
+TRABAJANDO
+LUCHANDO
+HAGAMOS
+
+NUEVA PATRIA

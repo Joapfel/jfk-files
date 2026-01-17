@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_6000.png
+
+Convert to MarkdownAttachment 'A
+
+Havana, 28 Nov 62
+
+Dear Brothers:
+
+I hope from my call (LD telephone) yesterday you are aware of
+how desperate we are, financially. The week before last, I went to
+Las Villas and I want you to know that the DRE flag has now been raised
+in the Free Territory in Cuba. A small guerrilla (group) well supplied,
+is now representing us in the North Zone of Las Villas. And the
+guerrilla banda in Matanzas to whom we have offered some support will
+no doubt come into our organization if assured a little more help from
+the DRE.
+
+We have been working on the total reorganization and if we
+cannot claim complete success it is because if our limited resources.
+Propaganda, although on a small scale, is functioning well, I am
+enclosing a copy of our last issue of Trinchera and examples of the
+scals we are producing in homes of Pre- University members. These
+are now appearing in public places. As you can see there is a willing-
+ness to work and with a little material support a great deal of eff-
+ective work could be forthcoming.
+
+I cannot understand yet, the delay in sending money. You remember
+how you witnessed our needs that day in Varadero, Luis? We only
+had a few centavos in capital? Well, that is the way we are now.
+
+We have asked a small local loan and after that must travel to Las
+Villas for a loan from the Provincial (Committee) there, since they
+seem to have money. I hope upon receipt of this (letter), if you have
+not sent money, you will do so immediately.
+
+Concerning the travel of Angel (AMHINT-58 infiltration), advise
+me as soon as this can be arranged so that we can check the security
+aspects here. Our purpose is a to be organized to facilitate the work
+
+Encл Аг. СКД 6857
+
+19-124-26/3

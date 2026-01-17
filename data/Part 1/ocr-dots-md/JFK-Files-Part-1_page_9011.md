@@ -1,0 +1,176 @@
+# JFK-Files-Part-1_page_9011.png
+
+Convert to Markdown15 NOVEMBER 1968
+
+SUBJECT: Enabling of Social Security Tax Credits of Former Contract Agents, Edward G. TICHPOORN, which are on file with the Agency.
+
+REFERENCES: ER 20-45, Controller Instruction 21, para 5a (d)
+
+1. This office has been informed that the above named individual continued in the role of Agent Payroll French as of CUI 31 August 1968.
+
+2. The cited Beloar are social security credits on files with the Agency on which Social Security taxes were withheld from salary. These social security tax credits is a type reported to Department of Old Age Supplement Temperature Agency currently because of the individual's current status at the time he was issued.
+
+**Eyes**
+
+TICHPOORN, EDWARD G.
+
+**Date(s), 1964, 1965 & 1966**
+
+3. It is requested that it be determined which of the following claims can be used in reporting these credits to the BISI. As indicated in reference 3, it is corrected that costs of this land can ordinarily be reported indicating SIA or city as employer. Obstacle, it will be necessary to return the账面 in the form of a non-official obtainable claimant. There reports are far from being to clean up liabilities of the Union.
+
+4. Please indicate by signing in the appropriate space whether Subject's earnings may be reported with:
+
+(a) CIA as the employer
+Signature:
+(b) Army as the employer
+Signature:
+(c) An obtainable non-official employer
+Eyes:
+Address:
+Signature:
+Central Cover Staff
+
+If an obtainable employer is to be selected, the operating division will also indicate the general type of business activity in the list. In this individual could have been city id, and Central Cover Staff will furnish this office the full name and address of its appropriate obtainable employer.
+
+5. Prompt attention to this matter is necessary in the interest of final closing of Subject's pay account. Accordingly, a copy of this copy of 27 NOVEMBER 1968 is established for furnishing the information requested below.
+
+G. Lohman
+Attorney
+Contract Agents Accounts Section
+@-6 P
+
+C4-600000
+
+SCHOUWS
+
+FARAHAN
+JAMAL
+FARIHAN
+SHOENKEL
+DOWELL
+LAWLER
+WILLIAMSON
+MURPHY
+MILLER
+SPENCER
+BLOOMBERG
+DEERE
+HARRIS
+MOORE
+RITTER
+BROOKS
+BRISTOL-MYERS
+CURTIN
+WILCOX
+DOUGLAS
+BLACKWELL
+COHEN
+GOULDSTEIN
+REED
+KLEIFER
+SIMON
+PIETTMANN
+NORDSTROM
+FARRIS
+SCOTT
+PARKER
+CURTAIN
+ROTH
+KLEIBERK
+BROWN
+CUMMINS
+GORDON
+MOSCOWSKY
+TRICARTIER
+DIETZ
+FARRIS
+BOBBITT
+BARLOW
+MEYER
+BLOOM
+REID
+MCDONoghA
+BROWN
+KLEIBERK
+HARRIS
+REED
+BROUWER
+CURTIS
+VOIGTLÄNDER
+ROTTENBERG
+BEARD
+BROWN
+BROWN
+MAYNARD
+CURTAIN
+GORDON
+MOSCOWSKY
+FRANKLIN
+BROWN
+BROWN
+REID
+MCDONoghA
+BROWN
+BROWN
+MAYNARD
+CURTAIN
+GORDON
+MOSCOWSKY
+FOSTER
+ROTTENBERG
+BEARD
+BROWN
+BROWN
+REID
+MCDONoghA
+BROWN
+BROWN
+REID
+MAYNARD
+CURTAIN
+GORDON
+MOSCOWSKY
+FOSTER
+ROTTENBERG
+BEARD
+BROWN
+BROWN
+REID
+MCDONoghA
+BROWN
+BROWN
+REID
+MAYNARD
+CURTAIN
+GORDON
+MOSCOWSKY
+FARRIS
+ROTTENBERG
+BEARD
+BROWN
+BROWN
+REID
+MCDONoghA
+BROWN
+BROWN
+REID
+MAYNARD
+CURTAIN
+GORDON
+MOSCOWSKY
+FARRIS
+ROTTENBERG
+BEARD
+BROWN
+BROWN
+REID
+MCDONoghA
+BROWN
+BROWN
+REID
+MAYNARD
+CURTAIN
+GORDON
+MOSCOWSKY
+FARRIS
+ROTTENBERG

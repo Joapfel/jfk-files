@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_8462.png
+
+Convert to Markdown14-00000
+
+O.P.
+LP
+
+il de l
+
+I believe we should index
+all names connected w/ Fr. KURGUS.
+
+Agree?
+
+Jm Telesky
+
+23 Apr 68
+
+P.S. 78
+
+C/F S. B.
+
+P.O. Box: Nicolas Kurkguz
+( P - 13,262 )
+
+APR 1968
+
+200
+
+3
+
+CARDED
+
+(3)

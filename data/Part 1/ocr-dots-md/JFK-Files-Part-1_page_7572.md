@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_7572.png
+
+Convert to MarkdownISAACS, H
+
+Probably Harold R ODETT
+
+© JACOB. FBI think that there is a possibility that the JACOB, an unidentified young Amer journalist in Shanghai in 1931, 32 who was a member of the SORGE network in China might possibly be identical with ISAACS. ISAACS himself has advised that he does not believe that he could have been the individual to whom SORGE gave the cover-up
+JACOB (DFB 7864)

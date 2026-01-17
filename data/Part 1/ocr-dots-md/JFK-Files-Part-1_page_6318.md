@@ -1,0 +1,79 @@
+# JFK-Files-Part-1_page_6318.png
+
+Convert to MarkdownSource: [Santiago Esquerra Fernández A1289162]()
+
+Country Cuba
+
+Subj (see below different reports)
+
+Date of info Prior to ? Mar 62
+
+Date place aoq Prior to ? Mar 62 Habana Cuba.
+
+Source descript. Cuban national who was student at the University of Habana
+
+1. The student resistance organization in Habana is the Directorio Reclucionario Estudiantil (DRE, Student Revolutionary Directory).
+
+One of its leaders is [Lester Garcia Rosales] -ho is the chief of finance for Habana Province. Also [Roberto Quintairos Santiso] is the general coordinator of the DRE. He has an external line of communication, running out of Cuba, through an official of the [Uruguayan Ingresy] in Habana. [Quintairos] replaced [Ricario Xisam ley] as Governor, who is also known as ['El Chiná Chino'] (the Chinaman). The letter was arrested by the Cuban security forces in January 1962 and is presently in prison.
+
+2. The DRs has a clandestine propaganda newspaper called *Trinchera*, but until it is published on a very i. regular basis,
+
+3. In order to finance its activities the DRE sells bonds in one and five peso denominations, however, because of the security conditions in Cuba, one must be very careful in selling the bonds or else he may sell one to aove nment agent who are constantly trying to provoke oppositionists to show themselves.
+
+4. During the latter part of February 1962 two bombs exploded in the University of Habana. It was said that the bombing was done by the DRE.
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+MSN XX REPORT- SAME SOURCE
+
+The section of Habana known as Alturas del Bosque (roughly, the Heights of the Woods) is being heavily fortified by the Cuban Government.
+This area is located on the north side of 23rd Street!!!! above the 17-120-19 7/8R
+CS COPY
+
+[US] 7/120-19-17
+
+17-120-19-17
+
+14-00000
+
+104-10171-10018
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+CS COPY
+
+14-00000
+
+104-10171-10018
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+UEGA 3513/27
+15 mon.'62
+pm DRS
+
+**Received From:** Project AMS PETT
+**CS Classification:** 197-724-26/3
+**JCS#:** 18443
+**Box#:** 184
+**Bolder,**
+
+**Project No.:** 11823
+**File#:** 7005
+**Title:** RECLUCIONARIO ESTudiantil
+**Date of Info:** Prior to 7 Mar 62
+**Date place aoq:** Prior to 7 Mar 62 Habana Cuba
+
+Source descript. Cuban national who was student at the University of Habana
+
+1. The student resistance organization in Habana is the Directorio Reclucionario Estudiantil (DRE, Student Revolutionary Directory).
+
+One of its leaders is [Lester Garcia Rosales] who is the chief of finance for Habana Province. Also [Roberto Quintairos Santiso] is the general coordinator of the DRE. He has an external line of communication, running out of Cuba, through an official of the [Uruguayan Ingresy] in Habana. [Quintairos] replaced [Ricario Xisam ley] as Governor, who is also known as ['El Chiná Chino'] (the Chinaman). The letter was arrested by the Cuban security forces in January 1962 and is presently in prison.
+
+2. The DRs has a clandestine propaganda newspaper called *Trinchera*, but until it is published on a very i. regular basis.
+
+3. In order to finance its activities the DRE sells bonds in one and five peso denominations, however, because of the security conditions in Cuba, one must be very careful in selling the bonds or else he may sell one to aove nment agent who are constantly trying to provoke oppositionists to show themselves.
+
+4. During the latter part of February 1962 two bombs exploded in the University of Habana.

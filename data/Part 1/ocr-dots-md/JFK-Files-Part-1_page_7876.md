@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_7876.png
+
+Convert to MarkdownSECRET
+
+EMMA-32761
+
+**1 December:**
+LEROBBIN-1 bumped into PRIKRODKO in a coffee shop in the vicinity of several boys' schools. PRIKRODKO appeared to be deeply engaged in conversation with an unidentified Mexican boy who appeared to be about 20 years old and a student. PRIKRODKO greeted LEROBBIN-1, but neither introduced the boy nor asked LEROBBIN-1 to join them. PRIKRODKO was still talking with the boy when LEROBBIN-1 left.
+
+**Early December:** At the invitation of PRIKRODKO and Valentin I. KUCHEROV (201-758017), LEROBBIN-1 and -2 attended a reception in honor of the Bolshoi Ballet at the Soviet Embassy.
+
+**2 February:** LEROBBIN-1 and -2 and their daughter attended a dinner and film showing at the Soviet films office along with another American couple the LEROBBINS had introduced to PRIKRODKO. PRIKRODKO and KUCHEROV were the hosts.
+
+**15 February:** LEROBBIN-1 and -2 met Valentin S. LOGINOV (201-285412), for the first time, at an Indian Embassy reception.
+
+**16 February:** At LOGINOV's invitation, LEROBBIN-2 attended a Consular Corps gathering at the Soviet Embassy. LEROBBIN-1 had left for the United States that morning. PRIKRODKO and KUCHEROV both appeared genuinely surprised at seeing LEROBBIN-2 and learning that she knew LOGINOV. LOGINOV, for his part, also seemed surprised that PRIKRODKO and KUCHEROV knew LEROBBIN-2.
+
+**17 February:** KUCHEROV came over to LEROBBIN-2's apartment during the afternoon with an invitation to the Soviet Army Day reception which he had promised on 10 February to deliver personally. As KUCHEROV knew, LEROBBIN-1 had left for the U.S. KUCHEROV invited himself in for several drinks and stayed for two hours talking about nothing. At one point he noticed a scratch on LEROBBIN-2's knee and used the opportunity to administer a sympathetic caress which wound up going down the length of her leg. He did not attempt to follow up this amorous gambit, however, and finally left with nothing more than a good-by bear hug.
+
+**23 February:** LEROBBIN-2 attended the Soviet Army Day Reception at the Soviet Embassy, where she talked primarily with PRIKRODKO, KUCHEROV, and DULGOV. She also spoke briefly with LOGINOV, who invited her to go along on a Consular Corps tour of the Mexican Home Show.
+
+**3 March:** LEROBBIN-2 went on the tour of the Home Show, during which she talked with LOGINOV for about 25 minutes.

@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_8195.png
+
+Convert to Markdown8 March 1961
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Plans for Debriefing of Edward G. Tichborn (P)
+in Washington
+
+1. On 6 March Edward G. Tichborn (P) telephoned C/PAG to inform him that he had returned from his TDY assignment to El Salvador. He felt that his trip has been a successful one and that he would have a meaty report to submit. He also suggested that he felt it would be useful if he were debriefed by the interested parties at Headquarters.
+
+2. C/PAG and I agreed that this would be the most useful manner for obtaining all of the details of his activities while in El Salvador, as well as providing an opportunity for WH officers to pose any questions they might have. Consequently I contacted Messrs. Holman and Marshall of WHD and suggested that Tichborn (P) come to Washington on Sunday, 12 March and be debriefed on 13 and 14 March. They agreed this would be an excellent idea.
+
+3. Mr. Marshall wanted to check on the financial aspect of Tichborn's (P) trip East. He asked if he would receive an additional salary for that time period. I suggested (as C/PAG had discussed with me) that we would recommend to Tichborn (P) that this debriefing be included in the salary he was informed he would receive for this assignment. (This figure would be $500 per week, or $1,000 for two weeks.) Expenses covering this projected trip to Washington would, however, be separate. I also mentioned to Mr. Holman that this would be suggested to Tichborn and that I felt he would be amenable since this would bring the total time he was on assignment for WH to two weeks. Mr. Holman agreed that I should call Tichborn (P) and ask him
+
+Jor 253203

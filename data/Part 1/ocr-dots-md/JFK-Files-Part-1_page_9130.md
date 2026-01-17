@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_9130.png
+
+Convert to MarkdownDuring our last session in Madrid, our bank expressed its
+appreciation of the efficiency of our办事員 and willingness to do
+whatever Robert Attaway as a bank officer can. In his absence,
+Bob has a public relations office which specializes in public-
+affairs and film picture productions during the shooting phase
+and therefore has good contacts with producers, directors,
+actors, etc. In countries like Spain where people are much
+skilled after by local businessmen and their spouses, and they
+frequently meet with the top executives of society and govern-
+ment. (The Spanish government, incidentally, frequently sub-
+sidizes motion pictures which "portray the better aspects of
+our country.") Bob took me to a party hosted by Oscario
+Gonzalez, largest movie producer and distributor in Spain,
+and where I met the following: one Parques de Vinos de la
+Sierra (BARRIO bank), Joan Del Bueu (ship-building
+family), FlorentinoROYBAL (Madrid's principal theatre owner),
+Ted Richman (producer of one Mall Bryant film), Lee J. Cobb,
+and several other people from Madrid's rich-titled business
+community.
+
+In addition to his administrative work, Roomey
+has another big asset, his wife, Maribella, who is the most
+beautiful and charming woman I've ever known. During my entire stay in
+Spain, she left no moment unutilized, and received at the Gonzalez
+party, a guarantee of those upper-cased guests that she had no idea
+
+14-60000

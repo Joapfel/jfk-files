@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_7691.png
+
+Convert to Markdownwas going to go to the U.S. on vacation and mentioned that Daniel *SEIN* (no traces) had asked about Subject. Subject said he would call her later. On 24 Aug 1966 FEDOR told Subject that there would be a discussion about India at her house on 26 Aug, and Subject said he would try to go. Stxx Subject asked her whether she knew the Soviets working on a United Nations project, but she said she did not. (1). (Comment: FEDOR may work at the United Nations in Mexico City.)
+
+19. (D). fu FLORES, man employed at Mex-American travel agency.
+
+On 15 Mar 1966 FLORES, who described himself as a friend of Gloria's and the others', asked Subject for visa information (1). (Gloria might be Gloria PINTO, cf. below.) formerly Socorro FLORES (P-12259),/employed at Mex-Americana de Viajes travel agency, no other traces.
+
+Subject was first reported in contact with FLORES in Sep 1965 in connection with travel reservations, and for about a year Subject continued to discuss travel arrangements and at the same time flirt with FLORES and also send regards to Susana LNU, who worked with her. On 8x8 sep 1966x
+
+Subject arranged to meet FLORES in front of a movie theater. Then there was no report of contact between them, until on 13 Jun 1967 FLORES told Subject that she had a new job and asked him to call her at 27-85-50, extension 18 (no Station listing of this number). She mentioned that she had not seen him for a while, (1).

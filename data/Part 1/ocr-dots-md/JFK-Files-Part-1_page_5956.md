@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_5956.png
+
+Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+MATERIAL REVIEWED AT CI, HEADQUARTERS BY
+HOUSE SELECT COMMITTEE ON ASSASSINATIONS STAFF MEMBERS
+
+FILE TITLE/NUMBER/VOLUME: Susan Heilman Frank
+201-19:098 (Vol 1)
+
+INCLUSIVE DATES: 1958-63
+
+CUSTODIAL UNIT/LOCATION:
+
+ROOM: 2
+DELETIONS, IF ANY: Third Agency Documents
+
+<table><thead><tr><th>DATE RECEIVED</th><th>DATE RETURNED</th><th>REVIEWED BY (PRINT NAME)</th><th>SIGNATURE OF REVIEWING OFFICIAL</th></tr></thead><tbody><tr><td>3/18/78</td><td>3/17/78</td><td>Betsy Wolf</td><td>Betsy Wolf</td></tr><tr><td>3 MAY 78</td><td></td><td>BETS4 WOLF</td><td>Betsy Wolf</td></tr><tr><td>12 MAY 78</td><td></td><td>JOHANNA S</td><td>Johanna S</td></tr></tbody></table>
+
+NO DOCUMENTS MAY BE COPIED OR REMOVED FROM THIS FILE.

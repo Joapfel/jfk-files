@@ -1,0 +1,61 @@
+# JFK-Files-Part-1_page_8150.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>DATE : 8 NOV 61</td>
+    <td>CLASSIFIED MESSAGE</td>
+   </tr>
+   <tr>
+    <td>TO : DIRECTOR</td>
+    <td rowspan="4">
+     SECRET
+    </td>
+   </tr>
+   <tr>
+    <td>FROM : MEXICO CITY</td>
+   </tr>
+   <tr>
+    <td>ACTION : WH 8</td>
+   </tr>
+   <tr>
+    <td>INFO : COP, CA 2, CA/PRG, CA/PROP, CI, CI/OPS, COG 2, FI IOD 4, S/C 2</td>
+   </tr>
+   <tr>
+    <td colspan="2">
+     ROUTING
+    </td>
+   </tr>
+   <tr>
+    <td>1</td>
+    <td>W. H.</td>
+    <td>4</td>
+   </tr>
+   <tr>
+    <td>2</td>
+    <td>S.</td>
+    <td>5</td>
+   </tr>
+   <tr>
+    <td>3</td>
+    <td></td>
+    <td>6</td>
+   </tr>
+   <tr>
+    <td colspan="2">NOV 8 1716Z 61</td>
+   </tr>
+   <tr>
+    <td colspan="2">: ROUTINE</td>
+   </tr>
+   <tr>
+    <td colspan="2">IN 19486</td>
+   </tr>
+  </table>
+
+DIR CITE NEXI 9353 (WARE ACTING)
+REF DIR 21982 (@t66289)*
+
+1. FUSA IS OVERALL GOVERNING UNAM STUDENT DIRECTORATE, COMPOSED OF FIVE EXISTING FEUS IN UNIFIED BODY, REPRESENTING TOTAL 70,000 UNAM STUDENTS. WHILE FUSA IS NEWLY CREATED AND DEGREE OF INFLUENCE AND AMOUNT OUTSIDE POLITICAL/GOVT SUPPORT NOT YET KNOWN, ROQUE, IN ACCORDANCE HIS ELECTORAL PLATFORM, DESIRES OBTAIN FUNDS INITIATE STUDENT NEWSPAPER, ESTABLISH STUDENT HOUSE (S), IMPROVE UNAM EDUCATIONAL STANDARDS AND STUDENT FACILITIES SUCH AS TEXT BOOKS, LIBRARY SOURCE MATERIAL, ETC. SINCE ROQUE ALREADY/SIGNED OPERATIONAL RECEIPTS FOR FINANCIAL SUPPORT FROM ZRAFRAID FOR HIS ELECTION CAMPAIGNS, IT APPEARS FEASIBLE SAME "ANONYMOUS LOCAL BUSINESSMEN GROUP" COVER SPONSORSHIP AND OP CONTROL AS UTILIZED LILISP C THRU RIKON, E
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

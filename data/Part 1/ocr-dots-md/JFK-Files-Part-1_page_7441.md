@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_7441.png
+
+Convert to MarkdownCOPY
+
+# Letter of H. R. Isacks to the C.C.P. concerning the China Forum
+
+To the Central Committee of the Chinese Communist Party:
+
+The two-year period of my extra-organizational collaboration with the Chinese Communist Party has come to an end and the China Forum which I founded and edited during that time has been forced to suspend publication. In the interest of our whole movement as well as in my personal interest, I consider it necessary to record here and publish the history of the China Forum and the circumstances of its suspension. You refused me the opportunity to lay the matter before the membership of the party even when I offered to do so in your own organs and not through the columns of the Forum. When, wrongly, I permitted the Forum to go down in silence, you turned around and in your organs and near organs in China and abroad you proceeded with the usual slanders of "betrayer" and "counter-revolutionary". In so doing you didn't have the courage or the simple honesty to state that you presented the China Forum with an ultimatum and forced its suspension because in reply its editor raised questions which are being placed before the whole movement today by the International Left Opposition. Nor did you state that you deliberately smashed the Forum for this reason despite my repeated and extended offers to continue publication as before on a straight anti-Kuomintang, anti-imperialist basis, leaving these various problems to be thrashed out first privately among ourselves. In other words, you deliberately forced suspension of the China Forum despite the fact, on your own admission, that its loss was a serious blow to the revolutionary movement in China, that it meant the disappearance of an organ which for two years you had considered an extremely valuable instrument in the hands of the movement. Here, as in the broader issues which led to our differences, your blind adherence to false policies was once more demonstrative of your readiness to place your factional interests above the interests of the Chinese Revolution.
+
+In going back over the history of the Forum, I think the vicious character of your action becomes even more evident when I start with the fact that from beginning to end I functioned not as a member of the party but as a willing sympathizer who was prepared to throw all his energies into a job he saw he could do - edit and publish an organ in China which could help mobilize the forces of this country for struggle against the Kuomintang and the imperialists by exposing the regime of terror and privation which they have in common imposed upon the masses of the Chinese people. Permit me to recall at this point that I never accepted any personal remuneration for time or labor. You gave the Forum financial aid but I never received a dollar from you that was not put into the paper. I refused your offers of compensation and earned my living elsewhere. Your only claim on me was my full-hearted loyalty to the Communist ideal and
+
+our
+
+<table><tr><td>Recd.</td></tr></table>
+
+14-00060

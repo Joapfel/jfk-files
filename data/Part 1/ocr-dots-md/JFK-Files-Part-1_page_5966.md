@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_5966.png
+
+director. He is known to have received Communist literature, is believed to have made financial contributions to the Communist Party in the U.S., and there is information to indicate Communist Party membership on his part as late as 1957."
+
+3. OMEWT states that they have referred the cause of the FRANKS to the Legal Attacheds in London, Paris and Tokyo to alert appropriate security
+
+CS COPY
+
+CC COPY
+
+061-1919C8
+
+FORM
+HO 75
+
+060817
+100

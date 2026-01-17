@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_6878.png
+
+Convert to MarkdownDr. Maurice Halperin
+Medellin 36 - 9
+Mexico 7, D. F.
+Mexico
+
+RABINOWITZ & BOUDIN
+ATTORNEYS AT LAW
+
+25 BROAD STREET
+NEW YORK 4, N.Y.
+
+August 25,
+
+Dr. Maurice Halperin
+Medellin 36-9
+Mexico 7, D. F.
+Mexico
+
+Professional services
+
+5308,

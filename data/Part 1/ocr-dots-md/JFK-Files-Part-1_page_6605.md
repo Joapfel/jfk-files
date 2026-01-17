@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_6605.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+Chief, FI/RQN/OIS
+
+22 August 1975
+
+Chief, Contact Division, CO
+
+HE-1785
+
+Miss Lydia Dimova ✓件 S-5564
+
+1. The attached preliminary copy of 00-B-87938 is forwarded as being of possible interest to your office.
+
+2. The name of the young woman of USCR nationality referred to in paragraph 10 of the report is Miss Lydia Dimova, age 30 years. Her mother, presently residing in Harbin, is Mrs. Claudia Dimova. The Dimova family is well known to the source for more than 30 years and therefore the source feels that any information passed on to her by the young woman employee of the bureau might well be considered as reliable.
+
+3. Prior to the departure of the source from Peiping, Miss Dimova visited her and pleaded with source to assist in an effort that they might eventually get out of China. She begged her to register her name and the name of her mother with the United Nations, International Relief Organization, through the Reverend Stumf of the Lutheran Church, World Federation of Churches at Granville Road in Hong Kong. Miss Dimova is desirous of setting up arrangements through IRO so that she and her mother may gain entry into Brazil. The source completed the necessary application on behalf of the Dimovas during her stay in Hong Kong.
+
+4. The above is forwarded for your information and whatever action you may deem appropriate. If you have any questions, please call Mrs. Carstens, extension 2268.
+
+E. M. ASHCRAFT
+
+Fmcl.: 1
+
+RCarstens/wh
+cc Index
+
+SECRET

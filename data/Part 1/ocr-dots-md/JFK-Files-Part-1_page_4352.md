@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_4352.png
+
+Convert to Markdown28. FRANCISCO CATELLA, jefe del interior, está en la Universidad de la Habana, este en el parte superior y la Ia., 16. Jovenes con IDa., tice la fumiga de asimismo que abandonan las cajas al traslajarle al extranjero, vino en la misma dirección de su padre.
+
+EDUARDO PÉREZ, cuenca de la casa Caliente (asentos eléctricos en la calle San Juan) esq. a Trujillo, miembro de las Milicias, aunque no ha usado uniforme, ni embako del C.D.A. de su barrio, y se le acerca como activo delator, es decir, activo del C-2, vivo en el residencial Mayboque...
+
+TITI, vecino por la Catalinaia, pertenece al C.D.B. en el G-2, doméstico a Puerto Barley, que estuvo preso durante y después, desde el mes de Enero, frente al Spruce Bath Club.
+
+LUIS ARTUÑO REYNALD, vecino por Fata de Plancha, jefe del C-2 en Guía, va armando el maleo y el terror en la población con sus abusos y desamigos, y considerando así muy peligroso, hace unos 5-6 y más 100 lbs. de paper, regresa en la calle Mauro desde la calle Dros.
+
+CARLOS BETANCOURT, fue empleado de la escuela de telefonías de Cuinez delator de su centro laboral, trabaja en la actualidad en la oficina de la Estacion de Fremas, tiene un comité de Defensa.
+
+CABINIRO PEREZ, cuenca de la ferretería del mismo nombre, activo militante del P.A.U. en espada de Batista, watan, illitano, posee un comité de defensa en su casa ACTIVO DELATOR, residen en Macao entre Cuinez y Cinto, frente a la estación bodega Espíra de Oro.
+
+CARLOS PEREZ, hijo de Casimiro Perez, hoy en medico de nueva formación, como profesor en el año 1959, opera en la Sabana y Cuinez asistente propagandista del regimen, practicaba la cirugía in-tenor título bajo la responsabilidad del Dr. Marín, la alta dirección de supadre,
+
+GUSTAVO PEREZ, hijo también de Casimiro Perez, illitiano y delator, miembro, reside con su padre.
+
+GARCONS SAAVEDRA, colaborador del regimen en la que a la ensenanza se refiere, delator, reside en el Edificio Salerdi.
+
+JOSECRISTÓV PEREZ GALERIA, miembro de la Cruz Roja de la que fue miembro, jefe, miembro de las milicias y del C-2, guapo de la Casa Perez en el Edificio Balerdi oiso de hombres y niños, y vicepresidente de los 5-1 unida 150 lbs.Reside en Trujillo desde el parque Central de Guineos en el edificio Balerdi.
+
+GUIDO MATANCOURT, emplazado del Instituto de Segundo Ensenanza de Cuinez, illitiano y miembro del C-2, posee un comité de Defensa en su casa situada en la Calle 2, entre Ferrera y Medio por laerna de los numeeros impares.
+
+ESTEBAN GARCIA DAVILA, dentista, colectarador del regimen, vive en Trujillo entre Marti y Concha.
+
+PEDRO RODRÍGUEZ DURÁN, emplazado del Ju-gado de Cuinez, delator veve en el centro Palmas y Macao, al lado de la Sociedad Bella Union.
+
+JOSÉ MUSA, vecino de PR. Rosita, Illitiano, joventu comunista y C-2 viva en Valdés y Marine Games.

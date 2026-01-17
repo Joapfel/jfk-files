@@ -1,0 +1,189 @@
+# JFK-Files-Part-1_page_6551.png
+
+Convert to MarkdownATTN :
+
+Chief, Contact Division
+CAC Staff
+
+20 July 1964
+MEM - 257-64
+
+Chief, Miami Field Office
+
+Arrivals of Cuban Refugees via Spain
+
+1. We have made arrangements to receive periodic listings of Cuban Refugees who arrive in the US via chartered flights from Spain. The first list we have obtained is appended. All local arrivals are being sent letters instructing them to report to Opa-Locka.
+
+2. The flights are organized by the International Refugee Committee. No further information is available locally on any of the refugees listed. We will attempt to locate those settling in Florida.
+Please handle balance as you see fit.
+
+JUSTIN F. GLEICHAUF
+
+JPG:sb
+
+Attachment:
+
+List of Cuban Refugees
+
+F-5564
+S-5564
+
+2-MAY-64
+
+307.1.64
+
+MAY 3, 1964
+
+4, 1964
+
+MAY 14, 1964
+
+May 18, 1964
+
+May 22, 1964
+
+May 26, 1964
+
+May 30, 1964
+
+May 3, 1965
+
+May 10, 1965
+
+May 17, 1965
+
+May 24, 1965
+
+May 31, 1965
+
+June 1, 1965
+
+June 8, 1965
+
+June 15, 1965
+
+June 22, 1965
+
+June 29, 1965
+
+July 6, 1965
+
+July 13, 1965
+
+July 20, 1965
+
+July 27, 1965
+
+August 3, 1965
+
+August 10, 1965
+
+August 17, 1965
+
+August 24, 1965
+
+August 31, 1965
+
+September 1, 1965
+
+September 8, 1965
+
+September 15, 1965
+
+September 22, 1965
+
+September 29, 1965
+
+October 6, 1965
+
+October 13, 1965
+
+October 20, 1965
+
+October 27, 1965
+
+November 3, 1965
+
+November 10, 1965
+
+November 17, 1965
+
+November 24, 1965
+
+November 31, 1965
+
+December 2, 1965
+
+December 9, 1965
+
+December 16, 1965
+
+December 23, 1965
+
+December 30, 1965
+
+January 7, 1966
+
+January 14, 1966
+
+January 21, 1966
+
+January 28, 1966
+
+February 4, 1966
+
+February 11, 1966
+
+February 18, 1966
+
+March 6, 1966
+
+March 13, 1966
+
+March 20, 1966
+
+March 27, 1966
+
+April 4, 1966
+
+April 11, 1966
+
+April 18, 1966
+
+April 25, 1966
+
+May 3, 1966
+
+May 10, 1966
+
+May 17, 1966
+
+May 24, 1966
+
+May 31, 1966
+
+June 2, 1966
+
+June 9, 1966
+
+June 16, 1966
+
+June 23, 1966
+
+June 30, 1966
+
+July 2, 1966
+
+July 9, 1966
+
+July 16, 1966
+
+July 23, 1966
+
+July 30, 1966
+
+August 1, 1966
+
+August 8, 1966
+
+August 15,

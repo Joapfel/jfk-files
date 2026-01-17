@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_5081.png
+
+Convert to Markdown14-0000.
+
+<table><thead><tr><th colspan="3">SENDER WILL CHECK CLASSIF TION TOP AND BOTTOM</th></tr><tr><td>UNCLASSIFIED</td><td>CONFIDENTIAL</td><td>SECRET</td></tr></thead><tbody><tr><td colspan="3">OFFICIAL ROUTING SLIP</td></tr><tr><th scope="row">TO</th><th scope="col">NAME AND ADDRESS</th><th scope="col">DATE</th><th scope="col">INITIALS</th></tr><tr><td>1</td><td>LA/COG/CUB EXILES TUBE: EU-7</td><td></td><td></td></tr><tr><td>2</td><td>ATTN: HORACE S.</td><td></td><td>S</td></tr><tr><td>3</td><td></td><td></td><td></td></tr><tr><td>4</td><td></td><td></td><td></td></tr><tr><td>5</td><td></td><td></td><td></td></tr><tr><td>6</td><td></td><td></td><td></td></tr><tr><td>ACTION</td><td>DIRECT REPLY</td><td>PREPARE REPLY</td></tr><tr><td>APPROVAL</td><td>DISPATCH</td><td>RECOMMENDATION</td></tr><tr><td>COMMENT</td><td>FILE</td><td>RETURN</td></tr><tr><td>CONCURRENCE</td><td>INFORMATION</td><td>SIGNATURE</td></tr><tr><td colspan="4">Remarks:<br/>FYI; THOUGHT THAT THIS MAY BE OF INTEREST. YOUR COPY.<br/><br/>EASTON<br/>PCS/ITC/LA<br/>6448/9054<br/>TUBE: BS-2<br/>5 MAY 77.<br/>File Atlande Bosch</td></tr><tr><td colspan="3">PLEASE RETURN TO SENDER</td><td></td></tr><tr><th scope="row">FROM</th><th scope="col">NAME, ADDRESS AND PHONE NO.</th><th scope="col">DATE</th></tr><tr><td colspan="3"></td></tr><tr><th scope="row">UNCLASSIFIED</th><td colspan="2">CONFIDENTIAL</td><th scope="row">SECRET</th></tr></tbody></table>
+
+(40)
+
+FEB 237 (the protect edition)

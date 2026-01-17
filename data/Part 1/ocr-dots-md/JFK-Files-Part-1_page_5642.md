@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_5642.png
+
+Convert to MarkdownUS manufacturers are setting up subsidiary companies in Haiti or are forming partnerships with Haitian enterprises to produce such items as underwear, baseballs, footwear and other export items. They use Haitian facilities and materials imported from the US.
+
+1. What specific companies are involved in producing those goods, and are they completely owned by Haitians (i.e.,) or are they in partnership with US companies?
+
+2. Are there prospects that other companies are entering the field (using Haitian enterprises to produce goods from imported US materials)?
+
+3. Will these enterprises expand? How important would it be for Haiti if these enterprises expanded? discontinued production?
+
+4. What articles are produced?
+
+5. What materials are imported to produce the final product? What percentage of the imported materials are part of the finished product?
+
+6. Give the figures on the value of the imported goods vs. the value of the export goods to gain Haitian profit figures.
+
+7. How do the domestic producers and the US importers feel about operating under President Duvalier? Are there any difficulties? Have investment conditions in Haiti changed since these enterprise began operating?
+
+8. Does the Haitian workers' lack of education affect their training?
+
+9. How effective is the Haitian social security system? Do US importers contribute to the social security fund?

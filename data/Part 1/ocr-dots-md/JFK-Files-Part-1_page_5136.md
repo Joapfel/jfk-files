@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_5136.png
+
+Convert to MarkdownSECRET
+
+STATION PASSAGE OF XEROX TO LOCAL LIAISON.
+
+2. FIL&1 201-0300765, 10-6-20/3, 82. IMPD&T;
+
+SECRET

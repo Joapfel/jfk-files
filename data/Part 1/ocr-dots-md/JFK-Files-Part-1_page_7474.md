@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_7474.png
+
+Convert to Markdown14-0000
+
+<table><tr><td>FORM<br/>3-62</td></tr></table>
+
+610 USE PREVIOUS EDITIONS ☑ SECRET ☐ CONFIDENTIAL ☐ INTERNAL USE ONLY ☐ UNCLASSIFIED<br/>OP. 58<br/>9-84
+
+SECRET
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+UNCLASSIFIED

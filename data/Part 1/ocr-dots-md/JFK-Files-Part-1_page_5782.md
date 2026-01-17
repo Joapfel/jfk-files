@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_5782.png
+
+Convert to MarkdownCuring the 'Incurable'
+
+Other reports point out that the integration of western medicine and Chinese traditional medicine has resulted in successful treatment of many common and recurrent diseases as well as curing some of the "incurable" diseases such as osteomatosis, epilepsy and chronic laryngitis proliferans.
+
+A mass program in which Chinese traditional medicine and medicinal herbs are being used to prevent and treat diseases and heal injuries is sweeping the country, according to reports. Several instances of rejoining severed limbs to the body by using herbal drugs have been described. As part of this broad movement "red medical counters" have been set up in Canton's state-run drugstores to treat
+
+minor injuries and illnesses and recurring diseases by several methods including acupuncture and injections.
+
+To assist in the struggle against disease a new type of bidynamic current stimulator used for back strains, sprains and neuralgia has been developed. Transistors substitute for electronic tubes and ordinary dry batteries for alternating current, the stimulator no larger than a book. A transistor device with a freezing microtome and a unit for cryotherapy has been developed, lessening the time for making thin sections for rapid biopsy inspections and used in the treatment of skin diseases and surgical procedures in dealing with warts and tiny vascular tumors.
+
+Population Control
+
+Shanghai recently has been the scene of posters urging young people to marry later in life, prompting observers to believe the Chinese are taking serious note of the population increase. At a Tokyo family planning conference recently it was reported that the mainland China urban birth rate was down. If this is true, it is the result of a 15-year birth control campaign. Through a combination of contraception, abortion, sterilization and encouragement of the late marriages, China is said to have almost halved its earlier population growth pace.
+
+New developments in the pharmaceutical industry also have been reported. Of particular pride are drugs made from indigenous herb medicines. A new medical herb in Yunnan proved effective in curing 12 cases of
+
+acute hepatitis and streptomycin and another antibiotic have been produced from active carbon.
+
+On the research front, there is continued interest in prevention of pollution and re-utilization of waste products. In Shanghai it is reported that an electrolysis plant made six different commodities including cryolite, pons soda and liquified ammonium chloride from waste materials.
+
+Peking Pollution
+
+According to published reports, Peking shares the Western world's concern for environmental control. Methods for anti-pollution measures include producing new substances from chemicals extracted from waste materials for medical and commercial purposes, using unwanted materials from largesized factories to construct smaller industries, and maximizing possible usage and resusage of material products in order to economize in production costs are under study.
+
+In a controlled set of laboratory experiments using operant conditioning techniques, five of seven patients with moderate to severe hypertension were able to reduce their systolic blood pressure by 9 per cent through their conscious reaction to external stimuli such as tones, lights and projected slides.
+
+The reductions in blood pressure occurred during a series of studies under the direction of a group of four Harvard investigators in the behavioral laboratory of the Thorndike Memorial Laboratory and the Channing Laboratory, Boston City Hospital.

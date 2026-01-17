@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_8995.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 26 MAR 62</td><td>SERIES A</td></tr><tr><td>O : DIRECTOR</td><td>RIO DE JANEIRO</td></tr><tr><td>AOM : RIO DE JANEIRO</td><td>WH & (WH COPY SLOTTED AT 1815 26 MAR 62)</td></tr><tr><td>ACTION : WH & (WH COPY SLOTTED AT 1815 26 MAR 62)</td><td>CCG 2, S/C 2</td></tr><tr><td>NFO : CCG 2, S/C 2</td><td>OUTGOING</td></tr></tbody></table>
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+MAR 26 22197-62
+
+PRIORITY
+IN 48985
+
+PRITY DIR INFO PRITY MEXI CITE RIOD 6974
+ALSWOOP
+REF DIR 490699 (Out 6.3745) &
+STATION DOES NOT HAVE KNOWLEDGE CAPABILITIES MR. LOPEZ.
+REQUESTED VISIT ON ADVICE MR. LEE SMITH WHO NO LONGER HERE.
+IN VIEW SERIOUS SECURITY HAZARDS NOW BECOMING EVIDENT BELIEVE
+LOPEZ VISIT REQUIRES DETAILED PLANNING. THEREFORE, REQUEST
+CABLE HIS BACKGROUND, CAPABILITIES AND COVER.
+
+END OF MESSAGE
+
+C/S COMMENT: *REQUESTED CABLE DECISION RE MOST EFFECTIVE TIME FOR LOPEZ VISIT TO BRAZIL..
+
+
+
+<table><tr><td></td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

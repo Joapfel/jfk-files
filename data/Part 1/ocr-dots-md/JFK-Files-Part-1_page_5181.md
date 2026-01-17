@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_5181.png
+
+Convert to MarkdownSECRETO
+
+REPUBLICA DE CHILE
+MINISTERIO DE RELACIONES EXTERIORES
+EMBAJADA EN SAN JOSE, C. R.
+
+EJEMPLAR N°
+
+B.COSTA RICA.
+
+HOJA N°
+
+SEC.N°
+
+OBJ. Informa sobre detención de ORLANDO BOCH AVILA/ REF. Telex Sec. N° 20.MINRELACIONES. de 15.III.1976
+
+SAN JOSE . COSTA RICA , 16 de FEBRERO de 1976.
+
+DEL: EMBAJADOR DE CHILE EN SAN JOSE DE COSTA RICA
+AL : SEOR MINISTRO DE RELACIONES EXTERIORES DE CHILE (Subsec)
+- S e c r o s e g - Info
+
+SANTIAGO, Chile
+
+1.- Tengo el honor de dirigirme a US. para hacer de su conocimiento que el día 18 de FEBRERO de 1976 , fué detenido en Costa Rica el ciudadano cubano , antístrista ORLANDO BOCH A VILA al comproberse que su ingreso al país había sido usando de cumentación extendida a nombre de HÉCTOR EMILIO RÁFON DAVANZO CINTOLESI.
+
+2.- BOCH AVILA , es el único de los cinco jefes con-trarrevolucionarios de las Villas que logró escapar con vida de Cuba , hace más o menos 12 años. Se lo sonala como el responsa-ble de colocar una bomba en la sede de las Haciones Unidas, en Nueva York ; de dinamitar un buque novítico en Miami y actual-mente , de ingresar a Costa Rica , prenúmiblemente , para cong-pirar contra la vida de H. Kissinger durante su reciente viaj-ta a este país.
+
+3.º Estal incremento , se encuentra recluso y en huelga de hambre en la edresc de Cartago. En sus declaraciones a la prensa , ha manifestado: "Tengo una misión que cumplir" "Deguird lo chando racionalmente como lo he hecho hasta ahora.Deguiró en- tuento en actividades conspirativas" "No tengo interés de com-prometer al Gobierno. Después de lo que me ha hecho me voy do-elusichado".

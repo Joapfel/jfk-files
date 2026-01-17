@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_8271.png
+
+Convert to Markdown# MEMO FOR THE RECORD
+
+SUB Meeting of Cuadro Consular de Mexico, 17 July 69 (ide:)
+
+FR G A FERMEN
+
+1. On 17 July 69 FERMEN and wife attended their first Consular Corps meeting with two other station Officers and wives. FERMEN was introduced to Lev GOLOVZOV, 201-850177,P-13,766 and Valentin LOGIENOV, 201-255412,P-11712 of the Soviet Embassy and to another Russian, unidentified, who appeared very reluctant to talk. GOLOVZOV was very civil but a bit less expansive than his colleague, LOGINOV, who engaged in a constant verbal bantering with FREDYER. LOGEYEV and FREDYER have established a solid rapport which enables them to engage in the aforementioned antics without further repercussions. LOGEYEV was accompanied by his wife, a very charming, quite women, who speaks acceptable Spanish. She manifested a real interest in the chemical department of the plant, to the point of explaining certain charts and symbols to LOGENOV. She probably has had some chemical training. LOGEYEV himself appeared self-assured, sophisticated and able. He appeared not the slightest concern over the verbal battle with FREDYER, and held his own during the exchanges. He looks strong physically, especially his hands, which could pass for a man. The points he is making still remains to be used to his advantage, however, given the loss for words, and came the smile. At one time during the return, LOGENOV was so pleased at one of the problems that he said, "SISTONE, I'll tell you how it's done." SISTONE,

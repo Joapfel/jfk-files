@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_7123.png
+
+Convert to Markdownthat the U.S. was a waring nation while the Soviet Union
+sought only peace and that the United States would change
+to something similar to the Soviet system in the near future.
+
+6. The rest of the meeting and the next two, were spent discussing Stanislav SILNIKOV and his request that Subject act as "flador" on an apartment for him as well as supply him with a prostitute. (see IIIMMA-27568 of 4 Nov.)
+
+7. In addition, Subject said that ANDRIANOV had asked him
+to get Viktor KALININ some aphrodisiac pills. ANDRIANOV
+said that they were "for Viktor KALININ in Moscow" but
+Subject thinks they are "for Yuriy ANDRIANOV in Mexico".
+Subject said he hasn't the slightest idea where to buy
+such a thing.
+
+8. I told Subject to test the recorder by speaking into the microphones both in the upstairs room as well as in the main part of the store and then to play back the tape. Although RESCIGNO has explained the workings of the recorder to Subject several times, he claimed that he did not know how to do this. I then instructed him to disconnect the recorder and to deliver it to me at 2100 hours on Friday, 5 November. I said that I would test the recorder myself. He asked why RESCIGNO could not come to the store and test it and I told him that RESCIBNO was away. He then asked if RESCIGNO was a Mexican or an American. He said that RESCIGNO speaks Spanish like a Mexican and looks like a Mexican but that he (Subject) is sure that he is an American. I told him

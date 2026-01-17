@@ -1,0 +1,50 @@
+# JFK-Files-Part-1_page_9409.png
+
+Convert to Markdown# Congress for Cultural Freedom
+
+Congrès pour la liberté de la culture
+* Kongress für Kulturelle Freiheit
+
+## Berlin, Germany—June 26-30, 1950
+
+International Committee:
+
+BENEDETTO CROCE
+JOHN DEWEY
+KARI JASPERS
+JACQUES MARITAIN
+BERTRAND RUSSELL
+
+June 23, 1950
+
+GENERAL SECRETARY:
+
+Melvin J. Lasky
+Hotel am Steinplatz,
+Berlin-Charlottenberg,
+Germany.
+
+PUBLIC RELATIONS:
+
+Arnold Beichman
+20 West 40th St., New York City
+CHickering 4-3060
+Longacre 5-3344
+
+Colonel Louis Glaser
+3051 Idaho Avenue, NW
+Washington, D.C.
+
+Dear Colonel Glaser:
+
+Report from Berlin: The story is grossly exaggerated. The Stalinists have not even mentioned the Congress for the last two weeks. Berlin is seething over the Congress; the city is plastered with it.
+
+Report from New York: Harold Lavine of Newsweek, at our instigation, spoke to Grosz who said that he is an artist, that he received numerous communications from the Eastern section of Germany about the Congress; that he is an artist and that he can't be bothered getting involved in so much correspondence. Newsweek will carry the story next week. Will Lissner of the Times is also interested.
+
+Kempton did not carry the story; he was sidetracked by the distressing tale of the young girl Progressive Partyite who discovered the PP is not exactly democratic (her branch refused to hear Regge on Tito). But the fruit flies made Lyons' column (enclosed). Did you see yesterday's N.Y. Herald-Tribune? There was a good story on the Congress by Joseph Norman from Berlin. I have only one copy; if I can get another, I will forward it.
+
+Walter Hening has his military permit for Berlin; I hope that by this time he has cleared his income tax statements for the last three years with the Treasury Dept. (he is an alien), but as I haven't heard from him for the last three hours, presumably things are going well. The American Express Company is working on his ticket.
+
+Tomorrow the last of the delegates are off. I will be around to answer any press inquiries during the week of the Congress and then will close the office. I think the delegates can do their own worrying about the rubbers they left in Berlin.
+
+I feel just like Cinderella — who never got to the ball.

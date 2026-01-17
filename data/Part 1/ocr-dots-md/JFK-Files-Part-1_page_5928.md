@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_5928.png
+
+Convert to MarkdownSECRET
+
+<table>
+  <tbody>
+    <tr>
+      <td colspan="4">ACTIVE EXILE GROUPS U.S. AND CONNECTED WITH RECE. IN 1963. HE WAS ACCUSED BY ORLAND BOSCH AVILA OF MISAPPROPRIATION FUNDS GIVEN HIM TO CARRY OUT WARLIKE ACTIVITIES AGAINST CUBA. BOSCH CLAIMED DUQUE USED FUNDS ON WOMEN AND PARTIES AND DUMPED ARMS HE RECEIVED INTO SEA. NO OTHER INFO.</td>
+    </tr>
+    <tr>
+      <td colspan="2">3. FILE: 200-11-11/3; 24-120-25. E2, IMPDET</td>
+      <td colspan="2"></td>
+    </tr>
+  </tbody>
+</table>

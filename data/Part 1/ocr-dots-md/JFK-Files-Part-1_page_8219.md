@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_8219.png
+
+Convert to MarkdownI came to start a college fund.
+
+* Amy "guilt", if such exists, in the eyes of security, seems to me to come from association, + he is mainly indirect. I feel it is more than countered by her weather and positive, favorable info. He is characterized as a great "liberal" + certainly "progressive" as against conservative, + if this is his bent, it is not surprising if he has run into more leftist types than he can believe acceptable. Those who stated he was liberal, etc. also said, without exception, that there was no question of his being a loyal and patriotic American. 201-

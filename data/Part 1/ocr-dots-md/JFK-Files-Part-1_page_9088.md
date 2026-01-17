@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_9088.png
+
+Convert to MarkdownMEMORANDUM FOR: Chief, WH/BAF
+
+SUBJECT : Reimbursement of Proprietary Project WUERIHY for Salary and Expenses of Edward C. TICHBORR (P) (201-253203)
+
+1. A DO proprietary company (VUSALITEK) under Project WUBRIHY provided cover and funding for contract agent Edward C. TICHBORR (P) (WH Project UDACE) during the period 1 October 1966-30 June 1967. It was agreed between WE and DO Divisions that DO would assume operational responsibility for TICHBORR on 1 July 1967, but that WH Division would continue to defray TICHBORR's salary for the first quarter of FY 1968. It was also agreed that WH Division would reimburse DO Division for operational expenses funded by VUSALITEK during the period 1 October 1966-30 June 1967. These expenses amount to $2,335.99. VI Division previously transferred $14,750 to DO Division for salary and expenses of TICHBORR.
+
+2. It is requested that WH Division reimburse DO Division additionally in the amount of $4,585.99 covering the $2,250.00 balance of TICHBORR's salary ($17,000-$4,750) and the $2,335.99 expenses incurred prior to 30 June 1967. Payment instructions are attached.
+
+(e1mod)
+
+W. F. MONTGOMERY
+Chief, DO Support Group
+
+DOCO/Gale Allen/ekw (11 Sep 67)
+
+Distribution:
+
+1 - DO/HF
+
+201-253203
+
+1 - DOCO chrono
+
+SECRET
+
+201-253203

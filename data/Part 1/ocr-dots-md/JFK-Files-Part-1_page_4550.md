@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_4550.png
+
+Convert to MarkdownNovember 27,1965
+
+I hereby authorize any salaries or monies due me to be
+paid to my checking account No. 0015-24-527 at The Nati-
+onal Bank of Commerce in New Orleans located at 210
+Baronne in said city.
+
+Francisco Bartes

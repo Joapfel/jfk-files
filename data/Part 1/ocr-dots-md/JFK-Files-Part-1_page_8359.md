@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_8359.png
+
+Convert to MarkdownSECRET
+
+3 FEBRUARY 1969
+
+COPIES MADE
+undertake file
+
+MEMORANDUM FOR THE FILE
+
+SUBJECT: Valentin Sergievich LOGINOV (P-11712)
+
+Attached are five LIEMBRACE Soviet Target of Opportunity reports which cover the period 12 December 1968 which was the first surveillance to four follow-up surveillance reports on the first one. On 12 December 1968 the LIEMBRACE team picked up LOGINOV in Colonia Buenos Aires in the company of an unidentified Mexican man. The LIEMBRACE team followed the Mexican man , who got into a Renault Dauphine with placas 350 HS. A LIKAYAK check revealed that the placas were listed to Ignacio VALLINA Barros and Susana de VALLINA Fabre
+
+Address: Adolfo Prieto 1302, Mexico 12, D.F.
+was
+Adolfo Prieto 1302, Mexico 12, D.F.
+
+A further LIKAYAK check revealed that the VALLINAs did not live at this Adolfo Prieto address and no further action was planned.
+
+On Thursday, 2 January 1969, LIEMBRACE-5 went into Sears Department Store on Ejercito Nacional and thought that the store detective was identical to the man spotted with LOGINOV on 12 December 1968. LIEMBRACE-14 said that although the store detective looked alot like the man seen with LOGINOV, he wasnot identical. Photos of this store detective are attached.
+
+On Friday, 3 January 1969 the LIEMBRACE team went to Sears Store on Ejercito Nacional to check out this store detective. The people at Sears said that if a name were given to them, they would cooperate.
+
+On Thursday, 9 January 1969, the LIEMBRACE team picked up the store detective as he was leaving work. The store detective went to a house at Lago Chiem 142-4. Prior to that he went to an address at Avenida Claveria 64-1.
+
+On Friday 10 January 1969 the LIEMBRACE team gave us the result of a check at these addresses. They are the following:

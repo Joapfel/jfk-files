@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_5911.png
+
+Convert to Markdown<table><tr><td>14-00000</td></tr><tr><td>104-10167-10366</td></tr></table>
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+<table><thead><tr><th colspan="4">TRANSMITTAL<br/>OF<br/>TDCS INFORMATION REPORT</th><th rowspan="2">CLASSIFICATION</th><th rowspan="2">SECRET<br/>(When Filed is)</th><th rowspan="2">REF.</th><th rowspan="2">DATE</th></tr><tr><th>ORIG.</th><th>J. Langdon:jg</th><th>BOUTING</th><th>STATUS</th></tr></thead><tbody><tr><td>UNIT</td><td>TFW/Intel/Reports</td><td>1</td><td>4</td><td>R</td><td>S</td><td>RECEIVED SECT.</td><td>24 August 1962</td></tr><tr><td>EXT.</td><td>5547</td><td>2</td><td>3</td><td></td><td></td><td></td><td></td></tr><tr><td>DATE</td><td>24 August 1962</td><td>3</td><td>4</td><td>T</td><td>D</td><td></td><td></td></tr><tr><td colspan="4">CONFIRMATION COPIES<br/>TFW 13</td><td colspan="2">TDCS DB-3/651,144</td><td></td><td></td></tr><tr><td colspan="8">INFORMATION COPIES<br/>CI/OPS, CI/IC, FI, FI/D, FI/INT 5, IW 2, CA 2, CA/PRG, OS, WH 9</td></tr><tr><td colspan="2">DATE DISTRIBUTED<br/>24 August 1962</td><td colspan="4"><strong>DISSEMINATION</strong></td><td colspan="2">PRECEDENCE</td></tr><tr><td colspan="2"></td><td colspan="4"><strong>BASED ON (Fid. Rep., Proj.)</strong></td><td rowspan="7">Liaison *</td><td></td></tr><tr><td rowspan="4">TFW/R</td><td>2</td><td>TFW/PA-PROP 2</td><td></td><td>WH/PACY 1</td><td>PACY-8333 (IN-46636)<br/>NP (HY)IF-1) 02</td><td></td></tr><tr><td>2</td><td>TFW/WAVE 1</td><td></td><td>WH/3/CB 1</td><td>PACY-8349 (IN-49327)<br/>NP (HYHULA-1) 02</td><td></td></tr><tr><td>2</td><td>TFW/SI 1</td><td></td><td>WH/3/P 2</td><td>WAVE-7053 (IN-45475)<br/>NP (AMBUD - 1)</td><td></td></tr><tr><td>2</td><td></td><td></td><td></td><td>Liaison</td><td></td></tr><tr><td colspan="2">TFW/CI</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="2">TFW/PW</td><td>1</td><td>OS/SSD/Bauman 1</td><td></td><td></td><td></td></tr><tr><td>EVALUATION REQUESTED OF</td><td>STATE</td><td>ARMY</td><td>NAVY</td><td>AIR</td><td></td><td></td><td></td></tr><tr><td colspan="8"><strong>HANDLING INSTRUCTIONS</strong><br/>CONTROLLED DISSEM</td></tr><tr><td colspan="8">DD/P INTERNAL USE ONLY</td></tr><tr><td colspan="

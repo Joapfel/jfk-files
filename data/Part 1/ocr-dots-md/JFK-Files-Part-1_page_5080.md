@@ -1,0 +1,210 @@
+# JFK-Files-Part-1_page_5080.png
+
+Convert to Markdown14-00000
+
+OUTGOING MESSAGE
+
+<table><tr><td>0</td><td></td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td></tr><tr><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td></tr><tr><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td></tr><tr><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td><td>*</td></tr></table>
+
+SECRET
+STAFF
+
+CONFERENCE STAFF
+INFO: FILE
+
+DISTRIBUTION STATEMENT:
+
+030287
+
+DISTRIBUTION STATEMENT:
+
+CONFERENCE COPY DISSENT BY:
+NO MODELS PER
+RETURN TO
+OF PAGES #
+
+HIGHLIGHTS OF LOCAL COVERAGE AND REACTION. Y
+
+L. SUNO FILE. E2 IMPDET.H
+
+ORIG: SHEILA O'NEILL, LA/OPS X1173 COORD: C/LA/AN
+C/LA/SB C L/A/MCA C C/LA/PNC
+C/LA/CAR C C/LA/COGE MEBAUTH: C/LA/OPS J.P.Serano
+DISTEFANO X9439 REL: DC/LAB (Laus-XE81431).F
+
+11 MAY 77
+
+4
+
+C/LA/AN
+C/LA/SB
+C/LA/MCA
+C/LA/PNC
+C/LA/CAR
+C/LA/COG.
+
+CLASSIFICATION
+
+RELEASING OFFICE
+
+SOCIAL MEDIA OFFICE
+
+FOR RELEASE WITHIN 24 HOURS
+OTHER THAN THE ISSUING OFFICE IS REQUIRED
+
+C/LACOPS
+COPY NUMBER AND DATE:
+
+C P IMPDCT
+FL RV:
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. E.g. POSTERScript
+
+ATTN: INITIALS AND DATE: 11 MAR 77
+
+27 MAY 77
+
+DATE: 5 MAY 1977
+ORIG: SHEILA O'NEILL
+UNIT: LA/OPS
+RTI: 2173
+
+27 MAR 77
+
+77 MAY 77
+
+11 APR 77
+
+31 MAR 77
+
+24 APR 77
+
+28 APR 77
+
+6 MAY 77
+
+14 APR 77
+
+18 APR 77
+
+29 APR 77
+
+30 APR 77
+
+31 APR 77
+
+32 APR 77
+
+33 APR 77
+
+34 APR 77
+
+35 APR 77
+
+36 APR 77
+
+37 APR 77
+
+38 APR 77
+
+39 APR 77
+
+40 APR 77
+
+41 APR 77
+
+42 APR 77
+
+43 APR 77
+
+44 APR 77
+
+45 APR 77
+
+46 APR 77
+
+47 APR 77
+
+48 APR 77
+
+49 APR 77
+
+50 APR 77
+
+51 APR 77
+
+52 APR 77
+
+53 APR 77
+
+54 APR 77
+
+55 APR 77
+
+56 APR 77
+
+57 APR 77
+
+58 APR 77
+
+59 APR 77
+
+60 APR 77
+
+61 APR 77
+
+62 APR 77
+
+63 APR 77
+
+64 APR 77
+
+65 APR 77
+
+66 APR 77
+
+67 APR 77
+
+68 APR 77
+
+69 APR 77
+
+70 APR 77
+
+71 APR 77
+
+72 APR 77
+
+73 APR 77
+
+74 APR 77
+
+75 APR 77
+
+76 APR 77
+
+77 APR 77
+
+78 APR 77
+
+79 APR 77
+
+80 APR 77
+
+81 APR 77
+
+82 APR 77
+
+83 APR 77
+
+84 APR 77
+
+85 APR 77
+
+86 APR 77
+
+87 APR 77
+
+88 APR 77
+
+89

@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_4344.png
+
+Convert to MarkdownPatricio Lomaba, No. 581, Habana, Cuba.
+Puerto Correos No. 223, Habana, Cuba.
+Bolivia No. 49, Habana, Cuba
+Pope Conas Marquemort., ll. No. 808, Virgen, Habana, Cuba.
+Parvair No. 73, Arroyo Apolo, Habana, Cuba.
+Santo Tomás No. 420, Habana, Cuba:
+Santo Tomas No. 10, Habana, Cuba
+Sitios No. 777, Habana, Cuba.
+Ko. No. 318, Vana, N. Cuba, Cuba,
+23. No. 63, Vana, Habana, Cuba,
+17. No. 4414, Mariano, Habana, Cuba
+25. No. 6594, Mariana, Habana, Cuba.
+26. No. 3518, Vana, Habana, Cuba,
+43, No. 5010, Mariana, Habana, Cuba.
+Ave. de las Madras No. 25, Habana, Cuba.
+S. No. 36, Vana, Habana, Cuba,
+Compañía de Marítima, Habana, Cuba,
+Varela No. 40, Habana, Cuba,
+17 y S. Vedas
+45. No. 1360, París, Habana, Cuba.
+"VOY EL MIRADOR", No. 30, (r.); 35 y 37, Mariana, Habana, Cuba.
+"ARIEL SANTAMITA", Instrucción No. 53, Habana, Cuba.
+"HERMANAS GIRAALDAS", No. 658, Habana, Cuba.
+"ROSA H. HERMANDER", Sucesario de 69, States Surры, Habana, Cuba.
+Belillo Tico Presidente Comité de Hibernas JUAN DE DIOES PRIETO,
+León No. 6, Habana, Cuba.
+MARIA TERRA RIVERA, Responsable Nacional, Instrucción Revolucionaria,
+maria, en la Viaja Central.
+ARIEL VALIANS, Responsable Nacional de Información.
+RADAKOS MANOLO, Controlada Organización Nacional.
+REOBERTO PORRA, Particular Nacional,
+PEPE SIMÓN,
+BRIQUÉ TOLLA, Coordinator Provincial de la Habana,
+OGAR FRAIA, Coordinator General, Coordinaciones II. Arroyo Apolo, Habana,
+BOBINA Pita
+MANUEL AGUIRREZ, Rep. Reforma Urbana,

@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_9194.png
+
+Convert to MarkdownSECRET
+
+17 April 1953
+
+FOR QUARTERLY REPORT
+
+Please change part on "STALE" PHOTO-BOOK PROJECT as follows:
+
+a. Sow Publishing Company will publish and is meeting expenses.
+   ✓ Delete the rest of this para.
+
+b. Book will consist of some 175 to 295 Vellum-size pages, about
+600 photos with text, and several who have seen it are certain it will be
+one of the important books of 1951, a devastating expose, suitable for world-
+wide circulation. Importation is prohibited without prior written permission from the publisher.
+
+Change d. to read:
+
+d. The publisher is pressing for a September 10 press date, and has lined up a Chicago press.
+
+e. All rights in the book, and the royalties nominally paid to HEADLEY, will revert to CIA (Saw).

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_4436.png
+
+Convert to Markdown10 April 1970
+
+MEMORANDUM FOR: Director of Personnel
+
+ATTENTION : Mr. Paul Wilson
+
+SUBJECT : Bernard L. Barker
+
+1. Reference is made to our discussions regarding the letter written to this Agency by Mrs. Edwin T. Moffett in regard to her son's marriage to Subject's daughter.
+
+2. As discussed with you, Mrs. Moffett was telephonically contacted and was advised that the Agency could not give her any information regarding Subject's possible employment with the Agency. Mrs. Moffett understood this and did not attempt to argue the point. Mrs. Moffett also was advised that her fears regarding the possible kidnapping of her daughter-in-law were not based on any known incident.
+
+3. Mrs. Moffett was also advised that she should contact her daughter-in-law and son in order to get more information regarding the daughter-in-law's background. Mrs. Moffett said that she had only met the daughter-in-law for a brief time and was not able to ask all the necessary questions.
+
+SECRET
+
+<table><tr><td>CONFIDENTIAL</td></tr><tr><td>SECRET</td></tr></table>

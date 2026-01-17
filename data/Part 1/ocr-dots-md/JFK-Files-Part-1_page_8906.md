@@ -1,0 +1,63 @@
+# JFK-Files-Part-1_page_8906.png
+
+Convert to Markdown14-00900
+
+CLASSIFIED MESSAGE
+
+ORIG : PAUL K. WESTPHAL
+UNIT : FINANCE ☐ INDEX
+EXT : 7483 ☐ NO. INDEX
+DATE : 26 MAY 1964 ☐ FILE IN CS FILE NO.
+
+<table><tr><td colspan="2">SECURITY</td></tr><tr><td>ROUTING</td><td></td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+TO : MEXICO CITY
+
+FROM : DIRECTOR
+
+CONF : CFD 3
+
+INFO : W17, VR
+
+<table><tbody><tr><td>27 MAY</td><td>27Z</td></tr><tr><td colspan="2">SIC CEN</td></tr><tr><td colspan="2">DEFERRED</td></tr><tr><td>X</td><td>Routine</td></tr></tbody></table>
+
+TO
+
+MEXI
+
+FINAN
+
+INFO
+
+CITE DIR
+
+REF: MEXI-9607 (IN 9/95)
+
+PAY TICHBORN $993.30 EFFECTIVE PAY PERIOD ENDING 31 MAY 1964.
+
+END OF MESSAGE
+
+C/S COMMENT: STATION REQUESTS AMOUNT FIELD SALARY TO PAY TICHBORN.
+
+C/WU/EXPSS
+
+RELEASEING OFFICE
+
+COORDINATING OFFICES
+
+SECRET
+
+GROUP I
+RELEASED FROM AUTHORIZATION
+FOR DISTRIBUTION AND
+DETECTION
+
+C/C&TAB
+
+AUTHENTICATING OFFICE
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No
+
+201-253203

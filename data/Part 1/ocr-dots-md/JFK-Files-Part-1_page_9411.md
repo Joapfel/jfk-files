@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_9411.png
+
+Convert to MarkdownConcress for Cultural Freedom
+
+AP Berlin June 23
+
+While the Communists planned a week peace rally, the Soviet-controlled party ruled at a western-associated International Congress of Outstanding Freedom Leaders. It is said 100 miles behind the Iron Curtain.
+
+A record of more than 100 anti-Communist intellectuals arrived today for the five-day congress which is to open Monday. Writers, scientists and political and trade union leaders are to attend from a score of countries.
+
+"Center Of Spies"
+
+The Communist press called the delegates "chained dogs of Wall Street," in reference to renegades andTroops." and paid the congress was a "center of spies" and a "congress of secret societies."
+
+Communists also called sup- porters of the congress were to be blacklisted if they swept an East German communist clubhouse into the hall.
+
+James Scramham, American au- thor and the congress "must pro- vide a relatively that the Kremlin- controlled "partisans of peace"
+
+movement which meets at Stockhafen is being forced to show its face on one way to peace. The country must build a "freedom road."
+
+Bargaining Denounced
+
+Other Americans coming are David Llewellyn, former chairman of the United States Atomic Energy Commission; Tennessee Williams and Carson McCullers, playwrights; Robert Montgomery, actor, and Irving Brown, trade-union leader.
+
+Meanwhile the Russians refused British negotiations officials appear- ance to stop by the cold war by aggressive provocations in the region of 76 barges on canals in West Berlin.
+
+Berlin SUN 24 June 58
+
+14-0009

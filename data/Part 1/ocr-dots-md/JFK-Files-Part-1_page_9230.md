@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_9230.png
+
+Convert to MarkdownSECRET
+
+16 Jan. 1951
+
+LUNSON has an appointment to see Shub in my tomorrow. I told him Shub had phoned yesterday, reporting progress.
+
+LUNSON said he doubted Shub would be fully ready for the printer before Hunson's return, and didn't want him to try to handle it with the printer in Hunson's absence.
+
+LUNSON will try to see Bob Winston later this afternoon.
+
+He will return from NY Friday evening, Jan. 19.
+
+YSS
+
+SECRET

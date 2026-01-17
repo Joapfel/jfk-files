@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_6873.png
+
+Convert to Markdown14-0000
+
+SECRETarial FORM
+CONTROL: C.TROL
+
+12 DEC 1958
+
+TO: Director
+Federal Bureau of Investigation
+Attention: Mr. S. J. Papich
+
+FROM: Deputy Director, Plans
+
+SUBJECT: Maurice Hyman HALPERIN
+
+1. Reference is made to our GSCI-3/752,072, dated 30 October 1958, and to other correspondence concerning Subject, an American Communist living at Medellin #36, Apartment 9, Mexico, D.F.
+
+2. Enclosed for your information are photocopies of the following correspondence sent to him:
+
+a. Letter, postmarked 29 September 1958, from Ted HALPERIN, at 22 Kohler Avenue, Fulton 87, Massachusetts, concerns family matters, including the illness of his father (Subject's brother), and mentions anticipation over the visit of Subject's son, David, in December.
+
+b. Letter, postmarked 1 October 1958, from the Maurice H. Saval Insurance Company, at 22 Battarynarch Street, Boston 9, Massachusetts, concerns the renewal of Subject's life insurance policy #796864, of the New England Mutual Life Insurance Company.
+
+3. This correspondence was obtained from a usually reliable and highly sensitive source and should not be disseminated outside your Bureau. Photocopies of this
+
+SECRETarial FORM
+CONTROL: C.TROL
+
+16 Dec 58
+201-128561/1
+
+*stern*

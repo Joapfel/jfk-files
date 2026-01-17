@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_9019.png
+
+Convert to MarkdownVALENCIA DEVELOPMENT COMPANY
+
+HENRY P. LOPEZ
+
+October 16, 1967 - Advanco $250.00
+December 31, 1967
+Trip to Mexico-Los Angeles-Mexico (216.55)
+October 17 to October 27, 1967
+---
+BALANCE DUE DEVCO $ 33.45
+===

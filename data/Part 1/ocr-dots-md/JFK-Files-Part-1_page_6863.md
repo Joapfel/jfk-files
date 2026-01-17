@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_6863.png
+
+Convert to MarkdownCONTINUED CONTROL
+
+(probable identities:
+
+LISBON, Lisbon: Trade Union Secretary of GIB: vice-president
+of Cuban C.P. & member Executive Council of WFC.
+
+LOFTARDO, Vinoento, b. 16.7.1934, Mexican citizen, dom.
+Mexico-City, artistas, Villa Oregan 51;
+Trade Union leader; member of WFC; member of presidium
+
+Dr. ASHLEY, Barta: no record.)
+
+On 29 October the HALPERIN's left LEGUE at 0'4 E. by train for ZURICH. During their sojourn at LEGER, no contacts of the couple with strangers were made; they went for walks at random in town or in the vicinity, bought papers and periodicals by the door, but did not receive any mail or telephone calls.
+
+At 1253 H. of 29 October they arrived in ZURICH, went to the Hotel "Schweizerhof" and later to the Czech Consulate General. At 1550 H. subject inquired at the ALM airline agency about refunding for the tickets to Tel-Aviv, but the agency had not received directions from Amsterdam yet.
+
+On 30 October the couple again went to the Czech Consulate General at 1035 H. and remained there for 75 minutes. At 1215 H. HALPERIN inquired at the Muoni Travel Agency about tourist visas to Prague and was given the necessary forms to fill in. These he returned to the agency at 1410 H. together with the passports. At 1715 H. he mailed two letters to
+
+Mr. David C. HALPERIN, 5411 South University Ave., CHICAGO/ Ill.
+Rabbi & Mrs. Hillel CAMERAN, 4 de Fald Place, NEWYORK/N. J.
+
+Photostat胶片 (numbered 5 & 6) of the contents are attached.
+
+On 31 October the HALFERIN's moved from Hotel "Schweizerhof" to the cheaper hotel "Limathof". On this day they finally received the requested refund by the ALM airline's office.
+
+Monday, 10 November the requested tourist visas were issued to the HALPERIN's, valid for 6 days and including Hotel reservations for 5 days at Sw.Fre. 23. - per person. They immediately departed by train and left Switzerland via Bucha/rail at 1824 H. for Austria, traveling on 2nd. class tickets ZURICH-FRAGUE return.
+
+In the period of 31 October to 10 November the couple did not make or receive any telephone calls and had no visitors, nor did they call on anybody.
+
+19 November 1958.
+
+SECRET
+
+ Command CONTROL
+
+201-12856

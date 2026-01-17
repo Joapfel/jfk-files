@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_8837.png
+
+Convert to Markdown5 November 1965
+
+MEMORANDUM FOR: Chief, CI/OA
+ATTENTION : Mr. Brown
+REFERENCE : WH/1 Memorandum - 10 June 1965
+SUBJECT : Edward G. TICHBORN
+(201-25320S)
+
+1. This is to confirm telephone conversation this date between Mr. Lally of your Office and Mr. Halliwell of WH/1.
+
+2. WH/1 again requests that a new Operational Approval be expedited on Subject. TICHBORN'S project is awaiting this action in order to undergo renewal for FY 1968.
+
+3. Please advise this Office if any further action is required by the Branch.
+
+W.J. Kaufman
+Chief, WH/1
+
+Distribution:
+
+Orig. & 1 - Addressee
+1 - Dosier
+
+DDP/WH/1/Zorance:bp

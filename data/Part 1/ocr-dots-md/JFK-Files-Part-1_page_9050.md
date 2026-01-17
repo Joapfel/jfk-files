@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_9050.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+4. It is not anticipated that TICHBORN himself will attempt recruitments nor that he will be required to break his cover. Contact with the Madrid Station will be maintained under secure conditions at all times.
+
+5. Upon his assignment to Spain, TICHBORN will fall under the operational and administrative control of Europe Division. DO Division will provide cover support. He will be supported under Project QUEBLOOM.
+
+A request that Subject's OA be amended to add above assignment.
+
+William Sorrels
+AC/R/IB
+
+Coordinated:
+
+C/DO/MO
+
+Orig. & 1 - Addressee
+1 - C/DO/CO
+✓ - 201-253203
+1 - E/IB MemoChron
+
+SECRET

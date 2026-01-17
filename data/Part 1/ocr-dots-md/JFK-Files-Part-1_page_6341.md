@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_6341.png
+
+Convert to Markdown14-0000
+
+<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+DATE : 1-9-72
+
+TO : BELL
+
+FROM : MEXICO CITY
+
+ACTION : SELL 15
+
+INFO : CDP, ACCP/A, WH 3, BELL S/C
+
+JAN 26 C634Z 61
+
+PRIORITY
+
+IN 2830
+
+PRITY BELL CITE MEXI 7156
+CNP
+REF A BELL 2767 (OCT 7/5/71) attached
+B MEXI 7154 (L)
+04/10
+
+SW
+GPH
+S W
+NUMERO 11, MEXICO 1, D.F.
+
+FOURTH ADDRESS FOLLOWS: [AURELIO A. MARTINEZ, CALLE EDISON,
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+END OF MESSAGE
+
+C/S COMMENTS: *NO RECORD IN CABLE SECRETARIAT AS OF 0415, 26 JAN.
+
+**CS NEEDED ACCOMMODATION ADDRESSES MEXI AREA FOR USE S/W AGENTS BEING DISPATCHED CUBA PRIOR 1 FEB.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+1/8R

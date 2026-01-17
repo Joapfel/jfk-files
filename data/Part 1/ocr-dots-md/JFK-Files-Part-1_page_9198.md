@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_9198.png
+
+Convert to MarkdownSECRET
+
+file: "STALINE" PHOTO-BOOK SECRET
+
+SUS new photo-book in his hotel, 19 March 1951
+
+Lhunson said they are now planning in terms of a book of up to 220 pages, between 1,000 and 1,500 photos (some of which might be two or four photos to a page. "It will cost a lot of money."
+
+I mentioned again that we have £40,000 appropriated under K.F.U.Y for "similar photo-books at the discretion of C.S.P.", but Lhunson said there was no need to spend the taxpayer's money; as long as possible of those books should be made to pay their own way.
+
+to Mr. Bryan
+
+SECRET

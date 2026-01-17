@@ -1,0 +1,6 @@
+# JFK-Files-Part-1_page_7170.png
+
+Convert to MarkdownSource: L. cowan - 1
+Contact Report 24 June 66
+
+Monday, 6 June. Subject visited the Embassy twice this day but nothing of interest occured. LOGINOV came in and made a phone call and talked to someone about volleyball. LOGINOV spoke in Spanish and told the other party that he would be over to "the house" in half an hour. Subject saw him drive away in his car.

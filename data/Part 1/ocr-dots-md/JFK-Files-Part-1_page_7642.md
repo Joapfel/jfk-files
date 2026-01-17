@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_7642.png
+
+Convert to MarkdownSECRET
+
+-3-
+
+11. As far as the BESABERS could make out the only purpose of the visit (other than to get a free meal) was to invite the BESABERS to come to the Embassy to see Soviet films. Not knowing how he should react BESABER was non-committal, although he couldn't resist asking BROVREN if they had any Westerns in color. (I told BESABER he should not go to movies and if the subject came up again to tell the Sovs that while he liked them as people, he didn't want to hear their propaganda either orally or from the sound track of some lousy movie).
+
+12. BESABER is less impressed by LOGINDV'S intelligence than heretofore. Between L's and R's heavy-handed propagandizing (especially in the capitalistic "ambiente" of the BESABERS) BESABER was less than impressed with their tact.
+
+13. Mrs. BESABER reported that of the three women Mrs. YATSKOV was by far the most presentable. She learned that the YATSKOvs were on their second tour in Mexico, that they liked Mexico (Mrs. BESABER is Mexican). Mrs. BROVREN related that they had one daughter (age 14) in Moscow besides the two children with them in Mexico.
+
+14. Plans for future get-togethers include only LOGINDV. Mrs. BESABER will look for some housing for the Sovs in Cuernavaca; when she has found something, they'll invite LOGINDV down to have a look at them. There is also the possibility of tennis, although both BESABERS are loathe to take any Sovs to Mrs. BESABER's tennis club, practically all the members of which are Americans. I agree.
+
+15. The BESABERS proposed and I second the motion that I contact Laurence Higgins, a long-time Station contact and personal friend of the BESABERS and tell them that the BESABERS are cultivating Sovs in our behalf, ask him to let BESABERS bring LOGINDV, MN and possibly others to Higgins's court in Cuernavaca.
+
+16. Attached are signatures of the Sovs who visited BESABER.
+
+17. Raoul Morales Montoya - At 23 Feb meet BESABER handed over the attached postcard from RMM, dated 14 Feb from Colima. At the 28 Feb meet BESABER reported that PMH had phoned him from Colima on 24 Feb, reporting among other things that he would be in Colima for another month or so. He said he was working in the office of Secretaria Particular of the Governor of Colima (tel: 2-04-11) and staying at the Hotel Costeno (tel: 2-00-35).
+
+Phineas F. SLINKARD
+
+S E C R E T
+Can't tell who signed this!

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_7913.png
+
+Convert to MarkdownOn 13 December Subject requested the C/O about Logvinov's personal questions asked of Subject the same day (see Paragraph 3 h. above). The C/O asked Subject if he had inquired of Logvinov why his letter was causing such questions. Subject said he had not, and even though he is completely puzzled by this lack on the part of the Soviets, but Subject said he felt perfectly at ease in telling the truth to the Soviets, and had no hesitation in showing them his documentation.
+
+The C/O dropped by Subject's office on 22 December, after having delivered a Christmas gift of liquor to Subject's home the previous day. Subject reported to Subject that he had received a firm invitation from the regime of Presidentvn M. Ivanov.
+
+(1) Subject mentioned that he had received a holiday-season letter from Sidney Stranavas, U.S. State Department official now in Chile. [Comment: Weintraub had been a guest of the Soviets in Mexico through Subject.] Nothing ever came of it.
+
+(2) Subject remarked that he had received a firm invitation from the regime of Presidentvn M. Ivanov to visit the Soviet Union, to be given a tour of some of the most famous objects of historical interest in Russia, and to be given an opportunity to speak with the leader of the Soviet Union. Subject expressed a wish that as neutral about his going, but asked the C/O if "so" would have any effect on his earning the trip. The C/O replied that Subject would be advised.
+
+The C/O then discussed seriously with Subject the question of how complete his break-off from the Soviet Union, etc., inasmuch as there was some scepticism about his conduct (the C/O told Subject that the scepticism came from "higher up", which incidentally the C/O did not share). The C/O asked Subject to explain his "inexplicable"疑點 to Logvinov's request to report the name of the chief in Mexico, and his willingness to turn his attention over to the Soviets. Subject's reply boiled down to this: he could confirm that his break-off was more than adequate because he had achieved what the计划 to deny the Soviet Union anything and everything (the Station's objective), oversize himself, and might jokingly tell them that being friendly was consistent with his priority. He explained his willingness, even were his desire, to pass his communication to the Soviets, because he wanted to know those "bastards" he was talking to, and of course, if this boss of his so sent for help. Subject asked the C/O to check with this bossman to see if he could get the go-ahead on passing the document on if the Soviets come after it.
+
+On 12 January 1967, the C/O received the station's expression of interest in turning Subject over to the invitation from Air France asked Subject for more details concerning the invitation from Air France, and gave him the go-ahead to pursue the matter.
+
+The current C/C, Premier N. Larkeine, will turn Subject over to France if Coline before Larkeine's return from Mexico the end of January 1967.

@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_5405.png
+
+Convert to Markdown
+
+CONQUE COMMERCIALE ÉHAITI
+SOCIETE ANONYME DE BANQUE
+AU CAPITAL AUTORISE DE UN MILLION DEUX CENT CINQUANTE MILLE GÉNÉRABLES
+
+ADRESSE TELEGRAPHIQUE
+CONBANK
+P. O. BOX 1007
+
+CLEMENT JOSEPH CHARLES
+PRESIDENT ET DIRECTEUR
+
+BUREAU SOCIAL ET BUREAU PRINCIPAL
+RUE DU CENTRE
+POIT-ATU PRINCE, HAITI
+
+POIT-AU-PRINCE: June 6, 1967-
+
+REFERENCE: Council.
+
+Miss D. K. Matlack
+CACSI/DA
+Washington 25, D.C.
+
+CONFIDENTIAL
+
+Dear Miss Matlack:
+
+May I recall the kind reception you gave me in May 1967, when I was in Washington, also your courtesy in recommending me the Albin Towers Hotel, 3700 Massachusetts Avenue, where I lodged in Room 522. You will remember the conversation I had with you regarding the future of my country, and the hope I expressed that the assistance of the U. S. would not fail us.
+
+I have earnestly worked since in order that Haiti may be relieved from the tyranny and misery in which has been inconsiderately thrown, and have succeeded in securing the sympathy and support of a great majority of the populations all over the Republic, including religious people, businessmen, professionals, intellectuals, etc. A plan has been prepared and will be executed by a Military man who has with him most of the officers in the Army. These people are ready and eager to begin operations and are only awaiting word from me.
+
+I would have already given them order to strike, through the Chief who is the only one in contact with me, were it not for my apprehension that the turmoil that will necessarily follow might serve Castro's plan to introduce communist agents in the country. I also have reason to wonder about Balaguer's position on account of his friendly feelings for Duvalier. Therefore, before doing any further, I feel that it would be wise for me to have the U.S. assurance that these two forces will be properly neutralized, and I am requesting your kind cooperation so that this assurance may be given to me.
+
+P.

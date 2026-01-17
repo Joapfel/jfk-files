@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_6135.png
+
+Convert to Markdown20 April 1976
+
+MEMORANDUM FOR: Chief, Information and Privacy Staff
+SUBJECT: A Quaker Action Group
+REFERENCE: Request No. F 76-211
+
+1. A review of the files of this Directorate revealed the documents discussed below concerning Subject.
+
+2. Documents which may be released in their entirety consist of twenty-four overt items; copies attached. (Documents 1-24)
+
+3. One document dated July 1971 may not be released; it is exempt under (b)(1) and (b)(3)(liaison), FOIA. (Document 25)
+
+4. One memorandum dated 8 November 1976 (Document 26) consists entirely of a direct quote from an FBI report dated 30 May 1967, Washington, D. C.; Subject: Protest Activity in Washington, D. C., By A Quaker Action Group Beginning May 26, 1967; no file. This report should be referred to the FBI for release.
+
+5. In addition there are eighty-seven other FBI documents which are not being listed since your office has advised that the FBI also has a request on Subject. (Documents 27-114.)
+
+A/S
+
+Attachments:
+
+E2 IMPDET
+CL BY 012170
+
+CONFIDENTIAL
+
+Congressional Record for John Irvin Jr.
+about 25 minutes ago ...

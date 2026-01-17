@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_7849.png
+
+Convert to MarkdownSECRET
+
+PROGRESS REPORT
+
+1. This report covers the activities of LIROCKET-1 in the period 1 August to 8 December 1957. During this period, with the exception of a summer break, LIROCKET-1 maintained his role as a teacher at the Soviet Embassy. In an effort to summarize the salient occurrences during this period, we have endeavored to present it, as far as possible, in a chronological manner under the name of the individual to whom the material is related.
+
+2. Boris Aleksandrovich KAZANTSEV (201-038976). On 1 August, KAZANTSEV verbally administered Vladimir Nalimovich GONCHARKENKO (201-760805) for arriving at the class some 15 minutes late and for having neglected to pay LIROCKET-1 on this date. KAZANTSEV, quipped to LIROCKET-1 that "these young men are becoming more irresponsible." Pavel Fedorovich KOVALEV told LIROCKET-1 that he was preparing invitations for the departure of one of LIROCKET-1's previous students and that he would put one aside for LIROCKET-1. KAZANTSEV interrupted and stated, "I am inviting the teacher and I will give him the invitation." KOVALEV made no further comment on the subject. Later, when alone, KAZANTSEV told LIROCKET-1 that he was the "number two man in the Soviet Embassy" even though he holds the number three position. He referred to himself as the Charge d'Affaires. This was the first time that KAZANTSEV had ever spoken of his rank or position to LIROCKET-1.
+
+3. On 17 August KAZANTSEV studied for one hour with LIROCKET-1. LIROCKET-1 commented that KAZANTSEV's level of fluency exceeded all of his other students. According to KAZANTSEV, upon his return home in June, he was required to take his English language examination and scored a final mark of 4.5 out of a possible 5. KAZANTSEV lost the 1/2 point only because he had not read any English language books during the previous months.
+
+4. On 24 August, KAZANTSEV stated that his wife had been having stomach trouble of a undisclosed origin. She had just returned from the hospital where she underwent tests to determine the nature of her illness.
+
+5. During the class of 29 August, KAZANTSEV read an article in the English language newspaper, The News, pertaining to the diminution of the male sex drive among heavy smokers. This triggered a long monologue by KAZANTSEV on the evils of pornographic literature. KAZANTSEV found this aspect of Western society distasteful and serving no useful purpose.
+
+SECRET
+
+SECRET
+...STANDARD LOCATION
+...FOR DISTRIBUTION...

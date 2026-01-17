@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_8894.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th><th>TOTAL<br>COPIES</th><th>RI</th><th>REPRODUCTION PROHIBITED</th></tr></thead><tbody><tr><td colspan="3"><table><tr><td>30</td><td><b>SECRET</b></td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED</td></tr></table></td><td>21</td><td>O</td></tr><tr><td>FROM<br>PARIS (LC PIPIT)</td><td>ACTION<br>CA/0 4</td><td>ADVANCE COPY<br>[ ] ITSELF - [x] SLOTTED [ ] TUBE D</td><td>TO: Unit<br>TIME<br>BY</td></tr><tr><td colspan="5">INFO VR, FILE, CA2, WH7, WE6</td></tr><tr><td colspan="2">SECRET 201610Z<br>MEXI INFO DIR CITE PALP 2532<br>DTHORIC QKOPERA<br>REF MEXI 1219 (IN 93163) *</td><td>Jelikman</td><td>20 OCT 64</td><td>9667J</td></tr><tr><td colspan="5">1. RE PARA 2 REF, WINTERROWD WOULD PREFER 3-4 NOV. WILL CONTACT STATION FIRST AS PLANNED AND STATION CAN ARRANGE MEETING WITH TICHBORN.<br>2. NO INDEX.</td></tr><tr><td colspan="5">SECRET<br>* queried IF TICHBORN could see WINTERROWD on U.S. TRIP OR ON RETURN. To mext 3 or 4 NOV.</td></tr></tbody></table>
+
+<table><tr><td>SECRET</td></tr></table>

@@ -1,0 +1,56 @@
+# JFK-Files-Part-1_page_5688.png
+
+Convert to Markdown# DOMESTIC COLLECTION DIVISION
+## Intelligence Information Report
+
+This material contains information concerning the National Defense of the United States within the meaning of the Espionage Law, Title 18, U.S.C. Sections 793 and 794, the transmission or distribution of which is PROHIBITED by law.
+
+<table><tr><td>C-O-N-P-I-D-E-T-I-A-L</td></tr></table>
+
+**COUNTRY** Honduras **DCD REPORT NO.** 00-B 321/16716-75
+
+**SUBJECT** Negotiations for Economic Agreement with Venezuela/Influential Officers in National Defense Council **DATE DISTR.** 0 3 JUL 1975
+**NO. PAGES** 1
+**REFERENCES** DCD Case 63307
+
+**DATE OF INFO.** May 1975
+
+**PLACE & DATE ACQ. BY SOURCE** Telucigalpa, Honduras/May 1975
+
+THIS IS UNEVALUATED INFORMATION
+
+**SOURCE** US citizen, executive of an import/export company with extensive business connections in Central America and the Caribbean. He makes important trips to these areas and has contact with high ranking military and political leaders. He speaks Spanish fluently.
+
+1. The new military regime in Honduras currently is holding talks with Venezuela and hopes to sign an economic agreement in the very near future. With that in mind, the Government of Honduras (GOH) recently sent a high level commission to Venezuela headed by Captain Armando San Martin, Secretary of State for Economy and Commerce and by Attorney Antonio Jose Cuello to hold discussions with high ranking Venezuelan Government officials. Prior to the talks, the GOH recently sold to Venezuela 25 million linear feet of lumber at a total cost of US$5 million. The GOH hopes to reach an agreement by which Venezuela would buy Honduran agricultural products for an unspecified mix of cash and petroleum products. In addition, Venezuela would support a new agricultural production plan to be implemented in the very near future by Fernando Montes, Honduran Secretary of State for Agriculture.
+
+2. Despite reports that Chief Executive Colonel Juan Alberto Melgar Castro has unquestioned authority, Honduran military sources have indicated that Mario Maldonado, Agrarian Reform Chief; Lieutenant Colonel Mario Fonseca, Director of the Military Academy, and Lieutenant Colonel Juan Ramon Molina Cisneros, Commander of the First Artillery Battalion are the real "power behind the throne." These officers, who profess a strong nationalist ideology, are interested simply in the general welfare of the Honduran people, and they are maintaining a "watchdog" attitude to insure that no one, especially people in positions of power, uses such positions for his own personal benefit. These officers are members of the National Defense Council (NDC), which also includes the commanders of all major military units in the country. Maldonado, Fonseca, and Molina appear to be the "first among equals" in the 15 member NDC.
+
+- end -
+
+5
+
+4
+
+3
+
+2
+
+1
+
+<table><tbody><tr><td>U YES</td><td>S YES</td><td>C-O-N-P-I-D-E-T-I-A-L.</td></tr></tbody></table>
+
+CONTROLLED DISSEM
+
+<table><tbody><tr><td colspan="2">Classified by 007622. Exempt from general declassification unless subject to E.O. 11652. Exemption category Sd#(2). Improbable to determine date of automatic declassification.</td></tr><tr><td>NO</td><td>DISSEM ABROAD</td></tr></tbody></table>
+
+DCID 1.7 establishes the control for the dissemination and use of the intelligence and intelligence information in this report. The disseminators of this document are limited to civilian and active duty military personnel within the intelligence components of the USIB member agencies, and to those senior officials of the member agencies who must obtain the information. However, unless specifically controlled in accordance with paragraph I of DCID 1.7, it may be released to those components of the departments and agencies of the U.S. Government directly participating in the production of National Intelligence. Dissemination of this report outside the States of the United States or to any individual or organization, other than those
+
+5
+
+4
+
+3
+
+2
+
+1

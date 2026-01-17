@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_7171.png
+
+Convert to Markdown23 June 1966
+
+35-71-30 Is listed to Yolanda ALFARO Vda de CACERES Butrago
+Chiapas 130-A
+
+No Station traces on above name or on Gloria ALFARO.
+
+ch
+
+Request visa trace:
+
+Yolanda ALFARO Vda de CACERES Butrago
+(lives at Chiapas 130-A)
+If possible, also Gloria ALFARO at same address,
+
+C
+
+23 June 66
+
+NO RECORD
+23 June 66

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_6030.png
+
+Convert to Markdownon the Cuban problem.
+
+2.- Send two delegates to Recife for the next visit of President Kennedy to Brazil.
+
+3. - Perform several trips through most of the country in order to estimate groups of supporters in the different places of the nation.
+
+4.- Attaining of a radio broadcast.
+
+5.- Intensify the labor with the democratic student groups
+In order to continue the work to restore the U.S.A. to our
+democratic cause.

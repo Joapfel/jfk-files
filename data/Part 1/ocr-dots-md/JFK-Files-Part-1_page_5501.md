@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_5501.png
+
+Convert to Markdown8. Secretary of State for Justice Ranald Eslin, who is a good friend of Captainassy, is in serious trouble. He is, however, a former prisoner of war, may lose his position. Since he himself has presidential ambitions, he may become a candidate for this office if he survives. The present crisis.
+
+9. Another potential rival for the presidency is Secretary of State for Labor and Social Welfare Max A. Anticize, who claims the support of the labor unions.
+
+10. According to Vilaim, the wildest rumors are regarding Haiti. For example, even intelligent persons give credence to the allegation that the US Government is not really sincere to see the fallacy of Arnaud and that a portion of the US$40 million Lihartto allocated to President Balaguer of the Dominican Republic as development loans was passed on, with the tacit consent of the US, to "Balaguer's good friend," Arnaud. Another major state that the CIA is now in the process of training elitist exiles in the US for a possible invasion of Haiti. The name of the Poetae, a former Governor in Haiti and a former Ambassador to the US now in exile in New York City, has been mentioned as one of those receiving training in guerrilla warfare.
+
+11. One of Vilaim's allies during his previous visit to the US is to convince influential Haitian exiles that Charles is not a Duhaller supporter and that he would care a good president. Vilaim has already contacted, through Dru, Louis Bonarroz, a prominent anti-Duhaller exiled in New York City, and hopes to meet other exiles leaders.
+
+12. Dru stated that the newly appointed representative of the UNF (United Nations Development Program) in Port-au-Prince, a crack, has just returned to New York and stated that he will not go back to Haiti because he discovered that funds granted by the UNF were "misappropriated by the Duhaller government."
+
+13. Dru also asserted that an organization comprised of US citizens and calling itself the "Society for Haiti" will try to raise money for "nutrition, education, reintegration, cultural and economic developments in Haiti." In addition, Haiti's delegate to the UN, is connected with this organization. An UN mission is expected to be in Port-au-Prince within six weeks and Duhaller will be on hand. (A copy of a list of the names of persons supporting the Society for Haiti is attached.)

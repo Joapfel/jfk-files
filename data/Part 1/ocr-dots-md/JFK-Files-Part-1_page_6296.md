@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_6296.png
+
+Convert to MarkdownSECRET
+RYBAT
+
+7
+
+6. It is noted that UNDERHILL, CUMMINGS, and INTERARMCO have not appeared to date in any press or classified reports of the Garrison investigation in New Orleans, with the tenuous exception of the Ramparts article cited at the outset of this memorandum.
+
+SECRET
+RYBAT

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_5447.png
+
+Convert to Markdown8. Being a businessman in his own right, the business community with which he has dealt through the Chamber of Commerce and his bank will always have a dialogue with him and therefore will find him receptive to their suggestions and endeavours;
+
+9. Having dealt with elements of the actual regime who have his confidence, he will be able to control them in a way which will avoid unnecessary hardships should someone else - a complete stranger to them - be in a position of Government leadership;
+
+10. He is known to be strongly anti-communist and pro-American, therefore opening the door to close cooperation with the United States, under the doctrine of the Alliance for Progress, to promote better understanding and opportunities for the Haitian people with the help of the United States;
+
+11. He will welcome the return of all Haitian exiles to take their place anew within the Haitian community and to work with him to the task of making the country a safer and better place to live;
+
+12. He does not contemplate any reprisals or even sanctions against anybody for their past political affiliations, his efforts to be mainly directed not to solve the errors of the past, but to provide a better present and future for those who want to live in Haiti.
+
+The task, if and when he succeeds to gain power, will not be an easy one. I am sure, however, that Mr. Charles will be able to find the support of enough honest and patriotic Haitians to help him carry out his dream of building up a better Haiti,
+
+Mr. Charles' past affiliation with the Duvalier regime should not, therefore, be held against him. As a matter of fact, this affiliation may give him the foresight that he should do his utmost not to repeat the same mistakes.
+
+In conclusion, I feel that the U.S. Government, through its qualified Agencies, should give Mr. Charles' offer to topple the Duvalier regime, all the required careful consideration and make a decision as fast as possible.

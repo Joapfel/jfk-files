@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_7243.png
+
+Convert to MarkdownValentin F. Lequignon.
+Consul General de la Embajada de la U. S. A.
+U.S. Consul General de la U.S.A.
+
+Sept. 6, 1946
+
+P-11712
+Sept. 6, 1946

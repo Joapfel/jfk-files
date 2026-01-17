@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_7225.png
+
+Convert to Markdown21 Ene.66
+
+LUCKNIO DURAN pide a RITTER de Toonjca Electro-Mecanica
+cintas magneticas para la grabadora DK-6 de LOGUINOV.
+
+La atendida por el Dr. GORIANO y operado el 10. de febrero
+en la Central Quirurgica,
+
+1o.Feb.66
+
+Reserva paseajes a Mazatlán.
+
+11 Feb.66
+
+Avida a GONZALEZ de Villasmuñ y Compañia, que saló a
+Contacoalcos a vigilar la carga del barco y pide lo conectan
+con alguna persona de este puerto.
+
+21 Feb.66
+
+ERICKA, Corresponsal de The News, se pone de acuerdo para huir una reunión.
+
+Por indicaciones de PRIJHODKO, llevard a SARITA ROSSENFIELD y PERLA GONZALEZ de The News invitaciones para la recepción del día 23 en la Embajada.
+
+22 Feb.66
+
+SANTIAGO RICO de Agencias Generales Marítimas, informa a LOGUINOV que los barcos rusos "Thulomáles" y Shelengalés que en días passados estuvieron cargando en Contacoalcos, donde estuvo LOGUINOV;regresarán en cuatro días más por lo que quiere saber si es posible que un barco que saló el día 18 con destino a La Habana regrese el 26..? n cargar 5,500 toneladas de maíz. LOGUINOV no comprende como esa posible eso y crae que sea otro barco el que venga a encargar. RICO ratifica que se trata del "Thulomáles" uyo Capitán informó a STETLER de Droyfus que regresaría para esta fecha, y quiero recordar que debe darse aviso a la Capitanía del Puerto con tres días de anticipación.
+
+28 Feb.66
+
+ERICKA lo invita a cenar a su domicilio y pregunta si ya tiene listos sus papelos para poder viajar.
+
+1o.Mzo.66
+
+SALVADOR PAZ de Representaciones Marítimas quien acompañó a LOGUINOV en su último viaje a Mazatlán, informa familiarmente la llegada de dos barcos rusos el "Ortlán" y el "Venustely" que próximamente llegarán a Acapulco, pidiendo que una persona de la Embajada vaya a ese puerto para que sirva de interprete.

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_4039.png
+
+Convert to MarkdownCONCLUSION
+
+and sternpost are then set in place after the framework is cut to size.
+
+The shell plating is next attached from the keel upards in a such a manner that upon entering the water the wood undergoes a precalculated expansion which completely seals the hull without necessitating cabling. A hole is drilled for the shaft and the supports and pins for the rudder are then set in place. Following this is the flooring for the deck and under the steel crew's cabin, and/reinforces for the prow, stern and smoke room. After all of this completed, the secondary installations are carried out, such as the painting, electrical wiring, plumbing, masts, gavits, winches, and finally the launching of the boat. Final touch-up is effected when the boat is in the water.
+
+The process for the construction of a boat from steel is a simpler matter, and therefore less costly.
+
+The normal process of drydock-repair service for a boat is as follows: The cradle(See diagrams Ero 1 and 3) awaits the boat at the entrance of the ramp. With the use of maneuvering-buoys, the boat is lifted onto the cradle where it is made stationary with transverse beams. The moving cradle is brought up the ramp and the boat is then transferred from it to a lateral cradle. The boat is brought to Section Nr 1 where it is immediately scraped with electric portable brushes and high water pressure. While the hull is drying, a detailed inspection is carried out in search of worn holes. After drying, the hull is calked and a general inspection is made. Paint is applied, and while that is drying the necessary interior mechanical work is carried out. Upon termination of the final painting and a final inspection, the boat is launched. The complete operation lasts no more than two or three days in a modern drydock, and the support personnel consist of two
+
+CONCLUSION
+
+16

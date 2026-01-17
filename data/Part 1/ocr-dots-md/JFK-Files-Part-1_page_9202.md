@@ -1,0 +1,61 @@
+# JFK-Files-Part-1_page_9202.png
+
+Convert to Markdown26 March 1954
+
+Dear Boris,
+
+Thanks for your letter of the 22nd, reached us Saturday evening,
+crossing mine of the 23rd to you.
+
+It is all wonderful news, and the more you think about it the more
+amazing it is that "nothing even remotely resembling it has ever been done—
+anywhere in the world". And I know what a hell of a lot of work and worry
+it is, and what a relief it will be when it is safely done.
+
+Twelve pix go to you this morning by registered mail. These are my
+all at the moment. You will find them a great deal better than none. In fact,
+you may think they are enough to do the trick. Reflect that no one of them
+-fakery in photos having a long history since W.W.I- can in itself consti-
+tute conclusive proof, nor any photo that could be.
+For that, your text will carry more weight; the undisputed facts
+of geography and chronology; the depositions; the TACIT ADMISSION OF GUILT
+IN THE DANGEST POURS OF THE USSR TO RAISE THE MATTER AT NUREMBERG (here
+see Churchill's last volume, and perhaps quote a sentence or two from him;
+"names make news"; see also Nikolajusyk, from whom you may call a juicy
+quote or two.)
+
+It seems that "about a dozen" photos were given to all who attended
+the 21 Nov. 1949 press conference. So you may find Ep and/or the HIL has
+one or two more. But there is not much sense. Just one or two others of
+layers of corpses.
+
+Your impact will come from the skillfull addition of citation of facts
+to the pix I'm sending, don't you think?
+
+On your second request I'll do what I can. But you know one of the
+main reasons why it may not be much. My friend who will know returns from
+out of town tomorrow.
+
+"Baltic Review" has no pix. "Estonian Magazine" has only some. However
+I may be able to do something tomorrow.
+
+Here again I suggest you consider capitalising on the very absence of
+pictures, remembering that y ou have a great gift for the trancingant phrase.
+E.g., life in Riga pre-1939 was not too bad; now, as you can quote from the
+press, there is deportation after deportation; partisans; exploitation; almost
+universal hatred of the "people's democratic" regime. Edmund Stevens in
+This is R, Uncensored you'll recall said nothing so gave him the impression
+of the living-de-th-under-Stalin as Riga, which he revisited. Therefore,
+just show a RICA PEOPLE-IN-MARKET SQUARE SCENE, PLUS QUOTE FROM STEVENS, and
+a bit of biting Shubian prose contrasting 1939 and 1949. Don't you think
+there is a place for a few "peaceful" pictures of this sort? Fix of partitions
+in action are few and far between, and often fuzzy, and there can any way be,
+as you were saying, such a thing as too many atrocity pictures.
+
+Pari passu, why not use some ordinary, peaceful UKRAINIAN scenes, plus
+RECENT NOTES FROM PRAVDA, repeat PRAVDA, OFFICIALLY ADMITTING ACTIVE RESIST-
+TANCE THERE. I can't give you said quotes, but you or some of your friends
+very likely can lay hands on them.
+
+After all, no "resistance" photo, what with fakery, will carry conviction
+to those who won't be convinced. But a PHOTO OF THE FACE OF PRAVDA, with the

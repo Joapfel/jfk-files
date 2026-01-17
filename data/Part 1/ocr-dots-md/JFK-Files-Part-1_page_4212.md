@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_4212.png
+
+Convert to Markdown7 December 1964
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Telephone Conversation Between AMBIDDY-1 and Martin Ferrer
+
+DATE: 3 December 1964
+
+1. AMBIDDY-1 called from Houston, Texas to say that he had just arrived from Central America. A-1 was advised to proceed to New York to meet with Mr. Santell and Carl. A-1 agreed to get on the first plane to JFK airport.
+
+2. A-1 stated that VICTORIA was the operation against Casilda. A-1 stated that AMJAVA-4 had gone on the operation. A-1 contended that he could no longer hold his troops back. A-1 asked if approval had been given to the CAONAO operation and to the Casilda operation. The undersigned stated that Mr. Santell would discuss the entire matter with him at their meeting. A-1 expects to return to Miami for a few days and then go to the Dominican Republic for the CAONAO operation. After the CAONAO operation, A-1 will go to Paris to meet with the representative of the dissident group.
+
+Raul J. Hernandez
+WH/SA/SQ/HH
+
+File:
+AMBIDDY-1 201
+Conversations
+Operations
+
+SECRET
+
+Above conversation conducted
+in premises frequently
+changed privacy cells

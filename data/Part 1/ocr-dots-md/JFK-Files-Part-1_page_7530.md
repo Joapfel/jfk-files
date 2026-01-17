@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_7530.png
+
+Convert to MarkdownIn Shanghai in 1933 as Editor of the "China Forum," described as a Communist publication. A source of unknown reliability has stated that in 1933 Isaaac was a "notorious radical syndaitiser" and was suspected of being an agent of the Third International. Isaaac was said to have organized the Shanghai Committee for the Defense of the Fuengze, Pearl and Central Riverways were convicted in China in 1937 for Russian espionage activities.
+
+In March, 1945, the Third Bureau interviewed one Harris Louis Appleman, an American citizen presently living in Denver, Colorado, and who had left the party in 1926 to 1937. Appleman stated that in 1933 and 1934 he knew Durdin in Shanghai, and that during that period, he, Appleman, Harold Isaaac, Frank Class and Alexander Buchner, frequently held meetings at the home of William Public in Shanghai.
+
+Frank Class is a British citizen presently living in Los Angeles, California. Buchner is an American citizen also presently living in Los Angeles. Morris Appleman described Isaaac and Class as members of the Communist Youth League in the United States. An informant of unknown reliability has also reported that during that period Class and Isaaac were suspected of being agents for the Third International in Shanghai.
+
+In addition to the above individuals, Durdin is also reported to have been an acquaintance in Shanghai in about 1932-33 of George Alexander Kennedy, an American citizen presently employed at Yale University. Kennedy was an acquaintance of Harold Isaaac at that time, and was also reported to have been associated with "left-wing groups" in Shanghai at that time.
+
+In view of the information indicating that Mr. Durdin was acquainted with these individuals during the early 1930's, it is desired that he be interviewed relative to the extent of his acquaintance and association with the following: Franz Joseph Heiblatt, Harold Isaaac, Frank Class, Alexander Buchner, and George Alexander Kennedy.
+
+It is requested that Durdin be questioned particularly as to any information he may possess concerning any activities of these individuals on behalf of the Communist Party or the Third International. Durdin should also be asked whether he has any information indicating any of these individuals may have engaged in espionage activities on behalf of the Soviet Union, either during the early 1930's in China or at any subsequent period. It is desired that full details be obtained from

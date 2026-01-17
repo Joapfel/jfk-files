@@ -1,0 +1,73 @@
+# JFK-Files-Part-1_page_8806.png
+
+Convert to Markdown<table>
+    <tbody>
+        <tr>
+            <td rowspan="3">DISPATCH</td>
+            <td>CORRESPONDENCE</td>
+            <td>FORWARDING ORDER</td>
+        </tr>
+        <tr>
+            <td>SECRET</td>
+            <td>PUBLISHED</td>
+        </tr>
+        <tr>
+            <td colspan="2">☐ C.O., II Division</td>
+            <td>☐ ENAX: TO BE DESTROYED<br/>ONLY IF KNOWN TO BE<br/>CUSTONIZED FOR<br/>OFFICE USE</td>
+        </tr>
+        <tr>
+            <td colspan="2">Chic.. II Division</td>
+            <td></td>
+        </tr>
+        <tr>
+            <td colspan="2">Chief of Station, Mexico City</td>
+            <td>NOTAM</td>
+        </tr>
+    </tbody>
+</table>
+
+0. Contact between 201-82541 and ANDREHARD.
+
+References:
+
+A. HEMM-03764, 28 December 1967
+
+B. HEMM-10709, 11 October 1968
+
+1. For LIFENVOY Subject of References (Subject) contacted AEDIHEARD at 10:10 on 6 February 1969. Subject said that she was in Mexico for a few days before returning to the USA and had just spent two weeks in Acapulco. She invited AEDIHEARD for lunch but he could not make it. He agreed to visit her at the home of her host (reported in Reference A) at 11:00 the same day.
+
+2. When Subject had not contacted the station, she was called at the home of her host the next morning, 7 February, and a meeting was set for 15:00. Both on the phone and at the meeting, Subject had a severe hangover.
+
+3. Subject gave full information on her call to AEDIHEARD on 6 February. She said that she was just about to call the case officer on 7 February when he called her. She did not call in on 6 February because she wanted to wait until after she saw AEDIHEARD so that she would have something to report. She stated that she had not visited Mexico since the trip reported in Reference A when she first met AEDIHEARD because she is tied down with the care of her mother who is still alive. She had sent two or three letters to AEDIHEARD but he had never answered them; and on 6 February AEDIHEARD said that he had not received them.
+
+Attachment:
+
+Address u/c/c
+
+Distribution:
+
+2 - C/SD w/Ltt u/c/c
+2 - C/M M/Att u/c/c
+
+CS COPY
+
+<table>
+  <tbody>
+    <tr>
+      <td rowspan="2">ORIGINAL REVISION ID</td>
+      <td rowspan="2"></td>
+      <td>REVISION NUMBER</td>
+      <td>DATE</td>
+    </tr>
+    <tr>
+      <td>17 March 1969</td>
+      <td></td>
+    </tr>
+    <tr>
+      <td>✓201-285412</td>
+      <td>CONFIDENTIAL</td>
+      <td>STEPBY IN -> 1-201-285412</td>
+      <td></td>
+    </tr>
+  </tbody>
+</table>

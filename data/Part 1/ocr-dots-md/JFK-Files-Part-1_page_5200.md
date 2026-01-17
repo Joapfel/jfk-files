@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_5200.png
+
+Convert to MarkdownSECRET
+
+CHARLES
+
+- 2
+
+Madame Charles, nee Telson, is a sister of Adelphin Telson, formerly Minister of Defense and Justice, formerly President of the Chamber of Deputies, who is friendly to the US and in contact with US officials in Port-au-Prince. A sister of Madame Charles is married to Colonel Marcaisse Prosper, former Chief of Police under the Magloire government. It has been alleged that the three men, Charles, Telson and Prosper, constitute a potentially strong political force in Haiti.
+
+SECRET

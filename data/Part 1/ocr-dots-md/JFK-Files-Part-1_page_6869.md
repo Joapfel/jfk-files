@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_6869.png
+
+Convert to MarkdownSECRET/CONFIRM
+CONTINUED CONTROL
+
+10-08-59
+
+TO: Director
+Federal Bureau of Investigation
+Attention: Mr. S. J. Papich
+
+FROM: Deputy Director, Plans
+
+SUBJECT: Jane Constance ROURS
+
+1. Reference is made to our GCI-3/751,016, dated 12 August 1958, and to previous correspondence concerning Subject and her correspondence with American Communists living in Mexico.
+
+2. Enclosed for your information are photocopies of an envelope from Subject, 50 Seventh Avenue, New York 11, New York, addressed toatrice HALEPIN, Medellin 36-9, Mexico, P.R., and a letter, contained in the envelope, bearing the salutation, "Dear Colia." ("Colia" is probably Colia OQUIMELIN, wife of Kurt Leopold OQUIMELIN, who, as was reported to your Bureau in our teletyped message of 12 September 1958, was hiding out in a hotel during the wave of arrests of American Communists living in Mexico.) The contents of the letter are summarized as follows:
+
+Subject mentions that she is glad that Colia saw "Tess and Bruno," and discussed with them the hardships and worry suffered "by you and all our friends." She says that A.A.'s main interest has to do with Sr. PORTIN, ("A.A." Pons Esl) probably refers to Abraham Aaron MELLIS, who visited Mexico with Subject for three months during the winter of 1957-58. "Sr. PORTIN" possibly refers to Luis SANCHEZ Ponton, a Mexican lawyer concerned with the Norton SOALL case.)
+
+Subject also mentions that her planned trip to Mexico during the coming winter is not certain unless they (she would probably be traveling again with MELLIS) could find an inexpensive apartment.
+
+SECRET/CONFIRM
+CONTINUED CONTROL
+
+US COPY
+
+<table><tr><td>F-75</td></tr><tr><td>X</td></tr></table> 201-128571
+
+8201-231257
+
+201-128571
+
+2-F-5407
+
+14-00000

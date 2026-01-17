@@ -1,0 +1,69 @@
+# JFK-Files-Part-1_page_9137.png
+
+Convert to Markdown1400000
+
+HONORARY
+EDITORIAL
+OF
+THE
+NEW
+YORK
+DAILY
+ NEWSPAPER.
+
+MAY
+2, 1965,
+
+The
+Honorary
+Editorial
+of
+the
+New
+York
+Daily
+Newspaper.
+
+**ROBERT E. MORRIS**
+President, U.S. Chamber of Commerce in Madrid,
+Chairman, Council of Economic Affairs of the Americas
+
+* Undergraduates: 220, 350; Graduates: 250, 200; Masters:
+  80, 100; PhDs: 120, 150.
+
+X
+
+INSTITUTO DE INGENIERÍAS INDUSTRIALES DE TÀRREGA
+
+**CARLOS A. VÁZQUEZ MUÑOZ**, Director General,
+Ingeniero de Industrias Textiles, E.T.S. de Ingenieros Industriales de Tarragona.
+**F.R. GRADUATE SCHOOL OF BUSINESS ADMINISTRATION, UNIVERSIDAD DE NIVELTE.**
+**PROFESSOR AGREGADO.**
+**SISTEMAS.**
+
+**JOSE LUIS RODRÍGUEZ ALVARO**, Professor Emeritus, Universidad de Barcelona.
+**Profesor Mercantil, Escuela de Alfonso X., Universidad Mercurial de Barcelona.**
+**Collaborador Científico.**
+**Política de Empresas.**
+
+**JOSÉ ALBERTO RAMÓN**
+Lecturer in Philosophy and Letters, University of Barcelona.
+**Collaborator Científico.**
+**Comité amanitario Humano en la Organización.**
+
+**ANDREA LAGUARTA, JOSÉ ÁNGELO**
+Assistant Ingenieros de Industrias Tertiales, E.T.S. de Ingenieros Industriales de Tarragona.
+**IIP Graduate School of Business Administration, Harvard University.**
+**PROFESSOR HARESGOOD.**
+**DIRECTOR CONFERENCIAL.**
+
+**ALBERTO VILLARVELLA**
+Director in Business, Universidad de Barcelona.
+**Collaborator Científico.**
+**Departament Financiero.**
+
+**GORDON B. GRANT, JR.**
+Bacteriologist, Naval E.T.S. de Ingenieros Navale del Mediterraneo.
+**UNITED STATES PUBLIC HEALTH SERVICE, NATIONAL ACADEMY OF MEDICINE.**
+**COLLABORATOR CIENTÍFICO.**
+**Division of Production.**

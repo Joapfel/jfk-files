@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_9254.png
+
+Convert to MarkdownI have written you care of Littauer, whom we have asked to keep a file for you, of letters of this sort - and you could deposit carbons of your choice if necessary, with him - which you could consult when and if necessary.
+
+Sterilised letters, identifying each patient, must be about details of work-in-progress, we can exchange directly.
+
+The friend who was mentioned at lunch said he may be free to come and see you in a week or two. But please be extremely careful about mentioning him to anyone. He'll explain why that's important.
+
+Best regards,
+
+BILL
+
+two carbons
+
+SECRET

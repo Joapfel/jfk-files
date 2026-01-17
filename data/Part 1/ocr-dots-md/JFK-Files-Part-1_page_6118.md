@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_6118.png
+
+Convert to MarkdownSECRET
+
+b. As stated in Paragraph c above, I recommend that OGC, in their letter to requester, correct the previous error in identifying the deciding officials.
+
+c. Document B-6 is a CSC that transmits an accumulative machine listing to the FBI. This document is updated periodically and previous listings should be destroyed. Document B-5 is the updated and final machine listing for 1970 and superceded document B-6 which should have been destroyed. I recommend that OGC advise requester that document B-5 supersedes document B-6 and contained the exact same information. I further recommend that IPS draw this matter to the attention of the FBI so future duplicate referrals may be avoided.
+
+d. A classification review of the five documents listed in Tab B has been conducted. The documents are properly marked and properly classified in accordance with Executive Order 11652, as amended. All non-exempt information has been identified and recommended for release to requester.
+
+e. The FBI and INS documents pertaining to Subject located in DDO files have been referred in writing to the respective agencies for their direct response to requester. (See Tab C).
+
+4. Mr. Bill Ashbaugh of OGC has concurred in these recommendations.
+
+Louis J. Dube
+DDO Appeals Officer
+
+Attachments:
+
+*   Tab A = References A-C
+*   Tab B = Documents B1,B2,B3,B5, and B6
+*   Tab C = NIS & FBI Referral Letters
+
+CONFIDENTIAL When
+Attached From
+Attachments
+
+-3-
+SECRET
+
+SECRET

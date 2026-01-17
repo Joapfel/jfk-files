@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_4043.png
+
+Convert to MarkdownCommercial
+
+**Werkzeug- und Werkstoff-Equipement:** US$ 25,000 additional investment by INVERNICA, and US$ 5,000 by INFORMIC.
+
+Lathes for shafts (24-foot bed, 48-foot drum);
+
+Southbend precision lathes (6-foot bed, 13-foot drum);
+
+Two-inch Buffalo/drill, with accessories;
+
+Auger D7 Walter-Burner, model Nr 3310;
+
+Four manually-operated 20-ton hydraulic presses;
+
+Electric Grinders;
+
+Medium milling machines;
+
+Twelve-inch press;
+
+Differential
+
+Differential systems (1 ton); torque
+
+Three sets of complete die stock, ten ton wrenches, combination wrenches,
+
+anvils, etc;
+
+The complete sets of general tools, torsionmeters, calibrators, cutters, polishing machines, automatic valves, die sets, etc., one unit for testing engines
+
+Total Value of approx US$ 36,500.
+
+company
+
+Characteristics of Capital: INVERNICA's capital is drawn from two sources, namely, total equipment and materials within Nicaragua which is valued at US$ 150,000, and the Canadian capital of the Enterprise, approximately US$ 50,000.
+
+Guarantees: Following is a general list of the equipment of INVERNICA which will be utilized in the project. This equipment for the most part is new and in full operational status, that is, INVERNICA has the necessary technical personnel to operate and maintain this equipment. In spite of the fact that this equipment is now the total approximate value is subject to the usual depreciation of 25 percent of the price which INVERNICA paid for the equipment in the United States. The following is exclusive of attorney, customs & and other fees. Since I do not have price lists, the prices are approximate. CONFIDENTIAL
+CONF.
+
+20
+
+14-00000

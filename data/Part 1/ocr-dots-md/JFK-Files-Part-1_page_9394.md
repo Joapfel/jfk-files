@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_9394.png
+
+Convert to MarkdownSECRET
+
+10 July 1950
+
+MEMORANDUM FOR: Messrs. Thompson and Glaser
+
+FROM: Charles Olstead O.
+
+SUBJECT: Berlin Intellectual Congress
+
+1. I wish to refer to Mr. Glaser's informal memorandum with regard to the mishandling of the American Negro, Max Yergin, at the Berlin Intellectual Congress.
+
+2. When I informed Schiller that I wished to discuss this matter with him he proceeded to read to me a letter which he had just received from Berlin giving a rather full report on the Berlin Congress and which contained a great deal of information. Among the items reported on therein was the incident regarding Max Yergin. I explained to Schiller that it was a most difficult task to control the group of assorted Europeans who attended the Berlin Congress and sufficient time was not given, therefore, to United States delegates, but that Yergin's excellent speech, which had been cut off the radio at the microphone, was being widely used in press, radio, book and pamphlet form.
+
+3. Schiller accepted this explanation, but in closing our discussion of this subject, wise-cracked that our boys in Berlin did not include Yergin on any social doings and closed his remarks with the statement that "even intellectuals like Bournam don't like to sit down and eat with Negroes." I cnided him briefly and there the matter was closed.

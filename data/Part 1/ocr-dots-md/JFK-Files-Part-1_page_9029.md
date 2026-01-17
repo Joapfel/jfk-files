@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_9029.png
+
+Convert to Markdown12 August 1968
+
+**MEMORANDUM FOR:** Chief, Contract Personnel Division
+
+**THROUGH:** Assistant for Non-Staff Personnel
+
+**SUBJECT:** Edward G. FICHBORN (P) - Contract Agent
+
+1. Subject has been given 30 days notice as provided in his contract, to the effect that his contract will be terminated 31 August 1968.
+
+2. Subject was initially employed in 1959 and was transferred to DO Division in July of 1967 from the WH Division. In the course of discussing the termination of his services, subject stated that during his tenure with the WH Division, he had been promised certain bonuses upon termination of his Agency service. The WH Division has agreed to a termination payment of $3,313.72 which represents two months' salary of a per annum salary of $17,000 plus $477.38 in settlement of his accounting which is non-nontaxable.
+
+3. In addition it is requested that the following statement be included in the amendments:
+
+You release and forever discharge the United States Government and any Agency, Department or Instrumentality thereof and its agents, officers, employees and representatives from any and all claims, demands and liabilities in any form or by any party whatsoever throughout the World arising from services performed by you for the United States Government under said contract.
+
+4. Attached is signed Notice of Termination in duplicate.
+
+(Signed) R. E. MONTGOMERY
+W. T. MONTGOMERY
+Chief, DO Support Group
+
+Attachments
+
+as stated
+
+Distribution: Orig & 1 - Addressee, 1-Aast for Non-Staff Pers., 1-DO/PERS
+1-WH/BF, 3-DO/SG DC/DO/SG:jm
+1-DO/CO/Allen
+
+<table><tr><td>Form 1507</td></tr><tr><td>Printed in the United States</td></tr></table>

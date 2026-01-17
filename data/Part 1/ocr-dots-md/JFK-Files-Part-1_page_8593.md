@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_8593.png
+
+Convert to MarkdownSECRET
+
+-5-
+
+Subject Involvement in Student Disorders of 1968:
+
+Debriefing conducted 25-26 April 1970: AMIERIFF stated that LOGINOV went out at nights often during this period and told her it was to make "contacts." LOGINOV also stated that his work during this period was some of the most dangerous he had ever done. AMIERIFF was certain that these "contacts" involved in student riots. AMIERIFF related that once at Auto Cine, LOGINOV made a meeting with a group of youths who came in another car (Falcon). Another time, some 2 or 3 days later, LOGINOV had MITOPOLSKI give him some shotguns which MITOPOLSKI had charge of. LOGINOV got the guns about 2200 or 2300; the guns were returned the next morning. Others who seemed to be going out all the time at night during the student riots (and talking about their meetings in general the next morning ) were FOLSMAKOV, KORHOVSKII, EIKIPOROV. AERIERRIFF never heard mention of money being passed during this period (i.e., to Soviet assets involved in riots) nor any mention of any names or positions of assets (This not in agreement with some of Dan Juras info). CHENKOV seemed to be involved also.
+
+Debriefing conducted 12-16 May 1970: AMIERIFF was again questioned on her knowledge of Soviet activities during the 1968 student disorders. She reported that all she really knew was that the Soviets were very busy during this period; that LOGINOV told her he was going out every night to make "contacts;" that she overheard Soviet case officers talking at various times during this period to effect that they very busy, making many contacts; that the situation was potentially explosive and a dangerous time for them to be making such contacts. AERIERRIFF twice was with LOGINOV.
+
+SECRET.

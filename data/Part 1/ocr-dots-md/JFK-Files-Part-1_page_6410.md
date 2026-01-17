@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_6410.png
+
+Convert to Markdown29 October 1954
+
+SUBJECT: Passing of all reports to Brazilian authorities.
+
+REF. : IFR-1-503
+
+1. On 18 October, Carlos EUSTOS, AMBASSADOR'S colleague in the Brazilian Federal Political Police, informed his that on 15 October he had submitted to the Chief of Police a translation of the reports he had received from ARIELATHY. (EUSTOS had been given by ARIELATHY standardized versions of RB-1 to RB-15, inclusive, and HL-17 to HL-29, inclusive, along with the biographical information of the sources of those reports. RB-16 and RB-30 were not passed to EUSTOS because they had been obtained from ALIOPATHY.)
+
+2. On 27 October EUSTOS informed ARIELATHY that the translation of the reports had been forwarded by the Chief of Police to Col. Luiz de Souza Neto, who, in turn, had forwarded it to José MCCONVILLE, head of the Political Division of the Political Police, for his recommendations. EUSTOS stated that he believed MCCONVILLE would recommend that the reports be forwarded to the Foreign Office and the War Ministry. EUSTOS also intends to give a copy of the translations to Ribeiro de Andrade, head of the Serviço de Vigilância of the Department of Political and Social Order (D.O.P.S.), São Paulo, who has indicated an interest in receiving it.
+
+3. As an introduction to the translation of the reports, EUSTOS described briefly Brazil's Statistical refugee immigration problems and the voluntary welfare organizations which assist the immigrants in gaining entry to, and settling in, Brazil. The translation of this introduction is as follows:
+
+"The current immigration of White Russians into Brazil began in 1913. It has diminished since June 1954 in the face of the decision taken by the National Institute of Colonization and Immigration (Instituto Nacional de Imigração Colôniais) (I.I.I.C.) on 16 June 1954. On that date, the Directorate of the I.I.I.C. decided to request that the Ministry of Foreign Relations take the necessary steps to stop the issuance of visas for stateless persons for a period of sixty days."
+
+"On 30 June, Vicente RODRÍGUEZ, then Foreign Minister, sent a circular to all the consulates ordering a stoppage in the issuance of visas until a final decision could be reached.
+
+"On 22 September, the Foreign Office issued to the consulates new instructions, according to which, generally speaking, stateless immigrants are permitted entry to Brazil only if they have in Brazil relatives in the direct line of descent whose economic situation is such that they can guarantee the substance of the immigrants."

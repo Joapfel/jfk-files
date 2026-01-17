@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_8175.png
+
+Convert to MarkdownSECRET
+
+22 May 1961
+
+MEMORANDUM FOR: Contract Payroll Division
+
+SUBJECT: Edward Q. TICHBURN (R)
+
+1. Please cancel Edward Q. TICHBURN's present contract effective as of 19 May 1961.
+
+2. A new contract for Subject will be requested by the WH Division in the immediate future.
+
+Thomas F. McCoy
+Acting Chief
+Political Action Group
+Covert Action Staff
+
+SECRET
+
+Jr. 213203

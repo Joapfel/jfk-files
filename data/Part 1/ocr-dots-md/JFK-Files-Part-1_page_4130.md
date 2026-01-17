@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_4130.png
+
+Convert to MarkdownSECRET
+
+27 August 1965
+
+MEMORANDUM FOR THE RECORD
+
+FROM : AMBIDDY/1
+SUBJECT: Vidal ESPINAL Herrero, possible CI suspect
+
+1. Subject is a Spaniard who is believed to be working now at the Ron Carta Vieja factory in Panama City. He previously lived in Managua and worked for Colonel Miguel RUIZ Herrera (a Costa Rican sometimes employed by General Anastasio SOMOZA) as a specialist in guerrilla warfare.
+
+2. About late May or early June, ESPINAL was drinking in a Managua bar and engaged one of A/I's delegation in conversation, not knowing who he was. He claimed to have been in Guatemala recently where he had worked with some "good people of the lower classes" in an attempt to overthrow the Guatemalan government. He quoted at length, and accurately, from Che GUEVARA and used examples, also accurately, for some Fidel CASTRO operations on how to overthrow a government. A/I's man played the part of a leftist sympathizer to elicit from subject. Through the Nicaraguan security service, the MRR people found out that Col. RUIZ H. claimed subject had come to him and presented himself as a GW expert saying he was willing to work for him in an attempt to make a coup against the government in Costa Rica. In early July, subject told Col. RUIZ H. that the Costa Rican operation was taking too long and nothing much was going on, so he was going to Panama from where he could be called back immediately when they were ready to go in Costa Rica. Subject had also been overheard to say in Managua that he had a special mission to assassinate a Central American president.
+
+3. A/I said the Nicaraguan service believes that Angelini's Restaurant in Panama City is a source of false passports for Communists. A/I looked at the place on his visit in Panama and found it to be in a poor section inhabited by Communists not far from the International Hotel.
+
+SECRET

@@ -1,0 +1,62 @@
+# JFK-Files-Part-1_page_8919.png
+
+Convert to Markdown14-00000
+
+COORDINATING OFFICERS
+<table><tr><td>SECRET</td></tr></table>
+
+C/WHD
+
+RELEASING OFFICER
+
+<table><tr><td>GROUP I<br/>Includes Air Automatic<br/>Compression and<br/>Decals<br/><br/>AUTHENTICATING<br/>OFFICER</td></tr></table>
+
+CLASSIFIED MESSAGE
+
+B.E. Reichhardt:rg
+WH/3/Mexico
+5940
+6 March 64
+
+[ ] NO INDEX
+[ ] FILE IN CS FILE NO. Destroy
+
+TO MEXICO CITY
+
+FROM: DIRECTOR
+
+CONF: WH 5
+
+INFO : ADDP, C/CA 2, C/CI, DD/S, D/OP, VR
+
+<table><tbody><tr><td colspan="3">6 MAR 64 21 53Z</td></tr><tr><td>SIG: CEN</td><td colspan="2"></td></tr><tr><td>R</td><td>ROUTINE</td><td></td></tr></tbody></table>
+
+TO MEXI
+
+INFO DEшиRATED
+
+REF: A. DIR 03351
+B. MEXI 8448
+
+CITE DIR 06038
+
+1. HDQS HAS BEEN ADVISED CONFIDENTially THAT TICHBORN NO LONGER UNDER CONSIDERATION FOR REF APPOINTMENT. NO REASON GIVEN.
+
+2. TICHBORN SHOULD NOT REPEAT NOT BE ADVISED OF THIS INCIDENT.
+
+3. IT ASSUMED TICHBORN NOW REMAIN IN PLACE. REPLY TO REF B BY SEPARATE MESSAGE.
+
+END OF MESSAGE
+
+SPASST/DD/P Gordon Mason (phono)
+
+*IN 30532
+
+J. C. KING
+C/WHD
+
+M. WHITTEN
+C/WH/3
+
+COORDINATING OFFICERS
+<table><tr><td>SECRET</td></tr></table>

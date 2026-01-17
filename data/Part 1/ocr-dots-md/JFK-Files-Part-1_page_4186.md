@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_4186.png
+
+Convert to Markdown14-0000
+
+26 October 1964
+
+MEMORANDUM FOR THE RECORD
+
+**SUBJECT:** Telephone Conversation between AMBIDDY-1 and Martin Ferrer
+
+**DATE :** 25 October 1964 at 1330 hours
+
+1. The Office of Security called the undersigned to advise that AMBIDDY-1 had telephoned.
+
+2. Upon returning A-1's call, he stated he telephoned merely to inform us that he would be going into retreat on 26 or 27 October. He will be staying at the Diplomat Hotel in Hollywood, Miami as a guest of the management since the manager is one of the "100 men." A-1's rooms are 2255 and 2257. The telephone number is WAS-8111. A-1 can be reached at that number for the next week.
+
+Raul J. Hernandez
+WH/SA/SO/HH
+
+File:
+Conversations
+AMBIDDY-1 - 201-
+
+Above conversation conducted
+in prearranged frequently
+changed privacy code
+
+<table><tr><td>GROUP I</td></tr><tr><td>Educational Development and Research</td></tr><tr><td>Group II</td></tr></table>
+
+SECRET

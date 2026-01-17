@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_6882.png
+
+Convert to MarkdownAugust 27th, 1953
+
+tardy in answering your letter of August returning from Lake Tahoe where I took
+
+able. To be sure,cutlineu give usually only comes out, but with that reservation, I think, What would seem to me to be in order is cal framework. In the first place, I would number of groups: those countries that economic advancement (Venezuela, Argentina, Mexico,่างly stagnant (Central America, Peru and Colombia) revolutions (Mexico); those that are or another (Argentina, Venezuela), or entirely foundal state (Peru?). etc.,
+
+seems "ideal type" treatment, since...
+
+imperialism in all of them has to be clearly worked out : both economically, and politically. Secondly, when it comes to strictly "economic analysis, I don't believe that much can be gained by talking about "crisis-breeding printing press money" (V. p. c.). This puts the critique of inflation on a wrong track, and relates to what I would consider "old-fashioned" economics. The trouble with inflation is not that it is intrinsically "crisis-breeding". After all, Soviet industrialization was financed to a considerable extent by inflation! The trouble with inflation is that it puts the burden of capital accumulation upon lower income groups; in capitalist countries, furthermore, it channels the accumulated capital into wrong, undesirable uses, creates opportunities for want, speculative profits, promotes luxury consumption, etc. etc.
+
+In other words, under capitalism, inflation tends to add fuel to injustice. If we have, then at least it should promote useful capital relatively modest inflation (a few % p.a. inflation of the German 1920's variety). That which need not occupy us in the how inflation (accompanyed by devaluation) tax"og the underlying populations, ults in lopsided development.
+
+supposition that you should concentrate on assembling as much as possible material on the volume and mode of utilization of accumulated capital, and show these accumulations are being misused. This would permit you to analyse both the domestic structure of the economies under consideration as well as to show the impact of capital outflows due to imperialism etc.
+
+those are my first reactions. I will be glad to go into all of this. I have more stuff to look at. You are obviously much better off for what it's worth) on a reference. If the Committee chooses to accept it, I shall suggest that the accent be placed on the empirical, subject of which an analytical part made subject to further direction and clarification.

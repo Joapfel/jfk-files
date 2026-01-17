@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_9234.png
+
+Convert to Markdownto para. 4 of the above-mentioned agreement (16 Sept. 1950), according
+to which "You will be required to transfer the gross royalties to CIA...,"
+(This agreement was also drafted by Mr. Kelley). There doesn't seem to
+be any difficulties of substance there.
+
+There has been no decision on the size, format, etc. of the book.
+I mentioned that I had written Shub, mentioning that Simon & Schuster is
+able to offer its $3.95 FOR a Pictorial History —"260 photos with commentary"—
+at only $1.50 in cloth.
+
+I said Shub had written some time ago that it would be a help to
+know the approximate number of photos as soon as possible, and Lyle said he
+of course agreed. He thought Shub and his collaborator should have something
+to show in, say, 30 days.
+
+I mentioned that the "STALIN" PHOTO-BOOK, when written up, which I
+will do shortly, will merely be a sub-Project of KAPUTNY, and will therefore
+require only Mr. Thompson's signature: Lyle queried whether it was necessary
+to make a formal project of it at all. I said that, for purposes of
+Status Reports, etc., it would be more or less necessary to have a formal
+title for it, and he agreed.
+
+Shub has about 150 sterilized CIA Graphics photos, which we selected
+last summer. None of them could actually be printed, published, without
+a release from CIA Graphics. I therefore urged Hunson to urge Shub to work
+up a good cover story about them, vis-a-vis his collaborator. Hunson said he
+would advise him not to use them at all. (They are run-of-the-mine; they could
+all be duplicated with ease from agencies).
+
+I told Hunson that Mrs. Poland, of CIA Graphics (of whom he knows)
+had personally made an arrangement with Roy Larsen, whereby he supplies them
+with photos from Time-Life files, but not for publication. And that she had
+told me she is particularly anxious to do nothing that would undermine her
+relations with Time-Life.
+
+We agreed that, if Shub's collaborator gets permission to use photos
+from Life's files in the book, it will still be a book being prepared for the
+overt SWEN Company, and that Life will not know the Government is involved.
+Hunson thinks Shub is being very circumspect about all this.
+
+WSS
+
+SECRET
+
+JB III real
+afine.

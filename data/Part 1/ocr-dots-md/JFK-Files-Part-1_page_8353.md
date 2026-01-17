@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_8353.png
+
+Convert to MarkdownWe stood by the car talking for about three minutes, and I promised to call him during the afternoon of Friday. 14 March. On departing he grinned and said to say hello to all of his associates that he doesn't know. I said "Sure will" and walked away.
+
+Samuel J. Kartasuk
+
+See you S arched one day with a complete smile,
+proudly and character which one person may
+take to do some are all same: He who has not met
+with S.J.H.
+
+Soon to be coming along - APR

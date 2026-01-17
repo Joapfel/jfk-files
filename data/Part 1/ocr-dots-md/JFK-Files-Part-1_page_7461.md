@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_7461.png
+
+Convert to Markdowndirect to Paris for three or four days before proceeding to
+London. His visit to Paris is, therefore, strictly unofficial.
+
+FRANCE
+
+A correspondent asked if the French Government had asked
+the State Department for an agreement for a new Ambassador in
+Washington, M. Germaine-Martin. Mr. Rogers replied in the
+negative.
+
+CHINA
+
+A correspondent asked if Representative La Guardia of New York had asked the State Department to intervene in the case of an American named Harold Isaacs who is now editing a newspaper in China, which, according to press dispatches, is a Communist organ. The correspondent continued by saying that according to stories the American diplomatic officers in China warned Mr. Isaacs that he would be likely to lose his extraterritorial status because of his activities. Furthermore, his father, who is in New York, wants the Department of State to get Mr. Harold Isaacs back and have him deported. In reply, Mr. Rogers said that he knew nothing of any communication from Mr. La Guardia on the subject. In regard to the story, it is not true that this Government has threatened to deprive Mr. Isaacs of his extraterritorial rights in Shanghai.
+
+BOLIVIA-PARAGUAY
+
+A correspondent asked if the State Department had received
+any reports to the effect that the Bolivians had captured two
+Paraguayan forts. In reply, Mr. Rogers said that he under-
+stood that Assistant Secretary White talked with the correspon-
+dents last night concerning the situation and that Mr. White
+might possibly be able to see the correspondents again today.
+
+RECD DEC 201-15446

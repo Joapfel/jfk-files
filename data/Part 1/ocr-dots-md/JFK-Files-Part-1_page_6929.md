@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_6929.png
+
+Convert to Markdowng) Letter, dated 16 May 1958, from Oscar Lewis, at the University of Illinois, concerning some translations HALFTHAN was doing for LANS. Lewis says that he has overdramm his research account and asks HALFTHAN to take this into account when computing his bill for the translations. LANS also says that he is hoping to be able to visit Mexico the first two weeks in June.
+
+3. This correspondence was obtained from a usually reliable and highly sensitive source and should not be disseminated further.
+
+CSCI-3/751,683
+
+Enclosures: 7 letters as described above
+
+WH/3/Mexico/L.Washinko: kc
+
+24 September 1958
+
+Distribution:
+
+Orig & 1 - Addressees
+1 - RI (201-128561)
+1 - CI/Lia
+1 - CI/ICD
+1 - CI/R&A
+1 - WH/3/Mexico
+1 - WH/R
+
+Based on: HOMA-10320
+HOMA-10321
+
+Project Cryptonym: LIBRIGHT
+
+SECRET... CONFIDENTIAL
+
+JL
+
+201-128561
+
+SERVICES TO BE PROVIDED BY THE CONTRACTOR
+
+CONTINUED CONTROL
+
+- 1 -

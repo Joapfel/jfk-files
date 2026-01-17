@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_4373.png
+
+Convert to Markdownde nadie... Yo creo que eso es fundamental para el futuro de los que se están lanzando por el camino de la guerra.
+
+Y porque mi organización está constituida por hombres de todas las procedencias, por hombres de todas las edades y por hombres de todas las clases sociales, nosotros tenemos fuerza moral para lanzar un mensaje de esperanza al futuro de Cuba.
+
+Yo creo que si, Norman: yo creo que hay una generación histórica que tiene la responsabilidad moral de esta liberación; y tengo fe en esa generación histórica. NORMAN DIAZ: Lo felicito, Doctor, porque ese es el pensamiento mio.
+
+GANDERO: Ricardo Nuñez, una pregunta rápida y una explicación rápida...
+
+NUÑEZ: Doctor Artime...
+
+¿Qué nos puede decir usted sobre este reciente proceso de Costa Rica, que ha sido tan importante para toda Latino América. Cual es su opinión sobre este proceso y sobre los factores que llevaron a la victoria al ya Presidente Trejos?
+
+ARTIME: La primer lugar, yo creo que es un resultado de la TriContinental. Fra tal el miedo, ¿qué la sospecha de que un candi-
+
+dato pudiera tener contacto con el Comunismo - la sospecha, porque me consta que no había tal pacto - fue suficiente para liquidar a un hombre. Pero, además, acaba de debatié un punto muy importante. Se debatió el control total de la economía por el Estado ó se debatió la libre empresa con producción social. Fue lo que se debatió en realidad en Costarrica.. y el pueblo dio el voto; y el voto del pueblo contarnicense es un renumen de lo que es la opinión pública latino-americana en estos momentos.
+
+Yo creo que el momento histórico de los extremismos, tanto de derecha como de izquierda, ya pasó.. Y yo creo que el voto, en definitiva, fué dado en San José de Costa Rica.
+
+GANDERO: Una última pregunta rápida, creo que quedan unos segundos...
+
+NORMAN DIAZ: Doctor, realmente usted considera que la pasta traza da en las elecciones efectuadas en estos momentos, en Costa Rica, va a ser decisiva en el reino de Centro y Sur América?
+
+ARTIME: Yo si lo creo. Yo creo que el que quiera salir por elección popular tiene que analizar,
+
+muy detenidamente, el resultado de las elecciones de Costa Rica. Yo lo creo honestamente. Y yo quiero felicitar al Señor Presidente de Costa Rica porque ha mantenido la dignidad de ser el hombre que está en el poder y garantizar unas elecciones libres y garantiszar la entrega del poder. Es un hombre a quien nosotros lo canbanos debemos mucho y es un hombre el Presidente Orlich que merece el máximo de respeto.
+
+Yo quisiera utilizar este miedo para mandar un mensaje a él. No llega, porque se guarda en Miomí, pero alguien se lo dirá, dándole las gracias a él, en nombre de todos los cubanos que luchamos por la Independencia de acesta Patria.
+
+GANDERO: Muchísimas gracias, Doctor Manuel Artime, por su comparecencia aquí esta mañana y quiero agradecerle también al buen amigo y compañero Norman Díaz y a Ricardo Nuñez, de servir de Panelistas en este domingo.
+
+Así es que quedan invitados para el próximo domingo, a las 10:30 de la mañana, como de costumbre.
+
+Les deseo atodos muy buenos días.
+
+DR. MANUEL ARTIME BUESA

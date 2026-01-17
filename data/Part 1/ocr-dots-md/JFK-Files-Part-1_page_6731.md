@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_6731.png
+
+Convert to MarkdownMiami, Agosto 19 de 1963
+
+Dear Mr. Teels:
+
+Tal como le ofrecí en mi conversación telefónica, aquí le incluyo un resumen de la información que me dio el amigo que llegó de Cuba el 29 de Julio. Se la hago en mi idioma por ser más fácil para mí el redactarla. Supongo que si Usted pudo hablar con él, habrá podido obtener otros detalles.
+
+No ha sido posible para mí comunicarme con San tiago de Cuba desde esta Ciudad; espero hacerlo cuando regre se a New Orleans en los días finales de este mes y le escribi ré enseguida que lo haga.—
+
+Yo deje instrucciones al Sr. Martinez para que le enviara a su oficina de Washington cualquier correspondencia que llegara de Cuba durante mi permanencia en esta Ciudad.

@@ -1,0 +1,58 @@
+# JFK-Files-Part-1_page_7514.png
+
+Convert to MarkdownFCS 1831; Shanghai Municipal Files, file: 16-4-2-37
+
+ROBSON, VBola
+@ MR.S. M.R. ISAACS
+
+Born      10 July 1910, NYC
+National  American
+
+**Description**
+
+Height 5'9"
+Build slim
+Complex fair
+
+**Documentation**
+
+In 1932 holder of US passport # 382046 issued NYC 16 May 1931
+
+**History**
+
+In 1931 known to have visited Germany
+
+Known Communist and follower of Lucy STONE
+
+Arrived in Shanghai on 23 Aug 1932
+
+16 Sept 1932 married Harold Robert ISAACS. She had been engaged to ISAACS for some years before her arrival in China, and it has been stated that the letters between the two indicated that she was a Communist sympathies on the part of both end of ISAACS' intention of joining the CP
+
+After her arrival in China was employed at the Duh Chung Middle School;
+Shanghai as a teacher.
+
+She lived in the Embankment Building Bldg., North Soochow Road
+
+On 7 August 1933, the ISAACS left Shanghai for Japan and on 16 Aug 1933
+proceeded to Dairen, returning to Shanghai by rail of 26 August 1933.
+
+In Nov 1933, info was received to the effect that Miss R. ROBINSON was a teacher
+at the Comparative Law School, Shanghai,
+
+<table>
+  <tbody>
+    <tr>
+      <td colspan="3">MILLWARD</td>
+      <td rowspan="2">AUG 14 1951</td>
+    </tr>
+    <tr>
+      <td colspan="3">MILLWARD LAW SCHOOL</td>
+    </tr>
+    <tr>
+      <td>STUDY</td>
+      <td>-</td>
+      <td>AUG 14</td>
+      <td></td>
+    </tr>
+  </tbody>
+</table>

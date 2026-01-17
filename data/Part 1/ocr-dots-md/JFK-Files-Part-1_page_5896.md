@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_5896.png
+
+Convert to Markdown14-00000
+
+SECRET
+
+4. In a report dated 23 June 1964, a Pan American Airways employee who spends considerable time in Haiti advised another office of this Agency she attended a cocktail party in Port-au-Prince in late November 1963. Other guests included Jean and Suzanne SAUREL and George and Jeanne DEMCHRENSHILDT. This office has previously furnished the Federal Bureau of Investigation with information concerning the DEMCHRENSCHILDT's (file 100-32965) who were acquainted with Lee Harvey OSWALD. Although it was not clear to Source if Subject and his wife were personally acquainted with the DEMCHRENSCHILDT's, the SAURELS provided the following information about George DEMCHRENSCHILDT at the party:
+
+a. He is of Polish descent or citizenship.
+
+b. At the time of the KENNEDY association, he had a $100 thousand contract with the Haitian Government to explore the country's natural resources.
+
+c. He is paid to be a geologist.
+
+d. It is requested that the above information not be disseminated further without the prior approval of this Agency.
+
+CBL-316/00444-65
+
+RID/CE: JMA/JB/sb
+
+Based on: MDM 469-64 (Marilyn Wilcox) [06] (Mrs. A. LEVEQUE Bernadine) [22] (HTPA 1414 (EVLEMON-5)) [01] extract of DCE 17071 (WILCOX) provided by Paul Hartman, CI/EA [06]
+
+NOT TO BE DISSEMINATED FURTHER OR EXHIBITED TO ANYONE WITHOUT PRIOR PERMISSION OF THE CENTRAL INTELLIGENCE AGENCY,
+
+SECRET
+
+.20
+
+<table><tr><td>L</td></tr><tr><td>5/1V</td></tr></table>
+
+RÉPRISÉ DE LA REDEVANTE
+Background and Use Only
+Do Not Reproduce
+
+<table><tr><td>SECRET</td></tr></table>

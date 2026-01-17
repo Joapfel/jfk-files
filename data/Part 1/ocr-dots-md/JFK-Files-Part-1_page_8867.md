@@ -1,0 +1,110 @@
+# JFK-Files-Part-1_page_8867.png
+
+Convert to Markdown14-00030
+
+<table><tr><td>ORIG.</td><td>C.HALLIWELL</td></tr><tr><td>UNIT.</td><td>WH/1</td></tr><tr><td>DST.</td><td>4523</td></tr><tr><td>DATE:</td><td>25 MARCH 1965</td></tr></table>
+
+☐ INDEX
+☑ NO INDEX
+☐ FILE IN C5 FILE NO. 201-253203
+
+MESSAGE FORM
+
+<table><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table>
+
+ROутИНг
+
+<table><tbody><tr><td colspan="2">S E C R E T</td></tr><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
+
+TO : MEXICO CITY
+
+FROM: DIRECTOR
+
+CON: WH 8
+
+INFO C1% A, JR., FILE
+
+<table><tbody><tr><td>5 Jan 85</td><td>8:00</td></tr></tbody></table>
+
+TO
+
+MEXI
+
+LICOLIC
+
+REF: DIR 90817
+
+CIT D1:
+
+96004
+
+PLS FORWARD UPDATED BIO DATA PRQ I SINCE OCT 1959
+AND NEW PRQ II EDWARD G. TICHBORN.
+
+END OF MESSAGE
+
+WH Comment: Ref-KUDESK reprocessing clearance on Subj.
+
+DESMOND FITZGERALD
+CHIEF . WHD
+
+W. J. KAUFMAN
+CHIEF WH/1
+
+COORDINATING OFFICER
+
+SECRET
+
+AUTHENTICATING OFFICER
+
+REPRODUCTION RESTRICTED BY OTHER THAN INFORMATION OFFICER'S PERMISSION
+
+5
+4
+3
+2
+1
+
+SEPARATION
+
+RELAXING OFFICER
+
+COOPERATING OFFICER
+
+CONFIDENTIALITY NOTICE
+
+SECRET
+
+CONFIDENTIAL AND PROPRIETARY INFORMATION FOR USE ONLY
+
+SIGNATURE
+
+DATE: 20-12-2020
+
+CPT 272503 (SF 2020-25) NTC 550011 10/2020
+
+4/2021 12:13 PM
+
+4/2021 12:13 PM
+
+CPT 272503 (SF 2020-25) NTC 550011 10/2020
+
+CPT 272503 (SF 2020-25) NTC 550011 10/2020
+
+CPT 272503 (SF 2020-25) NTC 550011 10/2020
+
+CPT 272503 (SF 2020-25) NTC 550011 10/2020
+
+CPT 272503 (SF 2020-25) NTC 550011 10/2020
+
+CPT 272503 (SF 2020-25) NTC 550011 10/2020
+
+CPT 272503 (SF 2020-25) NTC 550011 10/2020
+
+CPT 272503 (SF 2020-25) NTC 550011 10/2020
+
+CPT 272503 (SF 2020-25) NTC 550011 10/2020
+
+CPT 272503 (SF 2020-25) NTC 550011 10/2020
+
+CPT 272503 (SF 2020-25

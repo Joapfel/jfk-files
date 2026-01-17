@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_8477.png
+
+Convert to Markdown013.
+
+LOGUINOV, Mrs. Valentin
+
+November 7, 1967. 1100 hours.
+
+Source: My wife.
+
+French Club. My wife talked to Loguinov at the French Club. There seemed to be considerable doubt about their communication. Loguinov might have said that she had just played tennis, or was about to play tennis, or plays tennis occasionally. It seems likely that she did not play and was not about to play. She probably came to the club for the steam bath. She was in a hurry, possibly to leave the club.
+
+Charles
+
+Mrs/ Small. (Wife of American communist with jewelry shop on Niza). Sodn for the first time at the French Club. She was practicing alone with a ball boy. She had no partner.
+
+COMMENT
+
+It is possible that Mrs. Loguinov and Mrs. Small are part of a communications channel. Loguinov's haste might have been due to the unexpected appearance of my wife and the risk that Small might arrive while my wife was still in the vicinity.

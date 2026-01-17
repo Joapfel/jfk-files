@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_6104.png
+
+Convert to MarkdownFOR MANDATORY REVIEW OF CLASSIFIED MATERIAL IN
+DOCUMENT OF THE NATIONAL ARCHIVES AND RECORDS SERVICE
+
+1/8/76
+
+Date of Request.
+
+Name of Depository: JOHN F. KENNEDY LIBRARY
+Address: 230 TRAPEZIO ROAD
+WORTHAM, MA 02154
+Phone #: 617-223-7250
+
+I hereby request mandatory review of classified material (see attached list) in the records/document collections of
+
+EVALUATION SECURITY FILES
+(record group or collection)
+
+In accordance with the provisions of Executive Order 11652, Section 5 (c).
+
+Name of Requestor: Richard Boyle Kaboney
+Address: 1019 S. Mill Ave.
+Tempe, Arizona 85282
+Phone #:

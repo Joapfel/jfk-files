@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_8640.png
+
+Convert to MarkdownOleg said that Val had not arrived as far as he knew. I said I had been training to get ready for Val. I wanted my revenge for last week.
+
+Oleg seemed amused by this and immediately asked if I would like to play with him since Val was not here. I agreed. We found a court and played for about one hour. Olegg won 6-3, 6-4.
+
+Oleg is very athletic in appearance and played and excellent game for someone who has played for only two years (if this is true). He has enormous muscular thighs. It escapes me what sport would produce this, other than weightlifting. Weightlifting is out since his upper torso, though muscular, is far less developed than his legs. Basketball does not seem likely to produce his particular kind of development.
+
+Oleg is pleasant. Speaks excellent Spanish. Has not made any political comments (yet!). Seems more intelligent, but less extroverted than Val.
+
+Oleg asked if I were with the American Embassy. I answered "no, I have my own business". It was then that he asked if I knowew another "Bill" who is in private business and who has an army rank. Oleg thought the other person was a major.
+
+I left at this point. Oleg stayed on to play some more. My wife could not see him and it is not therefore, known with whom or how much longer Oleg did play. Val was not seen during the course of the morning. The Pintos are in San Francisco.

@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_5704.png
+
+Convert to Markdown# Intelligence Information Report
+
+<table><tr><td>CONTROLLED DISSEM</td><td>C-O-N-F-I-D-E-N-T-I-A-L</td><td>NO DISSEM ABROAD</td></tr></table>
+
+**COUNTRY** Honduras/El Salvador
+
+**REPORT NO.** OO-B-321/26113-69
+
+**SUBJECT** Honduran Government Interest in Purchasing Weapons to Arm Reserves/ Alleged Purchase of Combat Aircraft by Honduran Official
+
+**DATE DISTRIBUTION** 11 SEP 1969
+**PAGES** 1
+**REFERENCES (2356)** C-DC9-55300
+
+**DATE OF INFO.** Aug 69 and earlier
+
+**PLACE & DATE ACQ.** Tegucigalpa/Aug 69
+
+THIS IS UNEVALUATED INFORMATION
+
+**SOURCE** Naturalized US citizen who worked and lived in Honduras for a number of years. He has social and business contacts with officials of the government, the armed forces, and the business community.
+
+[This report was developed by an Army representative assigned to the office of preparation.]
+
+1. During early August 1969 a close business associate met with Colonel (fmu) Coreccolli (phonetic) and members of the Honduran Army General Staff. Colonel Coreccolli and members of the Staff were alarmed by the continuing reports of arms and ammunition stockpiling by El Salvador. These individuals were of the opinion that the armament of the Honduran Armed Forces was inferior to that of El Salvador.
+
+2. During the meeting Colonel Coreccolli inquired about the possibility of a legal or illegal purchase of approximately 2500 M-1 rifles and an undetermined amount of .30 caliber ammunition from US sources. He explained that the weapons were needed to arm personnel with prior military service in case of a renewal of hostilities with El Salvador. These individuals were considered to be a reserve for the Honduran Armed Forces.
+
+3. My associate explained to Colonel Coreccolli that under the circumstances the US Government would not issue an export permit for the armaments. As for illegal sources my associate disclaimed knowledge of any. He also considered the transportation problem. Colonel Coreccolli stated that if acquired the weapons could be smuggled aboard a Honduran refrigeration ship which was anchored in the Miami River at that time. Following this Colonel Coreccolli closed the meeting indicating that he was going to explore other possibilities.
+
+4. Following the meeting my associate had a conversation with Rigoberto Sandoval, a member of the Planification Board. Upon being informed of the meeting, Sandoval warned my associate to be careful in any dealings with Colonel Coreccolli, since he was known as a corrupt government official, a "thief". Sandoval stated that this was the opinion of President Oswaldo Lopez Arellano who distrusted Coreccolli. A few days later my associate learned that Ricardo Zuniga, Minister of the Presidency, has been given the task of purchasing arms and ammunition for Honduras.
+
+5. Mauricio Hernandez, wealthy owner of a lumber mill in Honduras, visited the US during the first part of August 1969. He told me that he was going to purchase two "combat aircraft" for the Honduran Government. He did not specify the type nor the source of the aircraft. About a week later I had a telephone conversation with Hernandez, during which he told me that he had been "successful" in his purchasing mission. He did not give any details.
+end-
+
+<table><tr><td>US</td><td>YES</td></tr></table>
+
+<table><tr><td>C-O-N-P-I-D-E-N-T-I-A-L</td></tr></table>
+
+<table><tr><td>GROUP I<br/>Approved U.S. agencies<br/>Coordinating and Disseminating</td></tr></table>
+
+<table><tr><td>S</td><td>YES</td></tr></table>
+
+The dissemination of this document is limited to civilian employees and active duty military personnel within the intelligence component of the USIB member agencies, and to those senior officials of the member agencies who must act upon the information. However, unless specifically controlled in accordance with paragraph B of DCID 1/7, it may be released to those components of the departments and agencies of the U. S. Government directly participating in the production of National Intelligence. IT SHALL NOT BE DISSEMINATED TO CONTRACTORS. It shall not be disseminated to organizations or personnel, including consultants, under a contractual relationship to the U. S. Government without the written permission of the originator.

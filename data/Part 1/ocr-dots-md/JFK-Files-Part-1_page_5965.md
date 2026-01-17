@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_5965.png
+
+Convert to MarkdownSECRET
+(see attached form)
+
+L
+
+<table><thead><tr><th>TO</th><th>ROOM NO.</th><th>DATE RECEIVED</th><th>OFFICER'S INITIALS</th></tr></thead><tbody><tr><td>C/EX/S</td><td></td><td>25 MAY 1960</td><td>G</td></tr><tr><td>Fatch/P.</td><td>X-3627</td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td>RID/DP</td><td></td><td></td><td></td></tr><tr><td>EX/S</td><td></td><td>J.L.</td><td></td></tr><tr><td>RI/AH<br/>RI/FI</td><td></td><td></td><td></td></tr><tr><td colspan="4">COORDINATING OFFICERS</td></tr><tr><td>NAME</td><td>OFFICE</td><td>AUTHENTICATING OFFICER</td><td>TITLE</td></tr><tr><td></td><td></td><td>Eugene J. Walsh</td><td>EX/C</td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>RELEASING OFFICER</td><td>TITLE</td></tr><tr><td></td><td></td><td>Robert W. Crowell</td><td>O/EX/S</td></tr><tr><td>ENCLOSURE</td><td>ABSTRACT</td><td colspan="2">RID USE ONLY</td></tr><tr><td></td><td>INDEX</td><td>FILE NUMBER</td><td>201-191098</td></tr><tr><td colspan="2">DATE MICROFILMED</td><td colspan="2">DOCUMENT DATE<br/>25 MAY 1960</td><td>DOCUMENT NUMBER<br/>RBM 8468</td></tr></tbody></table>"}]

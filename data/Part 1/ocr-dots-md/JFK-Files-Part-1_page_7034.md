@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_7034.png
+
+Convert to MarkdownSECRET
+
+J. GOLITZYN (AELADLE). Note that Mr. Osborne and Dr. Charles Bohrer both agreed that AELADLE be added to the watch list (memos attached). Both Mr. Friedlander and I sharply disagreed with this viewpoint. Mr. [Shaffer] requested that I check it out with Mr. Angleton. Mr. Angleton later emphatically concurred with withholding AELADLE's name from the list. I passed this to Mr. [Shaffer] later in the day.
+
+K. BIMBLI (AEPLEBE) an Albanian who lives in Chicago. He is very anti-CIA but not anti-Soviet. No passage.
+
+L. VAGUINE (AECRUTCH) phycisist, very stable who is doing well. No passage.
+
+M. TEREKHOV (AESTUNT) space scientist in Texas. Very stable. He has rich relatives in Pittsburgh. No passage.
+
+N. KOCHANSKI (BEGOOD). Polish who is in Texas. He was recruited in Oslo. He works in the Dallas Medical Center. He is vindictive and unpredictable. He has a son in Poland. BEGOOD recently wrote President Nixon about his son. He refuses to meet with CIA or the FBI. It was decided to add his name to the list for the Secret Service.
+
+O. SERegin who CIA is in touch with came to the U.S. under the Refugee Act. CIA has no responsibility but we are in contact with him in New York. His wife is in Russia. His name will be passed.
+
+P. MARININ also came into the U.S. under the Refugee Act. He has a wife in Bulgaria. CIA is in contact with him in Buffalo, New York. His name will be passed.

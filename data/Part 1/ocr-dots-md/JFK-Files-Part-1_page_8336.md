@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_8336.png
+
+Convert to Markdown26 March 1969
+
+CONTACT REPORT
+
+FROM : Samuel J. KARTASUK
+SUBJECT : Rafael VIDILLLA Ruiz
+
+1. A meeting was held from 1300 to 1445, 25 March 1969 in the Chalupas Resturant located on Reforma, one block fast of Prado Norte. Next meeting is scheduled for 1630, 26 March 1969 at VIPS Restaurant on the Periferico, North of Ejercito Nacional.
+
+2 I parked my car three blocks from the meeting site and arrived in the area at 1255. Subject was already seated at a table waiting. We had lunch and remained there talking until 1445. He mentioned how much he appreciated the two books (in Russian) which I loaned him and said that he was nearly through with the last one. He said he would turn them over to VICTOR. (I had already informed him that he would be meeting a man named VICTOR during my absence). He asked if we could obtain for him the three other books written by the same author who wrote "Cancer Ward". He said "Cancer 'ard" was the second book written by the author. The 1st book was "First Circle", the 2nd was Cancer Ward, the 3rd was "___ ivans", and the last was "Faster ___".
+
+He commented on how favorably impressed he was by the 2nd book. I said I would give VICTOR this information and I thought we could probably turn up with some of them.
+
+2. INFORMATION CONCERNING LOGINOV (P-11,712):
+
+Subject said that he has not (definitely) talked to LOGINOV in over two months. He thought it very strange that LOGINOV has not called him at all. At the last meeting with loginov, LOGINOV told Subject that he was going back to Russia in July 1969, and that he would remain there for at least two (2) years. LOGINOV said that he would probably then go to some other country but had no idea where. Subject did not call LOGINOV and invite him to ANOTHER party on 1 March.

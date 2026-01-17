@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_4964.png
+
+Convert to Markdown<table>
+   <tr>
+    <td rowspan="2"> D 75-120-28 </td>
+    <td> RECORD COPY </td>
+   </tr>
+   <tr>
+    <td> SECRET </td>
+   </tr>
+  </table>
+
+<table>
+  <tbody>
+    <tr>
+      <td colspan="2"> DOC. MICRO. DEPT. NOV 17 1976 </td>
+    </tr>
+    <tr>
+      <td colspan="2"> PROCESADO </td>
+    </tr>
+  </tbody>
+</table>
+
+<table>
+  <tr>
+    <td> A 302470 </td>
+    <td> EIA453 </td>
+  </tr>
+</table>
+
+IN #69101
+
+CARA 31117
+
+SECRET 141988 OCT 76 INTEL
+
+CITE CARACAS 31117
+
+TO: PRIORITY DIRECTOR INFO PORT OF SPAIN, GEORGETOWN, KINGSTON,
+MEXICO CITY, MANAGUA, GUATEMALA CITY, PANAMA CITY, SANTO DOMINGO,
+
+SANTIAGO, Bogota,
+
+MINTEL - INTEL REAM
+
+SUPDATA: ENNAHOO FOR DESK REVIEW: SOURCE PARAS 1-8: WKMAY88/
+WKSCARLET-5 FROM WKSCARLET-8 FROM WKSCARLET-3,
+SOURCE PARA 91 WKMA YOR/WKSCARLET-5 FROM WKSCARLET-3
+FROM 201-0205923. NOT FOR LIAISON. OD OBJECTIVE!
+J.S. INDEX GARCIA, POSADA, MORALES,FOLGAR,
+FILE: 75-128-28. CL. BY 862663.
+
+FILED: 1419088 XAXXX
+
+14 Oct 76
+
+201-299272
+
+7

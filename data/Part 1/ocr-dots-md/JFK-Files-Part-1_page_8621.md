@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_8621.png
+
+Convert to MarkdownOUTGOING
+
+C/VIS-2
+
+AMB
+DCH
+ECA
+CG
+178
+CHRON
+8/sec
+
+Charge:
+
+UNCLASSIFIED
+Classification
+
+Control: 5364
+Date: 1 Oct 1969
+4:40 pm
+
+ACTION: Secstate WASDC
+
+MEXICO 5364
+
+FOR FBI
+
+VIBAS HORSE Valentin LOGUINOV C-3 December 23, 1927
+Moscow, employee of Soviet Embassy in Mexico. Arr.
+New York October 7, 1969 via Air France Flt. 700.
+Dep. New York October 10 via Aeroflot. Accompanied
+by wife, Alexandra LOGUINOVA August 20, 1928 Moscow,
+and son, Dimitri LOGUINOV born 1959.
+
+ACHRIDE
+
+Designated by C/VIS,CWSnider/mnl
+10/1/69
+
+Originality Check: C/VIS,CWSnider
+
+Reference: UICLASSIFIED P.11712

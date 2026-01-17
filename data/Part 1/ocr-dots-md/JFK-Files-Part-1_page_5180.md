@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_5180.png
+
+Convert to Markdown14-0000
+
+<table><thead><tr><td>DISPATCH</td></tr></thead><tbody><tr><td>TO</td><td>Chiof, Latin America Division</td></tr><tr><td>INFO</td><td></td></tr><tr><td>FROM</td><td>Chief of Station, Santiago</td></tr><tr><td>SUBJECT</td><td>RYBAT FUDWELL - Forwarding of Documents</td></tr><tr><td>ACTION REQUIRED · REFERENCES</td><td>Reference: A. SANTIAGO 35326 (HCS-10,772)<br>B. SANTIAGO 35351 (HCS-10,775)<br>C. SANTIAGO 35352</td></tr><tr><td colspan="2">WARNING NOTICE - SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED<br><br>Forwarded herewith are sanitized copies of the documents cited in references.</td></tr><tr><td colspan="2">Distribution:<br>3 - C/LA w/atts h/w<br><br>(REDAV REFERENCED 16)<br><br>GROSS FILM COPY<br>801-2972-74<br>DO NOT DESTROY<br>E3 INPUT</td></tr><tr><td>REDAV REFERENCED 16</td><td>DISPATCH SYMBOL AND NUMBER<br>IICSA-10RRI<br>CLASSIFICATION<br>B P C R D T</td><td>DATE<br>2 November 1976<br>NOMINAL NUMBER<br>200-12-200/1</td></tr></tbody></table>
+
+<table><tr><td>GROSS FILM COPY</td></tr><tr><td>801-2972-74</td></tr><tr><td>DO NOT DESTROY</td></tr><tr><td>E3 INPUT</td></tr></table>

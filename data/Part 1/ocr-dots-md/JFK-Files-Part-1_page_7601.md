@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_7601.png
+
+Convert to Markdown**LOGINOV:** "All right, Miriam, I'll do it for you (i.e., give KUTTLER the visa). But you know, a favor must be repaid by a favor."
+
+**Subject:** "All right...in that case, let me in the name of the company invite you to dinner."
+
+**LOGINOV:** "No, Miriam, I don't mean that."
+
+**LOGINOV** then went on to say that as he had mentioned to her before, he would like her to introduce him to "someone who would be sympathetic to us" (i.e., to the Soviets). **LOGINOV** emphasized that he realized Subject might not agree with this "someone's" ideas, but stated that he knew Subject was the type of person who "had respect for other people's views." Subject said that she replied in a casual, almost flinpant manner that "well, sure, if she met such a person, she'd introduce them." With this the subject was dropped and Subject left.
+
+5. LICOZY-5. Subject on her own initiative began telling me what a terrific guy her boss is. He according to her, has one of the most winning personalities of anyone she has ever met. At the same time he is extremely intelligent and shrewd. "If he can't get what he wants through charm, he does it by pure shrewdness." This is why he is such a successful businessman. In reply to a question about LICOZY-5's background, Subject said he had been born in Poland, was imprisoned by either theoles or Germans just before or during World War II (she was rather vague on this point, and I confined myself to listening), somehow got out and joined the Russians, taking part in the Soviet invasion of Germany. Somehow he had survived all this, made his way to Mexico, where he arrived penniless, and now
+
+4

@@ -1,0 +1,205 @@
+# JFK-Files-Part-1_page_6482.png
+
+Convert to Markdown<table><tr><td>MICROFILMED</td></tr><tr><td>July 2 5 1965</td></tr><tr><td>F.O.B. MICRO F.</td></tr></table>
+
+RESTRICTED - SECURITY INFORMATION
+
+ADDED
+
+To
+PROVISIONAL GUIDE NO. 1
+
+CRITERIA FOR RISKY ASSISTANCE UNDER ESCAPES PROGRAM
+
+Text of tele-conference received from Department July 11, 1952 in amplification of criteria outlined under Provisional Guide #1:
+
+a FEP program is concerned with escapees from Soviet or Soviet dominated areas. In view fact FEP funds are limited and because of legislative history of program priority or preference must be given to more recent escapees such as those who escaped after January 1, 1948. Decisions as to application of fund must also be based on results which can be achieved in terms of basic objectives of program.
+
+In other words we are not distributing a limited relief fund equally among a designated number of people. We are more concerned with those who have escaped more recently than those who have been in the refugee state since World War I or those who were uprooted between September 1939 and January 1, 1948. The date January 1, 1948 is an administrative device which should not be rigidly applied unless later exhaustion of funds increasingly requires this action. Of equal concern to FEP are the results which can be achieved in terms of reestablishment, resettlement, better morale, etc., as between one project and another. We should seek self-liquidating, non-repetitive uses for FEP funds. Avoid to the extent possible acceptance of responsibilities which cannot readily be relinquished. An experience develops which makes the foregoing more objective
+
+REORDER FROM YOUR LOCAL AUTHORIZED DISTRIBUTOR.
+
+REORDER FROM THE LOCAL AUTHORIZED DISTRIBUTOR. GET IT! 07/27/52 pg 109
+
+VINTAGE
+DEBUTS
+AS OF JUNE 1
+WITH NEW PREFACE
+AND INDEX.
+NEW EDITION
+OF THE
+CLASSICS
+OF EUROPE.
+FROM THE
+ORIGINAL
+TEXT
+OF THE
+ORIGINAL
+TRANSLATIONS
+BY
+THE
+AUTHORS
+OF THE
+CLASSICS
+OF EUROPE.
+BY
+JOSEPH
+MICHIGAN
+GOETGLIER
+AND
+JOSEPH
+JACOB
+FARRAUS.
+WITH
+NOTICE
+TO
+CUSTOMERS
+IN
+THE
+NORTH
+AMERICA
+MARKET
+MARKETED
+AS
+THE
+CLASSICS
+OF EUROPE.
+BY
+PUBLISHING
+ASSOCIATION
+FOR
+CLASSICS
+OF EUROPE.
+INC.
+PRESENTING
+THE
+ORIGINAL
+VERSION
+OF
+THE
+ORIGINAL
+TRANSLATIONS
+BY
+THE
+AUTHORS
+OF
+THE
+CLASSICS
+OF EUROPE.
+BY
+JOSEPH
+MICHIGAN
+GOETGLIER
+AND
+JOSEPH
+JACOB
+FARRAUS,
+WITH
+NOTICE
+TO
+CUSTOMERS
+IN
+THE
+NORTH
+AMERICA
+MARKET
+MARKETED
+AS
+THE
+CLASSICS
+OF EUROPE.
+BY
+PRESS
+ASSOCIATION
+FOR
+CLASSICS
+OF EUROPE
+INC.
+PRESENTING
+THE
+ORIGINAL
+VERSION
+OF
+THE
+ORIGINAL
+TRANSLATIONS
+BY
+THE
+AUTHORS
+OF
+THE
+CLASSICS
+OF EUROPE.
+BY
+JOSEPH
+MICHIGAN
+GOETGLIER
+AND
+JOSEPH
+JACOB
+FARRAUS.
+THIS
+EDITION
+IS
+AVAILABLE
+IN
+THREE
+COUNTRIES:
+NORTH
+AMERICA,
+EUROPE,
+AND
+THE
+REST
+OF
+THE
+UNIVERSTY
+OF
+FRANKFURT
+UNDER
+THE
+TITLE
+OF
+CLASSICS
+OF EUROPE.
+GETTING
+STARTED
+ON
+YOUR
+CLASSICS
+OF EUROPE
+TUTORIAL
+WITH
+THE
+EXPERT
+SERVICE
+OF
+THE
+ORIGINAL
+CLASSICS
+OF EUROPE
+AUTHORS.
+CONTACT US
+AT
+CLASSICS-OF-EUROPE@GMAIL.COM
+FOR
+DETAILS
+AND
+TO
+ORDER.
+CONTINENTAL
+U.S.A.
+Tel: 800-96-NOW
+Outside U.S.A.
+ international orders: call 1-800-96-NOW
+
+# RESTRICTED - SECURITY INFORMATION
+
+ADDENDUM
+
+To
+PROVISIONAL GUIDE NO. 1
+
+## CRITERIA FOR RISKY ASSISTANCE UNDER ESCAPES PROGRAM
+
+Text of tele-conference received from Department July 11, 1952 in amplification of criteria outlined under Provisional Guide #

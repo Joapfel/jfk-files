@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_5880.png
+
+Convert to MarkdownSECRET
+
+Case No: 67378
+
+8 April 1952
+
+in this part of the community. She stated that everyone seemed
+to have a good word for both SUBJECT and his wife and she knew
+of nothing derogatory in the regard. She added that Mrs John
+MONROE, 2262 Summit Street, knew the SUBJECT and his wife.
+
+On 3 April 1952, Mrs John MONROE, was interviewed and stated
+that she had known the SUBJECT's wife since they were youngsters
+living in Hilliard, Ohio and that she has known SUBJECT since he
+and his wife married nearly thirty years ago. The ------'s were
+wonderful people and well thought of by everyone. SUBJECT was for-
+merly employed by Arch Alder's Chevrolet Garage in Hilliard, Ohio
+after which he returned to Ohio State University. He was later em-
+ployed by O.S.U. in some capacity, becoming Assistant Director of
+the Research Foundation. Informant suggested another person that
+was acquainted with the ------'s, Mrs Harry MYERS, 6500 Dublin
+Road, north of Columbus, Ohio.
+
+On 3 April 1952, Mrs Harry MYERS, was interviewed and stated
+that she had known the ------'s and that they were very close
+friends. She knew of nothing derogatory regarding SUBJECT and
+stated that she considered the ------ family as the highest type
+of people. SUBJECT's son, Ed, is engaged in some type of Engin-
+eering work, believed to be in Detroit, Michigan
+
+**AGENTS NOTE:**
+
+It was determined that Arch Adler, SUBJECT's former employer,
+and personally known to the writer, is presently confined to a
+hospital and not available for interview,
+
+Norman ARMENTROUT, Manager, Alder's Garage, Hilliard, Ohio
+stated that SUBJECT was the best mechanic they had ever had in
+the garage. Informant stated that he has heard Mr. Adler make
+this statement many times since SUBJECT left in 1937. He further
+stated that SUBJECT and his wife had a fine reputation and were
+patriotic Americans. Informant had attended high school with
+SUBJECT's son Ed, whom he described as a first rate fellow, who
+displayed that he came from good people.
+
+CREDIT AND CREDIT REFERENCES;
+
+At Columbus, Ohio:
+
+The records of the Ohio Credit Bureau, 83 S. 4th Street,
+examined on 7 February 1952, revealed that SUBJECT _arried Helen
+SEnRET_"}, {"bbox": [1003, 2521, 1501, 2609], "category": "Text", "text": "SECRET"}]

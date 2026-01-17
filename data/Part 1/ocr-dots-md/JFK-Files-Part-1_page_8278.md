@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_8278.png
+
+Convert to MarkdownJuly 9, 1969
+
+Contact Report
+Subject: Jimmy SABORE
+Date of meet: July 7 in Subjects car and Insurgentes Sabornos Far
+
+1. A meet was prearranged with Subject for July 7 at Del Paseo at 1400 hrs. Subject phoned to our office in the course of the morning to ask confirm the arrangement. ( FERNALD was trying to reach Subject to change the place of meet, but he was not able to reach him). Subject did not show up at the Del Paseo and after waiting 40 minutes I went home ( his office ). At 1535 hrs I was infoed by the office that Subject called several times and his latest statement was that he would be in front of the Cine Latino ( across the Reforma from our Embassy ). I came there on time but Subject was not around. Due to heavy rain I was bound to stay there and at 1630 hrs Subject showed up in an impressive Pontiac Boneville, blue with light top, plates 1968. HBD 755, Texas. Hemisfair (black). Subject waved to me to get in the car.
+
+In the car Subject stated to me that he goofed, because he went to the restaurant where we met twice previously and after some waiting and phoning he looked at his notebook and realized that he was at the wrong place. He apologized. Then, Subject stated that he had to return the Boneville and take another car and he asked me to have a ride with him. Subject took the car to Leibnitz and parked it in front of the apt building at 297. He excused himself for few minutes took newspapers,xx2 a small bundle and 2 miniature bottles of some liquor and entered the apt. About 5 minutes later he returned and we entered an old, heated up Valient -without license plates and the case is hard to tell.
+
+During the first ride Subject told me that LOG phoned him on Friday July 4 and told him that they would have to postpone their next scheduled for the next day because he (LOG) would be out of town on Sat and Sun. I called to meet with Subject on Mon or Tue.

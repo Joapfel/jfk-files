@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_4396.png
+
+Convert to MarkdownSan Pedro Sula, Honduras . Cntro America.
+
+Marzo 18-1966.-
+
+ER: Manuel Artime
+
+Director Frente Revolucionario Cubano en el Exilio.
+Miami Florida E:U:A.-
+
+Van estas lineas para desearle toda clase de ventura personal y al mismo tiempo ,
+exitos en el Honrozo cargo que esta depositado en sus manos,para destruir defi-
+nitivamente de Cuba al sanguinario Gobierno Comunista de Fidel Castro.-
+
+A continuacion quiero manifestarle lo siguiente: En esta Ciudad de San Pedro Sula
+vive una familia de Idiologia Marxistá, además mandaron a presentarse a los gobiernos
+un Hijo de ellos a prestar sus servicios al Gobierno Comunista de la Habana
+en Marzo de 1961, este peligroso Comuniata Internacional se llama Eliceo Mejía Ca-
+brera O Rovelo, según tenemos datos esta siendo entrenado en diferentes ramas de
+sabotage y Terrorismo es Hombre de toda confianza del Sanguinario Jefe del G-2 Cu-
+no Ramiro Valdez.
+
+Esta family sirviendo como enlace del Communismo Internacional para varios Paices
+de Centro America y la America del Sur, entre los cuales se encuentra Guatemala-
+HONDURAS- Panama- Venezuela-Colombia-Peru-Bolivia.-Dando Consignas para Derrocar
+a estos Paices Democraticos de America y ponerlos a las ordenes de Moscu- Pequin y
+la Habana, el Pasaporte lo tiene con nombre distinto lo mismo que apellido y Nacio-
+nalidad también, a viajado a Paices Comunistas tales como ,Praga-Moscu- Pequin.-
+
+Sus viajes para nuestra América los hace vía México, Páez éste que se presenta para
+la infiltración Comunista en nuestra América, UD: SR. Artíne lo comprende que hace
+
+Aqui esta otra Informacion importante para UD: Con ordenes de Eliceo Mejía Rovelo,
+O Cabrera quien se encuentra en la Habana, se han traslado a fijar su Recidencia
+a los Angeles Estado de California E:U:A: tres primas Hermanas de este Peligroso Co-
+munista Internacional, llamadas Nora- Oneyda y Marina Amaya Cabrera, las tres cum-
+plieron ordenes de Eliceo desde la Habana para dicho viaje, el dinero para sus pa-
+sages en Avion y demás gastos en este Consulado se les dio vio su muy famoso primo .
+Hermano Eliceo desde la Habana. También tenemos noticias de existe correspondencia
+desde la Habana con ellas tres, pero con nombre y dirección distinta, cosa que les
+va ser difil controlar estas cartas, estas úres Comunistas o se encuentran allí
+su los Angeles ximénezxxnxxx son muy vivas y astutas.
+
+"Tenen ordenes de su primo hermano Elicuo de la NEW Habana que vijilen todas las
+Actividades de la Agencia Central de Inteligencia (Cia) y del F-B-I.- También tie-
+nen Ordenes de su primo hermano Eliceo de negar bajo todo punto de vista que son
+primas Hermanas de él y que todo eso quede en el misterio más grande ,para burlar
+una vez más a las Actoridades de los E:U:A.- Debido que si la agencia Central de
+Inteligencia (CIA) llega a saber ese parentesco existente con el serían extrañadas
+de los E:U:A.-y el perdería el control que tiene por el momento con ellas tres, las
+que ellas mandan van a dar directamente a manos del Comandante Raúl Castro, para me-
+yor Información suya.-

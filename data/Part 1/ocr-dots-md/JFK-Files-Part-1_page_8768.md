@@ -1,0 +1,214 @@
+# JFK-Files-Part-1_page_8768.png
+
+Convert to Markdown505
+
+Buss. Visas.
+
+Buss. Visa.
+
+DE/65/SU 1621
+
+DIPLOMATIQUE/DIPLOMATEK/DIPLOMATIK
+VISA
+
+de transit / over transit / for transit
+
+Valuable pour
+
+C/Courrier d'envoiux/ 
+
+N° 183
+
+Date du/Afgegeben-ep/(s)ssued on 13 .7.1964
+
+Créale est valable pour un唯一 transits)
+
+P.O. Box 13, Paris, Cité de la Poste, SÉRIE A
+
+This visa is valid for one/two transit(s)
+
+Télétéléphone
+
+N°. de client 18.10.19
+
+Lors de la cession...
+
+Comme votre passager, il vous faudrademment être immatriculé dans le registre des clients et être établi au registre des clients.
+
+SÉRIE B
+
+A MUSÉUM DE l'ETAT
+
+Lundi, juillet 13
+
+Jusqu'à今後
+
+SÉRIE C
+
+A MUSÉUM DE L'EXTERIEUR
+
+SÉRIE D
+
+A MUSÉUM DE L'ENFER
+
+SÉRIE E
+
+A MUSÉUM DE L'ORIGINE
+
+SÉRIE F
+
+A MUSÉUM DE L'OBLIVION
+
+SÉRIE G
+
+A MUSÉUM DE L'ONTOUSANCE
+
+SÉRIE H
+
+A MUSÉUM DE LA REPRISTNATION
+
+SÉRIE I
+
+A MUSÉUM DE L'IRRITATION
+
+SÉRIE J
+
+A MUSÉUM DE L'APERTURE
+
+SÉRIE K
+
+A MUSÉUM DE L'ACCIDENT
+
+SÉRIE L
+
+A MUSÉUM DE L'ORIENTALE
+
+SÉRIE M
+
+A MUSÉUM DE L'INTERNATIONAL
+
+SÉRIE N
+
+A MUSÉUM DE L'OUTRE-MER
+
+SÉRIE P
+
+A MUSÉUM DE L'ORIGEM
+
+SÉRIE Q
+
+A MUSÉUM DE L'EVOLUTION
+
+SÉRIE R
+
+A MUSÉUM DE L'ECHEANCE
+
+SÉRIE S
+
+A MUSÉUM DE L'AVANT-Garde
+
+SÉRIE T
+
+A MUSÉUM DE L'ESTIMATEUR
+
+SÉRIE U
+
+A MUSÉUM DE L'IMPÉRDICIBLE
+
+SÉRIE V
+
+A MUSÉUM DE L'EVOLUTION
+
+SÉRIE W
+
+A MUSÉUM DE L'ORIGEM
+
+SÉRIE X
+
+A MUSÉUM DE L'ORIGEM
+
+SÉRIE Y
+
+A MUSÉUM DE L'EXTRATENSIONNELLE
+
+SÉRIE Z
+
+A MUSÉUM DE L'EXTRAORDINAIRE
+
+SÉRIE U
+
+A MUSÉUM DE L'ORIGEN
+
+SÉRIE V
+
+A MUSÉUM DE L'ORIGINALE
+
+SÉRIE H
+
+A MUSÉUM DE L'EXPERIMENTAL
+
+SÉRIE O
+
+A MUSÉUM DE L'ORGANISATION
+
+SÉRIE T
+
+A MUSÉUM DE L'OUTRE-MER
+
+SÉRIE R
+
+A MUSÉUM DE L'ORIGEN
+
+SÉRIE S
+
+A MUSÉUM DE L'ORIGEN
+
+SÉRIE P
+
+A MUSÉUM DE L'ECHEANCE
+
+SÉRIE T
+
+A MUSÉUM DE L'INVOLONTÉ
+
+SÉRIE N
+
+A MUSÉUM DE L'INTERPRÉSENTATION
+
+SÉRIE M
+
+A MUSÉUM DE L'ORIENTATION
+
+SÉRIE J
+
+A MUSÉUM DE L'ACCIDENT
+
+SÉRIE G
+
+A MUSÉUM DE L'INACCESSIBILITÉ
+
+SÉRIE F
+
+A MUSÉUM DE L'INFÉDICIBILITY
+
+SÉRIE I
+
+A MUSÉUM DE L'INCENDIATION
+
+SÉRIE K
+
+A MUSÉUM DE L'IMPOSSIBILITÉ
+
+SÉRIE L
+
+A MUSÉUM DE L'INSITEUR
+
+SÉRIE H
+
+A MUSÉUM DE L'INTERPRETATION
+
+SÉRIE D
+
+A MUSÉUM DE L'INVOLUTION
+
+S

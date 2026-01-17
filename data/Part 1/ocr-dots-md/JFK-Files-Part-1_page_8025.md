@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_8025.png
+
+Convert to Markdown14-0000
+
+CONFIDENTIAL
+
+Subject: Communist Activity Against Proposed "Via Cuba" Canal
+
+Report No: 11CH-913
+Date of Information: 10-20 December 1954
+Place Acquired: Habana, Cuta
+Date Acquired: 10-20 December 1954
+Evaluation: B-3
+Date of Report: 28 December 1954
+Source: Controlled American
+
+1. On 9 December 1954 the Servicio do Inteligencia Militar (SIM, Cuban Military Intelligence Service) received information that the Partido Socialista Popular (PSP, Cuban Communist Party) had plans to launch a strong anti-Government campaign based on the subject of the proposed "Via Cuba" canal. The PSP planned to remain behind the scenes and to use as many elements of the opposition as it could to sponsor its propaganda line that the present Government had sold out to the United States and that the proposed canal was merely an extension of the Panama Canal. Groups from the Ortodoxo Party (Partido del Pueblo Cubano [Ortodoxo]), led by Naúticos de la Revolución, reportedly collaborated with the PSP in the planning of the protest campaign against the canal. Cuban intellectuals and professional men, sympathetic to Communism or connected in one way or another with the PSP, were to be the ones who would launch the campaign, stressing the selling-out-of-sovereignty theme and the need for a popular referendum before any Cuban government made any treaty or agreement affecting the territorial integrity of the nation.
+
+2. On 11 December 1954 the Cuban press published an article concerning a call made by Max LESNÍK, in the name of the national executive committee of the Ortodoxo Youth, to all youth organizations, including the Juventud Socialista (JS, Cuban Communist Youth organization) and other organized centers of public opinion to attend a meeting at radio station C.O.C.O. on 16 December 1954 in order to join in the protest against the Government's plan to build the "Via Cuba" canal. On 16 December 1954, at nine o'clock in the evening, approximately 85 persons met at radio station C.O.C.O. in answer to LESNIK's call on, in accordance with instructions from the PSP. About 75 of these persons were Communists, representing "barrio" (ward) committees of the PSP or the JS in Habana or Communist labor syndicates, and the remainder were Ortodoxo members, many of whom had had close ties with the Communists in the past. Among the latter were Lesnik, Francisco CAÑEJO, Javier LEONARD, and Mario RIVADILLA. Present also was Juan VÁZQUEZ Rodríguez, owner of the radio station and recently elected representative on the Partido Revolucionarioista (PR), ticket, who advised a SIN officer at the meeting that he had not permitted the meeting to go on the air after learning of the Communist infiltration and had only allowed the participants to use of the station's hall because José PARDO Llada, radio commentator and journalist, had made such a commitment to LESNIK and he could not let PARDO Llada down.
+
+Classification
+
+FORM NO.: 81-59
+JUBILÉNCIAS 50 AÑOS
+
+3

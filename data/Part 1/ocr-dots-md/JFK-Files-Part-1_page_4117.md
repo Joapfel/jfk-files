@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_4117.png
+
+Convert to MarkdownSECRET
+
+26 August 1965
+
+MEMORANDUM FOR THE RECORD
+
+**FROM :** AMBIDDY/1 - 23 August 1965
+**SUBJECT:** AMBIDDY/1 discussions with General Anastasio SOMOZA, President SCHICK and other Nicaraguan officials, 24 Jul-20 Aug 1965.
+
+1. A/1 first met with General SOMOZA 27/28 July. The following points were made in these discussions:
+
+a. General SOMOZA said the State Department is making an investigation of how much money he is using to control the government and win the next presidential elections. SOMOZA told A/1 that he intended to run and fully expected to win the election, but would not need to buy any votes. He asked A/1 to please tell "Washington" that State is very clumsy and if they really want to know anything they should call on the Agency, or the FBI, either of which is much more effective. SOMOZA said everybody in Managua knows about State's efforts to block his candidacy and are laughing at them.
+
+b. SOMOZA said he was meeting Daniel ODUBER of Costa Rica at the border shortly, and they would make a "non-aggression pact" agreeing that neither will make trouble for the other's campaign for election to Presidency. ODUBER had asked for the interview. SOMOZA told A/1 that he thought ODUBER had made a "live and let live" agreement with the Communists, and that at their meeting, he would demand from ODUBER a public denunciation of the Communists to be followed by effective control measures against them.
+
+c. The MRR will be allowed to build and operate a small boatyard for construction, maintenance and repair of shrimp boats at Bluefields without SOMOZA or the Nicaraguan Government to be put into the proceeds. This is part of A/1's community development program, aimed at developing a large fishing cooperative based on Bluefields which will be self-sustaining and profitable for the members and the local economy. SOMOZA also approved continuation of the basic education program being conducted by A/1's five man contingent at the old Monkey Point base and eventual development of that area as a rice-growing cooperative for the benefit of the local Indians.
+
+SECRET

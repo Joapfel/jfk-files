@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_5943.png
+
+Convert to MarkdownWatch Officer was also asked to immediately phone the Wiesbaden Com-
+municator who in turn would contact TOCHENSKY and both of them would
+go to their office.
+
+8. At approximately 1900 hours LAPOLLA contacted me at home from the Signal Center and informed me that an EIA and other information was in from [Stockholm]. I told him to stand by and I would immediately come in. Based on [Stockholm's] cabled statement that Martin K. HOODINE (Chief of Station, Helsinki) was escorting subject to the United States, I told LAPOLLA not to alert MUCHANE. I arrived at the office at 1930 hours and immediately dispatched the Guard Sergeant to buy certain types of foods and magazines that [Stockholm] asked to be put aboard the United States-bound aircraft. We contacted TOCHENSKY and ascertained that EAOB was in a state of immediate readiness. David M. MUELFALL (COS/KUSODA Office) then arrived with IDENTITY A. IDENTITY A was given a general briefing on the mission and his responsibility following which he and LAPOLLA took off immediately for Wiesbaden. They took with them the purchases of the Guard Sergeant.
+
+9. I then proceeded to the home of Ronald N. CORBANE (COS Lawyer) where we were guests for dinner. At approximately 2200 hours I received a call from LAPOLLA that subject-and family had arrived, the turnover was made, and that the EAOB aircraft was airborne at approximately 2150 hours. I telephoned this information to HENTHAM.
+
+10. At approximately 2245 hours I received a call from the Signal Center Watch Officer who relayed to me the following message from the Wiesbaden Communicator. That message stated the EAOB aircraft was immediately returning to wiesbaden because of a sick passenger. Immediately thereafter I received a call from LAPOLLA who was at the quarters of Arthur G. DREIBELIS (EAOB) in Wiesbaden. LAPOLLA stated that he had gotten hold of the Air Base Flight Surgeon and was proceeding to the Air Base. He knew at that time no other details. I told him Chester E. PAGERLUND (COS Medical Officer) and myself would leave immediately for Wiesbaden Air Base.
+
+11. PAGERLUND was in attendance at the same dinner party and we departed immediately for the Air Base. Upon arrival at approximately 2300 hours the EAOB aircraft had already landed and maximum security provisions were observed in the area. Air Police had the "Hangar 34 Area" blocked off two blocks in either direction.
+
+12. TOCHENSKY met me outside the building and informed me that immediately after take-off subject's six-year-old daughter had become extremely airsick and suffered respiratory difficulties. She was administered oxygen. The mother became hysterical and the father demanded that the aircraft immediately be returned to its point of
+4/19/90
+
+4/19/90

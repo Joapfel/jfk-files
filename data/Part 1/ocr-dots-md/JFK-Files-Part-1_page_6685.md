@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_6685.png
+
+Convert to MarkdownCOPY
+
+Querido Dr. Guhart:
+
+En mi carta del 24 del presente, se me olvido adjuntar el sobre para la carta que usted va a escribir a Rene. Este sobre adjunto, a esta ha sido especialmente preparado y es esencial para la disposicion de comunicaciones que nosotros hemos discutido.
+
+Le ruego, por favor use el sobre adjunto para mandarle a Rene las dos páginas que le mande a usted el 24 de Junio.
+
+Otra vez, le agradesco muchisimo por su asistencia. Espero anciosamente mi proximo viaje a Nuevo Orleans para visitar con usted otra vez.
+
+Sincerely,

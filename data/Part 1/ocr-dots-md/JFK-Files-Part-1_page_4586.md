@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_4586.png
+
+Convert to MarkdownSECRET
+
+13 FEB 1959
+
+TO : Director
+Federal Bureau of Investigation
+Attention: Mr. J. J. Indich
+
+FROM : Deputy Director, Plans
+
+SUBJECT : Mollie BLOCK; Morris BLOCK
+
+1. The following information on Subjects has been received from the Dutch Internal Security Service (BVD).
+
+2. On 6 November 1958 Mollie BLOCK (born 6 November 1911 in New York), holder of American passport No. 116706, left Schiphol Airport in Amsterdam on a KLM flight bound for Moscow via Warsaw. She traveled with her child Johanna Morris BLOCK, born in 1950, who was still to be in possession of a Greek passport. Mrs. BLOCK had originally planned to fly to Moscow on 2 September, but her trip was postponed by the circumstances outlined below.
+
+3. On 30 August 1958 Morris BLOCK, husband of Mollie BLOCK, arrived at Amsterdam on a KLM flight from Montreal. BLOCK was carrying American passport No. 921617, issued 12 April 1956 but changed by his to read 12 April 1958 so that it would appear to be still valid. Morris BLOCK was refused entry to The Netherlands on the basis of his falsified passport. The American Consulate in Amsterdam validated his passport for a single return trip to New York, and he was sent back to New York on a KLM plane at 2359 hours on 30 August 1958.
+
+4. Morris BLOCK was born in New York on 30 March 1920; he is a居民 of New York City, and his home address was given as 250 Cordes Place, Brooklyn, New York. BLOCK's passport carried the following changes:
+
+England IN via London Airport 23-7-1957
+GUT via Dover 21-7-1957
+IN via Dover 16-10-1957
+GUT via London Airport 16-10-1957
+
+France IN via Paris 5th-7-1957
+GUT via Strasbourg 25-7-1957
+
+SECRET
+
+CS COPY
+
+301-19423/1
+
+I-JD

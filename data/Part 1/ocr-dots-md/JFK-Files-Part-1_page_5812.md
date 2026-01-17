@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_5812.png
+
+Convert to MarkdownCIA INTERNAL USE ONLY
+SECRET
+
+When Filled In:
+
+<table><thead><tr><th colspan="7">PERSONALITY (201) FILE REQUEST</th></tr></thead><tbody><tr><td>TO<br/>RI/ANALYSIS SECTION</td><td>DATE<br/>9 May 57</td><td>ACTION<br/><table><tbody><tr><td>I OPINION</td><td>MAYBE</td><td>CLOSE</td></tr><tr><td>ROOM NO.</td><td>2021 L</td><td>TELEPHONE<br/>2231</td></tr></tbody></table></td><td></td><td></td><td></td><td></td></tr><tr><td>FROM<br/>Lee Everitt RI/CO per FE/3</td><td colspan="6"></td></tr><tr><td colspan="7"><strong>INSTRUCTIONS:</strong> Form must be typed or printed in black ink.<br/>SECTION I: List 201 number, name and identifying data in the spaces provided. All known aliases and variants including maiden name, if applicable, must be listed. If the identifying data varies with the alias used, a separate form must be used. Write UNKNOWN for items you are unable to complete.<br/>SECTION II: List cryptonym or pseudonym, if assigned. If true name isARMY, obtain 201 number from 201 Control Desk and complete Section I and Section III. On a separate form, enter the 201 number and complete Section II and Section III. Submit each form separately.<br/>SECTION III: To be completed in all cases.</td></tr><tr><td colspan="7" style="text-align:center; font-weight:bold;">SECTION I</td></tr><tr><td>RESIDENT<br/></td><td>201 NO. 169934</td><td>SOURCE DOCUMENT</td><td></td><td></td><td></td><td></td></tr><tr><td rowspan="2">NAME<br/>COE<br/><em>(Handwritten: Frank Frank)</em></td><td>(Last)<br/>Virginins</td><td>(First)<br/>Frank</td><td>(Middle)<br/></td><td colspan="3">(Title)<br/></td></tr><tr><td colspan="6" style="text-align:center;">NAME VARIANT</td></tr><tr><td>TYPE<br/>NAME<br/>2</td><td>(Last)<br/> Virginins</td><td>(First)<br/>Frank</td><td>(Middle)<br/></td><td colspan="3">(Title)<br/></td></tr><tr><td colspan="7"><strong>RECORDING INFORMATION:</strong></td></tr><tr><td>PHOTO<br/>VRS</td><td>BIRTH DATE<br/>1908</td><td>COUNTRY OF BIRTH<br/>USA</td><td>CITY OR TOWN OF BIRTH<br/>NEW YORK</td><td colspan="3">OTHER IDENTIFICATION<br/>1. 2. 3.</td></tr><tr><td>OCCUPATION/POSITION</td><td colspan="5"></td><td>OCC. POS. CODE<br/>9</td></tr><tr><td colspan="7" style="text-align:center; font-weight:bold;">SECTION II</td></tr><tr><td>CRYPFRONTA</td><td colspan="6"></td></tr><tr><td colspan="7" style="text-align:center; font-weight:bold;">SECTION III</td></tr><tr><td>COUNTY OF RESIDENCE<br/>10</td><td>ACTION DEEM<br/>FE/3</td><td>SECOND COUNTY OF RESIDENCE<br/>11</td><td>THIRD COUNTY OF RESIDENCE<br/>12</td><td colspan="3"></td></tr><tr><td colspan="7"><strong>COMMENTS:</strong><br/>Formerly filed in 100-4-20-13</td></tr><tr><td colspan="7" style="text-align:right;">201- 169934</td></tr><tr><td>PERMANENT CHARGE</td><td colspan="3"></td><td colspan="2">RESTRICTED FILE</td><td>SEPARATE SIGNATURE</td></tr><tr><td>VRS X</td><td colspan="3"></td><td colspan="2">VRS X</td><td>SEPARATE SIGNATURE</td></tr></tbody></table>
+
+Form No. 831
+
+SECRET
+CIA INTERNAL USE ONLY
+
+G

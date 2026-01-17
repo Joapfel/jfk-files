@@ -1,0 +1,52 @@
+# JFK-Files-Part-1_page_8861.png
+
+Convert to Markdown1. Nombre completo: HENRY P. LOPEZ
+   (Primera nombre) (Apellido paterno) (ızq. Apellido materno)
+
+2. Su firma corriente: J. H. P. Lopez
+
+3. Nombre al nacer, (si es distinto): ENRIQUE . E. LÓPEZ
+
+4. Aliases, apodos o cambios legales en su nombre (indique brevemente en que tiempo, la razón para su uso, y a donde) name
+
+<table>
+  <tr>
+    <td>MICROFILMED</td>
+  </tr>
+  <tr>
+    <td>MAY 1 3 1955</td>
+  </tr>
+  <tr>
+    <td>DOC. MICRO. SER.</td>
+  </tr>
+</table>
+
+5. a. Fecha de nacimiento: 5/28/20 b. Lugar de nacimiento: DENVER, COLORADO
+
+6. Ciudadanía en la actualidad: U.S.A. Raza:
+
+7. Nacionalidad al nacer y cualquier otra nacionalidad que haya adquirido después (si distinta del No. 6): U.S.A.
+
+8. Residencia en la actualidad (dirección): SIERVA ANALISEC 289
+Duoño o inquilino? Resting
+
+9. Dirección permanente (si es distinta de la indicada en el No. 8):
+
+10. Su ocupación en la actualidad (puesto, sueldo): LAWYER
+
+11. Ha sido usted naturalizado como ciudadano de los Estados Unidos?: X
+Indique la fecha y a nombre de quién se expidió el certificado de naturalización?: X
+Han sido naturalizados ciudadanos de los Estados Unidos sus parentes ceroanos?: X
+Indique la fecha y a nombre de quién se expidieron los certificados de naturalización: X
+
+12. Parientes, amigos, personas con quienes corresponde en los Estados Unidos, Nombre y Dirección: AH, 10 Nudus, 36035 LA, ALFRED LOPEZ, 3300 Western Ave., Park Forest, IL, MR. SANDER JOHNSON, 515 S. DeKalb Dr., Park Ridge, IL, CS COPY
+
+CS COPY
+
+5P
+
+001-25-3203
+
+14-00000
+
+AH' 10 Nudus - 36035

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_7367.png
+
+Convert to Markdown15 February 1974.
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Interview of Mr. Davis Powell on the David St. John Novels
+
+1. On the morning of 15 February 1974, the undersigned interviewed Mr. Davis Powell, currently a Budget Officer on the staff of the Deputy Director for Management and Services. Mr. Powell is located in Room 7C18. During 1965 Mr. Powell was Chief of Support of the then designated Western European Division. In July 1965 a contract was written authorizing salary and benefits to Mr. E. Howard Hunt for an assignment under non-official cover to Madrid, Spain. The purpose of this interview was to determine if Mr. Powell had any information on Mr. Hunt's activities during this period.
+
+2. Mr. Powell responded that from his recollection it was Mr. Hunt's habit to deal only with the most senior officer available. In this case Mr. Hunt dealt directly with the then Chief of Western European Division, Mr. Rolf Kingsley. Mr. Powell states that, in his capacity as Chief of Support, any activity undertaken to support Mr. Hunt's assignment to Madrid was undertaken second and thirdhand on receipt of instructions from Mr. Kingsley's office. He further stated that he was never briefed on the purpose of Mr. Hunt's mission and could add little in terms of speculation. Mr. Powell recommended that Mr. Edward Ryan, who was then Deputy Chief of Western European Division, be contacted. Mr. Powell also suggested that Miss Martha Seville be interviewed. Miss Seville was the Executive Secretary in Western European Division during the time that Mr. Hunt's contract was written and Miss Seville subsequently served in Madrid herself. Mr. Powell understands that Miss Seville is currently assigned to the office of the Chief, European Division.
+
+Lawrence J. Howe

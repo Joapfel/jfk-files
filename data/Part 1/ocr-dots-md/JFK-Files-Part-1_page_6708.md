@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_6708.png
+
+Convert to MarkdownJ- Inset Saturday. I took some children to Spanish classes which Mrs. Reynolds' and Mrs. Amrist' Mutisart held once a week. I met Sr. Mutisart (L-89) there. Outisart did not look very friendly at the beginning. I pressure that some comments I made about political groups in New Orleans got to his ears and he did not think much of them.
+
+A few days before May 20 I was visiting at the Jodos. A man called Jose Muriaso Puerto was there also. We were commenting about the fact that all of a sudden four or five guys who had been named New Orleans delegates by some "lesi" group were trying to gain strength. Outisart was one of these men (he is supposed to be a close friend of Puerto!).
+
+July 10,1963
+
+L-81
+
+Antonio de Varona and represent Varona's group here). I saw the comment that if they were seriously considering forming groups here we could and should use Crusada (the local exile publication) to stop them.
+
+Well, I don't think this is very important anyway. It is possible that Outisart might have not been feeling well Saturday morning, and the rest is all my imagination. A K L U F F - I
+
+14-0000

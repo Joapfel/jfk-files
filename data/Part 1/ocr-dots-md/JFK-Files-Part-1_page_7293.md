@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_7293.png
+
+Convert to Markdown4.14 Sleep
+
+<table><tr><td rowspan="2">4.14.01</td><td rowspan="2">Does he</td><td>Enjoy sleep and fall off easily?</td><td>Yes No</td></tr><tr><td>Read or walk to prepare himself for sleep?</td><td>Yes No</td></tr><tr><td rowspan="2">4.14.02</td><td rowspan="2">Does he</td><td>Rise easily?</td><td>Yes No</td></tr><tr><td>Prefer to remain bed until the last moment?</td><td>Yes No</td></tr><tr><td rowspan="2">4.14.03</td><td rowspan="2">Is he</td><td>An early starter?</td><td>—</td></tr><tr><td>A late starter?</td><td>—</td></tr></table>
+
+### 4.15 Impressions:
+
+<table><tr><td rowspan="4">4.15.01</td><td rowspan="4">To the best of your knowledge, do you think most women would find him</td><td>Charming</td><td>Pleasant</td><td>Average</td></tr><tr><td>Unpleasant</td><td>Very unpleasant</td></tr><tr><td colspan="3" style="text-align: center;">Sexually attractive X</td></tr><tr><td>Charming</td><td>Pleasant</td><td>Average</td></tr><tr><td rowspan="2">4.15.02</td><td rowspan="2">To the best of your knowledge, do you think most men would find him</td><td>Charming</td><td>Pleasant</td><td>Average</td></tr><tr><td>Unpleasant</td><td>Very unpleasant</td></tr><tr><td>4.15.03</td><td>Without prior knowledge, if you saw him on the street, would he impress you as</td><td>Nondescript</td><td>Average</td><td>X striking</td></tr><tr><td rowspan="5">4.15.04</td><td rowspan="5">Without prior knowledge and on the basis of looks alone, which of the following do you think he might be?</td><td>Peasant</td><td>Executive</td></tr><tr><td>Worker X</td><td>Professional</td></tr><tr><td>Merchant</td><td>Military Officer</td></tr><tr><td></td><td>Artist of some type</td></tr><tr><td>Is there anything particularly striking and worthy of further explanation about the overall impression he gives? If so, please describe: conspicuously athletic. Looks like boxer.</td><td>Yes</td></tr></table>

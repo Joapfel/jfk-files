@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_8873.png
+
+Convert to MarkdownSECRET
+
+Chief of Station, Mexico City
+
+1963 Covert Income Tax Returns
+
+Reference: RNS 3700, September 1964
+
+Please reply to reference which concerned the delinquent
+Covert Income Tax Returns of:
+
+Otto HANMARQUIST
+
+Philip K. TESSAROLO
+
+Edward C. TICHFORM
+
+Chester D. BAINOLD
+
+Distribution:
+Orig & 1 - COS, Mexico City
+
+FMS 3092
+
+SECRET
+
+301-209600
+
+RI
+Chrono
+
+WU/1
+
+Jane Zerance:jah
+
+4923
+
+Dated: Mar 3, 1963
+MAY 19, 1968
+Mar 5, 1969
+4923

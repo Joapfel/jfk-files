@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_9222.png
+
+Convert to Markdown23 January 1951
+
+Mr. Richards (Legal) phoned, on behalf of Mr. Kelley, re the
+contract between HEDLEY & CIA re disposition of royalties.
+
+He said Mr. Kelley had referred it to him, with some such
+message as: "OK to let it stand as it is, if appropriate documentation
+of the records there / Sven? / and here can be provided."
+
+Mr. Richards asked if doing the photo-book was to be M.L.D.'s main
+activity. I said yes, for a month or two, after which he would have some
+new assignment. He said all the better.
+
+I said the only problem had seemed to be whether there was any legal
+objection to having Sven hold the rights to the book instead of "the
+Government" and Sven receive back the royalties instead of "CIA".
+
+Mr. Richards seemed to agree there was no substantial difficulty there,
+and ended: "Ok, Joe or I will let you know if there seems to be any diffi-
+culty there or need to amend the contract", or words to much that effect.
+
+SECRET
+
+4S91

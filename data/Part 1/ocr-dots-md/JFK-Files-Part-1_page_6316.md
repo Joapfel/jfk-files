@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_6316.png
+
+Convert to MarkdownCKA - 137
+
+a. He said that his father is in jail in Puerto Bonito, and that in order to try and get him free, the source went to see Major Delamino "Anibal" Castilla, the chief of training for the Palma Soriano Military Encampment, whom he knew from their days in the Santiago High School. Source made his plea and "Anibal" told him that before he could act upon it, he would have to talk to the source for five hours in order to determine his political orientation. The source replied that he did not come to talk: politics but to plead for his father. "Anibal" answered that he would think about it and call the source one way or another, but he never called. Source thought that this story adequately demonstrated the (Communist) political orientation of "Anibal."
+
+b. The brother of "Anibal" (para 6a above) is "Bertico". Castilla, first name possibly Alberto. He resigned from the army and is now living in Santiago, but the source is not clear on "Bertico's" political orientation.
+
+c. Electra Fernandez, the wife of Mendez Coninche (the Santiago G-2 chief), is no longer the civil head (commissionado) of Santiago. She is now the president of the Federacion de Mujeres Cubanas.
+
+d. The source has given a complete military map of Oriente Province to the DRE member he left in charge of Santiago DIE (see para 4 above). Information is passed from Santiago to the DIE in Habana and the latter, in turn, is to forward the information to the States.
+
+e. Source said that his contacts who work in Nicaro report that the Nicaro-Mayari Arriba area is restricted and that unknown types of military installations are being constructed.
+
+f. The foreign instructors in the University of Oriente consist of Czechs and Chileans. The Czechs have started a new medical school in the university and the Chileans have taken over the Business Administration Courses.
+
+Nelson L. RAYHOCK.

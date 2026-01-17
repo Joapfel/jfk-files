@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_7463.png
+
+Convert to Markdown14-0000
+
+ZOTOV, IVAN PAVLOVICH
+
+S211600/1970
+
+WEST GERMANY 1970
+
+19 MORDOVIAN REPUBLIC ASSR
+
+Secret
+
+201-018446
+
+Secret

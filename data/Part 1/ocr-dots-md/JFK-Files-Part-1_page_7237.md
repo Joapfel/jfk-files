@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_7237.png
+
+Convert to MarkdownSEC.
+
+CONTACT REPORT
+
+SUBJECT: Ernst GOEBEL
+DATE OF MEETING: 8 September 1966
+
+1. I met with Subject at his office on 8 September 1966 from 1730 to 1800. Next meeting is in about two weeks to be arranged by phone.
+
+2. Subject reported that LOGINOV still comes fairly regularly to the French Club on weekends. Occasionally he brings his wife. Once or twice he brought two young Soviet men in their early twenties. He has also brought a Soviet woman ca 25 who has played tennis with two other women (club members) whom Subject doesn't know. Subject hasn't seen GORLITSYN since our last meeting.
+
+3. Since LOGINOV doesn't play tennis but only sits around outside or in the bar, Subject doesn't see him for sustained periods. Subject has seen LOGINOV talking to SARMIENTO or his wife two or three times. From observing him in the bar, Subject saw that LOGINOV is on speaking terms with several members.
+
+4. I asked Subject if he knew Ofelia ALFARO Lopez (P-11339), a good friend of the SARMIENTOs and also in contact with the Soviets. He didn't recognize her name as a club member. When I told him that she teaches at the School of Economics, he remembered that at a dinner party at the home of Henry *SIEGMANN*, an American and local head of Continental Oil Co., a Mexican woman was present who was a professor of Economics. She speaks excellent English and is in her thirties. He thinks this is ALFARO but is not sure. He will check his wife who is the name rememberer in the family.
+
+5. Subject remarked that he found the above dinner strange for its odd mixture of solid business types and a few off-beat "beatnik" Mexican types including the female professor. He hastened to assure me that SIEGMANN was a sterling character.
+
+6. For the next meeting Subject will attempt to confirm ALFARO's identity and also to spot likely club members who appear to be an close terms with the SARMIENTOs with the view of getting an assessment of the latter.
+
+7. Subject is interested and willing. However, he does not appear to be very much interested in people. Thus he has played tennis with SARMIENTO for years and hasn't a thing to say about him except that he is a pleasant tennis companion. Similarly SARMIENTO's wife is good looking and a good tennis player.
+
+8. I haven't had an opportunity to talk to Subject's wife yet because Subject says that she does not know the SARMIENTOs. I met his wife last fall and noted that she is much more alert, interested and lively in social relations than he is. Therefore I bet that she knows a lot more than he gives her credit for. I intend to invite them to dinner soon in order to talk with the wife and explore possibilities.
+
+Paul Dillon
+
+FILE: P-12330 P-11712 P-11163 P-11339 P-12703
+
+CA

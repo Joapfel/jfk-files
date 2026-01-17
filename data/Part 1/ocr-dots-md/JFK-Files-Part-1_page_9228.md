@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_9228.png
+
+Convert to MarkdownIt Life, one of those $25,000 per annum men. For the present he doesn't want it; an association with the picture book known to his employer for several good and compelling reasons. (Including the fear that they would plagiarize the idea). But in the final stages he'll have to tell them in order to get their cooperation on digging into their files as well as their official permission for the use of his name as a collaborator.
+
+"I'm useless to say, all of the above is a deep dark secret, but then what isn't these days? More important than all of the above is the fact that the gentleman in question / Lawson purposely didn't ask Shub who his collaborator is/; in addition to being a top-flight picture man, is deeply interested in the subject and—miraculously— knows a great deal about it."
+
+"I haven't nothing happens to make him back down on his decision. Impossible to get anybody nearly as qualified. Our friend will fill you in on the rest: what remains to be done, how to do it, etc."
+
+"Of one thing you may be sure: If my collaborator stays with the project and if no act of God intervenes, the final product will be the picture book of all time. He wants to see it sold on newstand among other places.."
+
+9. Lawson told us January 8 he had seen Shub about a week before, and "to should be pulling pretty soon."
+
+10. FLASH! Shub just phoned. He said I had proved correct on the point that "having the book all pictures, without words, is rubbish." He has found it necessary to do a brief written Life of Stalin, bringing in all his major misdoings, and keeping it as simple & clear-out as possible.
+The US of that is now being typed. That was the hardest part of the job. Now it should go fast, if the mechanics can be done fast. Namely, the life collaborator will got the extra pictures from the files needed to fill in the story.
+
+Shub thinks it is really pretty good.
+
+I asked if the Life man's name will appear on it. We both agreed there is no reason why it shouldn't. It will depend on whether the Life man wants it, and whether he thinks it would go down with his bosons.
+
+"I told Shub Lawson was planning to be away 3 to 4 weeks from about Jan. 28, possibly earlier. Shub will contact Lawson before then. We agreed Shub should be able to carry on with Lawson's printer in Lawson's absence.
+
+11. **CONCLUSION** Depending on (a) how much time the Life man can give to it, and (b) how fast Lawson's printer can handle it, he is just starting in on the printing of EQUITY Animal photo-book / the book should, with luck, be ready about 6 or 8 weeks from now, —say about March 15.

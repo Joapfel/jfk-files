@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_9305.png
+
+Convert to MarkdownCOPY
+
+30 August 1950
+
+Received from W. S. Sims $100 cash, for services
+in obtaining photographs to be used in a photo-book, under
+project SGHOUSE, later to be charged to ERFUNNY.
+
+Robert M. Headley
+
+R A.

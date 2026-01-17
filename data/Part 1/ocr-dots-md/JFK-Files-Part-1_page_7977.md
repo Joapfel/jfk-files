@@ -1,0 +1,155 @@
+# JFK-Files-Part-1_page_7977.png
+
+Convert to Markdown<table>
+   <tr>
+    <td rowspan="2">
+     <table border="1" style="width:100%; border-collapse: collapse;">
+      <tbody>
+       <tr>
+        <td>WH</td>
+        <td>046</td>
+        <td>Barton</td>
+      </tr>
+      <tr>
+        <td>2.</td>
+        <td>Jr's</td>
+        <td></td>
+      </tr>
+      <tr>
+        <td>3.</td>
+        <td>Cain/71</td>
+        <td></td>
+      </tr>
+      <tr>
+        <td>4.</td>
+        <td>Cain/Cuba/R</td>
+        <td></td>
+      </tr>
+      <tr>
+        <td>5.</td>
+        <td></td>
+        <td></td>
+      </tr>
+      <tr>
+        <td>6.</td>
+        <td></td>
+        <td></td>
+      </tr>
+     </tbody>
+    </table>
+   </td>
+   <td>
+    <table border="1" style="width:100%; border-collapse: collapse;">
+     <thead>
+      <tr>
+       <th colspan="2">DATE</th>
+       <th rowspan="2">OFFICER'S<br/>INITIALS</th>
+       <th rowspan="2">COMMENTS (Number each comment to show from whom to whom. Draw a line across column after each comment.)</th>
+      </tr>
+      <tr>
+       <th>RECEIVED</th>
+       <th>FORWARDED</th>
+      </tr>
+     </thead>
+     <tbody>
+      <tr>
+       <td>12 NOV<br/>957</td>
+       <td></td>
+       <td>LJ</td>
+       <td></td>
+      </tr>
+      <tr>
+       <td></td>
+       <td></td>
+       <td></td>
+       <td>Meer</td>
+      </tr>
+      <tr>
+       <td></td>
+       <td></td>
+       <td></td>
+       <td></td>
+      </tr>
+      <tr>
+       <td></td>
+       <td></td>
+       <td></td>
+       <td></td>
+      </tr>
+     </tbody>
+    </table>
+   </td>
+   <td>
+    <table border="1" style="width:100%; border-collapse: collapse;">
+     <tbody>
+      <tr>
+       <td></td>
+       <td></td>
+       <td></td>
+      </tr>
+      <tr>
+       <td></td>
+       <td></td>
+       <td></td>
+      </tr>
+      <tr>
+       <td></td>
+       <td></td>
+       <td></td>
+      </tr>
+      <tr>
+       <td></td>
+       <td></td>
+       <td></td>
+      </tr>
+      <tr>
+       <td></td>
+       <td></td>
+       <td></td>
+      </tr>
+      <tr>
+       <td></td>
+       <td></td>
+       <td></td>
+      </tr>
+      <tr>
+       <td></td>
+       <td></td>
+       <td></td>
+      </tr>
+     </tbody>
+    </table>
+   </td>
+   <td>
+    <table border="1" style="width:100%; border-collapse: collapse;">
+     <tbody>
+      <tr>
+       <td>13.</td>
+      </tr>
+      <tr>
+       <td>14.</td>
+      </tr>
+      <tr>
+       <td>15.</td>
+      </tr>
+     </tbody>
+    </table>
+   </td>
+   <td>
+    POUCH MATERIAL<br/>
+    SEPARATE COVER<br/>
+    ENCLOSURE<br/>
+    EXPEDITE
+   </td>
+   <td>
+    201-209258<br/>
+    B15t 57
+   </td>
+   <td>
+    FORM 610 USE PREVIOUS EDITIONS [ ] SECRET [ ] CONFIDENTIAL [ ] INTERNAL USE ONLY [ ] UNCLASSIFIED
+   </td>
+   <td>
+    DEC 30
+   </td>
+  </tr>
+ </table>

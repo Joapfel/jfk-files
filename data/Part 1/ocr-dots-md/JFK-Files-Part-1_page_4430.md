@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_4430.png
+
+Convert to MarkdownSECRET
+
+18 April 1974
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Request from OGC for Signed Copy of Bernard BARKER's Contract
+
+1. On 18 April 1974 Mr. Dietl of OGC asked if I had been able to locate a signed copy of Bernard Barker's contract which we were unable to locate a few days ago. The answer was no. I took advantage of Pete Palmer's presence at Hqs. on TDY to ascertain whether a signed copy of BARKER's contract be could possibly/at Station WH/Miami. Pete said with certainty there was no signed copy at Station WH/Miami since much of the material at the Station had been destroyed. Also, since BARKER was terminated in mid-1966, the Station file should have been transferred to Hqs. back then.
+
+2. I passed the foregoing information to Mr. Dietl who simply asked that I double check with WH/Contracts and the Contract Personnel Division for same which I promised to do and advise.
+
+Chris' Hopkins
+WHD Task Force
+Watergate

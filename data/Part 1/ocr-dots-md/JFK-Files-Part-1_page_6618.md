@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_6618.png
+
+Convert to Markdown14-0000
+
+NEW YORK, N. Y.
+SEP 24 1953
+
+N THE SPIRIT OF
+
+METHODOLOGY
+
+Mr. William Fondiller
+4801 Nebraska Ave., N. W.
+Washington 16, D. C.
+
+You may dispose of this
+
+2

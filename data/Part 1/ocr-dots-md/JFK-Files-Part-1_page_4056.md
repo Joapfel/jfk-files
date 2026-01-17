@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_4056.png
+
+Convert to Markdown# II. ANÁLISIS DEL MARKETINGS
+
+La función principal del estillero es la construcción de embalaciones de estero y almacén, de 20 a 200 toneladas. Esta incluye camarones, images- toros, faltas, encargos ligeros y mercancías de pasajeros y de patrulla.
+
+La augursa función de la encargada, será el darle servicios de reparación y mantenimiento a todos clases de embalaciones de esta fardóla en el ferrocarril de Caribe, de igual o superior calidad que las ofrecidas en México. Trascendiendo los Estados Unidos.
+
+Una corteza punto el estillero intentará la especialización en la construición de un camarón de 35 toneladas de tal calidad que puede competir con el estallado mundial. De intentarán construcción en dos y en mediana. La construcción en mediana presenta la vistaya que una gran parte, sin toda la mediana, puede producirse en los embañadores localiza- das en Muelfielda. Otro ventaja que posee la construcción en mediana es un pro-specto de producción en serio, en la cual, las formas de las diferentes clases de las baterías, se construirá en grupos previstos para la profarma-ció. Será posible visualizar en un futuro, vender camarones, doble-cabeza completamente armados, sino también en picassas prefabricadas listas para armar por vendidos con proveas facilitadas en maquinaria, maderas, etc.
+
+Mercado nacional y centroamericano. Son pioneros los primeros en la América del norte, las personas más equitables, y relativamente ineficientes, y en influyendo en el Caribe, de forma, las personas mejores de espinas buenas de buen material, pero de peores uytras, unidos a
+
+14.00000

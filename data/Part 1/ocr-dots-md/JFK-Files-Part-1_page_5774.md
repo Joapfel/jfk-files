@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_5774.png
+
+Convert to Markdown14-00000
+
+L 13 Sep 71
+
+A7
+
+FRC
+INTERNATIONAL AFFAIRS
+
+ARRIVALS, DEPARTURES, ACTIVITIES OF FOREIGN VISITORS
+
+Arrival of 'American Friends'
+
+Peking NCHA International Service in English 0744 GMT 12 Sep. 71 B
+
+[Text] Peking, September 12 (HSINKUA)--American friends Jack Shulman and his wife arrived in Peking by air today for a visit at the invitation of the Chinese People's Association for Friendship with Foreign Countries. They were welcomed at the airport by leading members of the organizations concerned including Tu Wan-jung and Lin Chen.
+
+Kuo Meets U.S., British Guests
+
+Peking NCHA International Service in English 1507 GMT 10 Sep 71 B
+
+[Text] Peking, September 13 (HSINKUA)--Kuo Mo-jo, vice chairman of the Standing Committee of the National People's Congress and president of the Academy of Sciences of China, met and feted this evening American scientist Robert Coe and Judy Coe and British Doctor David Adler as well as Geoffrey Collins. The meeting and banquet proceeded in a friendly atmosphere, during which the host and guests talked cordially.
+
+Attending the meeting and banquet were American friends in Peking Frank Coe, Ruth Coe, Sol Adler and Pat Adler.
+
+Present on the occasion were leading members and staff members of Chinese organizations concerned Tang Ming-chao, Li Hsiao-pai, Hsing Chu-fang, Ku Kung-hsu, Shih Chen-liang and Tai Sheng-pu.
+
+Departure of American Couple
+
+Peking NCHA International Service in English 1500 GMT 10 Sep 71 B
+
+[Text] Peking, September 10 (HSINKUA);--American friends Mr and Mrs Bronson Clark left Peking by air for home today via Canton, after paying a friendly visit to China. They were seen off at the airport by leading members of Chinese organizations concerned Hsi Chung-ching, Hsi Chen-huan, Liu Ko and Liu Tzu-han.
+
+Mr and Mrs Clark arrived in China on August 18. They visited factories, people's communes, schools and a hospital and scenic spots and places of historical interest in Peking, Chengchow, Sian, Yenan, Banking and Lingsien County in Honan Province. They were given a warm welcome by people in these places.
+
+American Mathematician in Shanghai
+
+Peking NCHA International Service in English 1502 GMT 10 Sep 71 B
+
+[Text] Peking, September 10 (HSINKUA);--After visiting Peking, American mathematician Professor Chandler Davis explained here this morning on a visit to Shanghai and Canton before leaving China for home. He was seen off at the airport by leading members of Chinese organizations concerned and scientists including Hsu Chung-ching, Hsi Chen-huan and Tien Pang-tseng.

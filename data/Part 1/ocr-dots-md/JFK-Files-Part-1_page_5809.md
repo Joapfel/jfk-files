@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_5809.png
+
+Convert to Markdown"Underground headquarters in Washington, the memos said, included 'a violinist study near Dupont Circle run by Helen WARE, (and) a school on the outskirts of Washington run by Alice MERIDAM.'
+
+"CHAMBERS was quoted as saying he entered 'the Washington picture' in 1935 and left it and the party at the end of 1937.
+
+"The heads of the various underground groups in Washington who met with PETERS,' the memos continued, 'were the HISSERS, KRAMER (KRITZEKRY), Henry COLLINS who was either a secretary or treasurer of the group; John ART, Lee PRESSMAN, Nat PERLOW and Nat WITT.
+
+"These men met regularly at special meetings, with the exception of Donald HISS, who did not have an organization. They headed parallel organizations......
+
+"The memos alleged there were other underground Communist groups in Washington at the time, 'but this was the elite policy-making, top-level group.'
+
+"It was not a spy ring,' read the records, 'but one . . . far more important and cumming because its members helped to shape policy in their departments.'
+
+"The memos described Henry COLLINS, as an employee of the forestry division of the Agriculture Department at the time and said he took the lead in delivering Government documents to CHAMBERS.
+
+"In testimony after the memos were read, CHAMBERS said sailors or stewards of the North German Lloyd Line usually took Government secrets to Europe for the ring."

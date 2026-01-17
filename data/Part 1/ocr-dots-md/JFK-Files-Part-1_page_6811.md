@@ -1,0 +1,80 @@
+# JFK-Files-Part-1_page_6811.png
+
+Convert to MarkdownHalperin Denies Giving
+Reds Advice on Latins
+
+MOSCOW, Sept. 5 (AP) — Maurice H. Halperin, former United States Government official who now lives in Moscow, yesterday accused the State Department of issuing a "deliberate and malicious distortion" about his status here.
+
+In a typewritten statement,
+Mr. Halperin said:
+
+"There is nothing mysterious or dubious about my being in Moscow . . . I am a visiting professor at the USSR Academy of Sciences and not the first American to be associated with it."
+
+Last week Senator Keating, Republican of New York, read into the Congressional Record a State Department document which said Mr. Halperin is now in Moscow and is "working for the Soviet government."
+
+Headed OSS Unit
+
+The document, said there
+were indications Mr. Halperin
+is giving the Soviet govern-
+ment advice on Latin-American
+affairs. During World War II,
+Mr. Halperin was head of the
+Latin American division of the
+United States Office of Stra-
+
+tégie Services, an intelligence
+organization,
+
+After the war, Mr. Halperin
+got a job with Boston Uni-
+versity as a professor. He lost
+this job in 1953 because he re-
+fused to tell congressional in-
+vestigators whether he ever had
+been a member of the Ameri-
+can Communist Party.
+
+"The bald, mustached 54-year-old Mr. Halperin was located Sunday in a Moscow apartment house by a newsmann and was asked to comment on the State Department's document.
+
+Declines to Elaborate
+
+(Moscow reported there were "technical difficulties" in moving the story until Monday. The newsman apparently was cut off while trying to telephone the story.)
+
+Mr. Halperin first declined to
+admit the newsman into his
+apartment, but agreed to meet
+him later in the lobby of a
+nearby hotel where he prom-
+ised to give a written state-
+ment.
+
+Mr. Halperin appeared punc-
+
+tually at the agreed hour. He
+carried the following state-
+ment, on which he declined to
+elaborate:
+
+"It seems to me that the State Department and Senator Keating are scraping the bottom of the barrel to come up with this stale red herring.
+
+"There is nothing mysterious
+or dubious about my being in
+Moscow. Since my arrival I
+have filed two United States
+income tax returns, listing my
+salary and employer, I am not
+working for the Soviet govern-
+ment any more than Van Chi-
+burn (an American planist)
+when he performs in a govern-
+ment-owned concert hall.
+
+"I am a visiting professor at the USSR Academy of Sciences and not the first American to be associated with it. As some of our leading scientists can testify. My appointment and my Soviet visa expires in July. 1961, as the United States Embassy here very well knows.
+
+"My teaching and resource activities involve theoretical problems related to the economic growth of underdeveloped areas. For the State Department to say that I am 'advising the Russians on Latin-American affairs' is a deliberate and malicious distortion.
+
+"Specifically, I am making a
+study of the Latin-American
+economy from 1945 to the crisis
+of 1958. When my book is pub-

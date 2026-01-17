@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_5690.png
+
+Convert to Markdown14-0000
+
+<table><tr><td>C-O-N-F-I-D-E-N-T-I-A-L</td></tr></table>
+
+**COUNTRY** Honduras
+**SUBJECT** Current Political and Economic Situation/Expected Nationalization of Fishing Industry/Leftist Influence in Cabinet
+
+**DCD REPORT NO.** OO-Z 324/06715-75
+**DATE DISTRIBUTED** 1 APR 1975
+**NO. PAGES** 1
+**REFERENCES**
+
+**DATE OF INFO.** February 1975
+
+**PLACE & DATE ACQ. BY SOURCE** Tegucigalpa/February 1975
+
+THIS IS UNEVALUATED INFORMATION
+
+**SOURCE** US national, executive of an import-export company. He is a frequent traveler to Central and South America where he has developed good contacts in the political and business sectors. He speaks Spanish fluently.
+
+1. Businessmen in Honduras have reported that the economic and political situation in the country, currently in a sad state of affairs, is bound to become worse as a result of the indifference being exhibited by President Oswaldo Lopez Arellano. On the economic side, the private business sector is quite concerned about an expected government move to nationalize the fishing industry. Some foreign firms already are pulling out of the country and moving to nearby countries like Nicaragua and El Salvador. On the political side, President Lopez has failed to name a permanent foreign minister since November 1974, when Cesar Batres occupied that post. Ricardo A. Pineda is performing those duties on an interim basis. The President also has undermined Honduran youth by giving in to the demands of the leftist-controlled labor unions. He gives businessmen the impression that he does not know much about government; consequently, the situation in the country has become very unstable.
+
+2. Apparently, the regime in Honduras wants to emulate the current Peruvian Government in failing to even consider elections at all. In fact, the government, which is controlled by the military, has three pro-left ministers in the cabinet. They are Manuel Acosta Bonilla, Secretary of State for Finance; Guatama Fonseca Zuniga, Secretary of State for Labor and Social Security, and Manlio Martinez Cantor, Executive Secretary, Planning Board. At one time, Acosta was the private secretary of the Mexican leftist leader Vicente Lombardo Toledano, so he has been thoroughly indoctrinated along Marxist lines.
+
+- end -
+
+<table><tr><td>U</td><td>S</td><td>YES</td><td>YES</td><td>C-O-N-F-I-D-E-N-T-I-A-L</td></tr></table>
+
+**CONTROLLED DISSEM**
+
+**NO DISSEM ABROAD**
+
+DCD 1/7 establishes the controls for the dissemination and use of the intelligence and intelligence information in this report. The dissemination of this document is limited to civilian and active duty military personnel within the intelligence components of the USIS member agencies, and to those senior officials of the member agencies who must act upon the information. However, unless specifically controlled in accordance with paragraph 8 of DCID 1/7, it may be released to those components of the departments and agencies of the U.S. Government directly participating in the production of National Intelligence. Dissemination of this report outside the States of the United States, or to any individual or organization, other than those specified above, is forbidden without the specific approval of the Domestic Collection Division, Directorate of Operations.

@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_5745.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+TO:
+
+1. __________
+
+2. __________ (file holder)
+
+3. CI/SO/F
+
+DATE: 15 July 1974
+
+SUBJECT OF REQUEST: COE, Robert
+COE, Frank
+(Coe, Virginius Frank)
+201-169934
+
+REQUESTER: Bill Newman
+COMPONENT: Office of Security
+PHONE : 201-9371
+T.C. ☐ or P.C. ☑
+
+FILE REQUESTED: 201-169934
+or
+DOCUMENT REQUESTED:
+Symbol & No. Date Filed
+
+REASON REQUESTED:
+
+Office of Security is running a check and they are interested in seeing the 201
+
+ACTION TAKEN:
+
+SECRET
+
+File in 201-

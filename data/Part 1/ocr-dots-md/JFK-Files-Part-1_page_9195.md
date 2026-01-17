@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_9195.png
+
+Convert to MarkdownSECRET
+
+16 April 1951
+
+DRAFT FOR QUARTERLY REPORT.
+
+"STALIN" PHOTO-BOOK PROJECT: publication of a book of photos with text exposing the treacheries, brutality, etc., of Stalin and his regime throughout his career.
+
+a. Swan Publishing Company will publish and is meeting expenses; there曾 has fore project ~~as~~ not been formally written up; this ~~will be done shortly.~~
+
+b. Great progress has been made in assembling the book, by ROBERT H. MADDLEY and a high-level layout collaborator who draws on the photo files of a national picture magazine.
+
+c. Book will consist of some 900 or more photos with text, and several /JXIII. and Benson/ who have seen it are sure it will be a devastating expose, suitable for world-wide circulation.
+
+d. The authors have estimated publication in August, 1951 as a possibility, but this may well prove over-optimistic.
+
+e. All royalties and rights in the book will be turned over to CIA (Swan Publishing Company).
+
+FSS
+
+SECRET
+
+See also
+of two,
+above

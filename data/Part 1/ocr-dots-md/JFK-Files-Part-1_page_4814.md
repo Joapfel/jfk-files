@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_4814.png
+
+Convert to MarkdownBoseh: seguiré conspirando
+
+Orlando Bosch, el controvertido analista de la cubana que se encuen-
+tra rechizado en la cárcel de Cárava, espera para ser deportado en
+las próximas horas. Bosch, dijo que políticos "feminoides" lo cor-
+tán haciendo el juego a Castro en el continente, y asumió que no im-
+porta donde lo encuenten ni lo que le hagan, seguirá conspirando contra
+el régimen comunitario de Fidel. (Foto: Córdoba). Ample informa-
+ciones en página 6.
+
+Excelcor, 76 March '76

@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_5502.png
+
+Convert to Markdown14. Engineer Charles Levesque, a member of the Haitian Revolutionary Planning Agency and a close friend of Charles', is expected in New York on or about 20 May of this week to discuss port development projects of Port-au-Prince with the J. S. White Engineering Corporation, of Broad Street. The real purpose of his visit, however, is to contact US friends and Haitian exiles in an effort to gain support for Charles.
+
+15. Dugan and Brown talked on the phone 12 May 67. The banker stated that he is "tied down" in Port-au-Prince until the end of May, at which time he may make another business trip to the US.
+
+16. Brown is firmly convinced that Charles has already made the decision to overthrow the dictatorial government with his friends and that he must act fast to prevent chaos and a possible Communist takeover. Vitale and Brown agree that the political and economic situation in Haiti is such that "the population wants a change, any change, and would even welcome a Communist coup." They added that Charles and his military friends wish to prevent a Castro-supported Communist seizure of power.
