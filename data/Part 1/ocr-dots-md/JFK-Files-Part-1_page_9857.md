@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_9857.png
+
+Convert to Markdown20 March, 1968.
+
+Subject: LIVING/3 Contacts with FAR Guatemala in Mexico City.
+
+1. LIVING/3 reported to Rowton at 1000 on 20/3/68 that he had again met with Miguel Angel Oliva Castañeda, this time—at about 1930—in front of the Chapultepec movie and went with him to the Café Literario on Calle Lieja. L/3 told Rowton that Oliva confided to him that he had just learned from four Guatemalan comrades who lived together in an apartment on Calle Lerma that their residence was being supervised by what they felt was the Nano Blanca. He explained that they had noted several fairly well-dressed men hanging around the apartment house and had tried to follow one of them but he had run off. This all indicated to them that the surveillance was not being carried out by the Mexican Police, but by some private group. Oliva then stated that they knew that the deputy chief of the Nano Blanca organization Oliverio Castañeda, was currently in Mexico City, and assumed that he had organized the surveillance. Oliva then mentioned that one of the four living at Calle Lerma was the well-known guerrilla leader who had recently sought sanctuary in the Mexican embassy in Guatemala City and was granted asylum to Mexico through the intervention and influence ofazo Cardenas.
+
+2. In order to determine the exact location of the Lerma apartment, LIVING/3 told Rowton that he offered to help identify the surveillance by conducting a countersurveillance himself the following evening. He also observed the use of his Tacitaya studio, recommending that in any case the four should disperse at least temporarily.
+
+3. L/3 also reported to Rowton that he again met with Oliva at 1015 that same morning and that the latter had taken him to a printing shop on Calzada Tlalpan near Calle José T. Cuéllar, named "Regia", as L/3 recalled. (The Mexico City telephone directory lists "Resca-Impresos y Rayados, Calle J.T. Cuéllar 57, tel: 78-05-01). Oliva told L/3 that this shop produced various ID papers for them in the past but unfortunately was not able to fabricate a good Mexican ID card because of the unavailability of the special type used. L/3 said that he was confident that he could make the reproduction through his serigraphic process. In the course of conversation Oliva confided to L/3 that the Guatemalan lawyer, Capuano, had provided blank Guatemalan ID cards in the past and in general had been very helpful. He aided that Capuano had succeeded in getting all the Guatemalans released from prison after their arrest in the Julian Lopez case.
+
+4. Oliva also stated that he felt it possible and advisable that L/3 travel

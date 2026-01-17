@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_10326.png
+
+Convert to Markdown<table><thead><tr><th>CABLE SECRETARIAT DISSEMINATION</th><th>CLASSIFIED MESSAGE</th><th>TOTAL COPIES</th><th>ROUTING AND/OR FINALIS - SEEN BY</th></tr></thead><tbody><tr><td colspan="2">PERSONAL NOTIFIED</td><td rowspan="7"><strong>SECRET<br>(When Filed In)</strong><br>GROUP I<br>INCIDENT FROM INDIGENEOUS INDIAN GROUPS TO BE CLASSIFIED AS INDIGENOUS INDIAN GROUPS PROHIBITED</td><td>1</td><td>6</td></tr><tr><td rowspan="5"><input type="checkbox" checked disabled/> ADVANCE COPY</td><td><input type="checkbox" checked disabled/> ISSUED</td><td>2</td><td>7</td></tr><tr><td><input type="checkbox" checked disabled/> SLOTTED</td><td>3</td><td>8</td></tr><tr><td><input type="checkbox" checked disabled/> YES</td><td>4</td><td>9</td></tr><tr><td><input type="text", value="CLASSIFIED TO FILE NO."/> AT _______ 2</td><td>5</td><td>10</td></tr><tr><td><input type="text", value="FILE NO. YES RET TO BRANCH"></td><td>BRANCH</td><td>DESTRUCTIVE SIG</td></tr><tr><td>DISSEMINATED BY ______ PER ______</td><td>FILE NO</td><td></td><td></td></tr><tr><td>ACTION</td><td colspan="3"><input type="checkbox" checked disabled/> AND COPY INFO<br>FILE VR</td><td></td></tr></tbody></table>
+
+PAGE 2 MEXICO CITY 8228 SECRET
+
+MEN (MEANING UDVISORS).
+
+B. LIRING-3 EXPLAINED HE ANARCHIST, LEFTIST, IDELAIST AND FELT TRUE REVOLUTION GOING ON GUATEMALA. THIS WHY HE INTERESTED IN HELPING GUAT RESISTS ANY WAY POSSIBLE. THIS SEEMED SATISFY LIRING-9.
+
+C. LIRING-9 AGAIN MENTIONED TRIP TO HIS COUNTRY FOR LIRING-3 AND WIFE AND AGREED ARRANGE FOR PASSAGE LIRING-4 ON PERUMEN SHIP TO CANADA SO LIRING-4 COULD SEE FATHER WHO NEW YORK RESIDENT AND ILL. LIRING-9 ADAMANT LIRING-4 SHOULD NOT SEEK VISA TO UNITED STATES AS THIS WOULD EXPOSE HER TO "GRILLING" BY LOCAL EMBASSY.
+
+D. LIRING-9 MADE VAGUE PROMISES HELP LIRING-3 IN CURRENT DIFFICULT SITUATION ALTHOUGH NO FINANCIAL HELP MENTIONED.
+
+E. LIRING-3 WAS REQUESTED TO RETURN TO LIRING 2 DEC FOR FUTHER TALKS. LIRING-9 WAS SHOWN LETTERS REVENTLY RECEIVED BY LIRING-3 FROM FAR CONTACTS IS GUATEMALA. LIRING-3 DECLINED TO LET HIM KEEP THEM AND LIRING-9 MADE NO ATTEMPT COPY THEM.
+
+5. POUCHING LIRING-3 REPORT. WILL CABLE FURTHER DEVELOPMENTS. APPRECIATE FORMET VISIT AND ASSISTANCE.
+
+4. FILE 201-798301.
+
+SECRET
+
+SECRET
+
+.................. : ............ : .................... :
+.: .: .: : : .: ............ : ............ : ............ :

@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_9623.png
+
+Convert to MarkdownTJP - A - 321
+
+making purchases for him in the government commissaries. We plan to place him on a salary status in the future. When this is done we intend that his salary be One hundred Dollars per month ($100.00) per month. He no longer has cover in his activities as concerns the U. S. Army in this area. This is due to the fact that he Gen. Sibert DARCARIB attempted to recruit him as an army informant after subject had performed two week's active duty with Army Intelligence. To avoid refusing the General's request, subject informed him that he was processing his information through WILL E. Since that date, army CIC men have called at subject's place of business inquiring for information. However, we seem to have his real loyalty and are the ones who can provide him with funds to cultivate sub-agents.
+
+## EVALUATION OF SERVICES:
+
+As stated above subject has performed excellent services but has not devoted a great deal of time to our work. His interest has greatly increased since you permitted HYDROL to receive home office training. He has fairly good contacts and is capable of cultivating almost any one we might wish. His services should become more valuable in the immediate future.
+
+## EVALUATION OF INFORMATION RECEIVED:
+
+To date subject's intelligence information has only been valuable as a supplement to other sources. His operational information has been excellent and is of real value. He is more interested in the operational side of our activities than in reporting.
+
+## OTHER FACTORS:
+
+This agent has been handled as outlined in TJP-151 subject to the modifications of increased social contacts necessitated by the fact that subject's wife is interested in the social advantages to be gained from her husband's activities.
+
+## COMMENTS:
+
+We plan to continue using this agent to cultivate other potential agent personnel. His primary continuous project will now be the penetration of communist activities in the National University of Panama. We may resurface the relationship between HYDROL,
+
+SECRET - Kafok 201 30999
+
+201 30999

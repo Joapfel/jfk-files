@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_9664.png
+
+Convert to MarkdownSECRET
+
+first contact with Arevalo, subsequently broke with him because of deep and bitter resentment against him, then returned not too long ago to collaborate with him. She is his wife's sister. She is certainly working with him now only because he finally offered her a little better pay. For her to have changed her mind about him would be almost impossible, I believe, in view of the long history of incidents that had brought her to have contempt for him, at the time I knew her in 1961. She knows his operation inside-out. In order to get information from her, it would be absolutely necessary to approach her from some angle that would give no hint of government investigation. She is very gregarious. She is a fortyish medium-attractive, lonely, New York single woman (unless her status has changed since I knew her). By somebody she would assume to be a writer, and who would be a bit friendly with her and see her off-hours, she would probably talk freely about Stuart. But she is quite clever and rather wordly in some respects, so that must be kept in mind in case she is contacted. SHE HAS A VERY DEEP AND LONGTIME NEGATIVE ATTITUDE TOWARD ALL GOVERNMENT AGENCIES INVOLVED IN INVESTIGATION. She was active in liberal activities in Chicago, and I am fairly sure, although she is certainly not communist, she considered herself a little jeopardized by the McCarthy period.
+
+Angela Deli Sante-Arroche could be contacted, too, of course. I will look for her address at Costa Amic's office and pass it along.
+
+SECRET
+
+G.A.C.P. 1
+Included from originally
+gathered from L.
+December 1961

@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_9827.png
+
+Convert to Markdown4 February, 1968
+
+1. LIRING/4 signed contract with Rowton (alias) effective 15 February through 30 April, 1968, providing payment for information and services. No obligations specified other than financial (total $750.00 for period specified). LIRING/4 also signed acknowledgement of alias "Maria Barra-gán" which was used in contract and receipts for funds.
+
+2. L/4 departure which originally scheduled for 16 February, 1968, will be delayed until following Friday to permit intensive care and security training, and strengthen backstop for objective of trip. On 12 February LIRING/2 told L/4 that he would issue permit to return and, in expression apparently genuine sympathy, urged her take trip and remain "where she belonged". On morning 13 February Echemandía (Ismael Suarez de la Paz) who met L/4 by chance inside LIRING compound remarked he happy to learn she going back home for a trip and then added "go back and stay2. He then invited her to lunch or dinner but L/4 felt it wise to turn him down first time. They had lunch in LIRING dining room. On Rowton suggestion she will, however, accept for outside lunch so sound him out further on his reaction to her return.
+
+3. Simultaneously in order build up conviction in minds LIRING officials that L/4 returning because of marital problem with LIRING/3 (which she herself stated to Rowton that she hesitated to reveal to anyone), LIRING/3 talked with LIRING/2 in his office 13 February (at moment L/4 elsewhere in LIRING offices) and pretended to have just learned of L/4's request for permission to return. L/3 in angry tone alleged that he could not understand why L/4 would want to return, that he had treated her as well as he could, and that in any case he would not permit her to take their daughter. LIRING/2 although obviously somewhat embarrassed took L/4's part and urged L/3 to reconsider and give permission to L/4 to take daughter along since she would be reluctant to leave as a "good mother". L/2 went so far as to state that if L/3 insisted it would be tantamount to "blackmail" against LIRING/4. L/2 continued that he felt obliged as a LIRING official to grant LIRING/4 permission to return but he did not want to oblige her to depart without her child. LIRING/3 told Rowton that he did not give in and left LIRING/2 with the impression that his mind was made up regarding the child.
+CS COPY
+
+4. LIRING/4, who was not witting of the above action of LIRING/3, accepted child.

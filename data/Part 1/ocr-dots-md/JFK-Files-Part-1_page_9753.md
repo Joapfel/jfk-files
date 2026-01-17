@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_9753.png
+
+Convert to Markdown14-00000
+
+MESSAGE FORM
+TOTAL COPY:
+
+SECRET
+
+<table><thead><tr><td></td><td>ROUTING AND CR DOCUMENTS - SEES AT</td></tr></thead><tbody><tr><td>1</td><td>9</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>*</td></tr><tr><td>4</td><td>*</td></tr><tr><td>5</td><td>10</td></tr></tbody></table>
+
+FILE CO.
+
+AREA CIVILIAN DISCLOSURE
+☑ YES ☐ NO ☑ RETURN TO __________ BRANCH ☐ FILE CO.
+
+☑ NO COPY ☐ RETURN TO __________ BRANCH ☐ FILE IN CS FILE CO.
+
+BAR
+
+☐ RED COPY
+
+DATE:
+C/C#:
+(see end line below)
+
+PAGE TWO
+
+CITE DIRECTOR 36584
+
+TO
+
+FOR GUATEMALA: WOULD APPRECIATE RECOMMENDATIONS FOR POSSIBILITY EARLY RELEASE OF LIRING/3 AND ASSOCIATE FROM JAIL. AWARE IF THERE INTEREST MUST BE SHOWN AT HIGH LEVEL BUT FEEL GUAT OFFICIALS COULD ALLEGE MEXICAN GOVT INTEREST TO THEIR SUBORDINATES AS BASIS OF RELEASE.
+
+4. FILE 201-798301.
+
+END OF MESSAGE
+
+* RYBAT
+
+WH/COG
+
+C/WH/2/Guatemala/España
+COORDINATING OFFICE
+
+B. J. Kaufman
+C/WH/1
+
+GROUP I
+For those who outside
+conducting and
+authentication
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+AUTHENTICATION
+OFFICE
+
+COPY N/A

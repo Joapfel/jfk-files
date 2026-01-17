@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_9782.png
+
+Convert to Markdown2.
+
+of 34,000.00 for information on the situation in PEMEX. LIKING/4 told Rowton that she was badly shaken by these comments but attempted to assume as non-chalant an air as possible and did not question Sergio Valdez to determine the exact source. She noted that Sergio Valdez had mentioned Rowton several times to her, always apparently in passing, with the obvious hope that LIKING/4 would reveal his presence in Mexico and arrange an introduction to him for Sergio Valdez. LIKING/4 agreed with Rowton that Valdez was probably provoking her since at all times he appeared to be well disposed toward Sr. Harris from what he knew of him from LIKING/3. Rowton commented to L/4 that the last report concerning Carmen Lozada appeared to have been fabricated either by Sergio Valdez or one of his friends, simply on the basis of the fact that Sr. Harris had been in touch with Carmen Lozada while she was in Mexico.
+
+4. LIKING/4 then stated that she felt she had to continue to impress Sergio Valdez with her desperate need for money and accordingly telephoned the LIKING gatekeeper in his presence and asked for a loan. When the gatekeeper responded favorably, she left Sergio Valdez waiting in the apartment and went to the LIKING offices at once to collect the loan. The gatekeeper gave her 100 pesos on the spot, fortunately in the presence of LIKING/13. L/4 told Rowton that she promised to return the money in the next week, as soon as she received money promised to her by her father.
+
+5. LIKING/4 added that as she was leaving the LIKING office she ran into the leftist writer, Jaime Labastida, who expressed his sorrow at the arrest of LIKING/3. Labastida commented that someone had told him recently that a cartoon of some kind had appeared in a Tapachula newspaper "against LIKING/3". When L/4 pressed him he gave a description of the "someone" that definitely identified him as Sergio Valdez. L/4 continued that when she confronted Sergio Valdez with this upon her return to the apartment, he hotly denied it, much to L/4's mystification.
+
+6. LIKING/4 also commented that Manuel Marcué Pardillas continued to telephone her at very late hours of the night in the hope (she assumed) that she would invite him up. She called him a "viejo verde" and added that she had no intention of seeing him alone at her home at night.
+
+Wallace B. Rowton

@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_9727.png
+
+Convert to MarkdownSECRET
+
+22Nov68 IN40270
+
+1. ILEN IS FRANCIS SHERRY, PHONE NO. 20-76-66.
+
+2. FILE 201-798301.
+
+SECRET

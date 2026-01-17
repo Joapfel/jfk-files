@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_9886.png
+
+Convert to Markdown2 October,1967
+
+Subject: SGS&IRL Examination of LIRING/3.
+
+1. From about 1330 until 1530 on 29 September, 1967, LIRING/3 was given an SGS&IRL examination. Rowton arrived at the safehouse (Tacubaya) with the SGS&IRL operator at 0930 that morning and remained with the operator until the examination was completed. He had not given LIRING/3 any previous notice of the nature or extent of the examination, but simply asked him, on 27 September, to keep the entire day of 29 September free for a lengthy discussion with Rowton. Rowton introduced the SGS&IRL operator as senior Albertini, a trusted "socio", and spent the first hour or so reviewing his relationship with LIRING/3, ostensibly for the benefit of Albertini. Rowton then, introducing the subject of certain doubts that he had in the past concerning LIRING/3's reporting, stated that Albertini had a means of checking scientifically the truthfulness of LIRING/3's statements. Rowton explained that he was particularly concerned about the possibility of LIRING/3 having doubled back with LIRING and maintaining with them a secret agreement of some sort to report on Rowton and his activities.
+
+2. LIRING/3 went into a state of visible shock at this and stated that even the thought of betraying Rowton had never occurred to him at any time. When the SGS&IRL operator explained the scientific means he was to use on LIRING/3, the latter stated that he could not possibly accept this humiliating means of testing him since it was diametrically opposed to his principles. He pointed out that he had accepted Rowton at his word and he could not see or understand why Rowton could not do the same for him, adding that the whole thing smacked of methods used by FACT and LIRING. He added that if this meant that he would have to break with Rowton, then regretfully he would have to accept this alternative. He explained that submitting to the SGS&IRL examination would inevitably destroy the idealistic and profound relationship which he had previously felt he enjoyed with Rowton.
+
+3. Rowton and the SGS&IRL operator spent the next two hours calming LIRING/3 down and finally convincing him that he would not be compromising with his deeply-felt principles by taking the test. He at last consented to be questioned on his loyalty to Rowton and insisted that he be asked, "Do you believe in Rowton?"
+
+4. After a brief break for lunch the examination was given in one of the bedrooms of the apartment while Rowton waited in the living room. LIRING/3
+
+ATTN / HMM A 33379
+
+SS. OFFIC
+201-7 9830/1

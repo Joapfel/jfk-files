@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_9808.png
+
+Convert to Markdown14-0000
+
+<table>
+   <tr>
+    <td>CONTINUATION OF<br/>DISPATCH</td>
+    <td>CLASSIFICATION</td>
+    <td>SECRET</td>
+    <td>DISPATCH SYMBOL AND NUMBER</td>
+    <td>HUMA - 34484</td>
+   </tr>
+  </table>
+
+she should tell LIRING-2, felt, after listening to LIRING-4's report, that the latter had at least partly succeeded in lessening LIRING-2's suspicions. These suspicions may have been further reduced after LIRING-3's discussion with LIRING-2 on 26 February. ROWTON did expect LIRING-2's questions and felt in the end that he had "passed the test."
+
+6. The Station does not know at this point whether LIRING-4 will get a PBRUMEN entry visa but is still optimistic that she will. The PBRUMENers appear convinced that there is serious trouble between her and LIRING-3, and LIRING-1, to whom LIRING-4 wrote for help recently, asked her to be patient, pointing out that red tape in PBRUMEN takes time. The possibility that the PBRUMENers may allow LIRING-4 in their country to interrogate her about the activities of her husband and some of her friends has occurred to ROWTON and the Station. Such a possibility is, however, most unlikely as the object of the PBRUMEN suspicions is LIRING-3 and not LIRING-4, who has several times told them that she knows little of what LIRING-3 does. The most important consideration, however, is that LIRING-4 is married to a Mexican citizen, and as suspicious as they may be of the latter's doings, the PBRUMENers have, to the best of our knowledge, no proof that this Mexican has done anything against their regime. On the contrary, LIRING-3 has time and again warned them of impending difficulties or problems. The fact that LIRING-4 is married to a Mexican and that she enjoys the status of immigrant in Mexico is also the best assurance that she would be allowed to return to Mexico, as the PBRUMENers want no trouble with the Mexicans. The SGSWIRL examination recently given LIRING-4 has cleared the air at least on two points. First, that LIRING-4 is not an enemy penetration, and, second, that she has not revealed the nature and extent of her contacts with ROWTON to anyone else than LIRING-3. The Station agrees with ROWTON that LIRING-4 would, if given a chance, prove herself to be a good asset. As for the question of being left with continuing obligations in this operation, both LIRING-3 and LIRING-4 know that there is little ROWTON could do beyond providing legal-type advice to bring LIRING-4 back to Mexico if the PBRUMENers refused to allow her to return to her husband, an unlikely possibility as mentioned above in view of current Mexican/PBRUMEN relations. The letter of understanding signed by LIRING-4 specifies the extent of ROWTON'S commitment and leaves no doubt as to the extent of his obligations. The Station hopes that LIRING-4's relationship with LIRING-3 will not improve with time to the point where she will lose the proper motivation and cover to undertake the mission to PBRUMEN for which she has been trained and briefed.
+
+7. The attempt made to exploit Carmen LOZADA's trip to PBRUMEN to obtain assessments and vulnerability information on a number of persons she knows who have operational potential turned out to be a complete failure. LOZADA ran into such difficult family problems in PBRUMEN that she had no time (or, as it turned out, desire) to obtain the information requested of her. The strain of her personal problems was such that she nearly had a nervous breakdown after returning to Mexico City on 16 February. Not even LIRING-3 could get anything out of her. The victim of a type of family blackmail by her pro-Amthug husband, LOZADA returned to PBRUMEN on 15 March. ROWTON did not fare much better with Rodolfo REYES Cortes, who returned to Mexico City in early March. REYES, who is preparing to go to Chile to put on a ballet performance, has been extremely busy since his return with private and professional matters. ROWTON nevertheless managed to debrief
+
+<table>
+  <tbody>
+    <tr>
+      <td>FORM<br/>6-64<br/>1401</td>
+      <td>USE PREVIOUS EDITION.</td>
+      <td>CLASSIFICATION<br/>SECRET</

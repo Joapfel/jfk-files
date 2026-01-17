@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_9646.png
+
+Convert to Markdown<table><thead><tr><th>OFFICE SYMBOL</th><th>DATE</th><th>OFFICER'S NAME</th></tr></thead><tbody><tr><td>A</td><td>5/15/73</td><td>John C. Murray</td></tr></tbody></table>
+
+<table><thead><tr><th>CORRESPONDENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td></td><td>HMMWV-19453</td><td>11 MAY 1973</td></tr><tr><td></td><td>CLASSIFICATION</td><td></td></tr><tr><td></td><td>SECRET</td><td></td></tr></tbody></table>
+
+<table><thead><tr><th>DISTRIBUTION: (1 - WH/1/CHRONO 1 - 201-0302997)</th><th>OFFICE SYMBOL</th><th>DATE</th><th>COORDINATING OFFICER'S NAME</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+<table><tr><td colspan="2">IDENTITY COPY</td></tr><tr><td>Reference:</td><td>MEXICO CITY 23282 d.n.</td></tr><tr><td colspan="2">1. In accordance with a policy decision to keep DKHERALD contact with U.S. business representatives discreet, a small huncheron was held in lieu of the customary formal briefings in the Headquarters building. KDACETONE-1, IDENTITY 1, David C. HIGBY and Floyd N. AIMONET attended the huncheron which was characterized by cordiality and candor. KDACETONE-1 waited until the conclusion of the meeting to raise his current favorite subject, that of countering the leftist propaganda contained in SIEMPRE. Fortunately, HIGBY was forewarned and effectively turned around the thrust of the effort upon KDACETONE-1's shoulders, without offending him. IDENTITY impressed HIGBY with his interest, intelligence and sincerity. He offered the services of IDENTITY 2 to "do things" on our behalf but was convinced by HIGBY that the best way to approach the problem was through the compartmented use of individual members, rather than through IDENTITY 2 as an organization.<br/>2. Discussions were held concerning Mexican affairs as well as Hemispheric trends. In the former category, our guests were most disturbed about the nationalization process in Mexico and enumerated (continued)<br/><br/>Attachment:<br/>IDENTITIES (USC)<br/><br/>Distribution: 3-COS, Mexico City (W/Att. USC)</td></tr></table>
+
+<table><tr><td>RECORD COPY</td></tr></table>
+
+<table><tr><td>OFFICE SYMBOL</td><td>DATE</td><td>COORDINATING OFFICER'S NAME</td></tr><tr><td>DC/WH/1</td><td>Raymond J. Swiderek</td><td>5/8/73</td></tr><tr><td>201-030999</td><td></td><td></td></tr></table>
+
+<table><tr><td>C/WH/1</td><td>9/5/73

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_9485.png
+
+Convert to MarkdownSECRET
+
+On continuing the discussion, it was clear that in working alone Professor Fock had as yet been unable to make any considerable progress on behalf of the Congress, and that there was urgent need for (a) a minimum staff to handle the program in this country and (b) a small allocation of funds to pay for telephone, stationery, publicity, etc. Until the present time, Professor Fock has been carrying the entire expense and work himself, and apparently has had to be extremely careful about such items as long distance telephone calls. For example, he felt he could afford to telephone Professor John Dewey in Florida and ask him to sponsor the Congress (which invitation Professor Dewey accepted,) but he hesitated to put out the larger funds to telephone Upton Sinclair in California. He would also like to call the Congress headquarters in Berlin, but felt that the transatlantic toll charge was quite beyond his means.
+
+In reply to my query as to what sort of budget would be necessary, Professor Fock suggested that he would need a secretary-typist for two months and a public relations man on a part-time basis for the same period. He thought the secretary could be obtained for $250 a month and the publicity man for less than $500. In addition, $500 would be sufficient for such items as rental of typewriters, stationery, telephone calls, postage, etc. This would make a total budget of $2,000. The rental expense could be reduced, he thought, by using the offices of The New Leader, a Socialist publication of which he is one of the editors. He did not think it advisable to have a pretentious office, since obvious affluence would incite suspicion. The activity could be organized by Americans for Intellectual Freedom, of which he is the founder. This group staged the anti-Communist program in New York in March 1949 for less than $25.00.
+
+As to the expenses of American representatives going to Berlin, Professor Fock hoped that it would not be necessary to use military transportation, since that would create the impression of Government sponsorship. He thought commercial transportation would definitely be preferable, and added that he would like to be in a position to give cash grants to the delegates of about $700, that is, the round-trip fare plus a few dollars over for incidentals. He felt it would be undesirable for too large an American representation to be sent. Probably six or seven people would be enough. This would mean a transportation budget of less than $5000.
+
+Several times during the conversation, Professor Lacy stressed that it was not necessary to have a large sum of money. For what was needed, he said, the right people could hardly be paid; it was essential, he said, to have "dedicated personnel" who were willing if necessary to make personal sacrifices.
+
+On the other hand, he thought it vital to have the right sort of publicity. The press arrangements should be carefully made. He hoped that someone in Washington could ask Mr. Henry Luce of Time and Life and Mr. A. E. Sulsberger of the New York Times to arrange the right sort of coverage, that is, by the right people, such as Anne O'Hare McCormick
+
+of the
+
+SECRET

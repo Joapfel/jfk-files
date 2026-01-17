@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_9568.png
+
+s.
+
+c. Preparation of a subsidiary propaganda plan - to insure adequate reporting of the conference and adequate circulation of its deliberations, in several languages, behind the curtain..
+
+6. Even with the method proposed in paragraph 5, unless a cable of basic approval can go out of here before the 9th of February - and the Project can be prepared, coordinated and fully approved prior to 31 February,- I do not believe we can count on the coming suggested by like which, incidentally, is excellent coming as it does prior to the big presumptive explosions of 1 May-and the Communist Youth Conference. I, therefore, propose that the suggestion in 5 (a) be changed on 6 February.
+
+I.G. A
+
+SECRET
+
+Lori

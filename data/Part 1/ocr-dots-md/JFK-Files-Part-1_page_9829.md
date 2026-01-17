@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_9829.png
+
+Convert to Markdown(e) LIRING/4 will have two channels for S/W. First to "Lic. Antonio Force" with false return a dress and sent through open mail, and second to LIRING/3 sent by hand through Raniro abruo to LIRING office and delivered by hand by Jorrin to Tacubaya apartment, or given by L/4 to some friend traveling to Mexico. In first case all letters mailed, except the first, will contain S/W message; in second case all letters with envelope bearing "Colonia Conesa" after address will be for Howton and have S/W. L/4 promises sent several letters to L/3 without messages as soon as she arrives to test channel.
+
+(f) Only channel for incoming messages for L/4 will be letters from LIKING/3 containing words" Chispas" and "arte" and either hand carried, sent through pouch, or through open mail.
+
+(g) The following signals have been agreed on for purpose specified:
+
+(1) Danger signal will be absence of name Zinzuni in open text to L/3. In all other letters L/4 will mention name. In event hostile control child will be referred to byalicename, or entreating expression but not by name.
+
+(2) "All my B-13 complex vitamins are gone" indicates need for new carbon. "I have no more cologne that everyone liked so much" indicates need for developer.
+
+(3) New carbon sent to LIKING/3 will be recognized by simple drawing KETZEKAAX attributed to daughter and sent as expression of sentiment by LIKING/3.
+
+7. In reply her query re best course of action in event she has reports DSE planning arrest, howton advised LIKING/4 destroy S/w supplies, and take refuge in Mexican Embassy in hope that she would be able communicate with LIKING/3 ( she did not ask nor did howton volunteer how she could notify him since she assumes howton would remain in continuing contact LIKING/3).
+
+8. LIKING/4 encouraged by attitude and sympathy shown by LIKING/2 and Echemadia re her remaining in Cuba, but she made it clear to Rowton that she would not do anything jeopardize her residence permit in Mexico or forfeit the time accumulated, unless Rowton could arrange have Mexican Ambassador in Havana renew her aXXIXX visa and assure her. She added that best approach would be return after time up to attempt bring child back and at that time make new contract with Rowton providing for guarantees. Rowton agreed stating that he not in position for many reasons, including security, to make such commitments at this time. L/4 made it clear to Rowton also that she realizes that he probably operating in an alias and is affiliated with some sort of service or organization (this came out during discussion of contract and acknowledgement of pseudonym which she did not want),but she stated bluntly that she did not want to know any more about Rowton than the little she already knew since "it would be easier to face an interrogation without betraying him completely".

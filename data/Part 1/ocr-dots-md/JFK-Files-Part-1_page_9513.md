@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_9513.png
+
+Convert to Markdown31 March
+
+JEB: Spont an hour and a half this morning at the home of James Burnham; present - Burnham, Denby, myself and Col. Lansdalo from Chester's office.
+
+COVER. Burnham says that the matter of his going over as attached in any way to McCloy was brought up because he wanted to have an opportunity to meet and talk with McCloy. In the meantime, McCloy came over here and Burnham saw him three times (we have one memorandum of conversation.) He added that cover has never been a serious point with him, that he has travelled a number of times in various parts of the world pursuing his profession as a writer and lecturer, furnishing his own cover. The last time he went to Germany he was attached as consultant to ISD. He is willing to go over without any cover at all, or as consultant to Der Monat, if that seems indicated. I told him I believed something like that was indicated as giving him a base of operation and rationalizing his contacts. Therefore, I shall prepare the memo. for Garland on the 'open' basis I had previously suggested but with Der Monat in mind.
+
+TEILING. Burnham is disturbed at the prospect of going to Europe for as long as sixty days and is quite reluctant to consider a longer period. This brought up the entire matter of the Congress and its juxtaposition to the EDJ Deutschland Treffen. All of us evidenced some despair over the fact that obviously we cannot mastermind either project without further advices from the field which seem to have been suspended.
+
+The question was raised as to whether or not the Congress actually could be held in June, considering the kateness of the present date. Burnham brought up for consideration the possibility of his going to Berlin about the first of May, or the last week in April, staying over the end of May, then returning to the United States - on the theory that the Congress might not be hold until August or September. He proposed the 23rd of August (date of the Nazi-Russian pact) as an appropriate date. He then would start out again, presumably in the middle of August; in the meantime, he would establish contact with people in England, France and the US who might need pressure brought to bear upon them to attend the Congress.
+
+If the Congress is to be held about the 20th of June, he suggests that he might go to Berlin about the middle of April, accomplish all he can in the way of advice as to the Deutschland Treffen, leave Berlin very early in May, travel through France and England back to the US, building up acceptances for the Congress, returning to Berlin on the 25th of May and staying over for the Congress.
+
+CONSIDERATION OF REICHSTAG PROPOSAL. He does not favor the idea of proposing the Reichstag building as a symbol of European Freedom,

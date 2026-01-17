@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_9570.png
+
+Convert to MarkdownSECRET
+
+25 January 1950
+
+MEMORANDUM TO: BAKER
+MILLER
+HARRISON
+BRYAN
+
+SUBJECT: Berlin Intellectual Conference
+
+1. A proposal for the support of an Intellectuals' Conference in Berlin has been pouched in by Gearing. He asks that this be given urgent consideration and that a decision should be made as quickly as possible. If the operation is undertaken, Josseison will need the assistance of two or three people in Berlin. Those people might be the same as those mentioned in relation to the Communist Youth meeting in Berlin this Spring.
+
+2. Arrangements for the organization of a political and psycho-logical coordinating group in HICOG have been completed and are awaiting McCloy's approval. The purpose of this group is to coordinate the activities of the various staff sections in McCloy's office in these fields, and to develop a more intensive program of action.
+
+3. Gearing will sit as a member of the Committee representing SHUTE. This will give him the opportunity of being acquainted with all overt action planned in Germany so that covert operations can be properly coordinated with them.
+
+FAL:mt
+
+SECRET

@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_9632.png
+
+Convert to Markdown**WICHTRICH, Alfonso Rudolph**
+
+4 December 1947
+
+On December 3, 1947 the investigative files of Confidential Government Agency (L-2) were examined and disclosed the following:
+
+Included in the file is an Investigative report dated June 25, 1943 regarding one Captain Al. R. Wichtrich, any Serial Number 0377220, which revealed no adverse information regarding Subject. It was mentioned, however, by four informants that Subject's father was suspected of having pro-German leanings during World War #1, but these suspicions were not verified by the informants. Persons interviewed vouched for Subject's father's loyalty at the time of the investigation.
+
+It was noted that Subject's Personal History Statement dated February 16, 1943 indicates that he was born on October 30, 1915 at Willcox, Arizona. The investigation verified the fact, however, that Subject was born in Chihuahua, Mexico on October 30, 1915.
+
+In a casual conversation with another officer, Subject volunteered the following information with respect to records of his birthplace. Subject stated that he had no birth certificate and had moved from Chihuahua Mexico to El Paso, Texas, with his parents, when he was one or two years of age. Subject stated that he had never inquired about, nor realized that he was born in Chihuahua until he was in high school, having previously presumed that he was born in the locale in which his childhood was spent, viz; Willcox, Arizona.
+
+Subject stated further that he gave his birthplace as Willcox, Arizona on his application for enlistment in ROTC to eliminate conflict with any previous records which would then require a list of "red tape" in making what he considered then a minor discrepancy of no consequence, inasmuch as his father's naturalization automatically made him (Subject) a citizen of the United States.
+
+It was the opinion of the officer making the above report on Subject's birthplace, that any conflicting records of Subject's birthplace was not due to any motives of subterfuge, but was most probably due to Subject's desire to expedite his entrance into college without encountering
+
+CONFIDENTIAL
+
+901 30999

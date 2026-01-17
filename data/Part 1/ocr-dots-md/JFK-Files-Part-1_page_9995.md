@@ -1,0 +1,84 @@
+# JFK-Files-Part-1_page_9995.png
+
+Convert to Markdown14-00000
+
+<table><tr><td>MESSAGE FORM</td></tr><tr><td>TOTAL COPIES</td></tr><tr><td>SECRET</td></tr></table>
+
+<table><thead><tr><th colspan="2">ROUTING AND/OR INITIALS - SHAR ET</th></tr></thead><tbody><tr><td>1</td><td>6</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></tbody></table>
+
+<table><tr><td>DATE: 15 AUGUST 1967</td></tr></table>
+
+<table><tr><td>CASE SECRETAL AT DEPARTMENT</td><td>☐ INDEX ☐ DESTROY ☐ RETURN TO __________ BRANDY ☐ FILE ID __________</td></tr><tr><td>BY [signature] PER __________</td><td>☐ NO INDEX ☐ FILE IN CS FILE NO.</td></tr><tr><td>CONF. clean 6</td><td>☐ RID COPY ☐ FILE vs. cl85, cleoolega, c162</td></tr></table>
+
+<table><tr><td>(Confidential)</td><td>(涉密文件)</td></tr><tr><td>(Date and time lag)</td><td>(Reference Number)</td></tr><tr><td>[SECRET]</td><td></td></tr></table>
+
+TO MEXICO CITY INFO GUATEMALA CITY
+
+KAPOK
+
+REF: MEXICO CITY 2455 (IN 30815)
+
+CITE DIRECTOR 28195
+
+1. AURA MARINA (ARRIOLA) PINAGEL DE MENDEZ, 201-732208, JMTIGER, MISTRESS OF RICARDO ARNOLDO (RAMIREZ) DE LEON, 201-83287, JMTIGER, MARRIED TO HERNAN (MENDEZ) ROJO PER HOMA 18102, 1 NOVEMBER 1961. ARRILLA REPORTED CUBA 1965 WITH RAMIREZ, PER EGG-3762, 22 APRIL 1965. CHE GUEVARA APPARENTLY GOD FATHER OF ARRILLA-RAMIREZ SON.
+
+2. HERNAN (MENDEZ) ROJO WENT USSR OCTOBER 1961 CN 6 YEAR SCHOLAR-SHIP. HERMAN (MENDEZ) ROJO REPORTED STUDENT LENINGRAD STATE UNIVERSITY MAY 1964. HERMAN (MENDEZ) ROJO'S PARENTS ARBENZ COMMUNISTS.
+
+3. JORGE ROLANDO (MENDEZ) AGUILAR AND MARIO AUGUSTO (MENDEZ) AGUILAR ARRESTED GUATEMALA CITY JULY 1963 FOR VIOLATION LAW OF DEFENSE OF DEMOCRATIC INSTITUTIONS (OUTLAWING COMMUNIST PARTY) PER NEWSPAPER REPORT EL IMPARCIAL 24 JULY 1963. FURTHER TRACES AS FOLLOWS:
+
+A. MARIO PARTICIPATED ATTACK ON GUATEMALAN ARMY BUS 26 MAY 1964 PER HGG 3590, 13 OCTOBER 1964, FOR WHICH ARRESTED 4 FEBRUARY 1966
+
+CONTINUED
+
+RELEASING OFFICER
+
+COORDINATING OFFICER
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tr><td>GROUP 1<br/>Included from automatically<br/>generating and,<br/>continuing to continue</td></tr></table>
+
+AUTHENTICATING OFFICE
+
+COPY #2
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. [Signature]
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+26
+27
+28
+29
+30
+31
+32
+33
+34
+35
+36
+37
+3

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_9891.png
+
+Convert to Markdown14-00000
+
+PROCEDURE
+
+Subject first refused to take the test, basically on the grounds that in his estimation his relationship with ROWTON, as well as his whole way of life, were at variance with any such procedure. In the case of four years that this was being discussed, Subject also decided to quit working for ROWTON.
+
+Eventually, over a specific matter of heart pride, Subjects agreed, or rather demanded, to be trusted on "two questions--whether (he) was betraying ROWTON to IDEN E Intelligence and whether (he) trusted ROWTON," following which he would break off contact with ROWTON. Under the circumstances ROWTON, ... the best option would be to follow this lead and attempt no more than a clarification of Subject's relationship with IDEN E Intelligence. The examiner was not optimistic about the possibility of getting a valid test under those circumstances, but after talking with Subject for a time it was possible to develop what the examiner considers a reasonable and technically acceptable test covering appropriate involvement with any intelligence service.
+
+The above procedure might be visualised more accurately if it is mentioned that once having met with Subject, ROWTON and the examiner had almost no time together without Subject being present, and it was not possible for them to converse in any language other than Spanish without damaging their cover.
+
+RESULTS
+
+Subject has no connections or commitments unknown to ROWTON with any government or intelligence service. He has no involvement with the IDEN E's that he wishes to conceal from ROWTON, and he has no dealings with the IDEN E's which are contrary to what he believes to be ROWTON'S interests.
+
+Concerning revelation to the IDEN E's of Subject's association with ROWTON, the issue itself was, not unexpectedly, a cloudy one. In brief, Subject stated that he could not really recall the exact extent to which he might have revealed the fact that he was backed by a IDEN C or that the IDEN C's name was (ROWTON's alias). Subject himself suggested that he be asked if he was "informing the IDEN E's of ROWTON's movements." Subject's way of expressing the idea of "reporting on" ROWTON. The examiner used this question, and Subject appears to have been trustworthy in his negative answer to this question.

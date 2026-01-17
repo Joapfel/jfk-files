@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_9665.png
+
+Convert to MarkdownJune 6, 1964
+
+Lyle Stuart
+Dr. Paul Osegueda
+Bartolome Costa Amic
+Mario Monteforte Toledo
+
+Dr. Osegueda apparently has had a secret longing to get something of his own printed in English. He seized upon the opportunity of commenting on Introduction to "Antikomunismo" in order to write to Stuart this spring. Stuart wrote very cordially back to Osegueda, hoping to meet him on a trip to Mexico in June. When Osegueda confessed to me his correspondence with Stuart, he sought to make me see it as an attempt to speak with Stuart about the royalties Stuart has never paid me.
+
+When Osegueda finally did see Stuart here during the book congress in June, he only very timidly and very, very briefly touched upon the royalty problem, and indeed went to a great deal of trouble to serve Stuart by introducing him to Costa Amic and to Mario Monteforte Toledo. (Stuart had expressed interest in getting in touch with some publishers and writers.) Osegueda bustled about, taking Osegueda and Monteforte Toledo to lunch with Stuart, even managed to get the Monteforte Toledos to invite Stuart to dinner at their apartment. There were tentative discussions of collaborating in the distribution of Costa Amic books in the United States and of publishing some book of Monteforte Toledo's.
+
+However, both Costa Amica and the Monteforte Toledos told me that they found Stuart offensively vulgar and were not at all enthusiastic about having anything to do with him.
+
+Two weeks ago, Osegueda sketched the outline of a book (contemporary history of U.S. and Latin American relations) he hopes Stuart will want to publish, and sent the outline up to him.
+
+SECRET
+
+<table>
+   <tr>
+    <td>EXH 1</td>
+   </tr>
+   <tr>
+    <td>Excluded Days</td>
+   </tr>
+   <tr>
+    <td>February 13</td>
+   </tr>
+   <tr>
+    <td>Sepember 24</td>
+   </tr>
+   <tr>
+    <td>Diciembre 15</td>
+   </tr>
+  </table>

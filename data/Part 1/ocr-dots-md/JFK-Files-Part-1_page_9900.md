@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_9900.png
+
+Convert to Markdown28 October, 1967
+
+Subject: Wallace B. Rowton Contact with Rodolfo Keyes Cortes(Subject).
+
+1. Rowton met Subject on the evening of 27 October, 1967, at a small party at the home of Carmen Molina de Carrenco, Calle Amsterdam 252/6. LIRING/3 and 74 and The only other persons at the party besides/the son and daughter of Carmen Molina were Carmen Lozada and Enrique Canudas, the latter two of whom had returned from Havana some 30 days previously. All the above are Mexicans who have spent several years in Havana and are social acquaintances of LIRING/3 and LIRING/4.
+
+2. ROWTON crashed the party in the company of LIRING/4 according to a previously agreed plan. LIRING/3 arrived at about 2030 alone, explaining that he had had to leave LIRING/4 at home to wait for an important client who was making a payment on one of LIRING/3's paintings that he had recently purchased. LIRING/3 was to add that LIRING/4 would try to persuade this client to accompany her to the party so that he could meet everyone, and have a drink. LIRING/3 told Rowton he was certain that Carmen Molina would have no hesitation in inviting Rowton to stay once he got into the apartment.
+
+3. Rowton and LIRING/4 arrived about 2130 and found the party in full swing with LIRING/3 and Eduardo Canudas struggling to get the photograph operating ( they eventually borrowed another and played several Cuban revolutionary records.). Rowton was introduced as Sr. Harris, a Greek businessman and long-standing client, and felt at the end he was able to convince all present that he actually was not from WCLADY (although most apparently had that impression at the outset). Rowton managed to toss out a few phrases of Russian at the right time in the direction of Carmen Molina to impress her ( fortunately her Russian is weaker even than Rowton's ) Rowton spoke some English with as good an accent as he could manage. Carmen Molina volunteered to him privately that she had a great many "progressive" friends in the U.S. Rowton was able to insert several comments about the current political situation in Greece that was forcing him into a virtually clandestine existence in Mexico, as well as elsewhere. Everyone appeared to sympathize with Rowton and ceased asking any personal questions.
+
+4. Rodolfo Reyes Cortes, apparently the guest of honor, arrived at about 2300, apologizing for being late and explaining that he had to attend a memorial service (un acto) for Che Guevara. He refused all offers of liquor

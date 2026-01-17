@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_9487.png
+
+Convert to Markdown14-00000
+
+14 April 1950
+
+REMEMBER FOR: WALKO
+
+SUBJECT: Congress for Cultural Freedom
+
+One of the most pressing problems in connection with the proposed intellectual force congress to be held in Berlin is the matter of providing funds for transportation of delegates. We have conceived the possibility of two or three organizations overtly financing trips for cultural and intellectual leaders from various countries. The money thus provided might be deposited with the American Express Company with instructions to honor transportation requests from persons holding bona fide invitations to the congress endorsed by one of the sponsoring organizations.
+
+It is expected that there will be a total of approximately
+60 delegates. At this date, the following persons have been invited:
+
+**England**
+*   Fortnightly Russell, Philosopher
+*   Julian Harvey, Biologist
+*   Nellie Crossman, M.F. and Author
+*   Victor Colliana, Publisher
+*   Arthur E. Martin, Editor
+
+**France**
+*   André Gide, Author
+*   Arthur Koestler, Author
+*   David Housett, Editor
+
+**Germany**
+*   Karl Jampolsky, Philosopher
+*   Alfred Weber, Sociologist
+*   Carlo Schindl, Politician
+*  ugen Kogon, Editor
+
+**Italy**
+*   Benedetto Croco, Author and Politician
+*   Ignazio Gilone, Novelist
+*   Carlo Levi, Author
+
+SECRET
+
+SEIb : P.O. Bich

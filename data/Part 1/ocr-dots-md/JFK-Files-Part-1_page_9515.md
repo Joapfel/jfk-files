@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_9515.png
+
+Convert to Markdown16 March 1980
+
+MEMORANDUM FOR: P03
+RELOCATION: CUP
+SUBJECT: Gerard BROOLIER
+
+1. It is requested that arrangements be made with State Department for subject to depart for Berlin on or about 25 April 1960 as a WOC Committes. This is a temporary duty assignment for thirty days plus air travel time.
+
+2. Subject's application for Foreign Service employment is attached herewith in duplicate.
+
+3. It would be appreciated if you would keep us advised of the progress of this action.
+
+J.E.H.
+F30
+
+EAE:P53 Appl.(2)
+
+e.g:OPC Box (2)
+PB-III Chrono
+PH-III Subject
+
+SECRET

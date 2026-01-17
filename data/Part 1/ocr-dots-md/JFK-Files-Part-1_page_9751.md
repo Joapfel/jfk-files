@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_9751.png
+
+Convert to Markdown<table><thead><tr><th>CABLE SECRETARIAT DISSEMINATION</th><th>CLASSIFIED MESSAGE</th><th>TOTAL COPIES</th><th colspan="3">ROUTING AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>PERSO/JUNI NOTIFIED<br/><br/>ADVANCE COPY ☐ ISSUED ☐ SLOTTED<br/><br/>BY ______ AT ______<br/><br/>DISSEM BY 4 PER ____<br/><br/>ACTION W/H/COEG ☐ RID COPY</td><td>SECRET<br/>(When Filled In)<br/><br/>REPRODUCTION OF THIS COPY PROHIBITED<br/><br/>INDEX ☐ YES ☐ NO<br/><br/>CLASSIFY TO FILE NO __________<br/><br/>X-REF TO FILE NO __________<br/><br/>FILE RID ☐ RET. TO __________ BRANCH ☐ DESTROY ☐ SIG<br/><br/>INFO FILE VR WH8, RJAN</td><td>GROUP I<br/>DECLARED FROM AUTOMATIC RECRUITMENT NO CLASSIFICATION<br/><br/>1 A☐ 6<br/>2 ☐ 7<br/>3 ☐ 8<br/>4 ☐ 9<br/>5 ☐ 10<br/><br/></td><td>1</td><td></td><td></td></tr></tbody></table>
+
+SECRET 271602Z SEP 68 CITE GUATEMALA CITY 9511
+
+DIRECTOR INFO MEXICO CITY
+TYPIC LIRING
+
+REFERENCE: DIRECTOR 36584
+
+27 SEP 68 ING 01147 C
+
+1. MEXICO CITY 7335 NOT RECEIVED BY GUATEMALA CITY.
+
+2. FILE 201-798301.
+
+SECRET
+
+SECRET

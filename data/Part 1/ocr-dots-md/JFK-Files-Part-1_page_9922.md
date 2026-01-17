@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_9922.png
+
+Convert to Markdown2.
+
+(a) In general the amount of the participation of both Sergio Valdez and Fulano in LILY's editorial as well as commercial efforts, L/3 has told Newton repeatedly that Valdez and Norma are aware of L/3's relationship in the plastic flower business with her. In Greens but that they are not willing of Newton's alias or of the true nature of their relationship. IIFMHC intercepts, however, reveal that L/3 keeps Sergio Valdez informed of his situation with Newton (and it must be assumed) of the general content of their conversations. During this period, Newton is referred to once as "Corba" and several times as "Valdez", whereas previously he was referred to simply as "that general". L/3 has entered to Newton that Sergio Valdez believes that he, L/3, is a legitimate member of the family and that his Dutch-carrier and his Dutch commercial.
+
+(b) L/3's relationship and昵稱關係 with Olivia Dunán and Penta Wiggisen. In BII-40(5.5) Olivia Dunán invites L/3 to her home between 1950 and 1960 or 7/7/67 when she will be free. She calls and talked to L/3 for the first time on 10/8/67. L/4 says that she has heard of Olivia from L/3 and Olivia replies that she hopes they will meet some day soon. BII-40(5.5) indicates that L/3 is using Newton as an excuse to stay at the Sacubaya apt (probably during a trip with either of the above women). He saw Newton from 17/10-19/10 on 4/3/67 but called L/4 at about 1915 to say that the "betten with "arrive is not finished yet", and later to add that "the thing is dragging out".
+
+(c) L/3's telephone contact with a certain Electa on 9/3/67 who tells him that the Swiss artist, Rodolfo Meisler, is visiting from Cuba. L/3 comments that he has known Meisler since 1961 - since L/3 first went to Cuba.
+
+Walter S. Portor
+Valdez · Newton
+
+!! Not Electa AREAL mother in law
+of David Alfaro Suárez? -?

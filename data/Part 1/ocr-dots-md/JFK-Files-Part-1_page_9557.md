@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_9557.png
+
+Convert to MarkdownAm. Express.
+
+Interview under name of Martin E. Williams, of Kingston, Pa., with Mr. Gilmore, Asst. Passenger Traffic Manager of Trav. Dept.
+
+Am. Ex. will accept money (check, draft or cash) in one place - N.Y. office - or in several places (Paris, for instance) provided one central office knows details and can coordinate.
+
+Will then write to all offices involved, authorizing transportation, etc., for list of persons (which may be added to at last moment). We specify what credentials persons must present. We also specify whether transportation is to be by air, steamship, rail, etc.; first class or otherwise; whether or not 'expenses' are to be allowed - in this connection they suggest that travelling expenses be allowed (for meals, etc.) not to exceed 10% of transportation. They suggest that we act as soon as practicable because of rush for travel to Europe but Mr. Gilmore says they can be reasonable certain of providing air transportation.
+
+They will render a complete accounting of transportation and expense money provided, and remit unexpended balances.

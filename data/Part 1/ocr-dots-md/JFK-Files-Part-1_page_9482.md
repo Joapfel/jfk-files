@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_9482.png
+
+Convert to MarkdownSECRET
+
+28 April 1960
+
+MEMORANDUM FOR: MR. THOMAS K. STRAUSE, P.D./BSC
+SUBJECT: Slow-burning Fuse
+
+1. It is requested that one ounce of fifty units of slow-burning fuse be procured for OFC. This fuse is a Barium Sulphinate Oxide mixture, made up in a quarter-inch load tube, with a burning time of 279 seconds per unit.
+
+2. It is further requested that Mr. John H. Jeffries, Consultant, P.D./O.C., be authorised to purchase this fuse, for which he will be reimbursed. (The estimated cost of one ounce will be $46.86.) Charges for this procurement should be made against Project SUBCODE.
+
+3. The above-mentioned fuse is to be delivered to CRS on 27 April 1960 by Mr. Jeffries. After sufficient testing and formulation of instructions, CRS will turn the fuse over to Mr. John Baker, PB-III, Operations Division, OFC.
+
+L. R. DAILY
+Acting Chief
+Research and Development
+
+APPROVED
+
+John L. Baker
+
+Chief of Operations
+
+cc: PB-III✓
+COS
+
+LED/ds
+
+SECRET

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_9836.png
+
+Convert to Markdown30 January, 1968
+
+Subject: LIRING/4 Report of letter from Maceiro, Vice Minister of Education.
+
+1. At 10:00 on 30 January, 1968, LIRING/4 reported to Rowton that she had seen Jorrín the previous afternoon and that he had told her that he had been to her apartment the previous evening but had failed to find her or LIRING/3 in. He explained that Dr. Marinelo, who was visiting Mexico City, had asked him to deliver to LIRING/4 a letter from their mutual friend, Dr. Maceira. Jorrín then gave LIRING/4 the letter.
+
+2. LIRING/4 stated to Rowton that the letter was simply a request for shoes for Maceira's child which could not be obtained in Cuba. LIRING/4 commented that this was only another of a series of such requests that Maceira and Figueroa of the Ministry of Education had been making to her since their last visit to Mexico. She had in the past ignored the requests since she felt she had done enough and could see no useful purpose in running around town as a purchasing agent, particularly when there was no guarantee that they would reimburse her.
+
+3. Rowton suggested that on this occasion, however, it might prove worthwhile, in view of Marinelo's apparently important position in Havana and LIRING/4's forthcoming trip. He suggested that LIRING/4 purchase the shoes (about 60 pesos) and attempt to deliver them personally to Marinelo; she could then invite him to lunch or dinner in the hope of assessing his present feelings toward the regime. LIRING/4 recalled that Marinelo had been Sector of the University of Havana and was a member of the old guard communist party. She added that Jorrín had mentioned that Marinelo held Ambassadorial rank and was serving at the present time in some sort of international delegation.
+
+4. LIRING/4 also reported that she had run into an old Cuban friend, Aralia Arizzendi, on the street, and that the latter had given her her home phone as 23-79-95. LIRING/4 explained that Arizzendi had married a Mexican psychiatrist and left Cuba some years back. As far as she knew Arizzendi was sympathetic with the Castro regime and on more or less friendly terms with LIRING. On this occasion Arizzendi joked with LIRING about the inefficiency of the LIRING officials, saying that the only person she felt was doing a decent job was Cepeda.
+
+CS COPY

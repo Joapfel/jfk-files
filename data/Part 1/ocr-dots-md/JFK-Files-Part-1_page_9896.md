@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_9896.png
+
+Convert to MarkdownSECRET
+
+Chief, MOACRE
+Chief, VI Division
+Chief of Station, Mexico City
+AQUATIC/Documentation
+
+Action Required: See Par 2.
+Reference: DSS-5614, 12 October 1967.
+
+1. Returned herewith is one signed receipt as requested in Reference, Par 3.
+
+2. Per Par 4 of Reference, Wallace B. ROTON has stated that LIEBIG-3 could get backstopped documents at a cost of 1,000.00 M.H. (380.00 US) plus travel expense. These are regional type "Passports." Something above an Identity card. ROTON suggests that two or three identifications be provided of each general terms that substitution would be fairly easy. That he needs for each document are six photographs full face and full profile, both left and right, along with a complete physical description. The subject should be 45-50 years old and have a Mexican or Latin appearance.
+
+3. Blank Mexican Passports seem unlikely at this time because of our limited dealings with the Foreign Office. We suggest you talk with the Mexican desk on this point.
+
+Sar/Willard C. CURTIS
+
+**Attachment:**
+
+I Receipt E/W
+
+**Distribution:**
+
+2 - C/MOACRE, w/att
+2 - C/VED, w/o att
+
+RDT-8462
+
+16 November 1967
+
+50-6-18/8

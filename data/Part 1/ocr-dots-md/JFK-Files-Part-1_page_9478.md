@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_9478.png
+
+Convert to Markdown23. Check with Metrat Way and Dietjen about "Hidelio" performance.
+
+24. Check with Miklós about the Steinplatz park.
+
+25. Complete arrangements for Steinplatz and Am Zoo Hotel rooms.
+
+26. M.J. and the question of "Security" at the Hotels and Taberna.
+
+77. Contract for Titania on Monday afternoon, and the Sporthalle for public meetings.
+
+28. Arrangements for City-Congress reception on Monday evening -- most preferably on the Hannover, at the Gastehaus.
+
+29. Arrangement for a dozen taxis or so -- hired for the week -- with "motor pool dispatcher" -- each cab marked "Kongress" -- cutting down use of cruising cabs (security).
+
+30. Has arrangements (who as guides?) for tour of city on a free morning (Monday, Thursday), or other times -- not into Soviet sector, but along border points, Brandenburg Tier, etc.
+
+31. Collecting vague thoughts about place and character of Final reception party. Congress, commandants? where (lakeside? Pforzheim?)?
+
+32. Problem of Congress meals and Congress expenses for Delegates. Austrians (among others) are broke. Usual Congress custom of meals.
+
+33. Completion of several Monat reprints for the Taberna book-stall and Congress material. Silone, Loestler, among others. Monat exhibition. Bound volumes? Order fifty more.
+
+34. Ticket and Information Bureau -- facilitate to theater performances, concerts, restaurants, and the like.
+
+35. Arrangements about at least two good interpreters -- one to be native in German language. Translators into French and English should be native-in-language; also checkers. Allied liaison.
+
+36. Press Facilitation arrangements: telephone, cable.
+
+37. Check on improved Buffet at Taberna.

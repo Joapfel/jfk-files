@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_9870.png
+
+Convert to MarkdownSECRET/KAPOK
+
+77 March 1967
+00-120-13
+
+U. LIRING-3: From recent activity it appears that the Guatemalan FAR may have recovered its interest in LIRING-3. In late January, an emissary of FAR representatives in the PERUVIAN capital traveled to Mexico and contacted the person who had carried to PERUVIAN the letter sent by LIRING-3 in the summer of 1967 denouncing Moises CROZCO Leal. The emissary brought the word that the FAR had much appreciated LIRING-3's letter on CROZCO and warned that the FAR organization in Mexico City was infiltrated by a WOFIRM operator. Try as he might, however, LIRING-3 failed, at least by the end of this period, to meet with the FAR men.

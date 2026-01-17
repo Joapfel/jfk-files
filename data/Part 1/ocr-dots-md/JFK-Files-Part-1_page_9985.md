@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_9985.png
+
+Convert to Markdown2.
+
+City. In view of the response of the Venezuela Station ( discouraging Rowton from directing L/3 into Venezuelan guernilla activities with Srgio Valdez and Raúl Moreno) Rowton instructed L/3 to refrain from involvement with them in this aspect of the operation. He agreed, however, with L/3 that the new company gave him much-needed additional financial cover, especially in the eyes of the PERUVENS in the likely event that they would question him more closely during a future trip into their area.
+
+4. During the month, on a trip to Cabisca, Octo., L/3 succeeded through his half-brother in meeting Judge Francisco Mario Valdez of Puerto Rosita who promised to arrange for the issuance to L/3 in the alias Alberto Farate Tidal of a (false) passport. LIRING/3 feels that the possession of such a false document will enhance his potential in the eyes of the PERUVENS as well as FAR.
+
+5. During his trip to northern Mexico LIRING/3 also managed to "purchase" the passports of three (deceased) Cubans who had left the documents together with other papers at the hotel in Nuevo Loredo where they had stayed prior to their supposedly clandestine entry into the U.S. L/3 procured these documents with Rowton's prior approval on the assumption that they might prove useful to Rowton at some future date.
+
+6. In connection with the Noisés Crozco affair, Rowton uncovered an important instance of deception on the part of both LIRING/3 and LIRING/4. A review of LIFEAT intercepts revealed that L/3 was in the safehouse during the period 19-21 July, when he had claimed to Rowton that he was on a trip to Tapachula to receive contact instructions for his first meeting with Crozco. LIRING/3 apparently asked L/4 to backstop his story when Rowton queried her separately, since she did so (although claiming ignorance of the purpose of the trip). L/3 subsequently admitted to Rowton that he had not made the trip to Tapachula but had actually met Crozco through Sergio Valdez ( who had been referred to him by Alberto Domingo of Siempre) and that he had not wanted to reveal this to Rowton until he "could figure out how Valdez fitted into the picture". Since Rowton and the Station felt that this was another opportunity to secure LIRING/3, a request was repeated to Headquarters for a Spanish-speaking operator. The request could not be complied with at the time and Rowton has had to continue checking LIRING/3's reports as carefully as he can without benefit of the technical investigation.
+
+Wallace E. Rowton
+
+201-798361

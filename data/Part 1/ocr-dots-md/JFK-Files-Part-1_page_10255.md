@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_10255.png
+
+Convert to MarkdownFrente, solo que en Bano d'í a allíres
+
+Ara pisanse el Consul de Guatemala, Traan:
+El musical para Todos las Tristas. El Consulado
+de Guatemala, qae diberá funcionar en Comitán
+o Cid. Cucuteatro, de encerrada pos eXtraña
+Yzores en la mesilla, Dentro del Timtono
+- Guatemalaeco. Fara Barna se pisa un
+Tanto meirado Cuando acudiran al Consul
+pasa el pezoso, prata: gueiste etlenó
+Bin dificultad. No obstante pensamos que
+el memorioso de Jara Barna lo provó-
+alguna despecha. Que le brille lade
+Con el Clober de Tante pure, y Cid,
+que despues confirmamos (despres
+fo las antordades Guatemalaee) nos mostraron
+del muelo nido delinuidos). Nos mostraron
+las peristas donde Pizgal al Mabri; y con ido
+las publicadas de FAR, y que sólo pudmos
+les arsido obtenidas por el Consul pigza
+procesadas por el Clofer del Taxi, que
+nos llevó; y que Tomamos en
+Comitán, ya que eske dinante el Trepec.
+Nos hablo de su anuntar con el Consul
+y reguaimente deeko dos cuenta de
+que "algo" sorperhoso" dejo Pedralba
+en la Banca.

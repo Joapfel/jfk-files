@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_9887.png
+
+Convert to Markdown2.
+
+appeared to be in reasonably good spirits after the test, although
+he was obviously emotionally strained by the experience. Rowton made
+a date to see him again that evening at 2100 to talk things over in
+a calmer atmosphere.
+
+5. At that meeting with LIRING/3 Rowton explained that he had felt it necessary to ascertain as objectively as possibly the extent of LIRING/3's loyalty to him and he was happy to have scientific proof that LIRING/3 had not berayed him to the LIRING's. LIRING/3 stated that after it was all over he felt better and admitted that he agreed with Rowton on the necessity for such an examination, humiliating as it might at first have appeared to be. He confessed that any "errors" (fluctuations and omissions) that he had made in the past, were due to his intense desire to produce for Rowton, since he still felt very sensitive about having to accept money from Rowton without being able to render commensurate services. He stressed, however, that at no time had he ever been disloyal to Rowton or done anything against Rowton's interest, as señor Albertini could prove with the results of the SGSWIRL. LIRING/3 promised in the future to follow Rowton's direction scrupulously and assured Rowton that he no longer felt under any compulsion to exaggerate or fabricate anything to impress Rowton.
+
+6. Headquarters and the Station may find the SGSWIRL examination disappointing in its limited coverage, but it must be realized that LIRING/3's initial reaction was entirely negative and at one point he treated to break off completely with Rowton because of the insult to his "dignity". Although the SGSWIRL operator felt that from a professional standpoint it would be better to administer the examination at another time when LIRING/3 was less emotionally upset, Rowton asked both him and LIRING/3 to go thru with it on the spot, feeling that psychologically it was essential to make LIRING/3 submit, even for a limited test. Rowton also feels that the test did serve as a very favorably deterrent over LIRING/3 in the future, when a second one can be more painlessly administered, in a calmer atmosphere. It, of course, also covered the very pertinent question of whether LIRING/3 had been an LIRING double agent or betrayed Rowton in any way.
+
+Wallace B. Rowton
+
+201-798301

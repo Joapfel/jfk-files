@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_10277.png
+
+Convert to MarkdownEstá contradecía: para poder desarrollarse hay que liberarse del explotador, se planten en Cuba de forma confusa, como una circula vicioso. Para salir del monocultivo y dependencia económica de un producto hay que diversificar e industrializarlo y para lograr la industrialización y diversificación agrícola hay que liberar la fuerza de trabajo desviada al azúcar a través de la mecanización cañera y para mecanizar hace falta la seguridad económica de que esta READICA utilidades.
+
+## El Círculo-Vicente:
+
+a) Los obreros se ponían a la mecanización porque no existía otra alternativa de trabajo.
+
+b) Los capitalistas no mecanizaban por la inseguridad del precio en el mercado mundial.
+
+La mecanización debe habersele presentado a algunos como una inversiónkünda. Por otra parte la mano de obra era barata y en grandes cantidades. El suelo tenía tales características que casi sin atención producia en condiciones expotables.
+
+c) Hay un factor más complejo: La industria azucarera no tenía perspectivas a largo plazo; pero tampoco era deseable en lo imediato por la rentabilidad que producía. Su futuro era haciéndolo; pero su presente estaba utilidades. Estas características,خشas, altas y bajas, lejos de provocar decisiones en una u otra dirección, mantuvo un estatismo en los propietarios y gobiernantes. Tel parece que hibren en esperando que tu impudencia.ble o el simple transcurso del tiempo resolviese una situación que a la par que les preocupaba, demostraban ineptitud para resolver.
+
+d) Si el azúcar era la fuente principal de ingresos y acumulación, por tanto la base financiera del desarrollo debía ser ésta.
+
+## Problemas específicos:
+
+a) 500.000 cortadores de cada. Representa el 10% del total de la población y ceven del 40% de la población en edad laboral.
+
+b) El 3/7% de la tierra cultivada destinada a cada
+
+c) La concentración de la cama: la única actividad productiva que podía permitir ingresos casi seguros, se encontraba distribuida entre un número relativamente bajo,
+
+d) La repartición de ocrática de la fuerza de trabajo et i, como las instalaciones azucareras, horizontal, es dear, a lo largo y ancho de la Isla. Concentrar las instalaciones azucares en tierras de mayor productividad y acorde con las instalaciones de mayor capacidad, sinonía también en la concentración de la año de obra.
+
+Las dos fuentes de riepas principales de Cuba, suelo y Alamo de Obra, quedaron supereditados a un monocultivo cuyo futuro era incerto.
+
+Pucerón haber arriesgado la diversificación e industrialización del país no tanto con las probabilidades de ganancia de un producto inseguro, sino con la realidad de un suelo rico y una fuerza de trabajo apte, pero por la inclitud y conformismo unidos a las presiones y tutela de los Estados Unidos no encararon con resolución un proceso d namico que su visión estrecha les hacía aparecer estático.
+
+El simple transcurso del tiempo con des consecuencias inevitables, una social y otra económica (crecimiento de la producción y concentración de capital), en las condiciones de la economía cubana, conducía a una crisi del sistema imperante: la Revolución fue la respuesta. Allende la burguesía en su doble condición de proprietaria y gobernante se demostró incapacidad y vacío, la Revolución tenía que superarla. La Revolución heredó los problemas que no habían sido encarados y las contradicciones que no habían aido resultantes.
+
+Las soluciones que algunos escriben progresistas, estudiosos o economistas plantearon a los graves problemas de la economía nacional, no sólo resultaban con el tiempo meros palinivos que solamento lograran la dilación de a crisis e résolution de los problemas, sino que resultaban reformas impracticables por las contradicciones que aśi vez creaban. Véase a modo de ejemplo el apéndice No. 5 de José Antonio Gutiérrez, de fecha 28 de septiembre de 1942. También algunas conclusiones de Etonn White en "Azúcar Amargo", pág. 178 y siguientes.
+
+Pero la Revolución no olamente hereinó problemas

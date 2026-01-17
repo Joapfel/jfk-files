@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_10351.png
+
+Convert to MarkdownSECRET
+
+22 Nov 68 IN 40270
+
+1. IDEN IS FRANCIS SHERRY, PHONE NO. 20-76-66.
+
+2. FILE 201-798301.
+
+SECRET

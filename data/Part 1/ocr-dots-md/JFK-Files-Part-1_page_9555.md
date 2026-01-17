@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_9555.png
+
+Convert to Markdown14-00000
+
+Kono: 10 Feb.
+
+8 Feb. Discussion with Williams reference theme of congress and MI possibilities.
+
+Talk withgenby roforenco project - ho produced outlino draft.
+
+9 Feb. Met Mr. Hilger, preliminary talk reference personalities involved in Congress, plan for future meetings.
+
+Conference at home of Jim Burnham (Williams, Droller, Smith, Burnham, Glasser.
+
+At this meeting Mr. Burnham, in response to questions, stated his enthusiasm for the idea. He proposed that Sidney Hook be sent over to Germany for a few weeks on an exploratory mission - and to render what assistance he may in connection with planning. He impressed his willingness to go over to Berlin sometime in advance of the congress (under cover of an invitation he has received from the Free University) to actively assist in planning the agenda and other details. He is making up a list of proposed delegates to be invited; thinks it important someone from S.America be included. He is particularly opposed to the inclusion of Sartre in the list of delegates; is not sure of Plievier but not opposed. Arrangements made to continue conforming, probably next week.
+
+10. Feb. 1st draft of Project completed.
+
+13 Feb. idea of money compensation - money earned come from Ollins, alspamed by Adkins + Education in France "if your momentum is not prepared to get your travel - etc." set a time to come again if necessary. (Steinflats Hotel suggested) (Talerman)
+
+Can any more use maleable
+
+14 Feb. Help Talents to send Bullesin off to Vatikan and Lawrence t. Berlin. Harle? Professors meet in the afternoon.
+
+(Over

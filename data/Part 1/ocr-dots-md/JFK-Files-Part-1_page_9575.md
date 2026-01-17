@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_9575.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DCD-399/78
+10 April 1978
+
+SUBJECT: House Select Committee on Assassinations Request (OLC 78-1055)
+
+k. Abraham Isaac Goldberg - One document for retention.
+
+m. Robert J. Korengold - negative
+
+n. Marita Lorenz - File A-20-44-72 on loan.
+Please note that Ms. Lorenz recently filed a request under the Privacy Act (P-77-2794).
+
+o. Evelio Alpizar Perez - Documents for retention.
+
+P. Antonio Soto Vazque - negative
+
+2. With regard to the four names listed together on page two of subject memorandum, I am forwarding documents dealing with Justin McCarthy and a Robert M. Moore. It is uncertain whether or not these individuals are the ones of interest to the HSCA (our files contain references to at least 15 other individuals named Robert Moore; without considerable additional information, we cannot make any positive identification). I am forwarding, on loan, our file on Grayson Lynch (A-19-44-94). You may wish to consult with DCD later with regard to releasing this individual from his obligation of secrecy.
+
+Ruth Elliff
+
+Attachments a/s
+
+RELLIFF:wfc
+
+Distribution
+
+0 - Addressee
+1 - DCD Chrono
+1 - Staff A
+3 - Relliff
+5 - Control
+
+2
+
+CONFIDENTIAL

@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_9855.png
+
+Convert to Markdown27 March 1968
+
+Subject: LIRING/3 Identification of FAR Memeber.
+
+1. At 1130 on 27/3/68 L/3 told Rowton that at last he had obtained the true name of the FAR member he had met through Carlos Persaval and who had previously identified himself to L/3 under the alias Miguel Angel Oliva Castañeda. LIRING/3 said he learned that the true name of this person is Francisco Lara and that he and some 14 other Guatemalans are here in Mexico City legally as exiles. L/3 added that he met "Rodolfo", the older and apparently more important PAR member, yesterday ( 26/3/68) but as yet has not been able to learn his true last name.
+
+2. LIRING/3 also immediately idenditied the surveillance photo (clipped portion sh returned herewith) as that of Francisco Lara.
+
+3. The other surveillance photos, as follows he identified as of Carlos Fersaval, and his wife Teresa Lozada de Fersaval respectively.
+
+Wallace B. Rowton
+
+<table>
+   <tr>
+    <td>MICROFILMED</td>
+   </tr>
+   <tr>
+    <td>APR 8 1968</td>
+   </tr>
+   <tr>
+    <td>DOC. MICROGER.</td>
+   </tr>
+  </table>
+
+CS COPY
+
+W/10
+2tt:1
+
+201-798301

@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_9493.png
+
+Convert to Markdown4-00000
+
+BNCF- 30
+
+4 April 1960
+
+SUBJECT: Congress for Cultural Freedom
+
+TO: Jonathan S. Gearing
+
+1. Berlin newspapers have recently carried a dpa announcement of a Congress for Cultural Freedom to be held during the last week of June 1950. The notices in DET TAGESSPIEGEL and DEZTAG of 2 April and in DIE NEUE ZEITUNG and TELEGRAP of 4 April were all similar and brief - about one inch in length. DAS BERLINER STADTBLATT (Social Democrat) of 2 April, however, carried a large(2½"x 7"), front-page article.
+
+2. The dpa text of the former newspapers was generally as follows:
+
+A Congress for Cultural Freedom will be held in Berlin during the last week of June. The Berlin Committee which is preparing the Congress consists of Ernst Reuter, Lord Mayor of Berlin, Professor Edwin Redslob, Rector of the Berlin Free University, and Dr. Otto Suhr, Director of the Berlin Hochschule fuer Politik. Melvin J. Lasky, Editor of the international review DER MONAT, will act as General Secretary to the congress.
+
+3. The article in the Berliner Stadblatt contains the information of the dpa release and adds the following:
+
+It is believed that a large number of prominent writers and men of learning will attend the Congress. Among others, the following men are expected to participate: Author Ignazio SILONE (Italy), Professore Julian HUXLEY (England) and Sidney BOCK (USA), Poet Arnulf OVEOLAND (Norway) and Ture NIERMAN (Sweden) as well as David ROUESSET and Arthur KOESTLER.
+
+MATTHEW T. CHRISTIE
+
+Dist:
+cc: B.O. (3)
+Singham (1)

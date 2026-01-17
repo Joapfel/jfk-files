@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_10289.png
+
+Convert to Markdown"La Espressa" de Roma organizó, recientemente, un debate entre el es- critor Alberto Moravia y los estudian- tes Massimiano Fuksas, Sergio Pé- truciollo y Dacelo Staderini, quinto año de Arquitectura; Valerio Veltroni, primer año de Filosofía, y Oreste Seal- zone, tercer año de Filosofía. El tema del debate se centra en la crítica y en la epistemología a esta última generación de fasis. Estos contra aquellos que se dimiten, acuerdan distas y contra aquellas que dominan el mundo de la cultura oficial. Este debate polemico pone de manifiesto las contradiciones entre ideología y vida práctica de algunos intelectuales.
+
+Moravia: Yo pertenezco a ese tipo de proletario que se llama a sí� demo artista. Los objetos que yo fabrico son novelas y drimas, o sea, que logro crear de la nada, con mis manos o mejor dicho con mi mente, algo que antes no existía, y lo vendí. Si estuviera en la China no podría colocar mi productos porque no hay des- manda, en la China de hoy, para productos como los mios. En Italia esa demanda existe parcialmente; de todas formas yo vendo estos productos a quien los paga regíni las leyes del mercado, porque, como he dicho, vivo de mi trabajo en mi país, que es Italia. No podría colaborar en diá- rios partidarios pues no pertenezco a par- tido alguno, es decir tengo mis propias ideas que, en ciertas ocasiones, prueden o no confirmar con las de alegan partido. Si yo colaborara con Unidad (Organo del Par-
+
+tido Communista), poexample, no podría escribir todo lo que se me ocurrería; y por otra parte, si bien actualmente no ten- dría dificultad en compertir la línea de Unitá con respecto a Viet-Nam, durante veinte años en car o (hasta el XX con- greso) el stalinismo... me habria impedido colaborar en feria absoluta. De manera que yo publique mis welas en el Corriere della Sera. Sin embargo, ustedes no en- contraran en el Corriere della Sera una sola palabra en favor del sistema existente hoy en Italia.
+
+Sealzone: Quisiera recordarle a Moravia que cualquier obra litaria, cualquier pro- duito intelectual es a hecho político. In- norar todo eso significa hacer ya una clasificación política, entrar en el juego de los intereses creados, en otras palabras inte- grarse. Publicando novelas en el Corriere della Sera, cualquier que sea su conte- nido, usted, Moravia, está temiamolo una posición política bien definida.
+
+Moravia: No más que evaluar prolo- tario en un región capitalista. Por qué entonces los pintores achenían examirse de esa actitud? Por qué los profesores? ¿Por qué los arquitectos, o los directores de "cine"? ¿Por qué los obreros que tra- lejan a "sangrenamos", en una fábrica de arena?
+
+Sealzone: En efecto, nosotros no pro- ponemos como modelo la figura del obrero esclavizado, sino la del obrero que se libera de la esclavitud. El obrero puede liberarse políticamente, volviéndose revolucionario
+
+millitante. El escritor, en cambio, manipu- la material intelectual y a tiempo iden- tifica y limita su actividad en el arte do escribir.
+
+Petruciollo: El obrero dentro del siste- ma, es un esclavizado. El intelectual, en el momento en que acepta moverse dentro del aparato de la cultura dominante, atcep- ta un papel que no es el del esclavizado: se vuelve a intermediario entre la clase que está en el poder y los consumidores. Cuan- do, para vender su producto, él tiene como medios de comunicación justamente aque- llos canales que constituyen la fuerza y la continuidad de la cultura dominante, entonces está asumiendo una posición cla- ra... preseludiendo—del contenido de sus obras.
+
+Sealzone: En otros términos, no se trata sólo del contenido o de las ideas, sino de la función que el libro pasa a assumir en la estructura económica.
+
+Moravia: En un sistema capitalista los editores son capitalistas

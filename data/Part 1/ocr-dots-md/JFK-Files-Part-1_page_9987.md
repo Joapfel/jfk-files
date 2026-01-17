@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_9987.png
+
+Convert to Markdown2.
+
+returned. L/3 has admitted to Rowton that he had revealed to Sergio Valdez and Enrique Horales that he has a business issue who finances him in certain commercial ventures, but swears that he has never revealed Rowton's alias to anyone ( this can most effectively be checked in an EQUATE examination).
+
+3. LIEUT intercepts confirm the reports from LIEUT/4 that she has made every effort to maintain social contact with Neti Pepeiro and Yolanda Bicaz as well as Cukrbelo in the hope of keeping the door open to future re-employment in LIEUT. LIEUT/4's reports to Rowton appear reliable with the exception of the one relating to the alleged trip to Lapachula, when L/4 backstopped L/3's deception ( although vaguely since she insisted that she did not know where he was during the period 10-21). The last of Council, indicates that L/4 is basically loyal to L/3 and cannot be trusted to provide independent information concerning his movements and activities in the future.
+
+4. SAL-32 (3.7) confirms L/3's conversation with Bené Ochoa, his Cuban friend in Mexico, on 17/7/67. LIEUT subsequently received the latter from Ochoa mentioned in the intercept and passed the original to Rowton (5/8/67). LIEUT intercepts of conversations between L/3 and his half-brother in Jabinas also confirm L/3's reports to Rowton concerning the false passport and birth-certificate for himself in the alias Alberto Zárate.
+
+5. Additional control information was provided in SAL-29(4.7) concerning L/3's affair (anecdotal) with Silvia Durán, as well as with a new woman, Yolanda, with whom he attempted to make a date ( SAL-35(9)). This woman, whose husband's first name is Rolando, has telephone number 43-25-59, and has not previously appeared in the L/3 operation. Rowton has not confronted L/3 with any data provided by LIEUT of this nature in the hope of using it in an eventual GOSPEL interview.
+
+Wallace B. Rowton

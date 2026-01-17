@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_9750.png
+
+Convert to MarkdownSECRET
+
+14-00000
+
+CONTINUATION OF
+DISPATCH
+
+CLASSIFICATION
+S E C R E T
+
+DISTRIBUTION STATEMENT AND NUMBER
+REMA - 35502
+
+articles did little to prejudice the Guatemalans in favor of LIRING-3. As a matter of fact, the letter who succeeded in sending LIRING-4 a few letters via the Mexican Consul in Guatemala City who comes to visit him in jail, recently claimed that he was saved from a prison "transfer" by the Guatemalan army by the arrival of the Mexican Consul. LIRING-3 viewed this "transfer" purely and simply as an execution attempt.
+
+4. LIRING-4 received even less help from LIRING who told her that there was nothing it could do to help LIRING-3. LIRING-4, on the advice contained in one of the notes sent from prison by LIRING-3, kept away from LIRING and its employees until she met LIRING-10 by accident at the office of one of the leftist papers on 27 July. LIRING-10 convinced her to resume her visits to LIRING. That the local PERUVENs still have doubts about LIRING-3 despite his imprisonment in Guatemala is indicated by the statements made by Rodolfo REYES (see ROWTON's 17 July report) to the effect that the latter would not be willing to help LIRING-3 until he found out on what side of "el griego" (ROWTON under false identity) he was. REYES added that LIRING suspects the "griego" of WOFREM connections, although it has no definite proof of this.
+
+5. Statements such as those made by REYES confirm the station's belief that LIRING, upon orders from home, is still attempting to investigate ROWTON. Such statements also reinforce the decision of the Station not to attempt, through liaison, to obtain the release of LIRING-3. Such an attempt, if it leaked, would not only expose LIRING-3 to PERUVEN and Guatemalan FAR reprisals. It would probably also have adverse repercussions on ROWTON's security. LIRING-11 whom ROWTON met briefly on 5 July (see ROWTON's report dated 9 July) said nothing about LIRING-3's arrest when ROWTON complained that mail which he said he sent to LIRING-3 remained unanswered. It is also to be noted that REYES, who of course knows that LIRING-4 is in Mexico, told ROWTON that she was probably in PERUVEN. This shows clearly the distrust with which LIRING views ROWTON.
+RE:GOVM
+Attn: Code
+A.O. No.
+
+6. LIRING-4 developed close relationship with Orlando SUAREZ of the Ministry of Culture now in Mexico at the invitation of the Mexican Communist mural painter David ALVARO SANCHEZ. By mid-September, in fact, SUAREZ was staying at LIRING-4's apartment although LIRING-4 claimed to ROWTON that there was no romancing between the two and that SUAREZ used her apartment because he was too broke to get one of his own. In view of LIRING-4's assessment of SUAREZ as very leftist and pro-AMTHUG-1 no effort was made to approach him.
+
+7. Contacts between ROWTON and LIRING-4 have taken place with decreasing frequency because the usefulness of LIRING-4 to WOFREM has sharply decreased and because LIRING-4 is more and more convinced that ROWTON cannot or will not help her obtain the release of LIRING-3. In her frantic efforts to do something for LIRING-3, LIRING-4 has in fact not had any contact with ROWTON since early September. Unless LIRING-3 is released by the Guatemalan authorities or receives only a light sentence keeping him in jail only a short time longer, it is doubtful that LIRING-4 will be of much use to ROWTON and the Station.
+
+for Willard C. CURTIS
+
+SECRET
+
+FORM
+ERA
+EPA PREVIOUS VERSIONS
+CLASSIFICATION
+PAGE NO.
+2 of 2

@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_9613.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA: AIR
+
+DISPATCH NO. 100-230
+SPECIFY AIR OR SEA POUCH
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO : Chief, Foreign Branch T
+
+FROM : Chief of Station, Panama City, Panama
+
+SUBJECT: GENERAL- Agents and Informants
+
+SPECIFIC- FOBAC
+
+DATE: 16 January 1950
+
+The services of subject had been terminated prior to my arrival at this station and, in fact, subject has not been residing here since my arrival.
+
+It is currently being done on a business basis and was introduced to me by HEDACD. In the course of the conversation, subject indicated a desire, after he becomes more settled in Mexico City, to have contact with our office there.
+
+Since Headquarters and particularly Crover J. TAREC are in a better position to judge subject and whether he might be of assistance to our station in Mexico City, no recommendation is being made.
+
+The address of subject will follow in a separate dispatch.
+
+H.A.:rp
+
+Distribution: Cash 2
+Files 1
+
+REGISTRY COPY
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+~~01~~ 30999
+
+FORM NO. 31-28
+APR 1947

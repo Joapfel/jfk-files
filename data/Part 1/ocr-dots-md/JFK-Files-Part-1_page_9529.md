@@ -1,0 +1,70 @@
+# JFK-Files-Part-1_page_9529.png
+
+Convert to Markdown<table>
+   <thead>
+    <tr>
+     <td colspan="2">U.S. MILITARY PERSONNEL - IF ANY, CURRENTLY ENLISTED OR ENERGIZED IN THE U.S. ARMY, NCO OR ENLISTED IN THE U.S. NAVY, AIR OR-space (IF APPLICABLE) TO BE INCLUDED, IF AT ALL, ONLY IN A TOTAL OF
+      <input type="text" id="militaryone" name="militaryone" value="0">
+      <input type="text" id="navyone" name="navyone" value="0">
+      <input type="text" id="airone" name="airone" value="0">
+      <input type="text" id="otherone" name="otherone" value="0">
+     </tr>
+    </thead>
+    <tbody>
+     <tr>
+      <td rowspan="3">FULL NAME</td>
+      <td>PUPILS OF HOME ADDRESS</td>
+      <td>NAME OF PARENT OR CAREGIVER</td>
+      <td>BIRTHDATE</td>
+     </tr>
+     <tr>
+      <td>(Give complete street and city name of previous residence)</td>
+      <td>(IF ANY)</td>
+      <td></td>
+     </tr>
+     <tr>
+      <td>SIDNEY HOCK</td>
+      <td>New York University</td>
+      <td>Prof.</td>
+     </tr>
+     <tr>
+      <td>S. M. LEVITAS</td>
+      <td>7 E. 15th St. New York City</td>
+      <td></td>
+      <td></td>
+     </tr>
+     <tr>
+      <td>JAMES FURNHAM</td>
+      <td>New York University NYC</td>
+      <td>Author</td>
+      <td></td>
+     </tr>
+     <tr>
+      <td colspan="4">14. Has the following been or will be done in the future? [ ] Yes [x] No [ ] Not Applicable [ ] Other [ ] ]</td>
+     </tr>
+     <tr>
+      <td colspan="4">Indicate Yes or No for each question. X = YES, no problem; [ ] = NO problem.</td>
+     </tr>
+     <tr>
+      <td colspan="4">9. Are you a member of the military or naval service?</td>
+     </tr>
+     <tr>
+      <td colspan="4">18. Do you have any dependents living with you at this time? [X] Yes [ ] No [ ] No depends on whom is listed</td>
+     </tr>
+     <tr>
+      <td colspan="4">19. When your first birthday, have you ever been convicted of a crime or was you ever on parole or out of prison, or have you ever been charged with embezzlement or fraud or forgery? [ ] Yes [ ] No [ ] No depends on whom is listed</td>
+     </tr>
+     <tr>
+      <td colspan="4">20. Since your last birthday, have you ever been convicted of a crime or was you ever on parole or out of prison, or have you ever been charged with embezzlement or fraud or forgery? (If yes, did it occur since your last birthday?) [ ] Yes [ ] No [ ] No depends on whom is listed</td>
+     </tr>
+     <tr>
+      <td colspan="4">21. If your answer to "Yes" in item 19, give all such cases under Item 38 below. Give in each case: (1) the date, (2) the nature of the offense or violation, (3) the nature and position of the actor, (4) the penalty imposed, (5) if any, other punishment of the case. If appeared your behavior would not be taken into account.</td>
+     </tr>
+     <tr>
+      <td colspan="4">22. Have you ever been discharged from the military or naval service? [ ] Yes [ ] No [ ] No depends on whom is listed</td>
+     </tr>
+     <tr>
+      <td colspan="4">23. Does the U. S. Government employ you in a civilian capacity only relative to you by reason of race, sex, age, disability, or by reason of voluntary or involuntary separation after 5 years' service, amount of retirement pay, and under what retirement act and rating do you retire from military or civil service? [ ] Yes [ ] No [ ] No depends on whom is listed</td>
+     </tr>
+     <tr>
+      <td colspan="4">24. Are you an officer or employee of any State,

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_9776.png
+
+Convert to Markdown24 April, 1968
+
+Subject: LIKING/4 report of Telephone Conversation with Yolanda Diaz.
+
+1. LIKING/4 reported to Newton on 22 April, 1968, that she received a telephone call from her negro doctor friend, Yolanda Diaz from BEIRUEN, on the evening of 13 April, 1968, advising her that her re-entry permit had been approved. Yolanda added cheerfully, according to LIKING/4, that she would be expecting her on the 22 April flight.
+
+2. LIKING/4 continued to Newton that she telephoned her friend, LIKING/8's secretary, early on 22 April, to find out whether the LIKING office locally had received his approval. She was told that no word had as yet been received. LIKING/4 repeated the request for confirmation that same afternoon in the presence of Newton but again received a negative reply.
+
+Wallace B. Rowton
+
+CS COPY.

@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_9906.png
+
+Convert to Markdown2.
+
+dealing with him. Carmen Molina commented to LIRING/3 that she felt
+sure she could help Rowton in his business and political problems and
+at the same time make a little much-needed money for her own living
+expenses.
+
+4. LIRING/3 continued that he had been maintaining discreet personal contact with Carmen Lozada over the week-end (he commented that LIRING/4 has already shown some signs of jealousy and therefore he had to be careful not to give her cause to distrust him). LIRING/3 stated that Carmen Lo- zada had told him that her father, a well-to-do Mexican doctor residing in Coyacań, had remarried tand that her step-mother was a Cuban sicentist who had lived many years in Mexico. She added that both her father and step-mother were on excellent social terms with Ambassador Hernández Armas. She revealed that she nad already notified her husband, Enrique Ramirez, that she intended to divorce him, and she expected a storm of protest both from him ( in Havana) and her father and step-mother, both of whom were "puritanic" despite their "progressive" convictions. She added that she expected Enrique Ramirez to rush over from Havana as soon as he received her letter and to appeal to her father and step-nother to save his mar- riage. She, however, insisted to LIRING/3 that she had made up her mind that she would go through with the divorce. She added that for this reason she did not wish to live with her father and had decided to stay with her friend, Carmen Molina, until the divorce papers were through and the storm had blown over. She added that she did not particularly like being a house-guest in the small aptment of Carmen Molina, but at the moment she had no choice.
+
+Wallace B. Rowton
+
+14-0000

@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_9770.png
+
+Convert to Markdown2.
+
+She stated that the cabinet was placed catty-cornered and that in the rather
+spaciously triangle behind it she could see many rolls of paper, which she
+assumed were discarded posters apparently placed there at random. L/4 then
+made the attached sketch on a napkin stressing the difficulty she had in pro-
+viding Rowton with exact measurements. She added that there were two windows
+facing the street, one in the reception room and one in the middle room, but
+the only window in the back room faced on the inside patio and had a venetian
+blind and a gauze curtain but no drapes.
+
+5. L/4 then told Rowton that she had learned from Jorrin that he would be returning PUS very soon since his replacement had already arrived. He gave L/4 his home address as Velascuez 94 Altos, e/Infanta y Cruz del Padre, Barris Villa Nueva. Havana, L/4 committed to Rowton that she would take advantage of his return (possibly on 22/4/63) to send another letter to Abreu asking for a definitive reply to her re-entry request. She added that she felt she could count on Jorrin for this service, she her relations with him had always been very cordial.
+
+6. L/4 also mentioned that she had seen and greeted Cepeda who had just returned from Havana (apparently without his wife). L/9 told L/4 that he himself had been in Havana the preceding week on a regular courier run.
+
+7. L/4 also turned over to Rowton several publications which she had received from Catalina Capero and the press office. She commented that the wife of Cruce was working as secretary to the Chief LIRING in addition to her duties as responsible for confidential documents.
+
+Wallace B. Rowton

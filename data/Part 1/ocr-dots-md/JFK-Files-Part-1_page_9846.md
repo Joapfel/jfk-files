@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_9846.png
+
+Convert to MarkdownSECUREARIA DE EDUCACION PÚBLICA
+
+DIRECCION GRAL. DE ADMIN.
+DEPARTAMENTO DE PERSONAL
+
+Nº-127999
+SERIE 'C'
+
+El Jefe del Dep. de Personal.
+
+h/w att：
+
+HMMA-34404
+
+US COPY
+
+201-798301
+35-98

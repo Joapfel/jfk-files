@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_9609.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA: AIR
+SPECIFY AIR OR SEA POUCH
+
+DISPATCH NO. TMA-10-976
+
+<table><tr><td>SEAL</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO : Chief of Station, Mexico
+
+FROM : FET
+
+SUBJECT: GENERAL.
+
+DATE: 1 February 1950
+
+SPECIFIC. Operational
+Subject of TAC-M-378
+
+1. Subject was engaged by our field station, Panamá, in October 1947 with the thought that he was qualified to organize a net directed against a target of high priority interest. His services were terminated in April 1949 when he took residence in Mexico for business reasons.
+
+2. The Chief of Station, Panama, described this man as having great singleness of purpose which produces superior results in the field of his primary interest. But the experience in Panama remained that the subject's primary interest - his business - was such that he gave little time to work as an agent.
+
+3. The Subject organized an intelligence unit for the U.S. Army in China during World War II and, therefore, understands covert operations. Despite his capabilities, proven reliability, and his expressed desire to be of service in Mexico, Headquarters does not recommend that the subject be engaged by field station, Mexico, unless there is unusual need for a man of his background.
+
+STC
+
+RELEASING OFFICER
+
+COORDINATING OFFICER
+
+AUTHENTICATING OFFICER
+
+FORM NO. 01-29
+JUN 1949
+
+<table><tr><td>201 30999</td></tr></table>
+
+ABSTRACT COPY
+DATE APR 21 1955
+RE: M. Wheeler by J. A. Kean
+
+SECRET
+CLASSIFICATION
+
+(1) 1949-01-29

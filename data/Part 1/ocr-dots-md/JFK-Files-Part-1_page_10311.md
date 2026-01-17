@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_10311.png
+
+Convert to Markdown14-00090
+
+tanos o prisiones de la dictadura, las escas más obsequias que comparten con la dirección del penal.
+
+Uno de los negocios más proct vos, y del cual participan las autoridades en conbinación con los recusos inoffensivos, es la venta de secondas sotres y mercados a los reclusos; drogas con las que una gran mayoría trata de borrar su desaparición y angustia, pero trayendo por consecuencia reyertas que dejen ganar muchas veces en el asesinato.
+
+Como mencionó antes, la "Granja Penal de Pavón" consiste en un boyanceo artificial cuyo espacio habitable se reduce a un rectángulo de 170 por 70 metros, aproximadamente, el cual incluye 5 cuadras y una explicada al cire libre, irregológicamente lanchada "oficio deportivo". Cada una de las cuadrículas abriga un promedio de 250 personas que viven en la más absoluta promiscuidad. ParaAGRARDAR esta situación se Funciona directamente 12 horas—un altoparlante, audible en todos los rincones, y que se utiliza para acrescentar el caudalreamiento y el terror. Por ese altoparlante se llama a los reclusos, que son solicitados para presentarse a la autoridad del penal, pero siempre haciendo hincapié en la amenaza y en la intimidación.
+
+Los reinscindentes o reos peligrosos, están confiados en el "Triángulo", que es un espacio pequeño, protegido por alambrajes, del cual no pueden salir ni siquiera a la ex planada. En las cuadrículas, sólo una parte de los reclusos dispone de literas; la mayoritaria duerme en el suelo cubriéndose con tropas viejas o cartones. La alimentación que el penal proporciona consiste en dos pequeños panes y café por la mañana, seis torillas y un poco de tédo o de frijoles al mediodía, y otro poco de frijoles por la tarde. Una parte de los reos se alimenta con los escosos medios que sus familias les llevan los días de visita o en pequeños fondos que algunos han instalado para obtener ingresos. Tampoco existe atención médica adecuada sólo una barraca con algunas implementaciones rurales, donde, para cualquier enfermedad, se proporcionan cuando mucho dos aspiinas, o un poco de mentolate y gasa, si es una herida, ya sea leve o grave.
+
+Un hecho que reviste gravedad extrema para los reclusos acusados de delitos políticos, es el de cómo llegar seguros de vuelta a sus hogares el día que reciben su libertad de ese inlierno. En todas las "cárcelías" del país el total de presos políticos no llega a 100. Una gran mayoría de estos son unidos por un共同
+
+(Viene de la página 6) mostrados" y desaparecidos en la carretera por cualquier grupo de los innumerables cuerpos policiales represivos que existen en Guatemala, previo aviso, claro está de la dirección del Penal, que comuña con toda anticipación el día que un preso político obtiene su libertad.
+
+En general, la "Granja Penal Pavón" es posiblemente una de las prisiones más terroríficas que existen en Latinoamérica y sería oportuno que la Comisión de Derechos Humanos de la ONU organizara una revista de inspección, para desembarcar así una de las tantas formas de violencia que imperan hoy día en tan bello país.
+
+Le agradecbo muy sinceramente las informaciones y defensa que la revista SIEMPRE! ha hecho de mi caso,
+
+Atentamente,
+Carlos Juárez

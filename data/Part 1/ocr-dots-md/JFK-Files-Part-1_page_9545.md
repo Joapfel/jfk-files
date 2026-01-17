@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_9545.png
+
+Convert to Markdown1. The project is a proposal to hold an Intellectual and Cultural Congress in Berlin, Germany, to be sponsored by leading German intellectuals, notably Dr. Adalbert of the Free University of Berlin. The object is to establish a base of free思想in political, cultural and social thought, established where it may serve as a springboard for propaganda infiltration into the Soviet Union including East Germany. At the same time, and perhaps of even greater importance, the Congress will be held either immediately preceding or immediately following the Communist Youth rally to be held in Berlin the last three days of May - serving to offset considerably the influence of the Communist Party and as a basis for counter-propaganda and counter action.
+
+2. The Berlin APC field office has urged the sending of two propagandists to the field as special consultants. James Burnham fits the requirement, is under contract, and we have proposed in a cablegram to send him during the month of April for a period of four 30 to 60 days. While in the field he still serve in approximately the same capacity and perform the same functions as when on duty in Washington. The second propagandist expert is a staff employee.
+
+n.d.
+
+FELI/AG
+
+cc: OJ Lag (2)
+FULLCaroline file
+Subject file
+
+STB

@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_10318.png
+
+Convert to Markdownhide any pure we might here been carrying "under the pretence" since
+the military would search the bus. Just then we saw a can glass us
+a rather high speed car recognized the Conyul in the driver's seat.
+Iden A's previousness joined him again and he showed into by hand
+his Gueretalen passport and a few other of his local papers. I quickly
+put them into my pocket and told that I would not be searched.
+
+"Then we reached the control point, we said the Conyul, by then wearing
+a side-arm, leading against his car, sitting for the arrival of the
+bus. As soon as we stopped, he stowed to a nearby soldier to have
+the Colonial Comandant come out. Then the soldier refused saying that
+it was more proper for him, the Conyul, to go to the office of the Con-
+mandant, the Consul insisted in a rather stern voice. Finally the sol-
+dier disappeared and returned in a few minutes with the commandant, a
+young officer of excellent appearing, left - few minutes later -
+with the Consul, the Commandant entered ( Idem 1,2 and myself) out
+of the bus. The driver then returned our fare and was allowed to pro-
+ceed on to Euchuetenango, after we had removed our luggage. We then
+found ourselves surround by soldiers and escorted into the 'El Table'
+compound. There we were assigned to different prefabricated huts and
+questioned separately. At an opportune moment, when the soldier standing
+me (through the window of the hut) went off to get me some water, I
+managed to squeeze the passport of Idem A and his other papers through
+a crack in the floor boards where I felt sure that they would not be
+discovered.
+
+"The Comandant, who was fairly polite and even gave us coffee, asked
+me the purpose of my trip and how well I knew the other two. I replied
+that I was simply sightseeing and that I had known Idem B in Mexico
+City since he was a well-mom educatedtico at the University but that
+I had run into him at San Cristóbal. With regard to Idem A, I alleged
+that I did not know him and had simply run into him by chance at the
+Immigration Office and had joined him and Idem B on the bus to save
+money in traveling to Euchuetenango. The Comandant then asked me to
+open my valise and he proceeded to search the contents carefully. He
+was particularly attracted to a clay bell which Idem A or B had placed
+there without my knowledge. (I later found out that they had stolen
+three bells from the hotel at San Cristóbal in a spoof and had put one
+on my valise). I told the Comandant that I did not know the bell was
+in my valise but recognized it as one sold at the tourist stand of the
+Hotel in San Cristóbal. I subsequently realized that they thought that
+the bells were some sort of recognition signal and wanted to get to
+the bottom of the apparently perplexing matter.

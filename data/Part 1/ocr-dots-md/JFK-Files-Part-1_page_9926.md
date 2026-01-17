@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_9926.png
+
+Convert to Markdown11 August, 1967
+
+Subject: LIMS/3 Report of Contact with Noisés Crozco Leal.
+
+1. At 1100 on 11 August, 1967, at the safehouse Howten leashed from LIKINS/3 that Noisés Crozco Leal telephoned him the previous afternoon to thank him for the letter and the interest he has shown in him. L/B stated that he told Crozco that his main concern was what if anything the Mexicans had asked him about L/B and whether he had been forced to reveal any of L/B's business (in Guatemala). According to L/B, Crozco assured him that, although the Mexican police had asked him "many and repeated questions" about his travels, he revealed nothing about L/B. One of the questions asked repeatedly by the Mexicans was what he knew about the husband of a certain Aura Mariza. Crozco claimed that he knew nothing of this person until 5 o'clock in the afternoon. L-Krozco continued that he could not let L/B know where he was at the moment but would get in touch with him in a short time, as soon as the heat was off, through his mother. According to L/B, Crozco's mother's home has been searched several times since Crozco's release on 4 August, 1967.
+
+2. LIKINS/3 then explained that after he learned of Crozco's arrest and release (through Ernesto Capoano) he felt it urgent that he communicate with Crozco to determine what Crozco had revealed to the Mexican police and how he was treated. He therefore sent a telegraph to Crozco addressed to Crozco's mother at her home address (Challe Tennis 108, Col. Country Club on 6 August, simply asking Crozco in double talk to get in touch with him when nothing happened, L/B continued, he sent LIKINS/4 around to Crozco's mother's home about 10:30 on 9 August with a short note, the text of which is as follows:
+
+**Valentin:**
+
+"We have learned of late about your mishap. We want to give you the help we can, since, apart from everything, we understand the human problems (involved).
+
+"We want to see you to find out what we can do for you, but we'll leave it to your discretion as to the contact."
+
+"I enclose some money, which we know is only a small thing but we hope that it will be of some use to you.
+
+Cordial greetings from all.
+
+3. L/B stated that he enclosed 200 pesos in the note, and that the prize- lone

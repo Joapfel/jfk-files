@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_9771.png
+
+Convert to Markdown19 April, 1968
+
+Subject: LURING/4 Report of Conversation with Sergio Valdez re LURING/3 Alleged KOFACgt Affiliation.
+
+4. LIKING/4 met with Rowton at the new safehouse room Rowton rented for security reasons under the alias Jean Percier at the Suites Marne. Rowton had given L/4 a key and she entered the building and proceeded directly to the apartment, arriving at about 1700. Rowton posed as a French businessman and introduced L/4 to the owner (and his sister) as his secretary.
+
+2. LURING/4 stated that she was glad to have some time alone with Rowton since she had received a disturbing report from Sergio Valdez again revealing that reports of LURING/3's alleged affiliation with KOFACGT were circulating in leftist circles. She explained that Sergio Valdez had talked with her at her apartment (Atoyaac) Monday evening (15 April, 1968) far into the night about two reports he had received about LERING/3. Sergio Valdez explained that about three weeks previously his father (who works on the staff of "Siempre" told him that he should be careful in his dealings with LERING/3 since the latter was a KOFACCT agent. Sergio Valdez told L/4 that he became indignant at this telling his father that he had known L/3 for the past ten years and considered L/3 as his mentor in revolutionary philosophy and had absolutely no reason to distrust him in his current activities. Sergio Valdez added that he threatened to break with his father unless the latter revealed to him the source of his information. His father finally confessed that he learned this from Alberto Dominguez, his boss in Siempre, but he could not say from whom Dominguez had received the report.
+
+3. Sergio Valdez continued that in addition to this report he had also been told some time ago by General Geriberto Jara (now deceased) that he should be careful in his dealings with LERING/3 since the latter was known to be a "traitor to the revolution". Sergio Valdez added that General Jara did not specify any reason for his allegation or give details.
+
+4. Sergio Valdez, according to L/4, stated in reference to these allegations that he was quite naturally very disturbed and had hesitated to mention them to LERING/3 before his departure in order not to upset him. He stated that he had given the matter a great deal of thought and had come to the conclusion that Crozco was the person passing out this scurrilous report and that he intended to get to the bottom of the whole business himself without involving LERING/3. He explained that he was planning to organize a group of four or five armed men to kidnap Crozco and interrogate him until he confessed everything. He added that if Crozco finally confessed that he had passed this
+
+CS COPY

@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_9667.png
+
+Convert to Markdown<table>
+  <tr>
+    <td colspan="2">CLASSIFIED MESSAGE</td>
+  </tr>
+  <tr>
+    <td>24 SECRET</td>
+    <td><table border="1"><tbody><tr><th>ROUTING</th></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td>
+  </tr>
+</table>
+
+TO : DIRECTOR
+
+FROM : MEXICO CITY
+
+ACTION: SH 8
+
+INFO : CI, CI/OPS, CI/IC 2, FI, SR 7, VR
+
+SECRET 032241Z
+
+DIR INFO MANA GUAT TEGU SALV CITE MEXI 3449
+
+REF SJCS 6916 (n39629)#
+
+1. NIGHT 23 JULY LICENT-1 SPENT SEVERAL HOURS COMPANY MARIO SOSA NAVARRO AND DIANA GAMES. LATTER IS HONDURAN AND FIANCE HONDURAN COME RODIL RIVERA RODIL. GAMES NOW DIVORCING MEXICAN DIPLOMAT WHO PREVIOUSLY SERVED TEGU AND PLANS MARRY RIVERA.
+
+2. ACC L-1, WHEN ISABRI. GUILLEN DE ZELAYA, AT WHOSE HOUSE L-1 AND SOSA MET, ACCUSED SOSA OF BEING A "RUSO" LATTER MADE MILDLY DEROGATORY REMARKS ABOUT SOVIET UNION. SAID HIS WIFE AND SMALL SON IN GUAT AND WIFE NOW DIVORCING HIM.
+
+3. L-1 INSTRUCTED MAINTAIN CASUAL CONTACT SOSA IN ORDER KEEP TABS HIS WHEREABOUTS.
+
+SECRET
+
+C/S COMMENT: *MARIO SOSA NAVARRO ARRIVED IN SAN JOSE 22 JULY.
+
+<table>
+   <tr>
+    <td>
+     SECRET
+    </td>
+   </tr>
+  </table>
+
+<table>
+  <tr>
+    <td>
+      GROUP 1<br/>
+      Included from left to right<br/>
+      Designating and...
+    </td>
+  </tr>
+</table>

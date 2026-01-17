@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_9825.png
+
+Convert to Markdown20 February, 1968
+
+Subject: Carmen Lozada Statements to LIRING/3 re trip.
+
+1. LIKING/3 reported to Norton at 2130 on 19/2/68 that Carmen Lozada had telephoned him about CofC that morning and that he had seen her again at her request. On this occasion he found her relatively composed and quite coherent as compared to their first meeting since her return.
+
+2. L/3 reported that she stated that the situation in Havana was "chaotic" - economically a disaster with no rice-on-the-market, gasoline rationing (8 gallons per month for ordinary cars and 20 for larger) strictly enforced and police control "brutal". She stated that at the Havana airport everything is searched even of Mexicans as herself and what can be taken for personal reasons is removed on the pretext of having it "checked".
+
+3. Carmen Lozada stated specifically to L/3 that she had heard strong rumors in Havana that Fidel Castro would be replaced by Dorticós mainly because of the failure of Fidel's economic policies. It was also rumored that sugar production would fall far below last year's figure, possibly exceeding 4,000,000 tons by only a fraction. Bad fertilizer use is blamed but the general feeling is that it is rather bae management and Fidel's advisors are taking the blame.
+
+4. Carmen also reported that she had heard "confirmed" reports that César Montes is no longer leader of the Guatemalan revolution, although she could not say who had replaced him.

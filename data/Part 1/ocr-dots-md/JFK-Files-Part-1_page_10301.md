@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_10301.png
+
+Convert to Markdown2.
+
+that the comrades there had had to undergo."
+
+9/."But could you be more specific?"
+
+3/."Well, it's a long story. I had hoped to discuss it in some detail with several of you together, particularly LIRENG/10 and his replacement."
+
+9/."Yes, that will be arranged. But first I would appreciate your going over everything with me."
+
+3/."Well first of all, I would like to have present Iden A with his wife since I want once and for all to clear up any questions about the circumstances of our mutual experience there."
+
+9/. "Don't be childish. We know all about Iden A, just exactly what kind of person he is as well as his wife. Such a confrontation is a waste of time, so far as we're concerned."
+
+3/."But don't forget the fact that the parents of the wife of Iden ate a very close friends of the LIRENG Chief and it's quite natural that they'll present their point of view when they see him."
+
+9/. "Don't worry about that. It's a purely social relationship, and, in any case, our Chief really hasn't got very much to do with these things, and his opinion won't matter."
+
+3/. "I hope so. I'd feel better in any case to talk about the details in Iden's presence, so that he will agree, as he must on his responsibility. You realize, of course, that he carried with him such compromising material that it was a miracle that we were not assassinated on the spot."
+
+9/."Yes, but that is unimportant now. What is important isthe fact that you have learned a great deal about the mentality of our friends down there, and that this could prove very useful to us in our future dealings."
+
+3/."Yes, for instance, they told me among other things that César Montes had spent too much time with your people, on trips to your country and to Mexico, and had completely lost touch with the revolution. That's the reason he was "destituido".
+
+9/."So, you know that!"
+
+3/."Yes, and many more details of why they are unhappy - the lack of adequate financial support, the inability of KRIKPEJUMEN to embarrass PERRIERE In their increasing trade success."
+
+9/."Very interesting! I have a suggestion. Suppose you prepare a written report (informe) and bring it in at 17:30 sharp on 26 November. I'll have some of my colleagues present so that we
+
+4-00000

@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_9537.png
+
+Convert to MarkdownSEC. 15. HAVE YOU EVER BEEN DISCHARGED OR ASKED TO RESIGN FROM ANY POSITION? HAVE YOU LEFT A POSITION UNDER CIRCUMSTANCES WHICH YOU DESIRE TO EXPLAIN? GIVE DETAILS:
+
+No
+
+SEC. 16. GIVE FIVE CHARACTER REFERENCES — IN THE U.S. — WHO KNOW YOU INTI- MATELY — (GIVE RESIDENCE AND BUSINESS ADDRESSES WHERE POSSIBLE.)
+
+| | Street and Number | City | State |
+| :--- | :--- | :--- | :--- |
+| **1. Sidney Hook** | BUS. ADD. Washington Square Col. | New York City | |
+| | RES. ADD. | | |
+
+| | Street and Number | City | State |
+| :--- | :--- | :--- | :--- |
+| **2. James Burnham** | BUS. ADD. New York Univ. N.Y.C. | | |
+| | RES. ADD. | | |
+
+| | Street and Number | City | State |
+| :--- | :--- | :--- | :--- |
+| **3. Harle Curti** | BUS. ADD. Univ. of Wisconsin, Madison, Wis. | | |
+| | RES. ADD. | | |
+
+| | Street and Number | City | State |
+| :--- | :--- | :--- | :--- |
+| **4. Charles A. Pearce** | BUS. ADD. Duell, Sloan & Pearce Publishers | | |
+| | RES. ADD. Madison Ave., NYC | | |
+
+| | Street and Number | City | State |
+| :--- | :--- | :--- | :--- |
+| **5. Wm E. Bohn** | BUS. ADD. 7 E. 16th St. | New York City | |
+| | RES. ADD. | | |
+
+SEC. 17. NAMES OF FIVE PERSONS WHO KNOW YOU SOCIALLY IN THE UNITED STATES — NOT REFERENCES, SUPERVISORS OR EMPLOYERS — (Give residence and business ad- dresses where possible.)
+
+| | Street and Number | City | State |
+| :--- | :--- | :--- | :--- |
+| **1. Lionel Trilling** | BUS. ADD. Columbia Univ. NYU | | |
+| | RES. ADD. | | |
+
+| | Street and Number | City | State |
+| :--- | :--- | :--- | :--- |
+| **2. Richard Hofstadter** | BUS. ADD. Columbia Univ. NYU | | |
+| | RES. ADD. | | |
+
+| | Street and Number | City | State |
+| :--- | :--- | :--- | :--- |
+| **3. Max Eastman** | RUS. ADD. Readers Digest, Pleasantville, NYD | | |
+| | RES. ADD. | | |
+
+| | Street and Number | City | State |
+| :--- | :--- | :--- | :--- |
+| **4. Edgar B. Mooney, Jr.** | BUS. ADD. Bates Univ. | 80 York St. NYU | |
+| | RES. ADD. | | |
+
+| | Street and Number | City | State |
+| :--- | :--- | :--- | :--- |
+| **5. S.W. Levitae** | BUS. ADD. 7 E. 16th St. | NYC. | |
+| | RES. ADD. | | |

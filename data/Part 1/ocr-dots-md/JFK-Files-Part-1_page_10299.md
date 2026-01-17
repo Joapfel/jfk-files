@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_10299.png
+
+Convert to Markdown2.
+
+local FAR attitude toward César Montes and CPG leaders through whom FBRUMEN has worked in past. Also in French girl who executed recently about whom L/9 asked L/3 a number of questions, indicating FBRUMEN interest in exact role she played via-à-vis FAR.
+
+wRRowton

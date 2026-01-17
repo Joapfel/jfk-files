@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_9784.png
+
+Convert to Markdown2.
+
+was able to note that the name "Oki Electric, Tokyo, Japan" was marked on the instrument. She also noted the word "Gall" but could not tell whether it was part of the manufacturer's name or a Mexican or U.S. subsidiary. She also noted that below the receiver were four switches (like the ordinary push light switches) unmarked orunnounced. When she explained to Rosita: "How do you dial on this phone", Rosita replied: "But it's not a phone, it's an intercom". LIING/4 told Rowton that she then commented: "But how come, the intercom is in the first office." Rosita then, according to L/4, stated: "But that's a special intercom." (L/4 explained that she was referring to the phone she had in her hand).
+
+5. LIING/4 continued that when she passed through the second office, she noted that the phone which had been replaced in that office by one of Elliott manufacture and was the same instrument previously there when she worked in that office. She assumes that the LIINGS replaced the phone themselves.
+
+6. LIING/4 also told Rowton that she had located an excellent apartment in the Edificio Condesa (Matzatlán and Veracruz) through her friend Blanca Peña who lives in the same development. LIING/4 added that she had given the administrator 300 pesos to hold the apartment for her until she could arrange a fiador. She also stated that she could obtain a telephone eventually since the former tenant had applied and received approval just before he left. LIING/4 reassured Rowton that she was telling everyone, particularly the LIINGS, that she was living at the Jacubaya apartment and temporarily staying as a house guest at the home of Blanca Peña de Azant. She also reassured Rowton that she had informed the LIING gatekeeper when she returned the 100 peso loan that she had received money from her father in New York. LIING/4 added that several friends, including the well-known writer Nevueltas, had offered to find her some sort of work. She stated that if she could find suitable employment in the mornings she would accept the offer, if only for appearances.
+
+Wallace B. Rowton

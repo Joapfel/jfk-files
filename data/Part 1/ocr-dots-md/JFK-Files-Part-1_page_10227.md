@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_10227.png
+
+Convert to MarkdownI fect: acérra. En�én, niñas necesaria, es decir; en el Cárdenas, en la Inésida y en los andinos. Tratando de las negativas, si las faltas de los recaudos son tan elevadas, ¿porqué no se pide al Gobernador con cuállos valiosas y necesarias son? En la montaña del Llanero, superan las vectorías y las grandes, la muerencia de Mestor Valle, Esfuerzo, la de Camilo en la Ciudad, lea, una dibilitad aimable a las acciones de FAR, para las especially Circumstances que ley que de viven en Guatemala impiden la rápida en constitución de estos Cuadros. La falta de fondos para financiamiento es uno de los problemas más grandes, pues altrimente el Director Tiene que conseguirse una base de actores y emprendimiento. Comerciales, dando por resultado circunstancial, que por consecuencia muy positiva fuera su mercato varying revolucionario.
+
+En mis charlas con los habitantes de San Antonio me llege notar el sentido o negativo que algunos aspectos de la arriba hablando representa. De因此-duramente a los Cuadros que se formularán allá, pues según decía, en las nextas Image estaban en Cuba se inadaptaban.

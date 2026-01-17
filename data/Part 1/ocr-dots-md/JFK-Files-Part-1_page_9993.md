@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_9993.png
+
+Convert to MarkdownPersonas que están enteradas de mis actividades en forma general:
+
+Arnold Rodifuez NO CONOCE SU NOMBRE sabe que estoy relacionado con Griegos
+Osmani Cienfuegos NO CONOCE SU NOMBRE " " " " " "
+Ismael Echemendía NO CONOCE SU NOMBRE " " " " " "
+
+Personas de Seguridad del Estado en
+
+Cuba NO CONOCEN POR MI CONDUCTO NINGUNA DE MIS ACTIVIDADES
+
+Zepeda NO CONOCE SU NOMBRE Le he dicho que mis informes provienen de amigos centroamericanos.
+
+Joaquín Hernández Armas
+Embajador.
+En el mismo caso de Zepeda.
+
+René Ochoa NO CONOCE SU NOMBRE, cree que mis tividades están patrocinadas por negocios particulares con Griegos.
+
+" García" NO CONOCE SU NOMBRE sabe que estoy relacionado con griegos.
+Cooperadores de Guatemala En el mismo caso de García.
+
+Curbelo y Abreu en el mismo caso de Zepeda y el Embajador.
+
+Sergio Valdez NO CONOCE SU NOMBRE sabe que estoy relacionado con Griegos.
+Raúl Moreno en el mismo caso de Valdez.
+
+Sergio y Hugo de comercial CONOCEN SU APELLIDO, posiblemente hablaron de usted con Echemendía, Zepeda y el Embajador. No lo aseguro.
+
+Enrique Morales y su esposa CONOCEN SU APELLIDO pero suponen que me patro-cina comprándome cuadros . Saben que estoy relacionado con Griegos para negocios normales en Guatemala. (La esposa de Morales es de origen guate-malteco y su hermano Ricardo es Marxista.)
+
+Jacobo Rodríguez NO SABE ABSOLUTAMENTE COMO Y POR QUE DESARROLLO MIS ACTI-VIDADES.
+
+Carlos Navarrete En el mismo caso de Jacobo.
+Enrique Martínez NO SABE ABSOLUTAMENTE NADA supone que quiero instalar un negocio en San Cristóbal.
+
+Carlos Navarrete conoce a Esperanza la esposa de Morales.

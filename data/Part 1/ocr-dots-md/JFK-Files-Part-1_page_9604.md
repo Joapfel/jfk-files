@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_9604.png
+
+Convert to Markdown<table><tr><td>CLASSIFICATION<br/>C-O-N-P-I-D-E-N-T-I-A-L</td></tr></table>
+
+DIRECTORATE OF
+OPERATIONS
+
+REPORT NO. OO-A(S).322/00270-76
+DATE 13 January 1976
+NO. PAGES 1
+REFERENCES
+
+COUNTRY Cuba
+SUBJECT Eulogio Cantillo/Claim of High Quality Uranium Deposits in Cuban Mine
+
+DOMESTIC COLLECTION DIVISION
+OPERATIONAL INFORMATION REPORT
+
+This report is believed to contain information of operational interest and may not be disclosed to personnel outside the Directorate of Operations without the prior permission of the Domestic Collection Division.
+
+US citizen, individual with longtime relationship with Eulogio Cantillo. Source is a retired Agency staff employee.
+
+1. Eulogio Cantillo, a Cuban national who resides at 6721 S.W. 2nd Street, Miami, Florida, is a former Cuban general. In 1956, when he was the Chief of the Cuban Air Force under Cuban dictator Batista, Cantillo's uncle came to him with an ore sample the uncle had uncovered in an abandoned former Spanish mine in Cuba. The uncle suspected the ore was uranium. Cantillo brought the specimen to the US, where it was assayed by an unnamed US survey company as being the richest uranium sample the firm had ever tested. Cantillo and the uncle, who were the only individuals aware of the location of the mine, recognized archaic Cuban laws did not protect their find, so the general attempted to get Batista to change the mining statutes. Batista suspected the general had come across something significant, and he sent a team of men to the Pinar del Río area for six months on a search. The team uncovered nothing. Batista also tried to work out a deal where he would be a partner in the venture as a pre-condition to changing the mining laws. He was unsuccessful in convincing Cantillo to permit him to become a partner. At that time, the revolution reached full intensity, and Batista left the country.
+
+2. Cantillo's uncle is still in Cuba. Despite Cantillo's imprisonment by the Fidel Castro regime for nine years, he has never told anyone about his uncle's find. Approximately one year ago, Cantillo approached a retired Agency staff employee and informed him of the uncle's find. He did so after all these years because of the developing relations between the US and Cuba. Cantillo feels the US may be able to make use of information that Castro does not possess about the riches that exist in his own nation, and that Castro and the USSR would capitalize on the find if they were to become aware of it. In his view, the US should know of this potential before it conducts negotiations with Castro. The general is willing to provide the name of the assay company, so that documentation can be obtained on the purity of the uranium.
+
+3. The general's US contact notes Cantillo is not the sort of man who speaks inaccurately about things such as this. He described Cantillo as a "solid guy", and says the information Cantillo has provided probably is reliable.
+
+- end -
+
+<table><tbody><tr><td>CLASSIFICATION<br/>C-O-N-P-I-D-E-N-T-I-A-L</td><td>Coded by OSA:<br/>Based from general classification used<br/>of E 0.11652, executive category<br/>S2.1. It is probable to determine date of<br/>automatic codaierung.</td></tr></tbody></table>
+
+5
+4
+3
+2
+1
+
+3216
+
+3216 OBSOLETE PREVIOUS
+EDITIONS
+
+(20)

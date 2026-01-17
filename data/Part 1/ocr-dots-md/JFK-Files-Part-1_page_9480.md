@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_9480.png
+
+Convert to MarkdownSECRET
+
+25 April 1960
+
+MEMORANDUM OF CONVERSATION
+
+SUBJECT: CPC Liaison with the Department of State
+
+PARTICIPANT: CPT, BS-II, Chief AAR, Chief PFS, and FAD
+
+1. Mr. Frank stated that recent cables from the CPC representative in Germany concerning the Berlin rally in May and the Congress in June had raised policy questions which required State Department coordination. He stated that as a result of these cables he had requested Mr. Harrison to discuss these policy questions with Mr. Joyce and had requested Mr. Joyce to arrange for the necessary liaison with the Office of German Affairs.
+
+2. Mr. Harrison stated that Mr. Joyce hadarranged a meeting in his office where Mr. Esterbou and Mr. Rayer of CPC had discussed those problems with Mr. Kellerman and Mr. Streusand of the Office of German Affairs, together with Mr. Schwinn. As a result of this meeting, the Office of German Affairs dispatched a State Department telegraph to Nicosia indicating that the Department was coordinating with CIA on a program designed to combat the effectiveness of the Berlin rally in May. This telegraph received a wide distribution in Washington as well as in the headquarters of Nicosia in Frankfurt.
+
+3. Mr. Frank said that although he recognized the insecurity of the Office of German Affairs as evidenced by this telegraph, he felt that it was essential for OFC to maintain liaison with the Office of German Affairs on policy matters. It is proposed to recommend to Mr. Joyce that either Col. Pyroade or Dr. Geoffrey Davis be designated as the liaison officer for the Office of German Affairs to deal with OFC on policy matters subject to clearance in each instance with Mr. Joyce.
+
+4. The understanding agreed with Mr. Frank's proposal, subject to the understanding that such liaison would be exercised under the existing policy laid down by ADPC, namely, that OFC liaison with the Department of State will be conducted only by ADPC, SADO, or CVP, and that if this authority is delegated it will only be done so when the individual authorized is notified that it is essential and can be controlled, and subject to the further understanding that such liaison will not involve operational details of OTC plane and operations.
+
+C. V. H.
+
+CVR/adb
+
+cc: SAPO
+CPP
+BS-II
+Chief, PRC ✓
+Chief, AAB
+
+SECRET
+
+-00000
+
+SECRET
+
+85 April 1960
+
+SECRET
+
+1. Mr. Frank stated that recent cables from the CPC representative in Germany concerning the Berlin rally in May and the Congress in June had raised policy questions which required State Department coordination. He stated that as a result of these cables he had requested Mr. Harrison to discuss these policy questions with Mr. Joyce and had requested Mr. Joyce to arrange for the necessary liaison with the Office of German Affairs.
+
+2. Mr. Harrison stated that Mr. Joyce had erronced a meeting in his office where Mr. Esterbou and Mr. Rayer of CPC had discussed those problems with Mr. Kellerman and Mr. Streusand of the Office of German Affairs, together with Mr. Schwinn. As a result of this meeting, the Office of German Affairs dispatched a State Department telegraph to Nicosia indicating that the Department was coordinating with CIA on a program designed to combat the effectiveness of the Berlin rally in May. This telegraph received a wide distribution in Washington as well as in the headquarters of Nicosia in Frankfurt.
+
+3. Mr. Frank said that although he recognized the insecurity of the Office of German Affairs as evidenced by this telegraph, he felt that it was essential for OFC to maintain liaison with the Office of German Affairs on policy matters. It is proposed to recommend to Mr. Joyce that either Col. Pyroade or Dr. Geoffrey Davis be designated as the liaison officer for the Office of German Affairs to deal with OFC on policy matters subject to clearance in each instance with Mr. Joyce.
+
+4. The understanding agreed with Mr. Frank's proposal, subject to the understanding that such liaison would be exercised under the existing policy laid down by ADPC, namely, that OFC liaison with the Department of State will be conducted only by ADPC, SADO, or CVP, and that if this authority is delegated it will only be done so when the individual authorized is notified that it is essential and can be controlled, and subject to the further understanding that such liaison will not involve operational details of OTC plane and operations.

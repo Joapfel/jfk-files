@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_10325.png
+
+Convert to Markdown<table><thead><tr><th>CABLE SECRETARIAT DISSEMINATION</th><th>CLASSIFIED MESSAGE</th><th>TOTAL COPIES</th><th>ROUTING AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td colspan="2"><strong>SECRET</strong><br>(When Filled In)</td></tr><tr><td colspan="2"></td><td colspan="2"><table><tr><td>GROUPE</td><td>1</td><td>6</td><td>.</td><td>.</td></tr><tr><td>ECLIPSE FOR</td><td>2</td><td>7</td><td>.</td><td>.</td></tr><tr><td>ESTIMATED TIME</td><td></td><td>8</td><td>.</td><td>.</td></tr><tr><td>REPRODUCTION OF THIS COPY PROHIBITED</td><td>3</td><td>9</td><td>.</td><td>.</td></tr><tr><td>INDEX YES NO</td><td>4</td><td>10</td><td>.</td><td>.</td></tr></table></td></tr><tr><td colspan="2">ADVANCE COPY ☐ ISSUED ☐ SLOTTED</td><td colspan="2">LIRE TO FILE NO ____________________<br>X-REF TO FILE NO. ____________________<br>FILE NO ☐ RET TO BRANCH ☐ DESTROY ☐ BIG.</td></tr><tr><td colspan="2">BY ____ AT _______ Z<br>DISSENT 3-5 PER _______ #<br>ACTION<br>☑ WH6 ☐ RID COPY</td><td colspan="2">INFO<br>FILE NO CHRIUSD dWHCOG5,dc1,df12,cl5003<br>☐ cLS1SGO</td></tr></tbody></table>
+
+SECRET 23210Z NOV 68 CITE MEXICO CITY 8228 MEN.
+DIRECTOR, GUATEMALA CITY INFO MC COBRA
+RYBAT PRUMEN LIRING-3
+
+REFS A. MEXICO CITY 8159 (K)
+B. GUATEMALA CITY 9739 (?40612)
+
+27 Nov 68 IN 43465
+
+<table><tr><td>WH!!</td></tr><tr><td>ASSISTANT</td><td>INDEX</td></tr></table>
+
+1. LIRING-3 WRITTEN REPORT PER LIRING-9 REQUEST WAS REVIEWED BY STATION WITH ASSISTANCE LEONARD S. TORMET. REPORT LIMITED TO ACTUAL EXPERIENCES WHILE INCARCERATED GUATEMALA CITY AND INFORMATION ACTUALLY RECEIVED FROM FAR MEMBERS IN SAME JAIL.
+
+LIRING-3 BRIEFED TO DECLARE HIMSELF READY HELP GUAT REBELS FOR IDEOLOGICAL REASONS AND AT SAME TIME IMPLY HE IN NEED MATERIAL HELP AFTER LONG IMPRISONMENT.
+
+2. LIRING-9 WAS WAITING AT LIRING GATE 1730 HOURS WHEN LIRING-3 ARRIVED WITH REPORT. MEETING HELD IN BACK ROOM CONSULATE AND LIMITED TO LIRING-3 AND LIRING-9. FOLLOW HIGH POINTS THIS MEETING:
+
+A. LIRING-9 DID NOT READ REPORT BUT HAD LIRING-3 GIVE HIM MAIN POINTS ORALLY. APPEARED MOST INTERESTED IN LIRING-3 STATEMENTS ON HOW GUAT REBELS FEEL TOWARDS PRUMEN. MODDED WHEN LIRING-3 STATED WHAT REBELS NEED IS ADEQUATE FUNDS NOT ADDITIONAL
+
+<table><tr><td>MICROFILMED</td></tr><tr><td>DEC 19 1968</td></tr><tr><td>DOC. MICRO. SER</td></tr></table>
+
+<table><tr><td>RS COPY</td></tr><tr><td>SECRET</td></tr></table>

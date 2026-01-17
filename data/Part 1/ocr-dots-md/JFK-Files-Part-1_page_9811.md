@@ -1,0 +1,117 @@
+# JFK-Files-Part-1_page_9811.png
+
+Convert to Markdown31 March, 1968
+
+Subject: SGS/IRL Examination of LIRING/4.
+
+NOT SCRABLE FOR HIRE
+
+1. LIRING/4 was given an SGS/IRL examination from about 1030 until 1300 on 31/3/68 at room 602 of the Hotel del Bosque on Calle Belchor Ocarbo. Rowton rented the suite in the name Nicolas Spyropoulos and no security problems were encountered in using this site.
+
+2. Rowton first proposed the examination to LIRING/4, after discussing it briefly with LIRING/3, at 1600 on 30/3/68 in the coffee shop of the Hotel Bosque in the presence of the examiner. L/4's initial reaction was almost identical to that of LIRING/3 - one of shock, indignation, and outright refusal on the ground that it was "servil" and beneath her dignity at any price. She made it clear that she felt she had been and was taking all the risks and considered it completely unfair that she should have to subject herself to such a "police" investigation when she had done nothing wrong and in fact knew nothing about Rowton. At one point she commented that this whole thing made her think that Rowton was an agent of WOFACO. She did not dwell on this point, however, or return to it subsequently.
+
+3. In view of this unfavorably turn at the initial session Rowton agreed with the examiner that the latter should gracefully bow out and give Rowton a chance to soften L/4 up by a more thorough explanation, especially since L/4 refused flatly to accompany Rowton and the examiner to the safehouse room upstairs. Rowton then spent the next two hours explaining the test emphasizing that it would not include any indiscriminate frivolous questions and that L/4 would know beforehand what the precise questions were. Rowton made it clear that he was interested mainly in determining whether L/4 had betrayed him to her LIRING contacts and had any sort of secret agreement with PERUMEN to work against him. L/4 finally agreed to take the examination the following morning since as she stated her conscience was clear.
+
+4. The responses appeared favorably on pertinent questions and the control question on any theft of money (suggested by Rowton on the basis of the report given to him in confidence by Liring/3 that L/4 had taken 2,000 pesos from the LIRING safe which she almost immediately replaced on his insistence) proved to be excellent. L/4 did not reveal the specific theft but she was evidently thoroughly convinced after the test that the SGS/IRL is reliable and cannot be beaten Rowton and the examiner felt it unwise to break her on this control question since it would prove counterproductive and would probably expose L/3 as the source. The test will probably serve as an excellent deterrent and additional control for future assessment of L/4 and evaluation of her reporting.
+
+Wallace B. Rowton
+
+CS COPY
+
+HMMA-34484
+
+S/c att.:1
+
+201-798301
+
+GS COPY
+
+Wallace B. Rowton
+
+HMMA-34484
+
+201-798301
+
+S/c att.:1
+
+HMMA-34484
+
+201-798301
+
+GS COPY
+
+Wallace B. Rowton
+
+201-798301
+
+S/c att.:1
+
+HMMA-34484
+
+201-798301
+
+GS COPY
+
+Wallace B. Rowton
+
+201-798301
+
+S/c att.:1
+
+HMMA-34484
+
+201-798301
+
+GS COPY
+
+Wallace B. Rowton
+
+201-798301
+
+S/c att.:1
+
+HMMA-34484
+
+201-798301
+
+GS COPY
+
+Wallace B. Rowton
+
+201-798301
+
+S/c att.:1
+
+HMMA-34484
+
+201-798301
+
+GS COPY
+
+Wallace B. Rowton
+
+201-798301
+
+S/c att.:1
+
+HMMA-34484
+
+201-798301
+
+GS COPY
+
+Wallace B. Rowton
+
+201-798301
+
+S/c att.:1
+
+HMMA-34484
+
+201-798301
+
+GS COPY
+
+Wallace B. Rowton
+
+201-

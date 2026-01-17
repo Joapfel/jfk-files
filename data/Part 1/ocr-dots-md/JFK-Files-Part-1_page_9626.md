@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_9626.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA: Air
+SPECIFY AIR OR SEA POUCH
+
+DISPATCH NO. T2P-151
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO : Acting Chief, FBT
+
+FROM : Chief of Station agw Panama City, Panama
+
+SUBJECT: GENERAL - Agents and Informants
+          SPECIFIC - Operational Data - HYDROL
+
+Ref - TZP-A-102, MASH/F 8786 and PACY 188
+
+DATE: 9 July 1948
+
+BIOGRAPHICAL DATA
+
+1. HYDROL.
+
+2. Subject's background has been with the U. S. Army in China, where he organized a complete intelligence net. He is an organizer and planner and best qualified for the supervision of intelligence nets and informants, and intelligence operations in general.
+
+3. He is a very personable individual and has the facility for getting along with Latins. He is very well accepted even though he has been here only a little over a year.
+
+4. In Latin America because of his knowledge of Spanish. He is also well qualified to operate in the China Theater in view of his past experiences, although he has no knowledge of the language.
+
+5. Subject makes frequent business trips to Mexico.
+
+6. Subject has discussed plans for expanding his business into South America.
+
+7. Subject has five people working for him. (a) HYDRAKCID; HYDRAVALIC; and the subject of TZP-A-269. He has also cultivated two unwitting informants, one of whom is a fairly prominent Arnulfista and the other is a socially prominent Panamanian and businessman on whom we will submit biographical data at a future date. (b) None of the people are paid. The subject of TZP-A-269 has been informed that we will defray any expenses which he may have incidental to our operations. HYDPRACID has expressed a desire to have a savings or retirement fund opened for him in the United States. This we have agreed to do and estimate that the cost will be about $100 to $150 per month.
+
+<table><tbody><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></tbody></table>
+
+ED1 16995
+
+(788)
+
+FORM NO. 91-88
+APR 1947
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>

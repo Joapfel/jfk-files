@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_9969.png
+
+Convert to Markdown14-0000
+
+MOISES
+CROZCO
+LEAL
+
+20 AÑOS EN MEXICO
+36-38 EDAD APROX.
