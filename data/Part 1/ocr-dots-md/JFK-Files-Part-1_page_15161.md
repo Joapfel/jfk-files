@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_15161.png
+
+Convert to MarkdownFrankfurt/Main
+
+31. August 1962
+
+An das
+Vice-Konsulat von Uruguay
+Frankfurt am Main
+Hattersheimer Strasse 2
+
+Sehr geehrter Herr Vice-Konsul:
+
+Im Rahmen unseres Auswanderungsprogramms fuer Fluechtlinge haben wir einige Personen, die an einer Auswanderung nach Uruguay interessiert sind. Ich waere Ihnen daher sehr zu Dank verpflichtet, wenn Sie mich ueber folgende Punkte so eingehend als moeglich informieren werden:
+
+1.) Vorgang zur Erwerbung eines Einreisevisums unter Beifuegung von Mustern saentlicher erforderlicher Fragebogen.
+
+2.) Anzahl von Jahren, waehrend derer der Betreffende in Uruguay ansacessig sein muss, um die Staatsbuergerschaft Ihres Landes zu erwerben.
+
+3.) Hat Ihr Land irgendwelche Einschraenkungen in Hinsicht auf die Einreisequote?
+
+4.) Welche Berufe sind gefragt?
+
+5.) Muss der Eimwanderer ueber eine bestinnte Mindestsumme an Gehilften verfuegen, ehe das Eindwanderungsvisum ausgestellt wird?
+
+6.) Anforderungen in Hinsicht auf den Gesundheitszustand des Einnwanderers.
+
+Fuer Ihr freundliches Entgegenkommen in der Erteilung der erbeteren Auskuenfte danke ich Ihnen im voraus.
+
+Mit vorsueglicher Hochachtung
+
+A. G. Elmer.dorf
+Executive Director

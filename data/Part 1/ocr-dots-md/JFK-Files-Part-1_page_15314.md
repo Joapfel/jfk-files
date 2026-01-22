@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_15314.png
+
+Convert to Markdown53. During those three months of "surgical operation" David get in contact with Irakli LARDIPANIDZE, a boyfriend of his sister Helen who worked with the East- Inistry (Ost-Ministriium). Irakly, who worked with the "SD" (Sicherheitsdienst, Security Service), and who later married Helen, had just received order to go to Paris.
+
+54. David asked Irakli to give his travel document or order for a short time to him, so he could show those to his superior and to ask for similar ones. Irakli obliged. David photographed the documents - he had no intention to show those to his boss, he was going to make his own documents.
+
+55. His sister brought him some forms which were used in the Ost-Ministerium, and he collected others more from different offices.
+
+56. Thus, David prepared for himself a falcified travel document to Paris, signing it with the name of Police President RADEMANN. This name he has used on many documents in later times.
+
+57:1. Before using this document he checked it, or made a rehersal with his girlfriend. He gave the falcified document to the girl for inspection, and then, soon after this, he pushed his genuine police passport above the false paper, asking the girl about her reaction and findings. She said that she had understood that the first paper was a travel order, but she had not had enough time to read it through, in full. This, David explained, was the trick: one has to give the falcified paper first, and then, without giving the checker enough time for its study, insert an other, genuine document which would attire the attention of the checker, detract it from the falcified one.
+
+58. David used this trick with the controls and had a smooth journey to Paris.
+
+59. In Paris David contacted the engraver ALLOU, corner of the streets Rue Fillies du Calvaire - and Beaubarechts. He asked Allou to prepare for him a seal of the German SS headquarters. The man consented after a short hesitation, after David had spoken of Frenchmen's moral duty to help other Frenchmen against the Germans. The same man made for David later many more seals and stamps of different German offices, like the Security Service, the East-Ministry, the Labor Office the Police Headquarters and the travel permission stamp for the passports.
+
+60. By the intermediary of this ALLOU David let also be printed different forged letter- and order-forms of the above mentioned offices, in thousands of copies, so far those did not have filigree nets printed in. However, he personally was able

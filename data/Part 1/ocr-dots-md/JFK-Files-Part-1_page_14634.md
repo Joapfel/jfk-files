@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_14634.png
+
+Convert to MarkdownCHILE
+
+Sept. 14, 1955
+
+The Subsecretary for Diplomatic Affairs of the Colombian Foreign Office, Dr. Ricardo Aram, informed an Embassy officer on Sept. 12 that the La Republica article was accurate only insofar as it reported that Ambassador Vargas had returned to Chile. Dr. Anaya said that as far as he was aware Ambassador Vargas had gone to Santiago to make final arrangements for the visit to Chile of the Colombian War College, scheduled for September 14 to 29. The Chil- can Embassy states that the Ambassador returned to Santiago accom- panied only by his wife. First Secretary Sr. Manuel Tello Troacoco is Charge d'Affaires ad interim.
+
+D-203, Bogota, Sept. 14, 1955 OUOnly

@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_13593.png
+
+Convert to Markdown10:50
+
+ROGELIO RODRIGUEZ de la Embajada Cubana, informó a FLECTOR ANA YÁE de Prensa Latina, sobre la llegada del Diputado brasileño JOSÉ LIAO, quien va de paso para La Habana.
+
+ domingo 11 febrero 1962
+
+18:15
+
+LÓNGO CABANAS TUS, jalapeño y que dijo ser muy amigo del cubano MANUEL CUILLOT, supo que éste había llegado hoy a la ciudad de México en el vuelo de Canadian Pacific. ROGELIO RODRIGUEZ de la Embajada Cubana manifestó que él no cabía que CUILLOT tuviera amigos mexicanos, pero informó que directamente CUILLOT se encuentra en México, solo que nó en esos momentos allí en la Embajada. CABANAS dejó su domicilio, sito en Lorenzo Boturini , 111 Bajos, casi esquina con I. la Católica, aunque indicó que posteriormente volverá a llamar para ponerse en contacto con CUILLOT. (Esté tal vez sea miembro de la Embajada de Cuba que se encontraba en Argentina).
+
+10:44
+
+ROGELIO RODRIGUEZ de la Embajada de Cuba manifestó al SESTAZATE de la Compañía Nortero, que es urgente que hoy por la mañana pase a la embajada, pues tiene material que entregarle. ESTREZANTE estaría a las 12:00 hs.
+
+10:32
+
+RAUL VISTOR VUENTES pidió comunicarse con el cuenca ROCHLUO. ROCHLUO dio asIENTO NO SABE QUÍEN ES. VISTOR le indiea que él debe tener por allí una tarjeta. ROCHLUO le preguntó qué si es el asunto de los muchachos. VISTOR dice que sí, que él es el encargado de ésa. ROCHLUO le indiea que entonces está todo arreglado. VISTOR pregunta que si llegaron allí hoy allí, "puedes llegar a las nueve de la mañana; os que me dìs un mission, un encargo de recibir una documentación". ROCHLUO dice "ya fueran a buscarme alla, fué uno de los muchachos". VISTOR contesta "entonces he не nuevo yo de la casa porque ésta estoy esperando precisamente".
+
+16:50
+
+TURFEL, del Ministerio Mexicano de Electricistas, manifestó que en la embajada de Cuba, que le tiene en cuenta al día el mandato MIRANO. 50-11-3-3

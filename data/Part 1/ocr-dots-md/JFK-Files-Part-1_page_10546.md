@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_10546.png
+
+Convert to MarkdownSECRET
+
+PRECEDENCE
+
+<table><tr><td colspan="2">TOBE [X] YES [ ] NO</td></tr><tr><td>CLASSIFIED TO FILE BY:</td><td>92669</td></tr><tr><td>REF. No.</td><td></td></tr><tr><td>FILE DUE TO BE DEFILED WITH GOODWILL IF ASKED IS CORRECT</td><td></td></tr><tr><td>DESTROY C.I.E.</td><td>17357</td></tr><tr><td>AUTHORITATION</td><td></td></tr><tr><td>ACTION</td><td>clerk's copy ☑</td></tr><tr><td>FILE COPY</td><td>☑ RID COPY</td></tr><tr><td></td><td>ADVICE COPY ☐</td></tr><tr><td></td><td>[SIGNATURE] INDICATES ☐</td></tr><tr><td>REPRODUCTION PROHIBITED [X]</td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr><tr><td>UNIT</td><td></td></tr><tr><td>TIME</td><td></td></tr><tr><td>DATE</td><td></td></tr></table>
+
+<table><tbody><tr><td>LS</td><td>71</td></tr><tr><td>PS</td><td>7257</td></tr><tr><td>ABSTRACT</td><td>IT-EX</td></tr></tbody></table>
+
+DIRECTOR
+
+CLERK'S COPY: WAVE 8281
+
+17 Nov 67 to 95653
+
+# TYPIC MASTER TRIAL
+
+1. TRIAL TURNED OUT TO BE NO PROBLEM FOR AGENCY OR STATION. DEFENSE PLAN TO TURN IT INTO ANTI-CIA CIRCUS WAS TOTALLY FRUSTRATED BY JUDGE CABOT'S FIRM RULING AND BUSINESS-LIKE APPROACH OF U.S. ATTORNEY MEADOWS. A MSVIRL-1 D.M.R.N.S.D. was never called as witness, nor were any of other former AGENCY ASSOCIATES or EMPLOYEES whom defense had asked to have subpoenaed. ONE PROSECUTION WITNESS ABOUT WHOM WE MAD BE WORRIED, DAVID CABEZA, FORMER AGENT AND RECENTLY PERSISTENT HARASSER OF CIA AND JMCAVE, HANDLED HIMSELF EXTREMELY WELL. COURT RULINGS PREVENTED DEFENSE FROM LURING HIM INTO OPERATIONAL REVELATIONS DURING CROSS-EXAMINATION.
+
+2. SIGNIFICANT LEGAL PRECEDENTS APPEAR TO HAVE BEEN ESTABLISHED BY MANNER IN WHICH THIS TRIAL WAS CONDUCTED WHICH CAN BE HELPFUL IN FUTURE LITIGATION INVOLVING AGENCY. E.G., COURT ISSUED ORDER ON FIRST DAY OF TRIAL WHICH PRECLUDED TAKING OF PHOTOGRAPHS IN COURTROOM AND RESTRICTED PUBLICATION OF ANY TESTIMONY OR ARGUMENTS MADE OUT OF PRESENCE OF JURY.
+
+SECRET
+
+201-42669
+17 Nov 67
+
+Relinda MacFerrell.
+
+JUBILATE Int'l.
+1991-1997

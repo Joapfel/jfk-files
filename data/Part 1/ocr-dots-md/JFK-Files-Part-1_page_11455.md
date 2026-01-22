@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_11455.png
+
+Convert to MarkdownLIRING-3
+
+Vol. VI
+
+~~DATERIAL FILTERED AT C.I. HETAQUARILS BY~~
+HOUSE SELECT COMMITTEE OF A ASSASSINATIONS STATE COMMITTEES
+
+FILE TITLE/NUMBER/VOLUME: LIRING-3 VOL VII
+501-0798301
+
+INCLUSIVE DATES: 7 Jan 1969 -- 10 May 1972
+CUSTODIAL UNIT/LOCATION: C1/EXO
+ROOM: 3D57
+
+DELETIONS, IF ANY:
+
+<table><thead><tr><th>DATE RECEIVED</th><th>DATE RETURNED</th><th>REVIEWED BY (PRINT NAME)</th><th>SIGNATURE OF REVIEWING OFFICIAL</th></tr></thead><tbody><tr><td>17 JUL 1978<br/>20 Dec.</td><td></td><td>Elmer I. Lapen<br/>Edwin J. Stager</td><td>Elmer I. Stager<br/>Elmer J. Stager</td></tr></tbody></table>
+
+NO DOCUMENTS MAY BE COPIED OR REMOVED FROM THIS LIFO.

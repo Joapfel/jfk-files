@@ -1,0 +1,86 @@
+# JFK-Files-Part-1_page_15830.png
+
+Convert to MarkdownVery dear "Eduardo"
+
+We were starting to asking us if you were still on this planet or on the moon.
+
+Since your little word, sented right after your departur we
+were without news. I had never receive any from your first letter and
+was a little mad after you because Loulou told me that Athico had
+news from you and you were in South-America. I ignore completly
+if Nathela has receive your letter but I will Wright to her. I
+ignore also where live the others people and I will be glade if
+you can give them adress.Already 10 month since you are gone.The
+time past with an incredible speed.Beside Nina's marriage, which
+was very well, nothing interesting,
+
+Nina and Bernard have found an apartment very close from
+our house, Boulevard Auguste Blanqui, corner rue de la Sante, the
+building which is standing behind the gas-station. You see ?
+
+TIFI and Annick are still with us but wish to find some place
+to go.
+
+Yesterday evening the whole family was together plus Loulou
+and Magy to celebrate my 45 springs and just this morning a letter
+from you. It was lucky your letter was still in one piece when I
+screamed 'a letter from you'
+
+You can be sure to receive news from the whole family and
+we thank you for your love for us.
+
+My august husband had catched again a double-pneumonia and
+that will keep him until september, therefore that plonge us in
+difficulties to the neck...and you may imagine with which happyness
+I have read your letter. You are certainly the only one to be like
+that in our world. God bless you and sa must take account for the
+remission of your offences...Alleluia !
+
+I have stop this letter yesterday evening.Cdile and Magy
+were here, we had diner together and went to the movie.James Steward
+was starring.
+
+What say next,you know our life,nothing is change.I am
+waiting impatiently another letter of you to tell us what are you
+doing. That will be so nice if you could be here for the end of
+the year .Until then I kiss you lovingly.
+
+COCO
+
+Paris 24 March
+
+Dear Old
+
+I hope you have received my letter . Since then a sensation
+event happen . Born march 14 th,a 4th daughter for Atchico, name
+Sophie.As you ask me ,I have send to him your address ...and my
+congratulations.
+
+moment...
+
+Yesterday Loulou stop by us few minutes to tell us that
+him father is going very bad and that can be lung cancer.We are
+hoping it is not.
+
+Little Manana,Ramaz cousin,give birth to a beautiful baby ,boy,is name is Christophe.Tnose are the latest news.
+
+This is Nina'S adress ;
+
+Madame Monestier
+159 Bd.Auguste Blanqui. Paris 13
+
+Nelly is working as salesmaid since Monday in a linin-cloth shop
+very expensive one corner rue Miromesnil and St.Honore.
+
+I am writing in the kitchen because the heating is
+off and today after few sunny days it is cold and rainy.
+
+What crime have I done to live such life.
+
+Speed us a letter and tell us what are you doing.Your first letter had never arrived.
+
+I am waiting impatiently news from you and until then
+
+I kiss you lovingly.
+
+COCO

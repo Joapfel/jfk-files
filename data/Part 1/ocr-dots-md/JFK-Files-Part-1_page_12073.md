@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_12073.png
+
+Convert to Markdown8.
+
+SECRET
+Authorized Staff only
+
+31. DESCRIPTION (Use American Standards of measurement).
+
+| | |
+|:---|:---|
+| AGE | 40 |
+| APPARENT AGE | 40 |
+| HEIGHT | 5'10" |
+| EYES | Grey |
+| FACIAL SHAPE | Round |
+| COMPLEXION | Fair |
+| SEX | Male |
+| GENERAL APPEARANCE | |
+
+POSTURE | Erect |
+WEIGHT | 133 lbs. |
+TEETH | Good - even |
+HAIR | Brown - thick |
+SCARS | None |
+BUILD | Thick set |
+
+PROMINENT FEATURES | None
+
+DISFIGURESMENTS | None
+
+PERSONAL HABITS | Normal
+
+ANY TRAITS WHICH DISTINGUISH FROM OTHERS HAVING
+THE same GENERAL DESCRIPTION.
+
+No
+
+32. HAS SUBJECT DORE ANY WRITING? GIVE DETAILS.
+
+None
+
+33. WAS HE EVER A PRISONER OF WAR? GIVE DETAILS.
+
+No
+
+34. WITH WHAT PEOPLE OR GROUPS DOES HE MOST OFTEN ASSOCIATE? (List several).
+Associates most often in France with the "international set", wealthy and prominent persons of all nationalities, many of whom are my customers for air transportation and most of whom are friends of long standing.
+In the U.S. his contacts include persons of high social position and leaders in business and industry. This has been brought about partly by the nature of his work in selling deluxe transportation on two continents and partly by family background and early life in Europe.
+(See Page 3a for a limited list of persons with whom subject associates)
+
+SECRET
+Authorized Staff only

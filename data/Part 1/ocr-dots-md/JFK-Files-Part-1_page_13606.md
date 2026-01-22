@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_13606.png
+
+Convert to Markdownviernes 8 diciembre 1961
+
+cuando acercan algunas sugerencias y reformas substantiales que es necesario introducir. ACUILAR está de acuerdo en ello y se comunicará la semana entrante con CASTILLO para hacer lo suyunministri lo que rescidió el Comité Nacional.
+
+15:10 El Corl. BANGAS ESCAMILLA informó al Lio. DIAZ ORDAZ que hoy desde las diez horas hubo un pare de los maestros de la Escuela 35, en Saltillo, por falta de pago de sueldos. Que di cho pare continuará indefinidamente. Además un incidente que se registró en el Aeropuerte en el que tomaron parte ROGBLIO RODRIGUEZ de la Sabana de Caba y el Correo Diplomático FERNANDO ALONSO quiénes pretendieron entrar armados. Los agentes del Migración al notar esto, los desarmaron no sin antes tener una forcejeo con ellos.
+
+17:20 El Inq. JORGE L. TAMAAYO preguntó a su cuñada GELA qué le perdió a su cónyuge JOSE ALBERTO el nombre realento del General CARDEMAS, ya que no lo quiere nada ni es santo de su devoción. GELA responde que ya no trata esas cosas con JOSÉ ALBERTO porque siempre están en desacuerdo. TAMAAYO ve este asunto desde muchos ángulos de vista y cree que tiene mucha importancia desde el ángulo de la mala jugada que le hicieron al Gobierno Brasil, Ecuador, Uruguay y Argentina de rejarse a la hora de la votación en la ORA. Entonces el Gobierno necesitaba apego y TAMAAYO cree que ésa fue la posición del General CARDEMAS al aceptar el cargo del Gobierno, porque éso se le habían ofrecido hace 3 años. GELA dice que sí, y que no se le habían dado. TAMAAYO rectifica en el sentido de que CARDEMAS no le había aceptado, y do la抬起 a la mañana lo aceptó y entonces a TAMAAYO le parece que fuí en función de la situación internacional. A GELA le dio a cho gusto, pues le parece que es una de las cosas que necesita el Gobierno, un puntalito, porque con el General no se juega. Asíatismo le parece que los demás ni fu ni fa. TAMA- YO a ese respecto comenta que fué requisito que pidió el General, que llamaran a todos. Claro que a los otros les di- ron cosas simbólicas y en realidad el que fué a una posición de importancia fue el General CARDEMAS.
+
+17:45 ELMENA VILLAN secretaria del Lio. AGUILAH dejó recado para la Sra. CLEMONTINA BARRISOLS, en el sentido de que hoy a las 20:00hs en el despacho del Ing. CUAUTIKMOC CARDEMAS será la reunión del Comité Nacional.
+
+18:25 FEDERICO BARRERA PUCHETES comentó con FRANCISCO GALINDO OCHOA que ésta ahora si tiene mucho material, preguntándole a las ves qué opinión tiene de los nombramientos. GALINDO responde que buena. FEDERICO dice que no hay más que un error de aplicación en el asunto de la peaca, pues éso le quita valer a

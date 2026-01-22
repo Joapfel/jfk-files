@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_15326.png
+
+Convert to MarkdownADDITIONAL QUESTIONS.
+
+C. 1. a. When was David sent to the courses of N.C.Os?
+b. Who was the officer in charge of these courses? or
+his immediate supervisor there?
+
+2. a. When they were sent to BARGARES?
+b. How long they stood there?
+
+3. a. When he was returned to Paris and discharged?
+b. His address after the discharge (with the parents?)
+
+5. a. Which identity documents he used when registering with the Labor Office for work in Germany, POELLITZ?
+b. Where did he live in POELLITZ?
+c. What was his job in the factory?
+d. How much he was paid: The method of paying:weekly,
+baweekly, or how?
+e. Which identity papers he had when outside the factory?
+
+7. a. How did he get the travel permit from the Police in Stettin? What did he show to the police for this purpose?
+b. Did he go together with Faskal to the Police?
+c. Did they (or he) have leave permit (s) from the factory
+d. Where did he live during his stay in Berlin?
+
+8. a. How many letters he took with him from Berlin to Paris?
+b. Who gave him those letters?
+c. Where did he hide the letters when en route?
+d. Did he deliver the letters in Paris? How?
+
+9. (His story of going in Achen to the GESTAPO to ask for a permit to go to Paris, when having on himself different letters, and when in possession of but a leave / travel permit to Berlin, with a forged date, seems unbelievable - or most imprudent). Therefore, he should be asked to repeat the stepy about his steps in Achen which he made to become a leagal permit for the trip.
+
+11. Which documents David had on himself when crossing the border at Lupen-Malmedy?
+
+17. a. Where did his parents live at that time? Give address.
+b. When was this?
+
+18. (David said not to remember where he lived during his stay with the JOHO factory).
+a. How long it took him to arrive to his working place, and to get home in the evening?
+b. Which means of transportation did he use?
+c. When was the search made in his room?

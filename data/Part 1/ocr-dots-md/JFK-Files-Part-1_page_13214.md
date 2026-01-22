@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_13214.png
+
+Convert to Markdown<table>
+   <tr>
+    <td colspan="2">CONTINUATION OF</td>
+   </tr>
+   <tr>
+    <td>DISPATCH</td>
+    <td>S E C R E T</td>
+   </tr>
+   <tr>
+    <td></td>
+    <td>HVCA-15159</td>
+   </tr>
+  </table>
+
+5. We are attaching copies of some of the reports that ANGLEVE-15 passed at his first meeting with a Station case officer on 22 January 1968. At the second meeting he said he would try to obtain for us copies of the interrogation of Antonio RIPOLLÓ Celis, of CICLOSERE, and the report from the CIVISTA agent who recently returned from Cuba (see MADRID-3121 and CARACAS-8318). ANGLEVE-15 is only now really getting deeply into his work with CIRÁSH, having just settled his family into an apartment on 1 February 1968, and he expects to be able to furnish a great deal more in the near future. In spite of the problems inherent in some of ANGLEVE-15's friendships and peripheral activities, we are hopeful that this is going to be a productive and valuable operation for the Caracas Station.
+
+Oscar C. Kalbeing
+Oscar C. KALRING
+
+SJC Use Previous Version
+
+SECRET
+
+PAGE 03
+
+2

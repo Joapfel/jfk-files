@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_10471.png
+
+Convert to MarkdownSECRET
+
+Chief, Washington Field Office
+
+28 June 1972
+
+Director, Domestic Contact Service (OSS)
+
+**Rolando Maaferrer Jr., Possible Source Lead**
+
+A) Memorandum for the Record dated 12 June 1972; Same Subject
+B) Van Rapper/Musulin telecon
+
+# REFERENCES:
+
+1. In regard to referent telephone conversation of recent date, we asked Jeffrey G. Peterson (W/3/Venezuela) for additional Sales, Military Armanent Corporation, Headquartered in Georgia.
+
+2. Jeffrey Peterson is a young "career trainee" who has been with the Agency for about six months. He met Maaferrer in Miami, Florida, where both belonged to a Florida National Guard unit. Peterson knows Maaferrer socially as well having met frequently for "snacks and beer".
+
+3. According to Peterson, based on his observations, subject is a personable, intelligent, individual who appears trustworthy, and of sound mind and judgment. He is a solid citizen completely assimilated in the American mainstream; intensely interested in the U.S. political processes. Politically, he is of moderate conservative persuasion. He is an estate businessman of demonstrated ability and integrity. To highlight this point, Peterson mentioned that Maaferrer spurned lucrative cash offers for "under the table" deals to engage in illegal weapons trade in Latin America. He refused these offers to operate in legitimate business circles.
+
+4. Young Rolando takes a sociable drink; has no known bad habits. He has a keen eye for attractive females, but no more so than all healthy males. Peterson said he would not hesitate to recommend subject for a position of trust and confidence.
+
+5. Rolando Maaferrer, Jr. served with the Green Berets, elite U.S. Army unit whose members require special security clearances by the military.
+
+6. Peterson underlined his previous statement that Rolando should not be confused with his father, Rolando Arcadio Maaferrer y Rojas, a former Cuban Senator who was leader of the notorious "Los Tigres", the dreaded army of enforcers under Batista.
+
+SECRET
+
+<table>
+  <tr>
+    <td>Subject:</td>
+    <td><u>U. S. Central Intelligence</u></td>
+  </tr>
+  <tr>
+    <td>Classification:</td>
+    <td>Top Secret</td>
+  </tr>
+  <tr>
+    <td>Dated:</td>
+    <td>June 27, 1972</td>
+  </tr>
+  <tr>
+    <td>To whom:</td>
+    <td>Alexandria Bautista</td>
+  </tr>
+  <tr>
+    <td>From:</td>
+    <td>José Manrique Fajardo</td>
+  </tr>
+</table>

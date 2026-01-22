@@ -1,0 +1,57 @@
+# JFK-Files-Part-1_page_11218.png
+
+Convert to MarkdownREPUBLICA DE CUBA
+
+CONSEJO NACIONAL DE CULTURA
+INSTITUTO DE LA RÁBIDA Y MÚSICA
+
+La Habana, 2 de Junio de 1965
+
+"ANO DE LA SOLIDARIDAD"
+
+BY: EL PRESIDENTE:
+
+Para elisto de dirigirme a Ud. al efecto se re-
+y que esta comunicación, los programas y artículos
+del periódico esténecta en el presente con motivo de la Espect-
+atura de la revista El Periódico del Con-
+tenor R. A. un Contemporánea.
+
+Elaboración cumplimenta el punto 19 del Con-
+testado, y se organizó bajo el patrocinio conjunto del
+Consejo de Cultura y la Embajada de la República So-
+cialeña. Elía: cuadando inaugurada el 27 de Junio proyectado
+en elды.
+
+La Embajada ofreció un espectáculo, y entre los actos
+realizados en la exposición señalamos a los Zabujadores de Rumánía,
+China y de los Países Bajos; Consejero Cultural de la Embajada
+de la URSS, Polémicos de las Embajadas de Indonesia y China;
+el Jefe del Dg. de Países Bajcos del Minrex, compatrio
+Marie Bournacourt y la responsable de Rumánía del propio Minrex
+compatrión Helga Areco; los pintores Portocarrero, Martínez Pedro,
+Vidal, Sra. de Doris y muchas personas más.
+
+Pronunciaron brotes palabras, Vacili Avram, Jote do
+Exposición del Comité Estatal para las Relaciones Culturales
+con el Extranjero de la Rep. Soc. de Rumánia y Miguel Collazo
+por el CIC respectivamente, cotoando presentes los compañeros
+responsable: de la Dir. Nacional de Artes Plásticas así como
+también los compañeros de la Dirección de Relaciones Internacio-
+nales del CIC, Dr. Elpidio Hernández, Luis Alború y el que in-
+forra.
+
+EXO: 1 tarjeta invitación, 1 catálogo de la
+Exposición, 2 hoja con recortes de
+parénticos y 1 artículo de prensa.
+
+Con saludos revolucionarios de "PATRIA O MUERTES,
+"VINCEREMOS", a reiterar de Ud, Fraternalmente,
+
+Dr. Eduardo Corona,
+Director.-
+
+Compañía: Manuel E. Yeats,
+R. S. de
+
+28 de Junio de 1965 a las 10 Hrs., Bucarest.

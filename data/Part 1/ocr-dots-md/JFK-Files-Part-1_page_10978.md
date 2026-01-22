@@ -1,0 +1,73 @@
+# JFK-Files-Part-1_page_10978.png
+
+Convert to Markdown5 March 1965
+
+TO : Chief, Finance Division
+VIA : Contract Approving Officer
+FROM : Chief of Station, 'exico City
+SUBJECT: Inherent of: ITINERTY as Independent Contractor.
+
+1. (1) AND PROJECT CHARTER: The subject individual has been engaged under oral contract for use under Project XXXXXX and is chargeable to [DRAWN]. The effective date of the oral contract is 1 March 1965 subject to termination by ODOKO upon 30 days' actual notice.
+
+2. SECURITY APPROVAL: The appropriate security approval for subject's use has been obtained. Type: P.O. in process. Date:
+
+3. CIVILIAN: Subject (X) is ( ) is not a foreign national.
+
+4. COMMUNICATION: The subject will be paid 5000 Pass per month. The approximate equivalent of this amount in PPP is 100 dollars. Subject ( X ) will ( ) will not receive a Christmas bonus equivalent to one month's pay. Other communications in the nature of bonus commitments, gifts, paid vacations, etc., include: Small Christmas, birthday gifts may be given. No commitment.
+
+5. TAXES: Subject ( ) is (I) is not subject to PPP income taxes. If Subject to PPP income taxes, payments and/or deductions will be made in the following manner:
+
+6. QUARTERS AND/OR SUBMISSION: (a) Subject ( ) will (X) will not be furnished quarters and/or substance allowances. (b) The following commitments have been made regarding additional compensation to accommodate increase cost-of-living and quarters expenses: None
+
+7. OPERATIONAL EXPENSES: (a) Subject (X) will ( ) will not be reimbursed for operational travel. (b) Subject (X) will ( ) will not be reimbursed for operational expenses. State nature of any operational expenses for which Subject will be reimburse: Any minor operational expense approved by the Case Officer such as transportation to meeting site, Note: Subject has never submitted a claim for any such expense to date.
+
+8. COMMITMENTS: The following have not been promised the individual but may have to be met by ODOKO. Give reason for each contingent obligation: Subject may have to be provided safe haven if his government becomes aware of his activities for ODOKO. This does not imply that he is involved in PORTO.
+
+9. No commitments other than those stated above have been made to the Subject.
+
+10. Comment: This MDC submitted because Subject's salary was raised from $4000 to $ 5000 a month effective 1 March 1965. Authority: DIR 89922 (T. 5455) of 5 March 1965.
+Signature:
+Case Officer
+Appointed: Sticaro L. C.osti
+Field Contracting Officer (FS)
+
+MDC:
+Contract Approving Officer
+
+DISTRIBUTION: 3 Authentic copies to Mds.
+1 File P 6079
+1 Support
+
+Date
+
+5 March 1965
+
+130321
+
+# CONTRACT FOR CIVIL COMMITMENTS
+
+72021
+
+CONTRACT FOR CIVIL COMMITMENTS
+
+5 March 1965
+
+To : Chief, Finance Division
+Via : Contract Approving Officer
+From : Chief of Station, 'exico City
+
+SUBJECT: Inherent of: ITINERTY as Independent Contractor.
+
+1. THE ABOVE PROJECT CHARTER: The subject Individual has been engaged under oral contract for use under Project XXXXXX and is chargeable to [DRAWN]. The effective date of the oral contract is 1 March 1965 subject to termination by ODOKO upon 30 days' actual notice.
+
+2. SECURITY APPROVAL: The appropriate security approval for subject's use has been obtained. Type: P.O. in process. Date:
+
+3. CIVILIAN: Subject (X) is ( ) is not a foreign national.
+
+4. COMMUNICATION: The subject will be paid 5000 Pass per month. The approximate equivalent of this amount in PPP is 100 dollars. Subject ( X ) will ( ) will not receive a Christmas bonus equivalent to one month's pay. Other communications in the nature of bonus commitments, gifts, paid vacations, etc., include: Small Christmas, birthday gifts may be given. No commitment.
+
+5. TAXES: Subject ( ) is (I) is not subject to PPP income taxes. If Subject to PPP income taxes, payments and/or deductions will be made in the following manner:
+
+6. QUARTERS AND/OR SUBMISSION: (a) Subject ( ) will (X) will not be furnished quarters and/or substance allowances. (b) The following commitments have been made regarding additional compensation to accommodate increase cost-of-living and quarters expenses: None
+
+7. OPERATIONAL EXPENSES:

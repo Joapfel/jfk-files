@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_14747.png
+
+Convert to MarkdownSECRET
+
+- 4 -
+
+8. MOROZ (fnu, pnu), works for the KGB. He has been in Africa on assignment, possibly with military or economic aid, and has published a work on Africa. MOROZ always moves in KGB circles. He is married to the daughter of a lieutenant general (general letenant), who commands an Army. He is short (about 167 cm.) has bulging eyes, a short neck, and looks "like a toad." He owns a new model Volga, a sensation in Minsk, as only a few of these cars per year, are allocated for civilian purchase.
+
+9. NIKULKIN, Yakov Prokop'yevich. Is a lieutenant general (general letenant) in the KGB and head of the Belorussian SSR KGB. He is a friend of Aleksandr Nikiforovich AKSENOV (see paragraph 1).
+
+10. POKHIN, Aleksandr (pnu). Is a retired KGB major, was formerly a deputy chief of the Minsk KGB Operotdel and an immediate superior of Anatoliy AKSENOV. POKHIN's daughter, Lyudmila, is a graduate of the Minsk State Pedagogical Institute of Foreign Languages and is a friend of the Source.
+
+11. SECHLEYKO, Vladimir (pnu). Born in about 1946. He was the only person who graduated from a KGB school (apparently in Minsk) with the rank of junior lieutenant, because of his bad behavior. He was later expelled from the KGB for excessive drinking and now works at the meteorological station in Minsk. His wife's name is Tamara.
+
+12. SAZANOVICH (fnu, pnu). Is a KGB colonel, Chief of the Special Department (Osobyy otdel) of the Belorussian SSR KGB. SAZANOVICH interrogated a black marketer, a friend of the Source.
+
+13. SURGAILOV, Yevgeniy Fedorovich. Born about 1945. Is a KGB officer. He is a graduate of the Physics Department of the Belorussian State University. His father is Fedor Anisimovich SURGAIOV, Chairman of the Presidium of the Belorussian SSR Supreme Soviet. Yevgeniy SURGAIOV is about 190 cm. tall, blond, of medium build, attractive. His left shoulder is noticeably lower than the right. He likes to drink.
+
+14. ZENOVICH (fnu, pnu). He is a Captain in the Belorussian KGB, was responsible for Philharmonic Orchestra but has been replaced. His wife's name is Svetlana, she was born in 1950. They have a daughter, Anna, born 8 March 1972. At present ZENOVICH is learning to drive a bus. Interviewer's Comment: This possibly indicates that ZENOVICH may have been fired from the KGB.
+
+SECRET

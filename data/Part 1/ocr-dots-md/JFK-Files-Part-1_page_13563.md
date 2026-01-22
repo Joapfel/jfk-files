@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_13563.png
+
+Convert to Markdown<table><tr><td>SECRET</td></tr></table>
+
+# INFORMATION REPORT
+
+## CENTRAL INTELLIGENCE AGENCY
+
+The material contained herein is the property of The National Defense of The United States and is subject to the custody, control and protection of which it is the manner to be safeguarded by law.
+
+<table><tr><td>C country</td><td>GUATEMALA/MEXICO (see above)</td><td>REPORT NO.</td><td>TDCS - 3500, 346</td></tr></table>
+
+<table><tr><td>SUBJECT</td><td>PGT. VIEWS ON THE POLITICAL SITUATION IN GUATEMALA</td><td>DATE DISTR.</td><td>19 MARCH 1962</td></tr></table>
+
+<table><tr><td>BATG OF</td><td>24 MARCH 1962</td></tr></table>
+
+<table><tr><td>PLACE B</td><td>MEXICO, MEXICO CITY, (24 MARCH 1962)</td></tr></table>
+
+<table><tr><td>APPRaisal</td><td>2</td><td>FIEID REPORT NO.</td><td>HM 8-72</td></tr></table>
+
+<table><tr><td colspan="8">THIS IS UNEVALUATED INFORMATION. SOURCE GRADINGS ARE DEFINITIVE. APPROVAL OF CONTENT IS TENTATIVE.</td></tr></table>
+
+### SOURCE
+
+PERSON (H) WITH GOOD CONNECTIONS AMONG GUATEMALAN EXPERTS IN MEXICO.
+
+1. VICTOR MANUEL GUTIÉRREZ, HEAD OF THE PARTIDO GUATEMALANO DEL TRABAJO (POT-GUATEMALAN COMMUNIST PARTY), IN MEXICO, SAID ON 24 MARCH/THAT THE PGT IN GUATEMALA RESULTS THE WAY IN WHICH THE GUERRILLA FIGHT HAS DEVELOPED THERE. ACCORDING TO THE PGT, THE RESULTS OF THE GUERRILLA FIGHTING HAVE NOT BEEN ESTABLISHED UNTIL AFTER THE 13 NOVEMBER GROUP (NUMBER OF N° 1 NOVEMBER 1960 ATTEND TO OVERCOME THE GUATEMALAN GOVERNMENT [IN] THE AGED BY MARCO ANTONIO YON SOSA, IS NOT IN ACCORDANCE WITH THE POLITICAL CONCEPTS OF THE CORTIERIST STRATEGIC. IF THE PGT ALSO REFERS TO THAT THE CONCEPTS AND MEMBERS OF THE PARTIDO DEL TRABAJO UNLOAD REVOLUTIONARY (PURGATORY EXTREMIST PARTY) BELEADED BY CARLOS PAZ TEJADA WILL INTERCEPTED AND
+
+<table><tr><td>SECRET</td><td>CLASSIFICATION: DISSEMINATION CONTROLS<br/>NOFORN/CONTINUED CONTROL</td></tr></table>
+
+<table><tbody><tr><td>STATE</td><td>ARMY/ACAI</td><td>NAVY</td><td>AIR</td><td>JCS</td><td>SECDEF</td><td>NSA</td><td>NIC</td><td>USNA</td><td>OCT</td><td>ONE</td><td>SCR</td><td>DER</td><td>OO</td><td>PTA</td></tr></tbody></table>

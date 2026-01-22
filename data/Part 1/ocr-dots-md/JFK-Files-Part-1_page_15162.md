@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_15162.png
+
+Convert to MarkdownTranslation from German
+
+Consulado del Uruguay
+En
+Frankfurt
+
+September 21, 1962
+
+Dear Mr. Elmendorf:
+
+1.) See enclosed form (the form was not enclosed)
+
+2.) Permanent residence in the country after legal immigration during three years for married persons, five years for single.
+
+3.) There is no immigration quota. The immigration visa is issued by the Ministry of Interior through the immigration office.
+
+4.) Mainly qualified farmers, craftsmen and technicians.
+
+5.) No. However the immigrant must be able to support himself by his profession or private capital.
+
+6.) A medical examination by the physician of the consulate is required.

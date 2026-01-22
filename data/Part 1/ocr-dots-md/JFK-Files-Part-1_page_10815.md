@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_10815.png
+
+Convert to MarkdownSECRET
+
+Nada digí cretario, ci en relación nacional se- si pacífica joves més en la arteza. Los que sidente Rich en la campa en forma c nes del pu Johnson en rescate de l co "Pueblo con dos pi la pusilanr cretario de so crimen d coreanos.
+
+Todo p norcoreano debil reacc el caso de estimulados el espacio. darles la at ra, al avio Poco ir comunistas se videndo nacionales mas de cier reana.
+
+IRONIA
+
+Represe grienta, qu percibida i fueron avío de fabricar taron a los
+
+Mi corresponsal me acusa de “fidelista arrepentido”, que pro bablemente estaba “chivateando a la gente de la clandestina cuando el desembarco de Giron”. Esto no es verdad: yo vine al el primero de enero de 1959. Y dos años antes, andaba por la Ile- rra Maestra tras los “barbudos”, muchos de los cuales ahora mis camaradas. No fui a Giron porque me veto el Conseyo. Pero me aliste. Después, los americanos me han echado años de prision como si yo fuese un paquidermo. Solo porque de cuando en cuando, digo botija verde a la CIA, a los Kennedy y a los Tros de Sarienis".
+
+Finalmente, no tengo mala voluntad a Roblejo, a quien dene toda clase de bienandanzas y a quien, repito mi consejo anterior: No vaya a la televisión. No escriba. Estudie...
+
+Escuchamos a Eduardo Suárez Rivas, ex senador Liberal, ex senador auténtico, ex ministro de Agricultura durante el corrompido gobierno del presidente Carlos Prío Socarrás. Hablaba en un programa radial. Peagi- ficaba. Daba consejos. Lo que no dá Suárez Rivas es dinero, que no le falta en proporciones que lo libran de estrecheces.
+
+En sus temores de que cuando caiga Castro un jefe militar afortunado se alece con el santo y la limosna del poder y le cierre el camino al pupitre senatorial o la poltrono ministerial, sin los cuales don Eduardo no concibe la vida, dijo que "ahora esta de moda que los soldados en América Latina gobiernen desde una po- sición de izquierda, reformista, antinorteamericana, na- cionalista del tipo Juan Domingo Perón o Gamal Abdel Nasser".
+
+¿Qué importa que gobierne uno de uniforme e de civil?
+
+Lo trascendente es que los administradores de la cosa pública sean honrados.
+
+Y si es posible, que también sean barato. Y sin arrogancias, que antepongan los intereses de la patria a los del extraño poderoso.
+
+¡No estaba Washington permanentemente haciéndo le gracia a los Betancourt, los Figueres, los Bosch, los Haya de la Torre, los Muñoz Marín?
+
+Bueno, pues los soldados les han resubido la parada en el Perú. Y quizás pronto lo hagan en Guatemala, en Venezuela y República Dominicana.

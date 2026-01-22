@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_11661.png
+
+Convert to MarkdownSECRET
+
+No. 692
+
+OPERATIONAL CLEARANCE
+
+To: Chief, PDT/NWC
+
+Operational Clearance is granted for the use of FULMINATOR/1.
+
+Limitations: PULMINATOR Project as outlined in TSC-A-967.
+
+STAFF C/ John E. Bonnet
+Operational Clearance Officer for
+ADSO
+
+Date OCT 3 1950
+
+Copy 1 of 2 copies
+
+SECRET
+
+201-33438-1
+
+1400000

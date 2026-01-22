@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_10398.png
+
+Convert to Markdown14-0000
+
+<table><tr><td>OS: Marvin Francis/lq</td></tr><tr><td>TNT: WH/1/3E04</td></tr><tr><td>EXT: 4167:1973</td></tr><tr><td>DATE: 4 October 1968</td></tr></table>
+
+SECRET
+
+<table><tr><th colspan="2">SCUTING AND OR DETAILS - SEEN BY</th></tr><tr><td>1</td><td></td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>5</td></tr><tr><td>8</td><td>10</td></tr></table>
+
+SECRET
+
+<table><thead><tr><th>CABINET SECRETARY'S DELEGATION</th><th>INDEX</th><th>DESTROY</th><th>RETURN TO</th><th>BRANCH</th><th>FILM CO.</th></tr></thead><tbody><tr><td>BY 46 FOR ____________</td><td>☐ NO INDEX ☐ FILM IN CS FILM NO.</td><td>☑ NO INDEX ☐ FILM IN CS FILM NO.</td><td></td><td></td><td></td></tr><tr><td>COMP. WH8</td><td>☐ ID COPY</td><td>DEPO:</td><td>FILE VJAN, WH/COR, A1/05, P2</td><td></td><td></td></tr></tbody></table>
+
+**Reference Number**
+
+CITE DIRECTOR
+
+TO GUATEMALA CITY INFO: MEXICO CITY
+REFS: A. GUATEMALA CITY 9517 (IN 92500)
+B. DIRECTOR 36584**
+
+1. APPRECIATE REF A RESPONSE. AGREE WE DO NOT WANT SURFACE WOPIRM INTEREST LERING-3 OR WIFE TO GUATS IF CAN BE AVOIDED.
+
+2. REF B WAS SENT FOLLOWING DISCUSSION WITH LERING-3'S CASE OFFICER, ROWTON WHO STILL TDY HQS. AFTER FURTHER DISCUSSION WITH ROWTON, HOWEVER, WE PREFER GUAT STATION TAKE NO ACTION ON REFERENCE B REQUEST UNTIL ROWTON RETURNS MEXICO. HE CAN THEN ATTEMPT OBTAIN UPDATED READING ON LERING-3 STATUS FROM LERING-4 OR OTHER SOURCE, AFTER WHICH ROWTON AND MEXICO CITY STATION CAN DECIDE IF ESMAJOR-20 INTERVENTION WARRANTED.
+
+3. INDEX 201-248917, 201-798301.
+
+END OF MESSAGE
+
+CS COPY
+COORDINATING OFFICER
+
+B201-245917
+RELEASED OFFICE
+B201-818842
+
+<table><tr><td>MICROFILMED</td></tr><tr><td>OCT 14 1968</td></tr><tr><td>DOC. MICRO. SER.</td></tr></table>
+
+AUTHENTICATING OFFICE
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

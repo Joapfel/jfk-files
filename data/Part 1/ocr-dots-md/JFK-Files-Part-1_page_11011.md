@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_11011.png
+
+Convert to MarkdownFrom ATREDGE/1 See SOA to UFGA 18495, 4 Nov 1964
+filed in MJ/SA/103
+
+LEFT TO RIGHT:
+
+1. Julio Antonio ALVARAZ, MINEX and DSE
+
+2. Evellis PEREZ Quintero, MINEX and DSE
+
+3. LITANIL-9
+
+4. Antonio PUNEZ JIMENEZ, Pres, Cuban Academy of Science

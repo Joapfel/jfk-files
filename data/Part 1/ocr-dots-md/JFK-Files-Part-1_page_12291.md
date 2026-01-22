@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_12291.png
+
+Convert to MarkdownSECRET
+
+of capture. The Sponsor will pay this money either to a
+designated beneficiary or to an escrow account, as directed
+in advance by the Volunteer.
+
+5. The Sponsor will provide food, housing, operational clothing, equipment and basic personal necessities during the U.S. based phase, enroute, and while in the Congo.
+
+**III. Termination of Agreement**
+
+A. During the period this agreement is in effect, if the Volunteer fails to abide by the terms of the agreement, this agreement will be terminated by the Sponsor at a time and in a manner and place at the discretion of the Sponsor.
+
+B. If the Volunteer chooses to terminate this agreement,
+he may so elect, but final termination will be after the
+Volunteer has been returned to the States and mutually
+acceptable disposal action is arranged for the Volunteer.
+
+C. General termination of this agreement between all Volunteer personnel and the Sponsor will be effected on return to the U.S. upon completion of the Sponsor's mission in the Congo.
+
+D. Final termination settlement between the Sponsor and
+
+4
+S E C R E T

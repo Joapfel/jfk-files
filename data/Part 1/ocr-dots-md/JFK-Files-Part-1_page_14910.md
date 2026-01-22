@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_14910.png
+
+Convert to MarkdownSECRET
+
+—PPQ—
+
+Military service — Dates, country, unit, rank, duty, where services performed, decorations when discharged, why. Give details if ever prisoner of war.
+
+Foreign Legion 1940-41 North Africa (North Africa, Tunisia)
+
+Cavalry 1st Class (distinguished private)
+
+Medals, not POW
+
+26. Present and past membership in organizations (Professional, social, political, etc.)
+
+No organisations
+
+27. Special skills, abilities, hobbies (radio, photography, etc.)
+
+Photography
+Electricity
+Mechanics
+
+Forgery of documents
+Weapons (small arms)
+
+28. Financial status -- Earnings, bank deposits, securities, property.
+
+100,000 fr. per month no property firm makes about 2 million
+
+29. Employment history - Type of work, salary, dates, employer, addresses, reason for leaving. Include employment by any government.
+
+1) Bicycle repairman age of 6 yrs. during summer 1926 Versailles, France.
+2) Made movie projector as child for showing films.
+3) Made electrical repairs for others throughout childhood from 11 yrs.
+4) Repaired sewing machines.
+5) Worked in garage washing cars, aiding mechanic.

@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_15553.png
+
+Convert to Markdown14-0000
+
+<table><tr><td>ORIG: LANCEL WIESCIUR</td></tr><tr><td>UNIT: AF/M/2</td></tr><tr><td>EXT: L818</td></tr><tr><td>DATE: 10 APRIL 1961</td></tr></table>
+
+1657
+
+CLASSIFIED MESSAGE
+
+<table><tbody><tr><td rowspan="3">SECRET</td><td colspan="2">ROUTING</td></tr><tr><td>Apr. 10.</td><td>4</td></tr><tr><td>13 MAY</td><td>5</td></tr><tr><td>WEDNESDAY</td><td>6</td></tr></tbody></table>
+
+TO : FROB, LEOPOLIVILLE
+INFO : FRANKFURT
+
+FROM : DIRECTOR
+
+CONF : C/AF 3
+
+INFO : COP, C/C1, C/EE 3, S/C 2
+
+10 APR 61 22 22Z
+
+SIC EN
+DEFERRED
+ROUTINE
+
+PRIORITY
+
+OUT 94187 34147
+
+TO (PRITY) FROB, LEOP INFO FRAN CITE DIR
+
+WIROGUE RYBAT ZIBET
+
+REF: DIR _________ 34146 (OUT FRAN)
+
+34147
+34147
+
+IDEN ROLLAND C. SWANSON.
+
+END OF MESSAGE.
+
+HUN CHIEF / EE / G. Uyeg bas
+
+BRONSON THEEDY, C/AF
+
+COORDINATING OFFICERS
+SECRET
+
+LESTER C. HOUCK, C/AF/N
+AUTHENTICATING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

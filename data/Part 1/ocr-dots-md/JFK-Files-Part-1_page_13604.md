@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_13604.png
+
+Convert to Markdown13 December 1961
+
+# MEMORANDUM FOR THE FILE
+
+FROM: I.
+
+SUBJECT: Probable Transfer of Ramiro del Rio Perez
+
+1. On 12 December 1961, LITAMIL-2 told me that Chelo Esperon, Cuban Embassy secretary, had been told by Jose Antonio Portuondo, Cuban Ambassador to Mexico, that he had succeeded in getting Subject out of the Cuban Embassy. LITAMIL-2 also reported information from Esperon that Portuondo was arranging a secret meeting with Ricardo Vidal, former Cuban Embassy Counselor, prior to his Mexican defection.
+
+2. Source comment: With the removal of Subject and the possible removal of third secretary, Rodriguez, who was recently involved in a pistol-toting incident at the airport, Portuondo may feel the necessity of discussing the current Cuban Embassy personnel situation with Vidal, who is a veteran Cuban diplomat.
+
+3. Station comment: There is also the possibility that Portuondo may wish to try to use Vidal to obtain oil for Cuba. Portuondo has recently been exhausting all sources in an effort to obtain oil.
+
+Distribution:
+
+1 - P-Ramiro del Rio Perez
+1 - B-Jose Antonio Portuondo
+✓ 1 - P-Rafaelo Rodriguez
+1 - P-Ricardo Vidal
+1 - JAZIP/III
+1 - Cuban Embassy Activities
+
+R-7365

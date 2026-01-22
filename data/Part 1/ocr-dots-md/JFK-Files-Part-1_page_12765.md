@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_12765.png
+
+Convert to MarkdownSECRET
+
+IR04 72501
+29 June 1973
+
+Page 2
+
+3. that, excluding what he told us (See DETAILS), he has never received money or been involved in the sale, purchase, or smuggling of drugs.
+
+4. that, excluding what he told us (See DETAILS), he has never been asked to participate in the illegal drug traffic.
+
+### DETAILS:
+
+During the pre-test discussion, Subject stated that he personally has smoked marijuana on three or four occasions and he has sniffed cocaine on approximately five occasions in the past ten years. Subject asserted that on each occasion, he was attending social gatherings with KMSTONE friends and he felt socially compelled to indulge in order to please the other participants. He estimated that he knows approximately thirty-five people who use cocaine or marijuana. Subject asserted that his last use of cocaine was last month when he visited WOODAL. SGSWIRL supported Subject's claim that his personal use of drugs has not been more extensive.
+
+During the pre-test discussion, Subject asserted that he was not acquainted with anyone who he knew for certain was involved in drug trafficking. Subject did list the following IDENS when asked if he knew anyone who he "suspected" was involved in trafficking drugs: IDENS D, E, F, G, H and I. Subject asserted that his suspicions were based on rumor and these people have never talked to him about illegal drugs. After recording reactions to the test question, "Are you concealing the identity of anyone who you know is involved in the sale or smuggling of drugs?" (Ans. No). Subject acknowledged that his concern for the question was due to the fact that he more than merely "suspected" IDEN D was involved and he was "90% certain."
+
+During the pre-test discussion, Subject stated that in 1954 or 1955, while in KMSTONE, he and a friend sold a non-dangerous drug to a buyer who believed it to be cocaine. Subject asserted that he made $25.00 from this transaction. Also, while in KMSTONE at the same
+
+SECRET

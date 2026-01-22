@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_10404.png
+
+Convert to MarkdownSECRET
+
+17 May, 1968
+
+Subject: Wallace B. R Newton Meeting with LILAC/4.
+
+1. Rowton met with LILAC/4 at the Puerto Blanco Restaurant from about 1900 until 2015 on 16/5/68. LILAC/4 had telephoned Rowton's answering service and left a message that "Dr. Barragán would see him at his office"at that time and date.
+
+2. LILAC/4 reported that she had learned that seven Guatemalans residing in Mexico City had been arrested along with Rodolfo Sandoval. She had learned this from Manuel Marcué Pardiñas but was not able to learn the identities of the other seven. She recalled that Marcué had said that Sandoval had been arrested on 5 May, 1968, just after his wife had arrived from Guatemala, and that he, Marcué, was burdened with the support not only of Francisco Lara's family (wife, mother and children) but now of Sanuoval's wife. LILAC/4 understood that Marcué had moved these dependents into one of his several houses in the city. LILAC/4 added that finally she decided to avoid any further contact with Marcué since he has become a complete nuisance, telephoning and dropping in unannounced at all hours of the night.
+
+3. LILAC/4 also reported that she had obtained a job at the Secretaría de Comercio y Industria, paying 1,200 pesos per month, through Sergio González Kerim, and had started working regular hours (1000-1400) on 13/5/68. When she, however, mentioned this to Zacosta (FTE, phon.), Director of the office of Relaciones Culturales of the SecHELAC les Exteriores, he told her to quit the job immediately since it was not legal for her to work, particularly in a government office where official records were kept. He promised to help her find a job where she could work on the Q.T. without jeopardizing her immigration status.
+
+4. LILAC/4 also reported that she had received three short notes from LILAC/3 mailed from the prison where he is being detained. She stated that she was reassured by these letters that L/3 is in reasonably good health, despite the fact that he and his fellow inmates were not given any food for nine days following their arrest on 13/4/68.
+
+5. LILAC/4 stated that she had talked to LILAC/2 after his return from BRUNEN and found him very suntanned and thinner. L/2 told her that he had been cutting cane and had gotten engaged to a local woman while he was "on vacation". L/2 stated that he most probably would remain in Mexico through the Olympics, although he did not state when he planned to get married. L/2 regretted that he and his office could not help L/4 financially, but he encouraged L/4 to visit the秘ariat whenever she wished. SECRET

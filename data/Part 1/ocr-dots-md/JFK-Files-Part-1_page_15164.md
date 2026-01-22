@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_15164.png
+
+Convert to MarkdownSECRET
+
+SR/DUB/60-1911
+
+22 March 1960
+
+MEMORANDUM FOR: Chief, OS/Alien Affairs Staff
+
+ATTENTION : Mr. Pennington
+
+SUBJECT : Extension of Time in 21 for NELSON Agent AEASPIC, CI/OA No. C-73532.
+
+REFERENCES : a. SR/DOB Memorandum 1463, dated 12 March 1959.
+b. SR/DOB Memorandum 1730, dated 14 September 1959.
+
+1. It is requested that an extension of time be arranged through your office to allow NELSON agent AEASPIC, who entered this country (black) 20 April 1959, to remain in the United States until about 20 April 1961. It is not envisaged that Subject will be required to remain in 21 throughout this entire period; however, such an extension will afford adequate time for implementation of operation AESANTHIL.
+
+2. Close supervision as regards personal and social contacts of AEASPIC will, of course, be continued by an SR/DOB staff officer, until such time as Subject re-enters training when his status will revert to that as outlined in Reference s. (supervision by a staff officer on a 24-hour basis).
+
+3. Subject is available at the convenience of your office should his visits to Immigration and Naturalization Offices be deemed necessary to effect this arrangement.
+
+4. For any further information please contact Fred Kirkpatrick on Ext. 6331.
+
+MICHAEL RAE
+Chief, SR/DOB
+
+Distribution:
+
+Orig & 1 - addressee
+1 - 201 file
+1 - SR/DOB chrono
+
+SECRET
+
+14-00000
+
+18-233477

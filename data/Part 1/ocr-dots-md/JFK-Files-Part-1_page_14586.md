@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_14586.png
+
+Convert to Markdownfainting spells and overweight. These conditions are being treated by Dr. HERNANDEZ (fna) and Dr. MATA (fnu).
+
+24. Nilda is a pleasant woman who has not been known to quarrel with her husband or express political or religious opinions, although once she recited the Lord's Prayer by heart in front of others. A teacher by profession, she handles the bookkeeping at the Embassy on an informal basis. She appears to have a rather weak character, judging from the way she handles her boys. According to Severina ORTIZ Gomez, the maid, these are little beasts who treat the servants badly, even reviling them with obscenities, while referring to their mother as "la chula." Nilda does not permit the boys to be punished.
+
+25. Nilda goes shopping by herself, and once she even took a taxi by herself to the airport to meet her husband, even though CURBELO did not like the idea at all. She seems to get along well with the wives of other Cubans on the staff.
+
+26. RUIZ' children are:
+
+a. Guillermito. He is the oldest and is now studying in Havana. There were reports that he was unhappy there, and RUIZ asked on 16 October 1969 to go to Havana to settle a personal problem with Guillermito. If there were a problem, it seems to have been solved, because RUIZ on his return quoted Guillermito as being very happy in his new school. (Some time ago, Mrs. Hector GALLO Portieles was constantly needling the other women about not being "revolutionary" enough and took Nilda RUIZ to task for having her children with her instead of at school in Cuba. The RUIZ family had brought four of their children with them, and later the other(s) came to join them, before the older one returned to school. RUIZ once told a visitor that Guillermito had been left with his grandparents during their exile in Miami and had been very resentful of it, so they had been very careful ever since not to repeat that mistake).
+
+b. Alejandro. He is about six years old. According to those who know him, he is the real devil of the lot as well as a good swimmer. He is taking guitar lessons, goes to Colegio Estilo, and swims at Gimnasio Mascardo, Pilar de Zaragoza 99. (Nilda has talked to the Gimnasio people about RUIZ' going there also for swimming or exercise).
+
+c. Ivan.
+
+d. Juan Carlos.
+
+e. One other (?)

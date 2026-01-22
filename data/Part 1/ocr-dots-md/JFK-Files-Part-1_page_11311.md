@@ -1,0 +1,66 @@
+# JFK-Files-Part-1_page_11311.png
+
+Convert to MarkdownMESSAGE FORM
+TOTAL COPY:
+
+<table><thead><tr><th></th><th>Routing</th></tr></thead><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
+
+☐ FILE RID
+
+S-E-C-R-E-T
+
+☐ NO WDEY
+
+☐ PLE n.C. Plt. ffl.
+
+DIREC: ___________ PER: ________ &
+
+FROM: DIRECTOR
+
+CONF: ☐ RID COPY
+
+INFO: VA
+
+☐ DESTROY ☐ RETURN TO __________ BRANCH
+
+(ELITE) (PICA)
+
+(CLASSIFICATION)
+
+(DATE AND TIME FILED)
+
+(REFERENCE NUMBER)
+
+TO
+
+WH/COMMENTS: A. LITAMIL-17 (BROTHER LITAMIL-9) ASKED DANGER FILET, BROUGHT A DAILY NEWSPAPER, AND ASKED MEXICO CITY FOR LATEST ON LITAMIL-9
+
+B. ACCOMMODATION ADDRESS FOR LITAMIL-17
+
+NOTE: ORIGINATING OFFICER: WH/1
+
+COORDINATING OFFICER: (DRAFT) WH/C/FI
+
+FOR WH/C/MO (DRAFT)
+
+RELEASING OFFICER: FOR WILLIAM V BODE C/WHD
+
+BT
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+<table><tr><td>S-E-C-R-E-T</td></tr></table>
+
+GROUP 1
+By: Johnathan
+p 니스 and
+no title
+
+AUTHENTICATING
+OFFICER
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

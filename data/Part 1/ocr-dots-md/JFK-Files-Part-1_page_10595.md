@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_10595.png
+
+Convert to MarkdownCONFIDENTIAL
+CONTROLLED DISSEM
+
+-2-
+
+UFG-7482
+
+Source for paras, 4 and 5: A member of a group of Cuban enigres trained in the techniques of information collection. The group has provided useful reports since 1961. This information is from another Cuban enigre who is associated with Homero Leon Fernandez.
+
+4. On 9 August Homero Leon Fernandez said that Masferrer will arrive in Miami in August to complete preparations for an invasion of Haiti. He will bring 100 men from New York. In Miami they will be joined by 100 men from Brigade 2506 and 100 men from Leon's group. The 300 men will leave for an undetermined place from where they will invade Haiti.
+
+5. According to Leon, Masferrer plans to use four boats and five aircraft for the invasion of Haiti. The aircraft will be used to bomb Santiago de Cuba, Oriente Province, Cuba, after Francois Duvalier has been overthrown.
+
+**Field Comment.** Leon, a Cuban enigre, is a leader of the *Fuerzas Armadas Constitucionales de Cuba en el Exilio* (FACCE, Constitutional Armed Forces of Cuba in Exile).

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_13254.png
+
+Convert to MarkdownSECRET
+
+4 December 1967
+
+MEMORANDUM FOR: CI/LIA
+SUBJECT: Luis Clemente Faustino POSADA - Carriles
+
+It is requested that the military 201 file of subject be borrowed from the Department of Army for our review. From records available to us we believe he entered the United States Army in March 1963.
+
+C. W. Cox
+WH/3/Venezuela
+
+SECRET

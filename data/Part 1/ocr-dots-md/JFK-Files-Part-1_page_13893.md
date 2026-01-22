@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_13893.png
+
+Convert to Markdown895. Entrada a las 1730hs.- larga Distancia de Canada.- HF Márquez con Raúl Perayra le dice que siguiendo ilmen esta noche en vuelo de Canadian Pacific , que es el vuelo de salte de Toronto a las 8.05 de la noche,--- Raúl le dice a HF Acosta que Rogelio se va definitivamente para la evening el siete.--- Acosta manda salud a para todas los de la emana...--- Raúl - que Manolín el guajiro que pasa para Chilo con Sinobas y Arman do López,----- Raúl que le explica en esta semana:--- Raúl: quo el chino Curvelo pasa para Bolivia,---- 980.
+
+25.- Entrada a las 1135hs.- HF por Rogelio Rodríguez López.- Deregrina que un momento,--- HF que habla el hermano de Jacintó que el por fin se va mañana.- Rogelio que no que sale el lunes, pero que de todas maneras que si tiene la cuestión pues.. HF que le gustaría mandarle algunas cositas pero que pocas para que no cargue mucho y una carta.- Rogelio de acuerdo, que puede pasar a dejarse las hoy o mañana por la mañana.- HF de acuerdo,--- 38.
+
+16:27. 103 LIO-104 LIO---mifliesta a JORGE ROJAS de la cubana de Acabo que no se va mañana a la madona, sino hasta el lunes. ROJAS toma not, h.1.13

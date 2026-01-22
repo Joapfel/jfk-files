@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_15778.png
+
+Convert to Markdownimplying the existence of a large British run net of which he was a part. In 1945 he was liberated by the U. S. Army and returned to Paris. Subject lived there in relative quiet until he, together with a wartime friend, robbed a Paris bank of a sizeable amount of money.
+
+Subject and accomplice were apprehended by the Surete on 11 July 1950, sentenced to prison, but released some five years later for good behavior and on the basis of their war record. It is interesting to note that while in prison, Subject invented a machine for making cardboard boxes. This machine was actually built for one of the prison administrations and put into operation at the prison factory.
+
+Upon discharge from prison in December of 1955, Subject lived, worked and was paroled to his brother in Gap, France. It was while there that Subject was contacted by this agency and subsequently brought to this country for use as one of two agents for Project
+
+# AESENTINEL.
+
+Subject is presently residing in his Washington, D.C. apartment and is readily available for any interviews.
+
+Subject is engaged in his safe office in several technical gimmicks which could be of value to this Agency. Two of his ideas have been passed forward to TSD for development/exploitation. TSD has expressed interest in another of his ideas, the plans for which have just been completed.
+
+Alien Affairs Staff of Immigration/Naturalization has extended Subject's backstopped residence status until 20 October 1966.

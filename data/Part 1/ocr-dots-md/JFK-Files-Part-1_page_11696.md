@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_11696.png
+
+Convert to MarkdownOPERATIONAL PETTY
+
+COUNTRY CHILE PERIOD CONEED APR/JUN 1951 CRYPTO: FULMIMATOR-1
+
+OBJECTIVES AND TASKS: Functions as cut-out for FULMINATOR and FULMINATOR-2 dis-
+continued with the departure from Chile of FULMINATOR-2. Performs service for this
+Station in the fulfillment of the BRCYTO-LEADING projects.
+
+SALARY: None at the present time as inactive,
+
+EVALUATION OF SERVICES: No change
+
+EVALUATION OF INFORMATION RECEIVED: Not applicable
+
+OTHER FACTORS: No change
+
+CCERTS: none
+
+Prepared by Kenneth J. Taddeo
+
+SECRET
+
+201-33438- 201-88764

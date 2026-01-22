@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_14356.png
+
+Convert to MarkdownSECRET
+
+OSHA-26409
+
+Imagine that Havana would question him on that score. However, if there were problems that Havana felt he lacked the ability to resolve, he should simply be removed "because Comandante Guillermo Ruiz cannot resolve them." Subject said he had been a revolutionary since the age of 20 when he began to think for himself. He had never belonged to any political party other than the Cuban Communist. The current state of affairs, however, was becoming too disturbing and distasteful to him because conscientiously he knew that he was putting forth his full mental and physical capacity toward the fulfillment of his function.
+
+C. Subject told Fuentes that since he didn't know what was brewing in Havana it was possible that he might not return to Madrid. In any event he would designate Fuentes to substitute for him as charge d'affaires. During the entire conversation no mention was made of Orestes BARREDA Perez and why he was asked to return with RUIZ. The latter seemed to be thoroughly absorbed in his own concern over whatever fate lay in store for him on his return to Cuba.
+
+Helen B. NOTHDURFT
+
+53a
+
+SECRET
+
+☐ continue
+
+2

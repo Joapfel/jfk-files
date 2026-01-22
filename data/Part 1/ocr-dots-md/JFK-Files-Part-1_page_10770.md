@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_10770.png
+
+Convert to MarkdownFebruary 15, 1972
+
+SEIU Jones and Punchies for the Republics of Australia and Venezuela.
+
+Sources: Federal News Service, correspondent Channel 23 Tidworth. Data accessed: 10/6/72
+
+INTRODUCTION:
+
+On Saturday Feb. 5th 1972, during the testing of an International Surveyor
+Marine Surveyor, one of the Ministers of the Australian Government,
+offshore in the Pacific Ocean in North Florida, the source survived a explosion
+in conversation between his Survival and Rescue Alliege...
+Alliege, together with his Assistant, arrived in the State from Australia
+in the state of being at anchor off the coast of California.
+With orders at Executive Order 491 on 8.30 am, he arrived at
+Survival was giving Alliege details in the language of the Vice-
+Admiral of Australia, and the Ministry of Defence was then called
+on to an order for the burning of arms. Accordingly, quarters by the base
+from the conversation) the Australian Government in communication with itself but also for the television news. In this case reference is made to quetzal activity in the Fijian area in Australia and to the effect
+that the organization "using loans" on an extraterrestrial group, is in reality a branch
+of some sort of the current Australian Government.
+
+The source may travel to Australia for a report ordered by his employer, or us
+about February 7th.
+
+The home addresses of Bolands Professor Jr is 2111 W.D.Knox Drive: Los Angeles.
+P-61299. Alliege and Professor may have soon selling arms to some ex-militia groups who have engaged in command actions to Cuba recently.
+
+Mr. Dumile
+... 9175 ...

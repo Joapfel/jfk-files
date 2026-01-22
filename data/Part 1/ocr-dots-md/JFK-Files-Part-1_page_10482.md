@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_10482.png
+
+Convert to MarkdownSECRET
+
+Chief, Washington Field Office
+
+28 June 1972
+
+B-67-52
+
+Director, Domestic Contact Service (OSO)
+
+Enando Masferrer Jr., Possible Source Lead
+
+168846
+
+REFERENCES:
+
+A) Memorandum for the Record dated 12 June 1972; Same Subject
+
+B) Van Buyer/Masculin telecon
+
+1. In regard to recent电话记录,根据《通讯录》(通讯录第1卷/第八册)及 additional assessment information on Enando Masferrer, Jr., Vice-President of Sales, Military Armament Corporation, headquartered in Georgia.
+
+2. Jeffrey Peterson is a young "career trainee" who has been with the Agency for about six months. He met Masferrer in Mid, Florida, where both belonged to a Florida National Guard Unit. Peterson knows Masferrer socially as well having met frequently for "smacks and beer".
+
+3. According to Peterson, based on Ms Observations, subject is a personable, intelligent, individual who appears trustworthy, and of sound mind and judgment. He is a solid citizen completely assimilated in the American mainstream; intensely interested in the U.S. political processes. Politically, he is of moderate conservative persuasion. He is an active businessman of demonstrated ability and integrity. To highlight this point, Peterson mentioned that Masferrer spurred lucrative cash offers for "under the table" deals to engage in illegal weapons trade in Latin America. He refused these offers to operate in legitimate business circles.
+
+4. Young Enando takes a sociable drink; has no known bad habits. He has a keen eye for attractive 'esales, but no more so than all healthy males. Peterson said he would not hesitate to recommend subject for a position of trust and confidence.
+
+5. Enando Masferrer, Jr. served with the Green Berets, elite U.S. Army unit whose members require special security clearances by the military.
+
+6. Peterson underlined his previous statement that Enando should not be confused with his father, Enando Arcadio Masferrer y Bojaa, a former Cuban Senator who was leader of the notorious "Los Tigres", the dreaded army of enforcers under Esteban.
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tr><td>Excluded from assets<br>Investing in and)<br>construction</td></tr></table>

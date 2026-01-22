@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_11657.png
+
+Convert to MarkdownSTC81
+
+Chief, Foreign Division T
+Chief of Station, Santiago
+
+23 December 1950
+
+Administrative
+Duty Status Reports
+
+I hereby certify that the following named individuals have performed
+duties during the entire month of December 1950, and that the
+following dollar payments are approved and authorized to be made at
+Headquarters to subjects:
+
+| NAME | AMOUNT |
+|---|---|
+| FULIBACK | $100.00 |
+| FULTLIER | 125.00 |
+| FUMETER | 50.00 |
+| FUMTEASER-1 | 50.00 |
+
+Jerome C. Dimbar
+
+201 ~~7/22~~
+ESTRAT EXR
+DATE APR 12 1955
+
+SECRET
+
+K01-62764

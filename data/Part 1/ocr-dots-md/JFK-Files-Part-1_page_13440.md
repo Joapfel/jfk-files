@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_13440.png
+
+Convert to Markdown14-0000
+
+<table><tr><td colspan="2">YES NO</td><td>CLASSIFIED MESSAGE C TOTAL COPIES</td></tr><tr><td colspan="3">FILE TO FILE NO. 201-25</td></tr><tr><td>A-REF TO FILE NO.</td><td colspan="2"></td></tr><tr><td>FILE RED RET. TO BRANCH</td><td colspan="2"></td></tr><tr><td>DESTROY</td><td>SIG.</td><td></td></tr><tr><td>Dessen By 2</td><td colspan="2"></td></tr><tr><td rowspan="2">ACTION WH 8<br/>INFO FILE, WH/8, cfors, cfos, CH, c/h/or, cf/cf, EL, elpnt-2</td><td>☑ RID COPY</td><td>ADVANCE COPY ☐ ISSUED ☐ SLotted ☐ TUBED</td><td>UNIT TIME BY</td></tr><tr><td></td><td></td><td></td></tr></table>
+
+SECRET 271449Z CITE PANAMA CITY 1070
+PRIORITY JMWAVE INFO DIRECTOR
+
+JMDEVIL
+
+REF: A. DIRECTOR 37751 B. JMWAVE 3243
+
+27 SEP 66
+
+04387
+
+1. PREFER NOT TO CONTACT AMICE-31 AT REF IDEN B ADDRESS DUE POSSIBLE SECURITY RISKS. REQUEST JMWAVE DIRECT AMICE-31 PHONE (PANAMA) 35551, IDENTIFY SELF AS "RAMON" AND ASK FOR "LUCHO". LUCHO WILL TELL RAMON THAT HE (LUCHO) IS A FRIEND OF PABLO AND ARRANGE MEETING. SUGGEST AMICE-31 CALL LATE EVENING OR EARLY MORNING HOURS.
+
+2. ALSO REQUEST JMWAVE PROVIDE AMICE-31 DESCRIPTION AND PERTINENT DATA.
+
+SECRET
+
+BT.
+
+NNNN

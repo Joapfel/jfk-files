@@ -1,0 +1,65 @@
+# JFK-Files-Part-1_page_10572.png
+
+Convert to MarkdownCUBA POR DENTRO
+
+Por IGNOTUS
+
+Un ex oficial del ejército castrista recién lle-
+gado a Miami desde Cuba, dijo que los alistados de
+la famosa división 50 del ejército comunista con a-
+cantonomiento en Mangos de Baraguá, son todos del
+servicio militar obligatorio y de menos de 20 años y
+que no muestran entusiasmo por "la tía Tato" como
+llaman a Fidel Castro.
+
+Agregó que si no hay un desembarco desde
+afuera, cualquier mañana las a mis de casa, deses-
+peradas por la crisis de los alimentos, salen por cien-
+tos de miles a la calle y derriban al régimen.
+
+Finalizó diciendo que en San Luis, sólo hay 13 comunistas. Y que esto es poco más a menos la situación en Cuba entera.
+
+El pseudo escritor Lee Lockwood que ha
+puesta en circulación un lujoso libro que se vende a
+10 dólares en Estados Unidos, con decenas de foto-
+gratías de la "tía Tato" y una amplia descripción de
+su apetito de fantogruel (aimuerzo en Uvero: Lechón
+asado, arroz, frijoles, yuca y fufú de plátano, pollo
+frito, cerveza, vino, coñac, filete mignon y tabaccos),
+dice que obunda un excelente pasto para el genodo
+llamado "marabú", al que el INRA da mucho aten-
+ción.
+
+Ana Laura Infante, que era quizá la señora más aristocrática y discriminatoria de Holguín, casado con un tipo parasitario, gailego, llamado Fernán- do Zorrilla, es de las de "patria o muerte", y en sus alardes democráticos bare las calles de la ciudad. Su hijo "Pincho" bebeder, parrandero y altorotador, que llegó a robar a sus parientes, es todo un jefe del INRA en Holguín...
+
+Y un candidato seguro a la soga y el sebo en
+la quásima cuando coiga la satrapía rusa del Caribe.
+
+Se ven muy pocas rusos en Holguín y en toda
+la provincia de Ciente. Corre el rumor de que se van
+los que quedan. Una muchacha cutana que trabaja
+como doméstico de una rusa, dico que esta le regaló
+alguna reba y le dijo que se marchote a su país.
+
+Armando Acosta Cordero, antiguo concejal co-
+munista de Sancti Spiritus, que desertó de la vieja
+GUARÁ, siendo premindo con el bajo lago de la provin-
+cia oriental, estaba entregado a la "dolce vita",
+practicaba el contrabando y la bolsa negra, disponía
+de muchos autos, fincas y casas. Bebía como un de-
+monio. Días pasados hizo una boda fastuosa a su hi-
+ja en Santiago de Cuba. Ahora está en desgracia. Le
+han quitado el mondo.
+
+Se han destruido las vallas de gallos en las ciudades del interior. Pero se montienen las de los pobladores monte adentro. Se opuesta fuertemente en las lidoras. Son frecuentes las "paradas" de cinco mil pesos. El dinero es producto de la enorme corrupción de las autoridades, la bolsa negra y el juego de terminales protegidos por milicianos y comités de vizilancio. Es normal que los genízaros del régimen "decomisen" pero no encousen a los infelices que matan un cerdo a venden, a hurtadillas, un racimo de plátanos o unas frutas.
+
+Es de viejo sabido que la corrupción de la om-
+ministroción es siempre el preludio del desastre.
+
+Con motivo de la conferencia de OLAS se or-
+denó la reparación y pintura de fachados de los edi-
+ficios de las ovenidas y carreteras. Se acopió came
+y cerveza en todos los pueblos y se llevó a los hote-
+les donde se alojaría la "maffia" comunista latino-
+emericana. En Cuba todo es simulación y mentira.
+Mucho periódico y revista mal escrito, y

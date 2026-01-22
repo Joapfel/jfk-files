@@ -1,0 +1,89 @@
+# JFK-Files-Part-1_page_15298.png
+
+Convert to Markdown-VIII-
+
+KANTCHELI Djibo, 310.
+
+" Marie, 24, married TZITZICHVILI, David's mother.
+
+KATZ = DISSAAR, 17070: 18073: 19C84: 21C97,99.
+
+KEDIA, FAX, 834: 936: 22D5,7.
+
+KERESSELIDZE, Lec, Leon, 3A8, 9.
+
+" Mathée, 2A3,5: 3A7,8,9."'Mathée"through the report.
+
+LORDKIPANIDZE, Dizitri, 2A5.
+
+" Helen, 23E2, née TZITZICHVILI, David's sister.
+
+" Irakli, 2A5: 3E7: 16C53,54; 21D1: 23E2.
+
+" Kodar, 2A5.= TZITZGU.
+
+LONGUIN, Georges, 2A6.
+
+LUCAS, radio engineer, 17C63,64,69: 18C74,75,76: 19C79,80.
+
+Mathée = Keresselidze, through the report.
+
+MINIZINI, 7E16.
+
+NOVIKOFF, driver, 14039.
+
+PANASKHET, De, 3A6. (See: De Panaskhet.)
+
+PASCAL, LNU, 8C6: 11C22: 12C26,28: 13C33,34.
+
+PARROD, Renée, 23E4, =married TZITZICHVILI, David's wife. (1A2)
+
+PEINE, Frehel, 4E2.
+
+RADEMANN, - 16C56: 20C93.
+
+REGIMBAULT, Père, 4B2.
+
+ROQUES, FRU, 2A6.
+
+Sachico, SB8.
+
+SANTEX, 4B4
+
+SATARELLI,Mr. 4B4 = TETINARD.
+
+SCHMIDT-AZI-BADASSI, Astrée, 15C51: 19C84. = Astrée.
+
+SERGO SB8.
+
+TCHOLOKASHVILI, Kaknutza, SB8.
+
+TELLIER, 7E16.
+
+TETINARD = SATARELLI,4B4
+
+TZITZICHVILI, Achilles, Atchico, 2A6: 23E1.= De PANASKHET.
+
+" David, 1A1. "David" through the report.
+
+" Gabriel, 1A2: 24E19.
+
+" Gulga, Gall: 13C35.
+
+" Helen, 2A5; 3A7.=married LORDKIPANIDZE.
+
+" Renée, = née PARROD.
+
+" Simon, 1A3, David's father.
+
+" Elizabeth, 1A2.
+
+" dit De PANASKHET 3A6,= Achilles TZITZISCVILI.
+
+VILEMAIN, radio engineer. 17C63: 18C74: 19C80.
+
+VILI,Fritz, 13C36. = David.
+
+WARREN,De, 8CI.
+
+WERWERT, - 17C7C: 18C73.

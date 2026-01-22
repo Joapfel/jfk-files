@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_13825.png
+
+Convert to MarkdownC. PERSONAL AND PRIVATE DATA
+
+23. Address & telephone of present residence.
+Baja California 17S Apt 3
+no telephone
+
+LIT..11-7 and LIENVOY
+
+24. Nature & description of lodging & Accommodation.
+
+25. Floor plans interleaved? ......
+Photographs interleaved? .......
+
+26. Owner and/or lessor: BI data.
+
+27. Other residents: BI data.
+
+28. Servants: BI data.
+
+29. Meals where, when, with whom?
+
+30. Barber: BI data.
+
+31. Tailor: BI data.
+
+32. Dentist: physician: BI data.
+Dra. Fnu GUNEZ Sanchez (aster's doctor) (LIENVOY 31 Mar 64)
+or
+PHS/BI/.....-6-
+
+SECRET
+No. 500.1.01.01
+
+14-00000

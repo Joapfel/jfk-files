@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_15280.png
+
+Convert to MarkdownSECRET!
+
+29a. Are you an agent of the English Intelligence Service? No.
+
+29b. Are you an agent of the French Intelligence Service? No.
+
+29c. Are you an agent of the Soviet Intelligence Service? No.
+
+Subject's charts manifested no emotional disturbance indicative of deception to any questions during tests XII & XIII.
+
+## TESTS XIV & XV
+
+1. Did you have a Russian passport? Yes.
+
+4. Were you a traitor to the French Nation? No.
+
+6. Did the German Police arrest you as you explained to me?
+Yes.
+
+8. Did Jean ADAM blackmail you into committing a robbery at the jewelry store? No.
+
+9. Other than what you told me, did you commit any other crimes?
+No.
+
+Subject's charts manifested no emotional disturbance indicative of deception to any questions during tests XIV & XV.
+
+## CONCLUSION
+
+A review of Subject's charts showed no reactions indicative of de-
+ception to any of the pertinent questions. Subject admitted, prior to the
+polygraph test, that he had committed a jewel robbery which is not known to
+the French Police. He was assured that we were not interested in prosecuting
+him, and he seemed to be satisfied with that explanation. It is this ex-
+aminer's opinion that Subject is not a member of the RIS or any other foreign
+intelligence service.
+
+08/IRD/PUB:VMO

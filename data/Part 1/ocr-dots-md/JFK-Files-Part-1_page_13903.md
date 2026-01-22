@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_13903.png
+
+Convert to Markdown762. Salida al 460856.- 1222hs. Rogelio Rodríguez con HF. Ingunza le dice que le estaba hablando a Serrano por necesitan dos mesas para escribir a máquina y que le dijeron que estaba en Puebla, que a qué otra persona se pueda dirigir para las mesas.- Inzunza: que al Sr.Arazil.-- -- Inzunza: que ya se cambiaron que ya no están en Reforma, que están en Avenida -- Juárez número 157, esquina frente Monumento Revolución.--796.
+
+757.- Salida al 222401.- 1616hs. Rogelio Rodriguez con García Romero la pregunta que a que horas se va el avión.- Romero: - que más o menos como a las cinco.- Rogelio: que hace falta mandar una cosa urgente para la Habana hoy.- Romero: que cuan to se van a tardar porque el avión casi ya está listo, que hay muy poco pasaje.- Rogelio: que llamó a Cubana y que le dijeron que el avión había salido a las cuatro; que si cree que le da rá tiempo.- Romero: que si llegan antes de las cinco que el cree que sí porque ya está casi para salir.-- 789.
+
+1096.P Entrada a las 1607.-hs.- HF Jorge Rojas con Rogelio le pre gunta que auien la llama de la embajada.- Rogelio que eran ellos que el problema que hay que es que hay que mandar para la Haba
+
+(8)
+
+na una cosa urgente y que como el vuelo no llegue posiblemente
+te hasta el domingo, que eso tiene que estar en la Habana an
+tes del viernes.- Rojas: que el avión en este momento ya es
+ta subiendo a bordo el pasaja ya.- Rogelio: que es una cosa
+super urgente y que si las cosas no están en cinco minutos,-
+Rogelio: que en cinco minutos no pueden estar.- Rojas: que en
+tonces se quedaron, que lo siente en el alma pero que ya está
+todo sinó a bordo.- Rogelio: que correcto.- Rojas: que para
+el viernes hay vuelo.- Rogelio: que si no se puede tratar de
+.... Rojas: que no que allí está la autoridad que está furío
+sa porque los tripulantes han demorado que deben de haber sali
+do hace 45 minutos y que tiene la Comandancia encima.- Que -
+mande las cosas pero sin asegurarle que lo van a esperar.-- -
+---- 1129.-

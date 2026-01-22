@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_11484.png
+
+Convert to Markdown2.
+
+probably does not want L/3 to help his ("Rónulo's") faction and have done
+everything possible to isolate L/3 from his normal social contacts. Rónulo
+added that the only important point in the whole affair was that there were
+"certain elements" among the Guatemalan revolutionaries that might believe the
+LIRING charges and possibly do harm to L/3 and or his wife. Rónulo urged L/3
+"to be careful" and for that reason did not encourage the idea of a confronta-
+tion with Carlos Vega at this time. He continued that if, however, L/3 insisted
+he would be glad to have it out with Carlos Vega to find out who had sent him
+to provoke L/3. Rowton agreed that little or nothing could be accomplished
+in pursuing this matter.
+
+L/3 continued that when he told Rónulo that he felt frustrated and helpless in the face of the LIRING action, Rónulo told him that it was a good revolutionary, have courage and patience in confronting these problems. He continued that he himself hoped to continue to see L/3 and he was sure that things would work out. He stressed that he and his faction value the friendship and loyalty of individuals such as L/3 whereas the LIRING establishment is interested only in groups and organizations that can further their own interests.
+
+5. GUIDANCE/INFORMATION given to agent:
+
+Rowton encouraged L/3 to continue his efforts to find steady employment since he was most vulnerable to both the LIRING agents as well as FAR in the matter of his financial resources. L/3 told Rowton that he had already been promised an appointment to some teaching position by Xavier Espinosa, private secretary to Yañez, the Secretary of Education. L/3 commented that Espinosa is at heart a "good progressive" and has been very sympathetic to him since his return to Mexico. L/3 also stated that he intends to look up Heracleo Zepeda in the hope that the latter can place him somewhere in COHASUPO or arrange a job with his Chiapas newspaper ( "Renovación").
+
+Rowton also urged L/3 to continue to elicit information from "Rónulo" concerning his faction of the FAR and any knowledge he might have concerning the independent operations being planned by FERCHEN in Guatemala.
+
+Wallace B. Rowton
+
+14-00000

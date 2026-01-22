@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_15218.png
+
+Convert to MarkdownSR/DCB/59/1276
+
+13 October 1959
+
+MEMO TO BE ADDED FOR: Director of Security
+ATTENTION : William J. Cotter
+SUBJECT : AT least - #174803
+REFERENCE : Memo from Director of Security, dcd. 6 Oct. 59.
+
+1. As suggested in paragraph two of the referenced memorandum Subject, on 9 October 1959, was presented to the Immigration and Naturalization Service for registration and fingerprinting.
+
+2. Three photographs of the Subject are attached. His physical description is as follows:
+
+**DOB:** 12 July 1918
+**PCB:** Tiflin, Georgia, USSR
+**Height:** 5' 6"
+**Weight:** 136 lbs.
+**Eyes:** Brown
+**Hair:** Black (Balding)
+**Purge:** Small, wiry
+**Scars:** Old broken nose. Tip of thumb and first finger of right hand missing. Scar near right knee.
+
+MICHAEL RAE
+Chief, SR/DOB
+
+CHT/vat
+
+Distribution:
+* Orig & 1 - Addressee
+* 2 - DCB Security
+* 1 - Chrono
+
+L01-2 39477

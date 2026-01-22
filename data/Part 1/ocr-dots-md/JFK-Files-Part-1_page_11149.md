@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_11149.png
+
+Convert to Markdown36
+
+... de la 29 de octubre. -- 11.4.- Alberú con MP --
+- en el undecimo. Le di la hora a D. Meléndez, -
+-- y al encargado de que Curie le mandara --MP-
+-- en el higuerón, y - de volver a llamar a Relaciones
+-- MP.
+
+---/a.
+Invierno. Dr. Am. nguyen Loyo, Subdirector General de In-
+teriores, al no encender a Curbelo, enciende que tienen dete-
+nido a un machinador, cubano, y lo está avistando de --
+la extraña migratoria donde los tienen detenido, que ya tía-
+no en pararrayo. Chelo pide se ocurre para que hablo con -
+Mora, quien lo informa que hoy se vá....D conmigo por una -
+L.D. y Dominguez quedó de volverle a hablar.- 254.-
+
+36
+---/a.
+Nº. 120.- MP de marco del Sr. Dominguez Loyo proyecta
+ta por Mora y Chelo pide se ocurre un momentito....SD CONTO.
+MP vuelve a llamar y Chelo pregunta su teléfono porque no --
+encuentra a Mora y MP indica que es el 254.35. Chelo to-
+ma nota y posteriormente comunica a Dominguez Loyo que efe-
+vivamente Mora tiene el paquete de Machin, pero adiós ---
+quisiera platicar con él; que en caso de que lo localice lo-
+comunicar. Dominguez se dá por enterado y acepta.-431.
+
+431.
+Salida al 299000.-1130.-Alberú se comunica a Relaciones
+Interiores y pide la ctn.273. H:est. ocupada.- 445.-
+
+445.
+Salida al 135007.-1210.- Chelo pide lo andén dos mil-
+hojas papel blanco tamaño oficio para micrografo y MP queda-
+de llevárselas.- 473.-
+
+473.
+Entrada 1226.- MP progonga el nombre del ombajador y --
+Chelo se la dí.- 478.-
+
+(3.-113.- 25 Oct.66).-

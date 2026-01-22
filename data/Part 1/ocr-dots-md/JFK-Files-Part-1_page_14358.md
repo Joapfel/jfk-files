@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_14358.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td colspan="4">DOCUMENT TRANSFER AND CROSS REFERENCE</td></tr><tr><td>SUBJECT OF DOCUMENT</td><td>DOCUMENT IDENTIFICATION</td><td></td><td></td></tr><tr><td>R1 FILE NO.</td><td colspan="3"></td></tr><tr><td>3. DISPATCH OR SOURCE DOC. SYMBOL NO.</td><td>4. DATE</td><td colspan="2"></td></tr><tr><td>7. SOURCE CRYPTOGRAM</td><td>8. DATE OF INFO.</td><td>9. EVALUATION</td><td></td></tr><tr><td>5. ANALYST</td><td>6. DATE PROCESSED</td><td>10. DISSEMINATED IN</td><td>11. DATE</td></tr><tr><td></td><td></td><td>DOCUMENT DISPOSITION</td><td></td></tr><tr><td>12. CROSS REFERRED TO THIS FILE</td><td>13. TRANSFERRED TO<br/>R1 FILE NO.</td><td colspan="2"></td></tr><tr><td colspan="4">PERTINENT INFORMATION</td></tr><tr><td colspan="4">RUIZ PEREZ, GUILERMO<br/>201-735256<br/>SEX M DOB ?<br/>CIT ?<br/>OCC ?<br/>GOING HAVANA FROM MADRID 14 JULY</td></tr><tr><td colspan="4">FILE IN 20f.-235296</td></tr><tr><td>13. FILE THIS FORM IN FILE NO.</td><td colspan="3"></td></tr></table>

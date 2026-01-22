@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_15555.png
+
+Convert to Markdown<table><thead><tr><th>DATE</th><th>TO</th><th>FROM</th><th>ACTION</th><th>INFO</th></tr></thead><tbody><tr><td>7 APR 6</td><td>DIRECTOR</td><td>LEOPOLDVILLE</td><td>C/AF 3 (TEMPO COPY SLOTTED FOR AF AT 0835, 7 AFR.61)</td><td>CGP, C/CA, C/C1, C/F1 2, S/C-2</td></tr></tbody></table>
+
+CLASSIFIED MESSAC
+
+<table><tr><td colspan="4">SECRET</td></tr><tr><td>OUTGOING ROUTING</td><td>1</td><td>C/A/6</td><td>4</td></tr><tr><td></td><td>2</td><td>H/L</td><td>5</td></tr><tr><td></td><td>3</td><td>C/d</td><td>6</td></tr><tr><td colspan="4">APR 7 1301Z 61</td></tr><tr><td>PRIORITY</td><td colspan="3"></td></tr><tr><td>IN 32207</td><td colspan="3"></td></tr></table>
+
+PRITY DIR CITE LEOP 1141 BETTELHEIM ACTING
+
+RYBAT WIRCGUE
+REF LEOP 1140 (IN 3174D)
+
+SWANSON DISCUSSED CONTRACT WITH UNOC ACTING CHIEF AIR COL. PIEROTTI.
+PIEROTTI STATED UNOC POLICY TO GIVE FULL SUPPORT PIERROT AND CAF AND AS LONG AS NO BELGIANS OR PBPRIMER INVOLVED AS ADVISORS UNOC IN FULL ACCORD. SWANSON MEETING AMBASSADOR TO CLEAR AIR COMPLETELY.
+
+END OF MESSAGE
+
+CS COMMENT: *STATED STATION INFORMED AMBASSADOR THAT SWANSON REP OF EUROPEAN SUBSIDIARY OF PBPRIME PARENT COMPANY NOW IN LEOP NEGOCIATING CONTRACT WITH CAF.
+
+per CSH 42-43
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

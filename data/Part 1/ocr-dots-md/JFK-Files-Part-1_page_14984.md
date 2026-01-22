@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_14984.png
+
+Convert to MarkdownSECRET
+
+11 March 1964
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: WIROGUE
+
+On 25 February 1964 the undersigned met with Clarence Schmidt and Art Stimpson of OCA. Bonn to apprise them of the status of the WIROGUE case. Since Clarence S. was preparing to depart PCS, C.O.'s discussion was primarily with Art S., Clarence's replacement.
+
+C. O. briefed Art on WIROGUE's background prior to recruitment and his activities while associated with KUBARK. C. O. reviewed HARVARD's attempt to prepare Subject for resettlement and said that we are now in a position to quit claim him and close the case and that we wanted to bring OCA up-to-date on the status of Subject's case and to find out if there are any loose ends from Bonn's point of view or HARVARD'S which should be tightened up prior to cutting Subject loose.
+
+C. O. explained that since December 12, 1962 when OCA received a query from the BFV regarding Subject, HARVARD had been trying to reach the point where Subject could be on his own. C. O. explained that we had realized that after the original political recognition interview fiasco had brought Subject to the attention of the BFV, that to enable Subject to emigrate from Germany or to stay here without continuing problems in the future would require preparing a complete life history for Subject with a new political recognition interview story. Both the Lebenslauf and a new interview story were prepared and copies of the old story were removed from the various files and replaced by the new. C. O. said that HARVARD had two questions for Bonn: (1) at the time of the original BFV interest in Subject had OCA promised Subject *Ewald* be resettled outside Germany? and (2) would OCA know if the BFV in Cologne had a copy of Subject's political recognition interview story?. Art brought out OCA's file on the case and said to answer the second question first it would appear from the detailed information contained in the BFV query that they
+
+<table><tr><td>Secret</td></tr></table>

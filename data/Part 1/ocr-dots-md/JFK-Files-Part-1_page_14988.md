@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_14988.png
+
+Convert to MarkdownAny attempt to immigrate to the U.S., Canada, Australia, etc. would bring him to the attention of INTERPOL.* On the other hand, he could immigrate to South America but it would be imperative that he first learn Russian if he is to pass himself off as a recent refugee from the Soviet Union. C. O. said he could see no reason to prevent Subject from visiting any country or even entering as a technical representative. C. O. told him that he is soundly, if not perfectly, documented and that we can do no better and that he should never forget that his fingerprints are the weakest links.
+
+C. O. said good-by and parted company. Case closed.
+
+NOTE: Normally HARVARD would provide a statement on one of our cover unit stationary letterheads covering the period of time Subject was in our custody and indicating that he was more or less professionally associated with the U.S. Army. Chief/HARVARD and C. O. felt that unless Subject requests such a letter it would be advisable not to expose him to any more of our M.O. We can be sure that if Subject needs such a letter he will contact HARVARD.
+
+* This case is not true but does enable us to exercise some control.

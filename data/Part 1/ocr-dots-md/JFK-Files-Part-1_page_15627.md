@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_15627.png
+
+Convert to Markdown14-0000
+
+Attn. to EGFA
+
+# REDSOX Spotting and Assessment
+## Report
+
+Date: 3 April 1959
+
+Subject: AESAPIC
+
+DOB:
+
+Address:
+
+Cover for Contact: Friganza as Maj. Michael Long
+Rostedt as George Fowler.
+
+Notes on Contact:
+
+Rostedt and Friganza took the night train to Paris, arriving morning 6 April, and discussed the AESAPIC case with the Paris station. Rostedt briefed COS/Port's and others on current REDSOX. Rostedt and Friganza departed to meet Subject at about 1130 hrs., taking extreme precautions against surveillance.
+
+Subject did not appear at the rendezvous at 12 hours. We waited until 1230 hours when Friganza decided to visit Annick to determine if Subject had been delayed. En route to Annick Friganza changed his mind and returned to the rendezvous (Georges V) where he saw Rostedt with Subject. Subject had apparently gone to the Georges VI rendezvous, (which is understandable considering the hurried circumstances of the previous parting when the rendezvous was discussed), had waited perhaps 1/2 hr. and then decided he had better check the Georges V. On arrival at the Georges V Rostedt immediately recognized him, approached the taxi which Subject had left and re-entered, looked hard at Subject who caught the significance of Rostedt's extraordinary attentions, ordered the taxi around the corner, paid him his due fare, and re-joined Rostedt. It was at this moment that Friganza returned on intuition.
+
+The trio then went to lunch, taking a circuitous route by foot and taxi. Over lunch from about 13-15 hours Rostedt had an opportunity to acquaint himself with Subject and to put to Subject several questions concerning willingness and the job.
+
+After lunch Friganza and Rostedt decided that under the circumstances it would be advisable to keep Subject in Paris rather than risk his arrest travelling between Paris and Ambert or returning to Gap to have his carte d'identite revalidated. Accordingly while Rostedt spent the next 13 hrs. or so with Subject, Friganza returned to the Paris Station where he asked for the use of 13 rue Weber safehouse. Paris Station had committed the safehouse for the night of 6 and 7 April as well as the morning of 8 April but beginning late afternoon 8 April the house was assigned for the use of AESAPIC. Arrangements were made to have Platipodis who knows Subject to be at the safehouse at 1630 hours (alternate 2330 hrs.) on 8 April. Subject was instructed to go to the safehouse, ring 3 longs, 2 short, whereupon he would be admitted by Platipodis. He was likewise given the name John Sandor and told that in the event of unavoidable inquiry he should claim that he had been lent the apartment by Tom Brown, a friend of John Sandor. He was instructed not to answer the phone and not immediately to answer the door. If after persistent ringing he felt obliged to answer the door, he should pretend he had drunk too much wine, was sleeping heavily, and should come to the door appearing groggy. Subject was further instructed to stay in the safehouse during daylight hours and to venture out at night only if necessary to buy food, eat, etc. He was told that Friganza would return for him sometime between 13 and 16 April.
+
+Between 6 and 8 April Subject will stay with Annick. During the day he will avoid the house, going to movies, etc., appearing only at night to sleep.
+
+Subject was paid Francs 49,874 (exactly $700).
+
+Anthony H. Friganza
+
+Case Officer
+
+SECRET

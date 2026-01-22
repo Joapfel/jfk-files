@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_10632.png
+
+Convert to MarkdownCONFIDENTIAL
+CONTROLLABLE DISSENT
+
+-2-
+
+UPG-5559
+
+According to Masferrer, Bordas recently paid Stanley Ross, editor of the New York publication "El Tiempo", $5,000 to assist Bordas in stopping Balaguer from obtaining favorable publicity in the Ross publications.
+
+3. Concerning the next candidate supported by the PLZ, Masferrer said that the PLZ political machine had planned to promote General Antonio Imbert Barrera instead of Amiana although Amiana had previously been pushed for the presidential candidacy with the support of the PLZ.
+
+4. Concerning Cuba, Masferrer said that he has 250 highly trained men available for paramilitary action against the Castro regime. He is personally carrying out daily practice sessions in a light twin-engine aircraft in preparation for future flights to be made by Masferrer in distributing propaganda and attacking strategic points in Cuba. He has no immediate plans, however, for an invasion nor did he reveal the locations of arms and money which he claims to have at his disposal. He said, however, that he has much faith in the United States Government and its appraisal of the Cuban problem and expected a "green light" to be forthcoming from the United States Government soon.
+
+5. Masferrer said that unfortunately several prominent politicians and government officials have been recommending that he not be permitted to return to the State of Florida in spite of an earlier petition signed by many Cuban exiles requesting an amendment to an earlier court ruling prohibiting Masferrer from returning to Florida.¹
+
+6. When asked about the participation of other Cuban exile leaders with Masferrer's group, Masferrer did not comment other than to say that Carlos Marquez Sterling was a "lyric poet" but that his association with Masferrer had not been productive.
+
+1. Field Comment: Refer to CSDB-3/661,878, dated 19 June 1964, regarding the efforts of Masferrer's brother to obtain the signatures of Cuban exile leaders, which he intended to submit to the Immigration and Naturalization Service in Miami with a request for Masferrer's legal return to Miami. G3 COPY
+
+3.

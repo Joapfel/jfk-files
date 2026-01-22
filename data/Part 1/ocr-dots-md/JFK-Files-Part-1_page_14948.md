@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_14948.png
+
+Convert to MarkdownRECHERCHEES
+
+A tous SERVICES MARCHÉE DE POLICE
+SUPERFICIALE
+GERANTIE NATIONAL
+
+J. y a lieu de rechercher très activement le nomé :
+
+T ZITZICHVILI David, dit "DATOUR", né le 20 décembre 1921 à Tiflis (Géorgie), sans domicile connu.
+
+**Signalement :**
+
+1 m 67 à 1 m 70 - corpulence since - visage allien - noiz long - cheveux châtain fencé - calvitie frontale.
+
+Cet individu est l'auteur présumé du vol à main armée, committed le merdi 26 juin 1950, contre la BANQUE DU CREDIT de L'OCENT, Bd Haussmann, Paris.
+
+TZITZICHVILI se déplacerait en province, en compagnie de sa femme née PARROU, en état de grossesse avancée, et de leur fillette âme de troisième environ.
+
+Il est susceptible de circuler à bord d'une voiture automobile dont la marque et le numéro sont inconnus.
+
+Doit être considéré comme DANGEREUX - Pout être armé.
+
+En cas de découverte, procéder à arrestation de T.ZIICHVILI et le ris ferre, et aviser d'urgence État-Major des Brigades Territoriales - Direction de la Police Judiciaire - Préfecture de Police - téléphone : 30000 3-40, et automatiques 1593, 1594 et 1595, ainsi que la Jeme Primo Territoriale, 5, rue Achille Martinet à Paris (10°) - téléphones : 77-85-87 ou HCMT. 09-77, automatique : 1500.
+
+PARIS, le 6 juillet 1950.
+
+LE DIRECTEUR DE LA POLICE JUDICIARE,
+R. DEVAUX.

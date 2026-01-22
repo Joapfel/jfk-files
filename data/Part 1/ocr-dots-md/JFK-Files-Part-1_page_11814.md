@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_11814.png
+
+Convert to MarkdownSECURET
+Security Information
+
+Mission Santiago, working through contract agent Paul D. LANGEVIN, FUNERIAL, an unwitting Chilean with excellent contacts in business and intellectual circles, has succeeded in re-activating the former organization, and has recently approached DTHAREAS with a request for support for the group's activities.
+
+C. Current Status
+
+1. The provisions of basic project PEGROVEL and of Amendment No.1 have been fulfilled. Contract agent Paul D. LANGEVIN has accomplished his mission, that of selecting and subtly guiding a Chilean citizen as the indigenous organizer of the committee. The loan to LANGEVIN, provided under the terms of Amendment No.1, has been paid in full, and the services of the contract agent, for this project, were terminated as of 31 August 1953.
+
+2. The present committee, composed of influential Chilean citizens, has been in touch with the DTHAREAS foundation since March, 1953. The initial contact and subsequent correspondence with DTHAREAS have been handled by FUNERIAL, who, while not a member of the original (1947) group, is an outstanding caricaturist and satirist with abundant experience in journalism and publishing, and who has taken the initiative in re-forming the once-active committee.
+
+3. DTHAREAS is currently awaiting receipt, from FUNERIAL, of a detailed estimate of financial support needed, to include printing costs of the group's weekly news magazine. The publication itself will be published and edited by FUNERIAL-I, a dynamic anti-BGGYPSY individual who also published the official organ of the 1947 organization. Upon receipt of the abovementioned estimates, and pending their review and approval by WHD, DTHAREAS should be prepared to extend technical and financial support up to the amount of $10,000 per annum. It is understood that such WHD support, channeled through DTHAREAS will supplement at least an equal amount which is to be raised locally by the FUNERIAL committee.
+
+4. Contract agent Paul D. LANGEVIN has been replaced, as the cut-out and principal agent for WHD, by Staff Agent Martin J. CÖKENIAS. The latter is presently being introduced into the operation as the Chilean representative of the DTHAREAS foundation; this is being done by means of correspondence between DTHAREAS, FUNERIAL, and Martin J. CÖKENIAS. Once WHD support to the FUNERIAL group is actually extended by DTHAREAS, CÖKENIAS, through the exercise of subtle guidance made possible by his capacity as a DTHAREAS representative,

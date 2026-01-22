@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_14644.png
+
+Convert to MarkdownReport No. 2020
+
+Item #10
+
+BEFORE EARS IN MARCH. It says first he spoke with the Correae and that it had no kind of importance whether it was 50 or 60 cycles because "that is definitely" It is not coupled with anything to tape nor saying like that; it is not like the other one that was co-ordinated and had to go clear with the voice. He says that they will send the thing tomorrow and he will be there when it arrives.
+
+Report No. 2020 19 & 20 October 1969
+Report No. 2021 20 October 1969.
+Report No. 2022 21 October 1969.
+
+Item #7
+
+A CULTURE GATE FROM CHINA IN THE MIDDLE AGES. On文化的 tells him that model #1750/Alpha Rules/cycles $2,200.00$. She says that they will probably go and pick it up. Then she tells her neighbor that Raisa is in Cube for a week because his mother is sick.
+
+Item #8
+
+FRANCISCO COLLES ST., NUNNINGHAM. He says at Minister Donoghue and the group are staying at the Hotel (since until they leave by bus on the next available flight) for Cuba. He says they came in over the road via Iran.
+
+Report No. 2023 21 October 1969
+Report No. 2024 21 October 1969
+Report No. 2025 21 October 1969
+
+Item #3
+
+HEDDA GUTTEN PATTEN (Note: Hilda has called some hotels

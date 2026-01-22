@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_11485.png
+
+Convert to Markdown27 March, 1969
+
+CONTACT REPORT
+
+1. Agent: LIRING/3
+2. Date & Site of Meeting: 1000, 27/3/69; Cabizno Real Restaurant
+3. Next Meeting: Same place and time, 7/4/69.
+4. Information/reports Given by Agent:
+
+LIRING/3 reported that unfortunately "Romulo" (Mario Augusto MERCHEZ Aguilar) had not reappeared since his last meeting with him ( 17/2/69) and that he felt he could do nothing but wait for him to initiate the recontact.
+
+LIRING/3 continued that on his own initiative he had dropped by the LIRING offices on 21 March, feeling that he should not continue to remain in isolation despite the unfavorable rumors against him apparently originated by that office. He told Rowton that unfortunately he did not find anyone of importance in the offices at that time, but was told by the gatekeeper that "they wanted to see him" and that he should return early the following week.
+
+LIRING/3 continued to Rowton that instead of returning to the office he decided to telephone LIRING/9 at his home. He did so on the morning of 25/3/69 but was told by a woman with a Mexican accent (obviously the maid) that neither LIRING/9 nor LIRING/2 was at home. LIRING/3 then left his name and asked the woman to inform either of them that he had called.
+
+LIRING/3 continued that about 1200 that same day ( 25/3/69) his old friend Identity B appeared unannounced at his appartent. L/3 told Rowton that although it was obvious that Iden B had appeared in response to the telephone message that L/3 had left for LIRING/9, Iden B did not refer to it, explaining simply that he had dropped around to see how LIRING/3 and his wife were doing. He did mention subsequently in the conversation that he was now living with LIRING/2 and LIRING/9 and LIRING/13 in their "very ample" apartment. Iden B continued that he hoped to remain in Mexico until July 1969 and that he was planning to marry a Mexican divorcee with three children (boys) whom he had originally met many years ago in a visit to Mexico City.
+
+LIRING/3 told Rowton that Iden B was surprisingly cordial, regretting the fact that they had not seen each other for some time and encouraging LIRING/3 to keep in touch in the future. He invited L/3 to lunch on 29/3/69 but asked him to telephone to confirm. He gave L/3 the telephone number of LIRING/9's residence, apparently forgetting that L/3 already had the number.
+
+Iden B then told LIRING/3 not to be disturbed over the rumors circulating about him, since he himself had been subjected to such the same treatment

@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_11328.png
+
+Convert to MarkdownSECRET
+
+CFN
+
+18 MAR. 1955
+
+13 April '60 - R. Scott, WHI, says subject has agreed to work for station upon his return to Cuba. Scott will supply leck ofa. after. on 2-9. am. hopes that we might be able to resolve Suhj. a bone fide. This was at my suggestion since it came to my attention by independent reading of previous cables that such an installation existed. Yet WHI did not (or referred) divulge such info to CF/CA. JL.
+
+Subj: a brother, L-17, to be used as comm channel. Being processed for POA/OA.

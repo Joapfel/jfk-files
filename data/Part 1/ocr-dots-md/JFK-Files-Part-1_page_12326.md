@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_12326.png
+
+Convert to MarkdownCABLE SECRETARIAT DISSEMINATION
+
+CLASSIFIED MESSAGE * TOTAL COPY: 46*
+
+ROUTING AND/OR INITIALS SEEN BY
+
+<table><tr><td>PERSON UNLESS NOTED</td><td></td></tr><tr><td>ADVANCE COPY ☐</td><td>ISSUED ☑</td></tr><tr><td colspan="2">PLEASE FILTER FOR REDACTED</td></tr><tr><td>DATED</td><td>BY: JAN. 01</td></tr><tr><td>CHECK #</td><td>2571 PERS. SEP. .103</td></tr><tr><td>ACTION NO.</td><td></td></tr><tr><td colspan="2">FILE, VR CDD, ADDO CHAN c/c1, cl/ARC2, c/c1</td></tr></table>
+
+SECRET 142@50Z MAR 73 STAFF
+
+WMIAMI
+
+CITE WH/MIAMI-17858.
+
+TO: CARACAS INFJ DIRECTOR.
+
+RYBAT PLMHABYSS
+
+REFS: A. CARACAS 21298 (IN848386)
+B. DIRECTOR 379434
+C. CARACAS 21408 (IN858116)
+
+1. LNAGON TELEGRAM CITED REF C CONTAINS ALL MHABYSS
+INFO LNAGON/MIAMI HAS ON WKSCARLET-3.
+
+2. FILE: 201-300985. E2 IMPDET
+
+SECRET
+
+CS COPY
+
+SECRET
+
+14 MAR 1973
+
+201-300785
+
+<table><tr><td>AN KO</td></tr><tr><td>JAN X</td></tr><tr><td>BRIAR</td></tr><tr><td>PERS. D.J.</td></tr><tr><td>WH/3/11</td></tr></table>

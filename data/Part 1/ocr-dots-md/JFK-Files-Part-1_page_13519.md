@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_13519.png
+
+Convert to Markdown14-0000
+
+RETURN TO CIA Background Use Only Do Not Reproduce
+
+<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
+
+<table><tbody><tr><td colspan="2">SECRET</td></tr><tr><td>TO : DIRECTOR<br/>FROM : JOHNWAVE<br/>ACTION: DC/W/H/S/N/3<br/>INFO : DDP, VR</td><td><table><tbody><tr><th colspan="4">ROUTING</th></tr><tr><td>1</td><td>KJG</td><td>IW</td><td>1570</td></tr><tr><td>2</td><td></td><td></td><td></td></tr><tr><td>3</td><td>JGS</td><td>1693.3</td><td>(S)</td></tr><tr><td>EOP</td><td>EOS</td><td>L/G</td><td>CA</td></tr><tr><td>CT</td><td>SI</td><td>BF</td><td>H/S</td></tr><tr><td></td><td></td><td>SEC</td><td>NS</td></tr></tbody></table></td></tr><tr><td colspan="2">SECRET 270132Z<br/>DIR INFO SJAN CITE WAVE 8556<br/>DESIGNATED AS IC YOBITE AMBANG<br/><br/>1. ACCORDING AMFAST-6 REPORT 25 JUNE, AMBANG-1 INFORMED PEPE GATILLO (JOSE GARCIA VALDEC) THEIR DEPARTURE DATE FOR PBRUMEN WOULD BE 1 JULY. BOAT TO BE USED IS UNNAMED RYBOVITCH RENED IN FORT LAUDERDALE AND SUPPOSED BE AT INTERNATIONAL MARINE DOCK 26 JUNE. BELIEVED BE 31-FOOTER WITH TWO CHRYSLER ENGINES EACH 280 HORSE POWER AND SPEED 35 KNOTS. AMBANG-1, GATILLO AND MECHANIC TO USE RYBOVITCH WHILE 1950 GREEN CHRIS CRAFT, OWNED BY ARMANDO ACOSTA AND NOW AT ANACAPRI PIER, 1884 NW NORTH RIVER DRIVE, MIAMI TO SERVE AS MOTHER SHIP AND BE OCCUPIED BY ARMANDO ACOSTA, ORLANDO "BEBO" ACOSTA SUAREZ, AND BILL CHUS, AMBANG INTEL CHIEF, CHUS TO SERVE AS MECHANIC AND GO ASHORE WITH AMBANG-1.<br/><br/>2. GATILLO TOLD AMFAST-6 THAT HE AND AMBANG-1 TO LEAVE AT 0500 ON 1 JULY AND TO MEET OTHER BOAT AT 0900 SAME MORNING OFF</td></tr><tr><td colspan="2"><table><tr><td>SECRET</td></tr></table></td></tr><tr><td colspan="2">REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED</td></tr></tbody></table>
+
+Copy No.

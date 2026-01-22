@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_15141.png
+
+Convert to MarkdownCHILE
+
+Translation from German
+
+Letter from Consulado General de Chile
+
+Question 1: see attachment.
+
+Question 2: Chilean citizenship can be obtained after a minimum of five years of residence in Chile.
+
+Question 3: There is no immigration quota.
+
+Question 4: Technical professions are in demand in the first place.
+
+Question 5: It would be better if the immigrant could count upon some financial assistance.
+
+Question 6: See Attachment.

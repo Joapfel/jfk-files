@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_12670.png
+
+Convert to MarkdownSECRET
+
+3. SOURCE SAN JOSE 19215 WAS HUCOD-1.
+
+4. IN VIEW KISSINGER VISIT, ADVISE IMMEDIATE PERMISSION DISCUSS MURDER THREAT WITH LOCAL LIAISON (HUFABRIC).
+
+5. FILE: 201-931810. E2 IMPDET
+
+SECRET
+
+CABLE SEC DISSENT BY ______ PER ______ TOTAL COPIES ______ RUN BY ______
+PERSON UNIT NOTIFIED __________ SECRET
+REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
+
+ADVANCE COPY ISSUED/SALEOER BY AT X STAFF
+
+<table><tr><td rowspan="2">ACTION UNIT</td><td>I N F O</td></tr><tr><td>RF FILE . VR .</td></tr><tr><td>ACTION #</td><td></td></tr></table>
+
+<table><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>3</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+T 693418 EIA020
+
+PAGE 02-02
+
+IN 830494
+
+TOR:1820252 FEB 76
+
+SJO5 19235
+
+(CNS16963)
+
+5. FILE: 201-931810. E2 IMPDET

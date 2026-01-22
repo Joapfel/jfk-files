@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_15290.png
+
+Convert to Markdown# CONTENTS.
+
+Pages:
+- Brief of David's Activities II - VI
+- List of Personal Names VII - VIII
+
+## I. DEBRIEFING (the full report) 1 - 24
+
+- A. General Data 1-3
+- B. David's Childhood 4-7
+- C. Period of WW II 8-21
+
+In French Foreign Legion (subdiv.: 1 - 3 8
+- " Poelitz, Stettin, Germany 5 - 8 8-9
+- " Flight to Berlin, Achen 8 - 10 9
+- " Eupen-Malmedy, to Paris 11 - 17 9-10
+- " Berlin, as photographer 17 - 20 10-11
+- " " , Stahlschnederstr. 21 11
+- " " , Passport for Foreigners 23 - 25 11-12
+- To "Brazil" (Paris, Spain) 25 - 27 12
+- Gought on Spanish-French border 27 - 30 12
+- " " Free France Zone 31 - 32 12-13
+- To Free French Legion, Marseilles 32 - 34 13
+- Back to Paris, troubles in Lion 34 - 37 13
+- In USA, Berlin and Atlantic Wall 39 - 45 13-14
+- In Police Force in Berlin 44 - 52 14-15
+- Document forgery (en mass) 48 - 60 15-17
+- " " (continued) 68 - 76 17-18
+- Financial background, Blackmarket 61 - 67 17
+- Contacting the ABWELR in Berlin 77 - 78 18-19
+- The Belgian Girl, security precautions 79 - 82 19
+- " " , arrest in Berlin 83 - 88 19-20
+- In prison, interrogation, "invention" 89 - 96 20-21
+- Transfer to Wolfenbüttel, release, 97 - 99 21
+
+- D. Explanations to Activities during WW II, 1-7 21-22
+- E. The Period After WW II. 1 - 22 23-24
+
+## II. ANALYSIS.
+
+- F. Additional Questions 26-33
+- G. Characteristic Traits in His Activity 34-36
+- H. Reliability of the Story. 36
+- J. Security Risk. 37-39
+- K. Suggested Next Steps. 39
+- L. Personal Impression made on Debriefer. 40

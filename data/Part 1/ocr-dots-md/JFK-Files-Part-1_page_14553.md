@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_14553.png
+
+Convert to MarkdownSECRET
+
+- 6-
+
+He wears eyeglasses to correct astigmatism, and is known to like skin-diving, a sport that he practiced in Cuba.
+
+In general terms, however, he enjoys good health.
+
+EMPLOYMENT: There is no doubt that Guillermo RUIZ exercises the full authority that presumably he should have as Minister Plenipotentiary (relations between Cuba and Spain remain at this level because of Spain's refusal to appoint a full Ambassador after LOJENDIO was expelled from the Island by Fidel CASTRO).
+
+He is involved in and kept informed of all matters that have to do with Cuban-Spanish relations, including trade. He does not permit commercial attachés to bypass him when they submit reports to their respective enterprises in Havana.
+
+In addition, he supervises Cubana Air Lines operations, and no one may travel on Iberia to Havana without his permission (this applies only to Cubans, for tickets must be paid in foreign currency). Evidently he controls the Cuban Embassy in Lisbon, and Rafael FERNANDEZ Sardiñas, the chargé there, travels frequently to Madrid for consultations with RUIZ (" Our relations with Portugal are not very good now").
+
+Cuban officials arriving in Madrid must consult with him before arranging visits to Spanish officials or factories, and only he, Juan Antonio CURBELO Lemes, Arístides DIAZ Rovirosa, and Roberto FRANCO Oliva, are authorized to issue visas for people travelling to Cuba.
+
+He seems to have good working relations with Spanish Government officials because he is always careful to place all the "cards" on the table in his meetings with them.

@@ -1,0 +1,64 @@
+# JFK-Files-Part-1_page_10664.png
+
+Convert to Markdown14-00000
+
+MESSAGE FORM
+TOTAL COPIES:
+
+☐ FILE RID
+☑ INDEX
+☐ NO INDEX
+☐ FILE IS CS FILE NO.
+
+<table><tr><td colspan="2">ADVICE</td></tr><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table>
+
+DISSEMIN BY ____ PER ____ $____
+
+FROM DIRECTOR
+
+☐ RID COPY
+
+☐ DESTROY ☐ RETURN TO __________ BRANCH
+
+INFO: VN . FILE .
+
+(ELITE) (PICK)
+
+DATE AND TIME FILED
+
+CITE DIRECTOR
+
+TO PORT AU PRINCE, JMWAVE, SANTO DOMINGO,
+SANTIAGO DE LOS CABALLEROS
+
+3
+
+6. FOR SANTO DOMINGO: SUGGEST COS BRIEF EMANTHEN-1 ON SUBSTANCE OF NEXT MEETING.
+BRIEF DATED ABOVE DURING MEETING.
+
+END OF MESSAGE
+
+WE COMMENT: REPORT OF MASFERRER CLAIM THAT SMALL FORCE WILL LEAVE BY BOAT FOR DOM REP TO SET UP BASE FOR SUBSEQUENT ATTACHS ON HAITI AND CURA, AND THAT HE HAS SUPPORT OF DOMINICAN GOVERNMENT,
+
+William V. Brodr
+C/WHD
+
+David Ronis
+C/WH/7/DR
+(by phone)
+Ernest Chlocca
+WH/C/WO/PM
+
+Coordinating officers
+
+SECRET
+
+<table><tr><td>Lunch<br/>Included one plate<br/>for each person<br/>dinner</td></tr></table>
+
+AUTHENTICATING OFFICER
+
+RELEASING OFFICER
+
+COPY NO. 201-042669
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

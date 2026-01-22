@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_14271.png
+
+Convert to MarkdownSECRET 302252Z JAN 69 CITE JMWAVE 1081
+
+MADRID INFO DIRECTOR
+TYPIC MHGUILE
+
+<table><tr><td>ANCF PI.</td><td></td></tr><tr><td>~~J. S. Smith~~</td><td></td></tr></table>
+
+30 JAN 89
+
+REFERENCES MADRID 3859 (In 3/19 ABSTRACT V INDEX)
+
+MADRID 3978 (in 3/7/89)
+
+NO STATION OR AMOT TRACES ROBERTO CRUZ SEGUNDO.
+
+SECRET
+
+SECRET
+
+20-725246
+30 Jun 1968

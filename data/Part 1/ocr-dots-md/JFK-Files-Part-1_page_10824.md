@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_10824.png
+
+Convert to MarkdownHERIDO ALM
+
+Este semana varias semanas e ros cripto-comu "Al Fatih", no como a los etinos que llevan terroristas contr rechando entre gares secretos de La pasada ser El Castro y las cionadas de pri ticia de que "el Mayor del Ejerc bia resultado h companilla a lo bes en una inc irad".
+
+Asa cuando talles que pern al jeje cubano, frecuencia se ca mandantes milit do naca que e resultar Juan A
+
+Edgar
+2 Cubi
+
+Dece el Ociembre, combatientes Roas y Ramírez preven mazmorra de Sa loy dos:组� grupo em, en No. 10, determinados a asociación de estaderios"! Sute log guerriónal i patrítico de se gente apotación generosos— pueden cont de la manz constituyeron
+
+Conversation en Madrid: “Cuando “Cuqui” vuelve a ser presi dente, el jefe del ejército será Roberto, para que no se repita lo que nos hicieron los Tabernilla. Rafaelito ya fue subsecretario de Obras Públicas. El debe ser el ministro. Así no nos pasará lo que con “Lin” y Gabriela”.
+
+Dijo el “general”: “Estrecharremos relaciones con este país que nos ha agradado. Los barcos y los autobuses que ha comprado Castro aquí, serán mantendidos en Cuba. Algo aprovecharremos de los comunistas. Yo estoy arraigandome aquí. He traído la Mierill Lynch”.
+
+Y agrego: "Salas Humara y Rafaelito Saladrigos no debieron hacer esa tremenda inverión en tierra en Fort Lauderdale. Debe ron invertir en Marbella o en la Costa del Sol. Ya yo he ordenado que me vendan el "elefante" de la quinta avenida y la 42 de Nueva York."
+
+Sin comentarios...
+
+El comandante del ejercicio de Estados Unidos, Erneido Oliva, ex-teniente del ejército de Batista y ex-oficial de la reforma agraria de Fidel Castro, esta llamado, según los enterados, a ser el jefe militar de Cuba libre.
+
+Se ha pulido mucho en sus relaciones con los jefes militares del Pentzonco y en especial con Josépi Califano, su enlace con la Ca- ma Blanca.
+
+Estos días, el comandante Oliva, que viste con elegante correc cion y que suda optimismo sobre el futuro de Cuba, se vio en el aeropuerto de Miami, arropado en un bien cortado abrigo de ca- chemira.
+
+Esta es la candidatura que se ha levantado frente a "la plana dora de mísitr Lee" en las elecciones para el ejecutivo de la aso ciación de la brigada 256:
+
+Luís Tomás, Roberto Carballo, Antonio Fernández, Carlos Pa lacios, Jesús Vázquez, Pedro García, Ángel Murmado, Félix Ruiz, Raúl Granja, Edwin Rojas, Hector Ponce, Jose Ll. Rebozo, Mario Cruz, Antonio García, Ramon Orozco, Pedro Pérez.
+
+Sus esclamos les dicen, "los pone bombas del Ejército Secreto"
+
+El artículo de Rolando Novoa dejando en zapatillas a los tres más poderosos obstáculos que tiene ante sí el destierro en el camino de la unidad para la acción armada; el departamento de estado americano, Carlos Prío Socarrás y Fulgencio Batista, ha levantado ron -chas.
+
+Estas especies de nefandas "Rebecat" de _s que todos hablan, todos padecen y sienten, pero nadie ve, son para mucha gente superficial en asuntos de prensa y política, los "tabus" que no deben ser atacados ja- más, porque son muy fuertes y se imitan sus parciales.
+
+Lo que conviene es todo lo contrario: destruir el immercio respecto que sus respectivas conductas de comunistas y roteros, merecen para algunos infelices
+
+SIEVET
+Agresión
+PONGALE
+el
+Cuño
+
+Por ALVARO VERALBA
+
+Conversión en Madrid: "Cuando "Cu qui" vuelve a ser presi-dente, el jefe del ejército será Roberto, para que no se repita lo que nos hicieron los Tabernilla. Rafaelito ya fue subsecretario de Obras

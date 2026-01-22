@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_13714.png
+
+Convert to Markdown10
+
+El Ministerio de Relaciones Exteriores,
+conarme con el Consulado a favor de
+Dra. Estheruvan Rosales
+
+y me diga por la vía que mis le conmenga se dirija a
+Estudar Yrigoyen Mexicano.
+
+Y no me haga esperar a la Embajada de Colombia en Mexico.
+
+Por tanto: en nombre del Sr. Presidente de la República,
+y en los términos de la Nación le facilitan su emparejo y
+le gu�den las consideraciones debidas a su rango. Y ratega
+y satisge re a las de los países extranjeros por donde transi-
+ban, que le preten todo el favor y ayuda que necesite y le re-
+comulan las inmunidades y prerrogativas que conforme al Derecho
+de gentes corresponden a los de su clase; haciendo así asequi-
+ro la reciprocidad en Cuba en casos análogos.
+
+Habana, a 3 de Junio de 1963
+
+Ministro de Relaciones Exteriores.

@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_13551.png
+
+Convert to Markdown14:00
+
+14:35
+
+Un individuo fue asaltado en el distrito de Guaynape, por un individual que recibió un imán y lo pidió a una femalecera. Sin duda, la persona que le pagó su testigo fue la misma persona, quien lo pidió al personal policial; él ya es de la same persona, diciendo que donde hacen los disparos. Ahora estádie- sará el rey.

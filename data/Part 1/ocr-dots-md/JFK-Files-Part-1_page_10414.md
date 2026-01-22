@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_10414.png
+
+Convert to MarkdownSECRET
+
+9 July,1968
+
+Subject: Wallace B. Rowton Meeting with LIRING/11.
+
+1. After several days of attempts by Rowton to meet with LIRING/11 in the vicinity of his (LIRING/11's) residence( which is about six blocks from Rowton's home) Rowton finally succeeded at about 1600 on 5 July, 1968.
+
+2. Rowton had checked the home address of LIRING/11 about 1550 that day and when he had found that LIRING/11's car had not been parked in front, hailed a cab passing in the opposite direction. As an after-thought, however, Rowton called the cab to go around one block on the off chance that he might catch LIRING/11 approaching his home from the intersection of Gutenberg and Ejercito Nacional. Fortunately just as Rowton's cab approached LIRING/11's apartment house, he spotted LIRING/11 alighting from his car in front of the building. Rowton stopped the cab and ran over to greet LIRING/11.
+
+3. LIRING/11 although obviously surprised at seeing Rowton in that area, responded cordially. Rowton alleged that he had been in Switzerland and Canada most of the time since he had last seen LIRING/11, and to his regret had lost contact with mutual friends? LIRING/3 and Iden A. Rowton continued that he had written LIRING/3 at least five letters from Europe but had not received any answer, and had found that he had moved from his Atoyac address as well as his Tacubaya studio. LIRING/11 did not volunteer any information concerning the whereabouts of LIRING/3 but immediately gave Rowton the news that Iden A was working at a sort of night club (giving the name and street on which it was located.)
+
+4. Rowton then said that he had hoped to be able to invite LIRING/11 to lunch but he had to take a short trip to Nuevo Laredo to attempt to arrange for the purchase of a car. (This was thrown out as bait in view of a comment by LIRING/4 that LIRING/11 was scheduled to return PCS and would have to sell his car). LIRING/11 did not react to this, simply suggesting that Rowton get in touch with him as soon as Rowton returned.
+
+5. Rowton then returned to the waiting cab and continued his trip, taking the opportunity to mention to the driver in the course of conversation that he was a businessman from Europe (Switzerland) who often visited Mexico.
+
+SECRET
+
+Wallace BRowton P-11-26-4

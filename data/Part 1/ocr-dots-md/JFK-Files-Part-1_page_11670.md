@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_11670.png
+
+Convert to MarkdownA1R
+
+23 November 1950
+
+Chief, Foreign Division T
+Chief of Station, Santiago
+Administrative
+Duty Status Reports
+
+I hereby certify that the following named individuals have performed
+duties during the entire month of November 1950, and that the
+following dollar payments are approved and authorised to be made at
+headquarters to subjects:
+
+| NAME | AMOUNT |
+|---|---|
+| PULLBACK | $100.00 |
+| PULMAR | 100.00 |
+| FURNISHER | 50.00 |
+| FURNISHER-1 | 50.00 |
+
+Jerome C. Duker
+
+SECRET
+
+201-93832
+
+STRAGGERS INDEX
+
+DATE APR 18 1955
+
+2.01-68744

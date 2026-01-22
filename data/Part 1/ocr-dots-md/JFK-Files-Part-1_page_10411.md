@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_10411.png
+
+Convert to MarkdownSECRET
+
+Perdónde me si con intimidad no le había informado, pero consideré que era inodoro hacerlo mientras no se tuviera algo concreto como es la declaración de los testigos de descargo.
+
+Tenga confianza y talma que estamos viendo éste caso con profundo interés y simpatía.
+
+La puego saludar de mí parte a mi buen amigo Daniel (su sobrino) de quien he zuelo, no tengo noticias y decirte que su amigo de Arriaga lo recuerda con afecto.
+
+Procuraré tenerla informada y puedo escribirme cuantas veces lo desee.
+
+Suyo afro. atto. y S. S.
+
+SECRET

@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_12130.png
+
+Convert to MarkdownSECRET
+
+ATTACHMENT TO RECA-27030
+
+DATED 26 August 1965
+
+SPR PREPARED BY: Jonathan L. WEENING
+
+DATE: 26 August 1965
+
+1. NAME: Ivan Dmitriyevich OBYEDKOV (4).
+
+2. DPOB: ca. 1927-30 (3). Place unknown.
+
+3. CITIZENSHIP AND PASSPORT DATA:
+Soviet service passport no. 009260, used in 1965 (3).
+
+4. ETHNIC ORIGIN: No information.
+
+5. OTHER NAMES USED: No information
+
+6. CURRENT POSITION: Unknown
+
+7. RELATIVES:
+
+a. Wife: Yelena Lvovna OBYEDKOVA (1). Probably nee DMITRIYEVA (3).
+DOB: ca. 1928-31 (3).
+
+Soviet service passport no. 009270, used in 1965 (3).
+In Mexico 28 August 1962 - 22 July 1965 (2,5). Served as director
+of the Soviet primary school in Mexico City and also ran the summer
+camp in Guernavaca.
+
+b. Son: Vladimir (1,2).
+DOB: ca. 1953-56 (3).
+
+In Mexico 28 August 1962 - 22 July 1965. Travelled on mother's passport, (2,5).
+
+c. Boris Lvovich DMITRIYEV and Mariya Borisovna DMITRIYEVA who are probably wife's brother and sister-in-law. During Subject's tour in Mexico, the DMITRIYEVs were staying in Subject's apartment in Moscow, given as Moscow E-143, Metrogorodok, Otkrytoye Shosse 26, Building 7, Apartment 69, telephone G3-72-34 (4). In May 1964 Subject spoke to "Boris" in Moscow about certain purchases for the apartment, and Subject's wife also spoke to her mother, who apparently lived with "Boris" and his wife (1).
+
+8. LANGUAGES: Spanish - poor (1).
+
+9. PHYSICAL DESCRIPTION AND PHOTOS:
+Photos of Subject and his wife are attached (7).
+
+<table><tr><td>CS COPY</td></tr><tr><td>SECRET</td></tr></table>
+
+GROUP 1
+Listed above automatically
+Subject's name and
+ declaration number

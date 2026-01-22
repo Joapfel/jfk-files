@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_11212.png
+
+Convert to Markdownconsejo nacional de cultura
+
+al comienzo el mes de enero, Secretary of the Ministry for la Raza; representation of race, and by Dr. De Molécula Inter- nationalized, and also in the name of the country itself, and also in the name of the Republic. The plan of the future is to carry on the program. It will be a plan of action which can be carried out only with the help of the people.
+
+I am very glad to know that "Reforma y Puebla" has made great progress since last week.
+
+To: an address from the President of Mexico to the People.
+
+Matrimonialist,
+
+es de around the corner, across the street from the square, at the foot of the hill, and so forth.
+
+Dr. Eduardo Coroneo,
+Director.-
+
+Lamparda media...
+Abajador de tuba en la n.º 2 del Callejon.

@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_14805.png
+
+Convert to MarkdownII. 10 May 72
+
+EAST GERMANY
+
+The Czechoslovak guests were cordially seen off on 5 May 1972 at Berlin-Schönefeld Airport by Herbert Malcherek, deputy head of the aviation department, and other collaborators of the SED Central Committee, wellHello as representatives of the CSSR Embassy in the GDR.
+
+POLITZBURG MEMBER AKEN RECEIVED CPUSA LEADER WILTON
+
+East Berlin MEZES DEUTSCHLAND in German 5 May 72 p-28
+
+[Text] Berlin (MD) - On Thursday, Hermann Axen, Polizeiburo member and SED Central Committee secretary, received hisMINISTRO, chairman of the CPUSA, who is currently in the GDR for a friendship visit. In the headquarters of the Central Committee. During the meeting, which was marked by a spirit of friendship and the close fraternal friendship between the two parties, the chairman of the fraternal U.S. party reported on the results of the 20th CPSU congress; the party's successes in the struggle for establishing its election rights in the presidential elections in November 1972, on problems of the struggle against the U.S. imperialist aggression in Vietnam, Laos, and Cambodia and on the movea--for the defense of Angela Davis.
+
+Hermann Axen conveyed the special message of Vice Chairman, First Secretary of the SED Central Committee, to Gus Hall, secretary-general of the CPUSA, and to all U.S. communists, reassuring them of the continued fraternal solidarity of the SED and the GDR working people in their struggle for peace, democracy and social progress, for the defense of civil rights and the liberation of Comrade Angela Davis.
+
+Hermann Axen extensively informed the U.S. workers' leader about the implementation of the decisions of the Eighth SED Congress and the GDR's struggle for peace and security in Europe.
+
+The talk once again confirmed the full agreement of the SED and the CPUSA on all basic questions of the struggle of the world communist movement and served the further deepening of the fraternal relations between the two parties.
+
+At a very cordial meeting with representatives of the GDR Committee for Human Rights, Henry Winston, chairman of the CPUSA, movingly outlined the efforts of thousands of U.S. citizens in defense of Angela Davis.
+
+BRIEPS
+
+HOMECKER VIEWS SOVIET FILM--The two final parts of the Soviet film epic "Liberation" are having their solemn first night in the ODR at the Kosmos Cinema in Berlin. Guests of honor at this event are First Secretary of the SED Central Committee Erich Honecker and USSR Ambassador Mikhail Yefremov. [Text] [East Berlin Voice of the GDR Domestic Service in German 1700 GMT 8 May 73 L]
+
+GDR-SOVIET FRIENDESHIF EXHIBIT--Berlin--"Linked by Friendship--for the Happiness of our Peoples" is the motto of the exhibition which opened in Berlin on 8 May on the 25th anniversary of the German-Soviet Friendship Society. Guests at the opening ceremony were Klaus Dysi, GDR minister of culture, M.T. Yefremov, USSR ambassador in the GDR, and a delegation of the Soviet Society for Friendship with the GDR. East Berlin ADH Internationa: Service in German 2027 GMT 8 May 73 L!

@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_13505.png
+
+Convert to MarkdownRETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+TSD/CNEP MEMO 1646
+
+3 January 1963
+
+MEMORANDUM FOR : Chief, Special Affairs Staff
+
+ATTENTION : Mr. A. Rodriques
+
+SUBJECT : Radio Switch Equipment for Demolition Firing Purposes
+
+1. After our conversation on this subject on 30 December, the question was discussed with Mr. (Jay Alpern) TSD/AOB, and Mr. (Lee Poole) TSD/QRF. The following information is forwarded for your consideration as a result of our discussions.
+
+2. Mr. (Alpern), Audio Operations Branch recommends two companies as sources of equipment of this nature. These companies have experience, under classified contracts with TSD, in producing reliable equipment for special purposes of this sort. They also, of course turn out commercial equipment of good quality for normal communications needs. These companies are:
+
+a. Motorola, Chicago, Illinois
+
+b. Kell, Cambridge, Massachusetts
+
+The TSD VHF radio switch equipment for demolition needs was developed for us by Motorola. 'Kell-Com' transistorized sets have been produced to meet the special needs (not for demolition purposes) of other SAS projects.
+
+3. In the opinion of both persons consulted, the expenses noted in our first discussion should have produced a reasonable amount of workable equipment if the source was both capable and reliable. TSD recommends the use of frequencies in the VHF/UHF spectrum for equipment of this sort and crystal tuning control for reasons of reliability, selectivity and rejection of spurious signals.
+
+4. Inexpensive equipment of Japanese or American manufacture in the citizen's band frequency ranges for toys, radio control devices,

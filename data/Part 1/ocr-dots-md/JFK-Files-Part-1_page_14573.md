@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_14573.png
+
+Convert to MarkdownSECRET
+
+Attachment III
+
+Report No. 262.
+
+30 January 1970.
+
+RUIZ records following memorandum on tape:
+
+"Comrade NEIRA.- I take this opportunity that NILDA is going to Havana to bring to your attention some of our problems here in Spain.
+
+"The first pertains to the construction project for a building which I sent to CHAIN with the President of the National Bank when he passed through here in December, and to this day, after five weeks, I have not received an adequate answer. You know that when preliminary negotiations are initiated one enters into certain obligations with the land owners as well as with the construction firm, to whom we must give an answer.
+
+"On my insistence, Comrade ROA gave me... sent a cable informing me that as yet the budget had not been approved and he could not give me the results.
+
+"Present locales do not meet the Spanish minimum requirements for working space. CURBELO brought from Havana proposals for the leasing of a locale for the Commercial Office with a rental fee of $2,000 a month. We discussed this proposal at a meeting of comrades here and it was rejected in the belief that it was more advantageous for us to buy. We also discussed this with Fermín GUTIERREZ, who visited the Commercial Office and to whom we pointed out that in view of the system of payment here in Spain it was better to purchase a building, since this transaction at no time would affect our system in our trade policy with Spain.
+
+"To the point of being persistent we should like to request a building for all services: the Cuban Office, the Commercial Office, the Consulate-Embassy Office, plus living quarters on the top floor for the diplomatic Representative, something with which I am not in complete accord. In summary, a building which would offer maximum security and freedom of movement. The Commercial Office would occupy the first floor, the Embassy, the second floor, and the third floor the living quarters for the Chief of the Mission. This would resolve all our local problems and our representation in Spain.
+
+SECRET

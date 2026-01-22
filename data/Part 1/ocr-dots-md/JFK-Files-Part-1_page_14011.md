@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_14011.png
+
+Convert to MarkdownSECRET
+
+INFORMATION OBTAINED FROM SOURCE "BEGIN" ON 19 OCTOBER 68
+PHYSICAL LAY-OUT OF THE CURAN UN MISSION (CMUN)
+
+1. BASEMENT -- contains a kitchen and storage rooms.
+
+2. GROUND FLOOR -- reception area; archives of unclassified UN (mostly) documents and papers; telex machine room; offices of Justo Cesar GELABERT Martinez, Attache, and Mercedes SALGADO Hernandez (wife of Jorge REYES Vega, Second Secretary). GELABERT, a member of DSE, replaced Ramon MARTINEZ Suarez as "Portero" of the CMUN. SALGADO (reported last year by the same Source as a member of the DSE) is the Telex operator.
+
+3. SECOND FLOOR -- office of Ambassador Ricardo ALARCON Quesada (runs along the front side of the CMUN on East 67th Street); reception salon for visitors; large office occupied by Antonio DE SOUZA Carvajal, Advisor; smaller office occupied by Gustavo Adolfo PLAZA Peterssen, Attache, and Adamina VASQUEZ Caparo (wife of Alberto BOZA Midalgo-Gato, First Secretary). VASQUEZ is acting as secretary to Ambassador ALARCON.
+
+4. THIRD FLOOR -- mostly living quarters; large common room; library; Rolando CONDE Figuereodo, Attache (who is the chauffeur), lives on this floor; there are also several offices, occupants unknown.
+
+5. FOURTH FLOOR -- entire floor is occupied by DGI personnel. (Last year, the Source reported that the DGI occupied the third floor; what Source actually meant was that the DGI had the third floor per European style of reference, which is the American fourth floor).
+
+6. FIFTH FLOOR -- more living quarters (presumably the residential occupants of the CMUN, other than CONDE, live on this floor).
+
+SECRET.

@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_12867.png
+
+Convert to Markdown<table><thead><tr><td colspan="2">DISPATCH</td></tr><tr><td>TO</td><td>Chief, Latin America Division</td></tr><tr><td>INFO</td><td></td></tr><tr><td>FROM</td><td>Chief of Station, Quito</td></tr><tr><td>SUBMIT</td><td>RYBAT KMSTONE VWNOCK NOC Byron W. GUTRADT's Past Contacts with Orlando Bosch and WKSCARLET-3</td></tr></thead><tbody><tr><td colspan="2">ACTION REQUIRED - REFERENCES</td></tr><tr><td colspan="2"><b>WARNING NOTICE-SENSITIVE INTELLIGENCE SOURCES & METHODS INVOLVED</b><p>1. We understand from press accounts that Orlando Bosch, WKSCARLET-3 and several other Cuban exiles were recently arrested and charged with the sabotage of a Cubana Airlines airliner on 6 October. After having read these accounts NOC Byron W. GUTRADT reported, for the record, that he once knew Bosch and WKSCARLET-3 in the early 1960's. GUTRADT met WKSCARLET-3 in 1964 when both were enrolled in OCS at Fort Benning, Georgia. GUTRADT at that time had already terminated his relationship with BKHERALD. While at OCS GUTRADT was not particularly close to WKSCARLET-3 but WKSCARLET-3 was generally knowledgeable of GUTRADT'S background and past BKHERALD activities. GUTRADT has not seen WKSCARLET-3 since 1964 after completion of the OCS course and doubts seriously that WKSCARLET-3 would remember him.</p><p>2. GUTRADT met Bosch circa 1963 in Miami when GUTRADT was training Bosch in a BKHERALD-sponsored program. Bosch only knew GUTRADT in alias. GUTRADT has not seen Bosch since completion of this training.</p><p>3. Given the length of time that has elapsed plus the lack of closeness to either WKSCARLET-3 or Bosch, GUTRADT and the Station do not believe that their knowledge of his past BKHERALD activities presents any security problems today. GUTRADT, of course, was unwitting of their alleged current activities and was surprised to hear of the bombing of the Cubana airliner.</p></td></tr><tr><td colspan="2">Distribution:<br/>3-C/LAD</td></tr><tr><td colspan="2"><table><tr><td>RECORD COPY</td></tr></table></td></tr><tr><td>CROSS REFERENCE TO</td><td>DISPATCH SYMBOL AND NUMBER<br/>HEQA-09809</td><td>DATE<br/>15 Nov</td></tr><tr><td></td><td>CLASSIFICATION</td><td></td></tr></tbody></table>
+
+S E L U R E S I O N A G E
+
+<table>
+  <tr>
+    <td>B 201-299292</td>
+    <td>DISPATCH SYMBOL AND NUMBER<br/>HEQA-09809</td>
+    <td>DATE<br/>15 Nov<br/>~~20~~</td>
+    <td>CLASSIFICATION<br/><u>SECRET FILE CONFIDENTIAL</u><br/>B201-300985<br/>PO NOT IDENTIFIED</td>
+  </tr>
+</table>

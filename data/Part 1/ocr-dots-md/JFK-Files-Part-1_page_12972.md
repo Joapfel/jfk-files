@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_12972.png
+
+Convert to MarkdownECC - 6792
+
+15 September 1949
+
+SECRET
+
+000-134-194/3
+
+DTP/CN/4: E. Boston: In: 6723
+
+ECN DISTRIBUTION:
+
+1 - WJ/3
+1 - CA/A
+1 - EUR/IC/UK
+
+EC/CA/4
+WJ/3
+
+C/FII

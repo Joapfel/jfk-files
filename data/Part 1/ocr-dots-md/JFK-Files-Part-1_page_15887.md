@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_15887.png
+
+Convert to MarkdownSECRET
+
+- 8 -
+
+Ray Hanchulak (T) "Ray" (A)
+Gordon Mothes (T) "Gordon" (A)
+Joseph Betza (T) "Joe" (A)
+Col. Podwornyy (T) "Pod"
+
+H. Subject knew the operating principles and handled the scale mock-up of the ELINT gear to be used on AESENTINEL. Subject was exposed to training in:
+
+(1) Basic and Advanced Fieldcraft, to include small arms.
+
+(2) Basic tradecraft techniques and practices
+
+(3) Soviet Russian language training
+
+(4) Soviet interrogation techniques
+
+(5) M.O. of KGB Border troops
+
+(6) AESENTINEL Ops. plan
+
+(7) Air infiltration-exfiltration techniques, to include aircraft favored for this.
+
+9. For further information or clarification please call Fred Kirkpatrick, extension 6587.
+
+Fred Kirkpatrick
+SR/O/PT
+
+SECRET
+
+SECRET

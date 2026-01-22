@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_11060.png
+
+Convert to MarkdownEl C.N.C., tiene un plan de becas en el exterior cada año.
+
+El Dept. de Enseñanza Especiales (Pérez Ponsset) 2.86.67
+recibe las necesidades de becas de C.N.C. las cuales se
+pasan al JUCEPLAN y allí se aprueban o se modifican.
+
+C.N.C., no tiene planes para recibir becados extranjeros
+tiene que ser a través del Ministerio de Educación, que sí
+las recibe (Mr. Eduardo Lara, Relaciones Exteriores
+Externas Educación, atiende las peticiones
+
+para las becas del Ministerio de Educación , MINEX sirve
+como intermediario a través de las misiones diplomáticas.
+
+Túnez, desde el punto de vista político peee escusa
+importancia para Cuba.

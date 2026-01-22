@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_13554.png
+
+Convert to Markdown290.- Entrada a las 1154hs.- HF Rogolio/ Rodriguez -do la Em- bajada de Cuba- por Alexandrov.- 357.- JID que Alexandrov está muy ocupado, que él la llamará más tarde.- Rogolio: que es que el agregado comercial quería tener una cita con Alexandrov y que por eso le llamaba.- JID: centerado.----- 370.-

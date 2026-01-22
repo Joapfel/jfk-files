@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_13917.png
+
+Convert to MarkdownASSIFIED MESSAGE
+
+<table><tr><td>19</td></tr><tr><td>SECRET</td></tr></table>
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1.</td><td>4</td></tr><tr><td>2.</td><td>5</td></tr><tr><td>3.</td><td>6</td></tr></tbody></table>
+
+TO : DIRECTOR
+
+FROM : MEXICO CITY
+
+ACTION: WH 8
+
+INFO : QOP, CI, CI/OPS, FI, RI/AN, SAS 8, VR
+
+S E C R E T 341914Z
+
+PACY INFO DIR CITE MEXI 8494
+
+1. ON 2 MAR PANAMANIAN JAIME DE LEON LEFT MESSAGE AT CUBAN EMS FOR HUMBERTO HARRY OF PANAMA TO CALL LEON AT LATTER'S HOTEL UPON ARRIVING MEXI. 29 FEB AND 1 MAR, ONE HARRY HAD CALLED CUBAN EMS, ASKED IF ANY MESSAGE. TOLD TO CALL BACK LATER SINCE "HE" HAD NOT ARRIVED. ALSO 1 MAR HERBERTO JORRIN OF CUBAN EMS CALLED UNIDENTIFIED MAN, ASKED IF ANY MESSAGE FOR HARRY OR MORALES. ANSWER NO.
+
+2. BOTH LEON AND HARRY ASKED FOR ROGELIO, (ROGELIO RODRIGUEZ LOPEZ, SECOND SECY) BUT HE NOT IN. ( SOURCE LIENVOY ) INDEX.
+
+S E C R E T
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tr><td>GROUP I<br/>Included from automatically determined and declared station</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+Copy No.

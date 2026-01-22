@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_11552.png
+
+Convert to Markdown14-0000
+
+Jr.
+
+Carlos Terrazal
+
+presente,
+
+Fernandez:
+
+Juntos tuvimos una dura experiencia; las causas que la ocasionaron TU LLEJANOS MUY MARIÍN Y SATISFACTORIA,OH, tal vez que hay personas y organismos que se اعتueran de todo en su oportunidad.
+
+Ahora, por motivos de índole personal, familiar y pro
+bablemente para cubrir errores de los que NO al TE PONEN, estás
+deformando los hechos y te están difamando.
+
+Tu actitud no es honesta. Tengo en mi ánimo pruebas
+CONCLITAS de tus calumnias y como no soy un hereiro ni un franciscano
+las hare públicas. Considero muy grave la situación que estás pro-
+vocando. Si tú dispones de elementos concretos y definidos que con
+firmen lo que estás divulgando, te su que también lo hagas.
+Así tanto tú como yo nos atendremos a las consecuencias.
+
+Carios Juzardo.
+
+c.c. a organizaciones competentes y personas interesadas.

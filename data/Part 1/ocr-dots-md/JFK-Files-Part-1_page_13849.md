@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_13849.png
+
+Convert to Markdown20:40 El jefe de la Delegación de Estudiantes Chilenos se comunica con EL PRESIDENTE de la Habana de Cuba. Este manifiesta que el embajador HN. ANDRÉS AIAS le pidió que hablara con ella para ver que posibilidades había de que dos de sus compañeros chilenos se quedarán aquí en México hasta el vuelo del sábado, " porque hay el problema de dos compañeros Diplomáticos que lo guaran de Chile y tienen urgencia de viajar mañana a la Habana". El jefe de la Delegación de Estudiantes Chilenos indica queirá ticara con sus compañeros y posteriormente le informará el resultado.
+
+13
+
+CC

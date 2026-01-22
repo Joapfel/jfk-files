@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_15145.png
+
+Convert to MarkdownCIRCULAR No. 2
+
+CONSULADO GUTIER DE CHILE
+FRANKFURT/ALM
+V.DELUXE 64
+CEL: 80 73 46
+
+Frankfurt, den 4/9 1962
+
+Sehr geehrte Herr / You American Friends of
+Mr. Russian Freedom
+
+betrifft, Ihr Schreiben vom 31/8... 1962
+
+RICHTLICHEN FÜR DIE ERTEILUNG EINES VISUMS UND DIE EINREISE VON TOURISTEN
+
+Wir erlauben uns, Ihnen nachstehend einige grundsätzliche Erklärungen über die Erteilung von Visa und die Einreise von Touristen in Chile zu geben. Ausländer können in Chile unter verschiedenen Voraussetzun- en einreisen:
+
+1) als Tourist
+
+2) mit einem Arbeitsvertragsvisum (VISACION DE RESIDENTE SUBATO A CONTRATO)
+
+3) als Studierender (VISACION DE RESIDENTE ESTUDIANTE)
+
+4) zu einem längeren befristeten Aufenthalt (VISACION DE RESIDENTE TEMPORARIO)
+
+5) als Einwanderer (VISACION DE INMIGRACIÓN)
+
+I. TOURISTEN
+
+a) Auf Grund eines besonderen Abkommens zwischen Deutschland und Chile und eines besonderen chilenischen Gesetzes kann man in Chile zu einem Aufent- halt von höchstens 90 Tagen als Tourist ohne Visum einreisen. (In besonde- ren Rällen besteht die Löglichkeit, die Aufenthaltsdauer ein einziges Lal um weitere 90 Tage in Chile verlängern zu lassen).
+
+b) Als Tourist kann man in Chile mit folgenden Unterlagen einreisen: Gültiger Pass ohne Visum, oder gültiger Personlausweis, aus dem der voll- ständige Name, Geburtsort und -datum, Staatsangehörigkeit, Beruf, Wohn- ort, Ausstellungsdatum und Gültigkeitsdauer hervor ehen, und der Stempel und Unterschrift der ausstellenden Behörde sowie ein Lichtbild des Inha- bers enthält.
+
+c) Außerdem ist ein von einem Antragsteller Internationaler Pocken- impfschein mitzuführen, der 2 Jahre Gültigkeit hat.
+
+d) Bei der Einreise ist die Rückpassage in das Herkunftsland oder die Passage für ein anderes Land vorzulegen, für das der Tourist eine Genehmigung zur Einreise besitzt.
+
+e) Bei der Einreise in Chile erhält der Tourist eine "Tarjeta de Turismo" (Touristenkarte), die in zweifacher Ausfertigung auszufüllen ist.
+
+f) Ver in Chile als Tourist einreist, kann dort keine beschlossene Tätigkeit aus- üben. In Ausnahmefällen kann das Innenninisterium in Chile eine Genehmig- ung für die Ausübung einer solchen Tätigkeit für eine Hochstdauer von 5 Tagen erteilen.
+
+g) Personen, die als Touristen in Chile einreisen, können dort keine "VISA- CION DE RESIDENTE TEMPORARIO" beantragen (siehe Art.IV)
+
+h) Als Touristen werden Personen angesehen, die als Erholungsreisende, we- gen sportlicher Interessen, in Ausübung einer gesetzlichen Tätigkeit ohne Entgelt, aus familiären Interessen, etc. nach Chile kommen, ohne die Absicht zu haben, für inner im land zu bleiben oder dort zu arbeiten.

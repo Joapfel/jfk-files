@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_12397.png
+
+Convert to MarkdownSECRET
+
+THIS IS A SECRET DOCUMENT.
+
+DATE: 5 January 1973
+
+TO : Chief, Finance Division
+
+TC : Contract Approving Officer
+
+FAX : Chief of Station, bureaus
+
+SENT: Memorandum of Civil Commitments: WKSARLET-3 (Contd.)
+201-300985
+
+Subject Memorandum, dated 20 August 1969 , has been amended or terminated as indicated below:
+
+1. Commutation. Effective 1 January 1973 , Subject will to be paid $2000.00 per month (equivalent to $456.62 at exchange rate of 3.438/$1.00). No other changes with respect to compensation or other emoluments or benefits as detailed in the original Memorandum have been made.
+
+2. Termination. Subject contract was terminated effective upon knowledge that no further claims against contracting entity are outstanding have been obtained insofar as operationally possible and feasible.
+
+3. Other Charges.
+
+SIGNED: Michael C. CHADEN
+Field Contracting Officer
+(Chief of Station)
+
+REVIEWED:
+~~Contract Approving Officer~~
+C.B.H.
+Special Contracting Officer
+
+US COPY
+
+SECRET
+
+9/10 ATT'N HCA 19182
+
+201-300985

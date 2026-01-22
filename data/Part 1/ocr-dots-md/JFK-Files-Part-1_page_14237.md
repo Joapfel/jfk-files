@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_14237.png
+
+Convert to Markdown14-00000
+
+26 enero 1968
+13-15h
+
+Estimadas entre 1.10h y 1.15h resultaron las dos primeras del committee del Fuente, el que está formado por un representante de la Junta Directiva, tres miembros del Pleno, tres miembros del Comité General y dos miembros del comité local o regional. Si se considera que los tres directivos son los directivos de la Junta Directiva y los miembros del comité local o regional son los miembros del comité local o regional, la Junta Directiva es la que él (Rols) ha asignado al title en base a los rounds de los partidos en el que fue calificado por su como surenderable pero no ni siquiera activa. En el caso de una o más partes de los que han sido sustituyentes para los que no han sido miembro del comité local o regional). El título de directivo es lo mismo que el de miembro del comité local o regional. — Habilan con el title, le presta al comité local o regional lo que le amido el title (lo que me resultó obviamente inestetico), mientras más bien lo intima en su forma, en su forma es de forma que sea bien clearo al who quién es y qué va a hacer, sin tener que arriesgarse por el title.
+
+Si avisa que el nombre del comité local o regional es J. M. D. y D. L., then D. L. D. M.
+
+eg. y att. to OSMA-24303
+15 Oct 1968
+
+91-795096

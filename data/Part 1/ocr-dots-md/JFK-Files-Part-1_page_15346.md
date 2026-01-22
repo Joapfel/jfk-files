@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_15346.png
+
+Convert to Markdown20 August 1965
+
+MEMORANDUM TO: Chief/KUCURL/HENGEN
+FROM : Edward W. LORENTZ
+SUBJECT : Eduardo Whitehouse
+REFERENCE : Dir-35418
+
+1. Edward W. LORENTZ met with Eduardo Whitehouse on 17 August 1965, relative to finalizing the Whitehouse claim for monies still due from his previous contract. LORENTZ emphasized that he was authorized to pay monies due per contract through 7 April 1965, plus a four day layover in Rome during Whitehouse's return to the U.S. This layover was due a Panam strike of which Whitehouse was inadvertently delayed through no fault of his own.
+
+2. The foregoing authority is based on ref and calculated as follows:
+
+A. Base Pay for March - USD 800.
+
+B. Base Pay 7/30 for April - USD 186.66 plus USD equivalent of USD 41.00 for actual expenses while 2½ days in Rome.
+
+C. Total USD 1027.66.
+
+3. Whitehouse although feeling that he should be allowed the full amounts due amounting to USD 1950.00 has accepted such adjudication of his claim. LORENTZ feels that possibly he was sufficiently satisfied that he received any funds, that probably in his sense of fair play that the case might be considered closed. For the record, what medical treatment received by Whitehouse amounted to under USD 200. To further complete the record the following attachments are enclosed:
+
+A. Letter from Dr. Elkhoury.
+
+B. Second letter from Whitehouse to Jack Anderson, Leop.
+
+C. Letter from Whitehouse to LORENTZ.
+
+D. Bills of actual charges in Rome.
+
+E. Receipt from Whitehouse for final payment.
+
+F. Station memo concerning newspaper inquiry. 26 Aug 65
+201-300614

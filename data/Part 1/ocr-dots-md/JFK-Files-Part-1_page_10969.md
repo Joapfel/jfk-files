@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_10969.png
+
+Convert to MarkdownRE
+
+Kysá, Xabier
+
+P. c.
+
+Comp. Luis Alberri
+Departamento de Relaciones
+Culturales con el extraño
+Consejo Nacional de Cultura
+(ene)
+Palacio del Segundo Cabo
+O'Reilly y Tacón,
+La Plaza de Armas
+La Habana
+Cuba
+
+Buenas noches, Luis!
+
+¿Cómo te estado Ud.? Como siempre, trabajando
+ancho? Qué hacer - de dos opiniones sobre el-
+trabajo ("y caballos avenaar en el trabajo" y el
+trabajo encé al Hombre") es mejor seleccioner
+la segunda, verdad?
+
+Todavía estamos en Varna, más exacto-
+a unos 15 km de la ciudad de Varna, eso
+no importa porque todo aquí es la zona de
+playas, hoteles etc. El tiempo trige bien, y ahora
+estamos en los haidanos y tomamos sol, pero lo
+decimos sin afán - somos niniados - por las
+playas Santa María y Atlántico y por el sol
+entano! ¡El mismo tiempo es muy aguadable- que.
+aqui no hay tiburonés y se puede encontrar
+dondiguera.
+
+Durante 2 años nosotros clíridamos muchas
+cosas y ahora administramos del clima, de la na-
+turaliza etc. Es verdad - aquí el aire mismo es
+alzucantamente distinto. franco, sano, lleno de oló-
+res de la tierra y de los árboles. A unas 300-
+400 m de la costa censuran las montañas, cunio.

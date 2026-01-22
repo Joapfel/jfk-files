@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_14951.png
+
+Convert to MarkdownENCLOSURE NO. B TO OFPA 39997
+
+AUG 8 1953
+
+MEMORANDA
+
+MEMORANDA
+
+SECRET
+
+1409000.

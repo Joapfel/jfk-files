@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_14476.png
+
+Convert to Markdown4. I pointed out on more than one occasion that this was not a commitment, but an exploratory interview. We were grateful for his cooperation and would certainly consider him in the event my subordinates opted to contact Ruiz. So-and-so was from New Jersey and his a birth certificate. No his an inspired guess work from his days as a merchant seaman. In the event he is returned to go to Spain to pitch Ruiz, So-and-so understands that he will be paid only for his personal expenses.
+
+5. Be sure to add, Stu: Has finally disclosed his relationship with Ruiz, but only after visiting Ruiz's photos. He now Ruiz only as "millionaire." Although from that Stu could see their relationship there was a definite lack of similarity. Ruiz hasht through it as much. Obviously a younger man would have a better chance with his mate, then the metermaid with his pupil. Stu was well-prepared to travel to Spain to meet with Ruiz, but he try to steer him back to the high taxes he had in 1978."
+
+6. Before packing, I asked Stu howoin for his cooperation and promised to keep in touch with him in the event his services were delayed. He told was great news and we could call on him anytime we needed him. He reported all OK; "If it was for any country, I'll accompany."
+
+Ronald S. Pali.

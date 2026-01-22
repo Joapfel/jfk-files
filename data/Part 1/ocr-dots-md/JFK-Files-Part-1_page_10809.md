@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_10809.png
+
+Convert to Markdown14-0000
+
+LA LIBERTAD Pagina 3
+
+En la campaña de las elecciones de la Campa, ejem- mara de Co- Hablo de la I sector den- en economi- presa. Y del o de k. Flo- ostancia de la sercio Latina, tes mercanti- es de Miami, y a su presen- te.
+
+ROMERO
+
+¿Tan desgriado es el pueblo de Cuba que no tiene otros hombres a que ligar su suerte que Castro y Batista?
+
+Hubiésemos querido no tener que decir estas cosas amargas que podrían lastimar a algunos que por mal entendida lealtad a uno a quien importa un bledo el ufrimiento ajeno, se sientan batismianos.
+
+Esa lealtad, propia de perros, lo cuadra a un pueblo viril y erguido que tiene obligaciones con sus hijos y sus nietos. Y más aún, con los que nos dieron libre la patria, trás décadas de sacrificio y abnegación. Para que nosotros, la parisienses con nuestro pecado. Por favor, Batista, está bueno ya.
+
+Vino Juan Moreno de la alla del Encanto, donde se ocupaba de asuntos electorales del colegio de periodistas, donde él es una "trabuco" de Carlos Romero.
+
+Comenta: "Van pocos LIBER- TAD a Puerto Rico, pero allí tu- dos lo conocen. Los encados ejem- plares que llegan se los pasan de mano en mano. El periódico ha pegado allí entre los evilados que aplauden su línea política in- dependiente".
+
+En Nueva York se está orga- nizando un grupo que tiene toda las características de represen- tar al "tercer equipo" comunis- ta de Cuba que trata de tomar el poder aprovechando la crisis de orden público, marginidad y auto- ridad que occurrence a la caída, la muerte, la prisión o la fuga de Fidel Castro.
+
+Se reunen con periodicidad. A- firman que habrá que mantener toda la legislación enfiksatoria de la propiedad y que lo que con- viene allí es una dictatura popu- lar a través de una partido mili- tante. Y nada de elecciones.
+
+Discuten, a estas alturas, si convendría que ese grupo, que quizás sigue operaciones de Moscú, debe llamarle "Vanguar- día".
+
+Por así-dura, son opuestos a toda forma de UNITA del destie- rro. Y afirman que no hará falta ninguna actividad armada desde el exterior para apoyar a los patríotas que pudieran lanzarse a las calles y despedazar a los ro- jas. De todo esto quedan dos con- signas que recuerdan a su autor original: Elecciones... para qué? Armas... para qué?
+
+La campaign of the campaign of the compe- tito Rumania. CNP, Eta no - Centro Vasco, odistas y diri- os. Por la dele- nueva York y y, asiste Willy ardinador gene- ral a esta clu-
+
+Luis Torres, que azaha de ga- nar las elecciones de la Brigada Zafu en Nueva York, Nueva Jer- sey y Puerto Rico. tiene una br- aga dura por delante en Miami, con la candidatura de Juan José Peruyero, que es apoyada por el comandante del ejército waraca- mericano Ernieo Oliva y su se- gundo Morales Cruz. Zatua decidió
+
+Está en Nueva York en una fac- toria, el brillante periodista cu- hana Armando Cruz Cobos, que trabajó en "El Tiempo" de La Habana y en "Mundo America- no" de Nueva York. Hace poco figuraba como jefe de redacción de "La Tribuna" de Lima, el ú- ganos del APRA de Haya de La Torre.
+
+¿Qué venga a Miami a traba- jar en la TV en español de Joa- lo y Aramis del Real. No podrían hacer mejor adquisición.
+
+También en Miami, en un hotel de la playa labora Fernando Alba- za, exitado republicano anticomi- zana español que trabajó muchos años como colunista muy keydo de "Información" de Santiago R. Claret en La Habana.
+
+La otra parte, su talento no sea mejor aprovechado. Aquí donde hay cada burro embarrucando empanadas

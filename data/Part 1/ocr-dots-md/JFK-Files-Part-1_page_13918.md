@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_13918.png
+
+Convert to MarkdownEMBAJADA DE CUBA
+
+México, D.F.
+No. 138
+
+México, D. F., marzo 4 de 1964.
+
+"ÁNO DE LA ECONOMÍA EN CUBA"
+
+Sr. Jorge L. Rojas
+Gerente de la Empresa
+Consolidada Cubana de Aviación
+Reforma No. 56,
+Ciudad.-
+
+Estimado compañero:
+
+Atentamente solicito de usted se sirva expedir pasaje de ida solamente & de los que esta cubajada tiene a su disposición en esa empresa, al Sr. Enrique González Rogen.
+
+_______, quien (es) deberá (n) permanecer en Cuba por un período indefinido,
+
+Con saludos revolucionarios de "PATRIA O MUERTE", me reitero de Usted,
+
+Fraternalmente,
+
+Rogelio Rodríguez López.

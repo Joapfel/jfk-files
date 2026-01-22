@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_14831.png
+
+Convert to MarkdownSECRET
+
+(Do Not Pilled In)
+
+<table><thead><tr><th colspan="10">DOCUMENT TRANSFER AND CROSS REFERENCE</th></tr><tr><th>SUBJECT OF DOCUMENT</th><th>DOCUMENT IDENTIFICATION</th></tr></thead><tbody><tr><td>R I FILE NO.</td><td></td></tr><tr><td>D I SPATCH OR S OURC E DOC. SYMBOL NO.</td><td>D I DATE</td></tr><tr><td>R I SOURCE C RYP T O N</td><td>D I DATE OF INFO.</td></tr><tr><td>D I ANALYST</td><td>D I EVALUATION</td></tr><tr><td>D I DATE PROCESSED</td><td>D I DISSEMINATED</td></tr><tr><td></td><td>D I DATE</td></tr><tr><th colspan="2">DOCUMENT DISPOSITION</th></tr><tr><td colspan="2">17. CROSS REFERENCED TO THIS FILE</td></tr><tr><td colspan="2">19. TRANSMITTED TO R I FILE NO.</td></tr><tr><th colspan="2">PERSONNEL INFORMATION</th></tr><tr><td colspan="2">WINSTON HENRY<br/>201-006487<br/>SEX: M<br/>DIM: 2<br/><br/>CII: USA<br/>DCC: 2<br/>RI: PROPOSED MEETING OF WESTERN HEMISPHERE COMMUNIST LEADERS IN MEXICO IN NOVEMBER UR DUE TO BEER 66.<br/><br/>HVCHLBMZPUFGHCSHAO-</td></tr><tr><td>HCVCLBH2PUF CHGSHAG-</td><td>R 6612200609</td></tr><tr><th colspan="5">FILE IN 201-104587</th></tr><tr><td colspan="2">FILE THIS FORM IN FILE NO.</td></tr></tbody></table>

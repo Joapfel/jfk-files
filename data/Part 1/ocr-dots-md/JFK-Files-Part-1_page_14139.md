@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_14139.png
+
+Convert to MarkdownWHD AGENT BOARD
+
+**Part I - Request for Action**
+
+(Continued)
+
+agent in a Communist denied area, including OWL, secret writing, crypto-
+graphy, W/T procedures, concealment devices, personal security, intelli-
+gence collection and reporting. He must be able to accomplish all of
+this training against critical time limitations. It has been Digerveno's
+ability to handle this very complex and difficult job in a consistently
+effective and secure manner which has won him the praise of the Miami
+Station management and commendations from several other field stations.
+He has turned in an exceptionally competent performance in every opera-
+tion which he has handled. In a Station which considers it has developed
+a number of very capable and versatile operations officers, Digerveno
+must be regarded as one of the two or three top officers, regardless of
+grade.

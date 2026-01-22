@@ -1,0 +1,58 @@
+# JFK-Files-Part-1_page_11933.png
+
+Convert to MarkdownUnited States District Court
+
+FOR THE
+SOUTHERN DISTRICT OF CALIFORNIA
+
+UNITED STATES OF AMERICA
+
+V.
+No. 74-2277-GT
+DALTON C. SMITH, et al.
+
+To:
+COL. DOUGLAS HALDANE
+
+You are hereby commanded to appear in the United States District Court for the
+Southern
+District of
+California . . . at 325 West F Street in the city of
+
+San Diego on the 11th day of November 1975 at 9:00 o'clock A. M. to testify in the above-entitled case.
+
+This subpoena is issued on application of the
+defendant.
+
+October 23, 1975
+
+E. NAC AMOS, JR.
+Attorney for
+defendant MEROLA
+1010 Second Ave., Suite 1712
+San Diego, CA 92101
+
+WILLIAM W. LUDDY
+CLERK
+
+SEAL
+JOSE GALLAGHER
+DEPUTY CLERK
+
+RETURN
+
+Received this subpoena at .
+and on
+within named
+by delivering a copy to
+allowed by law.
+at
+and tendering to
+the fee for one day's attendance and the mileage
+-----------------------------------------------------------------
+Service Fees By ------------------------------------------------------------------
+Travel $ Services
+Total $
+
+¹ Insert "United States," or "defendant" as the case may be.
+² Fees and mileage need not be tendered to the witness, nor service of a subpoena issued in behalf of the United States or an officer or agency thereof. 28 USC 1525, or on behalf of a defendant who is financially unable to pay such costs (Rule 17 (b), Federal Rules Criminal Procedure).

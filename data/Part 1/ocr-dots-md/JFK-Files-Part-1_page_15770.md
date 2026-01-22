@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_15770.png
+
+Convert to MarkdownSECRET
+
+SR/DOB/60-2055
+
+29 September 1960
+
+MEMORANDUM FOR: Chief, Alien Affairs Staff, OS
+ATTENTION: Mr. Pennington
+SUBJECT: Transfer and Quartering arrangements for AEASPIC
+
+1. This is to confirm a discussion between Mr. Fred Kirkpatrick, SR/DOB and your office regarding transfer and quartering arrangements for AEASPIC, David Durvard (a), and the interest expressed by Dr. Lester Houck of Africa Division re acquiring AEASPIC as a long term asset for that division.
+
+2. In compliance with a request made of this office by Africa Division, it is understood your office has agreed to the temporary quartering of AEASPIC in a furnished safe apartment located at apartment 307, 5741 Colorado Avenue, N. W., Washington, D.C. This office, with your concurrence, has agreed to lend the use of this apartment for a period of about two weeks, effective 28 September 1960. At present AEASPIC is visited once a week and/or as the need arises. AEASPIC has his own salary for food and public transportation. The same cover arrangements exists under this arrangement as existed when Subject lived at 925 25th Street, N. W., in his own apartment. The cover arrangement is that David Durvard (a) is a technical associate of Fred K. Komer (a) (i.e. an SR/DOB case officer) self-employed, manufacturers commissioned representative.
+
+MICHAEL RAE
+Chief, SR/DOB
+
+30 SEPTEMBER 1960

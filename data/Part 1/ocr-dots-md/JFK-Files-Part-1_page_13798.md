@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_13798.png
+
+Convert to Markdown...3.--
+
+107-
+
+Entrega.- al contestacion fuera.- 111-
+
+112-
+
+Entrada.- 1716 hrs.- DOLORES DE LA NORA saluda a ROGELIO y pregunta por FERNANDO ROA o por VEGA. ROGELIO que hoy se fue VEGA y pregunta que on do su vida. DOLORES dice que ella está en el exilio y que desde en Jalisco tres meses y acaba de - regresar, pues alta en Guadalajara está ayudando en la Campaña del Gobernador. ROGELIO que llame a FERNANDO ROA mas tarde como a las seis. DOLORES que esta bien y pregunta que sabe de LUIS. ROGELIO que hace tiempo que no sabe de el nada. DOLORES porque ese ya amerita un rompimiento de relaciones diplomáticas.- risas. ROGELIO la invita a tomar un café. DOLORES lo llamara el domingo para ponerse de acuerdo o sea que a las doce le llama y ver si salen juntos. ROGELIO que esta bien porque el esta de soltero. DOLORES podría invitarlo hoy pero tiene que ir al periódico El Día a poder una disipula porque hace mucho que no escribo para este diario. ROGELIO que esta bien.- 131-
+
+132-
+
+Entrada.-1753 hrs.- NORBERTO saluda a JORRIN y pregunta si lo llegó algo. Este dice que no que esta pendiente lo de la visa pero que llame mas tarde como a las ocho. NORBERTO que esta bien porque el de todos modos se va el domingo y quiere pasar a la Embajada para vor lo de las dos revistas que se quiero llevar. JORRIN que esta bien.- 140-
+
+141-
+
+Entrada.- MF por DOMENECH. JORRIN dice que ya salio hace rato.- 132-
+
+143-
+
+Entrada.- MF doctora SANCHEZ MORA por el numero del telefono de PATRICIA SINORES porque es quien esta curando a su hijo. DERTA dice que es el 11-21-79.-151- (...3.-L31- 19 nov.64) 0 el 14-37-89 ---

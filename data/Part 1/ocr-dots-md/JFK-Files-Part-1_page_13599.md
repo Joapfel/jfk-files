@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_13599.png
+
+Convert to MarkdownSECRET
+
+22 December 1961
+
+MEMORANDUM FOR THE FILE:
+
+FROM:
+
+SUBJECT: Rogelio RODRIGUEZ Lopez P-
+
+1. On 2 October 1961 Lic. Humberto ROMERO, private Secretary to President Adolfo LOPEZ Mateos told me that the President was very concerned about a Cuban "from the Cuban Embassy" who spends considerable time at the U.N.A.M. working amongst students there. ROMERO did not name.
+
+2. I asked SHYROCK who said this was probably Rogelio RODRIGUEZ Lopez. The attached concerns ROGELIO RODRIGUEZ Lopez.
+
+3. SHYROCK told me that as of 16 October 1961 Tex would put Rogelio RODRIGUEZ Lopez under surveillance; but, as of 22 December 1961, I have received nothing.
+
+Distribution:
+
+Orig w/att - Rogelio RODRIGUEZ Lopez P-
+I - LITENSOR P-
+I - Cuban Embassy Activities
+I - U.N.A.M.
+I - Humberto ROMERO P-
+
+SECRET

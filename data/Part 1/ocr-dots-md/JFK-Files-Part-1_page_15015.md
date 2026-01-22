@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_15015.png
+
+Convert to MarkdownSECRET
+
+-3-
+
+Case Officer said that his legend should be sufficient to satisfy any further inquiries he might run into. Subject asked what Case Officer's plans were for going to work and finding a place to live and asked what Case Officer's help would consist of. Case Officer told him that he would find his own employment and that since he would not know whether Subject should or would want to commit himself to a long term lease on an apartment, that Case Officer would probably recommend that Subject be given a couple of thousands of marks as a resettlement sum. This could be used by Subject at any time and in any way he sees fit but would eliminate the need for him to return to Case Officer for help towards an apartment, etc. Case Officer said his goal was to legalize Subject's case so that there would be no need for him in the future to come to us for help.
+
+Subject asked just how good the legalization would be, would he be able to go to other countries and if not, then the exercise is a waste of time. Case Officer feels that the reason for Subject's question is that he would probably attempt to immigrate to the U.S. sometime in the future. Also he claimed that he brought up the question only to find out if he could go to other countries on a visitors visa if he makes contact with a firm that would require him to do so in the course of his duties. Case Officer told him that he would investigate these problems in due course but felt that Subject could probably get visitors or tourist permits to all the countries without any difficulty but if he applied for immigration to some country whose investigations require fingerprints and a check of Interpol, Subject would then be in trouble up to his ears (HARVARD has ascertained that Subject is not on file with Interpol but has not told Subject this since we may want to use the threat of being listed with Interpol as a future control.)
+
+SECRET

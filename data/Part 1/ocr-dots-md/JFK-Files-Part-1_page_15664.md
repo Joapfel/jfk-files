@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_15664.png
+
+Convert to Markdown$4,000.00
+
+18 November 1960
+
+PROMISSORY NOTE
+
+On the first day of December 1965 I promise to pay to bearer Four Thousand Dollars ($4,000.00). Value received.
+
+George Franz Reiner
+
+JG1-233477

@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_11786.png
+
+Convert to Markdown13 July 1952
+
+MEMORANDUM FOR: Secretary, Project Review Committee
+
+SUBJECT : Project POGROVELL, Amendment No. 1
+
+1. This will advise you that DD/P approved the above today in the amount of 28,000.
+
+2. This sum is actually a loan to a principal agent at 4% interest per annum, repayment to be effectuated in 8500 monthly installments out of the contract agent's salary with the agency, which amounts to $6,000 per annum.
+
+3. The agent is located in Santiago, Chile. Proper arrangements in connection with the above will be made by CCC and the General Counsel's office. This matter was cleared with the latter prior to approval.
+
+HAKS V. TOFTE
+Acting Chief of Plans
+Office of DD/P
+
+INTich
+
+13 July 1952
+
+Dist:
+
+Original & S: Secretary, PRC
+1 cc: Project Foldar, OD/CO
+1 cc: Misc. Projects Foldar, DD/P
+1 cc: ER
+1 cc: DL/P Chrono
+2 cc: OPC/RI
+
+SECRET
+
+Security Information

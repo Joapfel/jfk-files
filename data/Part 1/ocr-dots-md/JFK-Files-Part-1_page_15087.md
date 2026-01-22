@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_15087.png
+
+Convert to Markdownthe end of second semester, and were graded by the following system:
+
+5 - Otlichno (excellent)
+
+4 - Khorosho (good)
+
+3 - Posredstvenno (satisfactory)
+
+2 - Plokho (bad)
+
+1 - Ochen plokho (very bad)
+
+The first three were passing grades.
+
+In the spring of 1938, I took the final examinations, oral and written, and was issued a diploma. It was a one-page certificate and indicated that I had attended the technicum for 4 years. It listed the grades I had received on the various subjects and showed that I was graduated as an electro-mekhanic.
+
+All graduates were assigned to various places of employment where they had to stay not less than two years. This is a form of repayment for the money which the government spent on their education. I was sent to the MIKHA-TSKHAKAYA M.T.S. which in 1958 was converted into an R.T.S.
+
+## 17. EMPLOYMENT HISTORY:
+
+1938 - 1941 and 1946 - until defection - - Mikha-Tskhakaya M.T.S. (Machine-Tractor Station), later converted into R.T.S. (Repair Technical Station) - Machino-Traktornaya and Remontno-Tekhnicheskaya Stantsiya, respectively. Mikha-Tskhakaya, referred to by the population simply as Tskhakaya, was the rayon center of Tskhakayskiy Rayon being renamed so after the famous Georgian Revolutionary Mikha Tskhakaya (the old name of the town was Akhal-Senaki and Akhal-Senakskiy Rayon, respectively). M. Tskhakaya was one of the organizers of the Georgian Communist Party. The town has now about 10,000 population and is located on the RR line Samtredia-Sukhumi (the main connection between Tbilisi and Moscow) with the junction to Poti, the Black Sea resort. The town is located between two large tributaries of the Rion River: Tsivi and Terakhi Rivers. On the latter, located a few kilometers from Mikha Tskhakaya, is situated a small hydro-power station where I was a part-time employee upon my return from World War II.

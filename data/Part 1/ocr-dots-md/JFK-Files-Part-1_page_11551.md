@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_11551.png
+
+Convert to Markdown14-00000
+
+Lago Atzim
+Laguna Atacu
+GUATEMALA C.A.
+
+No. 40 Niveles de la torre PRIXIMITE, S.A.V.
+Nº. 67 /DNA / 1
+
+Guatemala 10 de deciembre de 1968
+
+Esmera por encima de una bella,
+bordada con el tinterado forral
+y pintado con el tinterado borde,
+del tono azul y verde del solsticio invernal.

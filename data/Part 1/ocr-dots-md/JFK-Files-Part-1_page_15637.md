@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_15637.png
+
+Convert to Markdownwould be wise not to approach him as if he were the problem, but to permit
+him to maintain his posture that he is right and society is wrong. In
+other words we must avoid doing what his mother did to him.
+
+10. Subject has always indulged in a sort of introspection and self-analysis, the purpose of which was to determine how to realize his aspirations. Another aspect of his system of ideals proceeds from the life concept of chivalry which he feels his parents inculcated. This involves the defense and the protection of the oppressed and the weak. It is sort of a Robin Hood concept which he attributes to himself. This chivalrous ideal is active to date. He feels that many people need help and he has always wanted to help others in order to help himself. In other words he is motivated to helping others in order to obtain love and affection. This need for love and affection is probably the most primary of his motives.
+
+11. In respect to the flight of the family from Georgia, Subject feels
+he was too young to understand it. However, he feels he revolted against
+it. His idea is that one must fight, surpass and conquer. As a young boy
+he felt he was much stronger than several million men. This is extremely
+important as regards utilization of his services. First of all he is
+motivated to succeed out of a spirit of revenge, and secondly he is self-
+confidant and optimistic that he will succeed despite the hazards of the
+undertaking. He is like a man who wants to kill an elephant -- all he
+wants from us is a high-powered rifle -- then he feels he would be equal
+to the elephant.
+
+12. Subject also seems to reflect disappointment in his father as a personal ideal. He regards his father as a very independent person, kind but profoundly selfish, but who would nevertheless give you the shirt off his back. His father was fond of the children, loved the whole family and was happy when he saw others happy. However, Subject is convinced that if his father had succeeded, none of the things that happened in his life would have come to pass. He feels that his mother's suicide is a direct consequence of his father's failure to succeed.
+
+13. When his father and sister returned to Georgia, Subject was driven to despair by the breaking-up of the family. The death of his mother and the departure of his father and sister was quite a threat to his security.

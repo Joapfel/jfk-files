@@ -1,0 +1,128 @@
+# JFK-Files-Part-1_page_15589.png
+
+Convert to Markdown14-0000
+
+CLASSIFIED MESSAG
+
+ORIG: J. A. ICHURI
+UNIT: F/A-2
+EXT:
+DATE: 10 MAR 1961
+
+<table>
+   <tr>
+    <td rowspan="3">
+     PRECEDENCE
+    </td>
+    <td colspan="3">
+     ROUTING
+    </td>
+   </tr>
+   <tr>
+    <td>
+     1
+    </td>
+    <td>
+     N/W
+    </td>
+    <td>
+     4
+    </td>
+   </tr>
+   <tr>
+    <td>
+     2
+    </td>
+    <td>
+     S/W
+    </td>
+    <td>
+     5
+    </td>
+   </tr>
+   <tr>
+    <td>
+     3
+    </td>
+    <td>
+     WSW
+    </td>
+    <td>
+     6
+    </td>
+    <td>
+    </td>
+   </tr>
+  </table>
+
+TO : LAFOLVILLE
+
+FROM: DIRECTOR
+
+CONF: C/AF 3
+
+INFO: COP, C/DPD 4, C/C1, C/F1 2,fc/PD 25 48/c 2
+
+<table>
+  <tbody>
+    <tr>
+      <th>DEFERRED</th>
+      <td>10 MAR 61 23</td>
+      <td>11 z</td>
+    </tr>
+    <tr>
+      <th>R ROUTINE</th>
+      <td></td>
+      <th></th>
+    </tr>
+    <tr>
+      <th>PRIORITY</th>
+      <td></td>
+      <th>DGROUP EN</th>
+    </tr>
+    <tr>
+      <th>OPERATIONAL IMMEDIATE</th>
+      <td></td>
+      <th>INITIALS</th>
+    </tr>
+  </tbody>
+</table>
+
+CITE DIR 29127
+
+TO LEOP INFO WIRGUS RYLAT REF: LECP 0957 (IN 15023)
+
+C/S COMMENT: *OFFERED WIROGUE JOB ADMINISTRATOR & PILOT AND MECHANIC INSTRUCTORS WITH RANK OF MAJOR IN CONGOLESE ARMY.
+
+1. REF RECD AFTER WIROGUE MAD TO SIGN CONTRACT. RESUME HE NOW IS HIS JOB.
+WHAT IS HIS SALARY? IF LANCE REDUCES CONTROL ELEMENT. ALTHOUGH DO NOT DUST
+WINE E G.M. HULLEY JOB AND CHARGE LANCE NEED FOR A TREE OF INSTRUCTORS HVE SERIOUS
+RESERVATIONS BE PERMITTING WIROGUE RESUME POSITION WHICH WOULD AT IL LEAVELS OR
+MANIPULATING LARGE SUMS OF MONE Y WITH TREASURER SLIGHT PROVISIONS TO ADD ON
+HIS ACTIVITIES. AS YOU CAN SEE THIS VIEW SUPPORTED BY WIROGUE'S PROPHECY FOR
+FINANCIAL ISHARING MUST ON AT LEAST BUSINESS. FOR THIS REASON IT MIGHT BE NISE
+TO THE OFFICER OUT OF JOBS SOON AS POSSIBLE.
+
+2. IN INTERIM WE BELIEVE HE IS GAIN INVOLVED FOR US AND TALK CIVIL IN
+PILOT INSTRUCTORS AND MECHANICS U.B. BE RECRUITED BY US IN THIRTY DAYS IF NEEDED.
+SHARON PREPARING BE DIFFERENT I.N. ALLAY BETWEEN WHAT COLEGUE WILLING TO
+PAY NO PENCE STAND RUS.
+
+3. KURTOT PREPARING DOCUMENTATION BACKSTOPLING WIRGUE'S STORY. WILL FOUCHT
+DOCUMENT.
+
+END OF MESSAGE.
+
+LDP (P.12) - TOD (Para. 3)
+C.Y. ten by phone C. Calendar by phone
+
+COORDINATING OFFICERS:
+
+RELEASED OFFICE
+
+LESTER C. HOUCK, C/F/W
+AUTHENTICATING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

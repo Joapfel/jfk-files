@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_15783.png
+
+Convert to Markdown12.05.67
+
+1 June 1949
+
+DEBTors:
+
+The Washington, D. C.)
+
+On 16 May 1949, the Subject's name was searched through the files of State's Mercantile Agency, incorporated, 1115 N Street, Northwest, by Special Agent Albert J. M., and revealed a credit report dated 22 January 1949, which reflects the following:
+
+Name Mrs. Virginia O. Mc
+
+Age About 15 - 50
+
+Marital Status: Separated (no details)
+
+Residence: 2520 K Street, Northwest (Potomac House Apartment) since 1938
+
+Former Residence: 3210 Mountair Avenue; Northwest
+2500 K Street, Northwest
+
+Previous Employment: from about 1-February 1945 to about 31
+January 1957 employed by Gelman Construction Company, Resident Building, as a resident agent at $150.00 per month, plus apartments.
+
+On 17 May 1949, the files of the Credit Bureau, Incorporated,
+222 (6th Street, Northwest), were searched in the name of the Subject
+and reflected the following information on one william E. ____, and
+spouse, as one Virginia Me______.
+
+The date of the most recent credit report was 10 June 1948, which
+reflected subject's age as 37, last address as 901 16th Street, North-
+west, with one year renting from a, UMBL. Subject's spouse's
+employment was listed as Diamond Cab Company as a driver for two
+months, at about $10.00 per week. Subjects spouse was previously
+employed with the Austin Tobacco Company in South Carolina. Subject's
+employment was listed as busig at Apartment Home #1607 at 1600 16th
+Street, at a cigarette operator since April 1947 at $100.00 per
+month. Subject has three naturalizations as aaliens, with a high credit
+of $30.00, and times said to be a citizen in South Carolina.
+
+This file contained additional information in regard to
+the subject.

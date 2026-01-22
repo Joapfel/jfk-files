@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_13169.png
+
+Convert to Markdown14-0000
+
+<table><tr><td colspan="3">MESSAGE FORM<br/>TOTAL COPIES: 5</td></tr><tr><td colspan="2">SECRET</td><td></td></tr><tr><td>AUDITOR</td><td>GARDENER</td><td></td></tr></table>
+
+<table><tr><td>ADMITTANCE INFORMATION</td><td>☐ INDEX ☐ BARRIER ☐ AGE ☑</td><td>[REDACTED]</td></tr><tr><td>BY [REDACTED] PER [REDACTED]</td><td>☐ NO INDEX ☐ FILE IN CS FILE NO.</td><td>[REDACTED]</td></tr><tr><td>COMP [REDACTED]</td><td>☐ RID COPY ☐ ENFO: FILE VI.</td><td></td></tr></table>
+
+[REDACTED]
+
+DATE AND TIME (UTC)
+
+DATE and TIME (ID)
+
+REFERENCE NUMBER
+
+CITE DIRECTOR
+
+99469
+
+THEFT AND DISPOSAL OF DEMOLITION AND OTHER SABOTAGE DEVICES UNIQUE TO WOFIRM BECAUSE OF POTENTIAL HARM OF THESE ACTIVITIES TO WOFIRM. ALSO BELIEVE STATION SHOULD ATTEMPT ASCERTAIN WHETHER HE FEELS PAST ILLEGAL ACTIVITIES OR ASSOCIATIONS WITH GANGSTER ELEMENTS MAKE HIM VULNERABLE TO BLACKMAIL.
+
+2. HOS PREPARED CONSIDER LESS RESTRICTED USE OF AMCLEVE-15 IF SGSWIRL REVEALS NO DECEPTION.
+
+END OF MESSAGE
+
+COORD: CI/OPS/Mr. Hughes F.W. Hughes
+OS/IRD/Mr. Bednar J.B. Belser
+
+WH Comment: Requests permission SGSWIRL AMCLEVE-15, restricting test to points designed determine that he has not, is not, and does not plan engage in activities hostile to WOFIRM.
+
+WILLIAM V. BROE
+C/WHD
+
+LAWRENCE STERNFIELD
+C/WH/3
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+GROUP 1
+Included from automatically generated and user-generated file names
+
+AUTHENTICATING OFFICE
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+COPY N
+
+RELEASING OFFICER

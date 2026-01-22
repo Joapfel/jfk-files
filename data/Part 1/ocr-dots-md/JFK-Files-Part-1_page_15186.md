@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_15186.png
+
+Convert to MarkdownSECRET
+
+24 November 1959
+
+Chief, SR/DCB
+ATTH: Mr. Edward H. Sanner, Jr.
+
+Chief, Safehouse Branch/OL
+
+Safehouse No. 297 - Req. # 59-23 - CCD # SH-143 - SSD # 206920
+
+**Requisition:** Your request for a domestic safehouse (Req. # 59-23) routed to us via the Central Cover Division (CCD # SH-143) has been met by the property and in the manner herein described. Said property to be utilized per requirements set forth in the requisition has been approved by the Office of Security (SSD 206920).
+
+**Property:** A furnished efficiency apartment located at 940 25th Street, N. W.
+Apt. # 202, Washington, D. C.
+
+**Lessor:** John Saefer, Management Co.
+
+**Lessee:** Mr. Powell Browning, Jr., a Security-cleared attorney-at-law with offices located at 3145 N. Street, N. W., Washington, D. C. Office Telephone FE 3-5081. By virtue of a Memorandum of Agreement, exclusive rights of tenancy has been assigned to the Agency. Accordingly, Mr. Browning is the nominal lessee while indirectly the Agency is the actual lessee and responsible for full and strict compliance with the terms of the lease. Questions or problems involving relationships of the lessee cut-out and the lessor, neighbors, police, etc. will be handled through the lessee cut-out (Mr. Browning) acting under the control and direction of the Safehouse Branch.
+
+**Lease:** Original lease is on file in the Safehouse Branch. Terms of the lease are $147.50 per month payable on the 1st day of the month. The lease begins 1 November and runs until 30 June 1960, a period of 8 months.
+
+**Cover Story:** Mr. Powell Browning, the lessee cut-out, has ostensibly leased the apartment in order to assist a foreign client to obtain housing because of the same language difficulty and in his inability to comprehend the provisions of a lease. Mr. Browning has therefore signed the lease in the clients behalf.
+
+**Case Officer:** Mr. Edward H. Sanner, Jr., Ext. 8331.
+
+**Financial Arrangements:** Rent, utilities, and telephone service will be paid by the lessee cut-out, Mr. Browning. Any unusual or abnormal matters properly belonging or chargeable to the lessee should be taken up with and approved by the Safehouse Branch.
+
+Pursuant to the stipulations of R 45-1025, the financial commitments of the lease were approved by the Chief, Real Estate & Construction Division/OL. In compliance with arrangements made between the Controller and the Director of Logistics we have advised the former regarding this acquisition.
+
+Distribution:
+
+Orig. & 1 - Addressee
+
+1 - CCD/NC
+1 - SSD/OS 1 SH File 297
+
+WALTON C. CARROLL
+
+14-00000

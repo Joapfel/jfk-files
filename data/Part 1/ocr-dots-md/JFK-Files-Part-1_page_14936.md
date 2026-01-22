@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_14936.png
+
+Convert to MarkdownSECRET
+
+TO: Bpar C. E. Push
+FROM: F1/D
+The reply on your Green List request:
+
+| Number | Name |
+|---|---|
+| 6277 | TZTIZIC VV, David |
+
+was completed and forwarded to OI/CA.
+
+11 SEP 1958
+
+SECRET
+
+LH-233477

@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_15071.png
+
+Convert to MarkdownMemo for the Record
+
+28 August 1962
+
+CO and Al. Pa. Jeff met with Geo. L. to discuss the Wirogue situation and to inform him what was being done or planned for Wirogue's resettlement.
+
+Al reviewed the situation as it now stood and explained that Edqrris proposed that Subject be issued a backstopped Premiempass was completely unsatisfactory since it would not stand up under anything but the best casual investigation. It was exp lained that Camp King had been Affraised// informed of only the necessary details of Wirogue's problem and had agreed that the approach should be cover story making Rogue a recent defector, an interview and political recognition. Geo. L agreed that this seemed to be the proper step and gave us the go ahead.
+
+CO suggested that we have AFRF make official inquiry at the various SA Embassyssand Consulates for detailed material giving immigration requirements. This is deemed necessary because the information is not normally given out over the phone and Rogue can be trusted to give CO only that information which will serve his purpose. He is not above telling us that an immigrant musthave $5000.00 to be considered,etc. It is very important that Rogue have the right answers when he applies and is interviewed for Immigration. Geo. L agreed to CO's suggestions and proposed that CO have AFRF get started on this project soonest.
+
+Wirogue was taken to Camp King where he was let briefed on his story and then successfully interviewed. It is possible that Rogue will be completely documented within 2 or 3 weeks.
+
+30 August
+CO met with Gus E and Jack R and told them we were in need of detailed immigration requirements.
+
+They agreed to get out an official inquiry to all the consulates and Embassys and attempt to find out the so lowings.
+
+What documents are needed
+
+What professions are indemand
+
+How long is required for immigration processing
+
+Does the immigrant need a certain amount of funds
+
+Is a sponsor necessary or helpful
+
+That is the residence requirement for citizenship
+
+That are the quota restrictions
+
+Are there SA government agencies or private agencies who will help the Immigrant get started etc?
+
+Note: Rogue has already told CO that he cannot go to Argentina because he has "friends" there who would kindly turn him in to the authorities or make trouble for him in any way they could. Rogue prefers Venezuela if he has a choice.

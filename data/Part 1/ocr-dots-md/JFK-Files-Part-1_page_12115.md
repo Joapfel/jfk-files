@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_12115.png
+
+Convert to MarkdownSECRET
+
+PREPARED BY: Rita N. TOLJANIC
+DATE: 3 October 1967
+201-NUMBER: 201-779495
+A NUMBER: A 41970
+
+1. NAME: Ivan Dmitriyevich OBYEDKOV
+
+2. DPOB: 27 August 1927 or 19 July 1927 in Ryazan
+
+3. CITIZENSHIP AND PASSPORT DATA:
+
+a. USSR
+
+b. Service passport S009260, used while Subject was in Mexico
+
+c. Service passport S105042, issued 26 May 1967
+
+6. CURRENT POSITION:
+
+Guard in the Soviet Embassy, Tehran
+
+7. RELATIVES:
+
+c. spouse - Yelena Lvovna possibly nee DMITRIYEVA, born 1928 in Moscow. She traveled to Mexico on Service passport S009270. She served as the director of the Soviet Primary School in Mexico City and ran the summer camp in Cuernavaca.
+
+d. children - a son, Vladimir Ivanovich, born 1953.
+
+e. Boris Lvovich DMETRIYEV and Mariya Borisovna DMITRIYEVA, who are probably wife's brother and sister-in-law. During Subject's stay in Mexico they occupied Subject's apartment in Moscow, given as Moscow E-143, Metrogorodok, Otkrytoye Shosse 26, Building 7, Apartment 69, telephone G3-72-34.
+
+SECRET
+
+<table><tr><td>GROUP I<br/>Excluded from mission<br/>Integration and<br/>Discipline Areas</td></tr></table>

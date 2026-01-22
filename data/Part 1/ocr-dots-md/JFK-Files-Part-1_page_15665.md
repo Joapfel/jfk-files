@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_15665.png
+
+Convert to MarkdownSECRET
+(WHEN FILLED IN)
+STATEMENT of EARNINGS and DEDUCTIONS
+
+<table><thead><tr><th>NAME</th><th>ROLL NUMBER</th><th>PAY PERIOD DATE</th><th>ALLOTMENT</th><th>STA. NO.</th></tr></thead><tbody><tr><td>JOHN CRIMAN, ST.</td><td>25-1</td><td>07/01 - 17-1</td><td>1983-2-15017</td><td>511</td></tr><tr><td colspan="5">LEGEND of ACTION CODES</td></tr><tr><td colspan="5"><strong>1. Promotions</strong></td></tr><tr><td colspan="5"><strong>2. Periodic Step Increase</strong></td></tr><tr><td colspan="5"><strong>3. Field Allotment</strong></td></tr><tr><td colspan="5"><strong>4. Salary Differential</strong></td></tr><tr><td colspan="5"><strong>5. Leave Without Pay</strong></td></tr><tr><td colspan="5"><strong>6. Hospital, Insurance, Credit Union</strong></td></tr><tr><td colspan="5"><strong>7. Overpayment</strong></td></tr><tr><td colspan="5"><strong>8. Tax Deduction Change</strong></td></tr><tr><td colspan="5"><strong>9. Allowances</strong></td></tr><tr><td colspan="5"><strong>10.</strong></td></tr><tr><th colspan="5" style="text-align:center;">PAYMENTS and/or REFUND DUE</th></tr><tr><th colspan="5" style="text-align:center;">DESCRIPTION</th></tr><tr><td colspan="5">500.00 12-17-83</td></tr><tr><td colspan="5">500.00 12-17-83</td></tr><tr><td colspan="5">500.00 12-17-83</td></tr><tr><th colspan="5" style="text-align:center;">ACTION DATA</th></tr><tr><th>EFFECTIVE DATE</th><th>CO. DE.</th><th>EFFECTIVE DATE</th><th>CO. DE.</th><th>ADDL. COMP.</th></tr><tr><td>DAY</td><td>NO.</td><td>Y</td><td></td><td>C/F</td><td>S/D</td></tr><tr><td>DAY</td><td>NO.</td><td>Y</td><td></td><td>C/F</td><td>S/D</td></tr><tr><td colspan="5"></td></tr><tr><td colspan="3">1500.00</td><td colspan="2">1500.00</td></tr><tr><th colspan="5" style="text-align:center;">NET PAY</th></tr><tr><td colspan="5">PD. or HOQTS.</td></tr><tr><th colspan="5" style="text-align:center;">TOTALS</th></tr></tbody></table>
+
+SECRET (30)

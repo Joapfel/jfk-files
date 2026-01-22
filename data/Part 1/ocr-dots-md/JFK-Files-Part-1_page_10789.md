@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_10789.png
+
+Convert to MarkdownSECRET
+
+OTA1987
+
+FEB 24 1970
+
+**SUBJECT:** Activities of the dissident faction of the Cuban Christian Democratic Movement in Exile (MDC).
+
+**ADDRESS:** E-10 (personal knowledge)
+
+* A. OTA-1942, 9 February 1970
+* B. OTA-1778, 5 December 1969.
+* C. OTA-1757, 1 December 1969
+* D. OTA-1726, 12 November 1969
+* E. OTA-1670, 27 October 1969
+* F. OTA-1520, 30 September 1969
+
+1. The following information was obtained by E-10 at a meeting held by the dissident faction of the Cuban Christian Democratic Movement in Exile (MDC) on 22 February 1970. This meeting was held in a house located on Fifth Street between 11th and 12th Avenues, Miami, Florida. The following persons were among those who attended the meetings: Angel HERNANDEZ Rojo, aka "Baby," Marcos RODRIGUEZ Menendez; Mario RODRIGUEZ Menendez; Juan Bentista MARQUEZ Hernandez and Diego VARONA Abdala.
+
+2. According to E-10, it was agreed at the meeting to ask FECE (Cuban Representation in Exile) to join the dissident faction of the MDC which is better prepared to fight Fidel CASTRO Bus because it is trusted and assisted by other anti-Castro groups in exile.
+
+3. It was also agreed at the meeting to appoint Marcos RODRIGUEZ Menendez as political chief of the organisation and to have him meet with Ernesto GARCIA Varona for the purpose of discussing with him the agreements reached by the group.
+
+4. Marcos RODRIGUEZ Menendez and Angel HERNANDEZ Rojo, aka "Baby," instructed Francisco Gutiérrez Pastrana, aka "Equipo NEGRIN" and/or "Peque GUZMAN," to join Rolando ARAYAS Rojas' group and to obtain information. This decision was supported by all the persons who attended the meeting.

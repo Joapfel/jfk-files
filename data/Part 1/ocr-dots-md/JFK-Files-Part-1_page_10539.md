@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_10539.png
+
+Convert to MarkdownS-E-C-2-E-T NO FOREIGN DISSESS
+
+-2-
+
+CS-311/02024-68
+
+cooperation, could use Costa Rican soil as a staging area for an invasion of Haiti, to overthrow President Francois Duvalier. If successful, Masferrer and his Haitian concords would then supply funds and armament to Starke for his projected move against the Trejos government.
+
+3. Melo later informed Ouber that he was planning to go to New York City on 21 February, ostensibly to visit members of his family. However, the true purpose of his visit is to talk with Masferrer and Father Diego Kamel Abilio Nadrigal Alvarez, the priest who has represented Masferrer in the negotiations, through Melo, with Starke. Melo has been commissioned by Starke to ascertain the quantity and source of arms that the Masferrer group will make available to Starke if the group succeeds in overthrusting Duvalier. Melo also is to find out what other assistance the Masferrer group will provide to Starke, how many Haitian and Cuban exiles Masferrer will send to Costa Rica, and when they will arrive.
+
+4. Melo said that a Costa Rican visa already has been obtained for Jacques Moringlane, a Haitian, who will be the first of the group of Haitian and Cuban exiles to come to Costa Rica to set up their staging area. Moringlane's visa was obtained by Starke through Rodrigo Arauza Bonilla, who until recently was the chief clerk (official sеньor) of the Ministry of Public Security.
+
+5. (Field Comment: Melo has the reputation locally of being an inveterate intriguer and a braggart. Therefore, his veracity is open to question. It is possible that the information he has given to Ouber is to some extent exaggerated or distorted. It is also possible that Starke will find Melo to be a less than trustworthy intermediary.)
+
+6. Field Dissem: State Army CINCSCC... (Also sent Managua and Port-au-Prince).
+
+7. (Headquarters Comment: An official Costa Rican Service reported on 23 February 1968 that Fernando Melo Fontanila, left San Jose for Miami and New York on 21 February 1968 via LACSA flight 620.)

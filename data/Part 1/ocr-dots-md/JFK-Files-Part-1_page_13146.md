@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_13146.png
+
+Convert to MarkdownSECRET
+
+Some organization ( I do not know the name) has already sent telegrams. FRASTO can be of great assistance to us.
+
+When you send the telegram, do not mention me by name. Word it something like this * Greetings from our fellow countryman, who is fighting beside us* or words to that effect.
+
+My telephone is 321506
+
+Regards to all your friends.
+
+Juan Pasid
+
+SECRET

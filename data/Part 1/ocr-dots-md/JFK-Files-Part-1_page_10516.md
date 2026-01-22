@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_10516.png
+
+Convert to MarkdownTo the 17th Japan Three directory are located at 64-3 Chome, Tamatsu-cho, Ehime, Liento-in, Tokyo. Telephone 59-160.
+
+It should be noted that this is the same address listed for subject and the PFLS AESCIAI-LUENTi-PHABis in the preceding year, but there is a change in the telephone exchange.
+
+1966:
+
+On 23 January 1966, Subject departed by air from Hametsu Airport, Tokyo, and arrived in Enomoto on February 18 was transferred from a source believed to be reliable that subject was going to Korea as the Seoul Resident Representative of the American-owned firm of Clagetti-Halas Company, Inc., which has its home office at 25 California Street in San Francisco, California, and maintains an office in Seoul in the Zando Hotel. Subject currently represents the William James PHIL., a British National, in his post. The capital stock of Clagetti-Halas Company, Inc., is controlled by Wordsworth Classen Cooks, Juning, and Richard Williams James CHILD, both Americans citizens, who are also the principal controlling stockholders and officers of the BALCL TRAILEING COMPANY, which has its main offices in the Fudousa Building, 2-Uuhedai-dno, J-Chome, Chiyoda-da, Tokyo, Japan, but also has branches in Seoul and Pusan, Korea. BALCL TRAILEING COMPANY also controls another subsidiary firm known as Allied Distributors, Incorporated, with which firm Thomas Robert KICK also heads YABUTI has been affiliated for a number of years.

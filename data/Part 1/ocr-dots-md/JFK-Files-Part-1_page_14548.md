@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_14548.png
+
+Convert to Markdown# SECRET
+
+Guillermo RUIZ Pérez
+
+DOB : Late January or early February 1930.
+
+POST: Minister Plenipotentiary, accredited
+since 12 December 1967.
+
+ADDRESS: Juan de Mena #8, Madrid.
+
+TELEPHONES: 259-5956 (home), 221-7028 (office).
+
+DOI : March 1970.
+
+WIFE: Nilda VECIANA. Probably in her early thirties,
+she is pregnant and was due to have her sixth child
+in May 1970. However, her physician recommended
+forced labor ( reasons unknown), which was scheduled
+for 17 April 1970. She has had difficulties with
+her pregnancy because of recurring fainting spells
+and overweight, which are being treated by Dr. HER-
+NANDEZ and Dr. MATA ( the latter ordered lab tests
+for Diabetes, the results of which are unknown).
+
+Married for 16 years to Guillermo, Nilda is a pleasant woman who has not been known to quarrel openly with her husband or express political or religious opinions, although in this last respect she has recited the Lord's Prayer in front of Embassy personnel, which suggests that she may have been or is a practicing Catholic.
+
+Mrs. Ruiz is a language teacher by profession (speaks English fluently), and is active in the Embassy as secretary to her husband and book-keeper, but only on an informal basis.
+
+Of rather weak personality / Exception,
+see Attachment II; she was upset at the time_7,
+which is reflected in the way that she handles
+her five boys--"little beasts," according to
+Severina ORTIZ, the maid~, Mrs. Ruiz does not
+permit them to be punished severely and is always
+complaining that she does not spend sufficient
+time with them.
+
+SECRET

@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_10571.png
+
+Convert to MarkdownPODEMOS GANAR SOLOS LA GUERRA?
+
+Yo creo que sí, pero ese no es el tema del artículo. Lo que sí creo es que los cubanos no estamos haciendo todo lo necesario para ganar. En efecto, podemos formar un ejército invasor de 25,000 cubanos bien odiestrados y apertrechados, adquiriendo armas, aviones y barcos para desembarcar por distintos puntos extrátégicos, al mismo tiempo que la resistencia interna inicie en toda la isla una campaña de sabotaje que propicie el triunfo.
+
+Eso lo podemos hacer sin la ayuda de nodie, nos bostan nuestros hombres y nuestro dinero.
+
+Si para entonces, Rusia ha retirado sus tropas de la isla, el triunfo será clamoroso y rápido, pero de lo contrario, a la América Libre y a las Estados Unidos, no le quedará otra alternativa que apoyar nuestro guerra justo y necesaria.
+
+La iniciativo asumida por los propios cubanos, descarta la posibilidad de una guerra internacional, que es el único valladar que hasta ahora, se ha opuesto a las determinaciones de la OEA y de Washington.
+
+Se necesita mucho sacrificio por parte de los cubanos optos para la guerra y de los adinerados, porque ellos son los que tienen que dar vida yucienda por la independencia de la patria y la felicidad de las generaciones futuras.
+
+Ambos sacrificios están ocreditados por nuestros antepasados: Carlos Manuel de Céspedes, Antonio Maceo, Francisco V. Aguilera, Ignacio Agronte, y un pueblo entero, Bayamo, y otro pueblo, Guáimaro, ordieron para iluminar el camino de la libertad, a lo que infinidad de cubanos ofrendaron vidas y fortunas en aras de la independencia.
+
+Estamos incurriendo en las mismas privaciones, en identicos sacrificios, en iguales inmolaciones y ejemplos nobles, porque estamos defendiendo la misma causa sagrado.
+
+Hoy que hacer conciencia de guerra, conciencia de sacrificio. No importa quien ha de dirigir la guerra, que a la patria se sirve desde cualquier lugar.
+
+El triunfo no será de los jefes, sino de todos los que participemos en la lucha; todos tenemos que trabajar: la hora es de sacrificios y renunciamientos. A lo único que no podemos renunciar es a pelear por Cuba y morir por ella.
+
+La patria es ara y no pedestal; es agonía y deber, dijo el Apóstol, y murió en Dos Ríos.
+
+CUBA EN EL EXILIÓ
+
+Por CRISO.
+
+Hay 10 mil bolguineros en Estados Unidos. La mayor parte exiliadas. Aunque abundan los emigrados que no muestran interés alguno en vengar odrevias ni reconquistar su pérdida dignidad de hombres.
+
+10 mil hombres y mujeres en pie, poniendo cada día su grano de arena en el edificio de la libertad, podrían hacer mucho. Pero los comecheques que haserto aquí dirigían la organización del término en el ciestario, ni se reuniran, ni liganaban armas ni dinero, ni hecían una publicación, ni movilizaban a nadie en actos patrióticos. Esa sí, algunos vi vo's recibían su cheque de la CIA por debajo de la mesa. Y a yantar. Su consigna: "tu no comedes. Yo sí comedes..."
+
+En la asamblea en cue obtuvieron 16 votos y fueron echados de la organización del municipio por sometidos a la política de especificamente y convivencia de E. U. con Castro, los "chivos" llizaron como cuopitos a algunos soplones de la CIA con sus putillas al cinto...
+
+Entre ellos, un chiquito hijo de españoles de apellido Ugomencía que hace poco encima por los portales de Holcán vestido de miliciano metiéndole miedo a las gentes y mostrando orondo, su carnet del G-2.
+
+¡Jesús, que miedo!.!
+
+Rumores circulantes al cierre de esta edición del boletín de la gente de La Chomba afirman que le "contaron el tupo del pataje" el incluido picuo Luis Conte Aguero, el hombre que colaudó el cesinete de su hermana Rocío en Santiago de Cuba y manos de la "mafia" castroita

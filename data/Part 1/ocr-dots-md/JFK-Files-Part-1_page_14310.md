@@ -1,0 +1,6 @@
+# JFK-Files-Part-1_page_14310.png
+
+Convert to MarkdownSECRET
+(When Piled In)
+
+<table><thead><tr><th colspan="6">DOCUMENT TRANSFER AND CROSS-REFERENCE</th></tr><tr><td colspan="3">SUBJECT OF DOCUMENT</td><td colspan="3">DOCUMENT IDENTIFICATION</td></tr><tr><td>RI FILE NO.</td><td colspan="2"></td><td colspan="3"></td></tr><tr><td>DISPATCH OR SOURCE DOC. SYMBOL NO.</td><td colspan="2"></td><td colspan="3"></td></tr><tr><td>SOURCE CRYPTOVM</td><td>DATE OF INFO.</td><td>EVALUATION</td><td colspan="3"></td></tr><tr><td>ANALYST</td><td>B. DATE PROCESSED</td><td>OBSERVED IN</td><td colspan="3"></td></tr><tr><td colspan="5">DOCUMENT DISPOSITION</td><td>PENTIMENT INFORMATION</td></tr><tr><td>CROSS REFERENCED TO THIS FILE</td><td colspan="3"></td><td>TRANSFERRED TO<br/>RI FILE NO.</td><td></td></tr></thead><tbody><tr><td>RUIZ PEREZ, ORESTES GUILLERMO<br/>201-735296<br/>SEX M DOB ?<br/><br/>CIT CUBA<br/>OCC ?<br/>IDENTIFIED BY SUBJECT OF 201-749651</td><td colspan="3"></td><td>201-749651<br/>UFAA-02925401<br/>19 APR 71<br/>P3<br/><br/>FILE IN 201-735296</td><td>R 7105030375</td></tr><tr><td colspan="6">FILE THIS FORM IN FILE NO.</td></tr></tbody></table>

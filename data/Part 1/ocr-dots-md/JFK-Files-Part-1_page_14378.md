@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_14378.png
+
+Convert to Markdown18 June 1970
+
+Report No.345(continued)
+
+Ruiz and Nilda are alone and are talking about when they can leave Spain. Ruiz wants here to go on Iberia, but Nilda says she doesn't want to go separately. If he goes on Cuba, she will go with him. Nilda speaks of the 18th of July fiesta, and says that the Minister has been so nice to him that he shouldn't miss this Spanish holiday. They then discuss leaving for Havana on the 20th or 21st of July.

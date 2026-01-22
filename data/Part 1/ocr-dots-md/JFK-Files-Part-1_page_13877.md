@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_13877.png
+
+Convert to MarkdownSECRET
+
+28 April 1964
+
+Momo to the files.
+
+Cuban Lienvoy—Values identifications
+
+1. R-579 Bully can solve a real section from M-11 L-36, 9 April 1964, containing conversation at RF 34, between Ricardo (Inu) and Rogelio Rodriguez. It was thought Ricardo may be the post-box serviceman used by the opposition in the Airad op.
+
+This speaker seems to be a Mexican.
+
+TGURquhart
+
+y36.5

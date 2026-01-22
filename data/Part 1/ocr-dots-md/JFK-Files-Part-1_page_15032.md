@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_15032.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+REPORT ON CONTACT WITH AGENT OR DEFECTOR
+
+SUBJECT: WIROGUE
+DATE: 13 March 1963
+TIME: 1100
+PLACE: Kuhwaldstr.
+
+Orme A. Jaronnat, Case Officer
+
+COMMENTS: CO dropped in to see Subject and paid him two weeks subsistence.
+CO told Subject that there were two major hurdles to his immigration
+to Columbia. 1. ICE would require that he be thoroughly interviewed
+and tested to establish just what his technical qualifications are.
+It would, therefore, be necessary that we be careful to build his work
+history around *work* which he not only could have been doing in the
+Soviet Union, but in which he could pass a practical examination and
+which the South American country needs and desires. Subject said that
+if his legend included schooling in electro-mechanical fields with the
+major portion of his work experience in development and improvement
+of devices and processes he could in fact pass any *left* practical test
+and subsequent interview.
+
+2. We must assume that he is listed with INTERFOL since
+the French would almost automatically inform other European countries
+of Subject's disappearance from France. Subject agreed that this was
+a major problem but one that he could not help with.
+
+Subject has resigned himself to being processed as a
+regular immigrant and has said that he will do whatever we require.

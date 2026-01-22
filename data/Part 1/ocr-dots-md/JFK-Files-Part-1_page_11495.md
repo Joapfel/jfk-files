@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_11495.png
+
+Convert to Markdown25 April,1969
+
+CONTRACT REPORT
+
+1. Agent: LIRING/3
+
+2. Date & Site of Meeting: 1000, 25/4/69; Casino Real Restaurant.
+
+3. Next Meeting: 1000, 28/4/69; Bobbin Restaurant.
+
+4. Reports/Information Given by Agent:
+
+LIRING/3 reported to Rowton that he went to Guernavaca early on the morning of 22/4/69 alone, since Iden B back out of the trip at the last minute, saying he had to remain in Mexico City. LIRING/3, however, was able to talk to the Director of the Art Gallery of Iden F himself and arranged an ex-position for 7 June, 1969.
+
+LIRING/3 continued to Rowton that when he returned home late that same night he found a note from his wife informing him that she had gone out to telephone long distance and would not be back until late that night. When she returned she informed him that she had received a telegram informing her that her father had died at 2030 on the previous evening (21/4/69) and that she had been attempting to telephone her mother in FBKUMEN but had not been able to get through.
+
+LIRING/3 continued that his father-in-law was buried on 24/4/69 and that his wife was still in a state of depression and grief, especially since she had been unable to see her father before his death or attend the funeral.
+
+LIRING/3 also reported that at about 1030 on 23/4/69 a Guatemalan, aged about 25, poorly dressed and somewhat resembling Carlos Vega, had appeared unannounced at his apartment with a small piece of paper on which were written LIRING/3's name and address. He introduced himself without name simply as a "friend of the León Barrios brothers from Guatemala City," and asked LIRING/3 to put him up for a few days.
+
+LIRING/3 told Rowton that he agreed after some reluctance, suspecting that this was the person referred to by Mario Mendez ("Rómulo"), although the young Guatemalan did not mention "Rómulo" by name. LIRING/3 told Rowton that before promising to put the Guatemalan up, he commented to him that although he had a great deal of personal respect for the León Barrios brothers he was disappointed that neither they nor their mother had written to him for the past several months, apparently

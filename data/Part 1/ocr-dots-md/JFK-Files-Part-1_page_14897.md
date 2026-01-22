@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_14897.png
+
+Convert to MarkdownSECRET
+
+DRAFT
+
+11 December 1958
+
+MEMORANDUM FOR: THE RECORD
+
+SUBJECT : David TZITZICHVILI - Red Sox Candidate
+
+1. This is an indirect assessment of the above named individual based on a W-B test administered by a case officer in the field and on a PROQI. Subject apparently is being considered for a two-man mission of relatively short duration. The main questions about him seem to be:
+
+Can he learn to do what will be required? What would be his motivation?
+
+With what sort of person would he get on best in a two-man team? What special problems can be anticipated and avoided in his handling?
+
+2. A brief telephone report was supplied to the headquarters case officer on 10 December 1958. It was stated that Subject possesses adequate intelligence, unusual social skills, and a propensity for getting what he wants without conscience. He is impulsive and surprisingly irrational in satisfying his personal desires. He will appear at first to have leadership skill and interest -- hence will probably just take over leadership of the team. In the long run, however, most persons who would be team-mates would become disenchanted and either reject him or take over themselves. Because of this man's social versatility, impulsiveness and freedom from conscience, he would be particularly difficult to control. That is, it would be difficult to ascertain that he
+
+SECRET,
+
+Jci-233477

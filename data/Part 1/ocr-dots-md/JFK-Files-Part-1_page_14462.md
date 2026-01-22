@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_14462.png
+
+Convert to MarkdownSECRET
+
+OSMA - 20318
+
+5. During their various discussions RUIZ aired his complaint about the Visa Department in Havana saying that the department was practically worthless and that last year 76 cables regarding visas remained unanswered. Sonia defended the Ministry saying that it had a lot of work to do, but RUIZ replied that they wanted to work only 8 hours a day. They also discussed the scholarship situation. It seems that during an interview between PRIeto (Probably Jose PRIeto Benitez, Director of Foreign Relations of the DAP) and the Minister of Public Works, PRIETO was asked to provide a list of scholarship candidates to be considered and he had none. Sonia mentioned that in Belgium they also lost four scholarships because of this same reason.
+
+6. According to QUTIMID Sonia GOMEZ Aragon is married to one Miguel (LNU) and has a daughter named Iliana. Sonia's mother is still living although appeared to be very ill at the time Sonia left for her trip to Madrid because Sonia cabled at least twice to Havana inquiring about the status of her mother's health. (TYLOTE reported that Sonia's home phone number in Havana is 7-4263.) Perhaps Headquarters can determine the full name of her husband by checking the reverse telephone listings. Sonia is attractive, intelligent, serious-minded and reserved. The last time she visited Spain she stayed with Vera BORODOWSKI and was on the same type of mission as the present one - to discuss the Madrid Embassy's work plan. She also visited the Barcelona Consulate and the Cuban Embassy in Lisbon.
+
+Helen B. NOTHERFT
+
+<table><tr><td rowspan="2">FORM<br>9-64<br>'60'</td><td colspan="2">USE PREVIOUS EDITION</td><td>CLASSIFICATION</td><td></td><td>PAGE NO.</td></tr><tr><td>53a</td><td></td><td>SECRET</td><td>[ ] CONTINUED.</td><td>3</td></tr></table>

@@ -1,0 +1,87 @@
+# JFK-Files-Part-1_page_15928.png
+
+Convert to MarkdownSECRET
+
+Case Name
+
+WIROGUE
+
+Action Taken
+
+HARVARD with the assist-
+ance of Stage I is attempt-
+ing to work up a suitable
+legend for use in immi-
+gration to South America
+consistent with Subject's
+political recognition
+interview.
+
+IDEN-264
+
+Subject has found work on
+the local economy at DM 500
+monthly. She will continue
+to stay in HARVARD housing
+until her visa is issued
+and immigration can take
+place.
+
+B. Received During Reporting Period:
+
+---
+
+IDEN-272*
+
+Profession: Tool Designer
+Rec'd by HARVARD: 21 May
+1963
+From: Vienna Station
+Nationality: Hungarian
+Age: 27
+No. of Deps: 0
+Resettlement Officer:
+Orme K. DARONNAT
+HARVARD Resettlement Aims:
+German Economy
+
+Subject will be processed
+for Aufenthaltserlaubnis
+and registered. He will
+be picked up as a refugee
+case by CAMANTILLA and
+helped to find work and
+housing on the local
+economy.
+
+C. Former Agent Resettlement Cases Requiring HARVARD Action
+
+During The Reporting Period:
+
+AEPOLE-25
+
+HARVARD continues to assist
+Subject in his efforts to
+establish, for West German
+income tax purposes, that
+he has helped contribute
+to the support of his ex-
+wife living in the USSR.
+
+DIO-14
+
+A request was received
+from the State of Maryland
+asking for information on
+Subject, who immigrated
+to the U.S. under PL-110
+in January 1956. Since
+all of Subject's records
+were transferred with him,
+the inquiry was referred
+to Headquarters in EGOA-
+19903, 28 May 1963.
+
+SECRET
+
+14-00000

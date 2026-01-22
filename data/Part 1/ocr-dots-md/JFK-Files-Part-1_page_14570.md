@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_14570.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+Report No. 2248.
+
+HORACIO calls the telephone company requesting the address for telephone number 201-49-39. The information is denied.
+
+RUIZ calls PILOTO to have him meet RAUL LEON in Barajas that night. RUIZ is unable to do so because of a previous engagement.
+
+FERNANDO calls CURBELO to ask for PUGA's phone number.
+F wants to tell P he cannot meet the professor at P's house that night because he (P) has to take RUIZ somewhere.
+
+SECRET

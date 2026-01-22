@@ -1,0 +1,67 @@
+# JFK-Files-Part-1_page_15430.png
+
+Convert to Markdown14-0000
+
+<table><tr><td>ORIG:</td></tr><tr><td>UNIT:</td></tr><tr><td>EXP:</td></tr><tr><td>DATE:</td></tr></table>
+
+<table border="1"><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>S.E.C.-R-E-T</td><td></td></tr></table>
+
+<table border="1"><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+TO : PRIORITY LEOPOLD/ILLE FRANKFURT
+
+FROM : DIRECTOR
+
+CONF :
+
+INFO :
+
+P A G E
+2
+
+DEFERRED
+
+ROUTINE
+
+CITE DIR : 1 / 1 / 93
+
+TO
+
+INFO
+
+MORE TENABLE.
+
+3X. RECOMMEND BE TOLD OF DANGER HE FACES IN STAYING IN CONGO VIEW
+
+REF A INVESTIGATION AS ADDITIONAL INCENTIVE TO QUIT CONGO FOR GOOD.
+
+4X. LEOP AUTHORIZED CONVERT PROCEEDS OF W CAR SALE AT STATION RATE.
+
+END OF MESSAGE
+
+C/S COMMENT: REVIEW MALLEK INVESTIGATION, BELIEVED URGENT KUBARK PREVENT WIROGUE RETURN FRAN AS SUBJ USING KUBARK FALSE DOCS AND STA ALMOST CERTAIN BE INVOLVED IF ARRESTED.
+
+AF/COP
+
+RELEASING OFFICER
+
+TSD (Borminger by phone)
+
+AF/R&P
+
+AF/J
+
+E/F/J
+
+COORDINATING OFFICER
+
+S.N. KORN-PATTERSON
+CAF/5
+
+<table border="1"><tr><td>S.E.C.R.E.T</td></tr></table>
+
+AUTHENTICATING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

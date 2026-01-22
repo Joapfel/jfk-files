@@ -1,0 +1,58 @@
+# JFK-Files-Part-1_page_12738.png
+
+Convert to MarkdownCABLE SFC DISSENT BY 32 PER
+
+TOTAL COPY ER 25-1 REV.
+
+SECRET
+
+PERSON UNIT NOTIFIED
+
+REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
+
+ADVANCE COPY DISSENTED W/ DCT BY J.N. 9/40
+ACTION UNIT
+
+| | | | |
+| :--- | :--- | :--- | :--- |
+| **ADVANCE COPY DISSENTED** | [x] | [x] | [x] |
+| **ACTION UNIT** | [ ] | [X] | [ ] |
+| **W/F 8** | [ ] | [ ] | [ ] |
+
+<table><thead><tr><th></th><th>RF</th><th>FILE</th><th>VR</th></tr></thead><tbody><tr><td>[X]</td><td></td><td>SECURIT</td><td>AN, LSNID, C/OPS</td></tr><tr><td></td><td></td><td>CCS2</td><td>DGD</td></tr><tr><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+<table><thead><tr><th colspan="2">STAFF</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>3</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+T 035810
+
+PAGE 01-01
+
+IN 225142
+
+TOR:161929Z APR 74
+
+CARA 24203
+
+SECRET 161910Z APR 74 STAFF
+
+CITE CARACAS 24203
+
+TO: IMMEDIATE DIRECTOR, WH/MIAMI.
+
+WRALLY WKSCARLET
+
+REFS: A. DIRECTOR 530655 (NOT SENT WH/MIAMI)
+B. DIRECTOR 538452
+
+1. WKSCARLET-3 AND WIFE WILL TRAVEL VIASA FLT 750 ON 17 APRIL DEPARTING CARACAS 0930 AND ARRIVING MIAMI 1300. PLS HAVE I&NS MIAMI ALLOW THEM RETAIN THEIR REENTRY PERMITS.
+
+2. ONLY PROBLEM WHICH STATION CAN SEE MIGHT ARISE IS IF I&NS REQUESTS TO SEE WKSCARLET-3'S PASSPORT AND REENTRY PERMIT. WKSCARLET-3 TRAVELS ON VENEZUELAN PASSPORT WHICH STATES HE BORN IN VENEZUELA RATHER THAN CUBA AND PASSPORT CONTAINS VALID U.S. TOURIST VISA.
+
+3. FILE: 201-0300985. E2 IMPDET,
+
+SECRET
+
+RECORD COPY
+
+... 201-300985
+163pm N

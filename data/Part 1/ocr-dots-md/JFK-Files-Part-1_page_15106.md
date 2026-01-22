@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_15106.png
+
+Convert to MarkdownS-B-C-R-E-T
+
+REPORT ON CONTACT WITH AGENT OR DEFECTOR
+
+SUBJECT: HIROGUE
+DATE: 29 May 1962
+TIME: 1200
+PLACE: 1/9 Ostendstr.
+
+ORNE K. DAKONNAT , Case Officer
+
+COMMENTS:
+
+Case Officer and introduced as Mr. Joseph LORTON, went to see Subject with the express purpose of discussing the various possibilities that might be available to document Subject as legally as possible.
+
+Subject told CO that he had made contact in Dortmund under the name of de Panaskhet, which a firm that was interested in his invention. They told him that since he did not have a patent this would pose a problem and offered him 5,000 DM for his idea. Subject told them he would give it to them outright for $10,000. Although they did not refuse his request, they told him they would think it over and discuss it with the boss and would have to make a patent search which would take up to 4 weeks. Subject told them to go ahead but not to try to pull any funny business since there were ways of proving that the idea was his and he could offer it to other firms. Subject will now wait to be contacted by this firm.
+
+Case Officer told Subject that we had not heard anything from Headquarters regarding his re-employment by us. He asked if there was some way of finding out approximately how long it would take. CO told him this was very difficult, but we would see if we could make an educated guess.
+
+Subject asked for a key to the mailbox since he will be receiving mail from his friends in Dortmund and possibly from the firm which he has contacted.
+
+then began discussing documentation with Subject along the following lines:
+
+The type of documentation he would receive if any would depend upon the final decision from Headquarters as yet not received. We solicited suggestions from Subject as to solutions to the documentation problem. Apparently his immediate desire is to receive back his Austrian pass, finish his business in Europe and return to the Congo to clean up matters there.

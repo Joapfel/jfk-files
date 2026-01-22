@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_13566.png
+
+Convert to MarkdownRevolucionaria, el número 26, del discurso de FIDEL CASTRO; que ya los recibió y le envió acuse de recibo por correo;-- pregunta si La Obra Revolucionaria ya editó la segunda de-- claración de La Habana. ROGELIO: que nó, que ellos tio nen el boletín de información de la Embajada, en donde está impresa la segunda declaración de La Habana. HF pide - le facilite un número igual de ejemplares, es decir 25. - ROGELIO acepta y pide su nombre y dirección. HF: JORGE - BASURTO, Avenida UNO número 76, Mansana 6, Colonia Educación, México 21. ROGELIO toma nota. BASURTO: que a él- le interesaría visitar Cuba, pero no sabe si haya manera de ir a los festejos del 26 de Julio, ya que en ocasiones ante riores se han hecho invitaciones a estudiantes de la Univer sidad y él quisiera saber si hoy habrá oportunidad de ir. - ROGELIO: que él creó que se seguirá el mismo sistema de in vitaciones, pues éstas vienen de Cuba y ellos únicamente - trasladan al Instituto Cubano de Amistad con los Pueblos, - las peticiones de los que desean ir a Cuba. BASURTO -- pregunta cual es el conducto para hacer la solicitud y ROGE LIO le sugiere mande una carta a la Embajada dirigida al -- Embajador. BASURTO agradoce la información, agregando- que en cuanto le lleguen las revistas, le avisará. ROGE LIO acepta.- 984.-
+
+1054.
+
+Entrada 1420.- VARGAS solicita hablar con ROGELIO y -- MD indica que fué a buscarlo a la portería, pero le informa ron que ya salió para su casa; que si gusta puedo dejarle - el recado y VARGAS llame como a las 16.30 h. VARGAS:que le diga que le ha llamado a partir de las 11.00 h. como le- indicó, tres veces, que es para el asunto de las revistas,- que ROGELIO ya sabe, pero quisiera hablar con él ahora mis- mo. - HD toma nota del recado y pide que hable a las - 16.30 h. VARGAS acepta.- 1083.-
+
+M.-

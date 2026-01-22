@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_10489.png
+
+Convert to MarkdownSECRET
+
+12 June 1972
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Rolando MASFERRER, Jr.
+
+1. Please be informed of a possible future contact--Rolando MASFERRER, Jr., recently promoted to Vice-President of Sales, Military Armament Corporation, Washington D.C. office, 905 L' Enfant Plaza, #4020. He is also associated with Parabellum Corporation, another military weapons firm. Subject, born approximately 1945, in Habana, Cuba, is believed to be a naturalized citizen.
+
+2. Subject makes frequent sales trips to Latin America. Because of the nature of his main product (machine pistols with silencers), he has good access to top Latin American governmental officials and military and security officers. He has personally met many Latin American presidents. He should be a good source of information on the current status of arms sales in Latin America; internal security, military armament levels, order-of-battle, and internal politics in host countries; and, if needed, status of Cuban exile movement. He is presently on a sales mission to Colombia and is scheduled to return in mid-June.
+
+3. MASFERRER, Jr. has been a Miami resident since 1959 and more recently lived in Atlanta. He will permanently locate in the Washington, D.C. area when he returns from his Colombian trip.
+
+4. Subject is not to be confused with his father by the same name, the infamous Rolando Arcadio MASFERRER y Rojas(201-42669). Masferrer Sr. was a former Cuban Senator and leader of a dreaded private army of Batista enforcers called "Los Tigres(The Tigers)". He is presently serving in a U.S. federal prison for attempting to organize a 1967 invasion of Haiti in order to set up a base of operations against Cuba. Masferrer Sr., violently anti-Castro, was involved in numerous Cuban exile operations against Cuba during the last decade.
+
+5. I was Subject's Commanding Officer in the Florida National Guard and sometimes saw him socially while in Miami. Although Cuban by birth, he now feels that he is an American. Politically anti-Communist, he joined the National Guard (while not under duress from the draft) to become a "Green Beret." He is polite and correct in his social relationships. I received a letter from him, 7 June 1972, informing me of his impending move to the Washington, D.C. area. He
+
+STC'DT S.E.I.T. 3.

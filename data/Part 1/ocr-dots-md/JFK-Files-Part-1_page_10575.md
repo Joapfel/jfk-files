@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_10575.png
+
+Convert to Markdown# LOS CHOMBEROS EN EL EXODO
+
+Llama grandemente la atención la eterna juventud del Dr. Eduardo (Guarro) Ochon en sus 56 años que parecen 40. Atribuye el ex-alcolde este milagro a su equilibrio espiritual lo-gado en estudios y medi-taciones en las disciplinas de la orden místico de los "Rosacruces".
+
+Dice "Guarro": "A fines de año se cumple el ciclo espiritual del azote comunista en Cuba. Eso marco el final de Fidel Castro".
+
+* Dónde están y cué se han hecho los ex-lensis-dores Andrés Pugilal Pu-ko y Rodrigo Suárez Es-ter. No han concurrido a una solo reunión dominical del Municipio. Causa ex-tranera esa desdicie des-pués de su around concen-ción de la medicinización de la CIA en la organiz-ción.
+
+La organización acaba de perder un valioso
+
+cuadro de trabajo en el In-Vietnam, como oficial de geniero Andrés Posciro, un batallón de la 9a. divi-quiren se mucó para Inmo-kalee, donde se desempeño destinado de nuevo a Fort como profesor de Ciencias Benning, Georgia.
+
+* Honró la última reu-nión de los holguíneros, le pedirán en Cuba si se preci-presencia del instalador pitoban los acontecimien-ent-comunista y patriota de tos allí. Y el general le pinta fina, Evelio Barre-go, actualmente Capitán se halle, estará a menar del Ejército de los Esta-de de 20 horas de su patria".
+
+* La foto nuestro el bonito porque "Colixto García" ce nuestro pueblo, donde se reunión elegante los vecinos de Holguín...
+
+## TODOS LOS DOMINGOS, A LAS DOCE DEL MEDIO-DIA, SE ZEUNE LA ASamblea DEL MUNICIPIO DE HOLGUÍN EN EL DESTIERRO.
+
+**Lugar:** Local del Colegio de Abogados de Cuba en el Exilio.- Avenida 17 y Calle 12 del South West.
+**No sea usted de los que olvidan o los que quedarán atrás.**
+
+Si no hay reuniones periódicas para tresojos prácticos, no hay organizaciones, y sin organización, militancio y disciplino, no hablará guerra de liberación.

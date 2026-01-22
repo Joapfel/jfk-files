@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_11052.png
+
+Convert to Markdown# ANIVERSARIOS NACIONALES DE LOS PAISES SOCIALISTAS
+
+- 4 - Abril. Humgría, Día de la Liberación (en 1945)
+
+- 9 - Mayo. Checoslovaquia, Fiesta Nacional.
+
+- 11- Julio. Mongolia, Victoria Nacional de un Pueblo (en 1921)
+
+- 22- Julio Polonia, Día de la Liberación Nacional (en 1944)
+
+- 23- Agosto. Rumania, Día de la Liberación Nacional (en 1944)
+
+- 2 - Sept. Vietnam, Aniversario de la Independencia.
+
+- 9 - Sept. Bulgaria, Día de la Liberación (en 1944)
+
+- 9 - Sept. Corea, Día de la Fundación de la República (en 1948)
+
+- 1 - Oct. China, Aniversario de la Proclamación de la República (en 1949)
+
+- 7 - Oct. R.D.A., Fiesta Nacional.
+
+- 7 -Nov. URSS, Día de la Revolución de Octubre.
+
+- 29-Nov. Jugoslavia, Proclamación de la República (en 1947).
+
+## Celebración de Semanas de Cultura
+
+Checoslovaquía, celebrada el 3-9 Mayo 1965
+
+R.D.A. Oct. de 1965
+URSS. Nov. de 1965
+Hungria. Pendiente de fecha en 1965
+Bulgaria Septiembre de 1965
+Vietnam Diciembre, con motivo cración FIN
+Corea. pendiente de condiciones(1965 6'66)

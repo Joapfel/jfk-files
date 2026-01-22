@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_12302.png
+
+Convert to MarkdownSUBJECT: Cuban Exiles Involved with DEA Page 2
+
+was at no time used operationally. Our files contain
+no additional information on JIMENEZ since 1960
+except for a 1969 FBI report dealing with his involve-
+ment in a plan to assassinate Fidel Castro. (DEA
+already has a copy of this report.) Although in-
+formation obtained from a Report of Investigation
+(ROI) by Alfredo Duncan (DEA/Caracas) dated 01
+December 1975 indicates that JIMENEZ is a U.S.
+citizen, resides in Caracas and has contacts with
+various GOV officials, we have no information in our
+Headquarters files to substantiate this information.
+In November 1975 the Caracas Regional Office (CRO)
+requested traces from our field representative on
+JIMENEZ, who was reportedly in contact with the CRO.
+The following traces were forwarded to our represen-
+tative in Caracas on 03 December 1975 for passage to
+DEA: "Following data on Mario Eloy JIMENEZ Rojo
+taken from his own undated handwritten bio summary
+which apparently submitted to the anti-Castro Frente
+Revolucionario Democratico (FRD) in Miami about 1960,
+and from an FRD Personnel Form. JIMENEZ was born 03
+March 1927 in Lajas, Las Villas, Cuba. He attended
+the University of Havana and majored in business
+administration. From 1948 until 1952 (sic) he was
+'elected mayor for four years' (of Havana?) JIMENEZ
+was secretary to the President of Congress in Havana
+from 1941 (sic) until 1958. He came to the U.S.
+(Miami) as an immigrant in April 1959. JIMENEZ
+stated his purpose in coming to the U.S. was to assist
+in the eradication of the Cuban system. JIMENEZ is
+married to Dyalma Balasquide. At the time his bio
+summary was written, he stated he was a second lieu-
+tenant in the U.S. Army. (As it highly unlikely that
+JIMENEZ was secretary to the President of the Cuban
+Congress at age fourteen and only a little less un-
+likely that he was a mayor at age twenty-one, as the
+dates given by JIMENEZ show; suggest DEA ask the
+Department of Army for further information.)" We
+also note that a statement on his processing papers
+for the FRD indicated that JIMENEZ was a former
+member of the Revolutionary Insurrectional Union (UIR)
+in Cuba, a Cuban-style mafia which was prominent
+during the 1940's and 1950's and was under the 'patron'
+age of anti-Batista political figures. On 12 December
+1975 we received a request from the CRO that JIMENEZ
+be registered in the ISR as a DEA source. (He was
+formally registered on 29 December 1975.)

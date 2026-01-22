@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_12417.png
+
+Convert to Markdownrie nocturna al poblado.-
+
+2. 2. Generalmente los mineros forman grupos de traba-jo constituyendo peque-nos sociados entre - los que se repartirá la ganancia que logran oq tonar, pero como coro-cen do recursos indiapan-sublos so ven obligados a incluir como socio-a personas que les presten los implementos do trabajo o que financian su alimentación, con-s tituyedo esta forma una especie da explota — ción si se toma en cuenta que generalmente exa-gan los cantidades consumidas por los mine-roa. Los compradores de diamantes aprovechan - la descesidad de vender los diamantes encontro-dos por los mineros, para pagarlo a precios - muy por debajo de su valor real y los especula-dora, aprovechan para elevar los precio da -- los alimentos, medicinas, etc., llegando en o-portunidades de escaséz o vender hosts en Ba - 40 un kilogramo de arroz. Actualmente dada la competencia y los constantes viajes que efec-tuen el lugar las diferentes líneas aeropu-bre ellas: "ASERCA", "AEROVEN", "GATIZSA", "LA TINCARGA", "AEROTECNICA" y "COMERAVIA", los -- precios han dejado de ser tan exagerados.-
+
+3. Actuación de las autoridades:
+
+3. 1. Lokprimera autoridad civil del lugar está re- presentada por un Comisario General da nombre- JOSE TOMAS GAONA ESPINOZA, pero el verdadero control sobre la población es ejercido por la-Guardia Nacional y para el momento da la pre-sente averiguación estaba constatuida por un - grupo de cuatro Guardias, comandados por un Ca-bo de apodido CARPIO; este grupo es completa-mente nuevo en el lugar, a refiz de la salida - del Teniente LUIS PRIN y da su segundo, un Ca-bo de apodido PINATE, quienes fueron someti-dos e investigación por su propio Comando a -- causa do frecuentes denuncias de presuntas i-- irregularidades cometidas en ejercicio da sus -

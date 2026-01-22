@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_11466.png
+
+Convert to Markdown24 September 1968
+
+MEMORANDUM FOR THE RECORD
+
+FROM: WH/1 (Marvin Francis)
+
+SUBJECT: 17 September 1968 discussion with DRISCOLL re LIRING/3 & LERING/4.
+
+PARTICIPANTS: DRISCOLL, KERBE, FRANCIS and Laurence PIPER (C/WII/2/G).
+
+1. LIRING/4 is still very concerned about the imprisonment of LIRING/3. LIRING/4 will not travel to Cuba until she is assured of the safety of LIRING/3. DRISCOLL has thoroughly discussed L/3 with L/4 and has pointed out the danger of attempting to intercede on L/3's behalf through business contacts. L/4 contacted the Cubans for assistance but they stated there was nothing they could do. They have assisted L/4 with small amounts of money. L/3 has devised an open code which he uses in letters to let L/4 know how he is. The letters are grim reading because L/3 keeps stating he is unable to hold out much longer. Fellow prisoners have warned L/4 not to let the Guats transfer him to another prison as this usually ends in the prisoner being shot "while escaping." One good result from the continued imprisonment of L/3 is that both he and L/4 are furthering their bona fides with the Cubans.
+
+2. L/4 is in telephone contact with the Third Secretary of the Mexican Embassy in Guatemala. He has made inquiries about L/3 with the Guats on behalf of Foreign Minister CARRILLO Flores. A few weeks ago (prior to the assassination of the U.S. Ambassador) the Third Secretary told L/4 there were three possibilities, the first which he considered out of the question was that L/3 would be shot, the second was that L/4 would come to trial and be released within a few weeks, and the third was that he would receive a sentence of two or three years. Just prior to departing Mexico on this current trip, DRISCOLL attempted to arrange a meet with L/4 in the usual means by slipping a typed note under her apartment door. She did not make the meeting. DRISCOLL later learned through phone tap material that she called the Cuban Embassy and informed them the
+
+SECRET
+
+201-79501

@@ -1,0 +1,50 @@
+# JFK-Files-Part-1_page_14044.png
+
+Convert to Markdown14-0000
+
+MESSAGE FORM
+TOTAL COPIES:
+
+<table><tr><td>FILE ID</td></tr><tr><td>INDEX</td></tr><tr><td>NO INDEX</td></tr><tr><td>FILE IN C: FILE MD</td></tr></table>
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
+
+☐ DESTROY ☐ RETURN TO ________ BRANCH
+
+☐ RID COPY
+
+(REFERENCE NUMBER)
+
+CITE DIRECTOR 55746
+
+TO PAGE TWO
+
+3. AMKNOB/1 IDENTIFIED RODRIGUEZ FROM PHOTO AS CURRENT CUIS CASE OFFICER MEXICO EARLY 65. STATED KNEW RODRIGUEZ AS RAUL.
+
+4. REQUEST ANY INFO ONWARD TRAVEL, DESTINATION, AND ACTIVITIES RODRIGUEZ.
+
+END OF MESSAGE
+
+C/WH/COG/CICS
+WH/COG/FI
+WH/COG/MO
+WH/1/Mexico
+E/IB/S
+
+WILLIAM V. BROE
+C/WHD
+AUTHENTICATING OFFICER
+
+COPY NO.
+
+C/EUR
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+SECRET
+
+GROUP I
+included from automatic demarcation and the rest of collection
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

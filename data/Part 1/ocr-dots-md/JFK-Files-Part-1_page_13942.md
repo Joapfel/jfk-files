@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_13942.png
+
+Convert to Markdown27 APR 1970
+
+MEMORANDUM FOR: Director
+Federal Bureau of Investigation
+
+ATTENTION : Mr. D. J. Brennan
+
+SUBJECT : Rogelio Rodriguez Lopez, Cuban
+Intelligence Officer
+
+1. Reference is made to your previous correspondence concerning Rogelio Rodriguez Lopez, First Secretary of the Cuban Mission to the United Nations (CMUN) and an officer of the Cuban General Directorate of Intelligence (DGI). Rodriguez is the CUIS Case Officer for Jennifer Enid Miles, a South African national, now under investigation by the Bureau. Your most recent memorandum on Rodriguez and Miles was dated 26 January 1970.
+
+2. On 30 January 1970, there was a liaison discussion about Miles and Rodriguez at which time your representatives advised that your Bureau planned to interview Miles, on an appropriate pretext, and that there were signs that she might be susceptible to "doubling". We recognize that the Miles-Rodriguez case is an internal security responsibility of the Bureau but, to assist us in our efforts to assess Rodriguez as a DGI officer, it would be appreciated if you would provide us with the results of your interview with Miles as well as personality information about him that she may acquire in the future.
+
+3. We would also like to have your comments about considering Rodriguez as a potential penetration of the DGI in Cuba. There is the possibility that Miles might be used to assist in approaching Rodriguez if, for example, she has refused to cooperate as a double agent or later if internal security considerations warrant an approach to Rodriguez.
+
+FOR THE DEPUTY DIRECTOR FOR PLANS:
+
+Signed: Raymond G. Rocca
+James ANGLETON
+
+CIOL-00061-70
+
+<table><tr><td>SEPT 4 1970</td></tr><tr><td>MAY 20 1970</td></tr><tr><td>SEPTEMBER 5 1970</td></tr></table>

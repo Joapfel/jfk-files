@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_15608.png
+
+Convert to MarkdownAttachment A
+
+NAME: David TITANOVILI
+PLACE OF BIRTH: Corinor Tiflis, Georgia, USSR
+NATIONALITY: Georgian
+CURRENT CITIZENSHIP: Stateless
+RELIGION: None
+
+PARTIAL STATUS: Divorced. (Subject's ex-wife, one son and one daughter are living at the present time in France. Subject has not been seen since 1960.)
+
+PRESENT ADDRESS: Living under the name David HARVARD, 225 24th St., N.W.
+Apt. 202, Washington, D.C. "The Potorac House"
+
+**PERSONAL REMARKS:** 12 year old, sale, Caucasian, 5'8" tall, slight of build (13½ lbs. average weight), long face, long nose, fair brown hair, balding top and front, fairly complexion, agile and in perfect health.
+
+EDUCATION:
+
+*   **1922-4:** Paris Notre Dame uncompleted, change of family address
+*   **1925:** Paris Lycee Montagne uncompleted, change of family address
+*   **1926:** Paris Ecole Commune. uncompleted, change of family address
+*   **1926:** Viroflex Lycee Noche uncompleted, expelled for pranks
+*   **1926:** Paris Ecole Commune taken back, uncompleted change of family address
+*   **1931:** Paris-Vanves Ecole Micholet 6 months completed, expelled for insurance.
+*   **1933-5:** Chalon-S. Marne Art et Metier Technical Engineering School. Attended 1 year, then expelled.
+*   **1936-7:** Paris Ecole Bretonnet Electro-engineering School. Attended 1 year,
+
+JETZT
+
+201-233477

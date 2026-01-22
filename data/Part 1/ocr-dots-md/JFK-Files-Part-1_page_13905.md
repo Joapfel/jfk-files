@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_13905.png
+
+Convert to MarkdownSECRET
+
+IN 59141 PAGE 2
+
+CLASSIFIED MESSAGE
+
+MEXICO. BASE WAS INQUIRED OF LEENICK, LONG TIME HERTON CONTACT. HAVA, IF ROGELIO POSSIBLY IDEN WITH ROGER. GUTIERREZ CONSIDERED SUBJ HAS RELATIVE POPRINE AND ODYNE APPARENTLY ALREADY CONSIDERING APPROACH SUBJ.
+
+S E C R E T
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tr><td>SECRET</td></tr></table>

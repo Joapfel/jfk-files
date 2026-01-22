@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_15512.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+22 AUG 1961
+
+MEMORANDUM FOR: Chief, Africa Division
+
+ATTENTION : Mr. Daniel Niesciur, Room 2009, I Building
+
+FROM : Deputy Director of Security (Investigations and Operational Support)
+
+SUBJECT : TZITICHVIII, David #174 803
+
+1. In response to your request dated 6 July 1961, a safe-house facility was located and made available to you for an indefinite period beginning 12 July 1961.
+
+2. No further action will be taken in this matter unless requested by you.
+
+FOR THE DIRECTOR OF SECURITY:
+
+Victor R. White
+
+SECRET

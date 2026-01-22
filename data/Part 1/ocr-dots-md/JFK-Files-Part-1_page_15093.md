@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_15093.png
+
+Convert to Markdown-10-
+
+## 21. HISTORY OF ARRESTS:
+
+In June 1962, I was approached by the rayon militia at my place of work and was taken to the militia offices where I was accused of being a long standing member of a Georgian resistance group and of making anti-government statements. Although I had actually made such remarks on occasions and was therefore guilty of the latter charge, I noticed that the militia did not have sufficient information on this subject and I denied all accusations. I could not figure out who was behind the report. After prolonged interrogation, during which I was extensively questioned on my biography, parents, army service, contacts, etc., I was released with the warning that I was not to leave the area for the time being and that I would be contacted in the near future by the militia. Except for this case, I was never arrested or detained by militia or security organs.
+
+## 22. MEMBERSHIP IN POLITICAL PARTIES OR ORGANIZATIONS:
+
+I never belonged to the Communist Party. I was urged to join the Komsomol in 1937 while at the Tbilisi Elektro-Technicum, and was sponsored there by two of my class-mates, each of whom had more than two years of Komsomol standing. I submitted the application to the local Komsomol yacheyka (cell) and at a general meeting of the cell members my application was discussed and I told my life story and answered questions put to me by the members. After I was accepted, I received my membership card in about two months from the city rayon committee of the Komsomol in Tbilisi after which I had to attend meetings and pay very small dues. I never held any official position with the Komsomol organization. When I left Tbilisi, I had to deregister from the Tbilisi organization and register with the local organization at my new place of residence in Mikha Tskhakaya (usually referred to by the local population simply as 'Tskhakaya'). The same procedure had to be repeated upon my departure to and discharge from the army (deregistration from the old organization and registration at the new place). Upon my return from the army to Tskhakaya, I never registered with the local organization again.
+
+When I started to work in Tskhakaya, I was automatically enrolled in the prof-soyuz (trade unions) where I was a passive member paying my dues (something like 1% of my salary) to the trade union organizer of MTS (prof-org) and attending the obligatory meetings from time to time. I never took any advantage of trade union members privileges such as the cut-rate accommodations in rest homes (putevka v dom otdykha).

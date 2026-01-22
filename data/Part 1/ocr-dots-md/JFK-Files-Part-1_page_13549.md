@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_13549.png
+
+Convert to Markdownal C. General de Brigade, José Gómez Huerta,
+Jefe del Est. Co. , mayor General,
+Los Álamos.
+
+001893
+
+informe No.
+
+DE: C-4.
+
+TEMA: SALIDA DE UN CUBANO.
+
+FECUA: Mayo 7, 62.
+
+HORAS:
+
+1.- En el Vuelo # 465 de la Cía. Cubana de Aviación, que salió con destino a la Habana, Cuba el día 4 del actual a las 15.00 horas, salió el
+
+Robelio RODRIGUEZ LOPEZ, con Pasaporte AD/61/164, de 19 años, soltero, cubano, con Visa Diplomática # 334 del 10/5/62 expedida en la Habana, Cuba.
+
+DATOS OPERATIVOS.
+
+Vigilancia Aereopuerto.
+
+Repete u usanlo le.
+
+Jefe del Grupo
+L.Silvetti.

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_13523.png
+
+Convert to MarkdownSECRET
+
+6 November 1963
+
+MEMORANDUM FOR: Chief, Special Affairs Staff
+
+SUBJECT: AMWORLD--Project JMHART
+
+1. Chief, WH/7 has tentatively offered the services of CIA contract personnel assigned to this project--principally those of the Director of the Panamerican Foundation, Mr. Curtis Wilgus--to serve as a channel to ex-President Figuere and Foreign Minister Cduber in promoting the acceptability of AMWORLD and AMBIDDY-1 by the moderate left. Under the terms of the JMHART Project, CIA, through Curtis Wilgus, will be able to influence the composition of the student body of the School for Inter-American Development. It is proposed that Wilgus would tell Figuere and Cduber that it is intended to also enroll Cubans in the school and that in the opinion of Wilgus they should be drawn from exile organizations known to be dedicated to democratic principles, such as Arttime's MRR, Manolo Ray's JURE, the MRP and MDC. It is unlikely that Figuere and Cduber would demur. In any case, their demurrals could be overruled. The prominent mention of the MRR as a cradle of democratic ideas and the actual inclusion of students selected by Arttime would postulate acceptance of the MRR and of Arttime as exponents of a political philosophy acceptable to the moderate left. Any excoriation of Arttime for having allied himself with the Somosas would be blunted if the MRR forms a part of the student body (and conceivably the faculty) of the School of Inter-American Development.
+
+2. I intend to suggest to Artime that he pay his respects to Figueres in Cambridge, of course without alluding to the school project. The purpose of the call would, quite frankly, be to butter up Figueres.
+
+SECRET
+
+<table><tr><td>104-10179-10232</td></tr></table>
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992

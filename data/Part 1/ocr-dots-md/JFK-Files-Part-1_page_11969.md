@@ -1,0 +1,62 @@
+# JFK-Files-Part-1_page_11969.png
+
+Convert to MarkdownCABLE SEC DISSEMS BY 28 PER TOTAL COPIES 12 TUN. BY
+
+PERSON/UNIT NOTIFIED
+
+S E C R E T
+
+ADVANCE COPY ISSUED: PLOTTER BY AT 2
+
+STAFF
+
+<table>
+  <tr>
+    <td rowspan="3">ACTION UNIT</td>
+    <td>IF</td>
+    <td>RF FILE</td>
+    <td>VR</td>
+    <td></td>
+    <td></td>
+  </tr>
+  <tr>
+    <td>N</td>
+    <td colspan="4"></td>
+  </tr>
+  <tr>
+    <td>F</td>
+    <td colspan="4"></td>
+  </tr>
+  <tr>
+    <td>ACTION #</td>
+    <td colspan="5"></td>
+  </tr>
+</table>
+
+T 832260
+
+IN 134684
+SALV 20685
+
+SECRET 1023252 JAN 74 STAFF
+
+CITE SAN SALVADOR 20685
+
+TO: DIRECTOR INFO WH/MIAMI.
+
+1. REQUES. TRACES ON MR. JOSEPH R. MEROLA; AGE 48;
+
+BORN PENNSYLVANIA, RESIDENCE OS MIAMI SHORES, FLORIDA,
+MEROLA CLAIMS BE AERONAUTICAL CONSULTANT WITH PATTERSON
+AIRCRAFT COMPANY OF CALIFORNIA. WE SUPPOSEDLY TRYING
+NEGOTIATE DEAL TO ESTABLISH HELICOPTER PLANT EL SALVADOR.
+DURING TALKS AT SOCIAL PARTIES WITH EMBASSY PERSONNEL WE
+INDICATED PREVIOUS WORK WITH SKHERALD.
+
+2. FILE: DEFER. E2 IMPDET
+
+SECRET
+
+RECORD COPY
+
+<table><tr><td>S</td><td>E</td><td>C</td><td>R</td><td>T</td></tr></table>

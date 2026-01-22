@@ -1,0 +1,57 @@
+# JFK-Files-Part-1_page_13438.png
+
+Convert to MarkdownMESSAGE FORM
+TOTAL COPIES:
+
+<table><tr><td colspan="2">Gus A.B. Outright<br/>UNIT VV/2/P<br/>EST 51,210<br/>DATE 11 October 1966</td></tr><tr><td>(3) FILE .<br/>(3) INDEX<br/>(1) NO INDEX<br/>(3) FILE IN C5 FILE NO.</td><td>S-F-C-R-P-T</td></tr></table>
+
+<table><thead><tr><th>1</th><th>2</th><th>3</th><th>4</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+DISSEW BY ________ PER ________
+FACN: DIRECTOR
+
+CONF. U. MI. [ ] RID COPY
+
+[ ] DESTROY [ ] RETURN TO __________ BRANCH
+
+(REFERENCE NUMBER)
+
+42449
+
+(CLASSIFICATION)
+
+(DATE AND TIME FILED)
+
+11 72 06 Z CITE DIRECTOR
+
+TO PANAMA CITY INFO: REP/LANT, CARAGAS, SANTIAGO, JEWAVE, SANTO DOMINGO, LIMA, MEXICO CITY, RIO DE JANEIRO, SAO PAULO, ICIPITT 1190
+
+REF: PANAMA CITY 1050 (IN-13995).
+
+REF ZRIWAHOO DISSEMED AS TDCS-311/12911-66 WITH ADDED CONTROL NO FOREIGN DISSEM.
+
+SOURCE DESCRIPTION CHANGED TO READ: "AN ATTENDEE AT THE CONGRESS DESCRIBED BELOW WHO IS A SUPPORTER OF EMILIO MAGFERO. HE HAS NOT PROVIDED ENOUGH SUFFICIENT INFORMATION TO WARRANT A JUDGMENT AS TO HIS RELIABILITY."
+
+END OF MESSAGE
+
+WILLIAM V. BRACE
+C/WHD
+
+C/M/R
+
+H/D M. TERRELL
+JPC/W/H/2
+
+COORDINATING OFFICERS
+
+<table><tr><td>S-F-C-R-P-T</td></tr></table>
+
+RELEASING OFFICER
+
+<table><tr><td>AUTHENT.</td></tr><tr><td>EXPIDENTS EXPERTS</td></tr><tr><td>CONFIDENTIAL</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+AUTHENTICATING OFFICER
+
+COPY NO. 1020040

@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_11668.png
+
+Convert to MarkdownSECRET
+
+C O P Y
+
+AIR
+
+TCS-J-1214
+
+Chief, Foreign Division T
+Chief of Station, Santiago
+
+Administrative
+Duty Status Reports
+
+27 October 1950
+
+1. I hereby certify that the following named individuals have performed duties the entire month of October 1950, and that the following dollar payments are approved and authorized to be made at Headquarters to subjects:
+
+| NAME | AMOUNT |
+|---|---|
+| FULL BACK | $100.00 |
+| FULMAR | 100.00 |
+| FURNITURER | 50.00 |
+| FURNITURER-1 | 50.00 |
+
+2. For authorization of reactivation of FULLBACK and FULLBACK-1 see WASH 17632 dated 19 October 1950.
+
+Jerome C. Dunbar
+
+SECRET
+
+201 - 0432
+ESTRANSY
+DATE APR 12 1955
+
+<table><tr><td>201</td></tr><tr><td>AESTRAN</td></tr><tr><td>DATE</td></tr><tr><td>APR 12 1955</td></tr></table>

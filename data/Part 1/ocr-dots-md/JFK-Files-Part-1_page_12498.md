@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_12498.png
+
+Convert to Markdownc. **CIFENCE-4** The same method for emergency recontact as described for CIHURON-1, but with entirely different locations, will be used for emergency recontact with CIFENCE-4. If all personal contact between CIFENCE-4 and RIJOCK is deemed unwise, another Case Officer or an outside agent handler with proper bona fides and recognition signals will be used to contact CIFENCE-4.

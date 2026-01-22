@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_11478.png
+
+Convert to Markdown11 February, 1969
+
+CONTACT REPORT
+
+<table>
+   <tr>
+    <td>MICROFILMED</td>
+   </tr>
+   <tr>
+    <td>JUN 2 1969</td>
+   </tr>
+   <tr>
+    <td>DOC. MICRO. SER.</td>
+   </tr>
+  </table>
+
+1. Agent: LIRING/3
+2. Date & Site of Meeting: 1100, 11/2/69; Casino Real
+3. Next Meeting: 1000, 14/2/69; same place.
+
+4. Reports/Information Submitted by Agent:
+
+LIRING/3 told Rowton that there had been little or no developments since he last saw Rowton (21/1/69), just before Rowton had left on his business trip to Monterrey. He commented that he had felt it wiser not to take any initiative in seeking out his FAM friends or revisiting the LIRING office until Rowton had returned. He stated that his old Guatemalan friend, Jacobo Rodriguez Padilla, had called on him once in the company of Carlos Vega, but nothing significant had emerged from the casual conversation. Vega, at several points in the conversation, had mumbled something to Rodriguez about the "crisis" but nieher gave an explanation. L/3 told Rowton that he assumed that this remark referred to the current factionalism in the Guatemalan revolutionary struggle.
+
+LIRING/3 then identified the attached photo of Mario Augusto Mendez Aguilar immediately at the first glance as that of "Rómulo", aka "Mario Mendez" and "Pavel." LIRING/3 did not recognize the photo Rowton showed him of Mario Otoñiel Mendez Molina.
+
+5. Guidance/Information Given to Agent:
+
+Rowton told L/3 that according to the very sketchy information he had concerning Mario Augusto Mendez Aguilar it appeared that the latter belonged to a strongly anti-PBRUMEN faction and that this would perhaps explain the turn-about of the LIRINGS after he, L/3, had indicated to LIRING/9 that he was in contact with "Pavel."
+
+Rowton urged L/3 to seek out "Rómulo" at the calle Coshuila 221 safe-house, and, failing this, to recontact Humberto González Vega at his home on calle Manzanillo, in the hope that the latter could arrange a recontact with Mendez.
+
+Wallace B. Rowton
+
+CS COPY
+
+h/w att.:1
+
+HIMSA-37136
+
+201-798301

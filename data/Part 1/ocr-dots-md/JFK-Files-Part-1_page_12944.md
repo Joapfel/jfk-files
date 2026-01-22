@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_12944.png
+
+Convert to MarkdownBIOGRAPHIC DATA
+
+NAME Luis Clemente FOSADA Carriles
+DOB 15 February 1923 - Cuba
+EMPLOYER Tri-State Engineering J29
+DATE EMPLOYED 1 September 1965
+POSITION Technical Supervisor
+SALARY $300.00 net per month ACTUAL
+$400.00 net per month COVER
+PREVIOUS EMPLOYMENT Jerry Salesman
+ADDRESS 700 N. W. 15th Street; Miami, Fla.
+TELEPHONE 337-9971
+MARITAL STATUS Married

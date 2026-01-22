@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_15788.png
+
+Convert to MarkdownSECRET
+
+23 June 1960
+
+REMARK: CHG FOR THE RECORD
+
+SUBJECT: Discontinuance of Project ASSENTIEL for 1960
+
+1. On 17 June 1960, SR/DOE was informed telephonically by Guent JOHNSON, COP/SR (Acting Chief SR/DIV.) that Project ASSENTIEL would not be carried out this year(1960).
+
+2. The feasibility/practicability of carrying out this project at a later date would of course depend on the line of United States policy vis-a-vis countering the Soviet threat.
+
+3. After due consideration, DCI/DEN has taken steps to terminate one of the two ASSENTIEL agents, ADOTER/3. As regards the other agent, AARANC, it is felt that he could be of definite service to this Agency in some similar capacity. This office is presently engaged in finding a job for AARANC.
+
+FRED KIERKPATRICK
+
+SECRECI
+
+24-35277

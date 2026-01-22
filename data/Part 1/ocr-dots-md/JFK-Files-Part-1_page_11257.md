@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_11257.png
+
+Convert to MarkdownSECRET
+
+6 February 1958
+
+MEMORANDUM FOR: CI/OA
+ATTENTION:
+SUBJECT: LITAMIL-9
+201-329509
+
+Attached are two copies of a PRG Part I on Subject and a copy of the PRG Part II. An Operational Approval is requested.
+
+Attachments:
+
+PRG I - 2 cys
+PRG II- 1 cy
+
+SECRET.

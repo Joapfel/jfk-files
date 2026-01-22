@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_14812.png
+
+Convert to Markdownhowever, Winston's arrest. John Abt, said he was being dropped from the committee of contracting the necessary information from prison authorities and because the time required would detract from Winston's public activities.
+
+Winston recorded, "subatters from some influence of his metabeliss which calls to have attacks or prieups resisting for several days."
+
+## II. Communist Party Affiliations
+
+### A. History
+
+Winston joined the YCL in January, 1931, and became a member of the CPUSA in the Summer of 1931. In December, 1932, he left Kansas City, Missouri, as a YCL delegate to the National Hunger March in Washington, D. C., and then proceeded to New York City, where he worked for the "Young Worker," official organ of the YCL.
+
+In 1933, he was Chairman of the Industrial Youth Section of the Unemployed Councils and was later named Chairman of the Youth Section of the Unemployed Council for the New York City metropolitan area. From April through November, 1933, he was Section Organizer of the YCL in Brooklyn.

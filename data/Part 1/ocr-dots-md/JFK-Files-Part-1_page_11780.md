@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_11780.png
+
+Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+
+TO : ADPC
+VIA : OD/CO
+FROM : C/MH
+
+DATE: 7 July 1952
+
+SUBJECT: Information on Paul D. LANGEVIN principal agent of Project PEGROVEL
+
+1. Paul D. LANGEVIN is the principal agent of subject project, approved 12 February 1952. Project PEGROVEL contemplates the establishment in Santiago of an indigenous anti-communist committee which, when developed, will be placed under DTHABEAS.
+
+2. Subject agent was granted an OSO clearance 3 October 1950, and proved his usefulness as a cut-out and in a DYCLAVIER printing operation. Subject was granted an operational clearance for DYCLAVIER work 14 January 1952, and received covert training in New York City in April. Since his return to Santiago, subject has engaged in spotting and recruiting an indigenous principal agent who will in turn organize the anti-communist committee.
+
+3. Subject is the Texas-born 30 year old, owner and publisher of the English-language weekly "South Pacific Mail" of Santiago. Subject has also had acting and writing experience since his completion of wartime service in the U. S. Air Force. Subject has been in Chile since November 1949 and at present has a two year contract as agent for this agency, signed 25 January 1952. Subject has indicated on several occasions a continuing interest in obtaining a permanent position with this agency.
+
+4. Due to the Subject's travel to New York for training, several officers of WHD have had an opportunity to observe and evaluate subject. Opinion on subject has been consistently favorable and he has impressed all as a person of high intelligence and personal integrity. Subject has had a varied occupational background, excellent education, and exhibits exceptional poise and a good appearance.
+
+J. C. KING
+
+See attached

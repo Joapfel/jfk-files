@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_11098.png
+
+Convert to MarkdownALBERU (SOUTO), Luis
+#279 089
+
+5 June 1967
+
+On 2 June 1967, the files of the Federal Bureau of Investigation were searched in the name of Luis (SOUTO) ALBERU, born in 1925 at Oviedo, Spain, and revealed the following information:
+
+1. Refer to data regarding Dominican Situation which was sent your Agency on 3---66, page 1.
+
+APMT W/ C. E. M. B. 2
+
+2. Refer to data regarding Foreign Political Matters-Cuba which was sent your Agency on 12-19-61, page 4; 5-28-62, page 2; and 12-15-60, page 1.
+
+P. C.
+
+3. Refer to data regarding Student Strike, School of Economy, University of Guadalajara, Guadalajara, Jalisco, Mexico, November 14/18, 1966, which was sent your Agency on 12-5-66, page 4.
+
+NOT MY SUBS.
+
+4. Refer to data regarding Partido Popular Socialista (Popular Socialist Party) State of Mayarit which was sent your Agency on 11-29-65, page 2.
+
+J. R. I.
+
+5. Refer to data regarding Instituto De Intercambio Cultural Mexicano-Ruso (Mexican-Russian Institute of Cultural Exchange), Guadalajara, Jalisco, which was sent your Agency on 6-22-66, page 32; 10-13-63, page 5; and 3-15-63, page 3.
+
+JRT/akn
+
+SECRET,
+
+<table><tr><td>Jose L.</td></tr><tr><td>Santos, Mexico</td></tr><tr><td>Juan F.</td></tr><tr><td>Hernandez</td></tr></table>
+
+DBF-97388 'Attn: Jose L.' Jul 6'61
+Cultural Education, Cuauhtémoc, Mexico, 62. Cultural Contact Group
+DBR-11277 'Attn: Cuauhtémoc'
+with A. Apaari. Mar 13 '62.

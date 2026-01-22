@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_15484.png
+
+Convert to MarkdownSECRET
+
+PRITY DIR CITSLEOP 2437
+
+RYBAT WIROGUE
+
+REF LEOP 2365 (18893) DEC 43-40
+
+WIROGUE REPORTED 9 NOV WIZARD 4 WISHES PURCHASE 2 BRISTOL MARAUDERS AND 2 DC-4 TRANSPORTS. ACTING AIRA LOANED WIROGUE BOOK ON AIRCRAFT WHICH GOO STUDIED TO SELECT PLANES WANTED.
+
+Wirogue said goa sending two men to England arrange purchase which must be made in two weeks, wirogue to begin wearing cna uniform, being sent LULUABOURG to "study situation."
+
+ST
+121
+
+per GSN 43-43
+
+TIN20108
+
+101.233477

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_14132.png
+
+Convert to Markdown<table><tr><td>MEMORANDUM FOR:</td><td>Dept. 4/3</td></tr><tr><td></td><td>c/w10/3</td></tr></table>
+
+Let's discuss when c/w10/3 returns. We know how we feel about this but the opa- considerations have not been well thought out in my opa- return.
+
+(DATE)
+
+FORM NO.
+1 AUG 54
+
+101 REPLACES FORM 10-101
+WHICH MAY BE USED.
+
+(47)

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_10415.png
+
+Convert to MarkdownSECRET
+
+9 July, 1968
+
+Subject: LIRING/4 report of activities.
+
+1. Houston met with LIKING/4 at 1000 on 9 July, 1968, at the Sears Restaurant on Insurgentes. He had not seen her for the previous ten days because of his leave (20/6/68-5/7/68).
+
+2. LIKING/4 reported that an old friend, Iden A., had arrived the previous week from the IBAUMLI capital, and that she had seen him several times prior to his moving to Guernavaca. She commented that Iden A. was divorced and lived alone (his wife having been a notorious model of loose morals). She added that his apparent one is 40, so that he must have political influence since he obtained a six-month exit permit following the invitation of Siquieros.
+
+3. LIKING/4 then related that she received a message early in the previous week that Iden A. was trying to get in touch with her and she accordingly went to the LIKING offices on 27/6/68 to find his address. When she entered the office of LIKING/9, she found it crowded and was on the point of leaving (after getting the address of Iden A) when LIKING/9 approached her and asked her to take a ride in his car so that he could chat with her. LIKING/4 told Houston that she assumed that LIKING/9 was enroute to one of the Secretaris in a rush and had asked her to accompany him to that place, but she could save time by talking to her on the way. She was therefore surprised when he drove her to the Vaca Negra & Insurgentes and later returned with her to the office.
+
+4. According to LIKING/4, LIKING/9 asked her routine questions as to how she was making out living as she was on her own. LIKING/4 relied that she was doing the best she could to raise enough money to survive, through part-time work arranged by Dra. Chumaceira of Artes Elasticas, the sale of some of LIRING/3's paintings and financial help from her father (all of which is partly true). She then asked LIKING/9 for a "loan" to tide her over the weekend, to which he responded with a 100 peso bill. LIKING/9 commented that things were going well with his office financially as a result of the increased fees. He dropped the figure 36,000 (US) as receipts for the previous month. LIKING/4 asked Houston for his opinion as to why LIKING/9 would take off an hour or so on such a busy day to drive her around town, commenting that she herself could not understand his motives. She did not get the impression that he was interested in her personally since in that case he would have invited himself to her apartment to ask her out to dinner in the evening.
+
+5. Houston replied that he assumed that LIKING/9 had received some sort of

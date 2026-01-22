@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_10466.png
+
+Convert to Markdown7 July 1972
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Assessment of Recruitability - Rolando Masferrer, Jr. Vice-President, Sales, Military Armament Corporation and Associated with Defense Systems Incorporated
+
+1. Subject seems to have inherited that particular Latin American servant for involvement in covert political activities. However, the Subject's involvement is not merely meeting or repression but it is instead intimately connected with his chosen profession as an arms salesman. Here the phrase "for fun and profit" seems aptly suited. He seems to be a man of action with the ability to exploit an opportunity, rather than a towering intellect.
+
+2. Subject has excellent contacts and access in Latin America. This access developed from his extended family, professional appointments, and his involvement with Cuba, extra-genera, this family is well-known (infamous) throughout many sectors of Latin America and opens many doors for him (although it also closes others). It should also be mentioned that his family has recently developed a rather checkered association with this Agency. The particular nature of his military products gives him contact with high military, police, and security officials throughout Latin America. He seems to be well versed on the status of various arms deals (both official and under-the-table) in the countries he travels. He has been involved with several Cuban exile political and para-military organizations.
+
+3. Politically, Subject is a staunch anti-Communist. This position is probably ingrained from his family, but also reinforced from his various political and professional activities. He has voiced a particular hatred for Cuban Communists. He seems to view them not as respected enemies, but as hated traitors. He is vehemently anti-Castro.

@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_15754.png
+
+Convert to Markdown4-00000
+
+PICKERING JOB OFFICE OF THE ORDER
+ATTACHMENT : Chief of Training
+SUBJECT: S/T Training for the 31 August 1978 in and around the area of Biscay
+
+1. It is requested that a 5.1 - day advanced training course be instituted at our current extra classes for S/TA's contract subject AAS/S. In the training, we will provide an order to round out Subject's additional training planning for operational publications by interested S/T personnel.
+
+2. Subject to your approval, this is incorporated into 6/7/80 training will be given. Section W. is being treated as the double time area, and that section is to be completed on or before 1 August 1960. Training in the week leading up to Subject is a qualified operational W. I am unable to confirm this.
+
+3. Transportation to and from the training sites will be provided by us.
+
+4. For any further questions please contact our facilities, operations, or administration (533).
+
+JRC/08
+
+Eltrib.: D & I - address
+2 = SR/COS
+I - SV308 c.f. 308
+
+FEBRUARY 1978
+
+201-233477

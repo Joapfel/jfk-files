@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_15085.png
+
+Convert to Markdowndied, she went back to work. She changed her place of employment several times and the only job I can remember was her last employment as a cashier with the shoe-repair shop (artel) on Sovetskaya Ulitsa in Tbilisi. She died in 1934 of a heart attack.
+
+10. **BROTHERS AND SISTERS:** None at present. I had a brother Leon born 1923 who died some six months after his birth.
+
+11. **OTHER RELATIVES:** I knew that my father had relatives in the Baltic area but our family had no contact with them and I did not know any of them. I had no close maternal relatives, and the distant relatives in my mother's home village had no contacts with my family disapproving my mother's marriage to a 'foreigner' of another faith. I never visited the home village of my mother.
+
+12. **CLOSE FRIENDS AND ASSOCIATES:** I never had any real close friends, but I was somewhat closer to the following persons in town:
+
+    (1) Director of RTS, who was transfered in 1959 to Rustavi, Georgian SSR.
+
+    (2) Rayon veterinarian who had his office in the rayon veterinary clinic and travelled extensively in the rayon area visiting collective farms.
+
+    (3) Club librarian (a girl friend)
+
+13. **SPECIAL SKILLS:** I like to invent gadgets and built up a relatively good home work shop
+
+14. **LANGUAGES:** Georgian - native
+   Russian - from school and contacts with population in Russian speaking area and in the service.
+   German - from school and residence in Germany
+   English - from Technicum, home study and association with Americans in Germany.
+
+15. **FINANCIAL STATUS:** None

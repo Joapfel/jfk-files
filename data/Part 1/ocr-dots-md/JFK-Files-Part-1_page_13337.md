@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_13337.png
+
+Convert to MarkdownHavana Domestic Television Service in Spanish 0107 CFF 7 Aug 67
+
+Official Use Only
+
+**Question:** What kind of weapons did you bring for assassinations?
+
+**LaucERICA:** We brought two Doretta pistols with silencers, a .22-cal. pistol with a silencer, and an M-3 with a silencer.
+
+**Question:** What kind of ammunition did you bring for the .22-cal. pistol with silencer?
+
+**LaucERICA:** Part of the ammunition was conventional bullets and part of it was cyanide-tipped bullets.
+
+**Question:** Who prepared the bullets with cyanide?
+
+**LaucERICA:** I prepared them.
+
+**Question:** What were those bullets prepared for?
+
+**LaucERICA:** Those bullets were prepared over there in Miami. (Polo--phonetic)
+
+Miranda, member of an organization called (TEI Reece) asked me to prepare them, in spite of the fact that I know nothing about chemistry, for attempts on lives, to make sure of the death of the individuals against whose lives attempts were to be made, but they were for specific attempts.
+
+**Question:** What plans were made in the United States or among the counterrevolutionary circles, what is the main objective sought?
+
+**LaucERICA:** Well, the physical elimination of the leaders of the Cuban revolution, Fidel Castro.
+
+**Question:** The physical elimination of M aj. Fidel Castro?
+
+**LaucERICA:** Yes, sir.
+
+**Question:** Those counterrevolutionary groups which operate from Florida, from Miami, do they have the approval of the North American Government for their actions?
+
+**LaucERICA:** Almost entirely. For example the most opportunist elements over there create small groups to obtain dollars from the US Government for their subsistence, but there are close links among all the organizations in exile with the Central Intelligence Agency. We have, for example, the case of (TEI Reece) which--through Luiz Pinada, who is known by all as a CIA agent--belongs, that is all its activities of acting on Cuban coasts, actions against merchant ships and so forth, are linked to the CIA.
+
+**Question:** You say that you had a .22-cal. pistol with poisoned bullets for specific attempts on lives?
+
+**LaucERICA:** Yes, sir.
+
+**Question:** I would like you to clarify something more. What specific attacks, against which figures, were those attempts to be made with that type of weapon?
+
+**LaucERICA:** Well, against the most prominent figures of the revolution according to existing circumstances and according to the individuals who were going to execute them. Specifically, it is to be supposed that if the idea of counterrevolution were to take root in Havana, well then the effort to kill the leader of the revolution should be intensified.
+
+SO; F'1S DA 155, 10 AUG 67 2:04:0

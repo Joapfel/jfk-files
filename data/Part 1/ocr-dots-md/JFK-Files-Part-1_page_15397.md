@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_15397.png
+
+Convert to MarkdownPERSONAL EMERGENCY INFORMATION
+
+Name of employee in full. Eduardo Whitehouse Insua
+
+Person to be notified in case of emergency:
+
+Name Brizeida Whitehouse
+Relationship wife
+Address 446 NE 39 St., Miami
+Telephone FR4-2396
+
+Designation of Beneficiary:
+
+Name Brizeida Whitehouse
+Relationship wife
+Address 446 NE 39 St.,Miami
+Telephone FR4-2396
+
+List all insurance policies:
+
+Date of Policy Company Policy No. Coverage Beneficiary contain Tar Clause? Yes No
+
+none
+
+Have you completed Last Will & Testament? yes
+Date of Will: Nov. 10,1964 Location of original: R. Modell
+Copy on file with:
+
+Name and address of person holding Power of Attorney:
+
+Date Nov. 10,1964 Signature Employee
+
+MICROFILM
+
+10 NOV 64
+201-300614

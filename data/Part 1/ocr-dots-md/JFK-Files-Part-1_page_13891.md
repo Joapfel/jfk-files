@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_13891.png
+
+Convert to Markdown14-0000.
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tr><td>ROUTING</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+TO : DIRECTOR
+
+FROM : MERIDA
+
+ACTION : MI 8
+
+INFO : DDP, CCS 3, HH/SA 8, VR
+
+23 MAR 1987
+
+SECRET 0317157
+NEXT INFO HAVE DIP CITE "RID CASA DYNOIS PRODUCED" RES A. NEXT STATE (JG 03189) DIP 05150.3
+
+HERTON ETA MIAMI 242007 FROM "RID BY "AA 5" TO NO NEED FLOT.
+RETURN DIP ETA 2704157 BY "AA 452.
+
+C/S COMMENT: *AUTHORIZED MERTON'S TRAVEL JMAAVE.*
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+Copy No.

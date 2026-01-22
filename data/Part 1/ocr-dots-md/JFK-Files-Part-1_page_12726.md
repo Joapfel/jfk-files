@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_12726.png
+
+Convert to Markdown14-00000
+
+CABLE DEEM DISTRINISHED BY PER TOTAL COPIES N BY
+PERSON/UNIT NOTIFIED SECRET
+
+REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
+
+STAFF
+
+<table><thead><tr><th>NIT</th><th>INFORMATION</th><th>RF. FILE</th><th>VR.</th></tr></thead><tbody><tr><td>1</td><td></td><td></td><td></td></tr><tr><td>2</td><td></td><td></td><td></td></tr><tr><td>3</td><td></td><td></td><td></td></tr></tbody></table>
+
+T 126178 51A875 PAGE 03-23 IN 258432
+
+TOR:2117292 MAY 74 CARA 24483
+
+PROPOSITION WOULD BE APPROVED IMMEDIATELY BY THE MINISTER. COS COMMENTED THAT IF IDEA APPEALS TO THEM THEN WE WOULD EXPLORE FURTHER AT A LATER DATE.
+
+5. FILE: 75-6-55/3. E2 IMPDET
+
+SECRET
+
+SECRET

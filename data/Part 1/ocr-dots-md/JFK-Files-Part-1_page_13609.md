@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_13609.png
+
+Convert to Markdown14-00000
+
+RESUMEN
+
+miércoles 22 noviembre 1961
+
+2
+
+11:55 FUEMENTS preguntó al cubano HOGARO MARGAREZ que si ha habido elijo, pues a él se fueron a llamar de parte de un señor RODOLFO RO, que es miembro de la Habana y FUENTA no sabe si es cierto o le quieren tender una trama, porque parece que ya le andan piando los telones, por lo del Movimiento de Liberación, y entonces quiere saber si allá en la Embajada tienen información sobre las personas que llegan, a ver si este señor RODOLFO RO HURO está aquí o vino earlier. HOGARO le sugeere que mejor llame al Consulado de Cuba, aunque desde luego "no sabemos cuíen ses ese señor". FUEnte mejor va a hablar con el señor de la Cubana de Aviación, además de que va a ponerse más abusado.
+
+12:20 El Lic. AGUILAR manifestó al Ing. HERRERO CASTILLO que lo ha estado llamando en virtud de que reciclo un telegrama de los compañeros de Pova Rica, quienes tienen interés en saber en definitiva—quienes van y cuando estarán allá, además de que en el telegrama indican con quien ponerse en contacto allá. AGUI LAR agrega que precisamente esta ahí ahora NACHO ACOSTA y con él va a precisar los nombres para así telegrafiarles a aquellas gentes, pues parece que con los mismos cinco elementos inicialmente propuestos. HERRRTO dice que parece que se incorpora también NACHO ARÁNDRA. —AGUILAR a su vez manifiesta que ACOSTA indica la posibilidad de que también vayan dos o tres petroleros de la Soc. 55, y eso sería muy útil. HERRRTO no puede precisar quiénes son, no obstante que el sábado estuvieron trayendo ese asunto con los petroleros. AGUILAR dice que el acto será el sábado a las 20:00 hs. HERRRTO le recalca que la comisión estará integrada por el Lic. CALDERON, el Lic. CASTILLEROS Ing. SAINTS EROTTA, HUHO AGUIRRE, Sra. CASTILLEROS, el propio HERRRTO y los-dos o tres petroleros.
+
+12:45 Elías. H. ARO con una risa servil, dijo al Lic. SILVA HERZEG que ve con agrado que lo aceptaron como colaborador de la revista Política. SILVA aciente agregando que fueron muy gentiles. Combienado de tema TAMAJO indica que le mandará un ejemplar de la revista Roy en la que le hicieron una entrevista para contestar a HERRRTO.
+
+13:04 ARTURO AQUENDO RO, de la CTAL, envió el siguiente telegrama a C.S.I., SECRETARIA DE LA CTC DE LA HABANA, Cuba: "Potamos organizar una selva Delegación día 29 por Sabana. Urgimos conocer nombres y número delegados para reservación tríeo. Vsted y otros delegados deben estar aquí más tardar próximo lunes 27. Seludos".
+
+13:24 ARTURO ARTURO, de la CTAL, envió el siguiente cable: "C.S.I., Secretaria de la CTC de La Habana, Cuba:"

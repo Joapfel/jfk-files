@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_11663.png
+
+Convert to MarkdownChief, Finance Division
+
+23 October 1950
+
+Chief, FDT
+
+Restoration of Salaries for FULMINATER and FULMINATER-1
+
+It is requested that the salaries of FULMINATER and FULMINATER-1 be restored effective 1 October 1950. Both those individuals are to receive $50.00 per month to be deposited in their respective bank accounts (see TCS-A-1064).
+
+W. M. WHEELER, JR.
+
+SECRET
+
+2C1--33432--~~8~~?

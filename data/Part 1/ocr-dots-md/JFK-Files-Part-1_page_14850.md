@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_14850.png
+
+Convert to Markdown**SECRET**
+
+(When Filled In)
+
+No. C-73532
+
+MEMORANDUM FOR: Chief, SR DOB - P111
+
+Operational Approval is hereby granted in the case of _AEASPIC_ ____________, for the purpose specified in your request dated __9 Mar 1959__.
+
+This Approval is based upon evaluation of information available to this Office, and is granted under authority contained in CSI 10-5 and FR 10-215.
+
+CI/OPERATIONAL APPROVAL AND SUPPORT DIVISION
+
+Date: 11 Mar 1959
+
+Distribution:
+
+Orig. to Addressee
+1 to Files
+
+dss
+
+FORM NO. 124
+1 JUN '59
+
+SECRET
+
+(81)

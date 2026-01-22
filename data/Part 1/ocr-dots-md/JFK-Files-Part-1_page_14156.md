@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_14156.png
+
+Convert to Markdown8. Other accomplishments include the following;
+
+(a) **Operational Reporting:** During the last two years Hunkeler has traveled to and submitted operational and/or intel reports about Mexico, the Dominican Republic, Haiti, Jamaica, Venezuela, Panama and Costa Rica, in addition to reports originating in the WAVE area.
+
+(b) **Establishment of Cover Facilities:** In 1966 Hunkeler set up and maintained cover facilities for an agent who was initially trained in Hunkelers companies and subsequently assigned to a European post where he remained until a personnel reduction cut caused his termination. The cover aspects of this cover operation, however, were tight and professionally managed by Hunkeler. Other cover facilities developed by Hunkeler in this period included a cover office facility in Haiti, Venezuela and the Dominican Republic.
+
+(c) **Other:** In late 1966 Hunkeler met with an Officer assigned to the WAVE Station for the purpose of reviewing the operational potentials of the Caribbean. Hunkeler was able to provide the Officer with the names and introductions to persons well known to Hunkeler who are now in the Caribbean or residing in Miami and available to participate in QM, P.M., or informant capacities.

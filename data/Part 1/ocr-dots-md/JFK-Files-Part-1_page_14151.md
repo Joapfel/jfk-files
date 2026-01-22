@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_14151.png
+
+Convert to MarkdownSECRET
+
+(Career Agent Biographic Data p. 3)
+
+p Date of beginning of current tour:
+
+q. Previous CIA employment:
+
+| Years | Type of Cover | CIA Duties | Project | City | Salary |
+|---|---|---|---|---|---|
+| 15 Jul 1961 |  | Contract Agent (MOC) | JMWAVE |  | $9600 |
+| 1 Sep 1962 | NOC | Conversion to Contract Employee | FI Ops Off | Taskforce W | $9600 |
+| 17 Mar 1963 |  | FI Ops Off |  |  | $10,400 |
+| 5 Jan 1964 |  |  |  |  | $10,950 |
+| 5 Jul 1964 |  |  |  |  | $11,295 |
+| 14 Feb 1965 |  | Conversion to Career Agent |  |  | $11,315 |
+| 1 Dec 1965 |  |  |  |  | $12,510 |
+| 3 Jul 1966 |  |  |  |  | $12,873 |
+
+S.E.C.R.E.T

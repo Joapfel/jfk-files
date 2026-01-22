@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_15412.png
+
+Convert to MarkdownREPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. go
+
+<table><tr><td>MESSAGE FORM 22 RI</td></tr></table>
+
+| | |
+|:---|:---|
+| C.I. 3. E.U.NIUNA:G5*<br/>UNIT: SOI 1/08/3<br/>EST: 7/8/81<br/>DATE: 2 OCTOBER 1984<br/>| <input type="checkbox" checked disabled> INDEX 28 S-D-O-R-2-2-0<br/><input type="checkbox" disabled> NO INDEX<br/><input type="checkbox" checked disabled> FILE IN CS FILE NO. 201-300614 |
+
+TO LEE DAVIES
+FROM DIRECTOR
+CCNF: S O D 6
+
+INFO: AF 4, DDP5 W/H/SA 8CI/OPS5 VR, FILE
+
+TO : LEE DAVIS
+INFO: 
+CITE D12 546.54
+
+CHAPPE WITHRUSH FERMAN
+
+1. REQUEST FIELD TRACES ON EDUARDO JULIUS WHALEHOUSE EUSA, CURRI,
+   DEB: 14 MAR 1918, SAINTLACO, CUBA. EMPLOYED BY ATTIVAS PALMA AITENYS IL
+   CONGO FROM JULY 1961 TO SEPT 1961.
+
+2. LIASION AUTHORIZED.
+
+3. PLS ADVISE.
+
+END OF MESSAGE
+
+SOD/AD/CPS/3
+AF/5 G
+
+MICROFICHE
+
+COORDINATING OFFICER
+G-D-O-R-2-2-0
+
+RELEASING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+All Rights Reserved.
+No Part of this publication may be reproduced without prior written permission from Par Editions Limited. Copyright © 1981 by Par Editions Limited. All rights reserved. This edition is available only in its entirety and not in any form, electronic or mechanical, including photocopy and recording, without the express written permission of Par Editions Limited. Reproduction in part or whole is illegal.

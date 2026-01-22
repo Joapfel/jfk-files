@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_15250.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+# Mission
+
+7. Describe the itinerary of the agent from time of infiltration to time of exfiltration. (This information is needed in order to avoid using places he will visit in the documents.)
+
+8. Will the agent seek employment while on the mission? NO
+
+9. Will the agent contact any relatives or friends while on his mission? NO
+If so, indicate their places of residence.
+
+# Exfiltration
+
+10. Approximate date of exfiltration. Sight 5% month year
+
+11. Indicate method of exfiltration. Walk across an illegal border crossing
+
+12. If method is illegal border crossing, indicate exact location on border. (This information is needed for necessary border cachet or border pass.)
+
+SECRET

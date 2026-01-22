@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_10917.png
+
+Convert to Markdown22 April 1964
+
+MEMORANDUM FOR: CI/OA
+
+ATTENTION : LITAMIL-9
+(S-101331)
+
+SUBJECT : LITAMIN-9
+(C-101331)
+
+It is requested that a report be sent to the Mexico Desk regarding the status of the Operational Approval action on Subject. The QA was initially requested on 24 June 1963.
+
+John M. Whitten
+C/WH/3
+
+SECRET

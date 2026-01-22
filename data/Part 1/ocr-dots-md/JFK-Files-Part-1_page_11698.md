@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_11698.png
+
+Convert to MarkdownSECRET
+
+OPERATIONAL REVIEW
+
+COUNTRY Chile PERIOD COVERED Jun/Scot. '61 CRYPTOGRAPHY FULMINATOR-1
+
+OBJECTIVES AND TASKS: In a position to cooperate with this station in carrying out the RIGOROUS-STRUCTURING projects.
+
+SALARY: None at present time. Paid on a piece-work basis for work performed.
+
+EVALUATION OF SERVICES:
+
+No Change
+
+EVALUATION OF INFORMATION RECEIVED:
+
+Not applicable.
+
+OTHER FACTORS It is believed that FULMINATED-1's value to this Station's operations will increase in proportion to the increased WACACTUS operations in this area.
+
+COMMENTS:
+
+SECRET
+
+201 83761
+
+201 33483 .--.-..-..-

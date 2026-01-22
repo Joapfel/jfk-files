@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_15288.png
+
+Convert to Markdown5. Miscellaneous:
+
+Subject failed to give any information about a cousin of his who is residing in the U.S.A. Subject told the debriefer that this information was already passed to George.
+
+Cousin: could be a Wachtan Tschishchivili, who resides at the Oakland Apartments, Columbia Pike, Arlington, Va. Wachtan works for VOA, GS-11, radio announcer on the Georgian program. He is a member of some oriental research group which meets at Dumbarton Oaks, Washington, D.C.
+
+JOSEPH CHACHO

@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_14235.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>CONTINUATION OF<br/>DISPATCH</td>
+    <td>CLASSIFICATION<br/>SECRET</td>
+    <td>DISTRIBUTION AND DISSEMINATION</td>
+    <td>OSHA-23,408</td>
+  </tr>
+</table>
+
+7. The new Ambassador concluded his report with three recommendations:
+
+a. Rent another building where the Chancillary, the Commercial Office, the Consulate and the Cubana Offices can all be housed instead of being dispersed in separate buildings as they are now;
+
+b. Rent or preferably buy a residence for the Chief of Mission. The one they now have is not adequate;
+
+c. Send another person from Cuba who has the background to take care of scientific work plus continuing the contacts the Mission will have already made. In view of RUIZ's previous statement on the completeness of the staff, such a person would likely be a "non-official" representative of one of Cuba's cultural fronts such as the Casa de las Americas.
+
+8. RUIZ concluded his remarks by saying that in Spain there is a tremendous field for the Cubans, they have no language problem and they can do a great work. Such is the goal RUIZ has proclaimed and that Station Madrid believes he was sent to attain.
+
+Jane D. ASTRAHAN
+
+<table>
+  <tbody>
+    <tr>
+      <td colspan="2">FORM 530 USE PREVIOUS EDITION</td>
+      <td>CLASSIFICATION</td>
+      <td>[ ] CONTINUED</td>
+      <td>PAGE NO</td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td>SECRET</td>
+      <td>X</td>
+      <td>3</td>
+    </tr>
+  </tbody>
+</table>

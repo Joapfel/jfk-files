@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_14949.png
+
+Convert to MarkdownENCLOSURE I.O. A TO C: PA
+
+SECRET
+
+HOTOPN/CONTINUED CONTROL
+
+TITZICHVILI, David (Alias DATOURA)
+
+1. TITZICHVILI was born on 20 December 1919 at Tiflis in Georgia (USSR) of Simon and Marie KANTCHELI. He is also recorded as being born on 12 July 1918. In 1948 he married Sense PAREOT; they had two children and lived at 28 rue Catanis in Paris. He later divorced her.
+
+2. TITZICHVILI earned the first part of his baccalaureat, then entered the Foreign Legion at the beginning of World War II.
+
+3. He was identified on 8 July 1950 as a participant in an armed bank robbery committed on 26 June 1949 in Paris. He was hunted throughout France; particularly in the area around Gap where his brother lives; and was finally arrested in Cergy on 11 July 1950, after abandoning an automobile that he had stolen at Sens (Yonne), while attempting to enter Spain illegally by way of the Pyrenees. 55,000 francs were found on his person, he confessed to the crime and told where he had hidden 50,000 francs (the remainder of his share of the hold-up). On 5 January 1953 he was condemned by the Cour d'Assises de la Seine to seven years of hard labor for the premeditated theft of 1,969,000 francs. Taking into consideration the time he served while waiting to be tried and his good behavior, he was released on 19 December 1955.
+
+4. The measure to deport TITZICHVILI because of arrest, passed on 12 February 1954, was modified on 14 February 1956 to limit him to residence in the Hautes Alpes department, where his brother Achille PANASKET (formerly TITZICHVILI) now lives.
+
+5. TITZICHVILI had planned on immigrating to Peru upon his release from prison, but he was refused an entrance visa to that country. He had an Italian friend in Lisa named LAFRANCO RANGONI, who lives at Avenue Taena, Bureau 92 and is an official of the Peruvian Chemical Industry.
+
+6. TITZICHVILI had a rather stormy youth. He arrived in France in 1921 with his parents. In October 1936 he was condemned to imprisonment until the age of adulthood by the Tribunal pour Enfants de la Seine for theft. However, after a few weeks he was placed in his mother's custody. After that he fought in the war until 12 October 1940 when he was discharged. In 1943 he went to Germany as a voluntary worker and returned to France in June 1945.
+
+7. Upon his arrest in July 1950, he was not only charged with armed robbery, for which he was sentenced, but also for four thefts accompanied by violence and an attempted theft, all committed between 1949 and June 1950.
+
+SECRET
+
+WORLD/CONTINUED CONTROL
+
+CS COPY
+
+3-17-77

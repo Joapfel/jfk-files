@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_10406.png
+
+Convert to MarkdownSE
+
+20 May, 1965
+
+Subject: LIKING/4 Report of Conversation with LIKING/2.
+
+1. At 1300 on 20 May, LÍAKING/4 reported to Rowton at the Punta Blanco restaurant that she had seen LIKING/2 at the LIKING offices and, as instructed by Rowton, discussed with him her difficult financial situation resulting from the detention of LIKING/3. She then stated that she was seriously considering taking her long planned trip to Guatemala, since there she would be able to resolve the problem of living expenses. LIKING/2 sympathized with her but asked her not to make any rash decision. He pointed out that although her temporary financial problems would be solved, the moral obligation she had to follow LIKING/3's case from as close to Guatemala as possible would argue in favor of her writing a little more. LÍAKING/4 told Rowton that she felt that LÍAKING/2 was prompted to say this in light of a comment she had just made to him that a certain Lic. Castillo, a Guatemalan lawyer affiliated with the Mexican Embassy in Guatemala City, had gotten in touch with her over the weekend and told her he had care to Mexico City in connection with LÍAKING/3's case which he was handling at the request of the Embassy. ( LÍAKING/4 told Rowton that Castillo was staying in room 904 of the El Presidente Hotel and that she talked to him there for about 15 minutes.)
+
+2. LIKING/2 then said that he could do everything he could to find some sort of work to help LÍAKING/4 financially. He commented that work in the LIKING offices proper was out of the question, since the only persons employed there now are party members sat from the BAJUN capital. He aided, however, that he would propose to the LIKING "consejo" that LÍAKING/4 be given a position in the outside cultural office. He stressed that he could not promise anything, but he would do what he could to convince the powers that be.
+
+3. LÍAKING/4 promised Rowton to press LÍAKING/2 for this job since it would indicate the extent to which the LIKING Chief trusted her and give her some official access to the establishment, limited though it might be.
+
+W.B. Rowton
+
+SE

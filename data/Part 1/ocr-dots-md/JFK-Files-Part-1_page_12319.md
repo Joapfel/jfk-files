@@ -1,0 +1,683 @@
+# JFK-Files-Part-1_page_12319.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>
+     CABLE SECRETariat Dissemination
+    </td>
+    <td>
+     CLASSIFIED MESSAGE
+    </td>
+    <td>
+     TOTAL COPIES
+    </td>
+    <td>
+     ROUTING AND OR INITIAL-BEEN BY
+    </td>
+   </tr>
+   <tr>
+    <td colspan="4">
+     PERSON UNIT NOTIFIED
+    </td>
+   </tr>
+   <tr>
+    <td rowspan="4">
+     ADVANCE COPY ☐ ISSUED ☑ SLOTTED
+    </td>
+    <td rowspan="4" colspan="2">
+     SECRET (When Filled In) ENCORE FOR RELEASE REPRODUCTION OF THIS COPY IS PROHIBITED
+    </td>
+    <td>
+     1
+    </td>
+    <td>
+     5
+    </td>
+   </tr>
+   <tr>
+    <td>
+     2
+    </td>
+    <td>
+     6
+    </td>
+   </tr>
+   <tr>
+    <td>
+     3
+    </td>
+    <td>
+     7
+    </td>
+   </tr>
+   <tr>
+    <td>
+     4
+    </td>
+    <td>
+     8
+    </td>
+   </tr>
+   <tr>
+    <td colspan="3">
+     DISSEMIN BY ____________ PER ____
+    </td>
+    <td>
+    </td>
+   </tr>
+   <tr>
+    <td colspan="3">
+     ACTION UNIT ____
+    </td>
+    <td>
+    </td>
+   </tr>
+   <tr>
+    <td colspan="3">
+     FILE, VR ____
+    </td>
+    <td>
+    </td>
+   </tr>
+   <tr>
+    <td colspan="3">
+     ACTION NO. ____
+    </td>
+    <td>
+    </td>
+   </tr>
+  </table>
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET

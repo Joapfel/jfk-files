@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_12702.png
+
+Convert to Markdown14-00008
+
+OUTGOING
+
+SIGNAL CENTER USE ONLY
+
+<table><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr><tr><td colspan="7">CLASSIFICATION</td></tr><tr><td colspan="7">SECRET</td></tr><tr><td>REPORT HANDLING INDICATOR</td><td>DATE THE GROUP IS CNT</td></tr><tr><td>STAFF</td><td>302332Z</td><td>DIRECTOR</td></tr><tr><td colspan="6">CONF: CC52 INFO: FILE JOHN WH'S CMG/NoCYP OGC2</td></tr><tr><td colspan="6">TO: CARACAS.Y</td></tr><tr><td colspan="6">JOBCENTY</td></tr><tr><td colspan="6">REFERENCES: A. DIRECTOR SBSB31<br>B. DIRECTOR SB3068<br>PLS FURNISH HOS A COPY OF WKSCARLET-9'S 1973 FEDERAL TAX RETURN AND INFORMATION OUTLINED FR 20-18 ATTACHMENT 2. Y RE;</td></tr><tr><td colspan="6">2. REF B ADVISED #UKSCARLET/3 CORRESPOND IRS AND OBTAIN COPIES U.S. TAX RETURNS FOR TAX YEARS 1968 THROUGH 1973. HAS HE COMPLIED? IS STATION MAINTAINING CONTACT UNTIL TAX MATTERS FINALIZED? PLEASE ADVISE. E2 IMPDET.</td></tr></table>
+
+<table><tbody><tr><td>DOC. MICRO. SER.<br/>JUL 2 1974.<br/>MICROFILMED</td></tr></tbody></table>
+
+<table><tbody><tr><td>RECORD COPY</td></tr></tbody></table>
+
+DATE: 26 SEPTEMBER 1974
+ORIG: CCS/CSB
+UNIT: CHARLES E. BRISKEY/EG
+EXT: 9059GN3140X6
+
+WH/3/9
+WH/BF
+COORDINATING OFFICER
+
+<table><tbody><tr><td>201-0300985</td></tr><tr><td>30 Sep 74</td></tr></tbody></table>
+
+C/WH/SS
+
+CI/CCS/CSB
+AUTHENTICATING OFFICER
+
+CLASSIFICATION
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+CL BY:
+
+2 IMPDET
+CL BY: 063851

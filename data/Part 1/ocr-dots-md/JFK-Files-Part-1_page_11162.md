@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_11162.png
+
+Convert to Markdown15. Gustavo ARQUIS - Nothing except he arrested. Will query again re ARCOS.
+
+16. Mercedes MUÑOZ Carrillo - See Gen of the Casa Cita/Mexico in Habana. MULES acc L-9, cut him L-9 out of the Meican picutre.
+
+17. Gen. Fernando PAMANES - PAMANES is very close to Hilda de FRANCO in more ways than one. It is the talk of the town. In fact, it was that PAMANES was going to marry Hilda MÉRIDA de F. He is with her frequently and in public.
+
+18. Celia SANCHEZ - Acc L-9, SANCHEZ plans on inviting Coty STORZANO to Cuba sometime around end of year.
+
+19. Haydee SANTAMARIA - SANTAMARIA, it is rumored, will take over Carlos LEONINA's post at some time in the near future. At least, that's the rumor.
+
+20. Agustín Ucayali Páez - GUTIRA went to Spain really with his wife, who is going blind. Acc L-9, Dr. BENTÓQUE, son, of Iaracena told FIEDRA he couldn't do a thing for his wife, and GUERRA returned. Ace GUERRA, he wanted his daughter to accompany them to Spain but the Cuban Govt would not grant permission. GUERRA is anti-CASTRO completo, but he's going to stay through it all.
+
+21. Mariano RODRÍGUEZ - RODRÍGUEZ is a painter who recently went to Rome. THE Casa de las Americans suggested he go Spain, France etc to make contact with friends of Cuba but Consejo turned the suggestion down. It was then given to the Forreng office and they approved the travel.
+
+22. Ximara SANCHEZ - SANCHEZ has been fired from MERREY and she is not happy about it,

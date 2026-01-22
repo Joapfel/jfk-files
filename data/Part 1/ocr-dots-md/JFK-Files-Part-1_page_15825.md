@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_15825.png
+
+Convert to Markdownmanteau qui le mette de suite où l’on rentre. Le dernier sur une chaisse tout un journe.
+
+J’ai commencé an d’abril du mois de Novembre et j’ai travaillé jusqu’an d’abril du mois de Mars, j’en ai fait mon travail enychage depuis main ferme der la tan de demaincher pour reprendre quelque chose. La cabine de maison va se faire faire des enai de photo par la sémam prochaine. La foto l’appartient encore plus. Pour que cela marche. Cela me fait beaucoup!
+
+que je reprends encore! Nous voyons anay souvent Lami et Nathélula.
+
+Nathélula a changé de poit et fagut maintenant 150.000 - par moi.
+Je n’est pas mal!

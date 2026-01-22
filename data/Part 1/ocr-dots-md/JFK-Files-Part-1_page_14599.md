@@ -1,0 +1,575 @@
+# JFK-Files-Part-1_page_14599.png
+
+Convert to MarkdownCABLE SECRETARIAT DISSEMINATION
+
+CLASSIFIED MESSAGE TOTAL COPIES 16 ROUTING AND/OR INITIALS SEEN BY
+
+PERSON UNNOTIFIED
+
+ADVANCE COPY ☐ ISSUED ☑ ROTTED
+
+BY __________ AT __________ 2
+CUSTOM BY 8 PER ____
+
+SECRET 261525Z JAN 70 CITE WH/MIAMI 6341 WIM
+
+DIRECTOR INFO MADRID
+
+TYPIC AMAUTO
+
+REF: DIRECTOR 004676
+
+1. UNABLE TO DEVELOP LEADS TO AMAUTO/I'S FRIEND ALEXANDER SAMKO. HAVE REQUESTED CHECK FROM LOCAL LNERGO AND WILL ADVISE.
+
+2. FILE: /201-735256.
+
+SECRET
+
+26JAN IN013247
+
+<table>
+   <tr>
+    <td>AB</td>
+    <td>VII</td>
+   </tr>
+   <tr>
+    <td>AF</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>AH</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>AI</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>AM</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>AN</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>AP</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>AR</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>AS</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>AT</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>AX</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>AY</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>ZD</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>EI</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>WH/CI/CR</td>
+    <td></td>
+   </tr>
+  </table>
+
+US COPY SECRET
+
+201-735296 26 JAN 90
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET

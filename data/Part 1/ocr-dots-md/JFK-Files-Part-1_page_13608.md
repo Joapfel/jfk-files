@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_13608.png
+
+Convert to Markdown<table><thead><tr><th>DOCUMENT TRANSFER AND CROSS REFERENCE</th></tr></thead><tbody><tr><td>SUBJECT OF DOCUMENT<br/>Norman LAWFESTA</td><td>DOCUMENT IDENTIFICATION<br/>RI FILE NO. 97116<br/>DISP: EM-SOURCE DOC SYMBOL NO.<br/>FROM M.J. Scott DATE 29 NOV 61<br/>SOURCE CRYPTOLOGY DATE OF INFO. EVALUATION<br/>ANALYST DATE PROCESSED DISSEMINATED IN DATE<br/><br/>DOCUMENT DISPOSITION<br/>CROSS REFERRED TO THIS FILE TRANSFERRED TO RI FILE NO. 1<br/><br/>PERTINENT INFORMATION<br/><br/>Contact of Subject, while he, subject was in Mexico.</td></tr><tr><td>FILE THIS FORM IN FILE NO.</td><td>P 7365</td></tr></tbody></table>
+
+FORM NO. 867 REPLACES FORM 067. 1 MAY 94
+
+(3-44)

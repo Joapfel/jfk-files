@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_15177.png
+
+Convert to MarkdownMr. Robert P. Haghe
+P. O. Box 8028
+South West Station
+Washington 24, D. C.
+U. S. A.
+
+Dear Bob
+
+27 Oct 1959
+
+Received your first letter today. Will take care of the matter. Enclosed find some envelopes which I think are very colorful and might be an addition to your collection.
+
+Paul
+
+Via Aik Mai.

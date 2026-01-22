@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_15244.png
+
+Convert to Markdown14-00000
+
+TIFlis
+GEORGIAN ISSR
+
+1941
+BERLIN, GER
+
+AUSTRIA
+
+1943
+POLAND (LODZ, POZEN, WARSAW)
+
+201-2 33477

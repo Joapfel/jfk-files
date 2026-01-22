@@ -1,0 +1,126 @@
+# JFK-Files-Part-1_page_11752.png
+
+Convert to MarkdownCricket
+
+INTER-CITY MATCH IN VISA
+
+The Inter-City match played at had Meredith caught at the wicket
+Villa last week-end was interesting for O.
+enough to merit a commentary
+from R. C. R-G or E. W. Swanton.
+However, yours truly must suffer
+the weather was fine. Lucky
+Chuican cricketers, as last year's
+Wisen pointed out to find this
+unexceptional.
+
+Wonderful to relate the players
+were nearly all ready to start, as
+the secretary had ordinated, at
+10.30 a. m. sharp. However, nobody
+seemed to have faith in this co-
+ incidence and the game duly start-
+ed at 11 a. m. Santiago won the
+toss and chose to bat. One Villa
+optimist was heard to remark
+that this was defeatism, choosing
+to play for a draw. But by lunch-
+time with Santiago 90 odd for one
+and Meredith seeing the ball foot-
+ball size there were some signs of
+compalsiance amongst the San-
+t iago players. Manning had by
+this time been exasperating the
+bowlers with his smothering tactics
+which effectively closed up one
+en i while Meredith made hay.
+Even so it had not been fast mov-
+ing and it looked as if the draw-
+prophecy was not without found-
+ation. Jones had made a useful if
+lucky 26. Meredith was clear of
+his 50 and Manning was well, still
+there. Manning, incidentally, was
+using a substitute run getter.
+
+From Villa's point of view, the
+lunch Interval.. always a stuff
+hardly for the batsmen, worked
+wonders. It woke Manning, who
+d fitfully with a four like
+golden-rain fire-wonks and then
+went out played-on to Ness. It
+made Meredith careless and bad
+him bowled by Freestone. There-
+after the score-sheet shows a stea-
+dy fall of wickets until the end
+of the Innings. Santiago were
+unlurky to lose Hobsbawn, run
+out on his own call, who had been
+shaping un well, but apart from
+him and Tienken there had been
+no other serious attempts to stop
+the rot. Ness had taken 6 wicket
+for 55 and Freestone 2 for 15 when
+Strart's wicket fell caught at the
+wicket by Fairbrass off Maxwell
+at 3:30 p. m. Paine with 5 maidens
+out of 8 overs ha! been bowling
+with a consistency that was to be
+rewarded in the second Innings.
+Apart from a few muffed catches
+the fielding had been keen and it
+was anybody's game. Although on
+paper it was then to be expected
+that Villa would be able to put on
+over 200 in reply and leave San-
+tago to make up the difference in
+their 2nd innings.
+
+But the fates in cricket are no
+respectors of paper probabilities
+and Villa wickets fell with alarming
+rapidity. An overner Paine play-
+ed late and outside a fatally
+straight ball from Tienken. Sutton
+lost an L. B. W. suit to Meredith.
+Tienken traded Fairbrass into pas-
+sing a fly-ball to Knowles and
+Frestone allowed Marshall to
+knock off his balls. Maxwell and
+Paine were in together after tea
+and looked as if they might pull
+the game out of the fire but
+Maxwell, the safer of the two,
+played a weak forward stroke to
+a good left hand ball from Meredith
+to be bowled. Then it was Yeom-
+an and turn to me abitling at Marsir
+all and missing And Moodie was
+out to the last ball of the day
+being caught and bowled off a
+half-hearted stroke to a ball from
+Meredith. Reid was still there with
+53 but there was Saturday night:
+to come.
+
+On Sunday it was not long before
+The Villa tail lay down and stood
+and the scores stood at 155 to 140
+still anybody's game.
+
+In show End Infinna Santiago
+were off to a bad start waca Paine
+H P. Hardy, c. Macquarie.
+
+Then came Manning, and the
+bowlers heaved a sigh of resisat-
+ton, but 17 was a welcome stimulus
+to his team's fortunes and he hit
+with 3 boundaries to his credit
+when once again played on to
+Ness Then Paine bowled Jones
+who at 39 looked dangerous and
+the games' complexions changed
+perceptively. Knowles played some
+pretty

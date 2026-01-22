@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_15823.png
+
+Convert to Markdown5
+
+Jusqu'jusque là, sortant avec Ramaz
+Et puis il y a aussi une chou, en
+fem critiquent Maman à la von
+rue sans ni faire - Il me permet
+moi de critiquer. mais je reprend
+d'en tenir le autre le faire.
+Les Bibert Monstier sont presque à
+côt de nous exactement dans
+l'immeuble en face du mito Blacique.
+Il ont trouvé un appartement
+man avec. Tiens-tOI bien 1 million
+soix cent mille francs de repice. c'est
+fac. c'est le grand père qui a
+près l'argent qu'il a. on bousinait à
+raison de 10.000 francs par moi.
+Il ont reçu beaucoup de cadeaux
+et sont moulles et montées en baisseille.
+Nelly a
+Nous les voyons souvent. Nelly a
+fait une iède d'athétienne qui a

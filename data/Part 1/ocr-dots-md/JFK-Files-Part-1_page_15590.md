@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_15590.png
+
+Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 9 MAR 61</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : LEOPOLDVILLE</td></tr><tr><td>ACTION : AF 7</td></tr><tr><td>INFO : COP, DPD 4, CA 2. CA/EAG, CA/PROP, FI, F1/F4T 2, IV 2, F1/D, WE 4, DD/I, AD/C1, S/C 2</td></tr></table>
+
+<table><tr><td colspan="3">REJOICING</td></tr><tr><td>1</td><td>C</td><td>F-84E I</td></tr><tr><td>2</td><td></td><td>EAGLE</td></tr><tr><td>3</td><td>C</td><td>I-W</td></tr></table>
+
+MAR 9 1648Z 61
+
+ROUTINE
+
+IN 16135
+
+BRUS INFO DIR CITE LEP 0957
+WLRGDL
+ZIBET
+
+AIRL LEOP KNOWS PAUL ARNOLD PIERROT, HEAD CONGOLESE AIR FORCE,
+ATTEMPTED PURCHASE 6 AUSTERS, 12 BRISTOLS, 6 SPITFIRES AND 5 T-6 PLANES
+IN BELGIUM IN DEC. DOES NOT KNOW IF DEAL CONSOLIDATED OR UNLESS ACTUALLY
+PURCHASED. NEED ALL POSSIBLE INFO CONCERNING CONGOLESE PURCHASE OF
+AIRCRAFT. ADVISE.
+
+END OF MESSAGE
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy 1 of 2

@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_10693.png
+
+Convert to Markdown# FIELD INFORMATION REPORT
+
+GRADING OF SOURCE A. Computer search B. Unchecked C. Forgiven D. Not usually reliable E. Not reliable Applied to sources of southern Haiti or order, regard as their competence. F. Reliability cannot be judged. Applied to untested or sufficiently tested sources.
+
+APPEALAL OF CONTENT 1 Conferred by other investigator and reliable source 2 Probable true 3 Possibly true 4 Doubtful 5 Probably false 6 Cannot be judged
+
+CONFIDENTIAL
+CONTROLLED DISSEN/NO FOREIGN DISSEN
+
+COUNTRY Cuba/Haiti
+
+SUBJECT 0 Activities of Rolando Masferrer Rojas 201-042667
+
+DATE OF Mid-April 1966
+INFO
+PLACE & United States, Miami
+DATE ACQ (26 April 1968) UQ-8228
+
+REFERENCES
+
+SOURCE: A member of a group of Cuban emigrés trained in the techniques of information collection. The group has provided useful reports since 1961.
+
+1. On 21 April 1968 Enrique Masferrer Rojas said that his brother, Rolando Masferrer Rojas, who was in Miami, had received a telephone call from Canada on an unspecified date from the person who was to be the President of Haiti in "Operation Haiti." The Haitian asked Rolando Masferrer to go to Canada to assist with the mission. Rolando Masferrer replied that he was in a difficult situation and could not leave the United States until he received further instructions.
+The Haitian then asked that Rolando Masferrer send an emissary whom he selected completely and who was knowledgeable of the necessary things accomplishing the mission in Haiti. An unidentified emissary left for Canada on 18 or 19 April. The mission is still active. An unidentified emissary arrived on 18 or 19 April.
+
+On 21 April Rolando Masferrer received a telephone call from his emissary in Canada and the Haitian. After his representative told him that envoys would be sent to Haiti, the Haitian received a check from the Haitian which was sufficient for their needs.
+
+2. Rolando Masferrer bought a boat on an unspecified date from the Junta Revolucionaria Cubana (JUNA, Cuban Revolutionary Junta) for $25,000. The boat, which is in Miami, was then used as security for a loan of $5,000 which will be used to buy arms. According to Enrique Masferrer, everything that is needed has been obtained, and the operation will definitely be carried out.
+
+4. Another Cuban emigre in Miami said that Rolando Masferrer has about 400 men and all of the equipment which is needed for a military operation.

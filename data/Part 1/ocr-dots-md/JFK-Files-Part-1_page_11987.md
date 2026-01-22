@@ -1,0 +1,135 @@
+# JFK-Files-Part-1_page_11987.png
+
+Convert to Markdownwaiter, "W. . . will you have?" he asks
+graciously.
+
+Two reporters had figure-I breakfast
+was probably a ruse, so they think
+about food for the first time. It is a
+struggle. Rothchild's stomach is filled
+with embalming fluid. He feels queasy
+looking at the menu, branch asks only
+for coffee and an order of toast. Roth-
+child follows suit. Morales looks disap-
+pointed and urges them to eat more
+heartily. Inclán orders eggs and Mo-
+rales looks pleased. He orders a sump-
+tuous breakfast for himself. It arrives
+promptly.
+
+"Well," he asks grandly, "who do you think will win your election, Carter or Ford?"
+
+The reporters exchange the look,
+familiar by now, that signals their
+agreement that absurdity has reached
+new heights. They mumble offhand an-
+swers as Morales listens intently.
+
+"You don't really have much choice,
+do-you? -" he asks. "I mean, you have
+two guys who don't have any ideas and
+don't have any backbone, right? And
+neither one of them can command any-
+thing or stop anything, so it doesn't
+make any difference, right? At least
+that's what I get from Time maga-
+zine."
+
+Inclán tries to change the subject.
+She asks Morales about his position in
+the DISIP and gets no response. She
+mentions Morales' nephew, whom she
+knows in Miami, and Morales parries the
+remark. Suddenly a cloud comes across
+his face...
+
+"What's the matter with you?" he demands. "Why aren't you eating?" He points down at the dry toast, which Branch and Rothchild have been picking at like wafers at Communion. "Aren't you hungry?"
+
+Branch nods yes; Rothchild nods no.
+"You told me you hadn't gotten any
+breakfast, so I give you breakfast,"
+Morales declares angrily, waving his
+arms. "If you are not hungry, you are
+liars! What's the matter with you?"
+
+The reporters are exasperated. "We
+are afraid and confused," says Inclán,
+"because nobody will tell us why this is
+happening to us. I am a reporter like
+all the other reporters down here. I
+want to interview Orlando Bosch like
+I did once before..."
+
+"Never heard of him," interrupts
+Morales. He gives us an exaggerated
+shrug and a quizzical look.
+
+Inclán shakes her head in despair.
+"Oh, come on. You testified against him
+eight years ago in Miami and now he's
+the most famous prisoner in Latin
+America. He's in your jail."
+
+"Did he make Time magazine?" asks
+Morales.
+
+"Yes," says Branch.
+
+"I guess I missed it," says Morales.
+He pauses, then turns to Inclán. "You
+should not be running around asking so
+many questions," he says eternly. "You
+are a woman. Women should be at
+home having babies and making their
+men happy. Nothing else."
+
+>Inclán is ruffled. "I can work as well
+as most other reporters," she says.
+
+Morales shakes his head vigorously.
+"No you can't. You are a hundred miles
+
+aw from reality." He looks off and
+sa: again.
+
+"I don't think so," says Inclán. "I
+think you are."
+
+"No," says Morales, "You are a hun-
+dred miles from reality, and I am a
+hundred years from reality. You under-
+stand the difference?"
+
+"I don't know what I understand,"
+says Inclán. "I know something about
+you. Taylor says he talked to you about
+your background in Miami and you
+talked to him like a friend. He says
+you were nice and now you are..."
+
+"I am not nice," snaps Morales.
+"You know what I used to do in Cuba
+when I was a kid? I sent anonymous
+death wreaths to my friends. All the
+time. Is that nice?"
+
+Branch does not like this subject or
+the faintly homicidal look he sees be-
+fore him. He decides to make another
+stab at levity. "Look, Ricardo," he says,
+"I'm upset that you and your men have
+kept me from seeing anything about
+the last game of the World Series last
+night."
+
+"The World Series," he says, his eyes
+opening wide. "Let me tell you about
+the World Series. It is just like the
+world everywhere: the Reds are win-
+ing and the Yanks are losing!" Mo-
+rales breaks into laughter. Something
+snaps in the reporters and they laugh,
+too, uncontrollably. Fear floats out of
+their mouths and they feel better.
+
+Branch wades in to reestablish

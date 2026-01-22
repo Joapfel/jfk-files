@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_11965.png
+
+Convert to Markdown14-0000
+
+CABLE SEC DISSEMINATED BY
+
+PER TOTAL COPIES RUN 8
+PERSON/UNIT NOTIFIED SECRET
+
+REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
+
+ADVANCE COPY ISSUED: 1 2 3 4 5 6
+
+STAFF
+
+<table><tr><td>ACTION UNIT</td><td>1</td></tr><tr><td>FILE</td><td>2</td></tr><tr><td>VR</td><td>3</td></tr><tr><td colspan="2">color! clear cosinars.</td></tr><tr><td>ACTION #</td><td>4</td></tr><tr><td>INFO</td><td>5</td></tr><tr><td></td><td>6</td></tr></table>
+
+T 89883 IN 137730
+
+TOR:11514512 JAN 74 MMIM 26685
+
+SECRET 1421122 JAN 74 STAFF
+
+CITE WH/MIAMI 26685
+
+TO: SAN SALVADOR INFO DIRECTOR,
+
+REF: A. SAN SALVADOR 26685 (IN 134284)
+B. WH/MIAMI 26684 (IN 135313)
+
+1. NO ADDITIONAL SLIGO TRACES ON JOSEPH M ER O L A.
+
+2. FILE: 220-11-11/3. E-2, IMPDET.
+
+8/23
+CR
+R
+CL
+HL
+P
+SH
+
+SECRET
+
+Kitty C

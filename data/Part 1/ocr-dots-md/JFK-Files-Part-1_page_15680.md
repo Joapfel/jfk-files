@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_15680.png
+
+Convert to Markdown140000
+
+9. Funda - If necessary to protect the security of this arrangement, monies due you hereunder may be funded in other than a direct manner. It is understood and agreed that any monies so funded constitute payment by the Government in satisfaction of its obligations under this agreement.
+
+10. Cover. (a) It is anticipated that you will undertake a cover venture in the course of your performance under this agreement. Such venture must be approved by the appropriate Government representative overseeing your activities prior to its initiation. Any and all documents which you may execute in the course of said cover venture are subordinate to this agreement and any contradiction in terms which in any way amplify, extend or restrict your rights and/or obligations hereunder shall be resolved by this agreement which shall always be dominant.
+
+(b) To provide capital for your approved cover venture the Government will loan you $4000 to be secured by a non-interest bearing promissory note, payable on demand. Said loan will be deposited to an account in a foreign bank and a $3000 letter of credit will be issued you against that deposit. The additional $5000 will be released from said account, after approval by the Government representative overseeing your activities.
+
+(c) You will submit to the Government quarterly income and expense statements on the cover venture and copies of all tax returns filed in connection therewith. Your cover accounts shall be kept separate and distinct from the bank account into which your personal compensation payments are made.
+
+(d) You herein agree that monies loaned you by the Government shall be repaid from the profits of the cover venture, in amounts and at periodic intervals to be established by the Government representative overseeing your activities. After said loan has been completely repaid and all other obligations, such as local taxes, etc., have been made, you may retain any further profit derived from said cover venture. However, it is clearly understood and agreed that your primary obligation under this agreement is the performance of Governmental activities.
+
+11. Secrecy. All information related to this agreement conveyed through instructions, this instrument, or otherwise, is secret and shall not be divulged to any person, organisation or government in any form or manner, except as authorised by the undersigned Contracting Officer executing this agreement. It is agreed that any revelation whatsoever of the above information will constitute and be an immediate and final breach of this agreement and will result in forfeiture by

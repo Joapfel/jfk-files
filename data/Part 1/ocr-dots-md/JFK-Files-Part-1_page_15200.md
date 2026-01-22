@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_15200.png
+
+Convert to Markdown4-00000
+
+Sao Pau., le 29 octobre 1959
+
+Mon cher vieux Atchico
+
+Voilà une heure que je tourne autour du pôt
+et je ne sais pas encore par quel bout commencer. Je ne
+peux pas dire que j'ai été pour toi spécialement une
+benediction de frère, et souvent je t'si cause des em-
+nerdements plus que j'aursais jamais voulu t'en faire
+directement ou indirectement. Mais départ je l'avait se
+produire inévitablement. Et là part en raison de la con-
+trainte d'y sejourner jusqu'à une date indeterminée, et
+surtout en raison du travail qu'je suis en train de faire
+qui était prévu depuis longtemps. Mon séjour a Ambert n'a
+rien à voir avec mon départ, ce n'était simplement qu'un
+deplacement d'affaires.
+
+31 j'avais pu t'écrire plus tot, je l'saurais
+fait.Aujourd'hui c'est possible, et comme il reste beau-
+costé de choses en suspend je serais heureux de pouvoir
+les reprendre la ou je les ai laisseros.Je m'al jamais
+tenu à ce que tu supportes le prix de mes actes, aussi
+je compte sur toi pour me dire qui a tu paye pour moi,
+car je suppose que la majorité des gens ont immédiatement
+pense que tu étais responsable de mes dettes.Dès que tu
+me répondras, je te ferai parvenir immédiatement de l'argent
+pour te rembourser,ou eventuellement payer l'intéresse .
+
+Si tu ne le savais pas, je t'avise que Jacqueline
+est la première fons sur ma liste et il n'y a aucune
+raison pour qu'elle soit privée de ce qui lui appartient.

@@ -1,0 +1,61 @@
+# JFK-Files-Part-1_page_13792.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+ACTION:
+
+DATE: 23 NOV 1964
+
+INFO:
+
+FILE:
+
+<table><tr><td>RECEIVED</td><td>F-O-R- ly</td><td>(INITIALS)</td><td>DTC</td><td>INCOMING NUMBER</td></tr><tr><td>BOTH ENITERS</td><td>OPERATIONAL</td><td>INITIALS</td><td></td><td>3504</td></tr><tr><td colspan="4">CONFIDENTIAL</td><td></td></tr></table>
+
+TO
+
+CITE
+
+WAVE 5073
+NUMBER
+
+EFFECTIVE 1/1/68
+
+DISTRIBUTION STATEMENT:
+
+DISTRIBUTION STATEMENT
+
+BY ORDER OF SECRETARY
+
+BY ORDER OF OPERATIONS
+
+BY ORDER OF LOGAN
+
+BY ORDER OF CHAIRMAN
+
+BY ORDER OF PROKUHNEN ANHORP
+
+BY ORDER OF JOHN LAGAROS AMMUNITION
+
+BY ORDER OF JAMES HARRIS CORINTH
+
+BY ORDER OF GEORGE GORDON (O.B.E)
+
+BY ORDER OF JOSEPH M. SULLIVAN
+
+SECRET
+
+CLASSIFICATION
+
+INCOMING
+
+GYS. TO
+
+P. 7345
+
+F. Ambarado #2
+# 8308
+
+S.O.S.
+
+<table><tbody><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr><tr><td>INCOMING</td></tr></tbody></table>

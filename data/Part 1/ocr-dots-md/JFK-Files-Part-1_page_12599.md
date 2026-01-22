@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_12599.png
+
+Convert to MarkdownFrom: EVC, 1954, 25 October 1968 File: 73-6-41/3
+Subject: CIGUSTY Operational Reporting for September 1968
+
+**AMCIEVE-15**
+
+$50.00
+
+Subject attended the International Students Meeting at Merida and provided information which resulted in a dissemination. He continues to provide information on the activities of CIRADE and CIVISTA-5's group. Emphasis during September was placed on information relative to the arrest and interrogation of top-level MIR leaders.

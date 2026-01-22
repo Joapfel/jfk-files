@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_12100.png
+
+Convert to MarkdownSECRET
+
+References:
+
+Henry S. Woodbridge (former General Manager of Raymond-
+Hardman Park Hotel Whitecomb Inc. - now Assistant to the
+Washington, D. C. President, American Optical Co.)
+
+Warron Lee Pierson
+Chairman of the Board
+Trans World Airline
+New York, New York
+
+Subject holds U. S. Passport No. 227 and Social Security No. 091-09-6737.
+
+SECRET

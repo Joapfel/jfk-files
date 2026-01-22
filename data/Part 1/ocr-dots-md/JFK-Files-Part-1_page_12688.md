@@ -1,0 +1,181 @@
+# JFK-Files-Part-1_page_12688.png
+
+Convert to MarkdownSECRET
+
+Chief of Station, Caracas
+
+JACENT - WSCARLET/3 - Tax Administration
+
+REFERENCES: A. HVCS-4263 dated 1 April 1975 B. HVCF-6682 dated 17 June 1975 C. CARACAS 25040 D. DIRECTOR 583069
+
+1. Based on a reconciliation of WKSCARLET/3's 1971, 1972, 1973 and 1974 Federal income tax returns, it has been determined that he has an excessive tolerance (underpayment of tax) in the amount of $512.00 for 1971, $549.00 for 1972, $769.00 for 1973 and $425.00 for 1974. Attached, under separate cover, is a sealed envelope containing copies of each reconciliation which have not been classified so that they may be handheld to him for review. If security permits, this envelope should be opened only by WKSCARLET/3. The Station is requested to treat these documents as classified and they should be destroyed or retained in a sealed envelope by the Station.
+
+2. The $1,860.47 due WKSCARLET/3 per Paragraph 2 of Reference C should have been reduced by $349.25 (per Paragraph 1 of Reference A) representing underpayment of 1969 and 1970 taxes. Attached is Headquarters T/A # CC-0140 in the amount of $1,511.22, representing the 1971 tax due of $512.00, 1972 tax due of $549.00 and a portion of the 1973 tax due of $450.22. The collection of these taxes will liquidate the final payment due WKSCARLET/3. The balance of tax due must be paid by WKSCARLET/3.
+
+3. Please advise WKSCARLET/3 to mail his personal check in the amount of $743.78 to the accommodation address forwarded by Reference D. This amount represents the remaining portion of the 1973 taxes due of $318.78 that were not liquidated by his final payment and the 1974 taxes due of $425.00. The check should be made payable to himself without endorsement on the reverse. Also, please advise WKSCARLET/3 that the cashier's check for $147.00 and his original 1971 through 1974 tax returns were mailed to the IRS Philadelphia Office on 30 June 1975.
+
+Attachments:
+
+1. Reconciliations (4), u/s/c
+
+2. T/A # CC-0140, h/w
+
+Distribution:
+Orig. & 2 - COS, Caracas w/atts
+
+VICTOR D. UNITSKY
+
+E2 IMPDET
+
+HVCS-4303
+
+9 July 1975
+
+SECRET
+
+X - LA/NW/V (wo/atts)
+1 - CTG 2956T
+
+CCS/CSB
+
+CJAustin:lcp
+
+9059
+
+LA/NW/V
+
+LA/BP
+
+BY 063851
+
+C/LA/SS
+
+CIRC~~O~~N~~C~~C
+
+CCHSCTVC
+
+GHCZCPTVC
+
+C
+H
+C
+T
+C
+U
+N
+C
+C
+D
+K
+Y
+W
+A
+R
+D
+G
+M
+I
+F
+U
+L
+N
+F
+S
+V
+C
+Q
+S
+T
+I
+R
+T
+F
+R
+N
+S
+D
+U
+A
+D
+E
+E
+N
+C
+E
+E
+N
+D
+E
+E
+N
+C
+E
+E
+N
+D
+E
+E
+N
+C
+E
+E
+N
+D
+E
+E
+N
+C
+E
+E
+N
+D
+E
+E
+N
+C
+E
+E
+N
+D
+E
+E
+N
+C
+E
+E
+N
+D
+E
+E
+N
+C
+E
+E
+N
+D
+E
+E
+N
+C
+E
+E
+N
+D
+E
+E
+N
+C
+E
+E
+N
+D
+E
+E
+N
+C
+E
+E
+N
+D
+E
+E

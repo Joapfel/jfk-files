@@ -1,0 +1,66 @@
+# JFK-Files-Part-1_page_15548.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>DATE : 17 APR 61</td>
+    <td>TO : DIRECTOR</td>
+    <td>L-1 copy</td>
+    <td></td>
+    <td>FROM : FRANKFURT</td>
+    <td>ACTION : C/AE 3</td>
+    <td>INFO : COP, C/CI, C/EE 3, S/C 2</td>
+    <td>CLASSIFIED MESSAGE<br/>SECRET</td>
+    <td><table border="1" style="width:100%; border-collapse: collapse;">
+      <thead>
+        <tr>
+          <th colspan="2">ROUTING</th>
+        </tr>
+      </thead>
+      <tbody>
+        <tr>
+          <td>1</td>
+          <td>4</td>
+        </tr>
+        <tr>
+          <td>2</td>
+          <td>5</td>
+        </tr>
+        <tr>
+          <td>3</td>
+          <td>6</td>
+        </tr>
+      </tbody>
+    </table></td>
+  </tr>
+</table>
+
+APR 17 2141Z 61
+
+ROUTINE
+
+IN 37367
+
+DIR LEOP INFO FRAN CITE FROB (GROWN ACTING ) 9126
+
+C/S COMMENT: *CONCERNED NEGOTIATIONS WITH CAJEEP/2 FOR CONTRACT TO SUPPLY NON-PSPRIME PILOTS AND MECHANICS FOR CONGOLESE AIRFORCE SCHOOL IN CONGO
+
+RY BAT WI ROUGE ZIBET
+
+REF: A. LEOP 1169
+
+B. DIR 34146 (out 941.86)*
+
+1. CAJEEP-2 PHONED AT WIESBADEN HOME BY FOB STAFFER ASMR.
+
+RIEDER ON 14 APRIL. HE AGREED INFORM US WHEN CONTRACT SIGNED AND ON
+FUTURE TRAVEL.
+
+2. ON 17 APRIL CAJEEP-2 PHONED TO CONFIRM HE LEAVING FOR MIDDLE EAST. HAD HEARD NOTHING ABOUT CONTRACT BUT PRESUMES WILL BE SIGNED BEFORE HIS RETURN TO WIESBADEN CIRCA 1 MAY.
+
+3. WOULD APPRECIATE MORE DETAILS. ON REF B REQUEST FOR RECRUITMENT OF SELECTED CONGO JOB APPLICANTS. ADVISE LANGUAGE CAPABILITY DESIRED OR SPECIFIC CRITERIA FOR PROPOSED RECRUITMENT ATTEMPTS WITH GUIDANCE ON SALARY COMMITMENTS AND OPERATIONAL OBJECTIVES.
+
+END OF MESSAGE
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

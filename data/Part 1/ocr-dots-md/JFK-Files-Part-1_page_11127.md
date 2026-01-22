@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_11127.png
+
+Convert to Markdown<table><tr><td>INDEX: ☐ YES ☐ NO</td><td>014-File At. 32 & DEC By W#CCG</td></tr><tr><td colspan="2">CLASSIFY TO FILE NO.</td></tr><tr><td>X-REF TO FILE NO.</td><td></td></tr><tr><td>FILE RID ☐ RET. TO</td><td>BRANCH ☐</td></tr><tr><td>DESTROY ☐ SFS.</td><td></td></tr><tr><td>BISSED BY</td><td>/F PER #</td></tr><tr><td>ACTION</td><td>☑ RID COPY</td></tr><tr><td>INFO</td><td>FILE, MR, c/u.#,fcs 5</td></tr><tr><td colspan="2">ACTION CHANGE</td></tr><tr><td>HEXICS CITY 9483<br/>(STATION & NUMBER)</td><td>IN 52265 A<br/>(IN NUMBER)</td></tr><tr><td colspan="2">C/S COMMENT: THE ACTION RESPONSIBILITY FOR THIS CABLE HAS BEEN TRANSFERRED</td></tr><tr><td>FROM</td><td>: WH/CCG<br/>(DIVISION)</td></tr><tr><td>TO</td><td>: WH<br/>(DIVISION)</td></tr><tr><td>BY</td><td>: MR BELT<br/>(NAME, DIVISION, AND EXTENSION)</td></tr><tr><td>IN COORDINATION WITH :</td><td>: MR STEWART<br/>(NAME, DIVISION, AND EXTENSION)</td></tr></table>
+
+<table><tr><td>SECRET</td></tr></table> CITAMLT-9 201-329609 f

@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_10503.png
+
+Convert to Markdown14-00000
+
+SECRET
+
+Chief, Miami Field Office
+
+OSS-820-73
+31 May 1973
+
+Director, Domestic Contact Service (Support Division/OSS)
+
+Rolando Masferrer
+
+REF : OOA(S) 322/13864-73
+
+"K." Attached for your information and background orientation is some material pertaining to Rolando Masferrer, who appears to be identical to subject of reference.
+
+2. Subject should not be confused with his uncle by the same name, the infamous Rolando Masferrer y Rojas (erroneously reported as father of subject). The elder Masferrer was imprisoned in 1967 for organizing an unsuccessful invasion of Haiti. Young Masferrer may be engaged in dubious activity and contact with him should be viewed with cautious circumspection. He may be on a "fishing expedition" to obtain some information on Guillermo Iglesias; or he may be seeking to cement an affiliation with the Agency via the Miami Field Office. Masferrer may not be the good guy that the attached material represents him to be. He is known to be a wheeling and dealing fast dollar artist. Should he volunteer any information in the future, please note it, and send it to Headquarters. Of specific interest would be any information he may provide on narcotic trafficking and those involved in this illicit trade.
+
+3. ODO has no interest in young Masferrer. If we can be of further assistance, please advise.
+
+JAMES R. MURPHY
+
+Attachment
+
+GSMusulia/ds
+
+cc: Services Division (Control)
+Filed HH 23880
+
+E-2 IMPDET CL BY 004476
+
+SECRET

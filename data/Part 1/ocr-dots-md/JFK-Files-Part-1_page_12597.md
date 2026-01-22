@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_12597.png
+
+Convert to MarkdownAMENDMENT OR TERMINATION
+MEMORANDUM OF ORAL COMMITMENTS
+
+DATE: 2 January 1969
+
+TO : Chief, Finance Division
+
+VIA : Contract Approving Officer
+
+FROM : Chief of Station, Caracas
+
+SUBJECT: Memorandum of Oral Commitments: AMCLFVE-15 (Agent)
+
+201 - 300985
+
+Subject Memorandum, dated 20 August 1968 , has been amended or terminated as indicated below:
+
+1. Compensation. Effective 1 February 1969 Subject will be paid $1,500 per month (equivalent to $ 335.00 at exchange rate $4.47/$1.00). No other changes with respect to compensation or other emoluments or benefits as detailed in the original Memorandum have been made.
+
+2. Termination. Subject contract was terminated effective
+
+Appropriate secrecy agreements and acknowledgement that no further claims against contracting entity are outstanding have been obtained insofar as operationally possible and feasible.
+
+3. Other Changes.
+
+REVIEWED:
+~~C. Deaton~~ C. Brack
+Senior Contracting Officer
+
+SIGNED:
+~~Steven R. Faber~~ Field Contracting Officer
+(Chief of Station)
+
+REVIEWED:
+~~L. A. Presley~~
+Contract Approving Officer
+
+Feb 11, 1968
+
+SECRET
+
+US COPY
+
+201-300985

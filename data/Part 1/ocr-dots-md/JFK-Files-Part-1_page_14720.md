@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_14720.png
+
+Convert to MarkdownCONFIDENTIAL
+
+-2-
+
+in his choice of a career and probably helped KOVALEV through
+his own connections. (Fnu MATVEYEV, the father-in-law, had once
+been an important KGB official in the Belorussian SSR.) Source
+also believes that KOVALEV, while he is an MVD officer, has close
+ties with the KGB and may have been co-opted by it. He bases this
+belief on KOVALEV's close and frequent association with Anatoliy
+AKSENOV, a KGB lieutenant (the subject of a separate report). The
+Yubileynaya, a hotel where foreigners stay, is apparently one of
+KOVALEV'S assignments, as he is frequently seen there.
+
+6. (Fnu) PINYAZ⁹ is the MVD officer who works with KOVALEV. Born in about 1945, PINYAZ¹⁰ is of average height and build, has short blond hair, gray eyes, and dresses simply in an apparent effort to be inconspicuous. During a drinking session, PINYAZ¹¹ admitted to Source that he "cooperates closely" with the KGB. PINYAZ¹² is frequently seen at the Hotel Turist.
+
+7. Traces: (SE/SAG/OP routinely uses the following sources in tracing: Soviet GICS, Soviet travel, IP Main Index, OCR and SE/SAG/OP branch index. These traces should not be construed as being extensive or complete and any recipients of this report with an active interest in any of the subjects should run full traces of their own.)
+
+A. There are no Headquarters traces on Anatoliy Aleksandrovich AKSENOV (para 5).
+
+*AKSENOV, Anatoliy Aleksandrovich
+
+SEX: M
+DOB: 0 1948
+POB: USSR, Minsk
+CIT: USSR
+OCC: KGB officer
+LOC: USSR, Minsk
+
+Known to Soviet emigre 201-0948382. In charge of KGB unit in Yubileynaya Hotel in Minsk.
+
+B. There are no Headquarters traces on Vladimir KOVALEV (paras 2-5).
+
+*KOVALEV, Vladimir
+
+SEX: M
+DOB: ca 49
+POB: USSR
+CIT: USSR
+OCC: MVD officer
+LOC: USSR, Minsk
+
+Known to Soviet emigre 201-0948382. Is assigned to the Yubileynaya Hotel in Minsk.
+
+CONFIDENTIAL

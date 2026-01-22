@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_11688.png
+
+Convert to MarkdownAIR
+
+TCS-A-1398
+
+Chief, Foreign Division F
+Chief of Station, Santiago
+
+Administrativo
+
+Payments to avents PUBLISHED Projoot
+
+Reference: TCS-M-1102
+
+1. Pending preparation of a chronological review of the recent developments of the FILLITATION Project since submission of TCS-A-1267, Headquarters is advised that this station desires the termination of payments to FULIINATER and FULIINATER-1 an of 28 February 1951 and that no payments be made for the month of March 1951 or horeoforth until further notice.
+
+2. Due to the anticipation of an early termination of this project and the absence of any further need for the FILLITATION safe apartment, this station has allowed its control on same to lapse as of 10 March 1951.
+
+3. It is anticipated that the abovementioned review will be ready for submission to headquarters in the next available pachon. Meanwhile for Headquarters information the control over FULIINATER-2 has passed to FULIMERS who will handle the former's briefing and deployment as early as practicable.
+
+Joro. v. Dunbar
+
+ofc
+
+<table>
+  <tr>
+    <td>~~04~~</td>
+    <td>~~35432~~</td>
+  </tr>
+  <tr>
+    <td colspan="2">ESTRATIX INPEY</td>
+  </tr>
+  <tr>
+    <td>PATE</td>
+    <td>APR 15 1955</td>
+  </tr>
+</table>
+
+Copy
+
+201-88764

@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_12432.png
+
+Convert to Markdown132.- Circuitos Nacionales_y nextos_con el Exterior_
+
+Compradores .-
+
+En base a un fichero de compradores preparado a los efectos de este Estudio se desprende que:
+
+De los 430 compradores con licencia, registrados en el Ministerio de Minas e Hidrocarburos:
+
+* 104 cumplen con la Ley de los cusan:
+
+41 tienen una actividad permanente en el negocio, dentro del
+
+del país y
+
+63 tienen una actividad asporádica
+
+* 326 no cumplen con las disposiciones legales vigentes(Artículo 137 del Reglamento de la Ley de Minas )
+
+Grupos.-
+
+La población activa (104) de compradores está distribuida en 4 grupos.
+
+Grupo I TIMOTEO OCHOA
+Grupo II ROTH & EDER-MARIANO ALVAREZ
+Grupo III BARRADAS - DA SILVA - RODRIGUEZ
+Grupo IV INDEPENDIENTES (Gutwein, Onn, Gyula etc.)
+
+Circuitos dentro de los grupos.-
+
+GRUPO I
+
+Minero D Cumprador de Campo D Mayorista Ciudad Bolivar
+(Ochoa) D Diamond Distributors, New York
+
+GRUPO II
+
+Minero D Comprador de Campo D Mayorista Ciudad Bolivar
+(Alvarez) D Exportador Caracas (Roth & Eder) D Exterior
+
+Superior Diamond Cutter
+42 West 48 Street - NY 10107

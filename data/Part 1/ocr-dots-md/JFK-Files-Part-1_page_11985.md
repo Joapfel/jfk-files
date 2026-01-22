@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_11985.png
+
+Convert to Markdownwalkie-talkies and revolver bulges at the door of their plain dark suits. They station themselves around the hotel entrance and even in the flower beds. They have the place surrounded.
+
+There have been no phone calls—or at least that is the word from the desk. Branch paces nervously around the room. He thinks that something he already knows about C.I.A. Cubans and terrorism must be the key to what's happening, but he doesn't know what it is. He tells everything he knows to Rothchild, going all the way back through Prio and the pre-Castro stud- seat movement. Rothchild thinks Branch has lost his mind. It is fear, he figures. Branch realizes that Rothchild is lying down on the bed pretending not to be awake, that he has fallen into a stupor. It is fear, Branch figures.
+
+Then a call comes through, but it is not the contact Branch awaits. It Is Inclán, who has been denied a room at the Hil- ton (even though she had a reservat ion) and she can't reach anybody at the U.S. Embassy. She wonders what the hell is going on. Branch tells her the situation at the Avila, but she de- cides to come over; there are lots of rooms and at least the reporters can show some solidarity.
+
+It takes a long time, too long, for Inclán to show up. Branch wanders downstairs; Rothchild waits by the phone for calls that never come. There is an uproar at the desk. The clerk is telling Inclán there are no rooms avail- able even though the bank of keys is behind him in full view. He holds that position for about five minutes, then retreats to "there is some problem with you people. I can't give you a room." He seems scared. Everybody seems scared. Denying a woman a room at three a.m. in Venezuela is a serious violation of the chivalric code. The three reporters talk about it, but they can't sit down or move around without being followed, almost mimicked, by cops. There are now at least six of
+
+hem in the lobby at all times. Inclán ecides she will sleep on a couch in the lobby, and she wonders if she should put on her nightgown for the goons. She sets her bags beside one couch, and the helihop directs her over to a little one with a gracious flourish: he could have been opening the door to the wedding suite.
+
+After vanly scouring the lobby for pay phones, the reporters agree that they have to make a move for the room so they can talk near a phone. 'The three make their way up the stairs like Cary Grant tipworking between bed- rooms. To their relief, no one stops Inclán.
+
+Branch offers Inclán his bed, saying he will sleep on the floor. Rothchild doesn't say anything, but his paranoia tells him it is foolish to give the Vena- zuelans a chance to arrest them under the pretext of immoral conduct. Roth- child keeps opening the door because of his paranoia; Branch keeps closing it because of his. He doesn't want to be listened in on. Branch and Rothchild are not communicating much with each other by now. Each is worried that whatever he says the other will think it is crazy.
+
+Inclán tries to phone her editor in Miami, but it becomes clear after about an hour of excuses that the desk clerk isn't going to put through her call. Local lines still seem to be available, but whom to call? Branch has his list of connections, but these people are in their own delicate situations and Branch doesn't want to blow their cov- ers by calling at four a.m. on what is certainly a tapped line. Inclán can't get an answer at the U.S. Embassy. Roth- child has nobody to call, and that is one of his problems. Since he is so un- connected with the story, he is sure that the police will figure he is the heavy—a deep-cover C.I.A. man out of retirement from the Everglades.
+
+By elimination, the reporters can think of only one person in Venezuela that they could contact. Inclán has
+
+fled out, from her visit to the Ato Huon, what floor Ricardo Morales is staying on and she thinks she knows what his room number is. Her plan is to call him directly. It is clearly a desperation move. Inclán rings up Morales at the Anauco Hilton, apologizes for the hour and begins to explain her prevaricacy, but it is clear things are not going well. Morales ap- parently is denying that he is Morales. "You aren't Ricardo Morales?" Inclán asks incredulously. "You know me and I know you. I talked to your nephew in Miami yesterday. His family is fine and he sends his warmest regards."
+
+There is a pause and Inclán begins to sound

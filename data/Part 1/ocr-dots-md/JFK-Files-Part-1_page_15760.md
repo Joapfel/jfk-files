@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_15760.png
+
+Convert to Markdown**Translator for French letters**
+
+Nick Ltsou
+
+1l0h "J" Bldg.
+
+French Desk, W.S. X 3857
+
+Check for S/W in letters
+
+Mr. Callander
+TSS Photo X 8315
+
+Accommodation Address for David
+
+Ms. Murray , WH 2 B, X 8495
+
+Accommodation Address for David:
+
+Letters to France,
+
+Edardo Calle
+CANA POSTAL 11744 (Capa)
+Sao Paulo . Brasil
+
+Letters to Nf. for David,
+
+Robert P. Hague
+P.O. Box 8028
+South West Station
+wash. 24, D.C.
+U.S.A.
+
+J61-233477

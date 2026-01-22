@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_14719.png
+
+Convert to MarkdownCONFIDENTIAL
+
+SX-32554
+26 Sept 77
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Two MVD Officers in Minsk Who Are Engaged in the Surveillance of Foreigners
+
+SOURCE : (201-0948382). A foreign-language student from Minsk who worked in various jobs throughout the USSR. Born in 1949, he emigrated in 1976. Neither his bona fides nor his reporting reliability has been established.
+
+DATE OF INFORMATION: 1969-76
+
+DATE OF INTERVIEW : 26-28 April 1977
+
+<table>
+  <tbody>
+    <tr>
+      <td>DOC.</td>
+      <td>MICRO.</td>
+      <td>SER.</td>
+      <td></td>
+    </tr>
+    <tr>
+      <td>L:</td>
+      <td>i</td>
+      <td>2</td>
+      <td>b</td>
+      <td>1977,</td>
+    </tr>
+    <tr>
+      <td colspan="5">MICROFILMED</td>
+    </tr>
+  </tbody>
+</table>
+
+1. The two MVD officers described in this report are part of a small (and otherwise unidentified) section of the Minsk City Internal Affairs Directorate (GUVD) on Dobromyshlenskiy pereulok (the subject of a separate report). This section is engaged in the surveillance of foreigners for the apparent purpose of identifying those of their Soviet contacts who may be black marketeers.
+
+2. KOVALEV, Vladimir, whose nickname is "Boni", holds the rank of senior lieutenant. Born in about 1949, he is 174 cm tall, of medium build, and has slightly wavy short blond hair. He is very nearsighted and wears glasses. He dresses modestly and inconspicuously and has the appearance of an "educated and cultured" person.
+
+3. KOVALEV is married to Tamara nee MATVEYEVA, and they have a son, born in about 1972, who attends a special kindergarden for the children of high-ranking and other privileged officials. KOVALEVA, the daughter of a retired KGB lieutenant colonel, is a graduate of an economics institute and works as a senior economist for the State Committee for Standards, earning 170 rubles per month. The KOVALEVs live on Bobruyskaya ulitsa directly opposite a bus station.
+
+4. KOVALEV is a graduate of the Minsk State Pedagogical Institute of Foreign Languages, where he studied Spanish and English in the Department of Translating. After graduation, KOVALEV left Minsk for one year to go into the Army. However, Source found this hard to believe, as he knew that KOVALEV had been turned down for military service in 1966 because of nearsightedness. During the time that KOVALEV was in the Army, his wife told Source that where her husband was serving "they put army boots on once a month, just for show." KOVALEV's military service card (voyennyy bilet) nevertheless indicates both his 1966 rejection and the year that he supposedly spent in the Army.
+
+5. Source believes [RECD KOVALEV'S] father-in-law was instrumental
+
+CONFIDENTIAL
+
+201-948382
+
+<table>
+   <tr>
+    <td>
+     RECD
+    </td>
+   </tr>
+  </table>

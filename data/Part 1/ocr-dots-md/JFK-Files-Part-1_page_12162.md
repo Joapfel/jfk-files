@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_12162.png
+
+Convert to Markdown-4-
+
+Ferro que nos conoce con el mayor Pacheco no lo hay puesto a muestra des-
+posición el departamento legal la; en la zona Bucare, las fincas de bienveno
+tienen propias construcciones para sus habitantes en un trayecto de EC kilómetro
+tres, hay verdes estaciones y un servicio muy completo de trenes. En el -.
+Palmar nos recite el Coronel Daniel Gellagos y en su jorob nos conduce a la
+casa de Lemospauea, por seguir el investigación continuaos con el Cong.
+del Géllagos, hasta elTERRESTRE, allí conrétamos una ONON
+PRIMER PARROQUIA -PUERTO CORTÉZ, CONTÓN de Cas, Costa "ic". Las peculiaridades
+de esta población son los siguientes: 6 mill habitantes en su mayoría blancos,
+beteros, comereci nt a chinos. Sa fucil la entrada del Kar por las boles del
+-órbula y copen tres sub-reclones de regular tazón que hacen su servicio
+de C botaje con Punt Areas. Iniciamos la搜索 de estos habitantes es inter-
+ante: a su juguero s, taxadores de guaro bebida alcohólicamente violenta, sa-
+citán pelas y el servicio público, de inmediación es malo. El contrabande
+se hace sin mayores dificultades, y esta es el sitio más peligroso y vulná-
+ble pés todo, y que no hy autoridades de Policía suficientes pr el control
+ef ectivo del acviamiento de personas extrañas. Ec un sitio ideal donde presiden
+coactante todos los gaitórents coani稳定 que convivirán a los ojos de la
+zona bocanera del Palamar donde existe una fundación muy outlustre: se le va
+La Bocanera; está Palamar, sobre el Río "erraba" hay 3 kilómetros por e rreta
+en entre bocaneras de regular chilo. Se han found las verigas clonas sobre -
+depósitos clorados de amas y las informaciones con las siguientes: Entre
+Palamar y Golfito sobre la línea del ferrocarril en el Kilómetro 44 se tiene ne-
+tióna de la existencia de armamento equivalente con los gobiernista de Teodo-
+ro Ficoado fueron derrotados por los revolucionarios de José Figueres. Posible-
+mente este enterrado en esta sitio.
+
+VISITA A SIERRA.- Con el Señor Coronel Daniel Gellagos, Jefe de la Micine de
+
+Trabajo de toda la zona bocanera y con el Mayor Jorge Paché
+co, recorrimos todas las fincas de benenos de la C. B. de C. R. (38 en total).
+Cada finca tiene su Club House, sus barracones donde habitan los trabajadores,
+y cases para empleados, distribuidas en tal forma que se asumen a poquitos
+pueblositos. Llegamos hasta el estero de la Sierpe, otro bruzo de su comuniendo
+al territorio de la Costa por un pequeño Río. Estos son los estándartement
+incontrolados, pues como caso curioso, quillamos de rulo cuents, en la conversa-
+ción costumels con un guarda de este sitio, que hace más o menos 8 meses ha ido
+llegado dos chinos, comerciantes, sin pales ni documentos legales y viviendo.

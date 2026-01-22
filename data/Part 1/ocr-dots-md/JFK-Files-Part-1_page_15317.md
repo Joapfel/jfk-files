@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_15317.png
+
+Convert to Markdownbrought to a Lieutenant who took him to a Colonel. The latter, having heard that David wanted to get employed, this means that he did not belong to the organization, got mad, did not believe that an unauthorized person could have penetrated so far, (into a top secret area), and asked how he learned about the place. David told his story. The colonel checked on phone with the police H.o. and got the reply that they have such a man. David, then, was asked what he could do, his name was registered, and he was told that he will be contacted later.
+
+79. Through a chain of persons, linked to LUCAS, David got a request to prepare documents for a Belgian girl's journey to Paris. He consented.
+
+80. He met the girl, like many other persons, outside of his living place, on different places, and under good security precautions, f.i.: somebody entered the meeting place on his behalf and asked the person who was awaiting him to come out. He, David, was at that time out observing the environs, to see whether somebody would be surveilling his two persons. If there was no surveillance, then he followed his people, approached them in a safe place. He never brought them to his living place. But LUCAS and VILEMAIN had been to his quarters.
+
+81. Before he had finished the documents for the Belgian girl, he and ALLUMES had found after an airraid, an unexploded incendiary bomb. Allumes had explained that such a bomb, having not exploded when coming down, is harmless. They took the bomb to David's living place, and David, cautiously, tried to take out the capsule. The capsule exploded. The thumb and the forefinger of his left hand were damaged, and Allumes got a splinter into his face. The landlady was mad: the fools are playing with bombs, ruining her house which was saved in the airraid. She wanted to report them to the police, but David calmed her down, saying that he himself will report the case, he himself is a policeman, a.s.o.
+
+82. At the same time the Belgian girl happened to come and saw David injured. She showed no grief because of the paines caused to David and the loss of his fingertips, - she was angry that she could not have her papers and could, thus, not start her pleasure trip to Paris.
+
+83. It took injured David three days until the documents for the girl were ready, and an appointment was made to meet her in the ANHALTER BAHNHOF wherefrom the trains to Paris were starting after the Potsdamer Bahnhof was demolished. The meeting was fixed for 2200h.
+
+84. David went for the meeting together with ALLUMES, KATZ and ASTEREE. They found the station rather empty, and they thought that they had come too early. But then David noticed the

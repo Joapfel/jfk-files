@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_10871.png
+
+Convert to Markdown# PROJECT
+
+<table><tr><td rowspan="2">PROJECT<br>XP</td><td colspan="3">DATE OF INFORMATION</td></tr><tr><td>10-13 Apr 64</td><td colspan="2"></td></tr><tr><td>SOURCE</td><td colspan="3">DATE ACQUIRED</td></tr><tr><td>LITANIL-9</td><td colspan="3">10-13 Apr 64</td></tr><tr><td></td><td colspan="3">FIELD DISTRIBUTION</td></tr><tr><td rowspan="4">SUBJECT<br>Cuban Embassy Information Bulletin</td><td>DATE</td><td colspan="2">28 May 64</td></tr><tr><td>GRADE</td><td colspan="2">B-2</td></tr><tr><td>TO</td><td colspan="2"></td></tr><tr><td colspan="3">WASH DISTRIBUTION</td></tr><tr><td></td><th>DATE</th><th>REPORTS OFFICER</th></tr><tr><td></td><th>GRADE</th><td>A.D.</td></tr><tr><td></td><th>TO</th><td>AREA</td></tr><tr><td colspan="3">COMMENTS (if any): _________________________________</td></tr></table>
+
+<table><tr><td style="vertical-align: top;"><div style="font-family: 'Times New Roman', serif;">SOURCING INFORMATION IS SPECIFICALLY IDENTIFIED AS SPECIAL DISTRIBUTION OR LOAN. NOTE: COPY IN FULL TO FIELD E.</div><div style="text-align: center; margin-top: 1em;">SEE NO PUBLIC DISSENSE</div><p>In this document - by its/its terms, marginal.</p><p>This report should have carried the source description for Cuban information.</p></td><td style="vertical-align: top;"><div style="text-align: right;">FORM NO. REPLACES FORM 55-62</div><div style="text-align: left;">1 JUN 55 688 WHICH MAY BE USED</div><div style="text-align: right; font-size: smaller;">SOURCE RECORD (24) 2</div></td></tr></table>

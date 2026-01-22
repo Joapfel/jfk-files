@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_11887.png
+
+Convert to Markdown14-0000
+
+<table><thead><tr><td>ACTION</td><td>Wtlc 8</td><td>RID COPY</td></tr></thead><tbody><tr><td>INFO</td><td>FILE, YR, Cilm</td><td></td></tr></tbody></table>
+
+SECRET 2418122
+DIR CITE WAVE 7470
+TYPIC AMTRUNK MHAPRON
+REFS A. UFGA-23252
+B. UFGA-23254
+
+REQUEST STATUS POA REQUEST FOR AMLUNT-2.
+
+SECRET
+
+CFN 7470 UFGA-23252 UFGA-23254 POA AMLUNT-2
+
+ST
+
+24 Nov 65 IN 01451
+
+201-334081
+24 Jan. 1965

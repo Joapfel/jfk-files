@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_12922.png
+
+Convert to MarkdownTERMINATION SECRECY OATH
+
+I, Luis Clemente Posada C., am about to terminate my association with the Organization. I realize that, by virtue of my duties with the Organization, I have been the recipient of information and intelligence which concerns the present and future security of our country. I am aware that the unauthorized disclosure of such information is prohibited by the espionage laws of our government which specifically requires the protection of intelligence sources and methods from unauthorized disclosure. Accordingly, I SOLELY SWEAR, WITHOUT MENTAL RESERVATION OR PURPOSE OF EVASION, AND IN THE ABSENCE OF DURESS, AS FOLLOWS:
+
+1. I will never divulge, publish, or reveal by writing, word, conduct, or otherwise, any information relating to the national defense and security and particularly information of this nature relating to intelligence sources, methods, personnel, fiscal data, or security measures to anyone, including, but not limited to, any future governmental or private employer, private citizen, or government employee or official without the express written consent of the Chief of the Organization or his authorized representative.
+
+2. I have been invited to submit in writing any monetary claims I may have against the Organization or our government which may in any way necessitate the disclosure of information described herein. I have been advised that any such claims will receive full legal consideration. In the event, however, that I am not satisfied with the decisions of the Organization concerning any present or future claims I may submit, I will not take any other action to obtain satisfaction without prior written notice to the Organization, and then only in accordance with such legal and security advice as the Organization will promptly furnish me.
+
+3. I do not have any documents or materials in my possession, classified or unclassified, which are the property of, or in custodial responsibility of the Organization, having come into my possession as a result of my duties with the Organization or otherwise.
+
+4. During my exit processing and during my period of employment with the Organization I have been given an opportunity to report all information about the Organization, its personnel, and its operations which I consider should receive official cognizance. Hence, I am not aware of any information which it is my duty, in the national interest, to disclose to the Organization, nor am I aware of any violations or breaches of security which I have not officially reported, except as set forth on the reverse side of this sheet or on other attachments.
+
+5. I have been advised that, in the event I am called upon by the properly constituted authorities to testify or provide information which I am pledged hereby not to disclose, I will notify the Organization immediately; I will also advise said authorities of my secrecy commitments to our government and will request that my right or need to testify be established before I am required to do so.
+
+6. I am aware of the provisions and penalties of the espionage laws of our government and am fully aware that any violation on my part of certain matters sworn to by me under this oath may subject me to prosecution under the terms of these laws, and that violation of other portions of this oath are subject to appropriate action, including such dissemination of the violation as the circumstances warrant.
+
+I have read and understand the contents of this oath and voluntarily affix my signature hereto with the full knowledge that this oath was executed for the mutual benefit of myself and our government, and that
+
+SECRET
+
+RECOUP COPY
+
+20-50185-

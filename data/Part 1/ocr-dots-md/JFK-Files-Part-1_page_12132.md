@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_12132.png
+
+Convert to MarkdownSECRET
+
+KUINA - 27030
+
+On 17 August 1963 Subject stated that he had just returned from a trip with Valentin Vasilyevich BAKULIN (201-261513) (1). /BAKULIN is an identified GRU officer. The Station has no further information on the nature of this trip, nor any reports of other trips taken by Subject./
+
+From 6 to 19 November 1962 Subject was in the hospital (Sanatorio Reforms) in Mexico City. On 11 November he underwent a three-hour operation of an unspecified nature. The other Soviets had to take guard duty with him in the hospital, and it was stressed that one of the Soviet men should be with him after he came out of the operation. (1).
+
+15. CONTACTS:
+
+Subject is not known to have had any contact with non-Soviets during his tour in Mexico, with the exception of an occasional visit to one of the doctors regularly consulted by the Soviets. Subject's closest Soviet contacts appeared to be the following :
+
+a. Valeriy Aleksandrovich ANDRIANOV (201-293945), employee in the Soviet Commercial Office in Mexico from February 1961 to May 1964, suspect RIS. When the ANDRIANOVs left Mexico they were planning to get in touch with Subject's family in Moscow (1).
+
+b. Aleksandr Mikhaylovich DENISOV (201-726491), Second Secretary at the Soviet Embassy in Mexico since August 1962, known GRU. Subject appeared not to like DENISOV. It also appeared that DENISOV was responsible for reimbursing Subject for the gas Subject used in KUKHARENKO'S (see below) car (1).
+
+c. Aleksey Nikolayevich GANIN (201-757775), known GRU officer who visited Mexico 31 July - 14 August 1964. Subject, along with other Soviets who were known GRU officers, met GANIN on his visit to Mexico (6).
+
+d. Sergey Semenovich KUKHARENKO (201-260831), chief of the Soviet Information Bulletin in Mexico from October 1962 to August 1964, suspect KGB. Subject and KUKHARENKO were the best of friends for a time, but then KUKHARENKO began drinking too much and getting into various scrapes. Subject frequently commiserated with KUKHARENKO's wife over her husband's drinking, automobile accidents, money problems. Subject occasionally used KUKHARENKO'S car. (1).
+
+e. Oleg Pavlovich MOSKVICHEV (201-285090), employee in the Soviet Commercial Office in Mexico from March 1961 to July 1964, known KGB. Subject gave MOSKVICHEV his home address in Moscow (1).
+
+f. Vladimir Nikolayevich RADVANSKIY (201-298171), code clerk at the Soviet Embassy in Mexico since September 1964, known KGB. Subject is not known to have associated with RADVANSKIY; however, Subject's wife and RADVANSKAYA worked together in the school and children's camp, and RADVANSKAYA took over the camp after Subject's wife left Mexico. RADVANSKAYA asked Subject's wife to tell her (RADVANSKAYA'S) daughter to enter the institute when she saw her in Moscow (1).
+
+g. Vladimir Aleksandrovich ROMANCHENKO (201-727109), Second Secretary at the Soviet Embassy in Mexico since August 1963, no known RIS affiliation. When ROMANCHENKO was in Moscow on leave in May 1964, Subject told "Boris" (believed to be Subject's brother-in-law) to send letters to him through ROMANCHENKO when he came back to Mexico. Subject said that ROMANCHENKO could be reached through (enu) MURAVYEV at the Ministry of Foreign Affairs (1).
+
+SECRET

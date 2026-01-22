@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_12852.png
+
+Convert to MarkdownState Department Cable
+
+Date: 22 January 1977
+Classification: CONFIDENTIAL
+SUBJECT: CHARGE THAT POSADA IMPLICATED IN CIA PLOT TO KILL CASTRO PUBLISHED
+CARACAS 0680

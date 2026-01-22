@@ -1,0 +1,66 @@
+# JFK-Files-Part-1_page_15382.png
+
+Convert to Markdown14-0000
+
+MESSAGE FORM
+29 SECRET
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
+
+☐ NON
+☑ NO BOX
+☐ IF EN CO FILL NO.
+
+DATE 1 Apr 65
+
+TO LEOPOLDVILLE JANAVE (FOR LORENTZ)
+
+FROM DIRECTOR
+
+CON SOD 6
+
+NO AF6, DDP, WHK8, VR, FILE
+
+<table><tr><td>1 Apr 65</td></tr></table>
+
+97928
+
+TO
+PRIORITY LEOP
+CHAPPIE WITHEUSH PBRUMEN
+
+NO
+WAVE (FOR LORENTZ) Ctn DA
+
+REF: LEP 7937 (IN 33942)
+
+1. CONCUR REQUESTS PARA 2 REF.
+   IN EACH CASE
+2. BOTH CALLS TERMINATE CONTRACT DAY SUBJ DEPARTS LEOP. SINCE
+TERMINATION MUTUAL CONSENT, KUBARK PAYS RETURN TICKET COSTS.
+
+END OF MESSAGE
+
+AF/5 I. R. (old)
+AF/B&F L. Szydlik (phone)
+WH/C/MO I. M. (phone)
+SOD/SECUR G. M. (new)
+
+POOR QUALITY DOCUMENT
+
+E. N. KORN-PATTERSON
+AP/COPS
+
+BERNARD J. FINAN, JR.
+C/SOD/AB
+
+RELEASING OFFICER
+
+<table><tr><td colspan="2">CORRESPONDENCE OFFICER</td></tr><tr><td>SECRET</td><td>C/SDI</td></tr></table>
+
+AUTHENTICATING
+OFFICER
+
+REPRODUCTION BY OTHER THAN THE RECIRING OFFICE IS PROHIBITED. MICROFICHE
+
+801-300614

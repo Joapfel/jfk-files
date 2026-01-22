@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_15701.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+are no other risks in our judgment.
+
+9. Cost:
+
+$2000.00 termination bonus
+250.00 Transportation to Germany
+300.00 Write-off unpaid balance of ops loan
+500.00 Total
+
+10. NA
+
+11. NA
+
+* It is now learned subject has returned to Leopoldville. Although subject stated that he would not cause any trouble, his presence in Leopoldville may cause complications.

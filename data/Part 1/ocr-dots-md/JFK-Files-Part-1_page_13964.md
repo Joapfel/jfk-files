@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_13964.png
+
+Convert to Markdown1. Mrs. Victoria FERNANDEZ Padilla, newly arrived Atiache at the CMUN, was the Subject of a equip passed to your office 23 January 1970. Source "DGIK" provided the following information on FERNANDEZ on 1 February 1970.
+
+2. FERNANDEZ will stay in New York City for probably about a three month period; while here she will be working on documents and files at the CMUN. In Havana, she is employed in the documents section of the International Organizations Directorate of MINREX. She had been scheduled to come here for three months for the same purpose in Fall 1969 during the XXIV UN General Assembly, but Cuban Permanent Representative ALARCON had objected so her travel was postponed. FERNANDEZ is billeted in the apartment (5 M, 220 East 63rd Street) previously occupied by Justo Cesar GELABERT Martinez, Attaче; GELABERT is staying temporarily with Rogelio RODRIGUEZ Lopez, First Secretary, in his apartment in Queens, 15 M, 61-15 97th Street, Elmhurst. Neither GELABERT nor RODRIGUEZ is happy over this turn of events. FERNANDEZ is married, but Source does not know anything about her husband.
+
+3. FERNANDEZ is fat and ugly; she does not dress well. She is a mulatto. She is not known for her intelligence quotient. She has a somewhat rigid personality and does not get along well with people, male or female. She is convinced that she is discriminated against because she is part negro. FERNANDEZ considers herself as a revolutionary but does not seem to understand politics and ideologies. She takes herself extremely seriously. Within MINREX she is a "loner"; older than most of her female professional associates, she has nothing in common with them and her overbearing attitude is offensive to them. Source believes that it is almost a foregone conclusion that FERNANDEZ and Permanent Representative ALARCON will have a run-in, based on their respective personalities.
+
+4. FERNANDEZ' brother, Oscar FERNANDEZ Padilla, is Vice-Minister for Labor Justice, Ministry of Labor. He is an "old guard" Communist, and Victoria FERNANDEZ is thus linked in some minds to the out-of-favor old guard herself.
+
+5. In previous years Victoria FERNANDEZ has served as an instructress in the civil defense program. She has enjoyed being in a position of authority over those normally, outside the training program, her superiors in position and ability.
+
+6. She has no known intelligence/security affiliations, but Source believes that she would be happy to collaborate with the DGI or DSE if so requested.

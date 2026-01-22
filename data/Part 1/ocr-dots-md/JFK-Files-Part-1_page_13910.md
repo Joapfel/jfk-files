@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_13910.png
+
+Convert to Markdown203. Entrada 1155.- HF pregunta por ROGELIO y J.informa --- que no está. HF:¿que volverá a llamar dentro de 30 minútos para ver si ya llegó y caerle. J.que está bueno.-211.-
+
+211. Salidas sin contestación y ocupado.- 217.-
+
+223. Entrada 1226.- HF con ROGELIO ? (empiezan a hablar en el núm.259). HD pregunta cómo está eso y si sigue el -- problema. HF:¿que sí, pero creé que para mañana ya esté-bien; que necesita mandarle un presupuesto urgentísimo para que se lo apruebe, que se trata del presupuesto de que ha--bían hablado; que quisiera mandarle una persona pero desea-saber a qué horas para que lo encuentre con seguridad y lo-espere. HD:¿que lo mande a las 5½; pregunta si lo podría ver mañana a las 1330 h. y HF dice que sí. HD pregunta si "mi amigo ya se fué ó todavía no" y HF dice que se va -- mañana posiblemente. HD:¿que está bien; que de todas ma-neras esperará a esa persona ahora, pero quiere vor a HF --mañana a la una. HF acepta.- 268.-
+
+321. Entrada 1258.- ESPEJEL pregunta si ROGELIO ya está y -J.dice que sí, que lo está esperando.- ESPEJEL:¿que va para allá ahora mismo.- 325.-
+
+157. Entrada.- La señorita MARTINEZ preLUuta por ROGELIO --RODRIGUEZ y BUENAV.informa que no está. MF:¿que cuando-llegue se comunique con ella.- 163.-
+
+678. Entrada 1407.- La señorita DORRANCEZ preLUuta por ----ROGELIO y J.depaña de pedirle que lo aspore un coñefito,dice que por favor mañana le tenga listos los libros, porque ROGELIO irá a recibirlo a la sientora. DURRANCEZ, gra-dian.- 712.-

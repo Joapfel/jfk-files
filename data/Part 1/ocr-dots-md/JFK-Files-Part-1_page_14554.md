@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_14554.png
+
+Convert to MarkdownSECRET.
+
+- 7 -
+
+Nothing is known about unofficial contacts
+with other diplomats in Madrid except that he
+is close to and exchanges information with the
+Algerian Ambassador.
+
+At times he tries to give the impression,
+and this might be true, that he enjoys the full
+personal confidence of Osvaldo DORTICOS and Raúl
+ROA.
+
+He frequently tells other Cuban diplomat
+stopping in Madrid that he makes 90% of the
+decisions without consulting Havana because
+that is "why I am here for."
+
+Above all, he directs constant and bitter
+criticism against the bureaucracy in Havana
+because of its incompetence, which, in his opinion,
+will cause Fidel CASTRO to carry out a major purge
+after the 1970 sugar harvest comes to an end ("No
+one in Havana wants or cares to make a decision").
+
+The Peter Principle /\" In a hierarchy every
+employee tends to rise to his level of incompetence" 7,
+which he has read and is going to send to Fidel CASTRO
+for reading on the advice of Melba HERNANDEZ, should
+be taken as an example of what is happening in
+Cuba. Furthermore, in his view Havana is always
+trying to interfere with the Embassy in Madrid,
+resulting in lack of co-ordination and even co-
+operation. ( To Horacio FUENTES Martínez: " More
+than lack of organization there is chaos in Cuba
+today.")
+
+He directs almost the same criticism against
+his staff in Madrid because they lack qualifications
+for the posts that they hold." They think that I
+am a fool," he once told an associate, "but I
+don't miss anything that they do."
+
+SECRET.

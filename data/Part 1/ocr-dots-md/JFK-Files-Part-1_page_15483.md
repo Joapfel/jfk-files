@@ -1,0 +1,71 @@
+# JFK-Files-Part-1_page_15483.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>DATE : 16 NOV 61</td>
+    <td>
+     SECRET
+    </td>
+    <td>
+     ROUTING
+    </td>
+    <td>
+     4 C Day
+    </td>
+   </tr>
+   <tr>
+    <td rowspan="2">TO : DIRECTOR</td>
+    <td rowspan="2"></td>
+    <td rowspan="2"></td>
+    <td rowspan="2">5</td>
+   </tr>
+   <tr>
+   </tr>
+   <tr>
+    <td>FROM : LEOPOLVILLE</td>
+    <td></td>
+    <td>6</td>
+    <td>C Copy</td>
+   </tr>
+   <tr>
+    <td>ACTION : AF 7 (AF COPY SLOTTED 1215 16 NOV)</td>
+    <td colspan="3">
+     NOV 16 1543Z 61
+    </td>
+   </tr>
+   <tr>
+    <td>INFO : CI, CI/OPS, CI/OA, CI/PS, FI, EE 4, OT, S/C 2</td>
+    <td>PRIORITY</td>
+    <td colspan="2"></td>
+   </tr>
+   <tr>
+    <td></td>
+    <td>IN 23258</td>
+    <td colspan="2"></td>
+   </tr>
+  </table>
+
+PRITY MUNI DIR INFO FRAN CITE LEOP 2441
+
+UPHILL ZIBET
+
+1. STAHL ARRIVED LEOP 12 NOV LANDING DORNIER 27 AT NDOLO AIRPORT.
+
+HE IMMEDIATELY ARRESTED AND HELD BY GENDARMERIE, AND CAR TRAINEES.
+WIROGUE SAID HE THERE AND ARRANGED STAHL RELEASE. THREE ADDITIONAL
+
+DORNIERS IN GERMANY TO BE GIFT TO GOC. ALL ABOVE INFO FROM WIROGUE.
+
+2. HESTON, STAHL'S REGULAR CONTUMT, IS CURRENTLY ON VACATION UNTIL MID-DEC. STATION DOES NOT WISH TO DROP CONTACT THAT LONG DURING CRITICAL PERIOD CONGO. REQUEST MUNI ARRANGE NEW CONTACT WITH STAHL.
+
+WISH COME OR PHONE HESTON APARTMENT BETWEEN 1130 AND 1200 HOURS 22 NOV.
+
+ALTERNATE SAME TIME 9 NOV. ASK FOR MR PEEL. PLEASE ADVISE IF ABOVE CONTACT INSTRUCTIONS ACCEPTABLE. (FYI SALVACK WILL MAKE CONTACT WITHOUT REVEALING TRUE NAME OR FUNCTION.)
+
+END OF MESSAGE
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

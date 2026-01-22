@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_13062.png
+
+Convert to Markdown26 September 1956
+
+MEMORANDUM TO: CI/OA
+
+ATTENTION : Mr. Drew Kohler
+FROM : WH/4/Ops Support
+SUBJECT : Reinaldo PICO y Ramon
+C-85445
+
+1. The following is the birth date of Subject received in correspondence subsequent to the original request for clearance that was forwarded to your office. It is requested that this information be included in your files.
+
+(a) Date of birth: 21 July 1933
+
+(b) Place of birth: Regla, Cuba
+
+Distribution:
+
+Orig. & 1 - Addressee
+
+J. Piccolo/ds
+
+SEP 26 4 33PM 60
+
+C/WH/L
+
+Jacob D. Esterline

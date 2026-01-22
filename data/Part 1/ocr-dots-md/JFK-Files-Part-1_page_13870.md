@@ -1,0 +1,50 @@
+# JFK-Files-Part-1_page_13870.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+<table><tr><td>SECRET</td></tr></table>
+
+TO : DIRECTOR
+
+FROM : MERIDA
+
+ACTION: C/W 5
+
+INFO : DDP, ADDP, C/CI, DC/W/SA 5, VR
+
+<table><thead><tr><th colspan="4">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>|</td><td>4</td><td>|</td></tr><tr><td>2</td><td>|</td><td>5</td><td>|</td></tr><tr><td>3</td><td>|</td><td>6</td><td>|</td></tr></tbody></table>
+
+<table><tr><td>ANT</td><td>SJ</td><td>SM</td></tr><tr><td>LOG</td><td>FERS</td><td>A</td></tr><tr><td>RITS</td><td>LOG</td><td>CA</td></tr><tr><td>SI</td><td>BP</td><td>SM</td></tr><tr><td></td><td>SEC</td><td>NS</td></tr></table>
+
+SECRET 292000Z
+
+HEXI INFO DIR WAVE CITE MRID 0457
+
+DESENSITIZED
+DYVOUR PBR UME/N
+
+REF MRID 0436 (L) 4/11/1
+
+30MAR'17 72650
+
+I. ON 24 APRIL 64 LESNICK SAID:
+
+A. HE ERRED PARA I B AND GUTIERREZ COMMENT PARA 2 REF.
+
+B. THIS INFO REFERRED TO ORESTES GUILLERMO RUIZ PEREZ, MEMBER CUBEMB MEXI.
+
+C. RUIZ COUSIN CIRA ANTONIA MUINO RODRIGUEZ, WIFE ANTONIO CARLOS VECIANA BLANCH, FUND RAISER FOR GUTIERREZ.
+
+D. VECIANA WOULD APPROACH RUIZ MEXI ON REQUEST. NEEDS MEXI ENTRY VISA, US EXIT AND REENTRY PERMIT AND EXPENSES.
+
+E. VECIANA SAID RUIZ WOULD PROBABLY NOT REPORT APPROACH TO CUBE MB MEXI.
+
+F. NO FURTHER INFO ROGELIO RODRIGUEZ, 901-332665
+
+G. WOULD ADVISE ANY G-2 TARGETS GUTIERREZ MAY BE ABLE SUGGEST (PER WAVE SUGGESTION).
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+Copy No.

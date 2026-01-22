@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_15265.png
+
+Convert to MarkdownThe French had instituted a special means of control for the non-French citizens residing in France, and Subject had neglected to get the proper documents. Subject stated that these were the only brushes with two French Police that he had while he was a youth.
+
+10. Regarding his Army career, Subject stated that in 1939 he volunteered for service in the French Foreign Legion. He stated that he had registered, with his class, for Army service but had never received a notice to report, and this was the reason for his volunteering in the Legion. Subject went with his group to Tunisia, where he was assigned to the cavalry.
+
+11. At this time there was an attempt made on the part of the French to form ethnic companies, and the Georgians, under the command of Captain ODICHELIDZI (MR-IRD) (now a retired Major living in LeVesinet near Paris), formed into an infantry company consisting of about 120 men and were stationed near the town of Montpellier, France. Subject attained the rank of Corporal. This company saw no action, and in June 1941 Subject was separated from the Legion, which was then considered as part of the French Army.
+
+12. Subject went through part of his demobilization procedure in Lyons, France, where he was issued 800 francs and given a travel order to proceed home to Paris. When Subject arrived in Paris, he was required to go to the gendarmerie on Boulevard Exelans, which was the demobilization center for the Paris area, where he was issued an additional 200 francs and officially taken off the rolls of the French Army. Subject stated that this was the time of complete disorganization in France, due to the recent defeat by the Germans, and the beginning of the occupation.
+
+13. The French Army official, with whom Subject spoke regarding the possibility of obtaining employment, advised Subject to go to the French Military Intelligence. Subject stated that he obtained the address, which he could not recall at this time, and attempted to get in touch with the proper individual. Subject was unsuccessful and was given the "run around." Failing this, Subject returned home and lived at the family residence at #28 Rue Cabanis (this number has now been changed to #36). Subject attempted to lock for employment, but he was unable to find any type of work.
+
+14. Through some friends, Subject discovered that the Germans were hiring people for employment in Germany. Subject went to the German Arbeitsamt on the uni d' Orsay and made application for work in Germany. He stated that he was an electrician, and he was told that he would be sent to Poelitz-Stettin to work in a factory, where he would be receiving one mark per hour (which was then equivalent to 20 francs). Subject signed a contract for a period of one year, and he received a travel order to proceed to his destination.
+
+15. Subject stated that within a few days he and a number of other volunteers were loaded aboard a special train and proceeded into Germany.

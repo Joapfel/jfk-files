@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_15043.png
+
+Convert to MarkdownS-B-C-R-E-T
+
+REPORT ON CONTACT WITH AGENT OR DEFECTOR
+
+SUBJECT: WROGEL
+DATE: 8 Feb. 1965
+TME: 1505
+PLACE: Opie K. Donnell
+, Case Officer
+
+COMMENTS:
+
+Subject called for that he had gone & the Columbus
+Constitute which was closed. He said, something.
+with someone in the Constitute, and he said that
+everything regarding emigration could be done in FF/M.
+Subject will return to the Constitute on the 11th
+and expects to see C.O. on the 12th.

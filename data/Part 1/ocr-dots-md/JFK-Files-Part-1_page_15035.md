@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_15035.png
+
+Convert to MarkdownMemo for the record AYROGUE
+
+27 Feb. '63
+
+On this date Bill M. and Don McI. discussed the Airogue case with Earl Blake Cox(Chief, RMS, AMCONGEN Munich).
+
+Blake was told that we have a case which we wish to help immigrate to South America. Blake was told that we had hoped to send Subject directly to ICEM (Subject cannot immigrate directly to South America but must have all arrangements handled through I CEM) but that in exploratory talks with Gus Elmendorf (Chief, AFRP) Gus had been of the opinion that our case would be thoroughly investigated, interviewed, tested, etc.; procedures which we wished to avoid since they might bring to light the fact that our case was not the person he claimed to be.
+
+Blake agreed that Gus was correct in his thinking that if Subject went to ICEM on his own he would be interviewed and trade tested for a special program set up by ICEM to supply SA with certain higher types of skilled specialists, e.g. foremen, shop managers, etc.
+
+Blake suggested that we make our case USEP eligible through AFRP and then refer him to ICEM. This procedure would probably give Subject more status in ICEM's eyes and eliminate some of the background investigation. Subject would also be referred as a self-payer meaning he would have the funds to pay his own transportation.
+
+Blake asked if Subject would have a job waiting for him and was told that he would have no job but would have a letter attesting to the fact that there was $5,000.00 being held for him insalary and bonuses which he had received while working for the Army. Blake thought this arrangement would be satisfactory.
+
+Blake feels that coming to ICEM as a USEP case through AFRP Subject would probably be accepted without question since he would have been thoroughly checked out by Camp King and AFRP thus eliminating the need for investigatory action by ICEM.
+
+Blake was on his way to Bad Godesberg and said he would try to find out without arousing suspicion whether or not a refugee is fingerprinted and with what authorities the fingerprints are checked. He would also find out if a security investigation is made and how (over)

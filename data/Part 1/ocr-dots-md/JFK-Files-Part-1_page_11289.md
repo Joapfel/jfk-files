@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_11289.png
+
+Convert to MarkdownSECRET
+
+SUBJECT:
+
+DPOB: 1915 in Oviedo, Spain
+CITIZENSHIP: Cuban
+Presently Cuban exile residing in Mexico City
+OCCUPATION: Unspecified
+PHYSICAL DESCRIPTION:
+HEIGHT: 6 feet tall
+WEIGHT: 170 to 175 plus
+HAIR: black
+
+MARITAL STATUS: 1940 in Mexico City. They were divorced in 1956. She was
+
+PARENTS:
+FATHER:
+MOTHER:
+(Father and Mother are divorced and she is presently residing in Madrid, Spain.)
+
+BROTHERS:
+SISTERS:
+
+SECRET.

@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_15817.png
+
+Convert to Markdownothers do it.
+
+The Robert Honsattane are almost next door to us, exactly in the building across the street from the metro Glaciere. They found an apartment; but, hold on to yourself 1,600,000 francs deposit. It's crazy. It's their great-uncle who loaned them the money which they are paying back at the rate of 10,000 francs per month. They have received many gifts and are completely furnished. We see them frequently. Nelly went to a beautiful school which lasted three months. She liked it very much, but after going out, she didn't find a job. Through one of my friends I found her a job as a beginning sales clerk while waiting, but perhaps at the end she'll like being a sales clerk better. She's been working since Monday. Nina is still in the same job. She's waiting impatiently for Bernard to make enough money so she won't have to work.
+
+Mimi is still the same fortunately. As for me, I've changed professions.
+I am a model. Don't laugh. Evidently I am beginning in this career, but I hope it
+will work out. One can earn a lot of money and it's a tiring business but pleasant
+and feminine and a lot more interesting than the job as secretary where you rest
+your behind on a chair all day. I began at the beginning of November and I worked
+until the month of March. I've been unemployed since then, but I'm doing a lot
+of looking around to find something. The mannequin "cabines" are formed only
+toward the end of May. I must make some photo tryouts next week. Photography
+brings in much more. If only it works out I'd like it very much.
+
+What more can I write you! We see Louis and Nathela quite often. Nathela
+has changed jobs and is now earning 150,000 francs a month. Not bad! Hurry up
+and write us and tell us about the things you're seeing. Do you like Brazil?
+
+My dear Eduardo I am going to leave you. Write quickly if you can. I give
+you a big kiss and hope to do it for good one of these days.
+
+Amick
+
+2s, 233477

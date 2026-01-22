@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_13839.png
+
+Convert to Markdown(February 23, 1962)
+
+u) Hilario L.U. looking for subject urgently. Leaves message about a "sick" person. (LILIANO 5 Mar 62)
+
+v) One Mr. SILVA wants to speak to subject. (LILIANO 6 Mar 62)
+
+w) Julio Cárdenas tells the Cuban Ambassador he is leaving for Central America and offers his services. The Ambassador hasn't any need, but says to ask Nogelio. (LILIANO 7 Mar 62)
+
+x) Ricardo LlU wants to come by the Embassy for bulletins. Subject tells him better to meet at the same place and time. Ricardo has Central American accent. (LILIANO 8 Mar 62)
+
+y) Some gentlemen from La Normal are bringing a message from Acque MENDOZA and want to see Subject. (LILIANO 6 Mar 62)
+
+z) Subject tells Yuriy ALISHANSKY of Soviet embassy that he couldn't get to the meeting out will come to see him later. (LILIANO 7 Mar 62)
+
+a) Somebody named Pierre LiU is coming to the Embassy to see Subject. (LILIANO 8 Mar 62)
+
+bb) Some people from "Expression" from Cincoha came to the Embassy to see Subject but he not in. (LILIANO 8 Mar 62)
+
+cc) One Lucio Hernandez came to the Embassy to see Subject and was told to come in. (LILIANO 13 Mar 62)
+
+dd) Pedro CONZALEZ Ortega coming to embassy to see subject. (Person of this name was IF Secretary General in Mayarit and leader of small farmers and workers in coastal area.) (LILIANO 15 Mar 62)
+
+ee) One VERONARA, fnu left a message for subject that it urgent he communicate with him. (Later contacts - discussed the bulletins and family problems.) (LILIANO 19 Mar 62)
+
+ff) One T30U2, fnu, came to embassy to see Subject. (LILIANO 22 Mar 62)
+
+gg) A Venezuelan named MENDOZA, fnu came to the Embassy to see Subject. (LILIANO 22 Mar 62)
+
+hh) Arturo and Iuz SERVANO came to the embassy to see Subject. (LILIANO 23 Mar 62)
+
+ii) One Hilario, a Guatemalan, urgently wants to see subject. Hilario asks Subject "Que el recuerda el Jardin o en la Luna". Subject will look for him at 6:00 p.m. (Note in file that Hilario may be identical with Rafael SOLIS barrios, member of FGT). ...
+
+jj) Ricardo - with cuban accent - tells subject he waited for him yesterday. (SEVERAL LATER CONTACTS WITH ONE RICARDO) (LILIANO 27 Mar 62)
+
+kk) Roberto GAYADA and Mr. Garrigica waiting for subject at the embassy. (LILIANO 28 Mar 62)
+
+ll) Victor Manuel GUTIERRAZ, head of FGT in Mexico, met with Subject who told GUTierrez that the person who is going to take over relations with Guatemala in Mexico still had not arrived. Subject planned to see Alfonso Ikosa a leader of the 13 November group in Mexico. (LILIANO 28 Mar 62)
+
+mm) One MARTEL, fnu visited Subject at the school to deliver something. Later, a senora Martel, argentinian told Subject she leaving and please send things she lacked. (LILIANO 29 Mar 62)
+
+nn) One VARGAS, fnu, called Subject. (LILIANO 29 Mar 62)

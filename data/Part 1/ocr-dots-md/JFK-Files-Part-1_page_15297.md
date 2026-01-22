@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_15297.png
+
+Convert to MarkdownVII-
+LIST OF PERSON NAMES
+
+IN THE FOLLOWING RECORD (Page, Chapter, Subdivision.
+
+ADAM, Jean, 5B6; 6E11; 23E5,7,9,10; 24E11. Also: Jean.
+ALLGU, engraver, 16C59,60.
+ALLEGLES, radio engineer, 17C63; 19C91,84; 21C97,99.
+Asterée = SCHMIDT-AZI-BADASSI 15C51; 19C84.
+ARTFIELD, Jack and brother, 5B6.
+
+BAGRACION, LA3.
+BASSONPIERRE, De, 4B2
+"Belgian Girl" 19C79,82; 20C84,87,88.
+BORREAU = ELBET, Dr. 3A6.
+
+CAPRE, Jaques, 23E3.
+CASTAGNIET, sisters, 4B2.
+CHOUCHOU, 5B8.
+CUDONEG, 4B2
+
+DATTO = David TZITZICHVILI, 23E1.
+David, = " " , through the report.
+De BASSONPIERRE 4B2
+De PANASKHET = Achilles TZITZICHVILI,dit De Panaskhet.3A6.
+" " Catherine, 3A6.
+" " Irene, 3A6.
+" " Marie-Helene, 3A6.
+De WARREN, Lieutenant, 8C1.
+DIRENTIER, Nr. 4E3.
+DISSMANN = HATZ, 17C70.
+DRUMOND, Genevieve, 4B3
+
+ELBET Louis, Dr. = PORREAU, 3A6.
+
+GARGARETHELI, 5B9.
+Georges, 3A15.
+GIVI, 3A15, a cousin of David, in U.S.A.
+GOLA, 5B8.
+GOELITZ Ramon, 5B7a.
+GUEDEVANLOHVILI, Archilles, 8C4.
+
+HANAY, = DISSMANN, 17C70.
+Helen = LORDKIPANIDZE,née TZITZICHVILI,23E2. Through the report.
+Irakli = Lordkipanidze, 16C54; 23E2.
+Jean = Jean ADAM, 23E9; 24E12,13,16.
+Joachim, LMU, 4B4.
+JOHO or JOHIO, 11C18.
+JOIGNY Henry, 18C76.
+JORDANIA Atia, 3A13.
+" Nathela,3A6, married TZITZICHVILI,later ELBET.
+" Redik, 3A12.

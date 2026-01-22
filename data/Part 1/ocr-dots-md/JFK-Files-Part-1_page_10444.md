@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_10444.png
+
+Convert to MarkdownDDHA-34623
+
+10 May 1968
+19-120-13/1
+
+F. LIRING-3: During this period, LIRING-3 was introduced to members of a Guatemalan exile group, by the sister of his mistress. LIRING-3 agreed to help one or more representatives of this group cross the Guatemalan border. At the urging of these representatives he also agreed to meet in Guatemala with a woman in charge of logistics for the FAR movement. LIRING-3 spent the better part of the period under review manufacturing false documentation for the Guatemalan exiles. The Station used the LIZEMBRACE surveillance team to cover some of the meetings between LIRING-3 and some of his nervous Guatemalan friends. Copies of photographs taken by the LIZEMBRACES of these meetings were forwarded to the Guatemala City Station and Headquarters. Due to several postponements, LIRING-3 and his Guatemalan contacts had not left for Guatemala by the end of the period under review.

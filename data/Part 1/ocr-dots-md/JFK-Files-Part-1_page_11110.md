@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_11110.png
+
+Convert to Markdown4 April 1967
+
+MEMORANDUM FOR: CI/GPS/Rughe
+
+SUBJECT : LIZAVINE Project Renewal
+
+1. Reference is made to your Staff Review (Form 828) of the LIZAVINE Project Renewal Request. In response to your request, attached are our copy, of the report on 3-6 June 1968 debriefing of Morris J. CAPLETT and one copy of the results of his 7 June 1968 SABSAIIL. Copies of these reports are being forwarded to CI/CA with a request for clearance for CAPLETT's current use in Mexico.
+
+2. A request for operational approval for LITANIL-9 was submitted on 15 December 1968, but was not granted because of derogatory information which could not be resolved. However, LITANIL-9's location and use have changed since that time and a new request for operational approval for his current use will be submitted.
+
+3. A request for operational approval was submitted for LIRING-3 on 27 May 1968. Approval was not granted and he is being handled as a double-agent.
+
+4. LIRING-4 is not recruited or used in any operational capacity and no operational relationship is contemplated.
+
+W. J. Kaufman
+Chief, WH/I
+
+Distribution:
+
+Orig & 1 - Addressee
+2 - WH/Crono
+1 - LIZAVINE file

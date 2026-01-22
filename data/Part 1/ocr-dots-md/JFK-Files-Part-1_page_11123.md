@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_11123.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>10ct 66-31 March 67</td>
+  </tr>
+  <tr>
+    <td>B. LITAMIL-9. LITAMIL-9, who some years ago worked at LIARING has now been back from SERVICE for about six months and has been reinstated by the Mexican authorities as a resident alien in Mexico. Although LITAMIL-9 has no intention to go back to PÉRUGA, he has done his best to keep the FORUMEN door open. It has for example requested that his leave from his job in PARIS (originally for LIRE) be extended so that he can continue to do business in Mexico. The fact is that with each week that goes by LITAMIL-9 looks more and more like an exile in the eyes of the LIARING staff. Of the people who served with him at the</td>
+  </tr>
+</table>
+
+<table>
+   <thead>
+    <tr>
+     <th>
+      CONTINUATION OF DISPATCH
+     </th>
+     <th>
+      SECRET / AXPUR
+     </th>
+     <th>
+      COPY-STRAP AND NUMBER
+     </th>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td>
+     </td>
+     <td>
+      H04-31777, 10 Apr 67
+     </td>
+     <td>
+     </td>
+    </tr>
+    <tr>
+     <td colspan="3">
+      PERUEM Embassy the Ambassador, the ex portero and one of the employees from the Commercial Section are left. Although LITAMIL-9 can still visit the Embassy and talk with the Ambassador, it is clear that his rapport with the LIARING staff will be more and more reserved.
+     </td>
+    </tr>
+   </tbody>
+  </table>

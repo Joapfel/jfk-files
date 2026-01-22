@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_10817.png
+
+Convert to MarkdownUN COLEGA "El Sol de Hialash", nueva publicación dirigida por el Joven Raúl L. Martínez, Primogénito de "China". Es el primer periódico latino de la ciudad que programa. Su confección tipográfica magnífica. Una organa más para la cuna cubana.
+
+SUBASTAS. Por el Canal 2 TV. Iniciada el 21 hasta el 26 de abril. Pinturas, Esculturas, en venta. Para ayudar a la WTHS (canal 2) en el programa Educacional del Condado de Dade. En su servicio comunal. Convocados expertos de Arte. Para discutir los trabajos de arte y el talento artístico de donantes.
+
+DE INTERES. Para los pequeños comerciantes cubanos refugiados. Damos la noticia reiterada sobre los beneficios que pueden derivarse del sistema SCORE. Este organismo (Administración de Pequeños Negocios), que son los negocios de menos de 25 empleados, ofrece ayuda económica y orientación. Bajo ciertas condiciones. Las "cicinas" en el Room 912, Federal Office Bldg., 51 S W. y Primera Avenida. Miami, Fla.
+
+He aquí a dos cubanos de Miami que no descansan en sus afanes por el regreso honorable: Zacarías Acosta, ex-alcalde de Regla y jefe de los "Pinos Nue-...
+
+ce Fiestas tan saborosas queMorían sobre la nieve en el destierro de Estados Unidos o serán enterrados bajo las arenas de Miamí".
+
+Los productores de TV, radio y prensa escrita deben vigilar que no se produzcan commentes desmoralizadoras en los pedidos vehiculos de publicidad.
+
+Hablaba el desplumado "sinonte manigorno de Potrerillo", hoy recipiente de miserable pittanza en los establos de Augias de la "compafía" en Miami. "En defensa de LIBERTAD a los "municipios flangados Libres"
+
+Un amigo de la caza, que lo escuchaba, respondiendo al "sinsonte con espuelas y papada doble": "Usted es un comecheque. Aqui se hace pasar por revolucionario izquierdista y hasta quiso que los comunistas lo hicieran "comisionado municipal en Holguín" cuando la vispera andaba de cachanchan de Anselmo Alliegro, haciendo discursos picuos en Bañes. Yo lo muerdo bien. Andese con ciudad, que anda una gallota por el aire...".
+
+El paniaguado, que sirvió de instrumento para dividir a los municipios, a cambio de los 30 díneros, hizo mutis por el foro...
+
+XXY
+
+He aquí a dos cubanos de Miami que no descansan en sus afanes por el regreso honorable: Zacarías Acosta, ex-alcalde de Regla y jefe de los "Pinos Nue-
+
+El ex-general Batista, en asafan de venir a Estados Unidos, hizo que su hijo Jorge, que decía ahí, optase por la crudaznia americana, a fin de que lo reclamez para que pudiese entrar ahí. Pero cuando le recitaron la solicitud al muchacho, el general hizo que renunciase a la condición recia adquisita.
+
+Gore así lo está haciendo a los cubanos que operan en plena de TV en elsaludo, sin
+
+trascender 40 horas a la semana en Miami, el rumor de que tras de ellos esta Batista
+
+Las gentes prefieren los velechos publicitarios independientes, libres de compromisos con los "papaupas" de la plenaria.
+
+Muy bien la decisión, un poeta tate, de Enriquito Huetus, ofreciendo el dinero del museo-banco "Jose Martí" para "empeños serios" en la lucha contra Castro.
+
+Se le olvido decir de que zemado es el guanajo. Pero a esta a tiempo. En cuanto a lo de "empeños serios", le acercamos al presidente de los municipios en el exilio, que pida planes y proyectos a las organizaciones y listeres, sin dejar fuera a nadie. Y que en una especie de "Circling House", a cargo de concejales del asunto y previa amuevencia de aqueilos que hayan already algo que valga la pena oenga
+
+Para a

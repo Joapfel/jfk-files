@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_13725.png
+
+Convert to MarkdownEMBAJADA DE MEXICO
+
+VISA: DIPLOMÁTICA
+NUMERO: 648
+Valida para d'argüe a México
+LA HAGUAÑA, CUBA, 4 JUL 1963
+
+PO. DEL EMBAJADOR
+
+DELEGADO INTERNO
+CIVIL JUEGOSO
+
+25 JULIO DE 1963
+
+10
+
+11
+
+12
+
+13
+
+14-00000

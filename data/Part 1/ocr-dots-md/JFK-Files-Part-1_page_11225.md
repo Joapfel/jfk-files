@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_11225.png
+
+Convert to MarkdownLa Habana, 12 de Agosto 2: 1966
+
+"ANO DE LA SOLIDARIDAD"
+
+Firma: comparisons
+
+En relación a su atenta Nota No.318 s., Junio 10. 1956.
+
+Tenemos el gusto de informarle, que esta Nota no es un Lines del corriente, le remitimos a través de su Ministro, para confirmación de losيون, calificados por la III Jornada.
+
+Tambien, y con fecha de hoy, le estamos enviando los folletos (iguales) mineografiados, que son un extracto inolutorivo sobre dichos libros. Una vez examinados por Ud, el contenido de los folletos, si les creas asíl para la Zabujack, te lo ar uno o dos ejemplares.
+
+Con los ejemplares ca rieza hecha, se cumplirá todo lo dispuesto en elLibro, hecha por mediación, y por la cual se invita a participar en la International Children's Books Convention, que se celebrará en el mes de Noviembre de este año, New Delhi, India.
+
+Con saludos revolucionarios de "PATRIA O LUEITE", "VOCAREOS", ne reitero de Ud,
+
+fraternalmente,
+
+Manuel E. Vega,
+Director.-
+
+1 Cmp. Mts. Joaquin Martínez, Encargado de Negocios a.i.,
+La Encargada de Cuba en la India.
+Encargada de Cuba. Nueva Delhi, India.

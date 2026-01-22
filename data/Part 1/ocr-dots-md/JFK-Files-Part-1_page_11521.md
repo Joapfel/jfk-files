@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_11521.png
+
+Convert to Markdown14-00000
+
+26 December, 1968
+
+# CONTACT REPORT
+
+1. Agent: LIRING/3
+2. Date and Site of Meeting: 1100, 26/12/68; Camino Real Restaurant.
+3. Next Meeting: 1100, 28/12/68;
+4. Reports/Information Passed by Agent:
+
+a) Contact of Carlos López: L/3 reported that about 1430 on 24 December as he and his wife arrived at their apartment, they found a "chaparito" who introduced himself as Carlos López, a Guatemalan friend of Jacobo Rodríguez(Padilla), and gave L/3 a note of introduction from that person. L/3 gave Rowton the original letter, which is attached herewith. L/3 told Rowton that López stated that he was anxious to send various items, including medicines, to PERUMEN, and appealed to L/3 since he "understood" that L/3 and his wife had contacts through which he could send the items. López, according to L/3 appeared very interested to be reassured that L/3 really did have good contacts with the LIRING establishment. When L/3 assured him that he did see LIRING representatives, López went on to reveal that he was a friend of Carlos Perzabal and that he was fully informed concerning the recent "tragic situation" of both Persabal and LIRING/3. This bomb shell shock L/3 badly and he felt obliged to launch into a distribe against Perzabal. When López commented that "naturally we have to take Perzabal's word against yours, since he know him better," L/3 told Rowton that he demanded an explanation of who the "we" were. López simply replied that it meant "important" persons in Guatemala and Mexico. He added that, "as you know", Persabal was known even to César Montes. L/3 retorted, "But Montes has been stripped of his authority, as you should know." This led L/3 to the counterclaim that he also had good friends in Guatemala and Mexico who could testify on his behalf.
+
+LIRING/3 told Rowton that he then showed López a photostatic copy of the attached letter which he had written to Perzabal demanding an explanation of the calumnies he was known to be spreading against him, and which he had already sent to the CP Mexico and Spain. He asked López to keep the copy and tell his good friend Perzabal where he got it and under what circumstances.
+
+LIRING/3 continued to Rowton that he had to cut short the rather heated exchange with López since he had a date at 1600 that same day with "Rómulo" outside his apartment house.

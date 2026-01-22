@@ -1,0 +1,63 @@
+# JFK-Files-Part-1_page_13387.png
+
+Convert to MarkdownSECRET 1822237
+DIR INFO SAGO CITE WAVE 7250
+DIDORIC ZRGAMIN PERUMEN
+
+REF DIR 76863 +
+
+
+
+<table><tr><td>AN</td><td>? PS</td><td colspan="2">FIL</td></tr><tr><td></td><td>FZ</td><td>FI</td><td>DESTROYED</td></tr><tr><td colspan="4">ABSTRACT INDEX</td></tr></table>
+
+1. PAST SEVERAL MONTHS CLASC PROMISING HIRE AMICERS AFTER SOLUTION BUDGETARY PROBLEMS PRESUMABLY AT NEXT EXEC COMMITTEE MEETING. CLASC ALSO INDICATED CERTAIN AMICERS INCLUDING IDEN
+
+R I (ASSIGNED AMICE-31) WELCOME ABOARD NOW IN ANTICIPATION SALARY FUNDS
+
+C WITHIN FEW MONTHS.
+
+O P Y
+
+2. PLAN HAVE A-31 ACCEPT OFFER AND ALSO PERSONAL INVITATION ATTEND CLASC EXEC COMMITTEE MEETING SAGO. A-31 WILL BE INSTRUCTED PENETRATE CLASC FOR JOINT AMICE/KUBARK PURPOSES:
+
+A. REPORT DETAILS CLASC STRUCTURE, BIODATA AND INTER-RELATIONSHIPS KEY PERSONNEL.
+
+B. ASSESS EXTENT SUCCESS COMMUNIST FAR LEFTIST ATTEMPTS
+
+R I TRUN CLASC AGAINST U.S. THEREBY UNDERMINING HEMISPHERIC ANTI-CASTRO
+
+C SOLIDARITY.
+
+P Y
+
+C. MANEUVER INTO POSITION SPOT AND EXPOSE OR NEGATE ADVERSE INFLUENCES AND BRING CLASC MORE IN LINE MUTUAL GOALS.
+
+3. A-31 ETD 21 JAN. INDEX.
+
+* RE OP TO undertake MASTER O STATUTE IN CLASC, AND THIS SECRET S&T STAGE FOR HIS REPLACEMENT.
+
+SECRET
+
+D - 200 - 24
+
+FORM 1389
+
+RI COPY
+
+RI COPY
+
+(35)
+
+SECRET
+
+REPRODUCTION PROHIBITED
+
+<table><tbody><tr><td>1</td><td>2</td><td>3</td><td>4</td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+<table><thead><tr><th>DATE</th><th>COPY</th><th>REPRO</th></tr></thead><tbody><tr><td>FEB 11 1965</td><td>FEB 11 1965</td><td>FEB 11 1965</td></tr></tbody></table>
+
+SECRET
+
+REPRODUCTION PROHIBITED
+
+<table><tr><td>1</td><td>2</td><td>3</td><td>4</td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr></table>

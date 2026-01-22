@@ -1,0 +1,58 @@
+# JFK-Files-Part-1_page_11013.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+RIG: WAYNE CARLEY
+UNIT: WE/3/MEXICO
+EXT: 5940
+DATE: 23 May 1963
+
+☐ INDEX
+☑ NO INDEX
+☐ FILE IN CS FILE N.O.
+
+<table><tr><td colspan="2">12-42</td></tr><tr><th colspan="2">ROUTING</th></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+**TO:** MEXICO CITY MADRID
+**FROM:** DIRECTOR
+**CONF.:** WH 8
+**INFO :**
+DD+, CI/CA, SAS 5, WE 4, S/C
+
+<table><tr><td>DEFERRED</td><td>SIG CEH</td></tr><tr><td>X</td><td>ROUTINE</td></tr></table>
+
+TO Mexico
+PERIMEN LITAMIL
+REF MXII 4621 (IN 41326)*
+
+INFO MADR CITE DIR
+
+42325
+
+1. IN VIEW LACK INFO BDOS ON SISTER LITAMIL-9, SUGGEST MXII OBTAIN MORE DETAINED INFO ON SISTERS PROFESSIONAL CAPABILITIES, POLITICAL ORIENTATION, RECRUITABILITY, ETC, PRIOR INVOLVING MADRID STATION IN REF PROPOSAL.
+
+2. IN ASHOKAS LITAMIL-9 DOES NOT CURRENTLY RECEIVE ANY SALARY FROM KUBARK, MXLI SHOULD CONSIDER POSSIBILITY PUTTING HIM ON SALARY IN ORDER HELP SUPPORT MOTHER AND SISTER. THIS WOULD ALSO SUPPLY CONTROL FACTOR OVER AGENT.
+
+END OF MESSAGE
+
+*WH COMMENT: Ref requested Eos and Madrid comments on possibility of obtaining employment in Spain for the sister of LITAMIL-9 with an American firm.
+
+SAS/EDB Bryant (by phone)
+L-C/W2/5 ML
+WE/CGO H.S.T./K.Y.
+WE/COGS
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+GROUP I
+Excluded from automatic screening andوق大厦cition
+
+AUTHENTICATING OFFICER
+
+Copy No.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

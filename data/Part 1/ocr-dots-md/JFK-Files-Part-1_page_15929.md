@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_15929.png
+
+Convert to MarkdownSECRET
+
+| Case Name | Action Taken |
+|---|---|
+| DMMARGIN-3 | In response to a query from BOB, HARVARD provided clarification on the purpose and handling of Subject's Einweisungverfugung. |
+| TULANCE-1 | HARVARD continues to maintain contact with Subject through our local post box and is cabling Headquarters and other appropriate KUBARK elements the gist of each letter received. |
+| IDENTITY-238, 241 and 242 | HARVARD maintains periodic contact with this family and continues to pay the widow of Identity-238 a monthly subsistence payment of DM 150. |
+| IDENTITY-270 | Additional West German documentation (Abmeldebestaetigung, Versicherungskarte: and Lohnsteurkarte) were obtained during the month and forwarded to BOB. Subject is currently being processed for West German recognition. |
+
+* See Separate Cover Attachment for true name.
+
+### III. MISCELLANEOUS ACTIVITY:
+
+A. Effective 10 May 1963, Arthur A. LIFALL, Chief, HARVARD, became the Station Case Officer for Project CAMANTILLA (See EGOA-19737).
+
+B. A request for a provisional and full covert security approval on the local ODURGE officer who does the actual interviewing of HARVARD's candidates for immigration has been initiated. CSA has already been obtained on the local ODURGE chief. The additional clearance should allow us to develop an even better working relationship with these officers than has existed heretofore. When received, it is planned to brief both individuals in greater detail on CABEZONE/HARVARD operations.
+
+SECRET

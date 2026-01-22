@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_14518.png
+
+Convert to Markdown# ①
+Circa of US on CDA #420 N. A.P.R. ST.
+If heard previously of prior death in 1947 by name in Hesler for
+Having left after came under warnews at that time via
+Hard working little girl with newspapers in Hesler
+
+Full and finger ring available
+4pt. to buy from your代表 at
+Additive
+Additive (w/underlay)
+Additive, detatch, tie off help st: 19
+
+Additive: 12v E St. 1st, dpt. 19
+Detachment: Vienn
+Perfерт: 4948, Wurds.
+
+was a person in Dom Rep., not in the
+person, but in accordance with copy w/11 others
+for 15 deep reservoirs lived to be around her late
+was able wilderby track
+Post. Automatic Electronic tag used b/c use
+after all per paler p/13 best st. Zedediah
+of interest R of Accelerator U. when we met at DPT
+found a launch of Cubic Regeables walking of cdeent
+people. Forcelpio solar was in charge of crew, do
+ees our mateleized him. Bud really sad st was
+wilderby track Nov 56 - April st.
+was in Alclergy elementation de passed proper enda in Sienite e game.

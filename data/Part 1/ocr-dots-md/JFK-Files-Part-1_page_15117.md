@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_15117.png
+
+Convert to Markdownit would be preferable to have it done on 23 May during the regular working day. WIROGUE said that he was in no rush for the documents and please go ahead, take our time, but he would like to have them back within 48 hours. He then said what would happen if I went out on the street tonight without documents? LACKLEN said that he could possibly give him a simple identity card as working with the American Army here, but requested that WIROGUE stay in the ax apartment tonight, there was food there and we would bring in anything he wanted, such as magazines, etc. WIROGUE said that he was tired, that he would take a bath and stay in the apartment. LACKLEN said that he would return at approximately 1000 hours 23 May and if WIROGUE had any problems call the emergency number he was given.
+
+7. LACKLEN observed as WIROGUE was going through his wallet, attach case and pockets for various documentation which he thought we would like to photograph, an approximate 9" x 11¼" inch photostat black copy which identified as his birth certificate. During the course of the conversation, WIROGUE also said that he had a driver's license your people gave me with my passport and while mentioning his commission as a major in the Congolese army that he was able to obtain this rank by showing his German Army papers (sic). WIROGUE did not indicate whether these papers were given him or he obtained or made them himself. *ab*
+
+8. Incidentally, WIROGUE indicated he would go into Soviet Russia on his own, accomplish any mission we wished to assign him and return. All at his own risk, provided we would "help him". He also indicated exceptional interest in making phony documents, etc.
+
+*ab* LACKLEN did not ask him for these documents since they had apparently been provided by our "Service" and would be inconsistent with the story of the "Service's" interest in photographing Congolese documents, stamps, etc. It is believed that at the right moment WIROGUE could be taken elsewhere for lunch or some other excuse, that he would probably leave these documents in his apartment and we could take possession of them. However, when this is done and he leaves them, the die is cast.
+
+ECRET
+RYBAT⁵-

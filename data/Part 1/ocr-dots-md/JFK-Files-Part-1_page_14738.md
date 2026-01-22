@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_14738.png
+
+Convert to MarkdownSECRET
+
+-4-
+
+State Pedagogical Institute of Foreign Languages who Travel Abroad or are Disaffected (SX-31465).
+
+14. SAFEKEEPING OF MONEY: See Safekeeping of Legal and Illegal Money in the Soviet Union (to be published).
+
+PART III: TRACES (SE/SAG/OP routinely uses the following sources in tracing: Soviet GICS, Soviet and/or ZZ travel, IP Main Index, OCR and SE/SAG/OP card file. These traces should not be construed as being extensive or complete and any recipients of this report, with an active interest in any of the subjects, should run full traces of their own.)
+
+15. There are no Headquarters traces on Spartak Ivanovich KARASEV (para 6E).
+
+*KARASEV, Spartak Ivanovich
+SEX: M
+POB: USSR
+CIT: USSR
+OCC: professor
+LOC: USSR, Minsk
+
+Known to Soviet emigre 201-0948382. Psychology teacher and Dean of Teacher Retraining, Minsk State Pedagogical Institute of Foreign Languages. Travels abroad.
+
+16. Fnu KHOZYAYEV (para 6C) is probably identical to Mikhail Andreyevich KHOZYAYEV (201-0809235), born on 3 December 1928 in Mogilev. He was a student on a UNESCO fellowship to Leeds, Manchester and Edinburgh Universities in the UK from 30 September 1966 to March 1967. He traveled to the West on a few other occasions.
+
+17. Lyudmila KRASOVNA (para 6A) is probably identical to Lyudmila Mikhaylovna KRASOVNA (201-0890689), born on 23 June 1933 in Moscow. She was an interpreter at the Soviet Trade Representation in Amsterdam from 7 September 1971 to before April 1974. She has also traveled to West Germany.
+
+18. Kiril MAZUROV (para 6A) is identical to Kirill Trofimovich MAZUROV (201-0185622), born on 7 or 14 April 1914 in Gomel oblast. Since at least 1957, he has been the First Secretary of the Belorussian Central Committee and a member of the Central Committee of the CPSU, on the Political Committee. Also in 1957, he became a candidate member of the CPSU Presidium.
+
+SECRET

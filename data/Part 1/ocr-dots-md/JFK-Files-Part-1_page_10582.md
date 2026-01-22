@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_10582.png
+
+Convert to MarkdownSECRET
+
+23. Approximately in July 1964 I-1 had a second interview with "Nordice in the presence of "Jim" and "Enrique."
+
+24. At the special request of the "friends," in September and October 1964 we sent forward reports on the officers of the Revolutionary Armed Forces in the six provinces, including any background data and information we had on them. Afterwards, the work of making Summaries of Information was intensified.
+
+25. During August-September-October 1964 picket lines were formed in front of the airline companies that had flights to Mexico, and in front of airports, Mexican tourist agencies, and Mexican Consulates as a protest against the Mexican Government and its policy with relation to Cuba. This was done in Puerto Rico, Venezuela, Miami, New York and other place in the United States. This was done daily in Miami and New York. On different occasions pickets were placed in front of theaters which were showing Mexican films. In October pickets were placed in Miami and Miami Beach and propaganda was handed out at the time of the holding of the ASTA (Thirty-fourth World Congress of Travel Agencies).
+
+26. In November 1964 we began to pass information to the "friends" about the training camps which were being opened in New Jersey to prepare and train people for the invasion of Haiti. We infiltrated some of our people into this group and thus kept informed of everything that went on.
+
+27. At the end of 1964 and up to April 1965 we continued to make studies Among them were those on the Cuban Telephone Enterprise, the Department of Port and Coastal Vigilance, censorship of correspondence, Cuban national budgets 1964/65, radio programs heard in Cuba.
+
+28. At the request of the "friends" we collaborated in the reception activities for Juanita CASTRO and obtained the support of the exile organizations for rallies organized in Miami and New York.
+
+29. In December 1964 we organized a great propaganda campaign, mobilizing all the Masonic lodges so they would back the proposal of the Masons who were supporting LOPEZ Mateos at the UN.
+
+30. We acted as a support mechanism to the "friends" in the matter concerning Mrs. LIPPERT.
+
+31. In the first months of 1965 an attempt was made on three different occasions to carry out Rescue Operation No. 1.
+
+32. During the first months of 1965 we kept informed about the situation in the Dominican Republic and the participation of the Cubans and Dominicans in the Miami area in what was going on.
+
+33. During this whole period, in view of the division existing among the exiles and of the formation of so many new exile groups, we infiltrated our agents into all the organizations and reported on all the movements of leaders of these groups and their activities, on all their statements and action plans. Our aim and purpose was to report everything about the movements of the Cubans and the exile groups.
+
+34. During this period we also began sending all our reports for the

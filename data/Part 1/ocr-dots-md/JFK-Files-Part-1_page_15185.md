@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_15185.png
+
+Convert to MarkdownSR/DCB/59/2531
+
+8 December 1959
+
+REPORATION FOR: Office of Communications
+
+SUBJECT: Evaluation of Code of SR/DCB REDSOI Agent
+
+1. It is requested that the attached encoded message be broken and the code which it represents evaluated.
+
+2. This code represents the attempt of a REDSOI agent to formulate a worthwhile method of cryptography. It is therefore hoped that this code will prove of some interest to the Office of Communications.
+
+3. The following details are furnished concerning the encoded message:
+
+a. The message will be in the English language.
+
+b. The key to the code is contained in the text of the encoded message.
+
+4. It would be appreciated if a cryptographer or other representative of your office could interview subject agent, provided his code indicates he has an aptitude for this work.
+
+5. For further information, please contact Mr. Fred Kirkpatrick on Ext. 8331.
+
+MICHAEL RAB
+Chief, SR/DOE
+
+Att. - Message
+
+PC/ge
+
+Distrib:
+
+0 & 1 - add. w/l copy of att.
+1 - SR/DCB w/o " "
+1 - SR/DCB chrono

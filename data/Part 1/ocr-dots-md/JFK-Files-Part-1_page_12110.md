@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_12110.png
+
+Convert to Markdown14-00000
+
+<table><thead><tr><th>DISPATCH</th><th>CLASSIFICATION<br/>SECRET</th><th colspan="2">PROCESSING ACTION</th></tr></thead><tbody><tr><td>TO<br/>Chief, SB</td><td>X</td><td colspan="2">NO INDEXING REQUIRED</td></tr><tr><td>INFO<br/>Chief, NE</td><td colspan="3">ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td>FROM<br/>Chief of Station, Tehran</td><td colspan="3">MICROFILM</td></tr><tr><td>SUBJECT<br/>REDTOP AEKICK<br/>PCS Departure - Ivan Dmitriyevich OBYEDKOV</td><td colspan="3"></td></tr></tbody></table>
+
+ACTION REQUIRED - ENDED
+
+1. For your information, we no longer carry Ivan Dmitriyevich OBYEDKOV (201-779495), guard at the Soviet Embassy in Tehran, as PCS. He was not listed on ROGWEN's April 1971 Presence List nor their December 1971 list. We assume he has departed PCS.
+
+2. During OBYEDKOV's tour in Tehran his wife, Yelena, served as principal at the Soviet school. His son was apparently in Moscow living with Yelena's mother. On 28 October 1969, ROARC reported the grandmother calling to check with OBYEDKOV regarding a tutor for the child. They discussed the possibility of the tutor coming for three times a week, at five rubles per hour, but OBYEDKOV, after checking with his wife, decided on two times a week. OBYEDKOV seemed to be very fond of his mother-in-law. According to our AESCREEN transcriber, she was the only one that could tell OBYEDKOV what to do.
+
+3. The following are comments made by our AESCREEN transcriber on OBYEDKOV on 8 July 1970:
+
+He is very security conscious, especially in dealing with "official people" or superiors. He mentions his name to his friends freely, but refuses to say his name when he knows that one of the superiors is calling, "this is the duty officer" OBYEDKOV would say several times. He often lectures people when they violate security regulations when talking on the telephone. OBYEDKOV has to be persuaded several times or even
+
+(continued)
+
+ATTACHMENT:
+
+Photo, h/w
+
+DISTRIBUTION:
+
+2-C/SB, w/att., a/s
+2-C/NE, wo/att.
+
+CS COPY
+
+RIGGS
+
+CROSS REFERENCE TO
+
+<table><tr><td>DISPATCH SYMBOL AND NUMBER</td><td>DATE</td></tr><tr><td>NITA-25520</td><td>7 February 1972</td></tr><tr><td>CLASSIFICATION</td><td>HOS FILE NUMBER</td></tr><tr><td>SECRET</td><td>✓201-779495</td></tr></table>

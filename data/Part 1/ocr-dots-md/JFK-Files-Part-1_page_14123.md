@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_14123.png
+
+Convert to MarkdownSECRET
+
+5. Has agent any past connection with or has his intelligence status been identified to OSS, SSU, CIG, G-2, A-2, CIC, ONI or any foreign intelligence, police or security service? Is any such connection known outside CIA and the service involved?
+
+6. Any other factors, such as family problems, which might have bearing upon the personal security of the agent or his ability to live his cover.
+
+7. Has agent ever given CIA, Miss Violet Pitts, or "2430 E Street" or other potentially compromising reference for credit or other purposes? If so, where and approximately when? Cite any other instances of employment of cover for credit or other purposes not already cited above. Include specifically use of Agency-provided cover units or facilities.
+
+8. After the currently proposed tour, do present plans for this agent contemplate (a) continuation in a nonofficial cover status; (b) transfer to an official cover status; (c) assignment to headquarters or (d) termination? It must be recognized that protection of certain nonofficial cover facilities precludes early assignment to a more compromising cover status after completion of the non-official cover tour.
+
+9. If this request is for interim cover, what are foreseeable plans for eventual, more permanent cover?
+
+10. Identity, relationship, degree of knowledgeability, and address of person designated to Chief, Benefits and Counseling Branch, Office of Personnel for contact in the event of an emergency situation involving agent, as prescribed by HR 20-46.
+
+11. Government or Agency-affiliated beneficial plans in which agent participates (WAEPA, GEHA, Federal Employees Group Life Insurance, Association Benefit Plan, etc.) and other personal insurance held, together with identity and location of beneficiaries and whether or not each beneficiary is witting of agent's CIA affiliation.
+
+12. Agent's Selective Service, military or naval reserve status, including current unit attachment.
+
+13. Clearance status of agent, spouse, and other adult dependents who will accompany agent overseas. Are spouse and adult dependents knowledgeable of agent's CIA connection? His Government connection? Has agent been polygraphed?
+
+## D. OPERATIONAL INFORMATION
+
+### 1. Type of Operation
+
+The general type of operation involved, i.e., CA, FI, COMMO, Logistics, etc., and the expected duration of assignment. The sensitivity of the operation should be indicated—e.g., observation, spotting and reporting only; case officer for established agents;
+
+SECRET
+
+SECRET
+
+recruitment of new agents; penetration operation—and a statement should be included as to the identities of any individuals and organizations, in the U.S. or abroad (other than CIA staff personnel, cover facility officials, and those listed under 2(C) (4) above), who are or will be made witting of agent's CIA or U.S. Government affiliation while he is under this nonofficial cover.
+
+### 2. Location
+
+The city in which the agent is to reside should be specifically stated and alternates in order of preference should be given.
+
+### 3. Indicate localities outside of agent's permanent location which agent should be free to visit and state the frequency and duration of such visits. Also it is important to know whether or not the time and intervals of such meetings will be determined by the agent or dictated by influences or circumstances beyond his control.
+
+### 4. Special groups agent should be able to contact
+
+It is sometimes possible to relate a cover to a particular group in the operational area, i.e., social, cultural, political, commercial. If this is considered an important factor in the cover, this aspect of the requirement should be explained in detail.
+
+### 5. Approximate annual income which agent must be able to attribute to the cover organization. Sound cover, of course, requires overt (cover) explanation for a reasonable approximation of the sum actually to be available to the agent through Agency salary and allowances. However, a professional intelligence agent's qualifications frequently cannot plausibly command an ostensible income from commercial or other lay sources nearly approaching his Agency income. Firm understanding should be had relative to the agent's living within his cover income. Reservation of a portion of his Agency remuneration may be required. A less desirable alternative is the provision of additional cover for income.
+
+### 6. Estimate of the minimum number of hours per week which the agent must devote to operational duties.
+
+### 7. Communications channels desired
+
+In rare instances it may be possible to set up SW means of communication through the cover facility. If this is desired, the justification and frequency of such communication facilities should be indicated.
+
+### 8. Cover Suggestions
+
+Any specific cover suggestion or preferences expressed either by the agent or the operating division emphasizing the agent's special suitability to the cover suggested and/or the special advantages of the cover vis-a-vis the target.
+
+SECRET
+
+SECRET

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_12377.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="5">EXTRACT AND CROSS REFERENCE</th></tr><tr><td colspan="5">DOCUMENT IDENTIFICATION</td></tr><tr><th>DOC. SYMBOL & NO.</th><th>DATE OF DOC.</th><th colspan="3">FILE CLASSIFICATION OF RECORD COPY</th></tr></thead><tbody><tr><td>HCCP 19246</td><td>6 Feb 73</td><td>B</td><td>2</td><td>16 / 1</td></tr><tr><td>OOC. SUBJECT</td><td colspan="4">WRKELLY, Regius Pylot 1 Oct - 31 Jan 73</td></tr><tr><td colspan="5">SOURCE INFORMATION</td></tr><tr><th>SOURCE CRYPTOLOGY</th><th>DATE OF INFO.</th><th colspan="3">EVALUATION</th></tr><tr><td></td><td></td><td colspan="3"></td></tr><tr><td colspan="5">TEXT OF EXTRACT (Also cite doc. distribution, Disse. No., etc. - if applicable)</td></tr><tr><td colspan="5"><b>18. WKSCARLET-3:</b><br/>During this reporting period WKSCARLET-3 produced eleven disseminations and contributed to four others. As a chief of one of the operations sections of his service, it appeared that he would continue to have excellent access. However, in December WKSCARLET-1 reorganized his service and ostensibly reduced our agent's area of responsibility and access. WKSCARLET-3 was slightly depressed at this occurrence as he believed, and rightly so, that he had not merited this reduction. After the holidays, however, it became apparent that WKSCARLET-1 would continue to use WKSCARLET-3 in special operations and that the reduction in responsibility was solely to take WKSCARLET-3 out of the limelight. Thus, our agent is still able to report on the sensitive operations of his service. As a result of this and his past performance, WKSCARLET-3 was given a salary increase beginning January 1973.</td></tr><tr><td colspan="5"><b>7. WKSCARLET-3</b><br/>Although WKSCARLET-3 continued his fine production during this time period, it was HAPYSS activity which produced the real interest. Through other cables and dispatches we have reported his involvement in this irregular activity, which if proved true will end in his termination as a BKHERALD asset. At the present time WKSCARLET-3 is the security team leader for the Venezuelan delegation to the Gulf of Maracaibo talks presently being held in Rome. It is planned that soon after he returns, and if we have sufficient hard facts, we will confront our agent in an attempt to clarify his HAPYSS connection.</td></tr><tr><td>SUBJECT OF 201 2/70</td><td colspan="2">201-</td><td colspan="2"></td></tr></tbody></table>
+
+FORM 867 OBSOLETE
+9-68 PREVIOUS
+EDITIONS
+
+SECRET
+
+(7-68)

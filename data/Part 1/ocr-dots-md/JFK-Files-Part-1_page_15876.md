@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_15876.png
+
+Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>SECRET</td><td>OFR-32334</td></tr></table>
+
+He was then paroled to his brother and was living near Marseille. He attempted to go into business using some of the inventions that he had conceived during his confinement in prison. His personality and intense drive and self-confidence quickly gained him a business partner with capital to invest in a cinematographic color reproduction system that was patented and earned decent profits for the two of them. Subject was still on parole and tied to his older brother's "self-righteous intelligence," however. It was shortly after this that Subject was approached by a member of KUBARK who was following up on Subject as an ops lead furnished by a cousin in PARIS. Subject was favorably assessed and removed black from Franco because of travel restrictions imposed by his parole status.
+
+4. The rest of Subject's career has been generally summarized in DIR 57443. We are also attaching a copy of ECOA-21573 for information on Subject's most recent activities.
+
+5. Subject has been described as being very ingenious, observant, shrewd, glib, and one who relishes intrigue and daring. The latter play a very important part in his character. He learns quickly and carries out any assignment without regard for danger. His drawbacks, as enumerated by his case officers, are that he is headstrong, impulsive and constantly needs new interests, has an ego that feeds on recognition and triumphs, a low frustration point at unpredictable times, would probably "fall in love" with his CO which would make agent turn over difficult, and that he would be difficult to dispose of if he became disenchanted, i.e. Subject is a handling problem.
+
+Alice H. SHAW-ASZO
+
+Kenneth N. PECKLING-PAUGH
+
+Attachments:
+
+1 cy ECOA-21573, w/d/c #1
+Identity - u/s/c #2
+
+Distribution:
+
+Orig. & 1 - COS/Pari w/atts M/F & u/s/c
+
+<table><tbody><tr><td colspan="2">CLASSIFICATION</td><td>PAGE NO.</td></tr><tr><td>X</td><td>CONTINUED</td><td>2</td></tr></tbody></table>
+
+<table><tr><td>FORM<br/>5-60 $3a<br/>(40)</td><td>USE PREVIOUS EDITION.</td></tr></table>
+
+261-233477

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_13916.png
+
+Convert to MarkdownEXCERPTS
+
+From Attachment to HMA-23018
+
+4 March 1964
+
+MEMORANDUM FOR THE RECORD
+
+FROM : Lawrence F. Barker
+SUBJECT : Meeting with LITANIL-9, 30 Jan 1964
+
+2. L-9 reported on the following:
+
+a. On Saturday 18 Jan at the usual Embassy staff meeting, several new assignments were passed out. .... Rogelio RODRIGUEZ was given an assignment as Political Reporting Officer.
+
+1. .... Danilo PEREZ Regalado, a Honduran, visited Cultural Department. .... Later on he spoke with Rogelio RODRIGUEZ and told L-9 afterwards, "Rogelio doesn't seem to trust me."
+
+EXCERPTS
+
+Attachment to
+HMA-23018
+4 March 1964

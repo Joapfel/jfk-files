@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_13610.png
+
+Convert to MarkdownRESUMEN
+
+viernes 17 noviembre 1961
+
+que lo ha obligado a aumentar el tiraje. Effective ACWI has no habit extranjero de ver el nombre de BRENDAULT en una revista de estas hentes que siempre se han distinguido por sus atuendos y su hostilidad, pero no obstante eso acepta escribir el artículo que BRENDAULT le pide, a petición de JULIO SÁNCHEZ GARCÍA.
+
+11:23 Un individuo desconocido pidió a la revista Política que manode un fotógrafo y un reportero a la calle de Norte 45 A., cerca de La Villa de Guadalupe, donde están siendo golpeados unos ferrocarrileros, por grandes, que trataron de apodarse de unos furgones para vivir. JOSÉ LUIS MARGEUEDO tenía nota y verá que puede hacer.
+
+11:35 JACINTO NOEL, tal como se lo había indicado el Corl. C.A.D.E. ACUÑO, se reportó con éste para informarle que está ahí con el, una comisión de campesinos que quieren que los reciba. CADE NAS indica que lo hará la semana entrante y laxenta no poder saludar más ampliamente a JACINTO.
+
+11:45 ARCOYO CH., citó urgentemente al Corl. RANGEL ESCARILLA, en su oficina.
+
+11:46 ROGELIO Y. ETHIO, contacto de JUAN CARLOS CONCHAL INCORPORATED con el Sr. P. CONCHAL INCORP. Corporation de Los Angeles California, en el asunto de cierta cantidad de arroz que va a comprarse para la Embaja da de Cuba, preguntó a URBIETA qué han resuelto sobre el particular. URBIETA indico que CURICA necesita tener la muestra.
+
+12:15 MIJAILLO de la Embajada-Nusa, de acuerdo con la invitación que lo hizo XICILIA S. COTIÑO para pasar este fin de semana en la casa de COY, en Cuernavaca, quedó de pasar por ella el próximo domingo a las 09:00 hs.
+
+12:40 De parte del Corl. RANGEL ESCARILLA transfirieron una caja para el miércoles próximo, entre aquél y el Sr. GABRIEL FERNÁNDEZ.
+
+12:40 El Cubano ROGELIO NORICULI comunicó que en la Valija diplomática de Roy, ya se fue "eso", que son seis bultos, y va con firmado al Ministerio de Commerce Exterior, y los recibirá en el aeropuerto el Sr. CRISTOBAL VILLAMAR, Dier. JARDON a su vez informa que "ya tenemos l'entrevista", está picosa. ( seguramente se trata de un entrevistado con LA SOCIETE).:
+
+12:54 EL NIÑO, argentino contacto del Corl. DE BENDO TOLANDANO, informa de Cuba, informe: Hasta now la embajada no ha dictado ni ha señalado y es c.:
+"La persona del Corl. Héctor Elkin es muy bien lícitar y es c."
+El Niño tiene nota.:
+
+100% encima de 1671
+Comunicado a P.P.
+C.P. 202-5999.
+Hoy es mañana. Alegre y es c."

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_11773.png
+
+Convert to MarkdownSECRET
+
+Branch I, NHD Records
+
+1. May 1952
+
+# MEMORANDUM FOR THE RECORD
+
+## Meeting with Agent, Paul D. LANGEVIN on 20 April 1952
+
+1. The sense of the following text was obtained during an afternoon meeting with Agent LANGEVIN. Participating in the talk were Messrs. Snyser and Patton and Agent LANGEVIN. Four major topics were discussed and will be presented here in the order in which they were developed.
+
+2. Printing Plant Problem: Mr. LANGEVIN indicated that in two and a half to three months certain financial obligations would come due. These consisted entirely in making an $8,000 payment arising from the purchase of equipment for his printing establishment. This equipment, which cost about $10,000 when purchased late in 1951, consists of an Italian-made press, linotype machine, Speed Graphic cameras, type, etc. The market value of this equipment (partly new and partly used) is estimated to be at least $10,000. The sum of $3,000 represents the total indebtedness of LANGEVIN's plant and is owed to a Mr. MACHENZIE of Casa Mackenzie. Mr. LANGEVIN may meet this payment by either (1) securing a loan from a Fort Worth, Texas, bank using his share in family oil interests as collateral, (2) taking on a Chilean partner, (3) getting the money from a Chilean bank (which would involve an 18% interest rate) or (4) getting the money elsewhere. Common agreement was expressed on the undesirability of taking on a Chilean partner since this would be a security hazard in any future PW work, and would also eliminate the possibility of using the plant as cover for another agent. Mr. LANGEVIN, asked about his previous statement about leaving Chile after two years, replied that now there was no definite plan or desire in that direction. He indicated he would have some idea about the possibility of assistance from a Texas bank within a few weeks. Mr. LANGEVIN also suggested that he would gladly use his earnings for the next two years from the agency ($6,000 per year) if the Agency could put up the $3,000 in a lump sum. The printing firm is now making a profit above the salary which LANGEVIN takes out.
+
+3. Printing on the Committee: Mr. SNYSER discussed the overall tasks which LANGEVIN is expected to perform. Much emphasis was placed on the need for security in explaining this type of PW activity, particularly if and when DTHABEAS is
+
+SECRET

@@ -1,0 +1,62 @@
+# JFK-Files-Part-1_page_11643.png
+
+Convert to Markdown1490000
+
+# Fulminator - I
+Vina del Mar, Chile
+
+31 October 1922 - Ft. Worth, Texas
+
+U.S.A.
+U.S.A.
+
+present wife Helen Haasch born 25 March 1919 ? Wisconsin,
+divorced to St. Comm. John Oley USN in 1945.
+Subject previously married to John Hildebrandt, Bloomington,
+Illinois and divorced her in September 1943.
+child - Maria Suvita, female, born 9 August 1949 in Santiago, Dual citizenship.
+
+Published and Editor of the South Pacific Mail, No salary.
+
+Spanish, French, German
+
+None known
+
+Still in reserve for future action
+
+Fulminator - business activities
+
+Fulminator - I - newspaper business
+
+Begin to serve against the Communist menace.
+
+Need of additional sources of income.
+
+None - it is anticipated he will neopond fully, once approached.
+
+Contact only with Fulminator (no contact yet)
+Fullness?
+
+Fulminator - Fulminator - 2 - Fulminator 3
+
+None
+
+To provide a false operation to channelize
+and control Soviet efforts to penetrate U.S. intelligence
+Service in Chile.
+
+through deceptive leads would
+investigate and report on Soviet/communist activities in Chile.
+
+COST OF PRINT
+200-3448
+When active $50.00
+U.S. per month
+
+NO
+
+Close coordination with H.D. -
+Also with Station Sima on
+transmittal of written material.
+
+Cannot be evaluated as yet. No action.

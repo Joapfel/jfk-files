@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_10412.png
+
+Convert to Markdown14-000060
+
+SECRET
+
+CLARAS USTAS:
+
+Estas en los eye de el rey, & te voy a decir lo que票 s abouto. Si no es así, privesate de esta extraña y inauditable OFFICINA DE LA FUERZA LA PRIMERA & LA SEGUNDA (los dos que tengan committed la ordenación). Toda esta instrucción va a ser implementada por toda la Staff de the commandos. Llega la hora de hacerles order al Command.
+
+NO SE TE OCURRA POR NINGUN MOTIVO SALIR DE MEXICO.
+Reciba Todo mi Pasiinc
+
+SECRET:

@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_12443.png
+
+Convert to MarkdownCIRAS RECONSIDACIONES
+
+Las recomendaciones que a continuación hacemos guardan relación -
+directa, aunque no aparente, con el objeto mismo de nuestro estudio
+y estan destinadas a corregir, completar o reconsiderar algunos as-
+pectos de la actividad diemantífera en Venezuela.
+
+Algunas da las recomendaciones no conciernen directamente al Ministerio de Minas e Hidrocarburos.
+
+Liquidación Impuesto Exploataçao
+
+Sería recomendable estudiar fórmulas que permitan agilizar los trámites y la propia operación de fiscalización sin restarlas su debida importancia.
+
+Se ha pensado que ya podría contemplar a partir de un estudio esta-
+dístico amplio una liquidación en base al peso de los lotes o sea -
+bolívares por quilate sin entrar a considerar calidades.
+
+En efecto si existen 2.500 calidades de piedras, ¿porque entrar a -
+considerar 8 clasificaciones dentro del diamante de talla?, ademas
+no es raro que la talla malogre la piezra por cambio de color, rotu-
+ra etc. quedando el concepto de calidad sin fundamento.
+
+El estudio estadístico sobre un gran número de lotes con distinción
+de Talla - Industrial-Bort, permitiría establecer 3 valores que equi-
+valdrían actual 3% percibido sobre el valor del lote 6 posiblemen-
+ta superior al 3%.
+
+Concretamante, suponiendo que el cuadro de producción para el año --  
+1970 sea un cuadro standard, observamos lo siguiente (Libra Aprovecha  
+miento).
+
+Talla              131.106,42 qts
+Industrial         172.650,77 qts
+Bort               204.983,85 qts
+Total             509.661,04 qts
+Valor para el impuesto   25.217.073,60 8s.
+Impuesto pagado      800.597,42 8s.

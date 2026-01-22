@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_11211.png
+
+Convert to MarkdownLA LIBERTAD, 16 de Mayo de 1966
+
+"ALO DE LA COMUNICACIÓN"
+
+Algunas opiniones del gurco han ido variando con el tiempo. A mediados del sigloXVI, el rey Alfonso X, el León, decidió no eternizar a su marqués, a whose title was also due the honor of his name.
+
+Los earlyModernist writers began to develop their own individual style after the death of King Philip II. Under Philip IV, who died in 1635, the trend towards个人ism and individualism was even more marked. The era of the "divine权" was ended. The age of Reason and of Authority had come to an end. The age of Immaterialism, of individualism and of the individual's relationship with society was about to begin.
+
+The new spirit which characterized this period was one of resistance to authority, of independence from all constraints and of emphasis on individuality. This spirit was most clearly expressed in the work of the writer, Christopher Marlowe, who is considered by some authorities to have been the greatest English poet of the sixteenth century. He is especially noted for his use of blank verse, or free verse, in which he broke away completely from the traditional structure of English poetry. His major works include the plays that make up the "Midsag"-series of six plays, the first two of which are written as plays for the stage, rather than as serious dramatic works.
+
+By the time that Marlowe left school, around 1607, he had already made his mark as a writer. In 1608 he was working as a pageant leader at court, and in 1612 he was sent on an official mission to Spain, where he had been ordered to look for and bring back any Spanish speakers. It was during this trip that he wrote his most famous play, "The Tragedy of爱". Marlowe's success as a writer may be gauged from the fact that one of his close friends, Christopher Plunkett, is regarded as having founded the English drama. Plunkett's long life (from 1597 until his death in 1648) is often used as an example of the short lives of great writers.
+
+In England, the new literary movements were met initially with resistance from the Church of England, which viewed them as heresy. But gradually, especially after the death of King Henry VIII and the开放oftheChurchbyJamesI, they began to gain influence among both church and state leaders. One of the most important figures in this movement wasiphilosophicalthinkers such as John LOCKE, who developed the theory that the only true knowledge man has is that which can be arrived at personally through human reason alone. This view was diametrically opposed to the dogma of scholastic theorists like Thomas MORE, who believed that all knowledge came直接from God or the church.

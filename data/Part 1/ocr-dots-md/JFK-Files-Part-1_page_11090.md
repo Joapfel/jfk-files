@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_11090.png
+
+Convert to Markdown<table><thead><tr><th></th><th></th></tr></thead><tbody><tr><td>SECTION XII<br/>1. INDICATE SUBJECT'S Hobbies OR INTEREST IN SPORTS, MUSIC, ETC.<br/>Subject is interested in music, literature, and art.</td><td>APPLICATIONAL INTERESTS</td></tr><tr><td>SECTION XIV<br/>GENERAL<br/>1. INDICATE WHETHER SUBJECT'S LANGUAGE ABILITIES AND OTHER CHARACTERISTICS ARE SUCH AS WE COULD PASS AS A NATURAL OF A COUNTRY OR REGION OTHER THAN HIS OWN, EXPLAIN.<br/>Subject is basically European, but because of his Cuban accent he would probably be recognized as Cuban.</td><td></td></tr><tr><td>2. INDICATE WHETHER INFORMATION IN PRQ PARTS I AND II WAS OBTAINED BY RESEARCH, CLANDESTINE ASSESSMENT, FILES, CORRESPONDENCE OR OTHER MEANS.<br/>Information in PRQ Parts I and II was obtained through research, files, agents, and direct questioning.</td><td></td></tr><tr><td>3. IF OTHER THAN ROUTINE ACTION IS REQUIRED, IF AND WHEN TERMINATION OF SUBJECT IS EFFECTED, PLEASE EXPLAIN. (Also see para. 43b, supra)<br/>No problems are envisaged when Subject may be terminated.</td><td></td></tr><tr><td>SECTION XV<br/>EMERGENCY CONDITIONS RECONTACT ARRANGEMENTS<br/>1. GIVE FULL DETAILS I.E. RECOGNITION SIGNALS, S'AND WHERE COULD CONTACT BE MADE: WHAT BONA FIDES COULD INDIVIDUAL MAKING CONTACT USE?<br/>Subject could be contacted by phone (his number is in the Mexico City phone book) using the name of one of the WOFIRM officers he has been in contact with as bona fides.</td><td></td></tr><tr><td>SECTION XVI<br/>MISCELLANEOUS OPERATIONAL DATA AND REMARKS</td><td></td></tr><tr><td>DATE</td><td>SIGNATURE OF APPROPRIATE SENIOR OFFICER</td></tr></tbody></table>
+
+5
+SECRET
+
+201-389609

@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_13127.png
+
+Convert to Markdown<table><thead><tr><th>DISPATCH</th></tr></thead><tbody><tr><td>TO</td><td>Chief of Station, JMWAVE HFG</td></tr><tr><td>REF</td><td>Chief, Western Hemisphere Division</td></tr><tr><td>HOSA</td><td>Chief of Station, Caracas</td></tr><tr><td>RUBRIC</td><td>PBRUMEN/AMCLEVE-15 - Report from Cuban Exile</td></tr></tbody></table>
+
+<table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td></td><td>HVCA-15571</td><td>28 June 1968</td></tr><tr><td></td><td>CLASSIFICATION</td><td>BCS FILE NUMBER</td></tr><tr><td></td><td>SECRET</td><td>~~701... 300981~~</td></tr></tbody></table>

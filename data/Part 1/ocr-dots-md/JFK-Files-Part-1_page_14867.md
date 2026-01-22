@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_14867.png
+
+Convert to MarkdownDISPATCH
+
+for an extended period. While we recognize that Subject's happiness is not a matter of much immediate concern, we believe that it could be an important factor in his future handling. Second, Subject reports that his business is doing well and that he hopes eventually to acquire a French passport which in effect would remove the restrictions under which he now lives. The acquisition of a passport and financial success would, we believe, considerably change Subject's frame of mind and possibly his willingness for REDSOX. Third, Subject might at any time have a run-in with the French authorities. It might not be his fault but it might make it impractical or impossible to reach him when and if he is wanted. Fourth, Subject points out that he cannot simply disappear from Gap without straightening out his affairs, particularly his business affairs with his business partners. "Cannot" may be an exaggeration, but the fact is that Subject is the sort of person who would leave his friends in the lurch, as he sees it, only under extreme circumstances. He would not be happy about having done so. He would like to have about three weeks warning before his departure and as far as we can judge this is not an unreasonable request. In short, we believe that Subject is an excellent, albeit not ideal, candidate and that it would be wise to insure his availability insofar as we can by bringing him at the earliest possible date to Germany where we shall have better control.
+
+Approved: Francis M. Bankshire
+Francis M. Bankshire
+
+Distribution:
+
+3 - SR
+1 - EE
+2 - MB
+2 - Paris
+2 - COS
+
+SECRET
+
+Contra 53c
+
+53c
+
+<table><tr><td>THE SECRETARY'S PAPER</td></tr><tr><td>THE CABLES AND TELEPHONE</td></tr><tr><td>BEST AVAILABLE TOGETHER</td></tr><tr><td>FOR ANOTHER SECRET</td></tr></table>
+
+53
+
+3
+
+SECRET
+
+Contra
+
+3

@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_14017.png
+
+Convert to Markdown14-00000
+
+<table><tr><td colspan="2">MESSAGE FORM<br>TOTAL COPIES:</td></tr><tr><td>SECRET</td><td></td></tr></table>
+
+ORIG: D. RYAN;pfd
+UNIT: WH/COG/OPS
+EXT: R1819
+DATE: 16 OCTOBER 1968
+
+<table><thead><tr><th colspan="2">OUTING AND/OR INITIALS • SLUNG BY</th></tr></thead><tbody><tr><td>1</td><td>6</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></tbody></table>
+
+<table><tbody><tr><td>CABIN SECRETARY TO BE DISSEMINATED</td><td>☐ INDEX ☐ DESTROY ☐ RETURN TO __________ BRANCH ☐ FILE ID</td></tr><tr><td>BY __________ PER __________</td><td>☐ NO INDEX ☐ FILE IN CS FILE NO.</td></tr><tr><td>COMP: WHKOG-8</td><td>☐ BID COPY <u>DEPO:</u> FILE VR S.YAN EURG.WH8</td></tr></tbody></table>
+
+<table><tbody><tr><td>(classification)</td><td>Clc Ops. C11C2 F12 (duty) (price)</td></tr><tr><td>(date and time filed)</td><td>(reference number)</td></tr></tbody></table>
+
+SECRET
+
+TO [ MADRID ] INFO: LONDON '7 17 27Z OCT 67
+
+TYPIC
+
+REF: LONDON 7682 (BEING RELAYED MADRID)* (IN 1341)
+
+CITE DIRECTOR
+
+42495
+
+B.T.
+
+1. REQUEST MADRID CABLE NAMES AND TRAVEL DATA ALL CUBAN COURIERS OR EMBASSY INSPECTORS WHO HAVE ARRIVED OR DEPARTED MADRID SINCE MID-SEPTEMBER 68. AUDIO TECHNICIANS KNOWN USE THIS COVER WHEN TRAVELLING ABROAD ON SWEEPING MISSIONS.
+
+2. NOTE THAT ROGELIO (RODRIGUEZ) LOPEZ ARRIVED MADRID 19 SEPT 68 PER MADRID-6153. RODRIGUEZ IDENTIFIED BY AMCLOCK/1 OCT 67 AS CUBAN EMBASSY INSPECTOR. WOULD APPRECIATE ANY DETAILS AVAILABLE ONWARD TRAVEL BY RODRIGUEZ AFTER ARRIVAL SPAIN. MADRID-6211 INDICATED HE PLANNED ARRIVE MADRID 16 SEPTEMBER IN TRANSIT GUINEA. CAN THIS BE CONFIRMED?
+
+3. LONDON: TO ASSIST IN EFFORT IDENTIFY PERSONS WHO CONDUCT SWEEP, SUGGEST SMITH BE QUERIED FOR NAMES ALL CUBAN OFFICIALS WHO HAVE ARRIVED UK SINCE MID-SEPTEMBER 68. CS COPY
+
+4. FILE 201-332665.
+END OF MESSAGE
+
+WH/COG/COMMENT: *Reported unknown persons conducted sweep of new Cuban Embassy building London during period 3-9 Oct 68;
+
+<table><tr><td>RELEASING OFFICER</td><td>COORDINATING OFFICER</td></tr><tr><td>SECRET</td><td>GROUP EXCLUDED FROM AUTOMATIC Downloading and Decryption</td></tr></table>
+
+AUTHENTICATING OFFICE
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_15028.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+REPORT ON CONTACT WITH AGENT OR DEFECTOR
+
+**SUBJECT:** WIROGUE
+**DATE:** 9 April 1965
+**TIME:** 1200
+**PLACE:** Kuhwaldstr.
+
+Erneut Dassault
+Corpor. M. Burchett, Case Officer
+
+COMMENTS:
+
+CO met Subject and found him to be in a blue funk. Subject said that he was somewhat less than pleased with his German documentation that as long as he stayed Germany and was under the protection of the German Government he had nothing to worry about. He feels that as long as the US Forces are here he has no problems but that as soon as we leave Germany will probably take a long look at the number of refugees here and take steps to encourage certain types to depart. Subject said that he could end up in all kinds of trouble. CO told him that in the first place the US Forces would be in Germany for a long time at least during his lifetime. In the second place Subject would be long gone before the Government changed its attitude toward refugees.
+
+Subject then said he was worried that when he got to S.A. the Columbian Government would probably check with the Soviet Gov't to find out if he was indeed an ex Soviet citizen. This would result in his being put in prison for entering the country under false pretenses. CO said there was no reason for the Columbian Government to check with the Soviets. Subject would arrive a bone fido immigrant fully checked out by the organization responsible for the Columbian Govt. CO pointed out that the Columbian Govt would be crazy to alert the Soviets that one of their ex citizens was there with the possibility of having him recruited to work for the Soviets. Subject was still dubious but stated that he would go anyway since that is what we wanted. CO pointed out that he had requested help in going to SA and that we had found it necessary to get him a Reiseausweis to accomplish this. He was told that it is too late now for him to have misgivings that what is done is done and he would have to accept it.

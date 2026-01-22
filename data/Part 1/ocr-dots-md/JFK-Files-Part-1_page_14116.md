@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_14116.png
+
+Convert to MarkdownSECRET
+
+- 1 -
+
+period 1954 through July 1961. His income during that period of time was approximately $10,000 per year.
+
+(b) Subject has been under non-official cover from July 1961 to the present as a consultant for the Roberts Electronic and Engineering Service. This cover is backstopped from the principal office in New Jersey.
+
+5. Subject is available to assume the proposed cover immediately.
+
+6. It is proposed that Subject arrive in Caracas around the beginning of January 1968.
+
+7. The project cryptonym under which Subject will be carried if CIELBON.
+
+## B. Biographical Information
+
+1. Date and place of birth: 27 January 1928 in Havana, Cuba.
+   Sex: Male.
+
+   Race: Caucasian - mildly dark skin.
+
+   Religion: Roman Catholic
+
+   Citizenship: US (naturalized)
+
+   Previous citizenship: Cuban (by birth)
+
+   Marital Status: married.
+
+   Children: three sons and one daughter ranging in ages from 10 to 16 years old)
+
+   Present residence address: 9361 S.J. 178th Street
+                          Perrine 57, Florida
+
+2. Number and relationship of dependents to accompany Subject on his foreign assignment;
+
+Hire
+
+Four children - ranging in age from 10 to 16
+
+Mother-in-law
+
+All of above dependents live with Subject at the address listed as Subject's present residence.
+
+SECRET
+
+14-09000

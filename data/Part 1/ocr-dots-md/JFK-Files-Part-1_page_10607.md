@@ -1,0 +1,6 @@
+# JFK-Files-Part-1_page_10607.png
+
+Convert to MarkdownSECRET
+(No Name Poured In)
+
+<table><tr><td colspan="4">DOCUMENT TRANSFER AND CROSS REFERENCE</td></tr><tr><th>SUBJECT OF DOCUMENT</th><th>DOCUMENT IDENTIFICATION</th><th></th><th></th></tr><tr><td></td><td>2. RI FILE NO.</td><td></td><td></td></tr><tr><td></td><td>3. DISPATCH OR SOURCE DOC. SYMBOL NO.</td><td>4. DATE</td><td></td></tr><tr><td></td><td>7. SOURCE CRYPTOLOGY</td><td>8. DATE OF INFO.</td><td>9. EVALUATION</td></tr><tr><td>D- ANALYST</td><td>0. DATE PROCESSED</td><td>10. DISSEMINATED IN</td><td>11. DATE</td></tr><tr><th colspan="2">DOCUMENT DISPOSITION</th><td colspan="2"></td></tr><tr><td colspan="2">12. CROSS REFERRED TO THIS FILE</td><td colspan="2">13. TRANSFERRED TO RI FILE NO.</td></tr><tr><th colspan="2">PERTINENT INFORMATION</th><td colspan="2"></td></tr><tr><td colspan="4">14.</td></tr><tr><td colspan="4"><table><tr><td>MASFERRER ROJAS, ROLANDO<br/>201-042669<br/>SEX M DOB ?<br/><br/>CIT CUBA<br/>OCC ?<br/>& USA<br/>RE COMMENTS ABOUT PAUL TONSSAINT'S INVASION PLANS.<br/><br/>200-009-038<br/>☑ UFG -06307<br/>08 DEC 64<br/>MAVE-05812<br/>P1</td><td>R 6501051027</td></tr></table></td></tr><tr><td colspan="4">15.</td></tr><tr><td colspan="4">FILE THIS FORM IN FILE NO.</td></tr><tr><td colspan="4">101 04 26 69</td></tr></table>"}]

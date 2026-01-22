@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_11788.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+SECURITY INFORMATION
+
+Project Outline Clearance Sheet
+
+Project Title PROCEED Amendment No. 1 Project No.
+Developed by: Lee E. Patton WHO/OPC B.1 23 May 1952
+Case Officer Organization Date
+Reviewed by: J.King 5/27/52 D.C.W.H./PC 29 May 1952
+Foreign Branch Chief Date Division Chief Date
+Concurrences: E.S.W. in DC/WH/PC 29 May 1952
+CM-Preston L. Sumpter 6/25/52
+Date
+Date
+Date
+Date
+Date
+Approved subject to conditions below: F.A. Lagley 14 July '52
+CFO Date
+Conditions of approval:
+
+OPC Form No. 1103 (Rev.)
+23 April 1951
+
+S-E-C-R-E-T

@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_14330.png
+
+Convert to MarkdownHERewith ATTACHMENT TO: OSHA - 26417, 21 JULY 1970
+
+TO: CHIEF, WHD
+FROM: COS, MADRID
+
+SECRET
+
+CS COPY
+
+5/8 cut to OSM - 26417
+
+14-00000

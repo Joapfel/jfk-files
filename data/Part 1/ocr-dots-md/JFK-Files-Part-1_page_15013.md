@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_15013.png
+
+Convert to MarkdownS-B-C-R-E-T
+
+REPORT ON CONTACT WITH AGENT OR DEPECTOR
+
+SUBJECT: WIROGUE
+DATE: 23 August 1963
+TIME: 1030
+PLACE: Kuhwaldstr
+
+ORNE K. DARONNAT, Case Officer
+
+COMMENTS:
+
+Case Officer dropped in to see Subject and paid him two weeks subsistence. Subject was very excited due to his success in applying for a patent, for a new type soup dish. Case Officer took great pains to praise Subject highly because he is aware that this has been a tremendous psychological boost for WIROGUE who was beginning to doubt his ability.
+
+Subject for a long time has been attempting to get a patent but could not come by the necessary funds, approximately 200 DM. Case Officer asked him how he was able to swing this and was told the following story, some of which Case Officer already knew:
+
+During the months that Subject has been in HARVARD's hands, he has kept himself busy by inventing various gadgets and devices. Some months ago he made contact with a mechaniker, Alfred Naegele, who has a work shop on 25 Glauburgstr. Subject has had this individual make certain small parts which Subject was not able to make, due to a lack of tools. Over the past months, Subject has won the confidence of Naegele and has been exchanging his labor for permission to use the work shop facilities. Subject has also solved job problems for the work shop owner who has now begun to take on specialized jobs only because he has Subject's talent and ability available to him. Subject continues to help Herr Naegele gratuitously since he feels that in time he will make the contacts which will be of help to him when he is finally on his own. Subject told Case Officer that one of Naegele's contacts had prepared the technical description and application for Subject's soup dish invention without cost to Subject. Subject will pay off the cost by helping Herr Naegele. Subject feels he can use this same procedure to patent other ideas which he has.
+
+SECRET
+
+<table><tr><td>14-0000</td></tr><tr><td></td></tr></table>

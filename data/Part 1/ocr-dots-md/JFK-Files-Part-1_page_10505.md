@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_10505.png
+
+Convert to Markdown8. Officers of the Claggott-Nolan Company, Incorporated, Tokyo, Japan, whose identities have not been determined on basis of reported direct contact with Subject, but who are presumed to include Richard William Nolan CHILD and Mortimer Claggett COOKE, Junior, the principal officers.

@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_15923.png
+
+Convert to MarkdownC. Former Defector Resettlement Cases (or Cases Still in Stage If) Requiring HARVARD Action During the Reporting Period:
+
+DS-964
+HARVARD has learned through CAMANTILLA that Subject and wife have returned to the U.S. where both have found employment and are now apartment hunting.
+
+DS-984
+At Subject's request HARVARD made arrangements to obtain a duplicate of the deregistration form covering Subject's move from Frankfurt to Neuss in July 1962.
+
+DS-999
+Subject and family are being assisted in obtaining West German citizenship.
+
+DS-127
+Subject's Communist Party membership was discussed informally but at some length with the local ODURGE chief. Since the latter believed that Subject's membership would, according to the strict interpretation of the law, be ruled voluntary, processing for immigration to the U.S. under Public Law 110 has been requested.
+
+* Resettled during the reporting period. Subject will not appear on next month's or subsequent HARVARD reports unless and until some new unforeseen aspect of the case arises requiring additional HARVARD action. In this event the case will be listed and the new action described under Category I C.
+
+II. AGENT CASES:
+
+Case Name
+
+Action Taken
+
+A. On Hand at Beginning of Reporting Period:
+
+CAHAVOC-1
+Subject has begun to look for an apartment on the local economy. In the meantime he will continue to occupy HARVARD housing.
+
+WIROGUE
+Subject's legend is being rewritten and when finished will provide the basis for a more plausible political recognition story. HARVARD hopes that with the substitution of the new story for the old, positive steps can be taken for Subject's resettlement.
+
+IDEN-264
+The morale problem created by the slow moving quota under which Subject is registered for U.S. immigration has required HARVARD to register her for immigration under the Parolee Act. It is expected that Subject will receive her visa in August or September but the Parolee Act will be used in the event the quota continues to remain unchanged.
+
+SECRET

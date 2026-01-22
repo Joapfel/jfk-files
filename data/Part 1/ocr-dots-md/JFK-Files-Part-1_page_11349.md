@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_11349.png
+
+Convert to MarkdownSECRET
+
+1 October 1963
+
+MEMORANDUM FOR: Chief, WE/3
+ATTENTION : Wayne Carley
+SUBJECT : LITANIL/9
+C-101,331
+REFERENCE : CI/OA Memorandum dated 10 July 1963. Same Subject.
+
+1. This is the second request of CI/OA's asking for an answer to our memorandum of 10 July 1963. Because of the sensitivity of this case, it is imperative that the oft-requested reply be forwarded.
+
+2. It is to be noted that the Subject continues to be used without an Operational Approval per PRQ Part II dated 17 June 1963. It is further noted in Section VI, 4, that "Subject is also aware of the Station's LAURICLE requirements", a most sensitive area.
+
+3. Again, we ask for an answer to the referenced memorandum.
+
+CI/OA/JPL:nal
+
+SECRET
+
+<table><tr><td>SECRET</td></tr></table>

@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_11800.png
+
+Convert to MarkdownApril 29, 1953
+
+Rejoice May 26, 1953
+
+DTHABEAS
+Dear Mr.
+
+Thank you for your letter of April 29th, 1953. I am sure you will
+understand that the delay in answering has been due to my efforts to
+gather the information needed for a detailed response to your questions.
+I have had several conversations with you and the editor
+of the publication wish to revive, as well as other interested parties,
+and your answers are based on the results of these conversations.
+
+a. "Submit a paper...getting fourth class etc." The plane are to revive the weekly publication "for free", of 80 pages, bound also. It could be printed on Thursday afternoon and be dispatched by air to the north (nitrate and copper areas) and by rail to the South (coalMin and textile factories). Thus the review would be sold as workers lost their factories for the week-end, insuring Saturday and Sunday, resulting for the family. Our objective is to reach employees and employers iurist to force a mass objection. Many industrial consumers would purchase the publication on telegraph to employees at a lower cost. An extra issue during the revolutionary period the Carbonifere Lotos (Loto Coal Miners' Union) began with a subscription of 400 copies. That number, to be increased of the readers, was quickly increased to 1,800. The newspaper, as in the past, would be backed by the organisation "Programmes for Life". The aim needed to re-establish this group would be about two to four and a half million people. Or that amount one billion people would be raised locally from the old society and may new sources available. That could mean you would be called upon to support our cause to the extent of one or two and a half billion people for a six-month period of one year.
+
+b. "Inform (possibly 1. ity o )....additional anti-Communist activities ....etc." The pulling up of any newspaper should not be the extent of our group's activities. I quote quotation from the ideals expressed in the legally incorporated organization in 1947:
+
+"The object of the society will be the exploitation of newspapers, radio and other means of propaganda destined principally at the defense of our regime of constitutional democracy and our sovereignty against the Communist forces, Soviet communism, and any other form of totalitarianism. In its newspaper, publications and other means of propaganda the society will stir the patriotism of the citizens and show to the public consequence the tragic reality of the Soviet regime; it will fight to clear government and the betterment of the working classes on the basis of the correct application of social laws and conditions. The society will"

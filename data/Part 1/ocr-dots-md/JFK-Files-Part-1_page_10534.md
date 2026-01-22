@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_10534.png
+
+Convert to Markdown5
+
+6
+
+8
+
+10
+
+12
+
+14
+
+5
+
+4
+
+3
+
+2
+
+1
+
+E-L-C-R-E-T NO FOREIGN DISSEM
+
+3. Melo's letter acknowledged receipt of a cable from Madrigal; it then went on to state that "Rogelio obtained the visa" and now "the Haitian can come when he wishes." (Field Comment: Rogelio may be Rogelio Pinto. CS-311/02024-68 quoted Melo as saying that Starke had obtained a visa for Jacques Moringlane, a Haitian who would be the first of the Masferrer group to arrive in Costa Rica.) Melo then wrote that because nothing had been heard from Madrigal since the latter's visit to Costa Rica "the friends here" had begun to believe that "everything has been a pipe dream of mine; that we neither are going to do anything nor have anything." Melo complained that Madrigal's silence appeared to have "lessened the enthusiasm of this man of action and of rapid resolutions, who does not like to be made to waste his time." Melo warned Madrigal that if the Masferrer group had not reached a decision to move ahead with the plan, it would be better for the Haitian not to come to Costa Rica. Melo also warned that if there were no Cubans participating in Masferrer's project, he, Melo, would not support it, since he was interested only in the Cubans' problems and not those of the Haitians. Melo informed Madrigal that he expected to arrive in New York on 18 February; he suggested that they discuss the subject in detail at that time.
+
+4. On 4 March Melo again left San Jose for Miami. He told the Costa Rican security officials that he would be away from Costa Rica for a month.
+
+5. Field Dissem: State Army CINCSO (Also sent Managua and Port-au-Prince.)
+
+S-E-C-R-E-T NO FOREIGN DISSEM
+
+5
+
+4
+
+3
+
+2
+
+1
+
+5
+
+4
+
+3
+
+2
+
+1

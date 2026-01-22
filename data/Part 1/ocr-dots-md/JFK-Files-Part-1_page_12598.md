@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_12598.png
+
+Convert to MarkdownHVCA 16123
+31 Dec 68
+
+CIGUSTY NOV PROGRESS REPORT
+
+The following is a summary of developmental activities and estimated expenditures for Project CITGUSTY during November 1968.
+
+| AGENT | EXPENDITURE |
+|---|---|
+|  | $ 450.00 |
+
+AMCLEVE-15
+
+Provided information on Erasto Fernandez, Chief of DIGEPOL; DIGEPOL; Chief of CIVISTA-5 and general info on the internal security situation which led to numerous disseminations.

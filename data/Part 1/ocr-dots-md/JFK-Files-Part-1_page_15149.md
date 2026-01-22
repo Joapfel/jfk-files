@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_15149.png
+
+Convert to Markdown# C.I.R.C. U.A.F. No. 3
+
+CONSULADO GENERAL DE CHILE
+Frankfurt/Main
+Wendelsweg 64
+Tel.: 68 75 46
+
+To American Friends of Russian Freedom
+
+## Unterlagen für die Erteilung eines Visums
+
+- 1) Reisepass. Die Cultigkeitsdauer darf frühestens 12 Monate nach der Visumerteilung ablaufen.
+
+- 2) Polizeiliches Führungszeugnis der zuständigen Polizeichefte (nicht mehr als 3 Monate alt).
+
+- 3) Allgemeines Anzeigefüges Attest (nur Zehn als 3 Monate alt).
+
+- 4) Ärztliches Attest des Auswanderungsleiters (Hanau, München oder Berlin) - wird nur für Einwanderungsvisum tenotigt.
+
+- 5) Internationaler Poekeningfchein, vom Amtserzt ausgestellt. (Nicht mehr als 2 Jahre und nicht weniger als 14 Tage alt).
+
+- 6) Arbeitsverträge mit notarisch regelbarfter Unterschrift zirkularstens des Arbeitgebers und einer Klasse, auch welcher dieser sich vorpflichtet, die Rückreisekosten des Arbeitnehmers zu tragen.
+
+- 7) 4 Passbilder (kein Fotomaton) 5 x 5 cm, auch für jedes Kind.
+
+- 8) Gebühren DM 3,50 pro Pass.
+
+- 9) Gebühren DM 9,10 pro Pass.
+
+- 10) Fragebogen in 2-Liter-Ausfertigung, mit Schreibmaschine ausgefüllt und mit Tinte Unterschrieben.
+
+- 11) Lebenslauf in 2-Liter-Ausfertigung in spanischer Sprache, mit Maschine geschrieben und mit Datum und Unterschrift versehen.
+
+- 12) Inhaltsaufstellung des unbegleiteten Reisegepacks - Umzugsguts 8-7-Liter, in spanischer Sprache, mit Maschine angefertigt (s. Circular No. 8).
+
+- 13) Dokumente, die Innen Beruf bestätigen.
+
+- 14) Schriftliche Referenzen.
+
+- 15) Für Minderjährige (unter 21 Jahren) notariell teglautigte Einwilligungserklärung des Vaters oder Erziehungsberechtigten, dass die Reise nach Chile und der Aufenthalt dort gestattet sind.
+
+M.S. Durchgestrichene Angaben sind nicht zutreffend.

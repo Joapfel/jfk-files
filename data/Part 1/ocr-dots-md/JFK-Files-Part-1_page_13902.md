@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_13902.png
+
+Convert to Markdown14-00000
+
+<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
+
+<table><tr><td rowspan="2">SECRET</td><td>TO : DIRECTOR</td></tr><tr><td>FROM : JMWAYE</td></tr></table>
+
+ACTION: WH 8
+INFO: DOP, CI,CI/OPS, CI/OA, FI,F1/D 4, WE 4, WH/SA 8, VR
+
+SECRET 141704Z
+
+MEXI INFO DIR MRID CITE WAVE 5075
+
+DYVOUR PBRUMEN
+
+REF A MRID 0436 (IN) 59141) 11 April '64
+B MEXI 8982 (IN) 59445) *11 April '64
+
+1. IF CONSONANT WITH MEXI PLANS WAVE CAN CONTACT MAX LESNICK MIAMI FOR FURTHER INFO REF A LEAD. HOWEVER WOULD NEED SOME PRETEXT IN KEEPING WITH MERTON/LESNICK RELATIONSHIP. PL'S ADVISE.
+
+2. FYI LESNICK LIVES APT 3 1236 SW 36 AVE MIAMI, TEL:
+MI 3-0886.
+
+SECRET
+
+C/S COMMENT: *SUBJECT IS ONE OF TWO TOP PRORITY MEXI TARGETS FOR RECRUITMENT (OTHER IS CODE CLERK)
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+Copy No.
+
+<table><tr><td>C</td><td>S</td><td>P</td><td>E</td><td>T</td><td>A</td><td>R</td><td>I</td><td>N</td><td>K</td><td>O</td><td>D</td></tr></table>
+
+<table><tbody><tr><td>14 APRIL 64</td></tr></tbody></table>

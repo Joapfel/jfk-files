@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_11918.png
+
+Convert to MarkdownLITIGATION
+
+FOR CIA OFFICIALS ONLY
+
+8 April 1977
+
+MEMORANDUM FOR: Mr. John K. Greaney
+Special Assistant to the
+General Counsel
+
+FROM : Maurice A. Sovern
+O/SA/DO/O
+
+SUBJECT : Joseph R. Merola
+
+REFERENCE : Assistant United States Attorney,
+Pennsylvania Letter, 10 March 1977,
+Subject as Above
+
+1. The question in reference is the nature of any involvement of Merola with CIA prior to August 1961.
+
+2. The Directorate's first recorded contact with Joseph Raymond Merola prior to August 1961 occurred on 6 February 1961. It followed a series of telephone calls over a period of several months (late 1960 - early 1961) in which Merola had expressed interest in offering his assistance in connection with Cuban matters. Our officer had declined contact until 6 February when Merola claimed to have information on a Latin American senator who was a "close friend and confidante" of "Che" Guevera. Because Guevera was the proper subject of foreign positive intelligence collection requirement our officer agreed to a meeting.
+
+3. The last recorded contact, except for the litigation outlined below, with Merola was a telephone contact with Merola in late July 1975 when he volunteered additional foreign positive intelligence.
+
+4. At the end of August 1975, Merola contacted a staff officer to ask for testimony in the criminal fraud trial in San Diego, California (U.S. v. Joseph R. Merola, et al, Southern District of California, CR 74-2277-GT) which we subsequently
+
+E2 IMPDET
+CL BY 012860
+
+FOR CIA OFFICIALS ONLY

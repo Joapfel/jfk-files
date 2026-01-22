@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_14979.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+REPORT ON CONTACT WITH AGENT OR DEFECTOR
+
+SUBJECT: WIROGUE
+
+DATE: 30 September 1964
+
+TDE: 1030 - 1400 hours
+
+PLACE: Automobile in the Vicinity of Kuhwaldstr. ARTHUR A. LIFALL, Case Officer
+
+COMMENTS:
+
+WIROGUE called at approximately 0945 hours on the Stage I Ops phone and asked for Mr. Murmann. C.O. took the call and was advised that the caller was "Dave" and that he desired to speak to a colleague of Mr. Murmann at the earliest possible time. C.O. made arrangements to meet him in front of the safe house at 51 Kuhwaldstr which WIROGUE occupied during his 1 1/2 year association with HARVARD (this is no longer a HARVARD safe house). C.O. did not tell "Dave" his name over the telephone and indicated that he would be able to recognize "Dave". C.O. picked "Dave" up on the corner of Volta and Kuhwaldstr and drove a couple of blocks to a parking place where the conversation took place.
+
+C.O. learned that WIROGUE was no longer employed by the Boehler Company in Munich. He apparently has had a couple of factory jobs since that job and is currently unemployed. According to "Dave" he is without work, without friends, without money and" only contacted Murmann's old office because he is at the end of his rope". Subject stated that he had tried hard to find suitable employment in Germany, but that there was absolutely nothing available which he could do. It was obvious that WIROGUE wished to renew his association with the AIS and that "intelligence work" was the only kind of employment for which he felt himself really qualified. When C.O. indicated to him that the employment possibilities had not changed since WIROGUE was told there was no possibility of future employment with the Agency, Subject said that the purpose of his telephone call was to advise us of his plans to go to Paris and attempt to contact the French Intelligence Service-to-which-he-would-offer-his-services. He wished to find out if we would have any objections to his seeking employment from the French or possibly the British since we are apparently unable to utilize him further. C.O. said that obviously WIROGUE would do what he would do and that while we had no control over his actions it would seem a bit surprising that he would deliberately place himself in the hands of the French authorities where he was known to have a criminal record. WIROGUE implied that he would obviously tell all to the French and indicated that he was not concerned about any actions that they would take against him.. He appeared sure in an extremely vague and confused way that the French Intelligence Service could use him.

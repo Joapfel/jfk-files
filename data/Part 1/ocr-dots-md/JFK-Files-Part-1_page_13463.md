@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_13463.png
+
+Convert to Markdown6. It looks that our friend who talked to Pico in Medellin and Bogota was disgusted because Pico was satisfied with the results of the meeting. Pico's satisfaction stemmed from the strong anti-Gastro stand the Council adopted and it is obvious that the running problem so important to us could not a upset him.
+
+7. Pico reports that there is a good chance that Dagoberto Gonzalez (Sec.Gen.of Trabajadores Copeyanos) will be elected as CLASC president at the next CLASC Congress. According to him Jose Goldsack will become Treasurer and present treasurer Alfredo di Pacce will head a new CLASC office dedicated to raise funds from the LA affiliates.
+Pico considers Gonzalez as a staunch anti-communist and better disposed toward | than Raspero. He thinks that flanked by Gonzalez and Goldsack, Maspere will not have so much to say and his power will be limited. Gonzalez is apparently a much more forceful personality than Goldsack, who doesn't have enough guts to oppose Maspere.
+
+8. Pico believes that Maspere is less aggressive and anti-US as he used to be. He thinks that the pressure from CISC and ISI plus a strong anti-communist posture of the affiliates accounts for this.
+
+In the cables received from our Colombia office there is a strong criticism of Pico as a sort of Maspere's stooge. After discussion this topic several times with Pico I think that his opinion of Maspere is:
+
+Maspere is a forceful, dynamic and well prepared leader. As an Argentine and ex-peronista he has more drive and is a better organizer than the others in CLASC. Besides he offers CLASC a promise of bringing CTG into an alliance with them, a feat which only he can accomplish. For Pico's taste Maspere is too demagogic and he doesn't like his anti-US and soft of connies attitude, however, Pico claims that Maspere lately is much more aware of connie danger. As Maspere is without doubt the most powerful single individual in CLASC and as Pico positi is weak(his Federation is not created yet and he has to be confirmed as Secretar General) he sees no use of bucking Maspere especially as no organized and strong opposition exists. Pico,however, would see with sympathy Maspere power restricte or it will not bother him al all to see Maspere removed completely. But as long as he exists Pico believes that for his personal good and in order to be able to push strong anti-Gastro stand(in which he is mainly interested) he has to work and live with Maspere.
+
+This position impresses me as a sensible one.
+
+### III MISC. REMARKS
+
+1. There is some inconsistency in the cables we received. In one of them Romano Tschumi, CLASC Executive Secretary for the Dutch Antilles and President of CEDEU is described as " widely considered insignificant and unimpressive element". In another cable this same Tschumie is quoted as a source ( direct source not via Pico as Pico said that he didn't know about campesinos sold out) and as a new CLASC Asst Secretary General(Pico also claims that he doesn't know about it even if he was criticat before getting his info from such a lousy source as 'schumie'). 
+
+2. Pico reports that in Caracas he met Carl Norden from ISI Bonn office in CLASC office. Carlos Moris( vice-director of Instituto de Estudios Sociales de Caribe), Mariano Benitez(Centro Documentacion -Caracas) Santiago Tortosa(Sec Gen of CODESA), Esquivei Borges(CIS) were also present. Norden reported that the

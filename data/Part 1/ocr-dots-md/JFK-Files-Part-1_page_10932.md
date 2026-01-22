@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_10932.png
+
+Convert to Markdown(c) The airship should be able to carry a crew of two men, and an additional one for the time being.
+
+(d) It is proposed that one man should remain on board at all times, in case of anything happening. In such a case he should be provided with means of self-rescue. The total number of persons on board should not exceed one hundred.
+
+(e) If any person is found who can fly his machine and has a good knowledge of flying, the above person will be allowed to take charge of the aircraft. He will be paid for his services according to his ability to fly and the distance traveled.
+
+(f) Any one who may be required to act as a pilot must have passed the examination set up by the Department of Aviation, and will be given a certificate of hisiciency. This certificate will then be carried in the person of the pilot, and will be checked every three years by the same person.
+
+(g) Only one child is allowed to be carried on board the airship. All other children are to be left on shore, unless it becomes necessary that they should go with the adults.
+
+(h) Every child under five years of age is entitled to a place in the airship without any charge. Children between six and ten years of age will be charged one half their weight in money, so that each child shall be paid for its separate maintenance, and will be permitted to stay on board for one hour every day, except on Sunday, when they shall be allowed an hour's rest. A child under ten years of age will be charged one half its weight in money, so that each child shall be paid for its separate maintenance, and will be permitted to stay on board for one hour every day, except on Sunday, when they shall be allowed an hour's rest. A child under ten years of age shall be charged one half its weight in money, so that each child shall be paid for its separate maintenance, and will be permitted to stay on board for one hour every day, except on Sunday, when they shall be allowed an hour's rest.
+
+(i) Children under nine months of age are entitled to a place in the airship without any charge. Children from nine to十二 months shall be charged one third of their weight in money, so that each child shall be paid for its separate maintenance, and will be permitted to stay on board for one hour every day, except on Sunday, when they shall be allowed an hour's rest.
+
+(j) As in the Navy any child under five years of age is entitled to a place in the airship without any charge. Children between six and ten years of age will be charged one half their weight in money, so that each child shall be paid for its separate maintenance, and will be permitted to stay on board for one hour every day, except on Sunday, when they shall be allowed an hour's rest. A child under ten years of age shall be charged one half its weight in money, so that each child shall be paid for its separate maintenance, and will be permitted to stay on board for one hour every day, except on Sunday, when they shall be allowed an hour's rest.
+
+(k) Children in the Treasury shall undulypaidby its regulations, and will be caused to suffer by their connections with Cuba.

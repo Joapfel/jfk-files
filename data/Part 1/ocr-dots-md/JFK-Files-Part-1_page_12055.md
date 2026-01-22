@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_12055.png
+
+Convert to MarkdownSECRET
+Security information
+
+27 July 1973
+
+REPORTRATAN FOR: Chief, I & E
+
+VIA : F/A-7
+GFC/SPB
+
+SUITE : Cefon Burton Molendin
+
+1. It is requested that the case on Gordon Burton Molenbank be closed, since this office has no further interest in the subject.
+
+2. The request for cover security clearance on Mr. Molenbank was submitted on 11 February 1973.
+
+LLOYD GROOME
+Chief, E.E.S.
+
+FE/III/PC/JSC Mal
+Dist: Addresses - Oppl. & 1
+CFS - 1
+FE/F - 1
+STC/SFB - 1
+FE/IIII/PC Chromo - 1
+RI - 2

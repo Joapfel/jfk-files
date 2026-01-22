@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_15313.png
+
+Convert to Markdown, the SCHUPO (Schutzpolizei). The "Dolmetscher" simply indicated that he was a foreigner, as the knowledge of languages was the only reason why foreigners could be employed by the police. He had nothing to do with interpreting or translating. They did some exercising and made centry duty at a large petrol store. His hours on duty were, by 24-hour spells: 1300 to 1300, then off up to the next day, 0800 to 0900 and off up to the next day, 1300, and so one for a week. In the next week the same pattern repeated, but the start being at 1000 h.
+
+47. In summer, during an exercise of physical training, a man who had to catch David when he was coming down from a high flight into which he was thrown by two men, the catcher got frightened, backed out, David, as a consequence, fell to the ground, and broke one arm, the elbow, and damaged the other arm. He remained for some 40 days in hospital, the same in which he had the physical examination when entering the police service.
+
+48. When released from the hospital, he was given a convalescence certificate which kept him free of work. He had to go periodically for checks and for renewal of this certificate. After he had been for those checks and renewals for a few times, he started to forge the signature of the physician and "renewed" the certificate himself.
+
+49. During his stay with the police force in Berlin, and also when he was "convalessing", he had a private room hired at KURFURSTENDAL 26, or "not exactly" 26 - he said not to remember the exact number of the house.
+
+50. Then he got the idea to falcify a document releaving him for a longer period of time from checks with the police unit. This had to be a certificate showing that he had to undergo a "surgical operation" which will take at least three months.
+
+51. He had a girlfriend, Asterée SCHMIDT-AZI-BADASSI, a half-Azerbaijan, who was fluent in German and in French. David asked her to put the medical certificate into good official German. Then he forged the cachets and the signature of the physician, the same who had written the renewals of his disability certificate.
+
+52. He presented this forged certificate to a clerk in the office of his police unit. He was on good terms with the clerks there, he was a "friendly foreigner" who joked and spoke about Paris. This clerk took a short look on the certificate, made corresponding notes in his files, and this was enough for David for the case that somebody would ask about his whereabouts: he did not need to rely any more on the forged document: the clerk had made an official entry into the books, and there was no way to check, neither to doubt in this entry.

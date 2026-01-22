@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_15100.png
+
+Convert to Markdown14-0000-
+
+Date: 28 June 62
+
+Re: [Subject to the File]
+
+On 26 June 62, Subj called and said that he had come to Brussels on 22 June and is returning there for further discussions on his invention on 27 June. He stated that the people there are interested in his invention and he hoped that this will make something could soon be worked out.
+
+He commented further that the person he brought the letter to (letter of introduction mentioned in previous reports) is with a German firm which is interested in the Congo and in contact with Congolese officials.
+
+Subj will call CO upon his return to Frankfurt on 27 June 62.
+
+David R. Reinbold
+david r reinbold

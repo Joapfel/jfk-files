@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_15019.png
+
+Convert to MarkdownS-B-C-R-E-T
+
+REPORT ON CONTACT WITH AGENT OR DEPECTOR
+
+SUBJECT: WIROGUE
+
+DATE: 28 June 63
+
+TIME: 1145
+
+PLACE: Kuhwaldstrasse
+
+ORNE K. DARONNAT, Case Officer
+
+COMMENTS:
+
+C.O. dropped into see Subject and paid him subsistence
+for the next two weeks.
+
+Subject informed C.O. he had gone to the electrical
+firm BRAUN and had asked to see the Director of Research
+and Development. Surprisingly enough he was granted an
+audience with the "Great Man" and was allowed to explain
+his invention (electric dictionary). The Director was
+interested and told Subject he would discuss the idea
+with his engineering panel. If they were interested Sub-
+ject would be contacted. C.O. said that he should negotiate
+for a job that resettling him in Germany would appear to be
+his best bet since he has more going for him here than he
+would in South America.
+
+C.O. said he was working on his story (legend) and
+would recommend to Headquarters that Subject resettle in
+Germany with help toward BKZ and furniture.

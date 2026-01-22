@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_15075.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+REPORT ON CONTACT WITH AGENT OR DEFECTOR
+
+SUBJECT: AIRGUE
+
+DATE: 25 Jul. 1962
+TIME: 10:00
+PLACE:ост.лстр 1,0
+
+Д. В. Малкин
+Case Officer
+
+COMMENTS:
+
+CO visited Subj at his exit and said in E. 100 nonexistence for the period 20 July through 4 Aug.
+
+Subj was told t at a cable was received from Hs indicating that the people are definitely thinking about his reëtlement in South America and wanted to make sure whether or not he had a preference. That was why, it was explained to Subj, that CO called on 24 July and inquired whether or not he had this preference.
+
+Subj mentioned that he had thought seriously about his name on his phone Austrian passport and concluded that if at all possible he would like to retain the name Kainer. CO mentioned that under no circumstances would it be better and was glad when Subj did not push the point. Subj initially however tent when it is certain where he is going he will bring up the matter again.
+
+To the list of documents he has previously claimed he needs (under his new identity) Subj added the International Driver's License.
+
+Subj was most concerned about his future and asked all kind of questions to ascertain that every one will be laid on when he goes to South America. To know the matter of the official le in the U.S. Marie inquires only one or neither side - with the Austrians. CO replied but if anything ever comes up, the officials will not check with the Austrians but with the pertinent South American officials who will have been informed by us to make his entry and life in the new country a possibility. Subj seemed to buy this but expressed the fear that something could be wrong.
+
+Before CO left Subj Subj informed him that he will go around to the Venezuelan, Chilean and Colombian Consulates and request tourist information.

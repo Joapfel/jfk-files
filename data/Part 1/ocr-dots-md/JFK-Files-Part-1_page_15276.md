@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_15276.png
+
+Convert to Markdown3. Other than DATO, have you ever used another name in order to hide your true identity?
+
+Subject stated that he also had a passport in the name of a Romanian, while he was engaged in blackmarket activities in Germany. The question was reworded to read, "Other than DATO and the name of a Romanian, have you ever used another name in order to hide your true identity?" Subject answered, "No."
+
+5. Is your true name David __? Yes.
+
+6. Were you a student at the Ecole des Arts and Metiers? Yes.
+
+7. Were you a student at the Ecole Cinematographique? Yes.
+
+8. Were you a student at the Ecole Bruguet in Paris? Yes.
+
+10. Did you tell anyone that the Americans are in contact with you? No.
+
+11. Did you tell Annick the purpose of your visit to Paris? No.
+
+Subject stated that he had told her that he was going to undergo some sort of an examination. She has actually never asked Subject what the purpose of his contacts with the Americans were, but she is aware that the Americans are in contact with Subject for some specific purpose, since she is the go-between.
+
+12. Are the answers that you have given me truthful and exact? Yes.
+
+14. Do you hate the Russians and the Soviets? No.
+
+17. Have you been refused French citizenship? Yes.
+
+Subject charts manifested no emotional disturbance indicative of deception to any questions during tests I and II.
+
+## TESTS III & IV
+
+3. Did you enlist in the French Foreign Legion? Yes.
+
+4. Were you ever arrested or detained by any military police? No.

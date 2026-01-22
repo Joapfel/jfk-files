@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_13556.png
+
+Convert to MarkdownENHAJADA CUHANA.- 14-92-14.
+17-abril-62.
+M13-L13.-
+
+93.-
+
+Entrada a las 1024hs.- Rojas con Xiomara le dice que tiene boletos para ella su hija y Rogelio Rodriguez para la Habana.- Rojas le pregunta que si laزمadadan.- Xiomara: que sí Rojas: que a donde.- Xiomá que no sabe, que ni el embajador lo sabe; que ella necesita saber porque tiene que llevar bota de miliciana, que no hay, ni pistola.- Rojas: que a poco va de miliciana.- Xiomara que sí, que a ella le duele muchísimo el traslado porque ella adora aquí porque tiene muchos amigos.- Rojas que si no se podría arreglar eso y que a quien van a mandar en su lugar.- Xiomara que no sabe.-- Xiomara hace la declaración que Rogelio tiene señora y que está aquí.- Rojas que no mandan boleto para la señora y que Rogelio necesita que lo arregle luego. Que si a Rogelio también lo trasladan.- Xiomara que sí.- Rojas que si tampoco sabe a donde. Xiomara que tampoco sabe, que a lo mejor es a Cuba. Quo ella tendrá que irse con los embajadores.- Rojas que entonces le diga a Rogelio que arrengle lo del boleto de su señora.-- Rojas que también tienen orden de pasaje para Ester Gavilán Rosales, para qua lo avisen.- Xiomara que Ester Gavilán es la mujer de Rogelio -quo dice Borta--.- Rojas que entonces que da solucionando el problema.-- Rojas prenota que si está Carrillo porque tiene que hablar con el con urgencia o con alguno de la comisión.-- 151.- HD Quintana con Rojas le dice que ya sabe que están con el problema del equipaje de ellos que a Cuba no se puede mandar nada por cobrar y que hay que pagar el exceso; que lo dijo Carrillo que iba a hablar con alguien en la Habana para ver como solucionaban eso; que hoy recibió un radio y que tiene que contestarlo urgente: que la única menera que tiene que hacer es visarles la cantidad de equipaje que tienen y que con una orden de MINREX puede docum

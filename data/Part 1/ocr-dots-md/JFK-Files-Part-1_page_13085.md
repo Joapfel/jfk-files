@@ -1,0 +1,6 @@
+# JFK-Files-Part-1_page_13085.png
+
+Convert to MarkdownBureau's Security Staff reporting to the Bureau's Organized Crime Division which states that Foosada-Carriles is a CIA Agent in a GS status.
+
+LAWRENCE R. HOUSTON
+General Counsel.

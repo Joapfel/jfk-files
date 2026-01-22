@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_13191.png
+
+Convert to MarkdownFrom: CIGUSTY Operational Reporting for January 1968
+
+HVCA-15293, 22 March 1968
+
+75 - 6 - 43/3
+
+AMCLEVE-15
+
+None
+
+He was picked up as a penetration of CIRASH at the end of January and will be put on a salary beginning 1 February 1968.

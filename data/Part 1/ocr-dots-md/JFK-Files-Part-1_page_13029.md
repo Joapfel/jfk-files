@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_13029.png
+
+Convert to Markdown14-00000
+
+SECRET
+
+JG DEC 65 N. 23967
+
+JMDEVIL LIRAZZ
+
+REF DIR 67459 *
+
+PLS
+
+ADVISE
+
+SECRET CIN
+
+BT
+
+3 JAN 1990
+
+SECRET
+
+F

@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_14092.png
+
+Convert to Markdown12 July 1960
+
+MEMORANDUM FOR: Chief, Finance Division
+ATTENTION: C/C & TAB o4
+SUBJECT: Emilio Americo RODRIGUEZ
+
+1. Subject has been recruited by the Habana Station at the rate of $300.00 per month effective 1 June 1960.
+
+2. It is requested that Finance Division deposit the monthly salary of Subject to Account No. 44-335-104, Whitney B4 National Bank of New Orleans, P.O. Box 1260, New Orleans 10, Louisiana. This account is under the name of Emilio Rodrigues. D4
+
+3. The first deposit should be made on 30 June 1960 for the month of June and monthly thereafter until further notified.
+
+4. No taxes are to be withheld from Subject's salary.
+
+J. D. Isterline
+C/W/4
+
+WH/4/FI/RSeehafer/do
+
+Distribution:
+
+* Orig & 1 - Addressee
+* 1 - WH/4/Finance
+* 1 - WH/4/Chrono
+* -> 1 - WH/4/Subject
+
+12 Jul '60
+201-2746-49) 08
+
+5/PV

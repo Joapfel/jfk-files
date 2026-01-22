@@ -1,0 +1,52 @@
+# JFK-Files-Part-1_page_15095.png
+
+Convert to Markdown-12-
+
+found a safe place and slept until dark. I started off
+on foot from Batumi and followed the sea shore until I
+reached the old shooting range about 1 1/2 or 2 km to
+the south. Here I entered the water at about 2200 hours,
+after destroying my passport (the rest of my documents
+were left at home) and burying my clothing and bag. I
+knew from previous study of a map at home that I had to
+swim some 18 km. to Turkish territory. I swam all night
+and was not sure if I had reached Turkish soil, but
+being exhausted, I came ashore at about 0300 or 0400 hours.
+The point where I stepped out was on the gradient of a
+steep slope. There I saw the silhouette of a hut and
+went in. There was an old discarded electric motor in
+the hut. From the Russian description on the motor, I
+understood that I was still in Russia. I hid in the
+underbrush near-by and spent the rest of the night and
+the following day there. When it was getting dark, I
+climbed the slope to observe the area. I walked for a
+while hearing voices in Russian coming from the shore.
+I saw a dark object on the sea which resembled a submarine.
+I continued walking near the shore and around 2200 or
+2300 hours I entered the water and started to swim 3 km
+off shore and then parallel to it. When I came into the
+range of a search light which swept the sea, I submerged.
+When I came to the surface the search light swept over me
+but nothing happened and I knew I had not been discovered.
+I continued to swim until I was completely exhausted, and
+several hours before dawn went ashore and hid in a cave
+opposite two big rocks in the sea near the shore. I
+remained there until morning. The next morning I climbed
+up the slope where I saw a stone structure resembling a
+grave. I went in and observed the land around me from a
+small opening. I saw a large village which I later learned
+was Kemal-Pasha. I thought at first that a minaret was
+an observation tower. I also presumed that this was the
+village of Sarpi, still on Soviet territory. I was very
+thirsty and climbed down the hill to a near-by stream to
+drink water. I met an 11 or 12 year old boy whom I
+addressed in Russian but the boy drew away from me. Being
+still not sure as to where I was, I walked in the stream
+for a while to hide my footprints. Then I hid in the
+underbrush until it grew dark. I came out and went around
+the village to its opposite end. There I entered the town
+and knocked on the door of a house situated on a hillside.
+I called out in Russian. Even though I heard voices and
+footsteps in the house nobody opened the door. I climbed
+on the roof of a sort of stable in the courtyard and spent
+the night there. Early next morning I was awakened by

@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_10653.png
+
+Convert to MarkdownThursday - November 17, 1966
+
+MEMORANDUM OF CONVERSATION between
+
+Andrew St. George -- CBS photographer.
+William G. Bowdler,
+
+SUBJECT: Invasion of Haiti
+
+Andrew St. George called me from Miami.
+
+He said that he and the CBS film crew, headed by a Mr. McMullin (gynecologic), were back in Miami to cover the departure this weekend of the expedition which Roland de Masferrer was organizing to lavade Haiti. St. George claimed that Masferrer had recruited 300 men and arranged for the use of one B-25, two C-46s and a large boat. He said that all the preparations were so much in the open that it was evident that Masferrer and his Haitian colleagues had received the "green light". Recent events in Haiti, plus Masferrer's activities, were attracting a lot of newsmen to Miami.
+
+I told St. George that he was mistaken about the "green light". We will not tolerate violation of our neutrality laws. Our enforcement agencies, whose duty it is to enforce these laws, will not permit what he described taking place. I wanted him and those with whom he was dealing to be clear on this point. He said he would inform Mr. McMullin.
+
+William G. Bowdler
+
+cc : Wd : Rostow
+Bill Meyers
+Line Gordon/State.
+Bill Broe/CIA.

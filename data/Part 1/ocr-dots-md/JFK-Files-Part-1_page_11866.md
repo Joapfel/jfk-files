@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_11866.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+The ratings above, and narrative comments hereunder, are derived from a synthesis of all evaluations submitted on each respective trainee by the instructor staff.
+
+Overall performance ratings of all students in this class were as follows:
+
+WEAK O ADEQUATE O PROFICIENT 6 STRONG O OUTSTANDING O
+
+NARRATIVE COMMENTS
+
+FELIPE was handicapped to some degree by his weakness in English language. FELIPE's attitude throughout the course was cooperative and congenial. His participation in lectures, plans, and field exercises suffered from a lack of concentration and thoroughness. He appeared to have only a partial grasp of many of the topics presented. He was inclined to rush a bit in planning exercises and was also somewhat hasty in his execution of field work (Mapping, Recons, tactical movement in Raid and Ambush Exercises).
+
+In his leadership assignment, he planned reasonably well, but his execution of the plan was weak and he lacked good control of the group.
+
+FOR THE DIRECTOR OF TRAINING:
+
+PREPARED BY:
+
+APPROVED AND FORWARDED:
+
+JEROME W. GREINER
+Project Officer
+
+JOSEPH M. HUDACEK
+Chief Instructor
+
+8/30/66
+
+Date
+
+S-E-C-R-E-T

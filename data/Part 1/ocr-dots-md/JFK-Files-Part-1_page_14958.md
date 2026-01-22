@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_14958.png
+
+Convert to MarkdownSECRET
+
+VIR: AIR
+
+Dispatch No. EJFA 22041
+76-6-59
+
+TO : Chief, SR
+
+FROM : Chief of Base, Frankfurt
+
+SUBJECT: General - Operational/REDWOOD/REDSOX/APACHE
+Specific - REDSOX Candidate in France
+
+Reference: OPFW 20982, dated 23 May 1958 101-207137
+
+Action requested: Please advise if it is desired that we contact and assess Subject
+
+1. Subject of this dispatch is the person thought to have genuine REDSOX potential mentioned in the first paragraph of reference.
+
+2. Subject was described to us by AEPADDLE before the latter contacted him in France and from the report submitted under reference, it would appear to us that he may be even better than first was thought. We have noted the pros and cons as outlined in reference and would like the opportunity to comment on the latter. It would seem to us that the fact that Subject is on parole ought to make little difference, as far as his candidacy for REDSOX is concerned. Surely a means can be devised to remove him from France so that he will neither be hunted by the French authorities nor become the object of suspicion simply because he has left. He might emigrate to South America, which we probably could help him achieve. He could move to North Africa and disappear from there. If the fact that Subject is on parole is thought to be a handicap because it reflects on his character, we believe that what we wrote about the criminal record of AEDASIS 2 applies equally to this case. The matter of relatives in Georgia being considered as a con is difficult for us to understand, but we assume there must be some special circumstances which make it so. Generally speaking, we should have thought this to be a positive factor. Regarding possible surveillance by the other emigres we submit that such must be assumed in every case, notwithstanding what the Subject in question may think. The presumed surveillance becomes a problem when it is time to remove a candidate for training, which calls for a smooth cover for his disappearance (Cf. EGPA 21407). After all, enigre surveillance can only do so much; it cannot keep close tabs on an individual hourly. About the last point: Unless there are some special reasons not explained in reference why contacting Subject is difficult, we believe that we could do this securely and without attracting attention. The means of authenticating the approach outlined in reference should be simple - assuming that AEPADDLE's arrangements are firm.
+
+3. Unless the Paris Station is in a position to make the contact with Subject, we request permission to do so. If granted, we would visit Gap, contact Subject by means of a photograph which, it would seem, could be supplied by Headquarters. It should be an uncomplicated matter to establish our bona fides. We should then try to arrange for Subject to
+
+CS COPY
+
+SECRET
+
+S E C R E T
+
+Ser-207137 101-233477
+
+14-P0000
+
+SECRETS

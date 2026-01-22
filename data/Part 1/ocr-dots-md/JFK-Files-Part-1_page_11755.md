@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_11755.png
+
+Convert to Markdown14-0000
+
+BLONDE
+by
+CHIC YOUNG
+
+3-4
+
+Copyright 1981, King Features Syndicate, a division of The Gannett Company, Inc.

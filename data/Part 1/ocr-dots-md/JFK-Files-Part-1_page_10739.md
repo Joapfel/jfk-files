@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_10739.png
+
+Convert to MarkdownSECRET
+
+SECRET (When Filled In)
+
+<table><thead><tr><th colspan="8">EXTRACT AND CROSS REFERENCE</th></tr><tr><td colspan="8">DOCUMENT IDENTIFICATION</td></tr><tr><td>DOC. SYMBOL & NO.</td><td></td><td>DATE OF DOC.</td><td></td><td colspan="4">FILE CLASSIFICATION OF RECORD COPY</td></tr></thead><tbody><tr><td colspan="2">DOC. SUBJECT</td><td colspan="7"></td></tr><tr><td colspan="8">SOURCE INFORMATION</td></tr><tr><td>SOURCE CRYPTOGRAPHY</td><td></td><td>DATE OF INFO.</td><td></td><td colspan="4">EVALUATION</td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8">TEXT OF EXTRACT (Also cite doc. distribution, Date, No., etc. - if applicable)</td></tr></tbody></table><p>MASFERRER-ROJAS, ROLANDO<br/>201-042669<br/>SEX M DOB ?<br/>CIT ?<br/>OCC ?<br/>FIRST MET AND DISCUSSED POLITICAL SITUATION IN<br/>HAITI WITH JACK SIMMONS HORGER BEFORE 67<br/>100-009-016<br/>DBD -53739<br/>02 APR 73<br/>FbI<br/><br/>R 7304280885</p><table><tr><td colspan="4">Indicate The Subject, Project Or<br/>201 File No. In Which This<br/>Form Is To Be Filed.</td></tr><tr><td colspan="2">SUBJECT OF 201 (Last, First, Middle)</td><td colspan="2">201-042669</td></tr></table>

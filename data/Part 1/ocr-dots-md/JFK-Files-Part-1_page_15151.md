@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_15151.png
+
+Convert to MarkdownTranslation from German
+
+Consulado del Peru
+
+Frankfurt/Main
+Guiollettstrasse 10
+
+September 7, 1962
+
+Re.: Immigration to Peru
+
+Gentlemen:
+
+1.) There are no special application forms for an immigration visa. The applicant appears in person at the nearest Consulate of Peru with the following documents:
+
+a) Travel Document and 3 passport photos
+
+b) Birth certificate
+
+c) Proof that the applicant has sufficient means to pay for his transportation, as well as his living expenses for at least two years. As minimum living costs we figure 500 DM per month per person. A work contract can also be supplied as proof of the above.
+
+d) Medical certificate issued by a health officer not more than 6 months before submission to the Consulate.
+
+e) Certificate of small-pox vaccination, issued not longer than 2 years before submission to Consulate
+
+f) Police waiver covering the past 10 years
+
+g) Certificate of good conduct (Leumundszeugnis)
+
+Visa fees amount to DM 180.-- plus possible telegram fees.
+
+2.) The citizenship of Peru can be acquired only if the applicant has resided without interruption for at least four years in Peru and can prove that he has served the country(?). Further 10 sponsors are required.
+
+3.) We do not know about any restrictions under the immigration quota.
+
+4.) We do not know any special professions in demand.
+
+5.) See Paragraph 1 c
+
+6.) See Paragraph 4

@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_15363.png
+
+Convert to MarkdownBlighthouse required approximately twenty-five hours of 9-30 flight instruction per day prior to field deployment. Fеврииесоd very marginally as Chief Pilot Banks and continually requested transfer to multi-engine class due to apprehension about himself physically and mentally incapable of tactical flights.
+
+It is my opinion that he should not be considered for any future tactical operations and would not be acceptable for reënteract in Cengine operations.
+
+Functioned solely as C-46 co-pilot. The two of the transport pilots, along with Joe Balboa and Vallicioro, that continually delegated transport operations. In too old and not physically capable of enduring sustained field operations. Indicated desire to return to Cengine, but to not feel he would contribute anything to flight operations. Limited to co-pilots only duties which do not interfere with this operation.

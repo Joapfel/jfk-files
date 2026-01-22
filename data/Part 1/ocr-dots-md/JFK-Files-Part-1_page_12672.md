@@ -1,0 +1,50 @@
+# JFK-Files-Part-1_page_12672.png
+
+Convert to Markdown14-0000-
+
+CUTGOING MESSAGE
+
+SIGNATURE LINE USE ONLY
+
+2
+
+CONF.      INFO: FILE
+
+SECRET
+FOR SECRET ARMY COMMAND
+
+DATE: 07 FEBRUARY 1976
+ORIG: WILLIAM J. DEVINE
+UNIT: LA/NU
+EXT: 1128
+
+C/LAD
+
+COORDINATING OFFICER:
+RELEASING OFFICER:
+
+CLASSIFICATION
+SECRETS
+
+MESSAGE REFERENCE NUMBER
+
+0391      DISSENT BY:
+
+0 NO DATE
+0 RETURN TO PER
+0 PAGES    *
+
+C/LAD
+IDENTIFICANT OFFICER
+
+REPRODUC BY OTHER THAN THE ISSUING OFFICE I PR
+E-2 IMPDET
+CL BY: 019453
+
+<table><tr><td>0</td></tr></table>
+
+<table><tr><td>1</td></tr></table>
+
+<table><tr><td>4</td></tr></table>
+
+<table><tr><td>2</td></tr></table>

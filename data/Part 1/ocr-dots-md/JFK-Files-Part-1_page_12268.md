@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_12268.png
+
+Convert to Markdownn Carte 1309, Hospital Jackson Memorial, 7:10 P.M., Miércoles Diciembre 4 de 1968.
+
+Yo. JULIO ATON CONSTANZO PALAU, del 52 S.W., Carta calle, Miami, Florida, casado con María Consarce, la cual estímase en presente, declaro lo siguiente: Nació en Palma Soriano, Oriente, en Cuba, el 22 de Mayo de 1936. Yo tengo 32 años de edad. Me case el 10 de Marzo de 1963 en Miami, Florida.
+
+Yo no soy un ciudadano de Estados Unidos. Yo soy un residente, y tengo una hija, Elizabeth, la cual cumple cinco años de edad el 24 de diciembre, la cual nació aqul en este Hospital, Jackson Memorial.
+
+Y el propósito de hacer estas declaraciones se debe al hecho que la policía ha permitido que pasen varios
+
+días, y la gente que intentó quitarme la vida estufafuera en la calle, libres.
+
+El 22 de noviembre, alrededor de las 8.30 de la noche, a unas tres cuadras de mi casa, yo estaba caminando y me bajé de la acera en la 7ª Avanida y la Segunda calle, en la sección del S.W., cuando ofía alguien llamante "Alón", y miré para ver quien era, y entonces yo semi que ellos me disparaban, y yo vía las armas con silenciadores.
+
+Yo vi a Ricardo Morales Navarrete, y él estaba en el Chevrolet Impala 1965, de dos puertas, smartillo con dos luces de cola. Estaba sittdo en el medio de la calle.
+
+Este hombre, Ricardo Morales Navarrete estaba en el asiento de atrás, en la lado izquierdo. El tería un USB M-6, con un silenciador, el cual dispara balas calibre 45.
+
+Otro hombre estaba manejando, y yo lo conocí de vsia, pero no sé su nombre verdadero. Lo llaman con el apodo de "El Gallego". Este hombre, El Gallego, tenía una pistola que parecía una Beretta, con un silenciador adaptado.
+
+Ambos me dispararon. Yo recibí 15 heridas de forma y 21 perforaciones.
+
+Un tercero hombre estaba en el carro, llamado Francisco Rodríguez al que apodan "El Mejicano", el cual no disparó.
+
+Yo identifíco a Ricardo Morales Navarrete como el mismo hombre que testificó para el Gobierno en el juicio de Orlando Bosch.
+
+Dos días antes yo lo ví a él con esta persona, El Gallego, observándome en frente de mi casa. Elinos eran en otro carro, un Polara.
+
+Yo conocí a este Morales Navarrete de La Habana, el día que fui Asistente de la Sección del G-2 en el Aero-puerto de Rancho Boyeros, Habana, Cuba.
+
+Yo no he hablado con él, pero otro hombre, Eddy Fernández Piña, hace casi dos meses, vino a mi casa a eso de la una de la madrugada para darme un mensage de Ricardo Morales Navarrete y del Mejicano Francisco Rodríguez Tamayo los cuales no querían ser mis enemigos, que el enemigo era Batista, y que debíamos ser amigos porque las cosas iban a cambiar.
+
+Yo le dije que no quería tener ninguna amistad con gente que trabajaba para Fidel Castro.
+
+La noche que Eddy Fernández Piña vino a mi casa, él estaba con otro hombre, Rogelio Fernández, el cual es un vendedor de la Firestone.
+
+Yo tengo una baja alojada cerca de mi corazón y tice que ser extraída con un aparato especial, según me dió el médico.
+
+En estos tres últimos días no me he sentido bien y como tengo todos estos síntomas en mi cuerpo s que estoy en una malas condiciones y me siento como que voy a morir, y si muero, no¿cómo morir sin que este gran país castigue a esos asesinos, ..s cuales son nefastos para toda la sociedad.
+
+Hago estas declaraciones completamente consciente de sus contenidos, sin concepción y con mi propiedad y libre volumen.
+
+He tenido atenciones incólmenas para agradar el dolor, y no me siento bajo la influencia de ninguno, droga, pero me siento muy normal y h

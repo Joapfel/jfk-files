@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_14494.png
+
+Convert to MarkdownTO JOHN SMITH
+FROM WHEELER
+
+Would appreciate your comments in turn. I'd return for an on-site visit.
+
+## Notes
+
+1. Now that AMAUTO-1 is scheduled to go back to Cuba in mid-year, it is a bit late to begin the recruitment of an intermediary. We have information that he intends to go back to MININT rather than MILEX or even MIKEEX, which makes the likelihood of his coming out again somewhat slimmer to say the least. I'm afraid that, although we have time only for a reasoned quick approach, this type of approach might lose him to us for good.
+
+2. This causing him to become suspicious is not quite what we had in mind when we wrote ref B. I made, I think, a rather strong case for laying cards on the table with AMAUTO-1, and a slow development by a senior staff officer seemed to emerge from the possibilities. We even suggested how it might be done (through the gymnasium). That might be impossible, but the validity of the approach should deserve a comment.
+
+3. An intermediary would be an access agent, so certainly he should be responsive. I can't consider this point to have any additional bearing on the matter. Of course it will be difficult, and I'm glad they're prepared to work on it.
+
+4. I'd like to have had a chance to review the Sun & Bradstreet file on Carlitos, even though the PCA has gone forward. CORRECTION: we have it.
+
+5. A joint operation (income ways) is the easy way out. We simply did not get started in time.
+
+6. I disagree, because the question of commitments is somewhat premature, but I'd be willing to push for 750-1,000 a month while working in place, with a bonus when he does come out. For defection outright, which is a poor second, he might even be worth work to resettle him here. LBJA 19006 reported a 1964 attempt to get at Mrs. AMAUTO-1's relatives in Miami, and they might still be there. I hope they would sponsor everything, but everything depends on initial approaches and debriefings.
+
+7. There are a lot of unanswered questions, posed in the outgoing, and I'd have appreciated a word about them: we have answered this one, we are working in the same manner on that one, etc.
+
+a. The construction work on the new Embassy. There is a separate dispatch on this so all is on wheels.
+
+b. The lonely automobile trips deserves looking into. He comments in the incoming.
+
+etc.
+
+In any case, they're on it, so I want to encourage as much as possible. Pls tube back (Dv-3) when you've had a chance to speak with me.

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_11931.png
+
+Convert to MarkdownOffice of the General Counsel
+
+October 28, 1975
+Page Two
+
+possible with respect to whether these persons will be available for testimony. If we can provide any additional information with respect to this case, please do not hesitate to contact the undersigned. Thank you for your courtesy and cooperation.
+
+By E. Mac Amos, Jr.
+
+EMA/db
+Enclosures

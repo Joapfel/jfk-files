@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_14811.png
+
+Convert to MarkdownIn August, 1965, there were indications that Winston had a brain tumor. But he had refused to undergo another operation because he was given only a 1 in 100 chance for survival. Soviet medical reports in early 1962 indicated, revealed that Winston's condition was much improved that his vision was 80 per cent. right and one percent left, and treatment for his illness had not begun. On March 12, 1963, Soviet doctors stated at complete physical examination, "stated that all symptoms indicating a recurrence of Winston's brain tumor and completely disappeared.
+
+In January, 1965, Fern Winston advised that doctors in the Soviet Union told Winston that he must return to that country for hospitalization and treatment twice a year for periods of four to six weeks. This treatment, consisting of injections, exercises, medicine, and diet, is supposed to reduce the blood pressure and enable Winston to see, at least, some contrast between dark and light.
+
+Winston has claimed on numerous occasions that, while he was in prison, the Government doctors made a wrong diagnosis of his ailment and, as a result, he is now blind. On November 7, 1966, while in prison, Winston brought suit against the U.S. Government for one million dollars under the Federal Tort's Claims Act, alleging that the failure of prison authorities to properly diagnose his condition and to treat him for a brain tumor had resulted in his becoming totally blind. On January 18, 1965,

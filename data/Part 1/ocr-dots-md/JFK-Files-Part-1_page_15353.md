@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_15353.png
+
+Convert to Markdown14-09006
+
+ASSIFIED MESSAGE TOTAL COPIES 24
+
+SECRET
+
+REPRODUCTION PROHIBITED
+
+<table><tr><td>CLASSIFY TO FILE NO.</td><td colspan="3"></td></tr><tr><td>REF TO FILE NO.</td><td colspan="3"></td></tr><tr><td>FILE DCD ☐ REF. TO BRANCH ☐</td><td colspan="3"></td></tr><tr><td>DESTROY ☐ SIG.</td><td colspan="3"></td></tr><tr><td>FROM</td><td colspan="3"></td></tr><tr><td>ACTION</td><td colspan="2">RID COPY</td><td>ADVANCE COPY ☐ ISSUED ☐ SLIPPED ☐ CARRIED UNIT TIME BY</td></tr><tr><td>INFO FILE, L.R., AFT, WH/ST, O.S.2</td><td colspan="4"></td></tr></table>
+
+9 AUG 55 IN 35137
+
+SECRET 190048Z
+DIR CITE WAVE 5:65
+CHAPPIE WITH RUSH SECUR PERMEN
+REF: WAVE 5:04 (1) 03583)
+
+IDENTITIES: A. JANICE MIYAYA, AKA JANICE ROMAN, CLAIMS SECRETARY TO IDEN B.
+B. ROBERT ROGERS, NATIONAL BROADCASTING COMPANY.
+
+SECRET
+
+CFN 5105 5104 A JANICE MIYAYA AKA JANICE ROMAN & B ROBERT ROGERS
+NATIONAL BROADCASTING COMPANY
+
+BT
+
+MICROFICHE
+
+'19 AUG 65
+201-300614

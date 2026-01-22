@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_11241.png
+
+Convert to MarkdownREPUBLICA DE CUBA
+CONSEJO NACIONAL DE CULTURA
+
+COMISION CUBANA
+EXPOSICION DE MUNICA
+
+La Habana, 29 de enero de 1966
+"ANO DE LA SOLIDARIDAD"
+
+Co DIRECTOR La Instrucción,
+MINISTERIO DEL ESTUDIOS SUPERIORES
+LA HABANA.
+
+COMPANOS
+
+Por la presente le ruego se sirva expedir un permiso
+de Salida del país al ciudadano canadiense Sr. Guy Parent, el cual se
+encuentra actualmente en nuestro país hospedado en el Hotel Habana-
+Riviera.
+
+El Sr. Parent tiene un pasaporte expedido en Ottawa,
+Canada con número 8P-21741 y deberá partir el próximo lunes 31 de
+enero en el vuelo de la Compañía Cubana de Aviación por el Aeropuerto
+Nacional "José Martí".
+
+Con saludos revolucionarios de "PATRIA O MUERTE"
+quedo de Ud. atte.,
+
+Luís Alberón
+Jefe del Protocolo
+Dir.Rep. Internacionales
+Consejo Nacional de Cultura

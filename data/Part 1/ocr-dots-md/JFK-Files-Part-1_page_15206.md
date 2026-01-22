@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_15206.png
+
+Convert to Markdownque j'ai fait jusqu'ici, et d'ailleurs je ne suis pas sense
+reconter ma vie.
+
+Je pense souvent que ce serait bien de se
+revoir pour rire un peu et avoir quelques joyeuses sorties
+marseillaises. Comment allez-vous et aussi comment vont les
+filles. Elico, Irene et Cathy. J'aimerai bien avoir un mot de
+chacune d'elles si la plume n'est pas trop lourde. Cela fait
+plus mal d'un an que je ne les ai vues. Par le même courrier
+j'écris à Atchico de sorte que si Atchico entendait les filles
+parler de moi à la maison il n'y aura pas de gene ou de sur-
+prise. Je suis en train de penser que maintenant elles ont un
+oncle d'Amerique. Ca fait bien. Evidemment je n'ai pas encore
+de ranch, d'ailleurs même si j'en avais la possibilite cela
+ne me tenterait pas.
+
+Comment va Zouquette ? et Sophie ? J’espere
+que tu la vois toujours et dans ce cas dis lui que je serais
+reellment content de recevoir quelques lignes d’elle si toute
+fose elle le veut bien. Ne pouvant lui ecrire directement tu
+serais bien gentille de lui retransmettre mon eventuelle
+reponse. C’est vrai que je suis aussi papa bresilien.
+
+Et la belle Eliane? Bien des choses a elle.Je
+n’ose pas lui proposer le m’écrire.d’abori ce n’est pas poli,
+et ensuite on arriverait encore a se mordre,mais je crois que
+J’aimerais assez être mordu par elle.Que veux-tu,j’aime souffrir
+moi. Bonjour a Dina,naturellement.
+
+David de Fanasknet
+c/o Jan Pilsudski
+
+Caixa Postal 11734(Lapa)
+São Paulo
+
+BRASIL
+
+Tu m'écris, je vous écris et un jour j'arriverai.
+
+P.S. Voici mon adresse.Prenez bien soin de l'écrire en entier.Je suis souvent en déplacement

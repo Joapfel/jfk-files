@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_11576.png
+
+Convert to MarkdownSECRET
+
+28 January, 1969
+
+Subject: LIVING/3 Report of Address of Guatemalan Refugees in Mexico City.
+
+1. At 1000 on 21/1/69 LIVING/3 told Rowton that his old Guatemalan friend Jacobo Rodriguez Padilla was residing at Calle Veracruz 14, apartment, and that the Carlos Vega, whom Jacobo had sent to LIVING/3's home with a note asking L/3 to help Vega, was living in the azotea (servant's) room belonging to Jacobo's apartment.
+
+2. L/3 also reported that Carlos Vega again called on him unannounced at his apartment on 20 January and asked him to arrange through his PERUEMI friends to send a package of medicine to a son of furcios who was living in the PERUEMI capital. Vega also asked L/3 to send two "very important" letters to PERUEMI through friends who could bypass the usual censorship. L/3 promised to do what he could and asked Vega to deliver the letters to him on 25 January.
+
+3. Because of the obvious possibility of provocation in this rather unexplained behavior of Carlos Vega (he originally told L/3 that he was a close friend of Identity A ), Rowton agreed with L/3 that no attempt should be made to open the letters and that they should be delivered promptly to the LIVING office for whatever disposition that establishment might want to make of the letters. L/3 promised to note carefully the addressees of the letters.
+
+4. Rowton told L/3 that he would have to leave town for a visit to Monterrey and was not certain when he would be able to finish his business there. He made at date, however, for 1000, 3 February, at the Camino Real restaurant, and asked L/3 to return to the same place at 1000 on 7 February in the event that Rowton did not appear at the first time and date.
+
+Wallace B. Rowton
+
+SECRET
+
+201-778301

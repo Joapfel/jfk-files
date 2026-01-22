@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_10475.png
+
+Convert to Markdown<table><tr><td>8-E-C-B-E-P</td></tr></table>
+
+2-
+
+Mazaferrer because, according to him, any time the US Embassy people in Bogota were passed information the Colombian guerrillas were somehow informed. We also told Mazaferrer that he believed a leak had developed in the US Embassy and that the "Embassy boys" could no longer be trusted.
+
+- end -
+
+<table><tr><td>S-E-C-B-E-P</td></tr></table>
+
+6
+
+4
+
+3
+
+2
+
+1
+
+5
+
+4
+
+3
+
+2
+
+1

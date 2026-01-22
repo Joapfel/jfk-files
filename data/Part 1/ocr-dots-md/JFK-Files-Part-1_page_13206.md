@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_13206.png
+
+Convert to Markdown14-00006
+
+SECRET
+BOWWAVE FEB 68 CITE CARACAS 8895
+
+DIRECTOR INFO JMWAVE
+
+REF: CARACAS-8394 (CIN49508)
+
+1. FOLLOWING ARE HIGHLIGHTS OF 9 FEBRUARY MEETING
+
+FOLLOWING ARE NOT INCLUDED:
+
+A. DIGEPOL SUSPECTS CUBAN G-2 OPERATING OFFICE UNDER COVER BOOK STORE IN CARACAS. ALLEGED CONTACT WITH CUBANS FOR THIS OP IS GIUSEPPE (MATTESSICH) MARCULL VEN FOREIGNERS CEDULA E-752002, ITALIAN PASSPORT 2067532 ISSUED BY ITALIAN CONSULATE HAVANA 14 APRIL 1956. HIS WIFE IS MARIA LUISA (PEREZ) HERNANDEZ DE MATTESSICH, DPOB 13 MAY 1982, PINAR DEL RIO, CUBA. VEN FOREIGNERS CEDULA E-795883, CUBAN PASSPORT 30088 ISSUED SEMANA 5 JULY 1956.
+
+NO STATION TRACES. REQUEST JMWAVE, HQS, AND AMOT TRACES.
+
+B. CUBANS RUN INFILTRATION OP THROUGH CURACAO TO BRING CUEANS AND VENEZUELANS INTO VENEZUELA IN PUERTO CABELLO AREA. MAN IN CHARGE IN CURACAO IS ONE FNU DODGE WHO OWNS TAXI LINE. (WILL CHECK WITH CIWRITS.)
+
+C. DIGEPOL JUST OBTAINED COMPLETE URBAN SECRET
+
+SECRET
+
+SECRECY NOTE
+
+JIM WAVE
+
+MARCO LUIGI
+
+HAVANAS
+
+SEMANA 5 JULY 1956.
+
+CURACAO
+
+CUANDO ESTAMOS EN EL PARQUE
+
+ESTUDIADO A LA MINERA DIFUSION DE LA FABRICADA CON LA CONDICIÓN DE QUE ESTÁS A UN DÍA DE VOLCANO ESPECIAL EN EL MUNICIPIO DE SANTO DOMINGO. NO ESTÁS A UN DÍA DE VOLCANO ESPECIAL EN EL MUNICIPIO DE LA LIBERTAD. SI SE PUEDE ENTRENA, ESTÁS A UN DÍA DE VOLCANO ESPECIAL EN EL MUNICIPIO DE SAN PEDRO. SI NO ESTÁS A UN DÍA DE VOLCANO ESPECIAL EN EL MUNICIPIO DE LA LIBERTAD, ESTÁS A UN DÍA DE VOLCANO ESPECIAL EN EL MUNICIPIO DE LA CASITA Y EL DÍA DE VOLCANO ESPECIAL ESTÁS A UN DÍA DE VOLCANO ESPECIAL EN EL MUNICIPIO DE MONTES Clarita, si estás a un día de volcán especial en el municipio de Montes Clarita, si no estás a un día de volcán especial en el municipio de Montes Clarita, si estás a un día de volcán especial en el municipio de Montes Clarita, si no estás a un día de volcán especial en el municipio de Montes Clarita, si estás a un día de volcán especial en el municipio de El Limón, si no estás a un día de volcán especial en el municipio de El Limón, si estás a un día de volcán especial en el municipio de El Limón, si no estás a un día de volcán especial en el municipio de El Limón, si estás a un día de volcán especial en el municipio de Maracaibo, si no estás a un día de volcán especial en el municipio de Maracaibo, si estás a un día de volcán especial en el municipio de Maracaibo, si no estás a un día de volcán especial en el municipio de Maracaibo, si estás a un día de volcán especial en el municipio de Santander, si no estás a un día de volcán especial en el municipio de Santander, si estás a un día de volcán especial en el municipio de Santander, si no estás a un día de volcán especial en el municipio de Santander, si estás a un día de volcán especial en el municipio de Barranquilla, si no estás a un día de volcán especial en el municipio de Barranquilla, si estás a un día de volcán especial en el municipio de Barran

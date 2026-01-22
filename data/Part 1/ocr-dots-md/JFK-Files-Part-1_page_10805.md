@@ -1,0 +1,151 @@
+# JFK-Files-Part-1_page_10805.png
+
+Convert to Markdown14-0000
+
+LIBERTAD
+
+SECRET
+
+JUN 6 1969 Pag. 11
+
+# Notas Sueltas
+
+Esteban FARRER, director del canal 47 de TV. A pesar que ha salido también de allí Diego (Tendémez) González, que pese a lo que se diga de él, era el columnista más leído de "El Tiempo".
+
+El ex-coronel Esteban Ventera, representante de "El Tiempo" en Miami, tiene registrado el título aquí, a nombre suyo. Dice que al presente, se están vendiendo a 20 centavos.
+
+XXV
+
+El hospital para tuberulosos de Lantana, en West Palm Beach donde hay muchos enfermos cubanos, es un antro de horrores. Su crio: Mala alimentación. Suspenderon las funciones de este, hay cuantos internados. En las telas de 72 hombres solo hay custo tazas en los servicios sanitarios. Y cuatro duchas y lavamanos. Abundan, los borrachos y los delincuentes. Los enfermos dicen que mejor muerse de una vez. O fugarase del tal hospital. Y esto es una institución federal...
+
+ACTIVIDAD REDOBLADA. El Buró Ejecutivo de los Municipios Cubanos Independientes se encuentra constituido en sesión permanente, en atención a los importantes hechos que en laifa mártir se están produciendo, decididamente encaminados a obtener, por medio del triunfo de las armas redentoras, la total liberación de la parrila y la expulsión defensiva de su suelo, del columnsar, que ahí tenece como titere suyo al chacal Fidel Castro.
+
+En los informes aennybs canario de anexiones aflo-
+A
+10
+TAS.
+443-5397
+AAS. 8007 AM I - UFAA 1008 ES COPY
+
+10
+TAS.
+443-5397
+AAS. 8007 AM I - UFAA 1008 ES COPY
+
+LIBERTAD
+PAG. 11
+
+FACILIDADES
+DE
+PAGO
+
+PLAY
+LAY
+AWAY
+
+ALMACEN FELIX GONZALEZ
+
+2600 S.W. 8 ST. TEL. 642-5666
+
+Liquido su departamento de Ropa de Nombres
+TRAJES - ZAPATOS ESPAÑOLES
+CAPAS DE AGUA - SOMBREROS
+TODO A PRECIOS INCREIBLES
+
+Y te recibo la REMA AFRICANA en posta
+de medoro y ofitos de cristal con su oración.
+
+LANGUAGES LABORATORY
+
+La Escuela de Inglés
+P.O. Box 11
+Riviera Beach
+Miami, Fla. 33115
+Phone 442-4343 ext 3337-0778
+
+PHARMACY
+
+3338 N.W. 7th St.
+
+Teodulo Crúz
+
+ARTICULO Adecuado para copia
+
+ACTIVIDAD REDOBLADA. El Buró Ejecutivo de los Municipios Cubanos Independientes se encuentra constituido en sesión permanente, en atención a los importantes hechos que en laifa mártir se están produciendo, decididamente encaminados a obtener, por medio del triunfo de las armas redentoras, la total liberación de la parrila y la expulsión defensiva de su suelo, del columnsar, que ahí tenece como titere suyo al chacal Fidel Castro,
+
+En los informes aennybs canario de anexiones aflo-
+
+4
+5
+6
+7
+8
+9
+A
+B
+C
+D
+E
+F
+G
+H
+I
+J
+K
+L
+M
+N
+O
+P
+Q
+R
+S
+T
+U
+V
+W
+X
+Y
+Z
+1
+2
+3
+4
+5
+6
+7
+8
+9
+A
+B
+C
+D
+E
+F
+G
+H
+I
+J
+K
+L
+M
+N
+O
+P
+Q
+R
+S
+T
+U
+V
+W
+
+LIBERTAD
+
+SECRET
+
+JUN 6 1969 Pag. 11
+
+DOS EN MEXICO
+
+VAN VAN

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_11575.png
+
+Convert to Markdown13 January, 1969
+
+Subject: LIRING/3 Report of Activities for the Period 7-13 January, 1969.
+
+1. Rowton met with LIRING/3 at the Casino Real Restaurant at 1000 on 10 and 13 January. He reported the following developments in connection with the accusations made against him to Marta Barrios de León by Identity A
+
+(a) On the evening of 8 January, 1969, Identity B called on him at his home unannounced and made an effort to smooth over the hard feelings that had arisen between LIRING/3 and her husband. She denied any knowledge of charges made by her husband against L/3 and claimed that she could not believe them in any case. When L/3 stated that he had definite proof in the form of a letter Identity B insisted on seeing it. L/3 (who had given the original letter to Rowton) stalled promising to produce the letter on 10 January in the presence of her husband. L/3 told Rowton that when he attempted to contact Iden B and her husband by phone on the morning of 10 January, he found the phone constantly busy and suspects that the receiver was left purposely off the hook.
+
+(b) On the evening of 12 January, 1969, Arturo Serrano of the CPM, visited LIRING/3 at his home and told him that the Central Committee of the CPM had discussed his feud with Identity A in response to the letter LIRING/3 had sent to it alleging that Iden A was maligning him unjustly. Serrano continued that the CC of the CPM had found the letter too vague to make any sense, but in any case could not take Iden A seriously. Serrano told L/3 that Iden A and Identity B had been recently formally expelled from the party for ideological reasons, but still had a number of friends willing to vouch for them. On the other hand Serrano stated that the CC of the CPM had received information "some time ago" from the LIRING office alleging that LIRING/3 had been acting in a suspicious manner, especially with regard to certain information he had provided concerning Julián López that "could not have come from a source other than the police." Serrano continued that although the CPM had no love for the LIRING office it nevertheless had to take such a report into consideration and the burden of proof was really on LIRING/3.
+
+SECRET

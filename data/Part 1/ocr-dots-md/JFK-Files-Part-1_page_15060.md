@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_15060.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+REPORT ON CONTACT WITH AGENT OR DEFECTOR
+
+SUBJECT: WIROGUE
+DATE: 21 November 1962
+TDE: 1000
+PLACE: 51 Kuhwaldstr.
+
+ORNE K. DARONNAT Case Officer
+
+COMMENTS:
+
+Dale informed Case Officer that he had taken clothing to Subject and had paid him subsistence as Case Officer had requested. He said that he had promised Subject that one of us would be by around the same time. He informed Subject that he could buy a scarf, a hat and a pair of shoes and we would pick up the tab.
+
+Subject seems to be in good spirits but is eager to be on his way to South America or somewhere.
+
+SECRET

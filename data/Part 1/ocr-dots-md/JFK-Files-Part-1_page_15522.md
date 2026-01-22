@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_15522.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE: 5 JUL 61<br/>TO: DIRECTOR<br/>FROM: LEOPOLDVILLE<br/>ACTION: C/AF 3 (TEMPO COPY SLOTTED AF AT 1845, 5 JUL)<br/>INFO: COP, C/C1, C/F1 2, C/WE 2, S/C 2</td><td>SECRET</td></tr><tr><td colspan="2"><table border="1"><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>Lg. 70</td><td>4</td></tr><tr><td>2</td><td>Stap</td><td>5</td></tr><tr><td>3</td><td>Clinw</td><td>6</td></tr></tbody></table></td></tr><tr><td colspan="2">JUL 5 2200Z 61</td></tr><tr><td colspan="2">PRIORITY</td></tr><tr><td colspan="2">IN 34522</td></tr></tbody></table>
+
+PRITY DIR INFO PRITY ROME CITE LEOP 1597
+
+RYBAT WIROGUE
+
+IMMEDIATE ACTION
+
+REF DIR 48429 COUT 7/923)
+
+par GSH 43-43
+
+1. CAN ARRANGE VISA WIROGUE/1 IN BRAZZA. MOST DIRECT FLIGHT
+   P&PRIME PANAM FROM LEOP. LEO RECOGNIZES NEED FOR MOST DIRECT TRAVEL
+   W/1 BUT TO MAINTAIN SECURITY (PREVENT ANY FUTURE CHECK BY WILDCAT
+   REVEALING W/1 TRAVEL P&PRIME) AND STILL PROVIDE 72 HOUR PRIOR NOTICE
+
+SUGGEST FOLLOWING:
+
+A. W/1 DEPART 7 JULY FROM BRAZZA TO ROME VIA KLM.
+
+B. W/1 BE CONTACTED ROME BY KUBARKER. WHEN WIROGUE RESERVATIONS
+   ROME TO P&PRIME FIRM FORM NOTIFY HQS GIVING REQUIRED 72 HOUR LEAD TIME.
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

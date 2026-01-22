@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_13733.png
+
+Convert to Markdown<table><tr><td>CLASSIFICATION - DISSEMINATION CONTROLS</td></tr><tr><td>SECRET /NO FOREIGN PUBLISHING (When Filled In)</td></tr><tr><td></td><td>TDCS-311/00609-8</td><td>IN 55962</td></tr><tr><td colspan="2"></td><td>PAGE 5</td></tr><tr><td colspan="3">A CUBANA RESERVATION WAS MADE FOR HIM.<br/>7. ALSO, AS OF 21 JULY CUBANA HAD CANCELLED ITS FLIGHT OF 22 JULY AND WAS NOT PLANNING ANOTHER ONE UNTIL 25 JULY.<br/>8. FIELD DISSEM:STATE,FBI,ARMY,NAVY,AIR,CINCO,CINCLANT.</td></tr></table>
+
+END OF MESSAGE
+
+<table><tr><td colspan="2">CLASSIFICATION - DISSEMINATION CONTROLS</td></tr><tr><td>SECRET</td><td>NO FOREIGN DISSENY</td></tr></table>

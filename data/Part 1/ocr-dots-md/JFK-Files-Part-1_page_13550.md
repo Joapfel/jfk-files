@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_13550.png
+
+Convert to MarkdownSECRET
+
+11 May 1962
+
+MEMORANDUM FOR THE FILE:
+FROM:
+SUBJECT:
+
+1. On 11 May 1962 BENADUM (P) reported that LITEMPO/1 had said that Rogelio RODRIGUEZ left Mexico (PCS) on 4 May 1962.
+
+2. Manuel E. VEGA Perez replaced Rogelio RODRIGUEZ in the Cuban Embassy, according to LITEMPO/1.
+
+Distribution:
+
+Orig - Rogelio RODRIGUEZ P-
+1 - Manuel E. VEGA Perez P-
+1 - LITEMPO/Prod.
+
+SECRET
+
+87365

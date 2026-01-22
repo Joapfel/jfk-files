@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_15133.png
+
+Convert to Markdown-15-
+
+Elektro-Technikum war. Dabei wurde von zwei Klassenkameraden die Bürgschaft übernommen, jeder von den beider war schon mehr als zwei Jahre Mitglied. Ich reichte mein Gesuch bei der lokalen Komsomol jatschejka (Zelle) ein und bei einer Zusammenkunft der Zellenmitglieder wurde mein Aufnahmegesuch besprochen, ich erzählte meine Lebensgeschichte und beantwortete Fragen. Nachdem ich aufgenommen worden war, erhielt ich meine Mitgliedskarte in ungefähr zwei Monaten vom Stadt-Rayon-Komittee des Tbilisi Komsomol; darauf hin besuchte ich Versammlungen und zahlte kleine Beiträge. Ich hatte niemals eine offizielle Position bei Komsomol. Als ich Tbilisi verliess musste ich mich von der Tbilisi Organisation streichen lassen und mich am neuen Wohnort Micha Zchakaja (bei der Bevölkerung gewöhnlich nur "Zchakaja" genannt), neu eintragen lassen. Dasselbe geschah als ich in die Armee eintrat (Ausstreichen aus der alten Organisation und Einschreiben am neuen Wohnort). Als ich nach der Entlassung von der Armee wieder nach Zchakaja zurückkehrte, ließ ich mich nicht wieder in die lokale Organisation eintragen.
+
+Als ich in Zchakaja zu arbeiten begann wurde ich automatisch in die (prof.-org.) Gewerkschaft eingeschrieben, in der ich ein passives Mitglied war, das seine Beiträge (etwas wie 1% meines Gehaltes) an den Organisator der Gewerkschaft von MTS bezahlte und von Zeit zu Zeit einer Pflichtversammlung beiwohnte. Ich machte nie Gebrauch von den Vorteilen der Mitgliedschaft wie ermässigte Preise in Erholungsstätten (putewka v dom otdicha).
+
+23. VERBINDUNGEN MIT EINEM SICHERHEITSDIENST:
+
+Ich hatte nie einen Kontakt mit einer Sicherheitsbehörde.
+Ich wurde auch nie aufgefordert in irgendeiner Art für den
+sowjetischen Sicherheitsdienst zu arbeiten.

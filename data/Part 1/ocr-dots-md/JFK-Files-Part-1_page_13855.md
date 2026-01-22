@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_13855.png
+
+Convert to Markdown14-05980
+
+776.
+
+Entrada 1350.- PUENTE,de Tampico de La Martí, solicita hablar con ROGELIO RODRIGUEZ para darle un recado de JOSE - LUIS. JORRIN después de pedirle que se espere un minuto, pide que pase mañana a las; dies y PUENTE acepta. -
+816.
+
+441.- Entrada a las 10:00hs, - HF Espejol por Rogelio.- Jorrín que no ha llegado.- Espejol que lo urge very, que llama don tro de media hora.- 475.-
+
+707.-
+Entrada a las 2:00hs.- HF El Profesor con Rogelio le pre santa que hay de nuevo.- Rogelio: qué mucho. Que si tiene noti dia para el.- hr que sí, pero que pensaba vorio mañana. Quo - quiere que coman con un poeta que es muy importante.- Rogelio
+3...L31.- 30 enero 64.-
+
+244.
+Salida al 46-60-16.-1216.- JORRIN avisa a CARLOS ACEVE DO de Prensa Latina quo ya está ROGELIO y el muchacho está en el Consulado. ACEVEDO:¿Qué el muchacho es quien tiene- que hablar con ROGELIO, sobre todo con el Consul, pues ce - trata de un asunto que ROGELIO sabe. JORRIN:¿Qué está --
+bien.- 256.-
+
+261.
+Entrada 1227.- OSWALDO pregunta a RAUL qué hay sobre - lo de mañana en la embajada y RAUL después do preguntarlo a ROGELIO, indica quo mañana como a las 4 van a trabajar en -
+(3.-L31.-31 enero 64).-

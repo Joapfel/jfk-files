@@ -1,0 +1,64 @@
+# JFK-Files-Part-1_page_13836.png
+
+Convert to Markdown9. Mother
+
+a) Address: Fasaje Jose 10410 entre 3a y Fin 1,
+San Juan de los Linos, playas de San riguel
+del Radron, Habana (Lima 22 May 1961)
+
+b) Mother became a brigadista. New address Finca de Caipana
+Cous, Mirar del Rio (Lima 5 Sept 61)
+
+c) Mother asked subject to send her a crucifix. (LIMA 24 May 61 - 18
+also requested 24 Sept and 2 Oct 61 Sept 61)
+
+d) Mother uses many misspelled words, signs letters L A R M O N E S.
+(LIMA)
+
+13. Other Relatives
+
+a) Godmother - Josefina LOPEZ y Lopez at address 9a above (LIMUD 18 Feb 62)
+
+b) Godfather - name unknown - address: San Rafael 874
+Habana Apt 501 (LIMUD 18 Sept 61)
+
+c) Sister-in-law - Niña - lives in Habana (LIMUD 18 Sept 61)
+
+d) Brother-in-law - Eduardo aka R. GAVILAN
+
+Address: 5. Camaricca
+Atzis, Cuba
+ATHIA O MUERTA, VENUEMOSO type
+Asked for repair parts for 1957 quick
+
+23 may 61 -
+(LIMA 23 Feb.62)
+(LIMA 14 Aug 63)
+
+e) Diente LNU
+
+Address: San Francisco 356
+San Juan, P.R.
+
+(Don't know if he is a relative, but his address
+was sent to Rogelio by latter's mother)
+(LIMUD 13 May 61)
+
+f) Iluminada Rosales
+Calle 60 1704
+Mararaao, Habana (Ester's sister?) (LIMUD 20 Aug 63)
+
+g) has relative in PERMANENT (LESNICK from Eloy
+Gutierrez Menoyo
+ARID 0436 11 Apr 64)
+
+23) Addresses (previous)
+
+a) Living at Mazatlan 152 A Tel 250928 (LIMNOY 5 July 61)
+
+b) Lived at Mazatlan 126 - in Rodriguez Cae's
+place who G-2 (no source)
+
+c) Living at Tachuca 153 (LIMBRMO 21 Oct 61)
+
+d) Lives at Pacubaya 74 502 (LITAIN-2 13 Mar 62)

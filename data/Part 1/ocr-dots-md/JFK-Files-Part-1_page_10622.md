@@ -1,0 +1,60 @@
+# JFK-Files-Part-1_page_10622.png
+
+Convert to Markdown14-00000
+
+CLASSIFILD MESSAGE
+
+<table><tr><td>60</td></tr></table>
+
+WG. S-64
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>2<br>S</td></tr><tr><td>2</td><td>6<br>Ee</td></tr><tr><td>3</td><td>7<br>F</td></tr><tr><td>4</td><td>C9-F1<br>Rig</td></tr></tbody></table>
+
+FROM: JIM Wave
+
+ACTION: WH 8
+
+INFO: DCI, D/DCI, DDP, ADDP, SOD 4, CA 2, CA/PEG, CA/PROP, CA/O 4, CI, CI/CPS, CI/IC 2, FI, FI/D, FI/INT, IW,(RI/AN,) WH/SA 8, VR, FILE, CS/RF.
+
+AD/CI 2, AD/NE.
+
+SECRET Ø32212Z OCT 4 0239Z 64 IN 86643
+
+DIR INFO SDOM PRIN LANT PACY CITE WAVE 272Ø
+
+INTEL DYVOUR JMPALM PBRUMEN
+
+SUPDATA: ZRWAHOO. AMFAST-6 IN AMOT DD-1152 OF 29 SEPT OBTAINED
+FROM JOSE GARCIA VALDEZ. FIELD COMMENT BASED UFG-5934.
+
+RID: PLS INDEX. FILED Ø3/2212Z
+
+REPORTS CLASS CONFIDENTIAL NO FOREIGN DISSEM CONTROLLED DISSEM
+CUBA HAITI DOMINICAN REPUBLIC
+
+SUBJ: TRANSPORTATION OF A MIXED CUBAN-HAITIAN GROUP TO THE
+HAITIAN-DOMINICAN BORDER
+
+DOI: 28 SEPT 64
+
+PADA: UNITED STATES, MIAMI (29 SEPT 64)
+
+UFG-5974*
+
+SOURCE: A MEMBER OF A GROUP OF CUBAN EMIGRES WHO HAVE BEEN TRAINED
+
+LW COMMENT:
+
+<table><tr><td>NO DISSEMINATION OF THE ATTACHED TO PORTION OF THIS CABLE HAS BEEN MADE OUTSIDE THE AGENCY PENDING RELEASE BY THE ACTION UNIT.</td></tr></table>
+
+<table><tbody><tr><td>ROUTES</td><td>INITIAL</td></tr><tr><td>RID/NR</td><td></td></tr><tr><td>RID/PS</td><td></td></tr><tr><td>RAND</td><td></td></tr><tr><td>DESTROY</td><td></td></tr><tr><td>TDCS</td><td></td></tr><tr><td>ROUTINE</td><td>PRIORITY</td></tr><tr><td colspan="2">BASED ON:</td></tr><tr><td>LIAISON</td><td></td></tr></tbody></table>
+
+RELEASING I.W.O.
+
+DATE DISTRIBUTED:
+
+<table><tr><td>SEC-R-E-T</td></tr></table>
+
+GROUP I
+EXCLUDED FROM AUTOMATIC REGENERATING AND DECLASSIFICATION
+
+REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED. Copy No. 4 Oct 67 201-4266

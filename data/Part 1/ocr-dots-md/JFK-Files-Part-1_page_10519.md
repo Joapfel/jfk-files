@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_10519.png
+
+Convert to Markdownd. Vadim MEDISH - CIA Contract Agent in employ of SR Division stationed in Tokyo. In process of being terminated after identification as former NKVD agent, a former Abwehr agent, and subsequent agent activity in behalf of the Soviets while in DP camps.
+
+e. Kasua KANAZAWA - Cousin of Valentin HAHN; at one time was proposed for operational use by this Agency.
+
+f. Charlotte BERGHOLTZ - Close friend of Anastasiya SNOW neo YANKOVSKIY.
+
+g. Golli-Grigorevna and Marguerita PODSTAVINA - PODSTAVINA is the Godmother of Arseniy YANKOVSKIY.
+
+h. Nicholas Anatsioy CERNOFF - CIA合约 employee of SR Division in Tokyo under Department of State cover. Former FBI employee.
+
+i. George PARIS (Spelling as picked up originally by Office of Security in written report of Polygraph examination report, and therefore likely phonetic.) - Greek businessman in Tokyo.
+
+3. In the course of further debriefing in connection with his Polygraph Test, HAHN claimed that George PERIS or PARIS was the individual who had introduced HAHN to a club in Tokyo located off the Ginza, the name of which club translated into English is "Tomorrow is Too Late". At this club HAHN met a Japanese hostess by the name of Noriko AWAJI, whose real name was later established to be Noriko MATSUZAKAYA, whom he subsequently dated. There is no further information currently available on this hostess. In the interim, HAHN has obtained a divorce from his wife, who had been a witting participant in his agent activities for the Soviets, and is known currently to be living in a common-law relationship with a Japanese girl who may be identical with Noriko MATSUZAKAYA. As indicated above, HAHN and his current mistress are currently in Sapporo, Hokkaido.
+
+4. The ex-wife of Valentin HAHN, whose full name is not known to the writer, and the two HAHN sons, are currently being sponsored for resettlement by the Agency in the United States, where all three are scheduled to receive their U.S. citizenship under CIA sponsorship.
+
+5. With reference to the "Tomorrow is Too Late" Club, HAHN stated that a number of CIA Staff Employees of the Tokyo Station frequent or have frequented this establishment and have dated the Japanese hostesses employed
+
+SECRET
+EYES ONLY

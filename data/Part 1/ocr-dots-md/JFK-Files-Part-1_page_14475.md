@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_14475.png
+
+Convert to Markdown3. In the beginning of 27 April, Castro was occupied by an army at his point of landing (7-9-1964). He was, however, forced to leave after a short time and went to Washington. There he began to study in secret during the first half of May the plans of Fidelio: "Maybe we can get to the bottom of things if I meet his picture."
+
+2. Before showing him the pictures on 28 April, Castro himself short-
+preambles on the background of the case. I told that we were
+perplexed that he did not see, none Fidelio! Since we had At-
+torney General that night, Ireminded him that he should say
+our purpose was to have someone in whom Fidelio had complete confidence
+talk to him and find out how he feels about his criminal fate.
+There was no violence or lucky punky involved; only a straight
+man to man exchange. (It was my luck that perhaps Castro feared
+there was trying to the kind into something illegal or related with
+Fidelio's Revolutionary activities while he was in the US and Castro
+was playing it cool. That was a possibility since it was strange
+Clavo did not recognize me? While everything pointed that there
+had been a relationship.)
+
+3. By now were disappointed when Castro had an opportunity to study the photos carefully: "My, is he a millionaire." He has eyes, but I would know him anywhere." And there was a friendly, happy smile on his face as he reached back into his memory:
+
+"When I bought the show, he was already working for the previous
+owner, Fidelio. He worked for me about 7 or 8 months and then, he
+left for Cuba, to fight Batista. There was a tear in his eyes when
+he said goodbye. I問ed him if he had been killed. I never heard any more again. You say he is a mijachet with Castro. I'm surprised at the turn, since he was such a freedom lover. He had high ideals. In my opinion, he was, pro American, although he was a foreigner neo Cuban." "No," he said, "this country and what it stood for, that freedom and all that of tyranny. It's hard to show no the absolue that Batista committed when they were published in 'Diario' and it made his big break. And, at least my blood will run. We need to tell you about this, part in the Revolution and I need to try to talk it out of it. He was happy after hequitat it over 10 times. The want to connect his problems with me and after the fall he will say, 'Dance, I'm glad I talked to you.' I need to stay with him. But he's afraid to do that. What can I do? And what to do next from this side. Will Cuba could have won. He said it was the best the State could do. Those who are wise, like him in the US the financing guns by Tho. Although he was just a private sector — the rest of the country — and so on. And then, after the war, very little of Batista. In the end, and when do? When do we get a new government and use an 'I am' sound bite? Is he going to be a one? ... Will he continue through to know if May 21 Day?" "A very good question that

@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_10687.png
+
+Convert to MarkdownSECRET
+AEN FILLED IN
+
+WTR
+4-61
+
+# ROUTING AND RECORD SHEET
+
+<table><thead><tr><td colspan="3">INSTRUCTIONS</td></tr><tr><td colspan="2">PRIOR TO FILING</td><td>TO: ACTION BRANCH</td></tr><tr><td colspan="2">1. Fill in Sect. 2. on back. Detroit &amp; Park&P&G &amp; forward to RID.<br/>2. Destroy front cover sheet, unless it records significant action taken or comments requiring preservation.</td><td>If file no. and title shown are not proper, insert proper file no. below and forward document to RID/AN.</td></tr><tr><td colspan="2">FROM:<br/>RID/AU</td><td>PROPER FILE NO<br/><br/>USC 9781<br/><br/>TO: ALL ADDRESSEES<br/><br/>FILL IN SECTION 1 ON BACK IF APPROPRIATE<br/><br/>COMMENTS<br/><br/>Life was lost.</td></tr><tr><th>TO</th><th>ROOM NO.</th><th colspan="2">DATE</th><th rowspan="2">OFFICER'S INITIALS</th></tr><tr><td colspan="2"></td><th>RECEIVED</th><th>FORWARDED</th></tr></thead><tbody><tr><td>Walc/LCS</td><td>12 May 66</td><td>Lori</td><td>DLC</td><td>Copyed</td></tr><tr><td>WNC/MARIE</td><td></td><td>Jane</td><td>Ce</td><td></td></tr><tr><td></td><td></td><td></td><td></td><td>that he had RODB-319 / @SDZ-320/ord40-66</td></tr><tr><td></td><td></td><td></td><td></td><td>Mitar, S of the T in M</td></tr><tr><td></td><td></td><td></td><td></td><td>telenom en Mi</td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td>RID/FI</td><td></td><td>PAGE SIZE</td><td></td><td></td></tr><tr><td>TRACE REQUEST</td><td colspan="2">ABSTRACT</td><td>X</td><td>#15, 17 to 28</td></tr><tr><td></td><td colspan="2">limits</td><td></td><td>201-4</td></tr></tbody></table>

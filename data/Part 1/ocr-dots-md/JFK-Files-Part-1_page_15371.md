@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_15371.png
+
+Convert to Markdownwas in check till 19 March and then was not available two other days
+because of maintenance.
+
+5. I recommend that Air Operations Officers be checked out in the equipment they are supervisors for in order to keep on top of their pilots proficiency. The pilots that are sent over should be screened better so as not to require so much training in the field.
+
+Carlisle B. FORNEGAR

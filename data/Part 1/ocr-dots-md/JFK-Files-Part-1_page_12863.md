@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_12863.png
+
+Convert to MarkdownWARNING NOTICE
+
+SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED
+
+**REFERENCE**: Memorandum from Director, FBI, to Director, CIA, Dated 26 November 1976, Subject:
+
+The referenced memorandum requested complete CIA Information on some 93 principal anti-Castro figures who are of investigative interest to the FBI. Attached here-with are CIA traces on seven individuals mentioned in the FBI listing. Data on the remaining 85 will follow separately and incrementally as traces are completed.
+
+CIR-316/04881-76
+
+Classified by 09560. Exempt from General Declassification Schedule of H.O. 114-3. Execution Category 5B (2). Amenable to Determine Date of Automatic Declassification.
+
+WARNING NOTICE
+
+SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED
+
+DDO/LA/OPS/W.Carley:1ch (7 Dec 76) (1173)
+
+Distribution:
+
+4-1 - FDI
+Copy to: Gen. E. Kamen LAKO; J. A. W. E. P. G.
+Handwritten note below: "and if he gets a good #6."

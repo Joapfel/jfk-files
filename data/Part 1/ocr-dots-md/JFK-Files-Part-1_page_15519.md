@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_15519.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE 296<br/>08 JULY 61</td><td>296</td></tr><tr><td colspan="2">TO DIRECTOR<br/>FROM BRAZZAVILLE</td></tr><tr><td>ACTION: C/AF 3 (TEMPO COPY ISSUED MR. DUNBAR, AF AT 1605 8 JUL)</td><td rowspan="2">S E C R E T<br/><br/>(MR. DUNBAR NOTIFIED AT 1525 8 JUL)<br/><br/>*COP, C/CI, C/WE 2, D/OS 2, S/C 2</td></tr><tr><td>INFO</td></tr></tbody></table>
+
+<html><body><table><tr><td>OUTGOING ROUTINGS</td><td>INCOMING</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table></body></html>
+
+Jul 8 1971 Jul 1971
+
+REC'D CABLE SECT.
+OPERATIONAL IMMEDIATE
+
+IN 36146
+
+TO OPIM DIR INFO LEOP POUCH CITE BRAZ 133
+IMMEDIATE ACTION
+
+REF: DIR 48429 (OUT 71923)
+
+1. WIROGUE/1 TO PARIS 10 JULY ON AIR FRANCE 410. FROM PARIS TO NEW YORK 11 JULY ON AIR FRANCE 011. ARRIVES IDLEWILD 2120 LOCAL TIME 11 JULY.
+
+2. HAS NON IMMIGRANT MULTIPLE ENTRY VISA TYPE B-1 ISSUED BRAZZAVILLE WITH AGREEMENT GPILIAD.
+
+END OF MESSAGE
+
+C/S COMMENT: *DISSEMINATION APPLICABLE TO RYBAT CABLES.
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

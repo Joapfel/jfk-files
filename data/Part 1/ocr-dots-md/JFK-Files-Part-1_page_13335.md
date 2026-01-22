@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_13335.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR THE RECORD
+
+MEMORANDUM FOR ANGLEVE/15's File
+
+SUBJECT: Salary Misunderstanding
+
+ORIGINATOR: Gary L. FLUSTIKOFF
+
+1. ANGLEVE/15 submitted the attached note, written by him, to the writer. In the note ANGLEVE/15 says "he is not asking for anything but wants the records checked regarding his past salary of $325.00 per month." ANGLEVE/15 claimed "Chip" (Grover T. LYTHCOTT, his former CO) told him that effective October 1966 he would be paid $100.00 per month by BOFACF, while the balance would be placed in a bank for him.
+
+2. For the record ANGLEVE/15 was told by the writer and not Chip that effective August 1966 (not October) he would be cut back in his salary to approximately $100.00 per month. He was cut back from $350.00, not $325.00, for reasons of economy and cover and he was agreeable to the cutback. The writer did not tell him that the balance of approximately $212.00 was being saved for him; only that his gross salary would be raised to $350.00 in the event RECE ever stopped paying him his salary. (It was assumed that his RECE employment might be short-lived). For administrative reasons the salary cutback was not effective until September 1966 and from latter date until December 1966 he was paid $111.13. From January 1967 until June 1967 he was paid $110.90 due to a FICA change. During the entire period, September 1966 to June 1967, ANGLEVE/15 was budgeted by JMWAVE in the amount of $350.00 gross with the notation of his voucher of "possibility of paying balance later". Then in June 1967 ANGLEVE/15's salary was increased to $350.00 gross, as so promised, because he was unemployed during most of June.
+
+3. The writer explained the above to ANGLEVE/15 and he seemed satisfied. He told the writer that he had to borrow some money to cover expenses in connection with his trip to Venezuela.
+
+SECRET
+
+COPY
+
+<table><tr><td>COPY</td></tr></table>

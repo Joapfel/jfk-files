@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_15508.png
+
+Convert to Markdown14-00000
+
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 7 SEP 61</td><td>S-E-C-R-E-T</td></tr><tr><td>TO : DIRECTOR</td><td rowspan="3"></td></tr><tr><td>FROM : FRANKFURT</td></tr><tr><td>ACTION : D/OS 2 (OS CABLE DESK NOTIFIED AND COPY SLOTTED 1140 SEPT 61)</td></tr><tr><td>INFO : COP, C/CI, C/FI 2, C/TSD 2, C/EE 3, C/AE 3, S/C 2</td><td>IN. 25104</td></tr></tbody></table>
+
+CITE: FRAN 3530
+
+TO DIR: INFO
+RYBAT WIROGUE SECUR TECHS
+RE DIR TOTO7 (OUT 93573)**
+
+NO STATION RECORD WIROGUE/1. PLS FURNISH TERMINATION DETAIL OPIM.
+
+END OF MESSAGE
+
+C/S COMMENT: *REQUESTED FRAN MEET WIROGUE/1 AND EXCORT.WIROGUE/1 WAS TO BE TERMINATED UPON ARRIVAL.
+
+<table><tr><td>S-E-C-R-E-T</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

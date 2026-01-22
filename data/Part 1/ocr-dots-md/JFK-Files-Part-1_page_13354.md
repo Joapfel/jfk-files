@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_13354.png
+
+Convert to MarkdownSECRET
+
+CS COPY
+
+<table>
+   <tr>
+    <td>MICROFILMED</td>
+   </tr>
+   <tr>
+    <td>AUG 7 1967</td>
+   </tr>
+   <tr>
+    <td>DOC. MICRO. SER.</td>
+   </tr>
+  </table>
+
+SECRET
+CS COPY
+
+1. Agent's Originals for Perpetrator ANGELIN/15
+
+2. Project Identification:
+
+3. Agent Resultated by: Grover T. LYTHCOTT
+
+4. Capacity so Chied Agent Served: Maritize instructor and CI agent, reported on Cuban exile activities in Miami.
+
+5. Rates of Pay: $350.00 per month
+
+6. Other Commitments: none
+
+7. Agent Dismissed by: Gary L. FLUSTIKOFF
+
+8. Reason for Dismissal: Subject lost access to the target and for security reasons.
+
+9. Security Risks: None, at time of termination.
+
+10. Is the Agent Recommended for Re-Use: Not recommended for re-use in the Miami area.
+
+11. Mechanism of Dismissal: Amicably-informed in person by CO.
+
+12. Letter of Termination Signed: yes
+
+AM:1 UFGA-226079
+
+2571-230481-1

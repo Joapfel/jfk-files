@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_11467.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+Mexican authorities had notified her she was being fined 500 pesos. The purpose of the payment was not identified. Later she made a call from the Cuban Embassy which indicated she was staying there until she could get the funds to pay the Mexicans. DRISCOLL, therefore, concluded she had not returned to her apartment and did not get the note to make their meeting. DRISCOLL said SUAREZ (the visiting Cuba Cultural type) has a key to L/3's apartment and might see the note but would be unable to identify the sender since DRISCOLL uses a meaningless pseudonym as a signature.
+
+3. DRISCOLL now plans upon his return to Mexico to recontact L/4 to get the latest reading on L/3's status in Guatemala. If the Mexican Charge is unable to obtain L/3's release in behalf of the Mexicans and if it appears he will be held indefinitely, DRISCOLL wants to explore the possibility of our doing something to get L/3 out so the operation can become active again.
+
+4. In the above regard L/3 was discussed with Mr. PIPER of the Guatemala desk. Mr. PIPER believed the Station has a high enough contact with the Guats (ESMAJOR/20-Presidents brother) to arrange to get L/3 and his Mexican compatriot out of prison and back to Mexico with a minimum security risk. DRISCOLL said he would initiate the cable upon his return to Mexico after he has talked with L/4. DRISCOLL felt he should possibly travel to Guatemala and have a preliminary meet with L/3 before Guat Station makes any all out effort to officially request L/3's release. If, after seeing L/3 DRISCOLL is satisfied that L/3 is still an ally and is willing to cooperate after his release then DRISCOLL believes we should attempt to have the Station intercede with ESMAJOR/20. Hopefully, ESMAJOR/20 will arrange the release so that all involved believe it has been done at the request and urging of the Mexican Government. DRISCOLL, however, would like L/3 and L/4 to believe he (DRISCOLL) had something to do with the release in order to raise his status with both for the sake of future operational tasks he will levy on them.

@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_13960.png
+
+Convert to Markdown<table><thead><tr><td>CROSS REFERENCE TO</td><td>DISPATCH NUMBER OF DGI PERSONNEL<br/>UNDA-4764<br/>CLASSIFICATION<br/>SECRET/RYBAT</td><td>DATE<br/>FEB 1 1970<br/>HOS THE NUMBER IS<br/>19-6-133/3</td></tr></thead><tbody><tr><td></td><td></td><td></td></tr></tbody></table>

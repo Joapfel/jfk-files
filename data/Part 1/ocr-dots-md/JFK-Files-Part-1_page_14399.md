@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_14399.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">CABLE SECRETARIAL DISSEMINATION</th><th>CLASSIFIED MESSAGE</th><th>TOTAL COPY</th></tr></thead><tbody><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td rowspan="6"><strong>SECRET</strong><br>(When Filled In)<br><br><strong>GROUP I</strong><br><br><table border="1" style="width:100%; border-collapse: collapse;"><tr><td style="padding:5px; text-align:center;">1</td><td style="padding:5px; text-align:center;">5</td></tr><tr><td style="padding:5px; text-align:center;">2</td><td style="padding:5px; text-align:center;">6</td></tr><tr><td style="padding:5px; text-align:center;">3</td><td style="padding:5px; text-align:center;">7</td></tr><tr><td style="padding:5px; text-align:center;">4</td><td style="padding:5px; text-align:center;">8</td></tr></table><br><br><strong>REPRODUCTION OF THIS COPY PROHIBITED</strong><br><br><table border="1" style="width:100%; border-collapse: collapse;"><tr><td style="padding:5px; text-align:center;">☐</td><td style="padding:5px; text-align:center;">YES</td><td style="padding:5px; text-align:center;">☐</td><td style="padding:5px; text-align:center;">NO</td></tr></table><br><br><strong>INDEX:</strong><br>☐ YES ☐ NO<br><br><strong>CLAIMS TO CS FILE NO.</strong><br><br><strong>S-REF TO CS FILE NO.</strong><br><br><strong>FILE NO.</strong><br>☐ <strong>RETURN TO BRANCH</strong><br><br><strong>ACTION UNIT</strong><br><table border="1" style="width:100%; border-collapse: collapse;"><tr><td style="padding:5px; text-align:center;">1</td><td style="padding:5px; text-align:center;">2</td><td style="padding:5px; text-align:center;">3</td><td style="padding:5px; text-align:center;">4</td></tr></table><br><br><strong>ACTUAL ACTION UNIT</strong><br><strong>FILE, VR</strong><br><br><strong>ACTION NO.</strong></td></tr><tr><td colspan="2">ADVANCE COPY ☐ ISSUED ☐ SLIPPED</td></tr><tr><td colspan="2">BY __________ AT: __________</td></tr><tr><td colspan="2">DISTRIBUTION PER __________</td></tr></tbody></table>
+
+64261
+
+PAGE 2 MADRID 1261 SECRET
+
+D. POLITICS AVOIDED PER OUR INSTRUCTIONS.
+
+E. SAMKO TURNED ON CHARM DURING CONVERSATIONS AND FED AMAUTO-I'S EGO WITH COMMENTS ON HOW HE WISHED AMAUTO-I REMAINED IN MIAMI TO HANDLE HIS AFFAIRS. THAT HE COULD HAVE BEEN MILLIONAIRE TODAY; EXPLAINED THAT WAS NEVER BLESSED WITH CHILDREN BUT AMAUTO-I WAS LIKE SON. HAD BLAMED HIMSELF FOR ALLOWING AMAUTO-I RETURN TO CUBA TO GET KILLED BUT WAS PLEASED WHEN HEARD HE WAS WELL. PARTING COMMENT BY SAMKO WAS "IF YOU EVER NEED ME BILL, I'LL NEVER LET YOU DOWN. YOU HAVE A GOOD FRIEND WHO LOVES YOU A LOT."
+
+F. SAMKO AND STATION DISTURBED BY POSSIBLE SURVEILLANCE. MOMENTS AFTER ENTERING AMAUTO-I'S HOUSE AMAUTO-I MADE PHONE CALL. SAMKO WAS BRIEFED THIS MIGHT HAPPEN. ONE HOUR LATER AT AMUSEMENT PARK AMAAUTO-I STEERED SAMKO TO CAFETERIA WHERE MOMENTS LATER FOUR CUBANS, PRESUMABLY FRINEDS OF AMAUTO-I, WERE INTRODUCED TO SAMKO. CUBANS TOOK NUMBER OF PICTURES. SEEMS INCONSISTENT WITH GOOD SECURITY PRACTICE, BUT EVENT OF SOME CONCERN TO STATION. FORTUNATELY, NO CONTACT WAS
+
+... SECRET ...

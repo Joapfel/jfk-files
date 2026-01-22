@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_11057.png
+
+Convert to MarkdownLa Habana, 15 de Junio de 1966
+
+"ANO DE LA SOLIDARIDAD"
+
+Co. Arturo Martínez,
+Director del I.C.H.
+Edificio radio Centro.
+Vivienda. K. K. 23 71:258
+
+Estimadocompañero!
+
+Tengo el gusto de acompañar a esta comu-
+nicación, copia de una carta y un ejemplar impreso ti-
+tulado "Noue d'Or do Montreaux, 1966".
+
+Dicha carta y el ejemplar de referencia,
+mo han sido publicados por el Embajador de Suiza con mo-
+tivo del Shus concurso internacional (el 7to. ed. la
+serie), en bandada lugar en Montreaux, Suiza, del 21 al
+29 de abril del arriazo año, y en el que por primera
+vez asistieron en el mismo emisiones de tolevi-
+sión en la iglesia.
+
+Le ruego que cualquier decisión que tome en relación a dicho concurso, nos le comuníque.
+
+Con gracias anticipadas, aprovecho esta
+oportunidad para quedar de Ud. con saludos revolucio-
+narios de "PATRIA O LIBERTAD", "VELOCIDAD",
+fraternamente,
+
+Dr. Eduardo Corona
+Director.-

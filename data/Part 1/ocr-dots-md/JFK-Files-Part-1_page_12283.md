@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_12283.png
+
+Convert to Markdown14-0000
+
+SECRETÓ
+
+o su contrato con el Patrocinador durante el período de su asignación cu-
+bierto por este acuerdo.
+
+C. Mision. La mision del personal Voluntario en el Congo sera proveer seguridad y equipo que incluira aviones al personal designado; participar en misiones de investigación y rescate y llevar a cabo otras misiones que el Patrocinador le asigne.
+
+D. Paga y Soporte.
+
+1. El Patrocinador le pagará al Voluntario lo siguiente:
+
+(a) Mientras esté en los Estados Unidos $270.00
+
+(b) Mientras esté en el Congo (desde la fecha de salida a fecha de regreso) $370.00
+
+2. En adicion a los pagos mencionados arriba, aquellos Voluntarios seleccionados para y participar con exito en otras misiones que el Patrocinador senale como especiales, tanto antes como después de la mision, se le otorgara un bono a discrecion del Patrocinador por las cantidades desde $100 a $1,000 por mision, dependiendo del riesgo envuelto y el exito obtenido.
+En caso de muerte del Voluntario como resultado de su participación en esas misiones especiales, el bono se pagará a su beneficiario que se haya designado.
+
+3. En caso de fallecer el Voluntario en el cumplimiento de su obligación en el Congo, los beneficios especificados adelante se pagaran si el dividuo tiene por lo menos un dependiente. Si no tiene dependientes, el beneficio será el 50% del especificado.
+
+(a) Dos años de salario básico, aplicables a ese tiempo, si la muerte es de causas naturales; cuatro años de salario básico, aplicables a ese tiempo, si la muerte fue causada por accidente.
+
+S E C R E T O

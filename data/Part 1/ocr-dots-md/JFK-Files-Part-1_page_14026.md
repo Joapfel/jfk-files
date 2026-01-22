@@ -1,0 +1,56 @@
+# JFK-Files-Part-1_page_14026.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>FORA<br>B-64 (43)</td>
+    <td>53a</td>
+  </tr>
+</table>
+
+SECRET
+
+CONTINUED OF
+DISPATCH
+
+<table>
+   <tr>
+    <td>CLASSIFICATION</td>
+    <td></td>
+    <td>PAGE NO.</td>
+   </tr>
+   <tr>
+    <td>SECRET</td>
+    <td>X CONTINUED</td>
+    <td>2</td>
+   </tr>
+  </table>
+
+G. Carlos MORALES Quevedo (201-777568), First Secretary, DGI officer;
+
+H. Jorge REYES Vega (201-816437), Second Secretary, DGI officer;
+
+I. Lanzaro ESPINOSA Bonet (201-816438), Third Secretary, DSE officer;
+
+J. Pedro Luis PINERO Eirin (201-824376), Third Secretary, presumed DGI officer;
+
+K. Miguel Manuel SANTANA Fraiz (201-7916429), Attache, presumed DGI officer;
+
+L. Gustavo Adolfo PLAZA Peterssen (201-805658), Attache;
+
+M. Justo Cesar GELABERT Martinez (201-939121), Attache, reportedly was with DIER in 1961, no further information available;
+
+N. Rafael AGUILERA Batista (201-351149), Attache, code clerk, either DIER or DSE employee;
+
+O. Rolando CONDE Figueredo (201-354057), Attache;
+
+P. Rolando PEREZ Alfonso (201-532757), Attache, (here according to UN records but not confirmed by LNERGO as of 4 September).
+
+2. In recent months visas have been requested for the following officers, but they have not arrived as yet, and presumably some of them may not now be coming for one reason or another.
+
+A. Jorge BOLANOS Suarez (201-787157), Counsellor-designate, was due to arrive in late August but presence has not been confirmed;
+
+B. Rogelio RODRIGUEZ Lopez (201-332665), First Secretary-designate, DGI officer, visa requested in April 1968 with no further information available as to whether he will come (presumably he will not);
+
+C. Cecilia ANDRE Sardain (201-702201), Second Secretary-designate, same ETA status as Rogelio RODRIGUEZ above.
+
+3. VIERA Linares serves as Charge d'Affaires in the absence of Ambassador ALARCON Quesada. Up to this point, neither the Base nor LNERGO have been able to state evidentially as to whether VIERA or JIMENEZ Escobar is the successor to Chafik Homero SAKER Zenni (left PCS October 1967) as the DGI Station Chief. We both, however, tend to regard JIMENEZ as carrying the most weight in terms of operational activity and in terms of effectiveness. Now, with the arrival of BOZA Hidalgo-Gato (who reportedly has been the deputy to Ramon OROZA Naveran, head of U.S. operations for the DGI, per our last information), it remains to be seen if BOZA figures higher in the local hierarchy than VIERA or JIMENEZ. With JIMENEZ, VIERA, BOZA, and PRENDES Gutierrez, the local DGI station has more ranking talent than has been the norm. The Cubans do not necessarily slot their intelligence officers in Mission titles equivalent to their true ranks and responsibilities.

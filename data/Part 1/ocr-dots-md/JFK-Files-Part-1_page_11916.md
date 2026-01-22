@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_11916.png
+
+Convert to MarkdownThe testimony given in that trial is not inconsistent with the response given above. It is true that after Merola was released from prison he again volunteered information to the CIA. Merola was a voluntary source of foreign intelligence.
+
+I hope this provides sufficient information for you to file your response.
+If not, please call me at (AC 703) 351-7531.
+
+cc: John Martin, Esq., Dept. of Justice
+
+OCCUPANCIA

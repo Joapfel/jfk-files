@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_10745.png
+
+Convert to MarkdownCUBA
+
+3
+
+Ex-Senator Is off to Jail
+
+MIAMI, Florida: FBI agents lead hand Identified Rolando Masferrer from the FBI building recently. Masferrer, former Cuban senator and newspaper pub- lisher, was arrested for his part in an elective at- tempt to invade Haiti in 1966 and will begin serving a three-year sentence. Masferrer was arrested on the basis of a bench warrant issued in June for failure to surrender to the United States marina to begin serving his sentence after an appeal was denied.

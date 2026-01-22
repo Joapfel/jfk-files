@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_15260.png
+
+Convert to MarkdownSalary payment record
+
+27 April $50.00 drawn from DOB/Finance by George Pill as initial $25.00
+payment each to A:ASPIC and AESUTMEG/3. Receipts obtained and
+submitted to Bernie Mohr.
+
+20 May $200.00, representing partial salary for agents for period 20 April
+to 19 May drawn from DOB/Finance by Perry Crookham. $50.00 paid
+A:ASPIC, $150.00 paid AESUTMEG/3, of which $100.00 was refunded to
+DOB/Finance, and a TA sent The Hague with request the $100. be
+converted to Swedish Kroner and forwarded in AESUTMEG's letter to
+his parents. Receipts for $50. and $150. obtained from the agents
+and filed in respective 201 files.
+
+9 July $200.00, representing partial salary for agents for period 20 May
+to 19 June drawn from DOB/Finance by Perry Crookham. $50.00 of
+above amount for A:ASPIC being held in his 201 file. $150. of
+above was drawn for AESUTMEG 3 - $79.00 of which was converted to
+100 Swedish Kroner and posted to AESUTMEG's parents in his letter.
+The remaining $71.00 being held in NUTMEG's 201 file. Receipts to
+be obtained at time of payment.
+
+20 August $100.00, representing partial salary for agents for period 19 July -
+20 August drawn from DOB/Finance by Fred Kirkpatrick. $50.00 of
+above amount for A:ASPIC and $50.00 for AESUTMEG/3. Receipts
+obtained. Following receipted to be obtained for total salary/
+bonus amounts for both agents, in view of project postponement.
+
+AESUTMEG/3:
+- $42.95 (total refund on allotment to parents)
+- $1350.00 (total escrow account)
+- $1000.00 (total bonus)
+Plus new set of totaling $600.00 (200. for months of
+May, June and July as per written.
+
+AFASPIC:
+- $1700.00 (total escrow account)
+- $1000.00 (total bonus)
+
+NOTE: AFASPIC's partial salary receipts are in order
+re agreement.

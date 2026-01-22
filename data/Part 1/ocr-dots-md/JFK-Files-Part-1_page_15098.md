@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_15098.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+REPORT ON CONTACT WITH AGENT OR DEPECTOR
+
+SUBJECT: HIRORSUE
+DATE: 5 July, 1962
+TDE: 1100
+PLACE: Osterdstr.1; Apt. 9
+
+Orrie K.uiror at: , Case Officer
+
+COMMENTS: CO and Mr. Minor went to see Subject in response to a telephone call from him. His Major problem was that he was broke and needed money. CO gave him Dl 100.00 to eat on for a week but Subject says that it's impossible to live on that amount. It is obvious that he is getting edgy and wants some action from Sdqtrs. He was told that if anything is to done for him in S.A. it will require correspondence between our people in S.A. and Headquarters, that this will take time and there is nothing he can do but wait. Subject thanked us for our help and said he is sorry to cause us so much trouble.
+
+12, 19, 26 July - substance paid.

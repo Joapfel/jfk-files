@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_11919.png
+
+Convert to MarkdownFOR CIA OFFICIALS ONLY
+
+provided on 13 November 1975.
+
+5. Subject is characterized as a voluntary occasional source of foreign positive intelligence who was in sporadic contact with us.
+
+6. We greatly appreciate the Assistant United States Attorney's concern for the confidentiality of our information. The information above may be made available to the AUSA and the court as appropriate without further restriction.
+
+Maurice A. Sovern
+
+O/SA/DO/O:MASovern:kaw (1542)
+
+Distribution
+Orig & 1 - OGC
+1 - C/DCD
+1 - C/LA
+2 - SA/DO/O
+
+FOR CIA OFFICIALS ONLY

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_14226.png
+
+Convert to MarkdownSECRET
+
+CSMA-23813
+
+The exact identities of ARAGON and CONSEVERA are not known. The DGS refers to Dirección General de Seguridad which is the Spanish Internal Security Service.
+
+Edwin W. RATTEREES
+
+SECRET
+
+3

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_10552.png
+
+Convert to MarkdownSECRET 1708152 CITE JMWAVE 0272
+
+DIRECTOR
+
+**Typic MasFerrer Trial**
+
+AS OF 18:15 HOURS .6 NOVEMBER JURY RETURNED VERDICT
+OF GUILT ON BOTH COUNTS AGAINST ALL REPEAT ALL DEFENDANTS.
+
+SECRET
+
+<table><tr><td>ABSTRACT</td><td>X</td></tr></table>
+
+17 Nov 67 in 94838
+
+201-42669
+17 Nov 1967

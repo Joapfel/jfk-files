@@ -1,0 +1,646 @@
+# JFK-Files-Part-1_page_12105.png
+
+Convert to MarkdownOUTGOING MESSAGE:
+
+<table>
+   <tr>
+    <td rowspan="5">
+     OMF
+    </td>
+    <td colspan="10">
+     0
+    </td>
+   </tr>
+   <tr>
+    <td colspan="10">
+     1
+    </td>
+   </tr>
+   <tr>
+    <td colspan="10">
+     SECRET
+    </td>
+   </tr>
+   <tr>
+    <td colspan="10">
+     DEFERRED TELEPOUCH
+    </td>
+   </tr>
+   <tr>
+    <td colspan="2">
+     CONF. PGP-9
+    </td>
+    <td colspan="2">
+     INFO: FILE
+    </td>
+   </tr>
+   <tr>
+    <td colspan="10">
+     DATE-TIME &amp; COPY NO.
+    </td>
+   </tr>
+   <tr>
+    <td colspan="10">
+     UTAHINGTON 2
+    </td>
+   </tr>
+   <tr>
+    <td>
+     CR
+    </td>
+    <td>
+     X
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     DISSEM BY:
+    </td>
+    <td>
+     *
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     PER
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     #*
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     0
+    </td>
+   </tr>
+  </table>
+
+CLASSIFICATION
+
+SECRET
+
+MESSAGE REFERENCE NUMBER
+
+DATE:
+
+ORIG:
+
+UNIT:
+
+EXT:
+
+RECORD COPY
+
+AUTHENTICATION OFFICER
+
+CLASSIFICATION
+
+E 2 IMPDET
+
+SECRETS
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+CL BY:035018
+
+CONFIDENTIAL INFORMATION
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET

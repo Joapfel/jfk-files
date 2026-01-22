@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_14987.png
+
+Convert to MarkdownS-E-C-R-T
+
+REPORT ON CONTACT WITH AGENT OR DEPECTOR
+
+SUBJECT: WIROGUE
+DATE: 3 March 1964
+TIME: 1130 hours
+PLACE: Kuhwaldstr. 51
+ORME K. DARONNAT, Case Officer
+
+COMMENTS:
+
+C. O. met Subject and gave him his new Reiseausweis expiring in 1966 and pointed out there was a restriction against going into business for himself. He was given his Lohnsteurkarten for '62, '63 and '64 plus his Abmeldebestatigung indicating his deregistration from 145 Hohemarkstr to 51 Kuhwaldstr on 2 March 1964. He was told to go to the local Police Review and register.
+
+Subject was given a copy of his new political recognition interview story and was asked if he had any questions regarding his legend. Subject replied that the story was so long he could not possibly memorize it completely. C. O. told him that the intent was to provide in detail any and all facts which in the future might be of importance to him in the conduct of his affairs.
+
+Subject was asked about his plans for the future. His answer was that the Director of the firm (reported in contact report 17 February 1964) had invited him to come to Munich on 3 March 1964 to discuss, among other things, the possibility of employing Subject in the engineering department. This plus the fact that Subject has signed an agreement with BOHLER & CO. OPTICAL FACTORY, FF/M to act as an engineering consultant might enable him to realize his ambition, i.e. to have a position rather than an ordinary job.
+
+C. O. quitclaimed Subject and wished him luck.
+
+Subject asked that C. O. be sure to let the higher echelon know he appreciates all that has been done for him.
+
+Subject said that although official contact is at an end he hoped that C. O. would not reject an invitation for a friendly get together from time to time. C. O. replied that if business matters permitted he would be glad to meet Subject.
+
+Subject jovially announced that they would probably meet some day in the U.S. C. O. reminded him that any action on his part which would involve the taking of fingerprints could have dire consequence for him. C. O. went on to report what he had told Subject months earlier and that is:
+
+<table><tr><td>Subject's Signature</td></tr></table>

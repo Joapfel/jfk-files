@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_12281.png
+
+Convert to Markdown2 October 1964
+
+**MEMORANDUM FOR:** ~~FREEMAN~~
+**SUBJECTS:**
+AMDESK/1 201-285923
+AMDESK/2 201-744305
+
+Please disregard the previous cancellations forwarded to your office on Subjects. Both individuals are currently being utilized by Special Operations Division.
+
+Bruce B. Cheever
+DC/WH/SA
+
+Distribution:
+
+Orig. & 2 - Addressee
+
+1 - WH/SA/IOS
+1 - 201-285923
+1 ~ 201-744305
+
+701-285923
+ECS19345S55

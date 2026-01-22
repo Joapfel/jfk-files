@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_13530.png
+
+Convert to Markdown14-0000
+
+<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>UNDA-4862</td></tr></tbody></table>
+
+and the mission assigned here temporarily to work on the CMU secure rooms and security systems (see previous reporting for details). Thus, 8 personnel are left for espionage operating purposes. Rogelio RODRIGUEZ Lopez (201-332665) probably serves now as the Deputy to Center Chief PRENDES. Allowing for the impending departures of Rolando PEREZ Alfonso, Jose Raul VIERA Linares, and Pedro Luis PINERO Eirin, the DGI Center will now consist of:
+
+* Orlando PRENDES Gutierrez
+
+* Rogelio RODRIGUEZ Lopez
+
+* Orlando PEREIRA Gonzalez
+
+* Miguel Manuel SANTANA Fraiz
+
+* Justo Cesar GELABERT Martinez
+
+* Ruben Rafael FRANCO Gonzalez
+
+* Raul REYES Goicochea
+
+* Roberto SANTIAGO Humet
+
+* Pablo DRAKE Capiro
+
+* Rafael CADALSO Bandomo
+
+LA COM
+PROCESSED
+
+4. As will be noted, the departure of Jorge REYES Vega (in March) and the impending departures of VIERA and PINERO will change the complexion of the DGI Center considerably. If they are not replaced for one reason or another (per other reporting), the DGI Center will have but four experienced and competent Case Officers at its disposal. Of these, PRENDES spends by far the bulk of his time inside the office pursuing his role of supervisor/manager. RODRIGUEZ is a handler. GELABERT and SANTANA are mainly concerned with operational support tasks -- GELABERT is the Center's best counter-surveillant, and SANTANA is the technical "expert" of the Center. PEREIRA is a handler, but his abilities are rather limited in this regard, per Base and LNERGO information and observations. Should the departees not be replaced, the Center may be forced **de facto** into a cutback of operational activity.
+
+5. We shall watch with interest the behavior patterns of the DGI Center in the near future, in light of the above and in light of other recent reporting re the status of the DGI abroad.
+
+Howard G. FIGALAN
+
+FORM
+B-64 53a
+(40)
+
+PREVIOUS EDITION
+
+CLASSIFICATION
+
+SECRET
+
+☐ CONT'DO
+
+PAGE NO
+2

@@ -1,0 +1,223 @@
+# JFK-Files-Part-1_page_13569.png
+
+Convert to Markdown13:20
+
+La señora HÁNTEL, con acento argentino, indicó al cubano ROGELIO RODRÍGUEZ que salió mañana y que por favor le mande "esa persona las cosas que lo faltan". FONTE: el diario El Comercio. Página 47.
+
+10:57
+
+Un individuo con sencillo sudamericano, tal vez guatemalteco, de nombre HILARIO, indico a ROGELIO RODRIGUEZ de la Embajada Cubana, que tiene una cosa urgente que darle. Al tratar de dejar un lugar para verse, HILARIO preguntó ROGELIO ¿se recuerda el Jardín ó en la lana? ROGELIO irá hoy a las 20:00 hs.a buscarle. Al despúndirse HILARIO insiste en que es urgente.
+
+12:20
+
+VERGARA, con acento sudamericano, pidió al subaño ROGELIO RODRIGUEZ la lleve el boletín. ROGELIO manifiesta que ha llegado, pero que le enviará los materiales "éste uno y más tado le interesas".
+
+12:49
+
+RICARDO, con acepto cubano, indicó a ROGELIO RODRIGUEZ que ayer lo estuvo esperando. ROGELIO no puede ir, pero el nuevo pasará a verlo.
+
+13:27
+
+MAIZ, portero de la Embajada de Cuba, anunció a ROGELIO RODRI GUEZ que allí lo están esperando ROBERTO GAYADA y el señor GARHICA. ROGELIO irá a la portería a recibirlos.
+
+26 mar. 62
+
+27 Mar 62
+
+28 Mar 62
+
+29 Mar 62
+
+24 Mar 62
+
+26 Mar 62
+
+27 Mar 62
+
+28 Mar 62
+
+29 Mar 62
+
+30 Mar 62
+
+31 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62
+
+4 Mar 62

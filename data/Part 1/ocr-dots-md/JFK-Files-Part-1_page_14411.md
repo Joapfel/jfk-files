@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_14411.png
+
+Convert to MarkdownSECRET
+
+and informer. Source: Jose PAZ Novas, 17 Jan 61.
+
+Head of the Department of Associations of the Havana Provisional Revolutionary Government. Met with the President and Secretary of the Union of Revolutionary Civic Associations. Source: "Revolucion" newspaper, 1 Jun 61.
+
+N. BORGES Dobarros, Jorge:
+
+Homosexual and close friend of source. The latter resided in his house when he arrived in the U.S. Born approximately in 1923. Prior to 1963, he worked with Muebleria Salas Furniture Store as an interior decorator and also as a salesman. Worked with the MICONS (Ministry of Construction), in Havana, as a watchman at construction work sites. Source: Dobriefing of Manuel Domingo German VIGOS Perez, 24 Feb 70, I-122:
+
+BORGES Dobarros, Jorge B.:
+
+Trip Varadero-Miami, 20 Feb 70. 46 years old. Cuban passport PP-026677. Employee. Source: AIRLIFT passenger list.
+
+BORGES Dobarros, Jorge Benito:
+
+A18 781 146. DPOB: 4/19/23, Havana, Cuba. U.S. address: 4000 NW Fourth St., Miami, Fla. Address in Cuba: 353 Santos Suarez St., Santos Suarez, Havana. Entered the U.S. at Miami on 2/20/70 (RD-1065). Passport PP-026677, issued on 4/9/69. Single. Source: Immigration card.

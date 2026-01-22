@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_15293.png
+
+Convert to Markdown-III-
+
+BRIEF OF ACTIVITIES (Continued)
+
+TET: PLCT: ACTIVITIES:
+
+C. Period of W. II:
+
+Dec.39 Paris Volunteered to French Foreign Legion.
+1940 Tunis French foreign legion, courses for A.S.O., unfinished.
+Barcares F.R.L.: Sent to a special Georgian unit. /finished.
+Paris Discharged, after the end of German/French war.
+
+1942 Paris Did not join the German/Georgian special unit.
+Volunteered for work in Germany.
+3 mnths Politz Worked with HICXER on S.E. contract for one year.
+Got acquainted with Pascal. Both decided to flee.
+May'42 Berlin Contacted some Georgians, said: going to Paris.
+A few days Achen Falcified his leave/travel document; went to GESTapo: was ordered to return to Berlin.
+Eupen-Almedy: Illegally crossed the border.
+On train/Had luck and help from French employees:
+to Paris/twice escaped German controls.
+Paris Visited the family. Reported again for work
+in Germany (in an other bureau of German Labor
+Office), and was sent to a factory in
+Berlin as photographer.
+" Suspected in theft, his living place searched.
+" Troubles with German women. Discharged.
+" Contacted the Labor Office. Was directed to
+work in a factory at Stahlschreiber Street
+" Get PASCAL again. They decided to flee to Brazil.
+" They forged leave certificates, got passports
+for foreigners, and traveled to Paris.
+Paris Visited the family. They started for Brazil.
+Spain Hunger: nobody exchanged their money. They decided to return. 50 = inside France, near
+Bayonne they were arrested by German Custom Guards,
+searched, investigated, ordered to return to
+Paris, escorted to the train. Had luck: managed to get tickets instead to Paris to -
+Pau, and crossed to the free zone of France.
+Seen by French gendarmeres, he invented the story
+of wanting to join the Free French Legion. Sent t
+Marseilles, to the Regimental M., Trouble with Pascal's documents. Escaped before being arrested.
+Pascal went: direction Algiers. David - to Paris.
+Lion David contacted a relative, to get documents for
+returning to Paris. Did not get any.
+Border of David passed the French post, showing his Ger-
+French ac-/man passport. Held by the German post, he re-
+captured / requested being brought to "officer", and there
+Zone . / he "spoke" himself free, and through to -
+A few days. Paris . He visited his mother, and reported to German Commandantura, for work with K.S.K. in Germany.
+
+Berlin-Mangelheim, drivers’ courses of the K.S.K.,
+" -Brandenburger Tor, in a drivers’ unit of K.S.K.

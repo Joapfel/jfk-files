@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_11778.png
+
+Convert to MarkdownSECRET
+SECURITY INFORMATION
+
+25 Juno 1952
+
+MEMORANDUM FOR: ASSISTANT DIRECTOR FOR POLICY COORDINATION
+
+SUBJECT: Project PGOROVEL, Proprietary, WHD
+
+1. CM concurs in making a loan of U. S. $8,000 with interest at 4 percent per annum to contract agent Paul D. Langevin (pseudo). This loan is to be fully secured by a chattel mortgage, or whatever other legal instrument is recognized by the appropriate Chilean Court as establishing a first lien on the machinery and equipment, valued at approximately U. S. $10,000, against which the loan is being made. Principal and interest are to be amortized in monthly installments of U. S. $500, which represents the total salary accruing each month to the agent. The term of the loan will be for the time required to liquidate principal and interest in full.
+
+2. The contract agent will submit a complete name-plate inventory of all machinery and equipment involved as collateral for the loan along with his proof of title to and its physical existence in his possession.
+
+CM/RDOD/rs
+
+Distribution:
+
+orig & 2 - Addressee
+
+1 - DDA
+
+1 - WHD
+
+3 - CH
+
+2 - RI/FI
+
+SECRET
+
+14-00000

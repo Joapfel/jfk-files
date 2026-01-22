@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_13378.png
+
+Convert to Markdown14-00000
+
+<table><tr><td>18</td></tr></table>
+
+SECRET
+
+<table><tbody><tr><td>CAS. SECRETARIAT DISCLOSATION</td><td>☐ INDEX</td><td>☐ NO INDEX</td><td>☐ RETURN TO __________</td><td>BRANCH</td><td>☐ FILE AND</td></tr><tr><td>BY ZB PER #</td><td colspan="5">☐ FILE IN CS FILE NO.</td></tr><tr><td>CONF. <br> CAS <br> [CAS FILE]</td><td colspan="5">RAN CAPEG, WH 8, clop</td></tr></tbody></table>
+
+(Encapsulation)
+
+DATE (and time filed)
+
+SECRET
+
+TO PRIORIDAD [ ] CARACAS
+
+EPODIC JMOEVIL
+
+REF A: HVCW-8792
+REF B: DIR-42602
+
+CITE DIRECTOR M 6 5 2's
+
+1. IN VIEW ILLUMINENCE QUITO MEETING CITED REF A, AND PROVIDED CARACAS DECISION IS AFFIRMATIVE ON FEASIBILITY OF PER PARA 3 . CITED REF A HANDLING AMICE-31 REQUEST PRIORITY FIELD TRACES TO UPDATE A-31'S OA AS REQUESTED REF B.
+
+2. FILE: 200-124-192/3.
+
+C/CN/B4 Hie O. Png
+WH/3/17 Smedt
+WH/CA Thad J. Landl
+
+COORDINATING OFFICERS
+
+SECRET
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. COM No.

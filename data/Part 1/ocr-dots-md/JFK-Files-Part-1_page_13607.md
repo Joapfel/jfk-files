@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_13607.png
+
+Convert to Markdown4
+
+los 20,000. HUETOR contesta que 9,000, pero que turieron que recortar lo de quien invitaba. RENATO pregunta que sí si los van a servir. HUETOR dice que sí y que se repor- tieron, pero supone que todavía habrá en Salvador. De to- dos modos hay que ver eso, porque parezco que no se llevaron todo lo que habíamos hablado. RENATO tiene todavía, y sólo quieras informarle qué lugar y qué fecha. El sábado se ven allá.
+
+14:22 ELENA VARGAS GONZÁlez preguntó a MAIZ, el portero de la Emba- jada Cubana, que si no ha regresado TERESA PROECHA todavía, porque aquí la están esperando en Fundición, 8, y la señora dice que TERESA iba a ir primeiro a la Embajada Norteamerica- na. Que por favor en cuestro llegue, le diga que la están esperando en esa dirección. MAIZ comenta que si TERESA fué a la Embajada Norteamericana, a lo mejor alli ya la dogo- llaron. ELENA se rie de la ocurrencia.
+
+14:37 El Ingr. JOSÉ L. VÁZQUEZ recomendó a su hijo el Lic. JORGE que ahora'de vaya a la casa lo espere, porque quiere ha- blar con él, pero que procure que la cosa no sea muy osten- tosa, pues no quiere que'de ésto se dé cuenta su espejo KARTA. Que el Ingeniero irá diciendo alIENTO a su rededor y luego suba JORGITO en la misma forma, pues le urge hacerle.
+
+14:59 El Embajador PORTUÑO puso el siguiente cable a CUBIA IN- CHEUSTEGUI, Embajador de Cuba ante la CRU en Nueva York: "Favor solysa espere compenseros TALAVERA y RODAS, Delegados CIES llegarán vualo 400 Aeronaves México seis horas mañana sábado".
+
+16:11 POSADA, Consul de Cuba en Veracruz, desde el Puerto 'sereo dijo a NUEVOS PAGOS, de la Embajada Cubana, que dentro de un rato saldrá d'Extravío, c las 13:00 hs., y pregunta que si allí en la embajada tienen alguna información que llevar para allá manden a alguien con ella y él se encargará de hacerla llegar a aquella gente o que si quieren'd'cirle algo vaya alguna al Aeropuerto a verlo. RECINTO manifiesta que tratará de ir con otro compadre de allí de la embajada.
+
+18:00 De parte de ELABRACIÓN DE LA CRU de 11.00 pm prenotaron por el Lic. Salvo cubano, confirmado que es urgente. En el despacho de AGUIAR se infiró que se encontraban en las oficinas de Salvador 10 y se les proyectaron el número de teléfono.
+
+18:52 Un individuo no identificado preguntó a la oficina comercial de la Embajada Cubana, por el inquieto HONJORBO, quien vi- no de Colúmbia está enPark en abstracto allí en la Habana, encía expresó el individuo. Y en vez de comunicación, este re- cito es a JOMINH que no hubiera ido ni a la Unión, ni al Parti-

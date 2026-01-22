@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_13915.png
+
+Convert to Markdown399. Entrada.- JAMES DE LEON (el comandante de Panamá) pre-
+cuenta a ROGELIO si no ha ido HARVIS y ROGELIO dice que no
+ni sabe donde está alojado. JAIME:¿qué lo arriba buscando
+ara arrengar una cuestión y n... le ha sido posible pregunt
+si no ha habido nada y ROGELIO dice que no, pero esmera qu
+mama llegue algo; que lo llame el lunes antes de ir.
+JAIME acepta.- 418.
+
+026. Entrega. 15.13.- HARVIPS de Panamá solicita hacer con --
+ROGELIO -¿- ¿Sigue así? No lo sé. Hasta now. HARVIPS promeba si no
+llegó ayer, y S. M. dice que no y ROGELIO no le dejó --
+ningún cosa. HARVIPS por su cuenta se dirigió a -
+Cuba, y me lo INVITA el marte para ver si ya le llé
+¿Qué alora. HARVIPS el mejor海南 como a las 9 orDie-
+llegaré tan early. HARVIPS acepta.- 034.- (EL NORTE CORRECTO)
+ES HARIY).-
+
+312. Ent...
+que no le
+sa de rey
+a la comu-
+ntará s:
+que ROBRY
+acepta.- 7
+
+365
+
+LES demeza por ROBRY -¿-
+RECIBIO Y ANA HA RESUMIDO LO
+están los dientes, pues alora él
+con el cuento te va a traer.
+Habla con ana como a las once
+le encenderá informado.
+
+5 mar 64
+
+654. Entrega. 1617.- JAMES DE LEON de Panamá pregunta por -
+ROGELIO y ROJAS dice que todavía no llega.- JAIME:¿qué -
+tratará de acercarse un poco a la embajada por si acaso lle
+ga, pues quiere hablar personalmente con él. ROJAS:¿que-
+está bien.- 684.-

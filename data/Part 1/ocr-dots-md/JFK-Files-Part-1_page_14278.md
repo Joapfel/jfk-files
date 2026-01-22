@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_14278.png
+
+Convert to MarkdownSECRET
+
+OSMA-23,106
+
+7. The new Ambassador concluded his report with three recommendations:
+
+a. Rent another building where the Chancillary, the Commercial Office, the Consulate and the Cubana Offices can all be housed instead of being dispersed in separate buildings as they are now;
+
+b. Rent or preferably buy a residence for the Chief of Mission. The one they now have is not adequate;
+
+c. Send another person from Cuba who has the background to take care of scientific work plus continuing the contacts the Mission will have already made. In view of RUIZ's previous statement on the completeness of the staff, such a person would likely be a "non-official" representative of one of Cuba's cultural fronts such as the Casa de las Americas.
+
+8. RUIZ concluded his remarks by saying that in Spain there is a tremendous field for the Cubans, they have no language problem and they can do a great work. Such is the goal RUIZ has proclaimed and that Station Madrid believes he was sent to attain.
+
+Jane D. ASTRAHAN
+
+53a USE PREVIOUS VERSION
+
+SECRET
+
+CONTINUED
+
+FORM B-144 1401
+
+CLASSIFICATION
+
+X CONTINUED PAGE NO
+3

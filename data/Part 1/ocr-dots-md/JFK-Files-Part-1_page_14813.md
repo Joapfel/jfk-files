@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_14813.png
+
+Convert to MarkdownFrom November, 1933, to May, 1935, he was in the Soviet Union, where he attended the Leonid School. Upon his return to the United States, he became Organizational Secretary of the YCL in Cleveland and was named to the Ohio District Committee of the YCL. In March, 1936, Winston was named YCL National Organizational Secretary, and in May, 1937, was elected YCL National Administrative Secretary.
+
+Winston was active in the YCL as editor of the "Young Communist Review," official magazine of the YCL, and as Director of the YCL Training School held at Camp Beacon, New York, during 1937 and 1938. He was reelected YCL National Administrative Secretary in May, 1939, and held this office until his induction into the Army in February, 1942.
+
+Winston became a member of the CPUSA National Committee in June, 1940; was elected a member of the Communist Political Association National Committee while serving in the Armed Forces in 1944; and was renamed to the CPUSA National Committee in July, 1945. From October, 1945, to July, 1946, he served as Secretary of the Party's National Negro Commission. He was named a member of the editorial staff of "Political Affairs" in 1946. In July, 1946, he was elected a member of the Party's National Board and appointed CPUSA National Organizational Secretary. He held the latter position until his disappearance into the Party's underground apparatus in July, 1951.

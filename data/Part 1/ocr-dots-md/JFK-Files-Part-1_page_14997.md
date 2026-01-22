@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_14997.png
+
+Convert to MarkdownSECRET
+
+27 January 1964
+
+MEMORANDUM FOR: Chief, HARVARD
+FROM : ORME K. DARONNAT
+SUBJECT : WIROGUE
+
+Don, I suggest that we reduce the quantity of some of
+the items listed on the attached and make WIROGUE a present
+of the remainder as part of his resettlement.
+
+I have been emphasizing to Subject over the past weeks
+that President Johnson's economy drive has affected all
+agencies and departments. Subject, therefore, has been
+conditioned not to expect money for BKZ or for furniture or
+a termination sum. Any or all of these would normally be
+provided in a case of this kind.
+
+I feel that if we pay to have his lower denture repaired,
+approximate cost DM 400, make Subject a present of the house-
+hold items listed, and continue to pay him subsistence for a
+month or two after we notify him he is on his own, we will,
+I believe, get rid of him as cheaply as possible and without
+serious complaints.
+
+SECRET
+
+<table>
+  <tr>
+    <td>SECRET</td>
+  </tr>
+</table>

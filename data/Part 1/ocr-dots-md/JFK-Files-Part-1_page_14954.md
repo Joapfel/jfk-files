@@ -1,0 +1,63 @@
+# JFK-Files-Part-1_page_14954.png
+
+Convert to Markdown14-00000
+
+OFFICIAL DISPATCH
+
+VIA AIR
+(Specify Air or Sea Pouch)
+
+DISPATCH NO.
+AGF-7178
+73-5-39-1
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO Cate of Base, Frankfurt
+
+FROM Chief, SR
+
+DATE JUL 10 1958
+INFO COS. Germany
+COS. Paris
+
+SUBJECT GENERAL REDDUD/REDUX/ACCRE
+SPECIFIC Photographs of Subject of AGFA-22041
+
+ACTION REQUIRED: Information
+
+1. Attached for year information and possible use in establishing base fides with Subject are two photographs of him made in March 1958 at a ski resort in eastern France. The photographs are from various taken by AEPADDLE/I, and the source will be obvious to Subject.
+
+2. AEPADDLE/I also obtained a specimen of Subject's name written backward on a slip of paper. This was sent to Paris in OFFW-20962, and could also be used to establish base fides with Subject.
+
+3. A POA has been requested, and the field will be notified when it is received.
+
+4. We should appreciate the Paris station's comments on the relative merits of the proposals - as to EUCA-22041 as to ways of approaching Subject.
+
+MICHAEL RAE
+
+Attachments:
+1-2 Photos of Subject
+
+Distribution List:
+
+* 2 Addresses w/atts as stated one cy. ea.
+* 2 COS. Paris w/atts. as stated I cy. ea.
+* 2 COS. Germany w/atts.
+* SR/DOB/SA&E/F/McNulty:nw/4705(30 June 58)
+* (Requesting officer)
+
+SR/CQP/FI
+
+(Receiving officer)
+
+SR/AKP/61
+
+MICHAYL RAE
+
+FORM NO. 51-29
+JUN 1949
+
+13-01294-1 © U.S. GOVERNMENT PRINTING OFFICE
+
+201-233477

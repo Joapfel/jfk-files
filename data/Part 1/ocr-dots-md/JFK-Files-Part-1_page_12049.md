@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_12049.png
+
+Convert to Markdown19 February 1966
+
+Date
+
+Memorandum For: DC/SCC (for Mr. Beers)
+
+Reference: Request for leave and clearance
+
+Project : WELCOMET
+
+Subject : See below
+
+MEI: MCLERON, Gordon Barton
+DPO: 8 June 1921, Paris, Texas
+CI: USA
+RCS: 9300 Douglas St., Dallas, Texas
+OOC: McLendon Broadcast System
+ADD: 2104 Jacks - St., Dallas, Texas
+
+Trace Results:
+
+No record in addition to 201-79764 which is attached herewith on permanent charge to DC/CO/Beers.
+
+CI/CA file JG-9545 was reviewed and found to contain no information in addition to that contained in Subject's dossier. You will note that a request made by FE Division for a CSC on Subject was denied by the Office of Security on 29 July 1952.
+
+Areas Checked:
+
+RID X Area Division _ Central Cover Staff X Office of Security_
+
+OCR: Bibliographies Register _ Foreign Installations Branch _ Library_
+
+Other ____
+
+Form 772 requesting PCSA/CSA ___ was forwarded ___ to(Security) f/c Kdx
+
+A copy of this memorandum has been sent to RID for classification into file ___.
+
+Attachment: 201-79764
+
+Distribution:
+Off.- Addressed
+FCCXX X/F - 1
+
+DO/ES
+
+S F C R E M M

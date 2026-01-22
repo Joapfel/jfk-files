@@ -1,0 +1,52 @@
+# JFK-Files-Part-1_page_12480.png
+
+Convert to MarkdownSECRET
+
+IRD# 72501
+Page 3
+
+29 November 1971
+
+Does IDEN E know or suspect your present relationship with JKLANCE in IDEN A? No
+
+Does your wife know you work for JKLANCE? Yes
+
+Have you told IDEN K that you worked for JKLANCE? No
+
+Have you ever been to IDEN L? Yes
+
+Do you suspect that the IDEN M is deliberately giving you information to give to JKLANCE? No
+
+Do you live in IDEN C? Yes
+
+Are you employed by the IDEN M? Yes
+
+Since May 1968, have you been involved in illegal arms smuggling? No
+
+Since May 1968, have you had any information about or contact with IDEN F or IDEN G that you are concealing from us? No
+
+Do you have permanent resident alien status in WOCORK? Yes
+
+Has anyone asked you to work against LNLUTE? No
+
+Would you like to go back to IDEN J to live? No
+
+H. Maxwell Padon II
+
+Distribution:
+
+Orig. - True, Lawrence, Gaynor
+
+1 - Lawrence
+
+1 - CI/OA
+
+1 - WH/3
+
+1 - Field
+
+1 - File
+
+OS/IRD/HMP:lhs
+
+SECRET

@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_12631.png
+
+Convert to Markdown14-99000
+
+D.32 . 23 Okt 37
+
+Bucur, Stranica Rba., 63a
+
+U.S. Cit. 1955 (ord.) 7832636, Bilev, 21.8.57 24 June 59
+
+Sd: C.U. Expor. & Commercial ed's
+C.P.: U.C.A. (O.E.- 324/2316-76)
+
+OS = C79245.
+
+FBI - NR
+OSI- G 4/8 S6-62 in U.S.H 1958
+Can Spt 55 to gain
+Erasmus D1-5002 Joliette Piccolo, NYC
+Lydia Santiago, N.Y.C.
+Gilberto Guote NY.C.
+Jordao B. de A. N.Y.C.
+Pecino Machines NYC
+Panaco Argote NYC
+Fernando Sastre N.Y.C.

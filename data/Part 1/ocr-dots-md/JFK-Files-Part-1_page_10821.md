@@ -1,0 +1,90 @@
+# JFK-Files-Part-1_page_10821.png
+
+Convert to MarkdownViene de la primera
+
+ordenado a presentarse inmedi-
+tamente, es interpretado en Wa-
+ington como "que su especialidad
+en desembarco y en combate son
+necesarios en la CIA en los prox-
+imos meses".
+
+Igualmente, como un signo
+positivo en la política norteame-
+ricana para Latino America, se
+interpreta la designacion como
+Sub-Secretario de Estado para
+asuntos hemisfericos del ejecu-
+tivo de Sears and Roebuck y de
+la United Fruit Company, de
+Charles Meyers.
+
+En resumen: en Cuba todos
+esperan el desplome del gobi-
+no de Fidel Castro.
+QUO
+
+Sin la omnipresente CIA que es el brazo despi-
+dado que impone la política de Washington contra
+acción armada del pueblo cubano en el destierro; s
+las actitudes de salvoconces Pilatos que viven en
+opulencia indiferentes a la tragedia de Cuba, estari-
+lloviendo bombas sobre la cabeza de Fidel Castro.
+
+"Los tres poderosos" se reservan para reinar sol
+las cenizas de la isla. Esperan que el fruto podrido |
+caiga en las manos.
+
+No entienden que esa corriente ampliadora de
+historia que no remonta de regreso la montaña
+tiempo y las hondas transformaciones sociales de
+revolución es propia para hombres más jóvenes, roba
+tecidos por los grandes ideales, que no alientan en l
+corazones endurecidos y fíos.
+
+oo
+
+¿Quienes puedan sustituir en las próximas jomas
+de encontrada pelea y en los días ulteriores de la reco-
+trucción a la CIA., a Engrista y a Prío como canali
+dos de la vida cubana que han acumulado expéri-
+cias y conocimientos con los cuales construir los pa-
+dos políticos madurados en la emigración, la cland
+tinidad y la prisión política?
+
+La nación cuando caiga Castro, va a quedar cura de providencialismos y extremistas revolucionarios.
+
+Deroverá la confianza en los que la hicieron gran
+en el pasado. Le montrará las espalda a los trent-
+das con sus formulas catastróficas de fallo reforma
+no que solo produce convuluciones y miserias.
+
+Hay en el destierro cien líderes regionales de
+buena política de limpios expedientes en las admit-
+tracciones locales, en el congreso y en los ministerios.
+
+La virtud no es un privilegio de ninguna facción
+pasado. Si la corrupción era monopolio de ning-
+partido.
+
+En los últimos años, el Departamento de Estado norteame-
+ricano ha desalentado sistematicamente toda actividad del exi-
+lio contra la tirantía comunista cubana.
+
+La Agencia Central de Inteligencia, que no hace la política exterior de Espana ni Génea, pero que la aplica, respondiendo fielmente a cada viva, loa a sus paniguados cubanos para delatar expediciones e infiltraciones a Cuba. Y ordena a sus pumiferos y locutores sin pудor ni pariotismo, pero con sueldo, que melificaras sus atacques a Castro y no estimularas las acciones armadas de las organizaciones militantes. Así se cancelaron programas radiales y se colocaron censores en las estaciones.
+
+De hecho, todos los cubanos que cobraban mensualmente
+del gobierno de este país, a través de sus miles de organzacio-
+nes pantallas, algunas de las cuales aparecen como latineame-
+ricanas, alemanes o escaldas, y hasta muy respectables, pero
+que reciben subvicios sólo en la medida que siguen sus crean-
+taciones, han estado siniendo de eficaces protectores de Fidel
+Castro.
+
+Con una tenacidad digna de mejor causa, la CIA metió su sucio dinero en las organizaciones profesionales o regionales del exilio para que se metara, sistematicamente, toda intanto de usar estas corporaciones para la kucha armada contra los rojos.
+
+Muchos activistas, asaluzando comprados, porque la CIA
+también mete en la carefully a los rebeldes que no se les some-
+ten, abandonaron la lucha.
+
+Así fue asesinado el espíritu de lucha de la inmigración. Y no se produjeron más incursiones

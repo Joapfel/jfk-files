@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_13552.png
+
+Convert to MarkdownEXCERPT
+
+REPORT NO. HMM-6343
+
+1 May 1962
+
+CUBAN ASSISTANCE AND INTERVENTION IN THE
+GUATEMALAN POLITICAL SITUATION
+
+Appraisal of Content: 2
+
+......
+2. ......
+
+Fernandez [Csin FERNANDEZ Concepcion, Cuban Communist] said that he first met with Rogelio Rodriguez Lopez, Third Secretary of the Cuban Embassy in Mexico, and with other trusted members of the Cuban Embassy and explained the determination of the 13 November group in Mexico to aid the Guatemalan revolution. According to Fernandez, Habana was consulted and Castro gave instructions that assistance be given immediately to the 13 November group and that encouragement should be given to the guerrilla fighters.
+
+EXCERPT
+
+HMM-6343
+
+1 May 1962

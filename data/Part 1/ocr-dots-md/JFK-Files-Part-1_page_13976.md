@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_13976.png
+
+Convert to Markdown1. Acero de the FERNANDEZ Vásquez, Advisor. ELGIN stated that he had seen very little of FERNANDEZ in the previous week, and could offer no new information on him or on his activities. FERNANDEZ seems to shun most of the Delegation and Mission personnel apart from his fellow DGI people.
+
+2. Augusto C. Vega Hernandez, Advisor-designate. Although VEGA has been carried on the provisional Cuban Delegation listing, he has yet to appear here. ELGIN was not familiar with VEGA's name, but he commented that he had heard talk of another advisor coming here in October; ELGIN thought that possibly this could be VEGA.
+
+3. María de los Ángeles FLORES Prida, Alternate Representative. FLORES has been spending quite a bit of time with Rogelio RODRIGUEZ López, CMUN First Secretary and DGI officer. RODRIGUEZ is also an Alternate Representative of the Delegation. Their companionship is assumed by ELGIN to be more in the social line than in the professional line.

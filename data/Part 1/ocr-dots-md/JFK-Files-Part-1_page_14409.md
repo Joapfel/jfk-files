@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_14409.png
+
+Convert to MarkdownSECRET
+
+-5-
+
+3. We have the following file traces on persons mentioned in this report:
+
+A. RUIZ? Jose Antonio: OTA-1858, 16 January 1970, I-33. Debriefing of Rolando CARDOSO Perez. Information and file traces on Jose Antonio RUIZ.
+
+B. PEREZ Entrialgo, Nioves: OTA-1858, 16 January 1970, I-33. Debriefing of Rolando CARDOSO Perez. Nieves PEREZ Entrialgo is mentioned in this report (no traces).
+
+C. RUIZ Veciana, Guillermo: OTA-1858, 16 Jan 70. Debriefing of Rolando CARDOSO Perez. File traces on Guillermo RUIZ Veciana.
+
+D. RUIZ Veciana, Ivan: OTA-1858, 16 Jan 70. Debriefing of Rolando CARDOSO Perez. File traces on Ivan RUIZ Veciana.
+
+E. RUIZ Veciana, Julio G.: RUIZ Veciana, Julio: OTA-1858, 16 Jan 70. Debriefing of Rolando CARDOSO Perez. File traces on Julio RUIZ Veciana.
+
+F. RUIZ Veciana, Alejandro: OTA-1858, 16 Jan 70. Debriefing of Rolando CARDOSO Perez. Traces on Alejandro RUIZ Veciana.
+
+G. RUIZ Veciana, Juan C.: RUIZ Veciana, Juan: OTA-1858, 16 Jan 70. Debriefing of Rolando CARDOSO Perez. Traces on Juan RUIZ Veciana.
+
+H. RUIZ Perez, Jose Antonio: OTA-1858, 16 Jan 70. Debriefing of Rolando CARDOSO Perez. Information and traces on Jose Antonio RUIZ Perez.
+
+I. RUIZ Perez, Osvaldo: OTA-1858, 16 Jan 70, I-33. Debriefing of Rolando CARDOSO Perez. Information on Osvaldo RUIZ Perez.
+
+5

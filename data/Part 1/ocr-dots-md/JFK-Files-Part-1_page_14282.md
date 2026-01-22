@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_14282.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+RE-8119, 5 Dec. 1967
+
+SUBJECT: Francisco CALZADILLA's replacement in Spain (cont.)
+
+presIDENTative IN SPAIN a specialist IN INTERNATIONAL COMMERCE. AS such, he can not only FERTILIZE the SOUP for the above PURPOSE but ALSO take a PRINCIPAL part IN the CONVERSATIONS which at THIS TIME are always held by COMMERCIAL DELEGATIONS of BOTH COUNTRIES, with a VIEW TO commercial TRADE between the TWO COUNTRIES.
+
+5. Following are the file traces we have on Ruiz Perez:
+
+Orestes Guillermo RUIZ Perez: RE-2131, Information about him,
+I-21, 30 Oct. 1964.
+
+RE-2251, Information about him and file traces, I-31, 17 Nov. 1964.
+
+Commercial Counselor at the Cuban Embassy in Mexico in Nov. 1963.
+Address: Francisco Marquez No. 160 (Colonia Condesa), Mexico, D.F.
+(Source: Cuban Diplomatic and Consular Missions Abroad, 25 Feb. 65).
+
+EE-4342, List of Ministers and Vice-Ministers of the Cuban Govt.,
+26 Oct. 1965, page 1.
+
+Vice-Minister of the MINCEX. One of the head persons present at
+a meeting held by the workers of the MINCEX on 3 Feb. 1966 to express
+their solidarity with the statements made by the Prime Minister in
+reply to the Red Chinese Government. (Source: El Mundo and Granma,
+9 Feb. 1966.)
+
+Member of the Cuban Delegation at the second session of the Bulgarian-
+Cuban Intergovernmental Commission for Economic and Scientific-Tech-
+nical Collaboration, held on 17 Feb. 1966 in Havana. (Source: El Mundo,
+18 Feb. 1966.)
+
+RE-5349, Study on the structure of the Cuban Govt., I-31, 13 June 1966.
+
+Vice-Minister of Political Economy of the MINCEX. Supporter of the
+regime. Born in 1928 approx. White. About 5'5" tall, weighing about
+130 pounds. Blond hair and blue eyes. Married. Lived in Havana until
+Dist. and Province. (Source: Debriefing of Benito PÉNDRA Murplorre,
+I-42, 27 Dec. 1966.)
+
+Orestes RUIZ Perez: CO-666, Travel Havana-Mexico.
+
+Travelled Havana-Mexico on 21 May 1964. PP. 63487. (Source: CCA pas-
+senger manifest.)
+
+Guillermo Orestes RUIZ Perez: Cuban, 42 years of age. Came to
+take the place of Enrique VEGA Perez, former attaché at the Cuban en-
+bassy in Mexico. PP-D-53/487 diplomatic. Arrived in Mexico on 29 Nov.
+1963. (Source: Passenger manifests.)

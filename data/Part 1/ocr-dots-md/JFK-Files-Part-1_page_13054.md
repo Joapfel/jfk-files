@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_13054.png
+
+Convert to MarkdownSECRET
+
+PRQ PART I
+
+NAME : Reinaldo PICO Ramon
+DPOB : 21 July 1933, Regla, Havana, Cuba
+OCCUPATION : Businessman
+RESIDENCE : Miami, Fla.
+SPOUSE : Carmen Marcela Pino
+FATHER : Regino PICO
+MOTHER : Maria de la Paz Ramon
+PAST ACTIVITIES : Member of Brigade 2506; Member of the Prisoners Exchange Commission. Subject refused to return to Cuba after the negotiations failed.
+
+SECRET

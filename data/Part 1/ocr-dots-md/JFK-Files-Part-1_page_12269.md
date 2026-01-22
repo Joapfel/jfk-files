@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_12269.png
+
+Convert to Markdown<table><tr><td colspan="2"> Ricardo - Ibraloos-Venecia</td></tr><tr><td>163 S. W. 80th Avenue</td><td>Miami, Florida 33116</td></tr><tr><td>DATE OF BIRTH<br/>June 14, 1939</td><td>CUBA<br/>Cuba</td></tr><tr><td>Fees<br/>Black</td><td>Black</td></tr><tr><td>VISIBLE SCARS AND MARKS</td><td></td></tr><tr><td colspan="2">NO<br/>VALIDITY OF PERMIT</td></tr><tr><td>PERMIT EXPIRES<br/>January 25, 1973</td><td>VALIDITY EXTENDED TO<br/>DATE AND LOCATION OF OFFICE<br/>DATE AND LOCATION OF OFFICE</td></tr><tr><td>DATE AND LOCATION OF ISSUE OFFICE<br/>January 25, 1972 N/A</td><td>SIGNATURE VALIDATING OFFICER<br/>SIGNATURE REVALIDATING OFFICER</td></tr></table>
+
+<table><thead><tr><th colspan="2">RESTRICTIONS</th></tr></thead><tbody><tr><td>VALID FOR</td><td>☐ ONE ENTRY ONLY<br/>☑ MULTIPLE ENTRIES</td></tr><tr><td colspan="2">The document is not valid for return to the United States after a temporary absence which involves travel to, or through any of the following countries unless the restriction is specifically written with regard to any such country or countries by endorsement hereon:</td></tr><tr><td colspan="2">Communist portions of:</td></tr><tr><td>Albania</td><td>China</td></tr><tr><td>Cuba</td><td>Korea</td></tr><tr><td>Outer Mongolia</td><td>Viet-Nam</td></tr><tr><td colspan="2">The above restriction is waived as to the following</td></tr><tr><td colspan="2">☑ NO</td></tr></tbody></table>
+
+<table><tr><td>No. de expedición</td></tr><tr><td>Nº 09206</td></tr><tr><td>No. de Cédula</td></tr><tr><td>Nº 07506</td></tr></table>
+
+<table><tr><td>Ricardo</td><td></td><td>Segundo Apellido</td><td></td><td>No. de expedición</td></tr><tr><td></td><td></td><td></td><td></td><td>Nº 09206</td></tr><tr><td></td><td></td><td></td><td></td><td>No. de Cédula</td></tr></table>
+
+<table><tr><td>No. de pasaporte</td><td></td><td>Año</td><td></td><td>No. de expedición</td></tr><tr><td></td><td></td><td></td><td></td><td>Nº 07506</td></tr><tr><td></td><td></td><td></td><td></td><td>No. de Cédula</td></tr></table>
+
+<table><tr><td rowspan="2">No. de Visas</td><td rowspan="2"></td><td rowspan="2">Nº 32</td><td rowspan="2">Vendedor</td><td rowspan="2">Coa: Nacionalidad</td><td rowspan="2">Coa: No. de Pasaporte</td></tr><tr><td></td></tr><tr><td rowspan="2">Visita</td><td rowspan="2"></td><td rowspan="2">13 Diciembre</td><td rowspan="2">Autorización M.R.I.</td><td rowspan="2">Lugar de expedición</td><td rowspan="2"></td></tr><tr><td></td></tr><tr><td>Pais</td><td></td><td></td><td>Colombia</td><td></td><td rowspan="2">Diurno</td></tr><tr><td>Puerto</td><td></td><td></td><td>1-00003-5</td><td>Caracas</td></tr><tr><td>Firma o excedente</td><td></td><td></td><td></td><td></td><td>Diurno</td></tr

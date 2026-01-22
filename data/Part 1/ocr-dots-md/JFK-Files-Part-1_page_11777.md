@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_11777.png
+
+Convert to Markdown28 May 1952
+
+MEMORANDUM FOR: OD/CO
+ATTENTION: Mr. William Rowland
+SUBJECT: Project PBGROVEL, Amendment No. 1
+
+1. Forwarded herewith are the original and two copies of subject amendment plus an extra copy of OPC Form 404a.
+
+2. It is respectfully requested that approval of subject amendment be expedited as the Project Financial Data, Form 404a, indicates that payment of eight thousand ($8,000.00) dollars to PAUL D. LANGEVIN must be made on or about 20 June 1952.
+
+3. Subparagraph six of the Proposal indicates that as a prerequisite to issuance of a loan to LANGEVIN the latter will be required to submit a complete nameplate inventory of all machinery and equipment involved in the loan transaction, its physical existence in his custody, his title to the property, and an approximate evaluation of its worth (as determined by WHD station personnel). WHD will be prepared to do this shortly after Amendment No. 1 is approved and the necessary funds are available for payment.
+
+4. Subparagraph five of the Proposal indicates that details of the loan contract and selection of the appropriate legal instrument to secure a lien on the machinery and equipment will be arrived at through joint agreement of WHD, CCC and the Legal Division. These financial details will be arranged subsequent to approval of the amendment in question and will comprise the financial plan governing the expenditure of the funds requested.
+
+WHD/JCK/SWW/VLG/HB/jc
+
+**Distribution**
+
+Orig: OD/CO
+cc: Special Contracting Officer (Mr. J.L. Bischoff)
+CM (Mr. Ernest W. Pittman)
+Chief, Branch I
+Project File PBGROVEL WHD/P&O
+Chrono WHD/P&O

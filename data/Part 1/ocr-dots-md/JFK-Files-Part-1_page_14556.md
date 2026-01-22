@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_14556.png
+
+Convert to MarkdownSECRET
+
+9 -
+
+Evidently this last cable upset him so much that he was nervous and particularly security-conscious. Less than a week later, he called Raúl LEON Torras and requested permission to go to Cuba, ostensively to settle a "personal problem with my son."
+
+When he returned to Madrid on 29 October he was a changed man, again fully confident of himself. Nevertheless, he has told close friends that he feels very lonely in Spain and has had the desire to simply board a plane and return to Cuba abandoning the Embassy.
+
+Late in January 1970 he was again depressed, for he felt like an "exile" in Spain after two years of service (" Even though LEON played a part in my appointment I cannot work for a man that I do not understand. Maybe he sent me abroad to get me out of the way. I feel as if I were in Miami.") 
+
+He thinks he is "burned" in Spain, and when he returns to the Island he will definitely not go back to MINREX, but to MININT. He has told close friends his term in Spain is up and he will be returning to Cuba probably in the summer. In any event, he does not plan to be in Spain more than nine months. Nilda, his wife, has stressed that they are leaving Madrid permanently in July 1970.
+
+POLITICAL AND IDEOLOGICAL VIEWS: Although outwardly a "revolutionary", Guillermo RUIZ is a man of moderate political views struggling to justify the actions of his government in face of the political and economic realities of Castro's Cuba.
+
+SECRET
+
+14-00580

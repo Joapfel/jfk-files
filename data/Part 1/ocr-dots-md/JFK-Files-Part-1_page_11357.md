@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_11357.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td colspan="2">PERSONAL RECORD QUESTIONNAIRE<br/>PART II - OPERATIONAL INFORMATION</td><td>PRQ AC.</td></tr><tr><td colspan="2">INSTRUCTIONS TO CASE OFFICER</td><td>DISPATCH NO.<br/>FEMA 21557</td></tr><tr><td colspan="3"><ol><li>This form must be filled in by the case officer or appropriate authority on the basis of the best available information. It is not to be shown to the subject.</li><li>Vocally, headquarters will be unable to issue an approval unless requestor furnishes answers to all questions in Pd. parts I and II. However, in an emergency provisional approval is obtained he complying with the applicable provisions of PR 10-215, paragraphs 8a, g, 12a and 12b. Thereafter the usual method to document or complete the case must be followed as set forth in PR 10-215.</li><li>Three copies of PR part I (including copy in subject's handwriting, if possible) and two completed copies of this form must be sent to headquarters as soon as possible.</li><li>Data acquired later must be sent to headquarters in PR format in two (2) copies.</li><li>Fill in all steps, of information obtainable. If item not applicable write "NA." If additional space required for item, use reverse side of envelope to appropriate item number.</li></ol></td></tr><tr><td>1. CRYPTO-M</td><td>LITAMIL-9</td><td>2. PSEUDONYM</td></tr><tr><td colspan="2">CONTACT AND DEVELOPMENT</td><td></td></tr><tr><td colspan="3"><p>INDICATE HOW, WHEN, WHERE, WHY, AND BY whom SUBJECT WAS FIRST CONTACTED OR DEVELOPED.</p><p>Case Officer (Clyde I SHIRTOCK) was introduced to Subject on 18 July 62 by LITAMIL-3, who was recovering from a gall stone operation in the hospital. The CO same contact with the subject, a resumeupment of which was done at penetration of the FERNHORN Embassy in Mexico. See MEXI 1467 re initial meeting.</p></td></tr><tr><td colspan="3"><p>INDICATE WHETHER SUBJECT COULD BE TRENDED OVER QUICKLY AND IN A SECURE WANNER TO ANY RESPONSIBLE CASE OFFICER FOR HANDLING. IF SO, INDICATE TO WHO.</p><p>Subject could be turned over to any responsible Case Officer, particularly one with a speaking knowledge of Spanish. Subj speaks English and French as well as Spanish.</p></td></tr><tr><td colspan="3"><p>LIST OTHER CASE OFFICERS WHO HAVE HANDLED SUBJECT OR FROM WHICH HE RANKS OR HAS KNOWN, GIVE NAMES BY WHICH THEY HAVE BEEN KNOWN.</p><p>Subject knows Clyde I SHIRTOCK, his Case Officer, by true name. SHIRTOCK will introduce Laurence F. MARKER to Subject during the week of 16 June 1963.</p></td></tr></table>
+
+FORM 10-30
+1 NOV 30 1050A REPLACES FORM 51-95A
+WHICH MAY BE USED.
+
+SECRET
+
+(4-20)

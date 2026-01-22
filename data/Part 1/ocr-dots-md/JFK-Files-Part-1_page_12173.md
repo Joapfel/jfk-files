@@ -1,0 +1,67 @@
+# JFK-Files-Part-1_page_12173.png
+
+Convert to MarkdownOUTGOING MESSAGE
+
+SIGNAL CENTER USE ONLY
+
+<table><tr><td>0</td><td>.</td><td>.</td><td>.</td></tr><tr><td>.</td><td>.</td><td>.</td><td>.</td></tr><tr><td>.</td><td>.</td><td>.</td><td>.</td></tr></table>
+
+OMF 0 0 0 0 0 0 0
+
+CLASSIFICATION
+
+SECRET
+
+MESSAGE HANDLING INDICATOR
+
+DATE Post Group
+
+CONF.:
+
+INFO: FILE
+
+C/PA/PNC
+
+PCS/INT
+
+AGC/DDO
+
+C/PCB/LSN
+
+REPRODUCTION OF OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+IMPOET
+CI AV- 007255
+
+19
+
+PAGE OF 888
+
+DISSENT BY:
+
+NO MODE
+PER
+
+NOT APPLICABLE #
+
+C/LA/PNC L Desmond
+PCS/INT B Buell
+AGC/DDD G.A.ldin
+POS/ITE S.Sibb.
+C/CN/RR L.E.Bom
+
+APR
+
+DATE: 37 DEC 76
+ORIG:HARRIET WEILER:LW
+UNIT: C/LA/PNC/R
+EXT: 9454
+
+CLAD:
+
+CLASSIFICATION
+
+REPORT REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. E-2 : IMPDET
+CI AV- 007255
+
+14-00000

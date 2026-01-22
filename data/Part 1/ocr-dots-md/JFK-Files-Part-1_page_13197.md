@@ -1,0 +1,79 @@
+# JFK-Files-Part-1_page_13197.png
+
+Convert to Markdown14-00000
+
+<table>
+   <tr>
+    <td>DISPATCH</td>
+    <td></td>
+    <td>S A M B E R</td>
+    <td></td>
+    <td>23 February 1968</td>
+   </tr>
+   <tr>
+    <td>Chief, Division</td>
+    <td></td>
+    <td>AJ</td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>Chief of Station, Carondelet</td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>Venezuelan Security Services Technical Capabilities</td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>AUG. 1967 BREVETTE</td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>REFERENCE: HVCS-2610</td>
+    <td colspan="4">ANCL E-VS</td>
+   </tr>
+  </table>
+
+1. Headquarters' request to review the contents of the attachment to Reference was received at a time when the Station was unable to produce current data to make a meaningful contribution to updating subject matter. Since receipt of Reference, the Station has unilaterally resulted a telephone technician who is knowledgeable of SIFA telephone tape. This Subject has not been used as yet, nor has he received his first months salary and REMOVAL is not yet prepared to probe Subject on SIFA tapes. With regard to DIGIPOL technical operations, the Station has only recently been able to obtain unilateral type information through ANCL-EV-15 who is only now getting to know the man in charge of the DIGIPOL telephone operation.
+
+2. Within the next two months the Station should be in a position to provide a more detailed and specific report on COY technical operations.
+
+3. The following is all the information currently available to the Station on SIFA/DIGIPOL technical operations.
+
+a. SIFA telephone tape are monitored in the building housing the Ministry of Communications, which is located alongside SIFA headquarters. According to the telephone technician, they have a capability to interpret (X) lines, but only a dozen are in operation at any given time. The monitoring section consists of 2-) persons. Because of this personnel shortage many tapes are not replayed and even less are transcribed. SIFA offices in the interior have been reduced and it is doubtful that a telephone program is in operation.
+
+b. The DIGIPOL telephone intercepts are now directly under command of the Minister of Interior and all intercept requests must have his approval. According to CIGERO-1 in conversations with the CO3, the former claims a telephone capability of 30 lines, not including 3-4 lines he has running directly into his office. (Pians call for completion of an additional 100 lines by the end of February 1968.) These are monitored in the building of Ministry of Interior. The staffing pattern, production and utilisation of the take is unknown to the Station. Since a capability of this extent involves running a cable to the monitoring post, it is most probable that the actual taps are on the frame at the main telephone exchange in Carondelet.
+
+(DIV) SECRET
+Revisions
+DISTRIBUTIONS
+- Chief, WAI
+- C.A.R.
+- S E C R E T
+
+<table>
+  <tbody>
+    <tr>
+      <td rowspan="2" style="vertical-align: top; border-right: 1px solid black;">
+        <div>CONFIDENTIAL AND CONFIDENTIAL</div>
+        <div>SECRET</div>
+      </td>
+      <td style="border-bottom: 1px solid black; padding-top: 5px;">DEPT NO.</td>
+      <td>23 February 1968</td>
+    </tr>
+    <tr>
+      <td style="padding-top: 5px;">FOR A1 distribution</td>
+      <td style="padding-top: 5px;">79-2-13/J<br/>79-2-LW/J</td>
+    </tr>
+  </tbody>
+</table>

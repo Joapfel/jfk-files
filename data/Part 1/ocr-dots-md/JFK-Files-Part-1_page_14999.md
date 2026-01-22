@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_14999.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+about going to work like any normal person and fiddle with his inventions at night. C. O. reminded him that if he had not been able to come up with a successful invention after 1 1/2 years of our patronage he should get his head out of the clouds and join the rest of us. By this time Subject was beginning to sulk so C. O. took him out to lunch. Later while taking a stroll, Subject stated that if the cold weather continued he was going to return to the Congo. C. O. hustled him into Woolworths and bought him some long underwear.
+
+Subject asked if C. O. had been able to get permission to have his lower plate repaired. C. O. told him he was to go to Dr. FEILNER between 1130 - 1230 Wednesday the 23rd of January for an examination. FEILNER would supply us with an estimate. C. O. would then get a decision on whether or not we could help Subject with this problem.
+
+C. O. dropped Subject off downtown.
+
+SECRET

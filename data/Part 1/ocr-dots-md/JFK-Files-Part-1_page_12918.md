@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_12918.png
+
+Convert to Markdown<table><thead><tr><th>X-REF.</th><th>FILE NUMBER</th><th>DC. LATE</th><th>JOL. FILED IN</th></tr></thead><tbody><tr><td>201-030084</td><td>L4-A-511:7</td><td>19. 001. 76</td><td>.01-0357s06</td></tr></tbody></table>
+
+THE ABOVE DOCUMENT(S) ARE CROSS-REFERENCED TO THE 201 FILE COPY (INDIVIDUAL LEFT MARGIN). FOR INFORMATION ON LOCATION OF THE FILE CONTAINING THE SECOND COPY DOCUMENT, CALL FILERS SECTION 4100.
+
+FILS P. 1 1-0310-e
+
+52 10/10 JCL 10/11 1945/74
+FILE 1 1-0310-e

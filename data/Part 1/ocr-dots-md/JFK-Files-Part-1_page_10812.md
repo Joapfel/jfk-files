@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_10812.png
+
+Convert to Markdown, Inglaterra, Fran-
+lapon.
+Jal se traduce en:
+eces para Cuba en
+nese.
+
+HAY ARROZ HI FRIJOLES EN ABANA
+
+yoes esenciales en
+eta popular de los
+m, los frijoles y el
+saparecido virtual-
+entros de distribu-
+tos en todo el pa-
+
+secion llegado de
+a los vuelos origi-
+dero, ha dicho que
+ante barrio de El
+spital cubana, han
+na panaderia fun-
+la calle Primelles.
+tán en Palatino,
+les y la calzada de
+a sido cerradas an-
+le harina y grasas
+
+aFIGO SE RESCUEGA A LA MESA
+un total de 138 personas fueron arregladas por un accidente de tránsito. No se han identificado yet a nadie entre las personas fallecidas. La Policía Nacional está realizando operaciones de rescate en la zona,while el Ministerio de Vivienda y Urbanismo informó que se incrementaron los trabajos de limpieza en las zonas afectadas. Los trabajos continuarán este miércoles con el objetivo de terminar las labotinas.

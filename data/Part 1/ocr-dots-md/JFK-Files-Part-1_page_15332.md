@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_15332.png
+
+Convert to Markdown# G. CHARACTERISTIC TRAITS IN HIS ACTIVITY.
+
+## 1. Irrational instability.
+
+As a child he gets thrown out of six schools for having done nonsense. (Ref.: B 7,12,13,14,15,17.)
+
+Nor does he finish the last, the photography and movie school, although he is about 21 years of age and should, thus, be able to think for himself. (B 18.)
+
+Instead, he volunteers into the French Foreign Legion, thus, going in war against the Germans. (C 1.)
+
+Later he volunteers for work in Germany, stays on jobs 3 to 4 months then flees the country (twice), and after a few days out of Germany, volunteers again for work there, all without any good, compelling reason. (C 18,22; 39,40.)
+
+The reasons for changing his jobs when in Germany or with the Germans, xxx and the situations in which he changes or contemplates to change his jobs, are unreasonable, if not unbelievable. (C 45, 77.)
+
+## 2. Lack of motivation.
+
+He thinks that during the school age it was the inferiority complex that made him do nonsense: he wanted to show up despite being small in growth and having a funny name,(B 7a, 16.)
+
+He is not doing anything for material gain, he has done none of his special activities for money, and he won't do this in the future. (E 22).
+
+He has no ideological motivation, neither patriotic, nor enough political feelings: he does not feel being a Georgian, he is not interested in the Georgian throne, he has partly forgotten the Georgian language, and he wanted to register as a Frenchman. (A 1; E 1.)
+
+Although he "hates the Russians in General", and even more the Soviet-Russians, this hatred was not strong enough to make him join the German-sponsored Georgian anti-Soviet unit.(C 4,8.)
+
+His longing for thrill and excitement, the single remaining motivation, seems to be limited to the more-or-less comfortable, physically easy activities, like forging of documents, and fooling officials with those documents, playing a wise man who acts according to his psychological tricks. (C 24,36,37,57; D 6.)

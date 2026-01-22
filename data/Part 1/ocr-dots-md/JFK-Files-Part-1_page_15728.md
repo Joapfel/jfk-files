@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_15728.png
+
+Convert to MarkdownSECRET
+
+No. C-73532
+
+MEMORANDUM FOR: Chief, AF/N/1 - Edward O. Kelles
+
+Operational Approval is hereby granted in the case of _AEASPIC_ ________________________, for the purpose specified in your request dated __3 Oct 1960__.
+
+In view of Subject's complicated personal background, he should be con-
+trolled and supervised as closely as possible under the circumstances
+in order to avoid embarrassment to the Agency.
+
+This Approval is based upon evaluation of information available to this Office, and is granted under authority contained in CSI and CSI-F 10-5.
+
+CI/OPERATIONAL APPROVAL AND SUPPORT DIVISION
+
+Date: 8 Nov 1960
+
+Distribution:
+* Orig. to Addressee
+* 1 to Files
+
+dea
+
+SECRET
+
+FORM 7-58 124 USE PREVIOUS EDITIONS.

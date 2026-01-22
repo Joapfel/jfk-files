@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_15296.png
+
+Convert to Markdown-61-
+
+BRIEF OF ACTIVITIES (Continued, 4)
+
+TIME: PLACE: ACTIVITIES:
+
+E. AFTER WW II (continued)
+
+1950 Paris Jean Adam was arrested; confessed and committed David. David was arrested on -
+1950 French-Spanish border.
+Paris David was sentenced for 7 years imprisonment.
+His wife demanded and got divorced from him.
+Nov. 50 She gave birth to their second child.
+Paris Prison de la Santée - David was held there for 2.5 years. Later he was held in:
+Fresnes
+Poissy
+Rion-
+ times
+Avignon.
+
+His sentence was reduced by 10% on the occasion of the election of the new President of the Re- public, and by three months for good conduct. He was released (he did not mentioned when). He has not seen his divorced wife since 1950. (He did not say anything about his activities after his release from the prison.)

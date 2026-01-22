@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_12488.png
+
+Convert to Markdown**SECRET**
+
+Chief of Station, Caracas
+
+XX
+
+Chief, Western Hemisphere Division
+Transmittal of CIFENC-4 U.S. Reentry Permits
+
+REFERENCE: HVCT-5177, 27 March 1971
+
+Transmitted by separate cover attachment are revalidated
+U.S. Reentry Permits for CIFENC-4 and his wife.
+
+Clement P. DO2018
+
+Attachment: U/S/C
+Two Reentry Permits
+
+Distribution:
+Orig. & 2 - COS, Caracas, w/att.
+
+HVCS-3468
+
+28 APR 1971
+
+<table><tr><td>GROUP I</td></tr><tr><td>Excluded from automatic<br/>downgrade and<br/>declassification</td></tr></table>
+
+S E C R I T
+
+201-300985
+
+1 - WH/3/V Chrono
+w/o att.
+WH/3/V:William H. Walker:jev (23 April 71) 1535
+1 - 201-300985
+w/o att.
+1 - WH/Registry
+w/o att.
+C/WH/3/V
+A. D. Wedemeyer
+
+AC/WIL/3
+
+Richard Conolly

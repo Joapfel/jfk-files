@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_15152.png
+
+Convert to MarkdownFrankfurt/Main
+31. August 1962
+
+An das
+Konsulat von Kolumbien
+Frankfurt am Main
+Am Hauptbahnhof 10
+
+Sehr geehrter Herr Konsult:
+
+Im Rahmen unseres Auswanderungsprogramms auch Fluechtlinge haben
+vir einige Personen, die an einer Auswanderung nach Kolumbien
+interessiert sind. Ich wäere Ihnen daher sehr zu Dank verpflichtet,
+wenn Sie mich uemer folgende Punkte so eingehend als moeglich in-
+formieren würden:
+
+1.) Vorgang zur Erwerbung eines Einreisevisums unter Beifuegung
+von Mustern saemtlicher erforderlicher Fragebogen.
+
+2.) Anzahl von Jahren, waehrend derer der Betreffende in Kolumbien
+ansaessig sein muss, um die kolumbianische Staatsbuergerschaft
+zu erwerben.
+
+3.) Hat Ihr Land irgendwelche Einschraenkungen in Hinsicht auf die
+Einwanderungsquote?
+
+4.) Welche Berufe sind gefragt?
+
+5.) Muss der Einwanderer ueber eine bestimmte Mindestsumme an
+Geldmitteln verfuegen, ehe das Einwanderungsvisum ausgestellt
+wird?
+
+6.) Anforderungen in Hinsicht auf den Gesundheitszustand des Ein-
+wanderers.
+
+Fuer Ihr freundliches Entgegenkommen in der Erteilung der erbetenen
+Auskuenfte danke ich Ihnen im voraus.
+
+Mit vorzuglicher Hochachtung
+
+A. G. Elnendorf
+Executive Director

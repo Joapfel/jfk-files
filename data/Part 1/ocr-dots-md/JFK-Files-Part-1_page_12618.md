@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_12618.png
+
+Convert to MarkdownAMCLEVE-15
+
+Subject continues to be a productive source of information on CIRASH and CIVISTA-5 activities. As soon as the results of his successful SQSWIRL are processed and he is removed from the hostile list, a project will be written.
+
+230.00

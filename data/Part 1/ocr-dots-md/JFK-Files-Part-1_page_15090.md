@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_15090.png
+
+Convert to Markdownmy qualifications as a car driver (I learned how to operate an automobile while working on electric detail on car repair at my M.T.S.). I can not recall the unit number where I went through the basic training. At that time the barracks were full of troops, basically infantry and artillery units which rotated quite frequently.
+
+E. SPECIALIZED COURSES: One month's driver's training as mentioned above.
+
+F. RESERVE STATUS:
+
+Summer 1939 Rejected from the active duty for medical reasons and given reserve status.
+
+Fall 1946 Discharged from the army and after submitting my travel and discharge papers to my Rayvoyenkomat was issued a new military booklet which contained an indication of my reserve status. I was never recalled for military training or duty of any kind after my final discharge from the service.
+
+G. CHRONOLOGY OF MILITARY SERVICE:
+
+In a group of other enlisted men, I was sent by train to the 2nd battery of the 253rd separate anti-aircraft artillery division (OZAD-ogne-zashchitnyy artilleriyskiy divizion). Commanding officer of the battery was Lt. VAKS. Commander of the vzvod upravleniya (administration platoon) of the division was Lt. ENDELADZE. Deputy divizion commander for political affairs was Capt. CHOKHA and politruk of my battery was Senior Lt. SAMARIN. Major Vlado (Vladimir) GURGENIDZE was the commanding officer of OZAD and in February 1943 he was also appointed the commander of the PVO (protivo-vozdushnaya oborona or anti-aircraft defense) in the town of Michurinsk. The headquarters of the division was located in Michurinsk, while the battery itself was stationed near the station TARASOVO near the settlement of Konskoye, 7 km. from Michurinsk and 6 km. from the six marshalling yards located at Kochetovka station. A higher HQ was in Tambov and was at first commanded by Col. CHERNYAVSKIY and later by Col. TSVETKOV, a demoted General.
+
+When I first arrived in Michurinsk, I was assigned as a truck driver with the division's supply platoon (khoz-vzvod

@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_13835.png
+
+Convert to Markdown117. Persons to whom access is restricted
+
+118. Property to which access is restricted.
+
+119. Information which could be used to predict the future of a person or organization.
+
+120. Information which could be used to predict the future of a person or organization.
+
+121. Access to target information.
+
+122. Access to target publication.
+
+123. Other recoverable control data
+
+Subject is from old commie family in Cuba but is not commie himself. Could be per- suaded to work in Mexico for democratic Cuba
+
+(LESMICK from Eloy Gutierrez Menonoy KRID 0436 11 Ap 64)
+
+CIC

@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_15083.png
+
+Convert to MarkdownBIOGRAPHY OF GEORG FRANK SANDERS
+
+1. **IDENTITY:**
+
+A. FULL NAME: Georg Frank SANDERS
+
+B. NAME AT BIRTH: Georg SANDERS, as featured in my birth certificate and all other Soviet documents. However, upon arrival in the West, I added to my first name the name of my father, Frank. While in the USSR when the patronymic was required, I was referred to as Georg Frankovich SANDERS.
+
+C. OTHER NAMES USED: I never used any other names but I was called by my mother by a Georgian diminutive 'Zhori', and by my Russian friends 'Zhora' or 'Zhorzh'.
+
+2. **BIRTH:**
+
+A. DATE OF BIRTH: 25 July 1919
+
+B. PLACE OF BIRTH: Tiflis, Georgia, USSR. Tiflis is the old Russian name. The Georgian as well as the present official name is Tbilisi.
+
+C. NATIONAL ORIGIN: Georgian
+
+3. **CITIZENSHIP:**
+
+A. AT BIRTH: Soviet. From 1917 (October Revolution in Russia) until 1921, Georgia was governed, from the downfall of Czarist regime, by Menshevists and partially occupied by Turk, German and British troops. Only in 1921 did the Soviet government in Georgia officially come to power. However, all persons born during this transition period were classified later as Soviet citizens.
+
+B. PRESENT CITIZENSHIP: Stateless
+
+4. RELIGION: Orthodox (pravoslavnyy). Being raised in a godless society, I practiced my religion to a very limited extent in my youth, and, due to existing conditions in USSR stopped going to the Church in my adult life.
+
+5. SOCIAL ORIGIN: Intelligentia (sluzhashchiy); my father was an engineer, and my mother - a white collar worker.

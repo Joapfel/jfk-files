@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_12809.png
+
+Convert to MarkdownVI. 12 Apr 73
+
+MEXICO
+
+L |
+
+GUERRILLA LEADER CABANAS CLAIMS KIDNAPING ROLE
+
+Paris APP in Spanish 0445 GMT 11 Apr 73 C--FOR OFFICIAL USE ONLY
+
+[Text] Acapulco, 10 Apr--Lucio Cabanas, top guerrilla leader of the country, appears as signatory of a press communique in which he claims responsibility for kidnaping a rich cattle breeder, Francisco Sanchez Lopez, on 7 March in Texpan, Guerrero State.
+
+The document was published today, Tuesday, by the newspapers LA VERDAD and EL GRAPICO issued in Acapulco with a picture of five masked men in uniforms and with Mexican Army guns surrounding someone who seems to be Sanchez Lopez.
+
+Lucio Cabanas added to his alleged signature the title of head of the executing peasant brigade of the Poor People's Party, in the name of which he accused Mexican society of being capitalist and of exploiting the people and said, that for this reason, this society must be eliminated.
+
+He added that the kidnaped cattle breeder, of whom nobody has heard since his disappearance, is a bourgeois who exploits the people whose land he has seized by means of usury and unlawful maneuvers.
+
+He called the government a bloody murderer of peasants and stated that, for this reason, the executing brigade applies the law of retaliation in kind and justly retaliates by means of executions and kidnapings as well as bank and company holdups. After urging peasants and students to join the movement, Lucio Cabanas said, in conclusion: Our basic method is that of arms.
+
+OPPOSITION PARTY LEADER CHARGES POLICE PERSECUTION
+
+Paris APP in Spanish 1055 GMT 11 Apr 73 C--FOR OFFICIAL USE ONLY
+
+[Text] Mexico City, 11 Apr--Jose de Jesus Martinez Gil, head of the local branch of the National Action Party (PAN-rightist opposition party), said Tuesday that PAN propaganda distributors are being persecuted by the police. According to Martinez Gil, the police in one electoral district removed and destroyed the propaganda printed by the opposition party and threatened to arrest those who were distributing the propaganda.
+
+Martinez Gil added that in other areas of the city the police arrested several PAN militants when they--using loudspeakers--were asking the people to vote for the PAN. Elections will be held in the country in July to choose all members of the Chamber of Deputies of the National Congress.
+
+BRIEFS
+
+NEW NAVAL COMMANDER--Mexico City, 5 Apr--The Navy Department's recently promulgated organic law has designated Cmdr Enrique Baltanas Hope chief of the four naval zones on the Pacific Coast. The new official will be in charge of the Guaymas, Mazatlan, Salina Cruz and Acapulco naval commands with headquarters in the port of Acapulco. A similar command has been established for the Gulf of Mexico with headquarters in the port of Veracruz but its commander has not been named. Baltanas, who was commander of the Tampico naval zone on the Atlantic Coast, has stated that with the establishment of the new post it will be possible for the first time to provide real protection for the country's maritime resources. [Havana PRELA in Spanish 1351 GMT 5 Apr 73 C--FOR OFFICIAL USE ONLY]

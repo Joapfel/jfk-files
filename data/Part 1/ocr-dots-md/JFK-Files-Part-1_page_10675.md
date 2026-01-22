@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_10675.png
+
+Convert to Markdown8 July 1966
+
+# MEMORANDUM
+
+SUBJECT: The Activities of Rolando MASFERRER Rojas
+
+1. Reference is made to a memorandum from this office, Subject: Plot to Overthrow Haitian Government, dated July 6, 1966, concerning a visit to a farm in the Atlanta, Georgia area by an informant who witnessed the loading of arms at the farm for shipment to temporary cache sites in homes in Miami and Coral Gables, Florida; the pickup of arms from these homes; their transfer to small boats already on trailers; and the offloading of latter at Miami River docking sites for shipment to Santo Domingo and ultimate sites on the Haitian Coast. While the information below may not be related to the incident reported in reference, the similarity of the two reports merits attention.
+
+2. A friend of Rolando MASFERRER Rojas told a usually reliable source of this office that on 27 June 1966 MASFERRER went to a house in Miami where 200 firearms were stored. He was accompanied by two American newsmen, one of whom was a photographer. The arms were removed from the premises by agents of MASFERRER whose faces were covered. The American photographer took photographs during the removal of the arms.
+
+3. The same usually reliable source of paragraph two reported in conjunction with the above that as of early July 1966, action groups such as the Second National Front of the Escambray, ALPHA-66, Commandos-L, and Los Pinos Nuevos, possessed only small quantities of arms. The only substantial amount of arms in the area was in the hands of MASFERRER.
+
+4. This information is being disseminated to the Federal Bureau of Investigation and the Department of State.
+
+WH/C/CICS/J. Vidal:kcj
+
+**Distribution:**
+
+* 2 - Department of State
+* 3 - FBI
+* 4 - WH/C/CICS
+* 1 - 201-42669
+
+Based On:
+
+AMBIDDY/1
+Raw Report, Miami
+28 June 1966

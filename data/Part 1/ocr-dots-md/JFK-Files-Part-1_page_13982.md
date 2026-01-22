@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_13982.png
+
+Convert to MarkdownBOSA and ESPINOSA, and the defection of AMENDALAY/1 all coming within the past six months.
+
+G. In mid-September the Cuban Delegation to the 24th UN General Assembly will start arriving in sections. The first arrives on 11 September, the second 15 September, and the last on the 18th. Not surprisingly, the name of AMENDALAY/1 (201-333971) is not among those coming. We doubt that he will be out for quite some time, if ever. The bulk of the Representatives, Alternato Representatives, and Advisors of the Delegation have been here before for General Assemblies. The distaff side will be well represented by Marta JIMENEZ Martinez, Emania Josofina ARUCA Alonso, and Maria do Santos FLORES Prida; the first two are well known to us from previous General Assemblies. Ramon OROZA Havoran, an Advisor of the Delegation, is well-known to us as a leading official of DGI Headquarters.
+
+SECRET
+RVRAT
+
+19-500

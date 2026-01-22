@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_15562.png
+
+Convert to Markdown14-0000
+
+CLASSIFIED MESSAGE
+
+<table><tr><td>ORIG:</td><td colspan="2">Dan Riesciur:nye</td></tr><tr><td>UNIT:</td><td>AF/W/2</td><td>1651</td></tr><tr><td>EXT:</td><td>4618</td><td></td></tr><tr><td>DATE:</td><td colspan="2">3 April 1961</td></tr><tr><td></td><td colspan="2" style="text-align:center; border-top: 1px solid black;">Lcst</td></tr></table>
+
+<table><tr><td colspan="2">SECRET</td></tr></table>
+
+<table><tr><td>OUTGOING ROUTINGS</td><td></td></tr><tr><td>1</td><td>Lg H</td><td>4</td></tr><tr><td>2</td><td>Lg M</td><td>5</td></tr><tr><td>3</td><td>C 70 Hw</td><td>6</td></tr></table>
+
+TO : LEOPOLDVILLE
+FROM : DIRECTOR
+CONF. : [REDACTED] AF 3
+INFO : COP, C/C4, C/CI, C/F1 2, C/EE 3, S/C 2
+
+<table><tbody><tr><td>PRIY LEOP</td><td>WROGUE RYBAT</td><td>CITE DIR</td><td>33071<br/>33071</td></tr><tr><td></td><td>REF: A. LEOP 1112 (IN 29376)<br/>B. MUNT 5132 (IN 28066)<br/>C. LEOP 1069 (IN 25116) PARA 3</td><td></td><td>par CSN 43-43</td></tr></tbody></table>
+
+1. OUR FIRST INTEREST IN A AIRFORCE IS TO SEE THAT IT FILLED BY AN NON-BELGIUM. ALL THINGS BEING POSSIBLE WE WOULD ALSO LIKE TO INTELLEKT PENETRATION AND STILL HOPE FOR THIS BUT IN VIEW PRIORITY WILL NOT INTERFERE DIRECT GERMANY CONTRIBUTION.
+
+2. SINCE SWANSON UNMITTING (ALTHO PROBABLY SUSPECTS KUGARK INTEREST) YOU WILL HAVE TO ENSURE VIA XI WINGUE/1 THAT YOU REPRESENTS IN DISCUSSIONS. ASSUME ROLE OF TPELIDE OFFICER ASSIGNED TO THIS TYPE DEVELOPMENTS ADEQUATE EXPLANATION TO SWANSON WHO REPORTEDLY DISCREET. HIS COMPANY CONFIRMED THAT A CABLE IN FRENCH HAD BEEN SENT W/1 ON 28 MARCH AND SWANSON PRESENTLY IN LEOP.
+
+3. W/1 NOT ORIGINALLY CAST FOR ROLE TYPE HE HAS ASSUMED. WE DEFINITELY NOT WILLING PERMIT HIM FREE WALK IN EUROPE MAKING CONTACTS A/O CONTRACTS AT WILL. INDEED UNLESS A CLOSE AND HARD HAND IS KEPT ON HIM HE MAY LIKELY END UP MORE OF A LIABILITY THAN AN AGENT. WE ARE THE HARD HEADED AND SMART AND REALIZE CO WILL HAVE TO BE ON HIS TOES AND EQUALLY HARDHEADED BUT HE MUST NOT BE ALLOWED TO GET OUT OF HAND AND OUR READING IS THAT HE WILL RESPECT THIS
+
+COORDINATING OFFICERS
+
+<table><tr><td>BElEASING OFFICER</td><td></td><td>AUTHENTICATING OFFICER</td><td></td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No. 05-11-72
+
+SECRET
+
+Lg H
+Lg M
+C 70 Hw
+
+<table><tr><td>ROUTING</td></tr><tr><td></td></tr><tr><td></td></tr><tr><td></td></tr></table>
+
+<table><tr><td>3 Apr 71</td></tr><tr><td>33071</td></tr></table>
+
+<table><tr><td>SECRET</td></tr></table>

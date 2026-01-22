@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_10828.png
+
+Convert to MarkdownCamaguey sigue a la cabaza de la rebeldía. Incendios, explosiones, interrupción de la luz eléctrica, destrucción de alcantarillas, letreros en las paredes, llamando a la rebelión. Y fusdamientos.
+
+Ahora el comunismo quiere llevar a miles de comunistas habaneros a Camaguey, con el pretexto de que la región no está debida ante poblada. Los camagueyanos los rechazaran. No les dirigiran la palabra. Le harán sentir su desprecio.
+
+El discruso de Castro con modifyó del 13 de Marzo, fue de desesperación: no hay técnicos. No hay disciplina. En alza la "delincuencia juvenil".
+
+Trono amenazador: clausuree la Universidad de La Habana. Declarare mayores de edad a los niños de 16 años. Fusilare a los rebeldes.
+
+Caligula en acción.
+
+En secreto, surgen las organizaciones de la resistencia en pequeñas células de gentes que desean acabar con tanto horror. En el exilio, todo el espectro político, desde la izquierda del Alfa 66 a la derecha sin nombre, pero con militancia, se aprestan a ayudar a los de adentro con armas y municiones.
+
+El pasado domingo asisti a una reunión en el corazon de Miami. Se entregó, pagada pesc a peso, una flamante ametralladora ca libre 30 a un grupo incursionista. Antes, le habían donado grãdas de mano. Y cada uno de los asistentes en edad militar, cuelga a la cabecera de su cama, un famoso AR-15 y mil balas. Se rompera el corojo.
+
+La medida de la confusión de animos y de temor al duermeque, lo da a una conversación de Haydeé Santamaría con una amiga íntima: "Armandito ha caído en un pesimismo negativo. No le ve salida a esto. Dice que la intérpreta de los comunistas viejos sobre los jóvenes oficiales, encantados en Rusia, podría causar un golpe interno".
+
+Esta señora y tu esposo,
+
+El medico Alberto Chomiat anda vestido de miliciano y con una pistola al cinto, metiendole miedo a todo el mundo por las calles de La Habana. Se desempeña como jefe de la clínica que hicieron los empleados de la antigua compañía de electricidad en Capdevila..
+
+Otro galeno malo, que también hace de las suyas, es Antonio (Toto) Acosta, quien, como Chomiat, fue por años, enemigo de Fidel Castro, pues ambos mititaban en el grupo de Mario Salabarria, quien se nalla en la prision y al borde de la muerte, debido a los maíos tratos a que se le somete.
+
+Hace un tiempo, el tenebroso Ramiro Valdez esperaba a un grupo de supuestos exiliados cubanos, que simularían salir desde Miami para una incursion contra la costa cubana. Se retirarían las milicias y las lanchas patrulleras. Se convendría un acuerdo con ellos para que infiltrasen la CIA. A cambio de eso, se les permitiría sacar algunos presos, a curios familiares en Estados Unidos se les pedía dinero a cambio. También se les darían los números que sabían en la lotería cubana para que ganasen unos pesos a los bolteros. Y desde luego, se les concedía una porcion en el cochinero negocio de las drogas, que viven de Cuba a E. U.
+
+Algo impidio el viaje. Pero todo estuvo listo. Y las autoridades norteamericanas estan en posesion de todos los detalles de esta canalizada.
+
+Hace un tiempo, vino a E.U. un ex-teniente castrista que se hizo notorio con sus palizas a los presos en La Cidadea. Aquí fue reclutado por la CIA y llevó a cabo, supuestamente, varias misiones a Cuba. Ahora anda frescamente por las calles de La Habana y se sabe que el régimen le regalo trenienda casa. Hadie sabe en la CIA, que le paso al ex-teniente, cuyo nombre nos reservamos, por sí acaso. Porque ocurren cosas demoniacas en el
+
+EMILIO MILIAN.

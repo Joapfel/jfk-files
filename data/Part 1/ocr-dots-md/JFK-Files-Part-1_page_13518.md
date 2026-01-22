@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_13518.png
+
+Convert to Markdown14-0000
+
+CLASSIFIED MESSAGE
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+TO, DIRECTOR
+
+FROM: SAN JOSE
+
+ACTION: DC/AM/SA 3
+
+INFO: DDP, C/MI, VR
+
+SECRET 000157
+
+DIR INFO WAVE NAMA CITE SJOS 6708
+
+DESCRIPTORS 6693 (p. 54 of 31)
+
+RYBAT - TYPIC AMWORLD
+
+IDEN- ZACHARY DE CASTER OF SMITH AND GILLIPPIE FISCAL EFS,
+JACKSONVILLE, FLORIDA.
+
+SECRET
+
+C/S COMMENT: DISSEMINATION APPLICABLE TO RYBAT TYPIC YOBITE AMWORLD CABLES.
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+Copy No.

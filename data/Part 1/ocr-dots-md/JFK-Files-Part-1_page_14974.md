@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_14974.png
+
+Convert to MarkdownSubject is bored by the quiet life in Cap. His wife and children are not with him, and he has not been able to make contact with them. AEPADDLE said his wife may have divorced him. Subject is now trying to set up an advertising agency, and is also working on inventions and patents. Subject told AEPADDLE that he would like to work for American intelligence, and that he had unsuccessfully tried to reach US Naval Intelligence in 1957 through the American Embassy in Paris. AEPADDLE said that Subject has always been interested in this kind of work, and that he has imagination and initiative, and likes action. AEPADDLE feels that Subject's motivation is that he wants to live down his prison sentence and redeem himself as a man. He wants to acquire citizenship where he can feel he belongs (preferably US citizenship). Money is secondary with him. AEPA DDLE says that Subject needs to have strict instructions and guidance in order not to go overboard and exceed the proper limits.
+
+AEPADDLE requested and received from Subject two copies of Subject's name written backward. AEPADDLE explained that this would serve as bonus fides for anyone who might want to contact Subject in the future.
+
+Subject knows Georgian (AEPADDLE is not sure that he reads or writes well), French, German and a little English. AEPADDLE described him as sensitive, and wanting respect. Subject has no present contact with his family in the USA. Subject has written a detective novel, but it has not been published. He has also invented a calendar that shows the day of the week for any given date (a slide rule type gadget).
+
+## Subject's family
+
+Father: Simon Mother: Marie (deceased)
+Sister: Helene Brother: Artchil
+
+Subject is now living with his brother Artchil, who is about 41 years old. The address is 1 bis r. de Bellvue, Cap (Hautes Alpes), Phone 1082. Artchil was recently divorced from the daughter of Noe Jordania (late President of Georgian Republic in early 1920's). His two daughters live with him. His former

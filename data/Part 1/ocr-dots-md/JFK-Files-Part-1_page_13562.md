@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_13562.png
+
+Convert to Markdown14-00000
+
+CLASSIFIED MESSAGE
+
+<table><tr><td>DATE</td><td>081<br/>29 MAR 62</td><td>JO</td><td></td><td>SECRET</td></tr><tr><td colspan="5">TO DIRECTOR</td></tr><tr><td colspan="5">FROM MEXICO CITY</td></tr><tr><td>ACTION</td><td>IV 2</td><td></td><td></td><td></td></tr><tr><td colspan="5">INFO DOP, COP, CA 2, CA/FN/A, CA/PAG, CA/PROP, CI/IC 2,<br/>FI, FI/INT 6, FT/D, TIF 3, TCO 4, TC/IC 6, AD/C 2, S/C 2</td></tr></table>
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>3</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+MAR 29 0507Z 62
+
+ROUTINE
+
+IN 10495
+
+TDCS-3/506,340
+
+DIR GUAT INFO PACY LANT CITE MEXI 0408
+INTEL
+
+SUPDATA LINLUCK FROM VICTOR MANUEL GUTIERREZ. RE RARA TWO PGT SENT CONGRATULATIONS TO LINLUCK FOR HIS WORK AND OFFICIALLY CONFIRMED FACT HE SHOULD CONTINUE HANDLE EXCLUSIVELY PURCHASE WEAPONS AND MILITARY EQUIPMENT BUT TO BE VERY CAREFUL ABOUT HIS PERSONAL SECURITY. FILED 290005Z REPORT CLASS SECRET NOFORN CONTINUED CONTROL (IMM 6283) GUATEMALA/MEXICO SUBJECT VIEWS OF THE PGT ON THE POLITICAL SITUATION IN GUATEMALA DATED MARCH 62 PADA MEXICO, MEXICO CITY 21 MARCH 62 APR 2 PERSON (H) WITH GOOD CONNECTIONS IN GUATEMALAN EXILE CIRCLES IN MEXICO.
+
+INDEX
+
+IW COMMENT,
+
+NO SEPARATE SHEET DISTRIBUTION IS BEING MADE OF THIS TDCS.
+
+<table><tr><td rowspan="2">w/W/H/C<br/>W/W/3/4</td><td>1</td><td></td><td></td><td>TDCS PRECEDENCE</td></tr><tr><td colspan="4"></td><td>ROUTINE PRIORITY</td></tr><tr><td>RELEASEING IWO<br/>Jalita Higuera-Garcia/LL</td><td>DATE DISTRIBUTED:<br/>MAR 29 1963 6:00</td><td>BASED ON:<br/>LINLUCK</td><td>HIAISON</td><td>HM 6283<br/>LINEK</td></tr></table>
+
+<table><tr><td>SECRET</td></tr></table>
+
+COPY NO
+
+CONJECTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED. 129 March 6.

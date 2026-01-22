@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_15156.png
+
+Convert to MarkdownFrankfurt/Main
+31. August 1962
+
+An das
+Brasilianische Konsulat
+Frankfurt am Main
+Hochstrasse 53
+
+Sehr geehrter Herr Konsul!
+
+Im Rahmen unseres Auswanderungsprogramms fuer Fluechtlinge haben wir einige Personen, die an einer Auswanderung nach Brasilien interessiert sind. Ich wouldere Ihnen daher sehr zu Dank verpflichtet, wenn Sie mich ueber folgende Punkte so eingehehd als moglich informieren wuerden:
+
+1.) Vorgang zur Ergerbung eines Freisevisums unter Bei- fügung von Mustern saemlicher erforderlicher Frage- bogen.
+
+2.) Anzahl von Jahren, wahrend derer der Betreffende in Brasilien ansaessig sein muss, um die brasilianische Staatsbuergerschaft zu erwerben.
+
+3.) Hat Ihr Land irgendwelche Einschraenkungen in Hinsicht auf die Einwanderungsquote?
+
+4.) welche Berufe sind gefragt?
+
+5.) Muss der Einwanderr ueber eine bestimmte Mindestsumme an Geldmitteln verfuegen, ehe das Einwanderungsvisum ausgestellt werden kann?
+
+6.) Anforderungen in Hinsicht auf den Gesundheitszustand des Einwanderers.
+
+Fuer Ihr freudliches Entgegenkommen in der Erteilung der erbetenen Auskuenfte danke ich Ihnen im vorste.
+
+Mit vorsueglicher Hochachtung
+
+A. O. Elnendorf
+Executive Director

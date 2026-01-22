@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_10420.png
+
+Convert to Markdown14-0000
+
+# SEC-1 17 July.1968
+
+Subject: LIRING/4 Report of Rowton Affiliation with OFIRM.
+
+1. Rowton met with LIRING/4 at the Duca D'Este tea shop from 1200 until about 1245 on 15/7/68. LIRING/4 stated that she had again spent the week-end in Cuernavaca with Orlando Suarez, staying at the Casino de la Seiva with her daughter in a room of an artist friend of Suarez (who had gone to Mexico City for the week-end). She added that she had been to visit the CIDCC (Centro Internacional de Documentación) again with Orlando Suarez and was impressed by its extensive library as well as the loftist orientation of its staff. She recalled the name of the director as Larry Green and one other northamerican McGregor (fro) from the University of Puebla. She said that she learned in the course of conversation that a group of the students (approximately ten or十二) had been invited to visit the government there (LIRING/4 said that she did not believe that the PERUEME consulate was as yet involved). LIRING/4 also commented that Orlando Suarez had been invited to give a lecture on PERUEME culture (for a fee of 200 pesos) although as yet the date had not been determined.
+
+2. LIRING/4 then stated that she had again visited the home of Arturo Serrano of the Mexican CP and that on this occasion Serrano's wife had told her that he had succeeded in locating Rodolfo Reyes and had told him about the current financial plight of LIRING/4 and urged him to help her if he could. Serrano's wife continued that Reyes then remarked: "I won't help her until I find out on what side LIRING/3 is. If he's with 'El Griege' I won't help since the G-2 of LIRING told me that they suspect him of being with OFIRM, although they have no proof ("dates"). They also think he's an arms smuggler." Serrano's wife added that Reyes concluded with the statement that if it turns out that LIRING/3 acted on his own, then he would personally go to the LIRING Chief and have him request the President of Mexico to intervene.
+
+3. LIRING/4 stated that although these comments of Rodolfo Reyes were apparently not taken seriously by Serrano or his wife (Serrano at this same occasion offered again to pass bribe money to the CP Guatemala via the CP Mexico), she herself was badly shaken and angry with Reyes whom she described as a homosexual gossip, worse than a woman. She stated that she intended to tell LIRING/9 that Rodolfo Reyes owed her money for the use of her telephone to call the BRUMEN capital several months previously and had never paid her howton agreed that this would not serve to collect the badly needed money but also dispel any notion Reyes might have that Rowton and the telephone call. H.D. HOWTON
+
+*Alta, next Filed-in Tran JLLCH 207-50733*
+
+*SECT-1 17 July.1968*
+
+*Subject: LIRING/4 Report of Rowton Affiliation with OFIRM.*
+
+1. Rowton met with LIRING/4 at the Duca D'Este tea shop from 1200 until about 1245 on 15/7/68. LIRING/4 stated that she had again spent the week-end in Cuernavaca with Orlando Suarez, staying at the Casino de la Seiva with her daughter in a room of an artist friend of Suarez (who had gone to Mexico City for the week-end). She added that she had been to visit the CIDCC (Centro Internacional de Documentación) again with Orlando Suarez and was impressed by its extensive library as well as the loftist orientation of its staff. She recalled the name of the director as Larry Green and one other northamerican McGregor (fro) from the University of Puebla. She said that she learned in the course of conversation that a group of the students (approximately ten or十二) had been invited to visit the government there (LIRING/4 said that she did not believe that the PERUEME consulate was as yet involved). LIRING/4 also commented that Orlando Suarez had been invited to give a lecture on PERUEME culture (for a fee of 200 pesos) although as yet the date had not been determined.
+
+2. LIRING/4 then stated that she had again visited the home of Arturo Serrano of the Mexican CP and that on this occasion Serrano's wife

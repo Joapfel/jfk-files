@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_13922.png
+
+Convert to Markdown20:47
+
+ALTOQUÉNCALE (CICCO), de la embajada de Cuba, se comunica con F. L. A'KING y le preguntan tué se le ofrece. TELEMA reapon de que le urge mucho hablar con ROGELIO RODRIGUEZ o con RA- CON CASA CUENCA hoy mismo en la noche y a la hora que sea, pues deje hacerlo antes de salir de Mexico mañana, ya que a las 08:00 hs. tiene que estar en el Aeropuerto. NICO manifiesta que ha estudo tratando de comunicarse con ROGELIO y con CUEÑCA inútilmente, prometiendo que en cuanto localice a alguno de los dos le pasará el recado.
+
+18 Feb 64
+
+9:34.
+
+Entra al 10:00. - MORALES presenta por RODRIGuez y PORRIN dice que debe ser atendido a loorny y éste lo pide como to-davía no t. prensa para él; presenta si está en el aeropuerto una respuesta que dice uno af. Que no ha madurado - mañana 11:00 h. MORALES acepta.- 241.-
+
+20 Feb 64
+
+154.
+
+Entonces 11:45. - HF (acento extranjero) solicita. Hablar con RODRIGUEZ con quien teó ra ciza. Jo EN elas -- de pedir! que se espere un momento, Infor que tá; pregunta si él está en algún hotel v HF dice .. no... -- vive en el departamento de Artículo 123 núm. 1. .. que -- vuelva a llamar. HF acepta.- 190.--

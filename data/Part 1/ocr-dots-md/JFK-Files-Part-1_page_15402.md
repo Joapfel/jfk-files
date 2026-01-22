@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_15402.png
+
+Convert to MarkdownSECRET
+
+<table>
+  <tr>
+    <td colspan="2">Executive Registry</td>
+  </tr>
+  <tr>
+    <td>lcy 9/11/64</td>
+    <td></td>
+  </tr>
+</table>
+
+ Capt. Eduardo J. Whitehouse
+ 446 N.E. 39th Street
+ Miami, Florida
+
+Dear Captain Whitehouse:
+
+Thank you for your views and observations contained in your letter of 22 October 1964. Your interest is appreciated.
+
+Contrary to the information on which you base your desire to discuss Cuban matters, be advised that this agency is not rendering help to Cuban organizations. Thus it is believed that a discussion of this topic would not be of benefit to either of us.
+
+Thank you again for your interest.
+
+Harold R. Padgett
+Assistant to the Director
+
+DDP/WH/SA/MOB/PROP/JBOtt:ems (28 October 1964)
+
+Distribution:
+
+Crig & 1 - Addressee      1 - WH/SA/ESEC
+2 - ER                 1 - OPS/3/AB/SOD
+1 - WH/Registry        1 - WH/SA/MOB/PROP
+
+MICROFICHE
+
+SECRET
+
+<table>
+   <tr>
+    <td>
+     Executive Registry
+    </td>
+   </tr>
+   <tr>
+    <td>
+     lcy 9/11/64
+    </td>
+   </tr>
+  </table>

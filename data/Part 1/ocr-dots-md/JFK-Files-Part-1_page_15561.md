@@ -1,0 +1,75 @@
+# JFK-Files-Part-1_page_15561.png
+
+Convert to Markdown14-00000
+
+<table>
+   <tr>
+    <td colspan="2">CLASSIFIED MESSAGE</td>
+    <td rowspan="3">
+     ROUTING
+     <table>
+      <tr>
+       <td>1</td>
+       <td>WILLY</td>
+       <td>4</td>
+      </tr>
+      <tr>
+       <td>2</td>
+       <td>Sky</td>
+       <td>5</td>
+      </tr>
+      <tr>
+       <td>3</td>
+       <td>Curtis</td>
+       <td>6</td>
+      </tr>
+     </table>
+    </td>
+   </tr>
+   <tr>
+    <td>DATE : 3 APR 61</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td colspan="2">TO : DIRECTOR</td>
+   </tr>
+   <tr>
+    <td colspan="2">FROM : LEOPOLDVILLE</td>
+   </tr>
+   <tr>
+    <td colspan="2">ACTION : C/AF 3 (TEMPO COPY SLOTTED AF AT 1940 3 APR) (MR. NIESCIUR, AF, NOTIFIED AT 1935 3 APR)</td>
+   </tr>
+   <tr>
+    <td>INS : *COP, S/C 2</td>
+    <td>PRIORITY</td>
+   </tr>
+   <tr>
+    <td colspan="2">IN 29880</td>
+   </tr>
+  </table>
+
+PRITY DIR CITE LEOP 1120 (SETTELHEIM ACTING)
+
+WIROGUE RY BAT
+
+REF A. LEOP 1112 CDH29376
+
+3. DIR 32696 (Out 90734) **
+
+per Csn 45-40
+
+C/S COMMENT: *DISSEMINATION APPLICABLE TO RYBAT YONECTAR CABLES.
+
+**SWANSON UNWITTING KUBARK RELATIONSHIP THIS CASE BUT HAS FULL SECURITY CLEARANCE AND HAS BEEN CONTACT KUBARK GERMANY IN PAST.
+
+1. WIROGUE RECEIVED CABLE FROM SWANSON LATE 2 APR GIVING ETA 3 APR. CABLE STATES SWANSON STAYING BRAZ SINCE NO VISA LEOP.
+
+WIROGUE REQUESTS STATION REP BE PRESENT AT MEETINGS BUT STATION NEEDS KNOW DEGREE SWANSON WITTING AND COVER FOR STATION REP BE PRESENT. IF SWANSON UNWITTING THIS COULD BLOW OP. PLAN WIROGUE CONTACT SWANSON 4 APR BRAZ.
+
+2. FULLY RECOGNIZE DANGERS WIROGUE COVER IN GERMANY BUT WITH UPHILL REPS APPEARING IN LEOP WIROGUE AND COVER WILL BE PUT TO TEST ANYWAY. WISH EMPHASIZE WIROGUE DIRECTED GO EUROPE BY CAF AND STATION FEELS IT NECESSARY WIROGUE OBEY FOR PROPER DEVELOPMENT OPERATIONS.
+
+SECRET
+
+(END OF MESSAGE)
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_14580.png
+
+Convert to Markdown<table>
+    <tbody>
+        <tr>
+            <td colspan="3">CONTINUATION OF<br>DISPATCH</td>
+            <td>OSM-11726</td>
+        </tr>
+        <tr>
+            <td>e.</td>
+            <td colspan="3">AMAUTO/1's desire to affiliate himself with an exercise group (see paragraph 26b of the attachment) might offer a possibility to put an access agent next to him. The circumstance would be relatively normal, not calculated to arouse his suspicions. The use of someone of WOLADY nationality might, in fact, help to allay what is evidently a tendency AMAUTO/1 has of suspecting provocation.</td>
+        </tr>
+        <tr>
+            <td>f.</td>
+            <td colspan="3">Headquarters would greatly appreciate the opportunity of examining AMAUTO/1's X-rays. In this connection, we would like to see an investigation of the physician used on this matter (see paragraphs 31 and 32 of the attachment).</td>
+        </tr>
+        <tr>
+            <td>g.</td>
+            <td colspan="3">We would like to have Madrid's assessment of the diplomat mentioned in paragraph 8 of the attachment.</td>
+        </tr>
+        <tr>
+            <td colspan="4">4. At the same time, we would appreciate it if Miami could follow down any of the leads stemming from AMAUTO/1's time in WOLADY. We are trying to trace his entrance back in the 1950's and as much of his time here as possible, and perhaps Miami Station can develop leads on the persons mentioned in paragraph 24 of the attachment hereto, especially in reference to the brother left with the house. (Note Below.)</td>
+        </tr>
+        <tr>
+            <td colspan="4">
+                Michael V. SLATINSKI
+                <br><br>
+                I would appreciate your giving personal attention to this matter, because it is rare that we have such a detailed assessment as we have in this case.
+            </td>
+        </tr>
+        <tr>
+            <td colspan="4">
+                Edward D. SABETAY
+            </td>
+        </tr>
+        <tr>
+            <td>CLASSIFICATION</td>
+            <td></td>
+            <td>[Signature]</td>
+            <td>PAGE NO.</td>
+        </tr>
+        <tr>
+            <td>SECRET</td>
+            <td></td>
+            <td>☐ CONTINUED</td>
+            <td>3.</td>
+        </tr>
+    </tbody>
+</table>

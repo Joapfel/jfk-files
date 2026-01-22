@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_15729.png
+
+Convert to MarkdownSECRET
+
+SR/DOB/60-2075
+
+19 October 1960
+
+MEMORANDUM FOR: Chief, WH/2B
+
+ATTENTION: Mrs. Murray
+
+SUBJECT: Transfer of Agent Accommodation Mailing Address responsibility from SR/DOB to Africa Division
+
+REFERENCE: A. DIR 45223 (OUT 98152) B. SAOP 1036 (IN 32746) C. SAOP 702 (IN 3009)
+
+1. Subject to your concurrence, responsibility for the accommodation mailing address for SR/DOB agent AEASPIC (David de Panaskhet), which was arranged for by your office, will be transferred to the Africa Division which is now utilizing this agent.
+
+2. The agent accommodation mailing address in Brazil is as follows:
+
+Eduardo Cardo
+Cama Postal 11744 (Lapa)
+Sao Paulo, Brazil
+
+3. The Africa Division case officer responsible for this agent is Dan Nesciur, 2110 I Building, extension 8284.
+
+4. This office extends its appreciation for the expeditions manner in which you have arranged for and maintained this accommodation address.
+
+5. For any further information regarding this please contact Dan Nesciur, extension 8284 or Perry Crookham, extension 8331.
+
+MICHAEL RAE
+Chief, SR/DOB
+
+201-233477

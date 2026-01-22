@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_14408.png
+
+Convert to MarkdownSECRET
+
+-4-
+
+a. RUIZ Perez, Orestes Guillermo:
+
+Trip Madrid-Havana, 20 February 1970; Cuban passport
+PP-D/67/890. Seat No. 24. Source: CCA passenger
+list.
+
+b. VECIANA Lopez, Nilda:
+
+Trip Madrid-Havana, 30 January 1970; Cuban passport
+PP-D/67/891. Seat No. 25. Source: IBERIA passenger
+list.

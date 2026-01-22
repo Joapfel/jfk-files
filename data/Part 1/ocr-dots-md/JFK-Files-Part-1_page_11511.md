@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_11511.png
+
+Convert to Markdown14-00009
+
+ATT TO H66A - 9803
+
+NOT SUITABLE FOR SPECIFICATION
+
+SECRET
+
+Wurst:!
+
+HG6A-9803
+Chief, W-4 Division
+
+COPL
+201-798301

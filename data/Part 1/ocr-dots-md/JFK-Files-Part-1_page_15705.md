@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_15705.png
+
+Convert to MarkdownSECRET
+
+PROJECT OUTLINE
+
+CRYPTOMYM - WIROGUR/1
+
+## 1. Area of Operations and Purpose
+
+Republic of Congo (former Belgium Congo) - engage in operational support activity.
+
+## 2. Objectives
+
+A. To provide a long term, deep cover asset in the Republic of Congo and adjacent areas.
+
+B. To establish a principle agent in the Republic of Congo, in order to build a covert net in support of operational activities.
+
+C. To provide an asset for utility support for KUBARK personnel under official cover.
+
+These objectives are in line with the RMD.
+
+## 3. Personnel
+
+### A. Pertinent Biographical Information:
+
+Pseudonym - 
+Place of birth - Gori, Georgia, USSR
+Date of birth - 12 July 1918
+Sex - Male
+Race - Caucasian
+Religion - none
+Marital status - Divorced (wife and 2 children - one son and one daughter)
+Citizenship - Stateless
+
+### Education:
+
+- **1922-24 Paris, Notre Dame, uncomp., change of family address**
+- **1925 Paris, Lycee Montagne, uncomp., change of family address**
+- **1925 Paris, Ecole Commile, uncomp., change of family address**
+- **1926 Viroflex, Lycee Hoche, uncomp., expelled for pranks**
+- **1926 Paris, Ecole Commile, uncomp., change of address**
+- **1931 Paris-Vanves, Ecole Michelet, 6 mo comp, expelled for insubordination**
+
+SECRET

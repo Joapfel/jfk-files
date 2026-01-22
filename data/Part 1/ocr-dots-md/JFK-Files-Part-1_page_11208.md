@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_11208.png
+
+Convert to MarkdownMEMORANDUM
+
+REPUBLICA DE CUBA
+CONSEJO NACIONAL DE CULTURA
+
+PECHA Noviembre 24 de 1965 AÑO DE LA AGRICULTURA.
+
+DE: ASUNTO
+
+El relación con el Proyecto ORIENTE-OCCIDENTE, de la UNESCO, la Dirección General de Cultura del Consejo Nacional de Cultura, solará que esta Dirección me ha side invitada a participar en este proyecto. Que sepamos, la datación activa relativa a la misma fué el cicle organizado por la Comisión Nacional Cubana de la UNESCO, en la Biblioteca Nacional sobre diversas aspectos de las culturas orientales, incluyendo una conferencia ilustrada sobre la ética del Oriente por Edgar Martín. Toda la datación es este respectoخر en poder de la Comisión Nacional Cubana de la UNESCO; Los asociados dirigidos por el directo chine Li Te-lun y otras actividades relacionadas con la cultura de países orientales, se fueran en su oportunidad associatedes como parte del Proyecto Oriente-Occidente.
+
+preguntar si también debemos reflejar
+la divulgación de la cultura cubana en esos
+países de Oriente.

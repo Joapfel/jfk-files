@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_15868.png
+
+Convert to Markdown14-00000
+
+<table><tr><td>CLASSIFIED HESSAGE</td></tr></table>
+
+TOTAL COPIES: 32
+
+REPRODUCTION PROHIBITED
+
+<table><tbody><tr><td rowspan="5">FROM<br/>FRANKFURT</td><td colspan="2">84 SECRET</td><td>1</td><td>5</td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td>2</td><td>6</td></tr><tr><td>ACTION</td><td colspan="3">ADVANCE COPY<br/>(☐ ISSUED &amp; ☐ SLotted &amp; ☐ TURNO)</td></tr><tr><td></td><td></td><td>TO: UNIT</td><td>TIME</td><td>BY</td></tr><tr><td>INFO<br/>VR, FILE, WE'S, C./OFS CMC, Fl/D4, FI, CE,<br/>AF4, TSDG</td><td colspan="3"></td><td></td></tr></tbody></table>
+
+SECRET 271658Z
+
+BRUS INFO DIR GMNY BONN CITE FRAN 2453
+CABEZONE HARVARD WIROGUE
+
+REF: A. DIR 65345
+B. FRAN 3129 (IN 22167)
+
+27 Nov 64 in 31538
+
+1. WISH POINT OUT SINCE NEITHER CATIDE NOR CAVATA AWARE
+   SUFJ REFS' TRUE BACKGROUND OR PAST KUBARK CONNECTIONS, REVELATION
+   THIS TO THEM BY NIGALES COULD PROVE EMBARRASSING AND POSSIBLY
+   HARM MKTOPAZ ODISEX CHANNEL FOR OBTAINING POLITICAL RECOGNITIONS
+   FROM FEDREP.
+
+2. IN VIEW ABOVE REQUEST BRUS, IN EVENT APPROACHED, ADVISE
+   FRAN PRIOR ANSWERING NIGALES SO THAT COORDINATED REPLY MAY BE
+   FORMULATED.
+
+SECRET
+
+<table><tr><td>SECRET</td></tr></table>

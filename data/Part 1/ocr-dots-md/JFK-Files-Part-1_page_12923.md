@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_12923.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+It will be retained in the files of the Organization for its future use or for reference by me at any time in the future that I may be requested or ordered to testify or disclose any of the matters included within the scope of this oath.
+
+IN WITNESS WHEREOF, I have set my hand and seal this 13th day of February 1976,
+
+(SEAL)
+
+Witnessed by me this 13th day of February, 1976
+at Caracas, Venezuela.
+
+Moyle C. Theriault
+
+SECRET
+
+S-1-30095-

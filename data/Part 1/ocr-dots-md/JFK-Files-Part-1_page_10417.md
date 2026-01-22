@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_10417.png
+
+Convert to Markdown9 July, 1968
+
+Subject: LIRING/4 Report of Activities.
+
+Iden A is Orlando Suarez, Director de Cultura.
+
+Iden B is Arturo Serrano.
+
+Iden C is Mercedes Morales.
+
+Wallace B. Newton
+
+SECRET..

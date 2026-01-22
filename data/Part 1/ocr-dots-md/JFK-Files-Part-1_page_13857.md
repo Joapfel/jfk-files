@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_13857.png
+
+Convert to Markdownencargo a "nuestros superiores, van a hablar ese asunto". -
+RODRIGUEZ pregunta si tiene que hablar el Embajador HERNANDEZ
+ARMAS con el de ól y HF dice que sí, porque el de HF lo sabe
+y lo único que falta es que "ellos" hablen y traten eso para
+ver si están de acuerdo ó buscarán algunas posibilidades y-
+no habrá ningún problema.
+RODRIGUEZ que entonces se lo-
+dirá al Embajador. HF acepta y agrega que ayer habló -
+"con nuestro Consul" cuando visitaron el Instituto y dijo -
+que nohabría ningún problema y que se podría arreglar nor--
+malmente, ya que "regularmente se puede traspasar todo den-
+tro a las personas que están aquí como nosotros,para explorar
+la venta libre entonces es necesario esperar esos tres años".
+RODRIGUEZ repite que se lo transmitirá al Embajador para --
+que éste llame al de HF y se pongan de acuerdo. HF está-
+de acuerdo y ROGELIO dá las gracias por todo.- 066.-

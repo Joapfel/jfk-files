@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_12471.png
+
+Convert to Markdown14-00000
+
+<table><thead><tr><td>CROSS REFERENCE TO</td><td>DISPATCH SYMBOL AND NUMBER</td><td>DATE</td></tr></thead><tbody><tr><td>B-201-771746</td><td>HVCW-9612</td><td>8 DEC 1971<br>typed 2 December 1971</td></tr><tr><td></td><td>CLASSIFICATION</td><td>MARS FILE NUMBER</td></tr><tr><td></td><td>SECRET</td><td>201-300985<br>201-771746</td></tr><tr><td rowspan="5">2 - IP<br>1 - Chrono</td><td colspan="2">ORIGINATING</td></tr><tr><td>OFFICE</td><td>-</td><td>OFFICER</td><td>-</td><td>LARRY H. DICKS</td><td>ON</td></tr><tr><td colspan="6">WH/3/Venezuela:Eric Isenstead:kmg</td></tr><tr><td colspan="6">COORDINATING</td></tr><tr><td>OFFICE SYMBOL</td><td>DATE</td><td>OFFICER &amp; NAME</td><td></td><td></td><td></td></tr><tr><td>AF Pw</td><td></td><td>C/WH/3/V</td><td>2 Dec</td><td>E. Philips Jr</td><td></td></tr><tr><td>AD N</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>HK</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>P8</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>SH A</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>DJS 1670</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>PT</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>UOH/3/U</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="4"></td><td>RELEASING</td><td></td></tr><tr><td>OFFICE SYMBOL</td><td>DATE</td><td>OFFICER &amp; NAME</td><td></td><td></td><td></td></tr><tr><td>AC/WH/3</td><td>2 DEC 1971</td><td>RICHARD L. CONELLY</td><td></td><td></td><td></td></tr></tbody></table>
+
+CS COPY
+
+DISPATCH

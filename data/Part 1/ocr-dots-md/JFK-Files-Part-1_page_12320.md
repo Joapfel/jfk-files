@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_12320.png
+
+Convert to MarkdownSECRET 15170EZ MAR 73 STAFF
+
+CITE MADRID (8645)
+
+TO: CARACAS INFO DIRECTOR, PARIS, ROME, WH/MIAMI, BUENOS AIRES,
+
+BOGOTA.
+
+RYBAT PLMHABYSS
+
+REF: A. PARIS 37222 (1859406)
+B. CARACAS 21422 (1859671)
+
+1. PLS SEE BNDD MADRID 1339 FOR DETAILS WKSCARLET/3'S MOVEMENTS
+   MADRID. NO UNUSUAL ACTIONS NOTED.
+
+2. FILE: 201-300985. E2 IMPDET
+
+SECRET
+
+* NO RECORD IN CABLE SECRETARIAT
+
+CS COPY
+
+SECRET
+
+15 MAR 1973
+
+<table><tr><td>423K</td></tr><tr><td>A3 XJ</td></tr><tr><td>XJ</td></tr><tr><td>PS</td></tr><tr><td>31</td></tr><tr><td>396 XPD</td></tr><tr><td>31</td></tr><tr><td>NN/3/V</td></tr></table>

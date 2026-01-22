@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_12943.png
+
+Convert to MarkdownRETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+TO : Chief, Cover Branch
+
+17 Sept 1965
+
+TEU : Chief, Maritime Training Section
+Chief, Training Branch
+
+LT-1033
+
+FROM : TEG/TRADERS
+
+Distribution
+
+2 - W/C /S/ v/att.
+(2) - TEG (SOL'S) v/att.
+
+SUBJECT: Action and Status Cover for
+Luis FOSADA Carriles and
+Alberto de Jesus ALBERTO Garcia
+
+1 - TEG Chrono v/o att.
+1 - PEG Chrono v/o att.
+
+ACTION REQUIRED: Provision cover
+
+1. Request that action and status cover of Tri-State Engineering be given to Luis FOSADA Carriles and Alberto de Jesus ALBERTO Garcia. Both Subjects have recently been assigned to the Maritime Training Issue. FOSADA is presently under no cover arrangement. ALBERTO was given cover of Radio & Electronics Equipment Company, Inc., as of 14 June 1965.
+
+2. Biographic data on each Subject is attached. Please advise effective date of cover.

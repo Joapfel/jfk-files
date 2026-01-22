@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_13974.png
+
+Convert to MarkdownINFORMATION OBTAINED FROM SOURCE "CUBAN" ON 21 OCTOBER, 1969
+
+CUBAN UN MISSION PERSONNELS
+
+1. Pedro Luis PINERO Elvin, Third Secretary. ELCIN stated that PINERO continues to spend much of his time with Lomania. Josefina ARUCA Alonso of the Cuban UNGA Delegation. ELCIN said that PINERO seems to have the approval of the DGI Center here for his modish dress and his excursions to Greenwich Village, et al. ELCIN assumed that PINERO is being used by the DGI Center to romm around town at night meeting new people in the hopes of developing U.S. contacts. Apparently PINERO's garb at times approaches that of a hippie.
+
+2. Pablo DRAKE Caparro, Attache-designate. DRAKE is scheduled to arrive here in late October to replace Market AGUIZON Batista, Attache and DSE code clerk. ELCIN did not recognize DRAKE's name and could furnish no information concerning him.
+
+3. Jose Osvaldo GARCIA Calvo, Attache-designate. GARCIA had been scheduled to come here in July 1969 as an aide to Antonio DE SOUZA, CMEX Advisor. His wife, Nydya Irene ARROYO Martinez, was to have been a secretary to Ambassador Ricardo ALARCON Ocasada. ELCIN said that GARCIA and ARROYO will not be coming to New York; their assignment has been cancelled. ARROYO currently is working in the Cuban Foreign Ministry (MINREX), but GARCIA has been sacked from MINREX and is now somewhere in the interior of Cuba. GARCIA fell into official disfavor because a girl friend of his denounced him to the DSE, either because GARCIA would not divorce his wife and marry her, or because she just became disenchanted with him for some reason. Moreover, GARCIA in his MINREX capacity had accompanied the British Ambassador in Cuba on a provincial tour several months ago. During the tour, the Ambassador, apparently favorably impressed by GARCIA, invited him to visit the United Kingdom. GARCIA neglected to report this invitation to the proper Cuban authorities, and when the fact of the invitation leaked out, GARCIA was suspended from MINREX.
+
+4. MISCELLANEOUS. Although he naturally would not be aware of the specifics, ELCIN commented that it appears to him that the DGI Center here is extremely active operationally and seems to have more than enough funds at its disposal to pursue such activities.
+
+SECRET
+
+160 ATT. / to HNDA-4687 US COPY
+
+<table><tr><td>MICROFILMED</td></tr><tr><td>OCT 31 1969:</td></tr><tr><td>DOC. MICRO. SER.</td></tr></table>
+
+19-6-133/4

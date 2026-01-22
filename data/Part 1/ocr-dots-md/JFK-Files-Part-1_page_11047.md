@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_11047.png
+
+Convert to MarkdownS-E-C-B-T
+
+CENTRAL INTELLIGENCE AGENCY
+OFFICE OF CENTRAL REFERENCE
+BIOGRAPHIC REGISTER
+
+ALBERU Souto, Luis
+
+CUBA
+
+Cultural Attaché, Embassy at Mexico City
+
+Cultural Attaché Luis Alberu arrived in Mexico in October 1959, the first Cuban representative since the fall of Batista. Early in 1962 he was transferred to the United Nations section of the Foreign Ministry but returned to Mexico on 16 March 1962 because "conditions were terrible in Cuba." He is reported to be mistrusted by other members of the committee.
+
+In 1953 Alberu was identified as an artist residing in Mexico. He is possibly the brother of Mariluz Alberu Scuto, Consular employee in Vigo, Spain.
+
+July 1962
+
+8-E-C-B-T
+
+<table><tr><td>GROUP I</td></tr><tr><td>Excluded from automatic downgrading and declassification</td></tr></table>

@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_14647.png
+
+Convert to MarkdownItem #4 (continued)
+
+that he is going to Mexico and Venezuela in December and
+if he can combine it he would like to go to Cuba also. He
+says, "It will be the moment for IBERPLAN to become familiar
+with Cuban reality once and for all". Ruiz says he can see
+him next week.
+
+Item #5
+
+A PERSON (MALE CALLS and asks for "contact". Nilda says she does not understand his language. The man asks that if it is the Cuban Embassy, to please put him in "contact".
+
+Nilda says--4252. Ruiz talks to the man and says "Look,
+don't be a fool nor so idiotic we have grown up; we now
+have ten years of revolution, and we are not likely to fall
+into the kind of provocation that you are trying to do. You
+can tell that to whoever gives you orders or whoever is re-
+cording this conversation." The man asks Ruiz who he wants
+him to tell that to. Ruiz answers "Don't bother me any more.
+Tell it to the CIA or whoever gives you order, because prob-
+ably it is the CIA or some other person. The one that gives
+you orders. Moreover, if you are tapeing this, so am I.
+I was waiting for your call. You just called a few minutes
+ago, so don't be an idiot." The man then says, "You think
+that the CIA gives me orders". Ruiz answers, "Most likely
+it is the CIA that gives you orders as the only enemy that
+Cuba has is the CIA, the Central Intelligence Agency, don't

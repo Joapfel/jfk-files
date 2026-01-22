@@ -1,0 +1,50 @@
+# JFK-Files-Part-1_page_12296.png
+
+Convert to MarkdownFIN DEL CONVENIO
+
+Yo, Presidente entiendo que mediante la ejo-
+cucion de mis deberes he recibido informacion y material de in-
+teligencia y datos concernientes a la seguridad de los Estados
+Unidos. Esta informacion e inteligencia, junto con los metodos
+de adquisicion, manejo y dissemination son clasificados de acuerdo
+a las normas de seguridad establecidas por el gobierno de los
+Estados Unidos. Se que la revelacion de esta informacion sin
+la debida autorizacion esta prohibida por las Leyes de Espionaje
+(18 USC Secs. 753 y 754), y por el Acta de Seguridad Nacional de
+1947, que especificamente exigen la proteccion de las fuentes de
+inteligencia y metodos contra la revelacion sin autorizacion.
+
+Estoy de acuerdo que ni ahora ni nunca tendre ningun derecho,
+interés titulo o reclamacion alguna sobre ninguna de la informa--
+cion o inteligencia o sobre los metodos empleados para adquirirla
+o manejarla que han sido de mi conocimiento, pero reconozco
+siempre el pleno derecho de propiedad de los Estados Unidos sobre
+estos asuntos.
+
+Juro solennemente o afirmo que nunca divulgaré, publicaré
+o revelare por medio de la palabra, conducta o por cualquier
+otros metodos esta informacion, inteligencia o conocimiento,
+excepto cuando sea necesario hacerlo en el cumplimiento oficial
+de mis deberes y de acuerdo con las leyes de los Estados Unidos,
+a menos que específicamente sea autorizado por escrito en todos
+y cada uno de los casos por un representante del gobierno de los
+Estados Unidos debidamente autorizado.
+
+Entiendo que las disposiciones de este juramento permanece-
+ran en efecto sobre mí, a pesar de que mi relacion está siendo
+terminada.
+
+Estoy de acuerdo de que, en caso de ser llamado a testificar
+en corte, procedimientos administrativos u otra clase de tribu-
+nal en relación a información o inteligencia dentro del alcance
+de este juramento, notificare a un representante de los Estados
+Unidos debidamente autorizado inmediatamente; también dejare
+saber a la corte o al tribunal de mi juramento al gobierno de los
+Estados Unidos y presentare una petición de que la necesidad para
+testificar sea establecida antes de que se me pida hacerlo.
+
+Entiendo que este juramento será retenido por el gobierno de
+los Estados Unidos para su uso futuro en cualquier asunto que esté
+dentro del alcance de este juramento. Acepto esta obligación li-
+briamente, sin ninguna reserva mental o proposito de evición y en
+ausencia de presión o coacción.

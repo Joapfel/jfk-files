@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_10509.png
+
+Convert to MarkdownSECRET
+
+organized biographical outline of all information on George PARIS and associates, developed to date. Attachment to this communication indicates that FARRIS has been or may still be a contact of Hemanut Abraham CISTROVSKY, suspect Soviet Agent, who is the Tokyo Branch Manager of the firm of SUNDUVICH BALTHERS INCORPORATED, which firm has long been suspected of being a front or cover organization for Soviet intelligence operations. Attention is invited specifically to the fact that Attachment reflects that the 1954 Japan Directory of Foreign Firms lists a. CISTROVSKY as Tokyo representative of this firm, which has offices at 61 - Tanura-cho, 4-Chome, Shiba, Ginza-ku, Tokyo, and telephone lines: 43-1509, 43-4369, 43-4287, whereas in 1938 subject to officially listed as George Paris, of PARIS ASSOCIATED ENTERPRISES, located at 64-3 Chome, Tanura-cho, Ginza-ku, Tokyo, telephones: 43-1509 and 43-4287, reflecting that he shared telephone numbers with SUNDUVICH BALTHERS, and presumably with Manuel A. CISTROVSKY. It is suggested that the Department of the Army, Navy and Marine Corps Chief of Staff, G-2, Intelligence, and the Federal Bureau of Investigation may have additional information on George PARIS and associates.
+
+8. No additional information, to supplement that which is reported in paragraph 6 above, identifiable with Noriko MATSUZAKAYA & AWAJI, would be located in the indices of this Agency.
+
+9. With reference to the "Tomorrow Is Too Late Club", mentioned in paragraph 5 above, to which Valentine HAAN claims to have been taken by George PARIS, an exact and direct re-translation of the club name into Japanese from the English as given by HAAN, would read "Asu de wa kusugiru". It is noted that the Tokyo Telephone Directory for 1957 contains a listing for an establishment of this name, as follows: ASU DA WA KUSUGIRU, located at Chuo-ku, Ginza, 8-Chome, 3 Branch, Tokyo-to, Telephone Nos.: 57-8945, 57-6363, 57-6925. A reliable source, who is familiar with the city of Tokyo, advised in October 1960, that as of 1959 this establishment was still operating at the listed location, and that it is a coffee-house rather than a nightclub in the western sense, although alcoholic beverages are available for consumption on the premises by the patrons. The same source also advised that the above coffee-house employs Japanese hostesses, as is customary in such establishments in Japan, and that such females might be dated under the circumstances indicated by Valentine HAAN. However, it should be noted
+
+SECRET
+
+REDACTED ON 11/20/91

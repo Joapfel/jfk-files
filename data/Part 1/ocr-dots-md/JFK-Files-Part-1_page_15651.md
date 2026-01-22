@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_15651.png
+
+Convert to Markdown/17/
+
+62. This person will open himself up readily to an open personality.
+He will be secretive with an inhibited or secretive personality. Consequently, the best person to work with this individual is a direct, expressive and visible personality.
+
+63. This person's social drives seem to involve: (a) General improvement of living conditions for everybody; in other words he is a humanitarian. He is not necessarily an activistic social reformer. (b) Improvement of his own standard of living. He has an inclination to better things and he feels this is the disease of all inventors.
+
+64. Subject expresses himself freely, is discursive, voluble, and is able to carry on a conversation indefinitely. This is typically French but, in particular, it represents an oral characteristic. In other words, he is all mouth. He both expresses himself orally and he is driven by desire to obtain oral supplies by incorporation. What this means is that he will eat you up.
+
+65. Subject reflects superior intelligence, is capable of abstract conceptualization, and is able to deal in symbols.
+
+66. Subject is a narcissistic character who feels that because others don't love him, he needs to love himself. In other words, he is quite in love with himself and acts accordingly.
+
+67. Subject tends to rationalize and to offer socially acceptable reasons for his individualistic behavior.
+
+68. Subject strives chiefly for emotional satisfaction.
+
+69. Subject is an altruistic but at the same time he is selfish. He will do things for the community with the hope of getting something out of it for himself. Both of these drives merge in a unitary fashion. He is motivated by both at the same time.
+
+70. Subject denies nationalistic motives for his actions and prefers to regard them as being primarily humanitarian. Subject is action-oriented and loves to take risk and gets a kick out of excitement and adventure.

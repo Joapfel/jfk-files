@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_13664.png
+
+Convert to MarkdownEMBAJADA DE LA REPUBLICA DE CUBA
+MÉXICO D.F.
+
+28 de julio de 1961
+
+• Año en LA EDUCACIÓN •
+
+Sr. José A. Tantetía G.
+Ministro de la Salud y Delegado,
+Pcia. de San Juan.
+
+Distinguido antiguo
+
+Por encargo del secretario, te-
+no el gusto de asentir tu atenta cinta 'La Focha'
+12 del presente.
+
+Agraciemos y estiamos su intere's por
+el proceso revolucíonario eterno. El Departamento se pre-
+nde a Información de esta Machtura de acuerdo con su scritu-
+tura, le suministrami les informales de la Información a modifica
+que se reciban.
+
+Te agradecen la szerda consideración,
+
+Regalito andujáez López
+Secretario

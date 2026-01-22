@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_14597.png
+
+Convert to MarkdownLAIDI, Ahmed
+
+Algeria
+
+BOB: Oudja, Morocco dob: 20 April 1934
+
+Named August 1963 advisor on African Affairs in presidency and now is listed as Ben
+Bella's chief of Cabinet. While he is a relative newcomer to scene here and not known
+personally to the Embassy, it appears likely that he is close to Ben Bella and therefore
+a useful contact.
+
+Dept: 1 #658
+4/10/63
+
+In accordance with a decree published on 12 November 1963, Ahmed Laidi
+has been appointed chef du cabinet of President Ben Bella.
+Journal Offic.
+15 Nov 1963
+Algiers
+
+Subj is new Director General of Political Affairs, IFA. (Algiers EBTEL 964, 21 Oct 64)
+
+filed: Alg/Cuba
+
+Laidi, (Director General, Foreign Ministry in charge of Political, Economic and Cultural Affairs), member of Sept 65 delegation to UN General Assembly. Described as reserved, ingent, and probably something of an operator; he was Ben Bella's chief of cabinet before ing foreign office in 1964 and although technically still number three man in fono ff, has ed to function more on special assignment basis than as part of chain of command. His mc. recent existing project has been B ndung 2. Algiers Erbtel 660, 28 Sept 65, Alg/UN
+
+Appointed Algerian Ambassador to Spain, October, 1966
+
+A-168, 25 Oct 66
+Filed Algeria/Spain

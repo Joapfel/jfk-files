@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_14574.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+"This construction firm built for the Rumanian representation in Spain and is now building for the Polish and others. We have been quoted a fixed price of $600,000 which includes a luxury building, with glass windows, air-conditioned, and other luxuries. This amount could be reduced if we bring our Cuban architects, who were here two years ago, and knowledgeable of their mission could discuss with the land owners and the construction firm those things they feel could be omitted and the price could be brought down considerably. We do not need a luxury building, but one that is attractive, simple and functional. Term payments could also be extended. I want to impress upon you that when we entered into negotiations we had a binding agreement.
+
+"The lot is on Avenida La Habana. Fermín GUTIÉRREZ looked well into this matter. He asked me to send him the project and that he would look at it. The system of payments in Spain allows us to pay $100,000 or $150,000 annually which will not be difficult for us.
+
+"NEIRA, I want you to talk to CHAIN, not bearing pressure on him, but to make him understand that what I want is to leave my successor established, for any construction not lasting over nine months I certainly will not be able to enjoy.
+
+"Another thing I want to bring to your attention is in regard to our Consulate, its activities and relations with the Visa Section. A letter has come from VERA addressed to FRANCO pointing to FRANCO's incorrect wording of a cable to that Section. I agree that it was incorrect, but I find it strange that that Section should pay so much attention to correct forms and analyze the contents so little. The contents of things are not being studied, and it is essential that deep thought be given to the work that is being done. When someone comes to the Consulate with an authorization to travel to Cuba, it is usually three or four days prior to flight departure. Since the Visa Section must defer to the Department of Emigration for its authorization, inasmuch as the latter determines whether or not a foreigner can go into Cuba, the process is not carried out with the urgency that it requires, consequently, there is delay. This creates much inconvenience for us, and even personal problems, for we must consider that often people arrive with the exact amount of money and a week's delay could hurt them so that at times they don't even have enough money for lodging or food."

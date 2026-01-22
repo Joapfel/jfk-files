@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_13980.png
+
+Convert to MarkdownSECRET
+AIDAT
+
+the Cuban Tobacco in Moscow, 1967/1968. In introducing PEREIRA, REYES stressed that VUHABIT/1 should feel free to discuss any subject with him, and in turn told PEREIRA that he should call upon VUHABIT/1 whenever PEREIRA needed advice or help. While AVRGOX trades did not reveal any intelligence affiliation for PEREIRA, the Base and local INLRCO strongly suspect that PEREIRA is a DGI officer. His behavior in the future months will undoubtedly confirm or deny this.
+
+4. The most noteworthy new arrival, Farcilio YORO GUEZ JUN., (201-332665), First Secretary and DGI officer, has been lying dormant since his arrival in early June. He is living, presumably temporarily, in the CHON. Julio CANTOS GIL (201-351731), another now First Secretary, also has been quiet since his June arrival.
+
+5. UNDA-4578, 3 July, transmitted a current listing of CHUN personnel to WJ/Miami for use in debriefing AMCARD/1 as to any knowledge or acquaintance with any of them. The writer and ESTHER of WJ/Miami discussed in New York on 1 July the possible move of AMCARD/1 to the New York area.
+
+6. The month of July appeared to be a quiet one for both the legitimate CHUN personnel and the DGI Center.

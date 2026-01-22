@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_13233.png
+
+Convert to Markdown18. Cable DIRECTOR-15805, 29 June 1967, requested replies
+to series of questions concerning AMCLEVE-15's activity with
+ROSENTHAL and FBI. JMWAVE replied in JMWAVE-7953 (IN 02284),
+30 June 1967. JMWAVE stated that AMCLEVE-15 had failed to report
+the October 1966 transactions with Rosenthal until 9 June 1967,
+and therefore the Miami FBI was not notified until 15 June 1967.
+JMWAVE stated that AMCLEVE-15's explanation for not reporting
+the October 1966 transaction was that he "just forgot."

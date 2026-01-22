@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_15364.png
+
+Convert to Markdown14-0000
+
+MEMORANDUM FOR: Chief, SOD/Air Branch
+
+SUBJECT : WITRUSH Contract
+
+1. On Wednesday, 12 May 1965, I discussed with Mr. Dow Letcher, OP/CPD, the WITRUSH contract with which you are familiar and under which Eouardo Whitehouse served in the Congo. This is the standard contract for Cuban and European WITRUSH pilot employees. Specifically, I was interested in learning from Mr. Letcher if he believed Paragraph 7 D could be applicable to the case of Mr. Whitehouse since Mr. Whitehouse desires assistance in paying medical bills for a physical disability (which may be temporary) which may have been incurred while he was serving with us in the Congo.
+
+3. This memorandum makes record of the fact that, judging from what Mr. Letcher had to say about the WITRUSH contract, and also in view of Mr. Ben DeFelice's recently expressed concern regarding the benefits aspects of that contract, action should be taken to review and, if necessary, revise the contract at the earliest possible date. This step from the strong possibility that Cuban pilots who suffer injuries or disabilities while serving with WITRUSH may wish, as in the case of Eouardo, to claim benefits after the termination of the contract, for conditions which originated during the term of the contract.
+
+8. On 12 May 1965 I provided Mr. Letcher with a draft for a proposed WITRUSH contract pertaining to rotary wing aircraft pilots only and asked that he review it and judge its adequacy.
+
+Frank Daly
+SOD/AB/OPS/3
+
+Distribution:
+
+Copy, 1 - Addressed
+1 - OP/NSD Attn: Mr. Ben DeFelice
+1 - OP/CPD Attn: Mr. Pas Letcher
+1 - SOD/PERIS
+1 - SOD/AB/OPS/3
+1 - SOD/RI
+1 - Chrono
+
+COPY, 3: F.DALY: keys (1 May 1965)
+
+MICROFICHE

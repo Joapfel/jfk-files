@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_11382.png
+
+Convert to MarkdownSECRET
+
+19 February 1963
+
+MECATION FOR: Chief, CT/0A
+SUBJECT : LITAN /9, C - 101331
+
+The FEI report entitled Foreign Political Matters Cuba and sent to this Agency on 28 December 1961, could not be located in AID or SAS files. Three such reports dated 29 December 1961 with the same title were obtained, but the Subject was not referred to in any of the three reports.
+
+Distribution:
+
+Original & 1 - addressee
+
+1 MAR 1953
+
+<table>
+   <tr>
+    <td>CAB 1</td>
+   </tr>
+   <tr>
+    <td>Delegated from automatic</td>
+   </tr>
+   <tr>
+    <td>issuance by</td>
+   </tr>
+   <tr>
+    <td>TECHNICAL SECRETARY</td>
+   </tr>
+  </table>
+
+File
+EAS
+
+SECRET
+
+FEB 26 301 AM 83

@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_15730.png
+
+Convert to MarkdownSECRET
+
+1960-10-27
+
+MEMORANDUM FOR: Deputy Director for Security
+ATTENTION : Alien Affairs Staff
+SUBJECT : WIRELESS (formerly ALEA-SPIC) CI/OA No. 7532
+
+1. It has been called to our attention that the parole for subject is to expire on 20 October 1960. The African Division has taken over the case and plans to have subject out of the country by 20 November 1960. Hence a 30 day extension of the parole is requested.
+
+2. WIRELESS is presently quartered at:
+
+Dominion Towers
+1201 South Court House Road
+Arlington, Virginia
+Apartment 109
+
+3. For any further information, please contact Daniel R. Hiesciur, x8284.
+
+Bronson Tusedy
+Chief, Africa Division
+
+AF/W/1:DRN:say:17 Oct 1960
+
+Distribution:
+
+*   **Original**
+*   1 - AF/RI
+*   11 - AF/W/1
+
+SECRET

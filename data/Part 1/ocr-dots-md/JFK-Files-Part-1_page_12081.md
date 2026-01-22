@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_12081.png
+
+Convert to Markdown6 December, 1949
+
+Subject: NcVICKAR, JOHN AUGUSTUS JR.
+Address: 28 Avenue Montaigne Paris
+Telephone: ELY 46-55
+
+Subject is quitting his position as traffic representative with Trans World Airline as of 31 December, 1949. In August, 1949, subject advised his superiors, including WARREN LEE PIERSON, Chairman of the Board of TWA and a personal friend, that he could not continue unless a larger salary and a more liberal expense account were forthcoming. He was informed in due course by Vice President COOKE that it was impossible for the company to give him more money within the present wage structure. Subject therefor decided to seek other employment. On or about 15 November subject was advised by Overseas Manager THORNTON that he could proceed to make new arrangements as of the end of the year. Whether subject actually resigned or was asked to terminate his connection due to his repeated demands for more money is not completely clear to the writer.
+
+Overseas Manager THORNTON was never sympathetic with the subject. According to STANLEY MARKUSEN, TWA Overseas Public Relations Director, THORNTON was jealous of subject's popularity. On the other hand, JOHN WINCHELL, Traffic Manager for Paris, and subject's immediate superior, was, and continues to be, his strong supporter. On the basis of business produced WINCHELL has told the writer that subject is the company's most valuable employ overseas. MARKUSEN concurs in that belief.
+
+Subject is highly regarded by OSCAR HOLCOMB and PAINTER BRADLEY, directors of TWA. In addition he is a close friend of PIERSON, Chairman of the Board, who engaged him directly in the first place. None of those, however, seem willing to run counter to the economy drive now in progress within TWA sponsored by new President RALPH DAWIN. Unless there is a last minute change in policy subject's termination will stand.
+
+Subject's future is uncertain. He has been in touch with a friend of his in New York named HARVEY DWIGHT. DWIGHT makes frequent business trips to Europe on behalf of his own company which deals in spare parts for airplanes. He has intimated that he might use subject in Europe for six to eight months and then bring him back to the U.S. for employment in Washington. As of the above date DWIGHT has made subject no definite offer but has advised him in a letter seen by the writer not to worry about his future.
+
+Ex-Postmaster General JAMES PARLEY, now with the Coca-Cola Company, was interested recently in hiring subject for work in France but that idea seems now to have been dropped.
+
+CHARLES ROBERTS, Paris automobile dealer, has asked subject to work for him but subject has refused.
+
+Subject is hard pressed for money. He has outstanding debts and his salary from TWA, in the vicinity of $500 monthly, had never been sufficient for his needs. In October, 1949, TWA cut the living allowance paid to employee overseas. According to subject that cost him about $150 monthly and forced him into debt. Subject was
+
+(more)
+
+CS COPY
+
+at! to wth 3/24

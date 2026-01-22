@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_13854.png
+
+Convert to Markdown622.-
+
+Entrada a las 13:24hs. HF "El Profesor" con Rogelio Rodriguez le dice que esa cuostión así como se la propuso, que os bastante difícil, porque ya había estado todo concertado on la otra manera.- Rogolio: quo como lo dico quo.... HF quo que para hacerlo más para allá y no más para acá quo os a lo quo se refería; quo por otra parto tiene algo quo le acaba de rogalar uno de los cuales tuyos.- Quodan para las seis.-- 642.
+
+120.
+Entrada 1956.- ROGELIO pregunta sino lo han llamado y-
+JORRIN dice que nó. ROGELIO:que si llama ALVAREZ le diga
+que mañana lo llame sobre las once,porque quiere hablar con
+61. JORRIN:que está bien.- 129.-
+
+47. Salida al 237y95.- 17:03hs.- Pereyra con Aralia le pregunta lo que hace.-- Que Peregrina se tué a los toros con unas personas del Comercio Exterior, que el no pudo ir porque están preparando un almuerzo para mañana en la embajada.- HF con Pereyra se saluuan y Poroyra le dice que para el proximo saba do se van a reunir en la casa de Rogelio.-- 64.-
+
+Pasa a la hoja 2.
+
+15:43
+
+JO JO VILDO pide a JORRIN, portero de la Embajada Cubana, que diga al encargador o a FERNANDEZ ROA que están esperando a que lleguen para empezar el acto. JORRIN indica que el encargador tuvo que salir urgentemente a una diligencia, y FERNANDEZ ROA fue a esperar a su señora que llegaba hoy. JORJO dice que si entonces no va a venir nadie; que si el encargador tenía que salir debió haber nombrado un representante; que ésto es una falta total de atención y que lo diga al encargador que está bastante molesto, pues ya no puede esperar porque tiene alli a todos los invitados y es una cosa bestan te penosa que les hagan esa falta de atención. Acto seguido JO...Inse me pone en contacto con ROGELIO y lo hace saber que habló ahora TALLJO diciendo que "están esperando a la gente de aca" para empezar el acto, y parece que está disgiutado porque no ha llegado nadie; por lo que sería conveniente que ROGELIO se arrancara para allá. ROGELIO acepta la superencia y a su vez le pide que diga a la Doctora MACHADO que utilizó el carro para ir "allá". Pasa a la hoja 2. 7:365

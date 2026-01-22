@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_11497.png
+
+Convert to Markdownof a saferoom would not appear unannounced in such a manner, adding
+that to date he did not have any definite word on this person's ETA
+in Mexico City.
+
+LIRING/3 told Rowton that he expects "Rómulo" to revisit him at his
+home sometime during the late evening of 26/4/69. He told Rowton that
+it occurred to him that he might invited Iden B to the apartment
+on the same night in the hope that he could witness a face-to-face meeting
+with "Rómulo" and Iden B. He felt that this would serve to keep his hands
+as clean as possible in the eyes of the LIRING office, since he was certain
+that Iden B would report promptly of his meeting with "Rómulo."
+Rowton agreed, feeling that it was important for LIRING/3 to bring a
+occasional meetings with "Rómulo" fully to the attention of the LIRING
+office, on the off-chance that they already did not know about then, and
+that Iden B would be the best channel for this.
+
+Wallace B Rowton

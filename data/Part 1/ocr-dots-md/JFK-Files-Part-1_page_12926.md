@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_12926.png
+
+Convert to MarkdownSECRET
+
+SUBJECT: Previous Agency Association with Persons Allegedly Responsible for Bombing of Cuba Airlines Flight
+
+DPO/DC/LA/OPS/N/D.Winters:1ch (13 October 1976) (x1175)
+
+Distribution:
+
+Orig. & 1 - DCI
+1 - DDCI
+1 - Ex Reg
+2 - DDO
+1 - ADIO
+2 - C/LA
+1 - LA/OPS
+1 - LA/CAR
+1 - LA/PNC/V
+
+SECRET

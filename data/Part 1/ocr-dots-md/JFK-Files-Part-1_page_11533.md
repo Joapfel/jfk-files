@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_11533.png
+
+Convert to Markdown14-06/600
+
+NOT SUITABLE FOR MICROFILM
+
+S/C AT:J
+HAMMA - 36184
+
+CS COPY
+
+201-798301

@@ -1,0 +1,82 @@
+# JFK-Files-Part-1_page_10454.png
+
+Convert to Markdown14-00000
+
+☐ UNCLASSIFIED
+
+[ ] CONFIDENTIAL
+
+[ ] SECRET
+
+[ ] TOP SECRET
+
+INITIAL REVIEW FORM
+
+FOIA/Title Request No. F-17-260
+Dated: ____________
+
+Document Description: 
+Document Located By: DCD
+(OFFICE DESIGNATION)
+Document referred to DOD for review by: 
+
+RECOMMEND:
+
+Release in full-text
+
+Release in sanitized form
+
+Deny in toto
+
+Defer decision to
+
+Coordination with prior to above denial/release
+
+EXEMPTIONS ARE BEING CLAIMED TO PROTECT THE FOLLOWING:
+
+| | FOIA | PRIVACY |
+|---|---|---|
+| (1) Classification | (b)(1) | (k)(1) |
+| ( ) Information from a foreign liaison service | (b)(3) | (j)(l)(b)(c) |
+| ( ) Information pertaining to a foreign liaison relationship | (b)(3) | (j)(l)(b)(c) |
+| (2) Information which would/could identify the source | (b)(3) | (j)(1)(b) |
+| (3) Information pertaining to a source | (b)(3) | (j)(1)(b) |
+| (.) Information pertaining to intelligence methods | (b)(3) | (j)(1)(b) |
+| ( ) Location of CIA overseas installation | (b)(3) | (j)(1)(b) |
+| ( ) Location of unacknowledged domestic installation | (b)(3) | (j)(1)(b) |
+| ( ) Name of CIA employee | (b)(3) | (j)(1)(e) |
+| ( ) File number | (b)(2) | (j)(1)(b) |
+| ( ) Pseudonym | (b)(3) | (j)(1)(b) |
+| ( ) Cryptonym | (b)(3) | (j)(1)(b) |
+| ( ) Internal organizational data | (b)(3) | (j)(1)(e) |
+| ( ) Name of an FBI agent | (b)(7) | (j)(1)(b) |
+| ( ) FBI file number | (b)(2) | (j)(1)(b) |
+| ( ) Privacy of other individual | (b)(6) | (j)(1)(f) |
+| (-) Does not pertain to request | N/A | "Exempted portions are not relevant to the request" |
+
+( ) Information from another Government agency (b)(1) (j)(1)(c)
+
+*( ) Other, specify:
+
+*For further guidance regarding exemptions, please see DDA-75-5943, 16 December 1975 (Privacy Act) and HN-70-21, 14 February 1975 (FOIA).
+
+COMMENTS AND/OR SPECIAL INSTRUCTIONS:
+
+DOCUMENT REVIEW: OFFICE & OFFICE DCD
+
+DOCUMENT
+SIGNATURE OF REVIEWING OFFICER & OFFICE
+May 77
+F 2 IMPDET CL BY:
+
+☐ UNCLASSIFIED
+
+☐ CONFIDENTIAL
+
+☐ SECRET
+
+☐ TOP SECRET
+
+F-17-260
+
+EET-3866

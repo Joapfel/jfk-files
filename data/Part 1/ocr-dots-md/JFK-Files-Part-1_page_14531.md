@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_14531.png
+
+Convert to Markdown# Report 2314
+
+4 February 1970
+
+MERCEDES READS RUIZ THE FOLLOWING TELEX :
+
+" WE FEEL NILDA SHOULD TRAVEL ON IBERIA NEXT MONDAY BECAUSE THE TRIP IS SHORTER AND SHE HAS THE ANSWERS TO QUESTIONS RAISED. MINREX." Ruiz is at home and remarks he is going out to dinner tonight.
+
+See Report 262, 30 Jan 70, for memo that Ruiz sent NEIRA at MINREX with Nilda.

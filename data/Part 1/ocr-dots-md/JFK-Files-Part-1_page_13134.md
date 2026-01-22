@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_13134.png
+
+Convert to Markdownthat he is still with WOFIRM until Subject finally told him in an offhand way, 'Sure I'm with WOFIRM,' but he does not know what effect this had on IDEN P or whether he has told anyone of his suspicions of Subject's WOFIRM involvement. He specifically denied that anyone other than these three persons were knowledgeable.
+
+Does anyone in IDEN B know you have this meeting with us today? Answer: No.
+
+Have you ever been asked to perform any task or mission against the LNHARP? Answer: No.
+
+Have you ever performed any task or mission on behalf of IDEN G? Answer: No.
+
+Has anyone told or instructed you on what to report to us? Answer: No.
+
+Have you had contact with IDEN C since 1967? Answer: No. Continued reactions to this question which necessitated a breakdown test to isolate the reason for his sensitivity to the topic. He repeatedly denied that he had had any contact with IDEN C since the IDEN Q told him not to but acknowledged a physical revulsion to the mention of the man's name, and a long discussion ensued regarding the extent of Subject's involvement with the man. Subject contended that the contact began quite innocently in 1965 and was what Subject initially thought was a deliberate provocation to see what Subject's reaction would be. Subject immediately reported the contact to JMWAVE handlers who guided him through continued contacts and instructions from IDEN Q. Subject was instructed to sell IDEN C "silencers" (guns with silencers attached--about six or seven to the best of his recollection) in order to find out his true identity. Subject furnished physical descriptions and license numbers to JMWAVE and continued to report on contact with IDEN C. He offered Subject $500 US which JMWAVE told Subject to keep since it was merely a bonus given him for his work as an intermediary. IDEN C continued to force contact with Subject and once came to his home in shorts and made veiled threats which were answered with counter threats of violence from Subject, and an outright threat that Subject would kill IDEN C if he threatened
+
+SECRET

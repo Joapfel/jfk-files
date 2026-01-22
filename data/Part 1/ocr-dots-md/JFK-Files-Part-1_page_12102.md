@@ -1,0 +1,50 @@
+# JFK-Files-Part-1_page_12102.png
+
+Convert to MarkdownSECRET
+
+Present Employment:
+
+Special Sales Representative for Trans World Airlines
+in Paris
+
+Previous Employment:
+
+General Sales Agent in France for various American products,
+including Jantzen Bathing Suits, Three-in-One Oil, the Franklin
+Motor Car, the Le Baron Motor Car. (at age 18)
+
+General Sales Agent in France for Dusenberg Motor Cars and
+Packard Motor Car Co.; later exclusively for Packard Motor
+Car Co. (until early 1931)
+
+Packard Motor Car Co. in Buffalo, New York (until Autumn of
+1932)
+
+Raymond-Whitcomb Inc., 670 Fifth Avenue, New York (until 1940)
+
+Assistant General Manager of St. Regis Hotel, New York
+
+Assistant General Manager of Hotel Pierre, New York (until 1942)
+
+American Red Cross (Australia, New Guinea, Philippines)
+
+Operated War Service Bureau of American Optical Company,
+Washington, D. C.
+
+Transair, Inc.
+
+American Airlines as District Traffic Manager for Holland,
+Belgium, and Luxembourg, with headquarters in Amsterdam
+
+Special Sales Representative, Trans World Airlines where
+subject has been for past 15 months.
+
+Organizations:
+
+Never a member of any club, organisation, union, party or society.
+
+Financial:
+
+Bank account with Chemical Bank and Trust Co. of New York
+
+SECRET

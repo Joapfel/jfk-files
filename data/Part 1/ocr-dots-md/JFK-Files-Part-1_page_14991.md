@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_14991.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+interview story. C. O. went on to say that we were wondering if a copy of the story might have gone to the BFV in Bonn, and that Wilms had missed one of the old copies when he recalled all copies recently and replaced them with the new story. John said that Camp Zirndorf processes 50 to 100 cases a month, one half of which are interest in one way or another to the BFV. He said that what had gone to Bonn was very likely an excerpt, that the entire story would not have been sent to Bonn. John went on to say that with the new copy in the file, if this excerpt should come to light in the future, a check would merely indicate that someone had made a mistake and the matter would be dropped. John added that he knows we are concerned about this case, but that he sees no reason why there should be any trouble of any kind. He said that the only problem will be if Subject himself comes to the attention of the authorities because of some shenanigans on his part.
+
+SECRET
+
+14-00000
+
+SECRET

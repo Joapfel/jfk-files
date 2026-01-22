@@ -1,0 +1,185 @@
+# JFK-Files-Part-1_page_12384.png
+
+Convert to Markdown<table>
+    <tbody>
+        <tr>
+            <td>C1/IC</td>
+            <td>1</td>
+            <td>WIL/R</td>
+            <td>1</td>
+            <td>CLASSIFIED BY: MICHAEL C. CHODEN</td>
+            <td>INC-6525</td>
+        </tr>
+        <tr>
+            <td>C1/OP/WH</td>
+            <td>1</td>
+            <td>WIL/J.R</td>
+            <td>1</td>
+            <td></td>
+            <td rowspan="3">WRALLY (WKSCANLET-3)</td>
+        </tr>
+        <tr>
+            <td>C1/LS</td>
+            <td>2</td>
+            <td>WIL/J.V</td>
+            <td>7</td>
+            <td></td>
+        </tr>
+        <tr>
+            <td>CA/PROP</td>
+            <td>1</td>
+            <td>WIL/CARA</td>
+            <td>2</td>
+            <td></td>
+        </tr>
+        <tr>
+            <td>CA'INT</td>
+            <td>1</td>
+            <td>CY/PG</td>
+            <td>1</td>
+            <td>CI/R&A</td>
+            <td>CSCI-316/00330-7</td>
+        </tr>
+        <tr>
+            <td>Total</td>
+            <td colspan="4"></td>
+            <td>YAH/AC/VIN<br/>JES 2, CI 8, FI 3, CA 2, WIL 9(2), FR 1</td>
+        </tr>
+    </tbody>
+</table>
+
+SECRET /NO FOREIGN DISSEM
+
+<table>
+  <thead>
+    <tr>
+      <th>STATE</th>
+      <th>DIA</th>
+      <th>XXX</th>
+      <th>XXX</th>
+      <th>XX</th>
+      <th>NRA</th>
+      <th>XX</th>
+      <th>CRI</th>
+      <th>(For Field Distribution see final paragraph)</th>
+    </tr>
+  </thead>
+  <tbody>
+    <tr>
+      <td colspan="9">FBI</td>
+    </tr>
+  </tbody>
+</table>
+
+<table>
+   <tr>
+    <td>
+     CI/IC
+    </td>
+    <td>
+     1
+    </td>
+    <td>
+     WIL/R
+    </td>
+    <td>
+     1
+    </td>
+    <td>
+     CLASSIFIED BY:
+    </td>
+    <td>
+     MICHAEL C. CHODEN
+    </td>
+    <td>
+     INC-6525
+    </td>
+   </tr>
+   <tr>
+    <td>
+     CI/OP/WH
+    </td>
+    <td>
+     1
+    </td>
+    <td>
+     WIL/J.R
+    </td>
+    <td>
+     1
+    </td>
+    <td>
+    </td>
+    <td>
+    </td>
+    <td>
+     WRALLY
+    </td>
+   </tr>
+   <tr>
+    <td>
+     CI/LS
+    </td>
+    <td>
+     2
+    </td>
+    <td>
+     WIL/J.V
+    </td>
+    <td>
+     7
+    </td>
+    <td>
+    </td>
+    <td>
+    </td>
+    <td>
+     (WKSCANLET-3)
+    </td>
+   </tr>
+   <tr>
+    <td>
+     CA/PROP
+    </td>
+    <td>
+     1
+    </td>
+    <td>
+     WIL/CARA
+    </td>
+    <td>
+     2
+    </td>
+    <td>
+    </td>
+    <td>
+    </td>
+    <td>
+     CSCI-316/00330-7
+    </td>
+   </tr>
+   <tr>
+    <td>
+     CA'INT
+    </td>
+    <td>
+     1
+    </td>
+    <td>
+     CY/PG
+    </td>
+    <td>
+     1
+    </td>
+    <td>
+     CI/R&A
+    </td>
+    <td>
+     1
+    </td>
+    <td>
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Total

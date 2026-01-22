@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_10977.png
+
+Convert to MarkdownSECRET
+
+CONTRACT FOR ON-LINE COMMITMENTS
+
+Date
+
+5 March 1965
+
+C0 : Chief, Finance Division
+TIA : Contract Approving Officer
+FROM : Chief of Station, "Mexico City"
+SUBJECT: Inherent of UTAU/US as Independent Contractor.
+
+1. THE AND PROPOSED: The subject individual has been engaged under oral contract for use under Project ( ) and is chargeable to LIMAVE. The effective date of the oral contract is 1 July 1965 subject to termination by OVOAS upon 20 days' actual notice.
+
+2. SECURITY APPROVAL: The appropriate security approval for subject's use has been obtained. Type _P.O. in process_. Date ______.
+
+3. CITIZENSHIP: Subject ( X ) is ( ) is not a foreign national.
+
+4. COMMISSION: The subject will be paid $5000 per month. The approximate equivalent of this amount in PARIIL currency is 120 dollars. Subject ( X ) will ( ) will not receive a Christmas bonus equivalent to one month's pay. Other comments in the nature of bonus commitments, gifts, paid reactions, etc., include: Still Christmas, birthday gifts may be given. No commitment.
+
+5. TAXES: Subject ( X ) is ( ) is not subject to federal income taxes. If Subject to FEDERAL income taxes, payments and/or deductions will be made in the following manner:
+
+6. CURRENT AND/OR DUE: (a) Subject ( X ) will ( ) will not be furnished quarters and/or substance allowances. (b) The following commitments have been made regarding additional compensation to accommodate increase cost-of-living and quarters expenses: None
+
+7. OPERATIONAL EXPENSES: (a) Subject ( X ) will ( ) will not be reimbursed for operational travel. (b) Subject ( X ) will ( ) will not be reimbursed for operational expenses. State nature of any operational expenses for which Subject will be reimburse: Any minor operational expense approved by the Case Officer such as transportation to military site. Note: Subject has never submitted a claim for any such expense to date.
+
+8. CONTRIBUTIONS: The following have not been promised the individual but may have to be met by OVOAS. Give reason for each contingent obligation: Subject may have to be provided safe haven if government aware of his activities for OVOAS. This does not imply that he has a plan or a program.
+
+9. No commitments other than those stated above have been made to the Subject.
+
+10. Comment: This MDC submitted because Subject's salary was raised from $5000 to $5000 a month effective 1 March 1965. Authority: DM 89922 (W 655) of 5 March 1965.
+SIGNED:
+Case Officer
+APPROVED: [Signature]
+Field Contracting Officer (GCS)
+
+NOTE:
+Contract Approving Officer
+
+DISTRIBUTION: 3 Authentic copies to Eos.
+1 file P 6079
+1 Support
+
+[ ]

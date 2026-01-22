@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_13821.png
+
+Convert to Markdown11. Children same as &.
+    NONE
+
+12. Siblings same as &.
+    Has little brother named Jorge
+    (LIAUD 24 May 1961)
+
+13. Other relatives by blood or marriage same as &.
+
+(see attachment item 13)
+
+14. Religion.
+
+15. Education.
+
+16. Languages.
+    Spanish.
+
+Comment:
+
+-2-
+JECO-7801-14

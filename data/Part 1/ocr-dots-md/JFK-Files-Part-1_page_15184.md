@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_15184.png
+
+Convert to MarkdownSECRET
+
+SR/DCB/60/
+
+14 January 1960
+
+MEMORANDUM FOR: Alien Affairs Staff
+
+ATTENTION : Mr. Pennington
+SUBJECT : Personal Status of SR/DCB Agent, AFASPIC (David DURVARD)
+
+1. Please be advised that SR/DCB Agent, AFASPIC, is being closely supervised by SR/DCB as regards his personal and social contacts.
+
+2. He is at present residing in a Washington, D.C. apartment under the name David Durvard. This apartment was obtained by Safehouse Branch and fully approved and checked by the Office of Security.
+
+3. Safehouse Branch has also obtained an office some five blocks from his living quarters. This office site has also been approved and checked by the Office of Security. AFASPIC is at present engaged in his office, doing unclassified work to keep him occupied. He is being visited, by an SR/DCB Case Officer, on a regular weekly basis (and/or as the necessity arises).
+
+MICHAEL RAB
+Chief, SR/DCB
+
+FK/vat
+
+Distribution¹
+
+Orig & 1 - Addressee
+1 - Subj's. File
+1 - Chrono
+
+W-1 2 35477

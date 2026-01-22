@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_12044.png
+
+Convert to MarkdownSECRET
+
+3 May 1972
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: John K. McLean
+
+1. On 28 April the undersigned was introduced to Mr. John McLean by Mr. Wallace Lampshire, a staff officer. The purpose of the meeting was to discuss Mr. McLean's connection with Mr. Gordon Barton McLendon (201-79764) and Mr. McLendon's stated desire to help his government.
+
+2. Mr. McLean is a former staff officer (DDI/OCI) who resigned to enter the field of finance. He has been a banker, a stock broker (Sade & Co.) and currently is Vice-President and Treasurer of International Ventures, Inc., 888 17th Street N.W., Washington 20006, as well as Vice-President of Riviere & Berens Securities Corp., stockbrokers located at 1832 M St., N.W., Washington, D.C. 20036.
+
+3. Mr. McLendon was born in Paris, Texas 8 June 1921 and now lives in Dallas. According to Who's Who in the South and Southwest, Mr. McLendon is the owner of a number of radio stations and is listed as the president of numerous companies in radio, TV, and motion picture theatre fields. Mr. McLendon is reputedly a multi-millionaire.
+
+4. Mr. McLean and Mr. McLendon have maintained a friendship since their years at Yale. Mr. McLean recently visited Mr. McLendon at his ranch some thirty miles from Dallas. During this visit Mr. McLendon expressed his fears of the future of the dollar and said that he has moved millions of his dollars to Europe where the money has been put into Swiss and French francs, plus German marks. Most of the money is apparently in savings instruments of one kind or another plus a night club that Mr. McLendon has bought in Stockholm. During these conversations, Mr. McLendon wondered if these foreign operations might not be of interest to the Government (read CIA as Mr. McLendon was an ONI officer during WW II and is aware of Mr. McLean's former employment with the Agency.) Mr. McLendon mentioned his night club as a possibility, as it is frequented by persons of many countries, including the USSR.
+
+SECRET

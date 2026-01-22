@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_15393.png
+
+Convert to Markdownof his death by accidental means while aboard a tested aircraft while operating in a non war risk area and engaged in the performance of services under this agreement PROVIDED death occurs within 90 days of the accident.
+
+c. An additional monetary benefit of $30,000 in the event of his death by accidental means while engaged in the performance of services under this agreement aboard an aircraft being tested as to its airworthiness or when the aircraft is operating in a war risk area, PROVIDED death occurs within 90 days of the accident.
+
+d. That in the event the employee receives an injury or disability while directly engaged in the performance of services under this agreement, he will be entitled to medical, surgical, hospital, transportation and disability benefits in such amount as in the sole discretion of the employer is proper, PROVIDED said benefits shall not exceed a total of $20,000 for the same injury or disability.
+
+8. That the employee agrees to undergo a medical examination within five calendar days after his return.
+
+9. That the employee promise he will not reveal in writing or any other method, the activities, the sponsors, or any other facts that come to his attention by virtue of the performance of services under this agreement.
+
+SIGNED AND SEALED BY NO THIS 13th day of November , 1964.
+
+- Seal-
+
+ACCEPTED at Leopoldville, the Republic of the Congo, this
+day of
+, 1964.
+- Seal-

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_12938.png
+
+Convert to Markdown14-0000
+
+1 Sept 71 Subj notified that he to accompany Venezuelan Minister of Interior (LoreAZo Fernandez) on a 4 to 6 week trip to Europe. Trip speculated to be Fernandez' touching base for political reasons prior announcing his presidential candidacy upon return.
+
+28 Nov 71 OA requested for use as penetration of DISIP.
+
+29 Nov 71 Subject polygraphed to determine if DISIP and/or CIFENCE-1 had knowledge of Subject's connections with Station; if he ever requested to work against U.S.; if he contacted either of his brothers since May 68, if he involved with illegal arms smuggling. Result: answered truthfully, no indication of deception.
+
+1 Dec 71 Travelled to Miami by his employer to purchase 25 nine milimeter pistols for GOV use. (unable to refuse or evade assignment).
+
+17 July 72 OA granted.
+
+Apr 72 Subject placed in charge of another CIRASH division with more responsibility and importance. Initiated extensive investigation of Prensa Latina and its Caracas Director and the kidnapping of Venezuelan industrialist Carlos BENIM dominguez.
+
+5 Feb 73 To Rome to aid in audio operation
+
+12 Feb 73 Name mentioned in unspecified connection with several members of the UIR who involved with narcotics.

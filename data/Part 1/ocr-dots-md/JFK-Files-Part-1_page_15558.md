@@ -1,0 +1,52 @@
+# JFK-Files-Part-1_page_15558.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>CLASSIFIED MESSAGE</td>
+    <td style="text-align: right;">DATE : 295 JO<br/>FROM : LEOPOLDVILLE<br/>ACTION : C/AF 3 (TEMPO COPY SLOTTED C/AF, 1000, 5 APR)<br/>INFO : COP, C/CA, C/CI, C/FI 2,C/EE 3, S/C 2<br/><em>(Handwritten: per GSH 43-43)</em></td>
+  </tr>
+  <tr>
+    <td colspan="2">SECRET</td>
+  </tr>
+  <tr>
+    <th colspan="2" style="text-align: center;">ROUTING</th>
+  </tr>
+  <tr>
+    <td>1</td>
+    <td>V. A. Mcd</td>
+    <td>4</td>
+  </tr>
+  <tr>
+    <td>2</td>
+    <td>C.S. MacLay</td>
+    <td>5</td>
+  </tr>
+  <tr>
+    <td>3</td>
+    <td>C. McLean</td>
+    <td>6</td>
+  </tr>
+  <tr>
+    <td colspan="2">APR. 5 1314Z 61</td>
+  </tr>
+  <tr>
+    <th colspan="2" style="text-align: center;">PRIORITY</th>
+  </tr>
+  <tr>
+    <td colspan="2">IN 30853</td>
+  </tr>
+</table>
+
+PRITY DIR CITE LOP 1128 (BETTELHEIM ACTING)
+
+WIROGUE RYBAT
+
+REF A. DIR 33071
+
+B. DIR 32895
+
+1. WILCO. WIROGUE NOT GOING EUROPE USING ALIBI SWANSON VISIT HERE PRECLUDES NEED. RE PARA 4 REF A WIROGUE REPORTS COL STAHL CANCELLED TRIP LOP LAST MOMENT FOR UNKNOWN REASON.
+
+2. CONTACT WITH SWANSON DELAYED UNTIL REF A RECEIVED. LONG TI INBAL DISCUSSION BETWEEN WIROGUE AND SWANSON HELD 4 APR WITH SALVACK AS TPELIDE REP. DISCUSSION CENTERED ON STRAIGHT BUSINESS DEAL CONCERNING INSTRUCTORS NEEDED, PAYMENTS, CONTRACTS, LIFE INSURANCE, AVAILABILITY, WORKING CONDITIONS, ETC. BIGGEST STUMBLING BLOCKS NOW ARE METHOD SIGNING CONTRACTS AND COST PLUS CLAIM ON SWANSON'S PART. SWANSON WILLING NEGOTIATE AND MAKE DEAL BUT DOES
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

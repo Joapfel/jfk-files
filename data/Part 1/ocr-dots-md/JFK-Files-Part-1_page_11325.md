@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_11325.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="6">INSTRUCTION SHEET</th><th>DATE</th><th>CASE NO.</th></tr></thead><tbody><tr><td colspan="3"></td><td colspan="2">8 JUL 1965</td><td colspan="2"><table><tbody><tr><td>C-101331</td></tr></tbody></table></td></tr><tr><td>SET UP FOR POA</td><td>EXPEDITE INDICES</td><td>DATE</td><td colspan="2">EXPEDITE PET INDICES</td><td>DATE</td><td></td></tr><tr><td>SET UP FOR CA</td><td>SPECIAL INQUIRY</td><td>COVERT NAME CHECK</td><td colspan="2">AREA</td><td></td><td></td></tr><tr><td colspan="7">USE</td></tr><tr><td colspan="4">ISSUE OPERATIONAL APPROVAL</td><td colspan="3">REQUEST GREEN LIST</td></tr><tr><td colspan="4">✓ ISSUE PROVISIONAL OPERATIONAL APPROVAL</td><td colspan="3">REQUEST RESULTS FID COSSIER REVIEWED</td></tr><tr><td colspan="4">EXTEND POA FOR DAYS UNTIL</td><td colspan="3">REVIEW FID COLLATERAL INFORMATION</td></tr><tr><td colspan="4">REINSTATE POA FOR DAYS UNTIL</td><td colspan="3">REQUEST RESULTS TECHNICAL INTERROGATION FROM SECURITY OFFICE</td></tr><tr><td colspan="4">FORWARD ATTACHMENT TO DIVISION</td><td colspan="3">REVIEW SECURITY OFFICE REPORT AT C/DA</td></tr><tr><td colspan="2">FORWARD TO SECURITY OFFICE</td><td>ATTACHMENT</td><td colspan="2"></td><td colspan="2">REVIEW SECURITY OFFICE CONCURRENT MEMO AT C/DA</td></tr><tr><td colspan="4">CANCEL PER DIVISION MEMBER DATED (No notice to Division)</td><td colspan="3">REVIEW AT CI/DA PEP REPORT</td></tr><tr><td colspan="4">CANCEL PER CI/DA NOTICE TO DIVISION (Reason checked below. * or see remarks)</td><td colspan="3">REVIEW OF ATTACHED REFERENCE, ADVISE CI/DA OF NATURE AND SIGNIFICANCE</td></tr><tr><td colspan="4">REQUEST RE TRACES</td><td colspan="3">✓ FILE ATT.</td></tr><tr><td colspan="4">REQUEST OPERATIONAL AND DIVISION TRACES</td><td colspan="3">TICKLE</td></tr><tr><td colspan="4">REQUEST FIELD TRACES</td><td colspan="3">NOTICE FIRST SECOND FINAL</td></tr><tr><td rowspan="2">REQUEST</td><td>PAG 1</td><td colspan="2"></td><td colspan="3">OTHER</td></tr><tr><td>PAG 11</td><td colspan="2"></td><td colspan="3"></td></tr><tr><td colspan="7">POA EXPIRED _________. PLEASE SUBMIT PRO II. IF, DURING 30 DAYS, NO FURTHER INTEREST IS SUBJECT HAS BEEN INDICATED, POA WILL BE AUTOMATICALLY CANCELLED.</td></tr><tr><td colspan="7">*FAILURE TO SUBMIT PRO II. AS REQUIRED UNDER CSI NO. 10-5 OR TO INDICATE ANY FURTHER INTEREST IN OBTAINING APPROVAL FOR THE OPERATIONAL USE OF SUBJECT.</td></tr><tr><td colspan="7">REMARKS<br/>To: WH/I<br/>For use as a reporting source from within Cuba.<br/>John F. Rally<br/><hr/>SIGNATURE ☐ 09/99</td></tr></tbody></table>
+
+FORM 707 VIE
+7-63 PREVIOUS EDITIONS
+
+SECRET
+
+GROUP 1
+Includes Phone Number Dialing and Call-Dialing
+
+(291)

@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_11113.png
+
+Convert to Markdown<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION<br>SECRET/KAPOK</th><th>DISPATCH SYMBOL AND NUMBER<br>HMA-31703</th></tr></thead><tbody><tr><td colspan="3">5. L-9 did not come in contact with Roberto FERNANDEZ Retamar. LICRAFT-1 who knows FERNANDEZ was unfortunately on vacation at the time of the Writers Congress.</td></tr><tr><td colspan="2"><em>Raymond A. Fradyl, Jr.<br>for WILLIAM C. CURTIS</em></td><td>PAGE THREE</td></tr><tr><td>FORM<br>8-64 53a<br>(40)</td><td>USE PREVIOUS EDITION,</td><td></td></tr><tr><td>CLASSIFICATION</td><td>&nbsp;</td><td>PAGE NO.</td></tr><tr><td>&nbsp;</td><td>☐ CONTINUED</td><td>&nbsp;</td></tr></tbody></table>

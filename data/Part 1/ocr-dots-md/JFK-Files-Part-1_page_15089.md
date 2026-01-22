@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_15089.png
+
+Convert to Markdown18. MILITARY HISTORY
+
+A. DRAFT BOARD REGISTRATION: In the summer of 1939 I received a notification from my rayon-voyenkomat (draft board) of my rayon and reported there on a specified date before the draft board, then I was sent in a group of other future conscripts to the rayon polyclinic for a medical check-up. I had lost the first joint of my left thumb and index fingers during an accident at the job, and when the findings of the medical examinations were reported to the draft board, I was rejected for active duty and deferred into the reserve. At that time my pripisnoye svidetelstvo (registration certificate) was exchanged for the military booklet.
+
+B. INDUCTION DATE: On about 26 August 1941, I received a notice instructing me to report to the rayvoyenkomat on 27 August. I reported there and was notified to report for induction on the following day. Then I, with a group of either 80 or 100 conscripts from my rayon, was put on the train and via Tbilisi travelled to Baku, where the group was put in so called Salyanskiye Kazarmy (Salyany Barracks) located on the outskirts of Baku, on the highway to Salyany and the Iranian border.
+
+C. BRANCH OF SERVICE AND SERIAL NUMBER: I served in the anti-aircraft artillery. I had no serial number (which is never issued in the Soviet Army).
+
+D. BASIC TRAINING: I took basic training at Salyany barracks in Baku for a period of two months. One month I took the regular basic training, and the remaining month improved

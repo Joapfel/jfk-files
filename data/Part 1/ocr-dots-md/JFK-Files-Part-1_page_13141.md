@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_13141.png
+
+Convert to Markdown6 June 1988
+
+MEMORANDUM FOR: CI/OA
+
+SUBJECT : ANCLEVE-15 (201-300985)
+
+Forwarded herewith are two copies of a current PRQ I
+on Subject.
+
+John P. Gover
+WH/3/Venezuela

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_15652.png
+
+Convert to Markdown71. Subject acts because he thinks he is right.
+
+72. Subject acts because he thinks he will succeed and because he regards what he undertakes as important. He is egotistical in this regard.
+
+73. Subject needs to prove to others that he is successful. He is self confident in his prowess but is insecure that others may not regard him as adequate as he feels he is.
+
+74. It is interesting to note that Subject participated in the release of the 13 French prisoners not out of patriotic motives, but to satisfy his taste for action. If they were German prisoners, he would have done the same thing. Actually, Subject admired the German army, had sympathy for Germans, but did not wish the French to be harmed. This is quite paradoxical but understandable in terms of the Subject's personality. His emotionalized ideals are not defined in terms of politics or nationalities, but are determined by a vague desire to help others who need it. This combination can mislead him and get him into difficulty; for example, his accomplice in the bank robbery.
+
+75. Subject is a rank individualist. He is a non-conformist. However, he realizes he must cope with the community, must sacrifice for the ________ of the community, and must not harm others. In this regard it is unlikely that Subject has ever committed physical assault, nor is it likely that he would in the future. No matter what the other person is or represents to Subject, he is still a human being whom Subject respects.
+
+76. Although Subject is basically an exhibitionist, he is not inclined to bragging or to exhibit himself in a transparent or patent fashion. He is too sophisticated. However, he needs attention and is likely to do things in order to get attention. This is what he did in 18 schools.
+
+77. As was previously mentioned, Subject helped French prisoners get back to France during the war. He thought it was the right thing to do but did not do it just for France. He was paid for it but he gave his money to help the prisoners. In terms of his hierarchy of motives, it is likely that this person acts according to what he considers to be right. He also expresses self pride in doing the outstanding, the difficult,

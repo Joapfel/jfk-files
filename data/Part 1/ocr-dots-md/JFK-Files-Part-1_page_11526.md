@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_11526.png
+
+Convert to Markdown2.
+
+4. In reply to Rowton's questions concerning the identity of the following names that appear in the letters to him from Marta Barrios de León, LIKING/3 made the following clarifications:
+
+1) "Los cabchitos" and "Los batojos" refer to Juan and Miguel León Barrios.
+
+2) "Elsa" is the true name of the eldest León Barrios sister (apparent age 25).
+
+3) "La negra" is a León Barrios sister aged about 14.
+
+4) "La chiquita" is a six-year-old sister of the León Barrios brothers.
+
+5) "Felissa" is the novia of Juán José León Barrios.
+
+6) "Yuri" is a child, probably of Maria Elena, who is a close friend and possibly relative of the León Barrios family.
+
+7) "La gorleta" and "Cari" whose identity L/3 never learned are both active members of FAR who frequently visited the León Barrios brothers and acted as FAR couriers.
+
+5. LIKING/3 told Rowton that as regards the proposed revisit to Guatemala, he was prepared to discuss this with Rowton and would be willing to undertake the hazardous mission, "if there were no other alternative", but that in any case careful plans would have to be worked out especially with regard to communications, if Rowton hoped to profit by L/3's renewed involvement with FAR in Guatemala.
+
+Wallace B Rowton

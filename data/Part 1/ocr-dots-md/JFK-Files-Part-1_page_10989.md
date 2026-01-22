@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_10989.png
+
+Convert to Markdowntional tourism intensively and, of course, is bringing in a lot of money.
+
+But what boring things I'm writing! I'm sure that you are already sleepy. Not by any means do I want you to think that these are exercises in Spanish so as not to forget it. I simply want to relate some of my impressions and observations, and you, a man so good and fine, can understand, can't you?
+
+One more interesting thing about the tourist service here. There are some typical national restaurants open where Bulgarian fantasy is represented. For example, one represents a place where there are sheep (I don't know what it is in Spanish). It's a large ratio divided into small patios, everything like in a town. There is a stone hearth in the floor, where somethingells in a big basket. Here is a stone stove, also with a fire inside. There are some farm buildings, everything true to life. To make the picture complete, in one of the small patios there is a burro, in another, some sheep, and ... they all have a terrible odor! But everybody is happy and taking pictures, etc. The waiters are dressed in national costumes and the national orchestra plays too. Can you imagine it, Luis? It's very nice! The other restaurant, for example, represents the interior of (I don't know in Spanish, in French -- the mill). There is the stone for grinding, there are filled sacks where you sit, etc., etc. The food is served in national dishes ... but let's not talk about food -- there is everything in abundance. After the first admirations ("what delicious cherries!", what big peaches!", etc.), I discovered a great danger for me in all this. If, for example, Anguel gains 2 - 4 pounds, it's no problem but for me it's problem #1!
+
+I'll close now. Before closing I'll tell you a joke (appropriate!). A family went to bed one night. Suddenly a loud noise was heard -- the cat knocked something over in the kitchen. But the frightened woman cried: "Run, my husband is coming!" and her husband, frightened also, jumped out of the window in his pajamas.
+
+Until later, Luis. I give you my hand. The letter -- between us, is that all right?
+
+Kira KOSOFSKA
+
+2

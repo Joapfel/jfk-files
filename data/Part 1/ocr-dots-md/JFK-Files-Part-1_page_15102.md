@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_15102.png
+
+Convert to Markdown20 further comments that while Subj returns to the Conao to conclude his business (and on the way stop off in Geneva and Brussels to take care of his matter for the Defence Ministerium) we would upon his return given him a new passport, probably a second Austrian passport, but in the name of德国，他 could moreover be any effort to get him into a South American country where he, with a minimum of effort and difficulty could legalize and establish citizenship. Subj stated that he is or would be very thankful for this assistance. He then mentioned that he does not really have any business to take up for the Fersixx Defence industry, but that was just a ruse to get him out of the country. Moreover that in the event he does not sell his invention he has no intention to return to the Conao since he will not have sufficient funds to pay for his return trip to Germany.
+
+* Subj promised to call CO upon his return from Düsseldorf.

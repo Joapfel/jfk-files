@@ -1,0 +1,67 @@
+# JFK-Files-Part-1_page_12505.png
+
+Convert to Markdown4. CIPFENCE-4
+
+CIFENCE-4 continues to be a reliable and steady Station
+asset who enjoys the confidence of and has a very close working
+relationship with CIFENCE-1. His recent acquisition of Venezuelan
+citizenship has increased his stature with CIFENCE-1 and among
+the Venezuelans with whom he works. He continues on his own
+to provide information coming into his possession which he feels
+will be of interest to JKLANCE and also continues to pass to
+the Station numerous reports from CIFENCE and other security-
+intelligence agencies. His most valuable contribution during
+this reporting period was the information indicating that a
+CIFENCE officer had information which could have led to the
+discovery by CIFENCE of the Station's CIGRAPE operation.
+CIFENCE-4 was able to convince this officer in a very discreet,
+innocuous manner that the information was of no value and should
+not be brought to the attention of CIFENCE-1. The officer was
+convinced, and no investigation was conducted. In the meantime,
+the Station completely disbanded the CIGRAPE operation. At .
+each meeting with his Case Officer, CIFENCE-4 is asked if there
+is anything new in regard to this case and he has replied there
+are no new developments and feels the issue is a dead one. The
+Station feels the original information from CIFENCE-4 is the
+type that really proves the value of a good asset. Interesting
+documents provided by CIFENCE-4 during this reporting period
+include a list of all personnel working in Venezuelan diplomatic
+ Missions abroad, a CIFENCE report about the investigation of the
+ purchase of arms in Miami by unknown elements in the Venezuelan
+ Ministry of Defense, a package containing several documents from
+ CIFENCE and other sources about Communist activities in Venezuela,
+a report dealing with possible conspiring against the GOV by
+Venezuelan military officers, a list of various subversive
+organizations located in several different countries, a report
+about the possible presence in Venezuela of Colonel Caamano Deno,
+
+<table>
+   <tr>
+    <td>
+     FORM #64 (10)
+    </td>
+    <td>
+     53a USE PREVIOUS EDITION.
+    </td>
+    <td>
+     CLASSIFICATION SECRET
+    </td>
+    <td>
+     [XX] CONTINUED
+    </td>
+    <td>
+     PAGE NO. -6-
+    </td>
+   </tr>
+  </table>
+
+CONTINUATION OF
+DISPATCH
+
+SECRET
+
+MVCA - 17920
+
+a report about the reorganization of CIFENCE, a list identifying automobile license plates used by foreign diplomats in Venezuela, a list of personnel employed by CIRASH, a key to the communications code used by CIRASH, the CIFENCE report about the surveillance of YEBALM during his most recent trip to Caracas and copies of CIFENCE reports about the surveillance of the first two Soviet diplomats now in Caracas. In addition, CIFENCE-4 has conducted name traces and identified automobile license plates for the Station and soon will provide unidentifiable license plates for use by the Station on vehicles rented for surveillance and other operational needs.
+
+CIFENCE-4 is chief of the operations section of CIFENCE and, as such, has responsibility for surveillance of Soviet and Bloc personnel in Venezuela. Through him, the Station has the means of monitoring quite closely the movements and activities of these persons. Also, we are able, to direct CIFENCE-4 to conduct special surveillances of Soviet and Bloc person who may not be under surveillance by CIFENCE as a routine procedure. The current position of CIFENCE-4 within CIFENCE is very good and should remain so as long as CIFENCE-1 remains as head of CIFENCE. CIFENCE-4 feels there is a good possibility that if CIFENCE-1 leaves his present position he (CIFENCE-4) will be removed from CIFENCE. Should this happen, the Station will lose access to an important position within CIFENCE and CIFENCE-4 will lose his principal source of income. CIFENCE-4 has said several times he would like to have a career with JKLANCE and would be willing to work in any country of the world for us. If CIFENCE-4 eventually loses his position within CIFENCE and is unable to obtain another position in Venezuela that would provide access of interest to JKLANCE, Headquarters may wish to consider using him in some other country.

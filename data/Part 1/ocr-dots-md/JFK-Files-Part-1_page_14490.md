@@ -1,0 +1,167 @@
+# JFK-Files-Part-1_page_14490.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>5</td>
+    <td>4</td>
+    <td>3</td>
+    <td>2</td>
+    <td>1</td>
+   </tr>
+   <tr>
+    <td colspan="5">Personnel</td>
+   </tr>
+   <tr>
+    <td>U</td>
+    <td>Yrs</td>
+    <td></td>
+    <td>S</td>
+    <td>Ting</td>
+   </tr>
+  </table>
+
+<table>
+  <tbody>
+    <tr>
+      <td>Controlled Distribution</td>
+      <td>CS COPY</td>
+      <td>No</td>
+      <td>Distribution Abroad</td>
+    </tr>
+  </tbody>
+</table>
+
+The dissemination of this document is limited to U.S. military personnel with the intelligence compartment of the USA member agencies, and to those levels of U.S. government employees who must act upon the information contained in it. Dissemination shall be limited to the extent necessary and rolled in accordance with paragraph 8 of DOD 1102.1. It may be released to those commercial, of the Department of Defense, or to the U.S. Government directly participating in the production of National Intelligence. It shall not be distributed to CONITACs unless specifically authorized to do so. It may be distributed to officials, including contractors, under a confidential relationship with the U.S. Government without the written permission of the employee.
+
+<table>
+   <tr>
+    <td>
+     A-1
+    </td>
+    <td>
+     B-1
+    </td>
+    <td>
+     C-1
+    </td>
+    <td>
+     D-1
+    </td>
+    <td>
+     E-1
+    </td>
+    <td>
+     F-1
+    </td>
+    <td>
+     G-1
+    </td>
+    <td>
+     H-1
+    </td>
+    <td>
+     I-1
+    </td>
+    <td>
+     J-1
+    </td>
+    <td>
+     K-1
+    </td>
+    <td>
+     L-1
+    </td>
+    <td>
+     M-1
+    </td>
+    <td>
+     N-1
+    </td>
+    <td>
+     O-1
+    </td>
+    <td>
+     P-1
+    </td>
+    <td>
+     Q-1
+    </td>
+    <td>
+     R-1
+    </td>
+    <td>
+     S-1
+    </td>
+    <td>
+     T-1
+    </td>
+    <td>
+     U-1
+    </td>
+    <td>
+     V-1
+    </td>
+    <td>
+     W-1
+    </td>
+    <td>
+     X-1
+    </td>
+    <td>
+     Y-1
+    </td>
+    <td>
+     Z-1
+    </td>
+   </tr>
+  </table>
+
+<table>
+  <thead>
+    <tr>
+      <th>Name</th>
+      <th>Role</th>
+      <th>Unit/Title</th>
+      <th>Date</th>
+    </tr>
+  </thead>
+  <tbody>
+    <tr>
+      <td>Claudia</td>
+      <td>Major</td>
+      <td>NCO</td>
+      <td>Mar 1970</td>
+    </tr>
+    <tr>
+      <td>Kim</td>
+      <td>Corporal</td>
+      <td>NCO</td>
+      <td>Mar 1970</td>
+    </tr>
+    <tr>
+      <td>John</td>
+      <td>Sergeant</td>
+      <td>NCO</td>
+      <td>Mar 1970</td>
+    </tr>
+    <tr>
+      <td>Tom</td>
+      <td>Private</td>
+      <td>NCO</td>
+      <td>Mar 1970</td>
+    </tr>
+    <tr>
+      <td>Mary</td>
+      <td>Sergeant</td>
+      <td>NCO</td>
+      <td>Mar 1970</td>
+    </tr>
+    <tr>
+      <td>David</td>
+      <td>Private</td>
+      <td>NCO</td>
+      <td>Mar 1970</td>
+    </tr>
+    <tr>
+      <td>Michael</td>
+      <td>Private</

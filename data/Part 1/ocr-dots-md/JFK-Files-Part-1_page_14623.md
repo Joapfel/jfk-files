@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_14623.png
+
+Convert to MarkdownReport No. 2061
+
+31 October 1969
+1. 2 November 1969
+
+**FILIPPO CAILIS (JUNO AGOSTINO).** MAURIZIO VECCHI (SERNAN).
+
+They agree to meet at the celeritas so later on (bony).
+
+**FRANCISCO CALLS HIS FATHER AND SAYS OK.** They send kites through the phone and talk of their great love for each other.
+
+Report No. 2063
+
+3 November 1969
+
+**MARCOTO CALIS MELINDA ANTO AT THIS TIME.** He's not in. Franco leaves the house and says that a letter has arrived from Canto's father and he'd like to give it to him.
+
+**PONTO CALIS ANTONO.** Angelo mentions to Franco a letter signed by Curbelo which he has lost. In the letter Curbelo authorized the ticket of an American named Colish (to go to Cuba) with Report No. 2066.
+
+3 November 1969
+
+**FARRILLOR CAILIS NUNEZ.** He tells Nelson that Nilda (Ruiz) painted at the Galerias Preciosas, but that now she is at home resting.
+
+**RUIZ CALIS DR. TERESA DELE.** The doctor is not there. Ruiz talks to the doctor's wife. He says he is a little afraid, because Nilda has had five previous pregnancies and this is the first time she has had any trouble.
+
+Report No. 2067
+
+**FRANCO CALIS DR. ROSARIO CAUTO.** Franco says that Sr. RUIZ wants
+
+Nilda calls Espino on 11 November 1969, according to her who has had from Simon DORTA, young Guillermo DORTA, much more contented in Cuba hims: than the was (CIMAD - CTSA-15713, 5 Dec. 1969).

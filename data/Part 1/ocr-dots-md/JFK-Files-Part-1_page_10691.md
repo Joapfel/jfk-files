@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_10691.png
+
+Convert to MarkdownSECRET
+
+14-00000
+
+<table><thead><tr><th colspan="3">ROUTING AND RECORD SHEET</th></tr><tr><td colspan="2">INSTRUCTIONS</td><td rowspan="5"><table><tbody><tr><td>PROPER FILE NO</td></tr><tr><td>TO ALL ADDRESSEES</td></tr><tr><td>FILL IN SECTION I ON BACK IF APPROPRIATE</td></tr><tr><td>COMMENTS</td></tr><tr><td></td></tr></tbody></table></td></tr><tr><th colspan="2">PRIOR TO FILING</th></tr><tr><td colspan="2">1. Fill in Sect 2 on back and attach back flap and forward to P.O. Box 36711. 2. Destroy all cover sheet, unless it records significant action taken or comments requiring preservation.</td></tr><tr><th colspan="2">FROM:</th></tr><tr><td>RID,</td><td>JW</td></tr></thead><tbody><tr><th>TO</th><td>ROOM NO</td><th colspan="2">DATE</th><th rowspan="17" style="writing-mode: vertical-rl; text-align:center; transform: rotate(180deg);">OFFICE'S DETAILS<br/>e.g.<br/>Appradiated<br/>C 528-312/01431-66</th></tr><tr><td rowspan="17"></td><td rowspan="17"></td><th>RECEIVED</th><th colspan="2"></th></tr><tr><th>FORWARDED</th><th colspan="2"></th></tr><tr><th>OFFICE'S DETAILS</th><td colspan="2"></td></tr><tr><th>WH/C/ES</th><td>10 May 66</td><td>G</td></tr><tr><th>Coutnerlee</th><td></td><td>A</td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th></th><td></td><td></td></tr><tr><th>MD/I</th><td></td><td></td><td>FILE TITLE</td></tr><tr><th>TRACE REQUEST</th><td>ABSTRACT</td><td>X</td><th>FILE NUMBER (PRIMARY CODE)</th><td>201-042669</td></tr><tr><td></td><td>INDEX</td><td></td><td></td><td>DOCUMENT NUMBER<br/>UFG 08225 ✓</td></tr><tr><td colspan="2">DATE MICROCOPYED</td><td>Document Date</td><td colspan="2"></td></tr><tr><td colspan="2"></td><td>9 April 1966</td><td colspan="2"></td></tr></tbody></table>
+
+FORM 103 610a USE FOR NON-MI DOCUMENTS
+
+SECRET
+
+103

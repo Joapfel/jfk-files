@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_11572.png
+
+Convert to Markdown28 November, 1963
+
+Subject: LIRING/3 Report of Meeting with LIRING/9.
+
+1. LIRING/3 reported to Rowton at 0915 on 27/11/63 that he had met with LIRING/9 at the LIRING establishment from about 1745 until 1900 on 26/11/63. He stated that he gave LIRING/9 his written report on his recent experiences in Guatemala and the conclusions he drew from talking with FAR members there. L/3 also stated that he did his best to assure L/9 that, although he sympathized with the laments of the León Barrios brothers, he was really on the PBRUMEN side and offered to do all he could to assist the LIRINGs in their attempts to assist the revolutionary forces. The following is Rowton's reconstruction of the conversation, based on LIRING/3's report:
+
+L/3: "I'm sorry to be late, but I had to finish the report."
+
+L/9: "Alright. I've been waiting here at the gate so there wouldn't be any further delay. Let's go to my office so we can talk privately."
+
+Upon entering office, L/9 removes jacket and offers L/3 a seat in the office.
+
+L/3: "Well, here's my report. I must apologize that it's in rough draft form. I had to write it rather hurriedly when my wife was not around. It's really just a series of badly organized thoughts and ideas but I'll be glad to explain. There's a great deal more, of course, that I could explain on the subject. Do you wish me to read it?"
+
+L/9: "No, that's alright.
+
+L/9 glances through the report and continues:
+
+"I'll read it carefully later. I really didn't expect such a long report. I appreciate it. In the meantime, how are you doing in your personal affairs?"
+
+L/3: "Well, as I told you last time, I'm very much up in the air at the moment. My exposition has started but is not going as well as can be expected - as well as I had hoped. You know, these things have their ups and downs. I'll sell some things, at least to cover my current expenses, but I'll really have to get better organized financially in the near future. The first problem that I'm really worried about is my wife, and I frankly feel that I must appeal to you for help.
+
+L/9: "Of course. Well, what is the problem?"
+
+L/3: "As you know, some time ago my wife and I had a series of unpleasant situations that almost led to a separation.."
+
+L/9: "Is that right! Was it that serious?" "anything political?"
+
+L/3: " No, absolutely not. It was purely a domestic misunderstanding. Now I feel that I must be very frank with you. I was probably responsible
+
+Alcatt: 1
+HAIMA- 36405
+
+CS COPY SECRET

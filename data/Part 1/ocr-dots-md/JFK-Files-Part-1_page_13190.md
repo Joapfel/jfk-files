@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_13190.png
+
+Convert to MarkdownFrom: CICUSTY Operational Reporting for February 1968
+
+HVCA-15094, 22 March 1968
+
+75 - 6 - 43/3
+
+AMCLEVE-15
+---
+He is the Station's new penetration of
+CIRASH and has provided excellent infor-
+mation on the activities of CIRASH, CIRASH-4
+and CIVISTA-5. He has been put on a salary
+of Bs 1,000 per month, to start.
+
+224.00

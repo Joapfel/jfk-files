@@ -1,0 +1,66 @@
+# JFK-Files-Part-1_page_15408.png
+
+Convert to MarkdownMESSAGE FORM 25
+
+ORIG: D. Lamouroux: jjf
+UNIT : AB/OPS/3/SOD
+EXT-: 7367
+DATE: 13 Oct 1964
+
+☐ INDEX
+☐ NO INDEX
+☐ FILE IN CS FILE NO.
+
+<table><tr><td colspan="2">ROUTING</td></tr><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table>
+
+TO : PANAMA CITY
+FROM : DIRECTOR
+CON. Sod-L
+
+INFO WH-7, DDP, WHPA-8, CHCR, URFILE
+
+SIG CEN
+
+TO PACY
+CHAPPIE WITHRUSH
+
+CITE DIR 56647
+
+1. REQUEST FIELD TRACES ON EDWARD JULIUS WHITEHOUSE INSUA, CUBAN,
+DPB: 14 MAR 1918, SANTIAGO, CUBA. EMPLOYED BY PANAVEN AIRLINES, PANAMA, JL
+
+JAN 63 TO JUN 64.
+
+2. LIAISON AUTHORIZED.
+
+3. PLS ADVISE SOONEST.
+
+END OF MESSAGE
+
+AB/OPS/3/SOD R. Limón
+C/WH/2/P Joseph K.lima/wh/lm
+
+DESMOND FITZGERALD
+C/WII
+
+BERNARD J. FINAN, JR.
+C/AB/SOD
+
+<table><tr><td>COORDINATING OFFICER</td></tr><tr><td>S-E-C-R-E-T</td></tr></table>
+
+AUTHENTICATION OFFICE
+MICROFICHE
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No. 5
+4
+3
+2
+1
+
+1
+2
+3
+4
+5
+
+T4-00009

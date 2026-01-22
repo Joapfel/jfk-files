@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_14382.png
+
+Convert to MarkdownReport No. 348 (continued)
+
+They tell Ruiz that the person that is here is ALARCON; he hasn't seen him, nor has he received any cable about his arrival.
+
+Then the ambassador asks Ruiz if they carry pistols here. Ruiz shows him one with five chambers, with which he can shoot without taking it out of his pocket. He says they won't kidnap him, and that one has to be prepared for there are 10,000 Russians here.
+
+Ruiz tells the ambassador to consult with ROA and tell him that he has received a cable telling him to be in Havana the second week of July, but that the National Day in Spain is on the 18th. He says that he doesn't want to miss this celebration, because the Minister of Foreign Affairs came to their fiesta, and he would have to explain about the reunion in Havana and all that, and they could think something else. So that he is thinking of staying even if he has to leave the very next day on the 19th.
+
+## Report No. 349
+
+Some comrades arrive. It appears to be the Alfaras. Mercedes calls Iberia and confirms reservations for the afternoon flight to Havana, 7-9-41, in the names of Carlos Alfara and Berta Fernandez. She asks what time they should be in the airport in order to leave on the six o'clock flight. They tell her they should be there an hour before flight time.
+
+Ruiz begins to dictate the following to Nilda, in a very low voice: "To enlarge further on the report dated 7 of the current month regarding my meeting with the Minister of Labor, Sr. LICINIO DE LA FUENTE, in relation to the request of the National Institute of Fish- ing and the Ministry of Basic Industries for contracting Spanish technicians, we wish to inform you that today we received a telephone call from the Executive Officer to the Ministry of Labor. He informed us that our request for Spanish technicians is still being considered, but that the Minister of Labor and the Spanish government wishes to communicate official- ly to my Government, their official displeasure with the pos- ition adopted by the Cuban representation in the last meeting of the O.I.T.(I.L.O) reserving a proposition that interferes in the internal affairs of Spain. Unfortunately the Minister of Labor had confirmed the request of our representative in Geneva contradicted the efforts that were being made at high levels of our countries for the betterment of our relations, and the cooperation, and for the brotherhood that should exist between two peoples of the same blood.
+
+My total lack of knowledge of what took place in the I.L.O. with regard to Spain, and the position taken by our delegation, precludes me from answering with accuracy, limiting myself only, to saying that I would pass on the words of the Minister and that an explanation of the problem would be given.

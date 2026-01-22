@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_12103.png
+
+Convert to MarkdownSECRET
+
+References:
+
+Henry S. Hooibridge (former General Manager of Raymond-Hartcomb Inc. - now Assistant to the President, American Optional Co.)
+
+Warron Lee Mierson
+Chairman of the Board
+Trans World Airline
+New York, New York
+
+Subject holds U. S. Passport No. 227 and Social Security No. 091-09-6737.
+
+SECRET

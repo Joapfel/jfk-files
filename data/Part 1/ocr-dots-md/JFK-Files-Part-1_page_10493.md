@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_10493.png
+
+Convert to Markdown7 July 1973
+
+NEWNOTICE OF THIS RE-2040
+SUBJECT: Jimmy G. MacFerrier's Conversation with Nacional MacFerrier, Jr.
+
+1. On Sunday, 2 July 1973, from 1000 to 2000 hours at the Chemical Laboratory, Arlington, Va., I did not find any one there. To my knowledge I was the only person in the building present on that date. I am unable to determine what time I could be present to enter the next Foreign Service Institute class.)
+
+2. MacFerrier and I, old National Guard comrades, had not seen one another for 5 months. We had dinner and later went on a tour of apartment sites in the District and northern Virginia. During the course of the conversation, he related the events of his trips to Mexico and his recent trip (June 1972) to Colombia in the course of his job as Vice-President, Sales, Military Amendment Corp.
+
+Mexico: Subject mentioned the trouble the "Mexican Government is having with leftist guerrillas, particularly in two western states. He claimed the rebels were being trained in part by U.S. adventurers who claimed to be ex-ranger, airborne Marine or Special Forces types, many with Vietnam experience. The Americans were training the rebels in return for money and marijuana and a piece of the drug smuggling action. The Americans operated under the non de guerre "Force Seven". This same "Force Seven" claimed to have connections and affiliations in Guatemala. Subject claimed even to have participated in a small firefight with the Mexican Army and the Judicial Police against the guerrillas in an effort to prove the worth of his particular military products.
+
+SECRET
+
+CLASSIFIED BY: 51-1391
+
+EXCEPT FROM GENERAL DELEGATION SCHEDULE
+OF E. O. BLUNT, EXEMPTION CASES:
+C1(1), C2) (3) or (4) (this case is other)

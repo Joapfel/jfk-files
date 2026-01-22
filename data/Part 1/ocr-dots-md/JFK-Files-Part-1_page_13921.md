@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_13921.png
+
+Convert to Markdown671.
+
+Entrada 1742.- JUAN con ROGELIO (están a hablar en el núm. 114) para preguntarle si el viernes recibió algo pa- ra él y ROGELIO dice que nó. - JUAN:¿que si algún recado,- ROGELIO:¿que ninguna. - JUAN: porque el amigo que se fué, - quedó de que el viernes le mandaría un recado después de - haber hablado con un amigo allá.... - ROGELIO lo interrumpe y agrega que espera que llegue éste viernes que viene. - JUAN pregunta si "él" y ROGELIO dice que nó, que el recado. JUAN: que era un poco urgente, que era para un caso relacio- nado aquí con Frensa Latina y "él" quedó én hacerle la cosa al día siguiente do su llegada y calculaba que el viernes ó el lunes... preunta si hoy no vino avión y ROGELIO dice - que nó, que hasta el miércoles ó viernes. - JUAN:¿que en- tonces se comunicará con ROGELIO el miércoles ó irá a verlo. ROGELIO acepta y agrega que verá si mañana pasará por su - casa para tomar un café, a las 5. - JUAN:¿que mañana nó, - porque desde en la mañana estará todo el día fuera; prenota si es muy muy urgente y ROGELIO comenta que regular. - JUAN prenota si lo pueden dejar para pasado, el miércoles- como a las 5 y ROGELIO está de acuerdo.- 127.-
+
+17:42
+
+JUAN, de acento español, preforma a ROGELIO/NOMIOLES de la In- bajada Cabana, que si ha recibido alcoho la noche por- el. NO Gatis informa que nada. JUAN indica que "el amigo que se fú- aciós de que me pondrás un recado después de haber hablado con un amigo allá". ROGELIO dice que tel vez lo haga el miércole o el viernes que ay vuclo de laillaña. JUAN manifiesta que un poco urgente, porque es una corte relacionada con Frensa Latina. ROGELIO dice que anímame irá a su casa a tomar café. JUAN dice que mejor el miércole, porque mañana va a estar en el ocupado toda la mañana. ROGELIO está de acuerdo.

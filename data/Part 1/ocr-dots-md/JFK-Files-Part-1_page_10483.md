@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_10483.png
+
+Convert to MarkdownSECRET
+
+7. Peterson believed, and we are inclined to agree, that Rolando Jr., may be a good candidate for source development. He will be located at 905 L'Enfant Plaza, Washington, D.C., as the representative of Military Armaments Co. He will also represent Paraballum Corporation on another military weapons firm.
+
+8. Dan and Bradstreet reports were requested from New York and a copy will be forwarded when received.
+
+JAMES R. MURPHY
+
+Gtusalia/lld
+cc: Services Division (Control)
+FILED: HH 23880
+23880
+
+SECRET
+
+14-00000

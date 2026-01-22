@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_15347.png
+
+Convert to Markdown4. Less than 24 hours after facing Whitehouse to advise him that his claim of USD 1950 had been reduced to 1027.66, Whitehouse reacted with the newspaper media in an exemplary manner when he could have ~~reacted~~ with a adverse feeling. The Subject despite difficulties encountered in the field with KUBARK advisors appears to be man of honor and certainly under controlled situations ~HSO~ professional pilot and could be an asset to KUBARK interests.
+
+Edward W. LORENTZ
+
+~~reacted~~
+the newspaper media
+adverse feeling.
+KUBARK
+of USD 1950
+exemplary manner
+when he
+applies
+in the field
+the subject
+under controlled
+to be man of
+professional pilot
+an asset to
+E.W.Lorenz
+
+~~that~~
+~~反应了~~
+difficulties
+encountered
+到...的
+Professional pilot
+被...的
+E.W.Lorenz
+在...上...
+
+14-00000

@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_11734.png
+
+Convert to Markdown14-00000
+
+• Sky Report
+from
+Peter Warwick
+
+S. P. M.
+Correspondent
+
+MILESTONE
+
+A most important gentleman had an unusually important day this week. Charles Philip Arthur George, son of Princess Elizabeth and Prince Philip, and England's future King, became three.
+
+It was a happy day all round. For not only did Bonny Prince Charles enjoy to full measure the usual delirium of the small boy's birthday, but the King felt fit enough to attend the party and invite a Press photographer.
+
+The King's rapid recovery to the point where he can walk unaided and move with no apparent strain has astonished and delighted the nation. The TIMES photographer - the first member of the public to see him since his operation - reported in some amazement that the King showed no sign of illness, laughed and chatted happily and seemed altogether out of character for a man so recently at trips with major surgery.
+
+The Prince's birthday began, as swings. Still, he seems happy every such day should, with eager opening of many parcels. He was then taken for his usual outing in St. James's Park - that delightful playground that he can never fully enjoy. For, as a royal prince he must not sail boats in public ponds or feed ducks, or ride on the grubby lead soldiers. He's a firm
+
+had the ability
+
+On his third birthday, he shows many of the characteristics of aOK. main lines and a slight comprohensive (but undetected) lack of much. He spends all of his time with adults and is past the baby-talk stage: he is bright, interested in everything and very obviously no교. He has had to learn to bear long absences from his parents and conduct himself with dignity in public. London, the world's most critical judge of royalty, awards him too marks all round in its third Report on Progress, and heartily wishes him very many happy returns.
+
+TRAP
+
+Londoners face a new hazard, another pit in the treacherous bag of regulations that surrounds today's law-respecting citizens.
+
+This week, careful sidesteppers along the narrow pathways of rectitude learned that the phone may lead to a fine.
+
+In our public telephone boxes are two buttons; after the money has clicked into the box and some sort of response been evoked the caller presses Button A so that the other end can hear him. If he gets the wrong number or none at all he presses Button B and gets his money back, usually. Sometimes, the mechanism appears to develop an unusual conduction in its behaviour and pours out a shower of coins, wildly in excess of the Button B presser's due. Till now, this pleasant quirk has invested the dull business of telephoning with a certain sporting quality. No call is complete without a hopeful lunge at Button B.
+
+The other day, it seems, a youth trying to phone his girl-friend was getting no reply, which is trouble enough, anyway. Pressing Button B, he was rewarded with eightpence, five more than he was entitled to. If there's one soul in the whole of London's ten million who wouldn't have pocketed that extra fivepence it certainly wasn't our young swain. Unfortunately, somebody spotted his transaction and the lad eventually found himself in court as wrong a number as anyone ever got.
+
+They fined him ten shillings, saying that he should have returned the other fivepence to the box or a post-office. The authorities explain that people who forget to press Button B to regain their money claim on the Post Office and, therefore, anyone pocketing money thus hurled at them is robbing the Postmaster General. There may possibly be people who claim for the odd forgotten threepence, but this column has never met even a remote friend of one.
+
+So something of the sport has gone out of life. And a lot of people are congratulating themselves on a narrow escape from disgrace. There, but for the grace of God. The lad seems to have had less than a generous deal from Fate. London hopes he at least enjoyed the consolation of a plausible explanation by his girlfriend.
+
+—000—
+
+H O P F
+
+Among the more frightening visions floating in the mind's eye is now one of cohorts of pump ladies standing purposeful. on their heads. For somebody has discovered that this unmitigating corner produces a reduction in weight.
+
+Bain's amateur bantam-weight boxing champion had a spot of business up at Westgate this week which necessitated his closing a
+
+overweight as he took a hot bath and jogged about a bit and had another shot. No matron ever regi- nered more disappointment on a weighing machine, he was still overweight A bystander, who might have been a stitch-doctor but who was a more than ordinarily knowledgeable gymnast, suggested the dejected hantam-weight should stand on his head. Surprisingly, instead of giving the know-all a clip on the

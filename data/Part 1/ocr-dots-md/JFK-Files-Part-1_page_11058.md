@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_11058.png
+
+Convert to MarkdownLa Habana, 24 de Mayo de 1966
+"ANO DE LA SOLIDARIDAD"
+
+Estimada compafiera:
+
+Tengo el gusto de trasladar a Ud. una copia traducida, de carta dirigida a nuestro Agregado Cultural en Londres, por el Sr. Bernard G. Mullins de aquella ciudad.
+
+En dicha carta el Sr. Mullins, que representa la "muter nsons rublising", se interesa y pide información sobre la posibilidad de publicar obras de poesía y ficción latino-americanas, traducidas al inglés.
+
+Con saludos revolucionarios de "PATRIA O MUERTE", "VENCEREMOS", me reitero de Ud.
+
+KXO:una copia de carta del Sr. Bernard G. Mullins, de Londres, Inglaterra.
+
+la Comp. Marcia Leiseca,
+Casa de las Américas.
+O y Tercera, Vedado.

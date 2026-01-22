@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_15039.png
+
+Convert to Markdown12-00600
+
+11 February 1963
+
+OC-5517
+
+An
+Das Bundesamt fuer Verfassungsschutz
+zu Hdn des Herrn Dr.Meier
+Koer.
+
+BETRIFFT: Georg SANDERS, geb. 25.7.1919 in Tiflis, UdSSR
+
+BEZUG: Dort. Schreiben vom 14 Dezember 1962 - IV A 4-112-P-50580-2/62
+
+Subject is of continuing operational interest to AIS: Accordingly, it would be appreciated if your investigation were suspended. Should our operational interest be terminated at any time while Subject remains in the German Federal Republic, we will automatically furnish you with the details of this case.
+
+C. W. Schmitz
+CCA Liaison Officer
+
+GEHEIM!

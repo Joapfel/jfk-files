@@ -1,0 +1,342 @@
+# JFK-Files-Part-1_page_13156.png
+
+Convert to MarkdownSECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+1. AMCLEVE-15 PASSED SGSWIRL EXAM 23 MAY WITH SATISFACTORY CLARIFICATION ALL POINTS OF CONCERN TO HQS. POUCH FOLLOWS.
+
+2. WISH THANK JMWAVE FOR REF WHICH MOST USEFUL IN PRE-TEST DISCUSSIONS WITH SGSWIRL OPERATOR.
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15
+volfize
+
+SECRET
+
+BT
+
+SECRET
+
+27 May 68 in 19272
+
+Amcleve-15

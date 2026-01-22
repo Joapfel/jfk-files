@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_15369.png
+
+Convert to MarkdownAttachment to Dispatch No. UAPA-0099
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: WITHRUSH Crew Training Report
+
+1. The object of the crew training was to test each pilot on his knowledge of the aircraft systems and emergency procedures and to check ride each pilot and give him refresher training as required.
+
+2. The following named pilots received ground and flight training as listed below:
+
+| | Ground School and Training | Flight Hours |
+|---|---|---|
+| Iden A | 10½ | 7+20 |
+| Iden B | 10½ | 1+30 |
+| Iden C | 10½ | 1+30 |
+| Iden D | 6400 | 4+30 |
+| Iden E | 8400 | 4+35 |
+| Iden F | 10½ | 5+05 |
+| Iden G | 26400 | 7+20 |
+| Iden H | 26400 | Obs. 10+40 - Trg. 8+05 |
+| Iden I | 20400 | 6+20 |
+
+3. Evaluation of each pilot as follows:
+
+a. **Iden A** - Had flown C-46 about 1200 hours before and was picking it up very nicely. I gave several engine out - single engine landing and go-arounds - no flap landing - emergency gear extension. Short field landings several ILS approaches.
+
+b. **Iden C** - Was the pilot who cracked up the other C-46, plus he was unwilling to fly at night. I gave him 1½ hours of air time and recommended he be used only as a co-pilot on ground as of poor head work.
+
+c. **Iden B** - He is an older pilot who would bounce the airplane and then sit there waiting for it to hit again, without adding power to let it down easy. He also wanted to feather the wrong engine after one was cut. Recommended he only be used as a co-pilot.
+
+d. **Iden D** - He had been flying in and around Iden J for several years, however, in his training he was quite sloppy in his flying. he would not come within 20° of assigned heading turns at the beginning.

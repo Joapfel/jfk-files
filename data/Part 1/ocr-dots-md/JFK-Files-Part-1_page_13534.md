@@ -1,0 +1,56 @@
+# JFK-Files-Part-1_page_13534.png
+
+Convert to MarkdownVIERA LIMARES, JOSÉ
+
+DGI
+(201-328953)
+Leaving PCS
+Phone
+Dependents
+
+14 April 1970
+
+Pct.
+
+Counselor
+305 E. 72nd St., Apt. 2E, NYC
+AG 9-2877 (Acaldes)
+MARTA BERNUEDEZ GARCIA, wife;
+JULIO ANTONIO VIEIRA Y BERNUDEZ,
+son; ISABEL BEATRIZ VIWA y
+BERNUDEZ, daughter.
+
+ADD ON:
+
+FERNANDEZ Padilla, Victoria
+POSITION (201-340661)
+RESIDENCE
+PHONE
+DEPENDENTS
+
+17
+ATTACHE
+220 E. 63rd St., Apt. 5 M, NYC
+None
+
+CADALSO Bandomo (n), Rafael
+
+lebailel DGI - CODE clerk
+Arrived early
+April 1970
+
+POSITION
+RESIDENCE (201-866098)
+PHONE
+DEPENDENTS
+
+Attache
+CMUN, 6 E. 67th St., NYC
+UN 1-5250 (Readers)
+NANCY GUIROLA MAZAURRIETA, wife;
+RAFAEL CADALSO GUIROLA, son;
+MARLEN CADALSO GUIROLA, daughter
+
+10-5-72
+
+- 4 -

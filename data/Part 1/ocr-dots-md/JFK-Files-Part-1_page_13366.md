@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_13366.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td>INDEX: ☐ YES ☐ NO</td></tr><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>X-REF TO FILE NO.</td></tr><tr><td>FILE RID ☐ RET. TO PRANCH ☐</td></tr><tr><td>DESTROY ☐ SIO.</td></tr><tr><td>DISTRIBUTED BY #1 PER __________</td></tr><tr><td>ACTION [X] RID COPY</td></tr><tr><td>ADVANCE COPY [ ] ISSUED [ ] REISSUED [ ] TOLERATED</td></tr><tr><td>UNIT ______ TIME ______ BY ______</td></tr><tr><td colspan="3">SERVICE</td></tr><tr><td colspan="2">FILE, YR. clw 6 dcl 1/1-2 066-2000 PDP</td></tr><tr><td>JMWAVE 8039 PARA 1</td><td>7 JULY 67</td><td>[STATION IN NR]</td></tr><tr><td>STA &amp; NR</td><td colspan="2">DATE</td></tr><tr><td colspan="3">PLEASE CORRECT THE GARBLEDE PORTION(S) OF THIS MESSAGE TO READ AS FOLLOWS:</td></tr><tr><td colspan="3">PORTION OMMITTED<br/>"AS POSSIBLE WITHOUT EXPOSING AMCLEVE-15 OR HIS WOFACT EMPLOYMENT.<br/>THE FOLLOWING PROPOSAL WAS REACHED AND"</td></tr></table>

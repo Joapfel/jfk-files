@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_15804.png
+
+Convert to Markdowncaught double pneumonia again, he'll be laid up at least until September which has plunged us all into (free translation) our ears in debt -- a matter of money naturally! Therefore, I'd like to tell you that your letter makes me very happy. You should certainly be framed with the most beautiful frame that exists in this whole wide world for there is surely no two like you has far as we are concerned in naturally. May heaven take it/to consideration toward the redemption of all your sins, amen! Ouf!!!
+
+I stopped this letter yesterday evening when Odile came to visit me to wish me a happy anniversary with a bouquet of flowers. She stayed for dinner as well as Maguy and all three of us went to the movies to see an old film which was very funny "You Can't Take it With You" in which James Stewart was still young.
+
+What else is there to tell you, you know our life...nothing has changed. So, I impatiently await another letter from you telling us what you are doing with many details. It would be really nice if you could be here for the end of the year. In the meantime I kiss you affectionately.
+
+Coco
+
+101-233744

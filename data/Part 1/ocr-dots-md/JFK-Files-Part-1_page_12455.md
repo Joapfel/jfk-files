@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_12455.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td>SECTION VI</td><td colspan="2">OPERATIONAL USE - CONTACT</td></tr><tr><td colspan="3">1. IF SUBJECT WAS BEEN USED OR CONTACTED BEFORE, INDICATE ACTIVITY IN WHICH HE WAS ENGAGED AND THE TYPE OF INFORMATION HE WAS FURNISHED.<br/>See previous PRQ II for prior use by BKTRUST in Miami. Subject is known to and cooperated with LNERGO at BKTRUST direction while in the Miami area. Subject has also had contact with LNERGO Venezuela in the course of his official duties as a member of CIRASH.</td></tr><tr><td colspan="3">2. INDICATE NOW AND FROM WHICH SUBJECT OBTAINS INFORMATION.<br/>Subject obtains information from CIRASH and its files and informants in the course of his normal work as an official of CIRASH.</td></tr><tr><td colspan="3">3. INDICATE WHAT HAS BEEN TOLD SUBJECT AS TO THE DISPOSITION OF INFORMATION HE FURNISHES.<br/>Subject knows from experience that information is disseminated throughout LYHARP</td></tr><tr><td colspan="3">4. DETAIL SUBJECT'S PROPOSED FI OR CI TYPE USE OR DUTIES.<br/>Subject is a unilateral penetration (FI) of CIRASH.</td></tr><tr><td colspan="3">5. DETAIL SUBJECT'S PROPOSED PP-PM TYPE USE OR DUTIES.<br/>None</td></tr><tr><td>SECTION VII</td><td colspan="2">PROPOSED LIAISON OR OPERATIONAL ACTIVITY</td></tr><tr><td colspan="3">1. DETAIL SUBJECT'S PROPOSED LIAISON TYPE CONTACT ON OPERATIONAL USE.<br/>4. WHERE SUBJECT IS AN OFFICIAL MEMBER OF A FOREIGN GOVERNMENT?<br/>Subject is an official of CIRASH. He is not repeat not involved in liaison with BKTRUST.</td></tr><tr><td colspan="3">8. WHERE SUBJECT IS AN OFFICIAL OF ANOTHER AGENCY OF THIS GOVERNMENT?<br/>N/A</td></tr><tr><td>SECTION VIII</td><td colspan="2">AGENCY RELATIONSHIP WITH SUBJECT</td></tr><tr><td colspan="3">1. EXPLAIN NATURE OF AGENCY RELATIONSHIP WITH SUBJECT. I.E., TRAINEE, OPPOSITE NUMBER, REMUNERATION, IF ANY; AGENCY PERSONNEL KNOWN TO SUBJECT.<br/><br/>Subject is a paid agent. See page 1 for Agency personnel known to Subject.</td></tr></table>
+
+3
+SECRET
+
+SECRET

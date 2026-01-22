@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_12190.png
+
+Convert to Markdown# PISTOLEROS Y TERRORISTAS HAN SIDO NACIONALIZADOS
+
+Junto con Ricardo Morales Navarrete, alto funcionario en la Oficina de Fronteras (inada menos!) se nacionalizó y trabaja Antonio Ignacio Bustillo Pérez, conocido pistolero traído de Miami por el gang mercenario de Orlando García. "ministro consejero", según el pasaporte con el que hace frecuentes viajes al Caribe, México y Estados Unidos con pasajes y viáticos oficiales.
+
+Como ya se ha informado, Ricardo Morales Navarrete, asistente de Orlando Garcia en la Oficina de Fronteras de nuestro país en Caracas (edificio del "Banco del Caribe"; Dr. Paul a Salvador de León, piso 11), fue nacionalizado venezolano el 25 de julio de este año. Morales Navarrete llegó a Venezuela como pr défugo de la justicia norteamericana (igual que Orlando Bosch) desde Miami, según lo anunciaron entonces diarios de los Estados Unidos.
+
+Con dos años de permanencia en el país ya es "ciudadano venezolano".
+
+Lo curioso es que en la misma Gaceta Oficial de la República de Venezuela donde se concede la nacionalidad a Morales Navarrete, cubano contrarevolucionario especializado en la colocación de bombas en Miami, donde estuvo arrestado en 1968 por esa causa, también se otorga idéntico beneficio al pistolero Antonio Ignacio Bustillo Pérez, de igual origen y empleado como Morales Navarrete en la Oficina de Fronteras.
+
+El nombre Bustillo aparece en la Gaceta justamente encima de Morales Navarrete.
+
+Según resolución de la Dirección Nacional de Identificación y Extranjería y por órdenes del ministro de Relaciones Interiores (Dr. Octavio Lepaqe), de acuerdo con la decisión suscrita por Ramón Ignacio Velásquez B., director del despacho mencionado arriba, se produjo este insólito hecho.
+
+## AGENTES DE LA CIA
+
+No somos nosotros quienes hacemos la acusación de que importantes organismos de seguridad de Venezuela estan infiltrados por la Agencia Central de Inteligencia de los Estados Unidos, entre ellos la DISIP y la Oficina de Fronteras, una entelequía esta última cuva fórmula se transforma. Hilda Indán,
+
+del diario "The Miami News", Taylor Branch, de la revista "Esquire" y John Rothchil, derueltos a los Estados Unidos por un incidente en Maiquetia, afirman que Morales Navarrete es agente de la CIA y segundo oficial al mandado de la inteligencia venezolana.
+
+Fueron inútiles las aclaratorias del MRI y otros despachos sobre estas actuaciones, puesto que Morales Navarrete centínua trabajando en la Oficina de Fronteras, con la salvedad de que desde la denuncia pública de su caso se cuida acercarse al edificio del "Banco del Caribe", pero sabemos que está operando desde otra parte.
+
+## LA OFICINA DE FRONTERAS: PANTALLA DE NEGOCIOS SUCIOS
+
+Un conocido personaje caraqueño fl seciento recientemente y quien trabajaba en la Oficina de Fronteras, expresaba su inquietud entre su amistades sobre la presencia de Morales Navarrete y Bustillo en ese despacho, pero no sólo por su condición de mercenarios extranjeros y agentes de la CIA, sino también por el desfile diario de prostruturas y contrabandistas del área del Caribe conectados con ellos en extrañas operaciones mercantiles, según este personaje.
+
+"Rangel Abogados" era la placa que ostentaba la misteriosa Oficina de Fronteras. Hace poco quitaron esa placa y pusieron otra con el membrete de "Compañía Arenera".
+
+## LOS VIAJES A BARBADOS Y OTRAS PARTES
+
+El mencionado personaje venezolano falleció solamente referirse también a mésteros y frecuentes viajes de Morales Navarrete durante 1975 y lo que va de 1976, con pasaporte diplomático y viático, a Costa Rica, México, Miamí y Toluá (FEUV). Ostentaba entonces
+
+Ricardo Morales Navarrete, en foto de 1968, cuando fuera detenido por terrorista en Miami.
+
+el rango de "

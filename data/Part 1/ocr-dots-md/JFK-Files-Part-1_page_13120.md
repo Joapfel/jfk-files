@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_13120.png
+
+Convert to MarkdownFE Addresses of DIR 92664
+
+Bangkok 13-5
+
+Hong Kong 13-14
+
+Manila 13-1
+
+Tokyo 13-3
+
+✓ = have, √ had, k.d.
+
+4/80

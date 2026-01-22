@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_15030.png
+
+Convert to MarkdownA discussion held in Bad Godesberg on March 12th, 1963, between Mr. E. Neumann, Chief of ICEM Mission in Germany and Mr. J. Riley of Australia revealed the following procedure taken by ICEM on refugee applicants for migration to South America under the ICM Special Program:
+
+1. Applicant, if a refugee, must be recognized under UN High Commissioner's Mandate as a bona fide political refugee. (Note: All refugees holding a neiseausweis automatically fall under the Mandate.)
+
+2. A detailed curriculum vitae of the applicant must be sent by AREF to Mr. Neumann. ICEM emphasizes that all time be accounted for since "gaps" are not accepted.
+
+3. Applicant must supply documentary proof of profession or skill. In lieu of such documents, a letter of testimony from a current employer describing job skills and qualifications of applicant will be considered.
+
+4. ICEM will arrange to interview the applicant and to give tests to determine applicant's qualifications. ICEM will not accept tests which are made by other sources. The applicant must bring his papers and documents to the interview.
+
+5. ICEM conducts its own security clearance on each applicant whether USEP or non-USEP case.
+
+6. If applicant is found acceptable by ICEM, a work contract must be signed by the applicant prior to departure from Germany. ICEM has a placement service which arranges the job placement and obtains the work contract. This is a standard ICEM procedure. ICEM will not sponsor the applicant who does not sign a work contract.
+
+7. The total procedure requires at least three months from the date the applicant's curriculum vitae is received by ICEM, Bad Godesberg.
+
+8. ICEM does not accept payment of passage by applicants nor is there an ICEM loan grant. ICEM charges DM 210.-- for men between 18-51 for transportation including luggage. The charges for women's transportation amount to DM 165.-- (16-51 years old), DM 60.-- for children between 5 and 16 years old. Transportation of children under five is free of charge. The total transportation cost per family will not exceed DM 580.--.
+
+9. ICEM Placement Service in South American countries will meet the migrant on arrival, introduce him to the employer, and ascertain that all is in order. In the event that an applicant leaves this work, ICEM placement service will assist him to find another job. The placement service does not give assistance after the second job is found.

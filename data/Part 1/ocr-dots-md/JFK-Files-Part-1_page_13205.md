@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_13205.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="12">DOCUMENT TRANSFER AND CROSS REFERENCE</th></tr><tr><td colspan="4">SUBJECT OF DOCUMENT</td><td colspan="7">DOCUMENT IDENTIFICATION</td></tr><tr><td>RI FILE NO.</td><td></td><td></td><td></td><td>3. DISPATCH OR SOURCE DOC. SYMBOL NO.</td><td></td><td>4. DATE</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td>7. SOURCE CRYPTO NYM</td><td>8. DATE OF INFO.</td><td>9. EVALUATION</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>5. ANALYST</td><td></td><td></td><td>6. DATE PROCESSED</td><td>10. DISSEMINATED IN</td><td>11. DATE</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="4">DOCUMENT DISPOSITION</td><td>12. CROSS REFERRED TO THIS FILE</td><td colspan="5"></td><td>13. TRANSFERRED TO RI FILE NO.</td></tr><tr><td colspan="12"></td></tr><tr><td colspan="12">PERTINENT INFORMATION</td></tr><tr><td colspan="12"></td></tr><tr><td colspan="12"></td></tr><tr><td colspan="12"></td></tr><tr><td>POSADA Carriles, Luis</td><td>Claudette Faustino</td><td>201-300985</td><td colspan="10"></td></tr><tr><td>THERE IS A RESTRICTIVE NOTICE ON THIS 201</td><td>DER ON THE SUBJECT</td><td>ABSTRACT FILE SLIP</td><td>(10)</td><td>FORM 44 USE PREVIOUS EDITIONS</td><td>7-88</td><td>HOLDER ON THE SUBJECT</td><td colspan="6"></td></tr><tr><td>THERE IS A RESTRICTIVE NOTICE ON THIS 201</td><td>OLDER ON THE SUBJECT</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="12"></td></tr><tr><td colspan="12"></td></tr><tr><td colspan="12"></td></tr><tr><td>FILE THIS FORM IN FILE NO.</td><td></td><td></td><td>501</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="12"></td></tr></table>
+
+SECRET
+
+(17-48)
+
+FORM 867 used previous editions. (17-48)

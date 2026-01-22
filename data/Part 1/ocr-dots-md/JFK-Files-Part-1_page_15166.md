@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_15166.png
+
+Convert to Markdown15 March 1960
+
+Extension of time granted for AEsSENTIEL agent AELSPIC whereby subject may remain legally (Immigration/naturalization cognizant) until 20 October 1960. This information relayed to SR/DCB by Allen Affairs Staff representative Mr. Pennington.
+
+FRED KENNEDY, SR/DOB
+
+LcI-233477

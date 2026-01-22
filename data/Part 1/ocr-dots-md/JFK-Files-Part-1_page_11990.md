@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_11990.png
+
+Convert to Markdownview of the cops. As the sword carriers are frisking Rothchild, the second note is triumphantly confiscated. They don't know that it says "Joe Morgan" on it. The name of the great Cincinnati second baseman will go somewhere into the DISIP files.
+
+Halfway up the ramp, Rothchild senses that the pressure has somehow been reversed, that now the DISIP wants to keep him on the ground. Several cops are following him as if they want to get ahead and stop him at the door. He scurries inside the plane and rushes back to a seat; they are still following him. He has his seat belt buckled almost before his ass hits the cushion, and the two cops reach out as if to grab him, then change their minds and abruptly leave the aircraft. But they quickly return. They tell Rothchild in a very friendly tone that his friends down on the ground want to have a word with him and that he better unbuckle and come down. Rothchild is so agitated he believes them. He gets as far as the plane entrance, the top of the stairs, when he hears Branch yelling, "Get back." He bowls over a stewarded-on the way to his seat.
+
+The cops are not through yet. They return with another ploy: Rothchild has not filled out the necessary papers and he must return to an office in the airport. "Are you sure this isn't a trick?" Rothchild asks. "No, no trick. Just a procedural matter." Rothchild tells them he isn't moving an inch until he talks to the captain.
+
+Out his little window, Rothchild sees further agitation on the runway. They have brought up a car and they are trying to force Branch and Inclán to get into it. Camargo is flailing his arms like a giant windmill, determined to get all three reporters together—on or off the plane. The reporters are equally determined to split up. Branch and Inclán keep telling Camargo that they will not move from the runway until the plane takes off. They want to stay in plain view of all the passengers, fearing that the goons will grab Rothchild once the other two are safely out of view. Branch and Inclán keep encouraging each other and making jokes about how incredible all the commotion has become. Workmen in orange suits are crouched in the shade, smoking cigarettes, and several hundred gawkers are spread out in a semicircle like faus in the bleachers...
+
+Camargo tries a whole string of tricks to get Branch and Inclán out of sight. Will they move into the airport, please? No. He goes off into a huddle and comes back. Will they get in the car so they can get out of the hot sun? No. Will they get in the car if he promises they can watch the plane from there? No. After one huddle, the mood changes and several goons swing little brown blackjacks. Branch and Inclán say a prayer, refuse to move and wave ostentatiously at the airplane. The goons shove and menace but then go off again. Rómulo comes back with his gun pulled, looking like a crazed assassin. Camargo soon yanks him back to the goon huddle. The plane starts taxiing
+
+on the runway and Camargo says, "You've won. Let's go." The reporters huddle and say not until it's off the ground. Camargo looks furious and barks a command to his walkie-talkie man. The plane stops immediately and sits in the middle of the airstrip. Camargo controls the tower, the reporters conclude. The game, played by inches and bluffs, goes on for nearly an hour.
+
+## Camargo Plays Hardball
+
+Branch and Inclán are spread-eagled against the back-door openings of the goon car, facing each other, when the jet finally takes off. They have held this position for the last fifteen minutes or so of the cat-and-mouse game. The roar of the jet engines sets off tremors in Branch's gut, and he is flooded with relief. He feels tears welling up.
+
+Rómulo is now wearing his gun tucked inside his pants at the navel. His turtleneck is soaked with sweat. He and Camargo and the head black-jack man escalate their nudging again, and extras crowd in behind them. The reporters, talking over the roof of the car, decide that the plane will not be called back. They get in the car. Rómulo sits next to Branch, and Camargo takes the front seat. They peel off down the runway with other cars following.
+
+"How long will it take the plane to get to Miami?" Inclán asks Camargo.
+
+"A little more than three hours," says Camargo. "It has to stop in Maracaibo."
+
+Branch shivers and asks Inclán to translate the Spanish to make sure he heard right.
+
+"I thought you said it was a

@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_13388.png
+
+Convert to MarkdownSECRET
+
+CANCELLATION TO DIVISION
+
+DATE 15 January 1965 jb
+
+MEMORANDUM FOR: CHIEF, WH/SA/IOS
+
+ATTENTION: Wendell Ullery
+
+C# 201 - 284658
+
+The file on PICO Ramon, Reinaldo is cancelled and closed in CI/OA for the following reason:
+
+Failure to submit PRQ-II as required under CSI No. 10-5 or to indicate any further interest in obtaining approval for the operational use of Subject.
+
+Prior to any future use of Subject, it will be necessary to furnish a new approval request (Form #772) to CI/OA.
+
+/s/ Edward P. Brown
+
+CHIEF, CI/OPERATIONAL APPROVAL AND SUPPORT DIVISION
+
+SECRET
+
+FORM 12-43 691 ABSOLUTE PREVIOUS EDITIONS
+
+<table><tr><td>REDACTED</td></tr><tr><td>CLASSIFIED</td></tr><tr><td>CONFIDENTIAL</td></tr></table>
+
+(8)

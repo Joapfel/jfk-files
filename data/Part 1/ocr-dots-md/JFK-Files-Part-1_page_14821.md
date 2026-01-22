@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_14821.png
+
+Convert to MarkdownThe Washington DAILY NEWS points out that the 'Peace Corps' program, which costs taxpayers $100 million annually, does not work, and recommends that the administration find better ways to use these funds.
+
+Official Washington has in fact acknowledged the failure of the 'Peace Corps' activity. This is evidenced by the White House's decision to merge the Peace Corps with VISTA, so-called corps of teachers.
+
+The activity of such centralized 'volunteer service', in the opinion of the White House, may bring greater returns for the invested dollars.
+
+But the U.S. press casts serious doubt on the effectiveness of the administration's plans, and not without reason.
+
+The fameless ten-year activity of the 'Peace Corps' made many in America convinced that no one, except for ideological saboteurs, needs this 'volunteer' organization.
+
+### HENRY WINSTON DESCRIBES U.S. RACIST POLICIES
+
+Kocourov TASS International Service in English 0903 GMT 27 Feb 71 L
+
+[Text] New York Feb 27 TASS--Speaking at the law faculty of the Yale University in New Haven on Friday, National Chairman of the Communist Party of the United States Henry Winston has said that Nixon's policy, aimed at expansion of the war in Cambodia, Laos and other areas of Indo-China, is actually the racistist policy of American imperialism.
+
+Henry Winston has emphasized that the policy of the present-day government of the United States becomes increasingly menacing. Henry Winston said this policy leads to intensification of racism and anticommunism as component parts of the programme, aimed at elimination of the resistance to the governments line.
+
+Current reprisals against civil right fighters are only the beginning of a campaign which was launched with the aim of breaking the resistance of the Negro people. This campaign is now spearheaded against Angela Davis, a symbol of struggle against racism and anticommunism. These reprisals, if they are not duly rebuffed, will tomorrow spread to the whole of the American people, blacks and whites. The struggle in defence of Angela Davis and other political prisoners is, therefore, the matter of honour for all Americans, who cherish freedom and peace.
+
+### U.S. COMMUNIST PARTY ISSUES STATEMENT ON ANGELA DAVIS
+
+Moscow TASS International Service in English 0810 GMT 28 Feb 71 L
+
+[Text] New York, Feb 28, TASS--The National Women's Commission of the Communist Party of the USA issued the following statement for International Women's Day:
+
+The vicious frameup persecution of Angela Davis by the Nixon-Agnew-Reagan axis is an attack upon the rights of all who struggle for peace, democratic rights and freedom from capitalist exploitation. In addition Angela Davis shares the plight of all who would escape the yoke of racist oppression.

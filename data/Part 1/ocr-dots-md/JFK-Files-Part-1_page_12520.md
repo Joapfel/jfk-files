@@ -1,0 +1,70 @@
+# JFK-Files-Part-1_page_12520.png
+
+Convert to Markdown14-0000
+
+MESSAGE FORM
+TOTAL COPIES: 15
+
+<table><tr><td>Nancy Perkins</td></tr><tr><td>USN:</td><td>WH/3/V</td></tr><tr><td>EXT:</td><td>7271/1535</td></tr><tr><td>DATE:</td><td>3 April 1970</td></tr></table>
+
+SECRET
+
+<table><tbody><tr><td colspan="4">CABLE SECRETARY'S DISSEMINATION</td></tr><tr><td>BY:</td><td>48 PER</td><td>PER</td><td></td></tr><tr><td>CON.</td><td>WHE</td><td>FILE, VR:</td><td>RILAN, C.I.ERES, FLZ,</td></tr></tbody></table>
+
+<table><tbody><tr><td>1</td><td></td><td>2</td><td></td></tr><tr><td>3</td><td></td><td>4</td><td></td></tr></tbody></table>
+
+SECRET
+
+☐ INDEX ☐ NO INDEX ☐ RETURN TO __________ BRANCH ☐ FILE RID
+
+☐ FILE IN CS FILE NO.
+
+**(classification)**
+
+**(date and time filed)**
+
+**REF:** CARACAS 3891, 28 OCTOBER 69* (in 74856)
+
+03 23 50z APR 70
+
+TO
+
+CARACAS
+
+AMRO GEORGETOWN, WH/MIAMI
+
+CITE DIRECTOR 0 22865
+
+1. FBI INVESTIGATING JAMES HART AND HAS BEEN TOLD THAT IN 1969, HART, ORLANDO GARCIA AND CIFENCE/4 WERE INVOLVED IN SHIPMENTS OF ARMS TO VENEZUELA FOR GUYANESE INSURGENTS. FBI MIAMI SOURCE ALLEGED THAT JKLANCE WAS AWARE OF FACTS, THAT CIFENCE/4 WAS OF OPERATIONAL INTEREST TO JKLANCE, AND THAT THE WEAPONS ACTIVITY IS CONTINUING. FBI DISCUSSED FOREGOING WITH WH/MIAMI REPRESENTATIVE WHO CONFIRMED THAT CIFENCE/4 OF OPERATIONAL INTEREST TO JKLANCE.
+
+2. FBI ASKS IF WE HAVE OPERATIONAL INTEREST IN HART OR GARCIA.
+
+RE HART, HOW SHALL WE ANSWER?
+
+3. FILE: 201-327674.
+
+END OF MESSAGE
+
+*WHI comment: While Station sees no immediate objections to LNERGO interviewing HART if he enters U.S. further developments might make us change our position. Recruitment might be feasible.*
+
+WH/COG
+
+C/WH/7
+
+WILLIAM V. DROE
+C/WHD
+
+COORDINATING OFFICERS
+
+SECRET
+
+ALFONSO SPERA
+C/WH/3
+
+AUTHENTICATING OFFICER
+
+RELEASING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+COPY NO.: _______

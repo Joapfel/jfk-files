@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_14929.png
+
+Convert to Markdown625 SE/LSB/LSB/
+
+CLASSIFIED MESSAGE
+
+<table><tr><td colspan="3">ORIG : G. FIII<br>UNIT : SR/DOB<br>EXT : 8331<br>DATE : 17 September 1958</td></tr><tr><td>S-E-C-R-E-T</td><td colspan="2"></td></tr><tr><td colspan="3">TO : FRANKFURT PARIS</td></tr><tr><td colspan="3">FROM : DIRECTOR</td></tr><tr><td colspan="3">CONF : SR 6</td></tr><tr><td colspan="3">INFO : C1, C1/OPS, C1/OA, FI, FI/OPS, EE 4, WE 4, S/C 2</td></tr></table>
+
+<table><tr><td>ROUNING</td><td></td><td></td><td></td></tr><tr><td>DOA</td><td></td><td>1</td><td></td></tr><tr><td>DOA</td><td></td><td>5</td><td>3 DOA</td></tr><tr><td>DOA</td><td></td><td>6</td><td>2 DOA</td></tr></table>
+
+SEP 19 21 01:56
+CABLE SECT.
+
+<table><thead><tr><th>RECEIVED</th><th>DEFERRED</th><th>PRIORITY</th><th>NITIALS</th></tr></thead><tbody><tr><td>X</td><td>ROUTINE</td><td>OPERATIONAL<br>IMMEDIATE</td><td>NITIALS</td></tr></tbody></table>
+
+CUT74783
+
+TO FROB INFO FRAN PARI CITE DIR 41763
+
+REDWOOD REDSOX ACREACRE
+
+REF A. FROB 1947 (IN 35899)*
+
+B. EGFA 22041
+
+(C/S COMMENT: * QUERIED IF HQS DESIRED FOR CONTACT AND ASSESS SUBJ OFPA 39997.)
+
+1. POA GRANTED.
+
+2. IF POSSIBLE, SUGGEST FRIGANZA CONDUCT DEBRIEFING AND INITIAL ASSESSMENT IN PLACE.
+
+3. DEBRIEFING EMPHASIS ON POSSIBILITY RECRUITMENT OF RELATIVES OR INDUCED REPATRIATION.
+
+4. MOVEMENT TO GERMANY FOR FURTHER ASSESSMENT CONTINGENT ON FAVORABLE ASSESSMENT AND HQS EVALUATION OF OPS POTENTIAL.
+
+END OF MESSAGE
+
+WE/3
+SR/3
+SR/COP/FI
+
+22 SEP 1959
+
+EE/COP
+
+COORDINATING OFFICERS
+
+C/SR/DOB MICHAEL RAE
+
+RELEASING OFFICER
+
+AUTHENTICATING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No. 21-231777

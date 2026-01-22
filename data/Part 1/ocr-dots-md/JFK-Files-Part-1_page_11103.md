@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_11103.png
+
+Convert to MarkdownEmbajada de Cuba: 230795.-
+
+19 abril 67.-
+
+M 13. L 13.-
+0845 - 1244.-
+
+001. Salida 0845 (Volkswagen de México) Abreu al no encontrar a Fondermeden, queda de volver a llamar.- 010.-
+
+010. Salida al 145769.-0852.-Abreu con Enrique, quien cuelga.017.
+
+024. Salidas ocupado y sin contestación de afuera y de adentro.
+
+002. Salida al 145709.-Abreu después de autorarle que no tiene que ya va a salir, pido a HF le diga a Escartín que tieno que llevar a los compañeros al aeropuerto y HF acepta.- 063.-
+
+068. Entrada 0906.-Los búlgaros quo viven en La Habana preguntan por su amigo Luis Alború y HD pido llamo al 141326. HF acepta y pido saludo al Embajador do parte do Vega.HD:bien.85.
+
+085. CITAMIL-9 Salidas ocupado y aparato muerto ?.- 102.-
+
+102. Entrada.-María Pérez explica que tiene 7 años de vivir - aquí y su pasaporte ya está vencido, pero desea ir a Miami, - quisiera saber qué trámites tiene que hacer porque no tiere - ningún papel y HD lo sugiere paso al Consulado y HF acepta.121.
+
+121. Entrada sin contestación do afuera y salidas sin contestación.
+
+152. Salida 1020 (::ciones unidas) El Embajador con Moscarola para decirlo que ha recibido judíos para la Conferencia de - Caracas y los recibió inmediatamente, pero como el organismo que está trabajando intensamente quisiera saber si podría --

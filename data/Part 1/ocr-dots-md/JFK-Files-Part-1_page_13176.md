@@ -1,0 +1,78 @@
+# JFK-Files-Part-1_page_13176.png
+
+Convert to MarkdownSECRET
+
+SECRET
+
+14,000.000
+
+CABLE SECRETARY DISSEMINATION
+
+CLASSIFIED MESSAGE
+
+TOTAL COPIES
+
+ROUTING AND/OR INITIALS : SEEN BY
+
+PERSON UNLESS NOTED
+
+<table>
+   <tr>
+    <td>
+     SECRET
+     <br/>
+     (When Filled In)
+    </td>
+    <td colspan="3">
+     GROUP I
+     <br/>
+     CIRCLES TO BE ALTERED
+     <br/>
+     IF NEEDED
+     <br/>
+     INFORMATION
+    </td>
+   </tr>
+   <tr>
+    <td rowspan="5">
+     ADVANCE COPY ☐ ISSUED ☐ SLOTTED ☐
+    </td>
+    <td colspan="3">
+     REPRODUCTION OF THIS COPY PROHIBITED
+    </td>
+   </tr>
+   <tr>
+    <td>NO later</td>
+    <td>YES</td>
+    <td>NO</td>
+   </tr>
+   <tr>
+    <td colspan="3">CLASSIFY TO FILE NO ____________</td>
+   </tr>
+   <tr>
+    <td colspan="3">REF TO FILE NO ____________</td>
+   </tr>
+   <tr>
+    <td>FILE ID ☐ RET TO BRANCH ☐ DESTROY ☐ SUG</td>
+   </tr>
+   <tr>
+    <td>ACTION ☐ R&D COPY</td>
+    <td>INFO.</td>
+    <td>FILE VR.</td>
+    <td></td>
+   </tr>
+  </table>
+
+PAGE 2 CARACAS 9497 S E C R E T
+
+D. ORESTES GUERRA. PROBABLY ORESTES GUERRA
+
+GONZALEZ, CUBAN REPORTED WITH BRAVO GUERRILLAS IN SEPTEMBER 1967.
+
+2. NOT DISSEMING DUE UNRESOLVED STATUS AMCLEVE-15 SOURCE WHO CLAIMS BE LNERGO INFORMANT. INFO RE RECENT ARRIVAL FROM CUBA OF ORESTES GUERRA AND COMANDANTE WILLIAM UNCONFIRMED BUT BY NO MEANS IMPOSSIBLE. WOULD APPRECIATE HQS, JMWAVE, AND AMOT TRACES ON LUGO AND CONFIRMATION FROM LNERGO IF HE THEIR AGENT. ALSO, TRACES ON LINARES AND GALVES AND ANY INDICATION TRAVEL OF ANY ABOVE FOUR MEN. PRESUME IF LNERGO HAD INFO RE ASSASSINATION PLOT AGAINST LEONI SUCH INFO WOULD HAVE BEEN MADE AVAILABLE WOFIRM.
+
+SECRET
+
+BT
+
+SECRET

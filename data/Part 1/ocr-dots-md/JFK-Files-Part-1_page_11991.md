@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_11991.png
+
+U.S. attorney in charge of the Letelier investigation. Propper wanted to know about the Venezuela trip because he was thinking of going there himself. The leads pointed there, he said. He asked questions about the Cuban terrorists. Branch outlined what he knew. He took a reading of Propper and was satisfied that he wanted badly to solve the case. Branch only worried that they were both way over their heads. His worries skyrocketed when Propper asked to see

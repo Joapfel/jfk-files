@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_14858.png
+
+Convert to MarkdownSECRET
+
+1/8 Chief, S.K. Staff
+From Chief of Staff, Frankfurt
+s/c all Cts EC-FH-20336
+
+SECRET
+
+77425-1047
+
+DC NO.
+
+DATE
+
+CODE
+
+DECSN US
+
+4-20-94 1:00 PM
+
+SECRET
+
+1400000
+
+SECRET

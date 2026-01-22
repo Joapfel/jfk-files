@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_10833.png
+
+Convert to Markdown# LIBERTAD, Febrero 21, 1969 Página 5
+
+<table><tr><td>ORBITO</td></tr><tr><td>GNOTUS</td></tr></table>
+
+desde Cuba: "UnaOMBRES Y MUJERES VINCULADOS A LOS DEL PAIS CON FRENO GRANDES CENTRALES Y LIBRAS ESTRE-CONOCE POR LOS DOCE SON GENTE PROMI-PUBLICO. Pero se un ex-capitan lla-Bonet, de Ba-ramillo, casado con una familia Tarifa, amiga de Marta Batista, que confi-SENTE ACCIONISTA A DE LA "FIAT" en
+
+La Castro tiene más es a buen recuerdo
+
+espirantes a la pre-Asociación de la can dos cabilieros lo el cobre en la Castro, sin permiso. Y a veces pagando SINO, el precio de
+
+es Ramiro de la PO por un tribunal LO AÑOS DE CARCEL DE APoderamiento para usuario en un contra la fortaleza ba.
+
+Luis Tornés, que IINEA DURA AQUÍ, los indiferentes y lo cual le ha crea-CON LA "GUARDIA SI...
+
+las conocereis...
+
+áxima semana, ten-la informacion in-este semana, el Portocarrero, bri-culto penalista e experto en legis-qoen en el pa-sentante a la Ca-eso del gabinete.
+
+FIREZ, valeroso e El Escambray.
+
+MIAMI
+ON LA
+NOTA
+
+EN YMCA Internacional "Jo-se Martí", festival bendible mañana sábado, 8 p.m., en su local 450 S.W. 16 Avenue. Es parte de su Compañía de Socios para 1959. Con dos oficaderas orquestadas. La Singing Kind y la Sound Display. Se destinan los beneficios a atenciones de la joven-tud en sus proyectos edue-vos. Donación de $1.00. In-formes: 352-3257.
+
+TROFEOS. El domingo 23 a la 1 de la tarde serán entregados los trofeos donados por Errol T. Bollafonte, Director del Centro de Refugiados Cubanos el equipo atlético Gol-den Esglos, ganador del com-ponente 1969 de la Liga de Soft Ball de la Libertad. Contendieron Atlélicos de Nusvi-les, Hill Brothers. Los gan-dores son supervisores y em-pañadores del Programa para Refugiados Cubanos. El acto en Centro Vasco.
+
+CITA COH CUBA. Será un Show de Gala. Organizado por Latin American Review, de Ida M. Ficher Community School de Miami Beach, de la que es directora la joven Mar-the Alvarez. El festín al 24 de Febrero 8 p.m. En conme-moración del Grito de Indo-pendencia.
+
+BALLET. Lidia Díaz Cruz pre-senterá función de Ballet al próximo 28, en el Dade County Auditorium. Invitados a 20 niños cubanos refu-gados. Serán acompañados por Mrs. Dorothy McCray, direc-tora del Child Welfare.
+
+DIPLOMA. Solidaridad Cuba-no-Americana etorgó Diplo-ma de Reconocimiento a Christian Community Service Agencia of Dade County Inc.
+
+Conversación entre Max Leinick y Rolando Masferrer en WQBA, terminada la charla radiada del pasado do-mingo: "Tú podrás haber sido el jefe de la oposición armada. El 10 de Marzo fuiste a la Universidad y tra-taste de hacer resistencia al golpe. Eras más conocido que Fidel".
+
+"Mire, Leonick, los estudiantes se asustaron cuando vieron llegar las "scouts cars" del ejército. En su miedo comenzaron a llorar que yo no era estudiante, sino un político. Cuando llató a Palacio para que Prío ordenase la entrega a numeros de las armas de San Ambrosio, se me dijo que no la intentara. Y que desde luego no fuera a Palacio. Se dieron órdenes en el SIM, creo que por el coronel Ramón Cruz Vidal, de perseguir sólo a dos hombres, a Excelioso Mujal y a mí. Y cuando traté de refugiarlos en la embajada de México porque no hubo ningún movilización popular en respaldo del gobierno de Prío, éste y Am

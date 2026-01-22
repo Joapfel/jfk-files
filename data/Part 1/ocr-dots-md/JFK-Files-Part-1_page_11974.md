@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_11974.png
+
+Convert to MarkdownFrom Mitch Lawrence
+
+Regarding Joe Merola: Information passed on
+to Lt. Van Buskirk per our discussion. Van
+Buskirk advised that we should have somebody
+ready to go to court and to delv the claim
+of Connel that he was working on our behalf.
+The date for the trial is not as yet set and
+Van Buskirk said there is no hurry, but he
+would like to know whether or not we would
+have somebody there in as much as this person
+intends to base his defense on the basis of
+his working for us.
+
+1045
