@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_16375.png
+
+Convert to MarkdownRETURN TO CIA Background Use Only Do Not Reproduce
+
+13 October 1964
+
+MEMORANDUM
+
+SUBJECT : AAI:1UC/1 Operation. Meeting with [Colonel POMMES]. Saturday, 10 October 1984
+
+REFERENCE : Memorandum dated 13 October 1964 concerning briefing of [Colonel Feraita]
+
+06 1. Following the meeting described in the reference, [Colonel Torres] requested a separate meeting which was held on Saturday, 10 October 1954. [Andy Rogers of the Guatemalan Station] was present at the meeting.
+
+2. During the meeting the matters covered on the previous day with the Chief of State were reviewed and the specific action to be taken was indicated with agreement on the following points:
+
+A. Special treatment should be given to the "Caro Asiatigo" and the "Cayo Hombres Ranas" which involved Yon SOFA, Luis Augusto TURCIOS Lima, Manuel JOCUE Ortega Paz, and one (Inu) (Inu) whom we will be able to identify if shown a photograph. Every effort should be made to identify the last-named person and then to recruit all four of them. Meanwhile, all information available concerning them should be collected and furnished to the station for forwarding to headquarters. The object in each of these cases should be to achieve contacts with them for the purpose of effecting recruitments. If required, we will have a Cuban who knows the individuals and whom they believe to be a Cuban Intelligence officer go to Guatemala for the purpose of contacting them under controlled conditions which will permit us to monitor the conversation during the time that he poses as still active in Cuban Intelligence. Following this, the recruitment attempt would be made in each case possibly by one of our officers if the circumstances
+
+16-2
+
+(6-2)

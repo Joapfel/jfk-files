@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_16649.png
+
+Convert to Markdown383 598
+
+described by credit sources as an attorney specializing in investment counseling. Additional information indicates that SCHRIER previously resided at 18 Perry Place and was previously employed by The WIGMAN General (wig) shop. No detrimental credit information, police information, or House Committee on Un-American Activities records were reflected in the name of SCHRIER for his wife.
+
+## Apartment 118 (located directly over SUBJECT SITE)
+
+This apartment is the residence of Esther JOLLES, white female born 22 December 1892 in Russia, and her daughter, Mildred JOLLES, white female for whom two dates of birth are listed: 17 May 1924 and 6 March 1917, born New York 06 Esther JOLLES is the widow of Joseph I. JOLLES, whom Montgomery County Health Department records reflected died of natural causes on 22 June 1960. Mr. JOLLES was formerly the president of the Maryland Belt Parkway Development Inc., Silver Spring, Maryland, and the North Portal Construction Company. A previous address of 650-008 15th Street, NW, is reflected for Joseph I. JOLLES, 06 Mildred JOLLES and Esther JOLLES.
+
+06 Immigration and Naturalization records reflected that Esther JOLLES received a certificate of citizenship through derivative means on 16 March 1961. Esther JOLLES is not a naturalized citizen but received her certificate of citizenship through her father. Her Immigration and Naturalization file, derivative number A-202705, alien number 121-5777, is located in Baltimore, Maryland. Esther JOLLES is employed as a homemaker. Credit sources reflect a credit rating ranging from poor to satisfactory in the name of Joseph L. and Esther JOLLES.
+
+06 Mildred JOLLES' daughter of Esther JOLLES is employed as an analyst by the Quartermaster Corps. Department of the Army, Pentagon. An additional address of Second and D Streets SW is also reflected for Mildred 06 JOLLES employment. Mildred JOLLES came to Washington from New York on 31 August 1947, is single, and has no dependents. Credit sources reflect poor to satisfactory credit ratings in the name of Mildred JOLLES. No record for either Mildred JOLLES or Esther JOLLES was reflected at appropriate police agencies, and the House Committee on Un-American Activities.
+
+ESC lev
+
+SECRET

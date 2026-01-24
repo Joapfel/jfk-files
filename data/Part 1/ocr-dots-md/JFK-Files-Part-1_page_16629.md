@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_16629.png
+
+Convert to MarkdownHis wife did not accompany him and source speculated that her arrival may be delayed in view of NOVAS' present incitement for feminine diversion.
+
+3. In a report dated March 1964, this same source said that Julian NOVAS Fernandez, the Cuban Commercial Attache at the Cuban Consulate in Kingston, Jamaica, was born on 2 September 1938, in Habana, Cuba. He carried diplomatic passport D/64/90 which was issued in Habana on 20 February 1964. His home address was given as Carman No. 18, Vibora. He arrived in Kingston from Mexico on 18 March 1964, on Mexicana Flight Number 305.
+
+4. This same source, in a report dated 28 April 1964, stated that the wife of Julian NOVAS Fernandez, the recently arrived Cuban Commercial Attache, arrived in Kingston on 22 April 1964, via Mexico. Her name is Amarilis Marta VALDES Hijuelos and she was born on 19 May 1937, in Jiquani, Oriente, Cuba. VALDES has been indisposed since her arrival in Kingston; this is probably due to her advanced pregnancy. Her home address in Cuba is Avenida 31, Number 3622, Habana. She carried diplomatic passport D/64/239, issued in Habana on 9 April 1964.
+
+5. This same source, in a report dated 9 May 1964, noted that the salary and allowances of the new Cuban Commercial Attache, Julian NOVAS Fernandez, suggests that he is the new Cuban Intelligence Service chief in Jamaica, succeeding Gerardo SANCHEZ Robert.
+
+SECRET
+
+NO FOREIGN DISSEMINATION & DISCLOSURE
+
+1964年3月18日

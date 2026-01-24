@@ -1,0 +1,373 @@
+# JFK-Files-Part-1_page_16359.png
+
+Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
+
+WAINWRIGHT/dl
+SAS/EOB
+6153
+14/OCT/63
+
+<table><thead><tr><th colspan="3">ROUTES</th></tr></thead><tbody><tr><td>1</td><td>4</td><td rowspan="3">182</td></tr><tr><td>2</td><td>3</td></tr><tr><td>3</td><td>2</td></tr></tbody></table>
+
+☐ INDEX
+
+☑ NO INDEX
+
+☐ FILE IN CS FILE NO.
+
+TO : ROME
+
+FROM: DIRECTOR
+
+I CONF: SAS 8
+
+C INFO: DDP, CI, CI/OPS, CI/OA, FI, WE 4, RF, VR
+
+SIG CEN
+
+<table><tr><td>DEFERRED</td><td>R</td></tr><tr><td>ROUTINE</td><td>C</td></tr></table>
+
+CITE DIR 75462
+
+R
+I
+C
+O
+P
+Y
+
+TO PETT ROME (NO NIACP) INFO
+
+KEYWAY PERUMEN AMWHIP
+
+REF: DIR 71153 25/SEPT/63) *
+
+AMWHIP DUE ROME WEEK OF 13 OCT AND WILL CONTACT STATION
+
+PER OLD CONTACT PLAN.
+
+END OF MESSAGE
+
+SAS COMMENT:* ROME SHOULD NOT EXPECT AMWHIP PRIOR WEEK OF 13 OCTOBER.
+
+<table><thead><tr><th>ROUTING</th><th>INITIAL</th></tr></thead><tbody><tr><td>RID/AN</td><td>7</td></tr><tr><td>PRI/NTS</td><td>1</td></tr><tr><td>BECOMES</td><td></td></tr><tr><td>PID/FI</td><td></td></tr></tbody></table>
+
+R
+I
+C
+O
+P
+Y
+
+R
+I
+C
+O
+P
+Y
+
+WE/4
+
+WE/5
+
+EDWARD A. MARKELIUS
+C/SAS/EOB
+AUTHENTICATION
+OFFICE
+
+COORDINATING OFFICERS
+
+SCREAMET
+
+SECRET
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+HI COPY RT COPY
+
+Copy No.
+1389a
+14-00000
+
+104-10183-10011
+
+Copy No.
+3BR
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+3/BR
+
+Copy No.
+27-12-7956
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY
+
+RT COPY

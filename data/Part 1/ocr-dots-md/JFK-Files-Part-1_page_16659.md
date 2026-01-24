@@ -1,0 +1,229 @@
+# JFK-Files-Part-1_page_16659.png
+
+Convert to MarkdownRETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+SECRET 251703Z CITE GUAT-6291
+
+DIRECIOR
+
+IS AMUG-1 DEBRIEFING (SPANISH VERSION) FORWARDED HGGW-3947
+CLEARED FOR PASSAGE TO LIAISON IF SO, PLAN GIVE PRESENT COPY TO
+COL ARR IAGA PLS ADVISE. IF AFFIRMATIVE, PLS SEND ADDITIONAL
+COPY FOR STATION RETENTION.
+
+SECRET
+
+BT
+
+5/9/0
+
+5/9/0 - 10/2/4
+2:57 PM 1960s
+
+NNNN
+
+<table><tr><td>AN - FI</td></tr><tr><td>BEPRESENT X</td></tr></table>
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10 2/4
+2:57 PM 1960s
+
+5/9/0
+
+5/9/0
+
+SECRET:
+
+19-6-10

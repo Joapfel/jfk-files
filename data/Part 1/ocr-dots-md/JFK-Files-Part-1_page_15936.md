@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_15936.png
+
+Convert to Markdown<table><tr><td>020/22 MAR '63</td></tr><tr><td>DATE : 1 FEB 63</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : FRANKFURT</td></tr><tr><td>ACTION: EE 6</td></tr><tr><td>INFO : CI, C1/OPS., FI, COC, TSD 5, AF 4, S/C 2</td></tr><tr><td>ADDED: AF 3 (ACTION)</td></tr></table>
+
+CLASSIFIED MESSAGE
+
+<table><tr><td colspan="3">SECRET O</td></tr><tr><td>ROUTING</td><td></td><td></td></tr><tr><td>1</td><td>5</td><td>LAP</td></tr><tr><td>2</td><td>5</td><td></td></tr><tr><td>3</td><td>C-1</td><td>C WLE</td></tr><tr><td>FEB 1 1972Z 63</td><td>S</td><td></td></tr><tr><td>Routine</td><td></td><td></td></tr></table>
+
+PRITY BONN INFO DIR BRLN CITE FRAN 6399
+HARVARD LCIMPROVE CAVATA TECHS VIROGUE INCO.224
+REF EGNA 25053
+
+1. SUBJ REF IS HARVARD AGENT DISPOSAL CASE VIROGUE REGISTERED CAMP KING WHERE WE PROCESSED 25 AUG 62 FOR POLITICAL RECOGNITION IN ORDER LEGALIZE HIM FOR RESETTLEMENT.
+
+2. CASE DISCUSSED WITH MR. JOHN VILLINS WHO WILL VISIT BONN 5 FEB AND WILL TAKE MATTER UP DIRECTLY WITH CHIEF, CAVATA TELLING HIM THIS AIS CASE AND ASK HIM NOT PURSUE.
+
+3. PLS ADVISE PRIORITY IF YOU DESIRE VILLINS CHECK IN WITH YOU PRIOR HIS VISIT CAVATA.
+
+END OF MESSAGE
+
+<table><tr><td>SECRET</td></tr></table>
+
+EXCLUDED FROM AUTO-MATIC DOWNGRADING & DECLASSIFICATION
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

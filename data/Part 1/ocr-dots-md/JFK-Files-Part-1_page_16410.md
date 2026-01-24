@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_16410.png
+
+Convert to Markdown# Target Analysis Summary Report
+
+## AUX/C/1 Operation
+
+SUBJECT: Noel GUERRERO Santiago (201-81510)
+
+### I. Significance of Target
+
+GUERRERO is presently in Mexico and is "intermediary" between Cuban IS and the FLN in Nicaragua. His Cuban Intel pseudo is Andres Badariaga. AMUG-1 saw him in Mexico in March 1964 regarding funds which the DGI had provided the FLN. According to AMUG-1 GUERRERO is involved in "Rrijos de la Tempesta" which also involves three or four other DGI agents. AMUG-1 also reported that GUERRERO is in trouble with the FLN which claims he spent money improperly. The FLN has no confidence in him and considers him covariously and lacking in fighting spirit. By other sources he has been described as one of the main Communists in Central America. He was in Cuba in 1939 to get Cuban aid from the revolutionary movement against Nicaragua. He was formerly a member of the Communist Party in Mexico. He was a cell leader in Corinto and advisor to the Televador's Union.
+
+### II. Current Location
+
+He is presently in Mexico. He was a political exile in Honduras in 1959. He has travelled extensively throughout Central America and may have been clandestinely in Nicaragua in July 1968.
+
+### III. Vulnerabilities (for recruitment or defection)
+
+AMUG-1: GUERRERO is in trouble with the FLN which claims he spent money improperly. The FLN has no confidence in him, and considers him covariously and lacking in fighting spirit. Among AMUG-1 documents is a critique of the abortive incursion in Nicaragua in July 1963 by Silvio Mayorga and Orlando Quant (Quintana which biases GUERRERO for its failure). GUERRERO'S own account admits certain mistakes and tries to justify others. However, it must be borne in mind that GUERRERO is a long time

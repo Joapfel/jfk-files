@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_16638.png
+
+Convert to MarkdownSECRET
+
+RECEIPT FOR AUTHENTICATION MATERIALS
+
+TO: TSD/IB
+
+DATE ____________
+
+I HEREBY ACKNOWLEDGE RECEIPT OF THE FOLLOWING AUTHENTICATION MATERIALS TRANSMITTED WITH MEMO NO. A3 7092 DATED 12 Aug 64 AND PREPARED IN ACCORDANCE WITH WU/SA/Memo 64-620 3 Aug 64
+
+Ernesto Jesus GARCIA Guzman
+Ecuadorian PP # 19406
+Ecuadorian Vacc Cert. [4314] 31
+I&NS Form I-94 (showing arrival in U.S. 28 July 1964.)
+
+Note: We are also returning subject's Cuban Documents as follows:
+
+1. Cuban Dipl. PP No. D/64/139
+
+2. Cuban Ord PP 22560
+
+3. Cuban Int. Vacc.Cert. 296598
+
+4. Negative of subject
+
+OFFICER'S SIGNATURE
+
+NOTE: Authentication Materials must be returned to TSD/IB as soon as the intended operational use has been fulfilled; unused documents, whether filled in or blank, must be returned to TSD/IB when no longer needed.
+
+TSD/IB should be notified if any of the Authentication Materials are destroyed, lost, or for any other reason can no longer be returned.
+
+D-061
+
+SECRET
+
+5/pv

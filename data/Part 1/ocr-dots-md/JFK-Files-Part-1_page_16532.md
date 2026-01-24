@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_16532.png
+
+Convert to Markdown<table><tr><td>CABLE SECRETARIAT DISSEMINATIC</td><td>CLASSIFIED MESSAGE</td><td>TOTAL COPIES</td></tr><tr><td colspan="2">PERSON UN/T NOTIFIED</td><td>25-1</td></tr><tr><td rowspan="2">ADVANCE COPY ☐ ISSUED ☑ SLOTTED</td><td></td><td rowspan="4"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td>SECRET<br/>(When Filed In)</td><td>GROUP I, PERS. RES'N AUTOMATIC DATA CAPabilTy AND<br/>CLASS. CAT.</td></tr><tr><td colspan="2">REPRODUCTION OF THIS COPY PROHIBITED</td></tr><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table></td></tr><tr><td>BY __________ AT ________ Z</td></tr><tr><td>DISTRIBUTED BY ________ PER ____</td><td></td></tr><tr><td>ACTION UNIT WH8</td><td>N/A</td><td>FILE VR PLAN, EURG, C.I., cLDRS, c/c1c2, Fl.,</td></tr><tr><td>ACTION NO 257</td><td></td><td></td></tr></table>
+
+SECRET 172143Z JAN 72 CITE WH/MIAMI 13595
+
+OTTAWA INFO DIRECTOR
+
+TYPIC SMABOVE
+
+REF A OCUA 16526
+B UFAA 3597
+
+1. PRIOR TO FEBRUARY CONFERENCE WE INTEND TO REVIEW ALL PHOTOGRAPHS OF PBRUMENS STATIONED CANADA WITH THOSE AM STAFF/AMQUAKE DEFECTORS WHO ARE RESPONSIBILITY OF WH/MIAMI. PLEASE FORWARD ANY AVAILABLE COPIES OF I.D. PHOTOS FOR INDIVIDUALS LISTED REF B.
+
+2. FYI: VALUE OF SUCH A REVIEW IS UNDERLINED BY AMMUG-1'S RECENT RECOGNITION OF JORGE DE LA VEGA VIGNON (201-815356) VIA SUCH A PHOTO. UNFORTUNATELY, AMMUG-1 WAS UNABLE TO IDENTIFY VEGA AS BEING INTEL.
+
+3. FILE: 201-815356, 201-749651, 19-2-16. GP1.
+SECRET
+
+CS (COPY)
+
+FOR CROSS FILING IN
+201-749651
+
+SECRET
+
+17 Jan 72
+
+17 Jan in 515283 //

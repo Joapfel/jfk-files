@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_16126.png
+
+Convert to Markdownfrom the Court. The requested meeting was put off by Judge Fay and defendants subsequently rested their case. The DOJ had little else to add and the case went to the jury about noon on 3 September. All the remaining copies of Agency documents were returned to Headquarters by the undersigned the evening of 3 September. On 4 September the jury returned a verdict of "not guilty." As a result, the bulk of "Brady-type" Agency documents on Werbell was not provided to counsel for Werbell and Judge Fay reviewed no Agency documents. It should be noted all copies of documents taken to Miami were excised in accord with the "SWP case criteria" and on return to Headquarters, these were destroyed by the undersigned.
+
+6. As a related matter, on 16 November Mr. Arthur Egbert of the Internal Security Division of the DEA contacted the undersigned seeking background information on Werbell. The undersigned suggested Egbert first review the files of the FBI on Werbell as most of the data we have is contained in FBI reports. Should FBI data be insufficient for his needs I suggested he seek access to our files in DDO and Office of Security via the normal DEA Department of Justice liaison channels.
+
+Walter T. Lloyd
+
+Attachments:
+
+(1) Affidavit - DeFelice
+
+(2) Affidavit - Lloyd
+
+(3) Transcript of Hearing of USDC for Southern District of Florida, August 31, 1976.
+
+cc: Jerry Brown, SAG/OS, w/o atts
+Ed Montgomery, LD/SBCH/DDO, w/o atts
+
+CONFIDENTIAL
+
+1-00030

@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_16481.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM OF ORAL COMMITMENT
+
+SUBJECT: Engagement of SLANK-1 (201-749651)
+
+1. Term and Project Charge: Subject has been engaged under oral contract for use under Project SLEEPER. The effective date of the oral contract is 16 Oct 1975.
+
+2. Security Approval: An OA for the operational use of Subject outside the U.S. was granted on 6 Jan 1971.
+
+3. Citizenship: Subject is a United States Citizen.
+
+4. Compensation: Subject is reimbursed for travel expenses and is given a salary replacement for any time he is required to be absent from work at the request of the Agency. The salary reimbursement will not exceed $40 a day. He may be awarded cash bonuses for services rendered. He may also be given gifts from time to time, the individual value of which will not exceed $50.
+
+5. Taxes: Subject is obligated to pay U.S. taxes and should be issued a Devised Facility Form 1099 at the end of each tax year.
+
+6. Quarters and/or Subsistence:
+
+a. Subject is not furnished quarters or subsistence.
+
+b. No commitments have been made regarding additional compensation to accommodate increased cost of living and quarters expenses.
+
+7. Operational Expenses: Subject will be reimbursed for operational expenses such as entertainment of operational contacts, phone calls, cover expenses, etc., upon submission of proper accounting for such expenses.
+
+<table><tr><td>SE</td><td>X-</td></tr><tr><td>ID</td><td></td></tr><tr><td>IFCS</td><td></td></tr><tr><td>LWFC/P</td><td></td></tr></table>
+
+SECRET
+
+E2, IMPDET
+CL BY: 025231
+
+<table><tr><td>RECORD COPY</td></tr></table>

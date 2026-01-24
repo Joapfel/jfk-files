@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_16080.png
+
+Convert to Markdown(i) Training will be of six weeks duration, and will include the use of a starlight scope in identification. Students will be taught the techniques of estimation, lead, and engaging moving targets. Instruction will begin on the methods for estimating range over extreme ranges so that a firer can off set his point of aim to place the bullet on target. Following this, students will learn the methods of zeroing -14 accuracy rifles equipped with the adjustable ranging telescopic sight (M5), the VARO Starlight Scope or the fixed Leica 584 telescopic sight, and the SIONICS-2R suppressor. Night firing will be included in the course and each student will learn to engage targets with his starlight scope at ranges of 100, 300, and 600 meters.
+
+(ii) In addition to Marksmanship training, students will be schooled in adjustment of artillery fire, day/night land navigation, map reading, and deception operations (see Table 1-1). Each of these subjects is important to the sniper. He frequently must select his position from a situation map and then travel to that location at night. It is essential that he select the optimum position, know his position in relation to friendly units and be able to navigate to his preselected position. The ability to accurately adjust artillery fire is important to a sniper. He frequently must adjust illuminating rounds carefully so that illumination is placed on target in such a manner as to illuminate the target and not compromise
+
+-17-

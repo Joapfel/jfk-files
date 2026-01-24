@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_16205.png
+
+Convert to MarkdownDDO/WH/7/E. James McTigue:ar/4221/1497/ (26 June 1974)
+
+Distribution:
+
+Orig. & 1 - FBI
+1 - OPS/LSN
+1 - CIOPS/WH
+1 - 201-259910
+1 - C/OS/SSD/OSB
+1 - C/WHD
+1 - WH/Security
+3 - O/PERSONNEL for MULDOON, ROUSSOS, and MACKEM's personnel files
+1 - WH/7/CAR Chrono
+1 - 189-9-1
+
+BASED ON: Memoranda for the Record dated:
+* 22 May 1974
+* 21 June 1974
+* 22 June 1974
+* 26 June 1974
+
+SIGNATURES
+
+3.9

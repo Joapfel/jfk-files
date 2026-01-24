@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_16077.png
+
+Convert to Markdown(2) Training Facility
+
+A sniper training facility will be constructed to accommodate 30 students. The facility should include a 40 point firing range and adjacent classrooms. The range should be built with target facilities at 150, 300, 600, and 900 meters.
+
+A moving target should be built on the 300 meter butt in addition to the fixed targets at that position.
+
+c. Equipment
+
+(1) The sniper teams of the 501/K Pltn. will be equipped with National Match Grade M-14 rifles obtained by urgent NTS request to JUSMAG. These rifles are glass bedded into impregnated stocks which are impervious to water. The rifles are carefully tuned to provide a high degree of accuracy.
+
+(2) The accurized M-14 rifles will be equipped with a 3-9 variable power adjustable ranging telescope sight (ART). The telescope is mounted in conjunction with a ballistic cam. The sight reticle includes a pair of stadia lines. By varying the power of the telescope until the stadia lines define a 30 inch area on the target, the ballistic cam
+
+2.12

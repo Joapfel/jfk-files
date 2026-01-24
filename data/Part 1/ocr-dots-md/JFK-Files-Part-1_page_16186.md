@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_16186.png
+
+Convert to MarkdownSECRET/SENSITIVE
+
+informed that the case comes under FBI jurisdiction, that this Agency has no official involvement, and that all information we had on the matter had been made available to your Bureau. He was advised at that time to report his contacts and any information he had to your Bureau.
+
+FOR THE DEPUTY DIRECTOR FOR OPERATIONS:
+
+/s/ David A. Phillips
+
+David A. Phillips
+
+CIRA-0432-74
+
+SECRET/SENSITIVE
+
+314

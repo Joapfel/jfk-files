@@ -1,0 +1,69 @@
+# JFK-Files-Part-1_page_16384.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+<table>
+  <tr>
+    <td>SECRET</td>
+    <td>
+      <table>
+        <thead>
+          <tr>
+            <th colspan="2">FORWARDING</th>
+          </tr>
+        </thead>
+        <tbody>
+          <tr>
+            <td>1</td>
+            <td>14</td>
+          </tr>
+          <tr>
+            <td>2</td>
+            <td>15</td>
+          </tr>
+          <tr>
+            <td>31</td>
+            <td>61</td>
+          </tr>
+        </tbody>
+      </table>
+    </td>
+  </tr>
+</table>
+
+TO DIRECTOR
+
+FROM : F. Secrest
+
+ACTION : JCH
+
+INFO : DDP, Williams, or, albus, etc., Fl. V,
+
+SECRET 042225Z
+DIR CITE TEGU 5653
+DYBOUR PERUMEN AMBIG
+REF: TEGU 5625 (m. c. 5/6)
+FOLLOWING FROM LANGOSCH
+
+5 Sep 91 16:37:38
+
+1. POSVING CHIEF AND LANGOSCH HAD PRIVATE MEET INNINGS
+   A SEPT WITH [CHIEF OF STATE COL. OSWALDO LOPEZ] LANGOSCH BRIEVED
+   ON DGI OPS AND ORGANIZATION, INCLUDING INFO ON [MARIO SOSA N. 'ARRO']
+   [MAGLIO MORENO ESPITAL] [LUIS BANECAS] AND [ANTONIO FERNÁNDEZ IZA 'CIRLE']
+   WHO USES HONDURAN DOCS IN NAME [MIGUEL MANCIA MADRID] ALSO
+   FURNISHED RECENT [TRAVEL LISTS] AND COPY OF DGI [REQUIREMENTS ON
+   INDJ] 06
+2. [LOPEZ] EXAMINED KEAN INTEREST, REVIEWED ALL NOTES, SAID
+   IF KNEW SOME PERSONALLY INCLUDING SOSA, PROHISED PROVIDE ALL
+   FUSIBLE INFO ON ALL [NOTOCRANS] THROUGH POSVING CHIEF AND X'REDSED
+   WILLINGNESS TO END FULL COOPERATION. SAID GOVT HAS ABOUT 25 COMMIES
+   UNDER ARREST AND HAS HAD TO RELEASE OTHERS FOR LACK OF EV EENCE BUT
+
+SECRET
+
+PER PRODUCTION BY OTHER THAN THE ISSUING OFFICE IS REQUIRED
+
+by No.
+
+11BR

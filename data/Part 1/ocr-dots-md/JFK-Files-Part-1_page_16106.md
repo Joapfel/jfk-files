@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_16106.png
+
+Convert to MarkdownCONFIDENTIAL
+
+UNITED STATES GOVERNMENT
+Memorandum
+
+TO D. Chief, OP/RD
+
+FROM : L. L. Curran
+
+SUBJECT: BAKER, Bruce Arman
+
+DATE: 4 March 1968
+
+On 7 February, this gentleman telephoned my office. His address is:
+
+Mr. Bruce Arman BAKER
+11379 President Drive, N. E.
+Blaine Village, Minnesota
+
+CIT. U.S.A
+
+Mr. Baker stated that he has been in contact with a Mr. MITCHELL WERBELL, III of Powder Springs, Georgia.
+
+Mr. Baker says that Mr. Werbell is in the business of manufacturing weapons and delivering them by air throughout the world. Mr. Baker understands that Mr. Werbell does this for the Central Intelligence Agency.
+
+Mr. Baker says that Mr. Werbell is a supposedly reputable man. Baker understands, from Werbell, that Baker will have to get a CIA security clearance to fly for Werbell.
+
+Mr. Baker has served in the military. He has had some paramilitary training. He belongs in a "jump club" and now participates in "freefall", etc. He has a Morse Code proficiency and a Radio License Second Class. He has Spanish language proficiency and would be willing to collect for us.
+
+This man persists on pursuing me re this CIA/Werbell relationship. I tell him I don't know a thing about it. It seems he has a smuggling record when he was 17 and he's afraid this may keep him from getting this Werbell "CIA" clearance.
+
+L. L. Curran
+
+MICROFILMED
+AUG 30 1968
+DOC. MICRO. SER.
+
+LLC:sb
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+CONFIDENTIAL
+
+GRC-158

@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_16528.png
+
+Convert to MarkdownCONFIDENTIAL
+
+EXCERPT FROM JOURNAL
+
+OFFICE OF LEGISLATIVE COUNSEL
+
+3. (Confidential - JGO) Met with Mr. Drury Blair, Senate Immigration and Naturalization Subcommittee staff, who told me that due to the primaries in the Chairman's home state he did not believe that any further meetings of the Subcommittee will be held until mid June. H. R. 2076, a bill for the relief of Vladimir Rodriguez LaHera, is on the agenda for the next Subcommittee meeting. Miss Chris Hopkins, WH Division, has been advised.

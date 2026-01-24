@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_16236.png
+
+Convert to MarkdownMESSAGE FORM
+TOTAL COPIES:
+
+SECRET
+
+OUTGOING AND/OR INTERNATIONAL CATEGORY
+
+<table><tr><td></td><td>5</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>13</td></tr></table>
+
+CC/PO:
+CODE SECRETS ARE DISSEMINATED BY
+BY ________ PERS. NO. ________
+FILE COPY TO ________ BRANCH ________
+NO MORE THAN ONE FILE PER NO.
+FILE ON COPY NO.
+
+PAGE THREE
+
+CITE DIRECTOR:
+
+TO
+
+(Identification)
+
+(Date and time filed)
+
+(relevance number)
+
+3. NO HEADQUARTERS TRACES ON ANY OTHER INDIVIDUALS CITED REF A. ABOVE CAN BE PASSED KRHOLLY/4.
+
+4. FOR LONDON: HEADQUARTERS HAS NO INFORMATION WALLERSTEIN; PLEASE FORWARD LAGOS YOUR TRACES.
+
+END OF MESSAGE
+
+AF/BC/EUROPEAN
+
+E/BC/UK
+
+C/AF/4
+
+RELEASING OFFICE
+
+COORDINATING OFFICER
+
+SECRET
+
+GROUP 1
+Includes from automatic
+compiling and
+Dated 06-08-90
+
+AUTHENTICATING
+OFFICE
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

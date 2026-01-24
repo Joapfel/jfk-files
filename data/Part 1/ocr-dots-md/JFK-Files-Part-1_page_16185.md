@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_16185.png
+
+Convert to Markdown# SECRET/SENSITIVE
+
+CENTRAL INTELLIGENCE AGENCY
+WASHINGTON, D.C. 20505
+
+## WARNING NOTICE
+SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED
+
+6 AUG 1974
+
+MEMORANDUM FOR: Director
+Federal Bureau of Investigation
+
+ATTENTION : Intelligence Division
+
+SUBJECT : MITCHELL LIVINGSTON WERBELL, III
+
+REFERENCE : A. Conversation between Mr. William McDonnell, FBI Liaison Officer and Mr. F.I.G. Coleman of this Agency on 29 July 1974.
+
+B. FBI New York Report dated 19 July, Subject as above.
+
+1. Authorization is granted for your Bureau to pass a copy of CIRA-0371-74 dated 27 June 1974, Subject as above, to the Department of Justice for its use. We wish to make it clear that the former Agency employees mentioned in paragraph 2 of that report: John Patrick MULDOON and Theodore John ROUSSOS, provided their information voluntarily with the intent of seeking the advice of this Agency on the legality of the proposed venture of the Friends of Abaco (FOA). Both men were advised to avoid contact with the FOA and to report their contacts to the Federal Bureau of Investigation.
+
+2. This Agency has not initiated any further contact with the individuals named above or with Walter Joseph MACKEM, the third former employee approached by the FOA. MACKEM, however, did himself contact this Agency in an attempt to get an official policy on the activities of the FOA. He was
+
+CLASSIFIED BY 010116. EXEMPT FROM GENERAL DECLASSIFICATION SCHEDULE OF E.O. 11652 EXEMPTION CATEGORY 5B (2). IMPOSSIBLE TO DETERMINE DATE OF AUTOMATIC DECLASSIFICATION.
+
+SECRET/SENSITIVE
+
+201-251910

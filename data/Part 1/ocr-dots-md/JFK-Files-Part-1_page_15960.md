@@ -1,0 +1,73 @@
+# JFK-Files-Part-1_page_15960.png
+
+Convert to Markdown14-00000
+
+ORIG. Clayton V. Kallander
+UNIT TSD/IB/FS-4
+EXT 3391
+DATE 15 June 1962
+
+CLASSIFIED MESSAGE
+
+<table><tr><td colspan="2">SECRET</td></tr></table>
+
+TO FRANKFURT LEOPOLDVILLE
+
+FROM DIRECTOR
+
+CONF: C/TSD 2
+
+INFO : ADDP, C/C1, C/F1 2, CDC, C/AF 3, C/EE 3, S/C 2
+
+<table><tbody><tr><td>ROUTING</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+S.JUN.74 13372
+
+S/S CHY
+DEFERRED
+X ROUTINE
+
+OUT 9.704
+
+CITE DIR
+
+17406
+
+17406
+
+~~Don't know~~
+
+TO FRAN LEOB HARVARD TECHS
+
+RFP DIR 15840 (OUT 91968)
+
+IF HARVARD DOES NOT HAVE INFO RE SOUTH AMERICAN CITIZENSHIP REQUIREMENTS KURT WILL PROVIDE IF FRAH REPORTS COUNTRIES OF INTEREST.
+
+END OF MESSAGE
+
+TSD COMFCT: Will reply re South American citizenship requirements by Telex.
+
+C/EE/G/OPS Bill Phelps, by phone wak
+
+C/AF/OPS Paul Springer, by phone wak
+
+SIDNEY GOTTLOB
+A CHIEF, TSD
+
+RELEASING OFFICER...
+
+DELEGATED
+COORDINATING OFFICER
+
+CHARLES J. RYAN
+ASSOC/TSD/AUTH
+
+COORDINATING OFFICE 19-43
+SECRET
+
+AUTHENTICATING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+Copy No.
+
+Jef.-235477

@@ -1,0 +1,85 @@
+# JFK-Files-Part-1_page_16506.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>CABLE SECRETARIAT DISSEMINATION</td>
+    <td>ASSIFIED MESSAGE</td>
+    <td>TOTAL COPIES</td>
+    <td>ROUTING AND OR INITIALS SEEN BY</td>
+   </tr>
+   <tr>
+    <td colspan="2">PERSON/UNIT NOTIFIED</td>
+    <td rowspan="5">
+     SECRET<br/>
+     (When Filled In)<br/>
+     GROUP I, . . .<br/>
+     INCLUDES TOW AIMATE<br/>
+     INSIGNIA INLET INCORPORATED<br/>
+     .10-8096<br/>
+     .4-573<br/>
+     DEPRODUCTION OF THIS COPY PROHIBITED
+    </td>
+    <td>
+     .7<br/>
+     .2<br/>
+     .3<br/>
+     .4
+    </td>
+   </tr>
+   <tr>
+    <td>ADVANCE COPY ☐</td>
+    <td>ISSUED ☐</td>
+    <td>e</td>
+   </tr>
+   <tr>
+    <td></td>
+    <td>SLOTTED ☑</td>
+    <td>7</td>
+   </tr>
+   <tr>
+    <td>BY __________ AT __________</td>
+    <td>%</td>
+    <td>8</td>
+   </tr>
+   <tr>
+    <td>DISSEM BY 15 PER __________</td>
+    <td></td>
+    <td>cs. Dept. c/o N.S.</td>
+   </tr>
+   <tr>
+    <td>ACTION UNIT WH 8</td>
+    <td>FILE VR</td>
+    <td colspan="2">PLAN, cl. cedes, c1oa, scow4, odc</td>
+   </tr>
+   <tr>
+    <td>ACTION NO 763</td>
+    <td></td>
+    <td colspan="2"></td>
+   </tr>
+  </table>
+
+SECRET 141555Z AUG 72 STAFF
+
+CITE WH/MIAMI 15470
+
+DIRECTOR.
+
+AKULE TYPIC AMMUG
+
+REFS: A. DIRECTOR 291693
+B. UFAT 3301
+
+653346
+
+1. MR. JAMES TILLMAN OF LOCAL INS CONTACTED STATION AND INFORMED US THAT AMMUG-1 HAD CONTACTED HIM FOR ASSISTANCE IN INITIATING NATURALIZATION PROCEEDINGS (WE HAD PREVIOUSLY ALTERED TILLMAN OF POSSIBLE AMMUG-I CONTACT FOR SUCH ASSISTANCE).
+
+2. TILLMAN STATED HE NOT AUTHORIZED ASSIST AS PRIVATE CITIZENSHIP BILL HANDLED BY HIS CENTRAL OFFICE WHICH MUST ISSUE INSTRUCTIONS TO LOCAL OFFICE FOR ACTION. TILLMAN INFORMED US THAT HE GAVE AMMUG-1 VARIOUS FORMS TO COMPLETE AND RETURN TO STATION. COMPLETED FORMS SHOULD BE FORWARDED TO BKTRUST HQS ATTENTION ALIEN AFFAIRS STAFF WHICH SHOULD REVISE AND THEN FORWARD ON TO INS CENTRAL HQS. INS HQS WILL THEN ADVISE LOCAL OFFICE WHAT ACTION TO TAKE, AFTER WHICH AMMUG-1 WILL BE GRANTED CITIZENSHIP.
+
+3. PLEASE ADVISE SOONEST WHETHER ABOVE PROCEDURE CORRECT
+
+CS COPY
+
+SECRET
+
+14May72
+201-749651

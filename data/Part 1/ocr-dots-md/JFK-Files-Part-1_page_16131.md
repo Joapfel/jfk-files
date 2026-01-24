@@ -1,0 +1,63 @@
+# JFK-Files-Part-1_page_16131.png
+
+Convert to MarkdownOUTGOING MESSAGE
+
+<table><tr><td>0</td></tr></table>
+
+SIGNAL CENTER USE ONLY
+
+AMT CQ ACF TOG TPE HFG DCB
+
+DMF 0 J 0 0 0 0 0 0
+
+CLASSIFICATION
+SECRET
+
+MESSAGE HANDLING INSTRUCTION
+
+STAFF
+
+CONF.:
+
+INFO: FILE
+
+DATE-TIME GROUP
+
+CFT
+
+DIRECTOR
+
+MESSAGE REFERENCE NUMBER
+
+0 NON-DISSEMINATED
+0 NO DATES
+0 RETURN TO PER
+0 DPFS $
+
+5. UNABLE TO IDENTIFY DOMINICAN COMPANY.Y
+201-257910,
+6. FILE: 201-889547; X REF 201-060338. E2 IMPDET.H
+
+DATE: 12 DECEMBER 1975
+ORIG: DAVIS/LARD/AMU
+UNIT: E/GC
+EXT: 1441
+C/FR/B
+
+OPS/LSN/ID(IN SUBSTANCE)
+FN/2 S.g. Bedie
+E/EXO(IN SUBSTANCE)
+
+CH/E/GC
+
+AUTHORIZING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING C.F.I. IS PROHIBITED
+
+E 2 IMPDET
+
+JUN 26 1975
+
+SECRET
+
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .

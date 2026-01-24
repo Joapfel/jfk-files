@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_15998.png
+
+Convert to Markdown<table><thead><tr><th>DISPATCH</th><th colspan="2">SECRET</th></tr><tr><td colspan="3">TO<br/>Chief of Station, WH/Miami</td></tr><tr><td>INFO</td><td colspan="2">NO INDEXING REQUIRED</td></tr><tr><td>FROM<br/>Chief, Western Hemisphere Division</td><td colspan="2">ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td>SUBJECT<br/>&#x016F; VWVAPOR/Mitchell Livingston Werbell III</td><td colspan="2">MICROFILM</td></tr><tr><td colspan="3">ACTION REQUIRED: FYI</td></tr><tr><td colspan="3">Forwarded under separate cover is a report from LNERGO dated 12 September 1973 on Subject.</td></tr><tr><td colspan="3">Louise B. PERLBINDER</td></tr><tr><td colspan="3">Attachment: U/S/C</td></tr><tr><td colspan="3">Distribution:<br/>Orig. & 1 - COS, WH/Miami, w/att., u/s/c</td></tr><tr><td colspan="3">E2 IMPDET CL BY: 019722</td></tr><tr><td colspan="2"><table><tr><td>RECORD COPY</td></tr></table></td><td></td></tr><tr><td>CROSS REFERENCE TO</td><td>DISPATCH SYMBOL AND NUMBER<br/>UFPW-784<br/>CLASSIFICATION<br/>S E C R E T</td><td>DATE<br/>Typed: 12 October 1973<br/>HOS FILE NUMBER<br/><u>V</u>201-0259910</td></tr><tr><td>1 - 201-0259910<br/>1 - WH/7/Car Chrono</td><td colspan="2"><table><tbody><tr><td colspan="3">ORIGINATING</td></tr><tr><td>OFFICE</td><td>OFFICER</td><td>TYPIST</td></tr><tr><td>WH/7/Car</td><td>Esther Lucero:</td><td>ar</td></tr><tr><td colspan="3">COORDINATING</td></tr><tr><td>OFFICE SYMBOL</td><td>DATE</td><td>OFFICER'S NAME</td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td>AC/WH/7</td><td>12/7/73</td><td>E. James McTigue</td></tr></tbody></table></td></tr><tr><td>FORM 53 USE PREVIOUS EDITION.<br/>MFG. 8-72</td><td colspan="2"></td></tr></tbody></table>
+
+14-00000
+
+DISPATCH
+
+2.5.2
+
+4133/]249

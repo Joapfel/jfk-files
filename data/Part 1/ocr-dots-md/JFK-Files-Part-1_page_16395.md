@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_16395.png
+
+Convert to MarkdownNicaragua. Leads Not to be Disseminated
+
+AMTS/1 Operation
+
+Noel QUERRERO Santiago
+
+Professor TORRES (probably Edelberto TORRES Espinoza)
+
+Silvio MATURGA (or MALLORCA)
+
+Ernesto MARTINEZ
+
+German PALACHI Baca
+
+Efraín SANCHEZ
+
+Carlos A. TINDO Montiel
+
+Marvin CASTRO
+
+Felix MONTERREY Dobil
+
+Ellicio Dharinto GONZALEZ Moreno
+
+Alejandro ALEJANDRA Bermudez
+
+Juan Jose GARCIA Lorio
+
+El ALTMIRANO
+
+Bayardo ALTAMIRANO Lopez
+
+Ivan BACA
+
+Alejandro BECUELAS
+
+Anibal LORIO Garcia
+
+Enrique MARENSO
+
+Orlando QUANT Quintana
+
+Rolando QUANT
+
+Monterrey SUES
+
+Rodolfo ROMELLO Gomez
+
+Efraín SANCHEZ Sancho
+
+CTCAPET

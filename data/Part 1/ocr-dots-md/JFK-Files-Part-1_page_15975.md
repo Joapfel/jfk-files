@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_15975.png
+
+Convert to MarkdownSECRET/RYDARY
+
+2.65
+
+200-11-11/8
+
+# Contract for the Supply of Water and Sewerage Services to the District of Cochrane
+The Contract is effective from 01 July 2000, and remains in full force until 31 December 2009.
+The Contract was signed by Mr R W Pickett on behalf of Cochrane Water Corporation (CWC), and is effective from 01 July 2000.
+
+In accordance with section 74A of the Water Act 1986, CWC has entered into this Contract for the supply of water and sewerage services to the District of Cochrane.
+
+The Contract provides that CWC will supply the District with appropriate water for its use, and that it will maintain a sufficient water flow to prevent the formation of standing water in the District's water mains.
+
+The Contract also requires CWC to take reasonable measures to prevent pollution of the District's water supplies.
+
+This Contract is effective from 01 July 2000, and remains in full force until 31 December 2009.
+
+The Contract may be amended or cancelled by mutual agreement between the parties at any time prior to its expiration.
+
+The Contract expires on the earlier of:
+1. 31 December 2009,
+2. 1 year after the end of the initial term, or
+3. 5 years from the date of this Contract,
+whichever occurs first.

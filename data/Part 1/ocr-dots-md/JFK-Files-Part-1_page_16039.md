@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_16039.png
+
+Convert to Markdown14-0000
+
+MEMORANDUM FOR : Chief, SOD/GB
+SUBJECT : Possible Clandestine Planning Involving Haiti
+REFERENCE : Your Memorandum, Same Subject, dated 30 January 1970
+
+1. WH/7 conveyed the substance of your first memorandum on this subject to the FBI, which has now advised us that the Office of Special Investigations, USAF, and the Alcohol, Tobacco and Firearms Division of the Internal Revenue Service, Treasury Department, have both had recent investigative interest in WERBELL'S activities.
+
+2. Under these circumstances, WH/7 suggests that LTC Cochrane be advised to inform an appropriate USAF security office of Mr. WERBELL's statements. This should insure that any follow-up inquiry concerning those statements would be properly coordinated with such other investigations as may be in process.
+
+David L. Smock
+C/WH/7
+
+<table><tr><td>SECRET</td></tr></table>

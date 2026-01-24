@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_16372.png
+
+Convert to MarkdownC/WE/INT
+
+REPRODUCIBLE BY OTHER THAN THE ISSUING OFFICER. PROHIBITED.
+
+Copy No.

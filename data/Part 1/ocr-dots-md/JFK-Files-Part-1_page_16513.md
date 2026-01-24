@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_16513.png
+
+Convert to MarkdownCABLE SECRETARIAT DISSEMINATION
+
+CLASSIFIED MESSAGE
+
+TOTAL COPY
+
+ROUTING AND/OR INITIALS-SEEN BY
+
+<table><tr><td></td><td>1</td><td>5</td></tr><tr><td></td><td>2</td><td>6</td></tr><tr><td></td><td>3</td><td>7</td></tr><tr><td></td><td>4</td><td>8</td></tr></table>
+
+SECRET
+
+(When Filled In)
+
+PERMITTING OF THIS COPY PROVIDED
+
+FILE VR
+
+SECRET STAFF
+
+CITE WH MIAMI 15075
+
+DIRECTOR.
+
+AKLE-TYPIC AMMUN
+
+REF WH MIAMI 15074
+
+IDEN VLADIMIR RODRIGUEZ LAHERA GP-1
+
+SECRET
+
+649500
+
+SECRET
+
+30 Jun 72
+201-74965/

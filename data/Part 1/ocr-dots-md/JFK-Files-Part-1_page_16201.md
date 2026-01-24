@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_16201.png
+
+Convert to MarkdownWARNING NOTICE
+SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED
+
+27 JUN 1974
+
+MEMORANDUM FOR: Director
+Federal Bureau of Investigation
+
+ATTENTION : Intelligence Division
+
+SUBJECT : MITCHELL LIVINGSTON WERBELL, III
+
+1. Reference is made to your Bureau's File No.
+MM 105-21382, Subject as above, and your Bureau's reporting on Subject's involvement with the "Abaco Independence Movement" (AIM) in the Commonwealth of the Bahamas.
+
+2. For your information only, three former employees of this Agency were contacted in June 1974 by representatives of a group called "Friends of Abaco," a group allegedly advocating the secession of the island of Abaco from the Commonwealth of the Bahamas. Contact was initiated by Mitchell Livingston WERBELL III, an international arms dealer, and a naturalized Lithuanian named Michael OLIVER, both of whom attempted to involve the former Agency employees in the Abaco Independence Movement (AIM), of which your Bureau is familiar. The three former employees contacted are:
+
+a. John Patrick MULDOON
+
+DPOB: 25 August 1957, Washington, D. C.
+Retired from this Agency on 20 March 1972
+Address at time of retirement:
+4305 Kentbury Drive
+Bethesda, Maryland
+
+CLASSIFIED BY 010116. EXEMPT FROM GENERAL DECLASSIFICATION
+SCHEDULE OF E.O. 11652 EXEMPTION CATEGORY SB (2). IMPOSSIBLE
+TO DETERMINE DATE OF AUTOMATIC DECLASSIFICATION.

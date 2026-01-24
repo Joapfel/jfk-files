@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_16427.png
+
+Convert to MarkdownIt is requested that CI/WA obtain permission for the visitors to enter the R & S Building for this training which is scheduled for the 19th of April.
+
+DESMOND FITZGERALD
+Chief
+Western Hemisphere Division
+
+Concurances:
+
+DC/CI
+
+DDP Training and Qualification Review
+MI/3 [O.S. WECAVAN] ip (24 Feb. 65)
+
+Distribution:
+
+Orig & 1 - Addressee
+1 - DDP/TRO
+1 - CI/Staff
+1 - FI/OPS
+2 - TSD/TRNG
+1 - SOD/Ground
+1 - C/MID
+1 - C/MU/Plans
+2 - MI/3 [V.D.08]

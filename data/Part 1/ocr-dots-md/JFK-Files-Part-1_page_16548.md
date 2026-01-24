@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_16548.png
+
+Convert to MarkdownSECRET
+(WHEN FILLED IN)
+
+MFR
+4.03
+
+FORM 610a
+
+DOCUMENT DATE DOCUMENT NUMBER
+
+68765

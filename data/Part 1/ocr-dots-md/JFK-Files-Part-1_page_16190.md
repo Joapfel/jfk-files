@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_16190.png
+
+Convert to MarkdownCONFIDENTIAL
+
+1 AUG 1974
+
+TO: Director
+Federal Bureau of Investigation
+Attention: Intelligence Division
+
+FROM: Deputy Director for Operations ✓
+
+SUBJECT: Traces Requested by Mr. Wayne Frankenfield
+
+1. This memorandum is in response to trace requests made by Mr. Wayne Frankenfield of the General Investigative Division on 29 July 1974.
+
+2. The files of this office reveal no pertinent identifiable information on:
+
+* Advance Security Corporation of Atlanta, Georgia
+* Howard GIBSON of Georgia
+* Security Defense System of Marietta, Georgia
+
+3. Nothing is known of the Central Investigative Agency, except as reported by the FBI.
+
+4. The files of this office contain considerable information on Mitchell Livingston WERBELL III, born 8 March 1918 in Philadelphia, Pa. The majority of this information was received from the FBI. This office previously furnished the Bureau information on Werbell under CSCI-3/773317 of 24 October 1962, subject WERBELL, Mitchell L.; and CSCI-316/02323-69 of 27 June 1969, subject WERBELL, Mitchell Livingston III.
+
+5. Werbell has never been employed by this Agency nor does the Agency have any operational interest in him. As a 2nd Lieutenant in the Signal Corps in the China-Burma theater in World II, Werbell was assigned to CSS from April to December 1945. In August 1959, this office considered using Werbell as a source of information on revolutionary activities in the Caribbean area,
+
+RECORD COPY
+
+F2 IMPDET
+CL BY 054698
+
+<table></table>

@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_16134.png
+
+Convert to MarkdownThe Owner of Guns Seized
+In 1974 Will Sell Them
+
+MARIETTA Co. Sept. 4 (AP) —Mitchell L. WerBell 3d of Marietta has agreed to quit the arms trade, which in the past has frequently involved him in international intrigue.
+
+In a deal worked out yesterday before a Federal judge, Mr. WerBell agreed that he would stop manufacturing and selling guns if the Government allowed him to sell $325,000 worth of arms seized by Federal agents last December.
+
+The guns, called "the largest collection of private guns in the world" by Mr. WerBell and Federal attorneys, include 2,000 machine guns and silencers.
+
+Mr. WerBell said his company, Defense Systems International, Inc., would continue "to do what we have always done —serve this country."
+
+He said he and his sons have plans to sell radios, electronic equipment and military supplies not covered by the agreement.

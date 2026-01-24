@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_16156.png
+
+Convert to Markdown25 January 1975
+
+SUBJECT: Press Reports of Ex-CIA Employees Involvement with Persons under Congressional Investigation
+
+1. Press reports of Senator Lowell P. Weicker's investigation of CIA's involvement with other government agencies surfaced the contact of Lucien Conein of DEA, a former employee, with an electronic manufacturer named Michael Morrisey. The same reports have also tied Morrisey with a Mr. Mitchell L. WerBell, III, who, according to our files, has claimed United States Government and CIA connections in the past. According to DEA, WerBell recently invoked the Fifth Amendment when appearing before Senator Jackson's Subcommittee investigating DEA on whether or not he supplied arms to Robert Vesco. Also, while not mentioned in the press, at least one retired CIA staffer and possibly two others may have been involved with Conein and Morrisey. The ex-staffer is John P. Muldoon, a friend of Conein's, who currently is a private security specialist who has dealt with Morrisey in the purchase of audio sweeping devices for his business. Muldoon was retained by WerBell during first half of 1974. The other two, Walter J. Mackem, an acquaintance of Conein's, and a Theodore J. Roussos, both of whom were in contact with WerBell for possible employment in a scheme to promote the secession of the Bahamian Island of Abaco, an enterprise publicized in February 1975 issue of Esquire by Andrew St. George.
+
+2. We have no information in our files on the B. R. Fox Company or the Fox Company principals mentioned in the press accounts. We were, however, told by DEA that Mr. Sandy Smith, Time magazine reporter, was working on a story to the effect that the late Bernard Spindel, former owner of the Fox Company, was previously involved in "wire tapping for the Teamsters Union and providing explosive devices for organized crime." Although Mr. Smith did not allege that either CIA or DEA were associated with the Fox Company or Spindel, our DEA source said that Mr. Smith had no intention of dropping the story and we can expect further press coverage.
+
+3. In conclusion, there has been no CIA involvement with the B. R. Fox Company or with Michael Morrisey. Moreover, Mr. WerBell's claims of CIA affiliation or support over the years are simply not true.

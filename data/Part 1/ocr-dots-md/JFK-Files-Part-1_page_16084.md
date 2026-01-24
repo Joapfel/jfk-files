@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_16084.png
+
+Convert to MarkdownThe VAKS can be used as it goes from one location to another. In this case, a sniper team with a 5-8 four SECURITY EQUIPMENT is selected to observe long range observation of the route over which the unit will travel and pick off the enemy as they follow in artilles. The units should use their telescope sights and their suppressors will enable them to engage the enemy at ranges out to 300 meters. At extreme range, the enemy will usually not be cautious about his cover and concealment. Thus, he presents an excellent target for the E/A team.
+
+#### (iii) Off-set
+
+(a) A VARIO Xenon search light will be used to illuminate cover on an area with pink light. The starlight scope is sensitive to a portion of the infrared band that is pink and near the visible light portion of the spectrum. By using a pink filter on a non search light an area can be illuminated with invisible light that registers in the starlight scope. This phenomena will be used in two types of sniper activity: village or perimeter security and ambush operations. Employment of the rifle/scope/suppressor combination will frequently result in the enemy receiving many casualties before he has been taken under fire.
+
+(b) Snipers will be conducted by placing a search-light equipment 1/4 ton vehicle 1200 to 1500 meters from a road intersection. Snipers equipped with starlight scopes and LAW-2 suppressors will be placed 300 meters from the intersection and maintain radio contact with the searchlight operator. The snipera

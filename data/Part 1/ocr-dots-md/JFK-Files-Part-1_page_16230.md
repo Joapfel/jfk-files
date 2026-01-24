@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_16230.png
+
+Convert to Markdown1-601702
+
+(James)
+WICKS, Alastair / Major
+
+DOB: 17 November 1917
+
+POB: England
+
+Citizenship: Rhodesian
+
+Jul. 66 Address: 38 Montague Square
+London W 1
+
+Mar 67 Address: 199 Bickenhall Mansions
+London W 1
+(listed under Janis Morris)
+
+Mercenary in Katanga gendarme, 1961
+
+Former RAS (Rhodesian Air Services) official
+
+Recruiter of South Rhodesian mercenaries for Tshombe forces - 1964
+
+2nd in Command to Mike HOARE in 5 CDO
+
+Left Leopoldville Dec 1965 at termination of mercenary contract for Johannesburg.
+
+One of mercenaries involved in July '66 plot to overthrow MOBUTU (although still in the pay of MOBUTU)
+
+Also, tried to involve Michael HOARE in the plot. He offered HOARE 20,000 L for 6 month contract and rank of full Colonel.
+
+Recruiting Officer in South Africa for Tshombe's forces.. '66
+
+Unwitting SMOTH contact - 1966
+
+Went to London in October 1966
+
+Unscrupulous and undependable
+
+201-801702

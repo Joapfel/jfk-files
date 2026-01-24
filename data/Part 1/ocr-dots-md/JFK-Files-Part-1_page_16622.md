@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_16622.png
+
+Convert to MarkdownP. understands completely what is sought.
+
+3) Hugo: aside: a few lines long in Transport Alba (folio 1) - Name Giulietto Jaquillard, 155 Rue de Charonne, Paris Tel. ROG 06-45; met Hugo 29 April (call from Marneille to all of candidate's cards) [M. Jusse] sug. with Hugo & the candidate 1/2 - 3/4 hour: no The candidate : so many card; ca. 43-45, 175-178, strongly built, broad shoulders, ca 85 kg, slightly oval full face, broad haircomb straight back thinning in corners, thinning on top, nose completion, purple color instead, numbers' hands, more thin & emerald outboard a little, thin legs; thin full foot rest foot, $149" make: compression of a hand/wooden; aspect has better in process - Sainte Anne - name also must lie in name & 1, 6, 9D - accordance would lose game [H. Jusse] Sug. for forename: mit position instead

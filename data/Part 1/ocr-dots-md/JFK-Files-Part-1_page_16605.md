@@ -1,0 +1,77 @@
+# JFK-Files-Part-1_page_16605.png
+
+Convert to Markdown<table>
+  <tr>
+    <td colspan="3">RETURN TO CNA</td>
+  </tr>
+  <tr>
+    <td>Background Use Only</td>
+    <td></td>
+    <td></td>
+  </tr>
+  <tr>
+    <td>Do Not Reproduce</td>
+    <td></td>
+    <td></td>
+  </tr>
+  <tr>
+    <td colspan="3">CLASSIFIED MESSAGE</td>
+  </tr>
+  <tr>
+    <td>DATE: 26 SEP 61</td>
+    <td>SECRET</td>
+    <td>ROUTING</td>
+  </tr>
+  <tr>
+    <td rowspan="3">TO : DIRECTOR<br/>FROM : JMNAVE<br/>ACTION : BELL 10<br/>INFO : DDP, COP, ADDP/A, WH 5, S/C 2</td>
+    <td>1 PA/PROP</td>
+    <td>4</td>
+  </tr>
+  <tr>
+    <td>2</td>
+    <td>5</td>
+  </tr>
+  <tr>
+    <td>3</td>
+    <td>6</td>
+  </tr>
+  <tr>
+    <td colspan="3">SEP 26 2021Z 61</td>
+  </tr>
+  <tr>
+    <td colspan="3">ROUTINE</td>
+  </tr>
+  <tr>
+    <td colspan="3">IN 35514</td>
+  </tr>
+</table>
+
+DIR INFO RIMM CITE WAVE 3143
+
+JHZIP KUCASE AMICE
+
+REF DIR 05764 PARA 2 (COUNTY)
+
+1. WAVE PLANS START ACROSS BOARD TRAINING ALICE INFILS NEAR FUTURE AS FOLLOWS:
+
+A. DANilo POzo CASTRO, POS SANTIAGO DE LAO VEGAS, NAVA
+RPOV (29 NOV 1928) FATHER: (JESÚS) MOTHER: (ISABEL). NO WAVE
+TRACES. LOCAL ODENNY TRACE UNDERWAY.
+
+B. EUSTIQUIANO GARCIA LEZCANO, POS MARTI, PROV MATANZAS.
+(3 DEC 1914.) FATHER: (JOSE MARIA) MOTHER: (ANGELA) NO WAVE
+TRACES. LOCAL ODENNY TRACE UNDERWAY.
+
+C. MIGUEL A. DIAZ ISALCUE, POS MATANZAS, PROV MATANZAS.
+14 FEB 1937. FATHER: MIGUEL ANSEL. MOTHER: DOLORES. WAVE
+REFS: UFGA 1783. NO DEMOG INFO. SUBJ INFIL AND EXFIL CUBA
+WITH EXPERIENCE CLANDESTINE UPS PRIOR 17 APR 31. IMPISONED AND
+RELEASED. FORMERLY MEMBER OF CURRICULUM FOR A POL AFFILI.
+LOCAL ODENNY TRACE UNDERWAY.
+
+D. OSCAR OLIVA CASTRO, PH TRAINEE (4-6-5) (221-297745)
+WAVE 4433).
+
+E. JUAN ESPINOSA GONZALEZ, PH TRAINEE (7-9-7), POR REQUESTED
+
+REPRODUCTION BY OTHER THAN THE ISSUED CHARGE IS PROHIBITED. Copy No.

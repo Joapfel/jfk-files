@@ -1,0 +1,84 @@
+# JFK-Files-Part-1_page_16132.png
+
+Convert to Markdown<table>
+  <tr>
+    <td colspan="3">7-71 WFC. 2/75</td>
+  </tr>
+  <tr>
+    <td>CABLE SEC DISSEMIN BY</td>
+    <td>29</td>
+    <td>PER TOTAL COPIES 28-2 RUN BY</td>
+  </tr>
+  <tr>
+    <td></td>
+    <td></td>
+    <td>S E C R E T</td>
+  </tr>
+  <tr>
+    <td>PERSON/UNIT NOTIFIED</td>
+    <td colspan="2"></td>
+  </tr>
+  <tr>
+    <td colspan="2">ADVANCE COPY ISSUED SLOTTED</td>
+    <td>STAFF</td>
+  </tr>
+  <tr>
+    <td>ACTION UNIT</td>
+    <td>I</td>
+    <td rowspan="4">
+      <table>
+        <thead>
+          <tr>
+            <th>DATE</th>
+            <th>VAR</th>
+          </tr>
+        </thead>
+        <tbody>
+          <tr>
+            <td>EULS</td>
+            <td>1 Plan, FLS, PSLGA, CL4, LSNL0, CLOPS, SS/5064</td>
+          </tr>
+          <tr>
+            <td>ACTION #</td>
+            <td></td>
+          </tr>
+        </tbody>
+      </table>
+    </td>
+  </tr>
+  <tr>
+    <td>I N F O</td>
+    <td>RV FILE VR</td>
+  </tr>
+  <tr>
+    <td>T 504729</td>
+    <td>EIA377</td>
+    <td>PAGE 01</td>
+  </tr>
+</table>
+
+TDR 12 216352 DEC 75
+
+NYFR 33363
+
+SECRET 2217592 DEC 75 STAFF
+CITE FR/NEW YORK 33363
+TOTAL DIRECTOR
+KEYWAY FORRES
+
+<table>
+   <tr>
+    <td>101 - 359 9/10</td>
+   </tr>
+   <tr>
+    <td>DO NOT DESTROY</td>
+   </tr>
+  </table>
+
+1. LOCAL SECRET SERVICE REPORTS FOLLOWING FROM INFORMANT OF ESTABLISHED RELIABILITY. ONE GEORGE STRATOS, LOCAL GREEK-AMERICAN ORCHESTRA LEADER, VISITED CYPRIOTE AMBASSADOR DIMITRIOU IN WASHINGTON CA, 28 NOV TO SOLICIT HIS WILLINGNESS PURCHASE 25 THOUSAND M-16 RIFLES AT $215 EACH. TRANSACTION TO BE CONSUMATED OUTSIDE U.S. DIMITRIOU DECLINED ON GROCUDS PRICE BUT REQUESTED STRATOS SUBMIT PROPOSAL FOR MANUFACTURE AND SALE OF "HIGH-POWERED MARK I AND II HAND GUNS". WEAPONS WOULD BE MANUFACTURED BY DOMINICAN COMPANY, TELEPHONE NUMBER 532-1019 RPT 532-1019. STRATOS AGREED WORK UP DETAILS.
+
+2. ADDITIONAL DETAILS PROVIDED BY INFORMANT: ONE OF NINE PARTNERS OF STRATOS IS ONE MITCH WEEGLER, WHO STRATOS CLAIMS IS FORMER BKHERALD. STRATOS WASHINGTON ATTORNEY IS SAM SCHREIVNER (PHON). TELEPHONE (222) 296-2950. STRATOS CLAIMED M-16'S AND 462 M-60 MACHINE GUNS HE ALSO WISHES SELL REPRESENT U.S. ARMS LOST INDOCHINA.
+
+3. SECRET SERVICE OFFICER (A-0 OF GREEK BACKGROUND) REPORTS STRATOS WAS CLOSE TO PAPADOCULOS GOVERNMENT AND NOTES THAT LARGE SECRET
+
+3.41

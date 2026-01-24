@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_16059.png
+
+Convert to Markdownin view of the above, Sionics, Inc. assures you that he full resources
+of the Corporation will be provided for the successful performance of
+this work. We look forward to the opportunity of serving the Royal
+Thai Government in order to contribute to the defeat of Communist
+terrorism and subversion in Thailand.
+
+With Warm Personal Regard and Respect,
+
+Fred N. Brown
+President
+
+212

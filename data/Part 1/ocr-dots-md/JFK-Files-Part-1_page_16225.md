@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_16225.png
+
+Convert to MarkdownThis businessman stated that there is definite increased activity but that no specific date for any overt action has been mentioned.
+
+This businessman believes that Mafia money is an important factor and that Blacks will be hired to do the actual fighting if there is any fighting. He views the casino issue as the crucial one. He believes Blacks who are opportunistic will seize upon the casino issue to obtain weapons and money from the Mafia and attempt to seize power.
+
+Dr. David Cartano, Sociology Instructor, University of Miami. Cartano was contacted due to his being a past member of the Institute for the Study of Change. When he first became associated with the Institute he was introduced by Mallin as being a Bahamian specialist.
+
+Cartano could not contribute anything pertinent to this inquiry. He has not renewed his contacts in the Islands in over one year's time. He does have two Bahamian students in one of his classes but neither of them has mentioned anything of any significance. He doubts their value as sources.
+
+Gordon O. Rothwell, Chief of Security, Sheraton Four Ambassadors Hotel. Rothwell could not contribute anything pertinent to this inquiry. In addition no prominent Bahamians are presently or have been recently in the hotel.
+
+W. Bruce Wrightson, Chief of Security, Sheraton Royal Biscayne Hotel. No prominent Bahamians are presently or have been recently in the hotel.
+
+A confidential local law enforcement source indicated that an attorney in West Palm Beach is selling automatic weapons. He is free lancing and has a small warehouse with two separate alarm systems installed on the warehouse.

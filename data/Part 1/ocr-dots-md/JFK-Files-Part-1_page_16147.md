@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_16147.png
+
+Convert to Markdown7.31 MRC. 3/74
+
+CABLE SEC DISSEMS BY ______ PER ____________ TOTAL COPIES ______ RUN BY ______
+PERSON/UNIT NOTIFIED ______________ SECRET ______________ REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
+
+<table><thead><tr><th colspan="2">ADVANCE COPY ISSUED SLOTTED</th><th>BY</th><th>AT</th><th>%</th><th colspan="2">STAFF</th></tr></thead><tbody><tr><td rowspan="3">ACTION UNIT</td><td>I</td><td rowspan="3"></td><td rowspan="3">RF FILE VR</td><td></td><td>1</td><td>4</td></tr><tr><td>N</td><td>2</td><td>5</td></tr><tr><td>O</td><td>3</td><td>6</td></tr><tr><td>ACTION #</td><td></td><td colspan="4"></td><td></td></tr></tbody></table>
+
+T 031008 EIA365 PAGE 02-02 IN 511214
+
+TOR:0416002 MAR 75 NVFR 30417
+
+DEFENSE SYSTEMS
+
+POWDER SPRINGS GEORGIA.
+
+ENERGO SOURCE SAID WERBELL (EITHER OR SON) FORMERLY WORKED FOR BHERALD. ALSO MADE OFF THE CUFF REMARK THAT "DEFENSE SYSTEMS COM[SOUNDED LIKE BHERALD FRONT ORGANIZATION."
+
+B, EDGAR LEMMENS AND CO.
+
+BELGIUM
+
+FBI WAS INFO FROM BELGIUM SECURITY THAT LEMMENS AND CO. IN THE PAST HAS PROVIDED ARMS FOR THE IRA AND THE BASQUE INDEPENDENCE MOVEMENT,
+
+3, FILE: 201-0918287. E2 IMPDET
+
+SECRET

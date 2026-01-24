@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_15944.png
+
+Convert to Markdown14-00000
+
+CLASSIFIED MESSAGE
+
+<table><tr><td>N. Roberts</td></tr><tr><td>AP/5</td></tr><tr><td>5032</td></tr><tr><td>13 August 1962</td></tr></table>
+
+B-03
+
+<table><tr><td>ROUTING</td></tr><tr><td>1</td><td>5</td><td>4</td></tr><tr><td>2</td><td>Eep</td><td>5</td></tr><tr><td>3</td><td>Chech</td><td>6</td></tr></table>
+
+1720
+
+FRANKFURT INFO: LEOPOLDVILLIE (BY FOUCHE)
+
+FROM: DIRECTOR
+
+CONF.: DAFD
+
+INFO: ADDP, C/C1, C/FI 2, CDC
+
+C/TSD 2, C/EE 3, CHG 5, S/C 2
+
+OUT: GUN 43 13
+
+TO: FRAN
+
+INFO: HARVARD TECHS WIROGUE
+
+REF: DIR 27679
+
+CITE DIR
+29622
+
+28:22
+
+WISH DRAW WIROGUE ATTENTION ARGENTINA ACCEPTING I MIGRANTS WITHOUT QUOTA RESTRICTIONS. SEEKING FARM AND SKILLED WORKERS, REFUSING WHITE COLLAR. GOOD LIVING CAN BE MADE IN PROVINCES.
+
+END OF MESSAGE
+
+C/S COMMENT: OUT 62136, FC RESETTLING WIROGUE.
+
+COORDINATING OFFICER
+
+SECRET
+
+GROUP 1
+Excluded from automatic
+downgrading and declassification
+
+CME/5
+
+AUTHENTICATING
+OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

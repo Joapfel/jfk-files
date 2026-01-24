@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_15938.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+HARVARD
+
+MONTHLY RESETTLEMENT SUMMARY
+
+1 - 31 December 1962
+
+| AGENTS AND IDENTITIES | CASE OFFICER | STATUS |
+|---|---|---|
+| CAHAVOC-1 | DARONNAT | Subject's papers for employment with the Bundeswehr-sprachdienst are still being processed. In the meantime Subject continues to occupy HARVARD housing. |
+| CANDARE-3 | REINBOLD | Subject is still trying to line up his own housing in the Frankfurt area. In the meantime he, his wife and son are living in a HARVARD apartment. |
+| DMMARGIN-3 | REINBOLD | Profession: Barber<br>Rec'd by HARVARD: 27 December 1962<br><br>From: BOB<br>Age: 42<br>Nationality: Yugoslav<br>Resettlement Aims: Local<br>Evac. Code: B economy<br><br>Subject was processed for his West German documentation and recognition as a bona fide political refugee. He received his Fremdenpass on 27 December 1962 and will get his recognition and Reiseausweis sometime in January 1963. At that time the case will be closed. |
+
+WIROGUE
+DARONNAT
+HARVARD is awaiting Head-quarter's advice regarding the implementation of Subject's S.A. immigration.
+
+IDENTITY-264
+DARONNAT
+AMCONGEN Frankfurt has advised HARVARD that Subject's visa should be issued in late February or early March.
+
+IDENTITY-266
+REINBOLD
+Subject, the son of CANDARE-3 is helping his parents find housing in the Frankfurt area. He is still gainfully employed.
+
+Group I
+Excluded from automatic downgrading and declassification
+
+S-E-C-R-E-T
+
+241-233477

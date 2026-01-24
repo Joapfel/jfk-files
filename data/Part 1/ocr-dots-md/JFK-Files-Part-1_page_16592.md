@@ -1,0 +1,272 @@
+# JFK-Files-Part-1_page_16592.png
+
+Convert to MarkdownSECRET T 211643Z JAN 71 CITE WH/MIAMI 0138
+IMMEDIATE MADRID INFO PRIORITY DIRECTOR
+RYBAT PORUMEN AMETROPIA AMNUG
+
+REF: WH/MIAMI 0137 (L) 249149)
+IDENTITY: HECTOR RODRIGUEZ LLOMPART
+
+CUBAN AMBASSADOR TO EAST GERMANY GP-1
+
+SECRET
+
+21 Jun 71
+
+21 Jun 71 249150
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71
+
+21 Jun 71

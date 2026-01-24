@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_16487.png
+
+Convert to MarkdownSECRET
+
+3 February 1976
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: SLANK-1
+
+In reviewing SLANK-1's file for possible leads to targets of interest the following names were selected:
+
+1. Roberto RODRIGUEZ Llompart (201-865547)
+
+2. Ricardo ESPINO Martinez (201-818437)
+
+3. Federico CRESPO Moreira (201-894397)
+   (in Peru since January 1973)
+
+4. Rafael MIRABAL Fernandez (KDACOUSTIC-1) (201-812117)
+   (Mexico - February 1967)
+
+5. Manuel CARDONELL Duque (201-279604)
+   (Capt. Pol. worked with M-1)
+
+6. Armando "Ulises" ESTRADA Fernandez (201-809440)
+
+7. Ramon Cesar CUENCA Mintoto (201-328945)
+   (PCS Caracas - October 75 (DGI))
+
+8. Roque DALTON Garcia (201-215097)
+   (DSE - now in Havana)
+
+Individual files of subject now being reviewed. If one or several of these subjects appears recruitable, a plan will be written up explaining "plan of action."
+
+Wilfred O. CLOWER
+
+E2 IMPDET
+CL BY 025231
+
+SECRET
+
+3 Feb 76
+
+3 Fct 76

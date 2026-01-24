@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_16572.png
+
+Convert to MarkdownSECRET.
+
+- 2 -
+
+Rolando PASTOR Rodriguez - possibly identifiable with Armando PASTOR Rodriguez (201-300074). AMMUG-1 last saw PASTOR about 1962 when he was attached to the Administrative Department of the Police Department.
+
+Ramon Cesar CUENCA Montato (201-328945). AMMUG-1 identified CUANCA as being DGI.
+
+Rafael PAEZ Perez - possibly identifiable with Rodolfo PAEZ (201-334244).
+
+Fernando RAVELO Renedo (201-765244). AMMUG-1 correctly identified "RAVELO" pseudo as being "FERMIN"
+
+Manuel VEGA Perez (201-334253). According to AMMUG-1, in 1963, VEGA was the DGI desk officer for Nicaragua.
+
+Joseph Parker MORRAY (201-345987)
+
+Ramon SINOBAS Casado (201-334249). AMMUG-1 said that he knew SINOBAS fairly well.
+
+Carlos Sixto CHAIN Soler (201-349576)
+
+Juan Guido LICEA Figueredo (201-876266). AMMUG-1 identified LICEA as being a diplomatic courier commenting that he only knows him casually as they used to take the same plane from Cuba to Mexico
+
+Augustin YASSELLS Gonzalez (201-345986). AMMUG-1 identified YASSELLS as a diplomatic courier commenting that he only knows him casually as they used to take the same plane from Cuba to Mexico.
+
+Mario OIZ Falgueria (201-737654).
+
+Jose Raul VIERA Linares (201-328953). AMMUG-1 said that his DGI pseudo was "Gomez", and that he was stationed in Bolivia from 1962-1963.
+
+Felipe LLAUDI Hernandez (201-742052). AMMUG-1 commented that LLAUDI's DGI pseudo was "ROBANE".
+
+Oswaldo RELOBA Penechet (201-737138).

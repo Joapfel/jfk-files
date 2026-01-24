@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_16634.png
+
+Convert to MarkdownSECRET
+NO FOREIGN DISSEMINATION
+
+executive, in G-2. ARRASTIA was reported to have the confidence of Raúl CASTRO and Ramiro VALDES; and he was VALDES' right-hand man in G-2.
+
+2. An official roster listing the military staff personnel comprising the Intelligence Department, G-2, of the Cuban Ministry of the Armed Forces (MINFAR) was received by a representative of this Agency from an untested source in a report dated 1 March 1961. Included on this list was one First Lieutenant Guillermo ARRASTIA Fundora, possibly identical with Guillermo ARRASTAGUIA.
+
+3. In a report dated 28 October 1962, a list of identified and suspected Cuban intelligence officers was included, the list was received from an official liaison service. One First Lieutenant Guillermo ARRATIA (or ARRASTIA) Fundora was included on the list and described as an identified intelligence officer on the G-2 Headquarters staff.
+
+SECRET
+NO FOREIGN DISSEMINATION

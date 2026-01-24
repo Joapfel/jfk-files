@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_16038.png
+
+Convert to Markdown28 februay 1973
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT : Washington Evening Star Article entitled "The Story of CPS and the Plot to Invade Haiti" which appeared in the 26 February 1970 Edition
+
+1. Subject article reported that a CBS cameraman, James WILSON, had contacted CIA agents in Houston while on a space shot assignment in 1966, and that the CIA had informed the FBI, who called on WILSON and referred him to U.S. Customs.
+
+2. WH Division has ascertained that on 30 June 1966, a James WILSON called the CIA Duty Officer of the Domestic Contact Service (DCS) office in Houston, Texas, and subsequently related a story about a proposed plot being staged in the U.S. to invade Haiti and overthrow the Duvalier Government, and that CBS had convinced the parties involved that they should allow CBS to photograph and televise a Special Program on the preparations. WILSON requested and received assurances from the DCS officer that he would not be identified as the source of this information.
+
+3. On 6 July 1966, WH Division sent a blind memorandum to the Federal Bureau of Investigation and the Department of State which forwarded a resume of WILSON'S story to the DCS, without identifying the source. The memorandum stated that the source's motive for disclosing this information was to alert the U.S. Government to a potentially embarrassing situation if it were involved in an insecure operation. The JEWAVE Station also passed a resume of this information to the U.S. Customs Bureau in Miami.
+
+4. Except in connection with this report, there is no record of any operational involvement by the Agency with WILSON.

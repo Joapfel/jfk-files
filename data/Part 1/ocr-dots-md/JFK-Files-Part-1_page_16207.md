@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_16207.png
+
+Convert to MarkdownSECRET
+
+3. A knowledge of the background of the principals is essential to a comprehension of the affair as recounted by Muldoon:
+
+a. Island of Abaco - From available file information we know that Abaco is a small island at the north end of the Bahamas archipelago a short distance off the Florida coast, which was populated in 1785 by British Loyalists and their Black slaves fleeing the United States following independence. The island remains about 50% white. Openly apprehensive in anticipation of the Bahamas' independence from Great Britain, the residents of Abaco, both white and black, have found themselves since independence - the object of apparent antagonism and administrative neglect on the part of the Pindling government, which has fueled talk of secession from Nassau rule. This talk has been institutionalized in an indigenous organization headed by a white, Charles "Chuck" HALL, and called the Abaco Independence Movement (AIM). HALL is a resident of Marsh Grove, the country cross roads which poses as the metropolitan capital of Abaco; he frequently visits Miami where he meets with Werbell.
+
+b. Mitchell WERBELL III - A Philadelphian, WERBELL was a member of OSS in the Far East during World War II where, according to Muldoon, he came to know the Director and Lou Conelin. Werbell currently a resident of Atlanta, now is president of an international arms peddling firm called Defense Systems International (DSI). In addition to industrial security systems, according to MULDOON, DSI sells automatic weapons (including a minia- ture machine pistol with a silencer) and bomb-booby-trapped items of various sorts (e.g., a tennis ball with a fuse which is automatically activated when you stop playing) and other James Bondian accessories. Werbell hopes to establish gaming casinos, hotels and other tourist facilities in Abaco catering to the U.S. tourist crowd available for easy ferrying from nearby Miami. As a consequence of some run-in with Prime Minister Michael Pindling, however, Werbell is apparently permanently persona non grata in the Bahamas; hence his ambitions appear to be contingent on Abacan independence.
+
+c. Mike OLIVER - The financial angel of the "Friends of Abaco," Oliver's origins and auspices are somewhat obscure to Muldoon. OLIVER claims to have spent
+
+SECRET
+
+3.8

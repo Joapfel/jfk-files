@@ -1,0 +1,61 @@
+# JFK-Files-Part-1_page_16216.png
+
+Convert to Markdown65 52
+
+04-712-3096
+VANGUARD CORP
+
+OR 48 MAR '14 1969 N
+LAND DEVELOPMENT
+
+1968 NO
+
+2089 EL RANCHO DR
+CARSON CITY NEV 89701
+TEL 702 882-2483
+
+SUMMARY
+
+MICHAEL OLIVER, PRES PAYMENTS UNDETERMINED
+MORRIS C. DAVIS, V PRES EMPLOYS 3
+BETTY S. (MRS. M.) OLIVER, SEC-TREAS RECORD CLEAR
+DIRECTORS: THE officers and L. A. Whitmore,
+Joseph A. Foss Jr, Dr. R. B. Williams, Dr. R. Melers,
+Arthur L. Bonike, and Robert Johnson.
+
+PAYMENTS . Suppliers for this operation were not located during current investi-
+gation. Oliver's personal payment record is satisfactory.
+HISTORY
+
+On Mar 19 1969, M. Oliver, president, was unavailable for an interview.
+One outside source submitted the following statement from Michael Oliver,
+personally, dated Apr 25 1968:
+
+Cash $ 8,200 Accts Pay $ 150
+Accts Rec 1,300 Owing Autos 3,200
+Coin Collection & Stocks 6,000
+Current 15,500 Current 3,359
+RE 327,000 Mtgs 27,047
+Autos 5,900 NET WORTH 318,003
+Total 348,400 Total 348,400
+Unsigned. ----0----
+
+Real estate includes interest in Oliver-Roos Corp of $289,000; Carson City residence, $23,000; house at San Diego, Calif, $15,000. Statement was obtained from outside sources.
+
+On Mar 18 1969, Oliver was unavailable for an Interview.
+
+Details on this business were not available In outside quarters. One
+outside source reported that operations are currently in the formative stages.
+
+**HISTORY**
+Incorporated in Nevada Nov 1 1968; authorized capital, $500,000. MICHAEL OLIVER, born 1920, married. 1965 to starting this concern, engaged in land development, as an officer In Oliver-Boza Corporation. Prior to that, was associated with the Philco Corp. In Palo Alto, Calif. Prior to that, employed by Volt Tech Corp., at San Diego. The directors are residents of the State of California; antecedent informationis not currently available.
+
+OPERATION
+Includes officers
+Learning of officers
+including officers
+There are no employes, apart from the officers. LOCATION: Headquarters
+are maintained at Oliver's residence, around by Mr. & Mrs. M. Oliver
+3-19 (200c 6)
+
+THIS REPORT MAY NOT BE REPRODUCED IN WHOLE OR IN PART IN ANY FORM OR MANNER WHATSOEVER.

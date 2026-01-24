@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_16108.png
+
+Convert to Markdown Mitch "WerBell and two aides look over route on map prior to a night delivery of weapons somewhere in the Caribbean.
+
+on the East River, WerBell finally opened his valise and displayed its contents: a half-dozen missile guns, both hand and shoulder weapons, which fire a small, self-guided rocket instead of the conventional ballet. WerBell had designed and built some of them himself.
+
+Around him, crowding the yacht's state-room, solid-looking, souther men watched intently as WerBell demonstrated the new firearms' awesome potential. Later that evening, recalling the demonstration over a drink back in the city, WerBell would describe his nautical hosts only by saying, "They were . . . let's just call them very important friends of Israel. They'd been warned that within days the Middle East would be at war. They were there to make sure that one way or another Israel got a crack at the very best weaponry there is. Not just for the campaign ahead, but for the stand-off which is bound to keep the Middle East under tension for years."
+
+Clarendown meetings like this are part of Mitch WerBell's stock in trade. He is a firearms broker of the new breed known as M.M.'s--munitions manipulators. In a world of legalized wars--from Yemen to
+
+For another Caribbean mission, small boat is towed close so that cosky can be transferred for speedier run to the shore.
+
+TRUE THE MAG'S MAGAZINE

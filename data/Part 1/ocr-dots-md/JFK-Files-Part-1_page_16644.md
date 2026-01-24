@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_16644.png
+
+Convert to MarkdownSECRET
+
+5. It is requested that the attached report be returned to this office in a sealed envelope marked, "To Be Opened By Addressee Only" when your office has no further need for it.
+
+FOR THE DIRECTOR OF SECURITY:
+
+Victor R. White
+
+Attachment:
+
+Report dated 18 June 1964
+
+cc: Central Cover Staff
+Safehouse Procurement Branch
+
+SECRET

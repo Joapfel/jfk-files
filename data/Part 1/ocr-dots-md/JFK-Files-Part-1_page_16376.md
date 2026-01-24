@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_16376.png
+
+Convert to Markdownat the time indicate that this procedure would be
+most likely to be a success.
+
+E. Without waiting for the outcome of effort to recruit the four individuals described above, [the Guatemalan government] should bend every effort to locate all those individuals (possibly as many as 200) who have received guerrilla warfare training in Cuba, and to arrest them. Maximum publicity should be given to the arrests once they have been questioned. Hopefully declarations will be made by some of them which will assist in effective propaganda use of their arrest and their involvement in subversion on behalf of the Castro government. They should be interviewed separately and, if possible, some with greater potential should be doubled so that they may serve to keep us informed of plans for subversion in the future.
+
+C. The [Guatemalans] should keep us advised at every stage of the progress made in the cases so that we may lend assistance when appropriate.
+
+3. [Colonel Porres] said that he understood the importance of the case and would do his utmost to follow through in line with the action proposed above. He said that although he does not have a large organization, it is secure and is capable of collecting information and of arranging for the arrests and interrogation.
+
+4. [Colonel Porres] discussed three other cases (the ALFARO case, the case of Luiz Ramirez, and the case of Nestor JORDI Chambonyer). [Rogers] said that full details concerning the ALFARO case had been sent to Headquarters. This is the same case, which according to the Chief of State involved a Mexican courier acting on behalf of the Cuban intelligence service. [Colonel Porres] said that this individual is still in jail in Guatemala. The Jordi and Ramirez cases are being made the subjects of separate memoranda.
+
+Harold F. Swenson
+Chief, WU/SA/CI
+
+16/5/76

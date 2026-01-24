@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_16322.png
+
+Convert to MarkdownHowever, gave me detailed account of the campaign, and, understanding why Tshombe has not called up yet, suggested press of other business. Says he will get his own way with that asap, and I am sure the boys are real friends. And so he says. I know him well and can recognize his friends.
+
+Just as I was beginning to lose heart, Tshombe made his decision. Sent for me 1000 troops Agha, 500 men at once, see Gen. Nobutu. Say Nobutu. Anticipated some resistance to the idea but fears totally unfounded. So far, so far, efficient, powerful. Back to Tshombe to finish off details of contracts, rates of pay etc. Appointment for Sunday, and carpet all the way. Car at our disposal, laisser passer, everything.
+
+Next day - nothing. Spent the entire day in the hotel waiting to be called. Whole thing is positively medieval.
+
+Next day, Thursday sense of urgency restored to Nobutu and Tshombe and red carpet laid out again. Say Tshombe twice and drank beer with him in the evening while he dispersed his escape from Kapushi in 1982! Very convivial, but too tired to finalise our contracts. Tomorrow et 10. No chance Nobutu getting anxious and has done what he can. Alerted General Zobeto who is waiting for me in Kaminai. I am to fly there tomorrow X S. Assure me a I materiel, transport, planet etc. there. Complete autonomy d'arcion Major pour vous. I got it to say it three times to make sure I had not misheard him. Mr Belgiania, son general. Met him. Thank God for that. Force Africa to be under my command 15 miles, whoof des pilots Pure. Carry took it very well but I do not intend to play a heavy role there. Got my task from Tshombe personally - give me back the Congo,ANCIENT KABALO YONASU Albertville UNILAN and soon - waiting a soft hand and laughing. It looks fit despite sleeping very little. Eyes shining a smile for everybody. A diplomat in the world acts. Told him we must have the contract by such Friday so that our men can return to Salisbury and Johannesburg to bring up the small army. Rates of pay must be finalised, no ticket no laundry. He laughed Get as many white troops as I want he said. I told him we would begin with 200.
+
+Friday: today. Waited all morning for Tshombe and Nobutu! Finally

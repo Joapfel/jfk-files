@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_16029.png
+
+Convert to Markdown14-0000
+
+<table><tr><td colspan="6">ROUTING AND RECORD SHEET</td></tr><tr><td>SUBJECT: (Optional)</td><td colspan="5"></td></tr><tr><td>REGISTRATION REQUEST</td><td colspan="5"></td></tr><tr><td>FROM:</td><td>FI/DCG/INTERAGENCY SOURCE REGISTER<br/>2 E 03</td><td>EXTENSION<br/>5045</td><td>NO<br/>ISRN<br/><u>Date: 22 MAR 1972</u></td><td colspan="2">22 MAR 1972</td></tr><tr><td>TO: (Office designation, room number, and building)</td><td></td><td colspan="2"><table><thead><tr><th colspan="2">DATE</th></tr><tr><th>RECEIVED</th><th>FORWARD</th></tr></thead><tbody><tr><td>MAR 22</td><td>JUN 30</td></tr></tbody></table></td><td>OFFICER'S INITIALS</td><td colspan="2">COMMENTS (Number each comment to show from whom it is to whom. Draw a line across column after each comment.)<br/><hr/>5 - 3: PLEASE RUSH ABSTRACTING<br/><br/>201-259910<br/>ABSTRACT X INDEX<br/><br/>DATE <u>(Handwritten: 21 MAR 1972)</u> 22 MAR 1972</td></tr><tr><td>1.</td><td>IP/201 Section<br/>GA 20</td><td></td><td rowspan="5" colspan="3"><u>(Handwritten: 233)</u></td></tr><tr><td>2.</td><td></td><td></td></tr><tr><td>3.</td><td>IP/ISR 501<br/>GB 34</td><td></td></tr><tr><td>4.</td><td></td><td></td></tr><tr><td>5.</td><td>FI/ISR<br/>2 E 03</td><td></td></tr><tr><td>6.</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>7.</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>8.</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>9.</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>10.</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>11.</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>12.</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>13.</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>14.</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>15.</td><td></td><td></td><td></td><td></td><td></td><td></td></tr></table>
+
+FORM 3-02 610 USE PREVIOUS EDITIONS ☐ SECRET ☐ CONFIDENTIAL ☐ INTERNAL USE ONLY ☐ UNCLASSIFIED
+
+INTERNAL
+USE ONLY

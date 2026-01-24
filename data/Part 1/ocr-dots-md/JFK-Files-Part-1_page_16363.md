@@ -1,0 +1,71 @@
+# JFK-Files-Part-1_page_16363.png
+
+Convert to MarkdownRETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+<table><tr><td>104-10183-10037</td></tr></table>
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+NN
+
+CLASSIFIED MESSAGE
+
+<table><tr><td colspan="2">W. WAINWRIGHT:tw</td></tr><tr><td>SAS/EOB</td><td>☐ YES ☐ NO INDEX</td></tr><tr><td>6153</td><td></td></tr><tr><td>18 JUNE 1963</td><td>☐ FILE NCS FLE NC</td></tr></table>
+
+<table><tr><td colspan="2">S-E-C-R-E-T</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+DATE : 18 JUNE 1963
+
+TO : ROME
+
+FROM : DIRECTOR
+
+CONF : SAC 8
+
+INFO : DDF, CI, CI/OPS, CI/OA, FI, WE 4, S/C
+
+SIG CEN
+
+<table><tr><td>X</td><td>ROUTINE</td></tr></table>
+
+TO
+
+ROME
+
+INFO
+
+CITE DIR
+
+48198
+
+KEYWAY PBRUMEN AMWHIP
+
+REF: DIR 44488 (IN 55801)
+
+1. REQUEST SMITHAM AS A C AMWHIP FOR DATE HE SENT LETTER TO "THOMPSON'S FRIEND" IN PBRUMEN. ALSO REMIND HIM TO SAVE COPY OF LETTER FOR THOMPSON. IF AMWHIP AGREEABLE, OFFER SEND COPY TO THOMPSON VIA "SECURE CHANNELS".
+
+2. FYI, LETTER IS ACTIVATION EFFORT TO RELUCTANT DRAGON AGENT NOW PBRUMEN, WHO MET PARIS BY THOMPSON AND WALLACE A. GROWERY LAST SUMMER. AGENT IS GOOD FRIEND AMWHIP WHO WAS INSTRUMENTAL IN ARRANGING CONTACT.
+
+END OF MESSAGE
+
+WE/4/S. Munger f/m 03
+
+WE/5
+
+THOMAS THIBLET
+C/WE/INT
+
+WILLIAM TYN
+AC/BAS/EOB
+
+<table><tr><td>18-19</td></tr></table>
+
+<table><tr><td>S-E-C-R-E-T</td></tr></table>
+
+APPROVAL BY : CHAIRMAN THE following OFFICERS ARE RELEVANT, if any : Chairman, Vice-Chairman & Secretary
+
+RETURN TO CIA
+Background Use Only
+Do Not Repro duce

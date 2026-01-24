@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_16610.png
+
+Convert to MarkdownRETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+SECRET
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Contact Report. Meeting with AMWHIP-1
+
+DATE : 21 May 1965, 1300-1430 hours
+
+PLACE : National Airport
+
+PRESENT Subject and DiUbaldo as Breitheim
+
+1. On 20 May I phoned Subject and requested that he travel to Washington to discuss the background of his discussions with UNSNAFU-19 from which stemmed the suggestion that A-1 supply a French-English-Spanish speaking secretary to U19's mission in Paris. The meeting was quite short for as it turned out, the discussion between Subject and U19 on the topic of secretaries, had taken place in March 1965, had been little more than a casual sort of thing devoid of any specifics whatever and, in particular, devoid of any commitment by either party to proffer or to accept a profferred body. Nevertheless, Subject felt quite certain that slots would still be open in U19's mission and that a recommendation from him would suffice to effect favorable action by U19.
+
+2. I sketched AMBUNNY's qualifications stressing the fact that she had gone to school in the U.S., had worked here, and had done a hitch as a social secretary for the American Ambassador in La Paz. Subject drew the obvious conclusions that it might be difficult to dummy up AMBUNNY's labenslauf adequately to prevent her from being "discovered" by the Cubans. At any rate, since she was our only candidate, Subject agreed to meet with her in New York so that together they could thresh out the pragmatics of the problem. The meeting was set for 22 May. Al Marin (alias) would participate in this meeting.

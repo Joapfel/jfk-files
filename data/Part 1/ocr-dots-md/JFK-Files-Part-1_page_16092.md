@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_16092.png
+
+Convert to MarkdownFIGURE 2 - ORGANIZATION AND MANAGEMENT OFTTT

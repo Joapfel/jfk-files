@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_16492.png
+
+Convert to Markdown28 February 1975
+
+SUBJECT: Contact Report on SLANK-1. (S-1)
+
+1. S-1 was contacted on the evening of 27 February, at his Miami home (2761 SW 24th Terrace, tel: 43-0155) re his availability to approach his old friend, Roberto RODRIGUEZ Llompart.
+
+2. As on all previous occasions when we have asked for S-1's collaboration, S-1's answer was APPRIESTE. The only condition is that we obtain his employer's permission to be absent from his present job. He is not entitled to vacation until c. August 1975.
+
+3. S-1 is presently employed as a bus driver for the:
+
+Metro Transit Authority
+3300 NW 32nd Avenue
+Miami.
+Tel: 633-9735.
+
+The persons who must grant the permission are, in this order of rank:
+
+H. I. CROSS
+B. L. WALLACE
+K. C. BUTLER
+
+4. S-1 has a valid US passport. And, he can be available to travel the moment his superiors grant him the leave without pay we request.
+
+5. I have again thanked him for his sincere/loyal cooperation. I have promised to keep him abreast of developments.
+
+Henry S. PUGH

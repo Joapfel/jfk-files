@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_16158.png
+
+Convert to MarkdownAll three individuals reported their involvement with the WerBell group and had sought guidance from the Agency. In May and June they were advised to break all ties with WerBell. On 27 June 1974 the FBI was formally apprised of WerBell's overtures for their collaboration in the effort to bring Abaco's secession. In September 1974 WerBell reportedly went to Greece to sell arms to the Greek Government. Most recently WerBell reportedly appeared before Senator Jackson's Sub-Committee investigating DEA and had taken the Fifth Amendment on the question of whether or not he had supplied arms to Robert Vesco.
+
+3.32
+
+CONFIDENTIAL
+
+# 2 -

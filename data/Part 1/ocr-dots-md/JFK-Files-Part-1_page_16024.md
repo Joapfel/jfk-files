@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_16024.png
+
+Convert to Markdown# GUN STRENGTH Figures
+## Played Dramatic Roles
+
+By Bruce Galphin
+Washington Post Staff Writer
+
+ATLANTA, Dec. 2—The two top officials of an Atlanta firm under investigation for receiving guns shipped from Vietnam through Egin Air Force Base in Florida are no stronger to controversy or dramatic situations.
+
+One was actively involved in plans to set up an anti-Castro base in Haiti, and both were in the Dominican Republic during the 1965 American intervention to put down a revolution.
+
+Mitchell Livingston WerBell III, vice president of Sionies, an Atlanta weapons research and manufacturing firm, was indicted 2½ years ago on charges of violating a federal law forbidding preparation of a military expedition against a friendly nation from American territory.
+
+The indictment against WerBell and six others was made after customs agents raided an island camp near Marathon, Fla., where they seized a small arsenal of weapons and found 75 battle-clad exiles and Americans.
+
+### Not on Island
+
+WerBell himself was not on the island at the time of the raid.
+
+Only four weeks after WerBell was accused, the U.S. attorney in Miami announced the charge was being dismissed "on the authority of
+
+the attorney general" Ramsey an official for an American development corporation.
+
+WerBell commented why that he was überraschend because "I've lost my one claim to notoriety."
+
+At the time of the Indictment, WerBell was quoted by the Atlanta Constitution as admitting an "extremely combatant role" in the anti-Castro base plans.
+
+The federal indictment had alleged a conspiracy to ship guns and munitions from Atlanta and New York to Miami.
+
+But WerBell told a reporter at the time of the Indictment that he had withdrawn his support from the Haitian base plan when it appeared to be headed toward direct military action.
+
+"If I'm called upon again to fight Communists in the western hemisphere, I'll do it," he said. "Anything I've done has served the best interest of the United States."
+
+"I've been involved in anti-communist activities a long time," he said. "I've helped the Dominican government fight the Communists."
+
+### Aided Newsman
+
+In the Dominican action two years before, WerBell was credited with pulling a wounded American newsmann out of a bullet-riddled car in Santo Domingo. The newsmann, Miami Herald photographer Doug Kennedy, had been accidentally wounded by U.S. Marine gunfire.
+
+Fred N. Brown, president of Sionies, also was in the Dominicanlegation at the time, as
+
+At one point during the fighting, he said a few days afterward, he and some 200 other Americans were "lined up against a wall" by armed revolutionaries at a Santo Domingo hotel.
+
+He said the rebels were looking for Cuban nationalists, and that he managed to slip inside the hotel, where American embassy officials negotiated safe conduct. He was evacuated by helicopter to a U.S. warship.
+
+"The Communist movement has actually defeated itself" by forcing the United States "to adopt such a firm policy," he commented at the time.
+
+Both the Dominican fighting and the Marathon raid occurred before WerBell and Brown founded Sionies.
+
+An Air Force officer at Egin is under investigation for his role in three shipments of small arms from Vietnam. WerBell denied reports that the weapons were intended for right-wing anti-Negro groups and said he himself, while in Vietnam had had the captured weapons sent to Atlanta via Egin for laboratory research.
+
+2-37
+
+261-259910

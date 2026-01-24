@@ -1,0 +1,90 @@
+# JFK-Files-Part-1_page_16100.png
+
+Convert to Markdown14-00000
+
+ORIG: RGV EIDNER:dml
+UNIT: FE/TBL/T
+RT: 1421
+DATE: 3 MAY 1969
+
+MESSAGE FORM
+TOTAL COPIES:
+
+<table><tr><td>SECRET</td></tr></table>
+
+ROUTES AND NO. INITIALS - SEEN BY
+1
+2
+3
+4
+
+<table><tbody><tr><td>1</td><td>2</td><td>3</td><td>4</td></tr><tr><td>1</td><td>2</td><td>3</td><td>4</td></tr><tr><td>1</td><td>2</td><td>3</td><td>4</td></tr><tr><td>1</td><td>2</td><td>3</td><td>4</td></tr></tbody></table>
+
+CABLE SECRETARIAT DISSEMINATION
+
+BY 30 PER 8
+
+FILE IN C8 FILE NO.
+
+CABLE SECRETARIAT DISSEMINATION
+
+INDEX ☐
+
+NO INDEX ☐
+
+RETURN TO BRANCH ☐
+
+FILE NO ☐
+
+CONF: RE4 [R] FILE.VR. RILAN F2 C. CLOP5
+
+[CLASSIFICATION]
+
+DATE (and time filed)
+
+SECRET
+
+TO BANGKOK
+
+PBRAMPART
+
+REF DIRECTOR 88114
+
+CITE DIRECTOR 93804
+
+03 18 1969
+
+1
+
+1
+
+1. WE NOTE LNSHOE QUERY DATED 2 MAY TO ITS HQS ASKING FOR TRACES ON MITCHELL L. WERBELL. WISH TO BRING TO YOUR ATTENTION REF WHICH REPLIED TO RECENT STATION REQUEST FOR TRACES ON WERBELL. SUGGEST YOU MAY WISH PASS GIST OF REF ON FYI BASIS TO LOCAL LNSHOE REPS.
+
+2. KNECK FILE: 201-259910.
+
+END OF MESSAGE
+
+COORD William Johnson CI/OPS/FE (Telecord)
+
+William W. Wells
+ACFE
+
+CS COPY
+
+Cifon R. Stratton
+CFE/TBL
+
+RELEASING OFFICE
+
+2.// COORDINATING OFFICERS
+<table><tr><td>SECRET</td></tr></table>
+
+GROUP I
+Included from automatically generated and manually edited
+
+AUTHENTICATING
+OFFICE
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+COPY NO.

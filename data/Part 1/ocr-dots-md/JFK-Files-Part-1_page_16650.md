@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_16650.png
+
+Convert to MarkdownSECRET
+
+RECEIPT FOR AUTHENTICATION MATERIALS
+
+TO: TSD/DB
+
+DB CASE NO. 4763
+DATE ____
+
+I HEREBY ACKNOWLEDGE RECEIPT OF THE FOLLOWING AUTHENTICATION MATERIALS TRANSMITTED WITH MEMO NO. AB#6891 DATED 27 May 1964 AND PREPARED IN ACCORDANCE WITH Refs: A,B,C,D,E,F, & G of AB MEMO #6891, 27 May 1964
+
+Jaime Sanchez Papo (Alias)
+1 - Mexican Drivers License No. 436747
+1 - 1961 Mexican Voters Cert. No. 6215
+
+OFFICER'S SIGNATURE
+
+NOTE: Authentication Materials must be returned to TSD/DB as soon as the intended operational use has been fulfilled; unused documents, whether filled in or blank, must be returned to TSD/DB when no longer needed.
+
+TSD, DB should be notified if any of the Authentication Materials are destroyed, lost, or for any other reason can no longer be returned.
+
+D-061
+
+SECRET
+
+2/14
+
+28 MAY 1964

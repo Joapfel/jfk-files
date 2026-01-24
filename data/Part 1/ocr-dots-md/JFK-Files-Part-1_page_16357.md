@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_16357.png
+
+Convert to Markdown104-10182-10128
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+SECRET
+
+File No. 5.3, Pg. 1575 (Millard)
+Date 24 July 1959
+
+MEMORANDUM FOR: Chief, WH/Car/PP
+ATTENTION: T. Cobb
+SUBJECT: Michell Livingston WARBELL - C-78785
+
+Central Cover Division concurs in your proposal to use the above individual for the purpose indicated. In keeping with the requirement placed upon Central Cover Division to maintain an accurate register of current nonofficial cover activity, you are specifically requested to advise Central Cover Division Nonofficial Cover promptly by memorandum when subject has been activated.
+
+cc: CI/OA
+
+SECRET 137
