@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_17528.png
+
+Convert to Markdown"Projected Arrival in Mexico of Polish Travel Officials" - State Department said that this report was of moderate importance and the information was new and useful. They expressed a continuing interest in this type of reporting.
+
+"New Policy of the Soviet Commercial Office in Mexico" - ORR reported that this information was now but only of moderate importance.
+
+5. WN Division recommends renewal of the LIFEAT Project based on the field request attached, WN Division has cut the field's original request for $111,673 to $98,974.

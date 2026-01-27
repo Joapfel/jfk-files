@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_17050.png
+
+Convert to MarkdownMPS/BC/FI/ALKatein/sw
+
+Distribution:
+
+O & 1 - Addressee
+
+1 - ADD/P
+
+1 - FI/OPS
+
+1 - CI/OPS
+
+1 - WH/1
+
+1 - SB/X/WH
+
+1 - CCS/PRG
+
+1 - DDP/NSP
+
+1 - MPS/BG

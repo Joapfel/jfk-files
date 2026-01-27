@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_17378.png
+
+Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NO.</th></tr></thead><tbody><tr><td>SECRET</td><td>HIMMA-19990<br/>~~1959~~</td></tr></tbody></table>
+
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td style="text-align: right;">CLASSIFICATION<br/>SECRET, NEW YORK</td></tr></table>
+
+<table><tr><td>45-61-81</td><td>Czech Embassy</td></tr><tr><td>45-61-80</td><td>Czech Embassy (Out)</td></tr></table>
+
+## B. Material Processed
+
+In September, the LIENVOY LP provided the Station with 97 pages of daily resumes, 11 pages of resumes from the Cuban lines and 28 pieces of other material. There were also provided 125 pages of resumes from the Soviet lines and also 74 reels with the Russian conversations. In addition, there were 18 reels from the Czech lines.
+
+## C. Exploitation of Material
+
+The following are examples of LIENVOY coverage:
+
+1. A "George Sherman" contacted the Cuban Embassy about meeting with the Cuban Ambassador Carlos Lechuga. Sherman said that he knew Lechuga in Washington. (See MEXI 1925, 12 September 1962).
+
+2. A "Gabino Fernandez", an employee of the Secretariat of the Presidency, made an appointment with Ramon Sinobas, First Secretary of the Cuban Embassy, because Fernandez wanted to speak to Sinobas before Fernandez went to Cuba for a visit. (See MEXI 1967, 18 September 1962).
+
+## D. Liaison
+
+Briefing papers which were pouched by Headquarters according to DIR 31814 were provided to LITENSOR. LITENSOR requested a further situation report on his forthcoming trip to the Far East. He was ready to call off his trip if KUBARK felt that the world situation was gloomy. (See MEXI 1919, 11 September 1962).
+
+## E. Security
+
+There were no security problems for the month of September.
+
+## F. Technical
+
+None.
+
+## G. Personnel
+
+A PRQ was forwarded to Headquarters for a POA on Guadalupe Hermosillo Quiroz in HMMA-19809.
+
+## H. Production
+
+During the month of September, LIENVOY produced the forty-nine (49) reports listed in the attachment. The usual large amount of CI/CE personality and operational material was obtained in addition to the (attached) disseminable reports.
+
+Willard C. CURTIS
+
+Attachment: As stated above.
+Distribution: 3-WHD w/att; 2-files
+
+<table><tr><td>FORM 53a</td><td>USE RE-PRODUCTION TERMS</td><td>CLASSIFICATION<br/>NEW YORK</td><td>☐ CONTINUED</td><td>PAGE NO<br/>TWO</td></tr></table>

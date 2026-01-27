@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_17283.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR: FI/OPS - Projects Branch
+
+CRYPTONYM : LIEMPTY
+DIVISION : Western Hemisphere
+STATION : Mexico City
+
+HEADQUARTERS CASE OFFICER:
+
+NAME: John B. Brady
+ROOM: 2112 Barton Hall
+EXT.: 2555
+DATE: 24 November 1958
+
+1. It is requested that the LIEMPTY Project be approved for the period 1 December 1958 through 30 November 1959 for a total of $95,380.00.
+
+2. WH/Personnel has been requested to locate a Staff Agent to fill the BAP-8100 slot formerly under the LIPSTICK Project. This slot will be transferred to the LIEMPTY Project and will be filled by a person who will be responsible for the directions of the physical surveillance team under this project.
+
+R. N. Dahlgren, C/WH/III
+
+C. W. Anderson, WH/FI
+
+J. C. King, C/WHD
+
+Date
+
+Attachments:
+
+* FPO (in quad)
+
+* Form 680 (in quad)
+
+* Table of Vehicular Allowance
+
+* Justification for Purchase of Automobiles
+
+* Envelope with true names
+
+SECRET
+
+ATTENTION TO HUMAN A-11257
+
+50-6-74/1

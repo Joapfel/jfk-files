@@ -1,0 +1,67 @@
+# JFK-Files-Part-1_page_16739.png
+
+Convert to Markdown<table>
+   <tr>
+    <td rowspan="2">
+     S E C R E T 172217Z
+    </td>
+    <td rowspan="2">
+     ROUTING
+    </td>
+   </tr>
+   <tr>
+    <td>
+     <table>
+      <tr>
+       <td>1</td>
+       <td>4</td>
+      </tr>
+      <tr>
+       <td>2</td>
+       <td>5</td>
+      </tr>
+      <tr>
+       <td>3</td>
+       <td>6</td>
+      </tr>
+     </table>
+    </td>
+   </tr>
+   <tr>
+    <td>
+     DIR CITE MEXI 5412
+    </td>
+    <td>
+    </td>
+   </tr>
+   <tr>
+    <td>
+     REF DIR 52792
+    </td>
+    <td>
+    </td>
+   </tr>
+  </table>
+
+INS1732
+
+1. MUCH IMPRESSED WITH HORSFALL. TRANSCRIPTION TESTS VERY SATISFACTORY. BELIEVE LINGUISTIC CAPABILITY AND EXPERIENCE BUEN AND BANG QUALIFY HIM EXCEPTIONALLY WILL FOR LICAPER SUPERVISOR OR LIENVOY IF IT CONTINUES. APPEARS CAPABLE ADAPTING MEXICAN PECULIARITIES AND NOT AVERSE BEING CUT OFF FROM OFFICIAL COLONY.
+
+2. MAIN QUESTION ONE OF TIMING. KNOW HE FAGER RETURN HERE AND GET SETTLED. HOWEVER FEEL UNDESIRABLE EXPOSE HIM LIENVOY PERSONNEL IF HE TO WORK ULTIMATELY IN LICAPER. DO NOT WISH LOSE HIM HOWEVER AND CAN GUARANTEE KEEP HIM SUSY DOING PBBAND TRANSLATIONS FOR LITENSOR AND LIENVOY PBRUMEN TAPES WHICH WOULD REMOVE FROM LIENVOY FOR THIS PURPOSE. WE ARE TOLD SAS VANTS THESE VERSATIM WHICH LIENVOY PRESENT STAFF CAN NOT HANDLE.
+
+3. STATION REQUESTS THEREFORE RETURN HORSFALL HERE SOON AS FEASIBLE IN TOURIST STATUS. WOULD LIVE IN FURNISHED QUARTERS UNTIL NEW PRESIDENTIAL CANDIDATE NAMED (EARLY OCTOBER AT LATEST) AND FATE OF LIENVOY AND LICAPER KNOWN. AT THAT TIME CANDIDATE CONFERENCED WOULD ARRANGE COVER AND HORSFALL STATUS WOULD CHANGE FROM TOURIST AND HOUSEHOLD EFFECTS COULD BE BROUGHT IN. PLEASE . . .
+
+REPRODUCTION BY OTHER THAN THE ISSUING AUTHOR IS PROHIBITED. Copy No. 1
+
+<table>
+  <tbody>
+    <tr>
+      <td style="vertical-align: top;">
+        <div>This image does not contain any tables.</div>
+      </td>
+      <td style="vertical-align: top;">
+        <div>Separete<br/>Subtotal</div>
+      </td>
+    </tr>
+  </tbody>
+</table>

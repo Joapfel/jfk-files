@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_17159.png
+
+Convert to MarkdownSECRET
+
+During the Project year Project LIEpty provided all of the fixed operational photographs and physical surveillance reports used in Mexico City Station's operations targeted against the FJSTEAL installation and personnel. Specific examples of the LIEMPTY Project's progress and contributions will be found in Section 3 below (EFFECTIVENESS).
+
+## 2. CHANGES
+
+### A. Operational
+
+1. The major change during the preceding period has been the closing of the LIMITED basehouse and the termination of LIEPTY-. This has resulted in considerable financial saving with no loss in efficiency--to the contrary, as a matter of fact. The major reason for the change was the fact that LIEPTY- was growing less reliable with age. He was not always able to be on the job, and when he was, his fixed surveillance reporting was occasionally inaccurate, and his photography was often poor. There had been considerable overlap between LILYRIC and LIMITED reporting, and with the closing of LIMITED, the LILYRIC working hours were extended slightly so that full working hours of the FJSTEAL installation continued to be covered. The only disadvantage to this arrangement is that the vantage point of the FJSTEAL installation which had been shared by LIMITED and LILYRIC will now go uncovered during periods of annual leave by LILYRIC personnel (the LILYRIC personnel are all members of one family and normally take their leave together).
+
+2. There have been no changes in the operating procedures and techniques of LIEPTY-9 in the LICALLA basehouse. The refinements described in the previous Project Cutline have been effective and have been maintained. The same can be said of LIENTRAP, which has become a much more flexible tool since its partial integration into the LIEMBRACE team. There have been no changes in LILYRIC procedures, other than expansion of coverage to include the entire working week.
+
+8. Financial - LIEPTY-9 was granted a salary increase, effective 1 May 1968, in recognition of his excellent job performance. LIEPTY-14 and -27 were granted salary increases on 1 May 1968, largely as compensation for the extra hours they agreed to put in to ensure full-time coverage of the FJSTEAL installation by LILYRIC. Memoranda of Oral Agreement covering these three salary increases were forwarded with HMA-34573, 2 May 1968. Finally, LIEPTY-11 was granted a salary increase effective 1 January 1970, in recognition of his increased work load with the LIEMBRACE team. MCA was forwarded with HMA-3101, 23 December 1968.
+
+SECRET

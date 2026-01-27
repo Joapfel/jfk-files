@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_17189.png
+
+Convert to MarkdownSECRET
+
+REQUEST FOR PROJECT RENEWAL
+
+PROJECT: LIEpty
+
+STATION: MEXICO CITY
+
+CASE OFFICER: Somelus L. Plevin
+Cornelius L. PEUVION
+
+CHIEF OF STATION: Willard C. Curtis
+Willard C. CURTIS
+
+CS COPY
+
+SECRET
+
+R. SIDE ATT'd HMM A-30403
+
+1E ATT'd HMM A-30403
+
+24.07.44
+
+5/5. 6-74/1
+
+SO-6-74/1

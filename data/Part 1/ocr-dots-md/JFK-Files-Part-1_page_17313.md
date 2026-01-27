@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_17313.png
+
+Convert to Markdownpro-Communist, CTAL, which is described as being the liaison bureau of the WFTU (World Federation of Trade Unions) whose headquarters are in Prague, was headed by Vicente LOMBARDO Toledano.
+
+## 13. Prensa Latina
+
+Operation directly under the Cuban Communist regime, Prensa Latina is ostensibly a press service. In reality, however, it is the official propaganda organ of the Cuban Government. Prensa Latina works closely with Tass, the Soviet Agency; with Hsinhua, the Chinese Agency; and with Cetepka, the Czechoslovakian Agency.

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_17473.png
+
+Convert to Markdowna. The effectiveness of his own actions against guerrillas in Guatemala and his determination to "meet violence with violence;"
+
+1. Recognition of the importance of the information covered in the briefing and of its exploitation;
+
+24
+
+j. Reference to the case of the Mexican courier working for Cuiba intelligence and now detained in Guatemala.
+
+k. Acceptance of security restrictions and his decision to hold the information to those present.
+
+l. In reply, to the remarks of Colonel Peralta, I said that we appreciate the cooperation of Guatemala in the OAS and that we shall be most interested in the exploitation of the possibilities in this present case. I added that the matter of using force against Cuba is a policy matter on which I was not competent to comment but that the decisions made by the United States Government are based on careful study of detailed information including information on Soviet intentions and capabilities.
+
+m. At the conclusion of the meeting, (Peralta) asked for a copy of the OAS requirements (which he already had gene over closely) and took the copy with him to study further. 06
+
+8/1N
+
+<table><tr><td>NEW YORK</td></tr><tr><td>DECEMBER 23, 1967</td></tr></table>

@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_16900.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>FORM<br/>8-64<br/>(40)</td>
+    <td>53a USE PREVIOUS EDITION.</td>
+    <td>CLASSIFICATION<br/>S E C R E T</td>
+    <td>[ ] CONTINUED</td>
+    <td>PAGE NO.<br/>9</td>
+   </tr>
+  </table>
+
+14-00000
+
+SECRET
+
+HMMA-38119
+
+LICALLA
+
+6. The LICALLA base house has continued to function as in the past. LIEMPTY-9 continues to be a conscientious recorder of events. In addition to providing about 3,500 photos during the reporting period, as well as comments on events and relationships which are noted by him, he had provided special coverage as requested on various targets of interest, such as AETAKEOFF. During GERENDE's absence on leave, LIEMPTY-9 was handled by SCANTLING.
+
+LILYRIC
+
+7. LIEMPTY-13, -14, -26, and -27 have continued to provide full-time coverage of the MHHARSH Embassy front entrance, providing daily logs of the comings and goings of all officers, and about 9,000 photos during the reporting period. The LILYRIC base house reported on the visits of Americans ten different times, and provided special coverage in connection with AEBURBLE, SRELEASE-2, and one other LNERGO walk-in case. LILYRIC personnel were also handled by SCANTLING during GERENDE's absence.
+
+LIEMPTY-4
+
+8. As in the past, LIEMPTY-4 has done the developing and printing of all LICALLA and LILYRIC photos, and most of the LIENTRAP production. LIEMPTY-4 was handled by FERNALD during GERENDE'S absence.
+
+COMMENTS
+
+9. LIEMPTY coverage of the MHHARSH installation continues to be a useful tool in the Station's operations against the MHHARSH target. One IA in the Station spends several hours per week processing the take, keeping mug book and files up to date, checking the information in the logs against other reports when required (to determine whether or not an agent or contact entered the MHHARSH installation as claimed; or whether an AEGRIP or AEKICK officer was out of the installation at a particular time, etc.) and analyzing the LICALLA production for insight into personal relationships. Useful by-products include continual up-dating of MHHARSH license plates and observation of demonstrations outside of the Embassy and renovations within the grounds. Furthermore, in GERENDE the Station has been attempting to develop an outside asset with considerable flexibility, who has been used to make recruitments and assessments as well as handle agents. GERENDE's personal problems are placing his own career in jeopardy and pose a potential security hazard to LIEMPTY and other Station operations. This is a problem which will be dealt with and resolved in the next reporting period and prior to the next Project renewal request.
+
+for John A. PROBERT
+
+50-6-7413

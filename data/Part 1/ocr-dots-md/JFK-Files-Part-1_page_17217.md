@@ -1,0 +1,71 @@
+# JFK-Files-Part-1_page_17217.png
+
+Convert to Markdown14-0000
+
+MESSAGE FORM
+
+<table><tr><td>ORIG:</td><td>C. Eustos Videala:mad</td></tr><tr><td>UNIT:</td><td>W7/1</td></tr><tr><td>DXT:</td><td>4507</td></tr><tr><td>DATE:</td><td>1 December 1964</td></tr></table>
+
+[ ] INDEX
+[ ] NO INDEX
+
+FILE IN CS FRI NO.
+
+50 6 74/1
+
+ROутING
+
+<table><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table>
+
+TO : MEXICO CITY
+
+FROM : DIRECTOR
+
+CON: WH 8
+
+INFO OL 4, BPA, PG 2, VR, FILE
+
+SUG GEF:
+
+TO
+
+NEXI
+
+LIEDLY LIMITED
+
+REF: NEXI 1762 (IN 31737)*
+
+CIT DQ
+
+68139
+
+HDQS APPROVES IN PRINCIPLE SELLING LITED PROPERTY TO LIQUIDATES. ASSUME THIS IS AT TOTAL TAX VALUE INCLUDING LAND AND HOUSE. PER PARA TWO REF, WE APPROVE HIS DEFERING PAYMENT OF LAND VALUE FOR THREE YEARS. ASSUME IS WILL PAY HOUSE VALUE IMMEDIATELY. ADVISE. COMPLETE SALES PRICE FOR HDQS CONCURRENCE PRIOR TO CONCLUDING AGREEMENT WITH LIQUIDATE. ALSO ATTEMPT TO DETECTIVE AT LEAST APPROXIMATE RENTAL COST FOR LIMITED AGREEMENT AND ADVISE.
+
+RE OF MESSAGE
+
+ME/SOF Carter
+CNE/SS Brooks J. Myles
+ME NO. 777
+ME/T 42212
+CL/SEC Denison
+
+WH COMMENT: *According to Office of Logistics information the original purchase price in 1955 was $12,000 and the Station made $3,500 of repairs and renovation.
+
+R. C. Herbert
+DESBOND FITZGERALD
+C/W/D
+
+J. J. KAUFFMAN
+C/WH/1
+
+RELIEVING OFFICER
+
+COOPERATIVE OFFICERS
+
+<table><tr><td colspan="2">2 2 2 2 2 2</td></tr></table>
+
+AUTHENTICATING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

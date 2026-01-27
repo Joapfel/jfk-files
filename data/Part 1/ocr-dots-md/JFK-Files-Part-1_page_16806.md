@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_16806.png
+
+Convert to Markdown14-0000
+
+<table><tr><td>ORIG</td><td></td><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>UNIT</td><td></td><td colspan="2">SECRET</td></tr><tr><td>EXT</td><td></td><td colspan="2"></td></tr><tr><td>DATE</td><td></td><td colspan="2"></td></tr><tr><td colspan="3"></td><td>8.08</td></tr><tr><td rowspan="6" style="vertical-align: top;">TO<br/>FROM: DIRECTOR<br/>CONF.<br/>INFO:</td><td colspan="3" style="text-align:center; font-weight:bold; border-bottom: 1px solid black;">ROUTING</td></tr><tr><td style="text-align:center;">1</td><td colspan="2" style="text-align:center;">4</td></tr><tr><td style="text-align:center;">2</td><td colspan="2" style="text-align:center;">5</td></tr><tr><td style="text-align:center;">3</td><td colspan="2" style="text-align:center;">6</td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td><td style="text-align:right;">OUT 80565 DIR 38385</td></tr><tr><td>CITE DIR</td><td>INFO</td><td>-2-</td></tr></table>
+
+**TIONS LATER IN THE YEAR FAIL TO PRODUCE RESULTS.**
+
+3. BUILDUP OF CHICOM FORCES IN TAIWAN STRAITS SPRING AND SUMMER 1962 LEFT PEIPING IN STRONGER MILITARY POSITION THERE BUT POSTURE REMAINS PRIMARILY DEFENSIVE. CHINATS, THOUGH STILL A TALKING ABOUT RETURN TO MAINLAND, ARE UNLIKELY TO LAUNCH ANY OPERATIONS LARGER THAN SMALL-SCALE INTELLIGENCE PROBES IN THE FORESEEABLE FUTURE. BOTH SIDES ADHERE TO BASIC POLICY POSITION THAT "TWO CHINAS" SOLUTIONS/EX OUT OF THE QUESTION, AND THAT THE ONLY POSSIBLE SOLUTION IS P DESTRUCTION, ABSORPTION RIVAL REGIME.
+
+4. INDIA-CHINA: RECENT CLASHES ON ASSAM-TIBET FRONTIER HAVE REFOCUSED ATTENTION ON EASTERN END OF HIMALAYAN BORDER AND HEIGH TENED SINO-INDIAN TENSION; SKIRMISHING LIKELY TO CONTINUE BOTH IN LADAKH AND NORTHEAST, BUT ONSET OF WINTER CONDITIONS IN MID-OCTOBER AND APPARENT RELUCTANCE OF BOTH SIDES TO EXTEND FIGHTING MAKES OUTBREAK OF LARGE-SCALE HOSTILITIES UNLIKELY.
+
+5. INDIA-PAKISTAN: DESPITE PERIODIC TEMIFICATIONS OVER BORDER INCIDENCE AND LACK OF PROGRESS ON KASHMIR DISPUTE, RELATIONS ARE RELATIVELY STABLE AND THERE IS LITTLE PROSPECT OF MILITARY ACTION.
+
+6. JAPAN: NO CHANGE IN JAPANESE SECURITY SITUATION, VISIT OF
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+SECRET
+
+GROUP I
+Excluded from automatic declassification and decodification
+
+AUTHENTICATING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

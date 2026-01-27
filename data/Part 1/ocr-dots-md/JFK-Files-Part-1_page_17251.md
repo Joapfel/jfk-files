@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_17251.png
+
+Convert to MarkdownSECRET/TK
+
+-6-
+
+4. It is the Station's conclusion that the money and case officer time expended on this segment of the LIEMPTY project is worthwhile and should be continued in view of the quality and quantity of operational information produced.
+
+C. Simon D. CLACKETT Segment (discussed in relation to project objectives):
+
+1. "To collect operational information and to identify operational leads pertaining to the LIMERICK target and Station targets of opportunity." During this project year the LIJERSEY surveillance team under the direction of CLACKETT began contributing to the Station's support efforts through pretext investigations and physical surveillances. Some examples of the team's work are listed below:
+
+a. Rafael TISCHLER Guzman (201-64372) is a Guatemalan Communist which the team had under surveillance from November 1959 to April 1960. The surveillance, together with information acquired from other sources, eventually resulted in an unsuccessful recruitment attempt on TISCHLER.
+
+b. Pericles FRANCO Ornes (201-64546) - FRANCO is a Dominican of interest to the Station. The LIJERSEY team devoted portions of five months, January to May 1960, collecting information on subject through physical surveillance.
+
+c. Jose Maria "Chema" LOPEZ Valdizon (201-) was the subject of a physical surveillance during May and June 1960. LOPEZ was later deported from Mexico through the efforts of LITEMPO-2.
+
+d. CLACKETT and the LIJERSEY team performed numerous pretext investigations on Station targets of opportunity and on three separate occasions during the project year served as a counter-surveillance escort for Station officers in other operations.
+
+2. CLACKETT, just prior to his resignation in August 1960, spent about five weeks giving tradecraft and operational skills training to LITEA-1. Although not specifically covered by the project objectives, this ability on CLACKETT's part is considered a significant contribution to the Station's support efforts.
+
+SECRET/TK

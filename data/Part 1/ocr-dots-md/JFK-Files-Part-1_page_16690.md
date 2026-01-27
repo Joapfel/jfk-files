@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_16690.png
+
+Convert to MarkdownS-E-C-R-E-T
+NO FOREIGN DISSEN
+
+- 1a -
+
+CS-311/00466-65
+
+<table><caption>HDQRS Dissem</caption><tbody><tr><td>WH/COPS</td><td>1</td></tr><tr><td>WH/PO/A</td><td>1</td></tr><tr><td>WH/PO/B</td><td>1</td></tr><tr><td>WH/1</td><td>1</td></tr><tr><td>WH/2</td><td>13</td></tr><tr><td>WH/3</td><td>1</td></tr><tr><td>WH/3/V</td><td>1</td></tr><tr><td>WH/4</td><td>1</td></tr><tr><td>WH/5</td><td>1</td></tr><tr><td>WH/6</td><td>1</td></tr><tr><td>WH/R</td><td>1</td></tr><tr><td colspan="2"><strong>Field Dissem</strong></td></tr><tr><td>WH/MEXI</td><td>1</td></tr><tr><td>WH/MNTY</td><td>1</td></tr><tr><td>WH/MRID</td><td>1</td></tr><tr><td>WH/SDOM</td><td>1</td></tr><tr><td>WH/PIBO</td><td>1</td></tr><tr><td>WH/POSN</td><td>1</td></tr><tr><td>WH/KNGS</td><td>1</td></tr><tr><td>WH/PRIN</td><td>1</td></tr><tr><td>WH/GORG</td><td>1</td></tr><tr><td>WH/MANA</td><td>1</td></tr><tr><td>WH/SJOS</td><td>1</td></tr><tr><td>WH/SALV</td><td>1</td></tr><tr><td>WH/TEGU</td><td>1</td></tr><tr><td>WH/GUAT</td><td>1</td></tr><tr><td>WH/LAPA</td><td>1</td></tr><tr><td>WH/BOGO</td><td>1</td></tr><tr><td>WH/QUIT</td><td>1</td></tr><tr><td>WH/GAYA</td><td>1</td></tr><tr><td>WH/LIMA</td><td>1</td></tr><tr><td>WH/CARA</td><td>1</td></tr><tr><td>WH/BUEN</td><td>1</td></tr><tr><td>WH/COBA</td><td>1</td></tr><tr><td>WH/MONT</td><td>1</td></tr><tr><td>WH/ASUN</td><td>1</td></tr><tr><td>WH/SAGO</td><td>1</td></tr><tr><td>WH/RIOD</td><td>1</td></tr><tr><td>WH/CURI</td><td>1</td></tr><tr><td>WH/BRIL</td><td>1</td></tr><tr><td>WH/SAOP</td><td>1</td></tr><tr><td>WH/BHIA</td><td>1</td></tr><tr><td>WH/BEHO</td><td>1</td></tr><tr><td>WH/LGRE</td><td>1</td></tr><tr><td>WH/RECI</td><td>1</td></tr><tr><td colspan="2"><strong>WH/SA/WAVE</strong> 5</td></tr><tr><td>AF/ALGI</td><td>1</td></tr><tr><td>AF/ORNA</td><td>1</td></tr><tr><td>AF/RABA</td><td>1</td></tr><tr><td>AF/CASB</td><td>1</td></tr><tr><td>AF/ACCR</td><td>1</td></tr><tr><td>AF/CNRY</td><td>1</td></tr><tr><td>AF/

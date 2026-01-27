@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_17041.png
+
+Convert to Markdownbelieve it is time for the Station to make an updated security review of the operation with particular attention to the knowledgeability of terminated agents and their families. We also believe that the Station should now address itself to the contingency that the present sites or personnel will be blown and to investigate alternative means of continuing their valuable coverage.
+
+4. The ADDP last approved this project in May 1970 with the condition that termination payments to the principal agent and his divorced wife be made on a monthly basis. This condition has been met.
+
+5. The budgets requested for the next two years are simple and straightforward. Salaries and the traditional bonuses for the five paid agents come to about $13,000. Rent and utilities on the two observation posts come to $5,600. The small balance is for operational expenses. This project action also requests amendment of the FY 1971 budget by $4,260 to cover that part of the cost of termination bonuses to the principal agent and his divorced wife which could not be absorbed by the project. The total of the termination bonuses was $12,500.
+
+6. This is a valuable and productive project which helps fulfill a Priority A-1 Station requirement. The FI Staff recommends approval.
+
+L. A. Campbell
+Chief
+Foreign Intelligence
+
+Attachment
+Project

@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_17443.png
+
+Convert to Markdown<table><thead><tr><td colspan="4">SENDER WILL CHECK CLASSIFIC ON TOP AND BOTTOM</td></tr><tr><td>UNCLASSIFIED</td><td>CONFIDENTIAL</td><td>V</td><td>SECRET</td></tr></thead><tbody><tr><td colspan="4">CENTRAL INTELLIGENCE AGENCY<br/>OFFICIAL ROUTING SLIP</td></tr><tr><th>TO</th><th>NAME AND ADDRESS</th><th>INITIALS</th><th>DATE</th></tr><tr><td>1</td><td>C/M/3</td><td></td><td>11</td></tr><tr><td>2</td><td>Jr.-G. Kim C/M/10</td><td>Kim</td><td>23 Feb 62</td></tr><tr><td>3</td><td>Austin Spivey, Applicant to the Conference</td><td>S</td><td></td></tr><tr><td>4</td><td></td><td></td><td></td></tr><tr><td>5</td><td>w/3/Mexico. 1015 Barton Hall</td><td></td><td></td></tr><tr><td>6</td><td></td><td></td><td></td></tr><tr><td></td><td>ACTION</td><td>DIRECT REPLY</td><td>PREPARE REPLY</td></tr><tr><td></td><td>APPROVAL</td><td>DISPATCH</td><td>PERCWENDATION</td></tr><tr><td></td><td>COMMENT</td><td>FILE</td><td>RETURN</td></tr><tr><td></td><td>CONCURRENCE</td><td>INFORMATION</td><td>SIGNATURE</td></tr><tr><td colspan="4">Remarks:<br/>2 - 3: In accordance with your conversation with the Mexican Desk, it is requested that you bring the attached dispatch to the attention of the Director. The information in the dispatch and the attachments are furnished in response to a request made by the Director (see paragraph 4).</td></tr><tr><td colspan="4">FOLD HERE TO RETURN TO SENDER</td></tr><tr><td colspan="2">FROM: NAME, ADDRESS AND PHONE NO.</td><td></td><td>DATE</td></tr><tr><td colspan="2"></td><td></td><td></td></tr><tr><td colspan="2">UNCLASSIFIED</td><td colspan="2">CONFIDENTIAL V SECRET</td></tr></tbody></table>
+
+FORM NO. 237 Replaces Form 20-4
+I AFR 55 which may be used.
+
+U.S. DEPARTMENT PRINTING OFFICE 99-O-M231
+
+(4)

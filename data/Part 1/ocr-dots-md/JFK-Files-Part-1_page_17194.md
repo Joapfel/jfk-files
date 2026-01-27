@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_17194.png
+
+Convert to MarkdownC. The Mobile Photographic Unit.
+
+1. Throughout the period under review, the LIENTRAP Mobile photographic/ support unit was regularly exploited and used by Station Mexico City. This unit provided over 1,000 individual photographs and was used in support of Station operations and activities. Of particular value to Station Mexico City and the JETIGER program were numerous photographs of local and exile Communist leaders provided by LIENTRAP. In addition, the LIENTRAP personnel and unit was used regularly to service and obtain various postal accommodation boxes used by Mexico City, Headquarters and other field stations.
+
+D. Raymond H. GERENDA - LIEUTY Principal Agent.
+
+During the period under review, with the exception of short vacation periods, Raymond H. GERENDA, continued in his role as the Project LIEUTY principal agent. GERENDA operated as the full-time cut-out to the LIEUTY, LILYRIC and LICALIA baschouses and bore the first echelon agent handling responsibility for the related personnel. In addition, GERENDA continued to bear the contact and handling responsibilities of the LIENTRAP unit and for the operator of the LIEUTY photographic developing/processing laboratory, LIEUTY-4. GERENDA's overall operational assignment involved at least 12 clandestine meetings per week, in addition to his meetings with the LIEUTY Project case officer. It should also be noted that GERENDA made numerous and essential contributions to the sensitive ACOOD operation and assisted the Station greatly with his detailed area knowledge in many instances.
+
+## E. Overall Effectiveness
+
+As outlined above, each individual operational component of the LIEUTY Project contributed regularly and significantly to the fulfillment of Station Mexico City's operational programs. Based on the continued excellent performance and overall contributions of this project, the Station strongly recommends that this project be continued during the forthcoming project year as an essential element of the Station's operational support apparatus.
+
+## F. PROBLEMS AND SECURITY.
+
+During the Project year under review there were no known incidents which adversely affected the security of Project LIEUTY or the related personnel. The only significant problem encountered in the operation and administration of this project stemmed from the physical move of the LILYRIC personnel to the new base in the LINQUINE building. Numerous delays arising from the faulty performance of the local contractors and construction crews hampered a timely relocation of this base. However, it is anticipated that the new LILYRIC base will be in full operation by the end of October 1966.

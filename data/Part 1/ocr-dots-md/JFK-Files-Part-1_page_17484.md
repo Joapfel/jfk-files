@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_17484.png
+
+Convert to MarkdownRETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+14-0000
+
+104-10187-10142
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+MESSAGE FORM
+
+<table><tr><td colspan="2">S E C R E T</td></tr><tr><td>1.</td><td>5</td></tr><tr><td>2.</td><td>6</td></tr><tr><td>3.</td><td>7</td></tr><tr><td>4.</td><td>8</td></tr></table>
+
+18 Sept.1964
+
+<table><tr><td>SAN SALVADOR</td></tr></table>
+
+JUN. WHP
+
+CITE DIR
+
+INFO
+
+SALV
+
+L.H. DIV. CUBA CUBAN DEP
+
+REF SALV 523S (IN 69136)*
+
+GRATIFIED AT EFFECTIVE PRESENTATION OF BRIEFING TO [PRESIDENT,] DUT CONCERNED AT KEY ROLE OF [POLICE,] 224 CRGE STATION DE AS TOUGH AS RELATIONS PERMIT IN INSISTING ON PROFESSIONAL HANDLING AND NOT BACKWARD IN POINTING OUT SECURITY BREACHES AND FUMBLES, PERSIARS STATION WILL SEE CHANCE TO DEMONSTRATE TO RIVERA THAT [STATION IS INCOMPETENT.]
+
+END OF MESSAGE
+
+WH COMMENT:
+
+* Station SALV advised Idqs of meeting between Chief CUBAN subversion and use of material. Station stated [President] desired only local other than himself to be writing on material and information presented.
+
+CUBAN DEFENDER
+
+CHIEF ENBassy
+
+COORDINATING OFFICER
+
+SECRET
+
+S E C R E T
+
+6/90
+
+RELEASED OFFICE
+
+6/90

@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_17289.png
+
+Convert to MarkdownEM-A-11257
+KAP0K-1472
+
+c. Coordinate support requests from other Station Case Officers which involve either GERENDE, SCANTLING or the staff agent.
+
+d. Process (indexing, traces, etc.) the photographic and other information from the LIEMPTY outside photographic assets.
+
+e. Prepare operational and administrative correspondence pertaining to LIEMPTY.
+
+**Principal agent - Oliver G. SCANTLING:**
+
+a. Perform one man surveillances and investigations to identify individuals of operational interest.
+
+b. Perform comprehensive and detailed casings of installations of interest to the Station and Headquarters.
+
+c. Provide administrative support and some operational guidance to LIEMPTY-3.
+
+d. Recruit individuals which have physical access to the LIMERICK installation (basically in support of LIMESA).
+
+e. Spot prospective agent candidates for possible later use by the Station.
+
+Agent - LIEMPTY-3
+
+a. Cultivate and elicit information from the occupant of the LICOOL-6 apartment.
+
+b. Where possible, broaden his contact with the LIMERICK people for the purpose of obtaining information concerning LIMERICK commercial matters in Mexico and to identify LIMERICK personnel who may be susceptible to defection and/or recruitment in place.
+
+c. Support the LICOOL-6 technical operation by operating the recording machines and occupying the monitoring base as his family quarters.
+
+**Principal Agent - Raymond H. GERENDE**
+
+a. Manage and act as the Case Officer's principal in the supervision of LIMITED, LILYRIC, LICALLA, LIENTRAP, LIJERSEY surveillance teams (until relieved by new staff agent) and LIEMPTYs 4 and 5.
+
+b. Set up and maintain proper clandestine communications procedures with all agents under his supervision.
+
+c. Review periodically all aspects of his operations for possible security, personnel and management problems.

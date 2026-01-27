@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_17005.png
+
+Convert to Markdown4. **EQUIPMENT:** 1 QP auto
+Photographic Equipment
+
+5. **PROJECT ACTIONS:** First approved in 1958, the FY 1971 Renewal Request was submitted in April 1970.
+
+6. **COST:**
+
+| FY | APPROVALS |
+|---|---|
+| 1966 | $45,300 |
+| 1967 | 41,500 |
+| 1968 | 45,000 |
+| 1969 | 43,500 |
+| 1970 | 49,468 (Estimated Obligation) |
+| 1971 | 23,635 (Request) |
+
+**SUMMARY OF CURRENT PROJECT COSTS: FY 1970**
+
+Salaries and Bonuses      $40,580.00
+Real Estate, Utilities   6,188.00
+and Rent                 1,200.00
+Car Maintenance          500.00
+Property Maintenance and
+Replacement             1,000.00
+Supplies                -
+TOTAL                   $49,468.00

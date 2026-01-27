@@ -1,0 +1,57 @@
+# JFK-Files-Part-1_page_16817.png
+
+Convert to Markdown14-0000
+
+CLASSIFIED MESSAGE
+
+<table><tr><td>OUT: Vernet Cressman:js</td></tr><tr><td>UNIT: WH/COPS</td></tr><tr><td>EXT.: 7743</td></tr><tr><td>DATE: 5 September 1962</td></tr></table>
+
+<table><tr><td colspan="3">ROUTING</td></tr><tr><td>1</td><td>4</td><td></td></tr><tr><td>2</td><td>5</td><td></td></tr><tr><td>3</td><td>6</td><td></td></tr></table>
+
+TO: MEXICO CITY
+
+FROM: DIRECTOR
+
+CONF: C/WH 5
+
+INFO: AARP, C/CI, C/FE 6, S/C 2
+
+CITE DIR 33992
+
+BYBAT
+
+DIR 31814 (OUT 69116)*
+
+1. MR. HENRY HECKSHER AVAILABLE DURING PERIOD 10-17 SEP FOR BRIEFING OF LITENSOR.
+
+2. ADVISE DATE MOST CONVENIENT TO LITENSOR AND COS.
+
+3. AS COS AWARE MR HECKSHER HAS EXCELLENT AREA KNOWLEDGE OF INDONESIA, PHILIPPINES AND JAPAN. HE WILL REQUIRE INTERPRETER ASSISTANCE FROM COS.
+
+4. FYI MR. HECKSHER DEPARTING WITHIN FEW DAYS ON TRIP TO CERTAIN CARIBBEAN COUNTRIES IN CONNECTION WITH ANOTHER PROJECT. WOULD APPRECIATE REPLY AS SOON AS FEASIBLE.
+
+END OF MESSAGE
+
+WH CMT *stated Eq would notify Station when selection of expert in area knowledge firmed up.
+
+CFE/FIA - Hecksher (In charge)
+
+NED P. ECOLMAN
+
+RAPORD W. HERBERT
+AC/WHD
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+GROUPL
+Excluded from automatic declassification and de-identification
+
+AUTHENTICATING OFFICER
+
+RELEASED OFFICE
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

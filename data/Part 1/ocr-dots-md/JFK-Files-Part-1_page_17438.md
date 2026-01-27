@@ -1,0 +1,83 @@
+# JFK-Files-Part-1_page_17438.png
+
+Convert to Markdown14-0000
+
+<table>
+  <tr>
+    <td>DATE</td>
+    <td>: 065<br/>20 FEB 62</td>
+    <td style="text-align: right;">CLASSIFIED MESSAGE</td>
+  </tr>
+  <tr>
+    <td>TO</td>
+    <td>:</td>
+    <td>DIRECTOR</td>
+  </tr>
+  <tr>
+    <td>FROM</td>
+    <td>:</td>
+    <td>MEXICO CITY</td>
+  </tr>
+  <tr>
+    <td>ACTION</td>
+    <td>:</td>
+    <td>C/TSD 2</td>
+  </tr>
+  <tr>
+    <td>INFO</td>
+    <td>:</td>
+    <td>COP, C/CI, C/FI 2, C/FI/D 4, C/WH 5, S/C 2*</td>
+  </tr>
+</table>
+
+<table>
+  <tbody>
+    <tr>
+      <td colspan="3">ROUTING</td>
+    </tr>
+    <tr>
+      <td>1</td>
+      <td></td>
+      <td>4</td>
+    </tr>
+    <tr>
+      <td>2</td>
+      <td>X</td>
+      <td>5</td>
+    </tr>
+    <tr>
+      <td>3</td>
+      <td></td>
+      <td>6</td>
+    </tr>
+    <tr>
+      <td colspan="3">FEB 20 0709Z 62</td>
+    </tr>
+    <tr>
+      <td colspan="3">ROUTINE</td>
+    </tr>
+    <tr>
+      <td colspan="3">IN 30585</td>
+    </tr>
+  </tbody>
+</table>
+
+DIR CITE MEXI 0144 (WARE ACTING)
+
+AQUATIC/LIERODE/MKTRAP
+
+1. FAILURE OF AUDIO IN ONE SRT-9 AT LIERODE MAKES IMMEDIATE MKTRAP INSTALLATION HIGHLY DESIRABLE.
+
+2. LATEST INVESTIGATION REVEALS TARGET TELEPHONE IS ERICSSON MODEL DBJ 510-512 WITH DIAL IN BASE.
+
+3. INITIAL TESTS WITH MP-4 AND 4 LAYER DIODES INDICATE DEFINITE SUPERIORITY IN AUDIO QUALITY TO BASIC MKTRAP CIRCUITRY AND FEASIBILITY CONCEALMENT IN INSTRUMENT HANDLE.
+
+4. LINE TO TARGET REPORTED BY GOOD AUTHORITY AS 2.7 MILES NUMBER 20 CABLE PAIR WITH SERIES CONNECTION AT CENTRAL. PLAN INITIAL PHASE OF INSTRUMENT INSTALLATION AND LP EQUIPMENT TESTS USING LIFEAT.
+
+5. IN VIEW POSSIBLE REQUIREMENT FOR SHORTER LINE LENGTH AND QUESTION OF SECURITY OF SERIES CONNECTION OVER EXTENDED PERIOD AT CENTRAL OFFICE, STATION CONSIDERING USE LIENVOY ENGINEER AFTER INITIAL PHASE FOR CABLE SPLICE TO SHORTEN LINE TO 1000 FEET. THIS WOULD REVEAL LOCATION PRESENT LIERODE BASE TO LIENVOY BUT WOULD NOT NECESSARILY REVEAL TECHNIQUE. STATION, NOT LIENVOY, WOULD CONTROL BASE AND PRODUCTION.
+
+6. REQUEST HQS COMMENT:
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

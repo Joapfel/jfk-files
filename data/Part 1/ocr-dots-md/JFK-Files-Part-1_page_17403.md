@@ -1,0 +1,60 @@
+# JFK-Files-Part-1_page_17403.png
+
+Convert to Markdown<table>
+  <tr>
+    <td colspan="2">CLASSIFIED MESSAGE</td>
+    <td rowspan="3">
+      <table>
+        <tr>
+          <th colspan="2">ROUTING</th>
+        </tr>
+        <tr>
+          <td>1<br/>2<br/>3</td>
+          <td>4<br/>5<br/>6</td>
+        </tr>
+      </table>
+    </td>
+  </tr>
+  <tr>
+    <td>DATE : 064<br/>16 AUG 62</td>
+    <td style="text-align: right;">~~29~~ SECRET</td>
+  </tr>
+  <tr>
+    <td>TO : DIRECTOR</td>
+    <td></td>
+  </tr>
+  <tr>
+    <td>FROM : MEXICO CITY</td>
+    <td></td>
+  </tr>
+  <tr>
+    <td>ACTION: C/W 5</td>
+    <td></td>
+  </tr>
+  <tr>
+    <td>INFO : ADDP, C/C1, C/C1/IC 2, C/F1 2, S/C 2</td>
+    <td></td>
+  </tr>
+</table>
+
+AUG 16 0349Z 62
+
+ROUTINE S
+
+IN 46148
+
+DIR CITE MEXI 1693
+
+R/BAT
+
+REF MEXI 1691, PARA 5 C-65535).
+
+1. STATION SUGGESTS AREHART AND LIENVOY-2 TDY HQS WEEK BEGINNING 23 AUG. AREHART TO ARRIVE 23 AUG FOLLOWED BY L-2 ON 22 AUG. PURPOSE TO STUDY AND SELECT SMALLER RECORDING GEAR (PROBABLY WOLLENSACK) FOR LIENVOY USE. PLAN MOVE LIENVOY BASE INTO LIELEGANT OFFICE WHERE PREVIOUSLY LOCATED TO INCREASE OP SECURITY AND OVERALL EFFICIENCY. THIS WAS PROPOSED BY LIELEGANT SEVERAL WEEKS AGO, BUT STATION CONSIDERATION EXPENSE NEW GEAR DELAYED SUGGESTION UNTIL REF PROPOSAL AROSE.
+
+2. BELIEVE TWO DAYS ADEQUATE TIME L-2 REMAIN HQS. REQUEST HQS APPROVAL TRIP.
+
+END OF MESSAGE
+
+C/S COMMENT: "PARA 5 MEXI SUGGESTED POSSIBILITY PRESENT LIENVOY GEAR COULD BE USED BY LITEMPO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

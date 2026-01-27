@@ -1,0 +1,57 @@
+# JFK-Files-Part-1_page_17487.png
+
+Convert to MarkdownRETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+MESSAGE FARM
+
+<table><tr><td>MIL C.I.C.</td></tr><tr><td>6026</td></tr><tr><td>27 August 1964</td></tr></table>
+
+SECRET
+
+SANT SALVADOR GUATEMALA CITY
+
+DIRECTOR
+
+WH T
+
+NO DDP, WH/SA P, CA 2, CA/PEG, CA/PRI, P3, C1/6 PS,
+
+C1/10 2, C1/15, P1, CCS 3, VR
+
+SALV GUAT
+
+DYYOUR PORUMEN AMMUG
+
+REF DIR 45535
+
+**CITE DIR**
+
+45536
+
+STAFF EMPLOYEES
+
+WILL TRAVEL SALV AND GUAT UPON COMPLETION OF THE MINISTERS' MEETING FOR DISCUSSIONS WITH BOTH STATIONS. HDQS WANTS STATIONS TO SET UP BRIEFINGS FOR PRESIDENT O.B. RIVERA AND CHIEF GOVT PERALTA AND ROUNDTABLE TALKS ON CUBAN SUBVERSION. SUCH TALKS IDEALLY WOULD ALSO INCLUDE STATION CHIEF AND LOCAL Liaison CHIEF, AS WELL AS STAFF EMPLOYEES. REQUEST ADDRESSEE'S VIEWS SUCH CONTACTS.
+
+FOR SALV: WILL EXPLORE WITH YOU POSSIBLE PITCHES TO THE AMMUG LEADS. PENDING OUTCOME SUCH EXPLORATIONS, HDQS PREPARED MAKE AMMUG ONE AVAILABLE IMMEDIATELY FOR PITCHES.
+
+END OF MESSAGE
+
+<table><tbody><tr><th scope="row">ROUTING</th><td>INITIAL.</td></tr><tr><th scope="row">RID/AN</th><td>RJ-1</td></tr><tr><th scope="row">RJD/MIS</th><td></td></tr><tr><th scope="row">DATE</th><td></td></tr><tr><th scope="row"></th><td></td></tr><tr><th scope="row">LHA</th><td></td></tr><tr><th scope="row">C/WU/PO/A</th><td>Sig</td></tr><tr><th scope="row">C/WH/SA/CI</th><td>Sig</td></tr><tr><th scope="row">CO-ORD</th><td>C-08/2</td></tr></tbody></table>
+
+EXTERPRISE OFFICE
+
+RELEASING OFFICER
+
+EXTERPRISE AUTHENTICATING OFFICE
+
+1389a
+
+RELAYS COPY
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+Copy No. 390
+
+<table><tr><td>B</td><td>E</td><td>T<br/>h<br/>e<br/>p<br/>o<br/>s<br/>t<br/>h<br/>is</td></tr></table>

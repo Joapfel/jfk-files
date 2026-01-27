@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_17271.png
+
+Convert to MarkdownSECRET
+
+-9-
+
+Four additional agents at $2,000 per year      $ 8,000.00
+Simon D. CLACKETT -
+ Salary                                     $ 7,750.00
+ Quarters                                    1,800.00
+ Education Allowance                          360.00
+ Travel                                        1,000.00   10,910.00   $ 61,910.00
+
+**Operational Expenses:**
+
+Automobiles (4 cars and 1 truck)                $ 3,000.00
+(Maintenance, operational expenses,
+ replacement of parts.)
+Travel of agents by commercial carrier         500.00       3,500.00
+
+**Operational Equipment:**
+
+Purchase of one used auto for LIJERSEY
+Surveillance Team                                $ 3,500.00
+Purchase of one base radio for LIJERSEY
+Team                                             1,000.00
+Repair and maintenance of radio and
+camera equipment                              1,000.00
+Purchase of new photographic equipment
+and supplies                                   2,000.00     7,500.00
+
+**Real Estate:**
+
+Rent, utilities and maintenance of following
+safehouses:
+
+*LIMITED                                          $ 2,500.00
+*LICALLA                                            1,500.00
+LILYRIC                                           1,000.00     5,000.00
+
+*LIMITED and LICALLA rents are returned to
+the Station by LIMOUSINE and credited to Station
+miscellaneous receipts.
+
+Funds for procurement and servicing of additional safehouses,
+post office boxes and renting automobiles              2,000.00
+
+SECRET/

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_17125.png
+
+Convert to MarkdownSECRET
+
+Request for Amendment to LIEEMPTY Project
+
+1. It is requested that the LIEMPTY Project approval request be amended to include Simbn D. CLACKETT (ps) and wilma J. FIORALISI (ps), U. S. citizens and contract agents, under this Project in place of the Staff Agent written into the field project outline. At the same time it is requested that the LIMEA Project be amended to delete these contract agents from the latter project.
+
+2. CLACKETT and FIORALISI are now approved under the LIMESA Project. They were recruited in the United States to occupy a sensitive LIMESA base- house. Because of the sensitivity of the operation and the equipment to be installed in the basehouse Headquarters decided U. S. citizens should be used. The Station said appropriate documentation and backstopping could be secured for those agents so they could be given false identities under which they could live while they occupied the basehouse.
+
+3. NEXI-2777 (IN 26519), of 14 November 1958, notified Headquarters that security factors and difficulty in obtaining adequate documentation and backstopping precluded the use of U. S. citizens under LIMESA and re- quested permission to use indigenous agents for this operation. After dis- cussions between John BND, Chief of the Mexican desk, with the LIMESA/ LIEMPTY Case Officer in Mexico City, and discussions between representa- tives of FI/D, OC, TSS, and WH at Headquarters, Headquarters concurred in the field's operational decision to use indigenous agents in the LIMESA Project. CLACRETT and FIOREALISI received only a very superficial briefing regarding the LIMESA Project. It is not believed Subject's limited know- ledge of this sensitive operation will pose a security hazard.
+
+4. Construction on the LIMEST houses is being kept about two weeks from completion until indigenous agents can be cleared and recruited. The delay in completion is normal because all construction money in Mexico has become extremely tight because of the recent presidential inauguration.
+
+5. The Station believes CLACRETT will be an excellent replacement for Wilfred O. CLOER (ps), former Staff Agent under Project LIPSTICK, who directed and trained that surveillance team. CLACRETT has shown a remarkable aptitude for clandestine operational activity and surveillance and investi- gative work in particular. He also is interested and enthusiastic in under- taking this assignment for KUBARK. The Station needs a good bilingual agent to recruit, train, direct, and develop a strong dependable physical surveil- lance team under LIFEMTY.
+
+6. Clearances and Contacts: CLACKETT was granted a PCSA on 23 July 1958. A POA/CA for use under LIMESA was requested on 19 August 1958. FIORALISI was granted an OA for use under LIMESA on 14 November 1958. Requests have been submitted to amend their clearances for use under LIFEMTY, CLACRETT and FIORALISI have signed contracts effective 1 September 1958. The sensitivity of the LIMESA Project required them to leave their young son in secret. SECRET...

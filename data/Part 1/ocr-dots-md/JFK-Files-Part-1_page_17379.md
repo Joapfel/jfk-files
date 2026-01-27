@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_17379.png
+
+Convert to MarkdownSECRET
+
+LIENVOY PRODUCTION - SEPTEMBER 1962
+
+| HMMA's | HMM's | MEXI's |
+|---|---|---|
+| HMMA-19729 | HMM-6703 | MEXI-1871 (HMM 6707) |
+| HMMA-19743 | HMM-6704 | MEXI-1899 |
+| HMMA-19747 | HMM-6705 | MEXI-1904 |
+| HMMA-19791 | HMM-6709 | MEXI-1905 |
+| HMMA-19795 | HMM-6720 | MEXI-1919 |
+| HMMA-19804 | HMM-6722 | MEXI-1925 |
+| HMMA-19846 | HMM-6723 | MEXI-1946 |
+| HMMA-19848 | HMM-6724 | MEXI-1952 |
+| HMMA-19858 | HMM-6726 | MEXI-1967 (HMM-6730) |
+| HMMA-19864 | HMM-6733 | MEXI-1979 |
+| HMMA-19868 | HMM-6735 | MEXI-1984 (HMM-6736) |
+| HMMA-19878 | HMM-6738 | MEXI-1990 |
+|  | HMM-6739 | MEXI-2024 |
+|  | HMM-6743 | MEXI-2063 (HMM-6756) |
+|  | HMM-6744 | MEXI-2072 |
+|  | HMM-6745 |  |
+|  | HMM-6746 |  |
+|  | HMM-6747 |  |
+|  | HMM-6749 |  |
+|  | HMM-6750 |  |
+|  | HMM-6754 |  |
+|  | HMM-6759 |  |
+
+12 + 22 + 15 = 49
+
+<table><tr><td>GROUP I<br/>Included in this report</td></tr><tr><td>DISTRIBUTION AND USE RESTRICTED</td></tr></table>

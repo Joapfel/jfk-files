@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_16858.png
+
+Convert to Markdown<table><tr><td colspan="2">CONTINUATION OF<br>DISPATCH</td><td style="text-align:center;">CLASSIFICATION</td><td>SECRET</td><td style="text-align:center;">DISPATCH SYMBOL AND NUMBER</td></tr><tr><td colspan="4"></td><td>HMNA-40227</td></tr><tr><td colspan="5">processing backlog will be narrowed to a week at the longest.</td></tr><tr><td colspan="5" style="text-align:center;">Howard T. BAGAUS</td></tr><tr><td colspan="5">FORWARDED BY SPLIT TO AINSTRUCTION<br>NO FIFTH DISTRIBUTION</td></tr><tr><td colspan="3"><strong>FORM</strong> 538 USE PREVIOUS EDITION</td><td colspan="2"><strong>CLASSIF</strong> SECRET</td></tr><tr><td colspan="3">9-64 (40)</td><td colspan="2"><strong>SEC</strong></td></tr></table>

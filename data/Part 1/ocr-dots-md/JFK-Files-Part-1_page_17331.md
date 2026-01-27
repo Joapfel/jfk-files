@@ -1,0 +1,143 @@
+# JFK-Files-Part-1_page_17331.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>DISPATCH</td>
+    <td>S E C R E T</td>
+    <td>HMMA-21845</td>
+   </tr>
+  </table>
+
+TO : Chief, WH Division
+
+FROM : Chief of Station, Mexico City
+
+SUBJECT : Monthly Operational Report for Project LIENVOY
+
+ACTION : For Headquarters information.
+
+REF : HMMA-21530 dated 14 June 1963
+
+Hqs File No: 50-6-75/4
+
+No Indexing Required
+
+1. There follows the monthly operational report for Project LIENVOY activities during June 1963.
+
+2. Target Lines - June 1963.
+
+The following lines were covered during the month of June:
+
+20-30-18
+General Lazaro Cardenas del Rio
+
+20-83-46
+General Lazaro Cardenas del Rio
+
+24-18-18
+Braultio Maldonado San dez
+
+43-01-85
+Melquiades Maldonado Sanchez
+
+23-85-25
+Alonso Aguilar Monteverde
+
+24-61-75
+Jorge L. Tamayo Castellejos
+
+45-59-52
+David Alfaro Siqueiros
+
+13-21-14
+Francisco Galindo Ochoa
+
+43-15-06
+Enrique Gonzalez Pedrero
+
+11-16-48
+Ignacio Acosta Lagunez
+
+19-15-06
+Roberto Romero Adams
+
+10-29-69
+Movimiento de Liberacion Nacional
+
+46-12-70
+C.T.A.L.
+
+46-11-30
+D.F.S.
+
+46-09-50
+D.F.S.
+
+35-36-52
+Politica (Revista - Manuel Marcue Pardinas)
+
+46-60-15
+Prensa Latina
+
+46-60-16
+Prensa Latina
+
+14-42-37
+Cuban Embassy
+
+14-92-14
+Cuban Embassy
+
+25-07-95
+Cuban Embassy
+
+25-09-14
+Cuban Embassy
+
+14-13-26
+Cuban Embassy
+
+15-60-55
+Soviet Embassy (Chancery)
+
+15-61-55
+Soviet Embassy (Chancery)
+
+15-69-87
+Soviet Embassy (Military Attache)
+
+15-61-07
+Soviet Embassy (Commercial Office)
+
+15-12-64
+Soviet Embassy (Films Representative)
+
+45-61-80
+Czech Embassy
+
+45-61-81
+Czech Embassy
+
+3. Processing of LIENVOY Information.
+
+Of the lines covered, all are of interest to KUBARK and approximately one half of them are exclusively for KUBARK. The LIENVOY tap center monitors continue to prepare daily summaries of significant items from all lines. In addition, they prepare full transcripts in Spanish for ten lines (five Cuban Embassy lines and five Soviet Embassy lines). These transcripts are used by the Station Case Officers for Cuban and Soviet operations in following leads of interest.
+
+<table>
+  <tbody>
+    <tr>
+      <td rowspan="2">FORM<br/>10-57 53a<br/>(40)</td>
+      <td colspan="2">CLASSIFICATION</td>
+      <td>PAGE NO</td>
+    </tr>
+    <tr>
+      <td>[STAMP]</td>
+      <td>SECRET</td>
+      <td>ONE</td>
+    </tr>
+    <tr>
+      <td colspan="2">Enc. -1</td>
+      <td>US COPY</td>
+      <td>50-6-75/3</td>
+    </tr>
+  </tbody>
+</table>

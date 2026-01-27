@@ -1,0 +1,63 @@
+# JFK-Files-Part-1_page_16979.png
+
+Convert to Markdown14-0000
+
+MESSAGE FORM
+
+<table><tr><td>ORIG:</td></tr><tr><td>UNIT:</td></tr><tr><td>EXT:</td></tr><tr><td>DATE:</td></tr></table>
+
+☐ INDEX
+☐ NO INDEX
+☐ FILE IN CS FILE NO.
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
+
+TO:
+
+FROM DIRECTOR
+
+CONF. INFO
+
+PAGE TWO
+
+PRIORITY
+
+CITE DIR
+
+LUMP SUM PAYMENT AT ENHANCED REDUCED PRICE WILL ACCEPT COMBINATION PAYMENT AT REDUCED RATE WITH GREATER PORTION PAYABLE AT SETTLEMENT AND REMAINDER AS OFFSET AGAINST MONTHLY RENTAL AGREEMENT.
+
+2. HQS FEELS ABOVE PROVISOS IMPORTANT AVOID SUBSEQUENT IMPLICA TIONS AND POSSIBLE FUTURE TOTAL LOSS EVENT LIMITED SUBSEQUENTLY PASSES FROM LIMOUSINE'S OR HIS ESTATE'S CONTROL.
+
+3. ADVISE TERMS FOR FINAL APPROVAL CONCLUDING AGREEMENT.
+
+END OF MESSAGE
+
+WH/Log/McMahon (draft)
+
+OL/RECD/John Stephens (draft)
+
+OL/RECD/Dennison (phone)
+
+R.W. Herlihy
+DESMOND FITZGERALD
+CHIEF WHD
+
+W. J. KAUFMAN
+CHIEF WH/1
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+GROUP
+Excluded from automatic
+downgrading and deactivation
+
+AUTHENTICATING
+OFFICE
+
+RELEASING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICER IS PROHIBITED.
+
+Copy No.

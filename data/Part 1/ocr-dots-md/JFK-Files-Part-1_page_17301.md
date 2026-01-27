@@ -1,0 +1,69 @@
+# JFK-Files-Part-1_page_17301.png
+
+Convert to MarkdownOPERATIONS
+
+KDBADGER 50-6-75/3
+
+JANUARY 1962 - DECEMBER 1965 VOL
+
+<table><thead><tr><th>DATE RECEIVED</th><th>DATE RETURNED</th><th>REVIEWED BY (PRINT NAME)</th><th>SIGNATURE OF REVIEWING OFFICIAL</th></tr></thead><tbody><tr><td>26.6.78<br/>6/27/78</td><td>6/26</td><td>D. HARDWAY,<br/>D. Hardway</td><td>Dan Hardway<br/>D. Hardway</td></tr><tr><td>26 JUL 1978<br/>27 JULY 78<br/>15-1000%<br/>1/20/78<br/>(201-77)</td><td></td><td>HARDWAY, DAN HAHOWAY<br/>HAROWAY<br/>G ENDING<br/>G ENDING</td><td>L.H. Handbury<br/>Dan Hardway<br/>Handbury Sengman</td></tr></tbody></table>
+
+THIS MAY BE COPIED OR REMOVED FROM THIS FILE.
+
+FORM
+3-62
+
+50-6-75/3
+
+14-00000
+
+104-10187-10030
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+IN U.S. AIRCRAFT CONSTITUTE OF ASSASSINSION STAFF WORKERS
+
+FILE TITLE/XPORTER/VOLI: KDPADGER Vol VI
+
+OPERATIONS
+
+INCLUSIVE DATES: 3 Jan 1962 - 19 Dec 1963
+
+CUSTODIAL UNIT/LOCATION: L91DDQ
+
+ROOM: 3034
+
+DELETIONS, IF ANY:
+
+<table><tr><td>14</td></tr><tr><td>15.</td></tr></table>
+
+OPERATIONS
+
+LIEUT OT OPERATIONS
+JANUARY 1962 - DECEMBER 1965 VOL
+
+50-6-75/3
+
+# KDBADGER, 50-6-75/3
+
+14-00000
+
+104-10187-10030
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+IN U.S. AIRCRAFT CONSTITUTE OF ASSASSINSION STAFF WORKERS
+
+FILE TITLE/XPORTER/VOLI: KDPADGER
+
+Operations
+
+INCLUSIVE DATES: 3 Jan 1962 - 19 Dec 1963
+
+CUSTODIAL UNIT/LOCATION: L91DDQ
+
+ROOM: 3034
+
+DELETIONS, IF ANY:
+
+<table><tr><td>DATE RECEIVED</td><td>DATE RETURNED</td><td>REVIEWED BY (PRINT NAME)</td><td>SIGNATURE OF REVIEWING OFFICIAL</td></tr><tr><td>26.6.78</td><td>6/26</td><td>D. HARDWAY,</td><td>Dan Hardway</td></tr><tr><td>6/27/78</td><td></td><td>D. HARDWAY</td><td>D. Hardway</td></tr><tr><td>26 JUL 1978</td><td></td><td>HARDWAY</td><td>L.H. Handbury</td></tr><tr><td>27 JULY 78</td><td></td><td>HAROWAY</td><td>Harnduray</td></tr><tr><td>15-1000%</td><td></td><td>G ENDING</td><td>G ENDING</td></tr></table>

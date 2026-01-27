@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_16735.png
+
+Convert to Markdown14-0000
+
+<table>
+  <tr>
+    <td>CLASSIFIED MESSAGE</td>
+  </tr>
+</table>
+
+6. FEINGLASS IS CONSCIENTIOUS AND IT COSTS OPINION HE NOT TO BLAME FOR STATION MISUNDERSTANDING HIS LINGUISTIC CAPABILITIES.
+
+SECRET
+
+C/S COMMENT: *CABLE PRE-DATES CS FILES. COPY MAY BE SEEN IN CIA CABLE REFERENCE FILE.
+
+<table>
+  <tbody>
+    <tr>
+      <td>STAMP</td>
+    </tr>
+    <tr>
+      <td>DATED</td>
+    </tr>
+  </tbody>
+</table>

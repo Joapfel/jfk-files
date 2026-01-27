@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_17499.png
+
+Convert to MarkdownSECRET
+
+19 June 1963
+
+LIFEAT Project Renewal Request
+
+1. It is requested that the attached LIFEAT Renewal Request be approved for the period of 1 July 1962 through 30 June 1963 in the amount of $99,000.00, all of which falls within FY 1963. $99,000.00 was programmed for FY 1963 in the WND allocation.
+
+2. This Project provides the Mexico City Station with a unilateral telephone tap operation which has been in existence for the past 11 years.
+
+3. While the primary object of this Project is not the production of positive intelligence, it was in whole or in part the source of 30 positive information disseminations. In addition to this production and support of other Station operations, it provides ODENVY with information concerning the American Communist Group in Mexico.
+
+4. Emergency recontact instructions have not been established for the agents of this Project since it is believed the operation would cease in case a situation should arise where they would be applicable.
+
+5. No training programs for any LIFEAT personnel are anticipated during the renewal period.
+
+6. WH Division recommends renewal of the LIFEAT Project based on the attached field request. WH Division has cut the field request from $102,193.00 to $99,000.00.
+
+SECRET

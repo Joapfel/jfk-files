@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_17082.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="4">STAFF REVIEW OF FI/CI PROJECT</th><th rowspan="2">RETURN TO: NPS/BC/FI-CI Projects 3 C 43</th></tr><tr><th>PROJECT</th><th>FUNDS</th><th></th><th></th></tr></thead><tbody><tr><td>LIEDPTY</td><td>$38,970</td><td></td><td></td><td></td></tr><tr><td>CASE OFFICER Al Malone</td><td>EXTENSION 6954</td><td>ROOM 3 E 04</td><td></td><td>RECEIVED DDP/PG 27 May 69<br/>FORWARDED 27 May 69</td></tr><tr><td>DIVISION WH</td><td>STATION Mexico</td><td>TARGET AREA MEXICO CITY</td><td></td><td>DEADLINE RETURNED</td></tr><tr><th>ACTION</th><th colspan="3">APPROVAL LEVEL</th><th colspan="4">REVIEWING COMPONENTS</th></tr><tr><th></th><th>APPROVAL</th><th>DIVISION OR STAFF</th><th>X FI/OPS</th><th>X CI/OPS</th><th>X CCS</th><th>X OTHER</th><th>OPSER/P</th></tr><tr><th>X RENEWAL</th><td>X</td><td>ODP</td><td>/INT</td><td></td><td></td><td></td><td></td></tr><tr><th>AMENDMENT</th><td></td><td>DCI</td><td>/D</td><td></td><td></td><td></td><td></td></tr><tr><th>EXTENSION</th><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><th>TERMINATION</th><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="7">ROUTING OFFICE COMMENTS</td></tr><tr><td colspan="7">COMMENT FOR INTERNAL STAFF USE (<u>Not to go forward to the Division</u>)</td></tr><tr><td colspan="7">COMMENTS AND RECOMMENDATIONS (To go forward to the Division)</td></tr><tr><td>DATE</td><td colspan="3"></td><td colspan="4">CC SENT DIV.<br/>DATE 10 July 69</td></tr><tr><td>REVIEWING OFFICER</td><td colspan="6"></td></tr></tbody></table>
+
+SECRET
+
+<table><tbody><tr><td colspan="2">FORM 526</td><td colspan="2">COMPLETE PREVIOUS EDITION</td></tr><tr><td>B-67</td><td></td><td>SECRET</td><td>(13.20.40)</td></tr><tr><td colspan="2">GROUP I<br/>Excluded from Automatic<br/>Disabling and<br/>Termination</td><td colspan="2"><div style="border: 1px solid black; padding: 4px;">50-6 1/4</div></td></tr></tbody></table>
+
+14-00000-

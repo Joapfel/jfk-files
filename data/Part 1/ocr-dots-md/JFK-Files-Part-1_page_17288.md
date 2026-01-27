@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_17288.png
+
+Convert to Markdownopportunity, foreign official installations and personnel of intelligence interest operating in Mexico.
+
+c. To exploit operational leads through recruitments, debriefings and surveillances.
+
+**Raymond H. GERENDE'S activities:**
+
+d. To collect operational information pertaining to LIMERICK personnel and physical facilities through the use of photographic base houses.
+
+e. To collect operational information and identify operational leads pertaining to Station targets of opportunity.
+
+f. To provide operational support to Station operations, i.e., rent hotel rooms and apartments, and conduct counter-surveillances.
+
+**Staff Agent's activities:**
+
+g. To collect operational information and to identify operational leads pertaining to the LIMERICK target and Station targets of opportunity.
+
+## 6. Targets:
+
+Oliver G. SCANTLING - The primary target is, of course, the LIMERICK installation and personnel. However, SCANTLING devotes most of his time to following up LIFEAT leads which pertain to services provided the LIMERICK installation by individuals and firms, e.g. construction engineers, floor waxing firms, safe experts, furniture makers, interior decorators, etc. To an extent, these are considered targets of opportunity and it would be impossible to list specifically what future targets will be available. One specific target which SCANTLING is concerned with is the occupant of the LICOOL-6 apartment; however, LIEMPTY-3, whom SCANTLING handles, should more correctly be given credit for information produced on this target.
+
+Raymond H. GERENDE - LIMITED, LILYRIC and LICALLA all have as their target the LIMERICK installation and personnel, plus any local nationals and PRIMEERS who visit LIMERICK. LIENTRAP is concerned with targets of opportunity and follow-up investigations on operational leads obtained from other Station and Headquarters sources. The same targets apply to the LIJERSEY surveillance team as apply to LIENTRAP.
+
+## 7. Tasks:
+
+**Field Case Officer - Quicton N. CUSLER**
+
+a. Supervise and direct the operational activities of Raymond H. GERENDE, Oliver G. SCANTLING, and the staff agent.
+
+b. Provide guidance and maintain supervisory responsibility for all agents under GERENDE, SCANTLING and the staff agent.

@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_17353.png
+
+Convert to MarkdownGuillermo Oomes calls for Vega. Omes is the man who left a letter this morning, which was a letter Vega asked for. Their business seems to have to do with passport and visa details. Omes travels a lot and will call back when in town, possibly tomorrow.
+
+A number of calls show that Roberto Jorrin, the gate man, has a local girlfriend he sees quite often and who also visits him at the Embassy. Her name is not known.
+
+## 4 April 1963
+
+Elena Vasquez Omes and Teresa Proenza agreed to dine this evening.
+
+Teresa Proenza spoke to someone about a passage to Cuba for one Maritarita Calderon.
+
+Celia Pascual, telephone 25 10 32, describing herself as the sister of Sara, calls Teresa Proensa. Celia says she can take some things over to "Edith" when she goes (presumably to Cuba). Someone's mother is sick.
+
+(Comment: This could refer to Edith Buchaas, whose preoccupation with her mother has been noted in the past).
+
+## 5 April 1963
+
+Ascue in Havana calls Mariano Garcia. The connection is very poor and the Havana end is hard to understand. They mention travel approval for Rafael (?) Hernandez at telephone 35 ll 35 and mention something was arranged for Eduardo Rodriguez de la Vega.
+
+A woman identifying herself only as Socorro calls for Vega about a matter she says he already knows of. He is out.
+
+An American or Canadian calls long distance and says he plans to leave wherever he is, probably Los Angeles, Cal., via Western Airlines, for Mexico.
+
+Immediately after this call someone in the Embassy mentions reservations for Fred Brown from Canada.
+
+Sinobas calls Tomas Parentes, who is out. Sinobas leaves the message that "Ramon called". Parentes may be the former Governor of Yucatan. He has a plan to send money or passages to someone in Cuba. Sinobas is very anxious to help him and makes a lot of calls about how to do it. Parentes has told Sinobas he has a son working for Humberto Rosero at the Presidencia, indicating the son is at Sinobas's disposition. How much this is a matter of mere courtesy could not be determined).
+
+Arellano (the Bolivian deal) calls for Sinobas, who is cut, and then asks for Vega. He asks Vega if there is any news, and Vega tells him to drop by on 7 April.
+
+Miss Oomes Arias calls for Sinobas. He is out but will be right back.

@@ -1,0 +1,70 @@
+# JFK-Files-Part-1_page_16776.png
+
+Convert to Markdown14-0000
+
+CLASSIFIED MESSAGE
+
+ORIG: C. BUSTOS dd
+UNIT: WH/3/MEXICO
+EXT: 5940
+DATE: 11 MARCH 1963
+
+TO : MEXICO CITY
+
+FROM: DIRECTOR
+
+CONF: C/WH 5
+
+INFO : ADDP, C/C1, C/F1 2, S/C
+
+<table><tr><td colspan="2">ROUTING</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+75 MAR 53 53 428
+
+S1G CEN
+
+DEFERRED
+
+R ROUTINE
+
+CITE DIR : 24990
+
+TO : MEXI
+
+INFO : REYBAT LITENSOR
+
+RSP: MEXI 3575 (IN 75331)*
+
+IN ADDITION TO PRIORITY,
+REQUESTED BY SUBJECT, SUGGEST COS GIVE SUBJECT GENERAL CI DEFENSIVE
+C
+BRIEFING INCLUDING USE TECH DEVICES.
+
+END OF MESSAGE
+
+WH COMMENT: * LITENSOR has asked for briefing papers on trip.
+
+GI/00/Nº F. HUGHES (IN DRAFT)
+
+WI/COPS
+
+J. C. KING
+C/MID
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+SECRET
+
+GROUP 1
+Excluded from automatic demograding and declassification
+
+JOHN M. Witten
+C/WT/3
+
+AUTHENTICATING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

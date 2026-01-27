@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_17297.png
+
+Convert to MarkdownHRC-A-11257
+KAPOK-1472
+
+-14-
+
+Operational Equipment:
+
+Replacement of 2 LIJERSEY autos (MV-2148 & MV-2147) 6,000.00
+
+Replacement of SCANTLING's QP auto (MV-2041) 3,000.00
+
+Replacement of LIEBTIRAP (MV-2138) 2,500.00
+
+Purchase of 1 used auto for LIJERSEY surveillance 4,000.00
+
+Purchase of 3 two-way radios & one base radio for LIJERSEY team 2,500.00
+
+Repair and maintenance of cameras and radio equipment 500.00
+
+Purchase of new photo equipment and supplies 2,500.00
+
+Sub-total 21,000.00
+
+Real Estate:
+
+Rent, utilities and maintenance of following safe-houses: Per Annum
+
+* LIMITED 500.00
+*LICALLA 1,000.00
+*LILYRIC 1,000.00
+
+Sub-total 2,500.00
+
+Funds for procurement and servicing of additional safehouses, post office boxes, or renting automobiles 2,000.00
+
+Exchange commodities (required as goodwill gifts) 500.00
+
+Damages (broken contracts, "key" money to obtain locations in choice areas, rent deposits, etc.) 2,000.00
+
+Purchase of information, purchase of identification documents, payment of bribes, etc. 2,000.00
+
+TOTAL $ 95,380.00 U.S.
+
+*LIMITED and LICALLA rents are returned to the Station by LIMOUSINE and credited to Station miscellaneous receipts.

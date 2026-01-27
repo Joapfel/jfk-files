@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_17115.png
+
+Convert to MarkdownSECRET
+
+9 December 1959
+
+MEMORANDUM FOR: FI - Projects Branch
+
+SUBJECT : Purchase of One Automobile and Increase of LIEMPTY TVA by One
+
+1. According to the Project Renewal Request for LIEMPTY from the Mexico City Station, they plan to increase the LIEMPTY surveillance team during the coming year by two agents. To maintain the efficiency of an enlarged team, they will require one additional automobile.
+
+2. It is requested that the TVA for LIEMPTY be increased by one automobile and that the Station be authorized to purchase locally this automobile for use under the LIEMPTY Project.
+
+J.C. King
+C/WHD
+
+SECRET

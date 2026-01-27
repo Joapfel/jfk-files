@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_17585.png
+
+Convert to Markdown5 June 1959
+
+NEW MEMORANDUM FOR: CI/DA
+SUBJECT : Change of Cryptonyme for LIFEAT Indigenous Personnel
+
+The following agents under the LIFEAT Project have been assigned new cryptonyms as follows:
+
+| | |
+|:---|:---|
+| LIMENATER | OC 739 |
+| LINE TOME-1 | C-50449 |
+| LINE TOME-2 | C-74357 |
+| LINE TOME-3 | OC 6970 |
+| LIQUATION | C 7495 |
+| LILACE | C-30405 |
+| LINE TOME-4 | C-310'9 |
+| LIPSTICK-18 | C-33182 |
+| LIMESTONE-8 | C-45572 |
+| LIMESTONE-9 | C-50464 |
+| LIQUATION-2 | C-50455 |
+| LIPSTICK-35 | C-50157 |
+| LIPSTICK-37 | C-50750 |
+| LIQUATION-1 | C-38015 |
+| LIQUATION-3 | C-54056 |
+| LIMESTONE-6 | C-70322 |
+
+E. N. Tehlgren
+Chief, En/III
+
+Distribution:
+
+* Original (1 - Addressee)
+* Memo Chrono
+* Subject
+
+Wii/III/Mexico/M.Therrien:jlc

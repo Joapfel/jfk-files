@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_17090.png
+
+Convert to MarkdownSECRET
+
+MPS/BC/FI
+
+8 May 69
+
+PROJECT BRIEFING
+
+**PROJECT : LIEEmpty**
+
+WII - Mexico
+
+**ACTION : ADD/P approval of renewal (19 mos.)**
+
+1 Dec 67 - 30 Jun 69
+
+**PURPOSE :** An operational support project providing three basehouses and a mobile surveillance unit to monitor primarily the Soviet Embassy, its personnel and its visitors, by physical and photographic surveillance.
+
+**BACKGROUND:** The project covers three properties near the Soviet Embassy (two in front of the Embassy's sole entrance and one behind the garden) from which visual and photographic surveillance is carried out. It also covers a darkroom and a mobile photographic truck. Some of the project personnel are used at times for miscellaneous support tasks such as servicing postal boxes and for counter-surveillance and other protective services.
+
+**PROGRESS:** During the past year the project provided nearly all of the operational photographs and physical surveillance reports used in the Station's operations against the Soviet Embassy and its personnel. SB Division says, "This rather unique operation has unquestionably made a major contribution to the increasingly effective Soviet Operations program of the Mexico Station."
+
+The project produces primarily operational data and counterintelligence information. It provides leads, evidence of which Soviet officers have been in the Embassy and which ones have been away, who has used which car, who has been talking to whom or going out of the building with whom. (One photograph from this project was ✓ used in the Warren Commission Report.)
+
+**FUNDS :** $69,725 (19 mos.) (Programmed FY 69 $46,000)
+
+| | **FY 68 (7 mos.)** | **FY 69** |
+|---|---|---|
+| Salaries (9) and bonuses | $19,475 | $32,020 |
+| Vehicle maintenance | 1,165 | 2,000 |
+| Rent and utilities | 4,665 | 8,000 |
+| Equipment | 300 | 500 |
+| Operational expenses | 600 | 1,000 |
+| | **$26,205** | **$43,520** |
+
+SECRET

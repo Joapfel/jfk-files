@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_17517.png
+
+Convert to Markdowna. Wayne C. DRABAND has natural cover of a retired U.S. civil servant presently in Mexico with his wife, an employee of a U.S. government agency.
+
+b. LIEMBRACE-8 has natural cover of a retired U.S. businessman of many years residence in Mexico City.
+
+c. LIFEUD-22 has natural cover of a Cuban exile employed by a Mexican firm in Mexico City. He works regular hours at his cover employment and partakes in LIFEAT activities before and after work and during lunch hours.
+
+d. LIFEUD-23, the mother of LIFEUD-22, has natural cover of housekeeper for her son and performs her LIFEAT duties only in their home.
+
+## 12. Contact and Communications
+
+Daily contact is maintained between the Case Officer and the agents employed in the project. These contacts are made in a clandestine manner with varying patterns established for car pickups, foot contacts, and emergency meetings. Pre-arranged signals are employed in setting and accomplishing the meetings. When heavy or bulky material is to be passed, meetings are held at night. Entrance to the basehouses by other than the basehousekeepers is made only on the basis of strict necessity; such as need for equipment repair, installation for new line coverages, or line coverage cut off,
+
+Telephone contact concerning the project and with the agents is kept to a minimum. Pre-arranged open code is used for phone conversations between Case Officers and agents. Alternate and emergency communications have been arranged and are reviewed frequently by the personnel using them.
+
+These systems of contact and communication appear suitable for the project and function adequately from the security and utility standpoints. Locations and times of meetings are reviewed periodically and are changed frequently to decrease the possibility of arousing the suspicions of the residents of areas in which meetings are held.

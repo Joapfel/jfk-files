@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_17521.png
+
+160
+
+Christmas bonus (in accordance with local custom,
+this amounts to one month's pay) and gifts where
+necessary                                     4,100
+                                               $43,415
+
+b. Basehouse Rentals
+ANNEX III                        2,688
+ANNEX IV                         2,760
+ANNEX VI                         2,500
+ANNEX VII                        1,728
+ANNEX VIII                       3,072
+ANNEX IX                         2,880
+ANNEX to replace ANNEX I         2,000
+
+c. Basehouse utilities and expenses   2,000
+
+d. Allowance for customary rental increase when lease renewed .   1,200
+                                                                $20,828
+
+e. Purchase of new recorders and dial tape recorder
+for necessary replacement/modernization                  12,250
+
+PS COPY
+
+10-1-HMMA-19129
+
+50-6-32/1

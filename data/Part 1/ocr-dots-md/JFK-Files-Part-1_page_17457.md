@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_17457.png
+
+Convert to Markdown14-0000
+
+<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 20 JAN 62</td><td><table><tr><th colspan="3">ROUTING</th></tr><tr><td>1</td><td>4</td><td rowspan="3" style="vertical-align: top;"></td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table></td></tr><tr><td colspan="2">TO : DIRECTOR</td></tr><tr><td colspan="2">FROM : MEXICO CITY</td></tr><tr><td>ACTION : C/WH 5</td><td>JAN 20 0834Z 62</td></tr><tr><td>INFO : DCI, D/DCI, DDP, S/C 2*</td><td>PRIORITY</td></tr><tr><td colspan="2">IN 14775</td></tr></table>
+
+PRITY DIR CITE MEXI 9914
+REFS A DIR 36178 OUT 91668 ) **
+B MEXI 9913 (IN 14761) ***
+
+C/S Comment: ** Hqs. asks if fabricated portions contain elements which Amb. Portuondo could deny or prove false
+
+**RYBAT**
+
+1. SEE REF B FOR DETAIL AND PARTIAL ANSWER TO PARA ONE OF REF A. AMBASSADOR, IN 12 JAN MEETING WITH LITEMPO-2, DID STATE THAT COS COULD PROVIDE TAPES OF TRANSCRIPTS SHOULD THEY BE NEEDED. 'COS LATER COVERED, HOWEVER, BY STATING TO LITEMPO-2 THAT HE THOUGHT SOME TAPES HAD BEEN ERASED." THIS STALL WAS STRENGTHENED BY FIRM STATEMENT THAT COLOMBIAN STUDENT TAPE WOULD BE AVAILABLE (IT HAS SINCE BEEN DELIVERED TO LITEMPO-2). AS INDICATED IN REF B, STATION WILL FIND PRETEXT NOT DELIVERED TAPES OTHER THAN AUTHENTIC COLOMBIAN.
+
+2. RE PARA 2 REF A: PORTUONDO CAN CERTAINLY DENY ANY OR ALL OF MATERIALS, AUTHENTIC OR FABRICATED. ONLY WAY HE CAN PROVE REPEAT PROVE FALSITY IS BY PROVING HIS PRESENCE AT PLACE OTHER THAN EMBASSY AT TIME OF CONVERSATION. THIS IMPOSSIBLE SINCE HE THERE.
+
+END OF MESSAGE
+
+c/s COMMENT : *DISSEMINATION PER ORIGINATOR.
+
+*** Transcript of Amb. Portuondo's conversation with the Colombians. She recently returned to the station by Hqs.
+
+SECRET
+
+REPRODUCTION BY OTHER THAN THE ISSUED COPY IS PROHIBITED.
+
+Copy No.

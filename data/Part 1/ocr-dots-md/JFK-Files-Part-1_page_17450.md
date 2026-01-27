@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_17450.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+public. I can think of no better incentive to Lopes Mateo's to break relations with Cuba than possibility Mexican public might eventually become aware of extent to which Mexico has tolerated Cuban intervention in spite of its vaunted devotion to the doctrine of non-intervention.
+
+6. Finally I wish to say that I realise all of these maneuvers involve some risk to U.S. but I believe resurgence of Communist influence in last two months requires unusual counteraction on our part.
+
+7. DIAZ Ordaa has returned material to CAS for safe keeping and it is now in our possession. He claims he made no copies and we believe this probably true.
+
+SECRET

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_16895.png
+
+Convert to MarkdownSECRET
+
+6 March 1970
+
+MEMORANDUM FOR: SB/RMO
+VIA : SB/X/WH
+SUBJECT : Evaluation of Product Supplied to SB/Division Through LIEMPTY and LIENVOY Operations
+
+1. It is requested that an evaluation of the product supplied by the LIEMPTY photographic surveillance operation targeted against the Soviet Embassy, and the LIENVOY joint telephone tap operations targeted against the Soviet, Polish, and Czech Embassies be submitted to this office. These evaluations will be presented with the current Projects LIEMPTY and LIENVOY renewals; they are also desired for use in operational discussions with Mexico City Station.
+
+2. As a guide, whenever possible, these evaluations should relate through the use of overall statistics and/or specific instances in which the product has been deemed useful by the SB/Division.
+
+John C. Murray
+Chief, WH/1
+
+Distribution:
+
+Orig. & 1 - SB/RMO
+1 - SB/X/WH
+1 - WH/1/Chrono
+1 - LIEMPTY Project✓
+1 - LIENVOY Project

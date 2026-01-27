@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_17004.png
+
+Convert to Markdownd. In brief, a replacement of the former physical surveillance leader is indicated, but a more mature and competent case officer is needed.
+
+4. Plan a, recruitment in the U. S., should not be dismissed from consideration. It would take longer than the other plan but might be beneficial in enabling the new agents to be trained in the U. S. They would then have to spend time getting into Mexico and familiarize themselves with operations and operational climate there. This plan, however, presents a problem as to who is to do the recruiting and training in the U. S. SR Division has offered to be of whatever assistance they can, but there is no indication they could do any better at this than WID.
+
+5. It may be of interest to you to know that the SR representatives said the best work done anywhere in the world on the BOMORNING case, which has wide international ramifications, was done by LIKAYAK-2 in Mexico.
+
+WH/FI
+
+Distribution:
+
+Orig & 1 cc - C/WH
+2 cc - WH/FI

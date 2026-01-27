@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_17025.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR: Associate Deputy Director
+For Operations
+
+SUBJECT : Project KDFACTOR - Amendment and Termination Request.
+
+1. The KDFACTOR Project (until 1970 encrypted as the LIEMPTY Project) was initially approved in 1958 to provide financial and materiel support for visual and photographic surveillance operations targeted against the Soviet Embassy in Mexico City. In June 1972 the project supported five agents and two basehouse surveillance sites.
+
+2. The KDFACTOR Project was approved by the ADDO in the amount of $19,000 for FY-72 and $20,000 for FY-73. Per DIRECTOR 285255, dated 30 June 1972, the ADDO approved Amendment No. 1 to the KDFACTOR Project in the amount of $9,844 for FY-72 to provide for costs of agent terminations.
+
+3. The decision to terminate all agents and facilities under the KDFACTOR Project was based on a security review of the project activities which indicated that the VWBLANKET principal knew the basic details of the KDFACTOR operations, including the target, the location of the surveillance sites, and probably the true names and former cryptonyms of the agents covered by the project.
+
+4. The costs of terminating all the agents in the KDFACTOR Project amounted to $15,573.00 which was considerably more than had been initially estimated when Amendment No. 1 for FY-72 was requested and approved. The total amount charged to the KDFACTOR Project in FY-72 was $36,090 which is $7,246 over the project's authorization of $28,844. The average was incurred in terminating agents and facilities associated with the KDFACTOR Project; the effective date of all terminations was 30 June 1972.
+
+SECRET
+
+E 2 IMPDET CL BY 6/5/72
+
+<table>
+  <tr>
+    <td>2</td>
+  </tr>
+</table>
+
+14-00000
+
+<table>
+   <tr>
+    <td>
+     E 2 IMPDET CL BY 6/5/72
+    </td>
+   </tr>
+  </table>

@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_16854.png
+
+Convert to Markdown14-0000
+
+<table>
+   <tr>
+    <td rowspan="2">CONTRIBUTION OF<br/>DISPATCH</td>
+    <td>CLASSIFICATION</td>
+    <td>NET WORTHLY, ORGANIZED</td>
+   </tr>
+   <tr>
+    <td>S-T-C-R-L-T</td>
+    <td>KENT 11016</td>
+   </tr>
+  </table>
+
+4. When monthly rents are paid to KOVAULT/3, 5 and 9 and KNOCTOR/2, they are entered into the appropriate project and carried in a KOBABBY memorandum Account. When KOVABBY's refund is received, it is recorded as a credit to expense pro-rated between KOVAULT and KNOCTOR, and the memo Account is cleared.
+
+5. The vouchers recording expense credits from KOVAULT rent refunds for FY 1971 (with one more refund to be made) are: You. 10634, 23 Oct 70 (July-Sept); You. 11033, 18 Jan 71 (Oct-Dec); and You. 11575, 19 May 71 (Jan-Apr).
+
+6. It is requested that recording of these vouchers at Headquarters be reviewed, since Station's analysis of the Obligation Status Reports figures as of 31 May 1971 indicate that no such expense credit has been recorded for KOVAULT or KNOCTOR in S.O.C. 2353 or any other S.O.C. for You. 10624 and You. 11025, both of which should have shown up by the 31 May OSR.
+
+7. If there is some particular reason why the KOVAULT refund of MEXI-O1 rents has not been credited to expense, or if Headquarters wishes the Station to handle the MEXI-O1 rent accounting in another manner, please advise.
+
+Norris A. DESSIMOFF

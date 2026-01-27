@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_17571.png
+
+Convert to MarkdownSECRET / KAPCK
+
+-15-
+
+made only in great emergencies.
+
+b. Telephone contact concerning the project and with the agents is kept to a minimum. Pre-arranged open code is used for phone conversations between Case Officers and agents.
+
+c. Alternate and emergency signals have been arranged and are reviewed frequently by the personnel using them.
+
+d. These systems of contact and communication appear suitable for the project and function adequately from a security viewpoint. Locations and times of meetings are reviewed periodically and are changed frequently to decrease the possibility of discovery.
+
+## 13. Control and Motivation
+
+Control and motivation are primarily based on two factors: ideology and financial gain. A secondary factor is the fear of reprisal from the local police should discovery occur.
+
+## 14. Training
+
+Initial training of new personnel and refresher training for experienced agents is handled primarily by the outside case officer, David M. WILSTED. Minor repair and maintenance of equipment as well as emergency security procedures are stressed and continually reviewed with the agents.
+
+## 15. Equipment and Support
+
+It is believed that much of the technical equipment upon which the continued successful collection of LIFEAT material depends will require replacement in the near future. The largest percentage of this equipment has been in nearly continuous operation from the initiation of the project in January 1951 and much of this equipment is no longer being manufactured. When present limited commercial stocks of replacement parts are exhausted, new units will be required for LIFEAT.
+
+## 16. Timetable
+
+LIFEAT has been in almost constant operation since its inception in January 1951 and it is planned to continue it indefinitely.
+
+SECRET / KAPCK

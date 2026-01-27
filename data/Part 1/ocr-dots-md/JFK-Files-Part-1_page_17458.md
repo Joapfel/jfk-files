@@ -1,0 +1,80 @@
+# JFK-Files-Part-1_page_17458.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>DATE : 20 JAN 62</td>
+    <td>TO : DIRECTOR</td>
+    <td></td>
+    <td>FROM : MEXICO CITY</td>
+    <td></td>
+    <td>ACTION: C/WH 5</td>
+    <td>INFO : DCI, D/DCI, DDP, S/C 2</td>
+  </tr>
+</table>
+
+CLASSIFIED MESSAGE
+
+<table>
+  <thead>
+    <tr>
+      <th colspan="3">ROUTING</th>
+    </tr>
+  </thead>
+  <tbody>
+    <tr>
+      <td>1</td>
+      <td rowspan="3">Mk</td>
+      <td>4</td>
+    </tr>
+    <tr>
+      <td>2</td>
+      <td>5</td>
+    </tr>
+    <tr>
+      <td>3</td>
+      <td>6</td>
+    </tr>
+    <tr>
+      <td colspan="3">JAN 20 0802Z 62</td>
+    </tr>
+    <tr>
+      <td colspan="3">PRIORITY</td>
+    </tr>
+    <tr>
+      <td colspan="3">IN 14761</td>
+    </tr>
+  </tbody>
+</table>
+
+** DIR CITE MEXI 9913
+
+R'BAT
+
+REFS A MEXI 9855 (N12549)
+B DIR 35831 (out 9c998)
+
+C/S Comment: * Ambassador Mann informed LITEMPO/2 (2) that State Department had certain information on Cuban intervention in Mexican internal affairs.
+
+1. AMBASSADOR SHOULD HAVE SAID "TRANSCRIPTS" INSTEAD "TAPES"
+   IN BEGINNING SENTENCE PARA TWO A OF REF A. TRANSCRIPT OF PORTUONDO
+   CONVERSATION WITH COLOMBIANS IS ACCURATE RESUME OF AUTHENTIC TAPE
+   RECENTLY RETURNED TO STATION BY HQS. THIS TAPE WILL BE PASSED
+   2
+   LITEMPO-2 AFTERNOON 19 JAN. SECOND TRANSCRIPT REFERRED TO BY AMBASSA-
+   DDOR. SAME SUB PARAGRAPH WAS FABRICATED BY STATION AND BASED ON STATION
+   KNOWLEDGE OF ACTUAL VISIT TO PORTUONDO BY POLITIECHNIC STUDENT.
+   NO TAPE EXTANT NOR HAS EXISTED OF THIS TRANSCRIPT. CONTENT THIS
+   TRANSCRIPT NOT PERTINENT EXCEPT FOR INCRIMINATING STATEMENT
+   QUOTED BY AMBASSADOR CONCERNING PAYMENT TO STUDENTS.
+
+2. THE "GENUINE" DOCUMENT MENTIONED BY AMBASSADOR IN PARA TWO B OF REF A IS STATION FABRICATION. DURING MONTH OF AUGUST 1961 LIFIG PROVIDED STATION WITH PRENSA LATINA PERSONAL FILE OF ANGEL BOAN, THEN MEXI DIRECTOR GENERAL. WHEN FILE WAS PHOTOGRAPHED FOR MEXICAN GOVERNMENT STATION INSERTED PHOTO OF FAKE MEMORANDUM DESCRIBED IN REF A. PHOTOS OF FILE, INCLUDING FAB-
+
+<table>
+  <tr>
+    <td>SECRET</td>
+  </tr>
+</table>
+
+REPRODUCTION BY OTHER THAN THE原ILLINOIS OFFICE IS PROHIBITED.
+
+Copy r.o.

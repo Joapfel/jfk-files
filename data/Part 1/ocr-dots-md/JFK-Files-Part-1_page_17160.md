@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_17160.png
+
+Convert to MarkdownSECRET/MBAT
+
+C. Personnel
+
+1. As noted above, LIEMPTY-6 was terminated effective 31 May 1968 in connection with the closing of the LIMITED basehouse. Termination was completely amicable, and LIEMPTY- received a generous termination bonus.
+
+2. LIEMPTY-26 was hired as of 1 May 1968 to help LILYRIC personnel maintain their expanded coverage. No security factor is involved, as LIEMPTY-26 is part of the same family as the rest of the LILYRIC personnel. LIEMPTY-26 had been granted an OA in 1965 and had been used sporadically since that time.
+
+3. An amendment to GERENDE's contract has been requested. This amendment would guarantee GERENDE termination benefits equal to those provided for by Mexican law, in the event of GERENDE's termination by WOFIRM. The amendment would also provide GERENDE with a graduated scale of benefits should he decide to resign. See HMM-3312, 27 January 1969, for details.
+
+3. EFFECTIVENESS
+
+Throughout the period under review, each operational component of Project LIEMPTY contributed actively and concretely to the fulfillment of the operational tasks levied on Station Mexico City. High-lights of the accomplishments and the achievements of each component are cited below:
+
+A. Fixed Basehouses
+
+1. LIMITED
+
+Until its termination, the LIMITED installation provided daily photographic coverage and physical surveillance of the main gate of the FISTEAL installation. During the seven-month period from 1 November 1967 through 31 May 1968, the LIMITED base provided 911 frames of operational photographs. In addition, the LIMITED base provided over 1,000 pages of physical surveillance reports.
+
+2. LILYRIC
+
+During the Project year under review, the LILYRIC installation provided extensive photographic and fixed visual surveillance of the front of the FISTEAL installation. The LILYRIC base-house provided the majority of the operational photographs produced by the LIEMPTY Project. During the 13-month period from 1 November 1967 through 31 December 1968, the LILYRIC basehouse provided 15,331 operational photographs and several
+
+SECRET/MBAT

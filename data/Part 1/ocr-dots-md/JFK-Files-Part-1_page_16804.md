@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_16804.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+<table><tr><td>DATE : 30 OCT 62</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION: C/WH 5</td></tr><tr><td>INFO : ADDP, C/CI, D/OL 2, S/C 2</td></tr></table>
+
+<table><tr><td colspan="2">ROUTING</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+OCT 30 0642Z 62
+
+Routine
+
+IN 48632
+
+DIR CITE MEXI 2372
+RYBAT/LIEHVOY (ALSO RCVD 207)
+
+1. REQUEST TWO REVERE 224 TAPE RECORDERS WITH "Y" TYPE CORDS AND TWO NEW-TYPE IMPULSE RECORDERS MODEL B-1C WITH CONNECTIONS IN REAR BE SENT MEXICO SOONEST.
+
+2. NEED EQUIPMENT TO DETERMINE MODIFICATIONS NECESSARY FOR NEW LIENVOY INSTALLATION.
+
+3. WILL ORDER REMAINING EQUIPMENT WHEN NECESSARY MODIFICATIONS ARE DETERMINED AND WHAT ADDITIONAL EQUIPMENT IS NEEDED.
+
+END OF MESSAGE
+
+<table><tr><td>SECRET</td></tr></table>
+
+GROUP I
+Excluded from Automatic
+Downgrading and
+Declassification
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_17102.png
+
+Convert to MarkdownSECRET
+
+DDP/PG/FI
+
+9 Feb 66
+
+PROJECT BRIEFING
+
+PROJECT: LIEMPTY
+WH - Mexico
+
+ACTION : ADD/P approval of renewal
+1 Dec 65 - 30 Nov 66
+
+PURPOSE: To provide support for mobile and stationary photographic surveillance of the Soviet Embassy and a dispatching base for a physical surveillance team.
+
+PROGRESS: Assets included under the project include three base-houses which provide front and rear views of the Soviet Embassy, and a panel truck equipped for spot photo coverage. Raymond H. GERENDE (p), principal agent, meets the basehouse keepers regularly, maintains regular contact with the mobile photo unit and with the developing and processing base. He also performs many other support functions.
+
+The photographs from all these operations have been of value to the Station in operational planning, for identification by surveillance teams, for mug books, and for Headquarters permanent files. The Station believes that this operation is essential to the fulfillment of the overall operational program levied on the Station by the RMD.
+
+FUNDS : $41,500 $25,520 in FY 66 $15,980 in FY 67
+
+(Programmed for $50,000 in FY 66)
+
+Salaries
+
+| | |
+|:---|---:|
+| GERENDE | $ 7,000 |
+| Basehouse keepers (3) | 10,100 |
+| Mobile unit operators (2) | 7,000 |
+| Lab personnel (2) | 3,600 |
+| Cut-out | 2,200 |
+| Vehicle maintenance (2) | 2,000 |
+| Rent and utilities | 7,600 |
+| Equipment maintenance | 1,000 |
+| Miscellaneous ops expenses | 1,000 |
+
+SECRET

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_16906.png
+
+Convert to Markdown21 October, 1969 (Tuesday)
+
+To: Gerome
+From: LILYMIC Contact Report
+Subject:
+
+time place: 0745
+
+Operations 1: L-13 had nothing special to report.
+
+Production: fiver rolls Y-3205, 06, 07, 08 09; logs for 14-20 October.

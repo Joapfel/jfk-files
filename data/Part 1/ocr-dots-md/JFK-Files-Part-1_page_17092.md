@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_17092.png
+
+Convert to MarkdownS M 3-358
+
+MEMORANDUM FOR: Assistant Deputy Director for Plans
+
+THROUGH: MPS/BG
+
+SUBJECT: Project LIEMPTY
+
+1. WH Division requests renewal of LIEMPTY for the 19-month period 1 December 1967 through 30 June 1969 in the amount of $69,725. While this represents a slight reduction on a pro rata basis from the $45,000 for which LIEMPTY was approved for the 12-month period starting 1 December 1966, it reflects a proportionately modest increase in cost for the 19-month renewal period over the estimated total disbursement of $40,130 for the past project year. This will provide for small salary increases to meet the rising cost of living for certain of the agents involved in the project who have not received raises in some time as well as for slightly higher rental fees for the various basehouses. The project, now in its tenth year, is designed primarily to provide for the collection of operational information on the Soviet Embassy in Mexico City, including the identification and movements of its personnel and visitors. To this end, LIEMPTY provides for the maintenance and exploitation of three basehouses for fixed visual and photographic surveillance of the Soviet Embassy and a mobile basehouse in the form of a panel truck used for mobile photography against the Polish Embassy, leaders and meeting sites of local communist parties, and other targets of opportunity. An important corollary objective of LIEMPTY is operational support in the form of countersurveillance for Agency personnel and operations, including those of other bases and stations as the needs and requirements of the Mexico Station permit. The funds requested include $43,520 for the period 1 December 1967 through 30 November 1968 and an additional $26,205 to cover the period 1 December 1968 through 30 June 1969. The latter funds are asked for in a supplemental request to put the project on a fiscal year basis.
+
+2. A long-term contract agent and eight other support agents are involved in the management and operation of the

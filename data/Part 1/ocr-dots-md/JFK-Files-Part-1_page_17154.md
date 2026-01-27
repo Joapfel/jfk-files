@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_17154.png
+
+Convert to Markdown<table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>Date</th><th>12 SEP 1969</th></tr></thead><tbody><tr><td>CS COPY</td><td>HMMW - 17472</td><td>9 September 1969</td></tr><tr><td></td><td>CLASSIFICATION</td><td>NCO FLD NUMBER</td><td>✓ 50-6-74/1</td></tr><tr><td></td><td>S E C R E T</td><td colspan="2">ORIGINATING</td></tr><tr><td rowspan="8">RI - 1<br/>CHRONO -<br/>AN X<br/>AB X<br/>IN<br/>PS<br/>BX<br/>DESMFD<br/>PT<br/>WH I</td><td>OFFICE<br/>WH/1</td><td>J. J. Barry /<br/>nks</td><td>EXT<br/>6954</td></tr><tr><td>OFFICE SYMBOL</td><td>DATE</td><td colspan="2">COORDINATING</td></tr><tr><td></td><td></td><td colspan="2"></td></tr><tr><td></td><td></td><td colspan="2"></td></tr><tr><td></td><td></td><td colspan="2"></td></tr><tr><td></td><td></td><td colspan="2"></td></tr><tr><td></td><td></td><td colspan="2">RELEASEING</td></tr><tr><td></td><td>OFFICE SYMBOL<br/>AC/WH/1</td><td>DATE<br/>10 Sept</td><td>OFFICER'S SIGNATURE<br/>Chas M Baran<br/>Ernest J. Tsikerdanos</td></tr></tbody></table>
+
+DISPATCH
+
+14-00000

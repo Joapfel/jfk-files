@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_17127.png
+
+Convert to MarkdownTravel:
+
+300 PCS TDY to Headquarters for training (including 648 948 14,368 $12 per day)
+
+A total of $14,470 was included under the LEXITY Project approval
+request submitted on 24 November 1958 for a Staff Agent; therefore, no
+additional funds are required.
+
+SECRET
+
+SECRET

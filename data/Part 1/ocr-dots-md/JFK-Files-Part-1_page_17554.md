@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_17554.png
+
+Convert to MarkdownSECRET
+
+- J -
+
+9. Information received from the LITINS, LIVIN, and LIVERICK phases is supplied to the SS and SR Cess Office at the Station for exploitation of data and extracting of pertinent background information. At headquarters there is close coordination between SS, SR and WH on the dissemination of positive reports and the operational exploitation of CS/CI loads. C/EX stated on 18 July 1960 that the Czech desk fully endorses the removal of the LIFAT Project and that they have found the information obtained from this project to be especially useful in following the movements of persons of interest and the activity and identification of target personnel. Please see attached correspondence from EX/P and SR which express their support of this project removal.
+
+10. Project BESHOTH, which supports Woodward D. CALDOF, who processes the LIENIS team, is coordinated with Project LIFAT.
+
+11. Emergency recontact instructions will be sent along with the agenda under this project if a situation such as might require such instructions threatens Mexico.
+
+12. It is requested that the LIENJI Project be removed on the basis of this recommendation and the attached release and removal request prepared by the Mexico City station.
+
+COORDINATION:
+
+Ted P. Molzen, AC/WWJ
+
+C. F. Andersen, WMD/Pro/OPicer
+
+Approved for Transmittal:
+
+J. C. King, Chief/AMD
+
+Approved:
+
+J. C. King, CHC/68RD
+
+Date
+
+Attachments:
+* Station Project Release and Removal Request
+* Folder with past removals
+* Memorandum from SR Division
+* Memorandum from EAC
+* Form 680 (in quad)
+* Envelopes containing three memos
+
+SECRET
+
+5863T
+
+14.00000

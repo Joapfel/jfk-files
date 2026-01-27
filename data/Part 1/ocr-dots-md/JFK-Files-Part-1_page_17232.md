@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_17232.png
+
+Convert to MarkdownSECRET/~~K~~
+
+# Review of Project LIEMPTY
+(For the Purpose of Project Renewal)
+
+## I. CURRENT OBJECTIVES AND PRODUCTION
+
+### A. Oliver G. SCANTLING Segment (discussed in relation to project objectives):
+
+1. "To collect operational information pertaining to LIMERICK personnel and physical facilities." SCANTLING has continued (See the last two Project Reviews forwarded as attachments to HMMA-14093, 13 November 1959, and HMMA-15979, 18 November 1960) to provide worthwhile information pertaining to this objective.
+
+a. During the past year SCANTLING has continued to be used to follow up leads produced by LIENVOY. For example, operational information recently indicated that the LIMERICK target was using the services of a Mexico City firm to repair safes. Through discreet investigation SCANTLING was able to identify the firm, its location and the name of the owner in the event that we later wished to make an approach to him or to exploit this information in another manner.
+
+b. SCANTLING is still the Station's primary source for keeping current records on the residences of the many LIMERICK personnel in Mexico City. This is accomplished in several ways; the most important being SCANTLING's follow up of all LIENVOY leads which indicate the LIMERICK people are interested in renting a given piece of property. (See previous project renewal request for additional details).
+
+2. "To collect operational information pertaining to other targets of opportunity, foreign official installations and personnel of intelligence interest operating in Mexico." SCANTLING is very useful for collecting information on other Station targets:
+
+SECRET/~~K~~
+
+CS COPY
+SC-16-1/1
+
+~~K~~
+
+13 Nov 1959
+
+13-00000

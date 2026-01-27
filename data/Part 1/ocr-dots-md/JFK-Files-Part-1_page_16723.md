@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_16723.png
+
+Convert to Markdown14-0000
+
+# MEXICO
+
+12 December 1963
+
+## TELESCORRS OAS POLICIES, CUBA EXCLUSION
+
+Havana in English to Europe 2020 GHT 11 December 1963--E
+
+(Trot) Mexico City--Mexican Foreign Minister Manuel Tello criticized the Organization of American States, saying that it is in a state of crisis. Tello also criticized the exclusion of Cuba from that organization. In the interview with the Mexican daily NOVEMBRES, Foreign Minister Tello said that Cuba's exclusion from the OAS is not in conformity with the OAS charter. He said that the charter does not contemplate the exclusion of any member state.
+
+Referring to the present international situation of the OAS, Tello emphasized that an organization which does not base itself on friendly cooperation, and tolerance is likely to face a crisis. The Mexican foreign minister stated that in the present state of the OAS, the elements or bases for the organization to strengthen democracy do not exist. He pointed out that contrary to agreements adopted at Chapultepec and Bogota, almost all the present Latin American representatives to the OAS are also their countries' ambassadors in Washington.
+
+## JAUREGUI INTERCEDES FOR BOLIVIA HOSTAGES
+
+Lima AFP in Spanish 2357 GMT 11 December 1963--P OFFICIAL USE ONLY)
+
+(Excerpts) Mexico City--Arturo Jauregui, secretary general of the Regional Inter-American Workers Organization (Organizacion Regional Interamericana de Trabajadores--ORIT), sent a personal request to Bolivian Vice President Juno Lechin on behalf of the foreigners held at Catavi as hostages.
+
+The cable says: "I appeal to your labor union principles in the name of
+the 28 million ORIT member workers in favor of the hostages. These
+persons are well known as democrats working in favor of the spirit of
+humanity and social economic progress. The Bolivian revolution," the
+message adds, "demands that its prestige and vindication be held high."
+
+DIPLOMAT'S RETURN--Sales Ambassador to Mexico Fernando Bernoulli returned to Mexico after several months' absence. (Mexico City Radioخiminora Conerciales Spanish 2030 GHT 10 December 1963--P)
+
+PUERBA BUTCHERY--The Puebla municipal budget for 1964 shows an increase of 5.1 million pesos over that of the current year. (Mexico City Media-Cafetera Conerciales Spanish 2030 GHT 10 December 1963--P)

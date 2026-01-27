@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_17359.png
+
+Convert to MarkdownPRODUCTION FOR JANUARY 1953
+
+| MEXI's | HMM's | HMMA's |
+|---|---|---|
+| MEXI 3244 | HMM 6909 | HMMA 20494 |
+| MEXI 3230 (HMM 6977) | HMM 6911 | HMMA 20508 |
+| MEXI 3053 | HMM 6915 | HMMA 20511 |
+| MEXI 3041 (HMM 6918) | HMM 6916 | HMMA 20564 |
+| MEXI 3031 (HMM 6917) | HMM 6933 |  |
+| MEXI 3020 (HMM 6913) | HMM 6952 |  |
+| MEXI 3014 (HMM 6910) | HMM 6954 |  |
+|  | HMM 6957 |  |
+|  | HMM 6961 |  |
+|  | HMM 6962 |  |
+|  | HMM 6958 |  |
+|  | HMM 6971 |  |
+
+7 + 12 + 4 = 23

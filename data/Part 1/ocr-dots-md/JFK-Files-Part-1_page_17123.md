@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_17123.png
+
+Convert to MarkdownSECRET
+
+6. I recommend approval of the project and the transfer of the contract agents as outlined above. The Division is requested to take cognizance of the suggestions of the CI Staff and FI/OPS in the paragraphs above relative to the security and the overall direction of the surveillance activities to make them more efficient.
+
+BENJAMIN A. G. FULLER II
+Chief
+FI/OPS Division
+
+W. LLOYD GEORGE
+Chief
+Foreign Intelligence
+
+Approved: Richard Helms COP-DD/P
+
+10.06.1959
+
+Date
+
+Attachments:
+
+Project Outline LIEMPTY
+Addendum to Project Outline
+
+Staff Coordination:
+For C/CI Staff -s/R. Brown
+For C/FI/OPS -s/V. Hoffmann
+C/CCD/MC -s/F. Youngblood
+
+SECRET

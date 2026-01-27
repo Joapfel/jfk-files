@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_17049.png
+
+Convert to MarkdownSECRET
+
+26 MAY 1970
+
+MEMORANDUM FOR: Chief, Western Hemisphere Division
+
+SUBJECT : FI Project LIEMPTY
+FY 1970 Amendment
+FY 1971 Renewal
+
+REFERENCE : C/FI Memorandum for ADD/P, dated
+19 May 1970, Subject: "Renewal of
+Project LIEMPTY."
+
+1. On 22 May 1970 I approved subject action for the amounts requested with the understanding that the termination payments to GERENDE and his wife will be on a monthly basis as described in paragraph 4 of referent.
+
+2. Messrs John C. Murray and Charles M. Bounds attended the project meeting.
+
+Cord Meyer, Jr.
+Assistant Deputy Director for Plans
+
+SECRET

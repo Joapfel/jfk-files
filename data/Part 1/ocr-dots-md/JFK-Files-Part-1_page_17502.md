@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_17502.png
+
+Convert to MarkdownPROJECT LIFETAT
+PROJECT REVIEW
+
+I. Product of the Project
+
+A. Soviet Coverage
+
+As noted in last year's Project LIFEAT renewal request, LIFEAT coverage of the official Soviet Installation was discontinued on 22 June 1960 when the parallel liaison project LIENVOY assumed coverage of this target. In early January 1962 LIFEAT undertook coverage of the home phones of three of the most active Soviet Intelligence officers. This was in response to the continuing Station CI program which includes the monitoring of Soviet contacts, and the guidance received from KUDESK Staff at the time of the last LIFEAT renewal. As of this date, this coverage has not been active for sufficient time to fully evaluate its usefulness. However, It is believed that such coverage has the potential to add materially to the Station's effort in the CI field. Although not designed to provide positive intelligence, some by-product of this type has been obtained. Samples are as follows:
+
+HMM-6364, 8 May 1962 (Briefing of Mexican Pro-Marxist Journalist by Soviet Embassy)
+
+HMM-6382, 15 May 1962 (Mexican Traveller to the USSR)
+
+HMM-6376, 11 May 1962 (Refutation of Rumors that Soviet Cosmonaut TITOV will visit Mexico)
+
+B. Polish Embassy
+
+LIFEAT has remained the primary source of information on this target and the only successful, continuing penetration of the target. The information provided to the Interested Case Officer has in the past been described as "unique" and "invaluable". This description holds with equal emphasis for the present as well as the past. Selective examples of the valuable positive intelligence product of this coverage are:
+
+HMMA-17448, 28 July 1961 (Henryk POTASZ)
+
+HMMA-17647, (LIFEAT/LAURICLE). 25 August 1961.
+
+HMMA-17694, 1 September 1961 (Irena Halina ZORAWSKA)
+
+HMMA-17876, 29 September 1961 (Movement of Polish Nationals)

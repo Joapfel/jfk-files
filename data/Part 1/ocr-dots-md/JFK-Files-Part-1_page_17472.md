@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_17472.png
+
+Convert to MarkdownRETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+15 October 1964
+
+MEMORANDUM
+
+SUBJECT: <SECRET> Operation <SECRET>
+Briefing in Guatemala of Chief of State Peralta
+
+1. The briefing was held in a small luxurious government conference room on the afternoon of Friday 6 October 1964, lasting about 2 1/2 hours. (Chief of state Colonel Peralta, Minister of Government Colonel Ferrano and Intelligence Chief Colonel Porras attended for the Guatemalan.)
+Two CIA OFFICERS WERE PRESENT
+
+2. At the request of the <SECRET> I prefaced the operational briefing with a brief description of how the U.S. Intelligence community operates, of the role of CIA, of the need for compartmentation and security, and specifically of how the foregoing considerations make it imperative for the <GUATEMALA> to adopt security precautions which will ensure that the information we provide and the joint operations we undertake are compartmented within the <GUATEMALA> government (and, in fact, discussed by the <GUATEMALA> government exclusively with our representatives in the field).
+
+3. Following the introductory remarks outlined above, I briefed the group on the DGI structure, the DGI operational techniques, and specifically on DGI aims and operations in Guatemala. The president lent close attention throughout the briefing and examined the exhibits closely, including the DGI intelligence requirements for Guatemala and the Salvadoran "Caso Zapoto" file.
+
+4. After the foregoing exposition, I explained our aims in exploiting the information <SECRET>. In this connection I asked for close cooperation and coordination of activities, promising that we shall do our utmost and making reference to our travel lists and watch list. 24
+
+10/17/64
+
+<table><tr><td>14-00000</td></tr></table>

@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_17084.png
+
+Convert to MarkdownSECRET
+
+26. jüli 1969
+
+MEMORANDUM FOR: Deputy Director for Plans
+SUBJECT : LIEMPTY Project Renewal (FY 1970)
+
+1. Renewal is requested for the LIEMPTY Project for the period 1 July 1969 through 30 June 1970 (FY 1970) in the amount of $38,970. Funds are available in WH Division. $45,000 was programmed for FY 1970.
+
+2. LIEMPTY is a project supporting Soviet operations of the Mexico City Station. It provides for two basehouses, a photo surveillance vehicle, and personnel for photographic and visual surveillance of the Soviet Embassy. Presently, two fixed surveillance points near the Embassy provide the location from which the photographs are taken and observers are stationed. One basehouse is adjacent to the rear of the Embassy, where Soviet officials meet, play and work. The other basehouse is across the street from the front of the Embassy and gives a direct view of every person entering or leaving. There is also a mobile photographic unit (a VW van) which is now used in support of all Mexico City Station operations and in conjunction with the LIEMBRACE surveillance team (used primarily against Soviet targets). Raymond H. GERENDE, an indigenous contract agent, is the principal agent of the operation and meets daily with the basehouse keepers and subagents.
+
+3. LIEMPTY contributes significantly to the Station's Soviet operations program and is considered an essential element of the Station's support apparatus. During the period 1 November 1967 through 31 December 1968, approximately 21,367 photographs were taken. In response to a request to SB Division for an evaluation of the project, the following comment was received: "There are few such sources of high resolution photographs of Soviets, especially giving good side views. These photos are welcomed by SB Division since they furnish a steady flow of up-to-date identity data..." The photos are useful to the Station in confirming the identities of Soviet personnel and visitors to the
+
+SECRET

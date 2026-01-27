@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_17513.png
+
+Convert to Markdownb. Selected Satellite officials office and home phones.
+
+c. Selected private phones being used by known and suspected Satellite intelligence personnel,
+
+For objective c:
+
+d. Selected telephones as requested by Station Case Officers in support of their going and/or projected operations.
+
+For objective d:
+
+e. Telephone conversations from residences of senior Communists and pro-Communists.
+
+For objective e:
+
+f. Telephone conversations from residences of known American Communists residing in Mexico City.
+
+For objective f:
+
+g. Telephone conversations from the residences or offices of prominent exile leaders or their contacts in Mexico City.
+
+For objective g:
+
+h. Telephone conversations which can be monitored from targets of opportunity.
+
+7. Tasks
+
+Case Officer - Jeremy L. NIAROOS
+
+a. Supervise the operational and administrative activities of all LIFEAT personnel,
+
+b. Maintain awareness of and provide direction in all matters pertaining to the operational management of the LIFEAT Project,
+
+c. Provide guidance and day-to-day supervision of special operational phases of LIFEAT coverages.

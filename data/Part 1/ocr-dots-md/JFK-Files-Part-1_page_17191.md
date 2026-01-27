@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_17191.png
+
+Convert to Markdownthe LIMERICK installation and personnel. Specific examples of the LIEMPTY Project's progress and contributions to the RND will be found in Section 3 below (EFFECTIVENESS).
+
+## 2. CHANGES.
+
+A. Operational - As noted in the previous Request for Project Renewal, the former LIMITED property was sold to LIMOUSINE, who as per formal agreement with the Station, demolished the old structure and constructed a new office. While it was initially contemplated to place the LIEMPTYs-6 and -7 personnel in the new building and to retain the same, equal division of workload between LILYRIC and LIEMPTED, it was later decided to move the present LILYRIC basehouse personnel (LIMPTYs-15, -14, -26 and -27) into the new base instead, along with the following ancillary modifications:
+
+An increase in the hours of both the photographic and physical surveillance coverage provided from the new base by the LILYRIC operators (0900-1600 hours) during the weekdays and to have the LIEMPTED base provide photographic and physical surveillance coverage from 1600-1830 hours on weekdays and from 0900-1300 hours on weekends. These changes were dictated by the following considerations:
+
+1. The new LIMOUSINE building offers a much better vantage point for both photographic and physical surveillance than does the present complex which houses the LILYRIC and LIEMPTED bases. Therefore, the Station felt that the personnel occupying this new base should be those possessing the highest technical skills and also those able to provide the most thorough and complete coverage. Since the LIEMPTED base now has only one trained operator while the LILYRIC basehouse has three, the LILYRIC group and a revision of working hours was indicated.
+
+2. Because it was apparent that the coverage of the LIMERICK installation would be a long-range and continuing requirement, the Station desired to staff the new base with personnel of long-range potential. LIEMPTY-6, now almost 60 years old, does not possess this potential; however, the LILYRIC agent complex happily combines experienced personnel with youthful agents.
+
+3. Finally, the social and financial status of the LILYRIC personnel is much more compatible and consistent with the environment of the new building than is that of the LIEMPTED family.
+
+The above-cited revised work schedule was initiated in July 1966 and the actual movement of the LILYRICS into the new base began in late September 1966.

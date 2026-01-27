@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_17148.png
+
+Convert to MarkdownMEMORANDUM FOR: Chief, Western Hemisphere Division
+
+SUBJECT: FY Project KDFACTOR
+FY 1971 Amendment No. 1
+Biennial Renewal
+Proposal for Fiscal
+Years 1972 and 1973
+
+1. On 10 December 1971, approved subject actions in the amounts specified below:
+
+a. FY 1971 Amendment No. 1 - For $4,260, increasing the project's FY 1971 funds authorization (from $23,630) to $27,890.
+
+b. FY 1972 Renewal - For $19,000
+
+c. FY 1973 Renewal - For $20,000
+
+2. I ask that the Station conduct an updated security review of this operation, giving particular attention to the knowledgeability of terminated agents and their families as discussed in paragraph 3 of referent memorandum.
+
+3. Also, I ask that you provide me via MPS/BC) with a memorandum report summarizing the results of the above (paragraph 2) security review by 31 March 1972.
+
+ADDP MEMO of 14 December 1971

@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_17567.png
+
+Convert to Markdownb. HMMW-7955, 14 August 1959, Approval of Renewal Request for FY 1960
+
+## 5. Objectives
+
+a. To identify Soviet and Satellite intelligence personnel and to collect information on the nature and extent of their clandestine intelligence and propaganda activities in Mexico.
+
+b. To collect information on Soviet and Satellite commercial, diplomatic, cultural and military personnel and their activities in Mexico.
+
+c. To collect biographic information of Soviet and Satellite officials.
+
+d. To collect information of the movements, assignments and positions of Soviet and Satellite personnel.
+
+e. To collect biographic information on Cuban officials assigned to Mexico and provide coverage of their activities.
+
+f. To collect information on prominent Mexican Communists and pro-Communists and their activities.
+
+g. To collect information on prominent Communists, other than Mexicans, active in Mexico and to identify them and their associates.
+
+h. To collect information on exile groups active in Mexico.
+
+i. To collect information on targets of opportunity in Mexico.
+
+## 6. Targets (as related to project objectives)
+
+For objectives "a" through "d":
+
+a. Selected Soviet Embassy and commercial office telephone conversations.
+
+b. Selected Satellite office and home phones.
+
+For objective "e",:
+
+c. Telephone conversations from the Cuban Embassy and selected telephone calls from residences of Cuban officials.

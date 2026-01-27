@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_17380.png
+
+Convert to Markdown<table><tr><td>DATE</td><td>: 00: JO<br/>29 SEP 62</td></tr><tr><td>TO</td><td>:</td><td>DIRECTOR</td></tr><tr><td>FROM</td><td>:</td><td>MEXICO CITY</td></tr><tr><td>ACTION:</td><td>:</td><td>C/WH 5</td></tr><tr><td>INFO</td><td>:</td><td>ADDP, C/C1, C/CCG 2, C/F1 2, C/WE 2, C/FE 6, S/C 2</td></tr></table>
+
+CLASSIFIED MESSAGE
+
+<table><tr><th colspan="2">ROUTING</th></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr><tr><td>OCT 2 0333Z 62</td><td>DUPLICATE AND SERVICED COPY</td></tr><tr><td>ROUTINE</td><td></td></tr><tr><td>IN 31052 A MEXI 2087</td><td></td></tr></table>
+
+**DIR INFO ROME CITE MEXI 2087**
+
+**RYBAT**
+
+REF: -A. DIR 38428 (OUT 80619; B MEXI 2049. (IN 29411) 1. PLAN BRIEF RATIGAN AS FOLLOWS:
+
+A. BACKGROUND RICARDO JOSE ZEVADA AND ALEJANDRO CARRILLO MARCOR AND SUGGEST RATIGAN OBSERVE WHO THEIR CLOSEST CONTACTS IN PRESIDENTIAL PARTY, DEGREE THEIR ACCESS TO PRESIDENT AND OTHER RANKING MEXI OFFICIALS, AND IDENTITIES ANY OBVIOUS FOREIGN CONTACTS IN COUNTRIES VISITED.
+
+B. IDENTITIES INDIVIDUALS IN OFFICIAL PARTY WHO EXPRESS ANTI-U.S. AND/OR PRO CASTRO SYMPATHIES.
+
+C. IDENTITIES INDIVIDUALS WHO SEEM BE CLOSEST TO PRESIDENT.
+
+D. ALL INFO HEARD ABOUT IDENTITY NEXT MEXI PRESIDENT.
+
+2. ABOVE REQUIREMENTS ARE GUIDES ONLY AND STATION AWARE THAT RATIGAN PROBABLY WILL NOT HAVE DEGREE ACCESS TO REPORT OTHER THAN FRAGMENTARY
+
+INFO: NEVERTHELESS MEXI WILL APPRECIATE ANY INFO DEVELOPED BY RATIGAN.
+
+END OFMESSAGE
+
+<table><tbody><tr><td style="text-align:center; border:1px solid black;">SECRET</td></tr></tbody></table>
+
+<table><tbody><tr><td>Excluded from automatic declassification and declassification</td></tr></tbody></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_17519.png
+
+Convert to Markdown16. Equipment and Support
+
+As noted in last year's renewal request, LIFEAT equipment is generally old and much of it is now obsolete. With funds provided in last year's renewal, LIFEAT (within the past month) has begun to acquire some new equipment, particularly audio recorders. A review of the equipment situation in the LIFEAT setup has convinced both WILSTED and the responsible Case Officer that a near-complete modernization program of the equipment used in LIFEAT must be undertaken during the coming project year. The local KURIOT technician has on a number of occasions expressed his amazement at the superior product produced by LIFEAT with the outmoded and ancient equipment (in terms of use hours) which the LIFEAT complex had to rely on. Therefore, with the funds requested in Part II of this renewal request, LIFEAT should be completely equipped with adequate gear, particularly audio and dial tape recorders, by the expiration of FY 1963. Admittedly, there is involved large, one-time expenses in complete replacement of such expensive items during a single project year. However, it is a necessary move, due entirely to great wear borne by the equipment. This wear is now causing such a rash of breakdowns that the outside principal agent must spend a dispropor- tionate amount of his time in maintenance work.
+
+17. Timetable
+
+LIFEAT has been in almost constant operation since its inception in January 1951, and as a vital Station operational support asset, it is planned to continue it indefinitely.

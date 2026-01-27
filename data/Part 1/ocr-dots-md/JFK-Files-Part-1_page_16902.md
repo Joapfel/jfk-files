@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_16902.png
+
+Convert to Markdown<table>
+   <thead>
+    <tr>
+     <td>CONTINUATION OF DISPATCH</td>
+     <td>CLASSIFICATION</td>
+     <td>DISPATCH SYMBOL AND NUMBER</td>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td></td>
+     <td>SECRET</td>
+     <td>HMA-50272</td>
+    </tr>
+   </tbody>
+  </table>
+
+3. GERENDE'S agent handling responsibilities within the LIEMPTY project remain as previously reported. He had also handled EREAIN-3 until the latter's termination in August 1968. He developed a good relationship with EREAIN-3, and he showed that he is quite capable, with proper case officer guidance, of providing useful service to the Station in the handling of agents beyond the support type to which he had been limited in the past. The Station intends to try to expand this role, with due regard for security and for GERENDE's limited experience. Furthermore, the Station still has every intention of using GERENDE selectively in cultivation and development of operational leads, as outlined in reference. No such leads were found for GERENDE during the reporting period (among other reasons, we have no intention of giving GERENDE a lead simply for the sake of giving him something to do), but as soon as a suitable lead is uncovered, it will be passed to GERENDE.
+
+4. GERENDE was particularly useful during the Olympic period. While he did not get a job with the Olympic Committee as he had hoped, his wife was employed as a translator by the European television networks who had come to cover the games. This, plus other personal contacts, gave GERENDE a certain amount of access to Olympic facilities. Both GERENDE and his wife helped considerably in the distribution of AEGGGHEAD material, and GERENDE performed a number of miscellaneous tasks assisting the Station in various Olympic responsibilities.
+
+5. GERENDE has also been used in support of JMROD operations, such as making mail pick-ups and delivering material and making phone calls to AMBASSADOR. Following the Warsaw Pact Powers' invasion of Czechoslovakia, GERENDE was asked to cover a demonstration in front of the Soviet Embassy, and he wrote a good report which was used in Embassy briefings. Recently, GERENDE has enrolled at the University of the Americas to work for an M.A. in contemporary Mexican history. The Station will explore the possibility of his getting access to persons or information of interest on the University campus.
+
+LICALLA
+
+6. LIEMPTY-9's work (in the LICALLA base house) was inhibited in July due to the construction of a maid's room near his working quarters. During the reporting period, however, he took a total of 2,217 operational photos. His regular reporting and commentary continued as in the past. LIEMPTY-9 is a steady and dependable performer, and his unique vantage point remains the source of the most interesting and revealing photos as well as often very informative reporting.
+
+LILYRIC
+
+7. LIEMPTY-13, -14, -26, and -27 have been able to keep the LILYRIC base house manned on a regular basis from 0800 to 1800 hours weekdays and 0800 to 1500 hours on Saturdays, with other hours coverable upon request. This has proven to be a far better arrangement than depending on LIMITED for some of this coverage. In addition to the 6,763 operational photos taken during the reporting period and the daily fixed surveillance reports, LILYRIC reporting is of considerable help in compiling current vehicle and license plates lists, PCS arrivals and departures, unusual activities such as demonstrations or protests, unusual or lengthy absences of personnel, etc., all of which have obvious CI importance. It was LILYRIC photos which made it possible for LNERGO to identify the Subject of 201-841520, who had been in clandestine contact with AEGRIP officers. LILYRIC also reported on a half dozen other American (or American appearing) visitors, some of whom it was possible to identify through tracing license plates.
+
+USE PREVIOUS EDITION
+
+53a
+
+SECRET
+
+X CONTINUED
+
+PAGE NO
+2
+
+<table>
+   <tr>
+    <td>CLASSIFICATION</td>
+    <td>PAGE NO</td>
+   </tr>
+   <tr>
+    <td>SECRET</td>
+    <td>2</td>
+   </tr>
+  </table>

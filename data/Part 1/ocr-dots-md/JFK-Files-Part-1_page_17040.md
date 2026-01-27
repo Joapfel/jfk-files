@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_17040.png
+
+Convert to Markdown8 DEC 1971
+
+MEMORANDUM FOR: Assistant Deputy Director for Plans
+
+THROUGH: MPS/BG
+
+SUBJECT: Renewal of Project KDFACTOR
+         in 1972 for $19,000
+         in 1973 for $20,000
+
+1. This project covers photo and visual surveillance of the Soviet Embassy in Mexico City. One observation post covers the front gate of the building, and another covers the rear gate and walled compound. Five salaried agents man the sites, four in front and one in back. An official cover case officer collects the take (rolls of film and logs of visitors) once a week by car meetings with the OP keepers. The films are developed and printed inside the Station.
+
+2. The production from this operation has consistently been rated high by the Bureau (which is the principal customer in the field), by other Government agencies and by SB Division. Photosurveillance of a Soviet Embassy might not be a high priority target in some countries. But the fact that the Soviet Embassy in Mexico is a large and active one and the fact that its primary target is operations against the United States make our effort important and valuable. This is the operation that produced the photographs of Lee Harvey Oswald visiting the Soviet Embassy in 1962.
+
+3. This seemingly straightforward operation has not always been so uncomplicated. Both sites have been in operation and served by the same OP keepers for more than a dozen years. At one of the sites the OP keeper's wife and children take turns manning the equipment. A now-terminated principal agent was divorced several years ago from a wife who knew a lot about the operation. Some desk officers believe that the medical doctor who for years was supposed to be developing the films was simply too busy to do so and that the work was probably done by his uncleared secretary. Family relationships keep cropping up among supposedly compartmented agents. All of this is in the files but not in any one place. We

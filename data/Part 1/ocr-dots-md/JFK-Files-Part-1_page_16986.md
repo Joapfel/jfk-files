@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_16986.png
+
+Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET/K-OK</td><td>DISPATCH NUMBER, LINE 1<br/>HMMA-14793<br/>K-1762</td></tr><tr><td colspan="3">5. In conclusion, the Station would like to point out that the "photo-graphic basehouses" represent an integral and significant part of the Station's counterespionage effort against the LIMERICK installation. These bases do not produce Foreign Intelligence and should not be considered in such a light.</td></tr><tr><td colspan="3">Willard C. CURTIS</td></tr><tr><td colspan="3">6 April 1960</td></tr><tr><td colspan="3">Distribution:</td></tr><tr><td colspan="3">3 - WHD</td></tr><tr><td colspan="3">2 - Files</td></tr></table>

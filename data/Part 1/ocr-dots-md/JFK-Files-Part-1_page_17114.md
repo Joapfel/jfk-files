@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_17114.png
+
+Convert to MarkdownSECRET
+
+(b) FI/OPS notes that while the project review presents a clear picture of the aims and objectives of the various segments, it does not provide, except in the case of SCOUTLING, detailed indication of the value or usefulness of the other segments, particularly the photographic activity. FI/OPS requests that the Station provide such an appraisal during the first quarter of 1960. FI/OPS recommends strongly that the photo coverage be reviewed from the standpoint of value and usefulness with a view to determining whether the LILYRIC activity could not be safely eliminated and the additional photographic coverage conducted on a more selective basis, without materially affecting overall usefulness. FI/OPS notes that, in the absence of further proof of usefulness, the color photography and moving pictures appear to be an unnecessary luxury. FI/OPS commends the careful handling of the CLACKITT segment and requests that the next project action include examples of the team's progress.
+
+5. I recommend renewal of Project LIEUTNY as presented with attention to the staff comments in paragraph 4 above.
+
+Approved: Richard Helm
+
+COPY-00/2
+
+JAN 8 TO
+Date
+
+Attachment:
+Project Outline LIEUTNY
+
+Staff Coordination:
+
+For C/FI/OS -s/R. Bryant
+For CJ Staff -s/R. Brown
+For C/COD -s/F. Youngblood
+
+SECRET

@@ -1,0 +1,66 @@
+# JFK-Files-Part-1_page_16716.png
+
+Convert to MarkdownB/10 Parts:
+
+12 each SH-1 Dian & Supply Silicon rectifiers, for electric
+A 1N 1695
+
+26 Tubes BXX-3% GXS
+
+12 each K-2 Feed Schottoids
+
+24 Small Springs for Drive Motor Special.
+
+AMPEN PARTS:
+
+12 each R-137 Central --83-011-175
+
+12 each Alignment Tapes--Part # 6000 3 3/4" x 19MAY 1964 - First try to obtain a delivery date from the supplier. Special order if needed.
+
+J-201-e Plugs
+J-101-P Plug
+J-102-S Plug
+J-202-P Plugs
+
+C-203 Motor C capacitors, Electrolytic 2,3uf 1, 220 V.
+R-202 Resistors, 20K ohms
+
+REVERSE PARTS:
+
+36 Spare pressure pads TR-2601. (see page 90 for details)
+6 each Instant Stop arm (no type)
+12 each Tape counter drive belts A-30-11101
+12 each Take up belts TB-7609
+
+TEST EQUIPMENT:
+
+Healthkit Catalog . Fall and Inter 1962-1963
+
+| Item | Part Number |
+| :--- | :--- |
+| eathkit translator tester | Kit 10-20 |
+| Capacitor Checker | Kit 11-11 |
+| Visual-Aural Signal Tr cor | Kit T-4 |
+| Oscilloscope | Kit 70-10 |
+| Scope Demodulator prob kit | Kit 3370 |
+| Low Capacity Scope Prog | Kit --/1 |
+| Harmonic Distortion Meter | Kit 70-1 |
+| Resistance Substitution Box | Kit 20-1 |
+| Condenser Substitution Box | Kit 60-1 |
+
+Allied Catalog # 22C--1963
+
+Page 197
+
+3 each TS-AJ Tape Splicers Cat # 8028CH-195
+2 each TS-65 TapeSplicers Cat # 80K-197
+6 each splicing Tape Cat 80R-203 T-77 3/8 inch
+6 each Splicing Tape Cat 80R-155 ST-500--1/2 inch
+
+Page 323
+
+Resist-O-Chest 2M-758 and type number 43
+
+Page 394.
+
+Cable Splicing cord # 491-246 1/2 lb.

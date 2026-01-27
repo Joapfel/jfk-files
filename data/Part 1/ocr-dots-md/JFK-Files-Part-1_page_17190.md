@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_17190.png
+
+Convert to Markdown# REQUEST FOR RENAL
+PROJECT LIEMTY
+
+## 1. CURRENT OBJECTIVES
+
+A. The overall objective of Project LIEUITY, now in its ninth year of existence, is to collect operational information on the LDEOICK installation, its personnel and visitors, as well as related targets of opportunity through stationary/mobile photographic and physical surveillance mechanisms. Corollary objectives which are to be fulfilled through use of the LIEMPTY installations, mechanisms and personnel are as follows:
+
+1. To provide detailed operational information pertaining to the daily movements and activities of the LDERICK personnel, particularly those individuals of intelligence interest, as well as information on the LDECKILL physical plant and visitors to the premises.
+
+2. To collect operational information on persons associated with LDEERICK personnel and on individuals known or suspected to have connections with the LDEERICK intelligence services or other hostile groups which are initial to the interests of LIVERTY.
+
+3. To provide operational support, counter surveillance and/or other protective services to WOFACCT personnel and operations, as may be levied upon the Station or as may be deemed necessary.
+
+B. The above objectives are to be fulfilled through continued maintenance and exploitation of the LIMITED, LILYRIC and LICALLA basehouses, the LINEAR mobile unit, and the services of long-time contract agent, Raymond H. GERREES. These objectives are in consonance with and represent partial fulfillment of the following sections of the current Related Mission Directive (RMID) as approved for Station Mexico City:
+
+PRIORITY A
+
+* Section 1, subsection f
+* Section 2, subsections b & c
+
+PRIORITY B
+
+* Section 1, subsection a
+* Section 2, subsection a
+
+C. Throughout the Project year under review, Project LIEMETY continued to contribute directly and significantly to the fulfillment of Station and Headquarters' requests and requirements for coverage of various targets falling within the framework of the above cited sections of the RMID. During the last 10 months Project LIEMETY provided the vast majority of the operational photographs (approximately 16,000) and physical surveillance reports (4,000) used in Mexico City Station's operations targeted against

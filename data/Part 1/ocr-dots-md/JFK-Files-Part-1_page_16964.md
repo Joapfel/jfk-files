@@ -1,0 +1,84 @@
+# JFK-Files-Part-1_page_16964.png
+
+Convert to Markdown<table>
+   <thead>
+    <tr>
+     <td rowspan="2">DISPATCH</td>
+     <td>CLASSIFICATION</td>
+     <td colspan="3">PROCESSING ACTION</td>
+    </tr>
+    <tr>
+     <td>SECRET</td>
+     <td colspan="3"></td>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td>TO</td>
+     <td colspan="4">Chief, WH Division</td>
+    </tr>
+    <tr>
+     <td>INFO.</td>
+     <td></td>
+     <td>XX</td>
+     <td colspan="2">NO INDEXING REQUIRED</td>
+    </tr>
+    <tr>
+     <td>FROM</td>
+     <td colspan="4">Chief of Station, Mexico City</td>
+    </tr>
+    <tr>
+     <td>SUBJECT</td>
+     <td colspan="4">C Project LIEMPTY/Progress Report 1 May through 31 July 1965</td>
+    </tr>
+    <tr>
+     <td>ACTION REQUIRED - REFERENCES</td>
+     <td colspan="4">
+      References: A. HNMA-26027, 5 May 1965<br/>
+      B. HNMA-26243, 4 June 1965<br/>
+      C. NEXI-4167, 16 July 1965<br/>
+      D. NEXI-4248, 26 July 1965
+     </td>
+    </tr>
+    <tr>
+     <td colspan="5">1. REPORTING AND BACKGROUND.</td>
+    </tr>
+    <tr>
+     <td colspan="5">The last regularly scheduled LIEUTY progress report covering the period 1 February through 30 April 1965 was forwarded as reference A. Significant interim developments and activities were included in references S through D. Throughout the period under review, Project LIMETY continued to collect operational information on the LIMERICK installation, the LIMERICK personnel and their visitors, as well as various targets of opportunity, through the daily photographic and fixed surveillance coverage provided by the LIMITED, LILYRIC, and LICALLA photographic bascouses and the frequent use of the NIMTRAP mobile photo unit. In addition, this project provided other essential operational support to various Station and Headquarters activities through the utilization of the services of long-time contract agent Raymond H. GERENDE.</td>
+    </tr>
+    <tr>
+     <td colspan="5">2. ADMIT CONTACT AND COMMUNICATIONS.</td>
+    </tr>
+    <tr>
+     <td colspan="5">a) On 22 May 1965, the Principal Agent for Project LIEUTY, Raymond H. GERENDE, departed Mexico for a two month period of well-deserved vacation. As per pre-planned arrangements, Gerende's operational, administrative, and agent-handling tasks were turned over as follows:</td>
+    </tr>
+    <tr>
+     <td colspan="5">To Oliver G. SCATTLING (P): Agent handling and funding of the LIMITED, LILYRIC, and LICALLA bascouses and the NIMTRAP mobile unit;</td>
+    </tr>
+    <tr>
+     <td colspan="5">To the LIEMPTY Case Officer - agent handling and funding of the LIEMPTY photo-team, dark room; and the local ARAD responsibility.</td>
+    </tr>
+    <tr>
+     <td colspan="5">SCATTLING was chosen for this turn-over and the accompanying workload since he had previously handled all but one of the agents involved, and because he was familiar with the objectives and overall goals of the LIEMPTY project. The above noted operational assignments will again be reviewed on Gerende upon his return to Mexico in early August 1965.</td>
+    </tr>
+    <tr>
+     <td>Distribution:</td>
+     <td>- C/MID</td>
+     <td colspan="2">CS COPY</td>
+     <td>Cirriculum...</td>
+    </tr>
+    <tr>
+     <td>OSS REFERENCE TO</td>
+     <td>DISPATCH SYMBOL AND NUMBER</td>
+     <td>DATE</td>
+     <td>HQ'S FILE NUMBER</td>
+     <td></td>
+    </tr>
+    <tr>
+     <td></td>
+     <td>HEMA-06006</td>
+     <td></td>
+     <td></td>
+     <td>22 August 1965</td>
+    </tr>
+    <tr>

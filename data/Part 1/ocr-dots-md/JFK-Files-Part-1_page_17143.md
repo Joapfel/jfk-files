@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_17143.png
+
+Convert to MarkdownSECRET
+
+- 6 -
+
+The KDABSINTHE basehouse is manned by KDFACTOR-5, his wife KDFACTOR-6, and his two sons KDFACTOR-8 and KDFACTOR-9. The SGSWIRL of 2 March 1966 went into detail on who is witting of KDFACTOR-5's work for the Station. The result was that his immediate family, including a married daughter who no longer lives at the basehouse, are aware of the photographic operation. KDFACTOR-5 was recruited by LIEMPTY-12, a U. S. citizen with a private company in Mexico City who is no longer working with the Station but who is considered patriotic and no threat to KDFACTOR security.
+
+4. Terminated Agents Possibly Affecting Present Project Security:
+
+A. Raymond H. GERENDE
+
+GERENDE is a Mexican citizen and was a contract agent until his termination on 26 June 1970. He had been employed by the Station intermittently since 1955 and was used almost exclusively in support activities. Since the start of the LIEMPTY Project in 1958 GERENDE had been directly involved with this project serving as cutout to the basehouses, carrying and processing films, and giving general direction to the project as principal agent. In 1969, after years of excellent service with the Station, GERENDE had serious marital problems which ended in separation from his wife, KDFACTOR-7. From December 1969 to June 1970 GERENDE was not used operationally but was maintained on half pay with the hope the divorce proceedings would be completed quickly. When it became apparent the divorce would drag on interminably, the Station reluctantly terminated GERENDE and his wife. Bruce H. FERNALD, career agent, met with GERENDE monthly from July 1970 through May 1971 while paying him his termination bonus in ten installments. GERENDE is still living in Mexico City, where he owns some property and has an income as an English teacher to employees of two local firms. He visited his wife and children in Holland in December 1970. It appears he may now be financially pressed as his English class schedule has been cut back. The Station as of 10 April 1972 had no information that would indicate GERENDE has violated his secrecy agreement.
+
+There is an indication that GERENDE came to the attention of the Soviets in 1968. A Mexican walk-in to the FBI office in Mexico City, who was later interrogated by the Federal Security Police in 1970, said that in 1968 he had been employed by the Soviet Embassy Second Secretary, Oleg Masksimovich Nechiporenko (201-305870), to investigate persons working with the Mexican Olympic Committee. The persons investigated
+
+SECRET

@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_17118.png
+
+Convert to MarkdownSECRET
+
+27 March 1959
+
+MEMORANDUM FOR: Chief of Foreign Intelligence
+
+SUBJECT : Project LIEUPTY (Amendment)
+WH - Mexico City
+
+1. The attached project, originating in the WH Division, provides the services of a surveillance activity to support Mexico City operations and is approved for the period 1 December 1958 through 30 November 1959. It is presented for your approval of amendment to include the addition of a contract agent, Louise J. MACRINO, to furnish administrative support, and also to formalize a special commitment made to one of the two principal agents, Oliver G. SCANTLING. A contract prepared in the Field and signed by the agent permits the payment of one year's salary to him or his assigned heirs in event of loss of life or total disability if incurred in the performance of duty. This has not previously been included in the project.
+
+2. The LIEMPTY project has authorization for the expenditure of $95,380. No additional funds are required for the amendment. Sufficient funds remain in the project to absorb the salary expenses for MACRINO and funds to cover the extra year's salary for SCANTLING will not be requested until such time as they are needed.
+
+3. Memoranda prepared in the WH Division supporting the request for amendment are attached, summarizing the important factors involved. These detail SCANTLING's performance and provide a resume of MACRINO's past activities in behalf of the Agency.
+
+4. Staff Components have concurred in amendment to Project LIEMPTY.
+
+5. I recommend approval of amendment of Project LIEMPTY as presented.
+
+Approved:
+
+Chief, Foreign Intelligence
+
+Date
+
+Attachment:
+
+Project Outline LIMPTY
+
+Staff Coordination:
+
+For C/FI/OPS -s/V. Hoffmann
+For CI Staff -s/R. Brown
+For DC/CCD/MC -s/F. Youngblood
+
+SECRET

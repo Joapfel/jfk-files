@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_17420.png
+
+Convert to Markdown<table>
+   <tr>
+    <td colspan="3"> Lienoy /ops </td>
+   </tr>
+   <tr>
+    <td> DATE : </td>
+    <td colspan="2"> 604 28 JAN. 72 </td>
+   </tr>
+   <tr>
+    <td> TO : </td>
+    <td colspan="2"> DIRECTOR </td>
+   </tr>
+   <tr>
+    <td> FROM : </td>
+    <td colspan="2"> MEXICO CITY </td>
+   </tr>
+   <tr>
+    <td> ACTION: </td>
+    <td colspan="2"> C/WH 5 (MR WJTTEN &amp; CERTIFIED A/ SCOTTED AT 1970-29 JUL) </td>
+   </tr>
+   <tr>
+    <td rowspan="2"> INFO : </td>
+    <td rowspan="2"> DCI, DDP, ADDP, C/CA, C/C1 2, C/C2, C/TFW 2, C/CR 1, C/TPW 5, C/OS 2, S/C 2 </td>
+    <td> JUN 20 22 42Z 62 </td>
+   </tr>
+   <tr>
+    <td> OPERATIONAL IMMEDIATE IN 1932B </td>
+   </tr>
+  </table>
+
+CPIM DIR CITE NEXI 1253
+
+RUBAT/JMPOOL
+
+REF DIR 1965A (out 98598)*
+
+1. CURTIS SAW LITENSOR ALONG WITH BUSHS ON 23 JUNE. THIS AFTER CONSULTATION WITH AMBASSADOR U., SUCH VISIT GOOD IDEA.
+
+2. CURTIS FOLLOWED LINE SUGGESTION IN REF AFTER EXPRESSING TO LITENSOR KUBARK AND AMBASSADOR U., AS VCL PREPARATIONS AND MUCH WORK HE PUTTING INTO PLANS FOR THE EPIDEMIAL VISIT SUCCESS.
+
+3. LITENSOR EXPRESSED THANKS FOR HELPING AND THEN SAID "PLEASE ASSURE GPIDEAL PERSONALLY VIA ME IF THAT THERE WILL BE NO PROBLEM. TELL HIM I PERSONALLY I'VE BEEN ACARE OF COMMUNIST ACTIVITIES IN MEXICO AND I PERCEIVED IT'S ALL PECULIAR INVOLVING ALL RECRUUTIONS." SAY TO HIM THAT HIS SAFETY IS GUARANTEED.
+
+<table><tr><td>C</td></tr></table>

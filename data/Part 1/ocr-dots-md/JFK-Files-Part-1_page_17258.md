@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_17258.png
+
+Convert to MarkdownSECRET/RJOK
+
+-13-
+
+The Station is aware that the previous project renewal stated that emergency communications arrangements were being made. The Station has finally obtained the U.S. addresses of relatives through whom GERENDE and SCANTLING could be contacted under most situations. This information will be forwarded separately.
+
+SECRET/MKOR
+
+COPY
+
+506 2410

@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_17032.png
+
+Convert to MarkdownMisc Expenses
+Ops entertainment $ 165      $   300     $    100      $   100
+Auto maintenance      80         100        100          100
+Ops expenses          590         56         131          131
+                    $  835      $  456       $   331     $   331
+Total Expenses      $27,587      $19,000     $20,000     $20,000
+
+4. **Foreign Currency:** There is no special need for foreign funds. No non-JKLANCE funds are used.
+
+5. **Commitments:** Christmas bonuses are provided in the FY 72 and FY 73 budgets.
+
+6. **Funding:** Funds are hand-carried from the Station by the case officer and transferred during clandestine meetings. Receipts are obtained for all disbursements according to JKLANCE regulations.
+
+7. **Annexes:** None.

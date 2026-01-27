@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_17509.png
+
+Convert to Markdowncentrals and cables. The feasibility of using LIFEAT in this type of operation has already been proven, in a recent operation with the LIERODE installation as a target. Seven reels of "hot mike" take were obtained in test runs on checking both the operation (including installation of the "miked" instrument in the office of the head of the LIERODE official installation) and the equipment which was of radical design and conceived and built by the KURIOT technician assigned to Mexico City Station under deep cover. Unfortunately, before continuous operation could get underway, the LIERODE installation decided upon complete renovation of its telephone system, including the installation of a switchboard. This, at least temporarily, precludes further operation against this particular target, unless a direct line is installed there. However, it is the intention of the Station to attempt coverage of other targets of interest. In these plans LIFEAT plays the key role in installation, line and series cross maintenance, basehouse procurement and maintenance, and processing of take. From the brief test runs via the LIERODE operation noted above, it is believed that "hot mike" operations, supported and maintained by LIFEAT, can greatly aid the Station in its coverage of responsibilities under its present Related Mission Directive.
+
+### IV. Performance of Agents
+
+The overall performance of all agents employed in the LIFEAT complex continued to be good during the period of the project review, with security being stressed in all phases of the operation. No security problems were encountered which were not solved by the personnel involved. Since the success of the LIFEAT operation depends largely upon the security of its personnel, Headquarters clearances and evaluation of new personnel will continue to be sought on those new additions who pass a strict field assessment.
+
+### V. Expenditures
+
+Approval for renewal of Project LIFEAT was granted 8 September 1961 for FY 1962 in the amount of $98,973.00. The proposed budget for FY 1953 is broken down in the attached Field Project Outline Renewal Request, Part II, and totals $102,168.00.
+
+### VI. Status of Commitments
+
+There are no commitments other than those noted in the project outline submitted herewith and in the individuals contracts and oral agreements (memoranda of oral agreements were forwarded as necessary) of the various LIFEAT personnel.

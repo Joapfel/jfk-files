@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_17535.png
+
+Convert to MarkdownSECRET / KAPOK
+
+- 5 -
+
+Mexico City area. It has been determined through LIFETAT leads that this case is headquarters for a suspected Polish technical operation directed against an official U.S. installation in Mexico City. LIFETAT also provided support for a Station mounted audio operation against the Polish Embassy in Mexico City. Through LIFETAT leads proper support for the operation was arranged.
+
+Coverage of a CI/CE nature was exploited in covering travel of important Communists, particularly to Cuba, and the travel of U.S. citizens, especially Communists and leftists, to Cuba. Travel plans of American Communists were provided to OBMNY well in advance of the actual travel. Activities of local Communists and their participation in demonstrations and CASTRO-support projects was shown through LIFETAT information.
+
+## H. Conclusion
+
+It is the opinion of the Mexico City Station that the support provided other Station operations, the CI/CE information, and in particular the ability of the unilateral LIEMOY operation to cover sensitive targets without revealing Station interest to Soviet forces, well justify the expenditure of funds, time, personnel, and security risk. It is to be noted that even though the Station is involved in the parallel LIEMOY liaison operation, a change in the attitude of the local government or the change in local government administration could well end HUBARK participation in that liaison project. For that reason LIFETAT must be available to resume the coverage of the Soviet/Satellite targets which it previously provided. It is recognized by the Station that the LIFETAT complex, if allowed to deteriorate, could not be readily reorganized if need for its services in the Soviet/Satellite field was required at a future date. Therefore, LIEMOY's present orientation, though toward targets of a CI/CE nature rather than to providing positive intelligence, leaves it available for later needs into the field of Soviet/Satellite operations. Of necessity, LIFETAT operations in certain areas have been curtailed to some extent and total coverage reduced during the trial period when pulse lines were being formed in relation to operating with a parallel but liaison operation (i.e., LIEMOY). However, it is the Station's opinion that even with the temporarily reduced coverage provided by LIFETAT, this project still provides a substantial and essential contribution in fulfilling the several priority objectives of the Station's Related Mission Directive.
+
+I. There is attached a complete list of the films produced from LIFETAT provided material during the period July 1960 through May 1961 (see attached page).
+
+## II. Progress of the Operation
+
+The objectives of the LIFETAT Project are of a continuing nature and are therefore not considered for fulfillment during any given period of time. For this reason percentage figures as to completion of project objectives cannot be drawn. However, an indication of the coverage provided in working
+
+SECRET / KAPOK

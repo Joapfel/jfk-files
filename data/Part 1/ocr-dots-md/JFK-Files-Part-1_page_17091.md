@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_17091.png
+
+Convert to MarkdownSECRET
+
+PREVIOUS APPROVALS:
+
+1 Dec 66 - 30 Nov 67 $45,000
+1 Dec 65 - 30 Nov 66 41,500
+1 Dec 64 - 30 Nov 65 45,300
+1 Dec 63 - 30 Nov 64 49,700
+1 Dec 62 - 30 Nov 63 49,900
+1 Dec 58 - 30 Nov 59 95,380
+
+STAFF RECOMMENDATIONS: FI and CI Staffs concur.
+
+SECRET.

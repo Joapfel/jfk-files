@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_16781.png
+
+Convert to Markdown13 March 1958
+
+The Rapacki Plan
+
+1. The Polish proposal for a Central European nuclear-free zone was introduced at the 2 October 1957 session of the UN General Assembly by the Polish Foreign Minister, Adam Rapacki. Acting as spokesman for the Polish Government, he formulated the proposal: should both East and West Germany agree to a ban on the production and storage of nuclear weapons on their territories, Poland would simultaneously introduce an identical ban on her territory. Rapacki did not mention Czechoslovakia, but the head of the Czechoslovak UN delegation, speaking after Rapacki, supported his proposal, declaring that his country would join the agreement, extending the ban over her territory, too. The East Germans subsequently warmly endorsed the proposal.
+
+2. Rapacki's proposal had obviously been cleared and coordinated with Soviet leaders prior to its introduction. Moscow promptly reported the proposal approvingly and the Soviet press stressed that such an agreement would be welcomed by the peoples of Europe, would facilitate agreement on disarmament and cessation of nuclear tests, and would "help improve relations and bring closer together" the two German states.
+
+3. The proposal was formalized in a 9 December 1957 Polish government memorandum, which was presented by Rapacki to the US, British, and French ambassadors in Warsaw. The then Soviet Premier, Bulganin, promptly endorsed the proposal in a series of letters to heads of governments throughout the world.
+
+4. In 1958 Rapacki modified his plan, allegedly to make it more palatable to the Western powers. The new version of the plan, published in November 1958, called for a two-stage program, in which: (1) current nuclear stockpiles and bases would be frozen and production of nuclear weapons would be banned in Poland, Czechoslovakia, East and West Germany, and (2) existing nuclear stockpiles and weapons would be
+
+SECRET

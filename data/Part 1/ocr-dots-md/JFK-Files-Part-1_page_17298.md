@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_17298.png
+
+Convert to Markdown16. Special Problems and Commitments:
+
+a. No commitments, expressed or implied, have been made to any LIEMPTY agent by the present Case Officer, except as stated in the project outline and/or in the contracts of GERENDE and SCANTLING.
+
+b. In the event of compromise to the local government of any LIEMPTY agent, KUBARK is morally responsible for doing all within its power, and within the limitations of security, for resettling or otherwise taking care of the LIEMPTY agents.
+
+c. No special benefit commitments have been made to any LIEMPTY agent except those contained in the contracts of GERENDE and SCANTLING.
+
+d. A change of government or political conditions in Mexico will not affect this project. It is a unilateral effort on the part of KUBARK.
+
+CS COPY
+
+G2-6-74/1

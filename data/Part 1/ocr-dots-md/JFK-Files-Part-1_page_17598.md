@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_17598.png
+
+Convert to MarkdownSECRET
+
+KAPOK
+
+Attachment
+TEM-A-12936
+KAPOK-1631
+Page 12
+
+meetings are held at night. All movement in and out of bases by the Case Officers and Principal Agents is done in cars ostensibly owned by agents except in the case of LIVERY where agents are too old to drive. One of the indigenous agents is used to contact LIVERY base. Entrance to bases on foot is made only in great emergencies.
+
+b. telephonic contact concerning the Project and with agents is kept to a minimum and code is used for phone conversations between Case Officers and agents:
+
+c. alternate and emergency signals have been arranged.
+
+d. In general these systems of contact and communication appear to be suitable for the Project and function adequately from a security viewpoint. Locations and times of meetings are changed frequently to prevent discovery.
+
+## 13. Control and Motivation
+
+Control and motivation seem to be based on two factors primarily: ideological and monetary. A third controlling factor would be fear of reprisal from local police should discovery occur.
+
+## 14. Equipment and Support
+
+It is believed probable that a great deal of replacement equipment will be required by the Project during FY 1960 since much of the current equipment installed and working has been in use for the length of the project and since this equipment is no longer being manufactured, replace-ment parts will be unobtainable soon and new units will be required.
+
+## 15. Timetable
+
+LIFEAT has been in almost constant operation since its inception in January 1951 and it is planned to continue it indefinitely.
+
+SECRET
+
+KAPOK

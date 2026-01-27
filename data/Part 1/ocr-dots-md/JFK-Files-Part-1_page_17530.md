@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_17530.png
+
+Convert to MarkdownSECRET / KAPOK
+
+PROJECT TITLE AND PROJECT OUTLINE (PARTS I AND II)
+
+CRYPTONYM LIFE AT CASE OFFICER - Edward P. Sechen
+Edward P. Sechen
+
+ASSISTANT CASE OFFICER - Jeremy L. Niarcos
+Jeremy L. Niarcos
+
+STATION MEXICO CITY CHIEF OF STATION - William C. Curtis
+William C. Curtis
+
+SECRET / KAPOK

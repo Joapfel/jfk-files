@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_16837.png
+
+Convert to Markdown14-00000
+
+CABLE SECRETARIAT DISSEMINATION
+
+ASSIFIED MESSAGE TOTAL COPIES ROUTING AND FOR TOTALS SEEN BY
+
+<table><tr><td rowspan="5"><b>PERSON UNIT NOTIFIED</b><br/>WH<br/><br/><b>ADVANCE COPY</b> [X] ISSUED [ ] SLOTTED<br/><b>WITH A/ASB</b><br/>BY: D. AT. 1635 E<br/><b>DISSEM BY</b> 12 PER<br/><b>ACTION UNIT</b><br/>ClW18<br/><b>ACT NO</b><br/>668</td><td colspan="5"></td></tr><tr><td colspan="4" style="vertical-align: top;"><b>... : SECRET:</b> <b>• GROUP 1 •</b><br/>(When Filled In) [ECHOES TO AIR BATTERIES DO COMBATING AIR BATTERIES TO BE DECALIBRATED]<br/><b>REPRODUCTION OF THIS COPY PROHIBITED</b></td><td style="text-align:right; vertical-align: top;">1 5<br/>2 6<br/>3 7<br/>4 8</td></tr><tr><td colspan="4"></td><td style="vertical-align: top;">PRECEDENCE</td></tr><tr><td colspan="4"><b>FILE VR</b><br/>ClAN c185 c11</td><td style="vertical-align: top;"></td></tr><tr><td colspan="5"></td></tr></table>
+
+SECRET 15150Z JAN 73 STAFF
+
+CITE MEXICO CITY 22308 (ROSTEDT ACTING)
+
+TO: IMMEDIATE DIRECTOR.
+
+RYBAT REDLEG KDFACTOR
+
+REFS: A. DIRECTOR 558750
+B. MEXICO CITY 22307 (W80642 D)
+
+807463
+
+<table><tbody><tr><td colspan="3">DOC. MICRO. SER.</td></tr><tr><td colspan="3">APR 1 01973</td></tr><tr><td colspan="3">MICROFILMED</td></tr></tbody></table>
+
+<table><tbody><tr><td>AS-DT</td></tr><tr><td>AS</td></tr><tr><td>WPD</td></tr><tr><td>#</td></tr><tr><td>uw/1</td></tr></tbody></table>
+
+1. APPRECIATE YOUR RAPID RESPONSE PER REF A. SUBJ REFS HAS OTHER COMMITMENTS WHICH PRECLUDE HIS OCCUPANCY THIS APARTMENT. HE WILLING SIGN LEASE, BUT IN VIEW HIS POTENTIAL FOR OTHER OPS WE ARE RELUCTANT HAVE HIM DO THIS. THUS, WE HAVE INSTRUCTED KDADAGE-42, IN ALIAS, TO TRY AND TIE UP APARTMENT LONG ENOUGH TO ENABLE US FIND SUITABLE CANDIDATE TO LIVE IN APARTMENT AND PERFORM DESIRED OPERATIONAL TASKS. THIS MAY BE FEASIBLE SINCE PRESENT APARTMENT TENANTS DID NOT FOLLOW THRU ON ORIGINAL PLANS TO VACATE 14 JAN. WILL ADVISE DEVELOPMENTS. VIEW ABOVE, YOU DO NOT NEED TO AMEND POA AS REQUESTED REF L.
+
+2. FILE: 52-6-74/3; 201-906628. E2, IMPDET.
+SECRET
+
+CS COPY
+
+SECRET
+
+50-6-74/3
+15'09 JAN 1973
+
+D201-906628
+
+JAN 1973

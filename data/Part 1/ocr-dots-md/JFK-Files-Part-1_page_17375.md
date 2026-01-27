@@ -1,0 +1,66 @@
+# JFK-Files-Part-1_page_17375.png
+
+Convert to Markdown14-0000
+
+CLASSIFIED MESSAGE
+
+ORIG: John M. Whitten:J:
+UNIT : WH/3/Mexico
+EXT : 5940
+DATE : 19 Oct 62
+
+<table><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+TO : MEXICO CITY
+
+FROM: DIRECTOR
+
+CONF: C/WH 5
+
+INFO: AARP, S/C 2
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+9Oct62 21 10Z
+
+SIG CEN
+
+DEFERRED
+
+R ROUTINE
+
+OUT89106
+
+TO MEXI INFO CITE DIR 43543
+
+RE:AT
+
+NO "OFFICIAL" REACTION YET FORMULATED HERE, BUT AS ODACID CABLES AND DISPATCHES FROM VARIOUS POINTS ON LOPEZ MATEOS LEFT ITINERARY FILTER IN TO EMBASSY, MEXI ITSELF MAY WANT TO DISTILL SOME MEANINGFUL AND HELPFUL "COMMENT" WHICH COULD BE PASSED TO LIZLEGANT AS THE "OFFICIAL" REACTION.
+
+END OF MESSAGE
+
+TO: Assistant Platoon leader trip to FL & to his Speeches at various places.
+
+WH/COPS
+
+JOHN H. KING
+C/WED
+
+JO NED P. HOLMAN
+C/WH/3
+
+COORDINATING OFFICERS
+
+SECRET
+
+GROUP I
+Excluded from automatic degrading and declassification
+
+AUTHENTICATING
+OFFICER
+
+RELEASING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

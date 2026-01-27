@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_17180.png
+
+Convert to MarkdownSECRET
+
+- 3 -
+
+A. Fixed Basehouses
+
+1. LIMITED
+
+Throughout the past project year the LIMITED installations provided daily photographic coverage and physical surveil-lance of the main gate of the FJSTEAL installation. In addition, the LIMITED base provided for a fixed radio dispatching station which was used to support the LIEMBRACE surveillance team. Due to the stringent security measures instituted in the immediate vicinity of the FJSTEAL instal- lation by local security forces, normal stake-outs by this unilateral team are precluded. However, with the radio dispatching support from the LIMITED radio base, which allows the LIEMBRACE team to work from adjacent safe areas, secure surveillance coverage of this target can be provided. During the 12-month period from 1 November 1966 through 31 October 1967, the LIMITED base provided 1,834 frames of operational photographs. In addition, the LIMITED base provided over 2,500 pages of physical surveillance reports.
+
+2. LILYRIC
+
+During the project year under review, the LILYRIC installation provided extensive photographic and fixed visual surveillance of the front of the FJSTEAL installation. The LILYRIC base provided the majority of the operational photographs produced by the LIEMPTY project. During the 12-month period cited in the LIMITED section above, the LILYRIC base provided 12,137 operational photographs and several thousand pages of physical surveillance reports covering the daily move- ments of all FJSTEAL officers.
+
+3. LICALLA
+
+During the above cited 12-month period, the LICALLA instal- lation provided photographic and physical surveillance coverage of the back of the FJSTEAL installation and its garden and patio area. This coverage provided 4,917 indi- vidual photographs as well as numerous surveillance and observation reports. It should be noted that the LICALLA base allows Station Mexico City to observe the FJSTEAL personnel during their off-duty and recreational hours. The LICALLA installation has become the most valuable of the three, not only because of its unique vantage point but also because of the perceptiveness of LIEMPTY-9. His surveil- lance reports have frequently given us valuable insight into personal associations among the FJSTEAL personnel and have enabled us to introduce greater flexibility and effectiveness into the entire LIEMPTY operation.
+
+SECRET
+
+SECRET
