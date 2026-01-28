@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_18184.png
+
+Convert to Markdown316 RLF/SW/ DFT W
+
+CLASSIFIED MESSAGE
+
+DATE : 31. JUL 59
+
+TO : DIRECTOR
+
+FROM : MEXICO CITY
+
+ACTION: WH 5
+
+INFO : DO'S, SSA, OL 3, S/C 2
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+AUG 1 2057Z 59
+
+ROUTINE
+
+IN 48642
+
+| TO | DIR | INFO | CITE |
+|---|---|---|---|
+| RE HMMS 761 | | | |
+| HMMS 737 | | | |
+
+REQUEST MY AUTHORITY FOR LOCAL PURCHASE NOT EXCEED $3500 OF FOURTH LIEMPTY
+CAR AUTHORIZED BY REF B. WILL BE USED BY LIVERSEY SURVEILLANCE TEAM.
+
+S-E-C-R-E-T
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

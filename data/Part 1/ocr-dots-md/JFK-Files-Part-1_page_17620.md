@@ -1,0 +1,57 @@
+# JFK-Files-Part-1_page_17620.png
+
+Convert to MarkdownSECRET-KAPOK
+
+Attachment to INM-4-10198 KAPOK-llbA
+
+LIPSTICK PROJECT OUTLET - PART II
+
+17. Estimated Costs
+
+The following costs are estimated for FY 1959. All figures are in U.S. dollars per year. It will be noted that owing to the rise in the cost of living and especially to much higher rents and to intended expansion, LIPSTICK costs will be higher than in the past.
+
+### a. Salaries
+
+#### (1) Staff and Contract Personnel
+
+Ralph B. RAFANIELLI, OS-7 (promotion to OS-9 in the mill)
+* Salary: $5985.00
+* Quarters: 2100.00
+
+Daniel K. BRUMPH, OS-12
+* Salary: 8010.00
+* Quarters: 2100.00
+* Travel & TTY to border to renew tourist visa & to Washington, D.C. to pick up rent/sta papers: 400.00
+
+Trenalator (LINERICE), OS-12 not yet named (This position has been indicated in view of the hope that the project will be able to live-monitor at least a portion of LINERICE traffic. There is a staff agent slot available under this project).
+* Salary: 8000.00
+* Quarters: 2100.00
+* Transportation: 1000.00
+*薪 move: 1500.00
+
+Janet N. DELACOUR (2.02/hr): 4000.00
+Radine M. CHARBUSEK: 3000.00
+Leona C. GANDARA: 4000.00
+Carol K. ZINSWISTER - Salary: 5000.00
+Francis M. HENZIE - Salary: 2500.00
+Alice N. CAILLETAU - Salary: 2425.00
+Olivia N. GLATMAN - Piece work: 4200.00
+Louise J. MACALNO - Salary: 1850.00
+
+(Will be included under LIPSTICK Project when it is renewed 1 September 1958)
+TOTAL: 56,375
+600hr.00: 55,375
+600hr.00:
+
+#### (2) Field Agents
+| | Presently | Possible Raise |
+| :--- | :--- | :--- |
+| LIPSTICK | 5264.22 | |
+| LINERICE/1 | 2209.77 | |
+| LINERICE/2 | 1141.15 | |
+| LIPSTICK's helper | 1144.12 | |
+| LINERICE/6 | 960.77 | |
+
+SECRET-KAPOK
+
+SECRET-KAPOK

@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_17912.png
+
+Convert to MarkdownAIA
+
+: Chief-of-station, Mexico City
+
+* (Chief, WND)
+
+- Administrative/L17817
+- Personnel for A.E. Reporting
+
+9 FEB 1959
+
+RJGCS; RMA-9069, 31 December 1957
+
+ACTION REQUESTED; Some, for information only.
+
+1. The station's request for the as-Is mean of either a P.S. or T.T. clerk-typist experienced in SEDF reporting has been discussed with the SM division. Both the SF and TH divisions recognize the station's need for such an individual, however, it is at this time inapplicable to acquire an additional slot for the PCH assignment of an employee and it is not believed feasible to assign individuals on an extended C.Y basis.
+
+2. Although the rotational field training program proposed by the station would appear initially to be an excellent way to train the ref-ranod pilot, Headquarters believes that the long-range effect would not achieve the desired results. This opinion is based primarily on the lack of qualified Headquarters employees able to do the work at a 1 service - cent. Also significant is the fact that a large number of the 11 slots are normally available to treat officers - A temporary personnel plan for the present personnel ceiling.
+
+3. The SM division has accepted that they would be able to provide SDOT&P training to the next competent lay employee scheduled for its assignment to the Station. This, of course, will not increase the station's it would only transfer an employee from one station job to another. Should you have any questions along this line, please advise Headquarters.
+
+1 - PM/II/Chrono
+1 - RI
+
+27 January 1958
+
+| | |
+| :--- | :--- |
+| **Distribution:** | J. C. KING |
+| 3 - Mexico City | CHIEF, WHD |
+| 1 - M/Mailroom | COORDINATES WITH: |
+
+W/Support WH/II/Mexico/LPuckett/jck
+
+SR/TO
+
+J. C. KING, C/WHD
+
+R.M. CARLIGAN, C/M/III

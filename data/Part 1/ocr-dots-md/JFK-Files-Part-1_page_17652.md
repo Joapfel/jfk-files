@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_17652.png
+
+Convert to Markdown16 October 1957
+
+**Distributions:**
+
+3 - Mexico City
+1 - WH/Mailroom
+1 - WH/Support
+1 - WH/Logistics
+1 - TSS/ASD
+1 - WH/III/Chromo
+✓ 1 - RI
+1 - Subject
+
+WH/III/Mexico/LDPuckettja
+
+WH/Support B.Witt 50-6-32/1
+WH/Logistics E. Pilleman
+TSS/ASR Mr. Bertley P.M. Rasmussen
+R. DEHIGREN, C/WH/III
+
+J. C. KING, CHIEF, WHD
+
+for the

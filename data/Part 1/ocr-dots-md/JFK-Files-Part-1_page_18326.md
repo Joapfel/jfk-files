@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_18326.png
+
+Convert to MarkdownSECRET
+
+FORM NO. 45 (Part I)
+1 NOV 55
+
+REPLACES PREVIOUS EDITIONS
+OF FORMS 45 AND 45A WHICH
+ARE OBSOLETE
+
+Performance
+
+(4)

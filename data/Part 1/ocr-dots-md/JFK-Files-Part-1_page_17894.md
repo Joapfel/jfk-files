@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_17894.png
+
+Convert to Markdown<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>TO</td><td>Chief, V.P. Station</td></tr><tr><td>INFO</td><td>Chief</td></tr><tr><td>FROM</td><td>Chief of Station, Mexico City</td></tr><tr><td>SUBJECT</td><td>Cormac Unibath Six Minutes Photographic Developer</td></tr><tr><td>ACTION REQUIRED</td><td></td></tr><tr><td>REFERENCE(S)</td><td></td></tr></table>
+
+1. Enclosed is a clipping advertising a UNIBATH developer, one step photo developing solution, that replaces the three separate solutions now used by the operational darkroom technician who processes the take from the LIMERICK basculebox.
+
+2. We now have a time lag of one to two weeks in receiving the take from these basculeboxes. Most of this time lag is caused by the lengthy developing process in use. If there is anything to the UNIBATH developer, its use in our outside darkroom would be a decidedly worthwhile investment. Inquiries at the local photographic stores revealed that they had never heard of this product. It is requested that a sample of this developer be sent to the Mexico Station, marked For Quarrel OUSLESS so that it will reach the proper basehouse processor. If it proves successful, arrangements will be made through a local firm to place an order for the quantity necessary to meet the operational requirements.
+
+Willard C. CURTIS
+
+RBR/vps
+23 May 1959
+
+Distribution
+3 WH Division
+2 KURIOT
+
+USE PREVIOUS EDITION
+REPLACES TOOLS
+THIS IS A草和 5/29
+W-ATE ABSOLUTE
+
+CLASSIFICATION
+SECRET
+
+☐ CONTINUED
+
+PAGE NO

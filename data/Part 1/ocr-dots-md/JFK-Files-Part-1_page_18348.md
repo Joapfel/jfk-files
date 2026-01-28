@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_18348.png
+
+Convert to MarkdownCONFIDENTIAL
+
+"(e) The term 'unauthorized person' as used herein shall be construed to mean any person who, or agency which, is not authorized to receive information of the categories set forth in section 1 of this Act, by the President, or by the head of a department or agency of the United States Government which is expressly designated by the President to engage in communication intelligence activities for the United States.
+
+"Sec. 3. Nothing in this Act shall prohibit the furnishing, upon lawful demand, of information to any regulatory constituted committee of the Senate or House of Representatives of the United States of America, or joint committee thereof."
+
+I, William P. BURKE, do hereby certify that
+I have read, and thoroughly understand, Public Law 513, quoted above.
+
+Signed: JmpBurke
+
+Date : 6 Nov. 1950
+
+Witness : Juan M. Latorra
+
+Position: Communicator, N.D.
+
+Date : 6 November 1950
+
+CONFIDENTIAL
+
+14-00000
+
+CONFIDENTIAL

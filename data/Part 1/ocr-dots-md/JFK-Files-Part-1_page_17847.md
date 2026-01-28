@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_17847.png
+
+Convert to MarkdownSee HMMT 8049 of 30 June 67 which requests info on Transcribing Machines.
+
+says LIFESTAT is presently using EKOTAPES for playback and they are reaching a point of no return as far as maintenance goes. Requests two trial machines per TM 918885 of 26 June 67 and if they perform satisfactorily, station will probably order 12 to 18 of them sometime in future, primarily for transcribing (LIENVOY & LIFESTAT) (for conversion if US project advance backed by a position for two ALs).

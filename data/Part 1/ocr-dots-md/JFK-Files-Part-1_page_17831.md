@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_17831.png
+
+Convert to Markdown14-0000
+
+# 2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+SECRET
+
+MATERIAL, PLACED AT US DEARLY DELIVERED BY
+HOUSE SELECT COMMITTEE ON ASSASSINATION STAFF MEMBERS
+
+FILE TITLE/NUMBER/VOLUME: KDIango Support (Vol 2)
+50-6-32/2
+
+INCLUSIVE DATES: 9 Jul 1957 - 6 Aug 1968
+
+CUSTODIAL UNIT/LOCATION: LA/DOC
+
+POOL: 3034
+
+DELETIONS, IF ANY:
+
+<table><thead><tr><th>DATE<br>RECEIVED</th><th>DATE<br>RETURNED</th><th>REVISED BY<br>(PRINT NAME)</th><th>SIGNATURE OF<br>REVISING OFFICIAI.</th></tr></thead><tbody><tr><td>29 JUNE 28</td><td></td><td>DAN HARDWAY</td><td>Dan Hardway</td></tr><tr><td>27 JULY 28</td><td></td><td>DAN HARDWAY</td><td>Dan Hardway</td></tr></tbody></table>
+
+NO DOCUMENTS MAY BE Copied or removed from this file.
+
+Support,
+July 19-20
+G,
+
+RETIRED
+DEFENSIVE
+
+KDMANGO
+
+50-6-32/2

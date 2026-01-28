@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_18415.png
+
+Convert to Markdown9 December 1953
+
+REDACTED FOR SECRETARY, O/C/MR
+
+SERIE: B
+
+STATUS: 8.14.2021 16:14:58
+
+DIVISION: DIV 1 & 2
+
+1. The A/2 Division and the Chief of Staff, Sirs (S.M.S.H.), attached) recommended the promotion of Lieut. General Dde to the rank of Major in the Air Force.
+
+2. Mr. H. E. R. was last proposed 16 January 1953. On 27 February 1953 he arrived in Sirs to serve as the Senior Air Officer in the A/2 field area, his present assignment. In this position he has continued to display qualities of leadership, initiative, imagination and seamanship which resulted in his rapid rise in the Army.
+
+3. The very faults of Mr. H. E. R. - youth in relation to his general abilities and the fact that promotion to his present level has been rapid, earned the Division and the Chief of Staff, Sirs to hold until this time a recommendation for his promotion which was submitted in June 1957. His careful consideration has eliminated what is called only in Mr. H. E. R. meaning remaining of the recommended promotion, but his elevation to the higher grade will be in the broad interests of the General Staff and most desirable Division requirements for a senior officer at the CH-15 level.
+
+CHIEF OFFICER
+Airly Chief, A/2 Division
+
+Distribution:
+* Cig A & B - Mid
+
+COPY: 1 of 1

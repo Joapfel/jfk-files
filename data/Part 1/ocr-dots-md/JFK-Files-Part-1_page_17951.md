@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_17951.png
+
+Convert to Markdown<html><body><table><tr><td>SECRET</td></tr></table></body></html>
+
+<table><thead><tr><th>CONTINUATION OF DISPATCH</th><th>CLASSIFICATION NO.</th></tr></thead><tbody><tr><td>and on occasion has caused some minor problems. It is believed that these problems are temporary and will be eliminated when WILSTED has time to by-pass this cut off switch.<br>The new Annex VI (see reference A) was placed in full operation on 23 October and presently provides coverage of four target lines.<br><br><u>F. COVERAGE</u><br>During the month of October 1962, LIFECAT covered a total of 25 target lines. Coverage by target was as follows:<br><ol><li>Soviet Bulletin Office</li><li>Svyatoslav F. KUZNETSOV</li><li>Aleksandr G. SIDOROV</li><li>and 5. Polish Embassy (two lines)</li><li>6, 7, 8, 9, and 10. Yugoslav Embassy (five lines)</li><li>11, 12, and 13 BEKNAVE/BECHICK operation</li><li>Juan Jose AREVALO Bermejo</li><li>Peter WATKINS</li><li>AMSTET-1</li><li>and 18. AMSTRUT operation</li><li>Psychiatrist attending AMSTRUT-2</li><li>Carlos ILLESCAS</li><li>Suspected PCM safehouse</li><li>LIVESTOCK-2</li><li>Albert (Margaret) MALTZ</li><li>Charles SMOLIKOFF (aka SMALL)</li><li>Noah SEBORER</li></ol></td><td></td></tr></tbody></table>
+
+<table><tr><td colspan="4"><strong>G. PERSONNEL</strong></td></tr><tr><td colspan="4">LIEMBRACE-8 was reintroduced to LIFECAT in order that he may brush up on its daily operation. LIEMBRACE-8 will temporarily replace David M. WILSTED as LIFECAT technician during the latter's home leave December 1962 and January 1963.<br>Steps were initiated to amend the clearance of LIEMPTY-19 for work as a part time LIFECAT processor/translator.<br>2. During the reporting period, LIFECAT operation provided a total of 62 reels of raw take from ACGM lines to local ODENVY for their processing. In addition, a number of memos were prepared by the Station for passing to local ODACID and ODENVY based wholly or in part on LIFECAT provided material.</td></tr></table>
+
+Distribution:
+* 3 - C/WHD
+* 2 - Files
+
+<table><tr><td>SECRET<br/>USE DAILY OR DATED<br/>REPLACES FORMS<br/>52255 SYSTEM AND FT<br/>WHEN FILE IS BROKEN<br/>CLASSIFIED<br/><b>SECRET</b></td><td><div style="text-align: center;">[Image of SECRET sign]</div></td><td><input type="checkbox" id="continued" name="continued"/>(Continued)<br/>THREE</td></tr></table></body></html>

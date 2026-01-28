@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_17841.png
+
+Convert to Markdown25 April 1968
+
+MEMORANDUM FOR: DDP/MPS
+VIA: WH/LOG
+SUBJECT: Project LIFEAT - Request for Transportation Vehicle Allowance (TVA)
+
+1. It is requested that a transportation vehicle allowance under Project LIFEAT be authorized to cover the use of 5 POVs;
+
+* one for LIFEUD/3 in the amount of $24 a month or $288 per annum
+
+* one for LIFEUD/5 in the amount of $24 a month or $288 per annum
+
+* one for LIFEUD/7 in the amount of $40 a month or $480 per annum
+
+* one for LIFEUD/8 in the amount of $40 a month or $480 per annum
+
+* one for LIFEUD/24 in the amount of $40 a month or $480 per annum
+
+2. Funds for the above POV allowances in lieu of reimbursement by the mile are already provided in the project.
+
+W. J. Kaufman
+Chief, WH/1
+
+LIFEAT Copy
+
+<table></table>

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_17915.png
+
+Convert to MarkdownSECRET
+
+20 December 1967
+
+CONCEALMENT - BOOKCASE
+Work Order 2176
+(CDB-106)
+
+A bookcase 4' x 48" x 12" was made with a concealment area. The bookcase was made from pieces and painted flat black. The concealment area is 1-5/8" x 10-1/2" x 46" and is located under the bottom shelf and covered by the kick panel.
+
+The kick panel must be opened in order to gain access to the concealment area. This panel is held in place with a positive locking device. The locking device is located under the front corner of the bottom shelf. It is located beneath a filled nail hole. The locking device is released by inserting a table knife blade into an similar piece of metal - between the bottom shelf and kick panel and pushing toward the rear of the case, a distance of approximately 3", at the above-designated point. To facilitate inserting the blade on a loaded shelf, lift upward on the center part of the bottom shelf until the lock releases. When the lock is released, the kick panel may be moved by推ing inward on the bottom edge of the panel. After the panel has been moved slightly withdraw the knife so that the under face of the shelf is not marked; then complete opening the panel. It is important that the kick panel not be forced beyond its maximum opening point approximately 70 degrees from vertical.
+
+To close the panel, return it to its original position by pushing inward on the top edge until the lock snaps into place. Then, by pulling inward on the bottom edge.
+
+SECRET

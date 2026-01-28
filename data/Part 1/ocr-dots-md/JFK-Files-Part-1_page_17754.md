@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_17754.png
+
+Convert to MarkdownESTA JANA DOMINGUEÑA.- 25-77-85.
+
+4 mayo 66.
+
+L2-NO-02G-
+
+1113-1236 hrs.-
+
+OU-
+
+- Bleguado.- 06-
+
+06-
+
+Salida al 18-30-40.- 1115 hrs.- (Visita y Cía)- MD pido-
+comunicar a repeticionista. IF dice que est* encienda la *línea
+y que si es, era. NO que ust* biaa.- DesPUes cuelga.- 77-
+
+77-
+
+Entrada,- 1125 hrs.- IF con MARTINA para saludarla y comentar
+sobre el mal tiempo que hay en la ciudad y quedan de verse, no
+tanla.-74-
+
+94-
+
+Entrada.-1130 hrs.- IF por el Coronel JORGE MORENO. MARTHA
+dico que no ha llegado.- 97-
+
+97-
+
+Entrada.- IF por el Coronel JORGE, MARIJA dice que no ha
+llegado y solo está FERNANDO.- 102-
+
+102-
+
+Salida al 18-30-40.- 1133 hrs.- (Visita y Cía)- NO otra vez
+por el departamento de Trabajo. NF dice que es; ere un
+pagoento.- desPUes cuelga.- 146-
+
+146-
+
+Salida al 18-30-40.- 1137 hrs.- (Visita)- NO quiere reportar
+que el refrigerador que compara tiene el foto fumado.- IF dico
+que es; ore un momento.- cuelgan.- 190-
+
+(hecha uno)

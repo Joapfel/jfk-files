@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_17804.png
+
+Convert to Markdowncont.
+
+**JUDY:** Si, ya se, aunque para uno es mejor.
+
+**AZ:** A今日, siempre yo invito a los agregados culturales, a los edificios. Antes siempre lo vi, anónimo no van. Creo que esta actividad les va a hacer perder a institución exiliánco-Cubane.
+
+**JUDY:** Cosa no van a perjer, pero no te digo la realidad dejes, presidenta a Carlos昌ham regreso de tabaco que le juzgo la hatta y o sello de al gente, creo que seran 40 o algo así, encima eso.
+
+**AZ:** Y ya te digo, de al final, directamente bueno ni su cara, ni lo anade, norte de oficio me saca, yo de paso de cara persona y te digo, sigo que pensáis usted que si in- gine son parte de conversa, salta, cedo si los redecen pagar, incluyendo je ir de allí donde siren al muy octavio con el chico disyuntivo, j st acó y lo veo que fiera con disyuntivo, mientras 4 betelitas de pan, que son las que pueden salirse de allí yljalı as llegan tanAViad, salen en 90. pozo acanalado arriba de que son cuatro filas. Cua una. Y yo acorde justando a lo que se pueden evitar porque yo no soy más arriba en"condi- cluísos de envío... 50 pesos de regalo como tu lo pido con total gratificación por este JUZILO, yo lo llame al dios de la cosa de 20 miles que yo tengo quePedir si el año que entra y yo a principio, yo voy a tener un cuaqndos, any- agüe para trabajar, claro que a mi tía tiene yo puedeEKener el cama, abrimos acá dan capulina y chester, el día que no, le adoro lo verde y se tebo, yo no puedo saber con qué deje lo intenta hace pocos días si al ayer le decía tanto pelvo que no me atrovo a invitarte a coor.
+
+**JUDY:** Bueno, Vamos a ver cuál de now e coo de toda ánimas Adelina,
+
+**AZ:** Sf ye te bioge lo Fugue
+
+**JUDY:** satisfecho que kate r de verdud y verned, sí se aviaan porque y: salva en Vacilaciones.
+
+**AZ:** Cules vacilaciones? Te ho venecado aldo en i. ac.ela, pote más sí, te que podo hacer lo que te quiera, el que Vamos, porque de out. EsaRA no nos :odre- no ver y a al ay toma la mano y lento pelvo que no se atrajo a invitarte a coor.
+
+**JUDY:** Ya tengo aquí a un extranero, y por cierto ya te heo porque lo tengo que estar sentado, es nueva, y uqy extra me estl ca- llonno, voy a cenar un poco porque ya no ahorntaba, ] años y audio de estar eso mitad de ciro.
+
+**AZ:** Yo pregunto como para que se trajesen, idas a que hermano no pongo a hacer las cosas. Salgo a la hora de la mañana regrese a las 3, comas y con esto del ido son las 2 de la mañana y yo no me he dormido, llamece al infante.
+
+**JUDY:** Bueno, ac me da un oráu a su marfa, afirma sue preguntas por ella.

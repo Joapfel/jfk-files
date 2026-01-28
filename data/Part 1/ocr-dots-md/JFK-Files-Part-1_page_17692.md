@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_17692.png
+
+Convert to Markdownas banking transactions, landscaping activities, evidences of internal construction, etc. Examples of this type of report are M-2375 and M-2448.
+
+### f. Military Activities of the Soviet Embassy
+
+M-2391 and M-2450 are examples of monthly reports of Soviet contacts with Mexican military circles and are derived almost entirely from LIEAT. They reflect the identities of the local military figures with whom the Soviets maintain contact and most cases contain at least some data on the reasons for the contact. These reports are of considerable interest to American service attaches in Mexico.
+
+### g. Goods and Services of the Soviet Embassy
+
+M-2452 is an example of periodic reporting on the persons and institutions providing goods and services to the Soviet embassy. These reports have been of particular interest in developing the LIESTA project and resulted in the making of a contact in the cleaning business through which this station obtained entry for one of its agents into the embassy. (Of MI-4-6072).
+
+### h. Personality Reports on Soviet Officials
+
+MI-4-6051 is a sample of a series of personality reports on Soviet officers prepared mainly from LIETNAM materials. LIETNAM reflects varying amounts of information on the Soviets. Some are frequently heard and much data accumulated on their contacts, marital situations, official duties, etc. These data have been used on occasion for studying possible defection pitches and will probably be used more in the future. In the case of the current Soviet Naval Attache, Srihari IMPORIS, his habits were studied mainly through LIETNAM and it was made that his wife might be vulnerable because she was having anorous relations with one of her husband's subordinates. (MIU 524; MIU 495; MIU 447).
+
+## i. Movements of Soviet Officials
+
+The arrivals and departures of Soviet officials have more often been ascertained through LIETNAM than through any other source. The station has been able to advise of movements out of Mexico through LIETNAM in almost every case where such travel took place in the past five (5) years. Frequently the station has received notice of movement long before it took place by studying contacts of the Soviets with local clothiers, etc. since it has been the Soviet custom to stock up on clothing and various luxuries prior to leaving Mexico. The arrivals of many Soviets have been learned of only through LIETNAM, even in a number of cases when the Soviets travelled
+
+Attachment to M-1-A-7063
+9/56
+5 June 1957

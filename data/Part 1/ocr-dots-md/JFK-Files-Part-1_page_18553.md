@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_18553.png
+
+Convert to MarkdownCONFIDENTIAL
+
+SECURITY OFFICE
+Investigation Report
+
+*CONFIDENTIAL*
+
+Date: October 8, 1947
+Number: 32814
+
+Subject: HARVEY, William King
+
+To: CPD (2)
+
+1. Investigation directed by: RRC
+
+2. Sources of information: OSO
+
+3. Remarks
+
+4. Recommendation:
+
+**SECURITY APPROVAL RECOMMENDED. THROUGH SUBJECT TO REVIEW OF DEROGATORY INFORMATION AT SOME TIME. INTERVIEW WAIVED.**
+
+PLEASE DO NOT DELAY UPON DUE DATE. THIS APPROVAL BECOMES INVALID 10 DAYS FROM ABOVE DATE.
+
+By RC FEO
+Security Officer
+ROBERT H. CUMMINGHAM
+
+CC: Mr. Judson H. Lightsay
+
+CONFIDENTIAL
+
+FORM NO. 38-101
+DEC 1948
+
+(1794)

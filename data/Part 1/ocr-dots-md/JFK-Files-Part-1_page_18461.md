@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_18461.png
+
+Convert to MarkdownCONFIDENTIAL
+
+22 May 1963
+
+Mr. William K. Harvey,
+
+Dear Bill,
+
+I wish to express my real appreciation for the time you have devoted to Agent Panel affairs. Your operational experience and personal knowledge of many of the individual staff agents and career agents have provided a sound basis for your contributions to Panel decisions concerning their promotions and reassignments. I look forward to the time, after your overseas assignment, when we may have the pleasure of your service in a similar capacity.
+
+CONFIDENTIAL

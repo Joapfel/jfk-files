@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_18080.png
+
+Convert to MarkdownSECRET/KAPOK
+
+REQUEST FOR PROJECT RENEWAL
+
+Project LIONION
+Field Case Officer Howard A. TRECKLER
+
+Station Mexico City
+Chief of Station Willard C. CURTIS
+
+NO FIELD INSPECTION.
+
+CS COPY
+
+SECRET/KAPOK
+
+50-6-122/1
+
+Liside ATT.64 HMM 30793
+R. Side ATT. 22& HMM 30793

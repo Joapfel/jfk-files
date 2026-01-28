@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_17734.png
+
+Convert to Markdown14-0000
+
+183-
+
+... la vean. TAPIA acierta que MARCIO tiene mes y medio en Santo Domingo. GRULLON creía que la semana pasada lo había venido para aca. TAPIA que no que sigue allá y que hay como diez o doce compañeros dominicanos a las conferencias que hay y tiene compromisos con cenas, reuniones, etc. y que verán la forma de reunirse pronto. Después HD MAZO (? ) saluda a FRANK GRULLON CONDERO. Este dice que la zanda saludo VICTOR y que anoche llamó. MAZO dice que hoy recibió una carta de FELLO y le dio que tu venias para aca y que iba a tratar en Goberna- ción lo de la visa. GRULLON dice que ya se la dieron y ya los avisó por cable y que hoy van a tener la exhibición de la - película en el Condominio de los Productores de la avenida División del Norte a las hojas de la tarde. MAZO tratará de estar allí pues conoce al lugar. GRULLON que trate de llevar a todos los que pueda puea es una película "muy nuestra" y si algo se ofrece estoy en el Hotel Reforma. HD es el Coronel MARCOS JORGE HIGLEYO y dice que también el lo puede llamar a su casa al 49-12-92. GRULLON que está bien.- 183-
+
+Entrada,- 12:08 hrs.- NIGNON saluda a TERRE y pregunta por MARTINA. Echa dice que acaba de salir y le avisa que ya está viviendo de nuevo en los apartamentos Carmen pues antes vivió dos años allí. NIGNON conoce a la dueña de los apartamentos o sea de la CARMEN y lo mejor que tiene TERRE es que tiene su - tranquilidad de espíritu y no es espectadora de nada y además eros muy inteligente para llevar bien las cosas. TERRE da las gracias y dice quo presisamente por eso lo hizo. NIGNON ride diga a MARTINA a su regreso, que le llame y que desea a TERRE que reúlvan sus problemas de sus hijos y se vuelva a casar y cambia de tema y dice que ella se va a fin de mes para la patria. TERRE ( noja tres) ...

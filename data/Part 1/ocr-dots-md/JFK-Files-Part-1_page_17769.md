@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_17769.png
+
+Convert to Markdown103-
+
+Salida al 13-74-92.- 0925 hrs.- MONTENESIA pregunta por su inner ZANCRATI para saber si se pueden ver. Este dice que mientras siga actuando como niña y siga creyendo en: los Santos Reyes no volverá a salir con ella y que ya es una mujer que debe de hacer las cosas por sí misma. MONTENESIA se enoja y le dice hasta luego.
+- 126-
+
+126-
+
+Salida sin contestación.- 136-
+
+136-
+
+Salida el 33-01-80.- 0931 hrs.- NO pide a MP MARIA DE LUNA que anote en su libreta que voy a ir a la Tribujada Americana, luego a la Doriniana y después de la Precuraduria. MARIA que esté bien.- 143-
+
+143-
+
+Entrada.- MONTENES saluda a MARINA y dice que tiene un trabajo que terminar antes del día 25 porque se quiere ir para el día 23 "allí". MARINA se alegra. MONTENES invita a MARINA y a TERCE FEMÁ a conocer hoy un name de platinatos.. - Arbanas aceptan.- 168-
+
+168-
+
+Salida el 25-30-82.- 1011 hrs.- corriendo.- y bocina descolgada.- 160- (Pasa elир. la Comuna)- MARINA precura por el señor VIVAL para avisarle que hace tres días tiene el dinero de la rente del cuarto. VIVALord standard recogerlo con su recibo.- 204-
+
+204-
+
+Salida.-(Información)- MARINA por el número de Agua Electro-para. IP que es el 33-13-00.-- 209-
+
+209-
+
+Salida el 33-13-00.- 1017 hrs.- equivalido.- con Electro-lug.- después dicen que us 46-28-30.- Y luego MARINA hace pedido de agua electrónica.- 1020 hrs.- 245-
+(hoja doo)

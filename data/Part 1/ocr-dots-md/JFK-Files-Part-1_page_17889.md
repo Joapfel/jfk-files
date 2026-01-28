@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_17889.png
+
+Convert to MarkdownFinance Division
+
+WU/B&P
+WU/3/Mexico
+
+Ralph B. RAPANELLI
+
+LIPAT
+
+27 Dec 59 - 19 Mar 1960
+
+Agent's Bank Account
+
+R.M. DAILGREN, C./25/3

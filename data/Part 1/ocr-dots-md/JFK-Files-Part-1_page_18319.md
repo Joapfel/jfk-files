@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_18319.png
+
+Convert to Markdown<table><tr><td>4257</td></tr></table>
+
+14-00000
+
+APPLIC. JON FOR FEDERAL EMPLOY. ENT
+U.S.C. COMMISSION
+
+<table><tr><td colspan="4">STRAND, von 37-June 1964.</td></tr><tr><td colspan="4">U.S.- SERVICE COMMISSION</td></tr><tr><td>MTNR</td><td colspan="3">I, completely. I write this print for your information only and to enable the Civil Service Commission to determine if you are qualified for a position in the Federal Government. Be sure to mention the exact title and other titles required by law. Notice the date with which you will be admitted into the service. (If applicable.)<br/>[Signature]</td></tr><tr><td colspan="4">ANSWERING ALL THE QUESTIONS IN THE APPROPRIATE CASH REGULARLY<br/>PLEASE ATTACH IF NEEDED</td></tr><tr><td rowspan="8">ANNUAL CHECK NO. 15030409</td><td>1. Name of examination, or kind of test applied for:</td><td></td><td></td></tr><tr><td>2. Optional subject (if mentioned in examination announcement)</td><td></td><td></td></tr><tr><td>3. Place of employment applied for:</td><td></td><td></td></tr><tr><td>CXX First name: (spelled) Last name: (spelled) Middle initial: (spelled)</td><td colspan="2"></td></tr><tr><td colspan="3">William Patrick Purke, Jr.</td></tr><tr><td>4. Street and number or K. D. number:</td><td colspan="2"></td></tr><tr><td colspan="3">6300 St. Charles Ave., New Orleans, La.</td></tr><tr><td>5. Date of birth (month, day, year):</td><td>6' 12" Male</td><td></td></tr><tr><td colspan="3">Louisiana UP 1447 (C) Female UP 1447 (C)</td></tr><tr><td>6. Place of birth (city and State, if known outside U. S.):</td><td>New Orleans, La.</td><td></td></tr><tr><td>7. Age at birth (day, month, year):</td><td>11.</td><td></td></tr><tr><td rowspan="5">OF MOLEES<br/>5. Marital status: Married ☑ Single ☐</td><td>10. Age last birthday: 46</td><td></td></tr><tr><td>11. Height without shoes: 6' 12"</td><td>Weight: 202</td></tr><tr><td>12. Weight in kilograms: 202</td><td></td></tr><tr><td>13. Height in inches:</td><td>Pounds:</td></tr><tr><td>14. Have you ever been employed by the Federal Government? ☑ Yes ☐ No<br/>If no, have you ever been employed by the Federal Government, give present grade and date of last change in grade.</td><td>Major USMCR (inactive duty) 15 Aug. 1945</td><td></td></tr></table>
+
+<table><tbody><tr><td>☐ Yes.</td><td>☐ No.</td></tr><tr><td>☐ No.</td><td>☐ Yes.</td></tr></tbody></table>
+
+<table><thead><tr><th>OPTION</th><th>GRADE</th><th>EARNED RATING</th><th>PASSED ENDS</th><th>AUGM. RATING</th></tr></thead><tbody><tr><td></td><td></td><td></td><td>5 Sections (Pass)</td><td></td></tr><tr><td></td><td></td><td></td><td>10 Sections</td><td></td></tr><tr><td></td><td></td><td></td><td>2 Wire or Word</td><td></td></tr><tr><td></td><td></td><td></td><td>Dull</td><td></td></tr><tr><td></td><td></td><td></td><td>Barely covered</td><td></td></tr><tr><td>INITIALS AND DATE

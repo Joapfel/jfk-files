@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_17655.png
+
+Convert to MarkdownGovernment and then appear to be conducting a drive to cultivate other Latin American countries. The reactions of both the Mexicans and the Latin Americans in these advances are often shown in later traffic. Firstly, the Soviets do not seem to get a very good reception from the Latin Americans, but are well received by the diplomatic representatives of India and Indonesia. The reports have shown an improvement in Soviet relations with the Russians, which were practically non-existent for several years in Mexico City. These reports show further that the Russians, Poles and Czechs have frequent business and social interchanges. The following reports are cited as examples of this type of information.
+
+1957, dated 16 January 1957, "Diplomatic Activities of the Soviet Embassy, Mexico City, November 1956."
+
+1958, dated 6 February 1957, "Diplomatic Activities of the Soviet Embassy, Mexico City, December 1956."
+
+1959, dated 27 February 1957, "Diplomatic Activities of the Soviet Embassy, Mexico City, January 1957."
+
+### c. Soviet Cultural Activities
+
+Information produced by ICAAT reflects in detail Soviet cultural activities in connection with publications, cultural institutes, travel of Mexicans to the US for cultural purposes, visits of Soviet cultural figures to Mexico and data concerning how their local arrangements are made. Examples of such reports are:
+
+1954-2320, dated 18 January 1957, "Cultural and Propaganda Activities of the Soviet Embassy, Mexico City, November 1956."
+
+1957-2377, dated 30 January 1957, "Cultural and Propaganda Activities of the Soviet Embassy, Mexico City, December 1957."
+
+1958-2160, dated 27 February 1957, "Cultural and Propaganda Activities of the Soviet Embassy, Mexico City, January 1957."

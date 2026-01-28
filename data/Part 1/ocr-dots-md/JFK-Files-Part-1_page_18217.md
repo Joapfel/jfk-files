@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_18217.png
+
+Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>PAGE NO.</th></tr></thead><tbody><tr><td>SECRET</td><td>10</td></tr></tbody></table>
+
+CONTINUATION OF
+DISPATCH
+
+23. Growth Potential Exists, But Much Less Than Originally Anticipated. The CD movement has made only modest progress the past two years. Indications are that the development of the movement will be much slower and less extensive than many anticipated in the first flush of enthusiasm following the Frei victory, for it has many problems to resolve. Chief among these perhaps, is CD failure to reach the lower social classes and to develop a significant worker base. The chances of CLASC contributing positively to correct this failure appear remote. Another major problem is the absence of an ideological commonground, despite the lip service paid to the Papal Encyclicals and the Catholic social philosophers, and the failure to enunciate minimum behavioral standards that these philosophical roots would impose. This deficiency is the root cause of two manifestations: First, a propensity to consort with Communist and assorted Marxist groups (e.g., in Colombia, Bolivia, the Dominican Republic and Panama). Second, the progressive radicalization of party youth wings which threatens to push the parent parties further left. The fact remains, nevertheless, that Christian Democracy is the most unified non-Communist movement in Latin America. It cannot be labeled democratic or anti-Communist because of the behavioral aberrations of several national parties.
+
+24. Need for Eclectic Operational Approach to CD's. The ranks of those who viewed Christian Democratic prospects with great enthusiasm two years ago -- including the European financial backers of the movement -- have dwindled considerably. But those who have been critics of Christian Democracy from the outset (many of whom might be described as the "visceral denigrators") have displayed no more perception in evaluating CD prospects. The head-in-the-sand generalization that Christian Democracy has no future does not stand the challenge of investigation. Neither does the assertion that Christian Democracy is the hemispheric wave of the future. The only valid generalization that might be made on CD prospects is that all generalizations are false. We would submit that the only valid approach to the CD phenomenon is to assess the movement and make operational judgements on a country-by-country basis. There are some countries where the collapse of the party would be no loss. The key question is: Can the party develop as a positive element in national political stability? If so, it is incumbent on the Station to develop assets within the party and to examine the need for operational involvement. Station posture toward the CD movement must be based on the raw realities of the local situation, case by case.
+
+RUTHERFORD J. LYNER
+
+USE PREVIOUS EDITION.
+
+53a
+
+SECRET
+
+X CONTINUED
+
+PAGE NO.
+10

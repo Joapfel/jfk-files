@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_17622.png
+
+Convert to MarkdownAttachment to H34-A-10198
+
+KAPOR-1401
+
+e. Equipment
+
+Local purchase of emergency and special equipment: 850.00
+New equipment, i.e. recorders, rods: 300.00
+Total: 5,300.00
+
+f. Miscellaneous
+
+(1) Supplies (paper, rolls, wire, tubes, tape, plans, parts): 2000.00
+
+(2) Transportation:
+
+LIMESTONE/3 car rent: 600.00
+RAFANEZZI OP car expense: 500.00
+KINGSTONER mileage: 350.00
+LIMESTONE/4 car rent: 400.00
+LIMITATION car rent: 300.00
+LIQUATION/1 car rent: 300.00
+LIMESTONE/7 car rent: 600.00
+
+(3) Other operational expenses (to cover loss of deposits on rents, fatalities and other serious emergencies, separation payments, medical expenses, emergency moving bills, and to cover targets of opportunity): 25,000.00
+Total: 30,130
+GRAND TOTAL: 30,030.00
+
+$145,864.76 - 156,056
+
+APPROVED
+
+JUN 13 1998
+
+---

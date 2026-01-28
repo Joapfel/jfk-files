@@ -1,0 +1,81 @@
+# JFK-Files-Part-1_page_17690.png
+
+Convert to MarkdownSECRET
+
+ATTACHMENT TO H. L. -7063
+9/5/6
+5 JUNE 1957
+
+STATION: Mexico City CHIEF OF STATION: Willard C. CURTIS
+
+1. The attached field project outline is submitted for approval for the Fiscal Year 1958. In accordance with Field Instruction No. 23c-1, 7(d), (dated 23 October 1953), the following information is submitted.
+
+## Product of the basic project
+
+During the current fiscal year production from LI-FEAT has been quite voluminous. The Soviet phase alone has accounted for more than 6,000 pages of summary text and constitutes somewhat less than half the coverage yielded by the total project. The following general categories of information have been developed through LI-FEAT and are cited below with a few examples of production (see references to specific reports and dispatches in the following paragraphs).
+
+## 2. The Soviet Embassy
+
+Information on the Soviet Embassy derived from LI-FEAT has been voluminous and extensive reports have been furnished on the following matters:
+
+### a. Soviet Commercial Activities.
+
+Reports such as MI-2498, 8 March 1957; MI-2054, 6 November 1956; and MI-1975, 19 October 1956 have conveyed a substantial amount of month-to-month detail concerning Soviet economic and commercial policy and actions in Mexico and to a lesser extent in adjacent areas. This information reflects the types of products the Soviets are selling or purchasing in the area, the names of their intermediaries, details on prices, manner of arranging deals, and manner of effecting shipments. This information was screened out and briefed from extensive and prolonged coverage of Soviet embassy commercial traffic and appears to be fully authentic as well as rich in detail. Reference is also made to III-2476, 1 March 1957 (tentative deal for Ecuadorian Coffee); III-1973, 18 October 1956 (Mexican exports to the USA); and III-1760, 18 October 1956 (Sale of Soviet ferrous metal in the US) as examples of specific spot reports based on information derived from the same source.
+During the past year traffic concerning the Soviet commercial office in Mexico has increased a great deal and remains this station's primary source on all such matters.
+
+<table><tr><td>RECORD COPY</td></tr></table>
+
+SECRET / ⚢
+
+Attachment to H. L. -7063
+9/5/6
+5 JUNE 1957
+SD-6-32/1
+
+50-6-32/1
+
+<table>
+   <tr>
+    <td>
+     CAPTION:
+    </td>
+    <td>
+     LI-FEAT
+    </td>
+    <td>
+     FIELD CASE OFFICERS:
+    </td>
+    <td>
+     Thomas S. ULLMANN
+    </td>
+   </tr>
+   <tr>
+    <td colspan="4">
+     Matthew S. DINGLEY
+    </td>
+   </tr>
+   <tr>
+    <td colspan="4">
+     Harvey P. DEMEROLZ
+    </td>
+   </tr>
+   <tr>
+    <td colspan="2">
+     Not present
+    </td>
+   </tr>
+   <tr>
+    <td>
+     STATION:
+    </td>
+    <td>
+     Mexico City
+    </td>
+    <td>
+     CHIEF OF STATION:
+    </td>
+    <td>
+     Willard C. CURTIS
+    </td>
+   </tr>
+  </table>

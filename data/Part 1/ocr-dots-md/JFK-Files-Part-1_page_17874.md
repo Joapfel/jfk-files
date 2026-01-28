@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_17874.png
+
+Convert to MarkdownSECRET
+
+1 June 1965
+
+MEMORANDUM FOR: Chief of Station, Mexico City
+
+FROM : Andrew S. PARMERS
+
+SUBJECT : Completion of Training Report on
+David M. WILSTED
+
+1. In a Mexico City Station Safesite, Subject received training on a part time basis from 17 through 27 May 1967. The instructor was Andrew S. PARMERS (known to trainee as Pablo ZELAYA) from KUROAR, Headquarters. Subjects covered were clandestine communications, operational security, Soviet Bloc intelligence activities, and operational reporting.
+
+2. As a student, Subject was cooperative, participated with enthusiasm, and performed all requirements well. Although he has had very little previous formal training, he has had much practical experience and assimilates theory rapidly.
+
+3. As a person, Subject is mature, calm, friendly, has a sense of humor, practical, a doer rather than a thinker, aggressive, and confident. He has broad area knowledge, is satisfied with his cover employment and with his KUBARK employment. He has no complaints and showed good emotional stability. He likes Mexico and Mexicans, and speaks excellent Spanish.
+
+4. He has a very limited knowledge of KUBARK functions and organization, but he considers himself to be a careerist in this organization.
+
+SECRET
+
+CS COPY
+
+50-6-33/2

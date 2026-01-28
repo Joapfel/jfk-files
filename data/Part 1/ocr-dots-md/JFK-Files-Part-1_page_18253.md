@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_18253.png
+
+Convert to MarkdownFrei ha demostrado ser un mentiroso. Frei ha demostrado ser un po-litiquero vulgar que para justificar su sanguinario gesto, trata de culpar a la Tri-Continental. Frei se desenmascara. Frei demues-tra al pueblo de Chile y al mundo qué tipo de revolución es la que va a hacer, qué tipo de gobierno es el que va a llevar adelan-te. Es decir, no una revolución sin sangre, sino una política de sangre sin revolución; sangre sin revolución, esa es la política de Frei, sangre sin revolución, ese es el gobierno de Frei, sangre sin revolución, esa es la política de la Alianza para el Progreso".
+
+Después de estas expresiones, no podemos menos que salirle al paso a Castro y a la camarilla que desgobierna hoy a Cuba, e instar y pedir mayor colaboración con los patriotas que hoy ofren-dan sus vidas por liberar a Cuba, a fin de evitar no solo la con-tinuada masacre de cubanos que se lleva a cabo en la Isla, sino también ponerle fin a todos estos incidentes bochorhosos para la historia, en los que aparece un cubano, ofendiendo públicamente ante el mundo a un Presidente, a un Partido y a un pueblo que a contrario sensus de lo que él esta haciendo en Cuba, sí está rea-lizando una revolución en libertad, sí ha defendido en todo momen-to el sano nacionalismo, sí se ha puesto de frente cuantas veces las circunstancias lo han requerido a los oligarcas y explotado-res.
+
+Para terminar, sólo me queda reiterarle, que en nombre de la solidaridad que une a todos los democratacristianos, exprese públicamente, su deseo de colaborar con la lucha que mantiene el pueblo cubano por derrocar al castrocomunismo y poder realizar en Cuba, una verdadera revolución en libertad, así como su respaldo a la actitud asumida por el Gobierno, el Partido Demócrata Cristiano y el pueblo chileno en los actuales momentos.
+
+Pendiente de su atención y respuesta y dejando constancia de mi mayor consideración, quedo suyo
+
+Sec. de Relaciones Internacionales del MDC de Cuba
+
+SECRET

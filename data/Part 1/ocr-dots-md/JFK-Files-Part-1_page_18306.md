@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_18306.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+# FITNESS REPORT (Part I) PERFORMANCE
+
+## INSTRUCTIONS
+
+FOR THE ADMINISTRATIVE OFFICER: Consult current instructions for completing this report.
+
+FOR THE SUPERVISOR: This report is designed to help you express your evaluation of your subordinate and to transmit this evaluation to your supervisor and senior officials. Organization policy requires that you inform the subordinated where he stands with you. Completion of the report can help you prepare for a discussion with him of his strengths and weaknesses. It is also organization policy that you show Part I of this report to the employee except under conditions specified in Regulation 20, 370. It is recommended that you send the entire form before completing any question. If this is the initial report on the employee, it must be completed and forwarded to the Office of Personnel no later than 30 days after the date indicated in item 8. of Section A" below.
+
+## SECTION A:
+
+### GENERAL
+
+<table><tr><td>1. NAME</td><td>(Last)</td><td>(First)</td><td>(Middle)</td></tr><tr><td colspan="4">BURKE, William P.</td></tr><tr><td>2. DATE OF BIRTH</td><td colspan="3">10/22/90</td></tr><tr><td>3. SEX</td><td colspan="3">M</td></tr><tr><td>4. SERVICE DESIGNATION</td><td colspan="3">OC</td></tr><tr><td colspan="4">5. OFFICE/DIVISION BRANCH OF ASSIGNMENT<br/>00/Contact New Orleans</td></tr><tr><td colspan="4">6. OFFICIAL POSITION TITLE<br/>Intelligence Officer (Contact) (cn)</td></tr><tr><td rowspan="2">7. GRADE</td><td>8. DATE REPORT DUE IN OP</td><td colspan="2">9. PERIOD COVERED BY THIS REPORT (Inclusive dates)</td></tr><tr><td>GS-15</td><td>0 September 1958</td><td>c/o 15 - 9/9/58</td></tr><tr><td rowspan="2">10. TYPE OF REPORT<br/>(Check one)</td><td>X INITIAL</td><td>REASSIGNMENT/SUPERVISOR</td><td>SPECIAL (Specify)</td></tr><tr><td>X ANNUAL</td><td>REASSIGNMENT/EMPLOYEE</td><td></td></tr><tr><td colspan="4">11. SECTION B: CERTIFICATION</td></tr><tr><td colspan="4">1. FOR THE RATER: THIS REPORT ☐ HAS X HAS NOT BEEN SHOWN TO THE INDIVIDUAL RATED. IF NOT SHOWN, EXPLAIN WHY NOT: Subject not available in Washington area.</td></tr><tr><td colspan="4">A. CHECK (X) APPROPRIATE STATEMENTS:</td></tr><tr><td rowspan="3"><strong>X THIS REPORT REFLECTS MY OWN OPINIONS OF THIS INDIVIDUAL.</strong></td><td colspan="3">IF INDIVIDUAL IS RATED "1" IN CI OR D, A WARNING LETTER WAS SENT TO HIM & A COPY ATTACHED TO THIS REPORT.</td></tr><tr><td colspan="3">I CANNOT CERTIFY THAT THE RATED INDIVIDUAL SHOWS HOW I EVALUATE HIS JOB PERFORMANCE BECAUSE (Specify):</td></tr><tr><td colspan="3">I HAVE DISCUSSED WITH THIS EMPLOYEE HIS STRENGTHS AND WEAKNESSES SO THAT HE KNOWS WHERE HE STANDS.</td></tr><tr><td>B. THIS DATE</td><td>C. TYPE OR PRINTED NAME AND SIGNATURE OF SUPERVISOR</td><td>D. SUPERVISOR'S OFFICIAL TITLE</td></tr><tr><td>17 Aug '58</td><td>G. M. ASHCRAFT</td><td>Chief, CD/00</td></tr><tr><td colspan="4">2. FOR THE REVIEWING OFFICIAL: RECORD ANY SUBSTANTIAL DIFFERENCE OF OPINION WITH THE SUPERVISOR, OR ANY OTHER INFORMATION, WHICH WILL LEAD TO A BETTER UNDERSTANDING OF THIS REPORT.</td></tr><tr><td colspan="4"></td></tr><tr><td colspan="4">I certify that any substantial difference of opinion with the supervisor is reflected in the above section.</td></tr><tr><td>A. THIS DATE</td><td>B. TYPED OR PRINTED NAME AND SIGNATURE OF REVIEWING OFFICIAL</td><td>C. OFFICIAL TITLE OF REVIEWING OFFICIAL

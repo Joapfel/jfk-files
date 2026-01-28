@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_18447.png
+
+Convert to Markdown13 FEB 1968
+
+Mr. William King Harvey
+28 West Irving Street
+Chevy Chase, Maryland 20015
+
+Dear Bill:
+
+I am sorry that due to a busy schedule and my absence for several days during the Christmas holidays I didn't have an opportunity to see you prior to your retirement at the end of the year.
+
+Red White has told me of his visit with you, and I am particularly appreciative of your expression of continued loyalty to the Agency and your offer to be of assistance should an appropriate occasion arise.
+
+I extend to you, personally and officially, my sincere appreciation for the important work you have done and my warmest hopes that you will find full enjoyment in the years ahead.
+
+OP/BSD/RB/MJRoper:jsc
+Rewritten:ExDir:sbo
+Distribution:
+* 0 - Adse
+* 1 - ER
+* 1 - C/EAB/OS
+* 1 - D/Pers
+* +- OPF
+* 1 - RB
+
+(Concurred in by C/EAB/OS on 8 Jan 68)
+
+NOTE: Covert correspondence

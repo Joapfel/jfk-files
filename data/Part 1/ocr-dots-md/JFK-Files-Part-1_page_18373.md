@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_18373.png
+
+Convert to MarkdownCONFIDENTIAL
+
+16 June 1947
+
+MEMORANDUM TO: Deputy Director, CIG
+
+T'HOUUGH: Chief, Personnel Division
+
+Subject: Assessment of William Patrick Burke, Jr.
+
+Reference: Procedures Governing Payment of Per Diem and Travel, Approved Under Project 00-5.
+
+In accordance with the above referenced procedures, it
+is hereby requested that approval be granted for payment of
+per diem and travel for the purpose of bringing Mr. Burke
+to Washington for assessment.
+
+Mr. Burke was recently interviewed in New Orleans by
+Chief, Control Division, and Chief, Field Division, of the
+Contact Branch of this Office and is recommended as being
+well qualified for the Regional Managership of the New
+Orleans Interagency Office. It is considered that, in view
+of the importance of the proposed position to the accomplish-
+ment of the Contact Branch mission, no final decision as to
+his employment should be made without the benefit of assess-
+ment.
+
+This office is anxious to activate the New Orleans
+Interagency Office as soon as possible and requests your
+approval in order that an early date for Mr. Burke's visit
+to Washington may be made.
+
+E. L. SIBERT
+Brigadier General, U. S. A.
+Assistant Director for Operations
+
+CONFIDENTIAL_

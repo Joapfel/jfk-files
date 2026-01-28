@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_18168.png
+
+Convert to Markdown14-0000
+
+<table><tr><td>DISPATCH</td></tr><tr><td>CLASSIFICATION<br/>SECRET</td></tr><tr><td>TO<br/>Chief, WH Division</td></tr><tr><td>INFO</td></tr><tr><td>FROM<br/>Chief of Station, Mexico City</td></tr><tr><td>SUBJECT<br/>Memoranda of Oral Commitments</td></tr><tr><td>ACTION REQUIRED - REFERENCES</td></tr><tr><td>Forwarded herewith are three copies of subject memoranda covering the following agents used within Project LIEMPTY and reflecting recent salary adjustments:<br/><br/>LIEMPTY-9 201-136454<br/>LIEMPTY-11 201-119960<br/>LIEMPTY-14 201-167567<br/><br/>for <i>Pamela L. Duvan</i><br/>Willard C. CURTIS<br/><br/>Attachment:<br/>3 MOC on h/w<br/>filed in individual<br/>201 files</td></tr><tr><td>US COPY</td></tr><tr><td>CROSS REFERENCE TO</td><td>DISPATCH SYMBOL AND NUMBER<br/>HRMA-26232</td><td>DATE<br/>1 June 1965</td></tr><tr><td></td><td>CLASSIFICATION<br/>SECRET</td><td>HCS FILE NUMBER<br/>50-6-74/2</td></tr></table>

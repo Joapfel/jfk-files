@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_18071.png
+
+Convert to Markdown- J. Technical Annex:
+
+Project LIONION continues to receive excellent technical support from the local WOACRE representative, Walter W. CORNBURY.
+
+K. Other:
+
+While LIONION-2's failing eyesight precludes her filling in for LIONION-1 over any extended period of time, she has continued to perform in an excellent manner in support of LIONION-1.

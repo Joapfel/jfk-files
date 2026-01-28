@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_17764.png
+
+Convert to Markdown...3.-
+
+EMBAJADA DOMINICANA.- 28-77-85.
+
+5 mayo 66.
+
+L2-M2-T28-
+
+1139-1236 hrs.-
+
+107-
+
+Salida.- GUZMAN saluda a HERNANDEZ y dice que va a estar en la embajada hoy. HERNANDEZ le mandará su kimdo y pregunta al el tiene la cuenta del Coronel FERNANDEZ, GUZMAN no estáANELA porqulqoe mil ciento cehonta, HERNANDEZ tratará de pasar cuanto antes a verlo.- GUZMAN lo espera antos de las once.- 122-
+
+123-
+
+Entradas sin contestación.- 141-
+
+141-
+
+Salida,- (Suita Emperador)- GUZMAN pregunta por RENE FIALLO. NI¿dóci que acaba de salir.- 154-
+
+154-
+
+Cstrada.- NP RENE FIALLO dico estar llamando donde hace rato y nadio contesta, GUZMAN dico que el contestaba pero nadie lo hacia fuere y que el lo Blanco al Hotel para avisarle que se rectirá un cuadro confirmando lo de la fecha que su mando en el otro cuadro, y es junio. RENE dico que sa alegra y que pasard al rato a la embajada para vor eso sobre lo que ayer se entuvo encu- chando y la razón a las reservas finales y además dando cuenta por el hey alguna presión de parte do ellos "allá con los paises interesados" ya que sería algun error innombrable o un mal onten-dido de compatrios, GUZMAN que está bien.- FIALLÓ ademas comenta que anocha le llano MARI JAOSFÁ la esposa de FERNANDEZ CAMINERO
+
+( heja tres) ...

@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_17802.png
+
+Convert to Markdowncont..)
+
+pero yo Adelina, es que tú lo escribieras a tu papa.
+
+AZ:
+
+Yo no puedo escribirte pero seerte que satisfecho de la carta que he escrito. Pero te puedo decir que me has ido al infierno, y si eso es elWirelo, ¿cómo te das el Related to the cause? Y no, al fin supe de qué le amanf anejo, pero sin duda lo mejor que le digo es lo que te voy a decir. Si me das mi confesión, te pondrás en la cuna de los pastores, te daré la key para ir a la iglesia, te diré que es la misa de oración, te voy a decírmelo, y te voy a contarlo, y si eso es lo que te voy a contarlo, no me das maldición, y si es lo que piensas y lo soy, no me das maldición.
+
+JUDY:
+
+¿Porqué tú no tienes con él
+
+AZ:
+
+No, porque entonces va a resultar lo siguiente: que no vuelve a entrar a la Sabana, porque yo sé que él está y no la voy a entrar.
+
+JUDY:
+
+Entonces yo no quiero ir así, ni puede haber revolucíón, con toda diferencia te le digo, y si eso es lo que puedes, así也会 lo eyesu lo旬ato al trienro quencantara.
+
+AZ:
+
+Lo voy a decir una cosa, las otras revoluciones están consolidadas y cohesivas.
+
+JUDY:
+
+No y no, no se trate de matarojandoentrar al eunízo ni mucho más, ni que les estén incesitando. O reprenderle a la persona desacreditado o que le haga revoluciones.
+
+AZ:
+
+Puedo no ser tan paseydecirmias quserañale, que sí,
+
+JUBI:
+
+Están notas indignadas, arqueías sacá da vergüenza, látinas que curvas anotif nuestro papí aufó ancla, al día después estade tuft á. Sólo eternamente, al nuclera loo á planteor utá cama coao JA Vergüenza.
+
+AZ:
+
+Pasal, no lo ve nadie, uns hermano la vienen en julio, los dos días que se evadiron, sien que c. ¡¿ muy uvejentemuy filialt. A las dos días que no sabía r, entonces... la otra persona, que es una persona que a sf as a reee coao crearte, ae día, tanco
+
+JUDY:
+
+Por eso erá lo que querí: yo agradar contigo, porque realente
+
+az
+Sí,�¿siquis enctivo muy entera¿, lo dejaron ir á la casa que le dión ceteintelde á la sister, chil esti totizante malada, raro esata en su mayor y son su only en cuenta se beyond lo velíten
+a encerrar.
+JUDY:
+Pues ese era lo que querí; yo agradar contigo, porque realente

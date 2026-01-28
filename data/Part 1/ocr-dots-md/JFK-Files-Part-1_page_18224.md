@@ -1,0 +1,109 @@
+# JFK-Files-Part-1_page_18224.png
+
+Convert to MarkdownSECRET
+
+No Foreign Differ
+
+1962, but the party had signifi-
+cant strength in three important
+south-central states (Parana,
+Sao Paulo, and Guanabara). Like
+all other Brazilian parties, it
+was abolished during a political
+reorganization under the Castello
+Branco administration. Most of
+its members then affiliated with
+the progovernment ARENA party
+and campaigned under its banner
+in the November 1966 congressional
+elections. It is unlikely that
+there will be any significant ex-
+pansion in the number of politi-
+cal parties--the new Brazilian
+constitution sets down stringent
+standards that virtually eliminate
+the possibility of a repetition
+of the former proliferation of
+parties. The former PDC has made
+no attempt to reconstitute itself,
+but its former members will prob-
+ably join with like-minded con-
+gressmen to pursue policies con-
+sistent with Christian Democratic
+ideology.
+
+The Guatemalan PDC was only
+recently recognized as a legally
+constituted party. This group,
+which is being financed by Cath-
+olic sources in Germany and Bel-
+gium, has some strength in the
+youth and student movement and
+some growth potential among the
+campesinos who make up more than
+half the population. Current
+direction of the party leaves much
+to be desired; its leader, Rene de
+Leon, appears honest, but he has
+little organizational flair or
+popular appeal. With more vigo-
+rous leadership and the develop-
+ment of a middle-echelon cadre,
+the party might develop signifi-
+cantly--particularly if the in-
+cumbent Revolutionary Party (PR)
+administration fails to resolve
+basic problems confronting it.
+
+The remaining nine Chris-
+tian Democratic parties--in Ar-
+gentina, Bolivia, Colombia, Costa
+Rica, Ecuador, Mexico, Nicaragua,
+Paraguay, and Uruguay--show scant
+promise of developing into forces
+of national importance over the
+next five years. Leadership of
+even modest stature exists only
+in Argentina (Salvador Alende,
+Horacio Sueldo) and Bolivia
+(Remo di Natale).
+
+Party Youth Wings
+
+As with all political groups
+in Latin America, the vast major-
+ity of CD party militants come
+from student organizations in the
+local universities. In most
+countries of the hemisphere, CD
+voting strength on the campus is
+much greater than the political
+strength of the parent party.
+A few examples illustrate this
+point: In Panama, the party
+polled 3.1 percent of the national
+vote in 1964 (and probably would
+poll not more than 5 percent to-
+day), but its university youth
+got 12.8 percent in the January
+1966 campus election and 24.4
+percent in January 1967. The
+Dominican PRSC received 5.4 per-
+cent of the vote in 1962 (and its
+present strength could well be
+lower because of internal divi-
+sions and leadership conflicts),
+but its youth wing on the campus
+garnered 40.2 percent of the
+vote in May 1966. In Venezuela,
+COPEI polled 22 percent of the
+vote in 1963; its student wing on
+the campus of Central University,
+however, polled 40.2 percent of
+the vote in 1966.
+
+SECRET
+
+Page · 4 SPECIAL REPORT
+
+3 Mar 67

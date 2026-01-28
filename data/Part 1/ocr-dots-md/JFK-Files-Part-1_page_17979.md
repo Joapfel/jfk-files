@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_17979.png
+
+Convert to Markdown<table><thead><tr><td>FORM<br/>1057 53a<br/>(40)</td><td>USE PREVIOUS EDITION<br/>REPLACES FORMS<br/>51-28, 51-28A AND 51-29<br/>WHICH ARE OBSOLETE</td><td>CLASSIFICATION<br/>SECRET</td><td>☐ CONTINUED</td><td>PAGE NO.<br/>5</td></tr></thead><tbody><tr><td colspan="4"></td><td></td></tr></tbody></table>

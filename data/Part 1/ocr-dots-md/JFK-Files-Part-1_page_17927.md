@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_17927.png
+
+Convert to MarkdownREMOVAL SLIP
+
+DOC SYMBOL : HYDROGEN
+DOC DATE : 16 Oct 57
+
+THE CS COPY OF THIS DOCUMENT WAS REMOVED FROM THE FILE 1.50-6-31/2 BY IP AND RPU ON 24 May 77 AND CONSIDERED TO BE AND APPLICABLE.
+
+TO BE DEFILED
+
+BECAMING
+
+☐ It was KAPUK and unprocessed.
+
+☑ It was RETENT and processed.
+
+3. IT WAS EYES ALONE and classified into file 8.
+
+☐ It was DEFILED.
+
+☐ It was classified into file 9.
+
+☐ It was in a document that is not legible. ☐ It was lost or destroyed.
+
+☐ It was removed from the document due to technical reasons, such as the paper being too thin or the ink being worn out. ☐ It was destroyed by accident. ☐ It was removed from the document because it contained sensitive information that needed to be kept confidential. ☐ It was removed from the document because it was of no use to the agency. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed by the agency after being reviewed for relevance and similarity to other documents in the collection. ☐ It was destroyed

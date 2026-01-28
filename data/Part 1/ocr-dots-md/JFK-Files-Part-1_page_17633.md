@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_17633.png
+
+Convert to MarkdownAttachment to RM-A-10198
+KapOk-1401
+
+d. Coordinate information received from LIMERICK with other Station operations.
+
+e. Maintain LIFEAT capabilities for mounting operations against targets of opportunity.
+
+f. Maintain supervision over basehouses and training of the personnel therein.
+
+## 9. Personnel
+
+The following are changes from FY 1958 for FY 1959:
+
+Daniel K. BROMUND arrived at Station Mexico to assume duties as translator of LIFEAT/LITMUS material and relief translator on LIFEAT/LIMERICK.
+
+## 14. Equipment and Support
+
+It is considered essential that new equipment be provided for LIFEAT for FY 1959 in view of the fact that much of the equipment in current use has been steadily in operation since the inception of the project in 1951. Also, in view of expected expansion of the project and the possibilities of live monitoring, additional equipment in first-class condition will be necessary. A backlog of 10 new recorders and 300 reels along with repair parts is considered a minimum for efficient continuance of the project.

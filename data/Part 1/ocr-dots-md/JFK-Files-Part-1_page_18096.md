@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_18096.png
+
+Convert to MarkdownSECRET
+
+(When Filled In)
+
+<table><thead><tr><th colspan="5">PROJECT ACTION</th><th>PROJECT CODE</th></tr></thead><tbody><tr><td rowspan="6"></td><td>TYPE OF ACTION</td><td></td><td>X</td><td>F-C-1</td><td>C-A</td></tr><tr><td>NEW PROJECT APPROVAL</td><td>DIVISION</td><td colspan="4">Western Hemisphere</td></tr><tr><td>AMENDMENT NO.</td><td>FIELD STATION</td><td colspan="4">Navy City</td></tr><tr><td>RENTAL<br/>RY 196</td><td>BRANCH</td><td colspan="2">DESK</td><td>Mexico</td></tr><tr><td>EXTENSION</td><td>CASE OFFICER</td><td colspan="3">R. Leist</td></tr><tr><td>TERMINATION</td><td>ROOM NO.</td><td>Bldg. 807</td><td>BUILDING Rqrs.</td><td>EXTENSION</td></tr></tbody><tfoot><tr><td colspan="6">CONCURRENCES OF DIVISION</td></tr><tr><td>ORGANIZATIONAL ELEMENT</td><td>TYPED NAME (And signature)</td><td>DATE</td><td>COPY NO.</td><td colspan="2">MEMORANDUM ATTACHED</td></tr><tr><td>C/MH/2</td><td>H. J. Haukelin &amp; D. L. Spena</td><td>28 Jan</td><td></td><td>YES</td><td>No</td></tr><tr><td>WH/D2W</td><td>Robert Center</td><td>1/22/65</td><td></td><td></td><td></td></tr><tr><td>C/MH/C</td><td>W. E. Brooks</td><td>2/3</td><td></td><td></td><td></td></tr><tr><td>C/MH/RG</td><td>H. Littell</td><td>7/4</td><td></td><td></td><td></td></tr><tr><td>WH/FCA</td><td>Gerard Droller</td><td>2/16/65</td><td></td><td></td><td></td></tr><tr><td>WH/ZXS</td><td>Samuel Halpern</td><td>9-Feb-61</td><td></td><td></td><td></td></tr><tr><td colspan="6">CONCURRENCES OF OTHER COMPONENTS</td></tr><tr><td colspan="6"></td></tr><tr><td colspan="6"></td></tr><tr><td colspan="6"></td></tr><tr><td colspan="6"></td></tr><tr><td colspan="6"></td></tr><tr><td colspan="6"></td></tr><tr><td colspan="6"></td></tr><tr><td colspan="6"></td></tr><tr><td colspan="6"></td></tr><tr><td colspan="6">APPROVAL</td></tr><tr><td colspan="3"></td><td>PRIOR TO</td><td>TOTAL AMOUNT</td><td></td></tr><tr><td rowspan="2">FROM<br/>1 January 1965</td><td rowspan="2">TO<br/>31 December 1965</td><td rowspan="2"></td><td>PERIOD</td><td rowspan="2">$ 10,478</td><td>FY<br/>1965</td><td>AMOUNT<br/>$ 5,000</td></tr><tr><td>$ 1964</td><td>$ 3,479</td></tr><tr><td colspan="3">APPROVING AUTHORITY<br/>Chief, WH Division</td><td colspan="2">SIGNATURE<br/>H. Halpern</td><td colspan="2">DATE<br/>19 Feb 65</td></tr></tbody></table>
+
+FORM 6-80 848 ABSOLUTE PREVIOUS VERSIONS
+
+SECRET
+
+(5)

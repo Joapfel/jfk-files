@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_18049.png
+
+Convert to Markdown14-0000
+
+CABLE SECRETARY DISSEMINATION
+PERSONAL NOTIFIED
+ADVANCE COPY ☐ ISSUED ☐ SLOTTED
+BY____ AT____
+DISSENT BY ✓ PER ______
+ACTION W8 RID COPY
+
+CLASSIFIED MESSAGE
+TOTAL COPIES: 2
+OUTING AND/CR INITIALS SEEN BY
+
+<table><thead><tr><th></th><th></th><th></th></tr></thead><tbody><tr><td>1</td><td>6</td><td></td></tr><tr><td>2</td><td>7</td><td></td></tr><tr><td>3</td><td>8</td><td></td></tr><tr><td>4</td><td>9</td><td></td></tr><tr><td>5</td><td>10</td><td></td></tr></tbody></table>
+
+SECRET: GROUP A GROUP (When Filled In) REPRODUCTION OF THIS COPY PROHIBITED INDEX ☐ YES ☐ NO CLASSIFY TO FILE NO. REF TO FILE NO. FILE RID ☐ RET. TO DESTROY ☐ S/G.
+
+INFO:
+FILE.VR Plan, p.3, col.2, colors, 512, TSDG,
+
+#203
+
+7 Aug 69 M 16170 m
+
+NEXT
+
+DIRECTOR
+
+LIONION
+
+1. IN ATTEMPT ELIMINATE MARGINAL OPS, STATION INTENDS TERMINATE LIONION-I PULSE CAMERA COVERAGE EFFECTIVE 1 SEPTEMBER UNLESS HQS INDICATES IT CONSIDERS PRODUCT OF SUFFICIENT VALUE TO WARRANT RETENTION. STATION PRESENTLY OBTAINS MANY PICTURES OF LIRING CONSULATE VISITORS SINCE MOST FIRST-TIME LIRING VISITORS TRY ENTER THROUGH MAIN GATE WHICH PRIMARY TARGET LIONION PHOTO COVERAGE. ALSO MANY CONSULATE VISITORS LATER PHOTOGRAPHED AT AIRPORT. IT NOT POSSIBLE HAVE LIONION-I COVER BOTH ENTRANCES SIMULTANEOUSLY, BUT HE ABLE MOVE EQUIPMENT TO COVER CONSULATE IF NEED ARISES.
+
+2. FILE 50-6-122/3.
+
+SECRET
+
+CS COPY
+
+SECRET
+
+<table><tr><td colspan="2">AN Prod</td></tr><tr><td colspan="2">AB</td></tr><tr><td colspan="2">V.A.</td></tr><tr><td colspan="2">P.K.</td></tr><tr><td colspan="2">J.A.</td></tr><tr><td>Dwg.#</td><td>1515D</td></tr><tr><td>Page</td><td>1</td></tr><tr><td>LW #</td><td>1</td></tr></table>

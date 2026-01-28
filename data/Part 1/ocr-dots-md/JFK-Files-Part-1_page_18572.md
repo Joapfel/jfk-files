@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_18572.png
+
+Convert to MarkdownSECRET
+
+6 MARCH 1969
+
+MEMORANDUM FOR: Chief, FI Staff
+SUBJECT : Performance of the Intelligence Watch During the President's Trip to Europe
+
+1. Now that the President's trip to Europe has been concluded... I feel that a special commendation for the Intelligence Watch (IW) is in order.
+
+2. The contribution that is being made by the officers in the Intelligence Watch is often taken for granted. Thus it was natural for us, when we formed our task force for the President's trip, to build our arrangements for positive intelligence disseminations around the IW's: twenty-four-hour-a-day availability. We were not disappointed. The system worked smoothly and efficiently.
+
+3. In addition to that, it became clear that the Intelligence Watch officers were willing and able to go beyond the simple call of duty. We came to admire their competence, courtesy, and cooperation, without which effective intelligence coverage would have been immeasurably more difficult. Since the IW's were working under an unusual strain, caused by the simultaneous outbreak of crises in different parts of the world, their performance is that much more to be commended.
+
+4. Please convey our appreciation to all officers who had a part in this fine effort.
+
+CALVIN M. HICKS
+
+John L. Hart
+Chief,
+European Division
+
+SECRET
+
+<table><tr><td>CIG-AP-1</td></tr><tr><td>Excluded from automatic</td></tr><tr><td>Distribution</td></tr><tr><td>CO.</td></tr></table>

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_18590.png
+
+Convert to MarkdownSECRET
+
+USE PREVIOUS EDITION
+
+SECRET
+
+GROUP
+EXCLUDED FROM AUTOMATIC DOWNLOADER
+AND DECLASSIFICATION
+
+<table><tr><td>DATE PREPARED</td></tr><tr><td>10 September 1965</td></tr><tr><td colspan="2">REQUEST FOR PERSONNEL ACTION</td></tr><tr><td>1. SERIAL NUMBER<br/>056361<br/>HICKS, Calvin W.</td><td>2. NAME (Last, Middle, if necessary)<br/>GREGORY MIDDLETON</td></tr><tr><td colspan="2">3. NATURE OF PERSONNEL ACTION<br/>REASSIGNMENT</td></tr><tr><td rowspan="2">4. EFFECTIVE DATE REQUESTED<br/>MONTH DAY YEAR<br/>COST CENTER NO CHARGE<br/>ABLE 6235-0623</td><td>5. CATEGORY OF EMPLOYMENT<br/>REGULAR</td></tr><tr><td>8. LEGAL AUTHORITY (completed by Office of Personnel)</td></tr><tr><td colspan="2">9. ORGANIZATIONAL DESIGNATIONS<br/>DDP/WH<br/>CS/CS Development Complement<br/>Washington, D.C.</td></tr><tr><td>11. POSITION TITLE<br/>CPS OFFICER</td><td>12. POSITION NUMBER<br/>XXXX 9/97</td></tr><tr><td>13. CAREER SERVICE DESIGNATION<br/>D</td><td>14. CLASSIFICATION SCHEDULE (GS, PR, A.)<br/>CS 0136.01</td></tr><tr><td>15. OCCUPATIONAL SERIES<br/></td><td>16. GRADE AND STEP<br/>13 (L)</td></tr><tr><td>17. SALARY OR RATE<br/>$ 13,335</td><td colspan="2"></td></tr><tr><td colspan="3">18. REMARKS<br/>From DDP/WH/C, MOS, PM Sec., #1140, D.C.<br/>Subject is enrolled in extensive language training from September 1965 to January, 1966.</td></tr><tr><td colspan="3"><table><tr><td>Recorded by</td></tr><tr><td>CSID</td></tr><tr><td>Signed</td></tr></table></td></tr><tr><td>LDA SIGNATURE OF REQUESTING OFFICIAL<br/>ROBERT D. CASHMAN, C/WH/Pers.</td><td>DATE SIGNED<br/>10.5./96</td><td>19. SIGNATURE OF CAREER SERVICE APPROVING OFFICER<br/>J. D. H.</td><td>DATE SIGNED<br/>9/14/65</td></tr><tr><td colspan="4">SPACE BELOW FOR EXCLUSIVE USE OF THE OFFICE OF PERSONNEL</td></tr><tr><td colspan="2">19 ACTION CODE 70 EMPLOY. CODE 21 OFFICE CODE 65<br/>NUMERIC ALPHABETIC<br/>51997 WCH 75013</td><td colspan="2">22 STATION CODE<br/>23 INTERMITT. CODE 74 MOQ/TRS CODE 25 DATE OF BIRTH<br/>MO DA YR 11/08 CY</td><td colspan="2">26 DATE OF GRADE 7 37 DATE OF LEI<br/>NO DA YR NO DA YR</td></tr><tr><td colspan="2">28 RATE EXPIRES<br/>MO DA YR.<br/>29 SPECIAL REFERENCE<br/>1-CSC<br/>3-PMA<br/>5-ONE<br/><br/>30 RETIREMENT DATA<br/>CODE<br/><br/>31 SEPARATION DATA CODE<br/><br/>32 CORRECTION CANCELLATION DATA<br/>TYPE MO DA YR</td><td colspan="2">33 SECURITY RSD NO 26 SEX<br/><br/><br/><br/><br/>EOD DATA</td><td colspan="2" rowspan="2">38 CAR BLSY PROV TEMP CODE 39 FERSI HEA TH INS COPE HEALTH INS CODE<br/><br/><br/><br/><br/><br/>40 SOCIAL SECURITY NO<br/><br/><br/><br/><br/>41 PREVIOUS GOVERNMENT SERVICE DATA<br/>CODE<br/>0-NO PREVIOUS SERVICE<br/>1-NO CURRENT SERVICE<br/>2-BREAK IN SERVICE (LESS THAN

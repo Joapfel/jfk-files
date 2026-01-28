@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_17669.png
+
+base house operator and processor of tapes. She received an Operational Approval on 27 April 1956.
+
+(9) LIMESTONE-9 received an Operational Approval on 13 September 1956.
+
+(10) LIMESTONE-10, wife of LIMESTONE-3, received an Operational Approval on 13 September 1956.
+
+(11) LIMERATTE is an employee of Telefonos de Mexico, local telephone company. He provides the basic information necessary for running the project. He received an Operational Approval on 17 October 1950 and has an oral contract effective 1 October 1950.

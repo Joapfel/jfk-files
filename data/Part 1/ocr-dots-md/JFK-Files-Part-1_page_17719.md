@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_17719.png
+
+Convert to MarkdownAttachment to HTPA-185
+
+<table>
+   <tr>
+    <td>
+     MICROFILMED
+    </td>
+   </tr>
+   <tr>
+    <td>
+     JUN 24 1966
+    </td>
+   </tr>
+   <tr>
+    <td>
+     DOC. MICRO. BER.
+    </td>
+   </tr>
+  </table>
+
+29 CP 82 3.2
+
+This conversation is about "The Comedians", a book written about Haiti by Graham Greene. Gerard and Suzie are talking to Pierre Lelong. Pierre says the book was the novel of the month of February in the U.S. Book is about Duvalier. Gerard has heard that foreigners are making money on Haitian heads by writing such stories but he has also heard that Greene was in contact with a person who really gave him full information. Pierre says there was a review of the book in L'Edition and he has saved it. Gerard asks Pierre if he has the latest edition of the newspaper Combatant. Pierre has it and promises to return it.
+
+29 CP 85 3.0
+
+Suzie calls Gerard PIERRE CHARLES. Roger has left Susie a note. Gerard failed to go where he had planned. Gerard called Dorce but Dorce wasn't there. He went to the Embassy for 15-20 minutes but he couldn't find him. (Conversation probably about Aldi Castor's visa.) Gerard asks how everything came out. The wife of the Chief of Police came over to fix the thing about the little girl. The police never suspected anybody and they don't think anybody like that had it. Suzie says Claudette finally found her passport. Claudette went to a (convent?) and someone stole her handbag which contained her passport, money and license to work. Everything was returned the next day with a check for $500. Claudette had to return the $500.
+
+29 CP 85 9.0
+
+Suzie with Gerard. Suzie asks Gerard if he saw a number on the front or back of something (papers)? No. There is nothing written by hand. Gerard received three copies and they are looking for two more.
+
+29 CP 98 17.5
+
+Suzie calls Gerard. Suzie asks Gerard if Aldi has come by. Suzie says she is going back to the Embassy. Gerard has changed everything and the man will come by around 2:00 to pick him up. Judy called to ask when she should come.
+
+29 CP 103 4.9
+
+Pierre Lelong calling Suzie Pierre-Charles. Suzie asks Pierre when he returned. He just arrived, but without his mother. Suzie asks Pierre how Lillian and her friends were. They were fine. Tonton CINAS had been arrested and had been shot. Also, something is supposed to start in Haiti. Tonton CINAS was in touch with someone named Maitre Edmond Flanek... Clemard CHARLES was also involved
+
+GS COPY.
+
+ATTN. TO HTPA 1857
+
+50 - G - 3/24

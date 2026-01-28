@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_17854.png
+
+Convert to Markdown6 September 1968
+
+MEMORANDUM FOR: Chief, CCS
+FROM #H Division
+SUBJECT : Project Funding Plan, Project L:FEAT (FI)
+
+A. Identification of Activity
+
+1. Project cryptonym: LIFEAR
+
+2. Approved for. 1 July 1966 - 30 June 1967: $100,000
+   FY 1967 - $100,000
+
+3. Proposed successive fiscal year budget: Same
+
+4. Brief statement of project aims, character and structure:
+
+The purpose of this project is to provide unilateral telephone tap coverage in Mexico City. A U. S. Career Agent serves as Outside Case Officer and personally handles the thirteen sub-agents who are responsible for the technical phase of the Project which is run out of seven basehouses. A Station Case Officer directly handles five translators who are also funded out of this Project.
+
+B. Funding History
+
+1. The Career Agent (GS-13) receives his salary and allowances split between bank deposits in the United States made directly by Monetary and a field allotment received from the Station. He pays the thirteen sub-agents their salaries which total $2,337/month, basehouse expenses (rent and utilities), and ops expenses. The Station Case Officer directly pays the five translators their salaries (total $1,675/month) and expenses. All equipment is furnished by CIA and is replaced when necessary
+
+2. Funds have always been handled in this manner.

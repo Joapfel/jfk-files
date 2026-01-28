@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_18526.png
+
+Convert to MarkdownSECRET
+(When Issued by)
+
+<table><tr><td>1. DATE OF REQUEST<br/>REQUEST FOR MEDICAL EVALUATION</td></tr><tr><td>2. NAME (Last, First, Middle)<br/>Dependents of William K. Harvey</td></tr><tr><td>3. POSITION TITLE<br/>Chief of Station</td></tr><tr><td>4. GRADE<br/>GS-18</td></tr><tr><td>5. EMPLOYEE'S EXT.<br/>WE Division</td></tr><tr><td colspan="2">7. PURPOSE OF EVALUATION</td></tr><tr><td><input type="checkbox"/> PRE-EMPLOYMENT</td><td><input type="checkbox" checked disabled/> HDQS/TDY</td></tr><tr><td><input type="checkbox"/> ENTRANCE ON DUTY</td><td><input type="checkbox" checked disabled/> XX OVERSEAS ASSIGNMENT</td></tr><tr><td><input type="checkbox"/> TOV STANDBY</td><td><table><tbody><tr><td>RTO</td><td>o/a 1 July 1963</td></tr><tr><td>STATION</td><td>Rome</td></tr><tr><td>TDY OR PCS</td><td>PCS</td></tr><tr><td>TYPE OF COVER</td><td>Integree</td></tr><tr><td>NO. OF DEPENDENTS TO ACCOMPANY</td><td>3</td></tr><tr><td>NO. OF DEPENDENTS' REPORTS OF MEDICAL HISTORY (SF 89) ATTACHED</td><td>0</td></tr></tbody></table></td></tr><tr><td><input type="checkbox"/> SPECIAL TRAINING</td><td></td></tr><tr><td><input type="checkbox"/> ANNUAL</td><td></td></tr><tr><td><input type="checkbox"/> RETURN TO DUTY</td><td><input type="checkbox" checked disabled/> RETURN FROM OVERSEAS</td></tr><tr><td><input type="checkbox"/> FITNESS FOR DUTY</td><td><table><tbody><tr><td>ETA</td></tr><tr><td>STATION</td></tr><tr><td>NO. OF DEP.'S</td></tr></tbody></table></td></tr><tr><td><input type="checkbox"/> MEDICAL RETIREMENT</td><td></td></tr><tr><td colspan="2">8. OVERSEAS PLANNING EVALUATION (One block must be checked)</td></tr><tr><td><input type="checkbox" checked disabled/> X YES</td><td>9. REQUESTING OFFICER<br/>SIGNATURE: George Grostephan<br/>MARGE GROSTEPHAN</td></tr><tr><td><input type="checkbox" checked disabled/> NO</td><td>ROOM NO.: 4 BUILDING:<br/>4 B 4404</td></tr><tr><td colspan="2"></td></tr><tr><td colspan="2">10. COMMENTS<br/>89's on file in medical office - per telephone conversation 16 May 63</td></tr><tr><td colspan="2">11. REPORT OF EVALUATION<br/>GRANTED PER MISSION IN assignment</td></tr><tr><td>DATE<br/>JUN 16 1963</td><td>SIGNATURE FOR CHIEF OF MEDICAL STAFF</td></tr></table>
+
+FORM 259 USE PREVIOUS EDITIONS.
+
+SECRET
+
+(25)

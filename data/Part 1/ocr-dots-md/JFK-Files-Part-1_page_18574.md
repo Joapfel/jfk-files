@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_18574.png
+
+Convert to Markdown14-0000
+
+SECRET,
+
+24 JUN 1969
+
+9 April 1969
+
+MEMORANDUM FOR: Secretary, CSPS/Section A
+
+SUBJECT: Recommendation for the promotion of Calvin I. Hicks (056361) to GS-14.
+
+1. I recommend the promotion of subject officer from GS-13 to GS-14. Mr. Hicks has been assigned to the Intelligence Watch/FI Staff since June 1967, and serves on a rotating schedule with seven other officers doing identical work, five of whom are currently in Grade GS-14.
+
+2. Mr. Hicks has been with FI for almost two years and his work, both quantitatively and qualitatively, has been consistently of a very high caliber. Normally six months are required before an officer newly assigned to the Intelligence Watch is able to handle a shift by himself. At least a year is required before a Watch Officer can perform at a high level of proficiency. However, in the case of this officer, in a little more than a year he had earned the rating of "Strong" and has maintained it ever since. Although most of his Agency experience had been in paramilitary operations, he adapted quickly to the demands of his new assignment. His keenly developed sense of operational security, coupled with his clear understanding of the relationship between operations and intelligence, has made him a very fine officer and a valuable asset to FI. He has been under my supervision for 16 months and I have had ample opportunity to observe his performance under conditions of stress. He is even tempered and level headed. His mistakes are few and infrequent and these are usually of the clerical variety, not in matters of judgment. I continue to be impressed with his thoroughness in handling information; with the evidence of his coordination when the interests of more than one division are involved. Since operations have to be submerged and the intelligence is the portion of the iceberg which shows to the intelligence community, the performance of the Watch Officers is of great importance. This factor becomes apparent when it is noted that about 80% of all cabled intelligence reports are disseminated by the Intelligence Watch. Recently the Watch Officers were commended by the Chief, FI Staff and the Chief, Europe Division for their performance during the President's trip to Western Europe. The simultaneous outbreak of crises in different parts of the world further added to the burdens of the Watch Office at that time. Mr. Hicks made a real contribution during that period and deserves the commendation personally in a high degree.
+
+SECRET,

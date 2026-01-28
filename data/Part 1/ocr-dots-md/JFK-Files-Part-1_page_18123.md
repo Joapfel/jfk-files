@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_18123.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th colspan="2">PROCESSING ACTION</th></tr><tr><td colspan="2"></td><td>SECRET</td><td colspan="2"></td></tr></thead><tbody><tr><td colspan="2">10<br/>Chief, KURIOT</td><td>X X</td><td colspan="2">MARKED FOR INDEXING<br/>NO INDEXING REQUIRED<br/>ONLY QUALIFIED DESK CAN JUDGE INDEXING<br/>MICROFILM</td></tr><tr><td colspan="2">INFO:<br/>Chief, WH Division<br/>Chief of Station, JMWAVE</td><td></td><td colspan="2"></td></tr><tr><td colspan="2">FROM: Chief of Station, Mexico City</td><td></td><td colspan="2"></td></tr><tr><td colspan="2">SUBJECT: AQUATIC/PBRUMEN/Issuance of LIONION Passports</td><td></td><td colspan="2"></td></tr><tr><td colspan="3">ACTION REQUIRED - REFERENCES</td><td colspan="2"><table><tr><td>DOC. MICRO-SER.</td></tr><tr><td>NOV 9 1973</td></tr><tr><td>MICROFILMED</td></tr></table></td></tr><tr><td colspan="5">References: (A) MEXI 3234, 28 April 1965<br/>(B) DIR 06231, 1 May 1965</td></tr><tr><td colspan="5">1. Attached (USC) are the expired genuine PBRUMEN passports of LIONION-1 and LIONION-2 together with two photographs and five signature specimens of each agent.<br/><br/>2. It is requested that new PBRUMEN passports be prepared by KURIOT and pouched to the Station as soon as possible.<br/><br/>3. The assumption of reference B that passports obtained at the PBRUMEN Embassy in Mexico City are actually issued in the PBRUMEN Capitol City is correct.<br/><br/>4. The old passports should be returned to the Station as the Mexican immigration visas appearing on pages 11 and 19 of the LIONION-1 and LIONION-2 passports, respectively, must be in the possession of the Subjects until they are granted their final immigration documents.<br/><br/>Attachment:<br/>As stated - (USC)<br/><br/>Distribution<br/>✓ 2 - C/KURIOT w/att (USC)<br/>1 - C/WHD w/o/att TO WH/1<br/>1 - COS, JMWAVE w/o/att - Out Puck<br/>3 - Files</td></tr><tr><td colspan="2">DOCUMENT STATUS: DOC FORWARD ED W/O S/C BY RID/AN 11/10/65</td><td colspan="3">CS COPY</td></tr><tr><td>CROSS REFERENCE TO</td><td></td><td>DISPATCH SYMBOL AND NUMBER<br/>HMMA-26017<br/><br/>CLASSIFICATION<br/>SECRET</td><td>DATE<br/>4 May 1965<br/><br/>HQS FILE NUMBER<br/>50-6-122/2</td><td></td></tr></tbody></table>
+
+[REDACTED] PROJECT # 50-6-122/2
+JCH # 25-11-79
+Box: 24 Fold: 2
+
+<table><tr><td>TSD/18<br/>Case No.</td></tr></table>
+
+<table><tr><td>GROUP 1<br/>Excluded from subrogation<br/>CORPORATE AND<br/>CONFIDENTIAL</td></tr></table>
+
+<table><tr><td>DOC FORWARD ED W/O S/C<br/>BY RID/AN 11/10/65</td></tr></table>
+
+<table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td>D-50-137-4/5</td><td>HMMA-26017</td><td>4 May 1965</td></tr><tr><td></td><td>CLASSIFICATION</td><td>HQS FILE NUMBER</td></tr><tr><td></td><td>SECRET</td><td>50-6

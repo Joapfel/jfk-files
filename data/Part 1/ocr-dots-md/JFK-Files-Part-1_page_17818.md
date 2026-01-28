@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_17818.png
+
+Convert to MarkdownCONFIDENTIAL
+
+(COLLECTOR/EVALUATOR)
+
+RECLASSIFY ACCORDING TO DATA REED ON FRONT) 29 JUN
+
+<table><thead><tr><th colspan="3">CIA REQUEST FOR EVALUATION BY GRR</th></tr><tr><td colspan="3"><div>EVALUATING AGENCY</div><table><tbody><tr><td>ISSUE NUMBER<br/>CS-3/439,528</td><td>DATE OF DISTRIBUTION<br/>8. June 1960</td><td>FIELD NUMBER<br/>HMM-LS63</td></tr></tbody></table></td></tr></thead><tbody><tr><td>Chief Country<br/>Mexico/Soviet Union</td><td colspan="2">Dated 15 July 1960<br/>Approved for Distribution</td></tr><tr><td colspan="3">Subject: Disagreement between Mexican Businessman and Soviet Commercial Officer over Money Owed for Training Purchased by the Mexican Government</td></tr><tr><td colspan="3">EVALUATOR: Please complete this evaluation within 60 days of receipt of request. See for completion within this time is priority/standard. Indicate choices by "1." If item marked is printed in italics, please explain under "Evaluators Comments." normally, but one per each appropriate section. Otherwise, please cover each of these aspects in your comments. For further notes on use of this form, see reverse.</td></tr><tr><td colspan="3"><strong>INFORMATION IN THIS REPORT:</strong></td></tr><tr><td colspan="3"><table><tbody><tr><td>I. Major</td><td rowspan="5">IMPORTANCE IN RELATION TO OUR NEEDS</td></tr><tr><td>II. Moderate</td></tr><tr><td>III. Little</td></tr><tr><td>IV. No</td></tr><tr><td>V. Not Applicable</td></tr></tbody></table></td></tr><tr><td colspan="3"><strong>ACCRURACY:</strong></td></tr><tr><td colspan="3"><table><tbody><tr><td>X. SUBstantially true</td></tr><tr><td>Y. Credible</td></tr><tr><td>Z. Doubtful</td></tr><tr><td>AA. False</td></tr><tr><td>B. CANNOT BE JUDGED. SEE D.</td></tr></tbody></table></td></tr><tr><td colspan="3"><strong>USEFULNESS:</strong> CONSIDER THE INFORMATION TO BE USED OR USELESS. CONSIDER IF A given piece of information would have been greater with.<br/>1. More detail<br/>2. Less detail, more summary<br/>3. Less fragmentary approach<br/>4. Better organization<br/>5. Better observation or better exploitation of source, or both.<br/>6. NOTED IN COMMENT<br/>7. NO DIRECT AFFECTING USEFULNESS.</td></tr><tr><td colspan="3"><strong>REQUIREMENTS:</strong> ONLY IF YOUR REQUIREMENT IS CITED. ASK IF SATISFIED IF:<br/>1. FULLY, REQUIREMENT CAN BE CLOSED.<br/>2. Partially, Portion of requirement may be closed.<br/>3. PARTIALLY, BUT MIND CONTINUES.<br/>4. NEGLIGIBLY.</td></tr><tr><td colspan="3"><strong>RECEIVED TO WHICH OTHER (NON-CS) REPORTING PROCEDURES ESSENTIAL INFORMATION ON SUBJECT:</strong><br/>1. FULLY<br/>2. SUBSTANTially<br/>3. Little<br/>4. None<br/>IF IN G. YOU CREDIT "LITTLE" OR "NONE," AND IF YOU HAVE... AND NO REQUIREMENT.)<br/>1. YES WILL PRESENT A REQUIREMENT WITHIN 30 DAYS.<br/>2. One need does not warrant a require- MENT FOR CS REPORTING.</td></tr><tr><td>EVALUATOR<br/><strong>NAME (Please print)</strong><br/>Robert Napier</td><td><strong>COMPONENT</strong><br/>ORR/S/TF/SP</td><td><strong>PHONE</strong><br/>803 C</td></tr><tr><td><strong>DATE REQUEST RECEIVED</strong></td><td colspan="2"><strong>DATE EVALUATION FURNISHED</strong><br/>July 1960</td></tr></tbody></table>
+
+CONFIDENTIAL
+
+39 ABSOLUTE
+PREVIOUS
+
+FEB 22 1960
+
+CONFIDENT

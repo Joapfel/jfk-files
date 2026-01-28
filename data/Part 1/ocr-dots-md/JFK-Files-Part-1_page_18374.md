@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_18374.png
+
+Convert to MarkdownMATERIAL REVIEWED AT CITY HEADQUARTERS BY
+HOUSE SELECT COMMITTEE ON ASSASSINATIONS STAFF MEMBERS
+
+FILE TITLE/NUMBER/VOLUME: Personnel file:
+Thomas B. CASASIN
+
+INCLUSIVE DATES:
+CUSTODIAL UNIT/LOCATION:
+ROOM:
+DELETIONS, IF ANY: Sources and methods
+
+<table><thead><tr><th>DATE RECEIVED</th><th>DATE RETURNED</th><th>REVIEWED BY (PRINT NAME)</th><th>SIGNATURE OF REVIEWING OFFICIAL</th></tr></thead><tbody><tr><td>09.8.78</td><td>10:10</td><td>Betsy WOLF</td><td>Betsy Wolf</td></tr></tbody></table>
+
+NO DOCUMENTS MAY BE COPIED OR REMOVED FROM THIS FILE.

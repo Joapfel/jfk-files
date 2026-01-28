@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_18077.png
+
+Convert to MarkdownSECRET
+
+4 January 1967
+
+MEMORANDUM FOR : Chief, WH Division
+SUBJECT : Renewal of Project LIONION (Photographic/Technical Coverage of Cuban Embassy in Mexico)
+ACTION REQUIRED: Approvals Requested Paragraphs One and Four
+
+1. Approval is requested to renew Project LIONION for the period 1 January through 31 December 1967 at an annual expenditure of $11,666.00, including $5,574.00 for FY 1967 and $6,092.00 for FY 1968. WH Division programmed $12,000.00 for this activity for FY 1967 and funds are available. The Project cost has been increased by $668.00 over the previous year, occasioned by a small monthly raise for the Principal Agent and a new provision for miscellaneous operational expenditures.
+
+2. Although this two-man Project does not produce positive intelligence, it contributes substantially and directly to the coverage of the Cuban Embassy and Consulate in Mexico, producing photographs in bulk of personnel and visitors as well as information on patterns of activity and personal associations, and supporting recruitment attempts. It is contemplated that the Project will afford support to the extensive technical penetration of the Cuban Embassy (LISAMPAN) currently scheduled for installation in mid-January 1967. One of these penetrations is scheduled for the Embassy gatehouse where visitors would normally identify themselves upon entering. Information from the gatehouse is to be transmitted securely to the LIONION basehouse as well as to the LISAMPAN listening post. By collating this and other LISAMPAN information with the photography, it is hoped to be able to identify photographically many of the visitors to the Embassy.
+
+SECRET
+
+SECRET 1
+SEPARATE: YES
+
+<table><tr><td>14-00000</td></tr></table>

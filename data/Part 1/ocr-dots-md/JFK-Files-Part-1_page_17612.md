@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_17612.png
+
+Convert to MarkdownSECRET
+
+8
+
+h. LIMITATION-5 (C-24815) and LIMITATION-6 (C-39418) who were included under Project LIFZAT when it was last removed, have been withdrawn from this project and were included under the LIFSTICK Project removal which was approved on 3 December 1957.
+
+i. The LICOL phase has been removed from Project LIFZAT since those two technical operations are completely separated. The funding for LICOL and its facilities will be covered by another project.
+
+SECRET

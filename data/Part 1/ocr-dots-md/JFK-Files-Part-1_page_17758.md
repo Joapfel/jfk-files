@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_17758.png
+
+Convert to Markdown...1.-
+5008
+
+1259-1329 hrs.
+
+Salida sin contestación.- 05-
+
+05- Salida al 19-60.-50.- 1230 hrs.- HONTANAS preguntas por su amor MARINA BORGUEZ para poderle el dinero de la renta. AQUILA se lo lleva el viernes porque hoy no tiene dinero.-31-
+
+31- Entrada.- MP con MARTIN para saber si habló MARCOS. MARTINA dice que no vino porque tiene el auto desacordo y que después llanf a su casa y dijo que no estaba. MP está en MARIÑA a las dos part ir a cooner juntas.- 42-
+
+42- Salida al 3 por la hora.- 1006 hrs.- 45-
+
+45- 1315 hrs. Entrodo.- MP por el granero Rojas (MP). Y DIRS. dice que no vino hoy, MP fue ortáneos con JOHN FRANK T. Le. MADRA dice que es mature. Despierto MP MARTI comenta con F.I.N que MARCO es un bandito con todo dominicana, que lo estú. S�ona que pase por allí para llevar unas riñas a Geberina'. FAPIA dice que le puede llamar a su casa al 49-12-92. MUNT dice que ya lo cione y que un salo le urge su asamble sobre la visa de MARTINA RICUR que tiene uns de un teto que no sale. MP que si pidió la vista cruce MARIÑA entonces no va a salir lana. - risas. MARTA termina conque le llamaré a MP y en su cara.- 69-
+
+(hoja uno)

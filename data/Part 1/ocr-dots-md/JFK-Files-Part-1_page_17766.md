@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_17766.png
+
+Convert to Markdown356- Salida.- (Apartamentos Carmen)- GUZMAN pido el departamento 28 con la señora TRIBUSITA TÉRVA. HU dice que no 114.- 372-
+
+372- Salida al 02.- MDA.- 12:25 hre.- GUZMAN quiere hacer una llamada a Torreón con cargo al 2-7h-75 con la señora MARUJA FEIXERO DE LAVONA o su esposo JOSE MANUEL LAVONA VELANDEZ. HU toma nota y dice que espera un momento.- Donatas GUZMAN informa a la señora MARUJA que los parapetos que dice que mandó con un gellor ya le fueron visados hace dos días y todos sus trámites quedaron arreglados. MARUJA dice que la señora espona de MIGETO VILLAROSA hermana de una cuchilla que ella tiene y por eso se valió de enviar los pasajeros a viaar. GUZMAN dice que ya quedaron autorizados sus viajes y una persona los recogió y los llevó tal vez para Torreón. MARUJA que está bien y que gracias,- (líneas cruzadas)- Y MARUJA reconoce a LEONTE como hermano de JOSÉ y de JAIME y que ella es muy amiga do Doña JOSÉFA María de LONTE.. bla.. bla...- Besuena loonen a platicar sobre las asistencias y la familia que ambos son - conocidos.- 448-
+
+448- Entrada.- D' Erc., ARRIBA por el Corl.MARCOS JORGE, GUZMAN dice que fue a la ceremonia del social a una jura do bandera del Ejército Mexicano y no vendrá.- 455-
+
+455- Salida al 14-02-76.- 12:36 hrs.- GUZMAN pregunta "por su señora Corporal y etc., EPIA", HU pregunta de parte de quien. GUZMAN que " de la embajada do Nigeria". Les puso GUZMAN saluda a TATIA y dice que le quizo llevar sus maracas para su mellutanes. D' Epi rie, GUTIERRO le pidió en su día. TATIA da las gracias. GUZMAN dice que acabo de recibir un enculo y que .. ( hoja cinco)

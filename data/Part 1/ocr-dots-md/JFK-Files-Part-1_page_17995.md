@@ -1,0 +1,125 @@
+# JFK-Files-Part-1_page_17995.png
+
+Convert to Markdown<table>
+    <thead>
+        <tr>
+            <th>CONTINUATION OF<br/>DISPATCH</th>
+            <th style="text-align: center;">SECRET/RYBAT</th>
+            <th>HMM-15400<br/>RYBAT-1425</th>
+        </tr>
+    </thead>
+    <tbody>
+        <tr>
+            <td colspan="3">HMMA-15260<br/>HMMA-15262</td>
+        </tr>
+        <tr>
+            <td>MEXI-5682</td>
+            <td></td>
+            <td>HMM-4974</td>
+        </tr>
+        <tr>
+            <td>MEXI-5699</td>
+            <td></td>
+            <td>HMM-4989</td>
+        </tr>
+        <tr>
+            <td>MEXI-5699</td>
+            <td></td>
+            <td>HMM-4991 (MEXI-5705)</td>
+        </tr>
+        <tr>
+            <td>MEXI-5698</td>
+            <td></td>
+            <td>HMM-4992</td>
+        </tr>
+        <tr>
+            <td>MEXI-5703</td>
+            <td></td>
+            <td>HMM-4993</td>
+        </tr>
+        <tr>
+            <td>MEXI-5717</td>
+            <td></td>
+            <td>HMM-4997</td>
+        </tr>
+        <tr>
+            <td>MEXI-5731</td>
+            <td></td>
+            <td>HMM-4993 (MEXI-5719)</td>
+        </tr>
+        <tr>
+            <td>MEXI-5732</td>
+            <td></td>
+            <td>HMM-4999 (MEXI-5720)</td>
+        </tr>
+        <tr>
+            <td>MEXI-5736</td>
+            <td></td>
+            <td>HMM-5001</td>
+        </tr>
+        <tr>
+            <td>MEXI-5746</td>
+            <td></td>
+            <td>HMM-5014</td>
+        </tr>
+        <tr>
+            <td>MEXI-5754</td>
+            <td></td>
+            <td>HMM-5016</td>
+        </tr>
+        <tr>
+            <td>MEXI-5761</td>
+            <td></td>
+            <td>HMM-5018</td>
+        </tr>
+        <tr>
+            <td>MEXI-5762</td>
+            <td></td>
+            <td>HMM-5019 (MEXI-5797)</td>
+        </tr>
+        <tr>
+            <td>MEXI-5763</td>
+            <td></td>
+            <td>HMM-5022</td>
+        </tr>
+        <tr>
+            <td>MEXI-5764</td>
+            <td></td>
+            <td>HMM-5023</td>
+        </tr>
+        <tr>
+            <td>MEXI-5779</td>
+            <td></td>
+            <td>HMM-5025</td>
+        </tr>
+        <tr>
+            <td>MEXI-5786</td>
+            <td></td>
+            <td></td>
+        </tr>
+        <tr>
+            <td>MEXI-5789</td>
+            <td></td>
+            <td></td>
+        </tr>
+        <tr>
+            <td>MEXI-5803</td>
+            <td></td>
+            <td></td>
+        </tr>
+        <tr>
+            <td>MEXI-5813</td>
+            <td></td>
+            <td></td>
+        </tr>
+        <tr>
+            <td colspan="3">Willard C. CURTIS</td>
+        </tr>
+        <tr>
+            <td colspan="3">26 July 1960</td>
+        </tr>
+        <tr>
+            <td>Distribution:</td>
+            <td>3 - WND</td>
+            <td></td>
+        </tr

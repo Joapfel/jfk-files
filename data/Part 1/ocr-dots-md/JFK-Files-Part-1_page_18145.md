@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_18145.png
+
+Convert to MarkdownSECRET
+
+X CONTINUED
+
+c. LILYRIC
+
+USE PREVIOUS EDITION
+
+SECRET
+
+53a
+
+14-00000
+
+<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>SECRET</th><th>RNMA-33814</th></tr></thead><tbody><tr><td colspan="3">now carried, in its current location, as MEXI-113. As was the case with old LILYRIC, the rent money is not returned to the Station; WOFIRM has no financial interest in the building. Thus it is evident that the LIEMPTY project renewal, which used to say 'LIMITED and LICALLA rents are returned to Station by LIMOUSINE' and credited to Station miscellaneous receipts" should now carry the footnote "LICALLA rent is returned to the Station and credited to expense; LILYRIC rent is, and will be through September 1969, returned to the Station by LIMOUSINE and credited to miscellaneous receipts as partial payment on Station loan to LIMOUSINE."</td></tr><tr><td colspan="3">6. Finally, the LIEMPTY darkroom is the room where the films taken by LICALLA, LILYRIC, LIMITED, and LIENTRAP are developed, printed, and (on request) enlarged by LIEMPTY-4. This darkroom is located in GERENDE'S apartment, and he is paid 1,000 pesos per month for maintenance of the darkroom in recognition of the fact that one room in his living quarters has been turned into a darkroom, and his electric and water bills are substantially higher than they would normally be without a darkroom on the premises. GERENDE is building a house which he expects to occupy in February 1968. His plans for the house specifically include a LIEMPTY darkroom, and he will continue to be paid 1,000 pesos per month for this. To cover this payment in the new house, MEXI-137 has been written and will be forwarded to Headquarters shortly.</td></tr><tr><td colspan="3">7. In answer to paragraph 5 of reference, it is hoped that the following summary will end the confusion:</td></tr><tr><td colspan="3"><strong>a. LICALLA</strong></td></tr><tr><td>(1) MEXI-03</td><td></td><td></td></tr><tr><td>(2) Address under separate cover (Identity-1).</td><td></td><td>SIGN IS</td></tr><tr><td>(3) LICALLA has been in operation at its present location since 1956, originally as a rented property. In September 1957 the building in which LICALLA is located (which consists of four units, collectively known as LIMUST) was purchased by the Station, with LIMOUSINE acting as a front.</td><td></td><td></td></tr><tr><td>(4) Actual cost is nothing, since property is owned by WOFIRM. The original purchase price for the four units was $40,000.00 with an additional $20,000.00 spent on renovation. Rent is paid for cover purposes at the annual rate of $1,248.00</td><td></td><td></td></tr><tr><td>(5) Cost of utilities is estimated at $532.00 annually.</td><td></td><td></td></tr><tr><td>(6) Since June 1957, LIEMPTY-9 (originally LIPSTICK-39) has operated the LICALLA base house. No other LIEMPTY agents are associated with LICALLA.</td><td></td><td></td></tr><tr><td colspan="3"><strong>b. LIMITED</strong></td></tr><tr><td>(1) MEXI-113</td><td></td><td></td></tr><tr><td>(2) Address under separate cover (Identity 2)</td><td></td><td></td></tr><tr><td>(3) LIMITED has been in its current location since December 1964, and it is a rented property. At its previous location, the LIMITED base had been in operation from 1953 until September 1964.</td><td></td><td></td></tr><tr><td>(4) Annual rent is $1,440.00</td><td></td><td></td></tr><tr><td>(5) Annual cost of utilities is estimated at

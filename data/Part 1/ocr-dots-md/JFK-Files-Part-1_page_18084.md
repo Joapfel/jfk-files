@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_18084.png
+
+Convert to MarkdownPROJECT RENEWAL REQUEST
+
+CRYPTONYM LIONION FIELD CASE OFFICER Lawrence F. Baxter
+Lawrence F. BARKER
+
+STATION Mexico City CHIEF OF STATION Willard C. Curtis
+
+The attached Project is present for renewal.
+
+CS COPY
+
+FORWARDED BY SPLIT TRANSMISSION
+NO FIELD DISSEMINATION.
+
+SECRET/KAPOK

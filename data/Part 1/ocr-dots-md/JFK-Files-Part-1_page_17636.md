@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_17636.png
+
+Convert to MarkdownAttachment to IBM-A-10198
+KAPOR-1401
+
+c. **Equipment**
+
+Local purchase of emergency and special equipment                                     2500.00
+New equipment, l.e. recorders, reels                                         3000.00
+                                                                 --- 
+Total                                                                                     5,500.00
+
+d. **Miscellaneous**
+
+(1) Supplies (paper, rolls, wire, tubes, tape, plans, parts)                             2000.00
+
+(2) Transportation
+
+LIMESTONE/3 car rent                                                                    600.00
+RAFANELLI QP car expense                                                             580.00
+ZINSMEISTER mileage                                                                  350.00
+LIMESTONE/4 car rent                                                                   400.00
+LIMITATION car rent                                                                  300.00
+LIQUATION/1 car rent                                                                 300.00
+LIMESTONE/7 car rent                                                                  600.00
+
+(3) Other operational expenses (to cover loss of deposits on rents, fatalities and other serious emergencies, separation payments, medical expenses, emergency moving bills, and to cover targets of opportunity)                                          25,000.00
+                                                                 --- 
+Total                                                                                         30,125.00
+                                                                 --- 
+GRAND TOTAL                                                                                       30,030.00
+
+Handwritten note under "Total": "This amount is part of an overall 50-6-321 account."

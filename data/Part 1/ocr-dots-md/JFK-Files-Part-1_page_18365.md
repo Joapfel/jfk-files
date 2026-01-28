@@ -1,0 +1,56 @@
+# JFK-Files-Part-1_page_18365.png
+
+Convert to Markdown14-00000
+
+DECLARATION OF APPOINTEE
+
+This form, if required, is to be completed before signature on date. Every question must be answered. An false statement in this declaration will be grounds for cancellation of application or disqualification after appointment. False personation is a crime, and the civil and state will be prosecuted accordingly.
+
+I. Present Address 6300 St. Charles Avenue, New Orleans 15-La.
+(Street and Number)
+
+2. Why should I be notified in case of emergency? Mrs. Mrs. P. Burke (Name) (Relationship)
+6300 St. Charles Ave New Orleans La
+(Street and Number)
+
+3. Does the U. S. Government provide in a citizen's capacity any leave of absence (either by Nisei or marinet) with whom you live or have lived within the past 6 months? Yes or No? If so, for each such leave, fill in the blanks below: [ ] Asst. Adjutant General, [x] Assistant Director of [State or Country]
+
+<table><thead><tr><td rowspan="2"> Name </td><td rowspan="2"> Post office address (Give street number, if any) </td><td colspan="4"> (a) Present and (b) Temporary or Retired, and Department or Office in which employed </td></tr><tr><td> Relationship </td><td> Marital or single </td><td> Age </td></tr></thead><tbody><tr><td></td><td></td><td> 1. </td><td></td><td></td></tr><tr><td></td><td></td><td> 2. </td><td></td><td></td></tr><tr><td></td><td></td><td> 3. </td><td></td><td></td></tr><tr><td></td><td></td><td> 1. </td><td></td><td></td></tr><tr><td></td><td></td><td> 2. </td><td></td><td></td></tr><tr><td></td><td></td><td> 3. </td><td></td><td></td></tr><tr><td></td><td></td><td> 1. </td><td></td><td></td></tr><tr><td></td><td></td><td> 2. </td><td></td><td></td></tr><tr><td></td><td></td><td> 3. </td><td></td><td></td></tr></tbody></table>
+
+4. Place of birth New Orleans La.
+(State or Country)
+
+| Indicate "Yes" or "No" answer by placing X in proper column | Yes | No |
+|---|---|---|
+| **8. Are you a citizen of the United States?** | x | |
+| **9. If foreign born, have you furnished proof of naturalization or citizenship to (1) the U.S. Civil Service Commission?** | | x |
+| **(2) this agency in connection with this appointment?** | | x |
+
+| | | |
+|---|---|---|
+| 7. Since you filed application was that in this appointment, has there been any change in the status of your citizen ship or of the persons through whom you gained your citizenship? | | x |
+
+| | | |
+|---|---|---|
+| 8. (a) Do you hold any position or office under the United States or any State, Territory, County, or Municipality? | x | |
+| If so, state the place, position, and salary under Item 12. | | |
+
+| | | |
+|---|---|---|
+| (b) Are you willing to re-join such position or office if it becomes necessary to do so in order to hold the Federal position? | y | |
+
+| | | |
+|---|---|---|
+| 9. Do you receive any pension or oil or benefit for military or naval service or an annuity from the U. S. or D. C. Government under any Retirement Act? | | x |
+
+| | | |
+|---|---|---|
+| If so, give details under Item 12 stating whether you were retired for age, length of service, or disability, amount of retirement pay and under what retirement act and rank, if retired from military or naval service. | | |
+
+| | | |
+|---|---|---|
+| 10. Since you filed application resulting in this appointment, have you been discharged for misconduct or unsatisfactory service, or forced to resign from any position? | | x |
+
+| | | |
+|---|---|---|
+| If

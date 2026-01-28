@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_17696.png
+
+Convert to MarkdownJacobo (see) Zender and Chone SMITH; and tender to confirm data on the same matters obtained from station agent F. A. C. L. Also added details which were not available to other station sources, such as the names of the persons sought to help those imprisoned. For example, it was learned that the Venezuelan Communist leader Eduardo ACOSTA LOPEZ was the person who was holding the passport of Joaquín ORDÓÑO at the time of his arrest, which fact, among others, makes ACOSTA appear to be one of the most important foreign Communists in Mexico. Reference is made to the following reports which contain information of this general type: M-4-A-6210 and M-3-A-6212.
+
+H1-1769(p. 4) is cited as containing a severely reliable report to the effect that in 1956 the Mexican president told the editor of one of Mexico's leading newspapers that he should play down or omit anti-US articles and opinions.
+
+## 10. Information on the Mexican Communist Party and Communist Fronts
+
+During the past year considerable day to day detail was received from LIEMAT concerning the Mexican Communist Party and its fronts. The latter included the Circulo de Estudios Mexicano (the intellectual author of which was covered in LIEMAT) and the Mexican Peace Movement, Society of Friends of China and various art fronts (through coverage of an officer of those movements.) This information was of value in supplementing agent coverage of those organizations and occasionally provided information unknown to the agents. (Of H11-1657 and H14-2285)
+
+## 11. American Communists in Mexico¹
+
+One of the most extensive and productive coverages through LIEMAT in the past year was directed against American communists in Mexico. In this period several American targets were covered at the request of ODEWY and the production processed in part by them and in part by this Station. ODEWY assumed the task of reporting most of the information on these subjects but provided the station with carbon copies of their summaries of the pertinent reels and of the reports based thereon. The subjects thus covered for ODEWY were as follows, with a listing of the number of reels passed on each:
+
+a. Noah SBORER, possible American espionage agent for the Soviets (23 reels)
+
+b. Friedrich Vanderbilt TELD, American Communist, and his wife, Anita Boyer TELL (254 reels)
+
+c. Asa Zare Dolinski, American Communist agent (55 reels.)
+
+## 12. Of particular importance in the coverage by LIEMAT was the Alfred Kaufmann STEN, which was of particular interest not only to HUSSKUNG but
+
+and Martha Dodd STERN, case
+
+Attachment to H11-A-7063
+9/30
+
+5 June 1957

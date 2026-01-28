@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_18276.png
+
+Convert to Markdown# ATTACHMENT "A"
+
+## *TALLAPIEDRA - (Power Plant)
+
+1. Ing. Manolito FERNANDEZ - Superintendent
+
+2. Ing. Luis F. de LEON - Superintendent Auxiliar
+   (Bomb Thrower)
+
+3.
+
+## REGLA - (Power Plant)
+
+1. Delfín PRODRIGUEZ - Operator Control Room
+
+2. Ing. ROSS - Superintendent
+
+## DESPACHO NARANJITO - (Sub-Station)
+
+1. Jaime GUIU
+
+## OFICINA PRINCIPAL DE DESPACHO
+
+1. Carlos MANUEL Pena - Auxiliary of Superintendent
+   (May be throw a bomb) - He can give good information.
+
+## DESPACHO SANTA CLARA (Santa Clara Dispatching Office)
+
+1. Pedro LUCAS Galvez (Jefe Despacho) - Dispatch Chief
+
+2. Agustín GARCIA Cabalet - Despachador - (Dispatcher)
+
+Vladimir S. KLITTING.

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_18323.png
+
+Convert to Markdown# WILLIAM P. BURKE
+
+## APPENDIX "A"
+
+the estate, transferring the securities and working out some rather complicated taxation matters.
+
+I had decided, while in service, that I did not want to return to active law practice. The clients I had had before the war were being inadequately served by other attorneys, and it would have meant starting all over again from scratch. I did not want to do that, so I began looking for a business in which I could invest capital and my services. Naturally, I have found quite a few, but none, an yet, which meets my requirements.
+
+I am a member of the Board of Directors of the following corporations:
+
+The National Service & Appraisal Co., of Chicago, Ill., which is in the credit reporting business; the Cahill Realty Co., of St. Louis, Mo., a family real estate company; The Equitable Real Estate Co., Ltd., of New Orleans; and Liraclo Services, Inc., a company which some of my associates and I organized recently to operate "launderettes" in this territory.
+
+I have been active in civic matters, acting as team captain in drives of the Community Chest, and have taken part in drives by the Red Cross, the Anti-Hepatitis Society, the Cancer Society, etc. I am a member of the Board of the Children's Bureau, a Chest agency, and a member of its finance committee.

@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_18082.png
+
+Convert to MarkdownSECRET/KAPOK
+
+E. Problems:
+
+There were no major problems during the past year. One security problem involved the claimed spotting of some of the photographic equipment from the street by David M. WILSTED (P). A thorough check of the basehouse by LIONION-1 and the Case Officer failed to reveal any such equipment as being visible from the street. However, additional security measures were taken by darkening the background in the room behind the equipment through hanging of heavier drapes on the window, drapes on the wall, and putting up a portable screen behind the equipment. This also serves as a security check against the prying eyes of the household servant as LIONION-1 can now open the door fully to the room when the servant pages him and she cannot see the equipment. The other problem is the obtaining of inmigrado status for LIONION-2. This involves the depositing of funds to a bank account and is discussed under paragraph I.
+
+F. Liaison:
+
+There is no liaison involved in the project.
+
+G. Interagency Coordination:
+
+Not applicable.
+
+H. Plans:
+
+It is planned to have LIONION-1 keep special logs on the activities of selected targets in LIRING as he has done over the past year. With the case officer handling LIONION-1 directly on a weekly basis, it is planned to continue picking his brains for additional details on the LIRING target. Hopefully LIONION-1 and 2 will be utilized for assistance in covering the proposed take from the LISAMPAN operation.
+
+I. Costs:
+
+For Calendar Year 1966:
+
+1. In the period 1 January through 30 June 1966, $4,500.00 was expended. The projected expenditure for July 1966 through 31 December 1966 is $5,000.00. This total project year expenditure is approximately $1,000.00 under that approved by Headquarters. However, this amount is probably due to having drawn film and other supplies from overall Station support without their having been charged off against the Project
+
+2. For the period 1 January 1967 through 31 December 1967.
+
+2.
+
+SECRET/KAPOK

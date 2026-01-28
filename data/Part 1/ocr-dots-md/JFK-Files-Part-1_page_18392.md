@@ -1,0 +1,163 @@
+# JFK-Files-Part-1_page_18392.png
+
+Convert to Markdown<table>
+   <thead>
+    <tr>
+     <td>NAME (MR., MRS., ONE GIVER NAME INITIALS), AND SURNAME</td>
+     <td>DATE OF BIRTH</td>
+     <td>JOURNALICAL ACTION NO.</td>
+     <td>DATE</td>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td>MR. Casarino</td>
+     <td>20 Jan 1924</td>
+     <td></td>
+     <td>19 Jan 1955</td>
+    </tr>
+   </tbody>
+  </table>
+
+<table>
+  <caption>NOTIFICATION OF PERSONNEL ACTION</caption>
+  <thead>
+    <tr>
+      <th colspan="6">FROM</th>
+    </tr>
+    <tr>
+      <th>Area Ops Officer (Br. Ch) BC-171-13<br/>GB-0136.01-13 $8560.00 per annum</th>
+      <th>DDE</th>
+      <th>B.O.B.<br/>GS-0136.01-14 $9600.00 per annum</th>
+      <th>DDP/SR<br/>Far East Area<br/>Japan<br/>Office of the Chief</th>
+      <th>Tokyo, Japan</th>
+      <th>FIELD</th>
+    </tr>
+  </thead>
+  <tbody>
+    <tr>
+      <td>Washington, D. C.</td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td

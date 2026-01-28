@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_17757.png
+
+Convert to Markdown605- Salida... 622-
+
+622- Salida.- $289xxnnx.- (Servicio Internacional)- MARINA pre-gunta si hay algún nuzaje o cable para la embajada. HF que no hay ningúnuno y que llame al 19-09-06,- 630-
+
+650- Salida, al 19-09-06.- MARINA pregunta si hay algún cable para la embajada.-HF dice que no hay nada.- 678-
+
+678- Salida.- 12% hre.- (bartered Zero uns).- MARINA pregunta por 2CIMI, pero saber si hay alguna valija para la embajada.
+HF dice que no hay nada.- 699-
+
+699- Salida al 40-12-92.- 1206 hrs.- MARINA pregunta por el coronel 16CXXC. :).: dice que no está. MARINA pide lo diga a su pagd ( de lo que sabemos)... - ( SU TENEDOR LA CUEBICÓN POR ROTURA DE LA CABANA DEL GOSTERÁS)--- 730----
+
+(..h.-12- 4 mayo.66)

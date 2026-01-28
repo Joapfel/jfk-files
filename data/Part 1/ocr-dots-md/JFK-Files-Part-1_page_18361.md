@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_18361.png
+
+Convert to Markdown14-0000
+
+# Assistant Director for Operations
+## Executive Director
+### Identification for Contact Specialists
+
+9 October 1947
+
+1. Attached are:
+
+a. Three original letters of introduction dated 9 October 1947, signed by the Director of Central Intelligence, registration number 104, copy 1 - 3, to be issued to Mr. William P. Burke, Jr., Chief of the New Orleans office of your Contact Branch, and copies 4 and 5 for record purposes.
+
+b. Three original letters of introduction dated 9 October 1947, signed by the Director of Central Intelligence, registration number 105, copy 1 - 3, to be issued to Mr. Jay B. Le Reever, Chief of the Pittsburgh office of your Contact Branch, and copies 4 and 5 for record purposes.
+
+c. Three original letters of introduction dated 9 October 1947, signed by the Director of Central Intelligence, registration number 106, copy 1 - 3, to be issued to Mr. Harrison G. Reynolds, Chief of the Boston office of your Contact Branch, and copies 4 and 5 for record purposes.
+
+d. Sample letter of introduction to be used in connection with above letters, to be written and signed in each case by the field office chief concerned.
+
+2. The Assistant Director for Operations may request additional similar letters when new field offices of the Contact Branch are established and when field office chiefs are changed.
+
+3. Instructions relative to accounting for the registered letters signed by the Director will be issued to you direct from the Central Records Division of the Services Branch, AAM.
+
+4. The Chief, Personnel Branch, AAW, will place a notation with the personnel records of each field office chief to whom these letters are issued, and will be responsible that those individuals are not reassigned or separated until these registered letters have been accounted for and withdrawn for destruction.
+
+6. The Assistant Director for Operations and the Executive for Inspection and Security will cause such inspections to be made of the use of those means of identification as will insure maintenance of adequate security in connection therewith.
+
+FOR THE DIRECTOR OF CENTRAL INTELLIGENCE:
+
+L. I. SHANNON
+
+Acting Executive Director
+
+4 Enclosures
+
+1. Ltr from DCI re William P. Burke (copies 1-5) Exc'd for Attn.
+2. Ltr from DCI re J. L. Reever (copies 1-8)
+3. Ltr from DCI re H. O. Reynolds (copies 1-3) Gcc't'n: Chief, Pers Br.
+4. Sample ltr of introduction to be used by chiefs of ltr秘 chief's Gcc't'n: Chief, Svs Br (for C.R.)
+5. Sample ltr of introduction to be used by chiefs of ltr秘 chief's Gcc't'n: Chief, Svs Br for l& S
+
+6. Ltr from DCI re R. E.

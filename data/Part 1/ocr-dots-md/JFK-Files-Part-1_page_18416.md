@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_18416.png
+
+Convert to Markdown14-0000
+
+COPY
+
+FJTT-1950
+
+TO: Chief, SR
+FROM: Chief of Station, Tokyo
+SUBJECT: Promotion of promotion, which both he and Nelson discuss with Maury for promotion, which both he and Nelson felt was to be strongly recommended.
+REFERENCE: FJTW-11531 (RYBAT) dated 11 Oct 1957
+
+25 November 1958
+
+1. In line with paragraph 2 of Reference, after a period of six months we submitted an additional promotion fitness report on under cover of FJTT-0801 dated 28 May 1958. Inasmuch as Baker was then at Headquarters on TDY, we requested that he review this fitness report and assumed that in doing so he would also discuss with Maury his promotion, which both he and Nelson felt was to be strongly recommended.
+
+2. Baker was, however, not shown this fitness report at Headquarters, nor did he have the opportunity to discuss promotion with Maury. In reviewing our records we are now concerned at the possibility of some administrative slip-up and would appreciate a word of advice as to how this promotion action is proceeding. We would like to reiterate that we now have not the slightest hesitation in recommending him for promotion and find that the fitness report submitted with FJTT-0801 still reflects our current high appreciation of his abilities and progress.
+
+WILLIAM E. NELSON
+
+CFOOTnote:

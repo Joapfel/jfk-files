@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_17775.png
+
+Convert to Markdown..5.-
+
+... ella tiene familiares en Santo Domingo trabajando en la Oficina Sanitaria Panamericana y en ese de poder ir a oco pafa podrf. cationar su via allá ulamo, MARINA que lo ayuda en mucho pero de todos mados tiene que hacer las gestiones desde la embajada de aquf.- 292-
+
+292-
+
+Entrada.- 1150 hrs.- CRISTINA con MARINA y p-regunta por NARCOS ( JORGE MUNOZO). Erota dica que erero un momento. Despues CRISTINA dice que sabe que hace mal en llamarle pero para ella es suficiente estar esperando tanto y lo que le hizo el lunes esfa muy mal ya que ella desde el 21 de abril está tratando de hablarme por ultima vez sin tener que molestarlo mds. NARCOS guarda silencio. CRISTINA que solo le quiere saber su opinión para una viaja al Santo Domingo que ella quiere hacer y que no había encido antes porque su hija está enferma. NARCOS dice que aquí no se puede hablar para nada. CRISTINA que ya se que te molesta hablar con-atgo pero sord la ultima vez que lo hago pero yo quiero saber tu comojo para ir a Santo Domingo y lo dasas esti por demas halar y quedamos como amigos y total. Y que ya con los desairros que me haces ya es suficientito. NARCOS que no es momente para hablar y sabes igual y que el lamento vos venos y no puedo seguir hablando porque hay mucha gente. CRISTINA que entonces nos venos el lu us "enfrente donde exili siempre". NARCOS que está bien.- 328-
+
+Salida equivocada.- y sin contentación.- y siguen salidas equivocadas.- 427-
+
+427-
+
+Salida al 19-35-96.- 12:06 hrs.- (Hotel Emporador)- TADIKA por su amor NEL OJICO, pero no ha llegado y pide lo diga que "su espasa lo liame".- 403- (hoja cinco)

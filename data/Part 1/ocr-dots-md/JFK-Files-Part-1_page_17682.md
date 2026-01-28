@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_17682.png
+
+Convert to MarkdownSECRET
+
+9 July 1957
+
+RE: ORANDUM FOR: Chief, WJ
+
+SUBJECT: Project LIFETAT/LITHIUS
+
+1. Reference is made to your memorandum of 3 July 1957 concerning the renewal of Project LIFETAT for the period 1 July 1957 through 30 June 1958. The LITIUS portion of this project is of primary interest to the Polish Branch, and as part of the increasing priority of KUBARK interest in Poland and Polish targets, it is strongly recommended that the project be continued.
+
+2. This reaffirmation of our interest in LITIUS is based on the coverage it afforded up to December 1956 at which time the case officer/monitor handling LITIUS departed Mexico. This coverage was mainly of operational value in providing the following types of information:
+
+(a) indications oflegation plans to move which lead to the station's investigating the possibilities of installing microphones in strategic places which would have immeasurably improved our knowledge of Polish activities in Mexico.
+
+(b) Legation security practices which are useful in predicting or interpreting changes elsewhere.
+
+(c) Repatriation effort which has been of interest in itself and is of potential value in determining what part of this effort is connected with the PIS activity in Mexico.
+
+(d) Travel and other information concerning the TDI presence in Mexico of important PIS personalities which assists in the world wide coverage of these individuals.
+
+(e) some information about the PIS representatives assigned to the legation.
+
+(f) Confirmatory information concerning some basic aspects of developmental activities such as LIMETRIC.
+
+(g) Biographic and personality information in varying degrees of completeness about each of the individuals
+
+~~FREQUENT~~<br>~~SITUATION~~<br>~~REPORT~~<br>~~FOR~~<br>~~PROJECT~~<br>~~LIFETAT/LITHIUS~~<br><br><u>NOTE</u>
+<u>FOR REFERENCE ONLY. DO NOT DISTRIBUTE.</u>

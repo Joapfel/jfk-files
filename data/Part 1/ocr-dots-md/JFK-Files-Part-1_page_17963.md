@@ -1,0 +1,88 @@
+# JFK-Files-Part-1_page_17963.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>CONTINUATION OF<br/>DISPATCH</td>
+    <td>SECRET</td>
+    <td>HMMA-19843<br/>1942</td>
+   </tr>
+  </table>
+
+lines. The coverage by target was as follows:
+
+1. Soviet Bulletin Office.
+
+2. Svyatoslav F. KUZNETSOV
+
+3. Aleksandr G.. SIDOROV
+
+4. BECHICK's place of employment (and place of contact with BEKNAVE)
+
+5. and 6. Polish Embassy (two lines)
+
+7., 8., and 9. Yugoslav Embassy (three lines)
+
+10. Juan Jose AREVALO Bermejo
+
+11. Peter WATKINS
+
+12. Juan Simeon VIDARTE Franco Romero
+
+13. Dr. Eugenio ARAUZ
+
+14. Albert MALTZ
+
+15. Charles SMOLIKOFF (aka SMALL)
+
+## G. Personnel
+
+The basehouse operators for LIFEAT Annex VI, LIFEUD-5 and LIFEUD-1 after a long period of family disagreements, have mutually decided on a divorce. Both are being terminated by KUBARK since their usefulness as basehouse keepers for the project will end with their divorce. The agents have agreed to the termination and it will be accomplished on a friendly basis. (Agent Service Records will be forwarded). Therefore, it has been necessary to close Annex VI and terminate coverage of the lines provided by that base-house. LIFEUD-24 and LIFEUD-26 have been recruited to replace the terminated couple and are presently looking for a suitable basehouse which could fully replace the old Annex VI. (Note: POA was granted for LIFEUD-24 on 28 June 1962 and OA was requested. Also, OA was requested for LIFEUD-26 on 30 August 1962.)
+
+During the absence of Woodrow B. GABBOT (ps), the processor of the Polish language portions of the Polish Embassy take, a replacement in the person of contact agent BETUMBLE was provided by Headquarters. He performed well with no known security hazard to himself or LIFEAT. BETUMBLE departed Mexico City on 17 September 1962. Until GABBOT'S return Polish portions of this take are being translated by the Station Satellite Case Officer.
+
+2.A. During the month of August 1962, the LIFEAT operation provided a total of 45 reels of raw take from the ACGM lines to the local ODENVY office for their processing. In addition, a number of memos were prepared by the Station for passing to local ODACID and ODENVY based in whole or in part on LIFEAT provided material.
+
+B. The following reports were based in whole or in part on positive intelligence which is provided as a by-product of the LIFEAT operation:
+
+HMM-6605
+HMM-6626
+HMM-6663
+HMM-6667
+HMM-6670
+
+Distribution:
+12 - C/W1D
+2 - Files
+
+Willard C. CURTIS
+
+<table>
+   <tr>
+    <td>CLASSIFICATION:</td>
+    <td>SECRET</td>
+    <td>CONFIRMED</td>
+    <td>PAGE NO:</td>
+    <td>THREE</td>
+   </tr>
+   <tr>
+    <td>FORM:</td>
+    <td>1957 53a</td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>DATE:</td>
+    <td>1-28-79</td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>FOR whom:</td>
+    <td>A-1 ARE ASSIGNED</td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+  </table>

@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_18522.png
+
+Convert to MarkdownSECRET
+
+SECRET
+(When Filled In)
+
+<table><tr><td rowspan="2">REQUEST FOR MEDICAL EVALUATION</td><td>1. DATE OF REQUEST</td></tr><tr><td>31 January 1966</td></tr><tr><td>NAME (Last, First, Middle)</td><td>POSITION TITLE</td><td colspan="2">4. GRADE</td></tr><tr><td>HARVEY, William K.</td><td></td><td colspan="2"></td></tr><tr><td>S. OFFICE DIVISION BRANCH</td><td>EMPLOYEE'S EXT.</td><td colspan="2"></td></tr><tr><td>WB</td><td></td><td colspan="2"></td></tr><tr><td colspan="4"><strong>7. PURPOSE OF EVALUATION:</strong></td></tr><tr><td><input type="checkbox"/> PRE-EMPLOYMENT</td><td><input type="checkbox" checked disabled/> MOQS/TDY</td><td colspan="2"></td></tr><tr><td><input type="checkbox"/> ENTRANCE ON DUTY</td><td><input type="checkbox" checked disabled/> OVERSEAS ASSIGNMENT</td><td colspan="2"></td></tr><tr><td><input type="checkbox"/> TOY STANDBT</td><td colspan="3"><table><tr><td>ETD</td><td></td></tr><tr><td>STATION</td><td></td></tr><tr><td>TOY OR PCS</td><td></td></tr><tr><td>TYPE OF COVER</td><td></td></tr><tr><td>NO. OF DEPENDENTS TO ACCOMPANY</td><td></td></tr><tr><td>ANNUAL</td><td>NO. OF DEPENDENTS' REPORTS OF MEDICAL HISTORY (SF 38) ATTACHED</td></tr></table></td></tr><tr><td><input type="checkbox"/> SPECIAL TRAINING</td><td colspan="3"></td></tr><tr><td><input type="checkbox" checked disabled/> RETURN FROM DUTY</td><td colspan="3"><input type="checkbox" checked disabled/> RETURN FROM OVERSEAS</td></tr><tr><td><input type="checkbox"/> FITNESS FOR DUTY</td><td colspan="3"><table><tr><td>ETA</td><td></td></tr><tr><td>STATION</td><td></td></tr><tr><td>NO. OF DEPS.</td><td></td></tr></table></td></tr><tr><td><input type="checkbox"/> MEDICAL RETIREMENT</td><td colspan="3"></td></tr><tr><td colspan="4"><strong>8. OVERSEAS PLANNING EVALUATION (One block must be checked)</strong></td></tr><tr><td><input type="checkbox"/> YES</td><td colspan="3"><strong>9. REQUESTING OFFICER</strong></td></tr><tr><td><input type="checkbox"/> NO</td><td colspan="3"><table><tr><td>SIGNATURE</td><td></td></tr><tr><td>ROOM NO. & BUILDING</td><td></td></tr><tr><td>EXT.</td><td></td></tr></table></td></tr><tr><td colspan="4"><strong>10. COMMENTS</strong><br/><strong>Qualified for Current Duties</strong></td></tr><tr><td colspan="4"><strong>11. REPORT OF EVALUATION</strong><br/>31 January 1966</td></tr><tr><td>DATE</td><td colspan="3"><strong>SIGNATURE FOR ORDER OF MEDICAL STAFF</strong><br/>Peter J. Gaughan</td></tr><tr><td>31 January 1966</td><td colspan="3"></td></tr></table>
+
+FORM 10-59 259 USE PREVIOUS EDITIONS.
+
+SECRET
+
+(20)

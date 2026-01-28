@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_18038.png
+
+Convert to MarkdownSECRET
+
+## Problems and Security
+
+No agent control or operational problems have been reported. Neither were there any security problems encountered during the period. Gerald D. FAHLANGER continues to be the Case Officer and handler of KDAFGHAN-1. FAHLANGER has met and could continue to meet KDAFGHAN-2 in an emergency. The alternate Case Officer is Terence D. SISTONE who meets KDAFGHAN-1 when FAHLANGER is not available. Both Case Officers are known to the assets in alias, and both meet KDAFGHAN-1 in a safehouse. During February 1971 the safehouse was changed in compliance with normal operational security. Meetings are generally held once a week. More frequent contact can be made by telephone. In an emergency, anyone can call KDAFGHAN-1 at his home and say they are a friend of "Pepe Simon." KDAFGHAN-1 will reply "I haven't seen him since last Christmas." KDAFGHAN-1 speaks English.
+
+## Coordination:
+
+The Ambassador is aware of our efforts against the Cuban target in general. He has not been specifically briefed on this operation.
+
+## Future Plans:
+
+The Station is constantly examining the possibility of an audio installation at the main gate of the Cuban Embassy. A successful audio device would serve, in most cases, to identify the individuals who are photographed by KDAFGHAN-1 since they normally identify themselves to the gate house attendant. There are a few Station assets who have occasional access to the gate house, and it is conceivable that one of them could place a quick plant device, provided security conditions are favorable. The Station currently has under consideration a recruitment effort against a lower level employee of the Cuban Embassy who would be of tremendous help in such an operation.
+
+## Costs:
+
+1. General: This renewal request is for FY 1972 in the amount of $11,950 and FY 1973 in the amount of $11,950.
+
+2. Source of Funds: Project KDAFGHAN is included in the Western Hemisphere Division's Operating Program in the amount of $10,844 for FY 1972 and $10,844 for FY 1973. The additional Funds required are to be absorbed from within the WH Division allocation.

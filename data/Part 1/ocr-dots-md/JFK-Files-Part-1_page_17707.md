@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_17707.png
+
+Convert to Markdown30. Frances H. Housewife.
+
+31. Olivia M. Harris: Retired woman, residing with daughter and known to have independent income from retirement from former job.
+
+## 12. Contact and Communication
+
+Contact and communication between the case officers and the agents and undercover personnel in this operation is maintained in a clandestine manner in generally the same form as in previous years. Reference is made to III.-A-503, 9 May 1956, for a general description of this system, which appears to have been successful.
+
+## 13. Control and Motivation
+
+Reference is made to III.-A-503 under this heading.
+
+## 14. Equipment and Other Support
+
+It is believed that supplied of equipment for LIEAT currently at the Station are sufficient to carry the operation through the calendar year 1957, but it is possible that simultaneous breakdown of quantities of the older equipment, dating from 1931 and in constant use since then, would necessitate the placing of separate orders for replacements.
+
+## 15. Coordination
+
+LIEAT is coordinated with all other projects at this Station.
+
+## 16. Timetable
+
+LIEAT has been in almost constant operation since its inception in January, 1951 and it is planned to continue it indefinitely.
+
+Attachment to III.-A-7053
+c85
+5 June 1957

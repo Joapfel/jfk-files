@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_18562.png
+
+Convert to Markdown13 November 1973
+
+MEMORANDUM FOR: Career Management Group
+Mid-Career Officer Branch
+
+SUBJECT : Recommendation for the Promotion of Calvin W. Hicks (056361)
+to GS-14
+
+1. I would again like to recommend the promotion of subject officer from GS-13 to GS-14. Mr. Hicks has been with the Intelligence Watch since June 1967 and his performance has been characterized consistently by exceptional proficiency. He serves on a rotating schedule with seven other officers doing identical work, some of whom are currently in GS-14.
+
+2. A medical hold has precluded any further overseas assignments and for this reason his stay in IW has been extended until November 1974, when he will be 50-years-old at which time he plans to retire under the Agency retirement system.
+
+3. Mr. Hicks' resourcefulness and ability to apply the multitude of reporting instructions and techniques have been convincingly demonstrated in crisis situations such as the recent Chilean coup and the Middle-Eastern crisis. He has consistently displayed initiative and good judgment in meeting unforeseen crisis with rapid and effective action and has clearly demonstrated his ability to continuously adjust to rotating shifts and the irregular flow of traffic.
+
+4. For his sustained high level of performance in 1972 Mr. Hicks received a quality step increase in recognition and as proof of the high esteem in which he is held by his superiors. He occupies a GS-14 slot. His promotion is again recommended in recognition of his long years of Agency service.
+
+Joseph A. Procaccino
+C/OPS/INT/IW
+
+Concur: Elaine R. Page, C/OPS/INT
+
+E2 IMPDET CLBY 002025

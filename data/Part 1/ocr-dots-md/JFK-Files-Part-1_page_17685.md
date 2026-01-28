@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_17685.png
+
+Convert to Markdown3 July 1957
+
+MEMORANDUM FOR: Chief, E/Poland
+SUBJECT: Project LIPEAT
+
+1. The WH/Mexico Desk is now in the process of requesting the annual renewal of Project LIPEAT for the period 1 July 1957 - 30 June 1958.
+
+2. During the past year a considerable amount of operational and intelligence information from the LIDUS phase of this project has been forwarded to your office. In view of the pending project renewal, it would be appreciated if you would forward all to the WH/Mexico Desk at your earliest convenience a memorandum evaluating this project with regard to your area and sphere of interest.
+
+J. C. KING
+Chief, WHD
+
+WH/III/Mexico/LDPuckett.mjn
+
+**Distribution:**
+
+Orig. & 1 - Addressee
+1 - WH/III/Chrono
+1 - Subject
+
+~~SEC.1~~

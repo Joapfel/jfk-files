@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_18193.png
+
+Convert to Markdown24 November 1958
+
+MATERIAL FOR: FL/OPS-Projects Branch
+SUBJECT: Justification for Automobiles under Project LIMEETY
+
+1. It is requested that the Mexico City station be authorized to purchase three used sedans for use by the LIMEnty surveillance team. The Station plans to expand the LIMEnty surveillance team into a larger, well-trained physical surveillance asset. They will need three automobiles. Private automobiles or commercial transportation will not be satisfactory since the cars must be outfitted with two-way radios.
+
+2. Authority is also requested to purchase a panel truck to be used in the LIESTRAP operation under this project which mounts mobile photographic surveillances.
+
+3. It is also requested that a quasi-personal car be authorized for Oliver C. Scantling (ps). Scantling is an indigenous agent under oral contract. A car is a prerequisite for his work for KIIIMAKA which includes casings, surveillances, and investigations. Because of the sensitive nature of his work, and the heavy use made of the car, the Station has decided that Scantling should be furnished a LP car.
+
+4. LIMEnty agents were formerly carried under the LIMERKY and LIPSTICK Projects. The vehicles used by the LIMEnty agents under these other projects will be disposed of and new ones will be purchased after the above TVA has been approved. The vehicles which will be replaced are MV 2148, MV 2147, MV 2138, and MV 2041. One of the surveillance cars will be new and will not replace an old car. It was decided that these vehicles should be replaced rather than transferred to the LIMEnty Project for security reasons and because of the age of the automobiles. The automobiles are 1951 and 1952 models and have been used for sensitive surveillance work for over two years. The panel truck which was used in the LIESTRAP Operation under the LIPSTICK Project has been operating for two years in all parts of the city and has become a security threat. The fact that the LIPSTICK surveillance team knows that the truck exists, even to the point that one of the team members is the listed owner of the truck, also dictates replacement of this vehicle.
+
+J. C. KING
+Chief, MHD

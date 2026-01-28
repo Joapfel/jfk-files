@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_17705.png
+
+Convert to Markdown10. Operational Clearances
+
+of Item 9.
+
+11. Cover
+
+a. Cover for the case officers noted in 9a, diplomatic, or commercial (unofficial) see 5 a.
+
+b. Set forth below is a discussion of the cover of the non-diplomatic personnel in the operation.
+
+1. David L. WILSON: Partner in small family-run machinery business. His Mexican documentation is complete and legitimate.
+
+2. Ralph PAFANAMALI: Fully documented employee of LIEBERHANN, who has in the past provided similar cover for undercover agents.
+
+3. LEEWATER: His natural cover is of employee of the local telephone company, which he has been for a number of years.
+
+4. LEEWATER-1: Enjoys natural cover as a telephone company employee.
+
+5. LEEWATER-2: Enjoys natural cover as telephone employee.
+
+6. LEESTONE-1: She is an elderly person and hence can logically have income from family estate. Does not attract attention.
+
+7. LEESTONE-2: Brother of LEESTONE-1 and resides with her. Is elderly and can pass as a poor relative and retainer.
+
+8. LEESTONE-3: Has been engaged in obtaining small government contracts and moves in and out of various government offices. Unfortunately his cover is not really good and steps must be taken to improve it if he is to remain in our employ.
+
+9. LEESTONE-4: Elderly woman who has had large business enterprises in the past and who does not need to explain her source of income for this reason.
+
+10. LEESTONE-5: Father-in-law of LEESTONE-3 and ostensibly dependent on him.
+
+11. LEESTE.E-7: Widow of James O. MALL, who was widely regarded as a man of means. Hence she ostensibly lives on his estate. This woman has a tendency to live beyond her means, however, and is a cause for anxiety.

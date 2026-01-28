@@ -1,0 +1,127 @@
+# JFK-Files-Part-1_page_17978.png
+
+Convert to Markdown<html><body><table><tr><td>CONTINUATION OF<br/>DISPATCH</td></tr></table></body></html>
+
+<table>
+  <tbody>
+    <tr>
+      <td rowspan="15">HN-529</td>
+      <td>5297</td>
+      <td>5378</td>
+    </tr>
+    <tr>
+      <td>5299</td>
+      <td>5380</td>
+    </tr>
+    <tr>
+      <td>5309</td>
+      <td>5381</td>
+    </tr>
+    <tr>
+      <td>5310</td>
+      <td>5382</td>
+    </tr>
+    <tr>
+      <td>5319</td>
+      <td>5383</td>
+    </tr>
+    <tr>
+      <td>5321</td>
+      <td>5384</td>
+    </tr>
+    <tr>
+      <td>5329</td>
+      <td>5386</td>
+    </tr>
+    <tr>
+      <td>5330</td>
+      <td>5387</td>
+    </tr>
+    <tr>
+      <td>5332</td>
+      <td>5392</td>
+    </tr>
+    <tr>
+      <td>5333</td>
+      <td>5393</td>
+    </tr>
+    <tr>
+      <td>5336</td>
+      <td>5398</td>
+    </tr>
+    <tr>
+      <td>5339</td>
+      <td>5400</td>
+    </tr>
+    <tr>
+      <td>5342</td>
+      <td>5406</td>
+    </tr>
+    <tr>
+      <td>5343</td>
+      <td>5407</td>
+    </tr>
+    <tr>
+      <td>5347</td>
+      <td>5408</td>
+    </tr>
+    <tr>
+      <td>5348</td>
+      <td>5409</td>
+    </tr>
+    <tr>
+      <td>5354</td>
+      <td>5410</td>
+    </tr>
+    <tr>
+      <td>5356 (via NEXI-6937)</td>
+      <td>5413 (via NEXI-7187)</td>
+    </tr>
+    <tr>
+      <td>5362</td>
+      <td>5418</td>
+    </tr>
+    <tr>
+      <td>5372 (via NEXI-6979)</td>
+      <td>5426 (via NEXI-7187)</td>
+    </tr>
+    <tr>
+      <td>5375</td>
+      <td>5428</td>
+    </tr>
+    <tr>
+      <td>5376</td>
+      <td>5437 (via NEXI-7212)</td>
+    </tr>
+    <tr>
+      <td rowspan="27">HOMA-15/31</td>
+      <td>15467</td>
+      <td>15936</td>
+    </tr>
+    <tr>
+      <td>15472</td>
+      <td>15971</td>
+    </tr>
+    <tr>
+      <td>15480</td>
+      <td>16037</td>
+    </tr>
+    <tr>
+      <td>15481</td>
+      <td>16051</td>
+    </tr>
+    <tr>
+      <td>15489</td>
+      <td>16052</td>
+    </tr>
+    <tr>
+      <td>15499</td>
+      <td>16078</td>
+    </tr>
+    <tr>
+      <td>15537</td>
+      <td>16103</td>
+    </tr>
+    <tr>
+      <td>15552</td>
+      <td

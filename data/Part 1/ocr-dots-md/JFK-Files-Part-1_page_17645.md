@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_17645.png
+
+Convert to MarkdownSECRET
+
+5. I recommend approval of these two amendments, subject to the conditions as stated by CCB/IC in paragraph four, above.
+
+/s/ A. Lloyd George ®
+W. LLOYD GEORGE
+Chief
+Foreign Intelligence
+
+Concurs: (Fido) Rueda, 12 DEC 1957
+Date
+COP-00/T
+
+Approved: Signed C. F. CABLE 5 DEC 1957
+Date
+DDCI
+
+Attachments: Project Outline LIFCAT
+Memorandum, 31 October 1957
+Memorandum, 13 November 1957
+
+Staff Coordination:
+For C/71/CYS s/R. Bryant
+For C/CI/DA s/J. Burton
+C/CCB/HC s/J. Southard
+For C/CT s/A. Brown
+
+Responsible Officers:
+
+Adqts. - Louis D. Puckett
+Field - Charles Anderson
+
+* Arendment approved to extent that a competent additional staff agent may be added to the project and the letter of Credit underwritten. However the addition of wingness per se is not approved until the necessary personnel management restriction currently in effect have been complied with.
+
+/s/ L.G.
+
+SECRET

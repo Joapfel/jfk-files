@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_17697.png
+
+Convert to Markdownalso to ODEWY. This case was a part of the Jack Stell es-aminee case; and LIETAT coverage of the STELLIS has been outstandingly excellent. In fact, the Station has had three commendations from headquarters on the LIETAT coverage of this case and Edward R. Seaton had a personal commendation from ASCMA. On his work (LIETAT) on the case. Over ninety (90) reads have been produced by LIETAT on the STELLIS between 9 February and 27 April 1957. Another interesting facet of unit coverage is that on 6 February (at 1030 hours) 1957 a cable from headquarters asked that the station attempt to institute LIETAT coverage on the STELLIS. At 1000 hours on 9 February 1957 LIETAT coverage had been completed and was producing.
+
+13. Miscellaneous Coverages
+
+During the past year the following individual targets have been covered for periods of time varying from one month to a full year:
+
+a. Aaron Jose PSZISKA Margules, Jewish Communist leader. The coverage reflected the decline of the Jewish Communist movement and the relative inactivity of PSZISKA and was suspended.
+
+b. Noah SIEGEL, American Communist. He and his wife work for a travel agency and their traffic has reflected many details concerning the movements of Americans in and out of Mexico, many of them Communists.
+
+c. Samuel HAGIDIN Hagidin, Jewish Communist leader. This coverage confirmed the decline of the local Jewish Communist movement and the final liquidation of its headquarters. It reflected the names of the new active members who continue to meet informally. It was of especial value in covering the arrest of Chone SHEINBAUM, member of the Jewish Communist group, and in covering the deportation of Jacobo MURILLO Zender, known Communist agent. From this coverage details were learned concerning the names of the lawyers used by the defendants, together with a considerable view of the methods and secondary contacts.
+
+d. Alfred K. (and Martha Dodd) STEVII (see para 12), which was probably the most outstanding technical surveillance operation ever mounted by this Station and which is still continuing.
+
+e. Eduardo MAGNO Morales, Venezuelan Communist. This coverage conveyed a host of details on the machinations and activities of the Venezuelan Communists in exco and to a lesser degree provided information on their contacts with the Soviets and Mexican Communists.
+
+f. Xavier GUEVARA O. This coverage contained considerable detail on the Communist party, Society of Friends of China, Peace Front and other organizations of which GUEVARA was a member. It also contained details of great interest on various Latin American Communists and Americans with whom the GUERREROS were in contact. Information derived from this line
+
+Attachment to III.-7063
+986
+5 June 1957

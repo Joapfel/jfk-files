@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_17791.png
+
+Convert to Markdown... Unidos que leafields que está en una junta y que llaman
+sus tardas, l'ERG-DES que el llama lo diga que ya sale para el
+Congreso a buscarlo. MARIÑA que está bien.- 13h-
+
+134-
+Salida al 46-65-70.- 1019 hra.- YADIRA dice a MARINA que
+por la tarde se ven para como juntas.- 142-
+
+142-
+Entrada.- 1021 hra.- IE por la dirección de la Subajada,
+GUZMAN se la proporciona.- 145-
+
+143-
+Salida al 46-65-70.- 1024 hra.- MARINA propone do parte
+de MARINA como asistente el nino. IE dice que ya bien y que
+ella va a esperar a su hombre que llegue hoy.- 158-
+
+158-
+Salidas sin contentación.- 174-
+
+174-
+Entrada.- 1049 hra.- CRISTINA con CARMITA y con MARINA
+para saludarse y preguntar como sigue la hija de MARINA o sea
+LILIANA. MARINA dice que ya mejor. CRISTINA está esperando porque
+HAR O SMOG. la eito a las dies y media en la puesta dejalacio
+de Horro de Dura go, y estàrd llamando para saber el llega a
+la subajada. MARINA que está bien.- 193-
+
+193-
+Entrada.- 1108 hra.- IF por el agregado de Pronon. YADIRA
+dice que llama al 24-51-29 ( maxima -- os con la NIGORI)- 204-
+
+204-
+Entrada.- 1110 hra.- MERCDÍAS DE FALLO preginta al llegd
+su esposo RENE. GUZMAN y despyara MARIANA dice que la están esgerma
+do. Despiues MERCDÍAS reclama a RENE que la hizo ir a buscarlo.
+RENÉ le dice " mi vida perdoname, y no tuvo que venir". MERCDÍAS
+(hoja tres) ...

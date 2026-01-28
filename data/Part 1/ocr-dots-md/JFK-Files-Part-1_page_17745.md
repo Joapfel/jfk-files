@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_17745.png
+
+Convert to Markdown440-
+
+Entrada.- 1125 hra.- RF de la ANGOSAD pregunta por TAPIA, CARPIA dice que espera. Después RF celebrador de AGOSAD para saber si puede pasar a dejar sus recibos. TAPIA dice que está muy flojo de dinero y le pagará los tres juntos en cuanto llegue su cheque. RF que el reglamento es que se acumulan tres recibos se lo dará de baja. TAPIA dice que se los llevo juntos. RF que es difícil localizarlo ni por teléfono. TAPIA que antes de venir le llamo para preparar su dinero.- 463-
+
+{..5.-12-} may. (6)

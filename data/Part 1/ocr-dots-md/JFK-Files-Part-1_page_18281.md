@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_18281.png
+
+Convert to Markdown14-0000
+
+<table><thead><tr><th colspan="7">NOTIFICATION OF PERSONNEL ACTION</th></tr><tr><td>1. SERIAL NUMBER</td><td>2. NAME (LAST-FIRST MIDDLE)</td><td>3. EFFECTIVE DATE</td><td>4. CATEGORY OF EMPLOYMENT</td><td>5. COST CENTER NO. CHARGEABLE</td><td>6. LOCATION OF OFFICIAL STATION</td></tr></thead><tbody><tr><td>001779</td><td>BURKE WILLIAM P JR</td><td>8. NO DA YM</td><td>PERMANENT</td><td rowspan="2">3243 222-4000</td><td rowspan="2"></td></tr><tr><td colspan="2">RETIREMENT (OPTIONAL)</td><td>V TO CF<br/>CF TO CF</td><td></td></tr><tr><td>4. FUNDS</td><td>X</td><td>V TO V<br/>CF TO V</td><td>V TO CF<br/>CF TO CF</td><td rowspan="2">BSEE OR OTHER LEGAL AUTHORITY</td><td rowspan="2"></td></tr><tr><td></td><td></td><td colspan="2">9. ORGANIZATIONAL DESIGNATIONS</td></tr><tr><td colspan="3">11. POSITION TITLE</td><td>12. POSITION NUMBER</td><td colspan="2">13. CAREER SERVICE DESIGNATION</td></tr><tr><td colspan="3">TO CONTACT</td><td>0195</td><td colspan="2">CC</td></tr><tr><td colspan="2">14. CLASSIFICATION SCHEDULE (GS, LD, etc.)</td><td colspan="2">15. OCCUPATIONAL SERIES</td><td colspan="2">16. GRADE AND STEP</td></tr><tr><td colspan="2">GS</td><td colspan="2">0132.21</td><td colspan="2">15 B</td></tr><tr><td colspan="2">18. REMARKS</td><td colspan="4">SIGNATURE OR OTHER AUTHENTICATION</td></tr></tbody></table>
+
+Form 1150 Use Previous Edition (4-01)
