@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_19985.png
+
+Convert to Markdown**Section 3. Comments of Reviewing Official:**
+
+This employee had no qualifications for assignment in the German desk or
+German operational field. He was carried in the German Branch in a
+casual status while an assignment suitable to his talents was being located.
+The fitness report for the period of his duty with the German Branch is
+accordingly only a record of the fact that he loyally and diligently carried
+out assigned tasks to the best of his ability.
+
+William J. Graver
+
+Chief, EE/Germany
+
+SECRET

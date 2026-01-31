@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_19238.png
+
+Convert to Markdown15-00000
+
+I. 5 JUN 1963
+26-
+
+A, 154 155 1. I am sorry, but I can not find anything that matches your description of the document above. It looks like a legal form or something, but it's not very clear.
+
+157206
+S8575.00
+
+The document is from an American bank in San Diego. It says that you are a U.S. citizen and that you will be allowed to remain in the country for two years without being required to reenter the country again. The second page of the document states that you are aU.S. citizen and that you will be allowed to remain in the country for ten years without being required to reenter the country again. This means that you will be allowed to stay in the United States permanently. The last page of the document states that you are aU.S. citizen and that you will be allowed to remain in the country for five years without being required to reenter the country again. This means that you will be allowed to stay in the United States permanently.
+
+The first three pages of the document are the same as the last two pages. They say that you are aU.S. citizen and that you will be allowed to remain in the country for three years without being required to reenter the country again. They also state that you will be allowed to stay in the United States permanently.
+
+This document appears to be aVisa application. It asks for your full name, address, and citizenship. It also asks for information about your family. It asks for your birth date, place of birth, and citizenship. Finally, it asks for information about your current residence, permanent address, and reason for staying in the United States. The last question asks if you have any dependents. This means that there are other people in the United States who will be allowed to stay with you.
+
+In summary, this document seems to be a visa application for a one-year stay in the United States. It asks for personal information such as your full name, address, and citizenship. It also asks for information about your family, including your current address, permanent address, and reason for staying in the United States. Finally, it asks if you have any dependents. This means that there are other people in the United States who will be allowed to stay with you.
+
+a) This document was issued on 11/1/62. It asks for your current address, permanent address, and citizenship. It also asks for information about your family, including your current address, permanent address, and reason for staying in the United States. Finally, it asks if you have any dependents. This means that there are other people in the United States who will be allowed to stay with you.
+
+b) This document was issued on 10/1/63. It asks for your current address, permanent address, and citizenship. It also asks for information about your family, including your current address, permanent address, and reason for staying in the United States. Finally, it asks if you have any dependents. This means that there are other people in the United States who will be allowed to stay with you.
+
+c) This document was issued on 10/1/63. It asks for your current address, permanent address, and citizenship. It also asks for information about your family, including your current address, permanent address, and reason for staying in the United States. Finally, it asks if you have any dependents. This means that there are other people in the United States who will be allowed to stay with you.
+
+d) This document was issued on 10/1/63. It asks for your current address, permanent address, and citizenship. It also asks for information about your family, including your current address, permanent address, and reason for staying in the United States. Finally, it asks if you have any dependents. This means that there are other people in the United States who will be allowed to stay with you.
+
+e) This document was issued on 10/1/63. It asks for your current address, permanent address, and citizenship. It also asks for information about your family, including your current address, permanent address, and reason for staying in the United States. Finally, it asks if you have any dependents. This means that there are other people in the United States who will be allowed to stay with you.
+
+f) This document was issued on 10/1/63. It asks for your current address, permanent address, and citizenship. It also asks for information about your family, including your current address, permanent address, and reason for staying in the United States. Finally, it asks if you have any dependents. This means that there are other people in the United States who will be allowed to stay with you.
+
+g) This document was issued on

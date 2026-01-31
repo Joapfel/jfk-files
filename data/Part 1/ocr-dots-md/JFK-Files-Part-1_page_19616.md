@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_19616.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">Continued on next sheet</th></tr></thead><tbody><tr><td>46. INCORPORATED (As individual(s) if originated in NY in any one of the years 1950 through 1975, OR if not incorporated prior to 1950 but is now a member of an organization which has not been listed above):<br/>1. INCOME FROM OPERATIONS<br/>2. EXPENSES OF OPERATIONS<br/>3. NET INCOME<br/><br/>47. ACCOUNTED FOR BY<br/>CHARLES W. KANE<br/>DEPUTY DIRECTOR OF SECURITY<br/><br/>SECTION E<br/>HEAD OF SECURITY - CURRENT SERVICE (Current level of service)<br/><br/>DEPUTY DIRECTOR OF CURRENT SERVICE<br/><br/>CURRENT SERVICE CONTRACTORS</td><td>THE ACT<br/><br/>10 JUL 1973<br/><br/>10 JUL 1973<br/><br/>OCT 78</td></tr></tbody></table>

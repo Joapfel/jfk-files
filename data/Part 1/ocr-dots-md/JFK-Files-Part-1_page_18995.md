@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_18995.png
+
+Convert to MarkdownNPD
+
+National Demokratische Partei. Deutschland (National Democratic Party of Germany)
+
+Combined Deutsche Rechtspartei, Deutsche Reichspartei, the split off Sozialistische Reichspartei and the Deutsche Partei.
+
+In August 1964 von Thaden arranged a meeting with other right-wingers to promote unification of all nationalist forces. Friedrich Thielen served as both front man and financial backer. A committee of 10 drafted a constitution which was accepted in November 1964 by representatives of the DRP, DP, GNP and the DVNP (Deutsche-National Volkspartei). The DRP officially dissolved in December 1965 although the NPD had, in fact, long been the nationalist party. At the 21 March 1967 meeting of the NPD Executive Committee, the more moderate Thielen (formerly Deutsche Partei) was ousted from the NPD by the more extreme von Thaden forces (DRP).. There was no major rush to leave the NPD, however. Recent reporting has indicated that those who did leave the NPD, even including Thielen, are being invited back into the NPD.

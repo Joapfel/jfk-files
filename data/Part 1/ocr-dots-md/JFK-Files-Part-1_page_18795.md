@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_18795.png
+
+Convert to MarkdownENGAGEMENT SHEET
+
+1. To be filled out in duplicate by the Unit Administrative Officer for all prospective employees to be paid from Special Funds.
+
+2. To be accompanied by detailed job description, complete biographical sketch, and a formal notice of security clearance. Request if engagement is overseas.
+
+3. To be approved or accepted by the officers in the order listed below.
+
+4. Original to be retained by S.F.; copy to be returned to initiating Administrative Officer.
+
+12 November 1946
+
+1. NAME: Ann L. GOODPASTURE
+2. LEGAL RESIDENCE: Oklahoma
+3. ADDRESS OF LOCAL LIVING QUARTERS: 1514 17th St., HU Apt. 111 TEL. De 0300 X-1118
+4. ENTRANCE ON DUTY DATE: 1 December 1946
+5. ANNUAL SALARY: $26,118.80 2,779.80 CLASSIFICATION: GAF-5
+6. PERMANENT STATION: Bombay
+7. POSITION: Clerk CONTROL NO.
+8. IF SUBJECT HAS BEEN TRANSFERRED, STATE BUREAU, BRANCH, OR DEPARTMENT OF THE U.S. GOVERNMENT FROM WHICH TRANSFERRED: State Civil Service
+9. GENERAL REMARKS: Please request leave balances from vouchored payroll.
+
+APPROVAL AND ACCEPTANCE
+
+(In accordance with existing personnel engagement procedures)
+
+A. ADMINISTRATIVE OFFICER [Signature] DATE 13 Nov 1946
+
+B. BRANCH CHIEF ____________ DATE ____________
+
+C. CHAIRMAN, PERSONNEL REVIEW COMMITTEE ____________ DATE ____________
+
+D. (For the) ASSISTANT DIRECTOR [Signature] DATE 15 Nov 1946
+
+E. CHIEF, SPECIAL FUNDS [Signature] DATE 18 Nov 46
+
+FORM NO.
+SEP 1946 33-1
+
+SECRET
+
+SECRET

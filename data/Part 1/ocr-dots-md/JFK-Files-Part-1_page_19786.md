@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_19786.png
+
+Convert to MarkdownATTACHMENT HERewith TO FCOF-6937
+
+dtd 22 May 1963
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: James P. O'Connell
+
+1. In accordance with FR 20-8 b (2) this memorandum is written in lieu of submission of Form 45.
+
+2. This has been attached to Okinawa Station since 24 July 1962. As Chief, Regional KUSODA Staff, Okinawa, he has the responsibility of providing KUSODA support to all FE and SE Station. Although as Chief of Station, Okinawa I do not have supervisory responsibility over the Regional KUSODA Program, I am pleased to state that in my opinion he has carried out his work in a commendable manner.
+
+3. In addition to carrying out his Regional responsibilities, this has been very helpful to Okinawa Station. He has established excellent rapport with the military and has ably assisted the Station in several delicate problems. In approaching any problem is objective, tactful, and exercises good judgment.
+
+4. It would be a pleasure to serve with him at any time.
+
+ERNEST F. SAYLOR
+O.S. Okinawa
+
+READ:
+
+20 JUN 1963

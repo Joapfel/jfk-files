@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_19310.png
+
+Convert to MarkdownSECRET
+
+TO: CALCUTTA
+FROM: SPECIAL OPERATIONS
+Confirmation: FZ (1-2)
+Information: Adso (3-4), CoPs (5), CRD (6), PERS (7)
+
+ROUTINE
+26 AUG 49
+OUT 88189
+
+WASH 90%
+TO: CALS
+
+CITE: WASH
+
+WITH WIFE AND TWO CHILDREN WILL ARRIVE CALCUTTA ABOUT 20 OCTOBER replacing RAFORD. ADVISE PARLIAMENT INQUIRIES WHAT HOUSING WILL BE AVAILABLE. CABLE REPLY. IDENTITY FOLLOW'S.
+
+K. PRUDDEN
+
+ANH
+
+L. GEORGE
+
+Releasing Officer
+
+Originating and Coordinating Officer
+
+Authenticating Officer
+
+TOD: 21242 26 AUG 49
+
+Copy No. 7
+
+SECRET
+
+14-00000

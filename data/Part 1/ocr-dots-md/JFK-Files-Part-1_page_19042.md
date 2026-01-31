@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_19042.png
+
+Convert to MarkdownSECRET
+
+The Bonn government is gen- erally reluctant, however, to ban the NPD, believing that it would be imprudent to drive the ultra- rightists underground. If the NPD were to score impressive new successes in future elections, however, the resulting concern in the major parties might prompt a reconsideration of this policy. Interior Minister Luecke favors banning the party as soon as enough evidence can be obtained to assure successful court action. It is also possible that new NPD gains would motivate the established parties to make pro- posed changes in the electoral law that would make it more dif- ficult for the NPD to obtain Bundestag representation.
+
+Although the NPD program is strongly reminiscent of Hitlerian National Socialism, the party's electoral supporters in Hesse and Bavaria also include persons who have no prior Nazi affilia- tions or any particular suscepti- bility to Nazism per se. It has managed to attract impulsive youngsters, as well as political malcontents of all ages. Its membership includes individuals from a broad range of occupations. The NPD's special appeal among the lower-middle-class, and par- ticularly among the small business- men and farmers is reinforced by the economic squeeze these groups are experiencing as a result of government economy measures. In Hesse and Bavaria, the party did especially well in areas noted for traditional German nationalism
+
+and in areas which are predomi- nantly Protestant. Many NPD ad- herents are expellees from the territories lost at the end of World War II.
+
+The makeup of the formal NPD membership is not radically different in age or occupation, group from a cross section of the general public. However, there are certain characteristics of NPD supporters which set them apart from supporters of the three major parties. The NPD tends to attract a somewhat larger number of older persons as well as young adults, and the number of lower middle class members, including pensioners, is dis- proportionately large. Formal membership among students, how- ever, is very small and only 350 of a total of 244,000 university students are on the party rolls.
+
+There is no evidence that the NPD receives significant financial support from German industrialists. It is, however, able to operate in the black. The sound state of its finances is in part a result of its prac- tice of charging admission to its rallies. This serves the double function of making the rank and file feel that they have a stake in the party and of making it necessary for its opponents to pay for the right to heckle. The party also derives considerable sums from membership dues, sub- scriptions to party publications, and donations from members and sympathizers.
+
+SECRET
+
+Page 5 SPECIAL REPORT 9 Jun 67

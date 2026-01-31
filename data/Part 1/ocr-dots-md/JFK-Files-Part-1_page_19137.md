@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_19137.png
+
+Convert to MarkdownSECRET
+
+SUBJECT: [REDACTED], Request for Early Home Leave
+
+William V. Broe
+Chief
+Western Hemisphere Division
+
+Attachment:
+Bio Profile
+
+CONCUR:
+
+A DDP/OP
+
+3 Aug 1967
+Date
+
+APPROVED:
+
+Director of Personnel
+
+3 Aug 1967
+Date
+
+SECRET

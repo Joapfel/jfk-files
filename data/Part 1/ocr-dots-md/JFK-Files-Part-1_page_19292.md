@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_19292.png
+
+Convert to MarkdownTO: Medical Division
+FROM: Transactions & Records (1st)
+SUBJECT: James H. Moore
+
+Request that above named subject be given a physical examination.
+
+POSITION: Intelligence Officer
+
+GRADE: GS-12
+
+BRANCH: CO, Contact
+
+SERVICE: Field
+
+NATURE OF APPOINTMENT: Exc. Appt. (Transfer of Funds)
+
+4/26/49

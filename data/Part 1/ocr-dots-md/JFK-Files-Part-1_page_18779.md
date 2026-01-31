@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_18779.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA: AIR
+SPECIFY AIR OR SEA POUCH
+
+DISPATCH NO: ZIBA-85
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO : Chief, Foreign Branch 2
+
+FROM : Chief of Station, Bombay, India
+
+SUBJECT: GENERAL Administrative
+SPECIFIC
+
+DATE: 8 March 1948
+
+APR 6
+
+1. The enclosed memorandum was given to me by this date and its contents are self explanatory. I want to emphasize the fact that Riggs has definitely made up his mind and intends to comply with the plan as stated in the enclosure.
+
+2. I desire to convey my unqualified commendation for the attitude and performance of duties offered by <u>during the past 11 months.</u> In every instance he has been 100% cooperative with never a display of selfishness. All members of the Consulate are very fond of <u>as are the people of Bombay.</u>
+
+L.E.Y.
+Lester E. Yorke
+
+REGISTRY COPY
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+FORM NO. 51-28
+APR 1947
+
+28 MAR 1948 AM 3:30

@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_18691.png
+
+Convert to MarkdownSECRET
+
+17 March 1972
+
+MEMORANDUM FOR: Director of Personnel
+
+VIA : DDP/OP
+
+SUBJECT : Request for Quality Step Increase
+Mr. Calvin W. Hicks
+
+1. The GS-13 Evaluation Board for FY 1972, having carefully reviewed the performance of all officers in grade GS-13 according to the standards of HR 20-31a(3)(b), recommends Mr. Calvin W. Hicks for a Quality Step Increase.
+
+2. Mr. Hicks performed in a superior manner as a paramilitary officer during the early years of his career, overseas and in Headquarters. A medical hold on overseas duty led to his assignment in 1967 to the Intelligence Watch/FI Staff where he has remained up to the present. Mr. Hicks has received overall ratings of "strong" from 1968 through 1971, with his performance characterized as exceptionally proficient. Of the seven officers with whom he serves on a rotating basis, four are GS-14's. The FI Staff has recommended Mr. Hicks for promotion in 1968, 1969, 1971 and 1972, with a recommendation for QSI in 1970. None of these recommendations were approved.
+
+3. The Board has noted that Mr. Hicks plans to retire in 1974 at the age of 50. In view of the very high regard in which he is held by the FI Staff; his record of sustained superior performance and his high dedication to the Agency, the Board recommends recognition in the form of a Quality Step Increase for Mr. Hicks.
+
+GS-13 Evaluation Board (FY 72)
+
+CONCUR:
+
+Chief, SOD
+
+Date
+
+APPROVED:
+
+Deputy Director for Plans
+
+Date
+
+Director of Personnel
+
+Date
+
+SECRET
+
+14-00000

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_18683.png
+
+Convert to Markdown14-0000
+
+Mr. Calvin W. Hicks
+10207 Forest Avenue
+Fairfax, Virginia 22030
+
+Dear Mr. Hicks:
+
+This is to inform you that the Director of Personnel has approved your request for disability retirement under the CIA Retirement and Disability System. On the basis of medical evidence, the Director of Personnel has determined that your disability is of a permanent nature; therefore, no further medical review of your case will be required.
+
+Your annuity will commence retroactive to 28 December 1974, the day following the date on which your salary terminated. You may be assured that every effort will be made to expedite delivery of your first annuity check following completion of the administrative details required to effect your retirement.
+
+Distribution:
+
+* 0 - Addressee (CIA Letterhead)
+* 1 - D Career Service
+* 1 - OMS
+* 1 - OPF
+* 1 - ROB Soft File
+* 1 - ROB Reader
+
+OP/RAD/ROB/PJSeidel:jat/3257 (30 December 1974)

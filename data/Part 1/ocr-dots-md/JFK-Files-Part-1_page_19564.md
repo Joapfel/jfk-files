@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_19564.png
+
+Convert to Markdownoffices and dates covering period of service in each:
+Department of Justice - April 1940 to Nov 1944
+U. S. Navy 6 Jan 1945 to present date
+
+24. Do you now hold, or have you ever held, any position under any foreign government? If so, state the position or positions: No
+
+25. What is the lowest salary you would accept, as a clerk?
+
+XXIX XXXX
+
+26. Give name of five responsible persons for references:
+
+N. J. L. Pieper, FEI -111 Sutter St., San Francisco
+Chester L. Jacoby, FBI - 111 Sutter St., San Francisco
+Mr. William Harrison, #1 Toledo Way, San Francisco
+Mr. Buford Ellis, Farmers & Merchants Bank, Abilene, Texas
+Dr. N. A. Richardson, President, Hardin Simmons U, Abilene, Texas.
+
+27. Are your services immediately available for duty in any part of the world? Yes
+
+J. Walton More
+(Signature of Applicant)
+J. WALTON KOORI,
+Ensign - USNR

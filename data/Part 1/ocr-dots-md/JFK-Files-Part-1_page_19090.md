@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_19090.png
+
+Convert to Markdown19. The French stated that the British troops were out of line, and that they had no right to fire on them; but that if the British moved closer to their lines, they would be fired upon by the British batteries in the city. The French agreed to this plan, provided that the British would not fire on the city. This plan was approved by the General Assembly, and a resolution was passed in favor of it.
+
+20. In August, some former Departmental chief of the French colonial agencies, who in 1815 had been in the French service, left the country to go back to France. They were followed by other French officers and soldiers, and a large number of Frenchmen joined the British forces. In December, the British force in the city was about 30,000, while the French were only 7,000.
+
+21. According to Mr. Colón, an American officer, the strategy of the French was to act as if they were going to attack the British. But they actually intended to take the city. In order to do this, they needed to get rid of the British military. In January, the French began to send troops to help them. In February, the British general had to give up the city, and the French took it.
+
+## Conclusion
+
+22. American soldiers stationed in Tokyo report a number of cases of American soldiers shooting them at night. It is claimed that these incidents are the work of Japanese soldiers sent to Japan to train American soldiers for use in Europe. It is believed that the French would have someone to shoot at at every opportunity possible.
+
+23. On their side, the French came, to a greater or lesser degree,enschotful over the Americanlies of Peking, which destroyed a large part of the city; caused American treatment of prisoners of war to be increased; and over the Chinese Unionist movement in China, which supplied the Americans with food supplies, as the civil战争repulsion have not arrived in power yet. As to the question of whether the French and Americans are the same people, there has been much discussion in the press during the past few days; however, the American view of the situation is probably correct. Contrary to what was expected of them, American troops were at 50 to 60 miles from a city, beyond 50 miles.
+
+24. After a command of the viceroy and the earl of Albermoer, started to lead a general進out into the city. After a time, he gave up his idea of making a direct move on the capital. He considered relations with the Qing government very difficult, since the Qing government was not loyal enough to the Manchu dynasty. He turned to a indirect approach to the capital. As a first step, an ultimatum was sent to the Qing government, offering a new offer of terms. The Qing government refused to negotiate with the Manchu, and so the process went on until a decision was made by the Qing government to replace the Qing government with a new one.

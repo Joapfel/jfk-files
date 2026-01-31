@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_19034.png
+
+Convert to MarkdownSECRET
+
+Another possibility might be a left-wing withdrawal from the SPD, although the leadership for a dissident faction has yet to emerge. This might provide a healthy outlet for criticism of the system without a turn to minority rule. Unlike the early 1930s, virtually all West German politicians now would do their best to maintain a functioning constitutional system. Real dangers will probably not arise unless, as in the late Weimar period, the government finds itself confronted with economic or political problems which seem to defy compromise settlement or rational solution:
+
+Immediate Prospects
+
+Assuming that the Bonn coalition lasts until the 1969 elections, its leading members may still modify their policies somewhat in the light of the Baden-Wuerttemberg experience. The adverse vote of the refugees in the recent election could act as a brake on the policy of detente with Czechoslovakia and Poland, although there is no sign of this as yet. Chancellor Kiesinger has attributed NPD gains partly to "years of agitation against our own history and against healthy self-confidence," which suggests that he may try to sound a more nationalistic note. To
+
+the extent to which the results continue to be attributed to student activities, this will strengthen the demand for firmness. Even before the election, Brandt sent a telegram to SPD state headquarters, advising that speakers should react "completely hard" against student demonstrations.
+
+Although the antistudent reaction does not seem to have been as important a factor as some have believed it to be, constant violence and provocation on the part of the students, accompanied by constant press attention, could lead to severe official or unofficial counteraction. This, in turn, could bring more serious student violence, perhaps with the support of other elements.
+
+Some matters of student concern have appeal for others. Thus students and many trade unionists oppose emergency laws, and this question is again being agitated. Because of the Nazi experience, there is widespread aversion among left-of-center elements to the use of force in the name of "order," however great the provocation. But also because of the Nazi experience, a really large increase in NPD votes does not seem likely in the 1969 election, or in an earlier new election in Baden-Wuerttemberg, should that come to pass. (CONFIDENTIAL)
+
+SECRET
+
+Page 10 SPECIAL REPORT 31 May 68

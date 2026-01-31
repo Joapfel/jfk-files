@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_19920.png
+
+Convert to MarkdownMEMORANDUM RECEIPT
+
+7 June 1963
+
+TO: W.S.Renehan, WH/Pers
+FROM: Mrs. Anna Tarasoff
+SUBJECT: Receipt of Advance of Funds for Transportation from Washington, D. C. to Mexico City
+
+DATE
+BAY
+
+I hereby acknowledge receipt of the following:
+
+$525.00 in conjunction with Subject. It is understood that this advance is for [REDACTED] lowest first class rail travel Washington to Mexico City, Mexico and related costs, and anticipated per diem for three days for myself and two dependent children. Accounting for the advance will be submitted to the Mexico City Station.
+
+Please return [REDACTED] signed copy (los) of this receipt
+
+To
+P.O. # 752 REPLACES FORM 98-08
+1 AUG 93 WHICH MAY BE OVERRIDED.
+
+Anna Tarasoff
+SIGNATURE OF RECIPIENT
+DATE 1963
+RECEIVED
+
+(88)

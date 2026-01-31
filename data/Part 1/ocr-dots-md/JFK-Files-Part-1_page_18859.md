@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_18859.png
+
+Convert to MarkdownSECRET
+
+DOP/WH
+PROJECT PBSUCCESS
+
+| STATION | LINCOLN (Continued) | | | | |
+| :--- | :--- | :--- | :--- | :--- | :--- |
+| **Name** | **Title** | **Code/Grade** | **Pos No.** | **Title** | **Code/Grade** |
+| | | | | | |
+| Trottin, Carl E. | Intel Asst | OS-0301.22-7 | BAP-9 | Intel Asst | GS-0301.35-7 |
+| Ebert, Louis V. | Intel Off (FI) | OS-0132.06-7 | BAP-10 | Intel Off (FI) | OS-0132.51-7 |
+| GOODPASTURE, Ann L. | Intel Off (FI) | OS-0132.06-9 | BAP-13 | Intel Off (FI) | OS-0132.51-9 |
+| CANN, Ruth E. | Trng Instr (F.L.) | OS-1710.04-9 | BAP-25 | Trng Instr (F.L.) | OS-1710.04-9 |
+| MIRUS, Lucille V. | Admin Asst | OS-0301.02-7 | HAP-19 | Admin Asst | OS-0301.02-7 |
+| BRENNAN, Raymond J. | Admin Asst | OS-0301.02-7 | BAP-46 | Admin Asst | OS-0301.02-7 |
+| MORRIS, Dorothy J. | Secretary | GS-0318.03-7 | BAP-27 | Secretary | GS-0318.03-7 |
+| MAGGARD, Peggy M. | Secretary (Gen) | GS-0318.03-7 | BAP-M | Secretary | GS-0318.03-7 |
+| OYLER, Mary C. | Secretary (Gen) | GS-0318.03-4 | BAP-16 | Secretary | GS-0318.03-4 |
+| WEBER, Lydia F. | Secretary (Gen) | OS-0318.03-6 | BAP-15 | Secretary | GS-0318.03-6 |
+| KEIRSTEAD, Rosemary J. | Secretary (Gen) | GS-0318.03-4 | BAP-21 | Secretary | GS-0318.03-4 |
+| BROWNLIE, Mariel P. | Secretary | GS-0318.03-4 | BAP-22 | Secretary | GS-0318.03-4 |
+| LOVELL, Nancy J. | Secretary (Gen) | GS-0318.03-4 | BAP-12 | Secretary | GS-0318.03-4 |
+| CONNELLY, Jean | Secretary (Gen) | GS-0318.03-4 | BAP-20 | Secretary | GS-0318.03-4 |
+| BEYERS, Barbara C. | Secretary | GS-0318.03-5 | BAP-28 | Secretary | GS-0318.03-5 |
+| DALRYMPLE, Joan | Secretary (Steno) | GS-0318.01-5 | BAP-49 | Secretary (Steno) | GS-0318.01-5 |
+| ADAMES, Hilda | Clerk Typist (Sp) | OS-0322.01-4 | BAP-45 | Clerk Typist | OS-0322.01-4 |
+| KUNZ, Laurean M. | Secretary (Typ) | GS-0318.02-4 | BAP-47 | Secretary (Typ) | CS-0318.02-4 |
+| HENNESSEY, Geraldine C. | Clerk Steno | OS-0312.01-4 | BAP-50 | Clerk Steno | GS-0312.01-4 |
+
+FJHOPEFUL
+
+STILLER, Thomas L. Supply Off. M.Sgt BAP-53 Supply Off. M/Sgt BAP-8056
+
+S

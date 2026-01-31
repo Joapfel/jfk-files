@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_19087.png
+
+Convert to Markdownthat the CG, .so not maintaining a sufficient ly independent and political attitude,
+
+12. In discussing relations of the Socialist party with reform groups,
+J. Seldani, member of the German parliament of the party for the far left, and one of the leaders in the recent strike against the First rank trade unions in Berlin, has expressed his deep regret over the fact that the Socialistic party is now so weak, and that the best elements of the socialist party would constitute a great force representing the socialist party of the future.
+During the debate on this subject, the leader of the Socialists, Dr. Emil Völkel, made an explosive statement to an inflationist by his statement that the leadership of the V.S.R. must be replaced by a group of active revolutionaries who were trying to take advantage of the situation of the national political power.
+
+13. as for foreign policy, the congress expressed itself opposed to the
+hierarchy of any one great power, whether it be Britain, the United States or
+Canada, and in favor of a system of collective security, with all the demo-
+cratic nations of the world equally represented in an international associa-
+tion of nation. This association should have its own army, credit, transport,
+state, in order to be able to guarantee the peace. Regarding the treatment of
+Germany, the Congress voluntee its opposition to any disreputable act of the country,
+but approved a long cessionation with a severe armed control of all German in-
+dustry and agriculture and a long, drawn-out program for the reduction of German
+youth.
+
+14. The Socialistic Party, according to Mr. Seldani, secretary of the Senate
+座談人 of the Socialistic Party, the Congress claims to have 4,000 registered
+members in the year. Socialist leaders interviewed declined to quote any figures.
+
+15. Further, President Seldani maintains that the regula-
+tions have gained many new followers in the last since the war, at the expense of
+the Socialists. He claims that this results in a large outflow from the Com-
+munist's nationalist policy and also into a large young, vigorous leadership, as
+well as into the Socialists who will leave the old leadership representing the
+old regime. He stated that the policy of the Socialistic Party would remain
+nationalist in the future; that it would be difficult to return to a revolutionary program.
+
+16. Furthermore asserted that the Communists are along better with the Christian
+democrats than with the Socialists, since the latter - as he put it - Said
+part, interests above the national interest.
+
+17. the Communists are opposed to the election next February;
+their reason, certainly, lies in the election were scheduled before
+the recognition of the new state by the Allies as a real power in hol-
+ly as popular resistance until showing the allies that they could do
+something else. For that the allies are recognized the US Government,
+remains the preceding need for the benefit of elections no longer exists. Besides,
+it would be all fair to ask for the return of those billion votes
+and departures before proceeding to the polls. Going to a poll in one,
+two, three, the real reason the Communists are opposed to the election is their
+fear of loss, and of the strength which now holds on the various Departments.

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_19047.png
+
+Convert to MarkdownSECRET
+
+It is possible--although increasingly unlikely--that the NPD could turn out to resemble other parties of a national-conservative stamp. Despite the radical views of some of their members, such groups have managed to operate without subversive manifestations. The German Party (DP), for example, which had been represented in several North German state legislatures and in the Bundestag conducted itself in a responsible fashion.
+
+The NPD at present draws a good deal of this traditional right-wing vote from the old Refuge Party, the DP, and small conservative regional parties such as the Bavarian Party. The total extremist vote, however, has increased very little since the establishment of the NPD. Estimates of the extent of hard-core ultranationalist sentiment in Germany vary between 5 and 15 percent of the electorate. Under present conditions this does not constitute a threat to German democratic institutions and is not
+
+greater than the degree of extremist sentiment in other Western European countries.
+
+Outlook
+
+Assuming the NPD survives the current period of internal strife, its potential for further growth beyond its present 6- to 8-percent range appears to be limited under conditions now prevailing in West Germany. The NPD is still capable of capitalizing on circumstances which might present themselves as a result of a protracted economic recession or major political blunders which would discredit the present government leadership. The outcome of recent state elections, however, tends to confirm that the overwhelming majority of German voters continues to prefer the moderate, albeit increasingly independent and nationalist, policies of the major parties and the government, and rejects the radical alternatives advocated by the NPD. (SECRET)
+
+SECRET
+
+Page 10 SPECIAL REPORT 9 Jun 67

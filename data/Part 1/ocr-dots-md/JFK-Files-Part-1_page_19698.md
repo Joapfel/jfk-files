@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_19698.png
+
+Convert to Markdown# Security Information
+
+## INSPECTION & SECURITY OFFICE
+
+### CODE "T"
+
+#### SPECIAL SECURITY DIVISION
+
+<table><thead><tr><th>NAME</th><th>TITLE</th><th>GRADE SERIES</th><th>POSITION NUMBER</th></tr></thead><tbody><tr><td colspan="4">OPERATIONS STAFF CONTINUED</td></tr><tr><td>FERRALL, Francis I.</td><td>Investigator(Gen)</td><td>GS-1810-9</td><td>T128-9</td></tr><tr><td>MOONEY, James J.</td><td>Investigator(Gen)</td><td>GS-1810-7</td><td>T128.01-7</td></tr><tr><td>DIEDRICH, Robert C.</td><td>Investigator(Gen)</td><td>GS-1810-11</td><td>T128.02</td></tr><tr><td>BELT, Charles</td><td>Investigator(Gen)</td><td>GS-1810-11</td><td>T128.03</td></tr><tr><td>KOHN, Patricia</td><td>Secretary(Steno)</td><td>GS-318-5</td><td>T129-5</td></tr><tr><td>BLACK, Dorothy M.</td><td>Secretary(Steno)</td><td>GS-318-5</td><td>T130</td></tr><tr><td>VASS, Carol J.</td><td>Secretary(Steno)</td><td>GS-318-5</td><td>T130.01</td></tr><tr><td>NICKLAU, Elaine</td><td>Secretary(Steno)</td><td>GS-318-5</td><td>T130.02</td></tr><tr><td>PIRRONE, Marie</td><td>Secretary(Steno)</td><td>GS-318-4</td><td>T130.03-4</td></tr><tr><td>ST.IVANYI, Elaine</td><td>Secretary(Steno)</td><td>GS-318-4</td><td>T130.04-4</td></tr><tr><td>BAIWIR, Frances E.P.</td><td>Secretary(Steno)</td><td>GS-318-5</td><td>T130.05</td></tr><tr><td>GROMEX, Helen</td><td>Clerk Stonographer</td><td>GS-312-4</td><td>T131</td></tr><tr><td>OLDHAM, Katherine B.</td><td>Clerk Stonographer</td><td>GS-312-4</td><td>T131.01</td></tr><tr><td>MASCIOCCHI, Norma</td><td>Clerk Stonographer</td><td>GS-312-4</td><td>T131.02</td></tr><tr><td>CHECHILE, Rose Mary</td><td>Clerk Stonographer</td><td>GS-312-4</td><td>T131.03</td></tr><tr><td>BRIGHTMAN, Joan Lois</td><td>Clerk Stonographer</td><td>GS-312-4</td><td>T131.04</td></tr><tr><td>LEITH, Elizabeth A.</td><td>Clerk Stonographer</td><td>GS-312-4</td><td>T131.05</td></tr><tr><td colspan="4">ADMINISTRATIVE POOL</td></tr><tr><td colspan="4">OPERATIONS STAFF</td></tr><tr><td>GREENER, William E., Jr.</td><td>Investigator(Gen)</td><td>GS-1810-11</td><td>T126.05-11</td></tr><tr><td>CARROLL, Thomas M.</td><td>Investigator(Gen)</td><td>GS-1810-12</td><td>T127.08</td></tr><tr><td>PARR, Laurence G.</td><td>Investigator(Gen)</td

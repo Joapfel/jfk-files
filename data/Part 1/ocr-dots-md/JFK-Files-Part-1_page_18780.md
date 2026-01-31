@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_18780.png
+
+Convert to MarkdownMEMORANDUM
+
+8 March 1948
+
+TO : Lester E. Yorke
+
+PROJ:
+
+SUBJ: Return to US within 7½ months.
+
+1. It is my desire to be returned to the United States upon completion of 13 months' overseas duty for the purpose of resignation after my arrival at headquarters.
+
+2. This notice is given so that the organization will have ample time to replace me prior to October '48 should they desire to do so. Should they replace me immediately, all expenses incurred by the organization in connection with my return transportation will be reimbursed.
+
+3. I desire to depart for the United States immediately upon completion of 18 months' overseas which will be October 18, 1948. Travel at that time will be at the expense of the organization in accordance with an agreement prior to my departure for overseas duty.
+
+APR 6
+
+<table><tr><td>ENCLOSURE</td></tr></table> #1
+
+10 MAR 1948 10:53:24 AM

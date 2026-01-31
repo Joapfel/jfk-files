@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_18706.png
+
+Convert to Markdown14-0000
+
+104-10193-10079
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+<table><thead><tr><th>DATE RECEIVED</th><th>DATE RETURNED</th><th>REVIEWED BY (PRINT NAME)</th><th>SIGNATURE OF REVIEWING OFFICIAL</th></tr></thead><tbody><tr><td>6/26/78</td><td>6/28/78</td><td>DAN HARDWAY</td><td>Dan Hardway</td></tr></tbody></table>
+
+GOODPASTURE, ANN L.
+
+TERMINATED 5/23/93 D
+
+DENTS MAY BE COPIED OR RECIVED FROM THIS FILE
+
+SECRET
+
+FILE TITLE/NUMBER/VOLUME: Goodpasture, Ann L.
+INCLUSIVE DATES: 10 Feb 1944 - 28 June 1973
+CUSTODIAL UNIT/LOCATION: Office of Personnel
+ROOM: 5E13
+DELETIONS, IF ANY:
+
+<table><tr><td>DATE RECEIVED</td><td>DATE RETURNED</td><td>REVIEWED BY (PRINT NAME)</td><td>SIGNATURE OF REVIEWING OFFICIAL</td></tr><tr><td>6/26/78</td><td>6/28/78</td><td>DAN HARDWAY</td><td>Dan Hardway</td></tr></table>

@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_18777.png
+
+Convert to MarkdownSECRET
+
+SUBJECT: ANN J. GOODELL STARR
+
+The subject entered on duty with the predecessor organization in February 1944. She served in India and in China from November 1944 to March, 1946. She arrived at her present overseas post on 17 April 1947 under an 18 month overseas agreement. She is being returned FBS to the United States upon completion of her present tour of duty for reassignment, which will be determined upon her arrival in Washington.
+
+No per diem will be paid the subject while on duty in the United States.
+
+SECRET
+
+14-00000
+
+JER
+POW
+Holly
+FEB
+VESPERS
+
+1953 D

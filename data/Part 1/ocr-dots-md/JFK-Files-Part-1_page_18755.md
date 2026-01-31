@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_18755.png
+
+Convert to MarkdownHNYA-105
+
+3 June 1953
+
+TO : Chief, WHD
+FROM : Chief of Substation,
+Monterrey, Mexico
+SUBJECT : Administrativo
+
+Robert B. Rios returned to Monterrey on 2 June.
+Please advise the appropriate KUCLUB individual.
+
+DBK;rbr
+
+David D. Kenan
+
+Distribution:
+3-Wash
+2-Mexico City
+2-Monterrey
+
+HNYA-105
+
+4 June 1953

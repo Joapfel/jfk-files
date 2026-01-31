@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_18957.png
+
+Convert to Markdown14-0000
+
+# DECLARATION OF APPOINTEE
+
+This form, if required, is to be completed before entrance on duty. Every condition must be answered. Any false statement in this declaration will be grounds for cancellation of application or dismissal after appointment. False伪statements is a criminal offense and will be prosecuted accordingly.
+
+I. Present Address: 242 Delaware Ave S.W., Washington D.C.
+(Street and Number): 
+(State): 
+(Zip Code):
+
+II. Who should be notified in case of emergency? C.D. Handprint: Father (Name): (City and State): 
+(Street and Number): 
+(City and State)
+
+III. Does the U.S. Government employ in a civilian capacity any relative of yours listed by (Name or relationship) with whom you live or have lived within the past 6 months? Yes or No:
+If so, for each such relative fill in the Name(s), relationship(s), and address:
+
+<table><thead><tr><td>Name</td><td>Post-office address (Give street number, if any)</td><td>(1) Position and (2) Temporary or not and (3) Department or office in which employed</td><td>Religion</td><td>Marital or single</td><td>Age</td></tr></thead><tbody><tr><td></td><td></td><td>l<br>2<br>3</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>l<br>2<br>3</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>l<br>2<br>3</td><td></td><td></td><td></td></tr></tbody></table>
+
+4. Place of birth Celina, Indiana (Town): Increase, Clay County (State or Country): 
+
+Indicate "Yes" or "No" answer by placing X in proper column.
+
+Y
+X
+NO
+ITEM NO.: Write in left column numbers of items to which detailed answers apply
+
+8. Are you a citizen of the United States? X
+
+9. If foreign born, have you furnished proof of naturalization or citizenship to (1) the U. S. Civil Service Commission? (2) this agency in connection with this appointment? X
+
+10. Since you filed application resulting in this appointment, has there been any change in the status of your citizenship, or of the persons through whom you gained your citizenship?
+
+11. Do you hold any position or office under the United States or any State, Territory, County, or Municipality? If so, state the place, position, and salary under Item 12.
+
+12. Do you receive any pension or other benefit for military or naval service or an annuity from the U. S. or D. C. Government under any Retirement Act? If so, give details under Item 12, stating whether you were retired for age length of service, or disability; amount of retirement pay and under what retirement out and rank, if retired from military or naval service.
+
+10. Since you filed application resulting in this appointment, have you been discharged for misconduct or unsatisfactory service, or forced to resign from any position? If so, give under Item 12 where employed, name and address of employer and the reason for discharge in each case.
+
+11. Since you filed application resulting in this appointment, have you been arrested, or summoned into any civil or military court as a defendant, or indicted for or convicted of any offense (felony or misdemeanor)? If so, for each case give under Item 12 (1) the date, (2) the name and location of the court, (1) the nature of the offense or violation, and (2) the penalty, if any, imposed, or other disposition.
+
+## INSTRUCTIONS TO APPOINTING OFFICER
+
+The appointing officer before whom the foregoing certificate is made shall determine to his own satisfaction that this appointment would be in conformance with the Civil Service Act, applicable civil-service rules, the War Service Regulations, and acts of Congress pertaining to appointment.
+
+This form should be checked for holding of office, pension, purchase of office, suitability in connection with any record of recent discharge or arrest, promise to observe provisions requiring political activity, and particularly for the following:
+
+(1) Identity of appointee with the applicant whose appointment was authorized. The appointment's signature and handwriting are to be compared with the application and other pertinent papers. The physical appearance may be checked against the medical certificate. The appointee may also be questioned on his personal history for agreement with his previous statements.
+
+(2) Age.—If discrepancy exists between the date of birth and that on application, and if definite age limits have been established for the position it should be determined that applicant is not

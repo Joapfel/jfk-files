@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_19799.png
+
+Convert to MarkdownCOPY
+
+20 April 1974.
+
+MEMORANDUM FOR: Director of Security
+---
+SUBJECT: Commendation of Security Office Personnel
+
+1. It is with pleasure that I wish to pass to your Special Security Division a personal commendation of two officers who have assisted materially in the establishment and continued successful management of the AFILTE project.
+
+2. Confronted with a sudden requirement to deploy several security officers to a new activity here in the United States, Mr. James P. (O'Connell, Jr., contributed materially to the project in coordination of several neighborhood checks, re-assignment of several Security Office personnel, the preparation of two safe houses on short notice, and the reception of sensitive alien personnel under the strictest security precautions. Mr. O'Connell has put in many hours on this project, well beyond his normal routine, and several times at great personal inconvenience.
+
+3. I wish, at the same time, to commend specifically the security officer who went under the operational alias of J.C. Carter. This officer supervised five other highly qualified and experienced officers in the preparation of elaborate house-breaking safeguards for the first safe house acquired under Project AFILFILTER. He did his job not only thoroughly but quite cheerfully, despite actual personal hardship.
+
+4. It is all too seldom that the Divisions get around to giving credit where it is due, even in the domestic activities of LE/TP. In these two cases, however, I feel that this commendation is the least token that can be proffered to two devoted and skilled civil servants.
+
+5. I suggest that copies of this memorandum be included in the personnel files of both Mr. O'Connell and J.C. Carter.
+
+DATA B. DURAND
+CSR
+
+COPY

@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_19601.png
+
+Convert to MarkdownSEC. 15. HAVE YOU EVER BEEN DISCHARGED OR ASKED TO RESIGN FROM ANY POSITION? HAVE YOU LEFT A POSITION UNDER CIRCUMSTANCES WHICH YOU DESIRE TO EXPLAIN? GIVE DETAILS:
+
+No
+
+SEC. 16 GIVE FIVE CHARACTER REFERENCES - IN THE U.S. - WHO KNOW YOU INTIMATELY - (GIVE RESIDENCE AND BUSINESS ADDRESSES WHERE POSSIBLE.)
+
+Street and Number | City | State
+---|---|---
+1. | BUS. ADD. | 
+   | RES. ADD. | 
+2. | BUS. ADD. | 
+   | RES. ADD. | 
+3. | BUS. ADD. | 
+   | RES. ADD. | 
+4. | BUS. ADD. | 
+   | RES. ADD. | 
+5. | BUS. ADD. | 
+   | RES. ADD. |
+
+SEC. 17. NAMES OF FIVE PERSONS WHO KNOW YOU SOCIALLY IN THE UNITED STATES — NOT REFERENCES, SUPERVISORS OR EMPLOYERS — (Give residence and business addresses where possible.)
+
+Street and Number | City | State
+---|---|---
+1. | BUS. ADD. | 
+   | RES. ADD. | 
+2. | BUS. ADD. | 
+   | RES. ADD. | 
+3. | BUS. ADD. | 
+   | RES. ADD. | 
+4. | BUS. ADD. | 
+   | RES. ADD. | 
+5. | BUS. ADD. | 
+   | RES. ADD. |

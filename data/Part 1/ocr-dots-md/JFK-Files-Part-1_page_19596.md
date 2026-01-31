@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_19596.png
+
+Convert to MarkdownSEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents)
+
+1. NAME Michael Walton Hoare RELATIONSHIP Son AGE 6
+CITIZENSHIP US ADDRESS 2600 Pemberton, Houston, Texas, U.S.A.
+
+2. NAME Margaret Lee Years RELATIONSHIP Daughter AGE 9
+CITIZENSHIP US ADDRESS 2600 Pemberton, Houston, Texas, U.S.A.,
+
+3. NAME
+CITIZENSHIP
+ADDRESS
+St. & No.
+City
+State
+Country
+
+SEC. 5. FATHER (Give the same information for stepfather and/or guardian on a separate sheet)
+
+FULL NAME Joseph Walton Hoo:
+LIVING OR DECEASED: Deceased DATE OF DECEASE Dec. 1933 CAUSE Cancer
+PRESENT, OR, LAST, ADDRESS 1701 Sandofer St., Abilene, Texas 76824 State K Country K
+DATE OF BIRTH 1939 PLACE OF BIRTH Murphy County, N.C., Carolina State N
+IF BORN OUTSIDE U.S. INDICATE DATZ AND PLACE OF ENTRY _________________
+CITIZENSHIP ____________ WHEN ACQUIRED? ________ WHERE? _______________ City State Country
+OCCUPATION Missionary LAST EMPLOYER Baptist Foreign Mission Board
+EMPLOYER'S OR OWN BUSINESS ADDRESS Louisville, Kentucky, U.S.A. State K Country K
+MILITARY SERVICE FROM 1917 TO 1923 BRANCH OF SERVICE S-AFETY
+COUNTRY ________________ DETAILS OF OTHER GOVT SERVICE, U.S. OR FOREIGN.
+
+SEC. 6. MOTHER (Give the same information for stepmother on a separate sheet)
+
+FULL NAME Minnie Lee Middle Estate
+LIVING OR DECEASED Living DATE OF DECEASE ________ CAUSE ________
+PRESENT, OR LAST, ADDRESS 711 South 5th St., Houston, Texas, U.S.A.
+STATE K CITY N
+DATE OF BIRTH 1939 PLACE OF BIRTH -HOUSTON-TX-
+CITIZENSHIP US WHEN ACQUIRED? ________ WHERE? _______________ City State Country
+IF BORN OUTSIDE U.S. INDICATE DATE AND PLACE OF ENTRY ______________

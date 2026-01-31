@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_19883.png
+
+Convert to MarkdownSECRET
+
+DATE22 November 1967
+
+MEMORANDUM FOR: Chief, Insurance Branch/BSD/OP
+Benefits and Services Division
+
+This is to advise you that Anna A. Tarasoff has been employed under an Agency personal services contract effective 8 September 1967. The Contract authorizes participation in Civil Service Retirement, FEGLI and Federal Health Insurance.
+
+Subject's contract is the administrative responsibility of DDP/WH .
+
+Dow H. Luetscher
+Chief
+Contract Personnel Division
+
+SECRET
+
+Group I - Excluded from automatic downgrading and declassification

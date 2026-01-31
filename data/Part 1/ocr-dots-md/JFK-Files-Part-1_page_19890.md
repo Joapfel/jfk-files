@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_19890.png
+
+Convert to Markdown6. You may request an advance of funds for payment of foreign income or related (income) taxes assessed against income received from or guaranteed by the Organization. Accounting for these funds will be made in the form of copies of the receipted tax bills (or other acceptable tax documents) which will be forwarded to the home office for approval and write-off of expense.
+
+7. Please acknowledged the original of this letter and return to Headquarters, attention: Covert Tax Committee.
+
+8. We appreciate your cooperation in arranging these details.
+
+VICTOR D. UNITSKY
+Secretary
+Covert Tax Committee
+
+Acknowledged:
+Date

@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_19208.png
+
+Convert to Markdown# Training Report
+
+## Spanish Basic Reading, Speaking, Writing
+(900 hours, full time)
+
+Student : Boris D. Tarasoff
+Office : WH
+Year of Birth : 1908
+Service Designation: D
+Grade : 11
+No. of Students : 4
+EOD Date : 02/56
+Instructor: Mrs. L. Edwards
+
+## COURSE OBJECTIVES - CONTENT AND METHOD
+
+This is a 20-week, full-time course. The general aim of this course is to enable the student to use the spoken language with moderate facility and accuracy in a large number of everyday situations while providing a basis for further learning of the language either by actual use in the area or by further formal study. The major objectives of the course are to develop an ability; 1) to distinguish and produce the sounds of the language; 2) to use a large variety of basic sentences and expressions in the spoken language and apply them by re-combination to new situations; 3) to comprehend spoken Spanish in a variety of current everyday situations; 4) to develop the skills and techniques needed to read Spanish texts with minimum use of the dictionary; 5) to write the language in basic form, including letters, telegrams, short composition, etc.
+
+The entire working day, 5 days a week, is devoted exclusively to language study. Four to five hours daily (a maximum of 25 hours a week) are devoted to guided drill and conversation practice with native speakers. The balance of the day is devoted to language laboratory drill and preparation of assigned material. Three days at mid-term and the final week of the course are spent in a special language-house in which Spanish is spoken exclusively.
+
+## ACHIEVEMENT RECORD
+
+Student progress is evaluated primarily on oral recitation in the form of drills and free conversation based on memorized material. In addition, several tests are given during the course. The number of students receiving each adjectival rating on overall course performance is shown below. This student's rating is indicated by the asterisk.
+
+| Excellent | Very Satisfactory | Satisfactory | Excellent |
+|---|---|---|---|
+| 1 | 1* | 2* | 1 |
+
+Mr. Tarasoff's application and interest throughout the course was unstinting. Progress in all course objectives was modest but steady. In future study particular attention should be given to pronunciation, substructure.
+
+FOR THE DIRECTOR OF TRAINING:
+
+Chie of Instructor
+
+Date
+
+S-E-C-P-E-T
+(When filled in)
+
+LESSON 1
+Classified from abstract
+BASIC PRINCIPLES AND
+CLASSIFIED BY STATEMENTS OF PURPOSE
+GENERAL SPECIFICATION OF END

@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_19413.png
+
+Convert to Markdown"PAY ADJUSTMENT IN ACCORDANCE WITH THE PROVISIONS OF SECTION 5305 OF TITLE 5, U.S.C. AND EXECUTIVE ORDER 11883 PURSUANT TO AUTHORITY OF DCI AS PROVIDED IN THE CIA ACT OF 1949, AS AMENDED, AND DCI DIRECTIVE DATED 8 OCTOBER 1962."
+
+EFFECTIVE DATE OF PAY ADJUSTMENT: 12 OCTOBER 1975
+
+| NAME | SERIAL # | URGN. FUND'S GR-STEP | NEW SALARY |
+|---|---|---|---|
+| MOORE J WALTON | 003820 | 56 535 V | $37,573 |
+
+"PAY ADJUSTMENT IN ACCORDANCE WITH THE PROVISIONS OF SECTION 5305 OF TITLE 5, U.S.C. AND EXECUTIVE ORDER 11739 PURSUANT TO AUTHORITY OF DCI AS PROVIDED IN THE CIA ACT OF 1949, AS AMENDED, AND DCI DIRECTIVE DATED 0E OCTOBER 1962."
+
+EFFECTIVE DATE OF PAY ADJUSTMENT: 14 OCTOBER 1973
+
+| NAME | SERIAL # | URGN. FUND'S GR-STEP | NEW SALARY |
+|---|---|---|---|
+| MOORE J WALTON | 003820 | 56 535 V | $32,973 |
+
+<table><tr><td colspan="2">1. SERIAL NO.</td><td colspan="2">2. NAME</td><td colspan="2">3. ORGANIZATION</td><td colspan="2">4. FUNDS</td><td colspan="2">5. LWOP HOURS</td></tr><tr><td colspan="2">003820</td><td colspan="2">MOORE J WALTON</td><td colspan="2">66 535</td><td colspan="2">V</td><td colspan="2"></td></tr><tr><td rowspan="2">6.</td><td colspan="4">OLD SALARY RATE</td><td rowspan="2">7.</td><td colspan="4">NEW SALARY RATE</td><td rowspan="2">8. TYPE ACTION<br/>SI & ADJ.</td></tr><tr><td>Grade</td><td>Step</td><td>Salary</td><td>Last Eff. Date</td><td>Grade</td><td>Step</td><td>Salary</td><td>EFFECTIVE DATE</td></tr><tr><td colspan="4">GS 14 3</td><td>$28,478</td><td>06/28/70</td><td>GS 14 9</td><td>$29,248</td><td>06/24/73</td><td></td><td></td></tr></table>
+
+CERTIFICATION AND AUTHENTICATION
+
+I CERTIFY THAT THE WORK OF THE ABOVE NAMED EMPLOYEE IS OF ACCEPTABLE LEVEL OF COMPETENCE.
+
+SIGNATURE
+
+DATE
+
+NO EXCESS LWOP
+IN PAY STATUS AT END OF WAITING PERIOD
+LWOP STATUS AT END OF WAITING PERIOD

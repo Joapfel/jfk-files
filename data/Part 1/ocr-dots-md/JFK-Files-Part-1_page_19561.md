@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_19561.png
+
+Convert to Markdown7. Length of residence of wife (XXIX-XVIII) in the United States: Total life - 26 Yrs
+
+8. Name of State of which you are a legal resident, and the length of legal residence therein: Texas - 6 yrs
+
+9. If a foreign, state country of which a citizen or subject:
+
+10. If a native citizen, a certified copy of birth certificate should be transmitted with application. (If such certificate can not be obtained from office of record, a storm statement showing place and date of birth should be furnished by your father or mother, if living; otherwise, a person competent to make the statement).
+
+If a naturalized citizen, certificate of naturalization should be transmitted with application. State how and when citizenship was acquired:
+
+11. Name, nationality, and permanent address of father:
+J. Walton Moore, American Deceased
+12. Maiden name and permanent address of mother:
+Minnie Lee Foster, 711 South 5th Street
+Waco, Texas
+13. Place and date of birth of father Murphy Co. N Carolina 1893
+14. Place and date of birth of mother Mo Laen, Texas 1896
+15. If parents are dead, state name, relationship, and address of nearest living relative or friend:

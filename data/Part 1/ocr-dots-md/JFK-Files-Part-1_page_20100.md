@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_20100.png
+
+Convert to MarkdownSECTION C
+
+SECRET
+
+NARRATIVE COMMENTS
+
+The assignment of this employee to the field under non-official cover was designed to compensate for the loss of an employee in an official cover slot which was cut from the Station's ODACID allotment of personnel positions.
+
+During the reporting period this employee has accomplished with success the convincing establishment of his cover in a complex milieu, and has been accepted as legitimate by his professional colleagues, the persons whom he meets under cover, and the French authorities. It should be noted that his ability to assume his cover has been largely the result of his own efforts over a period of years to acquire and maintain a familiarity with the general scientific field.
+
+During the reporting period he has developed a wide circle of contacts in the scientific and journalistic fields and applies a long background in a variety of assignments in KUDOVE to the determination and assessment of operational potential among these contacts. At the same time his cover organization, in which only four persons are witting of his actual status, has shown itself to be more than satisfied with his performance of his cover duties.
+
+This employee requires a minimum of detailed operational supervision; it is necessary in specific cases only to indicate the operational or informational objectives.
+
+From the point of view of administrative support, his attention to detail and meticulousness reduce the problems of his support by the Station to a minimum.
+
+This employee uses the French language continuously, and his facility is such as to permit him to handle himself excellently in a broad range of complex technical subjects. He has in addition undertaken specialized French language training to develop this capability further. His operational reporting is excellent both with regard to clarity and pertinence.
+
+In the immediate future he will be assigned case work, for the most part in fields where it will complement, and be complemented by, his independent operational activities and cover work.
+
+SECRET

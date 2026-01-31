@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_19705.png
+
+Convert to MarkdownEYES ONLY
+
+SECRET
+
+26 April 1971
+
+MEMORANDUM FOR: Director of Personnel
+
+SUBJECT : Narrative Fitness Report
+Mr. James P. O'Connell
+Deputy Director of Security for
+Physical, Technical and Overseas Security
+
+1. This is a narrative Fitness Report which covers the period from 1 April 1970 through 31 March 1971.
+
+2. During this entire period, Mr. O'Connell has served as the Deputy Director of Security for Physical, Technical and Overseas Security. The rating period covers his second full year in that position. The Directorate which Mr. O'Connell heads has gained added importance and increased attention during the year. It encompasses an area of activity which is vitally important to the Office of Security and the Agency as a whole. Mr. O'Connell has given considerable attention to efforts which decrease our vulnerability at the hands of foreign opposition as well as from domestic efforts resulting from national unrest. Mr. O'Connell has shown improvement in the over-all coordination of his responsibilities throughout the current rating period. He supervises his people in an effective manner and anticipates problems so as to simplify their solutions.
+
+3. During the previous rating period, Mr. O'Connell's performance was considered to be STRONG with several outstanding features. During the year, I consider that there has been sufficient addition to the outstanding areas of his performance to raise his over-all rating to OUTSTANDING.
+
+EYES ONLY
+
+SECRET
+
+<table><tr><td>Excludes from automatic downgrading and declassification</td></tr></table>
+
+544725

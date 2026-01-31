@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_19359.png
+
+Convert to Markdown5 December 1947
+
+MEMORANDUM FOR MR. JACK D. NEL
+CHIEF, DIVISION OF FOREIGN ACTIVITY CORRESPONDENCE
+DEPARTMENT OF STATE
+
+Subject : Mr. James Walton Moore
+
+References: g. Memorandum of 17 February 1947 from Mr. Galloway to Mr. Nell requesting Title of Vice Consul at Bairen, China for Subject
+
+1. Pursuant to a suggestion from the Department of State in view of the unsettled conditions at Bairen, it is requested that subject be transferred on permanent change of station from his temporary location in Tsingtao to Calcutta, India, where we should like to have him serve as our senior representative with the title of Vice Consul.
+
+2. For reasons of security and operational efficiency that would be mutually advantageous to the Department and to this Agency, it is requested that arrangements be made for a closer financial and administrative integration into the Foreign Service prior to Mr. Moore's transfer.
+
+FOR THE DIRECTOR OF CENTRAL INTELLIGENCE:
+
+D. WALD H. GALLOWAY
+Assistant Director
+
+cc/ FDZ
+CPD✓

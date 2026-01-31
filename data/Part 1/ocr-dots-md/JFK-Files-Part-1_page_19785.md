@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_19785.png
+
+Convert to MarkdownSECRET
+
+FIELD REASSIGNMENT QUESTIONNAIRE
+
+9. LIST YOUR MAJOR DUTIES DURING CURRENT TOUR:
+
+As Senior Security Officer in the Far East, I have the following responsibilities and duties:
+
+1. The overall security responsibility for all stations and bases within the cognizance of the area division.
+
+2. Administers and supervises the Regional Staff whose mission includes conducting Security Audits of all FE stations and bases; administering polygraph examinations, audio countermeasure inspections, physical and technical security matters and air ops security support.
+
+3. Monitors the performance of Career Security Officers assigned to individual stations from the standpoint of effectiveness and productivity.
+
+4. Security Officer to the Senior War Planner, Honolulu.
+
+5. COMINT Security Officer for all FE installations.
+
+6. Security and alternate Control Officer for the clearance system governing special projects in the Far East of the Office of Special Activities.
+
+7. Furnishes security advice and guidance to the Chief of Station, Okinawa as requested.
+
+8. Maintains a regional liaison capability with other U.S. Government agencies in the FE area.
+
+9. Performs sensitive security inquiries as directed by Headquarters.
+
+SECRET

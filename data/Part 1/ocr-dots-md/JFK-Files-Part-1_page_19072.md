@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_19072.png
+
+Convert to MarkdownOFFICE OF STRATEGIC SERVICES
+
+COUNTRY France
+SUBJECT Resistance and Labor organization in Normandy; Civilian Attitudes.
+
+ORIGINAL REPORT NO CV-130
+DATE OF REPORT 24 July 1944
+EVALUATION B-2
+
+CONFIRMATION }
+SUPPLEMENT
+CORRECTION }
+
+SOURCE OAS - 3rd Army
+SUB SOURCE
+
+DATE OF INFORMATION Undated
+PLACE OF ORIGIN France
+
+JBT/rb.
+
+<table><thead><tr><td>THEATRE<br>DISTRIBUTION</td></tr></thead><tbody><tr><td>Mr. Phillips</td></tr><tr><td>Cdadr. Kittredge</td></tr><tr><td>G-2 SHAPE</td></tr><tr><td>G-2 12TH AG</td></tr><tr><td>M16</td></tr><tr><td>SFHQ</td></tr><tr><td>EWD</td></tr><tr><td>R&A</td></tr><tr><td>MO</td></tr><tr><td>AWL<br>1500</td></tr><tr><td>PWE<br>SA</td></tr><tr><td>EDS<br>US emb (res)</td></tr><tr><td>X-2<br>WASH</td></tr><tr><td>AL</td></tr></tbody></table>
+
+1. The Conseil de la Resistance in Cherbourg is composed of three main groups: the O.C.M., Liberation and the Front National:
+
+The Chief of the Conseil de la Resistance, M. Creolin, is an O.C.M. leader and his organization holds the majority of seats in the Council. The O C.M. is generally composed of merchants, landowners and notables who, prior to the justice, were Rightists or extreme-Rightists.
+
+Liberation, which claims to have been the most active and efficient movement in the Department, is led by and generally composed of Socialists and C.G.T. men. In fact all the Resistance Socialists and Union men are members of Liberation.
+
+As in the rest of France, the Front National is here the Communist Party's resistance organization. It is not as influential here as it is reported to be in other regions.
+
+2. The right hand men of M. Creolin (M. Bocher; Beauchet), who seems to be as well the most prominent labor leader of the department. Bocher is at the same time secretary of the Regional Socialist Federation, secretary of the Merchant Sailor's Union, secretary of the Union des Syndicats, representative of the I.T.F., and head of the local Liberation movement. He is a very efficient man and seems to be respected and esteemed by his political adversaries.
+
+3. The enthusiasm in favor of the Allies described in the news-papers should not be overestimated. The Norman did not like the Germans and is glad that they have been thrown out. But a very
+
+RETURN TO ORIGINAL CAPTION
+IMMEDIATELY AFTER USE
+JOB 26-780 BOX 160
+
+<table><tr><td colspan="2">SECRET</td><td colspan="2"></td><td colspan="4"></td><td colspan="4"></td><td colspan="2">STATE</td><td colspan="2">TREATY</td><td colspan="4">U.S.A.</td><td colspan="2">CANADA</td><td colspan="2">OTHER</td></tr><tr><td colspan="2"></td><td colspan="4"></td><td colspan="8"></td><td colspan="4"></td><td colspan="2"></td><td colspan="4"></td><td colspan="2"></td><td colspan="2"></td></tr></table>
+
+1/12 2/1 3/2 4/1 5/1 6/1 7/1 8/1 9/1 10/1 11/1 12/1 1/13 2/14 3/15 4/16 5/17 6/18 7/19 8/20 9/21 10/22 11/23 12/24 1/25 2/26 3/27 4/28 5/29 6/30 7/31 8/32 9/33 10/34 11/35 12/36 1/37 2/38 3/39 4/40 5/41 6/42 7/43 8/44 9

@@ -1,0 +1,112 @@
+# JFK-Files-Part-1_page_19139.png
+
+Convert to Markdown14-00000
+
+COORDINATING OFFICE:
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCING THIS OR OTHER THAN THE ISSUING OFFICE PROHIBITED.
+
+COPY NO.:
+
+C/WESS
+C/WH PERS:
+
+GEORGE R. THOMPSON
+C/WE/SS
+
+COORDINATING OFFICE:
+
+<table><tr><td>SECRET</td></tr></table>
+
+AUTHORIZING ISSUES
+
+14-00000
+
+THE following person(s) has(ve) access to the file.
+
+J.M. WHIPPERSONAL
+NO. 3825
+MAR. 1. AUGUST 1967
+
+SUBJECT MATTER DISCRIMINATION
+
+BY
+
+30
+
+TO
+
+WHCH
+
+RED COPY
+
+INDEX
+
+NO INDIVIDUAL FILE NO.
+
+RETURN TO
+
+FILE NO.
+
+FILE
+
+CLOSED DUE TO REFS.
+
+DATE AND TIME LEFT
+
+SECRET
+
+MEXICO CITY
+NYBAR/
+REFS: A. HUNT-7717
+B. ER 20-145 (3)
+C. HUNT-7934
+
+CITE DIRECTOR:
+
+25.80
+
+3 22 99:57
+
+1. DIRECTOR OF PERSONNEL APPROVES REF A REQUEST FOR HOME LEAVE. SHORT OF TOUR, NEXT TOUR WILL BE EXTENDED BY NUMBER DAYS PRESENT. TOUR SHORTENED.
+
+2. HQS HAS DECIDED NOT TO GRANT EXCEPTION RETURNING PERINGLASS TO CIVIL SERVICE RETIREMENT IN SYSTEM BUT INSTEAD PLANS HIS USE AS A CONTRACT EMPLOYEE FOLLOWING RETIREMENT UNDER AGENCY SYSTEM IN NOVEMBER 1999. (SEE ED-5495 RE EMPLOYMENT OF ANNUITANTS)
+
+3. WILL ADVISE RE TDY REPLACEMENT AND EXACT TIMING.
+
+//END OF MESSAGE/
+
+US/PERS
+
+DDP/OP
+
+C/CSPS
+
+C/WS/1
+
+C/WH PERS:
+
+WILLIAM V. BROY
+C/WED
+
+COPIES:
+
+SECRET
+
+GROUP:
+Each copy must be in its own container.
+This container is part of a group.
+
+AUTHORIZING ISSUES
+
+10-00000
+
+REPRODUCING BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+COPY NO.:
+
+NOTE:
+
+The document may be photocopied or reproduced for personal use only and not for commercial purposes. The content may contain sensitive information that requires special handling. This document should be treated with care and secured from unauthorized access. The original document should be returned to the issuing office upon request.

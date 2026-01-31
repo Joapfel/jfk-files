@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_19462.png
+
+Convert to MarkdownSECRET
+
+20 April 1976
+
+MEMORANDUM IN LIEU OF FITNESS REPORT
+
+SUBJECT: Mr. James Walton Moore
+
+1. Mr. Moore continued in his assignment as Chief of the DCD Field Office in Dallas, during the period under review, with responsibility for the supervision of the Resident Offices in Houston, New Orleans and Tulsa and a Residency in Austin. His Letter of Instruction remains current.
+
+2. The Dallas Field Office, under Mr. Moore's perceptive and competent direction, produces a good volume of quality foreign intelligence reporting. DCD headquarters officers consider the Dallas Field Office performance to be of high caliber. The office is highly responsive to headquarters direction, and there is a strong commitment to quality performance. Mr. Moore has the Dallas Field Office fitting smoothly into the DCD organizational framework. Morale is high and Dallas field personnel, both professional and clerical, feel a sense of importance in their mission. This spirit and pride in their work stems directly from the positive tone set by Mr. Moore.
+
+3. Mr. Moore has extended the hand of cooperation unstintingly to the FR Base which is in an embryonic phase of development. Base officers are enthusiastic about the cooperation received from the Dallas office and the willingness of Mr. Moore to be of assistance. Cooperation between the Dallas office and FR is among the very best in DCD. In addition to the fine support supplied to FR, Dallas had made an important contribution, during the period under review, to the cost-analysis program of Format. Support to operations, through the Operations Services Group, is excellent and a good variety of operational leads and operational reporting is received from the Dallas office.
+
+4. Mr. Moore is a capable and efficient manager. The Dallas office structure presents a complex and difficult management challenge. Through his experience and mature judgment, Mr. Moore has directed the activities of the office smoothly and effectively.
+
+E2 IMPDET CL BY 018877
+
+STANDARD DEPOSIT

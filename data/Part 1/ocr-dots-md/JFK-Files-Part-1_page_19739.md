@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_19739.png
+
+Convert to MarkdownSECRET
+
+10 September 1962
+
+MEMORANDUM FOR: Director of Security
+SUBJECT: O'CONNELL, James P.
+(Fitness Report)
+
+Mr. O'CONNELL is completing eleven years of Agency service. He holds a Bachelor of Science Degree from St. John's University and his experience qualifications include four years of service with the Federal Bureau of Investigation.
+
+This evaluation covers Mr. O'CONNELL's performance as Chief of the Security Support Division. During this period the accomplishments of the Division reflected a high caliber of leadership. Mr. O'CONNELL has displayed outstanding executive ability and a broad understanding of the investigative, support, and security problems inherent in the job. Mr. O'CONNELL applies his abilities well and obtains a high level of work productivity and quality. He has considerable capacity for further development and is currently assigned as Chief, Regional Security Support Staff, FE.
+
+It is felt that Mr. O'CONNELL's present assignment will add to the breadth of his experience and coupled with his proven talents for administration will insure the development of his potential for greater responsibility at the executive level.
+
+Victor R. White
+Deputy Director of Security (IOS)
+
+Reviewing Official:
+
+Sheffield Edwards
+Director of Security
+
+Noted By Employee:
+(Mr. O'Connell is on PCS assignment and not available. A copy of this Fitness Report will be furnished him.)
+James P. O'Connell
+
+SECRET

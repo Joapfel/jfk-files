@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_20063.png
+
+Convert to Markdown4. PERSONNEL FOLDER COPY
+
+*U S. GOVERNMENT PRINTING OFFICE: 1983 - 249347*

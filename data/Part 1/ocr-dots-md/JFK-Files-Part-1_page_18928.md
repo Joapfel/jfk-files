@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_18928.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+Date: 29 May 1951
+
+MEMORANDUM
+
+TO : Chief, Foreign Division T
+
+FROM : Chief, Communications Division
+
+SUBJECT: Completion of Communications Training
+
+1. Ann L. Goodpasture has satisfactorily completed the cryptographic and communications security Briefing Course which was given for a specific assignment at Monterrey, Mexico.
+
+2. Student listed above is qualified to perform cryptographic duties.
+
+(Comments: Has previous experience. Is capable of performing communications duties with limited supervision or the use of reference materials.)
+
+3. Prior to departure for the field, the above-named person should report to Communications Security Branch, Communications Division, for final briefing. This briefing will require approximately two hours, and must be scheduled in advance at least one week before departure. Appointments can be made by contacting the Communications Security Branch. If training was given outside CIA headquarters, arrangements should be made for a final briefing on the outside.
+
+4. If departure has not occurred within two months after completion of the course, student will be required to return to Training branch, Communications Division, as soon as possible for a review. This review will require approximately 8 hours, and will be repeated at the end of each two-month delay. (The foreign division will be notified when a two-month period has elapsed and arrangements for the review will be made.)
+
+5. It is requested that this office be notified at once, in writing, of any changes in assignment. The training given was specific for the assignment indicated in Paragraph 1 and additional training may be required if the assignment is changed.
+
+6. If the assignment is cancelled, it is requested that this office be notified at once, in writing, and that the student report to Communications Security Branch as soon as possible for a communications debriefing.
+
+FOR THE CHIEF, COMMUNICATIONS DIVISION
+
+JOSEPH J. CAMPBELL
+Chief, Communications Training Branch
+
+CC: CSB
+CSM
+P.O.
+
+FORM NO.
+NOV 1950 35-71
+
+SECRET
+
+(45)

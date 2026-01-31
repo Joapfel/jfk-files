@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_19463.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM IN LIEU OF FITNESS REPORT,
+James Walton Moore, 20 April 1976
+
+5. In the full range of intelligence activity during this period, the Dallas Field Office has performed with exceptional proficiency. Mr. Moore is involved in all phases of activity in the Dallas office, yet encourages a healthy degree of independence by his officers.
+
+6. Rating: Strong.
+
+FLBERT H. WATTS, JR.,
+Deputy Chief of Operations, DCD
+
+I certify that I have seen this report.
+
+Date
+
+SECRET

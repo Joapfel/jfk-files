@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_19754.png
+
+Convert to MarkdownSECRET
+
+(Full Name)
+
+# FITNESS REPORT (Part I) PERFORMANCE
+
+## INSTRUCTIONS
+
+FOR THE ADMINISTRATIVE OFFICER: Consult current instructions for completing this report.
+
+FOR THE SUPERVISOR: This report is designed to help you express your evaluation of your subordinate and to transmit this evaluation to your supervisor and senior officials. Organization policy requires that you inform the subordinate where he stands with you. Completion of the report can help you prepare for a discussion with him of his strengths and weaknesses. It is also organization policy that you show Part I of this report to the employee except under conditions specified in Regulation 20-370. It is recommended that you read the entire form before completing any question. If this is the initial report on the employee, it must be completed and forwarded to the Office of Personnel no later than 30 days after the date indicated in item A, of Section "A" below.
+
+## SECTION A.
+
+### GENERAL
+
+<table><tr><td>1. NAME</td><td>(Last)</td><td>(First)</td><td>(Middle)</td><td>2. DATE OF BIRTH</td><td>3. SEX</td><td>4. SERVICE DESIGNATION</td></tr><tr><td colspan="3">COWENALL, James</td><td>P. Jr.</td><td>19 Feb. 1917</td><td>male</td><td>5D-5S</td></tr><tr><td colspan="8">5. OFFICE/DIVISION/BRANCH OF ASSIGNMENT<br/>US/Sec. Sup. Div., Support Branch<br/>Invigilator</td></tr><tr><td>7. GRADE</td><td>8. DATE REPORT DUE IN OP</td><td>9. PERIOD COVERED BY THIS REPORT (Inclusive dates)</td></tr><tr><td>CS-LK</td><td>17 December 1956</td><td>10 December 1955 - 16 December 1956</td></tr><tr><td rowspan="2">10. TYPE OF REPORT<br/>(Check one)<br/>[ ] INITIAL<br/>[x] ANNUAL</td><td>1. REASSIGNMENT/SUPERVISOR</td><td>SPECIAL (Specify)</td></tr><tr><td>2. REASSIGNMENT/EMPLOYEE</td><td></td></tr><tr><td colspan="4">SECTION B.</td><td>CERTIFICATION</td></tr><tr><td colspan="4">1. FOR THE RATER: THIS REPORT [x] HAS [ ] WAS NOT BEEN SHOWN TO THE INDIVIDUAL RATED. IF NOT SHOWN, EXPLAIN WHY NOT.<br/>NOT: A. CHECK (X) APPROPRIATE STATEMENTS:</td><td></td></tr><tr><td colspan="4"><input type="checkbox" checked /> THIS REPORT REFLECTS MY OWN OPINIONS OF THIS INDIVIDUAL.</td><td>IF INDIVIDUAL IS RATED "I" IN C1 OR D, A WARNING LETTER WAS SENT TO HIM AS A COPY ATTACHED TO THIS REPORT.</td></tr><tr><td colspan="4"><input type="checkbox" /> THIS REPORT REFLECTS THE COMBINED OPINIONS OF MYSELF AND PREVIOUS SUPERVISORS.</td><td>I CANNOT CERTIFY THAT THE RATED INDIVIDUAL KNOWS HOW TO EVALUATE HIS JOB PERFORMANCE BECAUSE (Specify).</td></tr><tr><td colspan="4"><input type="checkbox" checked /> I HAVE DISCUSSED WITH THIS EMPLOYEE HIS STRENGTHS AND DEFICIENCIES SO THAT HE KNOWS WHERE HE STARS.</td><td></td></tr><tr><td>8. THIS DATE</td><td>C. TYPED OR PRINTED NAME AND SIGNATURE OF SUPERVISOR</td><td>D. SUPERVISOR'S OFFICIAL TITLE</td><td>Chief, Security Support Div.</td></tr><tr><td colspan="4"><input type="checkbox" checked /> FOR THE REVIEWING OFFICIAL: RECORD ANY SUBSTANTIAL DIFFERENCE OF OPINION WITH THE SUPERVISOR, OR ANY OTHER INFORMATION WHICH WILL LEAD TO A BETTER UNDERSTANDING OF THIS REPORT.</td></tr><tr><td colspan="4"></td><td><input type="checkbox" checked /> CONTINUED ON ATTACHED SHEET</td></tr><tr><td colspan="4"><input type="checkbox" checked /> I certify that any substantial difference of opinion with the supervisor is reflected in the above section.</td></tr><tr><td>A. THIS DATE</td><td>B. TYPE OR PRINTED NAME AND SIGNATURE OF REVIEWING OFFICIAL</

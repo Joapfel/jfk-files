@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_19783.png
+
+Convert to MarkdownSECRET
+
+<table><caption>FIELD REASSIGNMENT QUESTIONNAIRE</caption><tbody><tr><td colspan="4">DO NOT COMPLETE FOR HEADQUARTERS USE ONLY</td></tr><tr><td colspan="2"><b>NAME OF EMPLOYEE (use period only if SA)</b><br/>James P. O'Connell, Jr.</td><td colspan="2"><b>DATE(S) FROM STAND BY</b><br/>26 Oct 64<br/>James Andrews</td></tr><tr><td colspan="2"><b>DATE RECEIVED AT HEADQUARTERS:</b><br/>FE/P/JKO<br/>10 Nov 64</td><td colspan="2"><b>DISPATCH NUMBER:</b><br/>TNV 376517</td></tr><tr><td colspan="4"><b>TO BE COMPLETED BY EMPLOYEE</b></td></tr><tr><td>1. DATE OF BIRTH<br/>19 Feb 1917</td><td>2. SERVICE DESIGNATION<br/>SS</td><td>3. YOUR CURRENT POSITION, TITLE AND GRADE<br/>C/Regional-Security Support Staff,GS-15</td><td>4. STATION OR BASE<br/>Okinawa</td><td>5. CRYST FOR CURRENT COVER<br/>ODIBEX</td></tr><tr><td>SA. DATE OF PCS ARRIVAL IN FIELD<br/>26 Jul 62</td><td>SB. REQUESTED DATE OF DEPARTURE<br/>15 Jun 65</td><td>SC. EXPECTED DATE OF FIRST CHECK-IN AT MO<br/>15 Aug 65</td><td>SD. DESIRED DATE TO REPORT TO DUTY AFTER LEAVE<br/>15 Aug 65</td><td></td></tr><tr><td colspan="5"><b>NUMBER AND AGES OF DEPENDENTS WHO WILL TRAVEL WITH YOU:</b> 4 Dependents</td></tr><tr><td colspan="5" style="padding-left: 2em;">Wife - 48 yrs. Son - 17 yrs.<br/>Daughter - 22 yrs. Son - 11 yrs.</td></tr><tr><td colspan="5"><b>CIRCUMSTANCES THAT SHOULD BE CONSIDERED IN DETERMINING NEXT ASSIGNMENT:</b><br/>None.</td></tr><tr><td colspan="5"><b>LIST YOUR MAJOR DUTIES DURING CURRENT TOUR (see special note on transmittal form).<br/>(also attach personal cover questionnaire in accordance with CSI-F 240-8)</b></td></tr><tr><td colspan="5" style="text-align: center;"><b>SEE ATTACHED SHEET.</b></td></tr><tr><td colspan="5"><b>TRAINING DESIRED:<br/>INDICATE WHAT TRAINING YOU BELIEVE YOU SHOULD HAVE DURING THE NEXT SEVEN YEARS</b></td></tr><tr><td colspan="5" style="text-align: left; padding-left: 2em;">Management courses.</td></tr></tbody></table>
+
+FORM 202
+
+SECRET
+
+(4)

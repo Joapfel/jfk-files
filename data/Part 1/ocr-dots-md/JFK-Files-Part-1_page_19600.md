@@ -1,0 +1,57 @@
+# JFK-Files-Part-1_page_19600.png
+
+Convert to MarkdownADDRESS
+
+Washington D. C. City State U.S.A.
+
+KIND OF BUSINESS NAME OF SUPERVISOR
+
+TITLE OF JOB SALARY $ PER
+
+YOUR DUTIES
+
+REASONS FOR LEAVING Honorable discharge.
+
+3. FROM Jan 1942 TO Jan 1945
+EMPLOYING FIRM OR AGENCY PHI
+
+ADDRESS
+
+Washington D. C. City State U.S.A.
+
+KIND OF BUSINESS NAME OF SUPERVISOR
+
+TITLE OF JOB Special Agent SALARY $ PER
+
+YOUR DUTIES
+
+REASONS FOR LEAVING
+
+4. FROM April 1940 TO Jan 1942
+EMPLOYING FIRM OR AGENCY PHI
+
+ADDRESS
+
+Washington D. C. City State U.S.A.
+
+KIND OF BUSINESS NAME OF SUPERVISOR
+
+TITLE OF JOB Special Straggler Searcher SALARY $ PER
+
+YOUR DUTIES
+
+REASONS FOR LEAVING
+
+5. FROM ____________ TO ____________
+
+EMPLOYING FIRM OR AGENCY _______________________________
+
+ADDRESS St & No. City State Country
+
+KIND OF BUSINESS NAME OF SUPERVISOR
+
+TITLE OF JOB SALARY $ PER
+
+YOUR DUTIES _________________________________
+
+REASONS FOR LEAVING _________________________________

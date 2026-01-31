@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_19545.png
+
+Convert to MarkdownSECRET
+Security Information
+
+PERSONNEL QUALIFICATION QUESTIONNAIRE
+
+<table><tr><td>1. Serial No.<br/>(no entry)<br/>3820</td><td>2. NAME: (last). Moore<br/>(first) J.<br/>(middle) Walton</td><td>3. Office Operations</td></tr><tr><td>4. Date of Birth<br/>Oct. 5, 1940</td><td>5. Sex: Male (1)<br/>Female (2)</td><td>Martial Status: ______<br/>Nr. Dependents: ______<br/><br/>6. CIA Entry Date:<br/>all of 1940</td></tr><tr><td colspan="3">7. Citizenship:<br/>U.S. &nbsp;&nbsp;&nbsp; Other</td></tr><tr><td colspan="3">8. Acquired By: (1) Birth (2) Marriage (3) Naturalization<br/>(4) Other(specify)<br/>Year U.S. citizenship acquired, if not by birth</td></tr><tr><td colspan="3"><b>SEC. I. EDUCATION</b></td></tr><tr><td colspan="3">1. Extent: (circle one)<br/><br/>1. Less than high school &nbsp;&nbsp;&nbsp; 4. Two years college, or less &nbsp;&nbsp;&nbsp; 8. Masters degree<br/><br/>2. High school graduate &nbsp;&nbsp;&nbsp; 5. Over two years, no degree &nbsp;&nbsp;&nbsp; 9. Doctors degree<br/><br/>3. Trade, Business or Commercial school graduate &nbsp;&nbsp;&nbsp; (b) Bachelor degree &nbsp;&nbsp;&nbsp; (7) Post-graduate study (minimum 8 sem. hrs.)</td></tr><tr><td colspan="3"><b>2. College or University Study:</b></td></tr><tr><td>Name and location of<br/>College or University</td><td>Major</td><td>Minor</td><td>Date's att'd<br/>From To</td><td>Yrs Compl<br/>Day Night</td><td>Degree Recd<br/>Title Date</td><td>Sem Hrs</td></tr><tr><td>Hardin-Simmons Univ.</td><td>Vol.</td><td>Scienc</td><td>Sept '40</td><td>Feb '40</td><td>1</td><td>S1 Feb</td><td>1040 120</td></tr><tr><td>Abilene, Kans.</td><td>-</td><td>-</td><td>Sept '40</td><td>Nov '40</td><td></td><td></td><td></td></tr><tr><td>George Washington Univ</td><td>Vol.</td><td>Enl.</td><td>Sept '40</td><td>Dec '40</td><td>1</td><td></td><td></td><td>20</td></tr><tr><td>Int'l School, Wash. D.C.</td><td>Int'l</td><td></td><td>Sept '40</td><td>Nov '40</td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="8"></td></tr></table>
+
+<table><thead><tr><th rowspan="2">School</th><th colspan="3">Attendance Dates</th><th rowspan="2">Study or Specialization</th></tr><tr><th>From</th><th>To</th><th>Tot.mo's</th></tr></thead><tbody><tr><td>None</td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+4. Military or Intelligence Training (full time duty as a student in specialized schools such as intelligence, communications, ordnance disposal, command & staff, etc.)
+
+<table><thead><tr><th rowspan="2">School</th><th colspan="3">Attendance Dates</th><th rowspan="2">Study or Specialization</th></tr><tr><th>From</th><th

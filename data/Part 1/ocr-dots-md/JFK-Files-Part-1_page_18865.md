@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_18865.png
+
+Convert to Markdown14-0000
+
+<table><thead><tr><th colspan="2">1. Agency and organizational designations<br>CENTRAL INTELLIGENCE AGENCY</th><th>2 Pay record</th><th>3. Block No.</th><th>4. Slip No:</th></tr></thead><tbody><tr><td colspan="2">5. Employee's name (and social security account number when appropriate)</td><td colspan="3">6. Grade and salary, e.g., UY</td></tr><tr><td colspan="2">GOODPASTERS, Ann I.</td><td colspan="3">89- $500.00</td></tr><tr><td rowspan="7"></td><th colspan="6">PAY ROLL CHANGE DATA</th></tr><tr><th>BASE RATE</th><th>OVERTIME</th><th>GROSS PAY</th><th>RET.</th><th>TAX</th><th>BOND</th><th>FICA</th><th>NET PAY</th></tr><tr><td colspan="8">7. Previous normal</td></tr><tr><td colspan="8">8. New normal</td></tr><tr><td colspan="8">9. Pay this period</td></tr><tr><td colspan="8">10. Remarks: Please return to FDC prior to 14 Feb 82</td></tr><tr><td colspan="8">11. Appropriation(s): WH 56-24</td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="2">Periodic step-increase ☐</td><td colspan="4">Pay adjustment ☐</td><td colspan="2">Other step-increase ☐</td></tr><tr><td>14. Effective date</td><td>15. Date last equivalent increase</td><td>16. Old salary rate</td><td>17. New salary rate</td><td colspan="6"></td></tr><tr><td>Sep 8 82</td><td>Sep 8 81</td><td>$5000.00</td><td>$5185.00</td><td colspan="6">(Signature or other authentication)</td></tr><tr><td colspan="8">19 LWOP date (Fill in appropriate spaces covering LWOP during following periods). Period(s): ☐ No excess (LWOP. Total excess LWOP)</td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8">STANDARD FORM NO. 1176d-Revized<br>Form prescribed by Comp. Gen., U.S.<br>Nov. 8, 1950, General Regulations No. 102</td></tr><tr><td colspan="8">PAY ROLL CHANGE SLIP - PERSONNEL COPY</td></tr></tbody></table>
+
+16-61111-2e
+
+U. S. GOVERNMENT PRINTING OFFICE

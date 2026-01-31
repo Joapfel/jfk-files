@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_19866.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR: Chief, Contract Personnel Division
+SUBJECT : Contract Extension
+
+It is requested that the contract for the following named individual(s) be amended to extend the term as indicated.
+
+CAZAZZUS, Sandra B. Through 7 September 1970
+
+William V. Broe
+Chief
+Western Hemisphere Division
+
+SECRET

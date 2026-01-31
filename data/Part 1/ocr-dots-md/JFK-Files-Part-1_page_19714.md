@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_19714.png
+
+Convert to MarkdownEYES ONLY
+SECRET
+
+29 APR 1968
+
+MEMORANDUM FOR: Director of Personnel
+
+THROUGH : Deputy Director for Support
+
+SUBJECT : Narrative Fitness Report
+James P. O'Connell
+Chief, Executive Staff
+
+1. Mr. O'Connell has served as Chief, Executive Staff of this Office from 1 April 1967 to 31 March 1968, the rating period covered by this Fitness Report.
+
+2. Mr. O'Connell has been most effective in the administration and direction of the complex and varied activities encompassed in the functions in the Executive Staff of this Office. He has been effective in directing the staff in the formulation and implementation of basic security policies and procedures. In addition, he has performed diligently in continuing review of the considerable volume of paper that transits the Office of the Director of Security. He has been meticulous in ensuring that staff work and correspondence leaving this office is up to the highest standards and has been very effective in arranging priority action in meeting short deadlines. As the initial professional recipient of the majority of correspondence received by this Office for action, he has been very effective in applying his knowledge of the basic organization of the Office to the assignment of action with appropriate coordination.
+
+3. Mr. O'Connell is a personable and articulate senior executive who writes particularly well. He has had extensive experience as a Security careerist, both in Headquarters and overseas, and his career has been marked by rather rapid advancement and a record of fine performances in positions of increasing responsibility. I have no reservations about rating his performance in this position over the past year as OUTSTANDING.
+
+EYES ONLY
+SECRET
+
+<table><tr><td>GBJF 1</td></tr><tr><td>Excluded From Pris</td></tr><tr><td>Rebuttal</td></tr><tr><td>Cst</td></tr></table>

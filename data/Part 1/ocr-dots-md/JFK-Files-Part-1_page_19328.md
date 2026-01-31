@@ -1,0 +1,145 @@
+# JFK-Files-Part-1_page_19328.png
+
+Convert to MarkdownSECRET
+
+# Office Memorandum • UNITED STATES GOVERNMENT
+
+STANDARD FORM NO. 98
+
+**TO** : CPD ATTENTION: Mr. Pfeifer
+
+**FROM** : FEZ
+
+**SUBJECT:** Quarters Allowance
+
+DATE: 5 May 1948
+
+1. Effective 19 April 1948 James L. Moore assumed the duties of Chief of Station, Calcutta India.
+
+2. It is requested that provisions be made for Mr. Moore to receive Group II Quarters Allowance in accordance with Bureau of Budget Circular A-8.
+
+ORIGINATOR : Byron C. Carvis
+DEPUTY CHIEF, FBC/SEA: Don S. Garden
+
+SECRET
+
+STANDARD FORM NO. 63
+
+Office Memorandum • UNITED STATES GOVERNMENT
+
+**TO** : CPD ATTENTION: Mr. Pfeifer
+
+**FROM** : FEZ
+
+**SUBJECT:** Quarters Allowance
+
+DATE: 5 May 1948
+
+1. Effective 19 April 1948 James L. Moore assumed the duties of Chief of Station, Calcutta India.
+
+2. It is requested that provisions be made for Mr. Moore to receive Group II Quarters Allowance in accordance with Bureau of Budget Circular A-8.
+
+ORIGINATOR : Byron C. Carvis
+DEPUTY CHIEF, FBC/SEA: Don S. Garden
+
+SECRET
+
+STANDARD FORM NO. 98
+
+Office Memorandum • UNITED STATES GOVERNMENT
+
+**TO** : CPD ATTENTION: Mr. Pfeifer
+
+**FROM** : FEZ
+
+**SUBJECT:** Quarters Allowance
+
+DATE: 5 May 1948
+
+1. Effective 19 April 1948 James L. Moore assumed the duties of Chief of Station, Calcutta India.
+
+2. It is requested that provisions be made for Mr. Moore to receive Group II Quarters Allowance in accordance with Bureau of Budget Circular A-8.
+
+ORIGINATOR : Byron C. Carvis
+DEPUTY CHIEF, FBC/SEA: Don S. Garden
+
+SECRET
+
+STANDARD FORM NO. 63
+
+Office Memorandum • UNITED STATES GOVERNMENT
+
+**TO** : CPD ATTENTION: Mr. Pfeifer
+
+**FROM** : FEZ
+
+**SUBJECT:** Quarters Allowance
+
+DATE: 5 May 1948
+
+1. Effective 19 April 1948 James L. Moore assumed the duties of Chief of Station, Calcutta India.
+
+2. It is requested that provisions be made for Mr. Moore to receive Group II Quarters Allowance in accordance with Bureau of Budget Circular A-8.
+
+ORIGINATOR : Byron C. Carvis
+DEPUTY CHIEF, FBC/SEA: Don S. Garden
+
+SECRET
+
+STANDARD FORM NO. 98
+
+Office Memorandum • UNITED STATES GOVERNMENT
+
+**TO** : CPD ATTENTION: Mr. Pfeifer
+
+**FROM** : FEZ
+
+**SUBJECT:** Quarters Allowance
+
+DATE: 5 May 1948
+
+1. Effective 19 April 1948 James L. Moore assumed the duties of Chief of Station, Calcutta India.
+
+2. It is requested that provisions be made for Mr. Moore to receive Group II Quarters Allowance in accordance with Bureau of Budget Circular A-8.
+
+ORIGINATOR : Byron C. Carvis
+DEPUTY CHIEF, FBC/SEA: Don S. Garden
+
+SECRET
+
+STANDARD FORM NO. 63
+
+Office Memorandum • UNITED STATES GOVERNMENT
+
+**TO** : CPD ATTENTION: Mr. Pfeifer
+
+**FROM** : FEZ
+
+**SUBJECT:** Quarters Allowance
+
+DATE: 5 May 1948
+
+1. Effective 19 April 1948 James L. Moore assumed the duties of Chief of Station, Calcutta India.
+
+2. It is requested that provisions be made for Mr. Moore to receive Group II Quarters Allowance in accordance with Bureau of Budget Circular A-8.
+
+ORIGINATOR : Byron C. Carvis
+DEPUTY CHIEF, FBC/SEA: Don S. Garden
+
+SECRET
+
+STANDARD FORM NO. 98
+
+Office Memorandum • UNITED STATES GOVERNMENT
+
+**TO** : CPD ATTENTION: Mr. Pfeifer
+
+**FROM** : FEZ
+
+**SUBJECT:** Quarters Allowance
+
+DATE: 5 May 1948
+
+1. Effective 19 April 1948 James L. Moore assumed the duties of Chief of Station, Calcutta India.
+
+2. It is requested that provisions be made for Mr. Moore to receive Group II Quarters Allowance in accordance with Bureau

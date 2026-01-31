@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_19563.png
+
+Convert to Markdowndifferent employers; the length of time employed by each;
+salary paid in each instance, and the nature of the work
+performed; whether you resigned voluntarily or were discharged:
+April 1940 to Jan 1942 Employed as Clerk - Federal Bureau
+of Investigation. Salary when departed $1520 per annum.
+Jan 1942 to Nov 1944 - Special Agent FBI - Salary when
+departed $4424.00 per annum. Resigned voluntarily both
+instances.
+Ensign - USNR - Since 6 Jan 1945. Worked in North China
+with SSU since June 1945.
+
+22. Have you any outstanding financial obligations? If so,
+state names of creditors (individuals or firms), amounts due to
+each, and date on which such obligations were contracted: ____
+No
+
+23. Were you ever in the public service of the United
+States, military, naval, or civil; State or municipal? None

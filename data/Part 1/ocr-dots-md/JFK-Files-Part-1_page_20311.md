@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_20311.png
+
+Convert to MarkdownCONFIDENTIAL
+
+(WHEN FILED IN)
+
+SECURITY APPROVAL
+
+DATE : 10 March 1958
+
+YOUR
+REFERENCE:
+
+CASE NO. : 65077
+
+TO : Director of Personnel
+
+FROM : Director of Security
+
+SUBJECT : HIDAIGC, Balmea Nieves
+
+1. This is to inform you of security approval of the subject person as follows:
+
+[x] Subject has been approved for the appointment specified in your request under the provisions of Regulations 10-210 and 20-730, including access to classified information through Top Secret as required in the performance of his duties.
+
+[ ] Subject has been approved for appointment under the authority of Paragraph 4(d) of Regulation 10-210, and under Regulation 20-730 including access to classified information through Top Secret as required in the performance of his duties.
+
+2. Unless arrangements are made within 60 days for entrance on duty within 180 days, this approval becomes invalid.
+
+3. As part of the entrance on duty processing:
+
+[x] A personal interview in the Office of Security must be arranged.
+
+[ ] A personal interview is not necessary.
+
+[x] This clearance is issued in advance of receipt of a SP-377.
+Subject will be assigned to the WH Division.
+
+FOR THE DIRECTOR OF SECURITY:
+
+W. M. Knott
+Chief, Personnel Security Division
+
+FORM NO. 1173 REPLACED FORM 39-104
+1 MAR 97 WHICH IS OBSOLETE
+
+CONFIDENTIAL
+
+(5)

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_19534.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Section C (continued)
+
+Jim's work in Dallas has been consistently excellent. Under his leadership the Dallas complex has provided timely foreign intelligence in response to worldwide priorities and requirements. As an example, in April 1975 the Acting Director, Stratetic Research commended Jim for "outstanding performance" for urgent special efforts to obtain information which resulted in a reduction of over 500,000 in the Intelligence Community's estimate of the total number of Soviet military personnel.
+
+Similarly, the Dallas Office has provided excellent support to the Clandestine Service. In November, 1976 the Chief, FR Division commended Jim and his staff for "outstanding support" from October 1975-October 1976 in efforts which were "indispensable" to the establishment of FR assets in Texas, Oklahoma and Louisiana and in identifying and assessing prospective targets for recruitment.
+
+There are very few persons of potential consequence to the Intelligence Community in Texas who Jim Moore does not know and little that he cannot accomplish there on behalf of Community and Agency requesters.
+
+The assassination of President Kennedy in Dallas in November 1963, the subsequent allegations against CIA and Jim Moore's long association with Agency interests and programs in Texas have made him a repeated target for media attention and scurrilous innuendo. Although under various forms of severe external pressure as a result, Jim Moore never lost his calm, cool demeanor and has been absolutely dependable in adversity.
+
+An experienced professional, a true gentleman, a delightful person, and an example to be emulated, Jim Moore has been a real credit to the intelligence profession. As he approaches retirement, he richly deserves recognition in the form of the Career Intelligence Medal.
+
+CONFIDENTIAL
+
+-2-

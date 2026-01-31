@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_19079.png
+
+Convert to Markdownof the first five days in the month. First, then, is a reference to the second day of the week, and so on. This is called a week. In England, it is thought that by working seven days a week, one can do all the work of the world. It is believed that this was taken from the Greek word for workmen, which means eight hours a day.
+
+In France, they have nine days a week, but these are divided into three parts of four days each. The first part begins at six o'clock in the morning and ends at six o'clock in the afternoon. The second part begins at six o'clock in the afternoon and ends at two o'clock in the night. The third part begins at two o'clock in the morning and ends at six o'clock in the morning.
+
+One way to get rid of the extra hour is to have an extra hour's work, and that is called an hourglass. In America, there is a clock called an alarm clock, which rings at one o'clock. That's the time when you would wake up if you were sleeping. It would ring you awake, and then you would start your day.
+
+This is used in many countries of Europe. It is called an almanac or calendar year. The date on which a person was born, his birthday, and other important dates are written down in a book. The pages in the book are turned over as time goes by. When you turn the page once every year, you are at the same place you were the previous year. If you turn the pages fast enough, you will go through a complete year in just one book. It is called a calendar year because the first page starts with January, then February, March, April, May, June, July, August, September, October, November, December. There are also leap years, when the next page comes out. The number of days in a leap year is the same as in a normal year except that there are 13 days instead of 12. On special occasions, such as New Year's Day, people wear new clothes.

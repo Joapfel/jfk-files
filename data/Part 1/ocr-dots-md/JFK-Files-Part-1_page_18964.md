@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_18964.png
+
+Convert to Markdown14-00000
+
+<table><thead><tr><th colspan="2">DURATION</th><th rowspan="2">POSITION</th><th rowspan="2">NAME AND ADDRESS OF EMPLOYER, OR REASON FOR UNEMPLOYMENT</th><th rowspan="2">STARTING AND FINAL SALARY PER ANNUM</th></tr><tr><td>FROM</td><td>TO</td></tr></thead><tbody><tr><td>Dec 1943</td><td>Jan 1944</td><td>Personal and Placement Clerk</td><td>Off/war Relocation Authority<br/>Washington, DC</td><td>$1620.<br/>1620.</td></tr><tr><td>Sept 1941</td><td>Jan 1942</td><td>Photographic Technic and (part time while in school)</td><td>Elko Photographic Finishing Co. (Oklahoma City, Oklahoma)<br/>approx 20.00 per wk</td><td>12.50 per wk</td></tr></tbody></table>
+
+<table><thead><tr><th>QUESTION</th><th>ANSWER</th></tr></thead><tbody><tr><td></td><td>YES NO</td></tr><tr><td colspan="2">IF ANSWER IS "YES" GIVE FULL DETAILS UNDER ITEM #37.</td></tr><tr><td colspan="2"><p>II. HAVE YOU NOW OR HAVETO EVEN HAD ANY PHYSICAL DEFECTS OR DISABILITIES SINCE THEN?</p><table><tr><td>☐ YES ☑ NO</td></tr></table></td></tr><tr><td colspan="2"><p>C. WITHIN THE PAST THREE MONTHS, HAVE YOU FREQUENTLY USED INDICATING BEVERAGES TO EXCESS?</p><table><tr><td>☐ YES ☑ NO</td></tr></table></td></tr><tr><td colspan="2"><p>e. WHERE YOU EVER MEDICALLY DISCHARGED FROM THE ARMED FORCES?</p><table><tr><td>☐ YES ☐ NO</td></tr></table></td></tr></tbody></table>
+
+<table><thead><tr><th>DESCRIPTION OF YOUR WORK</th><th>SALARY OR EARNINGS STARTING: .1440 PER YR. FINAL: .2000 PER YR.</th></tr></thead><tbody><tr><td>Employee counselling, aided in case work involving clerical personnel placement problems; stenographic duties, including dictation and transcription of conferences; Maintained accounts for Credit Union, and employee contributions for welfare campaigns</td></tr></tbody></table>
+
+<table><thead><tr><th>DURATION</th><th>POSITION</th><th>NAME AND ADDRESS OF EMPLOYER, OR REASON FOR UNEMPLOYMENT</th><th>STARTING AND FINAL SALARY PER ANNUM</th></tr></thead><tbody><tr><td>Dec 1943</td><td>Jan 1944</td><td>Personal and Placement Clerk</td><td>Off/war Relocation Authority<br>Washington, DC</td><td>$1620.<br>1620.</td></tr><tr><td>Sept 1941</td><td>Jan 1942</td><td>Photographic Technic and (part time while in school)</td><td>Elko Photographic Finishing Co. (Oklahoma City, Oklahoma)<br>approx 20.00 per wk</td><td>12.50 per wk</td></tr></tbody></table>
+
+<table><thead><tr><th>QUESTION</th><th>ANSWER</th></tr></thead><tbody><tr><td colspan="2"></td></tr><tr><td colspan="2">I. HAVE YOU EVER BEEN UNDER TREATMENT FOR A MENTAL OR EMOTIONAL DISORDER?</td></tr><tr><td colspan="2">☐ YES ☑ NO</td></tr><tr><td colspan="2">C. HAVE YOU EVER HAD TUBERCULOSIS?</td></tr><tr><td colspan="2">☐ YES ☐ NO</td></tr><tr><td colspan="2">IF ANY OF YOUR ANSWERS TO ANY OF THE ABOVE IS "YES" GIVE FULL PARTICULARS UNDER ITEM #37.</td></tr><tr><td colspan="2">Not applicable</td></tr></tbody></table>
+
+<table><thead><tr><th>OTHER POSITIONS HELD FOR LESS THAN THREE MONTHS AND PERIOD

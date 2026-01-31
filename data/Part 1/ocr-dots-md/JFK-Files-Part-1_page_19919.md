@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_19919.png
+
+Convert to MarkdownSECRET/RYBAT
+
+SEPARATE COVER ATTACHMENT
+
+HMM-S-2980
+
+DOB: 5 May 1923
+
+POB: Cleveland, Ohio
+
+HIGH SCHOOL GRADUATE: 1942
+
+CHILDREN: Daughter - Barbara, 21 Dec 1945
+          Son      20 Mar 1949
+
+EXPERIENCE:
+
+1944 - 1945 Cleveland Trust Co., Cleveland, Ohio
+Commercial Bookeeper
+
+1955 - 1956 American Trust Co., San Leandro, Calif.
+Commercial Bookeeper
+
+8 Apr 1957 EOD KUBARK, Clerk, GS-4
+
+14 Jul 1957 PBJointly, Clerk
+
+9 Mar 1958 KUDESK, Intell Clerk
+
+2 Nov 1958 Promotion, GS-5
+
+8 Jan 1961 Promotion, GS-6
+
+7 Jun 1963 LWOP for 90 days at end of which time resignation will be effected.
+
+FITNESS REPORT: 30 June 1961 - 30 June 1962, Overall Rating "A"
+(Transilterates Russian Material "P")
+
+TRAINING: Basic Supervisors, 2-13 May 1960
+
+TEST: Russian, Reading "E"
+
+SECRET/RYBAT

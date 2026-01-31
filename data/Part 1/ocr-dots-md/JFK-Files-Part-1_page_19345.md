@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_19345.png
+
+Convert to MarkdownFEB.2
+
+January 29, 1948
+
+Jas. L. Green, Director,
+State Department, U.S. Current,
+Foreign Relations Division.
+
+From: [SIGNATURE]
+
+Date: Dec. 5, 1947
+寄存处：
+
+To: Vice Consul to the American
+Consulate General Calcutta India
+
+Dear Mr. James Walton Moore,
+
+has been approved.
+
+The post will be notified of its assignment by telegraphic dated Jan. 23, 1948.

@@ -1,0 +1,66 @@
+# JFK-Files-Part-1_page_19837.png
+
+Convert to Markdown(12)
+
+C. HAVE YOU EVER BEEN IN, OR PETITIONED FOR, BANKRUPTCY?
+
+GIVE PARTICULARS, INCLUDING COURT:
+
+D. GIVE THREE CREDIT REFERENCES-IN THE U. S.
+
+1. NAME: ADDRESS:
+   (St and Number) (City) (State)
+2. NAME: ADDRESS:
+   (St and Number) (City) (State)
+3. NAME: ADDRESS:
+   (St and Number) (City) (State)
+
+SEC. 22. RESIDENCES FOR THE PAST 15 YEARS
+
+FROM 2/50 TO PRESENT
+   (St and number) (City) (State) (Country)
+FROM 2/48 TO 2/52
+   (St and number) (City) (State) (Country)
+FROM 2/42 TO 2/48
+   (St and number) (City) (State) (Country)
+FROM 2/46 TO 2/47
+   (St and number) (City) (State) (Country)
+FROM 2/44 TO 2/46
+   (St and number) (City) (State) (Country)
+FROM 2/43 TO 2/44
+   (St and number) (City) (State) (Country)
+FROM 2/41 TO 2/43
+   (St and number) (City) (State) (Country)
+FROM 2/23 TO 2/41
+   (St and number) (City) (State) (Country)
+
+SEC. 23. RESIDENCE OR TRAVEL OUTSIDE OF THE UNITED STATES
+
+A. FROM 2/19 TO 2/24
+   (City or section) (Country) (Purpose)
+FROM ................... TO ...................
+   (City or section) (Country) (Purpose)
+FROM ................... TO ...................
+   (City or section) (Country) (Purpose)
+FROM ................... TO ...................
+   (City or section) (Country) (Purpose)
+FROM ................... TO ...................
+   (City or section) (Country) (Purpose)
+
+SEC. 24. CLUBS, SOCIETIES, AND OTHER ORGANIZATIONS
+
+LIST NAMES AND ADDRESSES OF ALL CLUBS, SOCIETIES, PROFESSIONAL SOCIETIES, EMPLOYEE GROUPS, ORGANIZATIONS OF ANY KIND (INCLUDE MEMBERSHIP IN, OR SUPPORT OF, ANY ORGANIZATION HAVING HEADQUARTERS OR BRANCH IN A FOREIGN COUNTRY) TO WHICH YOU BELONG OR HAVE BELONGED:
+
+1. ....................................................
+   (Name and Chapter)         (St. and Number)         (City)      (State)      (Country)
+   DATES OF MEMBERSHIP: ........................
+
+2. ....................................................
+   (Name and Chapter)         (St. and Number)         (City)      (State)      (Country)
+   DATES OF MEMBERSHIP: ................
+
+3. ....................................................
+   (Name and Chapter)         (St. and Number)         (City)      (State)      (Country)
+   DATES OF MEMBERSHIP: ................
+
+10-02-58-1

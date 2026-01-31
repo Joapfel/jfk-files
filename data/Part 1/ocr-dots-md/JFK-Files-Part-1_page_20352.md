@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_20352.png
+
+Convert to MarkdownMATERIAL REVISED AT CIA HEADQUARTERS BY
+HOUSE SELECT COMMITTEE ON ASSASSINATIONS STAFF MEMBERS
+
+SECRET
+
+FILE TITLE/NUMBER/VOLUME: Hunt, E. Howard
+INCLUSIVE DATES: 17 May 1948 - 21 June 1922
+CUSTODIAL UNIT/LOCATION: O P
+ROOM: 5E 13
+DELETIONS, IF ANY:
+
+<table><thead><tr><th>DATE RECEIVED</th><th>DATE RETURNED</th><th>REVIEWED BY (PRINT NAME)</th><th>SIGNATURE OF REVIEWING OFFICIAL</th></tr></thead><tbody><tr><td>2/25/78</td><td>2/29/78</td><td>DAN Hardway</td><td>Dan Hardway</td></tr><tr><td>3/15/78</td><td>3/15/78</td><td>DAN Hardway</td><td>Dan Hardway</td></tr></tbody></table>
+
+NO DOCUMENTS MAY BE COPIED OR REMOVED FROM THIS FILE
+
+SECRET
+
+JEROMAN

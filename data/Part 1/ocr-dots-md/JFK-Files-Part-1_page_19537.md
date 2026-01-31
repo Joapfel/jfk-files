@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_19537.png
+
+Convert to MarkdownCONFIDENTIAL
+
+10 April 1975
+
+MEMORANDUM FOR: Chief, Domestic Collection Division,
+DDO
+
+SUBJECT : Appreciation for Outstanding DCD
+Performance
+
+1. I want to express the appreciation of the Office of Strategic Research for the special effort recently made for us by J. Walton Moore of your Dallas field office. Mr. Moore responded quickly to our urgent request to obtain information on Soviet military medical services from DS-2172 and provided it to us on very short notice.
+
+2. Let me give you some background. The subject of Soviet medical personnel emerged as an important issue in a recent community-wide effort to reassess total Soviet military manpower. The community reassessment was stimulated by DIA reporting of several months ago that existing estimates of total Soviet military manpower were low by almost one million men. If correct, the DIA appraisal had potentially serious implications for the ongoing MBFR negotiations as well as a host of intelligence judgments about the dimensions of the Soviet military threat.
+
+3. During the ensuing interagency review of the individual estimates contributed by various agencies in the Washington area, we came to the conclusion that the number of Soviet medical manpower estimated by an Army intelligence group was much too high. A rapid search of headquarters' files turned up barely enough intelligence to prepare an estimate of a portion of the medical services, but no direct evidence on total medical manpower. At this point it became clear to us that an improved estimate might be made with information from DS-2172. As we had to present our case to the manpower study Steering Group early in the week of March 24, speed in contacting the Soviet source was essential.
+
+27972

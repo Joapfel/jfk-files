@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_18761.png
+
+Convert to MarkdownADDRESS OFFICIAL COMMUNICATIONS TO
+THE SECRETARY OF STATE
+
+WASHINGTON D. C.
+
+DEPARTMENT OF STATE
+WASHINGTON
+
+June 20, 1951
+
+Central Intelligence Agency,
+Washington 25, D.C.
+
+Gentlemen:
+
+In accordance with the provisions of Chapter RI-35 of the Federal Personnel Manual, it is requested that the official personnel file and leave record of Ann Lorene Goodpasture Administrative Assistant who e.o.d. June 8, 1951 with this agency, date of birth Nov. 28, 1918, employed by CIA from December 1948 to March 1951 at Washington, be forwarded to the following address at the earliest practicable date:
+
+Department of State,
+Division of Foreign Service Personnel Records,
+Room-A, SA-12,
+Washington 25, D. C.
+
+OSI-939
+11-17-90

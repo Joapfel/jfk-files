@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_19826.png
+
+Convert to MarkdownPERSONAL HISTORY STATEMENT
+
+Instructions: 1. Answer all questions completely. If question is not applicable write "NA." Write "unknown" only if you do not know the answer and cannot obtain the answer from personal records. Use the blank pages at the end of this form for extra details on any question or questions for which you do not have sufficient room.
+
+2. Type, print, or write carefully; illegible or incomplete forms will not receive consideration.
+
+HAVE YOU READ AND DO YOU UNDERSTAND THE INSTRUCTIONS?
+
+(Yes or No)
+
+SEC. 1. PERSONAL BACKGROUND
+
+Telephone:
+
+A. FULL NAME Mr. JAMES PATRICK O'CONNELL JR
+(Use No
+Initials) (First) (Middle) (Last)
+Office
+Ext.
+Home 702-3622
+
+PRESENT ADDRESS 3212 SOUTH 9 ST. ARLINGTON, VIRGINIA, USA
+(St. and Number) (City) (State) (Country)
+
+PERMANENT ADDRESS ABOVE
+(St. and Number) (City) (State) (Country)
+
+B. NICKNAME TIM
+WHAT OTHER NAMES HAVE YOU USED? NONE
+
+NAMES? NA
+HOW LONG? NA IF A LEGAL CHANGE, GIVE PARTICULARS NA
+
+(Where)
+
+(By what authority)
+
+C. DATE OF BIRTH 5/9/87
+PLACE OF BIRTH ELMHURST, NEW YORK
+(City) (State) (Country)
+
+IP LSP BY BIRTH? YES BY MARRIAGE?
+(Country)
+
+CERTIFICATE NO. NA ISSUED NA BY NB
+(Date) (Court)
+
+(State)
+REVIOUS NATIONALITY? NA
+(Yes or No) (Country)
+
+AT DATES: NA TO NA ANY OTHER NATIONALITY? NA
+(Geography)
+
+TEPS TO CHANGE PRESENT CITIZENSHIP: NO GIVE PARTICULARS:
+
+(1)

@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_18938.png
+
+Convert to Markdown14-0000
+
+UNITED STATES CIVIL SERVICE COMMISSION
+FOURTH UNITED STATES CIVIL SERVICE REGION
+BRANCH REGIONAL OFFICE, WASHINGTON 25, D. C.
+
+IN YOUR REPLY REFER TO
+FILE 4BRO, IO; LI
+AND DATE OF THIS LETTER
+
+June 6, 1948
+
+Chief, Civilian Personnel Branch
+Office of Strategic Services
+Washington 26, D. C.
+
+Dear Sir,
+
+As a result of investigation the person named below has
+been rated eligible on suitability.
+
+Name and Address Position
+
+Miss Ann Lorene Goodpasture
+c/o Office of Strategic Services
+Washington 26, D. C.
+Clerk Stenographer
+Regulation IX, section 2b
+O. S. & Outpost
+(Now Delhi, India)
+
+cc: Miss Goodpasture

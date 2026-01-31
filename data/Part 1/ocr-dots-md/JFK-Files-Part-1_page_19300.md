@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_19300.png
+
+Convert to Markdown14-0000
+
+<table><thead><tr><td colspan="2">REPORT OF INTERVIEW</td></tr></thead><tbody><tr><td>SOURCE</td><td></td></tr><tr><td>FIELD</td><td></td></tr><tr><td>CASUAL</td><td></td></tr><tr><td colspan="2"><strong>RECOMMENDED FOR BRANCH</strong></td></tr><tr><td>NAME (LAST)</td><td>(FIRST) [MIDDLE]</td><td>DESK</td><td>REFERRED BY</td></tr><tr><td>SERIAL NUMBER</td><td>ORGANIZATION</td><td>GRADE</td><td>DEPT., OFFICE OR BRANCH</td></tr><tr><td>ADDRESS (BUSINESS OR MILITARY)</td><td></td><td></td><td>DATE OF BIRTH</td></tr><tr><td>ADDRESS (home)</td><td>LOCAL DRAMA ACTS REG. 600 FOR LST HCH 5425</td><td>TELEPHONE</td><td>TELEPHONE</td></tr><tr><td>CITIZENSHIP (NOW ACQUIRED)</td><td>ON BDA ET-4/63</td><td>DATE OF BIRTH</td><td></td></tr><tr><td>NAME (HUSBAND OR WIFE)</td><td></td><td>CITIZENSHIP (NOW ACQUIRED)</td><td></td></tr><tr><td>PLACE OF BIRTH</td><td></td><td></td><td></td></tr><tr><td colspan="2"><strong>EDUCATION (SCHOOLS, DEGREES, DATED, MAJORS, GRADES, AND EXTRA CURRICULAR ACTIVITIES)</strong></td></tr><tr><td colspan="2"><strong>LANGUAGES (DEGREE OF FLUENCY, NOW ACQUIRED)</strong></td></tr><tr><td colspan="2"><strong>FOREIGN EXPERIENCE (CONTENT AND PURPOSE)</strong></td></tr><tr><td colspan="2"><strong>PRINCIPAL CIVILIAN EXPERIENCE (MAIN OCCUPATION, SPECIAL DEGREES, ACCOMPLISHMENTS, ELECTIVE OFFICES)</strong></td></tr><tr><td colspan="2">Job in Shanghai shown on same 57 shows will be in China & Continues until May '67 at which time he was retired from U.S. for reassignment. Senior assignments under State leader had to be canceled because of personal animosity to a Chinese enemy. He was finally assigned to a Cliffunit.</td></tr><tr><td colspan="2"><strong>MILITARY EXPERIENCE (PRINCIPAL OUTDOOR, SERVICE SCHOOLS, IF OFFICER, MARRIED OF PERFORMANCE DATED: IF MARRIED, AUG. SCORE, DEGREE OF DEGREES, NO. AND NCO TITLES).</strong></td></tr><tr><td colspan="2">in Calcutta in Sept '68 at 6:00 p.m. and left the city after returning to U.S. on Oct 31st.</td></tr></tbody></table>
+
+FORM NO.
+NOV 1948 88-1
+(1950)
+
+(1950)

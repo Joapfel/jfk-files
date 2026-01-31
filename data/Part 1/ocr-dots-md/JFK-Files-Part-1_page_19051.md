@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_19051.png
+
+Convert to MarkdownSECRET
+NO FOREIGN DISSEN
+CONTROLLED DISSEM
+
+CSDE-312/00003-67
+
+influence of the NPD. The BfV is assisting the DGB in working out methods for the infiltration of workers into NPD organizations to report and counteract their influence within factories and workers councils. The BfV has also established contact with the German Industrial Institute in Cologne, which is sponsored by the German equivalent of the U.S. National Association of Manufacturers. The BfV used as an argument with the industrialists the fact that increasing influence of the NPD in German industry would have a negative effect upon foreign trade.
+
+7. The BfV undertook a survey of the election results at the village and county level in Land Hesse. This survey showed that the NPD had substantial success in areas containing German military installations. It was further determined that the NPD had considerable appeal among non-commissioned professional soldiers who feel they have failed to find acceptance in the postwar German society. This negative attitude has been less among Bundeswehr officers and draftees than among non-commissioned officers, who feel themselves underpaid and lacking in social acceptance. The BfV has contacted the security organizations of the Bundeswehr to undertake a program of orientation to counter the influence of the NPD within the Bundeswehr.
+
+Headquarters Comment: CS-311/16288-66 from a different source reported that the President of the West German Association of Military Reservists had stated that a large percentage of older reserve officers and non-commissioned officers had voted for the NPD in the Land Hesse election.
+
+5
+4
+3
+2
+1
+
+SECRET
+NO FOREIGN DISSEN
+CONTROLLED DISSEM
+
+5
+4
+3
+2
+1

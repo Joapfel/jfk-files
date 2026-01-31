@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_18853.png
+
+Convert to MarkdownPERIODIC STEP INCREASE CERTIFICATION
+
+CONFIDENTIAL
+(Printed in)
+
+U. S. GOVERNMENT PRINTING OFFICE: 1954-300020
+
+<table><thead><tr><th></th><th>BASIC PAY</th><th>OVERTIME</th><th>GROSS PAY</th><th>RET.</th><th>FEDERAL TAX</th><th>BOND</th><th>F.I.C.A.</th><th>STATE TAX</th><th>GROUP LIFE INS.</th><th>NET PAY</th></tr></thead><tbody><tr><td colspan="10"><strong>PAYROLL CHANGE DATA</strong></td></tr><tr><td>7. Previous normal</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>8. New normal</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>9. Pay this period</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>10. Remarks</td><td colspan="8"></td><td>11. Appropriation(s)</td><td>12. Prepared by<br/>Name 11-8-55</td></tr><tr><td>X Permissible step increase [ ] Pay adjustment [ ] Other step-increase</td><td colspan="8">XXX or XXXXXXXXXXXXX</td><td></td><td>13. Audited by</td><td></td></tr><tr><td>14. Effective date<br/>1 Jan 56</td><td>15. Date last equivalent increase<br/>4 Jul 56</td><td>16. Old salary rate<br/>86390.00</td><td>17. Now salary rate<br/>$6605.00</td><td colspan="6">Performance review satisfactory</td><td>[Signature or other authentication]</td><td></td></tr><tr><td colspan="10">(Check appropriate box in case of excess (LWOP) during following periods)<br/>Period(s)</td><td>19. LWOP data (fill in appropriate spaces covering LWOP for the period indicated)</td><td colspan="2">Total excess LWOP</td><td>No excess LWOP, Total excess LWOP</td><td>0 0 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 00 0

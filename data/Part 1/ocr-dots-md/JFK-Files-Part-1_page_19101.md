@@ -1,0 +1,88 @@
+# JFK-Files-Part-1_page_19101.png
+
+Convert to MarkdownSECRET
+
+- 4 -
+
+pro-Communist immigrants to enter France; to aid them in establishing themselves in France; to place them in industries, mining, and agriculture; to organise them into faithful followers of the Communist Party; and finally to control them.
+
+10. In order to realise its true purpose, CADI embarked on a clandestine program which may be divided into three major parts: the supplying of certain necessary identification papers, to illegal Communist immigrants, the placing of these immigrants in certain jobs, and the organising of those particular immigrants, along with all the foreign laborers in France, into subjective groups which would follow the orders of the CCT and the Communist Party.
+
+11. Evidence of this first activity is found in the CADI office in Marseille. This office is currently operating a program whereby any avowed Communist immigrant coming to the office is furnished a "carte de travailleur étranger", giving a job in industry or agriculture, and, for the sum of 5,000 francs, is furnished with a naturalisation degree.
+
+12. (Field Comment):
+
+Having heard from two sources that CADI was operating such a program, this station sent on 10 March 1949 one of source's sub-agents, an Italian immigrant who had entered France elementarily, to the Marseille CADI, at 8 Place de la Profecture, to ascertain if these reports were true. At CADI our sub-agent was received by George LINIVER. Our sub-agent then presented himself as an Italian immigrant who entered France elementarily and asked that he be given a "carte de travailleur étranger". LINIVER asked our sub-agent who had sent him to CADI, to which the sub-agent replied, "I am a Communist." LINIVER asked to see the sub-agent's Party card, and the latter showed it to him. LINIVER then asked the sub-agent if he had a job in France, to which the sub-agent replied in the negative. LINIVER told the sub-agent to return in two weeks at which time he would give him an "autorisation de séjour", and in three weeks, he would provide him with a "carte de travailleur étranger". LINIVER also promised to give our sub-agent an agricultural job in Sète (Sarrazin). Finally, LINIVER told our sub-agent that for 5,000 francs he would provide him with naturalisation papers. Our sub-agent replied that he wanted such papers, but that he would first have to acquire the money. The interview ended with both men raising their fists in the Communist salute.
+
+13. From questioning our sub-agent, it appears that the papers CADI furnishes are genuine papers which they obtain through the convenience of certain individuals in the Marseille Prefecture.
+
+S E C R A S
+
+29 - 4 - 11 - 2
+
+EXTERIOR OF THE CHAMBRE DE STATUTS DE LA FÉDÉRATION FRANÇAISE DE LA DERNIERE ANNEE.
+J. J. LAMARQUÈS.
+E. PÉRE-LE GRAND.
+F. LE GRAND.
+P. LE GRAND.
+M. LE GRAND.
+J. LE GRAND.
+G. LE GRAND.
+L. LE GRAND.
+H. LE GRAND.
+R. LE GRAND.
+C. LE GRAND.
+V. LE GRAND.
+D. LE GRAND.
+E. LE GRAND.
+N. LE GRAND.
+B. LE GRAND.
+S. LE GRAND.
+W. LE GRAND.
+K. LE GRAND.
+M. LE GRAND.
+S. LE GRAND.
+T. LE GRAND.
+L. LE GRAND.
+J. LE GRAND.
+G. LE GRAND.
+S. LE GRAND.
+M. LE GRAND.
+N. LE GRAND.
+E. LE GRAND.
+F. LE GRAND.
+D. LE GRAND.
+V. LE GRAND.
+B. LE GRAND.
+K. LE GRAND.
+P. LE GRAND.
+C. LE GRAND.
+R. LE GRAND.
+H. LE GRAND.
+E. LE GRAND.
+S. LE GRAND.
+T. LE GRAND.
+N. LE GRAND.
+L. LE GRAND.
+G. LE GRAND.
+W. LE GRAND.
+R. LE GRAND.
+M. LE GRAND.
+B. LE GRAND.
+E. LE GRAND.
+D. LE GRAND.
+V. LE GRAND.
+E. LE GRAND.
+F. LE GRAND.
+N. LE GRAND.
+J. LE GRAND.
+D. LE GRAND.
+S. LE GRAND.
+H. LE GRAND.
+P. LE GRAND.
+K. LE GRAND.
+L. LE GRAND.
+C. LE GRAND.
+W. LE GRAND.
+M. LE GRAND.
+R. LE

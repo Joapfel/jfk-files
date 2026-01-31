@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_19916.png
+
+Convert to Markdown14-00000
+
+<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>SECRET</td><td>ROUTING</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+TO : DIRECTOR
+FROM : A. J. C. S.
+ACTION: WITH 8
+INFO : C.I. C. I. P's, C. I. P. A., SR '7, VC
+
+S F C R T. 95704
+DIP CITE: TEN 9601
+REDCOAT
+IMMEDIATE ACTION
+EFF: HNYS-0001, 11 JUNE 1963
+
+2 JUN 1963 95704
+
+1. PER DISCUSSIONS WITH WALLACE A. DEMOLAT, STATION WISHES EMPLOY KIFF OF DOUGLAS J. FEINGLASS ASAP TO ASSUME PART OF LATTER'S LIENVOY TRANSLATION AND TRANSCRIPTION DUTIES. WOULD FREE HIM TO CONCENTRATE MORE ON PREPARATION ASSESSMENTS-CHARACTERIZATIONS OF SOU COMPLEMENT.
+
+2. REQUEST US INITIATE CLEARANCE. FORWARDING FIELD CONTRACT WHICH WILL BE IN ACCORDANCE REF.
+
+S E C R E T
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tr><td>Dated: July 9<br/>u.m.<br/>July 13<br/>W. P. Calhoun for Gen.></td></tr></table>
+
+<table><tr><td>Copy 1</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+Copy No. 1
+
+J. C. S.      C.I. P. A.       SR '7, VC

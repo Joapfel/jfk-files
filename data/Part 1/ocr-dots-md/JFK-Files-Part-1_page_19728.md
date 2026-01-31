@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_19728.png
+
+Convert to MarkdownSECRET
+
+8 April 1965
+
+MEMORANDUM IN LIEU OF FITNESS REPORT
+
+SUBJECT: James P. O'Connell
+Period 12 September 1964 - 31 March 1965
+
+[BLANK], chief of the Regional KUSODA Support Staff for nearly three years, is 43 years old and a career employee with more than 13 years service. Although this has been his first overseas tour, he and his family are well adjusted to foreign assignment, and he is apparently able and willing to serve in any position offered.
+
+As the senior KUSODA officer in the Far East, he directs the activities of six officers on his own staff as well as supervises and provides guidance to all other KUSODA officers assigned in the Far East; in addition he monitors the performance of three other KUSODA officers attached to this Station. In this supervisory role, he has an excellent insight into the abilities of his staff and definitely holds the respect of his subordinates.
+
+As the senior KUSODA officer he is my principle adviser on many KUSODA matters. His judgment is mature, his evaluations usually sound. He is dependable and I believe his loyalty to our service and his superiors is above question.
+
+He operates his staff well, is cost conscious and requires an absolute minimum of supervision from Station command.
+
+He maintains excellent liaison relationships with other island services.
+
+[BLANK] will continue to develop and can assume positions of greater responsibility.
+
+I rate this officer as Strong--on the high side.
+
+/s/ James D. Andrews, COS
+
+READ: /s/ James P. O'Connell
+
+SECRET

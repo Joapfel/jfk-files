@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_20375.png
+
+Convert to Markdown# AFFIDAVIT
+STRIKING AGAINST THE FEDERAL GOVERNMENT
+DEPARTMENT OF STATE
+
+## Economic Cooperation Administration
+
+(Place of Employment)
+
+E. Howard Hunt, Jr.
+
+(Office or Division)
+
+I hereby swear (or affirm) that I have not engaged in any strike against the Government of the United States, that I am not engaged in any strike against the Government of the United States and that I will not so engage while an employee of the Government of the United States; that I am not a member of an organization of Government employees that asserts the right to strike against the Government of the United States, and that I will not while a Government employee become a member of such an organization.
+
+Subscribed and sworn to before me this 3rd day of June, 48
+at Washington, State of
+
+Notary Public
+
+NOTE: Any officer or employee of the Department of State who is designated in writing by the Secretary to administer oaths in connection with employment as required by law is authorized to administer the affidavit required incidental to the foregoing and such affidavit must be administered without charge or fee and has the same force and effect as affidavits administered by officers having seals.
+
+**STATUTORY PENALTY CLAUSE:** "Any person who engages in a strike against the Government of the United States or who is a member of an organization of Government employees that asserts the right to strike against the Government of the United States "" and accepts employment the salary or wages for which are paid from any appropriation contained in this Act shall be guilty of a felony and, upon conviction, shall be fined not more than $1,000 or imprisoned for not more than one year, or both: Provide further, that the above penalty clause shall be in addition to, and not in substitution for, any other provisions of existing law."

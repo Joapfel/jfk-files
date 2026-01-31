@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_19113.png
+
+Convert to MarkdownParti Communiste Francaise, 4, rue de St. Germain, 120, rue Infayette,
+
+Amisale des Anciens de la Faculte, 23, rue Montreal (15eme).
+
+Amicale des Jeunes etolvere, 20 rue René Boulanger (10eme) Rot. 21.31.
+
+Amisale desREVIERE : une amie publique, 45 rue du Pg Montmartre, (9eme) - Pev. 02.49
+
+Amicale Nationale des Les Municipaux communaux de France, 1 rue de Mauberge (6eme) Tru. 78.31
+
+Amicale nationale des 3e anciennes de france, 1 rue de Mauberge (9eme) Tru. 78.31
+
+Amis de la Cereuse, 37 rue du louvre (2eme)
+
+Amis de la Nature, 19 rue St-Georges (9eme) - Tru. 49.06
+
+Amis de la Ferie, 37 rue Jouvelet (16eme) - Jan. 86.04
+
+Amities Franco-polonaises & boulevard des Italiens (2eme) - Rio. 01.85,
+
+Association des Travailleurs Scientifiques, 37 rue Geoffrey St-Rillaire (5eme)
+
+Association d'Etudes et d'Informations municipales, 1 rue de Mauberge (9eme) Tru. 78.31
+
+'association Nationale des Anciens P.P.I. - P.T.P.P. et de loura Anis,
+&7 boulevard des Italiens (2eme) - Rio. 46.27
+
+ association Nationale des Cheminots Anciens Combattants, 9 rue Barter-court, Mar. 04.97
+
+Association Nationale des Penilles de Fusilles, 10 rue Lenoix (16eme) Rio. 71.50
+
+Assoclat on Nationale des Sapatries d'Indochine, 19 rue St-Georges (Peme)
+Tru. 09.88
+
+ association des Nouves Orpheline Asocandante victimes des deux Guerres,
+3 rue de Tilsitt (Bene)
+
+Association RepubliCaine les Anciens Combattants, 46 Pg Montmartre (9eme) Pro. 02.49
+
+BORDENTOURNADONDE TERRE EST VUE PAR LE SURGEUR DE LA RUSSIE.

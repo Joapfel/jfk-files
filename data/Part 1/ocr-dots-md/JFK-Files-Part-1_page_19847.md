@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_19847.png
+
+Convert to MarkdownSECRET
+
+23 March 1971
+
+MEMORANDUM FOR: Contract Personnel Division
+
+SUBJECT : Sandra B. CAZAZZUS
+
+Following are the total number of hours for each year worked by Sandra B. CAZAZZUS under contract. The information was provided this office by Payroll.
+
+| Period of Service | | | |
+| :--- | :--- | :--- | :--- |
+| **From** | **To** | **Actual Hours Worked in Each Week** | **Dow:** |
+| 15 Mar 64 | Dec 1, 1964 | 551 | This gal had two contracts. The first one included a leave benefit. This first K ended and was immediate replaced by a 2nd K, which included Civil Service Retirement. |
+| Jan 65 | Dec. 1, 1965 | 789 | From the number of hours worked I feel we can make a determination that she during the full period she worked as an in a part-time basis on a prearranged reg. sch. tour of duty. If you concure, I will write a std. type memo to C/Finance. |
+| Jan 66 | Dec 6, 1966 | 1091 | Subject is now terminated, but in KH field with her husband. Bill Kenchan has a dispatch in asking that Hqtrs. verify her total K service. |
+| Jan 67 | Dec 7, 1967 | 1092 | |
+| Jan 68 | Dec 1, 1968 | 1486 | |
+| Jan 69 | Dec 1, 1969 | 1414 | |
+| Jan 70 | 19 Jul 1970 | 1217 | |
+
+Paul.
+23 Mar 71
+
+SECRET

@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_19776.png
+
+Convert to Markdown<table><tr><td colspan="5">O'CONNELL, James P.</td></tr><tr><td>CLASS NO.</td><td>S</td><td>M</td><td>JULY 21</td></tr><tr><td>DATE OF BIRTH</td><td>SECRET</td></tr></table>
+
+<table><thead><tr><th>COURSE</th><th>DATE ENTERED</th><th>DATE COMPLETED</th><th>REMARKS</th></tr></thead><tbody><tr><td>INTELLIGENCE ORIENTATION<br>(or equivalent)</td><td>19 Mar.</td><td>30 Mar. 1962</td><td>(1st two weeks only)</td></tr><tr><td>OPERATIONS SUPPORT<br>(or equivalent)</td><td>27 Apr.</td><td>20 Apr. 1952</td><td></td></tr><tr><td>DEPARTMENT FAMILIARIZATION<br>(or equivalent)</td><td></td><td></td><td></td></tr><tr><td>OPERATIONS</td><td></td><td></td><td></td></tr><tr><td>ADMINISTRATIVE PROCEDURES</td><td></td><td></td><td></td></tr><tr><td>MANAGEMENT</td><td>1 May</td><td>15 May 1955</td><td></td></tr><tr><td>SUPERVISION</td><td></td><td></td><td></td></tr><tr><td>ST. THULE UNIT</td><td>18 Nov.</td><td>21 Nov. 1952</td><td></td></tr></tbody></table>
+
+<table><tr><td>TRAIRING RECORD</td><td>(45)</td></tr></table>
+
+<table><tbody><tr><td rowspan="3">NAME: O'CONNELL, James P.<br/>CLASS: (A)<br/>DATE OF BIRTH: SECRET<br/>(Date of Birth)</td><td rowspan="3">ASSIGNMENT:<br/><table><tr><td>GRADE</td><td>SCHOOL</td><td>DEGREE AND DATE<br/>MAJOR</td><td>OFFICE RETIREMENT DATE</td></tr><tr><td>(LEVEL ATTAINED AND LEVEL OF SUBJECTS)</td><td>SCHOLARSHIP</td><td>DEGREE AND DATE<br/>MAJOR</td><td>OFFICE RETIREMENT DATE</td></tr></table></td><td>MIDCARERET INCE</td><td>(DATE) SCORE</td></tr><tr><td>COUSE</td><td>DATE ENTERED</td><td>DATE COMPLETED</td><td>REMARKS</td></tr><tr><td>INTELLIGENCE ORIENTATION<br/>(or equivalent)</td><td></td><td></td><td></td></tr><tr><td>OPERATIONS SUPPORT</td><td></td><td></td><td></td></tr><tr><td>OPERATIONS FAMILIARIZATION<br/>(or equivalent)</td><td></td><td></td><td></td></tr><tr><td>DEPARTMENT FAMILIARIZATION<br/>(or equivalent)</td><td></td><td></td><td></td></tr><tr><td>MANAGEMENT</td><td></td><td></td><td></td></tr><tr><td>WRITING WORKSHOP</td><td></td><td></td><td></td></tr><tr><td>INTELLIGENCE RESEARCH</td><td></td><td></td><td></td></tr><tr><td>Staff Crypto</td><td colspan="3">1954</td></tr></tbody></table>
+
+<table><tr><td>SECRET</td></tr></table>

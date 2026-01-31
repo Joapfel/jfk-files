@@ -1,0 +1,152 @@
+# JFK-Files-Part-1_page_20302.png
+
+Convert to MarkdownSECRET
+
+<table>
+    <tr>
+        <td colspan="4">SECTION IV</td>
+        <td colspan="3">GEOGRAPHIC AREA KNOWLEDGE AND FOREIGN TRAVEL</td>
+        <td colspan="5">KNOWLEDGE ACQUIRED BY CHECK IN</td>
+        <td rowspan="2">WORK ASSESSMENT</td>
+    </tr>
+    <tr>
+        <th>NAME OF REGION OR COUNTRY</th>
+        <th></th>
+        <th>TYPE OF SPECIALIZED KNOWLEDGE</th>
+        <th>DATES OF TRAVEL OR RESIDENCE</th>
+        <th>CATE & PLACE OF STUDY</th>
+        <th>RESIDENCE</th>
+        <th>TRADE</th>
+        <th>SERVICE</th>
+        <th></th>
+        <th></th>
+        <th></th>
+        <th></th>
+    </tr>
+    <tr>
+        <td>Cuba</td>
+        <td></td>
+        <td>Linguistic-Area Knowledge</td>
+        <td>1917-1924</td>
+        <td></td>
+        <td>X</td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+    </tr>
+    <tr>
+        <td>Panama</td>
+        <td></td>
+        <td></td>
+        <td>1952-58</td>
+        <td></td>
+        <td>X</td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td>X</td>
+        <td></td>
+    </tr>
+    <tr>
+        <td>Puerto Rico</td>
+        <td></td>
+        <td></td>
+        <td>various</td>
+        <td></td>
+        <td></td>
+        <td>X</td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td>X</td>
+        <td></td>
+    </tr>
+    <tr>
+        <td>Guatemala</td>
+        <td></td>
+        <td></td>
+        <td>various</td>
+        <td></td>
+        <td></td>
+        <td>X</td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td>X</td>
+        <td></td>
+    </tr>
+    <tr>
+        <td>El Salvador</td>
+        <td></td>
+        <td></td>
+        <td>various</td>
+        <td></td>
+        <td></td>
+        <td>X</td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td>X</td>
+        <td></td>
+    </tr>
+    <tr>
+        <td>Mexico</td>
+        <td></td>
+        <td></td>
+        <td>various</td>
+        <td></td>
+        <td></td>
+        <td>X</td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td>X</td>
+        <td></td>
+    </tr>
+    <tr>
+        <td>Dom Rep</td>
+        <td>" Limited area knowledge</td>
+        <td>1965</td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td>X</td>
+        <td></td>
+    </tr>
+    <tr>
+        <td>Germany</td>
+        <td></td>
+        <td></td>
+        <td>1963</td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td>X</td>
+        <td></td>
+    </tr>
+    <tr>
+        <td>Scotland</td>
+        <td></td>
+        <td></td>
+        <td>1963</td>
+        <td></td>
+        <td></td>

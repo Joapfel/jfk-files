@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_20336.png
+
+Convert to MarkdownSEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents):
+
+1 NAME Lus Maria Hidalgo RELATIONSHIP Daughter AGE 12
+CITIZENSHIP U.S. ADDRESS Same as applicant.
+(St and Number) (City) (State) (Country)
+2 NAME Frances Rebecca Hidalgo RELATIONSHIP Daughter AGE 7
+CITIZENSHIP U.S. ADDRESS Same as applicant.
+(St and Number) (City) (State) (Country)
+
+3 NAME
+CITIZENSHIP
+RELATIONSHIP
+AGE
+
+(St and Number) (City) (State) (Country)
+
+(also dependent)
+
+SEC. 5. FATHER (Give the same information for stepfather and/or guardian on a separate sheet)
+
+FULL NAME Balbes Muns News Hidalgo Last
+(First) (M.M.) (Last)
+LIVING OR DECEASED Living DATE OF DECEASE CAUSE NA
+PRESENT. OR LAST, ADDRESS Same as applicant.
+(St and Number) (City) (State) (Country)
+DATE OF BIRTH December 19, 1920 PLACE OF BIRTH Acquidilla, Puerto Rico.
+(City) (State) (Country)
+IF BORN OUTSIDE U. S. INDICATE DATE AND PLACE OF ENTRY 1923 (March) NYC, NY.
+CITIZENSHIP U. S. WHEN ACQUIRED? Birth WHERE? Puerto Rico.
+(City) (State) (Country)
+OCCUPATION Retired LAST EMPLOYER Do not remember.
+EMPLOYER'S OR OWN BUSINESS ADDRESS None
+(St and Number) (City) (State) (Country)
+MILITARY SERVICE FROM 1918 TO 1936 BRANCH OF SERVICE NA.
+(Date) (Date)
+COUNTRY NA DETAILS OF OTHER GOVT. SERVICE, U. S. OR FOREIGN
+NA
+
+SEC. 6. MOTHER (Give the same information for stepmother on a separate sheet)
+
+FULL NAME Frances Rosario Hidalgo Last
+(First) (M.F.) (Last)
+LIVING OR DECEASED Living DATE OF DECEASE CAUSE NA
+PRESENT. OR LAST, ADDRESS Same as applicant.
+(St and Number) (City) (State) (Country)
+DATE OF BIRTH 12 Jan. 1992 PLACE OF BIRTH Oviedo, Spain
+CITIZENSHIP U. S. WHEN ACQUIRED? 1917 WHERE? Havana, Cuba.
+(City) (State) (Country)
+IF BORN OUTSIDE U. S. INDICATE DATE AND PLACE OF ENTRY March 1924, NYC, NY, USA
+
+(8)

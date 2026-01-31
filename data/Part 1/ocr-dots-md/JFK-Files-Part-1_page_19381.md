@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_19381.png
+
+Convert to MarkdownSECRET
+
+6 March 1967
+
+TRANSFER LETTER AUTHORIZING PERMANENT CHARGE OF OFFICIAL STATION
+
+TO: James V. Moore
+
+1. Pursuant to authority vested in me, the transfer of your official station from Washington, D.C., to Palo Alto, is hereby ordered and approved.
+
+2. This change of official station is to be effected as soon as practicable and is to be effective upon arrival at your new post. The transfer is not for your convenience or benefit, or at your request, but in the best interests of the Institution. The reimbursement of travel expenses is authorized. Per diem in lieu of subsistence is authorized, and shall be in accordance with the provisions of Administrative Order No. 43, Living and quarters allowances at the rates authorized by Budget Circular A-3 shall be paid, effective upon arrival.
+
+3. In accordance with the provisions of E.O. 9805, and subject to the availability of funds, the shipment at Government expense of your household goods and personal effects, including packing, packing, unpacking, unpacking, drying, and temporary storage not to exceed 60 days, within the prescribed weight allowance, is authorized.
+
+4. Subject to the availability of funds, the movement of your immediate family at Government expense is authorized in accordance with regulations prescribed in E.O. 9805.
+
+(Signed) Donald W. Yellowway
+(Approving Officer)
+
+SECRET

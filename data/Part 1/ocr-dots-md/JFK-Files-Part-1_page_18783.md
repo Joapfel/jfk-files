@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_18783.png
+
+Convert to MarkdownSECRET
+
+ excerpted and are appended to this memorandum.
+
+5. Subject's present salary, minus retirement and income tax, is $105.12 per two-week pay period; her present living and quarters allowance amounts to $78.45. The proposed increase to a CAF-9 would bring her not salary to $127.43 per two-week pay period and her living allowance to $103.07 - a difference of $46.92 every two weeks. A promotion to a CAF-8 would be insufficient, since her allowances would remain the same and the salary increase would amount only to $10.75 per pay period.
+
+ORIGINATOR : Virginia Pryor EP
+DEPUTY CHIEF FOR SIA: Don 3. Garden
+
+SECRET

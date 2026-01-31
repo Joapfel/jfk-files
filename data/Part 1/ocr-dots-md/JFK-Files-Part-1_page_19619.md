@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_19619.png
+
+Convert to Markdown# ADMINISTRATIVE • INTERNAL USE ONLY
+
+29 JUN 1973
+
+MEMORANDUM FOR : Deputy Director for Management and Services
+SUBJECT : Request for Voluntary Retirement -
+Mr. James P. O'Connell, Jr.
+
+1. This memorandum submits a recommendation for your approval in paragraph 3.
+
+2. The employee named above has applied for voluntary retirement under the provisions of Headquarters Regulation 20-50j.
+
+Grade: G6-16 Position: Security Officer
+Career Service : Security
+Office/Division : Office of Security
+Date Requested for Retirement: 29 June 1973
+Age at that Date : 98
+Years of Creditable Service : 27
+Years of Agency Service : 21
+Years of Qualifying Service : 5
+
+3. The applicant's Career Service and the CIA Retirement Board recommended that the request be approved. I endorse these recommendations.
+
+4. The recommendation contained in paragraph 3 is approved:
+
+/s/ Robert S. Wattles
+Deputy Director for Management and Services
+Date
+
+ADMINISTRATIVE • INTERNAL USE ONLY

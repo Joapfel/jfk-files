@@ -1,0 +1,77 @@
+# JFK-Files-Part-1_page_19379.png
+
+Convert to MarkdownAPR 17
+
+SF4
+
+SPECIAL FUNDS DIVISION
+FOREIGN DUTY DATA SHEET
+
+Firm. No.
+33-2
+SPTT.1946
+
+(This form to be prepared in quadruplicate - original to Special Funds Division, duplicate to
+purchased to office of destination, triplicate to Administrative Officer, quadruplicate to indivi-
+ual to be carried to destination and surrendered to Special Funds Officer)
+
+1. NAME: J. Walton Moore Date: 13 March 1947
+   CAP-12
+2. POSITION: Operations Officer ANNUAL GROSS SALARY $5905.20 CONTROL NO.
+3. DESTINATION: Dairren, China
+4. HOME ADDRESS: 857 Rose Avenue, Abilene, Texas
+5. SALARY DATA:
+   (FOR EACH FOUR WEEKLY PAY PERIOD)
+
+A - To be paid by State Office $ 25.84
+     Station
+B - Tax withheld in U.S. $ 19.60
+C - Insurance withheld in U.S. $
+D - Bond deductions withheld in U.S. $
+E - Retirement deductions withheld in U.S. $
+F - Other - (specify in detail) $
+G - To be paid to allotted by Washington Office $ 168.80
+
+Total Gross Salary Per Pay Period $454.24
+
+6. Overseas payment to begin with payroll period 6 April 1947 Through 3 May 1947
+7. Allotment Instructions:
+   Mail or deliver four weekly check to J. Walton Moore
+   Name as it should appear on check
+   At the following address Farmers & Merchants National Bank, Abilene, Texas
+
+8. All adjustments in salary to be effected in: (initial one)
+   A - Net overseas payment X
+   B - U.S. Allotment X
+9. Leave balance as of 4/5/47 (Approximate date of departure) 4/5/
+   **No leave used from 4/5/47 to departure date.**
+
+A - Annual leave 48 H
+   Hours B - Sick Leave 68 H
+
+10. Classification of Assignment: (Check one) Temporary X Permanent X
+11. Payment of allowances for quarters and/or cost of living is X is not authorized (check one)
+12. Authorization of allowances for quarters and/or cost of living is in accordance with Bureau of the Budget Circular A-8. (cite author)
+13. Allowance for quarters and cost of living data:
+   (To be stated in cases where deemed necessary by Special Funds Division - If filled in I will be the responsibility of person making payment to ascertain that the maximum, as shown is allowable under existing regulations in each individual case, and that all proper deductions are made)
+   Current Maximum Rate Authorized Annual Per Four Weekly Pay Period
+   Quarters $ — $ —
+   Cost of Living $ — $ —
+   Other (specify) $ 2520.00 $ 193.84
+14. Dependency Status:
+   Married with dependents in area X Married without dependents in area
+   Single with dependents in area X Single without dependents in area
+15. Advances transferred Home as per T/A attached
+16. REMARKS: For per diem while enroute see reverse side
+
+APPROVED:
+
+Administrative Officer
+Branch Chief
+Financial Officer
+
+I hereby authorize and direct the Special Funds Division to make the above allotments from my compensation.
+
+J. Walton Moore
+
+H. V. Dич

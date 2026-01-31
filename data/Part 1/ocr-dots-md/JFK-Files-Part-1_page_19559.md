@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_19559.png
+
+Convert to MarkdownJUNIOR
+
+I, James W. Moore, do hereby swear or affirm that I am not engaged in any strike against the Government of the United States; that I am not a member of an organization of Government employees that disposes the right to strike against the government of the UNITED STATES, and that I will not while a Government employee become a member of such an organization.
+
+Subscribed and sworn to before me this 29th day of August
+1946 at Shanghai, China".
+
+Bowman M. Macarthur, 1st Lt. CMP
+ADJUTANT

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_19752.png
+
+Convert to MarkdownSECRET
+
+Non Filed
+
+# FITNESS REPORT (Part II) POTENTIAL
+
+## INSTRUCTIONS
+
+FOR THE ADMINISTRATIVE OFFICER: Consult current instructions for completing this report.
+
+FOR THE SUPERVISOR: This report is a privileged communication to your supervisor, and to appropriate career management and personnel officials concerning the potential of the employee being rated. It is NOT to be shown to the rated employee. It is recommended that you read the entire report before completing any question. This report is to be completed only after the employee has been under your supervision FOR AT LEAST 90 DAYS. If less than 90 days, hold and complete after the 90 days has passed. If this is the INITIAL REPORT on the employee, however, it MUST be completed and forwarded to the D(epartment) no later than 30 days after the due date indicated in item 8 of Section 7 below.
+
+<table><thead><tr><th colspan="5">SECTION E.</th></tr></thead><tbody><tr><td colspan="2"><b>GENERAL</b></td><td colspan="2"></td><td></td></tr><tr><td>1. NAME<br/>(Last)</td><td>(First)</td><td>(Middle)</td><td>2. DATE OF BIRTH</td><td>3. SEX</td></tr><tr><td>O'CONNELL, James</td><td>P.Jr.</td><td></td><td>19 Feb. 1917</td><td>male</td><td>SD - SS</td></tr><tr><td colspan="2">3. OFFICE/DIVISION BRANCH OF ASSIGNMENT</td><td colspan="3"></td></tr><tr><td colspan="4">OS/Sec., Sup. Div., Support Branch</td><td>Investigator</td></tr><tr><td>7. GRADE</td><td>8. DATE REPORT DUE IN UP</td><td colspan="3">(Check one)<br/>7-17 December 1957</td></tr><tr><td colspan="3">10. TYPE OF REPORT<br/>(Check one)</td><td colspan="2">INITIAL<br/>X<br/>ASSIGNMENT/SUPERVISOR<br/>ASSISTANT-EMPLOYEE<br/>SPECIAL (Specify)</td></tr></tbody></table>
+
+<table><thead><tr><th colspan="6">SECTION F.</th></tr><tr><th colspan="6">CERTIFICATION</th></tr></thead><tbody><tr><td colspan="6">1. FOR THE RATERS: I CERTIFY THAT THIS REPORT REPRESENTS MY BEST JUDGEMENT OF THE INDIVIDUAL BEING RATED</td></tr><tr><td>A. THIS DATE<br/>15 November 1957</td><td>B. types or printed name and signature of supervisor<br/>ROBERT H. HALL</td><td>C. SUPERVISOR'S OFFICIAL TITLE<br/>Abst't Dep. Dir. of Sec.(I & S)</td></tr><tr><td colspan="6">2. FOR THE REVIEWING OFFICIAL: A PRINTED NAME AND SIGNATURE OF REVIEWING OFFICIAL IS NEEDED TO BE AVAILABLE SO WE CAN SEE IF THERE IS ANY DIFFERENCE OF OPINION IN ATTACHED MEMO.</td></tr><tr><td>A. THIS DATE<br/>25 November 1957</td><td>B. types or printed name and signature of reviewing official<br/>ROBERT H. HALL</td><td>C. OFFICIAL TITLE OF REVIEWING OFFICIAL<br/>Dep. Dir. of Security(I & S)</td></tr></tbody></table>
+
+<table><thead><tr><th colspan="2">SECTION G.</th><th>ESTIMATE OF POTENTIAL</th></tr></thead><tbody><tr><td colspan="2">1. POTENTIAL TO ASSUME GREATER RESPONSIBILITIES</td><td>DIRECTIONS: Considering others of his grade and type of assignment, rate the employee's potential to assume greater responsibilities. Think in terms of the kind of responsibility encountered at the various levels in his kind of work.<br/><br/>RATING<br/>NUMBER 1. ALREADY ABOVE THE LEVEL AT WHICH SATISFACTORY PERFORMANCE CAN BE EXPECTED<br/>2. HAS REACHED THE HIGHEST LEVEL AT WHICH SATISFACTORY PERFORMANCE CAN BE EXPECTED<br/>3. MAKING PROGRESS, BUT NEEDS MORE TIME BEFORE HE CAN BE TRAINED TO ASSUME GREATER RESPONSIBILITIES<br/>4. READY FOR TRAINING IN ASSUMING GREATER RESPONSIBILITIES<br/>5. WILL PROBABLY ADJUST QUICKLY TO MORE RESPONSIBLE DUTIES WITHOUT FURTHER TRAINING<br/>6. ALREADY ASSUMING MORE RESPONSIBILITIES THAN EXPECT

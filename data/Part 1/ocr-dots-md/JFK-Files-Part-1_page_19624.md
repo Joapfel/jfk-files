@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_19624.png
+
+Convert to MarkdownDEPARTMENT OF THE AIR FORCE
+HEADQUARTERS OF THE ARMY, OF NAVY AND AIRY INVESTIGATIONS
+WASHINGTON, D.C. 20501
+
+7 February 1973
+
+The Honorable James R. Schlesinger
+Director, Central Intelligence Agency
+Langley, Virginia 22101
+
+Dear Mr. Schlesinger
+
+Please convey to Mr. Howard J. Osburn, your Director of Security, my sincere appreciation for the excellent briefing which was recently provided for me by personnel of the Office of Security. The briefing and technical demonstrations accompanying it were both personally informative and professionally rewarding.
+
+A special note of thanks is due to Mr. Ermal Geiss, Deputy Director of Security, Mr. James O'Connell, Deputy Director for Physical, Technical, and Overseas Security, and Mr. Edward F. Sayle, Chief, Special Activities Operations Branch. Their considerate attention, sincere interest, and cooperative spirit were deeply appreciated.

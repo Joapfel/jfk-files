@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_19014.png
+
+Convert to Markdown14-0000
+
+# Intelligence Information Report
+
+This material contains information on meeting the National Defense of the United States within the meaning of the Espionage Act, Title 18, U.S. Code, Secs. 703 and 794, the criminal offense of making or causing to be made a knowing and willful false report or statement in any way to mislead an official law enforcement officer.
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPORT NO. CS-311/OS430-69
+DATE DISTR. 22 September 1969
+
+COUNTRY West Germany
+DOI Early August 1969
+SUBJECT Miscellaneous Information on the National Democratic Party
+
+ACQ Germany, Hamburg (15 August 1969) FIELD NO. EGG-1444
+SOURCE Member of the National Democratic Party in Schleswig-Holstein whose reliability has not yet been established. He obtained the information from two district officials of the Party.
+
+1. According to a ranking official of the Kiel district of the National Democratic Party (NPD), Karl-Heinz Knipphals, the chairman of the Kiel district of the NPD, and Adolf von Thadden, the national chairman of the NPD, are personal enemies. (Source Comment: In January 1969 Knipphals was elected to be his party district's candidate for the West German Parliament. Knipphals, a Kiel lawyer, is in his early 50's. He was severely wounded during World War II and has only one arm.)
+
+2. Von Thadden is aware of, and unhappy about, the fact that Knipphals, prior to joining the NPD, participated in Easter Marches and received unfavorable publicity. Furthermore, von Thadden is concerned about Knipphals' strong and ruthless political ambitions. He has referred to Knipphals as a "second Hitler", and he welcomes and encourages the fact that there is strong opposition to Knipphals even within the Kiel district of the party. Von Thadden, for the above reasons, would very much like to see Knipphals remain on the district level and is anxious to keep him out of the West German Parliament.
+
+3. The same official who made the remarks about von Thadden and Knipphals, also stated that many wealthy industrialists contribute funds to the NPD anonymously, because they do not wish their association or sympathy with the party to become known.
+4. The chairman of another NPD district in Schleswig-Holstein stated that, in view of the fact that each new
+
+S-E-C-R-E-T NO FOREIGN DISSEM
+
+(class: location) (dissim controls)
+
+<table><thead><tr><th>STATE</th><th>DIA</th><th>ARMY</th><th>NAVY</th><th>AIR</th><th>NSA</th><th>CRS</th><th>(For Field Distribution see final paragraph)</th></tr></thead><tbody><tr><td colspan="8"></td></tr><tr><td>C/E/R</td><td>1</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>E/G/R</td><td>2</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>E/G/R/P</td><td>1</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>E/G/R/C</td><td>1</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>E/G/W</td><td>1</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>TOTALS</td><td></td><td></td><td></td><td></td><td></td><td></td><td>IE 2. CI 2. FI 3. DO 1. EUR 6</td></tr></tbody></table>
+
+<table><tr><td>EGG-1444<br>CAINFER</td></tr><tr><td colspan="2">NO LIAISON</td></tr><tr><td>LIAISON *</td><td>COORDINATING RELEASING<br>HM:CH:<br>sroxm</td></tr></table>

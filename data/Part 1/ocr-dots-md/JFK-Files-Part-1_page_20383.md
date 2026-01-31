@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_20383.png
+
+Convert to MarkdownFORM 83-19 PART I
+UNITED STATES
+DIVILE COMMISSION
+OCTOBER 1945
+
+NOTIFICATION OF PERSONNEL ACTION
+
+<table><thead><tr><th colspan="2">I. NAME (MR - MRS - JR) <br> Mr. B. Howardunt, Jr.</th><th>Z DATE OF BIRTH <br> 10-9-18</th><th>I JOURNAL OR ACTION NO <br> 7</th><th>4 DATE <br> 6-9-48</th></tr></thead><tbody><tr><td colspan="5">This is to notify you of the following action affecting your employment:</td></tr><tr><td colspan="2">5. NATURE OF ACTION (USE STANDARD TERMINOLOGY)<br> Separation - Transfer<br> (to Econ. Corp. Admin., Foreign Service)</td><td colspan="3">6. EFFECTIVE DATE <br> C-0-68 cob</td></tr><tr><td colspan="3"><b>FROM</b><br> Information and Editorial Dept.<br><br> GAF-1a, 35005.70 per annum<br> CSC No. 103 - Series L230<br> <br> Process Information Division<br> <br> Washington, D.C.</td><td colspan="2"><b>TO</b><br> 8. POSITION TITLE <br> 9. SERVICE GRADE, SALARY <br> 10. ORGANIZATIONAL DESIGNATIONS <br> 11. HEADQUARTERS <br> 12. FIELD OR DEPT'L</td></tr><tr><td><input type="checkbox"></td><td><b>FIELD</b></td><td><input type="checkbox" checked></td><td><b>DEPARTMENTAL</b></td><td><input type="checkbox"></td><td><b>FIELD</b></td><td><input type="checkbox"></td><td><b>DEPARTMENTAL</b></td></tr><tr><td colspan="8"><b>13. REMARKS</b><br> Appointed to Foreign Service, effective C-0-68.<br> Annual and sick leave, if any, to be transferred.</td></tr><tr><td colspan="8"><b>V. L. Couch</b><br> Director of Personnel<br><br> 14. SIGNATURE OR OTHER AUTHENTICATION<br><br><table border="1"><tbody><tr><th colspan="4">15 VETERAN'S PREFERENCE</th></tr><tr><th rowspan="2">NAME</th><th rowspan="2">DPT.</th><th colspan="3">10 POINT</th><th rowspan="2">OTHER</th></tr><tr><th>DISAB</th><th>WIFE</th><th>WIDOW</th></tr><tr><td>M</td><td>S</td><td></td><td></td><td></td><td></td></tr><tr><th rowspan="2">SEX</th><th rowspan="2">RACE</th><th colspan="4">19 APPROPRIATION</th></tr><tr><th>FROM:<br/>To: 110/95.00(c1) 100 01</th><th>B</th><th>H</th><th></th></tr><tr><th>NEW</th><th>VICE</th><th>L.A</th><th>REAL.</th><th>CSC No. 103</th><th>6-14-48</th><th></th><th></th></tr><tr><td>20</td><td>SUBJECT TO C.S. RETIREMENT ACT (YES-NO)<br/>No</td><td></td><td>X</td><td></td><td></td><td></td><td></td></tr><tr><td colspan="3">21. DATE OF OATH (ACCESSIONS ONLY)<br/>New York</td><td colspan="2">22. LEGAL RESIDENCE</td></tr></tbody></table></td></tr></tbody></table>
+
+4. PERSONNEL FOLDER COPY
+
+B. U. S. GOVERNMENT PRINTING OFFICE, 1947-49

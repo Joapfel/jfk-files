@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_19660.png
+
+Convert to MarkdownEYES ONLY
+SECRET
+
+effective supervisor. He brings to the performance of his duties broad knowledge and experience of security procedures and practices. He has been most effective in keeping a close rein on budgetary obligations within his Directorate.
+
+4. Mr. O'Connell is personable and articulate and is able to express himself well in both written and oral form. His career is marked by steady advancement and consistently high level performances. He possesses all of the requisite qualities of a senior Security executive. However, I feel that he has not as yet applied all of these qualities to their maximum potential in his performance as DD/PTOS. Mr. O'Connell has one Division Chief who is extraordinarily capable and effective in producing results. Conversely, however, he presents one of the most difficult supervisory problems in the Office because of certain personal characteristics. I don't feel, and I believe that Mr. O'Connell would agree with me, that he has yet gotten on top of this individual as well as he should. I am convinced, however, that he is fully aware of the problem and is working hard to achieve the proper supervisory balance. I rate his performance, on balance, as STRONG with many outstanding features. I have complete confidence in Mr. O'Connell's ability, judgment and excellent potential. He is a valued career asset to this Office and the Agency.
+
+5. Mr. O'Connell has seen this Fitness Report,
+
+Howard J. Osborn
+Director of Security
+
+EYES ONLY
+SECRET

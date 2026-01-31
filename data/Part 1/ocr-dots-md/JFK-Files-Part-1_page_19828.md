@@ -1,0 +1,86 @@
+# JFK-Files-Part-1_page_19828.png
+
+Convert to MarkdownSEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents):
+
+1. NAME MAUREEN
+CITIZENSHIP USA
+ADDRESS 222 So.4 St. BRAMPTON, N.Y.
+(St. and Number)
+(City)
+(State)
+(Country)
+
+2. NAME DIANE
+CITIZENSHIP USA
+ADDRESS SAME AS ABLE
+(St. and Number)
+(City)
+(State)
+(Country)
+
+3. NAME JAMES
+CITIZENSHIP USA
+ADDRESS SAME AS ABLE
+(St. and Number)
+(City)
+(State)
+(Country)
+
+SEC. 5. FATHER (Give the same information for stepfather and/or guardian on a separate sheet)
+
+FULL NAME James Patrick O'Connell
+(First)
+(Middle)
+(Last)
+
+LIVING OR DECEASED DEC. DATE OF DECEASE 4/2/77 CAUSE HEART FILAMENT PRESENT, OR LAST, ADDRESS 833 ST. JAMES AVE., ELMHURST, NY
+(St. and Number)
+(City)
+(State)
+(Country)
+
+DATE OF BIRTH 3/12/80 PLACE OF BIRTH BROOKLYN, NEW YORK
+(City)
+(State)
+(Country)
+
+IF BORN OUTSIDE U. S. INDICATE DATE AND PLACE OF ENTRY NA
+
+CITIZENSHIP /A. WHEN ACQUIRED? NA WHERE? NA
+(City) (State) (Country)
+
+OCCUPATION RICKING & MATCH SALESST EMPLOYER CUN BUSINESSES
+EMPLOYER'S OR OWN BUSINESS ADDRESS 69 GUYRNEY J.A. BLYN, NY
+(St. and Number)
+(City)
+(State)
+(Country)
+
+MILITARY SERVICE FROM TO NA BRANCH OF SERVICE NA
+(Date) (Date)
+
+COUNTRY NA DETAILS OF OTHER GOVT. SERVICE, U. S. OR FOREIGN
+(VIA)
+
+SEC. 6. MOTHER (Give the same information for stepmother on a separate sheet)
+
+FULL NAME ANNE JENNINGS O'CONNELL
+(Frst)
+(Midw)
+(Last)
+
+LIVING OR DECEASED ANNIE DATE OF DECEASE N/A CAUSE N/A
+PRESENT, OR LAST, ADDRESS 833 ST. JAMES AVE., ELMHURST, NY
+(St. and Number)
+(City)
+(State)
+(Country)
+
+DATE OF BIRTH 3/19/71 PLACE OF BIRTH CORONA, NEW YORK
+CITIZENSHIP USA WHEN ACQUIRED? BIRTH WHERE? N/A
+(Date)
+(City) (State) (Country)
+
+IF BORN OUTSIDE U. S. INDICATE DATE AND PLACE OF ENTRY N/A
+
+(3) 19 05:59-1

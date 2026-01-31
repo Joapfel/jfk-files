@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_19105.png
+
+Convert to MarkdownSECRET
+
+- 8 -
+
+(Field comment: It is realized that some of the organisations of which these men are listed as delegates have been dissolved, notably Italia Libra and the Front national Armonien. However, the names of the individuals and their affiliations are shown exactly as they appeared on CADI documents.)
+
+20. CADI is well-financed. Its principal financial support comes from the Communist Party and the COF. (Field comment: CADI documents acknowledge unspecified contributions from those organisations. One of source's informants, the chief of the Foreigners' Section of the Marseille Prefecture, has stated that he knows the Marseille CADI has an undetermined quantity of rubles, presumably received from the Communist Party.)
+
+31. In Marseille, the CADI office was established by Guidelines ZAMIS and George LINIVER in March 1948. It was originally located on the Blvd. du Muy, but in September 1947 it was transferred to 3 Marechal des Capucins. In February 1948 it moved to 97 rue Longue des Capucins and then, after it was ordered dissolved, it continued to function clandestinely at 8 Place de la Prefecture, where it remains today. ZAMIS remains the director of the Local CADI, assisted by LINIVER.
+
+SECRET
+
+[STAMP]

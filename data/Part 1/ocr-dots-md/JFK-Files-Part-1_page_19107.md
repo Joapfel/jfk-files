@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_19107.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+Subject: TOP SECRET
+Report No: RE-013
+Date of Information: 5 August 1949
+Place Acquired: W100
+Evaluation: B-J
+Source: EQUILIBRIUM
+Date Acquired: 6 August 1949
+Date of Report: 5 August 1949
+
+In no event shall the Company be held liable for any special, indirect or consequential loss arising out of the use made of this report.
+
+3. A(a) and (b) are hereby incorporated by reference into this document as if set out herein.
+
+3. A(c) is a contribution of P.C.A. with U.N. HAMINA to the study of the problem of nuclear weapons.
+
+4. The report is not to be distributed without prior written permission from the author.
+
+Classification: SECRET
+
+SECRET
+REGISTRY COPY 29-4-5-m 236
+
+Page 3:
+RE-013 01.09
+
+140000

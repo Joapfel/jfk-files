@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_19865.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR : Office of Finance
+
+FROM : Contract Personnel Division
+
+SUBJECT : Contract Extension for.
+
+1. Effective 8 September 1969 (the contract as amended) for the subject Individual, effective 8 September 1967 (to be extended for a period of _as (i) year_).
+
+2. All other terms and conditions of the contract (as amended) remain in full force and effect.
+
+UNITED STATES GOVERNMENT
+BY
+Contracting Officer
+
+SECRET
+
+Group 1 Excluded from automatic downgrading and declassification on:
+
+RB/DH
+5 Sept. 69
+p.1

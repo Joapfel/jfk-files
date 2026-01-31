@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_19039.png
+
+Convert to MarkdownSECRET
+
+NPD Representation in West German States
+
+HAMBURG
+
+PREMEN
+
+LOWER
+SAXONY
+
+NORTH RHINE-
+WESTPHALIA
+
+HESSE
+
+6.9% (4 seats)
+RHINELAND-
+PALATINATE
+
+SAAR
+
+BADEN-
+WUERTTEMBERG
+
+BAVARIA
+
+88840 & 67
+
+SECRET

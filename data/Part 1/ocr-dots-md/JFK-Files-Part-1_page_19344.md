@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_19344.png
+
+Convert to MarkdownSECRET
+
+Date 29 January 1948
+
+TRANSFER LETTER AUTHORIZING PERMANENT CHANGE OF OFFICIAL STATION
+
+TO: James W. Moore
+
+1. Pursuant to authority vested in me, the transfer of your official station from Bainen to Calguta is hereby ordered and approved.
+
+2. This change of official station is to be effected as soon as practicable and is to be effective upon arrival at your new post. The transfer is not for your convenience or benefit, or at your request, but in the best interests of the Government. The reimbursement of travel expenses is authorized. Per diem in lieu of subsistence is authorized, and shall be in accordance with the provisions of the Foreign Service travel regulations. Living and quarters allowances at the rates authorized by Budget Circular A-8 shall be paid, effective upon arrival.
+
+3. In accordance with the provisions of the Foreign Service travel regulations, and subject to the availability of funds, the shipment at Government expense of your household goods and personal effects, including packing, crating, unpacking, uncrating, drayage, and temporary storage not to exceed ninety days, within the prescribed weight allowance is authorized.
+
+4. Subject to the availability of funds, the movement of your immediate family at Government expense is authorized in accordance with the Foreign Service travel regulations.
+
+5. Authorization for the shipment of a personally owned automobile at Government expense, when consistent with the regulations of the organization as set forth in current directives, is hereby granted.
+
+HASH 2039 (OCT 58070)
+
+See covering memo in file of Oliver Heatsole.
+
+(Approving Officer)

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_19792.png
+
+Convert to MarkdownUNITED STATES INFORMATION AGENCY
+WASHINGTON
+
+January 26, 1961
+
+Dear Chef,
+
+I would like to take this opportunity to belatedly express the sincere appreciation of both my office and the Broadcasting Service of this Agency for the assistance rendered by employees of your staff, Mr. James O'Connell and Mr. Ervon Kuhnke in September and December of last year. This assistance consisted of picking up tape recordings prepared by Radio Moscow in the possession of Mr. Paul Frederick Dauer, 1923 De La Vina Street, Santa Barbara, California and delivering them to my office for the information of our Broadcasting Service. In addition to this service, Mr. Kuhnke of your staff readily volunteered to see that these tapes were returned to Mr. Dauer and this latter service was performed last month.
+
+The excellent spirit of liaison co-operation evidenced by your staff is most gratifying to me and it is hoped that I might be of service in some similar matter in the future.
+
+Colonel Sheffield Edwards
+Director, Office of Security
+Central Intelligence Agency
+Washington 25, D. C.

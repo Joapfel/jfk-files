@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_19742.png
+
+Convert to MarkdownS-M-C-R-E-T
+
+**TRAINING REPORT**
+
+**Introduction to Intelligence No. 40**
+
+40 hours, full-time
+19 - 23 March 1962
+45 students
+
+Student: O'Connell, James P., Jr. Grades GS-15
+
+EOD Date: December 1951
+
+Year of Birth: 1917
+Office: Security
+
+# COURSE OBJECTIVES - CONTENT AND METHODS
+
+**Introduction to Intelligence** has four objectives: (1) to instruct the student in the basic concepts of intelligence and the role of national intelligence within the Government; (2) to describe the intelligence community; its members, their duties, and their relationship to CIA; (3) to define and describe the functions of CIA and identify the components performing them; and (4) to explain the processes and means by which CIA fulfills its responsibilities for collection, production, and dissemination of intelligence.
+
+Lectures given by Orientation Faculty members and guest speakers take up about half the time; seminar and review exercises, about one fourth; and study periods and training films, the remaining quarter. An Intelligence Products Exhibit, representing all the Offices of the DD/I, puts on display the products of those Offices and by visual aids demonstrates the activities of each Office.
+
+# ACHIEVEMENT RECORD
+
+Student achievement is judged on the basis of a 40 item multiple choice test on course content; given the last day of the course. On the basis of this test each student is given an adjective rating. The number of students in this class receiving each adjective rating is shown below. This student's rating is indicated by the asterisk:
+
+Unsatisfactory
+
+22
+
+Excellent
+
+23*
+
+FOR THE DIRECTOR OF TRAINING: J. W. Langley 23 March '62
+Chief, Orientation Faculty Date:

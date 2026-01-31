@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_18815.png
+
+Convert to Markdown14-0000
+
+VIA A.F. RICE.
+
+DISPATCH NO. : NMYA-
+
+<table>
+   <tr>
+    <td>SECRET</td>
+   </tr>
+   <tr>
+    <td>CLASSIFICATION</td>
+   </tr>
+  </table>
+
+TO Chief, WJ Division
+FROM Chief of Station, Mexico City
+SUBJECT: GENERAL - Inoperative
+SPECIFIC: Anne Goodpasture
+
+DATE 5 June 1957
+
+ACTION REQUESTED: See Para 3.
+
+1. The following is submitted for consideration of C/M/ADMIN and the additional direction considered necessary.
+
+2. On 25 May 1957 the personal automobile owned by subject was hit by a tornado, removing the hood and other parts of the body. The auto was in custody of subject's brother (in the United States) who contacted the Lawton, Oklahoma, claims adjuster for his car insurance (the CEI00 Government Employees Insurance Act), Mr. Ken, C.O.) who authorised complete coverage. Subject was unaware that the accident until repairs had been completed. There were no personal injuries and no newspaper accounts as this loss was insignificant compared to catastrophic flood and tornado damages in the area.
+
+3. On the insurance policy taken out in 1955, Subject's employment was shown as "C.O." Government with the M.I.A. address. The claim to be valid had to show the same. The policy could not be amended to reflect subject's ostensible employment as this type of insurance is available only to U.S. Government employees.
+
+4. Subject brought his automobile into a store on 1 June 1957 and is advising the GEICO that he expects to be in the office indefinitely and desires that his U.S. insurance be cancelled without receipt of the letter (probably about 10 June 1957).
+
+5. If queried by GEICO, it is requested that it acknowledge subject's E-MARK employment to cover the period of the accident.
+
+RBR
+
+3 June 57
+
+Distribution:
+
+5-Hqtrs
+
+2-Files
+
+THIS DOCUMENT WAS MADE AND THIS IS THE ORIGINAL
+
+ON TOP OF FILE
+
+SECRET
+
+CLASSIFICATION
+
+051-28 A

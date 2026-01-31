@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_18727.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="5">FIELD REASSIGNMENT QUESTIONNAIRE</th></tr><tr><td colspan="2">DO NOT COMPLETE FOR HEADQUARTERS USE ONLY</td><td colspan="3"></td></tr><tr><td>NAME OF EMPLOYEE (use pseudo only if SA)</td><td>(DATE)(from Item S-1)</td><td>NAME OF SUPERVISOR (true)</td><td colspan="2">(DATE (from item S-2))</td></tr></thead><tbody><tr><td>Ann L. Goodpasture</td><td>4/24/67</td><td>Winston Scott</td><td colspan="2">4/24/67</td></tr><tr><td>DATE RECEIVED AT HEADQUARTERS:</td><td></td><td>DISPATCH NUMBER:</td><td colspan="2">DATE RECEIVED BY CAREER SERVICE:</td></tr><tr><td>5/4/67</td><td></td><td>HIMMT-7821</td><td colspan="2"></td></tr><tr><td colspan="5">TO BE COMPLETED BY EMPLOYEE</td></tr><tr><td>I. DATE OF BIRTH<br/>28 Nov<br/>1918</td><td>2. SERVICE DESIGN<br/><br/>GS-13 Ops Officer</td><td>3. YOUR CURRENT POSITION, TITLE<br/><br/></td><td>4. STATION OR BASE<br/><br/>Mexico City</td><td>5. CRYPT FOR CURRENT COVER<br/><br/>LNGOLD</td></tr><tr><td>SA. DATE OF PCS ARRIVAL IN FIELD<br/>5 May 1957</td><td>Sa. REQUESTED DATE OF DEPARTURE<br/>1 Sept 1967</td><td>Sa. EXPECTED DATE OF FIRST CHECK-IN AT MO<br/>10 Sept 1967</td><td>Sa. DESIRED DATE TO REPORT TO DUTY AFTER LEAVE<br/>31 October 1967</td><td></td></tr><tr><td colspan="5">NUMBER AND AGES OF DEPINOENTS WHO WILL TRAVEL WITH YOU: None</td></tr><tr><td colspan="5">PERSONAL CIRCUMSTANCES THAT SHOULD BE CONSIDERED IN DETERMINING NEXT ASSIGNMENT: None</td></tr><tr><td colspan="5">LIST YOUR MAJOR DUTIES DURING CURRENT TOUR (see special note on transmittal form).<br/>(also attach personal cover questionnaire in accordance with CSI-F 240-8)</td></tr><tr><td colspan="5">Case Officer for operational support and liaison projects sponsored by high-level contacts of COS.<br/><br/>Liaison with other agencies on CE cases.<br/><br/>Special projects assigned by COS</td></tr><tr><td colspan="5">TRAINING DESIRED:<br/>INDICATE WHAT TRAINING YOU BELIEVE YOU SHOULD HAVE DURING THE NEXT SEVERAL YEARS</td></tr><tr><td colspan="5">None</td></tr></tbody></table>
+
+FORM 5-63 202ª OBSOLETE PREVIOUS EDITIONS SECRET
+
+<table><tr><td>GROUP I<br/>CLASSIFIED AS TOPSECRET<br/>OPERATING AND DISCLOSURE GROUP</td></tr></table>
+
+(4)

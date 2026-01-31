@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_19321.png
+
+Convert to MarkdownChief, Central Processing Branch
+Chief, Contact Division
+
+23 January 1952
+
+Cancellation of Travel Order
+
+It is requested that Travel Order No. 00/C H- 5-52XC, dated 8 January 1952, in favor of James Moore be cancelled inasmuch as Mr. Moore did not attend the Training Course in Washington, D. C.
+
+E. M. AGHCRAFT
+
+Cation U.S. Air Force. Station City is file
+in Favor of Contact Branch. Replied.
+As stated before.
+
+Approved to be sent

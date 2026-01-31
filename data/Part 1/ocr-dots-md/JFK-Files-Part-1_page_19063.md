@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_19063.png
+
+Convert to MarkdownFOR OFFICIAL USE ONLY
+
+CONANT, JAMES BRYANT. Germany and freedom; a personal appraisal.
+Cambridge, Harvard University Press, 1958. 117p. (The
+Godkin lectures at Harvard University, 1958) DD259.2.C64
+DLC; DD259.2C62 CIA.
+
+CROCE, BENEDetto. Germany and Europe, a spiritual dissension.
+New York, Random House, 1955. 83p. DD76.C74 DlC.
+
+DAVIDSON, EUGENE. The death and life of Germany; an account
+of the American occupation. London, J. Cape, 1959. 422p.
+DD257.D33 Dlc; DD257.D33E5 CIA.
+
+DEHIO, LUDWIG. Germany and world politics in the twentieth
+century. New York, Knopf, 1959. 141p. DD232.D413 Dlc;
+DD232.D5 CIA.
+
+DICKINSON, ROBERT ERIC. Germany; a general and regional
+geography. 2d ed. London, Methuen; New York, Dutton, 1961.
+716p. DD43.D5 Dlc; DD43.D5 1961 CIA.
+
+DLC has 1953 ed. only.
+
+DILL, MARSHALL. Germany; a modern history. Ann Arbor, University
+of Michigan Press, 1961. 467p. DD89.D5 Dlc; DD89.D5 CIA.
+
+DONNER, JOERN. Report from Berlin. Bloomington, Indiana
+University Press, 1961. 284p. DD881.D633 Dlc; DD881.D62
+CIA.
+
+Translation from the Swedish.
+
+DORNBERG, JOHN. Schizophrenic Germany. New York, Macmillan,
+1961. 302p. DD259.2.D6 Dlc; DD259.2.D6 CIA.
+
+DULLES, ALLEN WELSH. Germany's underground. New York, Macmillan,
+1947. 207p. DD256.D8 Dlc; Y1838.D8 CIA.
+
+A simple, clear account of the opposition to Hitler during the
+war.
+
+EPSTEIN, FRITZ THEODOR. Germany and the United States: basic-
+patterns of conflict and understanding. Lawrence, Kansas, 1959.
+284-314p. R183.8.G3E6 Dlc.
+
+"Reprinted from Issues and Conflicts, University of Kansas Press,
+374p. 1959."
+
+2
+
+FOR OFFICIAL USE ONLY

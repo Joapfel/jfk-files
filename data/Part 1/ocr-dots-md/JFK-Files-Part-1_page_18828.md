@@ -1,0 +1,305 @@
+# JFK-Files-Part-1_page_18828.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>1. SERIAL NO.</td>
+    <td>2. NAME</td>
+    <td>3. ORGANIZATION</td>
+    <td>4. FUNDS</td>
+    <td>5. LWOP HOURS</td>
+  </tr>
+  <tr>
+    <td>057303</td>
+    <td>GOODPASTURE ANN L</td>
+    <td>51 620</td>
+    <td>CF</td>
+    <td></td>
+  </tr>
+  <tr>
+    <td colspan="2">OLD SALARY RATE</td>
+    <td>NEW SALARY RATE</td>
+    <td colspan="2">8. TYPE ACTION</td>
+  </tr>
+  <tr>
+    <td>Grade</td>
+    <td>Step</td>
+    <td>Salary</td>
+    <td>Last Eff. Date</td>
+    <td>SI ADJ.</td>
+  </tr>
+  <tr>
+    <td>G5 13 5</td>
+    <td></td>
+    <td>$16,329</td>
+    <td>11/06/66</td>
+    <td></td>
+  </tr>
+  <tr>
+    <td colspan="4"></td>
+    <td>S-5</td>
+  </tr>
+  <tr>
+    <td colspan="5">CERTIFICATION AND AUTHENTICATION</td>
+  </tr>
+  <tr>
+    <td colspan="5">I CERTIFY THAT THE WORK OF THE ABOVE NAMED EMPLOYEE IS OF ACCEPTABLE LEVEL OF COMPETENCE.</td>
+  </tr>
+  <tr>
+    <td>SIGNATURE</td>
+    <td></td>
+    <td></td>
+    <td colspan="2">DATE</td>
+  </tr>
+  <tr>
+    <td colspan="5">
+      ☑ NO EXCESS LWOP<br>
+      ☐ IN PAY STATUS AT END OF WAITING PERIOD<br>
+      ☐ LWOP STATUS AT END OF WAITING PERIOD
+    </td>
+  </tr>
+  <tr>
+    <td colspan="2">CLERKS INITIALS</td>
+    <td colspan="3">AUDITED BY</td>
+  </tr>
+  <tr>
+    <td colspan="5">FORM 763 560-E Use previous editions PAY CHANGE NOTIFICATION (4-51)</td>
+  </tr>
+</table>
+
+S
+
+N
+U
+V
+
+E
+N
+T
+F
+E
+N
+C
+E
+A
+P
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N
+Y
+F
+E
+L
+O
+D
+E
+R
+P
+O
+W
+R
+E
+N

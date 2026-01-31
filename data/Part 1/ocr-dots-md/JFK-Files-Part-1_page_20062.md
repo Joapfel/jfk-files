@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_20062.png
+
+Convert to MarkdownSTANDARD FORM 50 (8 PART)
+REV. APRIL 1981
+PROPOSED BY
+U. S. CIVIL SERVICE COMMISSION
+CHAPTER 81, FEDERAL PERSONNEL MANUAL
+
+CENTRAL INTELLIGENCE AGEN
+
+NOTIFICATION OF PERSONNEL ACTION CIRC. 6 Jan. 1955 RVR
+
+<table><thead><tr><td colspan="3">1. NAME (MR., MRS., MS.) - ONE GIVING NAME, INITIALS, AND SURNAME</td><td>2. DATE OF BIRTH</td><td>3. JOURNAL OR ACTION NO.</td><td>4. DATE</td></tr></thead><tbody><tr><td colspan="3">MR. JACQUES O. RICHARDSON</td><td>20 Jan. 1955</td><td></td><td>11 Jan. 1955</td></tr><tr><td colspan="6">This is to notify you of the following action affecting your employment:</td></tr><tr><td>5. NATURE OF ACTION (USE STANDARD TERMINOLOGY)</td><td></td><td>• EFFECTIVE DATE</td><td>28.03.55</td><td>7. CIVIL SERVICE OR OTHER LEGAL AUTHORITY</td><td>50 USCA 403 j</td></tr><tr><td rowspan="4">FROM</td><td>AREA OPS OFFICER (Br. Ch) EC-171-13</td><td>8-0136.01-13</td><td>$3360.00 per annum</td><td>DDP/SR<br/>SR/5</td><td></td><td></td></tr><tr><td colspan="2">YTD $60</td><td colspan="3"></td></tr><tr><td colspan="2">Washington, D. C.</td><td colspan="3"></td></tr><tr><td>FIELD</td><td>X</td><td colspan="3">DEPARTMENTAL</td></tr><tr><td colspan="6"><input type="checkbox" /> FIELD <input type="checkbox" checked /> DEPARTMENTAL</td></tr><tr><td colspan="3">13. VETERAN'S PREFERENCE</td><td colspan="3">14. POSITION CLASSIFICATION ACTION</td></tr><tr><td>NOW</td><td>WWII</td><td>OTHER</td><td>S-FT.</td><td>10-POINT</td><td>NEW</td><td>VICE</td><td>I. A.</td><td>REAL.</td></tr><tr><td colspan="5"></td><td colspan="3"><input type="text" id="sft1" name="POSITION CLASSIFICATION ACTION" value="SD-FI"></td></tr><tr><td>15. SEX</td><td>16. RACE</td><td colspan="4">17. APPROPRIATION</td></tr><tr><td>M</td><td>F</td><td colspan="4">FROM: 5-31-00-20<br/>TO: 5-31-00-55-015</td></tr><tr><td colspan="6">21. REMARKS: This action is subject to all applicable laws, rules, and regulations and may be subject to investigation and approval by the United States Civil Service Commission. The action may be corrected or canceled if not in accordance with all requirements.</td></tr><tr><td colspan="6">Subject to approved medical clearance prior to being sent overseas.<br/><br/>"Transfer TO Unvouchored funds FROM Vouchered funds."</td></tr><tr><td colspan="6"><table border="1"><tbody><tr><td style="border-bottom: 1px solid black;">INTRANCE PERFORMANCE RATING:</td><td style="vertical-align: top;">A+ B+ B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B B

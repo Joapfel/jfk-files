@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_20265.png
+
+Convert to MarkdownIN ACCORDANCE WITH THE PROVISIONS OF PUBLIC LAW 87-793 AND DCI MEMORANDUM DATED 1 AUGUST 1966, SALARY IS ADJUSTED AS FOLLOWS, EFFECTIVE S JANUARY 1964.
+
+| NAME | SERIAL | ORGN FUNDS | GR-ST | OLD SALARY | NEW SALARY |
+|---|---|---|---|---|---|
+| | 027630 | 49 730 | CF | GS 12 1 | $ 9,475 | $ 9,980 |
+
+<table><tr><td>POSTED ON</td></tr><tr><td>OF-40</td></tr></table>
+
+8/27/1964

@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_18775.png
+
+Convert to MarkdownCOPY
+
+Return and Change to lower grade effective 4 August 1948, to CAF-6, $301.50 per annum.
+
+This employee was eligible for a periodic pay increase the first pay period following 16 November 1948, provided she met the requirements.

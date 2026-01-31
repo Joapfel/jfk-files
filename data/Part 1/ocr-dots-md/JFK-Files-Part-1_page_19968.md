@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_19968.png
+
+Convert to MarkdownSECTION C/Continued
+
+NARRATIVE COMMENTS
+
+For approximately four months during 1967, Mr. Vitale worked with me in providing Headquarters' support to JMWAVE in its conduct of special operations into PBRUMEN. In such a role, Mr. Vitale's knowledge of the history, mechanics, requirements and PBRUMEN personnel of these operations was invaluable in (1) the preparation of operational proposals for the 303 Committee, (2) the provision of timely operational information periodically requested by the front offices of both WH/COG and WHD, and (3) the briefing of WOFIRM personnel newly assigned to JMWAVE to assist in these operations. While under my supervision, Mr. Vitale was a conscientious, loyal, cooperative employee who readily and willingly performed all tasks assigned to him in an exceptional manner. He always expressed his willingness to work as many hours as necessary to finish the task at hand. He has a very pleasant personality, gets along well with his fellow workers and exhibits a good sense of cost consciousness in the use of government equipment and materials. The rating letter "S" most accurately reflects the level of performance of Mr. Vitale during the period he was under my supervision.
+
+Robert J. Weatherwax

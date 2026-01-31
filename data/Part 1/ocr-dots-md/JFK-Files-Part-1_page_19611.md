@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_19611.png
+
+Convert to MarkdownTHE
+President of the United States of America
+
+Expresses the sincere appreciation of his fellow-citizens for the loyal service rendered by
+
+JAMES WALTON NOORE, ENSIGN, USNR
+
+On account due in the United States Navy during World War II.
+
+In testimony whereof I am privileged to bestow this Certificate of Satisfactory Service
+
+One in the City of Washington, D.C. This 28th day of August, Nineteen hundred and forty six
+
+For the President:
+
+Secretary of the Navy

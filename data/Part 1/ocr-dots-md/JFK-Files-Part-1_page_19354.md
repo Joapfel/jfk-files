@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_19354.png
+
+Convert to Markdown14-0000
+
+Form No. 33-8
+April 1947
+
+INCOMING CLASSIFIED MESSAGE
+
+(718)
+
+CENTRAL INTELLIGENCE GROUP
+
+CONFIDENTIAL
+
+PAGE NO.
+
+From: 
+
+To: 
+
+Action: 
+
+Information: 
+
+Paraphrase Not Required. Handle as CONFIDENTIAL Correspondence per Para., 31 (1) 60.1 AR-380-5
+
+TOR:
+
+CONFIDENTIAL
+
+Copy No. 1
+
+IT IS FORBIDDEN TO MAKE A COPY OF THIS MESSAGE
+
+D. C. EAGLEPHIRE OFFICE 10-02501-1

@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_19668.png
+
+Convert to Markdown"PAY ADJUSTMENT IN ACCORDANCE WITH S U.S.C. 5305 AND EXECUTIVE ORDER 11631 PURSUANT TO AUTHORITY OF DCI AS PROVIDED IN THE CIA ACT OF 1949, AS AMENDED, AND A DCI DIRECTIVE DATED 8 OCTOBER 1962."
+
+EFFECTIVE DATE OF PAY ADJUSTMENT: 07 JANUARY 1973
+
+NAME
+
+JOHN NELL J P JR
+
+SERIAL ORGN. FUNDS GR-STEP
+009784 16 200 V GS 16 7
+
+NEW SALARY
+$36,000
+
+<table><thead><tr><th colspan="3">1. SERIAL NO.</th><th colspan="3">2. NAME</th><th colspan="3">3. ORGANIZATION</th><th>4. FUNDS</th><th colspan="2">5. LWP HOURS</th></tr><tr><td colspan="3">009784</td><td colspan="3">JOHN NELL J P JR</td><td colspan="3">16 200 V</td><td></td><td></td><td></td></tr><tr><th rowspan="2">Grade</th><th rowspan="2">Step</th><th colspan="2">OLD SALARY RATE</th><th rowspan="2">Last Eff. Date</th><th colspan="3">NEW SALARY RATE</th><th rowspan="2">EFFECTIVE DATE</th><th rowspan="2">S1</th><th rowspan="2">ADJ.</th></tr><tr><th>Salary</th><th>Grade</th><th>Step</th><th>Salary</th></tr></thead><tbody><tr><td>GS 16 6</td><td>$34,623</td><td>07/12/70</td><td></td><td>GS 14 7</td><td>$35,612</td><td>07/09/72</td><td></td><td></td><td></td></tr></tbody></table>
+
+CERTIFICATION AND AUTHENTICATION
+
+I CERTIFY THAT THE WORK OF THE ABOVE NAMED EMPLOYEE IS OF ACCEPTABLE LEVEL OF COMPETENCE.
+
+SIGNATURE
+
+NO EXCESS LWOPD
+
+IN PAY STATUS AT END OF WAITING PERIOD
+
+LWDP STATUS AT END OF WAITING PERIOD
+
+CLERKS INITIALS
+
+AUDITED BY
+
+FORM 7-66 560 E Use previous editions
+
+PAY CHANGE NOTIFICATION (4-31)
+
+"PAY ADJUSTMENT IN ACCORDANCE WITH SALARY SCHEDULES OF PL 92-210 AND EXECUTIVE ORDER 11637 PURSUANT TO AUTHORITY OF DCI AS PROVIDED IN THE CIA ACT OF 1949, AS AMENDED, AND A DCI DIRECTIVE DATED 8 OCTOBER 1962"
+
+EFFECTIVE DATE OF PAY ADJUSTMENT: 9 JANUARY 1972
+
+NEW
+SALARY
+$34,623
+
+NAME
+
+JOHN NELL J P JR
+
+SERIAL ORGN. FUNDS GR-STEP
+009784 16 200 V GS 16 6
+
+SALARY
+$34,623

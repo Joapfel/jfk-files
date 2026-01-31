@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_19609.png
+
+Convert to MarkdownUNITED STATES OF AMERICA
+GENERAL SERVICES ADMINISTRATION
+
+National Personnel Records Center
+(Military Personnel Records)
+9700 Page Boulevard
+St. Louis, MO 63132
+
+DATE: 10-05-88
+REPLY TO: NCOV
+ATTN OF: CAC/CC
+SUBJECT: Service information on MURKE, SAMUEL W. (S.W.M.) SAME LEFT. 4/75046
+
+The military service information provided on this form has been extracted from records on file at this center and may be used for any official purpose, including application for and adjudication of veteran's benefits.
+
+This method of reply is the routine procedure used to respond to requests such as yours. If additional information is required return your request with a detailed statement outlining the specific data needed and the purpose for which it is to be used.
+
+Subject person served in the _______ from _______ to _______.
+
+Type and character of separation: _______.
+
+Active service: _______ to _______, _______ to _______.
+
+______ was honorably retired by reason of permanent physical disability incurred in line of duty, but not as a result of armed conflict or an instrumentality of war. The percentage of disability is _______.
+
+Report of separation physical is attached.
+
+The medical records you requested:
+
+☐ Are enclosed. ☐ Are not in file.
+
+☐ Have been sent to the Veterans Administration and will be forwarded under separate cover. ☐ May be obtained from the VA office shown below. (Please refer to VA Claim No. C. __________.)
+
+☑ A statement of service is shown on the reverse side.
+
+Chief, Navy Reference Branch
+
+Keep Freedom in Your Future With U.S. Savings Bonds
+
+GSA FORM 6851 (REV. 1/77)

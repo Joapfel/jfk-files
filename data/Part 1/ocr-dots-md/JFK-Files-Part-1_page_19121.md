@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_19121.png
+
+Convert to Markdown- 4.
+
+# DIVISION OF THE STATE OF NEW YORK
+## IN TWO PORTION, EACH CONTAINING TWO QUARTERS
+
+Headquarters: 41 Comer stickel
+
+Departmental Office:
+
+Secretary: Bissie HEARD
+Assistant: Catherine FERGUSON
+(6,000) Jeanne LAURICE
+
+Headquarters 83 5th av. 7th flr
+Post.boy's. Lusitania
+Secretary: RIGGS
+About 1,000 members
+
+Department of Finance and Administration
+(cons't.)

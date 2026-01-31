@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_19078.png
+
+Convert to MarkdownPage-header:
+
+14-00000
+
+The following text has been left un-translated because it is no longer legible:
+This image does not contain any tables.
+
+<table>
+  <tr>
+    <td>John F. Kennedy</td>
+    <td>President</td>
+  </tr>
+</table>
+
+Kennedy was born on November 25, 1918, in the city of Boston, Massachusetts. He attended Harvard University before being elected as a member of Congress from the 6th congressional district in 1946. After his election as a senator, he continued his work as a public servant and served as a期間 of office from 1952 to 1961.
+
+In 1963, Kennedy was reelected to the Senate for another two terms. During his second term, he helped pass the Vietnam War Tax Relief Act of 1978, which provided financial assistance to veterans of the Vietnam War. In addition, he cosponsored the Tax Reform Act of 1986, which改革了美国的个人所得税制度。
+
+Kennedy also worked to improve civil rights in America. As a member of the House of Representatives from Massachusetts, he sponsored the bill that established the United States federal holiday known today as Martin Luther King Day.
+
+On January 10, 1969, John F. Kennedy was shot by a Camel cigarette lighter while on a motor tour of New England. Kennedy's vice president, Lyndon B. Johnson, led the reaction against Kennedy's successor, Richard Nixon. Kennedy was a prominent anti-New Left candidate during the 1968 presidential campaign.
+
+Kennedy was a major figure in the Kennedy Camel Tobacco Foundation until his death in 1989. In 1999, the foundation was dissolved.
+
+Kennedy's son, Robert Kennedy, became a well-known political analyst after his father's death. He was elected to the House of Representatives from the 39th district of New York City in 1972 and became the first Democrat to be elected to consecutive terms in the U.S. House of Representatives. He was reelected to three consecutive terms (1972–1977; 1977–1982; 1982–1987), becoming the first Democrat to hold all three offices. Kennedy was elected to two terms in the Senate from New York from 1972 to 1977 and again from 1977 to 1982.
+
+Kennedy left politics in 1983 after being elected to the U.S. House of Representatives from the 60th district of New York City. He ran for Congress in 1984 but was defeated in a race against President Ronald Reagan. Kennedy won a seat in the House of Representatives from the 57th district of New York City in 1987, where he served two terms. He was reelected to Congress in 1992 but lost a seat to Tom Tancrey in 1996.
+
+Kennedy retired from public office in 1993 but remained active in politics and public policy. In 2000, he was chosen to serve on the board of directors of The Rockefeller Philanthropy Council, a group of topzier and business leaders who provide guidance on corporate giving and nonprofit activities.
+
+In 2010, Kennedy was selected as one of TIME magazine's "Time Personals" and was named one of the most influential people in the world. He received an award from the National Journalist of America for his work with the press. In 2014, he was made a member of the National Association of Journalists in America.
+
+Kennedy was the first American to win both the Nobel Prize for Literature and the Pulitzer Prize for Fiction. He was also the firstU.S. president to have a website and the firstU.S. president to use social media. In 2008, Kennedy became the firstU.S. president to give a speech on Twitter, stating his support for climate change. In 2011, he was the firstU.S. president touse Facebook to communicate with the American people.

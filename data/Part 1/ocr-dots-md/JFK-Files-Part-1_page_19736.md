@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_19736.png
+
+Convert to Markdown11 May 1964
+
+MEMORANDUM FOR: Chief, Administration and Training Staff
+
+SUBJECT : Fitness Report of James O'Connell
+
+I concur in the attached evaluation of Mr. James O'Connell's performance for the period 31 March 1963 to 31 March 1964. In addition, I wish to add that Mr. O'Connell has accomplished his fine performance with a minimum of supervision and direction from this Office which is responsible for support to the Overseas Security Officers.
+
+E. M. WINTERS
+Deputy Director of Security (PPS)
+
+Attachment:
+Fitness Report
+
+27 MAY 1964.

@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_19130.png
+
+Convert to MarkdownS-E-C-R-E-T
+(When Filled in)
+
+27 April 1971
+
+MEMORANDUM FOR: Chief, Transactions & Records Branch,
+Control Division, Office of Personnel
+
+SUBJECT : Custody of Honor and Merit Award presented to
+Mr. Boris D. Tarasoff
+
+Because of security restrictions, the Honor and Merit
+Awards Board is acting as custodian of the subject's Honor
+Award and related papers listed below:
+
+Certificate of Merit
+
+When security restrictions no longer prevail, the Awardee
+may obtain his award by calling the Executive Secretary.
+
+Ellin B. Glenn
+Executive Secretary
+Honor and Merit Awards Board
+
+Distribution:
+
+Original - Subject's OPF (No. 019-77)
+1 - C/WH Support Staff
+1 - HMAB Case File
+
+S-E-C-R-E-T

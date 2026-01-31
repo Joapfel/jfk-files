@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_19015.png
+
+Convert to MarkdownSECRET NO FOREIGN DISSEN
+
+Session of the West German Parliament is opened by its oldest member, the NPD will insure that the oldest member of the next Parliament will be an NPD man. (Headquarters Comment: The possibility that an NPD Deputy might open the Bundestag has already been considered by the CDU. See CS-311/08164-69.)
+
+5. Field Dissem: None (sent Bonn, Berlin)
+
+SECRET NO FOREIGN DISSEN
+
+3
+
+4
+
+3
+
+2
+
+1
+
+5
+
+4
+
+3
+
+2
+
+1

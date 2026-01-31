@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_18950.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+<table><tr><td rowspan="3">STATEMENT OF FEDERAL CIVILIAN AND MILITARY SERVICE</td><td>OFFICE</td><td colspan="2">DIVISION</td></tr><tr><td>BRANCH</td><td colspan="2">SECTION</td></tr><tr><td colspan="4"><hr/>I - FEDERAL CIVILIAN SERVICE (BEGIN WITH THIS AGENCY AND FOLLOW IN REVERSE CHRONOLOGICAL ORDER)</td></tr><thead><tr><th rowspan="2">AGENCY</th><th rowspan="2">LOCATION</th><th colspan="3">FROM</th><th colspan="3">TO</th><th colspan="3">TOTAL SERVICE</th></tr><tr><th>DA.</th><th>MO.</th><th>YR.</th><th>DA.</th><th>MO.</th><th>YR.</th><th>DA.</th><th>MO.</th><th>YR.</th></tr></thead><tbody><tr><td>Organization</td><td></td><td>28</td><td>Feb</td><td>1944</td><td>31</td><td>12</td><td>51</td><td>4</td><td>10</td><td>7</td></tr><tr><td>Executive Office of the President-OEM-Mar Relocation</td><td>K Wash., D.C.</td><td>8</td><td>Dec</td><td>1943</td><td>27</td><td>Feb</td><td>1944</td><td>2</td><td>2</td><td>1</td></tr><tr><td>Executive Office of the President-OEM-Price Adm.</td><td>OK</td><td>11</td><td>Mar</td><td>1942</td><td>N/A</td><td>Sept</td><td>1943</td><td>3</td><td>10</td><td>1</td></tr><tr><td colspan="11"></td><td>Total Civilian Service</td><td>5710</td></tr><tr><td colspan="11"><hr/></td></tr><tr><td colspan="11">II - MILITARY SERVICE (INCLUDE ONLY PERIODS OF ACTIVE DUTY; DO NOT INCLUDE TERMINAL LEAVE)</td></tr><thead><tr><th rowspan="2">BRANCH OF SERVICE</th><th colspan="3">FROM</th><th colspan="3">TO</th><th colspan="3">TOTAL SERVICE</th></tr><tr><th>DA.</th><th>MO.</th><th>YR.</th><th>DA.</th><th>MO.</th><th>YR.</th><th>DA.</th><th>MO.</th><th>YR.</th></tr></thead><tbody><tr><td colspan="9"></td><td>Total Military Service</td><td></td></tr><tr><td colspan="11"><hr/></td></tr><tr><td colspan="11"><hr/></td></tr><tr><td colspan="11">III - CERTIFICATION<br/>I hereby certify that the above Civilian and Military service is complete and accurate to the best of my knowledge.<br/>J. R. McCallum H.S.<br/>DATE<br/><br/>SIGNATURE OF EMPLOYEE</td></tr><tr><td colspan="11"><hr/></td></tr><tr><td colspan="11">IV REMARKS: (CONCERNING ABOVE SERVICE)<br/><br/>a.o./3./Ogden 51<br/><br/>MAY BE CONTINUED ON NON-DETACHABLE REVERSE SIDE</td></tr><tr><td colspan="11"><hr/></td></tr><tr><td colspan="11"><hr/></td></tr></table>
+
+V FOR PERSONNEL OFFICE USE ONLY
+TOTAL CREDITABLE SERVICE
+
+<table><thead><tr><th>DAYS</th><th>MONTHS</th><th>YEARS</th></tr></thead><tbody><tr><td>529</td><td>XU</td><td>10</td></tr></tbody></table>

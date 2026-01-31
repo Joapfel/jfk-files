@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_19444.png
+
+Convert to Markdown14-0000
+
+<table><thead><tr><th colspan="2">DISTRIBUTION OF SALARY</th></tr></thead><tbody><tr><td>To be paid by<br/>Calcutta Office (FIELD)</td><td>$ 235.84</td></tr><tr><td>Tax withheld in the United States</td><td>39.60</td></tr><tr><td>Insurance to be withheld in the United States (Amount subject to change if premium is increased or decreased)</td><td>---</td></tr><tr><td>Retirement withheld in United States</td><td>23.64</td></tr><tr><td>Other (Specify in detail)</td><td>---</td></tr><tr><td>Allotments</td><td>399.58</td></tr><tr><td>Name of Allotted Subject Bank</td><td></td></tr><tr><td>Address</td><td></td></tr><tr><td>Total Gross Salary For Pay Period</td><td>$ 472.66</td></tr><tr><td colspan="2">I HEREBY AUTHORIZE AND DIRECT THE DISBURSING OFFICE TO MAKE THE ABOVE ALLOTMENTS FROM MY COMPENSATION. ALL ADJUSTMENTS IN SALARY TO BE EFFECTED IN:</td></tr><tr><td>NET OVERSEAS PAYMENT</td><td></td></tr><tr><td>INITIAL ONE U. S. ALLOTMENT</td><td></td></tr><tr><td>SIGNATURE OF EMPLOYEE</td><td></td></tr><tr><td colspan="2">REMARKS: (Continued from reverse side)</td></tr><tr><td>11-24-85 1:53 AM</td><td></td></tr></tbody></table>
+
+INSTRUCTIONS: 1. Prepare in triplicate. 2. Note under "Remarks" whether action is transfer from vouchered funds or another government agency. 3. If form is prepared in the field, enter direction of salary over signature of employee. a. If job description, other information is appropriate, enter in "Remarks."

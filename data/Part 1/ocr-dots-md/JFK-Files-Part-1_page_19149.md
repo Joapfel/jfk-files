@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_19149.png
+
+Convert to MarkdownSECRET
+
+REQUEST FOR PERSONNEL ACTION
+
+21 April 1960
+
+<table><thead><tr><th rowspan="2">1. Serial No.</th><th colspan="3">9. Name (Last, First-Middle)</th><th colspan="3">3. Date Of Birth</th><th colspan="2">4. Vet. Pref.</th><th colspan="2">5. Sex</th><th colspan="3">6. CS-FOD</th></tr><tr><th>Mo.</th><th>Da.</th><th>Yr.</th><th>Mo.</th><th>Da.</th><th>Yr.</th><th>Nme-D<br>S Pt-1<br>10 Pt-2</th><th>Code</th><th>M</th><th>1</th><th>Mo.</th><th>Da.</th><th>Yr.</th></tr></thead><tbody><tr><td>119477</td><td></td><td></td><td></td><td>TARASOFF BORIS D</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>7. SCD</td><td></td><td></td><td></td><td>8. CSC Reimb.</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Mo.</td><td>DA.</td><td>Yr.</td><td>No.-P</td><td>Yes - 1<br>No - 2</td><td>Code</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>06</td><td>02</td><td>51</td><td></td><td>1</td><td>50 USCA 403 J</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+PREVIOUS ASSIGNMENT
+
+<table><tbody><tr><th>14. Organizational Designations</th><th>Code</th><th>15. Location Of Official Station</th><th>Station Code</th></tr><tr><td>DDI 00</td><td></td><td></td><td></td></tr><tr><td>FDD</td><td></td><td></td><td></td></tr><tr><td>USSR BRANCH</td><td></td><td></td><td></td></tr><tr><td>MATERIALS & INDUSTRY SECT.</td><td>2720</td><td>WASH., D. C.</td><td>75013</td></tr><tr><th>16. Dept. Field</th><th>17. Position Title</th><th>18. Position No.</th><th>19. Serv.</th><th>20. Occup. Series</th></tr><tr><td>Dept. Code</td><td></td><td></td><td></td><td></td></tr><tr><td>USId</td><td>2</td><td>1146</td><td>GS</td><td>0132.48</td></tr><tr><td>From</td><td></td><td></td><td></td><td></td></tr><tr><td>10 1</td><td>10 FOREIGN DOC</td><td></td><td></td><td></td></tr><tr><th>21. Grade & Step</th><th>22. Salary Or Rate</th><th>23. SD</th><th>24. Date Of Grade</th><th>25. PSI Due</th><th>26. Appropriation Number</th></tr><tr><td></td><td>$ 6505</td><td>00</td><td>Mo. Da. Yr.</td><td>Mo. Da. Yr.</td><td>0243-1010-0000</td></tr><tr><td></td><td></td><td></td><

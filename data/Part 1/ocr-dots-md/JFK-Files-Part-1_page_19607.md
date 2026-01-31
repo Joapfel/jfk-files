@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_19607.png
+
+Convert to MarkdownSECURITY INFORMATION
+
+TO : Chief, Communications
+FROM : Chief, Security Division
+SUBJECT: MOORE, James Walton
+#23024
+
+DATE: 25 March 1953
+
+In reply to your memorandum, this is to advise that Subject meets the current requirements for Cryptographic clearance and is approved for such duties as of this date.
+
+E. P. Geiss
+
+14-0000

@@ -1,0 +1,128 @@
+# JFK-Files-Part-1_page_20377.png
+
+Convert to Markdown14-0000
+
+# DECLARATION OF APPOINTEE
+
+This form, if required, is to be completed before entrance on duty. Every question must be answered. Any false statement in this declaration will be grounds for cancellation of application or demotion after appointment. False personation is a criminal offense and will be prosecuted accordingly.
+
+**1. Present Address**
+
+**2. Who should be notified as case of emergency?**
+
+**3. Does the U.S. Government assign in a division capacity any relative of yours (either by Nnd or marriage) with whom you live or have lived within the past 6 months? Yes or No. 1.**
+
+**4. Place of birth**
+
+**5. Are you a citizen of the United States?**
+
+**6. If foreign born, have you furnished proof of naturalization or citizenship to (1) the U.S. Civil Service Commission?**
+
+**(C) this agency in connection with this appointment?**
+
+**7. Since you filed application resulting in this appointment, has there been any change in the status of your citizenship, or of the persons through whom you obtained your citizenship?**
+
+**8. (a) Do you hold any position or office under the United States or any State, Territory, County, or Municipality?**
+
+If so, state the place, position, and salary under item 12.
+
+**(b) Are you willing to resign such position or office if it becomes necessary to do so in order to take the Federal position?**
+
+**9. To you receive any pension or other benefit for military or naval service or an annuity from the U.S. or D.C. Government under any Retirement Act?**
+
+It is given details under Item 12 stating whether you were retired for age, length of service, or disability amount of retirement pay and under what retirement act and run, if retired from military or naval service.
+
+**10. Since you filed application resulting in this appointment, have you been discharged for non-productive or unsatisfactory service, or forced to resign from any position?**
+
+It is given under Item 12 where employed, name and address of employer and the reason for discharge in each case.
+
+**11. Since you filed application resulting in this appointment, have you been arrested or suspended into any civil or military court as a defendant, or indicated for or connected with any offense (beside or in lieu thereof)?**
+
+If so, for each one give under Item 12: (1) the date, (2) the name and location of the court, (3) the nature of the offense or violation, and (4) the penalty, if any, imposed, or other disposition.
+
+**(U) Position and (D) Temporary or net, and (I) Department or office in which employed**
+
+**Relation-ship**
+
+**Married or single**
+
+**Age**
+
+**1.**
+
+**2.**
+
+**3.**
+
+**1.**
+
+**2.**
+
+**3.**
+
+**1.**
+
+**2.**
+
+**3.**
+
+**1.**
+
+**2.**
+
+**3.**
+
+**12. Space for detailed answers to other questions.**
+
+| ITEM NO. | Write in left column numbers of items to which detailed answers apply |
+|---|---|
+| ECA Information Specialist | |
+| CAF 12 $5.90/20 | |
+
+<table><tr><td>X</td></tr><tr><td>X</td></tr><tr><td>X</td></tr><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table><tr><td>X</td></tr></table>
+
+<table
