@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_21529.png
+
+SAVITSKI sent me to the Deputy of the Chief of the Second Directory
+SHUBNIAKOV, who told me that there was signed an order and I was
+accepted in the 1 department of 2 chief directory as a case officer.
+SHUBNIAKOV invited the deputy of the chief of 1 department GORBATENKO
+(who was acting as the chief of 1 Department because the chief of the
+department KOSLOV, Anatoli, was appointed to the special department
+of extraordinarily affairs (investigation) ). SHUBNIAKOV and
+GORBATENKO said to me that I would be working in the 1 section of
+the department. Then I with GORBATENKO went to the 1 department,
+was acquainted with the chief of section KOSLOV, Veniamin. KOSLOV
+told me that I will be working against the American correspondents,
+showed me room, my desk and acquainted with the officers, who were
+working in this room: KUTIREV, RACOVSKI, GROMOV and TORMOSOV.
+The last officer must give files on the correspondents and agents. I
+was said to come next day and began to work.
+
+When I was resting in the tuberculous sanatorium I acquainted
+with KOJEVNIKOV, Ludmila, a student of the Moscowite University,
+and in June 1953 we married. Before it I was living with my parents
+at St. Gorky, 9, but after marriage was living with the wife at
+
+7
+
+6001037
+
+SECRET
+
+14-00000

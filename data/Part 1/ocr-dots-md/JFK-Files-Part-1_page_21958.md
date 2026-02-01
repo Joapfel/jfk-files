@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_21958.png
+
+Convert to MarkdownD.C., to report on observations enroute and while there. RYTOVA is married to a man who works in one of the military offices in Moscow and is a captain or a major. They have one daughter, approximately 14 years old.
+
+-Yevgeniya ("Jane") DANKO: KGB cryptonym "OKSANA." She worked in the American Express Company office in Moscow for Arsens FRIPPEL and later for FRIPPEL's successor, Michael JELISAVCIC.* DANKO was handled by I.A. KONSTANTINOV from about 1955 to 1957 and was then turned over to NOSENKO. She reported on JELISAVCIC, who was not approached, according to NOSENKO.
+
+## 4. Operations with Foreign Visitors
+
+NOSENKO said he participated in 14 operations with foreign visitors to the USSR while a member of the American-Canadian Section of the Tourist Department. Nine of these operations resulted in recruitments (excluding one who later was recruited by another element of the KGB, but including another whom NOSENKO classified as a borderline case). Of the remaining five operations which did not end with a recruitment, no approach was contemplated by the KGB in one case, one target rejected NOSENKO's proposal, the KGB was unable to obtain compromising material for an approach to a third, and for political reasons the KGB decided against approaching the final two.
+
+Although the information from NOSENKO on the timing of these operations does not always agree with that from other sources, these cases can be grouped chronologically as follows: 1955 - one; 1956 - one; 1957 - three; 1958 - two; and 1959 - seven. The operations in 1955, 1956 and, with one exception, 1959 were homosexual provocations. The recruitment of Arsene FRIPPEL in 1959 was based on heterosexual compromise.
+
+These fourteen operations are summarized briefly below in the approximate order in which the cases began. For each case, NOSENKO's information is followed by a summary of the results of CIA investigations. The description of the BURGI case is more detailed than the others, for reasons indicated in the text.
+
+### a. Attempted Entrapment of MALIA (1955)
+
+NOSENKO's Information: Martin MALIA, a graduate student, spent about four months in the USSR in 1955 and was suspected of having connections with American Intelligence. Toward the end of his stay, while under surveillance, MALIA was observed in contact with a Soviet citizen believed to be a homosexual. The Soviet was detained by the KGB, and NOSENKO eventually obtained a confession that he had had homosexual relations with MALIA. After NOSENKO had arranged for the Soviet to introduce MALIA to a KGB homosexual agent, the latter enticed MALIA to a specially equipped hotel room in Moscow; NOSENKO was on the scene (but not directly in touch with MALIA) when the introductions were made in a
+
+*See Part V.D.5. for further details on FRIPPEL and JELISAVCIC.

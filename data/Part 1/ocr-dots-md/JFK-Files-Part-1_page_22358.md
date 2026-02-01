@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_22358.png
+
+Convert to Markdown1500000
+
+765.
+
+I. Summary of Conclusions
+
+CIA has considered every major aspect of the NOSENKO case for the purpose of reaching a definitive conclusion about the bona fides of this man who says he is a KGB officer-detector collaborating with American Intelligence.
+
+As this point-by-point analysis has demonstrated, there is no reason to accept any of NOSENKO's claims to a career as an officer in Soviet Intelligence, to authority concerning the range and degree of KGB operational successes in the USSR (particularly with U.S. officials and private citizens), to accurate knowledge regarding major security cases in that country, or to cooperation with American Intelligence.
+
+It would be sufficient proof of his malafides to verify that NOSENKO lied about a single segment of his career in the KGB. He cannot have been truthful in saying that he was the Deputy Chief of the U.S. Embassy Section, American Department, KGB Second Chief Directorate. In 1960-1961 and a Deputy Chief in the Tourist Department of the same directorate from 1962 until his defection. Numerous indications make it doubtful that NOSENKO, as he contended, belonged to the naval GRU in 1951-1952, to the U.S. Embassy Section in 1953-1955, and to the American Tourist Section in 1955-1959. He was unable to support his alleged staff officer status in the KGB, providing incomplete and inaccurate information on his sub-sources and on such topics as Headquarters staff procedures while making illogical statements on modus operandi. Neither a supervisor nor, probably, a case officer, it remains dubious but possible that he was a KGB principal agent whose speciality in the past was compromising Western homosexuals. Whatever the capacity in which NOSENKO served, it was not in the KGB ranks, holding the KGB titles, or with the KGB honors he has ascribed to himself, and this fact is enough to prove the falsity of his claims to being a genuine defector.
+
+There is no question, however, that NOSENKO has had the benefit of inside information from the KGB. He has said so, other sources have said so, the Soviet Government's reactions to the defection implied as much, and his reports contain details which could have come only from the KGB. He was introduced into several operations, the first as early as 1958, in a position appearing "senior" to known KGB staff officers. He has provided data on organization, personnel, and methods complementing and supplementing that from others affiliated with the KGB. Purposefully misleading about himself, NOSENKO has also been deceitful in discussing the compromises of CHEREPANOV, PENKOVSKIY, and perhaps POPOV, although here his reporting often correlates with that from several sources. Analysis shows that -- NOSENKO and others to the contrary -- CHEREPANOV was a KGB provocateur, PENKOVSKIY was detected at the latest in early 1961 not 1952, and POPOV was probably uncovered earlier than January 1959 because of a KGB agent rather than surveillance. NOSENKO thus has not merely misrepresented himself but has practiced deception under KGB guidance. Appraisals of NOSENKO's performance under interrogation, his alleged motivation, and the operational circumstances support this view.
+
+Positive
+Sources

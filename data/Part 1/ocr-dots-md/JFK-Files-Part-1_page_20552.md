@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_20552.png
+
+Convert to MarkdownSECRET
+
+REVIEWING OFFICER'S COMMENTS:
+
+Although I would not differ from the evaluative comment on this officer, I would be inclined to rate his over-all performance as highly PROFICIENT rather than Strong, in view of his broad experience and grade. This officer has had a series of personal and taxing problems, beyond his control, which have tended to dull his cutting edge just enough to be noticeable.
+
+E.N. Korn-Patterson
+Deputy Chief,
+European Division
+
+SECRET

@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_20603.png
+
+Convert to MarkdownSECRET
+
+**IV. Banking Arrangements**
+
+A. Subject has provided Headquarters with his bank account for use as his estateide allotted.
+
+B. An operational bank account is to be established.
+
+WILLIAM R. CAULFIELD
+Chief, Debt Claims Branch
+
+Distribution:
+
+Orig. and 1 - CCB
+1 - C&L
+1 - Registry
+1 - Payroll
+1 - WF/Division
+
+SECRET
+
+GROUP I
+Ex包括 this group
+组成and
+包含in Group I

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_22066.png
+
+Convert to Markdownabout it because the foreign Legal Residencies of the KGB First Chief Directorate would not accept a request for operational action against an American diplomat coming from Moscow.
+
+In February 1965 NOSENKO was asked a number of times whether he knew of any occasions on which ABIDIAN took trips in the Soviet Union outside of Moscow. He replied each time that he knew of no such trips and that if ABIDIAN had made such a trip or trips he would have known of them and would remember them as it would have been his responsibility as case officer to take certain actions. Among the latter he listed:
+
+- Receiving notification of ABIDIAN's request to travel from the UPDK (the Soviet Government organization which provides services to the diplomatic community in Moscow).
+
+- Notifying the UPDK of KGB approval for the trip.
+
+- Notifying appropriate local KGB offices on ABIDIAN's itinerary and giving them instructions for surveillance and other operational activity if desired.
+
+- Receiving, reading, and filing all surveillance reports and reports of other operational activity carried out by local KGB units.
+
+NOSENKO was certain that he took none of these steps. He stated further that even if he were absent when such a request for travel was made, he would have seen all documents upon his return and that he did not remember seeing such documents in ABIDIAN's file.
+
+NOSENKO'S interrogators then told NOSENKO that ABIDIAN travelled out of Moscow from 5 to 9 October 1960.* Thereupon NOSENKO stated that he specifically recalled having been on leave in October 1960. He said that he could not recall exactly the dates of this leave (which he had not mentioned before), but he did remember that he was away exactly 30 days since he stayed at a dacha near Moscow and therefore was not allowed any travel time. NOSENKO said further that he also remembered that he had
+
+* ABIDIAN made a trip with Paul A. SMITH, the Embassy's Publications Procurement Officer, to Armenia between 5 and 9 October 1960. (ABIDIAN is of Armenian origin, and speaks the Armenian language with a high degree of proficiency.) While there ABIDIAN visited with various churchmen and their parishioners and an Armenian who had repatriated from Greece in 1946. They attended a service in Echmiadzin celebrating the anniversary of the accession of the Katolikos VAZGEN I, and ABIDIAN also visited some relatives of his in or near the city of Yerevan. After returning to Moscow, an Armenian whom ABIDIAN had met on this trip tried to contact ABIDIAN at the Embassy, but ABIDIAN refused to see him. When NOSSENKO was told that on 7 October 1960 ABIDIAN attended a service celebrating the fifth anniversary of the Armenian Katolikos, VAZGEN I, NOSENKO recalled that ABIDIAN had gone to Echmiadzin and that an agent had reported a contact with him there. This agent, NOSENKO recalled, was a priest or a monk, and the report concerned only his conversation with ABIDIAN; the agent had no further contact with him. NOSENKO said that this was his sole recollection concerning ABIDIAN's trip, and that he remembered no other details.

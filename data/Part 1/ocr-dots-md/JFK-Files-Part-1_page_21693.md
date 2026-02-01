@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_21693.png
+
+Convert to MarkdownNOSENKO, during current interviews, has indicated awareness of at least some involvement of IVANOVA with MORONE. He has furnished information on a developing operation against Marine guard GARCLA (Anthony A. GARCLAI) based on the involvement of GARCLA with IVANOVA. He has also stated that the possibility was considered of using IVANOVA against MORONE to obtain compromising photographs.
+
+This plan was seriously affected when it was learned from the militiaman/KGB guard at the United States Embassy that IVANOVA, her girl friend, MORONE and a Marine guard, possibly GARCLA, had been "in the city," then returned to the "Hot" of one of the Marines where the girls spent the night. This apparently placed the reliability of IVANOVA in question in the eyes of the First Section.
+
+According to the previous summary, NOSENKO stated that Pietro CECCHI, Italian cook at the American Embassy and agent of KOSOLAPOV, reported on Americans at the Embassy, but NOSENKO recalled nothing specific that CECCHI had reported about MORONE. The summary also states that MORONE was said by other American Embassy employees to be a close friend of CECCHI and that MORONE had admitted black market money exchanges with CECCHI.
+
+During current interviews, NOSENKO has stated that CECCHI furnished "pieces" of information concerning MORONE, but he, NOSENKO,
+
+6001199
+
+SECRET
+
+10/8R

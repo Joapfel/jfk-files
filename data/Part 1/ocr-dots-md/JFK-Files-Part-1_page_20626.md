@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_20626.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td>FORM #79</td><td>1152</td></tr></table>
+
+USE PREVIOUS EDITION
+
+SECRET
+
+<table><tr><td>[Signature]</td></tr></table>
+
+[4]
+
+<table><thead><tr><th colspan="3">REQUEST FOR PERSONNEL ACTION</th><th>DATE PREPARED</th><th>9 August 1972</th></tr></thead><tbody><tr><td>I SERIAL NUMBER<br/>024345</td><td>* NAME (Last-First-Middle)<br/>PHILLIPS DAVID A</td><td></td><td colspan="2"><b>4. EFFECTIVE DATE REQUESTED</b><br/><table border="1" style="width:100%; border-collapse: collapse;"><caption>(MONTH DAY YEAR)</caption><tr><td>08</td><td>14</td><td>72</td></tr></table><b>5. CATEGORY OF EMPLOYMENT</b><br/>REGULAR</td></tr><tr><td>6. FUNDS<br/>&#x25B6;</td><td>V TO V<br/>C TO V</td><td>X<br/>C TO C</td><td colspan="2"><b>7. FINANCIAL ANALYSIS NO.<br/>CHARGEABLE</b><br/>3135 @ 1138</td></tr><tr><td colspan="5"><b>9. ORGANIZATIONAL DESIGNATIONS</b><br/>DDP/WH DIVISION<br/>FOREIGN FIELD<br/>BRANCH 3-CARACAS, VENEZUELA STATION<br/><b>12. POSITION NUMBER</b><br/>0093<br/><b>13. CAREER SERVICE DESIGNATION</b><br/>D</td></tr><tr><td colspan="2"><b>11. POSITION TITLE</b><br/>1ST SECRETARY INT REL OFF<br/>CHIEF OF STATION</td><td colspan="3"><b>14. CLASSIFICATION SCHEDULE (GS, LP, etc.)</b><br/>FSR<br/>BS<br/><b>15. OCCUPATIONAL SERIES</b><br/>0136.05</td></tr><tr><td colspan="5"><b>16. REMARKS</b><br/>Vice Thomas J. Flores<br/>Approved 259a attached.</td></tr><tr><td colspan="3"><div style="border: 1px solid black; padding: 1em; margin-top: 1em; display: flex; align-items: center;">WORKING RULES<br/>SENSITIVE PARTITIONED</div><div style="text-align:center; font-weight:bold; margin-top: 1em;">1-Payroll</div></td><td colspan="2"><div style="border: 1px solid black; padding: 1em; margin-top: 1em; display: flex; align-items: center;"><span style="font-size:2.5em; line-height: 1;">&#x2080;</span><span style="padding-left: 1em;">WORKING RULES<br/>SENSITIVE PARTITIONED</span></div></td></tr><tr><td colspan="3"><b>18A SIGNATURE OF REQUESTING OFFICIAL</b><br/>H.L. Berthold C/WH/Pers</td><td colspan="2"><b>18B SIGNATURE OF CAREER SERVICE APPROVAL OFFICER</b><br/>R D Paler<br/><b>DATE SIGNED</b><br/>8/9/72</td></tr><tr><td colspan="5"><b>SPACE BELOW FOR EXCLUSIVE USE OF THE OFFICE OF PERSONNEL</b></td></tr><tr><td rowspan="2"><b>19 ACTION CODE</b><br/>31</td><td rowspan="2"><b>20 EMPLOYEE CODE</b><br/>10</td><td rowspan="2"><b>21 OFFICE CODING</b><br/><table border="1" style="width:100%; border-collapse: collapse;"><caption>(NUMERIC ALPHABETIC)</caption><tr><td>51745</td><td>WH</td></tr></table></td><td rowspan="2"><b>22 STATION CODE</b><br/>77005</td><td rowspan="2"><b>23 INTERSEE CODE</b><br/>5</td><td rowspan="2"><b>24 MONTHS CODE</b><br/></td><td rowspan

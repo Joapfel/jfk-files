@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_22243.png
+
+Convert to MarkdownTOP SECRET
+
+651.
+
+NOSENKO was the first source to report on the KGB recruit-
+ments of 22 tourists (none with access to classified materials
+and on 11 of whom there was previous derogatory information);
+four correspondents (one said by NOSENKO to have become inactive
+and on two of whom there was previous derogatory information);
+the American Express Company representative in Moscow; a contract
+employee of USIA who had earlier declared his intent to marry a
+Soviet national; and two agents whose names were not known to
+NOSENKO but who were identifiable. The latter two agents were:
+
+- Dayle W. SMITH (KGB cryptonym "ANDREY"), a cipher machine mechanic at the U.S. Embassy in Moscow recruited in 1953. Despite NOSENKO's statement that "ANDREY" was currently supplying valuable information in June 1962, SMITH lost his access to classified information through retirement from the U.S. Army on 30 November 1961, or about six months before NOSENKO first reported on him (Pages 413-426).
+
+- U.S. Army Sergeant Robert Lee JOHNSON, who with his wife Hedwig began collaborating with the KGB in 1952 and who made James MINTKENBAUGH an agent of the KGB in 1953 (Pages 427-462). Hedwig JOHNSON discontinued her role in the operation in 1953, although thereafter remaining knowledgeable of the KGB activities of her husband and MINTKENBAUGH; according to MINTKENBAUGH, who lost access to classified information in 1954, he had no direct contact with the KGB after the late summer or early autumn of 1953 (about three to five months before NOSENKO first gave the lead on JOHNSON); JOHNSON was still on active duty with the U.S. Army and in contact with the KGB when NOSENKO reported in January 1964 about the existence of this agent.
+
+Thus from a total of 30 original and identifiable leads, only one agent had access to classified information as of the date when NOSENKO'S reporting on him began. By the criteria given in the preceding paragraph, the single operational lead from NOSENKO which could have damaged Soviet interests was that which uncovered JOHNSON.
+
+It is debatable, however, whether the JOHNSON lead constituted a serious loss to the KGB. In the first place, if JOHNSON can be believed, he gave the Soviets but one classified document while in charge of the "Classified Control Center" at Camp Des Loges between August 1963 and May 1964. His KGB case officer later told him, JOHNSON said, that the information he could provide was not worth the risk involved and that no future attempts of this sort should be made. JOHNSON also stated that he felt his espionage work at Camp Des Loges had not been very profitable for the Soviets, adding that his case officer had shown disinterest in his proposal to obtain for the KGB a top secret document he (JOHNSON) thought of greater importance than any other to which he had access. (NOSENKO indicated that JOHNSON lost his access in the spring of 1963, while at the Orly Courier Transfer Station.) In the second place, as the KGB knew, the behavior of Hedwig JOHNSON, a mental case, was unpredictable. Finally, the JOHNSON couple and MINTKENBAUGH repeatedly disregarded the KGB's instructions to compartment their activities and to observe other routine security precautions. The KGB seems to have avoided full exploitation of JOHNSON in the latter stages of the operation, to have been concerned over Hedwig's mental condition as early as 1962, and to have regarded the
+
+TAD SCARLET

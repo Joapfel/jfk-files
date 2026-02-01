@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_21672.png
+
+Convert to Markdownit is not considered that there is an adequate basis for questioning
+this claim.
+
+The previous summary contained a conclusion that the claim
+of NOSENKO that he was custodian of the Embassy security file was
+an invention. The basis for this conclusion was not then adequate and
+current interviews with NOSENKO have further indicated that his claim
+on this point should be accepted.
+
+In regard to (d), the claim of NOSENKO that he acted in place
+of KOVSHUK, the Chief of First Section, when KOVSHUK was absent,
+it is considered that this claim is acceptable providing it is not con-
+verted into a presumption that therefore NOSENKO knew everything
+that KOVSHUK knew.
+
+NOSENKO claims that he was not responsible for the direct
+supervision of approximately two-thirds of the officers in the First
+Section. These officers normally reported directly to KOVSHUK and
+would only report to NOSENKO when KOVSHUK was absent. As an
+example of this, NOSENKO has shown a lack of detailed knowledge of
+the work against diplomatic personnel in the United States Embassy.
+He has stated he is sure he would have known of anything "important"
+such as a recruitment or attempted recruitment, but he does not claim
+to have reviewed all the reports of the various officers of the First
+
+0001178
+
+SECRET

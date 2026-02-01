@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_21647.png
+
+Convert to MarkdownDuring current interviews, NOSENKO furnished specific information on certain of the above eleven cases, including [William TARASKA, Bernard PECHTER, Michael GINSBURG and John RUFESO 06,06,06,06,06]. It should also be noted that certain of the cases such as Marvin KANTOR and [William TARASKA] were cases in which the tourist was visiting relatives in the Soviet Union and that NOSENKO has given a satisfactory explanation of how he learned of the KANTOR case. NOSENKO has, in discussing his duties as Deputy Chief of the American-British Commonwealth Section, also explained that if a tourist indicated that he intended to visit relatives in the USS., the case automatically was assigned to a group of officers in the Section who reported directly to the Chief of Section and were not under the supervision of NOSENKO.
+
+NOSENKO has stated that he noted the names of three of the individuals when retiring the files of "GRIGORIY" and "SHMELEV," two homosexual agents of NOSENKO previously mentioned. NOSENKO has explained that "SHMELEV" and "GRIGORIY" had the assignment of identifying American travelers with homosexual tendencies, that they had contact with numerous Americans, and that they had homosexual activity with individuals on whom they reported but on whom no overt action was taken by the Seventh Department. In some cases the individual
+
+G001153
+
+SECRET
+
+2/8R

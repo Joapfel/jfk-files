@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_21611.png
+
+Convert to Markdowncannot be established with certainty, it is evident that truth and fact are not what NOSENKO relates. By almost any test, virtually any of NOSENKO's above claims are impugned by fact or probability, or contradicted or retracted in his own statements. NOSENKO is not what he claims to be, and thus he is not a bona fide defector."
+
+"Given the conclusion that NOSENKO is not a bona fide defector, it is necessary to attempt to determine his true motives for contacting American Intelligence and for providing the information he has given. Here, it must be recognized that the evidence, largely consisting of NOSENKO's own assertions, does not permit unequivocal conclusions. Nevertheless, the question cannot be ignored. The character of the information NOSENKO has conveyed, the fact that some of his false claims have been corroborated by Soviet officials, and the necessity to make decisions about NOSENKO's future all require that at least a provisional judgment be made."
+
+"Of the reasonable explanations advanced for NOSENKO'S misrepresentations, the chief ones are that he is a swindler posing as a former KGB officer for reasons of personal advantage; that he suffers from a deranged personality or unbalanced mind; that he has greatly exaggerated his actual rank, status and access in the KGB, for simply personal reasons; or, finally, that he is a dispatched KGB agent."
+
+001117
+
+SECRET

@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_21729.png
+
+Convert to Markdown(c) A second copy of a summary on a KGB agent.
+
+NOSENKO stated that there were two copies in the file kept by the Chief which he reviewed and that he kept one. Of interest is the fact that the copy was not a registered document and did not contain the usual information as to number of copies typed.
+
+G001235
+
+SECRET

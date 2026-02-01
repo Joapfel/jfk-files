@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_22077.png
+
+Convert to Markdown236.
+
+## e. Supervisor of Activities Against American Service Attachés
+
+At the beginning of the interrogation session on 29 January 1965, NOSENKO was asked to list the duties he assumed upon reporting to the U.S. Embassy Section in January 1960. As he had on a number of earlier occasions, NOSENKO replied that he was given responsibility for the supervision of code clerk operations, was made the KGB case officer for American Security Officer John ABIDIAN who was to arrive in the near future, and was charged with the Second Chief Directorate file on the security of the U.S. Embassy and his section's file on the materials from microphones in various Embassy offices. Later in this same session NOSENKO recalled--and told CIA for the first time--that he was also given the duty of supervising activities against officers assigned to the U.S. Army, Navy, and Air Force Attache offices. The pertinent portion of the 29 January 1965 interrogation was as follows:
+
+**Question:** Who briefed you or gave you instructions on what was expected of you in the Section?
+
+**NOSENKO:** I was speaking with GRIBANOV and KLYPIN.
+
+**Question:** What did KLYPIN say?
+
+**NOSENKO:** That "you are Deputy Chief of Section, but I consider that you must also pay special attention to code clerks. We must study them and make an approach to one of them. It's necessary to work on this." KOVSHUK was in KLYPIN'S office and I remember also that he raised the question: "O.K. He will supervise this kind of work, but maybe he can also take the military. All three attaches." Well, KLYPIN did not say yes and did not say no. I couldn't say anything because I had not begun; I didn't know how much work this would involve. I couldn't say. And, you see, KLYPIN said: "Let's try it a short period of time." It was that way. It was decided that I will supervise the code clerks and then the three attaches. And KOVSHUK took the diplomats and a whole pile of work. But, of course, in the absence of KOVSHUK I must take everything and in my absence, KOVSHUK must take everything. But later, 1,2,3 -- I don't remember dates -- later I was not supervising the military attaches but concentrated only on code clerks.
+
+**Question:** Later you were not supervising military attaches, but only code clerks?
+
+**NOSENKO:** Yes.
+
+**Question:** What do you mean you were supervising military attaches?
+
+**NOSENKO:** What does it mean? If the case officers of the three attaches have any questions or any papers to report to the Chief of Section, they go to
+
+TOP SECRET

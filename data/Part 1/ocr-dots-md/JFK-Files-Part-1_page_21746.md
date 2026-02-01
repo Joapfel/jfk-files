@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_21746.png
+
+Convert to Markdownnothing in either the form or substance of the papers which provides a basis for suspicion as to their authenticity. In addition, the form and substance of the papers are in keeping with the description by NOSENKO of the day-to-day operation of the First Section, First Department.
+
+During current interviews, the CHIREPANOV case has been covered in detail with NOSENKO. The Cherepanov Papers, which were originally shown to NOSENKO in 1964 after his defection, have also been covered in detail on a separate item-by-item basis. Although NOSENKO does not claim to have specifically seen any particular item prior to 1964, his statements in regard to the various handwritings, types of notes, and draft memoranda leave no doubt that NOSENKO was very familiar with personnel in the First Section, First Department, and with First Department procedures.
+
+Certain additional research has been conducted in regard to the papers and a detailed analysis will be prepared at a later date. It should be noted that a considerable amount of personal judgment has been necessary in making an assessment of the Cherepanov Papers since there are no exemplars with which to compare any of the material. However, based on information developed thus far, and there is no reason to believe additional work will alter the conclusion, there is not an adequate basis for an opinion that CHEREPANOV was under KGB control, that the Cherepanov Papers contain "deceptive information."
+
+G001252"

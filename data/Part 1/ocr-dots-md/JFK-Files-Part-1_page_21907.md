@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_21907.png
+
+Convert to MarkdownJune 1962
+
+Bye bye...Well, you can imagine my horror." [Note: Portions of the tape of this conversation are unreadable. It is clearly implied that this scene took place at NOSENKO's own home.]
+
+1964
+
+April 1964 he said on another occasion that he found his wife with her brother sometime prior to June 1947.
+
+63.
+1965
+
+course with her brother. I walked out without comment. The next day I returned to our apartment where my wife and I continued to live together, although our relationship was strained. I stayed with her because she was pregnant at the time." (Protocol signed February 1965.)
+
+Completed third year at IIR.
+
+"A child was born who might have been mine and who might not have been mine. God knows. There was still no child when I left. Well, I helped out. I sent money. That's all. But I didn't see either her or the child." [Note: NOSENKO provided no date for the above.]
+
+Girl with hare lip and cleft palate born to TELE-GINA. NOSENKO decided deformity was due to her incestuous relationship with her brother. Subsequently gave his wife a little money to help support the child, but never considered it his. Marriage cooled still further, but NOSNEKO continued to live in the apartment. (May)
+
+TOP SECRET

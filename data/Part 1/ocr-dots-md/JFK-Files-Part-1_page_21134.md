@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_21134.png
+
+Convert to MarkdownSECRET
+TSS EVALUATION
+
+NAME RICHARDSON, J. conors U. Div SR/5
+
+SUBJECT Flaps & Seals - Basic Familiarization
+
+DATES TRAINED FROM 2 TO 3 December 1954
+
+EVALUATION:
+
+Did good work. Appears to have a good understanding of the basic principles involved. His attitude inclines reflected his interest in the work.
+
+Note: This course is only for familiarization. It does not qualify student to engage in the opening of mail.
+
+Please return three copies of this form to TSS/TD.
+
+Distribution:
+
+1 - TL0
+
+1 - OTR/Registrar
+
+1 - TSS/TD files
+
+SECRET

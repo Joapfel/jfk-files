@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_20782.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+# TRAINING REPORT
+
+Chiefs of Station Seminar No. 1-70
+80 hours, full time 6 - 17 October 1969
+
+Participant : Phillips, David A.
+Year of Birth: 1922
+Grade : 16
+EOD Date : Apr '55
+
+Office : WH
+Service Designation: D
+No. of Students : 8
+
+## COURSE OBJECTIVES, CONTENT AND METHODS
+
+The COS Seminar is aimed to prepare prospective Chiefs and Deputy Chiefs of Station and Chiefs of Base for field assignments. Emphasis was upon the difficulties confronting Chiefs of small or medium-sized installations, since they must handle a peculiarly wide range of problems. Included were case studies serving to remind outgoing chiefs of various operational approaches and techniques, but more time was devoted to policy, coordination, management, reporting, and administrative responsibilities of the Chief of Station, both within CIA and in the government at large, at home and abroad.
+
+The bulk of the course is given in lectures and question periods conducted by officials responsible for the missions, functions, programs, and services discussed. A few key items of suggested reading are included, and bibliographies of suggested reading tailored to the individual's assignment are offered for those who want them.
+
+## ACHIEVEMENT RECORD
+
+This is a certificate of attendance. No further assessment of individual capacity or performance is made in this course.
+
+FOR THE DIRECTOR OF TRAINING:
+
+Anthony D. Holland
+
+Date
+
+S-F-C-R-E-T
+
+20 OCT 1969

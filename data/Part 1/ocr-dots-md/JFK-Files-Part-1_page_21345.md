@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_21345.png
+
+Convert to Markdown- 22 -
+
+g/4612
+
+Hatred for the Falange is general in the majority of social classes. He says that even those who belonged to the Falange before, young students, employees or just rich people, do not wish to have anything to do with it now, and say that the Falange is going to the dogs.
+
+He adds that in general everybody hopes that the triumph of England will cause a change of government in Spain and so they confine themselves to waiting although there is talk of a possible coup d'etat by the soldiers.
+
+## RESISTANCE OF THE PRO LE AGAINST ENTERING THE WAR AND AGAINST THE FRAKEIST REGIME
+The people wish to see the situation change as soon as possible, but they believe that the solution must come from outside. According to our informant, there is no thought of fighting against the regime. He says that the workers in the factory in which he worked spoke openly against the regime but he does not know that there was any activity. (Given the character of the informant we may sup os e that even if there was he would take pains to ignore it). From time to time the women rioted in the Gues; at first they sit them up, now they say nothing. He asserts that every day the people speak more openly against the regime. The contribution to "Auxilio Social" was obligatory before but now no one pays. When the young ladies of "Auxilio Social" beg for subscriptions in the streets and ask the reason for refusal, some people answer - "because I do not wish to".
+
+He says that when Franco was at Bilbao the people remained in their houses and he was received only by four "chats bottas" in the offices of the Falange, At the end of Franco's g each not a soul applauded. Then some Falangist young ladies said, half in tears, "what we must do is buy a machine gun and shoot them all".
+
+Assistance to the prisoners, according to our informant is given by relations and friends. There is no organised assistance, but he proceeds to tell us that certainly there have been collections sometimes in the factory in f avour of the prisoners, but "by groups of friends". He does not know of the activity of any organisation, as such. The nationalists, according to him (he is a nationalist) are the ones who have some organisation.
+
+They distributed there a speech made by Aguirre in America. One of the Prieto's was also in circulation. He has no news of the other organisations although he admits that if they have any organisation they would not go and tell him about it.
+
+When he is asked about the activity of the different organisations of which the Frente Popular is composed, and the attitude of the militant party members of these organisations, he asserts categorically that there tne people are completely united, and there is now no talk of socialists, anarchists, communists, republicans etc. All treat each other as comrades, and help each other as far as they can. In Spain, according to our informant, there are only now eneies of Franco and the Palange, who maintain a strict unity among themselves; they discuss the progress of the war together, comment on the situation etc. He says that the people wish for unity, regret the disunion there was before in Spain and the quarrels between different parties and anti-fascist organisations.
+
+He did not know of the shooting of Larra or Diegues. The execution of Larra impressed him very much and he said that in order to do what Larra had done one would need plenty of guts.
+
+## FUTURE PROSPECTS -
+He repeats again that they believe in Spain that the triumph of England will cause a change in the situation. (He must point out that for some time there have been currents in the Basque nationality which have been seeking for a "solution" of their national problem with the assistance of England, transforming the "Païs Basque" into an English protectorate or Dominion or something like that, and even during the Spanish war there were individuals who thought that at the critical moment the Basques would receive help from the English)
+
+Our informant told us at the beginning that there people spoke only in favour of England, but after considerable circumlocution he confessed that the workers also sympathised very much with the Soviet Union, although conversations in this direction were such more restrained. He added that the people were quite well informed about the course of events as they listen daily to the bulletins of Radio London, and some also listen to those of Radio Moscow.
+
+The people in generalare in favour of a solution on the basis of the Republic. Others are afraid that the fall of France will result in a revolution worse than the other* and for this reason they are more hesitant. Those individuals are specially the rich. If they believed that the Republic would be established without bloodshed they would be in complete agreement with it.

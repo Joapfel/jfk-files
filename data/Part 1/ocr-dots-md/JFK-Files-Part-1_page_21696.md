@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_21696.png
+
+Convert to Markdownresponded in the negative to a question regarding sexual
+relations with his maid. The future of NOSENKO to re-
+port on this relationship can be ascribed to ignorance,
+but also can be plausibly explained by faulty memory on
+his part or failure on the part of the maid to report details
+of this relationship to the KGB.
+
+Second, NOSENKO had not reported that [ZWANG]
+was involved in the currency operations of Pietro CECCHEL.
+(A fact that previous summary implied he should have
+known from KGB agent CECCHE.) From the record, how-
+ever, it appears that the dealings of [ZWANG] were not
+directly with CECCCH, but rather through other Embassy
+employees, making it plausible that CECCHI was either
+unaware of the involvement of [ZWANG] or, as NOSENKO
+himself stated he suspected, CECCCHI did not report all
+details of his currency operations to his KGB handler.
+
+(b) [John TAYLOR] - NOSENKO identified [TAYLOR] as a State Department code clerk and target of KOSOLAPOV. The KGB was aware of the involvement of [TAYLOR] with his Soviet maid, but no attempt was made to recruit [TAYLOR] before his departure in early 1961 since to do so might
+
+0001202
+
+SECRET
+
+81BR

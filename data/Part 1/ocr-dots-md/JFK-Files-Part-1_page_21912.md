@@ -1,0 +1,104 @@
+# JFK-Files-Part-1_page_21912.png
+
+Convert to MarkdownJune 1962
+
+1964
+
+1965
+
+April 1966
+
+October 1966
+
+tage of his father's
+position."
+
+lieutenant on ac-
+tive duty. Re-
+ceived orders to
+the Intelligence
+Staff of the Seventh
+Far East Fleet.
+
+[Note: In an ear-
+lier version, NO-
+SENKO said he en-
+tered the GRU in
+1949, having fin-
+ished the Insti-
+tute of Interna-
+tional Relations
+the same year.]
+
+"I worked in
+the field of in-
+formation in the
+Far East, in the
+city of Sovetskaya
+Gavan...in the
+field of informa-
+tion--radio inter-
+cept, etc. All
+your movements,
+when you moved
+vessels to Che-
+mul'po, Korea,
+the Korean opera-
+tion...we knew all
+the ships there be-
+cause you talked on
+the air. You
+transmitted. We
+knew each division,
+its name, its num-
+ber, everything...
+
+On approxi-
+mately 1 October
+1950 NOSENKO left
+Moscow by train for
+the Far East. The
+trip to Bukhta.
+Postovaya (near
+Sovetskaya Gavan),
+where his unit was
+stationed, took nine
+or ten days. As-
+signed to work in
+the Information
+Section under Cap-
+tain Second Rank
+KHAYTOV. Duties
+included transla-
+tions from Ameri-
+can Naval litera-
+ture and making
+summaries of
+American Navy OB in
+
+Arriving at his
+duty station NO-
+SENKO was assigned
+to the Information
+Section. He liked
+the work and did a
+good job despite
+the rigorous con-
+ditions. During his
+service here he re-
+ceived special
+mention as an out-
+standing officer.
+There were 300 to
+350 intercept opera-
+tors there. NO-
+SENKO and other
+officers analyzed
+the take as well as
+information received
+from Sakhalin and
+Vladivostok. (May)
+
+[See above entries]
+Still processing
+for GRU entry.

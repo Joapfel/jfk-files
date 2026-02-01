@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_20757.png
+
+Convert to MarkdownSECRET
+
+30 June 1971
+
+MEMORANDUM IN LIEU OF FITNESS REPORT
+
+SUBJECT: Mr. David A. Phillips
+
+1 April 1970 - 30 June 1971
+
+This memorandum is in lieu of the fitness report on Mr. Phillips as Chief of Station, Rio de Janeiro, during the period 1 April 1970 to 30 June 1971.
+
+Mr. Phillips is a highly capable, versatile and imaginative Operations Officer and manager who makes a substantial contribution to the Clandestine Service.
+
+The above statement is borne out by the fact that faced with a highly difficult, sensitive operational problem of the utmost priority in the fall of 1970, the Rater immediately thought of Mr. Phillips as the man to head the Task Force and received immediate and enthusiastic endorsement from the Deputy Director for Plans and the Director for Mr. Phillips' assignment. He was recalled from Brazil, took over the Task Force, and handled it in an outstanding manner.
+
+My first statement is further borne out by the fact that Ambassador Rountree, on a recent visit to Washington, made a special effort to express to the Rater his appreciation for Mr. Phillips' support to him and the Embassy and to express further his appreciation to the Agency for furnishing him a man of Mr. Phillips' caliber.
+
+SECRET
+
+<table><tr><td>14-00000</td></tr></table>

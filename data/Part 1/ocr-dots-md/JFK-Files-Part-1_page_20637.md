@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_20637.png
+
+Convert to Markdown23 October 1968
+
+MEMORANDUM FOR: Secretary, Clandestine Services
+Career Service Board
+
+SUBJECT : Recommendation for Promotion to
+GS-16: David A. Phillips
+
+1. Mr. David A. Phillips is strongly recommended for promotion to GS-16 and is ranked Number 2 in WH Division's preference for promotion in that grade.
+
+2. Mr. Phillips stands out among his peers as a true Clandestine Services operator. He has had a range of operational assignments enjoyed by few Clandestine Services officers. He served in Cuba, Guatemala, Beirut, Chile, Mexico and the Dominican Republic. His functional assignments have included Contract Agent, Operations Officer under both unofficial and official cover, Chief of Station, and he is currently assigned as Chief, Cuban Operations Group. In regard to his tour as Chief of Station, Santo Domingo, I cite the following quote made by Dr. Hector Garcia-Godoy, Provisional President of the Dominican Republic, concerning the turbulent events in his country during his tenure:
+
+"You know," he said, "looking back over those months when things seemed pretty bleak, two names come immediately to mind as able and effective representatives of the United States. They are Ellsworth Bunker and David Phillips."

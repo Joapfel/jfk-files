@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_20740.png
+
+Convert to Markdown16 June 1966
+
+ATTN:
+
+Chief, Contract Personnel Division
+Mary Kay Slink
+
+Compensation and Tax Division
+Office of Finance
+
+Agency Service of David Atlee PHILLIPS
+
+The records of the Office of Finance show the following Agency service for Subject:
+
+Contract Agents:
+
+ECO 1 February 1951 @ $600.00 P/M
+Term 28 February 1951 @ $600.00 P/M
+
+ECO 25 January 1952 @ $600.00 P/A
+Term 31 August 1953 @ $600.00 P/A
+
+ECO 4 March 1954 ~ $7200.00 P/A
+Pay Inc. 1 August 1954 @ $8360.00 P/A
+Term. 31 March 1955 @ $8360.00 P/A
+
+Staff Employees:
+
+Ex. Appl. 1 April 1955 @ $600.00 P/A
+Pes. 6 February 1956 @ $10,320.00 P/A
+
+Staff Agents:
+
+Ex. Appl. 7 February 1956 @ $10,320.00 P/A
+PSI 7 October 1956 @ $10,535.00 P/A
+Pay Raiso 12 January 1953 @ $11,595.00 P/A
+PSI 6 April 1958 @ $11,835.00 P/A
+Pes. 13 August 1958 @ $11,835.00 P/A
+
+Contract Agents:
+
+ECO 19 August 1958 @ $7,200.00 P/A
+Term. 13 March 1960 @ $7,200.00 P/A
+
+Staff Employees:
+
+Ex. Appl. 14 March 1960 @ $11,835.00 P/A
+Subject has been a Staff Employee since 14 March 1960.
+
+JOSEPH H. HUDSON
+Chief

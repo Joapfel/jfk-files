@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_21887.png
+
+Convert to MarkdownPhotograph of Subject from passport used for temporary assignments to England in 1957 and 1958 (see Part V.D.8)
+
+Photograph of Subject from passport used on assignment to Geneva in 1964 (see Part III.B.2)
+
+Subject (February 1964)
+
+Subject's father, the Minister of Shipbuilding (1953)

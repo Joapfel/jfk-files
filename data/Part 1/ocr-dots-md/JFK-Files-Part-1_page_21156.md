@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_21156.png
+
+Convert to Markdown1 February 1962.
+
+MEMORANDUM FOR: Central Cover Group/Non-official Cover
+
+VIA : SR/SS
+
+SUBJECT : Cover requirements for Thomas B. CASASIN (P)
+
+1. Information keyed to your format *Nonofficial Cover Request for Individual* is transmitted herewith.
+
+2. SR would like to have a durable, permanent cover established for Thomas B. CASASIN as quickly as possible. CASASIN is presently a staff employee in Headquarters. He will be available to develop and undertake cover preparations as soon as Cover Group has completed the necessary arrangements.
+
+3. It will be convenient for CASASIN to discuss cover plans and preparations with you whenever you wish. Miss Ruth Paul (ext. 3839) will serve as Headquarters case officer and will be pleased to provide any supplementary information you may require.
+
+John Gerry
+Chief, SR/2
+
+Attachments:
+
+As stated in Para 1, 2 ay

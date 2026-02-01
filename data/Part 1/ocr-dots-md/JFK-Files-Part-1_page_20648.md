@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_20648.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+CENTRAL INTELLIGENCE AGENCY
+WASHINGTON, D.C. 20505
+
+TO : David A. Phillips
+
+SUBJECT: TDY in the Dominican Republic
+
+Most of you who went down to the Dominican Republic departed with so much speed and so little ceremony that there was no time to explain the importance and urgency of your assignments. Now that you have served there during the crisis, the importance of the task needs no embellishment from us, but you should know that the contribution of the augmented Station was decisive in shaping the policies and actions of the government and in avoiding several major mistakes. For weeks after the April revolution, our Station reporting was literally the only source of information that the United States had on the role of Communism among the rebel forces and on conditions outside the capital.
+
+Many fine things were done in the Station and in the hinterland by all of you. Manning the check-points under fire, flying to remote and hostile villages, moving tons of supplies through the gauntlet of the communications line, toiling over midnight reports, and keeping open our country's only commo link -- all these things were commonplace. The dedication, discipline, and routine of our personnel placed them in a class apart.
+
+To the sense of pride and accomplishment you must already feel, I want to add the gratitude and admiration of the DDP and of the Agency.
+
+Richard Helms
+Deputy Director of Central Intelligence
+
+S-E-C-R-E-T

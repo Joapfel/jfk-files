@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_21724.png
+
+Convert to MarkdownA closer examination of the cases described in the previous summary as "CIA American tourist agents," reveals there is no conflict in the involvement of ARTEMOV in these cases and the statement by NOSENKO that ARTEMOV was with the First Section, First Department. As an example, one of the cases is the case of [Edward McGOWAN] 06 NOSENKO has furnished information concerning this case, stating it was originally a Seventh Department case and that after the mailing of a letter by the individual in Minsk, the case was immediately taken over by the First Department. There is adequate reason to believe ARTEMOV only became involved after the case was transferred to the First Department.
+
+Another of the cases involved the contact of ARTEMOV with a CIA officer who was under Department of State cover in Helsinki, Finland, and visited the USSR on a tourist visa. Such an individual would under no circumstances be considered a true tourist or the responsibility of the Seventh Department, particularly since apparently the individual was even traveling under a diplomatic passport. It is assumed the individual was of interest to the First Chief Directorate and if the First Chief Directorate required or desired support from the SCD, it would normally request the First Department for such assistance and it is extremely unlikely that the FCD would request the Seventh Department for assistance in a case involving an American diplomat.
+
+0001230
+
+SECRET

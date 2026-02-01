@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_21557.png
+
+Convert to MarkdownSECRET
+
+E. CAN THE INFORMATION FURNISHED BY NOSENKO BE CONSIDERED IN TOTO AS HAVING RESULTED IN MATERIAL DAMAGE TO THE KGB AND/OR HAS THE INFORMATION FURNISHED BY NOSENKO BEEN OF SIGNIFICANT BENEFIT TO WESTERN INTELLIGENCE?
+
+SECRET
+
+<table><tr><td>LBJP 1</td></tr><tr><td>Enclosed is an automatic</td></tr><tr><td>logging and</td></tr><tr><td>decoding机.</td></tr></table>
+
+0001C65

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_21021.png
+
+Convert to MarkdownMEMORANDUM FOR: Official Personnel File
+
+SUBJECT : Richardson, Jacques F.
+CASASIN, T. R.
+
+1. **Studies in Intelligence** is the Agency's quarterly professional journal. It publishes a wide variety of unique material—historical, analytical, technical, etc., on all aspects of intelligence both as a profession and as a function of national security and foreign policy. Employees whose writings are accepted for publication make a valuable contribution to the Agency's work which ought to be reflected in their official files.
+
+2. Accordingly, the Board of Editors wishes to record the fact that *Studies in Intelligence* has published the following material submitted by Mr. Richardson:
+
+Article: "What to Do with Defectors" - Vol. V, No. 4 (Fall 1961)
+
+Letter to the Editor - Vol. IX, No. 4 (Fall 1965)
+
+HUGH T. CUNNINGHAM
+Chairman, Board of Editors
+**Studies in Intelligence**
+
+Distribution:
+
+0 - Subject's Official File
+
+1 - NOCAD/Pers

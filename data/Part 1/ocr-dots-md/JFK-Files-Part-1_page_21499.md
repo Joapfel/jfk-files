@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_21499.png
+
+Convert to Markdown# INTRODUCTION
+
+The following summary and analysis is not intended to be all inclusive, that is to contain a specific comment on all organizational, operational, personality and case type information furnished by Yuriy Ivanovich NOSENKO. To attempt to do so would be repetitious and confusing to the reader and would not be of material benefit in the formation of logical conclusions concerning the rather limited areas of primary concern.
+
+This summary will not contain a detailed psychological assessment of NOSENKO nor will it contain a recitation of the numerous theories which have been promulgated in the past concerning varying aspects of the NOSENKO case. This summary will be primarily directed toward the question of whether NOSENKO was or was not dispatched by the KGB, whether his claimed KGB career is relatively plausible and whether he has since late October 1967 been cooperative in a reassessment of the entire case for or against NOSENKO. NOSENKO has admitted certain lies and exaggerations in the past but claims that these were of a personal nature, intended to enhance his own importance
+
+SECRET
+
+LCCJ10C7
+
+<table>
+   <tr>
+    <td>GROUP 1</td>
+   </tr>
+   <tr>
+    <td>Investigative files</td>
+   </tr>
+   <tr>
+    <td>Cases: 1 and</td>
+   </tr>
+   <tr>
+    <td>L-15-291</td>
+   </tr>
+  </table>

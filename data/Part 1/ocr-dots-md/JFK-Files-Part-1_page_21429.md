@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_21429.png
+
+Convert to MarkdownCORY
+
+OFFA 59215
+13 June 1961
+
+LIAISON UNBOUND
+
+contact reports
+
+UNBOUND 11 and JENTONS - weekly meeting 9 June 1961
+
+Antin NYCYFORUK
+
+4. Gave himoop on Antin HYCZYFURUK, It wasco late in
+the :to ret hold of UNSCUND 27 oranyone who would be in on
+the working level and hesaid he would take it up with them
+in the afternoon and that we could then get together and
+discuss means of action.
+
+SECRET
+
+1
+
+1

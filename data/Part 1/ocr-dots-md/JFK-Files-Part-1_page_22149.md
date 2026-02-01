@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_22149.png
+
+Convert to MarkdownTOP SECRET
+
+308.
+
+Following BARGHOORN's admission, another resolution was drawn up by KRUPNOV and signed by KRUPNOV, KOVALENKO, and GRIBANOV. NOSENKO and KRUPNOV then took it to the office of the Chief Prosecutor where the incident report, the first interrogation, and the first and second resolutions were reported to (fnu) MISHUSTIN (or MISHUSTIN), the First Deputy to the Chief Prosecutor. GRIBANOV further directed that all materials on BARGHOORN, including information from KGB Archives, be given to the Department of Prosecution of the KGB so that they could begin the legal proceedings against BARGHOORN. After this, all interrogations were conducted by this department; KRUPNOV was dropped from the case, but YEFREMOV continued to act as interpreter.
+
+b. Information from BARGHOORN
+
+BARGHOORN, who had made five earlier trips to the Soviet Union since 1956, arrived there on 2 October 1963. The purpose of his visit, as stated in his visa application, was to gather information for a book on how effectively the Soviet Union was operating as a result of its political education and political system. His itinerary took him to Leningrad from 2 to 7 October, to Moscow from 7 to 10 October, Tbilisi from 10 to 17 October, and short visits to Tashkent, Bukhara, Samarkand, and Alma-Ata from 17 to 25 October. He flew from Alma-Ata to Moscow on 25 October and was scheduled to leave for Warsaw on 31 October. On the latter date he was arrested and held by the KGB until 16 November when, at President Kennedy's intervention, he was released and left the Soviet Union. BARGHOORN had no intelligence mission.
+
+Upon his return to the United States, BARGHOORN was debriefed by the U.S. Department of State and by CIA. His information indicated a high degree of KGB operational interest in him throughout the trip, including encounters with at least five probable KGB agents during his first week there: an attractive waitress who invited him to "do the town," a disenchanted intellectual in Leningrad, an attractive unattached girl who sat next to him on the flight from Moscow to Tbilisi, and two young Armenians whom he met his first day in Tbilisi.* The two Armenians were instrumental in the drugging described by NOSENKO. At dinner in his hotel on the day he arrived in Tbilisi, BARGHOORN met a young man claiming to be a student at the Leningrad Music Conservatory. They left the hotel for a walk and ran into a friend of the student, a second young Armenian, and the three of them went to a cafe for coffee. None was available,
+
+*Questioned about this in February 1965, NOSENKO said that BARGHOORN, as a suspected American Intelligence agent, was of operational interest throughout the trip. He vaguely recalled the girl on the plane but either did not know or had forgotten details of any other specific activity. NOSENKO said that none of this activity was directly related to the provocation operation, which was based on a last-minute decision.

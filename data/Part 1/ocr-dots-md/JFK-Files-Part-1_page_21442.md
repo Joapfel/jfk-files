@@ -1,0 +1,52 @@
+# JFK-Files-Part-1_page_21442.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+ORIG: RPerkins
+UNIT: SR/2/CE
+EXT : 8757
+DATE: 3 April 1961
+
+1565
+
+TO : PARIS
+FROM: DIRECTOR
+CONF: SR 6
+INFO : CI, CI/OPS, CI/IC 2, FI, WE-4, S/C 2
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>2</td><td>4</td></tr><tr><td>2</td><td>3</td><td>5</td></tr><tr><td>3</td><td>4</td><td>6</td></tr></tbody></table>
+
+<table><thead><tr><th>PRI-<br>E CEDENCE</th><th>DEFERRED<br>X ROUTINE</th><th>4 APR 61 19 59Z</th></tr></thead><tbody><tr><td></td><td></td><td>$TO GCR</td></tr><tr><td></td><td>PRIORITY</td><td>INITIALS</td></tr><tr><td></td><td>OPERATIONAL<br>IMMEDIATE</td><td></td></tr><tr><td></td><td>CUT-OFF<br>OCT 9 1963</td><td></td></tr></tbody></table>
+
+CITE DIR : 33187
+OUT-91903
+33187
+
+TO PARTI INFO REOVOOD AEDOCMA
+RE DIR 26906 (OUT 77202)
+OFFW 30103
+
+1. ODEMY ASKS FOR CLARIFICATION PULL POINTS CONFUSION ARISING FROM ODEMY PARI REPORT MEETING WITH STA ON POROBLIN CASE:
+
+A. WHAT MEAN BY WORD ANGLE IN STA QUERY WHETHER DISCUSSION CASE WITH UNBOUND WOULD INTERFEE WITH PAPERLINE ANGLES;
+
+B. STA ALLIED LINE LETTER DROP PAPERLINE;
+
+C. REF TO MORE THAN ONE LETTER.
+
+END OF MESSAGE
+
+C/S COMMENT: *RECOMMEND NO ACTION PARI THIS TIME. (RE POSSIBLE REPATRIATION NYCYPORUK).
+
+SR/ST
+CI/OS/SOV (Smith in draft)
+WE/3
+
+COORDINATING OFFICES
+
+CSR/2
+
+AUTHENTICATING OFFICES
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+Copy No.

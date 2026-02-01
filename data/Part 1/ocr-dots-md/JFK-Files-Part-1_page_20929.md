@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_20929.png
+
+Convert to Markdown4 March 1975
+
+BACKGROUND ON REQUEST FOR CREDITABLE SERVICE: August 1950 Until 3 March
+1954
+
+1. A basic document in consideration of this request is HCSA-825, dated 4 February 1954.
+
+2. I was running an English-language newspaper in Santiago, Chile when asked to work with our Station there. My first pay was $50.00 per month. The file contains a project approval dated 31 May 1950; TCS-A-1064 asks that the first payment be made to the U.S. bank on 1 August 1950.
+
+3. During this period I recall a number of activities undertaken for the Station, and I travelled to New York for clandestine training. The file indicates "He was originally approved operationally to handle the complex Soviet espionage case of FULMINATER-2. His conduct of this case was considered excellent...." Also, "It will be recalled that Headquarters was very pleased with the printing job...which he had done." The latter was indicative of a number of such chores, when I stayed behind in my plant after the employees had left for the night, printing leaflets, booklets, etc. I also handled agents and did a number of spotting and assessing jobs for the Station.
+
+4. I signed a new contract on 25 January 1952 for $500.00 per month which ran until the termination date of 31 August 1953. (Actually this was in the form of a loan which was paid off at the rate of $500.00. The advance was used to purchase printing equipment which allowed me to do certain work for the Station, but which I retained.)
+
+5. After termination of the contract on 31 August I remained in Chile until 4 March 1954. During this period I recruited a CP agent who still works for the Station--and was a cabinet member under Allende. On 3 February 1954 Headquarters asked that I be made available for another assignment. The Station pointed out that I was working on the recruitment, and that I and my family were planning on a European vacation. Headquarters again requested my assignment. Thus I departed for the Guatemala project in early March, abandoning my free family trip to Europe (tickets paid for by advertising in my paper) and leaving my family behind to pack up. I accepted this assignment without knowing where it was, or for how long it would last. Indeed I did not even have a contract.
+
+E2 IMPDET
+CL BY 024345

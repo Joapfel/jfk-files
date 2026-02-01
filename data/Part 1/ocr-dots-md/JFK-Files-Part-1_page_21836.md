@@ -1,0 +1,75 @@
+# JFK-Files-Part-1_page_21836.png
+
+Convert to MarkdownVIII. NOSEMKO'S BONA FIDES: ANALYSIS AND CONCLUSIONS
+
+A. Introduction 642
+
+B. Evaluation of Production 643
+
+1. Introduction 643
+
+2. KGB Organization, Personalities, Methods 644
+
+3. Operational Leads 645
+
+a. Introduction 645
+
+b. Operations Involving Americans 646
+
+(i) Completeness, Accuracy, Detail and Consistency of Reporting 647
+
+(ii) Damage to the Soviets 650
+
+(iii) Importance or Usefulness 652
+
+c. Operations Involving Other Westerners 654
+
+(i) Introduction 654
+
+(ii) Discussion 654
+
+4. Technical Operations Against the U.S. Embassy 657
+
+a. Introduction 657
+
+b. Discussion 657
+
+c. Remarks 659
+
+5. The BELITSKIY Case 660
+
+a. Introduction 660
+
+b. Discussion 660
+
+c. Remarks 661
+
+6. KGB Investigations 663
+
+a. Compromise of POPOV 663
+
+(i) Introduction 663
+
+(ii) Discussion 663
+
+(iii) Remarks 665
+
+b. Compromise of PENKOVSKIY 666
+
+(i) Introduction 666
+
+(ii) Discussion 666
+
+(iii) Remarks 669
+
+c. Compromise of CHEREPANOV 670
+
+(i) Introduction 670
+
+(ii) The Operational Plan in Draft 670
+
+(iii) The Summary on LANGELLE 672
+
+(iv) Remarks 674
+
+THREE SECRET 17

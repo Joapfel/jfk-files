@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_21622.png
+
+Convert to MarkdownThe 15th of March, 1945, was a Saturday in the month of April. Prior to that, in Soviet Russia, there were no such thing as intelligence service. In the early days of World War II, there was a special department of the Reichsführung which was called the "Aero-Command" of the Air Force.
+
+By the time of the invasion of Russia (February 1945) by German forces, the German Army had already started its withdrawal from the Soviet area. After the end of World War II, Germany continued her withdrawal from Russia until she was able to rejoin her forces in Berlin.

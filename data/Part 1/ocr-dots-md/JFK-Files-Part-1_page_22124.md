@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_22124.png
+
+Convert to Markdowngiven all the data, and they called back right away and said: 'Yes, this is the same LUNT who was in Moscow...' As soon as this was established, the next day the Bulgarians planted this homosexual on him. They planted this man either next to him or in the restaurant and, well, he met LUNT and they got together and decided to meet with each other the same day or the next day. This was all done very rapidly."
+
+According to Professor LUNT, the approach actually took place on 5 May 1961, following a visit to Moscow where he had contacted an official in the U.S. Embassy. He travelled on 9 May directly from Sofia to Yugoslavia, where he at once reported the incident to U.S. Ambassador George KENNAN, an academic acquaintance. LUNT told the Ambassador, and later CIA, that he had visited Sofia on one earlier occasion, from 8 to 28 November 1960. During this first trip he became involved with one Georgi Velev ALEKSIEV, with whom he engaged in homosexual relations on at least five separate occasions and to whom he gave U.S. travellers checks, which ALEKSIEV intended to sell on the black market. On one occasion during the first visit ALEKSIEV was recognized and stopped by the Bulgarian civil police while walking on the street with LUNT. After leaving Bulgaria in November 1960, LUNT received two letters from ALEKSIEV and prior to his next visit, on 25 April 1961, LUNT wrote ALEKSIEV saying he would be returning.
+
+TOP SECRET

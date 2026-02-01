@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_21993.png
+
+Convert to MarkdownA second joint meeting on this same subject took place in Washington, D.C., from 20 to 23 April 1968, and BLAKE mitted providing the KGB with a copy of the 21-page summary of the sessions.*
+
+c. GOLITSYN's Tourist Document
+
+When he defected to CIA in December 1961, GOLITSYN brought with him a top secret KGB document dealing with the use by American Intelligence of tourists for espionage inside the Soviet Union and with KGB countermeasures.** This study relied heavily upon the two documents supplied to the KGB by BLAKE, and although it purports to be a study of American tourist operations during 1960, it cites as examples many cases which occurred in earlier years. In these examples, the American agents detected by the KGB are named and their operational roles accurately described. (As noted above, NOSENKO said that MCGUIRE/MCGOWAN was the only American definitely determined to have intelligence connections prior to 1960.) Cited below are excerpts from the GOLITSYN document, along with additional information from CIA records and investigations.
+
+The document states: "MCGOWAN, Edward, born 1935, passing himself off as a post-graduate student of Harvard University, in Moscow, after a thorough check [for surveillance] sent an espionage letter containing secret writing. Further investigation of MCGOWAN showed that he specialized for a long period of time on Russian and Polish questions at the Russian Research Center of Harvard University, which is a branch of CIA. He came to the USSR at the expense of ROCKEFELLER and MORGAN, who are financing the so-called 'Research' work on Russia."
+
+* This occurred at a time that NOSENKO claims to have been in the American Department. During the 1962 meetings in Geneva, when NOSENKO said he was Chief of the American Tourist Section, he was asked about BLAKE. He replied only that BLAKE had been "an agent of the British Department of the Second Chief Directorate" and that he was not nearly as valuable as the Canadian Ambassador or "the other Englishman" (VASSALL). At the time of his defection, NOSENKO said he was First Deputy Chief of the entire Tourist Department. Asked about BLAKE after his defection, NOSENKO replied: "Who's BLAKE?" During the February 1965 interrogations, NOSENKO was first asked whether the KGB had received any significant information concerning the use of tourism as operational cover by CIA during 1960 and 1961, when he was in the American Department, and was then asked specifically whether the KGB obtained documentary information on this subject from an agent source. He replied "no" to both questions.
+
+** This document was transmitted from KGB Headquarters in Moscow to the KGB Legal Residency in Helsinki on 7 April 1961. In content it is similar to the general description of the document which NOSENKO said he himself wrote. NOSENKO said in 1964 that he knew GOLITSYN had passed CIA this report and that it had been written in the Tourist Department.
+
+TOP SECRET

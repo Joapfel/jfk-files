@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_21310.png
+
+Convert to MarkdownSECRET
+
+Series No. TIN-344
+10 March 1965
+
+-5-
+
+5. In addition to the information outlined above, there have been cleaned some details regarding lesser known Spanish Communist groups and individuals. There are not included herein since the meager information available on them--which dates back two-four years--or the more submission of the names can serve little or no purpose at this time. In view of Mexico reports TIN-377 and TIN-336 concerning Carlos Díaz de Soto and no inquiry regarding him is being made here.
+
+-5-
+SECRET
+
+200 - 1 - 5 - 88

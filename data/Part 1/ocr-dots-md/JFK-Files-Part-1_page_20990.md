@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_20990.png
+
+Convert to MarkdownSTREET
+
+CERTIFICATION BY THOMAS B. CASASIN
+CAREER ASSOCIATE, AS TO EXPENDITURES OF
+ADMINISTRATIVE ALLOWANCE
+
+I certify that the Administrative Allowance payments made to me in accordance with the provisions of the Addendum to the Agency contract dated 5 August 1972 and any amendments and extensions thereto have, to the best of my knowledge and belief, been used substantially for the purpose for which provided and have not accrued to my personal advantage or enrichment.
+
+SIGNED
+
+Date
+
+Thomas B. Casasin
+
+E2IMPDET.
+
+CL by: 063837

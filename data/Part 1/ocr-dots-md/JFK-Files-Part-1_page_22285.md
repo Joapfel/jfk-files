@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_22285.png
+
+Convert to Markdown5. Tourist Department (June 1955 to January 1960)
+
+a. Introduction
+
+NOSENKO's activities from June 1955 to January 1960, his first period of alleged service with the American-British-Canadian Section of Tourist Department of the KGB Second Chief Directorate, are described in Pages 107-151. For the purposes of the following discussion, it is convenient to divide this period into two parts. The first of these covers the years from June 1955 to June 1958, when NOSENKO said he was a staff case officer, handling and recruiting agents and planning and managing operational activity. The second part covers NOSENKO's service from June 1958 to the beginning of 1960 as Deputy Chief of this section. Apart from his personal involvement in a number of recruitment operations in the latter period, it is this service which provides a basis for NOSENKO to claim awareness of all important arrests of spies and recruitments from among American tourists visiting the Soviet Union; it is also this service as Deputy Chief of Section which NOSENKO cites as a basis for his involvement in the case of Lee Harvey OSWALD inside the Soviet Union.
+
+b. The Early Period (1955 to 1958)
+
+(i) General
+
+According to NOSENKO's story, he was among the first case officers in the Tourist Department. He arrived there just as the Department was being formed and took part with other officers assigned in the acquisition of an agent network from within Tourist, in the establishment of facilities and methods, and in generally "getting things going." Several months later he participated in what he says was his first operation against an American tourist. This was NOSENKO's behind-the-scenes (and hence unconfirmed) organization of an unsuccessful attempt to compromise Martin MALIA (Pages 112-113). NOSENKO'S next case (the first operation in which his participation is confirmed) took place a year later, in June 1956, when he assisted in the homosexual entrapment and recruitment of Richard BURGI (Pages 113-120). This recruitment, which occurred close in time to the Minister NOSENKO'S death, was by NOSENKO'S account a turning point in his personal and professional life. With it, NOSENKO began to acquire a sense of self-confidence and responsibility and began to "grow" from a wastrel into an effective and successful KGB officer. As a result of this operation, the first successful recruitment in the then short history of the Tourist Department, NOSENKO first came into personal contact with General GRIBANOV. According to all accounts prior to October 1966, when he retracted the claim, NOSENKO received the first of a series of KGB awards for operational performance because of the BURGI case--a letter of commendation. Within a month of this operation, NOSENKO said, he was promoted from the rank of lieutenant to captain, his last promotion prior to defecting eight years later.
+
+NOSENKO's direct operational activity in the next two years, before his appointment as Deputy Chief of the Section, was described by NOSENKO as follows: Sometime in 1957 he was involved in the attempted recruitment of the German businessman (Pages 120-121); after surrounding him with agents, NOSENKO
+
+TOP SECRET

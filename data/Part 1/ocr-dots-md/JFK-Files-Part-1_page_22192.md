@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_22192.png
+
+Convert to Markdown14-00000
+
+II. Soviet Journalist KOROLEV
+
+In October 1960, Yu.D. KOROLEV, who said he was a Soviet journalist, offered to write a story on the life of the family of a "Soviet secret agent" for the French magazine Paris Match.*** The story was to concern KOSEKSO's family and their life in Moscow since NOSIENKO's defection. A short background statement on KOSENKO which KOROLYI handed Paris Match editors stated in part: "KOSENO, about 30-38, an officer of the Soviet Secret Police organization, detected to the USA without his family about two years ago and asked for political asylum in the U.S.; it was
+
+* The JOHNSON lead from NOSINKO is discussed in detail in Part VI.B.5.c.
+
+NOSINKO provided information on (see Part VI.D.5.c.)
+
+** See Part III.II. for more details concerning KOROLEV'S offer to Paris Match..

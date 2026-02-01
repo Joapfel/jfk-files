@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_21081.png
+
+Convert to MarkdownSECRET
+
+ADDENDLY, Form 45 (Fitness Report), for period March 67-March 68.
+
+Section D
+
+As the individual being rated, I would like to add some remarks to those prepared by the rating officer.
+
+The assignment I have includes managerial responsibilities which (a) are essential to the continued existence and security of the cover mechanism as a vehicle for operational exploitation, and (b) are not necessarily visible to those "on the inside."
+
+In the case of (a), I must engage in a constant orchestration of the cover and the facilities it offers. This means maintaining a managerial equilibrium to insure that cover work will not become, of itself, so demanding that it negates the cover's utility to the CS. In effect, the top officer, and middle managers of the cover corporation (who are not cleared and writing) have to be satisfied that their demands are met (or cannot be), or else manipulated in order to neutralize or reject their demands. After all, the cover position is to them a legitimate, normal, workaday post in their firm. What work is done at their bidding, it follows, must be accomplished according to the high standards of thoroughness and accuracy which they have set.
+
+In the case of (b) -- which derives from (a) -- and can prove to be so demanding that the needs of the CS could no longer be served, the incumbent is required to manage a span of human contacts at several levels in order to preserve his cover position and enhance its value to the CS. This means planning, directing and managing the work of multinational, multicultural teams of technical correspondents, as well as meetings and negotiations to improve the [cover firm's] relations with similarly widespread individuals at the levels of editor-in-chief, publisher, corporate vice-president, president, and chairman of the board. These levels are scattered not only through industry, but have their analogs as well in government, higher education, and professional societies.
+
+Having previously managed both a CS base and the principal denied-areas operating component of a major field Station, I can report quite honestly that my present managerial responsibilities exceed the former -- despite the apparent lack of "supervisory responsibilities" in my present position.

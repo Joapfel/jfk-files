@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_20607.png
+
+Convert to Markdown3. **Execution of Documents.** If, in the performance of services under this contract, you assume the custody of Government funds or take title of record to property of any nature whatsoever and wherever situate, which property has in fact been purchased with monies of the U. S. Government, you hereby recognise and acknowledge the existence of a trust relationship, either express or constructive, and you agree to execute whatever documents may be required by the Government to evidence this relationship.
+
+9. **Secrecy.** You will be required to keep forever secret this contract and all information which you may obtain by reason hereof (unless released in writing by the Government from such obligation), with full knowledge that violation of such secrecy may subject you to criminal prosecution under the Espionage Laws, dated 25 June 1948, as amended, and other applicable laws and regulations.
+
+10. **Instructions.** Instructions received by you from the Government in briefing, training or otherwise are a part of this contract and are incorporated herein, provided that such instructions are not inconsistent with the terms hereof.
+
+11. **Unauthorized Commitments.** No promises or commitments pertaining to rights, privileges or benefits other than those expressly stipulated in writing in this agreement or any amendment thereto shall be binding on the Government.
+
+12. **Term.** This contract is effective as of __4 July 1965__, and shall continue thereafter for a period of two (2) years unless sooner terminated:
+
+(a) Upon sixty (60) days' actual notice by either party hereto, or
+
+(b) Upon actual notice to you in the event the results of an initially required medical examination are determined by this organization to be unsatisfactory, or
+
+(c) Without prior notice by the Government, in the event of a breach of this contract by your violation of the security provisions hereof or by your otherwise rendering yourself unavailable for acceptable service.
+
+Subject to the availability of appropriations, this agreement may be extended upon notice from the Government. In the event of voluntary termination on your part or termination for cause by the Government prior to the expiration of this agreement or any renewal thereof, you will not be entitled to return travel expenses to the United States. Termination of this agreement will not release you from the obligations of any security oath you may be required to take.
+
+UNITED STATES GOVERNMENT
+BY DHL
+Contracting Officer
+
+ACCEPTED: 151
+
+WITNESS: APPROVED: 151

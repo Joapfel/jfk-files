@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_22373.png
+
+Convert to MarkdownThere would appear to be no reason why NOSEMKO, if he had ever met COLITSYN, should not have said so to American Intelligence representatives.* To have done so would have given NOSEMKO concrete support for his claims of KGB staff service, which he knew to be in question. On the contrary, however, NOSEMKO consistently denied any contact and manufactured a demonstrably false story to explain his own absence during COLITSYN's admitted visit to the section in which NOSEMKO claims to have served in January 1961. (See Page 183, second footnote.)
+
+On the other hand, COLITSYN'S claim must be measured against the background and circumstances of his statements. In the absence of any comments about or identification of KOSENKO by GOLITSYN prior to the public announcement of his defection from the KGB, and in view of the amount of information made available to him from KOSENKO materials prior to his making any statements about his alleged acquaintance with him, GOLITSYN's "identification" of KOSENKO as a KGB staff officer known to him personally cannot be considered as spontaneous or uncontaminated information.
+
+The weight of independent evidence against KOSENKO's alleged service in those positions which GOLITSYN corroborated, combined with the conflict between GOLITSYN's and KOSENKO's testimony about their personal acquaintance, makes it impossible to accept GOLITSYN's verification of KOSENKO's claimed KGB status during any stage of the latter's career.
+
+*It is not likely that he would forget it. Direct relationship with or knowledge of a defector would be interesting and important to remaining KGB officers, even if temporarily forgotten, post-defection reminiscences would almost certainly bring back memories of such recent and direct contacts as GOLITSYN relates.
+
+TOP SECRET.

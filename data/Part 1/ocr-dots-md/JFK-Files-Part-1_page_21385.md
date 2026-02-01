@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_21385.png
+
+Convert to MarkdownFBI doc.
+
+30 Nov. 1961 (Detroit)
+
+RE: Helen Mary Winter
+Budfile: 100-423449
+
+DBF 96370
+
+FBI doc.
+
+24 Aug. 1961 (Detroit)
+
+RE: Helen Mary Winter
+Budfile: 100-423449
+
+DHB 77922
+
+FBI doc.
+
+21 June 1961 (Detroit)
+
+RE: Helen Mary Winter
+Budfile: 100-423449
+
+DBF 81488
+
+FBI & Co & Co & Co

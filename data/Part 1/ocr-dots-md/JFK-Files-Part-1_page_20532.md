@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_20532.png
+
+Convert to Markdown# SECRET
+
+81 APR 1970
+
+MEMORANDUM FOR : Director of Central Intelligence
+SUBJECT : Request for Voluntary Retirement
+          E. Howard Hunt
+
+1. This memorandum submits a recommendation for your approval; this recommendation is contained in paragraph 4.
+
+2. Mr. E. Howard Hunt, GS-15, Operations Officer, European Division, Clandestine Service, has applied for voluntary retirement under the provisions of Headquarters Regulation 20-50j, to be effective 30 April 1970.
+
+3. Mr. Hunt has been designated a participant in the CIA Retirement and Disability System and meets the technical requirements for voluntary retirement under the System. He is 51 years old with over 25 years of Federal service. This service includes over 20 years with the Agency of which more than 10 years were in qualifying service overseas. The Head of the Clandestine Service Career Service has recommended that his application for voluntary retirement be approved. I endorse this recommendation.
+
+4. It is recommended that you approve the voluntary retirement of Mr. E. Howard Hunt under the provisions of Headquarters Regulation 20-50j.
+
+/s/ Robert S. Wattles
+
+Robert S. Wattles
+Director of Personnel
+
+The recommendation contained in paragraph 4 is approved:
+
+BY Richard Holms
+Director of Central Intelligence
+
+APR 1970
+Date
+
+<table><tr><td>SECI</td></tr></table>

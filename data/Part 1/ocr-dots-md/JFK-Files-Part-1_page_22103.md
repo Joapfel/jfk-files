@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_22103.png
+
+Convert to Markdown262.
+
+of steel....In 1960 and 1961 the mike in GLEY-
+STEEN's office was working, I remember. Recep-
+tion was good, but there was no secret informa-
+tion. I don't know [about reception from this
+mike in 1962].
+
+**Question:** What about GRYAZNOV'S statement [concerning diminishing production of the Embassy microphones]?
+
+**NOSENKO:** This was only one common phrase. He didn't tell which room. I think he was speaking about the group...
+
+**Question:** How was production from the mikes in HORBALY's office?
+
+**NOSENKO:** Not good, but we did get something which made us suspect he was connected with intelligence. HORBALY.
+
+Question: What about the code room and teletype office?
+
+**NOSENKO:** At State, yes. Only always the sounds of machines in 1960 and 1961. Machines only. Three times during these two years maybe somebody said one phrase or one of the guys said several numbers.
+
+**Question:** What about the military [code] area?
+
+**NOSENKO:** The reception was good. He [STORSBERG] seldom spoke. Sometimes he repeated numbers to himself. And sometimes a mechanic of code machines came to him, a military guy, a sergeant [William HURLEY, an Army Warrant Officer]. They said two or three phrases. "Did you check this?" "Yes." "This side good." Et cetera.
+
+**Question:** In all this time that you read all this material, there must have been something that impressed you as extremely valuable.
+
+**NOSENKO:** Extremely valuable--nothing. A little was interesting from FREERS' room. It was given to the special group of GRIBANOV. They were writing special information to the [KGB] Chairman to the [CPSU] Central Committee. There were political questions, for example.
+
+**26 January 1965:** The following is taken from an inter-
+rogation protocol signed by NOSENKO: "I regularly reviewed
+all of the transcripts from microphones in the American
+Embassy for a period of approximately two years, from Janu-
+ary 1960 to January 1962. The following is the only infor-
+mation which I can remember as being important, interesting
+or operationally useful to the KGB:
+
+a. From the microphone in the office of the
+Minister Counsellor, FREERS, I remember that he oc-
+casionally dictated cables about the Embassy's evalu-
+ation of certain declarations or acts of the Soviet,
+Government and advised the State Department on posi-
+tions for negotiations with the USSR. This information
+
+TOP SECRET

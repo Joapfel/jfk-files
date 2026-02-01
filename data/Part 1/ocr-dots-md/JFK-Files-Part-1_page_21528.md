@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_21528.png
+
+Convert to Markdownsecond course in 1947. In 1951 the ministry of navy had given me also
+the rank of junior lieutenant when I was accepted in the navy intelligence.
+In September-October 1952 I received a rank of lieutenant.
+
+In Sovietsk the work was not interested and for me it was nothing
+to do. Besides this the climate was not good for my health and I decided
+to change the job. With this purpose before new year at the end of 1952
+I took a leave and went to Moscow. January 1 I was with my parents
+at the evening party at the cottage of General MGB KOBULOV, whom I
+A did not know before, but I knew his son-in-law Vahrushev Vasili - a
+former student and my friend. I told him about my job and that now I
+was thinking about change of the job. KOBULOV was speaking with me
+on this theme and propose we work and his help in MGB, but nothing
+more definite was said about my work. This month I reported to the
+head of the personnel department of the navy intelligence KALOSHIN
+about my decision and that I will be working in MGB.
+
+In the end of January I went again in the tuberculous sanatorium,
+where I was in 1952. In the days of funeral of STALIN I has come to
+Moscow and visited the ministry where my father was working. There
+I have seen General KOBULOV who has come to the father and he said
+that he would settle my question concerning my job. After several days
+in the middle of March I have received a telephone call from MVD to
+
+0001036
+
+SECRET
+
+C

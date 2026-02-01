@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_21754.png
+
+Convert to MarkdownSECRET
+
+GARBLER, Paul - IV, E, 52
+06 [GARCIA, Anthony A.] - IV, E, 39
+06 GARLAND, John - III, F, 17; IV, E, 31, 33-36
+06 [GINSBURG, Michael] - IV, D, 5, 6
+GOLITSYN, Anatoliy Mikhaylovich - III, B, 3, 4; III, E, 9-11; III, F, 5-13, 15-19; IV, B, 5, 6; IV, E, 9, 10; IV, E, 21, 23, 31-34; V, A, 1
+GRIBANOV, Oleg M. - III, F, 3, 4; IV, 6; IV, 6; IV, E, 4, 5, 21; IV, F, 1, 2
+"GRIGORIY" - III, F, 13; IV, D, 3, 6; IV, F, 4
+GROMAKOVSKIY, Yevgeniy - III, B, 4; IV, E, 20
+GRYAZNOV, Gennadiy I. - III, B, 4; III, F, 8-13, 15; IV, E, 5, 12, 19-21, 26-28, 30, 43-45; IV, G, 3; V, B, 3, 4
+GUK, Yuriy I. - III, B, 4
+HAMILTON, Victor Norris - II, E, 9 (aka: HINDAL, Fouzi Mitri)
+"HANNA" - IV, E, 27
+06 [HARRIS, Cisella] - IV, D, 1, 7, 8
+HORBALY, William - IV, E, 53
+06 [HOWARD, Herbert] - III, E, 8; III, F, 20; IV, G, 1, 3, 4
+IVANOVA, Svetlana - IV, E, 38, 39, 45, 46
+06 [JENNER, Paul] - IV, E, 28-31, 35-36
+JOHNSON, Robert Lee - III, E, 8; III, G, 5
+06 [JOHNSON, Wallace Everett] - IV, F, 3, 4
+06 [JONES, William Carroll] - IV, F, 3, 4
+
+6001260
+
+SECRET
+
+8/BR

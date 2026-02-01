@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_21772.png
+
+Convert to Markdown**Top Secret**
+
+(SEVENTH DEPARTMENT - January 1962-1964)
+
+Comment: (Continued)
+
+In 1966 SLESINGER reported to the FBI that he was in touch with a Moscow photographic shop proprietor, and he described evidence of KGB interest in him during his visit to Odessa in 1962. Previous to visiting the Soviet Union in 1962, SLESINGER had been in contact with a number of Soviet officials from the United Nations.
+
+NOSENKO was not specific in describing how he learned
+of SLESINGER, who may represent a First Chief Directorate
+case.
+
+KOTEN's Arrest and the KGB Agent
+
+NOSENKO was asked in Geneva in 1964 whether he was
+involved in the arrest of an American tourist in the
+USSR in the fall of 1963. Almost at once, NOSENKO
+identified the case as that of Bernard KOTEN, a guide for
+Afton Tours in New York City (and hence an employee of
+Alexander SVENCHANSKIY, see above) who had been arrested
+on homosexual charges in Kiev. NOSENKO said that KOTEN
+was involved with an American agent of the KGB Scientific
+and Technical (S&T) Directorate. NOSENKO did not know the
+agent's name, but from the description he provided he is
+believed identical with a KGB S&T
+agent identified earlier on the basis of a May 1962 report
+from a sensitive source.
+
+NOSENKO'S INFORMATION
+
+KOTEN was a longtime member of the American Communist Party and a frequent visitor after the Second World War to the Soviet Union, where he had extensive contacts among dissident literary figures and other Soviet citizens, particularly among Russian Jews. [NOSENKO explained in another context that the KGB is wary of foreigners' contacts with Soviet Jews because the Israeli Intelligence Service has frequently inspired such contacts.] Because of these many suspicious contacts, both the KGB First and Second Directorates had concluded that KOTEN might be a "provocation agent" planted in or recruited from the ranks of the Communist Party in the United States.
+
+TS No. 197124
+
+Copy 10
+
+Top Secret

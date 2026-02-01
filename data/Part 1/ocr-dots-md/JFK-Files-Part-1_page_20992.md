@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_20992.png
+
+Convert to MarkdownSECRET 1310032 MAY 75 STAFF
+
+CITE PARIS 56934
+
+TOTAL COPIES 16
+RUN BY
+
+<table><tr><td colspan="3">PERSON/UNIT NOTIFIED</td><td>SECRETS</td></tr><tr><td colspan="3">ADVANCE COPY ISSUED/SLOTTED BY AT X</td><td rowspan="3"><table border="1" style="width:100%; border-collapse: collapse; text-align:center;"><tbody><tr><th colspan="2">STAFF</th></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>3</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td>ACTION UNIT</td><td>RF</td><td>FILE VR</td></tr><tr><td>EVR</td><td></td><td>Ccs2 Cmb1nc3<br/>op2 of 2, Cmb1ms</td></tr><tr><td>ACTION #</td><td>I N F O</td><td></td></tr></table>
+
+T 011629 EIA538
+
+PAGE 81-81
+
+TORI 1310432 MAY 75
+
+IN 578647
+
+PARI 56954
+
+SECRET
+
+1. THOMAS B. CASASIN HAS GIVEN NOTICE THAT HE DOES NOT INTEND TO RENEW HIS CONTRACT WHICH TERMINATES 30 JUNE 1975. HE CITES HIS GROWING INVOLVEMENT AT UNCAIRD AS THE REASON.
+
+2. HE HAS AGREED TO FUTURE MEETINGS WITH STATION OFFICERS ON AN INFORMAL BASIS. FOR HIS CONTINUING COOPERATION HE ASKS ONLY THAT HIS ENTITLEMENT FOR SHIPMENT OF HEE TO THE U.S. BE KEP OPEN UNTIL HE CONCLUDES HIS UNCAIRD EMPLOYMENT. STATION WILL WRITE A MOC COVERING THIS CONTINGENCY. PLEASE ADVISE YOUR CONCURRENCE.
+
+E-2 IMPDET
+
+SECRET

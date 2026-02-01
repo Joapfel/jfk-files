@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_21660.png
+
+Convert to Markdown(c) Responsibility for maintenance of the physical security file on the United States Embassy.
+
+(d) Acting in place of Viadislav KOVSHUK, Chief, First Section, when KOVSHUK was absent.
+
+As can be seen from the above, the responsibilities of NOSENKO, by his definition, which are borne out by specific information furnished by NOSENKO, would not coincide with the normal responsibilities of a Deputy Chief of Branch or Section in CIA. An analyst can either accept or reject the theory that there is necessarily an equation between the responsibilities of a Deputy Chief in CIA and the NGB, but if the analyst accepts the theory, he must offer some supporting evidence on this point.
+
+Pages 151 - 261 of the previous summary contained comments and conclusions and sub-conclusions in regard to the claimed service of NOSENKO as Deputy Chief of First Section, First Department, 1960 - 1961. The previous primary conclusion was that he was neither Deputy Chief of the First (American Embassy) Section nor a supervisor in that section. The conclusion of this summary is that he was Deputy Chief and had supervisory responsibilities for work against code clerks. The matter of the responsibility of NOSENKO for work against code clerks will be considered later. Comments will first be made on the responsibilities listed in (a) - (d) above.
+
+SECRET
+
+0001166

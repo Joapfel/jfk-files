@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_21943.png
+
+s."
+
+NOSENKO has also been indefinite as to the date he assumed responsibilities for the attaches. As noted above, he said on 10 April 1964 that he received the files in the beginning of 1954. He had earlier said that he worked on the correspondents "only about six months." If the date of March 1953, which he most often gave for his entry into the KGB, is correct this would place the turnover in the fall of 1953. On other occasions he has said specifically that he turned over the correspondent cases and began work against the attaches in January 1954, on still others that this occurred in May 1954. In February 1965, NOSENKO said that he could not remember when he changed assignments.

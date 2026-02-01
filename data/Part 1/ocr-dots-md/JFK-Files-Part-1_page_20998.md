@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_20998.png
+
+Convert to MarkdownCONFIDENTIAL
+
+# FITNESS REPORT - FIELD TRANSMITTAL
+
+## SPECIAL NOTE
+
+Fitness Reports must be prepared with due regard for security considerations. For example, in the case of administrative and support personnel and others whose duties do not in themselves reveal sources of information and methods of operation, it is normally expected that a complete and realistic statement of specific duties may be reported in Section B. However, the nature, source, purpose or disposition of information or operations will not be included. On the other hand, the description of specific duties of certain other employees may jeopardize security and should not be fully reported on this form. In these cases, general statements of specific duties will be included in Section B indicating the level of responsibility.
+
+## INSTRUCTIONS
+
+The following items of the Fitness Report will NOT be completed by field personnel:
+
+* SECTION A, items 2, 3, 7, and 8
+* SECTION D, items 1, 2, and 3 (Only in respect to "Typed or Printed Name and Signature")
+
+<table><tr><td>1. I CERTIFY THAT I HAVE SEEN THIS FITNESS REPORT including Section D.</td><td>DATE</td><td>6 Aug '94</td><td>TYPED OR PRINTED NAME AND SIGNATURE OF EMPLOYEE (in pseudonym)</td><td>Rhonda F. Lillard<br/>Thomas B. CASASIN</td></tr><tr><td colspan="5">2. I CERTIFY THAT, EXCEPT FOR ITEMS OMITTED UNDER THE ABOVE INSTRUCTIONS, ALL ITEMS APPEARING ON THE ATTACHED FITNESS REPORT HAVE BEEN COMPLETED UNDER PROVISIONS OF CURRENT INSTRUCTIONS OR REGULATIONS.</td></tr><tr><td>DATE</td><td colspan="3">TYPED ON PRINTED NAME AND SIGNATURE OF SUPERVISOR (in pseudonym)</td><td>Edwin E. Haeven<br/>for Russell N. SKOGSBERG</td></tr><tr><td>DATE</td><td colspan="3">TYPED ON PRINTED NAME AND SIGNATURE OF REVIEWING OFFICIAL (in pseudonym)</td><td>Edward J. HEROSIAN<br/>R. Mierow</td></tr></table>
+
+FORM 45A ABSOLUTE PREVIOUS
+3-73 EDITIONS
+
+CONFIDENTIAL
+
+E 2. IMPDET CL. BY 007622 (104-47)

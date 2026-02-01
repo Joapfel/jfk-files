@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_20766.png
+
+Convert to MarkdownSECRET
+
+# TECHNICAL SERVICES DIVISION -- TECHNICAL SCHOOL
+## SHORT RANGE AGENT CONTACT SURVEY (A-105)
+
+### Training Report
+
+Name : PHILLIPS, David A.
+
+Office: WH/COG
+
+Date : 6 June 1969
+
+## I. OBJECTIVES:
+
+To provide a general knowledge in:
+
+a. Selected gear used for clandestine short range agent contacts. Included are representative samples of:
+
+One way RF radio devices; two way RF radio devices; two way carrier current devices; optical communications; and special telephone devices used for establishing agent contact.
+
+b. The philosophy, purpose, considerations and limitations of short range agent contact systems, including message security, link security, reliability and feasibility of agent contact systems.
+
+INSTRUCTOR:
+TSD/TECHNICAL SCHOOL
+
+S E C R E T

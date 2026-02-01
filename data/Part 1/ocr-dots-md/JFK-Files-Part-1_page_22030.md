@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_22030.png
+
+Convert to Markdown**NOSENKO:** He spoke with the Resident and the Deputy Resident. He discussed this question with them and they said they would see about it, but we were told that the Residency has more important questions.
+
+**Question:** What was more important than the work against code clerks?
+
+**NOSENKO:** They didn't tell us.
+
+**Question:** Well, wasn't there some sign, some hint as to what was so important?
+
+**NOSENKO:** Code clerks in Helsinki would be more important for them; this is the work of the FCD.
+
+**Question:** How did KOSOLAPOV know how to find JENNER, to recognize him and make contact?
+
+**NOSENKO:** KOSOLAPOV had his photograph, knew his name, and with the help of the Residency, I think, they found out at the railroad station who was going on the train. Then they bought a ticket on the same train for KOSOLAPOV. We knew JENNER must cross on the 15th.
+
+**Question:** When did KOSOLAPOV leave for his trip to Helsinki?
+
+**NOSENKO:** I don't know.
+
+**Question:** When did he return?
+
+**NOSENKO:** I don't know, don't remember.
+
+**Question:** How long was KOSOLAPOV gone in all?
+
+**NOSENKO:** About one week, not more than one week counting travel time.
+
+**Question:** How did KOSOLAPOV travel to Helsinki?
+
+**NOSENKO:** By train, both ways.
+
+**Question:** Was he alone on the way down or did someone go with him?
+
+**NOSENKO:** He was alone.
+
+**Question:** How did you arrange for "SOLISTKA" to board the right train?
+
+**NOSENKO:** GRYAZNOV sent "SOLISTKA" alone to Vyborg and had the local KGB officers there meet her and place her on the correct train. They knew the date and would establish the fact that KOSOLAPOV was on that train before placing her aboard...
+
+Also on 15 February 1965 NOSENKO made the following additional statement not included in the protocol: "The agent was 'SOLISTKA.' She was GRYAZNOV's agent even before 1960. GRYAZNOV briefed her for the mission... KOSOLAPOV wrote a report on
+
+TOP SECRET

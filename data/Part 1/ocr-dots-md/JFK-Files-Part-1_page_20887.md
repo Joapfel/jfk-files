@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_20887.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>PERSONAL HISTORY STATEMENT</td>
+  </tr>
+</table>
+
+INSTRUCTIONS
+
+- DO NOT ATTEMPT TO COMPLETE THIS FORM UNTIL YOU HAVE READ THE FOLLOWING INSTRUCTIONS-
+
+1. Answer all questions completely or check (X) the box which applies. If the question is not applicable, write "NA". If you do not know the answer and it cannot be obtained from personal records, write "Unknown". Use the blank space on pages 15 and 16 for extra details on any question for which you do not have enough space.
+
+2. Type or print carefully - USE BLACK TYPEWRITER RIBBON OR BLACK INK.
+
+3. Leave blank any boxes or columns which are marked "FOR OFFICE USE ONLY".
+
+4. Consider each of your answers carefully, accurate completion of the form will permit review of your qualifications to the best advantage. Your signature at the end of the form will certify to its correctness.
+
+5. Page 17 entitled "Personal History Summary" must be completed. It is a brief abstract of information from other parts of the form and will help to speed the processing of your application.
+
+SECTION I GENERAL PERSONAL AND PHYSICAL DATA
+
+GENERAL
+DATA
+
+POSITION DATA
+
+(For Office Use Only)
+
+Date of this application
+
+444 US PREVIOUS
+EDITIONS
+
+THIS SHEET MUST BE COMPLETED
+
+FORM
+3-86
+
+1-1-

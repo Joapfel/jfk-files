@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_21346.png
+
+Convert to MarkdownIn Spain they believe that Hitler may be defeated in 1942, especially if the Second Front is started. They also say that Russia is bearing the brunt of the fight.
+
+Speculation about a monarchist restoration has neither delighted nor depressed the people. The possibility does not arouse much interest.
+
+The people, who, according to our informant, have most prestige in Buskadi (Basque national territory) are Aguirre and Prieto, especially the former.
+
+As regards conditions of material life he assures us that they are terrible and that is the fundamental reason why all the people have turned against France. There is much talk of "no home without bread or a roof", but that does not improve the situation.
+
+All business is controlled by the "Black Marketers" of the Palange who, sheltered behind the Committees of Supply, requisition the crops from the peasants at the standard rate, and instead of selling them to the people at the standard rate they reduce rationing to almost nothing in order to compel the people to buy articles on the Black Market, at a price which will give them the profits. He says that these who have money to buy things contraband (and they are the majority since salaries have hardly been increased at all in comparison with pre-war standards) die of hunger. He gives prices which correspond with those for other regions of Spain".
+
+NOTE: the military and naval information contained in these reports has been extracted and supplied to the S.O.I., Trinidad, and the Military Adviser, Imperial Censorship, Trinidad, under the reference numbers S.E./S.O.I.1, and S.E./M.A.1 respectively.
+
+7/9.9.42
+
+Copies to London, New York, Bermuda & Jamaica.
+
+H/010.

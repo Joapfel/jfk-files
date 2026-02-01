@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_20960.png
+
+Convert to Markdown19 October 1954
+
+MEMORANDUM FOR: Chief, Psychological and Paramilitary
+Operations Staff
+
+SUBJECT: Paul D. Langevin (P) - <u>Covert Associate</u>
+
+REFERENCE: Memo to Special Contracting Officer, CIA,
+dated 12 October 1954, Same Subject
+
+Pending publication of a regulation on Employee Services,
+the Office of Personnel issued N 20-660-19, dated 29 July 1954
+to be effective 1 August 1954. This Notice announced the availa-
+bility of two life insurance and two health insurance programs
+sponsored by the Agency under the name of "Government
+Employees Health Association, Inc." Eligibility for these life
+and health insurance programs has been limited to those categor-
+ies of personnel expressly stipulated in the Notice. Nowhere are
+Covert Associates listed as an eligible group, although in fact
+a Covert Associate may be an employee of the U.S. Government.
+Until the notice or the proposed regulation is changed, this Staff
+is precluded from inserting in contracts similar to that of sub-
+ject individual's any reference to health and life insurance
+programs normally available to staff employees.
+
+JOHN L. DISCHOFF
+
+Special Contracting Officer
+
+DHL/pr
+
+Orig & l Addressee
+
+l cc Employee Services Div.(attn. Joe Evans)
+
+l cc subject file
+
+l cc chrono
+
+l cc corres w/PPStaff file
+
+CPTT
+
+SST

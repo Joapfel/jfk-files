@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_21583.png
+
+Convert to MarkdownSECRET
+
+aware that GOLITSYN had a conversation with KOVSHUK about
+[PREISFREUND] since GOLITSYN wanted to use [PREISFREUND]
+in Helsinki. NOSENKO has stated he was not present during
+the above conversation. It is very possible that KOVSHUK
+exaggerated a little in his conversation with GOLITSYN in the
+matter of why GOLITSYN could not use [PREISFREUND] as an
+agent.
+
+NOSENKO has furnished extensive information in regard
+to the James STORSBERG case and with due consideration to
+the accuracy and recollection of GOLITSYN, there does not
+appear to be an adequate basis for questioning the bona fides of
+NOSENKO on the basis of the differences between the report-
+ing by GOLITSYN of information he received from GRYAZNOV
+concerning what is considered to have been the James STORSBERG
+STORSBERG case and detailed information furnished by
+NOSENKO concerning the James STORSBERG case. The
+exact date of the recruitment attempt against STORSBERG
+has not been positively established, but it is considered to
+have occurred before early May 1961 and probably in the
+March-April 1961 period. The statement by James O6
+
+0001090
+
+SECRET
+
+8/BR

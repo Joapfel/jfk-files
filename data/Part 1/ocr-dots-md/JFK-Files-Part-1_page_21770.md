@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_21770.png
+
+Convert to Markdown# Top Secret
+
+(SEVENTH DEPARTMENT - January 1962-January 1964)
+
+**Yu.I. GUK**
+
+Implying that their friendship was of long standing, NOSENKO related in 1962 that he and GUK were together nearly every day in Geneva, where they went out to chat and have a few drinks. As a consequence, NOSENKO was granted access to the residency and was able to elicit information about some of GUK's operations in Geneva. He described his "big, big friend" GUK as the Deputy Legal Resident in Geneva and the only "strong officer" in the residency.
+
+Comment: In 1964 NOSENKO attributed his gaining access to the residency in 1962 to TSYMBAL, not to GUK. According to several sources (see Annex A, because of his friendship with NOSENKO, GUK was dismissed from the KGB.
+
+**M.S. TSYMBAL**
+
+In 1962 NOSENKO reported TSYMBAL's presence in Geneva and identified him as Chief of the Illegals Directorate of the KGB First Chief Directorate. He alluded to having spoken with him, but placed no particular emphasis on their relationship.
+
+In 1964 NOSENKO claimed that he had been dealing with TSYMBAL since 1960 or 1961, when he was looking for some candidates for recruitment and came across some whose background would have made them suitable for the Special [Illegals] Directorate. NOSENKO met TSYMBAL in Moscow in the KGB Headquarters and TSYMBAL had asked him several times to transfer to the First Chief Directorate and suggested that he might be assigned to the United States. In Geneva, he and TSYMBAL had dinner together several times a week, sometimes accompanied by KISLOV and sometimes alone. It was TSYMBAL's influence, NOSENKO said, which secured NOSENKO access to the residency in 1962 and established the precedent from which he was granted access in 1964.
+
+TS No. 197124
+Copy 10
+
+Top Secret
+
+14-00000

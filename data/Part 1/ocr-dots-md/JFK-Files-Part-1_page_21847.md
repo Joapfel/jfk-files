@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_21847.png
+
+Convert to Markdownthe Soviet Union.* Exfiltration plans were then implemented, and NOSENKO was driven across the border to Germany that same night. Debriefings resumed in a Frankfurt safehouse. The decision was reached on 11 February to bring NOSENKO to the United States, and in the early evening of 12 February he and his CIA escorts arrived in Washington via commercial aircraft, thence to a safehouse in the Washington area.
+
+At the request of the Swiss and Soviet Governments, NOSENKO met on 14 February with representatives of their respective Washington Embassies in the offices of the U.S. Immigration and Naturalization Service. He told both that he had defected of his own free will after careful consideration and that he had no desire to return to the Soviet Union. In answer to the questions of the Soviet representatives, he orally renounced his status and rights as a citizen of the USSR.
+
+CIA completed its initial debriefings of NOSENKO on 18 Febru- ary, and on 24 February he was introduced to representatives of the FBI for questioning. At about the same time, there was a marked decline in NOSENKO's discipline: He became evasive and uncooperative, refusing to answer some of the questions of his debriefers, both CIA and FBI; his nightlife in Washington and nearby cities was punctuated by drinking bouts, crude behavior, and disputes with his security escort. He explained these actions by saying that he was under great tension as a result of his defection, abandonment of his wife and children, and the disgrace that he had brought to his family name. It was against this background that CIA acceded to NOSENKO's demand for a vaca- tion. On 12 March, therefore, NOSENKO left Washington with a CIA case officer and two CIA security guards for a two-week vacation in Hawaii. There his behavior deteriorated still fur- ther: He drank heavily and almost constantly; he engaged in sexual acts with a number of prostitutes; he was loud and crude in public places; and he spent money extravagently ($800 on one prostitute) and conspicuously (a $100 bill for a restaurant tip).
+
+During NOSENKO's absence, consultations were held with the FBI concerning steps to be taken to restrict his movements and activities. Both agencies feared that his behavior would bring about unwanted attention and publicity, perhaps police arrest, and that doubts about his bona fides, which were be- coming known to a widening group of people in the U.S. Govern- ment, might be inadvertently revealed to NOSENKO himself. The FBI on 1 April said it would "not interpose objection" to the CIA plan to limit NOSENKO's freedom of movement. The Acting Attorney General, the Department of State, and the White House were also notified of the CIA plan at this time.
+
+In the morning of 4 April NOSENKO was driven to another safehouse in a Washington suburb, ostensibly only for a polygraph examination. At the safehouse NOSENKO was given a routine polygraph examination, lasting over three hours; he
+
+* See Parts III E and III F for further discussions of this cable.
+
+TOP SECRET
+
+14-00000

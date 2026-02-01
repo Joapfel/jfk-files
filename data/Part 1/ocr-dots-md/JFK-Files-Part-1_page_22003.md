@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_22003.png
+
+Convert to Markdownallegedly in the Tourist Department in this period) and could not describe their functions. On this basis NOSENKO was then asked to list the officers who had joined the section between 1956 and January 1960, when NOSENKO said he had returned. He provided 14 names, but BAKHVALOV'S was not among them. Asked to name the officers who had left the section in the same period, he named five, again omitting BAKHVALOV.
+
+TOP SECRET
+
+14-0000Q

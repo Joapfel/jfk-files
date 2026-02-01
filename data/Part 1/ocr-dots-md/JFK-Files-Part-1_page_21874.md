@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_21874.png
+
+Convert to Markdowndidn't." NOSENKO also said that TSYMBOL had asked him several times to transfer to the First Chief Directorate and had suggested that he might be assigned to the United States. In fact, NOSENKO added, he had got into some difficulty with O. M. GRIBANOV, Chief of the Second Chief Directorate, by virtue of TSYMBOL's efforts in 1962 to have NOSENKO transferred and his leaving the impression with GRIBANOV that NOSENKO (who was still in Geneva) had agreed to this action.
+
+Questioned in April 1964 about his association with TSYMBAL, NOSENKO stated that he met TSYMBAL for the first time several days before their departure for Geneva. Besides saying again that he saw TSYMBAL almost daily at the Legal Residency and that TSYMBAL's assistance enabled him to enter the Legal Resi- dency, NOSENKO reported that in 1962 he went out with TSYMBAL several times a week to eat lunch or dinner; sometimes they were joined by I. S. MAYOROV,* sometimes by A. K. KISLOV (see next section), and sometimes the two ate alone. During the 1966 interrogations, NOSENKO said that, while he had seen TSYMBAL on a daily basis in 1962, he saw him only twice in 1964: once when TSYMBAL travelled to Geneva from Bern for one or two days and later when NOSENKO saw TSYMBAL off for Rome from Lausanne.
+
+## 5. Association with Other Soviets
+
+NOSENKO said in 1962 that the other Soviets he saw most often were A. K. KISLOV and Yu. I. GUK.** KISLOV, with NOSENKO was one of the four members of the Soviet delegation staying at the Hotel Ariane in Geneva, and was said to be head of the American Section of TASS and a genuine correspondent.*** During the 1962 meetings with CIA, NOSENKO reported that KISLOV was not a KGB officer and made no reference of his having any affiliation with the KGB. NOSENKO did say, however, that he had arranged for KISLOV's name to be given the KGB double agent B. Ye. BELITSKIY**** to use as a notional source of information on Soviet disarmament policy; BELITSKIY was to pass this information to his CIA contacts. NOSENKO made numerous references to drinking and carousing with KISLOV, specifically with regard to a night in early June - when NOSENKO was robbed of or squandered his operational funds, which brought him to CIA - and on the night of 10 June 1962 when NOSENKO squandered 2000 Swiss francs (the money CIA had given him) on wine and women.***** In giving NOSENKO the money to defray these personal expenses, the CIA handlers expressed to him their concern over the dangers to his security arising from KISLOV's knowledge of this inexplicable source of income. NOSENKO replied that there was no need to be concerned since KISLOV was "too drunk to know what is going on," and in any event he constituted no threat.
+
+* MAYOROV, according to NOSENKO, was visiting Geneva in order to have operational meetings with agents.
+
+** Both KISLOV and GUK are mentioned in the discussion of the "ANDREY" case (see Part VI.D.3.b.). GUK was also a friend of GOLITSYN, who reported extensively on GUK's career in the KGБ including his service in the United States.
+
+*** In October 1966 NOSENKO named all the Soviets living at the Ariane, without mentioning KISLOV.
+
+**** The BELITSKIY case is discussed in greater length in Part VI.D.6.
+
+*****See Parts II.B. and II.C.2.c.
+
+TOP SECRET

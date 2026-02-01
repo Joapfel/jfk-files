@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_21464.png
+
+Convert to MarkdownSECRET
+KAPOK
+
+Page 2 of Attachment to
+TOLTA-15927 (c)(i)
+12. 10. 1960
+
+SUBJECT: Report on Testing of Letters for SNI
+
+6. In testing letter #1, the chemist chose to apply first those tests known to be effective in developing known languages. (There are, however, HIG indices for which we have no known development.) After each test was exhausted without yielding any detection, the series proceeded with the application of other tests. In all a total of 30 different chemical tests were run against it. All individual tests were tried over and over again, but more area was left on the letter to apply ones.
+
+7. None of these tests yielded even a trace of SNI. These results appear to contradict the report initially sent via references 13. May should not be so interpreted. We shall believe that letter #1 contains an SNI, our failure to develop is notwithstanding.
+
+8. As previously reported, Letter #2 was not treated, for persons given in reference 13. A facsimile of letter #1 was made before further taking its chemical treatment, the facsimile was checked by a connective linguist and authentication specialist and found satisfactory,
+
+9. FHI: Any information concerning the KEIFOLD test, including its existence, is considered extremely sensitive and should be so withheld,
+
+S E C R E T
+K A P O K
+
+DESENSITIZED
+FOR USE IN ALL DUTIES OF THE UNITED STATES NAVY AND MARITIME ARMY
+
+FOR USN 40-50

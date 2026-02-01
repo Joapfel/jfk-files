@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_22261.png
+
+Convert to MarkdownPEIKOVSKIY that he had visited the site after he chose it in 1960, although it is possible, especially as he had not been informed of ABIDIAN having been sent to check on a possible signal from him about the dead drop.
+
+sensitive source
+
+however, makes it clear that the ABIDIAN visit was not the first observed activity at Pushkin Street to stir KGB investigative interest in the site. As the report states, when massive surveillance of U.S. Embassy targets detected an American visiting this address the first time, he was not followed inside by surveillants, but on the second occasion he was followed closely and the surveillant observed that he was kneeling down apparently tying his shoe.* went on to say that, although this was not very unusual, it was sufficient to arouse suspicion in view of the fact that this American had been observed visiting the same address on two occasions for no apparent reason. There is no question about the fact that ABIDIAN visited the Pushkin Street drop site on one occasion only, and that was on 30 December 1961. The reference to this as a second visit to this address by an American from the Embassy is a clear indication that the KGB had surveilled the first such visit, which was made by the CIA officer MAHONEY** in January 1961, and not by ABIDIAN. Thus where he was observed by indicating one American went to Pushkin Street twice, the KGB must have known that MAHONEY went there first, in January 1961, and ABIDIAN went there next, on 30 December 1961. said that the 24-hour fixed surveillance resulted from the second visit, and because of it PENKOVSKIY was subsequently observed to enter the vestibule of this address but did not visit anyone there. It was determined that no one living at that address knew PENKOVSKIY and he became a target of KGB suspicion and investigation.
+
+The rest of the story is completely in disagreement with the facts of the case and does not warrant discussion here. It must be noted, nonetheless, that this is the only instance among all the versions which places the compromise on the American side of the case, and the only one which makes a direct connection between the Pushkin Street dead drop and the KGB detection of PENKOVSKIY. (All others attribute the compromise to surveillance of British Embassy personnel, and NOSENKO claimed that the KGB was unaware of American Intelligence participation until the operation was terminated.) It is also in direct conflict with NOSENKO, who had no knowledge of any U.S. Embassy official visiting the Pushkin Street site prior to ABIDIAN. In this regard, NOSENKO insisted that the date of ABIDIAN's visit
+
+* ABIDIAN reported that a woman entered the vestibule behind him while he was in there, and he knelt down pretending to tie his shoelaces until she proceeded past him and on up the stairs.
+
+**NOSENKO was not aware that MAHONEY had been identified to the KGB as a CIA officer well before MAHONEY'S October 1960 arrival in Moscow.
+
+TOP SECRET

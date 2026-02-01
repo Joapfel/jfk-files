@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_21060.png
+
+Convert to MarkdownSECRET
+
+AMENDMENT TO
+SUPPLEMENT TO STAFF AGENT PERSONNEL ACTION
+FOR THOMAS B. CASASIN
+
+Mr. Thomas B. Casasin
+
+Dear Mr. Casasin:
+
+Reference is made to your Staff Agent Supplement, effective 5 August 1962.
+
+Effective 27 September 1965, all reference to income is deleted from that supplement and the following provision is substituted:
+
+**Taxes.** As an appointed employee of the Government you must satisfy your Federal income tax liability on taxable income paid to you. Such income may be paid you by or through a cover facility. Because of cover, operational and security considerations the Tax Committee of this organization is authorized to make certain determinations and establish procedures which will result in the full satisfaction of your Federal income tax liability on income directly received as a result of your Federal employment. Such determinations and procedures constitute an integral part of your Staff Agent administration.
+
+UNITED STATES GOVERNMENT
+
+BY
+
+Personnel Officer

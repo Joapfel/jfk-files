@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_21022.png
+
+Convert to MarkdownThomas B. Casasin
+
+| Date | Action | Compensation | Grade |
+|---|---|---|---|
+| 15 MAY '72 | Career Agent | 33,260 | GS-15 |
+| 7 JAN '73 | KPI | 34,971 | GS-15 |

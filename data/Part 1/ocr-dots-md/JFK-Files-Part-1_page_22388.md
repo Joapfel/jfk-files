@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_22388.png
+
+Convert to Markdown788.
+
+(Reported to CIA by the FBI on 29 January 1965)
+
+It is common knowledge among KGB employees that GRIBANOV was expelled from the KGB and CPSU and is now on pension, partial rather than full, as a result of the NOSENKO defection. When NOSENKO was being considered for assignment to Geneva (in 1961), a summary statement of his activities was prepared in the Second Chief Directorate and sent to GRIBANOV. This summary contained considerable "compromising information" concerning NOSENKO; if acted upon properly, it would have removed him from consideration for this trip. GRIBANOV read the summary material, ran a line through all of it, and added the notation: "Send him to Geneva." The general feeling is that GRIBANOV was willing to overlook a lot of NOSENKO's deficiencies because of GRIBANOV's long-time friendship with NOSENKO's father.*
+
+(Reported to CIA by the FBI on 9 February-30 March 1965)
+
+GRIBANOV has been dismissed from the KGB, expelled from the CPSU, and is presently living on a small pension. His dismissal occurred immediately after NOSENKO's defection.** In addition, not less than 50 other people were dismissed, many of whom were close friends of GRIBANOV. Most of these were from the First and Second Chief Directorates, with the majority from the Second Chief Directorate. The present Acting Chief of the Second Chief Directorate is a Major General BANNIK, whose appointment has not yet been approved by the Central Committee of the CPSU. One of his deputies is a Major General (F.A.) SHCHERBAK.
+
+* NOSENKO said that his father and GRIBANOV were not acquainted.
+
+** GRIBANOV was reportedly in operational contact with a senior Western diplomat in Moscow as recently as late autumn of 1964. At that time he turned his contact over to another KGB officer.
+
+TECHS 401
+
+TOP SECRET
+4/14/65

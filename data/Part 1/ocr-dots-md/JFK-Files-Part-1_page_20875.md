@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_20875.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+<table><thead><tr><th></th><th>1. DATE OF REQUEST<br/>2 June 64</th></tr></thead><tbody><tr><td colspan="2">REQUEST FOR MEDICAL EVALUATION</td></tr><tr><td>2. NAME (Last, First, Middle)</td><td>3. POSITION TITLE<br/>PHILLIPS, David A. Ops Ofer</td><td>4. GRADE<br/>15</td></tr><tr><td>5. OFFICE, DIVISION, BRANCH</td><td colspan="2"><u>C. EMPLOYEE'S EXT.</u><br/>DDP/WH/3 x5909</td></tr><tr><td colspan="3">7. PURPOSE OF EVALUATION<br/><input type="checkbox"/> PRE-EMPLOYMENT<br/><input type="checkbox"/> ENTRANCE ON DUTY<br/><input type="checkbox"/> TOY STANDBY<br/><input type="checkbox"/> SPECIAL TRAINING<br/><input type="checkbox"/> ANNUAL<br/><input type="checkbox"/> RETURN TO DUTY<br/><input type="checkbox"/> FITNESS FOR DUTY<br/><input type="checkbox"/> MEDICAL RETIREMENT</td></tr><tr><td colspan="3"><input type="checkbox" checked/> MOOS/TOY<br/><input type="checkbox" checked/> OVERSEAS ASSIGNMENT<br/><table border="1"><tbody><tr><td>Eто<br/>3 July 64</td></tr><tr><td>STATION<br/>Return to Mexico City</td></tr><tr><td>TOY OR PCS<br/>PCS</td></tr><tr><td>TYPE OF COVER<br/>State Integree</td></tr><tr><td>NO. OF DEPENDENTS TO ACCOMPANY<br/>5</td></tr><tr><td>NO. OF DEPENDENTS' REPORTS OF MEDICAL HISTORIC (SF 69) ATTACHED<br/>-0</td></tr></tbody></table></td></tr><tr><td>8. OVERSEAS PLANNING EVALUATION (One block must be checked)<br/><input type="checkbox" checked/> YES<br/><input type="checkbox" checked/> NO</td><td colspan="2"><input type="checkbox" checked/> RETURN FROM OVERSEAS<br/><table border="1"><tbody><tr><td>ETA<br/>30 June 64</td></tr><tr><td>STATION<br/>Mexico City, Mexico</td></tr><tr><td>NO. OF DEP.'S<br/>5</td></tr></tbody></table></td></tr><tr><td colspan="3">9. REQUESTING OFFICER<br/><table border="1"><tbody><tr><td>SIGNATURE<br/>Murray Benthall</td></tr><tr><td>Murray Benthall WI/Pera Ofer</td></tr><tr><td>ROOM NO.<br/>GH 4407 Hqs</td><td>EXT.<br/>x5909</td></tr></tbody></table></td></tr><tr><td colspan="3">10. COMMENTS<br/>Will be in Hqs beginning 30 June until 3 July for TOY.</td></tr><tr><td colspan="3">11. REPORT OF EVALUATION<br/>QUALIFIED FOR PROPOSED O.S.O.C.<br/>PCS<br/>JOE W. CLINE</td></tr><tr><td>DATE<br/><input type="text" value="1964-06-08"></td><td colspan="2">SIGNATURE FOR CHIEF OF MEDICAL STAFF<br/><input type="text" value="J. D."></td></tr></tbody></table>
+
+FORM 10-59 259 USE PREVIOUS EDITIONS.
+
+SECRET
+
+(20)

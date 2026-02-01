@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_21258.png
+
+Convert to Markdown# DECLARATION OF APPOINTEE
+
+This form is to be completed before entrance on duty. Answer all questions. Admitted unfavorable information about such matters as arrests or discharges will be considered together with the favorable information in your record in determining your present fitness for Federal employment. However, a false statement or dishonest answer to any question may be grounds for dismissal after appointment and is punishable by law.
+
+<table><tr><td>1. PRESENT ADDRESS (street and number, city and State)</td></tr><tr><td>1436 21st St N.W.</td></tr><tr><td>&nbsp;</td></tr><tr><td>(2) DATE OF BIRTH</td></tr><tr><td>9/07/81</td></tr><tr><td>&nbsp;</td></tr><tr><td>(3) IN CASE OF EMERGENCY, PLEASE NOTIFY (RELATIONSHIP)</td></tr><tr><td>Mrs Geroldine Wisberl sister 1510 Brierley Ave</td></tr><tr><td>(C) TELEPHONE NO.</td></tr><tr><td>Utica, N.Y.</td></tr></table>
+
+4. DIES THE UNITED STATES GOVERNMENT EMPLOYEE, IN A CIVILIAN CAPACITY, ANY RELATIVE OF YOURS (EITHER BY BLOOD OR MARRIAGE) WITH WHOM YOU LIVED OR HAD LIVED WITHIN THE PAST 24 MONTHS ☐ YES ☑ NO
+
+If so, for each such relative All in the blank below. If additional space is necessary, complete under Item 12.
+
+<table><thead><tr><th rowspan="2">NAME</th><th rowspan="2">POST OFFICE ADDRESS<br>(Give street number, if any)</th><th colspan="2">(1) POSITION (C) TEMPORARILY OR NOT<br>(2) DEPARTMENT OR AGENCY IN WHICH<br>EMPLOYED</th><th rowspan="2">RELATIONSHIP</th><th rowspan="2">MARRIED<br>(Check one)</th><th rowspan="2">SINCE<br>GONE</th></tr></thead><tbody><tr><td></td><td></td><td>1.</td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>2.</td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>3.</td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>1.</td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>2.</td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>3.</td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>1.</td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>2.</td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>3.</td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+<table><tr><td>INDICATE ANSWER BY PLACING "X" IN PROPER COLUMN</td><td>YES</td><td>NO</td></tr><tr><td>5 (1) ARE YOU A CITIZEN OF THE UNITED STATES OF AMERICA, OR (C) AS A NATIVE OF AMERICAN SAMOA DO YOU HOLD RELEVANT TO THE UNITED STATES OF AMERICA</td><td>X</td><td></td></tr><tr><td>6 ARE YOU AN OFFICIAL OR EMPLOYEE OF ANY STATE, TERRITORY, COUNTY, OR MUNICIPALITY?</td><td></td><td>X</td></tr><tr><td>If your answer is "Yes," give details in item 12.</td><td></td><td></td></tr><tr><td>7 DO YOU RECEIVE OR HAVE YOU APPLIED FOR AN EARNINGS FROM THE UNITED STATES OR DISTRICT OF COLUMBIA? IF NO, INDICATE OTHER REASON WHY NOT</td><td></td><td>X</td></tr><tr><td>If your answer is "Yes," give details in Item 1

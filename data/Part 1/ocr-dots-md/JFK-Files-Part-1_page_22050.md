@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_22050.png
+
+Convert to Markdown(v) Developmental Operation Against ZUJUS
+
+(a) Introduction
+
+NOSENKO reported that he personally recruited and handled the "main agent" in the KGB developmental operation against U.S. Army Sergeant Matthew Peter ZUJUS, although GRYAZNOV was the officer responsible for the ZUJUS case.
+
+military officer posted to Moscow for training,
+
+was used only in this operation, but NOSENKO continued to meet him even after transferring from the U.S. Embassy Section to the Tourist Department. While being interrogated in February 1965, NOSENKO said that [he] could vouch for his bona fides,
+
+and he suggested that CIA approach [him] for this purpose."
+
+ZUJUS arrived in Moscow in September 1961 to assume the military code clerk duties of STORSBERG (see above), and he remained there until January 1963. After initially confusing ZUJUS with James KEYSERS**, NOSENKO first described the KGB operation against him in February 1964. According to NOSENKO, neither [he] nor any other source supplied significant information to the KGB, and the KGB therefore did not attempt to recruit ZUJUS. Claiming not to know the names of KGB agents besides [the] who participated in the operation,
+
+NOSENKO nevertheless in other contexts has mentioned two female agents who reportedly associated with ZUJUS. One is Ella UNANETS, the other an East German woman posing as an Austrian. NOSENKO indicated the latter was in contact with MORONE (see above), whereas it is clear that ZUJUS was the American code clerk who met this woman. The date that she and ZUJUS were together, however, falls during the summer of 1962 when, NOSENKO said, he was no longer engaged in operations against the U.S. Embassy.
+
+(b) Information from NOSENKO
+
+The first reference by NOSENKO to the ZUJUS case was made on 2 February 1964:
+
+**NOSENKO:** With respect to ZUJUS, I'll tell you exactly what we tried to do with him because I spotted this in some notes. This mistake [confusion of KEYSERS and ZUJUS] made me so mad, I completely forgot about ZUJUS until I saw my little note. In 1961 I recruited a Syrian who was from Damascus.
+
+used to go to the American club, and he became acquainted with ZUJUS. The reason why they had something in common was that sometime earlier ZUJUS had been stationed in Lebanon and the Syrian himself was from Damascus, which is a relatively short distance away... Here is his name. He wrote it out himself. It is [his] address, and he wrote out his own address
+
+*** The KEYSERS case is discussed in the next part of this paper.

@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_22044.png
+
+Convert to Markdown* NOSENKO has also mentioned a prohibition on recruitment attempts during the 1959 Sokolniki exhibition because of the need to avoid incidents affecting U.S.-Soviet relationships. GOLITSIN told CIA of such a prohibition placed on the use of homosexual compromise material, against a U.S. Embassy employee in 1960 because of the impending visit of President EISENHOWER to the Soviet Union. As a result of the U-2 incident on 1 May 1960, this visit never took place, and U.S.-Soviet relations deteriorated. Throughout the rest of 1960 and most of 1961 they remained very strained, and Soviet pressures and hard lines culminated in the Berlin crisis and wall-building in Berlin in August of 1961.
+
+TOP SECRET

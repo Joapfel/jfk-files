@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_20799.png
+
+Convert to Markdown(3) C81-250-72 TO: CLANAGT SERVICES REFERRING SYSTEM AREA DIVISIONS, CHAPTER II, THE NATIONAL NOTIFICATION PROCESS, DATED 20 MAR 2001
+
+b. POSTING (See below)
+
+(1) R 26-14 AS/NZS ITL: SERVICE SAL ts 26 March 1995
+
+2) R 28-13A - POSTING SYSTEM - ERROR, DATED 21 MARCH 1995
+
+3) R 28-14 - APPROVED AND PUBLISHED ISB: 12:00 TO 09:00 19 MAR 2001, DATED 21 APRIL 2001, AT 2:00
+
+4) Col 28-1 - The Title is 280, roll number 35.
+
+5) Col 28-3 - CLARITY SLIP COPY FOR DISTRIBUTION ONLY. DO NOT SHARE WITH 3RD PARTIES. CHECKMARKED FOR DISTRIBUTION, DATED 19 AUGUST 1993, AT 8:30AM.
+
+(6) and (7), JAPAN HAS RECEIVED THE DOCUMENT ON 28 DECEMBER 1995.
+
+The information is a confidential document to be read only by the addressee named above. It may not be used or disclosed without prior written permission from the addressee.
+
+JAPAN
+
+NEW YORK
+
+MAR 20 1995
+
+VI
+
+THE DOCUMENT INHERITS ALL RIGHTS UNDER COPYRIGHT LAW, including the right to prepare
+a translation of the document in any language and to distribute such a translation to any third party.

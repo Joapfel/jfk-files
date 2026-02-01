@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_21014.png
+
+Convert to MarkdownSECRET
+
+27 June 1973
+
+MEMORANDUM FOR: Office of Finance
+FROM : EUR/Contract Personnel
+SUBJECT : Changes in Financial Analysis Number
+Personal Services of Thomas B. CASASIN (P)
+OBJECT CLASS:
+
+It is requested that the cost of personal services for subject Career Agent K&AAWAKAANBA& be changed, effective the pay period beginning 1 July 1973 from Financial Analysis Number 3131-4292 to 4136-4292 (UNSAVANT)
+
+EUR DIVISION BUDGET OFFICER
+
+SECRET
+
+ATTACHMENTS
+Special Controlling Officer

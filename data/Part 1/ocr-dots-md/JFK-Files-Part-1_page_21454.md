@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_21454.png
+
+Convert to MarkdownSECRET
+
+7 February 1961
+
+Antin *NYKYPORUK*, born the first of January 1912 in Karkow (Ukraine), bachelor, has most recently lived at 86 rue de Montreuil-arrived in France in 1950.
+
+He first of all was a manual laborer, and then an electrician.
+
+Bothered with mental troubles, he has been interned since 1944 in various psychiatric hospitals.
+
+His last stay was in 1959 at Villejuif.
+
+Since his departure, his activity and sources of income have not been known because his unemployment payment has been refused by the "Bureau de la Main d'Oeuvre".
+
+His ordinary resident's card has lapsed since 16 August 1960 and he is actually violating the law for Foreigners.
+
+It is a question of a violent individual when he has his mental crises.
+
+On several occasions the police have intervened to control him before intermittent.
+
+CONTINUED
+SECURE
+MACHINE
+
+SECRET

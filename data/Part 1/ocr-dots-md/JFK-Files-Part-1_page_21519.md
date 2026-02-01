@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_21519.png
+
+Convert to MarkdownSECRET
+
+little or no value in assessing the bona fides or non-bona fides of NOSENKO. An expose of his youthful indiscretions, of which he has admitted a number, is of no import in a discussion of whether NOSENKO was or was not dispatched by the KGB. Obtaining any collateral first-hand information in regard to NOSENKO before 1945 would be of negligible value, but there actually is supporting information from Nikolay ARTAMONOV, a defector from the Soviet Navy, concerning the claimed attendance by NOSENKO at a military-naval preparatory school in Leningrad.
+
+NOSENKO, during current interviews, has stated that he graduated from the Institute of International Relations in 1950 and had attended the Institute since 1945. He has explained that he should have graduated in 1949 since it was a four-year course, but failed the final examination in Marxism and therefore was required to attend the Institute for a longer period of time and again take his final examinations.
+
+Based on information furnished by NOSENKO concerning co-students and the Institute, there is no reason to doubt that he actually attended and graduated from the Institute of International Relations in 1950. The previous controversy in this matter was complicated by NOSENKO who, in 1964 after his defection, stated in a biography that he had graduated from the Institute in 1949. Actually this statement
+
+0001027
+
+SECRET

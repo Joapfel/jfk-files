@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_21633.png
+
+Convert to MarkdownSECRET
+
+C. NOSENKO DID NOT SERVE IN THE AMERICAN EMBASSY SECTION THROUGHOUT THE 1953 - 1955 PERIOD AS HE CLAIMED
+
+G001139
+
+SECRET
+
+<table><tr><td>EPO</td></tr><tr><td>ESTABLISHED AUTOMATIC</td></tr><tr><td>CONVERTING AEGO</td></tr></table>

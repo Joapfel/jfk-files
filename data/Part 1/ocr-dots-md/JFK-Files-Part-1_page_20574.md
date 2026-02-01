@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_20574.png
+
+Convert to Markdown<table><tr><td colspan="4">SENDER WILL CHECK CLASSIFICATION TOP AND BOTTOM</td></tr><tr><td>UNCLASSIFIED</td><td></td><td>CONFIDENTIAL</td><td></td><td>SECRET</td></tr><tr><td colspan="5">OFFICIAL ROUTING SLIP</td></tr><tr><th>To</th><th>Name and address</th><th>Date</th><th>Initials</th><th></th></tr><tr><td>1</td><td>Chief, TRB</td><td></td><td></td><td></td></tr><tr><td>2</td><td></td><td></td><td></td><td></td></tr><tr><td>3</td><td></td><td></td><td></td><td></td></tr><tr><td>4</td><td></td><td></td><td></td><td></td></tr><tr><td>5</td><td></td><td></td><td></td><td></td></tr><tr><td>6</td><td></td><td></td><td></td><td></td></tr><tr><td>ACTION</td><td>DIRECT REPLY</td><td>PREPARE REPLY</td><td></td><td></td></tr><tr><td>APPROVAL</td><td>DISPATCH</td><td>RECOMMENDATION</td><td></td><td></td></tr><tr><td>COMMENT</td><td>FILE</td><td>RETURN</td><td></td><td></td></tr><tr><td>CONCURRENCE</td><td>INFORMATION</td><td>SIGNATURE</td><td></td><td></td></tr><tr><td colspan="5">Remarks:<br/>Janet: Please file the attached document in the Official Personnel Folder on E. Howard Hunt. The Hunt OPF was returned to you for retention on 6 May 1976. Thanks.</td></tr><tr><td colspan="4">FOLD HERE TO RETURN TO SENDER</td><td></td></tr><tr><td colspan="2">FROM: NAME, ADDRESS AND PHONE NO.</td><td>DATE</td><td></td><td></td></tr><tr><td>Bonnie, OD/Pers</td><td></td><td>21 May 76</td><td></td><td></td></tr><tr><td>UNCLASSIFIED</td><td></td><td>CONFIDENTIAL</td><td></td><td>SECRET</td></tr></table>
+
+(40) 237 Use previous editions
+
+FORM NO. 1-87
+
+14-00000

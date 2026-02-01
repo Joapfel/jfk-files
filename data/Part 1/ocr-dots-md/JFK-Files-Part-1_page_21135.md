@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_21135.png
+
+Convert to MarkdownSECRET
+TSS EVALUATION
+
+**NAME** Jack Richardson **Div.** SR
+
+**SUBJECT** Audio
+
+**DATES TRAINED** FROM 20 Nov. 1954 TO 3 Dec. 1954
+
+EVALUATION: Although lacking a background in electronics, Mr. Richardson was able to grasp the instructions given and correctly interpret it. I feel that Mr. Richardson would be able to correctly evaluate audio opportunities and to equip and direct such an operation with the exception of the telephone tap. Mr. Richardson is not qualified to perform maintenance on the equipment.
+
+CARL S. MCCONNEL
+
+Please return three copies of this form to TSS/TD.
+
+Distribution:
+
+1 - TLO ✓
+1 - OTR/Registrar
+1 - TSS/TD files
+
+SECRET
+
+14-00000

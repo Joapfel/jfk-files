@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_22258.png
+
+Convert to Markdown665.
+
+(11) Remarks
+
+The completeness and accuracy of NOSENKO's information on
+the compromise of POPOV, supported as it is by the
+CHEREPANOV document and POPOV's message but contradicted by
+GOLITSYN and analytical evidence, cannot be finally evaluated.
+Only with resolution of the bona fides of NOSENKO can a judgment
+be made on this part of his production.

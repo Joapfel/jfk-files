@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_21669.png
+
+Convert to Markdownthere is no doubt that the hostile interrogation has confused matters to
+the point where complete clarification appears impossible. In any event,
+one thing is clear -- since he may well have transferred out of the First
+Section, First Department, by 31 December 1961 and most certainly had
+transferred by early January 1962, the fact that NOSENKO has supplied
+confused information regarding the Pushkin Street affair cannot be used
+to impugn his claim to having been case officer for ABIDIAN from early
+1960 until late 1961. Furthermore, the fact that NOSENKO is not able to
+properly date the visit of ABIDIAN to Pushkin Street, is in no way indicative
+of KGB dispatch. If dispatched, NOSENKO presumably would have had the
+date right.
+
+In regard to (b), the responsibility of NOSENKO for preliminary re-
+view of reports from OTU (Technical Unit of KGB) of "take" from micro-
+phones in the United States Embassy, the previous conclusion was that his
+claim that he personally reviewed the KGB monitoring reports was not
+sustained.
+
+It is not felt that the previous conclusion made sufficient allow-
+ance for the explanation of NOSENKO of what the responsibility actually
+entailed. Information from microphones in the United States Embassy,
+according to NOSENKO, was handled very specially. Telephone inter-
+cepts were given to a designated officer for distribution to the appropriate
+case officer, but microphone reports, to prevent wide dissemination even
+within the First Section, were brought daily to the Deputy Chief or in his
+absence to the Chief and then were distributed to the individual responsible
+
+001175

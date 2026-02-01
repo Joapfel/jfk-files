@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_20971.png
+
+Convert to MarkdownSecurity Information
+
+13 June 1952
+
+MEMORANDUM FOR: Record
+SUBJECT: PROOF L Amendment #1
+
+1. This date copy number four of subject project has been forwarded to Mr. William Rowland for approval in view of the fact that the original and copies number two and three have been temporarily replaced.
+
+2. As amendment number one to PROOF L covers no substantive operations it has not been coordinated with Security and Cover.
+
+3. It is requested that approval of subject project amendment be given as soon as possible in view of the urgency of action as stated in the project itself.
+
+HONFR BRETTE, Jr.
+Wt/Project Coordinator
+
+W/D/HB/jo
+
+Distribution
+
+Orig: CO/CO
+
+cc: Social Contracting Officer (Mr. J.L. Bischoff)
+CM (Mr. Ernest W. Pittman)
+Chief, Branch I
+Project File PROOF L/PD/F&O
+Chrono P&O
+
+S-6409-SG-2
+Security Classification

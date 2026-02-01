@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_20465.png
+
+Convert to MarkdownSECRET
+
+(when Filled In)
+
+<table><thead><tr><th colspan="4">SECTION III CONTINUED FROM PAGE 1</th></tr></thead><tbody><tr><td>21. DATES OF MILITARY SERVICE (From and To.) by MONTH AND YEAR<br/>USNR July 1940- Oct. 1942</td><td colspan="3">USAAP Nov 1943- Feb. 1946</td></tr><tr><td>22. BRANCH OF SERVICE<br/>USNR USAF</td><td colspan="3">23. COUNTRY WITH WHICH MILITARY SERVICE AFFILIATED<br/>USA</td></tr><tr><td colspan="4">24. DETAILS OF OTHER GOVERNMENT SERVICE, U.S. ON FOREIGN ECA, Paris April 1948 - Feb. 1949</td></tr><tr><td colspan="4">SECTION IV RELATIVES BY BLOOD, MARRIAGE OR ADOPTION LIVING ABROAD OR WHO ARE NOT U.S. CITIZENS</td></tr><tr><td>1. FULL NAME (Last-First-Middle)<br/><br/>2. ADDRESS OR COUNTRY IN WHICH RELATIVE RESIDED<br/><br/>3. CITIZENSHIP (Country)<br/><br/>4. FULL NAME (Last-First-Middle)<br/><br/>5. FREQUENCY OF CONTACT<br/><br/>6. RELATIONSHIP (Country)<br/><br/>7. DATE OF LAST CONTACT<br/><br/>8. AGE<br/><br/>9. SPECIAL REMARKS, IF ANY, CONCERNING THESE RELATIVES</td><td>2. RELATIONSHIP<br/><br/>3. AGE</td><td colspan="2"></td></tr><tr><td colspan="4"><strong>FINANCIAL STATUS</strong></td></tr><tr><td>1. ARE YOU ENTIRELY DEPENDENT ON YOUR SALARY?<br/><br/>2. IF YOUR ANSWER IS "NO" TO THE ABOVE, STATE SOURCES OF OTHER INCOME<br/><strong>Book royalties</strong></td><td>YES</td><td>X</td><td>NO</td></tr><tr><td colspan="4"><strong>BANKING INSTITUTIONS WITH WHICH YOU HAVE ACCOUNTS</strong></td></tr><tr><td colspan="2"><table><thead><tr><td>NAME OF INSTITUTION</td><td>ADDRESS (City, State, Country)</td></tr></thead><tbody><tr><td>Riggs Nat'l Bank, P&amp;M Branch</td><td>Washington 7, DC</td></tr><tr><td colspan="2"></td></tr><tr><td colspan="2"></td></tr><tr><td colspan="2"></td></tr><tr><td colspan="2"></td></tr><tr><td colspan="2"></td></tr></tbody></table></td><td colspan="2"></td></tr><tr><td colspan="4">SECTION V CONTINUED TO PAGE 3</td></tr></tbody></table>
+
+SECRET
+2

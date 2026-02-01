@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_20811.png
+
+Convert to MarkdownCONFIDENTIAL
+
+D. A. Phillips
+
+5 JUN 1974
+
+Dear Dave,
+
+You have just finished an important albeit grueling GS-16 Evaluation Exercise at my direction. The recommendations for promotion and executive development you gave me were a major factor in my recommendations to the Director for the upward movement of officers who will be the top management cadre of the Directorate in the near future.
+
+I believe you will find that the last several weeks will have sharpened your focus on one of our most important management responsibilities, our personnel. Many thanks for a job well done.
+
+E2 IMPDET CL BY 056788
+
+CONFIDENTIAL

@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_22363.png
+
+Convert to MarkdownTOP SECRET
+
+C.
+
+B. of the U.S.
+1. General Directorate of Intelligence
+
+On 14 June 1962, after CIA's initial meetings with KOSENKO and secure of the large overlap of KOSLENKO'S information and contacts with GOLITSYN's, one of the CIA case officers who had met KOSENKO in Geneva not with GOLITSYN but to obtain his comments on some of the KOSENKO material. GOLITSYN was told that CIA had received an intelligence: an anonymous letter which reported certain informa- tion from all the FGB. The CIA officer stated to GOLITSYN that he needed to know about the FGB. He asked if CIA had received any other information from him, including a list of other agencies. GOLITSYN's first GJB, was distributed, perhaps in order to assist CIA's own investigation. In 1963, two assets from KOSENKO's network were eliminated. The first asset, a second Chief, was shown him, who fed as targets of Security Chief Directorate personnel whom the latter ordered to be eliminated. Assets of the second Chief (and KOSENKO) were also used by the second asset, the second Second Chief. In 1964, the first asset was identified as KGB and later that organization in 1964 for the first time. GOLITSYN said to his general, asking the full details necessary for an assessment, to could say what their were of disinformation in what he had seen; he wanted to see the dis- information on the case. It was not given to him.
+
+On 10 February 1964 KOSENKO's delegation to the Soviet Dis-
+armament delegation in Geneva, Switzerland was publicized, includ-
+ing his KGB affiliation. Since GOLITSYN heard this news he immedi-
+ately recalled the June 1962 "letter" from Switzerland and linked
+KOSENKO to it; he thereupon stated that he recalled KOSENKO as a
+member of the Second Chief directorate working against American
+citizens.
+
+On 31 February 1964 GOLITSYN raised the possibility of his
+participation in interviews of KOSENKO, and at this time he
+was given some background on the man, and an indication of CIA's
+reservations about KOSENKO's long ties. Over the next several
+months GOLITSYN was provided with material from the 1962 and 1964
+meetings with KOSENKO in Switzerland, and at his request was
+supplied with all the available biographic data of KOSENKO to
+assist him in analyzing the operation. On 29 June 1964, GOLITSYN
+was interviewed in detail on the subject of KOSENKO. He confirmed
+KOSENKO's identity as the son of the former Minister of Ship-
+building and said that he was a KGB officer who had worked in the
+American Department and the Tourist Department at the KGB's Second
+Chief Directorate. He was shown a photograph of KOSENKO (not
+buried in a photo spread, but somehow) and he identified it as a
+photograph of the man he knew. At this time he gave the information
+about KOSENKO which is summarized below.
+
+TOP SECRET
+
+~~GOLITSYN Raising the possibility of his participation in interviews of KOSENKO, and at this time he was given some background on the man, and an indication of CIA's reservations about KOSENKO's long ties. Over the next several months GOLITSYN was provided with material from the 1962 and 1964 meetings with KOSENKO in Switzerland, and at his request was supplied with all the available biographic data of KOSENKO to assist him in analyzing the operation. On 29 June 1964, GOLITSYN was interviewed in detail on the subject of KOSENKO. He confirmed KOSENKO's identity as the son of the former Minister of Shipbuilding and said that he was a KGB officer who had worked in the American Department and the Tourist Department at the KGB's Second Chief Directorate. He was shown a photograph of KOSENKO (not buried in a photo spread, but somewhat) and he identified it as a photograph of the man he knew. At this time he gave the information about KOSENKO which is summarized below.~~

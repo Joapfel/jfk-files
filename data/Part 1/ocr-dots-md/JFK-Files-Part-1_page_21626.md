@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_21626.png
+
+Convert to MarkdownB. NOSENKO did not enter the KGB in the manner or at the time claimed. (Previous conclusion)
+
+The above is conclusion "B" in the previous summary in regard to NOSENKO. The conclusion in this summary is that NOSENKO entered the then Second Chief Directorate, MVD, in mid-March 1953 and that his entry was not only facilitated by but due to the influence of General Bogdan Zakharovich KOBULOV.
+
+Previous statements by NOSENKO and changes relative to date of entry into the KGB have been mentioned in another section of the summary and will not be repeated here. His statements during current interviews that he entered on duty in mid-March 1953 as a case officer in the First Section, First Department, Second Chief Directorate, MVD, are considered adequately substantiated and should be accepted.
+
+The conclusion of the previous summary (pages 61-74) that NOSENKO did not enter the KGB in the manner or at the time claimed was primarily based on conflicting statements by NOSENKO as to when he entered the KGB (MVD). In 1962 NOSENKO said March 1953 and in 1965 NOSENKO again said March 1953, soon after the death of STALIN.
+
+SECRET
+
+0001132
+
+<table><tr><td>GROUP 1</td></tr><tr><td>Excluded from automatic<br/>downgrading and<br/>declassification</td></tr></table>

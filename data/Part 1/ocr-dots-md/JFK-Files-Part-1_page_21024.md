@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_21024.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="4">FIELD REASSIGNMENT QUESTIONNAIRE</th></tr><tr><td colspan="2">DO NOT COMPLETE - FOR HEADQUARTERS USE ONLY</td><td colspan="2"></td></tr></thead><tbody><tr><td>NAME OF EMPLOYEE (Please provide only if SA.)<br/>Thomas B. Casasin</td><td>DATE(From - To)<br/>26 Sept 73</td><td>NAME OF SUPERVISOR (true)<br/>David E. Murphy</td><td>DATE (from - To)<br/>30 Sept 73</td></tr><tr><td>DATE RECEIVED AT HEADQUARTERS<br/>20 Oct 73</td><td>DISPATCH NUMBER<br/>OFAT4785</td><td>DATE RECEIVED BY CAREER SERVICE<br/><strong>TO BE COMPLETED BY EMPLOYEE</strong></td><td></td></tr><tr><td>I. DATE OF BIRTH<br/>20 Jan 73</td><td>2. SERVICE DESIGNATION<br/>CS</td><td>3. YOUR CURRENT POSITION: TITLE AND GRADE<br/>ACG, Car Abodo, 0515</td><td>4. STATION ON BASE<br/>Paris</td><td>5. CRYST FOR CURRENT COVER<br/>UNCAID.D</td></tr><tr><td>B. DATE OF PCS ARRIVAL IN FIELD<br/>10 Sep 62<br/>3 Apr 72</td><td>C. REQUESTED DATE OF DEPARTURE<br/>a/a 15 May 1974</td><td>D. EXPECTED DATE OF FIRST CHECK-IN AT NO<br/>a/a 20 May 1974</td><td>E. DESIRED DATE TO REPORT TO DUTY AFTER LEAVE<br/>base</td><td></td></tr><tr><td colspan="5"><strong>7. NUMBER AND AGES OF DEPENDENTS WHO WILL TRAVEL WITH YOU!</strong><br/>1 daughter, aged 20 (already actually back at her university)</td></tr><tr><td colspan="5"><strong>8. PERSONAL CIRCUMSTANCES THAT SHOULD BE CONSIDERED IN DETERMINING NEXT ASSIGNMENT:</strong><br/>My two-year contract with UNCAIPD ends officially 14 May 1974; it is, theoretically, renewable.</td></tr><tr><td colspan="5"><strong>9. LIST YOUR MAJOR DUTIES DURING CURRENT TOUR (see special note on transmittal form).<br/>(also attach personal cover questionnaire in accordance with CSI-F 240-8)</strong><br/>Have continued my spotting and assessment functions, mainly of MIGSAM H and TARPAN individuals on a selected basis but of third and fourth nationals as well. Have concentrated on two particular MIGSAM targets, while assuming new cover responsibilities and managing a fairly large-scale, authentic cover property in the field of news communication. Have also responded to station investigative needs in fields other than my own, and have maintained a continuing relationship with a high-level, well placed FJMA in political-technical assessment personality. Have also developed a minor, yet well-placed, individual personality in the field of technical innovation and management.<br/>Have arranged to travel to various venues of technical and scientific meetings for appropriate coverages of personalities or substance, as the case required.</td></tr><tr><td colspan="5"><strong>10. TRAINING DESIRED:<br/>INDICATE WHAT TRAINING YOU BELIEVE YOU SHOULD HAVE DURING THE NEXT SEVERAL YEARS</strong><br/>I believe that there is none indicated at the present time, especially in view of the time and schedule demanded by my cover functions.</td></tr></tbody></table>
+
+FORM 5-63
+
+202
+
+OBSOLETE PREVIOUS
+EDITIONS
+
+SECRET
+
+(4)

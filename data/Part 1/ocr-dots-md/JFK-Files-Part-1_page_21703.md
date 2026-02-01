@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_21703.png
+
+Convert to Markdownwas to discuss the possibility of temporarily discontinuing certain Embassy "points" controlled by the First Section, and permitting PETROV to use these "points" against targets of his section.
+
+According to NOSENKO, PETROV brought to the meeting a list of names of certain targets to which he wished to give technical coverage. During the meeting, KOVSHUK apparently took a piece of paper which PETROV had and wrote on it a list of active microphones in the United States Embassy and residences. When the meeting ended, NOSENKO had this paper and he took it back to his office.
+
+Contained on the reverse side of the paper were the following names in Russian: [LUBIN, SMITH, WILL BURTIN] and [Sipe BURTON]. The name A. A. MIKHAYLOV was listed next to the name of [LUBIN] 06 and the name of Y. E. CHERNETSEV was listed next to the name of [SMITH]. NOSENKO has explained that [LUBIN, SMITH, WILL BURTIN] 06,06,06 and [Sipe BURTON] were among the targets of PETROV; and MIKHAYLOV and CHERNETSEV were officers of the Second Section.
+
+NOSENKO stated he knew nothing more about the four non-Soviet names except that they were targets of PETROV. NOSENKO stated that he could not be positive of the date of the meeting other than that it occurred while KLYPIN was Chief of the First Department. (According to NOSENKO, KLYPIN was succeeded by Sergey M. FEDOSEYEV as
+
+00012C9
+
+SECRET
+
+6/BR

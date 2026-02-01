@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_21275.png
+
+Convert to MarkdownCONFIDENTIAL
+(When Filled In)
+
+SECURITY APPROVAL
+
+DATE : 20 November 1965
+
+YOUR
+REFERENCE: Memorandum dated 18 November 1965
+
+CASE NO. : 109301
+
+TO : Director of Personnel
+
+ATTN :
+
+SUBJECT : WILCOTT, James B., Jr.
+
+1. This is to inform you that Subject has been approved for the appointment specified in your request under the provisions of Headquarters Regulations 10-3 and 20-5 including access to classified information through TOP SECRET as required in the performance of duties.
+
+2. Unless arrangements are made within 60 days for entrance on duty within 120 days, this approval becomes invalid.
+
+3. As part of the entrance on duty processing:
+
+☐ A personal interview in the Office of Security must be arranged.
+
+XXX A personal interview is not necessary.
+
+☐ Please advise Chief, Clearance Branch, extension 5620 when Subject enters on duty.
+
+4. This is a conversion case.
+
+FOR THE DIRECTOR OF SECURITY:
+
+Steven L. Kuhn
+Chief, Personnel Security Division
+
+CONFIDENTIAL
+
+1173
+
+COMPLETE PREVIOUS
+VERSIONS
+
+(8)

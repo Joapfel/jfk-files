@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_22089.png
+
+Convert to Markdowng. Electronic Operations Against the U.S. Embassy
+
+(i) Introduction
+
+NOSENKO had three basic pieces of information on KGB audio and other electronic operations against the U.S. Embassy in Moscow: The presence of microphones in the chancery building, the absence of audio-technical devices in the north wing of the Embassy, and the existence of a beam which monitors and jams transmissions from the Embassy. These are discussed separately below. Except for knowing that a resonant cavity (wireless) microphone had been found in the American Ambassador's residence in 1953, NOSENKO said he was unaware of audio surveillance devices and techniques (other than the chancery microphones) in use against the Embassy, nor did he know of any material produced by such measures. NOSENKO told CIA on 14 May 1964 that, to the best of his knowledge, there were no wireless microphones (i.e., carrier transmitters and radio transmitters) in the Embassy.* His information on KGB electronic operations against this target dated mainly from the period when he was Deputy Chief of the U.S. Embassy Section, American Department, KGB Second Chief Directorate, in 1960-1961 and derives from his special responsibilities in this period; from his 1953-1955 service in the American Department, NOSENKO said, he learned only that audio installations existed.
+
+(ii) Microphones in the Chancery
+
+Frequently described by NOSENKO as his most important information, the microphones in the chancery building were first mentioned by him during the 1962 meetings in Geneva. In these and subsequent debriefings NOSENKO reported in detail on the ways in which he acquired this information, on the number and locations of the microphones, the quality of reception, and the value of production. He has not given the date when the microphones became operative, but presumed (in agreement with the KGB defector GOLITSYN) that they were installed prior to 1953, when the chancery was occupied by U.S. Government representatives.** Of the 16 microphones listed by NOSENKO, he has stressed the importance of the one in the office of the Minister Counsellor, the existence of which was earlier reported by GOLITSYN and subsequently confirmed by technical investigations. In 1962 NOSENKO said that the audibility of the nine-year-old
+
+*NOSENKO stated that the KGB knew the identity of American counter-audio technicians and therefore turned off the microphones whenever any of them arrived at the Embassy. Since a microphone-and-wire system cannot be turned off, this remark suggests either that there was an external power source for the microphones, which NOSENKO has not mentioned, or that NOSENKO himself did not have rudimentary knowledge of such matters.
+
+**The investigations by American technicians leave no doubt that the microphone-and-wire system would have had to be in place at the time of occupancy."

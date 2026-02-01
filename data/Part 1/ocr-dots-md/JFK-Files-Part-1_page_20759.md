@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_20759.png
+
+Convert to MarkdownS-E-C-R-E-T
+---
+
+**TRAINING REPORT**
+
+Course # 3/71
+
+Specialized Training in Weapons for
+Self-Defense and Countermeasures Against
+Vehicular Kidnapping
+
+Date: 2-5 February 1971
+
+Trainee: PHILLIPS, David A.
+
+Office: WH
+
+Purpose and Scope of the Course:
+
+The course provides basic proficiency training in the use of weapons for self-defense and in the techniques of evasive driving to counter vehicular kidnapping for Agency officers being assigned to hostile or unstable political and operational environments abroad.
+
+Achievement Record:
+
+This is to certify that Mr. Phillips has satisfactorily completed the prescribed course of instruction.
+
+FOR THE DIRECTOR OF TRAINING:
+
+CHIEF, SPECIAL ACTIVITIES BRANCH
+
+DATE
+
+10 February 1971
+
+S-E-C-R-E-T

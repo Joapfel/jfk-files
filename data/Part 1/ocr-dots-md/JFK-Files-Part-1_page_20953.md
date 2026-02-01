@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_20953.png
+
+Convert to MarkdownSECRET
+
+Mr. Michael M. Choaden
+
+Dear Mr. Choaden:
+
+Reference is made to your contract with the United States Government, as represented by the Contracting Officer, effective 19 August 1958.
+
+Effective 19 August 1958, said contract is amended in the following manner:
+
+(a) The first sentence of paragraph one (1), entitled "Compensation," is deleted and in lieu thereof the following sentence is substituted:
+
+"In full consideration for the purchase of such information and services you will be compensated in an amount calculated at the rate of $7200 per annum except that for those periods of time during which you are performing services necessitating certain specialized professional skills on a full time basis outside of the country of your present permanent assignment, you will be compensated at the rate of $13,000 per annum."
+
+(b) The following paragraph is added after paragraph six (6), entitled "Term":
+
+"7. Travel and Operational Expenses. While performing those tasks for which you will be compensated at the rate of $13,000 per annum, as set forth in paragraph one (1) above, you will be advanced or reimbursed funds for necessary expenses incurred in connection with such operational travel as may be directed or authorized by the Government. This may include per diem in lieu of subsistence in the course of such travel and while on temporary duty away from your permanent post of assignment overseas. In addition, you will be advanced or reimbursed funds for necessary operational expenses as specifically approved by the Government. Payment and accounting for the items set forth herein will be in conformance with applicable Government regulations."
+
+All other terms and conditions of the contract remain in full force and effect.
+
+You will please indicate your approval by signing in the space provided below.
+
+UNITED STATES GOVERNMENT
+
+BY Contracting Officer
+
+ACCEPTED:
+Michael M. Choaden
+WITNESS:
+APPROVED:

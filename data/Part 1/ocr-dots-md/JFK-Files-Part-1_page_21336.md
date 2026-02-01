@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_21336.png
+
+Convert to Markdownhad been decorated with the iron cross. Our informant thinks that they have more losses than they confess to (all those he spoke with were Falangist students), and that in the casualty lists published only the names of the most important are given. In Spain everyone admires the courage of the Legionaries and praises them twice as much as the Germans do. He insists that they are all volunteers, and says in his own words - "a few idealists and the rest, the immense majority, because they were in a bad position in Spain and could get no work or food. They want into the Div. Anul in order to earn a good living because they are paid at the German rate and a war bonus, plus an allowance and large indemnity in case of death". Besides, if they are brave they can desert, when they go on leave they have millions of pts. in their pockets and can "put on airs and pose as heroes in their uniforms and their iron crosses in Spain". He says that although the lists are closed, there are thousands who are ready to leave at a day's notice, and that he "knows several." They said they celebrated Christmas very happily in February as they sent them tobacco and food from Spain.
+
+He says that in Spain there is a lot of talk about the war, although no one bothers about politics at all now, and only about food. There are all sorts of parties, partisans of the Allies and the Germans, and among his friends the people are mostly partisans of the Germans; he also thinks the majority of Spaniards are on the side of the Germans and among the 150 in his university hall only two were partisans of Democracy and they had fierce arguments in loud voices until the director came. The partisans of the Masis maintained that anyone who wanted England to win was not a Spaniard because of the Democracies won Prieto will come back and all the Redsf of the Republic, and there will be a government of Leftists and in this fashion they attack the defenders of England. The students say - "We are very fond of Germany, because she helps us to be free of communism and is now defending us against it." He says that this appeals to many people who also hate communism.
+
+## SECOND FRONT.
+He says that no one believes it will be established. The Germans cannot invade England, nor can the English invade Europe. All Spaniards would unite to defend themselves from the English. They would do the same if the Germans invaded Spain.
+
+## ON THE WAR.
+He said that the Spanish idea was that it would last five or six years and that when they were all exhausted there would be an armistice or negotiated peace. This is the opinion of the people on the Right and the Falangists; he does not know the views of the rest. France said in a speech - "If the Russians make a breach and arrive at Berlin, he will send two million men to fight communism". They do not attack the Republicans much, but blame the Russian agents and the Communists for all that is happening in Spain. He says that in Madrid there are hundreds of aeroplanes and many fields full of tanks. The Germans have war material on the frontier in fantastic quantities. He thinks that is in order to be in a position to assist either France or Spain if it were necessary.
+
+## FRICTION.
+He says that there are no disagreements between the Requetes, Falangists or Catholics; they are all united, and if there were any friction there are no scenes or quarrels because the "Generalissimo" would shoot them.
+
+## FRENTE DE LA JUVENIENTO.
+He says that it was a failure, that at the beginning many people were excited by the propaganda, then they got tired and practically the Youth Front does not exist.
+
+## STUDENTS.
+These are all very happy to be members of the S.E.U. because they avoid military service. The S.E.U. is obligatory. They only corps they have to belong to is the University Militia. In summer they go to camps where they have military instruction and are commanded by students who are officers with some officers from the Army.
+
+## RESISTANCE OF THE PEOPLE.
+There is none at all. In Spain there is a totalitarian Government favourable to the Germans. In totalitarian countries there are no protests or any resistance because anyone who resisted would be shot. There are discontented people but they are silent, they do not speak because they cannot. I have seen no inscription on the walls of Cijon, the only thing there are a few robbers, the so-called Guerilleros, who rob, kill

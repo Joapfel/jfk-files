@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_22387.png
+
+Convert to Markdownthe time of the defection, GRIBANOV was a personal friend of NOSENKO and had more or less treated NOSENKO as a protégé and had taken many steps to further NOSENKO's career within the KGB.* It was felt that GRIBANOV should have been aware of NOSENKO's plans to defect.
+
+Three of GRIBANOV's deputies were also expelled from the KGB, one of whom was a Major General BANNIKOV. Of the 11 other Second Chief Directorate Employees expelled, some were found to have been personal friends of NOSENKO and some of them were found to have confided to NOSENKO details of operations in which they were working.
+
+S.M. GOLUBEV, a KGB officer stationed in Washington, would be leaving for Moscow because the investigating commission had determined that NOSENKO and GOLUBEV told him that NOSENKO that GOLUBEV had been assigned to the Washington Legal Residence. GOLUBEV had himself worked with NOSENKO in KGB Headquarters sometime in the past, but subsequently NOSENKO and GOLUBEV were given different assignments within the KGB and thereafter did not associate with one another in the course of their daily activities.
+
+See Pages 327-336 in which NOSENKO's description of his relationship with GRIBANOV is discussed.
+
+*** NOSENKO identified GOLUBEV by name and photograph as a First Chief Directorate counterintelligence officer, who had served in New York City under United Nations cover in 1960 and 1961. NOSENKO said that he first met GOLUBEV in 1959 and knew nothing of his earlier career. Because GOLUBEV had at one point been assigned to Geneva with the Soviet Disarmament Delegation, NOSENKO went to him in 1962 for a briefing on Foreign Ministry personnel in the delegation before his own assignment to Geneva. NOSENKO said he last saw GOLUBEV in KGB Headquarters in 1963. At that time GOLUBEV was assigned to the New York Direction of the Counter-intelligence Department of the First Chief Directorate, and NOSENKO said that GOLUBEV had been in this Department as long as he had known him.

@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_20599.png
+
+Convert to MarkdownSECRET
+
+8 July 1965
+
+PLT NCL & BRIEFING REPORT
+
+DATE : 7 July 1965
+SUBJECT : Terence CRABANAC
+DESTINATION: Madrid Spain
+DEFENDANT : Wife and four children.
+14, 12, 11 and 21 am.
+
+STATUS: Contract Employee
+COVER : Non-official - Writer
+
+Subject was advised that this briefing was being held to review with him the official financial business and personal aspects created as a result of his appointment. It was told in the report of the briefing would be prepared and that a copy would be forwarded to the SUB RX office responsible for his administration.
+
+Subject is proceeding abridge as a retired CD CID officer who is now pursuing a career as a writer.
+
+Subject had read his Contract. The persons present at the briefing were Subject and wife Division Budget and Chief Officer, payroll representative, and the undersigned Certifying Officer.
+
+The payroll representative briefed Subject regarding his compensation. Headquarters pyrrolled allowances, tax withholding and deductions. proposed Foreign Duty Dts Sheet was used and an official copy will be sent to the office administering Subject upon receipt of a notification Subject has arrived in place. The Tax Committee representative had briefed Subject as to the procedure by which he will fulfill his Federal tax reporting duties. see below section III entitled " taxes." All questions related to Subject during the briefing were answered to his apparent satisfaction. There were two points which were to reviewed further by W. they were:
+
+a. Review of Supplement relative to quarters allowance being pyr-
+    rolled and non-accountable.
+
+b. Determination of authorization and amount of a Transport tax allowance.
+
+Plans call for Subject to establish through Monetary Division a per-
+tional bank account. This fund will serve his operation i nce as well in
+Madrid as he is to have no (or little) contact with the station. Big points
+of the briefing are discussed below:
+
+SECRET
+
+<table>
+   <tr>
+    <td>GRCW I</td>
+   </tr>
+   <tr>
+    <td>Extended from automatic</td>
+   </tr>
+   <tr>
+    <td>designated as</td>
+   </tr>
+   <tr>
+    <td>classification</td>
+   </tr>
+  </table>

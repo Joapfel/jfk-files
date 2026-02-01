@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_22186.png
+
+Convert to Markdown5.
+
+at the time of the defection, NOSENKO was staying in Geneva with Nikolay RESHETNYAK, a representative of the International Organizations Branch of the Ukrainian Ministry of Foreign Affairs. RESHETNYAK told that NOSENKO often left his quarters without saying where he was going, but it was assumed that NOSENKO was "Intelligence" and had some mission to accomplish.**
+
+RESHETNYAK had been interrogated by the KGB in connection with the NOSENKO defection. RESHETNYAK also told that he had attended the Moscow trial of NOSENKO, held in absentia, at which NOSENKO was found guilty of treason and was sentenced to death. thought the KGB might go so far as to send someone to the United States to locate and kill NOSENKO. Finally, he has reported on the dismissal of large numbers of KGB officers, including GRIBANOV and Yuriy GUK, and other repercussions within the KGB of NOSENKO's defection (see Part III.1.4.)
+
+6. GAMKRELIDZE
+
+NOSENKO's service in the American Department was confined in the fall of 1964, by the Soviet mathematician R.V. GAMKRELIDZE.*** At that time an American scientist brought up with GAMKRELIDZE the subject of the ABEL-POWERS exchange****
+
+See Part VI.D.7.c.
+
+NOSENKO identified RESHETNYAK as a Ukrainian Ministry of Foreign Affairs officer on the staff of the Disarmament Delegation. Asked on 24 January 1964 whether RESHETNYAK might be suspicious of his absences for meetings with CIA, NOSENKO replied: "He thinks I'm KGB...so of course there's no problem if I come back late." re-reported that RESHETNYAK had been dismissed from the KGB as a result of the defection of NOSENKO. CIA has no other reports of RESHETNYAK having served in the KGB.
+
+GAMKRELIDZE is suspected of having connections with Soviet Intelligence because of his statements and actions, as we. 1 as his unusual freedom of movement, often alone, while on visits to the United States. When approached by a CIA representative with a recruitment proposal in 1964, GAMKRELIDZE declined but added that he "welcomed the opportunity to meet with an American Intelligence officer... since this enabled him to compare the Soviet Intelligence officers he has met with their American counterparts," During this meeting, GAMKRELIDZE raised the subject of NOSENKO again, describing him as "obviously a traitor to his country."
+
+The exchange of the KGB. Illegal Rudolf Ivanovich ABEL for Francis Gary POWERS, the U-2 pilot, took place in February 1962.
+
+TOP SECRET

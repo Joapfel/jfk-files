@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_21621.png
+
+Convert to Markdown90. **Helfwirkener Service** - a chief of staff in command-in-command of the military intelligence service of the Reich in 1936-38.
+
+47. **Marangapardoje** - a general, a chief of staff in command-in-command at Black sea, 1917-1920
+
+38. **Sergejewer** - an engineer - engineer-in-charge, a senior officer of the staff
+
+intelligence of the Reich in east-Asia (eastern Asia in Turkevaj).
+
+21. **Fuesstieck** - in west-Asia a criminalistic of a special trade in eastern Germany of the
+
+integrity intelligence of the Reich in east-Asia (eastern Asia in Turkevaj)
+
+30. **Strahleschutzen** - an officer of the Reich, served in the USA, left positions in Asia, from there in non speciality
+
+31. **Tischkin** (7-12) - a man - medicalist, in east-Asia in a surgeryChief of the staff - the Chief of the Staff of the Staff, was appointed Chief of the staff in east Asia
+
+32. **Bastleversching** - an officer in Reich, son of a married officer of Reich.
+
+33. **Reconnaissance flottet** - an officer of the staff in east Asia of the staff in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia
+
+34. **Flotterfahrer Hindeart** - a writer, administrative, a former Chief of staff in east Asia in east Asia (eastern Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia in east Asia

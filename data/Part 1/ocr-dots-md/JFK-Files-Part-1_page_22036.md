@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_22036.png
+
+Convert to Markdown136.
+
+did not specify its nature. Reportedly this was the first
+time that SERGEYEV had made such a request of the police
+chief.
+
+- CIA travel records show that JENNER arrived in Helsinki en route to Moscow on 30 March 1960 and departed by train the following day. KOSOLAPOV arrived in Helsinki the same day that JENNER left, 31 March 1960, and remained there until 2 April 1960 when he too departed for Moscow by train. The Finnish train manifest for 31 March 1960 indicates that there was only one passenger aboard the daily train leaving Helsinki for Moscow on this date, Paul JENNER, listed as a U.S. citizen and secretary/archivist. The manifest for 2 April 1960 carries the name Viktor KOLOSSOV (KOSOLAPOV) and shows that no American citizens were aboard.
+
+(d) The November 1960 TDY (GARLAND Case)
+
+Apart from denying that it ever took place, NOSENKO has said
+nothing about a trip to Helsinki by KOSOLAPOV in November 1960,
+but GOLITSYN said such a trip occurred and related it to an in-
+cipient KGB operation against an American code clerk.
+
+GOLITSYN was not posted to the KGB Legal Residency in Hel-
+sinki until July 1960, i.e., after KOSOLAPOV's first trip to
+Helsinki, under the KOLOSOV alias. He has reported that at
+"about the end of 1960, about November or possibly by the begin-
+ning of 1961," the KGB Second Chief Directorate sent a telegram
+to the Helsinki Legal Residency. The telegram advised that an
+American code clerk would arrive in Helsinki in transit to
+Moscow; the responsible case officer would be KOSOLAPOV, who
+was being sent to Helsinki under an alias and under Vneshtorg
+cover; KOSOLAPOV was to strike up an acquaintance to be con-
+tinued with the American in Moscow.
+
+The following extracts are from the transcript of GOLITSYN's
+further remarks on this subject in early 1962:
+
+Question: You say that around November 1960 KOSOLAPOV came to Finland?
+
+**GOLITSYN:** Came to Finland.
+
+**Question:** He came under cover?
+
+GOLITSYN: Yes.
+
+<u>**Question:**</u> Under a new identity? With an alias?
+
+GOLITSYN: Yes, as an employee of Trade Union (Vneshtorg).
+But, of course, there may be some different dates.
+Maybe November. I suppose [believe] it was the
+end of 1960 or it can be the beginning of 1961.
+And he waiting for some days, a week or so.
+
+Question: In Helsinki?
+
+A similar request to the police chief was made by SERGEYEV
+with regard to GARLAND (see below).
+
+TOP SECRET

@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_21523.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+<table><tr><td>GROUP I</td></tr><tr><td>Enclosed first addressable</td></tr><tr><td>Goddesses, God bless me</td></tr></table>
+
+# Operational Memo # N-2
+
+SUBJECT: NOSENKO, Yuri Ivanovich
+
+The following is a typed copy of a handwritten memorandum furnished by Subject on 31 October 1967, following a request on 30 October 1967:
+
+I, NOSENKO, George, was born 30 October 1927 in the city of Nikolaev, Ukraine.
+
+My family: the father - NOSENKO, Ivan, b. 1902, was working at the shipbuilding plant and studied at the shipbuilding institute, which he finished in 1928; the mother - NOSENKO, Tamara (nee MARKOVSKI), b. 1908, a housewife; the brother - NOSENKO, Vladimir, b. 1944, a student.
+
+In September 1934 I began to study in the school (O class) but studied a short period of time because in October with the mother went in Leningrad where the father was working at the shipbuilding plant, "Sudsmech" from summer 1934. In Nicolaev I was living at the Street Nicolski 7. All relatives of my family were living also in Nicolaev.
+
+In Leningrad I was living with parents in three places till 1938: at the Street Stachek (1934 - summer 1935), St. Canal of Griboedov, 154 (1935-1938), St. M. Gorky (short period in 1938). From 1935 till
+
+6001031
+
+<table><tr><td>SECRET</td></tr></table>

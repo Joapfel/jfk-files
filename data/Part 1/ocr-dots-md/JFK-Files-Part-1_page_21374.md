@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_21374.png
+
+Convert to MarkdownFBI Doc.
+17 Sept. 1970 (Wash.)
+RE: Communist Party, USA Contacts with Communist Parties of
+Venezuela, Colombia, and Peru
+(NOFORN, NO DISSEM ABROAD)
+DBC-93754
+
+FBI Doc.
+14 May 1970 (Wash.)
+RE: Contacts Between Communist Party, USA and Communist Party
+of Venezuela
+DBC 82704
+
+FBI Doc.
+24 June 1969 (NY)
+RE: Helen Winter
+Bufile: 100-423449)
+DBC 54933
+
+FBI doc.
+20 May 1969 (NY)
+RE: Helen Winter
+Bufile : 100-423449
+DBC 52075
+
+FBI&DOC&

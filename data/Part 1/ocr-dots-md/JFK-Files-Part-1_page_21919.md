@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_21919.png
+
+Convert to MarkdownJune 1962
+
+1964
+
+going to Bal-
+tiysk/Sovetsk. He
+then said this was
+a lie and gave
+the version above.
+The reason for the
+lie, NOSENKO said,
+was that he knew
+we "wouldn't be-
+lieve the truth"--
+that he had suc-
+cessfully refused
+the assignment to
+Germany.]
+
+No date given
+for divorce.
+
+75.
+
+1965
+
+April 1966
+
+is about 40 kilo-
+meters inland, and
+NOSENKO himself
+had said in 1962...
+that he served in
+Primorsk.]
+
+
+
+TELEGINA (one quarter
+of my salary) until
+I left the USSR in
+
+TOP SECRET

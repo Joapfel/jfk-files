@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_21582.png
+
+Convert to MarkdownSECRET
+
+(b) Page 163 of the previous summary contains information that GOLITSYN also learned from GRYAZNOV in the spring of 1960 that GRYAZNOV had developed an operation against an American Embassy military code clerk in which the KGB was "99 per cent sure" that the target would be recruited. This is believed to undoubtedly be a reference to the case of [James STORSBERG] who was actually the subject of a recruitment approach in 1961.
+
+There is considered to be a good possibility that GOLITSYN actually learned of the above information from GRYAZNOV in early January 1961 when he was again in Moscow rather than during the spring of 1960 when GOLITSYN was preparing for his assignment to Helsinki, Finland. This theory is supported by information on page 163 of the previous summary that GOLITSYN has stated he learned in January 1961 from Vladislav M. KOVSHUK (Chief of the First Section) that [Johan PREISFREUND] had recently been used in the successful recruitment of an American employee of the Embassy. [Johan PREISFREUND] was used in the [STORSBERG] operation, according to NOSENKO, and NOSENKO was also
+
+0001C89
+
+11
+
+SECRET
+
+4/BR

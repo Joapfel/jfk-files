@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_22239.png
+
+Convert to MarkdownTOP SECRET
+
+647.
+
+refused to collaborate with the KGB. He discussed 14 develop-
+ment cases which never culminated in recruitment approaches
+to these U.S. Government employees in Moscow, and he named
+11 officials at the Moscow Embassy who were investigated by
+the KGB. These operations, NOSENKO asserted, comprised the
+total KGB activity against Embassy personnel with the ex-
+ception of the technical penetrations (see Part VIII.D.4.).
+
+- Seven American correspondents in Moscow had been re-
+cruited by the KGB, four of them known to NOSENKO from the
+years 1953-1954 when he was working against U.S. newspaper-
+men. Another two were under development by the KGB during
+that period.
+
+- The American Express Company representative in Moscow,
+Arsene FRIPPEL, had become a KGB agent in 1959; NOSENKO was
+the case officer.
+
+- The number of American visitors recruited by the KGB in 1962-1963 was 14, and if there had been others, NOSENKO would have known about them in light of his senior position in the Tourist Department during that period. Moreover, for the years before 1962, NOSENKO provided leads to 19 other American tourists whom the KGB recruited, plus one who was serving the GRU when he came to Moscow. NOSENKO also described 18 development cases and nine investigations in which the targets were American tourists.
+
+As for KGB operations outside the Soviet Union, NOSENKO gave leads to four recruited Americans about whom he learned through conversations with KGB associates: a U.S. intelligence officer having the KGB cryptonym "SASHA" (still unidentified), a penetration of Orly Courier Transfer Station (identified as Sergeant Robert Lee JOHNSON), and two agents in Geneva (names not given and as yet not positively identified). NOSENKO learned of the KGB agent status of Horace G. LUNT Jr, an American professor, because he took part in LUNT's recruitment while on TDY in Sofia, and of the Legal Residency agent because of the connection between LUNT and Bernard KOTEN, an American tourist with whose case NOSENKO was personally involved. In addition, NOSENKO described two development cases with U.S. citizens. From his knowledge of the "SASHA" operation, NOSENKO also knew that the KGB had no agent sources able to supply information concerning the Cuban missile crisis of October 1962.
+
+(i) Completeness, Accuracy, Detail and Consistency of Reporting
+
+If he occupied the various KGB positions as claimed, if his access were as broad as he said it was, NOSENKO has provided a comprehensive review of KGB operations involving Americans in the USSR.
+
+Other information, however, contradicts NOSENKO'S assurances
+that he reported on all major cases involving Americans working
+at the U.S. Embassy in Moscow:
+
+- GOLITSYN'S reports indicate that a U.S. military code clerk was recruited in 1960, and other factors point toward this person being James STORSBERG or possibly William HURLEY (Pages 166-182). NOSENKO, the supervisor of operations against Embassy code clerks in 1960-1961, stated that

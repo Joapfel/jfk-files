@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_21852.png
+
+Convert to Markdownshe is no longer here. She got into trouble and I fee sorry for her because maybe they have fired her. Because they--the Foreign Office--keep only... Speaking honestly, as a human being, I am concerned that they might fire her. Because there was nothing more to it than this one thing."
+
+The second event bringing NOSENKO to special notice occurred at about the same time that NOSENKO established contact with CIA and may, in fact, have been the incident which he said drove him to contact David MARK. On 15 June 1962 (ten days after NOSENKO approached MARK) the permanent representative of the Soviet Union in Geneva, told his host at luncheon, American Ambassador TUBBY, that two girls from the Ba-Ta-Clan Club, a strip-tease bar in Geneva, had come to the club on consular apparently seeking visas. The girls had told of two Soviets, one about 30 and the other about 40, who had visited the club recently (no date was provided by the club). According to the girls, the two Soviets had attempted to pass themselves off as Americans and had spent "hundreds" of francs drinking at the club. The name which gave Ambassador TUBBY for one of these Soviets "sounded like TISENKOV." From their descriptions, the two Soviets were almost certainly NOSENKO and his friend A.K. KISLOV.* At his first meeting with CIA NOSENKO said that a week and a half earlier he spent 1500 Swiss francs in a single night of drinking and women with KISLOV. The necessity of repaying this money, taken from KGB operational funds, was the immediate cause of his contact with CIA, according to NOSENKO.
+
+*See Part III.D. for further information on KISLOV.
+
+TOP SECRET
+
+14-00000

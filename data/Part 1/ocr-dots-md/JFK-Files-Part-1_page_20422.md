@@ -1,0 +1,58 @@
+# JFK-Files-Part-1_page_20422.png
+
+Convert to MarkdownSEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents)
+
+1. NAME
+CITIZENSHIP
+ADDRESS
+ST. & No.
+City
+State
+Country
+
+2. NAME
+CITIZENSHIP
+ADDRESS
+ST. & No.
+City
+State
+Country
+
+3. NAME
+CITIZENSHIP
+ADDRESS
+ST. & No.
+City
+State
+Country
+
+SEC. 5. FATHER (Give the same information for stepfather and/or guardian on a separate sheet)
+
+FULL NAME
+First
+Middle
+Last
+
+LIVING OR DECEASED DATE OF DECEASE CAUSE
+PRESENT, OR LAST ADDRESS ST. & NO. City State Country
+DATE OF BIRTH PLACE OF BIRTH
+IF BORN OUTSIDE U.S. INDICATE DATE AND PLACE OF ENTRY
+CITIZENSHIP WHEN ACQUIRED? WHERE?
+OCCUPATION LAST EMPLOYER
+EMPLOYER'S OR OWN BUSINESS ADDRESS ST. & NO. City State Country
+MILITARY SERVICE FROM __________ TO __________ BRANCH OF SERVICE
+COUNTRY DETAILS OF OTHER GOVT SERVICE, U.S. OR FOREIGN.
+
+SEC. 6. MOTHER (Give the same information for stepmother on a separate sheet)
+
+FULL NAME
+First
+Middle
+Last
+
+LIVING OR DECEASED DATE OF DECEASE CAUSE
+PRESENT, OR LAST ADDRESS ST. & NO. City State Country
+DATE OF BIRTH PLACE OF BIRTH
+CITIZENSHIP WHEN ACQUIRED? WHERE?
+IF BORN OUTSIDE U.S. INDICATE DATE AND PLACE OF ENTRY
+City State Country

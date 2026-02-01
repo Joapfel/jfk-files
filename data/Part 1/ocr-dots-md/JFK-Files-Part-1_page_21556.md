@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_21556.png
+
+Convert to MarkdownThe knowledge of NOSENKO concerning cases, KGB operations, and other officers can consistently be related to his claimed department and position assignment during the 1953 to January 1964 period. The scope of his knowledge of his own department when considered in toto is broader after 1957 than before, which is compatible with his claim of increased responsibilities. His knowledge of the work of other departments of the SCD from the late 1950's on is also more extensive, which is also a further indication that NOSENKO actually held the claimed positions during this period of time.
+
+SECRET
+
+GOC1064

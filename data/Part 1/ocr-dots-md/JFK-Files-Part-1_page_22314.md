@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_22314.png
+
+Convert to Markdown1959. NOSENKO never mentioned that KOSOLAPOV, who he said was his immediate subordinate and shared NOSENKO'S office in KGB headquarters, was a member of this same delegation.
+
+NOSENKO did not know where ABIDIAN's office was located in the U.S. Embassy. He said he did not know and was unable to find out who ABIDIAN's secretary was. He reported that some agent told the KGB that ABIDIAN had a sign on the door of his office which said "Security Officer." There was no such sign.
+
+NOSENKO did not know where ABIDIAN's apartment was located. He did not know its contents and said that the KGB was not interested in this. He did not know whether ABIDIAN changed apartments in Moscow, which he did.
+
+NOSENKO identified GROMAKOVA, an Embassy language teacher, as a KGB agent who was valuable because she was intelligent and was able to provide personality sketches on her students based on classroom discussions. He never associated ABIDIAN with GROMAKOVA. When told that ABIDIAN had taken language lessons from her, NOSENKO recalled that ABIDIAN took "several" lessons from GROMAKOVA at the beginning of his tour but discontinued; she reported nothing of significance and there was no regular reporting from her on ABIDIAN. ABIDIAN, however, reported that he took regular, private Russian lessons from GROMAKOVA throughout his tour in Moscow and that they discussed in class his past personal life, travel, education, fiancee, and his trips abroad to see his fiancée.
+
+NOSENKO knew that ABIDIAN travelled out of the USSR two or three times, but had no idea when these trips took place or what countries ABIDIAN visited. NOSENKO said that, as ABIDIAN's predecessor LANGELELE was known to have travelled outside the USSR for operational reasons in connection with the POPOV case, it would have been of interest to learn where ABIDIAN had gone, but the KGB had no way of finding this out. (Note in the previous paragraph that GROMAKOVA knew.) When NOSENKO'S interrogator pointed out the possibility of photographing ABIDIAN's passport upon his return to the USSR, NOSENKO replied that the KGB does not photograph the passports of foreign diplomats entering the Soviet Union.
+
+NOSENKO said that ABIDIAN made no trips outside Moscow within the USSR and explained that, as case officer, he would necessarily have been aware of any such trip as he would have had to handle all arrangements for surveillance during it. When NOSENKO was told that ABIDIAN travelled to Soviet Armenia in October 1960, NOSENKO said for the first time that he was on leave in that month. NOSENKO admitted in October 1966 that he knew nothing of ABIDIAN'S trip.
+
+NOSENKO said that he did not know who were ABIDIAN's close American friends in Moscow or his friends and professional contacts among foreigners there.
+
+NOSENKO said at the end of the January-February 1965 interrogations concerning ABIDIAN that the reason he knew so little about ABIDIAN was because he was "working badly" as ABIDIAN's case officer. The reason for his poor work, he

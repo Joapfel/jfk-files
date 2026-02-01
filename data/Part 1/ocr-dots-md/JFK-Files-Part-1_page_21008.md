@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_21008.png
+
+Convert to MarkdownCONFIDENTIAL
+
+7 AUG 1974
+
+MEMORANDUM FOR: Chief, Contract Personnel Division
+
+THROUGH : CMG/CP
+
+SUBJECT : Termination of Contract for Thomas B. CASASIN (P)
+
+This is to inform you that Career Associate Thomas B. CASASIN (P) retired from the Agency on 28 June 1974. His contract is terminated effective as of that date.
+
+Distribution:
+
+Original & Adse.
+
+APPROVED:
+
+/s/ Charles W. Sandman
+
+E2 IMPDET
+CL BY 033769
+
+CONFIDENTIAL

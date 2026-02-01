@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_21844.png
+
+Convert to Markdown- Aleksandr Nikolayevich CHEREPANOV, a KGB officer whose case is reviewed in Part VI.D.7.c.
+
+Source
+
+former agent of the KGB Second Chief Directorate,
+
+All pertinent material received by CIA prior to 15 January 1967 has been taken into account in this review of NOSEMIKO's bona fides.
+
+TOP SECRET

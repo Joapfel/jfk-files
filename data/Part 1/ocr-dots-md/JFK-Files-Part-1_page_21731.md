@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_21731.png
+
+Convert to MarkdownSECRET
+
+G. NOSENKO has no valid claim to certainty that the KGB recruited no American Embassy personnel between 1953 and his defection in 1964. (Previous conclusion)
+
+The conclusion in this summary is that NOSENKO is of the opinion that there were no KGB recruitments of United States Embassy personnel in Moscow between 1953 and December 1963 with the exception of "ANDREY" (Dayle Wallis SMITH) and [Herbert HOWARD] who actually was a [USIA] employee but did work part of the time in the Embassy.
+
+The question here is whether or not the expressed opinion of NOSENKO is sufficiently based on actual knowledge so that this opinion can be accepted as absolute evidence that there were no other KGB recruitments of Embassy personnel during this period of time. The only logical conclusion is that the opinion of NOSENKO cannot be accepted as absolute fact and, therefore, there is a possibility that a recruitment could have occurred and NOSENKO not be aware in any way of the recruitment. This should in no way be interpreted as a suggestion that NOSENKO could be lying, but rather that an unbiased observer without personal knowledge could and should be hesitant to accept the expressed opinion of NOSENKO in this particular area.
+
+The actual basis for the stated opinion of NOSENKO should be examined and can be cited as follows.
+
+<table><tr><td>Group I<br/>Excluded from automatic<br/>distributions and<br/>declassifications</td></tr></table>
+
+C001237
+
+SECRET
+
+EISR

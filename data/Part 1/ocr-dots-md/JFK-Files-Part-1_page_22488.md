@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_22488.png
+
+Convert to MarkdownSECRET
+
+DO/ISS 78-098
+
+28 February 1978
+
+MEMORANDUM FOR: O/SA/DO/O
+Attention: Mr. Shepanek
+
+FROM: William F. Donnelly
+Chief, Information Services Staff
+
+SUBJECT: House Select Committee on Assassinations
+Request for Information on 201 Criteria (S)
+
+REFERENCE: OLC 78-0070/19, 23 February 1978
+
+1. (S) With reference to the conversation of 27 February between Mr. Shepanek and Mr. Cleffi of ISS, attached are copies of DOHB 70-1-1, 15 November 1974, and an earlier version, CSHB 43-1-1 dated 15 February 1960. A close study of the list of questions submitted by the HSCA Staff has led us to conclude that the most complete and effective way to respond would be by inviting the Staff to review our regulation governing the criteria for opening, maintaining, controlling and closing 201 files by the Operations Directorate. A careful reading of the regulation provides an answer to every question posed by the Staff.
+
+2. (S) The earlier version of the regulation is included to reflect the situation as it existed in the period of their primary concern (1958-1964). The later version provides an expansion, clarification and refinement of the earlier versions.
+
+William F. Donnelly
+
+SECRET
+
+<table><tr><td>E-2</td><td>IMPORT CL BY 015866</td></tr></table>

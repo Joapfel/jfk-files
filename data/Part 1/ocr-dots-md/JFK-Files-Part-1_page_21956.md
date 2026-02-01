@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_21956.png
+
+Convert to Markdownagainst in the summer of 1957.* NOSENKO reported specifically on her possible sexual involve- ment with two other tourists, one American and the other British, during 1957-1959. NOSENKO mentioned at one point that he "even told Larissa about his last name."
+
+- Vladimir MUROMTSEV: KGB cryptonym "LEBEDEV," recruited in 1955. (NOSENKO has also said that MUROMTSEV had been a Second Chief Directorate agent "since 1958.") MUROMTSEV was called into the Army in about 1959 and was sent to some Soviet Air Force academy in Central Asia, where he worked as an inter- preter for Syrian students studying there. During this period, his file was held by the local KGB in Central Asia. Later he returned to Moscow and was reactivated by the Second Chief Directorate.
+
+- Nikolay ROGOV: KGB cryptonym "Ozero," recruited in 1955. ROGOV had formerly been a "confidential contact" of the KGB. He worked in the central office of Inturist which assigned interpreters to British and American citizens visiting the Soviet Union.
+
+- Natalya SHULGINA: Recruited by NOSENKO in 1955, an Inturist interpreter. Shown SHULGINA's photograph on 6 February 1964, NOSENKO failed to recognize it; when he was given her name, however, he said that this was a Second Chief Directorate agent, on whom Boris BELITSKIY had reported to CIA.** NOSENKO's only other statement on SHULGINA was made on 17 April 1964, when discussing the agents he acquired in 1955. He said: "So, for example, I had this SOROROVA, then I had MUROMTSEV. I recruited him. Who else? Natalya SHULGINA, KUNGAROVA. Well, anyway, during this short period, during 1955 until the end of '55, I had about eight people, all of them translators from Inturist." NOSENKO therefore said he handled SHULGINA and implied that he recruited her. (Information from other sources indicates that SHULGINA worked for two years as secretary/interpreter for the NBC correspondent in Moscow, Irving R. LEVINE, who arrived in the Soviet Union in July 1955. Although there is no evidence that SHULGINA was directly involved, the KGB attempted to recruit LEVINE in November 1955. She has travelied abroad twice, the first time to Paris in 1956 and the second time as an inter- preter at the Brussels Fair in the summer of 1958. As NOSENKO indicated, BELITSKIY reported on SHULGINA, who he said was a close friend. BELITSKIY said that she was directly involved, probably as the principal, in a sexual entrapment operation, in the recruitment of a member of the British Parliament. BELITSKIY reported to CIA on SHULGINA in October 1962; NOSENKO said his last connection with the BELITSKIY case was in Geneva in the spring of 1962.)
+
+- Tamara KUNGAROVA: Inturist interpreter recruited in 1955 (according to NOSENKO's statement in April 1964 - see above on SHULGINA). In October 1964, NOSENKO said she was trans- ferred as an agent to the Tourist Department by the British
+
+* ~~are discussed in Part V.D.4.d.~~
+
+**NOSENKO reported in 1962 that the KGB controlled BELITSKIY, a source of CIA (see Part VI.D.6.).

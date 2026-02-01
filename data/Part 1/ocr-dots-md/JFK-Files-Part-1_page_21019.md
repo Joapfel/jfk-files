@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_21019.png
+
+Convert to MarkdownATTACHMENT - FITNESS REPORT - Thomas B. CASASIN (P)
+
+NOCAD/MB REVIEWING OFFICER COMMENTS:
+
+Whether Specific Duty No. 1 is rated "O" (as by the Station rater and reviewer) or "S" (as by the EUR Division reviewer), the fact remains that CASASIN is melding his overt life and operational activity against a primary Station target with a degree of success not often achieved by Agency officers.
+
+CASASIN's response to requirements based in NOCAD administrative and managerial responsibilities has been prompt and efficient; in this additional specific duty we rate his performance "Strong".
+
+In view of his initiative and competence in a demanding and sensitive NOC assignment, NOCAD agrees with CASASIN'S overall performance rating of "Strong".
+
+/s/ Charles J. Beckman
+
+Charles J. Beckman
+Chief, NOCAD/Management Branch
+
+10 APR 1973
+
+Date

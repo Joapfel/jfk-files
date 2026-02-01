@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_21199.png
+
+Convert to MarkdownFJIT 10,374, 31 May 63
+
+<table><tr><td colspan="2">FITNESS REPORT</td><td>EMPLOYEE SERIAL NUMBER</td></tr><tr><td colspan="2"></td><td>025793</td></tr></table>
+
+SECTION A GENERAL
+
+<table><tbody><tr><td>F. NAME (Last) (First) (Middle)</td><td>E. DATE OF BIRTH</td><td>S. SEX</td><td>G. GRADE</td><td>S. SO.</td></tr><tr><td>WILCOX, JAMES B. JR.</td><td>27 Sept 31</td><td>M</td><td>GS-6</td><td>SF</td></tr><tr><td>B. OFFICIAL POSITION TITLE</td><td colspan="3">SPECIAL ACCT ASST</td><td>TOKYO</td></tr><tr><td>P. CHECK (EX) TYPE OF APPOINTMENT</td><td colspan="3">10 CHECK (EX) TYPE OF REPORT</td><td></td></tr><tr><td>CAREER</td><td>RESERVE</td><td>TEMPORARY</td><td>INITIAL</td><td>REASSIGNMENT SUPERVISOR</td></tr><tr><td>CAREER PROVISIONAL (See instructions - Section C)</td><td>X</td><td></td><td>ANNUAL</td><td>REASSIGNMENT EMPLOYEE</td></tr><tr><td>SPECIAL (Specify)</td><td colspan="3"></td><td>SPECIAL (Specify)</td></tr><tr><td>I. DATE REPORT DUE IN O.P.</td><td colspan="4">12. REPORTING PERIOD (From - To)</td></tr><tr><td colspan="5">1 Jul '62 - 30 Jun '63</td></tr></tbody></table>
+
+SECTION B PERFORMANCE EVALUATION
+
+<table><tbody><tr><td>W. Weak</td><td>Performance ranges from wholly inadequate to slightly less than satisfactory. A rating in this category requires positive remedial action. The nature of the action could range from counseling, to further training, to placing on probation; to reassignment or to separation. Describe action taken or proposed in Section C.</td></tr><tr><td>A. Adequate</td><td>Performance meets all requirements. It is entirely satisfactory and is characterized neither by deficiency nor excellence.</td></tr><tr><td>P. Proficient</td><td>Performance is more than satisfactory. Desired results are being produced in a proficient manner.</td></tr><tr><td>S. Strong</td><td>Performance is characterized by exceptional proficiency.</td></tr><tr><td>O. Outstanding</td><td>Performance is so exceptional in relation to requirements of the work and in comparison to the performance of others doing similar work as to warrant special recognition.</td></tr></tbody></table>
+
+SPECIFIC DUTIES
+
+List up to six of the most important specific duties performed during the rating period. Insert rating letter which best describes the manner in which employee performs EACH specific duty. Consider ONLY effectiveness in performance of that duty. All employees with supervisory responsibilities MUST be rated on their ability to supervise (indicate number of employees supervised).
+
+<table><thead><tr><th>SPECIFIC DUTY NO.</th><th>RATING LETTER</th></tr></thead><tbody><tr><td>As Station Cashier, responsible for the daily receipt and disbursement of cash (Japanese yen, U. S. dollars, MPC).</td><td>P</td></tr><tr><td>SPECIFIC DUTY NO. 2</td><td rowspan="2">P</td></tr><tr><td>Consolidates all Station cash transactions to one voucher and verifies balance daily.</td></tr><tr><td>SPECIFIC DUTY NO. 3</td><td rowspan="2">P</td></tr><tr><td>Summarizes all Station transactions for off-base housing and vehicle expenditures into monthly accountings and maintains appropriate subsidiary records.</td></tr><tr><td>SPECIFIC DUTY NO. 4</td><td>P</td></tr><tr><td>Polices individual housing and vehicle advance accounts and audits related accountings.</td><td>P</td></tr><tr><td>SPECIFIC DUTY NO. 5</td><td rowspan="2">P</td></tr><tr><td>Maintains statistical records on all private rentals by individual house and cost center.</td></tr><tr><td>SPECIFIC DUTY NO. 6</td><td>P</td></

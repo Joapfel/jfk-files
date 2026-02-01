@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_21733.png
+
+Convert to MarkdownNOSENKO since the Chief of Section was Vladislav KOVSHUK who had been an officer of the First Department since 1953, actually working in the First Section except for the periods of time that he was in the United States to reactivate "ANDREY" in 1957-1958 and a period of time that he was Deputy Chief of the First Department.
+
+(d) During 1962-1963 NOSENKO was again in the Seventh Department. However, he continued to maintain contact with certain officers of the First Section, First Department: in particular, Gennadiy I. GRYAZNOV, who succeeded NOSENKO as Deputy Chief of the First Section, then became Chief of Section, and in the latter part of 1963 became a Deputy Chief of the First Department.
+
+According to NOSENKO his relationship with GRYAZNOV was sufficiently close during 1962-1963 that he is sure GRYAZNOV would have furnished NOSENKO some information in regard to any successful recruitments of United States Embassy personnel. NOSENKO pointed out that he learned of the existence of the [Herbert HOWARD] case from GRYAZNOV in 1962, although it was not until 1963 that NOSENKO heard the name. NOSENKO actually
+
+0001239
+
+3
+SECRET

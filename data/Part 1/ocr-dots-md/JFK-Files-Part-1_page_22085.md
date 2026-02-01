@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_22085.png
+
+Convert to MarkdownTOP SECRET
+
+244.
+
+- Richard FUNKHOUSER: Suspected of being a CIA officer because he is a specialist on the Soviet Union, particularly economics. NOSENKO did not remember the names of any agents working against FUNKHOUSER nor any derogatory information concerning him.
+
+- William HORBALY: Suspected of being a CIA case officer* because the KGB heard him, by means of microphones in the Embassy, discussing a report he had written, or dictating it, about his observations on a trip he had taken in the Soviet Union. NOSENKO said that he did not know the names of agents working against HORBALY or whether the agents obtained derogatory information concerning him. As far as NOSENKO knew, there had been no operational approach to or recruitment of HORBALY.
+
+Of the seven U.S. Embassy officers designated by NOSENKO as known or suspected CIA personnel, three--WINTERS, WASHENKO, and HORBALY--were in fact CIA officers. When HORBALY was first assigned to Moscow, however, he was detached from overt employment as an economic analyst in CIA. In January 1962 he severed his connections with CIA to become a full member of the Foreign Agricultural Service of the Department of Agriculture. When HORBALY first arrived in Moscow he openly discussed the fact that he had come to the Embassy from CIA. While in Moscow he had no connection with or knowledge of CIA clandestine activities. WASHENKO was similarly detached from overt employment as an economic analyst with CIA when he was assigned to Moscow, but was coopted by CIA for limited operational support activity, chiefly mailing agent letters. After his return from Moscow he reverted to his overt CIA employment. John ABIDIAN was a State Department officer coopted by CIA; although not a CIA staff employee, he was for all intents the CIA "Resident" in Moscow from February 1960 until November 1961. The remaining three--KLOSSON, BOWDEN and FUNKHOUSER--had no affiliation with CIA.
+
+During the time NOSENKO said he belonged to the American Embassy Section there were stationed in Moscow two CIA officers, Eugene P. MAHONEY and Paul GARBLER, whose status as such was subsequently found to have been known to the KGB before their arrival in the Soviet Union. In addition, one officer (William MORELL) was openly identified as a CIA employee to the Soviet Ministry of Foreign Affairs before arriving in Moscow. Furthermore, Francis STEVENS (see Page 374) reported having been asked by one of the two KGB officers trying to recruit him whether MORELL was a CIA employee; when STEVENS replied that he did not know, the KGB officer stated: "He openly says he does." Another officer (G. Stanley BROWN), an overt CIA employee, had transferred to the U.S. Department of Agriculture shortly before being assigned to the Embassy. The latter two were not engaged in clandestine activities in Moscow on behalf of CIA, but the first two CIA officers were.
+
+NOSENKO indicated that he did not know about the intelligence affiliation of any of these four persons:
+
+- NOSENKO was shown a photograph of MAHONEY, whom he did not recognize. He was then given MAHONEY'S name, which he recognized as being that of an employee of the Administrative Section of the Embassy. NOSENKO
+
+* Earlier NOSENKO had said the KGB classified him as a CIA cooptee.

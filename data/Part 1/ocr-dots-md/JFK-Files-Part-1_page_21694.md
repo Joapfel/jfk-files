@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_21694.png
+
+Convert to Markdownknew of no black market involvement of MORONE with CECCMI.
+
+NOSENKO has also indicated that the KGB sometimes suspected, and on occasion actually became aware that various agents did not fully report everything of interest to the KGB. The KGB of course was aware that CECCMI was involved in the black market. However, whether he reported to the KGB everything he did and with whom is open to question; viz., the Maurice ZWANG case below.
+
+The comment was made in the previous summary that NOSENKO was unaware that MORONE met some Soviet females in the spring of 1961 at the apartment of Sarwat el SHAZLY, an Egyptian-national KGB agent of the Sixth Department who was also reporting on Americans, and was intimate with one in this apartment.
+
+A review of official records indicates that MORONE did report having met some Soviet girls at the apartment of Sarwat, but there is no indication that he admitted or that anyone else has reported that he was intimate with any of them. The conclusion of the previous summary in this regard was based on a misinterpretation. Accordingly, since there is no reason to believe that any compromise incident took place in the Sarwat apartment, the story of NOSENKO on this matter is considered completely acceptable.
+
+SECRET
+
+6001200

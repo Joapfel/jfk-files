@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_21321.png
+
+Convert to Markdown# ITALY
+## Economic
+
+The S.S.I., Machinery Tool Factory, Milan.
+
+### Location.
+
+1. The firm, which designs machinery for construction in other factories,
+has its technical offices in Milan, Lombardy, and its sales department in
+Via T. Piceo, 3, Milan.
+
+### Personnel.
+
+2. The manager is (as) POSSEBIO, a German and former manager of a
+German machine tool factory. He is assisted by Ing. POSSEBI and by other
+technicians.
+
+### Production.
+
+3. The firm designs and/or produces on a sub-contracting basis the following types of machines :-
+
+- Machine tools for the manufacture of micron bearing balls, steel
+bearing balls, cylindrical roller bearings, conical roller bearings,
+cages for ball bearings, external and internal rings for ball
+bearings, sewing needles, bicycle accessories, mount for typewriters,
+eccentric presses for hot and cold stamping, sandpapering machines,
+special grinders, oscillating grinders, sawtors, rotary rolling
+willes, control instruments, pneumatic hammers, splining machines,
+rectifiers, presses, drilling machines, polishing machines.
+
+### Contents.
+
+4. With the exception of some very small items, the machines designed
+by the firm are not covered by patents.
+
+### Destination of Output.
+
+5. The firm's products are sold on the home market.

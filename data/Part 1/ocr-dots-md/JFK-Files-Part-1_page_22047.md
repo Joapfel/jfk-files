@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_22047.png
+
+Convert to MarkdownAlthough the KGB had the compromising photography, it was felt that there were insufficient materials for a recruitment approach to MORONE. The KGB wanted to trap him in the apartment of a Soviet woman, to catch him in something that is definitely prohibited. For this purpose, Svetlana IVANOVNA (see above) was supposed to lure MORONE into the city, but before anything further could be done, the Americans ordered MORONE out of Moscow before the end of his tour, possibly because they were concerned about his association with IVANOVA. Therefore, NOSENKO said, the KGB made no operational approach to MORONE and no recruitment of him.
+
+### (c) Information from Other Sources
+
+A sensitive Polish source reported in 1961 that on 8 November 1960 a Polish female, an experienced English-speaking agent of the Polish UB, arrived in Moscow where she was met by a KGB case officer named "VOLODYNA." She stayed at the Hotel Warsaw in Moscow. The KGB case officer, apparently from the American Department of the KGB Second Chief Directorate, on 10 November 1960 pointed MORONE out to this agent at a railroad station in Moscow. Under KGB instructions, the Polish female met MORONE on the train to Warsaw, where intimacies began. In Warsaw on 12 November 1960 she was quite friendly with MORONE, but pursuant to instructions, she refused all overtures to engage in intimacies. The next day she took MORONE to a Polish UB safehouse suitably prepared for clandestine photography, and revealing photographs of an intimate nature were taken of MORONE and herself. The female agent again travelled to Moscow on 5 February 1961 and stayed at the Peking Hotel. Further compromising photographs were taken of her and MORONE on this trip. The female agent travelled to Moscow a third time and on 12 and 13 February 1961 more photographs were taken of her and MORONE.
+
+GOLITSYN was questioned on the basis of this lead on 16 February 1962:
+
+**Question:** Do you know anyone in the American Department of the Second Chief Directorate who worked against the American Embassy and used the name "VOLODYNA?"
+
+**GOLITSYN:** Yes, I know CHURANOV. He worked at one time against the U.S. Embassy. Later he worked against the British Embassy and later he was sent to Denmark.
+
+**Question:** When was he sent? Do you know?
+
+**GOLITSYN:** It was in '57 until probably '60... I suppose that he will continue to work now in the First Chief Directorate. He transferred there from the Second...
+
+**Question:** Do you know anyone who used the name "VOLODYNA" in the Second Chief Directorate in Moscow in the fall of 1960?
+
+**GOLITSYN:** There is another person. It is [Vladimir Ivanovich] PETROV. He is the employee of the American Department, Second Chief Directorate who works against the American Embassy. He evidently knows English...and he worked in the American Department. I know him and I met him in 1960. He was Chief of the American Section, the Embassy Section...
+
+TOP SECRET

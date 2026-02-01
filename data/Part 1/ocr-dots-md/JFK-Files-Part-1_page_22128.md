@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_22128.png
+
+Convert to Markdownsupervisory position in the Tourist Department NOSENKO also became involved with John SHUBIN, a GRU agent. (These six cases - JOHNSON, BRAUNS, BARGHOORN, KOTEN, SVENCHANSKIY, and SHUBIN - are discussed below.) NOSENKO reported that his planned role in the approach to Natalie BIENSTOCK (see Part VI.D.2.) was prevented by his preparations to leave for Geneva in March 1962. Finally, NOSENKO said he participated in the KGB investigation of Lee Harvey OSWALD after President KENNEDY's assassination in November 1963 (see Part V.D.6.).
+
+NOSENKO has indicated that his own operational work in 1962 to 1964 was limited to those cases cited above because of the considerable amount of time spent on temporary duty assignments outside Moscow during these two years. In mid-February 1962, soon after assuming the duties of Chief of the American Tourist Section, he began to prepare for his first trip to Geneva, which lasted from 14 March until 15 June 1962 (see Part III.B.). NOSKENKO estimated that he had spent a total of six months outside Moscow in 1963 on temporary assignments. These included a two-day trip to Odessa to meet FRIPPEL, an inspection tour of the Leningrad KGB organization, a five-day trip to Leningrad for a conference on border control, a week-long trip to Alma-Ata for a conference on tourist travel with KGB representatives from the Soviet Central Asian republics, and an eight- or ten-day inspection trip to the Caucasus as a member of a team headed by GRIBANOV. NOSENKO said he travelled to Gorkiy Oblast on 16-17 December 1963 to assist in the search for CHEREPANOV, who had passed top secret documents to the U.S. Embassy in Moscow (see Part VI.D.7.c.).
+
+### 3. NOSENKO'S Agents
+
+When NOSENKO returned to the Tourist Department in the first days of 1962, he took with him the agents whom he had been handling as Deputy Chief of the U.S. Embassy Section. These agents are listed below with a summary of NOSENKO'S comments concerning their use in 1962 and 1963.*
+
+#### a. Arsene FRIPPEL:
+
+FRIPPEL had been reassigned from Moscow in early 1961, but NOSENKO continued to be the Second Chief Directorate case officer in charge of any future KGB contacts with him. (FRIPPEL had no KGB contacts in New York City.) Describing FRIPPEL's past service for the KGB on 15 June 1962, five months after he said he transferred to the Tourist Department, NOSENKO said: "FRIPPEL was afraid and gave practically nothing... He was a weak agent... I recruited him but, speaking honestly, he was not an agent." Nevertheless, NOSENKO said, the KGB hoped that FRIPPEL would be reassigned to the USSR at some future date. When FRIPPEL returned twice to the Soviet Union in 1963, NOSENKO met with him, once in Odessa and once in Moscow,
+
+* The only other agent whom NOSENKO handled during this period was the American Alexander SVENCHANSKIY. (See Part V.F.6.)
+
+TOP SECRET

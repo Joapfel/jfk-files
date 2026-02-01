@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_22191.png
+
+Convert to MarkdownQuestion: The fellow from Geneva?
+No. He wasn't a KGB person.
+
+Question: No? What was he?
+
+He was a civilian, I think.
+
+Question: You never heard anything about his family, his friends?
+No.
+
+Question: But you say he was not a KGB person?
+
+I say I will tell you one thing: They don't have much gossip on these things. It is never safe. So gossip isn't popular. Besides, each of them have their own grudge, sort of department, and he knows very little except gossip, very little gossip from outside. And so, for instance, maybe Mr. SVIRIN wasn't in a position to know about this person straight, so he repeated the tiny scraps he heard.
+
+Question: And that was only that he had a Jewish mother and a general for a father, but nothing about him.
+
+Nothing... I don't know. Everybody was saying that he was detestable, when he ran away. He tipped Americans... He tipped the Americans about the microphones and things in the Embassy.
+
+Question: In the Embassy in Moscow?
+
+In Moscow, yes.
+
+Question; But yet, he was not a KGB person?
+
+But you know every Russian who is allowed to see foreigners is connected [in some way with the KGB]. You know, a KGB person is considered to be a person who works at this place, as an officer, and everybody else involved is somehow related to the KGB but not KGB persons themselves.
+
+During a later debriefing by CIA, clarified her sourcing of this information. All of it except that concerning the microphones in the U.S. Embassy came from SVIRIN when he visited the NOSENKO had compromised the KGB microphone system to the Americans was also received from SVIRIN during another social visit. On this occasion SVIRIN remarked to that NOSENKO had done considerable damage to the Soviets by revealing the fact of the microphones to U.S. authorities.
+
+TOP SECRET

@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_20423.png
+
+Convert to Markdown14-0007
+
+OCCUPATION LAST EMPLOYER
+EMPLOYER'S OR OWN BUSINESS ADDRESS St. & No. City State Country
+MILITARY SERVICE FROM __________ TO __________ BRANCH OF SERVICE ________________
+COUNTRY ________________ DETAILS OF OTHER GOVT SERVICE, U.S. OR FOREIGN.
+
+SEC. 7. BROTHERS AND SISTERS (Including half-, step-, and adopted brothers and sisters)
+
+1. FULL NAME First Middle Last AOE
+PRESENT ADDRESS St. & No. City State Country Citizenship
+
+2. FULL NAME First Middle Last AOE
+PRESENT ADDRESS St. & No. City State Country Citizenship
+
+3. FULL NAME First Middle Last AOE
+PRESENT ADDRESS St. & No. City State Country Citizenship
+
+4. FULL NAME First Middle Last AOE
+PRESENT ADDRESS St. & No. City State Country Citizenship
+
+5. FULL NAME First Middle Last AOE
+PRESENT ADDRESS St. & No. City State Country Citizenship
+
+SEC. 8. FATHER-IN-LAW
+
+FULL NAME ALBERT CHARLES WETZEL
+LIVING OR DECEASED LIFING DATE OF DECEASED __ CAUSE __
+PRESENT OR LAST ADDRESS % NCR DAYTON OHIO 4540
+DATE OF BIRTH JUNE 27 1991 PLACE OF BIRTH Dayton Ohio 4540
+IF BORN OUTSIDE U.S. INDICATE DATE AND PLACE OF ENTRY ____ NOT APPLICABLE
+CITIZENSHIP USA WHEN ACQUIRED? BIRTH WHERE?
+NATIONALity N.D.S.U. REGISTERED FLG. STATE COUNTRY
+OCCUPATION LAST EMPLOYER Dayton, Ohio

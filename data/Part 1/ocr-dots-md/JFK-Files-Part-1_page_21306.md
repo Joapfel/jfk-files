@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_21306.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+Series No. TMH-344
+16 March 1948
+
+SUBJECT: Spanish Communist Party
+
+1. Investigations are being conducted/in attempts to identify individuals named in earlier statements concerning Spanish Communist Party transmitted to us in TMH-265, review of Source A files has revealed only scattered information which is being used as a basis for the investigations and this preliminary data is set forth below.
+
+2. In March 1947 Source A outlined in more detail the Spanish Communist Party system in the Western Hemisphere. The addresses known to be given by the Party at that time were stated to be as follows:
+
+a. Buenos Aires
+
+Juan Carlos Calle Rincón 1804
+Buenos Aires
+
+Jalma / BANDOLAY Pichincha 100 (7º piso)
+Buenos Aires
+
+Luis María Estrecho Unides 2300
+Buenos Aires.
+
+b. Mexico
+
+Antonio Núñez Correia
+Avenida Ejido 37
+Mexico, D.F.
+
+c. New York
+Nápolis 77
+Mexico, D.F.
+
+d. Washington
+Cárdenas 67, Apt. 27
+Mexico, D.F.
+
+--- - -
+SECRET 200-1-5-77
+
+-1-

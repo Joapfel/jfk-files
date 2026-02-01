@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_21308.png
+
+Convert to MarkdownSECRET
+
+-3-
+
+Series No. T12-314
+March 16, 1948
+
+(1) FRENCH MISSION (nationality not given) was named Secretary General and Assistant Director of CHILEAN COUNCIL OF CUBAN COMMUNIST GROUP.
+
+(2) KIYOSHI OOKURA (nationality not given) was the head of the intelligence service in Cuba until June 1948 (see line 5). On that date, OKURA left for Spain.
+
+c. The information - given in May; obtained in April. There is only one possibility: while he was obviously considered to have any bearing on this item.
+
+(1) SALVADORIAN ALLIES (aka Santiago Bay解放军) were created in 1948 and, until their withdrawal from the country in 1950, they existed as a terrorist group. While they lived in Santiago de Cuba, when the USA sent its troops to改革和解放，they assisted the Spanishisto's (PacMan) GANGSTA gangrene in work "of an intelligence nature" for the Spanish front group, Casa de la Cultura.
+
+d. GUILLERMO - 170 In May; 100 In Apr. Source A reported:
+
+(1) JOAQUIN LOPEZ was serving in 1948 as First Vice President of CONITE HISPANO COBATO PRO REPUBLICANO ESPANOLA in Sanchez de Avila, Cuba.
+
+(2) JOAQUIN LOPEZ was a sailor on the vessel RIO MEXICO in 1948 and was acting as a co-pilot for the Spanish Communist Party. This information, it has stated, was obtained from secret writings between one "PALACIOS" in Buenos Aires and one "GUILLERMO" in Habana.
+
+Source B advises that according to official Cuban records, the vessel RIO MEXICO of Argentine Registry has arrived at Cuba only once since 1942. That was 13 April 1943. There is no record of the vessel having been here any time in 1942. The crew list of the RIO MEXICO does not carry the name of Joaquin LOPEZ nor any name similar thereto.
+
+e. PALACIOS - a seaman, who usually takes transit to Cuba, along two contracts who are anti-communist. "PALACIOS" - Summary Jan-Nov 47. "To PANCHO Jan-Nov $315.55."
+
+(1) In March 1947 it was reported by source A that Francisco PANCAYO MARÍNAGUA (see 3c(1)) had traveled in 1947 and 1948 from Cuba to Portugal
+
+-3-
+SECRET
+
+20-4-5-88

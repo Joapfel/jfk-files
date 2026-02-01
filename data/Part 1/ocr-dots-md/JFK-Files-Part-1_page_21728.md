@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_21728.png
+
+Convert to MarkdownDepartment. According to NOSENKO, the prepared report was never typed as a formal document.
+
+The view has been set forth that NOSENKO took undue risk in carrying written notes with him out of the Soviet Union. An examination of this material suggests that NOSENKO was using extreme care in collecting material and was not attempting to obtain documents, the possession of which might be incriminating or which if he had brought out would have been immediately missed. Instead, he collected a considerable amount of valuable information which he could bring out with little or no fear that a search of his effects in the KGB after his departure for Geneva would disclose that certain material was missing. None of the material was registered and all could have previously been destroyed by NOSENKO.
+
+The previous summary stated that NOSENKO brought three KGB documents to Geneva. These were typed papers but none was registered or actually accountable. The reference to three documents was to:
+
+(a) The draft report for the briefing of the Collegium which has been mentioned previously.
+
+(b) A typed two-page report on several cases. Actually a Chief of Section had typed his notes on cases instead of submitting in handwriting as the others did.
+
+SECRET
+
+G001234
+
+17
+
+SECRET

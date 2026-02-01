@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_21876.png
+
+Convert to MarkdownE. Timing of Defection
+
+After telling CIA on 24 January 1964 of his decision to defect, NOSENKO at the same meeting concurred when CIA gave operational and administrative reasons for him to stay in place until the middle of February. During the week that followed, the date of the defection was moved up to 8 February in accordance with NOSENKO's wishes and with his reports indicating that less information of value would be forthcoming than CIA had at first thought. On 4 February, however, NOSENKO reported that he was being recalled to Moscow for a conference on foreign tourism in the USSR, and he therefore placed himself in CIA custody on that date.* Details on the timing of NOSENKO's defection are given in the following paragraphs.
+
+At the 24 January meeting the CIA case officers agreed in principle with NOSENKO's decision to defect. NOSENKO felt that it would be best for him to disappear from Geneva without a trace, leaving all his personal possessions behind; he assured that CIA could exfiltrate him from Switzerland to the United States. He wanted to carry out this plan as soon as possible, but the CIA officers encouraged him--and NOSENKO agreed--to remain in place for at least three weeks more. The reasons given NOSENKO for this request were:
+
+- The desire to get information on the local KGB Legal Residency and the Soviet delegation to the Disarmament Conference while he still had access to this information;
+
+- The value of having NOSENKO present when O.M. GRIBANOV made a visit to Geneva about 7 February a visit known to CIA only through NOSENKO;**
+
+- The potential value to be derived from NOSENKO'S in place spotting of CIA recruitment targets among the Soviet representation in Geneva;
+
+- The necessity of making arrangements, acceptable to NOSENKO, for his defection and resettlement.
+
+The events which followed NOSENKO's agreement to remain in place for a short time longer are chronicled below:
+
+* The report of NOSENKO's recall to Moscow for the conference on tourism is discussed further in Part III.F.
+
+** GRIBANOV was in 1964 the Chief of the KGB Second Chief Directorate and, according to NOSENKO and other sources, the sponsor of NOSENKO's rapid rise in State Security. Several *~~sources~~* have reported that GRIBANOV was fired from the KGB as a result of NOSENKO's defection (Part III.I.). NOSENKO'S relationship with GRIBANOV is discussed in Part V.H.

@@ -1,0 +1,66 @@
+# JFK-Files-Part-1_page_20831.png
+
+Convert to MarkdownCreditable Summer
+
+**Military**
+
+45 - 10 - 37
+43 - 02 - 13
+02 - 08 - 19
+
+**Contract Employee**
+
+- 54 - 03 - 04
+  55 - TO
+  03 - 31
+
+CON-
+INUOUS
+SERVICE
+
+**Staff Employee**
+
+- 55 - 04 - 01
+  56 - TO
+  02 - 06
+
+STAFF AGENT
+
+- 56 - 02 - 07
+  58 - TO
+  08 - 13
+
+**INDEPENDENT CONTRACTOR**
+
+58 - 08 - 19
+TO
+60 - 03 - 13
+
+NOT
+CREATIBLE
+SERVICE
+
+**STAFF EMPLOYEE**
+
+- 03 - 14 - 60
+  TO
+  PRESENT
+
+02 - 08 - 19
+MILITARY
+58 - 08 - 13
+
+04 - 05 - 10
+
+04 - 05 - 10
+
+06 - 13 - 29
+
+07 - 01 - 29
+
+44
+07 - 01 - 29
+
+S.C.D. 53 - 01 - 15 A.m. 7.01-66
+
+L.C.D. 55 - 10 - 04} 8 p.m. 7.01-66

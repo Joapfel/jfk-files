@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_20940.png
+
+Convert to MarkdownO/Personnel/Contract Personnel Div
+50-69 Ltdrs.
+(Paul R. Wilson)
+
+23 April 1970
+
+OP/MAD - 205 Magazine Mldg.
+
+Attn: Adelo J.Sukowicz
+
+1. Adelo: Hope the following with help you:
+
+(a) Attached is our CPD file on loan. In it find a chronicle of all of subject's contract service.
+
+(b) Information in our CPD memo of 30 June 66 is reaffirmed. However, note it did not cite subject's 1951/52/53 service, which service is cited in the O/Finance memo of 16 June 1966. This 1951/52/53 service is independent contractor service and not creditable for purposes of Civil Service Retirement.
+
+(c) Our CPD memo of 30 Jun 66 indicates subject had a social security obligation for period 1 Jan 55 thru 31 Mar 55. Since this obligation came about retroactively in mid 1955, possibility exists that neither subject or the Agency made contributions to the Social Security System. If they were not made, it is possible for such to be made at this late date and if subject or WfI Division is interested in looking into this, they should contact Rod Brooks of CPD.
+
+Paul R. Wilson

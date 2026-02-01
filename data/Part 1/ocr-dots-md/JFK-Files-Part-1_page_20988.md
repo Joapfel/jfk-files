@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_20988.png
+
+Convert to Markdown28 JUN 1974
+
+MEMORANDUM FOR : Deputy Director for Management and Services
+SUBJECT : Request for Voluntary Retirement -
+Mr. Jacques C. Richardson
+
+1. This memorandum submits a recommendation for your approval in paragraph 3.
+
+2. The employee named above has applied for voluntary retirement under the provisions of Headquarters Regulation 20-50h.
+
+Grade: GS-15 Equiv. Position : Career Associate
+Career Service : Operations
+Office/Division : Europe Division
+Date Requested for Retirement : 28 June 1974
+Age at that Date : 50
+Years of Creditable Service : 30
+Years of Agency Service : 24
+Years of Qualifying Service : 19
+
+3. The applicant's Career Service and the CIA Retirement Board recommended that the request be approved. I endorse these recommendations.
+
+Director of Personnel
+
+4. The recommendation contained in paragraph 3 is approved:
+
+Deputy Director for Management and Services
+
+Date
+
+CONFIDENTIAL
+
+E-2 IMPULS C.A. 026683
+
+3585 (4-74)

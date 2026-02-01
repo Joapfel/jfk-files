@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_22270.png
+
+Convert to Markdownaspect which NOSENKO failed to see: He said that this man had come to Moscow on a Soviet visa issued on a separate piece of paper, rather than entered in the man's passport, so that there would not be a permanent record of his travel to the USSR. This implies, and furthermore confirmed, that he travelled under his true name to Moscow. Furthermore, as a tourist, entering the USSR on a Soviet tourist ship. In view of the First Chief Directorate's operational jurisdiction in this otherwise normal tourist, there was an obvious necessity for coordination between the First Chief Directorate's American Department and the Second Chief Directorate's Tourist Department, to prevent any slippage (such as NOSENKO described in the SHUBIN case, when the CRU failed to coordinate with the KGB). Yes despite logical professional need-to-know on NOSENKO's part, he first made his own knowledge unofficial, and then his subsource's knowledge unofficial as well.
+
+NOSENKO was unable to explain how he had learned of the case of French GRIBANOV. When pressed for a subsource, he claimed that he had attended a reception at the Indian Embassy in 1953 or 1959 with GRIBANOV, and when GRIBANOV told him to take a glass of wine to the one who understood somehow that GRIBANOV was an agent of GRIBANOV's.
+
+His sourcing for the case of the French businessman, [Page 484], is not unlike that of GRIBANOV, he said he had known that there was a French businessman who was an agent. On one occasion when NOSENKO was duty officer for the Second Chief Directorate a call for GRIBANOV came in and he asked who was calling. When he was told it was GRIBANOV, then he knew somehow that this was GRIBANOV's agent.
+
+### 3. Remarks
+
+NOSENKO'S errors concerning "ANDREY" (particularly his early insistence that "ANDREY" had left Moscow years before NOSENKO entered the KGB) make it impossible that NOSENKO could have learned of the case in the way he later said he did.
+
+NOSENKO'S accounts of how he learned of the "Paris agent" are vague and vary with each telling; they also depend heavily on coincidence. It is noteworthy too that he claimed to have been told of this one operation by no less than four individuals, whereas the rest of what he learned of First Chief Directorate operations in eleven years of KGB service came from only two other individuals. Furthermore, his knowledge of "SASHA" stemmed from elaborate and apparently contrived sourcing which he himself was unable to reconstruct when pressed for exact details. NOSENKO's inability to give any clear and consistent account of how he heard of either the "Paris agent" or "SASHA" must be judged in the light of the fact that he first heard of both cases only just after promising to collect such information for CIA. because these were among the most important and the most fortuitous items he ever picked up, it could reasonably be expected that he would remember how he did so, especially since only a little over a year elapsed until his next meeting with CIA.
+
+NOSENKO'S sourcing for the Paris agent, and leads seems illogical and fabricated. It also appears that NOSENKO has given an inaccurate version of the way in which he would have learned of (not an Illegal as NOSENKO indicated, but an agent).
+
+TOP SECRET

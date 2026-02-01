@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_20657.png
+
+Convert to Markdown<table><tr><td>OFFICE OF PERSONS</td></tr><tr><td>RESIGNATION</td></tr><tr><td>I Resign For The Following Reason:</td><td>FLS 4 2 37 PM '60</td></tr><tr><td></td><td>MAIL ROOM</td></tr><tr><td>Mr. Last Working Day Will Be</td><td>This Date (Date Of Signature)</td><td>Signature</td></tr><tr><td colspan="3">Forward Communications, Including Salary Checks And Bonds, To The Following Address (Number, Street, City, Zone, State):</td></tr></table>

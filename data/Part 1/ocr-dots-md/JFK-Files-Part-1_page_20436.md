@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_20436.png
+
+Convert to MarkdownSECRET
+
+6. In the event the Employee desires to resign from the service overseas, he shall submit a written resignation addressed to the ADSO, who will take appropriate steps to clear the matter with the Department of State.
+
+ARTICLE XII. Security. This contract contains information affecting the national defense of the United States within the meaning of the Espionage Act (50 U.S.C. 31 and 32, as amended). Its transmission or the revelation of its contents in any manner to an unauthorized person is prohibited by law. Violation of this ARTICLE or any security agreement signed by the Employee with the Government shall result in immediate disciplinary action, which may include suspension, separation from Government service, and may subject the Employee to criminal prosecution under the Espion- age Act.
+
+1. The termination of this contract will not release the Employee from the provisions of any security oaths which he may be required to take by CIA.
+
+2. The Employee shall not publish, transmit, or divulge in any manner, information received by him as the result of his employment by the Government under this contract without specific written authority from the Director, CIA.
+
+ARTICLE XIII. Orders and Directives. Orders and Directives received by the Employee from competent authority, including in- structions received in briefing and training, shall be complied with by the Employee. No promises or commitments to the Employee of any nature whatsoever, beyond and in addition to the terms hereof, shall be binding on the Government unless and until such promise or commitment is reduced to writing and approved by an authorized official of CIA, and such writing placed with this contract thereby becoming an amendment hereto.
+
+ARTICLE XIV. Amendments. The Government may at any time amend this contract and may terminate this contract upon thirty day prior notice to the Employee. If the Government proposes to amend this contract by reducing the salary provided for in ARTICLE IX (including class promotions, or other authorized increases, if any) and such reduction is unacceptable to the Employee, resigna- tion by the Employee for such reason shall be considered as a termination of this contract for the convenience of the Government. Where the Employee is directed to proceed to a new post on a per- manent change of station by the ADSO, this contract will be deemed to have been amended to the extent of such change.

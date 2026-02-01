@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_21932.png
+
+sent me directly to the Second Directo-
+rate, the American Department, the First Section, working with
+American correspondents...in '53, in March, in March '53. STALIN
+had just died."*
+
+*STALIN died on 5 March 1953.*

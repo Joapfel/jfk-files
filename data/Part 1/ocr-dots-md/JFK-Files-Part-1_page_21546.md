@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_21546.png
+
+Convert to MarkdownSECRET
+
+NOSENKO has stated that he gave considerable thought to the best way to contact the Americans so that he would be believed and not rejected and came to the conclusion that he would offer to sell some information. NOSENKO stated that he thought if he approached the Americans stating he was a "KGB counterintelligence officer who wanted to give information," he would not have been believed and would have been peremptorily rejected. NOSENKO stated he had difficulty deciding how much money to ask for and how to make the approach, but finally decided to do it through David MARK whom the KGB considered was with American Intelligence.
+
+The above statements by NOSENKO are not in conflict with the record. NOSENKO did offer to sell "two pieces of information," almost immediately gave more information, made no significant demands for money, and in fact his price for "two pieces of information" was ridiculously low by American standards. NOSENKO has during current interviews stated, as he first stated in 1962, that he had spent excessive amounts of money in one or two riotous evenings. However, NOSENKO has during current interviews stated that he could have covered his expenditures by other means without receiving any money from the Americans.
+
+4
+
+0001054
+
+SECRET
+
+WBR

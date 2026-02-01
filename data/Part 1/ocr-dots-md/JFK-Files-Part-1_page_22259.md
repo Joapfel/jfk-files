@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_22259.png
+
+Convert to Markdownb. Compromise of PENKOVSKIY*
+
+(1) Introduction
+
+Because his direct responsibility for coverage of ABIDIAN is an essential element in NOSEMKO's story of his 1960-1961 career, because he insists that the KGB had no idea of U.S. involvement in the PENKOVSKIY case until Richard JACOB went to the Pushkin Street dead drop on 2 November 1962, and because he is adamant on the point that the KGB until almost the end of the PENKOVSKIY case knew of no connection between PENKOVSKIY and the Pushkin Street site which ABIDIAN visited, NOSEMKO'S story of the compromise of PENKOV- SKIY appears to bear directly on the question of NOSEMKO'S bona fides. Each of the various versions of the compromise of PENKOV- SKIY must be examined and compared with NOSEMKO'S story and with the established facts.**
+
+(ii) Discussion
+
+sources agree on the cause, and two on the timing. NOSEMKO, as before, and the "official KGB report" attribute the compromise to the fact that surveillance detected a meeting between Mrs. CHISHOLM and the Soviet whom the KGB later identified as PENKOVSKIY. NOSEMKO dated this as around November or December 1961, the official report stated this occurred on 30 December 1961, and did not give a date.
+
+Gave the cause as surveillance, but of Greville WYNNE and PENKOVSKIY rather than Mrs. CHISHOLM, and stated that the compromise dated from May 1962. Gave two different accounts, one that PENKOVSKIY was investigated for reasons unrelated to any suspicions of espionage and was thereby found out as a spy, the other that his excessive spending and sale of foreign merchandise led to an investigation which resulted in detection of his espionage activities. She placed the timing of the first version in 1961, without citing the time of year; in the second, she associated the timing with a warning against association with PENKOVSKIY which she and her husband received in about November 1961.
+
+Since
+
+* See Pages 535-547 for discussion of this case.
+
+**It does not seem unusual for several sources to have reported on the compromise of PENKOVSKIY: Presumably this was the subject of widespread discussion within the two Soviet services, for it was covered in the Soviet press and in at least one "official report" disseminated by the KGB. Although their differing situations within the Soviet services could partially explain the differing versions that these sources have given, some of them nevertheless have claimed either direct knowledge of the compromise or specially informed sub-sources. Therefore the discrepancies among the reporting of NOSEMKO on the PENKOVSKIY compromise, the accounts by other sources, and the facts on the handling of the case by CIA and MI-6 are pertinent to the question of NOSEMKO's bona fides.

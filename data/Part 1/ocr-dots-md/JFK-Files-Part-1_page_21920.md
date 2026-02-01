@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_21920.png
+
+Convert to MarkdownJune 1962
+
+1964
+
+76.
+
+1965
+
+April 1966
+
+October 1966
+
+**[See next entry.]**
+
+NOSENKO did not like his work in Sovetsk [sic] and wanted to return to Moscow to arrange for a transfer. He asked for annual leave which the unit commander refused to give him as he had none due. NOSENKO thereupon went to Admiral GOLOVKO in Baltiysk and with his help obtained leave because of the elder NOSENKO's influential position. NOSENKO then returned to Moscow shortly before New Year's.
+
+"IN THE beginning of 1953 I came to Moscow [from Primorsk]. This was '53, in the beginning."
+
+"I arrived back in Moscow in December 1952, just before New Year's. I had vacation for the month of Janu-
+
+In January NOSENKO and his parents went to visit the family of General KOBULOV at KOBULOV'S dacha in Usov. NO-
+
+"I remained in Sovetsk a short time and returned to Moscow at the end of the year [1952] with the aim of changing my place of work... While in Sovetsk I received the rank of lieutenant of the Administrative Service." [Note: See 1965 entry for the spring of 1951.]
+
+"On 1 January 1953 my parents and I were guests at the dacha of KOBULOV who at that time was working in GUSIMZ in East Ber-"
+
+68: NOSENKO was divorced from TELEGINA during his leave before going to Sovetsk (May and June 1952).

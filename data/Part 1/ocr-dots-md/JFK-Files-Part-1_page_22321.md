@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_22321.png
+
+Convert to MarkdownTOP SECRET
+
+728.
+
+NOSENKO said that the decision to send him to Cuba was made two days before the delegation left Moscow because a security officer was required and he happened to have a passport and authorization to travel. The delegation left Moscow on 15 November 1960, and therefore this decision was reached on 13 November or thereabouts. NOSENKO, who had been transferred to the U.S. Embassy Section in order to supervise and revitalize operations against code clerks, the Section's most important recruitment target, consequently left Moscow on the day that MORONE also departed by train for Warsaw and at a time that his subordinate KOSOLAPOV was in Helsinki (12-16 November 1960), apparently in connection with an operation against John GARLAND.
+
+NOSENKO has given widely divergent accounts of the purpose of his assignment to Cuba. In 1962 he related in detail how he had been sent to investigate how the Cuban-intelligence service was operating against Americans stationed in Havana, particularly intelligence officers, and described what he did to fulfill this mission. Since 1964, however, NOSENKO has claimed merely to have been the security officer with the delegation.
+
+TOP SECRET

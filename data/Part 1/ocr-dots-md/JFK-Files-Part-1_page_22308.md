@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_22308.png
+
+Convert to MarkdownTOP SECRET
+
+715.
+
+have been known to him upon his return, and he would not have forgotten about the trip. (In fact, CIA travel records show that KOSOLAPOV arrived in Helsinki on 12 November 1960 and that NOSENKO left Moscow for Amsterdam, en route to Cuba, on 15 November.) NOSENKO has not changed his position that there was no such trip.
+
+#### (iv) The MORONE Case
+
+Like the STORSBERG operation, the MORONE case was mentioned at NOSENKO's first meeting with CIA; he cited it as an example of a technique which NOSENKO introduced for using third nationals to obtain access to American code clerks who were reluctant to establish contacts with Soviet citizens. According to NOSENKO's most recent version, given in early 1965, the KGB learned that MORONE and a Marine Guard (BEGGS) planned to travel to Warsaw on leave. KOSOLAPOV thereupon drew up an operational plan, edited by NOSENKO and KOVSHUK and approved by GRIBANOV, proposing that a female agent of the Polish UB be introduced to MORONE on the Moscow to Warsaw train for the purpose of obtaining compromising materials. KOSOLAPOV arranged with Polish liaison officials in Moscow to have such an agent sent to Moscow, met her when she arrived, and briefed her on the operation. She was then placed on MORONE's train together with a KGB technician whose task it was to obtain tape recordings of the compromise. Events went according to plan: MORONE met the girl and was intimate with her on the train, but when the technician reported to NOSENKO the day after the train arrived in Warsaw, he said that the tape recordings were of low quality and unsuitable for their intended purpose. In a further attempt to acquire compromising material on MORONE, KOSOLAPOV later brought the UB agent to Moscow, and on this occasion photographs were obtained of their intimacies in a Moscow hotel room. Still, the KGB felt, there was not enough blackmail material to ensure recruitment, and it was further planned to have the America House maid IVANOVA attempt to lure MORONE to a room in Moscow where truly compromising photographs of intimacies with a Soviet citizen could be obtained. Possibly because they noticed MORONE'S interest in IVANOVA, NOSENKO said, the Americans ordered MORONE out of Moscow before further steps could be taken.
+
+Although NOSENKO provided a considerable amount of detail on MORONE's trip to Warsaw, there were numerous variations in his different accounts. In 1962 he said that he had handled the entire operation himself, including telephoning Warsaw with the request for the girl; he also said that the UB obtained compromising photographs in Warsaw and that several months later the female agent was brought to Moscow expressly for the purpose of introducing MORONE to a Soviet girlfriend. This, NOSENKO said, was successful and MORONE was soon having intercourse with a KGB agent. While still in place in Geneva on 1 February 1964 NOSENKO gave a different version: "We," he said, arranged for the girl by a dispatch pouched to the KGB advisor in Warsaw; moreover, the Poles, who had obtained compromising photographs in Warsaw, sent the KGB only pictures of the two kissing, keeping the best ones for themselves, and this is why she had to be brought to Moscow. NOSENKO told the FBI later in February 1964 that compromising photographs had been obtained in Warsaw but no recruitment was attempted because KHRUSHCHEV had
+
+TOP SECRET,
+
+10P SECRET,

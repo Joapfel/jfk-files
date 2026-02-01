@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_22002.png
+
+Convert to Markdown*PIN. Yes. LANGELE was before my time.* Two months later, on 24 June 1964, NOSENKO stated: "In 1959 and possibly in 1958, Mikhail Fedorovich BAKHVALOV was the Deputy Chief of the U.S. Embassy Section. I replaced him in this position in 1960 and he went to the Fifth (Eastern Countries) Department as Deputy Chief."* On 8 September 1964 NOSENKO volunteered for the first time that BAKHVALOV, as Deputy Chief of the section, had been the case officer for LANGELE. Under interrogation in early 1965, NOSENKO added that BAKHVALOV had also been responsible for maintaining the file on the security of the U.S. Embassy. At this time he explained his earlier statement by saying that BAKHVALOV had left the section before his arrival and had given the file to KOVSHUK to hold for his successor. The file continued to be charged officially to BAKHVALOV, however, even though he was no longer in the section, and NOSENKO arranged for the official change of custody shortly after reporting for duty (see Part V.E. 3.f.). NOSENKO said further, in January 1965, that BAKHVALOV had shared responsibility for supervising code clerk operations with KOVSHUK before NOSENKO arrived to assume these duties himself. NOSENKO had been given a number of opportunities prior to 24 June 1964 to identify BAKHVALOV as his predecessor, but he did not do so. These are summarized below:
+
+**25 January 1964:** In a discussion of the Fifth (Eastern Countries) Department of the Second Chief Directorate. NOSENKO said: "The Chief of this department is Colonel Artem DAVIDYAN. He is an Armenian. His Deputy is Colonel Mikhail BAKHVALOV."
+
+**27 February 1964:** NOSENKO was shown a photograph of V.A. ALEKSEYEV, a Soviet who was in Japan from July to September 1961 as a member of a trade delegation. NOSENKO immediately recognized the face as that of the Deputy Chief of the Fifth Department of the Second Chief Directorate. He said that he did not know this person's last name, but that his first name and patronymic were Mikhail Fedorovich. When shown the last name ALEKSEYEV, NOSENKO recognized it as an alias, but provided no further information concerning his true identity or earlier service in the American Department.
+
+**10 June 1964:** NOSENKO was asked to list in writing the names of KGB officers who had received various awards for their service. He wrote: "The following got either the Order of the Military Red Banner or the Order of the Red Star, I'm not sure which: Mikhail BAKHVALOV, Deputy Chief of a section in an unremembered department of the Second Chief Directorate."
+
+**18 June 1964:** NOSENKO was asked to list all the officers who had been assigned to the American Department for each year since he joined the KGB. He named the chiefs and deputies of the U.S. Embassy Section from 1953 through 1956. When he came to 1957, however, he said that he could not provide accurate information as to which officers were assigned to the section for that year through 1959 (he was
+
+* With reference to the Fifth Department, NOSENKO has furnished only one other item of information: he reported that in 1958, or as late as the fall of 1959, the Israeli Section was transferred to this department after having been a component of the American Department.
+
+TOP SECRET
+
+14-00000

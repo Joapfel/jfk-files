@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_21745.png
+
+Convert to Markdownduring 1960 - mid-1961 when he was forced into retirement from the
+KGB. During the above period of time, NOSENKO claims to have
+been Deputy Chief, First Section, although he does not claim to have
+had a direct supervisory responsibility over CHEREPANOV except
+in the absence of the Chief of Section, Vladislav KOVSHUK. NOSENKO
+also claims to have participated in the hunt for CHEREPANOV in
+December 1963.
+
+Consideration has previously been given to the theory that the
+Cherepanov Papers were passed to Americans by the KGB through
+CHEREPAÑOV to support the bona fides of NOSENKO. This theory
+seems to have little credibility since the papers contain no information
+which would even support the claim of NOSENKO that he was in the
+First Section, First Department, 1960 - 1961. The papers also contain
+no information which would indicate there was even a Deputy Chief of
+the First Section during 1958,- 1960.
+
+Statements by NOSENKO are emphatic that CHEREPANOV was
+not under KGB control, that he passed the papers which it later developed
+he had taken from the First Section prior to his retirement because he
+was disgruntled with his treatment by the KGB, and that the action by
+CHEREPANOV caused consternation in the KGB.
+
+There is no collateral evidence which contradicts any of
+the statements by NOSENKO about CHEREPANOV. Further, there is
+
+G001251
+
+2
+
+SECRET

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_20773.png
+
+Convert to MarkdownSECRET
+
+CHIEF OF MISSION'S EVALUATION & PERFORMANCE
+(Mission submits original and one copy directly to appropriate agency, retains one copy.)
+
+<table><tr><td colspan="2">OFFICER BEING RATED</td><td colspan="2">POST</td></tr><tr><td colspan="2">Chief CAS</td><td colspan="2">American Embassy BRASILIA</td></tr><tr><td>POSITION</td><td colspan="3"></td></tr><tr><td>Chief of Station</td><td colspan="3"></td></tr><tr><td>RATING PERIOD</td><td colspan="3">11/1/70 - 10/31/71</td></tr><tr><td>SIGNATURE OF REPORTING OFFICER</td><td colspan="3">William M. Roundtree</td></tr><tr><td>SIGNATURE OF REVIEWING OFFICER</td><td colspan="3"></td></tr><tr><td colspan="4" style="text-align:center; font-weight:bold;">EVALUATION OF PERFORMANCE</td></tr><tr><td colspan="2">&nbsp;</td><td>[X] Outstanding</td><td>[ ] Satisfactory</td><td>[ ] Unsatisfactory</td></tr><tr><td rowspan="3">II.</td><td colspan="5">Does this officer properly understand and perform his role and his functions as a member of your staff under existing Presidential directives? [X] Yes [ ] No (If no, explain in detail below.)</td></tr><tr><td colspan="5">Has he seen this report? [ ] Yes [X] No</td></tr><tr><td colspan="5" style="font-weight:bold;">NARRATIVE COMMENTS</td></tr><tr><td colspan="5">(Attach additional sheets, if necessary for this section or for reviewing officer's comments.)</td></tr><tr><td colspan="5">Mr. Phillips is an able officer and a highly cooperative member of the Country Team. I have been impressed and pleased with the degree of cooperation which exists between him and other members of the Embassy staff. He has, to the extent that is possible considering the nature of his work, cooperated in our efforts to bring about maximum coordination of reporting. With rare exceptions he has, I believe, kept me appropriately advised on all matters relating to his functions, and the material which he provides on a regular basis has been extremely useful in the discharge of my mission.<br/><br/>Mr. Phillips works quietly and discreetly and is alert to any situation which might create problems for the Embassy and the United States. I fully share the view of the DCM, expressed in a previous evaluation, that both Mr. Phillips and his wife conduct themselves in a quiet, friendly and wholly creditable manner.<br/><br/>I feel that both the Agency and the Embassy are fortunate in having a man of Mr. Phillips' abilities and qualities as CAS Chief at this important post.</td></tr><tr><td>III.</td><td colspan="4"></td></tr></table>
+
+FORM
+4-65 FS-572 SECRET
+
+SECRET (When Completed)

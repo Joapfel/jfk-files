@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_20689.png
+
+Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+
+TO : Chief, Contract Personnel Division
+
+FROM : Deputy Director of Security (Investigations and Support)
+
+SUBJECT:
+
+DATE MAR 20 1956
+
+1. Reference is made to your request dated 20 January 1956 for a Covert Security Clearance to permit appointment of Subject to Staff Agent/operations officer at Havana, Cuba.
+
+2. In accordance with the provisions set forth in the Director's Memorandum of 14 February 1949 entitled, "Security and Operational clearances," a covert security clearance is granted for the covert use of the Subject, as described in your request as set forth in paragraph 7d, above. This will confirm the Covert Security Clearance granted telephonically to Mr. Ken Wambold, CFO x-3585 on 26 January 1956.
+
+3. Subjects of covert security clearances are not to represent themselves as, nor are they to be represented, as, employees of CIA.
+
+4. Your attention is called to the fact that a covert security clearance does not constitute complete compliance with the provisions of CIA regulation 10-210. Therefore, if you should desire at a later date to change the status or use of this individual, a request for clearance to cover any proposed change should be submitted to this office.
+
+5. This clearance becomes invalid in the event the Subject's services are not utilized within 60 days of the date of this memorandum.
+
+FOR THE DIRECTOR OF SECURITY:
+Robert L. Wambold
+
+SECRET

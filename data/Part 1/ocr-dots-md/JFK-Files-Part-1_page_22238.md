@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_22238.png
+
+Convert to Markdown646.
+
+discussion below. This subject, too, must be considered neutral evidence in the bona fides assessment.
+
+NOSENKO has shown himself to be both uninformed and inaccurate in his answers to questions on KGB Headquarters staff procedures (Page 360 and Pages 619-624). He has been unable to contribute any new information, although there has been no detailed reporting on the subject since 1954. (GOLITSYN in 1962 provided some new material on procedures but was never comprehensively debriefed on the topic.) Thus, information on the more up-to-date forms, co-ordination requirements, mechanization of records and tracing mechanisms, etc., could have been a singular contribution to our knowledge; NOSENKO could not describe anything of this sort. When he replied to questions about such matters for the period covering his entry into the KGB, on which previous reporting is available in detail, he answered incorrectly on numerous points. NOSENKO'S tendency to improvise when he did not know the correct answer or when he had forgotten has been characterized by a CIA psychologist as the behavior of a pathological liar saving face in a tight psychological situation. When he could not produce a correct answer in this area of reporting, NOSENKO may have improvised because he is a liar or because he is concealing an ignorance based on not having been a KGB Headquarters officer.
+
+### 3. Operational Leads
+
+#### a. Introduction
+
+Consideration of NOSENKO's operational leads must take into account the KGB positions and personal associations (with attendant access to information) which NOSENKO has claimed for himself. He indicated that the breadth of his knowledge about KGB agent operations and development cases increased as he rose from case officer in the U.S. Embassy Section in 1953-1955 and in the American Tourist Section in 1955-1958 to become Deputy Chief of the latter section in 1958-1959, Deputy Chief of the U.S. Embassy Section in 1960-1961, and finally Deputy Chief of the Tourist Department from 1962 until his defection. Simultaneously he established lasting contacts with his KGB colleagues so that, for example, even after leaving the U.S. Embassy Section for the second time, in December 1961, NOSENKO kept abreast of its most important activities. On these grounds NOSENKO presented himself as an authoritative source, one who could detail the successes and failures of the KGB in recruiting Westerners--especially Americans--in the USSR over the years from 1953 through 1963. Repeatedly NOSENKO asserted that his leads to KGB agents constituted proof of his bona fides.
+
+#### b. Operations Involving Americans
+
+NOSENKO drew a picture of the recruitment scene in Moscow showing that:
+
+* Since the "ANDREY" case of the early 1950's* the KGB recruited no Americans on the U.S. Embassy staff, succeeding only in recruiting one contract employee who was in Moscow on TDY. NOSENKO reported on recruitment approaches to six American officials stationed in Moscow, all of whom
+
+\* NOSENKO placed the recruitment date prior to his entry into the KGB in early 1951, but Hayto W. SMITH (KGB cryptonym "ANDREY") said he became a KGB agent in November or December 1953. TOD SFCV...

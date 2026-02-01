@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_20614.png
+
+Convert to MarkdownU. Y. WILSON, M.D.
+DEPARTMENT OF RADIOLOGY
+Drs. CROOVER, CHANEY AND LINN
+
+PATENT NO. 1,926,385
+
+EXAMINATION DATE:
+
+Under examination found only a small portion of the colon was involved. The rest of the colon is normal.
+
+SIGNATURE:
+J. M. Wilson, M.B.A.
+
+12/14/70
+
+CHART COPY

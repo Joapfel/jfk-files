@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_21490.png
+
+Convert to MarkdownSECRET
+
+Files
+
+29 January 1964
+
+M. D. Stevens
+
+THE LEE HARVEY OAKLEY CASE #51164
+
+1. According to a newspaper column of "Allen and Scott" in the Chicago American of 6 December 1963, on the O'CONNOR case, Abraham 'HAYES', Legal Officer of the State Department, was one of two persons immediately responsible for O'CONNOR's being permitted to return to the United States from the Soviet Union in June 1962. The other individual named was Llewellyn THOMSON, the then Ambassador to Russia. Another said to have been involved in the handling of O'CONNOR's case was Samuel VILLI, Counsel of the American Embassy in Moscow.
+
+2. Abebe CHAYES, #35234, who as of 16 February 1961 was described as "the new Counsel in State", was granted security approval for liaison contact with J. Foster COLLINS (in the office of the Chief of the Secret Action Staff) on 6 March 1961. The request for CHAYES' clearance was a "Blanket" request to permit discussion with him of FSC 5412/2 matters on a need-to-know basis.
+
+3. In September 1961 there was a White House names check request on CHAYES' wife Antonia (Tony) Leigh CHAYES, made: HANDLER.
+
+4. In March 1962, CHAYES was granted a renewal of his liaison contact clearance with CICA on a continuing basis. This time his contact was Archibald ROCHEVELT, Jr.
+
+5. On 10 February 1962, ELLAN EVENTS reported as follows with reference to CHAYES:
+
+"CONFIDENTIAL: Representative Francis F. Walter (F.-Pa.), Chairman of the House Committee on Un-American Activities, has scored the new State Department regulations on passports, claiming they would allow Reds denied passports to "rifle freely the confidential files of the FBI, the CIA and other investigative agencies." The man behind the new regulations, which Walter claims violate the Internal Security Act of 1950, is reportedly State's chief legal officer, Abebe Chayes. Chayes, a Kennedy appointee, is an ex-Harvard professor who was Lecturer Bowles' top legal adviser when Bowles was Governor of Connecticut. Walter has introduced legislation to remedy the new passport regulations."
+
+<table>
+  <tr>
+    <td>GROUP 1</td>
+  </tr>
+  <tr>
+    <td>Excluded from automatic<br/>classification and<br/>de-identification</td>
+  </tr>
+</table>
+
+SECRET
+
+Date: 12/7/1962
+
+Group 1
+Excluded from automatic classification and de-identification
+
+1271-9029

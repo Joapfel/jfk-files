@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_21006.png
+
+Convert to MarkdownSECRET
+
+26 JUN 1974
+
+MEMORANDUM FOR: Director of Personnel
+THROUGH : Deputy Director for Operations
+SUBJECT : Request for Approval to Utilize Thomas B. CASASIN (P) as an Independent Contractor
+REFERENCE : DD/P 6-1818, 2 May 1966
+
+**1. Action Requested:** The European Division requests approval to utilize Thomas B. CASASIN (P) as an Independent Contractor subject to the terms regarding employment of annuitants as set forth in the reference. CASASIN has just opted for retirement under the Agency Retirement Program effective 28 June 1974.
+
+**2. Basic Data or Background:** CASASIN, born 20 January 1924, has been employed by the Agency since 1949. He held several positions in Headquarters and from February 1955 until October 1960 served in Tokyo. Until his departure for Paris he served as a Branch Chief in the then SR Division. In 1962 CASASIN was assigned to Paris under non-official cover as a Staff Agent to work on the Soviet target. He remained a Staff Agent until his conversion to Career Associate status in 1972.
+
+**3. Staff Position:** In 1972, with Paris Station approval, CASASIN on his own initiative obtained an editorial position with IDENTITY. This cover job affords him the unique opportunity to establish and maintain contact and access to a variety of target personalities. Despite a heavy cover load, he has been able to make useful operational contributions
+
+E2 IMPDET
+CL BY 055747
+
+SECRET
+
+<table><tr><td>07-3/22</td></tr></table>

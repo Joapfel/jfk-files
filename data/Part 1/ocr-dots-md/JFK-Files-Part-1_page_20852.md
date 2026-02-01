@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_20852.png
+
+Convert to MarkdownCONFIDENTIAL
+
+<table><tr><td>SIGNED AT</td><td>DATE</td><td>SIGNATURE</td></tr><tr><td>INFORMATION INC.</td><td>HAROLD P.C.</td><td>Dave C.P. Adams</td></tr></table>
+
+CONFIDENTIAL
+
+14-00000

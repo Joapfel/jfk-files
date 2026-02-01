@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_22327.png
+
+Convert to Markdownof the American Tourist Section, he was in Moscow only three months and for much of this time was involved in breaking into his new job or in preparing for his temporary assignment abroad. NOSENKO said he had "no accomplishments" in this period.
+
+In the fall of 1962, NOSENKO went on leave for a month in Sochi with his wife and mother. NOSENKO has estimated that six months of 1963 were spent on various temporary assignments in the Soviet Union outside of Moscow, plus a one-month's vacation in 1963. From 15 June 1962 to his arrival in Geneva on 19 January 1964, a period of 18 months, NOSENKO was absent from KGB Headquarters for eight months. Thus in the period 1962-63, holding supervisory positions, NOSENKO was absent or "reading in" for about 13 months, or about 50 percent of the time.
+
+## c. Personal Participation in Operations
+
+NOSENKO had direct operational contact with three Americans during 1962 and 1963. Two of these (the approach to JOHNSON and the interrogation of HARGHOORN) were unusual in that they were provocations without any attempt to recruit the target; NOSENKO could name no other examples of such operations. In both cases, the victim of the provocation has verified NOSENKO'S presence. The third case, the recruitment approach to BRAUNS, was unsuccessful. Additionally, NOSENKO supervised the homosexual compromise of KOTEN, who was closely tied in with sensitive source and related.
+
+### (1) The W.E. JOHNSON Provocation
+
+JOHNSON (Pages 289-293), NOSENKO said, was in Moscow as a tourist in early January 1962 and was considered for recruitment, but a decision was made that he was not worth the effort as he had no access to classified materials and lived too far from the KGB Legal Residencies in Washington and New York City. (JOHNSON's home was in Texas.) Several days after this decision was made, postal intercepts showed that JOHNSON was writing abusive letters concerning the Soviet Union. They were "so bitter" and critical that the KGB decided that something had to be done to stop him. At about the same time the KGB received an indication that JOHNSON was a homosexual, and it was decided to entrap him on this basis and force him to promise not to write any more letters or criticize the USSR in articles when he returned to the United States. The compromise was effected by use of NOSENKO's homosexual agents, and NOSENKO was able to describe the confrontation scene, his second meeting with JOHNSON, and JOHNSON's frightened telephone call to the U.S. Embassy reporting that NOSENKO had recontacted him.
+
+NOSENKO told CIA in June 1962 that he had taken part in this operation "in January." When he contacted CIA in Geneva in 1964 he had a scrap of paper on which was noted JOHNSON'S name and the date "5 January 1962." This was the actual date of the approach, but NOSENKO insisted that the date bore no relationship to the name, and that the approach to JOHNSON took
+
+TOP SECRET

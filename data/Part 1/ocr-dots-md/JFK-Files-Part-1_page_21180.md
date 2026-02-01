@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_21180.png
+
+Convert to MarkdownClassify According
+To Content.
+
+<html><body><table><tr><td colspan="12">REQUEST FOR PERSONNEL ACTION</td></tr><tr><td rowspan="2">1. Serial No.</td><td rowspan="2">2. Name (Last, First, Middle)</td><td rowspan="2"></td><td>3. Date Of Birth</td><td rowspan="2">4. Vtr. Prof.</td><td rowspan="2">5. Sex</td><td rowspan="2">6. CS - EOD</td><td colspan="3"></td><td colspan="3"></td><td colspan="3"></td></tr><tr><td>Mo</td><td>Da</td><td>Yr</td><td>None</td><td>0</td><td>5 Pt-1</td><td>10 Pt-2</td><td>Code</td><td>Mo</td><td>Da</td><td>Yr</td></tr><tr><td colspan="2">WILCOTT, James B., Jr.</td><td></td><td>9</td><td>27</td><td>31</td><td></td><td>M</td><td colspan="6"></td></tr><tr><td rowspan="2">7. SCD</td><td rowspan="2">8. CSC Retrn.</td><td rowspan="2"></td><td rowspan="2">9. CSC Or Other Legal Authority</td><td rowspan="2">10. Apmft.Altidav.</td><td rowspan="2">11.FEGLI</td><td rowspan="2">12. LCD</td><td rowspan="2">13. Col./Sd.</td><td colspan="3"></td><td colspan="3"></td><td colspan="3"></td></tr><tr><td>Mo</td><td>Da</td><td>Yr</td><td>Yes</td><td>-1</td><td>No</td><td>-2</td><td>Code</td><td>Mo</td><td>Da</td><td>Yr</td><td>Yes</td><td>-1</td><td>No</td><td>-2</td></tr><tr><td>Mo</td><td>Da</td><td>Yr</td><td>Yes</td><td>-1</td><td>No</td><td>-2</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></table></body></html>
+
+PREVIOUS ASSIGNMENT
+
+<html><body><table><thead><tr><th colspan="2">14. Organizational Designations<br/>DDS/Office of the Comptroller<br/>Fiscal Division<br/>Accounts Branch<br/>Allotment Ledger Section</th><th>Code</th><th colspan="4">15. Location Of Official Station<br/>Wash., DC</th><th rowspan="3">Station Code<br/>75013</th></tr><tr><th>16. Dept. Field<br/>Dept. XX</th><th>Code<br/>Valid.<br/>From</th><th>17. Position Title<br/>Fiscal Acct Clk</th><th>18. Position No.<br/>30.01</th><th>19. Serv.<br/>0501.04</th><th>20. Occup. Series</th></tr><tr><th>21. Grade & Step</th><th>22. Salary Or Rate<br/>SF $ 3670.00</th><th>23. SD</th><th>24. Date Of Grade<br/>Mo Da Yr</th><th>25. PSI Due<br/>Mo Da Yr</th><th>26. Appropriation Number</th></tr></thead><tbody><tr><td>5/1</td><td></td><td></td><td></td><td></td><td></td><td></td><td>8-6303-20</td></tr></tbody></table></body></html>
+
+ACTION
+
+<html><body><table><tr><td rowspan="2">27. Nature Of Action<br/>Reassignment</td><td rowspan="2">Code<br/>56</td><td>28. Eff. Date<br/>ASAP 2 123 5/6</td><td>29. Type

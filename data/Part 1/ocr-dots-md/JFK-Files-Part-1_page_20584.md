@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_20584.png
+
+Convert to MarkdownSECRET
+
+3 October 1966
+
+MEMORANDUM FOR : Chief, TRB
+SUBJECT : Verification of Contract Service for C.R. Hudson Inc. License S.
+
+1. The following is a record of subject's contract service with the Agency:
+
+| Date | Action | Compensation |
+|---|---|---|
+| 4 July 1965 | Contract Employee | $19,880 per annum |
+| 10 October 1965 | Salary Increase | $20,595 per annum |
+| 3 July 1966 | Salary Increase | $21,192 per annum |
+| 17 September 1966 | Contract Terminated | $21,192 per annum |
+
+2. All of above service is creditable for both leave and Civil Service Retirement purposes.
+
+Dow H. Luetscher
+Chief, Contract Personnel Division
+
+Distribution:
+Orig & 1 - Addressee
+2 - CPD
+
+AET

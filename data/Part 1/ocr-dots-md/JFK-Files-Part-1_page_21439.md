@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_21439.png
+
+Convert to MarkdownTO: Director
+Federal Bureau of Investigation
+
+Attention: Mr. S. J. Papich
+
+FROM: Deputy Director (Plans)
+
+SUBJECT: Seminar PCHORILIW
+Internal Security - R
+
+1. Reference is made to your memorandum of 28 February 1961 on Subject.
+
+2. We plan to discuss with French liaison the receipt by Daytro CENYP and Antin MYCZYPORUK of the letter containing secret writing from Subject, who will be identified to the French only as a resident of the United States. We believe such a discussion is desirable in view of its pertinence to the current investigation of the intelligence activities of Vasiliy MYAKUSHKO (member of the Soviet delegation to UNESCO from April 1957 to August 1960). If such a discussion would adversely affect your interest in PCHORILIW, please advise us as soon as possible.
+
+CSCI-3/765,058
+
+SR/2/CE/Rita Perkins:bbh 20 April 1961
+
+Distribution:
+
+Orig & 1 - Addressee
+
+1 - CI/R&A
+
+1 - CI/Liaison
+
+1 - CI/OG/SOV
+
+4 - 201-289249
+
+1 - 29-6-106/3
+
+1 - SR/RISB/DL
+
+2 - SR/2/CE
+
+SECRET
+
+CS COPY

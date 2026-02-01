@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_21471.png
+
+Convert to Markdown14-0000
+
+CLASSIFIED MESSAGE
+
+<table><tr><td>ORIG:</td></tr><tr><td>UNIT:</td></tr><tr><td>EXT:</td></tr><tr><td>DATE:</td></tr></table>
+
+<table><tr><td colspan="2">ROUTING</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+TO : 
+FROM: DIRECTOR 
+CONF. 
+INFO :
+
+<table><tbody><tr><td rowspan="3">P<br>E<br>R<br>C<br>E<br>D<br>E<br>N<br>C<br>E</td><td>DEFERRED</td><td></td></tr><tr><td>ROUTINE</td><td></td></tr><tr><td>PRIORITY</td><td>INITIALS</td></tr><tr><td></td><td>OPERATIONAL<br>IMMEDIATE</td><td>INITIALS</td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3">DIR<br>OUT 92770</td></tr></tbody></table>
+
+| TO | FBI | INFO | CITE DIR |
+|---|---|---|---|
+| 3. WE HAVE NO INFORMATION IN OUR FILES ON SEMEN POEORILIW AND ANTIN HYCZYPORUK. DMYTRO GNYP REPORTED IN 1958 MEMBER UKRAINIAN ORTHODOX PARISH COUNCIL IN PARIS. OUR SOURCE MET HYCZYPORUK IN REFUGEE CAMP CA 1945, AND CHARACTERIZES HIM AS BRILLIANT BUT MENTALLY UNBALANCED PROFESSOR UKRAINIAN LITERATURE. SOURCE HEARD RUMORS HYCZYPORUK NEVER HELD REGULAR JOB BUT RECEIVED MONEY FROM SOVIET EMBASSY PARIS, ALSO HAD AGREED MYAKUSHKO ORDER TO RETURN TO USSR ON CONDITION SOVIETS LOCATE HIS FAMILY IN NOGINSK.
+
+4. WOULD APPRECIATE ANY INFORMATION YOU MAY HAVE REGARDING ABOVE PERSONS.
+
+END OF MESSAGE
+
+SR/COP/CE
+WE/3
+CI/OG/SOV/SAT - draft S.MILER
+CI/LG
+TSD - by phone Dr. REID
+
+COORDINATING OFFICERS
+
+<table><tr><td>CSA/2</td></tr><tr><td>NEWALa</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_21594.png
+
+Convert to MarkdownSECRET
+
+G. IS THERE EVIDENCE OF A POLITICAL OR ANY
+OTHER TYPE OBJECTIVE WHICH COULD JUSTIFY A DISPATCH
+OF NOSENKO BY THE KGB WITH PERMISSION TO SPEAK
+FREELY TO CIA CONCERNING HIS KNOWLEDGE OF THE KGB
+AND WITHOUT NOSENKO BEING GIVEN A SPECIFIC
+MISSION OR MISSIONS?
+
+SECRET
+
+0001100
+
+<table>
+   <tr>
+    <td>CBQP 1</td>
+   </tr>
+   <tr>
+    <td>Exclude from automatic downgrading and declassification</td>
+   </tr>
+  </table>

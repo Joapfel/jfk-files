@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_22216.png
+
+Convert to MarkdownTOP SECRET
+
+624.
+
+in a good deal of preparatory work for this Congress, which was
+a big event in the life of every Komsomol worker at the time, and
+could not be forgotten."
+
+Although DERYABIN's direct knowledge of the KGB ended in 1954,
+his detailed information of KGB procedures has been updated by
+his more recent examination of reports from other sources. With
+regard to what NOSENKO has said about KGB procedures, DERYABIN
+stated: "Asked to describe how he conducted name checks on a
+Soviet citizen and on a new arrival to the American Embassy in
+1953-54, NOSENKO gave a superficial description of how such
+checks were done. However, he resisted every attempt to get him
+to describe this process in detail, and he made several blunders
+which show that he never actually ran such a check himself. For
+example, he did not know where the records of all Soviet citizens
+who have been tried are kept, and he attempted to improvise an
+answer (completely wrong) that they would check with the Militia
+about this. NOSENKO correctly said that Archives were located
+on Kirov Street, but he was completely unable to stretch his
+limited knowledge to provide a description of how these various
+repositories were actually checked. NOSENKO was also asked to
+describe in detail how he ran such a check on a Soviet citizen
+in the 1956-59 period. Here again he was in difficulty and re-
+fused even to try. He did not even know the everyday term Spets-
+proverka, which means a check for clearance.
+
+"It was particularly interesting that he did not feel able to dispute my challenges of his information, even though he undoubtedly knows that I do not have first-hand knowledge of procedures in this period. I even tested this on one occasion by asking NOSENKO the difference between the 1st Spets Otdel (Special Department - KGB cards and files) and the Operativno-Uchetniy Otdel (Operational Reports Department - the functional name for the 1st Special Department). He answered that the 1st Special Department holds the files on Soviet criminal cases while the Operational Reports Department is for political and espionage cases. It seems he invented this answer on the spot. In addition, it is wrong that political and security cards are separate from criminal ones in the 1st Special Department. They were in my time and must still be combined in one card file.
+
+"NOSENKO states that he knows nothing about the files of
+the First Chief Directorate. It is unbelievable that in ten
+years of service in the Second Chief Directorate NOSENKO never
+saw a First Chief Directorate file; how else would he be able
+to check information on foreigners, especially on American Em-
+bassy personnel? The first stage in such a check is an inquiry
+to the First Chief Directorate and a check of any files they
+may have on the subject. According to his own account, NOSENKO
+should have been doing this type of thing the whole of his ten
+years of service, without regard to whether he was assigned to
+the American Department or the Tourist Department."

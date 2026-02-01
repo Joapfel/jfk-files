@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_21331.png
+
+Convert to Markdownwould also buy on the Black Market and no one would eat. Therefore the
+privileged classes can eat, and they can only do it if they have a fortune.
+They accuse the Falangist leaders and the Government of racketeering on the
+Black Market... Distance fortunes have been made in a night. They go to bed
+poor and wake up millionaires! This is the only explanation of the fact that
+one is allowed two packets of tobacco at 0.90 per person per week, and in
+the Compania Arrenditaria de Tobacos, which is a state monopoly, one person
+can buy from 100 to 10,000 packets of the 0.90 at 7.50 a packet. He also
+relates the following instance. Petrol is scarce in Spain. A litre costs
+15. pts. Cars frequently stop in the streets for lack of it. He cites a case
+which happened in the street of Gijon. A distinguished military personage had
+no petrol. He saw a tank-convoy of Campsa pass and asked the chauffeur for a
+few litres, and when he refused, he ordered them to give it to him, as a
+superior officer. The chauffeur refused again, and in a panic explained that he
+could not do it because he was not carrying petrol but olive oil, without
+being able to explain which military leader or leaders it was destined for,
+although he knew it was to be sold/contraband.
+
+**SITUATION OF THE PRISONERS.** — He cannot calculate the number of prisoners there are actually at the moment although he asserts that it is at any rate enormous. By reason of his position he has visited prisons and fortresses, and is terrified at the terrible treatment in the "Comisarias" Civil Guard barracks etc. On more than one occasion he says he has saved more than one Republican from certain death. The prison that he knows is the Coto at Oijon. It is at the moment completely full. The treatment is inhuman. They do not give the prisoners a cell number but allocate them only a square meter for sleeping, standing etc. That is to say that when a prisoner arrives he is given a metre of ground. Nor do they give them a mess. Lately they agreed to give them a peseta daily for maintenance. He does not understand why there are not more deaths, as with one peseta a day in the prison canteen one can only buy bread. They book the miners who were prisoners to camps so that they could work in the mines. They gave them 50 pesos, day wages for bachelors and a peseta for a wife and 50 cents. for each child, to the married ones. They keep them working ten and twelve hours daily in the mine. The number of shootings has diminished. It is imputed to the fact that "almost all must have been tried".
+
+**THE CLERGY** — He says that the clergy have never intervened in politics from the pulpit as much as they do now, sometimes inveighing against the Franquist Government, and at other times, naturally, defending the policy of the Falange. Numbers of the priests and monks continually expand their view on the political regime and the points on which they differ from it. As a characteristic example he relates that about two months ago in Gijon there was a house used provisionally as the Church of San Jose, which was destroyed during the War. A priest, professor at Salamanca, gave five lectures. In these lectures he spoke almost exclusively on political questions, and attacked the Franquist Government for their method of supply and distributing the foodstuffs among the people, saying that what was wanted was more rationing and less Franquist regulations. He also advocated the necessity of a pardon for all condemned people and other things that our informant does not remember. 600 people went to the first lecture, but in the second one, when they heard what the subject was, was attended by literally all Oijon.
+
+**RECONSTRUCTION** — Reconstruction is only done as a matter of private enterprise by proprietors and churches. In Madrid, the Montana barracks, the prison, the workers' districts, damaged by the bombardments, remain as they are. Nothing has been rebuilt. The Arguellos district has been partly rebuilt. Every owner has taken-in-hand his own property. The Franquist reconstruction policy is a myth. The people mock at it and make jokes, among them the following — In Gijon they removed a building marked "Reconstruction Office" in the hallway there were two doors, one marked "for partial destruction" and the other "for total destruction". So a well-known Asturian who was visiting the office about his house which had been partially destroyed went into that department. Once inside, there were two more doors — "for those who have some resources, and for those who have not

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_20604.png
+
+Convert to MarkdownSECRET
+
+8 July 1965
+
+MEMORANDUM FOR: Contract Personnel Division, O/P
+
+SUBJECT : general - Terence S. CRABANAC - Supplement specific - Paragraph Entitled "OFFSET"
+
+1. This office has a question as to the intent of including paragraph (7.) entitled "OFFSET" as appears in the Contract for Terence S. CRABANAC. The paragraph in question reads as follows:
+
+7. OFFSET
+
+Emoluments (including benefits in kind) received from or through your cover activities are the property of the U.S. Government. Procedurally, such emoluments will be offset against amounts due you under this agreement and are acknowledged to be payment by the Government hereunder and for Federal income tax purposes. If cover emoluments exceed those due you under this contract, you will dispose of the excess amount in conformance with Governmental instructions.
+
+2. Subject reportedly is proceeding abroad under the cover of a retired Foreign Service Officer and in pursuit of his ambitions as a writer, Subject will receive all his contractual benefits through the Agency, there is no cover company, so therefore the only apparent emoluments to be received from or through his cover activities would be earnings received from articles, stories, or books written by him. Please inform this office if its interpretation is correct. If not, we would appreciate your interpretation and reasoning relative to the statement "Emoluments received from or through your cover activities are the property of the U.S. Government."
+
+WILLIAM R. CAULFIELD
+Chief, Cover Claims Branch
+
+SECRET
+
+<table><tr><td>401</td></tr><tr><td>Federal Trade Commission<br/>Case 1-84-c12-03102</td></tr></table>

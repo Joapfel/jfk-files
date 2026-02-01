@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_21382.png
+
+Convert to MarkdownFBI doc.
+
+6 July 1966 (Seattle)
+RE: Helen Mary Winter
+Field office file: SE 100-17363
+DBB 77913
+
+FBI doc
+
+21 Jan. 1966 (NY)
+RE; Helen Mary Winter
+Budfile: 100-423449
+DBB 77914
+
+FBI doc.
+
+26 Oct. 1965 (NY)
+RE: Helen Mary Winter
+Budfile: 100-423449
+DEB 77915
+
+FBI doc.
+30 July 1965 (NY)
+RE: Helen Mary Winter
+Budfile: 100-423449
+DBB 77916
+
+FBI doc.
+
+5 May 1965 (NY)
+RE: Helen Mary Winter
+Budfile: 100-423449
+DBB 77917
+
+FBI doc.
+12 Feb. 1965 (NY)
+RE: Helen Mary Winter
+Budfile: 100-423449
+DBB 77918
+
+FBI doc.
+20 Nov. 1964 (Detroit)
+RE: Helen Mary Winter, nee Wagenknecht
+Budfile: 100-423449
+DBB 77919

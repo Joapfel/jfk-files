@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_21966.png
+
+Convert to Markdownc. Approach to (1957)
+
+NOSENKO's information: NOSENKO made an unsuccessful recruitment approach in 1957 to continue his commercial activities in the USSR. Originally, the responsible case officer had been A.I. VERENIKIN of the Sixth Section of the Tourist Department; this section was then responsible for operations against foreign seamen. Since VERENIKIN spoke no German and was known to speak English, NOSENKO was selected to make the approach because he "knew English a little." When asked why a German-speaking KGB case officer was not used, NOSENKO answered: "The higher-ups said 'go work on this case,' and that was all." After being rebuffed by NOSENKO saw him several more times during the 1957 trip to Moscow, but when NOSENKO attempted to renew contact upon return to the Soviet Union in 1958, the latter refused to see him.
+
+Investigation Results: was interviewed by CIA on 12 July 1965, and, while generally uncooperative, described a "wild approach" in Moscow during 1956 or 1957 which may be the one described by NOSENKO. (He was not questioned on the identities of the Soviets involved.)

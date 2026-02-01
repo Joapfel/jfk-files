@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_22006.png
+
+s, and Marines.
+
+Q: What is your understanding of the meaning of the word "supervisor"?
+
+A: Personally to be at the head, to direct.
+
+Q: So, in your responsibilities of supervising all the work against all the code clerks, this meant that you were the head of this work, that you were directing this work, that you were participating in discussio s concerning this work, and in these discussions you were talking about what measures were necessary.
+
+TOP SECRET
+
+14-00800

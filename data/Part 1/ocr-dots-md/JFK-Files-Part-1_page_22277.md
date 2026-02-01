@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_22277.png
+
+Convert to Markdownfurther inconsistencies. Because of this and, in the absence of
+any pressure of any kind (including any apparent psychological
+pressure) to lie about his date of entry, the most logical explana-
+tion for this change is that NOSENKO forgot in early 1964 either
+when he joined the KGB and/or what he had told CIA in 1952.
+DERYABIN has commented on the significance which the date of entry
+holds for a KGB officer. He expressed the opinion that it would
+be unusual for a KGB officer to forget this date.
+
+NOSENKO was questioned at length by DERYABIN (Pages 616-619)
+concerning the timing of his entry on duty with the KGB. As a
+result of this interrogation it was determined that NOSENKO was
+unaware that at the time he said he joined the KGB, the present
+First Chief Directorate was designated the Second Chief Direc-
+torate and vice versa. Therefore, NOSENKO would have joined a
+component entitled the First Chief Directorate in March 1953,
+not the Second Chief Directorate as he says. NOSENKO did not
+know or had forgotten various other facts, including the date
+that the MVD was redesignated the KGB, and misstated the loca-
+tions and existence of various buildings and offices in the
+vicinity of the KGB Headquarters building in early 1953.
+
+In June 1962 NOSENKO said several times, in different meet-
+ings, that the KGB agent "ANDREY" (Pages 413-414) had been re-
+cruited and had left Moscow before he, NOSENKO, entered the KGB.
+He estimated the date as 1949-1950. NOSENKO knew that "ANDREY"
+was associated in Moscow with RHODES and when told that RHODES
+was there from 1951 to 1953, admitted that the date he gave might
+be wrong. NOSENKO continued to say, however, that "ANDREY" was
+recruited before he (NOSENKO) became a KGB officer, and later
+reverted again to his estimate that "ANDREY" was recruited in
+1949-1950. When he returned to Geneva in 1964, NOSENKO changed
+this story and said that during his 1953-1955 tour in the U.S.
+Embassy Section he saw cipher specialist SELEZNOV, who had come
+there to consult on the then-active "ANDREY" case. NOSENKO was
+unable to explain how he could have been sure in 1962 that the
+"ANDREY" case was before his time; when he said in 1964 that
+this was not so. Dayle SMITH confessed that he was recruited by
+the KGB in late 1953, and records show that he left Moscow in
+early 1954.
+
+c. Circumstances of Entry
+
+NOSENKO has consistently related his entrance into the KGB to discussions he had with General KOBULOV in early 1953 in Moscow, after returning from the Baltic. However, he has changed the date of these discussions with KOBULOV virtually every time he has told this story. In June 1962, NOSENKO said he talked with KOBULOV at the NOSENKO dacha while on leave in March 1953; during the April 1964 interrogations he changed the date to February 1953; in April 1965 NOSENKO said he spoke to KOBULOV at the KOBULOV dacha in January 1953 while on leave and that he lived at home and was at the "disposal of GRU personnel" during February and March. Finally, in April 1966, NOSENKO said he first spoke to KOBULOV at KOBULOV's dacha on New Years Day 1953, that he was subsequently "resting" at a sanatorium connected with his tuberculosis of the year before, and that he spoke again to KOBULOV on the day of STALIN's funeral, while home for a few days from the sanatorium. It was at this second encounter with KOBULOV that the latter promised to concern himself with NOSENKO's entry into the KGB.
+
+TOP SECRET.

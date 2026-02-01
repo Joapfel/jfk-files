@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_21047.png
+
+Convert to MarkdownSECRET
+
+7. Status. Your legal status under this agreement is that of an Independent Contractor. Nothing contained herein shall be construed as implying the creation of an employee-employer relationship.
+
+8. Requirements. Requirements levied upon you by this organization hereunder are a part of this contract provided they are not inconsistent with the terms hereof.
+
+9. Unauthorized Commitments. No promises or commitments pertaining to rights, privileges or negotiated benefits other than those expressly stipulated in writing in this agreement or any amendment thereto shall be binding on the Government.
+
+10. Secrecy. By virtue of personal knowledge acquired during this and any previous association, you will become privy to employees, associates, plans, programs, methods and the like of this organization, in particular, and the U. S. Intelligence Community, in general. As a direct consequence of this knowledge, you agree to keep forever secret all classified information so obtained; to refrain from presenting a paper, writing for publication; making a speech through any media or forum, or other public statement on the subject of intelligence, factual or fictional, without prior authorization by the Government. Violation of such secrecy may subject you to criminal prosecution under the espionage laws of the U. S. and other applicable laws and regulations.
+
+11. Term. This contract is effective as of July 1974, and shall continue thereafter for a period of one (1) year unless sooner terminated upon fifteen (15) days' actual notice by either party hereto. Termination or expiration of this agreement will not release you from the provisions of paragraph ten (10) above and any secrecy oath you may be required to take.
+
+UNITED STATES GOVERNMENT
+
+BY /S/ Charles W. Sandman
+Contracting Officer
+
+ACCEPTED:
+
+Thomas E. Casasin
+
+WITNESS:
+
+APPROVED:

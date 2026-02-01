@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_22205.png
+
+Convert to Markdown613.
+
+## 3. Report by Psychiatrist
+
+During the year April 1964-April 1965 NOSENKO was under the medical care of a CIA psychiatrist who visited NOSENKO at regular intervals, usually weekly, to examine him physically and to listen to any comments NOSENKO might have about himself and his situation. The psychiatrist familiarized himself with available materials on NOSENKO, particularly with reports of his behavior in the months immediately following the defection. A report which he submitted on 20 December 1964 is given below.

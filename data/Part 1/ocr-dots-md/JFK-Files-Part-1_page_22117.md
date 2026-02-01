@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_22117.png
+
+Convert to MarkdownBecause NOSENKO's true name and photographs had been submitted to the U.S. Embassy in Moscow in connection with this visa request, NOSENKO added, it was henceforth necessary for him to use his true name for all travel abroad.
+
+c. The Cuba TDY (1960)
+
+In November 1960, after and as a result of the cancellation of his planned trip to the United States, NOSENKO travelled with a delegation of nickel industry experts to Cuba. He first mentioned this trip on 11 June 1962, during his second meeting with CIA. His account of his activities was given in answer to the question of whether he had ever visited Germany: "I have been in Germany. Yes, yes. I was in Cuba in '61. Well, as NIKOLAYEV, I was there a month and a half. This was when your Embassy was there and we wanted to prepare"... Well, I looked it over to see what kind of people you had working there. They asked me to prepare, so to speak, an accounting on how things were going. I arrived there and asked how they were working against you, just on you. Everyone there is working for you. One, two, three, five days went by... I had unlimited funds, any amount. I could go to any restaurant, any show. So that's how it was with me. The fellows reported: 'He [an American] is there.' My mission was to get a general picture. Not for one, two, or three days, but for a month or two, to provide an opinion... I worked pretty cleverly on them. He [the American] would go to a restaurant. They would say to me: 'He is at such-and-such a restaurant and can be observed there.' I would go and observe him in the mirror or somehow. I am sitting in the restaurant, drinking, and that's all. But I would watch him to see how he behaves, etc., etc. That is, I would begin to feel if he has the mark of an intelligence officer. ...But this was not enough for me. I would go again and again. I would see that, yes, he is an intelligence officer... We were asked to share our experiences with them [the Cubans]. They didn't know a thing... They had turned all intelligence work over to the Communist Party. The Communist Party complicates it."
+
+In the final minutes of NOSENKO's last meeting with CIA in 1962 the subject of his trip to Cuba came up again; NOSENKO recalled that he had used the name NOSENKO for his trip to Cuba and that his function there was that of security officer.
+
+**Question:** When did you travel to Cuba?
+
+**NOSENKO:** 1960, November and December 1960.
+
+**Question:** Under the name NIKOLAYEV?
+
+**NOSENKO:** No, as NOSENKO, NOSENKO, NOSENKO. I will explain how this happened. I was supposed to go to America, sometime in November, with a group from Gosplan, automotive specialists, etc. Data had already been submitted for coordination and, in particular, my name had been given to the American Embassy there [Moscow]. But the American Embassy announced that this delegation could be accepted, but a little later. And my passport had already been issued. My passport had already been signed authorizing travel abroad, but it was a service passport, not a diplomatic one. And at this moment a delegation was supposed to
+
+The U.S. Embassy in Havana was officially closed on 3 January 1961.

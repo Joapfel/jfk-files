@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_20876.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+<table><tbody><tr><td>REQUEST FOR MEDICAL EVALUATION</td><td colspan="3"><table><tbody><tr><td>CATE OF REQUEST</td><td colspan="2">27 JULY 1965</td></tr><tr><td>NAME (Last, First, Middle)</td><td>POSITION TITLE</td><td>GRADE</td></tr><tr><td>PHILLIPS, DAVID A.</td><td>COS</td><td>15</td></tr><tr><td>OFFICE, DIVISION, BRANCH</td><td colspan="2">EMPLOYEE'S EXT.</td></tr><tr><td>DDP/WH/BRANCH 2</td><td colspan="2">6576</td></tr></tbody></table></td></tr><tr><td colspan="4">7. PURPOSE OF EVALUATION</td></tr><tr><td><input type="checkbox"/> PRE-EMPLOYMENT</td><td><input type="checkbox" checked disabled/> MDQS/TDY</td><td colspan="2"></td></tr><tr><td><input type="checkbox"/> ENTRANCE ON DUTY</td><td><input type="checkbox" checked disabled/> OVERSEAS ASSIGNMENT</td><td colspan="2"></td></tr><tr><td><input type="checkbox"/> TOY STANDBY</td><td colspan="3">ETD<br>LATERAL TRANSFER<br>STATION<br>SANTO DOMINGO, D.R.<br>TOY OR PCS</td></tr><tr><td><input type="checkbox"/> SPECIAL TRAINING</td><td colspan="3">PCS<br>TYPE OF COVER<br>DEPARTMENT OF STATE<br>NO. OF DEPENDENTS TO ACCOMPANY</td></tr><tr><td><input type="checkbox"/> ANNUAL</td><td colspan="3">5<br>NO. OF DEPENDENTS' REPORTS OF MEDICAL HISTORY (SP 89) ATTACHED</td></tr><tr><td><input type="checkbox"/> RETURN TO DUTY</td><td colspan="3"><input type="checkbox" checked disabled/> 0</td></tr><tr><td><input type="checkbox"/> FITNESS FOR DUTY</td><td colspan="3">RETURN FROM OVERSEAS</td></tr><tr><td><input type="checkbox"/> MEDICAL RETIREMENT</td><td colspan="3">ETA<br>LATERAL TRANSFER<br>STATION<br>MEXICO CITY, MEXICO<br>NO. OF DEP.'S</td></tr><tr><td colspan="4">8. OVERSEAS PLANNING EVALUATION (One block must be checked)</td></tr><tr><td><input type="checkbox"/> YES</td><td colspan="3"></td></tr><tr><td><input type="checkbox"/> NO</td><td colspan="3">9. REQUESTING OFFICER</td></tr><tr><td></td><td colspan="3">SIGNATURE<br>FRANK LANE<br>MILPERSONNEL<br>ROOM NO. & BUILDING</td></tr><tr><td colspan="2">GR-56</td><td colspan="2">EXT.<br>6576</td></tr><tr><td colspan="4">10. COMMENTS</td></tr><tr><td colspan="4">MR. PHILLIPS IS A DIRECT TRANSFER,</td></tr><tr><td colspan="4">11. REPORT OF EVALUATION</td></tr><tr><td colspan="4">QUALIFIED FOR PROPOSED PCS<br>JOB W. CLINE</td></tr><tr><td>DATE</td><td colspan="2"></td><td>SIGNATURE FOR CHIEF OF MEDICAL STAFF</td></tr><tr><td colspan="4">17 30 65</td></tr></tbody></table>
+
+SECRET
+
+FORM 10-59 259 USE PREVIOUS EDITIONS.
+
+(26)

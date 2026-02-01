@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_22234.png
+
+Convert to MarkdownSECRET
+
+VIII. NOSENKO'S BONA PIDES: ANALYSIS AND CONCLUSIONS
+
+A. Introduction
+
+It is standard procedure to assess the bona fides of each intelligence and counterintelligence source, and special care is required in assessing sources of information relevant to the security of the United States.
+
+One difficulty in doing so with a Soviet source is that Soviet realities, particularly in the KGB, are imperfectly known: Except where independent information is available, it is risky to say and impossible to prove what the Soviets--most notably the KGB--would or would not do in any given situation, or what any given KGB officer should or should not know. Independent information, voluminous in quantity although never comprehensive and entirely current, nevertheless has been assimilated from the reports of the several KGB staff officers who have defected, from the KGB agents who have confessed, and from the Western services which have investigated KGB activities. There is, therefore, a base of reliable knowledge upon which to predicate an assessment of a source reporting on the KGB, even one who principally covers a KGB component (in this instance the Second Chief Directorate) upon which there previously had been relatively little inside information. Moreover, in the absence of direct evidence from other sources, it would be arbitrarily confining if an assumption were not made that certain KGB standards are at least comparable to those of Western services. Such prior knowledge and, to a limited extent, such an assumption are factors in the assessment of Yuriy Ivanovich NOSENKO that is submitted here.
+
+A much more prominent factor in this assessment, however, is NOSENKO's own testimony. CIA has exhaustively debriefed and interrogated NOSENKO, his leads were checked, his information was studied, and a large body of facts pertinent to his bona fides was thus assembled. These details, as well as direct evidence from other sources and the views of specialists affiliated with CIA, have been presented in Part III. through Part VII. of this paper.
+
+The basic questions with regard to the bona fides of NOSENKO are the following:
+
+- Is there reason to question the general accuracy and completeness of NOSENKO's accounts of his situation and motivations in contacting CIA and later defecting, his personal life, military service, positions in the KGB, personal participation in KGB operations, knowledgeability about KGB activities and the way he learned of them, and his associations with KGB personnel?
+
+- If there are grounds for doubting the general accuracy and completeness of these accounts, then what are the explanations for NOSENKO's actions, for the nature of the information he has provided, and for other Soviet sources having authenticated his personal life and KGB career?
+
+In assessing the bona fides of NOSENKO, the classic method has been used: evaluating his production and sourcing, examining his autobiography, and appraising him and the circumstances of this operation. These points, with the conclusions drawn from each, are reviewed below. The discussion continues with a survey of the sources who have corroborated NOSENKO's background and status, and this is followed by argumentations on the various hypotheses which could explain NOSENKO as a source. The final portion is a summary of conclusions about NOSENKO's bona fides.

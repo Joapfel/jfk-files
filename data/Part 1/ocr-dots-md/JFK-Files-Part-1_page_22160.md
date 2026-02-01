@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_22160.png
+
+Convert to MarkdownCommittee for State Security
+Under the Council of Ministers
+USSR
+
+15 December 1963
+
+Issued to: Lieutenant Colonel
+NOSENKO,
+Yuriy Ivanovich
+For duty to: UKGB of Gor'kaya
+Oblast
+Length of temporary assignment:
+15 days
+through: 30 December 1963
+Authorization: directive of
+Chief of a Chief Directorate
+
+Effective on presentation of identity document No.: NK-2513
+Chief s./GRIBANOV of Directorate of Department
+
+Committee for State Security under the Council of Ministers, USSR
+
+Front
+
+TDY authorization for Lieutenant Colonel Yuriy Ivanovich NOSENKO in connection with the search for CHEREPANOV
+
+NOTATIONS OF PRESENCE IN PLACES OF TEMPORARY DUTY
+
+"Arrived in city of Gor'kiy 16 December 1963"
+
+"Arrived in city of Shakhun'ye 17 XII 1963 Did not use free quarters"
+
+s./Chief of Shakhun'ye Chief Militia Section, Militia Major ____ (illegible)
+
+"Departed Shakhun'ye 17/XII-63 Did not use free quarters"
+
+s./Chief of Shakhun'ye Chief Militia Section, Militia Major ____ (Illegible)
+
+"Left Gor'kiy 17 December 1963 Did not use free quarters"
+
+s. / ____ (illegible)
+
+Reverse (endorsements only)

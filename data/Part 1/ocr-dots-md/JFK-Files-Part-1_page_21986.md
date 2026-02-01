@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_21986.png
+
+Convert to Markdown* NOSENKO later told T.A. on one occasion that he "only skimmed the file" and on another that he had it in his possession about 20 minutes. In October 1966 he again said that he read the file and that while doing so he saw a picture of OSWALD for the first time. NOSENKO added that he never met OSWALD personally.
+
+** In October 1965 NOSENKO said he learned that OSWALD was a poor shot from V.V.KRIVOSHEY, a fellow KGB officer who had been told this while visiting Minsk.

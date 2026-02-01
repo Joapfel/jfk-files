@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_21928.png
+
+Convert to Markdownsensitive source
+
+- said that when NOSENKO was a young man, he attended the GRU Military-Diplomatic Academy and then spent a short time, perhaps a year, in the Information Department at GRU Headquarters. NOSENKO had been a "very undisciplined person" while in the GRU and "not very good," continued, and he was discharged from the GRU. However, his father, an "influential person in the Ministry of Shipbuilding," was able to get NOSENKO transferred to the KGB.
+
+said he did not know NOSENKO personally, but learned this information from "various persons" (unnamed) in Moscow.
+
+The thumbnail biography of NOSENKO which KOROLEV and ROSENTAL submitted to the editors of Paris Match in October 1966 (see Part III.H.) stated that NOSENKO was "closely acquainted with the country's leaders, families, and homes" and that his "father who died several years ago was an important official in the Party and state organs." The document went on to say that "NOSENKO'S family consists of a wife, 35, two daughters, 10 and 12, mother and a brother (younger)." KOROLEV and ROSENTAL also provided photographs purporting to be of NOSENKO's wife and daughters.
+
+source
+
+- said she heard from her KGB friend V. G. SVIRIN that NOSENKO's father was a Minister or a General of Ukrainian origin and that his mother was Jewish and "was always involved in some blackmarketeering." She also said that she heard NOSENKO was a "civilian," not a KGB officer, but was connected somehow with the KGB. (She could not explain this connection other than to say that all Soviets permitted to meet foreigners are either officers or "relatives" of the KGB.)
+
+TOP SECRET

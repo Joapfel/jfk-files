@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_21711.png
+
+Convert to MarkdownSECRET
+
+F. NOSENKO's CLAIMS, THAT IN 1962 HE WAS CHIEF OF THE AMERICAN-BRITISH COMMONWEALTH SECTION AND WAS THEREAFTER A DEPUTY CHIEF OF THE SEVENTH DEPARTMENT, ARE NOT CREDIBLE
+
+G001217
+
+SECRET
+
+<table><tr><td>GROUP I</td></tr><tr><td>Excluded from abstract</td></tr><tr><td>Classed as 2 and 3</td></tr></table>

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_21841.png
+
+Convert to MarkdownILLUSTRATIONS
+
+Photograph of NOSENKO and his father, the Minister of Shipbuilding Facing Page 11
+
+Photograph of NOSENKO and NASENKO's Family Facing Page 43
+
+Finnish Travel Manifests: March-April 1960 Facing Page 194
+
+Finnish Travel Manifest: November 1960 Facing Page 197
+
+TDY Authorization Facing Page 319
+
+Translation of TDY Authorization Facing Page 320
+
+TOP SECRET

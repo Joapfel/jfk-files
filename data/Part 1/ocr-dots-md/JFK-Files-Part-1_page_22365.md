@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_22365.png
+
+Convert to Markdownfor Vienna in October 1953 GOLITSYN was Deputy Chief of the
+Emigre Sector, Counterintelligence Department, Foreign Intelligence
+Department, Foreign Intelligence Directorate. GOLITSYN has not
+indicated the nature of his responsibilities in either of these
+positions which would have necessitated his visiting the American
+Department of the Internal Counterintelligence Directorate, although
+certain activities of common interest with the latter would appear
+logical. NOSENKO's description of his alleged duties with corres-
+pondents, however, did not encompass his having official contacts
+with representatives of any component of the Counterintelligence
+Department of the Foreign Directorate. According to NOSENKO'S
+description of the location of his claimed office in the American
+Department, and his description of the duties of the co-workers
+he said shared it with him, chance contacts there with such a
+representative would have been precluded. Even by NOSENKO's account,
+then, an encounter between GOLITSYN and himself could not have
+been in the course of interdepartmental liaison between their
+respective units, nor could it have occurred in NOSENKO's office.
+GOLITSYN's lack of reporting on KGB operations against American
+correspondents (other than his conversation with KOVSHUK in 1956
+or 1957 about Henry SHAPIRO) is further evidence that his business
+in the American Department was unrelated to NOSENKO's claimed
+activities at that time, and GOLITSYN's own statement on the 1953
+encounters implied that his meetings with NOSENKO were accidental.
+Pleeting as their contacts would therefore have been, it could
+have led GOLITSYN to make the unfounded assumption that NOSENKO
+was a member of the staff within the American Department.
+
+American Department/Tourist Department - 1955-1960
+
+NOSENKO stated that he transferred from the American Depart-
+ment to the Tourist Department in June 1955, and remained in the
+Tourist Department until 1960, becoming a deputy chief of section
+there in 1958.
+
+GOLITSYN, however, insisted that NOSENKO remained in the
+American Department until at least 1957, or possibly as late as
+1958. GOLITSYN added that the KGB would not be aware that he knew
+
+TOP SECRET

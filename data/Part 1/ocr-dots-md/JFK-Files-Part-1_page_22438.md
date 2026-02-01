@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_22438.png
+
+Convert to Markdown# RELATED MISSION DIRECTIVE FOR MEXICO
+
+## I. ORBITAL PROVISIONS
+
+A. National Policy. The long-range national policy objectives of the U.S. Government toward Mexico are to reduce to an ineffective level the influence of international Communism, to encourage democratic government, and to keep the Mexican government friendly and favorably inclined toward U. S. policies. Further guidance is given in the current CCB Regional Operations Plan for Latin America.
+
+B. Operational Emphasis. The Station's primary emphasis will continue to be placed on clandestine collection operations and covert action operations against the Sino-Soviet bloc, Cuban, and Communist elements in Mexico.
+
+C. Changes in the NMD. This basic policy instruction for activities in Mexico has been revised in light of the Station's last Annual Assessment of Progress Report and to reflect more accurately operational conditions, capabilities and direction. In view of the importance and threat presented by Communist Cuba to U. S. interests in Latin America, coverage of Cuban revolutionary activities in Mexico has been made a specific requirement under Priority A. Priority B objectives and tasks include refinements of desired efforts and also provide for covert action operations against Cuban targets in Mexico. The former task for production of action pictures and their distribution has been deleted, as it is no longer a valid requirement; two former tasks pertaining to the possible use of foreign diplomats have been combined; a task to develop young potential political leaders (ZREAGER) has been added. Two previous Priority C objectives have been eliminated, as there is no established Mexican intelligence service, and the station regularly reports on activities of the security services. Coverage of Chinese Communists has been raised to Priority B coincident with the elimination of the former Priority C section.
+
+D. Contingency Reporting. In addition to the specific objectives set forth in Section II, the station will from time to time be called on to attempt to satisfy Intelligence

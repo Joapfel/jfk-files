@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_22112.png
+
+Convert to Markdown271.
+
+**NOSENKO:**
+
+No. No. This is something that the members of
+the [KGB] Eighth Directorate (responsible for
+communications and ciphers) should concern them-
+selves with, the ones who work in OTU. This
+doesn't concern us in the American Department,
+in the U.S. Embassy Section.
+
+Questioned again later, NOSENKO said that the signal
+was used to jam U.S. equipment working in the Embassy building.
+It was this system, he said, which had determined that the
+Americans had intercepted some GRU agent radio communications.
+The beam was designed "both to monitor and to jam" trans-
+missions from the Embassy... NOSENKO repeated that "not being
+a specialist" he was ignorant of the technical nature of the
+job, or any further details.
+
+TOP SECRET
+
+CIF-S-S
+C.F.S.
+
+C.S.

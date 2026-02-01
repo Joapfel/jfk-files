@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_20778.png
+
+Convert to MarkdownSECRET
+
+-3-
+
+I wish to make special mention of, first, the scrupulous- ness with which the Rated Officer has consulted me and kept me informed about his activities, and, second, his strict adherence to the guidance I have given him. At no time have I had any doubts concerning the care and fidelity with which he has followed my instructions.
+
+I have developed the highest personal and professional regard for the Rated Officer. I have valued greatly his advice and his support not only upon matters within his own special field of competence, but also over a considerably broader spectrum of U.S. Mission activities. I could not have asked for a better Chief of Station than the one whom I have had at this post. I very much regret his departure but am comforted by the knowledge that his successor, as his deputy, has been trained by him.
+
+I earnestly hope that these comments of mine -- based on a very close and continuous working relationship -- will be given full consideration and will contribute significantly to his career advancement.
+
+SECRET

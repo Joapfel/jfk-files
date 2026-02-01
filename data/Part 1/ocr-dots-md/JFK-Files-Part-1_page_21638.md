@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_21638.png
+
+Convert to Markdownassigned functions, but makes no allowance for the uncertain persons status of NOSENOVO whose actual future in the KGB was in jeopardy, after mid-1934.
+
+NOSENKO has previously indicated and still indicates a definite lack of knowledge concerning his assigned targets during approximately March - May 1955. This, according to NOSENKO, was when an unsatisfactory "characterization" was being prepared on NOSENKO, a decision was being made on his case, and a period of time in which he went on a "big drunk" which culminated in his spending about 40 days under hospital care because of the possibility of recurrence of his previous tuberculosis.
+
+Pages 84 - 87 of the previous summary suggest that NOSENKO had not furnished sufficient details about his alleged agent network for use against the Military Attaches. It is considered that NOSENKO, in current interviews has furnished adequate acceptable lies, and as an example furnished specific information concerning "KLADINA and "TRANET." (page 85). It would appear that there was no contact by NOSENKO with such information concerning these individuals, but rather that he was never asked to amplify his previous criminal reference to these individuals.
+
+6001144
+
+SECRET!

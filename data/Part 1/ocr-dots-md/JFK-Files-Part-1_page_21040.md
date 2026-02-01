@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_21040.png
+
+Convert to Markdown# Attachment #1
+
+## Item 44. Operational Expenses
+
+Reimbursement for payment of fringe benefit programs of cover organization (including retirement, health, and life insurance) when it is determined by the Agency that membership therein is necessary for cover and/or security.

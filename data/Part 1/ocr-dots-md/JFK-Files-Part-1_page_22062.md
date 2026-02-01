@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_22062.png
+
+Convert to Markdownapplication, the negative results of checks of KGB Headquarters
+files, and a report prepared by the American Department of the
+First Chief Directorate. According to this report, based on
+correspondence from the KGB Legal Residencies in the United
+States, ABIDIAN had served as a Department of State Security
+Officer concerned with the personal safety of Premier KHRUSHCHEV
+when he visited the United States in 1959; from the way ABIDIAN
+had acted at that time, the Legal Residencies concluded he was an
+intelligence officer, probably with CIA.* NOSENKO remarked that
+the report, combined with the fact that ABIDIAN was replacing the
+known CIA officer Russell LANCELLE as Security Officer, made
+ABIDIAN one of the most important counterintelligence targets
+of the U.S. Embassy Section and therefore of the entire Second
+Chief Directorate.
+
+NOSENKO personally opened the KGB file on ABIDIAN and later
+assigned him the cryptonym "ARSEN," since this cryptonym had been
+used by personnel of the Seventh (Surveillance) Directorate,
+KGB-Second Chief Directorate, who were working against him.
+
+NOSENKO was unsuccessful in his attempts to learn more about
+the life and career of ABIDIAN. He visited the Chief of the
+American Department of the KGB First Chief Directorate, but this
+unit had no information in addition to that already included in
+the original information report. NOSENKO requested that the KGB
+Legal Residencies in the United States be asked for further de-
+tails, but they were never received. For these reasons, NOSENKO
+said that he did not know and never obtained details about ABID-
+IAN's education and study abroad, date of entry into the Depart-
+ment of State, promotions, personal rank, previous foreign assign-
+ments, military service, or status as Foreign Service Reserve,
+Staff or Officer (FSR, FSS, FSO),**
+
+*   CIA records indicate that ABIDIAN studied in Paris in 1949-50 and then secured employment with the Department of State as a clerk/typist. He remained in Paris until 1954. After special training at the CIC school at Fort Holabird and the Secret Service School, ABIDIAN served from 1956 until leaving for Moscow in 1960 as a special agent in the State Department's Office of Security. A large part of his work in this period was arranging the security of and accompanying foreign dignitaries visiting the United States. These included the visits of Soviet Foreign Minister SHEPILOV in November 1956, MIKOYAN in the spring of 1959, and KHRUSHCHEV at the end of 1959. These duties undoubtedly brought ABIDIAN into contact with a large number of KGB officers stationed in New York and Washington. One of the members of the KHRUSHCHEV entourage was KOSOLAPOV who, according to NOSENKO, joined the U.S. Embassy Section in late 1959 and, as of January 1960, became NOSENKO's subordinate in operations against American code clerks.
+**NOSENKO was unaware of the meaning of the initials FSR, FSS, and FSO. When asked whether he had checked the Department of State Biographic Register for information on ABIDIAN's background, he replied that this publication is not available in the U.S. Embassy Section. He subsequently recalled that the Chief of the Section, KOVSHUK, did have a copy dated about 1956, which was of no use in gathering information on ABIDIAN.

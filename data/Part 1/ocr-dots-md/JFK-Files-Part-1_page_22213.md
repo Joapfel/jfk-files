@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_22213.png
+
+Convert to Markdown621.
+
+"NOSENKO's description of the secrecy agreement that he signed when entering on duty with the KGB is completely unlike the agreement that was in use at that time for staff employees. It may be significant that NOSENKO's description of the secrecy agreement he recalls signing resembles the secrecy agreements that were taken from agents.
+
+"NOSENKO insists that he did not fill out any other forms, questionnaires, or papers when entering the KGB. Actually, there were a number of other routine forms that had to be filled out by applicants and new employees.
+
+"Location of ROZHENKO's Office: NOSENKO says that all his entry processing was handled by a personnel officer named ROZHENKO and his staff. He asserts that ROZHENKO's office, which NOSENKO visited several times in early 1953, was located on the 6th floor, 8th entry, Building No. 12, Dzerzhinskiy Street. In fact, neither ROZHENKO nor any officers or units of the Personnel Department were located in the 8th entry. They were all (including ROZHENKO) located on the 6th and 7th floors of the 7th entry of Building No. 12.*
+
+"Rank Pay: Asked about his salary when he first started to work in the KGB, NOSENKO said he got a basic salary of 1700 rubles as a case officer, 500 rubles for his rank of lieutenant, plus secrecy, language, and longevity pay. He insisted that this was correct, even when told that KGB officers were no longer being paid for rank in March 1953, and said that although he remembered that there was one year--1954--when they were not paid for rank, he was sure that when he first entered on duty he received this pay. Salary for rank was taken away from State Security officers in September 1952 and was not restored until April 1954.
+
+"Promotion to Senior Lieutenant: In giving the chronology of his promotion to various military ranks, NOSENKO claimed to have been promoted to senior lieutenant in April 1953, shortly after joining the KGB. Told that this was impossible, and that no one in the KGB was promoted at this time, NOSENKO replied that he couldn't say about anyone else but he was sure that he had received his promotion at that time. In fact, this is impossible: **all** promotions in the KGB were frozen from the time BERIYA took over as minister (March 1953) until late 1953.
+
+"Visitor's Pass Procedures: In talking about his first visit to the KGB to process for employment, NOSENKO was unable to recall the procedures employed by the KGB Pass Office in issuing visitor's passes. Specifically, he maintained that the name of the interviewer was not indicated on the pass. In fact, the name of the interviewer did appear on the pass and the interviewer had full responsibility for the visitor while he was on KGB premises. While it is understandable that NOSENKO might have forgotten the details involved if he had only visited there a few times more than ten years ago, if he worked at KGB Headquarters for over ten years as a staff officer and particularly as a supervisor he would have frequent occasion to admit visitors, and thus should know visitor's pass procedures quite well."
+
+*NOSENKO has since said that he spoke to no personnel officers prior to acceptance by the KGB or afterwards, thereby indicating that his statements to DERYABIN were untrue. See Part V.B.

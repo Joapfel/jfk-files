@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_21833.png
+
+Convert to Markdown| | |
+| :--- | :--- |
+| (iv) Information from NOSENKO | 554 |
+| (v) Information from SOURCE | 557 |
+| (vi) Information from SENSITIVE source | 559 |
+| (vii) Information from | 561 |
+| (viii) Information from SENSITIVE source | 561 |
+| (ix) Contents of CHEREPANOV Package | 561 |
+| (x) NOSENKO'S Comments on the CHEREPANOV Papers | 565 |
+| d. Reports on KAZAN-KOMAREK | 569 |
+| (i) Introduction | 569 |
+| (ii) Statement by NOSENKO | 569 |
+| (iii) Statement by | 569 |
+| e. Alfred SLEESINGER: Suspected Source of the FBI | 571 |
+| (i) Introduction | 571 |
+| (ii) NOSENKO's Information SENSITIVE SOURCE | 571 |
+| (iii) ~~SLEESINGER's~~ Information | 572 |
+| (iv) SLESINGER'S Information | 573 |
+| **8. Technical Penetrations of the West German Embassy** | 574 |
+| a. Introduction | 574 |
+| b. Information from NOSENKO | 576 |
+| c. The | 578 |
+| d. Evidence of Technical Penetration | 580 |
+| **9. Cryptologic Successes Against the U.S. Embassy** | 583 |
+| a. Introduction | 583 |
+| b. Information from NOSENKO | 585 |
+| (i) Breaking U.S. Ciphers | 585 |
+| (ii) Handling Deciphered Cables | 587 |
+| (iii) Methods of Cryptologic Attack | 588 |
+| c. U.S. Evaluations | 591 |
+| (i) NSA Report | 591 |
+
+TOP SECRET
+
+14-00000

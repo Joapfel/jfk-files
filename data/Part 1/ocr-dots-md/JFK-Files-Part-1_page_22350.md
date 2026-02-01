@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_22350.png
+
+Convert to Markdown757.
+
+Source
+
+- According to NOSENKO was in "Intelli-gence." His defection brought about the recall of a KGB secretary from Geneva, the rumored transfer of some 60 Soviet officials from assignments abroad, and the dismissal of KGB personnel including NOSENKO's friend GUK, who had recommended the TDY to Geneva. In addi-tion, he reported, immediately after the de-fection a representative of the Exits Commission of the CPSU Central Committee went to Geneva to speak to the Soviet Government employees there. It is claimed that NOSENKO had been tried in absentia in Moscow for treason and sentenced to death (see Pages 46 and 342).
+
+- GOLITSYN failed to comment when shown NOSENKO'S name in 1962, and there is no record of his ever having mentioned NOSENKO prior to the Western press announce-ment or the defection in 1964, even though he had named people known to him in the American Department of the KGB Second Chief Directorate. (Shortly after detecting GOLITSYN said that he had visited this Department in 1960 and at the turn of the year 1960-1961.) After NOSENKO defected, GOLITSYN was given a summary of NOSENKO's biography. Thereupon GOLITSYN reported that NOSENKO was a KGB officer whom he first met in 1953 and last saw in 1959. From 1953 to 1957 or 1958, GOLITSYN stated, NOSENKO was in the U.S. Embassy Section of the American Department, responsible for coverage of U.S. military personnel and later either for others in the Mos-cow Embassy or for correspondents. As of 1959, GOLITSYN said, NOSENKO was a senior officer in the Tourist Department; as of 1960, he was definitely not in the American Depart-ment. GOLITSYN added that GUK, CHUPANOV, and KASHCHEYEV were friends in the KGB whom he shared with NOSENKO (see pages 343-344).
+
+Source
+
+Soviet source, SVIRIN, indicated she had been told by her KGB friend SVIRIN that NOSENKO was a "civilian"; he had nevertheless provided information on microphones in the U.S. Embassy and had caused "considerable damage." Also have cor-roborated certain non-Intelligence aspects of NOSENKO's background.
+
+## 3. Remarks
+
+Source,
+
+aside, the Soviet sources have certified that NOSENKO was a senior KGB officer, and all asserted or implied that he had access to information valuable to Ameri-can Intelligence--the microphones in the U.S. Embassy being one item in common.
+
+TOP SECRET

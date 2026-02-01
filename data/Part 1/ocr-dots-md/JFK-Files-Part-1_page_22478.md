@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_22478.png
+
+Convert to Markdown<table><tr><td>SENDER WILL CHECK CLASSI</td><td colspan="3">ACTION TOP AND BOTTOM</td></tr><tr><td>UNCLASSIFIED</td><td>CONFIDENTIAL</td><td>SECRET</td><td></td></tr><tr><td colspan="4">OFFICIAL ROUTING SLIP</td></tr><tr><th>TO</th><th>NAME AND ADDRESS</th><th>DATE</th><th>INITIALS</th></tr><tr><td>1</td><td rowspan="6">Mr. Breckinridge</td><td></td><td></td></tr><tr><td>2</td><td></td><td></td></tr><tr><td>3</td><td></td><td></td></tr><tr><td>4</td><td></td><td></td></tr><tr><td>5</td><td></td><td></td></tr><tr><td>6</td><td></td><td></td></tr><tr><th>ACTION</th><th>DIRECT REPLY</th><th>PREPARE REPL</th><th>RECOMMENDATION</th></tr><tr><th>APPROVAL</th><th>DISPATCH</th><th></th><th></th></tr><tr><th>COMMENT</th><th>FILE</th><th>RETURN</th><th></th></tr><tr><th>CONCURRENCE</th><th>INFORMATION</th><th>SIGNATURE</th><th></th></tr><tr><td colspan="4">Remarks:</td></tr><tr><td colspan="4">Expansion of DCD-FBI Relationship<br/>Book Dispatch 9335 of 18 Feb 1975<br/>Two sanitized copies ready for Mr. Knoche.</td></tr><tr><td colspan="4">FOLD HERE TO RETURN TO SENDER</td></tr><tr><td colspan="2">FROM: NAME, ADDRESS AND PHONE NO.</td><td colspan="2"></td></tr><tr><td colspan="2">Walter F. Little</td><td colspan="2">3/18/75</td></tr><tr><th>UNCLASSIFIED</th><th>CONFIDENTIAL</th><th colspan="2">SECRET</th></tr></table>
+
+FORM DL-1427
+
+237 Use previous editions (40)

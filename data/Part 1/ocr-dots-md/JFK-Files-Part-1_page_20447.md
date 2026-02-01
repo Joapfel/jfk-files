@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_20447.png
+
+Convert to MarkdownSTANDARD FORM 50
+REV. APRIL 1983
+PROHIBITED BY
+U S. CIVIL SERVICE COMMISSION
+CHAPTER 31, FEDERAL PERSONNEL MANUAL
+
+CENTRAL INTELLIGENCE AGENCY.
+
+NOTIFICATION OF PERSONNEL ACTION
+
+<table><tbody><tr><td colspan="4">1. NAME (MR - MRS - Mlle - ONE GIVEN NAME, INITIAL(S), AND SURNAME)<br/>Mr. E. Howard Hunt</td></tr><tr><td colspan="2"><table><tbody><tr><td>2. DATE OF BIRTH</td><td>3. JOURNAL OR ACTION NO.</td></tr><tr><td>9 Oct. 16</td><td>4. DATE<br/>16 Aug. 73</td></tr></tbody></table></td></tr><tr><td colspan="2">This is to notify you of the following action affecting your employment:<br/><br/>5. NATURE OF ACTION (USE STANDARD TERMINOLOGY)<br/>Promotion</td></tr><tr><td>6. EFFECTIVE DATE</td><td>7. CIVIL SERVICE OR OTHER LEGAL AUTHORITY<br/>Sch. A-6.116(b)</td></tr><tr><td colspan="2" style="border-top: 1px solid black; padding: 0;"><table><tbody><tr><th colspan="2">FROM</th></tr><tr><td>Operations Officer RD-22-14</td><td>Operations Officer RD-22</td></tr><tr><td>GS-132-14 $2800.00 per annum</td><td>GS-132-15 $10,800.00 per annum</td></tr><tr><td>HDOP/SE</td><td>Same</td></tr><tr><td>SE Political & FW Staff</td><td>Same</td></tr><tr><td>Office of the Chief</td><td>Same</td></tr><tr><td>Washington, D. C.</td><td>Same</td></tr><tr><td>[ ] FIELD [X] DEPARTMENTAL</td><td>12. FIELD OR DEPT'L [ ] FIELD [X] DEPARTMENTAL</td></tr></tbody></table></td></tr><tr><td colspan="2"><table><tbody><tr><th colspan="5">11. VETERAN'S PREFERENCE</th></tr><tr><td>NONE</td><td>WTH</td><td>OTHER</td><td>S-PT.</td><td>10-POINT<br/>DISAB. OTHER</td></tr><tr><td>X</td><td></td><td>X</td><td></td><td></td></tr></tbody></table></td></tr><tr><td colspan="2"><table><tbody><tr><th colspan="3">14. POSITION CLASSIFICATION ACTION</th></tr><tr><td>NEW</td><td>VICE</td><td>L.A. REAL</td></tr></tbody></table></td></tr><tr><td colspan="2"><table><tbody><tr><th colspan="2">15. SEX</th><th>16. RACE</th><th>17. APPROPRIATION<br/>FROM: 4-3200-30<br/>TO: Same</th><th>18. SUBJECT TO C.S. RETIREMENT ACT (YES -NO)<br/>Yes</th><th>19. DATE OF APPOINTMENT AFFIDAVITS (ACCESSIONS ONLY)<br/>STATE</th></tr></tbody></table></td></tr><tr><td colspan="2">21. REMARKS: This action is subject to all applicable laws, rules, and regulations and may be subject to investigation and approval by the United States Civil Service Commission. The action may be corrected or canceled if not in accordance with all requirements.</td></tr><tr><td colspan="2">ENTRANCE PERFORMANCE RATINGS<br/>Acting Chief, Personnel Division 93.0% 93.0% 93.0% 93.0% 93.0% 93.0% 93.0% 93.0% 93.0% 93.0% 93.0% 93.0% 93.0% 93.0% 93.0% 93.0% 93.0% 93.0%<br/>SIGNATURE OR GENDER ASPIRATION: [

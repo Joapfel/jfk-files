@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_21996.png
+
+head of the delegation, representing the Ministry of Culture. I didn't go under my own name because it was decided that when ~~these people came back to England, they would tell who they were with [report their contacts in the USSR]. They would probably question~~ especially as one who used to work in intelligence.. would say: 'There was this man from the Ministry of Culture, NIKOLAYEV, he was with us all the time, even went to Leningrad with us.' So they would say: 'How does he look [what does he look like]?' He would say: 'He looked so-and-so.' So,
+
+TOP SECRET

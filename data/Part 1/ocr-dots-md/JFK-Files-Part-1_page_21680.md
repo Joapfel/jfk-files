@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_21680.png
+
+Convert to Markdownof the letter and his departure from Moscow, it would
+have been remarkable if the KGB had learned this in-
+formation in time to call off the airport approach. The
+account of NOSENKO in the [KEYSERS] matter therefore
+is considered completely credible.
+
+Pages 181 - 184 of the previous summary contain information in regard to [Matthew ZUJUS], who succeeded James STORSBERG, having arrived in Moscow in September 1961. GRYAZNOV was the responsible case officer for [ZUJUS], according to NOSENKO.
+
+The previous summary states (page 183) that [ZUJUS] during a routine debriefing, confirmed an Embassy report that in the summer of 1962 he had been intimate with an Austrian woman, "LILLIAN," who visited the American House with someone from the United Arab Republic. "LILLIAN" was interviewed by the American House manager and she claimed to be from Vienna but traveling with her employer, a Czech. Further inquiry revealed that no Austrian passport had been issued to "LILLIAN," and she was later asked for her passport. "LILLIAN" replied that she had forgotten it, then left, and did not return.
+
+The previous summary stated that the above incident had been described by NOSENKO but in connection with attempts to entrap Joseph
+
+[MORONE] in 1960, not [ZUJUS] in 1962.
+
+G001186

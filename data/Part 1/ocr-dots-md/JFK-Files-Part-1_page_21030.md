@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_21030.png
+
+Convert to MarkdownSECRET
+
+1 August 1972
+
+MEMORANDUM FOR: Chief, Transactions & Records Branch
+
+FROM : Contract Personnel Division
+
+SUBJECT :
+
+Contact C/CPD prior to servicing any request for verification
+of Agency service.
+
+DoW H. Luebcher
+
+Chief
+Contract Personnel Division
+
+NOTE: Subject converted from Staff Agent status to Career Agent status
+effective 15 May 1972; this should be placed in his terminated
+Staff Agent file.
+
+SECRET
+
+GROUP I - Excluded from automatic downgrading and declassification.

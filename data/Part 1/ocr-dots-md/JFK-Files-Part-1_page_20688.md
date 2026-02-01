@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_20688.png
+
+Convert to Markdown619
+
+CLASSIFIED MESSAGE
+
+ORIG : P. C. BOERS
+UNIT : WH/PIER
+EXT : 4457
+DATE : 8 FEBRUARY 1956
+
+TO : HAVANA, CUBA
+
+FROM : DIRECTOR
+
+CCNF : WH 5
+
+INFO : FI/ADMIN, FI/RI 2, OP 2, S/C 2
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tbody><tr><td>1</td><td>2</td></tr><tr><td>2</td><td>3</td></tr><tr><td>3</td><td>5</td></tr></tbody></table>
+
+EQUIVALENT
+PRECEDENCE
+CITS: DIP
+
+DIR 46833 (OUT 67172) 2146Z 8 FEB 56
+
+TO: HAVA
+
+RE: DIR 30629(CUT 86720)
+
+HARV HAVA 1440 HRS 9 FEB PAA 436 WITH FAMILY.
+
+END OF MESSAGE
+
+J. C. KING
+RELEASING OFFICER
+
+H. J. PRESTON
+COORDINATING OFFICER
+
+<table><tr><td>SECRET</td></tr></table>
+
+O. H. CONNELLEY
+ASSISTANT OFFICER
+
+IT IS FORBIDDEN TO MAKE A COPY OF THIS MESSAGE Copy No.

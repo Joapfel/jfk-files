@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_21400.png
+
+Convert to MarkdownAT* NOTMENT TO EAVA-30210
+
+Subjekt
+Betr. I PCHORILYI ten Spiridow,
+~~LIECHART~~ Vera,
+Dr. KRIJENKO Gregor
+Neeug. Do. Anfrage
+
+Dr. Gregor KRIVENKO (Arzt, 3.12.1900 in Kiew UDSR geb., seit 1955 durch Einburgerung Osterr. Sta., urolzministerO., Oberbisterr., wh.) war seinerzeit in der Ukraine als Arzt tätig und kam in Juni 1943 mit seiner Gattin n. Carla geb. Kurotschina und seinen beiden Kindern als Fluchting nach Österreich. Von 1943 bis 1945 war er als Arzt im Krankenhäus Bied i. I., später im Allgemeinen Krankenhaus in Ling und dann bis 1952 als Fluchtlingsarzt in chemicalen Fluchtflingselager Bied i. I. angestellt. Seit 1952 geht er keiner geregelten Arbeit mehr nach. Als Befürsorgter übt er noch fallweise stillschweigend geduldet die Heilpraxis aus. Im Übrigen betätigt er sich als Organist und Chor dirigent in der griechisch-orthod. Kirche in Salzburg. Seine Gattin, die seinerzeit in der Ukraine angeblich Sängerin war, ist gleichfalls-musikalisch tätig. Der Sohn Dr. KRIJENKOS studiert Sprachen, die Tochter ist kränklich und steht in keinem Arbeitsverhältnis. Ein Bruder Dr. KRIJENKOS ist angeblich noch in der UdSSR als Arzt angestellt.
+
+Dr. KRIVENKO lebt mit seiner Familie in sehr bescheidenen Verhältnissen, ist sehr religiös eingestellt und als Antikommunist bekannt. Die ganze Familie genießt einen guten Ruf.
+
+Veronika (Vera) BURCHART geb. Chernilewski (17.2.1901 in BAR/Ukraine-ged., seit 1957 durch Einburgerung Österr.Sta., Untereitsing 32, Bes. Ried 1.I./Oberösterr., wh.) kam mit ihrem Gatten Wilhelm BURCHART (26.4.1887 in Jedenier/Uhr. geb.)
+
+3 July 67
+ECLA #1 TO EAVA 30210
+
+CS COPY
+
+201-259246

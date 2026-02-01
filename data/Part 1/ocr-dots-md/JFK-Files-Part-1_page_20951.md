@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_20951.png
+
+Convert to MarkdownS-B-C-R-E-T
+(When Filled In)
+
+ME: CHAIRMAN FOR CHIEF, Finance Division
+
+FROM: Contract Personnel Division
+
+SUBJECT: Contract Extension for 19 Aug '58
+
+1. Effective 19 Aug '58, the contract (as amended) for the subject individual, effective 19 Aug '58, is extended for 1 year.
+
+2. All other terms and conditions of the contract (as amended) remain in full force and effect.
+
+UNITED STATES OF AMERICA
+
+BY
+CONTRACTING OFFICER
+
+S-B-C-R-E-T

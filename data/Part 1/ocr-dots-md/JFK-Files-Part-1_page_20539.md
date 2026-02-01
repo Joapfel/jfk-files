@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_20539.png
+
+Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+
+Career Profile
+
+From 1949 to the present I have been a career official of the Central Intelligence Agency. My foreign assignments have been in Europe, Latin America and the Far East where my duties involved the collection, evaluation, and reporting of high priority intelligence in the national interest. This intelligence information related to the economic, political, social and military aspects of nations and regions where I was located. During two crisis periods I was a senior member of special task forces organized to confront the crises, and took part in White House conferences. At other times I have served as a regional trouble-shooter.
+
+Abroad I have dealt and negotiated with senior officials including Presidents of foreign nations and members of their Cabinets.
+
+In Washington I have represented CIA at high levels of our government including the Psychological Strategy Board, Operations Coordinating Board and Interdepartmental Groups chaired by the Assistant Secretary of State. I have had extensive responsibilities for the development and review of large-scale budgets, and for their successful presentation.
+
+I have also had broad experience in dealing with key non-governmental figures in the United States and abroad, including major corporate and industrial personalities at the highest level.

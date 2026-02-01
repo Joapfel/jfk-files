@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_21015.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td colspan="2">D TRANSMITTAL - FITNESS REPORT</td></tr><tr><td colspan="2"><b>INSTRUCTION</b></td></tr><tr><td colspan="2">The following items of the Fitness Report will NOT be completed by field personnel preceding the report for transmission to Headquarters.<br/>SECTION A, Items 1, 6, and 7<br/>SECTION D, Items 1, 2, and 3 (Only in respect to "Typed or Printed Name and Signature")</td></tr><tr><td>1. I CERTIFY THAT I HAVE SEEN THIS FITNESS REPORT</td><td>DATE</td></tr><tr><td colspan="2">TYPE OR PRINT NAME AND SIGNATURE OF EMPLOYEE (In pseudonym)</td></tr><tr><td colspan="2">Thomas B. CASASIN</td></tr><tr><td colspan="2">2. I CERTIFY THAT, EXCEPT FOR ITEMS Omitted under the above INSTRUCTIONS, ALL ITEMS APPEARING ON THE ATTACHED FITNESS REPORT HAVE BEEN COMPLETED UNDER PROVISIONS OF CURRENT INSTRUCTIONS OR REGULATIONS</td></tr><tr><td>DATE</td><td>TYPED OR PRINTED NAME AND SIGNATURE OF SUPERVISOR (In pseudonym)</td></tr><tr><td colspan="2">Reginald M. CUNION</td></tr><tr><td>DATE</td><td>TYPED OR PRINTED NAME AND SIGNATURE OF RECEIVING OFFICIAL (In pseudonym)</td></tr><tr><td colspan="2">Joseph H. RILANDER</td></tr><tr><td colspan="2"><b>SPECIAL NOTE</b></td></tr><tr><td colspan="2">Fitness Reports must be prepared with due regard for security considerations. For example, in the case of administrative and support personnel and others whose duties do not in themselves reveal sources of information and methods of operation, it is normally expected that a complete and realistic statement of specific duties may be reported in Section B. However, the nature, source, purpose or disposition of information or operations will not be included. On the other hand, the position titles and description of specific duties of certain other employees may jeopardize security and should not be fully reported on this form. In these cases, general statements of specific duties will be included in Section B indicating the level of responsibility.</td></tr></table>
+
+FORM 4-03 45a OBSOLETE PREVIOUS EDITIONS.
+
+SECRET
+
+(4)

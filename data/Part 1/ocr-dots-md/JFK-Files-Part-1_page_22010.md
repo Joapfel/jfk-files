@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_22010.png
+
+Convert to MarkdownQ: You have no idea who they are meeting, or when they are meeting them?
+
+A: When they are meeting an active development agent, they tell me afterwards. They are telling "this, this, this, this" and I am answering "this, this, this." But usually they are going to meet maids or they don't have to report. There is nothing active and there is....The file is going on.
+
+Q: What about operational vehicles? Automobiles?
+
+A: You see, we had one automobile for the whole department. Besides this, we could apply, when necessary, to the officer on duty for the Second Chief Directorate and he would give a car, because he has a number of cars at his disposal.
+
+Q: Approximately how much of your time did you spend supervising GRYAZNOV and KOSOLAPOV?
+
+A: I can't say.
+
+Q: Was it the most important function?
+
+A: Yes, it was important. All work in the First Section was important. This was the most important. But one day I could devote the whole day to code clerks, the next day maybe half the day, maybe two hours in the day. The rest of the day I will be absent. I will be meeting with KLYPIN, or I will be having a meeting with surveillance, or I will be at another place. The third day, again, maybe the whole day, maybe part of it. No, I can't tell you. It depends on the situation.
+
+### (iii) Additional Duties in KOVSHUK's Absence
+
+As Deputy Chief of the U.S. Embassy Section, one of NOSENKO's responsibilities was to serve as Acting Chief when KOVSHUK was absent from the office. NOSENKO recalled that he fulfilled this function during KOVSHUK's two 30-day leave periods in 1960 and 1961, but he did not remember when this leave occurred in those years. He also served as Acting Chief for about a month in the summer of 1960 when KOVSHUK was in the KGB hospital with heart trouble and for a week or two some time in 1961 when KOVSHUK was ill again. NOSENKO was unable to recall any operational or inspection trips that KOVSHUK made in 1960 or 1961, and the only other specific time that he could remember KOVSHUK being absent was for several days in connection with preparations for President Eisenhower's planned visit to the Soviet Union in 1960.
+
+NOSENKO's description of his duties in KOVSHUK's absence was summarized in a protocol which he signed on 3 March 1965:
+
+"I do not remember any particularly important operational decisions I made as Acting Chief of Section, nor any unusual things that happened during
+
+TOP SECRET

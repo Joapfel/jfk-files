@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_22477.png
+
+Convert to Markdown2 August 1978
+
+MEMORANDUM FOR : General Counsel
+Director of Security
+
+FROM : S.D. Breckinridge
+
+SUBJECT : HSCA Request of 20 July 1978 -
+OLC-78-2728
+
+1. Attached is correspondence from the DDO focal point on the HSCA investigation, responding to Question #2 of reference. It states that there are and have been no agreements (at least not as described in the HSCA request) between CIA and the FBI, or other government agencies, that pertain to the Agency's responsibilities to report on U.S. citizens abroad who contact Communist embassies or officials. It also states that current legislation forbids such reporting.
+
+2. Attached are copies of papers collected by O/IG during the Rockefeller Commission's inquiry; I recall that there was a 1966 agreement, which is not in these papers. In any event they do not seem to contain a specific provision such as is envisioned in the report. It is possible that interpretations of NSCID and DCID provisions resulted in routine reporting of such contacts, although there were no agreements, per se, for such action. Since the promulgation of Executive Orders 11905 and 12036 there have been limitations on reporting on U.S. persons, which may affect past practice. However, this office is not in a position to provide an Agency position on this issue.
+
+3. It is requested that you coordinate with the DDO in preparing an answer to an Agency response to the HSCA question.
+
+S.D. Breckinridge
+
+Distribution:
+
+1 - General Counsel
+1 - D/Security
+1 - OLC/Subj.
+1 - OLC/Chron
+1 - Mr. Gregg w/oATT
+1 - Mr. Shepanek
+
+This document may be
+downgraded to AIUO
+when detached from
+attachment

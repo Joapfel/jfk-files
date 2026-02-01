@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_20611.png
+
+Convert to Markdown7 December 1965
+
+MEMORANDUM FOR: Mr. E. Howard Hunt
+SUBJECT: BSC Claim
+
+1. Returned herewith is CA-1 (in duplicate) and CA-2 (in duplicate) which you completed in connection with your recent illness.
+
+2. The Benefits and Services Division has requested the following information:
+
+a. Statement of medical history - Form 89 attached for this purpose.
+
+b. Full statement from physician, or psychologist, including nature of illness, treatment, prognosis and statement as to what he thinks may be the cause.
+
+c. Statement from you, describing in full, what you think the contributing cause may be.
+
+Virginia C. Lynch
+DC Personnel
+
+Attachments - A/S

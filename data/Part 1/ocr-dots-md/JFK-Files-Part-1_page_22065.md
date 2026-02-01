@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_22065.png
+
+Convert to MarkdownBaku Restaurant. When informed that ABIDIAN gave "KAMO" his telephone number, NOSENKO recommended that 'KAMO" try to develop a relationship with ABIDIAN. After arguing that this was against the policy of taking no aggressive or provocative action against ABIDIAN, KOVSHUK and KLYPIN finally agreed, and "KAMO" phoned ABIDIAN twice on KGB instructions. ABIDIAN, however, refused to meet him, and no further action was taken.*
+
+NOSENKO did not know the room number of ABIDIAN's office in the Embassy or on what floor it was located, but said that he could check the room number if necessary since he had a copy of the Embassy telephone list published monthly with the office room number of each American employee. ABIDIAN's office was in the "Zone of Security" (i.e., secure office areas). A report from some agent, whose name NOSENKO did not recall, indicated that there was a sign on ABIDIAN's office door which said "Security Office." NOSENKO did not know and said he was unable to determine whether ABIDIAN had a secretary. No dictation or conversation was heard from ABIDIAN's office because no KGB microphone was there, and NOSENKO said that he did not remember any specific interesting or important information about ABIDIAN from other microphones in the Embassy.
+
+NOSENKO did not know the location of ABIDIAN's apartment in the Embassy building, nor how it was furnished. He said that he did not consider data of this nature to be operationally significant unless the target had shown vulnerabilities or was under active development.
+
+Aware that ABIDIAN travelled from the USSR two or three times while stationed in Moscow, NOSENKO did not know to which countries he went or the time of year when the trips were made. Such information, he stated, would have been of interest to him as ABIDIAN's case officer since, like LANGELLE'S earlier trips abroad, ABIDIAN'S trips were presumed to be for operational purposes. There was, however, no possibility for the KGB to find out where ABIDIAN had gone; even if the U.S. Embassy Section did establish where ABIDIAN would travel, nothing could be done
+
+* See below for ABIDIAN's account of a similar incident involving a Soviet he met while on a trip to Armenia.
+
+** In 1960-61 the Security Officer occupied a room where an operative microphone was discovered in 1964.
+
+***ABIDIAN made at least three trips abroad during his two years in Moscow. In August 1960 he took personal leave to visit his fiancée, a French girl, in the south of France and met with a CIA officer while there. In February 1961 he flew on the Ambassador's plane to Paris for meetings with CIA and then took personal leave to visit his fiancée. In September 1961, at CIA request, ABIDIAN again flew to France and to New York City and Washington for briefings connected with the handling of PENKOVSKIY in Moscow.
+
+****When CIA interrogators suggested that the KGB could have photographed ABIDIAN's passport on his return to Moscow, NOSENKO replied that the Second Chief Directorate does not photograph passports of foreign diplomats entering the Soviet Union. While this procedure would not be impossible, NOSENKO added, it was not considered so important as to justify the special effort involved.

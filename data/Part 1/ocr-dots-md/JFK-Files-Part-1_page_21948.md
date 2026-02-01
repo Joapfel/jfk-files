@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_21948.png
+
+Convert to Markdownexplained his having but few details concerning this action
+by the fact that it took place after NOSENKO had trans-
+ferred from the American Department to the Tourist Depart-
+ment in June 1955. NOSENKO knew nothing of FELCHLIN's
+background.
+
+Other sources have reported that FELCHLIN visited the USSR as a merchant seaman and a diplomatic courier before arriving in July 1953 as Army Attache. He served in the latter capacity for one year, until July 1954, when he was asked to leave the country. (He had previously served in Austria and West Germany and had been in official contact with known GRU officers at both posts, as well as in the United States.) During his entire tour in Moscow he was the subject of intensive KGB interest. Shortly after his arrival, in September 1953, FELCHLIN, with fellow Assistant Army Attache Martin J. MANHOFF, and two Air Force attaches took a train trip to Siberia, the first such trip permitted American attaches in many years. Six months later, on 25 March 1954, the Soviet newspaper Trud carried an article saying that FELCHLIN and his companions had lost some of their "spy documents" on the train. FELCHLIN said this charge was false. On another occasion, while travelling with a British Military Attache, FELCHLIN returned to his train compartment to find a scantily clad Soviet female in his bunk. (NOSENKO recalls neither of these incidents.) In June 1954, while in the company of Lieutenant Colonel F.J. YEAGER, an Assistant Army Attache, FELCHLIN was arrested in Kiev by a Soviet Army officer for photographing a military target. (NOSENKO has never mentioned YEAGER'S name; when told the name and asked for an identification, NOSENKO said that he had heard it and that he thought YEAGER was the Air Force Attache.) A large crowd gathered and, after some jostling, FELCHLIN and YEAGER were taken to a Militia station where they were ordered to sign a confession. They were held eleven hours, and their arrest caused the American ambassador to deliver a strong protest note. FELCHLIN was told on 3 July 1954 that he had 48 hours to get out of the Soviet Union. No specific charges were mentioned. Major Walter A. MCKINNEY, the U.S. Air Attache and one of FELCHLIN'S travelling companions at the time the "spy notes" were allegedly lost, was declared persona non grata at the same time.*
+
+Queried concerning SHNYRYEV, RICHARDS and FELCHLIN
+immediately recognized his photograph and name as one of the
+general chauffeurs assigned to the Office of the Military
+Attache at the Moscow Embassy; RICHARDS was taken on his
+first trip outside Moscow by SHNYRYEV. He remarked that the
+
+* Ambassador BOHLEN successfully insisted, against initial
+Soviet refusal, that his personal plane be allowed into the
+USSR to fly FELCHLIN and McKINNEY out. In February 1965
+NOSENKO was asked to describe the unusual circumstances
+under which FELCHLIN left. NOSENKO said he could not, in-
+asmuch as he was no longer in the American Department at
+the time. Told that the expulsion took place in 1954,
+NOSENKO said this was not the correct date.
