@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_25404.png
+
+Convert to MarkdownDATE 20 August 1969
+
+RECIPIENT FOR : Chief, LOS ANGELES FIELD OFFICE
+ATTN:
+SUBJECT : All
+REFERENCE : a) DCS - R - 1C - 3D
+b) Calls 52872 - cloued.
+
+To HUGH C. MC DONALD Security Division has
+created all line clearance through "Server" for Denied Area Briefing.
+Pavorable National Agency Checks were completed APRIL 1969.
+Current VIII Check(s) were completed MAY 1969.
+CS has no objection to your use of Subject in accordance with the
+IXI's Memorandum dated 29 November 1969.
+
+Combination for Denied Area Briefing of Subject, is as follows
+with DCS R = 10 - 3D, must be completed separately by the appropriate
+Headquarters Division.
+
+VIRGINIA L. THURM
+Security Liaison Officer
+
+CC: MULLEN ✓
+VTHORNE:CK
+
+SECURITY MESSAGE# 7868
+
+GROUP I
+EXCLUDED FROM AUTOMATIC
+DEMEETING AND INCLISUICATION
+
+S-F-C-R-P-T

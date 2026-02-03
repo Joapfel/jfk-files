@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_22816.png
+
+Convert to MarkdownCONFIDENTIAL
+
+# MEMO FOR THE STUDENT FILE
+
+11 February 1958
+
+FROM: Rufus A. Horn, Jr.
+
+This folder contains information on the 41 American students that went from the Moscow Youth Festival to China. The information was prepared for FE-2 CE working purposes. The material has not been carded, and the material is non-record, and should be destroyed sometime before 1 January 1959.
+
+DISTRIBUTION:
+
+1- for student file
+
+CONFIDENTIAL
+
+CS COPY
+
+200-8-14

@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_25350.png
+
+Convert to Markdown<table><tr><td>NAME:</td><td colspan="4">DEGREE OR RANK:</td></tr><tr><td>NATIONALITY:</td><td colspan="4">DOB: c. 1900</td></tr><tr><td>OCCUPATIONAL SPECIALTY:</td><td colspan="4">GHz: unknown to source</td></tr><tr><td>POSITION:</td><td colspan="4">BUILD: very tall HAIR: dark and gray EYES: Unknown</td></tr><tr><td>HT:</td><td colspan="2"></td><td>WT:</td><td colspan="2"></td></tr><tr><td>BUILD:</td><td colspan="2">very tall</td><td>EYES:</td><td colspan="2">Unknown</td></tr><tr><td>OTHER PHYSICAL CHARACTERISTICS:</td><td colspan="4">has large neck, a long face, this nose and face, and very large eyes<br/>and achinus<br/>under younger man, he actually is.</td></tr><tr><td>PERSONAL HISTORY:</td><td colspan="4">Married</td></tr><tr><td>EMPLOYMENT; MILITARY RECORD:</td><td colspan="4">AEROSPACE Airmen in chief of production section in a division of the USG prior to coming to Australia during the latter part of 1953. Source knew nothing about his military records.</td></tr><tr><td>PARTY APPILIATION; POLITICAL ORIENTATION:</td><td colspan="4">A CP member and loyal Communist, almost a fan.</td></tr><tr><td>REMARKS:</td><td colspan="4">Very applied政治 ideas, but stupid. He liked to squabble and was always involved in arguements.</td></tr><tr><td>BASIS OF INFO:</td><td colspan="4">aligned through work time, acrobatic, of W-10 - December 1st.</td></tr><tr><td>DATE OF INFO:</td><td colspan="4">December 1954</td></tr></table>
+
+SECRET
+
+SECURITY RESTRICTED TO THE OFFICER RELEVANT
+
+APPROVED BY

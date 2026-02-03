@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_23030.png
+
+Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+<table><tr><td>ORIG : W. 'WAINWRIGHT:tw</td></tr><tr><td>UNIT : SAS/EOB</td><td><input type="checkbox" checked disabled/> INDEX</td></tr><tr><td>EXT : 6153</td><td><input type="checkbox" disabled/> NO INDEX</td></tr><tr><td>DATE : 18 JUNE 1963</td><td><input type="checkbox" disabled/> FILE IN CS FILE NO.</td></tr></table>
+
+CLASSIFIED MESSAGE
+
+<table><thead><tr><th colspan="2">12-62<br>ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+TO : ROME
+
+FROM : DIRECTOR.
+
+CONF : SAS 8
+
+INFO : DDF, CI, CI/OPS, CI/OA, FI, WE 4, S/C
+
+SIG CEN
+REFERRED
+X ROUTINE
+
+TO
+
+ROME
+
+KEYWAY PBRUMEN AMWHIP
+
+REF: DIR 44488 (IN 55801)
+
+CITE DIR
+
+48198
+
+1. REQUEST SMITHAM ASK AMWHIP FOR DATE HE SENT LETTER TO "THOMPSON'S FRIEND" IN PBRUMEN. ALSO REMIND HIM TO SAVE COPY OF LETTER FOR THOMPSON. IF AMWHIP AGREEABLE, OFFER SEND COPY TO THOMPSON VIA "SECURE CHANNELS".
+
+2. FYI, LETTER IS ACTIVATION EFFORT TO RELUCTANT DRAGON AGENT NOW PBRUMEN, WHO MET PARIS BY THOMPSON AND WALLACE A. GROWERY LAST SUMMER. AGENT IS GOOD FRIEND AMWHIP WHO WAS INSTRUMENTAL IN ARRANGING CONTACT.
+
+END OF MESSAGE
+
+WE/4/S. Munger
+
+WE/5
+
+THOMAS THIELE
+C/WE/INT
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+<table><tr><td>S-E-C-R-E-T</td></tr></table>
+
+GROUP I
+Excluded from automatic downgrading and declassification
+
+AUTHENTICATING OFFICER
+
+<table><tr><td>REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED,</td><td>Copy No. 201-252234</td></tr></table>

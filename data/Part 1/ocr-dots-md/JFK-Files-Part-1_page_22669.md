@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_22669.png
+
+Convert to Markdown-2-
+
+5. For the remainder of his tour in Mexico (his first year will expire in June 1959), HOBAYR believes that his present cover will be entirely suitable. However, should KURARK desire to continue the same cover arrangement for his successor - at the end of his normal tour - it is suggested that thought be given to the establishment of a registered affiliate of an American concern, with the accompanying requirement of securing the costly working papers necessary for regular employment in Mexico. This would be particularly of value if his successor should happen not to possess the type of back ground that would permit independent activity in support of his cover, as is writing in HOBAYR's case.

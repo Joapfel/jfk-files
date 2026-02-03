@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_23452.png
+
+Convert to Markdown# CLASSIFIED MESSAGE
+
+356 LK/RFL
+DATE : 01 JUNE 1956
+
+<table><tr><td>SECRET</td></tr></table>
+
+ROUTING
+
+<table><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+TO : DIRECTOR
+
+FROM : HAVANA
+
+ACTION: LH 5
+
+INFO : CI, Cl/IC, FI/OPS 2, FI/RI 2, S/C 2
+
+HAVA 541 (IN 25296)
+
+2000Z 1 JAN 56
+
+TO: DIR
+
+RE: HKHW 1707
+
+ROUTE
+PRECEDENCE
+CITE: HAVA
+
+VIEW UPCOMING RENEWAL AMPHODARCH PROJECT REQUEST STATUS
+OF EFFORT PROVIDE VALIVADA WITH NON STUDENT COVER. THIS WAS
+DISCUSSED WITH VERBECX EARLY 56.
+
+END OF MESSAGE
+
+<table><tr><td>SECRET</td></tr></table>
+
+IT IS FORBIDDEN TO MAKE A COPY OF THIS MESSAGE Copy No.

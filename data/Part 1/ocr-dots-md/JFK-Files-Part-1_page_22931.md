@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_22931.png
+
+Convert to Markdown17 April 1958
+
+MEMORANDUM FOR: Chief, Office of Security
+
+VIA : Chief, CI/OA
+FROM : C/WHD
+SUBJECT : Harold R. HOENAYE (ps)
+C-25507
+#112565
+
+It is requested that the CEI granted Harold R. HOBNAYR (ps), formerly called Arthur O. VAIVADA (ps), on 3 July 1957 for use in Cuba under Project AMPHODARCH, be amended to permit his use in Mexico City. HOBNAYR will be transferred PCS to Mexico City in May 1958 where he will be carried under Project LIFECHE which is being prepared for submission to 71/Projects for approval. Attached is a new PRQ Part II which covers our proposed use of NORMAYR in Mexico.
+
+J. C. KING
+Chief, WHD
+
+APR 23 3 27 PH '58
+
+DRAFT

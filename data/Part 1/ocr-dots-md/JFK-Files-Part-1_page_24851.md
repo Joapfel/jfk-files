@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_24851.png
+
+Convert to MarkdownSECRET
+
+Chief of Station, Mexico City
+
+Office of Finance
+
+Tax Assessment - Muhammad O. TICHBAY - 1040536
+
+RNF: EFT - 6611 dated 6 May 1966
+
+1. Transmitted herewith is T/A 00-0273 dated 2 August 66 in the amount of $147.34, which represents tax withholding adjustment for Edward C. TICHBAY for the period 1 December 1965 through 31 July 1966.
+
+2. Upon receipt of reference and the tax assessment percentages from the Tax Committee, Finance was able to clear Subject's tax accounts for the years 1963, 1964 and 1965.
+
+3. A breakdown of the 1966 adjustment is as follows:
+
+Subject has been assessed at the rate of 11.9% for 1966. For the period 12/1/65 - 7/31/66, Headquarters has withheld $1103.09, but the new assessment is only $1041.25 (11.9% of gross salary of $8760.70), thus a refund due Subject in the amount of $147.34. Therefore, it is requested that the station pay TICHBAY the $147.34, and also beginning with the salary due for the month of August 1966 please pay Subject, and T/A to Headquarters the following net salary:
+
+| GRSS | GTS | TAX | HRP | NET |
+|---|---|---|---|---|
+| $1000.00 | $250.00 | $143.75 | $3.63 | $1092.62 |
+
+4. It was noted by Headquarters, that the Statistica is still withholding FICA for 1966. The station should have made a deduction of $14.70 in the month May, which would give TICHBAY sufficient credits ($277.20) for 1966. Therefore, it is requested that the station refund Subject any FICA that was withheld after a deduction of $14.70 for May, and please note this adjustment in the next T/A to Headquarters.
+
+HARRIET G. VIRGONIERE
+
+Distribution:
+
+3 - C/Mexico City
+
+MRS-4370
+
+8/2/66
+
+SECRET
+
+CF/CUD/APB/CAAS:Burton:gkb
+
+2213
+
+2 - WH/Division
+3 - APB/CAAS
+1 - RI/DP
+1 - CF/Registry
+C/WB/HF

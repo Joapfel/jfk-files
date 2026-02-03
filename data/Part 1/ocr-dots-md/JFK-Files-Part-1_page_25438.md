@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_25438.png
+
+Convert to MarkdownOLC 70-0857
+
+9 December 1970
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Meeting with Mr. Hugh C. McDonald, President of World Associates Inc.
+
+1. In response to a request from Mr. Killgore, on the staff of Senator Barry Goldwater (R., Ariz.), I met with Mr. Hugh C. McDonald at the Madison Hotel this afternoon. McDonald explained that he is in the banking and security business, having previously worked in the Los Angeles County Sheriff's Office. He also said he had a contractual relationship with the Agency some years ago and served as chief of security for Senator Goldwater during his campaign for the presidency in 1963.
+
+2. Mr. McDonald talked this morning with Senator Goldwater about his interest in meeting with someone from the Agency to discuss a report which he has prepared on the subject of highly sensitive Soviet bacteriological warfare activities on the island of Vozrozhdeniya in the Aral Sea. McDonald said he originally became aware of the existence of the secret Soviet activity in this locality while in Europe on a business trip. He decided to follow it up and was referred from one contact to another until he was virtually at the Russian border and decided he had investigated the matter as far as he felt he could without the possibility of personal risk. McDonald pointed out that the information in his report was obtained from sources who spoke freely to him without any remuneration whatsoever. He added that he understood from some of his sources that they had been in touch with the Agency or with U.S. intelligence representatives and had become reluctant to deal further with these representatives because they were not treated properly by them and the sources feared the Agency had been penetrated by Soviet agents.
+
+SECRET
+
+14-00000
+
+C0411
+4-61-88
+MS A14/9859

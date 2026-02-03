@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_24307.png
+
+Convert to MarkdownPROJECT QRPHONE
+
+PART A. CHARTS REQUESTED
+
+Chart I: For the period FY 1967 through FY 1971 provide the number of disseminated reports according to the subject field of the report. The headings would be: Fiscal Year, African Independence Movements, Anti-US Demonstrations, European Maoist Groups (etc., or whatever other subject fields you wish to set up).
+
+Chart II: List the specific events or organizations against which covert action was in fact undertaken and give the number of QRPHONE reports which were submitted on such events/organizations.
+
+PART B. QUESTIONS FOR DISCUSSION
+
+1. What is the basic reason for this being a CA Staff project (other than history)? To provide multi-divisional tasking for FI purposes of general U.S. intelligence interest? To provide CA operational information for possible DDP use?
+
+2. As regards FI reports, which have lately been described as being of only marginal interest, the main criticisms appear to be a lack of depth and detail. CA Staff's counter to this has been that QRPHONE goes as far as he can, and can go no further through elicitation. Have these depth/detail criticisms been valid? Is our defense valid, or could he reasonably be expected to elicit more depth and detail than he does?
+
+3. If he can go no further through elicitation and we wish to keep him on the FI path, what is implied? That he develop and run agents himself? That he actually goes to work for an organization of intelligence interest to us? How realistic would either of these lines of pursuit be?
+
+SECRET
+
+GROUP I
+Excluding non-military
+Staff and

@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_23550.png
+
+Convert to MarkdownSECRET
+
+Student Evaluation
+
+<table><thead><tr><th>ABOVE AVERAGE</th><th>AVERAGE</th><th>BELOW AVERAGE</th></tr></thead><tbody><tr><td>X</td><td></td><td></td></tr><tr><td>X</td><td></td><td></td></tr><tr><td>X</td><td></td><td></td></tr><tr><td>X</td><td></td><td></td></tr><tr><td>X</td><td></td><td></td></tr><tr><td>X</td><td></td><td></td></tr><tr><td>X</td><td></td><td></td></tr><tr><td>X</td><td></td><td></td></tr><tr><td>X</td><td></td><td></td></tr><tr><td>X</td><td></td><td></td></tr><tr><td>X</td><td></td><td></td></tr><tr><td>X</td><td></td><td></td></tr></tbody></table>
+
+Student's Comparative Evaluation To Others Trained For
+
+Identical Or Similar Assignment
+
+ABOVE AVERAGE
+
+AVERAGE
+
+BELOW AVERAGE
+
+Instructor's Comments:
+
+VAIVADA has had considerable experience in the field, but he was ready to broaden and enrich his experience with the help of training. He has a strong bent toward his own opinion and exhibited independence of mind in analyzing Communist Party activities. He had no difficulty in absorbing the material presented. He has the ability to apply theory to practice and apparently is a person who is accustomed to rely upon his own judgment. His written work was excellent. He recognized his own shortcomings and readily accepted constructive criticism. From all the evidence during training, VAIVADA appears capable of handling the assignment proposed for him.
+
+/s/ H. J. PISANKO
+Instructor
+
+SECRET
+
+14-00000

@@ -1,0 +1,73 @@
+# JFK-Files-Part-1_page_24019.png
+
+Convert to MarkdownDienbienphu - Evian
+
+OPRA
+
+Ollie HARRINGTON (the comment "You take Harrington" means "You use Harrington's name.")
+
+Pittsburgh Courier
+
+Richard WRIGHT
+
+William SMITH — Ghana television
+
+C. L. R. JAMES
+
+George PADMORE
+
+AFP
+
+Miles STEWART
+
+Tony BLCND (ph.)
+
+Tony HAGEN
+
+(Robert) WILLIAMS
+
+Bayard RUSTIN
+
+Emmet TILL
+
+PATTERSON
+
+ANDERSON (again)
+
+(Jacques) GRIPPA
+
+Veuvey
+
+Bill WORTHY (ph.)
+
+Monthly Review
+
+??? SUBERMAN and Paul SWEAZZY (ph.)
+
+Centre d'Etudes et Documentation de Marseilles
+
+Amitie Franco-Chinoise
+
+Qlichy
+
+BRAULIEU
+
+TSHCHBE
+
+ADCULA
+
+Bob TABER
+
+Cleanth BROOKS
+
+Carlos FRANQUI
+
+Leo LABEDZ
+
+Ved MEHTA
+
+Magnus
+
+Week — published in Nottingham
+
+SECRET

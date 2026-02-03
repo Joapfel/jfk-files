@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_23256.png
+
+Convert to Markdown<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 16 JANUARY-1958</td><td>SECRET</td></tr><tr><td colspan="2"><table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td>TO : DIRECTOR</td><td rowspan="5" style="vertical-align: top;"><table><tbody><tr><td>JAN 16 71</td><td>33,56</td></tr><tr><td>JAN 16 71</td><td>33,56</td></tr><tr><td colspan="2">REC'D CABLE SECT</td></tr><tr><td>FEB 16 71</td><td>33,56</td></tr></tbody></table></td></tr><tr><td>FROM : HAVANA</td></tr><tr><td>ACTION : Wh 5</td><td>ROUTINE</td></tr><tr><td>INFO : S/C 2</td><td>IN 18923</td></tr></tbody></table></td></tr><tr><td colspan="2">TO DIR INFO RE: DIR 02147 *<br/>CITE HAVA 133</td></tr><tr><td colspan="2">1. EBERWEIN THROUGH CLOSE CONTACT LUIS BUCH, KEY FIGURE IN 26 JULY MOVEMENT, CAN ESTABLISH BONA FIDES FOR VALVADA MISSION. VALVADA THINKS CHANCES SUCCESS WOULD BE GREATLY ENHANCED IF CASTRO BELIEVES HE IS UNOFFICIAL U.S. OBSERVER. STATION CONCURS AND SUGGESTS BUCH BE DISCREETLY INFORMED ANYTHING CASTRO TELLS VALVADA WILL FIND ITS WAY TO U.S. GOVT CHANNELS. LIGHT FREELANCE WRITER COVER WILL THEN BE ADEQUATE.<br/>2. REQUEST HQS APPROVAL PROCEED THIS BASIS UNLESS EVENTS ORIENTE FORCE DELAY.</td></tr><tr><td colspan="2">161445Z<br/>END OF MESSAGE<br/>C/S COMMENT : * APPARENTLY WRONG REFERENCE.</td></tr></table>
+
+SECRET
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

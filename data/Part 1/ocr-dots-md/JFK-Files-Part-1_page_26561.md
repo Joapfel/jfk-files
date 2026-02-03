@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_26561.png
+
+Convert to MarkdownSECRET/NO FOREIGN DISSEN
+
+-2-
+
+contact with medical groups and attempting to inspire them to anti-government activity in their respective countries.⁴ Also, while Cruz Ruiz and Meiner Huebner were working for Rico Galan at Suceden they were giving clauses in revolutionary activities to group organized by Rico Galan.
+
+Field Comments
+
+1. In October-November 1963, Rico Galan, ostensibly as a purely journalistic exercise, went to Guatemala where he interviewed Yon Sosa in the guerrilla leaders camp.
+
+2. HMM-9896 presents an overall picture of the medical strike situation.
+
+3. HMM-10,163 reported that Rico Galan arranged passages for Mexican doctors who attended a medical congress in Havana in February 1966.
+
+4. HMM-10,164 reports on the Central American activities of Drs. Meiner and Vélez Trejo.

@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_26184.png
+
+Convert to MarkdownSECRET
+
+-3-
+
+13. Travel:
+
+In Cuba July 1962
+
+Went to Cuba 2 Oct 62, joined by wife Nov 62, returned Mexico Dec 62
+
+Went to Cuba 25 May 63, returned Mexico 22 Jun 63
+
+Went to Guatemala early Oct 63 for a few days; may have spent short time in Salvador
+
+Entered Honduras 11 Oct 63 and left 13 Oct 63
+
+Entered Nicaragua 13 Oct 63 and left 17 Oct 63
+
+Entered Costa Rica 17 Oct 63 and left 20 Oct 63
+
+Entered Panama 20 Oct 63 and left 22 Oct 63
+
+Entered Venezuela 22 Oct 63 and left 12 Nov 63
+
+Entered Brazil 12 Nov 63; may have traveled to Cuba, perhaps clandestinely and reentered Brazil
+
+Entered Argentina 4 Dec 63 and left 12 Dec 63
+
+Entered Chile 12 Dec 63 and left 16 Dec 63
+
+Entered Peru 17 Dec 63 and left same day
+
+Entered Bolivia 17 Dec 63 and left 20 Dec 63
+
+Entered Peru 20 Dec 63 and returned Mexico possibly on same day
+
+Left Mexico and arrived Jamaica 8 Jan 64 en route to Dominican Republic where he arrived on the same day; he left on 15 Jan 64 and returned Mexico via Jamaica on the same day.
+
+Went to Cuba 28 Jan 64 and returned Mexico 25 Feb 64
+
+Possibly several clandestine trips to Guatemala in middle and late 1964.
+
+Went to Cuba 29 Mar 65 with wife and returned Mexico 12 Apr 65
+
+Went to Cuba in early 66 and returned Mexico 11 Feb 68
+
+SECRET

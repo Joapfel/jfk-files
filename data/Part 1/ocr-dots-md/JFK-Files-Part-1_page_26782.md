@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_26782.png
+
+Convert to Markdown14-00000
+
+<table><tr><td>ORIG:</td><td>N.J. Kaufman:mon</td></tr><tr><td>UNIT:</td><td>WJ/1</td></tr><tr><td>EXT:</td><td>4500</td></tr><tr><td>DATE:</td><td>11 May 65</td></tr></table>
+
+MESSAGE FORM
+
+☐ INDEX
+☐ NO INDEX
+☐ FILE IN C3 FILE NO.
+
+D ROUTING
+
+<table><tr><td>1</td><td>5</td><td></td></tr><tr><td>2</td><td>6</td><td>CH</td></tr><tr><td>3</td><td>7</td><td>SH</td></tr><tr><td>4</td><td>8</td><td>R</td></tr></table>
+
+TO : MEXICO CITY
+
+FROM : DIRECTOR
+CONF.: WJ-8
+
+NO D04, D0/N3, CA 2, CAPROP, VR, FILE
+
+<table><tr><td colspan="3">PRIORITY</td></tr></table>
+
+TO PRTY NEXT
+
+INFO: N.Y.00
+
+CITI DER
+
+REF: MEXI 3344 (IN 63771)
+
+WINDIGO
+
+1. WE NOW PLANNING PLAY THROUGH/subject HAVA RADIO SUPPORTED XXXXX STORY OF MAY SECOND/SUMMER BY PARAPARASITED PORTIONS OF MEDIA'S TELEPHONE CONVERSATION TO CORRECTLY. ALLEGED SOURCE OF TELEPHONE CONVERSATION WILL BE BY WINDIGO FROM HIS REBEL CONTRACTS SOW. THIS IS TO ALERT YOU IN EVENT YOU MAY WISH TO LIVE MONITOR AT LIFETIME LP PRIC TO POSSIBLE EVACUATION SHOULD YOU SO DISTRUST AS PRECAUTIONARY ACTION.
+
+23. WINDIGO, KULAMP CLEANED AND CUTTING PRESS ASSET WHO PUBLISHES IN CANADIAN AND JMAZ PAGES AND JUST RETUNED FROM SUO : WHERE INTENTIONED REBELS.
+
+END OF MESSAGE
+
+S.W.N. WINDIGO CHIEF, MD
+
+Kaufman
+
+REPRODUCTION BY CHINA TRAFFIC IN SENDING COPY IS FORNONDISCLOSURE
+
+©1968 RALEIGH, BROWN & COMPANY, INC. All rights reserved. No part of this publication may be reproduced without prior written permission from the publisher.

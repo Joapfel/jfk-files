@@ -1,0 +1,61 @@
+# JFK-Files-Part-1_page_25856.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA
+(Signature or Sea Port)
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+201-119523
+
+TO : Chief of Station, Mexico City
+
+FROM : Chief, WHD
+
+SUBJECT { GENERAL
+         SPECIFIC
+        - Operational Matters
+        - Raymond E. Gerenda
+
+DATE
+26 APR 37 / 14:44:2
+
+References: Rpt-1-5561, 19 December 1958 (50-6-4-1316)
+
+1. Plans are underway to bring subject to Headquarters for training as requested in reference. Gerenda is tentatively scheduled to begin his training on 10 June 1957.
+
+2. It is anticipated that subject will be trained in Basic Trade-Art, CT/CR matters, Photography and some audio surveillance. He should be able to complete his studies in about five weeks time.
+
+3. It is believed that tourist cover for subject's visit to this country will be satisfactory, if necessary as he has relatives living in South Carolina.
+
+4. As further and more definite air segments are made regarding the matter discussed in this dispatch, you will be so advised. Headquarters regrets the delay in covering reference dispatch.
+
+J. C. KING
+Chief, WHD
+
+19 April 1957
+
+Distribution:
+
+3 - Mexico City
+1 - WH/III/Chrono
+1 - AH/Mailroom
+✓1 - RI
+1 - Subject
+
+WH/III/Mexico/MPCondon:alu
+
+John F. Flynn
+J. C. KING, CHIEF, WHD
+
+(Coordinating officer)
+
+(AUTHENTICATING OFFICER)
+
+W. GALBRAITH, C/AB/III
+
+FORM NO. 51-29
+JUN 1949
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>

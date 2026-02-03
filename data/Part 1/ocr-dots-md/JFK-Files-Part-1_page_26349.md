@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_26349.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+-2-
+
+CS-311/13134-66
+
+4. A meeting of members of the Independent Central of People's Organizations (CIOP - Central Independiente de Organizaciones del Pueblo) was held on 19 August to discuss plans to carry out agitational activities early in September in support of busdrivers and other unionized groups.
+
+5. The campaign in support of political prisoners has been suspended until 25 September. The situation has become more complicated because of the recent increase in the number of prisoners, although in Nuevo Leon there have been no repercussions because of the roundup of the Ugalde-Rico Galan group.
+
+6. With regard to the national meeting of university students, it cannot be said that it was successful since only three delegations were present - those from Nuevo Leon, Chihuahua, and Jalisco. Arnoldo Martinez Verdugo, Jose Encarnacion Perez Gaytan and other members of the Party Presidium were present, which suggests that the Party attaches considerable importance to its program for university action. This meeting was considered to be the first stage, to be followed by others. It is assumed within the Party that the Nuevo Leon State Committee is experienced in university matters since it organized the University of Nuevo Leoyd Union (STUNL - Sindicato de la Universidad de Nuevo Leon).
+
+7. With respect to the PCM's electoral campaign, as yet no candidates have been agreed upon, and it is clear that among those under consideration none is of impressive stature.
+
+8. Of interest are the efforts of Porfirio Diaz, head of the National Youth Institute in Monterrey, who is departing from the Party line in attempting to form a youth group in which the Institutional Revolutionary Party (PRI - government party) would participate along with the PCM and other leftist organizations. Diaz has held meetings attended by Octavio Leal Moncada of the CIOP, Javier Rojas Sandoval of the PCM, Jose Luis Sustaita of the National Democratic Students' Central (CNED - Central Nacional do Estudiantes Democraticos), other members of the PCM, and representatives of the PRI.
+
+1. **Headquarters Comment:** Issue No. 1845, dated 28 Aug. 1966, of La Voz de Mexico, official newspaper of the PCM, reported that the Union de Sociedades de Credito Ejidal de la Comarca Lagunera 1940-1966 (UECECL-1940-1966), headed by Arturo Orona Gomez, held its VIII Ordinary Congress in its headquarters at Torreon, Coahuila. Issue No. 1846, dated 4 September 1966, contained an article dated Torreon, Coahuila, August 1966, saying that the national plenum of the OCI had resolved to disassociate itself from the National Liberation Movement (MLN-Movimiento de Liberacion Nacional), because of the latter's divisionist activities.
+
+2. **Source Comment:** In fact, the STUNL was not formed by the Party since, when it was organized, there were no Communists among the teachers and other university workers. The union came into being as a result principally of the activities of a group of teachers from Preparatory School N. 1, and it had the support of the then acting Rector, Alfonso Rangel Guerra, who saw in the union possibilities for creating problems for Eduardo Lites Villarreal, the Governor of Nuevo Leon. It was almost a year later that Rolando Guzman, Tomás Gonzales de Luna, and Horacio Salazar joined the PCM, but their influence in the union cannot be attributed to this fact. The union has continued to exist because it has maintained its activities within legal bounds, desanding minimum wages and improved working conditions. ICM influence in the union is negligible since, in addition to Guzman, Gonzalez, and Salazar, there are only four or five other ICM members. The possibilities of forming a national university union would appear to be remote, and it is doubtful that present plans in this direction will ever materialize.

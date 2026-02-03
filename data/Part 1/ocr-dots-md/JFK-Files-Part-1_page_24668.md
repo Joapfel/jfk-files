@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_24668.png
+
+Convert to Markdowntrip are unknown. LEONOV was a delegate to the 31st Session of the United Nations General Assembly in New York City from 19 September to 10 October 1976. In late June 1977 LEONOV accompanied two other Soviet officials on a visit to Panama where they were scheduled to visit with Panamanian Government officials. The next day LEONOV traveled to Bogota, Colombia where he remained until 3 July 1977. On this date he departed for Frankfurt, West Germany, presumably enroute home to the USSR.
+
+3. LEONOV and his wife, Valeriya Ivanovich, who was born 30 April 1928 in Kyazan, have a daughter, Irina Nikolayevna, who was born on 16 March 1962 in Mexico City.
+   LEONOV reportedly speaks excellent Spanish, good English, some French and little German. He has been described as pleasant, outgoing, intelligent, shrewd, conscientious, and reliable.
+   He has a sense of humor but displays a temper at times.
+
+4. Based on his activities and associations in Mexico City during his tours of duty between May 1953 and December 1968 LEONOV is considered to be a staff officer of the KGB (Soviet Committee for State Security.)
+
+SECRET
+
+14-00000

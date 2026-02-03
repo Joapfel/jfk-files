@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_23204.png
+
+Convert to Markdown14-00000
+
+DATE : 29 APRIL 1958
+
+25
+
+TO : DIRECTOR
+FROM : MEXICO CITY
+ACTION : WH 5
+INFO : CI, CI/OPS, CI/IC, FI/OPS 2, S/C 2
+
+CLASSIFIED MESSAGE
+
+<table><tr><td></td><td>SECRET</td></tr></table>
+
+<table><tr><th colspan="2">ROUTING</th></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+Apr 30 05 49.50
+
+REC'D CABLE SECT.
+
+R Routine
+
+IN 22383
+
+TO DIR INFO CITE MEXI 1468
+
+RE: DIR 19152 (OUT 70226 )
+
+1. CONCUR PARAS 2 AND 3 REF.
+
+2. RECOMMEND USE JEREMY A TOLKING.
+
+END OF MESSAGE
+
+C/S COMMENT; * CONCERNED COVER SET UP BY HQS FOR THE TRAVEL OF NOEMAYR.
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

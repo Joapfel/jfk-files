@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_25221.png
+
+Convert to MarkdownAMERICAN BROADCASTING COMPANY
+
+Mr. Sam JAFFE
+
+Position (Jan 65): Representative, AMERICAN BROADCASTING COMPANY in Moscow, USSR
+
+Sam and June are attractive people and SOURCE would like to become more friendly with them. However, neither SOURCE nor her husband trusts the JAFFES completely - in their view something about them does not add up. JAFFE good newspaper man - knows how to ask questions that will get news. SOURCE feels she has to watch what she says to JAFFE, lest he uncover some of her husbands "sources" for news. JAFFE does a good job, knows the ropes of his profession and is a thoroughly competent journalist. Knows a great many Russians and now has very good contacts with the North Vietnamese - this rather unusual for an American correspondent in Moscow. Both are Jewish.
+
+15 SEP 1966

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_25290.png
+
+Convert to MarkdownSECRET
+
+9. LUKASOV informed BOLSHAILOV on 27 September that he had returned from his trip and would be in town for one more day, then would leave at 8:00 a.m. by air the day after for New York, and from there on to Paris and Moscow.
+
+10. A son was born to DRUZHEBA on 28 September.
+
+11. AKSENOV was reported to be in Veracruz during September, according to (fm) HODRIQUEZ Toro who saw him there.
+
+54-4-1-294
+
+SECRET 54-4-1-294
+
+54-4-1-294

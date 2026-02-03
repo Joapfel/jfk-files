@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_25175.png
+
+Convert to MarkdownSource: AENIGMAG/2
+Date acquired: September 1966
+
+Marina LOPOUKHINE, Secretary Archivist, French Embassy
+
+This girl comes from a prominent family in imperial Russia, now in the emigration in France. She resigned to marry a Soviet (NU) who is a translator for the Moscow News. She will stay in the USSR, but will retain her French passport.
+
+SECRET
+
+15 SEP 1966

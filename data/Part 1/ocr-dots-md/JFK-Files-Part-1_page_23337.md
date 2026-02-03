@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_23337.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+454 JB/JM/MR
+
+DATE : 27 FEB 57
+
+TO : DIRECTOR
+FROM : SAN JOSE
+ACTION : WH 5
+INFO : CI, CI/OPS, FI, FI/OPS, FI/RI 2, S/C 2
+
+S-E-C-R-E-T
+
+<table><thead><tr><th>1</th><th>4</th></tr></thead><tbody><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+Feb 26 09 43:57
+
+REC'D CABLE SECT.
+IN 11760
+
+TO: HAVA
+RE: HAVA 811 (IN 49266 )
+DIR Ø3998 (OUT 79438 )
+SANJ 2474 (IN 11647 )
+
+INFO: DIR
+
+CITE: SANJ 2476
+
+OPERATIONAL MEMO DATED 26 FEBRUARY, PREPARED BY VAIVADA BEING PUCHED HAVA AS SEPARATE COVER ATTACHMENT TO HRSA-2602.
+
+END OF MESSAGE
+
+<table><tr><td>S-E-C-R-E-T</td></tr></table>
+
+IT IS FORBIDDEN TO MAKE A COPY OF THIS MESSAGE Copy No.

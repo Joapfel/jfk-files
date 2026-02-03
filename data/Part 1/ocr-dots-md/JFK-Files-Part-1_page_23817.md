@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_23817.png
+
+Convert to Markdownthis goal, but it is not certain that he could get the original fee
+back from Schwarzenberg.
+
+8. For future contacts, Rodigast gave S/1 "an alias I am using:
+James Sunderland, c/o American Express, 11 rue Scribe, Paris 9, the
+"C/O American Express" being optional. Rodigast will also look into
+the possibility of emergency contact via want ads placed in Alger
+Republicain or Le Peuple (the latter is preferred by S/1), which Rodigast
+believes will be purchased and read daily by LCPIPIT during the summer
+anyway-- they arrive in Paris a day or two after publication. S/1
+could advertise for a stenographer able to take perfect English shorthand,
+for example.
+
+Rufus F. Rodigast
+
+Joseph S. Tiffany
+
+CS COPY
+
+POUCH SECURITY VIOLATION
+NO FIELD DISTRIBUTION

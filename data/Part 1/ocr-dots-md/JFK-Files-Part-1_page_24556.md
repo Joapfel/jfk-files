@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_24556.png
+
+Convert to MarkdownCORREO AEREO
+
+—2—
+
+Byss postubir, eoccygyleutik; einai v ergoprodhmi nposn
+Higiendogy avaiolc prorebovecc anguirolonciu lumitala,
+to vo heupeno naro-psnoni atgeergui chospariseis us
+Eakofonaia euigas & 5.7. yprosois £ xap u chor disquevent
+CHT, vor baxadi v Mzy rgebvouanoye 600 vvm. do-lslpl,
+huosde lheh ei rjgpanobec soev zos "luy, hore bekenin."
+
+P.S. Bev O.K. Tigray ben. Ensa 20 yedi 6 Apr, leno ne biyessay
+mengidieniboi pydoug. Io greverbe aoorespe empr cyar boelece.
+Kapen, ipouny de8s noボロキ レリ エカmm ei fexeyaleho iedjamme:
+"botodgerb zaini yoal nyasa ni Mosilbe hi no greverbe 8 lackewiy
+bes ngrmuwa! Otga bei =---=i tou lunotki i4 piroodbi Boekdoiminn?
+Aae, kogora ke sheef, zo e mina deraj. Prekunai nerfi, korpye
+sorong reynakabi. Odo 779400 moa sikaani Korntohiny, preverabucel
+ds Mekeene v Nany. Ckaam ei 1 undemekul, zo kiwe ho ed dairi &
+i' nddyry; jny eg 5 iorgum nesedovakin? do Tegy u jeks zakone
+os ayapmii peseraph.
+
+t3 beavni ayra, ki dyw. Kosbaro ik ilq dot ches.
+Jap nucktuge loy, a jo ergex odhelaev.

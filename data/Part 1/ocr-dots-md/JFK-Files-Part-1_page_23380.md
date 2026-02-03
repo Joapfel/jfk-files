@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_23380.png
+
+and that it would be
+quite difficult to locate a competent workman at the salary level he
+can afford to pay. The above facts, plus unfavorable findings of a
+recent financial analysis of his business, have convinced HUMAROID
+to close the photograph stop at the end of November.
+
+5. In connection with paragraph 2.d. of TRSW-685, which states that HUMANOID must discontinue using his home to reproduce the material obtained from HUWANKIND-1 and HUWANKIND-3, the following brief history of safehouse experience at this station is set forth. A review of the files and discussion with HUWAKOID reveals that seven safeshouses have been utilized to date:
+
+a. An office room in the Panama Company building in San José from June, 1959, to November, 1949, used to process HUWANKIND material. Abandoned when it was learned the room was called the "FBI office upstairs" by other residents of the building.
+
+b. An apartment in Bella Vista from November, 1949, to January, 1950, used to process HUWANKIND material. Abandoned because landlord lived next door and used common entrance.
+
+c. One-half of a house in San Pedro, which had private entrance. Abandoned because the notorious Frank MARSHALL was neighbor. MARSHALL is enemy of the Communist Party and knew HUMANIST-2 by sight.
+
+d. An apartment in Parque Forazán. After two months this was abandoned as neighbors began making inquiries concerning infrequency of visits to the house.
+
+e. Apartment in Barrio Luján, for four months. This was abandoned as many Party members lived nearby and knew HUWANIST-2 by sight.
+
+f. A house near the Sabana airport for seven months, used to process HUWANKIND material. Frequent vacancy of the premises caused speculation by neighbors and landlord.
+
+g. Photographic studio as discussed above. In addition to stated reasons for closing above safeshouses, two house breakings were suffered, and it was frequently feared that the reproduction equipment might be stolen when it became apparent that persons were seldom in the houses.
+
+Security
+
+See me!

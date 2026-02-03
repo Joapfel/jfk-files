@@ -1,0 +1,80 @@
+# JFK-Files-Part-1_page_24909.png
+
+Convert to Markdown14-00000
+
+ORIG: G. Powell
+UNIT : CCS/NC
+EXT : 5004
+DATE: 20 April 1966
+
+☐ INDEX
+☑ NO INDEX
+☐ FILE IN CS FILE NO.
+
+MESSAGE FORM
+17 SECRET
+
+ROUTING
+
+<table>
+   <tr>
+    <td>1</td>
+    <td>5</td>
+   </tr>
+   <tr>
+    <td>2</td>
+    <td>6</td>
+   </tr>
+   <tr>
+    <td>3</td>
+    <td>7</td>
+   </tr>
+   <tr>
+    <td>4</td>
+    <td>8</td>
+   </tr>
+  </table>
+
+TO : MEXICO CITY
+FROM : DIRECTOR
+CONF: CC53 INFO eeh8, VK, F140, CF, 2, A
+
+TO MEXICO CITY
+
+REF: HEAT-6453, 31 March 1966
+
+CITE DIR
+
+TICHBORN TAX SITUATION CLEAR THROUGH 1965 UPON PAYMENT OF $2,308.94.
+THIS REPRESENTS $938.82 FOR 1963; $1,460.00 PLUS $174.00 (SOC.SEC.) FOR 1964,
+LESS REFUND OF $263.88 ON 1965 TAX. DETAILS WILL BE FORWARDED WITH LETTER
+OF TAX INSTRUCTION.
+
+END OF MESSAGE
+
+OF/C&TD/CTB Tel Coord. S.M.O'Leary
+WH/PERS
+WH/2/MEX
+
+C/WH/SS
+
+C/CCS/NC
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+SECRET
+
+GROUP 1
+Included in automatic
+downgrading and
+upgrading
+
+AUTHENTICATING
+OFFICER
+
+5
+4
+3
+2
+1

@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_23625.png
+
+Convert to Markdown# AMENDMENT NO. 1
+
+1. Agent HUMIST was granted provisional operational clearance as out put on 24 October 1952 and was activated 1 December 1952. He is presently being used in project HUAMOID as cut out between principal agent HUAMOID and sub-agents HUAMOID-1 and HUAMOID-2. As described in the project, it is planned to cancel project HUAMOID about mid-year when the principal agent leaves Costa Rica and re-submit it as two projects, one of which will be project HUMIST.
+
+2. It is requested that the project outline remain as submitted on 6 February 1953 be amended in Part II, section 11, to include the following:
+
+**Salary:**
+HUMIST
+**Fiscal Year 1953**
+$360
+**Fiscal Year 1954**
+$720
+
+3. It is therefore requested that project HUAMOID be authorized an increased cost, effective 1 March 1953, of $1080 over the estimated cost of $6,799 which has been submitted for approval, for the period ending 28 February 1954, making an amended estimated total cost of $7,878.

@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_26727.png
+
+Convert to MarkdownFrom 0700 to 2330, 1 May (Saturday) 1965
+
+2.0 Out to 23-88-20. Sra. Diener asks Josefina (said), who answers, if the young girl is up yet. Thinks no. Out to 23-88-20. Busy.
+
+2.2 In. Kosita with Sra. Diener, who answers. Sra. D. phoned Kosita. Asks if she has heard anything from young man (husband). Yes, he called last night. Had not phoned for a week but he had been in small towns and could not phone. Sra. D. said that phone rang a lot from 2330 to 0100 and she was somewhat worried...Max is Kosita's husband...
+
+3.0 Out to 03. Time is 0940 (1 May).
+After 1115, 1 May
+3.2 Out to 15-91-27. Victor Aico Galan (VKG) with MO, who answers. Greetings...How did things go there (in Cuba)? Fine. VKG needs to see MO. Arrange to get together tomorrow afternoon. VKG will phone MO tomorrow to set time. May go by MO's. MO has been working with, apple polishing Madrazo. Alberto Domingo reprisanded MO and MO replied that this is just exactly what AD with Alvarez Amexquita.
+
+4.5 Out to 03. Time is 1143, 1 May.
+
+4.7 Out to 39-32-48. VKG asks for Sr.Luis Lizaldi. He does not live there. Will he go by there today? Not sure. If he goes by, what time would he come? Not sure. He may come but since his mother is not there (in town), he may not come.
+
+5.0 Out to 45-40-04. Sra. Aico asks MO, who answers, for Sr. Has gone to market (with wife). Ask him to phone her at his brother's house.
+
+5.2 In. Cordero with VAG, who answers. How did VAC arrange things last night? Nothing, VAG could not talk. & VAG cursed the M.Y. operator because she said that the press calls had preference when they originated in U.S. VKG could not talk to radio Habana because Habana line went out. What did Juan B. say? Didn't C. says that Juan B. talk to Marcio? No, talked to Cordero. Juan B. Mejia, a member of the Party. VAG knows him. He said that the fight was continuing and wanted them to make a campaign of protest against what they are saying that the Dominican movement is Communist, that they are attacking the Embassies, that there is absolute order in the capital, that is, within combat. They are not sacking house or attacking embassies. He said there was more an order there than in the Trulia in rebellion. MO asked what control they had on the situation and he responded they had a lot.
+
+Marcio talked to Beach and will put Marcio on with VAG.
+There was a Cease Fire, but they have not respected the Cease
+Fire of O.E.A. There has been combat with the U.S. troops. Who gave
+this out? UP cable. No, AP cable. There are some Americans dead.
+VAG says - How good! There are 3 dead, 24 wounded and 3 in coma.
+VAG says that one should say - as Cocheli said in an article - Blend
+has run. Yankee blood, but American blood anyway.
+
+Reel 72-KICO-25
+
+- 1 -

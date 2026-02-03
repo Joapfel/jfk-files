@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_24840.png
+
+Convert to Markdown# Costs. (1 October 1966 - 30 June 1967)
+
+| | |
+|:---|---:|
+| Salary ($17,000/yr.) | $2,750 (9 months) |
+| Travel (domestic and International travel incident to establishment and maintenance of his cover position) | 2,250 |
+| Operational entertainment and miscellaneous expenses | 1,000 |
+| **TOTAL** | **$ 16,000** |
+
+The agent will be funded as follows:
+
+(i) Overt salary and necessary cover travel expenses will be paid by WUSALINE on a monthly basis.
+
+(ii) WH Division will make funds available to DO to cover TICHBORN's salary. DO will pass these funds to WUSALINE through existing funding channels.
+
+(iii) Operational expenses will be reimbursed by the case officer directly to the agent.
+
+(iv) The Agent will conform to Agency requirements in all his accountings.
+
+## Annexes.
+None of the special considerations listed under this heading is applicable to this project
+
+### i. Emergency Conditions.
+In view of TICHBORN's location in the U.S., no special planning is required for emergency conditions.

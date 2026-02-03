@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_25379.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="7">DOCUMENT TRANSFER AND CROSS REFERENCE</th></tr><tr><th>SUBJECT OF DOCUMENT</th><th>DOCUMENT IDENTIFICATION</th><th rowspan="4"></th><th rowspan="2">7. RI FILE NO.</th><th rowspan="2">8. DISPATCH OR SOURCE DOC. SYMBOL NO.</th><th rowspan="2">9. DATE OF INFO.</th><th rowspan="2">10. EVALUATION</th></tr><tr><td></td><td></td></tr><tr><th>5. ANALYST</th><th>6. DATE PROCESSED</th><th>7. SOURCE CRYPTOGRAM</th><th>8. DATE OF INFO.</th><th>9. DISSEMINATED IN</th><th>10. DATE</th></tr><tr><td></td><td></td><td>11. PERTINENT INFORMATION</td><td></td><td></td><td></td><td></td></tr></thead><tbody><tr><td>LEONOV, NIKOLAY SERGEYEVICH<br/>201-132139<br/>SEX M DOB 22 AUG 28<br/>CIT USSR<br/>OCC ?<br/>KGB FIRST CHIEF DIRECTORATE LATIN AMERICAN DEPT INPUT 2 NOV 67</td><td></td><td>074-005-102<br/>SX -05555/09<br/>NO DATE</td><td></td><td></td><td></td><td></td></tr><tr><td>711719</td><td>P 6803140507</td><td>FILE THIS FORM IN FILE NO.</td><td></td><td></td><td></td><td></td></tr></tbody></table>

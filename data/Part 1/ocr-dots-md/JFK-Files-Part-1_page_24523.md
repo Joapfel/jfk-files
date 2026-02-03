@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_24523.png
+
+Convert to Markdownfor the chips of the U.S. companies and to adopt measures for utilization
+of their own vessels for sea-borne transportation. Taking into consideration
+increased competition and the chance that vessels of other countries will
+engage in the transport of Latin American goods, it may still happen that
+the sea robbers who aimed to clip will find themselves clipped.
+
+[Signature: Collectible]
+H. LeGoodV

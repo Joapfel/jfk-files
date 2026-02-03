@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_24765.png
+
+Convert to Markdownh. page 9 - BONILLA Sanchez and LEONOV "being in correspondence" implies mail intercept (LIMUD) which it is.
+
+1. page 9 - LIREBEL-2 is a sensitive source and about the main source right now on Guatemalan exile activities. The last sentence might implicate him. At least it tells the Peruvians that CIA has a penetration here.
+
+8. Finally - It tells the Peruvians that the Station (CIA) Mexico has phone tapes, mail intercepts, penetration of the Cuban 19, penetration of Guatemalan exiles, surveillance and police liaison.
+
+It concentrates throughout that the information was developed by coverage of LEONOV while he was stationed in Mexico. These activities are treated in specific terms whereas his activities outside Mexico are treated in a very general manner.
+
+The Branch would prefer to have the paper rewritten omitting all specific dates and references which reveal the clandestine collection technique which produced the information,

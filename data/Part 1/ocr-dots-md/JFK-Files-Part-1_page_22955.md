@@ -1,0 +1,109 @@
+# JFK-Files-Part-1_page_22955.png
+
+Convert to MarkdownSec. 4. CHILDREN OR DEPENDENTS (Include partial dependents):
+
+1. NAME Ross Arnulfo Crozier
+   CITIZENSHIP US
+   ADDRESS
+   RELATIONSHIP Son
+   AGE
+64
+CITIZENSHIP
+   5th St., No. 655, Habana, Cuba
+
+2. NAME Lillian Caridad Crozler
+   CITIZENSHIP US
+   ADDRESS
+   RELATIONSHIP Daughter
+   AGE
+(Co.)
+(City) (State)
+(Country)
+
+3. NAME RA
+   CITIZENSHIP NA
+   ADDRESS
+   RELATIONSHIP
+   (St. and Number) (City) (State) (Country)
+   AGE
+
+Sec. 5. FATHER (Give the same information for stepfather and/or guardian on a separate sheet)
+
+FULL NAME Lester Earl Crosier
+
+(Firt)
+
+(Midle)
+
+(Last)
+
+LIVING OR DECEASED Living
+
+DATE OF DECEASE
+RR No. 1
+
+CAUSE
+Tampico Illinois USA
+
+PRESENT, OR LAST, ADDRESS
+
+(St. and Number) (City) (State) (Country)
+
+DATE OF BIRTH Mar. 15 1900
+
+PLACE OF BIRTH
+
+(City) (State) (Country)
+
+IF BORN OUTSIDE U. S. INDICATE DATE AND PLACE OF ENTRY
+
+CITIZENSHIP US WHEN ACQUIRED? Birth WHERE? above
+
+OCCUPATION Truckdriver LAST EMPLOYER
+RR No. 1 Tampico Illinois USA
+
+EMPLOYER'S OR OWN BUSINESS ADDRESS
+
+(St. and Number) (City) (State) US Army
+1917 1919
+
+MILITARY SERVICE FROM Theatre:
+(Date) TO (Date) BRANCH OF SERVICE
+
+KOHANEY France-Belgium DETAILS OF OTHER GOVT. SERVICE, U. S. OR FOREIGN
+USA
+
+Sec. 6. MOTHER (Give the same information for stepmother on a separate sheet)
+
+FULL NAME Elizabeth Lorene McKibben
+
+(Firt)
+
+(Midle)
+
+(Last)
+
+LIVING OR DECEASED Living
+
+DATE OF DECEASE
+RA
+
+CAUSE
+Tampico Illinois USA
+
+PRESENT, OR LAST, ADDRESS
+
+HR No. 1
+
+DATE OF BIRTH Sept. 1903
+
+PLACE OF BIRTH
+
+(Ia) (City) (State) (Country)
+Ilinois USA
+
+CITIZENSHIP US WHEN ACQUIRED? Birth WHERE? above
+
+IF BORN OUTSIDE U. S. INDICATE DATE AND PLACE OF ENTRY
+
+(B) 2-6-00-1

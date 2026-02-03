@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_24500.png
+
+Convert to Markdown<table><tr><td>14-00000</td></tr></table>
+
+<table><tbody><tr><td colspan="2"> Chief, U. S. Division <br/> ( code: G., L., M., J.)<br/><br/> HQU<br/> Chief of Station, Mexico City<br/><br/> RES:J<br/> JUNO/Versanding of Interrogations<br/><br/> ACTION REQUIRED: For Your Information<br/><br/> REFERENCE : MEXICO CITY-COOP<br/><br/> 1. In accordance with Reference, forwarded herewith are two xerox copies of the results of the interreguation of Lorenzo CARDENAS Farajaa (201-243906).<br/><br/> 2. SOURCE: LITEMPO-12 on 2 July 1969.<br/><br/> for/John A. PROBERT</td></tr><tr><td colspan="2">Attachment:<br/> As stated, h/w<br/><br/> Distribution:<br/> Orig and 2 - Chief, WRD, w/att.</td></tr><tr><td>OBS REFERENCE TO</td><td><table><tbody><tr><td>DISCHARGE AND MESSAGE</td><td>CUT</td></tr><tr><td>INJIA-37402</td><td>2 July 1969</td></tr><tr><td>CLASSIFICATION</td><td>HCS FILE GRADE</td></tr><tr><td>SECRET</td><td>200-124-102/3</td></tr><tr><td>RYEAT</td><td></td></tr></tbody></table></td></tr></tbody></table>

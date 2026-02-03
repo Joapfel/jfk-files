@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_22641.png
+
+Convert to MarkdownSECRET
+
+15 February 1960
+
+MEMORANDUM FOR: Chief, Contract Personnel Division
+
+SUBJECT: Harold R. NOEMAYR (ps)
+
+It is requested that the contract for Harold R. NOEMAYR, Career Agent, be amended to include a "Home Service Transfer Alliance."
+
+J. C. King
+Chief, WHD
+
+WH/3/Mexico/CZehrung:em
+
+Distribution:
+
+2 - Addressee
+
+1 - WH/3/Mexico
+
+1 - Subject
+
+SECRET
+
+LIEGE
+201-168881
+
+POF-MEYER-TAG
+14-000001

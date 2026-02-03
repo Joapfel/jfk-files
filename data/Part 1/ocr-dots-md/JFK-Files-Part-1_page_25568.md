@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_25568.png
+
+Convert to Markdown# SECRET
+
+UNDER SEPARATE COVER ATTACHMENT TO HMMA-36320, 28 JANUARY 1969
+
+## IDENTITIES
+
+* IDEN A - OSRAM
+* IDEN B - Cia. Electrica Mexicana S.A. (CEMSA); light bulb manufacturer
+
+CS COPY
+
+SECRET
+
+s/c att:1
+HmMA-36320
+
+201-119523

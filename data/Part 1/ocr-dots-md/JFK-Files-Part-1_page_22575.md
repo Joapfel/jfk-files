@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_22575.png
+
+Convert to MarkdownSECRET
+
+25 June 1963
+
+MEMORANDUM FOR: Central Cover Staff
+
+ATTENTION : Charlie Danish
+
+SUBJECT : Ross CROZIER
+
+REFERENCE : SAS Memorandum Dated 14 May 1963
+
+1. Referenced memorandum requested the Subject be provided with military cover while assigned in the Headquarters area for operational and credit purposes in the performance of his duties with SAS. It is understood that your office was reluctant to issue the Subject the necessary military cover because he was physically located in a DODS office which was under commercial cover.
+
+2. As indicated verbally on 24 June 1963, SAS will move the Subject out of the DODS area on 26 June. SAS has also requested suitable office or apartment space through the Office of Logistics from which the Subject will operate in the future. Until this property is acquired, the Subject will perform his duties from his home. Consequently, it is requested that immediate attention be given to providing the Subject with the necessary military cover. Refer any questions to Q. A. LADKER, Jr., SAS/Security, ext. 5909.
+
+Desmond Fitzgerald
+Chief, SAS
+
+Distribution:
+
+Orig & 1 - Addressee
+1 - SAS/Security
+
+SAS/Security:GALadner:ftk - 25 June 1963
+
+SECRET
+
+<table><tr><td>14-0000</td></tr></table>
+
+<table><tr><td>SECRET</td></tr></table>

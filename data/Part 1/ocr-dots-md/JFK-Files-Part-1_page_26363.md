@@ -1,0 +1,66 @@
+# JFK-Files-Part-1_page_26363.png
+
+Convert to Markdown14-0000
+
+JUN 29, 1966
+
+0/5 - 9:40 to 18:15 hrs.
+
+From #1 to #3 on ft. counter, voices in distance.
+
+At #39, voices in distance which sounds like a telephone conversation, to #61.
+
+At #104 Basurto and CHUNG are commenting on the Coca-Cola problem in Mexico.
+
+At #137 Basurto heard saying: But there are people who went to Santo Domingo: Fico Galán, Luis Suarez, Renato... They earn 1,000 pesos per week. (Adds something else which not understood).
+
+CHUNG: And where come "Siorpre" get all this money?
+
+Basurto: It is a front business. The government gives them money. (Basurto makes some remark that they take easily 3,000 pesos per month).
+
+CHUNG asks something and mentions a name which sounds like "Victor Alba".
+
+Basurto says no.
+
+CHUNG says: 100 pesos per hour.
+
+Basurto: It verifies.
+
+(There is much noise and cannot hear clearly)
+
+Basurto: I think much more than that.
+
+(They talk about some cousin of Basurto's. Basurto names his cousin to tell him everything. CHUNG says he is a very important cousin.)
+
+Basurto: I saw him yesterday.
+
+CHUNG: Is he a student?
+
+Bas: I don't know, I don't like to play in other people's private lives. But he told me himself that he was going, that he was going to be in Mexico only two or three weeks and that he was going to stay there for good. We won't see him anymore.
+
+CHUNG: Where is he going?
+
+Bas: To Cuba, has a relation to become Cuban by naturalization. He already has work and everything else over there. Has a color to be a citizen of a country.
+
+(Now words not understood, Mr. Basurto continues that I don't like the hot sun, so far for the cold weather. Did you see that SUELA A photos?" (Passes the film out) something? that they are going to make then now in 3 hours.
+
+(There is much noise and cannot understand complete conversation)
+
+From #305 to #312 CHUNG and Basurto continue talking but unable to understand. At #320 Basurto says: He has a big house, a numerous house in San Anselm. His way of life is very high, he lives like a king. Just the subsidy he gets from the government -- (few words not understood). That's why they call it "paid opposition".
+
+CHUNG makes some remark and Basurto answers: 85,000 plus compensation.
+
+(There is much noise and cannot hear voices clearly.) Basurto mantains the Conference in Cuba about Marxism and the Cuban Revolution. Also mentions the Mexican political parties "TRI" and "FTS" but there is much noise and cannot understand complete phrase.
+
+At #330 voices in distance talking in Chinese.
+
+At #333 Basurto mentions the blackouts in Tijuana and Co. Juárez and how they have harmed the storm.
+
+At #417 voices in distance talking in Chinese.
+
+At #444 said answer a phone. Said at telephone from #592 to 600.
+
+At #627 start hearing TV to #33, followed by strange sound like rain.
+At #930 TV continues up to #1010.
+
+Sound off at #1129 which is end of recording.

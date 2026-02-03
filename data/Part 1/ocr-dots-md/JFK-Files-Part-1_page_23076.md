@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_23076.png
+
+Convert to Markdown<table><tr><td></td><td>SECRET</td><td></td><td></td></tr><tr><td>CROSS REFERENCE TO</td><td>DISPATCH SYMBOL AND NUMBER</td><td>DATE</td><td></td></tr><tr><td></td><td>UFGA-28239<br/>CLASSIFIED BY:<br/>S E C R E T</td><td>11 August 67<br/>NOT FOR GENERAL USE<br/>201-022396</td><td></td></tr></table>

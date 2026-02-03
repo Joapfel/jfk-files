@@ -1,0 +1,100 @@
+# JFK-Files-Part-1_page_24497.png
+
+Convert to MarkdownENVIADOS SINDICALES SOVIÉTICOS
+
+Por FELIPE RUSSEL
+
+Tan poco respetuosa de las
+decisiones de nuestros gobier-
+nos es la URSS, que no obser-
+tante que el seudodiplomático
+ruso Alexander Openkunov
+fue expulsado por las autori-
+dades de Colombia el año 1964
+—a causa de sus actividades
+subversivas y nada diplomáti-
+cas—, ahora ha sido enviado
+por el Kremlin al Perú como
+miembro de una misión sindi-
+cal soviética. Tanto Openku-
+nov come Leningrad que lo acom-
+pañó, son oficiales de la K.G.
+B., así como también Victor
+Mednikov y Boris Papoy, quie-
+nes también estuvieron en Pe-
+ru como representantes sindi-
+cales moscovitas.
+
+Los gobiernos latinoamericano-
+nos que recientemente han
+reanudado relaciones diplo-
+maticas con la URSS, parten
+de dos supuestos completamente erróneos. El primero es
+clicar que pueden mejorar en
+forma sustancial su situación,
+económica incrementando el
+actual intercambio comercial
+con Rusia. Un examen de las
+relaciones mercantiles entre
+nuestro pueblo y la URSS,
+pone al descubierto lo lluso-
+rio de tales esperanzas. El in-
+significante comercio con Ru-
+sa soviética no aumenta con
+los convenios protocolarios. Si-
+que siendo igualmente peque-
+no y precario Los artículos
+que podemos ofrecer, tales co-
+mo café, azúcar, no interesan
+a los rusos. El primero porque
+consumen muy poco café; pa-
+ra beber tienen otros líquidos
+
+más exitantes El azúcar, por-
+que están obligados a com-
+prarlo a Cuba Castrocomunis-
+ta. Por lo que trae a los ar-
+tículos que nuestros países ne-
+cesitan adquirir en el exterior,
+la URSS no los puede ofrecer
+ni en la calidad, ni en el pre-
+cio, ni en las condiciones que
+en Europa o Estados Unidos
+podemos conseguir. El trato
+comercial más formalizado en-
+tre nuestros países y la URSS,
+carece así de validez para jus-
+tificar relaciones de más alto
+nivel, que los actuales true-
+ques de mercaderías de poca
+competita.
+
+El segundo supuesto de que
+parten nuestros gobiernos pa-
+ra reanudar relaciones diplo-
+maticas con Rusia, es suponer
+que los designios del comu-
+nismo internacional han com-
+biado, y que la subversión
+contra los gobiernos constitui-
+dos y la lucha de clases vio-
+lenta, ya no son los propós-
+tos de los soviéticos. Si nos
+atendemos a un análisis frío de
+la conducta moscovita en
+nuestros países, veremos que
+no solo sigue proclamando sin
+ambages sus pretensiones de
+conquistar el imperio mundial
+a ultranza, sino que las acti-
+vidades de sus nutridas dele-
+gaciones diplomáticas. que na-
+da tienen que hacer en ma-
+teria de comercio, están de-
+dicadas a exportarnos agitación
+y la rebelión contra
+nuestros gobiernos nacional-
+mente constituidos. En este
+aspecto, la presencia de los
+damaciones "enviados sindica-
+les" resulta muy importante.

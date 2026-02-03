@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_23149.png
+
+Convert to MarkdownSECRET
+
+TO: Chief, IS
+THRU: Chief, 10
+Chief, 10/2
+
+FROM: 10/1 SGT: Employee ASST
+
+SUBJECT: SW Message #108 from 
+
+1 Feb 67
+
+WIO-1124
+
+Distribution:
+
+T-C/TS
+1-C/10
+1-C/10/2 SCAH-07-10/2
+1-10 Chrono SCAH-07-10/2
+1-REG
+1-C/TSB
+
+1. SW message #108 from was received at JIMWAVE on 23 January, via Headquarters. The message was on the back of a one page letter, dated only December 1966, with cover text written on the front side of the paper. The message was of medium development, legible, and with no indication of censorship. The envelope, addressed to a Newport, Rhode Island accommodation address, showed a 5 January Havana postmark.
+
+2. There follows, the original Spanish text of the message and its translation. The information in brackets is that of the translator. An advance copy of the message has been supplied to IS.
+
+MJE UNO CERO OCHO (X) ESTIMADO JUAN (X) SU RMJE NUEVE
+ULTIMO MJE RECIBIDO ESTE ANO DE UNO NUEVE SEIS SEIS (X) ENTENDIDAS
+COMPLETAMENTE RPTO ENTENDIDAS COMPLETAMENTE SUS INSTRUCCIONES (X)
+TODAVIA NO RPTO NO HE RECIBIDO CARTA DE CALESTINA EECHADA TRES OERO
+DE NOVIEMBRE CMA NI TAMPOCO "NOTAS" DE JULIO Y AGOSTO (X) CONTINUACION
+DEL INFORME DEL DOCTOR JOSE ANGEL BUSTAMANTE (X) SIETE (X) NO CREO SEA
+MEDICO PERSONAL DE CASTRO CMA PUES SU ESPECIALIDAD ES PSIQUIATRIA CMA
+PERO SI QUE ESTE LO UTILICE PUES ES INTELIGENTE Y ESTA RELACIONADO
+POR SUS ACTUACIONES PACIFICAS ANTERIORES CMA PUES NO HA FORMADO PARTE
+DE NINGUN GRUPO REVOLUCIONARIO DE ACCION (X) EL MEDICO YANKEE GUIA
+ESPIRITUAL YANKEE QUE SIEMPRE ACOMPANA A CASTRO ES EL DOCTOR VALLEJO (
+CON BUSTAMANTE CMA LOPEZ SANCHEZ YANKEE ARAUJO TAMBIEN COLABORA EL
+DOCTOR ARMANDO DE CORDOVA ALTO DILIGENTE DEL MINISTERIO DE SALUD
+PUBLICA (X) YO NO CONOZCO LOS CONTACTOS EN EL EXTRANJERO DEL DOCTOR

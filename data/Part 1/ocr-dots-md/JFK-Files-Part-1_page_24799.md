@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_24799.png
+
+Convert to Markdown-2-
+
+productive now due to the sudden reluctance of Antonio Menendez and
+Jose Luis Siqueiros to introduce TICHBORN to their contacts. Stan
+Watson also felt, according to TICHBORN, that it would be risky for
+TICHBORN to contact Gonzalez Casanova, Cholula and Urquidi. While
+details of the discussions between Watson and TICHBORN were not
+given, it seems that the decision not to proceed was reached without any
+major hassle between TICHBORN and Stan Watson. (Comment: TICHBORN
+appears to be not at all unhappy about terminating what could have
+become a long and unproductive research effort built on a shaky story
+of TICHBORN writing a book on the PRI.)
+
+c. Antonio Menendez wrote up in English some of his comments based on his approach to the research problem. This 13 page double spaced report is attached.
+
+d. Chaconas asked TICHBORN how well he knew Carlos Fuentes (for possible BGBERET targeting). TICHBORN replied that he knew him very well and that he felt he could approach him directly if he had a reason for being in Paris (vacation, for example) or wherever Fuentes is now living. TICHBORN said that he believed Fuentes would accept an assignment to write articles on North Vietnam based on a future visit to that area but he also indicated that he believed we could not control the tone of the articles which would be likely to be pro-North Vietnam.
+
+2. TICHBORN was asked by LEP to review the list of trips TICHBORN had made outside the country and to confirm the dates and advances involved. LEP asked TICHBORN to get a list from his cover company of his domestic trips so that when the cover company submits a claim, WH will have a record of what trips were authorized for operational purposes involving TICHBORN. TICHBORN, on the same subject, said that he feels as does his cover company boss that some other arrangement should be made for some of his travel for WH. TICHBORN says he feels that the amount of travel he is involved in may appear unusual to the cover company accountant. LEP agreed that this was not a good situation over the long run and that he would talk to Gail Allen about making different arrangements for the future.
+
+3. TICHBORN was requested to rebate the $171.18 owed from the advance given him in Mexico for his trip there on 17 March. He offered to write out a check but LEP suggested that he send the check through the proper channels to the post office box number given him. He also promised to send the accounting for the latest trip to Mexico City in as soon as possible. TICHBORN was reminded of the need to send in his April and May loan payments which he agreed to do right away.
+
+Lee E. Patton, AC/WH/6
+
+Distribution: 1 - UOACE/ops; 1 - WH/l/Chaconas/ 1 - Chrono

@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_24249.png
+
+Convert to Markdown6. To will depart New York the night of 26 July on the 8:00 p.m. TWA flight to London.
+
+d. This will get him in London in time for a previously scheduled ops meeting with PAUPEROS on 27 July. He leaves on 1 August for a one-month vacation touring most of Europe with his family and spending one week in Malta.
+
+4. Before the arrival of DAITCHMAN we discussed other operational matters as follows:
+
+a. His friend in New York City, Richard Ward, (Apt. 11K, 372 Central Park West) recently returned from Hanoi and Paris with the manuscript of a new book written by Cambodian Prince Nordom Sihanouk titled "My War with CIA." Sihanouk gave the manuscript to Wilfred Burchett who gave it to a North Vietnamese friend to give to Ward. Ward was asked to find an American publisher and he, in turn, asked for QRPHONE/1's help. Burchett is an old friend of Ward's and stays at his apartment whenever he visits New York. The manuscript has already been given to a publisher in Europe. QRPHONE/1 asked if we would be interested in a copy. I told him to get one if he could do so without straining his cover.
+
+b. His friend, Lyle Stuart, the publisher, has been trying to buy the American branch of the Oxford University Press, and apparently is about to consummate the deal. He offered QRPHONE a job as his European representative if the deal goes through.
+
+c. Per TEUTSCHMAN's request I asked QRPHONE to give his instructor a copy of the long list of names and organizations given to him by Sibecho. Also per Ken's request, and in answer to my question, QRPHONE said he received the magazine published by the Turkish party in Collards Book Shop in London.
+
+5. From 5:00 p.m. until a little after midnight on 13 July, DAITCHMAN of FB Division briefed QRPHONE/1 in substance on the STFLIMFLAM program, our interest in having QRPHONE/1 pursue such a role, and explained the great amount of dreary work that would be involved in learning the communist dialectic thoroughly if the whole venture were to be successful. I will make no effort to condense these seven hours
+
+SECRET INFORMATION
+2
+
+SECRETS IN VAIN?

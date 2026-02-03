@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_25405.png
+
+Convert to MarkdownC-O-M-T-I-D-E-N-T-I-A-L
+
+FILE.
+
+DATE 27 May 1969
+
+MEMORANDUM TO : CHUZY, LOS ANGELES FIELD OFFICE
+ATTENTION :
+SUBJECT : AD HOC CLEARANCE
+REFERENCE : CASE 52872
+
+Security Division has granted ad hoc clearance thru
+SECRET RUP FAC MIST BE COMPLETED BEFORE DAB APPROVAL CAN BE GRANTED
+on the following:
+
+HUBB C. MC DOUGAL
+
+Security checks will be completed.
+
+CC: MOULIN
+
+VIRGINIA L. THOMAS
+Security Liaison Officer
+
+SECURITY MESSAGE # 7260
+
+GROUP I
+EXCLUDED FROM AUTOMATIC
+DOWNTROADING AND DECLASSIFICATION
+
+VThome:grw
+
+C-O-M-P-I-D-E-N-T-I-A-L

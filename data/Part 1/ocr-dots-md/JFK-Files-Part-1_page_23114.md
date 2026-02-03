@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_23114.png
+
+Convert to MarkdownACADEMIA DE CIENCIAS DE CUBA
+
+INSTITUTO DE NEUROFISIOLOGIA
+Y PSICOLOGIA
+Loma y 37, Alt. del Vedado
+Habana
+
+Prof. DR. JOSÉ A. BUSTAMANTE
+DIRECTOR
+
+La Habana, 23 de junio de 1967
+
+Prof. Dr. Alfonso Millán
+Catedra de Psicología Médica
+Universidad Autónoma de México
+México, D.F.
+México.
+
+Querido Amigo:
+
+Aprovechando un nuevo viaje del amigo Várgo te escribo otra vez para saludarte y darte unos informes que creo de importancia.
+
+También le estoy escribiendo a Seguín y Dávila. Les hago saber a todos que en el mes de Julio saldrá el primer número de nuestra Revista Psiquiatría Transcultural de la cual les enviare un ejemplar tan pronto salga.
+
+En el mes de Noviembre se ha de celebrar una reunión de la Organización Saniteria Panamericana sobre la "Enseñanza de la Psicología Médica y la Psiquiatría en América," a la que pienso asistir pues ha sido invitada la Facultad de Medicina de la Universidad de la Habana por la organización y la Fá cultad casi con toda seguridad me ha de designar, en ese caso no tendría problemas pues ellos se ocupan de conseguir la visa y de todos los demás detalles relacionados con la reunión.
+
+En el mes de Enero le escribí una extensa carta a Pichot que en el Congreso de Madrid estuvo tratando de producir una reunión de los asistentes al mismo que se dedican a la Psicología Médica.
+
+Yo recibí su citación con gran entusiasmo pues creo que es necesario cambien impresiones los norteamericanos, europeos y latinoamericanos ya que cada uno de dicho grupo tenemos nuestra propia opinión como son sin duda las tres opiniones que rigen en el mundo en esta materia. Él por su parte nos defraudó tanto a mí como a Seguín pues realizó una reunión intrascendente y se puso en contacto con gente que no representa la Psicología Médica en el mundo y por ejemplo, concretamente en relación al Perú, entró en contacto, no con Seguín que estaba allí, sino con un muchacho que no se dedica a esta disciplina.
+
+Esa es la razón por la cual le escribí esa carta haciéndole esas críticas y sugiriéndole que para tratar de esos problemas con nosotros latinoamericanos tenían fundamentalmente que entrar en contacto contigo, con Seguín y conmigo pues creo fuera de toda falsa modestia que somos la más alta experiencia de la Psicología Médica en América Lati-

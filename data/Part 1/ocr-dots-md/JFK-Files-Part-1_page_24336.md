@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_24336.png
+
+Convert to MarkdownSECRET
+
+**WIFE'S ATTITUDE TOWARD JKLANCE:** Q/1's wife is not witting of his JKLANCE affiliation. She was allowed to believe that he was working indirectly for the Chinese. She certainly is aware of the past JKLANCE accusations which have been leveled at Q/1, but as far as Q/1 can determine (and this is not a subject on which he can come right out and ask a direct question) she continues to accept the Chinese story. It should be added that Mrs. Q/1 is British and is the holder of some rather typical "left" anti-JKLANCE attitudes. It should also be noted that the relationship between the two is fraught with a variety of problems thereby adding to the complexity of the situation. Certainly the whole subject of Q/1's activities is one which Mrs. Q/1 views with misgivings and which is simply not discussed -- lest it lead to acrimony. Mention should also be made that Mrs. Q/1 seems to accept as legitimate the small amount of money received from Q/1's cover and to regard this as a genuine stringer relationship.
+
+**RESPONSE TO CASE OFFICER HANDLING:** QRPHONE/1 has a very pleasant personality and responds well to Case Officer handling. He is a most willing asset requiring no special handling care -- other than the normal professionalism expected in the handling of a sensitive asset such as Q/1.
+
+**WILLINGNESS TO ACCEPT INSTRUCTIONS OR GUIDANCE:** Q/1 is willing to accept guidance and criticism -- provided it is constructive. If anything, he may sometimes be too willing. His willingness occasionally exceeds his sense of security and it then falls to his handler to bear in mind security and/or operational considerations which may affect his pursuit of a given target. However, this should not be over dramatized.
+
+**RESPONSIVENESS:** Q/1 is most responsive to requirements levied upon him. In this connection it should be recalled that his ability to respond fully is usually restricted by the nature of his relationship with his informants; i.e., since he is only eliciting the information from unwitting informants he is rarely able to press for all the desired details.
+
+**JKLANCE CONTROL:** Q/1 is dependent upon a JKLANCE salary and he has signed recruitment documents and a security pledge. We hasten to add that Q/1 is not a handling problem and there has never been any instance in which either he or his handler has had occasion to allude to these control factors.
+
+**PERSONAL SECURITY:** Q/1 has a good sense of personal security and his handler makes an effort to build upon this at every opportunity. As cited above, Q/1's enthusiasm sometimes leads to his failure to consider all aspects and implications of a given situation.

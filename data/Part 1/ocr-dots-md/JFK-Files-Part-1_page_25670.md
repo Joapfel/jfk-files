@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_25670.png
+
+Convert to MarkdownMACHADO, MANUEL
+
+019-009-0003
+MEXI-02164
+
+14 AUG 58
+
+CUBAN REVOLUTIONARY IN MEXICO.
+
+015120
+
+<table><tr><td>X-2 R-5207</td></tr></table>
+
+MACHADO, MANUEL
+
+SRS X-2 H-5207 0-15 MARTIKS, ANTONIO
+
+1001
+2/2/44
+
+015122
+
+SECRET

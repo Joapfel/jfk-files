@@ -1,0 +1,91 @@
+# JFK-Files-Part-1_page_24585.png
+
+Convert to Markdown25 January 1955
+
+was included on a list of exiled
+Guatemalans who applied for political
+asylum in Mexico (8).
+
+June 1956
+
+was identified together with Victor
+Manuel GUTIÉRREZ, Cesar HONTELASSO and
+Rafael SÓLIS Barrios as being directors
+of the Central Guatemalan Confederation
+of Trade Unions in Exile (CGUE). In June
+1956 the CGTG and other various exile
+groups in Mexico joined together in the
+Union Patriótica Guatemalteca (UPG) to
+form both a clandestine and legal group
+inside and wherever possible as an oppo-
+sition party to the Guatemalan Government
+(24).
+
+19 October 1956
+
+his wife, Yolanda Rodriguez de CARDONA,
+name appeared on a list of 157 exiles
+who were being permitted to return to
+Guatemala according to the Ministry of
+Foreign Relations (9).
+
+As of 3 December 1956
+
+in Mexico, he was the Secretary of the
+Directive Organísm (EURO - Buro de la
+Práctica del Partido Guatemalteco de
+Trabajo (PGT) (7). Also he was a member
+of the PGT central committee which was
+located in Mexico. At the time there
+were two PGT central committees, one in
+Mexico and one in Guatemala (6). During
+1954-57, he was a member of the PGT cell
+"LUBE" in Mexico (7).
+
+5 December 1956
+
+attended a meeting of the Directive Organ-
+ism (BURO) in Mexico where he with others
+discussed political problems of one Guate-
+malan member in Prague (7).
+
+14 December 1956
+
+departed Mexico City for Tapachula, Mexico
+where he met a courier. He coordinated the
+plans of the PGT as to the stand to take
+in the event of a revolt which was planned
+for 24 December 1956 (7).
+
+23 December 1956
+
+returned to Mexico City after having made
+clandestine contact with a party leader
+from the interior (7).
+
+18 January 1957
+
+he would be pulled off of his job in the
+printing shop at Tabasco 2750 in Mexico
+in order to make him into a professional
+of the PGT, but the possibility was remote
+since it was difficult to obtain a job
+as advantageous as that which he then had,
+one which permitted him to take part in
+political activities during the afternoon
+(7).
+
+24 January 1957
+
+attended a meeting of the Buro of the PGT
+faction in Mexico where a communique on
+the Hungarian Problem was made known to
+the rank and file of the PGT in Mexico (7).
+
+7 February 1957
+
+attended a meeting of the Buro of the PGT
+in Mexico at the home of Jose Manuel
+FORTUNY where he and others discussed the
+organizational report first presented by
+the PGT in Mexico (7).

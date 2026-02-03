@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_23004.png
+
+Convert to Markdown1. Mitchell Pasden, w4 (see Officin
+ handling project ESCROW, was advised
+ on this date that he should submit
+ a request to STC/SLB to send the
+ operational clearance for agent BIRADIAL
+ to provide for his use in project ESCROW.
+ It should be noted that BIRADIAL is currently
+ being used as a cut-out in this operation.

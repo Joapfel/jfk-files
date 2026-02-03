@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_23931.png
+
+Convert to Markdown14-00000
+
+> for press purposes. He wanted to take portraits of all the Africans. He got their names. He had a tremendous file there. (laughing) And he also had a wire-photo machine which worked right out of his studio. He did Phombeah and another, Yellow while I was there.
+
+Anyway, Phombeah was known to Verges. He may have met him when Verges was in the IUM, International Union of Students, in Prague. He was the VicePresident. There are four vice presidents. Verges was one of them.
+
+As I said, when we were in Algeria, we had this woman Rosalind Ainslie as our correspondent here. When there came the blow-up—there was Phombeah— he knew Rosalind Ainslie and was giving her political advice. In other words, he was muchhigher up in the hierarchy of the British Communist Party, although theoretically he is not a member of the party. That I don't know. He maintained that she, but she certainly accepted what he said, together with everyone. So when she ceased to work for us he agreed to work, for £50 a month, but not to have his name used. He didn't want his name to appear in the magazine. He said "however, I'm certain that Babu, if this was before the revolution, I'm certain that Babu will be willing." He sent a cable to him and got a reply which was favorable. Babu then turned up in Paris and London. He was at the Labor Party congress at Scarborough. On his way back to Africa from that congress he stopped in Paris and that was his meeting with Verges.
+
+He told Verges: He said "we will be in power within six to eight weeks after independence" And of course he was. And really that shocked Verges, who to see somebody who really knew what he would do. Also Babu— very strange in that he doesn't dress well at all. He looks very sloppy.
+
+I saw him next. We both saw him next, at the UN conference, the Geneva Conference. He came to Paris with the Omar character who was still here. I saw he was presented to the Queen not too long ago. And his so-called Chef de Protocol, who just happened to be a boy who could speak French which was a convenience. He also came with an Italian girl by the name of Betti, her last name, and I suspect, although I am not certain, that she is Laura Betti, who is a well-known Italian actress and the alleged mistress of Pierre, Paolo Passalacqua, the film director. He was the man who made Accatonia and just made the Gospel According to St. Matthew which got a big prize and all that. He is a homosexual and so it is a very strange sort of relationship. She was supposed to be a member of The

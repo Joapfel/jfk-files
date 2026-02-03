@@ -1,0 +1,279 @@
+# JFK-Files-Part-1_page_25337.png
+
+Convert to MarkdownSECRET
+
+RC-2207
+
+**NAME:** BACHM, Nikoill Veolyovich
+**NATIONALITY:** Russian
+**OCCUPATIONAL SPECIALTY:** A commercial specialist
+**POLITICAL:** Chief of the Supply, and Sales Office of A/O Kabel, USLA
+**BET:** c. 180 cm. **WT:** c. 65 kg.
+**BUILD:** Short, **HAIR:** Light **EYES:** Unknown to source
+**OTHER PHYSICAL CHARACTERISTICS:** Round "Russian" face. He wears glasses with metal frames.
+**PERSONAL HISTORY:** Married; he graduated from the Academy of Foreign Trade (Academy Vyiennaya). His first child was born in Moscow in 1946 or 1947.
+
+**EMPLOYER:** MILITARY RECORD: Prior to coming to Austria in March 1944, he worked as Chief of the Equipment Department of the Chief Directorate of Electrical Machine Building, Ministry of Electrical Industry (Oldal Oborudovaniya, Glavnoe Obravlicheniya Elektronizhatino - Stroyeniya, Ministerstvo Elektropрыходженостi). Military record unknown to source.
+**PARTY AFFILIATION:** POLITICAL ORIENTATION: CP member, very active Communist
+
+**REMARKS:**
+
+**BASIS OF INFO:** Acquainted through work
+**DATE OF INFO:** December 1944
+
+**NAME:** BARABON, Fedor Nikiforovich
+**NATIONALITY:** Russian
+**OCCUPATIONAL SPECIALTY:** Electrical engineer (Instener-elektrik)
+**POSITION:** Deputy Director and Chief Engineer of A/O Kabel, USLA
+**BET:** 173-174 cm. **WT:** c. 93 kg.
+**BUILD:** Quite stout **HAIR:** Blond **EYES:** Unknown
+**OTHER PHYSICAL CHARACTERISTICS:** Full face
+**PERSONAL HISTORY:** Married
+
+**EMPLOYER:** MILITARY RECORD: Prior to coming to Austria in March 1944, he worked as Chief of the Equipment Department of the Chief Directorate of Electrical Machine Building, Ministry of Electrical Industry (Oldal Oborudovaniya, Glavnoe Obravlicheniya Elektronizhatino - Stroyeniya, Ministerstvo Elektropрыходженостi). Military record unknown to source.
+**PARTY AFFILIATION:** POLITICAL ORIENTATION: CP member, very active Communist
+
+**REMARKS:** A very good engineer; fans before his superiors in an effort to advance himself further. Does not treat subordinates fairly.
+
+**BASIS OF INFO:** Acquainted through work from March to December 1944
+**DATE OF INFO:** December 1944
+
+SECRET
+
+APPROVED CARD REPRODUCTION
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET
+
+SECRET
+-1-
+SECRET

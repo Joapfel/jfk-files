@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_23568.png
+
+Convert to MarkdownSan Jose de Costa Rica, Octubre 6 de 1953.
+
+Senor
+D. Ross L. Crozier
+c.o. Francis Williams
+5846 Access Road,
+Page Manor
+Dayton, Ohio
+
+De mi consideración.
+
+Cumplió dirige a usted informándose que se ha
+recibido en esta Oficina Consular la Nota N°1043 de fecha agosto
+7 del año en curso (Exp. 11096/53) por la que la Dirección
+General de Inmigración por disposición atenta al destino en el
+país, ha denegado el permiso considerando que la solicitud
+formulada por usted y familia ante esta Oficina se refiere a
+Inmigración de Urbe.
+
+Sin otro particular, me es grato saludar a ustedes.-
+
+Carlos Alberto FERNÁNDEZ
+Consejero
+Seccion Consular

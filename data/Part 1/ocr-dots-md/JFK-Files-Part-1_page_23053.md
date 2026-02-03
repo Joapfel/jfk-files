@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_23053.png
+
+Convert to Markdowncentrifuges then available. Its basic function is the analysis or separation of the diverse elements that constitute a biological substance.
+
+11. Department of Electronic Microscopy. This department was functioning in November 1967 and contained two electron microscopes of the highest quality, one Polish-made and the other believed to be Japanese. It was performing research in cytology, ultrastructure (the ultramicroscopic structure of tissues of living beings), crystallography, and the three-dimensional spatial structure of certain biological substances.
+
+12. DEPARTMENT OF MEDICAL BOTANY. This department is headed by a very intelligent and cultured Spanish agronomist named Guillermo Cid who has been in Cuba since 1940. It is effecting a systematic study of Cuban flora in order to determine the pharmacological and therapeutical properties of Cuban plants. The department works in coordination with the experimental station in Santiago de las Vegas that is directed by the eminent 92-year old Dr. Juan Tomas Roig Mesa, who is the greatest Cuban expert on Cuban and tropical flora and one of the greatest authorities in the world on medicinal plants. In addition, the department has the cooperation of all the experimental agricultural stations in Cuba, which send the department samples of any plant considered worth investigation; the department conducts an exhaustive analysis of such samples. The research has two objectives:
+
+a. The utilization of the curative properties of the plants, which constitute a cheap supply of national raw materials and can replace many imported products.
+
+b. The launching on the world market of competitive pharmaceutical products, following the example of Red China and Bulgaria.
+
+13. The work of the Department of Medical Botany will probably be successful because of (a) the qualifications and competence of its director, Guillermo Cid, (b) the extraordinary impulse that has been imparted to its research program, and (c) the extraordinary richness of Cuban flora in medicinal plants.
+
+14. Department of Microbiology and Virology. This department is very well equipped and manned. It has ultracentrifuges and isolated installations for virus cultures, and installations for experimental animals.
+
+15. Biomechanics and Biomedical Studies. Biomechanics is the study of the biological activity of living organisms from the point of view of the physicochemical laws that govern them. As of September 1966, a department that would do research on biomechanics was being organized within the CNIC. The Cuban Government is aware of the enormous medical importance of the application of cybernetics (problem solving by electronic computers) to the analysis, organization, and resolution of the very complex physicochemical problems that the biology of living beings presents; the Government is attempting to organize this department, which will train highly qualified personnel and import electronic computers (a) for the study of the complex physicochemical problems related principally to hematology, neurophysiology, and cardiology and cardiovascular surgery, and (b) for the computation for public health purposes of the vast amounts of public health data of different types that the MINSAP regional organizations would provide.

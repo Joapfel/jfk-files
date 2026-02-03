@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_25083.png
+
+Convert to Markdownb. On 29 Jun 1965 "Modesto KARAT" called KOZTEKOV to say he would like to talk with him and also to give him the message that Ricardo was waiting in his office for him. KOZTEKOV said if Modesto was working that day, and who Ricardo said no, he would be sitting at home all day, then KOZTEKOV said he would stop by his house in the afternoon.
+
+c. On 6 Jul 1965 "Rودесто", called KOЗТЕКОВ and asked if there was anything new about the people travelling to Helsinki. KOZTEKOY said nothing yet, but he hoped to have some by the end of the week. KOZTEKOY also said if Modesto had received any news from the doctor, and Modesto said no, even though he had sent a telephone. Modesto said he would keep a copy of the telegrams he sent for KOZTEKOV.
+
+d. On 7 Jul 1965 "Modesto" told KOZTEKOV that, after he had talked to him the day before, he had received a cable asking the same question, i.e., what was with the trip to Helsinki, and Modesto wanted to know what to answer. KOZTEKOY said that they would have to wait about two more days but that he would send a cable to pressure for an answer. Modesto said he would answer his cable saying that they were trying to get a cabled reply and added that he would be in his office in the afternoon, if KOZTEKOY wanted to reach him.
+
+e. On 8 Jul 1965 a man identified by voice as the above Modesto called at the Soviet Embassy for the Vice Consul (i.e. KOZTEKOV). He was told to call back, and was asked who was calling; he said he was calling on behalf of the Panamanians ("de parte de los panamericos").
+
+f. On 9 Jul 1965 a man called at the Soviet Embassy for KOZTEKOV, who was out. The man then said to leave the message that "BLANCO...no...tell him that Modesto called." (This is evidently what made the LIENVOY monitors assume that the caller's name was "Modesto Blanck,".)
+
+g. On 9 Jul 1965 a man left a message at the Soviet Embassy for KOZTEKOY saying that Modesto had called. (This comes out in LIENVOY as being a call from "Modesto Blanck," panameno," but this was probably the monitor's way of identifying the same man of the above conversations and not what the man actually said.)
+
+h. On 12 Jul 1965 Modesto again spoke to KOZTEKOV (and is again described by LIENVOY as "Modesto Blanck," panameno"). Modesto informed KOZTEKOV that the job from Venezuela ("el encargo de Venezuela") had arrived. KOZTEKOV suggested meeting Modesto at the usual place and asked if (so, she, it?) was with Modesto. Modesto said yes, at his house, and KOZTEKOY said then it would be better for him to visit them at his house. Modesto also asked about the "other matter," but KOZTEKOY still had no news.
+
+i. On 14 Jul 1965 it was again reported that "Modesto Blanck," panameno" called and left a message to tell KOZTEKOV that he had called. (Again, the "Modesto Blanck," panameno" is probably a LIENVOY assumption, rather than what Modesto actually said.)
+
+j. On 1 Aug 1965 "Modesto Blanck," panameno" (again, probably the LIENVOY assumption) called at the Soviet Embassy for KOZTEKOV and was told to call him on another number. (No record of a second call.)
+
+k. On 12 Aug 1965 LIENVOY reported that "Modesto Blanck," panameno" called KOZTEKOY and asked whether the young man had been dispatched. KOZTEKOY said he had just left.
+
+SJC-305052
+
+201-305052
+
+E.R. LAU
+H.A. HU
+F.W. HUNTER
+J.P. HARRIS
+D.M. HARTLEIGH
+W.L. HAYNES
+W.E. HAYNES
+G.T. HAYNES
+L.D. HAYNES
+M.C. HEATH
+E.E. HEITMAN
+P.M.

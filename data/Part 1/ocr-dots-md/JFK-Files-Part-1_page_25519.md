@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_25519.png
+
+Convert to Markdown14-00000
+
+RELEASE AND SECRECY AGREEMENT
+
+I, Ramon ALVAREZ Durant, do hereby forever release the United States Government from any and all claims and demands of whatever nature which I or any member of my family has against the United States Government.
+
+I agree to keep forever secret the fact of my confidential relationship, and that of other members of my family, with the United States Government. I also agree to keep forever secret my knowledge of all persons, methods, and equipment which I acquired in the course of my relationship with the United States Government.
+
+I understand that I am to receive a bonus payment amounting to $10,000 (USD) payable in ten monthly installments of $1,000 (USD) beginning 31 July 1970. I further understand that payment of this sum is contingent upon full compliance with this secrecy agreement, and that the United States Government shall be the sole judge of such compliance. Furthermore, I specifically renounce any claim to any similar bonus or other payment made to any other member of my family.
+
+This Release and Secrecy Agreement is effective as of the date it is signed. I acknowledge that I have read it and I fully understand its meaning.
+
+Date
+
+Ramon ALVAREZ Durant
+
+WITNESS:
+
+Date
+
+Hester ROOS de ALVAREZ
+
+Date
+
+Donald F. VOGEL
+
+Date
+
+Victor E. BELLINI
+
+CS COPY
+
+SICatt. #2 to HUHA-39129 201-119523

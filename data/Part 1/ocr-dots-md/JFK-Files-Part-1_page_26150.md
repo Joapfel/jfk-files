@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_26150.png
+
+Convert to Markdown14-00000
+
+RICO, Victor (Galan)
+
+201-336474
+
+Card 7
+
+Commie
+
+( Angel TonaALa Buros, Oun/, who exiled to Mexico Jan. 65, after he was invol-
+ved in burning USA caruses in Cuat.)
+
+The last mission of kICO Galan was the unification of the Guat
+Guerrillas.
+
+(Cy of report filed in Arma file)
+
+HAM-9727
+4 June 65
+LIPPER
+CB-311/
+07174-65
+11 June 65
+
+Leaders of the MLN and the FEP met near the end of March or the beginning
+of April 1965 to draw up a letter of convocation to the National Congress
+for the Liberty of the Political Prisoners and the Repeal of the Law of
+Social Dissolution. Subj. and members of the group will send out the
+notice of the Congress. Subj. is a member of the FEP and an enemy of
+the FFS.

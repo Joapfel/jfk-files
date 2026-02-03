@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_24405.png
+
+Convert to MarkdownSECRET
+STRATIFIED
+
+SEPARATE COVER ATTACHMENT 2 TO: OEPA-1794
+
+<table><tr><td>MICRO FILMED</td></tr><tr><td>MAY 13 1969</td></tr><tr><td>DOC. MICRO. SER.</td></tr></table>
+
+IDENTITIES
+
+A - Revolution Magazine
+
+B - Jacques VERGES
+
+CS COPY
+
+SECRET STRATIFIED 1P
+
+5CA #2to
+OEPA-1794
+D 200-124-156/3
+
+201-306052

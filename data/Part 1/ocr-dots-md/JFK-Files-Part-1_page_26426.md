@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_26426.png
+
+Convert to Markdown<table><caption>CLASSIFIED MESSAGE</caption><thead><tr><th colspan="2">SECRET</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+TO : DIRECTOR
+
+FROM : SANTO DOMINGO
+
+ACTION: WH 8
+
+INFO : DOP, CI, CI/OPS, CI/IC 2, FI, RI/AN, SAS 8, VR
+
+SECRET 161630Z
+
+MEXI DIR INFO WAVE CITE SDOM 2622
+
+REF: SDOM 2619 (1W 99172)*
+
+1. VICTOR RICO, MEXICAN, LEFT SDOM FOR KNGS ON 15 JAN 64
+VIA PANAM. (SOURCE: AIRLISTS)
+
+2. INDEX.
+
+SECRET
+
+16JAN94IN00010
+
+C/S COMMENT: *VICTOR RICO GALAH LEFT SDOM FOR MIAMI ON 15 JAN.
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED Copy No.

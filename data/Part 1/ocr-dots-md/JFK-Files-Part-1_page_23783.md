@@ -1,0 +1,379 @@
+# JFK-Files-Part-1_page_23783.png
+
+Convert to MarkdownS E C R E T 231117Z
+
+PRIORITY DIR INFO PRIORITY BUEN CITE PALP 4115 CILIBERTI ACTING
+ZIBET QRPREY STEBONY KUDESK QKFIND SGFLAG
+
+REF A DIR 20944
+B DIR 21708
+
+C PALP 3983 (NOT SENT BUEN) (IN 83309)
+
+23 June 65
+
+1. REQUEST DIR RELAY BUEN SUBSTANCE REF C, ESPECIALLY DEADLINES FOR DEPOSITS IN SWISS ACCOUNT.
+
+2. BUEN PLS ADVISE WHEN TRANSFERS EFFECTED.
+
+3. NO INDEX
+
+SECRET
+
+CFN
+
+SECRET
+
+201-306052
+
+23 June 65
+
+REPRODUCTION PROHIBITED
+
+<table><tr><td>AX &amp; FI</td></tr><tr><td>PS DCT</td></tr><tr><td>ABSTRACT INDEX</td></tr></table>
+
+23 Jun 65
+
+96790
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+201-306052
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June 65
+
+SECRET
+
+23 June

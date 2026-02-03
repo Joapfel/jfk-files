@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_24448.png
+
+Convert to Markdownsome time he was in trouble at the hands of the political groups opposed to Algerian independence. He was provided a guard outside his house and for a little while had even to leave France to live in Geneva because of fear for his life. Even in the legal defence that he conducted, the judge was entirely political. He was all this period subscribing to an extreme view which may be called ultra-revolutionary. For example, in his legal defence his theory was always to justify an act of killing by an accused on the ground that it was part of a war of independence.
+
+Almost from the very beginning and in any case from 1951 Verges had certain differences with the French C.P. He considered them to be reformist and acceded them of being cowardly in their support to the Algerian revolution. He was never a member thereof in this period and often worked against them.
+
+In 1962 he shifted to Rabat as Political Advisor to the King. He was very friendly with a Senior Minister, "Ahmad", and his post in Rabat was brought about by the Minister. However, it appears he did not continue long in this post and was back in Paris in 1963. Now he is the Chief Editor of a political monthly journal called "Revolution". He is also reported to be the head of the China Lobby in Paris.
+
+## Acquaintance
+
+The writer met Verges in 1951 when he visited Delhi. In 1955 the writer stayed with Verges in Paris twice and twice again in 1958. The last time the writer saw Verges was in Paris in 1961. (In 1951 Verges was in Delhi in connection with an I.U.S. meeting. In 1955 the writer was in Paris on his way to and from Prague in connection with I.U.S.inarne. In 1958 he visited Paris going to and from Stockholm for the Youth Festival Preparatory Committee meeting. And in 1961 the writer was in Paris to attend an I.A.D.L. Commission on Algeria.) Verges has always been very friendly and cordial with the writer and openly discusses his problems, views, activities, etc.
+
+RED LONDONDER, DAVID MURPHY
+
+E. LINDO

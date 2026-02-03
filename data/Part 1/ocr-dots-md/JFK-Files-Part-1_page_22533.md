@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_22533.png
+
+Convert to MarkdownSECRET-eyes ONLY
+
+28 June 1960
+
+Dearborn cabled the results of his first meeting with Juan
+Vicini. He said that Vicini felt that the time to concentrate on,
+for planning purposes, was the period extending through the
+"incapacitation" of Trujillo; too much planning for what would
+follow risked exposure. Dearborn said that he agreed.
+
+Also on 28 June (although the first written record we find is
+a summary memorandum prepared on 18 October), Rubottom told J.C.
+King that the Government of the United States was prepared to
+participate in the overthrow of the Trujillo regime to the following
+extent: "to provide a small number of sniper rifles or other devices
+for the removal of key Trujillo people from the scene. . . . ."
+Rubottom added that the U.S. Government was not prepared, at this
+time, to send arms, equipment, or paramilitary experts to assist the
+underground to accomplish a revolt.
+
+29 June 1960
+
+Dearborn cabled the results of his meeting with Dr. Brossa. He
+said that Brossa had recommended a temporary standdown on "action
+toward incapacitation of Trujillo" while determining Venezuela's
+reaction to the Trujillo assassination plot against Betancourt.
+
+SECRET-eyes ONLY

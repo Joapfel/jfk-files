@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_25188.png
+
+Convert to MarkdownSource: AFGHANAG/2
+Date acquired: September 1966
+
+Yusuf Abd-al-Aziz SILARARA, First Secretary, UAR Embassy
+
+He has a very good looking wife, for which reason he is always invited out in ambassadorial circles, which he normally would not be in. Source instinctively thinks he is an intelligence officer, without being able to say why.
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966

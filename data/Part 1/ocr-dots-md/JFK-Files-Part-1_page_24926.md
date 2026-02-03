@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_24926.png
+
+Convert to Markdown14-0000Q
+
+MESSAGE FORM 15
+
+ORIG: SHO'LEARY
+UNIT : COV. TAX BR.
+EXT : 2391
+DATE : 21 FEB. 1966
+
+☐ INDEX
+☐ NO INDEX
+☐ FILE IN CS FILE NO.
+
+<table><thead><tr><th></th><th></th><th>ROUTING</th></tr></thead><tbody><tr><td>1</td><td>SS</td><td>5</td></tr><tr><td>2</td><td></td><td>5</td></tr><tr><td>3</td><td>(7)</td><td></td></tr><tr><td>4</td><td>8</td><td></td></tr></tbody></table>
+
+TO : MEXICO CITY
+
+FROM : DIRECTOR
+
+CONF: CC S-3
+
+INFO: VB, File, WH-8, OF-2
+
+<table><tr><td>25FEB05</td><td>19 38Z</td></tr></table>
+
+TO MEXI
+
+CITE DEL CARMINE 83146
+
+REFS: A. MCK-6033
+B. MEXI-6266 (to 5/4/87)
+
+BALSIS QUERIED. HAS NO RECOLLECTION CAST AS SHOWN REF A. BALSIS SUGGESTS SWECKER CHECK FOLDER "COVERT TAXIS" WHICH WAS LOCATED IN HIS WORK FILE.
+
+END OF MESSAGE
+
+C/S COMMENT: REF. A REQUESTED BALSIS KNOWLEDGE OF TICHEBORN 1964 COVERT AND COVERT RETURNS.
+
+WH/BF Eubene P.A.C.
+
+COORDINATING OFFICERS
+
+S-F-C-R-E-T
+
+C/CTD
+
+AUTHENTICATING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

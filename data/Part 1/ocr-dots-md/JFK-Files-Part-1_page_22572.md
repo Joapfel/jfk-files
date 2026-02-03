@@ -1,0 +1,60 @@
+# JFK-Files-Part-1_page_22572.png
+
+Convert to Markdown4-0000
+
+104-10215-10003
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+AIR
+(SPECIFY AIR OR SEA POUCH)
+
+DISPATCH NO. HKI-A-L025
+(201-16681)
+(23-88/2-139) Local
+
+<table><tr><td>SECRET</td></tr><tr><td>KAPAK</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO : Chief, WHD
+
+FROM : Chief of Station, Habana
+
+SUBJECT: GENERAL— Administrative
+~~SPECIFIC—~~ Arthur G. VAIVADA
+
+DATE: 7 November 1957
+
+1. Attached herewith is a memorandum prepared by the Subject, dated 29 October 1957, calling the attention of Headquarters to the fact that his assignment in Habana terminates in June 1958 and setting out his wishes as to reassignment thereafter.
+
+2. While Vaivada did not include it in his memorandum, in recent conversations with the case officer he has expressed considerable interest in the possibility of being assigned under unofficial cover to Spain, saying that both he and his wife would welcome such an assignment. The Subject has also said in those conversations that he would not take it amiss if an opportunity for reassignment outside of the Central America-Caribbean area were to become open to him at any time prior to June 1958.
+
+3. In the opinion of the Station, Vaivada has done a very good job. here, having been confronted with and overcome a number of difficult problems and situations during his tour of over three years in Habana. The Station is happy to recommend that his request for reassignment be given every consideration.
+
+James R. Palinger
+
+Attachments:
+
+Memorandum of Reassignment (4 copies)
+
+Distribution:
+
+* 4 - Washington w/att.
+* 2 - Files w/att.
+
+4 November 1957
+
+JRP/mftn
+
+SECRET
+KAPAK
+
+<table><tr><td>SECRET</td></tr><tr><td>KAPAK</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+FORM NO.
+MAR. 1959
+
+51-28A
+
+ESTABLISHED FOR CH. 43-29
+
+201-168881

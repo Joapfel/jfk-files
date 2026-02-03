@@ -1,0 +1,89 @@
+# JFK-Files-Part-1_page_25505.png
+
+Convert to Markdown14-00000
+
+<table>
+   <tr>
+    <td>72</td>
+    <td></td>
+    <td></td>
+    <td>67</td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>4</td>
+    <td>S/S</td>
+    <td></td>
+    <td>85</td>
+    <td></td>
+    <td></td>
+   </tr>
+  </table>
+
+J.J. Barry: lmr
+C/WH/1/F1/C1
+4167/1973
+14 July 1970
+
+<table>
+  <tbody>
+    <tr>
+      <td rowspan="4">A</td>
+      <td colspan="4">SECRET</td>
+    </tr>
+    <tr>
+      <td colspan="4">NO INDEX</td>
+    </tr>
+    <tr>
+      <td colspan="2">RETURN TO ___________ BRANCH</td>
+      <td colspan="2"></td>
+    </tr>
+    <tr>
+      <td colspan="2">FILE IN CS FILE NO. ____________</td>
+      <td colspan="2"></td>
+    </tr>
+  </tbody>
+</table>
+
+EYES ONLY-
+
+DATE and TIME (if known)
+
+SECRET
+
+CITE DIRECTOR
+
+TO MEXICO CITY
+
+RYBAT
+
+REFS: A. DIRECTOR 049389
+
+B. MEXICO CITY 2649 (IN 120669)
+
+1. ON 13 JULY 70, HQS ATTEMPTED CONTACT LIEMPTY/19 BY TELEPHONE WITHOUT SUCCESS. AT 1400 HRS 13 JUL 70 IDENTITY TELEPHONED THE WOBEONE DUTY OFFICER, USING TELEPHONE NUMBER SUPPLIED TO LIEMPTY/19, AND INFORMED US THAT LIEMPTY/19 WOULD BE EXPECTING A REPLY TO HER SPECIFIC REQUESTS (SEE PARA 2, REF A) VIA LETTER CARE OF THE NETHERLANDS EMBASSY, MEXICO CITY, D.F.
+
+2. REQUEST STATION CONTACT LIEMPTY/19 WITHOUT INVOLVING GERENDE AND INFORM HER HQS HAS CAREFULLY CONSIDERED HER REQUESTS OF PARA 2, REF A AND HAS FOLLOWING ANSWERS:
+
+A. WE CANNOT RELEASE HER FROM HER SIGNED SECRETY AGREEMENT.
+
+B. WE CANNOT CONSIDER AWARDING HER ADDITIONAL FINANCIAL BENEFITS BEYOND AMOUNT STATED IN TERMINATION AGREEMENT, WHICH SHE ACCEPTED.
+
+GERENDE CONTINUED - ADC on
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+SECRET
+
+SECRET
+
+BARry
+ADMINISTRATIN
+OFFICER
+
+COPY NO.
+
+REPRODUCTION ONLY OTHER THAN THE ISSUING OFFICE IS FORBIDGED.

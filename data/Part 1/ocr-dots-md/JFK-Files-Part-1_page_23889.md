@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_23889.png
+
+Convert to Markdownof Revolution I can do it in 48 hrs. Lots of people want Rev out of business. Question
+
+Question is where does Verges get the small sums necessary to keep going.
+He's paying at least 5 progris a day. plus the penultimate price.
+Deldueca printed No. 12. It is a high powered firm. What terms of agreement?
+
+13th issue has gone back to off-set press, the old printer. I don't know why.
+
+I should have spent more time in Paris. I don't want to overplay my hand.
+The last thing I should have done was recognize need to question people systematically.
+
+In Paris only important contact, Valdes, Spanish. Gave someone info
+on Span groups. Claimed they asked Cuba for money and got turned down.
+
+It is always someone else, like Pico or Sine or Jules.
+
+Verges always indirect. doesn't want to ask anybody for money-
+a cultural probably through Juan Areocha, press, attache, Paris, former sector of Carlos Franqui, editor of Rev. Areocha is very anti-Communist, hipped on persecution of homosexuals. Not necessarily one himself. Very interesting.
+
+SINE
+
+I did not see Franqui. I don't know where he is.
+
+I was getting enough info for personal needs. but didn't want to overdo it.
+I do need a better story to travel around on.
+
+Grippa generally was busy, lot of people around, obviously delegations,
+there was a calistrophe, from where I don't know. Something had happened. He is rather vague.
+
+Hard clash between Grippa and Verges came on question of money. After
+many months, Verges went to Brussels, talk ended abruptly. I said he went
+too far, laid down political line, etc. I rejected." But this came
+only after an exchange over the source of funds. Grippa asked
+nx Verges unless he was getting his money, and Verges got baffled.
+axs: Delegate general said Grippa didn't believe any of the stuff Verges
+said about me. Predisposed to oppose - Verges. Verges will not confide to anyone - even Andersson where the money comes from.
+Verges and Algerian money. Did he just say, just tell them, that he
+got the money from the Chinese? Did he get it from someone in Algeria
+but he is afraid of disclosing.
+
+He wouldn't tell the Chinese at Bern the source of his funds.
+Q: Verges debts total $30,000? A: Now he must have cleared away at least
+the big debt with the original French printer. I said 30,000,000 francs or
+about $60,000. Cashier confirmed that it was about that amount. Cashier
+and I and my wife worked out the estimate. I don't remember the breakdown.
+
+Minty Printing, photographs, paper, rent. We said between 30 and 40. (all loans)

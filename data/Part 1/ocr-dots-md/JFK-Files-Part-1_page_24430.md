@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_24430.png
+
+Convert to MarkdownThe Congress was officially sponsored by the Algerian Committee of Solidarity with Palestine.
+
+2. The participants, for the most part, espoused the Chinese those regarding the "People's War" and applied those theories to the Palestinian struggle. While not directly criticising the Soviet policies in the Middle East, it was evident in the Congress documents that the European militants sought to do so. For example, they strongly condemned the United Nations resolutions on the settlement of the Middle East conflict. The main conclusions of the Congress were: an acceptance of the Al Fatah as being the only genuine Palestinian revolutionary organization, and a decision to create an information bureau in Algiers which will be run by Palestinians. The bureau will provide information on developments in the Palestinian revolution to all the Palestinian committees throughout the world and to all revolutionary movements which support the Palestinian people. In conjunction with those Palestine committees, the Bureau will sponsor meetings, lectures, debates, film shows and an annual conference. (Source Comment: Abu el Hassen, a prominent leader of the Palestinian delegation, confided to one of the delegates after the Congress that the Palestine Liberation Organization (PLO) would probably sponsor a conference in Jordan sometime in 1970 or 1971.)
+
+ALL CARDS '77 - ALGERIA, ALGIERS & ATTENDED CONGRESS OF PALESTINE SOCIETY COMMITTEE ALGIERES, 26-28 APRIL 1977
+
+3. (Source Comment: In private conversations with some of the Algerian participant-observers, they were not altogether pleased with the Congress, feeling that its conclusions were excessively statistist. The chief spokesman for the Algerians was M'bambdi, a zid. who is the Algerian representative on the United Nations Security Council.)
+
+M 13 ABR 1977
+ALGERIA ALGINIA BLIDA (11-17 JI)
+DIPLOMAT
+MISSISSA, located about eleven miles from the Club des Pins, and were bused daily to the Congress site. The Algerian hosts saw to it that the delegates were kept busy and together. Strict security was maintained and the delegates had no chance to single with the Algerian people. There was no list of delegates and several of the participants used pseudonyms.
+
+5. The first session of the Congress on 26 December, which included the attendance of a large group of Algerians, was chaired by Larbi Bentoumi (Algerian). (Field Comment: TOCSI-B 315/05408-69, dated 31 December 1969, described Bentoumi as the Algerian defense lawyer in the recent trial in Switzerland of the three Palestinian terrorists charged with attacking an El Al Boeing 707 in Zurich in February 1969.) Most of the first session was devoted to assigning the delegates to the commissions and in arranging the timing of the various speakers, such as Yasif Arnaft, Al Fatah's official spokesman and chairman of the PLO. Upon the recommendation of a Palestinian representative, the Congress voted by a majority of 33 votes to create three commissions for the event. These were commonly known as follows: Political Commission, Information Commission and Organization Commission. (Source Comment: The Palestinians obviously had come to the Congress with only one immediate practical aim, i.e., to obtain left-wing acceptance of the creation of a Palestinian information bureau.)
+
+SEK M 163 C 28 PALESTINE
+C. O. ENGINEER
+A
+M 13
+
+6. At the beginning of the second day of the Algiers Congress, 27 December, Bentoumi ceded the chair to Nabil Massar of the PLO. For the rest of the Congress the Algerians played no active role, thus leaving the Palestinians with considerably less influence in the proceedings. The PLO MEMBER SECRETARY FOR FOREIGN DISSEMS CONTROLLED DISSEMINATION ABROAD/
+
+SECRET/NO FOREIGN DISSEM CONTROLLED DISSEMINATION ABROAD/

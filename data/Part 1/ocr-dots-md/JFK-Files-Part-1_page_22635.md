@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_22635.png
+
+Convert to Markdown15 March 1960
+
+MEMORANDUM FOR: FD/HAAS
+FROM : Chief, MID
+SUBJECT : Harold R. NOLMAYR (pc)
+Career Agent
+
+1. Harold R. NOLMAYR left Mexico City on 12 March 1960 with PC3 assignment at Headquarters. He arrived in Washington, D.C. on 12 March.
+
+2. It is requested that NOLMAYR's complete salary be deposited to his bank account.
+
+R.H. Dahlgren, C/M/3
+
+**Distributions:**
+
+Orig. & 2 - Addressee
+1 - WH/B&F
+1 - Hexi chrono
+~~1/2~~ - Subject
+
+Liege
+
+201-168881

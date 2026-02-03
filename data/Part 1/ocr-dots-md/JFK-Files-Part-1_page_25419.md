@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_25419.png
+
+Convert to MarkdownC-O-M-T-I-D-E-M-T-I-A-L
+
+(when filled in)
+
+DATE ____________ 27 May 1969
+
+MEMORANDUM TO : CHAIR, LOS ANGELES FIELD OFFICE
+ATTENTION :
+SUBJECT : AD HOC CLEARANCE
+REFERENCE : CASE 52872
+
+Security Division has granted ad hoc clearance thru
+SECRET IF HAC MUST BE COMPLETED BEFORE DATED APPROVAL CAN BE GRANTED
+on the following:
+
+BRIAN G. NO Donald
+
+Security checks will be completed.
+
+CC: Micolli
+
+VThorne:grw
+
+VIRGINIA L. THORNE
+Security Liaison Officer
+
+SECURITY MESSAGE #: 7260
+
+GROUP I.
+EXCLUDED FROM AUTOMATIC
+DOWING RADING AND DECLASSIFICATION
+
+C-O-M-T-I-D-E-M-T-I-A-L

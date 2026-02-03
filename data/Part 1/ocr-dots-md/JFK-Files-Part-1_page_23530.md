@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_23530.png
+
+Convert to Markdown12 May 1952
+
+PLANS
+VIA : Mr. Paul Paxton
+Chief, WHD
+
+Project HUMAHOID
+
+1. Please be advised that the following changes have been made in the designations of WHD projects active at the San Jose, Costa Rica Station.
+
+From
+
+HUMANOID-1
+HUMANOID-3
+HUMANEIST-2
+HUGGER
+
+To
+
+HUMANOID-1
+HUMANOID-2
+HUMANOID-3
+HUMANOID-4
+
+2. It has been requested that all expenses be paid from funds allotted to project HUMAHOID. This request has been acted upon favorably by the appropriate Headquarters office, and it is hoped that the changes indicated above meet with your approval.
+
+cc: BIC/SPB
+
+J. C. KING
+CWHD
+
+SECRET
+
+201-168 881

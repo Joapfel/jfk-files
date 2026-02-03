@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_23334.png
+
+Convert to MarkdownSECRET
+
+2
+
+5. Subject's spouse, a Costa Rican citizen, has expressed desire to acquire U. S. citizenship, and has now made the necessary arrangements to accompany her husband to the U. S. for this purpose, when Subject returns for Cover training at Headquarters in the very near future.
+
+6. Cover Security Approval, with an expellee Provisional Cover Security Approval, has been requested in connection with the recommendation to convert Subject from contract to staff status.
+
+J. C. KING
+Chief, Western Hemisphere Division
+
+Distribution:
+
+Orig. & 1 - Addressee
+1 - Cuba Chrono
+1 - VA IVADA File
+
+SECRET
+
+14-00000

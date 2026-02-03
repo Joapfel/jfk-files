@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_22860.png
+
+Convert to MarkdownSECRET
+
+American Student in China
+
+MARCH, William James
+CIT - U.S.A.
+Residence - Los Angeles
+Passport No. 218671 Issued 10/8/56
+
+File Check Results
+
+Photo attached
+
+1. William James MARCH was born on 8 May 1939 in Chicago, Illinois. His parents are Herbert MARCH and Jane V. MARCH. The subject attended a meeting of the Labor Youth League (LYL) in 1955, as a prospective member. In February and March 1957, he attended a meeting of the Los Angeles County LYL, and was also in attendance at a California State LYL Conference. Subject's mother was a member of the Central Section, Moranda Smith Division, Los Angeles County Communist Party in October 1955. (DFB-88466, 20 Aug. 1957)
+
+2. Information has been received that William James March left New York 8 June 1957, for Europe to attend the Youth Festival in Moscow during July and August, 1957. March's parents were listed as father Herbert MARCH, with aliases Herbert Fink and Harry Martin; and mother Jane V. March. (DFB-86867, 19 July 1957)
+
+3. William James March was issued Los Angeles Series Passport #218671 on 10/8/56. In his application for this passport, the subject stated he intended to depart from the United States on 12/5/56 for a proposed length of stay abroad of two months in order to visit France, Italy and West Germany for the purpose of visiting relatives and seeing Italy. Subject answered "no" to questions "Are you now a member of the Communist Party?" and "Have you ever been a member of the Communist Party?" (DFB-87370, 27 July 1957)
+
+WILLIAM S. MARCH
+10-4-56
+
+MARCH, William James

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_23005.png
+
+Convert to MarkdownSECRET
+
+9 December 1953
+
+MEMORANDUM FOR: STAFF C.
+ATTENTION: Mr. Thomas Ogden
+SUBJECT: Arthur G. VAIVADA (pseudo)
+
+It is requested that the proper clearance be granted for the use of subject, now on Project BIPADIAL, on Project SUCCESS. This will confirm telephone conversation between your office and WH/Personnel on 9 December 1953.
+
+SECRET
+
+14-0000

@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_25521.png
+
+Convert to MarkdownSECRET
+
+Paragraph 9 of Agent Service Record:
+
+**Security Risks:** GERENDE has known a number of Station officers in true name, although with the PCS departure of RIZZUTO the last of these will have left Mexico. (GERENDE's remaining contact will be Bruce H. FERNALD, whom he knows in alias.) GERENDE knows all agents currently associated with the LIEMPTY operation, as well as LIEMPTY-10 and -11, currently working with the LIEMBRACE team. He also knows LIEMBRACE-1, -2, and -4, and is, of course, aware of the objectives and methods of the LIEMPTY and LIEMBRACE operations. He knows that the Station has access to the entire LIMESA complex, although he does not know of the LIMUST operation. GERENDE knows the true names and JKLANCE status of Oliver G. SCANTLING, David N. WILSTED, and Raymond L. BARCENAS. He knows of the LIFEAT operation through his own former activities as well as those of his mother (LIFEUD-19) and his wife (LIEMPTY-19). The husbands of his two sisters work for the Station. One is LIEMPTY-4, who was handled by GERENDE, and the other is LIBAND-1, whose activity is not supposed to be known to GERENDE. In past years GERENDE was exposed to almost all phases of Station support activity. In recent years he has been more compartmented. GERENDE received five weeks of Headquarters covert training in 1957.
+
+SECRET

@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_26958.png
+
+Convert to MarkdownCONFIDENTIAL
+
+2 March 1967
+
+Director, Domestic Contact Service
+
+ATTH : John McConneall
+
+HDI-060-67
+Chief, Miami Field Office
+
+Mitchell L. Herdell A-1277900
+
+1. You will recall that John Gremley of the Office of General Counsel was in Miami for several days in connection with the Federal case pending against Mr. Herdell and was indicted on federal conspiracy charges, giving out of the abortive invasion attempt of Haiti a short time ago.
+
+2. Following the Indictment Herdell called us and indicated that he was to be interviewed on "nationwide TV through station WJJB-TV in Atlanta." He called Harry McCrea and asked him to monitor local coverage, and when he was to be interviewed on ABC-TV, 8:35 AM. He did not cover the NBC stations for a period of several days. Herdell did not appear on a national lineup, but Harry McCrea informed us that he did appear on a two-minute taped segment on the JCB-TV, 8:25 AM. He did not call on a nationalSources person. The rest are as follows:
+
+Harry McCrea said he would, if he could, "also a citizen's arrest of only. Herdell said he should, if he could," say so a citizen's arrest of Night Firehopper, John Henson, et al, because he did no more than they did." [Harry said that he didn't believe that the station took his statement seriously.]
+
+3. Herdell was also interviewed by "The Atlanta Constitution", and we are enclosing a shipping from the "Constitution" of 20 Feb 67 in which Herdell is quoted concerning the indictment.
+
+4. Would you please pass the above to John Gremley. You might inform him that the statement of an Designated Federal Officer in Miami undoubtedly refers to the Customs agent in charge, with whom Herdell had a conversation prior to calling us. Herdell quoted him in this same situation in our conversation. We have had no further contact with Herdell.
+
+JUSTIN P. GLICHAUF
+
+JIG: pv
+
+Enclosures:
+As stated
+
+CONFIDENTIAL
+
+E-12-79-007
+
+4.51
+
+<table><tr><td>1</td></tr></table>
+
+<table><tr><td>Designated Federal Officer in Charge</td></tr><tr><td>JG-1067</td></tr></table>

@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_25101.png
+
+Convert to Markdown<html><body><table><tr><td rowspan="5">14-0000</td><td colspan="2">TO<br/>Chief of Station, Mexico City</td><td>X</td><td>NO INDICATING REORDER<br/>ONLY QUALIFIED REORDER CAN BE GONE INDOOR</td></tr><tr><td>INFO</td><td colspan="3"></td></tr><tr><td>FROM</td><td colspan="3">Chief, SR via Chief, WH</td></tr><tr><td>SUBJECT</td><td colspan="3">REDWOOD SPR ON Valeriy Vladimirovich KOSTIKOV (201-30552)</td></tr><tr><td>ACTION REQUIRED REFERENCES</td><td colspan="3">ACTION REQUIRED: None for information only.<br/><br/>REFERENCE : HMB4A-25722, 2 April 1965</td></tr><tr><td colspan="4">Subject SPR typed in final form is forwarded herewith.</td></tr><tr><td colspan="4">John T. Ossenbrink</td></tr></table></body></html>

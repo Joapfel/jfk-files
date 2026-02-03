@@ -1,0 +1,56 @@
+# JFK-Files-Part-1_page_26178.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+NO FOREIGN DISEASE
+
+8
+
+CS 3/525-084 17 Oct.62 B-2
+"plans to write a political biography of Castro." Left Mexico on
+2 Oct. 62 with Mexican passport 5115 with Cuban courtesy visa.
+spent 2 months there.
+
+*See p. 6.*
+
+CONF
+
+A 1291. 9 Apr 63
+
+In 20 Mar issue of *Siempre* he "advocated the creation of a new political party which would reflect the ideology of Former President Lázaro Cárdenas..."(bio: he is a founding member of the pro-Communist MLN and an ardent supporter of Castro. While in Cuba (Oct-Nov 62) he contributed weekly articles to *Siempre* in which he sustained the thesis that Cuba is now the center of the world's socialist revolutionary movement. The Left in Mexico needs a "party of L. Cardenas" which...would stand for socialism in internal matters and for independence from any bloc in external affairs.)
+
+B/NF
+
+CS 3/552-990 10 July 63
+To Cuba 25 May-22 June 63; spent 8 days with Castro
+
+UNCL
+
+A-6 Merida, 6 Aug. 63
+
+On 1 August attended the Pro-Castro Mexican-Cuban Institute in Verida accompanied by Luis Alhacu the Counselor for Cultural Affairs at the Cuban Embassy.
+
+8
+
+CS 3/558-382 B-2 6 Sep 63
+
+Rico, along with Marcue Pardinas and Carrion Villa was one of the principal organizers and participants in a rally in favor of the political prisoners held in Mexico City on 18 August 63. The rally failed to be held because of police intervention. All arrested and released same day. On evening of 21 August theydezaid, unsuccessfully, to see Diaz Ordaz, then Minister of Interior.
+
+G/NF
+
+CS 3/560-130 25 Sep 63 B-2
+"Rico planning trip to Guatemala" plans to interview Col. Zariaga PERALTA Azurdia, Chief of Guatemalan Government, also visit Guatemalan guerrillas.
+
+UNCL
+
+A-451 '24 Oct 63
+Still on MLN National Committee.
+
+S/NF
+
+TDCS 3/565-337 20 Nov 63 B-2
+Interviewed YON Sosa in mid-October 63; listed as head of propaganda committee for MLN. TDCS 3/563-671 "reported that Rico had spent 8 days in Cuba with Castro and...was given an assignment to visit countries in Central and South America (Venezuela, Costa Rica, Panama, Guatemala and Brazil) when he was to persuade Leftist parties to begin immediate acts of sabotage and violence to take the pressure off Venezuela."
+
+S-E-C-R-E-T
+
+NO FOREIGN DISEASE

@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_23001.png
+
+Convert to MarkdownSECRET
+
+27 April 1954
+
+MEMORANDUM FOR: STC/SFB
+ATTENTION : Mr. Maurice Brady
+SUBJECT : Clearance for Arthur G. VALVADA (Ps) - PBSUCCESS
+
+Confirming conversation on 26 April 1954 between Mr. Erady and Mr. Salerno, PBSUCCESS, it is requested that Operational Clearance No. 68, dated 19 July 1949, granted to Subject under Project ZIRADIAL, now be amended and brought up to date for Subject's use on Project PBSUCCESS. In addition, it is further requested that the clearance issued be so amended as to also reflect Subject's additional duties as cutout on Project ESCROW.
+
+J. C. KING
+CWH
+
+SECRET

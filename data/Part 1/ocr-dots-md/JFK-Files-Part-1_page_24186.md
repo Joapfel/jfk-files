@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_24186.png
+
+at Harvard University for
+the past four years. Professor GALBRAITH said he highly
+recommends the applicant as to character, reputation and
+loyalty. He further stated the applicant is a first-rate
+person, very superior, intelligent, and well qualified for
+the position she seeks. Professor GALBRAITH stated he is
+aware of the position the applicant seeks in view of the
+fact that he recommended her for this position.
+
+Professor GALBRAITH was investigated in 1950 as "JOHN KENNETH GALBRAITH, also known as J. KENNETH GALBRAITH, KENNETH GALBRAITH, Consultant-Appointee, Commodities Division, Office of the Director, Office of Industry and Commerce, United States Department of Commerce, Washington, D.C., - LOYALTY OF GOVERNMENT EMPLOYEES" under the provisions of Executive Order 9835. On March 2, 1951, the Civil Service Commission advised that JOHN KENNETH GALBRAITH resigned or otherwise separated from Federal service prior to decision on loyalty.

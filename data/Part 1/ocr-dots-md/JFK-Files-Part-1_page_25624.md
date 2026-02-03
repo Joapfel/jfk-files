@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_25624.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td colspan="2">SECTION VI<br>OPERATIONAL USE - CONTACT</td></tr><tr><td>I. IF SUBJECT WAS BEEN USED OR CONTACTED BEFORE, INDICATE ACTIVITY IN WHICH HE WAS ENGAGED AND THE TYPE OF INFORMATION WE OBTAINED.<br>In 1960 Subject was utilized by the Mexico City Station to assist in the coordination of anti-Castro activities as part of the MX AMWAIL operation. Subject was rated a reliable source by the Mexico City Station.</td><td></td></tr><tr><td>II. INDICATE HOW AND FROM WHERE SUBJECT OBTAINS INFORMATION.<br>NA</td><td></td></tr><tr><td>III. INDICATE WHAT HAS BEEN TOLD SUBJECT AS TO THE DISPOSITION OF INFORMATION WE FURNISHED.<br>NA</td><td></td></tr><tr><td>IV. DETAIL SUBJECT'S PROPOSED FI OR CL TYPE USE OR DUTIES.<br>Subject is used by the Bogota Station to provide cover for status and funds for an operation handled by Errol R. Lythgoe who is Subject's nominal partner in the enterprise.</td><td></td></tr><tr><td>V. DETAIL SUBJECT'S PROPOSED PP-FM TYPE USE OR DUTIES.<br>NA</td><td></td></tr><tr><td colspan="2">SECTION VII<br>PROPOSED LIAISON OR OPERATIONAL ACTIVITY</td></tr><tr><td colspan="2">I. DETAIL SUBJECT'S PROPOSED LIAISON TYPE CONTACT OR OPERATIONAL USE:<br>A. WHERE SUBJECT IS AN OFFICIAL MEMBER OF A FOREIGN GOVERNMENT?<br>NA</td></tr><tr><td colspan="2">B. WHERE SUBJECT IS AN OFFICIAL OF ANOTHER AGENCY OF THIS GOVERNMENT?<br>NA *</td></tr><tr><td colspan="2">SECTION VIII<br>AGENCY RELATIONSHIP WITH SUBJECT</td></tr><tr><td colspan="2">I. EXPLAIN NATURE OF AGENCY RELATIONSHIP WITH SUBJECT, I.E. TRAINEE, OPPOSITE NUMBER, REMOVALATION, IF ANY; AGENCY PERSONNEL KNOWN TO SUBJECT.<br>Subject is an unpaid field agent of JKLANCE.</td></tr></table>
+
+3
+SECRET

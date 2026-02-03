@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_22901.png
+
+Convert to MarkdownCONFIDENTIAL
+
+BARNES, Winfred Clark
+
+11 January 1967
+
+#496 289
+
+On 14 January 1967 a passport file of Winfred Clark BARNES was reviewed at the Passport Office, Department of State. The following is a summary of the information contained therein:
+
+**Date of Birth:** 1 May 1912 at Gatesville, Texas; verified by birth certificate
+
+**Father:** Shaw Andrew BARNES; Date of Birth: 8 May 1882 at Kennedy, Texas; current residence not given.
+
+**Mother:** Velma Elizabeth HARRIS; Date of Birth: 8 March 1888 at Thelma, Texas; current residence not given.
+
+**PASSPORT ISSUED:** At Miami, Florida on 27 January 1966, #G755310, for a period of four weeks to visit Mexico, Guatemala, Costa Rica, Peru, Columbia, Venezuela, Argentina, and Brazil for the purpose of tourism.
+Permanent address: 5350 Southwest 76th Street
+Miami, Florida
+Mailing address: International Petroleum Company, Ltd
+396 Alhambra Circle
+Coral Gables, Florida
+Occupation: Director
+Spouse: Lois Enquist BARNES; Date of Birth: 8 March 1915 at New Haven, Connecticut; current residence not given; Wed: 17 February 1945; no information on whether or not marriage has been terminated.
+
+**PASSPORT ISSUED:** At Miami, Florida on 27 February 1961, #B10831, for a period of varying from one day to three weeks to visit Bermuda, Bahamas, Jamaica, Trinidad, British Guiana, Guadeloupe, Barbados and Suriname for the purpose of business.
+
+**RENEWED:** At Miami, Florida on 12 May 1964, for a period of ten days to visit Peru, Columbia, and other South American countries for the purpose of business.
+
+**SUBJECT'S FIRST PASSPORT** was issued at Washington, D. C. on 21 February 1957, #328617, for a period of indefinite time, to visit Bermuda, Bahamas, Haiti, Trinidad, Jamaica, Honduras, El Salvador, Costa Rica, Panama, Nicaragua,
+
+'CONFIDENTIAL'

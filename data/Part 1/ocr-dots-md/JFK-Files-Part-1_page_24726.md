@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_24726.png
+
+Convert to Markdown4600
+
+a. Aeroe J.A.M., Prudhoe, Alaska. Registration No. 82664
+Born in January.
+Post address: Sitka, Alaska 190-2, June.... Current address:
+Incorporated [Corporate]
+Company name: Aeroe Products Corporation
+His police record of record in Federal or State is as follows: "G.U.P.C."

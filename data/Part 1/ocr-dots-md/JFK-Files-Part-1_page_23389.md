@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_23389.png
+
+Convert to MarkdownVIA: Air
+(SPECIFY AIR OR SEA POMO)
+
+SPATCH NO.
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TRSA-955
+
+TO : Chief, WHD
+
+FROM : Chief of Station, San José
+
+DATE: 31 July 1951
+
+SUBJECT: GENERAL— Operations
+
+SPECIFIC— Humanoid
+
+Ref: Memorandum given writer by Zachary T. Cady in Panama
+
+1. Humanoid advised that his mother-in-law, Sra. Dora Calderon de CORDERO, has no relationship with the family of former President Rafael Angel CALDERON Guardia. Humanoid advised that his mother-in-law was friendly with the CALDERON family years ago, but has had no contact with any of the family or the Calderonista Party since the revolution. This woman immigrated to Costa Rica as Dora INIKEN from Europe, and as it is customary for immigrants and illegitimate children to take upon themselves the name of the President, Dora INIKEN changed her name to CALDERON. Humanoid stated that she has no political connections whatsoever and is sympathetic to whatever administration is in power at the time. The information in the referenced memorandum was originally written by Humanoid three years ago and has no application to the present.
+
+2. Regarding Humanoid's associates, Sr. and Sra. Miguel CORRALES, Humanoid stated that he has not seen CORRALES for over a year since CORRALES is in Guanacaste Province. It is true that CORRALES was a Figuerista during the revolution, but he is no longer sympathetic with FIGUERES.
+
+3. Humanoid's intelligence activities are known to his wife, who has been of assistance to him in said activities on various occasions. However, Humanoid stated that his mother-in-law has no knowledge of these activities.
+
+Eugene T. Roddy
+
+FORM NO.
+MAR. 1949 51-28A
+
+<table><tr><td>IR COPY</td></tr><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>

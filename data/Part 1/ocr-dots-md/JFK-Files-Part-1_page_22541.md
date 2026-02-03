@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_22541.png
+
+Convert to MarkdownSECRET-ENCS ONLY
+
+The station cabled headquarters on 4 March:
+
+ ". . . if opportunity support pro-US group not to be lost,
+ believe . . . imperative make sure arms with ammo ready for
+ immediate entry DomRep . . . if necessary at air drop sites . . .
+
+5 March 1961
+
+As a follow-up to that cable, the station cabled a communication
+from Dr. Severo Cabral: "We have in our hands chance to speedup
+events. Everything is being planned perfectly. Results may be
+assured as much as human fallibility permits. . . . . ."
+
+7 March 1961
+
+Headquarters cabled the field, in part:
+
+"Existing authorization precludes introduction arms into Dom Rep by U.S. personnel. Order prepare contingency plans for possible alternate delivery method, request station determine additional drop zones and confirm those mentioned . . . . . Request type and quantity arms desired. . . . . ."
+
+8 March 1961
+
+Cable from the station:
+
+"Brossa told Dearborn on 7 March that Dr. Severo Cabral and group plan try kill Trujillo by [intercepting his car] at point near [Wimpy's Supermarket]. Date not set and obviously depends on Trujillo travel . . . Severo Cabral not aware Brossa has told us but interesting that Charge' Papal Nunciatura also aware plot exists but possibly not of personnel involved."

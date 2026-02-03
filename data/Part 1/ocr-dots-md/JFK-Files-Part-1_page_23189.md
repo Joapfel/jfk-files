@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_23189.png
+
+Convert to Markdown14-00000
+
+MI COPY
+
+HRM-825
+201-S2723
+Page two
+
+working on polling studies for the Public Surveys Institute of Dallas, Texas which employs him at present.
+
+5. Subject is 6'1" tall, slender built, athletic (1954 Guatemala national record in discus, track, high and broad jump, etc); is a pistol expert; has some experience as a radio operator; is an accomplished photographer and has designed and directed a photographic laboratory in Costa Rica.
+
+6. Subject speaks and reads Spanish fluently and except for his height and angle Sasan appearance could pass as a native of Latin American countries. Subject because a Catholic convert shortly after his marriage.
+
+7. Subject's wife was educated at the Liceo de Seroritas in San Jean, C.R., and has travelled extensively. Her father was born in Cuba, attended the Spanish Military Academy and served in Spanish Morocco. In 1933/34 he was involved in Cuban politics and was forced to take refuge in Costa Rica, where he resided until his death in 1939. Her mother, who resides with Subject's family, retains an interest in Costa Rican and Cuban political affairs but takes no active part in politics.
+
+8. A copy of a 1948 photograph of Subject is attached. Further information is contained in reference, forwarded under separate pouch.
+
+9. The information given above is based on a PHOTO and a FBI compiled by Subject respectively in 1948 and 1956 and on observations made by HUBBARD officers who have been acquainted with him.
+
+WH/III/Mexico/ASpera:jck
+
+R. N. DAHIGREN, CAPTAIN
+
+COORDINATED WITH:
+WB/Carib E. Keyworth
+WH/Personnel DC Bureau
+
+201-168881

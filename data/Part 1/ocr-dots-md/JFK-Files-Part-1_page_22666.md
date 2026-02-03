@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_22666.png
+
+Convert to Markdown14-00000
+
+<table><thead><tr><th>CLASSIFICATION</th><th>DISPATCH STAB. AND NO.</th></tr></thead><tbody><tr><td>SECRET/JOAKIN</td><td>HEM-4-12611 - KARL-1955</td></tr><tr><td>TO<br/>INFO</td><td>HEADQUARTERS, LIE NO<br/>50-6-67/2</td></tr><tr><td>FROM<br/>Subject: Chief of Station, Mexico City</td><td>DATE<br/>10 April 1959</td></tr><tr><td>ACTION REQUIRED<br/>See para 3</td><td colspan="2">RE: "43-2" -- (CHECK "X" ONE)<table><tbody><tr><td>MARKED FOR INDEXING</td></tr><tr><td>NO INDEXING REQUIRED</td></tr><tr><td>INDEXING CAN BE JUDGED BY QUALIFIED HQ. DESK ONLY</td></tr></tbody></table></td></tr><tr><td colspan="3"><strong>REFERENCE(S)</strong><br/>1. HEH-4-6-20, dated 11 June 1958<br/>2. HEH-4-7-302, dated 13 February 1959<br/>3. HEH-4-7-407, dated 6 March 1959</td></tr></tbody></table>
+
+1. Attached is a cover review of the notional cover under which Harold E. NORMAN, the principal component for Project LIONEER, has been operating. This analysis was mainly written by NORMAN, himself, with additions made by the Station. It is requested that this review be sent to Cover Division for their study.
+
+2. The following constitute the basis for which the Station is requesting that Project LIONEER be renewed for the period 1 May 1959 through 30 April 1960:
+
+a. As this is a support project for the maintenance of Harold E. NORMAN, an outside case officer whose responsibilities comprise the running of operations currently in progress against the Communist movement in Mexico, there is no direct product derived other than that obtained from projects LIONEER, LDAD and LIFETE.
+
+b. As of 1 January 1959, Project LIONEER was transferred to a case officer under official cover at the Station, and must, therefore, not be included as one of the operations under the direction of NORMAN.
+
+c. NORMAN has continued to manage operations under his control very satisfactorily and fully justifies the expenditure of NORMAN personnel, time, funds and the security risk involved. (For production specifies, consult reviews for projects LIONEER, LIFETE and LDAD.)
+
+d. Operations under jurisdiction of this Project are the primary projects possessed by the Station against the Communist movement and are based on Priority A requirements of the Station's Related Mission Directive.
+
+e. This Project has continued to satisfy those requirements necessary to maintain an outside case officer under the Communist penetration program.
+
+f. There is no change anticipated in operational planning for the future of this Project, nor are there any changes believed necessary in line with altered political or operational conditions or any other changing situations.
+
+g. During the period under review (1 May 1959 - 30 April 1959) funds obligated total U. S. $22,270. It is requested that the same obligation be made for the period 1 May 1959 - 30 April 1960.
+
+h. All commitments are contained in the contract for Harold E. NORMAN and in the oral agreements with subagents LIVERBY-1 and LIFETE-1.
+
+i. LIVERBY-1 continues to serve as cutout for LDAD-1, a high-level penetration of the Partido Popular (PP) and the Union General de Obreros-Caseros Mexicanos (UGOCN), but changes are anticipated in this status. Since LIFETE-1's recruitment by LIVERBY-1 on 15 August 1957, LDAD-1 has been handled by LIVERBY-1 in a loosely-controlled manner. LDAD-1 still does not submit sensitive info on his organizations nor does he know that he is receiving funds monthly from an agency of OTHER. NORMAN is currently attempting to obtain a direct interview with LDAD-1 - as arranged with LIVERBY-1 - in order to either establish direct control of the agent or, on the negative side, to determine if LDAD-1 should be

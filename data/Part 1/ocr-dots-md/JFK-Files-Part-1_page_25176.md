@@ -1,0 +1,327 @@
+# JFK-Files-Part-1_page_25176.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+Source: AENIGWAG/2
+Date acquired: September 1966
+
+Daniel PRIOLLET, Agence France Presse
+
+This is a very nice bachelor, who recently arrived in Moscow. Source warned him against taking on Jean RAFAELLI's Soviet girl-friend Olga Lnu, which he has not done. He has a girl friend, Gerda Lnu, who works as a secretary at the West German Embassy. Source has absolutely nothing against this girl, but she refugee out to West Germany from East Germany and still has relatives there. She is unmarried, attractive, and goes out with a lot of Americans (unspecified). SECRET
+
+15 SEP 1966
+
+15 SEP 1966
+
+SECREI
+15 SEP 1966
+
+15 SEP 1966
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+15 SEP 1966
+
+SECRET
+
+1

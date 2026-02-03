@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_23808.png
+
+Convert to Markdown# Asian-African Journalists’ Association
+## (Persanian Wartawan Asia - Afrika)
+
+Press House — Djakarta
+
+Telp. 61749
+
+RE/MAX
+
+REGISTERED
+
+No.:
+
+Djakarta, March 13th 1964
+
+Richard Gibson,
+Editor-in-Chief,
+REVOLUTION
+Paris.
+
+Dear Colleague,
+
+We have received the various copies of REVOLUTION, which we heartily thank you for.
+
+Your letter was very encouraging, and we have noted the contents.
+We share your ideals, and are thoroughly convinced that our struggle
+against the forces of reaction will still further advance, and
+triumph.
+
+We will bear in mind your request for articles etc., and will
+do all in our efforts to help.
+
+REVOLUTION plays an important part in our revolutionary
+struggle against imperialism and colonialism in all its forms and
+manifestations, and as such we would like to help in the further
+distribution of REVOLUTION. We are widely distributing it in Indo-
+nesia, and hope to do the same in South East Asia as well. In addition,
+because of the foreign exchange problem, we will rather give you
+names of other interested persons outside Indonesia to whom you can
+send sample copies. Or we could do that if you so desire. Please
+let us know! A little note to the effect that we will distribute
+and wherever possible in South East collect articles for you, in
+REVOLUTION will be welcomed and facilitate matters.
+
+We are printing initially 6.000 English copies of the 'the Afro-Asian Journalist', and hope to have an extra 4.000 in French ready soon.
+
+We will dispatch 50 copies of 'the Afro-Asian Journalist' to you, under separate number immediately -(one we will send airmail). If you would like more please do not hesitate to contact us.
+
+Can you also send us some more French copies of REVOLUTION, if possible, as well as some posters.
+
+Dear Colleague, our struggle is gairing momentum and the forces of reaction manifested in colonialism and imperialism in all its forms and manifestations are on the retreat. Our very close co-operation will further help in destroying colonialism and imperialism, which is the curse of all mankind.
+
+/We look .....

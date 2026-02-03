@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_26733.png
+
+Convert to MarkdownKeel 72-KICO-26
+
+2 May 1965
+
+13.2 contd.
+
+VKG takes the phone, but gets no reply.
+
+13.2 In. Operator says that VKG talked 7 minutes to Cuba.
+
+13.5 In. Operator asks Sra. Diener (v), who answers, for VKG.
+VKG takes the phone. Call goes through. Fundora asks if
+there is anything new. No, not yet, but expects to have something in
+about an hour - between 1130 and 1200. All right.
+
+14.0 In. Cordero with VKG, who answers. VKG finally talked to Hata na. Cordero talked to Juan Pedro Domingo and C. gave him VKG's phone. He will phone VKG. Fine. C. has the notes written down. Can read them to VKG. Call back in 5 minutes so VKG can have paper and pencil.
+
+14.2 In. Cordero with VKG, who answers. C. tells VKG to put his recorder on to take note of what was said. VKG was doing that. C. says: At 0915 Juan B. Mejia, member of Provisional Executive Central Committee of the Political Group 14 de Julio called Cordero from Santo Domingo and informed the following:
+
+The Yankees are bombing and machine gunning the city. (VKG asks if they are bombing with airplanes. He did not tell C.) Could be artillary, perhaps naval. They have launched their tanks and marines against the people. A revolutionary order reigns in the entire city. Yesterday, 1 May, the Yankees opened some stores in the downtown and called the people to back them. The people refused to do so. They then looked for prostitutes and filmed them sacking the stores. The interest is to show to international public opinion that chaos reigns in the country to be able to justify their open-faced and unjustified military intervention. That is, the people refused to enter into this propaganda because they had the cameras ready. They only got prostitutes and trash like that. They will publish this in the newspapers. The armed people are willing to resist the Yankee invasion and to conserve their sovereignty and independence. The struggle between the U.S. forces and constitutionalists has ceased. All the forces of people are concentrating in fighting the Yankee invader. There is a need to awaken the Mexican public opinion. NO wants VKG to help him in this. Of course. So, they (Mexicans) can send cables, etc. to United Nations for their tomorrow meeting on the Dominican Republic. They want pressure so that the United Nations and not the O.A.A. which combat the intervention. The combat with the Yankees is violent in different sectors of the city. The transmission sent out yesterday and today from Radio Habana mention him (Mejia) as member of the group did him a lot of damage. The reaction in Santo Domingo has been taken to point up and to be used as a Communist factor of their fight - as a result of the broadcast of Radio Habana. Mejia told C. that he was going to call VKG to clarify this with VKG because this is very delicate. VKG will communicate this right now to radio Habana. Mejia further said: They should stop making such indications, like, Juan H. Mejia of 14 de Julio says... The Radio Habana said that this was an interview (of Mejia) with VKG. Another point - Should deny that they have a hideout in the mountains as informed by Radio Habana. This does a lot of damage. NO told Mejia about Bosch's conv - about the U.S. wanting Dominican rep. in Pideonia.
+
+Keel 72-KICO-26
+
+-3/-

@@ -1,0 +1,61 @@
+# JFK-Files-Part-1_page_25303.png
+
+Convert to MarkdownSECRET
+
+LARDN, Nikolay Demyanovich - chauffeur
+wife: Praskovya Artyaeva
+son: Aleksandr
+daughter: Kamo unknown
+
+LEONOV, Nikolay Sergeyevich - Secretary to Ambassador
+wife: Valeriya Ivanova
+
+MAKOWSKYI, Vladimir Sergeyevich - Military Attaché
+wife: Sofia MAKOEVICA
+sons: Arkadiy and Aleksandr
+
+MASTUKETVICH, Vladimirily Mlyakovich - Second Secretary
+wife: Lyudmila Kirillovna
+son: Alekseev
+
+MATVEEV, Albert Alekseyovich - (employee - attaché?)
+wife: Yelisaveta Zakharovna
+daughter: Yelona MATVEYEVA
+
+MAIEVSKII, Aleksev Danilovich - Art. Commercial Officer
+wife: Zoya Ivanovna
+son: Viktor and Vladimir
+
+KIRYANOV, Vasilii Vasilyevich - Guard/chamferer
+wife: Elizaveta Semenovna
+son: Yevgeniy KIRYANOVNA
+
+HASEDKIN, Dmitry Pavlovich - Guard/chamfeur
+wife: Lidiya Origaevna
+son: Boris (not believed to be real) HASEDKINA
+
+KUROV, Anatoliy Ivanovich - employee, Military Attaché office
+wife: Yevgeniya NAUMOVA
+
+MEXIPRETS, Origiņ Kornayevich - Naval Attaché
+wife: Marija Antonovna
+son: Viktor
+
+PANOV, Vladimir Mikhayliovich - employee, Commercial Office
+wife: Lyudmila Vasilievna
+son: Tatyanina PANOVA
+
+POPOV, Ievgeniy Mikhaylevich - Third Secretary
+wife: Vera Dmitriyevna POLICHA
+son: Ievgeniy
+
+PUKALIN, Boris - employee
+wife: Margarita PATILINA
+
+EDB-A-4533
+
+Page 3.
+
+SECRET
+
+SC-4-1-282

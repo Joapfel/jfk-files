@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_23183.png
+
+Convert to Markdown<table><tr><td>C-0-X-7-I-D-E-N-T-I-A-Y</td></tr></table>
+
+Psychiatrists Conducting Research with Animals
+
+REPORT NO. CO-K 323/66853-69
+
+DATE DIST. 3 APR 1969
+
+NO. PAGES 1
+
+REFERENCES CIRL C-DCB-53741
+(2356) D-7AX-40009
+
+OF INFO. 8 Mar 69 and earlier
+
+AS A DATE ACQ. havana/8 Mar 69 and earlier
+
+THIS IS UNEVALUATED INFORMATION
+
+Cuban national, A 17 999 372, who arrived in the US on 10 Mar 69. Source is a graduate psychiatrist who was on the staff of various hospitals, among them Mazorra Hospital for Mental Diseases from 1961 until 8 Mar 69.
+
+[This report was developed by an representative assigned to the office of preparation.]
+
+1. Medical colleagues of mine have told me that there is a home near the Colon Cemetery in Alturas del Vedado Suburb, Havana, which has been converted into a research laboratory called Instituto de Investigaciones de Actividad Nerviosa Superior [Institute for the Research of Superior Nervous Activity.] /ANIO
+
+2. Dr. Jose Angel Bustamante, a well known psychiatrist in Havana, another psychiatrist, Dr. Roselio, and some Sovbloc psychiatrists conduct research work and experiments there with animals, especially dogs, according to my colleagues. They report that these psychiatrists follow the Pavlovian theory in the "physiology of the nervous".
+
+3. They also told me that Dr. Jose Angel Bustamante has for several years conducted, or supervised, interrogations of political prisoners at G-2 headquarters in Havana, using the narcohypnosis (sic) method, popularly called "brain washing".
+
+4. Dr. Bustamante has been considered a card-carrying Communist long before Castro came to power. I can not vouch for the veracity of this, because I have not known him that well. However, I have heard it said repeatedly.
+
+-end-
+
+<table><tr><td>C-0-X-7-I-D-E-N-T-I-A-Y</td></tr></table>

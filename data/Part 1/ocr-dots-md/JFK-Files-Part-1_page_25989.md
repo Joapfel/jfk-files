@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_25989.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td colspan="2">PERSONAL RECORD QUESTIONNAIRE<br/>PART II - OPERATIONAL INFORMATION</td><td>PRO NO:</td></tr><tr><td colspan="3"><b>INSTRUCTIONS TO CASE OFFICER</b></td></tr><tr><td colspan="3">1. This form must be filled in by the case officer or appropriate authority on the basis of the best available information. It is not to be shown to the subject.</td></tr><tr><td colspan="3">2. Normally, headquarters will be unable to issue an approval unless requestor furnishes answers to all questions in PRO parts I and II. However, in an emergency provisional approval may be obtained by complying with the applicable provisions of PR 10-215, paragraphs 6a, 8, 12b and 12d. Thereafter the usual method to document or complete the case must be followed as set forth in PR 10-215.</td></tr><tr><td colspan="3">3. Three (3) completed copies of PRO part I (including copy in subject's handwriting, if possible) and two (2) completed copies of this form must be sent to headquarters as soon as possible.</td></tr><tr><td colspan="3">4. Data acquired later must be sent to headquarters in PRO format in two (2) copies.</td></tr><tr><td colspan="3">5. Fill in all items, if information obtainable. If item not applicable write "NA" if additional space required for item, and reverse side of page used to appropriate item number.</td></tr><tr><td>1. CRYPTO NYM</td><td colspan="2"></td></tr><tr><td colspan="3"><b>SECTION I</b><br/>CONTACT AND DEVELOPMENT</td></tr><tr><td colspan="3">1. INDICATE HOW, WHEN, WHERE, WHY, AND BY WHOM SUBJECT WAS FIRST CONTACTED OR DEVELOPED.<br/><i>(One revision in Pro Part II, PMA-23380, dated 20 September 1985)</i></td></tr><tr><td colspan="3">2. INDICATE WHETHER SUBJECT COULD BE TURNED OVER QUICKLY AND IN A SECURE MANNER TO ANY RESPONSIBLE CASE OFFICER FOR HANDLING. IF SO, INDICATE TO WHOM.<br/><i>(Subject could be turned over to any responsible case officer.)</i></td></tr><tr><td colspan="3">3. LIST OTHER CASE OFFICERS WHO HAVE HANDLED SUBJECT OR WHOM HE KNOWS OR HAS KNOWN, GIVE NAMES BY WHICH THEY MAY BEEN KNOWN.</td></tr></table>
+
+FORM 11-28 1050a complete previous editions
+
+1 SECRET
+
+(4-20)

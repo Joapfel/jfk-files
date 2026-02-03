@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_24429.png
+
+Convert to MarkdownFIELD INFORMATION REPORT
+
+NO FOREIGN DISSEM/CONTROLLED DISSEM/NO DISSEM AROUND/
+
+THIS IS AN INFORMATION REPORT. NOT FINALY EVALUATED INTENDED FOR USE ONLY
+REPORT NO. CK OEP-737
+DATE DISTR. 23 January 1970
+
+SECRET
+
+**COUNTRY** International/Algeria
+**DATE** 26 - 28 December 1969
+**SUBJECT** First international Congress of Palestine Solidarity Committees in Algiers, 26 - 28 December 1969
+**ACG** (16 January 1970)
+**SOURCE** Radical European who attended the Congress. His reporting has been generally reliable.
+
+**Summary:** The First International Congress of Palestine Solidarity Committees in Algiers was sponsored by the Algerian Committee of Solidarity with Palestine. About 200 delegates, most of whom were Western European pro-Chinese militants, attended the event. In the proceedings of the Congress these militants sought to apply the Chinese theories of the "People's War" to the Palestinian struggle. The Congress firmly backed the notion that Al Patah and the Palestine Liberation Organization (PLO) were one and the same body with Al Patah acting as the vanguard body for bringing about unity among all Palestine commando/liberation organizations. A major decision of the Congress was the acceptance of a Palestinian proposal to create an information bureau in Algiers. The Algerians claimed that fifteen countries were represented. There was no list of delegates and the Algerian hosts went out of their way to assure anonymity among the participants.
+**End Summary.**
+
+1. The Premier Congress International des Comites "Palestine" (First International Congress of Palestine Solidarity Comittess) was held at the Club des Pins conference site ten miles outside of Algiers from 26 to 28 December 1969. It was attended largely by pro-Chinese militants from Western Europe. The total number of delegates was 188 -- 148 foreign, 20 Palestinian and 20 Algerian. The French delegation was the largest one present and the most divided into various factions.
+
+SECRET/NO FOREIGN DISSEM/CONTROLLED DISSEM/NO DISSEM AROUND/
+BACKGROUND USE ONLY
+
+<table><tr><td>DISTRIBUTION</td></tr><tr><td>NONE</td></tr></table>

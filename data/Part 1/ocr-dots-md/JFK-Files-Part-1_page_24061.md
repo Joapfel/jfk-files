@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_24061.png
+
+Convert to Markdown14-00000
+
+NEGRO PRESS INTERNATIONAL, INC.
+
+5708 S. STATE
+CHICAGO, IL. 60621
+
+DANIEL J. GORDON
+
+DAY TO THE ORDER OF
+
+American National Bank
+and Trust Company of Chicago
+
+⑈CC1373⑈ ⑆0710⑉0077⑆ 139028⑈
+
+2166
+
+2-37 / 715
+
+DANIEL J. GORDON
+
+DAY TO THE ORDER OF
+
+American National Bank
+and Trust Company of Chicago
+
+⑈CC1128⑈ ⑆0710⑉0077⑆ 139035⑈
+
+1155
+
+500715
+
+4-26 9.67 2.77 -35
+
+DANIEL J. GORDON
+
+DAY TO THE ORDER OF
+
+Two Hundred and 9/16ths
+
+American National Bank
+and Trust Company of Chicago
+
+⑈CC030⑈⑈0000⑈

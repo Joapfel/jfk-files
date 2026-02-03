@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_24028.png
+
+Convert to Markdown14-0000
+
+<table><thead><tr><th></th><th></th><th>CLASSIFIED MESSAGE</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td>INDEX ☐ YES ☑ NO</td><td colspan="3"></td></tr><tr><td>CLASSIFY TO FILE NO</td><td colspan="3">E-517-3862</td></tr><tr><td>1-REF TO FILE NO</td><td colspan="3"></td></tr><tr><td>PLE RIG ☑ RET TO BRANCH ☐</td><td colspan="3">WTC</td></tr><tr><td>DESTROY ☐ S.G.</td><td colspan="3"></td></tr><tr><td>FROM PARIS (COPY)</td><td colspan="3"></td></tr><tr><td>ACTION CA/04</td><td colspan="3"></td></tr><tr><td>INFO VR. FILE CA2, WTC 6, E-126, FL, C1, COPY PROOF</td><td colspan="3"></td></tr><tr><td>R D04, D04H5, c1/c2</td><td colspan="3"></td></tr><tr><td>I SECRET 151646Z</td><td colspan="3"></td></tr><tr><td>C DIR INFO LOND PARI BRUS CITE PALP 3073 (CILIBERTY AG) P DORIC QKOPERA LCHARVEST KUDESK</td><td colspan="3"></td></tr><tr><td>REF A. DIR 75497 Y (IN58385) B. LOND 5575 (ALSO PEC BASTEA)</td><td colspan="3"></td></tr><tr><td colspan="4"><table><tr><td>AN</td><td>WTC</td><td>SECRET</td></tr><tr><td>ABSTRACT</td><td>WTC</td><td>SECRET</td></tr><tr><td>DIR</td><td>PARI BRUS CITE PALP</td><td>3073 (CILIBERTY AG) P</td></tr><tr><td>2</td><td>BASTEAA</td><td>S</td></tr></table></td></tr><tr><td colspan="4">15 Jan 65 1:60705</td></tr><tr><td colspan="4">1. AIRMAILING TO BASYMAR KATZENBACH LETTER WRITTEN TO ENCOUNTER BY GIBSON AT LASKY'S INVITATION RE FINANCIAL BACKING OF REVOLUTION. LASKY WILL NOT RFT NOT PUBLISH SINCE OBVIOUSLY WOULD BURN ERIDGES BETWEEN GIBSON AND OLD COLLEAGUES.</td></tr><tr><td colspan="4">2. SABA LCPIPIT SUGGEST FOLLOWING COURSE OF ACTION: C O COPY P Y A. KUBARKER UNDER ODACID POLITICAL OFFICER COVER GET ALL POSSIBLE INFO OUT OF GIBSON USING NECESSARY MINIMUM FINANCIAL INDUCEMENT. DEBRIEFING SHOULD START ASAP AND RELATIONSHIP SHOULD CONTINUE AS LONG AS FRUITFUL (LASKY FEELS GIBSON, AS "RACIAL REVOLUTIONIST, ENTHUSIAST AND OPPORTUNIST" WOULD RESPOND BADLY TO OPEN KUBARK PITCH): C O B. MEANWHILE LASKY GIVE GIBSON 100 FUND GRANT TO TRAVEL AND PREPARE ARTICLES WHICH WOULD NOT BE PUBLISHED UNTIL EVIDENT Y THAT GIBSON BURNED AMONG FORMER CONTACTS; C. WHEN EVIDENT GIBSON BURNED AND FI POTENTIAL REHARVESTED</td></tr><tr><td colspan="4">Shut it! 15 Jan 65 201-306052</td></tr></tbody></table>
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+FORM 1-64 1389 ABSOLUTE CONFIDENTIAL
+SHUT IT!
+
+RI COPY
+
+RI COPY
+
+(33)

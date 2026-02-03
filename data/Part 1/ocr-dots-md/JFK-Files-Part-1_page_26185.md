@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_26185.png
+
+Convert to MarkdownSECRET
+
+Summary
+
+1. Victor RICO Galan is a prominent pro-Castro Marxist journalist associated with Politica, a pro-Communist bi-weekly news magazine and Siempre, a Mexico City leftist news weekly. In 1961 he was reported to be a member of the Periodistas Mexicanos Amigos de Cuba and the Committee for Solidarity with the Cuban Revolution. As of June 1965 he was reported to be a member of the Fronto Electoral del Pueblo (FEP). He was a founder of the Movimiento de Liberacion Nacional (MLN) of which he was the head of the national press and propaganda committee as of 1962. RICO acted as a Cuban agent in trips to Central and South America in late 1963 and early 1964. His pro-Castro communist writings as well as his contacts with known Soviet and Bloc intelligence personnel in Mexico during the past few years strongly suggest a propaganda role under journalistic cover on behalf of their interests.
+
+2. Little is known of RICO's early life or education beyond what is listed in his basic biographic data. There is a possibility that he was active in communist affairs in Costa Rica and El Salvador in the period 1946-1948 and in Colombia in 1949-1950.
+
+3. RICO Galan's prominence in Mexican loftist circles has been primarily intellectual. In an article in Siempre in March 1963 he advocated the foundation of a new political party reflecting the true ideology of Lazaro CARDENAS. RICO felt that this would provide the Mexican left with a political party truly responsive to the radical tendencies of the 1910 revolution. This was necessary, in RICO's view, because the MLN was an action organization rather than a political party, whose membership covered a political spectrum from the Partido Revolucionario Institucional (PRI) to the Partido Comunista de Mexico (PCM), and was therefore diluted in effectiveness. A new party would represent a "third position": Socialism in internal affairs and independence of any bloc in international affairs. With such a political action arm, wrote RICO, the MLN would develop naturally into a broad national movement such as the FRAP in Chile.
+
+4. Victor RICO Galan is an ardent supporter of Fidel CASTRO and is reported to be a close friend of his. In order to gather material for a biography of CASTRO, RICO, later joined by his wife, visited Cuba in October 1962 for about two months. He visited Cuba again during part of May and most of June 1963 when he spent eight days with CASTRO, five of them at sea in CASTRO's boat, ostensibly to discuss CASTRO's recent trip to the Soviet Union and his talks with Khrushchev. On this visit the Cuban Government gave RICO a mission to travel through Central and South America to contact local communists and guerrilla leaders and persuade them to begin immediately campaigns of violence and terror in order to take the pressure off the PALN in Venezuela. RICO was also charged to try to bring about greater unity among the various leftist groups.
+
+SECRET

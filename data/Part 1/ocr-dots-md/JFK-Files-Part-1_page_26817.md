@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_26817.png
+
+Convert to Markdown4 February 1965
+
+MEMORANDUM FOR: Deputy Director, for Plans
+SUBJECT : Briefing of Reader's Digest Reporter
+
+1. The Mexico City Station has been requested by the Press Office of the Embassy to assist in briefing Mr. Robert Struthers, a roving reporter of the _Reader's Digest_, who is preparing an article on Cuban/Communist subversion in Latin America and who has expressed displeasure that the Embassy has been unable to provide any briefing on Communist activities in Mexico and Central America.
+
+2. Mexico City Station and WU Division feel that particularly since the Spanish edition of the _Reader's Digest_ has a circulation of over two and one-half million copies, this is an excellent avenue for the otherwise planned surfacing of abundant information (including the existence of a tape recorded speech to Guatemalan guerrillas, recently captured) on Victor RICO Galan, an active Cuban agent and a regular contributor of the weekly leftist magazine, SIEMPRE.
+
+3. A briefing on the activities of Victor RICO Galan and a replay of the tape has already been given officially in Guatemala during the January meeting of the Security Ministers of Central America. No press play has yet been made.
+
+4. CA/Propaganda defers to you for a policy decision. There are no RI traces on Mr. Robert Struthers. Struthers is favorably known to Mr. Paul Chretien's office which has personality and professional data on him.
+
+5. WU Division recommends that you release the attached cable.
+
+cc: ADUP
+
+ADUP
+
+SJD B.
+
+5-0585

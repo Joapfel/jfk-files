@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_23610.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+HRSA-60
+
+3. With regard to Paragraph 7 of reference, it is to be noted that HUMANOID's relations with the Director of the Post Office have been strengthened considerably in recent months. The Director has been outspokenly anti-Communist in several long discussions and has referred once or twice to the fact that his personal war against the local Communists, i.e., interception and confiscation of Communist propaganda, appears to go unrecognized by the Costa Rican government. No intimated that he is more aware of the dangers presented by Communist activities than are the security authorities. We feel confident that no Costa Rican officials are actively attempting to identify higher elements in the net, control the operation, or detect the nature of our intelligence interests. The Director's personal censorship amounts to little more than confising eating obvious Communist propaganda (most of which is turned over to us in bulk) and opening letters for perusal. He has no facilities for copying such letters and maintains no files of past correspondence. The Chief of the Costa Rican Intelligence Service is well known to us and on the rare occasions when he requests the Director to intercept a letter we hear of it from either the Director or HUMANOID-2.
+
+4. In view of the development of more intimate relations between HUMANOID and the Director and the latter's interest in whether any record exists of his cooperation in anti-Communist activities, we have obtained preliminary PRQ data from him and are presently considering the possibility of requesting clearance as a paid agent. This will be the subject of a future dispatch. Further indication of the lack of detailed information on the part of the Costa Rican authorities concerning this project is contained in TRSA-1272.
+
+5. With regard to Paragraph 8 of reference dispatch, we have long been concerned over the lack of additional cutouts and the scope of responsibilities presently assigned to HUMANOID. We hope to separate the mail intercept and the Vanguardia Popular operations in the near future. As previously reported, the possibility exists that HUMANOID will depart Costa Rica some time during 1953. We have already begun turning over the postal intercept activity to HUMIST. When clearance is obtained for HUMORESCUE, and further observation is completed, we contemplate turning HUMANOID-3 over to HUMORESCUE. In addition, we are gathering PRQ data on additional potential cutouts.
+
+6. With regard to Paragraph 9 of reference, it is to be noted that we were in the process of developing cordial relations with Major Jorge PACHECO as an Embassy officer concerned with visa security risks, international travel of Communists, arms snuggling from the U.S., etc. PACHECO resigned as Chief of Detectives some months ago and is not presently connected with the government. We have maintained friendly relations with him, however, on the possibility that he may again at some future date return to a responsible position.
+
+7. Concerning Paragraph 10 of reference, it is to be noted that HUMANOID will quite likely depart Costa Rica during 1953,
+
+SECRET
+SECURITY INFORMATION
+
+VDP

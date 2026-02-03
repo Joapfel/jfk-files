@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_24340.png
+
+Convert to MarkdownSECRET
+
+5. In organizing a report exercise, he did extremely well. In exercises requiring fact from inference, he did only fairly well, considering his background and compared to trainees with no where near his experience or education. He has a slight tendency toward jumping to conclusions and reading meanings into words. He realized this and from then on he overcame this weakness to a considerable degree. However, even on the last day, writing reports based on New York Times newspaper articles, he twice (out of five reports) substituted his own word for a word in the article for no valid reason and which new word in fact changed the meaning of the sentence, though only slightly.
+
+6. This small weakness is not unique to QPHONE/1. It is also true of other equally highly literate trainees, who, like QPHONE/1, unconsciously substitute their own language for that which has been directly given to them, not realizing that they thereby sometimes change the meaning of that which they are reporting. Happily, QPHONE/1 realized this during the exercises, recognized the changed meaning, and earnestly stated that he will watch it in the future.
+
+7. In observation and description exercises, he did well after a rocky start. Here, he at first concentrated on individuals, almost completely ignoring the actions they were engaged in. He soon saw that he had a mental capacity to watch both at once and there was no problem thereafter.
+
+8. He was excellent in his ability to separate hard facts and put those in the body of his reports while listing as comments those items which legitimately were comments and which had no place in the report itself.
+
+9. For the final session, he had been asked to do assessment reports on two people. He was notified when he came in on the last morning, happily handed in his five intel reports and suddenly realized that he had completely forgotten to do the other reports. However, in discussing spotting and assessment reports, it appears that he now understands them.
+
+10. In an effort to evaluate the effectiveness of the training, we would appreciate a detailed evaluation report in November 1971 from the field station. This report should indicate the extent to which the training has made the trainee a more useful and effective asset and should evaluate the performance in each area of tradecraft in which training was conducted; negative as well as positive comments are solicited. The field station's report should also include the trainee's own comments. Please ask the field station to slug the report WORLD/QRPHONE/1/PERSHING. Upon receipt of the report at Headquarters, please forward a copy to the undersigned.
+
+Caleb L. Satten
+DC/OS/ALT/ER
+
+Originated by:
+Aristides G. Lazarus
+
+SECRET
+
+14-00000

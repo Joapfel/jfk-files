@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_25502.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+both parties settle the divorce amicably and to protect GERENDE's cover and that of the projects. Because of the above family problems which threatened GERENDE's personal cover and security, he was relieved of all operational responsibilities and placed on half salary in December 1969.
+
+3. In March of 1970, Mexico City Station decided that GERENDE'S personal problems were not being resolved, and because of the continuing security threat, plans were made to terminate both GERENDE and his wife by the end of FY 1970. The LIEPTY Project renewal, approved in May 1970, was amended to include a termination bonus for GERENDE of $10,000 for 15 years of service with the Agency, and in addition approval was received to pay Mrs. GERENDE the sum of $2,500 as a security measure designed to keep her from revealing her husband's Agency affiliation and what she knows about Agency operations in Mexico. This project approval carried the ADDI scaveat that the termination bonuses to both GERENDE and his wife be paid on a monthly basis rather than in one lump sum as a security measure to assure at least an element of control over both individuals, since the continued receipt of these monthly payments depended on their loyalty to the Agency. GERENDE and his wife were terminated by Station representatives in Mexico on 26 June 1970 under standard Agency procedures, and separate Quit Claims and Security Agreements were signed by both GERENDE and his wife. Neither GERENDE nor his wife had any objection to the wording of the Quit Claims or the Security agreements, and both appeared to be satisfied with the terms of the settlement, and with the fairness of the Agency's position.
+
+4. On 8 July 1970 at 1115 hours, Mrs. GERENDE appeared at the main gate of the Headquarter's building, and requested to see an official from the Office of Security. During the subsequent interview, Mrs. GERENDE established her identity, and supplied the interviewer with details on her and her husband's past employment with the Agency in Mexico City and the fact that they had terminated said employment in late June 1970. Mrs. GERENDE made three specific requests of the Agency:
+
+SECRET
+
+14-00000

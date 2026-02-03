@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_24301.png
+
+Convert to MarkdownSECRET
+
+5. **Substance:** You noted that ORPHONE . . . "cannot just simply show up and start a leftist nuclei . . ." Why not? Others have, He is a well-known leftist in intellectual circles in Europe and has written many articles in praise of Mao. This should do for a start. As for what he might have to offer local leftists . . . money, energy and ideas will do. A great deal of money. of course, is unneeded, but some is. We can supply it. As for ideas and energy, he has both. Concerning the "built-in jealousy, animosity, etc." which such action would likely engender on the part of local rival leftists, this may or may not occur. But is this such a calamity if it should occur? Are not leftists usually fighting among themselves anyway? In any case, we have nothing to lose by trying to salvage this agent. What we have to lose by not trying is an agent asset of proved worth.
+
+6. **Credentials:** You say in effect that ORPHONE has not been known as an activist but only as an intellectual. (Frankly, the distinction is not very important in my mind.) Be that as it may, he has written many articles on leftist subjects and has talked to innumerable leftists around Europe over the years. True, he has not been involved in such actions as street demonstrations, but we would not like him to be so personally involved in the future in any case. What we would want him to do is to write pamphlets, informally recruit associates to his group and provide a little money to the group as might be required for various undertakings. Aside from the organizing and funding, actually this is not very different from what he has been doing--except that it will be in one place for a change.
+
+7. **Book Dispatch Sale:** You may be very correct in saying that shopping him around to European stations by book dispatch is a poor way to solicit useful tasks for ORPHONE. But again, I took my lead from C/EUR/CA who made a request along these lines. Certainly sending book dispatches wouldn't hurt any. If Spence is willing at some future time to visit various field stations and to attempt selling ORPHONE's services personally, we would be happy to have him do so. We, of course, don't know when he will be available to do so, and time is passing.
+
+8. **Concluding Comment:** I really feel that we should relate to you in some detail the success which Andy Ness once had with the kind of undertaking which we have proposed for ORPHONE. It may interest you. On the other hand, it may be perfectly possible that the situation which Andy Ness once manipulated is not applicable to
+
+SECRET

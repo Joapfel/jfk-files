@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_25158.png
+
+Convert to MarkdownAPRUPPILZ
+
+PURPLE positively identified photo of 'aleriy Vlasili-ovica KOSTIKOV as Soviet who had met him in Mexico City on 9, 11 and 12 Feb 1963. KOSTIKOV gave PURPLE meeting arrangements for next meeting(s) to be in NYC. Soviet who appeared in NYC was Clag D. PRYKIN. PRYKIN has been identified as member 13th Dept of KGB's FCI.
+
+PURPLE is naturalized German American, has crop dusting business in Middle East, furnished info on industrial and missile sites in area.
+PRYKIN particularly interested in pipelines,
+
+The 13th Dept may have exercised its prerogative and taken over case from First (American) Dept. Former case officer Yuriy V. KOSTIKOV was apparently from American Dept, not 13th. But it appears that PRYKIN asked PURPLE for same index type of info assigned by KOSTIKOV, suggesting that KOSTIKOV was from same KGB dept a. PRYKIN.
+
+This information should not be released without permission of SR/CI.

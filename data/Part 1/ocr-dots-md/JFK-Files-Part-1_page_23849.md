@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_23849.png
+
+Convert to Markdown- 3 -
+
+Prevent Inc. No.
+
+| Date | Person | Notes |
+|---|---|---|
+| 17.3.6. | Geno. SATTILALD, Geneva-Cornavin. | 11 |
+| 9.4.6. | Geno. SATZERLIND, Geneva-Cornavin. | 12 |
+| 27.5.6. | Arr. BELGUM, Brussels. | 8 |
+| 30.5.6. | Arr. FRANCE, Care du Ferau. | 8 |
+| 7.10.6. | Arr. N.E., Dover, visit up to 3 months. | 10 |
+
+SECRET
+
+201-306052

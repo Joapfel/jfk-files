@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_24703.png
+
+Convert to MarkdownCONFIDENTIAL
+
+11 September 1976
+
+MEMORANDUM
+
+Deryabin comments on
+SUBJECT: Nikolay Sergeyevich Leonov, KGB Officer and Personal Friend of Fidel Castro of Cuba.
+
+1. Soviet magazine Latinskaya Amerika, issue No. 4, for July-August 1976 (pp 127-142) published an article entitled "To Your Health, Fidel!" by N. S. Leonov, who is identified in the article as a "journalist".
+
+On page 138 there is a photograph of Fidel Castro with the author of the article, journalist N. Leonov. In this photograph I definitely recognize
+
+KGB officer Nikolay Sergeyevich Leonov. I knew (FCD)
+
+Leonov in Moscow as a KGB officer of the First Chief Directorate. The last time I saw him in KGB HQS was during the summer of 1953. At that time I did not know in what department of the FCD Leonov worked. (Copy of this photo is enclosed)
+
+2. I recognized another photo of Leonov, N.S., in the late 1950s or the beginning of the 1960s for the Agency or the FBI.
+
+N. S. Leonov also was recognized by me on the photograph published in the Soviet book Viva Cuba, which was published in Moscow in 1963 or 1964. In this photograph Leonov appeared in the company of Khrushchev, Castro and (also known to me personally as a KGB senior officer.) Alekseyev (Shitov) Aleksandr Ivanovich, the Soviet Ambassador to Cuba at that time.
+
+N. S. Leonov also was recognized by me in the photograph published by Golos Rodiny, issue No. 32, for April 1963. In this photograph Leonov's face is shown between Khrushchev, Brezhnev, and Castro at Vnukovo Airport on 23 April 1963 when Castro arrived on his visit to the USSR. (Copy of this photograph is enclosed)

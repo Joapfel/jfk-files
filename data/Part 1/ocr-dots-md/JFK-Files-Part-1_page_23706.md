@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_23706.png
+
+Convert to MarkdownCABLE SECRETARIAT DISSEMINATION
+
+CLASSIFIED MESSAGE
+
+TOTAL COPIES
+
+ROUTING AND/OR INITIALS-SEEN BY
+
+<table><tr><td>PERSON/UNIT NOTIFIED</td><td></td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☐ SLOTTED</td><td>SECRET<br/>(When Filled In)<br/>GROUP EXCLUDED FROM AUTO-DECLARATION<br/>DOWNGRADING AND DECLASSIFICATION</td></tr><tr><td colspan="2">REPRODUCTION OF THIS COPY PROHIBITED</td></tr><tr><td>BY: __________ AT: __________ Z</td><td></td></tr><tr><td>DISTRIBUTION PER perm.</td><td></td></tr><tr><td>ACTION UNIT WH 8 O/F 0</td><td>FILE, VR R/LAN, EUR 6, FI, c/fOPS, e/c/fc 2</td></tr><tr><td>ACTION NO. 251</td><td></td></tr></table>
+
+SECRET 051617Z APR 71 CITE WH/MIAMI 10963 WMIM
+MADRID INFO DIRECTOR
+5 Apr IN304300
+TYPIC QUANTUM
+REF MADRID 13428 CN 299724 C
+
+1. BELIEVE STATION ASSUMPTION CITED PARA 2 REF CORRECT.
+
+2. AMOT S UNABLE IDENTIFY PEDRO M. D I A Z. STATION FILES CONTAIN CARD REFERENCE TO ONE PEDRO MANUEL D I A Z, CUBAN CITIZEN RESIDING 124 SW 18TH COURT, MIAMI, FLORIDA, WHO WAS MEMBER OF ISLE OF PINES ASSOCIATION IN EXILE. (O0I: JAN 63). THIS MAY BE D I A Z OF REF IN VIEW OF FACT THAT ELOY GUT I ERRE Z MENYO AT ISLE OF PINES PRISON.
+
+3. FILE 201-269349. GP-1
+
+SECRET
+
+CS COPY
+SECRET
+
+<table><tbody><tr><td>AN</td><td>RPT</td></tr><tr><td>AB</td><td>X</td></tr><tr><td>IN</td><td></td></tr><tr><td>PS</td><td></td></tr><tr><td>BX</td><td></td></tr><tr><td>DESK</td><td>HPD</td></tr><tr><td>FI</td><td></td></tr></tbody></table>

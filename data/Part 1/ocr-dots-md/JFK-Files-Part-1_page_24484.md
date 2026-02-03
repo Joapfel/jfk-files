@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_24484.png
+
+Convert to Markdown# COMMUNISTS PROMOTE VIOLENCE IN LATIN COUNTRIES
+
+Source: La Republica, 25 July 1969
+
+The kidnapping of which the noted doctor and rancher Ernesto Gonzalez Caicedo was recently the victim in Cali has served to confirm, tragically, the existence of a vast communist plot to subvert the constitutional order and to plunge the country again into a wave of terrorism and violence which appeared to be buried forever.
+
+In fact, this newspaper, like the other dailies in the capital, reported in its 12 and 18 July issues, on the basis of official statements, that the Department of Valle had been selected by the pro-Soviet communists as the scene of the continued wave of terrorist attacks and assaults and kidnappings recently begun in the Department of Antioquia.
+
+Following the kidnapping of Antioquia rancher Ruben Norena, the kidnapping of Doctor Ernesto Gonzalez Caicedo has now occurred. The communist bandits are demanding the enormous sum of 4.5 million pesos in ransom. Thus the chronological stages in the new, subversive plan are being carried out, beginning with the steps which are obviously designed to obtain the money necessary to finance the bandit gangs in the rural areas they have already selected.

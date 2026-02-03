@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_25558.png
+
+Convert to Markdown14 July 1969
+
+**MEMORANDUM FOR:** Executive Officer, Western Hemisphere
+Division
+
+**VIA**
+: WH/FI
+WH/CONTRACTS
+
+**SUBJECT**
+: Recommendation to Amend the Contract of
+Raymond H. GERENDE (Contract Agent) to
+Include Improved Termination Benefits
+and a Salary Increase
+
+1. During the past year Mexico City Station has submitted several dispatches recommending that paragraph 11 of Subject's contract be amended to include new benefits in the event of Subject's termination and/or resignation from Agency service. These Station recommendations have been carefully reviewed by C/WH/Contracts and a Memorandum was forwarded to C/WH/1 containing guidance on the suggested contract amendment.
+
+2. The above information has been reviewed again by AC/WH/1, and we are requesting approval for the following amendments to paragraph 11 of Subject's contract:
+
+A) In the event of GERENDE's termination by the Agency he will receive three month's pay plus one month's pay for every full year of service since 18 March 1955, calculated at the rate applicable at the time of termination.
+
+B) In the event of resignation and/or voluntary retirement upon 60 days notice the following schedule would be acceptable to the Agency as being in its best interests and a payment considered as a terminal payment as follows:
+
+(1) Less than 15 years service (prior to March 1970) 20 days pay for each full year of service.
+
+(2) Over 15 years service, but less than 20 years service (prior 18 March 1975) three months salary plus 20 days pay for each full year of service.
+
+SECRET,

@@ -1,0 +1,69 @@
+# JFK-Files-Part-1_page_24581.png
+
+Convert to Markdown12 April 1957
+
+and his family departed Mexico for Veracruz where they were to remain for one day and then go by boat to Tapehala. His wife and son were to travel legally to Guatemala while he planned a clandestine re-entry into Guatemala (7).
+
+June 1959
+
+traveled to Czechoslovakia (10).
+
+30 September 1961
+
+was planning to travel via Panama and South America to the USSR where he planned to attend the 1961 CPSU Congress (13). Early in the morning of 30 September 1961, he departed Guatemala by land for Mexico enroute to Moscow, USSR (13).
+
+3 October 1961
+
+arrived in Mexico by air from Guatemala (7).
+
+January 1962
+
+was in Moscow and was expected to return to Guatemala by the following route: Moscow, Havana, Ecuador, Central America, Guatemala (7).
+
+February 1962
+
+was in Moscow and planned to travel to Havana (7).
+
+7 December 1962
+
+was in Moscow and attended the WETU Conference (7).
+
+2 January 1963
+
+was in Cuba (12).
+
+26 June 1967
+
+arrived in Cuba possibly traveling in the name Julian GONZALEZ according to travel records.
+
+11 July 1967
+
+had plans of leaving Guatemala by air for Mexico City destined for Havana and to attend OLAS (14). He departed Guatemala City for Mexico by ACR at 1930 hours but the plane had to return to Guatemala City the same night because of engine trouble (14).
+
+12 July 1967
+
+departed Guatemala City 0845 by Air PARAM for Mexico City using fraudulent documents in the name of ARGUETA (14).
+
+18 July 1967
+
+departed Mexico for Europe on Aeronaves/ BOAC airlines Flt. 676/068 using fraudulent documentation (ARGUETA). He was expected to travel via Prague to Cuba (15). He was to travel to the USSR and remain there for three months to undergo medical treatment for an ailing heart (15).
+
+19 July 1967
+
+traveled to Mexico via London, UK and was destined for Cuba according to travel records.
+
+22 July 1967
+
+traveled from the United Kingdom via Frankfurt to Czechoslovakia and to Cuba according to travel records.
+
+26 July 1967
+
+traveled to Cuba possibly using the name Julian GONZALEZ, according to travel records.
+
+August 1967
+
+traveled from Cuba to the USSR probably using the passport of ARGUETA (15).
+
+As of 5 December 1967
+
+was in the USSR and planned to remain there until June 1968 (14).

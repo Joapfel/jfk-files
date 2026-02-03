@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_24254.png
+
+Convert to MarkdownWOGEAR Review of African Liberation Movements
+
+In general, the author has done a reasonably good job describing the historical development of the various African liberation movements, especially when one considers the complexity and number of splits and mergers that have occurred within and among the movements over the years. There are several glaring inaccuracies, however, in the author's conclusions about the current position and effectiveness of the several Portuguese African liberation movements.
+
+Regarding Angola, the author characterizes the MPLA as an ideologically-oriented group (i.e., Soviet doctrine) that has failed to grasp and utilize to its advantage the tribal realities that exist in Angola. The author fails to acknowledge, however, that the MPLA has had some success, albeit limited, in building a movement that is national and multiracial in character rather than tribally oriented. Despite its urban intellectual leadership, the MPLA has had some success winning local support in rural eastern Angola.
+
+By contrast, GRAE ranks a poor second. From inception, its primary base of support has been the large Angolan refugee population of Bakongo tribesmen who live in southwestern Zaire. Although the organization has won some support among Bakongo kinsmen across the border in northwestern Angola, it has failed to broaden its base because of its thinly disguised regional and tribal make-up. Moreover, Roberto's unwillingness to delegate authority or compromise have produced chronic disputes at the leadership level. The author's conclusion that GRAE is a formidable force to be reckoned with in the future of Angola is contradicted by the fact that the MPLA is by far the largest and most effective of the three nationalist groups opposing the Portuguese in Angola.
+
+## MOZAMBIQUE
+
+The present FRELIMO leadership does not appear to be in the state of disarray in 1972 that the author believes it is. Although some differences undoubtedly persist, the present leaders seem to have closed ranks somewhat since the departure of Simango in late 1969. For the present, any internal squabbles that may exist are not noticeably affecting FRELIMO's fighting abilities inside Mozambique.
+
+## RHODESIA, SOUTH WEST AFRICA, SOUTH AFRICA
+
+Reasonably straightforward and up to date. No serious deficiencies.

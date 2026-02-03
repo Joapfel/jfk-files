@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_22810.png
+
+Convert to MarkdownCONFIDENTIAL
+
+★ U. S. GOVERNMENT PRINTING OFFICE, 1954-220030
+
+<table><tr><td>1. Agency and organizational designations</td><td></td><td>2. Payroll period</td><td>3. Block No.</td><td>4. Slip No.</td></tr><tr><td>D. JWH</td><td></td><td>6. Grade and salary</td><td></td><td></td></tr><tr><td colspan="2">3. Employee's name (and social security account number when appropriate)</td><td colspan="3">NOEMAYER, HAROLD R. (P) CAREER AGENT $9,215</td></tr><tr><td colspan="5">PAYROLL CHANGE DATA</td></tr><tr><td></td><td>BASE PAY</td><td>OVERTIME</td><td>GROSS PAY</td><td>RET.</td><td>FEDERAL TAX</td><td>BOND</td><td>F. I. C. A.</td><td>STATE TAX</td><td>GROUP LIFE INS.</td><td>NET PAY</td></tr><tr><td>1. Previous normal</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>8. New normal</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>9. Pay INs. period</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>10. Remarks</td><td colspan="7"></td><td>11. Appropriations</td><td colspan="2">12. Prepared by<br>jlv 22 March 61</td></tr><tr><td colspan="13"></td><td>13. Audited by</td></tr><tr><td colspan="13"><input type="checkbox" checked disabled/> Periodic step-increase <input type="checkbox" disabled/> Pay adjustment <input type="checkbox" checked disabled/> Other step-increase ________________</td></tr><tr><td>14. Effective date</td><td>15. Date last equivalent increase</td><td>16. Old salary rate</td><td>17. New salary rate</td><td colspan="7">18. Performance rating is satisfactory or better. [Signature] B. Bagar</td></tr><tr><td>Mar 61 18 Oct 59</td><td></td><td>$9,215</td><td>$9,475</td><td colspan="7">(Signature) In other capacities</td></tr><tr><td colspan="7">19. LWOP data (fill in appropriate spaces covering LWOP during following periods)<br>Past-d(t)</td><td colspan="3">(Check applicable box in future extent LWOP)</td></tr><tr><td colspan="13"><input type="checkbox" checked disabled/> In pay status at end of waiting period.</td></tr><tr><td colspan="13"><input type="checkbox" checked disabled/> In LWOP status at end of waiting period.</td></tr><tr><td colspan="13">Initials of Gen</td></tr><tr><td colspan="13">PAYROLL CHANGE SLIP — DISBURSING OFFICER'S COPY</td></tr></table>
+
+STANDARD FORM NO. 1126b—RevISED
+Form prescribed by Comp. Gen., U. S.
+October 26, 1954, General Regulations No. 102
+
+14-00000

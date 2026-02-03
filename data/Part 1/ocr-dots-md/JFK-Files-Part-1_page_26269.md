@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_26269.png
+
+Convert to Markdown4. As noted above, the purpose of a follow-up interview would be to obtain more detailed information from Rico on the Castro and Soviet roles in supporting revolutionary movements in Latin America, not merely to obtain further information on the country visited. The approval of the Mexican Government (LITEMPO/8) would again be necessary for such a follow-up interview.
+
+Louisa A. Debanti
+Office of War/BAO
+
+Distribution:
+
+Orig & 1st - Addressee
+1 - WH/SAO Chrono

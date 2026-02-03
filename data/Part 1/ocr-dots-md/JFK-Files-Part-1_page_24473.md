@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_24473.png
+
+Convert to Markdown14-00000
+
+The following information was received in the first half of October 1964 from a source in close touch with Richard CIBSON, the former Editor of "Africa, Latin America, Asia Revolution".
+
+2. CIBSON is aware that a number of people had thought that the Chinese Communists had provided some financial backing for "Africa, Latin America, Asia Revolution", but this was true only to the extent that the Chinese had a standing order for 3,000 copies of each issue of the English edition. If the Chinese had given more general financial assistance VEROES, the publication's Director, would not have had to contend with the present financial difficulties and possible bankruptcy.
+
+3. VEROES had been allowed to access a relatively large sum of money which had been held in Switzerland from the time of the Algerian war of independence. When this had dried up VEROES had been unable to replenish it. Reports that VEROES had stolen this money were not true.
+
+4. The publication owed 40,000 Swiss francs to a business-man, possibly Swiss, named KESSER and 30,000 francs to the French printers. In CIBSON's view too much money had been spent on maintaining prestige offices at 40 rue Frangois Ier, Paris.
+
+5. When "Africa, Latin America, Asia Revolution" was banned in Switzerland all except 100 copies of issue No. 12 were seized by the Swiss authorities. These 100 copies had already been sent to CIBSON.
+
+6. The French edition "Revolution" has not appeared since August 1964.
+
+## 16th October 1964.
+
+### Comment i) Para. 4
+Source could not provide any further particulars about KESSER.
+
+ii) Para. 4
+Source did not say whether the sum owed to the French printers was in French or Swiss francs.
+
+JACQUES LAGESTE INDES
+FOR ACCESS THROUGH MONEYS
+HELD BY SWITZERLAND
+AFTER THIS GIFT WAS
+CHANGED TO RELIEF IT.
+RESULTS THAT
+NOT HAD STOLEN
+THIS MONEY UNTRUE.>
+
+SECRET
+
+GELA-41788 - Excl-1
+
+011-CC4-105

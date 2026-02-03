@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_23592.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+MEMORANDUM FOR THE CHIEF OF FOREIGN INTELLIGENCE
+
+SUBJECT: Project HIRADIAL
+
+5 August 1953
+
+1. The purpose of this project is to provide for the covert training and transfer of a contract agent from Costa Rica to Argentina, where the latter will develop penetrations of the Communist Party of Argentina (PCA) and Communist front organizations and perform support functions as assigned.
+
+2. HIRADIAL, an American citizen born in Illinois in 1922, is married to a Costa Rican girl and has two small children. Since June 1949 he has worked for CIA, under the cryptonym HUMANOID, in Costa Rica as a contract agent. He has proven himself particularly adept at spotting and recruiting agents and has successfully supervised the direction of a high-level Communist Party penetration agent.
+
+3. The agent has been accepted as a student at the University of Buenos Aires for the school year beginning March 1954. He will try to establish himself in the photography business, in which he is well-qualified and has had previous experience, as an ostensible means to make ends meet while completing his studies.
+
+4. Contact and communications between HIRADIAL and his case officer will be clandestine, under pretexts still to be arranged. Communications between the former and any agents or sources he recruits will be arranged according to the circumstances.
+
+5. HIRADIAL has been dependent upon this Agency for the past four years, which financial dependence has increased considerably over this period with the increase of his family. His motivation is patriotic, and his past actions and achievements have borne this out.
+
+6. The estimated annual cost of this project is $5,705 salary and allowances (GS-7), $3,550 travel and per diem (to U.S. for covert training, leave and return to Argentina), $500 transportation of effects and $720 for operational expenses and travel, a total of $10,475.
+
+7. WH requests approval of Project HIRADIAL for the period 1 August 1953 through 31 July 1954.
+
+Chief, STC
+
+Chief, Operations
+
+Chief, Plans
+
+Approved:
+
+Chief, FI
+
+Date
+
+ATTACHMENT: Project Outline HIRADIAL
+
+cc: STC/SPB
+RI for Vital Records
+
+SECRET
+
+201-168161

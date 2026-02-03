@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_24833.png
+
+Convert to Markdown-2-
+
+~~TICHBORN~~ concurs in this estimate of the lack of security problems within the office.
+
+2. After leaving Train, we went to dinner where the following subjects were discussed:
+
+a. LEP pointed out clearly that he was "the boss" and responsible for TICHBORN's operational utilization. TICHBORN was told that Galt is responsible for the Train commercial setup. There appeared to be no doubt in his mind as to who calls the shots.
+
+b. TICHBORN was told of our need for an experienced Latin American specialist who could handle political action research on key issues in certain countries. He was also told of our interest in possible CA covert action advisory tasks. Our need for someone able to make meaningful interpretive analyses was explained in some detail and examples of probable areas and issues were presented. TICHBORN said he had no special experience in content analysis or survey analysis techniques. However, he was apparently very much interested in the idea. He said that he would get the book suggested on content analysis. He will check into the availability of the Dominican Republic papers mentioned and let LEP know by 5 November if they can be had in New York City. He was requested to approach the problem along the general following lines: Analyze the Bosch anti-government statements for indications of whom he is trying to reach, how, and for what reason (since June 15). Similarly analyze the Balaguer statements and determine:
+
+1) Influences the news media is having on his public image.
+
+2) Where and how could he strengthen this image.
+
+3) What issues should be raised or suppressed.
+
+It was suggested that he try to get issues of El Caribe and Listin Diario.
+
+3. LEP's initial impressions of TICHBORN were as follows: He is very intelligent and in addition is "sharp". He has a professionally smooth and friendly manner. He is a natural politician. He is an "operator" and will collaborate very closely and enthusiastically so long as there is real benefit in it for him. He is probably sensitive to his Mexican-American ancestry as indicated by his obvious annoyances (albeit presented jokingly) at the fact that

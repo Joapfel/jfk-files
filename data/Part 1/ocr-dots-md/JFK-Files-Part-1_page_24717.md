@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_24717.png
+
+Convert to Markdowne. **UAR**
+
+(1) Michel *Hamed.** Low ranking member of Embassy. Met once, January 1968. No further progress or efforts made.
+
+f. Indonesia
+
+(1) Alimuddin *Lubis.* Press and cultural attache. Very friendly. I have not yet followed up.
+
+g. **Soviet**
+
+(1) Nicolay T. Leonov. Press Attache. Off to a very friendly and casual start socially. Have permitted one month to pass without contacting him in order not to seem overly eager. I feel I can call him next week and proceed cautiously to develop him if mutual interest seems to be there.
+
+3. Over the next few months, these contacts will be further refined, in coordination with the case officer. Owing particularly to the variety of French contacts, it should be possible to settle before too long on a handful of fairly productive sources of personality information.
+
+REPRODUCTION IS DEDUCTIBLE
+FROM A PAPER CARD SUBMITTED

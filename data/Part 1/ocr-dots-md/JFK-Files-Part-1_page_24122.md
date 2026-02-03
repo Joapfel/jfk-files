@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_24122.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+E. RNSLIVER was particularly impressed by QREBONY/1's library of radical books and pamphlets. RNSLIVER turned over to the under-signed for copying and return a recent issue of Williams' The Crusader, and a copy of QREBONY/1's own newsletter. These were received with feigned interest, although of course we had earlier received the same items from RODIGAST (already forwarded to Headquarters).
+
+F. RNSLIVER did not recall meeting Mrs. QREBONY/1, and did not know how many children QREBONY/1 had. He described QREBONY/1's house as attractively middle class. He was aware of the fact that QREBONY/1 had gone to Kenyon College and praised QREBONY/1's writing skills. QREBONY/1 showed him a number of articles he had written which RNSLIVER said completely followed the Chinese Communist line. RNSLIVER was surprised that some of these articles had been printed in the United States in spite of their political orientation.
+
+P.F. CILIBERTI
+
+COPYING

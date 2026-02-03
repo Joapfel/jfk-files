@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_24049.png
+
+Convert to Markdown14-0000
+
+A. admitted to the section for infectious diseases.
+7. August, 1968.
+
+Observation: Malaria
+Medical history: The patient had felt for about a week (definite weakness, lack of appetite, an inclination to erection and distress, a somewhat feverish temperature, heaviness under the right side of the stomach).
+Cervical observation under thin follicles showed: subcutaneous, afibrile, the line + the epigastrium about 1. P.P., slight feeling accompanied by other regular findings.

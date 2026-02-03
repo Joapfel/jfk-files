@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_24806.png
+
+Convert to Markdown24 March 1967
+
+MEMORANDUM FOR: Chief, WH/Support
+
+ATTENTION : Mr. Ed Burroughs
+
+SUBJECT : Compensation Paid by WUSALINE to Edward O. TICHBORN (P) During the Period 1 October 1966-31 January 1967
+
+Edward G. TICHBORN (P) is being salaried by WUSALINE at the rate of $17,000 per annum. His employment with WUSALINE began on 1 October 1966. During the period 1 October 1966-31 January 1967, TICHBORN was paid by WUSALINE a salary of $5,666.67.
+
+Gale W. Allen
+DOCO
+
+CWA/emu
+
+cc: WH/6/Lee Patton
+
+SECRET
+
+201-253203

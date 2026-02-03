@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_24269.png
+
+Convert to MarkdownTSD/BAB MEMO #275-72
+
+20 July 1972
+
+MEMORANDUM FOR: Mr. Rod Sweet, Chief CA-3
+
+ATTENTION : Mr. Ken Rosen, Rm 3D18
+
+SUBJECT : ORPHONE/1
+
+1. Attached is the psychological assessment of ORPHONE/1. A preliminary verbal read-out was given on 7 July in which it was stated that Subject was an emotionally stable individual. We still support this statement, but a more in-depth analysis revealed there are certain aspects of his personality that are susceptible. These are discussed in the report. If any part of the report is unclear or requires further discussion, please contact us. Meanwhile, we would appreciate receiving follow-up information on Subject's performance in order to help us refine and improve our methods of assessment.
+
+Attachment:
+Report
+
+James M. Keehner
+TSD/BAB
+
+L

@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_26719.png
+
+Convert to MarkdownKeel 72-KICO-23
+
+29 April 1965
+
+25.5 contd.
+
+confusing situation in Dominican Republic. What does VKG thinks? It is complex (side-steps him). Dominican exiles were going to try the Embassy to find out where they could locate Valentin Cucherov.
+
+When can they meet one another? When VC likes. Perhaps on Monday. Call VKG on Monday to arrange a time. Will phone Monday morning.
+
+After 2120, 29 April
+
+26.5 In. Miric (v) with VKG, who answers. Cucherov just phoned. He just found out about the press conference. Miric says that that correspondents of News Agencies he likes very much (ironic?). Cucherov asked VKG what he thought about the situation. VKG replied that he thought the situation was confusing.
+
+They say that they (Boach men) have 50,000 men ready to enter the fight. Continue to attack in mass San Isidro. Is this from Informex?
+
+Yes,
+
+There is an official declaration (of Mexico) essentially disappointing the marines. President is still very worried about situation in sister Republic and that the govt. thinks it is弘太共的 very sad that U.S. took this action. It is only 20 or 30 lines. Doesn't it mention the O.B.A.? No, but the sense is the same, with an accent of a little more worry. There is news that the Mexican Embassy has also been attacked in Dominican Republic. Have attacked Salvadoran, Peruvian, Mexican, &amp;max Ecuadoran and U.S. Embassies. VKG doubts this. Thinks these may have been provocateurs. Why would they attack the Embassies? The Mexican Amb. is in almost constant communication with Mexico - informing what is going on. And it is not sure yet that there are any victims among the U.S. citizens. But there has been further disembarkation. VKG thinks they will occupy the territory. This will be a repetition of 1916. Miric says it won't be the same exactly. No, it was then to form the emplazse and it is now to defend.
+
+As to the O.B.A., things are not going well. There was a 3 hour meeting which did not resolve anything. VKG heard about this. They are back in meeting.
+
+VKG is going to ask Pajos to let him turn his story in on Monday. Everything is too contradictory yet.
+
+Miric has taken his position and is now writing his story. Miric would like to have text (of Fidel). Call Jardon. If VKG has any news, he will phone Miric.
+
+28.5 Out to 45-60-15. VKG asks NO, who sawere, for Jardon (or Pardon), Jardon takes the phone. Asks if he has the declaration of Mexico. Yes. Asked him to read it. Reads it - summarizing that President Diaz Ordoz has been fraternally and deeply worried about situation in Dominican Republic...that the Mexican Amb. has been in constant telephone contact with Dept. of Foreign Affairs here. Amb. is lic. Kamon kuls Vasconcelos. Amb. has given refuge and asylum to Mexicans and Dosmicicans. Situation is confusing to norm Mexican conduct with their international principals, especially with respect to American problems. They can state that they deplete the blood being shed, as stated in the O.B.A., and sufferings of Dominican Republic and sorry that U.S. govt. has had to act in such a manner which recalls them of such sad memories of several countries in the hemisphere and to do that marine force occupation will be the shortest time as possible...that Dominican republic can resolve their problems without any direct or indirect exterior influence. VKG thinks that it
+
+is quite good within what can be expected.

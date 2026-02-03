@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_25267.png
+
+, Employee of the Office of the Military Attache and a known Soviet Intelligence Officer, (see 4-10-61).
+
+### IV. COMATIONS:
+
+#### An Communist and Pro-Communist Contacts:
+
+1. an unidentified hotel employee called the Soviet embassy on 1 October on behalf of Mr. Anton Oraninov, a Pole, who is a Communist professor located in GENEVA, and required further consultation. He had received a reply from Baku, the capital of the country, The Agency from which that 2007 was no longer in Mexico and that the new Copepill would be receiving the public on the following day.
+
+2. male SPIS, wife of Communist artist Mel Stol, informed KATASEEN on 2 October that she needed to call so they could enjoy together some of the vodka she had received from the Ambassador. She had just come fromlicity where her husband still is staying, and she was planning to return soon. It would call the ambassador when any call back to Moscow the first of the week. (For further contacts between the Russians and members of the Soviet Party, see attached.)
+
+SECRECY: 50-4-1-303

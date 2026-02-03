@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_24393.png
+
+Convert to MarkdownA substantial increase in ORPHONE/1's salary has been requested by LCPIPIT. We have further proposed that this increase be paid into an escrow-type account. See OEPA - 2122 for details.
+
+9. GENERAL COMMENTS ON OVERALL AGENT PERFORMANCE: ORPHONE/1's overall performance has been superior.
+
+10. ACCOMPLISHMENTS AND EVALUATION OF EFFECTIVENESS OF PROJECT: ORPHONE/1 continues to perform in a most effective manner.
+
+Acl
+Aaron C. LAGINESTRA
+
+SECRET

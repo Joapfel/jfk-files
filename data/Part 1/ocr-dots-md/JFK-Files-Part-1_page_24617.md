@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_24617.png
+
+Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>TOTAL COPIES</td></tr><tr><td>ROUTING AND/OR INITIALS - SEEN BY</td></tr></table>
+
+<table><tbody><tr><td rowspan="5"><strong>PERSON/UNIT NOTIFIED</strong><br/><input type="checkbox" checked disabled/> ADVANCE COPY<br/><input type="checkbox" checked disabled/> ISSUED<br/><input type="checkbox" checked disabled/> SLOTTED<br/><br/><strong>BY:</strong> [illegible] AT: <u>[illegible]</u><br/><br/><strong>DISSEM BY:</strong> [illegible] PER <u>[illegible]</u><br/><strong>ACTION</strong> WH-8 <input type="checkbox" checked disabled/> RID COPY<br/><br/><strong>INFO FILE.VR</strong> SB-8, RIFAN, CI, c/c/ops, cfic-2, FI-2, DDP, AxdP</td><td><strong>SECRET (When Filled In)</strong> GROUP 2-<br/>FORWARD FROM APOLLO 1<br/>ORIGINAL AMT. OR REF TO FILE NO.<br/><br/><input type="text"> INDEX ☐ YES ☐ NO<br/><br/><input type="text"> CLASSIFY TO FILE NO.<br/><br/><input type="text"> REF TO FILE NO.<br/><br/><input type="text"> FILE RID ☐ RET TO BRANCH ☐ DESTROY ☐ SIG.</td><td><table border="1"><tbody><tr><td>6</td></tr><tr><td>7</td></tr><tr><td>8</td></tr><tr><td>9</td></tr><tr><td>10</td></tr></tbody></table></td></tr></tbody></table>
+
+SECRET 2222202 OCT 68 CITE MEXICO CITY 7743
+
+GUATEMALA CITY INFO DIRECTOR
+
+REDCOAT MHIGLOO
+
+220CT 68 IN 18668
+
+1. AT HOME OF JORGE ALBERTO CARDOZA AGUILAR EVENING 41 18 OCT 68, LIREBEL-2 RECEIVED FOLLOWING INFO DIRECTLY FROM CARDOZA.
+
+2. JOSE LUIS BALCARCEL ORDONEZ AND JORGE ALBERTO CARDOZA AGUILAR ARE GUATEMALAN COMMUNISTS IN MEXICO WHO HAVE DIRECT CONTACT WITH SOVIETS IN MEXICO TO HANDLE TRAVEL OF GUATEMALANS TO SOVIET UNION AND FOR RECEIPT OF MONEY FROM SOVIETS. THEIR CONTACT IS NIKOLAY SERGEYEVICH LEONOV (281-132139), PRESS ATTACHE WHO LIVES AT MAZATLAN 206 (PRESS OFFICE).
+
+3. IF CONTACT REQUIRED FOR GUATEMALAN TRAVELLERS TO SOVIET UNION, BALCARCEL OR CARDOZA TAKE TRAVELLERS NEAR PRESS OFFICE IN CAR AND THEN GIVE THEM IDENTIFICATION CARD TO PRESENT TO LEONOVM THEY THEN VISIT OFFICE ALONE. IF CONTACT FOR RECEIPT OF MONEY OR EXCHANGE OF DOCUMENTS, BALCARCEL OR CARDOZA GO DIRECTLY TO PRESS OFFICE. LATELY, WIFE OF BALCARCEL HAS HAD MOST CONTACT WITH LEONOV AS EXTRA PRECAUTIONARY MEASURE.
+
+4. ACCORDING CARDOZA, LEONOV TO BE TRANSFERRED SOON AND
+
+SECRET
+
+Leonov
+
+201-132139
+
+Lionov

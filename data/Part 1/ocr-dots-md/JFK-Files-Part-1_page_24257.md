@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_24257.png
+
+Convert to MarkdownNotes on QRPHONE by Harvey B. DAITCHMAN
+
+1. **Revolutionary Image:** Discussed briefly how it is obtained. Pointed out there is a pattern to it which is discernable among revolutionaries. It is usually issue oriented in the beginning, the war being one of the key issues, and it gradually evolves into a desire to engage in practical activities which usually expressed best on a continuing basis through work in an organization. Also connected with this process is the gradual development of a different "outlook." It is usually a mixture of idealism and Marxism-Leninism-socialism-Mao Tse-tung thought. Usually unstructured but developing.
+
+It is possible in this stage to move from one group to another without any particular approbation being attached for this transience. This is particularly so if one starts way outside a M-L-ist group and moves inward towards it. Quite a different thing to start in a M-List group and go out.
+
+Also in development of a new outlook one comes to study a variety of revolutionary literature. This can take one into different areas, anarchism, GW advocacy, revolutionary nihilism, socialism, Marxist-Lenism, etc. However, to get to latter it must be done logically.
+
+2. **Tightly Structured Op:** Emphasis upon tight, controlled contacts which seek to accomplish a specific purpose--collection of info not necessarily one nor always one. Purpose is to lay ground work for future developments. Purpose to establish certain contacts which can be later used in either positive or negative fashion. Structured conversation is also essential. It too should seek to accomplish something, directed so as to be useful to future development of op: e.g., desire to have an explanation for an action to be undertaken later--so bring up in conversation with someone so that can use that conversation later as explanation for interest in a subject, knowledge of a subject, etc. It is checkable.
+
+3. **Study:** Most important aspect in opening phases of op. Without correct study and without development (understanding) of "correct outlook" one will always be a dilettante to the, outside looking in, someone who is useful to them "under certain conditions," but not someone who is reliable, and not a dependable revolutionary. This is really the key, the ideological tool, it will open doors that cannot otherwise be entered.
+
+4. **Contacts:** Those to be exploited now and those to be used in or for future time. In the beginning the contacts which are developed are to be used as a means of building his justification for having begun the serious study of Marx,

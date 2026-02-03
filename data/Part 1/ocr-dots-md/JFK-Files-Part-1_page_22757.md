@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_22757.png
+
+Convert to MarkdownVIA AIR
+(Special Air or Sea Pouch)
+
+DISPATCH NO. HKH-A-3314
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO : Chief, WHD
+
+FROM : Chief of Station, Habana
+
+SUBJECT : { GENERAL - Administrative <br> SPECIFIC - Arthur G. VAIVADA
+
+Reference: HAVA 755
+
+DATE 17 January 1957
+
+1. Discussions of the whole problem of VAIVADA's early TDY to Headquarters were held between the agent, the field case officer, and the Chief of Station on 13 and 14 January, as a result of which it became clear that, unless Headquarters has a compelling reason to the contrary, it would be advisable that the contemplated TDY be postponed until about the end of VAIVADA's current contract year, i.e., the period of July-August 1957.
+
+2. A number of important personal problems dispose VIAVADA to accept the delay in acquiring staff status that would accrue from such a postponement. His wife is sufficiently ill at this time from a form of nervous colitis as to recommend that she not travel now. His children would have to lose a semester of their schooling since the current semester began on 7 January. Moreover as he and family have resided in tropical areas for a number of years, VAIVADA would have to make a rather large financial outlay to purchase needed winter clothing for himself and his family which does not seem justified for a period as short as two months. Owing to several routine but time-consuming inquiries being made by the local ODACID in connection with his wife's visa application, there is no guarantee that VAIVADA would be able to depart Cuba before February 1957.
+
+3. On the operational side, in spite of the original Station request that VAIVADA's travel be expedited, advantages now of delaying his TDY outweigh the disadvantages, from the Station's point of view. Most important of these is that two promising sources currently under development by the Station, namely AMPHODARCH-6 and AMPHODARCH-10, were originally contacted by VAIVADA and he has since been the person working most closely with them. To substitute him with a relatively untrained cut-out at this point in their development is not desirable. On the basis of the original proposed timing of his trip the Station has however proceeded with firm plans to transfer handling of two other sources, AMPHODARCH-1 and AMBI-VALENT-5, to a reliable PBPRIME cut-out. This plan can be initiated whether VAIVADA departs now or later, and provides the ideal opportunity to take two low-level sources off VAIVADA's hands thereby freeing the latter to undertake new
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+FORM NO. 51-28A
+
+RI COPY 13 C/1 201-168881 2917
+
+MAR. 1949

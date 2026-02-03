@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_25239.png
+
+Convert to MarkdownNikita Khrushchov and Fidel Castro at the Likhachov Automobile Works, which they visited the day before May 1.
+
+The workers of the plant were holding a social evening at their Palace of Culture, and the distinguished guest was greeted by thousands of people. Both Nikita Khrushchov and Fidel Castro were presented with models of the ZIL car made at the Works. Before the concert, Nikita Khrushchov, Fidel Castro and his party saw a documentary film about the Works, which was the first Soviet automobile plant. Famous performers and amateurs took part in the concert, which wound up "with the "July 26th March". The last days were drowned in enthusiastic applause, and cries of "Viva Fidel!" and "Viva Cuba!" resounded in the hall long afterwards.

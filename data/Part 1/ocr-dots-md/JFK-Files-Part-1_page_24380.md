@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_24380.png
+
+Convert to MarkdownATIANTIC INVESTMENT CORPORATION
+
+CREDIT ACCOUNT
+Statement of Account
+LARRY A. CER
+
+June 17, 1969 - September 30, 1969
+
+| Date | Receipts | Disbursements | Interest Payables | Principal balance | Account balance |
+|---|---|---|---|---|---|
+| 5/27/69 | $ 3,200.00 |  |  | $ 3,200.00 | $ 3,200.00 |
+| 5/30/69 |  |  | $ 6.22 | $ 3,200.00 | $ 3,205.22 |
+| 9/30/69 |  |  | $ 40.00 | $ 3,200.00 | $ 3,246.22 |
+
+* 5% interest from day of deposit to day of withdrawal compounded annually on value date (6/17).

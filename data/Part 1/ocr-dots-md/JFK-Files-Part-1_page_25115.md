@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_25115.png
+
+Convert to MarkdownRudolph Petrovich SHLYAPNIKOV: Soviet Youth Leader on UNESCO scholarship (suspect KGB) who visited Mexico during September 1964 and was in contact with Subject at this time. (81)
+
+Leonid Vasilyevich NIKIFOROV: INTOURIST Representative in the Commercial Office and suspect KGB Officer. Subject used NIKIFOROV's car in January 1965, after he'd had an accident with his own car. (82)
+
+Yuriy Demitriyevich KALININ: KGB Chauffeur. He visits LICOWL/1's store frequently and Subject is often with him. Subject drove KALININ home after KALININ got very drunk at LICOWL/1's fiesta in September 1964. (20) (83)
+
+Jana KANKOVSKA: Secretary at the Czech Commercial Office. KANKOVSKA called Subject on 16 December 1964 and apologized for not being at home when Subject came over to pick up the "notes". (84)
+
+Alfredo MIRABAL Diaz: Cuban Consul in Mexico City and known Cuban Intelligence Officer. MIRABAL called the Soviet Embassy on 22 November 1963 and asked to speak to Pavel Antonivich YATSKOV, Consul and identified KGB Officer, who was unavailable. Subject took the call and spoke to MIRABAL using the familiar *tu*.
+
+**SUBJECT:** Forgive me for arriving late.
+
+**MIRABAL:** Did you recover the suitcase?
+
+**SUBJECT:** Yes.
+
+**MIRABAL:** Then it was arriving on the other trip.
+
+**SUBJECT:** Yes.
+
+**MIRABAL:** I called to tell you the following, that regarding that matter that we had talked about, to see if we would spend Sunday at Chapultepec park because my wife is preparing some food to eat there.
+
+**SUBJECT:** I'm sorry but I've just made plans for another trip and I'm leaving this very day. So please forgive me for not being able to go with you.
+(At this point Subject in error addressed MIRABAL as AZCUE and MIRABAL corrected him. COMMENT: MIRABAL replaced Eusebio AZCUE Lopez, Former Cuban Consul. COMMENT: According to LILYRIC Subject did not go on a trip.) Have you already talked with NECHIPORENKO?
+
+**MIRABAL:** I'd like to talk with Pavel YATSKOV.
+
+**Subject:** Wait a minute, he'll come now.
+
+**MIRABAL:** If he's busy I'll call him later, but I'll be available for the next half hour on # 11-28-47 (phone).
+
+**SUBJECT:** Okay. (121) (122) (123)
+
+SECRET

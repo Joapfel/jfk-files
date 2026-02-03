@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_23964.png
+
+Convert to Markdownor to continue
+
+~~The Cliché group~~ mentioned the group and it produced a news letter. He had promised them money, they put out one issue, and he never got any money. I heard that they were in contact with the Clichy group down ~~Stavelize~~ and were seeking some sort of recognition there, and/along the things that they had promised & they did a self-criticism admitting that they had done wrong to have accepted a 3 supervision and ~~I think~~ saying that they will ~~never do this again.~~
+
+(John Llewellyn Davis, you say who the hell is he)
+
+Yes.
+
+(We talked about Pablo) Is this Michael Rapp?
+
+He is a member of the Trotskyist IVth International - or was. He has been expelled from his heretical views, not that they all don't have heretical views, but his were extremely pro-Algerian. I think he has become an Algerian citizen. He is Belgian, I believe, or Dutch, but think with it is Belgian. He was arrested in Holland. He worked asx the FLN during the War, went to Algeria, was arrested in Holland, spent some time in jail, was released, then went to Algiers with his wife and became very active in the Bureau des Biens Vacantes, and then later the Bureau of the Socialist Sector. His influence has been of an ideological nature and he has very close ties with the Yugoslavs, and despite his Trotskyism and he has now been expelled, he is also not at all persons non grata with the Soviets. He has a group called Pabloites.
+
+(How did he hit on Pablo)
+
+This was his nom de guerre, I suppose.
+
+International
+
+He represented for a while a majority tendency in the Trotskyist movement.
+
+~~Bering held~~
+
+helped by the American SWP Socialist Workers Party. Finally expelled. I don't know the ins and outs of the Trotskyists very much.
+
+(When did you first run into him)
+
+Had
+
+I heard of him for years. The first time I saw him in the flesh was sitting in a cafe in Algiers. I never had anything to do with him. He used to hang out in a cafe which was right under the offices of Revolution Africaine, which was sort of a center for European Leftists and whatnot. It was called the Cafe Mix Very (?) Bit of reality
+
+(Did he ever have anything to do with Revolution)
+
+He made have had something to do with it later with Harbi but not under Verges.
+
+(If I meant in Europe, not Algiers.)
+
+No, no, nothing.

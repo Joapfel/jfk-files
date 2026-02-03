@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_23023.png
+
+Convert to MarkdownSECRET
+
+SEPARATE COVER ATTACHMENT TO:
+
+UFGA-19442, 14 JANUARY 1965
+
+IDENTITY A: Juan F. BLANCO Fernandez
+
+IDENTITY B: 6831 SW 6 Street, Miami, Florida
+
+IDENTITY C: 265-74-1026
+
+SECRET
+
+S/C attch#2
+UFGH-1944Z
+
+28/04 31 01/837
+
+201-332676

@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_26668.png
+
+Convert to MarkdownPOR. $ 800.00
+
+Recibi de los Sres. Trigueros y Ginard la suma de:—
+$ 500.00 QUINIENTOS PESOS MONEDA NACIONAL, por concepto de co-
+---------- misiones durante el presente mes por ventas hechas -
+por mi conducto.
+
+México, D. F. 31 de Enero de 1940.
+
+México D.P. 30 de Enero de 1940.
+
+TRIPLICIOS Y GINARD.

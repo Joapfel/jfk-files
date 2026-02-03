@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_24819.png
+
+Convert to Markdownf. TICHBORN was told NOT to use his pseudo, TICHBORN, on mail (LEP had received an envelope from TICHBORN which carried his pseudo on the outside as sender but had a phony address).
+
+2. TICHBORN submitted his proposal on the PRI study which he estimated would cost $3,800. Since it did not have a research plan or outline, LEP requested him to send one as soon as possible. TICHBORN believes Menendez is indispensable and that his services are worth the $2,000 he has projected. TICHBORN feels that his plan is not as complete as it might be but would be of a very useful size and scope and could be completed in six months. LEP briefed TICHBORN on the peculiarities of our operational interest in research as contrasted to the traditional academic approach. TICHBORN seemed to understand these distinctions very clearly.
+
+3. TICHBORN had a preliminary report entitled "Press Reaction to Balaguer". He said that last week he had finally found a newstand on 146th Street where he could buy daily issues (only about a day late) of El Caribe, Listan Diario and Ahora.
+
+4. LEP briefed TICHBORN on our (WH) reluctance to send him on ICAP missions to other areas. He indicated that he had not heard of the Spanish trip from John. He quickly said that he thought such a trip was justifiable from the standpoint of Spanish relations with Latin America, etc. etc.
+
+5. He agreed that he would be of very limited use for ICAP in other areas and said that he had so informed Train when such travel had been proposed earlier.
+
+Lee E. Patton
+DC/WH/6
+
+Distribution:
+
+Orig - TICHBORN (UOACE/ops)
+1 - Chrono

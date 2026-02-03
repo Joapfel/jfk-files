@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_25276.png
+
+Convert to MarkdownSECRET
+
+11. Arrangements were made for KAZANTSEV to meet with Bernardo FERNES Morales of the Direction General de Prensa (Foreign Ministry Press Section) on 29 September at 12:00 a.m.
+
+## B. Relations with other Latin American Powers:
+
+1. Vladimir Mikhaylovich PANOV, PAINT of the Soviet Embassy arranged a meeting between CHERKASOV and the Venezuelan Ambassador on 4 September. The Ambassador had previously expressed a desire to see CHERKASOV on that date.
+
+2. On 3 September PANOV made arrangements for CHERKASOV to see the Haitian Ambassador at 1:60 p.m. at the Haitian Embassy. PANOV also made similar appointments at the Guatemalan, Dominican, and Costa Rican Embassies. An attempt to contact the Honduran Charge d'Affaires was unsuccessful at that time, but an appointment was made later in the week.
+
+3. Gaston FORALES Barragan, Second Secretary of the Peruvian Embassy, contacted the Soviet embassy on 7 September concerning a communication about the disarmament question addressed to the President of the Chamber of Deputies and a note of Soviet opinion on the Suez question. Since Peru does not have diplomatic relations with the Soviet Union, NORAIRES could not send these notes to his country, and would return them to POPOV.
+
+4. On 12 September KAZANTSEV contacted Hugo NAVARRO Bolandi, First Secretary of the Costa Rican Embassy, who said he had attempted to reach KAZANTSEV about a certain matter, for President FIGUERES had told him that he would have an opportunity to see the Russian Ambassador both at dinner at the Foreign Office that day and at the reception in the evening.
+
+5. On 17 September the secretary of the Nicaraguan Ambassador made arrangements through Nikolay BOONOV, Embassy official, for a meeting between the two Ambassadors for 27 September at 8:00 p.m. in full dress.
+
+6. KAZANTSEV attempted on 19 September to arrange a meeting with Antonio CHOCANO Batres, First Secretary of the Guatemalan Embassy. CHOCANO appeared reluctant to commit himself to a specific date, and finally asked KAZANTSEV to call him on the 25th. KAZANTSEV seemed to ignore CHOCANO's disinterest in the matter.
+
+7. On 19 September LEONOV left a message at the Ecuadorian Embassy, saying that Ambassador KULAZENOV wished to invite the Ecuadorian Ambassador to lunch or dinner on 25 or 26 September. No definite plans were made.
+
+SECRET
+
+x

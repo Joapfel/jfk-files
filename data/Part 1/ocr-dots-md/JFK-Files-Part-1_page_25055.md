@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_25055.png
+
+Convert to MarkdownSECRET
+
+RID/CE: JKS/SC/nke
+
+BASED ON: Review of 201-305052*
+
+Para 2: HMMA-19696, 27 August 1962
+Para 2a: OSMA-13451, 12 January 1962
+Para 2b: HMMA-18727, 16 March 1962
+Para 2c: HMMA-19996, 10 October 1962
+Para 2d: HMMA-22652, 20 December 1963
+Para 3: HMMA-26081, 14 May 1965
+Para 4: HMMA-32359, 27 June 1967
+HMMA-30941, 22 December 1966
+
+FILE IN: 201-305052*
+
+SECRET
+
+GSP 1
+Excluded from search
+Search Key
+in process

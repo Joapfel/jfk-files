@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_23582.png
+
+Convert to MarkdownSECRET
+Security Information
+
+MEMORANDUM FOR FILE
+
+SUBJECT: Interview with Arthur G. VAIVADA
+
+1. On 28 August 1953, Arthur G. VAIVADA was contacted at a hotel in Washington, D.C., by the Costa Rican desk officer. Subject was briefed on the necessity of submitting an accounting of travel expenses and given the outlines of his training schedule. He also signed a pseudonym acknowledgement. In addition, subject was given his full August salary of $250 (old rate), although it developed that he had been given a half months' salary by the station prior to departure. He was told this overpayment would be subtracted from his travel reimbursement.
+
+2. On the night of 30 August 1953, subject was contacted at his apartment in Virginia. He requested our opinion as to the possibility of his wife's starting to take out citizenship papers now prior to departing for Argentina, and the desirability of this for cover reasons. He was told that the agency would probably not object (he would be given a definite answer in the near future), but that it might not be possible anyway since his wife was on a tourist visa. (This answer was also promised soon.) He was told that the new contract to be signed would not give either life of hospitalisation insurance, for reasons of cover. He was told that career agent status, which would be considered at the end of the two year contract to be signed shortly, would allow life insurance, but not hospitalization. It was explained to him that his present contract did not acknowledge him to be a U.S. Government employee, but that career agent status would grant that.
+
+NOTE: At all times the subject impressed the case officer with sincerity, willingness to abide by agency decisions in all matters, and showed a most cooperative attitude.
+
+3. Subject made the following points while discussing his Argentina assignment:
+
+a. His application for entrance to Argentina as a student is now in the hands of the Argentine Consul in Costa Rica. It should be granted in three months. He does not foresee any problems in this respect, but did ask what our plans would be if anything did prevent his going there. He was told that we would attempt to place him elsewhere, but that this was a contingency we couldn't make any plans about until something prevented his present assignment.
+
+b. Subject will keep in touch with the Argentine Consul through a friend in Ohio who will handle incoming and outgoing mail. This address has been given to the Consul. He believes that this offers no security problem, since the friend is an officer in the Air Force who briefs outgoing military attaches at bright Field and as such has a full security clearance. This friend is witting of subject's activities to the extent that he knows subject to be working partner for the U.S. Government in some sort of assignment. Subject's friend will be cautioned in this respect.
+
+c. Subject has told his parents that he is studying at MIT for awhile before deciding where to complete his studies. Communication through them will be through a friend at MIT on whom he submitted PRQ data when this friend was in San Jose earlier this year. (A security clearance request has been made by IHD/III). Subject's friend is also witting to a certain extent since he gave very general information when obtaining the PRQ data. For personal reasons to do with his marriage to a Costa Rican, there is no chance that his family in Illinois would make any sort of a trip to see him. 30 Aug. 53
+Jol. 16 881

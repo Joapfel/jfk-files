@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_24395.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR: Director of Finance
+
+VIA:
+
+MPS/BC
+OCC/MHMUTUAL
+
+SUBJECT:
+
+MHMUTUAL Escrow Account for CAPHONE/1
+
+1. It is requested that an MHMUTUAL interest-bearing escrow account be set up in an appropriate alias for agent CRPHONE/1. In accordance with an amendment to the agent's MOC concerning a severance bonus, the account is intended to accommodate annual payments of one month's salary for every completed year of satisfactory service. The initial deposit consists of $3,200, retroactively covering four years' service and computed at the rate of $800 per year. Additional deposits, in the amount of the agent's salary on the anniversary date of his contractual relationship (1 June), will be made annually to his account on or about that date.
+
+2. Any additional questions that might arise may be taken up with Chief, CA/CF, or with Miss Ann Jane Long.
+
+B. HUGH TOVAR
+Chief
+Covert Action Staff
+
+APPROVED
+
+Luis
+MPS/BC
+signed June 6
+
+CA-69-560
+
+SECRET
+
+<table><tr><td>6371</td></tr><tr><td colspan="2">Enclosed are documents:</td></tr><tr><td>CCH 90-34</td><td>and</td><td>Dec 23 '94</td></tr></table>

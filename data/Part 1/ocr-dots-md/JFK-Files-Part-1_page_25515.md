@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_25515.png
+
+Convert to MarkdownCONFIDENTIAL
+
+FROM.
+
+BUILDING SECURITY BRANCH
+
+DATE
+
+TIME
+
+NAME Alverez (Continued...) GRADE OFFICE
+
+INCIDENT TIME PLACE
+
+**SUMMARY OF INFORMATION:** the appropriate Agency officials. SUBJECT was given the phone number of the Security Duty Office and was requested to contact the undersigned later in the day when perhaps she could be given some concrete information. SUBJECT thanked the undersigned for the interview afforded her and departed the building stating that she would contact the OSDO later in the day. Responded to SR&CD and initiated an indices search which produced records of one covert source on each Mr. and Mrs. Alverez, and one covert reference file on Mr. Alverez. The Covert source files had been retired but will be forwarded to Mr. Kenneth Carroll at his request. Contacted and briefed Ed Duffy and Jack Poirier, PSD/OS, who referred the matter to Messrs. Kenneth Carroll, OB, and Greg Maruca, WH/SO, who requested and will be furnished with a copy of this report, and will initiate further checks within WH Division.
+
+In the opinion of the undersigned, SUBJECT was completely coherent and sincere in her conversation, and seemed completely rational in her conversation and actions.
+
+**ACTION TAKEN:** As stated above.
+
+PAUL W. LEVERONE
+REPORTING OFFICER
+
+CHARLES B. GOOD JR.
+CHIEF, BUILDING SECURITY BRANCH
+
+**DISTRIBUTION:**
+
+ORIG: DD/SEC (PTOS)
+COPY: C/PHY.SD
+COPY: C.PSD
+FILE: BSR'PHYS.SD
+COPY: WH/SO and Kenneth Carroll
+
+201-119 523
+
+CONFIDENTIAL
+
+COPY 1798
+
+CONFIDENTIAL

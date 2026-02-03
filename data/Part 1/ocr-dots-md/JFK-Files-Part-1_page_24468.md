@@ -1,0 +1,111 @@
+# JFK-Files-Part-1_page_24468.png
+
+Convert to MarkdownSECRET
+
+The Preparation for November
+Verwoerd's Bantustan Bluff
+Illusion, Emulation and Integration
+Free Mae Callory!
+Robert Williams Speaks from Peking
+Our Struggle in British Guiana
+Which Way for British Guiana?
+Crude Zeolones that Helped Destroy an Army
+New British Poets of the Left
+Mr. Rockefeller's Museum of Primitive Art
+A Handful of Those
+
+Rabah BITAT
+Brian BUNTLEO
+Wilcot Alfred FRAZER
+Clarence Sericre
+
+Dr. Cheddi JACOB
+Jeannette SCOTT
+Chou Chih-ching
+Ken GERRINO
+Kerion BROWN, Jr.
+Prem CHAND
+
+Volume 1 Number 9 (December 1963)
+
+Europe, too:
+Spain - the Strikes and the Parties
+The Crisis in Soviet Agriculture
+The alliance for Plunder
+The End of the Mexican Revolution?
+Why He Went to Cuba
+The Road of Revolution in Peru
+Cartoons from Ocuta
+The National Literation Struggle in South West Africa
+Underdeveloped Countries and the Problem of Peace
+The Kennedy Assassination.
+The Rights of Man in an Age of Abundance
+Repression and Torture in South Africa
+"Negroes" (filmed and staged in the U.S.A.)
+The Failure of the "Peaceful Road" in Chile
+U.S.A: The Shady Side of the Street
+Protest Through Music in South Africa
+Ornette Revisited
+
+Martin VALDES
+A.H. EVANS
+Robert TABER
+Carleton BEALS
+Phillip Abbott LUCE
+The C.C. of the M.I.R.
+CHAGO
+
+J. KOZOMQUIZI
+
+Andrew Gunder FRANK
+Fidel CASTRO
+James BOGGS
+Brian BUNTINE
+Wilcot Alfred FRASER
+Pedro ANDINO
+Texas TOPOR
+Todd T. KATSHIKIZA
+Karion BROWN, Jr.
+
+Volume 1 Number 9 (January 1964)
+
+The Revolution in Africa
+The People's Victory in Zanzitar
+What Kind of Independence for Angola?
+The Class Struggle in Africa
+Must They Hang?
+The Fight Against Revisionism
+Panama: "Big Steal"
+Support the Panamanian People's Just Struggle
+The Unfinished Revolution in the Philippines
+China: There, How and Whither?
+What China Means by "Readjustment"
+The Meaning of Black Revolt in the U.S.A.
+Five Young Afro-American Poets
+
+Unchain My Soul
+Don Cherry: Trumpet of the Year
+
+Editorial
+J.M. VERGEE
+Viriato da CRUZ
+
+Michael McCREEY
+Carleton BEALS
+
+MAO Tse-tung
+William J. PONERAY
+Keith BUCHANAN
+Anna Louise STROSC
+James BOGGS
+A.B. SPELLMAN
+Lorenzo THOMAS
+Sonia SANCHEZ
+Joe JOHNSON
+Le Roi JONES
+C. LINDSAY BARRETT
+Le Roi JONES
+
+SECRET
+
+ENGLISH CORPUS EXPLODED SECRET SIGNIFICANCE

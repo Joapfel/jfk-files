@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_25209.png
+
+Convert to MarkdownNEWSWEEK
+
+Mr. Robert KORENGOLD
+
+Position (Jan 65): Correspondent for NEWSWEEK Magazine in Moscow, USSR
+
+SOURCE and SOURCE's husband like the K's a lot, they are clever people and both well informed. Has good Soviet contacts and digs out the news through them. Both speak good Russian. He goes by the name of "Bud". Both are Jewish.
+
+DATE ACQUIRED: SEPTEMBER 1966
+
+Wife is French and would be a very good source for information on the nefarious activities of third nationals in Moscow.
+She is not Jewish as previously stated.
+
+15 SEP 1966
+
+SECRET.

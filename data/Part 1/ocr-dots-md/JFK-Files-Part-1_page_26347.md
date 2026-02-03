@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_26347.png
+
+Convert to Markdown**INFORMATION REPORT - INFORMATION REPORT**
+**CENTRAL INTELLIGENCE AGENCY**
+
+This material contains information affecting the National Defense of the United States within the meaning of the National Defense Security Act. Title 18 U.S.C. Secs. 701 and 702, the translation or modification of which is either forbidden or otherwise prohibited by law.
+
+SECRET/NO FOREIGN DISSEM
+
+COUNTRY Mexico/China
+SUBJECT Contact by Fernando Rico Galan With the Mexican Society of Friendship with People's China (SMACP)
+
+REPORT NO. CS-311/13138-66
+DATE DISTRIBUTED 28 September 1966
+NO. PAGES 1
+REFERENCES
+
+DATE OF 5 September 1966
+INFO.
+PLACE & Mexico, Mexico City
+DATE ACQ(6 September 1966)
+
+FIELD REPORT NO. H04-10677
+
+THIS IS UNEVALUATED INFORMATION. SOURCE GRADINGS ARE DEFINITIVE APPRAISAL OF CONTENT IS TENTATIVE.
+
+SOURCE: Mexican security officer with access to information derived from investigative activities. His reporting is believed to be reliable.
+
+On 5 September 1966, Fernando Rico Galan, one of those arrested, but later released, in the roundup of a group of subversives headed by his brother, Victor Ricardo Galan, and Naul Uzaldo Alvarez, visited the offices of the Mexican Society of Friendship with People's China (SMACP - Sociedad Mexicana de Amistad con China Popular). Rico held a closed-door meeting with Luis Torres Ordonez and Juan Larios Tolentino, both officers of the SMACP, for an hour and fifteen minutes. The subject matter of the discussion is not known.
+
+SECRET/NO FOREIGN DISSEM
+
+<table><tr><td>STATE</td><td>DIA</td><td>ACM</td><td>BREV</td><td>AIR</td><td>NBZ</td><td>AND</td><td>UCA</td><td>PRI #3</td></tr><tr><td colspan="9">CI/ICL</td><td>1615</td></tr><tr><td colspan="9">CI/CMV/AII</td><td>UIGA</td><td>1645</td></tr><tr><td colspan="9">EA/LST</td><td></td><td></td></tr><tr><td colspan="9">EA/MUL#3</td><td></td><td></td></tr><tr><td colspan="9">CIVIL</td><td></td><td></td></tr></table>
+
+**INFORMATION REPORT - INFORMATION REPORT**

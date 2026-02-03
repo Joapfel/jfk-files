@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_25330.png
+
+Convert to MarkdownSECRET
+
+EVA-1223
+Page 3.
+
+(continued)
+
+| ID-623 | Original Number | Photo No. | Identification and Station Comments |
+|---|---|---|---|
+| (11) | WFR 653/9 | | (Fm1) VASILYEV, General-Director of (UHA) Afo-Varta. |
+| (12) | WFR 582/4 <br> WFR 582/6 <br> WFR 582/14 | | Sergi Vasilievich GALANTY, General-Director of (UHA) A/O KAEHL, and his wife. |
+| (13) | WFR 582/4 | Petr A. CRICHE, Chief of UHA. | |
+| (14) | WFR 631/18 | (Fm1) ICATELY, General-Director of (UHA) Elicar-Label. Correct, identified this individual as D. A. ANOLOV, case officer of the Austria Group, KIB Residentura. | |
+| (15) | WFR 631/14 <br> WFR 653/17 | Alexander Ivanovich IVANLEV, head of the Finance Section, A/O KAEHL. | |
+| (16) | WFR 653/17 | (Fm1) ENAGATH, member of the Commercial Section, A/O KAEHL. | |
+| (17) | WFR 631/16 | Alexander Ivanovich KRUFLOV, General-Director of (UHA) Drown-Boveri. | |
+| (18) | WFR 582/4 <br> WFR 653/17 | Anatoly Kirilovich KLUTID, Second Deputy-Chief of UHA. | |
+| (19) | WFR 582/8 | Frank KUEHL, Austrian interpreter at the Soviet Information Center, allegedly an FBI agent. | |
+| (20) | WFR 582/4 | Gregori Aleksandrovich KULIUN, Secretary of the CPGU organization, UHA. | |
+| (21) | WFR 653/17 | (Fm1) LAVRINOV, Deputy-Chief of UHA. Correct name reported as LAVRINOV in E3-605. | |
+| (22) | WFR 582/4 | Nikolai Corotovitch KOZLOV, assisted by FENET and probably an EII officer. Correct name replaced V. ISKIMANOV, officer of the E3 Soviet Colony Group, in latter's cover position; E3-623's caption that he is EII, therefore, seems valid. | |
+| (23) | 995L/3 | Karl HAYER, Austrian interpreter in the 20th Bezirk Lization. Correct identification made by E3-623 A. | |
+
+APERTURE CARD REPRODUCED IN SECRET FORM
+SECRET

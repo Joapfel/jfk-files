@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_22872.png
+
+Convert to Markdown5. Daniel M. O'Connell, a member of the American youth group which toured Communist China after attending the Moscow Youth Festival, arrived in Hong Kong on 6 October 1957. O'Connell provided the Consulate General, Hong Kong, with information on some of the other members of the group. O'Connell said he saw Father Wagner in prison in Shanghai; he did not provide the Consulate General with more information about Father Wagner than appeared in the press. He was quite cooperative with the Consulate General (he turned over his passport) and was most anti-Communist in public and private statements. He described the greater part of the American group which attended the October 1 celebrations in Peiping as being politically and morally corrupt, and stated that only three members of the group, including himself, made any effort to defend the U.S. against Chinese Communist critics. The shortness of O'Connell's stay in Hong Kong prevented spending much time with him, but he stated that he would be happy to answer further questions after he returns to Chicago. (Foreign Service Dispatch, Hong Kong, number 289, 14 October 1957.)
+
+SECRET
+
+O'CONNELL Dan (Daniel Myles)

@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_23332.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+<table><tr><td>068-ES/DB/WCJ</td></tr><tr><td>DATE : 10 MARCH 57</td></tr></table>
+
+<table><tr><td colspan="2">SECRET</td></tr><tr><td>1</td><td>4</td></tr><tr><td>-2-</td><td>5-</td></tr><tr><td>3</td><td>6-</td></tr></table>
+
+<table><tr><td>Mar 11 91</td><td>3:55:57</td></tr></table>
+
+TO : DIRECTOR
+FROM : SAN JOSE
+ACTION : WH 5
+INFO : CI, CI/OPS, FI, FI/OPS, FI/RI 2, S/C 2
+
+REC'D CABLE SECT.
+
+IN 16366
+
+TO: HAVA
+RE: HAVA 826 (IN 15237)
+
+INFO: DIR
+
+CITE: SANJ 2491
+
+1. VAIVADA ADVISES SO FAR HE KNOWS NO OTHER CONTACT KNOWS TELEPHONE NUMBER. HAS NEVER REVEALED NUMBER TO ANY ONE AND HAS NEVER WRITTEN IT.
+
+2. RE GARAGE ADDRESS, ONLY KNOWS IT IS A "DIAMOND-T AGENCY GARAGE" LOCATED SOMEWHERE ON CALLE 2Ø DE OCTUBRE. SUGGESTS PR DUE BE REVIEWED FOR POSSIBLE PINPOINTING ADDRESS AND PHOTO.
+
+END OF MESSAGE
+
+<table><tr><td>SECRET</td></tr></table>
+
+IT IS FORBIDDEN TO MAKE A COPY OF THIS MESSAGE Copy No.

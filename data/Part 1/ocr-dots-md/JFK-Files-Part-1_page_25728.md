@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_25728.png
+
+Convert to Markdown18 October 1963
+
+MEMORANDUM TO: Contract Personnel Division
+SUBJECT : Raymond H. GERENDE (ps)
+
+1. It is requested that the current contract for Raymond H. GERENDE, be amended to include a Christmas bonus of one month's salary. This amendment should be effective immediately.
+
+2. GERENDE is an indigenous agent, and this Christmas bonus is normal for all employees in Mexico.
+
+Paul H. Arneson
+C/WH/Support
+
+O&I - CPD
+
+1 - WH/Pers
+1 - C/WH/Support
+1 - Subject'

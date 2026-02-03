@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_23575.png
+
+Convert to MarkdownSECRET
+SECURITY INFORMATION
+
+CONTRACT INFORMATION AND CHECK LIST
+
+COMPLETE ONLY APPLICABLE BLANKS
+
+Case Officer: John G. Heyn
+Tele. Ext. : 3992
+Date : 31 August 1953
+
+I. General
+
+A. Pseudonym Arthur G. VATVADA B. Project PIRADIAL
+C. Staff Agent , Career Agent , Contract Agent X Contract Employee Consultant Covert Detail Other (see CFR, Part 14.1)
+D. Is ultimate conversion to staff status anticipated? not known
+E. Is the individual presently engaged by CIA in any capacity? Yes Describe Contract agent - contract written 1949
+F. Clearance: Security , O/C X , P.O.C. Date 19 July 49
+G. T/O: Does this individual block a project T/O slot? No Slot No.
+H. Acknowledgement of pseudonym on file in WHD/II
+
+II. Proposed Assignment
+
+A. Duties (cutout, courier, reports, liaison and contacts, major or part-time operational duties, administrative etc.) Principal agent
+B. Anticipated Duration two years
+C. Permanent Post (City and Country) Buenos Aires, Argentine
+
+III. Personal Qualifications
+
+A. Citizenship U.S. B.
+C. Normal Residence (City and Country) Sterling, Illinois
+D. Marital Status Married E. Number of dependents (including spouse) 3
+F. Education (check) High School , College X, Post Graduate
+G. Military Status: Retired , Reserve , Draft eligible Has completed military service.
+H. (1) Highest salary earned $3,000 (2) Last salary earned$3,000
+I. Special qualifications for assignment (area experience, language contacts, technical or professional skills, general proven abilities)
+Four years experience as Principal agent in Costa Rica have proved him to be an excellent agent.
+
+SECRET
+
+FORM NO. 59-68
+MAR 1953 (g-12)

@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_24651.png
+
+Convert to Markdown14-00000
+
+CABLE SECRETARIAT DISSEMINATION
+PERSON/UNIT NOTIFIED
+ADVANCE COPY ☐ ISSUED ☐ SLOTTED
+
+ASSIGNED MESSAGE
+TOTAL COPIES 32
+ING AND/OR INITIALS - SEEN BY
+
+<table><thead><tr><th colspan="2">SECRET<br>(When Filled In)</th><th>GROUP I</th><th></th></tr></thead><tbody><tr><td colspan="2"></td><td>CLOSED FROM AUTOmatic</td><td>WH 6 C<sub>A</sub></td></tr><tr><td colspan="2"></td><td>DISTRIBUTION STATEMENT</td><td>C<sub>I</sub> 7</td></tr><tr><td rowspan="5"><input type="checkbox" checked disabled> ADVANCE COPY <input type="checkbox" disabled> ISSUED <input type="checkbox" disabled> SLOTTED <br> BY: ____________ AT: ____________ <br> DISSEM BY: 3 PER ____________ <br> ACTION: SB8 ☑ RID COPY</td><td></td><td>REPRODUCTION OF THIS COPY PROHIBITED</td><td>8</td></tr><tr><td></td><td>INDEX ☐ YES ☑ NO</td><td>9</td></tr><tr><td></td><td>CLASSIFY TO FILE NO. 2C1-132139 Temp cy - KJ of sent 20 may</td><td></td></tr><tr><td></td><td>X-REF TO FILE NO.</td><td></td></tr><tr><td></td><td>FILE RID ☐ RET TO S<sub>3</sub> 6/1/WH BRANCH ☐ DESTROY ☐ SIG</td><td></td></tr><tr><td></td><td>INFO FILE, VR. WH8</td><td>Calibrators calibrators flight alt.</td></tr></tbody></table>
+
+SECRET 16May8Z MAY 68 CIIE MEXICO CITY 5583
+
+DIRECTOR
+
+REDTOP
+
+REF: DIRECTOR 9992S
+
+ACTION
+
+16 May 68 IN 12506
+
+1. LISADDLE-2 DID NOT REOPEN CHANNEL TO SOVIET PRESS OFFICE NOR DID HE MAKE EFFORT TO DO SO. HE CLAIMED THAT THERE WAS NEVER VALID EXCUSE OR OPPORTUNITY.
+
+2. STATION SKEPTICAL ABOUT INFO IN PARAS FOUR AND FIVE OF HMMA-31117, 19 JANUARY 1967, DUE FACT ALLEGED VISITS TO SOVIET PRESS OFFICE TOOK PLACE SOMETIME BEFORE HE REPORTED INCIDENT TO STATION, AND HIS PROVEN FABRICATION OF INFO IN OCTOBER 1967. ON OTHER HAND, EXCEPT FOR OCTOBER 1967 FABRICATION DURING PRESIDENTIAL VISIT TO CIUDAD JUAREZ, HIS INFO BELIEVED BE RELIABLE. IN MANY CASES STATION WAS ABLE CHECK THROUGH OTHER SOURCES, AND ON STILL MANY OTHER OCCASIONS HIS INFO VERIFIED BY SUBSEQUENT EVENTS AND PRESS.
+
+SECRET
+
+BT
+
+File in Heavens 201
+201-132139
+
+SECRET

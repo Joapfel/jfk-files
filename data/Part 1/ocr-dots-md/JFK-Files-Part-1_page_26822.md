@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_26822.png
+
+Convert to Markdown<table><tr><td>ASSIFIED MESSAGE</td></tr><tr><td>SECRET</td></tr><tr><td>P.O. Box 12345</td></tr><tr><td>GUADELMALI</td></tr><tr><td>WH-8</td></tr><tr><td>Extract Copy ☐</td></tr><tr><td>☐ ...</td></tr><tr><td>UNIT TIME</td></tr><tr><td></td></tr><tr><td>DATE</td></tr></table>
+
+V.R. FILE, C.I. C/SC, CA-2 Cn/rksp. c2/crs -z/tc., DDP WHTN-9
+
+S
+E C R E T 2925252
+DIR MEXI CITE GUAT 4537
+
+30 JAN 65 17:70216
+
+REF: GUAT 4499 (IN61938) *
+
+FROM CORRIGAN
+
+DURING 29 JAN SESSION OF MIC OF CC. AND SPECIALLY MEETING MIN.
+SERRANO OF GUAT ANNOUNCED HE HAD AN INTERPRETIVE DOCUMENT TO PLAY,
+FOR PARTICIPANTS OF MEETING. PROCEEDING TO PLAY IS INCOMPLETE.
+RICARDO GALAN TAPE. LITTLE REACTION BY MINISTER'S CAFTAN BY.
+IT VERY INTERESTING, SERRANO HAS OFFERED TO COPY THE TAPE FOR ANY
+MINISTER SO DESIRING COPY. NO INDICATION ANY REQUESTed COPY.
+
+SECRET
+* IF HPS Concur's Sun Can't Contact, Please find
+CRI QUEST GOG Sun, For a Ten Day Leave

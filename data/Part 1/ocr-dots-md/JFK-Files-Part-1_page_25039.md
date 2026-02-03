@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_25039.png
+
+Convert to Markdownhandle this case for the time being. If he is unable to reestablish contact, he will be given another lead to follow up. LIEMPTY-3 is a very active person who has an extremely full business day, with many contacts. The Station believes that within this busy "cover" life, LIEPTY-3 can handle selected operational tasks without coming to hostile attention. As long as proper security precautions are taken by him in his operational activities, and by him and the Station officer (who meets him in alias) in their meetings, there is no reason why LIEPTY-3 cannot be a useful part-time contributor to the Station's REDTOP program for the foreseeable future.
+
+e. LIROCKET-1:
+
+1) LIROCKET-1 is met monthly, time and place arranged at the previous meeting. During these meetings he is debriefed on his twice-weekly teaching sessions at the MHHARSH Embassy. His regular student has been the Subject of 201-028975, and he has had occasional dealings with other MHHARSHers, particularly AESEASICK. The meetings with 201-028963 have not been of particular interest, and we had been waiting impatiently for the latter's replacement to arrive, so that LIROCKET-1 would have a better target to work on. It was LIROCKET-1 who came up with the first local confirmation of the identity of this replacement (MEXICO CITY 1105, 2 August 1969). Dealings with AESEASICK have been concerned with attempts by the director of the school where LIROCKET-1 teaches to borrow sociological films from the MHHARSH film office.
+
+2) It now appears, however, that LIROCKET-1 has reached the end of the line. For some time he has been involved in a rather messy divorce action, and in August LIROCKET-1 reported that his wife had denounced him to Mexican authorities as an RVROCK agent (a few months previously, she had denounced him as an MHHARSH agent). LIROCKET-1 was not inclined to take his wife's ravings too seriously since he considered her slightly nuts. However, LIENVOY reported that on 16 September 1969 LIROCKET-1's wife called 201-028975 and told him she had to see him urgently on something of extreme interest about her husband. 201-028975 told her to come to the Embassy, which she did, and she presumably repeated her accusation. Since that time, LIROCKET-1 has received a polite brush-off. He has been told that the MHHARSH Embassy has run out of funds for English language training, and that there would be no more lessons unless 201-028975's replacement, or the new Ambassador (when and if one arrives), wanted to rehire him. He was told, however, to check in regularly, and he was given, as usual, an invitation to the annual MHHARSH national day reception (he did not attend because he was ill). LIROCKET-1 has not spoken with 201-028975 since his wife's visit--all dealings have been through AEPOLYP, who has for some time been the paymaster for LIROCKET-1.
+
+3) LIROCKET-1 was not aware of his wife's visit, and even after the case officer, without telling him that we knew of the visit, brought LIROCKET-1 around to the conclusion that she might have done this, he still does not think that she spilled the beans to 201-028975. (It is apparent that the MHHARSHers, whether or not they believe Mrs. LIROCKET-1's story, have concluded that LIROCKET-1 represents a security hazard, and they are simply going to drop him. LIROCKET-1 will continue to press the MHHARSHers for an answer regarding his future with them, and if, as suspected, they keep putting him off, he will be instructed to break contact and he will be terminated by the Station.)
+
+4) Other than the blowing of LIROCKET-1 himself, little damage has been done. The wife has never seen the current case officer and knows none of the meeting arrangements or other
+
+<table>
+   <tr>
+    <td>FORM D-64 (40)</td>
+    <td>53a USE PREVIOUS EDITION.</td>
+    <td>CLASSIFICATION</td>
+    <td>S E C R E T</td>
+    <td>X CONTINUED</td>
+    <td>PAGE NO.</td>
+   </tr>
+  </table>

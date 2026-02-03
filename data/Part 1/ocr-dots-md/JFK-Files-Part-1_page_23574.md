@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_23574.png
+
+Convert to Markdown10 Sept 53
+
+MEMORANDUM FOR RECORD
+
+SUBJECT: Interview with Arthur G. VAIVADA
+
+1. On 9 September 1953 subject was again contacted at his apartment and the new contract was signed. Subject was told that the contract clause dealing with additional commitments not included in the contract was standard agency protection against unauthorized promises by persons contacting him, such as the case officer. He was told, however, that the case officer's personal experience has been that the agency makes all possible efforts to act in good faith and with common sense if contract problems arise at a later date.
+
+2. The "offset" provisions of the contract were explained, emphasizing the agency's view that any future cover business activity on his part would be possible only because of the salary he pay. Therefor, modest profits, if any, would be offset against salary due to him. It was pointed out that the case officer's understanding was that if subject's diligence resulted in sizable profits, the agency would probably consider revising the contract to allow subject a share of the profits. However, subject agreed that this question was really subordinate to the main purpose of a cover activity, which would be to obtain cover, not profits.
+
+NOTE: Subject's questions appeared motivated by the contract form, which was more complicated and "legalistic" in appearance than the one written in the field under which he has been operating for the past four years. His attitude at all times was most cooperative, and he agreed that the spirit in which the contract was carried out, on both sides, was as important as the provisions. It was carefully explained to him that ~~EXCEPT~~ IN particular the contracts served the double purpose of defining the rights and obligations of both himself and the agency, ~~EXCEPT~~ and for that reason may at points seem more "legalistic" than ~~EXCEPT~~ regularly necessary. However, subject stated several times that he had had nothing but the best of relations with the persons who have directed him so far, and it is the case officer's opinion that he has ~~EXCEPT~~ the utmost faith in the good intentions of the agency.
+
+3. Subject was informed that "Career" status, in which he has expressed interest over the past two years, would be considered at the end of the present two year contract, and would depend on his operational success during that period and his ability to provide durable cover which would enable hi to continue working for us.
+
+4. The subject's travel reimbursement is being handled by Hanke (x3504), and will be ready for him when he returns to Washington on or about 2 October. Subject went on vacation effective 10 September and will be at the following addresses during his vacation:
+
+September 10-14:
+Fran Williams
+5846 Access Road
+Page Manor
+Wright-Patterson
+Dayton, Ohio
+
+September 15-25:
+Mr. L. E. Crozier
+RR No 2
+Hartley, Illinois
+
+5. Subject will contact the case officer on his return to Washington. He has been given the following address in case he wants to contact us before that time:
+Paul F. Brandon, P.O. Box 262, Mt. Ranier Station, Mt. Ranier M.d.

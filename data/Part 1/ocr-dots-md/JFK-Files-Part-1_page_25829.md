@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_25829.png
+
+Convert to MarkdownVIA: Air Pouch
+
+DISPATCH NO. H24-A-7427
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO : Chief, WH Division
+
+FROM : Chief of Station, Mexico City
+
+SUBJECT: GENERAL— Operational
+
+SPECIFIC— Remon ALVAREZ Durent
+
+Reference: HM-1-V-4554
+
+ACTION REQUESTED: None
+
+DATE: 12 July 1957
+
+Attached for Headquarters retention are two copies of the subject's Visa application obtained from the Visa Section of the United States Embassy in Mexico City on 6 May 1957.
+
+Willard C. Curtis
+
+Encl.
+
+MSD/bct
+11 July 1957
+
+Distribution
+3 - Hqs w/atchmt
+2 - Files
+
+RI COPY
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+FORM NO.
+MAR. 1949 51-28A
+
+206-117523
+
+REDACTED 10/1/79
+
+206-117523

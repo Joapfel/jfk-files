@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_22919.png
+
+Convert to MarkdownC-82712 Case in -law of Subject
+
+C-82713 Wife of Subject
+
+These two cases are requests for CSA.
+
+We are forwarding the original of this request to the Office of Security, but since the husband of one of the subject's is under such IDFP COVER, we are setting up files and cards on these attached.
+
+Files set up per Mr. Brewer's instructions to be on 26 Apr 60.
+
+pat
+
+Copy for Justice C-25507
+file inside

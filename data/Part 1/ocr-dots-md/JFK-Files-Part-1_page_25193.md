@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_25193.png
+
+Convert to Markdown-3-
+
+#37 (FEDYANIN, Vladimir P.)
+
+Source does not recognize this man.
+
+\#40, 93, 138, 172 (PANASENKO, Ivan A.)
+
+\#40: Source thinks this man has something to do with the military; she has seen him with military attaches.
+
+\#93: No recognition.
+
+\#138: This man is from the Ministry of Foreign Affairs, speaks a lot of languages, including English and French. He is a good-looking, charming man, about 38-40 years old, 178 cm. tall, well built. She saw him at the 14th July French recep-tion, 1966.
+
+\#49 (SUNTSOV, Aleksandr V.)
+
+Source did not recognize this picture.
+
+\#72 (KURILENKO, Ivan P.)
+
+At first Source did not recognize this picture. She later said she had seen him during the de Gaulle visit and at various national day parties.
+
+\#97 (DITYATYEV, Dmitriy A.)
+
+Source did not recognize this picture.
+
+SECRET
+
+15 SEP 1966

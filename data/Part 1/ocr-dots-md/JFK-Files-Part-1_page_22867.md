@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_22867.png
+
+Convert to MarkdownSECRET
+
+American Student in China
+
+MOYER, Larry (Eli Larry)
+
+C. I. T. - U. S. A.
+Residence - New York
+Passport No. 922674 issued 4/13/56
+
+File Check Results
+
+1. Shelby Tucker, the American that went to China and refused to give the Chinese his passport, stated that the subject was non-Communist. (State Dept. Incoming Telegram No. 513 dated 10 Sept 57, from Moscow)
+
+2. Larry Moyer, a reported Communist Party member, attended a meeting on 6 January 1950, at the Independent Progressive Party (IPP) Headquarters at San Diego. The meeting was held by the members of the IPP Housing Committee for the purpose of making plans for their participation in the public Rent De-Control Meeting that was to be sponsored by the City of San Diego on 25 January 1950. (DFB-23641, 9 January 1953)
+
+3. The regular meeting of the Communist Party Morgan Hull Club was held at the home of Eli Larry Moyer on the evening of 14 March 1948. (This meeting was probably held in San Diego, California.) Eli Larry Moyer, a Communist Party member was among the members of the Independent Progressive Party that maintained a picket line at the entrance to the Chamber of Commerce Auditorium, in September 1948, when the California Un-American Activities Committee Hearings were being held. (DFB-19758, 22 July 52)
+
+SECRET
+
+MOYER, Larry (Eli Larry)

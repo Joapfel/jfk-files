@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_24167.png
+
+Convert to MarkdownSECRET
+
+Chief, KUWOLP
+
+X
+
+Chiefs, AP, WE, KURSK, KURIOT; Chiefs of Station, LONDON,
+BRUSSELS, ALGIERS.
+
+Chief of Station, PARIS/LCPIPTT
+
+DFDORIC/Operational
+QREBONY 20 October 1965 Contact with LCPIPTT
+
+1. Forwarded herewith as Attachment A is Career Agent Rufus P. RODIGAST's Contact Report of his 20 October 1965 meeting with QREBONY/1.
+
+2. Forwarded as Attachment B (USC) is the identity list for RODIGAST's Contact Report.
+
+3. Forwarded herewith as Attachment C is the "Progress Report" submitted by QREBONY/1 to RODIGAST at the 20 October meeting. A careful review of the report's content did not justify KUTUBE dissemination of any of the material therein.
+
+4. Copies of recent correspondence addressed to and sent by QREBONY/1 will be forwarded by non-accountable manifest as appropriate.
+
+5. Paragraph 5 of Attachment A refers to a security flap which has arisen in QREBONY/1's use of his S/W system. In a letter to LCPIPTT dated and postmarked 11 October and picked up by LCPIPTT 14 October, QREBONY/1 had prepared an S/W message. LCPIPTT received the following report from TECHS in Paris concerning this letter: "The envelope you sent has evidence of tampering. There was glue bleeding plus fiber tears, plus additional glue had been added to the upper flap (glue must have run and was sticking inside on the letter). S/W impressions were clearly visible under ultraviolet light (short wave and long wave) and also under a plain desk light."
+
+Attachments: As stated.
+
+Distribution:
+
+* ② - C, KUWOLP w/Atta. A,C, hi; B use
+* 1 - C, AP w/Atta. A,C, hi; B use
+* 1 - C, WE w/Atta. A,C, hi; B use
+* 1 - C, KURSK w/Atta A,C hi; B use
+* 1 - C, KURIOT w/Att. A hi
+* 1 - COS, LONDON w/Atta. A,C, hi; B use
+* 1 - COS, BRUSSELS w/Atta. A,C hi; B use
+* 1 - COS, ALGIERS w/Atta. A, hi; B use
+
+OCT 28 1965
+
+GFLA 3044
+
+26 October 1965
+
+SECRET

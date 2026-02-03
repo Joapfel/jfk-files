@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_24266.png
+
+Convert to MarkdownWard is going to France soon for a vacation with a girlfriend he refused to identify because he feels his apartment and phones are bugged "by at least ten intelligence agencies." Before he goes on vacation he intends to stop in Paris and meet with DRV and PRG officials as well as with Wilfred Burchett. (Ward also met with Jane Fonda prior to her recent trip to the DRV). Ward will try to visit QRPHONE in London sometime in September before he returns home. Ward claimed that a "wealthy benefactor" gave him some $1000 to cover the cost of his vacation. Ward himself is broke and makes only about $60 per week salary.
+
+DETROIT
+
+QRPHONE was unable to see Milton Henry, leader of the New Republic of Africa, who was on vacation in Japan. He did manage to see FNU Boggs, who is apparently no longer involved with radical organizations but who is acting as a clearinghouse for black and white radicals. QRPHONE characterized Boggs as less doctrinaire and less dogmatic than he had been in the past. Boggs' feeling about the black radical movement is that it is in considerable disarray.
+
+CHICAGO
+
+QRPHONE saw LPWEAKLY/1 who told him that he was trying to get an invitation to visit China. LPWEAKLY/1 told QRPHONE that if he went he would see about taking him along. This was the first that QRPHONE knew about LPWEAKLY/1's plans. QRPHONE was unable to see either Sidney Lens or Hal Block because they were out of town. He did corroborate the fact that Block had recently been to China. QRPHONE spent some time with Don Wright, who was a member of the RU delegation to China. Wright is now a full-time RU official responsible for organizing RU cells in the Mid-West and seems committed to revolution although he doesn't speak in M-L terminology. Wright stated that one problem now facing the RU involves national exposure, i.e., getting minorities to become involved with the RU. This is a change from past RU philosophy which was that
+
+SECRET/RYDAT

@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_25090.png
+
+Convert to Markdown3 March 1966
+
+HMMA 28421
+
+File: 201-305025) (KOSTIKOV)
+
+From the LICOWL-1 Progress Report
+
+HMMA 28421, 3 March 1966
+
+(Original filed in 201-741655)
+
+Processed by Millie Rodriguez, SR/O/WH. Date Process: 28 March 1966
+
+Valeriy V. KOSTIKOV (201-305025) [Subject reported on KOSTIKOV An detail in Reference]. During the summer of 1965, KOSTIKOV also asked Subject to obtain a prostitute for him. Subject did so but KOSTIKOV failed to meet the girl. Shortly thereafter, KOSTIKOV returned to Moscow.
+
+Reference mentioned is : HMMA 25677, March 1965
+
+SECRET
+
+1
+
+201-305052
+201-305055

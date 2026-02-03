@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_22885.png
+
+Convert to MarkdownSECRET
+
+American Student in China
+
+# TYLER, Patty (Patricia)
+
+**File Check Results**
+
+CIT-USA
+Residence - New York
+Passport No. 1 issued 6/12/56
+
+Photo attached
+
+1. No Record RI.
+
+2. Shelby Tucker, the American that went to China and refused to give the Chinese his passport, stated that the subject was non-Communist. (State Dept. Incoming Telegram No. 513 dated 10 Sept 57, from Moscow)
+
+3. See Steve Tyler.
+
+4. Mr. Council told O.O. that Mrs. Tyler interviewed Delmore and said he had finally called all of his friends and asked them to call and tell him what he thought of Delmore's picture.
+
+6/12/56
+
+PATRICIA GROLL TYLER
+
+TYLER, Patty (Patricia)

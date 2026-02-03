@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_23672.png
+
+Convert to MarkdownSECRET
+
+24 June 1964
+
+MEMORANDUM FOR: C/WH/SA/MOB/PM
+
+SUBJECT : Improved Sight for 7.62 Belgium (FAL) Rifle
+
+REFERENCE : a) Memo for the Rcd. dated 25 May 64, Subject: "FAL Silencer/Sights", from C/WH/SA/MOB/PM
+
+1. In accordance with reference a) the following material is provided:
+
+a) Three open rear sight hoods for the subject rifle.
+
+b) Three copies of instructions for installing the sight and zeroing the rifle.
+
+c) Three tool kits containing an adjustment screw driver and two files.
+
+d) 400 rounds of improved underloaded ammunition with cream of wheat filler. (Boxes marked with red strip. These should be substituted for the rounds already delivered).
+
+2. It must be understood that the limited time available would not permit more that cursory acceptance testing and the superiority of this sight over the standard unit has not been definitely established.
+
+3. The scope and mount requested in reference a) proved to be an unfeasible development in the time available. A mount could not be devised which was interchangeable with any FAL without extensive modification to the weapon.
+
+4. For additional information regarding this matter contact D. J. Hogan or D. R. Dunn on extension 3319.
+
+WALTER L. ERHARDT
+Chief
+TSD/Engineering Branch
+
+Attachments: As Stated
+
+Distribution:
+
+* 1 - Addressee
+* 1 - TSD/SDB
+* 1 - C/TSD
+* 1 - EB-81J
+
+SECRET
+
+GB 1 Excluded from classification by request and at request of the Secretary General.

@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_22807.png
+
+Convert to MarkdownNºSD 38055 A
+
+SECRET
+(EVEN WHEN BLANK)
+
+DATE
+
+3 April 1961
+
+I DO HEREBY DECLARE THAT MY TRUE AND LEGAL SIGNATURE IS:
+
+WITNESS:
+
+SECRET
+
+<table><tr><td>RIGHT THUMB PRINT</td></tr></table>

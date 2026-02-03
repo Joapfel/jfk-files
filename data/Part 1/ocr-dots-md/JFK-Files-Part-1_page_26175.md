@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_26175.png
+
+Convert to MarkdownINSTRUCTIONS:
+
+INSERT CARBON: FILL OUT FORMS COMPLETELY.
+SEND BOTH SHEETS TO FI/D.
+
+SEE CSI 10-7
+
+SECRET
+
+<table><tr><td colspan="4">Victor RICO Galan</td></tr><tr><td>2. ALIAS, VARIANT SPELLING, CTC NUMBERS, ETC.</td><td colspan="3">Armando COITK<br/>Sebastian KANELL</td></tr><tr><td>3. DATE AND PLACE OF BIRTH</td><td colspan="3">6 Feb 1928, El Ferrol, Spain</td></tr><tr><td>4. CITIZENSHIP</td><td colspan="3">Mexican (Naturalized)</td></tr><tr><td>5. PRESENT ACTIVITY AND LOCATION</td><td colspan="3">Journalist, Mexico</td></tr><tr><td colspan="4">6. OCCUPATIONAL SPECIALTIES, EDUCATION<br/>Prominent Marxist and radical writer</td></tr><tr><td colspan="4"><table border="1" style="width:100%; border-collapse: collapse;"><tr><th colspan="3">7. PAST-ACTIVITIES- INCLUDING MILITARY SERVICE</th></tr><tr><th>ACTIVITY</th><th>LOCATION</th><th>DATES</th></tr><tr><td>See attachment</td><td></td><td></td></tr></table></td></tr><tr><td colspan="4">8. OTHER SIGNIFICANT DATA (POLITICS, RELIGION) - ADD EXTRA SHEETS WHEN NEEDED<br/>See attachment</td></tr><tr><td>9. DESCRIPTION</td><td>(HEIGHT)</td><td>(WEIGHT)</td><td>(EYES)</td><td>(HAIR)</td><td>(RACE)</td><td>(OTHER)</td></tr><tr><td></td><td>5'9</td><td></td><td></td><td>Greying</td><td>Caucasian</td><td></td></tr><tr><td colspan="4">10. SPOUSE (IF WIFE, GIVE MAIDEN NAME)<br/>Ingebord DIENER de RICO Galan</td></tr><tr><td colspan="4">11. OTHER MEMBERS OF IMMEDIATE FAMILY AND ASSOCIATES<br/>Tilli PICHER viuda de DIENER, mother in law<br/>Bernando RICO-Galan, brother; Ana Maria RICO-Galen, sister</td></tr><tr><td colspan="4">12. INFORMATION REQUIRED (DEFINE SPECIFICALLY. GENERAL TERMS SUCH AS "DEROGATORY" MAY RESULT IN A SEARCH THAT DOES NOT FULLY MEET REQUIREMENTS.)<br/><br/>Travel, biographic, education, subversive activities</td></tr></table>
+
+SECRET
+
+<table><tr><td colspan="3">REQUEST FOR GREEN LIST</td></tr><tr><td>NAME CHECK Nº</td><td>170752</td><td>DATE</td><td>29 August 1966</td></tr><tr><td colspan="3">TO CHIEF, FI/D</td></tr><tr><td colspan="4">ORIGINATING OFFICER</td></tr><tr><td>NAME</td><td colspan="3">Christopher D. Costanzo</td></tr><tr><td>OFFICE DESIGNATOR</td><td colspan="3">Mexico</td></tr><tr><td>ROOM, BUILDING</td><td colspan="3">Ames 332</td></tr><tr><td>EXTENSION</td><td colspan="3">3655</td></tr><tr><td colspan="4">13. TYPE OF REQUEST (CHECK ONE)<br/>☐ FIRST TIME SUBMITTED<br/>☐ ADDITIONAL DATA<br/>☐ RECHECK FOR CURRENT</td></tr><tr><td colspan="4">14. INTEREST IN SUBJECT (CHECK ONE)<br/>☐ ESPIONAGE OR CE ACTIVITY<br/>☐ OPERATIONAL CLEARANCE<br/>☐ OTHER</td></tr><tr><td colspan="4"><table border="1" style="width:100%; border-collapse: collapse;"><tr><th colspan="2">ACTIVITY</th></tr><tr><td>See attachment</td><td></td></tr></table></td></tr><tr><td colspan="4"><table border="1" style="width:100%; border-collapse: collapse;"><tr><th colspan="2">DESCRIPTION</th></tr><tr><td>(HEIGHT)</td><td>(WEIGHT)</td></tr><tr

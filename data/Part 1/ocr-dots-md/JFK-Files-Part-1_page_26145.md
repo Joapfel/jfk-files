@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_26145.png
+
+Convert to MarkdownRICO, Victor (Oalan)
+
+201-33474
+
+Card 4
+
+EPA 7451, H.D. Report on Victor RICO Qalan's statements from the meeting of the Chamber of Commerce, July, 63.
+
+Juno (3)
+
+A-198, 19 Aug 63 Victor RICO Qalan, in the 21 August 63 issue of Siemre, answered the charges of Romulo Sanchez Mireles, presiding officer of the Chamber of Commerce, which is Mexico's House of Representatives. Sanchez, before a meeting of the PRI, had attacked those who undermine Mexico's institutions, customs, government, and political leaders. Rico answered that he and thousands of other foreign born Mexicans are discriminated against.
+
+HONI-SAY
+27 Aug 63 Evening: 21 Aug 63: 15 Nux of known Parxist, Communist, or leftist ideology appeared at offices of Gustavo DIAZ Ordaz, Min of Interior, including Subj., CS-3/558, 382 prominent leftist journalists. The geo had made no attempt to make previous contact with DIAZ. Lator informed his sides to inform visitors request for appt with him must be in writing and explain applicant's business, and visitors were to do it immediately. They left concenbly, saying they would send DIAZ telegram demanding audience. (TO: Subj one of principal organizers and participants in rally in favor of political prisoners held exC 18 Aug 63. Rally failed to be held as result of police intervention. Subj and other leading participants were arrested and released same day. HONI-SAY, TOUS-3/557,000)
+LITEMPO-
+E-
+
+A-1291 20 Mar 63 of loftist wely Siemre published art by Subj., regular contributor AnEmb, VexC to mag., advocating creation of new pol party to reflect ideology of former 9 Apr 63 Pros Lararo GARDENAS.

@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_26717.png
+
+Convert to Markdown14-00000
+
+Reel 72-MICP-23
+29 April 1965
+
+17.0 correct.
+
+Will Jardon have Fidel's speech on Sunday? He is sure he will, but thinks the complete text will be sent on Sunday. Should have it complete around 1800.
+
+18.5 In. Sra. Kicq with VKG, who answers. Greetings. VACG has been very busy with the Dominican affair. Some Dominican friends were at his house this morning and phoned a lot. Sra. K. says Beach won't get in. She read it. The U.S. last news is that they (insurgents) have taken the whole capital, Santo Domingo, and the Americans were disembarked. Beach won't go. That is the agreement made but people did not accept this agreement and fighting has continued...
+
+18.0 In. Edmundo (Jardon) with VG, who answers. There is some new. The Mar Peruvian Chancellor criticized the disembarkation of U.S. marines, stating that this was grave blow to inter-American relations...Washington states that Mexico criticized criticized the disembarkation of U.S., troops, in the secret session celebrated today in O.E.A. Colombia, Chile, Venezuela and Costa Rica protested that this unilateral action, and requested legal measures so this action would be a combined action. VRC asks for the force in which Mexico criticized this action. Nothing specific in this message. Should have it later. The bombarding of San Isidro has started - an hour ago. Informex should have text of Mexico by now. It would be good to ask for it. Call him if there is anything new. VRC is writing up this for "Siempre."
+
+19.0 In. Miric with VAG, who answers. The marines have entered action Yes. Two civilians have been killed. Miric says there is a new element. ...60 marines around the Embassy. They have opened fire against U.S. Embassy. They tried to enter 4 or 5 embassies. VAG thinks that these are pretends (for U.S. action). Miric thinks so. But thinks are more grave. Miric says that there are at least 2 Communist groups and one Pro-Castro group, called the 14 de Junio. They don't know whether they are the ones directing the rebellion or whether they just joined it, but there is great insistence that these are Communists, trained in Cuba and Czech. On their other hand, the 6th float of Caribbean is lined along the Dominican coast and a carrier. The Dominica Amb. in Washingtona continues to insist that this is a Communist attempt to take over Santo Domingo. Does Miric know that this Amb. is not a Dominican? Bogota Atiles is a U.S. citizen - legally.
+
+Ambassy of Mexico, Venezuela, Argentina, Costa Rica, and Colombia spoke in O.E.A. meeting - all protesting the intervention and that this is a violation of inter-American rights. Radio Habana only said that Mexico had censured this, VG says, but says O.E.A. is trying to cover the intervention. Yes, there is a petition to this effect by Venezuela, that O.E.A. should intervene. Does not say to legalize but means this. The Voice of America says that it is not true that insurgents are not in control the city, that the troops are trying to encircle some points which they hold in Santo Domingo and does not mention the attack of San Isidro. VG says that UP says that - in cables from San Juan - that insurgents hold the city, attacked San Isidro, destroyed 2 tanks and took 4 tanks. There are marines and police who are sellingLOCALLY defending Embassy and American property. U.S. citizens. There is a protest of Red Cross. Marines must do at
+
+Reel 72-MICP-23
+
+- 5 -

@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_23739.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>CLASSIFIED MESSAGE</td>
+    <td><table>
+     <tr>
+      <td>SECRET</td>
+     </tr>
+    </table></td>
+    <td>IN 7007 PAGE 25</td>
+   </tr>
+   <tr>
+    <td colspan="3">AND WILL POINT TO HER INSOLVENCY, LOSS OF HER BUSINESS, HER PRESENCE MEXICO, AND VARIED ASSORTMENT PAWN TICKETS AND BILLS AS EVIDENCE SHE NOT WORKING FOR ODYOKE. SHE TO STATE THAT IF SHE WERE IN ODYOKE EMPLOY SHE WOULD BE LIVING IN LUXURY RATHER THAN POVERTY.</td>
+   </tr>
+   <tr>
+    <td colspan="3">8. WAVE WILL CONTINUE CLOSE MONITORING OP IN HOPES A/I CAN EXTRICATE SELF FROM CURRENT RATHER PRECARIOUS SITUATION.</td>
+   </tr>
+   <tr>
+    <td colspan="3">SECRET</td>
+   </tr>
+  </table>

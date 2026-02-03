@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_23930.png
+
+Convert to Markdowngetting a doctorate in Moscow while sitting in London, and his wife spent most of her time writing his thesis. He would tell her, "now read this book and tell me what it says" and then "work this into my general thing". He had very little time. He also had some connections with the Chinese and had been to Peking, when I don't know, and had been invited to go to Peking last summer. He managed to keep from getting there. I suppose he felt that if he went, he did go to Moscow on several occasions, theoretically it was to see Prof. Poteshin. That was just before Poteshin's death. The Zanzibar revolution is a year old, so it was before the Zanzibar Revolution began early last year, must have been January. I saw him last at Orly Airport when he was a few weeks later on his way to Moscow. He took the Air France flight and he had an hour to kill in Paris, and I went out to the airport and saw him. He gave me some photos of Zanzibar.
+
+(You had known he was coming)
+
+Yes. They told me. This was for the magazine. Some of the photos that later appeared were the photos he brought. They were all one could get.
+
+Then he took the Air France flight to Warsaw and Moscow. When he came back of course, although he was Tanganyikan, Babu knew him and had strong confidence in him and had appointed him adviser to the Zanzibar High Commission here in London. The Commissioner, who had been one of the Sultan's men, had left. There had been a Civil Servant by the name of Omar, Omar Zoran, who remained. He said he didn't want to lose his pension, but he wanted a revolution or no revolution. He didn't know much about revolutions. In fact, he was very touching, because he asked us could we suggest books that he could read about revolutions. He was a time server. While he was quite useful as the First Secretary, nevertheless Babu couldn't trust him.
+
+So Dennis was put in as a sort of watchdog.
+
+until Babu arrived,
+
+When the Geneva Conference came up, Dennis was there. But as delegate as Zanzibar, the chief delegate, from Zanzibar. In fact, he had everybody sitting in as delegates, I sat in as a delegate from Zanzibar for a few minutes without even knowing it until someone came to let us know. He said it down, I went over to sit out. There I was sitting there. Somebody came up and took my photograph. I assumed that I was either being photographed by the CIA or by the State Department or the Soviet side, or both.
+
+(Did you ever see the product)
+
+No. I assume it was for private consumption. There was an East German

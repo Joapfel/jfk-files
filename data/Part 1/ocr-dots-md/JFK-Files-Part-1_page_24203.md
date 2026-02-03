@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_24203.png
+
+Convert to MarkdownDBB 71942, 25 January 1967 100-300-004
+
+Abstracted from pages 38 and 37
+
+q At a meeting held on August 14, 1966, STANFORD mentioned that Rbbert Williams allegedly has $1,000,000 available for the use of RAM.
+
+NY T-10 advised on September 26, 1966, that STANFORD prior to moving
+to Philadelphia on September 18, 1966, discussed RAM and ROBERT F. WILLIAMS
+with him. According to the source, STANFORD has alleged WILLIAMS has money
+available for RAM.
+
+During the course of the conversation, STANFORD stated that the contact man between RAM in the US and R. Williams' is one Richard GIBSON in Paris, France.
+STANFORD stated that GIBSON passes on messages from WILLIAMS and will be the man contacted by whoever is designated as a courier to go to China to get the money.
+
+Source also stated that he was told Richard GIBSON was living in the Ode
+Crystal Hotel (phonetèc), Paris, France, and was working out of the La Royale Cafe
+(phonetic), Paris, France.
+
+SECRET

@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_23977.png
+
+Convert to Markdown14-0000
+
+His group at the university of G instant, whie no longer exists, so fgm I'm
+told.
+MlSRO KITAZAWA - 2D Muhammad Said Flat 91. Cairo
+gam, was the Japanese representative to the Afro-
+Assian Solidarity Confereee. . He used to pass through Paris quite
+regularly. I don't think he is there any longer. Was much interested in
+the magazine. He used to use the pseudonym of Walter Johnson
+sometimes.
+
+Ab
+~~Karina~~ Karina?
+was one of the leaders of the ~~SWAPU~~ group of
+Southwest Africa.
+
+used to send in articles. I knew him personally from
+New York.
+
+has been going back and forth between Peking and also
+East Germany and West Germany. He's playing all sides. on this Southwest
+Africa thing.
+
+Corcugirziz
+(SWANU & SWAPU)
+is the head of Swan, the other Southwest Africa group.
+(Swan & Sway)
+
+Thars, They have a unity. . once there was a struggle between Corina
+Korengizi Korina
+and Cochamoina. It was virtually eliminated. Karina is an American agent,
+and so forth. The Last story that I heard about Corina was that he was
+working for the Peace Corps in Bechuanaland. These are the stories that
+they circulated. Karina has been unable to hold up his end of it. He is
+kind of sulking. And violence hasn't helpt him at all. Karina
+has embarrassed people i over and over- - monomania for his work!
+Abdul Rahim KARIM (190a Finchley Rd., Lond w3) special representative now, in London, for Verges.
+He is in Singapore. His article on Malaysia, against Malaysia, was greatly
+appareicated by the Indonesian government and a large number of copies
+of the issue of Revolution which contained it were bought up and i twas
+later reproduced. We received from Indonesian Embassies all around sub-
+xxxiixiiixxxiii. orders for that issue. Subscriptions came from the UN, their
+missions to the UN, perhaps here in London.
+
+✓ Julian Academy of Science, P.O. Box 2 848, Accra.
+Mayfield, in Ghana doesn't use this address as often as he used to.
+because he is now editor of something called the African Review. It is
+a new magazine..
+
+✓ Now here's an interesting fellow- Mena, I aver quite figured him
+out. He is a Bush-Prom nationalist. in Amsterdam. He is close to almost
+all the Left parties. there. He pretends to be Marxist but claims that he
+is not involved in the Sino-Soviet schism. He doesn't want anything to do
+with that. That is the reason he never wrote anything for the magazine.
+though I did see him. ✓
+
+F. M. MOLL - Amstelkade 157, Amsterdam

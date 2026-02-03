@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_24844.png
+
+Convert to MarkdownSECRET
+
+21 September 1966
+
+MEMORANDUM FOR: Chief, WH Support
+SUBJECT : Edward G. Tichborn
+
+1. Contract Agent Edward G. Tichborn, formerly assigned to Mexico City Station, departed that post on 1 August 1966. Effective that date he has been assigned PCS to New York City, New York, to carry out political action tasks as required by WH Division and other operational components of the Agency. While located in New York City, he will be employed for cover purposes by the DODS proprietary WUSALINE.
+
+2. Incident to this transfer, WH Division has agreed with Tichborn to an increase in salary to $17,000 and a new contract reflecting this amount as the new gross salary should be prepared to be effective 1 October 1966. The new contract should include a salary offset clause to insure there will be no duplication of payment and reflect the various hospitalization and insurance benefits included in the existing contract.
+
+3. Salary payments through 30 September and other costs arising from his transfer from Mexico City to New York City should be charged to Project LICOLIC. A new project reflecting the increase in salary will be prepared by Branch 6 to be effective as of 1 October 1966, and salary as well as other operational expenses incurred subsequent to that date should be charged to the new project. WH Division Branch 6 will have responsibility for project management as of 1 October.
+
+4. I suggest that this matter be brought before the reactivated WH agent board for "official ratification."
+
+Gerard Droller
+C/WH/CA
+
+SECRET
+
+ECI-253203

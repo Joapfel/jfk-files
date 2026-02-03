@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_23496.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+ORIG : T.J. DESMOND
+UNIT : WH III
+FXT : 3229
+DATE : 29 JUNE 1954
+
+BOUTING
+
+<table><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+TO' : CHIEF OF MISSION, SAN JOSE
+FROM : DIRECTOR, CIA
+CONF : WH 4
+INFO : DD/P-ADMIN, FI/ADMIN, PP 2, FI/RI 2
+
+DIR 07068 (OUT 58461) 12422 30 JUN 54 ROUTINE
+PRECEDENCE
+TO: SANJ
+REF: DIR 07067 (OUT 58460)
+IDEN - TH.
+CITE: DIR
+
+END OF MESSAGE
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+AUTHENTICATING OFFICER
+
+IT IS FORBIDDEN TO MAKE A COPY OF THIS MESSAGE Copy No.

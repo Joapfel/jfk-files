@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_24332.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+Authorities of the island concerned if at any time you contemplate going there to live.
+
+This cancellation of conditions extends to Northern Ireland and the Isle of Man only as far as residence is concerned. If you are going to take work in either place, you will have to consult the Northern Ireland Ministry of Health and Social Services or the Employment Division, Government Office, Isle of Man.
+
+Your passport and police registration certificate have been endorsed and are returned herewith. The endorsement in the registration certificate shows that you are now exempt from registration.
+
+I am Sir/Madam
+Your obedient Servant
+
+Also enclosed:
+
+2
+
+SECRET

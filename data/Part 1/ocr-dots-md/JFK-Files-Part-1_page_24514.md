@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_24514.png
+
+Convert to Markdown# LAS RELACIONES PELIGROSALES
+
+Cuando se anunció que nuestro país iba a establecer relaciones con los países socialistas, entendimos que dichas relaciones serían aprovechadas convenientemente desde el aspecto comercial, sin descartar por supuesto la vinculación de amistad que siempre robustece transacciones y mejora el cuadro de las necesidades y vital internacional.
+
+Al mismo tiempo que expresábamos nuestro resplaldo pleno a dicha resolución, que marcaba, lo creíamos de buena fe, una nueva otnpa con el ensanchamiento de las posibilidades económicas para el Perú; hicimos constar también nuestro reconocimiento por los datos que aporta la experiencia acerca de este tipo de vinculación con países de la órbita roja, que siempre llevan escondido el propósito subversivo, de injerencia en los asuntos internos, do penetración en sindicatos y de financiación de movimientos contra el orden establecido.
+
+Estos temores estan recibiendo confirmación. Y lo están siendo apenas iniciemos las relaciones con los países socialistas, en especial con la Unión Soviética. Cuando todavía no llega la delegación diplomática más importante ya han visitado el país prominentes miembros de organismos comunistas, caracterizados más que por una honesta función diplomática, por la acción subvorsiva que realiza ron en otros países.
+
+Uno de esos personajes que nos viniará recientemente bajo la inocente apariencia de una actividad periodística, fué NICOLÁI LEONOV, elemento que registra antecedentes subversivos, que ha sido cabeza de un movimiento financiador de extremistas y que en distintos puntos de América ha dejado sentir su acción discursos, de injerencia en asuntos internos y como elemento de apoyo a movimientos nacionales de acción contra el orden establecido.
+
+Nicolai Leonov ha sido sindicado por diversos organos de prensa de América Latina, como elemento peligroso, tal como lo señalan diarios de Venezuela y Co-

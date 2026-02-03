@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_22609.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+(When Filled In)
+
+20 JUL 1960
+
+MEMORANDUM FOR: Chief, MI Division
+ATTENTION : Miss Charlotte Zehrung
+FROM : Deputy Director of Security (Investigations and Support)
+SUBJECT : S-8760
+215483
+
+1. Reference is made to your memorandum dated 22 April 1960 wherein you requested a covert security approval to cover the possibility that Subject may learn of details of her brother-in-law's work for this Agency. It is understood the Subject resides with her brother-in-law and his wife, and although she is aware he does confidential work for the U.S. Government, she is not witting of his Agency connections. It is also understood that no direct revelation of the Subject's brother-in-law's work for this Agency is intended.
+
+2. In accordance with the provisions set forth in Clandestine Services Instruction No. 10-5 and Clandestine Services Instruction - Field No. 10-5, a covert security approval is granted for the use of the Subject, as described in your request as set forth in paragraph 1, above.
+
+3. A memorandum containing pertinent information regarding Subject is being forwarded to CI/OA this date. CI/OA should be contacted and this information reviewed prior to any utilization of Subject.
+
+4. Subjects of covert security approvals are not to represent themselves as, nor are they to be represented as, employees of CIA.
+
+5. Your attention is called to the fact that a covert security approval does not constitute complete compliance with the provisions of CIA Regulation 10-210. Therefore, if you should desire at a later date to change the status or use of this individual, a request for approval to cover any proposed change should be submitted to this office.
+
+6. This approval becomes invalid in the event the Subject's services are not utilized within six months of the date of this memorandum.
+
+FOR THE DIRECTOR OF SECURITY:
+
+Fred H. Hall
+
+S-E-C-R-E-T

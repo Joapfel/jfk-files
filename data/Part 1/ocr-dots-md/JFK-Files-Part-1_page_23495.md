@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_23495.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+ORIG : T.J.DESHARD
+UNIT : WH III
+EXT : 3229
+DATE : 29 JUNE 1954
+
+<table><tr><td>SECRET</td></tr></table>
+
+ROутИНg
+
+<table><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+TO : CHIEF OF MISSION, SAN JOSE
+
+FROM : DIRECTOR, CIA
+
+CONF : WH 4
+
+INFO : DD/P-ADMIN, FI/ADMIN, PP 2, FI/RI 2
+
+DIR 07067 (OUT 58460) 12422 30 JUN 54
+
+TO: SANJ
+
+REF: SANJ 1282 (IN 23201)
+
+CALL REPUBLIC 7-3811 BETWEEN NINE A.M. AND FOUR P.M. ON ANY WORKING DAY AFTER ARRIVAL WASH. ASK FOR IDEN.
+
+END OF MESSAGE
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+RELEASING OFFICER
+
+AUTHENTICATING OFFICER
+
+IT IS FORBIDDEN TO MAKE A COPY OF THIS MESSAGE Copy No.

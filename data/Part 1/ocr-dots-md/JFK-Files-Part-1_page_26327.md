@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_26327.png
+
+Convert to Markdown<table><thead><tr><th>DATE</th><th>CONTACT</th><th>REASON FOR CONTACT</th><th>SOURCE</th></tr></thead><tbody><tr><td>16 Jan. 57</td><td>Soviet Embassy</td><td>Accepted invitation to Reception</td><td>LIEFAT/LIBRICK</td></tr><tr><td>9 July 59</td><td>Stanislav RACZKA, employee of Polish Location (Press and Propaganda Section)</td><td>Meeting</td><td>LITMUS</td></tr><tr><td>22 June 60</td><td>Aleksander HEKIER, Counselor Polish Embassy</td><td>Arranged to introduce HEKIER to Carlo COCCIOLI</td><td>HMA 15203</td></tr><tr><td>12 July 61</td><td>Teresa PROCENZA Proenza (of Cuban Embassy - Cultural Attache)</td><td>Invited to 26 July 61 celebration</td><td>LIENVOY</td></tr><tr><td>12 Sept. 61</td><td>Froylan C. MARJARREZ Manjarrez (Prensa Latina reporter)</td><td>Subject gave despedida for leftist newspaperman going to Prague and Moscow</td><td>LIENVOY</td></tr><tr><td>10 Apr. 62</td><td>Piotr HASIUK (of Polish Embassy)</td><td>To attend dinner party given by Aleksandor HEKIER</td><td>LIENVOY</td></tr><tr><td>10 May 62</td><td></td><td>Subject will receive invitation to Cuba</td><td>LIENVOY</td></tr><tr><td>14 June 62</td><td>Teresa PROCENZA Proenza</td><td>Subject was recommended to Ambassador Carlos LECHUGA Havia for trip to Cuba</td><td>LIENVOY HHI-6486</td></tr><tr><td>4 July 62</td><td>Piotr HASIUK</td><td>Will send Subject some material</td><td>LIENVOY</td></tr><tr><td>14 July 62</td><td>Ector AMAYA (of Prensa Latina)</td><td>Subject requests material from Habana for publication in Siempre</td><td>LIENVOY</td></tr><tr><td>11 Sept. 62</td><td>Yolandra PALACIO (of Prensa Latina)</td><td>Discussing statement issued by U. S. Department of State on case of Cuba</td><td>LIENVOY</td></tr><tr><td>12 Sept. 62</td><td>Fernando REVILLA (of Cuban Embassy)</td><td>Arranging meeting with Ambassador Carlos LECHUGA Havia</td><td>LIENVOY</td></tr><tr><td>26 Sept. 62</td><td>Ana Maria BLANCO (of Cuban Embassy)</td><td>Subject requests visa for Cuba from Amb. Carlos LECHUGA Havia</td><td>LIENVOY</td></tr><tr><td>26 Sept. 62</td><td>Habana via New York</td><td>Ask to Eduardo JARDON (of Cuban Embassy) when Subject would go to Cuba</td><td>LIENVOY</td></tr><tr><td>1 Oct. 62</td><td>Edmundo JARDON (of Cuban Embassy)</td><td>Discuss Subject's trip to Cuba</td><td>LIENVOY</td></tr><tr><td>9 Oct. 62</td><td></td><td>Subject received courtesy visa to go to Cuba</td><td>LITAMIL-7</td></tr></tbody></table>
+
+SECRET
+
+CS COPY
+
+SECRET
+
+201-33647X
+
+<table><tr><td colspan="2">U.S. Embassy, Havana</td></tr><tr><td>Reconstrucción de la<br/>Estación en el<br/>Marble Hall</td><td>NMMA 30355</td></tr></table>

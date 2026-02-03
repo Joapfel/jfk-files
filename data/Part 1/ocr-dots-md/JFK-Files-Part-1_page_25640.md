@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_25640.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td colspan="2">SECTION II<br>MO TIVATION AND CONTROL</td></tr><tr><td>1. ESTIMATE SUBJECT'S MOTIVATION. (Be detailed, of possible cite evidence. Do not use stock control such as "ent. communi.)<br>Lit, a highly motivated I. D. B. R., is requested to Mexico, so he goes to July Movement, or military group, etc. He is from country of RATINA & bring democracy again to clean. However, Subject has been convinced that the CASTRO regime has been infiltrated by Communists and CASTRO, his former friend, has done nothing about it. Since, therefore, is motivated by extraneous.. e. to rig fens of the</td><td>Case Officer has little control or no control over Subject, It is more of a cooperative arrangement wherein Subject is willing to assist PBPRIKE in its desire to get rid of CASTRO.</td></tr><tr><td colspan="2">SECTION III<br>C OVER</td></tr><tr><td>1. COVER USED BY SUBJECT AND CASE OFFICER IN THEIR MEETINGS.<br>Meeting usually at LITAHIL-1's business office, where Case Officer could pass as a client</td><td></td></tr><tr><td>2. COVER USED BY SUBJECT IN OBTAINING HIS INFORMATION AND IN CONTACTING HIS INFORMANTS.<br>Subject : long time friend of officials of the Cuban Embassy, merely listens to his friends relate their problems & activities.</td><td></td></tr><tr><td>3. INDICATE SERVICE FOR WHICH SUBJECT THINKS HE (Will work) (Is working).<br>Subject knows he is cooperating with PBPRIME intelligence agency.</td><td></td></tr><tr><td colspan="2">SECTION IV<br>INTELLIGENCE CONNECTIONS AND TRAINING</td></tr><tr><td>1. EXPLAIN SUBJECT'S KNOWN PAST OR PRESENT CONNECTION WITH ANY OTHER INTELLIGENCE SERVICE. INDICATE THE EXTENT OF CONNECTION IS KNOWN OVERTLY.<br>Subject is not known to have worked for any intelligence service; however, his service with the 26 of July Movement during the period 1957-58, has equipped him well for intelligence work.</td><td></td></tr><tr><td>2. LIST OTHER INDIVIDUALS (Agents, relatives, friends) WHO KNOW OF SUBJECT'S PRESENT INTELLIGENCE ACTIVITIES.<br>LITANIL-1 knows that Subject is cooperating with PBPRIME.</td><td></td></tr><tr><td>3. EXPLAIN ANY TRAINING SUBJECT HAS WAD IN CLANDESTINE OPERATIONS.<br>None. However, Subject was involved in several clandestine movements while treasurer of the 26 of July Movement during 1957-58.</td><td></td></tr><tr><td colspan="2">SECTION V<br>COLLABORATION POTENTIAL</td></tr><tr><td>1. INDICATE OTHER FOREIGN POWER SUBJECT WOULD BE MOST LIKELY TO COLLABORATE WITH BECAUSE OF HIS IDEOLOGY OR PAST ASSOCIATIONS. EXPLAIN.<br>Cuban Government.</td><td></td></tr></table>
+
+SECRET
+
+2
+
+SECRET
+
+14-00000.

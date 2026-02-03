@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_26191.png
+
+Convert to MarkdownSECRET
+
+Contacts:
+
+Victor RICO Galan is known to have been in contact with the Soviets as early as November 1956 when he was invited to attend a reception at the Soviet Embassy in Mexico City.
+
+Umanislaw RACZKA, employee of the Press and Propaganda Section of the Polish Legation in Mexico City was in contact with RICO in July 1959.
+
+Aleksandr BEKIER, Counselor of the Polish Embassy in Mexico City and known Intelligence Officer. RICO arranged for him to meet Carlo COCCIOLI, a homosexual Italian pro-Communist writer for *Siempre* magazine.
+
+Mariano GARCIA Perez, Cuban Consul in Merida, who while in Mexico City in July 1966 was in contact with Victor RICO Galan.

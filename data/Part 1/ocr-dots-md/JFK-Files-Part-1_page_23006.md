@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_23006.png
+
+Convert to MarkdownSECURITY INFORMATION
+SECURITY INFORMATION
+
+6 August 1953
+
+MEMORANDUM TO: FILE
+
+FROM: James R. Burton
+
+SUBJECT: Project BIRADIAL
+
+1. BIRADIAL (formerly HUMANOID) is the only agent involved in this operation at the present time. Additional agents are expected to be added at a later date.
+
+2. The Case Officer reported that the agents other than BIRADIAL formerly used in the HUMANOID operation would be picked up by other operations in the Costa Rica area in the near future.
+
+3. The Case Officer was instructed to report the change in BIRADIAL's cryptonym and use to STC/SPB and also the changes for the other agents when their transfer to new projects has been accomplished.
+
+4. STC/SPB concurrence is subject to further review of operation after six months when Conno details will be known.
+
+STOCFT
+SECURITY I...

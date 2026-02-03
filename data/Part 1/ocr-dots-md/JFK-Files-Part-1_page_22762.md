@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_22762.png
+
+Convert to MarkdownSECRET
+
+14 February 1963
+
+MEMORANDUM FOR: Chief, Finance Division
+
+SUBJECT : Harold R. HOBWAYR, Career Agent - Request for Advance Against Earned Salary
+
+REFERENCE : MR 30-410, dated 20 May 1955
+
+1. Subject has recently transferred to Headquarters PCS from JMLAVE. He is presently arranging to move into new quarters on 1 March 1963 and is short of funds to effect this transaction.
+
+2. It is therefore requested that HOBWAYR be advanced $500.00 against earned salary totalling approximately $895.00 due him for the pay period ending 16 February 1963.
+
+HOWARD J. PRESTON
+Chief,
+Special Affairs Staff/Support
+
+cc: SAS/Pers
+
+<table><tr><td>SGE</td></tr></table>
+
+201-161881

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_24661.png
+
+Convert to MarkdownNicolas LEONOV, Press Attache
+
+LEONOV is an extremely bright, intelligent man, and very quick-thinking. He is popular among the press people because he appears very frank, open and nice to them. He is not the kind, like many other Soviets, who is afraid to make comments, in his own name, on news items and this pleases the press who like personal opinions if nothing more. He is helpful and hard-working and any reasonable request he makes an effort to fulfill.
+
+Apart from his work with the press, he does appear to be involved in intelligence work. He meets with David, Juan Rejano and another man (name not known) on matters which appear to have nothing to do with his press activities. It is possible that money is channeled through LEONOV for economic aid to certain magazines and propaganda work (perhaps even to the University groups although he is very cautious and this many not be true).
+
+LEONOV tolerates (but does not love) his wife, who is quite a shrew. He apparently continues to live with her for the sake of their daughter, Irina, but they appear to have nothing in common. LEONOV is very popular with nearly everyone, but LEONOVA is almost universally disliked.
+
+The actual work of the Press Office he leaves nearly entirely in the hands of his employees, who appear to do their job quite well. They only consult him on special problems and money matters, but he appears to devote very little time to the actual work done at the office. He is busy making contacts, seeing people, visiting newspapers and doing extra and special jobs for the Embassy (since his Spanish is so good and his personality so nice). He interprets for most of the important Soviet artists when they come to Mexico and he accompanies the Ambassador on many occasions. The previous Amb. apparently trusted his judgment greatly and called on him frequently.
+
+LEONOV apparently plays chess quite well and likes to hunt and fish, but is unable to devote much time to this. He has quite a social life, but mostly alone, and he appears to be high in favor in the USSR since he is able to take vacations frequently and do, more or less, as he likes.

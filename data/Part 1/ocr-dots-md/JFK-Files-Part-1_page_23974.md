@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_23974.png
+
+Convert to Markdowngoes up in a Ghetto, who becomes a criminal under pressures, he is intelligent
+he is extremely intelligent. Not an intellectual but far more capable as
+an organizer say, than Williams. Williams is utterly hopeless. And He is not
+slow to catch ideas, but he has certain fixed ideas which have developed,
+certainly under pressure. Malcolm was moving and he as a figure could
+have done a lot too.
+
+((Was this a maturing))
+
+Yes, a maturing, a process of facing reality also. I suppose this is an
+explanation to a large extent of why there are so many children who are
+young kids, who are
+really involved in the nationalist movement). They're facile, frustrated.
+They don't know what else! They feel that the older organizations are
+in incapable of doing anything for them. There is a class thing. They feel that
+there is sort of a Black bourgeoisie for whom there is now in general a
+has sold them out, but they,
+possibility of integration, but they who live in the Ghetto, who go to
+the bad schools, who come out of poor homes and so forth, by the time
+their
+they're sixteen, they hope of, the real hopes of integration, of
+being something in contemporary American society, is dead. It's this
+whole business, the motivation in schools, the good schools, the housing
+and the family even. If a child grows up in a home where they don't have
+books- there is a great difference between a Jewish child in the Lower
+East Side, and no matter how poor that family, motivated by a long
+Jewish tradition, and a Negro child or a Puerto Rican child,
+Middle Class ideals are beginning to sink down into the Jewish/Mexican Negro
+community, but among Puerto Ricans there is an even greater gap, so I
+understand,代理
+
+Many of these Negro kids, they just feel this enormous wall around them, and one of the things that I am most aware of, even-- when I was a child, I grew up in Philadelphia. Many of my friends were white. We lived in a neighborhood in West Philadelphia which had Negro and white Irish, Catholics, Jewish people, Italian, in proximity. Lived in the same block. That neighborhood now is solidly black. The school I went to was always mixed. Now most of these schools are black. There is more segregation today, through real estate, through housing, than there was 20 years ago.
+
+(( Is this intentional or is this because this was an area that was
+mised and where a Negro could move in and so Negroes did.)))
+
+Yes. One of the problems is that around most American cities the city line marks the end of expansion for Negroes. They can't move into the suburbs. A middle class Negro who has money can move into the suburbs. And what areas they can move into are filled up. The whites flee out of

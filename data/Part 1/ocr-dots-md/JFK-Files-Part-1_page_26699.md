@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_26699.png
+
+Convert to MarkdownAttachment 6. o UNGA-123,
+
+19 May 1965
+
+CONTACT REPORT
+
+SUBJECT: Meeting with MUNDOCO, 18 May 1965
+
+1. RUTHERFORD met W/1 at the latter's apartment on 18 May 1965.
+
+2. The following information was obtained:
+
+a. Dominican Republic. During the briefing by the NH representative on 14 May, it was agreed that W/1 would attempt to have the Havana broadcast of 2 May replayed through his friend Mauro LUCENTINI of ANSA, New York. It was felt that this approach would be more desirable than using W/1 directly, in view of his effort to appear as a liberal journalist. During the meeting W/1 attempted to contact Lucentini, but ascertained that he had gone off on a holiday for the weekend. Upon learning that Lucentini would return to New York City during the evening of 16 May, it was agreed that W/1 would contact him at that time in an effort to have the story transmitted on 17 May. In addition to the major capitals in Latin America, W/1 also thought that the story would be sent to Rome.
+
+b. Following a 'phone call from the NH Desk, RUTHERFORD subsequently briefed W/1 on the fact that the same story had been carried in the 2 May edition of Boy in Havana. (OCCIDENT; RUTHERFORD pointed out to the Head-quarters rep that, in his opinion, it might not be advisable to inform Lucentini of the boy article as it might raise an objection in his mind concerning the current value of the news.)
+
+c. Briefed on both the radio broadcast and the boy article, W/1 was disinclined to mention the boy article to Lucentini for the same objection noted above. He was instructed to use his own discretion.
+
+d. On the evening of 16 May W/1 contacted Lucentini and outlined his request. He explained to Lucentini that this was a good opportunity for a scoop on a hot item. W/1, in order to offset any objections on the part of Lucentini, told him that the radio broadcast had occurred on 13 May. He did not mention the boy article. According to W/1, Lucentini was less than enthusiastic about transmitting the story through his facilities, pointing out that it was no longer new. After some persuasion, according to W/1, Lucentini finally agreed to send the following abbreviated story to Buonos Aires either the evening of 16 May or early 17 May:
+
+'On Friday, May 13, Radio-Havana cited Juan B. Maglia leader of Dominican '14 of June' party who had given an interview to Mexican journalist Victor Lico Galan in which he declared over the telephone that 'many leaders of the June 14 movement have disappeared, but at the same time numerous contingents of insurgents are reported in the mountains of the region' and that 'the 14 of June movement has much control of the situation.'

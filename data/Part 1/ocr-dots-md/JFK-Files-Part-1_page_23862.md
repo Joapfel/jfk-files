@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_23862.png
+
+Convert to MarkdownSECRET
+
+14 April 1965
+
+MEMORANDUM FOR: See Distribution
+FROM : CA/CF; CI/ICG
+SUBJECT : Richard Gibson
+
+1. <u>Areas of Knowledgeability.</u> A reading of the transcription of Gibson's taped debriefing clearly underlines KATZENBACH's assessment that Gibson possesses an encyclopedic knowledge of personalities and groups ranging from Zanzibar to the U.S. It is not always clear from the debriefing to what extent Gibson enjoys either a first-hand knowledge or even a friendly relationship with specific individuals or groups. What is clear is that Gibson moves in a milieu on which we presently have very little coverage; that he is already a member of this loosely defined society and thus can be presumed capable of developing new contacts or strengthening old ones by means of present and past associations.
+
+It is difficult to categorize or devine what this milieu is. It is not the world of communist parties -- although it contains a preponderance of communists; and it does not seem to be a society which necessarily revolves about the Chinese. The primary common denominator covering most of the personalities involved in Gibson's reporting is some association with the revolutionary movement in Africa -- particularly Algeria. A secondary means of characterizing these contacts is a correlation with the radical French and Belgian left which lies outside such organized party structures as the PSU, PCF, BCP. (His main access to Chinese communists runs through Jacques GRIPPA in Belgium and Nils ANDERSSON in Switzerland with whom he claims to be on good terms at the present time.) Another common thread, almost as general, is association with Trotskyism, although the meaning or clarification of this political description is never spelled out. In general, Gibson displays a good and often personal knowledge of target areas which might be grouped as follows:
+
+a. African exile revolutionary circles in France, Algeria and London, including the PAC, ANC, MPIA, MPA, and other less organized pockets.
+
+b. European leftist sympathizers of the liberation movement in Africa.
+
+c. Algerians or Algerian contacts in Europe who were associated with the war for independence.
+
+d. Algerian personalities currently active or occupying official positions in Algiers.
+
+SECRET

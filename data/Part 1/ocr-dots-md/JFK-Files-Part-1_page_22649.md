@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_22649.png
+
+Convert to MarkdownSECRET
+
+- 5 -
+
+In May 1959 NORMAYR was awarded a monetary bonus of $300.00 in recognition of his outstanding services on behalf of KUBARK in the Sierra Maestra area during the early part of 1956. For his outstand-ing performance on this assignment and his great devotion to duty, NORMAYR received a personal commendation from General Cabell. In early January 1958 NORMAYR volunteered to undertake a mission to con-tact Cuban rebel leader Fidal Castro in the Sierra Maestra mountains in Southeastern Cuba. He spent approximately three weeks in the moun-tain hideout of Castro's headquarters during which time he even joined them in an actual attack on the town of Manzanillo.
+
+SECRET

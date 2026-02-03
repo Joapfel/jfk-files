@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_23491.png
+
+Convert to MarkdownSECRET
+
+17 July, 1954
+
+MEMORANDUM FOR: SFC/SPB
+
+SUBJECT : OCB- A/MED/Branch III, Forwarding Part II, PRO, on Arthur G. Valade (passonym)
+REFERENCE : OCB- B/MED/Branch III, dated July 1954, Forwarding Part I, PRO.
+Previous OC obtained in No. 68, dated 19 July 1949, 1. Forwarded for project EVAIDC.
+2. Operational....Security...Clearance is requested in order to employ A/C. Valade as (indicate: US, or indigenous; writing of document form and value of emoluments; FI or PPI and oral or written contract.) XX II and XXXIII
+
+To receive a salary of $5060.00 annually, plus allowances. To replace RIKON in project AMPRODACH.
+
+J. C. KING, Chief, WH
+
+SECRET
+
+201-16881

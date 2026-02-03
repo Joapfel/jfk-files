@@ -1,0 +1,56 @@
+# JFK-Files-Part-1_page_22750.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA AIR
+(Specify Air or Sea Poxck)
+
+DISPATCH NO.
+
+201-32723
+
+TO Chief of Station, Mexico City
+
+FROM Chief, WFD
+
+DATE 17 JUN 1958
+
+SUBJECT { GENERAL - Operational
+        SPECIFIC - Harold R. HOGANPER
+
+Action Requested: Please Notify Subject
+
+Reference is made to Subject's contract effective 1 June 1957.
+
+Effective 1 June 1957, paid contracts are issued by adding after sub-paragraph (b) of Paragraph four (4), entitled "Allowances," the following:
+
+"(c) You will be entitled to an additional allowance in conformance with article 6a of the rates prescribed in applicable Civilian Regulations."
+
+All other terms and conditions of the contract remain in full force and effect.
+
+9 June 1958
+
+WH/3/Mexico/Sulc:ns
+
+Distribution:
+3 - Mexico City
+1 - WH/Filson
+1 - WH/III/Chrono
+1 - RI
+
+GS COPY
+
+Releasing officer
+
+Coordinating officer
+
+<table><tr><td>AN PR</td></tr><tr><td>AB X</td></tr><tr><td>FHD</td></tr><tr><td>PB</td></tr><tr><td>BX</td></tr><tr><td>DESKPD</td></tr><tr><td>PI</td></tr></table>
+
+SECRET
+CLASSIFICATION
+
+FORM NO. 51-29
+JUN 1949
+
+201-16888
+201-32723

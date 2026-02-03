@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_25946.png
+
+Convert to MarkdownCABLE SEC DISPEN BY 1 PER LA 6 SAM'S ASKST TOTAL COPY 9-7 PAGES
+PERSON UNIT NOTIFIED SECRET
+
+REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
+
+<table><thead><tr><th colspan="2">ADVANCE COPY ISSUED/SLIPPED</th><th>BY (S/D) 12/21</th></tr></thead><tbody><tr><td>ACTION UNIT<br/>LA15</td><td>I<br/>N<br/>F<br/>O</td><td>AF. FILE VR <del>N/A</del> L/PAG 054 e1-4<br/>ps/82: v. 608/INT see vice of asn/ID<br/>op/ITC: 5 DPO DIVD-2</td></tr><tr><td>ACTN.</td><td></td><td></td></tr></tbody></table>
+
+T 675418 EIA485
+
+IN 823200
+
+TOR:1115192 FEB 76
+
+SDOM 17119
+
+SECRET 1115052 FEB 76 STAFF
+
+CITE SANTO DOMINGO 17119
+
+TO: PRIORITY DIRECTOR, SANTIAGO INFO CARACAS.
+
+REFS: A. CARACAS 29849 (MS22200)
+B. DIRECTOR 804531
+
+1. EMPYRIX REPORTS THAT <u>ROLANDO O TÉRIO HERNANDEZ</u>, BORN 18 APRIL 1943, TRAVELLING ON U.S. PASSPORT NUMBER F-796536, DEPARTED SANTO DOMINGO 22 JANUARY ON VIASA FLIGHT 797.
+
+2. FILE: 201-0284611, 22-8-7, 200-6-495, E2 IMPDET.
+
+<table><tr><td>TRAVEL PROGRAM</td></tr><tr><td>APPROVED</td></tr><tr><td>PICKUP FOR FARE</td></tr><tr><td>CHECK NO (2.3)</td></tr><tr><td>REST. CHECK</td></tr><tr><td>CABLE IDEN (11)</td></tr><tr><td>No (6)</td></tr><tr><td>FOR FARE</td></tr></table>
+
+RECORD COPY
+
+SECRET
+
+D22-8-7
+D 201-6-495/3
+
+11 Feb 76
+201-284811

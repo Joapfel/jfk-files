@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_23882.png
+
+Convert to Markdownof course useful if I'm going to play the money market. But for Algerian currency it was hard to find a buyer. The opposition has been the principle % buyer of the new currency. In other words he didn't go out of the country when the change in currency came in hard cash for their people going in and out, were buying this currency. And this had created a more favorable exchange rate. If any case, at that time the exchange rate was hardly favorable and you had to give a sell order 24 hours in advance for the bank to find someone. And that was the thing. The money, he says, that the exact sum in the bank he is not certain in that account, He knows that Verges's figure was around 75,000. He thinks that was fairly accurate. That is, 75,000 dollars, in Algerian currency. The money was placed there between the end of July or August of 1962 and December of that year. In other words it was just after independence but during the period of struggle between the GPRA and the clandestine group. Where he got the money from was for the second $75,000, Verges said he had another account. He knows (Anderson knows) ashe said before, nothing about this. And frankly doesn't believe it existed.
+
+However, he does think that Verges has received small amounts of money, where from he doesn't know. The Chinese line is ending. In fact, you can tell from looking at the magazine, the last editorial. He changes- is The editorial called Compagnon de Route, which means Fellow Traveler, This is just what he didn't want to be called. And it ends up by saying in French-on a fait des compagnons de route- we're fellow travelers, we're for a united front of all the liberation movements with comprehension but without condescension. It's a much more modest, it's a playing down of their own role. In fact some of the articles inside the magazine of course are not in line with the editorial. The editorial doesn't have Verges's style, either. Who do you suppose wrote it?
+
+That is very difficult to say. It doesn't to my mind seem to be the style of either. I would suspect that it was written by Grippa (?)
+but for what purposes.
+Grippa's people told me well, they considered
+this a favorable turn, that they were willing to accept Verges as a fellow
+traveler but as nothing more, and they told him that long ago. This is
+a powerf struggle. They told him that and what's more they're still
+not certain that they want to have anything to do with him. And apparently
+it's gotten to be the standard-- something that you demand-- they demand
+that people who come to see Grippa now are - forced to say "we have nothing
+to do with Verges; if we had something to do with Verges, we make our self-
+
+14-0000

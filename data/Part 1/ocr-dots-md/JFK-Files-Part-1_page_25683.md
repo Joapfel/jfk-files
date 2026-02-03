@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_25683.png
+
+Convert to MarkdownSECRET
+
+REPRODUCTION BY OTHER THAN THE SOURCE IS PROHIBITED. ©1973, 1974 GPO
+<table><tr><td>SECRET</td></tr></table>
+
+END OF MESSAGE
+
+C/S COMMENT: •DISSEMINATION APPLICABLE TO BATTLE CAMPERS.
+
+<table><tr><td>SECRET</td></tr></table>

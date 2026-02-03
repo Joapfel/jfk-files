@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_24286.png
+
+Convert to MarkdownSECRET
+
+3. **Mobility.** QRPHONE can be viewed as essentially possessive; here are, however, qualifications on this. He move small children and an unwitting, anti-US, white, hagish wife, who would only be willing to leave her Iceland if the overt job to which QRPHONE was going was clearly a step upward in his career.
+
+4. **Handling.** The method by which QRPHONE has been handled, i.e. mainly through Rodigast (although there has been direct LCPIPIT contact recently), is unnecessarily cumbersome and not suited to the close consultation needed to explore QRPHONE's future directions. Having been declared to the British Services the most secure place to meet QRPHONE is in the UK and he should be handled directly by an LCPIPIT officer.
+
+5. **Security.** QRPHONE cannot escape the record of allegations that he is Agency-connected. What he can do, however, is face-up to these charges, challenge them and deny them. There may thus always be some element of suspicion attached to him, but, as time passes without definite proof of such a connection, its impact on his activities may be minimized and he may be able to engage in effective work despite of it.
+
+6. **Sub-agents.** It was felt that QRPHONE may possibly have a flair for recruiting and handling sub-agents. It was believed that this should be explored and that he should be given relevant training, based in New York. This would also provide the opportunity for Headquarters exploration with him of his future development.
+
+7. **Future Focus.** What QRPHONE's own thoughts might be on his most natural course of development are not clear. He may have an inclination toward African Liberation Movements—the subject of his most recent major writing—but it could be questioned whether on this or on anti-fedayeen work, there is sufficient Agency interest to merit such focus. He has no significant base in the American black community (rather the contrary) which would make him of interest to others on this basis. His overt political orientation is described
+
+2
+
+SECRET!

@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_23275.png
+
+Convert to MarkdownSECRET
+(When Piled In)
+
+MEMORANDUM FOR: WH/III - Willard Galbraith, Chief
+
+15 jul 57
+
+FROM: CI/Operational Approval and Support Division
+
+SUBJECT: CROZIER, Ross Lester
+
+1. Your request dated 26 Feb 56 for approval to use the Subject has been processed by the Office of Security.
+
+2. The results of this action are transmitted herewith.
+
+Attachment:
+
+so memo 3 Jul 57. ac
+
+Distribution:
+1 Addressee
+1 File
+
+SECRET
+
+FORM NO. 388 REPLACES FORM 59-40
+1 JUN 55 WHICH IS OBSOLETE.
+(47)

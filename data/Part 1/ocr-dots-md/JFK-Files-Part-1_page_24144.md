@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_24144.png
+
+Convert to MarkdownRichard Thomas GIBSON
+
+201-306052
+
+8 February 1966
+
+13 May 1931, Los Angeles, California
+
+U.S.
+
+Freelance Journalist London, England
+
+James Murphy
+CA/CF
+4 D 30
+7767
+
+X
+
+Journalist
+
+X
+
+Student John Hey Whitney Fellowship Italy 1951 - 52
+BOD U.S. Army Germany, U.S. 52-1954
+Editor Revolution Africaine Algiers 1962-64
+Executive Secretary for Fair Play for Cuba Committee New York 1961-62
+New writer, XHB CBS News New York 1959-61
+English Editor Agence France Presse Paris 1955-58
+Freelance Italian Films Export & Christian Science Rome 1958-59
+Cub Reporter Philadelphia Afro-American U.S. 1950-51
+
+Bag Founding member of Fair Play for Cuba Committee; member NAACO, Urban League and American Society of African Culture
+
+5'10" 165 Black Kinky black Negro
+
+Joy Marjorie Lee Kaye
+
+Son - Frederick William Gordon Gibson DFOB 1958 Paris
+Daughter Dominique Elizabeth Gibson DFOB 1956 Paris
+
+FULL SEARCH

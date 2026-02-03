@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_23255.png
+
+Convert to MarkdownJanuary 20, 1958
+
+MEMORANDUM
+
+SUBJECT: Subject of our letter number 4025; Interest in Assignment
+in U. S.
+
+1. In recent conversations with both JRP and RDS, Subject has broached the prospect of a possible assignment within the U. S. following completion of his Habana assignment. He says he would not want his statements re reassignment which were recently forwarded to Headquarters to be interpreted to mean that he is not interested in a U. S. tour. He says that he has been giving much thought to his future career, as well as to the needs of his family. He points out that he personally has now spent approximately 10 years, excepting vacations and short training periods, living and working outside the U. S., that his two children have never lived there, and that both he and his wife are concerned that too much time will elapse before they can provide their children with a period in the U. S. during their formative years.
+
+2. It is the opinion of both RDS and JRP that Subject is at a point in his career development where a tour at Headquarters would be extremely beneficial. The station lacks knowledge concerning the specific headquarters jobs to which a person of Subject's status might be assigned; but it is our understanding that OTR sometimes employs these persons as instructors. We believe that a tour with OTR would not only remedy in great measure deficiencies in Subject's background caused by lack of Headquarters experience, but would at the same time afford OTR excellent instructor material.
+
+3. In view of Subject's own interest in such an assignment, and our estimate of the potential value to him and to the Organization that would accrue from it, we recommend that Headquarters arrange such an assignment if at all possible.
+
+4. In view of the likelihood of Subject's transfer in the near future, a prompt decision is requested.

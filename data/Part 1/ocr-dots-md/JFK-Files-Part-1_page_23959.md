@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_23959.png
+
+Convert to Markdownobviously Meto does have some American support as well or had some
+American support. His father did, I think.
+
+(Do you know Michael Tabasa)
+
+No, never heard of him.
+
+(We come to Maspero)
+
+Maspero is just a third-generation French elite intellectual who has a little bit of money, runs a publishing house, and magazine, and who is extremely non-committed in his Left commitment. In other words he is a leftist but he is not a member of any party and is not really involved
+
+in active politics. His magazine more and more is taken over by Trotskyists
+
+That was not always the case.
+at present. He came really to the fore with the Algerian War, Considering
+
+the failure of the French Communist Party to do anything about the intellectuals, the Algerian question, it was the Left Intellectuals who were out of the party who responded, who made up the Jensen network, the support network for the FLN underground in France, and who did the propaganda work and who gave the support. In the FLN had French support it was among these people, not among the Communist party.
+
+(Verges consistent efforts to) Yes.
+
+To get away authors (from Maspero). Hassan Riab wrote for him.
+
+Chalion, whom he got for Revolution Africaine wrote for him and now is back again working for him, writing for him. Cassoull also. Chen also.
+
+Almost everybody. Even I knew him because he published student material and he used to send things to the SPDC in the States and I had correspondence and I used to send him material that we had.
+
+(The competition between Verges and Maspero- was this a personal as opposed to ideological competition.)
+
+No it was personal. There is very little ideological about Verges.
+
+Verges is an extremely lefty, personal person. He is generous in many ways but even his generosity is measured personally. He is either for cause, or he isn't.
+
+You mean he is a grand patron. He is extremely generous with money when he has it; he throws it around. You could never go anywhere with Verges that he doesn't want to pay. When we traveled it was almost impossible first class, everything extra on a plane. He has a deep-seated desire to be big, he is a small man, he is short, to be talked about. He wants publicity. He wants to be known. He doesn't have any real commitments, I don't think, that are terribly deep. And I'm certain that if he were sure of money from the other side, but nevertheless so that his name would stay big, I'll bet he'd. . . He wants money not for himself, but for prestige. After all Verges's father was the founder of the Communist Party-

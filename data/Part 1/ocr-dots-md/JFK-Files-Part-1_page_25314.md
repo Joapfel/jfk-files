@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_25314.png
+
+Convert to MarkdownSECRET
+
+B84-1524 (9 Apr 56)
+
+PERSONAL DATA
+
+Name: Nikolai Sergeyevich LEO NOV
+Born: 22 August 1923, Ryazan
+Arrived in Mexico: 11 July 1958 with wife
+Documents: Soviet Service Passport 10724 issued 29 January 1952
+Title: employee
+Position: Believed to be administrative. Secretary to the Ambassador. Possible translator and interpreter overlapping with the cultural section work
+Residence in Mexico: July 58 - Nov 58: Industria 71-4
+Nov 58 - ?: Juáncatlán 81
+at least Feb 54 to ?? : Cuautla 161-9
+Jan 55 to present: Unknown, possibly in Embassy,
+possibly at Juáncatlán 71
+Wife: Valeriya Ivanovna, nickname "alora"
+Children: None known
+Languages: Spanish (good to excellent)
+Other Personal Data: Nickname "Kolya," "Kolyechka"
+Drives car
+
+Official Activities
+
+LEONOV remains an obscure figure and although we assume he is employed in the administrative section of the Chancellery, we cannot pinpoint his duties. He has identified himself from time to time as the secretary to the Ambassador, has been noted taking his turn as embassy duty officer and has taken hospital bedside guard duty. During 1955, before the arrival of the regular administrative officer, Vladimir Ivanovich ZHUKOV, in November 1955, LEONOV was handling calls concerning goods and services but was probably merely filling in, because of his facility with the Spanish language, until ZHUKOV'S arrival. In December 1954 APARDENOV asked one of the guards whether he had the keys to LEONOV's room in the embassy. Since, during that time, we believe LEONOV was residing at Industria 71, it would appear that LEONOV had a private office in the embassy, one which was apparently kept locked when he was away. One or two other very vague references indicate he might have something to do with communications work. Beginning about November 1955 LEONOV began to emerge as an interpreter and translator. He spent a good deal of time with the Social Security delegation, with Soviet pianist OLESILS and with Soviet movie director ALEXANDROV, each time appearing as the interpreter or translator. His recent association in January 1956 with the daughter of Communist General Heriberto JARA also involved translation work. Other more recent references make us begin to wonder now if LEONOV might not be connected with the Cultural Section. During the last two months of 1955 he appeared to be associated in work with MASTURBEVICH, director of the Soviet Embassy Information Bulletin. In March 1956, when PAPOROV could not keep an appointment at University City at the invitation of Mexican President RUIZ CORTEZES, he asked that either LEONOV, GUNDAREY or POPOV keep the appointment. It is known that PAPOROV, GUNDAREY and POPOV are all definitely assigned to the Cultural Section indicating further that LEONOV may be associated with that group. We, therefore, classify LEO NOV as
+
+SECRET
+
+145076
+
+201-132139

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_26260.png
+
+Convert to Markdown- 3 -
+
+8.- Pedi a NICO GILMÁN no dí game su concepto y unaotal evaluación de FIDEL CASTRO. Dijo,ales que nada, que el Castro es un comandante o qué clase de comunista, ndie lo cunde. Sus es un gran leader revolucionario y un great t'el porq no puede juzgar el papel de Librador de InstruccionesTanque dependiente del Vin y que ein tanecio do control en esteasomando. Llens que NICO undan qulc ced que Castro se tu conversaon en un encierto ente de los soviéticos. Tanbién dijo que Castro "está" vini qualse qutate que Cuauhtzingo las académicas soviéticas, pero que CÁSTRO no es capaz de hacerlo. Con respecto al paradero del Chif, Castro, dijo que tal vez ni el propio NICO CASTRO sabe dónde está.
+
+9.- Un relación con los conflictos Cubano-soviéticos, NICO CALIM dijo que son más aparentes que reales. Luego le pedí me nombrase mares que principalmente tengan influencia cubana o soviética. Respondió que Castro tiene influencia dominante dentro de los movimientos revolucionarios en Venezuela, Guatemala, todo Centroamérica y Colombia. Que los soviéticos tienen influencia dominante en Chile, Argentina y México. Alegó sin embargo que en México CASTRO y Hosé co ven frente a frente y tienen políticas paralelas, pero que la fuerza principal que eyeña estas políticas, es Rusia.
+
+10.- NICO GILMÁN dijo que la influencia China-comunista en América Latina es insignificante.
+
+11.- Dos ués de aproximadamente una hora, nuestro entrevistador tomó abrupamente, porque un guardia de la oficina del Director de la policía vino e illevarse a NICO CALIM pues que su abogado quería verlo. Sólo lo retuvo un minuto y muy a nuestro pesar nos despedimos con un fuerte aplauso de manos.
+
+12.- Todo lo anterior revela claramente que NICO CALIM es un convenido y ferviente revolucionario. De acuerdo con lo que dijo, creo que está asociado a una causa victoriosa. Teniendo muy alta la ronal y muy buena experiencia.
+
+13.- Recuperó a la mitad del día de Leominster aproximadamente a las diez cuotas quince horas de ese mes á tarde para otra charla con NICO CALIM. La puerta principal estaba corriendo. Tocó y un guardia abrió una pequeña mirilla. redí ver al Director, pero el guardia no dijo que no se contrabas. Lo explicué quien era yo y qué era lo que decíaba, pero cuando el guardia escú el nombre de NICO CALIM, dijo que er情 imposible verlo y corró la mirilla. Un momento después toqué de nuevo. Lo pregunté al guardia que si podía pasarle un mensaje a NICO.

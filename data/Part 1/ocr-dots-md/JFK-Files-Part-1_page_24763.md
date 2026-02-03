@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_24763.png
+
+Convert to Markdown5. Seeking approval of Station Mexico City for the release of the total report seems to violate the concept of Headquarters control of operational information. Would it not be more appropriate to ask Station's opinions only in areas of doubt in the matter of source-sensitivity?
+
+6. Although this dispatch was coordinated according to para 2 with BB Division and the Guatemalan Desk, the first inkling this Branch got of the paper is when the dispatch arrived on my desk.
+
+7. This is a good paper for the Lima Station background information. For passing to a third liaison service, it poses some potential danger to the Mexico Station clandestine sources:
+
+a. page 2 - LIVESTOCK-3 is now dead but he was also a Soviet Embassy contact in Mexico and was run by the British. He was fired by us for un-reliability.
+
+The search team that arrested Fidel CASTRO and did the interrogation was LITEMPO-4 (now an important Station contact) and only about four years or so ago told COS about the calling card of LEONOV.
+
+b. page 3 - Specific information about MIRANDA trip in January 1962 and delivery of message to GUTIERREZ could pinpoint the source : LINLUCK/ ESDEW-1.

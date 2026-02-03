@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_23632.png
+
+Convert to MarkdownSECRET
+SECURITY INFORMATION
+
+21 January 1953
+
+MEMORANDUM FOR: Chief, WH Division
+
+SUBJECT : Humanoid
+
+1. At the request of Mr. Caldwell, I met with Humanoid on the occasion of his visit to Washington last November and made certain oral commitments on behalf of the Division. No commitment, however, was very specific and all were cleared with the Division in advance. My participation in the matter was, of course, owing to the fact that I had recruited humanoid originally and enjoy his confidence.
+
+2. Humanoid in the past has pursued his activities on behalf of this organization as somewhat of a profitable avocation. His performance, nonetheless, has been outstanding from the point of view of initiative, production and understanding of operational principles. He would now like to make it a career but lacks sufficient information upon which to base a decision and, being partially aware of the uncertainties involved, insists upon maintaining an alternate vocation. In pursuit of this latter objective, he plans to move to Buenos Aires in June or July of 1953 and establish himself there on a permanent basis. His inquiries were to ascertain what effect these plans would have upon his present and future relationship with this organization.
+
+3. I advised Humanoid to continue with his plans as outlined above, stipulating only that he remain in his present location until after the forthcoming elections and assured him that as a consequence of his past satisfactory service he would be picked up in Buenos Aires at a compensation at least equal to that which he is presently receiving.
+
+4. I then explained that our participation in his move would necessarily have to be determined at a later date but requested him to keep us informed of his plans on a continuing basis, assuring him that it would do no harm to request such assistance as he might need. In this connection, I advised him to request formal training, which he has never had, implying that this would be granted, and suggested that a formal contract, future compensation, travel expense and so forth could best be negotiated here at that time.
+
+5. I recommend, therefore, that Humanoid be brought to headquarters for a period of training and that a contract agent relationship containing the usual travel and allowance provisions be formalized at that time. Basic compensation should certainly consider his past record and proven reliability in addition to the initiative he has shown in laying on his own cover. Although his future assignment is none of my business, I would point out that he has proven adept at spotting, recruiting and agent handling and suggest that his talents would be greatly circumscribed if assigned to direct exploitation of a specific target.
+
+SECRET
+SECURITY INFORMATION
+
+Edward A. Marelius
+Executive Secretariat, DD/P
+
+201-16851

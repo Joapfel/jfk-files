@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_25289.png
+
+Convert to MarkdownE
+HON.2038
+Page-16
+
+Consultorio Medico, and asked when they could come by so the
+doctor could see his wife. ARANDU informed them that the
+new office was on Puebla. KULAZHEVIN asked about Ofelia, and
+ARANDU told him that she had gone to New York on a scholarship.
+KASYANSEVICH was afraid they would have a problem bringing the
+child then, but ARANDU said he could recommend a friend of
+Ofelia, who was dedicated to orthopedics. Arrangements were
+made for an appointment.
+
+8. A representative of Jose R. Villesana y Cia., Landero y Gosa 31, Veracruz, forwarded information to the Embassy concerning some things for them that had arrived in port.
+
+VII. PERSONNEL,
+
+1. The home address of Vasiliy Mikhaylevich DRONOV was established as Tlacatbaro 4-6. DRONOV's wife recently had an operation.
+
+2. Matvey Petrovich LEONOV of the Commercial Office serves as the representative of International Book in Mexico.
+
+3. Soviet couriers Gennadi CHUKOV and Konstantin FEDOROV held reservations for a flight to New York on 5 September, departing Mexico City at 8:00 a.m.
+
+4. KULAZHENOV and KAZANTSEV returned to Mexico from the Soviet Union on 6 September.
+
+5. The following Soviet Embassy personnel planned to depart Mexico by rail on 17 October: CREPASOV, LECHOV and wife, LARIN, wife and two children. They held reservations on the Queen Elizabeth which was scheduled to leave New York for Southampton on 24 October, and on the Molotov, scheduled to leave London on 31 October. They planned to be in Leningrad on 5 November.
+
+✓ A reporter from Public was told on 21 September that Boris KAZANTSEV was promoted from First Secretary to Counselor of Embassy.
+
+7. EYKOV told Rafael HUNOZ that he was now working in "Communications" and usually arrived home late. HUNOZ invited him to his home to have a drink "with some friends." Apparently it was the first time EYKOV had been invited for he asked for the address - Jardin 5.
+
+8. An Operation on Sra. POREKHOVA was scheduled to take place on 27 September. She was to be in the hospital located at Guadalquivir 78.
+
+SECRET

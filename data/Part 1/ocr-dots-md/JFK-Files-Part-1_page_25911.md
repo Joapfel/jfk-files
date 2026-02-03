@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_25911.png
+
+Convert to MarkdownHOJA DE INVESTIGACION PERSONAL.
+
+NUMERO 2731
+NOMBRE Y APELLIDOS Perón y Lasso
+FECHA Y LUGAR DE NACIMIENTO 10 Febr. - 1941 - Marítima - Indana
+ESTADO CIVIL soltero
+EDUCACIÓN QUE POSEE GRADUADO PARA 10º GRADO = ALGUNA EXP EN OFICINA NO CAPRERA
+PROFESIÓN ESTUDIANTE
+OTRAS APTITUDES EN - COMERCIO - DOCO ANALES - SE MAMETAR CARRO
+EXPERIENCIA MILITARNiñegona
+FECHA DE SALIDA DE CUBA Y VIA QUE UTELIZO (Ponga si salio legal o ilLEGALMENTO)
+19 Noviembre - 1959 - Jeronimio "C" Key West - FLORIDA.- LEGAL
+FECHA DE LLEGADA A LOS ESTADOS UNIDOS Y EN QUE CONDICIONES LEGALES VIVIANE
+ALLI 19- Noviembre 1959 - VIA LEGAL KEY WEST - VISA DE ESTUDIANTE
+INFORMACION DE UTILIDAD PORRE COSAS QUE SEA DE SU PAÍS CONOCIMIENTOS de la ciudad de Pinar del Río, y sus附近 Military CARRETERAS DEL REEDORES, PLANTA ELECTRICA etc. de ciudad de "María ana" ESTACIONES POLICIRCALES etc: ARROYO ARENAS. LA HABANA CENTROS principales EN PARTE
+
+Firma
+
+<table>
+   <tr>
+    <td>Conyugue suereda</td>
+   </tr>
+   <tr>
+    <td colspan="2">Condado Oeste inca m.77</td>
+   </tr>
+   <tr>
+    <td>EL ángel</td>
+    <td>O.S.P.</td>
+   </tr>
+   <tr>
+    <td></td>
+    <td>6001</td>
+   </tr>
+  </table>

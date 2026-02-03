@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_22880.png
+
+Convert to MarkdownAmerican Student in China
+
+SEEGER, Peggy (Margaret)
+CIT - U.S.A.
+Residence - Los Angeles, California
+Passport No. 729373 issued 7/11/55
+
+File Check Results
+
+1. The IO Division's informants, that attended the Moscow Festival, were of the opinion that the subject was of questionable character. (IO Div.)
+
+2. The AP correspondent in Moscow reported that the subject and Guy CARAWAN would return to the U.S.S.R. for an extensive folk-singing tour. (State Department Incoming Telegram No. 513 dated 10 September 1957, from Moscow.)
+
+3. There is no pertinent file information concerning Margaret SEEGER however, the following information is furnished for your information.
+
+Charles Louis SEEGER, Jr. and Ruth Crawford SEEGER, parents of subject reside at 7 West Kirke Street, Chevy Chase 15, Maryland.
+
+A report dated May 1952 states that Charles SEEGER was a member of the Communist Party in approximately 1936 and 1937. Ruth Crawford SEEGER was reported to have been friendly or acquainted with serious individuals during the 1940's who were Communist Party members, some of whom were also identified as being involved in a Soviet espionage ring which operated in Washington, D. C. and New York during the early 1940's.
+
+Charles SEEGER admitted Communist Party membership from 1936 to 1939 in a discussion group of the Communist Party. He stated that the group payed no dues and had no membership cards. He also admitted that he joined a similar Communist Party discussion group consisting of three people in the latter part of 1941 and early 1942. This group, according to SEEGER met very irregularly and he ceased association with the Communist Party about 1943. He denied membership in the Communist Party at the time he was interviewed in August 1953.
+
+SEEGER, Peggy (Margaret)

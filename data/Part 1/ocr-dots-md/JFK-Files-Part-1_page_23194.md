@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_23194.png
+
+Convert to MarkdownSECRET
+
+DELEGATE
+
+H-061-5826
+201-32723
+DEC KAPOK #599
+Page two
+
+4. Should his assignment to Mexico Station be agreed upon, cover possibilities can be considered in the fields of photography and athletic training which are among Subject's specialties. He lists himself as a "pistol expert" and a clarification of this term will be requested if, in the Station's opinion, it may enlarge cover possibilities, perhaps under LIBERTY. Subject's wife is still a Costa Rican citizen at present, while his two children are U.S. citizens.
+
+5. Station's comments on this proposed assignment and possible cover suggestions will be welcome.
+
+J. C. KING
+CHIEF, MHD
+
+7 January 1958
+
+Distribution:
+
+3 - Mexico City
+
+1 - KAPOK/Chrono
+
+1 - Subject
+
+WH/III/Mexico/ASpera:jck
+
+COORDINATE WITH:
+
+WH/Carib
+
+WH/Personnel
+
+R. N. DANIELSEN, C/MH/III
+
+DESIGNATED
+
+RECEIVED
+
+NOV 11 1972 2:25 PM
+
+BIDIEDI
+RECEIVED
+
+FEB 52 1 0M BH.!
+
+SECRET
+
+CONFIDENTIAL
+
+201-168881

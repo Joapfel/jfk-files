@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_23904.png
+
+Convert to Markdownat all.
+the Encounter thing. She doesn't really like it. I hate to mention this.
+
+Revolution and all—
+She can accept that.
+The fact is, the reason we have our financial problem, to a certain extent,
+but—
+is, because her family is by no means poor. My brother-in-law who has
+carried us for months, has to pay rent, right this week, and she has
+practically told him we didn't what he says. So now, there I am, you
+know. This has caused— I respect, I know what her problem is— very
+often children that come from very wealthy homes—and her family—
+She comes from the poorest branch of her family, which is quite wealthy
+in this country. It's an Anglo-Jewish family, has a sort of monopoly on
+kosher food prepared kosher food here, sort of like a Manischevitz operation-
+or racket. One of the relatives is — they're all in business.
+Her brother, one brother, is constantly having business faliures.
+He's a very nice fellow, and all, but at one point he made phonographs,
+now the last thing, he made tape recorders, a little transistor tape
+recorder, but that's just flopped too. The other brother is a
+chartered accountant. He has his own firm in the City, which does
+quite well. He's married.
+His father and mother living with him.
+
+She gets along very poorly with him. And while I was away, unfortunately
+relations deteriorated to such a point that I had to tell them don't know quite
+how I'm going to.
+
+She's happy that she's got this job in the Indonesian Embassy. The
+only thing she's not happy about is the salary but she likes the job.—
+It's not serious. The Indonesians spend most of the time telling her,
+stories about people.
+If I take a job in this thing in the Indonesian Embassy, the
+practically in a state of war with Indonesia. Although my wife is English
+that doesn't give me an automatic right to stay in England, not that I'm
+terribly (eager) — to be in England. I would much rather
+be some place on the Continent. I would much rather, for instance..
+take a job with some sort of a bureau — Obviously that's
+out of the question. I could never get a security clearance, but I think
+a job with some sort of international organization—UN, in Paris, Rome,
+or Geneva, which would be for me, information. I'd be quite happy at
+that. As for working for an American outfit, I can't see much possibility
+either, except this sort of free lance business, which could perhaps
+be extended, that I would certainly like, but it is precarious—
+when you have kids, and then, say, what I feel pretty solid commitments
+by one person's will here— and then 3000 miles of water in between—
+Brakes at unseasonable!

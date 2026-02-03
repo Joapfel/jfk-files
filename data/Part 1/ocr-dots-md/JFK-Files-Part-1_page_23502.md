@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_23502.png
+
+Convert to Markdown14-0000
+
+The Pan-American Foundation, Inc.
+Box 3587,
+University Station,
+Gainesville, Florida, U.S.A.
+
+Apto. 779
+San Jose, Costa Rica
+May 31, 1954
+
+Dear Mr. Wilgus,
+
+As a student of economics with special emphasis on the Latin American areas, I wrote you in the letter dated 17 May for information about obtaining a scholarship through your organization for continuing my studies in economics at the University of Habana in Cuba. I should like to begin work there for the school year 1954-1955.
+
+As to my qualifications, I have attended the School of Economics Sciences at the University of Costa Rica from 1949 through 1953. In all my previous courses I have done above average, as can be attested by the schools concerned.
+
+My present desire is to continue my study of economics at the University of Habana for one year, or as long as it may be deemed necessary to obtain a Bachelor of Science degree in economics. I am also interested in the possibility of having the scholarship renewed at the end of the period, so that I may be able to begin graduate work in economics. Because I am a married man with two small children, I would like to know whether the scholarship granted would be sufficient to cover the cost of good and housing in addition to tuition, books, and the normal academic expenses, which I estimate to be about $3000.00 annually.
+
+As to my personal history, I am a United States citizen and shall be 32 years old in June. I have served in the United States Army and Air Force between 1940 and 1949, with the exception of an eight month period in 1945 and 1946. The areas in which I served are India and Burma in World War II, and Panama after 1946. Because of my long residence in Panama and Costa Rica I speak Spanish fluently, as does my wife who is of Costa Rican nationality. As mentioned before, I have two young children born in 1949 and 1951 respectively.
+
+I realize the above information may be insufficient in order to determine whether I qualify for a scholarship, and I should be glad to provide any additional information that you may require. Please also send me whatever forms necessary for making formal application for a scholarship.
+
+Sincerely yours,
+
+Ross L. Crozier
+
+Jo1-168871

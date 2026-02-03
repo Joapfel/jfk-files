@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_23212.png
+
+Convert to Markdown(4) Special groups to be contacted: While subject will be concerned principally with the local Communist party, it is not necessary for him to have personal access to any special group.
+
+(5) Approximate annual income to be attributed to cover: $10,000 (including allowances).
+
+(6) Hours which must be devoted to operational duties: Subject should be able to devote at least 80% of his time to operational activity. His proposed cover will allow him a maximum of flexibility in arranging his cover and operational activity.
+
+(7) Physical security requirements: No problems anticipated in this respect.
+
+(8) Communications: Subject will utilise station communications facilities and will have regular contact with station personnel.
+
+(9) Cover suggestions: In view of subject's previous journalistic experience, listed below, it is believed that it would be most appropriate for him to utilize cover connected with journalism. Probably the most advantageous arrangement would be for subject to become affiliated with one or two relatively small U.S. newspapers who do not currently have representatives in Mexico City. His contributions to such news media should be in the field of feature and human-interest stories, rather than of current events. His salary could, and probably should, be based on a stringer or piece-rate basis, rather than having a fixed income. Since subject is also a competent and experienced photographer, he could be expected to make photographic contributions to the newspapers or magazines he represents.
+
+In addition to the above arrangements, it is suggested further that the national cover (Public Surveys Institute, General Polling Service, Dallas, Texas) previously utilized by subject be continued. Subject maintains that he has developed a very sound and detailed cover based on this national arrangement and that it would be very logical for him to use it in Mexico. Also, this additional cover arrangement would give subject another means of income together with added social flexibility and geographic mobility.
+
+(10) Previous journalistic and writing experience:
+
+HOFMANN'S formal journalistic training consists of a two-year correspondence course in fiction writing with the Palmer Institute of Authorship.
+
+HOEMAN has had three short stories published: "Old Saber Nose" in boys life, September 1956; "The Golden Lice" in

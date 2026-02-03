@@ -1,0 +1,49 @@
+# JFK-Files-Part-1_page_25321.png
+
+Convert to Markdown# TOP SECRET
+
+Phone - None Known
+Arrived in Mexico 8 July 1955, accompanied by wife Lyudzilla, and daughter Lsatalia, age unknown.
+
+B. Clarical,
+
+(1) KOTOVA, Valentina Ivanovna, Secretary-Typist since December 1954, does not work full time here (believed that commercial office has a branch in the Embassy and that KOTOVA works there too).
+
+Passport -
+Residence - Tlacantaro 4-5
+
+Phone - None
+Arrived in Mexico May 1955, with husband and daughter Salina age unknown.
+(Husband is 3rd Secretary-Consul).
+
+(2) PAPONDAK, Kalina Petrovna, part time translator (Spanish?), since May or June 1955.
+
+Passport -
+Residence - Nuevo-Leon 138-6
+
+Phone - 11-35-67
+Arrived April 1954 with husband and son Sergei age three (S) (husband is diplomat - 2nd Secretary, Cultural Attaché).
+
+## III. HISTORY OF SOVIET COMMERCIAL ORGANIZATION SINCE 1949:
+
+* SAMOILOV, Mikhail Kuzmich, was Commercial Officer from November 1949 to 14 November 1954, part of the time under Commercial Counsellor KUDIN, since departed.
+
+* HAYEVSKI, Aleksei Danilovich, went through a break-in period in administrative and operational routines from March 1954, to September 1954, with SAMOILOV still nominally in charge.
+
+* BULSHAKOV, Leonid Ivanovich, appeared in September 1954, and also went through a similar break-in period until 14 November 1954, when SAMOILOV left. From 14 November 1954, to date, BULSHAKOV has been in complete charge of the Commercial Office.
+
+## IV. RESPONSIFILITIES AND DUTIES OF THE COMMERCIAL OFFICE:
+
+The main efforts of the Soviet Commercial Office as evidenced by its past and current activities are as follows:
+
+(a) A determined effort to infiltrate into Mexican industry and trade, by the introduction and implementation of transactions advantageous to local industry and trade.
+
+(b) Establishment of important economic and financial contacts in the Mexican government.
+
+(c) Establishment of contacts with Mexican rank and file business people.
+
+HMM-1464
+
+5 March 1956
+
+Page 2.

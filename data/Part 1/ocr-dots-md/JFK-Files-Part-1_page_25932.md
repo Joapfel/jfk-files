@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_25932.png
+
+Convert to MarkdownTO: Director
+Federal Bureau of Investigation
+
+ATTN: Intelligence Division
+
+FROM: Deputy Director for Operations
+
+SUBJECT: ROLANDO OTERO, Hernandez
+
+AKA: OTERO, Rolando
+ROLANDO, Papillon
+
+1. Reference is made to your request dated 5 May 1976 for information regarding Subject's employment with this Agency and his involvement with the Bay of Pigs invasion.
+
+2. This Agency had an operational interest in Subject beginning in late 1960. Subject was a participant in the Bay of Pigs invasion and in preparation for this invasion, received commando-type training. Association and contact with Subject by this Agency was terminated in late 1962. For your information, the contents of this paragraph was forwarded to our field station in Miami, Florida, in April 1976 for passage to representatives of your Bureau in Miami.
+
+3. For additional information concerning Subject which may not be known to your Bureau, you are referred to the Department of State and to the United States Secret Service.
+
+CIR-316/01708-76
+
+Encl. 1 name check
+
+IP/EIS: JE/R Martin/dm
+
+BASED ON: DIRECTOR 835967 dated 8 April 1976
+
+FILE IN: 201-264811
+
+<table><tr><td>RECORD COPY</td></tr></table>
+
+SECRET
+
+<table><tr><td>DATE: 10 May 76</td></tr></table>

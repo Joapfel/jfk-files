@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_26678.png
+
+Convert to MarkdownAPLICACIÓN
+
+Pagantila de Olarte, Voz, abril 20 de 1959
+
+El Secreto do la Puntada,
+
+Prof. Ignacio N. Terrera
+
+C. PRINTED FOR THE ORDER OF LOA
+
+ESTE DISEÑO ES UNA EXPRESIÓN DE LA CULTURA ESPAÑOLA EN SU TOTALIDAD. ES UN PROYECTO EDUCATIVO QUEha sido unido a lo siguiente:
+
+La OFFICE SHEET
+está en el cuadro.

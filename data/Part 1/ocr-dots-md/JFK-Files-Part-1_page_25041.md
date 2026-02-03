@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_25041.png
+
+Convert to Markdown5. Security
+
+There are no known unresolved problems of security. The
+security problems relating to LIROCKET-1 and LISACK-C (discussed
+above) are under control with no adverse effects noted.
+
+6. Plans
+
+a. There are several assets of the REDTOP section who have been carried under SB/COA for a fairly long period of time. Since the targets of their access change from time to time, as well as the nature of the information they provide, we do not believe they warrant special or new projects to cover them. We do believe, however, that they should be brought under a project to facilitate orderly reporting and administration without resorting to separate progress reports on each.
+
+b. Since their activities closely parallel those of assets already covered by LISACK, we believe it would be logical to include LIROEBIN-1 and -2, LIORDER-1 and Subject of 201-843659 (on whom we are awaiting an Operational Approval) in this Project. Although none of these is paid a salary, such a change will require some cost amendment to the Project to account for minor operational expenses which have heretofore been charged to SB/COA. Separate correspondence will follow on these assets.
+
+c. There are several additional assets currently in the developmental stage who may eventually be administered under LISACK. These include Subject of HMA-37742 of 28 August 1969, targetted against AEPOLYP; Subject of 201-351552, targetted against AEMERGER; Subject of 201-848881, currently in social contact with Subjects of 201-250503 and 201-029068 under Station direction; and Subject of 201-859225, who reports on his contacts with Subjects of 201-305052 and 201-744341, among other MINIARSHERS.
+
+for/John A. PROBERT
+
+FORM
+B-64
+(40)
+
+USE PREVIOUS EDITION.
+
+CLASSIFICATION
+
+SECRET
+
+CONTINUED
+
+PAGE NO.
+
+5
+
+50614443

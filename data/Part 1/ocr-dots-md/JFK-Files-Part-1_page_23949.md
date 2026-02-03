@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_23949.png
+
+Convert to Markdownof the Communist Party of the United States, which did not particularly
+approve of seeing the two issues mixed, Cuba and Negroes.
+
+Williams, very volatile, a very determined person on a local level,
+has no ability whatsoever on a national level. He has become a symbol
+now to Negro youth in particular, as a Negro who is not an Uncle Tom, who
+will fight, ~~we know~~ but what was coming in the summer of 61,
+perhaps it was before... no... obviously was embarrassment for the
+national executive of the NAACP, embarrassment for the Justice Department,
+and more than ~~~embarrassment~~~ Terry Sanford, who was the Governor, ~~and who~~
+~~MIX~~ told him, "I wish you were dead. Period." They finally, by one
+of these flukes of fate, there was a demonstration over a swimming pool.
+They didn't want to integrate the pool. They just wanted to swim in it.
+But the local people said they didn't want to do that because they would
+have to change the water, and it would take too much time to change the
+water after Negroes swam in the water. So they had some demonstrations.
+Williams was almost murdered at one of these occasions. The demonstrations
+were getting pretty violent. And then King sent in some Freedom Riders who
+were going to show them how non-violence ~~MIX~~ was going to work in this
+town. They decided to make an example. So Williams said, "I'm going to get
+out of this. I don't want anything to do with your non-violence. But
+you go ahead and I'll see what happens."
+
+even
+
+Well the non-violent demonstration became more violent. There were
+people shot. There were arrests. There was an English girl who now figures
+here in the British Trotskyist party, who was over there. People were coming
+from all over, reports in the European press. The rumor went around -
+Williams now had nothing to do with this. He was just sort of staying there
+saying well you see where non-violence gets you-- but there was a report
+that they were going to lynch the people who had been arrested. As often
+happens in ~~MIX~~ this type of thing the Negroes and whites outside whites
+who were involved, really came in for a hell of a beating, and as in the
+Philadelphia Mississippi case, they have been killed. Williams was more
+or less a victim of the mob in the Negro community which said "We've got to
+do something. We've got to free these people! get them out of jail."
+
+He had arms, including some machine guns, which had been purchased in
+New York, and seat down there. They didn't use them because they got scared,
+but they had arms. The community was armed. The people, out in the street
+in front of his house, when a car with a white couple, came down this road,
+It was surrounded and they were told to get out. The crowd wanted to string
+them up right there. This man came from a neighboring

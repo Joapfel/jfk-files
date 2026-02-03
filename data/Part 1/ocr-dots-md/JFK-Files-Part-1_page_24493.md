@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_24493.png
+
+Convert to MarkdownEL TIEMPO
+
+BoGA, COLOMBIA #/ 1969, VIERNES 25 DE JULIO
+
+# Secuestros en Colombia Tienen Fines Políticos
+
+## Un Investigador Especial Nombró la Procuraduria
+
+La Procuraduría de la Nación está a disposición del Poder Judicial y el Gobierno, con el fin de que los faltas para que se haga efectivo el Plan Especial de Protección de la Prensa. El alcalde, con el apoyo del gobernador y el presidente Juan Carlos Sáez, encargado de la Procuraduría, acuerda con el Ministerio de Justicia, en base a lo dispuesto en el artículo 74 del Código Penal. Por lo tanto, en el mes de Julio se efectuará la search en la que se le darán los suministros necesarios para la realización del plan.
+
+Nueve decenas sobre el plan subversivo internacional hace el principal diario de Lima.
+
+Que los siete primeros días de este mes (lunes) se realizará una operación de incaudación en Colonia. Otras dos semanas en el distrito de Puno, que será realizada en el distrito de Huamboque en la zona sur del valle del Apurímac.
+
+Parón la zona de US$ 300 mil por mes. Para los agentes de la Policía, Alexander Operávsky y Víctor Donikov y el average de el mes es que para un mes de la writa de los "endicadores" a los pares es más barato que en los pares de la otra zona. Pero los agentes dicen que en la zona de la cima se harán los gastos.
+
+Al día siguiente de los actuales desplazados de la EGB en América del Sur, irá el diario que "viaja por diferencia" desde Colombia, "y que vaOUTO" en el día, es el unido a la revolución de la embajada. Los tres suministros necesarios para organizar el movimiento guerillero de las FARC, actualmente en plena guerra.
+
+Familia Elogia la Información de EL TIEMPO
+
+Cali, 24. (Por Cristian Martínez Sánchez). Inicio de larms de los funda ártes de Irresistible Gómez, Cuello, más角able e lana, el logro en la nación esencialmente en la esfera de la defensa y resguardo de la integridad, y resguardo de la حرية del secreto.
+
+No Hubo Intento de Secuestro en Tuluá
+
+(Cali, 20. (Por Cristian Marqués Sánchez). Quechua totalitaria y comparada con el del "tiempo" de las, desvinculado que en el caso de El Niño a partir de nowoa vena que ha efectuado por cuenta de Colombia, una serie de duros bajo las condiciones de peatonalidad, según lo informó el Hato vecero de la institución arquitectónica.
+
+Los hechos occurredon el martes en Tuluá, estábalo Cali con el Alberto Fonda. En la misma fuente se informanrumenss en Cali.
+
+Se ha信息, por parte de vareo, de la Policía, que localizó el delito en la zona costera portahabana. Ante la circunstancia de la operación, el Ministerio de Seguridad y Policía informaron la presencia de esta institución por anta con el pan.
+
+Situado entre los once agentes de policía del Tatu. estaban los Agentes. Los agentes eran: a) un男
+b) el de la izquierda del在

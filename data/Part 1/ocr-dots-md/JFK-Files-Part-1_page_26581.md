@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_26581.png
+
+Convert to Markdown14-00000
+
+Anita Potocki/hm ☐ FILE RID
+FI/D/CS ☐ NO FOLE
+7349 ☐ DO FOLE
+22 August 1966 ☐ FILE IN CO ST.
+
+<table><tr><td colspan="5">MESSAGE FORM<br/>TOTAL COPIES 1</td></tr><tr><td>01</td><td>22</td><td>Aug</td><td>1966</td><td>Am</td></tr><tr><td>A</td><td>D</td><td>S</td><td>C</td><td>S</td></tr><tr><td>E</td><td>G</td><td>R</td><td>E</td><td>T</td></tr></table>
+
+<table><thead><tr><th>FILE NO.</th><th>DATE</th><th>TIME</th><th>Folio</th><th>Page</th></tr></thead><tbody><tr><td>1</td><td>28</td><td>SEPT</td><td>45</td><td>1</td></tr><tr><td>2</td><td>28</td><td>SEPT</td><td>45</td><td>2</td></tr><tr><td>3</td><td>28</td><td>SEPT</td><td>45</td><td>3</td></tr><tr><td>4</td><td>28</td><td>SEPT</td><td>45</td><td>4</td></tr></tbody></table>
+
+DISTRIBUTION BY: [REDACTED] PER S/D / L
+
+☐ DESTROY ☐ RETURN TO _______________ BRANCH
+
+TO: DIRECTOR
+
+[REDACTED] [S/L] [L/D]
+
+☐ RID COPY
+
+INFO: VR . FILE :S/EI, clovrn, deliv/cos
+
+<table><tr><td>(CLASSIFICATION)</td><td>(DATE AND TIME FILEDT)</td><td>(REFERENCE NUMBER)</td><td>(D-E)</td></tr><tr><td>SECRET</td><td>22 23 042 CITE DIRECTOR</td><td>29699</td><td></td></tr></table>
+
+TO: MEXICO CITY INFO: JMHAVE
+RYBAT TYLOTE ZRKNICK
+REFS: A. DIR-27990
+B. HMM-10602 (IN-76854)
+
+1. REQUEST MEXI ADVISE DETAILS OF CAPTURED EVIDENCE THAT VICTOR RICO GALAN GROUP IN RADIO CONTACT WITH CUBA, INCLUDING MAKE, MODEL NUMBER, POWER OUTPUT, FREQ RANGE, ETC. OF CAPTURED TRANSMITTER, AND WHETHER LATTER CAN BE USED FOR AM/FM AND/OR CW (MORSE) TRANSMISSIONS. ALSO DESIRE DETAILED INFO RE ANY OTHER ASSOCIATED GEAR FOUND AT TRANSMITTER SITE WHICH MIGHT BE USED IN CONJUNCTION WITH TRANSMITTER, I.E., ANTENNAS, TAPE RECORDER, KEYER, POSSIBLE SPEED OF TRANSMISSIONS WHETHER AUTOMATIC OR MANUAL, ETC. ADVISE AVAILABILITY TRANSMITTER, INCLUDING KEYER, AND CAPTURED MAGNETIC TAPES FOR WOFACT EXAMINATION. CAN MEXI ASCERTAIN WHEN WHETHER TRANSCRIPT OF CONTENTS CAPTURED TAPES AVAILABLE FOR WOPROP/D AND WODART STUDY AND COMPARISON WITH KNOWN ZRKNICK SKEDS?
+
+/CONTINUED/
+
+<table><tr><td>RELEASING OFFICE</td></tr></table>
+
+COORDINATING OFFICE
+
+<table><tr><td>SECRET</td></tr></table>
+
+AUTHENT.CATINO
+OFFICE
+
+REPRODUCTION OF THIS THAN THE ISSUING OFFICE IS PROHIBITED. NO CO.

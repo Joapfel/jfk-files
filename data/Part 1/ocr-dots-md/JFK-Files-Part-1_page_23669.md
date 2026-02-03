@@ -1,0 +1,56 @@
+# JFK-Files-Part-1_page_23669.png
+
+Convert to MarkdownSECRET
+
+- 5 -
+
+24. 1 Ritchie Compass
+
+25. 1 Sheet Camouflage Material, 20' x 10'
+
+26. 1 RB 9.6
+
+27. 1 HRT-7 Beacon
+
+## I. Maps
+
+### Maritime Charts
+
+* 2 H.O. 1002
+* 2 H.O. 2624
+* 2 H.O. 0944
+
+### Series E723, 3-AMS, 1:50,000
+
+* 2 ea. Sheets 4085 I 4085 IV
+* 4085 II 4085 III
+* 4084 I 4084 IV
+
+## J. Miscellaneous
+
+1. Cleaning Gear for 9 mm Pistol, M-3 SMG and PAL including RIG Gun Grease
+
+2. 200 ft. Parachute Cord
+
+3. Box of Matches and Waterproof Containers for same
+
+4. 12 Polyethylene Bags
+   * 4--Large Enough to Contain FAL
+   * 4--Large Enough to Contain Assembled M-3
+   * 4 18" Size for Personal Documents, etc.
+
+5. 2 Sheets Infra-Red Paper, 18" x 24"
+
+6. 1 Dynalite
+
+7. 14 Extra Flashlight Batteries
+
+8. 4 Flashlight Bulbs
+
+9. 8 Extra Penlight Batteries
+
+SECRET
+
+DESENSITIZED
+
+Rimseth

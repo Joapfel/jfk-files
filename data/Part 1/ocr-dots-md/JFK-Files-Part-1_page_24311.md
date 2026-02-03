@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_24311.png
+
+Convert to MarkdownQRPHONE REPORTING
+
+| | Cuban | AAPSO AAJA | African Liberation | War Crimes Tribunal | Anti-US | European Communism | FBI | FBI SR* | Total Dissems |
+|---|---|---|---|---|---|---|---|---|---|
+| FY67 | 3 | 5 | 13 | 27 | 12 | 24 | 22 | - | 106 |
+| FY68 | 1 | 3 | 24 | 32 | 27 | 27 | 43 | 30 | 187 |
+| FY69 | 1 | - | 12 | - | 17 | 10 | 2 | 43 | 85 |
+| FY70 | - | - | 13 | - | - | 9 | - | 9 | 31 |
+| FY71 | 1 | - | 1 | - | 1 | 3 | - | 31 | 37 |
+|  | 6 | 8 | 63 | 59 | 57 | 73 | 67 | 113 | 446 |
+
+Committee Reports

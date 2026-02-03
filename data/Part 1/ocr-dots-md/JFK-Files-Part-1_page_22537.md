@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_22537.png
+
+Convert to MarkdownSECRET-EYES ONLY
+
+Special Group on this date:
+
+"Mr. Merchant explained the feeling of the Department of State that limited supplies of small arms and other material should be made available for dissidents inside the Dominican Republic. Mr. Parrott said that we believe this can be managed securely by CIA, and that the plan would call for final transportation into the group being provided by the dissidents themselves. The Group approved the project."
+
+19 January 1961
+
+Cable from headquarters:
+
+"For Dearborn: FYI and use as you consider advisable, authority has been given Hqs for delivery to internal front of limited supply of small arms and other material on condition that introduction of material into DomRep be effected by Doms. . . . . Above coordinated with State."
+
+24 January 1961
+
+Memorandum for the record of a discussion of Project EMDERD by members of the CA Staff and of WH Division:
+
+"It was confirmed (from Mr. Parrott by phone) that the Special Group now has approved that a 'limited supply' of small arms and related equipment may be provided covertly to the Dominican resistance elements with whom we have been dealing. This was additional to the Special Group's approval on 29 December 1960 of our Operational Proposal."
+
+(Comment: As noted in the entry for 29 December, we know none of the specifics of this Operational Proposal.)
+
+SECRET-EYES ONLY

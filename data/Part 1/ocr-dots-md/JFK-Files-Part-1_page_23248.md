@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_23248.png
+
+Convert to Markdown663 ER/DB/MCB
+
+CLASSIFIED MESSAGE
+
+ORIG : R. REYNOLDS
+UNIT : WH/III/CARIBBEAN
+EXT : 2056
+DATE : 27 FEBRUARY 1958
+
+RE: HABANA
+
+FROM : DIRECTOR
+CONF : WH 5
+INFO : CI, CI/OPS, C1/IC, FI/OPS 2, S/C 2
+
+S-E-C-R-E-T
+
+No CS Record Value..Destroy..
+RI file this copy as indicated
+Branch copy filed as indicat-
+
+RE Indexing (check one).
+Marked_______ None required.
+Signature: 
+
+<table><tr><td>PRIOVENCE</td><td>DEFERRED</td><td>PRIORITY</td><td>DETIALS</td></tr><tr><td>X</td><td>ROUTINE</td><td>OPERATIONAL<br/>IMMEDIATE</td><td>DETIALS</td></tr></table>
+
+OUTS9340
+QUT 002%P
+
+TO HAVA INFO CITE DIR 10/95
+
+RE DIR 06765 (OUT 91241)
+
+REQUEST REPLY
+END OF MESSAGE
+
+C/S COMMENT: *HOS DESIRED TO ASSIGN VALDIVA PCS TO MEXI AS CP PENETRATION OCS CASE OFFICER UNDER UNOFFICIAL COVER AFTER COMPLETION CASTRO MISSION AND APPROX ONE MONTHS ORIENTATION AT HOS. QUERIED IF HE COULD COMPLETE MISSION AND MEET SCHEDULE.
+
+<table><tbody><tr><td colspan="3">COORDINATING OFFICERS</td></tr><tr><td colspan="3"><table><tr><td>S-E-C-R-E-T</td></tr></table></td></tr><tr><td>R. N. DAHLgren, C/W/3</td><td>AUTHENTICATING OFFICER</td></tr></tbody></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No. 201-16888✓

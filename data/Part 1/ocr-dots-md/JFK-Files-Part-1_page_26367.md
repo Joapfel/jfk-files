@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_26367.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="5">DOCUMENT TRANSFER AND CROSS REFERENCE</th></tr><tr><th>SUBJECT OF DOCUMENT</th><th colspan="4">DOCUMENT IDENTIFICATION</th></tr><tr><td></td><th>RI FILE NO.</th><th></th><th></th><th></th></tr><tr><td></td><th>1. DISPATCH OR SOURCE DOC. SYMBOL NO.</th><th>2. DATE</th><td colspan="2"></td></tr><tr><td></td><th>3. SOURCE CRYPTOGRAM</th><th>4. DATE OR INFO.</th><th>5. EVALUATION</th><td></td></tr><tr><td>1. ANALYST</td><td>2. DATE PROCESSED</td><th>6. DISTRIMINATED TO</th><th>7. DATE</th><td></td></tr><tr><th colspan="4">DOCUMENT DISPOSITION</th><th></th></tr><tr><td>10. CROSS REFERRED TO THIS FILE</td><td colspan="3">13. TRANSFERRED TO<br/>RI FILE NO.</td></tr><tr><th colspan="5">PENTIMENT INFORMATION</th></tr><tr><td colspan="5"><table><tbody><tr><td>RIGALAN, VICTOR<br/>201-316474<br/>SEX M DUB 06 FEB 28<br/>SPAIN, EL FERNOL<br/>CI T MEXICO<br/>OCC ?<br/>&lt; MEXICO SEE DOCUMENT FOR SHORT SUMMARY ON<br/>SUBJECTS ARREST FOR SUBVERSIVE ACTIVITIES<br/>AND POS- SIBLE COMMUNIST CONNECTIONS.</td><td>050-004-136<br/>HMMA-30265A01<br/>06 OCT 66<br/>P3</td></tr><tr><td colspan="5">R 6610170076</td></tr></tbody></table></td></tr><tr><td colspan="5">FILE IN 201-</td></tr><tr><th colspan="5">FORM 897 800 EXTRACTED 10/2/87</th></tr><tr><td colspan="5">SECRET (17-401)</td></tr></thead><tfoot><tr><td colspan="5">FILE THIS FORM IN FILE NO.</td></tr></tfoot></table>
+
+SECRET
+(17-401)

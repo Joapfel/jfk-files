@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_26498.png
+
+Convert to MarkdownSECRET
+
+1. The attached passports were obtained from a sensitive photo coverage at the airport in Mexico City of passport's of persons arriving on all flights from Havana, Cuba, and Brussels, Belgium. (Many Soviets travel to Mexico via Brussels.) The operation is conducted with the knowledge of a particular office of the Mexican Government but is **not** a liaison.
+
+2. It is suggested that your desk review the passports of your citizens, and send the copy to the 201 file in RID if there is one, and take whatever other action you wish. There should be no dissemination of the passport and no exploitation thereof without prior coordination with WH/3/Mexico and without due care to protect the source.
+
+3. Copies of these passports and the reels have been furnished TSD/IB therefore you should not send your copies to them.
+
+4. The manifests have been sent to RID/ZZ for processing.
+
+5. Any questions on the above or the attachments should be directed to the LITEMPO case officer, WH/3/Mexico, x6026 or x6110, Room 3B003.
+
+SECRET
+
+8-21-71
+
+RCS #111074

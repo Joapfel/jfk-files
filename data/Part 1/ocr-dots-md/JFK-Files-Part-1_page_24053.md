@@ -1,0 +1,68 @@
+# JFK-Files-Part-1_page_24053.png
+
+Convert to MarkdownSECRET
+
+SECRET
+
+**EPOERTZA:**
+
+**priloven na zarazn** edel 7.VIII.68 pod igo
+
+**Observatio-Malaria**
+
+Anatomie člani, čne, tg. dr. Jaja objavlja svješće slobod,
+impietancu i radikalnu, jednu četrtnju, revolijkošt i zajedni
+ne temperature, te terenu pod češćin reciklinu lukočići.
+Uvjeta za radikalne bilo utvrdi se suhrtetan, alic-
+na, jetoć ingrijiva u oda i P.o., lnگane asjetljiva uz uređaj
+ental palaž.
+
+Hepatiti testev ukazuju na osbecenje jetrezog, pheuka
+srednje jakog surnika, sođivajući slice iridizirano hropat-
+tinu.
+
+Između doktersona progresu u prvih mlar čana, cok te ne
+uvece u terpiju kortotrostide, nikon čegi osito bolez. Do
+poteljenja čicaj stanja, to slocavanja interusa.
+
+Načen 8 čuna nestaje životna 12��а, apetit uspostavljen
+zaštitnom naše tereno i sačuvanjju, te se nikan 15. dana napravi
+kontrolnu hepatogram/vij. dinaz/.
+
+Iako je bilo petecene nastaviti 22,40ćenje u bolnici, bolesnjk
+Zoli otp ost, to se uz sluto etusta.
+
+D'AGIOZA:
+
+HEPATITS THEOCTOSA ACUTA
+
+LTJWEI:
+
+Beyplex drag-C vit tbl-3H-cholin-drag-Teria Eyck in caps.
+Decason dip + tbl-ultor tbl-Antiperonin amp-betonin amp+
+Aneuris amp-m gestal tbl-m jeta.
+
+OTPUŠTER:
+
+26.VIII.68.kao poboljšan,
+
+Petrebno je nastaviti ascelutne mrevanja u kućnoj njezi,
+dijetama 1. godini po ujoši, 22 kontrolu 14. juna, te kontro-
+lu hematologra 24. 9. do 30. 4. mjeso.
+
+Od. Ljekova preporoča se nastaviti devplex drag 5.2-10 100
+cholin drag 3.27 decortin caps 4x1-Dexason tbl/dip.2 ml
+3x1-2 čama, 2x1 15z 30g, a čelje pronaču uoju decason/
+ alter tbl/cok uzina dexason/
+
+Odjem.lječnik*
+/dr.o.Pilica/
+Slin
+
+<table>
+   <tr>
+    <td>THIS MATERIAL HAS BEEN ACQUIRED BY SENSITIVE SOURCE.<br/>IT IS NOT TO BE REPLICATED OR DISSEMINATED DIVISION<br/>OR STAFF, DISTRIBUTE, RELATED TO THE FIELD, OR FORM<br/>THE BASIS FOR OPERATIONAL PRACTICE, WITHOUT FURTHER<br/>AUTHORIZATION FROM THE PARTIES SO指定</td>
+   </tr>
+  </table>
+
+SECRET

@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_24009.png
+
+Convert to Markdown59. BABU
+
+81. Andries CABEZAR
+
+30. Donka HALLO
+
+33. Castro da SILVA
+
+44. Maria VALDES
+
+55. Hasea BLAD
+
+56. Macias Abdal Hamid DHASLANI
+
+57. Marco FERRER
+
+58. From CINWALA, East Africa residing in London.
+
+59. Carlos LANCA and Patricia McCown PINHEIRO, reported to be Leesa's wife, in Algeria? Any other current Algerian contacts?
+
+60. Mohamed KABDI, who replaced VERGES as editor ofREVOLUTIONN polemique.
+
+61. Robert WILLIAM (America in Paris)
+
+62. Mohamed WIDIER. Was his departure from Algiers rejected in any way to the departure of VEROES?
+
+63. Sub Sahara Africans, particularly in Gambia, Mali and Ghana, with pre-islamic links of sympathies.
+
+64.HDODRO (Angola)
+
+65. Mario DuAdrood (Angola)
+
+66. Michael TAHATA (South Africa)
+
+67. Frédéric MASPEBO, Paris出版物 of Particular How financed?
+
+68. André BELOE. Any connection with Rev.?

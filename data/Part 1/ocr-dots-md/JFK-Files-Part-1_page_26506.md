@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_26506.png
+
+Convert to Markdownrole of the struggle of semicolonial or colonial peoples, and so forth,
+are necessary. They are necessary because for a party, for a group to have
+authority it has to persuade masses which have high political sophistication.
+In our countries we face no such problems. We do not face such problems
+because our masses are thoroughly unconcerned from a political standpoint.
+
+In another --- rather, stated in better terms, more clearly and more
+accurately, they have a very elementary understanding of their problems.
+The concern of the peasant is for the soil; I do not think it goes beyond
+that at the moment. I believe that if the peasant is offered land, is
+offered schooling for his children, medical care, and so forth, he will not
+demand any more explanations. He sees no other problems.
+
+So, when I read in Revolucion Socialista all these things, about the
+Bolivian masses, the armed militias, it is a truly shocking confusion. And
+I say this because I know Bolivia, I have been there, I have seen their real
+problems. When I see all this about Peru, where the masses are said to be
+doing their will, with a semifoudal government, it is truly --- it seems to
+us that we are falling into a number of questions which there is no purpose
+in discussing here.
+
+And it is not that I champion the abandonment of ideology. No, I think
+that you, the leaders, the people of the central nucleus, must study, must
+read, must read the classics. The other day I heard a recording by our
+comrade [Surcio?] with reference to this, and I think the attitude is very
+proper. You must have the clearest possible view, but I think it would
+be mistaken on your part not to realize that if you advance too far ahead
+you will isolate yourselves from the masses.
+
+Also, and in connection with this same subject, it is not the same thing

@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_25119.png
+
+Convert to MarkdownS E C R E T
+
+- 18 -
+
+Unidentified Nicaraguan: An unidentified Nicaraguan male called Subject on 8 November 1963 and stated he had something for Subject. Subject asked him to come by the Embassy the next day. (151)
+
+Virginia GOMEZ Niceto: Hairdresser, member of the Women's Group of International Organization of Journalists, and a leftist. GOMEZ called the Embassy and left a message for Subject, stating she would be over to see him on the following Monday. (152)
+
+Sra. Maria GONZALEZ and her daughter Juana: Subject became interested in Juana at LICOWL/1's fiesta in September 1964. Maria GONZALEZ stated to LICOWL/1 that Subject had offered her daughter 300 pesos a week to be his girl friend. Subject and Viktor KALININ, Administrator, met with Maria GONZALEZ and Lourdes CUEVAS on 26 September 1964, in an attempt by GONZALEZ to fix Subject up with CUEVAS, because she didn't want her daughter going with Subject. (4)
+
+Sr. fnu HERON or HARON: HERON called Subject on 19 January 1965, in order to find out how to mail a package to the Lithuanian USSR. Subject gave HERON a detailed explanation. (65)
+
+Dr. Arseny LEPEAUCA: Medical doctor residing at Sinaloa 109, telephone 28-95-28. LEPEAUCA called Subject on 5 January 1965 to invite him to a "Rosca" party at his home, the next day. (153) (155)
+
+Jose Luis FERNANDEZ: FERNANADEZ was in contact with Subject concerning a trip to the USSR for an operation. (54) (155)
+
+Manuel SUAREZ Angeles: Planist who has studied music in Moscow (1963). Subject, NECHIPORENKO (see Western contacts) and the Ambassador were invited to the SUAREZ home. (156)
+
+Dr. Luis QUINTANILLA del Valle: Leftist Director of the Institute for Living, Mexico. QUINTANILLA'S secretary called the Embassy and told Subject, 19 manuals of Marx were missing from the package Subject or Svyatoslav Fedorovich KUZNETSOV, First Secretary, Cultural Officer and KGB Officer, sent over and would they please send copies when they are again available. (158)
+
+fnu SAN MARTIN: Employee of Television Channel111. SAN MARTIN called the Embassy on 5 March 1964 to cancel a date he had with Subject. (159)
+
+Armando MARTINEZ: MARTINEZ called the Embassy on 26 October 1964 and left a message that he wanted to speak to Subject. He also stated that he had told Subject he would call, and that it was urgent. (29)
+
+Nuna SIMANOVICH: Owner and operator of the NUNA SIMANOVICH Curio Shop, Ruiz Ave., Ensenada, Baja California, Mexico. Subject and ALFERYEV (see Soviet contacts) visited SIMANOVICH's store in September 1963, and Subject told him if he wished to travel to the USSR, it could very easily be arranged. Subject also told SIMANOVICH he was attached to the Soviet Embassy in Mexico City. (136)
+
+SECRET

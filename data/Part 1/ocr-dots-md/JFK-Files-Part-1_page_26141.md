@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_26141.png
+
+Convert to Markdown14-00000
+
+HMO-5287 Subj is Chief of Information on Pueblo, anti-US and pro-Cuba newspaper,
+11 Nov 61
+
+MAR-5301 Cuban Government OKIA Airborne to be sent to Spain for secondarily analysis (GIBB). (LIENVOY B-2)
+
+HOM-5411 Subj is accused by Manuel MARGUE Pardinas, dir-gen of Politics, of being in the pay
+3 'eb 61 of the MOX Uov and trying to delay the appearance of Politica. (LIENVOY B-2)
+CO-
+
+HON. 5158 another accusation of trying to delay issuance of Politica by MARQUE who wants to
+15 Feb 61 get rid of subj; Rosendo HOUZZ Lorenzo cautioned that he has a public following &
+CSLU- should not be dismissed. (LIENVOY B-2)
+
+HQM-5607 Subj was to attend interview of LOPEZ Mateos relative to case of Cuba on 20 Apr 61.
+21 Apr 61 Interview was planned on 19 Apr by CEM & Max Organising Committee of LAPC.
+TDCS-3/472,253 (LIENVOY, B-2)
+
+HQM-5791 Subj is a mbr of the Committee for Solidarity w/the Cuban Revolution. (LIFTER, B-2)
+
+28 Jul 61
+CS-3/482,611
+
+HRI-6739 31 Oct 61 staff of official sub of Ministerio de Higiene - Nacional (MHI -
+17 Nov 61 National卫生站) anti-US, pro-Cuba, Communist Party, was working over-
+CS-3/hci,208 than in effort to publish first issue newspaper 31 Oct (1. 5 a.m. includes.
+
+Subj., who was unable to communicate in the work of First Sheet of politics. Under the
+COLLECTIVO Pedrero, planned to register put 31.Oct under false name Jacobo Melendez.
+HIMMY, B-2 security control

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_22613.png
+
+Convert to MarkdownSECRET
+
+13 July 1960
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Harold R. Noemayr Assistance
+to WH/4/CA Effort
+
+1. Harold R. Noemayr has been working full time for WH/4/Prop and WH/4/P& since early June 1960. He has translated important propaganda or political action manuscripts into Spanish and from Spanish into English. He has proofread materials to be sent to the station. He has offered suggestions on operational possibilities and reviewed critically a great deal of propaganda material under preparation by WH/4.
+
+2. Mr. Noemayr's work has been of the highest quality and has been of inestimable value to WH/4.
+
+3. It is hoped that he will be able to continue in his advisory and support capacity, especially to our propaganda effort.
+
+DAVID A. PHILLIPS
+C/WH/4/Prop
+
+SECRET
+
+13 July 60
+201-16881

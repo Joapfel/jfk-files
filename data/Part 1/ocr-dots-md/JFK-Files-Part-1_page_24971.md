@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_24971.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Director, Domestic Contact Service
+C. Delaney
+Chief, New York Field Office
+
+~~July Concerning CIA Connection of Herbert ITkin,~~
+~~New York Lawyer~~
+
+1. A call received on the listed telephone of the New York office on the afternoon of 15 February 1966 consumed calls by Herbert Itkin, a major law advertising in New York City, to the effect that he was closely related to the CIA.
+
+2. The call was made by Mr. E. Routeane, R.D., of Hone, Pennsylvania. Mr. Kane is a pretrial attorney in Pennsylvania, Naval Reserve Officer (USN 19247), a Republican politician who gave the present Governor and Senator Hugh Scott as references.
+
+3. Herbert Itkin is a former son-in-law of Mr. Kane's. Itkin allegedly claimed that he had been of considerable assistance to OIA in Haiti and elsewhere. The allegation was that he was a trusted CIA informant or agent, not a staff employee.
+
+4. Mr. Kane contacted this office for two specific reasons:
+
+(a) He wanted to warn CIA that Itkin was not at this time a considerable CIA contact because of debts concerning his reliability, discretion, ability to meet his financial obligations, and mental equilibrium.
+
+(b) He (Kane) did not wish to proceed any further in pursuing his (unidentified) course of action against Itkin if there were any substance to Itkin's claims. Put in another way, Kane is planning to take some action against his former son-in-law, and he wants to disprove the latter's claims of some CIA affiliation or backing before proceeding further.
+
+5. Mr. Kane phoned the New York office from a room at the Hotel Drake, New York City, prior to his departure for
+
+EXH. A
+
+EXH. B
+
+<table><tr><td>ExhA</td></tr><tr><td>ExhB</td></tr></table>

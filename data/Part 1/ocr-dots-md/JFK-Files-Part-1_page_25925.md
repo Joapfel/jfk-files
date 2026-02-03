@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_25925.png
+
+Convert to MarkdownIN 077749
+
+TOFIRDB-315/10576-7b
+
+WARNING NOTICE
+SENSITIVE: INTELLIGENCE SOURCES AND METHODS INVOLVED
+
+SECRET
+
+• (unclassified)
+
+FURTHER DISSEMINATION AND USE OF THIS INFORMATION SUBJECT TO CONTROLS STATED AT BEGINNING AND END OF REPORT.
+
+A FILE ON BOSCH AT THE REQUEST OF ADMIRAL PATRICIO CARVAJAL, MINISTER OF FOREIGN AFFAIRS. THE FILE CONSISTS MAINLY OF EXCHANGES OF CORRESPONDENCE BETWEEN THE CHILEAN EMBASSY IN SAN JOSE, COSTA RICA, AND THE FOREIGN MINISTRY CONCERNING BOSCH'S ARREST IN SAN JOSE IN MARCH 1976, AND THE FACT THAT HE HAD CHILEAN IDENTITY DOCUMENTS IN HIS POSSESSION.
+
+4. THE DOCUMENTS INCLUDED A BIRTH CERTIFICATE, IDENTITY CARD, TAX IDENTIFICATION CARD AND PASSPORT, ALL IN THE NAME OF RICARDO RAMON DAVANZo CERUTI. THE PASSPORT WAS ISSUED IN CHILE IN 1966, AND HAD NEVER BEEN RENEWED. (SOURCE COMMENT: CHILEAN PASSPORTS NORMALLY REQUIRE RENEWAL EVERY TWO YEARS.) THE PASSPORT CONTAINED ONE CHILEAN EXIT STAMP, DATED 1966, AND NO INDICATION THAT IT HAD SUBSEQUENTLY BEEN USED TO ENTER OR EXIT CHILE. IT CONTAINED MANY EXIT AND ENTRY STAMPS INDICATING EXTENSIVE TRAVEL BY ITS BEARER IN CENTRAL AMERICA AND PANAMA, BETWEEN 1966 AND MARCH 1976. THE PASSPORT AND OTHER DOCUMENTATION WAS SHOWN TO CHILEAN EMBASSY OFFICIALS IN SAN JOSE BY COSTA RICAN OFFICIALS; HOWEVER, THE COSTA RICANS DID NOT GIVE THE DOCUMENTS TO THE EMBASSY OFFICIALS.
+
+SECRET
+
+... . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .

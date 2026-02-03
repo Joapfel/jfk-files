@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_26870.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR: Chief, CI/UA
+ATTENTION : Mr. George Ball
+SUBJECT : Antonio SOTO Vanqués
+REFERENCE : CI/QA Memorandum of 4 May 1965
+
+1. Attached to the referenced memorandum was a list of eight documents concerning the Subject, with a request that SOD/AB/OPS/3 comment on their significance as they might affect the granting of a POA to the Subject.
+
+2. Six of the eight documents were found to be in-equal significant. Two of the documents were not found. Attached is a memorandum from Chief, CID/FI stating that the two documents could not be found.
+
+3. The Subject has been a WITWUSB pilot in the past. He was granted a POA on 9 March 1961, and again on 29 October 1962. It is requested that he be again granted a POA in accordance with Form 773 submitted to Chief, CI/QA on 7 April 1963.
+
+Laurence Murphy
+SOD/AB/OPS/3
+
+Attachment
+
+Distribution:
+
+Orig. & 2 - Addressee
+1 - C/SOD/AD
+1 - SOD/SECUR
+1 - SOD/AB/OPS/3
+* - 201-294544
+1 - SOD/RI
+1 - Chrome
+
+SOD/AB/OPS/3:L.MURPHY:kns(21 May 1965)
+
+<table><tr><td>SECRET</td></tr></table>

@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_26262.png
+
+Convert to Markdown1. Do you think a violent Communist revolution is a necessary stage in the development of Latin America?
+
+2. Do you agree with the view expressed by Fidel Castro that most Latin America countries are ripe for violent revolution?
+
+3. In your view, which groups and leaders have the biggest potential for leading revolutionary movements in Latin America? Do you think guerrilla warfare can bring Communism to any L.A. Country?
+
+4. In your view which regions are most successful in coping with their internal problems.
+
+5. In your view, what impact is Fidel Castro having on Latin America?
+
+6. Who is doing more to promote Communist revolutions in Latin America, Cuba, the Soviet Union or China. How do you see the role of each country?
+
+7. How do the revolutionary theories of Cuba, Moscow and Peking differ from each other as applied to Latin America.
+
+8. In your view, are the Soviets using Castro as an instrument to promote their revolutionary line and interests, or is Castro's line opposed to the Soviets in Latin America.
+
+9. Is the Alliance for Progress having much effect in promoting economic development and political stability in Latin America?
+
+10. Can Europe play more of a role in Latin America to promote economic development? How?
+
+11. It is said in journalistic circles that the Soviets resent and oppose Castro's tactics in Latin America because they undermine the position of the orthodox Communist Parties loyal to Moscow. It is also said that the Soviets are plotting to eliminate Fidel Castro.
+Is this information correct?
+If so, do you think Castro is aware of the Soviet plans?
+Did Castro ever discuss with you his conflicts with Moscow? What is his solution?
+
+12. In your view how large is the Castro apparatus operating in Latin America to promote guerrilla warfare and revolutions. From what elements of society do the Cubans get their support?
+
+13. Is China an obstacle to the expansion of Cuban and Soviet influence in Latin America?
+
+14. How serious, in your opinion, is the discord between Havana and Moscow regarding revolution in Latin America?

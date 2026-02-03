@@ -1,0 +1,441 @@
+# JFK-Files-Part-1_page_25587.png
+
+Convert to Markdown14-0000
+
+<table>
+   <tr>
+    <td>MESSAGE FORM<br/>TOTAL COPIES:</td>
+    <td>
+     Bounding lines/Group labels - Team by
+    </td>
+   </tr>
+   <tr>
+    <td rowspan="6">
+     J. Stewart<br/>WH/1<br/>6954/9041<br/>Date: 6 September 1967
+    </td>
+    <td rowspan="6">
+     SECRET
+    </td>
+   </tr>
+   <tr>
+    <td>
+     [ ] NO COPY [ ] SPLIT OFF [ ] RETURN TO _________ SEARCH [ ] FILM RAG
+    </td>
+   </tr>
+   <tr>
+    <td>
+     [X] NO COPYX [ ] FILM IN CS FILM NO.
+    </td>
+   </tr>
+   <tr>
+    <td colspan="2">
+     [ ] RLD COPY [ ] FLD: 1, VD: W/KOSG, TSO6, C/CASG,
+    </td>
+   </tr>
+   <tr>
+    <td>
+     [C/OF Fl, C/FC GZ]
+    </td>
+   </tr>
+   <tr>
+    <td>(box) (page number) (place)
+    </td>
+   </tr>
+  </table>
+
+to NEXICO CITY
+
+PERUMEN
+
+REFS A. MEXICO CITY 2643 (IN 42349)
+
+B. MEXICO CITY 2514 (IN 34914)
+
+1. SUBJECT'S POA WAS REQUESTED, ON ROUTINE BASIS, SINCE STATION REQUEST NOT MADE ON PRIOR TO BASIS AND VRS UNAUTHORIZED TIME ELEMENT P
+
+MENTIONED REFS 4. WILL CABLE PROMPTLY UPON RECEIPT. MEANWHILE CAN CUTTING ASSESSMENT AND DEVELOPM ENT.
+
+2. WE RELUCTANT & AUTHORIZE REQUESTED DOCUMENTATION IN CASE THIS NATURE AT OUTSET. SUGGEST STATION CONSIDER SGSWIRL, ASSUMING POA BY TIME OF ARRIVAL NEXT OPERATORS LATE SEPTEMBER. IF SGSWIRL SATISFACTORY AND FURTHER BONA FIDES STILL NEEDED, DOCUMENTATION COULD THEN BE INTRODUCED.
+
+END OF MESSAGE
+
+WH COMMENT: * Mexico City wishes to actively pursue development to point of recruitment of Sylvia TREVINO Caspari, whom Station wishes to put in orbit of LIRING-9 to elicit info on Cubans and place financial strain on him.
+
+WH/COG/CICS
+
+William V. Broe
+C/WHD
+
+RELEASED OFFICE
+
+COORDINATING OFFICES
+
+<table><tr><td>SECRET</td></tr></table>
+
+COPY 1
+Included from automatically generated and standardized form.
+
+AUTHENTICATION OFFICE
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+COPY 1
+
+C/C/DC 33547
+
+J. Fisher
+AC/WH/2
+
+4
+
+2
+
+1
+
+4
+
+2
+
+2
+
+1
+
+2
+
+1
+
+1
+
+1
+
+2
+
+2
+
+1
+
+1
+
+1
+
+1
+
+1
+
+2
+
+2
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1
+
+1

@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_23029.png
+
+Convert to MarkdownSECRET
+
+SEPARATE COVER ATTACHMENT TO:
+
+UFGA-17558, 25 August 1964
+
+IDENTITY A: Juan F. BLANCO Hernandez
+IDENTITY B: 6831 SW 6 Street, Miami, Florida
+IDENTITY C: SS #265-74-1626
+
+SECRET
+
+CS COPY
+
+SCA
+att#2 to UFGA 17558
+
+201-332676
+
+L

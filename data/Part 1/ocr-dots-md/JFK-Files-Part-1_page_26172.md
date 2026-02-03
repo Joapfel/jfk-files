@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_26172.png
+
+Convert to Markdown# SECRET/NO FOREIGN DISSEM
+INTERNAL USE ONLY
+
+## Instructions for SWL Form Part V: Investigative Action Record
+
+1. Intended for overall SWL program management purposes, this form permits the maintenance of an orderly record on a cumulative basis of action requested and results achieved concerning the SWL individual.
+
+2. The form has six columns for entering summary information on action requested, results of action, and for recording reference data. Action requested should be described succinctly (e.g., "Name trace w. liaison;" "Baggage search;" "Check with last employer.").
+
+3. This form must be incorporated permanently into the 201 dossier, attached inside the left hand cover.

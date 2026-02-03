@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_26744.png
+
+Convert to MarkdownKeel 22-ICO-28
+
+3 May 1965
+
+11.2 Out to 42-14-63. Lidly Zahi (??very indistinct) with Alberto Domingo. MI says that the raffle will take place. ?? just wanted to know. AD has the money(for some tickets). How many did AD sell? Around 26 - but is not sure. Between 25 and 30.
+
+Marcue takes the phone. Did ?? hand in his article? No, AD is not well. They need AD's article anyway. When can he take it? Tomorrow. All right.
+
+12.2 Out to 35-36-52. Marcué with Peato, who answers. Nothing new. Asks for Sra. (Marcué)? She is there. Asks if Pepe took the engravings (to be done).
+
+Checks and says they took the engravings to shop and go-to others to "Mercurio." Marcue will be there in a little bit.
+
+After 1750, 3 way
+
+12.3 In. ?/O asks Inge Rico, who answers, for Costa. Costa has gone out...will be back in 10 minutes.
+
+12.7 In. ?/O Miric with -aid, who answers. Miric thinks he has wrong number and hangs up.
+
+13.0 In. Miric with Inge Rico, who answers. Greetings. Asks for VAG. Not there. Has not come home. Then, Miric knows where he is. Because he phoned Miric around 1330. If Miric phones him, tell him there is a Habana call. He said that he would be home soon. It does not know where he is. She told long distance to call back in an hour. Several persons also came by to see VAG at home. If Miric locates him - Miric says there is no phone there (where VAG is), but VAG promised to call Miric.
+
+13.2 In. Maria with Inge Rico, who answers. Maria is said type... Asks why she left the way she did...about why she left...
+
+14.2 In. from long distance. Havana is calling VAG. Not back yet. She will have VAG report in when he arrives.
+
+14.5 In, from long distance. Habana is calling VAG. Hangs up after wait.
+?? (Carmen?) asks Inge, who answers, for VAG.
+
+15.0 In, AXIXAXXXXXAAXXXXXXXAXXXXXXAXXXXXXAXXXXXXXAXXXXXX Not in yet.
+
+15.2 In. ?/O with Inge Rico, who answers, for C.A.R.T.N.
+
+16.2 In. Miric with Inge Rico, who answers, for VAG. Not in yet. Miric is going to look for the phone number and see if he can locate VAG. M. knows where VAG is. VAG has not phoned in.
+
+if that person called.
+
+16.7 In. AXIXAXXXXXAAXXXXXXAXXXXXX Not there. Tell VAG that he (??) will be inside, not outside. All right. Olda's VAG come in? No. And VAG did not go there (with ??) No. A/O will be there until 2230 or 2300. Call Inge back by 2130 because "she should not call later than that." Fine. A/O is Luis.
+
+Keel 73-ICO-28
+
+- 3 -

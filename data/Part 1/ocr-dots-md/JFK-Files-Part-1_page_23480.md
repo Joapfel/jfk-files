@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_23480.png
+
+Convert to MarkdownSECRET
+SECURITY INFORMATION
+
+COVERT PERSONNEL SERVICES FORM
+JOB SUMMARY
+
+Pseudonym Arthur G. VAIVADA
+Division WH/III
+Project A.M./OAHSH
+Case Officer R. L. Malcolm
+Date 22 July 1964
+
+(If this information is contained in an approved Project, this form need not be completed.)
+
+I. **Duties:** (General Description of the Duties to be performed)
+Penetration of the Cuban Communist Party and Communist fronts at the University of Havana.
+
+II. **Qualifications:** (Indicate qualifications applicable to assigned duties)
+
+a. Experience: Four years experience as a contract agent in WHD
+
+b. Education: (Check) High School ___ College X Post Graduate ___
+
+c. Language: English and Spanish - fluent
+
+d. Other:
+
+III. Present Job and salary:
+Formerly received $4205 plus allowances. This is to be raised to $5060 per annum plus allowances under new contract.
+
+IV. Cover Activity: PROPOSED ESTABLISHED (Cross out one). Give general description, i.e., Proprietary, Subsidized, Cultural, Educational, Commercial, Nominal, Military, etc.
+Subject was under student cover in previous project. This cover will be continued in the new project.
+
+FORM NO. 89-83A
+FEB 1959
+
+SECRET
+SECURITY INFORMATION
+
+R. L. Malcolm, WHD/IJI
+
+(4)

@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_24715.png
+
+Convert to Markdowndescribe him as disingenuous with his present rank at the Embassy. Some bio data is now available, but further development is definitely warranted. He is friendly and approachable. His value lies in (a) his leading role in other Embassy officers and providing bio data about them; (b) his being disgruntled and providing information wittingly; (c) his being an intelligence officer.
+
+(2) Henri de *Coignac*. Met on several occasions. Have made tentative tennis date. Is very close to the Ambassador. The nature of his relationship or the services provided to the Ambassador have to be determined.
+
+(3) Genevieve *San Jose*. Have seen on several occasions and have established a fairly friendly relationship. She is a journalist with the Le Journal Francorchamps. Has already been a source of some bio data about Embassy officers, introduced to some members of French colony, corroborated some information obtained elsewhere.
+
+(4) Marie Bideault *Lenort*. Switchboard operator at the Embassy. Unmarried, friendly, helpful. Have visited her on various pro texts, now stop by just to say hello. Hope to get her up for another agent to meet and develop.
+
+(5) Valentine *Honorat*. Secretary to Jacques Solge, Attaché at the Embassy. Elderly, friendly, helpful. Corrected letter I wrote to Ambassador. In return I gave her a box of chocolates for which she seemed genuinely grateful. Offered to help me in future in any way she could.
+
+(6) Suzanne *Felicion*. Assistant to Cultural Attaché. Seen several times on business. Friendly. Known to mutual friends. Possible source of bio data on other Embassy personnel. Has invited my wife and me to dinner. This could be our first important break.
+
+SECRET
+
+REPRODUCTION IS BEST AVAILABLE
+FROM A COPY CARD SUBMITTED

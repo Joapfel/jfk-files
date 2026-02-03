@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_26599.png
+
+Convert to Markdown2.
+
+Fidel Castro's chief political subversion agent in Latin America. During a recent trip to Guatemala, for instance, he attempted to orient politically the split Communist factions striving to overthrow the Guatemalan Government. A tape recording exists of a speech he made which was later distributed to Guatemalan guerrillas. In the speech Rico Galon claimed he was speaking as an individual, rather than as a representative of the Cuban government. In fact, he was acting on behalf of Castro, as he was instructed to do by members of the Cuban intelligence service in the Cuban Embassy in Mexico City, with whom he has been in very frequent contact for the past several years.
+
+Attached find a copy of the tape recording mentioned above.

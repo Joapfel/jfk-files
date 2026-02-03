@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_24725.png
+
+Convert to Markdown73. N.Y., Kolodny
+Texas House St.
+Telephones 36-32-1, 3, 4
+
+On 20 May 1955 this subject called (Kolak) Public Relations, Series 18, was used to: "We have found that in most cases the recommendation of Soviet foreign policy." This is true. We will take to you to bring the next day.
+
+On 3 August 1955 -77 called the agency to bring up the topic of news to be turned into a social function that meets.
+
+This letter raised the interest of the station because it is put often but the stories deliver answers to private needs.
+
+10-28 was requested to supply information on this subject on 1, 19, 26 and 30 July. On 1st, 2nd, 3rd and 4th he read (8-2) that he would do any great act in the Mexican Democratic Service, at one time being Charge of the Mexican Mission in Mexico, Poland. He was never very excited. He is now about 75 yrs. old, inactive in the government, and writes articles for the newspaper _Excelsior_. He is a brother of the post, Amaro Paredes.
+
+Actions: None contemplated.

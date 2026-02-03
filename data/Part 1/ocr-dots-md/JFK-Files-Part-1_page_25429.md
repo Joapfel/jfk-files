@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_25429.png
+
+Convert to Markdown29 July 1954
+
+HcdONALD
+
+A-46188
+Hughes
+
+C
+
+10 May 1913
+
+Hopkins, Minn.
+
+US
+
+Present 3601 Colonial Ave., Mar Vista, California
+
+1936
+
+Present Los Angeles County Sheriff's Office (Main Office)
+
+211 Temple Street
+Los Angeles, Calif.
+
+1935, Univ. of Southern Calif, Political Science; 1943, University of Michigan, Japanese Language; 1944, University of Virginia, Military Government; 1945, Stanford University, Military Affairs
+
+Major in Army Reserve (File 050-248)

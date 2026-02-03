@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_25488.png
+
+Convert to MarkdownSECRET
+
+21 September 1970
+
+MEMORANDUM FOR: Office of Security/OSD
+
+VIA : Chief, WH/Security
+
+SUBJECT : Mr. Maurits Roos
+
+1. Mr. Maurits Roos is the brother of Hester Roos de Alvarez, an asset of Mexico City Station, who was terminated without prejudice on 26 June 1970. In the termination agreement, this Agency agreed to pay Mrs. Roos de Alvarez a bonus payment amounting to $2500 (USD) payable in ten monthly installments of $250 (USD) beginning 31 July 1970. Since termination, Mrs. Roos de Alvarez has departed Mexico City and is now resident at: Ary Schefferstraat 47, The Hague, Netherlands. Mrs. Roos de Alvarez has written directly to this Agency requesting that we forward the monthly payments directly to her or via her brother. For security reasons, this office has decided to obtain a cover check in the amount of $750 (USD) made out to Mrs. Hester Roos de Alvarez, to cover payments for July, August, and September (@ $250 (USD) per month); and it is requested that a representative of your office establish contact with Mr. Maurits Roos, her brother, brief him on the background of the case, and request he forward the check on to his sister in The Hague. A brief note for Mr. Roos to read is attached to this Memorandum and will explain how future monthly checks for his sister will be forwarded through him.
+
+2. As the result of any inquiry to your office in August of 1969, the following information was developed on the Subject: Mr. Roos is presently a GS-13 research cryptographer at Ft. Belvoir, Virginia and has been employed by the U.S. Government since May 1952. Employment records further disclosed that Roos is a U.S. citizen, was born 2 January 1927 in Java and was granted a top secret clearance on 3 April 1970 by the U.S. Army. His local telephone number is 931-8132 and he resides at 4744 Kenmore Avenue, Alexandria, Virginia.
+
+<table><tr><td>GROUP I</td></tr><tr><td>Enclosed from automatically</td></tr><tr><td>downloading and</td></tr><tr><td>decryption</td></tr></table>
+
+SECRET
+
+14-00000

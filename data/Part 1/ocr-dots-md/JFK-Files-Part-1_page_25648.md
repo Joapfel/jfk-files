@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_25648.png
+
+Convert to MarkdownSECRET
+
+4 March 1970
+
+MEMORANDUM FOR: Counter Intelligence/Operational
+Approval and Support Group
+
+ATTENTION : Mr. Jack Lally
+
+SUBJECT : GICITRON-4 (201-267288)
+
+A review of the Staff D dossier on Subject reveals
+no derogatory information.
+
+Joel H. Beyer
+WH/S/C
+
+Distribution:
+
+Orig & 1 - CI/OA
+X - (201-267288)
+1 - Memo Chrono
+1 - Extra copy file
+
+WH/3/C-JHBeyer:mac/x9494 (4 March 70)

@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_25122.png
+
+Convert to MarkdownSECRET
+
+- 21 -
+
+## 17. OPERATIONAL PLANNING DATA:
+
+### a. for access:
+
+(1) current residence (address, floor plan, owner, neighbors, other pertinent data):
+
+Subject lives at Progreso 9, Interior (apartment) 6, Mexico D.F. (28)
+
+(2) phone;
+
+Subject has no known home phone.
+
+(3) car (license, description, where garaged and serviced):
+
+Subject shares a 1963 white Volkswagen, license # D-336, with NECHIPORENKO. During 19,20 and 21 January 1965, while Subject was under LIEMBRACE surveillance, it was noted Subject had had an accident and was using a white 1963 Volkswagen, license # D-335 usually used by NIKIFOROV (see Soviet contacts) and Boris Sergeyevich ZOBNIN, Commercial Officer Employee and suspect KGB officer. (13) (34) (32)
+
+(4) office (location, floor plan, phone number, immediate associates, etc.):
+
+Subject usually occupies a desk on the second floor of the Embassy in an area allotted to the Consular section. (76)
+
+(5) current pattern of daily activity (including routes taken, hours, where eats, sports, hobbies, clubs):
+
+Subject arrives at the Embassy at approximately 9:00am and leaves and re-enters many times during the day. (161)
+
+(6) usable contacts:
+
+**Members of the Consular Corps:**
+
+Subject seems to be more than moderately active in this organization.
+
+LICO:L/1
+
+### b. for assessment:
+
+(1) exploitable points
+
+(2) other data
+
+(3) handwriting samples

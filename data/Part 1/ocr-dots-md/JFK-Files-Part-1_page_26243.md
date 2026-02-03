@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_26243.png
+
+Convert to Markdownemphatically that "violent revolution" throughout Latin America was "indispensable" because the peaceful road to necessary change was "blocked everywhere". He saw revolutionary movements on the rise everywhere in Latin America. I asked for the ideological nature and affiliations of these revolutionary movements. He replied that they are Marxist, but with liberal tendencies, not as rigid as the International communist revolutionary line.
+
+6. I asked In which countries the revolutionary movements were most advanced. He named Guatemala and Venezuela in a category by themselves; there the revolutions were certain to win power. Then he gave me a general briefing on these two countries.
+
+a. Guatemala: In Guatemala, unlike Venezuela, the Communist Party had not initiated the armed struggle. The two groups involved in the armed struggle were the "13 November" group led by Marco Antonio Yon Sosa, and the "Fuerza Armada Rebelde (FAR)", led by Cesar Montes, now that Luis Augusto Turclos is dead. The "13 November" group, he said, had Trotskyite influences, while the "FAR" was "Castrista/Independent", and with ties to the Guatemalan CP but also having differences with the CP. He said 90% of the people in Guatemala are peasants and the majority sympathize and support the armed struggle.
+
+b. Venezuela: Both the CP and the MIR launched the armed struggle, but they have now abandoned it. I asked why. He said both movements confined their efforts mostly to the cities and took the form of terrorist acts. These tactics did not get the revolution anywhere. Now the Frente de Liberacion Nacional (FLN) led by Douglas Bravo was directing the armed struggle, and this effort will succeed.
+
+RICO Galan asked me to read a recent article on Venezuela by Mario Menendez Rodriguez, Director of Sucesos, who had recently been to Venezuela and had interviewed the FLN leaders. In answer to my question, RICO Galan described Menendez as a "periodista Castrolsta".
+
+7. RICO Galan described Mexico as an apparent democracy but "police state, tightly held". Here the "popular movements" are on the rise. In answer to my question as to who was leading these "popular" and revolutionary movements in Mexico and Latin America, RICO Galan replied that there were no leaders like Castro around, and the leaders would come from the writers, intellectuals and lawyers.

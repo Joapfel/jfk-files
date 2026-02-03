@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_23280.png
+
+Convert to Markdown20 Juno 1957
+
+MEMORANDUM FOR: Chief, Contract Personnel Division
+
+SUBJECT: Arthur G. VAFIVADA (Ps.)
+
+1. Subject's contract dated 1 August 1954 was amended to provide him with an additional compensation to cover quarters allowance for his family in Costa Rica from 21 February 1957, when he and his family were ordered to leave Habana for operational security reasons; and to cover the period Subject was on TOI for training purposes at Headquarters.
+
+2. Subject returned to Habana with his wife on 14 May 1957, to resume his duties as Principal Agent of Project ANDORANGE. His children joined him in Habana from Costa Rica on 21 May 1957.
+
+3. It is requested that Subject's Habana allowances, as set forth in his contract dated 1 August 1954, and subsequently amended, be reinstated for the period 14 to 31 May 1957. His new contract converting him to Career Agent status was effective on 1 June 1957.
+
+J. C. KING
+Chief, Western Hemisphere Division
+
+SECRET
+
+201-16 8/81 X

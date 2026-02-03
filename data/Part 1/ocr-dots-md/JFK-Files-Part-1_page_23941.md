@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_23941.png
+
+Convert to MarkdownThe Indian Congress of South Africa is related to the African National Congress, the colored people's congress, all of this in a so-called C Congress Alliance. She had contacts with the Africans- the ANC people. The ANC people here in London. They were suspicious of her, as well. But she managed somehow to get back into hospital. She was hurt in an auto accident, and she had to have a very complicated bone operation. That put her out of action for some time. I don't know, but I heard that she is now back in Tanganyika. She may well be. She has quite a bit of money; Her family has money. Of course the Indians do have money. She did very little for the magazine. She occasionally told me about people in the ANC who might do something for the magazine. But most of the people she told me about were members of the South African Communist Party. That party has taken a pro-Moscow stand and most of its people don't want to do anything for Revolution, though we did have articles by Bryan Bunk another South African Communist. That was before their party took their stand on the Sino-Soviet conflict. And there is a struggle going on right now inside of the ANC. That's a long complicated thing. That has nothing to do with Revolutin.
+
+(On my list here we have Diallo)
+
+Diallo is an adviser of the President of Mali - what's his name?
+
+Modeva Keida.
+
+Married to a French woman, a Leftist, he knows Verges through friendship and offered to help. He put him in contact with who is Minister of Information, who is very, very pro-Chinese.
+
+(In Mali)
+
+Yes. When Chou en Lai visited Mali, you recall, that he got quite committed. There were some gratuitous, open handed slaps
+
+There's nothing very much. He just knew him.
+
+This is again one of Verges' attempts to have a finger in another African country.
+
+(Verges)
+
+I didn't mention, with Phombeah, one of the reasons that he kept Phombeah was Phombeah's connection with Odinga, in Kenya.
+
+Phombeah at one time had hoped to be made the secretary of this new Lumumba Institute there, in Nairobi. Verges, odd as it may seem, had at one time, proposed himself as a sort of security adviser to Odinga. We felt that he continued to pay Dennis Phombeah for doing nothing mainly to keep a line of communication open to Odinga. He had met Odinga but got nowhere with him. In Algiers he was Le Chinois

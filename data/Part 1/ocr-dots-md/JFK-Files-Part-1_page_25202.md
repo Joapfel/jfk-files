@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_25202.png
+
+Convert to MarkdownBaltimore Sun
+
+Mr. Adam CLYMER
+
+Position (JAN 65): Correspondent for BALTIMORE SUN in Moscow,
+USSR
+
+Called "head of the calf" (French expression) because he
+accident-prone.
+
+SECRET
+
+15 SEP 1966

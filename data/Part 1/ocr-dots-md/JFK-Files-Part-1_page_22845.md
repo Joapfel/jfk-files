@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_22845.png
+
+Convert to MarkdownSECRET
+
+15
+
+American Student in China
+
+GRAB, Fred
+CIT-U.S.A.
+Residence - Vienna (formerly) now Alexandria, Virginia
+Passport No. 73458 issued 5/24/56
+
+Photo Attached
+File Check Results
+
+1. Shelby Tucker, the American that went to China and refused to give the Chinese his passport, stated that the subject was non-Communist. (State Dept. Incoming Telegram No. 513 dated 10 Sept 57, from Moscow)
+
+2. The following document pertains to the subject, however, efforts to locate the document have been unsuccessful: DFB-88472.
+
+3. Don O'Connell, a member of the groups, had been following a say about the subject... possibly a socialist; don't think he [believed in] Communism but did believe socialism until the letter to all othermen;...DFB-9719
+
+FREDERICK D. GRAB
+
+5/9/56
+
+GRAB, Fred

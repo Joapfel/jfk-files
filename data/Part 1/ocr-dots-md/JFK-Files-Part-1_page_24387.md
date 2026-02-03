@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_24387.png
+
+Convert to Markdowndegree feasible - given his cover and the unwitting informant-type nature of his relationship with his many contacts. QRPHONE/1 makes every effort to overcome this limitation and in this regard a plentiful supply of background information greatly facilitates his elicitation of added details from his informants. However, this limitation is one which will always be with us in the case of QRPHONE/1 and it is one which can sometimes be particularly frustrating. During the past quarter QRPHONE/1 has been the source of 11 intelligence reports prepared by LCPIPIT/Reports.
+
+5. SPECIFIC REQUIREMENTS LEVIED UPON AGENT FOR ENSUING PERIOD: QRPHONE/1 will make a trip to Italy in late September and early October in order to survey the situation within the Italian new left/radical sector. This trip is one which has been requested by Rome Station. (The trip will have been completed by the time this report is received by headquarters.)
+
+QRPHONE/1's contact with an official of the Eritrean Liberation Front led to a TDY by AF Division officer Geoffrey B. DRANSTON to brief LCPIPIT on the ELF and to discuss possible operational exploitation of this contact.
+
+QRPHONE/1's trip to the United States has been deferred until spring 1970 by which time any possible repercussions from QRPEONY's return will be relatively unlikely.
+
+An effort will be made to explore the operational possibilities posed by QRPHONE/1's existing (or potential) contacts within the Arab liberation movements. Headquarters views on this matter were requested in OEPA-2044.
+
+A re-scheduling of QRPHONE/1's trip to Germany has been proposed and Headquarters and Bonn have been asked for guidance/requirements.
+
+6. AGENT'S PERSONAL RESPONSE TO ASSIGNMENTS LEVIED INCLUDING MOTIVATION, PERSONAL SECURITY, ETC.: QRPHONE/1's response to assignments, like his performance, continues to be enthusiastic and energetic. The comments made in previous quarterly reporting regarding his security and motivation remain valid insofar as RODIGAST and LCPIPIT are able to judge.
+
+7. AGENT'S PERSONAL RESPONSE TO CASE OFFICER HANDLING OR CRITIQUE OF HIS REPORTING TECHNIQUE: QRPHONE/1 has a very pleasant personality and relates easily to others. This is a positive factor in his elicitation of information from his many contacts and also makes dealing with him a pleasant and uncomplicated experience. QRPHONE/1 accepts case officer handling - including direction and criticism - well and in a constructive vein. The same holds true of critique of his reporting. Please see previous reporting on this subject for added details.
+
+8. ADMINISTRATIVE MATTERS, INCLUDING PROMOTIONS, TRAINING: A new means of funding QRPHONE/1's salary is now being devised. This has been the subject of several items of correspondence between Headquarters and LCPIPIT. We plan to consult with the SGFLAG representative in Bern on this matter.
+
+QRPHONE/1 has had some purely overt problems with his Chicago bank (an apparent error in his statement, etc.) He is also being charged very high service charges for the performance of routine transfers. If he is not able to resolve his problems with this bank it may be necessary for him to change banks.
+
+At LCPIPIT's insistence QRPHONE/1 has begun to invest a portion of his monthly salary in a reputable Mutual Fund of his choice. This modest investment program will enhance his financial security in the event of termination and/or a rainy day".

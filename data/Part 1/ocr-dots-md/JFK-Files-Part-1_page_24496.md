@@ -1,0 +1,77 @@
+# JFK-Files-Part-1_page_24496.png
+
+Convert to Markdown14-0000
+
+ORIG: STEFANZEHLER
+UNIT: WH/3/Peru
+EXT: 6223/9388
+DATE: 11 JULY 69
+
+MESSAGE FORM
+TOTAL COPIES:
+
+<table><tr><td>ING AND/OR INITIALS - DATED BY</td></tr><tr><td>2 .</td><td>b</td></tr><tr><td>3 .</td><td>c</td></tr><tr><td>4 .</td><td>d</td></tr></table>
+
+CABLE SECRETARIAT DISSEMINATION
+
+BY [REDACTED] PER [REDACTED]
+
+FILE. VN. EURG RIAN, CILIC 2,
+
+CONF: WH 8 INFO
+
+FILE.VN. EURG RIAN, CILIC 2,
+
+**(classification)**
+
+SECRET
+
+**(Date and time filed)**
+
+11 22 21Z JUL 69
+
+**(reference number)**
+
+201170
+
+**TO**
+
+LIMA INFO: MADRID
+
+REF: LIMA 5122 (IN 90235)*
+
+CITE DIRECTOR
+
+1. NO HEADQUARTERS TRACES ON CARLOS JIMENEZ ORTEGA.
+
+WILL BE MEXICO CITY REPORT DATED NOVEMBER 1947 IDENTIFIED A CARLOS JIMENEZ, WRITER AND NEWSPAPERMAN, AS SIGNER OF A GREETING SENT BY GROUP OF SPANISH INTELLECTUALS TO THE RUSSIAN PEOPLE ON ANNIVERSARY OF THE SOVIET REVOLUTION.
+
+ACCORDING TO A SANTIAGO REPORT, JUNE 1949, CARLOS JIMENEZ, FORMER MEMBER OF THE POLITBURO OF THE COMMUNIST PARTY OF MADRID (SIC), HAD DEPARTED CHILE IN 1943.
+
+2. FILE: 201-132139.
+
+END OF MESSAGE
+
+* Request for traces on Carlos JIMENEZ Ortega, Spanish journalist who the Station is considering recruiting as an access agent to Soviet Novosti representative LEONOV.
+
+WILLIAM V. BROE
+C/WHD
+
+Runecha
+ALFONSO G. SPERA
+C/WH/3
+
+CS COPY
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+RELEASING OFFICER
+
+<table><tr><td>GROUP 1</td></tr><tr><td>Included in separate document</td></tr><tr><td>Signed off by group leader</td></tr></table>
+
+AUTHENTICATING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+COPY NO.

@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_24520.png
+
+Convert to MarkdownLima 2, 5, 1969
+
+Karen,
+
+Beside my greetings, which you do not need, I wish to inform you of
+the following: all the assignments concerning the office I have completed
+to the best of my ability. Violetta is excessively subservient toward our
+people, and because of this I warned her [to see to it] that this side of
+her character shouldn't touch or infringe upon AFI [Novosti Press Agency]
+interests. Our fellows are real cads. Her life is terrible: her husband
+is a cripple; besides that he is dangerous (he drinks), she has two children,
+barely makes it from one payday to the next, is torn between household duties
+and her work, and on top of that she has "guests," and what guests!! She
+works conscientiously, but she is short on experience and training and does
+not have much time. The print shop where the magazine is printed is
+excellent. It can function as well as the one in Mexico, and without
+difficulties. The owner insists that we immediately increase the circulation
+to 3,000 copies [, the number] currently needed to cover the cost. Based
+on the two issues published so far, we have discovered that we are selling
+[rashhodyatsya] [only] 50 percent. The remaining [copies] we distribute
+free after the next issue has been issued. She even complained about
+Arisalu, who has been selling his magazine in Peru at a cheaper price. They
+settled that question between themselves.
+
+At her place I saw newspaper clippings covering our materials: there
+are not many of them, but they are there, and she insists that she sent
+duplicates to you. Here the situation is worse than in Mexico (in the press)
+and one must maneuver between competing newspapers.

@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_22977.png
+
+Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+
+STANDARD FORM 10-64
+
+SECRET
+
+TO : FI/STC/SPB
+
+FROM : Chief, Special Security Division
+
+SUBJECT: C-25507
+#112569
+
+DATE: 15 OCT 1954
+
+1. Reference is made to your request dated 21 July 1954 for a recommendation as to whether an Operational Clearance should be granted to permit the Subject's use as an Agent in Costa Rica under unindicated cover.
+
+2. The attached information is furnished as an aid in determining whether or not the Subject should be used in the requested capacity.
+
+3. In view of the fact that Subject has resided outside the United States since, at least, 1945 no field investigation was scheduled in this case.
+
+4. This memorandum pertains only to this proposed assignment. It is requested that this office be informed of your decision in this case. The attached material should be returned to the writer in a sealed envelope marked "Eyes Only" when it has served its purpose.
+
+FOR THE DIRECTOR OF SECURITY:
+
+Robert H. Cunningham
+
+Attachment:
+NCD dtd 28 September 1954
+
+This data is property of the Security Office and should be returned when it has served its purpose. Its existence or contents must not be disclosed except to CIA Staff Officers already concerned.
+
+SECRET
+
+OCT 13 91 rev 1-54
+
+cc alergy
+cansu

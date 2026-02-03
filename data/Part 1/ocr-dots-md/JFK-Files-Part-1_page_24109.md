@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_24109.png
+
+Convert to MarkdownS. SCHWARTZENBERG
+
+AVOCAT A LA COUR
+25, FAUBOURG MONTMARTRE
+PARIS-IX
+
+TÉL : TAITBOUT 63-19
+OU 824 63-19
+
+SUS RENOUI-VOUS
+
+ASS. GIBSON / V. GIBES
+
+Monsieur et Madame GIBSON
+30, Stockleigh Hall
+Prince Albert Road
+LON. ON N.W.C - Grande Bretagne
+
+Chers Madame et Monsieur,
+
+Je n'empresse de vous faire savoir que j'aitre VERGES propose de vous régler/ en dinars aigériens la moitié des sommes demandées, ce qui me semble interessant pour vous, compte tenu de l'ensemble des circonstances; de cette affaire, soit :
+
+7.500 Fr pour M. GIBSON d'une part, et
+5.250 Fr pour Mme GIBSON d'autre part
+total : 12.70 Fr
+
+Je dois vous indiquer que cette proposition est un peu inespérée, car il est clair qu'en poursuivant la Société des NOUVELLES EDITIONS INTERNATIONALES, vous gagnererez une certaine somme dont je ne puis fixer le montant, mais ne toucherez jamais rien.
+
+En ce qui concerne la lettre d'tt M. GIBSON m'avait entretenu, non Confrère ne me répond/sur celle-ci. Je pense qu'il n'y a quand même pas lieu d'en faire une question de principe et q.e nous pourrions, dans le cadre d'une reçu, obtenir une phrase étoffe sur ce qui a été dit à votre sujet.
+
+En tout état de cause et si nous parvenions à un accord sur cette base, Se VERGES propose de tenir cette somme à votre disposition dès votre premier voyage en Algérie.
+
+Je crois qu'il serait préférable que, d'une manière ou d'une autre, cette somme soit remise à une personne ayant votre confiance.
+
+Si toutefois vous pensez que je dois tenter d'obtenir un peu plus, vous vourez bien je vous prie de le faire savoir, mais j'insiste sur ce point qu'il est quelque fois préférable d'attraper une proposition à la balle, plutôt que de risquer de tout perdre. CS COPY
+
+201-306Q52...
+
+...

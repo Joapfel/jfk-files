@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_23700.png
+
+Convert to MarkdownSECRET
+
+-6-
+
+s. AMLASH-1 again reported that he feels Orlando Blanco, Consul of the Cuban Embassy in Bern, is approachable since he is unhappy with the Cuban regime. AMLASH-1 also feels that Enrique Rodriguez Loeches, Cuban Ambassador in Rabat, is approachable if approached and developed by the right person. Marina Garcia Gonzalez, assigned to the commercial section of the Cuban Embassy in Rabat, AMLASH-1 feels is also approachable and feels money can be used as an inducement. Ambassador Carrillo, AMLASH-1 feels, if the proper person developed him, could probably be compromised with Fidel. He is a character and could easily be entangled according to AMLASH-1 in a compromising situation, Ambassador Carrillo is a close friend of Lucy Echevarria.
+
+2. AMLASH-1 was also asked information on a long list of other requirements on Cuba. On many he was unable to provide information and cables were sent to Headquarters on the requirements on which he did provide information.
+
+Nestor D. Sanchez
+WH/SA/AMWORLD
+
+cc: WH/EA/EOB
+WH/EA/MOD
+
+File:
+AMLASH-1 201
+Internal Op
+
+SECRET

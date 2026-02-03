@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_23449.png
+
+Convert to MarkdownSECRET
+
+19 June 1956
+
+MEMORANDUM FOR: Chief, Branch III
+ATTENTION: Cuba Desk
+SUBJECT: Arthur G. Vaivada
+
+1. The following is required to convert subject to Staff status:
+
+a. Arrange for a full Agency clearance
+
+b. Determine the position vacancy to be made available to accommodate subject on Division T/O
+
+c. Approval of FI Staff and Chief, WH.
+
+2. With respect to a. this action may be initiated now through WH Personnel.
+
+3. It is suggested that one of the new positions allotted to Costa Rica or Mexico be made available to the Habana T/O if there are no firm plans to fill the position in the near future as presently allotted. This of course will have to be approved by Chief, WH.
+
+SECRET
+
+201-168881

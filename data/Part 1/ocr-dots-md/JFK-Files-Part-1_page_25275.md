@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_25275.png
+
+Convert to Markdown3. KAZANTSEV informed the Oficina de la Conision Econonica para la America Latina (CEPAL) on 13 September that the Ambassador would be unable to attend the reception that day, but that GOUINASOV would come in his place.
+
+4. The Ambassador's request for an audience with the Mexican Foreign Minister was postponed until 11:00 a.m., Tuesday of the following week, 18 September, which is the usual reception day.
+
+5. On 19 September Carlos A. VILLANUEVA del Valle, Chief of Protocol, informed Nikolay Sergeyevich KUZNETSOV, Secretary to the Ambassador, that he would be unable to accept Ambassador KULAZHEEV'S invitation to dinner on 27 September because of a previous engagement with the Eouadorean Ambassador.
+
+6. On 20 September Boris A. KAZANTSEV, First Secretary, discussed with Cristobal LARA of CEPA a meeting of the Economic Commission scheduled to take place in La Paz, Bolivia at the beginning of 1957. No definite date has been set, but LARA estimated it would probably be held in May of the following year. Since LARA was leaving the city on Monday, 24 September, for a two-week vacation, he could not accept KAZANTSEV's invitation to lunch, but promised to call him on returning to Mexico City.
+
+7. On 25 September KAZANTSEV indicated he was sending a gift to Delfín SÁNCHEZ Juárez, a layer, of the International Affairs Office of Seguro Social (Social Security).
+
+8. Also on 25 September KAZANTSEV tentatively arranged a luncheon date for Thursday, 27 September, with Eduardo WUZHAN and (fnl) GARCIA Rojas to thank both of them, in the name of the Ambassador, for all the attention they had paid to the Soviet delegation to the Geological Conference.
+
+9. Alfonso ROSA NIZO Dias of the Foreign Ministry invited Yavgeniy Mikhaylovich POPOV, Third Secretary, and his wife to dinner at his home on Tuesday, 2 October. POPOV, who expected to be out of town from Saturday until Tuesday or Wednesday, suggested a later date. Arrangements were then made for Thursday, 4 October, at 8:30 p.m. at ROSARIO's home, Pirules 136. ROSARNO proposed to send POPOV directions for reaching his home, since it was a little difficult to find.
+
+10. Octavio PAZ of the Foreign Ministry accepted an invitation to dinner at the Soviet Embassy on 27 September.
+
+SECRET-

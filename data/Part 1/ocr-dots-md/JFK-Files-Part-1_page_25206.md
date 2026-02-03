@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_25206.png
+
+Convert to MarkdownSECRET
+
+UNITED STATES
+
+America House Club
+
+SOURCE comments this is little more than a brothel where the lower echelons of the foreign diplomatic colony arrange trysts. There is a great deal of passing whiskey and cigarettes here, particularly among the foreign service personnel (maids, etc) of members of the diplomatic corps. At least within the French embassy the general feeling is that one should stay away from the place, since no diplomats of status go there, except on rare occasions (an especially good film). The enlisted American military personnel are known to use the facilities of the club to shack up with foreigners.
+
+DATE ACQUIRED: SEPTEMBER 1966
+
+The tone of the Club has improved greatly owing to security measures which have been introduced in controlling the people who may enter. It has now become chic and even ambassadors go there.
+
+SECRET
+
+15 SEP 1966

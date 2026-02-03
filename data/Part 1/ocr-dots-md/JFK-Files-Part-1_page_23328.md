@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_23328.png
+
+Convert to Markdown186
+
+CLASSIFIED MESSAGE
+
+186 HM/JB/BRB
+DATE : 19 MARCH 1957
+
+<table><tr><td></td><td>SECRET</td></tr></table>
+
+| | |
+|:---|:---|
+| **OUTING** <br> | 1 4 || 2 5 || 3 6 |
+| MAR 19 15 59 57 | |
+| REC'D CABLE SECT. | |
+| ROUTINE | |
+| IN 20033 | |
+
+TO
+
+OPIM HAVA
+
+INFO: DIR
+
+CITE
+
+CITE: SANJ 2506
+
+RE: DIR 07482 (OUT 86223 )
+
+1. REF ARRIVED 18 MARCH.
+
+2. VAIVADA ARRIVING HAVA PANAM 506 MARCH 19. MEET.
+
+3. HAVE ADVANCED HIM $400. ACCOUNTING TO BE MADE HAVA.
+
+END OF MESSAGE
+
+<table><tr><td>SECRET</td></tr></table>
+
+IT IS FORBIDDEN TO MAKE A COPY OF THIS MESSAGE Copy No.

@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_23314.png
+
+Convert to Markdown2
+
+(8) Proposed Date of Departure for Overseas Post
+
+Subject expects to return to overseas duty on or about 10 May 1957.
+
+(9) Project Cryptanalyse
+
+ALPHODARCH
+
+## B. Biographical Information on Agent
+
+(1) Age, 34; Sex, Male; Religion, Catholic; Subject is married and has two small children.
+
+(2) Wife—Argentina de Los Angeles Corlento de Procopio—Born 15 March 1918, San Jose, Costa Rica; Married to Subject since 1945; Costa Rican citizen in process of obtaining U.S. citizenship. Additional biographic information available at country desk.
+
+(3) Education
+
+High School, DeKalb, Illinois
+University—5 years undergraduate study at universities in San Jose, Costa Rica, Guatemala City, and Havana, Cuba.
+
+(4) Past Employment
+
+*   **1940-1945** Intelligence NCO (Technical Sergeant U.S. Army and U.S. Air Force)
+*   **Jan. 1945-Apr. 46** Labor Foreman, U.S. Naval Air Station, Coco Solo, Canal Zone, Panama.
+*   **April 1946-Apr. 49** Intelligence NCO (Technical Sergeant USAF) Chief of Section, Political Analysis, Caribbean Air Command.
+*   **1949** Freelance photography and University studies, San Jose, Costa Rica.
+*   **Mar. 1953-June 53** Photographer Ministry of Agriculture, San Jose, Costa Rica.
+
+(5) Outside Interests, Hobbies, etc.
+
+Athletics (general), outdoor life, photography, jungle lore, cinema.

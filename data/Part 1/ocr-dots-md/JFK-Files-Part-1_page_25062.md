@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_25062.png
+
+Convert to MarkdownI recall that also in *El Universal Grafico* my colleague, Alonso Fonseca G., published a note entitled "Alegres Diplomaticos" [Tipsy Diplomats] recounting the entertaining story of the "binge of Vladislav Koromovshkin and Valery Kostikov, attache and second secretary respectively of the Soviet embassy in Mexico. These officials began their spree "between glasses of expensive wines in the 'red' district of Mexico City but had to bring their adventure to a close at Ciudad Victoria amidst the abuse they hurled at Mexico under the diplomatic immunity which they enjoyed." Apparently, the Soviet diplomats not only have given up decent behavior but are also demonstrating their incompetence.
+
+The Peruvian chancellor, Mercado Jarrin, who announced the arrival of the Soviet trade mission, answered the newsmen's question with a laconic comment that "at the appropriate time you will learn whether the government has decided to take that step" (of establishing diplomatic relations with the USSR). Before the Lima government "decides to take that step," we would like to reproduce these two paragraphs which the journalist Bernardo Escalante published in an article entitled "La Embajada Misteriosa" [The Mysterious Embassy] in the newspaper *El Sol de Mexico*.
+
+"The strange thing is that the Soviet embassy is one of those with the largest staff but with the least to do. Those branches that have contact with the public -- consular section, cultural section, tourist agency -- work only 4 hours a week. One can count the number of Mexicans applying for a Russian visa on the fingers of one hand. Trade between Mexico and the USSR is practically nil. The 'cultural relations,' as everyone knows, consist simply
+
+[ sic ]

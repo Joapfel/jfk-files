@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_22873.png
+
+Convert to MarkdownSECRET
+
+American Student in China
+
+ROSEN, Jake
+
+CIT-USA.
+Residence - New York
+
+Photo ATTACHED
+
+File Check Results
+
+1. The IO Division's informants, that attended the Moscow Festival, were of the opinion that the subject was a Left Winger. (IO Div.)
+
+2. Shelby Tucker, the American that went to China and refused to give the Chinese his passport, stated that the subject was instrumental in applying pressure to make the Americans, that did not give up their passports at the Chinese frontier, give their passports to the Chinese in Peking. Tucker also feels that the subject is a most dangerous leftist. (State Dept. In-coming Talegram No. 513 dated 10 Sept 57, from Moscow)
+
+3. On 15 November 1951, it was reported that Jack and Mildred Rosen, indicated to be members of the Chicago Branch of the Socialist Workers Party, resided at 1839 Touby Avenue, Chicago. (DFB-16666, 24 March 1952)
+
+4. In March 1948, it was reported that Jack Rosen, who was residing at 314 Harbor Road, Hunters Point Housing Project, San Francisco, and a part-time employee at Sonotone, Inc., 450 Sutter Street, San Francisco, and a student at Stanford University, was a member of the Theodore Dreiser Club of the Communist Party. At a meeting of the Professional Section functionaries on 19 March 1948, and in a discussion by those present on the responsibility of a Communist Party member in the event of war between the United States and Soviet Russia, Rosen, a member of the club, stated, "I would be drafted like any other individual and then do what I could." This same Jack Rosen was on a list of Communist Party members or reported sympathizers known to possess or who have been issued licenses for the operation of radiotelegraph, radiotelephone or amateur "ham" apparatus; who have received radio training; or who have been or now are employed in allied fields where their employment, talent, or knowledge could be utilized for clandestine radio communications. (DFB-5016, 14 August 1950)
+
+SECRET
+
+ROSEN, Jake
+
+(ever)

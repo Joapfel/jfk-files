@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_26994.png
+
+Convert to Markdown# Corporate Setup
+
+The HEADQUARTERS for his. T work, the former Dobbs estate, is on Highway 360 just outside of Powder Springs in a remote section of Cobb County. Actually, corporate headquarters is in Washington, in a firm called Environmental Industries, Inc.—a neat euphemism for a company dedicated to killing people. Environmental Industries, WerBell says, is bankrolled by some of the East's most prominent investment houses; he is its director of international operations. He is also president of a subsidiary called Military Armaments Co., Inc., and because he is in Powder Springs, Military Armaments is there, too. (Behind Environmental Industries, WerBell says, is "a third shadow of which E.I. is a subsidiary"—another tantalizing hint of the CIA.)
+
+Mitchell WerBell dresses the part of his private arsenal in Georgia, where he makes specialized light weapons for the U.S. Army and other counterinsurgency forces around the world. Beside him is his son, Geoff. The braces were only temporary, while WerBell recovered from a leg injury.
+
+## Compulsive Warrior
+
+WITCH WERBELL sounds completely matter-of-fact when he talks about firearms, and death, and with reason. He has been in the military hardware business for years, and he has either heard or produced—or both—the thucking watermelon-sound many times—in Latin America and Southeast Asia, in the U.S. armed forces and as a paramilitary "adviser." He is a compulsive warrior, an armed crusader fighting against “ungodly communism.”
+
+WerBell is not alone in this occupation, but he practices it in a unique manner. Most soldiers of fortune are nothing else, and they live from one little war to the next, brawling and bezoing their way through a tough and financially unrewarding life.
+
+WerBell, by contrast, is a businessman who dabbles in military adventure only when and as far as it suits him. If combat didn't utilize him, he wouldn't partake of it. His business is supplying weapons, not using them in anger; he specializes in the weapons and techniques of counterinsurgency, which may be roughly defined as the forceful suppression of coups deetat, rebellions and the like.
+
+The way WerBell operates, this means defending established regimes, some of them dictatorships, against armed revolt. This political posture not only does not trouble WerBell, it pleases him. “I have no objection to dictatorship if it serves the interests of the country,” he says. Particularly if the threat to those interests is from the left: “Communism has no place in the Western Hemisphere—or in any hemisphere I am totally opposed to it, and to the spread of ideological germs and faith that it brings.”
+
+and again, WerBell’s name
+
+The newsmen. The first issue of
+
+WerBell six children and put up with his rather unusual way of life. (When he left for the Far East in 1968, he said he’d be gone for a year or more, and he was.)
+
+## A Military Profile
+
+MITCHELL WERBELL is a short, wiry man of 52, quick with a quip and quite sensible until he begins talking about communism or other social issues. He has the face and bearing of a Prussian officer, an image he cultivated by wearing a mustache and occasionally a monocle. He often dresses in military clothing of indeterminate origin, and he embellishes the image by talking, in slightly chiseled sentences peppered with military phrases. There is nothing phony in this. WerBell has a strong attachment to weapons and to warfare, and he has been around them so long that the ideas and styles they foster are an ingrained part of his personality.
+
+He comes by both his militarism and his anticommunism honestly. His father was an officer in the Russian Imperial army, even though he was born in the United States. “It was a tricky situation,” says Mitch. “He was a citizen of both the U.S. and Russia. In those days you could do that.”
+
+WerBell will not discuss the sales or profits of Military Armaments except to say that, after two years of extensive research and development (resulting in “a tax loss of a half million dollars”), the company is now doing very well. It has about 12 employees, including four machinists who work under the direction of Gordon Ingram, who has charge of the design operation and whose name is on the Model 11 submammating Mitchell demon-
+
+verusing in a department store. Soon he was head of the department, and soon after that he went on his own.
+
+In the mid-60s, WerBell pulled out of his agency and then formed his own public relations firm. “I’d already been drifting into international PR,” WerBell says, “using my family background. I had tremendous contacts in Europe,

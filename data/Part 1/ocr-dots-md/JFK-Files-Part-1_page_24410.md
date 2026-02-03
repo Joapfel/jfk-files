@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_24410.png
+
+Convert to Markdown14-00000
+
+CLASSIFIED MESSAGE
+
+SECRET
+
+IN ______ PAGE ______
+
+MAY 6 3 20 PM '69
+
+May 9 3:59 PM '69
+
+RPT NOT ONE OF SELEVER CONTACTS.
+
+3. REQUEST TRACES ON GIBSON, WHICH WOULD NOT RPT NOT BE FOR PASSAGE TO SELEVER.
+
+4. INDEX.
+
+5. FILE: 72-2-2/3.
+
+SECRET
+
+<table><tr><td>SECRE</td></tr></table>

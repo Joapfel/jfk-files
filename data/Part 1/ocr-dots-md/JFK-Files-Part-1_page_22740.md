@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_22740.png
+
+Convert to Markdown30 August 1963
+
+Washington 25, D.C.
+
+DIRECTOR,
+Central Intelligence Agency,
+Washington 25, D.C.
+
+I hereby tender my resignation from the Central
+Intelligence Agency as a Career Agent. In accordance with
+the termination clause in my contract, request that all
+salary be continued for a period of 90 days from this date.
+I understand that my services are to be available to the
+Agency during the period of 90 days.
+
+Ross L. Crozier
+
+1607 S. 26th St
+Arlington 6, Va.

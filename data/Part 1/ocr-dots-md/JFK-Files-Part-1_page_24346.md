@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_24346.png
+
+Convert to MarkdownSECRET
+
+IRD# 54454
+Page 2
+
+**CONCLUSION:**
+
+Subject's polygraph examination did not contain any indication of deception to any of the above listed specific areas of inquiry.
+
+Lawrence J. Howe
+
+**Distribution:**
+
+Orig. - True, Coleman, Gaynor
+1 - Coleman
+1 - CI/OA
+1 - File
+
+OS/IRD:LJH:ydc
+
+SECRET

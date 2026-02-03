@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_23130.png
+
+Convert to MarkdownSECRET
+
+CLASSIFIED MESSAGE TOTAL COPIES
+
+<table><tr><td colspan="2">SIGNATURE: <br/> SECRET<br/><br/>PERSON/UNIT NOTIFIED: <br/><br/><table><tr><td>[Handwritten: A large, formal document with a seal]</td><td>REPRODUCTION PROHIBITED</td></tr></table></td></tr></table>
+
+ACTION
+
+FILE
+
+WH/C 8 EHR 8 QA2 Cap Rep
+
+ADVANCE COPY
+☐ ISSUED ☐ SLOTTED ☐ TUBE
+
+UNIT TIME BY
+
+SECRET 291252Z CITE MADRID-9267
+
+DIRECTOR
+
+TYPIC
+
+REF A DIRECTOR 34907
+
+B DIRECTOR 37503
+
+C DIRECTOR 37504
+
+COPY DR. BUSTAMANTE SIGNATURE AIRMAILED TO REF C
+
+ADDRESS 29 SEPT.
+
+SECRET
+
+BI
+
+NNNN
+
+SECRET
+
+29 SEP 66 11:06003
+
+OCT 701-2235G
+29 Sep 1966

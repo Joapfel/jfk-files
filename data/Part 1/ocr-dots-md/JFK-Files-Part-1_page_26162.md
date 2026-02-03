@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_26162.png
+
+Convert to Markdownencontrar, desde "siempre", un solo derrotero: el más destacado servilismo a todos los goberneros, sumado a posibles izquierdas atribuibles a algunos de sus escritores. CARO HAN VENIDO LOS DUEÑOS DE LA REVISTA "SIEMPRE" ESTE SISTEMA DE CONFIUNY Y APoyo activo a los dueños del poder: mucho papel, muchas chérimas dídivas, una enorme fortuna para el vendedor "pepe pagés", el supremo "Jefe" de esa pequeña élite de engañadores oficiales, y sueldos, suelditos y sueldotes a sus "redactores" y "escritores", que han ido desde el "macistro Lombardo" hasta el director suplente, Francisco de la Vega, consejero de la Presidencia de la República.
+
+"Siempre" dio lugar a la novela rosa de la "apertura". Desde sus columnas hablan los operaturistas oficiales a voz en cuello. Junto a los artículos de REGLA DEBRAY, se mezclan homenajes a todos los virreyes gubernamentales, y al rey-presidente más que a ninguno. Se pelican entre las comadres del "Jefe Páginas" para dar "idea de libertad de opinión"; piezitos insonorantes que ocupan páginas y páginas inacabables; al fin que el papel no se paga.
+
+"Siempre" buncó el modo de justificar la matanza del 2 de Octubre y la del 10 de Junio. Hablando vagamente en contra de "quienes quieren forcer la política revolucionaria" de cada gobierno y soberance,IANZANDO CULMAS A DEMEDRADOS FANTASMAS. La revista "Siempre" manipula a sus escritores para apoyar "essudamente" y desde una aparente "izquierda" al propiar gobierno. Por esta labor le pagaban a Lombardo y le han pagado y pagán a Páginas.
+
+Desesperado está el gobierno para hacer creer en su "apertura", en las libertades para crear "nuevos partidos". Voichovan y desesperan los secretariados de Estado, diputados, senadores y el propio Presidente, para hacer creer a los mexicanos en su "democracia" burguesa a la mexicana, perfecta y buena, según ellos mismos. PIDEN, giamoleán y suplican para que se desacredite a los que están luchando por todas las vías (léase otra vez: POR TODAS LAS VIAS) en contra de la situación que vive el país, en detritum
+
+mento de millón y para beneficio de una ridícula minoría de burócratas y prestanombres intermediarios del capital extranjero.
+
+Toda la propaganda oficial y sus publicitarias "reformas" tienden a lo mismo: desacreditar a los que están luchando como pueden y aprenden a hacerlo en la vida diaria. Llamar "impotentes, idiotas, desesperadas y provocadoras" a los guerrilleros, como lo hace en su último "artículo" el discípulo de Páginas, RICO GALÁN ("Siempre" N° 365, páginas 24 y 25), es hacer exactamente lo que ordena la clase dominante a sus pájes (¡o páges!):
+
+Un hombre honesto puede y debe cambiar de criterio cuando reconoce un error. Pero tiene que decir y explicar su error, si es que hubo. El "honesto" Galán no se toma molestias, de fittings "guerrillero" de lengua, saliva y papel, cuando así convenía a sus particulares intereses personales... pasa ahora a debductor de la guerrilla, a llamiar "idiotas" e "impotentes" a los que hicieron lo que él fue importantarte de hacer o, tal vez, podemos afirmar, simultáneamente:
+
+De Insultar a Genaro Vázquez, viperinamente, pues babea confusióniamo el discipulo de Páginas, pasa a Insultar a los guerrilleros del Brasil, llamándolos "terroristas", y los declara extinguidos, exterminados en unos pocos meses por la dictadura...
+
+El Sr. Galán está muy bien informado en su celda de la desaparición de los luchadores rev

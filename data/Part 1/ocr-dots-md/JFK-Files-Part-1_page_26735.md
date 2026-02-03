@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_26735.png
+
+Convert to MarkdownReel 72-MICO-36
+
+2 May 1965
+
+18.2 contd.
+
+very important, VNG says. Call Jardon for the speech.
+
+About the matter of Beach, which VAG gave Miric yesterday, it
+has been published today - textually by Deschamps.
+
+How does VAG see things of O.B.A? Very grave. Did Miric read Chile's position? Yes. That is the correct one. They are proceeding as if there was no occupation/. O.B.A. can discuss a lot, (but do nothing). O.B.A. is nothing, as Beach says.
+
+Call VKG in case Miric hears anything. Miric won't have anything as direct as VKG. Yes, but Miric has more time to listen to the Voice of U.S. Yes, Miric is listening. VKG has a call pending from Habana and is expecting a call from Santo Domingo. Habana is calling for info from VKG. Yes, but they should not do foolish things (mention things). The foolish thing was what VKG did - gave them the names. He gave these to them so they would know them, not to use them. They appear not to have heard Fidel's speech yesterday which was very clear on this.
+
+About the fighting, attacks on U.S. Embassies, public protests,
+etc. - all public protests. Yes, but Johnson is still spitting on the
+floor and kicking, VAG says.
+
+Miric is writing a commentary on the political implications,
+what this signifies in the Dominican Republic and all of America.
+
+Miric says about the other source - the one above (U.S.) -
+start broadcasting after 1700.
+
+When VAG hears from Dominica Republic, VAG will let Miric know.
+
+22.2 Out to 03. Time is 1111, 2 May.
+
+22.5 Out to 46-60-15. YAG with Edmundo, who answers. Asks if he has Pidel's speech. Yes. Could he send it to VAG? They are typing it now. It is long. When will he have it? Should take all morning and part of the afternoon.
+
+Asks if MO is going to the meeting today. Yes. There is an urgent message from Dominican Republic...VAG gave Radio Habana some information - as he got it from Dominican Republic. However, they transmitted it with names and said that there were guerrillas of 14 de Junio group in the mountains. They said this is doing a lot of harm. Asks MO to send a cable that 14 de Junio movement denied that there are guerrillas...Say that in enthusiasm this was a mistake. This is very urgent. Also advise radio Habana to suspend all mention to 14 de Junio, of Juan B. Mejia and Victor Rico Galan. And to call MO.
+
+23.2 In. Long distance operator with VAG who answers.
+Call goes through. VAG with Fundora, Juan B. Mejia called from
+Santo Domingo - called another Dominican here and asked them to suspend
+the transmissions mention of Mejia and Rico Galan. This is doing a
+lot of damage. Their line is the Constitutionalist and no merchant should
+be made of 14 de Junio (Communist movement). Also 14 de Junio Movement
+officially denies that there are guerrillas. They have to deny this.
+Reaction auses all these things to say that this a Coetzest subversion.
+The xxxxxfaraw people only get information from Radio Habana and
+themselves these things against them and name of Mejia is dynameite.
+
+VAG gives the information give to him by Cordero to Fundora...
+as previously set out. MO can say that information came from a
+Constitutionalist Director to Dominican exiles in Mexico.
+
+Kool 72-KICO-36
+
+- 4 -

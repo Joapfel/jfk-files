@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_24960.png
+
+director in charge of the FBI's New York office, said he would not comment on any aspect of the Marcus tin case. United States Attorney Margaretta was unavailable for comment.

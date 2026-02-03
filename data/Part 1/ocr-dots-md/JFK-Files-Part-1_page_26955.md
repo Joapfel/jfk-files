@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_26955.png
+
+Convert to MarkdownDirector, Domestic Contact Service
+
+ATTN: John McConnell
+
+Chief, Miami Field Office
+
+Mitchell L. WerBell
+
+31 March 1967
+
+MIN - 028- 67
+
+Think you will be interested in the attached clippings, which
+indicate that all charges have been dropped against Werbell.
+
+Please pass to John Creaney, Office of General Counsel,
+
+JUSTIN F. GLERICH Auf
+
+JPG:sb
+
+Enclosures:
+
+4,51

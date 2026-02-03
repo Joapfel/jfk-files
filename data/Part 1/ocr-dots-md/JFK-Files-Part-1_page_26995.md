@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_26995.png
+
+Convert to Markdowning their way through a tough and艱困的軍事生活.
+
+WerBell, by contrast, is a business- man who dabbles in military adven- tures only when and as far as it suits him. If combat didn't utilize him, he'd take partake of it. His business is supplying weapons, not using them in battle. He specializes in the weapons techniques of counterinsur- ance, which may be roughly defined as the useful suppression of coups de force, rebellious and the like.
+
+The way WerBell operates, this is defending established regimes, one of them dictatorships, against revolt. This political posture only does not trouble WerBell, it makes him "I have no objection to relationship if it serves the interests of the country," he says. Particularly if threat to those interests is from left, "Communism has no place in Western Hemisphere—or in any country where I am totally opposed to it." The spread of ideological germs from that it brings."
+
+Now and again, WerBell's name goes into the news: The first issue of his muckraking magazine, Scandis- tral, carried an exhaustive story on his involvement in an abortive inva- sion of Hungary in 1946, and WerBell was charged with a major, if uncertain, role in the operation (WerBell was ac- cused and indicted after the fiasco, but charges against him were dropped). Six others arrested were brought to trial. Asked by a friend for an ex- planation, WerBell replied jauntily, "then you work for the company, take care of you. I'll never hear other word about it." So far he isn't, he maintains.
+
+As December, "WerBell bit the dust" page of The Atlanta Constitution to a shipment of captured enemy weapons bound from Vietnam was de- livered at Eglin Air Force Base, Flor- ida. A national columnist conjectured that WerBell or his friends meant to contribute the weapons to rightwing socialist groups in the U.S. WerBell quickly denies that. They were vowe-
+
+nship's scale. A loud demand for dis- signing and manufacturing is done under federal license: Silencers, for ex- ample, are outlawed by the National Firearms Act, along with saved-off shotguns, submachine guns and other investigations of Prohibition era gangland wars.
+
+To manufacture his suppressors, WerBell must pay a special tax of $500 a year, collected by the Treasury Department. The Tмен also check po- ritually to see that his awesome collection of firearms—over 200 individual pieces—is properly registered. Apparently the market for suppressors is not very large because, according to WerBell, his firm is the only one au- thorized to manufacture them.
+
+WerBell will not discuss the sales or profits of Military Armaments except to say that, after two years of exten- sive research and development (result- ing in a tax-loss of a half million dol- lars), the company is now doing very well. It has about 12 employees, includ- ing four machinists who work under the direction of Gordon Ingram, who has charge of the design operation and whose name is on the Model 11 subma- chine gun that young Mitch demon- strated on the firing range.
+
+## 'Cottage Industry'
+
+INGRAM WORKS in a well-equipped machine shop-lab attached to the main house on the estate, which Wer- Bell likes to call "the farm." WerBell's office is next door to the shop; its walls are so loaded with weapons that it is a wonder they do not collapse. There are knives and spear guns and pistols and rifles and machine guns, dozens and dozens of them, some purchased, some won in combat, some presented by the appreciative recipients of WerBell's counterinsurgency techniques.
+
+WerBell, who has a sense of humor, calls his enterprise a "cottage industry" and likens himself to "a country doctor." . . . I can fall out of the living area ostalgic right down to the office." Cottairs is the domain of his German-bora wife Hildegard, a pleasant, gray-haired woman who has borne
+
+cultivated by wearing a mustache and occasionally a monocle. He often dresses in military clothing of indeter- mine origin, and he embellishes the image by talking in slightly clipped sentences peppered with military phrases. There is nothing phony in this. WerBell has a strong attachment to weapons and to warfare; and he has been around them so long that the ideas and styles they foster are an in- grained part of his personality.
+
+He comes by both his militiaman and his anticommunism honestly. His father was an officer in the Russian Imperial army, even though he was born in the United States. "It was a tricky situation," says Mitch. "He was a citizen of both

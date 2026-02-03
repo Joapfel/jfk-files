@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_25606.png
+
+Convert to MarkdownDate:
+
+Mr. Raymond H. Correndo
+
+Dear Mr. Correndo:
+
+Effective 10 Oct 55 all contracts written or oral entered into between you and the United States are hereby terminated and in lieu thereof the following contract is substituted:
+
+The United States Government, as represented by the Contracting Officer, hereby contracts with you for the purchase of certain information and related services of a confidential nature under the following terms and conditions:
+
+1. Compensation. In full consideration for the purchase of such information and services, you will be paid an amount calculated at the rate of $3600 per annum. Payments will be made as directed by you in writing in a manner acceptable to the Government.
+
+2. Travel. You will be advanced or reimbursed funds for authorized operational travel. All expenses incurred hereunder are subject to payment and accounting in compliance with Government regulations.
+
+3. Operational Expenses. You will be advanced or reimbursed funds for necessary operational expenses, as specifically approved by the Government. Such funds will be subject to accounting in compliance with Government regulations.
+
+4. Repayment. It is recognised that your failure to account for or refund any monies advanced you hereunder shall entitle the Government to withhold the total amount of such indebtedness or any portion thereof from any monies due you under the terms of this contract in such manner as it deems appropriate.
+
+5. Execution of Documents. If, in the performance of services under this contract, you assume the custody of Government funds or take title of record to property of any nature whatsoever and wherever situated, which property has in fact been purchased with monies of the U. S. Government, you hereby recognize and acknowledge the existence of a trust relationship, either express or constructive, and you agree to execute whatever documents may be required by the Government to evidence this relationship.
+
+6. Status. You are not an employee of the United States Government under this agreement and are not entitled to any benefits normally incident to an employee status.
+
+7. Secrecy. All information related to this agreement conveyed through instructions, this instrument, or otherwise, is secret and shall not be divulged to any person, organisation or Government in any form or manner, except as authorized by the representative of the Government executing this agreement.

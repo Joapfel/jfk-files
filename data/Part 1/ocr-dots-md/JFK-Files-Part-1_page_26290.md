@@ -1,0 +1,57 @@
+# JFK-Files-Part-1_page_26290.png
+
+Convert to Markdown14-00000
+
+MESSAGE FORM
+TOTAL COPIES: 26
+
+<table><tr><td>☐ FILE RIG</td></tr><tr><td>☐ INDEX</td></tr><tr><td>☑ NO INDEX</td></tr><tr><td>☒ FILE IN CS FILE NO.</td></tr></table>
+
+<table><thead><tr><th colspan="3">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>C/44/C</td><td>S1 RL</td></tr><tr><td>2</td><td>C9-P9-16</td><td>D</td></tr><tr><td>3</td><td>E7</td><td>7</td></tr><tr><td>4</td><td>C1</td><td>8</td></tr></tbody></table>
+
+TJ.FLORES
+C/WH/COG
+CT: 2975
+DATE: 22 DECEMBER 66
+☑ FILE IN CS FILE NO. 201-336474
+
+☐ DESTROY ☐ RETURN TO ____
+BRANCH
+
+FROM: DIRECTOR
+
+TO: PRIORITY ROME
+RYBAT TYPIC
+REF: MEXICO CITY 9716 (IN 64428) (NOT SENT ROME)
+
+INFO: MEXICO CITY
+
+22 1808Z
+
+CITE DIRECTOR
+
+61614
+
+A. SEND MR LOUIS DESANTI TO MEXICO TO INTERVIEW RICO GALAN USING DISGUISE AND POSING AS ITALIAN EX-COMMUNIST NOW JOURNALIST WITH LIBERAL JOURNAL.
+
+B. ALTHOUGH TAKE FROM INTERVIEW NOT EXPECTED RESULT IN TOTAL REVELATION OF RICO'S ACTIVITY IT WILL PROVIDE OPPORTUNITY FOR STAFFER ASSESSMENT AND MIGHT BE FOLLOWED UP WITH SUFFICIENT INFORMATION
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+GROUP I
+Included when outside
+designated for and to be
+protected
+
+(CONTINUED)
+OFFICE A
+
+RELEASING OFFICES
+
+<table><tr><td>22-2</td></tr></table>
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

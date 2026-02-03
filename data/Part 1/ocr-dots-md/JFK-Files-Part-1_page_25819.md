@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_25819.png
+
+Convert to Markdownc. Regan H. Gill, a contract agent, was over provided by LILLIES end is responsible for LIPSTICK office number 2. GILLIAM supervises the work of LILLIES, who processes the film from: LILLIES, LILYMIC, and LILLYTIC cameras. (Lilliam directs the activities of the Lilian surveillance team; a concrete project discussed in Lilliam-051). GILLIAM is also responsible for the activities of the final surveillance camera, LILYMIC.
+
+(1) LILYMIC is a second story apartment which affords a view into the right angle of the main gate of the Lilian institution at an angle which photographs from the top of the building downward. The equipment is the same as that used in LILLIAN and LILYMIC and the film is processed in the same way. LILLY-M-12 lives in this apartment and is responsible for the photographic and physical surveillance. This report supplement but do not dedicate those submitted by the Lilian cameras. The photographs from LILYMIC are superior in quality to those obtained from either LILLIAD or LILYMIC. LILLY-M-12 is an efficient stenographer and good photographer. Also, this has offers a better position from which to take photographs.
+
+(2) GILLIAM's contacts in private investigative agencies are used to check leads from other operations. During June and July 1957 GILLIAM received training atSecret service and both he and the Case Officer feel this training has been most beneficial.

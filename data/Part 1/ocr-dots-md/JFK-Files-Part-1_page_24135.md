@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_24135.png
+
+Convert to MarkdownSECRET
+
+Mr. Volta. I can't know, sir.
+
+Mr. Sourwine. To you know if they did any fact or act of junction
+this conference in London, involving --,
+
+Mr. Volta. I think they did, but I never heard of it --
+Mr. Sourwine. Involving the North Vietnamese. You
+heard nothing further?
+
+Mr. Volta. No, sir.
+
+Mr. Sourwine. Now, did you have any information about the
+presence in London of any other United States citizens who had
+attempted to obtain a visa to travel to Cuba?
+
+Mr. Volta. No, sir. But that I remember.
+
+Mr. Sourwine. Didn't you have something to do with an
+individual who wanted to go to Cuba, to interview Castro?
+
+Mr. Volta. Yes.
+
+Mr. Sourwine. Tell us about this.
+
+Mr. Volta. There was a newspaper man, a colored Man.
+
+Mr. Sourwine. A Negro?
+
+Mr. Volta. Yes, a Negro. And he used to be, I think,
+president of Fair Play for Cuba here in the States, I think in
+New York. I don't know if this was in New York. And he visited
+the Embassy, trying to get a visa.
+
+Mr. Sourwine. The Cuban Embassy in London?
+
+Mr. Volta. Yes, the Cuban Embassy in London.
+
+Mr. Sourwine. To get a visa to go to Cuba?
+
+Mr. Volta. Yes. And then we sent this request to Cuba,
+SECRET
+SCHUETTO DEPA. 4C
+
+208-306052

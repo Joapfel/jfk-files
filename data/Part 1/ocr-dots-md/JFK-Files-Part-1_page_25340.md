@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_25340.png
+
+Convert to MarkdownSECRET
+
+BC-780/
+
+NAME: IGNATYEV, Sergey Ivanovich
+NATIONALITY: Russian
+OCCUPATIONAL SPECIALTY: Electrician (electrician-electrical)
+POSITION: General Director of Wasser Kabel and Arlande plants subordinate to A/O Late, USIA
+HT: c. 15 ca. WT: c. 60 kg. BUILD: Thin. HAIR: Dark. EYES: Unknown
+OTHER PHYSICAL CHARACTERISTICS: None that were outstanding.
+PERSONAL HISTORY: Unknown to source
+
+EMPLOYMENT; MILITARY RECORD: Worked as a plant director for USIG in East Germany before coming to Austria in December 1943. Military record unknown.
+
+PARTY AFFILIATION; POLITICAL ORIENTATION: An active CP member
+
+REMARKS: Honest, a good technical specialist
+
+BASIS OF INFO: Acquired through work
+
+DATE OF INFO: December 1943
+
+NAME: YENLEV, Alexander Ivanovich
+NATIONALITY: Russian
+OCCUPATIONAL SPECIALTY: Financial specialist
+POSITION: Chief of the Financial Section of A/O Label, USIA
+HT: c. 15 ca. WT: c. 60 kg. BUILD: Thin. HAIR: Dark. EYES: Unknown
+OTHER PHYSICAL CHARACTERISTICS: Hunched shoulders, thin face, straight nose, wears reading glasses. His right hand has no index and middle fingers up to the second joint.
+PERSONAL HISTORY: Married
+
+EMPLOYMENT; MILITARY RECORD: Unknown to source
+
+PARTY AFFILIATION; POLITICAL ORIENTATION: A CP member but not active
+
+REMARKS: Likened to drink and was often drunk; considered a cultured, decent fellow who was well-like
+
+PASIS OF INFO: Acquired through work from February 1943 to December 1943
+
+DATE OF INFO: December 1943
+
+SECRET
+
+CENANCIHCELECS OMO SISTEME
+CELS SECRETAIRE
+
+14-00000

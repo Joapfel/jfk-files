@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_25361.png
+
+Convert to MarkdownRCME 5842
+IF 26718
+22 May 53
+
+Nikolai LEBCOV and wife Valeria arrived in Rome on 9 May 53 from Moscow and took lodgings at Primrose Pensione until 13 May 53 when they departed for Genoa to proceed by sea to Mexico. LEOUCY carries service ppt C 10724, issued in Moscow on 29 Oct 52. Wife carries service ppt. G-11507, issued in Moscow 23 Feb 53
+
+Nikolai b. Biazan (prob. Razan) 22 Aug 1928. Valerii b. Moscow 28 Apr 1928.
+
+80-96339 22 Sept '52: One N. LECEOV, passport No. 09492 dtd 24 Apr '52 Visa No. 70, dtd 25 Apr '52, arrived in Peshawar from Kabul on 2 May '52. This individual is leader of Agriculture Delegation from Moscow on way to Karachi.(this info. taken from ROK-176 dtd 17 Jul '52 and was acquired in Karachi, Pakistan.) Purpose of this trip was to attend Asian Regional Conference on Epidemiology which was held in Karachi 3 May '52.

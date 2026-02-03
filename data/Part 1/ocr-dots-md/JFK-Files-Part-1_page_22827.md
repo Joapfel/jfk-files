@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_22827.png
+
+Convert to Markdown# American Student in China
+
+BLOKSBERG, Harry
+D.O.B.-6 JUNE 1937
+O.C.P.-APPRENTICE TOOL MAKER
+File Check Results
+C.I.T.-U.S.A.
+Residence - Trenton, New Jersey
+Photo Attached
+Passport No. 454479 issued 4/15/57
+
+1. The IO Division's informants, that attended the Moscow Festival, were of the opinion that the subject was a Left Winger. (IO Div.)
+
+2. Shelby Tucker, the American that went to China and refused to give the Chinese his passport, stated that the subject was instrumental in applying pressure to make the Americans, that did not give up their passports at the Chinese frontier, give their passports to the Chinese in Peking. (State Dept. Incoming Telegram No. 513 dated 10 September 1957, from Moscow.)
+
+3. Harry Irving Bloksberg, born 6 June 1937, resides in Newark, New Jersey and is employed as an apprentice tool maker. His parents, Gabriel and Bertha Bloksberg, were described as Communist Party members. The subject is a member of the Labor Youth League (LYL) which is a Communist organization. He attended Camp Midvale, which is owned and operated by the Metropolitan Recreation Association (MRA), on occasions during 1955. In 1956, the subject was named to a committee that was organized to make plans for the Communist MRA Youth Group. (DFB-86649, 16 July 1957.)

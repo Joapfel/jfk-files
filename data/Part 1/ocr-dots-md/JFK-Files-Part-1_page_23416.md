@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_23416.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA: Air
+SPECIFY AIR OR SEA POUCH
+
+DISPATCH NO. TRSA-468
+
+<table><tr><td>CONFIDENTIAL</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO : Chief, Foreign Branch T DATE: 1 November 1949
+FROM : Chief of Station, San José
+SUBJECT: GENERAL. Project Humanoid
+          SPECIFIC. Amendment to Contract
+
+1. Effective 1 November 1949 the salary of the individual designated as Humanoid was increased $100.00 to a total of $500 per month. This action was taken in consideration of excellent services, not in time, but in quality, in the management and direction of Projects Humankind, Humanist-2, and Hugger.
+
+Elmer C. Mercer
+
+<table><tr><td>CONFIDENTIAL</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+FORM NO. 61-28
+APR 1947

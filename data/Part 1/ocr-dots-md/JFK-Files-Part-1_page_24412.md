@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_24412.png
+
+Convert to MarkdownHERewith ATTACHMENT TO: OEPA-1708
+
+BRITISH VISA RENEWED
+
+On 12 March, I got my British visa renewed until 15 February 1970. As in the past, my request seemed to cause some panic at the Home Office and I had to wait from 0930 until 1500 before finally obtaining the visa, albeit with apologies for the lengthy delay — normally it takes about an hour.
+
+GS COPY
+
+H/w att #/ts
+OEPA-1708
+
+201-306052

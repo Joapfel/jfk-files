@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_24775.png
+
+Convert to Markdown2
+
+(1) November 1966 (general)
+
+(2) February 5-6, 1967 (general)
+
+(3) February 10-11, 1967 (re PR trip)
+
+(4) February 27-28, 1967 (re PRI study)
+
+(5) February 22, 1967 (re PR trip)
+
+(6) March 14, 1967 (re PRI study)
+
+(7) April 3, 1967 (PRI study)
+
+(8) May 8, 1967 (PRI study)
+
+c. Travel from New York City to Boston (by rail) re PRI study - 10 March.
+
+Lee E. Patton
+AC/WH/6

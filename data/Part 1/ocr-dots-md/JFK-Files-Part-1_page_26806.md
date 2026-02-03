@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_26806.png
+
+Convert to Markdown4) OCCUPATION: Writer for *Siempre* and *Politica* magazines in Mexico City; both are effective Communist-lining magazines and have large circulations.
+
+5) PHOTOGRAPH: Available in Subject's 201 file (date of photograph October 1963).
+
+6) POLITICAL AFFILIATIONS AND INCLINATIONS: As of 1962 Subject was the head of the National Press and Propaganda Committee of the National Liberation Movement (MLN) in Mexico City, a rabidly anti-U.S. and pro-Castro organization. Subject is close to Fidel Castro and company, and is considered as a Cuban "agent" (degree of Cuban control unknown). Subject was a founding member of the MLN. In an article in *Siempre* in March 1963 he advocated the foundation of a new political party reflecting the leftist ideology of General Lázaro Cárdenas, former President of Mexico. This would have provided, in his belief, the Mexican left a political organization truly responsive to the radical tendencies of the 1910 revolution. This was necessary because the MLN, whose membership covers the spectrum of Mexican Communist Party open to PRI, could not take political stands without antagonizing some of the membership. The new party would have represented a "third position", socialism in internal affairs and independence of any bloc in international affairs. With a party such as this as its political action arm, the MLN would have developed naturally into a broad national movement such as the FRAP in Chile. (Some specious reasoning here).

@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_23714.png
+
+Convert to MarkdownDIAZ, PEDRO /SGT. /
+SEX M F OUR ?
+
+019-007-001
+HKSA-0005C
+04 JUN '64
+SER 7
+P1
+
+CIT CUBA
+BCC POLICE AGENT
+FOR OF THE SATL POLICE AND OF THE SERVICI
+OF INTEFGENCIA REGIMINAL /SIR/ WHO HAD
+KNOWLEDGE OF COMMUNIST ACTIVITIES IN ORIENTE
+PROV. CO.
+
+201-735925
+
+DIAZ, PEDRO
+SEX M DOB 02 JUN 42
+CURA, MATANZAS PROV
+CIT ?
+OCC FISHERMAN
+A USA, FLA, MIAMI
+REF ISRM-13149, 27 SEP 63
+AKA OF VERGARA DIAZ, HUMBERTO
+SEP 63
+
+CS COPY ATTACHED
+PLEASE RETURN PROMPTLY
+
+1-751
+
+DIAZ, PEDRO
+
+201-735925
+
+201-7-173-418
+194-2004
+
+<table><tr><td>This card is of value.</td></tr><tr><td>Please complete</td></tr><tr><td>1st birth</td></tr><tr><td>2nd birth</td></tr><tr><td>Marital status:</td></tr><tr><td>Present address:</td></tr></table>
+
+127941

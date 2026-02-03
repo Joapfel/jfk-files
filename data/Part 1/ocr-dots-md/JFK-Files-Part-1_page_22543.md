@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_22543.png
+
+Convert to MarkdownSECRET-ESTS ONLY
+
+name, . . . 50 fragmentation grenades, . . . ten 64mm tank
+rockets. . . . ."
+
+16 March 1961
+
+Headquarters cabled its reply:
+
+"Eqs exploring possibilities for arms delivery and will advise ASAP. Meanwhile, request you clarify soonest: Is Berry making request on own initiative or is he speaking for Dr. Severo Cabral? . . . ."
+
+17 March 1961
+
+Cable from the station:
+
+"For issue to several of the dissident group Consul General Dearborn requests three 38 caliber Smith and Wesson Special pistols or similar and three small boxes cartridges. If sending ammo complicates problem, advise and we will try get from Marines.
+
+"Chief of Station reiterates suggestion to send in each pouch one small size high fire power weapon as Dearborn increasingly concerned lest momentum which group has now for assassination decline result lack tangible or too slow action on arms by the U.S. Government. Also security these people increasingly of direct interest US Government which each day more involved in the operation. Loss of one of key people thru capture could lead revelation details ODYCKE/EMLEED activity. Thus preferable we give them some chance defend themselves against SEM."
+
+18 March 1961
+
+Chief of Station Robert Owen met for the first time with Dr. Severo Cabral. He cabled the results:
+
+SECRET-ESTS ONLY

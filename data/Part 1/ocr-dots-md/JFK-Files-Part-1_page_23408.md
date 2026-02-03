@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_23408.png
+
+Convert to Markdown14-00000
+
+SECRET
+
+TO: Chief, FDT
+
+FROM: STC/CCO J. Bonnet
+SUBJECT: HUMANOID
+
+5 February 1951
+
+1. STC records reflect that subject was approved for operational use under Operational Clearance # 68 dated 19 July 1949 1977
+
+2. The clearance was based upon information available at that time. It is desired to maintain a continuing or periodic review of the security status of this person and the projects with which he has been or may be associated.
+
+3. Your comments on the following points would be appreciated. In the event field correspondence is necessary to obtain this information please coordinate with STC/OOO.
+
+a. Is subject still in an operational status? If not please indicate disposition.
+
+b. Is subject being used in substantially the same manner as when clearance was issued? If not please explain.
+
+c. Has subject been used in connection with projects other than originally centerplated?
+
+d. Has any information been reported affecting subject's personal or operational security status?
+
+e. Has the operation, including security tests of the agent, been satisfactory?
+
+f. Has any information been developed in connection with this or other operations or have changes in existing conditions occurred which could affect your original evaluation of this agent?
+
+SECRET
+
+201-167581

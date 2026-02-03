@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_26140.png
+
+Convert to Markdown14-0000
+
+Rico, Victor Galan)
+
+201-336474
+
+Card #1
+
+BIC DES
+
+10 Mar 77
+16 Jun 77
+1974-05-16
+22 Apr 78
+
+Vladimir KASTURIVICH; and Sacy, Sovk, told Inquirer of the BIP (Buro de Investi-
+gaciones), that invitations to a reception were personal and that BCIDLS should
+tell Sergio NOVELL and Subj. DOI: 7 Nov 78.
+Forarded a copy of Al Pia, anti-US mag. (Editor-in-chief is named Victor RICO
+Galan, prob Subj.)
+
+MMA-5260 persons in above two dispatches are probably identifiable. No traces on either Victor RICO or Victor RICO Galan.
+
+102-1809
+26 Feb 80
+
+Victor RICO Galan, writer for *Siempre*, was moderator at 1st mty of Political Study Circle which has been formed in UNY & thru which Comne sympathizers hope take part in student council elections. (C-3).
+
+CS
+
+Victor Rico Galan among those journalists who on 11 July elected to the Mexican prepratory committee for the Second International Congress of Journalists, had to be held incommunicable October 1960 (LIFT R B-2)
+Current: he is a leftist journalist working for an organ of his party associated with Politics, not a leftist semi-monthly)
+
+HAI-5258
+26 oct 78
+
+Manuel MARQUE Fardinas (dir-gen of Politica, leftist semi-monthly magazine) planned to send Subj (abr of his reporting staff) to see Allílio SA Chiliz Fiedrues (anti-US Deputy in Maxcals) with predelex. SKOPEZ said he would be very happy to receive Subj. and thanked MARQUE for his lep article praising him. (LIANVOY, F-2)

@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_26940.png
+
+Convert to MarkdownCONFIDENTIAL
+
+3 March 1976
+
+MEMORANDUM FOR: Chief, Washington
+Chief, Miami
+
+SUBJECT : Mitchell Livingston Terrell III
+
+1. The attached memorandum was prepared for John Creaney, OCC, who requested a summary of our records on Mitchell L. Terrell III. Terrell is to be tried in March 1976 in Florida on a charge of importing narcotics. OCC anticipates that Terrell may claim some Agency connection because he has done so in the past. Creaney also asked about OCO connections with Colousi Anyard who is mentioned in paragraph 2 of the attached memorandum.
+
+2. OCC has asked that there be no contact with Terrell at least until the trial is over. In view of Terrell's hostility to became involved in schemes with which the Agency cannot afford to be identified, I wish to extract factually the MO's lawsuit against contact with his.
+
+JACKSON R. BURTON
+Chief, Domestic Collection Division
+
+Attachment: A/S
+
+Distribution:
+
+* 1 - Washington
+* 2 - Miami
+* 2 - DOD
+* 1 - C/P&E
+
+RJFORD/AS
+
+H: REPORT CL. PT 034152
+
+4.53
+
+CONFIDENTIAL

@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_25787.png
+
+Convert to MarkdownSECRET
+
+17 November 1955
+
+**KEYORADUM FOR: M./S - Projects Branch**
+
+**SUBJECT:** Wedding Gift for Raymond R. JONES (ps),
+Contract Agent
+
+1. It is requested that the Mexico City Station be authorized to give Raymond R. JONES (ps), as a wedding gift, two airplane tourist class tickets from Mexico City to San Francisco and Washington D.C. and return to Mexico City. Although this trip may appear to be a generous and unusual wedding gift, the station considers it is more than justified in view of JONES's outstanding performance of his duties for the station and his future value as a principal agent. JONES has been working for the station since February 1955.
+
+2. The station estimates that the cost of the plane tickets will be $600.00. The LRTICK Project, which covers JONES, can absorb this added expense.
+
+R. S. Daughren
+Chief, LTR/III
+
+WH/3/Mexico/C.Zehrung:ngs
+
+Distribution:
+
+Orig & 1- Addressee
+1- WH/Mexico Chrono
+1- Subject *Signature*
+
+SECRET

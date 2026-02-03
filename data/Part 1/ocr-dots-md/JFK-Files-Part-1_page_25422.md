@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_25422.png
+
+Convert to Markdown23 January 1970
+
+Subject: World Associates (Hugh McDonald, Proprietor)
+
+1. On 13 January 1970, at the request of McDonald, I met with him for lunch. We went into the same routine about his organization anticipating spreading throughout the world in various countries in connection with bank security work. Quoted specifically on this security discussion, he informed me that he hoped to work with the Bank of America and Inter-Bank of Rochester, New York, in setting up security arrangements. He said that our bank would provide current credits and loans in foreign countries. In addition, he said that he was planning to put law enforcement officers in various countries who would have access to police information and who would, in turn, set up offices for him which would be honoring "bank credit cards," or merchant's, in various parts of the country. Briefly, he said that if a credit card customer was lawfully issued and used, and once his organization was notified, his law enforcement unit could alert me as to any transation that he would notify all banks, hotels, etc., in the city to be on the watch and not charge anything to such banks.
+
+2. The trend of the organization is that McDonald was again setting up his organization. I see no reason why or how he could not, but that would take a trip to Europe sometime in Feb. May 1970 during which I will sign up law enforcement officers in different cities to work with. We anticipate that he will put these people on a monthly retainer. As far as he will have a real intelligence collection going in different countries that will provide economic, political, and other types of information. Obviously, McDonald has not yet made any firm arrangements with the Bank of America or Inter-Bank.
+
+3. I told McDonald that I had previously forwarded information concerning his plans to my headquarters and that the reply I had received was thus, indicating as his organization had law enforcement affiliations that it would be of no interest to the agency. McDonald then switched the conversation over to what he was finally interested in informing us of the existence of his organization beyond. On this basis, I said that I would be glad to make a record of the conversation.

@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_24212.png
+
+Convert to MarkdownSECRET
+
+8. Not applicable. The Agent is not in the status of a tour of assignment but will be exploited in his current operational role as long as it is viable.
+
+9. This request is <u>not</u> for interline cover.
+
+10. If relative is visiting for such emergency contact, nor is Benefits and Counseling Branch involvement applicable in this case.
+
+11. None.
+
+12. Agent has served in the U.S. Army, is not now eligible for induction.
+
+13. Zone is not visiting and not clearable.
+
+D. Operational Information
+
+1. Type of Operation. FL. Duration is indefinite. Should be considered a penetration asset of a hostile propaganda establishment, rather than of an organised hostile intelligence service. In one, other than those indicated, are to be made visiting.
+
+2. Location: The Agent is to reside in London, with a possible alternative of Rome.
+
+3. The Agent should be free to visit Cuba, all European countries, West Africa and E. Africa (particularly Tanzania) as well as North Vietnam and China. Impossible to anticipate the time or duration of such visits, which will, however, be at his (and our) control.
+
+4. Special group Agent should be able to contact; Not applicable.
+
+5. Approximately $2,500 to $3,000.
+
+6. Not applicable.
+
+7. Communications channels desired; None.
+
+8. Cover suggestions; Zone not already expressed in previous documents prepared by CA Staff in identifying the cover mechanism and requesting IEP approval.
+
+SECRET

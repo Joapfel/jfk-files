@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_25428.png
+
+Convert to MarkdownTO: Chief, Contact Division, CO
+
+FROM: Chief, Security Division, SO
+
+SUBJECT: McDONALD, Hugh C.
+33-10772
+
+DATE: 8 November 1954
+
+INACTIVE
+
+Reference is made to your request for a security check on the Subject person as a potential source of foreign intelligence information.
+
+Based on information available as a result of our checks, Subject has been placed in the designated category:
+
+☐ Approved - Subject may be given information classified up to and including SECRET.
+
+Approved (Caution) - Subject may be given information classified
+up to and including SECRET provided discretion is exercised in
+development as a source.
+
+☐ Limited - Subject may be given information classified up to and including CONFIDENTIAL.
+
+Disapproved - Subject may not be furnished any classified information.
+
+Any pertinent information developed on Subject and not set forth in the data sheet furnished by your Division, is set forth below, or in an attachment. This additional information is for your confidential use only and is not to be disseminated outside of CIA.
+
+It is to be noted that our checks were made on the basis of the identifying information you furnished, as outlined below, or in an attachment to this memorandum. Should it be disclosed that this information is erroneous or that Subject is known by a different name, this Division should be notified immediately.
+
+CONFIDENTIAL
+
+DEC 6 1954'

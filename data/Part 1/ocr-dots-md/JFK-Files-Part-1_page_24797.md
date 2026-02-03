@@ -1,0 +1,256 @@
+# JFK-Files-Part-1_page_24797.png
+
+Convert to MarkdownSECRET
+
+6. The files show that Tichborn's magazine, Dialogos was funded through Tichborn by various individuals through arrangements made by CCS. The AC/WH/6 interrogated Tichborn on any foundation funding, Tichborn could recall only one instance of foundation funding, some $2-2,500 given Dialogos Editor Ramon Xirau by the Fairfield Foundation. There is also a reference in the files that one, Louis Mercier, was informed that ODACID also supported Dialogos.
+
+7. The files reflect very favorably on Tichborn's performance - two reports by the Mexican Station and one from COS/Santo Domingo are most commendatory. On the negative side, administrative details bore him.
+
+8. The undersigned has confirmed with Chief, WH/CA that if DO will take over Tichborn's contract, WH will pay Tichborn's salary and expenses for the first quarter of FY 1968. Chief, WH/CA is awaiting DO's decision.
+
+9. The undersigned is very favorably impressed by Tichborn. By 1 October, it is believed that Tichborn will be sufficiently well-trained in commercial and investment banking matters to do legal-business consulting on a fee basis for WUSALINE. He should be able, depending on the number of operational requirements, to earn a part, if not all, of his salary. On this basis, it is recommended that DO assume administration of Tichborn effective 1 July 1966, under WHO control, with the understanding that WH Division will defray Tichborn's salary and expenses during the first quarter of FY 1968.
+
+Gale W. Allen
+DO/CO
+
+CONCUR:
+
+Chief, DO/CO
+
+APPROVED:
+
+CC: DO/CA
+cc: Bring support SECRET
+
+26 MAY 1957
+
+Date
+
+26 May 1967
+
+Date
+
+SECRET
+
+CC: Bring Support
+
+26 MAY 1957
+
+Date
+
+26 May 1967
+
+Date
+
+CC: BRING SUPPORT
+CC: BRIAN S. LARKIN
+
+26 MAY 1957
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26 May 1967
+
+Date
+
+26

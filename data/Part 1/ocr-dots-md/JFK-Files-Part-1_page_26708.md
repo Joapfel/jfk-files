@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_26708.png
+
+Convert to MarkdownFrom 0620 to 1210, 29 April (Thursday) 1965
+
+2.0 In. NO asks Inge(bord) Rico (v), who answers, for Victor Rico Gelen (VRO). He is asleep. No is Emilio Cordero, a Dominican. When will he be up? Around 0900 or 0930. No will phone back
+
+3.2 Out.to 27-13-84. Sra. Dianer with Sr. Gonzales, who answers. About a napkin ring she ordered....About her papers...they have lost their ones she left with Sr. Gonzalez for his signature. She always leaves one copy at the factory and the third is for jewelry shop while the second one is her copy....She likes to know what her prices are and how much she owes exactly...
+
+3.3 Out to 03. Time is 0821 (29 April).
+
+3.7 In. Camillo (not Emilio) Cordero, Dominican, with VAG, who answers. Jose Luis talked to VAG last night. Yes. They would like to talk to VAG today. Come by in an hour - at 1045. Come by VAG's house. Camillo with come with Max. VAG knows him. Camillo and Max and some others (will come to see him).
+
+4.2 Out to 42-15-63. VAG with MO, who answers. MO has one car. A new Chelie. Calls to speak to M's husband. Will be marred for a month.
+
+4.3 Out to 46-43-24. VAG with MO, who answers "Siempre," alos Alberto.
+
+Alberto taken the phone. Has the Director returned? No, will be back until tomorrow. VAG is writing a bombshell on Santo Domingo, "as is natural." VAG says that he has some very useful data in the article, reporting, he did there. Would like Joquin to look for it and send it to him! This was published in 1963 (in "Siempre") when VAG went to Santo Domingo. Should have come out in January or February of 1964, not 1963. It came out la Second Division. It has a photo of Tavares and may have one photo of Beach. But one of funeral of Tavares. Alberto will send it to him.
+
+VAG asks if Alberto has seen the golden road that the PCI is giving. They should keep today's (copy) of "El Die" because "we can use it for many years."
+
+Some Dominican fridda are going to visit VAG now. He will prepare some very good article.
+
+6.0 Out to 46-66-93, 3 times. Easy. Complete. VAG with Sr. Donchamps (ph.). O. has been the matter of the (U.S.) marines. Yes. VAG is with some Dominican friends who want to give a press conference today at 1600. VAG asked for something like this - when the Guatemalan affair took place - VAG called Julio and Julio gave the matter to the Head of Information. Probably due to the civil war they have there (americ Donchamps works). The Head of Information sent Carlos Jimenez who case drank. This conference will take place at 1600 at the house of Dr. Mariscalarcin Mejia Alcaraz, Ave. Valerie Trujano 882, Apt. 5-3, Colonia Florida. He does not have a phone. No would like Leo Azuara to go talk to them so they could publish something ahead of time in the "Extra." They are now with VAG. Perhaps NO can info Leo Azuara and give him phone VAG. VAG gives his phone.
+
+Reel 72-101-22
+
+G i.
+
+- 1 -

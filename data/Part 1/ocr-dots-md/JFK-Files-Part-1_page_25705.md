@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_25705.png
+
+Convert to MarkdownDate:
+
+WHD AGENT BOARD
+
+## Part II - Biographic Data
+
+<table><tr><td>NAME--True ☐ Pseudo [x]</td><td>DQB<br/>New York City</td><td>CITIZENSHIP</td><td>201 Number</td></tr><tr><td>Raymond H. GERENDI</td><td>7 Dec 1933</td><td>Mexican</td><td>201-119523</td></tr></table>
+
+MARITAL STATUS DEPENDENTS--RELATIONSHIP--DCB
+
+wife:
+Hester Roos de Alvarez
+
+2 sons - 4 and 1
+1 daughter - 6 yrs old
+
+### EDUCATION
+
+| Dates | Name of School | Location | Degree | Major Studies |
+|---|---|---|---|---|
+| 1952 | American High School | Mexico City | high school | |
+
+| Dates | Name of Employer | Location | Job or Function | Grade |
+|---|---|---|---|---|
+| May 1953- | Other than part time jobs which were many: | | | |
+| Dec 1954 | Roger McCann & Chas Davis, Mexico City, Sales Manager $40-50/month | | | |
+
+### NON-AGENCY EXPERIENCE--Include Military Service (5 years prior to Agency connection)
+
+| Dates | Name of Employer | Location | Job or Function | Salary/Grade |
+|---|---|---|---|---|
+| May 1953- | Other than part time jobs which were many: | | | |
+| Dec 1954 | Roger McCann & Chas Davis, Mexico City, Sales Manager $40-50/month | | | |
+
+### AGENCY EXPERIENCE--Staff ☐ Contract Agent [x] Career Agent ☐ Contract Employee ☐
+
+| Dates | *Cover Employer Name | Location | Basic Salary | Ops Tasks |
+|---|---|---|---|---|
+| Mar 1955 | Farolitos de Mexico (bona fide) salary offset | Mexico City | $3,600 | Member of surveillance team, cutout/P.A to phogographic bases, investigator, etc. base-house operator and processor of tapes |
+
+*Indicate also nature of business and whether bona fide or Agency mechanism.
+
+SECRET

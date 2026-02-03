@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_26118.png
+
+Convert to Markdown14-0000
+
+4-15 JUNY
+
+INDEX ☐ YES ☐ NO
+CLASSIFY TO FILE NO.
+X-REF TO FILE NO.
+FILE RID ☐ RET. TO BRANCH ☐
+DESTROY ☐ SIG.
+
+TOTAL COPIES
+
+SECRET
+
+REPRODUCTION PROHIBITED
+
+<table><tr><td>ACTION</td><td>ADVANCE COPY</td><td>UNIT</td><td>TIME</td><td>BY</td></tr><tr><td>[WHP]</td><td>☐ RID COPY ☐ issued ☐ cleared ☐/8</td><td></td><td></td><td></td></tr><tr><td colspan="2">INFO<br/>FILE, CR = WTH/COG-8 (COPY C) LP/S</td><td></td><td></td><td></td></tr></table>
+
+SECRET 181600Z CITE CARACAS 7841
+
+DIRECTOR INFO JMWAVE
+
+REF: DIRECTOR 35982
+
+IN VIEW HEAD QUARTERS STRONG RESERVATIONS HIRING
+
+AMCLÉVE-15, STATION DEFERS TO HQS VIEWS.
+
+SECRET
+
+105567 N 54359
+
+19 CEI 1967
+
+27-05-1967
+
+SECRET
+
+13 SEP 1967
+
+27-05-1967
+
+SECRET

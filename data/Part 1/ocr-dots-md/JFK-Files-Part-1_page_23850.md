@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_23850.png
+
+Convert to MarkdownTO: Chief, W.B.
+FROM: Chief of Staff, on,
+London
+Attachment No. 2 to
+OHLA-43,000, 27 April 1965
+
+The Secretary of State
+of the
+United States of America
+having authority to all whom it
+mayherein, to provide and direct,
+the President may, by his order in
+force, extend the period
+thereby so far as may be
+advantageous to the U.S.A.
+to the benefit of foreign soldiers
+belonging to the United States.

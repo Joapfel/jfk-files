@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_26241.png
+
+Convert to Markdown<table><thead><tr><th>DISPATCH</th><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>TO<br/>Chief, WH Division</td><td rowspan="3">SECRET/KAPOK</td><td>ARRIVED FOR INCIERING</td></tr><tr><td>INFO</td><td>NO INCIERING REQUIRED</td></tr><tr><td>FROM<br/>Chief of Station, Mexico City</td><td>ONLY QUALIFIED OFFICER<br/>OBSOUE INCIERING</td></tr><tr><td>SUBJECT<br/>Victor RICO Galan</td><td colspan="2"></td></tr><tr><td colspan="3">ACTION REQUIRED: REFERENCES</td></tr><tr><td colspan="3">Reference: Mexico City-9925</td></tr><tr><td colspan="3">1. Forwarded herewith are three copies of a memorandum written by Zeno B. LEEHOLD regarding his meeting with Victor RICO Galan on 13 January 1967.</td></tr><tr><td colspan="3">2. Also forwarded are three copies of the Spanish translation which was passed to ITEMPO-8 on 16 January 1967.</td></tr><tr><td colspan="3">3. Please call this dispatch and attachments to the attention of Chester D. DAINOLD.</td></tr><tr><td colspan="3">Willard C. CURTIS</td></tr><tr><td colspan="3">Attachments:<br/>Memorandum<br/>Translation (Spanish)<br/><br/>Distribution:<br/>3 - WH, w/atts</td></tr><tr><td>CROSS REFERENCE TO</td><td>DISPATCH STATION AND NUMBER<br/>HMMA-31108</td><td>DATE<br/>17 January 1967</td></tr><tr><td></td><td>CLASSIFICATION<br/>SECRET/KAPOK</td><td>MCATTENED BY<br/>201-336474</td></tr></tbody></table>
+
+COPY
+
+201-336474

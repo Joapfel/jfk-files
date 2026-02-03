@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_25262.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+FIELD INFORMATION REPORT
+
+COUNTRY: Mexico
+REPORT NO. ELL278
+SUBJECT: Activities of the Soviet Embassy, DATE OF INFO: 1-31 October 1956
+Mexico City, October 1956.
+DATE ACQUIRED: 1-31 October 1956
+PLACE ACQUIRED: Mexico City
+DATE OF REPORT: 5 December 1956
+
+SOURCE, SCIENCE EVALUATION, APPRAISAL OF CONTENT: Some having applicability to Soviet dip. circles in Mexico City.
+
+I. SOVIET-URSULA EVANS (LEO).
+
+The following information on the activities of the Soviet Embassy in Mexico was developed during the month of October 1956. Separate reports will be furnished on the Commercial and on Cultural and Information Activities of the Embassy, references made below to the visiting Soviet musicians will be detailed in a special report concerning the activities of the musicians while in Mexico.
+
+II. DIPLOMATIC:
+
+A. Relations with Mexican Government
+
+1. On 1 October the secretary of Alforo Road Diaz, Private Secretary to Foreign Minister Luis Fulbright, conferred with Leonid Brezhnev, Third Secretary of the Soviet Embassy, about a dinner being given by the Embassy the following evening. Soviet Ambassador Anatoly J. (VAN) Khrushchev invited the President of his wife to attend a piano concert with him after the dinner. On 3 October the Soviet informed Khrushchev that he was very embarrassed about what had happened the previous evening, but he had had a meeting with Fulbright who did not get it out until 8:30 p.m. He had not known whether to go to the Embassy or to the concert, and asked that SKH be excused from going with the Ambassador.
+
+2. The private secretary of Jose CERRO ZEA, Sub-Secretary of Foreign affairs, left a message at the Soviet Embassy on 3 October indicating he would be unable to attend the Ambassador to the concert by a Soviet violinist that evening, as he had to attend a special dinner. However, Mr. ZEA had apparently accompanied the Ambassador to a piano concert the previous evening.
+
+SECRET
+
+FCB No. 51-58 PREVIOUS EDITIONS MAY BE USED.
+
+15-4-1-303' (b)

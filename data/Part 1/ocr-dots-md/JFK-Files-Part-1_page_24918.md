@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_24918.png
+
+Convert to MarkdownASSIFIED MESSAGE TOTAL COPIES
+
+SECRET
+
+REPRODUCTION PROHIBITED
+
+<table><tr><td></td><td>1</td><td>S</td></tr><tr><td></td><td>2</td><td>6</td></tr><tr><td></td><td>3</td><td>7</td></tr><tr><td>4</td><td></td><td>D</td></tr><tr><td colspan="3">UNIT TIME BY</td></tr><tr><td>ACTION</td><td>RID COPY</td><td></td></tr><tr><td>INFO</td><td></td><td></td></tr><tr><td>FILE</td><td>L/R</td><td>c/c/ds3</td></tr></table>
+
+SEC R E T 261845Z
+SDCM INFO DIR CITE MEXI 6660
+REF DIR 91189
+
+DELEGATE: COLIC EMARGOSY
+
+TICHBORN PLANS TRAVEL SAN JUAN ON 4 APRIL EASTERN AIRLINES ARRIVING 1630. RESERVATION MADE AT SAN JERONIMO HILTON, WILL AWAIT CONTACT. ADVISE IDENTITY OF OFFICER WHO WILL MEET HIM IF ABOVE SATISFACTORY.
+
+SECRET
+
+CFN 6660 DIR 91189 TICHBORN SAN JUAN 4 APRIL EASTERN 1630 SAN
+
+JERONIMO HILTON
+
+BT
+
+SECR'N
+
+201-753 203 KC

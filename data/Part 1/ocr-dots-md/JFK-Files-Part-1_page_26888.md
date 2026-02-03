@@ -1,0 +1,75 @@
+# JFK-Files-Part-1_page_26888.png
+
+Convert to MarkdownMay 3,1965
+
+Report on flight evaluation of: Tony Fato & Orlando Izquierdo
+Helicopter Bell 47G.-855 hp Franklin engine.
+
+| Maneuvers | Grade Tony | Grade Orlando | Remarks |
+| :--- | :--- | :--- | :--- |
+| Preflight | av. | av. | |
+| Cockpit procedures | av. | av. | |
+| Throttle control | av. | av. | Both very smooth |
+| Starting procedures | Ab.av. | Ab.av. | |
+| Vertical take off to hover | av. | av. | Wind: 10 to 32 MPH |
+| Hovering | av. | av. | " " |
+| In Taxi | Av.av. | Av.av. | " " |
+| Transition to forward-flight | av. | | |
+| Coordination of flight controls | Ab.av. | Av. | |
+| Forward Flight, slow/fast cruise | av. | av. | |
+| Sideward | av. | av. | Wind: 10 to 32 MPH |
+| Backward | av. | av. | " " |
+| Basic airwork | Ab.av. | Av. | |
+| Turns | Ab.av. | Av. | |
+| Climbs | av. | Av. | |
+| Glides | av. | Av. | |
+| Climbing Turns | av. | Av. | |
+| Descending turns | av. | Av. | |
+| Wave off's | av. | Av. | |
+| Normal approach to spot | Ab.av. | Ab.av. | |
+| Precision hover, Down/upwind | av. | av. | Wind: 10 to 20 MPH |
+| Constant heading square | av. | av. | " " |
+| Parallel | av. | Av. | " " |
+| Perpendicular | av. | Av. | " " |
+| Turns-on-spot | Av. | Av. | " " |
+| Autorotations-Power off touchdown | Ab.av. | Ab.av. | Both improved from below/ |
+| Autorotations- From hover | Ab.av. | Ab.av. | " " |
+| Vertical autorotations | Ab.av. | Ab.av. | " " |
+| Emergencies: between 10 & 300' | Ab.av. | Ab.av. | " " |
+| Run on landings | av. | Av. | |
+| Running take offs | Ab.av. | Av. | |
+| Precision Approach | Ab.av. | Av. | |
+| Rapid deceleration (quick stop) | av. | Av. | |
+| Jump take offs | av. | Av. | |
+| Maximum load conditions | Av. | Av. | |
+| External (sling) loads | Ab.av. | Av. | --Tony had previous experience. |
+| Water: Landings, taxi, take off | Ab.av. | Ab.av. | Wind: 10 to 32 MPH. |
+| Rough terrain & Evasive tactics | Ab.av. | Ab.av. | |
+| Landings: normal,cross/downwind | Ab.av. | Ab.av. | " " |
+
+9003 PERSONAL ROAD, NORTH PERRY AIRPORT, W. HOLLAND, FLORIDA 33023. PHONE 587-9300 . MIAMI • 943-9301
+
+May 3, 1965
+
+# Report on flight evaluation of: Tony Fato & Orlando Izquierdo
+## Helicopter Bell 47G.-855 hp Franklin engine.
+
+| Maneuver | Grade Tony | Grade Orlando | Remarks |
+| :--- | :--- | :--- | :--- |
+| Preflight | av. | av. | |
+| Cockpit procedures | av. | av. | |
+| Throttle control | av. | av. | |
+| Starting procedures | Ab.av. | Ab.av. | |
+| Vertical take off to hover | av. | av. | Wind: 10 to 32 MPH |
+| Hovering | av. | av. | " " |
+| In Taxi | Ab.av. | Ab.av. | " " |
+| Transition to forward-flight | av. | | |
+| Coordination of flight controls | Ab.av. | Av. | |
+| Forward Flight, slow/fast cruise | av. | Av. | |
+| Sideward | av. | Av. | Wind: 10 to 32 MPH |
+| Backward | av. | Av. | " " |
+| Basic airwork | Ab.av. | Av. | |
+| Turns | Ab.av. | Av. | |
+| Climbs | av. | Av. | |
+| Glides | av. | Av. | |
+| Climbing Turns | av.

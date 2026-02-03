@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_22640.png
+
+Convert to Markdown14-00000
+
+Mr. Harold R. Noemayr
+
+Dear Mr. Noemayr:
+
+Reference is made to your contract with the United States Government, as represented by the Contracting Officer, effective 1 June 1957, as amended.
+
+Effective 15 February 1960 said contract, as amended, is further amended by adding after subparagraph (c) of paragraph four (4) entitled "Allowances" the following:
+
+"(d) You will be entitled to a home service transfer allowance in conformance with applicable Government regulations."
+
+All other terms and conditions of the contract, as amended, remain in full force and effect.
+
+UNITED STATES GOVERNMENT
+
+BY 15
+Contracting Officer
+
+SECRET
+
+15 Feb. 60
+Joi-16.87E1

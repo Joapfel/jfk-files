@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_26925.png
+
+Convert to MarkdownFJKS-0422/79
+
+MEMORANDUM FOR: Maurice A. Western
+Chief, VPL Group
+
+ATTENTION: Lee F. Carle
+
+FROM: George L. Marling
+Chief, Operations Group
+
+SUBJECT: Request for Records Search --
+Robert John Morgan, et al. (U)
+
+REFERENCE: OGC 79-02601 dated 20 September 1979
+
+1. An intensive search of the files and indices of the Directorate of Operations has revealed no information concerning Robert John HOGAN, John Duncan LEIBOL, Robert Stewart COTTON, John Sylvester CARPENTER, Wayne Ernest DANIELS, or Guy Perilton O'BK. (E)
+
+2. However, this search has revealed the following information concerning Wiley Gilmore SIMS (AKA: William Gilmore SIMMS) and Mitchell Livingston WERRELL III (AKA: Mitch THREE). (U)
+
+## A. William Gilmore SIM'S
+
+1. In December 1965 SIMS contacted the United States Embassy in Port of Spain, Trinidad, and talked to a representative of this Directorate, he requested assistance in retrieving an airplane impounded by authorities in Venezuela which they suspected was used in smuggling operations. SIMS also stated that he had been in Guatemala looking for air freight business. The files of this Directorate contain no indication that any action was taken regarding this matter. (U)
+
+2. SIMS was never employed by this Directorate nor has this Directorate ever had any operational interest in him. (U)
+
+## B. Mitchell Livingston WERRELL, III
+
+1. WERRELL has never been employed by this Agency nor does this Agency have any operational interest in him. WERRELL was a commissioned officer with the OSS during World War II and served in the China-Burma-India

@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_22521.png
+
+Convert to MarkdownSECRET-eyes ONLY
+
+As a further prelude to a chronological review of operation
+ECLIPPES, we think it would be useful to identify the people
+involved, especially since officers of the Department of State
+played a very prominent role.
+
+Washington - Department of State
+
+Roy R. Rubottom
+Assistant Secretary of State for
+Inter-American Affairs
+
+Frank Devine
+Special Assistant to Rubottom
+
+John C. Hill
+Special Assistant to Rubottom
+
+Washington - CIA
+
+J. C. King
+Chief, WH Division
+
+Ned Holman
+Chief, Branch III, WH Division
+
+Ciudad Trujillo - Department of State
+
+Joseph S. Farland
+Ambassador until 28 June 1960. It is
+pertinent to note that King and Ester-
+line attribute U.S. and CIA involvement
+
+SECRET-EYES ONLY

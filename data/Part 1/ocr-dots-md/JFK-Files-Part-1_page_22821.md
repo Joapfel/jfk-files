@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_22821.png
+
+Convert to MarkdownSECRET
+
+Sahay Avidisian said he was not a Communist and never had been, when questioned by the House Committee on Un-American Activities, on 21 November 1957. (New York Times, 22 November 1957)
+
+AVEDISIAN, Sahag.
+
+SECRET

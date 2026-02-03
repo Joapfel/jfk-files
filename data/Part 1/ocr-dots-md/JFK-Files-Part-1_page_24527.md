@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_24527.png
+
+Convert to MarkdownCorreos y Telecomunicaciones
+del Perú
+
+Sr. JACHATUROV K.A.
+
+Agencia Prensa Novosti
+Plaza Pushkin 4
+MOSCU
+URSS
+
+Mockha,ATT,K.A.Xayatypoby
+
+Remites: N.Leonov,Lima Perú
+H."Savoy"525

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_22527.png
+
+Convert to MarkdownSECRET-EYES ONLY
+
+bearing the code name "Operation Lancet." It was basically a proposal for a course of political action reinforced by the threat of being backed by muscle. The operation was to begin with the arrival of a "special U.S. confidential envoy" who would tell Trujillo to leave the country. "He tells it plainly and decisively; he will give him 12 or 18 hours to do it." It would be made clear that if Trujillo refused, a border incident would be contrived, which would be followed by "collective intervention." Assuming Trujillo's acceptance of the ultimatum, the plan then outlined steps for transition to an operating representative government. The army would be reduced in size. A caretaker government would prepare for free elections. Ambassador Farland forwarded the plan with these comments of his own to Rubottom:
+
+". . . this segment of the dissidents is psychologically conditioned to a point where it will take any step except the ultimate, and for the execution of the latter they expect United States assistance. . . . . .
+
+"Dick, I think the time has come for certain agencies of our Government, without attribution, to establish and implement a definite constructive program to influence the course of events in the Dominican Republic. My conversations with the Secretary and Allen Dulles emphasized the problems and the possibilities of this type of approach. . . . . ."
+
+30 March & 7 April 1960
+
+The Special Group considered actions that might be taken in the
+
+SECRET-EYES ONLY

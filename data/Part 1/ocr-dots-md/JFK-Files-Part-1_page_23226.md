@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_23226.png
+
+Convert to MarkdownSECRET
+
+11 April 1958
+
+MEMORANDUM FOR: Chief, FI/Staff
+
+SUBJECT: Arthur G. VAIVADA - Request for Promotion
+
+1. It is requested that Arthur G. Vaivada, a Career Agent, be promoted from GS-11 to grade GS-12 for his outstanding performance in carrying out a precarious mission in line with the objectives of Project AMPHODARCH, in which he is the Principal Agent.
+
+2. In early January 1958, Vaivada volunteered to undertake a mission to contact Cuban rebel leader Fidel Castro Ruz in the Sierra Maestra mountains in south-eastern Cuba. He arranged for his free passage into the Sierras through contacts within the 26 July Movement which he and the Station developed earlier. After the necessary arrangements, Vaivada left La Habana on 5 April 1958 for Santiago de Cuba, from where he left for the Sierras under the escort of rebel guides. In the course of approximately twenty days' stay at the mountain hideout of Castro's headquarters, during which time he was exposed to many hardships and great personal risks, he accompanied Castro and a force of about 200 rebels on their dawn attack on the town of Manzanillo on 26 March 1958. At Manzanillo, Vaivada broke off contact with the Cuban rebels and returned to his base in Habana.
+
+3. During his relatively short stay in the Sierra Maestra mountains, Vaivada was able to gather considerable intelligence and operational information of noteworthy value, together with an excellent photographic coverage of his trip.
+
+4. This exploit is another achievement to be added to the impressive past performances of Arthur G. Vaivada, who has always shown a deep devotion to his work and to the Agency.
+
+5. Vaivada was born on 20 June 1922, and has been with CIA since 1949. He has been a career agent since 1 June 1957, and was promoted to the grade of GS-11 on 1 June 1957. His tour of duty in Cuba was from August 1954 until 31 March 1958.
+
+J. C. KING
+Chief, Western Hemisphere Division
+
+SECRET!

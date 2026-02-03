@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_25880.png
+
+Convert to MarkdownHX-17
+
+17 July 1961
+
+MEMORANDUM FOR: Federal Bureau of Investigation
+SUBJECT: Berton Ferguson MITCHELL,
+William Hamilton MARTIN,
+Philippe - A.
+
+1. Reference is made to the following communications, which contain information pertinent to the new information reported in recoding paragraphs:
+
+a. Memorandum of 14 June 1961 from this Agency addressed to the National Security Agency, a copy of which was forwarded to your Bureau, captioned as above.
+
+b. Bureau letter of 28 June 1961, addressed to the Director, National Security Agency, with copy to this Agency, captioned: Berton Ferguson MITCHELL, William Hamilton MARTIN; MISCELLANEOUS - INFORMATION CONCERNING.
+
+c. Department of Immigration Name Check Request Form, File A-2, dated 28 June 1961 addressed to your Bureau with copy to this Agency, in the name of Justo SIERRA, born 12 July 1914, Mexico. D. F., who entered the United States at New Orleans, Louisiana, on 13 June 1961 with destination address of Mexican Embassy, Washington, D.C. (Not sent information address)
+
+d. Various earlier Department of Immigration Name Check Requests on Justo SIERRA covering his previous trips to this country. (Not to NSA)
+
+e. Our memorandum of 29 December 1960, addressed to your Bureau, our reference CSCI-2/769, 270 with enclosure. Subject: SIERRA, Justo; Visa - Mexican, and earlier communications forwarding name trace results on this individual. (Not to NSA)
+
+SECRET
+
+MEXICO CONTROL CTRRL

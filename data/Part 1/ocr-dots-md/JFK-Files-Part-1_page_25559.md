@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_25559.png
+
+Convert to MarkdownSECRET,
+
+(3) Over 20 years service, three months salary plus one month's pay for each full year of service.
+
+(4) All payments above are to be calculated at the rate of pay applicable at the time of retirement and/or resignation.
+
+3. As to the points raised by WH/Contracts in their Memorandum concerning this amendment we would like to note the following:
+
+A) GERENDE is a Mexican citizen, working for the Agency since 18 March 1955 under an MOC, who considers himself to be a "career" employee of the Agency, and whose initial local employment for cover purposes was largely notional under a system of "ghost payrolling". GERENDE received no income or benefits from this "cover" position which terminated due to the demise of the company on 31 December 1967. GERENDE's other "cover" is self generated in that he gives English lessons in his spare time to middle management Mexican nationals employed by American owned companies in Mexico City. His income benefits from this "cover" are minimal, but suffice for satisfying acquaintances as to the source of his income. In conclusion, GERENDE is considered by the Station to be a full time contract agent, on call at all times for operational activity. Any other local benefits which may accrue to him by the virtue of his being a Mexican citizen should not, we feel, be a concern of this Agency given the above circumstances of his employment with us.
+
+4. This Branch is of the belief that the resignation and/or retirement schedule outlined in paragraph 2, B above provides career benefits for GERENDE in the event that he must resign and/or retire in the event of unforeseen personal circumstances. It additionally rewards him for his loyalty of service, and at the same time provides him with incentive to remain in Agency service for the additional financial benefits that will accrue to him providing both future security and incentive.

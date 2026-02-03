@@ -1,0 +1,50 @@
+# JFK-Files-Part-1_page_24054.png
+
+Convert to MarkdownSECRET
+
+# Alkalna fosfataza: 5 K.J.
+
+SGPT=700 W.J.
+SE=12mm
+I=4.100
+DKS: 00 1, st 5, seg. 31, Ly 56, no 7
+E=4,140.000
+Hb: 86%
+I.B.=1,0
+Pe=242 gamma %
+Cu=150 - drop blood smaller
+Guna kapi - blood smaller malarija & melane
+Haymag kryt - malarija & melane
+
+Urin:alb.= +
+urebil. 1:32
+selement bil. ++
+sabb. -
+Sed: nešte I 1 sluzi - some I in service
+Sugar
+SG=93mg%
+
+14.VIII
+URIN: alb trag
+urab. 1:4
+element bil.0 small type z fella
+Sed: 3-4 L na SV.Yid.peliy
+
+19. 10.
+Serbia et
+
+* labir.
+
+* chnp.
+
+Thymol
+...
+Cep: 3.
+Alter 3
+Cleavage
+Weichman
+Cubilistet test
+
+SECRET
+
+THIS MATERIAL HAS BEEN ACQUIRED BY SENSITIVE SOURCE. IT IS NOT TO BE ROUTED OUTSIDE RECIPIENTS' DIVISION OF STAFF. DISSEMINATED RELATING TO THE FIELD, OR FROM THE BASIS FOR ANNUAL FELLOWSHIP FOLLOW-UP, WITHOUT PRIOR APPROVAL WITH A SA OF.

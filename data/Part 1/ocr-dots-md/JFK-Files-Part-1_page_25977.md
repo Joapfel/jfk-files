@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_25977.png
+
+Convert to MarkdownSECRET
+
+FILE NO. 300985
+
+NOTICE TO: DIVISION PERSONNEL REVIEWING THIS FILE
+
+Please complete the following steps:
+
+1. NAME OF REVIEWER (please print) NANCY L. DAVIS
+
+2. OFFICE DESIGNATION OF REVIEWER: WTH/3/LU
+
+3. DATE OF REVIEW 10 JULY 92
+
+4. Do you contemplate dissemination of information reviewed: NO
+
+☐ to field
+
+☐ to another US Government Agency (if so, to whom)
+
+The dissemination of any Office of Security investigative information, including FBI reports, must be coordinated with CI/OA and the Office of Security.
+
+5. Comments:
+
+DO NOT REMOVE THE ATTACHED FOLDER FROM CI/OA
+
+FORM 6-70 3230
+
+SECRET
+
+GROUP
+ATTACHMENT APPENDIX
+SUBMIT AS IS
+PROCEED IN ACCORDANCE WITH THE
+INSTRUCTION AND DIRECTIVE
+
+(13-21-90)

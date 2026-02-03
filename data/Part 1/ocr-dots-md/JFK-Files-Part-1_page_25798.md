@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_25798.png
+
+Convert to MarkdownSECRET
+
+LIJERSEY-2 is the LILYRIC Base operator. He is a Captain in the Mexican Army Reserve and is also employed by Colgate-Palmolive Peet Company as an industrial engineer. He receives a monthly salary of $1,000.00 (MN) and he and his wife live rent and utilities free in the LILYRIC Base.
+
+LIJERSEY-12 is the wife of LIJERSEY-2. She does most of the photographic and reporting work at the LILYRIC Base and has proven herself to be a capable and worthwhile asset. It has been necessary for her to become proficient in the LILYRIC work since her husband works at his regular job during the day. She receives a monthly salary of $800.00 (MN).
+
+(3) Communications - GERENDE contacts LIJERSEY-5 twice weekly at prearranged contact points during the late afternoon hours. LIJERSEY-5 contacts LIJERSEY-2 two to three times weekly at prearranged car contact points and receives the "take" from the LILYRIC Base. On occasion GERENDE has contacted LIJERSEY-2 directly, but this procedure is used only when LIJERSEY-5 is out of town or otherwise not available. GERENDE does not know LIJERSEY-12 or vice versa. No reserve system of communications exists whereby a Station officer could contact LIJERSEY-2 directly should the need arise; however, GERENDE has been instructed to set up such a system of communications. The same will be done with LIJERSEY-5, although he is known to several Station officers and little difficulty would be experienced in contacting him directly.
+
+(4) Security - The security of the LILYRIC Base appears, at least on paper, to be in better shape than the Limited or LICALLA Bases. Insofar as the Case Officer has been able to determine, the only indigenous agents aware of the LILYRIC Base are GERENDE, LIJERSEYS 2, 5 and 12, and LIPSTICKS 38 and 40, and all of these individuals have a close connection with the operation of the Base. The only tie-in the LILYRIC Base has with the LIPSTICK operations is through GERENDE.
+
+(5) Recommendations - GERENDE has been instructed to change his meeting plans with LIJERSEY-5 and to review the communications set-up between LIJERSEY-5 and LIJERSEY-2 (L-5 and L-2 are long-time friends and, consequently, the cover problem is minimized). A staggered schedule of coverage of the LIMERICK target between LILYRIC and LIMITED was initiated on 18 August 1958. Although the operators of these two bases are unaware of the existence of the other, a suitable cover story has been worked out to satisfy any
+
+SECRET

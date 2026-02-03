@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_25912.png
+
+Convert to Markdown# RANKING OTRO NIVEL
+
+## INDUCTIVO OTOPO PERSONAL (BASE TRAX)
+
+NUMERO 2731
+PELOTOM Y TEAM A
+FECHA DE NACIMIENTO 18 Abril 1941
+NATURAL Mariana-P del Rio y Sabana
+FECHA INTEORO EL GRUPO Sept 1950
+ESPECIALISTA Oficina.
+NOMBRE SUS SRS. PADRES Rolando y Vazquez
+NOMBRE SU SRA. ESPOSA No
+NOMBRE Y EDAD SUS HIJOS No
+
+AQUI SE CONDREN LAS VECES QUE HAI SIDO JUGADO
+
+OTROS OBSERVACIONES
+
+<table><tr><td>103</td><td>22 mar 77</td></tr><tr><td></td><td>02:40</td></tr><tr><td></td><td>600'77</td></tr></table>

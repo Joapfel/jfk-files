@@ -1,0 +1,106 @@
+# JFK-Files-Part-1_page_25661.png
+
+Convert to MarkdownSECRET 202245Z JAN 70 CITE BOGOTA 3483
+DIRECTOR, MEXICO CITY INFO: PANAMA CITY
+
+GICITRON TECHS
+
+1. STATION HAS LEARNED OF SPACE BEBENG AVAILABLE IN GIC, CITRON TARGET BUILDING WHICH SHOULD IMPROVE RECEPTION AND THEREFORE TAKE CONSIDERABLY. FOR VARIETY REASONS BELIEVE ERROL R. LYTHGOE (FOR MEXI: FORMERLY LITAIN-T) SHOULD RENT AND SERVICE AND TOLD HIM TO FORM A COMPANY WHICH COULD PROVIDE COVER FOR THIS. HE SAID HE HAD ALREADY FORMED ONE FOR TAX PURPOSES IN CONJUNCTION WITH MANUEL MACHADO LLOSA, CUBAN MANAGER FOR COLOMBIA OF GALAS Y CIA., MEXICAN-HEADQUARTERED PRINTING FIRM. MACHADO IS LONG-TIME FRIEND OF LYTHGOE WHO PERFORMED OPS TASKS FOR RVROCK IN MEXICO AND IS AWARE OF LYTHGOE'S OPERATIONAL HISTORY.
+
+2. IF THERE NO DATA HEADQUARTERS OF MEXICO WHICH MILITATES AGAINST USING MACHADO OPERATIONALLY REQUEST HEADQUARTERS OBTAIN CLEARANCE OF PRIORITY BASIS TO PROVIDE COVER FOR LYTHGOE'S BUSINESS AND FUNDS. ALTHOUGH HE NOTWTO BE INVOLVED DIRECTLY IN OPERATING IT MUST BE EXPECTED THAT,
+
+US COPY
+SECRET
+
+<table>
+   <tr>
+    <td>AN</td>
+    <td>DCC</td>
+   </tr>
+   <tr>
+    <td>A3</td>
+    <td>F</td>
+   </tr>
+   <tr>
+    <td>-</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>Eg</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>BX</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>Des</td>
+    <td>T</td>
+   </tr>
+   <tr>
+    <td>F1</td>
+    <td></td>
+   </tr>
+  </table>
+
+20 JAN 40
+
+20 JAH IM010310
+
+201-267298
+
+20 JAN 40
+
+1400600
+
+WH/3/0
+
+PERSONNEL NOTIFIED
+
+SECRET
+
+ group 1
+
+(Son Filled in)
+
+FILE, VR
+
+AN CLOPS CIRA F12 TSD6 CCS2
+
+SECRET I 202245Z JAN 70 CITE BOGOTA 3483
+DIRECTOR, MEXICO CITY INFO: PANAMA CITY
+
+20 JAN IM010310
+
+GICITRON TECHS
+
+<table>
+   <tr>
+    <td>AN</td>
+    <td>DCC</td>
+   </tr>
+   <tr>
+    <td>A3</td>
+    <td>F</td>
+   </tr>
+   <tr>
+    <td>-</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>Eg</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>BX</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>Des</td>
+    <td>T</td>
+   </tr>
+   <tr>
+    <td>F1</td>
+    <td></td>
+   </tr>
+  </table>

@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_25584.png
+
+Convert to MarkdownAs reported in reference, (HOMA 32721, 7 Aug 67) GERENDE had been developing a possible access agent to LIRING. This eventually culminated in an attempted recruitment of the prospect by GERENDE. Although the attempt was unsuccessful, GERENDE exhibited considerable resourcefulness and operational skill in developing the target to a point where the recruitment attempt was possible. We plan to use GERENDE in similar roles in the future as opportunities arise, and for this reason we plan to document him with a set of false Mexican documentation. GERENDE is collecting exemplars and getting the background information needed and once the necessary data are assembled, headquarters
+
+(WOACRE) support will be requested.
+
+HIMMA 33459, 8 Nov 67
+LIEMPTY progress rpt,
+1 Aug thru 31 Oct 67

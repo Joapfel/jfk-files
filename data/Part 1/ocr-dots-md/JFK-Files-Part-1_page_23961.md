@@ -1,0 +1,56 @@
+# JFK-Files-Part-1_page_23961.png
+
+Convert to MarkdownHe never did anything else. Just a student, he has graduated
+now. I think he is working in the government somewhere.
+
+(Did he get paid)
+
+No- oh yes, he did, he got a commission on subscriptions. He got 30
+some subscriptions from students at the university, in one week as I recall,
+which was unheard of. Just a student, and just be sheer chance he handled
+the magazine.
+
+(Mme. Michele Mestre)
+
+Oh, My, Michele Mestre! ~ ~ ~ Madame Mestre I don't know
+anything about. Michel Mestre is one of Caspero's people. I thought it
+was a man. I've never met him, don't know anything about him. I know
+there is a Michel Mestre who has written a number of books on the Congo-
+for Caspero. Had nothing to do with Verges although Verges did put out
+feelers to get this person, man or woman, to work for Revolution.
+He wasn't successful. It was part of his general campaign of leaving
+Maspero with no authors at all.
+
+(Rosalind Ainslie)
+
+She's married. She works for the East German news agency APN. She is obviously connected with the South African Communist party. She is a member of the Congress Alliance in South Africa and she is married to an Indian.
+
+several
+
+She has some children and she lives here in London. She comes from a
+wealthy family in South Africa, I imagine. She was found by Patricia
+Magowan Pinheiro to work for Revolution. That flopped after a short
+period. They didn't know which way to go, to stick with the Algerians or
+stick with Verges. The business of the magazine being pro-Chinese by
+no means was obvious, nor even clear in Verges's mind. The magazine was
+pro-Chinese-for an awful long time, it wasn't a question of being pro-
+Chinese. Certainly not when I was hired. It was Algerian, that was all.
+
+(Americans attending subversive sabotage school in Prague)
+
+I never heard of a subversive sabotage school in Prague. The Americans
+(who were)
+that I have known going through Prague have gone to Havana.
+(Between Moscow and Havana en route)
+
+Yes. I don't know anything about a subversive sabotage school.
+I don't doubt that there might be one. I imagine there's one in Washington
+too.
+
+(I never heard of it. Either one)
+
+(Laughts)
+
+(Current addresses of some of these people)
+
+Well, who do you want? Now, has no address. He sleeps around

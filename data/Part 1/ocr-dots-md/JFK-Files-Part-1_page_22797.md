@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_22797.png
+
+Convert to Markdown14-0000
+
+ORIG : RICHARD F. GILLESPIE
+JUNIT : WH/4/PERSOHEL
+NEXT : 4031
+DATE : 8 SEPTEMBER 1961
+
+CLASSIFIED MESSAGE
+
+<table><tr><td></td><th>Routing</th></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+TO : JGWAVE
+
+FROM : DIRECTOR
+
+CONF : BELL 10
+
+INFO : WH 5, S/C 2
+
+| | |
+|:---|:---|
+| **CITE DIR** | **OUT95185** |
+| **SIC CEN** | |
+| **DEFERRED** | |
+| **XX ROUTINE** | |
+
+10966
+
+TO : WAVE INFO : JMZIP ADMIN
+
+~~GILL~~ WILL BE ASSIGNED WAVE PCS. IF NECESSARY RETURN HOS FOR PROCESSING HE SHOULD BE SCHEDULED WITH STAFFERS.
+
+END OF MESSAGE
+
+C/WK/4/SUPPORT: Fred Z. Crozier
+W/E/4/PA-PROP: JSO
+C/MB/SUPPORT:
+
+F.J. C. KING
+C/WHD
+RELEASING OFFICE
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+R. K. DAVIS
+C/WH/4
+AUTHENTICATING OFFICER
+
+I REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

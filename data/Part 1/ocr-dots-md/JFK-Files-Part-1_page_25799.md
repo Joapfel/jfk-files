@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_25799.png
+
+Convert to Markdown# SECRET
+
+curiosity that LIPSTICK-14 and LIJERSEYS-2 and 12 may have. This
+procedure is believed desirable due to the confining nature of the
+photographic tasks and the lack of additional personnel to assist
+at each of the bases. Also, this staggered schedule of coverage
+should reduce some of the duplication presently coming in from
+the two bases.
+
+c. LICALLA
+
+(1) Target - Stationary photograp hic surveillance of persons
+and activities in the garden area of the LIMERICK installation,
+
+(2) Personnel - LIPSTICK-39, his wife and three small children
+live at the LICALLA Base. He is an accountant for a local
+bus line and works at his cover job in the evenings. LIPSTICK-39
+does an excellent and conscientious job of photographic coverage
+at the LICALLA Base. In addition to the photos he takes, he
+writes a narrative description of the events which take place
+in the target's garden area. He receives a monthly salary of
+$2,000.00 (MN) and free rent at the LICALLA Base.
+
+(3) Communications - GERENDE meets LIPSTICK-39 twice weekly, usually on Tuesdays and Thursdays. They have four contact points, one of which is selected at each meeting for use for the next meeting. In the event that contact is not established, GERENDE has the initiative in contacting LIPSTICK-39 by phoning him at the bus line office during the evenings. Then, by prearranged open code, a meeting site and time are agreed on. Since Oliver G. SCANTLING is also acquainted with LIPSTICK-39, it would be possible to contact him through SCANTLING should something happen to GERENDE. However, to facilitate proper and secure communications procedures, GERENDE has been directed to establish a reserve system of communications with Lipstick-39, using the customary oral and physical bonafides.
+
+(4) Security - The most serious security problem concerning LICALLA is the fact that LIPSTICK-39 is the brother of LIPSTICK-47 (the first agent arrested by the local police agency during the recent LIPSTICKflap). Although it is generally believed by Station officers that LIPSTICK-39's name was not mentioned by LIPSTICK-47 nor that any indication was given concerning LIPSTICK-39's job, it must be understood that should the local police agency decide later to interrogate LIPSTICK-47, the probability exists of compromising LIPSTICK-39 and LICALLA. The Station sees no way to overcome this possibility.
+
+SECRET

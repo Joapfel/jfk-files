@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_23016.png
+
+Convert to MarkdownSECRET
+
+## Operational Areas Exposed
+
+YUMA
+CUSPIDOR
+ROOT
+CUDGEL
+ALICE
+ENOCH
+JEANINE
+ESSAYONS
+IDA
+ZORRO
+BOWSER
+CAUTION
+CLOAK
+CANE
+GLADYS
+PYRO
+CUBIC
+
+DINGLE
+JASON
+PRY
+HUBBARD
+SNOOP
+
+## Loading Sites and Vessels Exposed
+
+Naples
+Safesite 184
+
+M/V PETREL
+M/V EXPLORER II
+M/V ROINA
+O/V GULL
+O/V SPRAY
+O/V SATURN
+
+And Crews
+
+AIRCRAFT: PBY
+
+## Internal Assets Exposed
+
+None.
+
+SECRET.

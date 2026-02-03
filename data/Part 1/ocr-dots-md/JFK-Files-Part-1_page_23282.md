@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_23282.png
+
+Convert to MarkdownSECRET
+
+La Habana, Cuba
+
+June 10, 1957
+
+Memo on Cover Status - Arthur G. Vaivada
+
+1. Enclosed herewith is the outline of an idea in keeping with the nature of this notional cover plan of a temporary nature. Careful consideration has been given to a number of ideas, all of which were rejected because possible local conflicts. This idea is still general enough (and I hope convincing) to leave opportunity for changes and/or improvement at Headquarters. The idea, and the terminology, was gleaned from the pages of "Investment in Cuba", a July 1956 study published by the U.S. Department of Commerce.
+
+2. As I understand this cover arrangement, the PSI should mail me a directive somewhat along the lines of the enclosed information. This should "hold us" for a couple of months, with possibly some queries from me occasionally. Then when our operational picture requires investigation in some particular field, PSI can be notified through the Station to request a survey or poll in that field.
+
+3. On the basis of the enclosed "directive" (plus stationary and allied materials) I can consult a local lawyer as to the registration of this "Agency" and then advise PSI as to the legal requirement.
+
+Arthur G. Vaivada
+
+SECRET

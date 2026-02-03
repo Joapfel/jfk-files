@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_25266.png
+
+Convert to MarkdownSECRET
+
+HD:2178
+Page 5
+
+3. Office of the Indonesian Republic. On 1 October the Soviet Embassy was informed that the Indonesian Charge d'affaires would not be able to attend (the Reception for Cessation) that day because of illness. The following day the secretary of the Indonesian Charge contacted the Soviet Embassy concerning the premiere of some Indonesian dancers on 21 October, indicating that she would send invitations to the Ambassador, Ambassador, and First Secretary Victor N. KOLOV. She also expressed an interest in learning Russian and was directed to contact the ICERL. On 26 October the Indonesian Charge and Bess Effendi were invited to lunch by the Soviet Ambassador.
+
+4. French Embassy. The Guillaume de Laffitte-ICOT, wife of the French Ambassador in Mexico, attended a dinner and showing of two films at the Soviet Embassy on 29 October. Meanwhile with the Soviets came contacted the French embassy and asked someone there to inform Mrs. ROSARIELLO DIAZ of a charge of a meeting time at the hotel after the following morning.
+
+5. Yungslay Embassy. The Soviet Ambassador invited Mirko Vuletić, first Secretary of the Yungslay Embassy, and (Mr.) B. Li (pn), new Charge d'affaires, and their wives to dinner on 29 October at 11.30 p.m.
+
+6. Israeli location. On 21 October the Minister of the Israeli legation received the Soviet Ambassador at the Chancellery, Alejandro Aueras 231, Mexico, P.P. Yadmor H. KOLOV of the Soviet Embassy had attempted to make an appointment for KULAZHANOV with the Minister earlier in the month, but the latter had been on a trip to Panama, El Salvador, and Guatemala.
+
+III. ACTIVITIES OF THE MIAMI.
+
+4. Nikolay Ivanovich MOSCHIN, employee in the office of the Soviet Naval Attache, contacted Enrique MiguelÁinz Holt, Acting G-2 of the Mexican Navy, on 3 October and said he had received a letter stating that the Secretary of the Navy could not attend a reception by the Ambassador to be held sometime between 5 and 10 October. MOSCHIN wanted to know if the other officers could attend, or whether they should wait until the Secretary could come also. MOSCHIN suggested that perhaps the Secretary could come sometime after 10 October, but Manuel indicated that he was not sure, because the Secretary was often out of town on inspection tours. ALEJANDRO CONSUL, consulted with Commandante Carlos Ojeda and said they would let MOSCHIN know later about the date and whether the officers' would attend. MOSCHIN said they would be gold to give a reception to the Secretary on any date he chose. (Comment: As usual, Mino did not seem particularly enthusiastic in his dealings with MOSCHIN.)
+
+SEC...: 50-4-1-3/3

@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_24586.png
+
+Convert to Markdown12 February 1957 attended a meeting of the Bureau of the PGT in Mexico at the home of Manuel SANCHEZ. SANCHEZ discussed the regulations governing the WPG as proposed by the Partido Accion Revolucionario Unificado (PARU) (7).
+
+14 February 1957 attended a meeting of the Bureau of the PGT in Mexico which was held at the home of Manuel SANCHEZ (7).
+
+21 February 1957 attended a meeting of the Bureau of the PGT in Mexico which was held at the home of Jose Manuel FORTUNY (7).
+
+April 1957. in Guatemala, he replaced Carlos Rene VALLE y Valle, PGT member, who was then ill (7).
+
+carried eighty dollars; from Mexico to Guatemala. The funds had been sent to Mexico by the Guatemalan exiles in Costa Rica (7).
+
+16 April 1957 was to enter Guatemala to carry out clandestine work for the PGT there according to a letter that Alfredo GUERRA Borges received from Mario SILVA Jonama (7).
+
+31 May 1957 signed a petition dated 31 May 1957 which was prepared by the members of the WPG for the Consul General of Guatemala in Mexico to request the restoration of his passport and permission to return to Guatemala (23).
+
+14 February 1958 his wife was living at the home of Concha Galicia. GALICIA's home served as one of the principal means of communications between Guatemala and Mexico (7).
+
+June 1959 traveled to Czechoslovakia to work on the publication, Problemas de la Paz y del Socialismo (10).
+
+18 February 1961 was director of El Militante, internal organizational bulletin of the PGT (10).
+
+7 September 1961 attended a meeting with members of the Departmental Committee of the PGT in a home located at 5 Avenida 5-42, Zone 7, Guatemala City (13).
+
+21 September 1961 attended a meeting of the Departmental Committee and delivered a lecture on the foundation, growth and strengthening of the Party (13).
+
+October 1961 was to attend the CPSU Congress.¹ He was making plans in early September and was to serve as one of the two Guatemalan delegates (10).
+
+7 December 1961 attended the WFTU Conference in Moscow (7, 13).

@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_25274.png
+
+Convert to MarkdownFIELD INFORMATION REPORT
+
+COUNTRY: Mexico
+SUBJECT: Activities of the Soviet Embassy, Mexico City, September 1956.
+REPORT NO.: 23M-2038
+DATE OF INFO: 1-30 Sept. 1956
+DATE ACQUIRED: 1-30 Sept. 1956
+PLACE ACQUIRED: Mexico City
+DATE OF REPORT: 7 November 1956
+
+SOURCE, SOURCE EVALUATION, APPRAISAL OF CONTENT: Source having access to Soviet diplomatic circles in Mexico (S). Appraisal of Content: Documentary.
+
+# SOVIET FOREIGN ACTIVITIES IN MEXICO:
+
+The following information on the activities of the Soviet Embassy in Mexico was developed during September 1956. Information on Soviet commercial activities is detailed in a separate commercial report.
+
+## DIPLOMATIC:
+
+### Relations with Mexican Government:
+
+1. On 11 September Jose Nunez Zapata-of-the Mexican Foreign Ministry invited Soviet Ambassador Anatoliy Georgiyevich CIEV to a luncheon to be held on 12 September in honor of Jose F. Pujarals, President of Costa Rica, visiting in Mexico, boris Aleksandrovich Kozlovsky, First Secretary, informed (fm) CARRION andrade of the Protocol Division that he would accept the invitation to the luncheon for PUDRAS, but that he would attend alone as his wife was in Moscow.
+
+2. On 12 September Rafael FUSONI, formerly of the local United Nations Office of Information, thanked Mikhail Prolovich CHERKASOV for the use of the typewriter, and asked what the Russian delegates had thought of the Geology Congress. CHERKASOV indicated that they thought it "significant." FUSONI also informed CHERKASOV that on Friday evening, 14 September at 8:00 p.m., a small dinner was being held at his home for an engineer named Eduardo GRANÓN of Penex, (fm) GARCIA Rojas, and some other engineers who helped organize the Congress, and that he would like to invite CHERKASOV and the man who accompanied him the last time, CHERKASOV indicated that he and Vitaliy Aleksandrovich CHERKASOV, First Secretary, would be pleased to attend. SC-4-1, 51-58
+
+FOREword, LNOV 33 51-58 PREVIOUS EDITIONS MAY BE USED.

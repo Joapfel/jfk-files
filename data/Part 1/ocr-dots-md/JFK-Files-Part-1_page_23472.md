@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_23472.png
+
+Convert to MarkdownHKHA-778
+
+4. During the month of August the following expenses for VAIYADA are anticipated in addition to the $250.00 monthly normally incurred by RIKON under Project AMPHODARCH:
+
+| | |
+| :--- | ---: |
+| Compensation (GS-9) | $ 121.67 |
+| Allowances (post differential) | 137.50 |
+| Travel in Cuba | 25.00 |
+| Operational expenses | 83.34 |
+| Transfer allowance | 150.00 |
+| Living quarters | 150.00 |
+| Transportation for VAIVADA and family to Cuba | 340.23 |
+| **TOTAL** | **£1,307.74** |
+
+5. It is anticipated that the breakdown of annual expenses for Project AMPHODARCH will be as follows:
+
+| | |
+| :--- | ---: |
+| Compensation (GS-9) | $ 5,060.00 |
+| Allowances (post differential) | 1,630.00 |
+| Travel in Cuba | 300.00 |
+| Operational Expenses | 1,000.00 |
+| Living quarters | 1,800.00 |
+| Transfer allowance<br>(August 1954 only) | 150.00 |
+| Transportation for VAIVADA and<br>family (August 1954 only) | 340.23 |
+| Tuition, books, and related expenses<br>(September 1954 only) | 300.00 |
+| **Total** | **£10,600.23** |
+
+The Mission is encouraged to make its own comments on the above expenses.
+
+6. On 28 July 1954 VAIVADA left here for Gainesville, Florida, for a discussion with Henry C. Zbdoner. After obtaining his visa, VAIVADA was to leave Miami for Habana on 31 July. Upon arrival, he would register at the Packard Hotel and would stay there for a few days while looking for more permanent quarters. He was to be contacted by telephone the first time. At this time the Case Officer would use the one-time pseudonym of Sydney Stevens.
+
+7. The Medical Office at Headquarters has found VAIVADA physically qualified for full duties.
+
+8. Project AMPHODARCH is up for renewal on 1 September 1954. The Headquarter's desk plans to have the period covered by the project correspond to that of

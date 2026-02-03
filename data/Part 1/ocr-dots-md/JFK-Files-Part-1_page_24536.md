@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_24536.png
+
+Convert to MarkdownRusia, Venezuela a las guías de Colombia y Venezuela
+
+CARACAS — (P)— Hay su- flecientes pruebas de que el pa- triotista Mario Renato Mená- dez Rodríguez, ex-Director de la revista "Sucesos", y de su nueva publicación subversiva "(Por qué)", se entrevistó con agentes roviéticos y recibió los 50.000 dólares de que ha infor- mado la prensa internacional, dirigidos a las guías de Colombia y Venezuela.
+
+Méndez Rodríguez, quien una vez más burló a la policía venezuelana, es activamente so- litoado en Colombia, adonde le got después de su entrevista con el jefe guerillero de Vene- zuela Douglas Bravo. Dos años antes el mismo Méndez vidi to Colombia, y puso a Venezuela la deidad igualmente cumplió una misión de ayuda economi- ca de la Unión Soviética a los grupos en armas en ese país. Ahora se sabe de acuerdo con elementares probatorits a la ma- no que una tercera misión se- ra dirigida a territorio venzo- lano, después de la forta presi- dencial del doctor Rafael Cal-dera.
+
+Los 50.000 dólares... Se ha- bía informado que los 50.000 dólares llevados por el mejicar- no a los dos países en cuestión estaban destinados al jefe de bandoleros colombianos "Tiro Fijo", pero documentación pos- terior prueba que la suma en- regada esta vez por la Unión Soviética se aproxima a los ... 200.000 dólares, parte de los cuales corresponde a los gru- pos en armas en Venezuela.
+
+Otro agente comunista, el co- mblanó Felicio Pachón Cho contá, había viajado a Bogotá llevando 100.000 dólares, de ... 150.000 que había recibido aquí en México y de los cuales entregó 60.000 a un vendedor de ar- mas clonестinas en Panamá. Chocontá fue detenido en el aeropuerto internacional de "El Dorado", y la policía lo incau
+
+tó les 100.000 dólares. La su- ma le había sido entregada por un miembro de la Embajada, de la Unión Soviética.
+
+Dinero de "unidad comuni- ta".— Las actividades de las Embajadas de la Unión Sovié- tica en México y Colombia, es- pecialmente en cuanto a Me- néndez Rodríguez se refiere, confirman la gran influencia de que Rusia y Castro marchaban "separados" en cuanto a la sub- versión armada, mostrando al dictador de Cuba como el gran jefe sedicioso e intervenicionis- ta y a la Unión Soviética co- mo la gran potencia contraria a los piccaniniacos de Castro.
+
+El dinero que viene suminis- trado Mosqu con fines criminal- es contra las naciones de América Latina especialmente contra Venezuela y Colombia desechar el velo y muestra q' la "unidad comunitaria" entre Rusia y Castro en materia de subversión es tan clara como la impunidad de que vienen go- zando las misiones diplomáticas
+
+sovietes, en Bogotá y México.
+
+Se considera igual que la ex- tension de las relaciones de la Unión Soviética a Venezuela significa que Méne ndez Rodríguez y sus cómplices de stear se una embajada rusa en Cara- cas no tendrán que violar un largo trocho sino que, desde la propia capital venezolana, flui- ran los fondos para grupos que rutillos de los dos pares.
+
+Por ahora, está "reprobada" y lista la tercera misión "eco- nómica" hacia el país venezolano. En cuanto al desempeño dado por las autoridades poli- ciales de Colombia sobre lo ac- tuado por Méndez Rodríguez en ese país, se sabe aquí que se trata de instrucciones paralí- das por la Presidencia de la República a fin de indemnizar la importancia de las actividades subversivas, por el hecho de que en Bogotá existe una misión de la Unión Soviética respecto de la cual la prensa colombiana ha hecho críticas al gobierno de L

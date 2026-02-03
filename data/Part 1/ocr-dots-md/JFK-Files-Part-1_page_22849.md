@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_22849.png
+
+Convert to Markdown2. Sheila Greenberg invoked the Fifth Amendment against self-incrimination when she was asked if she was a Communist by the House Committee on Un-American Activities, on 21 November 1957. (New York Times, 22 November 1957)
+
+3. Mr O'Connell, a member of the group, told the following story about the subject: ...; definitely pro-Communist." DFB-
+97144, 23 January 1958.
+
+SECRET
+
+GREENBERG, Sheila
+
+SECRET

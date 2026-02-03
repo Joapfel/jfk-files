@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_25273.png
+
+Convert to MarkdownAPERTURE CARD REPRODUCTIONS
+
+SECRET
+
+Mexico City:
+
+Report No.: 20-359
+
+File No.:
+
+Page: 17
+
+No. of Enclosures: None
+
+Approved By: Willard C. Outlaw
+
+Distribution: 4 - Hgo (1 K.V.R.P. 1 S2 Div.) Orally to:
+
+By copy to:
+2 - Files
+
+Source Cryptology: LIFZAT/LINTERICK References:
+
+Source, Operational Data, and Comments:
+
+SUBJECT: Activities of the Soviet Embassy, Mexico City, September 1956
+
+INDEX卡
+
+CHARGED FROM R.E.W.
+CHARGED FOR REFERENCE
+CHARGED FROM NEW YORK
+INDEX
+
+Index Card Application
+
+SECRET
+
+SOURCE NO.: CHG 1 OF 2
+COPY NO.: CHG 2 OF 2
+
+50-4-1
+
+201-132139
+
+APERTURE CARD REPRODUCTIONS

@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_26255.png
+
+Convert to MarkdownTranslation of letter of introduction to Rico Galan
+
+12 January 1967
+
+Dear Sir:
+
+Permit me to introduce myself; Luigi De Marchi, an Italian writer for the periodical "CORRISPONDENZA SOCIALISTA" of Rome.
+
+In brief, I am on a tour of Latin America. A friend of yours and a fellow-journalist acquaintance of mine, Carlo Coccioli, whom I saw in Rome in December before he left for Paris and I left for Latin America, mentioned your name to me and asked me to pay you a visit. Here I am. I would also like to take advantage of this visit to have an exchange of views with you.
+
+I beg you to have the kindness to give me a little of your time.
+
+Respectfully,
+Luigi De Marchi

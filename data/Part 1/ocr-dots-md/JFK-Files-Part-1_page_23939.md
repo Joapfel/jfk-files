@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_23939.png
+
+Convert to Markdownconcentration camps where they were held putting out secret clandestine tracts supporting Hasser, which was the craziest thing I've ever heard. Because how they've been liberated in fact the old Communists are now being given very high organizational posts in the new Egyptian Party, and
+
+Communism, Marxism is extraneous to Arab socialism but they very uselesful people so are they in there. And the group that are under Soviet influence are perfectly willing to go along with this,
+
+2 (Is he pro-anything in Egypt)
+
+No, I think that he is sort of resigned to the events of history. He analyzes what he considers state capitalist developments, the rise of a new bureaucratic middle class, the officer class and he tries to show in his writings how the officer class has crushed the old land-owning Vafdist ruling class which had its links with British and French financial interests, and has now consolidated itself in power, and there is a certain social mobility, but for them only. In other words, how limited it is and the officer caste certain of its functionaries - but still the problem of the masses remains.
+
+(Does he concern himself very much with the state of Egypt?)
+
+From an academic point of view only. He's more academic. He's not even particularly concerned with revolution. If you want his address . . not here.
+
+Now who do we have - Marcos Ferrer - that's Colombia. I don't know anything about it. It probably stands for Dr. Leiva Semper of the MOAC in Paris. He is a Colombian doctor, the representative in Paris of the MOAC. He is the one who conducted negotiations with Verges for a Spanish edition in Colombia. I assume Marcos Ferrer [illegible] to be a pseudonym.
+
+Ermida Freire
+
+Ermida Freire, next on the list, is a member of the Indian Congress for South Africa. She was a correspondent of Revolution in Dar es Salaam and she published a magazine called Spearhead until she was expelled from Tanganyika under a cloud and accused of being a Western spy. The accusations were not made openly. She was known to have contacts with the Western West German Embassy. She received West German money from the Carl Ebert Foundation and actually printed West German propaganda in the her magazine.
+
+She had gone to West Germany and done this so obviously that she couldn't have been very sophisticated about it because it was just too (open)...
+
+. . She was accused of having told the Soviet Embassy of having offered to carry information for the Soviet Embassy, volunteering as a Communist, a South African Communist, to give them information, two-thirds of which turned out to be totally useless and false, which again might have been to ingratiate herself. -1- The works She was here in London after she was

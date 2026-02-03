@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_25054.png
+
+Convert to MarkdownSECRET
+
+b. According to a report dated 16 March 1962 from a reliable source, Subject participated in a Soviet effort to cultivate an American Embassy employee.
+
+c. A report dated October 1962 from a reliable source indicated that Subject was believed to be a KGB officer because of his position in the Coastal office where most of the personnel were connected with the F.C.E., Subject had been known to attend meetings in place of other identified KGB officers.
+
+d. According to a report dated 20 December 1965 from other reliable sources, Subject KOSTIKOV had apparently taken over as the case officer for one Margarita LNU, an agent of the Soviets who was formerly handled by First Secretary Victor Nikohevich GLOTOV. GLOTOV was suspected by reliable sources to be the KGB Resident in Mexico City. Subject also had VALERI V. KOSTIKOV had considerable contact with Ivan Cavrilovich ALFERYEV, the Pravda correspondent and suspect KGB officer with whom Subject KOSTIKOV traveled to Tijuana, Mexico, on 1 September 1967. Subject frequently escorted diplomatic PEC TA456 couriers to and from the airport, a function REPLY ON primarily of the consular section officers KOSTIKOV and, as far as was known, strictly a KGB responsibility. This same report identified Subject (201-305) as the CQP SENT TO DEPT. OF STATE all of Subject's close friends as KGB officers.
+
+3. In a report dated 14 May 1965, a reliable source, in an attempt to analyze the KGB Residentura in Mexico City, Mexico, stated that Subject was probably a KGB officer.
+
+4. According to reports dated 22 December and 27 June 1967 from reliable sources, when Subject came to Mexico he replaced a suspect KGB officer. When he left Mexico, he was replaced by an identified KGB officer.
+
+4. For further information concerning Subject, you are referred to the Federal Bureau of Investigation,
+
+C8CI-316/03145-69
+
+Encl. I name check
+
+CC: Federal Bureau of Investigation
+with copy of same check
+
+<table><tr><td>CSSI 1</td></tr><tr><td>FEDERAL BUREAU<br/>of Investigation<br/><u>&nbsp;&nbsp;&nbsp;REDACTED&nbsp;&nbsp;&nbsp;</u><br/>CUIRAN, ROBERT</td></tr></table>

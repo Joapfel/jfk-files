@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_24372.png
+
+Convert to MarkdownSECRET
+
+QUARTERLY REPORT
+
+STATION/BASE : LCP/IPIT (London)
+PROJECT : U.K. SECRET
+AGENT'S CRYPT : QRPHONE/1
+DATE OF FOM/ON: 20 MAY 1970
+PERIOD COVERED : 1 October-31 December 1969
+COSTS : £5,000
+CASE OFFICER TIME: 12 working days per month
+(average)
+
+(See OPRA - 2227)
+
+1. SUMMARY OF OPERATIONAL DEVELOPMENTS DURING THE QUARTER: During the quarter an effort has been made to target QRPHONE/1 on the activities of the Palestinian liberation groups and their European supporters. A goal start has been made in this effort. QRPHONE/1 undertook . "reconcilation" of those European leftist groups active on this issue. This in turn led to his being invited to attend the Congress of Palestinian Solidarity Committees which was held in Algiers in late December. (see LCP/IPIT 7667).
+
+In early November QRPHONE/1 made a brief visit to Paris to re-contract certain of his radical contacts there. (See OPRA - 2229). He likewise made a visit to The Netherlands in mid-December.
+
+In October QRPHONE/1 made another extended visit to France in order to "take the temperature" of the radical left. The reporting from this visit was forwarded to Headquarters and Rom in OPRA - 2113 and OPRI - 2173. This visit was deemed to have been useful by Home Station which indicated that another such visit be scheduled for February 1970.
+
+A visit to Nairobi by QRPRANK in late December may offer an opportunity for an added assessment of her - something which has been sought for some time.
+
+QRPHONE/1 continues his cultivation of various African personalities in London who are of operational interest. So. OPRA - 2247 for a discussion of QRPHONE/1's relations with Dennis Phombe II and OPRI - 8197 for a discussion of his relations with Genevieve Kari... .
+
+2. SPECIFIC MATTERS OF OPERATIONAL SECURITY: As part of the Special Branch operations in connection with the Palestine issue - the Special Branch of the Security Problems. The decision was taken to tell the Special Branch in order to end the police in Control Room (addendum), but LONDON 8082, DIRECTOR 900343 and so on. etc. etc. 
+
+The suspension of activity by QRPHONE has been lifted. For a new cover to be found for QRPHONE/1. Although the name will change our status in use for one or two more months, a new cover will be needed. We must continue to work with all deliberate speed. One suggestion in this and in future is an UNGM 7003. It is our understanding that Headquarters i. Aerialiry P. and possibly others. Meanwhile QRPHONE/1 has been instructed to proceed as "Ungroup" as usual" image. He should be able to do so with no adverse effect on his cover. 
+
+3. ESTIMATE OF AGENT'S CONTINGENT DEGREE OF ACCOUNTABLE TO THE Boss: ORIGINALLY, he Access remains substantially unchanged - With a possible improvement in access to the Palestinian target due to his absence at the meeting. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .

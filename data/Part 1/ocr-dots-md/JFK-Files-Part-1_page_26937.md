@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_26937.png
+
+Convert to Markdown14-0000
+
+AD5771st
+
+ARTICLE A. BAYARD
+
+1175 Park Avenue
+New York City, New York.
+
+B:31983,
+Subject is President of:
+40277116 - M. L. Bayard Company, Inc., 'Philadelphia, Penns.
+
+4.54

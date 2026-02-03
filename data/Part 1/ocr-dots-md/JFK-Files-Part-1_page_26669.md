@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_26669.png
+
+Convert to MarkdownTRIGUEROS Y GINARD
+
+AGENTES EN GENERAL
+
+Isabel LA CATOLICA, 33
+DESPACHO 298
+México. D. F.
+
+LA RACION SOCIAL "TRIUGUEROS Y GINARD"
+con cédula de Empleo n° 10027.
+
+Certifican
+
+que el Sr. Víctor Álvaro González, tra-
+ba la como comisionado en esta Caja, siendo su
+incremo monuimenf de 100.000 pesos.
+no que hincemos constar a petición del
+interando.
+
+México D. F. 30 de Junio de 1940.
+
+TRIUGUEROS Y GINARD.

@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_22787.png
+
+Convert to MarkdownSECRET,
+
+1 December 1961
+
+MEMORANDUM FOR: Chief, Investigative Division
+Attn: Chief, SED, Office of Security
+
+SUBJECT : Harold R. NORMAYR
+8-9546
+#112569
+
+1. Effective 1 January 1962, Harold R. NORMAYR, Career Agent, will be transferred to WH/4/Personal, ext. 8350. He was transferred PCS to WAVE on 20 October 1961.
+
+2. He will be paid out of their funds. The LIEDGE Project is being terminated.
+
+NED P. HOLMAN
+C/WH/3
+
+Distribution:
+
+Orig. & 1/- Addressee
+✓1 - NOEMAYR 201/Clearances
+1 - Outgoing memo chrono
+
+SECRET
+
+201-16881

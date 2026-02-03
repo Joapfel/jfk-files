@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_24898.png
+
+Convert to Markdown<table><tr><td>INDEX: [ ] YES [ ] NO</td></tr><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>X-REF TO FILE NO.</td></tr><tr><td>FILE ID ☐ RET. TO BRANCH ☐</td></tr><tr><td>DESTROY ☐ SIG.</td></tr><tr><td colspan="2">FROM Santo Domingo</td></tr><tr><td>ACTION WH8</td><td><input type="checkbox" checked disabled> RID COPY <input type="checkbox" disabled> ADVANCE COPY <input type="checkbox" disabled> ISSUED <input type="checkbox" disabled> SLotted <input type="checkbox" disabled> TURBED</td></tr><tr><td>INFO FILE 17 SODA CAR, CCS 3, CA/04, c/o LS, c/o RA</td><td>UNIT TIME BY</td></tr></table>
+
+9 MAY 66
+
+SECRET 100050Z
+
+PRIORITY MEXI INFO DIR CITE SDOM 0688
+
+REF: MEXI 7269(in 13342) *
+
+SUGGEST TICHSCRN PROCEED TO EMBAJADOR AND REGISTER.
+SHOULD CALL CHADEN OR PATAKER IF NO ROOM AVAILABLE.
+
+STATION WILL PROVIDE SAFE APARTMENT FOR TICHBORN PRIOR TO
+ARRIVAL OF CONGRESSMAN GONZALEZ (IF HE COMES) AND/OR
+OTHER PERSONS WHO MIGHT KNOW TICHBORN, BELIEVE STATION
+WILL BE AWARE OF ARRIVALS PRIOR TO FACT, INCLUDING NEWSMEN.
+
+SECRET * RE TICHBORN) DESIRE, NOT TO MEET
+OLD ACQUAINTHIUCES.
+
+CFN 2688 7269 TICHBORN EMBAJADOR CHADEN PATAKER NO ROOM
+GONZALEZ
+
+BT
+
+NNNH
+
+SECRET
+
+Tichborn
+
+201-253203 K

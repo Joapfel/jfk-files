@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_23745.png
+
+Convert to MarkdownINSIDE CUBA. AMCORE-2, AMRAZONR-1, AND AMSHADY-1 AGREE THAT DEMORALIZING
+
+EFFECT MENYO TV PERFORMANCE WORST AMONG OPPONENTS CASTRO REGIME
+INSIDE.
+
+SECRET
+
+CFN:
+
+SECREI
+
+*Reports on JMWAVE area publicity concerning captured exile Gutierrez Menoyo.

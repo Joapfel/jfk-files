@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_22850.png
+
+Convert to MarkdownSECRET
+
+American Student in China
+
+HAMILTON, Betty
+C I T - O . S . A
+Residence = New York
+Passport No. 184522 issued 9/11/56
+
+File Check Results
+
+1. Shelby Tucker, the American that went to China and refused to give the Chinese his passport, stated that the subject was non-Communist and had also refused to surrender her passport at the Chinese frontier, but, succumbed to pressure in Peking. (State Dept. Incoming Telegram No. 513 dated 10 Sept 57, from Moscow)
+
+2. The following document pertains to the subject, however, efforts to locate the document have been unsuccessful: DFB-886031.
+
+3. Ben L'Connell, a member of the group, had the following to say about the subject: "...; described as a literal; sold on the Communist against during the time; believed most of the things he told; however, appeared that she would never actually work for the Communism in the U.S.' OFB 97144, 23 January 1958.
+
+BETTY ANN HAMPTON
+8/24/56
+
+HAMILTON, Betty

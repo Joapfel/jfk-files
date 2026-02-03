@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_24026.png
+
+Convert to MarkdownCONTINUATION OF
+DISPATCH
+
+CLASSIFICATION
+S E C R E T
+
+DISPATCH SYMBOL AND NUMBER
+GFP A 77970
+
+7. UNBOUND reported that American Communists had allegedly given IDEN C documents showing IDEN A worked for KUBARK. One explanation of this allegation may lie in IDEN A's visit to the American Embassy, Paris, in late 1963, at the request of Mr. John G. GOSSETT, then Acting Consul General. GOSSETT was interested in any information he might have on possible connections between IDEN F, with which IDEN A had been connected, and President Kennedy's assassination. (A copy of GOSSETT's Memorandum of Conversation is attached under separate cover as Attachment 2; his appraisals of IDEN A and his reservations concerning his motives are interesting). IDEN A and GOSSETT had a far-ranging talk, including what may have been a tentative feeler by IDEN A for ODYOKE employment. It seems likely that IDEN A would have reported an American Embassy inquiry to his friends in IDEN F, and he may even have mentioned the possibility of future "work" for ODYOKE, which could have led to eventual allegations that he had been recruited by KUBARK. This is of course speculation, but IDEN A's flexible loyalties and liking for money are surely known to his colleagues, and, if he had already aroused antagonism among them, the Embassy visit would serve as a peg for sincere or expedient denunciation.
+
+8. We can shed no light on the allegation that IDEN G is a KUBARKER (LOND 5337). Our only trace is OELA 39346, stating he is IDEN H. He are not clear as to the relationship between IDEN A, IDEN G, and IDEN I, also mentioned in OELA 39346, which states she "appears to be" IDEN A's wife. According to ODENNY Paris, however, IDEN A is married to IDEN J. OEL 39251 of September 1964 reported that IDEN A and his wife (unnamed) had successfully sued IDEN B for salary arrears; the fact that the wife was also employed recalls the IDEN I professional status, which might make her operationally significant whether or not she is married to IDEN A.
+
+Ann E. DUCOTE
+
+TINUED
+
+PAGE NO.
+3

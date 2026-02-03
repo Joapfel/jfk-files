@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_23513.png
+
+Convert to MarkdownSECRET
+
+Office Memorandum • UNITED STATES GOVERNMENT
+
+TO : Chief, Plans Staff, FI
+FROM : Chief, WMD
+SUBJECT: Project EIRADIAL
+
+DATE: 18 December 1953
+
+1. Project EIRADIAL is being terminated as of 1 December 1953 inasmuch as EIRADIAL has been denied entry into Argentina.
+
+2. As of 1 December 1953 he will have been transferred to the rolls of PB Success.
+
+3. The purpose of Project EIRADIAL was to provide for the covert training and transfer of this contract agent from Costa Rica to Argentina where he would develop a penetration of the Communist Party of Argentina (PCA) and Communist front organizations and perform support functions as assigned.
+
+4. Project EIRADIAL was approved for the period 1 August 1953 through 31 July 1954 in the amount of $10,475.00.
+
+5. EIRADIAL's salary has been paid through November 1953 under this project. He has also been paid the amount of per diem due him while in the United States in accordance with the project authorization.
+
+6. There are no present outstanding financial commitments to EIRADIAL under this project.
+
+W. B. Caldwell, Chief, FI/VH
+
+Attachment
+
+(a) Original of the Approved Project Action
+dated 12 August 1953
+
+Approved:
+Chief, Flang
+26 January 1954
+Date
+
+SECRET
+
+14-00000
+
+| | | |
+|---|---|---|
+| [x] Approved | [ ] Yes | [x] Approved | [ ] No |

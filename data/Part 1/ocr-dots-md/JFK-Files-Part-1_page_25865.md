@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_25865.png
+
+Convert to Markdown14-00000
+
+104-10219-10154
+
+<table><tr><td>SECRET</td></tr></table>
+
+12DEC
+1975
+
+MEMORANDUM FOR: Director
+National Security Agency
+
+ATTENTION : Mr. Benson buffnann
+
+SUBJECT : William Hamilton Martin and Vernon Ferguson
+Mitchell 201-282 337
+
+1. Attached is a copy of a report recently received through Canadian liaison channels concerning a conversation between Canadian professor Dr. Hans Kunov and Martin in Moscow. The attachment outlines the conversation Kunov had with Martin and indicates that both Martin and Mitchell are attempting to leave the USSR.
+
+2. Also attached is a report on Yuriy Igor'yevich Torgov, 201-086204
+Kunov's host at the USSR Academy of Sciences Computer Center.
+
+3. The Canadians have advised us that the FBI has received the information contained in the attachments.
+
+FOR THE DEPUTY DIRECTOR FOR OPERATIONS:
+
+George T. Kalaris
+
+Attachments:
+As stated
+
+CIOU-00184-75
+DNO/CI/R&A/E:W.Kerbe:dnj (12/12/75)
+Distribution:
+Arig & 1 - Addie w/att
+1 - C/CI w/att
+2 - CI/R&A/E 1 w/att
+3 - C/DIVD w/att
+1 - DIVD/TCB
+
+COORDINATION:
+
+Paul L. Rinaldo
+C/DIVD/TCB in draft
+
+<table><tr><td>SECRET</td></tr></table>

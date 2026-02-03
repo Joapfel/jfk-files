@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_25295.png
+
+Convert to MarkdownSECRET
+
+RIS (AEDIPPERa Negative)
+
+CONTACTS
+
+MISCELLANEOUS
+
+9 May 1953: Subject arrived Rome from Moscow. Stayed Primrose Pensions (R-374-53 6/53).
+
+18 May 1953: Subject departed for Genoa to leave by sea for Mexico (R-374-53).
+
+c. 25 May 1953: Subject and wife met in Vera Cruz by Aleksandr BELYAKOV (HMM 370 7/53).

@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_23181.png
+
+Convert to Markdown1. Dr. (Cmu) <u>Zuniga</u> was a psychiatrist from Nicaragua. I did not know where he worked. Description: Malatco, age 34, 5'9", 170 lbs, cross-eyed.
+
+2. Dr. (Chu) Zorin was a psychiatrist from Argentina, who worked at the Brain Center Institute in Havana. Description: Caucasian, age 53, 5'8", 190 lbs, blue.
+
+3. The following were leading Cuban psychiatrists who have cooperated with Castro:
+
+Fernando
+
+a. Dr. (Cmu) Barreal was in charge of debriefing Cubans who were leaving the country through Varadero. Description: Caucasian, age 32, 5'4", 190 lbs, brown hair.
+
+b. Dr Jose Caligueria Hernandez, professor at Havana University. Description: Caucasian, age 50, 5'7", 155 lbs, dark eyes.
+
+c. Dr Rene Yodir was a professor at Havana University. Description: Malatco, age 47, 5'11", 160 lbs, dark hair.
+
+d. Dr. Armando Cordova, was a non-Communist professor at Havana University. Description: Caucasian, age 51, 5'8", 190 lbs, green eyes.
+
+Leopoldo
+
+e. Dr (Chu) Braun was a professor at Havana University. Description: Caucasian, age 53, 5'10", 170 lbs, brown eyes, black hair.
+
+f. Dr. (Chu) Garcia Flitius was attached to the Cuban Army Forces in psychological warfare instruction. Description: Caucasian, age 50, 5'1", 200 lbs, brown eyes.
+
+g. Dr Jose Angel Guerra was allegedly Fidel Castro's personal psychiatrist. Description: Caucasian, age 42, 5'5", 195 lbs, black hair.
+
+h. Dr Arcadio Figueroa, had been assigned to work in Algeria from 1963 to 1965. Description: Malatco, age 42, 5', 220 lbs, dark hair.
+
+i. Dr Garcia Oliva was Ramon Llull's personal psychiatrist and he worked closely with the DSE. Description: Caucasian, age 54, 5'8", 150 lbs, black hair, dark eyes.

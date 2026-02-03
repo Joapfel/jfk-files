@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_26764.png
+
+Convert to Markdown14-00000
+
+CLASSIFIED MESSAGE TOTAL COPIES 19
+
+<table><tr><td>SECURITY</td><td style="text-align:right;">CONFIDENTIAL</td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED<br/>WH 8</td></tr><tr><td>FROM<br/>MEXICO CITY</td><td></td></tr><tr><td>ACTION<br/>WH 8</td><td></td></tr><tr><td>ADVANCE COPY</td><td></td></tr><tr><td><input type="checkbox" /> .......</td><td><input type="checkbox" checked="checked" /> .......</td></tr><tr><td>UNIT<br/>WH</td><td>TIME<br/>0245</td></tr><tr><td></td><td>BY<br/>N</td></tr></table>
+
+E C R E T 130054Z
+PRIORIETY DIR CITE MEXI 3394
+REF DIR 09327 BB
+
+STATION INFORMED AFTERNOON 12 MAY BY LIFEUD-24 THAT VICTOR RICO
+GALAN TELEPHONE DEAD AS OF 0900 HOURS 12 MAY.
+E SURFACING OF REF X
+
+TELECON; AFTER RESUMPTION OF PHONE SERVICE SON PLANS MAINTAIN COVERAGE
+WITH THE MONITORING IS LONG AS POSSIBLE BUT SITL HAVE WILSTED END
+
+BASEHOUSE KEEPERS
+DADY DXR IMMEDIATE EMANSATION OF ALL EQUIPMENT AND
+JUHM LINES.
+
+SECRET
+
+CFO $KE NOTE.*CORRECTED COPY TO FOLLOW*
+
+
+
+ESTIMATELY CORRECT REF.

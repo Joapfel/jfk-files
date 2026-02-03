@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_26952.png
+
+Convert to MarkdownChief, Personnel Security Division, OS
+
+16 March 1973
+
+Director, Domestic Contact Service
+(Chief, Services Division)
+~~12/76~~ J. Mitchell Livingston, III -- Position of DOD Security
+Clearance/Contact
+~~J. M. K. H.~~
+
+1. The information imported in the attached 104-enclosed form may be of interest to personnel, regarding Subject's self-reported contact with Dr. Lloyd Price Officer, may be of interest.
+
+2. ~~The Office of the General Counsel and Staff Division have been requested of Subject in recent activity.~~
+
+3. Any questions pertaining to this matter should be directed to: [REDACTED], Virginia Thome, Ex. 123
+
+Enclosure: As stated above
+
+VThomeerv
+
+4.51

@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_22670.png
+
+Convert to Markdown# DISPATCH
+
+<table><thead><tr><td>CLASSIFICATION</td><td>DISPATCH SYMBOL AND NO.</td></tr></thead><tbody><tr><td>SECRET</td><td>DN-A-12437</td></tr><tr><td>TO</td><td>HEADQUARTERS FILE NO</td></tr><tr><td>INFO</td><td></td></tr><tr><td>Chief of Station, San Jose</td><td></td></tr><tr><td>FROM</td><td>DATE</td></tr><tr><td>Chief of Station, Mexico City</td><td>13 March 1959</td></tr><tr><td>SUBJECT</td><td>RE: "43-3" - (CHECK "(X)" ONE)</td></tr><tr><td>Proposed Costa Rican CP Penetration</td><td>MARRED FOR INDEXING</td></tr><tr><td>ACTION REQUIRED</td><td>NO INDEXING REQUIRED.</td></tr><tr><td></td><td>INDEXING CAN BE JUDGED<br/>BY QUALIFIED HQ. DESK ONLY</td></tr><tr><td colspan="2">REFERENCE(S)</td></tr></tbody></table>
+
+1. As recorded in Headquarters Files, HUEHAYE's brother-in-law, Mario CONDEO Calderon, Costa Rica, residing in San Juan Tibas, San Jose, Costa Rica, was once a member of the Costa Rican CP. Mario's first loyalty had been to the LIBERTAD party, but since the latter was allied with the CP, a great deal of recruitment had taken place within the allegiance. Mario drifted from CP militancy shortly after the 1960 revolution.
+
+2. If the organization so desires, all the factors are present for the recruitment of Mario and return to CP militancy with a low to medium level penetration as the objective. These factors are as follows:
+
+a. Mario CONDEO has been caretaker and therefore living in HUEHAYE'S house in Costa Rica for the past two years. On two occasions during visits in 1956 and 1957, HUEHAYE converted at some length with Mario concerning the Costa Rican CP. Mario indicated very emphatically that he was diarated with them (party leaders) because of the corruption.
+
+b. Letters received from Mario during the past year have indicated no change in this attitude. Mario is extremely grateful to HUEHAYE for this period of residence without paying rent. (Mario is a associate of loose means).
+
+3. HUEHAYE is reasonably certain that Mario CONDEO would accept such an offer and could return to CP militancy without security problems. It is believed that with a little guidance and manipulation, Mario could become a medium level penetration with a relatively short time. While not having more than an elementary school education, Mario is a stolid type, sincere and determined in his own way. One satisfied that he could improve his lot by this service, he would lend a steady and reliable service.
+
+Willard C. Juete
+
+HR/cps
+
+16 March 1959
+
+Distribution:
+3 - Haga
+1 - San Jose
+2 - Pilen

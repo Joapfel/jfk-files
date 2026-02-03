@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_23673.png
+
+Convert to MarkdownSNAP-ON SIGHT HOOD FOR
+THE 7.62 BELGIUM (FAL) RIFLE
+
+1. The sight hood snaps over the existing rear sight on the 7.62 Belgium (FAL) rifle. It is designed to raise the rear sight to compensate for the more curving trajectory of the under-loaded ammunition and is an open sight for increased night sighting capability.
+
+2. The sight hood is oriented with the three screws facing the muzzle end of the rifle (See attached drawings). Press down on the hood until the ball detent snaps into the peep hole
+
+3. The slot for the existing rear sight is made tight so that the hood will fit firmly in place. If it fails to fit, file the existing rear sight as necessary. If the sight fits the slot but is difficult to snap on and off, or is too loose, adjust the ball detent by turning the center set screw on the sight hood.
+
+4. The weapon must be zeroed on a known distance firing range to determine the sight settings and proper sight picture for standard and underloaded ammunition when using the hood. The only adjustments possible are those already on the rifle. (That is, elevation control using the graduated ramp and windage control by adjustment of the two locking screws at the base of the existing rear sight dovetail.)
+
+NOTE: It is very important to hold the rifle the same way each time so that the relation of the eye to the rear sight remains constant. The user must determine his own zero for each rifle and hood combination and maximum effective range for each ammunition type.

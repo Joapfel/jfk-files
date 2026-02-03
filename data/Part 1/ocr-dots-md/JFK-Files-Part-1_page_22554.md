@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_22554.png
+
+Convert to MarkdownSECRET-EGES ONLY
+
+(Comment: This "intermediary" appears to have been Tomas Stocker. The significance of this and the security problem it posed will become apparent from one of the later entries for 31 May.)
+
+25 April 1961
+
+Cable from the station:
+
+"Foll from Dearborn: 'I believe political consequence of not delivering [submachine guns] so serious I plan go Washington within next few days for discussion with Department and CAS Hqs!"
+
+26 April 1961
+
+Cable from the station:
+
+"[Wimpy Berry] told Chief of Station . . . Antonio de la Maza plans try assassination between 29 April and 2 May. Severo Cabral possibly not yet aware plan. No solid info other members assassination effort but General Juan Tomas Diaz probably will aid. Will use the three carbines plus whatever else can get. De la Maza asks Berry add the sub-machine guns if possible
+...
+
+30 April 1961
+
+Cable from the station:
+
+"Following from Dearborn: April 28 Lorenzo Berry as emissary Juan Vicini and Severo Cabral called on me with roll info: . . . main mission Berry was plead with me release sub-machine guns they believe in Dom Rep and under my control. Action group has 3 carbines, 4 to 6 12-gauge shotguns with 120 rounds and some small arms. . . . . . Action entails roadside ambush near San Cristobal
+
+SECRET-EYES ONLY

@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_24705.png
+
+Convert to Markdown**Latinskaya Amerika # 4,**
+**July-August 1976. (p 138)**
+
+**Caption:** "First visit to the Soviet Union. Next to Fidel Castro ... author of the article, journalist N. Leonov"
+
+Первое посещение Советского Совета РА-СОЮЗА с Фиделем Костро на тройке министра, состоящегося на Уралмаше.— часто статью журналист Н. Леонова
+
+**Golos Rodiny, # 32 for April 1963.**
+
+**Caption under the photograph:**
+"23 April 1963. Arrival in Moscow of Fidel Castro, Prime-Minister of the Revolutionary Government Republic of Cuba. Greetings at Vnukovo Airport. From left to right:
+N. Khrushchev, Chairman Council of Ministers of the USSR, N.S. Leonov, L. Brezhnev,
+Chairman of the Presidium Supreme Soviet
+of the USSR, and F. Castro."

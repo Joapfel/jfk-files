@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_25857.png
+
+Convert to MarkdownSECRET
+
+22 April 1957
+
+MEMORANDUM FOR: D/TH
+ATTENTION : Assistant Chief For Cover Training, OS/TR
+PACH : WU/3/Mexico
+SUBJECT : Request For Cover Training
+Project: LIFSTICK
+Pseudo: Raymond H. Gerstenberg
+
+1. Initiated by: WU, Branch 3, Mexico - FI
+
+2. Date of Project Approval: 2 November 1956
+
+Type and Date of Clearance: Approved Operational Approval C-32743 effective 19 March 1956. Surrogates OK granted 28 February 1955.
+
+3. Agent's Status: Contract Agent
+
+4. Agent Nationality: Born in U.S., but renounced citizenship to become Mexican citizen on 31 July 1952.
+
+5. Operations Officer: Lawrence B. Sule Known to student as: Larry Room 2114, Burton Hall, x-2555
+
+Alternate Operations Officer: John B. Brady Known to student as: Jack Room 2111, Burton Hall, x-3162
+
+6. Training dates: Beginning about 10 June 1957 for approximately 5 weeks.
+
+7. Complete biography: his background of trainees; see memorandum attached.
+
+8. Previous intelligence training: Trained in surveillance and related techniques by his field case officer. No formalized training.
+
+9. Project Objective: Physical surveillance in Mexico City area to obtain CE and operational information on Soviet/Satellite and Communist Party personnel, plans and activities. This project supports a technical surveillance project in Mexico. Some of the basehouses under Project LiFSTICK support the physical surveillance aspect of Station operations whereas some of the basehouses support technical surveillances.
+
+SECRET
+
+Geriade (Lip. 20)

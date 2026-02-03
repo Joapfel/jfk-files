@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_26370.png
+
+Convert to MarkdownSECRET/NO FOREIGN DISSEM
+
+-2-
+
+Ibero-American University, press chief of the National Institute of Bellas Artes, and member of the Movimiento Social Democrats Cristiano (presumably the Christian Democratic Movement) has undertaken to collect funds for Rico from among their mutual friends. Mrs. Rico Galan has told Zorilla that she and her husband do not need money at present but that her husband is eager that any funds they do collect be shared among the other prisoners who are in need.
+
+SECRET/NO FOREIGN DISEM

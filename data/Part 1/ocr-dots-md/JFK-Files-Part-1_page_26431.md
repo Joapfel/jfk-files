@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_26431.png
+
+Convert to Markdown<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>SECRET</td><td>ROUTING</td></tr><tr><td>1</td><td>Mexico</td><td>4</td></tr><tr><td>2</td><td>Louisville</td><td>3</td></tr><tr><td>3</td><td>Fresno</td><td>6</td></tr></table>
+
+TO: DIRECTOR
+
+FROM: MEXICO CITY
+
+ACTION: LH 8
+
+DROPS: CH/APS, FI/INT 2, VR
+
+13 MAR 1975 5:37:30
+
+SECRET 1316512
+SDOM INFO DIR CITE MEXI 7738
+REF HEXI 7693 (IN 9525d) * *
+IN VIEW IMPORTANCE PRESENT SITUATION PACY, PERMISSION GRANTED
+PASS INFO CONTAINED IN REF AS REQUESTED BY SDOM 2686. *
+
+SECRET
+
+CS COMMENT: D-IN 96608
+
+* INTEL RPT RE PROJECTED TRAVEL OF VICTOR RICO GALAN TO DOMINICAN REPUBLIC.
+
+CO COPY
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+Copy No.

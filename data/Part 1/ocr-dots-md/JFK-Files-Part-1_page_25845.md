@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_25845.png
+
+Convert to Markdown-2-
+
+(8) Spotting
+Cuck and Investigations
+Selection of Agents
+Recruiting Methods
+Training, Briefing, and Debriefing
+Handling of Agents
+Termination of Agents
+
+Special emphasis will be devoted to agent spotting, acquisition and management.
+
+24-28 June Observation, description, casing, reporting. The latter will include operational reporting, surveillance reporting, CE type reports and principles of positive intelligence reporting.
+
+1-2 July Missions, functions, & principles of CO & CI.
+
+3 July TSS briefings, audio & photo
+
+5-9 July Continuation of CO & CI.
+
+10-11 July Principles, procedures, techniques of elicitation, interviewing.
+
+12 July Seminar on covert investigative techniques.

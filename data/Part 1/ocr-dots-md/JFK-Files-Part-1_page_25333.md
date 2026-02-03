@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_25333.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+<table><tr><td>TA</td><td>IS</td></tr><tr><td colspan="2">Specify Air or Sea Beach</td></tr></table>
+
+DISTRIBUTION NO. 1147933
+
+<table><tr><td>SECRET</td></tr></table>
+
+DATE AUG 26 1955
+
+TO Chief of station, Vienna
+
+FROM Chief,
+
+SUBJECT GENERAL Operational/DCAP
+SPECIFIC, Post Officebers of the R.F.
+
+U.S.A. C.C. 707 - 6/23/55
+
+a. In the reference report it is noted that A.M.S. state is thought likely accordingly. F and Prioritylvovs: I were members of the ad. Traces were run on these two sets and are forwarded for whatever value they may be to VOS.
+
+b. L.L. of likely encroachment on this area has formed a formation evaluated in 2 contigs. In 17 Dec 52 from Karimov, Iran, states one .L..7. (see chart 5.3-27, dated 22.12.52; Visa -g). 73, was less active at culture lab, but from data above it is assumed the formation is of short duration. There are no other reports from the area. The formation can be obtained as well as by photographs. There is also a photograph of the above formation. F.7. There is a striking resemblance between them not to be traced out although .F. is a much older sun.
+
+INDEX
+
+22Aug 1955
+
+Distribution:
+
+3 Vienna
+1 RI
+2 EE/A
+
+CO 807
+
+FORM No. 51-29
+
+<table><tr><td>SECRET</td></tr></table>

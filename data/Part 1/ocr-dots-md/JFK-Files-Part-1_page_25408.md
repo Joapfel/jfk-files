@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_25408.png
+
+Convert to MarkdownWorld Associates, Inc., Hugh C. McDonald, President
+
+Daniel J. Shine for GSMusulin/Js
+DCS/Operational Support Staff
+900 Key Building
+
+2268
+
+DCS Case 52872
+
+5 May 1969
+
+TSD/MPG
+Col. West
+230 South Building
+
+Attached is copy of 00-A(S)
+322/12039-69 for your information.

@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_22841.png
+
+Convert to MarkdownSECRET
+
+6. Gerald Lionel Federer was dropped from the rolls of the University of Wisconsin because of poor grades in his classes. The subject was in contact with Sigmund Eisenscher the State Chairman of the Communist Party in Milwaukee, Wisconsin. The subject apparently returned to New York on 1 July 1956. (DFB-71805, 24 October 1956.)
+
+GERALD L.
+FEDERER
+
+FIDERER, Jerry
+
+SECRET

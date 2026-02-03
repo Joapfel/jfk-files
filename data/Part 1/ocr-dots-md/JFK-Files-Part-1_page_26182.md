@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_26182.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+NO FOREIGN DISSEM
+
+SED Party School Year; mediocre qualifications; active in politics; member of Central Party Directorate and SED.
+
+Pen names: Armande Conte--no info Mexican, Cuban, or Guatemalan files.
+Sebastian Canell--no info Mexican files.
+
+* CS 3/539-735 11 March 1963 B-2
+One of a number of leftists (Terrazas Guerrero another one) who voted to reinstate Marcue Pardinas in the MIN.
+
+S-E-C-R-E-T
+
+NO FOREIGN DISSEM

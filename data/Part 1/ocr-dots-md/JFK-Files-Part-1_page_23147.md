@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_23147.png
+
+Convert to MarkdownSECRET
+
+-5-
+
+Medical Associations, that is to say, the Pan American Medical Colleges, among these the Cuban Medical College. They then occupied positions in the Central Executive Committee. Later there were established four zones of the C.M.P. with BUSTAMANTE occupying the position of president and Dr. LOPEZ Sanchez the office of treasurer, leaving the secretariat open on a rotating basis for an executive of the National Medical College who might be useful to them in their manipulations. Thus in September of 1955 they managed to have the National Medical College sponsor the publication of the C.M.P. They maintained themselves in their respective offices up to the present year, alternating the secretary whenever the executive committee of the National Medical College was changed. The periodical of the C.M.P. was published until the dissolution of the National Medical College. When the Revolutionary Medical College was founded they were able to install as secretary of the C.M.P. for the Caribbean Zone Dr. Leopoldo E. ARAUJO Pernal who is manipulated by BUSTAMANTE as a puppet to serve his ends. When it was learned that a movement was afoot in the Executive Central Committee of the C.M.P. to expell Cuba—this being pushed by the medical associations of the other Latin American Republics— BUSTAMANTE advised the government to dissolve the Cuban Medical Association, using Dr. ARAUJO as President P.S. (sic.) of the
+
+SECRET
+
+14-00000

@@ -1,0 +1,72 @@
+# JFK-Files-Part-1_page_23270.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA AIR
+(Specific Air or Sea Fouch)
+
+DISPATCH NO. HKH-16389
+
+(201-16881)
+
+TO Chief of Station, Habana
+
+FROM Chief, IAD
+
+SUBJECT { GENERAL
+          SPECIFIC
+          Arthur C. VAIVADA
+
+DATE __________
+16 OCT 57 11'07
+
+References: HRSA-1326 (not sent to Habana)
+HRSA-A, 3 September 1957
+
+1. At the time the request was submitted to convert Subject, from Contract Agent to Career Agent status, a provisional cover security clearance was granted for that purpose. KUSODA recently advised that a full cover security clearance had been granted for the use of Subject as Principal Agent, under-official cover, in Project AMBASSADOR, in accordance with the provisions set forth in the memorandum of the Chief, KUSODA, dated 14 February 1949, entitled "Security and Operational Clearances."
+
+2. At the same time, KUSODA requested the following action to be taken:
+
+a. That full overseas traces and such actual overseas investigation as is possible be taken on Subject and his wife and her family; and,
+
+b. That arrangements be made to have Subject affronted with a LCILOTTER test as soon as feasible.
+
+3. Headquarters has already initiated the action set forth in Para 2 (a) requesting full traces and investigation of Subject and his wife and her family in Panama City and San Jose. Today only San Jose has replied with HRSA-2938, copy of which was sent to Habana. Station Habana is requested to take appropriate action to cover Subject's and his wife's activities during their residence in Habana, and inform Headquarters of the results.
+
+4. With reference to KUSODA's request for a LCILOTTER test on Subject, they have expressed their desire to have Subject tested in the field as soon as possible, or as soon as the appropriate arrangements can be made. KUSODA has indicated that they will be happy to assist in arranging this test.
+
+(Releasing officer)
+
+(Coordinating officer)
+
+(AUTHORIZING officer)
+
+SECRET
+CLASSIFICATION
+
+FORM NO. 51-29
+JUN 1949
+
+US COPY
+
+<table>
+   <tr>
+    <td>201-168-881</td>
+   </tr>
+   <tr>
+    <td>K</td>
+   </tr>
+   <tr>
+    <td>HKHL0</td>
+   </tr>
+   <tr>
+    <td>2380</td>
+   </tr>
+  </table>
+
+<table>
+   <tr>
+    <td>DATE</td>
+    <td>16 OCT 57</td>
+   </tr>
+  </table>

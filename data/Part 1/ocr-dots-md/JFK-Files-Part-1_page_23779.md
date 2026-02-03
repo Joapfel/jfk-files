@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_23779.png
+
+Convert to Markdown14-0000
+
+TO: Chief, KUDOK
+FROM: Chief of Station, London
+Attachment to OEL-43,458
+25 June 1965
+
+31 Jun 1965
+
+17.10 hours: Mark SCHWEISSER (or SCHWEISSEER ph) calls Pablo, tells him he arrived in LONDON two hours ago. (Note : he speaks English with a U.S.A. accent.) Pablo says he had been talking about Mark last Saturday with Richard GIBSON, who Mark had thought to be living in Switzerland. Pablo says Richard has lived in LONDON for a year. Mark is now married, his wife and two children are with him. Pablo says that Roberto Yepe and his wife Galina are also in LONDON at the Embassy. Mark is in a hotel near the British Museum. Will come to the Embassy at once. Farewells.
+
+17.15 hours: Roberto Yepe calls Galina at home, tells her Mark is in LONDON. Both overjoyed. They arrange to meet. Yepe does not know yet what he is doing here or how long he will be staying.
+
+18.30 hours: Present: Pablo and Mark SCHWEISSER (pres.). Voices very indistinct.
+
+Pablo and Mark appear to be talking about mutual acquaintances, who are mostly poets and authors. Pablo goes out.
+
+Yepe comes in and greets the visitor; he says that his wife Galina would like to see Mark this evening. Yepe explains about his transfer from Glasgow to London; he then asks Mark when he is going to Nigeria (?Algeria). Mark appears to say that he will not be going until February next year, after which he has been to the States; after that he would like to settle down in Africa, in Zanzibar, or in (?Tanzania) - he does not know.
+
+Yepe asks where he can find Dennis PHOEBEAH: Mark says that he is in the Tanzanian High Commission at 43 Hertford St. and that Yepe can mention his name. Yepe goes out (pres. to telephone Dennis) and does not return.
+
+10.00 hours: Richard GIBSON (ph, speaks English with U.S.A. accent) calls Pablo in some excitement to say that SCHWEISSER (ph) "is arriving today". Pablo says he already knows, had seen him yesterday (see 31st May above) and had given him Richard's telephone number. Richard asks for Mark's address. Pablo checks with Yepe, who was taken by Mark SCHWEISSER to the latter's hotel, but does not remember the name or address. Richard remarks that he knows Mark's plan. He is on his way / to . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .

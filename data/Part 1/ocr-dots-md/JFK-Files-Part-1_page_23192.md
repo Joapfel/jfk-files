@@ -1,0 +1,56 @@
+# JFK-Files-Part-1_page_23192.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA AIR
+(Specify Air or Sea Pouch)
+
+DISPATCH NO. HTS-N-2282
+
+201-32723
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO Chief of Station, Habana
+FROM Chief, WND
+
+SUBJECT { GENERAL SPECIFIC
+
+Operational/KUTUEK
+Arthur G. VAIVADA
+
+Action Requested: None
+
+1. During his recent visit to Headquarters, Subject was asked by one of the Staff members if he would be interested in, and available for, reemployment approaches in various Latin American countries. Since Subject has a fine record in CP penetration work (e.g., his outstanding job in handling HOMARD-3 operation in Costa Rica and his efforts as the CP penetration program in Cuba), it is believed that he would be an effectiveRecruiter of possible CP defectors.
+
+2. Subject stated that he was keenly interested in, and would like to engage in, such operations and would welcome the opportunity of being asked to hit a well-chosen target in any Spanish-speaking Latin American country.
+
+3. The foregoing discussions with Subject was informal and without commitment on either side. However, the Station is being alerted to the possibility that Subject may be requested to perform such approaches at such time when various reemployment in-place CP targets are developed, or otherwise arise for other countries. Nevertheless, any such action originating at Headquarters or at any other Station, will of course be subject to Station Head's consideration and approval beforehand, depending on his availability in reference to his work in Project AMPHODARCH, etc.
+
+28 May 1957
+
+Distribution:
+
+- 1 - WH/Cuba/Chrono
+- 3 - Habana
+- 1 - RI
+- 1 - WH/Tailroom
+- 1 - Subject
+
+J. C. KING
+Chief, WHD
+
+WH/III/Cuba/HC/Auley/Is
+
+W. GALERATTH, C/M/III
+
+(Coordinating officer)
+
+(AUTHENTICATING OFFICER)
+
+FORM NO. 51-29
+AUN 1949
+
+<table><tbody><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></tbody></table>
+
+<table><tr><td>201-16881</td></tr><tr><td>X</td></tr><tr><td>HKB.HU</td></tr><tr><td>2282</td></tr><tr><td>DATE 4 JUN 57</td></tr></table>

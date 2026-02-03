@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_23311.png
+
+Convert to Markdown18 April 1957
+
+MEMORANDUM FOR: Chief, Contract Personnel Division
+
+SUBJECT: Arthur G. VAIVADA
+
+1. Arthur G. VAIVADA, Contract Agent, GS-10, assigned to Project AMMIOARCH in Habana, Cuba, was ordered by the station to leave Cuba for reasons of operational security following the killing of an indigenous member (AMMIOARCH-1) of his agent net by the Cuban authorities. Subject departed from Habana on 18 February 1957, and arrived in San Jose, Costa Rica, on or about 21 February 1957. He discontinued his residence in Habana, stored his household effects, and set up new quarters in San Jose for his family. He will maintain these quarters until about 6 May 1957, when he will be reassigned to Habana or PCS to another area. Subject, himself, is currently receiving training at Headquarters.
+
+2. It is requested that authorization be granted to pay Subject quarters allowance to enable him to maintain residence for his family in Costa Rica for the time necessary to complete his training at headquarters and be reassigned to the field.
+
+J. C. KING
+Chief, Western Hemisphere Division
+
+Distribution:
+
+* Orig. & 1 - Addressee
+* 1 - Cuba Chrono
+* 1 - VAIVADA File
+
+WH/III/Cuba/HOMacAuley/fs
+
+SECRET
+
+201-167781 X

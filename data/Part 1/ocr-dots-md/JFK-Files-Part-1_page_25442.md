@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_25442.png
+
+Convert to MarkdownSECRET
+
+25 March 1970
+
+**MND FOR THE RECORD**
+
+Subject: World Associates, Inc. (Hugh McDonald)
+
+1. McDonald asked me to meet with him on 24 Mar 70. I did. He started the conversation by stating, "We are getting bigger all the time and are on the way of becoming the largest, private intelligence organization in the world. And we are picking up intelligence that I want to pass to someone, anyone in government. I feel you should get it."
+
+2. At this point I commented that I appreciated his feeling but wondered if he could provide some basis for information passed to us that would permit some evaluation, such as type of person who provided him the information, when, where and his evaluation of his source. McDonald "blew his cool". He said if he did so, we would figure out who his source was and contact the source directly and push the source around to get what we wanted. I told McDonald we did not push people around; that I had personally heard the Director comment years ago that he would not permit any pressure on anyone, anytime, anywhere. McDonald replied, "Then he has changed. I know that people have been pushed around by CIA". I asked who, when and where. He replied it happened after WWII in "1947, 48 or 50 in connection with the Katyn Massacre investigation". I told him that to the best of my knowledge we had nothing to do with the Katyn inquiries; that it was a Congressional Commission that looked into the matter.
+
+3. I asked McDonald if he felt he could not trust us then why bother to pass along information to us. He said that he wants the government to have the information that he feels is important; that he trusts me to pass it along; that he keeps a record of what he passes to us in the event it is ever said he had information and failed to pass it along.
+
+4. McDonald then proceeded to tell me that "new, short, fat missiles" have been shipped into Cuba; that they are so-called defensive missiles but are a type that can take a "multi-head offensive warhead". The shipment to Cuba from the USSR took place three-four months ago. These new type missiles can reach targets in the US.
+
+5. Next, McDonald said that there are two sets of people involved in the current bombings of banks, offices, etc. One is a racial group made up of black militants and the other a group of white US and Canadian trained "sappers" who aim at disrupting everything. He stated that he
+
+SECRET
+
+<table><tr><td>6031</td></tr><tr><td>Ex included from P.O.</td></tr><tr><td>Discharged and</td></tr><tr><td>Retired 3-11-71</td></tr></table>

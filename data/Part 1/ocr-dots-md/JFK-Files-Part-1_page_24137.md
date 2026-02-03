@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_24137.png
+
+Convert to MarkdownSECRET
+
+12. KIIMA, N.
+
+13. SUOMI, P.
+
+14. TURKISH, E.
+
+15. Yiddish, B.
+
+16. ROMANIAN, S.
+
+17. SWEDISH, L.
+
+18. FRENCH, M. D.
+
+19. ITALY, L.
+
+20. RUSSIAN, G. B.
+
+21. GERMAN, U. B. M.
+
+22. ENGLISH, H. M. R.
+
+23. SPANISH, L. A. R. J.
+
+24. PORTUGUESE, L. M. C. R.

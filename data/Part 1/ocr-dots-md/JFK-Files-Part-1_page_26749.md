@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_26749.png
+
+Convert to Markdown14-00000
+
+necel 72-. 100-29
+4 may 1963
+
+10.7 contd.
+
+U.S says that Santo Domingo has isolated. Miami refuses to put through calls from Santo Dominicans. They would not give VNG a call through either - that only U.S. press had preference. A Dominican wanted to call there yesterday and they told him they were sorry, he heard Miami conv - that they could not put through any calls to Santo Domingo from Dominicans. This would be a good thing to inform Radio Habana...that they are not putting through calls.
+
+Calls are coming exchange through from Dominican republic to Mexico. And's call also went through. NO thinks they can't call out unless they are known.
+
+NO went by "Pressa Latina" to get press bulleting. Got the speech of ...(Castro). It is very good.
+
+Dominican Amb. had said he would resign, but has not done so. Due to some "declarations published in 'In Extra'" is against U.S.... perhaps if he does not resign, they might spread around that - in view of these declarations that this person is non-greta. It would be difficult. It can be done, but has to be handled correctly. When does NO think this can be done? When VNG wants. With his declaration, VNG is now going to write his column for "Diario de Mexico" - 20 Lines. Could do this there. Can read the declaration to VNG. Comment.
+
+Came out "La Extra," 2 May, Sunday, Amb. Dr. Jose Fernandes Camineros declared the following in relation to Measin and Measini - deferred military man is very popular among the people due to the fact that he is anti-Trujillista, the same consideration is held by the leaders of the political parties such as PCP (of Boach) and Partido Liberal revolucionista. again y Measini was distinguished in 14 June 1939 during the measure of the ...and (Pageorgan). He even has a condeoration given to him by Trujillo called "La Orden de Com tanza..." for his brilliant military service during those 3 invasions. (So, this n.n.b. says that he is anti-Trujillista.)
+
+VNG says Luis Suarez is going to Dominican Republic. "Sicpre" is sending LS and Moya, a photographer. VNG thinks it would be good to hit this job (the Amb.) tomorrow so they won't deny them their visa. As VNG thinks best, NO would like to see LS before he leaves. VNG is not sure they will go since there is apparently no way to get there. They could go via Kingston, There are flights to Kingston, but from Jamaica, one mea2 would have to go in boat, he can rent a small plane in Jamaica for $200 or $300 dollars. They (this goodup here) had even thought about going this way. VNG will tell Luie about this. Before he goes, he will have to get names of contacts (from NO). Fine.
+
+14.9 Out to 45-91-35. VAG asks NO, who answers, for Luis Suarez, Not there. NO is Repita. LS was just left. Will he go (to Dominican Republic) or not? Not sure. Did he get the visa? They are doing this now. Tell hi- to call VAG. VAG has to explain how to get there since there are no normal flights.
+
+15.2 Out to 45-91-35. VAG asks NO, who answers, for Ing. Elizondo. Not back yet.
+
+15.5 Out to 29-22-12. Al, Luis Lisalde (ph), asks NO, who answers, for Ing. Elizondo.
+Ing. Elizondo takes phone. Greetings. Did we get "that"? Yes
+
+neel 72-100-29
+
+- 4 -

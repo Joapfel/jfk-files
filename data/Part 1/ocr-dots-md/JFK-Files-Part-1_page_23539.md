@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_23539.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+TRSA-1142
+
+COMF'NTS (Cont'd)
+
+With reference to TRSM-698, it is not
+desired to have subject sign a new contract at
+this time, as the current contract appears to
+be adequate. However, we would appreciate being
+advised definitely whether subject is being
+considered or has been rejected for career agent
+status. (TRSA-1056).

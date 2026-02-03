@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_25263.png
+
+Convert to MarkdownSECRET
+
+HM-2178
+Page 2
+
+3. Eduardo AGUIRRE and (mujer) ELVIRA Rojas, also of Perón, accepted invitations from Boris A. Kuznetsov, recently appointed Consul general of the Soviet Embassy, to lunch on 5 October at 2:00 p.m. When they arrived she became ill that day, and Kuznetsov and AGUIRRE decided to lunch alone, and meet another day with ELVIRA Rojas. Later, when he had to contact the lanch onset because of a special meeting with Antonio Roselli of Perón, both AGUIRRE and ELVIRA Rojas were invited and since the latter could not attend, ALVIRA had to be present. It was suggested to Roselli that they postpone their luncheon date until 8 October when ELVIRA would probably be able to attend also.
+
+On 4 October Roselli contacted Bernardo DELFINES Horales of the Press Section of the Foreign Ministry and apologized for not being able to obtain a third ticket for him for a concert that evening. Del FINES had requested a ticket for his daughter, but Roselli assured him that since their tickets were for the balcony all three could probably enter on the two tickets.
+
+5. The secretary of Eduardo J. Galindo (of the Banco Nacional de Comercio Exterior) informed the embassy on 8 October that Galindo was back at work. The embassy had been trying to contact him, probably for the purpose of inviting him to a dinner or concert.
+
+6. On 10 October a farmeil reception was held at the Soviet Embassy in honor of Walter F. E. Mankin, Counselor of the Embassy, who was intended to leave Mexico on 17 October. On 9 October Jose F. Perez Coballos of the Protocol Office told Victor N. Ganty, First Secretary, that Jose/Marcela Zapata of the Foreign Office wanted to know if it would be possible for the Embassy to give four invitations to the following friends of Mrs. Padilla Nervo (believed to be the wife of his): ADILMA Nervo, Secretary of Foreign Relations; Emilia RD and wife, Dr. Grover dePkoys and wife; Maria AMIADA; and Mrs. Mary Deasy. The Embassy agreed to send the invitations to Mrs. Padilla Nervo, who would pass them on to her friends. MARTINEZ Coballos also indicated that in case the Ambassador andpadilla did not know that Eulalia ESPINOSA Prieto of the Mexican Diplomatic Service, and his wife Tamara were in Mexico and it would be a good idea to invite them. GANTY replied that these people were their good friends. MARTINEZ Coballos did not know if Minister Fabiola Nervo and Subsecretary ELVIRA would be able to attend, but added that no and until Zapata would be there. Federico AGUIRAL, new Director of Protocol, also planned to attend. Pablo ARROZ Correa of the Foreign Ministry could not be there because he was still in the hospital recovering from an operation.
+
+St SECRET 50-4-1-303

@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_26425.png
+
+Convert to Markdown<table><tr><td>ORIG</td><td colspan="2">2. COPY</td></tr><tr><td>UNIT</td><td colspan="2">WH/3/EURO FILE</td></tr><tr><td>EXT</td><td colspan="2">5940 201-</td></tr><tr><td>DATE</td><td colspan="2">16 Jan 1964 336474</td></tr></table>
+
+CLASSIFIED MESSAGE
+
+<table><tr><th colspan="2">ROUTING</th></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+TO FEDERAL BUREAU OF INVESTIGATION
+
+FROM: DIRECTOR, CENTRAL INTELLIGENCE AGENCY
+CONF: WH 8
+INFO: CI, CI/OPS, FI, FR
+
+16 JAN 94 19 15
+
+S-0-0
+
+<table><tbody><tr><td>DEFERRED</td><td>R</td></tr><tr><td>ROUTINE</td><td>C</td></tr><tr><td></td><td>P</td></tr><tr><td></td><td>O</td></tr><tr><td></td><td>Y</td></tr></tbody></table>
+
+CITE DIR E.J.S.U.
+
+NO.: NOT SETTLED
+
+1. REFERENCE IS MADE TO THIS AGENCY'S TDCS-3/569,940 DISTRIBUTED ON 11 JANUARY 1964, SUBJECT: TRAVEL OF VICTOR RICO OALAN, MEXICAN MARXIST JOURNALIST, TO THE DOMINICAN REPUBLIC.
+
+R I C O Y
+
+2. INFORMATION HAS BEEN RECEIVED FROM A DOMINICAN SECURITY SERVICE THAT VICTOR RICO OALAN LEFT SAFE DOMINGO FOR HAIJ, FLORIDA, ON 15 JANUARY 1964. AN AMERICAN FLIGHT 432.
+
+3. THIS INFORMATION IS BEING MADE AVAILABLE TO THE REGISTRATION AND HOLIDAY INFORMATION SERVICE.
+
+END OF MESSAGE
+
+BASED ON S/NM-2619 (IN 99272), 10 JULI 1964.
+
+R I C O Y
+
+R I C O Y
+
+JANE ROMAN
+CI/LIA
+
+GAINESFIELD OFFICE
+
+B.L. VETER/WK/CN
+18812-1941
+
+<table><tr><td>S-E-C-R-B-T</td></tr></table>
+
+AUTHENTICATION OFFICE
+
+Copy No
+
+REPRODUCTION AT OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

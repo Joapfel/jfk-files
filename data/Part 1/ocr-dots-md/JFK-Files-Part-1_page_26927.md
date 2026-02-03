@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_26927.png
+
+Convert to MarkdownOCC 79-08601
+
+20 September 1979
+
+MEMORANDUM FOR: Associate Deputy Director for Administration
+Attn: Chief, Security Analysis Group, OS
+Associate Deputy Director for Science & Technology
+Associate Deputy Director for Operations
+Attn: ISA/DIP/IP/FIS
+Thru: C/Reference Branch/ISS/IPO
+
+FROM: John K. Greaney
+General Counsel
+
+SUBJECT: Request for Records Search --
+Robert John Morgan, et al.
+
+1. The Department of Justice is currently engaged in an investigation with state and federal law enforcement agencies concerning importation and distribution of marijuana and cocaine. Attached is a copy of the Department's letter to me requesting verification by CIA of any employment or other involvement with certain of the subjects of this investigation.
+
+2. In order to respond to the Department's request, it would be appreciated if your offices could determine if there are any records on the subjects listed in the attached letter from the Justice Department.
+
+Attachment

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_22530.png
+
+Convert to MarkdownSECRET-ENGLYPH<3>Y
+
+then; transmission of armament and sabotage material . . . could
+fully substantiate this cooperation. . . .
+
+9 May 1960
+
+and signed by P.E.Jerst, Chief, WH/CA,
+
+A memorandum addressed to Chief, War Division, reports steps taken or recommended for improving CIA's capabilities in the Dominican Republic. The paper refers to the need for covert action assets, principally to obstruct infiltration of Communists or Fidelistas. Among things recommended were: placement of a junior officer in the embassy; assignment of a full-tire officer to the headquarters desk for the covert action program; authorization to use Jose Figueres in third country operations; development of a contingency PM plan in the event Trujillo fell and hostile forces attempted to seize power, and establishment of a "U.S. Committee for Democracy in the Dominican Republic."
+
+A memorandum written of a debriefing of Ambassador Farland reads,
+in part, as follows:
+
+"The dissidents need guns and ammunition from the United States. In particular they need a small number of high-powered rifles with telescopic lenses. The Ambassador said that he saw no problem in the purchase and delivery clandestinely of the arms to the dissidents. But he said, of course, this raises the question of whether the U.S. Government wants to engage in this activity.
+
+"Col. King said that this of course is a policy decision. He said that CIA could deliver the arms if this is the group we want to support."

@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_23294.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA
+(Specify Air or Sea Pouch)
+
+DISPATCH NO.
+
+<table><tr><td>SEALIS</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO Chief of Station, Habana DATE 22 MAY 57 11:14:2
+
+FROM Chief, WAD
+
+SUBJECT { GENERAL Operational
+        SPECIFIC Arthur G. VAIVADA
+
+References: HAVA-691, 25 April 1957
+HAVA-911, 7 May 1957
+DIR-16802, 10 May 1957
+
+1. Attached for your retention is a copy of Subject's new contract converting his status from that of Contract Agent C3-10 to Career Agent - C3-11, to become effective 1 June 1957. Also attached is a copy of an amendment to his current contract, providing for the payment of storage of his household effects in Habana and quarters allowances for his family in San Jose, Costa Rica, for the period Subject was absent from his post. Subject read and signed the originals of both the amendment and new contract while at Headquarters.
+
+2. Before Subject departed for the field, he was interviewed three times by one of the Headquarters staffs concerning his cover, and arrangements were made to fulfill the station's requirement for his return. However, since the polling cover originally planned for Subject could not be arranged at this time, a "notional" polling cover, adequately backstopped by a business making address and telephone number (being submitted under separate cover as Identity-A) was arranged as the alternative. Since Subject is returning to his post on a test basis, Headquarters feels that this notional cover is better than a more permanent arrangement would be; at least until it is more certain that Subject's stay will be permanent, thus avoiding any possible embarrassment via-a-vis the employer company in the event Subject is forced to leave the country shortly after arrival. Furthermore, this notional cover will allow Subject almost complete freedom to pursue his other activity with very little time and effort necessary to maintain his cover. Appropriate business letterheads and cards to implement Subject's cover will be furnished to the Station as soon as Subject is able to survey the area and notify Headquarters of the type of polling activity he plans to use. He was instructed to select a polling activity not
+
+(Relieving officer)
+
+(Coordinating officer)
+
+(Authorized Officer)
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+FORM NO. 51-29
+JUN 1949
+
+201-16881✓

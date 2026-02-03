@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_23950.png
+
+Convert to Markdowntown, claimed, had lost their way. They said, no you're a member of the
+Klan in this town. They wanted to kill him or hold him as hostage.
+Williams said, bring these people in my house and you know I won't let
+them go. He called the Sheriff and said, "Look, I have these people here
+and my people are very upset and I want you to know that I don't want
+anything to happen to our people that you have in the jail." The
+Sheriff immediately called the National Guard, State Troopers and what
+not. They couldn't hold out very long. Williams escaped. Julian Mayfield
+well known was there, a Negro writer who now lives in Ghana as a result of this.
+Minnie was a Negro woman from New York who was there
+Minnie Mallory, who was later arrested and convicted and sentenced to
+and the case is on appeal now.
+16 years in prison for kidnapping shes been in prison before.
+Williams was
+spirited across the United States—I knew vaguely where he was, but
+he kept very careful by Cubans and by Negro groups in contact with the
+Cubans to Canada, from Canada he was flown by private plane and by
+Castro himself, to Havana, where he is now.
+
+On two occasions the FBI came to me asking for information about
+Williams, and I damn sure wasn't going to give any of what I
+knew. We had tried to get in touch with Bobby Kennedy himself. I had
+sent telegrams. I even tried to get a telephone call in. Because I
+knew what was going to happen on this thing, to get some kind of Federal
+the most sickening things that I ever saw
+intervention. It was one of those sickening things.
+They wanted him out of the way. Even then they came to me later—
+two of the agents came to the FPCC office in New York. They said, we have
+500 agents. We'll get him. He'll never get away." Well, he was away at
+that point. His aunt died and they in New York around that time.
+They went to the funeral parlor where the body was and put a wanted for Williams, and stood there by
+poster on the coffin to see if he would come. Really, they should have
+out on been thrown away their heads, frankly. If it hadn't been Negroes I'm
+certain they would never have done that sort of thing. The trouble was—
+the whole attitude. Anyhow, as it is, Williams is not a Communist, he's not a
+Trotskyite. He's a former Marine, who's just had enough. Really, you
+And he's turned into a world-wide figure
+know. And now he has turned into a worldwide figure/because people like
+bother to Bobby Kennedy and others could not just try to see what could be done about
+it. It was no use, though. I mean, it's no use now. Just as much as
+I'm certainly not for anybody. Not for anybody.
+Well, that's too bad. Just like the case of these boys, Walter Bow, and
+so on. And they're not the only ones. For every Walter Bow there
+must be at least a hundred. I must say, I would no more want to live in
+the States now — you're going to really see something. I don't really

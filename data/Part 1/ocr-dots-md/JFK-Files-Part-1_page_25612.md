@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_25612.png
+
+Convert to MarkdownSECRET
+
+15 August 1972
+
+MEMORANDUM FOR: WH/FI
+
+SUBJECT : GICITRON-4
+
+a. GICITRON-4
+
+b. Subject is used by the Bogota Station to provide cover, status and funds for an operation handled by Errol R. LITHGOE, also a Cuban, who is nominally Subject's partner in the business enterprise.
+
+c. Cuban
+
+d. Legitimate businessman who was formerly in Mexico and now manages a Mexican business firm in Bogota.
+
+e. Resident alien of Colombia.
+
+f. Subject has received no training in clandestine operations, though he was involved in several clandestine Cuban activities while treasurer of the 26th of July Movement during 1957-58.
+
+g. Since Subject provides cover for LITHGOE, he is not required to utilize any tradecraft. Having his own company provides for adequate cover.
+
+h. Due to his position, Subject is probably well-known in the Cuban community, but he performs no operational tasks.
+
+SECRET
+
+1400000

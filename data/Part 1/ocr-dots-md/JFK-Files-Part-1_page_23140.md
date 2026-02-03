@@ -1,0 +1,66 @@
+# JFK-Files-Part-1_page_23140.png
+
+Convert to Markdown14-00000
+
+<table><tr><td>MESSAGE FORM<br>TOTAL COPIES:</td></tr><tr><td>FILE RIO<br>(3 INDEX)<br>Mine. 8</td></tr><tr><td>SECRET</td></tr></table>
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
+
+WIL/COG/CA/PA
+2975
+
+16 NOVEMBER 66
+
+EX FILE IN CS FILE #201-22396 L
+
+SON BY 17 PER wifeg 8
+
+DIRECTOR
+
+☑ RID COPY
+
+INFO: VR , FILE c/wH2, c/c1.
+
+☐ DESTROY ☐ RETURN TO __________ CRUISH
+
+ELITE (DATE AND TIME FILED)
+
+CITE DIRECTOR
+
+18 16 25 Z
+
+52983
+
+[CLASSIFICATION]
+
+MADRID
+TYPIC op. C.R.C.P.
+REFS: A. MADRID 9664 (IN 35507)
+B. MADRID 9267 (IN 06003)
+
+DR BUSTAMANTE MENTIONED PARA 4D REF A PROBABLY REFERS TO DR. JOSE ANGEL BUSTAMANTE. PLS ADVISE ARRIVAL MADRID BUSTAMANTE AND IDENTITY OF "COMPANION." ALSO INTERESTED IN ANOTHER SAMPLE BUSTAMANTE SIGNATURE IF CAN BE OBTAINED WITHOUT UNDUE EFFORT.
+
+END OF MESSAGE
+
+C/EUR1B
+
+RELEASING OFFICER
+
+C/WH/COG/CA/PA
+C/WH/COG/CA
+C/WIL/COG/E
+EUR/IB/C
+C/WHD
+
+COORDINATING OFFICERS
+
+SECRET
+
+GROUP AUTHENTICATING OFFICER
+
+17-4
+
+SECRET FORM
+TOTAL COPIES:
+
+<table><tr><td>FILE RIO<br>(3 INDEX)</td></tr><tr><td>SECRET</td></tr></table>

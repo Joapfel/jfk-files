@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_22788.png
+
+Convert to MarkdownSECRET
+
+30 November 1961
+
+MEMORANDUM FOR: Cover Division
+
+SUBJECT : Harold R. NORMAYR
+
+1. Harold R. NORMAYR, Career Agent, was transferred PCS to WAVE on 20 October 1961. WH/3 is terminating the LIEDBE Project which has been supporting him.
+
+2. Effective 1 January 1962, any questions concerning NORMAYR should be directed to Mr. Juul, WH/4/Personnel, 1905 Quarters Eye, ext. 8350.
+
+NED P. HOLMAN
+C/WH/3
+
+Distribution:
+
+Orig. & 1st - Addressee
+1st - Subject - NORMAYR 201/Cover
+1st - Chrono
+
+SECRET,

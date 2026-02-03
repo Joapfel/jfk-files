@@ -1,0 +1,57 @@
+# JFK-Files-Part-1_page_23893.png
+
+Convert to Markdownall these movements diminishing in size and importance.
+
+He may be going to Brussels. He is in contact with Grippa. I don't know about it. He is unhappy with Ma political line of Maspero's publication
+
+aid they had given guillotine.
+
+Apparently that was ironed out. His wife does many things that he can't do because he is a foreigner. She acts as his agent.
+
+But he doesn't have much to do with Albanians, but her visit has somewhat raised the prestige of Albania in their eyes.
+
+I think he would much rather deal with the Chinese.
+
+He may have come in contact with the Spaniards through the Algerians.
+
+He is known as a man in Switz to go to see if you want to set up a base for any movement.
+
+any kind of revolution. Can give you advice,
+
+put you in touch with the right bunch of people to sell you arms, if that's what you want.
+
+ sorts of things
+
+There was a group called Curier, extremely active in all Daney-Curial group. He had contacts with them, with the Rev Father Donde, who is former
+
+Catholic priest from Lyons, worker priests, involved with the FLM,
+
+very much on the left, now involved in various things, rebels, Congolese, with missal in one hand and machine gun in the other.
+
+always gun-running, but had very high protection in the church, his ties
+
+were with Cardinal Gasier of Lyons, who just died. Had ties with the Algerians. (The King said that)
+
+Cardinal would be informed and would money
+
+be made available to take care of him.
+
+from the
+
+Many of people were Catholic, just Catholic, some left the church. The Party didn't want anything to do with the Algerians.
+
+Some are now in Algeria. Algerian gave basis for Chinese elements in leftwing youth of France generation pro-ones
+
+who saw the total ineffectiveness of the Com party in France
+
+were disgusted with it and sought to make up for this failure
+
+and sought to make up for this failure of the Com party. I understand
+
+now that there is great conflict between new generation in youth movement, in France. As far as Spaniards concerned, suspect it came about that way.
+
+A's contacts with the Spaniards were extremely broad, many not even Marxists, Spanish Social Democrats, some of them. Broad left spectrum. He published a book about Spanish Workers. Bitterly attacked by Ken and Valdes. It wasn't Marxist at all.
+
+A fairly easy access to China's Embassy. With Ambassador? No with a man named Chu, think First Secretary. He apparently is the delegated to deal with Europeans, Communists and so on.
+
+Don't know whether A has contact with other Chinese. Some Chinese came to him. Normally a question of publishing books. And a very modest type of thing.

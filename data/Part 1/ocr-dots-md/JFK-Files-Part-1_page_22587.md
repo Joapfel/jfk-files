@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_22587.png
+
+Convert to MarkdownREPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No. (G)

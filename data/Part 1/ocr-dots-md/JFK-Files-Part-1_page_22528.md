@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_22528.png
+
+Convert to MarkdownSECRET-EN3 ONLY
+
+event of a flare-up in the Dominican Republic. On 30 March, fearing
+that Cuba might be involved, there was talk of evacuating U.S.
+civilians from Guanahano. There was also discussion of the
+possibility of sealing off the land entrance to the Dominican Republic
+from Haiti and of the problem of providing asylum for Trujillo. On
+7 April, there was further talk of sealing off the country if Trujillo
+fell, and an appraisal was made of the chances of his leaving
+willingly:
+
+> "... it is evident that Trujillo will not consider making any arrangements for orderly succession to himself, but that he will either hang on to the bitter end or flee the country on short notice, as la Batista."
+
+9 April 1960
+
+State sent a cable to Farland through CIA channels, from which
+the following is an extract:
+
+"Could you, if so instructed, make appropriate arrangements within next few weeks with appropriate civil and military dissident elements to take over the GODR? You would be authorized to indicate to them that as soon as they had seized power they should immediately request United States recognition, and ask for United States military assistance under Article Three of the Rio Treaty in the event of actual or threatened Castro-sponsored invasions or of threatened insurrection incited by pro-Castro or pro-Communist elements within or outside Dominican Republic . . .
+
+"What, if any, aid would be essential to dissident elements prior to takeover . . . ."
+
+SECRET-ETS ONLY

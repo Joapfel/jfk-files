@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_23929.png
+
+Convert to Markdownto meet(?) and then
+they couldn't keep up (with it).
+
+(Did Sinet bring him to Cambridge's Revolution)
+
+Yes. He was delegated to do the work of the English edition.
+Sinet couldn't do it and this was before the French edition was started
+in France, so it was Strelkoff who did it. He came to Lausanne for a couple
+of days to do the layout and so on. Then he found someone in Lausanne,
+then major a Swiss graphic artist, whose commercial artist, who did the art part of
+the work. Strelkoff came to oversee it.
+
+That's about all there is about him. It's not very much, really.
+He's not very active politically. His life centers around females, jazz,
+night clubs. He would get drunk occasionally. He shares Sinet's tastes
+there - and women.
+
+Now after Chen, Guerbillon and Sinet and Strelkoff, you have really
+reached the end of the editorial staff as such. There was an editorial
+board which was a fiction. It had names of people like Babu on it. Babu
+saw Verges actually twice. He never contributed anything to the magazine
+except one interview which I did with him, in Geneva, when he was at the
+CONFERENCE and UN office on Trade Development.
+
+(Babu's biographic details are well enough known but how did he come
+to get involved in Revolution in the first place.)
+
+He was suggested by Denis Pombegrin, Denis-Pombereau is now the delegate
+from Tanzania to the UN. Pombegrin has spent a year at Phnom Penh.
+Denis Phombeah is a former student - he's a Tanzanian diplomat now,
+He is Tanganyikan by birth. He was the secretary of the Committee of
+African Organization here in London for a number of years. This was a
+Ghana-subsidized attempt to group together and unify all of the various
+African national groups. He's married to a girl by the name of Bidiboma. She is
+a Jewish girl from London. Her parents also were leftists. But she is
+very much anti-Communist. Dennis has very close ties with the British
+Communist party. He was a member of their African student committee.
+
+They had a committee headed by a woman named Kay Beauchamp Beecham who was delegated to sort of watch over the African students and they didn't have very much success. But Dennis was able to milk them, the Ghana Government, by getting a subsidy, plus he had direct ties with the Soviets. He was a graduate student at Moscow University under Professor Potteckii, Pottekin (en p) is now dead, as you know, he was the head of their African studies department. He was getting his doctorate. I think it was in anthropology, I don't know exactly. But he was one of the very few persons
+
+14-00000

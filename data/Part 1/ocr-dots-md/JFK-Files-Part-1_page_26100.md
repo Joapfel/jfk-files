@@ -1,0 +1,94 @@
+# JFK-Files-Part-1_page_26100.png
+
+Convert to Markdown14-00000
+
+<table>
+  <tbody>
+    <tr>
+      <td>MESSAGE FORM</td>
+      <td></td>
+    </tr>
+    <tr>
+      <td>TOTAL COPIES</td>
+      <td>2</td>
+    </tr>
+    <tr>
+      <td colspan="2">SECRET</td>
+    </tr>
+  </tbody>
+</table>
+
+ORIG:
+UNIT: WH/3/V
+DET: 4521
+DATE: 13 MAY 1968
+
+BOUTING AND OR INITIALS, V.P. BY
+
+<table>
+  <tr>
+    <td>1</td>
+    <td>2</td>
+    <td>3</td>
+    <td>4</td>
+    <td>5</td>
+  </tr>
+  <tr>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+  </tr>
+  <tr>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+  </tr>
+  <tr>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+  </tr>
+  <tr>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+  </tr>
+</table>
+
+CABLE SECRETARIAT DISSEMINATION
+
+BY 15 PER.
+
+CONF., WH 8 ☐ RID COPY NO 14 '73-31-2 WH/COG 8, C/10A,
+
+(cipher code)
+
+(Date and time filed)
+
+ relays
+
+(Reference number)
+
+CITE DIRECTOR
+
+TO PARRET CARACAS
+
+REF: CARACAS 9588 (IN 08516) 300985
+
+1. CONCUR SGSWRL AMCLEVE-15. IN ADDITION AREAS OUTLINED REF BELIEVE AMCLEVE-15 SHOULD BE TESTED ON FOLLOWING SUBJECTS:
+
+A. STATUS OF HIS RELATIONSHIP WITH HIS BROTHERS, IDEN A AND IDEN B. IDEN B IS BELIEVED TO BE A DSE AGENT AND IS TRUSTED BY CUBAN GOVERNMENT TO TRAVEL ABROAD. NOTE AMGLEVE-15 CONSISTENTLY FAILED TO LIST IDEN B AS EMPLOYED BY CUBAN GOV IN PRO'S FILLED OUT IN 1961, 1965, AND 1966 ALTHOUGH IDEN B WAS EMPLOYED BY CUBAN TELEPHONE COMPANY DURING THIS PERIOD. AFTER PHONE CALL FROM FAMILY IN HAVANA IN SEPTEMBER 1966, AMGLEVE-15 TOLD STATION JMWAVE OF IDEN B AND SAID HE HAD LAST SEEN HIM IN APRIL 1961. THIS AT VARIANCE WITH 1961 PRO I WHICH SAYS AMGLEVE-15 ARRIVED IN U.S. IN FEBRUARY 1961.
+
+B. REALIZE STATION WISHES AVOID QUESTIONS CONCERNING AMGLEVE-15'S EXTRA-CURRICULAR ACTIVITIES WHICH DO NOT DIRECTLY RELATE TO HOSTILE ACTIVITY AGAINST WAIFIRM; HOWEVER, BELIEVE IT ESSENTIAL THAT TO CLARIFY DEGREE TO WHICH AMGLEVE-15 INVOLVED IN
+
+CONT...
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

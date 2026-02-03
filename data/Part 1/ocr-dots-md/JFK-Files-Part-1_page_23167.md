@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_23167.png
+
+Convert to Markdownmétodos de exploración radiológicas, como son las colecistografías y pie-
+lografías, son muy difíciles de hacer por la falta de los medios de cono
+traste adecuados.
+
+Las consultas privadas están llamadas a desaparecer en el régimen comuniista según ya proclaman a todos los vientos, los jerarcas del gobierno y por una razón muy sencilla; porque, las consideran centros de competencia a la medi-cina oficial, pues todavía el médico privado a pesar de todos los obstáculos se esfuerza en dar al paciente una medicina de calidad superior a la que es-te encuentra en los Centros Hospitalarios y asistenciales del Régimen.
+
+Aspecto clasista:
+
+Los médicos cubanos, como clase habían llegado a una organización modelo en su género, que fué copiada y sirvió para organizarse a muchas instituciones similares de otros países, tal era el Colegio Médico Nacional (antigua Peie-ración Médica de Cuba) que agrupaba hacie el año 1959 unos 7,000 médicos cu-banos. Así como bajo su actuación se obtuvieron una serie de conquistas la-borales y un ansiado Retiro Médico para la hora del desoanso y de la vejez.
+Había un Código de Moral Médica y funcionaba dentro del Colegio, una serie de Tribunales de Disciplina, que velaban por el estricto cumplimiento méaco, es decir agrupaciones con criterios disímiles en cuanto a la orientación de la medicina como clase, independientes de todo lo que significara militancia ao-tiva dentro de la política nacional. La dirigencia colegial se elegía a tra-vés de elecciones democráticas, en las que participan todos los médicos, re-partiéndose los puestos ejecutivos de acuerdo con la representación proporcio-nal de cada partido. Es decir que como en toda organización democrática, ha-bía una mayoría que gobernaba y una minoría alerta y vigilante a cualquier transgresión de las leyes colegiales.
+
+Todo esto ha desparecido desde el mes de Abril de 1966, en que el régimen de Fidel CASTRO declaró disuelto el Colegio Médico Nacional y extinguida toda

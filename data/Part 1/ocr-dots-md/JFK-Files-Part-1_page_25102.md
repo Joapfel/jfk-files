@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_25102.png
+
+Convert to MarkdownSECRET
+
+SPR PREPARED BY: Vera T. REISCARVER
+DATE: 15 February 1965
+201 NUMBER: 30502
+A-NUMBER: 18973
+
+1. NAME: Valeriy Vladlairovich KOSTIKOV
+
+2. DPOB: 17 March 1933, Moscow. (1)
+
+3. CITIZENSHIP AND PASSPORT DATA (including past citizenship and passports, with dates):
+
+Soviet citizen.
+
+Service passport no. C-64352, when he arrived in Mexico City on 19 September 1961. (2)
+
+4. ETHNIC ORIGIN:
+
+Unknown.
+
+5. OTHER NAMES USED (with dates, circumstances, DPOB, citizenship and passport data, if appropriate):
+
+Unknown.
+
+6. CURRENT POSITION (non-intell):
+
+When Subject arrived in Mexico City, he had employee status. Later Subject was raised to the rank of Vice Consul and, since March 1963, Subject has held the rank of Attache in the Consular Office. (3)

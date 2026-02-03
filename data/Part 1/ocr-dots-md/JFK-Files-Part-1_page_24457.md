@@ -1,0 +1,84 @@
+# JFK-Files-Part-1_page_24457.png
+
+Convert to MarkdownSECRET/NO FOREIGN PRESS RELEASE ONSERVER (FOR INTERVIEW) DATED 06-12-92 URBAN ADVOCATE
+
+E. Italy - Represented by delegates from the Italian Communist Party and the Socialist Party of Proletarian Unity (PSIUP). They decided to be in an observer status, although they were entitled to be participants by the fact that they belong to a Palestinian Solidarity Committee in Italy. The only open political opposition to the overall political line of the Congress came from the Italians who passed out a statement at the final session denouncing the importation of left-wing quarrels into the issue of Palestine.
+
+(Source Comment: This delegation had been sent to Algiers, F by the London-based PLO representative, (Fouf A rmanazi, F who is apparently the editor of the newspaper "Free Palestine". The newspaper, however, lists its editor as "Aziz Yafi" Armanazi had supplied the airfare for this delegation because he did not want the PSC people to go to Algiers under the arrangements of Manchanda. All of the PSC people were young and no match for Manchanda who, in the final session of the Congress, was able to isolate them completely inasmuch as they opposed the recognition of Al Fatah and the establishment of the information bureau in Algiers.)
+
+REDACTEDORIGINAL DRAFT REVISED URBAN ADVOCATE
+
+FROM TOP: MEN AND WOMEN
+
+**SEX M**
+
+(CIT:UK)
+
+**CIT. UK**
+
+DELEGATION FROM THE PALESTINE SOLIDARITY CAMPAIGN ('PSC') AS FOLLOWS:
+
+(1) Roger Young, treasurer of Friends of Palestine which is now affiliated with the PSC
+
+(2) Norman Templeton, of the Friends of Palestine
+
+(3) Abdullah Yasaceo, of the Friends of Palestine
+
+(4) Louis Eakes, of the Young Liberals
+
+(5) an unidentified girl friend of Eakes
+
+(6) (fourth) Hallier of Agit-Prop (a PSC member)
+
+(7) (fourth) Walker, who came as an observer
+
+(8) Bill Gunn, of Rev. Birch's Communist Party of Britain-Marxist-Leninist and of the PSC
+
+(9) Dave Hundeel, of the Revolutionary Socialist Students Federation (ROSF) in London
+
+The PSC People's Party of the Republic of Morocco, also known as the Istikal Party or the Istikali Party, was founded on 14 November 1971. It was the first political party to be established in Morocco, and its formation was considered a major event in the history of the country. The party was led by Hassan al-Azahr, who served as the party's first secretary. In 1973, the party won control of all but one of the country's three municipalities, and it continued to rule until the mid-1980s. The party's name was changed to the Istikal Party in 1986, and it continued to be the dominant political force in Morocco until the mid-1990s, when it was replaced by the MoUSA party.
+
+SECRET/NO FOREIGN PRESS RELEASE ONSERVER (FOR INTERVIEW) DATED 06-12-92 URBAN ADVOCATE
+
+SECURITY CIRCULATION ONLY
+NOT FOR DISTRIBUTION TO THE PUBLIC
+PROHIBITED IN ALL COUNTRIES WHERE IT MAY BE RESTRICTED OR PROHIBITED BY LAW. DO NOT DELIVER TO ANYONE ELSE.
+
+# BACKGROUND ONLY
+
+**SEX M**
+
+(CIT:UK)
+
+(7) Max H. Unité, teacher in London who came as an observer for the Schools' Action Union
+
+**SEX M**
+
+(CIT:UK)
+
+(8) Matt L.iga, manager of the Scottish Vanguard Workshop at 27th Paisley Road, Glasgow, which is owned by the Scottish Workers Party
+
+**OCC:** BOOKSHOP MANAGER ASSOCIATED WITH TRADE UNIONS
+
+(9) David R. Banks, from the Scottish Workers Party can live at 6G Lanhee Street in Edinburgh
+
+**SEX M**
+**CIT. UK**
+
+Delegation from the Palestinian Solidarity Campaign ('PSC') as follows:
+
+(1) Roger Young, treasurer of Friends of Palestine which is now affiliated with the PSC
+
+(2) Norman Templeton, of the Friends of Palestine
+
+(3) Abdullah Yasaceo, of the Friends of Palestine
+
+(4) Louis Eakes, of the Young Liberals
+
+(5) an unidentified girl friend of Eakes
+
+(6) (fourth) Hallier of Agit-Prop (a PSC member)
+
+(7) (fourth) Walker, who came as an observer
+
+(8) Bill Gunn, of Rev. Birch's Communist Party of Britain-Marxist-Lenin

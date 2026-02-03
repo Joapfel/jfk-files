@@ -1,0 +1,100 @@
+# JFK-Files-Part-1_page_25307.png
+
+Convert to MarkdownCONFIDENTIAL
+
+ALVARADO, Hector
+Zua 17 (100% de la lechería)
+46-50-64
+
+NITRA, Carlos
+B no.510 - 25 y 27
+Vedado & Habana. Cuba
+F0-2554
+
+ALVALEZ, /Dr/
+19-03-55
+
+CASTRO, Orlando
+Infanía 53.
+Apto 522
+Habana, Cuba
+
+CARRECO, Rodolfo Armad
+R. Royalty
+Lab no.29 (19-42-22)
+18-42-20 ('1900-)
+
+GARZAAS, Lorenzo
+R. Cuba 19, Apto 801,
+(Las 300 Ests. Vibora
+Haban.)
+
+RENANZAS, Arsacio
+La. Penitenciaria 27
+Colonia Morelos . / ... /
+22-38-54
+
+ROMAN, (Dr) Alfonsó
+Castro Xadero 54
+Apto 58
+"Edif. San Llo." . Revue. O.E.
+
+Blanco
+Luis Miyá 87. 4to. 116
+Apto-105
+21-41-99
+
+CABALLERO, Catalina
+(551/19, F/257)
+Lípes 50-295 . (revue.. 6-9)
+26-07-20
+
+BOUDET, Colispio
+Émilio Carranza 93
+Col. Mocleannis. / ... /
+22-27-29 (Cafetería)
+
+CALZADILLA, Miguel
+Victoria 94, Apto 1 . (revue. 613)
+18-46-15/Traza(?)
+
+BOSS, Juan
+Rosa 57-(15)
+36-52-54
+
+DURRER, Lydia
+18 no.512 Apto 15
+Vedado & Habana. Cuna.
+F-9022
+
+BOEIA, Alfonso
+Cadiz 215-B. (1945)
+
+DARD, Cartoya
+14-01-61
+
+DUBOIS, Élia (altona)
+Godines no. 5118, Apto 4.
+Esq. a 35 Mariano, Habana, Cuba.
+
+PENIEZ R.
+14-06-78
+
+FOCHA, David D.
+21-95-24
+Etx 55-C, Parla 6-5.
+
+CAMERÍA, José (para DIAZ, Elvando).
+1597 Webster
+Corner 170 Bronx, N.Y.C.
+
+FRANCO, Mary
+Alejandro Duran 151
+also Tenancingo 8, Montes
+de Gca. y Juan Escuti.
+14-11-17
+(Col. Polanco & Col. Condera)
+
+CONFIDENTIAL
+
+14-00000

@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_24437.png
+
+Convert to MarkdownLionel MORRISON and Richard GIBSON
+
+OPERA-411
+
+MORRISON said GIBSON was worried because he did not know exactly what information MORRISON has about him. There was a confrontation of the two at a meeting of the Race Relations Institute at which GIBSON refused to sit with MORRISON. MORRISON asked him on that occasion to report the matter to "his masters", implying that GIBSON was anagen provocateur.
+
+3. MORRISON says Sara told him that they live far above their means but are never in debt, and she could not understand it. That is why she had started a nursery school, and no longer did any work for GIBSON. Previously she had taken part in a number of GIBSON's activities, for instance "the MARCHANDA attempt to break up the Vietnam Solidarity Campaign".
+
+4. Once GIBSON went to the Foreign Press Association claiming that MORRISON had forged an application form and was not working for "Zambian Mail". MORRISON is now a weekly contributor to that paper but was not when he first applied to the F.P.A. MORRISON says that at present GIBSON and his wife are on holiday for two months in Italy.
+
+28-20-833039 A secret and reliable source states that TARIC ALI is certain that GIBSON is working for the Americans. He claims that the Chinese have documentary proof of this, and for that reason they removed him from the editorial board of "Revolution", the Paris magazine they were financing. GIBSON had then come to London.
+
+2. TARIC ALI says GIBSON is very wealthy but no-one knows where his money comes from. From time to time he hands out donations to sympathisers saying that they are "on behalf of the Chinese".
+
+24-10874b TARIC ALI also has suspicions that Robert WILLIAMS, "who was thrown out of both Cuba and Peking" may be working for the C.I.A.
+
+S/C ATT.1 to OEPA-2115, COPY 200-124-156/3
+
+APRIL 1960
+
+REPRODUCIBLE BY CABLE

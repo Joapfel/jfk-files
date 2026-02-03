@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_25834.png
+
+Convert to MarkdownTSSR EVALUATION
+
+NAME: Raymond H. GERENDE
+
+DIVISION: WH
+
+SUBJECT: Photography Briefing
+
+DATES SUBMITTED: 3 July - 0930-1230
+
+On 3 July 1957 a Photography briefing was given to Raymond H. GERENDE, Mr. GERENDE was briefed on film processing, printing, telephoto lens, fixed and mobile surveillance. He was shown the following equipment: Leica, Exacta, Nikkons, Minox and Robot cameras, the hidden device for Robot Camera, Horse 100 ft. tank and Nikor Multiple tank. The briefing lasted three hours.
+
+GEORGE O. KELLNER
+Tss/TID Instructor
+
+Please return two copies of this form to TSS/TD for covert distribution.
+Please return two copies of this form to TSS/TD for covert distribution,
+
+OVERT DISTRIBUTION:
+
+1 - Senior Staff Training Officer
+1 - Division Training Liaison Officer
+1 - OTR/Registrar
+1 - Office of Personnel
+
+COVERT DISTRIBUTION:
+
+1 - Operations Officer
+1 - TSS/TD
+1 - Senior Staff
+
+S-E-C-R-E-T

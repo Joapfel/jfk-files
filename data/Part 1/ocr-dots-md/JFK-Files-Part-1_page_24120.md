@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_24120.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: CILIBERTI Conversation with RNSLIVER 26 April Concerning His Meeting with OREBONY/1
+
+1. On 25 April BASTEAR told us that RNSLIVER was in London and was planning to meet with OREBONY/1. BASTEAR accordingly suggested that RNSLIVER be debriefed by the undersigned the following morning. Accordingly I met with RNSLIVER for about one hour, from which meeting the following highlights seem worth recording:
+
+    A. I told RNSLIVER that we (WOFACT) had been interested in OREBONY/1 at the time that he was writing for China Quarterly concerning his dispute with the editor of Revolution, Jacques Verges, but that we had lost tract of him of late. Now that we are in OREBONY/1's home town, RNSLIVER was told that we and Headquarters would be interested in any information on OREBONY/1 which could be reported as a result of such meetings as RNSLIVER had had with him.
+
+    B. RNSLIVER said that he had told Leo Labedz that he would like to meet Ibrahim to gain some understanding of what was going on in the African exiled community, particularly as it related to theino-Soviet split. Labedz said that he thought that RNSLIVER would do much better by talking to OREBONY/1 whom he, Labedz, said was one of the few people around from whom Labedz could learn anything.
+
+    C. RNSLIVER met OREBONY/1 at OREBONY/1's house. RNSLIVER did not have a complete roster of those who were there to participate in what RNSLIVER described as a "political bull session". He remembered only (in addition to himself and OREBONY/1) of Matthew Nkoana and a girl from Mexico City named Sucesos, who he said knew a great deal about guerrilla goings-on in Venezuela and whose address he said was Calzada, Tacuboya 103, Mexico 18. RNSLIVER said that Nkoana said practically nothing throughout the evening, apparently because he found RNSLIVER'S presence odd and unnerving.
+
+    D. RNSLIVER was as impressed with OREBONY/1 as Labedz had predicted he would be. He described OREBONY/1 as remarkably knowledgeable concerning Chinese factions of Communist movements in Western Europe and Africa. He said that OREBONY/1 had described his recent trip to Nicosia and Cairo, had mentioned that he had visited Dar-es-Salaam, that he knew Jacques Grippa, and that he intended to visit Stockholm in connection with the Pussell Tribunal and a possible Stockholm visit by Robert Williams.
+
+SECRET

@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_25197.png
+
+Convert to MarkdownSource: AEWIGWAG/2
+Date Acquired: 13 August 1966
+
+Tatyana PHILIPOV or PHILIPOVA
+
+Has an American passport. She was employed by Waldemar VICHNEVSKY, AFP correspondent in Moscow, as a governess for his children. Source claims Subject was a bad children's nurse and very stupid. VICHNEVSKY wanted to fire her. She always goes around with Soviet men. She went off for a three day weekend and was gone for eight days. VICHNEVSKY reported this dis-appearance to the French Embassy.
+
+SECRET
+
+15 SEP 1966

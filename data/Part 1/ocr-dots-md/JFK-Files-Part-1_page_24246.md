@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_24246.png
+
+Convert to Markdown# -4-
+
+All functions. These are a typical New Yorker's habits. The instructor, also a New Yorker, is guilty of the identical actions. We are highly kinetic in our movements and as for looking both ways while crossing a cross-way street, we follow the old Marine Corps adage: "There's always one B.O.B. this doesn't cut the ward". By whosebst coincidence, when the instructor was on his way to the airport site to deliver the surveillance team's report, he violated his own rule of looking both ways in crossing a cross-way street and was tazed over by a hippie on a loaded bike -- going the wrong way. Only the large heavy film case the instructor was carrying kept him from being knocked flat.
+
+15. Everypast, PICE is now fully cognizant of the appearance that his actions create and will watch it in the future.
+
+16. Once last note on the counter-surveillance exercise: He chose his positions well and he encounfaged his actions beautifully. For example, the instructor called the surveillance team for a quick feedback on the first exercise and caught the man just as they returned to their office. They got on different phones for a three way conversation. They reported one incident as follows: "To rapid were PICE's movements, that time he met a friend of his, he hardly passed to speak with him, just waved him off". The second surveillance: "No, it didn't look like that at all, to me. To me it looked like this Indian-looking person stopped at the Rite Aid and asked him for directions and PICE gave them and just said about his business". PICE's own report, which he wrote up before he learned about the two different interpretations of the incident: "Where I stopped a foreign-looking man, apparently Indian in origin and asked him for the Museum which I knew perfectly well is on 55th Street...I turned around so he pointed south to 55th Street and spotted the same man in the grey suit, now holding his hat in his hand".
+
+17. In the second exercise, there were two items of note: One, the team was surprised to note in PICE's report that PICE even had the idea of the bank that the surveillance picked up when he followed PICE into a bank store. Second, when the exercise was over, the team compared notes and decided that PICE may have made two of them but could not possibly have made the third one. The team captain, on reading PICE's report, was stunned to see that PICE had indeed made the third one also, but good.
+
+18. PICE had an elicitation exercise (in addition to the development-acquisition series) with an instructor in the East York office. After relating the fine job that PICE had done, the instructor's report concluded: "A first rate performance by PICE, who's obviously been around — both coverwise and for real".
+
+19. His choice of meeting places with his agent could not be estimated. For one, he chose an East Side restaurant (where diplomats, as Mr. Smet held himself out to be, would properly be seen dining).

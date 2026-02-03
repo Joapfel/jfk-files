@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_25884.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 560<br/>8 AUG 61<br/><br/>TO : DIRECTOR<br/><br/>FROM : MEXICO CITY<br/><br/>ACTION : C/BELL 5 (TEMPO COPY SLOTTED FOR BELL AT 2140, 8 AUG<br/><br/>INFO : DDP, COP, ADDP/A, L/M 2, S/C 2</td><td><div style="text-align:center; font-weight:bold;">SECRET</div><table border="1" style="width:100%; border-collapse: collapse;"><thead><tr><th colspan="3" style="text-align:center;">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td><td rowspan="3" style="writing-mode: vertical-rl; text-orientation: mixed;">JALIN</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr><tr><td colspan="3">AUG 9 0048Z 61</td></tr><tr><td colspan="3">- PRIORITY</td></tr><tr><td colspan="3">IN 10213</td></tr></tbody></table></td></tr></tbody></table>
+
+FRITY DIR WAVE CITE MEXI 2621
+
+JNZIF RYBAT
+
+REFS: A. MEXI 3565 (In 4-75-39) B. MEXI 8522 (In 4-42-76) C. HMMW V5598
+
+1. ON 6 AUG 61, LITAMIL-6 (IDEN A) WENT HAVA VIA MEXICANA
+   ATTEMPT MAKE CONTACT HIS FRIEND LIOOZE-1 AND CARRY OUT
+   INSTRUCTIONS GIVEN HIM BY LITAMIL-5 IN PRESENCE CO RE CONTACT
+   SABOTAGE TEAM STILL INTACT INSIDE CUBA. LITAMIL-6 ALSO CARRIED
+   (IDEN C) WHICH WILL BE USED AS "CODE BOOK" WHEN CUBA/MEXI RADIO
+   COMMO ESTABLISHED. LITAMIL-1 WHO RECRUITED LITAMIL-6 ONLY ONE
+   SHARE HIS ATTEMPT CONTACT LIOOZE-1.
+
+2. L-5 TOLD L-6 GO HAVA MAKE CONTACT WITH ENRIQUE COLLAZO (NOT KNOWN WHETHER SUBJ MEXI 7723) WHO LIVES CALLE "A" 509 VEDADO, HAVA. L-6 CARRIED OTHER HALF MEDICAL FLYSHEET AS "BONA FIDES" WHICH PREVIOUSLY TAKEN TO COLLAZO BY DIEHR LAEGENFELDER (NO TRACES) GERMAN DRUGGIST WHO WENT HAVA 3E JULY PER L-5 INSTRUCTIONS. COLLAZO WILL TAKE L-6 TO "JESUS BADAL" (PSEUDO) WHO
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_23494.png
+
+Convert to Markdown(7)
+
+Pan-American Foundation, Inc.
+P.O. Box 3587
+University Station,
+Gainesville, Florida
+
+June 30, 1954
+
+Dear Mr. Crozier,
+
+I am pleased to inform you that the council of the Foundation has met and agreed to grant your request for assistance for the amount of $2500 for the school year 1954-1955, which will commence upon a receipt of notice of your acceptance by the University of Habana. The Foundation, however, reserves the right to cancel the grant upon due notice, a provision which I am sure you will understand.
+
+All of us here hope that you may find your work at the University of Habana both agreeable and profitable, and that you will comply without interest in you by furnishing brief periodic reports of your work there.
+
+In event it should not be too inconvenient for you to stop at Gainesville on your way to Habana, I should be pleased to meet you personally.
+
+SECRET
+
+201-168881

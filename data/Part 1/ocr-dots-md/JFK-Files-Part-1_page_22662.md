@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_22662.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+ORIG : S. D. BURTON
+UNIT : WHD
+EXT : 2555
+DATE : 27 MAY 1959
+
+TO : MEXICO CITY
+FROM : DIRECTOR
+CONF : WH 5
+INFO : CI, CI/OPS, CI/IC, CI/OA, S/C 2
+
+<table><tr><td colspan="2">663 ES/JLS</td></tr><tr><td>ROUTING</td><td></td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+
+<table><tr><td rowspan="2">PRIORITY<br/>X<br/><br/></td><td>DEFERRED</td><td>MAY 27 '20</td><td>4:59:59</td></tr><tr><td colspan="3">DEC'D CABLE SECT.</td></tr><tr><td rowspan="2">OPERATIONAL<br/>IMMEDIATE</td><td>PRIORITY</td><td colspan="2"></td></tr><tr><td>INITIALS</td><td colspan="2"></td></tr><tr><td colspan="4"><hr/></td></tr><tr><td>CITE DIR</td><td colspan="3">28397<br/>28397</td></tr></table>
+
+TO MEXI INFO SANJ REF: MEXI-3931 (IN 21594)*
+
+HQS CONCURS PROPOSED RECRUITMENT PITCH AND TRAVEL REF.
+
+END OF MESSAGE
+
+*WHD CONTENT: SUGGEST NOEMAYR BE AUTHORIZED ATTEMPT RECRUITMENT OF BROTHER-IN-LAW, INACTIVE COSTA RICAN CP MEMBER, NON CARETAKER OF NOEMAYR HOUSE IN SAN JOSE. NOEMAYR AND FAMILY DESIRE TRAVEL TO SANJ FOR PERSONAL REASONS ON 14 JUNE.
+
+COORDINATE WITH:
+
+WH/CA/S
+CI/ICD/R. WILLIAMSON
+
+201-168881
+(BY PHONE)
+
+J. C. KING, C/MID
+RELEASING OFFICER
+
+COORDINATING OFFICER
+
+SECRET
+
+AUTHENTICATING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_26379.png
+
+Convert to MarkdownVisión de Hispanoamérica
+
+CONFRENCIA DE VICTO RICO GALÁN
+
+Sobre el Centro de Re- semblenia Cultura, Estudios hispanos en America del Sur, se discute la importancia que tiene para esta confe- cionada, y el dialogo que entre el Presidente Rico Galán, Lo- narco, y el presidente electo de Colombia, sobre el problema de mayor importancia— ¿qué cosa litera- tural elyo, o elغيé, el que habla, y el poderoso que se le ve? Y si la debati- zión es el problema de mayor importancia —¿qué cosa litera- tural elyo, o elغيé, el que habla, y el poderoso que se le ve? La debati- zión es el problema de mayor importancia... —Iugó elama: acercá- do el concepto de la saia del Seguro Social.
+
+Porque de breve presente- nce del conferenciante por el Sr. Mario Méndezes Rodríguez, no que advirtió que se podía estar o no de acuerdo con el Sr. Rico Galán, pero que el Centro defendía el derecho de todos a expresar su opinión libremente, lastimando su diurnación el inoluctual visitante
+
+s. X s
+
+Estas que el desarrollo de una sociedad文明, es decir, es la política, que es lo que propie- gate o entiende poreme- nencia, la del Sr. Rico Galán fue realicada un diálogo con el思想ista Rodriquez, como el auditorio Lastima que tan lú- teramente conversaba con vies- ros mutiladas desde el prisionero, el coofesorociado adverito que encendió e encendió articular el razonamiento del Teatro del Se- guro Social, con la intención de sacar la política mexicana. Das condición al tuó reclusión a grantar una América Latina In-
+
+completa, de la cual erige una auténtica providencia... extraen pe- trión, sino puso de magnífica tamaño que a. Centro de Renovación Cultural tendrás que proceder así local para sus actividades, donde no se punga abanque tropiezo, d. otro de la ley, a la libre manifestación de las ideas.
+
+Luego de una satisfação expre- siva de las condiciones que priva a Hispanoamérica el Sr. Rico Galán subrayó que la amplidad y diversidad del tema han tenido inestimable para toda confereciatante, por lo que prefería desarrollarlo por me- dia de preguntas y respuestas. Esta modalidad comanicó inmedi- ta, tan matria a la velada, maxime que el intelectual visitante para enforcar ma- jor los tópicos, recordó que la suerte y el trato que se dispen- saba a Latinoamérica cambia- ron radicalmente desde el mo- mento mismo en que Fidel Cas- tano rompe con el totalaje de las Estados Unidos. Entonces se nos empareza a empuinar de muy diferentes modos, hasta con la Alianza para el Progreso"
+
+X X X
+
+A partir de esta desmitificación, higiene práctica pura, el conferenciante, se pláctica gota siempre o reu siempre sobre el mismo ojo el imperativo de los Estados Unidos como causa fundamental y alegremente de todos nuestros más. Las pro- vocatorias ergues o oraciones, por la autonomización que eras formuladas, era el propós- ito de hacer una periodista esferárica en Italia, en la Argentina, en Colombia, en Par- ticipación, on�a sin el santo ofa- nticismo de sergre (casi), o las respetadas, redactadas por el Sr. Rico Galán con el- mite de primeraatcha, y a verlo bien para atacarme por su parte, con un y a. de u- bles que el思想ismo激怒- nociario, el ateísmo, el individualismo
+
+Sobre el enlace de la Sede en Nueva York, se discute la importancia que tiene para esta confe- cionada, y el dialogo que entre el Presidente Rico Galán, Lo- narco, y el presidente electo de Colombia, sobre el problema de mayor importancia —¿qué cosa litera- tural elyo, o elغيé, el que habla, y el poderoso que se le ve? La debati-

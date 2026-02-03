@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_26879.png
+
+Convert to Markdown<table><thead><tr><th>Page</th><th>Status</th></tr></thead><tbody><tr><td>1</td><td>Open</td></tr><tr><td>2</td><td>Half Open</td></tr><tr><td>3</td><td>Closed</td></tr><tr><td>4</td><td>CLOSED</td></tr></tbody></table>
+
+SECRET
+
+DIR CITE WAVE 1916
+CHAPPIE LITHRUSH PORUMER
+LORENTZ MIAMI SENDS
+
+878-85M68922
+
+1. WAVE TRACES NON-DEROG SUBJS 98, 87, 88 AND 97 (ANTONIO GONZALEZ REPEAT GONZALEZ, TORRECILLA). REQUEST POA'S.
+
+2. WAVE, POLICE-CREDIT AND ODEWY TRACES NON-DEROG SUBJS 98 (RAFAEL JUAN CASTILLO REPEAT CASTILLO, LEYVA), 99 (GUILLERNO P. GONZALEZ REPEAT GONZALEZ, HOLINA) AND 95 (ANTONIO ORLANDO SALAS REPEAT SALAS, BARO.)
+
+SECRET
+
+CFB
+
+SECRET

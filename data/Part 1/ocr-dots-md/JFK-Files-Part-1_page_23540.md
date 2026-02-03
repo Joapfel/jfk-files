@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_23540.png
+
+Convert to MarkdownSECURITY INFORMATION
+
+SECRET
+
+29 February 1952
+
+MEMORANDUM FOR: STC/SPB
+FROM: WBD
+SUBJECT: AMPHODARCH
+
+1. Reference is made to memorandum from this office dated 15 February 1952, concerning an individual connected with Project AMPHODARCH.
+
+2. In accordance with our paragraph 4 of the memorandum, Part II PRO is attached herewith and forwarded for your information. Please return it when no longer needed by you.
+
+Wm. M. WHEELER, JR.
+ACWH
+
+Attachment
+
+WR/ADM/EB/jep
+
+Distribution:
+
+Orig & 1: Addressee
+cc: Chrenko
+SD/RE (2)
+
+STG7

@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_24155.png
+
+Convert to MarkdownRICHARD JIBSON
+
+30, Stockleigh Hall
+Prince Albert Road
+London, N.W.8
+Tel.: PRI 8778
+
+Age: 34. Born: Los Angeles, Calif., U.S.A., 13 May 1931.
+
+Married - wife English. Three children - ages 7, 9 and 5 nos.
+
+**Education:** Primary schools, Philadelphia, Pa., U.S.A.
+Central High School, Philadelphia, Pa.
+Kenyon College, Gambier, Ohio (read English lit.)
+University of Rome (Italian lit., 1951-52)
+Sorbonne, Paris (France studies, 1955)
+Columbia University Graduate School, New York
+(CBS Fellowship, 1960-61)
+
+First entered journalism in 1950 as reporter-clerk for <u>Phil-delphia Afro-American</u>, a Negro weekly.
+
+In 1951-52, while attending the University of Rome, I worked as legeman for Edward Stevens, then chief of the Editorial Department of the Christian Science Mon每日 of Boston. I also did part-time work -- English-language public relations -- for Italian Films Export, a semi-governmental Italian agency for the export of Italian films to English-speaking countries.
+
+1953-54: drafted into U.S. Army. Served as non-com in Trieste, West Germany and U.S.A.
+
+1955-58: English-language editor, Agence France-Presse, the French national news agency in Paris. Also wrote for the Agence Intercultural, AFP's feature service.
+
+1959-61: netta-written for Columbia Broadcasting System for radio and television in New York. Fired from this job because of my activities in founding the <u>Fair Play for Cuba Committee</u> in the U.S.A. to support the Cuban Revolution.
+
+1961-62: Secretary-treasurer of the Institute for the Improvement of Inter-American Relations, Inc., chartered as an "educational foundation" under the laws of the State of New York. The Fair Play for Cuba Committee was a permanent committee of the Institute. As the chief paid officer of the organization, I directed a public relations campaign aimed at countering U.S. propaganda against Cuba. I published books, newsletters and placed advertising on behalf of Cuba in the U.S. press.
+
+1962-64: English-language editor of the international review <u>Revolution</u>. Was one of the founding editors of <u>Revolution Africaine</u> in Algiers and was later sent to Switzerland to edit a monthly in English. Directed all aspects of the editing, publishing and distribution of the magazine.
+
+1965- : Publisher of Richard Gibson Reports, a regular news and features service, mainly for Afro-American newspapers.

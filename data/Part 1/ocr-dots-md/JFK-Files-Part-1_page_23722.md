@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_23722.png
+
+Convert to MarkdownDIAZ, PEDRO
+
+SEX M DOB ?
+
+CIT
+OCC
+
+COMMITTEE PARTY MEMBERS REFERENCES TO THE
+FOLLOWING: PEDRO ORTEGA DIAZ / 1277/,
+PEDRO J. DIAZ /1950/, PEDRO P. DIAZ / 1949/,
+PEDRO OLIVER DIAZ / 1950/.
+
+SER. 202
+
+J CORR. CARD
+
+127943
+
+DIAZ, PEDRO
+
+SEX M DOB ?
+
+CIT ?
+OCC ?
+
+COMMITEE PARTY ORGANIZER.
+
+015-004-004
+TCS -01367
+JO 000 51
+CHILE
+SER. 642
+
+J CORR. CARD
+
+DIAZ, Pedro
+
+alvaro diaz sref
+
+DIAZ, Pedro
+
+37-6-48
+FEB 28
+(Sent 17)
+(Page 1)
+
+<table><tr><td>THIS Card</td></tr><tr><td>FRED IN</td></tr></table>
+
+127948
+
+SECRET

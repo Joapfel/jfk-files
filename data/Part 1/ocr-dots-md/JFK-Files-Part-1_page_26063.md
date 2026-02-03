@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_26063.png
+
+Convert to Markdown14-0000
+
+<table><thead><tr><td colspan="2">CABLE SECRETARIAT DISSEMINATION</td><td>CLASSIFIED MESSAGE</td><td>TOTAL COPIES</td></tr></thead><tbody><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td rowspan="7"><table><tbody><tr><td colspan="3" style="text-align: center;">SECRET (When Filled In)</td></tr><tr><td colspan="3" style="text-align: center;">GROUP EXCLUDED FROM ORIGINAL REPRODUCTION AND DECLASSIFICATION</td></tr><tr><td colspan="3" style="text-align: center;">REPRODUCTION OF THIS COPY PROHIBITED</td></tr><tr><td>INDEX ☐ YES ☐ NO</td><td colspan="2"></td></tr><tr><td>CLASSIFY TO FILE NO.</td><td colspan="2"></td></tr><tr><td>X-REF TO FILE NO.</td><td colspan="2"></td></tr><tr><td>FILE MD ☐ RET. TO BRANCH ☐ DESTROY ☐ BY NO.</td><td></td><td></td></tr><tr><td>ACTION</td><td colspan="3"></td></tr></tbody></table></td></tr><tr><td colspan="2">ADVANCE COPY ☐ ISSUED ☐ SLOTTED</td></tr><tr><td>BY:</td><td>AT:</td></tr><tr><td>DISSEM BY:</td><td>PER:</td></tr><tr><td>WHAS ☑</td><td>RID COPY</td></tr></tbody></table></td></tr><tr><td>INFO.</td><td colspan="2">VR: wtkcag8, cybers, cytec</td></tr><tr><td>FILE.</td><td colspan="2"></td></tr></tbody></table>
+
+SECRET 212253Z MAY 68 CITE JMWAVE 2475
+
+CARACAS INFO DIRECTOR
+
+AKULE PRUMEN
+MEN AMCLEVE
+
+REFS: A. DIRECTOR 01313
+
+B. CARACAS 9646 CN13549) 300985
+
+1. FOLLOWING ARE COMMENTS ON AMCLEVE-15:
+
+A. AMCLEVE-15 INSTRUCTED BY JMWAVE TO ATTEMPT ESTABLISH CORRESPONDENCE WITH BROTHERS RAUL AND ROBERTO. THIS DONE LATE 1966 AFTER IT LEARNED ROBERTO HAD TRAVELLED ENGLAND ON GOC PURCHASING MISSION (JMWAVE 3182, SEPT 66). IN APRIL 1967, STATION ADVISED AMCLEVE-15 THAT ROSERTO WAS SUPERVISOR TELEPHONE COMPANY WHICH INFO OBTAINED FROM RECENTLY ARRIVED REFUGEE (UFGA-27444, APRIL 67.) AMCLEVE-15 TOLD FORMER CO HE LAST SAW BROTHER (ONE OR OTHER) AT HARANA AIRPORT PRIOR HIS DEPARTURE FOR MEXICO FEB 61.
+
+B. AMCLEVE/15 WAS PRIMARILY USED BY STATION TO REPORT ON EXILE ACTIVITIES MIAMI AREA. HAD CONTACTS WITH MANY DIFFERENT TYPES OF INDIVIDUALS, INCLUDING EX STATION ASSETS, SELF STYLED EXILE LEADERS AND GANGSTERS. DURING ROSENTHAL
+
+22 May 68
+
+22May68 15683
+
+SECRET

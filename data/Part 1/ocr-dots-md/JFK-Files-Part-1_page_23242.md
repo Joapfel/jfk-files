@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_23242.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+<table><tr><td>ORIG</td><td>R. REYNOLDS</td></tr><tr><td>UNIT</td><td>JH/III/CARIBBEAN</td></tr><tr><td>EXT</td><td>2056</td></tr><tr><td>DATE</td><td>5 MARCH 1958</td></tr></table>
+
+<table><tbody><tr><td colspan="3">SEC-CONF-RE-T</td></tr><tr><td>AUTHORIZATION<br/>X<br/>DEFERRED</td><td>PRIORITY</td><td>INITIALS</td></tr><tr><td>ROUTINE</td><td>OPERATIONAL<br/>IMMEDIATE</td><td>INITIALS</td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3">OUT51534</td></tr></tbody></table>
+
+TO HAVA INFO NEXI CITE DIR 11212
+
+RE HAVA 179 (IN 38161)(NOT SENT NEXI)
+NEXI 1017 (IN 26340)(NOT SENT HAVA)
+
+1. FOR HAVA: LEAVE APPROVED.
+
+2. FOR NEXI: VAIVADA VETA NEXI IS 20 MAY.
+
+END OF MESSAGE
+
+*C/S COMMENT: VAIVADA REQUESTED 15-20 DAYS LEAVE COSTA RICA PRIOR ARRIVAL NEXI.
+PAPATE INTERVIEWED HIM 3 MARCH.
+
+J.H./III/MEXICO
+KH/Support
+
+COORDINATING OFFICERS
+
+<table><tr><td>S-E-C-R-E-T</td></tr></table>
+
+R.N. DAHLgren, C/WH/III
+
+AUTHENTICATING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

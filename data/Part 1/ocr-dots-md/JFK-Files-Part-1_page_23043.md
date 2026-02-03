@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_23043.png
+
+s was Subject's patient and informed Subject of events occurring within the Presidential Palace. Subject then consulted with Raul Castro and denounced Dr. Urrutia as anti-Communist.
+
+d. Subject is very intelligent, very competent, and an extraordinarily hard worker. He is Professor of Psychology at the Havana University Medical School, and Director of the Higher Nervous Activity Research Institute. During the decade 1950-60, he held a high post within the Cuban Medical College and was President of the World Medical Group; during this decade he made many visits to the USA on matters related to his professional activities.
+
+e. It has been commented that Subject performed "brain washing" activities for the Havana DSE. During the period in 1966 that subsource was held prisoner at Villa Marista, he did not see Subject; subsource has never heard anyone state that he actually saw Subject at Villa Marista. In subsource's opinion, if Subject has ever worked for the MININT, it was probably as professor of psychology in classes given to MININT personnel; subsource presumes that the classes would have been similar to those that Subject gave to Cuban artists.
+
+f. In 1956, Subject acquired an extraordinarily beautiful mistress that he still continues to visit and support. This mistress, Manolita Canto, was divorced by her husband, Salup (fnu), after a private detective hired by the husband surprised Subject and Canto in a hotel room in Miami, Florida; subsequently, U.S. immigration authorities prohibited Subject from entering the U.S.A. Canto had one son by her husband; when her husband died, the son inherited the father's wealth, which was considerable. The laws against private property promulgated by the Castro regime undermined Canto's economic position to the point that she has had to go to work; she now works at the INIT (National Tourist Industry Institute), located at 23 and L Streets, Vedado, Havana City.

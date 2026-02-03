@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_24548.png
+
+Convert to Markdownand sans le nom de croyez et il est under
+concerné de la séance. Mais en tout cas,
+nous accomplirions avec bonheur, à partir d'un
+sui as a compensation, hence, it is necessary to say
+that Americans are not accustomed to such treatment
+in firm.
+
+Even more they are worried by an unclear future.
+More by Brazilian generals that in the future the power-
+ment will develop state-controlled sector in mining industry,
+as a counterbalance to a less American capital, and
+that it intends little by little to force out foreigners from
+banking system, etc., chips and put in foreign USA business.
+More because their investments in Peru reached 600
+million dollars and they never before experienced such
+a disturbing time!

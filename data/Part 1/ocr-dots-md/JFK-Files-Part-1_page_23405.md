@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_23405.png
+
+Convert to MarkdownTRSA-860
+
+OPERATIONAL REVIEW
+
+CRYPTOLOGY: Humanoid
+
+COUNTRY: Costa Rica PERIOD: 1 October-31 December 1950.
+
+OBJECTIVES AND TASKS: No Change.
+
+SALARY: $750 per month.
+
+EVALUATION OF SERVICES: Services of this agent are extremely valuable to this station. Aside from cutout services in contacting subagents, he has been used on other miscellaneous investigations suitable to his capacity and has given freely of his time and effort
+
+EVALUATION OF INFORMATION: The information furnished continues to be of great value to this station.
+
+OTHER FACTORS: No change.
+
+COMMENTS: As previously reported subject's plans to transfer to Panama have changed, and he is staying in Costa Rica to finish his schooling. Due to subject's services and the time he devotes in performing them, as well as plans at this station for making greater demands on his time, it is planned to recommend that subject's salary be increased from $750 to $1,000 per month.

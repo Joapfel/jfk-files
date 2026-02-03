@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_24959.png
+
+Convert to Markdown14-00000
+
+## Government officials would say that Mr. Itkin, despite his investigators, is free-spending ways over the Mr. Itkin has been under paid and several years, did not, as expected, actually pay the total contract price, and for as is known, absent a lot that he was accused of by have 1 per cent (one per cent) of money from his business. Fall in Dec., Mr. Itkin, Mr. Marcus, and Coralia.
+
+"The fact," said one Federal official, "he is accused of embezzlement, one as early as Jan. 1, 1968—eight months after his family life is in a few case friends who are close to Mr. Marcus became Water Commissioner on Sept. 1 and."
+
+People who have spent re-do Mr. Itkin's defense ready to Mr. Itkindecide him as extremely nonchalant. His Grand
+
+several of Mr. Itkin's friends have demonstrated him as confidentialist: when the Marcus case comes to trial his "real" role is an undercover agent, lawyer and partner in several joint ventures.
+
+"Won't Be a Defendant"
+
+"I won't be a defendant when the case comes up," Mr. Itkin is quoted as having told a friend. "I didn't do anything I couldn't have to do to keep from being suspect."
+
+His current status as a defendant in the Marcus case could be changed before the trial and the charges against him could be dropped, Federal officials say.
+
+Mr. Itkin has also had close friends that within the last five years he provided information to the Central Intelligence Agency on the activities of persons in the Dominican Republic where he often traveled. He has also been a member of the National Association for the Defense of Trade Unions, and in Haiti, where he is also known to have andrusdans.
+
+A spokesman for the Central Intelligence Agency said that there was nothing about Mr. Itkin as his files.
+
+Mr. Itkin appears to have been many things to many people. To some lawyers who knew him he was, as one put it, "unlawful in his law practice." Another described the swarthy, well-dressed, Brooklyn Law School graduate as "financial, Reporting, not one to seek the spotlight."
+
+Called a 'Fast Taker'
+
+But a friend describes him as "a fast-taking guy, a fast-thinking buy, who said he knew everybody and costs make a deal in the blink of an eye. He added: 'There was always a jet going somewhere-to-Los Angeles, Genavie, New York, San Diego, Domingo, Haiti, Puerto Rico,' etc."
+
+Many people regard Mr. Itkin as a specialist in labor law, but general labor leaders say he knows little of his activities for use.
+
+It was the highly publicized Marcus case, a separate legal situation that first brought Mr. Itkin to wide public attention.
+
+He was charged in a Federal examination along with Mr. Marcus, Coralia and others, with being part of a scheme where
+
+The contract, estimated at $500,000, was awarded to S. T. Grala, Inc., which is owned by Mr. Fried and his family. It called for the cleaning and refurbishing of the Jerome Park Units in the Bronx.
+
+The indictment charges that Mr. Fried and his company had paid Mr. Marcus 2 per cent of the total contract price, and for as much as $35 million. The charge, which was later dropped, alleged that Mr. Marcus and Mr. Itkin were involved in a conspiracy to kill Mr. Marcus and his co-conspirator, Westrade, Inc., described as
+
+On Jan. 11 the case took its bizarre murder twist when the F.B.I. arrested Mr. Roden on charges of trying to buy the murder—for $2,500, a Federal official said then—of an unidentified witness in the Marcus affair. Mr. Itkin was said to have been that witness.
+
+Four days later, Mr. Schwartz, the Long Island lawyer, was arrested in Manhattan as a participant in the same alleged murder conspiracy. He was charged with being involved in an attempt to murder "a witness and defendant" in the Marcus case.
+
+Exactly a month after the Federal kickback indictment, was obtained by United States Attorney Robert M. Morgan-the-long previous Mr. Marcus and Mr. Itkin were arrested for the second time on a warrant by District Attorney Frank S. Hogan.
+
+They were charged with having accepted a $10,000 bribe as a down payment on any emergency contracts that a company called Vintray Enterprises, Inc., might receive from Mr. Marcus's department.
+
+Scarecity of Documents
+
+There are very few public documents in which Mr. Itkin's name appears. And even when it is available only serves to deepen the mystery surrounding his career.
+
+On Sept. 16, 1963, for example, Mr

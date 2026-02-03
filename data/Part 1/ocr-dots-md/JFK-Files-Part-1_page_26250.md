@@ -1,0 +1,67 @@
+# JFK-Files-Part-1_page_26250.png
+
+Convert to MarkdownSECRET
+
+16 JAN 1967
+
+TO: The Commissioner
+Immigration and Naturalization Service
+
+FROM: Deputy Director for Plans
+
+SUBJECT:
+RICO Galan, Anna Maria
+MENDIZABAL Lpez-Carmen,
+MENDEZ Mendizabal, Ana
+MENDIZABAL, Ana
+
+1. Reference is made to your request dated 12 December 1966 concerning Subject (File No. A14 596 455). The files of this office contain the following information pursuant to the request.
+
+2. According to a press release from the Mexico City Police Department on 16 August 1966, Subject was reported to be one of 49 persons arrested for conducting a school of guerrilla warfare, with the purpose of overthrowing the government of Mexico. Victor RICO Galan, Subject's brother and one of the leaders of the group, admitted that the school was operated by the Popular Revolutionary Movement (MRP). Subject was one of nine members of the group indicted on 22 August 1966 for conspiracy, incitement to rebellion, and accumulation of arms.
+
+3. An article published in the Mexican daily newspaper El Impia, dated 23 August 1966, stated that Subject admitted that meetings were held in her home to discuss the activities of the MRP.
+
+4. According to information dated 2 July-28 October 1953 from a source of unknown reliability, one Carmen H. de MENDIZABAL, probably identical with Subject, had acted as a teacher at the Communist Universidad Chirera do Mexico.
+
+NOT TO BE DISSEMINATED FURTHER OR EXHIBITED
+TO ANYONE WITHOUT PRIOR PERMISSION OF THE
+CENTRAL INTELLIGENCE AGENCY.
+
+<table>
+  <tr>
+    <td>10/25/66</td>
+  </tr>
+  <tr>
+    <td>Entra en el edificio</td>
+  </tr>
+  <tr>
+    <td>CONTRAPÚBLICA, no</td>
+  </tr>
+  <tr>
+    <td>electrónica</td>
+  </tr>
+</table>
+
+FILE IN 201-13364094
+
+CS COPY FILED IN 10-2-57 SECRET
+
+95-2-001 in PETTIER Book 25-2-001
+
+<table>
+  <tr>
+    <td>Mayo 1</td>
+  </tr>
+  <tr>
+    <td>Catálogo de insumos</td>
+  </tr>
+  <tr>
+    <td>CONTRAPÚBLICA</td>
+  </tr>
+  <tr>
+    <td>no</td>
+  </tr>
+  <tr>
+    <td>electrónica</td>
+  </tr>
+</table>

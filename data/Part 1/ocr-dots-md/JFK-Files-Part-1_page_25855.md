@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_25855.png
+
+Convert to MarkdownSECRET
+
+1803 Eye Street, N. W., take a room and wait for a call. If unable to get a room he should leave a forwarding address for further contact.
+
+J. C. KING
+Chief, WHD
+
+Attachments:
+
+1 - As described above, u/s/c
+
+17 May 1957
+
+Distributions:
+
+3 - Mexico City, w/att. u/s/c
+
+1 - WH/TIII, KAPOK Chrono, w/o/att.
+
+1 - Subject, w/o/att.
+
+WH/TIII/Mexico/LSulomajm
+
+J. C. KING, CHIEF, WHD
+
+W. GALBRAITH, C/WH/TIII
+
+SECRET,
+
+# KAPOK SECRET
+
+RMO-W-4554
+KAPOK #500 Page Two
+
+Page Two
+
+1990

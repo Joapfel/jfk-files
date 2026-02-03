@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_26908.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+then working closely with Barker in Cuban exile (unity)
+activity on behalf of Artime. At the time Cardenas met
+IUSTEER/1 at the Figrini home, he told IUSTEER/1 to go to
+a house on Brickell Ave. IUSTEER/1 did and there he met
+Artime for the first time.
+
+c. (At this time a Case Officer named "Jimmy" was handling both Barker and Cardenas. "Jimmy" spoke excellent Cuban Spanish.)
+
+d. From 1962 to 1965 Cardenas worked with the Agency under the cover firm Consolidated Engineering. (Cardenas' Case Officer during this period was Chris Frederick.)
+
+o. In 1965 the Agency sent Cardenas to IUSTEER/1 for duty in the Congo. In the Congo Cardenas claimed to have a heart attack and was hospitalized. He was later proven medically sound and released from his Congo assignment.
+
+f. During 1967-1968 Cardenas drove a truck in the Miami area. Between 1969 and 1970-71 Cardenas sold mutual funds in South America (GRAMCO and others). This ended when the funds went bankrupt.
+
+g. In 1971 Cardenas was economically down. In early 1972 he started traveling again and became affluent. IUSTEER/1 believes Cardenas is involved in drugs.

@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_23175.png
+
+Convert to MarkdownSECRET
+
+Case 46,632
+
+- 3 -
+
+NO-15-65
+17 January 1955
+
+His office for the private practice of psychiatry in K Street, between 17th and 19th Streets, Vedado, Havana. Our informant agrees with your statement that Dr. Bustamante is currently considered to be the outstanding psychiatrist in Cuba. Dr. Bustamante speaks English fairly well and French to a limited extent. It is significant that in 1953 he was farsighted enough to begin lessons in Russian. Our informant has no knowledge of Bustamante's progress or current proficiency in that language.
+
+1. Dr. Bustamante was a close friend of Dr. Emilio Mira-Lopez, who is now 1966/ reported to be practicing psychiatry in Sao Paulo, Brazil. Mira-Lopez was born in Catalonia, Spain, and is believed to be a Spanish national. During the Spanish Civil War, he was engaged in brainwashing prisoners and, at the conclusion of hostilities, he had to leave the country. He apparently proceeded to Cuba where he met Bustamante and subsequently exerted a profound professional influence on him. He is known to have trained Bustamante in the brainwashing techniques which he had used with prisoners during the Spanish Civil War. According to Dr. Fernandez-Conde, Dr. Mira-Lopez is a despicable, loathsome person and exerted an evil influence on Bustamante.
+
+10. Dr. Bustamante's first public affiliation with Communist groups was as a member of the Liga De Juventud Comunista between 1931 and 1939. He was also a member of the Ala Izquierda, a medical leftist group, and he was President of the Federacion Estudiantil Universitaria. By the time he had graduated from the University in 1939, he was believed to have been in agreement with the purposes of the Communist Party although he may not have been a party member. Later, he was for a while a member of the Accion Inmediata (founded in December 1938), a political group in the medical profession which was not Communist. In 1946, he was one of the founders of the Confederacion Medica Panamericana, which still exists (1966), and in 1950, after the Castro takeover, he founded another political party in the medical profession, the Partido Medico de la Revolucion.
+
+11. During the 1940's and the 1950's, Dr. Bustamante gradually became well known in the medical profession and achieved some measure of influence. In 1943, he held an office in the Colegio Medico Nacional de Cuba and in 1952-1953 he served as President of this organization. About 1954, Dr. Bustamante asked permission of the Colegio Medico Nacional de Cuba to become a member of Nanigo so that he could study and evaluate its influence on the Negro culture in Cuba. The Nanigo is a secret Negro society in Cuba which practices witchcraft, offers human sacrifices, and indulges in other activities repugnant to Western civilization. Permission was granted because of the allegedly scientific nature of Bustamante's interests. Some time later, Professor Federico Sotolongo, who is still 1966/ a member of the medical faculty of the University of Havana, told another doctor in the Colegio Medico Nacional de Cuba that Bustamante was doing a good job of infiltrating the Nanigo. Since Sotolongo is a Communist, the inference was that Bustamante's performance benefited the Communist Party. Dr. Fernandez-Conde stated that he needed no further evidence that Bustamante was a trusted member of the Communist Party. Moreover, he is a very good friend of the Chilean Communist Salvador Allende. Allende always stayed in the Bustamante home when he visited Havana.

@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_24029.png
+
+Convert to MarkdownENCOUNTER AND OTHER CONGRESS PUBLICATIONS WOULD TRY FOR MAXIMUM PROPAGANDA IMPACT GIBSON'S WRITINGS.
+
+3. APPREC ADDRESSEES REACTIONS ABOVE.
+
+4. NO INDEX.
+
+SECRET
+
+CFN
+
+FEB 3 25 FEB '65
+
+FEB 3 11 03 PM '65
+
+V82AN
+TN
+
+<table>
+  <tr>
+    <td>V82AN</td>
+  </tr>
+  <tr>
+    <td>LN</td>
+  </tr>
+</table>

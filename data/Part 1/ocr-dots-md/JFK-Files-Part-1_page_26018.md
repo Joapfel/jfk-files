@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_26018.png
+
+Convert to Markdown<table><thead><tr><th></th><th style="text-align: right;">RATING AND CRITERIA - SEE P.</th></tr></thead><tbody><tr><td>ORIG</td><td rowspan="4">SECRET</td><td>1</td></tr><tr><td>UNIT</td><td>5</td></tr><tr><td>SXT:</td><td>7</td></tr><tr><td>DATE:</td><td>6</td></tr><tr><td colspan="3"><input type="checkbox" /> INDEX<br /><input type="checkbox" /> NO INDEX<br /><input type="checkbox" /> RETURN TO ____ BRANCH<br /><input type="checkbox" /> FILE NO</td></tr><tr><td>CABLE SECRETARIAT DISSEMINATION</td><td colspan="2"></td></tr><tr><td>BY ____ PER ____</td><td colspan="2"></td></tr><tr><td>CONF:</td><td>N<br />F O<br />FILE. VR.</td><td></td></tr></tbody></table>
+
+<html><body><table><tr><td>(classification)</td><td>(date and time filed)</td><td>(reference number)</td></tr><tr><td>SECRET</td><td></td><td>CITE DIRECTOR</td></tr></table></body></html>
+
+TO
+
+PAGE TWO
+
+TO HQS AREA WIGHT CASE CIFENCE/4'S SUPERIORS IN CIFENCE
+TO SUSPECT HE MAINTAINING CONTACT WITH RVROCK; THEREFORE
+REQUEST WH/MIAMI MEET WITH CIFENCE/4 AND PROVIDE INS FORMS
+N-470 (CIFENCE/4 ONLY) AND TWO ORIGINAL I-131 FOR EACH TO FILL
+OUT. COUPLES MUST PROVIDE TWO PHOTOS EACH SIGNED ON LEFT HAND
+MARGIN AND ONE CHECK TO INS FOR THIRTY DOLLARS. WHEN FORMS
+COMPLETED THEY SHOULD BE POUCHED TO HQS. AFTER REVIEW HERE,
+HQS WILL CABLE WH/MIAMI AND THEN COUPLE CAN EITHER RETURN CARACAS
+OR WAIT MIAMI FOR RE-ENTRY PERMITS.
+
+4. FOR WH/MIAMI, PLS ADVISE IF YOU HAVE CASE OFFICER AVAILABLE NEAR FUTURE WHO COULD MEET WITH CIFENCE/4. IF AFFIRMATIVE, PLS FORWARD CONTACT PLAN TO CARACAS. FYI, CIFENCE/4 (IDEN A) WAS WH/MIAMI ASSET FROM LATE MARCH 1965 to SEPT 1967 WHEN HE MOVED TO CARACAS WHERE HE WAS BEEN SERVING STATION AS PENETRATION OF CIFENCE (IDEN B).
+
+CONT'D
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+SECRET
+
+AUTHENTICATING OFFICER
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

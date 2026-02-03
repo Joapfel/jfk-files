@@ -1,0 +1,82 @@
+# JFK-Files-Part-1_page_24673.png
+
+Convert to Markdown14-00000
+
+CABLE SEC DISSEM BY 7 PER TOTAL COPIES 28 RUN BY
+PERSON/UNIT NOTIFIED
+
+SEC RET
+
+REPRODUCTION BY OTHER 1
+ISSUING OFFICE IS PROHIBIT
+
+ADVANCE COPY ISSUED/SLOTTED
+
+BY AT Z
+
+STAFF
+
+<table>
+   <thead>
+    <tr>
+     <td>ACTION UNIT</td>
+     <td>RF.</td>
+     <td>FILE.</td>
+     <td>VR</td>
+     <td colspan="2">10/DMS, SE 8, C14</td>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td>LA 8</td>
+     <td rowspan="2">IN</td>
+     <td rowspan="2">EPS/EC 2, GIA, SIRIIC, Poslint</td>
+     <td></td>
+     <td>1</td>
+     <td>4</td>
+    </tr>
+    <tr>
+     <td>ACTION #</td>
+     <td>2</td>
+     <td>5</td>
+    </tr>
+    <tr>
+     <td></td>
+     <td>O</td>
+     <td></td>
+     <td></td>
+     <td>3</td>
+     <td>6</td>
+    </tr>
+   </tbody>
+  </table>
+
+T 996916
+
+EIA55
+
+PAGE 01-21
+
+IN 338551
+
+TOR:282235Z JUL 77
+
+B0GC 3127E
+
+SECRET 292212Z JUL '77 STAFF
+
+CITE BOGOTA 3127D
+
+TO: PANAMAC CITY INFO DIRECTOR.
+
+WN INTEL CKLEG INTEL
+
+REFS: A. PANAMA CITY 41931 (AD 329718) B. BOGOTA 31203 (AD 330952)
+
+1. ACCORDING TO TRAVEL RECORDS RECEIVED TODAY ONE NIKOLAI LEONOV ARRIVED IN BOGOTA ON 27 JUN ABOARD AIR FRANCE FLIGHT 301. HE HOLDS PASSPORT DK230674, VISA 53. HE IS A RUSSIAN NATIONAL, AGE 48. MARRIED AND A PROFESSIONAL DIPLOMAT. WILL ADVISE WHEN AND IF SUBSEQUENT TRAVEL RECORDS INDICATE FURTHER TRAVEL TO PANAMA AND RETURN TO BOGOTA.
+
+2. FILE: 56-8-0. E2 IMPDET
+
+SECRET
+
+SECRET

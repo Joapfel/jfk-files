@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_25849.png
+
+Convert to MarkdownKAPOR
+SECRET
+
+1803 Dye Street, N. W., take a room and wait for a call. If unable to get a room he should leave a forwarding address for further contact.
+
+J. C. KING
+Chief, WHO
+
+Attachments:
+
+1 - As described above, u/s/c
+
+17 May 1957
+
+Distribution:
+
+3 - Mexico City, w/att. u/s/c
+1 - WH/III/KAPOK Chrono, w/o/att.
+✓1 - Subject, w/o/att.
+
+WH/III/Mexico/LSulc:mjm
+
+W. CALBRAITH, C/M/III
+
+KAPOK
+SECRET
+
+14-00000

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_26383.png
+
+Convert to Markdown14-00000
+
+ESTADOS UNIDOS DE AMÉRICA, CANADÁ, CENTRO Y SUD AMÉRICA, INCLUIDAS ESPAÑOLA, FRANCIA, ITALIA, PORTUGAL, ESPAÑA, SUICÍDA, DINAWPCA, ALEMANIA, LUXAUTOEN, AUSTRIA, COMUNIDAD CRITICA DE NACIONES UNIDAS,
+
+LA VALIDEZ DE ESTE PASAPONTE EXPIRA EL 8 SEPTIEMBRE 1965
+
+a ménsula de que se refrendó por la Secretaría de Relaciones Exteriores a por alguna de las otras misiones a conselleria de Melaú en el extranjero.
+
+OBSERVACIONES
+
+El siguiente esquema consta de una fotografía. En la fotografía se pueden observar los cuadrantes que conforman un cuadrante rectangular.

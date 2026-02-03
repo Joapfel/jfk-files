@@ -1,0 +1,247 @@
+# JFK-Files-Part-1_page_25304.png
+
+Convert to MarkdownSECRET
+
+KOMIYORI, Nikolay Matveevich - diplomat, Naval Attache office
+wife: Nolli A. Komiya
+son: Aleksandr Komiya
+daughter: Larisa
+
+ROSHCHIN, Nikolay I. - employee, Naval Attache office
+wife: Larissa Komiya
+
+KAFROKHOVA, Vera Vladimirovna - employee
+wife: SHIKINA
+son: Yovgeniy
+
+SIDYAKIN, Vasilii Fodorovich - employee
+wife: Aleksandra Nikolyanova
+
+GOKOLOV, Vladimir Nikolayovich - Asst. Military Attaché
+
+TROPKOY, Nikolay Ivanovich - employee, Military Attaché office
+wife: Lyudmila Tropova
+son: Sergey Tropov
+daughter: Nataliya
+
+TROFIMOV, Viktor Nikolayovich - employee, commercial office
+wife: Lyudmila Trofimova
+son: Natalya
+
+VEREMIEV, Konstantin Andreyovich - employee/guard
+wife: Lyudmila Vladimirovna
+son: Larisa
+
+ZABRODIN, Feder Kasarovich - employee/guard
+wife: Mariya Konstantinovna ZABRODINA
+son: Hina and Margarita
+
+ZHUKOY, Lev - First Secretary
+
+ZINOVIOVA, Mariya Ilinichva - employee
+
+2. This list comprises a roster of personnel known to be present at the Soviet establishment as of 15 June 1956 and includes positions which they are known or presumed to hold.
+
+Distribution:
+* 4 - Wash (for REDCAP)
+* 2 - Files
+
+28 June 1956
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE
+
+SECRET
+
+HONI SOIT QUI MAL Y PENSE

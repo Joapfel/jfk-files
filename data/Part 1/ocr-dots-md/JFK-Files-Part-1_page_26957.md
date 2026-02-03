@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_26957.png
+
+Convert to Markdown14-0000
+
+CONFIDENTIAL
+
+Director, Domestic Contact Service
+
+24 March 1967
+
+ATTN : John McConnell
+Chief, Miami Field Office
+
+HIA-036-67
+
+Mitchell L. Vorfell
+
+RE: : HUA-060-67
+
+1. Vorfell called the Miami office on 23 Jan 67 and then told that [Dart Gonzalez] was not in, advised the secretary that the Federal charges against him had been dropped. We have not confirmed this. We do not intend to renew our contacts with him for the time being at least.
+
+2. Please advise John Oronney of the Office of the General Counsel of this development and give us whatever recommendations he or you may have as to our future relations with Vorfell.
+
+JAMES E. GLEICHEUR
+
+BIO:
+
+CONFIDENTIAL
+
+EXCEPTED FOR REPRINT
+AND FOR GENERAL
+CIRCULATION

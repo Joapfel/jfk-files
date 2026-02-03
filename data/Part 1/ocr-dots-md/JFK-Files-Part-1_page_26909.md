@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_26909.png
+
+Convert to Markdown104-10221-10021
+
+30 June 1972
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: IUSTEER-1 - Anthony Abraham Chevrolet, Miami.
+
+At a meeting on 20 June 1972 IUSTEER-1 made the observation that the offices of Anthony Abraham Chevrolet in Miami was a "a nest" of Cuban rumors and gossip. He usually tries to avoid the area around this business to preclude encountering the Cuban exiles working there. IUSTEER-1 noted that the Chief of Latin American Sales (?) of this firm, Manuel Villamanan, is very much up-to-date on Cuban exile matters. (IUSTEER-1 commented that he ran into Villamanan recently and they engaged in a conversation about the Washington Break-In Scandal. IUSTEER-1 found Villamanan very sympathetic to Barker (one of the individuals involved) and IUSTEER-1 felt he hurt Villamanan's feelings when he (IUSTEER-1) was critical of the affair.) Also employed as a salesman at this firm is Alberto Bequiristain (AMANCHOR-1) who was at one time associated with Eugenio Martinez (of the Washington Break-In affair) in the capacity of a frogman for the Agency under the cover firm Consolidated Engineering. Chief of Security for Anthony Abraham Chevrolet is Tony Iglesias, identified by IUSTEER-1 as the military chief for the Torriente Group.
+
+Peter S. JASUTIS
+
+COSTANT

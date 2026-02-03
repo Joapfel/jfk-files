@@ -1,0 +1,64 @@
+# JFK-Files-Part-1_page_26723.png
+
+Convert to MarkdownKeel 72-KICO-24
+
+30 April 1965
+
+10.7 Out to 37-12-84. Sra. Diener asks WO, who answers, for Sr. Gonzalez.
+
+Sr. Gonzalez takes the phone. She asks him to bring her some alcohol...He is going to get some figures from her...(She apparently makes designs for them and they make things for her...gether gifts...)
+
+11.2 Out to 11-03-71, twice wrong number.
+Out to 11-03-70. Tillie (Diener) with Elsa (de la Vega), who answers. Elsa is finally leaving on her trip...to visit (a daughter)...
+
+12.5 Out to 03, twice. No rings, complete. Time is 1615 (30 April).
+
+12.7 In. Rodrigo with Inge Rico, who answers. Greetings...
+About maids...VKG is not there. Will be home around 1800. VKG will call
+K. to see if they can get together on Sunday. The Rico's have an engage-
+ment on Saturday, but perhaps can get together on Sunday to chat. K.
+says they will phone the Rico's. Fine, but best phone tomorrow morning.
+After 1715, 30 April
+
+13.2 In. VKG with Inge Rico, who answers. He is on his way home.
+If "that man" comes, ask him to wait.
+
+13.5 In. MO asks Inge Rico, who answers, for maid, Casta.
+Cute off or someone hangs up...
+
+13.7 In. Samuel asks Inge Rico, who answers, for VKG. Not there.
+Call back in 30 minutes.
+
+14.0 In. MO asks Inge Rico, who answers, for maid Casta.
+Maid takes the phone. About where he is...visiting her..
+
+14.5 In. Samuel with VKG, who answers. Greetings. Samuel stood
+VKG up the last time they arranged to see one another. Samuel will come
+by VKG's now to see him.
+
+14.7 In. Carmen with VKG, who answers. Greetings. Carmen just
+came in (to Mexico?). Would like to talk to VKG. Arrange for her to
+come by tomorrow morning, at 1000.
+
+15.0 Out to 14-57-83. Hangs up.
+Out to 14-57-89, twice. No rings, complete. VKG with Ramon
+(Sinova), who answers. Greetings. Asks when they will come over tomorrow.
+Asks if VKG has a short wave radio (to hear Fidel's speech?). Yes.
+VKG thought they could come over early and they can chat a little.
+suggests they come around 1130. Fine, will come at 1130. Marta and Inge
+can chat. Has VKG read this afternoon's news? Not yet. "Ultimas Noti-
+cias" says a lot of blood is being shed in Dominican republic. S. has
+bones that tomorrow...indible. That would be good.
+
+After 1900, 30 April
+
+15.2 In. NO asks VKG, who answers, why he didn't submit his material.
+He is writing on Dominican affair and will turn it do en Monday. It would
+be stupid to write this without knowing what O.E.A. says. V.K. told him
+(Pajeta) he would turn it on Monday. He (Pajeta) said no and if he did turn
+it in on Monday, it should only be one page. VKG will submit 10 curricula
+on Monday and they can publish this if they like. No one will work tomorrow
+
+Keel 72-KICO-24
+
+- J -

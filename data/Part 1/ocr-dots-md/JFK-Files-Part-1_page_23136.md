@@ -1,0 +1,72 @@
+# JFK-Files-Part-1_page_23136.png
+
+Convert to Markdown<table><thead><tr><th>CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>SECRET</td></tr><tr><td>PERSON/UNIT NOTIFIED</td></tr><tr><td>WHC-8</td></tr><tr><td>RID COPY</td></tr><tr><td>ADVANCE COPY</td></tr><tr><td>ISSUED</td><td>SLOTTED</td><td>TUBED</td></tr><tr><td>1</td><td>2</td><td>3</td></tr><tr><td>4</td><td colspan="2"></td></tr><tr><td>UNIT</td><td>TIME</td><td>DY</td></tr></tbody></table>
+
+S E C R E T 100013Z CITE JMWAVE 2946
+
+I N M E D I A T E M A D R I D I N F O D I R E C T O R , F R A N K F U R T
+
+T Y P : op crypt
+
+R E F : "ADRID 9288"
+
+I N C O N C I T W I T H D R . J U L I O F E I J O O , C U S A N
+
+P S Y H I A T R I S T V H O A R R I V E D M I A M I F R O M C U S A A B O U T F I V E M O N T H S
+
+A G O . F E I J O O T O L D
+
+ON 1 0 A U G U S T T H A T H E K N E V J O R G E
+( G . P E Z ) V A L D E Z , G E R A R D O ( N O G U E I R A ) R I V E R O , R E N E ( Y O D U Z )
+P R E V E R , A N D C L A U D I O ( P A L A C I C S ) M E S A , A L L O F W H O M H E E X -
+F E C T E D T O A T T E N D C O N F E R E N C E . F E I J O O D I D N O T T H I N K F I R S T
+
+I N F O R M E N T N A M E D - S U S C E P T I B L E R E C R U I T M E N T S U B N OTED PALACIOS WHO
+W O R K E D U S 1 9 5 6 - 5 9 P O S S I B LY A P P R O A C H A B L E .
+
+A SSIST
+
+W I L L T R Y C O N T A C T F E I J O O 9 S E P T E M B E R T O S E E I F
+N O U S S A N Y O T H E R D E L E G A T ES NAMED IN REF.
+
+A SSIST
+
+W I L L A L S O
+A S SIST
+A S SIST
+A S SIST
+
+A S SIST
+S E P T E M B E R
+A S SIST
+M E E T
+A S SIST
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M B E R
+S E P T E M

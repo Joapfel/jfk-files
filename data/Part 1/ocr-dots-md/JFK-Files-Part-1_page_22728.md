@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_22728.png
+
+Convert to Markdown13. Subject cannot be expected to devote any major portion of his time to our work until he has built up his cover and is oriented in his new surroundings. Although fluent in the language, he will probably encounter a good deal of new terminology.
+
+14. Subject has entered into a tentative oral contract to perform services for us for a salary of $50.00 per month. This can be made into a written contract at any time.
+
+15. Subject's tentative continuing project is outlined in paragraph 2 above.
+
+16. Subject should be capable of initiating his own projects.
+
+## PAYMENT
+
+17. Starting in February 1949, it will be necessary to pay subject $50.00 U.S. dollars per month as indicated in paragraph 14 above.
+
+18. Subject has been told that if his services prove satisfactory, he can expect an increase in salary. No specific amount was discussed.
+
+19. It is contemplated that this station may be required to pay certain travel expenses for Subject. If done, this will be charged against Project Development.
+
+20. No cost of purchase of information is involved at this time.
+
+21. Subject's superiors regard this man as highly dependable. He has had considerable experience in writing reports and has remarked that his two principal criticisms of intelligence reporting as he has observed it in this area is that the reporting is inclined to be sensational rather than factual and that most people have nothing to report other than that which the opposition is willing that they receive. He should have a fair concept of security. However, general security in this area is very lax and he may have subconscious bad habits.
+
+22. In view of his background, Subject should only be good in semi-covert work.
+
+23. If this man is kept under cover he might eventually effect a penetration of scholastic or parlor-pink circles. It is presumed that this would be on a low level.
+
+24. This individual could easily be recruited for a full-time job with our organization. However, it is believed that more is to be gained by starting him off in this manner, perhaps giving him periodic schooling and gradually increasing his activities and responsibilities.
+
+Distribution:
+
+Wash - 2
+Sanj - 1
+Files - 1
+
+SECRET
+
+CS COPY
+
+Grover J. Waring
+
+201-168881

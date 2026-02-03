@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_23655.png
+
+Convert to Markdown# CRYPTONYM
+
+## AMTRUNK VII
+
+### 2. REFERENCES
+
+* A. UFGA-9312, AMTRUNK Operational Plan, 1 July 1963
+
+* B. UFGA-10436, Amendment of AMTRUNK Operational Plan, 31 July 1963
+
+* C. UFGA-10933, Operational Plan - AMTRUNK V, 31 August 1963
+
+* D. UFGA-12725, Operational Plan - AMTRUNK VI, 27 November 1963
+
+* E. UFGA-13138, Amendment to AMTRUNK VI Operational Plan, 18 December 1963
+
+### 3. BACKGROUND
+
+Operation AMTRUNK III/IV which was mounted in August 1963 was successful in that the two principals of the team, AMICE-27 and AMICE-14, were able to contact and to recruit two principal agents and several other action agents to lay the ground-work for the MIAPRON objectives of the AMTRUNK operation. One of the two internal P/A's, AMTRUNK-9, was exfiltrated with the four-man AMTRUNK infiltration team for training and operational discussions in the JAWAVE area. In early September, AMTRUNK-9 was re-infiltrated into PBRUMEN in Operation AMTRUNK V, the same operation which exfiltrated AMFAUNAS -1, -3, -13 and -34. In late October AMICE-27 was separated from the clandestine part of the AMTRUNK operation. The original objectives of Operation AMTRUNK VI, postponed from December 1963 to January 1964, were to revitalize and re-direct the efforts of the two internal P/A's toward their primary task, i.e. to spot and recruit among high level figures who are dissatisfied with the Castro regime. In late December, the scope of this mission was altered by the receipt of a commercial telegram in open code from AMTRUNK-9 indicating that he was in grave danger and wished to be exfiltrated. The twin objectives of Operation AMTRUNK VI then became: first, to exfiltrate AMTRUNK-9 and, this accomplished, for AMICE-14 to proceed to Havana for his task of re-channeling AMTRUNK-10's responsibilities. The exfiltration of AMTRUNK-9, who brought with him his entire family consisting of wife, brother-in-law, and three small children, was accomplished on 9 January 1964. The unexpected presence of AMTRUNK-9's family, coupled with reports of increased vigilance in the infiltration area, forced AMICE-14 to exfiltrate the same night without attempting to accomplish the second part of his mission.
+
+SECRET
+
+DECEMBER
+
+NICHOLAS
+
+OPERATIONAL PLAN
+DESIGNATED
+
+SECRET
+
+14-00000

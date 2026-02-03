@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_23596.png
+
+Convert to MarkdownSECRET
+Security Information
+
+- 2 -
+
+b. Personal data:
+
+BIRADIAL is an American citizen born in Illinois in 1922, who is married to a Costa Rican and has two small children. He spent approximately 5 years doing U.S. Air Force intelligence work in the CBI and Caribbean Theatres. Since June 1949 he has worked for KUBARK in Costa Rica as a Contract Agent under student cover. He is particularly adept at spotting and recruiting agents and has successfully supervised the direction of a high-level Communist Party penetration agent.
+
+5. Cover:
+
+a. Clandestine contact will be arranged between the agent and the case officer. In view of the sensitive nature of his objectives and the modest position he is likely to occupy in the American community in Buenos Aires, it is regarded as inconsistent and insecure for BIRADIAL to enter into a social relationship with his case officer.
+
+b. Subject has been accepted as a student at the University of Buenos Aires for the school year beginning March 1954. Having a wife and two children he will try to establish himself in the photographic business, ostensibly to make ends meet while completing his studies. He is qualified and has had experience in this business before. By the time his studies are completed (in about one year) he proposes to have developed his photographic business sufficiently to provide adequate cover, justifying his remaining in Argentina.
+
+6. Contact and Communications:
+
+a. The case officer will contact BIRADIAL directly to provide him with direction and collect his reports. Both are native-born Americans. Contacts will be clandestine upon pretexts still to be arranged.
+
+b. Any sub-agents subsequently recruited also will be contacted clandestinely. They will be confined to persons within the normal social and business strata of BIRADIAL.
+
+c. No special problems of contact and communication are anticipated.
+
+7. Control:
+
+a. Subject has been dependent upon this Agency for the past four
+
+SECRET
+
+14-0000

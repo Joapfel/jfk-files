@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_24003.png
+
+Convert to MarkdownSECRET/NOTFORUM
+
+Narrative
+
+Hils ANDERSSON, Swedish-born resident of Switzerland, heads a printing and publishing establishment ("Editions la Cite") in Lausanne, said to have been set up in 1957 for the printing and distributing of Chinese literature. (This ties in with other information that the firm was established in Switzerland during the Algerian war in order to publish printed matter banned in France.) Since 1963 the firm had been responsible for the English-language edition of Revolution, but in 1964 the printing of the English-language edition was transferred to Paris where Revolution's main office is located. Swiss authorities had ordered ANDERSSON to cease publication of Revolution.
+
+Revolution has had a complicated history. It is descended from African Revolution which first appeared in early 1963 in Algeria. Its editor, Jacques VERGES, is a former member of the French CP who broke with that party over the Algerian question. After VERGES, who briefly headed African Revolution, had a falling out with Algerian officials later in 1963 and left that country, he began a new publication in Switzerland using the facilities of the already established ANDERSSON firm. His new publication was called Revolution, sometimes known as Revolution — Asia, Latin America, Africa. (The Algerians continue to publish African Revolution, which has no known connection with Revolution.)
+
+Initially both the English and French editions of Revolution were handled by ANDERSSON's firm, but the publishing operations of the French edition were very soon moved to Paris. Later the printing, too, of the French edition was moved to Paris and only the English edition continued to be printed in Switzerland. VERGES and the main offices were located in Paris.*
+
+Currently ANDERSSON is reported to publish Octobre, which is described as the organ of an organization in Switzerland called the "Centre Lenine." Both Octobre and the Centre Lenine are said to be controlled by ANDERSSON, but very little information is available about either. The Centre has been described as a propaganda arm of the Chinese Communists. There is some indication that they also have some connection with pro-Chinese dissident elements of the Spanish CP.
+
+ANDERSSON'S firm has also printed Mundo Oberto Revolucionario (MOR),
+
+Although the English edition was printed in Switzerland, its editorial office was also in Paris, headed by Richard GIBSON, American negro. In late May and early June 1964 — when it was already apparent that Swiss authorities were going to close down the printing of Revolution in that country — GIBSON and Alexandre STARKOFF went to The Netherlands seeking a firm there to print and distribute the English-language edition. It is not known why this effort was made instead of transferring the printing directly to Paris as was ultimately done.
+
+SECRET/NOFORUM
+CS COPY
+
+ATT #1 to CELW 21869
+
+201-306052

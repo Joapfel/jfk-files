@@ -1,0 +1,4 @@
+# JFK-Files-Part-1_page_26371.png
+
+Convert to Markdown1. Lecumberri was arrested on 12 August 1966. Rice was arrested with some 40 other members of the Popular Revolutionary Movement. They were charged with inciting rebellion, conspiracy, and accumulation of arms, and under these charges are not eligible for bail.
+As of October 1967, Subject is serving out his sentence in Lecumberri penitentiary.

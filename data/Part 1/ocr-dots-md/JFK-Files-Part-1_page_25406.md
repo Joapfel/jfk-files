@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_25406.png
+
+Convert to MarkdownWorld Associates Incorporated
+
+GComsulin/bn
+DCS/Operational Support Staff
+900 Key Bldg.
+
+2268
+
+Closed Case 52,872
+
+15 May 1969
+
+TSD
+Col. West
+
+For your retention.
+
+Attached per your request is copy of current data concerning World Associates, Inc., their products and services.
+
+REF: CO-A(S)-322/12039-69

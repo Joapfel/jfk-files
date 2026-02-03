@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_22725.png
+
+Convert to Markdown14-0000
+
+TRS-A-347
+Page 3
+
+G. Timing and other Factors
+
+Our preliminary interviews with Subject lead us to believe that he will be the interested and reliable American cutout for which this station has long felt a need. His greatest virtue in this respect appears to be an understanding of operational methods and an appreciation of relative values with respect to information. It is hoped to make this a permanent project, but our plans and our arrangements with Subject are considered to be probationary, dependent entirely upon his development and future usefulness.
+
+Elmer C. Mercer
+
+SECRET
+
+UNCLASSIFIED
+
+DESENSITIZED
+
+20 May 1949
+201-168 SS1
+
+L

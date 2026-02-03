@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_22985.png
+
+Convert to MarkdownPERSONAL RECORD QUESTIONNAIRE
+
+PART I - BIOGRAPHICAL INFORMATION
+
+TRSPRO/26
+
+Instruction: 1. Write clearly.
+
+2. Answer all questions completely. If question does not apply, write "not applicable"
+
+3. Attach blank pages if additional space is needed.
+
+1. Full Name Ross Lester Crozier
+   First Middle Last
+
+2. Name in native script Ross L. Crozier
+
+3. Name at birth (if different from 1.) Lester Ross Crozier
+
+4. Aliases, nicknames, legal changes (State briefly time, reason and place of use.) Not applicable
+
+5. a. Date of birth 20 June 1922 b. Place of birth DeKalb, Illinois
+
+6. Present citizenship, race if appropriate g/s/f by birth
+
+7. Nationality at birth and any subsequent nationalities (if different from 6.) U.S. and no subsequent nationality
+
+8. Present residence (Owner, tenant, sub-tenant.) Owner of house and lot at Colima de Tibes, San Jose, Costa Rica.
+
+9. Permanent address (if different from 8.)
+
+10. Present occupation (full title, salary etc.) Matriculated as Student of Economic Sciences at University of Costa Rica, third year, under G/T/bill Right Also practicing photography and planning to open small studio.
+
+11. Naturalization of subject or of close relatives in the United States. (Give date and name in which certificate granted.)
+Not applicable
+
+12. Relatives, friends, correspondents in United States. (Explain relationship) Lester Earl Crozier, Elizabeth Lorenz Crozier, Father and Mother, /s/ agent Francis Willing, friend, Colonel C/J/ Stettler, friend.
+Y. Arthur Groger, friend,
+
+18-6-3-60
+
+|  |  |
+|---|---|
+|  |  |
+|  |  |
+|  |  |
+|  |  |
+|  |  |
+|  |  |
+|  |  |
+|  |  |
+|  |  |

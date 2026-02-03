@@ -1,0 +1,56 @@
+# JFK-Files-Part-1_page_24821.png
+
+Convert to MarkdownSECRET
+
+4. The principal questions asked are listed as follows:
+
+a. What are the normal commercial relations, if any,
+between Banif, S. A. and the Spanish Government?
+
+b. If such relations exist, give details. How did the
+commercial relations arise? Was it because of
+commercial reasons or relations between individual
+Banif Directors and officials of the Spanish Government?
+If the latter, what is the nature of the relationship?
+Was it friendship or under-the-table deals such as
+kickbacks, rebates, etc. Describe each Banif-Spanish
+government deal giving the substance, participants,
+and arrangements?
+
+c. Does Banif, S.A. or its Directors have connections with
+any political group, either in the regime or in the
+opposition? Does it contribute funds to any political
+group?
+
+d. Does Banif have any deals with the military on some
+and equipment? If so, give details.
+
+e. What are the specific projects Banif has worked on in
+the past two years, either for its own account or the
+account of others. Give details.
+
+f. What information does Banif have, or a capability for
+obtaining, on Spain's economic, industrial, and financial
+situation as it might affect a post-Franco Government.
+
+5. Be Ref B requirements, Chief and DC/E/IB affirmed interest
+in the most significant power elements in the economic or commercial
+field in Spain, particularly those having political ties. They are
+interested not in all U. S. firms operating in Spain, but in those
+which are politically conscious and have the capability by virtue
+of size or nature of work to influence political life in Spain.
+For example, a small U. S. firm raising chickens in Spain is of no
+interest. Conversely, the Bank of America in the banking field or
+Broan &oot in the construction field or a U. S. firm manufacturing
+military equipment could be of great interest. In these firms with
+a capability to influence Spanish political life, the Chief and DC/E/IB
+would be interested in knowing the U. S. managers in Spain who deal
+with the Spanish authorities.
+
+6. The undersigned asked, and Chief and DC/E/IB agreed, to send
+Chief, Do their specific requirements on a formal basis. Chief and
+DC/E/IB opined that Project WURTH appears to have the best capability
+for Spain and Project WHETREE for Portugal.
+
+2
+# SECRET

@@ -1,0 +1,90 @@
+# JFK-Files-Part-1_page_22602.png
+
+Convert to Markdown14-00000
+
+<table>
+  <tr>
+    <td colspan="2">DISPATCH</td>
+    <td>CLASSIFICATION<br/>SECRET</td>
+    <td colspan="3">PROCESSING</td>
+  </tr>
+  <tr>
+    <td>TO</td>
+    <td>Chief of Base, JASH</td>
+    <td></td>
+    <td>PROPOSED</td>
+    <td>ACTION</td>
+    <td>ACCOMPLISHED</td>
+  </tr>
+  <tr>
+    <td>INFO.</td>
+    <td></td>
+    <td></td>
+    <td>X</td>
+    <td>MENTIONED FOR INDETERMINED<br/>NO INFORMING REQUIRED</td>
+    <td></td>
+  </tr>
+  <tr>
+    <td>FROM:</td>
+    <td>Chief, WH Division</td>
+    <td></td>
+    <td colspan="3"></td>
+  </tr>
+  <tr>
+    <td>SUBJECT:</td>
+    <td colspan="5">Harold R. HOEMAYR</td>
+  </tr>
+</table>
+
+ACTION REQUIRED - REFERENCES
+
+1. It is requested that the attached application for Health Insurance be given to Harold R. HOEMAYR for completion. HOEMAYR may retain the covering memorandum which outlines his coverage. The completed forms should be returned to Headquarters for processing. The premiums will be deducted from HOEMAYR's salary. Headquarters will notify HOEMAYR when his policy is in effect.
+
+2. Please explain to HOEMAYR that this plan covers basically two types of health insurance. 1: the normal hospitalisation explained in paragraph 3 of the attachment which includes in- and out-patient care, surgery and maternity. The allowable expenses covered under this section are immediately reimbursable within the limits of the plan. 2: the major medical benefit plan described in paragraph 4 covers miscellaneous medical expenses not normally connected with hospitalization such as doctors' office visits, doctors' home visits, prescriptions, injections and medications given by doctors, X-rays and other laboratory work done in connection with diagnosis or treatment, etc. The insured pays up to $100 of such allowable expenses under this category for each member of his family. If expenses exceed this $100 for any person during the calendar year, then the policy will pay for 80% of their additional expenses. In connection with this phase of the plan, it is suggested that HOEMAYR be advised to have a family keep a detailed record of all medical expenses incurred by each member of the family.
+
+3. HOEMAYR should be advised that under the hospitalization section of the plan, up to $75.00 can be reimbursed for surgical fees in connection with a tonsilectomy, whether the tonsilectomy is performed in a hospital or in the surgeon's offices.
+
+END OF DISPATCH
+
+Distributions
+3 - JASH
+
+DATE TYPED
+Oct. 1960
+
+DATE DISPATCHED
+12 OCT 1960
+
+CROSS REFERENCE TO
+
+DISPATCH SYMBOL AND NUMBER
+
+URS-66
+
+HEADQUARTERS FILE NUMBER
+
+CLASSIFICATION
+SECRET
+
+201-168881
+
+OFFICE
+WH
+
+ORIGINATING
+C/MEXI 2555
+
+COORDINATING
+
+OFFICE SYMBOL DATE OFFICERS NAME
+
+WH/L'S ~~WILSON~~
+
+1 - Subj. 201
+1 - WH/3/Nexi Chrono
+2 - WH/4/Registry
+
+RELEASING
+
+OFFICER'S SIGNATURE
+J. C. D. H.

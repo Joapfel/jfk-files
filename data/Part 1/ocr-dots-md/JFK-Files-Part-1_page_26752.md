@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_26752.png
+
+Convert to MarkdownKool 72-KICO-29
+
+3 May 1965
+
+24.5 In. Sra. Rico with Sra. Diener, who answers, for VHG. Not there, Sra. IK is not there either...about children...
+
+Kool off at RT 25.0, 1325, 3 may 1965

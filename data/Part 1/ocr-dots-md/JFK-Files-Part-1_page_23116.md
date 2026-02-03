@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_23116.png
+
+Convert to MarkdownACADEMIA DE CIENCIAS DE CUBA
+
+INSTITUTO DE NEUROFIBIOLOGIA
+Y PSICOLOGIA
+
+Lima y 37. ALT. DEL VECADO
+HABANA
+
+Prof. DR. JOSE A. BUSTAMANTE
+DIRECTOR
+
+23 de junio de 1967
+
+Prof. Dr. Carlos Alberto Seguin
+Jirón Huancavelica 470
+Lima, Perú
+
+Querido Amigo y Compañero:
+
+Aprovechando la oportunidad que me brinda los Laboratorios Erba de escribir a los amigos de Latino América a través de ellos es que te hago estas líneas. A partir de ahora dirige el sobre a ellos a la dirección siguiente: Apartado 21909, México 21, D.F., Mexico, y la carta a mí. Una vez que ellos abren el sobre y ven que está dirigida a mí, me la trae personalmente un representante de la casa en sus viajes entre nuestro país y Mexico. Así podemos estar seguros de una vía que no crea problemas pues tú escribes a Mexico y te llegan las mías de Mexico. Gracias a esto es que te estoy enviando el Tomo I de mi libro "Psicología Médica".
+
+Te hago saber que en el mes de Julio saldrá el primer número de nuestra Revista Psiquiatría Transcultural de la cual te enviaré un ejemplar por la misma vía.
+
+Te estoy enviando un ejemplar de los trabajos que a continuación relaciono: "Aprendizaje y Drogas", trabajo que leí en el Simposio "Psicofarmacología y Regulación de la Conducta" en el XVIII Congreso Internacional de Psicología, Moscú; el trabajo que oiste en Madrid, "Fac-tores Culturales con Cuadro Clínico Esquizofrénico"; "Importancia de la Psicología Médica en la Formación del Nuevo Médico", trabajo que ha sido traducido al Alemán y será publicado por la Universidad de Halle-Wittemberg, Alemania; "La Enseñanza de la Psicología Médica en Cuba", que ha sido traducido al Bulgaro y será publicado en la Revista "Savremena Medicina" en Sofía, Bulgeria; así como el último número del Boletín del Instituto. El Boletín a partir del próximo número saldrá cada tres meses, y estando ya en imprenta el número de Julio tan pronto salga te enviaré un ejemplar.
+
+Deseo hacerle saber que le envíe a Stanley Lesse mi trabajo "Psiquiatría en Cuba", igual al que tu enviaste correspondiente al Perú, el cual debe estar al salir en el American Journal of Psychotherapy.
+
+Está al salir también mi libro "La Enseñanza de la Psicología Médica en la Carrera de Medicina". Recibirás un ejemplar cuando esté listo. Asimismo, recordarás haber visto el Indice del Tomo II de la "Psicolo-"}]

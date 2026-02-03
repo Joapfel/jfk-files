@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_25808.png
+
+Convert to MarkdownSECRET
+
+surveillance team,
+
+h. Eventually separate GERENDE from either LIJERSEY surveillance team duties or the three photographic base houses, preferably the former. The two types of activities are not compatible with each other and should not be handled by the same principal agent.
+
+i. Implied, but not specifically stated elsewhere in this paper, is the suggestion that GERENDE be given a "cooling off" and training period of two to three months in PBPRIME. Of course, this will not be possible until other assets are developed to take over GERENDE's present duties. After his return from PBPRIME, GERENDE could be used to develop new support assets which would be completely compartmented from all of his previous operations, personnel and activities.
+
+6. CONCLUSIONS
+
+It would take several weeks of uninterrupted study of files to write a really comprehensive security review of GERENDE's operations and activities. However, based on the facts contained in this paper, it is the Station's opinion that GERENDE probably is not now known to the local police agencies as a KUBARK or PBPRIME agent. It is believed that GERENDE could be identified by the local police agencies at any time they choose to interrogate LIPSTICKS-12 and 30 in detail or when one of the other agent assets formerly or currently associated with GERENDE is compromised. Furthermore, if GERENDE is arrested, he could compromise most of the Station's support assets, plus the BG MORNING and Cuban Exiles portions of LIFEAT.
+
+Given several months time, the slow process of compartmentation can be introduced into GERENDE's operations. Such compartmentation, however, will never reach the truly desirable point, but some improvement over the existing situation can be made. If GERENDE can emerge basically unscathed from the current incidents, then KUBARK will have an extremely valuable long-range support asset.
+
+Quinton N. OUSLER
+
+21 October 1958
+
+SECRET

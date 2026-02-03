@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_24027.png
+
+Convert to MarkdownUnited States
+
+One of the most violent reactions came from the heart-
+land of capitalism, from the small American faction which pro-
+duces the monthly Hammer & Steel Newsletter in Boston. The
+October issue of the mimeographed bulletin vengefully gives a
+list of eight reasons why Khrushchev fell -- each one a vin-
+dictive crow of triumph, and many attacking not only Khrush-
+chev but basic Soviet policies such as "the distortion of
+peaceful coexistence." Points 2, 3 and 8 will serve as illus-
+trations:
+
+2. His German policy -- Khrushchev sought to ingratiate himself with West Germany. He was obviously ready to sell out the German Democratic Republic...
+
+3. The declining influence of the CPSU among the Socialist countries and the Communist Parties. The proposed Moscow gathering was shaping up as a conference of only those Party leaders ready to openly serve U.S. imperialist aggression against the national liberation struggles. For example, Asian supporters of Khrushchev could have gathered in a telephone booth.
+
+8. The nuclear success of People's China. Khrushchev had maintained that nuclear power was the exclusive responsibility of revisionists and imperialists -- of white nations. Khrushchev's great power chauvinism was blown sky high in Sinkiang Province.
+
+Although there is no evidence that the politically insignificance Hammer & Steel group enjoys any direct support from the Chinese (as the Russians alleged in their "Open Letter"
+
+of July 14, 1963), it has always offered its allegiance to
+Peking in the most extreme form. This is expressed again in.
+the claim that "Khrushchev's failure to recognize the contra-
+diction between the oppressed peoples and imperialism as the
+focal contradiction of our time resulted in blindness concern-
+ing the leading role of the Chinese Party."⁸ This is a claim
+that the Chinese themselves would not want to make, especially
+at this juncture.
+
+CS COPY
+
+201-306052
+
+all#lt
+OFPA-77970
+
+HW
+H.W.

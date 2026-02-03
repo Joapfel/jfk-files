@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_24063.png
+
+Convert to MarkdownSECRET
+
+Chief of Station, London/LCPITF
+
+Office of Finance
+Increased Federal Income Tax Liability - CAPITF-1, Employee No. 802799
+
+In compliance with the recent Enactment of the Revenue and Expenditure Control Act of 1963, Subject's tax liability has increased from $70.00 to $90.00 per month. This represents the additionalurtax charge and begins with the July 1963 pay period. Effective 1 December 1963 (1969 tax year) the tax liability will be reduced to $80.00 per month. The Station should effect the change and continue to T/A tax withholdings to Headquarters.
+
+HARRIET G. VINCOLLES
+
+Distribution:
+3 - C/8, London/LCPITF
+
+OFRB-396
+
+15 AUG 1966
+
+8 August 1968
+
+SECRET
+
+* 2 - CA/Staff
+* 1 - BIR/Div.
+* 3 - APB/CAAS
+* 2 - OF/Registry
+
+C/CA/EF
+
+C/MUR/88
+
+13 AUG 1968
+
+1.7 version
+
+Q-201
+
+17 may 1968
+
+G/F

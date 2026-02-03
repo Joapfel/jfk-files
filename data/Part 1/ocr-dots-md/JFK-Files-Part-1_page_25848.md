@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_25848.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA AIR
+(Mexico Air or Sea Pouch)
+
+KAPOK
+
+DISPATCH NO. RMX-V-454
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+201-119523
+
+DATE 21 MAY 1957
+FAFOE #500
+
+TO : Chief of Station, Mexico City
+
+FROM : Chief, WSD
+
+SUBJECT : { GENERAL = Operational Matters/LIPSTICK
+          SPECIFIC = Raymond H. GERARD/Training
+
+PRICEST
+
+Reference: REX-W-4410, 26 April 1957 (201-119523)
+
+ACTION REQUESTED: See Paragraph 5.
+
+1. Subject is scheduled for covert training to begin early, 10 June 1957, and to last five weeks. Subject should arrive in Washington, if possible, on 8 or 9 June.
+
+2. It is planned that Subject stay in a furnished apartment where he will also be trained on weekdays. For food, laundry and incidentals he will be given per diem of is Entertainment of Subject will be conservative.
+
+3. It is suggested that Mexico City Station provide Subject with a round-trip ticket by air. For a cover stampprint it might be wise to have Subject visit his mother's relative in South Carolina on the way to Washington. If desired, he should errata the impression that he is visiting New York City or both New York and Washington on this trip.
+
+4. Subject's cover while in the U. S. will be that of tourist.
+
+5. Please cable Subject's time of arrival and flight number. He will be met at the airport by the desk operations officer, "Larry." In the event the meeting is not made he should call the telephone number forwarded under separate cover and ask for "Larry." In the event he is still unable to make contact he should go to the National Hotel,
+
+(Releasing officer)
+
+KAPOK
+
+(AUTHORIZING OFFICER)
+
+FORM NO. 51-29
+JUN 1949
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>

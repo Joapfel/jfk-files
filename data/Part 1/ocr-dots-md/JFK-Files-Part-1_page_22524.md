@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_22524.png
+
+.
+
+Two documents provide a useful point of departure, from an historical point of view. One is a semi-official letter from Ambassador Farland in the Dominican Republic to Assistant Secretary of State Rubottom. The other document is an internal CIA staff paper revealing the relatively passive role that had been played by CIA prior to 1960.
+
+## 16 November 1959
+
+Ambassador Farland wrote an "Official-Informal" memorandum to Rubottom reporting that "the underground is more active today than ever in the history of the Trujillo regime." He described the principal opposition group as being about 2,000 strong. He said:
+
+> "... within this group there is growing militant anti-American feeling based on the premise that the United States should actively aid the Dominican revolutionary (sic) for the overthrow of the Trujillo regime. Discussions I have heard on this subject show an appalling lack of understanding of the position of the United States and its adopted doctrine of non-intervention. . . . . . This group is in possession of clandestine broadcasting equipment which will go into operation when the strike is made. CAS has been informed and joins with me in suggesting that you pass this information to J. C. King."
+
+SECRET-EN3 ONLY
+
+SECRE7-EVE3 ONLY
+
+14-00000

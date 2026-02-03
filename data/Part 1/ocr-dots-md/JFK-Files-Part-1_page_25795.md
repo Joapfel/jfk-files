@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_25795.png
+
+Convert to MarkdownSECRET
+
+would be if GERENDE were arrested by one of the local police agencies and interrogated in detail. Also, the Station must forever be aware that the local police agencies are certainly capable, for only a few dollars, of selling information concerning KUBARK to the Soviets and/or Satellites.
+
+d. Recommendations - It would be unwise to consider terminating GERENDE since he is a highly competent agent and since his termination would not eliminate the fact that he knows a great deal about the Station's support operations. He has been reminded several times, and the Case Officer will continue to remind him, that his tradecraft professionalism must improve and stay ahead of the increasing sophistication of the local police agencies and opposition services operating in Mexico.
+
+It is the opinion of the Station that GERENDE should continue to be used in about the same manner that he is presently being used. It would be advisable, however, to separate him from the two LIFEAT functions he is currently handling, BGMORNING and the Cuban Exile taps. This is suggested not only because of the possible future security ramifications, but also because GERENDE does not have time to run properly his support mechanism and to monitor taps seven days a week.
+
+To provide for a situation whereby one of the local police agencies becomes aware of GERENDE's illegal activities and assuming that either GERENDE or the Station learns of this before the local police agency can take positive action, it is imperative that a warning system of communications be established to facilitate GERENDE's removal from Mexico. Arrangements such as those used for Wilfred O. CLOWER could be set up or local arrangements could be made with ODUNIT or ODOATH for a more expeditious exit from Mexico. The Case Officer will develop this plan in detail.
+
+4. OPERATIONS
+
+a. Limited
+
+(1) Target - Stationary photographic surveillance of persons entering and leaving the LIMERICK installation,
+
+(2) Personnel - LIPSTICK-14 is the agent in charge of the LIMITED Base. According to GERENDE, LIPSTICK-14 is conscientious, security minded, speaks no English, and on occasion is a bit over confident. He performs his operational duties competently and with discretion. In addition to his photographic duties, he is also used occasionally as a one-man
+
+SECRET

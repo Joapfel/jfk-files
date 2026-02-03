@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_24508.png
+
+Convert to Markdown# ¿Espías en Casa?
+
+Parce que los agentes extranjeros están últimamente muy activos en el Perú. Esta vez se trata de agentes de la Unión Soviética —país con el que acabamos de entablar relaciones diplomáticas— que trabajan para la K.G.B., la tristemente célebre policia secreta que alguna vez estuvo dirigida por Lavrenti Beria.
+
+En editorial del 14 de junio, CORREO se refería a dos presuntos "dirigentes sindicales" soviéticos, los señores Boris Popov y Victor Mednikov, quienes han asistido como observadores a las reuniones de una rama fantasma de sindicatos que pretende erigirse como rival de la Confederación de Trabajadores del Perú o CTP. Señalaba nuestro día el contradicción que supone el hecho de que dichos señores se atravan calidad de dirigentes sindicales cuando es sabido que, en Rusia, el régimen sindical no es libre y los sindicatos son allí nada más que apendice del régimen totalitario.
+
+También ha estado en el Perú el titulado periodista Nikolay Leonov, y fue entrevistado por el diario "La Crónica". Respecto de Leonov, recuerda el diario "El Siglo", de Bogotá,
+
+en su edición del 17 de mayo del año en curso, que Leonov, actuando entonces como diplomático, fue sorprendido en México cuando entregaba a agentes extremistas la cantIDAD de cien mil dólares en efectivo presumiblemente destinados a financiar la insurrección. Por su parte, el diario "El Tiempo" de la misma Bogotá se refiere a la "red de espionaje y subversión que desde México dirige el seudoperiodista soviético Leonov, protegido además durante veinte años, con el fuero diplomático como "segundo secretario" de la embajada rusa".
+
+Según informa "La República", igualmente de Bogotá, en su edición del pasado primero de mayo, otro agedente soviético Alexander Operkunov, quien fuera expulsado de Colombia en 1964, regresó como miembro de una misión sindical soviética. Tanto Leontov como Operkunov han estado, reclentemente, en el Perú, lo que indica que a la Unión Soviética no le importa emplear en nuestro país a los mismos agentes que ha empleado en otras latitudes, y lo que vendría a justificar a quelenes estímán como peligroso el establecimiento de relaciones diplomáticas con Moscú.

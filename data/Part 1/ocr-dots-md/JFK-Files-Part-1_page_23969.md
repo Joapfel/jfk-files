@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_23969.png
+
+Convert to Markdowna madhouse, you know. (
+(He's now in jail?)),
+
+Now in jail, no charges against him. I understand the US Embassy is trying to get him out (laughing). I don't know whether Dr. Ramsey was actually an agent of some kind, although he had too many confusions to be really a good agent. Yes, too confused. There was too much wrong.
+
+In any case, what I found was that people were generally, if you had something to do and didn't live too lavishly, though Africans don't question too much on money. This business of feathering one's nest goes on all over Africa, apparently in Algeria now more than ever.
+
+Andersson said there are large transfers of money ~~to~~ in Algerian francs into Switzerland being bought up by the opposition even still for their own purposes, One day.
+
+Yes, Algeria would be fine-- provided I could find some reasonable - any kind of a newspaper assignment, a vaguely Left thing, better than anything else, but the more innumerable the better.
+
+((You said once before, you fit well in Algeria, you didn't fit well in Black Africa))
+
+I could move throughout Africa, but one has to start at a different point. For instance, for me to go to Ghana would create problems, innumerable suspicions, but to go to Algeria when I have people like Georges Arnaux who is a very close personal friend, they would welcome me, and try to find something for me to do . .
+
+That would be easy to arrange. And from there, I have South African friends the with both PAC and MDC, I have very good contacts. Wherever they have offices I can move inside. But one has to have some reasonable sort of thing. On this trip I used some of the Afro-American journals, the magazine (Encounter) which was quite successful in some places.
+
+I met Griffa said, why don't I have this magazine. They send it to Berges and don't send it to me." Nevertheless with Griffa there was some suspicion.
+
+And I had the opinion--I'm not paranoic and I don't like playing cops and robbers- or go for cloak and dagger stuff, but I had the opinion that somebody was watching me, was following me when I left there, which was one reason why I didn't see all the people I was going to see.
+
+I knew some Troopkyists there who (could) give me some stories about Griffa's organization - they're on the fringes of it, etc.- but I just didn't go to see them because I thought that Griffa might have someone watching to see where I was going. He wouldn't like the connection with Troopkyites, anyway.

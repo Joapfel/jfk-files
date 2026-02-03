@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_25396.png
+
+Convert to Markdownc. **Foreign Currency.** It is anticipated that any forseeable foreign currency requirements will be within the Station's capacity to handle.
+
+d. **Commitments.** No commitments have been made to LIHUFF/I other than a salary of $300.00 per month with a thirty day's notice on termination.
+
+e. **Funding and Accountability.** Since this project will only involve salary for the most part, no unusual requirements are deemed necessary for accountability. In the event that funds are passed for any type of special activity other than salary, normal standards of accountability will be used.
+
+8. **Annexes.**
+
+a. **Administrative Plan or Fiscal Annex.** Not applicable.
+
+b. **Communications.** Not applicable.
+
+c. **Technical Support.** Not applicable.
+
+d. **Logistics.** Not applicable.
+
+e. **Intelligence.** Not applicable.
+
+9. **Emergency Conditions.**
+
+If an official anti-USA atmosphere of sufficient Intensity prevailed in Mexico, LIHUFF/I very probably would not be able to maintain himself here, particularly if his employment continued in his present capacity. . This, however, is not seen as anything except a very remote contingency due to the Government of Mexico's dependence on the U.S. tourist trade. In a general war, it is probable that LIHUFF/I would be able to continue in place without too much difficulty and would be willing to continue operating on current objectives or to undertake entirely new operations against new targets. Contact and communications should represent few problems in Mexico.

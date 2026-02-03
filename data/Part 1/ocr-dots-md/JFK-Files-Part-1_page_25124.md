@@ -1,0 +1,79 @@
+# JFK-Files-Part-1_page_25124.png
+
+Convert to MarkdownSECRET
+
+- 23 -
+
+19. SOURCES
+
+(1) USEMB Moscow 3662, Control 22299, 30 June 1961
+
+(2) LIFIN, 29 September 1961
+
+(3) KUBARK Memo to Political Section, 25 September 1963
+
+(4) LICOML/1 Contact Report, 29 September 1964
+
+(5) LICOML/1, Contact Report, 27 August 1964
+
+(6) LIENVOY, 18 February 1964
+
+(7) LIENVOY, 27 October 1962
+
+(8) LIENVOY, 29 October 1962
+
+(9) LIENVOY, 9 November 1962
+
+(10) LIENVOY, 17 October 1962
+
+(11) DIR-20944, 28 February 1963
+
+(12) LIENVOY, 13 November 1963
+
+(13) LIENVOY
+
+(14) Memo to State Dept, 25 September 1963
+
+(15) Memo to Legal Attache, 13 November 1964
+
+(16) MEXI-7061, 25 November 1963
+
+(17) LIENVOY, 19 February 1964
+
+(18) LICOML/1 Contact Report, 20 August 1964
+
+(19) LICOML/1 Contact Report, 24 August 1964
+
+(20) LICOML/1 Contact Report, 17 September 1964
+
+(21) LICOML/1 Contact Report, 3 September 1964
+
+(22) REDCAP Sheet from Headquarters
+
+(23) MEXT-9079, 3 October 1961
+
+(24) LIENVOY, 78 December 1961
+
+(25) LIENVOY, 7 January 1963
+
+(26) MEXI-4126, 9 April 1963
+
+(27) MEXI-4615, 16 May 1963
+
+(28) LIENVOY, 4 December 1963
+
+(29) LIENVOY, 26 October 1964
+
+(30) LIENVOY, 7 December 1963
+
+(31) HMMW-13305, 13 January 1965
+
+(32) MEXI-7690, 8 January 1964
+
+(33) HMMA-22652, 20 December 1963
+
+(34) STATION OBSERVATION
+
+(35) PBSWING Telegram, 14 March 1963
+
+SECRET

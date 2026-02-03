@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_22611.png
+
+Convert to MarkdownC-82713 (S-8644)
+
+Argelia Cordero de CRUZIER
+
+RI Trace, non-derog.
+
+CL #100169, 22 April 1960.
+CSA re'd 22 April 1960. Acknowledged by CI/CA 27 April 1960.
+Acknowledged by OS/SSD, 6 May 1960. (S # 8644)
+CSA granted 20 July 1960
+
+201-165551

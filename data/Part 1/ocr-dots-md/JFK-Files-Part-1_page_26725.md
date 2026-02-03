@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_26725.png
+
+Convert to Markdown**Agel 73-AICO-24**
+
+**30 Apr il 1965**
+
+22.3 Call goes through. MO identifies himself as Nifia. Greetings. MO will send VAG some books on Sunday. However, they want to talk to him about another matter, but one moment...
+
+Sr. Undora (7ph) takes the phone. News there in Habana mention ...Santo Domingo...VAC says nothing is known about this. They have heard that there have been 1,000 killed. There is nothing on cease fire. The PBI protested against the invasion into Santo Domingo today. MO says that they called from Santo Domingo that the people called the Cubans to try to achieve Cease Fire...? VAG will try to phone "him" (?) now. They are sending out special transmission...(Connection poor). VAG will phone now and then call MO back.
+
+23.2 Out to BAX 25-80-32. VAG asks MO, who answers, for Dr. Cordero. Dr. Cordero takes the phone. Greetings. Habana just phoned and they are sending out a special transmission. They just received the news of Cease Fire and would like to know whether this is true or not. Asked VAG to call Santo Domingo to find out st whether it is true since they can't. Where can VAG call there? One moment. But give him a number of one that works (that is, a number of a Communist who will give them the picture)...Dr. C. suggests his wife's phone. Couldn't he give him another phone? No, does not have any phone there. Couldn't he let him know where VAG could locate Casagno. Dr. C's wife's phone is 9-66-03. And Tamaqno (not Casagno)? There could he be located? Or any other person who could give him a clear idea of the situation. Mejia would be a good person, but MO does not have his phone. Mejia phoned MO this morning. Doesn't anyone know his phone here? What is C's wife's name? Josefina de Cordero, Josefina Peinado de Cordero. Would she know? Yes, she must know phone of Juan B. (Mejia) or the phone of Elza Justo. VAG knows Elza. Fine. Radio Habana called VAG and they are going to send out a special program. Would to check on Cease Fire. Bosch talked about this today. They have been working on this. An American Aab has been dealing about this.
+
+26.0 Out to O9. VAG with Long Distance. Requests a call to Santo Domingo. They have not had communication for 2 or 3 days. VAG says there has been constant communication there. He says he talked to Santo Domingo this afternoon. She checks and says it will be 3 or 4 weeks before there is communication. That is what the M.Y. operator says.
+VAG asks to talk to radio Habana in Cuba. With Orlando
+NUNzáKEXKEXMX Fúndoró (not Undora). TO says Habana is calling VAG right
+now. Fine. Call goes through.
+VAG with Fundora. VAG called and was told he could talk in
+2 or 3 weeks. They can't call Santo Domingo...connection very bad...
+VAG can't hear...MO comes on line and explains that they can hear him
+in Habana. VAG repeats the matter of PBI. The PBI is having a National
+Assemble. They protested the invasion in Dominican Republic. About the
+call to Santo Domingo, it is via New York and the operator in M.Y.
+answered that communication has been suspended for 2 or 3 weeks. This is
+false because two friends of VAG,beanicans, talked to people in Sauto
+Domingo. VAG is going to call these friends to get them to call back.
+Then, VAG should report back in when he has news from Santo Domingo.
+
+32.2 Out to 25-30-32. VAG asks MO, who answers, for Sr. Cordero.
+Sr. Cordero takes the phone. VAG just talked to Habana.
+Was told he could not talk to Santo Domingo. Habana asked VAG to try to
+talk to Santo Domingo. If Cordero was able to talk to his wife, VAG
+
+Agel 73-AICO-24
+
+- 5 -

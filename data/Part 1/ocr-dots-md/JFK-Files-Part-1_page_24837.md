@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_24837.png
+
+Convert to MarkdownSECRET
+
+CIA/PEG Project Record Sheet
+
+Initials Date
+
+<table><tr><td>1.</td><td>DC/C, PEG</td><td></td><td>Project Name:</td><td>UNO/PO</td></tr><tr><td>2.</td><td>C/C, PEG</td><td></td><td>Country:</td><td>U.S./Latin America</td></tr><tr><td>3.</td><td>DC/CA (Netherlands)</td><td></td><td>Type of Action:</td><td>New Project Annual Report</td></tr><tr><td>4.</td><td></td><td></td><td>PEG Evaluation Officer</td><td>Dalziel</td></tr><tr><td>5.</td><td>NDEP, PEG</td><td></td><td>Date Received:</td><td>6 December 1970</td></tr><tr><td>6.</td><td>ANMP</td><td></td><td>Date Due in DEEP/PG:</td><td>28 December 1970</td></tr><tr><td>7.</td><td></td><td></td><td colspan="2">Interagency Coordination: [SIGNATURE]</td></tr><tr><td colspan="4">Comments:</td></tr><tr><td colspan="4">COMMUNITY. 1. UNDP As a new U.N./S.O. project designed to support contract development in Latin America (LA) as a political action agent on a re-Green Card issue. It replaces an earlier, now-terminated support project, ECOELIXO, under which TICDOM was contracted by San Diego City Management through 30 September 1980. The new UNO/PO project covers LA's railway, tunnel and operational/highway costs as well as funding of LA's budget of $20,000 from 1 October 1980 through the end of 1987. The LA 1987 III Operational Program contains sufficient funds to cover this project.</td></tr><tr><td colspan="4">2. TICDOM has served CIA as a political action agent in San Diego City since 1981. His work there centered primarily on the development of a cultural magazine, Darden, which attempted to spur the persistent leftist monopoly of the Mexican intellectual community. From time to time he also carried out spot assignments in other VII areas, usually as a top-level consultant in election campaign operations (e.g., in support of El Salvador in the Dominican presidential elections).</td></tr><tr><td colspan="4">3. In August 1988 TICDOM was obliged to move himself and his family to the United States for personal reasons. The UNO/PO project establishes him under a new cover, the WOVP Corporation in Los Angeles, a BOD Proprietary under project WUMMY, which is controlling its activities in Latin America. Under this cover, TICDOM will continue to be available on short notice for a variety of political action (election-targeted) assignments, as in the past.</td></tr><tr><td colspan="4">4. TICDOM's unique ability to serve CIA objectives in key election situations has been amply documented. The new cover arrangement under WUSALINE appears well suited, in terms of flexibility and backstepping, to enable CIA to continue to utilize TICDOM's services in the future. Recommend approval.</td></tr></table>
+
+SECRET
+
+SECRET
+
+SECRET

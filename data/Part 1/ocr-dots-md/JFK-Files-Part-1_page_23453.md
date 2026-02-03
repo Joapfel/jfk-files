@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_23453.png
+
+Convert to MarkdownSECRET
+
+29 May 1956
+
+MEMORANDUM FOR: Chief, FI
+VIA: FI/Projects Branch
+SUBJECT: Arthur G. VAIIVADA (P/A Project AMPHODARCH) Plans for Improvement of Cover
+REFERENCE: FI Memo of 13 December 1955
+
+1. Referenced memorandum requested that WH Division forward to Chief, FI, on or about 29 May 1956, a report concerning plans for improving VAIIVADA's cover (Habana University student on notional scholarship from WHD proprietary).
+
+2. Negotiations are currently underway for the establishment of VAIVADA as a representative in Cuba for one of several U. S. polling agencies. Such an arrangement would afford certain operational-contact advantages as well as a logical cover employment and apparent source of income for the agent. Efforts are being made to implement the proposed new cover arrangement prior to the 31 July 1956 renewal date of Project AMPHODARCH.
+
+J. C. KING
+Chief, Western Hemisphere Division
+
+SECRET
+
+14-0000

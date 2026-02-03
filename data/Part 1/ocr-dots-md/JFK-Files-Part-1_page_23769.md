@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_23769.png
+
+Convert to MarkdownSECRET/KAROK OFLA 2555
+
+4. On 14 and 15 June MODICAST again met with S/1 for further debriefings on the letter's contacts in Paris. MODICAST then briefed him on KUWENK requirements for MODICEE and passed on the requirement: AID information forwarded in DIR 16107 and DIR 18675. MODICAST's reports on these meetings are also included in Attachment B (USC). On 14 June S/1 was passed $500.00 as an advance on his per diem and travel expenses for his next meeting with MODICAST. MODICAST considers S/1 an apt student who learned the S/W system well in some two hours of instruction. Paris XURIOT Officer DONAMY noted some carelessness on S/1's part in the test messages, and this was subsequently brought to S/1's attention in the overall security briefing he received from MODICAST.
+
+5. The communications system established with S/1 consists of pre-arranged meeting sites and times, a one-way S/W system, and the use of the classified advertising section of the Algiers El Foudaah (received daily in Paris) by S/1 to signal a postponement of meeting dates. The one-way system was chosen for this initial stage of the agent's operational relationship with KUWENK for reasons of security; given the operational climate in Algiers and the specific circumstances in which S/1 must move, and adding to the sudden political upheaval in Algeria, S/1 would not be in a position to receive incoming communications safely. As of 23 June S/1 had initiated S/W correspondence, his initial effort being closely legible and the content operationally worthwhile. (See Attachment P).
+
+6. The next MODICAST contact with S/1 is scheduled for 15 July in Babra. (See OFLA 2578 for LCPIT's request for Rose Station support.) In view of the events that have just taken place in Algeria the meeting may still be considered as such with rethinking S/1's operational objectives for the period following 16 July as with debriefings, briefings, and passage of funds. Even though latest indications are that Meeting II will proceed as scheduled, it is questionable whether the AJA or the Afro-Asiankom's conference will be held in Algiers this summer. Moreover, there is no assurance at this writing that MEKENK will not be either postponed, canceled, or moved elsewhere. And to this possibility that MENA might be on the scene profiting from the sudden rise in the political fortunes of his friends, and Algiers suddenly loses some of its appeal as an area in which to carry out a meaningful test of S/1's operational capabilities. The next three weeks will tell us much and perhaps ally many of our apprehensions.
+
+7. Nevertheless, MODICAST must be prepared to handle a number of eventualities in his 15 July meeting, not the least of those being a possible revision of S/1's mission. The following possible alternatives present themselves; we ask Headquarters to address its attention to them and to other developmental targets and to cable recommendations and guidance prior to 15 July:
+
+a. S/1 to remain on site, continue his efforts to establish credentials and find a job in Algiers, or elsewhere, in the national liberation movement, and report on political developments in Algeria.
+
+b. S/1 to travel to Dar es Salaam to look into the job offer made some time ago by Denis FAUREEAU.
+
+c. S/1 to proceed to Brussels to continue development of MENA B (see OFLA 2511).
+
+d. S/1 to return to London to write up reports and operational proposals and polish up the translation of MENA B's book.
+
+e. S/1 to follow the MENDICE caravan wherever it may lead (perhaps Morocco?) and continue to look for job leads (outside the Moors).

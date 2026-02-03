@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_25815.png
+
+Convert to Markdown8. Re para. 1, e. I have no particular thoughts on LIJERSEY but think it consistent for GERENDE to handle it.
+
+9. Re para. 4 f: GERENDE should be taken off LIFEAT at once, even if it means losing lines. As of March this year the Station had enough agent personnel to handle bases for 24 lines. They should be able to fill the gap even though LDESTONE-3 and his tribe were fired. Only 12 lines are now being handled (latest report). The way GERENDE is handling his LIFEAT work seems to be breaking all the rules we set up in seven years of experience.
+
+10. Re para. 4 g, LICOL-7. I see no harm in GERENDE's handling the operational aspect of this case. But through LIMITATION-5 the police could get back to LIMITATION and the main LIMERICK tap, that is, if they were able to make GERENDE talk before we could save him. The danger to LIMITATION was not brought out in the Station's survey.
+
+11. In re para. 5, recommendations -
+a. Approve.
+b. Get him off LIFEAT right now.
+c. Concur, but liquidate LICALLA.
+d. This needs some discussion. What do we do with GERENDE in the U. S.?
+e. Concur.
+f. Concur with reservation noted above.
+g. O. K.
+h. I don't see why he can't handle all these jobs since they are physical surveillances.
+i. Not a bad idea.
+
+12. Final observations:
+a. What is GERENDE'S cover?
+b. We must be sure he is not overworked. Sloppy work has resulted from people being overworked.
+
+CHARLES W. ANDERSON
+WH/FI
+
+SECRET

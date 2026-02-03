@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_26074.png
+
+Convert to MarkdownSECRET
+
+1 February 1967
+
+MEMORANDUM FOR: Chief, CI/OA
+
+SUBJECT : Luis Clemente POSADA Carriles
+(201-300985)
+
+REFERENCE : Our memorandum of 25 January 1968
+
+Please cancel our request in Reference for
+a Provisional Operational Approval for Subject.
+
+C. W. Cox
+WH/3/Venezuela
+
+SECRET
+
+FEB 7 9 54 AM 68

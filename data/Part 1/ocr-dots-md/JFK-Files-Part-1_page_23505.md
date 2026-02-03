@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_23505.png
+
+Convert to Markdown(1)
+
+Abertado 779
+San Jose, Costa Rica
+
+May 17, 1954,
+
+The Pan-American Foundation, Inc.
+Box 3587,
+University Station,
+Gainesville, Florida, U.S.A.
+
+Gentlemen:
+
+I have heard that your organization grants scholarships to students wishing to study at Latin American Universities. Since I desire to continue my education at the University of Habana, I should like to have information on this program and what I must do to qualify for such a scholarship.
+
+201-168881

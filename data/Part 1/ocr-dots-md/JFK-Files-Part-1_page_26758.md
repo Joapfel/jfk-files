@@ -1,0 +1,52 @@
+# JFK-Files-Part-1_page_26758.png
+
+Convert to MarkdownReel 72-KICO-31
+
+6 May 1965
+
+21.5 In. Miric with Inge Kico, who answers, for VKG. He is out.
+He will probably have news when he comes home and she will have hi-
+phone Miric if it is early.
+
+22.0 In. Miric with Inge Kico, who answers. VKG is not back.
+VKG is at house of Jose Luis Gonzalez. They are waiting on call from
+there (Dominican Republic). Miric has had an official communication
+on this matter and would like to tell VKG. What is the phone where VKG
+is? Moment...
+
+He is at 24-07-15. Thanks.
+
+22.2 Out to 31-06-06. VKG with Jovan (Miric), who answers.
+VKG says they were waiting on call from Casanare, but did not go through.
+Will be tomorrow. Apparently will name "Marcio Mejia Ricart as Amb. in
+United Nations. VKG did not think it a good. Miric says it is all
+right for the state they are in. Another man were will be named Amb.
+in Mexico. Miric comments says that they must make this movement.
+Miric has the communique. Dechamps gave it to VKG. The
+most important part is point out that Harris is lying. Miric says
+that "what this man is doing, he is influential, no? ...follows a
+cause and is doing some foolish things." Does VKG know what happened
+in China? No. Thousands and thousands against - after Buenos Aires
+day before yesterday. Miric also has (xenex) (declaration) of the
+Permanent Commission of Congress - approving the censure of gov't. VKG
+saw it.
+
+What is VKG's idea of panora-a? YAG thinks they won't leave.
+Miric agrees - that this is long-time affair (U.S. occupation).
+
+Miric saw the (inauguration) of Casanare. He has personality.
+Is only 33 years old. Does Miric know that Casanare told Marcio (Mejia)
+yesterday that he had 50,000 more rifles. Yes, Miric sent in this.
+notice yesterday...They are in the North. They are still in revolution.
+This is just a breather.
+
+Perhaps can get together tomorrow. Miric has to go out
+early tomorrow. Could have lunch together - near CEPAL meeting.
+CEPAL is under the same shade of Dominican affair. VKG can get all
+material on speeches. But nothing is important on their decisions...
+everything is under shade (of this affair). Miric will follow the
+speeches. Can meet near "Siempre." Can eat at Oreo (7ph). Miric has
+not been there for years. Can meet there. Best later than 1200.
+Miric will pick vkg up at "Siempre" at 1300. Fine.
+
+Reel off at KT 23.7, 0630, 7 May 1965

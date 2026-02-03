@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_23044.png
+
+Convert to MarkdownSubject surrendered his private practice to the Cuban Government, and receives only his salary as Director of the Higher Nervous Activity Research Institute, which salary amounts to 800 Cuban pesos; this salary is insufficient to permit Subject to maintain his own home and his mistress's separate home and to lead the type of life to which he was accustomed.
+
+g. Subject is described as lacking in normal affections, cold and calculating, a typical schizoid interested only in himself, never makes a friendly gesture, has almost no friends. Subject is generally disliked and has many enemies who feel real hate towards him. The young Revolutionary medical doctors refuse to have anything to do with him. Fidel Castro does not know who Subject is and has certainly never been treated by Subject or received psychiatric treatment from any other psychiatrist. Subject must be very unhappy and downcast at his present situation: His income is insufficient for his normal mode of life; he no longer travels extensively abroad (formerly, he traveled abroad every three months); he holds no representative office; he is not politically or socially prominent and, indeed, no one pays him the slightest attention. Subsource states categorically that he believes that "Dr. Bustamente would be willing to accept any offer. He would take the bait if given half a chance."
+
+h. The trip that Subject made to the USSR in the early 1960's was a "pleasure trip." So far as subsource knows, Subject received no training in the USSR.
+
+i. Subject is not known to have any relations with SovBloc officials in Havana. He does maintain close relations with Dr. LOPEZ Sanchez (Inu), an old-guard Communist of the so-called microfaction who holds the post of Secretary of the Cuban Academy of Sciences.
+
+j. Fidel Castro is a pathological schizo-paranoid reform-type personality, which personality type is characterized by latent homosexuality.
+
+k. Raul Castro is just the opposite of what he appears to be and is more "human" than Fidel Castro; he has founded a home, takes an interest in his family, etc. He suffers from a homosexual complex, as denoted by his hoarse voice.
+
+l. Armando Hart is a hysterical type who believes that his wife dominates him. His wife suffers from a complex based on the fact that she is much older than he.

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_25063.png
+
+Convert to Markdownin making propaganda 'from one place to another' inasmuch as
+in the land of Brezhnev and Kosygin they do not even have a
+remote idea of what Mexico is like.
+
+"What is this plethora of Soviet personnel used for
+then in that embassy where not even a single Mexican citizen is
+employed, where the domestics themselves are Soviet, in that
+huge mansion that could serve as a den of vampires? The mystery
+deepens if one considers that the Mexican embassy staff in Moscow
+barely numbers six or seven employees whereas the USSR has more
+than a hundred in Mexico. Why does the Soviet Union have such a
+large embassy staff in our country if it does what ours does in
+Moscow?"

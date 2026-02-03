@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_24382.png
+
+Convert to MarkdownSECRET
+
+UNDER SEPARATE COVER ATTACHMENT
+
+TO: OEPA - 2223
+
+<table><tr><td>MICROFILMED</td></tr><tr><td>DEC 9 - 1969</td></tr><tr><td>DOC. MICRO. SER.</td></tr></table>
+
+IDENTITY
+
+Z 1057628
+
+SECRET
+
+S/C ATT. 1 to OEPA-2223 CS COPY
+
+201-306052
+200-124-156/3

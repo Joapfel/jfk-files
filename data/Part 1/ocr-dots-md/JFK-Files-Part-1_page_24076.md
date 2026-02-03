@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_24076.png
+
+Convert to MarkdownINLAND REVENUE MONOLOGUE (required)
+
+Until April of this year (1968), I lived mainly on assistance
+from my wife's family and occasional freelance journalism
+outside Britain. Also, I had some savings and investments
+in America and Switzerland to draw upon. My brother-in-
+law, Gordon Kaye, purchased a house at 32 Hartswood Road,
+Stamford Brook, London, W.12 for us — the price of the
+house being considered a loan to be repaid over the years
+as is possible. My children's school fees were paid by
+convenant by my brother-in-law, as well as a grant in
+convenant to my youngest daughter.
+
+I was not a legal resident of the U.K. until 8 April 1968, and on that date I began officially my duties as Overseas Representative and Correspondent for Negro Press International of Chicago, with a salary of $500 per month.

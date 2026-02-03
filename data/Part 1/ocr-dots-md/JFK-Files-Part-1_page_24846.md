@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_24846.png
+
+Convert to Markdown<table><tr><td>10-0000</td></tr></table>
+
+UNITED STATES GOVERNMENT
+Memorandum
+
+TO : WH/CA
+ATTN : Mr. Kittredge
+FROM : WH/Pers/Contracts
+
+SECRET
+
+DATE: 6 September 1966
+
+SUBJECT: Edward G. TICHBORN, Contract Compensation
+
+1. Per your tele-request this a.m., the following has been extracted from the contract for Edward G. TICHBORN, Independent Contractor.
+
+a. Basic Compensation (salary) of $12,000. per annum.
+(Increase was from 9 to 12 and based on his devoting almost full time to Agency duties; contract does not provide offset of income from his business/cover.)
+
+b. Additional compensation for quarters of $3,000. per annum and applicable only to initial permanent post of assignment overseas. (NOTE: Payroll has advised me they have stopped paying this amount effective 1 August, his departure from Mexi.)
+
+c. Travel and Operational Expenses. Will be advanced or reimbursed funds on an actual, reasonable and necessary expense basis for those expenses incurred by you in connection with such travel as may be directed or authorized by the Government and while on temporary duty away from your permanent post of assignment.
+
+d. Health Insurance. Has Agency Contract health insurance (group plan) which costs him $8.63 per month.
+
+e. Social Security deductions are made at the rate of 4.2% on the first $6,600. of basic compensation.
+
+Wm. Kenehan
+
+SECRET
+
+<table><tr><td>CONFIDENTIAL</td></tr><tr><td>REDACTED</td></tr><tr><td>PURCHASE ORDER</td></tr></table>

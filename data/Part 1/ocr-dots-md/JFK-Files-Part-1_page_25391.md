@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_25391.png
+
+Convert to MarkdownSECRET
+
+PROJECT OUTLINE
+
+1. Identification
+
+Mexico City, Mexico. Support for singleton contract agent operating into right-wing political milieu in Mexico for intelligence purposes with some covert action by-product.
+
+2. Objectives
+
+a. Objective The objective of this project is to provide support for a U.S. contract agent who has access to a wide variety of right-wing political elements and organizations in Mexico.
+
+b. Conduct of Project The contract agent, LIHUFF/1, was born in Mexico and has had a long history of business experience in Latin America, as well as, over the past fifteen years, in Mexico. At the present time, he is Executive Director of U.S. Chamber of Commerce of Mexico City, which gives him a great deal of mobility in both American and Mexican business circles. Generally, it is from the Mexican business community that the financing and support for right-wing political movements, organizations, and institutions eminate. Given the general trend of recent Mexican regimes, as well as the present one, toward more governmental regulation and manipulation of the economic life of the country, the Mexican businessmen continue to support right-wing political movements or ostensibly non-profit civic, research, and other types of organiza- tions used by them as front instrumentalities for expounding their philosophy and taking action in the politico-economic fields. LIHUFF/1 has natural access through his present position and past extensive experience in the business community here. Over the years, as a matter of fact, his numerous associations with these elements have earned him their trust and respect. In addition, for the past four years he has funded Lic. Agustin NAVARRO Vasquez (was LIHUFF/2) organization, consisting primarily of Instituto de Investigaciones Sociales y Economicos, A.C. (IISE), "Espejo" (a magazine on politico-economic affairs), and Movimiento Universitario de Renovadora Orientacion (MURO, a student organization). Also, he has handled LICHANT/1 who has a history of, and numerous associa- tions in, the Mexican right-wing political arena. These and many other contacts of this type will provide the basis for his reports on this particular segment of the political spectrum in Mexico.
+
+c. Targets Right-wing political elements and organizations in Mexico. This would include not only Lic. NAVARRO, IISE, "Espejo," and MURO, but Hugo SALINAS Price, Jorge SIFGRIST Clamont and numerous others of political significance on the Mexican scene. In connection with LICHANT/1's present
+
+SECRET

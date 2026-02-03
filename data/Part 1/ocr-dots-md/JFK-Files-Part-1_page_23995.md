@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_23995.png
+
+Convert to Markdown(laughing) That's right. I think that going into that would take a long time and I'm not that it's also very hard to say, ~~taking contracts~~ and making our contacts with the Africans, with the Chinese, you say, look, we need a car, for political work. The Chinese say turn up a car, take your car. If the US embassy turned up a car, they would say take a car from the US Embassy. It doesn't make them any more American agents, It makes them Chinese agents. It's just a matter of who can produce. Africa is full of poor people. Just as the Negro community in the United States is full of poor people. Poor people don't have any sense of loyalty in the ordinary sense of the word. They have a sense of loyalty to their poverty, and colonial experience also mixed in with nation-hood, the national sense is extremely weak. They see things in terms of Western Nigeria, former colonial power, that's all.
+
+>You ought to know him better than I do. (laughing) I met him only once and that was in New York. I had a long discussion with him about 1 to 3 in the morning, and he was terribly afraid that somebody would think he was a Communist. I tried to assure him I didn't think he was a Communist no matter what (laughing).
+
+(Did he have anything to do with the magazine)
+
+None, because the magazine, while Verges was there in Algiers, and up until after Viriato da Cruz changed his position, the magazine would follow when was following the MPLA and only changed about with Viriato, changed from the MPLA to the UPA.
+
+Holden went to China and I suppose he gave the Chinese some guarantees but I don't know.
+
+(Mario d'Andrade)
+
+He is the active Secretary - I don't know his official title- of the MPLA, and represents another tendency different from Dr. Neto is the President. He had contacts with Revolution and with Viriato da Cruz. He sought to get Viriato to come back to the MPLA. He is a poet also. They are all poets. They are all former students in Portugal. The last time he came through Paris, he said. After Viriato published his article, in Revolution, he asked for the right of reply which was granted by Verges but he never wrote the article. He could be said to be much more pro-Soviet than pro-Chinese if anything. I think that should be added and added are statements on the other side.

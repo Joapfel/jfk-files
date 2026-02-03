@@ -1,0 +1,60 @@
+# JFK-Files-Part-1_page_23894.png
+
+Convert to MarkdownA has nothing to do with ~~NEAP~~ His basically with the Embassy.
+
+He told me had an incident with the Sov First Sec. at the Cuban Embassy
+last Jan. The Sov heard his name, said are you Swiss English? He said, no,
+I'm Swiss.
+Swiss. You must be <u>the</u> Anderson. Sov. told him he couldn't get away with
+that sort of thing long. An emotional outburst. 'Tried later to leave'
+better impression- I admire what you have been doing, etc.
+
+A is known to the Soviets.
+
+He has been in contact with the Sovié Party, with the Eritrean, Liberation
+movement. That was slight. He is in touch with Curiel and company.
+
+I'm not certain he is in complete approval of what Curiel group doing.
+
+At one time Curiel group interested in something in West Indies. I understand that they were talking to send arms into Martinique and Guadeloupe- which one can get in Switzerland, and slip.
+
+A was in contact with French West Indians. I don't know how far that went.
+
+Here in London Curiel wanted to found a magazine last summer to be devoted
+to West Indies.
+
+Two pre published here,  
+a Flamingo and Daylight. Don't know whether Curiel has anytins  
+do with it. There is a new one, Magnet. And said to be another one on  
+the way. She seen Dabeis ? In Algeria and Tunisia, so a加快 progress  
+but I really don't know what Curiel is up to.
+
+The Spaniards- I had no real knowledge on that.
+
+He is likely to keep up contacts with the Spaniards. Also with the Portuguese - e.g. students in France. Knows what going on. ~~but he is mixed up with Angola, was involved with the MPLA.~~
+
+He was disappointed when the exaggerated claims of the MPLA were exposed. Their claims that they had planes, arms on the inside, etc. But they could document their claims for the OAS.
+
+Turned out a monstrous bluff. The UPA much more conservative organization;
+
+it did have a fighting force. And continued mild贡品 strategy to strengthen
+and hit was when Visite de Caray and others switched from the MPLA.
+
+Understand Dr. Neto still running around, he contacts with the Chinese.
+
+He probably is in Algiers now.
+
+merely
+
+A. has contacts which consist of/being there. Anyone who comes to Algiers Jones to see him.✓ A kept in contact with Verges when Verges in Algiers. He had cultivated Anderson. Mrs. A. went down there to visit Verges. A. had full power to
+
+as of attorney to sign for the Verges bank account in the Banque Banque in
+November
+from hexa 1962 until probably Jan 1964. Verges claimed that A had taken
+money. A claimed the funds were down to 500 Swiss francs anyway.
+
+Verges sent French to close the account. Behind A's back, and when
+
+A found out he was furious.
+in Geneva.
+Anderson & Verges haven't seen each other since Swiss spring 1962.

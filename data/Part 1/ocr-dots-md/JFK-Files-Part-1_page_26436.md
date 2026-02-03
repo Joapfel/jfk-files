@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_26436.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>3</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+TO: DIRECTOR
+
+FROM: SANTO DOMINGO
+
+ACTION: SH 8
+
+INFO: CI, CI/OPS, FI, FI/INT 2, VR
+
+S/C: RET 111505Z
+
+SECRET INFO DIR CITE SDOM 2606
+
+B/S: MEXI 7695 (in 95254)⁸
+
+SDOM WOULD LIKE INFORMATION HIGH LEVEL GOVERNMENT
+(UNDER SECRETARY IN REGULAR CONTACT OF RICO GALAN TRAVEL EARLIEST
+FROM WHEN TRAVEL VERIFIED BY LESS SENSITIVE SOURCE
+NOT CABLE SDOM SO INFO MAY BE PASSED.
+
+S/N: 13007
+
+C/S: CUSTOM VERIFIED TRAVEL.
+
+SECRET
+
+Copy No.

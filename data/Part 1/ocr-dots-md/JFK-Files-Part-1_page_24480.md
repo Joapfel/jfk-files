@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_24480.png
+
+Convert to MarkdownSECRET
+
+25 January 1963.
+
+TDE/PLACE : Safe House #2, 1000-Jan 25
+PRESENT : Bulpa, Tiptoft, Larson.
+
+1. Purpose of this meeting was to inform Bulpa that Headquarters had agreed to his trip to the Congo and to pass contact instructions to McInturff. K. said that he had not as yet received instructions from Holden and that the latter planned to be in touch on Saturday. He would send the airline ticket from that city. K. also stated that Sarge Michal had agreed that the first six covers on the Far African Revolutionaire (#) would be shot by K. K. hit us up for a light meter since he said that his present one was broken and since he had to take all pictures prior to his departure for the Congo which he anticipated would be either early or mid next week.
+
+2. Another twist was that he had been contacted by Gibson, who informed him that a certain Dave Latts who runs a highly respected sheet in New York City had written to Gibson asking him for photos. Gibson will purchase and forward several of K.'s negatives. Since all this & goes enough, Bulpa promised to get more facts.
+
+3. The rest of the meeting was taken up by Tiptoft straightening out his accounts.
+
+h. Next meeting, 1000 Tuesday 29 Jan. 84
+
+Secret
+
+SECRET
+
+GALVANOS CAYO 20 DE junio de 1964
+FOTOGRAFICO: ADN 51 DE AGOSTO 1964
+SANCHEZ-HERNANDEZ Y ALMONEDA 28 DE SEPTIEMBRO 1964
+ORATORY FOR ANTIQUARIAS, 15 DE OCTOBER 1964
+
+14-0000
+
+104-10217-10228
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992

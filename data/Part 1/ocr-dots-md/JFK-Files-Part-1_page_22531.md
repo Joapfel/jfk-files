@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_22531.png
+
+Convert to MarkdownSECRET-EYES ONLY
+
+Comment: Farland was in Washington for consultations.
+
+Although he is listed as having served as Ambassador until 28 June 1960, it appears that he did not actually return to duty in Ciudad Trujillo. His successor, Vinton Chapin, was nominated 13 June, but he never took the post.)
+
+## 3 June 1960
+
+Farland met with Nelson H. Smith, the Dominican desk officer in WH Division. They compared lists of dissidents to see if the names CIA had were those with whom Farland had been dealing. Farland said, "Those are the boys all right." Smith's memorandum of the meeting includes this comment:
+
+"Farland then told me that the underground opposition are planning to assassinate Trujillo. He said that it is planned to use a powerful bomb which could be planted along the route of Trujillo's nightly walk and could be detonated by a remote-control firing device. He intimated that this plan is pretty well along and could be executed at any time."
+
+Undated Working Paper (filed between papers dated 25 May and 13 June)
+
+The author is not identified nor is there any indication that the proposal was approved. Its objective was stated thus: "To precipitate the downfall of the Trujillo regime by 1 August or as soon as possible thereafter." It proposed that the U.S. become a prime motive force against the Trujillo regime. "In the event Trujillo
+
+SECRET-EYES ONLY

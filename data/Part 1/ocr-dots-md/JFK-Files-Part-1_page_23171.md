@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_23171.png
+
+Convert to Markdown10 February 1966
+
+to us all in that. A person, devout Catholic, she died in 1957 or 1958, left some property to University. Pastorate himself is a conference economist and politician. He still believes pastorate's wife, a Ph.D. coaching at the high school level, is probably his own.
+
+6. Ford said further stated that pastorate has two children, a son, now eighteen to twenty years old, and a younger daughter. When the son was "around twelve to fifteen year old, he was, according to Ford, extremely effective end, because of this, a source of much attraction" to his father.
+
+7. Ford also stated that the circumstances of pastorate's birth, adoption and upbringing may have confidentiality him and contributed greatly to his leftist philosophy. Ford also believed that those same circumstances may have contributed to pastorate's interest In psychiatry, i.e., they may have led to a search for a better understanding of himself and his problems. Ford's own attitude toward psychiatry and psychiatrists is also worth considering if he fleetly stated, "I don't believe in them. I prefer a good price."
+
+8. Based on the goal regarding a New York City visit of pastorate, mentioned in paragraph three, Ford suggested a check with the US Immigration and Naturalization Service for further background on pastorate. In discussing further leads, Ford said that at least eighty percent of the Cuban physicians in the US would have known pastorate to some degree or other, because of his two- year presidency of the Cuban Medical Association.
+
+9. Of the many Cuban physicians in Washington, D.C., Ford mentioned two men practicing as the dispensary in the Public Health Service building downtown", Drs. (M.D.) Macario and (M.P.H.) Tresells. He knows little about Tresells; Macario is in his forties, has been in the US about five years.
+
+10. Ford's prime recommendation as a source of information on pastorate, however, is Dr. (M.D.) Hueston, President, CUBAN MEDICAL ASSOCIATION in EXILE, Miami, Florida. He would have such information on pastorate and would be a source of leads to CUBAN psychiatrists in the US (probably four or five individuals) who could be expected to have considerable influence on pastorate.
+
+11. We assume Dr. Hueston has been contacted by the Miami Office. Drs. Macario and Tresells look like relatively original leads, but we will be pleased to contact them if desired. Otherwise, please call Jose Hueston for the Washington Field Office.

@@ -1,0 +1,133 @@
+# JFK-Files-Part-1_page_23471.png
+
+Convert to MarkdownSECRET
+
+: Chief of Mission, Habana
+
+: Chief, WHD
+
+-Operational
+
+-AMPHODARCH
+
+Reference: HAVA-926 (IN-25759); DIR 10892; DIR 10893
+
+1. Operational clearance has been obtained for Arthur G. VAIVADA on 22 July 1954 as a replacement for Wallace C. RIKON in Project AMPHODARCH.
+
+2. VAIVADA has been a KUBARK contract agent since July 1949. His initial assignment was in Project HUMANOID in Costa Rica, where under a student cover he achieved a high-level penetration of the local EGYPSY organization. He was recalled to Headquarters in the fall of 1953 to participate in a similar project in Argentina, which could not be carried out because of refusal of the Argentine Government to grant him a visa. Recently he was in PBSUCCESS with additional duties as a cutout under Project ESCROW. He has completed three years of work at the University of Costa Rica and has one more year to finish for his B. A. degree in economics. His previous work as a contract agent has been excellent.
+
+3. VAIVADA's new contract becomes effective on 1 August 1954 and runs for two years. His salary will be $5060.00 annually (CS-9) and will be entitled to an equivalent quarters allowance. Transportation for VAIVADA, his dependents, and household effects, together with por diem in lieu of subsistence-in-the-course-of-the-travel-to-Cuba is authorized. He is entitled to death and disability benefits under the Federal Employees Compensation Act, to continuance of pay and allowances under the Missing Persons Act, and to 14 days of annual leave per calendar year. Although VAIVADA is expected to get his B. A. degree in one year at the University of Habana, it is expected that the second year of his contract will be spent in some type of graduate work at the same institution.
+
+J. C. KING
+
+C. L. BOOKER
+
+SECRET
+
+201-168871
+
+AUG 20 1954
+
+SECRET
+
+G. V.A.
+C. M.
+
+AIR
+
+KICK-778
+
+- : Chief of Mission, Habana
+- : Chief, WHD
+
+- -Operational
+
+- -AMPHODARCH
+
+**Reference:** HAVA-926 (IN-25759); DIR 10892; DIR 10893
+
+1. Operational clearance has been obtained for Arthur G. VAIVADA on 22 July 1954 as a replacement for Wallace C. RIKON in Project AMPHODARCH.
+
+2. VAIVADA has been a KUBARK contract agent since July 1949. His initial assignment was in Project HUMANOID in Costa Rica, where under a student cover he achieved a high-level penetration of the local EGYPSY organization. He was recalled to Headquarters in the fall of 1953 to participate in a similar project in Argentina, which could not be carried out because of refusal of the Argentine Government to grant him a visa. Recently he was in PBSUCCESS with additional duties as a cutout under Project ESCROW. He has completed three years of work at the University of Costa Rica and has one more year to finish for his B. A. degree in economics. His previous work as a contract agent has been excellent.
+
+3. VAIVADA's new contract becomes effective on 1 August 1954 and runs for two years. His salary will be $5060.00 annually (CS-9) and will be entitled to an equivalent quarters allowance. Transportation for VAIVADA, his dependents, and household effects, together with por diem in lieu of subsistence-in-the-course-of-the-travel-to Cuba is authorized. He is entitled to death and disability benefits under the Federal Employees Compensation Act, to continuance of pay and allowances under the Missing Persons Act, and to 14 days of annual leave per calendar year. Although VAIVADA is expected to get his B. A. degree in one year at the University of Habana, it is expected that the second year of his contract will be spent in some type of graduate work at the same institution.
+
+J. C. KING
+
+C. L. BOOKER
+
+SECRET
+
+201-168871
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET

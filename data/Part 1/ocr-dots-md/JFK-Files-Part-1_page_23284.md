@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_23284.png
+
+Convert to MarkdownSTANDARD FORM NO. 84
+
+Office Memorandum • UNITED STATES GOVERNMENT
+
+TO : Chief, WH/3/FI
+ATTN : Mr. James B. Holand
+
+FROM : AC/GS/TR
+
+SUBJECT: Training Report on Arthur G. VAIVADA, (P)
+Training Alias: "VICKS"
+
+DATE: 10 June 1957
+
+1. Arthur G. VAIVADA was trained covertly by instructors of this office in Washington, D.C. from 25 March 1957 through 7 May 1957. The original Training Request form dated 4 December 1955 reveals the following information concerning his background, experience and proposed assignment:
+
+"VAIVADA is thirty-four years of age, married and a U.S. citizen by birth. He attended high school in De Kalb, Illinois and entered the U.S. Army in 1940. later transferring to the U.S. Air Force. The trainee served as an operations and intelligence specialist, first in the China/Burma theatre and later in Panama. He was discharged from the service in 1945. Following his discharge, VAIVADA worked for a short period as a laboratory technician in the Sterling Silica-Gel Corporation, Illinois and then returned to the Panama Canal Zone to work as a stevedor and a labor foreman. He reenlisted in the U.S. Air Force in April 1946 and was honorably discharged in 1949. On 1 June 1949, VAIVADA became a contract agent for this Agency. He served in this capacity in Costa Rica, handling a high level penetration of the Communist Party until 1953. In July 1954, the trainee became principal agent of Project AMPHODARCH. He has been operating under a student cover, working for his A.B. degree at the University of Havana. It is planned that VAIVADA will return to Havana, Cuba under cover of a representative of a well known U.S. polling agency. He will perform the duties of principal agent, handling a large net of sub-agent informants in Cuban university youth circles to provide coverage of Communist, leftist, revolutionary and other political activities among these groups."
+
+2. The instructors who participated in VAIVADA's training indicate that his overall performance was above average. He is a highly intelligent, practical and realistic young man possessing excellent judgment and common sense. His motivation is strong and his interest in clandestine activity as a profession appears to be genuine. VAIVADA should continue to develop as a skilled and competent agent.
+
+The official to whom this report is entrusted is personally responsible for it. Although he may within his discretion show it to other members of his staff, the report should never be shown to the student whom it concerns.
+
+SEC-

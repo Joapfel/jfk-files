@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_23059.png
+
+Convert to Markdownthe organization of the CNIC. The date upon which the Institute of Physiopathology will begin to function cannot be established inasmuch as Mora, who has the degree of Doctor of Biochemistry, must first receive his degree as a medical doctor.
+
+44. Psychology and Neurophysiology Institute, The Psychology and Neurophysiology Institute (formerly the Higher Nervous Activity Institute) occupies the building formerly occupied by the Banco de Piedad, in Reparto Alturas del Vedado, Havana City. The institute is headed by Dr. Jose Angel Bustamante, M.D., who is very intelligent and very well organized. As of mid-May 1966, the ground floor contained the lobby, three rooms used for psychiatric care, a sick-farmaco storeroom, the Department of Neuropharmacology, two small rooms for experimental surgery, about 20 cages for experimental animals, three rooms containing electromedical instruments used by Dr. Toro (see paragraph 17) in his research work, including three electroencephalographs, two electrocardiographs, electro-miografos, ammeters, voltmeters, etc., two or three rooms for animals in which scientific instruments have been imbedded for the experimental verification of certain physiological data, two rooms used to study conditioned reflexes in rats, a long corridor (about 30 meters long) equipped with bells, lights, and gates, in which Dr. Diego Gonzalez was studying synthesis aferente de Anoyshen, two rooms in which Dr. Jose Aquino was conducting experiments on the effects of ouabaina on the central nervous system, and other undescribed experiments. The second floor contained the files, library, conference hall, and rooms for which no specific function had yet been determined.
+
+45. As of May 1966, Dr. Bustamante was doing research on social psychology (the psychological characteristics of individuals belonging to a specific socioeconomic group) and had very ambitious plans to use electronic data processing machines to study the electrochemical processes and the servomechanisms of higher nervous activity; these ambitious plans were to be put into effect in 1967. The land located behind the institute was to serve for the construction of other departments of the institute.
+
+46. Hygiene and Epidemiology Institute. The Hygiene and Epidemiology Institute functions at two separate installations. Institute headquarters and its hygiene section occupy a building on Calle Infanta, Havana City. Dr. Cosme Ordoñez, M.D., is director of the institute; he is described as very intelligent and very well-organized. During the first six months of 1967 he took a course in hygiene and epidemiology at the University of London. Dr. Plasencia (fnu) is another of the principal figures at the institute.
+
+47. Public health data received from all parts of Cuba are processed at the institute headquarters on Calle Infanta (DOJ: September 1966). In addition to the hygiene section, institute headquarters contains a well-equipped Virology Department, which has an electron microscope, a well-equipped Serums and Vaccines Department, a school for public-health workers, and a school of medical statisticians.
+
+48. The epidemiological section of the institute is located at Las Animas Anti-infectious Hospital, Havana, at which medical care is provided and research work done. Las Animas Hospital was totally rebuilt during the period 1962-65 and is a model hospital that compares favorably with any other
+
+5
+
+4
+
+5
+
+3
+
+3
+
+3

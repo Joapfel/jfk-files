@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_25582.png
+
+Convert to MarkdownSECRET
+
+FORM
+B-64
+(40)
+
+USE PREVIOUS EDITION.
+
+CLASSIFICATION
+
+SECRET
+
+PAGES NO.
+
+CONTINUED
+
+2
+
+contract the proviso that full retirement benefits (three months salary plus one month's salary for each year worked) should apply after, say, twenty year's service, with lesser benefits to apply between now and then?
+
+4. Could you recapitulate for us the prevailing Mexican law or custom (which is it?) on termination-at-the-convenience-of-the-employer? A number of months ago you told us that it was three months pay plus 20-days-per-year-worked, but the LIFIRE/4 and 5 MOC's said that "following local custom of termination subject only has to be paid one month's salary for each year of employment". Your proposed GERENDE terminal payment formula, (which may be a special case rather than a pattern and which, as we understand it, makes no distinction between voluntary resignation and termination-at-the-convenience-of-the-employer) is one month's pay for each full year of employment, plus three months pay at the rate applicable at the time of termination. Does this imply that the one month's pay for each year worked is computed at the rate of pay prevailing during each respective year worked? Does Mexican law or custom dictate the payment of terminal bonus to employees who resign voluntarily? (Working for WOFIRM is a very special case, obviously, and deserves exceptional financial consideration, but we do want to understand the background as it applies to commercial work so that we may have a frame of reference or point of departure).
+
+5. We apologize for the long delay in sending this dispatch. It was originally written in March, and mislaid in transit, but we thought it had been pouched.
+
+6. Apart from the foregoing, do you recommend any changes in GERENDE's contract which will be due for renewal on 1 October 1968?
+
+Theresa H. BACHARDY

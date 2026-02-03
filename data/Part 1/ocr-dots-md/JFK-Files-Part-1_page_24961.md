@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_24961.png
+
+Convert to MarkdownCONFIDENTIAL
+
+22OCT
+1968
+
+MEMORANDUM FOR THE RECORD:
+
+SUBJECT: Newspaper Article on Herbert Itkin
+
+On 22 October 1968, the attached article from the 15 October 1968 edition of the New York Daily News concerning James Marcus and Herbert Itkin was shown in a low key to Mr. Edward Long, Country Director APA/CAR, by Mr. Paul V. Harwood, Chief, Mil/7. Mr. Long expressed no interest in the article.
+
+Bob Berg
+WII/7/It
+
+CONFIDENTIAL

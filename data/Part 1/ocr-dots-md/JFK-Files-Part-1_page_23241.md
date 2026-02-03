@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_23241.png
+
+Convert to Markdown<table>
+   <tr>
+    <td colspan="2">CLASSIFIED MESSAGE</td>
+   </tr>
+   <tr>
+    <td></td>
+    <td>SECRET</td>
+   </tr>
+  </table>
+
+DATE : 10 MARCH -1958
+
+TO : DIRECTOR
+
+FROM : HAVANA
+
+ACTION : 5
+
+INFO : COP, CI, CI/OPS, S/C 2
+
+ROUTING
+| 1 | 4 |
+|---|---|
+| 2 | 5 |
+| 3 | 6 |
+
+MAR-11 06-50-258
+
+REC'D CABLE SECT.
+
+ROUTINE
+
+IN 41341
+
+TO SACU INFO DIR CITE HAVA 109
+
+ADVISE IMMEDIATELY WHEN YOU CAN CONFIRM VAIVADA HAS REACHED DESTINATION.
+
+END OF MESSAGE
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

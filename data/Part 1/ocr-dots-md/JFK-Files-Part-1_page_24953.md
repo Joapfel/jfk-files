@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_24953.png
+
+Convert to MarkdownSECRET/RYRAT
+
+Attachment A to HSSW-2742
+
+CUTIERREZ, Luis Emerico
+
+Born in San Salvador, El Salvador, on 15 July 1916; son of Luis and Concepcion G. B. Commerce from Sir George Williams University, 1948; M.A. from New York University, 1951; Ph.D. in Economics, University of San Salvador, 1959; married Lydia DIAZ on 21 September 1940; one daughter, Maria Marta; vice consul of El Salvador in Montreal, 1944-1949; consul in New York City, 1949-1952; consul general, New Orleans, 1952-1958 (30 December 1952-3 April 1958)*; supt. banks and corporations, El Salvador, 1958-1961; general manager inversiones commerciales, 1961 - present; professor of economics, University of El Salvador, 1958 - present; commissioner, City of San Salvador, 1964 - present; served to first lieutenant, Salvadorian Army, 1933 - 1939; member of American Economists Association, Association of Salvadorian Economists; home: 83 avenida Norte 619; office: Apartado Postal 1144, San Salvador, El Salvador.
+
+* Who's Who in Commerce and Industry, 1968-1969, page 558.
+
+** Foreign Consular Offices in United States, 1954 through 1959. **

@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_23946.png
+
+Convert to Markdown(That points up the need for a continuing revolution, when the revolution is completed))
+
+Yes. You don't have jobs unless you're in the government. And that's a problem, too. In his case, he wasn't even a real revolutionary, just a bureaucrat in Rabat and other places.
+
+(Rabat)
+(And did you get involved with Verges?
+
+That I don't know. I don't know how he got into it, but he was her
+I imagine he met her
+the beginning, early in Rabat.
+He used to go to Morocco quite often
+and had contact with all the African, the race people there. I suspect
+that's where he met her.
+So for
+(How much more those guys)
+
+Now you've got Harbi. He was one of the person who replaced Verges.
+He's out now, but he, uh, used to be in the, I'm told by Andersson, who knew
+has his ear to the ground in Algiers as well as in Switzerland, that Harbi
+is, in a very good position. He is one of the leading advisers to Ben Bella,
+represents the Left position. He's a Trotskyist, or a Trotskyist sympathiser
+without any formal organizational ties. He is very close to the Pablo
+Fraga.
+That's Michel Satter. He's Pablo, um, we could'nt have overlooked him,
+he's a feature of Algiers life. He played an extremely important role in
+the agrarian reform, in the type of agrarian reform that was going to be
+carried out. He came down on the Yugoslav model, that is collectives which
+are privately owned by the collectives and run on profit model, that is
+on a
+profit basis.
+(Handwritten: and especially so)
+des Biens Vacants
+
+Harbi was one of these Bureau des Biens.
+then
+which became the Bureau of the Socialist Sector. I once did an article for
+the Monthly Review, so I know all about how it operated. What really
+happened was that the Europeans fled just before independence,
+and then it would have been after independence, if they had
+of rather should have, considering what they had done. But they expected
+a blood bath. The blood bath never took place. It was an incredible,
+That was one of the most incredible things to me in Algeria was that the
+Algerians didn't do it. They did it after independence.
+Because the stories were horrifying. You know what happened. A month or so
+before, they were just shooting everybody on the street, trying to provoke
+them, and the discipline of the FLN was incredible. Nobody would
+shoot back, no matter what they did. So they fled and they left all this
+behind them.
+It was a question of ploughing and seeding. There
+is only a certain time of year that you have to do this. This had to be
+organized and it was organized almost spontaneously locally. And then-
+this was sort-of institutionalized later, after it was an accomplished
+fact. They want some sort of a socialistic order.

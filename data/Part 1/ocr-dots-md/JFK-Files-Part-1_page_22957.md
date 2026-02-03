@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_22957.png
+
+Convert to MarkdownSEC. 9. MOTHER-IN-LAW
+
+FULL NAME Dora (First) Cordero Calderon (Middle) Cordero Calderon (Last)
+LIVING OR DECEASED Living DATE OF DECEASE HA CAUSE HA
+PRESENT, OR LAST, ADDRESS San Juan Tibas, San Jose, Costa Rica (St. and Number) (City) (State) (Country)
+DATE OF BIRTH Sept. 7, 1893 PLACE OF BIRTH San Jose, Costa Rica
+IF BORN OUTSIDE U. S. INDICATE DATE AND PLACE OF ENTRY HA
+CITIZENSHIP Costa Rican WHEN ACQUIRED? Birth WHERE? Abora (City) (State) (Country)
+OCCUPATION Housewife LAST EMPLOYER Unknown
+
+SEC. 10. RELATIVES BY BLOOD, MARRIAGE OR ADOPTION, WHO EITHER LIVE ABROAD OR WHO ARE NOT CITIZENS OF THE UNITED STATES:
+
+1. NAME Norma Cordero da Cragor RELATIONSHIP sister-in-law AGE 24
+CITIZENSHIP Costa Rican ADDRESS Box 2655, Cristobal, Ca. 2s. (St. and Num.) (City) (State) (Country)
+2. NAME Label Cordero da Naranjo RELATIONSHIP sister-in-law AGE 27
+CITIZENSHIP Costa Rican ADDRESS Plaza Vinas, San Jose, Costa Rica (St. and Num.) (City) (State) (Country)
+3. NAME Consuelo Cordero Calderon RELATIONSHIP sister-in-law AGE 29
+CITIZENSHIP Costa Rican ADDRESS San Juan Tibas, San Jose, Costa Rica (St. and Num.) (City) (State) (Country)
+
+SEC. 11. RELATIVES BY BLOOD OR MARRIAGE IN THE MILITARY OR CIVIL SERVICE OF THE U.S. OR OF A FOREIGN GOVERNMENT: NORMA
+
+1. NAME HA RELATIONSHIP HA AGE 31
+CITIZENSHIP HA ADDRESS HA (St. and Number) (City) (State) (Country)
+TYPE AND LOCATION OF SERVICE (IF KNOWN) HA
+2. NAME HA RELATIONSHIP HA AGE 31
+CITIZENSHIP HA ADDRESS HA (St. and Number) (City) (State) (Country)
+TYPE AND LOCATION OF SERVICE (IF KNOWN) HA
+3. NAME HA RELATIONSHIP HA AGE 31
+CITIZENSHIP HA ADDRESS HA (St. and Number) (City) (State) (Country)
+TYPE AND LOCATION OF SERVICE (IF KNOWN) HA
+
+(5) B-65-1
+
+25C. 15 L-TYPE AND LOCATION OF SERVICE (IF KNOWN) HA

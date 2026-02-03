@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_24907.png
+
+Convert to Markdown14-00000
+
+SECRET
+
+Chief of Station, Mexico
+
+X
+
+Chief, Western Hemisphere Division
+Edward G. TICHBORN, Contract Extension
+
+ACTION REQ: FYI
+
+Attached for station retention is an amendment to the contract for Edward G. TICHBORN, Contract Agent, extending the term through 18 November 1966.
+
+Howard D. MYWARD
+
+Attachment:
+As stated
+
+Distribution:
+2 - COS, Mexico
+
+HMS - 4738
+
+SECRET
+
+WH/Pers/G.M. Spettigue: gms 2 May 1966 6576
+
+C/WH/PERS
+
+C/WH/1 2 May 66 (coord in draft) P. Kittredge
+
+Distribution:
+
+1 - WH/Pers w/att
+1 - WH/1 w/att
+1 - WH/Reg wo/att

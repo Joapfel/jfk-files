@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_24287.png
+
+Convert to MarkdownSECRET
+
+as "radical," but it is an intellectual "radicalism," not revolutionary. Further, he is basically a theoretician not a personal activist by nature. He might be asked and might undertake an activist role—but it is felt that it would not sit naturally upon him and would probably not achieve whatever access might have been postulated. Within his theoretician, non-activist context it was nevertheless felt that the probably-to-be-expanded field of Chinese Communist activities in Europe provided the focus which might most usefully be explored. The expansion of Chinese Communist activities in Europe may come quite slowly but, in view of the probable shortage of assets in this field, it was a matter on which we should have some patience. It is also a field which could be explored without QRPHONE's needing to move. Whether he focusses on this field or another, however, QRPHONE needs to develop some job or organizational base which will make him interesting as a target himself to those we wish to focus him on. At the present time his cover does not provide a power or influence base and he is essentially completely dependent upon us.
+
+8. CA Staff Termination/Redirection Responsibility.
+It was felt that in this process of redirection of QRPHONE, CA Staff should retain responsibility for QRPHONE. Even if a London-based assignment did not work out and it was decided to move QRPHONE to another area CA Staff should keep the project during the trial period and with this the responsibility for termination if the trial proved unsuccessful. If the trial was successful, on the other hand, then we would have discharged our responsibility for QRPHONE and could relinquish control.
+
+9. Some time has passed since the above discussions took place. I am not aware of the extent to which there may already have been a follow-up to them. Needless to say, they have decided field implications in which LCPIPIT needs to be consulted, should they be pursued.
+
+James F. Knott
+Programs Officer
+Covert Action Staff
+
+Distribution:
+
+Orig. & 1 - Addressee      1 - CA/B4-Berkey
+1 - ADC/CA                 2 - CA/PO
+1 - C/CA/B3
+1 - CA/B3-Sweet SECRET
+
+# 14-00000

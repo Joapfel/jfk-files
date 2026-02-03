@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_24045.png
+
+Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>RYBAT</td></tr></table>
+
+CLASSIFICATION
+SECRET
+
+C/SPATCH SYMBOL ARC NUMBER
+OEPW - 405
+
+2. In terms of our operational utilization of ORPHONE /1 at this time, while they reserve finite comment until all the returns (per above) are in, the Medical Staff did stress the paramount importance of proper rest and of not over-taxing the strength of the agent, coupled with his strict adherence to regular, warm, balanced meals in accordance with the dietary restrictions usually imposed, and complete absence of alcohol, in order to prevent a relapse. So long as these caveats are adhered to, however, there is no reason why he could not make some more short trips during the next few months, if necessary. However, since he also has an office to set up and we would like him to concentrate on the Kambona offer, perhaps it would be a good idea to keep those trips to a minimum for the time being.
+
+3. The Medical Staff will be glad to review any further chemical tests per para. 1 above suggestions, or any others which his doctor may have already run.
+
+JULIA R. CONGREVE
+
+FORM
+8-64
+(40)
+
+53a USE PREVIOUS EDITION.
+
+CLASSIFICATION
+
+<table><tr><td>RYBAT</td><td></td></tr></table>
+
+SECRET
+
+CONTINUED
+
+PAGE NO.
+2
