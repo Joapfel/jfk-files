@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_28122.png
+
+Convert to MarkdownSECRET
+
+FITNESS REPORT FOR: Frederick C. RANDALL
+
+SUPPLEMENT SHEET
+
+Continuation of Section C:
+
+Subject's liaison contacts with the FBI and Pentagon officials have been handled in a superior manner reflecting credit on the Agency; both the FBI and the Air Force officers concerned have praised Subject's work.
+
+He supervises one secretary/stonographer.
+
+No training is contemplated at this time.
+
+SECRET

@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_27052.png
+
+Convert to MarkdownSECRET
+
+FILE NO. 242 369
+
+DATE 29 June 1965
+
+SYNOPSIS
+
+<table>
+   <tr>
+    <td> Antonio SOTO has been employed periodically by Eagle Incorporated, a steamship company, since 1961. He has been utilized as a warehouse checker. SUBJECT has left his employment to accept short time flying jobs. He left Eagle Incorporated in March 1965 to accept one of these flying jobs. Four developed references favorable regarding habits, morals, reputation, and loyalty to the United States. No credit or police record in the name of SUBJECT or his spouse. </td>
+   </tr>
+  </table>
+
+SECRET
+REPORT NO.
+
+<table>
+   <tr>
+    <td> Form 1125 </td>
+    <td> 400-202, Personnel records of U.S. Air Force, 1952-1986 </td>
+   </tr>
+  </table>

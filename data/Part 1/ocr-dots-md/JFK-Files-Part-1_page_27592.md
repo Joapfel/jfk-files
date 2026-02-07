@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_27592.png
+
+Convert to MarkdownSECRET
+
+Security Information
+
+SEC. II. WORK EXPERIENCE
+
+1. CIA Experience: State the specific nature of duties performed with CIA and CIG, starting with your present position. Take position titles from your official personnel papers, if you have personal copies. Please do not request your Official Personnel Folder. Include geographic area and subject matter dealt with, if applicable. Position Title is your classification title such as Geographer, Intelligence Officer, etc. Duty Title indicates your organization position such as - Section Chief, Branch Chief, Administrative Assistant, etc., and is to be filled in only if different to the Position Title. Approximate dates (month and year) are sufficient. Use a continuation sheet, if necessary, to adequately describe your duties.
+
+<table><tr><td>From Feb. 52 To -- Tot. mos. 7</td><td>Description of Duties: Supervising and assisting junior project engineers in the planning and accomplishment of research and development projects.</td></tr><tr><td>Grade OS-12 Salary $7040.</td><td>Assisting the Branch Chief in the administrative planning and programming of the Applied Physics Branch. Creative thinking and planning of devices and techniques for operations. Technical</td></tr><tr><td>Office Technical Services</td><td>Liaison.</td></tr><tr><td>Position<br/>Title: Physical Science' Adm.</td><td>Duty Station, in overseas:</td></tr><tr><td>Duty<br/>Title: Ass't. Chief, Applied Physics Branch</td><td>Description of Duties: Planning and pursuing research and development of devices and techniques. Development of technical and administrative procedures peculiar to the individual projects. Preparation of specifications drawings and reports. Technical liaison with other services and commercial organisation.</td></tr><tr><td>From Nov. 50 To Feb. 52 Tot. mos. 15</td><td>Duty Station, if overseas:</td></tr><tr><td>Grade OS-11 Salary $5400 - $5940</td><td>Description of Duties:</td></tr><tr><td>Office Policy Coordination &amp; Tech.Ser.</td><td>Duty Station, if overseas:</td></tr><tr><td>Position<br/>Title: Electronics Engineer</td><td>Description of Duties:</td></tr><tr><td>Duty<br/>Title: Ass't. Chief, Physics Section</td><td>Duty Station, if overseas:</td></tr><tr><td>From -- To -- Tot. mos. --</td><td>Description of Duties:</td></tr><tr><td>Grade Salary</td><td>Description of Duties:</td></tr><tr><td>Office</td><td>Description of Duties:</td></tr><tr><td>Position<br/>Title:</td><td>Description of Duties:</td></tr><tr><td>Duty<br/>Title:</td><td>Description of Duties:</td></tr><tr><td>From -- To -- Tot. mos. --</td><td>Description of Duties:</td></tr><tr><td>Grade Salary</td><td>Description of Duties:</td></tr><tr><td>Office</td><td>Description of Duties:</td></tr><tr><td>Position<br/>Title:</td><td>Description of Duties:</td></tr><tr><td>Duty<br/>Title:</td><td>Description of Duties:</td></tr></table>
+
+2
+
+SECRET
+Security Information

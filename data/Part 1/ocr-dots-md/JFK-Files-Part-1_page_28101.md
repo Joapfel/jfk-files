@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_28101.png
+
+Convert to Markdown14-0000
+
+<table>
+    <tr>
+        <td>CLASSIFICATION</td>
+        <td></td>
+    </tr>
+    <tr>
+        <th colspan="2">SECTION D</th>
+    </tr>
+    <tr>
+        <th colspan="2" style="text-align:center;">NARRATIVE COMMENTS</th>
+    </tr>
+    <tr>
+        <td colspan="2">
+            Indicate significant strengths or weaknesses demonstrated in current position keeping in proper perspective their relationship to overall performance. State suggestions made for improvement of work performance. Give recommendations for training. Comment on foreign language competence, if required for current position. Amplify or explain ratings given in Section C to provide best basis for determining future personnel action. Manner of performance of managerial or supervisory duties and cost consciousness in the use of personnel space, equipment and funds, must be commented on, if applicable. If extra space is needed to complete Section D, attach a separate copy of paper 53-III-73.
+        </td>
+    </tr>
+    <tr>
+        <td colspan="2" style="text-align:left;">
+            In the less than six months since my preparation of the previous report on Mr. Randall, his overall performance has continued strong. He has effectively continued to provide the day-to-day operational support for the FR Bases in Los Angeles and San Francisco and the two (soon to be three) singleton officers in the Northwest, Colorado and Arizona. The level and complexity of the operational support and guidance which he has provided with skill, sensitivity and humanness has continued uniformly high.
+
+            Mr. Randall has again effectively trained a new Intelligence Analyst with no loss of efficiency or responsiveness to the ever-increasing field requirements.
+
+            Mr. Randall has been under my supervision for 28 months as the San Francisco/ Los Angeles Desk officer and has continued successfully to meet the challenges of increased responsibility. It is now planned to appoint him as Branch Chief to be responsible for the Bases in Boston and Atlanta as well as Los Angeles and San Francisco. The increase in complexity of this new assignment for him will be heightened by the assignment of additional operational personnel in three of his four Bases, which will materially add to the demanding workload of his Branch. We are confident he will be able to meet the challenge of these added responsibilities.
+        </td>
+    </tr>
+    <tr>
+        <td rowspan="2" style="vertical-align:top; border-right: 1px solid black; padding-right: 10px;">
+            SECTION E<br/>
+            <br/>
+            <table>
+                <tbody>
+                    <tr><td>1.</td><td colspan="2">CERTIFICATION AND COMMENTS<br/>BY EMPLOYEE</td></tr>
+                    <tr><td colspan="3">I CERTIFY THAT I HAVE SEEN SECTIONS A, B, C, AND D OF THIS REPORT</td></tr>
+                    <tr><td>DATE<br/>6 June 1973</td><td>SIGNATURE OF EMPLOYEE<br/>Maurice A. Sovern</td><td></td></tr>
+                    <tr><td>2.</td><td colspan="2">BY SUPERVISOR</td></tr>
+                    <tr><td colspan="3">MONTHS EMPLOYEE HAS BEEN UNDER MY SUPERVISION<br/>IF THIS REPORT HAS NOT BEEN SHOWN TO EMPLOYEE, GIVE EXPLANATION</td></tr>
+                    <tr><td>DATE<br/>6 JUN 1973</td><td>OFFICIAL TITLE OF SUPERVISOR<br/>Chief, FR Branch I</td><td>TYPED OR PRINTED NAME AND SIGNATURE<br/>Maurice A. Sovern</td></tr>
+                    <tr><td>3.</td><td colspan="2">BY REVIEWING OFFICIAL</td></tr>
+                    <tr><td colspan="3">COMMENTS OF REVIEWING OFFICIAL<br/><br/>There is little for me to add to the above comments. I fully concur with the remarks contained above and as stated, based on Mr. Randall's fine performance we have appointed him as Branch Chief who will be responsible for four FR Bases. We have every reason to believe that he will handle this new assignment with skill and look forward to our continuing close association.</td></tr>
+                </tbody>
+            </table>
+        </td>
+        <td rowspan="2" style="vertical-align:top; border-left: 1px solid black; padding-left: 10px;">
+            DATE<br/>
+            7 June 1973
+        </td>
+        <td style="border-right: 1px solid black; padding-right: 10px;">
+            OFFICIAL TITLE OF REVIEWING OFFICIAL<br/>
+            Chief, FR Division
+        </td>
+        <td style="border-left: 1px solid black; padding-left

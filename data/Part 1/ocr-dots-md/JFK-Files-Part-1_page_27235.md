@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_27235.png
+
+Convert to MarkdownSubject has family and does not particularly desire to go to any area where family cannot have adequate living quarters, etc.
+
+Would prefer residence in D.C. for one or two years.
+
+Has no area background or experience - however I feel like investigative experience would adequately compensate for this.

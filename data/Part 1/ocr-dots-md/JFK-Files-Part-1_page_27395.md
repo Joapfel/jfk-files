@@ -1,0 +1,153 @@
+# JFK-Files-Part-1_page_27395.png
+
+Convert to MarkdownStandard Form No. 61a
+Approved January 21, 1943
+U S Civil Service Commission
+C. S. C. Dept. Clr. No 409
+
+OATH OF OFFICE, AFFIDAVIT,
+AND
+DECLARATION OF APPOINTEE
+
+CENTRAL INTELLIGENCE AGENCY
+
+WASHINGTON, D. C.
+
+(Department or Establishment)
+
+(Bureau or Division)
+
+(Place of Employment)
+
+A.
+OATH OF
+OFFICE
+
+I, WILLIAM VINCENT BROE
+Do solemnly swear (or affirm) that I will support and defend the constitution of the United States against all enemies, foreign and domestic; that I will bear true faith and allegiance to the same; that I take this obligation freely, without any mental reservation or purpose of evasion; and that I will well and faithfully discharge the duties of the office on which I am about to enter. SO HELP ME GOD.
+
+B.
+AFFIDavit
+
+Do further swear (or affirm) that I do not advocate, nor am I a member of any political party or organization that advocates the overthrow of the Government of the United States by force or violence; and that during such time as I am an employee of the Federal Government, I will not advocate nor become a member of any political party or organization that advocates the overthrow of the Government of the United States by force or violence.
+
+C.
+DECLARATION
+OF APPOINTEE
+
+Do further certify that (1) I have not paid or offered or promised to pay any money or other thing of value to any person, firm, or corporation for the use of influence to procure my appointment; (2) I will inform myself of and observe the provisions of the Civil Service law and rules and Executive orders concerning political activity, political assessments, etc., as quoted on the attached Information for Appointee, and [strike out either (3) or (4)]
+
+(3) the answers given by me in the Declaration of Appointment on the reverse of this sheet are true and correct;
+
+(4) the answers contained in my Application for Federal Employment, Form No. ______ dated __________, 19______, filed with the above-named department or establishment, which I have reviewed, are true and correct as of this date, except for the following (if necessary, use additional sheets); if no exceptions write "nono"; if (4) is executed, the reverse of this sheet need not be used:
+
+(Signature of Appointee)
+
+Subscribed and sworn before me this 21st day of June A.D. 1948
+
+at Washington D.C. (City)
+
+(SEAL) Elizabeth Morrison (Signature of Officer)
+Appointments Clerk (Title)
+
+NOTE.—If the oath is taken before a Notary Public the date of expiration of his commission should be shown
+
+21 June 1948
+
+Operations Officer, P-5 $614.60
+
+(Date of Entrance on Duty)
+
+(Dated of Birth)
+
+(Possession to which appointed) 10-30-41-8
+
+9-24-43
+
+9-24-13
+
+9-24-41-8
+
+9-24-43
+
+9-24-13
+
+9-24-13
+
+9-24-41-8
+
+9-24-43
+
+9-24-13
+
+9-24-41-8
+
+9-24-43
+
+9-24-13
+
+9-24-41-8
+
+9-24-43
+
+9-24-13
+
+9-24-41-8
+
+9-24-43
+
+9-24-13
+
+9-24-41-8
+
+9-24-43
+
+9-24-13
+
+9-24-41-8
+
+9-24-43
+
+9-24-13
+
+9-24-41-8
+
+9-24-43
+
+9-24-13
+
+9-24-41-8
+
+9-24-43
+
+9-24-13
+
+9-24-41-8
+
+9-24-43
+
+9-24-13
+
+9-24-41-8
+
+9-24-43
+
+9-24-13
+
+9-24-41-8
+
+9-24-43
+
+9-24-13
+
+9-24-41-8
+
+9-24-43
+
+9-24-13
+
+9-24-41-8
+
+9-24-43
+
+9-24-13

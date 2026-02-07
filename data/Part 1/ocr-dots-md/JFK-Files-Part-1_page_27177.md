@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_27177.png
+
+Convert to MarkdownSECRET
+
+27 SEP 1960
+
+MEMORANDUM FOR: Director of Central Intelligence
+
+VIA: Deputy Director (Plans)
+
+SUBJECT: Appointment of Mr. William V. Broe, Chief of Station, Tokyo, Japan
+
+1. The appointment of Mr. William V. Broe as Chief of Station, Tokyo, Japan, effective on or about 15 June 1961, is recommended. Mr. Broe would replace Mr. John E. Baker who is scheduled to be reassigned.
+
+2. Mr. Broe has been an employee of the Agency since 21 June 1948, and is presently assigned as Deputy Chief, Far East Division, GS-16. A biographic data sheet, including information regarding his Agency experience and training, is attached.
+
+Desmond Fitzgerald
+Chief, Far East Division
+
+1 Attachment
+
+Biographic Information
+
+cc: DDCI
+
+APPROVAL RECOMMENDED:
+
+Mr. Broe has been interviewed by the ADDP/A, by the Chief of Operations, and by myself, and we are satisfied that he is qualified for this assignment.
+
+Deputy Director
+(Plans)
+
+27 SEP 1960
+
+Date
+
+SECRET

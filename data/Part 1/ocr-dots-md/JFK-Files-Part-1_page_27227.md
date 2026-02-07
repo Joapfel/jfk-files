@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_27227.png
+
+Convert to MarkdownCONFIDENTIAL
+
+9 June 1948
+
+MEMORANDUM FOR THE ADSO
+
+FROM : Chief, Personnel Division, OBO
+
+SUBJECT: William Vincent Broo
+
+Subject is currently being processed for the position of Intelligence Officer, P-5, in FIZ and it is desired that he report for duty on 16 June 1948.
+
+In view of subject's employment with the Federal Bureau of Investigation from 1943 to 16 May 1948, it is requested that based upon a review of his FBI file he be approved for employment pending full clearance. When subject reports for duty he will be working on classified material.
+
+F. M. TRAMELL
+
+CONFIDENTIAL
+
+June 16, 1948
+
+2-11-78
+
+H00 cdd
+6-05-78
+Approved
+151 Walter C. Ford
+Extr. Dir. A.
+cc: J. M. Z.
+J. M. Ford
+sec. 050
+S. A. D.
+
+6/14/48
+Security: 50,
+Approves also:
+Requests + will
+Institute full
+Investigation immediately
+(5) J. Burt
+Sec. 050
+
+piled to old sheet
+June 16, 1948
+Z. M. - L.

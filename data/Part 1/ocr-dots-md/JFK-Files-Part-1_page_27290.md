@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_27290.png
+
+Convert to MarkdownSECRET
+
+19 May 1972
+
+MEMORANDUM IN LIEU OF ANNUAL FITNESS REPORT FORM
+
+**Name:** William V. Broe (056735)
+
+**Date of birth:** 24 August 1913
+
+**Sex:** M
+
+**Grade:** GS-18
+
+**SD:** D
+
+**Official Position Title:** Ops Officer - Division Chief
+
+**Current station:** Headquarters
+
+**Type of Report:** Reassignment
+
+**Reporting period:** 1 April 1972 - 27 January 1972
+
+From April 1971 to January 1972, Mr. Broe continued to serve as Chief of WII Division. He then was promoted to the role of Inspector General. During the final months of his long service as Chief, WHD, he continued to provide the wise and enlightened leadership that we had come to expect. The Agency is fortunate in having a man of his judgment and ability in a post so important as the Inspector General.
+
+Cord Meyer, Jr.
+Assistant Deputy Director for Plans
+
+I have noted this report.
+
+William V. Broe, C/WH
+
+SECRET
+
+JUN 6 1972
+
+6 JUN 1972
+
+V.I.S. 1/8

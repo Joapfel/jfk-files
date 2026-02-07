@@ -1,0 +1,63 @@
+# JFK-Files-Part-1_page_27599.png
+
+Convert to MarkdownSTANDARD FORM G1 (REVISED APRIL 1, 1980)
+PROMulgated By civil service commission
+CHAPTER A of FEDERAL PERSONNEL MANUAL
+
+APPOINTMENT AFFIDAVITS
+
+IMPORTANT.—Before swearing to these appointment affidavits, you should read and understand the attached information for appointee
+
+Central Intelligence Agency
+
+(Department or agency)
+
+Federal Service Agency
+
+(Bureau or division)
+
+(Place of employment)
+
+I, David L. Nordstrom, …………….. do solemnly swear (or affirm) that—
+
+A. OATH OF OFFICE
+
+I will support and defend the Constitution of the United States against all enemies, foreign and domestic; that I will bear true faith and allegiance to the same; that I take this obligation freely without any mental reservation or purpose of evasion; that I will well and faithfully discharge the duties of the office on which I am about to enter, SO HELP ME GOD.
+
+B. AFFIDAVIT AS TO SUBVERSIVE ACTIVITY AND AFFILIATION
+
+I am not a Communist or Fascist. I do not advocate nor am I a member of any organization that advocates the overthrow of the Government of the United States by force or violence or other unconstitutional means or seeking by force or violence to deny other persons their rights under the Constitution of the United States. I do further swear (or affirm) I will not so advocate, nor will I become a member of such organization during the period that I am an employee of the Federal Government.
+
+C. AFFIDAVIT AS TO STRIKING AGAINST THE FEDERAL GOVERNMENT
+
+I am not engaged in any strike against the Government of the United States and that I will not so engage while an employee of the Government of the United States; that I am not a member of an organization of Government employees that asserts the right to strike against the Government of the United States, and that I will not, while a Government employee, become a member of such an organization.
+
+D. AFFIDAVIT AS TO PURCHASE AND SALE OF OFFICE
+
+I have not paid, or offered or promised to pay, any money or other thing of value to any person, firm or corporation for the use of influence to procure my appointment.
+
+E. AFFIDAVIT AS TO DECLARATION OF APPOINTEE
+
+The answers contained in my Application for Federal Employment, Form No. 77, dated July 26, 1954, 19, filed with the above-named department or agency, which I have reviewed, are true and correct as of this date with the exceptions noted in the Declaration of Appointee on the reverse of this form. (If no exceptions, write "None" on the Declaration of Appointee.)
+
+Hansel L. Christ
+
+(Signature of appointee)
+
+Subscribed and sworn before me this 16 day of November, A. D. 1954,
+
+at Washington, D.C.
+
+(City)
+
+(State)
+
+Chelpie W. Hudson
+
+(SEAL)
+
+(Seal or officer)
+
+(Title)
+
+NOTE.—If the oath is taken before a Notary Public the date of expiration of his commission should be shown. 10-54180-1

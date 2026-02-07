@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_27501.png
+
+Convert to MarkdownSECRET
+
+<table><tbody><tr><td colspan="2">NOTIFICATION OF ESTABLISHMENT<br>OF MILITARY COVER BACKSTOP</td><td>DATE<br>21 January 1964<br>ESTABLISHED FOR</td></tr><tr><td>X</td><td>CHIEF, RECORDS AND SERVICES DIVISION</td><td rowspan="2">CHRIST, David L.</td></tr><tr><td>(Check)</td><td>CHIEF, OPERATING COMPONENT, ORD, DD/S&T</td></tr><tr><td colspan="2">ATTN:<br>Admin Staff</td><td>FILE NO.<br>K-2077</td></tr><tr><td colspan="2">REF:<br>Form 1322 Requesting Cover, 27 Sept 1963</td><td>ID CARD NO.</td></tr><tr><td colspan="3">MILITARY COVER BACKSTOP ESTABLISHED</td></tr><tr><td colspan="2">US Army Element, Joint Operations Group</td><td>1452</td></tr><tr><td>X</td><td>BLOCK RECORDS: OPERATIONAL PURPOSES ONLY<br>(OPMEMO 20-800.17)</td><td>a. TEMPORARILY FOR ____ DAYS, EFFECTIVE ______________<br>X b.X CONTINUING, EFFECTIVE FOD ______________</td></tr><tr><td></td><td>SUBMIT FORM 642 TO CHANGE LIMITATION CATEGORY TO 3.<br>(HB 20-800.2)</td><td></td></tr><tr><td></td><td>ASCERTAIN THAT ARMY W-2 BEING ISSUED.<br>(HB 20-661.1)</td><td></td></tr><tr><td></td><td>SUBMIT FORM 1322 FOR ANY CHANGE AFFECTING THIS COVER.<br>(R 240.250)</td><td></td></tr><tr><td></td><td>SUBMIT FORM 1323 FOR TRANSPORTING COVER RESPONSIBILITY.<br>(R 240.250)</td><td></td></tr><tr><td></td><td>REMARKS:</td><td></td></tr><tr><td colspan="2">COPY TO CPD/OP</td><td>JAZ/81 CHIEF, MILITARY COVER, ECO -</td></tr><tr><td colspan="3">DISTRIBUTION: 1-OSU/OS, 1-FSD/OS, 1-ADPD/COMPT</td></tr><tr><td colspan="3">(13-20-63)</td></tr></tbody></table>
+
+FORM 7.62 1551 ABSOLUTE PREVIOUS EDITIONS.
+
+(13-20-63)

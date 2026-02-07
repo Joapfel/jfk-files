@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_27232.png
+
+Convert to MarkdownCONFIDENTIAL
+
+3 June 1948
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: William V. Broe
+
+1. After discussion with the Chief, FBZ, the undersigned talked with subject today and informed him of the following:
+
+a. The position which we had to offer was at P-5. Promotion above that classification would come only after experience in the field, and no guarantee could be made of higher rating even after such experience had been gained by subject.
+
+b. The assignment which we offered him would be in Washington for eighteen months, or perhaps for as long as two years; then probably assignment to a field station.
+
+o. Due to his past employment with the FBI, we would attempt to obtain approval for his entrance on duty on or about June 14.
+
+2. Subject stated that the above was acceptable to him and that he accepted our offer of P-5 position. The undersigned informed Chief, FBZ, of this fact. Processing is being initiated immediately.
+
+E. M. TERRELL
+Chief, Personnel Division, OSO
+
+CONFIDENTIAL

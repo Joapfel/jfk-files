@@ -1,0 +1,131 @@
+# JFK-Files-Part-1_page_27343.png
+
+Convert to MarkdownU.S. CIVIL SERVICE COMMISSION
+
+REPORT OF
+EFFICIENCY RATING
+
+ADMINISTRATIVE-UNOFFICIAL ( )
+OFFICIAL
+REGULAR ( ) SPECIAL ( )
+
+PROBATIONAL ( )
+
+As of 3 October, 1949 based on performance during period from 3 April, 1949 3 October, 1949
+
+(BroE, William V.
+
+OSO, COPs, FDZ, SEA, Division 4
+
+(Title of position, service, and grade)
+
+(Organization-Indicate branch, division, section, unit, field station)
+
+<table>
+    <tr>
+        <td>ON LINES BELOW<br>MARK EMPLOYER</td>
+        <td>1. Study the instructions in the Rating Official's Guide, C. S. C. Form No. 3823A.</td>
+        <td>CHECK ONE:</td>
+    </tr>
+    <tr>
+        <td>V if adequate</td>
+        <td>2. Underline the elements which are especially important in the position.</td>
+        <td rowspan="3">Administrative,<br>supervisory, or<br>planning ☑</td>
+    </tr>
+    <tr>
+        <td>- if weak</td>
+        <td>3. Rate only on elements pertinent to the position.</td>
+    </tr>
+    <tr>
+        <td>+</td>
+        <td style="padding-left: 2em;">a. Do not rate on elements in italics except for employees in administrative, supervisory, or planning positions.</td>
+    </tr>
+    <tr>
+        <td></td>
+        <td style="padding-left: 2em;">b. Rate administrative, supervisory, and planning functions on elements in italics.</td>
+        <td>All others ☐</td>
+    </tr>
+</table>
+
+--- (1) Maintenance of equipment, tools, instruments.
+
+--- (2) Mechanical skill.
+
+--- (3) Skill in the application of techniques and pro-
+cedures.
+---
+
+--- (4) Presentability of work (appropriateness of as-
+ rangement and appearance of work).
+
++ (5) Attention to broad phases of assignments.
++ (6) Attention to pertinent detail.
+- (7) Accuracy of operations.
+- (8) Accuracy of final results.
++ (9) Accuracy of judgments or decitions.
+✓ (10) Effectiveness in presenting ldeas or facts.
+--- (11) Industry.
++ (12) Rate of progress on or completion of assign-
+ments.
+---
+(13) Amount of acceptable work produced. (Is mark based on production records? __________)
+Yes or no)
++ (14) Ability to organize his work.
+--- (15) Effectiveness in meeting and dealing with
+people
+--- (16) Cooperativeness.
++ (17) Initiative.
++ (18) Dependability.
+--- (19) Physica/ fitness for the work.
+
+--- (20) Physical illness for the work.
+
+--- (21) Effectiveness in planning broad programs.
+
+--- (22) Effectiveness in adopting the work program to
+broader or related programs.
+
+- (23) Effectiveness in devising procedures.
+
+- (24) Effectiveness in laying out work and establi-
+shing standards of performance for subordi-
+nates,
+
++ (25) Effectiveness in directing, reviewing, and check-
+ing the work of subordinates.
+
+✓ (26) Effectiveness in instructing, training, and
+developing subordinates in the work.
+
+- (27) Effectiveness in promoting high working morale.
+
+- (28) Effectiveness in determining space, personnel,
+and equipment needs.
+
+- (29) Effectiveness in setting and obtaining adhor-
+rence to time limits and deadlines.
+
++ (30) Ability to make decisions.
+
+- (31) Effectiveness in delegating clearly defined authority to act.
+
+STATE ANY OTHER ELEMENTS CONSIDERED
+
++ (A) SECURITY
+
+--- (B)
+
+--- (C)
+
+STANDARD
+Divisions must be explained so reverse side of this form
+
+| | Adjective Rating |
+| :--- | :--- |
+| Plus marks on all underlined elements, and check marks or better on all other elements rated... | Excellent |
+| Check marks or better on all elements rated, and plus marks on at least half of the underlined elements... | Very Good |
+| Check marks or better on a majority of underlined elements, and all weak performance overcompensated by outstanding performance... | Good |
+| Check marks or better on a majority of underlined elements, and all weak performance not overcompensated by outstanding performance... | Fair |
+| Minus marks on at least half of the underlined elements... | Unsatisfactory |
+
+Rating

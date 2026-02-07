@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_27458.png
+
+Convert to MarkdownSECURITY APPROVAL
+
+CONFIDENTIAL
+
+To : Chief, Intelligence Branch Deputy Personnel Officer Date: 17 May 1949
+From : Executive for Inspection and Security Number: 25,706
+Subject: RCOE, William Vincent
+
+1. Note "X" below:
+
+Security approval is granted subject for access to classified information contingent upon the receipt of derogatory information at some future date.
+
+Provisional clearance for full duty with CIA is granted under the provisions of paragraph 4p Administrative Instruction 10-2, which provides for a temporary appointment pending the completion of full security investigation.
+
+Unless the applicant enters upon duty within 60 days from above date this approval becomes invalid.
+
+2. Your memorandum dated 7 June 1948 stated Subject is an applicant for OSO-FBZ.
+
+Chief, Personnel Security Division
+
+CONFIDENTIAL
+
+FORM NO. 33-101
+JUL 1948
+
+SECRET
+
+SECRET
+
+SECRET
+
+CONFIDENTIAL

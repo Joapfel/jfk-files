@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_27078.png
+
+Convert to MarkdownTEST #3
+
+**Question A:** Prior to 1961, did you engage in homosexual acts?
+
+**Answer:** Yes.
+
+**Question B:** Since your homosexual acts during 1960 in Costa Rica, have you engaged in any other homosexual acts?
+
+**Answer:** No.
+
+**Question C:** Since you have been at Maxwell Air Force Base, have you engaged in homosexual acts?
+
+**Answer:** No.
+
+**Question D:** Since you have been at Maxwell Air Force Base, have there been any incidents involving homosexuality which you did not tell me about?
+
+**Answer:** No.
+
+**Question E:** At any time in the U.S.; including the time you were going to flying training school, and later here at Maxwell Air Force Base, have you engaged in any homosexual activity?
+
+**Answer:** No.
+
+After a careful analysis of the charts pertaining to this examination, the examiner gave the opinion that the SUBJECT was untruthful in his answers (Questions B and C, Test #1, and Questions B, C, D and E, Test #2, and that SUBJECT was truthful in answers to Questions A and B, Test #1, and to Question A, Test #2).
+
+Subsequent to the examination, the SUBJECT was re-interrogated concerning his reactions during the above tests. The SUBJECT maintained that he was truthful in his answers. The SUBJECT executed a sworn,

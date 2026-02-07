@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_27132.png
+
+Convert to Markdown<table><tr><td>14-00000</td></tr><tr><td>104-10221-10222</td></tr></table>
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+FD-161 (Rev. 3-3-88)
+
+UNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+SECRET
+
+Copy to: 1 - INS, Miami, Florida (All 877 123)(RM)
+
+Report of Date:
+
+EUGENE L. PAYNE
+
+Office Miami, Florida
+
+Field Office File #: 105-6466
+
+Title PELIPE VIDAL SANTIAGO
+
+Bureau File # 201-267043 filed
+
+Character INTERNAL SECURITY - CUBA
+
+Synopsis
+
+Subject, a Cuban refugee, entered the U. S. on 8/9/60, from Colombia. Subject defected from the CASTRO government while employed as Cuban Naval Attache in Caracas, Venezuela. Subject is a former graduate of the Cuban Naval Academy and in exile has been involved in considerable anti-CASTRO clandestine activity against Cuba. Subject has affiliated with various anti-CASTRO organizations in the Miami, Fla., area and in 11/62, was reported to be associated with an individual having contacts with a Guatemala government official.
+
+- C -
+
+DETAILS:
+
+PREDICATION
+
+Investigation in this matter was based upon information from MM T-1, another government agency which conducts security and intelligence-type investigations, who advised on August 8, 1962, that information had been received from a sub-source of unknown reliability, who advised as follows:
+
+SECRET
+Group 1
+
+Excluded from automatic
+downgrading and declassification
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency. It and its contents are not to be distributed outside your agency.

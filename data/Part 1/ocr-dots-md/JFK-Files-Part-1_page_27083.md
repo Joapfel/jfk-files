@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_27083.png
+
+Convert to MarkdownSECRET
+
+SOD 5-6/6
+21 MAY 1965
+
+MEMORANDUM FOR: Chief, CI/OA
+ATTENTION : Mr. George Ball
+SUBJECT : Antonio SOTO Vazquez
+REFERENCE : CI/OA Memorandum of 4 May 1965
+
+1. Attached to the referenced memorandum was a list of eight documents concerning the Subject, with a request that SOD/AB/OPS/3 comment on their significance as they might affect the granting of a POA to the Subject.
+
+2. Six of the eight documents were found to be in-significant. Two of the documents were not found. Attached is a memorandum from Chief, RID/FI stating that the two documents could not be found.
+
+3. The Subject has been a WITHRUSH pilot in the past. He was granted a POA on 9 March 1961, and again on 29 October 1962. It is requested that he be again granted a POA in accordance with Form 772 submitted to Chief, CI/OA on 7 April 1965.
+
+Lawrence Murphy
+SOD/AB/OPS/3
+
+Attachment
+
+SECRET
+
+201294344
+
+SECRET
+
+SOD AB OPS 3

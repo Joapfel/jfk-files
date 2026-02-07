@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_27890.png
+
+Convert to MarkdownADMINISTRATIVE - INTERNAL USE ONLY
+
+27 May 1966
+
+MEMORANDUM FOR: Mr. Thomas J. Keenan
+THROUGH : Chief, WH Division
+THROUGH : Deputy Director for Plans
+SUBJECT : Certificate of Merit
+
+1. The Honor and Merit Awards Board is pleased to notify you that the award named above will be conferred on you in recognition of the excellent service you have rendered this Agency. Security considerations relevant to the award are explained in the attached memorandum from the Office of Security.
+
+2. The award will be presented to you at a ceremony to be held in the near future. Members of your family, Agency associates, and intimate friends who are aware of your Agency affiliation may attend the ceremony, although space may limit the number of guests to be invited.
+
+3. A list of guests whom you would like to have attend the presentation ceremony and an indication of any specific time when you could not be present at such a ceremony should be forwarded through your Deputy Director to the Secretariat, Honor and Merit Awards Board, Office of Personnel.
+
+ROBERT M. GAYNOR
+Recorder
+Honor and Merit Awards Board
+
+Distribution:
+
+Orig - Addressee
+I - C/WH
+I - D/Pers Render Chrono/OPF
+I - Sec't, HMAB
+I - Recorder, HMAB
+
+ADMINISTRATIVE - INTERNAL USE ONLY

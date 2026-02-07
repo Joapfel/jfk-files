@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_27639.png
+
+Convert to MarkdownCONFIDENTIAL
+
+SECURITY APPROVAL
+
+Chief, Employees Division, Special Support Staff
+
+To : Personal Assistant Office
+
+From : Chief of Inspection and Security Staff
+
+Subject: CHRIST, David L.
+
+Date: 24 November 1950
+
+Number: 43872
+
+1. Note "X" below:
+
+Security approval is granted subject for access to classified information contingent upon the receipt of derogatory information at some future date.
+
+Provisional clearance for full duty with CIA is granted under the provisions of paragraph 4, Administrative Instruction 10-2, which provides for a temporary appointment pending the completion of full security investigation.
+
+Unless the applicant enters upon duty within 60 days from above date this approval becomes invalid.
+
+2. Subject is currently on duty with this Agency.
+
+Ermal P. Yeeis
+ERMAAL P. GEISS
+
+Chief, Personnel Security Division
+Branch
+Branch
+Branch
+Branch
+Branch
+Branch
+
+CONFIDENTIAL
+
+FORM NO. SS.101
+
+MAY 1949 33-101

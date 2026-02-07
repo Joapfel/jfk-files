@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_27959.png
+
+Convert to Markdown# Confidential
+
+ATTACHMENT B
+
+MEMORANDUM FOR: Frederick Randall
+
+SUBJECT : Acknowledgment of Evaluation Board Career Category
+
+REFERENCE : Evaluation Board Precepts for Your Grade
+
+1. Based upon an examination of your assignments and duties, and after considering likely future assignments, you have been placed in the following career category for Evaluation Board purposes. Precise definitions of the categories are contained in the Evaluation Board precepts for your grade.
+
+## CATEGORY C
+
+2. If you believe that you have not been placed in the correct category because the substantive content of your job more closely approximates another category or because you have made a permanent change of career track, please take the matter up through your command channel to secure the concurrence of your Home Base component to a change of your category. Previously assigned and acknowledged categories will remain in effect until a fully executed acknowledgment of change is received by the Career Management Group.
+
+3. A category change should not be initiated for the period of a temporary, training or rotational assignment unless a permanent change of career track will follow.
+
+4. Please sign and date this notification in the space provided and return it to your Home Base component through command channels.
+
+ACKNOWLEDGED:
+
+Signature of Addressed
+
+9 Oct 1975
+
+Date
+
+Confidential

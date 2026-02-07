@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_27054.png
+
+Convert to MarkdownSECRET
+
+File #242 369
+
+government. The informant stated that he knew nothing that he considered to be unfavorable regarding SUBJECT's character.
+
+On 22 June 1965 J. C. WILDER, supervisor, Eagle Incorporated, 800 N. E. 2nd Avenue, was interviewed regarding SUBJECT as a developed reference. The informant stated that he has been acquainted with SUBJECT since 1961 on a professional basis. SUBJECT has been a warehouse checker periodically since 1961. His main line of work is flying, and he was formerly a pilot in the Cuban Air Force. However, after CASTRO took over the island SUBJECT fled and has worked at several different locations flying, on a part time basis. When SUBJECT does not have a job flying, he always comes to the company, and because of his good work habits he is always hired. The informant stated that SUBJECT left the company in March 1965 to take a job flying, at some unknown location. The informant stated that he has found SUBJECT to be pleasant, completely reliable, and a man of integrity. There is no question of his morality or sobriety, and the informant believed that SUBJECT was loyal to the United States.
+
+On 22 June 1965 Carlos MARTINEZ, export manager, Eagle Incorporated, 800 N. E. 2nd Avenue, was interviewed regarding SUBJECT as a developed reference. The informant stated that he has been acquainted with SUBJECT since 1961 on a professional basis. During that time he has never noted anything of an unfavorable nature regarding SUBJECT's character, morality or sobriety. He is a hard working and conscientious individual and is diligent and reliable. He last worked for the company for approximately six months in 1964 and 1965 and left in March 1965 to take a flying job at some unknown location. the informant stated that he has never heard anything to indicate that SUBJECT had any Communist tendencies whatsoever, and he believed that SUBJECT was favorably disposed towards the United States.
+
+At Hialeah, Florida
+
+On 22 June 1 65 Mrs. Marie RODRIGUEZ, 1260 West 60th Terrace, was interviewed regarding SUBJECT as a developed reference. The informant stated that SUBJECT
+
+-2-
+
+SECRET

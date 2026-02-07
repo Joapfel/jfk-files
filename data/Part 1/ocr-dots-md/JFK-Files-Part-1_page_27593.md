@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_27593.png
+
+Convert to MarkdownSECRET
+
+Security Information
+
+SEC. II: WORK EXPERIENCE (CONT'D.)
+
+2. Other than CIA: (Describe work experience for the last 15 years in sufficient detail to permit specific coding of your qualifications. Include military work experience. List last position first.)
+
+<table><tr><td>From Feb. 50 To Nov 50 Tot. mo's 10 Classification Grade if in Federal Service) Salary $340/mo.<br/>Number and Class of Employees Supervised: 30 - 40 students<br/>Employer Pa, State College Kind of Business or organization (i.e., paper products mfr, public utility) College Extension</td><td>Exact Title of your position Instructor, Industrial Electronics Description of Duties: Instructor - laboratory and classroom - in Industrial Electricity and Industrial Electronics<br/><br/>Duty Station if overseas:<br/>Exact Title of your position Student, Electrical Engineering.<br/><br/>Description of Duties: I was a full time student in E.E., majoring in Electronics. Worked 8 hrs. per night at explosives plant during 1st. three generations. I worked full time at this plant during vacations and 4 months prior to entering college.<br/><br/>Duty Station if overseas:<br/>Exact Title of your position Communications Officer, Cryptographic Security Office Description of Duties: I was a Communications Officer, Radio Station Officer, and Cryptographic Security in various Detachments of ACO, Air Force.</td></tr><tr><td>From Sept 46 To Feb 50 Tot. mo's 41 Classification Grade if in Federal Service) Salary --<br/>Number and Class of Employees Supervised: ---<br/>Employer Student Kind of Business or organization (i.e., paper products mfr, public utility) Pa, State College</td><td>Duty Station if overseas: Pacific Theater<br/>Exact Title of your position Pvt., Pls., Cpl., Av, Cadet, Instructor<br/><br/>Description of Duties: Oct. '42 - May '43 - Basic training & AM training. May '43 - Apr '44 - Radio Mechanic Instructor. Apr '44 - Dec '44 - Aviation Cadet (Ground) studying communications engineering.</td></tr><tr><td>From Dec. 44 To May 46 Tot. mo's 18 Classification Grade if in Federal Service) 1st, Lt Salary $180/mo. base Number and Class of Employees Supervised: 20 - 40 technicians Employer Air Force Kind of Business or organization (i.e., paper products mfr, public utility) Army Airway Com, System</td><td>Duty Station if overseas: ---<br/>Exact Title of your position<br/><br/>Description of Duties: Powder napper, gas-mitt Foreman - part-time - supervising and accomplishing processing and packing of various kinds of dynamite and gelatin explosives.</td></tr><tr><td>From Oct. 42 To Dec. 44 Tot. mo's 25 Classification Grade if in Federal Service) Cadet Salary $75.00/mo.<br/>Number and Class of Employees Supervised: 0 - 20 students<br/>Employer Air Force Kind of Business or organization (i.e., paper products mfr, public utility)</td><td>Duty Station if overseas: ---<br/><br/>Exact Title of your position<br/><br/>Description of Duties: Powder napper, gas-mitt Foreman - part-time - supervising and accomplish- ing processing and packing of various kinds of dynamite and gelatin explosives.</td></tr><tr><td>From 1937 To Oct. 42 Tot. mo's 65 Classification Grade if in Federal Service) Salary $55.00/wk.<br/>Number and Class of Employees Supervised: 4 - 5 technicians<br/>Employer Atlas Powder Company Kind of Business or organization (i.e., paper products mfr, public utility) Explosives.</td><td>Duty Station if overseas: ---</td></tr></table>
+
+SECRET
+
+Security Information
+
+3

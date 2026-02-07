@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_27180.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+This Notice Expires 15 December 1958
+
+CSA NO. 1-209
+
+CLANDESTINE SERVICES
+NOTICE NO. 1-209
+
+ORGANIZATION
+16 October 1958
+
+PERSONNEL ANNOUNCEMENT
+
+FE DIVISION
+
+Mr. William V. Broe has been designated Acting Chief, Far East Division, during the temporary absence of Mr. Desmond Fitzgerald from 15 October through 3 December 1958.
+
+FRANK G. WISNER
+Deputy Director (Plans)
+
+Released by:
+Richard Helms
+Chief of Operations
+
+S-E-C-R-E-T

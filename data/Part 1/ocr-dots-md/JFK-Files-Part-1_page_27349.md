@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_27349.png
+
+Convert to Markdown2 August 1948
+
+TO : Chief, FBZ/SEA
+
+FROM : Chief Instructor, Administrative Training, TR3
+
+SUBJECT: Rating of William Droo - 13-23 July 1948
+
+1. Mr. William Droo attended Administrative Course #15 in accordance with your request. The following are the Chief Instructor's ratings of this trainee in particular subjects:
+
+* Field Supply Procedures - Mediocre
+* Accounting Procedures - Satisfactory
+
+2. Mr. Droo passed the written examination on the CIA Security Regulations.
+
+3. Since Mr. Droo has a Washington assignment, no tutorial administrative training has been arranged for him by this office.
+
+FOR THE CHIEF, TRS:
+
+CO: CAS
+CSD
+
+CONFIDENTIAL

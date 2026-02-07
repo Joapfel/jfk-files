@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_27819.png
+
+Convert to MarkdownSECRET
+
+Continuation of Fitness Report - Section C......
+
+Subject accepts new responsibilities readily; he shows initiative and has imagination; he displays reasonable cost-consciousness, and reacts well to supervision. Above all, Subject is energetic, recognizes priorities, and gets things done.
+
+This man is an outstanding officer who is enthusiastic concerning WOFIRM work, and should continue to be given additional responsibilities and the grades and titles that go with such responsibilities. Director of the REDTOP program in Bogota is a major step forward, but we have just completed the preparation stage. With the success we expect him to have during the remainder of his tour, Subject should be ready to assume a position as deputy chief of an equivalent Station. At this time there are no apparent limitations to Subject's prospects. In recognition of his outstanding performance and solid potential subject is strongly recommended for early promotion from GS-13 to GS-14.
+
+Continuation of Fitness Report - Comments by Reviewing Official
+
+he is progressing with our other outstanding officers in the same age group.

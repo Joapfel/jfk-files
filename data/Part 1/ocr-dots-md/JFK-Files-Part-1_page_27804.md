@@ -1,0 +1,72 @@
+# JFK-Files-Part-1_page_27804.png
+
+Convert to MarkdownSECRET
+
+<table>
+    <tbody>
+        <tr>
+            <td colspan="2">SECTION C</td>
+            <td colspan="3"><strong>NARRATIVE COMMENTS</strong></td>
+        </tr>
+        <tr>
+            <td colspan="5">Indicate significant strengths or weaknesses demonstrated in current position keeping in proper perspective their relationship to overall performance. Store suggestions made for improvement of work performance. Give recommendations for training. Comment on foreign language competence, if required for current position. Amplify or explain ratings given in Section B to provide best basis for determining future personnel action. Monitor performance of managerial or supervisory duties and cost consciousness in the use of personnel space, equipment and funds, must be commented on, if applicable. If extra space is needed to complete Section C, attach a separate sheet of paper.</td>
+        </tr>
+        <tr>
+            <td colspan="5">This fine officer has been DCOS in Lima for nearly a year now, his first crack at this level of responsibility. And for nearly two months of that he was Acting COS during an interregnum which was made easier for Hqs to accept at the time because of Subject's already acknowledged ability and operational judgment.</td>
+        </tr>
+        <tr>
+            <td colspan="5">This officer has many laudable qualities. He was an established, painstaking professional with solid operational background. He has now demonstrated that he is also good at management, at keeping things moving, and at finding time for the little details that so often make the difference. He has a healthy respect for the opposition services (international and local) and weighs his operational decisions carefully in the light of their capabilities. In his present DCOS (and ACOS) responsibilities, he also shows excellent political judgment, knowing what will wash and what probably won't, what is acceptable risk (all things considered) and what is probably asking for trouble. A prudent officer, he looks before he leaps-or asks officers to.</td>
+        </tr>
+        <tr>
+            <td colspan="5">This officer also has an amiable personality, warm and forthcoming with all the people he deals with - and deals with the more effectively as a result. This amiability (and the obvious decency and quiet integrity of the man) does not for a minute, however, get in the way of a good mind getting quickly to the bottom of whatever subject or problem may be before him. He is especially effective working with junior officers and subordinates, explaining the background /CONTINUED/</td>
+        </tr>
+        <tr>
+            <td colspan="2"><strong>SECTION D</strong></td>
+            <td colspan="3"><strong>CERTIFICATION AND COMMENTS</strong></td>
+        </tr>
+        <tr>
+            <td><strong>I</strong></td>
+            <td colspan="4"><strong>BY EMPLOYEE</strong></td>
+        </tr>
+        <tr>
+            <td colspan="5">I CERTIFY THAT I HAVE SEEN SECTIONS A, B, AND C OF THIS REPORT</td>
+        </tr>
+        <tr>
+            <td><strong>DATE</strong></td>
+            <td colspan="4"><strong>SIGNATURE OF EMPLOYEE</strong></td>
+        </tr>
+        <tr>
+            <td>20 October 1972</td>
+            <td colspan="4"><strong>/s/ Thomas J. Keenan</strong></td>
+        </tr>
+        <tr>
+            <td><strong>2</strong></td>
+            <td colspan="4"><strong>BY SUPERVISOR</strong></td>
+        </tr>
+        <tr>
+            <td colspan="5">MONTHS EMPLOYEE HAS BEEN UNDER MY SUPERVISION</td>
+        </tr>
+        <tr>
+            <td colspan="5">IF THIS REPORT HAS NOT BEEN SHOWN TO EMPLOYEE, GIVE EXPLANATION</td>
+        </tr>
+        <tr>
+            <td colspan="5">20 October 1972</td>
+        </tr>
+        <tr>
+            <td><strong>DATE</strong></td>
+            <td><strong>OFFICIAL TITLE OF SUPERVISOR</strong></td>
+            <td colspan="3"><strong>TYPED OR PRINTED NAME AND SIGNATURE</strong></td>
+        </tr>
+        <tr>
+            <td>4</td>
+            <td>Chief of Station</td>
+            <td colspan="3"><em>/s/ Richard S. Welch</em></td>
+        </tr>
+        <tr>
+            <td><strong>1</strong></td>
+            <td colspan="4"><strong>BY REVIEWING OFFICIAL</strong></td>
+        </tr>
+        <tr>
+            <td colspan="5">COMMENTS OF REVIEWING OFFICIAL</td>
+        </tr>
+        <tr

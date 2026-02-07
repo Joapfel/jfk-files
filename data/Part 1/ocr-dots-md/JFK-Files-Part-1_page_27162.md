@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_27162.png
+
+Convert to Markdown14-0000
+
+3 MAY 1973
+
+MEMORANDUM FOR ; Deputy Director for Management and Services
+
+SUBJECT : Request for Voluntary Retirement -
+Ms. William V. Bree
+
+1. This memorandum submits a recommendation for your approval in paragraph 3.
+
+2. The employee named above has applied for voluntary retirement under the provisions of Headquarters Regulation 20-50j.
+
+Grade: EP-08 Position : Inspector General
+Career Service : Operations
+Office/Division : Office of the Director
+Date Requested for Retirement: 29 June 1973
+Age at that Date : 59
+Years of Creditable Service : 31
+Years of Agency Service : 23
+Years of Qualifying Service : 8
+
+3. The applicant's Career Service and the CIA Retirement Board recommended that the request be approved. I endorse these recommendations.
+
+/s/Harry B. Fisher
+
+Director of Personnel
+
+4. The recommendation contained in paragraph 3 is approved:
+
+Date
+
+AD - ADMINISTRATIVE • INTERNAL USE ONLY
+
+AD-NBTRATINE - INTERNAL US-ONLY

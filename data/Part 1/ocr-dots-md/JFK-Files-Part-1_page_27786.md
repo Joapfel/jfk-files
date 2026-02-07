@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_27786.png
+
+Convert to Markdown10. The Operations Staff was disbanded in early November as part of the Latin America Division reorganization. In recognition of his splendid performance on the Ops Staff, Mr. Keenan was made Chief of a combined Coordination/Plans Staff with a T/O of six. This staff will retain most of the coordination functions of the Ops Staff but not the line functions.
+
+11. This is a splendid officer, certainly one of the most promising GS-15's in the Division. He clearly earned an Outstanding rating for the period under review.
+
+Joseph Di Stefano
+Deputy Chief,
+LA Southern Region
+
+Thomas J. Keenan
+
+Date
+
+CONFIDENTIAL
+---
+COMMITTEE

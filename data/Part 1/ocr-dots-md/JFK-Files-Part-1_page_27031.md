@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_27031.png
+
+Convert to MarkdownATL-39-74
+20 February 1974
+
+5. In the meantime, the R. G. Murphy kidnapping came up to occupy his time until 26 February when he called to say he had some confidential information of definite interest to CIA. When told we could not go into his office the following day due to a lack of transportation, he said he would come to our office. We reluctantly agreed. Late the morning of 27 February he came to our office and presented us with the information in Enclosure No. 1 (rough draft--the tape will be saved in case it is needed at a later date).
+
+6. Not on the transcript, but of possible interest, before leaving our office he said he was afraid he might be fired by Coca Cola on March 1974. Briefly, what apparently happened (and this in his story) was:
+
+a. When it was learned Reg Murphy had been kidnapped, Chief John Irain of the Atlanta Police Department called Van Cleave requesting his assistance. He asked Van Cleave to come to headquarters and we met with Assistant Chief Mailing (we believe this is the correct name) on the Murphy kidnapping,
+
+b. Van Cleave apparently expressed concern to the Assistant Chief that prominent members of Coca Cola Company residing in the Atlanta area might be targets for the same kidnappers,
+
+c. The Assistant Chief agreed and went along with Van Cleave notifying, by phone, Coke officials,
+
+d. Van Cleave had not cleared this action with his immediate supervisor at the Coca Cola Company,
+
+e. Apparently the phone calls were made very late in the evening,
+
+f. When the Murphy kidnapping was resolved, Van Cleave was called in by his boss to account for his actions. He apparently has not been able to justify the calls and this will be discussed at the meeting on March. We suspect this may be his last official action for the Coca Cola Company.
+
+F 2. INTERPRET CL BY 01:00 70
+
+S. J. W.

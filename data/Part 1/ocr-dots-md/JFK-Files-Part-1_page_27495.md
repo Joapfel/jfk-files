@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_27495.png
+
+Convert to MarkdownSECRET
+
+2 April 1958
+
+MEMORANDUM FOR : CLANDESTINE SERVICES CAREER SERVICE BOARD
+
+SUBJECT : Mr. David L. CHRIST - Promotion
+
+1. Mr. Christ, an electronics engineer, age 40, has been with the Technical Services Staff since his entrance on duty with the Agency in 1950. He received his B. E. E. from Pennsylvania State. He served as the Assistant Chief of the Applied Physics Division for approximately five years. In that capacity he demonstrated both a high technical competence and the ability to administer the many research programs initiated by the Applied Physics Division.
+
+2. Mr. Christ was selected this past December to be the Chief of the Audio Support Division. It is believed that his technical ability and leadership will enhance the audio program in its world-wide activity. He is currently on an extended TDY in Europe and the Near East surveying audio needs and our capabilities to fulfill them.
+
+WILLIS A. GIBBONS
+Chief, DD/P/TSS
+
+SECRET
+
+SECRET

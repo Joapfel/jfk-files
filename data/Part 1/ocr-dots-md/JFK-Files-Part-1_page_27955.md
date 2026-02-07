@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_27955.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+FR 73-228
+6 JUN 1973
+
+MEMORANDUM FOR: Deputy Director for Operations
+
+SUBJECT : Appointment of Mr. Frederick C. Randall as Chief, Branch III, Foreign Resources Division
+
+1. The appointment of Mr. Frederick C. Randall as Chief, Branch III, Foreign Resources Division, effective on or about 11 June 1973, is recommended.
+
+2. Mr. Randall has been an employee of the Agency since September 1951 and is presently assigned to Branch II, Foreign Resources Division, as the Desk Officer in support of Los Angeles and San Francisco Bases. A copy of his biographic profile and the last two fitness reports are attached.
+
+Walter L. O'Brien
+Chief
+Foreign Resources Division
+
+Attachments:
+1. Biographic Profile (Parts 1 and 2)
+2. Fitness Reports (2)
+
+The recommendation in paragraph 1 is APPROVED:
+
+Deputy Director for Operations
+
+16 July 1973
+
+Date
+
+E2 IMPDET
+CI. NY 057223
+
+S.E.C.R.E.T

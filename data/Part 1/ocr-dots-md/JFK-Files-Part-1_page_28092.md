@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_28092.png
+
+Convert to MarkdownCONFIDENTIAL
+
+10 October 1975
+
+MENORANDUM IN LIEU OF FITNESS REPORT
+
+SUBJECT: Mr. Frederick C. Randall, GS-14/7
+
+1. This report is submitted as part of a package suggesting that Mr. Randall be awarded a QSI for his performance since becoming the DDO Freedom of Information Officer in February of this year. In this context, it is not appropriate that he see and sign this memorandum, since I want this to be a surprise. Nor, it seems, is it necessary to have a Reviewing Official for this interim report; the DDO has suggested, in commenting on my out-of-cycle recommendation of 8 August, 75 for Mr. Randall's promotion, that a memorandum be submitted recommending a QSI at this time.
+
+2. I consider Mr. Randall's performance as DDO/FIO (now DDO/PIC, for Privacy Act and FOIA Coordinator) to be Outstanding. As I have said elsewhere, he is, in my view, the most impressive of all the Agency FIO's combining DDO professionalism, tact, persuasiveness, analytic skills and an informed, tough-minded approach toward sources and methods protection. I have received considerable laudatory comment about his work from OGC, OLC, O/DAA and within the DO.
+
+3. From a one-man operation with secretary, the FOIA activity expanded in four months to an approved T/O of 7, with a pending request for 5 more, and the possibility of further increases depending on public reaction to the Privacy Act and the amount of litigation that develops. Fred has done an excellent job of selecting his staff for what is an often frantic, frustrating and long-houred environment; he also manages them well, with humor and compassion and with high analysis and output standards. He is conscious of cost, particularly in human effort, in this exercise and of the need for balance in the application of secrecy criteria in today's environment. I am, obviously, impressed and pleased with his assistance, and feel comfortably supported by his group's efforts in avoiding or preparing for litigation actions in FOIA and Privacy Act cases.
+
+I certify that I have read the above report.
+
+CONFIDENTIAL
+
+CL. BY 0110Z A. M. PAPAR.

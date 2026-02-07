@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_27298.png
+
+Convert to Markdown# MEMORANDUM IN LIEU OF FITNESS REPORT
+
+12 April 1967
+
+**Name:** William V. BROE
+
+**Date of birth:** 24 August 1913
+
+**Sex:** Male
+
+**Grade:** GS-18
+
+**SD:** D
+
+**Official Position Title:** Chief, WH Division, DD/P
+
+**Current station:** Headquarters
+
+**Type of appointment:** Career
+
+**Type of report:** Annual
+
+**Reporting period:** 18 May 1966 - 1 April 1967
+
+1. This is a letter fitness report on Mr. Broe as Chief of the WH Division from 18 May 1966 to date.
+
+2. In the last fitness report on Mr. Broe I commented that "he is easy to work with, exercises the soundest of judgements, maintains excellent relations in the community and will without question turn in a really fine performance as Chief, WH Division." Nothing has happened in the course of the past year to require any change in that comment and prediction. Although the Dominican crisis has subsided since the last report, we are not entirely out of the woods there, and there are several other situations in the Western Hemisphere which have been simmering smartly and which have

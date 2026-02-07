@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_27466.png
+
+Convert to Markdown# CIA Resume - David L. Christ---
+
+Primary emphases were on new advanced components, devices, systems and concepts for intelligence support activities. Basic orientation -- advanced systems concepts based on microtechnology.
+
+Technical areas -- Microelectronics (particularly micropower), solid-state physics, acoustics, electro-optics, electromechanics, avionics, stability and control, navigation, communications (analogue and digital), radar systems.
+
+Typical programs -- Solid-state components and devices; communication systems--audio, video, telemetry; sensors--acoustic, optical, nuclear, RF, etc.; avionic subsystems; data processing; power sources; electronic equipments, dc to microwave; antennas; systems study and analysis.

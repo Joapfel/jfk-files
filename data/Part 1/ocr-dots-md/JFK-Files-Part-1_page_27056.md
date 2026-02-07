@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_27056.png
+
+Convert to MarkdownSECRET
+
+File #242 369
+
+On 10 June 1965 records of the Hialeah Police Department were reviewed in the names of SUBJECT and his spouse and no record was found.
+
+AAT/ahh
+
+-4-
+
+SECRET

@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_27195.png
+
+Convert to MarkdownAIR
+
+FJTA-4432
+
+23 May 1954
+
+To: Chief, FE
+
+From: Senior Representative, NA
+
+Administration/Personnel
+Recommendation for Promotion - William V. BROE
+
+1. It is requested that consideration be given the promotion of William V. BROE from GS-14 to GS-15. As Deputy Chief of a large, extremely complex mission, BROE carries a heavy responsibility. He has demonstrated excellent judgment, initiative, and executive ability. Subject is an outstanding career officer. He is devoted to his duty and is conscientious. Mr. BROE has a thorough knowledge of CIA problems, techniques and procedures and the ability to use this knowledge in logical and effective ways.
+
+2. Favorable consideration is requested.
+
+/s/ Senior Representative, NA

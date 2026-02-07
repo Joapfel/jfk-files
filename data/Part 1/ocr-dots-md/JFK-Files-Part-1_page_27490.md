@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_27490.png
+
+Convert to MarkdownRESTRICTED
+
+31 October 1950
+
+MEMORANDUM FOR: SED/SSS
+
+SUBJECT: David L. Christ
+
+II/RD was advised by Mr. Christ on 30 October that he has changed his address. He can now be reached at -
+
+5405 Hamilton Street, N. E.
+Apt. #2 - Elmar Gardens
+Rodgers Heights, Maryland
+
+Telephone: UNION 8236
+
+L. R. DAILEY
+Deputy Chief
+Research & Development
+
+RESTRICTED

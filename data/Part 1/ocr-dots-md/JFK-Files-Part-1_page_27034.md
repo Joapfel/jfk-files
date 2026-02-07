@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_27034.png
+
+Convert to MarkdownSECRET
+
+ATL-4-75
+
+14 January 1975
+
+-2-
+
+5. We did learn that the friend whom Williamson described as a business consultant, "a kind of a high-finance man involved in setting up corporations," who often travels abroad, had been approached by someone "locally, i.o., in the Carrollton-west Atlanta area (Carrollton is about 40 miles west of Atlanta). The friend was said to be "a good friend, a reliable man, a college graduate, an established man in the community." According to Williamson, the friend was approached because of the nature of his work to perform some sort of task for this group, and he knew that something was wrong. The friend then learned all he could about the planned operation and eventually talked with Williamson about it. The friend told Williamson that the gun-running operation had been going on for about a year.
+
+6. At one point Williamson said that his friend told him that "the people involved in this thing won't hesitate to kill him (the friend) and he knows that he's going to have to leave this part of the country when it comes to light." Williamson told us: "I feel like I've got this man's life in my hands and I don't want to do anything to jeopardize his life, because I know him and his family and all. Williamson suggested that we meet his friend at the Capoeira Sword Hotel restaurant on I-20, near Six Flags Over Georgia, west of Atlanta, and he said that the two of them had already talked of this as a good meeting place. We told Williamson that we would be glad to seat with his friend but first we would like for his friend to give us a call so that we may talk with him. We gave our office phone number to Williamson. As of the writing of this memorandum, we have had no call.
+
+7. From the information that Williamson provided, e.g., location of people involved, an attempt to contact with an Agency representative (to possibly not involved merely by association), we believe that much of the substance of the matter could be the same as that which was reported from this office to OSS no related by Stephen Van Cleave regarding Mitch Werbell, et al. (See ATL-39-74, 20 February 1974, resume of contacts with Stephen Van Cleave; ATL-53-74, 9 April 1974, Stephen Van Cleave.) Mitch Werbell's operation, which has been described locally as a "machine-gun factory," is located at Powder Springs, Georgia, about ten miles north of the I-20 Capoeira and Sword Hotel. At any rate, Mr. Williamson's friend has been given the opportunity to contact us--and we are awaiting his call.
+
+JOHN R. PETERSON
+
+cc: Office of Chief, DCB (D. Zeimor)
+✓OSS
+Services
+
+M 2 MODEL CL BY 010650
+SECRET
+
+4, 51

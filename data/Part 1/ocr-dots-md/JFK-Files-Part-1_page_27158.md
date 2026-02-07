@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_27158.png
+
+Convert to Markdown18 U. S. C. 208 (P. L. 87-849, § 208)
+
+§ 208. Acts affecting a personal financial interest
+
+(a) Except as permitted by subsection (b) hereof, whoever, being an officer or employee of the executive branch of the United States Government, of any independent agency of the United States, or of the District of Columbia, including a special Government employee, participates personally and substantially as a Government officer or employee, through decision, approval, disapproval, recommendation, the rendering of advice, investigation, or otherwise, in a judicial or other proceeding, application, request for a ruling or other determination, contract, claim, controversy, charge, accusation, arrest, or other particular matter in which, to his knowledge, he, his spouse, minor child, partner, organization in which he is serving as officer, director, trustee, partner or employee, or any person or organization with whom he is negotiating or has any arrangement concerning prospective employment, has a financial interest--
+
+Shall be fined not more than $10,000, or imprisoned not more than two years, or both.
+
+(b) Subsection (a) hereof shall not apply (1) if the officer or employee first advises the Government official responsible for appointment to his position of the nature and circumstances of the judicial or other proceeding, application, request for a ruling or other determination, contract, claim, controversy, charge, accusation, arrest, or other particular matter and makes full disclosure of the financial interest and receives in advance a written determination made by such official that the interest is not so substantial as to be deemed likely to affect the integrity of the services which the Government may expect from such officer or employee, or (2) if, by general rule or regulation published in the Federal Register, the financial interest has been exempted from the requirements of clause (1) hereof as being too remote or too inconsequential to affect the integrity of Government officers' or employees' services. Added Pub. L. 87-63, § 1(a), Oct. 23, 1962, 76 Stat. 1124.

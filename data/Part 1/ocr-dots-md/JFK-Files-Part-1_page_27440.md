@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_27440.png
+
+Convert to Markdown# PROPOSED BIOGRAPHY
+
+BROE, William V.—b. Amesbury, Mass., Aug. 21, 1913; Amesbury High Sch., grad.; Governor Dummer Acad.; Bowdoin Coll., A.B. 1939; rubber co. 1939-41; U. S. Gov't 1942-51, app. For. Ser. Staff officer of class three and assigned as att. at Manila Feb. 21, 1941; married

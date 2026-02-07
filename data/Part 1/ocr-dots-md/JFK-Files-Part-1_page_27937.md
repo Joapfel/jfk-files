@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_27937.png
+
+Convert to MarkdownSECRET
+(When filed in)
+
+<table><thead><tr><th colspan="4">REQUEST FOR MEDICAL EVALUATION</th></tr><tr><td>1. NAME (Last, First, Middle)</td><td>2. POSITION TITLE</td><td>3. GRADE</td><td rowspan="2">6. EMPLOYEE'S REG. NO.</td></tr><tr><td>K.EENAN, Thomas</td><td>Op's Officer</td><td>GS-12</td></tr><tr><td>B. OFFICE, DIVISION, BRANCH</td><td></td><td></td><td></td></tr><tr><td>DDP/WR</td><td></td><td></td><td></td></tr><tr><th colspan="4">7. PURPOSE OF EVALUATION</th></tr><tr><td>PRE-EMPLOYMENT</td><td colspan="2"></td><td>NO/YES/TOY</td></tr><tr><td>ENTRANCE ON DUTY</td><td colspan="2"></td><td>OVERSEAS ASSIGNMENT</td></tr><tr><td>TOT STANDBY Latin America</td><td colspan="3"><table><tbody><tr><td>RTD</td></tr><tr><td>STATION</td></tr><tr><td>TOY OR PCS</td></tr><tr><td>TDY</td></tr><tr><td>TYPE OF COVER</td></tr><tr><td>State</td></tr><tr><td>NO. OF DEPENDENTS TO ACCOMPANY</td></tr><tr><td>NO. OF DEPENDENTS' REPORTS OF MEDICAL HISTORIC(S) ATTACHED</td></tr></tbody></table></td></tr><tr><td>SPECIAL TRAINING</td><td colspan="3"></td></tr><tr><td>ANNUAL</td><td colspan="3"></td></tr><tr><td>RETURN TO DUTY</td><td colspan="3"><input type="checkbox" checked/></td></tr><tr><td>FITNESS FOR DUTY</td><td colspan="3"></td></tr><tr><td>MEDICAL RETIREMENT</td><td colspan="3"></td></tr><tr><td></td><td colspan="3"><input type="checkbox" checked/></td></tr><tr><td></td><td colspan="3"><input type="checkbox"/></td></tr><tr><td></td><td colspan="3"><input type="checkbox"/></td></tr><tr><td></td><td colspan="3"><input type="checkbox"/></td></tr><tr><td>9. OVERSEAS PLANNING EVALUATION (One block must be filled.)</td><td colspan="3"><table><tbody><tr><td>LTA</td></tr><tr><td>STATION</td></tr><tr><td>NO. OF DEP'S</td></tr></tbody></table></td></tr><tr><td>10. COMMENTS</td><td colspan="3"></td></tr><tr><td>11. REPORT OF EVALUATION</td><td colspan="3">CUALIFIED FOR TOY STANDBY<br/>UNTIL 02/28/69</td></tr><tr><td>Date</td><td colspan="3">JUNE 5, 1969 (Date of Medical Stare)<br/>REX WARK</td></tr></thead><tbody><tr><td colspan="4">FORM 259 AIR MARITIME FORM</td></tr></tbody></table>
+
+SECRET
+
+126

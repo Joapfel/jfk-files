@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_27690.png
+
+Convert to MarkdownSECRET
+
+30 June 1960
+
+MEMORANDUM FOR: Secretary, CS/CS Panel (Section C)
+SUBJECT: Recommendation for Promotion to Grade OS -10
+Mr. Thomas J. Keenan
+
+1. Thomas J. Keenan entered on duty with CIA on 20 May 1957 as a Junior Officer Trainee. He was assigned to WH Division for a one year tour effective 6 January 1958 and was changed to staff employee on 25 January 1959. He served ably as Operations Officer on the Nicaragua and Costa Rica Desk. Since 3 February 1960 he has been an Operations Officer at the Mexico City Station.
+
+2. Keenan is equipped intellectually and emotionally to do fine work, and his potential for a good career is high. He is alert and conscientious. He takes on new tasks readily and accomplishes his objectives with thoroughness and dispatch. He is enthusiastic and imaginative. He gets on well with his co-workers and is highly motivated. Keenan always makes a good impression and works diligently. He is a very pleasant individual, interested and cooperative, and gives promise of being a sound intelligence officer.
+
+3. The above recommendation has been submitted previously under the dates 12 August 1959 and 5 January 1960. The memorandum of 5 January 1960 added that since 12 August 1959 Mr. Keenan's performance continued to be of a high caliber. Although Subject's personnel file contains no evaluation yet of his work at the Mexico City Station, the Headquarters Section Chief, who visited the Station in April 1960 observed that Subject was doing excellent work.
+
+4. On the basis of his qualifications and past performance, it is recommended that Mr. Keenan be promoted to grade OS-10.
+
+Chief
+Western Hemisphere Division
+
+SECRET

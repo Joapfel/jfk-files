@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_27929.png
+
+Convert to MarkdownC-O-N-F-I-D-E-N-T-I-A-L
+
+Testing Secrecy Agreement
+
+I shall be participating in a testing program administered by the National Security Agency (CIA). I understand that other government agencies, including the Central Intelligence Agency (CIA), are associated with the NSA testing program and that this information is not for public use. Therefore, I agree to the following conditions with regard to this testing:
+
+1. I will not divulge or reveal under any circumstances whatsoever any information with respect to testing procedures of CIA. Such information will include, but will not be limited to, the types and contents of tests and questionnaires, and information disclosed by examiners.
+
+2. I will not reveal the fact that CIA is associated with the NSA testing program. I will not mention the name of the Central Intelligence Agency or any part of its program to the examiner or to any other person, including those participating in the testing. (The examiner is not a CIA official.)
+
+3. If I am asked by a CIA official whether I have been tested, I will indicate only the date and purpose of the testing.
+
+4. If inquiry is made by anyone other than a CIA official, I will give no information whatsoever about testing procedures. I will not even mention the fact that I signed this agreement.
+
+5. If I am asked what government agencies I am being tested for, I will reveal only that I took the NSA tests.
+
+6. This agreement is perpetually binding whether or not I am employed by
+CIA.
+
+Signature of Agreement
+
+Date
+
+C-O-N-F-I-D-E-N-T-I-A-L

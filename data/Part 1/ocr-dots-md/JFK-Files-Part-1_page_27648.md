@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_27648.png
+
+Convert to Markdown19 MAR 1976
+
+MEMORANDUM FOR: Deputy Director for Operations
+SUBJECT : Appointment of Mr. Thomas J. Keenan as Chief, Mexico and Central America Branch
+
+1. The appointment of Mr. Thomas J. Keenan as Chief of our Mexico and Central America Branch, a GS-15 position, effective in June 1976 is recommended. Mr. Keenan would replace Mr. Jack F. Mathews who is presently Chief, Mexico Branch.
+
+2. Mr. Keenan has been an employee of the Agency since May 1957, and is currently attending the Army War College. His biographic profile and two most recent fitness reports are attached.
+
+R.S. Sampson
+Chief
+Latin America Division
+
+Attachments
+* Biographic Profile
+* Fitness Reports
+* Photograph
+
+The recommendation in paragraph 1 is (J)APPROVED
+
+Deputy Director for Operations
+
+Date
+
+EZ IMPDET
+CL BY 055762

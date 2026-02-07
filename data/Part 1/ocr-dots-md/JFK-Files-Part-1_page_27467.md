@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_27467.png
+
+Convert to Markdown# ADMINISTRATIVE - INTERNAL USE ONLY
+
+21 December 1970
+
+MEMORANDUM FOR: Mr. David L. Christ
+THROUGH : Deputy Director for Science and Technology
+THROUGH : Director of Research and Development
+SUBJECT : Intelligence Medal of Merit
+
+1. The Honor and Merit Awards Board is pleased to notify you that the award named above will be conferred on you in recognition of the excellent service you have rendered this Agency. Security considerations relevant to the award are explained in the attached memorandum from the Office of Security.
+
+2. The award will be presented to you at a ceremony to be held in the near future. Members of your family, Agency associates, and intimate friends who are aware of your Agency affiliation may attend the ceremony.
+
+3. Invitations to the ceremony will be extended by the Secretariat, Honor and Merit Awards Board, Office of Personnel, extension 3645. Please send to that office the names and phone numbers of the guests you would like to have invited, and indicate any dates on which you would not be available for such a ceremony.
+
+/Sdc/ Robert M. Gaynor
+
+ROBERT M. GAYNOR
+Recorder
+Honor and Merit Awards Board
+
+Distribution:
+
+Orig - Addressee
+1 - D/ORD
+~~1 - D/Pers~~ Reader Chrono/OPF
+1 - Sec't, HMAB
+1 - Recorder, HMAB
+
+ADMINISTRATIVE - INTERNAL US ONLY

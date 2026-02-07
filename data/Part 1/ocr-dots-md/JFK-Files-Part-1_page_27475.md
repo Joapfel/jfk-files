@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_27475.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+MEMORANDUM FOR: David L. Christ
+VIA : Chief, T23
+
+1. The problem of effective management of the operational records of the Clandestine Services is one of our most important responsibilities. In this connection, you have been selected by your Division, and authorized by the Clandestine Services Records Committee, to act as Records Officer for your component. Your selection is based on your professional qualifications to carry out an assignment requiring experience, judgment, and a knowledge of the objectives of the Clan- destine Services. A copy of this memorandum will be placed in your official personnel folder to record your appointment as Records Officer.
+
+2. You are to act as behalf of your Division or Staff element in authorizing the destruction of material of no value to the Clandestine Services in accordance with criteria established for this purpose. You are empowered to authorize the destruction of documents and index cards recommended for destruction by other members of your Branch, and to desecrate KAPK and RYBAT material which is no longer sensitive or which has been restricted in error. Your signature will be recognized by RID as that of an officially appointed Records Officer.
+
+3. At the meeting of 26 August 1958, you were briefed on the details of your duties as Records Officer. It is now considered that you will be able fully to execute your duties as Records Officer and thus make a real contribution to the CS Records Management Program.
+
+WENDELL E. LITTLEZ
+DUP/RVO
+
+cc: Personnel Jacket of Addresssee
+
+S-2-C-R-E-T

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_27300.png
+
+Convert to MarkdownMEMORANDUM IN LIEU OF FITNESS REPORT
+
+18 May 1966
+
+Name: William V. BROE
+Date of birth: 24 August 1913
+Sex: Male
+Grade: GS-18
+SD: D
+Official Position Title: Chief, WH Division, DD/P
+Current station: Headquarters
+Type of appointment: Career
+Type of report: Annual
+Reporting period: July 1965 to date
+
+1. This is a letter fitness report on Mr. Broe as Chief of the WH Division from July 1965 to date.
+
+2. Mr. Broe's file is complete with the highest estimates of his capabilities and performance in the several positions of responsibility he has held in the Clandestine Services. Until coming to the WH Division, his entire career with the Clandestine Services, dating back to 1948, had been in the Far East area. He served as Chief of our Manila Station and later of our Tokyo Station in which latter position he distinguished himself. He was brought in to take over the WH Division when the Chief of that Division became the DD/P. That in itself was an eloquent admission of the esteem in which his capabilities are held. His performance in the WH Division has fully lived up to this evaluation. He took over the Division just after the Agency had become immersed in the Dominican Republic crisis. At the same time, a dozen other problems of one kind or another required the most serious attention. He has made several field trips to his area of responsibility and has shown his usual skill in getting the most
+
+31 MAY 1965
+
+TOP SECRET

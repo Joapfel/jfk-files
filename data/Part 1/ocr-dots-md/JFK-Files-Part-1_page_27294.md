@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_27294.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM IN LIEU OF ANNUAL FITNESS REPORT FORM
+
+25 April 1969
+
+**Name:** William V. Broe (056735)
+
+**Date of birth:** 24 August 1913
+
+**Sex:** Male
+
+**Grade:** GS-18
+
+**SD:** D
+
+**Official Position Title:** Ops Officer Division Chief
+
+**Current station:** Headquarters
+
+**Type of appointment:** Career
+
+**Type of report:** Annual
+
+**Reporting period:** 1 April 1968 to 31 March 1969
+
+During the reporting period, Mr. Broe has continued to serve as Chief of the WH Division. Under his leadership and due to his excellent judgment in the selection of key personnel, the Division has improved its performance both in the collection of significant intelligence and in its conduct of complex covert action operations. Due to high level penetration of the Communist parties throughout the hemisphere, he has kept the Division well ahead of the game in dealing with the diverse subversive movements in the area. This result is due in considerable measure to Mr. Broe's managerial skills. Mr. Broe's judgment has been relied upon by both the White House and the Assistant Secretary level in the State Department in dealing with the policy aspects of successive crises. He has been consistently cost conscious, and his performance on the whole has been outstanding.
+
+Cord Meyer, Jr.
+Assistant Deputy Director for Plans
+
+I have noted this report.
+
+William V. Broe
+
+Thomas H. Karamessines
+Deputy Director for Plans
+19 MAY 1969
+
+Comments of reviewing official:
+
+SECRET
+
+<table><tr><td>Copy</td></tr></table>

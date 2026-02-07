@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_28010.png
+
+Convert to MarkdownSECRET
+
+I am aware of the fact that the Central Intelligence
+Agency, by reason of the sensitive nature of its work, must
+observe very strict security measures. I agree to honor the
+requests of CIA relative to my application whether it be
+accepted or rejected. I agree not to inform anyone that I am
+being considered for a position in CIA. If questioned directly,
+I will say that I have applied for positions in various govern-
+ment agencies, and if pressed for an answer will acknowledge that
+CIA is one of them but will attach no particular significance to
+such application. I agree not to disclose personnel procedures
+I have observed in CIA. I agree not to discuss by name or
+otherwise, any individuals with whom I have talked in the course
+of my application to CIA.
+
+Signed: Frederick P. Ronaldell
+Date: April 26, 1951
+
+SECRET

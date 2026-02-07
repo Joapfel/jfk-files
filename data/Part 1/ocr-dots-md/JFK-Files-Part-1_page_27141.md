@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_27141.png
+
+Convert to MarkdownSECRET
+
+UFGA-14781
+
+thinking about exposing the role of Miami attorney Alex E. *CARLSON, residing 145 Curtiss Parkway, Miami Springs, Florida, in the Bay of Pigs operation. AMCARDON-1 stated that, if CARLSON were of any current interest to REUTERMAN, then the Identity 3 would soft peddle the CARLSON angle. REUTERMAN advised AMCARDON-1 that he had no interest in CARLSON but knew of him and was of the opinion that CARLSON was a sound and honest attorney. The receipt of this operational intelligence enabled JMWAVE to brief CARLSON on the Identity 3's over-all interest in the role that CARLSON had played in the Bay of Pigs invasion. This briefing, in turn, enabled CARLSON to more adequately prepare himself for a meeting with AMCARDON-1. While AMCARDON-1 did attempt to pursue this Bay of Pigs story, he never did put anything into print as the story was overtaken by other developments before AMCARDON-1 could finish his research.
+
+c. In WAVE 0904, dated 9 July 1963, AMCARDON-1 advised JMWAVE that Mr. Trevor *ARMBRISTER*, an associate editor for the Saturday Evening Post, was in Miami during July 1963 attempting to research a story regarding the possibility that strategic missiles were hidden in Cuban caves. This information enabled JMWAVE to keep Headquarters informed on sensational-type articles which might be appearing relative to Soviet missiles in Cuba.
+
+d. In WAVE 4701, dated 20 September 1963, AMCARDON-1 gave JMWAVE his resume of the discussions which he had with AMBIDDY-1 at the Miami Playboy Club on 19 September 1963. This information was useful in obtaining an insight into what AMBIDDY-1 was telling the press.
+
+e. In WAVE 5661, dated 10 October 1963, AMCARDON-1 reported on a discussion that he had had on 10 October 1963 with AMBIDDY-1's public relations man. This operational intelligence was useful in terms of keeping KUBARK advised as to what AMBIDDY-1's representatives were telling the outside world about their operational activities.
+
+f. In WAVE 6910, dated 31 October 1963, AMCARDON-1 informed JMWAVE about the flood of telephone calls which were being received at the Identity 3 relative to so-called KUBARK vessels which were located in South Florida waters. This information alotted JMWAVE to the fact that press scrutiny was going to be directed toward the Identity 5. Armed with this warning, JMWAVE was able to take action which minimized the publicity repercussions from a renewed press interest in the Identity 5.
+
+g. In WAVE 7671, dated 16 November 1963, AMCARDON-1 reported to JMWAVE the fact that he had received a letter from Peru which contained an interesting operational lead to one Carlos MONTALVANO in Puno, Peru. This lead was examined by JMWAVE, Headquarters and the Lima Station. This examination revealed that the letter was written by a crackpot; thus, there was no real operational potential in this lead. This incident did underscore the fact that AMCARDON-1 is willing to bring potentially significant operational leads to JMWAVE's attention.
+
+h. In WAVE 1614, dated 6 February 1964, AMCARDON-1 advised JMWAVE that he had received numerous telephone calls indicating that Armando Andres GUIROLA Forte, who had defected from a Cuban fishing vessel might be an individual who had previously been seen in Miami during November or December 1963. At the same time, AMCARDON-1 pointed out that he was suspicious and thought that those telephone calls indicated that GUIROLA was not a bona fide defector, but was either a GOC agent or a KUBARK plant, who was being used as a means of creating an incident which would embarrass the GOC, as a result of their fishing boats penetrating
+
+FORM
+5-80
+(40)
+
+USE PREVIOUS EDITION.
+
+CLASSIFICATION
+SECRET
+
+CONTINUED
+
+PAGE NO.
+5.

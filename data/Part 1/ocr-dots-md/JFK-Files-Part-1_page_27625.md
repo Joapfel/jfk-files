@@ -1,0 +1,77 @@
+# JFK-Files-Part-1_page_27625.png
+
+Convert to Markdown14-00000
+
+ADDRESS
+
+St. & No.
+City
+State
+Country
+
+KIND OF BUSINESS College NAME OF SUPERVISOR Prof. F. T. Hall, Jr.
+
+TITLE OF JOB Student SALARY $ ____ PER ____
+
+YOUR DUTIES Student in Electrical Engineering
+
+REASONS FOR LEAVING Graduation
+
+3. FROM June, 1976 TO Feb, 1978
+
+EMPLOYING FIRM OR AGENCY Atlas Powder Company
+
+ADDRESS
+
+St & No.
+City
+State
+Country
+
+KIND OF BUSINESS Explosives NAME OF SUPERVISOR Wm. E. Moore
+
+TITLE OF JOB Powder Helper SALARY $ 1.35 PER hr.
+
+YOUR DUTIES Packing powder in Gelatin Box-pack
+
+REASONS FOR LEAVING Attend Pa. State College on campus, worked part-time from Sept. '76 to Feb. '78.
+
+4. FROM Oct. '72 TO May '76
+
+EMPLOYING FIRM OR AGENCY U.S. Army Air Force
+
+ADDRESS
+
+St. & No.
+City
+State
+Country
+
+KIND OF BUSINESS Communications NAME OF SUPERVISOR Capt James Purdy
+
+TITLE OF JOB Lt. Lt. SALARY $ 125 PER month
+
+YOUR DUTIES Communications Officer, Cryptographic Sec. O.
+
+REASONS FOR LEAVING Separation From Service
+
+5. FROM 1977 TO Oct, 1978
+
+EMPLOYING FIRM OR AGENCY Atlas Powder Company
+
+ADDRESS
+
+St & No.
+City
+State
+Country
+
+KIND OF BUSINESS Explosives NAME OF SUPERVISOR Wm. E. Moore
+
+TITLE OF JOB Powder Helper SALARY $ 0.88 PER hr.
+
+YOUR DUTY: Bomb Plant, Gelatin Box-Pack
+
+REASONS FOR LEAVING Enter military service
+
+Note: Continued on Page 13.

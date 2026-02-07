@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_27746.png
+
+Convert to Markdown<html><body><table><tr><td>1. SERIAL NO.</td><td>2.</td><td>NAME</td><td>3. ORGANIZATION</td><td>4. FUNDS</td><td>5. LWOP MOVED</td></tr><tr><td></td><td></td><td>KEFFAN THOMAS J.</td><td>51,700</td><td>CF</td><td></td></tr><tr><td colspan="2">OLD SALARY RATE</td><td>7.</td><td colspan="3">NEW SALARY RATE</td></tr><tr><td>Grade</td><td>Step</td><td>Salary</td><td>Low Eff Date</td><td>Grade</td><td>Step</td><td>Salary - EFFECTIVE DATE</td></tr><tr><td>C5 13 3</td><td></td><td>817,878</td><td>05/18/69</td><td>C5 13 &</td><td></td><td>818,437 03/17/70</td></tr><tr><td colspan="7">CERTIFICATION AND AUTHENTICATION</td></tr><tr><td colspan="7">I CERTIFY THAT THE WORK OF THE ABOVE NAMED EMPLOYEE IS OF ACCEPTABLE LEVEL OF COMPETENCE</td></tr><tr><td>SIGNATURE</td><td colspan="4"></td><td>DATE</td><td></td></tr><tr><td rowspan="3">Clerks initials</td><td colspan="5">NO EXCESS LWDPD</td><td rowspan="3"></td></tr><tr><td colspan="5">IN PAY STATUS AT END OF WAITING PERIOD</td></tr><tr><td colspan="5">LWOP STATUS AT END OF WAITING PERIOD</td></tr><tr><td colspan="7">ADMITTED BY</td></tr><tr><td>FORM 766</td><td colspan="6">Use previous additions</td></tr><tr><td colspan="7">PAY CHANGE NOTIFICATION (4-31)</td></tr></table></body></html>
+
+COMPONENTS NOTIFIED
+
+14-00000

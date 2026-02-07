@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_27304.png
+
+Convert to MarkdownBROE, William V.
+
+Comments of Reviewing Official:
+
+Fully concur with the above. Mr. Broe is obviously one of the top-level officers of our service. He is effective in management, analysis and personal operations.
+
+Signature of Reviewing Official:
+William E. Colby
+
+28-
+Date

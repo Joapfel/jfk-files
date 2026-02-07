@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_27221.png
+
+Convert to MarkdownSECRET
+
+What special qualifications do you wish the candidate tested for?
+
+What period and type of training is considered necessary for the candidate before placement in the field? Complete CIA administrative, basic and advanced intelligence courses. No photography or cryptography necessary at this time.
+
+What special skills or knowledge related to the job does the candidate possess?
+(Include statement of any previous experience in intelligence work)
+
+FBI - Mar. 30, 1942 - May 14, 1948
+
+Indicate knowledge of foreign languages! ("Flight", "Fair", "Good")
+
+Read
+
+Speak
+
+Write
+
+1.
+
+2.
+
+3.
+
+4.
+
+Previous background in intelligence work; Executive and supervision of investigations
+of a criminal and security nature.
+
+Foreign residence and foreign education None
+
+Occupational history: (only job description and dates)
+
+SECRET
+
+(over)

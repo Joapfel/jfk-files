@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_28077.png
+
+Convert to MarkdownCONFIDENTIAL
+
+NARRATIVE COMMENTS - continued
+
+Randall, Frederick
+
+Group chiefs in a broad review of disparate IMS operations: computers, information management planning for the DO and its current services. He is articulate and effective in presenting views from the IMS/FPG vantage, but at this level, I want to see more concern about the people and activities of companion IMS elements, more brainstorming of common problems. He is the least active of the four group chiefs in this area, although he has the inquisitiveness and intellect to contribute importantly in cross-discipline problems. I find no weakness here, but Mr. Randall's contributions here do not measure up comparatively to his exceptional performance in all other areas.
+
+In these other areas, covering duties 3 and 4, Mr. Randall and his group stimulated, staffed out and justified three remarkably successful policy changes: a Presidential statement that sources and methods information need not be classified to be protected; a DCI policy that DO records ipso facto are not releasable (despite an OGC opinion to the contrary), and a policy allowing employees access to their files without going through the FOIA or Privacy Act folderol. While not individual accomplishments by Mr. Randall, they bespeak from the leadership and guidance he gave, and they are typical of the kind of case officer professionalism he has and we have needed to help protect agents, operations and officers from exposure. I do think it is sad to have to divert good DO talent to disclosure law problems; but if we must, then Mr. Randall's experience and abilities have counted a great deal in such successes we have had in keeping our secrets.
+
+Mr. Randall's fitness reporting is accurate and fair. Per HR 20-20, it is noted for the record that Mr. Randall displays appropriate concern in equal employment opportunity areas: women comprise more than half of his group. He has three minority officers. Levels of responsibility here are above Agency norm.
+
+REVIEWING OFFICIAL'S COMMENTS - continued
+
+for this experienced supervisor. He has demonstrated his versatility and commitment by doing a job for four years that probably few other DO ops officers/managers would or could do as well as he has. For the good of his morale, the interest of his further development and in the interest of the Directorate, he has earned a change.
+
+CONFIDENTIAL

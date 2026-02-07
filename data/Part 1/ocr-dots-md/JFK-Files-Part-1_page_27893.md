@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_27893.png
+
+Convert to MarkdownSECRET
+(WHEN FILLER IS)
+
+<table><thead><tr><th colspan="10">APPLICANT CODING DATA</th></tr></thead><tbody><tr><td>1. ID - &lt;•2&gt;</td><td>2. APPL. NO.</td><td>3. NAME<br/>G-DIGITS MUST CONTAIN 20 DIGITS</td><td>4. DATE OF BIRTH</td><td>5. DATE CODED<br/>(SEE COLUMN G)</td><td>6. NAME<br/>3-LETTERS</td><td>7. EMPLOYEE NO.</td><td>8. DATE SUBMITTED</td><td>9. MO</td><td>10. DA</td><td>11. YR</td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td>&#9650;</td><td>&#9650;</td><td>&#9650;</td></tr></tbody></table>
+
+<table><caption>LANGUAGE CODING DATA - FORM 444c</caption><thead><tr><th rowspan="2">1. ID<br/>&lt;•3&gt;</th><th rowspan="2">2. EMPLOYEE NO.<br/>•</th><th rowspan="2">3. NAME<br/>3-LETTERS</th><th rowspan="2">4. CODE<br/>C-A-D</th><th colspan="6">LANGUAGE DATA BEFORE TEST</th></tr><tr><th>DATE CODE</th><th>R</th><th>W</th><th>P</th><th>S</th><th>S</th><th>U</th><th>T</th><th>YR</th></tr></thead><tbody><tr><td></td><td></td><td></td><td>•</td><td>&#9650;</td><td>•</td><td>&#9650;</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td>•</td><td></td><td>•</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+<table><thead><tr><th colspan="10">LAINGUAGE PROFICIENCY TEST DATA</th></tr></thead><tbody><tr><td>1. ID<br/>&lt;•5&gt;</td><td>2. EMPLOYEE NO.<br/>•</td><td>3. NAME<br/>3-LETTERS</td><td>4. CODE<br/>C-A-D</td><td>5. LANGUAGE DATA BEFORE TEST<br/>DATE CODE<br/>•</td><td>R</td><td>W</td><td>S</td><td>S</td><td>U</td><td>T</td><td>YR</td></tr><tr><td></td><td></td><td>KEE</td><td>•</td><td>BL18</td><td>I</td><td>E</td><td>E</td><td>i</td><td>H</td><td>4</td><td>62</td></tr></tbody></table>
+
+<table><thead><tr><th colspan="10">LANGUAGE DATA AFTER TEST</th></tr></thead><tbody><tr><th rowspan="2">BASE CODE<br/>•</th><th rowspan="2">R</th><th rowspan="2">W</th><th rowspan="2">P</th><th rowspan="2">S</th><th rowspan="2">U</th><th rowspan="2">T</th><th rowspan="2">YR</th><th colspan="3">DATE FOR TEST</th><th colspan="3">TEST DATE</th></tr><tr><th>NO</th><th>DA</th><th>YR</th><th>EXTRACTED FROM</th><th>FORM</th><th>1273</th></tr><tr><td>BL18</td><td></td><td>I</td><td>E</td><td>E</td><td>I</td><td>4</td><td>65</td><td>$8</td><td>$4</td><td>$5</td><td></td><td></td><td>LANGUAG<br/>AW

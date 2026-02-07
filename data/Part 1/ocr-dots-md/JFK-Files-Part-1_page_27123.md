@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_27123.png
+
+Convert to MarkdownRE: CUBANOS UNIDOS
+(UNITED CUBANS)
+
+On June 19, 1970, M.I. T-3, another Government agency which conducts intelligence investigations, advised information had been received that CU recently held a meeting to introduce Americans who are backing their organization. The Americans were FRANK FIORINI and FD KAISER. FIORINI calls himself the "Chief of Intelligence Section of Cubanos Unidos".
+
+On July 1, 1970, WILFREDO NAVARRO BEATO appeared at the Miami Office of the FBI with his brother, ROFRÉE NAVARRO BEATO, and advised as follows:
+
+FRANK FIORINI, an American citizen who has been involved in Cuban exile revolutionary matters for the past ten years, recently signed a unity agreement with CU. In this agreement, FIORINI, who represents some independent anti-CASTRO organization, agreed that political unity of all exile groups must be established. FIORINI is not a member of CU as such, holds no official position, and is not in charge of intelligence.
+
+NAVARRO said that a few days previously he returned from Washington, D. C., where again he was trying to obtain United States Government support and backing. He was told that no support could be given unless it was personally authorized by President RICHARD M. NIXON.
+
+They stated that JORGE CONZALEZ, also known as "Bombillo", who was formerly associated with another anti-CASTRO organization, was in no way associated with CU. They claimed that CU had no plans to attack a Russian vessel off the coast of Florida. CU had previously said it needed some 57mm recoilless rifles for this purpose but had no intention of attacking a Russian vessel.
+
+Announcements that they were going to do so were made for political propaganda and also to stir patriotic Cuban exiles to become more active in Cuban revolutionary matters.

@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_27103.png
+
+Convert to MarkdownSECRET
+
+14 June 1976
+
+SUBJECT: LORENZ, Llona Marita
+
+1. As the result of an article on Subject in the 13 June 1976 New York Daily News, LAOOG was asked to do a file check to determine whether Subject was ever connected with the Agency. According to a LA/OOG desk check, IP trace, CI/CA and Security Office check, LORENZ has never been employed by the Agency. Of interest, however, is the fact that her sister, Valerie LORENZ, was granted a CSC on 14 July 1955, initiated by Finance Division, as a witting employee. At that time Valerie was an employee of the National Bank of Washington.
+
+2. There are several references, sourced to the FBI and DCI. LORENZ is a self-admitted former girl friend of Fidel CASTRO. She claims that she met Fidel while on a trip to Cuba with her father, Captain of the North German Lloyd Line, in February 1959, became infatuated with Fidel and stayed in Cuba. She served as Fidel's mistress and came to the U.S. with Fidel's party in April 1959. She learned at that time that she was pregnant by him. Marita returned to Havana a short time thereafter and had a miscarriage. She claims that she was drugged and taken to a hospital where an abortion was performed. Because of Fidel's reaction to the pregnancy, she turned against him. LORENZ returned to the U.S. from Cuba on 9 December 1959. Because of the bad abortion operation performed on LORENZ in Cuba in September 1959, LORENZ was operated on by a Dr. Hanniar on 20 January 1960 at the Roosevelt Hospital in New York City.

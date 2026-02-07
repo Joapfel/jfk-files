@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_27178.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+Subject: Appointment of Mr. William V. Broe, Chief of Station,
+Tokyo, Japan
+
+The recommendation in paragraph 1 is approved.
+
+Director of Central Intelligence
+
+1 OCT 1960
+
+Date
+
+2
+
+SECRET

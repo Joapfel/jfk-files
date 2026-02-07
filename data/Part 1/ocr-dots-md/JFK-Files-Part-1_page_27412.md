@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_27412.png
+
+Convert to MarkdownSECRET
+
+(When Filled In)
+
+<table><thead><tr><th></th><th></th><th></th><th></th></tr></thead><tbody><tr><td colspan="2">REQUEST FOR MEDICAL EVALUATION</td><td>1. DATE OF REQUEST</td><td>15 December 1965</td></tr><tr><td>1. NAME (Last, First, Middle)</td><td>BROE, William V.</td><td>3. POSITION TITLE</td><td>Op. Officer/WH/Chief OS-17</td></tr><tr><td>2. OFFICE, DIVISION, BRANCH</td><td>DDP/WH/Chief</td><td>4. GRADE</td><td></td></tr><tr><td colspan="2"></td><td>5. EMPLOYEE'S EXT.</td><td>5103</td></tr><tr><td colspan="4">7. PURPOSE OF EVALUATION</td></tr><tr><td></td><td colspan="3"><input type="checkbox"/> MDD/TOY</td></tr><tr><td></td><td colspan="3"><input type="checkbox"/> OVERSEAS ASSIGNMENT</td></tr><tr><td colspan="4"><table><tbody><tr><td>STD</td><td>13 Jan - 3 Feb 1966</td></tr><tr><td>STATION</td><td>See comments</td></tr><tr><td>TDY OR PCS</td><td></td></tr><tr><td>TYPE OF COVER</td><td>State</td></tr><tr><td>NO. OF DEPENDENTS TO ACCOMPANY</td><td></td></tr><tr><td>NO. OF DEPENDENTS' REPORTS OF MEDICAL HISTORY (SF 89) ATTACHED</td><td></td></tr></tbody></table></td></tr><tr><td></td><td colspan="3"><input type="checkbox"/> RETURN FROM OVERSEAS</td></tr><tr><td colspan="4"><table><tbody><tr><td>P.O.</td><td></td></tr><tr><td>STATION</td><td></td></tr><tr><td>NO. OF DEP.'S</td><td></td></tr></tbody></table></td></tr><tr><td colspan="2">9. OVERSEAS PLANNING EVALUATION (This block must be checked.)</td><td colspan="2">9. REQUESTING OFFICER</td></tr><tr><td colspan="2"><input type="checkbox" checked /> YES</td><td colspan="2">Harry C. Cornig</td></tr><tr><td colspan="2"><input type="checkbox" /> NO</td><td colspan="2">ROOM NO. & BUILDING Ext. 6815</td></tr><tr><td colspan="4">10. COMMENTS<br/>* Caracas, Venezuela; Quito, Ecuador; Bogota, Colombia; La Paz, Bolivia and Lima, Peru.<br/>11. REPORT OF EVALUATION<br/>QUALIFIED FOR TDY STAND BY UNTIL /<br/>SIGNATURE FOR CHIEF OF MEDICAL STAFF<br/>REX HART<br/><br/>DATE 6</td></tr><tr><td colspan="4">FORM 10-59 259 USE PREVIOUS EDITIONS, SECRET (25)</td></tr></tbody></table>
+
+14-00000
+
+(25)

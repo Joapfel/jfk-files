@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_27851.png
+
+Convert to MarkdownFor convenience, a Certificate of Eligibility No. _________ has been issued by the Veterans Administration to be used for the future request of any Continuity or Insurance Benefit under Title 38, United States Code that may be available to the person to whom this separation paper was issued.

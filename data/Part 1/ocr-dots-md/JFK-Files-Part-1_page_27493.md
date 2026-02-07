@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_27493.png
+
+Convert to Markdown14-0000
+
+RESERVE STATUS INFORMATION
+
+NAME: David L. Christ
+RANK: 1st Lt.
+SERIAL NUMBER: 0-877943
+BRANCH OF SERVICE: Air Force -- AA-CS
+ACTIVE OR INACTIVE RESERVE: presume active
+IF KNOWN, PRESENT LOCATION: Hq. AACS, Washington D.C.
+OF RECORDS:

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_27824.png
+
+Convert to MarkdownSECRET
+
+Annex to Fitness Report
+
+Section C, continued
+
+He has demonstrated an excellent sense of cost consciousness.
+
+This employee has a cheerful disposition and gets along well with his colleagues. His willingness to help out others certainly contributes to the smooth functioning and pleasant atmosphere at the Station. The only criticism, and a minor one indeed, is that this employee, with the many positive assets he has (including his wife who speaks fluent Spanish), could be more forceful in the field of developing new assets of operational interest to the Station.
+
+SECRET

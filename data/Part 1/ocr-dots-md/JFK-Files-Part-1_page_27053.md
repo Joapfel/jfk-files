@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_27053.png
+
+Convert to MarkdownSECRET
+
+File #212 369
+
+EMPLOYMENT:
+
+At Miami, Florida
+(Eagle Incorporated)
+
+On 22 June 1965 Sam KRATISH, secretary-treasurer, 800 N. E. 2nd Avenue, was interviewed regarding Antonio SOTO. The informant stated that "Tony" has been employed by the firm periodically since 1961. SUBJECT has been utilized as a warehouse checker for the steamship company. He unloaded cargo coming to and from the United States. He was an excellent employee, and although he has left on several occasions, he is always eligible for rehire. The informant stated that SUBJECT is also a pilot and formerly flew in the Cuban Air Force. He has had several part time or temporary flying jobs which offer him good pay. When these jobs arise the firm allows SUBJECT to leave without jeopardizing his standing with the company. SUBJECT left in March 1965 to accept another one of these flying jobs. The informant stated that he did not know where these jobs were located, but believed that they are usually out of the United States.
+
+REFERENCES:
+
+At Miami, Florida
+
+On 22 June 1965 Sam KRATISH, previously identified, was interviewed regarding SUBJECT as a developed reference. The informant stated that he considers "Tony" SOTO to be a reputable and honest individual. He has been associated with him on a professional basis since 1961 and his associations have all been satisfactory. SUBJECT is an excellent worker and is completely honest. The informant stated that he has often left SUBJECT alone with valuable cargo, and that there has never been any dispute over SUBJECT's trustworthiness or integrity. SUBJECT is a Cuban exilio who left Cuba because of the CASTRO regime. SUBJECT has never espoused any political ideologies while he has worked at the firm, but the informant stated that he is aware of the fact that the SUBJECT is anti-CASTRO and that he is favorably disposed towards the United States form of
+
+-1-
+
+SECRET

@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_27584.png
+
+Convert to Markdown<table><tr><td rowspan="2">ELECTION, DECLINATION, OR WAIVER<br>OF LIFE INSURANCE COVERAGE<br>FEDERAL EMPLOYEES GROUP LIFE INSURANCE PROGRAM</td><td colspan="3">IMPORTANT AGENCY INSTRUCTIONS ON BACK OF ORIGINAL</td></tr><tr><td colspan="3"></td></tr></table>
+
+<table><caption>TO COMPLETE THIS FORM—</caption><tbody><tr><td style="vertical-align: top;">1</td><td><strong>FOLLOW THESE GENERAL INSTRUCTIONS:</strong><ul><li>Read the back of the "Duplicate" carefully before you fill in the form.</li><li>Fill in BOTH COPIES of the form. Type or use ink.</li><li>Do not detach any part.</li></ul></td></tr></tbody></table>
+
+<table><thead><tr><th colspan="4">FILL IN THE IDENTIFYING INFORMATION BELOW (please print or type):</th></tr></thead><tbody><tr><td colspan="2"><table><tr><td>NAME (last)</td><td>(first)</td><td>(middle)</td></tr><tr><td colspan="3">Christ David Lamay</td></tr><tr><td colspan="2">EMPLOYING DEPARTMENT OR AGENCY</td><td></td><td></td></tr></table></td><td colspan="2">DATE OF BIRTH (month, day, year)<br>Jan 20 1918</td><td>SOCIAL SECURITY NUMBER<br>181 61 6133</td></tr><tr><td colspan="4"></td><td>LOCATION (City, State, ZIP Code)</td></tr></tbody></table>
+
+<table><caption>3 MARK AN "X" IN ONE OF THE BOXES BELOW (do NOT mark more than one):</caption><tbody><tr><td rowspan="2">Mark here if you WANT BOTH optional and regular insurance</td><td>ELECTION OF OPTIONAL (IN ADDITION TO REGULAR) INSURANCE<br>I elect the $10,000 additional optional insurance and authorize the required deductions from my salary, compensation, or annuity to pay the full cost of the optional insurance. This optional insurance is in addition to my regular insurance.</td></tr><tr><td><input type="checkbox"/> (A)</td></tr><tr><td rowspan="2">Mark here if you DO NOT WANT OPTIONAL but do want regular insurance</td><td>DECLINATION OF OPTIONAL (BUT NOT REGULAR) INSURANCE<br>I decline the $10,000 additional optional insurance. I understand that I cannot elect optional insurance until at least 1 year after the effective date of this declination and unless at the time I apply for it I am under age 50 and present satisfactory medical evidence of insurability. I understand also that my regular insurance is not affected by this declination of additional optional insurance.</td></tr><tr><td><input type="checkbox" checked/> (B)</td></tr><tr><td rowspan="2">Mark here if you WANT NEITHER regular nor optional insurance</td><td>WAIVER OF LIFE INSURANCE COVERAGE<br>I desire not to be insured and I waive coverage under the Federal Employees Group Life Insurance Program. I understand that I cannot cancel this waiver and obtain regular insurance until at least 1 year after the effective date of this waiver and unless at the time I apply for insurance I am under age 50 and present satisfactory medical evidence of insurability. I understand also that I cannot now or later have the $10,000 additional optional insurance unless I have the regular insurance.</td></tr><tr><td><input type="checkbox"/> (C)</td></tr></tbody></table>
+
+<table><tbody><tr><td>4 SIGN AND DATE. IF YOU MARKED BOX "A" OR "C", COMPLETE THE "STATISTICAL STUB." THEN RETURN THE ENTIRE FORM TO YOUR EMPLOYING OFFICE.<hr><br>SIGNATURE (do not print)<br>Marcie L. Adkins<hr>DATE<br>2/19/68</td><td>FOR EMPLOYING OFFICE USE ONLY<hr><br>(official receiving date stamp)<hr>1-7-68 9:00 AM<br>SEAL<br>See Table of Effective Dates on back of Original</td></tr></tbody></table>
+
+ORIGINAL COPY—Retain in Official Personnel Folder
+
+STANDARD FORM No. 176-T
+JAN 17 1968
+(For use only; April 14, 1968)
+176-11

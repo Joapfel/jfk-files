@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_27297.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM IN LIEU OF FITNESS REPORT FORM
+
+Name: William V. Broe (056735)
+
+Date of birth: 24 August 1913
+
+Sex: Male
+
+Grade: GS-18
+
+SD: D
+
+Official Position Title: Chief, WH Division, DDP
+
+Current station: Headquarters
+
+Type of appointment: Career
+
+Type of report: Annual
+
+Reporting period: 1 April 1967 - 31 March 1968
+
+During the reporting period, Mr. Broe has continued to serve as Chief, WH Division. In that capacity he has a large number of important field stations under his command and he has handled them with excellent judgment. He is a wise judge of men and their differing abilities and knows how to extract the best from those who work for him. He has taken the time to read widely regarding the problems of his area and he has been most effective in his dealings with policy levels at State. His performance has been an outstanding one and is reflected in the steadily improving contribution that his Division has made over the past year.
+
+Cord Meyer, Jr.
+Assistant Deputy Director for Plans
+
+I have noted this report:
+
+William V. Broe
+
+Comments of reviewing official:
+
+Thomas H. Karamessines
+Deputy Director for Plans
+
+SECRET

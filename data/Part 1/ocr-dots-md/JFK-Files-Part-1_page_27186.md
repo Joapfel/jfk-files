@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_27186.png
+
+Convert to MarkdownSECRET
+SECURITY INFORMATION
+
+MEMORANDUM FOR: Special Assistant, Intelligence
+Department of State
+
+SUBJECT: BATE, Hilda V.
+Resignation from the Foreign Service
+on Completion of Full Tour of Duty
+
+1. Mr. Broe, Attache at the American Embassy, Manila, Republic of the Philippines, will complete his tour of duty in the Foreign Service in April 1953. He has been instructed by this office to advise the post administrative officer of his intention to resign from the Foreign Service at the completion of his tour. Mr. Broe will submit his written resignation to the post administrative officer, and request that the Department issue travel orders to return him, his dependents, and his officers to the United States on or about 10 May 1953. It is requested that your office arrange for the issuance of appropriate orders on receipt of notice from the post administrative officer.
+
+2. It is requested that Mr. Herbert Hopkins who now occupies position 3, Annex 7-10, be transferred to position 1. The vacancy created by Mr. Hopkins' advancement will be filled at a later date.
+
+RE: THE FOREIGN MINISTRY, PHLAS
+
+BY
+
+FZ/FI/PPT/TS;bj 24 April 1953
+
+FI/LCRI/WGKd Kopyod 1 May 1953
+
+Distributions:
+
+Orig & 1 - addresses
+
+1 - C/PI
+
+1 - FB
+
+2 - LCD
+
+SECRET
+SECURITY INFORMATION

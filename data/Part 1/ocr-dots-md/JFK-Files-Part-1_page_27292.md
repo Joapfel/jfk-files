@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_27292.png
+
+Convert to MarkdownSECRET
+
+20 April 1971
+
+MEMORANDUM IN LIEU OF ANNUAL FITNESS REPORT FORM
+
+**Name:** William V. Broe (056735)
+
+**Date of birth:** 24 August 1913
+
+**Sex:** Male
+
+**Grade:** GS-18
+
+**SD:** D
+
+**Official Position Title:** Ops Officer Division Chief
+
+**Current station:** Headquarters
+
+**Type of appointment:** Career
+
+**Type of report:** Annual
+
+**Reporting period:** 1 April 1970 - 31 March 1971
+
+During the reporting period, Mr. Broe has continued to serve as Chief of the WH Division. In this period, he has had to cope with the many crises and confrontations that typify his area, the Allende victory in Chile to successive coups in Bolivia, and growing urban terrorism in many countries. It is difficult to fault his performance in the handling of these complex challenges. He has earned the complete respect of his subordinates and, as an acute and humane judge of character, he knows the strengths and weaknesses of his station chiefs and how to extract the best from them.
+
+Under his leadership, high-level penetrations of Communist parties throughout the hemisphere have been maintained and increased, and he has planned ahead effectively to cope with the increasing Soviet diplomatic presence.

@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_27380.png
+
+Convert to MarkdownCONFIDENTIAL
+
+25 SEP 1958
+
+**MEMORANDUM FOR:** Director of Personnel
+**VIA:** Director of Security
+Attn: Chief, Policy Staff
+**SUBJECT:** Gifts to Agency Personnel
+**REFERENCE:** Field Regulation 20-644
+
+The following Agency personnel received gifts as noted from three Cabinet Research Chamber visitors during their recent visit to Washington:
+
+Approx. value
+
+Satoshi Nagano
+Box of nori $2.00
+Set of chopsticks (laquered) .75
+
+William V. Broe
+1 woodblock print 1.50
+
+Robert P. Wheeler
+Box of nori 2.00
+
+William N. Center
+1 woodblock prints 3.00
+
+Nageob O. Trabulsi
+Woodblock print 1.50
+1 jar Japanese sauce .50
+
+DESHOND FITZGERALD
+Chief, Far East Division
+
+CONFIDENTIAL

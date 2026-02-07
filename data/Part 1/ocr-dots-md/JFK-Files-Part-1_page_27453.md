@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_27453.png
+
+Convert to Markdown# SECTION 12. CHRONOLOGICAL HISTORY OF EMPLOYMENT (CONTINUED FROM PAGE 4)
+
+<table><tbody><tr><td colspan="3">YOUR DUTIES AND SPECIALTY</td><td colspan="2">NAME OF SUPERVISOR</td></tr><tr><td>DATES COVERED</td><td>FROM:</td><td>TO:</td><td>SALARY</td><td>PER</td></tr><tr><td colspan="5">REASONS FOR LEAVING</td></tr><tr><td colspan="5">EMPLOYER</td></tr><tr><td colspan="5">JOB TITLE</td></tr><tr><td>ADDRESS</td><td>STREET AND NUMBER</td><td>CITY</td><td>STATE</td><td>KIND OF BUSINESS</td></tr><tr><td colspan="5">YOUR DUTIES AND SPECIALTY</td></tr><tr><td>DATES COVERED</td><td>FROM:</td><td>TO:</td><td>SALARY</td><td>PER</td></tr><tr><td colspan="5">REASONS FOR LEAVING</td></tr><tr><td colspan="5">EMPLOYER</td></tr><tr><td colspan="5">JOB TITLE</td></tr><tr><td>ADDRESS</td><td>STREET AND NUMBER</td><td>CITY</td><td>STATE</td><td>KIND OF BUSINESS</td></tr><tr><td colspan="5">YOUR DUTIES AND SPECIALITY</td></tr><tr><td>DATES COVERED</td><td>FROM:</td><td>TO:</td><td>SALARY</td><td>PER</td></tr><tr><td colspan="5">REASONS FOR LEAVING</td></tr><tr><td colspan="5">NOTE: IN SPACE BELOW GIVE DETAILS CONCERNING ANY POSITION FROM WHICH YOU MAY HAVE BEEN DISCHARGED OR WHICH YOU MAY HAVE LEFT UNDER CIRCUMSTANCES WHICH WERE NOT ENTIRELY FAVORABLE.</td></tr><tr><td colspan="5">DETAILS:</td></tr><tr><td colspan="5">NONE</td></tr></tbody></table>
+
+# SECTION 13. CHARACTER REFERENCES-FIVE IN THE UNITED STATES (GIVE BUSINESS ADDRESS WHERE POSSIBLE)
+
+<table><thead><tr><th>Name</th><th>Address</th><th>City</th><th>State</th></tr></thead><tbody><tr><td>Garthia D. DeLoach</td><td>2104 Dexter Avenue, Silver Spring, Maryland</td><td></td><td></td></tr><tr><td>Herbert H. Causer</td><td>62 Ralph Talbot Street, No. Weymouth, Mass.</td><td></td><td></td></tr><tr><td>Philip E. Causer</td><td>R&D #1, Harwoll, Mass.</td><td></td><td></td></tr><tr><td>Thomas Calpin</td><td>103 H. Philadelphia, Youngstown, Ohio</td><td></td><td></td></tr><tr><td>Edward L. Timmerman</td><td>FBI, Post Office Building, Youngstown, Ohio</td><td></td><td></td></tr></tbody></table>
+
+# SECTION 14. SOCIAL ACQUAINTENCES-FIVE IN THE UNITED STATES (GIVE BUSINESS ADDRESS WHERE POSSIBLE)
+
+<table><thead><tr><th>Name</th><th>Address</th><th>City</th><th>State</th></tr></thead><tbody><tr><td>Jones Brosnahan</td><td>81Galveston Avenue, Washington, D.C.</td><td></td><td></td></tr><tr><td>Michael Johnson</td><td>Hildarson Avenue, Silver Spring, Maryland</td><td></td><td></td></tr><tr><td>Alfred Eddy</td><td>2104 Dexter Avenue, Silver Spring, Maryland</td><td></td><td></td></tr><tr><td>Edward Pich</td><td>8510 Northampton, Washington, D.C.</td><td></td><td></td></tr><tr><td>Dana-Carson</td><td>3528 Copley Road, Alexandria, Virginia</td><td></td><td></td></tr></tbody></table>
+
+# SECTION 15. RECRUITERS-SEE IN THE UNITED STATES (AT END OF EACH LIST, INDICATE IF, AND IF WHAT DATE, IT

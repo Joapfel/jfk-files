@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_27306.png
+
+Convert to MarkdownSECRET
+
+9 MAY 1964
+
+MEMORANDUM IN LIEU OF FITNESS REPORT
+
+SUBJECT: BROE, William V. (12 February 1963 - 31 March 1964)
+
+1. Mr. Broe's performance as Chief of Station, Tokyo for the period 12 February 1963 to 31 March 1964 can be characterized as strong.
+
+2. Mr. Broe has effectively directed the operations of a station with many targets. He has concentrated the potential represented by the personnel under his authority on the most important targets and firmly discarded marginal activities. In his supervision of the work of the sub-units of his station, such as the China section, Soviet section and Korean section, he has been effective in encouraging them to vigorous activity but has also asserted the necessary control and guidance from his level. Mr. Broe has maintained excellent relationships with other American services and his coordination process is a model. He has at the same time maintained personal contacts with leading Japanese, both official and unofficial, and has used these both for intelligence and for action purposes. He has wisely targeted the covert action potential of the station toward critical targets and deliberately eliminated marginal efforts. Mr. Broe has on his own initiative made certain recommendations for the reduction of the personnel and expenditures of his station to help meet crises in other areas. In all of this activity, Mr. Broe has reaffirmed his qualities of leadership and supervisory capacity and has demonstrated a full consciousness of the importance of cost.
+
+This fitness report will be shown
+to Mr. Broe when he returns to
+Headquarters.
+
+Date
+
+SECRET
+
+13-00000

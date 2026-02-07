@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_27303.png
+
+Convert to MarkdownMEMORANDUM IN LIEU OF FITNESS REPORT
+
+SUBJECT: BROE, William V. (1 April 1964 - 31 March 1965)
+
+1. Mr. Broe's performance as Chief of Station, Tokyo during the reporting period is best described as outstanding.
+
+2. For over two years, Mr. Broe has struggled with the problems in Japan of reducing the size of the Agency's mission and of developing appropriate areas of clandestine concentration. During the past year, he has effectively gotten the whole mechanism to work, with a marked increase in foreign intelligence and an unprecedented emergence of the Station, through contacts he and his associates have developed, as a channel for political action. Through his skillful assistance to and cultivation of the Ambassador, Mr. Broe has placed CIA in a position in Japan where the Station Chief and the Agency are accepted by the top levels of the Japanese Government as a useful channel and as a dependable organization for collaboration. This high level connection is of tremendous value in advancing political intelligence objectives as well as an essential tool for indirect and unofficial manipulation of situations of key interest to both the Japanese and the U.S. governments.
+
+3. In the management of the Station, Mr. Broe continues to be his old effective self. He is able to get a good deal of mileage out of the personnel assigned to him and to increase their effectiveness through his own personal leadership. In all this, he has displayed an excellent sense of cost consciousness in the management of the Station.
+
+4. In sum, Mr. Broe has brought Tokyo Station under his tenure to a new role appropriate to the changing times. CIA along with the U.S. Government is now in a better position to deal with an independent Japan which is now looking at Asia through its own eyes.
+
+Robert J. Myers
+Deputy Chief, Far East Division
+
+This fitness report will be shown to Mr. Broe when he returns to Headquarters.
+
+Date

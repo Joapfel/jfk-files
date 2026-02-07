@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_27708.png
+
+Convert to Markdown8 April 1957
+
+Mr. Thomas John Keenan
+42 East Follatt Street
+Fond du Lac, Wisconsin
+
+Dear Mr. Keenan:
+
+We are pleased to inform you that your application for employment with this Agency has been reviewed with interest by appropriate officials and that actual processing has been initiated for a position at Grade GS-7, salary $4526.00 per annum.
+
+Your final appointment is dependent upon a number of factors including character and reference investigations, and other processing procedures. You may be sure that this processing is being accomplished as rapidly as possible.
+
+Please notify us of any changes in your present status such as change of address, employment, marital status, etc. If it should develop that you cannot accept the position, please let us know immediately. If you have any questions concerning your application, please do not hesitate to get in touch with us. Your future correspondence or inquiries should be directed to the attention of Mrs. Anna L. Phillips.
+
+Members of this Agency are entitled to the regular United States Government leave and retirement benefits. Our salaries conform to the rates prescribed by Congress for United States Government agencies.
+
+Thank you for your cooperation and patience during this waiting period.
+
+OP/CORRES/djs(Philips)

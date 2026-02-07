@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_27920.png
+
+Convert to MarkdownSEC. II. WORK EXPERIENCE (CONT'D)
+
+3. Special Work Experience: Check any of the following organizations by which you may have been employed.
+
+01 U.S. Secret Service
+24 Air Force A-2
+02 Civil Police
+25 Foreign Economic Admin.
+03 Military Police
+26 Counter Intelligence Corps
+04 U.S. Border Patrol
+27 Immigration & Naturalization
+05 U.S. Narcotics Squad
+28 Strategic Services Unit
+06 FBI
+29 Foreign Service, State Dept.
+07 Criminal Investigation Div.
+30 Central Intelligence Group
+21 Office of Naval Intelligence
+31 Armed Forces Security Agency
+22 Office of War Information
+32 Coordinator of Information
+23 Army C-2
+33 Office of Facts & Figures
+20 Office of Strategic Services
+34 Board of Economic Warfare
+35 Federal Communications Comm.
+
+# SEC. III. FOREIGN LANGUAGES
+
+List below the foreign languages in which you have some competence. Be sure to include uncommon modern languages. Check (X) your competence and how acquired.
+
+<table><thead><tr><th rowspan="2">LANGUAGE</th><th colspan="2">COMPETENCE.</th><th colspan="5">HOW ACQUIRED</th></tr><tr><th>Equivalent to<br/>Native Fluency *</th><th>Fluent but obviously<br/>Foreign *</th><th>Adequate for<br/>Research **</th><th>Adequate for<br/>Travel</th><th>Limited</th><th>Knowledge</th><th>Native of<br/>Country</th><th>Prolonged<br/>Residence</th><th>Contact<br/>(Parents, etc.)</th><th>Academic<br/>Study</th></tr></thead><tbody><tr><td>French H</td><td></td><td></td><td></td><td></td><td>✓</td><td></td><td></td><td></td><td></td></tr><tr><td>Spanish</td><td></td><td></td><td></td><td></td><td>✓</td><td></td><td></td><td></td><td></td></tr><tr><td>German</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Italian</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Russian</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Chinese</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+* If you have checked 'Fluent' for a language that has significant difference in spoken and written form (e.g., Arabic), explain your competence herein
+
+**Specialized Language Competence:** Describe ability to do specialized language work involving vocabularies and terminology in the scientific, engineering, telecommunications, and military fields. List the language with the type of speciality.

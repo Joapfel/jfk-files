@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_27503.png
+
+Convert to MarkdownSECRET
+
+1 May 1958
+
+MEMORANDUM FOR: Chief, Records and Services Division
+Office of Personnel
+
+THERUIGI : Personnel Security Division
+Office of Security
+
+SUBJECT : David L. CHRIST
+
+1. Cover arrangements have been completed for the above named subject.
+
+2. Effective immediately, it is requested that your records be properly (7/27/68) (re-opened) to (7/1/68) (acknowledge) subject's current agency employment by an external inquirer.
+
+cc: PSD/OS
+
+THIS MEMO MUST REMAIN ON TOP OF FILE
+
+975

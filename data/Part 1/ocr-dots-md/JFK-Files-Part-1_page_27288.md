@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_27288.png
+
+Convert to Markdown# CENTRAL INTELLIGENCE AGENCY
+
+## NOTIFICATION OF PERSONNEL ACTION (pl) 130
+
+<table><thead><tr><td colspan="2">STANDARD FORM 50 (S PART)<br>UNITED STATES<br>CIVIL SERVICE COMMISSION<br>OCTOBER 1946</td><td colspan="2">FORM APPROVED,<br>BUDGET BUREAU NO 10-ANL</td></tr><tr><th>1 NAME (MR - MRS FIRST - MIDDLE INITIAL LAST)</th><th>2 DATE OF BIRTH</th><th>3 JOURNAL OR ACTION NO</th><th>4 DATE</th></tr></thead><tbody><tr><td>Mr. William V. Broz</td><td>8/24/1913</td><td></td><td>1 April 1949</td></tr><tr><td colspan="4">This is to notify you of the following action affecting your employment:</td></tr><tr><td>5 NATURE OF ACTION (USE STANDARD TERMINOLOGY)</td><td>6 EFFECTIVE DATE</td><td colspan="2">7 CIVIL SERVICE OR OTHER LEGAL AUTHORITY</td></tr><tr><td>Extra-Agency Transfer</td><td>3 April 1949</td><td colspan="2">Schedule A-45</td></tr><tr><td colspan="2">FROM</td><td colspan="2">TO</td></tr><tr><td colspan="2"><table><tr><td>Operations Officer<br>(Intelligence Officer)</td><td>P-5</td></tr><tr><td>P-5 $6474.60 per annum<br>Bu.42799 CEC-1743</td><td></td></tr><tr><td>OBO - CORB<br>FBR<br>Division 1</td><td></td></tr><tr><td>Washington, D.C.</td><td>P-5</td></tr></table></td><td colspan="2"><table><tr><td>Operations Officer<br>(Intelligence Officer)</td><td>P-5</td></tr><tr><td>P-5 $6474.60 per annum</td><td></td></tr><tr><td>OBO - CORB<br>FBR- SIEA<br>Division 4</td><td></td></tr><tr><td>Washington, D.C.</td><td>P-5</td></tr></table></td></tr><tr><td>[ ] FIELD [x] DEPARTMENTAL</td><td>[ ] FIELD OR DEPT'L</td><td>[x] FIELD</td><td>[ ] DEPARTMENTAL</td></tr><tr><td colspan="4">13. REMARKS</td></tr></tbody></table>
+
+<table><caption>15 VETERAN'S PREFERENCE</caption><thead><tr><th rowspan="2">NAME</th><th rowspan="2">SPC.</th><th colspan="3">15 POINT</th><th rowspan="2">WWI</th><th rowspan="2">WWII</th><th rowspan="2">OTHER</th></tr><tr><th>CSAB</th><th>WIFE</th><th>AIDU</th></tr></thead><tbody><tr><td>17 SEY</td><td>18 RACE</td><td colspan="3">19 APPROPRIATION</td><td colspan="2"></td><td></td></tr><tr><td></td><td></td><td colspan="3">FROM TO</td><td colspan="2"></td><td></td></tr><tr><td></td><td></td><td colspan="3"></td><td colspan="2">2193900 959-103</td><td></td></tr></tbody></table><table><caption>IF POSITION CLASSIFICATION ACTION</caption><thead><tr><th>NLW</th><th>VICE</th><th>I A</th><th>REAL</th></tr></thead><tbody><tr><td></td><td></td><td>%</td><td></td></tr><tr><td colspan="4">20 SUBJECT TO C.S. RETIREMENT ACT (YES-NO) Yes</td></tr></tbody></table><table><tbody><tr><td>71 DATE OF OATH (ACCESSIONS ONLY)</td><td>22 LEGAL RESIDENCE Maryland</td></tr></tbody></table>
+
+4. PERSONNEL FOLDER COPY
+
+© U. S. GO

@@ -1,0 +1,57 @@
+# JFK-Files-Part-1_page_27569.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+# FITNESS REPORT
+
+The Fitness Report is an important factor in agency personnel management. It seeks to provide:
+1. The agency selection board with information of value when considering the application of an individual for membership in the career service; and
+2. A periodic record of job performance as an aid to the effective utilization of personnel.
+
+## INSTRUCTIONS
+
+TO THE ADMINISTRATIVE OR PERSONNEL OFFICER: Consult current administrative instructions regarding the initiation and transmittal of this report.
+
+TO THE SUPERVISOR: Read the entire form before attempting to complete any item. As the supervisor who assigns, directs and reviews the work of the individual, you have primary responsibility for his strengths, weaknesses, and on-the-job effectiveness as revealed by his day-to-day activities. If the assigned supervisor has been under your supervision for less than 30 days, you will collaborate with his previous supervisor to assure the report is accurate and complete. Primary responsibility rests with the current supervisor. It is assumed that, throughout the period this individual has been under your supervision, you have discharged your supervisory responsibilities by frequent discussions of his work, so that in a general way he knows where he stands.
+
+CODED
+
+IT IS OPTIONAL WHETHER OR NOT THIS FITNESS REPORT IS SHOWN TO THE PERSON BEING RATED
+
+SECTION I (To be filled in by Administrative Officer) 13 DEC 1975
+
+| | | | |
+| :--- | :--- | :--- | :--- |
+| **1. NAME**<br>(Last) | **(First)**<br>(Middle) | **2. DATE OF BIRTH**<br>20 Jan 1918 | **3. SEX**<br>M | **4. CAREER DESIGNATION**<br>DT |
+| **CHRIST**<br><br>**16 Nov 1950**<br><br>**DEPARTMENTAL FIELD** | **David L.**<br><br>DDP/TSS | **8. OFFICE ASSIGNED TO**<br>APD | **7. DIVISION**<br>| **9. BRANCH**<br>GS-14 |
+| **12. DATE THAT THIS REPORT IS DUE**<br>5 Nov 1955 | | **10. IF FIELD, SPECIFY STATION**<br>**SECTION II (To be filled in by Supervisor)** | **11. GRADE**<br>**READ THE ENTIRE FORM BEFORE ATTEMPTING TO COMPLETE ANY ITEM** | |
+| **3. WHAT SPECIFIC ASSIGNMENTS OR TASKS ARE TYPICAL OF THOSE GIVEN TO HIM DURING THE PAST THREE TO SIX MONTHS (List in order of frequency):** During this period Mr. Christ has continued as Deputy Chief, Applied Physics Division/TSS. This has entailed both administrative and technical duties. As an administrator he has assisted and acted for the Chief, APD/TSS in such matters as; personnel, budget, security, office procedures, contractual arrangements, etc. His technical duties have involved the analysis of technical programs to fulfill operational requirements, supervision of the work and progress of other project engineers, technical liaison with government and commercial R&D activities, preparation of status and progress reports, etc. In the absence of Chief, TSS/APD Mr. Christ has had full responsibility for the functioning of the Division. | | **2. DATE ASSUMED RESPONSIBILITY FOR POSITION**<br>1301.07 | | |
+
+## SECTION III
+
+I certify that, during the latter half of the period covered by this report, I have discussed with the rated individual the manner in which he has performed his job and provided suggestions and criticisms wherever needed. I believe that his understanding of my evaluation of his performance is consistent with my evaluation of him as evidenced by this fitness report, and I have informed him of his strengths, weaknesses, and on-the-job effectiveness. If performance during the report period has been unsatisfactory, there is attached a copy of the memorandum notifying him of unsatisfactory performance.
+
+This report ☑ has ☐ has not been shown to the individual rated.
+
+THIS DATE
+
+Dec 5 1955
+
+NAME AND SIGNATURE OF RATER (Employee's immediate supervisor)
+
+I HAVE REVIEWED THIS REPORT (Comments, if any, are collected by attached memorandum)
+
+THIS DATE
+
+12/6/55
+
+NAME AND SIGNATURE OF REVIEWING OFFICIAL (Official next higher in line of authority)
+
+REPLACES PREVIOUS EDITIONS OF
+THIS FORM WHICH MAY BE USED.
+
+FORM NO. 45 (4)
+JAN 55
+
+SECRET

@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_27760.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+<table><thead><tr><th>19. ACTION CODE</th><th>20. Employee Code</th><th>21. OFFICE CODING<br>Numeric ALPHABETIC</th><th>22. STATION CODE</th><th>23. INTEGEE CODE</th><th>24. Month. Code</th><th colspan="2">25. DATE OF BIRTH<br>NO. DA. YR.</th><th>26. DATE OF GRADE<br>NO. DA. YR.</th><th>27. DATE OF LEI<br>NO. DA. YR.</th></tr></thead><tbody><tr><td>57</td><td>10</td><td>51700 WH</td><td>45075</td><td></td><td>3</td><td colspan="2">06 29 30</td><td></td><td></td></tr><tr><th colspan="4">28. RATE EXPIRES<br>NO. DA. YR</th><th colspan="2">30. SPECIAL REFERENCE<br>CODE</th><th colspan="3">31. SEPARATION DATA CODE<br>TYP. NO. DA. YR.</th><th colspan="2">33. SECURITY REQ. NO.<br>34. SEX</th></tr><tr><td></td><td></td><td></td><td></td><td colspan="2">COC<br>CICA<br>NON</td><td colspan="3">56 10 10 64</td><td>EOD DATA</td><td></td></tr><tr><th colspan="4">35. VET. PREFERENCE<br>CODE</th><th colspan="2">36. SERV. COMP. DATE<br>NO. DA. YR</th><th colspan="2">37. LONG. COMP. DATE<br>NO. DA. YR</th><th colspan="2">38. CAREER CATEGORY<br>CAN SHOW FILE<br>CODE</th><th colspan="2">39. FEGLI / HEALTH INSURANCE<br>CODE<br>D. WAIVER<br>I - YES</th><th colspan="2">40. SOCIAL SECURITY NO.</th></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><th colspan="4">41. PREVIOUS GOVERNMENT SERVICE DATA<br>CODE</th><th colspan="2">42. LEAVE CAT. CODE</th><th colspan="2">43. FEDERAL TAX DATA<br>FOR EXECUTED<br>I - YES<br>B - NO</th><th colspan="2">44. STATE TAX DATA<br>FORM EXECUTED<br>I - YES<br>B - NO</th><th colspan="2">CODE<br>NO TAX<br>CAUSE</th><th colspan="2">STATE CODE</th></tr><tr><td></td><td></td><td></td><td></td><td colspan="2"></td><td colspan="2"></td><td colspan="2"></td><td colspan="2"></td><td colspan="2"></td><td></td></tr></tbody><tfoot><tr><td colspan="16" style="text-align:center; font-weight:bold;">SIGNATURE OF OTHER AUTHENTICATION</td></tr><tr><td colspan="16" style="text-align:right;">JOHN D. CAMP 1/26/42 K</td></tr></tfoot></table>
+
+FORM 11-62 1150 Use Previous Edition
+
+SECRET
+
+<table><tr><td>JDA</td><td>(When Filed In)</td></tr></table>

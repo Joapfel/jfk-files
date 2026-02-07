@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_27408.png
+
+Convert to MarkdownSECRET
+
+(When Filled In)
+
+<table><thead><tr><th colspan="2">REQUEST FOR MEDICAL EVALUATION</th><th>1. DATE OF REQUEST<br/>29 November 1965</th></tr><tr><td>1. NAME (Last, First, Middle)</td><td>3. POSITION TITLE</td><td>4. GRADE</td></tr></thead><tbody><tr><td>DLL, William Y.</td><td>One c.c./m/cutler</td><td>05-38</td></tr><tr><td>3. OFFICE, DIVISION, BRANCH</td><td>4. EMPLOYEE'S EXT.</td><td>5103</td></tr><tr><td>DIP/AR</td><td></td><td></td></tr><tr><td colspan="3">7. PURPOSE OF EVALUATION</td></tr><tr><td><input type="checkbox"/> PRE-EMPLOYMENT</td><td><input type="checkbox" checked disabled/> MOOD/TOW</td><td></td></tr><tr><td><input type="checkbox"/> ENTRANCE ON DUTY</td><td><input type="checkbox" checked disabled/> OVERSEAS ASSIGNMENT</td><td></td></tr><tr><td><input type="checkbox"/> TOY STANDBY</td><td colspan="2"><table><tr><td>ETD</td><td>5.00 - 16 Day</td></tr><tr><td>STATION</td><td>London, England</td></tr><tr><td>TOY OR PCS</td><td></td></tr><tr><td>TDY</td><td></td></tr><tr><td>TYPE OF COVER</td><td>Tourist</td></tr><tr><td>NO. OF DEPENDENTS TO ACCOMPANY</td><td></td></tr><tr><td colspan="2">NO. OF DEPENDENTS' REPORTS OF MEDICAL HISTORY (SF 82) ATTACHED</td></tr></table></td></tr><tr><td><input type="checkbox"/> SPECIAL TRAINING</td><td><input type="checkbox" checked disabled/> RETURN FROM OVERSEAS</td><td></td></tr><tr><td><input type="checkbox"/> ANNUAL</td><td colspan="2"></td></tr><tr><td><input type="checkbox"/> RETURN TO DUTY</td><td colspan="2"></td></tr><tr><td><input type="checkbox"/> FITNESS FOR DUTY</td><td colspan="2"></td></tr><tr><td><input type="checkbox"/> MEDICAL RETIREMENT</td><td colspan="2"></td></tr><tr><td colspan="3">A QUALITY PLAN IS NEEDED. SEE THE BUDGET SECTION.</td></tr><tr><td><input type="checkbox"/> YES</td><td colspan="2">SIGNATURE</td></tr><tr><td><input type="checkbox"/> NO</td><td>Vary C. Vernick</td><td>EXT.</td></tr><tr><td></td><td>ROOM NO., BUILDING</td><td>20307</td></tr><tr><td colspan="3">DATE 11-25-65<br/>-REX HART<br/>QUALITY CHECK FOR CURRENT DUTIES<br/>REX HART<br/>QUALITY CHECK FOR PROPOSED TDY FOR PROPOSED</td></tr><tr><td colspan="2">SIGNATURE FOR CHIEF OF MEDICAL STAFF</td><td></td></tr></tbody></table>
+
+<table><tr><td>10. COMMENTS</td><td>QUALITY CHECK FOR CURRENT DUTIES</td></tr><tr><td>11. REPORT OF EVALUATION</td><td>REX HART<br/>QUALITY CHECK FOR PROPOSED TDY FOR PROPOSED</td></tr><tr><td>DATE 11-25-65</td><td>-REX HART<br/>SIGNATURE FOR CHIEF OF MEDICAL STAFF</td></tr></table>
+
+SECRET
+
+(25)

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_27631.png
+
+Convert to MarkdownSEC. 27. I CERTIFY THAT THE FOREGOING ANSWERS ARE TRUE AND CORRECT TO THE BEST OF MY KNOWLEDGE AND BELIEF, AND I AGREE THAT ANY MISSTATEMENT OR OMISSION AS TO A MATERIAL FACT WILL CONSTITUTE GROUNDS FOR IMPEACHABLE DISMISSAL OR REJECTION OF MY APPLICATION.
+
+BCHED AT Mountain Top, Pa.
+City and State
+Loveret, C., Coopew
+Witmos
+
+DATE July 24, 1950
+Maid of Christ
+Signature of Applicant
+
+USE THE FOLLOWING PAGES FOR EXTRA DETAILS: NUMBER ACCORDING TO THE NUMBER OF THE QUESTION TO WHICH THEY RELATE. SIGN YOUR NAME AT THE END OF THE ADDED MATERIAL. IF ADDITIONAL SPACE IS REQUIRED USE EXTRA PAGES; THE SAME SIZE AS THESE AND SIGN EACH SUCH PAGE.
+
+Sec. 19 (cont'd.)
+1935 to 1937 - During this period of time I was employed by Allison's Esso Service, Tamaglia, Pa., operating a gas station for Mr. William G. Allison. I left this position to obtain better-paying employment with Atlas Powder Company, Tum Reynolds, Pa. I also worked as a Small Machine Molder for Tamaglia Manufacturing Company, Tamaglia, Pa., making and pouring gray cast iron molds. My wages were $3.85 per hour. I left when the company went out of business. I was also employed by the A&P Tea Co., Tamaglia, Pa. for a short period of time. I left this company for better employment with the Tamaglia. My company.

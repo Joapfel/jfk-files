@@ -1,0 +1,178 @@
+# JFK-Files-Part-1_page_28096.png
+
+Convert to MarkdownCONFIDENTIAL
+
+12/
+
+(Memorandum in Lieu of Fitness Report - Frederick C. Randall)
+
+during the rating period. Whereas I had indicated in his last fitness report a need for him to be more demanding in challenging faulty proposals or resolving problems which come to him at his Branch Chief level, he now exerts a good degree of initiative in independent action and offers good completed staff work to the Division Chief level for scrutiny. Mr. Randall's branch encompasses four (4) busy Bases (Atlanta, Boston, Los Angeles and San Francisco). He keeps effectively abreast of the operational developments coming out of each Base and represents this Division very persuasively in obtaining good guidance messages going back out to the Bases. He has also kept himself well informed on the Management by Objectives targets assigned to each of his Bases where a total of about forty (40) personnel are assigned, and has been strong in supporting his Bases' efforts to achieve these objectives.
+
+Mr. Randall has matured nicely as a manager these past months and is on top of the many administrative, personnel and operational support problems which are of a frequently recurring nature in our type operational activity. He is also a good team player, has the best interests of this Division at heart, and gives thoroughly of himself in his job. He has worked hard in bringing himself up to his present level of performance which I appraise as an unqualified "Strong".
+
+CERTIFICATION AND COMMENTS
+
+1. By Employee: I certify that I have seen this report.
+   Frederick C. Randall
+   Nov 20, 1974
+   Date
+
+   Frederick C. Randall
+
+2. By Supervisor: Employee has been under my supervision 16 months
+   Russell F. Miller DC/FR
+   20 Nov 74
+   Date
+
+   Russell F. Miller
+   DC/FR
+
+   20 Nov 74
+   Date
+
+   Date
+
+   DC/FR
+
+   74-Nov-73
+
+   Nov 20, 1974
+   Date
+
+   Nov 20, 1974
+   Date
+
+   20 Nov 74
+   Date
+
+   74-Nov-73
+
+   Nov 20, 1974
+   Date
+
+   20 Nov 74
+   Date
+
+   DC/FR
+
+   74-Nov-73
+
+   Nov 20, 1974
+   Date
+
+   Nov 20, 1974
+   Date
+
+   DC/FR
+
+   20 Nov 74
+   Date
+
+   74-Nov-73
+
+   Nov 20, 1974
+   Date
+
+   Nov 20, 1974
+   Date
+
+   DC/FR
+
+   20 Nov 74
+   Date
+
+   74-Nov-73
+
+   Nov 20, 1974
+   Date
+
+   Nov 20, 1974
+   Date
+
+   DC/FR
+
+   20 Nov 74
+   Date
+
+   74-Nov-73
+
+   Nov 20, 1974
+   Date
+
+   Nov 20, 1974
+   Date
+
+   DC/FR
+
+   20 Nov 74
+   Date
+
+   74-Nov-73
+
+   Nov 20, 1974
+   Date
+
+   Nov 20, 1974
+   Date
+
+   DC/FR
+
+   20 Nov 74
+   Date
+
+   74-Nov-73
+
+   Nov 20, 1974
+   Date
+
+   Nov 20, 1974
+   Date
+
+   DC/FR
+
+   20 Nov 74
+   Date
+
+   74-Nov-73
+
+   Nov 20, 1974
+   Date
+
+   Nov 20, 1974
+   Date
+
+   DC/FR
+
+   20 Nov 74
+   Date
+
+   74-Nov-73
+
+   Nov 20, 1974
+   Date
+
+   Nov 20, 1974
+   Date
+
+   DC/FR
+
+   20 Nov 74
+   Date
+
+   74-Nov-73
+
+   Nov 20, 1974
+   Date
+
+   Nov 20, 1974
+   Date
+
+   DC/FR
+
+   20 Nov 74
+   Date
+
+   74-Nov-73
+
+   Nov 20, 1974
+   Date

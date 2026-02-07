@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_27413.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+<table><tr><td rowspan="2"><table><tr><td>REQUEST FOR MEDICAL EVALUATION</td></tr><tr><td colspan="2">I. DATE OF REQUEST<br/>7 October 1965</td></tr></table></td></tr><tr><td rowspan="4"><table><tr><td>1. NAME (Last, First, Middle)<br/>BRO, William V.</td><td>3. POSITION TITLE<br/>Operations Officer</td><td>4. GRADE<br/>GS-18</td></tr><tr><td colspan="2">S. OFFICE, DIVISION, BRANCH<br/>DDP/M/Chief of Division</td><td>S. EMPLOYEE'S EXT.<br/>5103</td></tr></table></td></tr><tr><td colspan="2">7. PURPOSE OF EVALUATION<br/><table><tr><td>☐ PRE-EMPLOYMENT</td><td>MDQS/TDY</td></tr><tr><td>☐ ENTRANCE ON DUTY</td><td>OVERSEAS ASSIGNMENT</td></tr><tr><td>☑ TOY STANDBY</td><td>ETO<br/>23 - 26 October 65<br/>STATION<br/>Panama City, Panama<br/>TOY OR PCS<br/>TOY<br/>TYPE OF COVER<br/>State<br/>NO. OF DEPENDENTS TO ACCOMPANY<br/>NO. OF DEPENDENTS' REPORTS OF MEDICAL HISTORY (SF 89) ATTACHED</td></tr></table></td></tr><tr><td>☐ SPECIAL TRAINING</td><td>RETURN FROM OVERSEAS</td></tr><tr><td>☐ ANNUAL</td><td>ETA<br/><table><tr><td>STATION</td></tr><tr><td>NO. OF DEP.'S</td></tr></table></td></tr><tr><td>☐ RETURN TO DUTY</td><td></td></tr><tr><td>☐ FITNESS FOR DUTY</td><td></td></tr><tr><td>☐ MEDICAL RETIREMENT</td><td></td></tr></table></td></tr><tr><td colspan="2"><table><tr><td>8. OVERSEAS PLANNING EVALUATION (One block must be checked)<br/><table><tr><td>☒ YES</td><td>Mary C. Harris</td></tr><tr><td>☐ NO</td><td>ROOM NO. & BUILDING<br/>GJ-56</td></tr></table></td><td>9. REQUESTING OFFICER<br/><table><tr><td>EXT.</td></tr></table></td></tr></table></td></tr><tr><td colspan="2"><table><tr><td colspan="2">10. COMMENTS<br/>[Signature] [Signature]<br/>QUALIFIED FOR TOY STARS BY<br/>UNTIL: Sef 67<br/>REX HART</td></tr><tr><td>11. REPORT OF EVALUATION</td><td>[Signature]</td></tr><tr><td>DATE<br/>10-12-65</td><td>SIGNATURE FOR CHIEF OF MEDICAL STAFF</td></tr></table></td></tr></table>
+
+SECRET
+
+(28) FORM 10-59 259 USE PREVIOUS EDITIONS.

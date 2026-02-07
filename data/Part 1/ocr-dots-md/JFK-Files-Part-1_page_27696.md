@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_27696.png
+
+Convert to Markdown# Report to SUPERINTENDENT of Public Schools - Date: 5/58
+
+Department Reporting: WH/EXICO
+
+JOT's Specific Duties Now: Presently in training
+
+GS Level of the work to which he is assigned: Prior to present training assignment his work assignments on the Mexican desk varied from a GS-3 to a GS-7 level
+GS Level of His Performance: GS-7 For How Long: Approximately two months
+
+The Quality of the Work He Performs. During his short period on the Mexican desk Mr. Keenan's performance was excellent.
+
+## Attitudes:
+
+(a) Toward His Work: Excellent
+
+(b) Toward his Associates (Does He Get Along Well with People?) : Excellent, he gets along extremely well with his associates.
+
+(c) Toward the Agency (Career): Excellent
+
+Supervisory Ability (if demonstrated): NA
+
+What do You estimate his Growth Potential To Be? On what he demonstrated in a short period of time Mr Keenan should rapidly develop into a valuable employee with a high potential.
+Plans for him: Upon completion of his present training he will be reassigned to WH/Mexico for approximately one year of desk training.
+
+Should You Concur in a Recommendation That He Be Promoted? Yes
+
+JOT Keenan Thomas
+
+Supervisor John F. Brady, WH/Mexic
+Concur...

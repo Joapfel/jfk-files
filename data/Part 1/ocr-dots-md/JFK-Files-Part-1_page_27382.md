@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_27382.png
+
+Convert to MarkdownMay 7, 1953
+
+Mr. William H. Dulles
+Director, Central Intelligence Agency, Washington D. C.
+
+Sirs
+
+I have the honor to transmit herewith a letter of his excellency, Eladio Quirino, President of the republic of the Philippines in appreciation of the services of Mr. William Vincent Broo, who has been working with the National Intelligence Coordinating Agency, in an advisory capacity since April 1, 1952 and whose tour of duty is ending very shortly.

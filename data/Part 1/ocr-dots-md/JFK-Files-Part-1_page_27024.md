@@ -1,0 +1,6 @@
+# JFK-Files-Part-1_page_27024.png
+
+Convert to MarkdownAPPROVED FOR RELEASE 1994
+CIA HISTORICAL REVIEW PROGRAM
+
+3 (20-41)"}]

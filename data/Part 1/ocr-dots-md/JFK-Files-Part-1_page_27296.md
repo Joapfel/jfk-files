@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_27296.png
+
+Convert to MarkdownSECRET
+
+new and well placed agent assets. He has supervised effectively Divisional planning designed to exploit to the maximum the opportunities presented by the increasing Soviet diplomatic presence in the area.
+
+During the year, political shifts in Peru and Bolivia have served to dramatize the danger of too extensive a reliance on liaison and Mr. Broe has moved to reduce the profile of our declared presence.
+
+The high morale in his Division comes from the widespread knowledge that good performance is recognized and that career advance-ment is based on ability rather than any form of favoritism.
+
+On policy matters, his judgment and advice is sought and relied upon at the Assistant Secretary level in the Department of State and the White House. He is a careful and frugal manager in the allocation of increasingly scarce resources and on the whole his performance has been "Outstanding."
+
+Cord Meyer, Jr.
+Assistant Deputy Director for Plans
+
+I have noted this report.
+
+William V. Broe
+
+Comments of reviewing official:
+
+Thomas H. Karamessines
+Deputy Director for Plans
+
+16 MAY 1970
+
+SECRET
