@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_28502.png
+
+Convert to Markdown6 November 1950
+
+TO: SSD
+FROM: FDM
+SUBJECT: Transfer of Mr. Tennent H. Bagley
+
+As indicated in the attached memorandum from Mr. Horace S. Craig, Jr., Chief, Advisory Council, Mr. Bagley is released for transfer to this Division. At the present time, Mr. Bagley is a student in the Advanced Operations Course. It is planned to have him report to FDM upon completion of the above-mentioned Course which will be 1 December 1950.
+
+It is requested that action be initiated to have him transferred to FDM as soon as possible: Intelligence Officer, GS-9, FOS/DAD Slot No. 53.
+
+For: Chief, FDM
+
+Attachment
+
+14-00000

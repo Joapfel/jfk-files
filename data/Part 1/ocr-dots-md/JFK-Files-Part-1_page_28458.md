@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_28458.png
+
+Convert to MarkdownSECRET
+
+28 FEB 1961
+
+MEMORANDUM FOR: Director of Personnel
+
+SUBJECT : BAGLEY, Tennent H. Foreign Service Cover Promotion
+
+According to information received from the Department of State, Subject has been promoted from FSR-6, $8,655, to FSR-5, $8,755, effective 5 February 1961.
+
+JOSEPH M. ADAMS
+Chief,
+Official Cover & Liability CCG
+Official Cover Branch, CCG
+
+cc: Compensation & Tax Accounts Branch
+RED FILERS' CURRICULUM
+
+SECRET

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_28434.png
+
+Convert to Markdown# ADMINISTRATIVE - INTERNAL USE ONLY
+
+30 June 1972
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT : Retirement - Tennent H. Bagley
+
+1. The retirement of Subject, effected as a result of a memorandum from the Head of his Career Service stating that he is surplus to the needs of the Service and that his retirement will be recommended to the Director under the provisions of the CIA Retirement and Disability System pertaining to involuntary retirement, in no way implies an adverse action. Subject signed an application for retirement of his own volition in order to qualify for an immediate retirement annuity. The liberalized criteria for such separations was established by the Agency to parallel similar actions under the Civil Service Retirement System in accordance with FPM Letter No. 831-23, dated 10 December 1969.
+
+2. Any inquiry received concerning the nature of the separation of Subject from the Agency should be confirmed simply as a *retirement*.
+
+Ronald Gage
+Chief
+Retirement Affairs Division
+
+ADMINISTRATIVE - INTERNAL USE ONLY

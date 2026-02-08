@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_29039.png
+
+Convert to MarkdownSECRET
+
+16 July 1959
+
+MEMORANDUM FOR: Secretary, CS/CS Panel (Section B)
+
+SUBJECT: Recommendation for Promotion -
+Miss Charlotte L. Zehrung
+
+1. Miss Charlotte L. Zehrung entered on duty with CIA on 27 August 1951. She was assigned to the Mexican Section of WH Division, Branch III, in June 1957. During the past two years she has been the responsible Case Officer for several FI and CE Projects.
+
+2. Miss Zehrung is a loyal and dedicated employee. She has displayed considerable initiative and has been able to carry out her duties with a minimum amount of support. She readily accepts responsibility and is a highly efficient worker who thinks clearly and logically. Her knowledge of Headquarters and Field procedures in addition to her ability to organize her work greatly facilitates the smooth functioning of the Mexican Desk. She has demonstrated a superior comprehension of the numerous and varied projects of the Mexico City Station which has contributed to the overall Headquarter support of the stations performance. Because of her sound understanding of operations and her outstanding capacity for work, Miss Zehrung has an excellent potential for assuming greater responsibilities.
+
+3. In recognition of her outstanding performance it is recommended that Miss Zehrung be promoted to grade GS-12.
+
+J.C. KING
+Chief
+Western Hemisphere Division

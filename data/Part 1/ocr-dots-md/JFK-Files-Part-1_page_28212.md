@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_28212.png
+
+Convert to MarkdownCONFIDENTIAL
+
+16 JUN 1965
+
+MEMORANDUM FOR: Deputy Director for Plans
+
+ATTENTION: DDP/OP
+
+SUBJECT: Request for Quality Step Increase - Frederick C. Randall
+
+1. On the basis of the information presented below, it is recommended that a quality step increase be approved for Frederick C. Randall.
+
+2. Mr. Randall has been affiliated with this Agency since September 1951, and has been assigned to the Operational Support Staff at Tokyo since 1961. Mr. Randall's duties are: liaison with the military clandestine intelligence community; commanding officer of a principal Agency military cover unit; supervisor of the Central Registry; supervisor of the local TSD establishment; and Agency participation in a multi-agency CI Repository and an Agency-run multi-agency Central Carding facility. Mr. Randall's primary duty at the Tokyo Station is Station PBRAMPART responsibilities. These responsibilities are broad and highly important to all RAMPART relations throughout the Far East. Through Mr. Randall's intensive effort to strengthen and increase the Agency's role in the coordination of clandestine-collection activities, he has been able to set a positive pattern of effective procedures for coordination of the military services' clandestine collection operations. These procedures are now being emulated wherever possible throughout the Far East. Mr. Randall's tenacity and patience, based on solid operational field and Headquarters experience, have worked to a distinct advantage for the Agency in the RAMPART field. The Chief of Station, Tokyo has stated that the vast improvement in the local coordination business has been in large part due to Mr. Randall's exceptional ability to do a good job. Further, as a supervisor and a manager, he has quite successfully handled from 10 to 15 subordinates in the diversified functions listed above.
+
+3. During Mr. Randall's total service at the Tokyo Station, he has demonstrated his ability and capability to carry out a variety of tasks in an exemplary manner. Mr. Randall has been in grade as a GS-13 since September 1958. He has been recommended three times for promotion to GS-14 since 1963. Due to the limited number of promotions made in this grade category, he was not selected. The Chief of Station and Chief, Far East Division request that Mr. Randall be granted a quality step increase for a long tenure of strong performance and as recognition of an outstanding job well done in his present assignment.
+
+CONFIDENTIAL
+
+14-00000

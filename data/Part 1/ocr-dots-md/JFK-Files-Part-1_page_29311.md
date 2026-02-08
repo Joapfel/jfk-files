@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_29311.png
+
+Convert to Markdown12 August 1971
+
+Sir:
+
+This is to advise you that I will be retiring from the U.S. Civil Service on 10 September 1971 and am combining my military service with Civil Service for a higher retirement.
+
+Therefore, I waive my entire Army retirement pay effective 10 September 1971.
+
+Grayston L. Lynch
+Capt - USAR Ret.
+0966311 - 451-18-7989

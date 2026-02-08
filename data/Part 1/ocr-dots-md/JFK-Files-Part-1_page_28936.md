@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_28936.png
+
+Convert to Markdown<table><tr><td>SECRET</td></tr><tr><td>FIELD REASSIGNMENT QUESTIONNAIRE TRANSMITTAL</td></tr></table>
+
+<table><tr><td colspan="2">INSTRUCTIONS</td></tr><tr><td colspan="2">1. This questionnaire is designed to permit information for consideration by headquarters in planning your next assignment.</td></tr><tr><td colspan="2">2. Each question in the list will ensure that this questionnaire is completed for each employee under his immediate supervision and forwarded to headquarters eight (8) months prior to the individual's planned date of departure from the station.</td></tr><tr><td colspan="2">3. The questionnaire will be completed and forwarded through normal channels to headquarters in triplicate.</td></tr><tr><td colspan="2">4. The questionnaire of Staff Agents should include career, duty, and discussion of major factors where appropriate.</td></tr><tr><td colspan="2">SPECIAL NOTE</td></tr><tr><td colspan="2">This item must be prepared with due regard for security considerations. For example, in the case of administrative and support personnel and others whose duties do not in themselves reveal sources of information or methods of operation, it is normally expected that a complete and realistic statement of major duties will be included in Item No. 8. However, the nature, purpose or disposition of information on operations will not be included On the other hand, the description of the major duties of certain other employees may jeopardize security and should not be fully repeated on this form. In these cases a general statement of duties will be indicated in Item No. 9 on so to show the level of responsibility involved and enable reference at headquarters to underpin the nature of your position. No names, operational techniques, objectives or purposes of the operation should be included.</td></tr></table>
+
+<table><tbody><tr><td rowspan="3">SAL MOY OF OFFICER IN PRESENCE OF, IF ANY</td><td>DATE: 1-22-67</td></tr><tr><td>NAME: JEREMY B. HATLEGAN</td></tr><tr><td>AGE: 21 JANUARY 1967</td></tr></tbody><tfoot><tr><td colspan="2">SIGNATURE OF EMPLOYEE (in preposition, if any)</td></tr><tr><td colspan="2">RECEIVED DELEGATE'S SIGNATURE</td></tr><tr><td colspan="2">OFFICER OF SUPERVISOR (in preposition, if any)</td></tr><tr><td colspan="2">JOE CUMM B. Hatlett</td></tr></tfoot></table>
+
+SECRET
+
+P 100
+
+202 3/22 1967

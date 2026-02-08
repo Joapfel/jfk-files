@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_28909.png
+
+Convert to MarkdownSECRET
+
+Mr. Arthur R. Schwickrath
+
+Dear Mr. Schwickrath :
+
+Reference is made to your current contract with the United
+States Government, as represented by the Contracting Officer.
+
+Effective 1 August 1965 , said contract is
+amended by adding the following paragraph thereto:
+
+"Your eligibility and participation in this organi-
+zation's Rest and Recuperation Program is herein
+authorized in accordance with rules and regulations
+Applicable to Government appointed employees."
+
+All other terms and conditions of said contract remain in
+full force and effect.
+
+UNITED STATES GOVERNMENT
+
+BY
+J. H. Smith, Jr., C.O.S.
+
+SECUTT
+
+Group . - Extended from automatic de-logging, etc. request

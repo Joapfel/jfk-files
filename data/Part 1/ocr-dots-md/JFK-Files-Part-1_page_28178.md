@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_28178.png
+
+Convert to Markdown16 APR 1979
+
+Dear Frederick,
+
+Please accept my appreciation for an assignment
+well done as a member of the FY 1979 GS-13 Personnel
+Evaluation Board.
+
+Your full-time service with the Board represents
+a major contribution to the Directorate's program of
+personnel assessment and management. Your recommendations
+for promotion, career development, and other matters have
+been very helpful.
+
+I believe you will find on return to your regular
+duties that this time spent with the Board has broadened
+and sharpened your own focus on the personnel aspects of
+Agency management. I think it will make you appreciate
+more than ever our needs for carefully and candidly
+written appraisals of employees.
+
+Sincerely,
+
+John N. McMahon
+Deputy Director for Operations

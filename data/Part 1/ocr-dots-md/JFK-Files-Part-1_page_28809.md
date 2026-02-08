@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_28809.png
+
+Convert to MarkdownWashington, D.C.
+
+April 20, 1961
+
+The Honorable
+The Secretary of State
+Washington, D.C.
+
+Dear Mr. Secretary:
+
+It is with great regret that I submit my resignation from The Foreign Service to accept other employment.
+
+I have enjoyed my years with the Service and the fine people comprising it and hope that at some future time I may be able to return to the Service.

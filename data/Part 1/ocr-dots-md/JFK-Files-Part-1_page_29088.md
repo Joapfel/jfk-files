@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_29088.png
+
+Convert to MarkdownSECRET/RDCAT
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Overall Outstanding Rating on Method of Recognition
+
+1. This memo is being written in accordance with paragraph three of Book Dispatch 5273 of 12 April 1966.
+
+2. [ ] was last granted a Quality-Step Increase about a year ago in recognition of her very fine performance. It is a little early to repeat that kind of recognition even though it is a most logical and meaningful means to show recognition of her outstanding work.
+
+3. Consideration should be given to an appropriate occasion in the fairly near future to grant another QSI to [ ].
+
+SECRET/RDCAT
+
+Reviewed by OJLSPD/PPB

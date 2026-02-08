@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_28949.png
+
+Convert to Markdown18 March 1963
+
+1. FE/Pers will not honor promotion recommendation to GS-11. equiv. until field sends in a specific recommendation. This is the way FE Operates. FE Division feels they is their employee until his tour in Saigon is completed. If SOD wants to take action re the fitness report recommendation, Mr. Jorgenson should discuss this with Paul Breitwiser.
+
+2. FE/Per advised the field by <u>**Personal note**</u> from Mary Boulger that promotion be from Lt. Col. to Col. is not possible. SOD/Per advised by FE/Per that Department of Defense turned down active duty status for cover purposes because in addition to being a retired reserve, <u>**he departed for the field under Department of Army Civilian cover and was assigned to Saigon in that capacity. After his arrival it was determined he did not meet the criteria in the field that he would represent himself as military. This was never sanctioned by headquarters.</u>
+
+<u>**Handwritten note below: Schwickart**</u>

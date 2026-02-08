@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_28891.png
+
+Convert to MarkdownLUCIYN E. CONEIN
+
+## 2. U. S. Army
+
+### September 1941 - September 1961
+
+Starting as a recruit in September of 1941 was advanced to Non-Commissioned Officer in 1942 and later chosen for Officers Candidate School, Ft. Benning, Georgia, February 1943. Graduated and commissioned 2nd Lieutenant (O.S.S.), 26 July 1943. Served European Theatre of Operations October 1943 to December 1944. Parachuted behind enemy lines in civilian clothes, France, August 1944. Transferred China/Burma/India Theatre, February 1945. Parachuted into French-Indo-China, June 1945. Assigned German occupation February 1947 to August 1953, as an intelligence officer. 1953 - 1956 served as U. S. Military advisory group, Vietnam as intelligence and operations officer. 1957 - 1959 assigned as battalion commander U. S. Special Forces. Commanded an airborne battalion, Ft. Bragg, North Carolina. August 1959 - September 1961 Chief Foreign Intelligence, Assistant Chief of Staff for Intelligence, Department of Army Mission in Teheran, Iran.
+
+## EDUCATION:
+
+University of Maryland, 77 credit hours on Bachelor of Military Science Degree
+
+## SPECIALIZED TRAINING:
+
+U. S. Army Infantry School, Ft. Benning, Georgia, 1943
+
+British Special Intelligence School - 1943-44
+
+U. S. Psychological Warfare Training, 1959.
+
+## FOREIGN LANGUAGE:
+
+* French - fluent
+* Spanish - Trained but have never used.
+
+## HONORS (CITATIONS):
+
+* Silver Star
+
+* Bronze Star
+
+* European Theatre (3 Bronze Stars)
+
+* Pacific Theatre (2 Bronze Stars)

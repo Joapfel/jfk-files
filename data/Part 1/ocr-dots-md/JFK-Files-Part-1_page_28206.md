@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_28206.png
+
+Convert to MarkdownI hereby acknowledge that I have read and understand the contents of Handbook 20-4, Employee Conduct, dated 7 October 1963, and the information brochure for PCS returnees, dated May 1964.
+
+Signature
+
+FRED JCK C. RANDALL
+
+CONFIDENTIAL
+(When Filled In)
+
+SECRET
+
+Ltr, 6499th Support Group (CR), 11 June 1965, Letter of Commendation
+
+2d Ind (AFNIN)
+
+Headquarters USAF, Washington, D. C. 20330
+
+TO: Central Intelligence Agency
+Headquarters Building
+2430 E Street
+Washington, D. C.
+
+13 JUL 1965
+
+1. The attached correspondence regarding Mr. Frederick Randall is noted and forwarded with great pleasure.
+2. The exemplary cooperation and professional support provided by Mr. Randall have contributed to the overall success of the 6499th Support Group and the national collection program.
+
+3. This indorsement is UNCLASSIFIED when standing alone.
+
+Jack E Thomas
+Major General, USAF
+Assistant Chief of Staff, Intelligence
+
+1st Ind.
+
+TO: Chief, FE Division
+
+The Director has noted these letters of commendation and has asked that his own appreciation for a fine performance be expressed to Mr. Randall.
+
+L. K. White
+Executive Director - Comptroller
+
+SECRET
+
+SECRE

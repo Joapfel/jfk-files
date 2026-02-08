@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_28579.png
+
+Convert to MarkdownBAOLEY, Tenment H.
+
+SECTION C (Continued)
+
+This substantive background lends a quality of toughness and realism to his work as a planner and supervisor which is matched by very few others in the Clandestine Services.
+
+As a supervisor, Mr. Bagley distinguishes himself by the ability he has to be immensely interested in the details of his subordinates' operations while at the same time leaving to them sufficient freedom of decision and action to carry out their programs without undue interference. He retains control over a large element (there are four branches and 53 employees in the group) and several first class senior subordinates by virtue of their respect for his competence and substance. More important, he infuses them with the same sense of dedication and deep enthusiasm for his work he himself possesses.
+
+In his position Mr. Bagley also handles certain sensitive operations directly. All of the qualities of imagination, penetrating insight, energy and professional knowledge which can be seen in his work as a supervisor are present in his case work. He has also demonstrated that he is a superb agent handler with a fresh, common sense approach to tradecraft problems. I have also seen him display a constant readiness to sacrifice his own comfort, leisure and private affairs to the demands of the operational situation. He is not long discouraged in the most difficult circumstances and his natural optimism, alert mind and special kind of clan work constantly to discover new avenues of approach to whatever operational problems he faces.
+
+I would describe his cost consciousness by noting that it is simply foreign to his nature in both a personal and professional sense to use funds thoughtlessly. He has demonstrated that he considers the expenditure of operational funds must be related to a commensurate gain in terms of our operational objectives.

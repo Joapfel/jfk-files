@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_28501.png
+
+Convert to Markdown14-0000
+
+13 November 1950
+
+TO: Employee Division
+
+VIA:
+
+FROM:
+
+SUBJECT: Tentative H. Bagley.
+
+Mr. Bagley has been recalled to active duty as a First Lieutenant in the Marine Corps with effective date 11 December 1950. The order is by letter MC-1243761 of Headquarters U. S. Marine Corps, Washington, D. C., dated 3 November 1950 and addressed to his home in La Jolla, California (copy attached). Since Mr. Bagley is on duty in Washington, he did not receive the order until 13 November 1950.
+
+Mr. Bagley was employed by this Agency on 24 July 1950 as a Research analyst assigned to the Advisory Council. Since reporting for duty, he has been in the Training Courses and will complete the Advanced Operations Course on 1 December 1950. During this period, however, it has been agreed that his qualifications could be utilized as an Intelligence Officer in Germany, and the papers are now in requesting his transfer to FMI for that purpose.
+
+Request that Mr. Bagley's deferment from recall to active duty with the Marine Corps be arranged on the grounds that his work in the Training Courses has shown him to be unusually well qualified for intelligence work in Germany and that men of his caliber and background are still badly needed by the German Station. If this deferment can be arranged, he will be sent to Germany as a OS-9 Intelligence Officer at the earliest opportunity.
+
+Richard Halme
+Chief, FMI
+
+Attachment
+
+APPROVED
+
+EXJ

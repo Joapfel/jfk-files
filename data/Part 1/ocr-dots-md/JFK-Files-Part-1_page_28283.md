@@ -1,0 +1,81 @@
+# JFK-Files-Part-1_page_28283.png
+
+Convert to MarkdownSEC. 18. GIVE FIVE CHARACTER REFERENCES—IN THE U. S.—WHO KNOW YOU INTI- MATELY—(Give residence and business addresses where possible.)
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 1. Mr. William J. Enzlebee | BUS. ADD. Dept. of Interior, Washington, D. C. | | |
+| 2. Mr. James H. Rose, Sr. | RES. ADD. 5014 Albermarle, Washington, D. C. | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 3. Mr. James H. Rose, Sr. | BUS. ADD. Unk. | | |
+| 4. Mr. Frank J. Sabatka | RES. ADD. 5013 Western Ave., Omaha, Neb. | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 5. Mr. Frank J. Sabatka | BUS. ADD. Unk. | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 6. Mr. Edward Sabatka | BUS. ADD. Unk. | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 7. Mr. Douglas Arner | BUS. ADD. University of Mich., Ann Arbor, Mich. | | |
+| 8. Mr. Oscar Ellison | RES. ADD. 204 N. Ingalls, Ann Arbor, Michigan | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 9. Mr. James H. Roas, Jr. | BUS. ADD. Iowa State College, Anaba, Iowa | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 10. Mr. Edward Sabatka | BUS. ADD. Unk. | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 11. Mr. and Mrs. J. F. Stark | BUS. ADD. Unk. | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 12. Mr. and Mrs. J. A. MacLaren | BUS. ADD. 4277 Wirt St., Omaha, Nebraska | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 13. Mr. and Mrs. D. A. Baxter | BUS. ADD. 4282 Wirt St., Omaha, Nebraska | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 14. Mr. and Mrs. D. A. Baxter | BUS. ADD. 4283 Wirt St., Omaha, Nebraska | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 15. Mr. and Mrs. E. V. Beles | BUS. ADD. Unk. | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 16. Mr. Douglas Arner | RES. ADD. 5025 Bedford Ave., Omaha, Neb. | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 17. Mr. Douglas Arner | BUS. ADD. University of Mich., Ann Arbor, Mich. | | |
+| 18. Mr. Oscar Ellison | RES. ADD. 204 N. Ingalls, Ann Arbor, Michigan | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 19. Mr. Joseph Nelson | BUS. ADD. Iowa State College, Anaba, Iowa | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 20. Mr. Edward Sabatka | BUS. ADD. 2929 Lincoln Way, Anaba, Iowa | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 21. Mr. and Mrs. R. W. Stock | BUS. ADD. Unk. | | |
+
+| | Street and Number | City | State |
+|---|---|---|---|
+| 22. Mr. and Mrs. J. L. MacLaren | BUS. ADD. 4277 Wirt St., Omaha, Nebraska | | |
+
+| |

@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_29273.png
+
+Convert to Markdown24 JUN 1978
+
+MEMORANDUM FOR: Director of Personnel
+
+SUBJECT : Recommendation for Approval of Mr. Grayston L. Lynch as a Participant in the CIA Retirement and Disability System
+
+REFERENCE : HR 20-50
+
+1. It is strongly recommended that Mr. Grayston L. Lynch be approved as a participant in the CIA Retirement and Disability System.
+
+2. It is the opinion of the Special Operations Division that the duties performed by Mr. Lynch from the time he entered on duty in February 1961 until early 1968 meet the spirit and intent of the criteria for "qualifying service" as defined in HR 20-50b. The lone exception to these criteria is that Mr. Lynch was not "abroad" during the time involved except on a sporadic basis. This exception, however, was due completely to the geographical location of the area of operations. This location made it uniquely propitious to have Mr. Lynch assigned to and work out of a domestic base. There is no question, however, that Mr. Lynch's service was in the conduct and support of covert operations which required continuing practice of security and tradecraft procedures and which included, from time to time, hazards to his life and health. It is also believed that Mr. Lynch would be at a disadvantage in obtaining other employment because of the sensitivity of his past service as well as the dearth of requirements for his peculiar background, skills and knowledge.
+
+3. On the basis of the above and Mr. Lynch's unique personal record, it is believed that his service during the described period is certainly equivalent to if not in excess of the requirements for "creditable service abroad" and that if it had not been for a geographical accident, this service would have been performed as
+
+<table><tr><td>GROUP I<br/>Endorsed for selection.<br/>4592-202-218<br/>GENDER: M</td></tr></table>
+
+SECRET
+
+SEFTON 11-6-78
+
+9-7011-5109-229 9-7011-5109-230 9-7011-5109-231 9-7011-5109-232 9-7011-5109-233 9-7011-5109-234 9-7011-5109-235 9-7011-5109-236 9-7011-5109-237 9-7011-5109-238 9-7011-5109-239 9-7011-5109-240 9-7011-5109-241 9-7011-5109-242 9-7011-5109-243 9-7011-5109-244 9-7011-5109-245 9-7011-5109-246 9-7011-5109-247 9-7011-5109-248 9-7011-5109-249 9-7011-5109-250 9-7011-5109-251 9-7011-5109-252 9-7011-5109-253 9-7011-5109-254 9-7011-5109-255 9-7011-5109-256 9-7011-5109-257 9-7011-5109-258 9-7011-5109-259 9-7011-5109-260 9-7011-5109-261 9-7011-5109-262 9-7011-5109-263 9-7011-5109-264 9-7011-5109-265 9-7

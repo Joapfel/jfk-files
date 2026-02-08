@@ -1,0 +1,253 @@
+# JFK-Files-Part-1_page_28978.png
+
+Convert to Markdown14-00000
+
+# SECTION II ESTIMATED DESIRABILITY IN VARIOUS CAPACITIES
+
+Indicate the extent to which you would desire the rated officer to serve under you in each type of duty described below. Place an X in the proper box. Consider each item in terms appropriate to rated officer's grade and branch. Use the UNKNOWN column only if the nature of your contacts makes it impracticable for you to make an estimate of his probable usefulness in a particular assignment.
+
+Marking UNKNOWN does not penalize the rated officer.
+
+## RATER
+
+A Commando unit.
+
+B Serve as a staff officer, Specify Special Forces
+
+C Work as a specialist, professional person, or technician, Specify Special Forces
+
+D Conduct military instruction.
+
+E Serve in a capacity involving contacts with other services, allied forces, or divisions - e.g., joint boards, contract negotiations, reserve components, etc.
+
+F Carry out an assignment involving mostly administrative duties.
+
+G Represent your viewpoint in liaison activities
+
+H Make decisions and take action in your name during your absence - e.g., act as your deputy.
+
+I Be responsible in an emergency requiring forceful leadership
+
+J Other, Specify
+
+Comment on and/or clarify above ratings if necessary
+
+For technical and administrative services, or staff, interpret this to mean managed responsibilities commensurate with command.
+
+# SECTION III PERFORMANCE OF DUTY
+
+Considering only officers of his grade, branch, and about the same time in grade, rate the officer on performance of his duty assignment. Read all descriptions and place a heavy X in the box opposite best description.
+
+RATER
+
+INDORSE
+
+7. Excels any other officer I know in performance of this duty.
+
+6. Outstanding performance of this duty found in very few officers
+
+1. Very fine performance of such a nature that this officer is a distinct asset to the service.
+
+2. Barley adequate in performance of this duty.
+
+3. One of the few exceptional officers who should be considered for more rapid promotion than his contemporaries.
+
+4. Perform this duty in a competent, dependable manner.
+
+5. Should give an outstanding performance when promoted to next higher grade.
+
+6. A very fine officer who is a great asset to the service.
+
+7. One of the top high, outstanding officers I know.
+
+1. Has reached the highest grade level at which satisfactory performance should be expected. Should not be promoted.
+
+# SECTION IV PROMOTION POTENTIAL
+
+Considering officers of his grade, branch, and about the same time in grade, what is your opinion of this officer's promotion potential? Place a heavy X in the box opposite best description.
+
+RATER
+
+INDORSE
+
+5. One of the few exceptional officers who should be considered for more rapid promotion than his contemporaries.
+
+6. Should give an outstanding performance when promoted to next higher grade.
+
+7. Should give a competent and dependable performance when promoted to next higher grade.
+
+8. Should give a fairly adequate performance of duty, when promoted to next higher grade.
+
+9. Has not yet demonstrated potential for promotion to next higher grade. Needs more time in present grade.
+
+10. Has reached the highest grade level at which satisfactory performance should be expected. Should not be promoted.
+
+# SECTION V OVER-ALL VALUE
+
+What is your estimate of the rated officer's overall value to the service? Compare him with officer's of the same grade, branch, and about the same time in grade. Place a heavy X in the box opposite best description.
+
+RATER
+
+INDORSE
+
+3. The most outstanding officer I know.
+
+4. A typically effective officer.
+
+5. A competent, dependable officer of distinct value to the service.
+
+6. A very fine officer who is a great asset to the service.
+
+7. One of the top high, outstanding officers I know.
+
+8. An officer who performs acceptably in a limited range of assignments but who could easily be replaced.
+
+9. An officer who is not of the caliber that one should reasonably expect in an officer.
+
+# INDORSER
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+26
+
+27
+
+28
+
+29
+
+30
+
+31
+
+32
+
+33
+
+34
+
+35
+
+36
+
+37
+
+38
+
+39
+
+40
+
+41
+
+42
+
+43
+
+44
+
+45
+
+46
+
+47
+
+48
+
+49
+
+50
+
+51
+
+52
+
+53
+
+54
+
+55
+
+56
+
+57
+
+58
+
+59
+
+60
+
+61
+
+62
+
+63
+
+64
+
+65
+
+66
+
+67
+
+68
+
+69
+
+70
+
+71
+
+72
+
+73

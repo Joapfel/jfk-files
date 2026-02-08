@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_28863.png
+
+Convert to Markdown14-0000
+
+25 January 1974
+
+Drug Enforcement Agency
+Office of Personnel
+Technical Support Section
+1405 I Street, N. W.
+Washington, D. C. 20537
+
+Attention: Ms. Mary Elliott
+
+Dear Ms. Elliott:
+
+In response to the request from your office of 16 January, the following is a transcript of the employment of LUCIEN E. CONEIN:
+
+| Date | Action | Salary |
+| :--- | :--- | :--- |
+| 12 Nov 61 | Contract Employee with Civil Service Retirement, Legislative Pay Adjustments and Periodic Step Increases | $11,415 (GS-13/4 eq.) |
+| 14 Oct 62 | Legislative Pay Adjustment | $12,245 (GS-13/4 eq.) |
+| 28 Apr 63 | Pay Increase | $13,270 (GS-14/2 eq.) |
+| 5 Jan 64 | Legislative Pay Adjustment | $14,065 (GS-14/2 eq.) |
+| 26 Apr 64 | Periodic Step Increase | $14,515 (GS-14/3 eq.) |
+| 5 July 64 | Legislative Pay Adjustment | $15,150 (GS-13/3 eq.) |
+| 25 Apr 64 | Periodic Step Increase | $15,640 (GS-14/4 eq.) |
+| 19 Oct 65 | Legislative Pay Adjustment | $16,204 (GS-14/4 eq.) |
+| 3 July 66 | Legislative Pay Adjustment | $15,675 (GS-14/4 eq.) |
+| 8 Oct 67 | Legislative Pay Adjustment | $17,425 (GS-14/4 eq.) |
+| 14 July 68 | Legislative Pay Adjustment | $18,641 (GS-14/4 eq.) |
+| 15 July 68 | Contract Terminated | $18,641 (GS-14/4 eq.) |
+
+Attached is Standard Forms 176 and 1150. There is no record of Standard Forms 2809 and 2810. Perhaps his military retirement delayed the need for health insurance.
+
+Attachments

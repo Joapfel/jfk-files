@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_29032.png
+
+Convert to Markdown8 March 1964
+
+MEMORANDUM FOR: Deputy Director of Plans
+
+ATTENTION : DDP/OP
+
+SUBJECT : Request for Quality Step Increase for Charlotte Bustos-Videla
+
+1. On the basis of the information presented below, it is recommended that a quality step increase be approved for Charlotte Bustos-Videla.
+
+2. As stated in the accompanying Fitness Report, Subject's performance of her duties has been uniformly outstanding. In addition to her responsibilities as the desk officer for Mexico FI and Operational Support Projects, she carries a heavy burden in the areas of administration, preparation of special reports and training of personnel. She frequently represents the Mexico Section in dealings with other elements of the Agency and acts for the Chief of Section in his absence. Subject's performance clearly exceeds the normal requirements of the assignment and of her present GS grade level.
+
+3. Subject's present high quality of performance typifies her performance over a period of several years and it is fully expected that this level will be maintained.
+
+4. Consideration was given to the granting of a Merit Award but the quality step increase seems more appropriate in this case. Subject has been passed over for promotion in the past and due to limitations as to

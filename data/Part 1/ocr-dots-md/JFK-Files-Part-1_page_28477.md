@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_28477.png
+
+Convert to MarkdownSECRET
+
+EAVA-7058
+
+Chief, FE
+
+Attn: Kenneth F. Wilbank's
+
+Chief of Mission, Austria
+
+12 May 1953
+
+K A P O X
+
+Administrative
+
+Recommendation for Promotion -
+
+1. Subject joined KULARK in July 1950. He was given the Staff Orientation, and the Basic and Advanced Operations courses prior to his arrival at VOB in June 1951. After a period of agent handling and technical work in the operations support field, Subject was made Chief of the Counter Espionage Section for the Mission in November 1952, a position which he has held until his very recent reassignment to the Soviet Section. Following Home Leave, he began his second tour here in September 1953. Subject joined the Mission as a CS-9, was promoted to C-11 on 26 April 1953.
+
+2. Subject was given a rather long apprenticeship in Vienna before he was called upon to set up the CE Section. During this orientation period he was exposed to a variety of intelligence problems, including technical surveillance, photography, secret writing, and documentation, the handling of two American deep cover agents, the training and mounting of an Hungarian border crosser, and the direction of an Austrian double agent. As Chief of the Counter Espionage Section, Subject's responsibilities included the supervision and training of its personnel, the direction and coordination of its activities, and the setting-up of procedures for namechecking, carding, file research, and the maintenance of CE and central personality files. Subject was personally responsible for CE analysis as directed by the Chief of Operations. Subject's activity has been restricted to the Soviet CE picture, which we consider a major operational effort of this Mission.
+
+3. Subject's interest and enthusiasm in his work, his attention to duty, and his ability to obtain results have been outstanding attributes in his performance here, and have resulted in his becoming thoroughly familiar with the CE problem in Austria. He has done exceptionally well on a variety of operations, giving a concept of planning, and demonstrating an unusual grasp for details. He has read widely in case files, and now possesses a better than average counter-intelligence background. Subject has a good working knowledge of German, which he has learned from scratch here, and he has built up a remarkable knowledge of this area. He was quick to learn the techniques of basic tradecraft, which had enabled him to teach junior case officers and to instruct in the trade-craft seminars held at VOB. His staff guidance in certain double agent cases has increased considerably their value to this Mission. Written reports turned in by Subject have been excellent, displaying forcefulness, fluency, and lucidity, as well as the essential brevity. He has a forceful personality and is unusually successful in agent handling.
+
+4. A mature appearance,
+
+SECRET

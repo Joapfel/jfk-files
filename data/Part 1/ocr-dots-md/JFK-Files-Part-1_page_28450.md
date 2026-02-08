@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_28450.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+27 October 1964
+
+MEMORANDUM FOR: Mr. Robert W. Sheay
+Secretary
+Clandestine Services
+Career Service Board
+
+SUBJECT: Tennent H. Bagley
+Promotion to GS-16
+
+1. Mr. Bagley is without question among the best qualified of the senior officers in SR Division and is also one of the most competent counterespionage officers in the Clandestine Services as a whole. Few have had his preparation or his experience in the Soviet Bloc aspects of this field. After entering on duty in 1950 he was assigned to the Vienna Station where for five years he worked directly on operations against the Soviet intelligence elements concentrated there. When he returned to Headquarters, he supervised the CE Section of the Polish Branch, EE Division when a combination of defectors and penetrations of the Polish services made this job one of the most demanding of any in the Clandestine Services. In his next overseas assignment in Switzerland, he evolved techniques of operational analysis of Soviet intelligence residencies which form the backbone of the system we are using today. While in this post he participated in an operation involving a major penetration of the Polish intelligence service which also had enormous significance for our efforts against the Soviets. Just prior to his departure from Switzerland, he handled one of the most complex and challenging Soviet CE operations ever encountered by our service.
+
+2. In 1962 he was appointed Chief of SR Division's CE element. Under his direction the CE effort of the Division took on entirely new dimensions. Because of Mr. Bagley's marvelous combination of CS experience, substantive knowledge and enthusiasm, the SR/CI Group has become one of the most effective and highly motivated units in the Division. The Group has developed a high level of substantive specialization which it applies to CS coverage of the Soviet intelligence services throughout the world. At the same time, a large percentage of the Group's best officers have been committed full time to a special operation of great value and significance. The ability of
+
+SECRET
+EYES ONLY

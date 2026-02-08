@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_28684.png
+
+Convert to Markdown1 June 1949
+
+MEMORANDUM FOR THE CHIEF, PERSONNEL SECURITY DIVISION
+
+SUBJECT: Request for Security Clearance for
+
+Tennent H. Bagley
+Intelligence Officer
+P-3 84479.60
+Advisory Council
+
+1. It is requested that the security investigation be initiated on the above named person, who is being considered for a position with the Central Intelligence Agency.
+
+2. Attached hereto are the required copies of the Personal History Statement.
+
+3. Please notify this office in writing upon completion of the security investigation.
+
+WILLIAM J. KELLY
+Chief, Personnel Branch
+
+Attachments: 8 Forms 38-1
+
+Form No.
+37-104
+
+Sep 1948

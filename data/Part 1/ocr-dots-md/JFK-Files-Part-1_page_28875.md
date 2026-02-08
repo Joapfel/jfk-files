@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_28875.png
+
+Convert to MarkdownSECRET
+
+<table><tbody><tr><td colspan="2">SECURITY<br/>FACTORS OF INTEREST SUBJECT (IF ANY: FAX, RADIO, TV), ADOPTED AS SUSPECTED IDENTIFICATION TO OTHER THAN CIA STAFF PERSONNEL - INTELLIGENCE OR SECURITY SERVICES.</td></tr><tr><td colspan="2">When Subject retired he was told to indicate CIA as his place of employment for the entire period - November 1961 through July 1968.</td></tr><tr><th>COVER</th><td>A. PRESENT COVER IS: ☐ OFFICIAL ☐ NON-OFFICIAL<br/>DIVISION EVALUATION OF COVER SECURITY:</td></tr><tr><td colspan="2">EVALUATION OF PERFORMANCE:</td></tr><tr><td colspan="2">ADAPTABILITY (SUBJECT AND FAMILY) TOWARDS DUAL LIFE</td></tr><tr><td>B. PREVIOUS COVER WAS: ☐ OFFICIAL ☐ NON-OFFICIAL (GIVE BRIEF DESCRIPTION IF NOC)</td><td>MOBILITY<br/>INDICATE LIMITING FACTORS BOTH PERSONAL AND OPERATIONAL</td></tr><tr><td colspan="2">FUTURE UTILIZATION<br/>INDICATE PLANS OR RECOMMENDATIONS FOR USE AFTER CURRENT ASSIGNMENT</td></tr></tbody></table>
+
+SECRET

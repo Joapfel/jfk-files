@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_28446.png
+
+Convert to MarkdownSECRET
+
+3
+
+that the assessment by the Staffs and Divisions is
+available to The Board.
+
+7. The method of CT selection outlined above supersedes previous selection procedures employed by the CS in determining CT acceptance into the CS.
+
+Desmond FitzGerald
+Deputy Director for Plans
+
+**Distribution:**
+
+2 - each Staff & Division Chief
+
+1 - each DDP Training Officer
+
+1 - each DDP Senior Training Officer
+
+1 - DC/FI (Mr. Anderson)
+
+1 - DC/SR (Mr. Bagley)
+
+1 - C/SOD (Mr. Cheever)
+
+1 - DC/CA (Mr. Lapham)
+
+1 - DC/WE (Mr. Ryan)
+
+5 - C/CSPS (for file)
+
+1 - Director of Training
+
+1 - Deputy Director of Training
+
+1 - Chief, Career Trainee Program
+
+1 - COS/Isolation
+
+SECRET

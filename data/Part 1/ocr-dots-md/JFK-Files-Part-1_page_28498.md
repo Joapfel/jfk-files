@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_28498.png
+
+Convert to Markdown22 January 1951
+
+TO: Overseas Branch, ID
+
+VIA: Assistant Director, Special Operations
+
+FROM: FID
+
+SUBJECT: Foreign Travel Request
+
+1. It is requested that appropriate travel orders be issued for Mr. Washington H. Bagley to proceed to Sarlarube, Germany on FOS.
+
+2. The following information is submitted for the preparation of the Foreign Travel Orders:
+
+a. Justification: Mr. Bagley is being sent to Germany as an Intelligence Officer, GS-9, against FOS/DAD Slot No. 53.
+
+b. Availability date to commence travel: 14 March 1951.
+
+c. Mode of travel: Sea
+
+d. Requested deviation from most direct route and justification therefor: Subject has requested, and the Division has no objection, six (6) days' annual leave in Switzerland enroute to Station.
+
+e. Dependents to be authorized to travel: No
+
+f. Household effects to be authorized: Yes
+
+g. Shipment of personal automobile to be authorized: Yes
+
+h. Special provisions: See
+
+i. Travel advance of $200.00 is requested.
+
+APPROVED:
+
+For the Assistant Director, SO
+
+ECB

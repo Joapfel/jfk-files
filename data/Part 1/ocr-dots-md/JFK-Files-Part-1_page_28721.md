@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_28721.png
+
+Convert to Markdown6 September 1966
+
+SUBJECT: Memorandum in Lieu of Final Fitness Report on
+Robert T. Shaw
+
+**Robert T. Shaw**
+
+1. ~~Robert T. Shaw~~ is under (PCS) transfer to the position of COS, Managua, and is scheduled to depart Mexico City on or about 17 September 1966.
+
+Shaw
+
+2. This memorandum is to report that ~~Shaw~~ has continued to perform duties assigned to him at the Mexico City Station in the same exceptional manner reported in HMMT-6516. In which he was rated as outstanding for the year April 1965-April 1966. His duties have been the same as reported in HMMT-6516 and a detailed report on his performance would be a repetition of his previous report.
+
+Shaw
+
+3. It is again recommended that ~~Shaw~~ be promoted to GS-15 in view of his performance and qualifications.
+
+RATING OFFICER: Winston M. Scott/s/
+
+EMPLOYEE: Robert T. Shaw /s/

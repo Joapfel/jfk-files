@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_28868.png
+
+Convert to Markdown4 October 1973
+
+Ron -
+
+Conein was in U. S. military from September 1941 through
+September 1961, and on detail to OSS, SSU, CIG, and CIA to time
+of military retirement.
+
+He was picked up as a civilian and as a career agent on
+12 November 1961 and retired on disability on 15 July 1968.
+
+Archenhold advised that subject claims military service as
+indicated above and that the only period to be certified is the period
+as a civilian, November '61 to July '62. This all we know about
+what Conein told DEA.
+
+Frank G. Jarema
+
+Distribution:
+
+U. C/RAD
+
+I - EEAB Memos file
+
+I - EEAB Chrono
+
+OP/RAD/EEAB/FCJarema:pig (4 October 1973)

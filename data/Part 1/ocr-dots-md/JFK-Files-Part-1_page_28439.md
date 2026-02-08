@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_28439.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th>NAME (Last, First, Middle)</th><th>DATE OF BIRTH</th><th>GRADE</th></tr></thead><tbody><tr><td>BAGLEY, Tennent H.</td><td>Nov. 11 1925</td><td>GS-16</td></tr><tr><td colspan="2">4. OFFICE, DIVISION, BRANCH (OF OVERSEAS STATION AND EXISTING COVER IF LATERAL ASSIGNMENT)</td><td></td></tr><tr><td colspan="2">DDP/SB</td><td>7438</td></tr><tr><td colspan="2">7. PROPOSED STATION</td><td></td></tr><tr><td colspan="2">Brussels</td><td></td></tr><tr><td colspan="2">8. TYPE OF COVER AT NEW STATION</td><td></td></tr><tr><td colspan="2">Integree</td><td>COW 0296</td></tr><tr><td colspan="2"></td><td>(Title, Number, Grade)<br/>ESTIMATED DATE OF DEPARTURE<br/>25 Aug 67</td></tr><tr><td colspan="2"></td><td>NO. OF DEPENDENTS TO ACCOMPANY<br/>four</td></tr><tr><td colspan="3"><strong>12. COMMENTS</strong><br/>89's attached to OMS copies 259 a forwarded direct. Subject on TDY standby until November 1967. Request evaluation for above PCS.</td></tr><tr><td colspan="3"><strong>13. DATE OF REQUEST</strong><br/>28 July 1967</td></tr><tr><td colspan="2"><strong>14. SIGNATURE OF REQUESTING OFFICIAL</strong><br/>Marge Grostephan</td><td><strong>15. ROOM NUMBER AND BUILDING</strong><br/>4B-01 Hqs.</td></tr><tr><td colspan="3"><strong>16. EXTENSION</strong><br/>6913</td></tr><tr><td colspan="3"><strong>17. OFFICE OF MEDICAL SERVICES DISPOSITION</strong><br/><br/><br/></td></tr><tr><td colspan="3"><strong>18. OFFICE OF SECURITY DISPOSITION</strong><br/><br/></td></tr><tr><td colspan="3"><strong>19. OVERSEAS CANDIDATE REVIEW PANEL DISPOSITION</strong><br/>L.L.<br/>QUALIFIED FOR FURTHER ASSISTANCE OVERSEAS<br/>Chairman, Overseas Candidates Review Panel<br/><br/>REQUEST FOR PCS OVERSEAS EVALUATION</td></tr></tbody></table>
+
+SECRET
+
+(4)

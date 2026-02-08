@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_28986.png
+
+Convert to Markdown6 June 1956
+
+MEMORANDUM FOR: CHIEF, MILITARY PERSONNEL DIVISION
+
+SUBJECT : Request for Orders -
+Major Lucien E. CONEIN
+
+REFERENCE : IN 33577, dated 22 June 1956
+
+1. It is requested that cover military orders assigning Major Lucien E. Conelin to MAAC, Vietnam TDT be amended to include the period from October 1955 to 24 July 1956. The amended orders should also authorize Major Conelin to proceed from Saigon to Washington o/a 24 July 1956 via Paris, Frankfurt, and Geneva. Subject will report to Washington 1 August.
+
+2. It is further requested that these orders be sent registered
+airmail to subject at the following address:
+
+MAJG Box "S"
+APO 7-
+San Francisco, Calif.
+
+ALBERTO C. UNGER, JR.
+Chief, Pacific Section

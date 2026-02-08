@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_28647.png
+
+Convert to MarkdownSECRET
+
+12 December 1950
+
+MEMORANDUM TO: Chief, PDR
+FROM : Chief, TRD
+SUBJECT : Mr. Tennent Harrington Bagley
+
+1. It is with pleasure that the instructors and staff of TAD command Mr. Tennent Harrington Bagley on his out-standing performance throughout the period of his training.
+
+2. It is felt by the above mentioned officers that he is the type of individual which can contribute greatly to the mission of CIA.
+
+N. R. PRESS
+Chief, TRD.

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_29277.png
+
+Convert to MarkdownSECRET
+
+5. In 1965 I set up an office in Perrine, Florida, under commercial cover, to administer the Agent group. I remained in this office conducting operations and training as before until April 1966. My office was moved into the JMWAVE station at that time, but I remained under commercial cover and my duties continued to be the same.
+
+6. During the time I was assigned to JMWAVE I was required to participate in numerous voyages aboard Agency ships into international waters. Many of these were near to and into denied waters. I was also required to participate in several search and rescue aircraft flights of long duration over international water, near and into denied areas.
+
+7. It is my belief that my activities and duties from August 1961 to June 1968 were of the types normally found only in overseas clandestine activities for which the five year CIAROS "creditable service abroad" requirement was intended. I am available for further explanation or clarification if any of the above information is required, or if confirmation of my service by other Agency personnel is needed, I submit the following names of knowledgeable individuals:
+
+a. Gerald Droller, DDP/NSF
+
+b. Robert Ortman, WH/COC
+
+c. George French, SOD/CR
+
+d. William Broe, C/WH
+
+8. In view of the facts presented above, I request to be designated a participant in the CIA Retirement and Disability System and will apply for disability retirement when my participation is approved.
+
+SIGNED
+Grayston L. Lynch
+
+SECRET

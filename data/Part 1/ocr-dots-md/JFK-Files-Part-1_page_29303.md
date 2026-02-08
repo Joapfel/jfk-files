@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_29303.png
+
+Convert to MarkdownSECRET
+
+Mr. Irving C. Devuono
+
+Dear Mr. Devuono:
+
+Reference is made to your contract with the United States Government, as represented by the Contracting Officer, effective 1 November 1967.
+
+It has been mutually agreed by both parties that said contract will be terminated on or about 10 September 1971, at which time you will be involuntarily retired, due to the absence of any immediate or foreseeable work assignment for which you qualify.
+
+You are herein authorized a taxable terminal payment of $10,000 to assist you in resettling and retraining for another occupation. Said payment will be payable as of the effective date of your retirement.
+
+You are aware that said terminal payment was not an original part of your contract but has been authorized solely because of the unique circumstances associated with your past service, coupled with the circumstances associated with your premature retirement.
+
+You are reminded of the contents of paragraph thirteen (13) of said contract which read as follows:
+
+> You will be required to keep forever secret this contract and all information which you may obtain by reason hereof (unless released in writing by the Government from such obligation), with full knowledge that violation of such secrecy may subject you to criminal prosecution under the Espionage Laws, dated 25 June 1945, as amended, and other applicable laws and regulations."
+
+UNITED STATES GOVERNMENT
+
+BY /o/ Dom H. Luetzher
+Contracting Officer
+
+ACKNOWLEDGED:
+
+WITNESS:
+
+APPROVED:

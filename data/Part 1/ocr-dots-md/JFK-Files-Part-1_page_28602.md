@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_28602.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+<table><thead><tr><th colspan="2">FIELD FITNESS REPORT</th></tr></thead><tbody><tr><td>1955</td><td>001-21 AM:10:23</td></tr><tr><td colspan="2"><strong>INSTRUCTIONS</strong></td></tr><tr><td colspan="2">TO THE FIELD ADMINISTRATIVE OR PERSONNEL OFFICER: Convert current field administrative instructions regarding the initiation and transmittal of this report to head-quarters.</td></tr><tr><td colspan="2">TO THE FIELD SUPERVISOR: Read the entire form before attempting to complete any item. As the supervisor who assigns, directs and reviews the work of the individual, you have primary responsibility for evaluating his strengths, weaknesses, and on-the-job effectiveness as revealed by his day-to-day performance. If this individual has been under your supervision for less than 30 days, you will collaborate, if practicable, with his previous supervisors to make sure the report is accurate and complete. Primary responsibility rests with the current supervisor. It is assumed that, throughout the period this individual has been under your supervision, you have discharged your supervisory responsibilities by frequent discussions of his work, so that in a few days where he stands.</td></tr><tr><td colspan="2">FieU<br/>P & P. Control<br/><br/>It IS OPTIONAL WHETHER OR NOT THIS FITNESS REPORT IS SHOWN TO THE PERSON BEING INSPECTED</td></tr></tbody></table>
+
+<table><caption>SECTION I</caption><tbody><tr><td colspan="3">LEAVE BLANK - FOR HEADQUARTERS USE ONLY</td></tr><tr><td>1. DATE OF BIRTH</td><td>2. SEX</td><td>3. SERVICE DESIGNATION</td></tr><tr><td>11 Nov 1925</td><td>M</td><td>DI</td></tr><tr><td colspan="3">4. GRADE<br/>GS-12</td></tr><tr><td colspan="3">Vienna Operations Base</td></tr><tr><td colspan="3">5. DUE DATE OF THIS REPORT<br/>16 Aug 55 (final VOB)</td></tr><tr><td colspan="3">7. PERIOD COVERED BY THIS REPORT (Inclusive dates)<br/>16 November 1954 thru 15 August 1955</td></tr><tr><td colspan="3">SECTION II (To be completed by field supervisor)</td></tr><tr><td>1. CURRENT POSITION<br/>Case Officer/Soviet Branch</td><td>2. DATE ASSUMED RESPONSIBILITY FOR POSITION<br/>14 June 1951</td><td></td></tr><tr><td colspan="3">3. STATE THE SPECIFIC ASSIGNMENTS OR TASKS WHICH ARE TYPICAL OF THOSE GIVEN TO THE EMPLOYEE DURING THE past THREE TO SIX MONTHS (List in order of frequency)</td></tr></tbody></table>
+
+Case officer in the Soviet Branch. Responsible for the developmental activity, general guidance and directing, reporting and administering, and the file research of projects directed against the Soviet target in Austria. Plans especially CE operational activity against the KRG. Maintains liaison with CIC. Referent for CE matters.
+
+<table><tr><td style="vertical-align: top;">DO NOT COMPLETE - FOR HEADQUARTERS USE ONLY</td><td style="vertical-align: top;"><p>AUTHENTICATION OF REPORT AND SIGNATURES</p><table><tr><td style="vertical-align: top;">1. NAME OF RATER (True)<br/>Peter Demirian</td><td style="vertical-align: top;">2. NAME OF REVIEWING OFFICIAL IN FIELD (True)<br/>Browns DWatley</td></tr><tr><td colspan="2">3. THIS REPORT ☐ WAS ☑ WAS NOT SHOWN TO THE INDIVIDUAL BEING RATED.</td></tr><tr><td style="vertical-align: top;">4. DATE REPORT AUTHORIZED AT NOS.<br/>SLI 25 1955</td><td style="vertical-align: top;">5. NAME AND SIGNATURE OF ADMINISTRATIVE OR PERSONNEL OFFICER AT HEADQUARTERS AUTHORIZED TO AUTHENTICITY FIELDS REPORT AND SIGNATURES<br/>Ullayton</td></tr></table></td></tr><tr><td style="vertical-align: top;">DO NOT COMPLETE - FOR HEADQUARTERS USE ONLY</td><td style="vertical-align: top;"></td></tr></table>
+
+FORM NO. 45a
+1 SEP 54
+
+SECRET
+
+(4)

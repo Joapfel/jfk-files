@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_28495.png
+
+Convert to Markdown5 March 1951
+
+TO: CPD
+FROM: FOM
+SUBJECT: Transfer of Tenment H. Bagley
+
+It is requested that subject be transferred from the German T/O to Slot No. 6 of the External Section "A" (Vienna). This is a temporary move. Adjustment will be made when the new Vienna T/O is approved.
+
+For: Chief, FOM
+
+Elizabeth C. Dunlevy

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_29169.png
+
+Convert to MarkdownSEC. 14. ACTIVE U. S. OR FOREIGN MILITARY SERVICE none
+
+<table><tr><td>(Country)</td><td>(Service)</td><td>(Rank)</td><td>(Dates of Service)</td></tr><tr><td>(Last Station)</td><td>(Serial Number)</td><td colspan="2">(Type of Discharge)</td></tr><tr><td>REMARKS:</td><td colspan="3"></td></tr><tr><td>SELECTIVE SERVICE BOARD NUMBER</td><td colspan="3">ADDRESS</td></tr><tr><td colspan="4">IF DEFERRED GIVE REASON</td></tr><tr><td colspan="4">INDICATE MEMBERSHIP IN MILITARY RESERVE ORGANIZATIONS</td></tr></table>
+
+SEC. 15. CHRONOLOGICAL HISTORY OF EMPLOYMENT FOR PAST 15 YEARS. ACCOUNT FOR ALL PERIODS. INCLUDE CASUAL EMPLOYMENT. INCLUDE ALSO PERIODS OF UNEMPLOYMENT. GIVE ADDRESSES AND STATE WHAT YOU DID DURING PERIODS OF UNEMPLOYMENT. LIST LAST POSITION FIRST. (List all civilian employment by a foreign government, regardless of dates.)
+
+<table><tbody><tr><td>FROM</td><td>4/51</td><td>CLASSIFICATION GRADE</td><td>3</td></tr><tr><td></td><td>TO</td><td></td><td>(IF IN FEDERAL SERVICE)</td></tr><tr><td colspan="4">EMPLOYING FIRM OR AGENCY Board of Geographic Names Interior Blag.</td></tr><tr><td>ADDRESS</td><td>C &amp; 18th Sts., N. W., Washington, D. C.</td><td>(St. and Numbr.)</td><td>(State)</td><td>(Country)</td></tr><tr><td>KIND OF BUSINESS</td><td colspan="2">NAME OF SUPERVISOR</td><td colspan="2">Mrs. Mildred Koorman</td></tr><tr><td>TITLE OF JOB</td><td colspan="2">Statistical Draftsman</td><td colspan="2">SALARY $ 2,000 PER yr.</td></tr><tr><td>YOUR DUTIES</td><td colspan="4">drawing direction, drafting, typing</td></tr><tr><td colspan="5">REASONS FOR LEAVING better position more in my interests</td></tr><tr><td>FROM</td><td>5/50</td><td>CLASSIFICATION GRADE</td><td></td><td></td></tr><tr><td></td><td>TO</td><td></td><td>(IF IN FEDERAL SERVICE)</td><td></td></tr><tr><td colspan="5">EMPLOYING FIRM OR AGENCY San Lee Gardens, Inc.</td></tr><tr><td>ADDRESS</td><td colspan="2">Box 240 Dayton, O. R. 11 Ohio USA</td><td>(St. and Numbr.)</td><td>(State)</td><td>(Country)</td></tr><tr><td>KIND OF BUSINESS</td><td>nursery</td><td>NAME OF SUPERVISOR</td><td colspan="3">Ray McKochnie</td></tr><tr><td>TITLE OF JOB</td><td>clerk</td><td>SALARY</td><td>1.10</td><td colspan="2">PER hr.</td></tr><tr><td>YOUR DUTIES</td><td colspan="6">bookkeeping, sales, clerking, making financial reports, ordering wholesale, making floral arrangements</td></tr><tr><td colspan="6">REASONS FOR LEAVING to take a job more in line with my training</td></tr></tbody></table>
+
+(7)
+
+15-63566-1

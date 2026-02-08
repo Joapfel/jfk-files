@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_28344.png
+
+Convert to Markdown11 January 1961
+
+To: Director of Personnel
+
+From: Chief, Office
+
+SUBJECT: Additional Compensation in Lieu of Overtime Payment
+
+Re: I was dated 11 January 1961 from 8:45 a.m. to 30/5, approved by my/s. Subject: "Employee Benefits for JATC Personnel"; In: I was dated 27 December 1960 from 8:00a to 10:00a (I am). Subject: "Employee Benefits for Personnel effective to 22/5".
+
+In accordance with reference documents, it is requested that the personnel listed below be authorized to receive additional compensation effective 1 January 1961, at the rate of 15% of their respective basic rate of basic annual compensation (but not to exceed the maximum rate per Article 105-3) in lieu of payment of the regular overtime rates for irregulat, unscheduled and frequent overtime.
+
+All the above employees are or were covered by the original contract.

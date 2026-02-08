@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_28890.png
+
+Convert to MarkdownRESUME
+
+1111 Ingleside Avenue
+McLean, Virginia 22101
+
+Home Telephone: 356-9086
+
+EMPLOYMENT OBJECTIVE:
+
+Management position of responsibility where I can materially
+contribute to the growth and effectiveness of the organization,
+by utilizing my background and experience in:
+
+1. Excellent and extensive personal and political relations with high foreign government officials in Southeast Asia.
+
+2. Management, administration, supervision, organization and operations of internal and physical security of plants and installations.
+
+3. Public Relations dealing with foreign government, commercial and industrial representatives to further the interest of the organization.
+
+Available: After 1 May 1968
+
+Salary Requirements: $12,000 - $15,000 per annum - could be negotiated depending on the position.
+
+EXPERIENCE:
+
+1. U. S. Central Intelligence Agency
+
+December 1961 - Present
+Intelligence/Operations Officer
+
+Since joining CIA in 1961 have spent the major portion of this period overseas in Southeast Asia. Duties have included: Complete responsibility for the operation of a field intelligence station. Functions included collection, analysis, evaluation, and reporting of intelligence data; the management of the base (Personnel, Security, Finance, and Logistics); liaison with other U. S. officials (up to the Ambassadorial level) and officials of other governments up to the Prime Minister; also directed such operations as civic and political action, police and intelligence office training in counter-insurgency and the general field of intelligence.

@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_28335.png
+
+Convert to Markdown2. Authority to make this payment is contained in reference memos and no stand-by to the supplement to their staff agent personal section is required. The effective day of such premium pay will be the beginning of the first pay period following 1 June 1962.
+
+William H. HARVEY
+Chief, Staff Force W
+
+/s/ Harry W. Little, Jr.
+
+ATTACH
+
+Director of Personnel
+
+Less
+
+Distribution:
+
+Original & 1 = Addresses
+1 = Director of Personnel
+1 = Office of Communications
+1 = Office of Logistics
+1 = Chief, FW
+1 = FW/Personnel

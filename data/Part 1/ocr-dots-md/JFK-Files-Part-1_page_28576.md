@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_28576.png
+
+Convert to Markdown12 March 1965
+
+MEMORANDUM IN LIEU OF FITNESS REPORT - 1 April 1964 -
+31 March 1965
+
+SUBJECT: BAGLEY, Tennent H. 056043
+Operations Officer
+Branch Chief
+DDP/SR/CI
+DOB 11-11-25, GS-15, SD:D
+
+Mr. Bagley still occupies the position described in his last fitness report of 30 April 1964. The quality of his performance continues to be outstanding in all respects including cost consciousness. He has been recommended for promotion to GS-16. This recommendation should receive early consideration. There are certainly very few officers in the GS-15 level who are more deserving in terms of their executive potential and their contributions to the mission of the Clandestine Services.
+
+David E. Murphy
+Chief, SR Division
+
+Tennent H. Bagley
+
+Date
+
+Reviewing Official:
+
+Thomas H. Karamessines
+Assistant Deputy Director for Plans
+
+20 March 1965
+
+Date
+
+26 MAR 1965
+
+SECRET

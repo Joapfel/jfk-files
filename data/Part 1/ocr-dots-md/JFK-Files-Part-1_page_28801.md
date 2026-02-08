@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_28801.png
+
+Convert to Markdown14-00000
+
+STANDARD FORM 37
+REVISED MARCH 1961
+U.S. CIVIL SERVICE COMMISSION
+
+APPLICATION FOR FEDERAL EMPLOYMENT
+
+<table><tr><td>DO NOT WRITE IN THIS SPACE</td></tr></table>
+
+<table><thead><tr><th colspan="2">ANNOUNCEMENT NO.</th></tr></thead><tbody><tr><td>A. Lowest grade or pay you will accept</td><td>B. Will you accept temporary appointment (Acceptance or refusal of temporary employment will not affect your consideration for other appointments.) [X] Yes [ ] No [ ] If Yes, indicate by "X" in appropriate box or boxes.</td></tr><tr><td>$ or grade FSH-4</td><td>[ ] Union or local [ ] Local or union and local [ ] Local or union and no local [ ] No</td></tr><tr><td>C. Will you accept less of the same position if required by law?</td><td>D. Can you accept this position permanently? [ ] No [X] Yes [ ] No [ ] Not sure [X] Preferably [ ] Unsure/Indecent</td></tr><tr><td>E. Will you accept employment in Washington, D.C. [ ] Yes [X] No [ ] Outside 50 miles [X] Yes [ ] No</td><td>F. Will you accept appointment only on certain dates? [ ] Yes [X] No [ ] Yes but late [ ] Yes but late and no date</td></tr><tr><td>G. List Dates, Branch, and Serial or Service Number of All Active Service From To Branch of Service Serial or Service Number</td><td>H. Have you been discharged from the armed forces under other than honorable conditions? [ ] Yes (Give details as itemized) [X] No</td></tr><tr><td>I. Do you claim any past preference based on previous military service? [X] Yes [ ] No</td><td>J. Do you claim to point preference? [ ] Yes [X] No [ ] If "No", check type of preference claimed and complete and attach Standard Form 1559 "Reference Data Type" [ ] Composable disabilities [ ] Disability [ ] Wife [ ] Children [ ] Mother [ ] Other 10-point [ ] None</td></tr><tr><td>K. The information given is true to Order 18 has been verified with the discharge certificate and all other proof which shows that the preparation was under honorable conditions.</td><td>L. IF THIS SPACE IS left blank for use of appointing officer ONLY</td></tr><tr><td>VETERAN PREFERENCE ALLOWED [ ] Nonsenior [ ] Senior [ ] 10 point Comp Drive [ ] Other 10-point [ ] None</td><td>M. Signature and title</td></tr></tbody></table>
+
+<table><caption>THIS SPACE FOR USE OF APPOINTING OFFICER ONLY</caption><tbody><tr><td>The information given is accurate to Order 18 has been verified with the discharge certificate and/or other proof which shows that the preparation was under honorable conditions.</td></tr><tr><td>VETERAN PREFERENCE ALLOWED [ ] Nonsenior [ ] Senior [ ] 10 point Comp Drive [ ] Other 10-point [ ] None</td></tr><tr><td>Applicant's Signature and Title</td><td>Applicant T</td></tr><tr><td>Dee</td><td>Dee</td></tr></tbody></table>

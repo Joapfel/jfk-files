@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_29077.png
+
+Convert to MarkdownNarrative Comments (continued): (Charlotte Z. Bustos-Videla)
+
+papers for the Branch because of her innate talents and established reliability. She never failed to impress her supervisor with her production, writing ability and energy. Her overall performance is clearly in excess of her grade level.
+
+In terms of true cost and security-consciousness, she must also be considered very strong because she has a positive and aggressive attitude towards these subjects. It is with deep regret that the Branch parts with this employee who now moves up to the Division front office staff.

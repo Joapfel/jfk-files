@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_28370.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR: Chief, Finance Division
+FROM : Contract Personnel Division
+SUBJECT : Contract Extension for
+
+Edmund C. TICHBORN
+
+1. Effective 19 May 1964, the contract (as amended) for the subject individual, effective 19 May 1961 is extended for a period of 9m (6) months.
+
+2. All other terms and conditions of the contract (as amended) remain in full force and effect.
+
+UNITED STATES GOVERNMENT
+
+BY
+Contracting Officer
+
+SECRET
+
+Group I - Excluded from automatic downgrading and declassification.

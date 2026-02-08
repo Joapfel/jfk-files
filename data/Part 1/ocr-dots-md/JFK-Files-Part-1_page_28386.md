@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_28386.png
+
+Convert to MarkdownSECRET
+
+22 May 1961
+
+MEMORANDUM FOR: Contract Payroll Division
+
+SUBJECT: Edward G. TICHBORN (P)
+
+1. Please cancel Edward G. TICHBORN's present contract effective as of, say May 1961.
+
+2. A new contract for Subject will be requested by the WH Division in the immediate future.
+
+Thomas F. McCoy
+Acting Chief
+Political Action Group
+Covert Action Staff
+
+SECRET

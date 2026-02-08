@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_28834.png
+
+Convert to Markdown<table><thead><tr><th colspan="4">NOTIFICATION OF PERSONNEL ACTION</th></tr><tr><td>1 NAME (Mr., Mrs. or One (sirs,女士) and surnames)</td><td>2 DATE OF BIRTH</td><td>3 JOURNAL OR ACTION NO.</td><td>4 DATE</td></tr></thead><tbody><tr><td>Mr. Robert T. SHAW</td><td>6/28/25</td><td>P3</td><td>12/9/94</td></tr><tr><td colspan="4">This is to notify you of the following action affecting your employment:</td></tr><tr><td>5. NATURE OF ACTION (Is standard terminology)</td><td>6. EFFECTIVE DATE</td><td>7. CIVIL SERVICE OR OTHER LEGAL AUTHORITY</td><td></td></tr><tr><td>Resignation for Personal Reasons without Prejudice</td><td>GCB<br/>7/30/54</td><td></td><td></td></tr><tr><td colspan="2">FROM<br/><br/>Economic Officer<br/>OQ-11<br/>Vice Consul<br/><br/>788-9 85079<br/><br/>Guayaquil<br/><br/>☐ FIELD ☐ DEPARTMENTAL ☐ Regular ☐ Non-US</td><td>TO<br/><br/>S. POSITION TITLE AND NUMBER<br/><br/>Diplomatic or Consular Title<br/><br/>S. SCHEDULE, SERIES, NO. GRADE, SALARY<br/><br/>10. ORGANIZATIONAL DESIGNATIONS<br/>Post<br/><br/>11. HEADQUARTERS<br/><br/>12. DS CATEGORY ☐ FIELD ☐ DEPARTMENTAL ☐ Regular ☐ Residential ☐ Non-US</td><td></td></tr><tr><td colspan="2">☑ FIELD ☐ DEPARTMENTAL ☐ Regular ☐ Non-US</td><td>14 POSITION CLASSIFICATION ACTION<br/><br/>GEN VICE I. A. REAL<br/><br/>17 RETIREMENT COVERAGE ☑ C&C ☐ RS ☐ FICA ☐ NOVED<br/><br/>U. DATE OF APPOINTMENT AFFIDAVITS (Accessions Only)<br/><br/>☑ RESIDENT <u>RS</u> ☐ NON-RESIDENT <u>NRS</u></td><td>13 LEGAL RESIDENCE<br/><br/>☐ CLAIMS ☐ PROVED STATE</td></tr><tr><td colspan="4">2. This action is subject to all applicable laws, rules and regulations and may be subject to investigation and approval by the United States Civil Service Commission or the Department.</td></tr></tbody></table>
+
+14-0000
+
+PERSONNEL FOLDER
+
+Page-footer: 1

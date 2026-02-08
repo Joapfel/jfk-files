@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_29292.png
+
+Convert to Markdown14-00000
+
+# Contract Service - Irving C. Devezzo (P)
+
+Date Action Compensation Equivalent
+
+Retired (Longevity) USAF Captain 9,500
+10 Feb 61 Hired a Contract Employee with Social Security, No LPAs or PSIs.
+
+Contract Terminated 9,500
+
+Hired as a Career Agent with Civil Service Retirement, LPAs and PSIs, 11,155 GS-13/3
+1 June 61
+
+Pay increase 16,152 GS-14/3
+
+LPI 16,897 GS-14/3
+31 Oct 67 Contract terminated 16,897 GS-14/3
+1 Nov 67 Career Agent with Civil Service Retirement, LPAs and PSIs. 16,897 GS-14/3
+LPI 18,076 GS-14/3
+PSI 19,691 GS-14/4
+14 Jul 68
+11 Aug 68
+13 Jul 69
+28 Dec 69
+9 Aug 70
+10 Jan 71
+8 Aug 71
+10 Sep 71
+
+Designated participant in the OCS retirement and disability plans. 20,385 GS-14/5
+21,608 GS-14/5
+22,263 GS-14/5
+23,591 GS-14/5
+Contract terminated 23,891 GS-14/5
+
+Designated participant in the ODS retirement and disability plans.

@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_28290.png
+
+Convert to MarkdownSECRET - SECURITY INFORMATION
+
+CONTRACT PERSONNEL
+
+OFFICE OF PERSONNEL
+
+RETURN FILE TO S.E.S.
+
+<table><tr><td>NOTICE: This is an Office of Personnel File and subject to 10 day limitation period. This file has been charged to [Name] for review, and is due to be returned to the CONTRACT PERSONNEL DIVISION, SP-67 Rqs., x7841, as of</td></tr></table>
+
+JOE 27-95-1
+JOB 44-7530 JOL 4
+JON W-95-1
+JOD 27-95-1
+
+14-00000

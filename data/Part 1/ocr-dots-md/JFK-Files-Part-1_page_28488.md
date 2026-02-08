@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_28488.png
+
+Convert to Markdown21 May 1951
+
+TO: Personnel Director, CIA
+
+VIA: ADMIN and PDC
+
+PRO: PDN
+
+SUBJECT: Trent H. Bagley
+
+1. It is requested that permission be procured from the Marine Corps and the Selective Service for subject to leave the country on a two-year assignment with this Agency in Austria.
+
+2. Below is the information on subject's draft and reserve unit:
+
+A) Selective Service:
+
+Board:
+
+Local Board No. 2
+1729 New York Avenue, N. W.
+Washington 25, D. C.
+
+Classification: L-A
+
+Selective Service Number: 49125188
+
+Home Address: 2168 Florida Avenue, N.W., Washington, D. C.
+
+B) Marine Reserve:
+
+Rank and Serial Number: First Lieutenant - 017506
+
+Marine Reserve Unit: 11th Marine Corps Reserve District
+
+3. Subject has been in the Agency since 21 July 1950 and is unusually well qualified for intelligence work in Austria. If the above permissions are granted, subject will be sent immediately to his assignment.
+
+For the Assistant Director, Special Operations
+
+APPROVED:
+
+Hugh T. Cunningham
+Acting Chief, FDM
+
+JUN 51
+Permission received from
+Marine Corps & Reserve.
+Handwritten note under APApproved:
+Signed by E. Limbacy
+Date: 6-11-51
+
+10 Jun 1951
+
+The text of the original document is not legible due to the low resolution and quality of the image. The written content appears as gibberish on the scanned image.
+
+The handwritten note states "Handwritten note under AP Approved:" and "Signed by E. Limbacy" at the bottom of the image.
+
+The handwritten signature is E. Limbacy, which matches the name of one of the officers mentioned in the letter.

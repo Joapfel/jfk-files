@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_28569.png
+
+Convert to Markdown28 April 1969
+
+MEMORANDUM IN LIEU OF FITNESS REPORT
+
+SUBJECT
+: Tennent H. Bagley, GS-16, Employee
+ Serial Number 056043; DOB:
+ November 11, 1925; Chief of
+ Station; Career; Service
+ Designation: D.
+
+PERIOD UNDER REVIEW : 10 March 1968 - 31 March 1969
+MONTHS UNDER MY SUPERVISION: 12
+OVERALL RATING : Strong
+
+1. Mr. Bagley assumed his duties as Chief of Station on 13 September 1967. It is too early to assess the results of his stewardship; he established in advance a timetable for building up a structure of unilateral agent assets, and it is not yet clear to what extent these assets are going to be productive against major targets. However, there is no doubt that Bagley has tackled his job with originality, energy, and enthusiasm. A good indication of these qualities is that, alone among our European Chiefs of Station, Bagley has himself recruited at least half a dozen new agent assets in less than two years.
+
+2. Bagley's accomplishments must be measured in light of the fact that he has had a weak Deputy Chief of Station, and that several of the officers in his small Station have been of quite modest calibre. The restaffing of the Station which is taking place this summer should result in a considerable leap forward.
+
+3. On the personal side, Bagley has all the qualities which we could ask for in a Chief of Station. He is totally dedicated, incisive and articulate, a pleasant companion and a gracious host. I rate his overall performance as Strong.
+
+John L. Hart
+Chief,
+European Division
+
+13 MAY 1969
+
+<table><tr><td>EXH.</td></tr></table>

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_28191.png
+
+Convert to MarkdownCONFIDENTIAL
+
+5 May 1975
+
+MEMORANDUM FOR: Frederick C. Randall.
+SUBJECT: Letter of Instruction
+REFERENCE: DON 1-1289 dated 3 February 1975
+
+1. The purpose of this Letter of Instruction is to fulfill my responsibility to provide you with a statement of your responsibilities as the Freedom of Information Officer for the Directorate of Operations, to assist you in focusing your efforts and activities, and to assist me in judging and evaluating your performance and potential.
+
+2. Your primary responsibility is to fulfill the requirements of the Freedom of Information Act that pertain to the Directorate of Operations on behalf of the Deputy Director for Operations. To accomplish this, you will be the central point of contact for all FOI matters within the DDO. You will develop procedures designed to ensure that FOIA requests for information are fulfilled or legitimately denied, taking into account both the provisions of the FOIA and existing laws that require the Central Intelligence Agency to protect that information necessary to the continuation of its mission. You will suggest and promote courses of action which should be implemented to fulfill your responsibilities and carry out policies levied upon you by higher authority, including preparation of appropriate rationale and/or options for those cases requiring denial of release by me as the DDO official so authorized.
+
+3. You will develop a staff of personnel to assist you in the performance to your mission, and provide effective guidance to them.
+
+4. You will be directly responsible to me as the Chief, Services Staff and receive direction and support from me, serving as my Special Assistant. You are encouraged to take maximum initiatives on FOI matters with principal components of the DDO and concerned elements of CIA outside the DPO, keeping me generally informed of your activities.
+
+CONFIDENTIAL
+
+CI. BY 011078
+E2 IMPDET
+
+14-00000

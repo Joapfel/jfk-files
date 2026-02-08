@@ -1,0 +1,75 @@
+# JFK-Files-Part-1_page_29166.png
+
+Convert to Markdown(4)
+
+OCCUPATION housewife
+
+LAST EMPLOYER Detroit Board of Education
+
+1927
+
+EMPLOYER'S OR OWN BUSINESS ADDRESS
+***
+(Bt. and Number) (City) (State) (Country)
+***
+MILITARY SERVICE FROM ----- TO ------ BRANCH OF SERVICE
+***
+COUNTRY DETAILS OF OTHER GOVT. SERVICE, U. S. OR FOREIGN
+
+SEC. 7. BROTHERS AND SISTERS (Including half-, step-, and adopted brothers and sisters):
+
+1. FULL NAME Nancy Zehrung AGE 21
+   (First) (Middle) (Last)
+   PRESENT ADDRESS Verity Hall, Middletown Hospital, Middletown, Ohio, USA
+   (St. and Number) (City) (State) (Country) (Citizenship)--USA
+   Dorothy Jon Zehrung
+
+2. FULL NAME Mary Zabriskie AGE 17
+   (First) (Middle) (Last)
+   PRESENT ADDRESS San Rue Gardens, Dayton 9, Ohio, USA, USA
+   (St. and Number) (City) (State) (Country) (Citizenship)
+   Elizabeth Zehrung
+
+3. FULL NAME Mary Zabrowarska AGE 16
+   (First) (Middle) (Last)
+   PRESENT ADDRESS San RUE Gardels, Dayton 9, Ohio, USA, USA
+   (St. and Number) (City) (State) (Country) (Citizenship)
+   Elizabeth
+
+4. FULL NAME (First) (Middle) (Last) AGE
+   PRESENT ADDRESS (St. and Number) (City) (State) (Country) (Citizenship)
+   (St. and Number) (City) (State) (Country)
+
+5. FULL NAME (First) (Middle) (Last) AGE
+   PRESENT ADDRESS (St. and Number) (City) (State) (Country) (Citizenship)
+   (St. and Number) (City) (State) (Country)
+
+SEC. 8. FATHER-IN-LAW
+
+FULL NAME
+***
+(First) (Middle) (Last)
+LIVING OR DECEASED
+***
+DATE OF DECEASE
+***
+CAUSE
+PRESENT, OR LAST, ADDRESS
+***
+(St. and Number) (City) (State) (Country)
+DATE OF BIRTH
+***
+PLACE OF BIRTH
+IF BORN OUTSIDE U.S. INDICATE DATE AND PLACE OF ENTRY
+***
+CITIZENSHIP
+***
+WHEN ACQUIRED?
+WHERE?
+(City) (State) (Country)
+OCCUPATION
+***
+LAST EMPLOYER
+***
+
+14-00000

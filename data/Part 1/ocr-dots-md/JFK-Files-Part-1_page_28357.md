@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_28357.png
+
+Convert to Markdown18 Oct 66
+
+C/CPO:
+
+Attached is a draft of an amendment on TICHBORN.
+Note memo of request asks for an increase in basic
+fee from $12,000 to $17,000& based on TICHBORN's
+"overall performance and full time services". This
+
+Additional memoranda in file reflect the
+following:
+
+(1) 19 May 1961 contract (still in effect) provided
+a basic fee of $8000 with no mention of amount
+of time subject worked to earn such.
+
+(2) WH memo of 13 June 63 asked a pay increase from $5000 to $5000 based upon, "manner of TICHBORN's performance and the increase am. of time which he devotes to Agency requirements".
+
+(3) WH dispatch of 9 Nov 64 said that, "Hqs agrees that present expiring contract called for about 2/3rds subject's time---TICHBORN pointed out.... he now engaged 90% of his time for Agency".
+
+(4) WH memo of 24 Nov 64 requested an increase from $5000 to $12,000 based upon TICHBORN'S increased value plus "using TICHBORN's service on substantially a full time basis".
+
+(5) As cited above, current WH memo of 7 Oct 66 asks for an increase of $44 from $12,000 to $17,000 based on subject's "overall performance and full time services".
+
+I pointed out the above chron with respect to
+the ever increasing usage of subject's time to Renekah
+who apparently feels the last memo is OK unless CPD
+desires to make a formal objection and return it.
+
+Paul

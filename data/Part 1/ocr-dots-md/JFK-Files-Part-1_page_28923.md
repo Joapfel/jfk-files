@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_28923.png
+
+Convert to MarkdownCONFIDENTIAL
+
+25 APR 1963
+
+MEMORANDUM FOR: CSFO/Career Agent Panel
+SUBJECT : Salary Increase
+
+1. It is requested that Mr. [Signature]'s contract with this Agency as a Career Agent be amended to reflect a salary increase to the equivalent of a GS-14. His present salary is equal to a GS-13(4), $12,245; the increase is computed to be the equivalent of GS-14(2), $13,270.
+
+2. Mr. [Signature] who is contracted by the Agency under the ZRJEMEL program, is presently assigned to the Saigon Station where he functions as the Station paramilitary staff officer, senior advisor on the major counterinsurgency programs. His extensive background and experience in Vietnam has made him a particularly valuable officer and asset to the Station. His overall performance is evaluated in his Fitness Report as strong. The Chief of Station, Saigon, has recommended that Mr. [Signature] be given a promotion to the GS-14 equivalent and the Acting Chief, SOD, concur.
+
+3. The amendment should be effective with the next pay period.
+
+Approved By: CS/CS Mcdl. Panel
+(Dated) 9 May; 1963
+~~Lorin E. Callow~~
+Chief, Far East Division
+
+Secretary, C.A.
+1
+
+CONFIDENTIAL'

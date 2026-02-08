@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_28754.png
+
+Convert to MarkdownDate: 1/23/79
+
+MEMORANDUM FOR: CHIEF, O/S
+SUBJECT : Request for Estimate of Annuities JS G
+
+1. Please provide estimate of annuities for:
+
+Name: Resident T Stew
+Grade: C.S. - 16
+Component: 1G
+DOB: 06 18 25
+SCD: 09 22 46
+System: CODRCS
+ETR: 11 Dec. 1958
+
+2. Remarks: OP FLC AMENDED ROSE KERWIN
+COULD NOT FIND CODRCS FLC
+
+Counselor, ROB/RAD
+
+CONFIDENTIAL (when filled in)

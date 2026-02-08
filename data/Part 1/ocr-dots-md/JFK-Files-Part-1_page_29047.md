@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_29047.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="2">NOTIFICATION OF ESTABLISHMENT<br>OF MILITARY COVER BACKSTOP</th><th>DATE</th></tr></thead><tbody><tr><td rowspan="3">TO:<br>(Check)</td><td>X CHIEF, RECORDS AND SERVICES DIVISION</td><td>7 August 1962</td></tr><tr><td>CHIEF, OPERATING COMPONENT, WH</td><td>ESTABLISHED FOR<br>(NEE: ZEHRUNG)</td></tr><tr><td>ATTN:</td><td>BUSTOSVIDELA, Charlotte Z.</td></tr><tr><td>REF:</td><td>WH/SS Mr. Mullane</td><td>FILE NO.<br>3190</td></tr><tr><td colspan="2">Verbal Request for Cover, Form 1322 Dated 31 Jul 62</td><td>ID CARD NO.</td></tr><tr><td colspan="2">MILITARY COVER BACKSTOP ESTABLISHED</td><td></td></tr><tr><td colspan="2">U.S.Army Element, Joint Operations Group (8739)</td><td></td></tr></tbody></table>
+
+<table><tbody><tr><td>x</td><td>BLOCK RECORDS:<br>(OPMEMO 20-800-11)<br>a. TEMPORARILY FOR ____ DAYS, EFFECTIVE ____________<br><br>XbX CONTINUING, EFFECTIVE 7 August 1962 _________</td></tr><tr><td></td><td>SUBMIT FORM 642 TO CHANGE LIMITATION CATEGORY TO 3.<br>(HB 20.800.2)</td></tr><tr><td></td><td>ASCERTAIN THAT ARMY N-2 BEING ISSUED.<br>(HB 20.661.1)</td></tr><tr><td></td><td>SUBMIT FORM 1024 IF ALL CHANGES AFFECTING THIS COVER.<br>(R 740 750)</td></tr><tr><td></td><td>SUBMIT FORM 1322 FOR TRANSFERRING COVER RESPONSIBILITY.<br>(R 740.750)</td></tr><tr><td></td><td>REMARKS:</td></tr><tr><td></td><td>COPY TO CFO/OF</td></tr></tbody></table>

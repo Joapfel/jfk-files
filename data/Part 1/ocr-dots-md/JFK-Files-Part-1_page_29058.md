@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_29058.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+MAN: 18 JULY 67
+
+<table><thead><tr><th>1. SERIAL NUMBER</th><th>2. NAME (LAST-FIRST MIDDLE)</th></tr></thead><tbody><tr><td>(007667</td><td>BUSTOSVIDELA C Z</td></tr><tr><th colspan="2">3. NATURE OF PERSONNEL ACTION<br/>REASSIGNMENT AND TRANSFER TO CONFIDENTIAL FUNDS</th></tr><tr><td>4. FUNDS</td><td>V TO V<br/>X<br/>CF TO V<br/>CF TO CF</td></tr><tr><th colspan="2">9. ORGANIZATIONAL DESIGNATIONS<br/>DDP/WH<br/>FOREIGN FIELD BRANCH 1<br/>MEXICO CITY, MEXICO STATION</th></tr><tr><th colspan="2">11. POSITION TITLE<br/>OPS OFFICER</th></tr><tr><th>14. CLASSIFICATION SCHEDULE (GS, IB, etc.)<br/>GS</th><th>15. OCCUPATIONAL SERIES<br/>(0136.01</th></tr><tr><th>12. POSITION NUMBER</th><th>13. SERVICE DESIGNATION<br/>D</th></tr><tr><th>16. GRADE AND STEP</th><th>17. SALARY OR RATE<br/>13769</th></tr></tbody></table>
+
+10 REMARKS<br/>OPS OFFICER OCCUPIING INTEL ANALYST POSITION.
+
+<table><thead><tr><th colspan="10">SPACE BELOW FOR EXCLUSIVE USE OF THE OFFICE OF PERSONNEL.</th></tr><tr><th>19 ACTION CODE</th><th>20. Employer Code</th><th>21 OFFICE CODING</th><th>22. STATION CODE</th><th>23. INTERGRANULAR CODE</th><th>24. NAME</th><th>25 DATE OF BIRTH</th><th>26 DATE OF GRADE</th><th>27. DATE OF LEAVE</th></tr></thead><tbody><tr><td>20</td><td>10</td><td>51620 WH</td><td>45075</td><td>3</td><td>(01 12)29</td><td></td><td></td><td></td></tr><tr><th colspan="2">28 NIE EXPIRES</th><th>29 SPECIAL REFERENCE</th><th>30 RETIREMENT DATA</th><th>31 SEPARATION DATA CODE</th><th colspan="4"></th><th rowspan="2">FOD DATA</th></tr><tr><th>NO.</th><th>DA</th><th>TY</th><th>CODE</th><th></th><th>LIFETIME</th><th>M</th><th>N</th><th>TO</th><th>SECURITY AND PROTECTION NO.</th></tr><tr><td>07</td><td>15 169</td><td>82</td><td></td><td></td><td></td><td></td><td></td><td></td><td>34 SER</td></tr><tr><th colspan="2">35 YET PREFERENCE</th><th colspan="2">16 SERVICE COMP DATE</th><th colspan="2">37 LONG COMP. DATE</th><th colspan="2">33 CAREER CATEGORY</th><th>39 PERPETUAL HEALTH INSURANCE</th><th>40 SOCIAL SECURITY NO.</th></tr><tr><th>CODE</th><th>D</th><th>M</th><th>S</th><th>A</th><th>T</th><th>R</th><th>H</th><th>CODE</th><th>NAME</th></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td>JO HAWKER<br/>T. YES</td></tr><tr><th colspan="2">41 PREVIOUS CIVILIAN GOVERNMENT SERVICE</th><th colspan="2">42 LEAVE CAT<br/>CODE</th><th colspan="2">43 FEDERAL TAX DATA</th><th colspan="2">44 SPACE TIT DATA</th><th colspan="2"></th

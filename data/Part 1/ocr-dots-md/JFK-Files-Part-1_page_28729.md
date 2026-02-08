@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_28729.png
+
+Convert to Markdown14-0000
+
+DEPARTMENT OF STATE
+FOREIGN SERVICE INSTITUTE
+WASHINGTON
+
+June 28, 1966
+
+Dear Mr. Shaw:
+
+Friday we received your trade from the United States Department of Agriculture Graduate School in Modern Supervisory Practice.
+
+We wish to congratulate you on making an A* in the course. To my knowledge, this is the first A* received in any correspondence study course to be taken by Department personnel.
+
+We trust that the course will be useful to you--and again congratulations.
+
+Mr. Robert T. Shaw
+American Embassy
+MEXICO

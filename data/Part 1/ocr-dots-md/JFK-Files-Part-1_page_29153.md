@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_29153.png
+
+to the executives I was responsible for purchasing stock for the gift shoppe and laboratory clerks and greenhouse employees. I had all responsibility of the books and cash. I made reports on the business and acted as sales clerks for the shoppe.</td><td></td></tr><tr><td>Duty Station if overseas:</td><td>and a landscape gardener</td></tr></table>
+
+<table><tr><td>Exact Title of your position</td><td></td></tr><tr><td colspan="2">Assistant Bookkeeper</td></tr><tr><td>Description of Duties:</td><td>I made monthly financial reports, had the responsibility of the books, did typing and other general office work.</td></tr><tr><td>Duty Station if overseas:</td><td></td></tr><tr><td>Exact Title of your position</td><td></td></tr><tr><td>Description of Duties: I worked one month in the office of the Chemical Laboratory and two months in the factory.</td><td></td></tr><tr><td>Duty Station if overseas:</td><td></td></tr><tr><td>Exact Title of your position</td><td></td></tr><tr><td>Description of Duties:</td><td></td></tr><tr><td>Duty Station if overseas:</td><td></td></tr></table>
+
+<table><tr><td>Exact Title of your position</td><td></td></tr><tr><td colspan="2">Assistant Bookkeeper</td></tr><tr><td>Description of Duties:</td><td>I worked one month in the office of the Chemical Laboratory and two months in the factory.</td></tr><tr><td>Duty Station if overseas:</td><td></td></tr><tr><td>Exact Title

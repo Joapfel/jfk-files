@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_28979.png
+
+Convert to Markdown13 August 1956
+
+MEMORANDUM FOR: CHIEF, MILITARY PERSONNEL DIVISION
+SUBJECT : Major Lucien F. CORBIN
+
+Major Lucien F. CORBIN is released by this Division for return to his parent military service effective 15 October 1956. Major CORBIN plans to take military leave from 18 August through 30 September 1956. The period 1-15 October will be occupied with operational debriefings and final clearance processing.
+
+ALYNN G. ULDER,
+Chief, Far East Division

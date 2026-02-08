@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_28733.png
+
+Convert to MarkdownAMERICAN EMBASSY
+MEXICO, D. F.
+
+June 3, 1965
+
+EMBASSY MEMORANDUM
+
+TO : All FSOs, FSSs and FSRs in Mexico City
+
+FROM : Ralph Scarritt, Administrative Officer
+
+SUBJECT: FOREIGN SERVICE INSTITUTE: Correspondence Course in Modern Supervisory Practice, Number 205C.
+
+REF. : CA-12771 dated May 28, 1965
+
+Following is the text of the referenced communication:
+
+The Extension Training Division of the Foreign Service Institute is offering for the first time a correspondence course MODERN SUPERVISORY PRACTICE.
+
+The course is recommended for supervisors at all levels. It has been developed by W. R. Van Dersal, N.A. Berg and J. B. Rogers of the United States Department of Agriculture Graduate School. Dr. Van Dersal is a regular lecturer and discussion leader for management classes at the Foreign Service Institute and is highly recommended by FSI as a valued contributor to their programs and ... . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .

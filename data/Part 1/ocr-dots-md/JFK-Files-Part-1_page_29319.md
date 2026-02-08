@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_29319.png
+
+Convert to MarkdownCONFIDENTIAL
+
+2 AUG 1971
+
+MEMORANDUM FOR: Chief, Contract Personnel Division
+SUBJECT : Designation of Grayston-Lynden as a Participant in the CIA Retirement and Disability System
+
+It is requested that the contract of Grayston L. Lynch be amended to officially record his designation as a participant in the CIA Retirement and Disability System effective 8 August 1971.
+
+Harry B. Fisher
+Director of Personnel
+
+CONFIDENTIAL
+
+<table><tr><td>635</td></tr><tr><td colspan="2">Rec'd in House</td></tr><tr><td colspan="2">Accompanied by<br/>Gus B. Fisher</td></tr></table>

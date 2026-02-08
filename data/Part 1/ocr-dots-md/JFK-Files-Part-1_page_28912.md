@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_28912.png
+
+Convert to Markdown5 OCT 1973
+
+MEMORANDUM FOR: Chief, Contract Personnel Division/CP
+SUBJECT: SCHRICKBATH, Arthur R.
+Transfer to F8 Division
+
+Arthur R. SCHRICKBATH, Career Agent, transferred from VI
+Division to FB Division effective 20 August 1965. Please
+change subject's allotment number to 6137-1487, Saigon Station.
+
+/s/ Harold E. Falgett
+Joseph W. Smith
+AC/FB Division
+
+Concurs:
+
+C/WF/For

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_28180.png
+
+Convert to MarkdownDepartment of Defense Computer Institute
+
+The Department of Defense Computer Institute
+has conferred upon
+
+MR. FREDERICK C. RANDALL
+
+this certificate denoting satisfactory completion of the
+Computer Orientation for Intermediates Course
+granted at the City of Washington, District of Columbia.
+
+22 APRIL 1977
+
+DATE
+
+G. CHAREST, CAPTAIN, U. S. NAVY
+DIRECTOR

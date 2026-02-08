@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_28885.png
+
+Convert to MarkdownDEPARTMENT OF STATE
+WASHINGTON
+
+AUG 9 1963
+
+CONGRATULATIONS
+
+Dear Admiral,
+
+The purpose of this letter is to express our sincere gratu- lations for the retirement of Captain John F. Baker, U.S.M.R., and his replacement by Captain James R. Bowers, U.S.M.A.
+
+Admiral Baker has served with distinction for a tour of duty of 13 months. His absence from the Department will be felt in a period not to exceed 24 months. During this period the Department will continue its usual relations with the Navy, War, and Revenue Offices, and such other matters as will be specified. In addition, the Department will continue its usual relations with the War, per diem, and other expenses incident to their travel, pay, and transportation.
+
+In view of the many benefits I have received from your Department while serving there, I feel it my duty to express my sincere thanks. I take this opportunity to thank you, my fellow officers, for your consideration and kind treatment. I also wish to express my sincere appreciation of your kind assistance in making my transition from active duty to private life a smooth one. I extend to each of you my warmest wishes and sincereThanks.
+
+Sincerely yours,
+
+J. Bldg. 17, N. 5th St., Washington, D.C.
+
+Thank you very much for your kind assistance, and for your consideration and kind treatment. I also wish to express my sincere thanks for the kind office available to me at Washington, where I will remain for two more months to complete my transition from active duty to private life. I extend to each of you my warmest wishes and sincere thanks for your consideration and kind treatment. I also wish to express my sincere thanks for the kind office available to me at Washington, where I will remain for two more months to complete my transition from active duty to private life.
+
+Thank you very much for your kind assistance, and for your consideration and kind treatment. I also wish to express my sincere thanks for the kind office available to me at Washington, where I will remain for two more months to complete my transition from active duty to private life. I extend to each of you my warmest wishes and sincere thanks for your consideration and kind treatment. I also wish to express my sincere thanks for the kind office available to me at Washington, where I will remain for two more months to complete my transition from active duty to private life. I request that all necessary documents be sent to the Department, so that I can present them to you during my visit to Washington. I also wish to express my sincere thanks for the kind office available to me at Washington, where I will remain for two more months to complete my transition from active duty to private life.
+
+Thank you very much for your kind assistance, and for your consideration and kind treatment. I also wish to express my sincere thanks for the kind office available to me at Washington, where I will remain for two more months to complete my transition from active duty to private life. I extend to each of you my warmest wishes and sincere thanks for your consideration and kind treatment. I also wish to express my sincere thanks for the kind office available to me at Washington, where I will remain for two more months to complete my transition from active duty to private life. I request that all necessary documents be sent to the Department, so that I can present them to you during my visit to Washington. I also wish to express my sincere thanks for the kind office available to me at Washington, where I will remain for two more months to complete my transition from active duty to private life. I also wish to express my sincere thanks for the kind office available to me at Washington, where I will remain for two more months to complete my transition from active duty to private life. I request that all necessary documents be sent to the Department, so that I can present them to you during my visit to Washington. I also wish to express my sincere thanks for your consideration and kind treatment. I also wish to express my sincere thanks for the kind office available to me at Washington, where I will remain for two more months to complete my transition from active duty to private life. I extend to each of you my warmest wishes and sincere thanks for your consideration and kind treatment. I also wish to express my sincere thanks for the kind office available to me at Washington, where I will remain for two more months to complete my transition from active duty to private life. I request that all necessary documents be sent to the Department, so that I can present them to you during my visit to Washington. I also wish to express my sincere thanks for your consideration and kind treatment. I also wish to express my sincere thanks for the kind office available to me at Washington, where I will remain for two more months to complete my transition from active duty to private life. I extend to each of you my warmest wishes and sincere thanks for your consideration and kind treatment. I also wish to express my sincere thanks for the kind office available

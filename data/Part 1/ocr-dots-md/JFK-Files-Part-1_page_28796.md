@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_28796.png
+
+Convert to Markdown14-09-00
+
+REQUEST FOR PERSONNEL ACTION
+
+<table><tr><td colspan="3">PART I. REQUESTING OFFICE (All items except those in italics are required)</td></tr><tr><td colspan="2"><table><tbody><tr><td>A DATE OF REQUEST:</td><td>2/26/63</td></tr><tr><td>A NAME (CAPS.):</td><td>ASAP</td></tr></tbody></table></td><td>REQUEST NUMBER:</td><td><table><tbody><tr><td>D SERVICE<br/>FROM:</td><td>(Handwritten): 2/26/63</td><td>(Handwritten): C</td></tr><tr><td>F S</td><td>(Handwritten): 537700</td><td>(Handwritten): M</td></tr></tbody></table></td></tr><tr><td colspan="3">I NAME (CAPS): SHAW, ROBERT T.</td><td>POSITION:</td><td>EMPLOYEE NO.: 537700 M</td></tr><tr><td colspan="3">(F) AND OF ACTION REQUESTED (IF PERSONNEL Y/N):</td><td>POSITION:</td><td>BIRTH DATE: 06/28/25</td></tr><tr><td colspan="3"></td><td>RF CODE:</td><td>Skill Code:</td></tr><tr><td colspan="3">(12 POSITION IF APPLICABLE):</td><td colspan="2"></td></tr></table>
+
+<table><tr><td rowspan="2">2</td><td rowspan="2">5 VETERAN PREFERENCE<br/>1-NO<br/>2-SE</td><td rowspan="2">3-TO FT DSM<br/>4-TO FT COMP</td><td rowspan="2">3-TO FT OTHER</td><td rowspan="2">6 TENURE CODE<br/>G</td><td>8 PHYSICAL HANDICAP CODE</td></tr><tr><td>1-RM-CF<br/>CONF-D<br/>DATE</td></tr><tr><td>9 REG</td><td>1 COVERED</td><td>2 ELIGIBLE</td><td>3 WAIVED</td><td>10 RETIREMENT<br/>1- CS<br/>2 FCA<br/>3 FCR</td><td>3 FS<br/>4 HOME<br/>5 SPECIAL</td><td>10A MO & YEAR OF GRAD<br/>03-63</td><td>11 (No CM sent)</td></tr><tr><td rowspan="2">171<br/>CODE:<br/>LIMITED</td><td rowspan="2">BSR Appointment - limited</td><td rowspan="2"></td><td rowspan="2"></td><td rowspan="2">13 EFFECTIVE DATE (APPLICABLE)<br/>3-27-63</td><td colspan="2">14 CIVIL SERVICE OR OTHER LEGAL AUTHORITY</td></tr><tr><td>Section 522.1 - P. L. 724 -<br/>79th. Congress as amended</td><td></td><td></td></tr></table>
+
+<table><thead><tr><th>15 FROM POS NO</th><th>POSITION TITLE</th><th>16 PAY PLAN AND OCCUPATION CODE</th><th>17 GRADE OR LEVEL</th><th>18 SALARY</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="5">19 ORGANIZATION DESIGNATION</td></tr><tr><td colspan="5">✓ Stewart</td></tr></tbody></table>
+
+<table><tr><td rowspan="2">20 TO POS NO<br/>3-229</td><td rowspan="2">POSITION TITLE<br/>Consular Officer<br/>*Consult (when confirmed)*</td><td rowspan="2">21 DUTY PLAN AND<br/>OCCUPATION CODE<br/>FR- 3011<br/>F-6</td><td rowspan="2">22 GRADE<br/>04<br/>0-6</td><td>STEP</td><td>23 SALARY<br/>(p.a. $11,880)<br/>15</td><td>WORK SCHEDULE</td></tr><tr><td>(p.a. $11,880)<br/>15</td></tr><tr><td colspan="

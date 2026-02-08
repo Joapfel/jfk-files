@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_28998.png
+
+Convert to Markdown<table><tr><td>S-E-C-R-E-T</td></tr></table>
+
+CLASSIFIED MESSAGE
+
+DATE : 29 JUL 55
+
+TO : DIRECTOR
+
+FROM : SAIGON
+
+ACTION: FE 7
+
+INFO : FI/RI 2, SSA, FD 3, OL/TD 2, OP 2, S/C 2
+
+JUL 30 1955
+
+SAIG 7807 (IN 30141) 1657Z 29 JUL 55
+
+TO: DIR
+TOSPUN ADMIN
+
+ARRIVED SAIG 29 JULY 55.
+
+END OF MESSAGE
+
+IT IS FORBIDEN TO MAKE A COPY OF THIS MESSAGE Copy No. 1
+
+<table><tr><td>S-E-C-R-E-T</td></tr></table>

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_28812.png
+
+Convert to Markdown<table><thead><tr><th>Request for<br>Travel Authorization</th><th>CHECK<br>STATUS</th><th>OPERATING<br>COAT</th><th>PURCHASE ORDER<br>PURCHASE ORDER NO.</th><th>SIGNATURE<br>(APPROVED)</th><th>SIGNATURE<br>(AUTHORIZED)</th><th>DATE</th><th>TOTAL<br>TO: (F.O. NO.)</th></tr></thead><tbody><tr><td colspan="4"></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="8">DUE TO: 5/30</td></tr></tbody></table>
+
+PER: PCO: WROS: 1200
+
+TCHM
+
+DT
+
+202105060549
+
+<table><tr><td rowspan="3">Form DB-1031 Reception to BP-33<br>Approved by the Bureau of the Budget<br>May 1984<br>DEPARTMENT OF STATE<br>REQUEST FOR PERSONNEL ACTION</td><td>ROUTING</td><td>4 T<br>1 WROB<br>A ARA<br>AAB</td><td>6</td><td>0</td><td></td><td>SERVICE<br>X</td><td></td></tr><tr><td></td><td></td><td></td><td></td><td>TRACS</td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td>11</td><td></td><td></td></tr><tr><td>I. NAME (Mr.-Miss-Mrs.-One given name, initial (s), and surname)<br>Mr. Robert T. SHAW</td><td>B DATE OF BIRTH<br>6-18-25</td><td>J. REQUEST NO.<br>FBR-4</td><td>3. EFFECTIVE DATE<br>7-26-59</td><td>G. DATE OF REQUEST<br>3-26-59</td><td></td><td>H. C.B. OR OTHER<br>LEGAL AUTHORITY</td><td></td></tr><tr><td>B. NATURE OF ACTION REQUESTED<br>A. PERSONNEL (Specify whether appointment, promotion, separation, etc.)<br>Direct Transfer to the Department (DT-#11)<br>B. POSITION (Specify whether establish, change grade or title, etc.)</td><td></td><td></td><td></td><td></td><td>D. DEPARTMENTAL<br>RESIDENTIAL</td><td></td><td></td></tr><tr><td colspan="4">FROM--Political Officer<br>1-1011-009<br>Consult<br>FBR-4<br>DS-1032 Journalized<br>Nogales<br>Date 2/29/9<br>BY -- DEPARTMEN<br>BY -- RESIDENT</td><td>S. POSITION TITLE AND NUMBER<br>Diplomatic or Consular Title<br>V. SCHEDULE, SERIES, NO., GRADE, SALARY<br>10. ORGANIZATIONAL DESIGNATIONS<br>Post<br>11. MEADQUARTERED<br>12. DS CATEGORY<br>PSS Category</td><td></td><td></td><td></td></tr><tr><td colspan="4"></td><td></td><td>TO-- Foreign Service Reserve Officer<br>FBR-4<br>$9900<br>Department<br></td><td></td><td></td></tr><tr><td colspan="4">☐ FIELD<br>☐ REGULAR</td><td>☐ FIELD<br>☐ REGULAR</td><td>☐ DEPARTMENTAL<br>☐ RESIDENTIAL</td><td></td><td></td></tr><tr><td colspan="8">10. VETERAN PREPARATION<br>OR<br>9-P.T.<br>DISABILITIES OTHER TO<br>10-PT,<br>OTHERS</td></tr><tr><td colspan="4"></td><td>14 FULL STAFFING ALLOTMENT<br>☐ YES<br>☐ NO FROM:<br>10</td><td>14A. POSITION CLASSIFICATION ACTION<br>☐ NEW<br>☐ IN-ACTUAL<br>☑ VICE<br>☑ REAL</td><td colspan="2">Group I-e</td></tr><tr><td colspan="4">18. D.E.S.<br>M</td><td>18. APPROPRIATION<br>FROM: 9A-

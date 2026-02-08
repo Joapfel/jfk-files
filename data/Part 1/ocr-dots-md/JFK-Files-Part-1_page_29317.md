@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_29317.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+Mr. Irving C. Devuono
+
+Dear Mr. Devuono:
+
+Reference is made to your contract with the United States Government, as represented by the Contracting Officer, effective 1 November 1967 as amended.
+
+The purpose of this amendment is to formally record your official designation as a participant in the Retirement and Disability System of this organization, effective 8 August 1971. Your contributions into the Retirement and Disability Fund will be deducted by this organization as of that date. The regulations governing this retirement system gives the individual the right to appeal such a determination if he deems the designation adverse to his best interest. In order that this technical requirement may be satisfied, you are hereby notified of your right to appeal. An appeal with reasons therefor must be received in this organization within thirty (30) days from the date of your acknowledgment of this contract amendment.
+
+Effective close of business 7 August 1971 all contractual reference to Civil Service Retirement and your contributions thereto is deleted.
+
+Social Security contributions required by virtue of your cover employment will not be reimbursed you by this organization.
+
+All other terms and conditions of the contract, as amended, remain in full force and effect.
+
+UNITED STATES GOVERNMENT
+181 Don H.DEVUONO
+BY
+Contracting Officer, retired
+
+ACCEPTED:
+Irving C. Devuono
+
+WITNESS:
+
+APPROVED:
+
+SECRET
+
+<table><tr><td>DPW I</td></tr><tr><td>Excluded from automatic</td></tr><tr><td>recognition if</td></tr><tr><td>contract</td></tr></table>

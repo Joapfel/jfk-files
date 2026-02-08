@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_28470.png
+
+Convert to MarkdownSECRET
+
+5 August 1956
+
+MEMORANDUM FOR: E/Personal
+SUBJECT: Promotion Recommendation - Tenant H. Bagley
+
+1. We recommend herewith that Tenant E. Bagley, incumbent of slot BO-216 on the T/O of E/P be promoted from GS-12 to GS-13.
+
+2. Mr. Bagley is one of the best all around operations officers the undersigned has ever worked with, and evinces in all matters he has been concerned with a deep and mature understanding of intelligence operations and a deep sense of responsibility and integrity. He has, since joining E/P, been Chief of the CE Section, supervising the work of a staff of five, some of whom are of equal rank with Subject and have been concerned with Agency Polish matters for many years. Mr. Bagley organized his section in a most efficient and tactful manner and succeeded in turning the work of his subordinates into channels of real value to the Branch, a job requiring no mean diplomacy and patience.
+
+3. As a supervisor and as an operations officer Mr. Bagley has distinguished himself while at this Branch in a manner which clearly calls for his advancement to a grade which would only be commensurate with the extent of his responsibilities and his singular abilities to carry them out.
+
+HON. S. E. RUMAN
+Chief, E/P
+
+SECRET

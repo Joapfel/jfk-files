@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_28554.png
+
+Convert to MarkdownB. The physical divisions within the official component of the Station have separated personnel and files in a manner which makes close teamwork against the target difficult. These divisions could and should have been corrected.
+
+C. Mr. Bagley has not always seen eye-to-eye with Headquarters on matters of method and emphasis, a phenomenon which has impaired operational progress. We accept that each Station Chief has the right -- indeed, the duty -- to hold independent views and to express them with integrity (as Mr. Bagley has done), but believe that differing views could have been resolved more easily had Station reporting to Headquarters been less parsimonious.
+
+3. To sum up, Mr. Bagley's abilities to conceptualize and to build viable models is truly outstanding, as is the exhaustively thorough manner of his staff work; his capability to translate his concepts into productive human endeavor has been less impressive. In spite of his considerable social and diplomatic skills, Mr. Bagley is essentially a reserved person who finds some difficulty in communicating with his subordinates.
+
+4. In spite of the problems noted, problems which we perhaps overstress as a result of our high expectations, Brussels Station has made good progress during this period and Mr. Bagley's performance has been STRONG.
+
+REVIEWING OFFICER'S COMMENTS:
+
+Date: 11 May 71
+
+Assistant Deputy Director for Plans,

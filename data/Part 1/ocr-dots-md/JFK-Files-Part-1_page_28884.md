@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_28884.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DD/S 65-3882
+
+MEMORANDUM FOR: Deputy Assistant Secretary for Far Eastern Affairs
+Department of State
+Washington, D.C.
+
+SUBJECT : Detail of CIA Personnel to DOS
+
+REFERENCE : Your ltr to DCI end August 9, 1965
+
+1. I agree in principle with the detail to your Department of the four persons identified in reference letter.
+
+2. Arrangements are now being made between Mr. Went of the Department and representatives of our Far East Division for their analysis to Vietnam. In the absence of a foreseen identification you may assume that all of the persons named will proceed without delay. One of these named, Mr. Joseph F. Baker, is now serving in Europe, but I do not anticipate this will delay his appointment to Vietnam.
+
+s/Alan M. Warfield
+Albany Director for Support
+
+s/Joseph Smith for
+Chief, Far East Division
+
+Date
+CONFIDENTIAL
+
+s/Emmett D. Echois
+Director ofPARASITE,
+10 Aug 65

@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_28866.png
+
+Convert to Markdown9 OCT 1973
+
+Mr. James Ballard
+Acting Director of Personnel
+Drug Enforcement Agency
+1405 I Street, N. W.
+Washington, D. C. 20537
+
+Dear Mr. Ballard:
+
+This is to certify that Mr. Lucion E. Conoin was employed by this Agency in a civilian capacity from 12 November 1961 to 15 July 1968, at which time he retired on disability under the Civil Service Retirement Act. He left under honorable circumstances.
+
+Distribution:
+
+* 0 1 - Addressee
+* 1 - D/Pors
+* 1 - READ Subject File
+* 1 - READ Chrono
+
+OP/RAD/EEAB/FGJarema:kr (4 October 1973)

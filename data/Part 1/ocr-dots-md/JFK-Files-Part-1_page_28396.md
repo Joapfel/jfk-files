@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_28396.png
+
+Convert to MarkdownSECRET
+
+7. <u>Instructions</u>. Instructions received by you from CIA in briefing, training or otherwise are a part of this contract and are incorporated herein, provided that such instructions are not inconsistent with the 'or so hereof.
+
+8. <u>Unauthorized Commitments.</u> No person has any commitments pertaining to rights, privileges or benefits other than those expressly stipulated in writing in this agreement or any amendment thereto shall be binding on the Government.
+
+9. Term. This contract is effective as of 15 October 1969, and shall continue thereafter for a period of two (2) years unless sooner terminated by either:
+
+(a) By thirty (30) days' actual notice by either party hereto, or
+
+(b) Without prior notice by CIA, in the event of a breach of this contract by your violation of the security provisions hereof or by your otherwise rendering yourself unavailable for acceptable service.
+
+Subject to the availability of appropriations, this agreement may be extended upon notice from CIA. Termination of this agreement will not release you from the obligations of any security oath you may be required to take.
+
+CENTRAL INTELLIGENCE AGENCY
+
+BY
+Special Contracting Officer
+
+ACCEPTED:
+Edward C. Tichborn
+WITNESS:
+APPROVED:
+
+L.H.Silber - 14 Dec 59
+P/P/D/A/Agreement
+C.P.
+S.C. House Changes X 2017

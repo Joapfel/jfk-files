@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_28561.png
+
+Convert to Markdown- 2 -
+
+communication between Mr. Bagley and his subordinates, both inside and outside of the official cover installation. Pete Bagley's intellectual capabilities tend to outstrip those of most of his colleagues, but it does seem to me that he has dealt with this problem well and has thus been able to engender loyalty and cohesion among the members of his Station.
+
+John L. Hart
+Chief
+European Division
+
+REVIEWING OFFICER'S COMMENTS:
+
+Date: 5 May '70
+
+Assistant Deputy Director for Plans
+
+SEC...1
+
+14-00000
+
+SEC.27
+
+- 2 -

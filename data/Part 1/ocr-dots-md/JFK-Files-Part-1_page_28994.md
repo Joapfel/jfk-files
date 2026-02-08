@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_28994.png
+
+Convert to MarkdownSECRET
+
+16 SEP 1955
+
+MEMORANDUM FOR: Chief, FE
+SUBJECT: Letter of Commendation - Major Lucien E. Conein
+
+1. Request that the attached letter from the Secretary of the General Staff, with letter of commendation attached, be forwarded through official channels to Major Lucien E. Conein.
+
+2. It will be noted that General Westmoreland has sent a copy of General Cabell's letter of commendation both to Major Conein's official 201 file and to his career branch, where it will be incorporated with his efficiency reports for consideration in selection for promotion or schooling.
+
+3. This commendation in his official records should be of considerable assistance to Major Conein in his military career and we take pleasure in forwarding it to him.
+
+Colonel, A/S
+Chief, Military Personnel Division
+
+Attachment - ltr from Soc of TS
+dtd 11 Sep 55.
+LLR to S/A from
+Lt Gen Cabell, dtd
+27 Aug 55.
+
+SECRET

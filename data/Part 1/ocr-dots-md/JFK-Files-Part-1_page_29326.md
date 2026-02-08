@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_29326.png
+
+Convert to MarkdownSECRET
+
+23.05.1961
+
+MEMORANDUM FOR: Director of Personnel
+
+SUBJECT : Request for Designation as a Participant in CLARUS--Mr. Grayston L. Lynch
+
+1. It is requested that domestic service reflected in the following paragraphs be approved as qualifying service for the CLARUS and that I be designated as a participant in the system.
+
+2. I entered on duty with the Agency on 16 February 1961, was sent TOY immediately to New Orleans, Louisiana and from there to Key West, Florida to prepare W-7 Division agent assets for operational missions. On 28 March 1961 I departed Key West, Florida aboard a covert Agency ship bound for Nicaragua where I engaged in the preparation of Agency vessels and assets scheduled for operations into Cuba. On 13 April 1961 I departed Nicaragua via an Agency vessel for the 17 April 1961 landing operation in the Bay of Pigs, Cuba. I was assigned as the Case Officer for the Agency command ship, Cuban Brigade Headquarters, and the Underwater Demolition Team (UDT) element. I participated in armed action both at sea and on shore during the four days of the invasion attempt and, per direct instructions from the NCI, engaged in a series of covert landings and operations into Cuba for several days following the invasion landing. I returned to Headquarters on 29 April 1961.
+
+3. In August 1961 I was assigned PCS to JMWAVE at Miami, Florida as a Paramilitary Operations Officer. From my arrival in August 1961 until July 1965 I served under commercial cover outside the station, intermittently using my home and various safeworks as "ad hoc" offices. All contact with the station was by telephone and/or personal meetings prearranged with station personnel. These personal contacts were either at my home, in safehouses, or at other meeting places deemed appropriate. During this period I was responsible for the recruitment, training, administration and operational direction of a very large group of Agents. This entailed numerous clandestine meetings, both day and night, with these Agents. Since they were in various stages of training, assessment or preparation for an operation and were located throughout Code and Monroe counties in
+
+SECRET
+
+<table><tr><td>SEAP 1</td></tr><tr><td>ASSIGNED TO MARINE CORPS ASSISTING IN DEMOLITIONS</td></tr></table>

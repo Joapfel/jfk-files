@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_29331.png
+
+Convert to MarkdownSECRET
+
+SERVICE
+AGREEMENT
+
+The Director of Central Intelligence has determined that in order to qualify for designation as a participant in the CIA Retirement and Disability System, an employee must have signed a written obligation to serve anywhere and at any time according to the needs of the Agency in addition to meeting other specified criteria.
+
+I hereby declare my intent to comply with this requirement as a condition to my being considered for designation as a participant in the CIA Retirement and Disability System.
+
+In making this declaration, it is understood that the Agency will consider my particular capabilities, interests, and personal circumstances.

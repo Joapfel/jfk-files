@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_28556.png
+
+Convert to Markdown27 April 1971
+
+COMMENTS on Fitness Report on Tennent H. Bagley
+1 April 1970 - 31 March 1971
+
+I agree with the fitness report's own suggestion that the "problems" it noted were overstressed: its negative content outweighs the positive by nearly three to one and is emphasized by its format and sentence structure. Because its overall effect belies the "Strong" rating, I believe that it creates a misleading picture, and therefore think it necessary to comment. Moreover, the report leaves the impression of a general failing in two specific areas which I am sure it did not intend to, since those are two areas which, during the two years since the preceding fitness report, have been repeatedly praised by Division management: 1) the level of operational activity at this Station ("his capability to translate his concepts into productive human endeavor has been less impressive") and 2) the development of a NOC facility ("frustrating lack of major progress on the part of the NOC component").
+
+The report could usefully have made more precise its implication that I have not created a satisfactory amount of productive human endeavor by my concepts and plans. When I took over this Station I inherited about 10 valid unilateral assets. We have since added at least 80 new ones, of whom about 40 remain particularly productive and promising and at least 25 more continue to be useful, sometimes necessary, informants or action types. Most if not all of these new assets were spotted and recruited in direct response to my planning and concepts. I have thus more than quintupled the Station's assets and its capability to respond to the varied directives and requests it receives. The high rate of acquisition of new assets has remained generally constant throughout the period since the preceding fitness report. Perhaps the current fitness report questions the "productivity" of these assets; this is of course debatable, but can be properly judged only in terms of our designated objectives. We were directed to establish contact with Soviets and assess them, with a view to their eventual recruitment. When I took over, this Station had access of one sort or another to perhaps four Soviet officials; we have built to the point where we now have contact and are providing assessments through unilateral assets alone on nearly 40 Soviets currently here (more, I would suspect, than any other station in the world) not to mention some 20 other Soviets covered by liaison
+
+SECRET RYBAT
+
+<table><tr><td></td></tr></table>

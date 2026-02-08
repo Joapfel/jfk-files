@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_29040.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+17 Maren 1953
+
+MEMORANDUM FOR: Charlotte Zehrung
+VIA : Chief, WH/3/Mexico
+
+1. You have been selected by your division, and authorized by the Clandestine Services Records Committee, to act as Records Officer for your component. Your appointment is based on your professional qualifications to carry out an assignment requiring experience, judgment, and a knowledge of the Clandestine Services objectives for your component.
+
+2. You are to act on behalf of your Division or Staff element in authorizing the destruction of material of no value to the Clandestine Services in accordance with criteria established for this purpose. You are empowered to authorize the destruction of documents and Index cards recommended for destruction by other members of your branch, and to desensitize KAPOK and RYBAT material which is no longer sensitive or which has been restricted in error. Your signature will be recognized by RI as that of an officially appointed Records Officer.
+
+3. A series of meetings will be held in Room 140P, Building to brief you and your colleagues on the details of your duties as Records Officer. You have been scheduled to attend the meeting to be held on Wednesday, 2 April 1958, 1300 - 1645 hours ; if it is not possible for you to attend on the date designated, please call Extension 8325 to arrange for an alternate date.
+Please review the attached materials prior to this meeting.
+
+HUGH T. CUNNINGHAM
+DDP Records Policy Officer
+
+Attachment
+
+As stated
+
+cc: Personnel Jacket of Addressee
+
+S-E-C-R-E-T

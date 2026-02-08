@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_28906.png
+
+Convert to MarkdownSECRET
+
+VITHEIN-GRAZ PROMOTION FOR CONTRACT EMPLOYERS
+(If provided for in Contract)
+
+CORBIN, LUCIAN E.
+EMPLOYEE'S NAME
+
+FEB
+COMPONENT
+
+13 Mar 67
+DATE
+
+I CERTIFY THAT THE WORK OF THE ABOVE NAMED EMPLOYEE IS OF AN
+ACCEPTABLE LEVEL OF COMPETENCE.
+
+RATER
+
+NOTED:
+
+Contact Personnel Division
+
+Present Compensation Rate $16,675, GS-1¼/4 Equiv Effective Date 25 Apr 65
+New Compensation Rate $17,198, GS-1½ Equiv Effective Date 23 Apr 67
+
+SECRET

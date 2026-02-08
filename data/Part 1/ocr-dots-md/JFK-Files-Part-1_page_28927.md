@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_28927.png
+
+Convert to MarkdownSECRET
+
+It is understood and agreed that the eligibility and extent of the participation by you and your dependents in the above medical programs will be in conformance with the rules, regulations and policies of this organization in effect at the time an illness or injury is incurred, that all claims will be submitted only to this organization and the adjudication of such claims by this organization shall be final and conclusive.
+
+(f) You are herein authorized to apply for enrollment in a health insurance program for certain selected Career Agents in this organization, subject to all the terms and conditions of that program. If accepted, this organization is presently authorized to bear a portion of the premium cost, you will bear the remainder. Your financial contribution will be effected either by payroll deduction or by direct remittance at periodic intervals to be established by this organization.
+
+9. **Offset.** Any and all compensation, allowances or other benefits (including benefits in kind) received from or through your cover activities will be used to offset amounts due you under this contract and will reduce accordingly the Government's direct payment obligation hereunder. Sums so offset are payment by the Government under this contract and for purposes of Federal income taxation. You will report every four (4) months during the term of this agreement all benefits received from or through your cover activities and, if such benefits exceed those due you under this contract, the report will be accompanied by said excess amount, which you hereby agree is the sole property of the Government. Failure to submit timely reports and, as appropriate, excess payments, may result in suspension of any payments due you hereunder. As an alternative to the above, the Government may at any time exercise its basic right to require payment over to it of the emoluments received by you from or through your cover activities which would otherwise be offset as described above. In such cases the Government will pay directly to you the emoluments called for by this contract.
+
+10. **Execution of Documents.** If, in the performance of services under this contract, you assume the custody of Government funds or take title of record to property of any nature whatsoever and wherever situated, which property has in fact been purchased with monies of the U. S. Government, you hereby recognize and acknowledge the existence of a trust relationship, either express or constructive, and you agree to execute whatever documents may be required by the Government to evidence this relationship.
+
+11. **Instructions.** Instructions received by you from the Government in briefing, training or otherwise are a part of this contract and are incorporated herein, provided that such instructions are not inconsistent with the terms hereof.
+
+12. **Unauthorized Commitments.** No promises or commitments pertaining to rights, privileges or benefits other than those expressly stipulated in writing in this agreement or any amendment thereto shall be binding on the Government.
+
+13. **Secrecy.** You will be required to keep forever secret this contract and all information which you may obtain by reason hereof (unless released in writing by the Government from such obligation), with full knowledge that violation of such secrecy may subject you to criminal prosecution under the Espionage Laws, dated 25 June 1948, as amended, and other applicable laws and regulations.

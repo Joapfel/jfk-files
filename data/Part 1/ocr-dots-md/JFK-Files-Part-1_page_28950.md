@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_28950.png
+
+Convert to MarkdownMEMORANDUM FOR: Chief, FE/VCL
+
+SUBJECT : Recommendation for Promotion of ____________ to OS-1A Equivalent
+
+REFERENCE : Fitness Report for Subject dated 25 February 1963
+
+1. In reference Fitness Report, the Deputy Chief of Station and the Chief of Station, Saigon, recommend the promotion of ____________ to the next higher OS equivalent/s. I concur in this recommendation.
+
+2. As you are sure, ____________, I am a member of Special Operations Division Project ZEWENRL. In comparison with other employees of ZRWEL, taking into consideration the assigned duties and manner of performance, I feel that ____________ promotion is appropriate, and concur in the recommendation of the Station.
+
+3. It is requested that a contract amendment be initiated by FE Division to increase ____________ a compensation from OS-13 (4) equivalent, $12,765, to OS-14 (8) equivalent, $14,427.
+
+GORDON L. JORGENSEN
+Acting Chief
+Special Operations Division
+
+Att:
+
+Reference Fitness Report
+
+BOD/PANS/ALJ/HDI:nsh
+
+Distribution:
+
+Orig & 1 - Add v/att.
+1 - AC/SDD/w/o/att.
+2 - BOD/Tara/v/c/att.
+3 - RI/SDD,v/o/att. - copy

@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_28240.png
+
+Convert to MarkdownSECRET
+Security Information
+
+SEC. II. WORK EXPERIENCE (CONT'D.)
+
+2. Other than CIA: (Describe work experience for the last 15 years in sufficient detail to permit specific coding of your qualifications. Include military work experience. List last position first.)
+
+<table><thead><tr><th colspan="4"></th><th>Exact Title of your position</th></tr></thead><tbody><tr><td rowspan="3">From Aug. 18 To Aug. 20 Tot. mo's</td><td rowspan="3">Classification Grade(If in Federal Service)</td><td rowspan="3">Salary</td><td rowspan="3">Number and Class of Employees Supervised:</td><td rowspan="3"><strong>Manufacturer's Representative</strong><br/>Description of Duties: Acted as traveling representative of Swanson, contacted other food processors, U. S. Govt. agencies, and commercial outlets, represented company at conventions, trade fairs, etc.</td></tr><tr><td><strong>Duty Station if overseas:</strong></td></tr><tr><td>From Dec. 15 To Nov. 16 Tot. mo's</td><td><strong>Classification Grade(If in Federal Service)</strong><br/><strong>Description of Duties:</strong> Acted as chief of message center for Communications Section of Headquarters, Far Eastern Air Force (later called Pacific Air Service Command) at Manila, Philippine Islands.</td></tr><tr><td rowspan="3">From Aug. 19 To Aug. 25 Tot. mo's</td><td rowspan="3">Classification Grade(If in Federal Service)</td><td rowspan="3">Pfe., Salary</td><td rowspan="3">Number and Class of Employees Supervised:</td><td rowspan="3">Kind of Business or organization<br/>(i.e., paper products mfr, public utility)</td><td rowspan="3"><strong>Duty Station if overseas:</strong></td></tr><tr><td><strong>From Dec. 15 To Nov. 16 Tot. mo's Classification Grade(If in Federal Service)</strong><br/><strong>Description of Duties:</strong></td></tr><tr><td>From Aug. 19 To Aug. 25 Tot. mo's<br/>Number and Class of Employees Supervised:<br/>Employer<br/>Kind of Business or organization<br/>(i.e., paper products mfr, public utility)</td></tr><tr><td rowspan="3">From Nov. 26 To Nov. 27 Tot. mo's</td><td rowspan="3">Classification Grade(If in Federal Service)</td><td rowspan="3">Salary</td><td rowspan="3">Number and Class of Employees Supervised:</td><td rowspan="3"><strong>From Dec. 15 To Nov. 16 Tot. mo's Classification Grade(If in Federal Service)</strong><br/><strong>Description of Duties:</strong></td></tr><tr><td><strong>From Nov. 26 To Nov. 27 Tot. mo's Number and Class of Employees Supervised:</strong><br/>Employer<br/>Kind of Business or organization<br/>(i.e., paper products mfr, public utility)</td></tr><tr><td>Number and Class of Employees Supervised:<br/>Employer<br/>Kind of Business or organization<br/>(i.e., paper products mfr, public utility)</td></tr></tbody></table>
+
+SECRET
+Security Information
+3

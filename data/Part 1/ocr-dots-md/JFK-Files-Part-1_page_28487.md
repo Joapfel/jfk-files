@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_28487.png
+
+Convert to MarkdownMay 25, 1951
+
+BAGLEY, Tennant Harrington Nov. 21, 1925 PL 724 79th
+
+ indefinite appointment EO 10180 5-25-51 5-25-51
+
+**Political Officer**
+
+**Assistant Attache**
+
+Vienna
+
+FSS-9 $4290.00
+1AL-2092120
+VA-138-a
+
+INDEF X
+
+Sec. Sec. X      X                  X
+               X                  USA
+Male             Single            California
+
+Items a, b, c, d, i, (61)
+Inactive US Marine Corps Reserves, 1st. Lt., 047506
+Standard Forms 84 and 87 5-25-51
+Social Security No. 570 38 7705

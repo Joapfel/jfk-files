@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_28803.png
+
+Convert to MarkdownSTANDARD FORM 57A
+MAY 1948-U. S. DEPT.
+SERVICE COMMISSION
+
+CONTINUATION SHEET FOR STANDARD FORM 57
+"Application for Federal Employment"
+
+<table><tr><td>INSTRUCTIONS.-Please fill this form only when necessary for completion of item 16, "EXPERIENCE," on Standard Form 57. Enclose with your application. Typesetter: Write clearly in dark ink.</td></tr></table>
+
+<table><tr><td>NAME (First, Middle, Last)</td><td>DATE OF BIRTH (month, day, year)</td></tr><tr><td>ROBERT TYLER SHAW</td><td>JUNE 18, 1925</td></tr><tr><td>KIND OF POSITION REQUESTED</td><td>DATE OF THIS CONTINUATION SHEET:</td></tr><tr><td>FOREIGN SERVICE</td><td></td></tr></table>
+
+<table><thead><tr><th colspan="3">DATE OF EMPLOYMENT (month, year)</th><th rowspan="2">REASON FOR LEAVING</th><th rowspan="2">DESCRIPTION OF DUTY</th><th rowspan="2">POSITION WITH Dept of Defense<br/>General duties of a Foreign Service Staff Officer in the<br/>Economic and commercial section of the consulate general in Guayaquil.<br/>Also performed political reporting functions and assisted in visa<br/>and citizenship matters.</th></tr><tr><th>FROM</th><th>TO</th><th>WHAT IF IN FEDERAL SERVICE</th></tr></thead><tbody><tr><td>May 1952</td><td>July 1954</td><td>Vice Consul</td><td></td><td>FSS-9</td><td>CITY & STATE: Guayaquil, Ecuador - U.S. GOVT</td></tr><tr><td>SALARY OR EARNINGS</td><td>CLASSIFICATION GRADE<br/>(If in Federal Service)</td><td>PLACE OF EMPLOYMENT</td><td colspan="3"></td></tr><tr><td>STARTING: $ PER<br/>FINAL: $ PER</td><td></td><td>CITY & STATE: Washington & Caracas, Venezuela - Government</td><td colspan="3"></td></tr><tr><td>NAME AND ADDRESS OF EMPLOYEE (Name, if any, organization, etc.)</td><td>Dept of State</td><td>NAME AND TITLE OF IMMEDIATE SUPERVISOR</td><td colspan="3"></td></tr><tr><td></td><td></td><td>Ambassadors Donnally, Sparks, Armour</td><td colspan="3"></td></tr><tr><td colspan="6"><p>REASON FOR LEAVING</p><p>DESCRIPTION OF DUTY General duties of a Foreign Service Staff officer in the Political Section, Embassy Caracas. Preparation of reports for the Department and memoranda for the Ambassador, consultation with officials of the local government and American companies (esp of the petroleum industry operating in Venezuela). Assistance in the Consular Section with visa affairs.</p></td></tr></tbody></table>
+
+<table><tr><td>DATE OF EMPLOYMENT (month, year)</td><td>DATE OF LAST EMPLOYMENT</td><td>REASON FOR LEAVING</td><td>DESCRIPTION OF DUTY</td><td>POSITION WITH</td><td>NAME AND ADDRESS OF EMPLOYEE (Name, if any, organization, etc.)</td></tr><tr><td>Nov 1947</td><td>Oct 1949</td><td>Editor</td><td></td><td>$2400 - annual</td><td>Preamerica</td></tr><tr><td>Mar 1948</td><td>Mar 1949</td><td>Assistant to the Consul</td><td>Desire for Foreign Service</td><td>$3600 -</td><td>Supervision of preparation (compilation through final printing & finding) of sales manuals for entire company sales force. Preparation of aptitude tests and general qualifications questionnaires used by company in recruitment of salesman and administrative employees. Preparation of material for company house magazine. Maintenance of close liaison with other personnel dept. Work with company print-shop and private printing establishments.</td></tr></table>
+
+<table><tr><td>DATE OF EMPLOYMENT (month, year)</td><td>DATE OF LAST EMPLOYMENT</td><td>REASON FOR LEAVING</td><td>DESCRIPTION OF DUTY</td><td>POSITION WITH</td><td>NAME AND ADDRESS OF EMPLOYEE (

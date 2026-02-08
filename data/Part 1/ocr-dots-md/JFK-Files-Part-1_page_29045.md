@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_29045.png
+
+Convert to MarkdownCharlotte BUSTOS-VIDELA
+
+RIGHT HAND SIDE FILE
+
+(numbered top to bottom)
+
+1. Personnel/cover - after 1973
+
+2. "Actions" - Personnel actions - after 1973
+
+3. "Actions" - Personnel Actions - Before 1957
+
+4. "Fitness Reports" - May 1973 - Nov 1977
+
+5. "Fitness Reports" prior to 1957
+
+6. "Other" - admin material - after 1973
+
+7. "Other"-admin material-prior to 1957
+
+8. "Medical" - all medical material related to clearances
+
+9. "PHS-SEC" - document related to cover legend

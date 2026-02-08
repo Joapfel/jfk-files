@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_28932.png
+
+Convert to MarkdownLieut. Emile Coella
+
+11 May 1943
+
+Salerno, Education
+U.S. Air Force
+Officer
+
+Major. Wainey
+
+Ops. Group "A" (equivalent to Phase 2)
+SFC, CAF
+on
+
+British Airborne School Nov 1943 - May 1944, TIS (FortRMALING Isd Sen. COs
+Kyaneiatoa F. 9. 1944 - 1946, University of Maryland (European Branch)
+
+Apr-Jul/
+1948
+
+French Speech, Reed Write Consultant
+
+1955 - 1960 Presiding • Procter and Tyrosettor • F. B. Fussalay Employer
+1960 U.S. Army' Captains, Infantry Divies Intelligence
+
+Jul '55 to Nov '55      C.A.E.           Platoon Leader & Spc. CO., S-3, G.O.
+Nov '55 to Dec '55     C.C.S.            2nd S-3 (Special Mission Staff)
+Dec '55 to Feb '56     C.O.S.           Special Headquarters Staff • G.O. • S-3
+Mar '56 to Jun '57     O.S.I.           1st • 2nd • 3rd • 4th • 5th • 6th
+Jun '57 to Aug '58     C.S.I.           Chief of Signal Corps • 1st S-3
+Aug '58 to Oct '59     S/C.S.I.          Chief of G.U.M.T. Operations • 2nd S-3 • 3rd S-3
+Oct '59 to Dec '60     C.S.I.           Operations Officer •burgard Ops Base • Major Overseas
+Dec '60 to present    S/L.              Staff Officer • Fl. 66/1 Administration Br. Washington, D.C.
+
+HAROLD'S AIRBORNERS
+10-4 Induction Book
+
+DANIEL J. PAGINA JR.
+Civl. S-3-4

@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_29323.png
+
+Convert to MarkdownSECRET
+
+Attachments:
+
+* Tab A - Mr. Lynch's request and 3 endorsements
+
+* Tab B - Forms 3100 and 3501
+
+* Tab C - Biographic Profile
+
+CSPS/GLMott/irk (1 July 71)
+
+Distribution:
+
+* Original & 1 - Addressee w/atto
+* 2 - DDP
+* 1 - CSPS/Mott
+* 1 - CSPS/Soft file
+* 1 - C/BR/Personnel
+
+-1-
+
+SECRET

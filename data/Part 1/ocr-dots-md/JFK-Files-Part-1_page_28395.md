@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_28395.png
+
+Convert to MarkdownSECRET
+
+Mr. Edward C. Tichborn
+
+Dear Mr. Tichborn:
+
+The United States Government, as represented by the Central Intelligence Agency, hereby contracts with you as an independent contractor for the sub- mission of certain information and related services to: a confidential nature under the following terms and conditions:
+
+1. **Compensation.** In full consideration for the submission of such information and services you will be compensated, on a fee basis, at the rate of $50.00 per day or any fraction thereof during which your services are utilized hereunder, not to exceed $205 per week. Payments will be made as directed by you in writing in a manner acceptable to CIA. No taxes will be withheld therefrom, but it will be your responsibility to report such income under existing federal income tax laws and regulations. An appropriate Form 1399 will be furnished by the Central Intelligence Agency in furtherance of the tax reporting requirement.
+
+2. **Travel and Operational Expenses.** You will be advanced or reimbursed funds on an actual, reasonable and necessary expense basis for those expenses incurred by you in connection with such operational travel as may be directed or authorized by the Government and while on temporary duty away from your permanent post of assignment. In addition, you will be advanced or reimbursed funds for necessary operational expenses as specifically approved by CIA. Payment and accounting for all expenses incurred hereunder will be in substantial conformance with applicable Government regulations.
+
+3. **Repayment.** It is recognized that your failure to account for or refund any monies advanced you hereunder shall entitle CIA to withhold a total amount of such indebtedness or any portion thereof from any monies due you under the terms of this contract in such manner as it deems appropriate.
+
+4. **Execution of Documents.** In the performance of services under this contract, you agree to execute the custody of Government funds or take title of record to property of any nature whatsoever and wherever situated, which property has in fact been purchased with monies of the U. S. Government, you hereby recognize and acknowledge the existence of a trust relationship, either express or constructive, and you agree to execute whatever documents may be required by the Government to evidence this relationship.
+
+5. **Status.** You are not an employee of the United States Government under this Agreement and are not entitled to any benefits nor actually incident to an employee status.
+
+6. **Secrecy.** You will be required to keep, forever and hereafter, all information which you may obtain by reason hereof (unless released in writing by the Government from such obligation), with full knowledge that violation of such secrecy may subject you to criminal prosecution under the Espionage Lawa, dated 27 June 1948, as amended, and other applicable laws and regulations.
