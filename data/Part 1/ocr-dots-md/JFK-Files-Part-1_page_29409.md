@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_29409.png
+
+Convert to MarkdownSECRET
+(When Filled in)
+
+<table><tr><td>1. NAME (Last, First, Middle)</td><td>2. POSITION TITLE</td><td>3. DATE OF REQUEST</td></tr><tr><td>LYNCH, Grayson</td><td>PH 068 088</td><td>CS-14</td></tr><tr><td>9. OFFICE, DIVISION, BRANCH</td><td>5. EMPLOYEE'S EXT.</td><td></td></tr><tr><td>300</td><td>4321</td><td></td></tr><tr><td colspan="3">I. PURPOSE OF EVALUATION</td></tr><tr><td><input type="checkbox"/> PRE-EMPLOYMENT</td><td><input type="checkbox" checked/> MDD/TOY</td><td rowspan="7"><table><tr><td>STD</td></tr><tr><td>STATION</td></tr><tr><td>TOY OR PCS</td></tr><tr><td>TYPE OF COVER</td></tr><tr><td>NO. OF DEPENDENTS TO ACCOMPANY</td></tr><tr><td>NO. OF DEPENDENTS REPORTS OF MEDICAL HISTORY (IF 89) ATTACHED</td></tr><tr><td><input type="checkbox"/> RETURN FROM OVERSEAS</td><td>EPA</td></tr><tr><td><input type="checkbox"/> ENTRANCE ON DUTY</td><td><input type="text" value="STATION"></td></tr><tr><td><input type="checkbox"/> TOY STANDBY</td><td><input type="text" value="STD"></td></tr><tr><td><input type="checkbox"/> SPECIAL TRAINING</td><td><input type="text" value="STATION"></td></tr><tr><td><input type="checkbox"/> ANNUAL</td><td><input type="text" value="TYPE OF COVER"></td></tr><tr><td><input type="checkbox"/> RETURN TO DUTY</td><td><input type="text" value="NO. OF DEP'T'S"></td></tr><tr><td><input type="checkbox"/> FITNESS FOR DUTY</td><td></td><td>9. REQUESTING OFFICER</td></tr><tr><td><input type="checkbox"/> MEDICAL RETIREMENT</td><td>SIGNATURE<br/>SELIM D. ILLIAMAX<br/>ROOM NO. & BUILDING</td><td>EXT.</td></tr><tr><td colspan="3">10. COMMENTS</td></tr><tr><td colspan="3">Subject qualified for assignment to Laos on 17 April. However, subsequent to this qualification he was seen by Dr. Robinson on 24 May 68. S.O. will appreciate (in addition to overseas planning eval) advice re his assignments recognizing that such assignment, if available, may require flying. If O/S considers that Medical retirement is a possibility, would appreciate advice in this regard also.</td></tr><tr><td colspan="3">11. REPORT OF EVALUATION</td></tr><tr><td colspan="3">Disqualified for O/S PCS</td></tr><tr><td>(DATE)<br/>21 June 1968</td><td colspan="2">SIGNATURE FOR CHIEF OF MEDICAL STAFF<br/>Alex Hart</td></tr></table>
+
+FORM 259 ON PREVIOUS
+VERSIONS.
+
+SECRET
+
+(26)

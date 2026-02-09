@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_30341.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+<table><thead><tr><th>Section D</th><th>Narrative Description</th></tr></thead><tbody><tr><td colspan="2">Award for Heroic Action or Acceptance of Hazard: Was act voluntary? Describe why act was outstanding, and if it was more than normally expected. Explain, why, and how. If an action or marine operation, describe type and position of craft, crew position of individual, and all unusual circumstances. Indicate results of the act.</td></tr><tr><td colspan="2">Award for Achievement, Service, or Performance: State character of service during period for which recommended. (Give complete description of administrative, technical, or professional duties and responsibilities if not covered in Section C; include dates of assignment and relief.) What did the individual do that merits the award? Why was this outstanding when compared to others of like grade and experience in similar positions or circumstances? If appropriate, include production records and assistance rendered by other persons or units. What obstacles were encountered or overcome? Indicate results of achievement, service, or performance. Include reference to Fitness Reports, Letters of Commendation, or other documentation already on file which supports this recommendation.</td></tr><tr><td colspan="2"><p>From early December 1965 through May 1966, Messrs. James W. McCord, Jr., Ann F. Petit, and William M. Marcy of the Technical Division, Office of Security, conceived and developed a unique technique for the use of a small portable X-ray machine which has been placed in extensive use in the Agency's Audio-Countermeasures Program. Experimentation during these months indicated that X-ray combined with a fluorescent screen had distinct advantages in terms of time and effort over the considerably more expensive X-ray film and processor. Along with this, they designed an innovation in the form of a fluoroscopic cloth which has the distinct advantage of flexibility over the fluorescent screens currently available on the commercial market.</p><p>The combination of the X-ray and the fluorescent cloth make it possible to rapidly scan in "real time" large wall surfaces and furnishings, a capability the Agency has not had before.</p><p>The Technical Division has greatly enhanced the world-wide use of this equipment in that they designed and developed a packaging plan whereby using two attach cases they are able to easily transport the X-ray fluoroscopic equipment, wall racks, and motor units making it possible to inconspicuously carry it into offices, residences, and safeworks.</p><p>These men have shown initiative, ingenuity and great imagination in the application of fluoroscopic scanning with X-ray.</p><p>This technique, much of which required many off-duty hours to develop, has greatly enhanced the Agency's capability to detect clandestine microphones and other devices targeted against the Agency both domestically and overseas.</p></td></tr><tr><td colspan="2"><p>ENCLOSURES (List individually) If originator is not an eyewitness or does not have personal knowledge of the act or performance, attach affidavits of eyewitness or individuals having personal knowledge of the facts.</p><ol><li>PROPOSED CITATION</li><li></li><li></li></ol></td></tr><tr><td>43. RECOMMENDATION INITIATED BY<br/>ERMAL P. GEISS<br/>Ermal P. Geiss</td><td>45. TITLE AND SIGNATURE OF OFFICIAL MAKING RECOMMENDATION<br/>Deputy Director of Security (PTOS)</td></tr><tr><td>Section E<br/>Recommendation Forwarded Through Officials Concerned For Their Information</td><td><table><thead><tr><th>45. Head of <u>68</u> Career Service (Career service of nominee)</th><th>TITLE AND SIGNATURE</th><th>DATE</th></tr></thead><tbody><tr><td></td><td>Director-of-Security</td><td></td></tr></tbody><thead><tr><th>48. Deputy Director of Operating Component</th><th>TITLE AND SIGNATURE</th><th>DATE</th></tr></thead><tbody><tr><td></td><td></td><td></td></tr></tbody><thead><tr><th>47. Deputy Director of Career Service</th><th>TITLE AND SIGNATURE</th><th>DATE</th></tr></thead><tbody><tr><td></td><td>Deputy Director for Support</td><td></td></tr></tbody></table></td></tr></tbody></table>
+
+SECRET
+
+<table>
+   <tr>
+    <td>
+     Head of
+    </td>
+    <td>
+     68
+    </td>
+    <td>
+     Career Service
+    </td>
+   </tr>
+   <tr>

@@ -1,0 +1,142 @@
+# JFK-Files-Part-1_page_30086.png
+
+Convert to Markdown<table>
+   <thead>
+    <tr>
+     <td colspan="3">
+      ANSWEI
+     </td>
+     <td colspan="2">
+      QUESTIONS BY PLACING "X" IN PROPER COL.
+     </td>
+     <td>
+      YES
+     </td>
+     <td>
+      NO
+     </td>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td colspan="3">
+      25. Are you a citizen of the United States of America?
+     </td>
+     <td colspan="2">
+     </td>
+     <td>
+      X
+     </td>
+     <td>
+     </td>
+    </tr>
+    <tr>
+     <td colspan="3">
+      26. Are you now, or have you ever been, a member of the Communist Party, U.S.A., the Communist Political Association, the Young Communist League, or any Communist organization?
+     </td>
+     <td colspan="2">
+     </td>
+     <td>
+      X
+     </td>
+     <td>
+     </td>
+    </tr>
+    <tr>
+     <td colspan="3">
+      27. Are you now or have you ever been a member of any foreign or domestic organization, association, movement, group, or combination of persons which is nationalistic, far-left, Communist, or subversive, or which has adopted, or shows, a policy of opposing or approving the commission of acts of force or violence to deny other persons their rights under the Constitution of the United States, or which seeks to alter the form of government of the United States by an unconstitutional means?
+     </td>
+     <td colspan="2">
+     </td>
+     <td>
+      X
+     </td>
+     <td>
+     </td>
+    </tr>
+    <tr>
+     <td colspan="3">
+      If your answer to 26 and/or 27 above is "Yes," state on a separate sheet attached to and made a part of this application the names of all such organizations, associations, movements, groups or combination of persons and dates of membership. Give complete details of your activities thereon and make any explanation you desire regarding your membership in these organizations.
+      <br/>
+      (See Instruction Sheet.)
+     </td>
+     <td colspan="2">
+     </td>
+     <td>
+     </td>
+     <td>
+     </td>
+    </tr>
+    <tr>
+     <td colspan="3">
+      28. Have you any physical handicap, chronic disease, or other disability?
+     </td>
+     <td colspan="2">
+     </td>
+     <td>
+      X
+     </td>
+     <td>
+     </td>
+    </tr>
+    <tr>
+     <td colspan="3">
+      29. Have you ever had a nervous breakdown?
+     </td>
+     <td colspan="2">
+     </td>
+     <td>
+      X
+     </td>
+     <td>
+     </td>
+    </tr>
+    <tr>
+     <td colspan="3">
+      30. Have you ever had tuberculosis?
+     </td>
+     <td colspan="2">
+     </td>
+     <td>
+      X
+     </td>
+     <td>
+     </td>
+    </tr>
+    <tr>
+     <td colspan="3">
+      If your answer to 28, 29, or 30 above is "Yes," give details in Item 39.
+     </td>
+     <td colspan="2">
+     </td>
+     <td>
+     </td>
+     <td>
+     </td>
+    </tr>
+    <tr>
+     <td colspan="3">
+      31. Have you ever been barred by the U.S. Civil Service Commission from taking examinations or accepting civil service appointment? (If your answer is "No," give dates of and reasons for such debarment in Item 39.)
+     </td>
+     <td colspan="2">
+     </td>
+     <td>
+      X
+     </td>
+     <td>
+     </td>
+    </tr>
+    <tr>
+     <td colspan="3">
+      32. Does the United States Government employ in a civilian capacity any relative of yours (by blood or marriage) with whom you live or have lived within the past 24 months?
+     </td>
+     <td colspan="2">
+     </td>
+     <td>
+     </td>
+     <td>
+     </td>
+    </tr>
+    <tr>
+     <td colspan="3">
+      If your answer is "Yes," give in Item 39 for EACH such relative (1) full name; (2) present address; (3) relationship; (4) department or agency

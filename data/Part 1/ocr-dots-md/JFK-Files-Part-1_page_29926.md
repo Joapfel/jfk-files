@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_29926.png
+
+Convert to MarkdownSECRET
+
+X:00XXUUKKOCXX (When Completed)
+
+26 DEC 1973
+
+<table><tr><td colspan="4">CHIEF OF MISSION'S EVALUATION OF PERFORMANCE<br/>(Mission submits original and one copy directly to appropriate agency; retains one copy.)</td></tr><tr><td>OFFICE 2 NOT RATED<br/>David Murphy<br/><br/>POSITION<br/>Chief, SVP<br/><br/>RATING PERIOD<br/>11/2/72 - 11/1/73<br/><br/>SIGNATURE OF REPLYING OFFICER<br/>John S. Irwin II</td><td>POST<br/>AmEmbassy PARIS<br/><br/>GRADE<br/>ACENCY<br/><br/>DATE OF REPORT<br/>October 31, 1973<br/><br/>TITLE<br/>Ambassador<br/><br/>TITLE</td></tr><tr><td colspan="4"><b>EVALUATION OF PERFORMANCE</b></td></tr><tr><td colspan="2">(X) Outstanding <b>[ ]</b> Satisfactory <b>[ ]</b> Unsatisfactory<br/>(II) Does this officer properly understand and perform his role and his functions as a member of your staff under existing Presidential directives? <b>[X]</b> Yes <b>[ ]</b> No <b>(If no, explain in detail below.)</b><br/>Has he seen this report? <b>[X]</b> Yes <b>[ ]</b> No</td><td colspan="2"></td></tr><tr><td colspan="4"><b>NARRATIVE COMMENTS</b><br/>(Attach address books, if necessary for this section or for reviewing officer's comments.)<br/>I first met Mr. Murphy following the assumption of my present duties at the end of March 1973. Therefore, I am in a position to comment on his performance only during the last seven months covered by this report. During that time, Mr. Murphy's performance has been thoroughly outstanding in every respect. During his years in France, he has developed a real expertise on this country, both in terms of how it functions and with regard to the manner in which France looks at the world.<br/><br/>Mr. Murphy has effectively directed and coordinated a large staff, and I have been particularly gratified at the extent to which his staff coordinates its reporting with other interested elements of the Mission. I am told by my DCM that, based on his experience, the coordination between Mr. Murphy's office and the substantive sections of the Embassy is better at this post than at any post he has known or heard of. This is in large part a direct tribute to Mr. Murphy's leadership.<br/><br/>I find I am calling increasingly on Mr. Murphy's advice in the preparation of Embassy assessments on a broad range of policy issues. His contributions have been perceptive and, by and large, accurate.<br/><br/>I consider Mr. Murphy one of a handful of my closest advisors in the Mission and hold him in the highest regard.</td></tr></table>
+
+SECRET
+
+NOTE: This image does not contain any tables.

@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_30310.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+<table><tbody><tr><td>12.</td><td>IN WHAT RESPECT IS THIS PERSON'S PERFORMANCE ON PRESENT JOB MOST NOTICEABLY GOOD OR OUTSTANDING?</td><td>In his "knack" for developing information from research and investigation, and in his utmost discretion in sensitive assignments.</td></tr><tr><td>13.</td><td>ON WHAT ASPECT OF PERFORMANCE SHOULD THIS PERSON CONCENTRATE EFFORT FOR SELF IMPROVEMENT?</td><td>None noted.</td></tr><tr><td>14.</td><td>COMMENT ON THIS PERSON'S ABILITY TO HANDLE GREATER RESPONSIBILITIES NOW OR IN THE FUTURE.</td><td>Yes, he has definite promise of future increased responsibilities.</td></tr><tr><td>15.</td><td>ARE THERE OTHER DUTIES WHICH BETTER SUIT THIS PERSON'S QUALIFICATIONS? (Recommend appropriate reassignment, if possible.)</td><td>Not at this time.</td></tr><tr><td>16.</td><td>WHAT TRAINING OR ROTATION DO YOU RECOMMEND FOR THIS PERSON?</td><td>None at this time. Will consider for Phase II Operations Course when work load permits.</td></tr><tr><td>17.</td><td>IF PERFORMANCE DURING REPORT PERIOD HAS BEEN UNSATISFACTORY, THERE IS ATTACHED COPY OF MEMORANDUM NOTIFYING THIS PERSON OF UNSATISFACTORY PERFORMANCE. NOT APPLICABLE.</td><td></td></tr><tr><td>18.</td><td>THIS PERSONNEL EVALUATION REPORT HAS BEEN DISCUSSED WITH THE PERSON EVALUATED. ADDITIONAL COMMENTS INCLUDING COMMENT ON ITEMS 7, 8 AND 9, ARE SHOWN BELOW UNDER ITEM 20.</td><td></td></tr><tr><td colspan="2">DATE</td><td>Seffee Edwards<br/>SIGNATURE OF SUPERVISOR</td></tr><tr><td>19.</td><td>I HAVE REVIEWED THE ABOVE REPORT. (Comments, If any, are shown in Item 20.)</td><td>Jegar SS<br/>L.G. Hiltt<br/>SIGNATURE OF REVIEWING OFFICER</td></tr><tr><td>20.</td><td>COMMENTS: IF necessary, may be continued on reverse side of cover sheet.</td><td></td></tr></tbody></table>
+
+SECRET

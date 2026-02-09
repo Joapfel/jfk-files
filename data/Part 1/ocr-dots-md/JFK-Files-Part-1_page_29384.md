@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_29384.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+**TRAINING REPORT**
+
+CI Survey Course 3-70
+40 hours, Full-time
+
+STUDENT : Lynch, Grayston
+OFFICE : COD
+
+YEAR OF BIRTH: 1923
+SERVICE DESIGNATION: Contract
+
+GRADE : 14
+NO. OF STUDENTS : 12
+
+EOD DATE : Feb 61
+
+COURSE OBJECTIVES - Content and Methods
+
+The course aims to provide a description of counterintelligence in the covert and clandestine warfare of today in both friendly and enemy areas. To do so, a brief description of the intent, purpose, and dynamics of espionage, subversion and counterintelligence as practiced by the major enemy forces is provided and this is contrasted to the spectrum of counter-intelligence activities of the United States of America and of allied countries. To support counterintelligence missions levied upon the Agency, a review of the cooperation and coordination and exchange of information and services between cooperating services is provided. Counterintelligence is then related to all other Clandestine Service operations and its place as a part thereof is demonstrated. To provide the student with a framework within which to work, the organization of the Agency for counterintelligence is also provided.
+
+ACHIEVEMENT RECORD
+
+This is a certificate of attendance. Since this course is a survey course, it does not attempt to qualify the student as a counterintelligence operations officer and no evaluation is made of individual performance.
+
+FOR THE DIRECTOR OF TRAINING:
+
+Stewart H. Vance Date
+
+Chief Instructor
+
+S-E-C-R-E-T

@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_30073.png
+
+Convert to Markdown14-0000
+
+Herman Edward Kimsey
+7110 Massachusetts Avenue, N. W.
+Washington 16, D. C. 20016
+Telephone Federal 8-6400
+
+RESUME
+
+I Personal
+
+Age 76 - Married - No Children
+
+II Education
+
+a - Grammar School - Oregon & California
+
+b - Junior High School - Oregon & California
+
+c - High School - Oregon & California
+
+d - College Level GED (USAFI) 1943
+
+III Special School and Training Courses
+
+a - U. S. Forest Service School for Fire Control and Prevention, Shasta National Forest, California; 1939 and again in 1940.
+
+b - U. S. Army Chemical Warfare School for Instructors, Camp Claiborne, Louisiana, 1942
+
+c - U. S. Forest Service School for Fire Control & Prevention, Shasta National Forest, California, 1946.
+
+d - U. S. Forest School for Timber Disease Control (Elister Rust), Klamath National Forest, California, 1946
+
+e - U. S. Army Counter Intelligence Corp School for Special Agents, Fort Holabird, Maryland, 1946 and 1947.
+
+f - Instructor Guidance Course, U. S. CIC School, Fort Holabird, Maryland, 1947 and again in 1952.
+
+IV Empirical Background
+
+1962 to Present - Associated as a technical consultant with Security Associates, Inc., Washington, D. C., specializing in commercial and industrial security.
+
+1953 to 1962 - Intelligence with U. S. Government, Central Intelligence Agency, GS-13, $11,415. As Chief of a small branch of highly specialized analysts, I exercised a wide variety of talents and was responsible for the following: the direction and administration of the branch operations; determined the course of action for further research effort within the branch; monitored and supervised a program of special personnel assessment; evaluated technical analyses and their relationship to specific cases; advised and consulted with members of Senior Staff components of CIA; delivered numerous technical briefings to both U. S. and foreign police and intelligence services; initiated and maintained projects carried out by private organizations such as universities, private consultants, and private research corporations. During the above period, I trained and briefed numerous others engaged in police and intelligence work. I also initiated and developed four technical systems currently in operation on a world-wide basis within CIA and wrote numerous articles for an intelligence periodical. In January 1962, CIA presented me with one of the largest individual Monetary Suggestion Awards ever given by that Agency.

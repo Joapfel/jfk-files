@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_30329.png
+
+Convert to MarkdownTREASURY DEPARTMENT
+UNITED STATES SECRET SERVICE
+
+OFFICE OF THE DIRECTOR
+
+WASHINGTON, D.C. 20226
+
+January 3, 1967
+
+The Honorable
+Richard Helms
+Director, Central Intelligence
+Agency
+Washington, D. C.
+
+Dear Dick:
+
+I wish to express my appreciation for the valuable assistance provided by your agency during the recent tour of President Johnson to Southeast Asia. Your response to our request for technical assistance was most gratifying.
+
+I would particularly like to commend to you Mr. Howard J. Osborn, Director, Office of Security, Mr. James McCord, Chief, Technical Security Division, and Mr. Arthur Sheridan, Regional Security Office, Far East, for their cooperation. Their dedication to duty and extensive knowledge and experience in technical support greatly contributed to the success of our mission.
+
+Messrs. Robert Prouty and William Flannery of Mr. McCord's office and Mr. Phil Rush of Mr. Sheridan's office also contributed immeasurably to the success of the visit.
+
+Please extend our sincere appreciation to your staff for a job well done.

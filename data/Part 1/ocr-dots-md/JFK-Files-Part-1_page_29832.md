@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_29832.png
+
+Convert to MarkdownSECRET
+
+28 July 1950
+
+MEMORANDUM FOR THE COVERT PERSONNEL BRANCH:
+
+VIA: ADSO
+
+Subject: Promotion Request - David E. Murphy
+
+1. Mr. David E. Murphy, on the basis of proved capabilities, has been assigned in Washington as Chief of the FDS/Far East Section, to Slot Number 1 of the FDS/Far East Headquarters T/O, after having returned from a field assignment of 25 months' duration at PRU/FEC. Since the inauguration of the REDBIRD program on 1 February 1950, he has served as Chief of the Soviet Operations Section in Japan and prior to that was the chief Soviet operations specialist at PRU/FEC.
+
+2. As Chief of FDS/Far East Section he has final responsibility, subject to the approval of the Chief, FDS, for all FDS operational activities in the Far East and for all FDS operations conducted within that portion of the USSR east of the Ural mountains. In connection with his work he is responsible for the recruitment, training, and overall direction of staff employees assigned to the Far East Section at headquarters and those assigned to the Soviet Operations Section at PRU/FEC as well as for the planning, directing, implementing, and support of all operations indicated above. When the full T/O strength has been reached, there will be a total of 14 staff employees under his supervision.
+
+3. Mr. Murphy is particularly well qualified as Chief, FDS/Far East Section in terms of linguistic ability, knowledge of the USSR, wartime and post-war operational work, and administrative and executive experience as Chief, Soviet Operations Section, PRU/FEC. His performance during the time he has been in FDS has been outstanding in every respect and it is strongly urged that adequate recognition of his past work and present capabilities be given by promoting him to the grade of GS-13 authorized for the position he is now holding. Mr. Murphy has been in the grade of GS-12 for two years and three months.
+
+4. Attached is a memorandum from FDZ covering subject's performance as a member of that Division and concurring in the desirability of his promotion.
+
+SECRET
+
+14-00000

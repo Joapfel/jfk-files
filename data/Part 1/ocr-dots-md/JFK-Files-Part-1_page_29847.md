@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_29847.png
+
+Convert to Markdown2130 E Street, N.W.
+Washington, D. C.
+
+5 April 1948
+
+REGISTERED ADDRESS ONLY
+
+Mr. David Edmund Murphy
+Art. 304
+4607 Connecticut Avenue, N.W.
+Washington, D. C.
+
+Dear Mr. Murphy:
+
+This letter is to officially confirm our telephone conversation this morning, advising you that your employment with this agency has been approved at an annual base salary of $5905.20.
+
+It is requested that you report for duty as soon as possible, today, to One Building, 25th and Constitution Avenue, N.W., Washington, D. C.
+
+EDWIN H. TRUETELL
+Chief, Personnel Division

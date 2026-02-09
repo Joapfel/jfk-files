@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_29788.png
+
+Convert to MarkdownOctober 23, 1975
+
+Mr. David Murphy
+1537 Forest Villa Drive
+McLean, Virginia 22101
+
+Dear Dave,
+
+Please let me add this additional note of best wishes to you-on the occasion of your retirement. You made a major contribution not only to the individual operations and responsibilities you held during your service but also to the growth of a more professional agency. I must express my own personal appreciation for the last year of service as a National Intelligence Officer, wherein I think you have broken new ground again for us for the future. Please accept my personal thanks, as well as those of the Agency, for the many contributions you made to both of us.
+
+WTC:lm (24 Oct 75)
+
+Distribution:
+
+Orig - Addressee
+1 - DCI
+1 - D/Pers

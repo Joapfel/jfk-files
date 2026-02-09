@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_29740.png
+
+Convert to MarkdownAUGUST 16, 1947
+
+FM. 171 - Experience 13-1
+
+Enclosure No. 1, Page 1
+
+During the period 1950 through 1953, I was the Supervisory Photographer for Chief of Photographic Laboratory for the Department of the Army, Office of the Army Attache, American Embassy, London, England.
+
+## Mission
+
+Direct the technical operations of Technical Photographers and Photographic Laboratory Technicians. Operations included all of European Theater.
+
+## Training
+
+I conducted regular seminars on all aspects of photography and photo laboratory techniques for personnel assigned to the European Area.
+
+## Operations
+
+I performed the basic operations as indicated in Experience 18-3 - Mission-Tasks and Artistic Segments. In addition to the foregoing I supervised specialists and technicians' efforts in high volume reproduction of film that averaged over a million feet (black/white/color) of motion picture film.
+
+Equipment utilized was the latest Eastman-Kodak, Bell and Howell, and Houston Fearless printing and processing equipment.
+
+In directing this effort I worked in close coordination with motion picture producers in the planning and organizing the photographic aspects of specific task/program. It was my duty to plan work and secure ethically perfect photographs that will permit achieve attainment of task/program objectives. This required the ability and judgment in varying processes, also in the utilization of equipment that transcended the normal processes and procedures in order to produce effects that would spotlight the task/program objectives which the photograph was designed to produce.

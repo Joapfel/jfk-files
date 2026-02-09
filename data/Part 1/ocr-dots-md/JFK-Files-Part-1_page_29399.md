@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_29399.png
+
+Convert to MarkdownAssignments either domestic or abroad will require that Mr. Lynch fly in aircraft. This requirement to fly may be not only for transportation purposes but could be a requirement of his assignment in connection with his PM work.
+
+In addition to the technical aspects of any PM assignment, Mr. Lynch would be required to perform his duties using leadership ability, guess and good judgment in line with the covert aspect of his position.

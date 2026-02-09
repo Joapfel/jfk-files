@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_29499.png
+
+Convert to Markdown9 April '63
+
+TO : COJ
+FROM : IRVING C DEVUONO
+SUBJECT : INCOME TAX
+
+I was sent to this Station in Aug, 61 and was given a cover briefing at Headquarters before I left in which I was told that since I was paying into a retirement fund of this organization that they would no longer withhold Social Security from my pay.
+
+In late 61 I was notified that they were refunding to me all money withheld for income tax up to that time and that I would have to file on the inside and to start withholding my own taxes. This was done and I was told by this station to file the cover return with them and to file an overt return on my Army retirement pay. This I did for the year 1961. I was also told by BOB the tax man to file this years return the same way. I made my own tax withholding during 1962 and have the money to cover the taxes, but now I am told that because someone made a mistake and mailed both me and the IRS a form 1099 on my 1962 pay that now I must file an overt return. This now will cause me to pay $225.00 self-employment tax penalty will make me liable to a 6% penalty for not filing an estimated return quarterly. Since I would not have had to pay these extra taxes if the mistake in mailing the form 1099 had not been made and since I did everything in this matter that the station wanted me to do I do not feel that this extra cost should be charged by me. I feel this is penalizing me for someone else's mistake. I ask that this matter be reconsidered and that I be informed as to how I should file my 1962 tax return and that I also be told how this years withholding is to be done.

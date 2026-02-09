@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_30323.png
+
+Convert to MarkdownMEMORANDUM FOR: Chairman, OS Career Board
+
+SUBJECT : Quality Step Increase for Mr. James W. McCord, Jr.
+
+1. Mr. McCord has served as Chief of the Technical Division since 23 July 1965. Through his leadership and fine management of the Division, he and his engineers have developed several new and valuable techniques in the audio countermeasures field. The cost of research and development in these techniques was at a minimum and saved the Government much time and money in increasing the state of the art in audio countermeasures.
+
+2. Mr. McCord supervises his Division in a vigorous manner and instills enthusiasm and esprit de corps within his organization--a difficult task because of the extensive amount of world-wide travel demanded from his subordinates.
+
+3. Through the efforts of Mr. McCord the establishment of an Interagency Training Center for audio countermeasures is proceeding in an orderly basis, and the first courses offered to technical personnel in the intelligence community will begin this fall. The Technical Division, PTOS, serves as the Executive Agent for the operation of such school for the Community.
+
+4. In view of Mr. McCord's sustained high level of performance of duties and the outstanding achievement in the research and development of new hardware and techniques in the audio countermeasures field, it is recommended that Mr. McCord be awarded a Quality Step Increase.
+
+James P. O'Connell
+Deputy Director of Security (PTOS)
+
+SC-01.87

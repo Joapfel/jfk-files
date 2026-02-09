@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_30130.png
+
+Convert to MarkdownSECRET
+
+<table><tbody><tr><td>26. CAN THINK ON HIS FATE.</td></tr><tr><td>27. COMES UP WITH SOLUTIONS TO PROBLEMS.</td></tr><tr><td>28. STIMULATING TO ASSOCIATES, A "SPARK PLUG".</td></tr><tr><td>29. DOLPH MINDTO.</td></tr><tr><td>10. OBSERVANT.</td></tr><tr><td>31. CAPABLE.</td></tr><tr><td>12. CLEAR THINKING.</td></tr><tr><td>33. COMPLETES ASSIGNMENTS WITHIN ALLOWABLE TIME LIMITS.</td></tr><tr><td>34. EVALUATES SELF REALISTICALLY.</td></tr><tr><td>35. WILL INFORMED ABOUT CURRENT EVENTS.</td></tr><tr><td>30. DILIGERATE.</td></tr><tr><td>37. EFFECTIVE IN DISCUSSIONS WITH ASSOCIATES.</td></tr><tr><td>38. IMPLEMENTS DECISIONS REGARD- LESS OF OWN FEELINGS.</td></tr><tr><td>39. THOUGHTFUL OF OTHERS.</td></tr><tr><td>40. WORKS WELL UNDER PRESSURE.</td></tr><tr><td>41. DISPLAYS JUDGMENT.</td></tr><tr><td>42. GIVES CREDIT WHEN CREDIT IS DUE.</td></tr><tr><td>43. HAS DRIVE.</td></tr><tr><td>44. IS SECURITY CONSCIOUS.</td></tr><tr><td>45. VERSATILE.</td></tr><tr><td>48. HIS CRITICISM IS CONSTRUCTIVE.</td></tr><tr><td>47. ABLE TO INFLUENCE OTHERS.</td></tr><tr><td>48. FACILITATES SMOOTH OPERATION OF HIS OFFICE.</td></tr><tr><td>49. DOES NOT REQUIRE STRONG AND CONTINUOUS SUPERVISION.</td></tr><tr><td>50. A GOOD SUPERVISOR.</td></tr><tr><td colspan="2"><strong>SECTION V</strong></td></tr><tr><td colspan="2">A. WHAT ARE HIS OUTSTANDING STRENGTHS?</td></tr><tr><td colspan="2">Broad knowledge of technical aspects of intelligence and counter-intelligence work, particularly in the authentication field.</td></tr><tr><td colspan="2">B. WHAT ARE HIS OUTSTANDING WEAKNESSES?</td></tr><tr><td colspan="2">Excessive enthusiasm in his own field which causes him to "overtalk" occasionally; at times this results in an unconscious reaction by his hearers to give information he is passing on a lower professional evaluation than is justified.</td></tr></tbody></table>
+
+SECRET
+
+SECRET

@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_29804.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td colspan="4">REQUEST FOR PERSONNEL ACTION</td></tr><tr><td>1. SERIAL NUMBER</td><td>: NAME (Last, First, Middle)</td><td></td><td>DATE PREPARED</td><td>7 JUNE 1962</td></tr><tr><td colspan="3"></td><td colspan="2"><i>(EFFECTIVE DATE REQUESTED)</i></td></tr><tr><td colspan="3"><i>NATURE OF PERSONNEL ACTION</i></td><td colspan="2"><i>CATEGORY OF EMPLOYMENT</i></td></tr><tr><td colspan="5"><u>Reassignment</u></td></tr><tr><td rowspan="2">0. FUNDS</td><td>X</td><td>V TO CR</td><td rowspan="2">2259</td><td rowspan="2">1010-1000</td></tr><tr><td></td><td>CR</td><td>TO CR</td></tr><tr><td colspan="5"><i>ORGANIZATIONAL DESIGNATIONS</i></td></tr><tr><td colspan="5"><b>DDP/EE</b><br/><b>Office of the Chief</b></td></tr><tr><td colspan="3"><i>POSITION TITLE</i></td><td colspan="2"><i>CAREER SERVICE DESIGNATION</i></td></tr><tr><td colspan="3">OPS. OFF. Div. Ch</td><td colspan="2">HOT 0001 D</td></tr><tr><td colspan="3"><i>CLASSIFICATION SCHEDULE (GS, LS, etc.)</i></td><td colspan="2"><i>GRADE AND STEP</i></td></tr><tr><td colspan="3">GS</td><td colspan="2">16 3</td></tr><tr><td colspan="3"><i>REMARKS</i></td><td colspan="2"><i>SALARY OR RATE</i></td></tr><tr><td colspan="5">One copy has been forwarded to the Office of Security.<br/>From: DDP/EE<br/>Office of the Chief<br/>Washington, D.C.<br/>#2</td></tr></table>
+
+SECRET
+
+1152 ... REPRODUCIBLE ... 1024
+
+<table><thead><tr><th>OFFICER</th><th>NAME</th><th>DDESCHWAB</th><th>DATE SIGNED</th><th>OFFICER</th><th>NAME</th><th>DDE "APPROVED BY" [Signature]</th><th>OFFICER</th><th>NAME</th><th>DDE "APPROVED BY" [Signature]</th></tr></thead><tbody><tr><td>JOBBER, D.R.</td><td>JOSEPH R.</td><td>75-173</td><td>L-7.02-72</td><td>KLEISER, L.M.</td><td>G.G.</td><td>16.01-83-84</td><td>NEUERT, F.J.</td><td>M.W.</td><td>10.01-83-84</td></tr><tr><td>BROWN, L.E.</td><td>KEITH M.</td><td>75-173</td><td>L-7.02-72</td><td>BRONSON, R.W.</td><td>[Signature]</td><td>16.01-83-84</td><td>BRONSON, R.W.</td><td>[Signature]</td><td>16.01-83-84</td></tr><tr><td>HARRIS, E.D.</td><td>ROBERT C.</td><td>COO-LS.</td><td>L-2</td><td>HOSS, H.M.</td><td>COO-LS.</td><td>16.01-83-84</td><td>HOSS, H.M.</td><td>COO-LS.</td><td>16.01-83-84</td></tr><tr><td>CLARK, E.A.</td><td>BOB M.</td><td>COO-LS.</td><td>L-2</td><td>DAVIES, J.N.</td><td>COO-LS.</td><td>16.0

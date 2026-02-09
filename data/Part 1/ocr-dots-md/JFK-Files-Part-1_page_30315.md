@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_30315.png
+
+Convert to MarkdownSECRET
+
+Section D-Continued - James Walter McCord, Jr.
+
+former Soviet intelligence personalities. This activity led to close liaison with British and other Western intelligence representatives involving numerous trips to Europe. This liaison activity with representatives of the British MI-5 established a direct channel of communications resulting in a continuous exchange of leads and a flow of operational data over the years of benefit to the Agency.
+
+During the period of his work with the Security Research Staff, in which he served as Deputy Chief from May 1957, Mr. McCord was the Agency's case officer in a number of double agent cases involving Agency staff employees who had been contacted and were being developed for recruitment by the Soviet intelligence service.
+
+From 1962 to 1964, Mr. McCord served overseas as Chief of the Regional Security Support Staff located at Frankfurt, Germany with responsibility for the overall personnel and physical security and audio countermeasures programs applicable to the Stations and Bases of the European area. This assignment was followed by attendance at the Air War College, August 1964 to June 1965.
+
+For the past five years, Mr. McCord has held two vital line positions with world-wide responsibilities involving the Agency's audio countermeasures and physical security programmes.
+
+As Chief of the Technical Division from 23 July 1965 to 10 October 1968, Mr. McCord supervised a technical operation with considerable skill. Although not an engineer by training, he spanned a difficult gap between the administrative and technical demands of his responsibilities, guiding the development of useful and esoteric equipment in the counter-audio field to a point where the Agency became the recognised leader among Government departments in this area of activity. This leadership is evidenced by the
+
+SECRET

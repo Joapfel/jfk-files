@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_30284.png
+
+Convert to MarkdownSECRET/
+
+officers with whom I have had the pleasure to be associated. During this period he has been assigned responsibility for supervision of the Military Personnel Branch. This consolidation has given the Security Branch greater flexibility and has increased the utilization of available personnel. Subject has also instituted off-duty security training courses for those interested military personnel.
+
+4. I would rate him from Strong to Outstanding on the duties in paragraph 2 above with an overall rating of <u>Strong</u>.
+
+/s/ Daniel M. Kelley
+
+Read:
+
+/s/ James W. McCord, Jr.
+
+Reviewer's Comments;
+
+McCord
+
+I agree that McCord is a very strong security officer. He tends to be conservative in his views and judgments. He maintains excellent morale in his Branch. In the never-ending conflict between economy and a desirable level of security, he usually loans toward the latter.
+
+/s/ Wendell Little
+
+SECRET/

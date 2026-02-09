@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_29595.png
+
+Convert to Markdown<table><thead><tr><th colspan="5">SECTION VII GEOGRAPHIC AREA KNOWLEDGE AND FOREIGN TRAVEL</th></tr><tr><td colspan="5">1. LIST BELOW ANY FOREIGN REGIONS OR COUNTRIES IN WHICH YOU HAVE TRAVELLED OR GAINED KNOWLEDGE AS A RESULT OF RESIDENCE, STUDY OR WORK ASSIGNMENT. INDICATE TYPE OF KNOWLEDGE SUCH AS TERRAIN, HARDURS, UTILITIES, RAILROADS, INDUSTRIES, POLITICAL PARTIES, ETC.</td></tr><tr><th rowspan="2">NAME OF REGION OR COUNTRY</th><th rowspan="2">TYPE OF SPECIALIZED KNOWLEDGE</th><th rowspan="2">DATES OF RESIDENCE OR TRAVEL</th><th rowspan="2">DATES AND PLACE OF STUDY</th><th colspan="4">KNOWLEDGE ACQUIRED BY</th></tr><tr><th>RESIDENCE</th><th>TRAVEL</th><th>STUDY</th><th>WORK ASSIGNMENT</th></tr></thead><tbody><tr><td>Egypt</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Italy</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Israel</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Germany</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Czechia</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Dubai</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Turkey</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+2. INDICATE THE PURPOSE OF VISIT, RESIDENCE, OR TRAVEL IN EACH OF THE REGIONS OR COUNTRIES LISTED ABOVE.
+
+3. UNITED STATES PASSPORT NUMBER AND EXPIRATION DATE, IF ISSUED.
+
+<table><caption>SECTION VIII<br/>TYPING AND STENOGRAPHIC SKILLS</caption><thead><tr><th>1. TYPOGRAPH(wpm)</th><th>2. SHORTHAND(wpm)</th><th>3. SHORTHAND SYSTEM USED - CHECK (X) APPROPRIATE ITEM</th></tr></thead><tbody><tr><td></td><td></td><td>GREGG SPEEDWRITING STENOTYPE OTHER (Specify):</td></tr></tbody></table>
+
+2. INDICATE OTHER BUSINESS MACHINES WITH WHICH YOU HAVE HAD OPERATING EXPERIENCE OR TRAINING (Comptometer, Microgramph, Card Punch, Etc.).
+
+<table><thead><tr><th>SECTION VIII SPECIAL QUALIFICATIONS</th></tr></thead><tbody><tr><td>1. LIST ALL HOBBIES AND SPORTS IN WHICH YOU ARE ACTIVE OR HAVE ACTIVELY PARTICIPATED. INDICATE YOUR PROFICIENCY IN EACH.</td></tr><tr><td>2. INDICATE ANY SPECIAL QUALIFICATIONS RESULTING FROM EXPERIENCE OR TRAINING WHICH MIGHT FIT YOU FOR A PARTICULAR POSITION OR TYPE OF WORK.</td></tr><tr><td>3. EXCLUDING BUSINESS EQUIPMENT OR MACHINES WHICH YOU MAY HAVE LISTED IN ITEM 2. SECTION VII, LIST ANY SPECIAL SKILLS YOU POSSESS RELATING TO OTHER EQUIPMENT AND MACHINES SUCH AS OPERATION OF SHORTWAVE RADIO (Indicale CW speed, sending and receiving), OFFSET PRESS, TURRET LATHE, SCIENTIFIC AND PROFESSIONAL DEVICES.</td></tr></tbody></table>

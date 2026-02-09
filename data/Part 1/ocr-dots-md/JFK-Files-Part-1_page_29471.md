@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_29471.png
+
+Convert to MarkdownSECRET
+
+Attachment
+
+Section D., J.
+
+The Reviewing Officer is familiar with Subject's performance based primarily on discussions with Subject and Subject's supervisor, detailed examination of Subject's operational plans, general observation of Subject during the past four years and a first hand knowledge of the results of operations conducted under Subject's guidance. Subject is a hard-working, dedicated officer who has a knack for getting things done in the operational field. Subject is exceptionally well qualified for the job he is doing. Additionally, Subject has a flair for getting along with the members of the Commando Group without losing objectivity. Subject's operational planning is sound and complete in all details. Subject is completely self-sufficient in operational command and agent relationship situations. Subject's performance at this Station clearly warrants an over-all evaluation of Strong.
+
+SECRET

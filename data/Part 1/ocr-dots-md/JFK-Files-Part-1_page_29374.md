@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_29374.png
+
+Convert to MarkdownSECRET
+
+14 DEC 1970
+
+MEMORANDUM FOR THE RECORD
+
+Subject: Mr. Grayston Lynch
+
+It was determined that no action would be taken on this case until after the first of the year (1971) at which time Mr. Lynch will be advised by C/SOD/Personnel that he will be made available for a suitable operational assignment, most likely overseas, unless he opts to apply for disability retirement.
+
+If Mr. Lynch opts to apply for disability retirement he will be continued in his present assignment pending approval of his retirement.
+
+If Mr. Lynch chooses to be shopped for a field assignment, SOD will initiate action to locate such a position. When found, Mr. Lynch will be processed for the assignment. Should he fail to be medically approved, action will be taken to obtain his retirement for medical reasons. Should an assignment not be forthcoming by April 1971, a medical disposition for overseas planning purposes (General) will be requested.
+
+The purpose of the above scheduled action is to either find a suitable assignment for Mr. Lynch or to effect his disability retirement on either a voluntary or involuntary basis.
+
+Darold D. Aldridge
+Deputy Chief, Personnel
+Special Operations Division
+
+SECREI
+
+<table><tr><td>1</td></tr><tr><td>E</td></tr><tr><td>C</td></tr><tr><td>O</td></tr><tr><td>R</td></tr><tr><td>T</td></tr><tr><td>N</td></tr><tr><td>G</td></tr><tr><td>T</td></tr></table>

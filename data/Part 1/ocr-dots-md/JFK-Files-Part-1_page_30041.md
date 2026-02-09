@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_30041.png
+
+Convert to MarkdownCONFIDENTIAL,
+
+DATE: 22 March 1955
+
+PROT. 2 - 1083
+
+TO: Chief, SS
+
+FROM: Chief, Communications Security Division
+
+SUBJECT: Notification of Cryptographic Clearance - David B. Murphy
+
+1. Subject employee has been granted a cryptographic clearance effective this date (or 6 February 1955).
+
+2. Subject has been informed of the granting of clearance and has been briefed concerning cryptographic and related communications security matters.
+
+3. A cryptographic clearance is not a permanent clearance. It will be revoked immediately should the employee fail to maintain the security standards prescribed in CIA Regulation 90-50. It may also be revoked because of lack of need or for appropriate administrative or technological communications security reasons.
+
+4. An individual holding a CIA cryptographic clearance is authorised to have custody, access to, or knowledge of staff cryptographic material or information only to the extent necessary for the performance of his official duties. A cryptographic clearance alone does not constitute authorization to perform cryptographic duties without the prior approval of the Assistant Director for Communications.
+
+5. When Subject employee no longer requires the clearance because of a change in assignment or duties (e.g., return from overseas assignment, replacement on active communication) it is requested that the Communications Security Division (2411 & Building, ext. 3021) be notified so that the clearance may be revoked.
+
+FOR THE CHIEF, COMMUNICATIONS SECURITY DIVISION:
+
+CREATE A. TOOLEY
+Chief, Protective Branch
+
+Distribution:
+
+2 - Addressable
+
+1 - Security Office (2512 I Flieg.)
+
+1 - Personal Office (Wing 1-II Curio Hall)
+
+1 - OCS/PROF file
+
+CONFIDENTIAL

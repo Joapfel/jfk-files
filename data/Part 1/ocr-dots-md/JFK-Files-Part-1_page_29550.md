@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_29550.png
+
+Convert to MarkdownSECRET
+
+23 May 1961
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: G.L. Lynch - ZRJELI
+
+1. Lynch called today at 1200 noon. He said that he wanted to let me know that he was back, and to find out what had been done about his contract.
+
+2. I told him that I had heard nothing since he had left. I said that before he left we had rather leaned over backwards to write a contract for him which he had not accepted; that instead he had taken the matter to the Director, and that I had then been requested to deliver a copy of the contract to the Director's office which I had done. I said that I had then acted as a messenger boy only, and had not discussed the matter at the Director's office, nor heard anything about it since.
+
+3. Lynch said that he could fill me in from there. He said that at the Director's office the contract had been turned over to the Director's Executive Officer who was to review it and recommend a salary figure. Lynch said that he had agreed to accept whatever figure the Executive Officer recommended, and was told to call CA/C/PMG/Mr. Cox on his return.
+
+4. I asked Lynch where he could now be reached, and he said that he was at Bob Moore's office on X-8912.
+
+CA/PMG/EFF E77

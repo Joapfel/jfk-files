@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_30054.png
+
+Convert to Markdown14-0000
+
+<table>
+    <tbody>
+        <tr>
+            <td>STANDARD FORM 58<br/>REQUEST FOR PERSONNEL ACTION</td>
+            <td style="text-align: right;">VOUCHER NO.</td>
+        </tr>
+    </tbody>
+</table>
+
+SECRET
+
+<table><thead><tr><th colspan="4">REQUESTING OFFICE: Fill in items 1 through 12 and A through D except 6B and 7 unless otherwise instructed.<br>If applicable, obtain resignation and fill in separation data on reverse.</th></tr><tr><th>I. NAME (Ms., Mrs., One given name, initial(s), and surname)</th><th>Z. DATE OF BIRTH</th><th>L. REQUEST NO.</th><th>E. DATE OF SECRET</th></tr></thead><tbody><tr><td>Mrs. E. M. KIASEY</td><td>11 Dec 1916</td><td>B. EFFECTIVE DATE<br>A. PROPOSED:<br>D. APPROVED:</td><td>27 May 55<br>L. C. S. OR OTHER LEGAL AUTHOR<br>117<br>19 JUN 1955</td></tr><tr><td>I. NATURE OF ACTION REQUESTED:<br>A. PERSONNEL (Specify whether appointment, promotion, separation, etc.)<br>PRIOR TO CHANGE<br>B. POSITION (Specify whether establish, change grade or title, etc.)</td><td></td><td></td><td></td></tr><tr><td colspan="4"><strong>FROM—</strong> 10 TECH AIDS BY 92-11</td></tr><tr><td colspan="3">GS-0136.03-11 $5940 per annum<br>DDF/Technical Services Staff<br>Authentication<br>Graphic Arts Reproduction Division<br>Analysis and Research Branch<br>Washington, D.C.</td><td><strong>TO—</strong> 10 TECH AIDS BY 92<br>GS-0136.03-12 $7040 per annum<br>DDF/Technical Services Staff<br>Authentication<br>Graphic Arts Reproduction Division<br>Analysis and Research Branch<br>Washington, D.C.</td></tr><tr><td colspan="2"><input type="checkbox" checked disabled></td><td><strong>DEPARTMENTAL</strong></td><td><input type="checkbox" checked disabled></td><td><strong>FIELD</strong><br>XX<br><strong>DEPARTMENTAL</strong></td></tr><tr><td colspan="5">A. REMARKS (Use cover if necessary)</td></tr><tr><td colspan="5">APPROVED BY TSS CAREER SERVICE PANEL</td></tr><tr><td>B. REQUESTED BY (Name and title)</td><td colspan="3"></td><td>D. REQUEST APPROVED BY [Signature]</td></tr><tr><td>C. FOR ADDITIONAL INFORMATION CALL (Name and telephone extension)<br>To: Clarendon X 3031</td><td colspan="3"></td><td>Tel: Career Management Officer, TSS</td></tr><tr><td colspan="5">1. VETERAN PREFERENCE</td></tr><tr><td>NONE</td><td>WWII</td><td>OTHER IF:</td><td>10 POINT<br>DISAB. OTHER</td><td rowspan="2" colspan="2">1. POSITION ORIFICATION ACTION<br>[NEW] [VICE] [L.A.] [REAL]<br>SD-LT</td></tr><tr><td></td><td></td><td>X</td><td></td></tr><tr><td>SEX</td><td>RACE</td><td>12. APPROPRIATION<br>FROM: 5-2515-20<br>NV same</td><td></td><td>18. SUBJECT TO C. S. RETIREMENT ACT (YES NO)<br>Yes</td><td>20. LEGAL RESIDENCE<br><input type="checkbox" checked disabled> CLAIMED <input type="checkbox" checked disabled> PROVED<br>STATE:</td></tr><tr><td colspan="5">21. STANDARD FORM 50 REMARKS</td></tr><tr><td colspan="5"><table border="1"><tbody><tr><td>22. CLEARANCES</td><td>INITIAL OR SIGNATURE</td><td>DATE</td><td>REMARKS:</td></tr><tr><td>A.</td><td></td><td></td><

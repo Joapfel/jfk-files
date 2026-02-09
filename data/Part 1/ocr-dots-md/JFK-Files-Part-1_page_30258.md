@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_30258.png
+
+Convert to MarkdownSTANDARD FORM 50
+REV. APR. 1971
+PROPRIETARY
+
+U S CIVIL SERVICE COMMISSION
+CHAPTER III, FEDERAL PERSONNEL MANUAL
+
+NOTIFICATION OF PERSONNEL ACTION
+
+<table><thead><tr><th colspan="2">I. NAME (MR - MRS) ON GIVEN NAME, INITIAL(S), AND SURNAME</th><th>2 DATE OF BIRTH</th><th>3 JOURNAL OR ACTION NO.</th><th>4 DATE</th></tr></thead><tbody><tr><td colspan="2">Mr. James V. McCord, Jr,</td><td>26 Jan 1924</td><td></td><td>23 Apr 1954</td></tr><tr><td colspan="5">This is to notify you of the following action affecting your employment:</td></tr><tr><th>8. NATURE OF ACTION (USL STANDARD TERMINology)</th><th>9. EFFECTIVE DATE</th><th>7. CIVIL SERVICE OR OTHER LEGAL AUTHORITY</th><th></th><th></th></tr><tr><td>Rearrangement</td><td>25 Apr 1954</td><td>50 USCA 403 j</td><td></td><td></td></tr><tr><th>FROM</th><th>TO</th><th>8. POSITION TITLE</th><th colspan="2"></th></tr><tr><td rowspan="4"><b>Investigator (Gen)</b><br>08-1810-12</td><td colspan="2" rowspan="4"></td><td>Investigator</td><td>T297.01</td></tr><tr><td>9. SERVICE SERIES<br>GRAD. SALARY</td><td>08-1810.22-12</td><td>$7040.00 per ANNUIT</td></tr><tr><td>10. ORGANIZATIONAL<br>DISTRIBUTIONS</td><td colspan="2">DDA/Security Office<br>Special Security Division<br>Operations Branch<br>Office of the Chief</td></tr><tr><td>11. HEADQUARTERS</td><td colspan="2">Washington, D. C.</td></tr><tr><td>FIELD</td><td colspan="3"></td><th>DEPARTMENTAL</th></tr><tr><td colspan="2"><b>FIELD OR DEPT.</b></td><td>12. FIELD OR DEPT.</td><td>FIELD</td><td>X</td></tr><tr><td colspan="2"><b>VETERAN'S PREFERENCE</b></td><td colspan="3"><b>POSITION CLASSIFICATION ACTION</b></td></tr><tr><td>NONE</td><td>WTH</td><td>OTHERS</td><td>S-FT.</td><td>10-FPOINT<br>DISABILITIES<br>X<br>OTHER</td></tr><tr><td colspan="5"><b>CD-SE</b></td></tr><tr><th>SEX</th><th>RACE</th><th>17. APPROPRIATION</th><th>18. GENDER TO C. S.<br>RETIREDMENT ACT<br>(USN)</th><th>19. DATE OF APPOINT-<br>MENT AFFIDAVITS<br>(C/CBS) ONLY</th></tr><tr><td>M</td><td>V</td><td>FROM: 4-7103-20<br>TO: Same</td><td>Yss</td><td>20 LEGAL RESIDENCE<br>[ ] CLAIMED [ ] PROVED<br>STATE: Texas</td></tr><tr><td colspan="5">21. REMARKS: This action is subject to all applicable laws, rules, and regulations and may be<br>subject to investigation and approval by the United States Civil Service Commission.<br>The action may be corrected or canceled if not in accordance with all requirements.</td></tr><tr><td colspan="5">ENTRANCE PERFORMANCE RATING<br>Deputy Assistant Director for Performance 4-7103-20<br>Achievement Rating Card<br>This document is a sample performance rating card for Deputy Assistant Director. It includes fields for rating, comments, and a place for additional notes or remarks.</td></tr><tr><td colspan="5">4. PERSONNEL FOLDER COPY</td></tr></tbody></table>
+
+U.S. GOVERNMENT PRINTING OFFICE, 1983 — 840

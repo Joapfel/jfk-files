@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_29827.png
+
+Convert to MarkdownSECRET
+
+4 December 1950
+
+CONFIDENTIAL TO CLIFF, EED
+
+Subject: MURPHY, David J.
+
+It is requested that Mr. David E. Murphy be transferred from slot #1, Western Section, FWS Headquarters to slot #1, Munich, PDF/S for DAD.
+
+David E. Durand
+Deputy Chief, FDS
+
+APPROVED:
+
+For the Assistant Director
+
+SECRET

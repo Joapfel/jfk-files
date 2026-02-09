@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_29548.png
+
+Convert to Markdown14-00000
+
+9. COMMENT
+
+a. During our first discussions with LYNCH on 10 May 1961, on the question of salary, he stated that he would not accept a new contract at the rate of pay ($9,500) of his present contract, because the Director had promised that he would receive more; however, he would not give us a figure that he would accept. Before the new contract was written he was told that it would be for $11,000, and he voiced no objection. After the contract was written and presented to him for signature, he stated that he wanted $12,500, plus "hazardous duty pay", and that he wanted to take the contract to the Director for review.
+
+b. At the time of his retirement, LYNCH was an Army Captain with 20 years service, and I understand that he was in jump status. Remuneration for this service was about $9,425 per annum, including all allowances. His present retirement pay is $281 per month, or $3,372 per year, and I understand that he would be authorized to retain this in addition to all pay and allowances received from an Agency contract.
+
+Ernest F. Fox
+
+17 May 1961

@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_29497.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+5. Your staff must be organized to permit close contact with team members so as to assure control over them and at the same time provide full security for the existence of your organization. It must also provide security for the planning of all activities in such a way as to assure the compartmentation of staff and team personnel associated with the different categories of operational activity.
+
+6. The following guide lines are provided for the organization:
+
+a. The size and military nature of the force require that the highest possible standard of security be maintained for all personnel and activities. Specifically, the scope should not be comprehended by team members, and compartmentation by teams should be practiced to the maximum.
+
+b. Should, if possible, be composed of men who have no dependents.
+
+7. The following tasks should be undertaken immediately:
+
+a. Continue development of cover for all personnel, their absences, injuries, deaths.
+
+b. Continue the development of concepts to provide for training, during active and inactive periods, transportation to training and staging areas and safehouse utilization.
+
+c. Continue to devise procedures for handling and storage of classified material, arms and equipment.
+
+d. Establish standards for recruitment, discipline, chain of command and security.
+
+STANLEY R. ZAMKA
+Chief, DM
+
+APPROVED:
+
+Chief of Station
+
+SECRET

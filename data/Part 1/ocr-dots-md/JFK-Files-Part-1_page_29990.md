@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_29990.png
+
+Convert to MarkdownCONFIDENTIAL
+
+When Filled In)
+
+<table><tr><td>Voluntary Entries</td></tr><tr><td>Experience in the handling of employee emergencies has shown that the absence of certain essential data often delays and complicates the settlement of estate and financial matters. The information requested in this section may prove very useful to your family if attorney in the event of your disability or death and - will be disclosed only when circumstances warrant.</td></tr><tr><td>DATE NAME AND ADDRESS OF ANY BANKING INSTITUTIONS WITH WHICH YOU HAVE ACCOUNTS AND THE NAMES IN WHICH THE ACCOUNTS ARE CARRIED.</td></tr><tr><td>VIEU VU Co. M: Loan, Va. Branch</td></tr><tr><td>Are you a member of the NORTHWEST Federal Credit Union? [x] YES [ ] NO</td></tr><tr><td>If yes, do you have a joint account? [ ] YES [x] NO</td></tr><tr><td>Have you completed a last will and testament? [x] YES [ ] NO</td></tr><tr><td>PREPLANNED ANnuAl GRoAPhIsm oF yOur CHIIdREn IN cASe Or DIsAsTER TO bOTH PArEnTS? [ ] YES [x] NO (11'Yes' give name(s) and address)</td></tr><tr><td>PurCHASED A POwER OF ATTORNEY? [x] YES [ ] NO</td></tr><tr><td colspan="2">VIENNA TRUST CO.</td></tr><tr><td colspan="2">ADDITIONAL DATA AND/OR CONTINUATION OF PRECEIVING ITEMS</td></tr><tr><td colspan="2">Do NOT NOTIFY MOTHER IN CASE OF EMERGENCY IF SHE WOULD BE REVISED THROUGH MY SISTER - MRS. GEORGE MENTER, 19 BELLEWOOD CIRCLE, NORTH SYRIA, N.Y. Telephone: Area Code 815 x C-L-7 - 2478</td></tr><tr><td colspan="2">IN THE EVENT OF CURIOUS DISASTER, PLEASE NOTIFY MY SISTER - NO - 10-10AM: MRS. ZANIEL BAJANT, CC HARTMAN NFT. Joe Feenix, Corp. Rep. (see back x 354 - 7/7/9)</td></tr></table>
+
+CONFIDENTIAL

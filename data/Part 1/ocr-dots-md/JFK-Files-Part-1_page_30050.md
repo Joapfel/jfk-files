@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_30050.png
+
+Convert to Markdown<table><thead><tr><th>SEPARAL NO.</th><th></th><th>NAME</th><th>OFFICE</th><th>OFFICE TELEPHONE NUMBER</th><th>HOME TELEPHONE EXCHANGE</th><th>CORRECEIVE DATE</th></tr></thead><tbody><tr><td colspan="7"><hr></td></tr><tr><td colspan="7">120-00430</td></tr></tbody></table>
+
+PERSONNEL INFORMATION CARD
+
+<table><tr><td>THE FOLLOWING CREDIBLE PLANS MUST BE TESTED IN CASES WHERE AN EMPLOYEE (B) IS SUFFERED FROM A TELEPHONE NUMBER (A). TRANSFER TO THE ADMINISTRATIVE OFFICE, OR (C) IS TO BE DEEMED ASleeping, for more than 10 days in which case enter the office telephone number of the administrative office. (B) changes marital status. (STATE TYPE OF CHANGE HERE: <u>SAME</u>)</td></tr><tr><td>NAME: Kincley, Herman Edward</td><td>DATE: 6 Apr</td></tr><tr><td>OFFICE (DEPARTMENT & LOCATION): AYR GARET TCS Central</td><td>TELEPHONE NO.: 2(2798</td></tr><tr><td>NEW ADDRESS: 1723 "G" St. N.W.</td><td>CITY: DC</td></tr><tr><td>PRESIDENT ADDRESS: National 8-2786</td><td>COUNTY: MD</td></tr><tr><td>HOME TELEPHONE NO: MARITAL STATUS: Single</td><td>YES ☐ NO ☑</td></tr><tr><td>IS THIS PERSONAL'S NAME TO BE INCLUDED IN THE TELEPHONE DIRECTORY?</td><td></td></tr><tr><td>SEPARAL</td><td>NATIONAL TELEPHONE NO. 501-2786</td></tr><tr><td>DATE: 6 Apr</td><td>TELEPHONE EXCHANGE: 2798</td></tr><tr><td>CORRECEIVE DATE: 10 May</td><td>HOME TELEPHONE NUMBER: 8-2786</td></tr><tr><td>(2798)</td><td>CITY: DC</td></tr><tr><td colspan="2"><hr></td></tr><tr><td colspan="2">120-00430</td></tr></table>

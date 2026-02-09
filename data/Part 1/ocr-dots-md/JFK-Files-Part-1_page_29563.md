@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_29563.png
+
+Convert to Markdownconformance with the Social Security Act of 1935, as amended, and the pro-
+cedures of this Organization (presently 3% on the first $400). For reasons of
+security, all inquiries concerning your relationship to the Social Security system
+shall be made directly to this Organization, and in no event may any such prob-
+lem be presented by you or on your behalf to any representative of the Bureau
+of Old Age and Survivors Insurance unless authorized by this Organization.
+
+5. **Funding.** If necessary to protect the security of this arrangement, monies due you hereunder may be funded in other than a direct manner. It is understood and agreed that any monies so funded constitute payment by the Government in satisfaction of its obligations under this agreement.
+
+7. Execution of Documents. If, in the performance of services under this contract, you assume the custody of Government funds or take title of record to property of any nature whatsoever and wherever situate, which property has in fact been purchased with monies of the U. S. Government, you hereby recognize and acknowledge the existence of a trust relationship, either express or constructive, and you agree to execute whatever documents may be required by the Government to evidence this relationship.
+
+8. Secrecy. You will be required to keep forever secret this contract and all information which you may obtain by reason hereof (unless otherwise instructed by an authorized Government representative), with full knowledge that violation of such secrecy may subject you to criminal prosecution under the Espionage Laws, dated 25 June 1946, as amended, and other applicable laws and regulations.
+
+9. Instructions. Instructions received by you from the Government in briefing, training or otherwise are a part of this contract and are incorporated herein, provided that such instructions are not inconsistent with the terms hereof.
+
+10. Unauthorized Commitments. No promises or commitments pertaining to rights, privileges or benefits other than those expressly stipulated in writing in this agreement or any amendment thereto shall be binding on the Government.
+
+II. Term. This contract is effective as of 1 January 1961, and shall continue thereafter for a period of one (1) year unless sooner terminated:
+
+(a) Upon thirty (30) days' actual notice by either party hereto, or
+
+(b) Upon actual notice to you in the event the results of an initially required medical examination are determined by this organization to be unsatisfactory, or
+
+(c) Without prior notice by the Government, in the event of a breach of this contract by your violation of the security provisions hereof or by your otherwise rendering yourself unavailable for acceptable service.

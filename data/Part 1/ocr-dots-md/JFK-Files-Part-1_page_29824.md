@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_29824.png
+
+Convert to Markdown16 January 1951
+
+MEMORANDUM FOR CHIEF, SFD
+
+Subject: MURPHY, David E.
+
+It is requested that Mr. David E. Murphy be transferred from slot #1, Munich, PIM/S for DAD to slot #2, Office of Chief, Soviet Operations Section/NOB.
+
+Phyllis M. Landrum
+Administrative Clerk, FDS

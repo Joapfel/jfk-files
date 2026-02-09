@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_29950.png
+
+Convert to Markdown1 April 1964
+
+MEMORANDUM IN LIEU OF ANNUAL FITNESS REPORT
+(For the period ending 31 March 1964)
+
+SUBJECT: Mr. David E. Murphy
+
+1. Mr. Murphy relinquished his duties as Chief, Eastern Europe Division in September 1963 and took over his present responsibilities as Chief of the SR Division at that time. This report covers the period from 1 April 1963 to the present and thus includes comments on his performance as Chief, EE Division and Chief, SR Division.
+
+2. Mr. Murphy combines an extraordinary talent for this work with a considerable and varied experience in it. His previous report indicated that he was turning in an outstanding performance in dealing with the affairs of the EE Division, and he continued this level of his performance in the first six months covered by this report. A general reorganization of senior officers in the Clandestine Services offered the opportunity to put Mr. Murphy in charge of the division which he had long aspired to direct and for which position he was eminently qualified, both linguistically and by field experience. He is showing excellent results in refurbishing the Division and giving it new life and impetus. His considerable energies enable him to give an outstanding performance in managing and directing his Division's affairs while at the same time engaging personally and most actively in a number of very important Divisional cases. His competence includes awareness of the need for keeping his costs down and getting the maximum from his manpower. He is showing imagination and initiative and is probably the best qualified and best prepared officer ever to head the Division.
+
+Thomas H. Karamessines
+Assistant Deputy Director for Plans
+
+Reviewing Official:
+
+Richard Helms
+Deputy Director for Plans
+
+I have noted the above report.
+
+David E. Murphy
+
+<table>
+   <tr>
+    <td>Image</td>
+   </tr>
+  </table>

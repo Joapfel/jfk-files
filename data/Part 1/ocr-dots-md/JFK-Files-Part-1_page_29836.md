@@ -1,0 +1,50 @@
+# JFK-Files-Part-1_page_29836.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA: AAR SPECIFIED AIR OF SEA PONER
+
+DISPATCH NO. 9310-597
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO : Chief, Tokyo Station
+
+FROM : Confidential Public Branch
+
+SUBJECT: GENERAL-
+
+SPECIFIC-
+
+DATE: 7 Jun 1949
+---
+
+Administrative
+Payroll Change Notice
+
+1. Attached herewith are payroll change notices for the pay period 1 May thru 28 May 1949, for the following individuals:
+
+Ramoso, Donald F.
+Pasold, Harry D.
+Horrill, Gordon A.
+Vozin, Walter I.
+
+Bormoct, Geo J.
+
+2. Forward all employee's information.
+
+ALICE
+
+6 payroll change notices.
+
+CUMULUS N. DAVIN
+
+FREQUENT OFFICE USE
+
+CROSS REFERENCE (SARE) ..
+
+A U T H O R I S H S E C R E T
+R E F E R E N C E S
+
+E G H S E L K H A S S A H Y L O H I
+S E E H T O R P H U I

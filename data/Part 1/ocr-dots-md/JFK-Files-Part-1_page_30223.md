@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_30223.png
+
+Convert to MarkdownWATERGATE FILE REVIEW FLAG
+
+SUBJECT: McCord, James
+FILE NO: 58124 DATE FLAGGED: 24 April 1974
+
+All information contained in this file through the above date was reviewed for possible significance to "Watergate" or other related matters. This review was conducted by Office of Security personnel. Additionally, this file was in the custody of the Office of the Inspector General from 26 February 1974 until released to the Office of Security on 15 April 1974.
+
+No action is required through date cited above for further "Watergate" related file review reporting.
+
+File Cross Reference - 625000
+
+Officer Reviewing File
+
+DO NOT REMOVE OR DESTROY THIS FLAG WITHOUT THE CONCURRENCE OF THE DEPUTY DIRECTOR OF SECURITY.

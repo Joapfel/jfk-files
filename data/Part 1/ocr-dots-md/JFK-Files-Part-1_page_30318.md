@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_30318.png
+
+Convert to MarkdownMr. James W. McCord, Jr.
+Certificate of Distinction
+
+CITATION
+
+Mr. James W. McCord, Jr. is hereby awarded the
+Central Intelligence Agency's Certificate of Distinction.
+
+During his nineteen years of Agency service, both
+domestic and foreign, Mr. McCord displayed remarkable
+imagination, ingenuity and effectiveness in the performance
+of his assigned tasks. His sustained superior performance of
+duty of high value over the years leaves a marked contribution
+to the overall mission of the Office of Security and the Agency,
+particularly in the areas of physical and technical security.

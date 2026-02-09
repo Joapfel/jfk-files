@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_30264.png
+
+Convert to MarkdownSECRET
+SECURITY INFORMATION
+
+INSPECTION & SECURITY OFFICE
+
+CODE "T"
+
+SPECIAL SECURITY DIVISION FIELD OFFICES
+
+<table><thead><tr><th>NAME</th><th>TITLE</th><th>CODE<br>SERIES</th><th>POSITION<br>HOLDER</th></tr></thead><tbody><tr><td colspan="4">CHICAGO FIELD OFFICE (CONTINUED)</td></tr><tr><td>DOYLE, C. Veronica</td><td>Clerk(Stenography)</td><td>GS-301-5</td><td>T185</td></tr><tr><td>FERRMAN, Mary Margaret</td><td>Clerk(Stenography)</td><td>GS-301-4</td><td>T185.01-4</td></tr><tr><td>GAVRILOVICH, Gloria A.</td><td>Clerk(Stenographer)</td><td>GS-312-4</td><td>T186</td></tr><tr><td colspan="4">SAN FRANCISCO FIELD OFFICE</td></tr><tr><td>HUNT, William C.</td><td>Investigator(Gen)</td><td>GS-1810-13</td><td>T187-13</td></tr><tr><td>RICH, Edward H.</td><td>Investigator(Gen)</td><td>GS-1810-12</td><td>T188-12</td></tr><tr><td>MULLAN, William J.</td><td>Investigator(Gen)</td><td>GS-1810-12</td><td>T189-12</td></tr><tr><td>FINCH, William G.</td><td>Investigator(Gen)</td><td>GS-1810-12</td><td>T189.01-12</td></tr><tr><td>SPEARS, C. Calvin, Jr.</td><td>Investigator(Gen)</td><td>GS-1810-11</td><td>T189.02-11</td></tr><tr><td>TURTON, Jack S.</td><td>Investigator(Gen)</td><td>GS-1810-12</td><td>T190</td></tr><tr><td>HARRIS, Jack A.</td><td>Investigator(Gen)</td><td>GS-1810-11</td><td>T190.01-11</td></tr><tr><td>HAVELAND, Glenn A.</td><td>Investigator(Gen)</td><td>GS-1810-11</td><td>T190.02-11</td></tr><tr><td>MECCORD, James W.</td><td>Investigator(Gen)</td><td>GS-1810-11</td><td>T190.03-11</td></tr><tr><td>MEEK, Bert B., Jr.</td><td>Investigator(Gen)</td><td>GS-1810-11</td><td>T190.04-11</td></tr><tr><td>STITH, Ernest P.</td><td>Investigator(Gen)</td><td>GS-1810-12</td><td>T190.05</td></tr><tr><td>GAMRATH, Murray W.</td><td>Investigator(Gen)</td><td>GS-1810-11</td><td>T191</td></tr><tr><td>ALDEN, John S.</td><td>Investigator(Gen)</td><td>GS-1810-11</td><td>T191.01</td></tr><tr><td>SULLIVAN, Thomas V.</td><td>Investigator(Gen)</td><td>GS-1810-9</td><td>T191.02-9</td></tr><tr><td>JOVICK, Edward J.</td><td>Investigator(Gen)</td><td>GS-1810-9</td><td>T191.03-9</td></tr><tr><td>CONNORS, Donald O.</td><td>Investigator(Gen)</td><td>GS-181

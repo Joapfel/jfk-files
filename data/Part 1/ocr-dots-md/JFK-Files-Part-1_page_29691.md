@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_29691.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="2">SECTION C:</th></tr><tr><td colspan="2"><strong>NARRATIVE COMMENTS</strong></td></tr></thead><tbody><tr><td>Indicate significant strengths or weaknesses demonstrated in current position keeping in proper perspective their relationship to overall performance. State suggestions made for improvement of work performance. Give recommendations for training/Comment on foreign language competence, if required for current position. Amplify or explain ratings given in Section B to provide best basis for determining future personnel action. Manner of performance of managerial or supervisory duties must be described, if applicable.</td></tr><tr><td>The volume of work produced by Mr. Maksymiec has been adequate; the quality of work produced has been good but there is need for further improvement. However, Mr. Maksymiec is making every effort to improve the quality of his work. He is cooperative and gets along well with his fellow employees.</td></tr></tbody></table>
+
+<table><thead><tr><th colspan="3">SECTION D<br>CERTIFICATION AND COMMENTS</th></tr><tr><td colspan="3">1.<br>BY EMPLOYEE</td></tr><tr><td colspan="3">I CERTIFY THAT I HAVE SEEN SECTIONS A, B, AND C OF THIS REPORT</td></tr></thead><tbody><tr><td>DATE<br/>7 February 83</td><td>SIGNATURE OF EMPLOYEE<br/>Alyssa Klein J. Maksymiec</td><td></td></tr><tr><td>2.<br>BY SUPERVISOR</td><td></td><td></td></tr><tr><td>MONTHS EMPLOYEE HAS BEEN UNDER MY SUPERVISION<br/>9 months</td><td>IF THIS REPORT HAS NOT BEEN SHOWN TO EMPLOYER, GIVE EXPLANATION</td><td></td></tr><tr><td>DATE<br/>OFFICIAL TITLE OF SUPERVISOR<br/>Photog (Gen) PLE/PED</td><td>TYPED OR PRINTED NAME AND SIGNATURE<br/>MELVIN C. MUTR</td><td></td></tr><tr><td colspan="3">3.<br>BY REVIEWING OFFICIAL</td></tr><tr><td colspan="3">COMMENTS OF REVIEWING OFFICIAL<br/>I am in accordance with the foregoing comments on Mr. Maksymiec's performance.</td></tr></tbody></table>
+
+<table><thead><tr><td>DATE</td><td>OFFICIAL TITLE OF REVIEWING OFFICIAL</td><td>TYPED OR PRINTED NAME AND SIGNATURE</td></tr></thead><tbody><tr><td></td><td>DC/Photo Lab Branch, PSD/NPIC</td><td>JAMES L. ALLEN</td></tr></tbody></table>
+
+SECRET

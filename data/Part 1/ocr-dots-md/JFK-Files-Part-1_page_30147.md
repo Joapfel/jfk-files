@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_30147.png
+
+Convert to MarkdownSECRET
+Security Information
+
+SEC. IV. AREA KNOWLEDGE
+
+1. List below any foreign countries or regions of which you have knowledge gained as a result of residence, travel or study. Study can mean either academic study, or study of a foreign country resulting from an intelligence, military, commercial or professional werk assignment.
+
+<table><thead><tr><th rowspan="2">Country or Region</th><th rowspan="2">Dates of Residence, Study Etc.</th><th colspan="3">Manner in Which Knowledge Was Acquired (check (X) one)</th></tr><tr><th>Residence</th><th>Travel</th><th>Study</th></tr></thead><tbody><tr><td rowspan="3">Japan</td><td>1948-1969</td><td>Occupation</td><td>X</td><td></td></tr><tr><td>1950-1970</td><td></td><td>X</td><td></td></tr><tr><td>1951-1955</td><td></td><td>X</td><td></td></tr><tr><td>Zambia</td><td>1950-1975</td><td></td><td>X (was)</td><td></td></tr></tbody></table>
+
+2. Specialized Knowledge of Area
+
+List specialized knowledge of foreign country such as knowledge of terrain, coasts and harbors, utilities, railroads, industries, political parties, etc., gained as a result of study or work assignment. Include name of employer or organization.
+
+<table><thead><tr><td>Country</td><td>Type of Knowledge</td><td>How and When Gained</td></tr></thead><tbody><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr></tbody></table>
+
+SEC. V. TYPING AND STENOGRAPHIC SKILLS (PRESENT UTILIZATION)
+
+<table><thead><tr><th>Skill</th><th>Per Cent of Time Used</th><th>Not Used</th><th>WPM (Approximate Proficiency)</th><th>Prefer Assignment Using Skill Attener</th></tr></thead><tbody><tr><td>Typing</td><td>1.</td><td>2.</td><td></td><td>1. Yes 2. No</td></tr><tr><td>Shorthand</td><td>1.</td><td>2.</td><td></td><td>1. Yes 2. No</td></tr><tr><td colspan="5">Shorthand System: 1. Manual 2. Machine 3. Speedwriting.</td></tr></tbody></table>
+
+SEC. VI. LICENSES, HOBBIES, SPECIAL QUALIFICATIONS
+
+<table><tr><td>1. Licenses: List any licenses or certi- fication such as teachers, pilot, marine, etc.</td><td>2. Hobbies: List any hobbies such as sailing, skiing, writing, or other special qualifications:</td></tr><tr><td></td><td>Horseback, swimming, archery, boating, photography, and weapons.</td></tr></table>
+
+SEC. VII. PROFESSIONAL AND ACADEMIC HONORS
+
+<table><tr><td>List any professional or academic associations or honorary societies in which you hold membership.</td><td>International Assn. For Identification<br/>Youthstem, Ohio</td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr></table>

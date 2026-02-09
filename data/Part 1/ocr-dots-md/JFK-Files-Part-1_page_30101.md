@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_30101.png
+
+Convert to MarkdownNOTIFICATION OF PERSONNEL ACTION
+
+4. PERSONNEL FOLDER COPY

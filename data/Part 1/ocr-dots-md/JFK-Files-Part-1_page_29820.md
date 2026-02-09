@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_29820.png
+
+Convert to Markdown17 September 1953
+
+LEITER GALENS
+Number 2-12
+
+Subject: Orders
+
+To; Individual concerned
+
+1. The following named individual will proceed on temporary duty as indicated below. Upon completion of temporary duty individual will return to proper station, TUN, TDF, TPA, 2142020 H01-3139 F1313-02 RPS-037. Security Clearance: TOP SECRET. Immunizations (J840-230-1) will be accomplished prior to departure from CHUS.
+
+| NAME | GRADE | TITLE | STATUS |
+|---|---|---|---|
+| DAVID E MURPHY | GS-JI | Executive Officer | Department of the Army Civilian |
+
+2. Travel will be as follows:
+
+Present station: Washington, D. C.
+Itinerary: CIPAP. From Washington, D. C., to Frankfurt, Germany, reporting upon arrival threat to Commanding Officer, 7997th Composite Group, AFD 757, c/o Postmaster, MC, NY, thence to Munich, Germany, and such other places in such order and with such frequency as may be necessary to complete the assigned mission and return to Washington, D. C.
+
+Date: c/a 17 September 1953.
+Period: Not more than twenty (20) days.
+Purpose: Consultations with U. S. Army officials in Germany.
+
+Travel by military and/or commercial aircraft, rail, bus, and ship within or outside the continental limits of the United States is necessary for the expeditious accomplishment of assignment isauth.
+
+BY ORDER OF ORIGINAL HOPE:
+
+FRANCIS JONES
+Captain, AGC
+Acct Adj
+
+Distribution:

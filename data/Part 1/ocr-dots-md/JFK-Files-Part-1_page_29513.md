@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_29513.png
+
+Convert to MarkdownSECRET
+
+14 February 1963
+
+TO : COS, JMNAVE
+FROM : Chief/CUSOG Lanning G Cadicke
+SUBJECT: Fitness Report, Devuono
+
+1. The subject report being due, the writer is the only person observing DEVUONO's work and has statements and commendations which should be reflected in his fitness report. The contents of this memorandum will be established in DEVUONO's file in other form at later date by the writer.
+
+2. DEVUONO has completed one year with CUSOG. In this period he has shown a complete and practical knowledge of paramilitary techniques and tactics. This knowledge is born of experience and application. His application of this knowledge for KUBARK has resulted in visible progress in the technical abilities of CUSOG personnel.
+
+3. He has shared CUSOG responsibilities of organization, administration and operational preparation in a manner to follow out KUBARK practices to its credit.
+
+4. He carries out clear instructions to the letter, reflecting a military background.
+
+5. Contrary to observances noted in a previous fitness report DEVUONO has been found to be anything but naive in his dealings with PSRUMENS during the period observed.
+
+6. His administrative and accounting procedures within CUSOG are in order.
+
+7. Hesitating to call them weaknesses, the writer must state that DEVUONO's entire experience with KUBARK has been field experience, usually far out on a long string of contacts into a KUBARK installation, a fact which has prevented a look at any of the administrative side of paramilitary as conducted by KUBARK.

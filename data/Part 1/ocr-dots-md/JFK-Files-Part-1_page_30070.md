@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_30070.png
+
+Convert to MarkdownHerman Edward Kinsey
+
+December 11, 1916
+
+Questioned Document Analyst . (Continued)
+
+b. Participated in establishing document analysis facilities in foreign governments and present plans call for continuation of this TDY consulting and advisory work.
+
+Per request from Training, periodically briefs Foreign Intelligence Services and Agency personnel. These briefings cover general capabilities of the Section and are intended to inform the student of the question document problem.
+
+II SUPERVISION RECEIVED:
+
+The Section Chief receives technical requests directly from the customers
+and advises them and the Branch Chief on the technical problems, personnel, and
+other requirements for making determinations. Staff and Branch Chiefs establish
+guides on administrative matters. Review of accomplishments can only be made in
+the light of the customers application of evaluation results. Decisions required
+as a result of Section work are usually "Eyes Only" for customers application in
+offices of Senior Staffs of the major components in the Agency. The recommen-
+dations for participation in setting technical standards for mechanical and per-
+sonnel identification methods or in financing such activity would be evaluated on
+the basis of the incumbent's evaluation of potential benefits to Agency technical
+services to intelligence efforts.
+
+**III QUALIFICATIONS REQUIRED:**
+
+Qualifications for this position will be written in the preliminary Quali-
+fication Standards developed for the GS-1397.01, Document Analyst title, up-
+graded by Civil Service Commission Hearing, to GS-14, 1958.

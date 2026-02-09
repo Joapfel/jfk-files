@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_29991.png
+
+Convert to MarkdownCONFIDENTIAL
+(When Filled In)
+
+IMPORTANT
+
+Central Processing Branch has been charged with responsibility (OPM 20-5-1 dated 12 October 1961) for ensuring that all employees processing PCS to the field have reviewed the field version of the Employee Conduct Handbook. You will not be checked out for your proposed tra or until you sign the following statement and return it to CPB. Your Personnel Officer can provide you with a copy of the Handbook.
+
+MEMORANDUM OF UNDERSTANDING
+
+I hereby acknowledge that I have read and understand the contents of Field Handbook 20-4, Employee Conduct, dated 30 July 1962.
+
+Signature:
+DAVID T. HARRIS
+
+Date:

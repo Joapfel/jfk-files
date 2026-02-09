@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_29731.png
+
+Convert to MarkdownMYKOSIAW ANDREW JAKUSTINEC
+
+APRIL, 26, 1947
+
+FK. 171 - Experience 18-2
+
+Enclosure No. 2, Page 1
+
+During the period 1957 through 1961, I was employed by the Publications and Services Branch, Chief Assistant Chief of Staff for Intelligence, Headquarters, Department of the U. S. Army, Washington, D. C.
+
+## Mission
+
+Use, setup, arrangement of photographic equipment, techniques, and processes,
+
+Develop, adapt, and create the foregoing in order to be responsive to unprecedented situations that require photographic equipment for situations of extreme conditions. (Weather, radiation, explosion, etc.). Create training films to deal with specific subjects.
+
+Conduct training classes in basic and advanced photography, motion picture, and laboratory procedures.
+
+## Operations
+
+I was responsible for the direction of technician/specialist photographers, concerned with reproduction of film using the most advanced Eastman-Kodak, Bell and Howell, and Houston Pacific printing and processing equipment.
+
+During this phase there was a demand for high production and extreme accuracy in a minimum of time. My responsibility required me to adapt to changing conditions under adverse conditions to achieve objectives that were required in a rather short time.
+
+I developed workload schedules based on task/mission requirements, available manpower, and the degree of skill available. The changing tasks and mission objectives required a medium ability on my part to train personnel to meet the requirements of operating officials.
+
+I established and conducted training classes in the operation and maintenance of equipment.
+
+I developed workload schedules based on task/program/mission requirements, priorities, available manpower, and the degree of skill available.

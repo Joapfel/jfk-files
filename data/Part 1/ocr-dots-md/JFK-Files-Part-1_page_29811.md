@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_29811.png
+
+Convert to Markdown-2-
+
+30 Aug 53 G3-14, Intelligence Officer, Chief, DDP/SS, SR-3,
+West Branch, Office of the Chief, Headquarters
+
+14 Feb 54 G3-15, Intelligence Officer, Chief, DDP/SS, SR-3,
+West Branch, Office of the Chief, Headquarters
+
+5 Dec 54 G3-15, Area Ops Officer, DDP/ZZ, German Mission,
+Berlin Operations Base, Operations Div, Berlin
+
+3 Jun 56 G3-15, Area Ops Officer, DDP/ZZ, German Station,
+BOB, Soviet Branch, Berlin
+
+28 Dec 58 G3-16, Area Ops Officer, DCOB, DDP/ER,German Station,
+Berlin Ops Base, Berlin
+
+CIA TRAINING:
+
+Phase I, II and III
+CE
+COMCO
+
+SES Refresher
+Ops Security
+
+Waiver
+
+26 April-7 May 1948
+
+6-10 May 1948
+
+15-26 November 1954
+
+SECRET

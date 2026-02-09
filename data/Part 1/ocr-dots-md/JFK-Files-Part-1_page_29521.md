@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_29521.png
+
+Convert to MarkdownCIA INTERNAL USE ONLY
+
+8 May 1962
+
+MEMORANDUM FOR: Chief, Covert Action Staff
+
+THROUGH : Deputy Director (Plans)
+
+SUBJECT : Approval of Award of Intelligence Star for Irving C. DEVUONO
+
+1. The Honor and Merit Awards Board takes pleasure in notifying you that the award named above has been approved for subject individual. You are requested to inform subject of the award and of the security provisions governing it as set forth in the enclosed memorandum from the Office of Security.
+
+2. When subject returns to Washington, please notify the Secretariat, Honor and Merit Awards Board, Office of Personnel, so that arrangements may be made with the Director's office for presentation of the award.
+
+ROBERT M. GAYNOR
+Recorder
+Honor and Merit Awards Board
+
+CIA INTERNAL USE ONLY

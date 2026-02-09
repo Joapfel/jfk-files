@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_29578.png
+
+Convert to Markdown14-0000.
+
+# History of the Department
+
+Capt Grayston L. Lynch, 533311
+533 Terrace Circle
+Fayetteville, N. C.
+
+From The Desk Of
+Lt. Col. Wilson
+
+24 Dec 66
+
+57 Office
+(well qualified in all aspects of SF)
+SF?
+O available and
+do not require any training with 1st Army

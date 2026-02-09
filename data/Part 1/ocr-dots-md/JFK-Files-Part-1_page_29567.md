@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_29567.png
+
+Convert to Markdown10 November 1960
+
+DATE
+
+| LAST | FIRST | MIDDLE | :RANK : | SN | : ER : | DIV : | REG NO. |
+|------|--------|----------|-----------|--------|----------|---------|---------|
+| Lynch, | Grayston | L. | Captain | 0966311 | Armor |         |         |
+
+| MOS or AFSC | :CEI : | DOR :   | CAT :    | PULLES |
+|------------|:-------:|:-------:|:--------:|:-------:|
+| 31542      |        | 113     | 17Sep54  | 1-1-1-1-1-1 |
+
+MARITAL
+Married
+
+DOB : POB : CHILDREN : FOREIGN REL
+14Jun20 Galveston
+Texas :
+
+CURRENT ADDRESS
+533 Terrace Circle
+Payetteville, North Carolina
+
+LANGUAGE
+
+CIVILIAN EXPERIENCE : MILITARY SERVICE
+Special Forces
+Svc from 1938 to present
+: Salesmen
+
+FLYING ETC
+
+: CIVILIAN EDUCATION : MILITARY SCHOOLING
+Two (2) Year College : AB
+GED : Arm'd Co Officer Crse
+
+REMARKS:
+
+* PA team Commander
+* An Excellent Physical Condition
+* Combat Experience, awarded Bronze Star and Purple Heart
+* 1q 130
+* Good Company Commander Type.
+* No Staff training or experience.

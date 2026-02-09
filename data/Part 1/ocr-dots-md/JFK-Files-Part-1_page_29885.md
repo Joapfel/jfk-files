@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_29885.png
+
+Convert to MarkdownIN ACCORDANCE WITH THE PROVISIONS OF P. L. 86-568 AND SEC. 1329, MEMO DATED 1 AUGUST 1964, SALARY IS ADJUSTED AS FOLLOWS EFFECTIVE TO JULY 1960.
+
+<table><thead><tr><th>SD</th><th>NAME</th><th>SERIAL</th><th>ORGAN</th><th>GR-ST</th><th>OLD SALARY</th><th>NEW SALARY</th></tr></thead><tbody><tr><td>01</td><td>MURPHY DAVID E</td><td>556700</td><td></td><td>52 20</td><td>GS-16 2</td><td>$14,430</td><td>$15,515</td></tr></tbody></table>
+
+/S/ EMMETT O. ECHOLS
+DIRECTOR OF PERSONNEL
+
+SECRET
+(WHEN FILLED IN)
+
+<html><body><table><tr><td>1. EMP. SERIAL NO.</td><td>2. NAME</td><td>3. ASSIGNED ORGAN.</td><td>4. FUNDS</td><td>5. ALLOTMENT</td></tr><tr><td>556700</td><td>MURPHY DAVID E</td><td>DOP/EF 12</td><td>UV</td><td></td></tr></table><table><caption>8. OLD SALARY RATE</caption><thead><tr><th rowspan="2">GRADE</th><th rowspan="2">STEP</th><th rowspan="2">SALARY</th><th colspan="3">LAST EFFECTIVE DATE</th><th rowspan="2">GRADE</th><th rowspan="2">STEP</th><th rowspan="2">SALARY</th><th colspan="3">EFFECTIVE DATE</th></tr><tr><th>NO.</th><th>DA.</th><th>TO.</th><th>NO.</th><th>DA.</th><th>TO.</th></tr></thead><tbody><tr><td>GS 16</td><td>1</td><td>$14,100</td><td>12</td><td>28</td><td>58</td><td>GS 16</td><td>2</td><td>$14,430</td><td>16</td><td>26</td><td>60</td></tr></tbody></table><table><caption>9. NUMBER OF HOURS LWOP</caption><tbody><tr><td>☐ NO EXCESS LWOP</td><td>☐ EXCESS LWOP</td><td>10. INITIALS OF CLERK</td><td>11. AUDITED BY</td></tr></tbody></table><table><caption>10. PAY STATUS AT END OF WAITING PERIOD</caption><tbody><tr><td>☑ IN PAY STATUS AT END OF WAITING PERIOD</td><td>☑ IN LWOP STATUS AT END OF WAITING PERIOD</td></tr></tbody></table><table><caption>11. REMARKS</caption><tbody><tr><td>☐ P.O.I.</td><td>☐ U.S.I.</td><td>☐ PAY ADJUSTMENT</td></tr></tbody></table><table><caption>14. AUTHENTICATION</caption><tbody><tr><td>500</td><td>94</td><td>1000</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>H2F</td></tr><tr><td>55</td><td>55</td><td>200</td><td>50</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td></td></tr><tr><td>500</td><td>0</td><td>500</td><td>50</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td></td></tr></tbody></table><table><caption>PAY CHANGE NOTIFICATION</

@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_29922.png
+
+Convert to Markdown26 April 1973
+
+MEMORANDUM IN LIEU OF FITNESS REPORT
+
+SUBJECT: David E. Murphy
+
+GS-1S; Employee No.: 050700; DOB: 23 June 1921;
+Career; Chief of Station, Paris; Service
+Designation: D; Period under Review: 10 Jan 1973
+to 31 March 1973; Months under my Supervision: 15
+
+OVERALL RATING: OUTSTANDING
+
+1. Given the size of the Paris Station and the complexity of its diverse activities, on overall performance Mr. Murphy is rated as the most effective Station Chief in the European Division area. In the period under review, substantial progress has been made against all operational targets. Under Mr. Murphy's tutelage particularly noteworthy accomplishments are noted in the Soviet field against human targets and on a superbly executed technical penetration; in the area of liaison where Mr. Murphy has almost single-handedly developed productive relationships at senior levels and as testament to his efforts, successfully enlisted outstanding liaison support to a delicate CI investigation of primary interest to this Organization; and more recently, Mr. Murphy has effectively harnessed Station resources and assets to collect timely intelligence on economic topics, to move forward in the effort to thwart terrorism, and to furnish valuable reporting on the critical French elections of March 1973. Under his direction, the Station has acquired a number of productive and responsive assets in the past year, while other operational programs have improved upon their high quality/intelligence production record.
+
+2. Mr. Murphy is a thoroughly professional senior intelligence officer who plays a very active role in practically all of the Station's operational activities. His incisiveness and keen analytical talent enable him to
+
+SECRET
+
+<table><tr><td>Seal</td></tr></table>

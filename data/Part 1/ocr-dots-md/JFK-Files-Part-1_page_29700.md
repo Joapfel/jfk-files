@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_29700.png
+
+Convert to MarkdownSECRET
+
+NATIONAL PHOTOGRAPHIC INTERPRETATION CENTER
+
+6 November 1952
+
+TO: Myroslav Vakymiec
+
+I have attached for your personal acknowledgment a Commendation from the Director of Central Intelligence which will be made a part of your official personnel file. You contributed in a very real way to the effort for which EPIC is being commissioned and I want to add my congratulations to those expressed by the Director.
+
+A.C.M.
+
+Acknowledged, Ed: Augustus E. Marksmine
+
+SECRET
+
+14-00000

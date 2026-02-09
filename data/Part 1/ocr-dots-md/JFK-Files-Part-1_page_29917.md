@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_29917.png
+
+Convert to MarkdownCONFIDENTIAL
+
+4. Mr. Murphy returned from France in 1974 and was assigned as a National Intelligence Officer with responsibility to the DCI in the area of Special Activities. He has served in this assignment of high trust and responsibility until his retirement.
+
+5. Mr. Murphy's long, distinguished career has been exceptional in contributing to the mission of the Agency both operationally and substantively. His dedication, drive and intelligence led to high achievement in all of his assignments and to his being entrusted with ever-increasing responsibilities. It is strongly recommended that he be awarded the Distinguished Intelligence Medal in recognition of his outstanding service in the CIA.
+
+CONFIDENTIAL

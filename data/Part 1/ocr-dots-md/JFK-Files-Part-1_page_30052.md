@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_30052.png
+
+Convert to MarkdownG-3467
+
+10 January 1956
+
+MEMORANDUM FOR : Chief, TSS Administrative Staff
+SUBJECT : Request for Promotion - Herman E. Kimsey
+
+1. It is requested that Herman E. Kimsey be promoted from GS-12 to GS-13. Mr. Kimsey has been in grade for over 18 months. Mr. Kimsey has been Chief of the A&R Section of GARD for over 22 months. During this time he has exhibited ability in conducting and managing the activities of his branch. Mr. Kimsey is a Questioned Documents Analyst and is well-fitted to perform the duties required of the A&R Branch.
+
+2. It is recommended that Mr. Kimsey be promoted to GS-13.
+
+JOSEPH F. MARZEN
+Acting Chief, TSS/GARD
+
+Distribution:
+
+* [x] - Addressee
+* 1 - TSS/SRB
+* 1 - TSS/GARD/file
+* 1 - TSS/GARD/Chrono
+
+Concure-EJ Ryan

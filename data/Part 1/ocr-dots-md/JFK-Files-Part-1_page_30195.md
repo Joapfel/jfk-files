@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_30195.png
+
+Convert to MarkdownTREASURY DEPARTMENT
+
+UNITED STATES SECRET SERVICE
+
+OFFICE OF THE DIRECTOR
+
+WASHINGTON, D.C. 20226
+
+September 5, 1968
+
+Mr. Howard J. Osborn
+Director of Security
+Central Intelligence Agency
+Washington, D. C.
+
+Dear Mr. Osborn:
+
+This letter is in appreciation for the valuable assistance provided by your office during the Republican National Convention at Miami Beach, Florida.
+
+I would particularly like to commend James W. McCord and the following members of his division:
+
+George Schweigman
+Carroll Helkerson.
+
+Their dedication and outstanding degree of technical competence contributed immeasurably to the success of our mission.

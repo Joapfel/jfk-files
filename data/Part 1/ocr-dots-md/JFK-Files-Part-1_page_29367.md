@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_29367.png
+
+Convert to MarkdownCONFIDENTIAL
+
+FOREIGN LANGUAGE APTITUDE TESTING RESULTS
+
+NAME: Liang, Xiao, Tan; Development Date: 13 August 20
+
+Since many things other than aptitudes enter into the determination of training course performance, in any class of students there will usually be some whose performance will be better than would be expected from their test scores, just as there will likely be some whose performance is poorer than expected. STRENGTH OF MOTIVATION, PRIOR EXPERIENCE WITH A FOREIGN LANGUAGE, and other factors should be considered in selecting people for language training and in interpreting language training results. For example, the number of languages previously studied or learned and the amount of academic and non-academic language-learning experience are factors not measured by the tests but are indicative of probable success in learning a foreign language. Whether such experience was in the same language as the one to be studied or in a different one is, of course, an additional relevant factor.
+
+The rating received by the above individual is circled below:
+
+| ADJECTIVAL RATING | APPROXIMATE %*<br>RECEIVING RATING |
+|---|---|
+| Superior | 10% |
+| Above Average | 20% |
+| <mark>Average</mark> | 40% |
+| Below Average | 20% |
+| Poor | 10% |
+
+Based on a sample of 1789 students ... tested with the battery between July 1962 and September 1965
+
+2998
+
+CONFIDENTIAL

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_29896.png
+
+Convert to MarkdownSTANDARD FORM 50
+REV. APRIL 1981
+PROPOSED BY
+A CIVIL SERVICE COMMISSION
+ER, R.I., GENERAL PERSONNEL MANUAL.
+
+CENTRAL INTELLIGENCE AGENCY
+
+NOTIFICATION OF PERSONNEL ACTION
+
+<table><tr><td colspan="3">NAME (MR - MRS - DOGIVEN NAME, MIDDLE NAME, AND SURNAME)</td><td>2 DATE OF BIRTH</td><td>3 JOURNAL OR ACTION NO.</td><td>4 DATE</td></tr><tr><td colspan="3">Mr. David Edward Murphy</td><td>23 June 21</td><td></td><td>9 Feb. 74</td></tr><tr><td colspan="6">This is to notify you of the following action affecting your employment:</td></tr><tr><td>5 NATURE OF ACTION (USE STANDARD TERMINOLOGY)</td><td>6 EFFECTIVE DATE</td><td>7 CIVIL SERVICE OR OTHER LEGAL AUTHORITY</td><td></td><td></td><td></td></tr><tr><td>Provision</td><td>14 Feb. 74</td><td>50 UECA 403 J</td><td></td><td></td><td></td></tr><tr><td rowspan="4">FROM<br/>OS-132-14 $9000.00 per annum</td><td>8 POSITION TITLE</td><td colspan="4">Intell. Officer(Chief) EC-142</td></tr><tr><td>9 SERVICE SERIES, GRADE, SALARY</td><td colspan="4">GB-132-15 $10,800.00 per annum</td></tr><tr><td>10 ORGANIZATIONAL DESIGNATIONS</td><td colspan="4">DDP/BR BR-3 West Branch Office of the Chief</td></tr><tr><td>11 HEADQUARTERS</td><td colspan="4">Washington, D. C.</td></tr><tr><td>FIELD</td><td>DEPARTMENTAL</td><td>FIELD</td><td>DEPARTMENTAL</td><td>X</td><td></td></tr><tr><td colspan="3">13 VETERAN'S PREFERENCE</td><td colspan="3">14 POSITION CLASSIFICATION ACTION</td></tr><tr><td>NONE</td><td>WWI</td><td>OTHER</td><td>S-T</td><td>10-POINT</td><td></td></tr><tr><td></td><td></td><td></td><td>X DISAB OTHER</td><td></td><td></td></tr><tr><td colspan="6"></td></tr><tr><td>15 SEX</td><td>16 RACE</td><td>17 APPROPRIATION</td><td colspan="3">10 SUBJECT TO C. S. RESIDENCE ACT (AS 90 DAYS)</td></tr><tr><td>M</td><td>F</td><td>FROM:<br/>TO:<br/>4-300-80 6/20</td><td>Yes</td><td>19 DATE OF APPOINTMENT AFFIDAVITS (ACCSSIONS ONLY)</td><td>20 LEGAL RESIDENCE<br/>[ ] CLAIMED [ ] PROVED<br/>STATE:</td></tr><tr><td colspan="6">21. REMARKS: This action is subject to all applicable laws, rules, and regulations and may be subject to investigation and approval by the United States Civil Service Commission. The action may be corrected or canceled if not in accordance with all requirements.</td></tr><tr><td colspan="6">TRANCE PERFORMANCE RATINGS: <div style="text-align:center; margin-bottom:5px;">0 0 0 0 0 0</div> Assistant Director for Performance Rating: 4/5/6 5/6/7 6/7/8 7/8/9 8/9/10 9/10/11 10/11/12 11/12/13 12/13/14 13/14/15 14/15/16 15/16/17 16/17/18 17/18/19 18/19/20 19/20/21 20/21/22 21/

@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_29988.png
+
+Convert to MarkdownSECRET
+
+c. All annual and sick leave which is accrued to your credit at the time of integration will be transferred to your cover facility. While integrated you will be permitted annual leave, sick leave, long leave, and leave without pay in accordance with the regulations of your cover facility in lieu of the leave benefits of this organization. Upon termination of your integration, your annual annual leave, sick leave, and home leave will be transferred to your credit with this organization and your leave record will be reconstructed as of the beginning of the leave year in which you return to this organization, as explained in the Handbook on Leave for Special Situations. Serving in an integrated capacity does not permit the carryover from one leave year to another of an annual leave balance which exceeds the ceilings authorized by regulations of this organization and the Federal leave law. If security conditions require that your cover facility make a lump-sum payment for accrued annual leave, upon your "resignation" you will be required to pay the gross amount thereof to this organization, including any income taxes withheld by your cover facility in order to receive credit for such annual leave.
+
+6. You will be required to keep forever secret this agreement and all information which you may obtain by reason hereof, unless you are released in writing by this organization from this obligation. Violation of such secrecy may subject you to criminal prosecution under the espionage laws, an amended, and other applicable laws and regulations. The termination of your employment with this organization will not release you from the obligations of any security oath you may be required to take.
+
+UNITED STATES GOVERNMENT
+
+BY
+
+Evlyn H. Klegg
+Personal Office
+
+ACCEPTED:
+
+David S. Murphy
+
+1535C
+
+SECRET
+
+...1984

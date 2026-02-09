@@ -1,0 +1,98 @@
+# JFK-Files-Part-1_page_29431.png
+
+Convert to Markdown14-00830
+
+ORIG: JON L. MATTSON:JB
+SUB: FE/PERS/TEL
+DATE: 19 APRIL 1968
+
+TOTAL COPIES:
+
+<table>
+   <tr>
+    <td>FOR INVOICE OF RECEIPTS</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>1</td>
+    <td>8</td>
+   </tr>
+   <tr>
+    <td>7</td>
+    <td>7</td>
+   </tr>
+   <tr>
+    <td>3</td>
+    <td>0</td>
+   </tr>
+   <tr>
+    <td>4</td>
+    <td>9</td>
+   </tr>
+   <tr>
+    <td>9</td>
+    <td>10</td>
+   </tr>
+  </table>
+
+CONFIDENTIAL
+
+CABLE SECRETARIAT DISSEMINATION
+
+BY 28 FEB
+
+COMP: FEB
+
+RID COPY
+
+RETURN TO:
+BRANCH:
+FILE NO.
+
+☐ PUBL/ [ ] DESTROY [ ] RETURN TO _______
+☐ DO NOT REFS [ ] FILE IN CS FILE NO.
+
+( classification )
+
+(Sec and time filed)
+
+CONFIDENTIAL
+
+TO VIENTIANE
+
+ADMIN PERS CHAPPIE
+
+FRT: DIRECTOR 88672
+
+CITE DIRECTOR
+
+9288A
+
+DUE TO PERSONAL MATTERS CONCERNING SETTLEMENT OF FAMILY IRVING C. DEVUONO NEW PROGRAMMED TO ARRIVE HQS 13 MAY FOR TWO WEEKS TDY WITH ESTIMATED ARRIVAL FIELD MID JUNE. WILL ADVISE FIRST ZIA WHEN KNOWN.
+
+END OF MESSAGE
+
+CFE/TBL L R Dake
+
+SCD/PESS Jack Holen (Copy)
+
+CFE/PER
+
+RELEASING OFFICER
+
+COOPERATING OFFICES
+CONFIDENTIAL
+
+GROUP
+Inhalation Research
+Program
+NIAM
+
+CFE/PER
+
+AUTHORIZING
+OFFICE
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

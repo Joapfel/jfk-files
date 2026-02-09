@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_30330.png
+
+Convert to MarkdownSECRET
+
+9 JAN 1967
+
+1st Endorsement
+
+TO: Director of Security
+
+It is always a pleasure to see commendations such as this
+in recognition of jobs well done.
+
+I would like to add my congratulations and appreciation to
+you and all of the members of your staff for your fine efforts which
+contributed to the successful completion of the President's trip.
+
+R. L. Bannerman
+Deputy Director
+for Support

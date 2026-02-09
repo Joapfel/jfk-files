@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_30187.png
+
+Convert to MarkdownSECRET
+
+Since October 1968, as Chief of a division responsible for
+the Agency's physical security program he had primary responsibility
+for the supervision of some 70 professional and clerical personnel,
+together with the programming, budgeting and implementing of the
+total physical security program of the Agency. As a result of his
+technological experience, he developed and implemented physical
+security programs which produced for the Agency a physical security
+posture of pre-eminent quality within the US Government.

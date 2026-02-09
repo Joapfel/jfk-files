@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_30136.png
+
+Convert to MarkdownSECRET
+SECURITY INFORMATION
+
+<table><tr><td>PERSONNEL EVALUATION REPORT</td></tr></table>
+
+<table><tbody><tr><td colspan="5">Item 1 through 5 will be completed by Administrative or Personnel Officer</td></tr><tr><td>I. NAME (First, Middle, Last)</td><td>(Last, First, Middle)</td><td>J. Grade</td><td>I. POSITION TITLE</td><td>Tech. Projects Officer Q-JS</td></tr><tr><td rowspan="2">4. OFFICE</td><td rowspan="2">DDP/770</td><td>STAFF ON DIVISION</td><td rowspan="2">BRANCH</td><td rowspan="2">Office of Chief</td></tr><tr><td>G.A.E.</td></tr><tr><td>5. PERIOD COVERED & REPORT<br/>From 23 Mar '93 To 22 Dec 93</td><td>S. TYPE OF REPORT<br/>☑ Initial<br/>☐ Assignment</td><td>☑ Annual<br/>☐ Reassignment of Supervisor</td><td>IF FIELD SPECIFY STATION</td><td></td></tr><tr><td colspan="5">Items 7 through 10 will be completed by the person evaluated</td></tr><tr><td colspan="5">7. LIST YOUR MAJOR DUTIES IN APPROXIMATE ORDER OF IMPORTANCE, WITH A BRIEF DESCRIPTION OF EACH. ONLY NINE DUTIES.</td></tr><tr><td colspan="5"><ol type="a"><li>Analyze foreign documents for the purpose of reproduction.</li><li>Conduct a comparison against the original document and the reproduction.</li><li>Conduct operational document analysis by comparing and identifying handwriting, typewriting, inks, paper, etc., for the purpose of establishing the authenticity or true source of the document.</li><li>Conduct research in both laboratory and field methods of alteration, reproduction, and forgery of documents.</li><li>Maintain Macon with security-cleared government agencies and consultants engaged in document examination work.</li></ol></td></tr><tr><td colspan="5">8. LIST COURSES OF RESTRUCTION COMPLETED DURING REPORT PERIOD.<br/><table><thead><tr><td>Name of Course*</td><td>Location</td><td>Length of Course*</td><td>Date Completed*</td></tr></thead><tbody><tr><td>NONE</td><td></td><td></td><td></td></tr></tbody></table></td></tr><tr><td colspan="5">9. IN WHAT TYPE OF WORK ARE YOU PRIMARILY INTERESTED?</td></tr><tr><td colspan="5">Intelligence Documentation.<br/>IF DIFFERENT FROM YOUR PRESENT JOB, EXPLAIN YOUR QUALIFICATIONS (APTITUDE, KNOWLEDGE, SKILLS).</td></tr><tr><td colspan="5">Not applicable.</td></tr><tr><td colspan="5">10.<br/>DATE<br/>SIGNATURE</td></tr><tr><td colspan="5">Items 11 through 18 will be completed by Supervisor</td></tr><tr><td colspan="5">11. BRIEFLY DESCRIBE THIS PERSON'S PERFORMANCE ON THE MAJOR DUTIES LISTED UNDER ITEM 7 ABOVE.<br/><p>Lr. Kinsey is well qualified to perform all tasks assigned him and capable of greater responsibilities. As is nature, has broad experience in intelligence activities is an excellent instructor, capable of clear self-expression. He has acquired a wealth of knowledge in the field of document intelligence through wide field experience, academic study, and institutional experience. A pleasing personality, good contact man. His manner of performance on duties assumed has been excellent.</p></td></tr></tbody></table>
+
+SECRET
+
+FORM NO. 37-151
+MAY 1952
+
+(1981) (4)

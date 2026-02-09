@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_29701.png
+
+Convert to MarkdownSECRET
+
+CENTRAL INTELLIGENCE AGENCY
+WASHINGTON 23, D. C.
+OFFICE OF THE DIRECTOR
+
+2 November 1962
+
+MEMORANDUM FOR: Director, National Photographic Interpretation Center
+
+SUBJECT : Commendation
+
+1. As Director of Central Intelligence and on behalf of the entire intelligence community as well as the United States Government, I wish to commend you and the personnel under your command for the outstanding work you have been performing, especially during the past four months of the Cuban buildup.
+
+2. Your analysis and interpretation of the Cuban photography and the manner in which you reported your findings to the President, his principal policy advisors, most particularly the Secretary of State and the Secretary of Defense, and the entire intelligence community have been of the highest order.
+
+3. I have full knowledge of the tremendous pressures and long working hours with which NPIC was confronted. I regret that the anonymity required of a professional intelligence agency such as yours prevents public acknowledgment of NPIC accomplishments. You and your people should take great pride in your accomplishments as well as in your ability to perform them without public acclaim.
+
+John A. McCone
+Director
+
+SECRET
+
+<table><tr><td>U</td></tr><tr><td>S</td></tr><tr><td>I</td></tr><tr><td>T</td></tr><tr><td>H</td></tr><tr><td>E</td></tr><tr><td>P</td></tr></table>

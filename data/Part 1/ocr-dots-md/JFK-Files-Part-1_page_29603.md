@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_29603.png
+
+Convert to Markdown<table><thead><tr><th>Field</th><th>Location</th></tr></thead><tbody><tr><td>COORO<br>Log</td><td>Medical</td></tr><tr><td>OTR<br>SFC<br>TSS<br>EP<br>FI</td><td>COD<br>E<br>A<br>R<br>H</td></tr><tr><td>CH<br>S<br>C<br>D<br>G<br>I</td><td>Other</td></tr></tbody></table>
+
+SECRET
+
+Revised Form 148 I-C3
+S.E.C. Chart 2-67
+
+PP
+
+FM
+
+<table><thead><tr><th>Task Force Commander ( )</th><th>Competency Code:</th><th colspan="5">Insurance</th></tr></thead><tbody><tr><td rowspan="3">Cantonese ( )<br>Mandarin ( )</td><td>(1) Best Qualified</td><td colspan="4"></td></tr><tr><td>(2) Experienced (one or more years)</td><td colspan="4"></td></tr><tr><td>(3) Trained (OTR or on-the-job)</td><td colspan="4"></td></tr><tr><td>a.Warfare, Tactics, Strategy ( )</td><td>Cleared for availability by: _________________________</td><td colspan="4"></td></tr><tr><td>b.Weapon, Tactical General (F1-)</td><td>Cover: _________________________</td><td colspan="4"></td></tr><tr><td>c.Reception, Land, Air, Sea, Infil-exfil ( . )</td><td></td><td colspan="4"></td></tr><tr><td>d.Techniques, each, Surviv ( , )</td><td></td><td colspan="4"></td></tr><tr><td>Air Operations Officer ( , )</td><td>Present Military Status: De Oiler</td><td colspan="4"></td></tr><tr><td>a. Planning, tactics ( ' )</td><td>Past Military Experience: FI-Intell-Tech Support ( )</td><td colspan="4"></td></tr><tr><td>b. Pilot ( )</td><td>a. Intell Process ( )</td><td colspan="4"></td></tr><tr><td>c. Parachutist ( )</td><td>b. Target Analysis ( )</td><td colspan="4"></td></tr><tr><td>d. Balloonist ( )</td><td>c. Ops Tradecraft ( )</td><td colspan="4"></td></tr><tr><td>( ) Prop ( ) Pilot( ) Launch</td><td>d. Agent Handling ( )</td><td colspan="4"></td></tr><tr><td>Maritime Ops Officer ( )</td><td>Check with:</td><td colspan="4"></td></tr><tr><td>a. Planning ( )</td><td>CF Position:</td><td colspan="4"></td></tr><tr><td>b. Operating ( )</td><td>Political Action Officer ( )</td><td colspan="4"></td></tr><tr><td>c. Support ( )</td><td>Propaganda Off, Media ( )</td><td colspan="4"></td></tr><tr><td>d. Training ( )</td><td>Security Officer ( )</td><td colspan="4"></td></tr><tr><td>Sabotage Officer ( , )</td><td>Communications Officer ( )</td><td colspan="4"></td></tr><tr><td>a. Plan, Target, Train( , )</td><td>Logistics Officer ( )</td><td colspan="4"></td></tr><tr><td>b. Explosives Demos Special Devices ( )</td><td>Medical Officer ( )</td><td colspan="4"></td></tr><tr><td>c. UDT</td><td>Other ( )</td><td colspan="4"></td></tr><tr><td>Support Officer ( )</td><td>Order of Battle ( , )</td><td colspan="4"></td></tr><tr><td>a. Personnel, Admin, Pers Aff( )</td><td>Interrogation ( )</td><td colspan="4"></td></tr><tr><td>b. Finance ( )</td><td>Home Address: 535 Terraced Court, Park Hill, N.C.</td><td colspan="4"></td></tr><tr><td>c. Records and Reports ( )</td><td>Home Phone:</td><td colspan="

@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_30266.png
+
+Convert to Markdown24 APR 1970
+
+MEMORANDUM FOR: Director of Security
+
+SUBJECT : McCORD, James W., Jr. Emp. Ser. No. 58124
+Fitness Report
+
+1. This is an annual fitness report covering the period 1 April 1969 through 31 March 1970. Mr. McCord completed his first full year as Chief, Physical Security Division. During 1969 the Division underwent many changes, a direct result of the personal efforts of this employee. He has shown the initiative to seek out new ways and means to harden the security of our domestic and overseas facilities by tapping all possible technological sources both in and out of Government. His efforts have produced tangible results and in my judgment, our posture in the physical security field is far superior to any of our contemporaries.
+
+2. With the spiraling costs of manpower, Mr. McCord has concentrated on the potential for use of technical devices to replace the human asset. He has made remarkable inroads into this field by way of imagination, ingenuity and drive.
+
+3. Mr. McCord has the quality to inspire his subordinates. He is demanding, but understanding. On more than one occasion he was asked to take under his wing employees who were labeled "problems." Through personal interest and effort, he has salvaged the majority of these individuals to a point where they are performing in a highly satisfactory manner.
+
+4. In the previous fitness report, I alluded to the fact that employee has a tendency to find it difficult to see another person's point of view. This, I feel, is attributable to an innate stubbornness which obviously is difficult to overcome. Mr. McCord is a very
+
+E:

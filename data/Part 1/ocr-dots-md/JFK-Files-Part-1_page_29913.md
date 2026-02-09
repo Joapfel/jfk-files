@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_29913.png
+
+Convert to Markdown20 AUG 1975
+
+MEMORANDUM FOR: Chief, Plans Staff
+
+THROUGH : Deputy Director for Operations
+
+SUBJECT : Distinguished Intelligence Medal --
+Mr. David E. Murphy
+
+The Honor and Merit Awards Board is pleased to notify you that the Distinguished Intelligence Medal has been approved for Mr. David E. Murphy in recognition of his contributions to this Agency. You are requested to inform him of the award and of the security considerations governing it as set forth in the attached memorandum from the Office of Security. Arrangements for presentation may be made with the Executive Secretary, Honor and Merit Awards Board, extension 4473, room SE 69, Headquarters.
+
+R. L. Austin, Jr.
+Recorder
+Honor and Merit Awards Board
+
+All
+
+Distribution:
+
+O & I - Addressee
+
+✓ CPF w/forms 382 & 600
+
+I - Exec Sec/HMAB
+
+I - Recorder/HMAB

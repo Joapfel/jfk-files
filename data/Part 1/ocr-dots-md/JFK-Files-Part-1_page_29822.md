@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_29822.png
+
+Convert to MarkdownCITIZENSHIP
+
+25 February 1968
+
+Chairman of Council
+Frankfurt,
+Germany
+
+1. This is to advise that the continuation of the leave
+sought by individual (see 7-13 at p. 30) to visit the area
+has been approved, effective 27 February 1968.
+
+2. A dispatch from the group division will follow this:
+the next break-in in salary.
+
+Re: 2. a.

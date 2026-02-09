@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_30066.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th>SECTION A</th><td colspan="4">GENERAL</td></tr><tr><th>I. NAME (Last, First)</th><td>(Middle)</td><th>Father's Name</th><th>Mother's Name</th><th>DATE OF BIRTH</th></tr></thead><tbody><tr><td>KIMSEY, Herman E.</td><td></td><td>11 Dec 1916</td><td></td><td>M</td><td>CS-13</td></tr></tbody></table>
+
+<table><thead><tr><th colspan="2">SERVICE DESIGNATION & OFFICIAL POSITION TITLE</th><th colspan="5">(I) ORIGIN/FORM OF ASSIGNMENT<br/>DDP/TSD/AUTH/GARD</th></tr><tr><th>D</th><th colspan="4">DOCUMENT TECH CH</th><th colspan="2"></th></tr><tr><th>B.</th><th>CAREER STAFF STATUS</th><th>C.</th><th>TYPE OF REPORT</th><th>SPECIALITY</th><th>NOTE</th><th>ASSIST/ASSISTANT/EMPLOYER</th></tr></thead><tbody><tr><td>NOT ELIGIBLE</td><td>% MEMBER</td><td>DEFERRED</td><td>SUBMIT</td><td>ASSIGN/ASSIST</td><td rowspan="2">SPECIAL (Specify)<br/>From Jan 1960 thru Dec 1975</td><td></td></tr><tr><td>PENDING</td><td>DECLINED</td><td>OFFERED</td><td>% APPROVED</td><td>REASSIGN/ASSIST/EMPLOYEE</td></tr></tbody></table>
+
+<table><thead><tr><th>10. DATE REPORT DUE IN G.M.</th><th>REPORTING PERIOD (From)</th><th>SPECIAL (Specify)</th></tr></thead><tbody><tr><td>31 January 1961</td><td>Jan 1960 thru Dec 1965</td><td></td></tr></tbody></table>
+
+<table><thead><tr><th colspan="6">EVALUATION OF PERFORMANCE OF SPECIFIC DUTIES</th></tr></thead><tbody><tr><td colspan="6">List up to six of the most important specific duties performed during the rating period. Insert rating number which best describes the manner in which employee performs EACH specific duty. Consider ONLY all activities in performance of that duty. All employees with supervisory responsibilities MUST be rated on their ability to perform these duties (Indicate number of employees supervised).</td></tr></tbody></table>
+
+<table><thead><tr><th>1 - Unsatisfactory</th><th>2 - Barely adequate</th><th>3 - Acceptable</th><th>4 - Satisfactory</th><th>5 - Excellent</th><th>6 - Superior</th><th>7 - Outstanding</th></tr></thead><tbody><tr><td>SPECIFIC DUTY NO. 1<br/>Supervises A&R Section<br/>personnel</td><td>A<br/><br/><br/></td><td>SPECIFIC DUTY NO. 2<br/>Oral Briefings</td><td>A<br/><br/><br/></td><td>RATING<br/>NO.<br/><br/><br/></td><td>5</td><td></td></tr><tr><td>SPECIFIC DUTY NO. 2<br/>Questioned Document Analysis</td><td>A<br/><br/><br/></td><td>SPECIFIC DUTY NO. 3<br/>Monitoring the writing of and<br/>writing technical reports</td><td>A<br/><br/><br/></td><td>RATING<br/>NO.<br/><br/><br/></td><td>5</td><td></td></tr><tr><td>SPECIFIC DUTY NO. 3<br/>Liaison with other Government<br/>Questioned Document Labs.</td><td>A<br/><br/><br/></td><td>SPECIFIC DUTY NO. 4<br/>Monitors Graphology Program</td><td>A<br/><br/><br/></td><td>RATING<br/>NO.<br/><br/><br/></td><td>5</td><td></td></tr></tbody></table>
+
+<table><caption>EVALUATION OF OVERALL PERFORMANCE IN CURRENT POSITION</caption><tbody><tr><td colspan="6">Take into account everything about the employee which influences his effectiveness in his current position. Performance of specific duties, productivity, conduct on job, competition,

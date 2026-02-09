@@ -1,0 +1,84 @@
+# JFK-Files-Part-1_page_29765.png
+
+Convert to MarkdownSECRET
+
+<table>
+  <tr>
+    <td colspan="2">When Filled In)</td>
+  </tr>
+  <tr>
+    <td>(1-61)</td>
+    <td></td>
+  </tr>
+  <tr>
+    <td colspan="2">LANGUAGE DATA RECORD</td>
+  </tr>
+  <tr>
+    <td colspan="2">PART I-GENERAL</td>
+  </tr>
+  <tr>
+    <td>1. NAME (Last-First-Middle) (7-24)</td>
+    <td>2. DATE OF BIRTH (25-30)</td>
+  </tr>
+  <tr>
+    <td>MAKSYMIEC MYPOSJAW ANDREJ AFRIL</td>
+    <td></td>
+  </tr>
+  <tr>
+    <td>3. LANGUAGE (31-31)</td>
+    <td>4. TODAY'S DATE (34-39)</td>
+  </tr>
+  <tr>
+    <td>POLISH 624 NOV 27 1961</td>
+    <td>5.</td>
+  </tr>
+  <tr>
+    <td></td>
+    <td><input type="checkbox"></td>
+  </tr>
+  <tr>
+    <td colspan="2">I HAVE NO PROFICIENCY IN ANY FOREIGN LANGUAGE</td>
+  </tr>
+  <tr>
+    <td colspan="2">PART II-LANGLAGE ELEMENTS</td>
+  </tr>
+  <tr>
+    <td colspan="2">SECTION A.</td>
+  </tr>
+  <tr>
+    <td colspan="2">Reading (40)</td>
+  </tr>
+  <tr>
+    <td colspan="2">1. I CAN READ TEXTS OF ANY DIFFICULTY, OF A GENERAL NATURE OR IN FIELDS I AM FAMILIAR WITH, USING THE DICTIONARY ONLY RARELY.</td>
+  </tr>
+  <tr>
+    <td colspan="2">2. I CAN READ TEXTS OF MOST GRADES OF DIFFICULTY, OF A GENERAL NATURE OR IN FIELDS I AM FAMILIAR WITH, USING THE DICTIONARY OCCASIONALLY.</td>
+  </tr>
+  <tr>
+    <td colspan="2">3. I CAN READ TEXTS OF AVERAGE DIFFICULTY (newspapers, reference materials, etc.), USING THE DICTIONARY FREQUENTLY.</td>
+  </tr>
+  <tr>
+    <td colspan="2">4. I CAN READ SIMPLE TEXTS, SUCH AS STREET SIGNS, NEWSPAPER HEADLINES, ETC., USING THE DICTIONARY FREQUENTLY.</td>
+  </tr>
+  <tr>
+    <td colspan="2">I HAVE NO READING ABILITY IN THE LANGUAGE.</td>
+  </tr>
+  <tr>
+    <td colspan="2">SECTION B.</td>
+  </tr>
+  <tr>
+    <td colspan="2">Writing (41)</td>
+  </tr>
+  <tr>
+    <td colspan="2">1. I CAN WRITE PERSONAL LETTERS AND SIMILAR MATERIAL WITH COMPLETE SUCCESS WITHOUT USING THE DICTIONARY. I CAN WRITE FACTUAL NARRATIVE AND EXPOSITORY MATERIAL WITH REASONABLE CLARITY, WITH VERY FEW GRAMMATICAL ERRORS, IN NATIVE STYLE, USING THE DICTIONARY ONLY RARELY.</td>
+  </tr>
+  <tr>
+    <td colspan="2">2. I CAN WRITE PERSONAL LETTERS AND SIMILAR SIMPLE MATERIAL WITH COMPLETE SUCCESS, USING THE DICTIONARY ONLY RARELY. I CAN WRITE FACTUAL NARRATIVE AND EXPOSITORY MATERIAL WITH REASONABLE CLARITY, WITH FEW GRAMMATICAL ERRORS, BUT IN A STYLE WHICH MAY NOT BE NATIVE, USING THE DICTIONARY OCCASIONALLY.</td>
+  </tr>
+  <tr>
+    <td colspan="2">3. I CAN WRITE PERSONAL LETTERS AND SIMILAR SIMPLE MATERIAL, WITH REASONABLE SUCCESS IN CONVEYING MY MEANING, BUT WITH OCCASIONAL MINOR GRAMMATICAL ERRORS AND IN OBVIOUSLY FOREIGN, ANKWARD STYLE, USING THE DICTIONARY OCCASIONALLY.</td>
+  </tr>
+  <tr>
+    <td colspan="2">4. I CAN WRITE PERSONAL LETTERS AND SIMILAR SIMPLE MATERIAL, WITH REASONABLE SUCCESS IN CONVEYING MY MEANING, BUT WITH MANY GRAMMATICAL ERRORS AND IN A VERY FOREIGN, ANKWARD STYLE, USING THE DICTIONARY FREQUENTLY.</td>
+  </tr>
+  <tr>

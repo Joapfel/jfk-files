@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_30337.png
+
+Convert to MarkdownSECRET
+
+S O AUG 1966
+
+MEMORANDUM FOR: Director of Security
+
+SUBJECT : Notification of Approval of Quality Step Increase - James McCord
+
+1. I am pleased to send to you the attached official notification of the approval of the Quality Step Increase which you recommended for this employee.
+
+2. As this award is designed to encourage excellence by recognizing and rewarding the employee, may I ask that you arrange to have this Quality Step Increase presented at an appropriate ceremony.
+
+Distribution:
+
+O & I - Addressee
+4 - OPF - McCORD
+1.-D/Pers-Chrono
+I - C/PD
+
+OP/DD/R&P/PD/JJCaldwell:ksd (30 Aug 66)
+
+SECRET
+
+<table><tr><td>SECRET</td></tr></table>

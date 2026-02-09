@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_29414.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td>1. NAME (Last, First, Middle)</td><td>2. DATE OF BIRTH</td><td>3. GRADE</td></tr><tr><td>LYNNE, DONNA L.</td><td>14 Jun 25</td><td>6-14 equl</td></tr><tr><td>4. OFFICE, DIVISION, BRANCH (or overseas station and existing cover if lateral assignment)</td><td>5. PRESENT POSITION</td><td>8. EMPLOYEE EXTENSION</td></tr><tr><td>DEF, FR, BEL</td><td>Opr O/C/A/ MIAMI</td><td>05:00</td></tr><tr><td>7. PROPOSED STATION</td><td>9. PROPOSED POSITION (Title, Number, Grade)</td><td></td></tr><tr><td>Dr. Washington, L-C.O.</td><td>Circus A-out/Outs Officer</td><td></td></tr><tr><td>8. TYPE OF COVER AT NEW STATION</td><td>10. ESTIMATED DATE OF DEPARTURE</td><td>11. NO. OF DEPENDENTS TO ACCOMPANY</td></tr><tr><td>Nominal AID</td><td>6 Jun 68</td><td>5</td></tr><tr><td colspan="3">12. COMMENTS<br/>Request re-evaluation of current medical status in Miami until results forwarded B.o.</td></tr><tr><td>13. DATE OF REQUEST</td><td>14. SIGNATURE OF REQUESTING OFFICIAL</td><td>15. ROOM NUMBER AND BUILDING</td><td>16. EXTENSION</td></tr><tr><td>12 Apr 68</td><td>Iola H. DAVIS, MSU<br/>FE/PED/TEL</td><td>5 & 22</td><td>6500</td></tr><tr><td colspan="4">17. OFFICE OF MEDICAL SERVICES DISPOSITION<br/><br/>C C MDC-INS-QUILFIED P...<br/><br/>PROPOSED 03 PCS<br/>REX HART<br/><br/>94 17 63<br/><br/>18. OFFICE OF SECURITY DISPOSITION<br/><br/>OVERSEAS CANDIDATE REVIEW PANEL DISPOSITION<br/><br/>REQUEST FOR PCS OVERSEAS EVALUATION</td></tr></table>
+
+FORM 259a (4) SECRET
+
+<table><tr><td>Op. N° 1</td></tr><tr><td>15 Jan 1968</td><td>Medical Personnel</td></tr><tr><td>P.O. #</td><td>~~S.S.R.~~</td></tr></table>

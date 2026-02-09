@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_29959.png
+
+Convert to MarkdownSECRET
+
+16 June 1959
+
+Reviewing Officers' Comments: David Murphy's Fitness Report
+
+In unquestionably one of the outstanding officers in this equal. In operational talent, initiative, imagination and experience. He has also thoroughly demonstrated high qualities of leadership, good judgment and an impressive ability to deal effectively with people.
+
+/s/ John A. Bross.
+
+CONCUR:
+
+James Hitchfield
+Chief, Eastern European Division
+
+SECRET

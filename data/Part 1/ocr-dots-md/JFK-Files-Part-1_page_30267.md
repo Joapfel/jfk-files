@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_30267.png
+
+Convert to Markdownprincipled individual who once convinced he has hit upon the proper course of action will usually yield only by direction. We've discussed this, and I've noted a determined effort on his part to broaden his tolerance for other opinions.
+
+5. Overall, the employee has made a substantial contribution to the Office of Security by his dedication to his job, his tenacious attitude toward upgrading our physical security standards, a curious and inventive mind ever searching for better ways to solve a problem in his area of responsibility, and a cost consciousness in the administration of his division. I rate him an overall "Strong."
+
+James P. O'Connell
+Deputy Director of Security (PTOS)
+
+Noted by Employee:
+
+Date
+
+Reviewed By:
+
+29 APR 1970
+Date
+
+Howard J. Osborn
+Director of Security

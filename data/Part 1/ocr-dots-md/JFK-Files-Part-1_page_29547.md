@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_29547.png
+
+Convert to Markdown5. OPERATIONAL EXPENDITURES
+
+a. Present contract authorizes operational expenses as specifically approved.
+
+b. New contract expands this to include operational entertainment and purchase of information.
+
+6. BENEFITS
+
+a. Present contract provides death and disability benefits under Federal Employees Compensation Act, and benefits under the Missing Persons act; and states that Social Security deductions will be withheld by the Government.
+
+b. New contract provides for these same benefits; but would make deductions for the Civil Service Retirement Fund instead of the Social Security. In addition the new contract provides for, (1) Sick and Annual leave equal to that of Staff employees; (2), cost of hospitalization and travel for illness or injury incurred in line of duty, while PCS abroad; (3) cost of hospitalization and travel of dependents while abroad; and (4), authorization to apply for enrollment in the Agency health insurance program.
+
+7. TERM
+
+a. The term of the present contract is for one year, subject to termination upon 30 days notice.
+
+b. The new contract is for an indefinite term, subject to termination upon 90 days notice.
+
+8. SPECIAL BONUS
+
+a. There is an Amendment to the present contract, dated 2 May 1961, and made retroactive to cover the period 28 March thru 28 April 1961, only, which authorizes a bonus of 40% of normal monthly compensation while LYNCH was serving aboard ship involved in clandestine maritime activity.
+
+b. There can be no provision in any new contract for declaring a bonus for unforeseen future activities.

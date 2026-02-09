@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_30085.png
+
+Convert to MarkdownATTACH SUPPLEMENTAL SHEETS OR FORMS HERE
+
+* ANSWER ALL QUESTIONS CORRECTLY AND FULLY
+
+20. SPECIAL QUALIFICATIONS AND SKILLS
+
+<table><tr><td>A. Kind of License or Certificate (For example, pilot, teacher, registered nurse, etc.)</td><td>B. State or other licensing authority</td></tr><tr><td>None</td><td></td></tr><tr><td>E. Special skills you possess and machines and equipment you can use. (The example, that wire radio, multibank, compter, etc., punch, tortoise lathes, transcribing machine, x-ray, or professional device)</td><td>E. Approximate number of words per minute: <br>Typing II. A. N. S. B. A.</td></tr><tr><td>Industrial machinery (lumber) including Diesel locomotive (axle); Forensic laboratory equipment (questioned document); Identikit Cyn.; Tech. Intelligence Equipment.</td><td></td></tr><tr><td colspan="2">G. Special qualifications not covered in application. (The example, your most important publications, do not submit copies unless requested; your patents or inventions, publications and publications exposure, membership in professional or scientific organizations, etc., and honors and awards received.)<br>Suggested and directed development of the Identikit System; Member of III; Over 200 lecture hours at CIC School; Co-author of CIC Manual and rewrote 2 others; wrote 3 articles and 1 technical book review for "Studies in Intelligence".</td></tr></table>
+
+21. EDUCATION
+
+<table><tr><td rowspan="2">A. Place \"X\" in column indicating highest grade completed</td><td colspan="8"></td><td colspan="4">C. Name and location of last high school attended</td></tr><tr><td colspan="4"></td><td colspan="4"></td><td colspan="4">McCloud High School<br/>McCloud, California</td></tr><tr><td rowspan="2">B. Name and location of college or university</td><td rowspan="2"></td><td rowspan="2">From</td><td rowspan="2">To</td><td colspan="2">Years completed</td><td colspan="2">Credit hours</td><td rowspan="2">Degree received</td><td rowspan="2">Year received</td></tr><tr><td>Day</td><td>Night</td><td>Semester</td><td>Quarter</td></tr><tr><td>C. Chief undergraduate college subjects</td><td>Semester Hours Credit</td><td>Quarter Hours Credit</td><td>P. Chief graduate college subjects</td><td>Semester Hours Credit</td><td>Quarter Hours Credit</td><td></td><td></td><td></td><td></td></tr><tr><td>D. State major field of study at highest level of college work</td><td colspan="9"></td></tr><tr><td colspan="10">College Level GED (USAFT) 1949</td></tr><tr><td colspan="10">II. Other schools of training (for example, trade, vocational, armed forces, or business). Give for each the name and location of school, dates attended, subjects studied, certificates, and any other pertinent data.</td></tr><tr><td colspan="10">Chemical Warfare Sch., 103rd Inf. Div.School - Camp Claiborne, In., 1 June 1943<br/>Counter Intelligence Corps Basic Course, Fort Holabird, Md., 29 May 1947; Instructors<br/>Guidance Courses, Ft. Holabird, Maryland, 26 September 1947 and again 17 April 1958.</td></tr></table>
+
+22. FOREIGN TRAVEL
+
+<table><tr><td>Have you lived or traveled in any foreign country?</td><td>Yes ☐ No</td></tr><tr><td>If \"Yes,\" give in them 3 names of countries, dates and length of time spent there and reason for purpose (military, industrial, business, education, or vacation).</td><td></td></tr></table>
+
+<table><thead><tr><th>Foreign language and indicate your knowledge of each by placing \"N\" on proper column.</th><th>Reading</th><th>Speaking</th><th>Understanding</th><th>Writing</th></tr></thead><tbody><tr><td>Ions</td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_29452.png
+
+Convert to MarkdownSECRET
+
+4. This agreement is effective as of 1 May 1967 and shall continue thereafter for two (2) years unless sooner terminated as set forth in your previous contract. If this agreement becomes effective during an overseas assignment nothing contained herein shall be construed as extending that assignment beyond its originally contemplated duration or invalidating your entitlement to return travel expenses (if applicable) upon completion of that assignment.
+
+UNITED STATES GOVERNMENT
+BY
+Contracting Officer
+
+ACCEPTED:
+
+Irving C. Devuono
+WITNESS:
+APPROVED:
+
+SECRET
+
+Group 1 - Excluded from automatic downgrading and declassification.

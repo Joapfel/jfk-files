@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_29605.png
+
+Convert to Markdown14-00000
+
+Official Personnel Folder
+
+SECRET
+
+SECRET
+
+RETURN TO RECORDS CENTER
+IMMEDIATELY AFTER RELEASE
+JOB 24-37 BOX 128
+
+MAKSYMIEC, HYROSCHMA. 35655
+
+7

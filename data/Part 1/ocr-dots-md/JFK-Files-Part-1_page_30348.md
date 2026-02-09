@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_30348.png
+
+Convert to MarkdownHEADQUARTERS
+UNITED STATES ARMY, EUROPE
+Office of the Provost Marshal
+N. Y., U.S. Forces
+
+9 MAY 1964
+
+Dear Jim:
+
+My tour of duty in Headquarters, United States Army,
+Europe will terminate in late May when I leave Europe to
+undertake new duties in Washington, D. C. My association
+with you and your staff has been a richly rewarding experi-
+ence, both personally and professionally. The manner in
+which you have unobtrusively, yet effectively, served as the
+catalyst which welded together the activities of the many
+staff and operational agencies which share an interest in
+our national security, has been a source of continuing in-
+spiration to me. Your efforts have enjoyed my unqualified
+personal support and have merited the adulation of those
+members of my staff who have been privileged to associate
+with you.
+
+You have dramatically demonstrated a capacity for
+bringing together key personnel of agencies who seek, in
+the accomplishment of their individual missions, the real-
+ization of a common goal, in a manner calculated to pre-
+serve the individual integrity of each agency while exploiting
+those benefits of cohesiveness so essential to joint action.
+effectiveness. I indigul that the application of a prescribed
+technique without adding the complementary ingredient of
+your confidence inspiring and persuasive personality would
+not have achieved the same measure of success. I unhesi-
+tatingly ascribe our abundant joint accomplishments to your
+generous personal contribution.

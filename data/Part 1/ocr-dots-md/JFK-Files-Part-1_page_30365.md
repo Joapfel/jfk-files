@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_30365.png
+
+Convert to Markdown(S-204-R-1)
+(When Completed)
+
+# TRAINING REPORT
+
+Americans Abroad Orientation - Free Europe (Germany)
+
+28 hours 19, 20, 26 & 27 February 1962
+
+Office :
+
+Students : MCCORD, Sarah Ruth (Dependent- James W., Jr.) Service Designation:
+
+Year of Birth: No. of Students :
+
+Grades : BOD Date :
+
+## COURSE OBJECTIVE - CONTENT AND METHOD
+
+This course helps prepare personnel and their adult dependents for residence or travel in the general area and country of destination. Included are a briefing on "the Americans abroad Problem," its implications for the individual employee or dependent and the agency, practical advice for successful personal adjustment to everyday problems of working and living in the area of assignment, useful information on the area, and guide lines for understanding its major problems. Advice includes cues for effective inter-personal relations in the particular country or region. Area information includes an analysis of the importance of the region to the United States and descriptions of the people, their institutions, and current living conditions. The course offers lectures, panel discussions, films, slide commentaries, and selected readings for a recommended program of self-study. Employees and dependents recently returned from the area help to keep current the information on conditions.
+
+## ACHIEVEMENT RECORD
+
+This is a certificate of attendance only; no attempt was made to evaluate student achievement in this course.
+
+FOR THE DIRECTOR J. TRAINING: Ann-Lewis 4 June 1962
+Chief Instructor:
+ANTHONY M. LEWIS Date
+
+S-204-R-1
+(When Completed)

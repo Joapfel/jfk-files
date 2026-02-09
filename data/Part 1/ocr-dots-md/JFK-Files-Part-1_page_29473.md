@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_29473.png
+
+Convert to MarkdownSECRET
+
+BRIEF FOR THE DIRECTOR OF CENTRAL INTELLIGENCE
+
+Grayston L. Lynch, Captains, U. S. Army (retired), Career Agent,
+DDP/CA Staff, GS-13 Equivalent
+Recommended for Intelligence Star
+
+Captain Lynch was employed by another government agency prior to the Cuban invasion. During the preparations for the Cuban invasion, Captain Lynch was granted Agent status with CIA with the understanding he would return to his parent agency at the completion of the project. The Board recommends that he be awarded the Intelligence Star for his activities under fire on 16-17 April 1961.
+He personally led the beach reconnaissance party on the night of 16 April and succeeded in placing beach markers in preparation for the landing. On 17 April, his ship was besetged by an air attack.
+He was successful in leading the convoy to a point off the coast, during which time gunfire from his vessel destroyed two of the attacking aircraft. During the period 22-24 April, Captain Lynch led a team of three back to the objective area and rescued nine survivors of the invasion forces.
+
+SECRET

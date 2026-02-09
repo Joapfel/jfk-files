@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_29508.png
+
+Convert to MarkdownSECRET
+
+25 September 1962
+
+TO : Chief/Station, JMWAVE
+FROM : IRVING G. DEVUONO
+SUBJECT: Housing Allowance
+ATTN : Chief/Support, JMWAVE
+
+1. The writers' contract, as Career Agent, states in Para 4: "Allowance: You will be entitled to: (a) living quarters allowance in conformance with applicable government regulations. You may be provided quarters by your cover facility or the government and, in such event, you will not be entitled to the living quarters allowance herein indicated.
+
+(b) Cost of living allowance in conformance with applicable government regulations including, but not limited to, a post allowance or an equalization allowance in lieu thereof, a supplementary post allowance, a transfer allowance, a basic service transfer allowance, an education allowance, and a separation allowance."
+
+2. It appears clear to the writer that any housing allowance which applies to staffers also applies to the writer. This would then necessarily have to commence at the same time for both types in order to be equal.
+
+3. It is requested the writers' housing allowance be timed to commence on the same date as the Staffers in order to comply with the intent of the contract.
+
+<table><tr><td>GROUP I</td></tr><tr><td>Enclosed from outside</td></tr><tr><td>Operating area</td></tr><tr><td>Exterior protection</td></tr></table>
+
+SECRET
+
+14-00000
