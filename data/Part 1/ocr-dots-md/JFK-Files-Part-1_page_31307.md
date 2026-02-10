@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_31307.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="5">SECTION V<br>GEOGRAPHIC AREA KNOWLEDGE AND FOREIGN TRAVEL</th></tr><tr><th rowspan="2">NAME OF REGION OR COUNTRY</th><th rowspan="2">TYPE OF SPECIALIZED KNOWLEDGE</th><th rowspan="2">DATE & PLACE OF RESIDENCE</th><th rowspan="2">WORK ASSIGNMENT</th><th colspan="3">KNOWLEDGE ACQUIRED BY CHECK (X)</th></tr><tr><th>REST. SERVICE</th><th>TRAVEL</th><th>STUDY</th></tr></thead><tbody><tr><td></td><td></td><td>SEP 30 8 SS AM '71</td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+<table><thead><tr><th colspan="4">SECTION VI<br>TYPING AND STEMOGRAPHIC SKILLS</th></tr></thead><tbody><tr><td>☐ TYPING (PUSH)</td><td>☑ SHORTHAND(WPM)</td><td>3. INDICATE SHORTHAND SYSTEM USED (CITY, Lvl, APPROPRIATE ITEM, ☐ GREGG ☐ SPEEDWRITING ☐ STENOTYPE ☐ OTHER SPECIFY)</td><td></td></tr></tbody></table>
+
+<table><thead><tr><th colspan="4">SECTION VII<br>SPECIAL QUALIFICATIONS</th></tr></thead><tbody><tr><td colspan="4">PROVIDE INFORMATION ON HOBBIES, SPORTS, LICENSES, PUBLISHED MATERIALS OR DEVICES WHICH YOU MAY HAVE INVENTED.</td></tr></tbody></table>
+
+<table><thead><tr><th colspan="6">SECTION VIII<br>MILITARY SERVICE</th></tr><tr><td colspan="6">CURRENT DRAFT STATUS</td></tr></thead><tbody><tr><td>☐ WAS YOUR SELECTIVE SERVICE CLASSIFICATION CHANGED? ☐ YES ☐ NO</td><td>2. NEW CLASSIFICATION</td><td colspan="3"></td></tr><tr><td>3. LOCAL SELECTIVE SERVICE BOARD NUMBER AND ADDRESS</td><td colspan="4">4. IF DEFERRED, GIVE REASON</td></tr><tr><td colspan="6">MILITARY RESERVE, NATIONAL GUARD STATUS</td></tr><tr><td>CHECK RESERVE OR GUARD ORGANIZATION TO WHICH YOU BELONG</td><td>☐ ARMY ☐ NAVY</td><td>☐ MARINE CORPS ☐ AIR FORCE</td><td>☐ COAST GUARD</td><td colspan="2">☐ NATIONAL GUARD ☐ AIR NATIONAL GUARD</td></tr><tr><td>1. CURRENT RANK, GRADE OR RATE</td><td>2. DATE OF APPOINTMENT IN CURRENT SERVICE</td><td colspan="4">3. EXPIRATION DATE OF CURRENT OBLIGATION</td></tr><tr><td>4. CHECK CURRENT RESERVE CATEGORY ☐ READY RESERVE ☐ STANDBY(Active) ☐ STANDBY(Inactive) ☐ RETIRED ☐ DISCHARGED</td><td colspan="4"></td><td></td></tr><tr><td>5. MILITARY MOBILIZATION ASSIGNMENT</td><td colspan="4"></td><td>6. RESERVE UNIT TO WHICH ASSIGNED OR ATTACHED</td></tr><tr><td colspan="6">MILITARY SCHOOLS COMPLETED (Extended Active, Reserve Duty, or as Civilian)</td></tr><tr><td colspan="2">NAME AND ADDRESS OF SCHOOL</td><td colspan="2">STUDY OR SPECIALIZATION</td><td colspan="2">DATE COMPLETED</td></tr><tr><td colspan="2"></td><td colspan="2"></td><td colspan="2"></td></tr><tr><td colspan="6"></td></tr></tbody></table>
+
+<table><thead><tr><th colspan="3">SECTION IX<br>PROFESSIONAL SOCIETIES AND OTHER ORGANIZATIONS</th></tr><tr><th>NAME AND CHAPTER</th><th>ADDRESS (Number, Street, City, State, Country)</th><th>DATE OF MEMBERSHIP<br>FROM TO</th></tr></thead><tbody><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr></tbody></table>
+
+<table><thead><tr><th colspan="2">SECTION X<br>

@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_31026.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+Date: 20 August 1943
+
+Career Agent Biographic Data
+
+a. Pseudonym of agent: **SEADUM** Jeremy K., Staff or Division: **NED**
+
+Last: **First:** MI
+
+b. Date and place of birth: **20 August 1915, California, Nebraska**
+
+c. Marital status: **Married**
+
+d. Relationship and years of birth of dependents: Uffo, born 31 Jan 1917, San Francisco, California--San Diego, born 17 Sept 1948, San Jose, Cal.--San Diego, born 6 Mar 1930, San Jose, Cal.--San Diego, born 19 Jul 1951, San Francisco, Cal.--San Diego, born 16 Aug 1937, Mexico, D.F.,--San Diego, born 19 Sept 1950, Mexico, D.F.,--San Diego, born October 1961, Mexico, D.F.
+
+e. Citizenship of agent: **CA**
+
+(1) If naturalized, when?
+
+(2) if naturalized, where?
+
+g. Non-CIA education to include name and location of college, degrees, dates, and major:
+
+Berkeley College, Berkeley, California, A.B. 1935, Political Beliefs
+Stanford Law School, LL.B. 1939, Law
+FBI Academy, August, September 1949
+
+h. Military service: **Terman Army Training, Infantry School, Oct 1943-July 1949**
+
+(1) Country served and years:
+
+(2) Branch of service and rank:
+
+i. Non-CIA employment: kinds of business or profession, positions, salaries, locations, and dates.
+
+FBI • Aug 1943-Sept 1949, C-14, $11,600/year seen assigned.
+Assistant Legal Attaché, El Paso, Texas, June, 1943-July
+Legal Attaché seen post, 1944-A7
+Assistant Legal Attaché, Tucson City, 1944-49
+Assistant to Lloyd Attaché 1947-49
+
+J.E. CARL T. TOELLER I, II, III, IV, V, VI, VII, VIII, IX, X, XI, XII, XIII, XIV, XV, XVI, XVII, XVIII, XIX, XX, XXI, XXII, XXIII, XXIV, XXV, XXVI, XXVII, XXVIII, XXIX, XXX, XXXI, XXXII, XXXIII, XXXIV, XXXV, XXXVI, XXXVII, XXXVIII, XXXIX, XL,

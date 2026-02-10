@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_30663.png
+
+Convert to MarkdownSECRET
+
+operational sources. He is an authority on enemy efforts to penetrate the Agency, the Departments of State and Defense.
+
+3. Mr. Miler is an aggressive, loyal, hard working officer who has not yet reached the peak of his potential. It is a source of great satisfaction to know that his unique abilities will be available to the Agency for a number of years to come.
+
+4. I rate Mr. Miler in the overall performance of his job as **Strong**.
+
+Raymond G. Rocco
+Deputy Chief
+Counter Intelligence Staff
+
+EMPLOYEE SIGNATURE:
+
+N. Scott Miler
+
+REVIEWING OFFICIAL:
+
+James Angleton
+
+Date:
+
+Date
+
+5
+
+SECRET
+
+14-0000.

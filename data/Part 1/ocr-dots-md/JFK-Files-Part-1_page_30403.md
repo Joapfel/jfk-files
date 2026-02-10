@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_30403.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+<table><tr><td>1. NAME (Last, First, Middle)</td><td>2. POSITION TITLE</td><td>3. DATE OF SEPARATION</td></tr><tr><td>McCord, James W., Jr.</td><td>4. GRADE</td><td>6 May 1966</td></tr><tr><td>B. OFFICE, DIVISION, BRANCH</td><td>S. EMPLOYER'S NAME</td><td></td></tr><tr><td>SFC</td><td>Room # LE 63</td><td></td></tr><tr><td colspan="2">7. PURPOSE OF EVALUATION</td><td></td></tr><tr><td colspan="2"><input type="checkbox"/> PRE-EMPLOYMENT</td><td><input type="checkbox" checked disabled/> MIDS/TOY</td></tr><tr><td colspan="2"><input type="checkbox"/> ENTRANCE ON DUTY</td><td><input type="checkbox" checked disabled/> OVERSEAS ASSIGNMENT</td></tr><tr><td colspan="2"><input type="checkbox"/> TOY STANDBY</td><td>ETD<br/>STATION<br/>TOY OR PCS<br/>TYPE OF COVER<br/>NO. OF DEPENDENTS TO ACCOMPANY<br/><br/>NO. OF DEPENOENTS' REPORTS OF MEDICAL HISTORY (SF 89) ATTACHED</td></tr><tr><td colspan="2"><input type="checkbox"/> SPECIAL TRAINING</td><td></td></tr><tr><td colspan="2"><input type="checkbox" checked disabled/> ANNUAL - Executive</td><td></td></tr><tr><td colspan="2"><input type="checkbox"/> RETURN TO DUTY</td><td><input type="checkbox" checked disabled/> RETURN FROM OVERSEAS</td></tr><tr><td colspan="2"><input type="checkbox"/> FITNESS FOR DUTY</td><td>LTA<br/>STATION<br/>NO. OF DEP.'S</td></tr><tr><td colspan="2"><input type="checkbox"/> MEDICAL RETIREMENT</td><td></td></tr><tr><td>B. OVERSEAS PLANNING EVALUATION (One block must be checked)</td><td>B. REQUESTING OFFICER</td><td></td></tr><tr><td colspan="2"><input type="checkbox"/> YES</td><td>SIGNATURE</td></tr><tr><td colspan="2"><input type="checkbox"/> NO</td><td>ROOM NO. & BUILDING<br/>EXT.</td></tr><tr><td colspan="2">19. COMMENTS<br/><br/>QUALIFIED FOR TOY STUNT UNTIL MAY 6 '7<br/>APPROVED BY: J.G.<br/>DATE: 5.9.66</td><td>CHECK IF CORRECTLY CREDITED<br/>DUTIES</td></tr><tr><td colspan="2">11. REPORT OF EVALUATION<br/><br/>10.06.</td><td>CHECK IF CURRENT<br/>SIGNATURE FOR CHIEF OF MEDICAL STAFF<br/>APPROVED BY: PETER F. KOWA</td></tr><tr><td>DATE</td><td></td><td></td></tr></table>
+
+FORM 10-69 259 USA PREVIOUS EDITIONS.
+
+SECRET
+
+(103)

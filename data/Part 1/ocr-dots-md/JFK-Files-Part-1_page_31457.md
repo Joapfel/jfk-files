@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_31457.png
+
+Convert to MarkdownSECRET
+Security Information
+
+5 August 1952
+
+MEMORANDUM FOR: CHIEF, IO
+
+SUBJECT: Project THTONIC - Budget FY 1953
+
+1. Returned herewith as requested for the budget data for the fiscal y. ar 1953 received by CM in the late afternoon of 2 August 1952 for review, evaluation and specific comment.
+
+2. Only a cursory examination of such data is possible within the time presently available. While from the information submitted it does not appear that any of the estimates shown are greatly out of line, it must be pointed out that CM does not feel that it is in a position to intelligently evaluate the proposed budget with respect to the program and operational purposes contained therein.
+
+3. It is felt desirable, however, that sufficient detailed information pertinent to the organizational and management features of the project should be made available to CM to permit a review and examination of those aspects in conjunction with the related proposed budget provisions.
+
+PRESTON L. SUTPHEN
+Chief, Commercial Division
+
+CM/HIS/fh
+
+Distributions:
+
+Orig. & 1 - Addressee
+3 - CM
+2 - RI/FI
+
+SECRET
+Security Information

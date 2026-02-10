@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_31520.png
+
+Convert to MarkdownSECURITY INFORMATION
+
+SECRET
+
+7 July 1952
+
+MEMORANDUM FOR: DEPUTY DIRECTOR OF CENTRAL INTELLIGENCE
+
+SUBJECT: Request for Decision as to whether Crusade for Freedom Campaign Beginning 15 November may use a Dropping of Leaflets Theme in its Propaganda.
+
+1. Admiral Miller of NCFE has appointed a new head for Crusade for Freedom, Mr. Richard Walsh, formerly of the State Department. Mr. Walsh has submitted a new plan for the Crusade for Freedom campaign to begin November 15. The campaign will be based upon the idea of sending Christmas message leaflets behind the iron curtain with publicity that the Crusade for Freedom will use balloons among other methods for this purpose. It was originally contemplated that the Crusade would in fact send balloons as it did last year. Bearing in mind, however, the DCI's warning about using any propaganda device which might give the Soviet a weapon in its bacteriological warfare campaign, we have instructed the Crusade that there will be no actual transmission of balloons.
+
+2. Will it be permissible for the Crusade to publicize the use of balloons, to employ such stunts as dropping the Christmas leaflets out of balloons over packed football stadiums in the United States and to give the general impression that balloons will be one of the ways to carry messages from the American people behind the iron curtain, even though they will in fact not be employed?
+
+3. You will appreciate that an immediate decision is essential.
+
+THOMAS W. BRADEN
+Chief
+International Organizations Division
+
+**Distribution:**
+
+Original - DDCI through DD/P
+
+cc: ADPC - 1
+CIO - 1
+IO/TONIC - 2
+RI - 2
+
+SECRET

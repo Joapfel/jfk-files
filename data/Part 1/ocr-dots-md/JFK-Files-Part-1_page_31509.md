@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_31509.png
+
+Convert to Markdown2203 Foxhall Road, N.W.
+Washington, D.C.
+
+17 July, 1952
+
+Dear John,
+
+I was glad of our meeting day before yesterday and
+I am looking forward to seeing you soon again.
+
+Here is a memorandum I addressed to A. a short time
+ago which I would like you to read because it may give you
+some indication of how we are trying to get to work here.
+It is for your eyes only.
+
+I talked to Min on the telephone this morning and he
+seemed in an extremely bellicose mood. This bellicosity,
+replete with references to "little people who get in his
+hair", "from now on I'm dealing only with the top", and
+"otherwise there are going to be some resignations here"
+is difficult for me because I am partly Irish, and as able
+to resign as the next man. I have succeeded, however, in
+maintaining my Scotch heritage to the fore so far, and
+since you assure me that none of this is personally directed
+at myself, or people like Bill Darke whom I persuaded to
+come and help me or to the job that I am sincerely and
+honestly trying to do, I will try to keep it there. It was
+nevertheless awfully calming to have a chance for such a
+good talk with you.
+
+Enclosure
+
+Mr. John Hughes
+McCampbell & Company
+10 Worth Street
+New York, New York

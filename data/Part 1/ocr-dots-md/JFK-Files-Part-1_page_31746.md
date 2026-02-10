@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_31746.png
+
+Convert to MarkdownSECRET
+Security Information
+
+January 1953
+
+MEMORANDUM FOR: DEPUTY DIRECTOR CENTRAL INTELLIGENCE AGENCY
+
+VIA: Deputy Director (Plans)
+Chief, Political and Psychological Warfare
+
+SUBJECT: Additional Funds for the Crusade for Freedom
+
+A. Fund requested for termination of 1952 campaign.
+
+1. Admiral Miller has requested a sum of $261,106.92 for the 1952 Campaign of the Crusade for Freedom.
+
+2. From April 1, 1952, the starting date of the 1952 campaign, the Crusade for Freedom has had available to it $550,760.81. Of this amount, a total of $105,237.61 was cash on hand as of April 1, 1952, and returns of cash from the field to headquarters after that date, $111,528.00 of which amount were CIA contributions to the 1952 Campaign. Actual expenses of the Crusade from April 1 through December 20, 1952, were $473,439.33. Available cash as of that date was $69,326.13. Expected additional expenses will be $330,437.35. Additional funds of $261,106.92 are thus requested. Not included in the figure of cash on hand as of December 20, 1952, are the funds in a payroll revolving account of $8,000. These funds can be deducted from the total requested if a decision is made that the present Crusade organization is to be terminated and transferred to the American Heritage Foundation.
+
+3. Total expenditures of the 1952 Campaign will cover total $803,866.73. It should be noted that of this amount $35,928.66 was spent to clear up remaining 1952 Campaign expenses, leaving a net of $767,938.07 expended on the 1952 Campaign.
+
+4. A comparison of the total cost of the 1951 Campaign with that of the Campaign conducted in 1952 clearly shows that the instructions of the FRC that the Crusade be scaled down in amount was complied with. Total expenditures during the 1951 Campaign were $1,932,475, while total expenditures this year will be $767,938.07. This year's expenditures are also less than those of the initial Campaign of 1950 when expenditures were $917,000. Receipts in 1950 were $1,317,000, while receipts in the 1951 Campaign were $2,011,221.94.
+
+5. Detailed statements attached. (Tab A) (Note particularly item 3 which comparitor field expenason between 1951 and 1952 Campaign)
+
+B. 1953 Campaign.
+
+1. Attached (Tab B) copies are Admiral Miller's proposals for a 1953 Crusade Campaign. He has requested a sum of $830,000 for this purpose. This $830,000 is an addition to the sum requested above for the termination of the 1952 Campaign. In view of the request of the Director of the Central Intelligence Agency that the American Heritage Foundation take over and run the 1953

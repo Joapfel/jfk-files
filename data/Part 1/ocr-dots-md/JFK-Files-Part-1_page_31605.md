@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_31605.png
+
+Convert to Markdownwho thought that they will achieve anything by the balloon. True, the Crusaders of Freedom in the West are losing more and more possibilities for conducting enemy activity on the territory of our Republic. On the frontiers of our country there stands a vigilant guard which breaks all the attempts of their agents and so they must be contented with the balloon action which our people overtly laughed at and which they condemn.
+
+They openly say that the entire action was a kind of genocide which not even Hitler dared to commit at the time of the greatest hatred campaign against Czechoslovakia. Then they are bringing the leaflets which they had found to the security organs and to the administrative organs, they ask that the action should be publicly condemned.
+
+This spontaneous disgust concerning the balloon action demonstrated in which complete isolation, lack of information and ignorance of the real thinking of our working people do live the mercenaries of Free Europe which is the patron of this action. Free Europe even broadcast, while propagating the balloons, some kind of poor poetry in which one says, that "Always all the good things were coming from above" and that our people knew this".
+
+Yet our people have got a longer memory than Free Europe believes. They will remember what good came to them from above from the West; that it was the bombs which on the eve of the end of the war were murdering women and children in peaceful residential quarters of Prague and Plzen and which destroyed the Plzen Skoda Works and the Prague Kolben Works In order to make our reconstruction more difficult. Later we were getting from above, from Western Germany a flood of the Colorado beetle which was supposed to bring us misery and starvation, and they knew very well what American pilots are bringing from above to the women and children of Korea.
+
+And one more coincidence: One of the boxes with leaflets which was found near Brzezce in the Plzen Region carried the inscription Munchen and also with the name of Munich are connected for every citizen the memories of the worst time of our nations: The memories now in reality looks the love of the so-called friends of our people.
+
+In fact the organizers of the ridiculous and stupid balloon action spent their dollars for balloons, paper and metal stamps carrying the emblem of Free Europe which are also being spread. They can hardly expect any thanks on the part of their employers because the result is exactly the contrary of the expected. True, a few business men finally got their pockets full but otherwise the action was doomed to failure from its very beginning. This action blown up by Free Europe deflated soon just as its balloons.

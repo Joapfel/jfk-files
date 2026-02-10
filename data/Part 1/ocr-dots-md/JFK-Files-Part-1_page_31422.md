@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_31422.png
+
+Convert to Markdownwill be discontinued when AIGC goes out of existence, and they should not be reestablished. You will remember that at the hearings which considered NCF's 1953 budget, the officials of NCF asked for $500,000 to cover the expected loss of such privileges and because we felt that this was unjustified, we asked and were granted the right to retain this money in the CIA reserve pending further justification.
+
+5. Mr. Scott's complaint that the Information Service of RFE has been too expensive and naive is probably correct. In part this is the result of CIA's inability, for justifiable security reasons, to make information on a large scale available to RFE. However, the Information Service is being reorganized. There is reason to believe that excellent professional personnel, such as Russell Hill and Ed Chamberlayne will provide the competence necessary for an increase in efficiency.
+
+6. In sum, Mr. Scott's criticisms and complaints seem a mixture of fact and fiction estimated by a personal antagonism. His is but one of a number of such attacks by former employees. Our own approach to Radio Free Europe should be so much an assessment of past success and failure, as an examination of future opportunities. A powerful instrument has been created, in the main successfully, in an incredibly short time. Where it goes from here, giving due consideration to criticism such as Scott's, seems to us to be our priority task.

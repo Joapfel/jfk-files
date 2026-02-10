@@ -1,0 +1,87 @@
+# JFK-Files-Part-1_page_30849.png
+
+Convert to Markdown14-00009
+
+SECRET
+
+ORIGINAL FORM
+NOTICE OF CHANGE TO COPY
+
+<table><tr><td colspan="2">DOCUMENTS AND/OR DOCUMENTS ARE BEING REVIEWED BY</td></tr><tr><td>1.</td><td>5.</td></tr><tr><td>2.</td><td>6.</td></tr><tr><td>3.</td><td>7.</td></tr><tr><td>4.</td><td>8.</td></tr></table>
+
+CABLE SECRETARY DISSEMINATION
+
+☐ INDEX ☐ NO INDEX ☐ RETURN TO ________ BRANCH ☐ FILE RIO
+
+BY __________ PER ____
+
+☐ FILE IN CS FILE NO. ____
+
+CONFIDENTIAL
+
+FILE, YR,
+
+DATE:
+
+(classification)
+
+ Date and time filed
+
+ (old) (new)
+
+ CITE DIRECTOR
+
+TO
+
+GROSS $1,478.40
+
+DEDUCTIONS:
+
+| | |
+|:---|---:|
+| FEGLI | 12.38 |
+| OPTIONAL FEGLI | 8.25 |
+| HOSPITALIZATION | 14.09 |
+| RETIREMENT | 103.49 |
+| INCOME TAX | 191.55 |
+| 1970 TAX ADJUSTMENT | 147.00 |
+
+476.76
+
+$1,001.64
+
+REFUND OF TAX OVER WITHHELD
+PAY PERIOD 11, 12 AND 13
+
+121.50
+
+NET $1,123.14
+
+NOTE: CONTRACT LIFE INSURANCE COVERAGE CEASED 31 DECEMBER. WILL REFUND PREPAID PREMIUMS.
+
+(CONTINUED)
+
+COORDINATING OFFICERS
+
+RELEASING OFFICER
+
+AUTHENTICATING
+OFFICER
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13

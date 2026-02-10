@@ -1,0 +1,69 @@
+# JFK-Files-Part-1_page_31704.png
+
+Convert to MarkdownSECRET
+
+Security Information
+
+1. Alimahmoti, Kasen (Dr.)
+
+2. Andoni, Alfred
+
+3. Andoni, Vaill
+
+4. Bajraktari, Muharem
+
+5. Binaku, Ejup
+
+6. Damani, Selia
+
+7. Delvina, Hignot
+
+8. Dibra, Adem (Dr.)
+
+9. Dilo, Jani
+
+10. Dime, Dilaver
+
+11. Dosti, Hasan
+
+12. Ermenji, Abas
+
+13. Farka, Ibrahim
+
+14. Fratari, Kauf
+
+15. Cogh, Georges
+
+16. Kogi, Atlas
+
+17. Kotta, Nuci
+
+18. Kryeziu, Said
+
+19. Kupi, Abas
+
+20. Maci, Halil
+
+21. Meniku, Halil
+
+22. Mulleti, Hyaini
+
+23. Pali, Zef
+
+24. Ferpoza, Hyeon
+
+25. Posnkopija, Nexhat
+
+26. Rusiditi, Haki
+
+27. Skendi, Stavro
+
+28. Tafilaj, Tani
+
+29. Toptani, Ishan
+
+30. Zernal-Cenay, Asllan
+
+SECRET
+
+Security Information

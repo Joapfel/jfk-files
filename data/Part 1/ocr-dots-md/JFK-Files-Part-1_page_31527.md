@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_31527.png
+
+Convert to Markdown31 December 1953
+
+MEMORANDUM FOR: DEPUTY DIRECTOR (PLANS)
+
+SUBJECT: Gregoire Gafencu
+
+REFERENCE: Memo to DCI dtd 10 Dec '53, same subject
+
+1. Both Whitney Shepardson and Bernie Yarrow were unable to persuade Gafencu to remain in the United States. He left for Paris 12 December 1953.
+
+2. As a result of his own decision, Gafencu was informed it would not be possible for NCFE to continue support of him so long as he stayed in Europe, as it is now a firm NCFE policy not to give stipends to anyone overseas. Payments to Gafencu will, therefore, terminate as of 31 March 1954.
+
+3. All the meetings between Mr. Shepardson and Gafencu were entirely cordial.
+
+THOMAS W. BRADEN
+Chief,
+International Organizations Division
+
+SECRET

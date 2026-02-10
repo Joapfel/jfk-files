@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_31617.png
+
+Convert to MarkdownCONFIDENTIAL
+
+- 2 -
+
+As for the content of the messages carried to Czechoslovakia by this medium, it is understood that they contained information on current developments in Central and Eastern Europe and in addition various statements focusing on the idea of "freedom". There would be no reason for a government to be disturbed about the principle of freedom in a message to its people, if conditions of freedom actually existed in that country. One cannot readily believe that the Czechoslovak Government would even raise this issue with the US Government if the fundamental freedoms were observed in Czechoslovakia and if the Czechoslovak Government were not now especially concerned about the attitude of the people toward the absence of those freedoms.
+
+The US Government cannot agree that the transmission of those messages to the people of Czechoslovakia from the territory of the US Zone of Germany by the Crusade for Freedom Committee involved any misuse of the position of the US as an occupying power. Such communication is clearly not contrary to any quadripartite agreements affecting Germany. Nor does such communication violate any other international agreement to which the US Government is a signatory.
+
+With reference to efforts to strengthen world peace the US, as is generally known, has endeavored in every practicable way to work stop by step, in accordance with the deep interests of the American people in permanent peace and in cooperation with other countries, toward building an enduring structure of international peace and stability. The US seeks to help bring about a relaxation of international tension whenever there are genuine possibilities of doing so. It is recognized at the same time that true international tranquillity presupposes conditions which assure human rights and fundamental freedoms for the people concerned. Ex text/
+Cable soonest intended date delivery so press release may be issued here.

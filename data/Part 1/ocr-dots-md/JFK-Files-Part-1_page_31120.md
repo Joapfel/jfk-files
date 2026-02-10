@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_31120.png
+
+Convert to Markdown14-0000
+
+216 Belkort Avenue
+Providence, Rhode Island
+September 11, 1960-
+
+Central Intelligence Agency
+National Security Council
+2430 E Street 7th
+Washington, D.C.
+
+Dear Sir:
+
+I wish to inquire about openings with the Central Intelligence
+Agency for a man of my qualifications.
+
+I am a graduate of Yale University (A.B., 1947), and have an M.A. degree from Harvard University (1948). In addition, I have completed two years of work toward a degree of Ph.D. at Harvard.
+
+My major studies have been in history, government, and related subjects, with concentration in United States history. Part of my work at Yale was done under the wartime Army Specialized Training Program in Russian area and language studies. The graduate work which I have done has included research and writing in seminars as well as class study.
+
+During World War II, I had approximately two years of administrative and teaching experience with the Information and Education Branch of the Army. After serving as a lecturer, I was sent to the School for Personnel Services, Washington and Lee University, Lexington, Virginia, and was promoted to Administrative Non-Con commissioned Officer in the Information and Education Office, Camp Pickett, Virginia. For one and one-half years in that position, I aided in the development of an education program for all permanent personnel at that camp. I was in direct charge of the program of weekly classes and discussion groups on history and current events. These classes covered such topics as: the progress of the war, the U.S. and its allies, and information about the enemy. My duties included supervising and inspecting classes, training instructors, doing research and preparation of class material, lecturing, planning displays, developing new dissemination media, and doing educational counselling. This work necessitated close cooperation with the Intelligence and Security officers of the camp.
+
+I am twenty-six years of age and unmarried. I am a veteran
+of World War II, but not a member of any reserve.
+
+I should prefer a position involving historical research or some related field, but would be interested in any opportunity that might be available. If there should be an opening for which

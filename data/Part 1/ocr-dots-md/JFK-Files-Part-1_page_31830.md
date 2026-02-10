@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_31830.png
+
+Convert to MarkdownCONFIDENTIAL
+
+27 JUN 1963
+
+MEMORANDUM FOR: Joseph S. Piccolo
+THROUGH : Chairman/CS Panel/Section D
+SUBJECT : Application for Junior Officer Training Program
+
+1. I am pleased to inform you that you have been accepted for the JOTP in the class of January 1964. Let me congratulate you and wish for you the maximum profit and pleasure from your proposed training.
+
+2. You will remain in your present component until shortly before the beginning of the Integrated Training Program. At that time you will be reassigned.
+
+3. Should you have any further questions, do not hesitate to call on Program staff members.
+
+MATTIE HAIED
+Director of Training
+
+cc: Chairman/CS Panel/Sec. D ✓
+
+Distribution:
+
+Orig - Addressee
+1 - DTR
+1 - OPers/Official File
+
+<table><tr><td></td></tr></table>

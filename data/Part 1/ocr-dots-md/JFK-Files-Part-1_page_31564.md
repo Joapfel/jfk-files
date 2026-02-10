@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_31564.png
+
+Convert to MarkdownSECRET
+
+September 14, 1953,
+
+917-1
+
+Dear Mr. Redwood:
+
+A short time ago the question was asked of us whether HCFE would recommend the extension of RFE broadcast to the Baltic states. The question was made the subject of several papers which were prepared for, and circulated to, and thereafter discussed at three meetings of the HCFE policy committee.
+
+Following these discussions, the HCFE position is as follows:
+
+Broadcasts of the RFE type (i.e. the type to Czechoslovakia, Poland, and Hungary), directed at the three Baltic countries, would be plainly advantageous to the United States in terms of HCFE's objectives. There are even stronger arguments for starting such broadcasts at once than there were for starting them two years ago. However, now, as during the 1951 discussions, the problem rises whether such broadcasts... (Voices of Free Estonia, Latvia, and Lithuania) cannot -- without damage to diplomatic usage -- be handled by the Voice of America. The fact that Soviet occupation of the Baltic nations has never been recognized by the Government of the United States would appear to remove the restraints under which the Voice of America must operate where the local government has an American diplomatic mission accredited to it.
+
+If the Voice of America can transmit Voices of Free Estonia, Latvia, and Lithuania, we would not want to compete with them and would consider it preferable that they should do the job with the whole prestige of the non-recognition policy of the United States Government behind them. If we knew for certain that the Voice was not going to handle the task (which would be a different one and in addition to what we believe to be their present transmissions in the Baltic languages) then we would add the Baltic nations to the list of unfinished business to which RFE must direct its attention whenever sufficient resources become available.
+
+However, sufficient resources are far from being available at the present time, and, urgent as are the needs of the Baltic listening audience in the present period of fermentation of freedom throughout the satellite area, our first task must necessarily be to hold the audiences we already have in the face of the electronic war that is being waged against our transmissions by energy jamming. RFE's original budget for 1953-54 was based on an order program to maintain in present gains in the three main targets (Czechoslovakia, Poland and Hungary).

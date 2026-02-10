@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_30535.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA: AIR
+SPECIFY AIR OR SEA POUCH
+
+DISPATCH NO. 23444-867
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO : Chief of Station
+7EU/FB0
+
+FROM : Finance Division
+
+SUBJECT : GENERAL, SPECIFIC.
+
+DATE : 6 December 1949
+
+Administrative
+
+NEWTON S. MILER
+
+1. Our records show an outstanding advance of $778.47 to subject which represents cost of return transportation from headquarters to Japan. This item will be cleared at such time as subject's travel account, for the return trip, is received and processed.
+
+2. Please have subject forward this plate document in order to clear this account.
+
+CHM.DMH
+
+POD
+
+RELEASEING OFFICER
+ADMIN.
+
+COOPERATING OFFICER
+
+AUTOMATICATING OFFICER
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>

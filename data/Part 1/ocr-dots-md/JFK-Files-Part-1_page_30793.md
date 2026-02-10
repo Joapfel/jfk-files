@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_30793.png
+
+Convert to MarkdownSECRET
+
+SECRET
+
+14-0000
+
+<table><tbody><tr><td colspan="3">SECTION III CONTINUED FROM PAGE 1</td></tr><tr><td>21. DATES OF MILITARY SERVICE OR SERVICE ENDED (if any): NA</td><td colspan="2"></td></tr><tr><td>22. BRANCH OF SERVICE: N/A</td><td>23. COUNTRY IN WHICH MILITARY SERVICE AFFILIATED: NA</td><td></td></tr><tr><td>24. DETAILS OF OTHER GOVERNMENTAL SERVICE, U.S., OR FOREIGN: See 19 above.</td><td colspan="2"></td></tr><tr><td colspan="3"><strong>SECTION IV RELATIVES BY BLOOD, MARRIAGE OR ADOPTION LIVING ABROAD OR WHO ARE NOT U.S. CITIZENS</strong></td></tr><tr><td>1. FULL NAME (Last-First-Middle):</td><td>2. RELATIONSHIP:</td><td>3. AGE:</td></tr><tr><td colspan="3">4. ADDRESS OR COUNTRY IN WHICH RELATIVE RESIDES</td></tr><tr><td>5. CITIZENSHIP (Country):</td><td>6. FREQUENCY OF CONTACT:</td><td>7. DATE OF LAST CONTACT:</td></tr><tr><td>1. FULL NAME (Last-First-Middle):</td><td>2. RELATIONSHIP:</td><td>3. AGE:</td></tr><tr><td colspan="3">4. ADDRESS OR COUNTRY IN WHICH RELATIVE RESIDES</td></tr><tr><td>5. CITIZENSHIP (Country):</td><td>6. FREQUENCY OF CONTACT:</td><td>7. DATE OF LAST CONTACT:</td></tr><tr><td>1. FULL NAME (Last-First-Middle):</td><td>2. RELATIONSHIP:</td><td>3. AGE:</td></tr><tr><td colspan="3">4. ADDRESS OR COUNTRY IN WHICH RELATIVE RESIDES</td></tr><tr><td>5. CITIZENSHIP (Country):</td><td>6. FREQUENCY OF CONTACT:</td><td>7. DATE OF LAST CONTACT:</td></tr><tr><td colspan="3">5. SPECIAL REMARKS, IF ANY, REGARDING THESE RELATIVES:</td></tr><tr><td colspan="3"><strong>SECTION V FINANCIAL STATUS</strong></td></tr><tr><td colspan="3">1. ARE YOU ENTIRELY DEPENDENT ON YOUR SALARY? [x] Yes [ ] No</td></tr><tr><td colspan="3">2. DO YOU HAVE ANY FINANCIAL INTEREST IN, OR OFFICIAL CONNECTION WITH, NON-U.S.-CORPORATIONS, BUSINESSES, OR INDIVIDUALS HAVING SUBSTANTIAL FOREIGN INTEREST? [ ] Yes [X] NO IF YOU HAVE ANSWERED "YES," GIVE COMPLETE DETAILS ON A SEPARATE SHEET AND ATTACH TO A SEALED ENVELOPE.</td></tr><tr><td colspan="3">3. DO YOU RECEIVE AN ANNUITY FROM THE UNITED STATES OR DISTRICT OF COLUMBIA GOVERNMENT UNDER ANY RETIREMENT ACT, PENSION, OR COMPENSATION FOR MILITARY OR MILITARY SERVICE? [ ] Yes [X] No</td></tr><tr><td colspan="3">4. IF YOU HAVE ANSWERED "YES" TO QUESTION 3 ABOVE, GIVE COMPLETE DETAILS.</td></tr><tr><td colspan="3">5. WITHOUT REFERENCE TO YOUR SALARY, STATE OTHER SOURCES OF RECEIPT, IF ANY, NOT INDICATED BY PRICING ITEMS.</td></tr><tr><td colspan="3">SECTION V CONTINUED TO PAGE 3</td></tr><tr><td colspan="3">SECRET<br/>2</td></tr></tbody></table>
+
+SECRET
+
+2

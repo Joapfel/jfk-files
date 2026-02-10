@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_30560.png
+
+Convert to MarkdownSECRET
+
+AIR
+
+Chief of Mission
+Shanghai, China
+Attn: Earl R. Wales
+Special Funds
+
+Administrative
+Promotions
+
+18 March 1948
+
+1. Effective with the pay period beginning 7 March 1948 the following personnel received promotions to CAP-7 at $3397.20 per annum. The following is a breakdown of their salaries:
+
+| Name | Gross | Tax | Net, | Paid Abroad | Net to P. A. |
+| :--- | ---: | ---: | ---: | ---: | ---: |
+| Miller, Newton S. | $261.32 | $38.00 | $13.08 | $ 75.00 | $135.24 |
+| Closson, John M. | $261.32 | $38.00 | $13.08 | $100.00 | $110.24 |
+| Sinoek, William A. | $261.32 | $38.00 | $13.08 | $110.24 | $100.00 |
+| Modis, Joseph J. | $261.32 | $38.00 | $13.08 | $ 75.00 | $135.24 |
+
+2. Forwarded for your information and action.
+
+GLENN A. MALLORY
+
+James Drum
+
+(AXIN)
+
+W. Lloyd George
+
+CM:RR
+RJ-T

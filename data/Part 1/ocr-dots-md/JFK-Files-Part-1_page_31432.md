@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_31432.png
+
+Convert to MarkdownSECRET
+SECURITY INFORMATION
+
+13 October 1952
+
+MEMORANDUM FOR: CHIEF, IO
+
+FROM : Chief, ROM/OIS
+
+SUBJECT : Exchange of Intelligence Information between the NCFB and the DD/P Offices
+
+1. The National Committee for a Free Europe is the reservoir of a great wealth of intelligence information, particularly in the field of psychological warfare. A four-day survey of the NCFB conducted by an OIS case officer indicated that three NCFB components - the Research and Publications Service, the Mid-European Studios Center, and the Radio Free Europe - can make a very valuable contribution to the operational intelligence required by the DD/P offices.
+
+2. It is the purpose of this memorandum to suggest a procedure for the most effective use of the NCFB intelligence potential. The most practical approach seems to be as follows:
+
+a. At this time it does not appear necessary to establish a continuous flow of raw and finished intelligence from the NCFB to the DD/P offices. Rather, we would like to use NCFB facilities whenever individual cases indicate that such action is advisable.
+
+b. We would like to maintain a direct relationship with the NCFB for the purpose of enlisting its support in the work on our individual cases. When the nature of the case indicates that the NCFB can make a valuable contribution to it, we could make arrangements through the Chief of IO/TOMIC, to make direct contact with one of the security-cleared NCFB officers. A permanently-designated OIS case officer (A. Snatton and/or H. Knoepfmacher) would then proceed to New York to discuss the substantive research problems in the NCFB and reach an agreement on the scope of NCFB support.
+
+3. It is recognised that the final authority on all contacts with the NCFB rests with the Chief of IO/TOMIC, and that the latter may direct and limit such contacts whenever he desires.

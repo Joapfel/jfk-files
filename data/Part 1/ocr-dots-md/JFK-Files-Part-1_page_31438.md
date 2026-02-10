@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_31438.png
+
+Convert to Markdownh. It is therefore recommended that the sum of $60,000 be released to HCFE to enable them to continue payments as already agreed. If the support for the ICFU in Exile should be terminated, funds remaining in HCFE's hands can be applied to other proposed activities now held for justification by CIA.
+
+GERALD F. MILLER
+Chief
+Political and Psychological Warfare
+
+Attachments
+
+Reference memo with
+attachments.
+
+IO/TONI C:WPD:jp/oh
+(24, Sept 52)
+
+**Distribution**
+
+*   **Orig. & 1 - Addressee**
+*   **IO/TONIC - 2 cc**
+*   **CIO - 1 cc**
+*   **RI - 1 cc**
+
+SECRET

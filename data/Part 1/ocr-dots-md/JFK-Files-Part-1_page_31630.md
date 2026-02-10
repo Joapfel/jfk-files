@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_31630.png
+
+Convert to MarkdownSECRET
+SECURITY INFORMATION
+
+15 July 1963
+
+MEMORANDUM FOR: DIRECTOR, CENTRAL INTELLIGENCE AGENCY
+
+SUBJECT: Purge of Boria
+
+Attached herewith is a guidance received by
+RFE on the purge of Boria.
+
+CORD HENDER, JR.
+Cord Hender, Jr.
+Deputy Chief,
+International Organizations Division
+
+Attachment
+
+SECRET

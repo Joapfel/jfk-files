@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_30635.png
+
+Convert to Markdown10 : october 1955
+
+MEMORANDUM FOR: CHIEF, FINANCE DIVISION
+ATTENTION : Payroll Section
+SUBJECT : Changes in Allotment Account Designation - Personal Services of L.R. '78, "TIN S."
+
+1. FI Division requests that cost of personal services for subject employee be changed effective with the next pay period, as follows:
+
+FROM ALLOTMENT : C-3715-55-100
+
+TO ALLOTMENT : C-3715-55-167
+
+2. When this change is accomplished, it is requested that one copy of this correspondence be returned to the Far East Division Budget Officer, with the notation that this action is authorized.
+
+C. J. NORRIS III
+Budget Officer
+Far East Division
+
+COPY JR

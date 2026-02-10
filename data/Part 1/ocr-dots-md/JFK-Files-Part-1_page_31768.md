@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_31768.png
+
+Convert to Markdown# CRUSADE FOR FREEDOM
+## 1950 CAMPAIGN
+
+1. The Crusade was launched by General Dwight D. Eisenhower on a nation wide broadcast.
+
+2. The symbol of the Crusade, a ten ton World Freedom Bell, inscribed with a quotation from Lincoln, "This World under God shall have a new birth of freedom", toured the United States from coast to coast. The "Freedom Bell" was sent to Berlin to become part of a "Freedom Shrine", and tolled there over an international radio hookup.
+
+3. Freedom Scrolls signed by 15,000,000 contributors were taken to Berlin to become a permanent part of the Freedom Shrine.
+
+4. In the United States, local committees were established throughout the country. General Licius Clay was appointed chairman of the Fund raising campaign of the Crusade for Freedom. Mr. Abbott Washburn, Chief, Public Relations for General Foods Corp. was appointed as the director. Assisting companies were: Fund raising - John Price Co., Inc. - Advertising - Hewitt, Ogilvy, Benson & Mather Inc. Small mass contributions were solicited. Contributions from large individual donors were solicited later, in order to afford the fund raising campaign a broader continuity. Literature (samples attached) of all kinds, explaining Radio Free Europe were distributed.
+
+5. Financial results were as follows:
+
+Expenses; £917,000.00
+
+Contributions; $1,317,000.00
+
+## 1951 CAMPAIGN
+
+The 1951 Crusade Campaign was begun by the launching of balloons into Czechoslovakia and Poland containing pamphlets of encouragement to the people of these countries. Copies of the message and samples of the balloons were used to solicit contributions in the United States. Publicity dealt largely with Radio Free Europe. Free magazine advertising was widely used for the first time. A coast to coast telethon was used.
+
+Inadvertently, through mistakes of the staff and the failure to adequately brief community leaders, the Crusade mistakenly implied that the Voice of America was ineffective — that only Radio Free Europe, the privately supported radio broadcasting station, could do an effective job.

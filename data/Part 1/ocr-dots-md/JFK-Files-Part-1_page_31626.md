@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_31626.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+15 July 1953
+
+MEMORANDUM FOR: DIRECTOR, CENTRAL INTELLIGENCE AGENCY
+SUBJECT: Purge of Beria
+
+Attached herewith is a guidance received by
+RFE on the purge of Beria.
+
+Attachment,
+
+SECRET

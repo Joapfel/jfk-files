@@ -1,0 +1,65 @@
+# JFK-Files-Part-1_page_30882.png
+
+Convert to Markdown14-00000
+
+MESSAGE FORM
+TOTAL COPIES: 17
+
+<table><tr><td colspan="2">ROUTING AND/OR INITIALS - STEN BY</td></tr><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table>
+
+<table><tr><td>W/S Reneman</td></tr><tr><td>UNIT</td><td>WH/Contracts</td></tr><tr><td>DATE:</td><td>13 Novem</td></tr><tr><td>CATE.</td><td>er 1970</td></tr></table>
+
+SECRET
+
+| | | (olite) | (pica) |
+|---|---|---|---|
+| CABLE SECRETARIAT DISSEMINATION | | | |
+| BY | [X] PER | | |
+
+FILE IN CS FILE NO.
+
+FILE, VR.
+
+| (classification) | (date and time filed) | | (reference number) | |
+
+SECRET
+
+13 NOV 70 23 22]
+
+CITE DIRECTOR
+
+036503
+
+TO MEXICO CITY
+ADMIN CONTRACTS
+
+REF: FN 20-99
+
+16 NOV 1970
+
+1. HQS PROPOSES FOLLOWING EMPLOYMENT SUMMARY FOR JEREMY K. BENADUM. PLEASE ADVISE COMMENTS/CONCURRENCE.
+   A. ACTUAL EMPLOYERS TO DATE OF JKLANCE CONTRACT,
+   B. FOR PERIOD JKLANCE EMPLOYMENT 1 NOVEMBER 1960 THROUGH 31 DECEMBER 1970 RETIRED U.S. GOVERNMENT EMPLOYEE EMPLOYED BY FAMILY BUSINESS (NAME AND ADDRESS).
+
+2. ABOVE WILL PERMIT PAYMENT OF ANNUITY BY GOVERNMENT CHECK WHICH WILL SEND CURRENTLY DESIGNATED ALLOTTEE UNLESS OTHERWISE ADVISED.
+
+END OF MESSAGE
+
+COORD: C/WH/1
+WH/FU/NOC
+CCS/DF
+CG/CTS
+(SUBSEQUENT)
+
+WILLIAM V. BROE
+C/WHD
+GENERAL OFFICE
+
+W. S. RENEHAN
+C.W.H. CONTRACTS
+
+SECRET
+
+<table><tr><td></td><td></td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUED COPY IS PROHIBITED. COPY No. 1

@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_31443.png
+
+Convert to MarkdownSECRET
+
+c. They submit that there are some problems with the proposals, but they consider the arguments additional to other audience than ours (other than central and eastern Europe).
+
+"On the other hand, when these papers deal with our targets, they sometimes reveal a share of ignorance from our thinking, and our points of view. Where this is OK as far as the rest, but then there's a lot of detail missing, especially in areas where we seal it in white. The difference can be legitimate. But even so, we find proposals that seem to us illogical, and now and then extremely unwise."
+
+d. The President of the organisation wrote:
+
+"You enclosed a paper giving additional guidance material for propaganda countering Communist BW charges. All the lines therein suggested have been successively used by us since February 25 or therabouts when the topic first arose.
+
+"Papers of this kind are of great use, provided they arrive promptly. By promptly is meant, either in anticipation of an event, or an expression of views on the day the event occurs."
+
+e. The Deputy Director, Radio, wrote:
+
+"With regard to the paper (Prop-103, dated 23 March 1952) that you enclosed, I checked Bob's department and they advise that from the beginning we have made the points specified in 6(a)3 and 5, 6(b)2, 9(a)1 and 2, 9(d), 9(e), 10.
+
+"As a matter of information, to our particular audiences we may, instead of 6(b)1, that the Soviet Union is trying to persuade the leaders of German heavy industry, militarists, and ex-Nazis to go into partnership with it; and instead of 6(c) that the prohibition of alliances is fraudulent, Moscow intending, as in August 1939, to ally itself with a reactionary Germany against our peoples. Again to our audiences, we say instead of 9(a)2 that the German problem can be solved, and that the Western powers are attempting to solve it in the interest of the security of our audiences. We are glad to see that our line parallels that laid down in 9(d) and (e)."
+
+f. A fair summary of the use of PY guidance papers for RFE is as follows:
+
+SECRET

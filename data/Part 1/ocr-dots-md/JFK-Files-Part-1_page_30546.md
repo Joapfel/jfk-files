@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_30546.png
+
+Convert to Markdown14-00000
+
+EXTERIOR SURVEY DUTY ORDER
+U. S. NAVY, SHANGHAI, CHINA
+
+370.5 (44)
+
+TO : IN respect of our better, American civilian employee.
+
+19 June 1948
+
+SUBJECT: Invitational Travel Orders (TDY)
+
+TO : US MARINE CORPORATION, American Civilian Employee.
+
+1. Per authority Classified Radio 7673, 5 June 1948, NASH DC, the above named civil servant is at risk and invited to proceed from station Shanghai China to station Washington DC for TOY of approximately ninety (90) days in connection with EID training and reorientation. Upon completion of TOY, this civilian servant is further at risk and invited to return to station Shanghai China.
+
+2. Travel will commence o/a 12 June 1948. Movement will be via commercial air and all charges incident to travel will be paid in advance at this station. Movement will be performed in accordance with Standardized Government Travel Regulations and/or applicable statutes. 217/85900 Working Fund, General 1947/8.
+
+3. Procession to include immunizations will be completed prior to departure.
+
+4. Temporary address which may be used while on TOY in P. O. Box 1925, Washington DC.
+
+5. Travel Order authority: Radio 1668, COLNAV.CSPAC, 2 January 1947.
+
+EDINBURGH
+1ST LT., D.F.
+Adjutant
+
+By direction . . .
+
+DISTRIBUTION: B

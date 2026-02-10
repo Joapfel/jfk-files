@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_30565.png
+
+Convert to MarkdownChief of Station, Shanghai
+
+26 November 1947
+
+Executive
+
+Administrative
+
+Newton &. Miller
+
+1. Please provide, as soon as possible, three (3) current Personal History Statements (forms attached) on above subject, attached to each set of forms in an instruction manual which should be addressed to.
+
+2. These forms should be filled within two weeks of receipt of this request.
+
+3. These are required by this office in order to bring all personal records up to date.
+
+4. You may receive additional requests on other persons' files from time to time.
+
+E. H. Terrell
+
+Attachment • Personal History Statements
+(3 copies)
+
+James H. Drum
+
+R. H. T. J.R. Coffey
+S. Lloyd George

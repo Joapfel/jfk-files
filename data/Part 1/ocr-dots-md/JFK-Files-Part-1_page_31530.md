@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_31530.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td>Foreign Registry</td></tr><tr><td>5-0728</td></tr></table>
+
+30 December 1953
+
+<table><tr><td>Note by FEL</td></tr><tr><td>"June 64</td></tr></table>
+
+MEMORANDUM FOR: Director of Central Intelligence
+
+SUBJECT: Report that Sensitive Files covering Enigra Activities may have been made Available to Senator McCarthy
+
+1. The following report was made available to us by Eugene Lyons, former President of the American Committee, who still actively participates in Committee activities as a policy advisor. Mr. Lyons is a member of the Board of Directors of the American Friends for Russian Freedom, and he obtained this report from an unnamed source in the American Friends' organization.
+
+2. A man named Verbitsky (Fau), living in Munich, has somehow managed to obtain the personal files of Georgi Mueller, the NTS safe-house keeper who was arrested as a Soviet agent last fall. These files contain, among other things, a number of letters to Mueller from Gregori Klimov, an influential enigre who is head of the enigre group known as the League of Host War Defectors. These letters involve Klimov in Mueller's activities, and implicate many other enigres. Verbitsky attempted to turn these documents over to unnamed authorities in the field; when he was ignored by these authorities, he mailed the entire parcel to Senator Joseph McCarthy.
+
+3. The American Committee naturally considers that this correspondence, which, if it exists, no doubt contains a great deal of that unfounded denunciation and allegation which is so typical of enigre expression, may involve the American Committee as well as other matters of particular concern to the Agency.
+
+4. The Chief, SR Division, has been made aware of this report.
+
+Chief/IO
+
+SECRET
+
+14-00000

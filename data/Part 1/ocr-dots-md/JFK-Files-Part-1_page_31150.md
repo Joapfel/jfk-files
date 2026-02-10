@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_31150.png
+
+Convert to MarkdownSECRET
+(When filled In)
+
+<table><thead><tr><th colspan="12">NOTIFICATION OF PERSONNEL ACTION</th></tr></thead><tbody><tr><td>MCM</td><td>17 APRIL 59</td><td>X</td><td>XM</td><td></td><td rowspan="2">3. Date Of Birth<br/>Mo.</td><td rowspan="2">Da.</td><td rowspan="2">Yr.</td><td rowspan="2"></td><td rowspan="2">4. Vt., Prof.<br/>Non-0<br/>5 Pt.-1<br/>10 Pt.-9</td><td rowspan="2">Cdo<br/>1</td><td rowspan="2">M</td><td rowspan="2">1</td><td rowspan="2">5</td></tr><tr><td colspan="12">1. Serial No.</td><td>WIGREN LEE H</td><td>106198</td></tr><tr><td rowspan="2">7. SCD<br/>Mo.</td><td rowspan="2">Da.</td><td rowspan="2">Yr.</td><td rowspan="2">8. CSC Retmt.<br/>Yes. 1<br/>No. - 9</td><td rowspan="2">9. CSC Or Other Legal Authority<br/>Code<br/>1</td><td rowspan="2">10. App't. Affidav.<br/>Yes. 1<br/>No.-9</td><td rowspan="2">Cdo<br/></td><td rowspan="2">Mo.</td><td rowspan="2">Da.</td><td rowspan="2">Yr.</td><td rowspan="2"></td><td rowspan="2">11. TEGI<br/>Code<br/></td><td rowspan="2">12. LCD<br/>Mo.</td><td rowspan="2">Da.</td><td rowspan="2">Yr.</td><td rowspan="2"></td></tr><tr><td></td><td></td><td></td></tr><tr><td>13. Min. sery. Group, Ten<br/>Mo.</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+## PREVIOUS ASSIGNMENT
+
+<table><tr><td colspan="3">14. Organizational Designations<br/>DDP FI STAFF<br/>DIV D<br/>COUNTER ESPIONAGE SECT.<br/>BIOGRAPHIC UNIT</td><td>Code</td><td colspan="3">15. Location Of Official Station</td><td>Station Code</td></tr><tr><td colspan="3"></td><td>4109</td><td colspan="3">WASHINGTON, D. C.</td><td>75013</td></tr><tr><td colspan="2">16. Dept. Field<br/>Dept. - 2<br/>USId - 4<br/>Frgn - 6</td><td>Code<br/>2</td><td colspan="2">17. Position Title<br/>BIOGRAPHIC OFF</td><td>Position No.</td><td>18. Serv.<br/>GS</td><td colspan="2">20. Occup. Series<br/>0132.31</td></tr><tr><td>21. Grade & Step</td><td></td><td></td><td>22. Salary Or Rate</td><td>23. SD</td><td>24. Date Of Grade<br/>Mo.</td><td>25. PSI Due<br/>Mo.</td><td>26. Appropriation Number</td><td></td></tr><tr><td>12 1</td><td></td><td></td><td>$ 8330</td><td>D1</td><td>04 | 20 | 58</td><td>10 | 18 | 59</td><td>6 2305 23</td><td></td></tr></table>
+
+ACTION
+
+<table><tr><td>27. Nature Of Action</td><td>Code</td><td colspan="2">28. If. Data</td><td colspan="2">29. Type Of Employee</td><td>Code</td><td

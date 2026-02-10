@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_31342.png
+
+Convert to MarkdownFOR INVOICE
+
+Robert Wignen
+1207-849-6348
+Buckton, Maine
+
+ADDITIONAL LEARNINGS FOR THE NEW YORK CITY PUBLIC SCHOOLS
+
+1. Army Specialized Training Program, Russian area & language course (Yale University, July 1943 - April 1944)
+
+After completing basic training in June 1943, I was sent to the examination center at Georgetown University to be tested for entrance into the Army Specialized Training Program.
+
+On the basis of a language aptitude test, I was sent to Yale to take the A.A.T.P. course in Political Science and language studies. This was a nine-month course running from July 1943 through March 1944. I completed the course with grades of "dean's list" rating, and received a certificate of completion of the course.
+
+The program of study included courses in Russian history, geography, literature, and culture; modern European history; and Far Eastern history. Special lecturers from the Commerce Department, Legal Aid, and other agencies spoke to our classes occasionally.
+
+Much attention was devoted to study of the Russian language. Classroom work, consisting of grammar, practice reading, and conversation occupied seventeen hours of our schedule each week. This was equivalent to about three years of normal language work.
+
+2. School for Personnel Services, Course for Information & Education Enlisted Assistants (Washington & Lee U., Lexington, Va. Oct-Nov 1945)
+
+In order to be better prepared for work as Post Information and Education Non-Conmissioned Officer at Camp Pickett, Virginia, I was sent to take the one-month course for Info & Education Enlisted Specialists, October and November 1944.
+
+This course was prepared by the War Department, and conducted by military personnel. It presented material to be used in the preparation of Info & Education programmes in camps, it suggested methods of presentation, and it provided practical experience in assessing and dealing with "orientation program" problems.
+
+Some of the topics covered in lectures and discussions were:
+
+<table><tr><td>Ideas as Weapons</td><td>Know the Enemy</td></tr><tr><td>Group Leadership Principles</td><td>Know our Allies</td></tr><tr><td>Morale Factors</td><td>Know the U.S.A.</td></tr><tr><td>Global Warfare</td><td>Teaching Methods</td></tr></table>
+
+In addition, movies and visual aids were demonstrated.
+
+Upon completion of this course (with a grade of Excellent), I received a certificate, and a Military Occupational Specialty Classification of: _LCS 8274_ (Information and Education Enlisted Specialist).

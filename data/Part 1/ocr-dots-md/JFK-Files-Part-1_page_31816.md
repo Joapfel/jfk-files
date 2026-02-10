@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_31816.png
+
+Convert to MarkdownEYES ONLY
+
+SECRET
+
+16 JUL 1972
+
+MEMORANDUM FOR: Secretary, CS/CS Panel (Section B)
+
+SUBJECT : Recommendation for Promotion to Grade
+GS-12--Mr. Joseph S. Piccolo
+
+1. It is recommended that Mr. Joseph S. Piccolo be promoted to the grade of GS-12. Mr. Piccolo has been in grade as a GS-11 since September 1966 and is presently serving as an operations officer at Managua, Nicaragua.
+
+2. Mr. Piccolo is a promising young officer who first entered the Agency in 1957 as a clerk in Agency Records section (RI). He also did a tour in the Records Section of the Mexico City Station. After a short separation for military service, Mr. Piccolo returned to the Agency and later was appointed to the Junior Officer Training Program. Since his completion of that program he has served in Headquarters and Mexico City as an operations officer prior to his assignment to Managua in March of 1968.
+
+3. Mr. Piccolo has consistently received high ratings from his superiors in the field and at Headquarters. He is an active operations officer with a special flair for agent handling. He has a good command of the Spanish language, is a dedicated employee of the Agency and has a great deal of growth potential. Since going to Managua he has been in charge of the Managua Station during the homo leave absence of the Chief of Station for a period of almost two months, during which time the Station continued its high level of performance. While this was his first period of his career where he had supervisory responsibility, he did show himself to have ability in this area and is a further indication of his growth potential.
+
+William V. Broe
+Chief
+Western Hemisphere Division
+
+THIS DOCUMENT WILL BE SEALED AND BECOME A PART OF THE ORIGINAL WRITTEN RECORD. DO NOT WRITE ON THIS COPY. IF YOU ARE ABLE TO READ IT, WRITE ON THE COPY IN FRONT OF THIS ONE. DO NOT DELETE THIS COPY. IF YOU ARE ABLE TO SEE THE ORIGINAL WRITTEN RECORD, USE IT AS WELL AS THIS COPY. IF YOU ARE ABLE TO SEE THE ORIGINAL WRITTEN RECORD AND IT IS NOT PRESENT, WRITE ON THIS COPY AS IF YOU WERE ABLE TO SEE THE ORIGINAL WRITTEN RECORD. WHEN YOU HAVE FINISHED USING THE ORIGINAL WRITTEN RECORD, USE THE COPY IN FRONT OF THIS ONE AS WELL AS THIS COPY. IF YOU ARE ABLE TO SEE THE ORIGINAL WRITTEN RECORD AND IT IS NOT PRESENT, WRITE ON THIS COPY AS IF YOU WERE ABLE TO SEE THE ORIGINAL WRITTEN RECORD. IF YOU DO NOT SEE THE ORIGINAL WRITTEN RECORD DUE TO ANY REASON, WRITE ON THIS COPY AS IF YOU WERE ABLE TO SEE THE ORIGINAL WRITTEN RECORD. WHEN YOU HAVE FINISHED USING THE ORIGINAL WRITTEN RECORD, USE THE COPY IN FRONT OF THIS ONE AS WELL AS THIS COPY. IF YOU ARE ABLE TO SEE THE ORIGINAL WRITTEN RECORD AND IT IS NOT PRESENT, WRITE ON THIS COPY AS IF YOU WERE ABLE TO SEE THE ORIGINAL WRITTEN RECORD. IF YOU DO NOT SEE THE ORIGINAL WRITTEN RECORD DUE TO ANY REASON, WRITE ON THIS COPY AS IF YOU WERE ABLE TO SEE THE ORIGINAL WRITTEN RECORD. IF YOU DO NOT SEE THE ORIGINAL WRITTEN RECORD DUE TO ANY REASON, WRITE ON THIS COPY AS IF YOU WERE ABLE TO SEE THE ORIGINAL WRITTEN RECORD. WHEN YOU HAVE FINISHED USING THE ORIGINAL WRITTEN RECORD, USE THE COPY IN FRONT OF THIS ONE AS WELL AS THIS COPY. IF YOU ARE ABLE TO SEE THE ORIGINAL WRITTEN RECORD AND IT IS NOT PRESENT, WRITE ON THIS COPY AS IF YOU WERE ABLE TO SEE THE ORIGINAL WRITTEN RECORD. IF YOU DO NOT SEE THE ORIGINAL WRITTEN RECORD DUE TO ANY REASON, WRITE ON THIS COPY AS IF YOU WERE ABLE TO SEE THE ORIGINAL WRITTEN RECORD. WHEN YOU HAVE FINISHED USING THE ORIGINAL WRITTEN RECORD, USE THE COPY IN FRONT OF THIS ONE AS WELL AS THIS COPY. IF YOU ARE ABLE TO SEE THE ORIGINAL WRITTEN RECORD AND IT IS NOT PRESENT, WRITE ON THIS COPY AS IF YOU WERE ABLE TO SEE THE ORIGINAL WRITTEN RECORD. IF YOU DO NOT SEE THE ORIGINAL WRITTEN RECORD DUE TO ANY REASON, WRITE ON THIS COPY AS IF YOU WERE ABLE TO SEE THE ORIGINAL WRITTEN RECORD. WHEN YOU HAVE FINISHED USING THE ORIGINAL WRITTEN RECORD, USE THE COPY IN FRONT OF THIS ONE AS WELL AS THIS COPY. IF YOU ARE ABLE TO SEE THE ORIGINAL WRITTEN RECORD AND IT IS NOT PRESENT, WRITE ON THIS COPY AS IF YOU WERE ABLE TO SEE THE ORIGINAL WRITTEN RECORD. IF YOU DO NOT SEE THE ORIGINAL WRITTEN RECORD

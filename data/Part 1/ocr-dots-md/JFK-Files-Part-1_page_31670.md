@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_31670.png
+
+lean to occupy his present quarters until the termination of the lease on the entire property instead of requiring him to vacate the quarters this summer; the elimination for the time being of a proposed small apartment building to accommodate visiting professors and officials; post-payment of certain landscaping expenses and the elimination of a proposed enlargement of the dining hall now felt to be unnecessary since a limit of 200 has been fixed for next year's enrollment.
+
+In order to complete new construction by Oct. 1, 1953, work should start not later than March 15, 1953, and in view of the time necessary for the preparation of working plans, opening of bids, and signature of contracts, it is of the greatest importance that the necessary funds be made promptly available."
+
+2. The difference between the total of $135,000 and the $150,000 asked for is a 10% margin allowance for price increases.
+
+3. We recommend, for release from the G&A held reserve by the F/P and the 10/A, all items except (a) and the 10% margin allowance, a total of ~~31,600~~ 31,400.
+
+IO/Branch: LMPD/jb
+Distribution:
+Address - orig & 1 (DP/P)
+1 cc (DC/A)
+
+CONFERENCE: 1 cc Comp.
+
+(Signature of President) 1 cc CIO
+
+1 cc IO/Dr. 1✓
+
+N. uptrk ottnvstEl(Pens)
+
+Sec.: J. BAKER
+Chief
+International Organizations Division
+
+~~I.D. AMB. R. HAGGINS~~
+Controller
+
+15/22AP WRW
+Security/Information
+_______________________
+President/ Director (Administration)
+
+14-00000

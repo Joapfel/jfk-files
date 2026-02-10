@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_30777.png
+
+Convert to MarkdownSECRET
+
+HEADQUARTERS
+FIELD RESEARCH UNIT - FAR EAST COMMAND
+YOKOSUKA, JAPAN
+
+CERTIFICATE
+
+(Echo)
+
+I CERTIFY that I have been briefed by the Security Officer, Field Research Unit, Far East Command, prior to my departure from this station to the U.S. or a sub-station, as to all regulations on the transmission and possession of all classified and personal material.
+
+I FURTHER CERTIFY that I am not taking any U.S. Government equipment in excess to what I am authorized. All equipment and supplies that I have been issued in excess has been turned in to the Supply Section of this Headquarters.
+
+(Signature)
+
+(Grade, Rank, ASH)
+
+(Security Officer)
+
+NOTE:
+
+To be completed in duplicate: Original to Personnel Office, duplicate retained by Security Office.
+
+SECRET

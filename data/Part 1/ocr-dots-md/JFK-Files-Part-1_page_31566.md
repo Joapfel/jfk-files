@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_31566.png
+
+Convert to MarkdownPage 3
+Mr. H:dvood
+717-1
+
+(1) Additional signal strength to Czechoslovakia, Poland and Hungary,
+
+(11) additional signal strengths and programs to Bulgaria and Romania, preferably from a new transmitter installation, end
+
+Unless an adequate sum of money for one or all of these operations is in sight, -
+
+NCFE does not recommend the extension of PFE to der Sting to the three Baltic states.
+
+SECURITY INTEG...

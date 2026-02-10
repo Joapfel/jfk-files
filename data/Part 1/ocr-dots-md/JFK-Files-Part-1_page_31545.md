@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_31545.png
+
+Convert to MarkdownLaw offices of
+J. ANTHONY FARGUE
+(6) East 42nd Street
+New York 17, N.Y.
+
+November 2, 1953
+
+HON. FRANK WISNER
+Central Intelligence Agency
+Washington, D. C.
+
+Confidential
+
+Dear Prank:
+
+Re: Romanian National Council
+
+This is to bring you up to date on the aftermath of our conference of June 17th with respect to the above. On my return to New York I took the following steps:
+
+1. Personally submitted the settlement formula to Mica Georgescu for mediation with Visoiunu and Crotiazianu, and to Larry Bellemsville for the information of the NOFE. Mica, in my opinion unwisely, took the position that the formula was not negotiable.
+
+2. Directed the League to transmit the formula to King Michael for his information and action and, pending final acceptance or rejection to "in principle" visavis Crotiazianu, Visoiunu et al. This was done.
+
+3. Summonsed Malaxa and the officials of the League to (a) inform them of the false charges made to the White House by Malaxa against you in 1951 and to demand their formal retraction; and (b) insist that Malaxa immediately make good on his commitment to General Radescu that he set up an independent "no strings attached" budget for the League -- an undertaking, then six months in default. Malaxa agrees to comply with both demands and asked for time to the beginning of September when he hoped he would be released from the strain and mental anguish incident to his chronic immigration proceeding. Malaxa defaulted on both promises.
+
+4. I issued an ultimatum to the leaders of the League to the effect that irrespective of my friendship with General Radescu, unless they disassociated themselves completely from Malaxa and any semblance of his influence -- direct or indirect -- I would resign as the League counsel. This severance of their relationship with Malaxa has been accomplished after a stormy showdown session between Paresanu and Niculescu and Malaya.

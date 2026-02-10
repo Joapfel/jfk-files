@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_31786.png
+
+Convert to MarkdownCONFIDENTIAL
+
+23 February 1978
+
+MEMORANDUM FOR: Director of Personnel
+
+FROM : Wesley L. Laybourne
+A/Chairman, DO Personnel Evaluation Boards
+
+VIA : Chief, Career Management Staff
+
+SUBJECT : Recommendation for Quality Step Increase for Joseph S. Piccolo (CI)
+
+1. Mr. Piccolo joined the Agency in 1957 and since then has served 12 years as a field-case officer in Mexico, Nicaragua and Brazil as well as tours at Headquarters in LA Division and currently on the CI Staff. He was promoted to GS-13 on 4 February 1973.
+
+2. Mr. Piccolo has performed in a strong to outstanding manner during the past year as described in his fitness report covering the period October 1976 to September 1977. He was engaged during this period in a number of CI projects, including: "a sensitive, multi-level project which has resulted in a neutralization of some Soviet espionage activity abroad," he also was called upon to support CI activities requiring extensive travel abroad in support of joint Agency and FBI objectives and "he executed these assignments with a singular degree of professionalism." He recently also organized and ran in Spanish a CI course for foreign liaison and the Station involved described the effort as an outstanding contribution." During the previous fitness report period he participated in two CI surveys in Africa and Latin America and because of this experience he was recently named to head another CI survey to take place in Latin America in the future.
+
+3. This is the view of the Fiscal Year 1978 GS-13 DO Personnel Evaluation Board that Mr. Piccolo has performed in a sustained high manner which exceeds the normal requirements of his position and that this sustained high performance promises to continue. He is, therefore, recommended for a Quality Step Increase.
+
+Wesley L. Laybourne
+
+CONFIDENTIAL

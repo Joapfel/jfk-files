@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_31408.png
+
+Convert to Markdown14-0000
+
+SECRET
+Security Information
+
+24 November 1952
+
+MEMORANDUM FOR: Chief, International Organizations Division
+
+SUBJECT : Dr. J. H. Retinger
+
+1. Please note and return to Mr. Dulles the attached letter from Dr. J. H. Retinger who has asked Mr. Dulles for an appointment during his visit in Washington between November 25 and 28. You will also note that Mr. Dulles does not propose to answer the letter nor (presumably) to grant the appointment. I am not sure whether you are familiar with the background on Retinger including our past difficulties with him. If you are not, I think it is important for you to have a look at the files which include numerous items of derogatory information concerning Retinger and his declared hostility toward the National Committee for Free Europe. We went to the mat with our British friends in what I believe proved to be a successful effort to have Retinger removed from the key position which he held on the so-called McMillan Committee. (You are aware of the fact that the British Service is now working with the McMillan Committee and in support of it.)
+
+2. Retinger's position as Secretary General of the European Movement -- as evidenced by the letterhead -- is probably known to you. Because of our interest in this activity, it is important for you and the appropriate members of your staff to be fully on notice of Retinger's connection and past performance. I could not be very enthusiastic about or too hopeful for the production of genuinely constructive results -- in keeping with policies of the United States Government -- of any organization of which Retinger would be the Secretary General. To the extent that his loyalties can be determined, it is clear that they do not run toward the United States.
+
+(Signed) FRANK O. WISHER
+
+FRANK O. WISHER
+Deputy Director (Plans)
+
+Attachment (1)
+Letter to DDCI from Dr. Retinger
+dated 15 November 1952.
+
+cc: DDCI
+C/PP
+
+SECRET
+Security Information

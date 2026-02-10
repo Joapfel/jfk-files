@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_31691.png
+
+Convert to MarkdownSECRET
+
+c. Dr. Ion Claudian is reportedly engaged at the present time in omيزre Iron Guard activities in Europe.
+
+5. If further information is desired, please contact Miss Nowak, extension 195.
+
+JOHN E. BAKER
+Chief, SE
+
+Attachment: As stated above
+
+SECRET
+
+14-00000

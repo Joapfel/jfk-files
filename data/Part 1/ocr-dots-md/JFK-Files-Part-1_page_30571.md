@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_30571.png
+
+Convert to MarkdownSECRET
+
+EXTERNAL SURVEY DETACHMENT 44
+U. S. NAVY
+
+18 September 1947
+
+TO: Chief, Personnel and Services.
+
+SUBJECT: Personnel Action Request - Newton S. Miller
+
+Attached herewith is Form 37-1, Personnel Action Request,
+to effect promotion for Newton S. Miller.
+
+EARL R. WALES.
+
+APPROVED:
+
+SECRET

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_31268.png
+
+Convert to Markdown# DECLARATION OF APPOINTEE
+
+This form is to be completed before entrance on duty. Question 3 is to be answered in all cases, otherwise answer only those questions which require an answer different from that given to the corresponding questions on your application form. If no answers are different, write "NONE" in Item 10, below. Any false statement in this declaration will be grounds for cancellation of application or dismissal after appointment. Impersonation is a criminal offense and will be prosecuted accordingly.
+
+<table><tr><td colspan="4">I, PRESENT ADDRESS (street and number, city and State)</td></tr><tr><td>3200</td><td>16TH ST.</td><td>NW,</td><td>WASHINGTON DC. (APT 319)</td></tr><tr><td>I (A) DATE OF BIRTH</td><td colspan="3">BROCKTON, MASS</td></tr><tr><td>A (A) IN CASE OF EMERGENCY PLEASE NOTIFY:</td><td>(D) RELATIONSHIP</td><td>(C) STREET AND NUMBER, CITY AND STATE</td><td>(D) TELEPHONE NO.</td></tr><tr><td>A.H.WIGREN</td><td>FATHER</td><td>218 BELMONT AVE,<br>BROCKTON, MASS.</td><td>4402-W</td></tr></table>
+
+4. DOES THE UNITED STATES GOVERNMENT EMPLOY, IN A CIVILIAN CAPACITY, ANY RELATIVE OF YOURS (OTHER BY BLOOD OR MARRIAGE) WITH WHOM YOU LIVED OR HAVE LIVED DURING THE PAST 12 MONTHS? ☐ YES ☑ NO
+
+If so, for each such relative fill in the blanks below. If additional space is necessary, complete under Item 10.
+
+<table><thead><tr><th rowspan="2">NAME</th><th rowspan="2">POST OFFICE ADDRESS<br>(Give street number, if any)</th><th rowspan="2">(1) POSITION (2) TEMPORARY OR NOT<br>(3) DEPARTMENT OR AGENCY IN WHICH<br>EMPLOYED</th><th rowspan="2">RELATION-<br>SHIP</th><th rowspan="2">MAR.-<br>R&D<br>(Check one)</th><th rowspan="2">SINGLE<br>(Check one)</th></tr></thead><tbody><tr><td></td><td></td><td>1.</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>2.</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>3.</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>1.</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>2.</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>3.</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>1.</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>2.</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td>3.</td><td></td><td></td><td></td></tr></tbody></table>
+
+<table><caption>INDICATE "YES" OR "NO" ANSWER BY PLACING "X" IN PROPER COLUMN</caption><thead><tr><th></th><th>YES</th><th>NO</th></tr><tr><th></th><th>ITEM NO.</th><th>WRITE IN LEFT COLUMN NUMBERS OF ITEMS TO WHICH DETAILED ANSWERS APPLY</th></tr></thead><tbody><tr><td>5. ARE YOU A CITIZEN OF OR DO YOU OBTAIN ALL ALLEGIANCE TO THE UNITED STATES?</td><td>✓</td><td></td></tr><tr><td>6. ARE YOU AN OFFICIAL OR EMPLOYEE OF ANY STATE, TERRITORY, COUNTY, OR MUNICIPALITY?</td><td></td><td>✓</td></tr><tr><td colspan="3">If your answer is "Yes", give details in Item 10.</td></tr><tr><td>7. DO YOU RECEIVE ANY ANNUITY FROM THE UNITED STATES OR DISTRICT OF

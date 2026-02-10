@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_31572.png
+
+Convert to MarkdownI want to emphasize that, in my mind, the reports and suggestions gathered from all the specialists of all the ministries of any particular country will not commit any country in any way. I will name no one, compromise no one. I want to gather the sum of the ideas and resources of the Atlantic Community in this domain and add a few personal ideas which seem workable.
+
+That is why, my dear Bill, I ask for your contribution as I would like to carefully prepare this trip across the Atlantic. Please forgive this long letter. Tell me what you think of all this.
+
+s/ Joan Paul David

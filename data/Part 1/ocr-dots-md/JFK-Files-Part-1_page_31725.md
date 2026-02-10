@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_31725.png
+
+Convert to MarkdownMr. Braden:
+
+Ellen says a clearance has been in since 1 Dec 1952 on Allen Michie.
+Nothing has been done in Security on it and possibly they can get to it next
+week. O'Connell on 2591 is the one handling it.
+
+FBI made a check on him in Aug 51 and found some rather decoratory info.
+State was considering him for employment and dropped it because of FBI chock.
+
+Do you want to call Lang and tell him clearance has not been secured yet?

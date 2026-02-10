@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_31593.png
+
+Convert to MarkdownJuly 21, 1953
+
+# " PROSPERO "
+
+## Preliminary Report
+
+The purpose of this operation was to exploit the present critical circumstances in the Communist empire and in Czechoslovakia in particular by bringing to the people of that country tangible evidence of the West's interest in and support for their resistance against the regime. There follows a brief summary of the salient facts about the operation:
+
+1. 5402 rubber balloons and 1212 plastic balloons were launched from the primary site in Ellonfeld, a small German village on the Czechoslovak frontier and from the secondary site in Schomsee, some 40 miles to the south.
+
+2. These carried a not total (after wastage) of approximately 10,000,000 messages of three types:
+
+a. A likeness of the new l-crown note issued by the Czechoslovak regime following the recent currency reform. The text of this note is attached as Appendix A,
+
+b. A replica of the new 25-holler coin, bearing the words "All our people for freedom - All the free world for our people". The words "Free Europe" and the emblem of the Freedom Full appeared in the center of the coin.
+
+c. A leaflet bearing photographs of the East: Berlin demonstrations on one side and a text describing recent events in East Germany and the Soviet Union (including the Berla purge) on the other. Copies of this message are attached as Appendix B.
+
+3. The target areas for the operation were:
+   (a) the industrial and mining districts of northwest Bohemia; (b) the capitol of Prague and the heavily populated area north of Prague; (c) the city and environs of Pilsen; (d) the Ostrava region. (See display map.)

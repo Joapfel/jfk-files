@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_31467.png
+
+Convert to MarkdownMEMORANDUM FOR: DEPUTY DIRECTOR OF CENTRAL INTELLIGENCE
+
+SUBJECT: NCFE-CIA RELATIONS
+
+1. When this Division was delegated the responsibility of conducting CIA relations with NCFE it was immediately apparent that a variety of problems existed which made effective action on the part of IO Division difficult if not impossible. These difficulties may be generally summarized as follows:
+
+(1) Satisfactory mechanical procedures to provide information to CIA and to insure effective cooperation and coordination of activities by CIA and NCFE did not exist. This was true not only in financial matters, such as the orderly submission of budgets and financial reporting, as well as security, but was also true of attempts to give NCFE policy guidance and to insure that NCFE's activities did not compromise CIA operational activities.
+
+(2) The attitude of the responsible officials of NCFE was one largely of non-cooperation in terms of NCFE and CIA efforts being joint to achieve the same objective. Indeed NCFE's attitude was that they are a separate organization with the responsibilities of a corporation in the State of New York, and that the role of CIA's representatives in dealing with them was one of being their salesmen rather than partners, that once their General Activities were approved and financed, their responsibilities &amp; CIA were fulfilled.

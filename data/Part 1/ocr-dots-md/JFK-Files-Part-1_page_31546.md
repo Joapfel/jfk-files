@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_31546.png
+
+Convert to MarkdownMr. Frank Wiener
+
+The League in its present state is in my opinion a useful
+operational vehicle in any European situation in which the utiliza-
+tion of skilled and experienced personnel (notably farmers and
+nitricrene) of conservative and non-Marxist political orientation
+is indicated. If you are at all interested in it as such, I should
+be glad to talk to you about it.
+
+With best regards,
+
+/s/ Joe Fazekas

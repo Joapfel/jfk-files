@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_31713.png
+
+Convert to MarkdownSecurity Information
+
+FEB 6, 1953
+
+MEMORANDUM FOR: DIRECTOR OF CENTRAL INTELLIGENCE
+
+SUBJECT: NCFE Support of the New Leader
+
+REFERENCE: Your Memorandum of 12 January 1953 (ER #3-6149), same subject.
+
+1. On 30 January, Saul Levitas advised our PY Staff by telephone that he had received a call from Spencer Phenix. According to Levitas Mr. Phenix stated that NCFE has decided to provide the *New Leader* with $18,000. $12,000 of this amount will be a direct payment to the magazine for services and the remaining $6,000 will be used to renew 1,000 subscriptions to the United Kingdom.
+
+2. The PP Staff is preparing for your consideration a project separate from the above which would envisage sending subscriptions to the *New Leader* to key Socialist and Labor people in certain other priority areas.
+
+RICHARD HELMS
+Chief of Operations, DD/P
+
+APP/ACU/Lvm
+
+31 January 1953
+
+Distribution:
+
+Addressee - Orig & 1
+Chief of Operations, DD/P - 1
+Executive Directorate - 8
+CPY - 1
+CIO - 1✓
+APP - 1
+RI - 1
+
+Security Information

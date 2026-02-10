@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_31600.png
+
+Convert to Markdown# MESSAGE ON BANKNOTE
+
+On one side:
+
+Czechoslovakia, know this:
+
+The regime is weaker than you have dared to think!
+Power lies with the people and the people stand opposed.
+With unity and courage, organize your strength: Down
+with the collective! Insist on workers' rights! Today
+demand concessions; tomorrow - freedom!
+
+On other side:
+
+Men call this the hunger crown - gift of the Soviet Union. It is the symbol of regime desperation, of five-year failure: It is a challenge to fight, to meet weakness with strength, to resist as you know best.
+
+The other captive peoples are uniting and will join you in your struggle.
+
+The free world is with you!
+
+All power to the people!

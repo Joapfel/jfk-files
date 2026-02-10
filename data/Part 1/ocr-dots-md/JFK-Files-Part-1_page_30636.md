@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_30636.png
+
+Convert to Markdown14-0000
+
+MEMORANDUM FOR: CHIEF, FINANCE DIVISION
+
+ATTENTION : Payroll Services
+
+SUBJECT : Changes in Allotment Account Designation - Personal Services of JIMB. HAYDEN S
+
+1. The Division requests that cost of personal service for each employee is charged effective with the next pay period, as follows:
+
+FROM ALLOTMENT 5-3715-S-180
+
+TO ALLOTMENT 5-3715-S-167
+
+2. When this change is accomplished, it is requested that one copy of this correspondence be returned to the Far East Division Budget Officer with the rotation that this action is accomplished.
+
+CONCUR
+
+C P. MORRISTON
+Budget Officer
+Far East Division

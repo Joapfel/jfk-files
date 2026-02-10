@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_30447.png
+
+Convert to MarkdownCONFIDENTIAL
+
+19 SEP 1975
+
+CI 318-75
+
+MEMORANDUM FOR: Chief, Contract Personnel Division
+
+THROUGH : Chief, CMG/Contract Personnel Branch
+
+SUBJECT : Contract Termination - Mr. N. Scott Miller
+
+It is requested that the contract for Mr. Newton Scott Miller be terminated close of business 30 September 1975.
+
+George T. Kalaris
+George T. Kalaris
+Chief
+Counterintelligence Staff
+
+CONCUR:
+
+22 SEP 1975
+
+CMG/Contract Personnel Branch Date
+
+Orig: MDMcCallum:C/CI/SG:09/18/75:R-1183:jrl
+
+Distribution:
+
+Orig - Addressee
+1 - OF/C&TD
+1 - CMG/CPB
+1 - C/CI
+1 - CI/SG
+1 - Chrono
+
+CONFIDENTIAL
+
+E2 IMPDET CL BY
+061790

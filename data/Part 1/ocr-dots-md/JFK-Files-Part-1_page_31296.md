@@ -1,0 +1,56 @@
+# JFK-Files-Part-1_page_31296.png
+
+Convert to Markdown14-00000
+
+# CREDIT
+
+## 1. ONTO THE INSTRUCTION
+**D. B.**
+*   [x] The teacher assigned a specific item for students to complete. (Very limited degree of constructive involvement.)
+*   [ ] Completed sufficient constructive involvement to meet the school situation adequately.
+
+**E.**
+*   [x] Demonstrated the necessary communication skills to be a greater than average degree.
+*   [ ] Outstandingly creative, innovative, or original.
+
+## 2. ONTO THE ORNL EXPRESSION
+**C.**
+*   [ ] Not observed.
+*   [x] Demonstrated reasonable facility in oral expression.
+
+**I.**
+*   [x] Spoke confidently, conveying ideas clearly and readily.
+*   [ ] Outstandingly fluency and clarity of oral expression.
+
+## 3. ENGLISH
+**N.**
+*   [ ] Not observed.
+*   [x] Applied minimum amount of time and effort necessary to satisfactorily accomplish assigned work.
+*   [ ] Showed adequate compliance with regards time and effort for accomplishment of assigned work.
+
+**J.**
+*   [ ] Volunteered greater time and effort than is normally expected in this course.
+*   [ ] Was unusually industrious, giving generously of time, effort and interest.
+
+## 4. ENTIRE
+**S.**
+*   [ ] Not observed.
+*   [x] Occasionally acted on his own. Usually took steps to implement ideas.
+
+**U.**
+*   [x] Displayed enthusiasm and aggressiveness.
+*   [ ] Usually displayed unusual energy, enthusiasm and aggressiveness.
+
+## 5. PUTTING INTO EFFECT
+**A.**
+*   [ ] Not observed.
+*   [x] Gave up after several attempts.
+*   [ ] Surmounted minor difficulties, but was slowed by severe opposition.
+
+**F.**
+*   [ ] Was slowed only by severe opposition.
+*   [ ] Requested in his efforts to achieve objective despite repeated set-backs or severe opposition.
+
+## 6. OTHER PROBLEMS
+**P.**
+*   [ ]

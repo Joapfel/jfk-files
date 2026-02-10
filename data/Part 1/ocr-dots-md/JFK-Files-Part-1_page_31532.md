@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_31532.png
+
+Convert to MarkdownSien!
+
+30 December 1963
+
+THE GRAND TOTAL FOR MR. BRADEN:
+
+1. Professor Richard V. Burke of Wayne University is chairman of a small team of scholars engaged in a study of the European satellites.
+
+2. The findings of this team are being given as the content of a course on the mid-European area. They are also, I believe, being broadcast.
+
+3. The time of Professor Burke and his group is being purchased by the Mid-European Study Center which is, as you may know, under Mr. Stetson Holmes.
+
+4. As yet Burke has no definite plan for the publication of his findings. Manifestly, the kind of book which would emerge from his research would have to receive some sort of subsidy. As you know, books of this sort, if they are considered important enough, are published as loss leaders by university presses. Also, as you doubtless know, university presses are in pretty straitened circumstances these days. If the Wayne University Press -- the normal place for the publication of Burke's book -- were to consider publishing the book, it might be able to publish it only with outside assistance. The figure would run probably between $1500 and $2000.*
+
+5. In my opinion Burke is one of the most competent, if not the most competent man in the United States in this general field of investigation. Anything he turns out will be about as good as it comes. Although I have not seen any of this most recent work, my bunch is that it will be enormously valuable to the policy-maker and us estimators when the time comes for some deep thinking and critical decisions about the European satellites.
+
+6. I thought you might be interested in the above, and with a little poking around yourself might feel inclined to give the venture whatever kind of boost seems appropriate.
+
+SHERMAN KENT
+Assistant Director
+National Estimates
+
+* P.S. The proven way to get the best work out of a scholar is to have him know that it will be published in a normal course of events, submitted to the critical judgment of his peers.

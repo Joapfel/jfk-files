@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_31501.png
+
+s in frontier countries 5,000.00
+
+b. 10 one-way trips U.S.-Europe for transportation to job of American p. ruonnol (and wives and children where they exist at $500 each) 5,000.00
+
+c. Furniture and equipment for Deputy
+Director's office 700.00
+
+Total $10,700.00
+
+Mary Augustine
+
+Roger L. Bull

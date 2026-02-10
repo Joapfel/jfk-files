@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_31380.png
+
+Convert to MarkdownJuly 8, 1952
+
+Note: Nelson please deliver this to Allen.
+
+To: Allen Dulles
+
+You recently asked me for our views on Yugoslavia.
+The enclosed memorandum is a consensus formed from
+all of our key staff members. It also meets with
+the approval of John Hughes. I think this is a fair
+statement of what we are doing to date and what our
+views are. I hope this will be of some use to you.
+
+Enclosure

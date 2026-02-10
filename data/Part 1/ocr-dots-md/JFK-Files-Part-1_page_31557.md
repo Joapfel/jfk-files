@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_31557.png
+
+Convert to Markdown19 October 1953
+
+The effectiveness of the jamming is difficult to assess quantitatively from the few available observation locations within the Orbit and from the fan mail received. However, in general, it is apparent that jamming is most effective in large cities: approaching 100%. In rural areas, the picture varies from time to time and from place to place, but it appears that a considerable proportion of the programs to the satellites can be received. For example, the RFE monitor in Vienna reported that, at that location, the medium frequency Czech broadcast from Holzkirchen on 719 xe was practically 100% jammed while only about 50% of the shortwave Czech programs were not intelligible. The Embassy in Warsaw reported in May that while VOA programs were unintelligible, RFE programs were "often intelligible."
+
+DRAFT
+
+SECURITY

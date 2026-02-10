@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_31693.png
+
+Convert to MarkdownMAR 23 1958
+
+MEMORANDUM FOR: Chief, Psychological Warfare Division
+SUBJECT: The Now Leader
+
+Confirming the instructions from DCI which I relayed to you by telephone last week, CIA is not to pay for overseas subscriptions to the New Leader either by direct or indirect channels.
+
+cc: C/IO
+
+ALFRED C. ULMER JR.
+Assistant Chief
+Political and Psychological Warfare Staff

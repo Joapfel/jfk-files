@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_31068.png
+
+Convert to MarkdownCONFIDENTIAL
+
+21 NOV 975
+
+MEMORANDUM FOR: John P. O'Reilly
+Lee H. Wigren
+
+SUBJECT : Letter of Commendation
+
+We have just completed a high level, sensitive conference of considerable importance to both this Directorato and the Agency. You had the responsibility for virtually every aspect of its organization and administration. The planning and execution had to be done with comprehensive attention to detail without losing sight of our overall objectives. For weeks in advance and, particularly, during the conference itself you carried out your duties with energy, skill and competence which have reflected very creditably upon the Agency. You showed considerable tact and alertness in anticipating problems before they could arise. The close and cooperative relationship you established with the command and support personnel at the meeting site, and your obvious rapport with our various guests, also contributed to the efficient yet cordial environment in which the conference was conducted. You faced demanding and often complex responsibilities, and I commend you for your excellent performance in meeting them.
+
+William E. Nelson
+
+Deputy Director for Operations
+
+CONFIDENTIAL
+
+E2 IMPDET
+CL BY 36S248
+
+14-00000

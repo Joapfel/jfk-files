@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_31571.png
+
+Convert to MarkdownATTACHMENT #1
+
+(TRANSLATION)
+
+Translation of Letter from Jean-Paul David
+
+June 19, 1953
+
+My dear Bill,
+
+You know that - probably toward the end of September - I am to leave for the United States on a mission entrusted to me by the Minister of Foreign Affairs.
+
+Mr. Bidault is concerned - and justly so, about the problems connected with the objectives of my survey; and my desire is to produce a realistic report since I wish to avoid (you know my way of thinking) the traditional phraseology which generally takes the place of action.
+
+To date, in Italy, Belgium, Holland, Denmark, Norway ... I have successively conferred with the Prime Ministers, Ministers of Foreign Affairs, of Defense, of the Interior, of Education. I have also sometimes met with the Chiefs of Staff, and specialists of information and of psychological warfare.
+
+To all of them, I have said:
+
+"Mr. Bidault has requested me to make this survey and you have before you the text of the French note which speaks for itself and seems to require no further comment. I want to ask you to state, in writing and without in any way committing your Government or your particular services, what solutions can be reasonable. I wish to gather all constructive ideas on this matter. Your ideas will be useful, perhaps, to other countries - even if you think them inapplicable in your own. Then, I shall make a synthesis of the reports so assembled - adding thereto the thoughts of the French Minister of Foreign Affairs in this respect. And, at the (NATO) 'Conference of the 14th' at the end of October, we shall have available a program on the basis of which constructive action can be taken."
+
+There, in telegraphic style, is my argument. I should add that everywhere I found an excellent welcome, everyone accepted this method and promised me substantial reports.
+
+But, if in small or medium-size countries, I have encountered no major difficulties, I have no idea of the way of thinking of your compatriots on such matters. And this note is for no other reason than to ask you to express your thoughts, in view of the excellent advice you can give me.

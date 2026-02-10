@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_30445.png
+
+Convert to MarkdownSECRET
+(When filed in)
+
+<table><thead><tr><th colspan="8">NOTIFICATION OF PERSONNEL ACTION</th></tr></thead><tbody><tr><td>1 SERIAL NUMBER<br/>46022952</td><td>2. NAME (LAST FIRST MIDDLE)</td><td>MILEN NEWTON S</td><td>P. O. NO.</td><td>10/17/75</td><td>3 EFFECTIVE DATE<br/>12/30/75</td><td>5 CATEGORY OF EMPLOYMENT<br/>CONTRACT, INCOME, (I)<br/>BASIC, TECHNICAL - AGRICULTURAL</td><td>FAN AND NSCA<br/>127-0170</td><td>8 (SE OR OTHER LEGAL AUTHORITY)<br/></td></tr><tr><td rowspan="2">4 FUNDS</td><td>V 10 V</td><td></td><td rowspan="2">Y 10 CF</td><td></td><td rowspan="2"></td><td rowspan="2"></td><td rowspan="2">10 LOCATION OF OFFICIAL STATION<br/>DISTRICT OF CALIFORNIA, U.S.A.</td></tr><tr><td>CF 10 V</td><td></td><td>CF 10 CF</td></tr><tr><td colspan="8"><strong>9 ORGANIZATIONAL DESIGNATIONS</strong><br/>LLC DIRECTORATE<br/>COUNTY INTELLIGENCE STAFF</td></tr><tr><td colspan="4">11 POSITION TITLE<br/>JC-COUNTY INTELLIGENCE</td><td colspan="2">12 POSITION NUMBER<br/>NTCR</td><td colspan="2">13 CARER SERVICE DESIGNATION<br/>U.S.</td></tr><tr><td colspan="4">14 CLASSIFICATION SCHEDULE (GS, LD, eH)<br/>(INDEPENDENT) FEL</td><td colspan="2">15 OCCUPATIONAL SERIES<br/>0130.53</td><td colspan="2">16 GRADE AND STEP<br/>SL. L</td></tr><tr><td colspan="8"><strong>10 REMARKS</strong><br/>STATUS INFORMATION<br/>BIRTH DATE: 05/01/26 SLA: N MAJITAL ST: Mar TRO. SPECIFICALS: D.I.<br/>CITIZENSHIP: US/BIRTH LONGEVITY COMP: FLD SERVICE COMP:<br/>TYPE: INTEGRUMENT: NONE HOSPITALIZATION: N PLAN:<br/>REGLI: INELIGIBLE PREV. GOVT SERV: 5 SAL. 12% LT/FET: 002<br/>PAY BASIS: D A/L IND: 0 S/L IND: 0<br/><strong>CONTRACT INFORMATION</strong><br/>ERR DATE: 04/01/75 EXPIRATION DATE: 09/30/75 DATA ON FILE CONTRACT: 010575<br/><strong>ENTITLEMENT ATIS/LIGIBILITY/ALL CHARGES</strong><br/>TAX STAFF: N FLD EXPAP: STATE EXPAP: STATE:<br/>TRAVEL: NHN UPS EXPANS: N HOUSING: N PUDENTIAL: N<br/>HOME LEAVE: J DIFFERENTIAL: N OFFSET CLAIM: N SUB GOVT: N<br/>LEGAL PAY: N PREMIUM PAY: N ALLCHARGE COMPLIANCE: N CONFUSION: N<br/>STEP INCREASE: N WITH TAX CATEL: N OTHER ALLCHARGES: N SURCHARGE: N<br/><strong>PIA CODE:</strong> <strong>PNA IND:</strong> <strong>NSCA:</strong> <strong>Above:</strong><br/>SRL: 0029090<br/><strong>NOTE:</strong> ITEMS PRECEIVED BY AN ASYLURICA + PERPETUAL AMENDMENT<br/><strong>SIGNATURE OF OTHER AUTHENTICATION</strong></td></tr></tbody></table>
+
+From: LEOON Use Previous Entry
+Date: 10/17/75
+
+SECRET
+
+Form: EOD 1981 Form 8129
+Date: 11/17/75

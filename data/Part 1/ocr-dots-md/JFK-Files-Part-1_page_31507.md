@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_31507.png
+
+Convert to MarkdownSECRET
+
+which is attached as Appendix B. In brief, these comments bear out in instance after instance the assertions set forth above as to the fundamental difficulties with which we are faced in the administration of this project.
+
+5. The PRC already has reviewed this Agreement and the 1953 fiscal year budget submitted by NCFE. The Committee is so convinced of the weakness of the present situation and the need for its improvement along the lines suggested by the Memorandum of Agreement that it has refused to approve the budget of the NCFE until a satisfactory Memorandum of Agreement is concluded in the manner prescribed therein.
+
+6. There is, therefore, a choice between basically only two alternatives, viz.,
+
+CIA either has a duty and responsibility to ensure, affirmatively, the conduct of the NCFE program in accordance with CIA's own special mission and general responsibilities as a Government agency, or
+
+The NCFE is an autonomous organization operating independently of any Government direction and control, in which event this Agency should formally indicate the responsibilities with which it has been charged in this connection.

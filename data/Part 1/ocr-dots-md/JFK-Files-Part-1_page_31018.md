@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_31018.png
+
+Convert to MarkdownMEMORANDUM FOR: DDP/WH Personnel Officer
+
+SUBJECT: Within Grade Increase for Career Agents
+
+1. The following Career Agents assigned to your office will become eligible for a Within Grade Increase during the month of APRIL 1964.
+
+| Name (P) | Old Salary Rate | New Salary Rate | Date Due |
+| :--- | ---:| ---:| ---:|
+| Benadum, Jeremy K. | $16,695 | $17,210 | 26 Apr 1964 |
+
+2. Please return the signed Within Grade Increase form to Jo Ann Varnay
+Room 5 E 69.

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_31390.png
+
+Convert to MarkdownMr. Phoenix requests assurance that if Mr. Royal Tyler approaches French authorities at the border to create such a university and is granted permission, the Agency will supply the funds. No formal request has been made and this project of course has not been budgeted.
+
+f. Names of pensioned Army and Navy Officers. In compliance with DD/P Notice No. 20-5 issued on 27 October, we have asked Mr. Phenix to furnish the names of pensioned Army and Navy officers employed by NCFE. Mr. Phenix is concerned about the legal ramifications of this step, stating his fear that what this order implies for him is that the monies he dispenses as Treasurer are government funds. He has been assured by us that the purpose of the Agency-wide request is to inventory those who are receiving Navy and Army pensions and serving in proprietary organizations. He has also been assured that Army and Navy pensioners in his organization will be exempt from any action taken by the Agency on the problem of double pay. He is quite naturally worried about it.
+
+2. The Philosophy of Spencer Phenix. In arguing his case on the above questions, and others, Phenix brings to his support the argument that he is not disApproving government funds. He says that once government funds reach the 1848 Foundation they become private funds. This is no mere self-delusion for the sake of maintaining a position before his conscience. Because from this conviction he proceeds to argue:
+
+a. that the Agency cannot ask him to furnish such names as suggested above, or lists and records of any kind,
+
+b. that the Agency has no right to query the decisions of the staff and directors as to the expenditure of funds once released by the Agency.
+
+c. that the Agency has no right to intervene in NCFE affairs or to issue guidance or instructions after funds have been passed. Phenix modifies this point by volunteering that the Directors are always glad to receive advice from friends such as DCT.
+
+3. Spencer Phenix is a good man at his job and I understand the futility of arguing principle rather than cases. Nevertheless, the Phenix philosophy, argued as it is to the staff and directors of NCFE, and stated to us whenever possible -- frequently without relation to the facts under discussion -- often untempered by good humor, is beginning to try the souls of other good men.
+
+THOMAS W. BRAENY
+Chief
+International Organizations Division

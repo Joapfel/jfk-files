@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_30696.png
+
+Convert to MarkdownSECRET
+
+# FITNESS REPORT (Part I) PERFORMANCE
+
+## INSTRUCTIONS
+
+FOR THE ADMINISTRATIVE OFFICER: Consult current instructions for completing this report.
+
+FOR THE SUPERVISOR: This report is designed to help you express your evaluation of your subordinate and to transmit this evaluation to your supervisor and senior officials. Organization policy requires that you inform the subordinate where he stands with you. Completion of this report can help you prepare for a discussion with him about his strengths and weaknesses. It is also organization policy that you show Part I of this report to the employee except under conditions specified in Regulation 20-370. It is recommended that you read the entire form before completing any question. If this is the initial report on the employee, it must be completed and forwarded to the Office of Personnel no later than 30 days after the date indicated in Item A. of Section "A" below.
+
+<table><tr><td>SECTION A.</td></tr></table>
+
+GENERAL
+
+<table><tr><td>1. NAME<br/>(Last)</td><td>(First)</td><td>(Middle)</td><td>7. DATE OF BIRTH</td><td>3. SEX</td><td>4. SERVICE DESIGNATION</td></tr><tr><td>MILE</td><td>Newton</td><td>Scott</td><td>1 March 1926</td><td>M</td><td>DI</td></tr><tr><td colspan="5">9. OFFICE/DIVISION/BRANCH OF ASSIGNMENT</td><td colspan="2">9. OFFICIAL POSITION TITLE</td></tr><tr><td colspan="5">FE/4/Thailand</td><td colspan="2">Chief, Project MONOTOMY S.C.(FI)</td></tr><tr><td rowspan="2">7. GRADE<br/>GS-14</td><td colspan="3">8. DATE REPORT DUE IN OF</td><td colspan="3">8. PERIOD COVERED BY THIS REPORT (Inclusive dates)</td></tr><tr><td colspan="3"></td><td colspan="3">29 December 1956 - 29 June 1957</td></tr><tr><td rowspan="2">TO. TYPE OF REPORT<br/>(Check one)</td><td>X INITIAL</td><td></td><td>SUPERVISOR'S SIGNATURE</td><td></td><td>SPECIAL (Specify)</td><td></td></tr><tr><td></td><td>ANNUAL</td><td></td><td>SUPERVISOR'S EMPLOYEE'S SIGNATURE</td><td></td><td></td></tr><tr><td>CERTIFICATION</td><td colspan="3"></td><td colspan="3"></td></tr><tr><td colspan="6"><div>1. FOR THE RATER, THIS REPORT X WAS ☐ HAS NOT BEEN SUBMITTED TO THE INDIVIDUAL RATED. IF NOT SHOWN, EXPLAIN WHY NOT.</div><div>A. CHECK (X) APPROPRIATE STATEMENTS:</div><p>X THIS REPORT REFLECTS MY OWN OPINIONS OF THIS INDIVIDUAL.</p><p>THIS REPORT REFLECTS THE COMBINED OPINIONS OF MYSELF AND PREVIOUS SUPERVISORS.</p><p>I HAVE DISCUSSED WITH THIS EMPLOYEE HIS STRENGTHS AND WEAKNESSES SO THAT HE PROCEEDS WHERE HE STANDS.</p></div></td></tr><tr><td>B. THIS DATE</td><td>C. SIGNATURE OF RATING OFFICIAL</td><td>D. SUPERVISOR'S OFFICIAL TITLE</td><td colspan="4"></td></tr><tr><td>29 June 1957</td><td colspan="2"></td><td colspan="4">Deputy Chief of Station, Thailand</td></tr><tr><td colspan="6"><div>2. FOR THE REVIEWING OFFICIAL, RECORD ANY SUBSTANTIAL DIFFERENCE OF OPINION WITH THE SUPERVISOR, OR ANY OTHER INFORMATION, WHICH WILL LEAD TO A BETTER UNDERSTANDING OF THIS REPORT.</div><div>(9) Johnph W. Smith</div><div>(S) John L. Part</div><div>(B) John F. Smith</div></div></td></tr><tr><td colspan="6"><div>I certify that any substantial difference of opinion with the supervisor is reflected in the above section.</div><div>A. THIS DATE<br/>29 June 1957</div><div>B. TYPED OR PRINTED OFFICIAL OFFICIAL</div><div>C. OFFICIAL TITLE OF REVIEWING OFFICIAL<br/>Chief of Station, Thailand</div></td></tr><tr><

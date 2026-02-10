@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_30551.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA: Air
+SPECIFY AIR OR SEA POUCH
+
+DISPATCH NO. S-124, 5/47
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO : N. S. Miller
+
+FROM : Chief of Mission
+Shanghai, China
+
+SUBJECT: GENERAL Administrative
+SPECIFIC: Reorientation and Training
+
+DATE: 7 May 1948
+
+In reply to your memorandum dated 23 April 1948 in which you requested to be returned to the states on temporary duty for approximately sixty (60) days at the expiration of your present contract, wish to advise this has been favorably considered.
+
+It is not possible at this time to be specific as to the date of departure; however, you may plan on departing sometime in June, the exact date to be determined later.
+
+The memorandum forwarded by Nell Stine Miler has also been approved and she may depart at the same time as you.
+
+JOHN F. HOOK
+
+Approved:
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>

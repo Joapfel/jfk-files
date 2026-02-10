@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_31560.png
+
+Convert to MarkdownSECRET
+
+curly Information
+
+14 October 1953
+
+MEMORANDUM FOR: Deputy Director (Plans)
+
+SUBJECT : Vienna Conference with Ambassador Joseph Flack
+
+1. On 2 September, representatives of RFE and VOA met with Ambassador Joseph Flack and solicited his comments on reported unrest in Poland, and the utility of RFE and VOA Polish broadcasts.
+
+2. With reference to internal disturbances and partisan activities, Flack stated that there have been "absolutely none" in recent weeks, and added that earlier reports of unrest following the June uprisings in East Germany were proved to have been without foundation as a result of relatively unrestricted survey action then taken by numerous representatives of U. S., British and French diplomatic missions in Poland. He expressed his conviction that there is no significant underground organization in Poland which might be considered as an immediate asset by the West, and emphasized his belief that serious disturbances would not occur as long as the present Soviet control mechanism retains its power and the Soviet armies in Poland and East Germany go unchallenged. The bitter lessons of World War II, particularly the abortive Warsaw uprisings, and lack of confidence in the Polish emigration definitely discourage active resistance. The Poles increasingly tend to resent the action of the enigre leaders, regarding them essentially as symbols of failure, and, Flack feels, will undoubtedly develop new leaders from within the country when the time comes for action.
+
+3. Flack carefully distinguished resistance as an immediate asset from resistance as a potential asset. He expressed the belief that the Catholic Church still offers the strongest and the best organised base of resistance in Poland as it is looked upon as the only symbol of continuity and solidarity with the past. To this he added his own appreciation for traditional Polish spirit of independence and Christian orientation, and emphasized his belief that Polish hatred of Russians and communists continues to mount. Unfortunately, similar sentiment persists with reference to Germany. Fear of German occupation or seizure of Polish territory continues to play a prominent part in Polish thought and is cleverly utilised by the Communist government in its propaganda effort.

@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_30713.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+<table><tr><td>12. IN WHAT RESPECT IS THIS PERSON'S PERFORMANCE OR PAPERWORK UNTERMINED OR INSUFFICIENT TO BE ACCEPTABLE AS A REQUIREMENT OF THIS POSITION? Leadership and organizational capabilities plus an e college professional knowledge gained in the field.</td></tr><tr><td>13. ON WHAT ASPECT OF PERFORMANCE SHOULD THIS PERSON CONCENTRATE EFFORT FOR SELF IMPROVEMENT?</td></tr><tr><td>Making that a far more frequent part of age, maturity (although he is extremely mature for his age) and supervisory experience would not ordinarily improve.</td></tr><tr><td>14. COMMENT ON THIS PERSON'S ABILITY TO HANDLE GREATER RESPONSIBILITIES NOW OR IN THE FUTURE.</td></tr><tr><td>He is ready to become chief of a small station. Likewise, he would be excellent in a headquarters staff, particularly CH.</td></tr><tr><td>15. ARE THERE OTHER DUTIES WHICH BETTER SUIT THIS PERSON'S QUALIFICATIONS IF POSSIBLE?</td></tr><tr><td>He is now scheduled to go to the field in an operating capacity during the summer of 54.</td></tr><tr><td>16. WHAT TRAINING OR ROTATION DO YOU RECOMMEND FOR THIS PERSON?</td></tr><tr><td>A training program is being planned for him and he will complete it before departing for the field.</td></tr><tr><td>17. IF PERFORMANCE DURING REPORT PERIOD HAS BEEN UNSATISFACTORY, THERE IS ATTACHED COPY OF MEMORANDUM NOTIFYING THIS PERSON OF UNSATISFACTORY PERFORMANCE.</td></tr><tr><td>18. THIS PERSONNEL EVALUATION REPORT HAS BEEN DISCUSSED WITH THE PERSON EVALUATED. ADDITIONAL COMMENTS INCLUDING COMMENT ON ITEMS 7, 8 AND 9, ARE SHOWN BELOW UNDER ITEM 20.</td></tr><tr><td>DATE</td></tr><tr><td>I have reviewed the above report. Comments if any, are shown in item 20.</td></tr><tr><td>25 March 1954</td></tr><tr><td>DATE</td></tr><tr><td>Comments: If necessary, may be continued on reverse side of cover sheet.</td></tr></table>
+
+SECRET

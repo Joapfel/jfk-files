@@ -1,0 +1,58 @@
+# JFK-Files-Part-1_page_31352.png
+
+Convert to MarkdownPERSONAL HISTORY STATEMENT
+
+Instructions:
+
+1. Answer all questions completely. If question does not apply write "not applicable." Write "unknown" only if you do not know the answer and cannot obtain the answer from personal records. Use the blank pages at the end of this form for extra details on any question or questions for which you do not have sufficient room.
+
+2. Type, print or write carefully; illegible or incomplete forms will not receive consideration.
+
+HAVE YOU READ AND DO YOU UNDERSTAND THE INSTRUCTIONS? YES
+Yes or No
+
+SEC. 1. PERSONAL BACKGROUND
+
+Telephone:
+
+A. FULL NAME Mr. LEE HOBART WIGREN Ext. NONE
+(Use No Title) Mrs. Mfg. Middle Last:
+Home: 4402-0
+PRESENT ADDRESS 218 BELMONT AV, BROCKTON, MASSACHUSETTS U.S.A.
+Mt. & No.
+City
+State
+Country
+PERMANENT ADDRESS 218 BELMONT AV, BROCKTON, MASSACHUSETTS U.S.A.
+St. & No.
+City
+State
+Country
+
+B. NICKNAME SONNY WHAT OTHER NAMES HAVE YOU USED? NONE
+UNDER WHAT CIRCUMSTANCES HAVE YOU EVER USED THESE
+NAMES? NOT APPLICABLE
+
+HOW LONG? IF A LEGAL CHANGE, GIVE PARTICULARS
+
+NOT APPLICABLE
+
+Where? By What Authority
+
+C. DATE OF BIRTH DEC. 1, 1923 PLACE OF BIRTH BROCKTON, MASS. U.S.A.
+City
+State
+Country
+
+D. PRESENT CITIZENSHIP U.S.A. BY BIRTH? YES BY MARRIAGE? NO
+BY NATURALIZATION CERTIFICATE # ISSUED ____ BY _______ Date _______ Court
+AT Not Applicable City State Country
+HAVE YOU HAD A PREVIOUS NATIONALITY? NO Yes or No Country
+HELD BETWEEN WHAT DATES? ____ TO ____ ANY OTHER NATIONALITY? ____
+______ in this country
+GIVE PARTICULARS NOT APPLICABLE
+
+HAVE YOU TAKEN STEPS TO CHANGE PRESENT CITIZENSHIP? NO GIVE PARTICULARS:
+
+FORM NO. 38-1
+SEP 1949 5:1

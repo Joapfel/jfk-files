@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_31238.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+<table><tr><td>12. IF ANY RESPECT IS THIS PERSON'S PERFORMANCE ON PRESENT JOB MOST NOTICEABLY GOOD OR OUTSTANDING?</td></tr><tr><td>Judgment.</td></tr><tr><td>13. DO YOU ASPECT OF PERFORMANCE SHOULD THIS PERSON CONCENTRATE EFFORT FOR SELF IMPROVEMENT?</td></tr><tr><td>An overview of Central Intelligence, particularly operational and analytical, is also welcome.</td></tr><tr><td>14. COMMENT ON THIS PERSON'S ABILITY TO HANDLE GREATER RESPONSIBILITIES NOW OR IN THE FUTURE.</td></tr><tr><td>Show composed by your conservative but eventual leadership.</td></tr><tr><td>15. ARE THERE OTHER DUTIES WHICH BEFΕR SUIT THIS PERSON'S QUALIFICATIONS? (Recommend appropriate reassignment, if possible.)</td></tr><tr><td>No.</td></tr><tr><td>16. DO YOU TRAINING OR ROTATION DO YOU RECOMMEND FOR THIS PERSON?</td></tr><tr><td>Training desired. Eventual operational experience, preferably in Scandiniavian areas, desirable.</td></tr><tr><td>17. IF PERFORMANCE DURING REPORT PERIOD HAS BEEN UNSATISFACTORY, THERE IS ATTACHED COPY OF MEMORANDUM NOTIFYING THIS PERSON OF UNSATISFACTORY PERFORMANCE.</td></tr><tr><td>18. THIS PERSONNEL EVALUATION REPORT HAS BEEN DISCUSSED WITH THE PERSON EVALUATED. ADDITIONAL COMMENTS INCLUDING COMMENT ON ITEMS 7, 8 AND 9, ARE Shown BELOW UNDER ITEM 20.</td></tr><tr><td>DATE 21 Apr. 1953<br/>SIGNATURE OF SUPERVISOR George E. Stoney</td></tr><tr><td>19. I HAVE REVIEWED THE ABOVE REPORT. Comments, If any, are shown In Item 20.<br/>DATE 21 Apr '53<br/>SIGNATURE OF REVIEWING OFFICIAL Newton W. Holbrook</td></tr><tr><td>20. COMMENTS: (If necessary, may be continued on reverse side of cover sheet.)</td></tr></table>
+
+SECRET

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_30688.png
+
+Convert to MarkdownSection C cont., Newton S. Miller
+
+coordinating agency operations with the overall policy objectives of the Embassy, the rating officer believes that Mr. Miller must be given the benefit of the doubt on this point.
+
+The station under Mr. Miller's direction has been successful in developing CA operations within the field of labor, and liaison operations have improved considerably in recent months. Mr. Miller has been particularly successful and cooperative in servicing requests for operational support from other field stations. He has provided valuable support and coordination in Africa Division's efforts to penetrate and influence an effective and moderate all-African organization.
+
+Mr. Miller has satisfactorily performed his supervisory duties, supervising nine persons within the station, as well as providing guidance for communications personnel located in a large communications base in Ethiopia. He is cost conscious and fully understands the need for economy.
+
+SECRET
+
+14-0000

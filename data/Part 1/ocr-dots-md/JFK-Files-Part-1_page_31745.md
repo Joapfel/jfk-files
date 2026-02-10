@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_31745.png
+
+Convert to MarkdownSECRET
+Security Information
+
+21 January 1953
+
+MEMORANDUM OF CONVERSATION
+
+SUBJECT: Crusade for Freedom
+
+Per telephone conversation from Mr. Dorkee on 21 January 1953, the following was stated:
+
+"Returns are $600,000. These are returns in central banks. Other returns reported but not in central banks. This brings the total up close to $1,000,000. Twenty-one states have yet to report in."

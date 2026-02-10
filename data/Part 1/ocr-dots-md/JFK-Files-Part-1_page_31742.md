@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_31742.png
+
+Convert to MarkdownFor Bill Durkee
+
+FEB 17 1952
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: PRC Meeting
+
+1. Today the PRO approved $253,000 for the Crusade for Freedom, the money to be held in escrow and to be paid out on Frank Visner's signature subsequent to an audit by a CIA auditor who will go over the Crusade's books and account to us for the reliability of the Crusade's estimate of $253,000 to wind up the affair this year.
+
+2. PRC set aside the request for $300,000 for next year's campaign on the grounds that the Agency should first settle matters with the Heritage Foundation and start clean on a Heritage Foundation estimate.

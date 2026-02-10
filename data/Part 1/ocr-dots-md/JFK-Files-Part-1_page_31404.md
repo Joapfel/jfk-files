@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_31404.png
+
+Convert to Markdown3. In regard to paragraph 4 of reference memorandum, the matter of the Council apparently has not been discussed thoroughly with the refugees. The importance of an organization for the masses of refugees, controlled by the Executive Committee of 16-17, should not be underestimated. The working commissions proposed by Visolaru (European Federation Movement, PW, publications, etc.) should be drawn from the Council rather than from the refugees at large. Further, there are many refugees for whom the Committee has no need, for we at present, who desire to participate in a refugee organization. That the desire to belong to something is particularly strong among the younger refugees, i.e. those of potential operational value, is evidenced by the number who have affiliated with the Iron Guard, other fanatic organizations, student, and professional groups. Membership should be open to large numbers of refugees (exclusive of hard-core Iron Guards, Communists, criminals, etc.), and should be manifested by membership cards. To strengthen the sense of participation small annual dues could be required or subscription to the Committee newspaper (which would be subsidized so that subscription cost would not be excessive). The formation of this Council is considered particularly worthwhile since it offers a way to draw worthy refugees from less desirable organizations and to develop their usefulness for the future.
+
+4. With respect to the secret fund in the possession of Mr. Cretziu of the Hungarian National Committee, we do not consider that an issue should be made of the disclosing and control of this money. Both Visoiaru and Cretziu have agreed to account for the funds and to auditing of the books. It is possible that a finance committee, consisting of Cretziu and one or two others, will be appointed in the new organization to handle the subsidies and to audit the secret fund.
+
+5. Reports that Gafencu has developed an intransigent attitude toward the new committee have been received from several sources. As Mr. Polbeare is in Europe and is a friend of Gafencu's, it is suggested that he attempt to obtain again Gafencu's cooperation with the current negotiations.
+
+6. It is requested that this memorandum be forwarded to the UNCT so that the information may be of immediate assistance in the negotiations planned for this week.
+
+JOHN E. BAKER
+Chief, SE

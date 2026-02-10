@@ -1,0 +1,74 @@
+# JFK-Files-Part-1_page_31547.png
+
+Convert to MarkdownHonorary President
+
+President
+
+Vice President
+
+Recording Secretary
+
+Secretary-Treasurer
+
+ADVISORY COUNCIL
+
+The Slovak League of America
+
+A Cultural and Civic Federation of Americans of Slovak Descent
+
+Organized 1937 in Cleveland, Ohio
+
+OFFICE OF THE PRESIDENT
+
+PHILIP A. HROBAK
+P. O. Box 150
+MIDDLETOWN, PA.
+
+STEPHANIE O. HUSEK
+Georgian Court College
+Lakewood, N. J.
+
+MICHAEL J. VARGOYICH
+National President
+First Catholic Slovak
+Union of U. S. A.
+
+HELEN KOCAN
+National President
+First Catholic Slovak
+Ladino Union
+
+FRANK BORUS
+National President
+Slovak Catholic Solidar
+
+STEPHEN J. TKACH
+National President
+Pennsylvania Slovak Union
+
+GABRIELA E. VAVREK
+National President
+Ladino Pennsylvania
+Slovak Union
+
+JOHN ROZBORIL
+National President
+Slovak Catholic
+Cadet Union
+
+October 31, 1952
+
+Mr. Kurt Glaser
+
+1717 - 30th St., N.W.
+Washington 9, D.C.
+
+Dear Mr. Glaser:
+
+I have read your article on Radio Free Europe - THE "RUSsIA FIRST" BOYS IN RADIO "FREE EUROPE" - and I must say that it agrees with the facts as I know them. It is regrettable that such knowledge or information cannot get to the masses of the American public. I have visited the State Department and the National Committee for a Free Europe several times during the past two years to urge them of the situation, but it seems they do not choose to do much about it. I had my information directly and indirectly from Slovak refugees in Germany and Austria...and London.
+
+In December, 1951, the ASSOCIATION OF SLOVAKS IN GREAT BRITAIN, sent a "Memorandum" to the Nat'l Committee for a Free Europe in New York stating, in effect, the very things your article contains. The personnel of RFE in Munich was given in toto. At that time 31 program editors were employed by RFE - 29 Czechs and 8 Slovaks (renegades). Of the 29 Czechs employed - 27 were SOCIALISTS of one brand or another! The memo mentions who they were....and I still have that list. Should you want to use it, you are welcome to it.
+
+I have long been convinced that it is not in the interests of America or other free countries to employ pseudo-left-wingers in the RFE, the Voice of America or Radio Free Europe. I simply would not trust them. Your article tells the charlatans in RFE or used by the RFE and I certainly support their publication. I, for one, certainly would!
+
+P. S. Hrobak

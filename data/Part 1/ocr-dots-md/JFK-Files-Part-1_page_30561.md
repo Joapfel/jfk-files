@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_30561.png
+
+Convert to Markdown23 January 1948
+
+**TO:** Newton J. Killer
+
+Information furnished this Headquarters by Classified Official Dispatch XCS-335 dated 11 December 1947 advises that you have been transformed from Communications and assigned a new job title of "Intelligence Officer".
+
+APPROVED:
+
+CONFIDENTIAL

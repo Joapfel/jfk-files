@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_30592.png
+
+Convert to MarkdownSECRET
+
+6 June 1949
+
+CONFIDENTIAL
+
+TO : Confidential Funds Branch
+Attention: L. Frauenhohe
+
+FROM : Chief, Overseas Division
+
+SUBJECT: Cancellation of Travel Orders
+
+1. Due to erroneous information received from the field it is necessary to cancel the following travel orders:
+
+Allyne G. Finder - UV-653-12
+Brown G. Heidt - UV-658-12
+Ronald J. Hetz - UV-655-12
+Sara E. Connolly - UV-654-12
+Jean L. Victor - UV-652-12
+Virginia H. Renahan - UV-653-12
+Newton B. Kilser - UV-647-12
+Vonda E. Harnold - UV-652-12
+William Z. Remnan - UV-649-12
+
+SECRET

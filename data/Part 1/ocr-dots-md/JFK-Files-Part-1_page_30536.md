@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_30536.png
+
+Convert to MarkdownOFFICIAL DISPATCH
+
+VIA: AIR
+SPECIFY AIR OR SEA POUCH
+
+DISPATCH NO. E3YH-216
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO : Chief, AAF/AC
+
+FROM : Finance Division
+
+SUBJECT: GENERAL - Administrative
+          SPECIFIC - Payroll Change Notices
+
+DATE: 30 November 1949
+
+Attn: Philip J. Crenshaw
+
+1. Attached herewith are Payroll Change Notice for the pay period 18 October thru 12 November 1949, for the following individuals:
+
+Newton L. Miller
+Department, Charles 7-
+
+2. Forwarded for employees' information.
+
+Final:
+3 Payroll change notice,
+
+~~AK~~ AL
+OK
+
+CM:rr
+
+FEB 18 1949
+
+RELATING OFFICER
+
+Wolcott (R)
+COORDINATING OFFICER
+
+W. Lloyd Gear
+AUTHENTICATING OFFICER
+
+P.O. Box
+JUN 19 1949
+
+156.

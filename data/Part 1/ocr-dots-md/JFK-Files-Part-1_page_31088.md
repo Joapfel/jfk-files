@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_31088.png
+
+Convert to Markdown14-0000
+
+14 February 1958
+
+MEMORANDUM FOR: Chief, FI
+VIA: FI/Personnel
+SUBJECT: Personnel Action (Promotion)
+
+1. It is recommended that Mr. Lee WIGREN be promoted from GS-11 to GS-12. Mr. Wigren has been in his present grade since 16 January 1957. Since he was assigned to Division D on 23 September 1957, he has been under my supervision. His performance during this time has been at least at a GS-12 level.
+
+2. Mr. Wigren's duties warrant a GS-12. He is primarily engaged in research of a complex and tedious nature which requires a high degree of professional competence.
+
+3. Mr. Wigren deserves a promotion on the basis of his job performance. Since coming under my supervision, he has consistently shown himself to be a conscientious, diligent and capable employee; and the high quality of his reports are indicative of his intelligence, flair for research, and ability to write effectively.
+
+ALBERT P. KERGEL
+Chief, Special Activities Br., FI/D
+
+APPROVED:
+
+FRANK B. ROBERTS, Chief, FI/Division D

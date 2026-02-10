@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_31514.png
+
+Convert to MarkdownSECRET
+
+Security Information
+
+ER 3-0917
+
+15 July 1952
+
+MEMORANDUM FOR THE RECORD:
+
+SUBJECT: National Committee for Free Europe; proposed employment of Mr. Leland Stowe.
+
+REFERENCE: Memo from Security Officer to DCI dated 12 January, and attachments.
+
+1. As the result of an extensive consideration of the problem created by the NCFF offer of employment to Leland Stowe, and in light of the adverse information concerning Mr. Stowe's past connections and affiliations with certain organizations, it was decided by the Director upon the recommendations of Messrs. Dulles, Hedden and the undersigned that Mr. Stowe should not be employed by NCFF as Chief of the RFE information collection program.
+
+2. When Admiral Miller was informed today of this decision, together with the reasons upon which it was based, he and his staff immediately proceeded to re-examine the entire problem and within an hour-and-one-half communicated to the undersigned an entirely new proposition concerning Mr. Stowe, of which the following were the principal elements:
+
+a. In line with the Director's decision, Mr. Stowe would not be employed by NCFF as Chief of the information collection activity of RFE.
+
+b. In lieu thereof he would be offered a contract as a "consultant and contributor of information" for a six-months term.
+
+c. He would not be offered a salary but would be placed on a fee basis, and paid according to the amount of work and material which he contributes.
+
+d. Thus he will not become an official of RFE or NCFF, and will not be in such a position as to enable anyone to maintain that he guides the policy of or controls the flow of information to Radio Free Europe.
+
+SECRET
+
+Security Information

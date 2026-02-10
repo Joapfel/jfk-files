@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_31762.png
+
+Convert to MarkdownSECRET
+
+Security Information
+
+NCFE has, from small beginnings, for purposes only generally defined,
+grown into a large institution organized as follows:
+
+NCFE is a non-profit membership corporation, organized under
+the laws of New York State. Intimately associated with it are three
+separate corporations; the Crusade for Freedom (the fund raising
+and cover mechanism), the Free Europe University in Egypt, and the
+Portuguese radio relay installation, Sarut.
+
+The Committee's major divisions, functions and budget for 1953 are as follows:
+
+a. Division of General Administration - Budget for fiscal year 1953 - $779,100
+
+This is a headquarters administrative unit in NCFE's New York headquarters. It is not an over-all administrative unit, as each subdivision has its own administrative organization.
+
+b. Division of Foreign Relations - Budget for fiscal year 1953 - $1,624,892
+
+The Division of Foreign Relations is the political center of NCFE. Through this Division, support is given to the various foreign organizations and to individual enclaves.
+
+In the past two years, this Division has attempted -- with
+conspicuous lack of success -- to create unified refugee groups.
+It is at present in the process of reviewing and revising its
+relations with individual enclaves and foreign organizations. It
+is attempting to exercise closer financial control over those
+organizations and to develop a program using foreign groups and
+individuals in a way which will contribute more positively to
+psychological warfare efforts. This Division of NCFE is the
+most responsive to guidance.
+
+c. Division of Intellectual Cooperation - Budget for Fiscal Year 1953 - $2,028,041
+
+The activities of this Division are principally directed to
+the building of intellectual resources which will ensure continuity
+with the past and which can be used when the satellite countries
+are liberated. The Division's activities consist of:
+
+1. The Past European Inquiry, an outgrowth and enlargement of the Panamanian Inquiry, which was created by Woodrow Wilson in 1918. Its aim is to prepare basic materials in order to meet the minimum needs of those who will be charged with the reorganization of the Panamanian area.
+
+2. Other Studies of a miscellaneous nature useful to the other divisions of NCFE and to students of Central Europe.
+
+SECRET
+
+Security Information
+
+14-00000
+
+SECURE
+Secarity Information

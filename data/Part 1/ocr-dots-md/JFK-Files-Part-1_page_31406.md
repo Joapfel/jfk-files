@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_31406.png
+
+Convert to MarkdownSECRET
+
+25 November 1952
+
+EYES ONLY
+
+MEMORANDUM FOR: Chief, P & P
+
+SUBJECT: Talk with Mr. Robert Lang
+
+1. I spent an hour and a quarter in New York on Friday, 14 November, with Mr. Robert Lang of Radio Free Europe. The major portion of this time was devoted to a briefing by Lang of the HOFE structure and the position which RFE occupies in it, including the philosophy of RFE operations. Lang gave an impressive performance and struck me on such short acquaintance as an individual of ability, judgment, and energy.
+
+2. Mr. Lang made quite a point of the fact that his operation inside NCFE is virtually independent. He intimated that he receives no guidance from the President or other officers and has expanded considerable effort in the past seeing to it that an iron curtain is kept between RFE and the top command of NCFE. He said that if RFE had not developed and expanded according to a philosophy which it itself had originated, it would have got nowhere and would still be frustrated by what he kept referring to as the "old State Department line" as exemplified by the views of DeSitt Poole, Fred Dolbeare, and others. He then pointed out that he had received virtually no guidance, policy or otherwise, from this organization. Also he claimed to suffer from lack of contact with us. He stated that when he saw Mr. Bulles a week or so ago, it was the first time he had talked to anyone in authority here in many a moon. As far as Mr. Braden and company are concerned, he said that they dealt largely with Admiral Miller and his immediate staff. It was clear that he would prefer to deal directly with Washington. He also feels inhibited by the fact that he has to cajole Admiral Miller into permission to come to Washington. He cited as evidence an incident recently when he felt obliged to ask a friend in the State Department to intercede with Admiral Miller to permit him to come down here for consultation.
+
+3. There was nothing bitter or frustrated in Mr. Lang's remarks. Rather he struck me as an individual who was discussing the facts of life, be what they may.
+
+4. I told him that I would discuss with you the wisdom of having him come down here for a day some time in the next week or so
+
+SECRET
+
+SECURITY

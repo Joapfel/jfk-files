@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_30517.png
+
+Convert to MarkdownGENERAL HEADQUARTERS
+FAR EAST COMMAND
+APO 500
+
+12 December 1951
+
+AG 201-AGM
+
+LO 347-1
+
+SUBJECT: Temporary Duty
+
+TO : Individuals Concerned
+
+1. Fol named individuals WP o/a 13 December 1951 to Pusan and Seoul, Korea on detail for a period of 10 days TUY in connection with military intelligence activities. Upon completion will return to proper station.
+
+Mr GRANT A. FIELDEN (G3-15)
+Mr EARL M. LOCKARD (G3-13)
+✓ Mr N. SCOTT MILER (G3-13)
+
+2. TVI by mil acft, rail and govt mtr transportation auth. TDN. an alw of sixty-five (65) pounds personal baggage auth while tvlg by air. No per dion auth.
+
+3. Individuals are auth to perform duties as official couriers during period of detail.
+
+4. Individuals will wear the Army Officers uniform less insignia in combat zone. Uniform may be purchased from CM Sales Store upon presentation of these orders.
+
+5. Individuals may draw currently auth clothing and equipment for tvl to Korea. All clothing and equipment issued will be returned within seventy-two (72) hours after completion of detail.
+
+6. Inspections and physical inspection as prescribed by Circ 9, FEC 27 Feb 50 will be completed prior to departure.
+
+BY COMMAND OF GENERAL RIDGWAY:
+
+THOMAS F. WHALEY
+Captain, ACC,
+Asst Adj Gen
+
+DISTRIBUTION:
+
+C2 Sec (1)
+CPS (6)
+G1 Sec (Civ Pors) (1)
+Individuals (8) on
+Fiscal Division Officer of Comptroller (1)

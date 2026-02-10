@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_30915.png
+
+Convert to MarkdownSECRET
+
+20 August 1962
+
+SUBJECT: Assessment of Career Agent, Jeremy K. BENADUM
+
+1. Pseudonym and salary: Jeremy K. BENADUM, GS-15, $14,055.
+
+2. Division or Staff and city: WH Division, Mexico City.
+
+3. Operational duties: Subject maintains unofficial liaison between the Station and a Mexican Ministry. He also develops independent agents.
+
+4. Cover: Subject has Inmigrante-Rentista status which allows him to remain in Mexico indefinitely and the only restriction on his activity is that he cannot be gainfully employed. In view of the fact he is a wealthy man in his own right and will soon be of age to collect retirement from his long service with the FBI, this cover presents no problems. After five years in this status he will obtain inmigrado status which will give him complete freedom of operation, with all the rights as a Mexican citizen, except that of voting. The cover is excellent because it is secure, allows him complete mobility, and require no administrative support. There are no existing or anticipated problems related thereto.
+
+5. Division's assessment: Subject is an experienced, well-trained, serious intelligence officer, capable of spotting, assessing, recruiting and handling agents. Most of his experience and capability is in the field of collection of FI intelligence and operational support, the latter being his most outstanding area of contribution to Station objectives. He would also be capable of running CI operations. His knowledge of CA type work, however, cannot be assessed at Headquarters.
+
+Subject's cover is a natural one and poses no difficulties. Since Subject has been in the intelligence field for over 20 years, he is psychologically prepared for his dual role in intelligence operations and is well qualified to operate without strong Station support.
+
+Headquarters is not in a position to comment on the timeliness or quality of his operational reporting, but no defects in this regard have been noted nor have any been brought to the attention of Headquarters by the Station.
+
+Subject needs no training.

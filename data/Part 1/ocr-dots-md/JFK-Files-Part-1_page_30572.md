@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_30572.png
+
+Convert to Markdown10 August 1947
+
+Dear Bob,
+
+Thank you for initiating action on my promotion and for
+allowing me to remain in a transfer. I understand the situation
+about the transfer and realize that nothing more can be done
+in the matter, as settled in advance, however, since no complications
+will arise from my being carried -- Corporate Head Office.
+
+Have signed the personal action papers and this is, I hope,
+a rough draft of a job description.
+
+Collection and dissemination of SI information; establishment
+and direction of intelligence nets; interrogation of POW's and
+refugees from Communist areas and North Korea; coordination of
+intelligence nets being run into North Korea, Communists atanchuria,
+Lairon and Siteria; at present am directing a CL net in Mukden
+which will eventually turn into an SI net.
+
+Thanks again, Bob
+
+Scott Miller

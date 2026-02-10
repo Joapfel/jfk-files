@@ -1,0 +1,87 @@
+# JFK-Files-Part-1_page_31525.png
+
+Convert to Markdown"CS" RECORD MATERIAL
+
+<table>
+   <tr>
+    <td>
+     FORM
+     <br/>
+     12-62
+    </td>
+    <td>
+     179a USE PREVIOUS EDITIONS.
+    </td>
+    <td>
+     DATE
+     <br/>
+     6-50
+    </td>
+   </tr>
+  </table>
+
+FORM 3-62
+
+610 USE PREVIOUS
+EDITIONS
+
+SECRET
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+UNCLASSIFIED
+
+RETURN TO
+
+AMMED
+
+JUN 28 1973
+
+LADD H
+
+January 1953-December 1953
+
+NICFE
+
+14,0000
+
+DAILY
+GAY CLINIC
+S. CORBET
+06/27K
+
+ADAY
+G.A.-50
+
+APRIL 13, 1973
+
+LP/ARD Rm C=~~D~:3
+
+DO NOT REMOVE ANY PAPERS OR
+MUTILATE FOLDER.
+
+FILE NO. 1004 CTB A037
+
+DOCUMENT:
+
+FOLDER: 12 4
+
+PAGE:
+
+BOX: 2
+
+18-1127
+432393
+
+J. W. COX
+CORBETT
+06/14/590
+
+LADD H
+
+JUN 28 1973
+
+LADD #

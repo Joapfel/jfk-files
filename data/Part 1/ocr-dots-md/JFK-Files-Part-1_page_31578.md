@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_31578.png
+
+Convert to Markdown25 August 1953
+
+MEMORANDUM FOR: DEPUTY DIRECTOR (PLANS)
+
+SUBJECT: RFE Coverage of ICFTU Developments
+
+The attached extracts from RFE's Daily Guidance Bulletin are evidence of the day to day coverage that RFE is giving to ICFTU decisions. In addition we are setting up an arrangement whereby RFE will have continuing liaison with a member of the special committee appointed by the ICFTU. Through this channel we hope to supply RFE with documentary material on workers' conditions in the satellites and to insure also that the line taken by RFE toward labor issues is not in conflict with the ICFTU position.
+
+CORD HEYER, JR.
+Deputy Chief
+International Organizations Division
+
+DCIO: CM/mf
+
+Distribution:
+
+Orig - Addressee via Jacobs
+1 cc - CIO
+1 cc - DCIO
+1 cc - RI
+
+SECRET
+Security Information

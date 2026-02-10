@@ -1,0 +1,69 @@
+# JFK-Files-Part-1_page_30534.png
+
+Convert to MarkdownSECRET
+
+OSO
+
+PROMOTION DATA SHEET
+
+NAME: NILLER, Mr. Newton B.
+
+AGE: 24
+
+DATE: 6 September 1950
+
+OSO UNIT: Foreign Div. 2
+
+STATION and DUTIES: PRU/FEC, Yokosuka, Japan
+Station Commander in Command
+
+DATE OF PRESENT GRADE: 19 September 1948
+
+PRESENT GRADE: OS-9
+
+PRESENT T/O SLOT PRU/FEC Field Ope Slot ? NUMBER AND GRADE: OS-9
+
+PROPOSED GRADE: OS-11
+
+PROPOSED T/O SLOT PRU/FEC Field Ope Slot ? NUMBER AND GRADE: OS-11
+
+IF GRADE OF THE PROPOSED T/O SLOT IS NOT HIGH ENOUGH TO ALLOW FOR THE PROMOTION, DO YOU RECOMMEND DESK AUDIT TO DETECTIVE OFFICER PROMOTION IS POSSIBLE?
+
+NOT APPLICABLE.
+
+MOST RECENT REPORT OF EFFICIENCY RATING and/or STATUS AND EFFICIENCY REPORT; Very good—Excellent DATE; 20 June 1948
+
+SUMMARY OF CLA-SSU-OSB ASSIGNMENTS:
+
+ESD 444, Stan Hri., Codo clerk, Oct 4-Jun 43
+ESD 444, Mukden, Jr. Intel. Officer, Operations and Cede Officer
+PRU/FEC, Station Commander, July 1949 to present
+
+MANNER OF PERFORMANCE; Very Good - Excellent
+
+SUMMARY OF EDUCATION AND QUALIFICATIONS;
+
+Sep 40 - Dartmouth - AB Degree
+(Economics)
+
+RECOMMENDED BY;
+John F. HOOK, Admin Officer, PRU/FEC
+
+CONFERENCES;
+Thomas F. Blend, (ex) Acting Chief of Mission
+Dan J. Parker, Jr., K-10/ARF/MR
+Lloyd George, Chief, IZ
+
+LANGUAGE PROFICIENCY;
+
+Synonym: slight (road, write, speak)
+Chinese: slight (speak)
+Mumtien: hair (road, write, speak)
+
+PREVIOUS GRADES and DATES:
+
+GAP 5 - 20 Oct 48
+CAP 7 - 8 Mar 48
+SEP 9 - 19 Sep 48
+
+SECRET

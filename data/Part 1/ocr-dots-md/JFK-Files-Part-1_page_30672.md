@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_30672.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+MEMORANDUM IN LIEU OF FITNESS REPORT
+
+SUBJECT: Newton Scott MILER
+(1 April 1968 - 31 March 1969)
+
+1. Mr. Miller's performance as a counterintelligence officer and supervisor of both officer and clerical personnel has continued to be outstanding in every respect. He has continued to carry a major portion of the work load of the office. Highly favorable comments made in previous fitness reports by me continue applicable in every respect for the current reporting period. He is cost conscious and economizes in the expenditure of government funds.
+
+2. Mr. Miller has previously been recommended for promotion.
+___
+Birch D. O'Neal
+Chief, CI/SIO
+
+EMPLOYEE SIGNATURE:
+
+15.5.69
+Date
+
+REVIEWING OFFICIAL:
+
+James R. Hunt
+Deputy Chief
+Counter Intelligence Staff
+
+Date
+
+SECRET

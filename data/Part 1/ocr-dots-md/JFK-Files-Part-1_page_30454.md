@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_30454.png
+
+Convert to MarkdownCONFIDENTIAL
+
+26 MAR 1975
+
+MEMORANDUM FOR: Director of Central Intelligence
+FROM : Deputy Director for Operations
+SUBJECT : Consultant Status for -
+James Angleton
+Raymond G. Rocca
+William J. Hood
+Newton S. Miler
+
+REFERENCE : HR 20-52 and IIIB 20-8
+
+## 1. Action Requested:
+
+This memorandum requests the Director to approve the use of Messrs Angleton, Rocca, Hood and Miler as Agency Consultants for the period 1 April - 30 September 1975.
+
+## 2. Background:
+
+a. All four officers retired under the CIARDS system 31 December 1974 and are currently contract employees, contracts to expire 30 March 1975.
+
+b. It is proposed that Subjects' services be retained under consultant status on an in-termittent, as-needed basis as determined by Acting Chief, CI Operations, Mr. George T. Kalaris. In view of the long and unique experience of these officers in counter-intelligence, not duplicated in any other personnel, the new Acting Chief, CI Operations will want to have available the benefit of their advice and counsel during the next few months.
+
+CONFIDENTIAL.

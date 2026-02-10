@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_31616.png
+
+Convert to Markdown**CONFIDENTIAL**
+
+Draft Note to Czechoslovak Government
+
+# Portion in Text
+
+Following is text note for transmission FOUFF in reply to its
+note July 20.
+
+Begin text. The American Embassy presents its compliments to the Czechoslovak Ministry of Foreign Affairs and with reference to the Ministry's Note of July 20, 1953, concerning the release of balloons from the US Zone of Germany has the honor, upon instructions of the US Government, to make the following reply:
+
+The balloons apparently in question were not released by any official agency of this Government but by the Crusade for Freedom, an organization established by private American citizens. The US Government has ascertained that the balloons were released for the purpose of communicating with the people of Czechoslovakia.
+
+It is a fundamental conviction of the American Government and people that free communication between peoples constitutes a principle upon which the very life of the international community should be founded. If any government attempts to erect a wall sealing off its people from contact with the outside world, it is inevitable that ways will be found both by the people inside that country and by the peoples of other countries outside to penetrate that artificial barrier and maintain some line of contact with one another. The use by those outside of such media as balloons confirms that the Czechoslovak Government has created a barrier interfering with free communication. The US believes that the best assurance that this means of communication will not be used is to obviate the need for it by permitting what is natural and necessary in the modern world, namely, free contact between nations and the free exchange of information and ideas.
+
+As for
+
+CONFIDENTIAL

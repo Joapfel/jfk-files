@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_31618.png
+
+Convert to MarkdownFollows Radio Prague announcement 0510 today re note on balloons:
+
+"The Ministry of Foreign Affairs has sent the following note to the Embassy of the United States on July 20, 1953:
+
+During the past days balloons were sent to Czech territory with leaflets of a nature designed to insight discontent of the population and to encourage anti-state activities. This new attempt to influence the Czech working people with propaganda means of so primitive a level, understandably met with indignate instances, that the entire action was prepared and carried out by American citizens sent for this purpose to Germany, to German territory under US occupation administration. It is therefore a new instance where the US Government abates its position as an occupation power towards ends incomparable with the four power agreement on Germany, which binds the US to carry out the occupation according to the basic tenet that Germany is never again to become a threat to world peace and its neighbors.
+
+Another important factor which makes this new violation of basic principle of international law particularly objectionable in the fact that it took place at a time when the nations of the entire world are increasing their efforts to strengthen the peace and assure peaceful cooperation.
+
+The aim of this preparative action, organized under the protection of US occupation authorities is to increase the policies of the so-called cold war and to prevent a loosening of international tensions.
+
+For these reasons the Government of Czech decisively protest against this action and asko the Government of the US to furnish information on the steps taken to prevent similar persecution aimed against peaceful co-existence of nations, representing crude interference in internal Czech affairs."

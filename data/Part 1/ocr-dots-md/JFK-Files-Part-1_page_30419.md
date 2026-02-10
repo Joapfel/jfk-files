@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_30419.png
+
+Convert to MarkdownSECRET
+
+When filled in
+
+<table><tr><td>SECTION VIII</td></tr><tr><td colspan="2">AGENCY EMPLOYMENT HISTORY</td></tr><tr><td>1. INCLUSIVE DATES FROM TO BE complete & year</td><td>2. LOCATION (Country, City)</td><td>3. DIRECTORATE OFFICE OR DIVISION, BRANCH</td></tr><tr><td>August 1965 - present</td><td>Washington, D.C.</td><td>CJ/Technical Division</td></tr><tr><td>* TITLE OF JOB</td><td colspan="2">S.GRADES HELD IN JOB</td></tr><tr><td>Chief, Technical Division</td><td colspan="2">GS-15</td></tr><tr><td>* DESCRIPTION OF DUTIES</td><td colspan="2">Supervision of the Office of Security audio countermeasures program domestically and overseas.</td></tr><tr><td>4. INCLUSIVE DATES FROM TO be complete & year</td><td>2. LOCATION (Country, City)</td><td>3. DIRECTORATE OFFICE OR DIVISION, BRANCH</td></tr><tr><td>Aug 64-Aug 65</td><td>Montgomery, Alabama</td><td>OS</td></tr><tr><td>* TITLE OF JOB</td><td colspan="2">S.GRADES HELD IN JOB</td></tr><tr><td>student-Air War College</td><td colspan="2">GS-15</td></tr><tr><td>* DESCRIPTION OF DUTIES</td><td colspan="2">Agency-sponsored - student at Air War College, study of national strategy & international affairs.</td></tr><tr><td>6. INCLUSIVE DATES FROM TO be complete & year</td><td>2. LOCATION (Country, City)</td><td>3. DIRECTORATE OFFICE OR DIVISION, BRANCH</td></tr><tr><td>June 62-Aug 64</td><td>Germany, Frankfurt</td><td>EE/Security Branch</td></tr><tr><td>* TITLE OF JOB</td><td colspan="2">S.GRADES HELD IN JOB</td></tr><tr><td>Chief, Security Branch, German Station</td><td colspan="2">GS-15</td></tr><tr><td>* DESCRIPTION OF DUTIES</td><td colspan="2">Chief of Security Branch activities in behalf of the German Station and supervision of certain security functions, such as polygraph and audio countermeasures, performed elsewhere in Western European area for the Agency.</td></tr></table>
+
+SECRET
+- 5 -

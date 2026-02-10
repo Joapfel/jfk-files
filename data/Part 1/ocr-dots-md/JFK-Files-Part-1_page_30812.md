@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_30812.png
+
+Convert to MarkdownSEC. :?:
+
+In the Spring of 1949 I was questioned by a Postal Inspector about a letter I had mailed approximately one year previous for a Mr. Halren. He was the Display man for Allen and Jeffer son Hardware Co., in Tupperl Ann, Ala. I had been working with him for some time dressing windows, painting and decorating.
+
+The letter in question was addressed to Mrs. Halren, who was out of town, and apparently con-
+tained some money. I believe it was a dollar. The
+letter was received but there was no money in it.
+
+I stated that I had known nothing of any money
+and that I also had had a feel ox with me when the
+letter was mailed. I wrote to Mr. Halren about the
+incident but never had re from him.
+
+There were apparently no further inquiries
+as to I have heard nothing since the Postal Inspecto
+questioned me.

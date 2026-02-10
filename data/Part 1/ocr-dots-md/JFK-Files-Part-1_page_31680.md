@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_31680.png
+
+Convert to MarkdownIt is estimated the cost will come to be around L300,000, making a total of 20,400,000 francs or 653,000.00 at 350 francs to a dollar.
+
+I am aware of your reasons for not wishing to commit real estate in Europe. However, the problem of finding suitable quarters for the College staff is a difficult one. Providing the funds are available, Ty and I are in favor of purchase, as these apartments provide an immediate partial solution to a difficult problem.
+
+If you should decide to take up the option, we can discuss the financial details of the purchase when you visit Paris next month."
+
+You will note that for the relatively small payment of 160,000 francs, an option will be granted valid until 1 May 1953, and since it is obvious that a final decision cannot be immediately made, I have cabled Paris, requesting that the option be purchased so that we may have time to consider the problem carefully.
+
+I shall be in Washington next Sunday evening and available for discussion Monday morning. If you have not been able to clear the question before then, I suggest that you set up a meeting with George Lefton at which Daniel Church and I can present our views in the hope of obtaining prompt determination.
+
+Sincerely,
+
+g, William L. Eddy
+
+SECRET
+Security Information on
+
+14-00000"}]

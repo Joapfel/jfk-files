@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_31260.png
+
+Convert to Markdown3 December 1959
+
+MEMORANDUM FOR: Chief, SR
+
+ATTENTION: Mr. Lee Wigren
+Mr. Joseph Evans
+Mrs. Kay Grady
+Mr. Edward Knowles
+
+SUBJECT: Training program for three Swiss Federal Police officers.
+
+1. The Swiss Branch of the Eastern European Division wishes to express its appreciation to SR Division for its cooperation and support, in particular for the personal contribution of four of its officers, Mr. Lee Wigren, Mr. Joseph Evans, Mrs. Kay Grady, and Mr. Edward Knowles, during the recent training program for three Swiss Federal Police officers.
+
+2. Mr. Wigren's, Mr. Zvan's, Mrs. Grady's, and Mr. Knowles's uniformly excellent briefings on the Soviet Intelligence Services, their legal and illegal support structures, and their modus operandi contributed significantly to what we have reason to believe was a successful training venture. To this must be added the comments of the Swiss officers who pointed out that they were most impressed by the comprehensive and systematic development of the various themes which Mr. Wigren, Mr. Evans, Mrs. Grady, and Mr. Knowles presented and admitted that the briefings added a good deal to their knowledge of the subject.
+
+Robert N. Crowell,
+Chief, RE/Switzerland

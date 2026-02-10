@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_30653.png
+
+Convert to MarkdownSECRET
+
+CONFIDENTIAL FUNDS PERSONNEL ACTION
+
+<table><tr><td>NAME</td><td colspan="2">MITLER, Newton S.</td><td>DATE</td><td>1 June 1949</td></tr><tr><td colspan="5">RESIDENCE AT TIME OF EMPLOYMENT</td></tr><tr><td colspan="5">LOCAL ADDRESS</td></tr><tr><td>CITIZENSHIP</td><td>SIA</td><td>DATE OF BIRTH</td><td>MARITAL STATUS</td><td>NO. OF DEPENDENTS</td><td>DATE OF APPOINTMENT</td></tr><tr><td>NATURE OF ACTION</td><td colspan="3">Change of station</td><td colspan="2">EFFECTIVE DATE<br/>27 April 1949</td></tr><tr><td>TITLE</td><td colspan="2">FROM</td><td colspan="3">TO</td></tr><tr><td>GRADE AND SALARY</td><td colspan="2">Intelligence Officer (Ops)</td><td colspan="3"></td></tr><tr><td>OFFICE</td><td colspan="2">CAF-9 8470.60</td><td colspan="3"></td></tr><tr><td>BRANCH</td><td colspan="2">OSO</td><td colspan="3"></td></tr><tr><td>DIVISION</td><td colspan="2">YES</td><td colspan="3"></td></tr><tr><td>OFFICIAL STATION</td><td colspan="2">Changta1</td><td colspan="3">Takeo - Comd.</td></tr><tr><td colspan="6" style="text-align: center;">APPROVAL</td></tr><tr><td>FIELD</td><td colspan="3"></td><td colspan="2">HEADQUARTERS</td></tr><tr><td>CHIEF OF STATION</td><td colspan="3"></td><td colspan="2">FOR THE ASSISTANT DIRECTOR</td></tr><tr><td></td><td colspan="3"></td><td colspan="2">PERSONNEL OFFICER</td></tr><tr><td colspan="5">POST DIFFERENTIAL AUTHORIZED IN ACCORDANCE WITH AGENCY REGULATIONS [ ] YES [x] NO</td></tr><tr><td colspan="5">CATH OF OFFICE AND NO STRIKE AFFIDAVIT EXECUTED ON __________</td></tr><tr><td colspan="5">SECURITY CLEARED ON __________</td></tr><tr><td colspan="5">OVERSEAS AGREEMENT SIGNATUR __________</td></tr><tr><td colspan="5">ENTERED ON DUTY __________</td></tr><tr><td colspan="5">AUTHENTICATED BY __________</td></tr><tr><td colspan="5">REMARKS</td></tr><tr><td colspan="5">Per In Cable 31706</td></tr></table>
+
+SECRET

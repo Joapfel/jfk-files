@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_31431.png
+
+Convert to Markdown23 October 1952
+
+MEMORANDUM FOR: DEPUTY DIRECTOR (PLANS)
+
+SUBJECT: Maynard Barnes and Curmel Offie
+
+1. In conversation the other day you asked me through what channel Maynard Barnes and Curmel Offie were stating their opinions on the matter of NCFE's request to move the administrative headquarters of the exile countries from Washington to New York, and who was listening to Barnes and Offie.
+
+2. The channel seems to be the Southeastern European Division and in particular Colonel Yatsevitch, SE/CIP. The Southeastern European Division maintains an extremely skeptical view of NCFE activities in the exile field and has gone to considerable trouble, through exiles as well as through Barnes and Offie, to create the greatest possible objection not only to the recent move of the exiles but to NCFE in general. I am attaching an article by Edgar A. Mowrer which was written at the behest of Mr. Offie and was originally intended to be the first of a series. We have been successful in having the series idea dropped.
+
+3. While I believe that there is some justification in the points made by the SE Division continually makes about the exile record of the New York Committee, I think the inter-governmental squabble which is caused by the Division's repeated attempts to use exiles, members of the State Department, and others as a sounding board for its own lack of sympathy with NCFE makes it difficult for the National Committee to fulfill its charter and for CIA to control day-to-day operations without interference from the State Department and others from outside the Agency.
+
+4. I suggest that you send the attached memorandum to the Chiefs of E, SE and TO. It is worded in such a manner that it will not reveal this reference.
+
+THOMAS W. ERADEN
+Chief
+International Organizations Division
+
+2 Attachments
+
+1. Mowrer article.
+
+2. Suggested memo.

@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_31766.png
+
+Convert to Markdown# SECRET
+Security Information
+
+- 5 -
+Those discussions have covered a wide variety of subjects which can generally be described as follows:
+
+(1) What in MTT's place as a whole in American policy toward the satellite nations? What in American policies are likely?
+
+(2) How can MTT, especially the Division of Foreign Relations, contribute more effectively to psychological and political affairs, not only for effects similar to those of Iron Curtain, but in the Free World? For example - How can it further engage in further activities in the pattern of its successful actions at the United Nations? Has Labor bearing and the international Red Cross meetings at Toronto?
+
+(3) Should MTT continue to support other councils, or should some other technique be developed which can enable it to do more effective use of agreements for psychological warfare purposes?
+
+(4) How can the Research and Publications Division, the Division of Intellectual Cooperation, and the Free Nations' best contribute to these efforts?
+
+(5) Is MTT efficiently organized? What, for example, is the effect of the Division of Intelligence Relations' dealings with allies on the position of WPs in Europe, etc.?
+
+(6) How can we give specific guidance to MTT? What kind of information is wanted, for example, by MTT? What studies are needed of overcoming barriers can be made available to MTT? How can American and British regulations in the satellite net provide guidance and information for MTT?
+
+TTR
+
+There are, in addition, some specific current issues that should be mentioned. They are:
+
+(1) The position in Germany: The position of Radio Free Europe in Germany is currently increasingly difficult. The political situation in Germany has developed so that the German expatriates, migrating since 9,000,000 voters, have joined with the extreme nationalist elements, one of whom are non-German expatriates, a group approved Separatists. This groups holds a potential possible balance of power between the CDU and the SPD. As a result, both parties, but particularly the SPD, are becoming more vociferously nationalistic. This, as an American operation in Germany, including the Voice of America, will be the subject of press conference, "If it is most vulnerable of all because of its Eastern European personnel and the nature of its broadcast." The problems are the subject of careful study at the present time by MTT, and others.

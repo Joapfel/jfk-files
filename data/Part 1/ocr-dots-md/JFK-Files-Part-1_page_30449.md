@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_30449.png
+
+Convert to MarkdownMr. Newton S. Miler
+
+Dear Mr. Miller:
+
+The United States Government, as represented by the Central Intelligence Agency, hereby contracts with you as an intermittent consultant and you, by your signature below, hereby contract with the United States Government, according to the following terms and conditions.
+
+1. **Status.** Your legal status under this agreement is that of an independent contractor. Nothing contained herein shall be construed as implying the creation of an employee-employer relationship.
+
+2. **Service.** In consideration of the fee set-out in the next paragraph, you agree to make yourself available to the contracting office and provide consultation as requested in a place and time as mutually agreed.
+
+3. **Fee.** In full consideration for your service as an intermittent consultant, you will be paid a fee calculated at the daily rate of $138.48. Add fees shall not exceed a total of $5,200 under this contract.
+
+4. **Taxes and Withholdings.** The Agency will make no deductions or withholdings for income tax or social security from the fees paid you. Rather, an IRS Form 1099 will be issued to you on a calendar year basis or upon the termination of this contract. You acknowledge that it is your responsibility to satisfy both your Federal and self-employment tax liabilities.
+
+5. **Expenses.** You will be provided funds for travel and such other expenditures as are in consonance with the service you are to provide when authorized by the contracting office, such authorizations not to exceed those provided to employees under Agency regulations. Accountings for such funds will be rendered in conformance with Agency regulations.
+
+6. **Secrecy.** By virtue of this contract, you will become privy to employees, associates, plans, programs, methods and other information of the Central Intelligence Agency, in particular, and the U.S. Intelligence Community, in general. As a specific condition of this contract, you agree to keep forever secret, all classified information so obtained, to refrain from presenting a paper, writing for publication, making a speech through any media or forum, or other public statement on the subject of intelligence, factual or fictional, on a subject related to programs and functions of the Agency or the Intelligence Community, without the prior written authorization of the Director.

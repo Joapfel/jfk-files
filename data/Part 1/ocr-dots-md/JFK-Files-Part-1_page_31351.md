@@ -1,0 +1,58 @@
+# JFK-Files-Part-1_page_31351.png
+
+Convert to MarkdownSEC. 9. MOTHER-IN-LAW
+
+FULL NAME Buelah Sara Redder (First) (Middle) (Last)
+
+LIVING OR DECEASED LATE OF DATE OF DECEASE CAUSE
+
+PRESENT, OR LAST, ADDRESS (St. and Number) (City) (State) (Country)
+
+DATE OF BIRTH State of Birth, if known, or Place of Birth, if not, State and Place of Birth
+
+IF BORN OUTSIDE U. S. INDICATE DATE AND PLACE OF ENTRY
+
+CITIZENSHIP U.S. WHEN ACQUIRED State of Birth, if known, or Place of Birth, if not, WHERE U.S. Birth, if known, or Place of Birth, if not, IF NOT ACQUIRED, THEN ACQUISITION YEAR HEREIN.
+
+OCCUPATION LAST EMPLOYER State and City of Last Employer, then, State and City
+
+SEC. 10. RELATIVES BY BLOOD, MARRIAGE OR ADOPTION, WHO EITHER LIVE ABROAD OR WHO ARE NOT CITIZENS OF THE UNITED STATES:
+
+1. NAME RELATIONSHIP AGE
+
+CITIZENSHIP ADDRESS (State and Country) (City) (State) (Country)
+
+2. NAME RELATIONSHIP AGE
+
+CITIZENSHIP ADDRESS (State and Country) (City) (State) (Country)
+
+3. NAME RELATIONSHIP AGE
+
+CITIZENSHIP ADDRESS (State and Country) (City) (State) (Country)
+
+SEC. 11. RELATIVES BY BLOOD OR MARRIAGE IN THE MILITARY OR CIVIL SERVICE OF THE U.S. OR OF A FOREIGN GOVERNMENT: NONE
+
+1. NAME RELATIONSHIP AGE
+
+CITIZENSHIP ADDRESS (State and Country) (City) (State) (Country)
+
+TYPE AND LOCATION OF SERVICE (IF KNOWN)
+
+2. NAME RELATIONSHIP AGE
+
+CITIZENSHIP ADDRESS (State and Country) (City) (State) (Country)
+
+TYPE AND LOCATION OF SERVICE (IF KNOWN)
+
+3. NAME RELATIONSHIP AGE
+
+CITIZENSHIP ADDRESS (State and Country) (City) (State) (Country)
+
+TYPE AND LOCATION OF SERVICE (IF KNOWN)
+
+(5)
+
+FORM NO.
+SEP. 1939
+
+14-00000

@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_30515.png
+
+Convert to Markdown24 November 1952
+
+MÉMOI RANDU
+
+TO : Chief of Mission
+
+FROM: Chief of Operations
+
+SUBJECT: Request for Promotion of H. S. Kilfer
+
+A. Subject is the Chief, Child Section. During the past 9 months and under his aegis, the Section has grown from a 3 - 4 man section with 2 or 3 additional people in the field, to approximately 10 people at Nqs and 1 to 5 in the field at all times. During this time, he has taken on the tremendous additional responsibility in his section of the primary handling of FCI relations with and support of HT LERLIN, as well as the building up a sound basis of an enlarged FCI sub-station in Hong Kong, in addition to the overall direction of all FCI China Independent operations.
+
+B. Subject requires little supervision or assistance in carrying out his job. He is mature and competent.
+
+C. Subject exercises a maximum of independent action, directing his section and at the same time giving what amounts to on-the-job training to the junior case officers assigned to him.
+
+D. Subject supervises directly the 14-15 individuals mentioned in A above. As such he is responsible for all their work. He has discharged this responsibility, a particularly heavy one in view of the inexperience of his personnel, in an exemplary fashion.
+
+E. Subject is a highly qualified operations officer with demonstrated executive abilities and hard working. He has consistently made a major contribution to the proper functioning of FCU.

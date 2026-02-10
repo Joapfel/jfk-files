@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_31646.png
+
+Convert to Markdown3 July 1953
+
+MEMORANDUM FOR: DIRECTOR OF CENTRAL INTELLIGENCE
+SUBJECT: D'Arcy Brophy and Louis Novins' Trip to Europe
+
+1. Mr. Brophy and Mr. Novins tell me that you have agreed to pay their expenses for their trip to Europe. I told them that since they were traveling on our business they should draw the money from Heritage Foundation funds which have been made available.
+
+2. I think this is the best way of handling the transaction. Novins gave me some representations that it would be better to channel funds for the trip through one of his clients, Paramount Pictures. This seems to me complicated and insecure, and I recommend that if this subject is raised with you directly, you again suggest use of Heritage funds.
+
+THOMAS W. BRADEN
+Cite?
+International Organizations Division
+
+CIO:TWS/eh
+
+Orig - Addressee
+1 cc - 10/Dr I
+1 cc - CIO
+1 cc - RI
+
+SECRET

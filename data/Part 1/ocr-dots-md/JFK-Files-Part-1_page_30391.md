@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_30391.png
+
+Convert to MarkdownSECRET
+
+SEC. II. WORK EXPERIENCE
+
+1. State the nature of duties performed with this organization, starting with your present position. Approximate dates (month and year) are sufficient. Use a continuation sheet, if necessary, to adequately describe your duties.
+
+<table><thead><tr><th colspan="3">From / To Tot.mos.</th><th>Description of Duties:</th></tr></thead><tbody><tr><td>Grade</td><td> Salary</td><td> 50 </td><td>Jan. 1992 to Mar. 1992</td></tr><tr><td>Office</td><td>I CO</td><td></td><td></td></tr><tr><td colspan="3">Position</td><td></td></tr><tr><td colspan="3">Title: General Counsel</td><td></td></tr><tr><td>Duty</td><td>Title: General Counsel</td><td></td><td>Duty Station, if overseas:</td></tr></tbody><thead><tr><th colspan="3">From To Tot.mos.</th><th>Description of Duties:</th></tr></thead><tbody><tr><td>Grade</td><td>Salary</td><td></td><td></td></tr><tr><td>Office</td><td></td><td></td><td></td></tr><tr><td colspan="3">Position</td><td></td></tr><tr><td colspan="3">Title:</td><td></td></tr><tr><td>Duty</td><td>Title:</td><td></td><td>Duty Station, if overseas:</td></tr></tbody><thead><tr><th colspan="3">From To Tot.mos.</th><th>Description of Duties:</th></tr></thead><tbody><tr><td>Grade</td><td>Salary</td><td></td><td></td></tr><tr><td>Office</td><td></td><td></td><td></td></tr><tr><td colspan="3">Position</td><td></td></tr><tr><td colspan="3">Title:</td><td></td></tr><tr><td>Duty</td><td>Title:</td><td></td><td>Duty Station, if overseas:</td></tr></tbody><thead><tr><th colspan="3">From To Tot.mos.</th><th>Description of Duties:</th></tr></thead><tbody><tr><td>Grade</td><td>Salary</td><td></td><td></td></tr><tr><td>Office</td><td></td><td></td><td></td></tr><tr><td colspan="3">Position</td><td></td></tr><tr><td colspan="3">Title:</td><td></td></tr><tr><td>Duty</td><td>Title:</td><td></td><td>Duty Station, if overseas:</td></tr></tbody><thead><tr><th colspan="3">From To Tot.mos.</th><th>Description of Duties:</th></tr></thead><tbody><tr><td>Grade</td><td>Salary</td><td></td><td></td></tr><tr><td>Office</td><td></td><td></td><td></td></tr><tr><td colspan="3">Position</td><td></td></tr><tr><td colspan="3">Title:</td><td></td></tr><tr><td>Duty</td><td>Title:</td><td></td><td>Duty Station, if overseas:</td></tr></tbody></table>
+
+SECRET

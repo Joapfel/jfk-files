@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_30738.png
+
+Convert to MarkdownMEMORANDUM FOR THE RECORD
+
+SUBJECT : Retirement - Scott Miler
+
+1. The retirement of Subject, effected as a result of a memorandum from the Head of his Career Service stating that he is surplus to the needs of the Service and that his retirement will be recommended to the Director under the provisions of the CIA Retirement and Disability System pertaining to involuntary retirement, in no way implies an adverse action. Subject signed an application for retirement of his own voltage in order to qualify for an immediate retirement annuity. The liberalized criteria for such separations was established by the Agency to parallel similar action under the Civil Service Retirement System in accordance with FPM Letter No. 831-23, dated 10 December 1969.
+
+2. Any inquiry received concerning the nature of the separation of Subject from the Agency should be confirmed simply as a retirement.
+
+Ronald Gage
+Chief
+Retirement Affairs Division

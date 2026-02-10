@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_30831.png
+
+Convert to MarkdownSERVICE COMPUTATION DATE - Jorony E. BENJADUN (P)
+
+| Service | From | To | Years | Months | Days |
+|---|---|---|---|---|---|
+| Active duty in U.S.Army | 26 Oct 39 | 31 Jul 40 | - | 9 | 5 |
+| Federal Bureau of Investigation | 12 Aug 40 | 31 Oct 60 | - | - | - |
+| CIA Career Agent | 30 Oct 60 | date | - | - | - |
+
+Main: 12 Aug; 1940 as a base date less above total creditable time
+equals a SCD of: 7 November 1939.
+
+Paul Wilson
+
+10 Jun 1969

@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_30720.png
+
+Convert to MarkdownSubject is a highly qualified operations officer with demonstrated executive abilities. His primary shortcoming is his lack of self-discipline as far as his personal self is concerned. This has resulted in subject's inability to observe normal working hours and reporting for duty. It is not meant to infer that subject has been lax in total number of hours devoted to his job, rather he is inclined to set his own schedule, claiming illness as the cause. In considering the above, it should be kept in mind that subject has been in the field over three years, and is overdue for a mental and physical rest. It is recommended that subject be considered for a Head-quarters assignment in a senior operations capacity.

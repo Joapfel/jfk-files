@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_31582.png
+
+Convert to MarkdownSEC.1
+SECURITY INFORMATION
+
+- 2 -
+
+Hungary and Poland over a period of two to three weeks;
+
+2. The Crusade can deliver 2,000,000 to 3,000,000 lbs. of food in 400,000 to 600,000 balloons into Czechoslovakia, Hungary and Poland over a period of five to six weeks;
+
+Capabilities (1) and (2) above, are possible within the time periods indicated only if U.S. military facilities and equipment for the necessary procurement and stand-by storage of the hydrogen gas for the balloons is available. (20,000,000 cubic feet of hydrogen gas will fill 200,000 balloons sufficient to lift 1,000,000 lbs.) If such storage facilities, etc. are not available, the time periods must be revised for (1) and (2) above to two months and three months respectively;
+
+3. First balloon launching could commence within sixty days of project authorization,
+
+4. Each food package, suspended to one balloon, would contain five lbs. of staples. (sugar, fat, flour, coffee, chocolate) Packages will be sealed and/or wrapped with polyethylene.
+
+B. Costs:
+
+1. Costs of operation into Czechoslovakia, Hungary and Poland would be approximately $1.15 per net pound of food delivered, or a total figure of $1,166,000.00 for each 1,000,000 lbs. delivered.
+
+2. Costs of operation into Albania, Bulgaria, Romania and Baltic areas would be greater, due to added technical factors, necessity of shipboard launchings, etc. The unit cost figure would be $1.55 per net pound delivered.
+
+C. Operational Considerations:
+
+1. If delivery of food into satellite areas is considered feasibly, realistically sound, then entire operational effort must be centered at launching -- delivery of food in the shortest period of time. Counteraction to the impact of food deliveries will be immediate and sustained to include "tampering" with food packages, wholesale arrest, BW charges bolstered by staged photography.
+
+2. Launching sites previously used by the Crusade for Freedom for balloon operations into Czechoslovakia were located along the Czech frontier between Chisina and Hof. For launchings into Poland and Hungary, sites in Berlin and in and around Graz, Austria, respectively, would be the most operationally satisfactory.
+
+SECRET
+SECURITY INFORMATION

@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_30719.png
+
+Convert to MarkdownSECRET
+
+# Sections 7 through 10 be completed by immediate supervisor
+
+7. Period covered by this report: Date from: 31 may 1914 to 26 may 1915 Occasion for reports and surveys: Commencement of Department Officer Proposed assignment of employee reported on: [ ] , leaving: [x] 1 - 70 days or of employment:
+
+8. In this employee is classified to perform all present duties: Yes [x] No [ ] In employee better classified for other duties: Yes [ ] No [x] If so, what duty of position:
+
+Do you concur in employee's description of duties under section 7? [x] Yes [ ] No [ ] If so, employee in Section II.
+
+Has employee striven for professional improvement: Yes [x] No [ ] Do you recommend employee for promotion: Yes [x] No [ ] If so, to what grade did for that position:
+
+9. For each factor observed check the appropriate box to indicate if the employee compares with all others of the same classification in a given position. Did he do so personally? To not limit this question, to the others now under his supervision. Do not intend to order him to perform "as good as observed" on any quality when appropriate.
+
+Evaluating Factors
+
+Not Applicable - Crossed Out Very Good - Applicable
+
+A. Ability to work and get along with people
+B. Interest and enthusiasm in work
+C. Security considerations
+D. Ability to give instructions and lead
+E. Attention to detail
+F. Judgment and common sense
+G. Ability to obtain, process and get things done
+H. Disposition
+I. Initiative
+J. Ability to handle a wide range of people
+K. Performance of past duties (List all)
+L. Ability to evaluate (get inside info)
+M. Fact
+N. Quality (Non-Functional)
+O. Locality
+P. Physical strain
+Q. Mental Strain
+
+10. Indicate your action in this employee as to any changes in supervisory style. [ ] Add, change or withdraw. [x] Replace or transfer to another unit. [ ] Be, in turn, transfer to another unit or be transferred by another unit. [ ] Be, in turn, transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be, in turn, transferred by another unit or be transferred by another unit. Be

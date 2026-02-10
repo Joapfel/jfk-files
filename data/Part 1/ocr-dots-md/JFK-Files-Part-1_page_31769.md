@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_31769.png
+
+Convert to MarkdownAfter conferences with the State Department, it was agreed that VOA and RFE were complimentary activities and that in the future the Crusade:
+
+(1) Would not put out anything which might be interpreted as a criticism of the Voice. To that end, an attached leaflet was inserted as an insert in the January 1952 "Crusader", a newsletter which was sent out to the 8,000 regional chairman of the Crusade for Freedom. It was intended to acquaint the regional Crusade organisations with the facts about the Voice of America and to offset any criticism or unfortunate comparison between Radio Free Europe and the Voice of America.
+
+Financial results were as follows:
+
+Expenses: $1,932,478
+Contributions: $2,011,229.9k
+
+## 1952 CAMPAIGN
+
+The 1952 Crusade Campaign was begun by General Eisenhower, Adlai Stevenson and Henry Ford, II, the 1952 Campaign Chairman. The Campaign was endorsed in a letter from President Truman:
+
+"I understand that on the success of the 1952 Crusade rests the plans of the Crusade for Freedom to build more radio stations in Free Europe and Asia. If this can be done, and I believe that it will be done, the Free world can more effectively get the truth behind the Iron Curtain."
+
+"It is essential that the people everywhere know that we are working for peace, freedom and prosperity for all mankind."
+
+The assistance of the Advertising Council was enlisted and for the first time outdoor billboard advertising was used. Records were made containing 2 fifteen minute programs on "The RFE story" and spot films were arranged for television with narration by Henry Fonda.
+
+For the first time, fund raising letters seeking large contributions were sent to all leading corporations.
+
+The Campaign was highly organised on the local level with state chairmen in almost every state. The Post Office Department permitted the use of a local post office address for receipts. Endorsements were obtained from many organisations such as the American Legion, VFW, CIO, National Auto. Dealers, American Brewers Foundation, and Catholic War Veterans etc. For fund raising

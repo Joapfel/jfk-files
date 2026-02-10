@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_31580.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+SECURITY INFORMATION
+
+Daily Guidance 590, August 20, 1953, Page 2, Paragraph f:
+
+Note that ICFTU followed up on its promises reported here and created special fund for support of Soviet Zone workers.

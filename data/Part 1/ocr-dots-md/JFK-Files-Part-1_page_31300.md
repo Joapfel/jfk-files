@@ -1,0 +1,135 @@
+# JFK-Files-Part-1_page_31300.png
+
+Convert to MarkdownSECRET
+
+**6. CONSTRUCTIVE IMAGINATION**
+
+Not observed.
+
+1
+
+Devoid of imagination or inventiveness in approach to problems.
+
+2
+
+Should only a very limited degree of imagination.
+
+3
+
+Showed sufficient imagination to meet most school situations adequately.
+
+4
+
+Demonstrated the possession of creative ability to a greater than average degree.
+
+5
+
+Outstandingly creative, inventive, or original.
+
+7. FACILITY OF ORAL EXPRESSION
+
+Not observed.
+
+1
+
+Unable to express self clearly. Presented ideas in a groping and incongruent fashion.
+
+2
+
+Lacked fluency or ease in his speech, but meaning usually clear.
+
+3
+
+Displayed reasonable facility in oral expression.
+
+4
+
+Spoke confidently, conveying ideas clearly and readily.
+
+5
+
+Outstanding in fluency and clarity of oral expression.
+
+8. FORCEFULNESS
+
+Not observed.
+
+1
+
+Was not able to project his own personality and ideas to others.
+
+2
+
+Rarely convinced anyone of his point.
+
+3
+
+Was fairly successful in selling a point or himself.
+
+4
+
+Was able to influence or control others through his personality and thinking.
+
+5
+
+Outstanding in ability to command attention and respect through personal forcefulness.
+
+9. ADAPTATION TO TRAINING
+
+Not observed.
+
+1
+
+Did not adjust to training program. Remained disorientated, an outsider.
+
+2
+
+Accepted training, but with reluctance.
+
+3
+
+Adapted himself to most aspects of training.
+
+4
+
+Accepted the training situation with good spirit.
+
+5
+
+Accepted training with obvious enthusiasm.
+
+10. TACT
+
+Not observed.
+
+1
+
+Continually alluded others by indistinct actions or words.
+
+2
+
+Occasionally said or did something which induced an unfavorable reaction.
+
+3
+
+Not skilled, but avoided arousing antagonism in dealing with others.
+
+4
+
+And good discernment for the appropriate thing to say or do.
+
+5
+
+Showed keen perception for fitting speech or conduct at all times.
+
+## 3. REMARKS:
+
+APPROVED.
+
+CHIEF, STR
+
+REVIEWED.
+
+CHIEF, RES
+
+SECRET

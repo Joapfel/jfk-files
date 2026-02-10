@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_30606.png
+
+Convert to Markdown<table>
+    <tbody>
+        <tr>
+            <td colspan="3">"PAY ADJUSTMENT IN ACCORDANCE WITH S U.S.C. 5305 AND EXECUTIVE ORDER 11691 PURSUANT TO AUTHORITY OF OCI AS PROVIDED IN THE CIA ACT OF 1949, AS AMENDED, AND OCI DIRECTIVE CATED 08 OCTOBER 1962."</td>
+        </tr>
+        <tr>
+            <td>NAME</td>
+            <td>SERIAL ORGN.</td>
+            <td>FUNDS CR-STEP</td>
+            <td>NEM SALARY</td>
+        </tr>
+        <tr>
+            <td>MILEE NEWTON SCOTT</td>
+            <td>31 400 CF GS 16 5</td>
+            <td></td>
+            <td>$36,000</td>
+        </tr>
+    </tbody>
+</table>
+
+"PAY ADJUSTMENT IN ACCORDANCE WITH S U.S.C. 5305 AND EXECUTIVE ORDER
+11691 PURSUANT TO AUTHORITY OF OCI AS PROVIDED IN THE CIA ACT OF 1949,
+AS AMENDED, AND OCI DIRECTIVE CATED 08 OCTOBER 1962."
+
+EFFECTIVE DATE OF PAY ADJUSTMENT: 07 JANUARY 1973
+
+EFFECTIVE DATE OF PAY ADJUSTMENT CORRECTED FROM
+7 JAN 1973 TO 1 OCT 1972 UNDER EXECUTIVE ORDER
+11777, DATED 12 APR 1976 BY FUNDS CR-STEP
+
+AEN
+SALARY
+
+MILER NEWTON SCOTT      C12773     31 400 CF GS 16 5         $35,369

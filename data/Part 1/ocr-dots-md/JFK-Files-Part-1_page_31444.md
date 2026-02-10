@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_31444.png
+
+Convert to Markdowna. They are useful insofar as they contain ideas that have not occurred to TONIC's own people or in reference to events that are not a matter of public knowledge.
+
+b. In most cases the guidance papers arrive so late that TONIC is already engaged in treating the next stage in the development of the propaganda theme suggested.
+
+c. As PY guidance papers, therefore, are at the moment another contribution to the thinking of TONIC officials, it is not possible to point to specific uses of the material suggested.
+
+d. To be most useful, propaganda guidance from PY should treat the development of special themes that have a specific relation to precise U. S. Government operations and objectives aside from general U. S. foreign policy goals. To be most useful to RFE, such guidance should be developed over a period of time in anticipation of the actual facts or operations making up such programs.
+
+FMONS BROWN
+Acting Chief
+International Organizations Division
+
+10/TNIC:WPD/CC
+
+Orig - Address
+1 cc - 10/TNIC
+1 cc - CIO
+2 cc - FI
+
+COPY

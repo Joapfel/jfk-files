@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_31250.png
+
+Convert to MarkdownMEMORANDUM FOR: Official Personnel File
+
+SUBJECT : Wigren, Lee H.
+
+1. Studies in Intelligence is the Agency's quarterly professional journal. It publishes a wide variety of unique material—historical, analytical, technical, etc.—on all aspects of intelligence both as a profession and as a function of national security and foreign policy. Employees whose writings are accepted for publication make a valuable contribution to the Agency's work which ought to be reflected in their official files.
+
+2. Accordingly, the Board of Editors wishes to record the fact that *Studies in Intelligence* has published the following material submitted by Mr. Wigren:
+
+Book Reviews: "Spy Ring" - Vol. V, No. 4 (Fall 1961)
+"Soviet Spy Ring" - Vol. VI, No. 2 (Spring 1962)
+
+HUGH T. CUNNINGHAM
+Chairman, Board of Editors
+***Studies in Intelligence***
+
+Distribution:
+
+✓ Subject's Official File
+
+1 - CI/Pers

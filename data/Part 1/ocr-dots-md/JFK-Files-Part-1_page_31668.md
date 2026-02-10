@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_31668.png
+
+Convert to Markdown3 April 1953
+
+MINORANDUM FOR: DEPUTY DIRECTOR (PLANS)
+DEPUTY DIRECTOR (ADMINISTRATION)
+
+SUBJECT: Request from the NFF for the release of 7,500,000 from the CIA held reserve for the FHI.
+
+1. Mr. Spencer Phoenix, on behalf of the NFF, upon authorization of the board of directors, has requested the release of 7,500,000 from the CIA held reserve for FHI capital construction for the following purposes:
+
+(a) "Alterations to the main building:
+
+Installation of a refrigerated cold room for the storage of food 85,600.
+Additional automatic bottles and equipment in the kitchen and service room 1,700.
+Additional office space on the second floor 600.
+Total 87,500.
+
+The original dining room installation provided for service for a student body of 100; the increase in enrollment (now almost 200) has demonstrated that more refrigeration and storage space and equipment is needed.
+
+Housing the women students in the main building with resultant changes in the physical layout has meant the readjustment of office space and it has proved possible to provide the new offices on the second floor for the estimated cost of 2600.
+
+(b) Improvements to the Permitted house adjoining the main building and used as residence by the Assistant Dean 6,000.
+
+Necessary additional furniture to replace items removed by lessor and improve living conditions. 1,200.
+
+Total 87,500.
+
+SECRET
+SECURITY INFORMATION

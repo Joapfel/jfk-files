@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_31453.png
+
+Convert to Markdown11 August 1952
+
+MIMORANDUM FOR: DEPUTY DIRECTOR OF CENTRAL INTELLIGENCE
+
+SUBJECT: Admiral Miller Letter about NCFE Personnel mentioned at the PRC Meeting on Friday, 8 August
+
+1. Attached hereto is Admiral Miller's answer on behalf of NCFE to numerous requests for personnel records of NCFE in order to provide CIA with basic information about this project.
+
+2. In view of NCFE's reluctance to provide us with such basic information, Mr. Braden and I have discussed the possibility of whether we could effectively perform a liaison function here for you without such information, and we are agreed that we cannot. As you know, it is not our purpose to use this information to harass people in New York or to quibble about salaries or details of assignments. We do think that the only way CIA can perform its responsibility toward NCFE is to keep itself fully informed in every field of NCFE's activity, and that knowing which employees are doing what is essential information.
+
+3. You suggested at the PRC meeting on 8 August that you might be able to give us a hand in our effort to get this information.
+
+WILLIAM F. DURKEE
+C/IC/TNIC
+
+Attachment
+
+As stated.
+
+IC/TNIC/WPD/ch
+
+Orig - Addressee
+1 co - CIO
+2 co - TNIC
+2 cc - RI
+
+SECRET

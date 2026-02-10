@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_31472.png
+
+Convert to Markdownthe conduct of relations between CIA and NCFE. This agreement provides the following:
+
+a. Adequate budget information upon which to evaluate the purposes and probable success of proposed NCFE activities as well as an adequate financial reporting system by NCFE so that this Agency can at all times be aware of and insure the approved expenditure of funds by NCFE.
+
+b. Adequate security arrangements so that every employee of NCFE has been given a security clearance necessary for the proper protection of this operation.
+
+c. The IO Division is to be the sole channel of liaison by NCFE to CIA and the State Department. The purpose of this provision is to insure adequate preparation and consistent policy guidance for NCFE in all its varied activities and to afford a single point of liaison and coordination with State Department and the area divisions of CIA. It is by no means intended to prevent officials and directors of NCFE from discussing problems with higher authorities and in fact the IO Division cannot give policy guidance without reference to higher authorities. In the past, however, NCFE has conducted liaison with many of the area divisions in CIA, with the State Department and with various officials in CIA, and there has been a resultant confusion.
+
+d. The agreement provides for the submission of monthly reports by NCFE so to the status of its substantive activities.
+
+### h. Attitudes of NCFE.
+
+The basic attitudes of NCFE about themselves is summed up by the comments on the first draft of the above-mentioned agreement by Spenceer Phenix:
+
+a. "Our friends can refuse to supply funds for disapproved activities but cannot legally or properly be given the 'right to disapprove or modify any activities or require abandonment, modification, or change in emphasis, in any of the existing programs'."
+
+b. "Again, no agreement between our friends and ourselves can legally diminish our corporate right to spend our corporate funds . . ."

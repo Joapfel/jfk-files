@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_31227.png
+
+Convert to MarkdownSECRET
+
+2. For the Reviewing Official (continued).
+
+Mr. Wigren has also asked that it be made a matter of record that, for a period of three months in 1950, he was acting chief of the Swedish Desk and handled these responsibilities effectively. I have agreed to cite the extent of his responsibilities. Certainly the routine business of the desk was kept moving during this period. I have pointed out with respect to the manner of his performance of his duties that his fitness report is not an unfavorable one. The factors which have turned this annual fitness report into a personal crisis for him are the simultaneous deferment of his hoped-for promotion, and the deferment of an overseas assignment for him -- both of which actions naturally reflect on his past performance. I have pointed out that we have to require appreciably better than average performances from officers we send overseas, that I believe we have in the Branch at least one better qualified candidate for the overseas assignment in question, and that I am obliged to give the assignment to the person I feel is best qualified.
+
+Perhaps understandably, Mr. Wigren continues to believe that this report is not a fair reflection of his performance. I have told him that I can go no further in attempting to explain my judgement and have asked that he discuss his situation with the Deputy Division Chief and/or the Division Chief. He agreed to do so.
+
+SECRET

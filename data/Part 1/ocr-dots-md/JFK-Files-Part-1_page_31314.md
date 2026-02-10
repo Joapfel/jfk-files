@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_31314.png
+
+Convert to Markdown30 December 1963
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Certificate of Completion - Midcareer Course No. 1
+7 October - 15 November 1963
+
+The attached certificate indicates that Lee H. Wigren, SR, has completed the Agency's Midcareer Course No. 1. This course is one part of the Agency's Midcareer Training Program.
+
+Among other topics, this course covers the functioning of the various components of the Agency, the functioning of other agencies of the U.S. Government, particularly those with intelligence and action responsibilities, and the Agency's relation to them. It also covers foreign, domestic, political and other factors affecting the policies of the U.S. Government.
+
+Lester C. Houck
+Chairman
+Midcareer Course
+
+SECRETariat

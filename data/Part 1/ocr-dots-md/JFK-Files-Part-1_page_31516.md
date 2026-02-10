@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_31516.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+14 July 1952
+
+**HISORANDUM FOR: DEPUTY DIRECTOR OF CENTRAL INTELLIGENCE**
+
+**SUBJECT: Transmittal of Papers on NCFE Views on Yugoslavia**
+
+1. Here are NCFE's views on Yugoslavia which you asked for.
+
+2. I am worried about item d) in particular. The other items may be justifiable on the grounds that we have to take care of people in this country, but item d) may seem to be taking unnecessary forward steps.
+
+3. As you suggested, we have asked the State Department for a review of the entire national council policy, and I am sure we will get State's views on Yugoslavia at this time.
+
+THOMAS W. BRADEN
+Chief
+International Organizations Division
+
+**2 Attachments**
+
+1. Ltr to Allen Dulles from Leonard Stein dtd 7 July 52.
+
+2. Memo dtd 2 July 52 to NCFE views on Yugoslavia.
+
+CIO:TWB:eh
+
+Grig - Addressee (thru PG/P)
+
+1 cc - CIO
+
+2 cc - IO/TOMIC
+
+2 cc - RI
+
+SECRET

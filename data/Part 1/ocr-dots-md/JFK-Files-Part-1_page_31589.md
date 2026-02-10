@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_31589.png
+
+Convert to MarkdownSECURITY INFORMATION
+
+SECRET
+
+JUN 29 1952
+
+MEMORANDUM FOR: CHIEF, INTERNATIONAL ORGANIZATIONS DIVISION
+
+ATTENTION: Branch One
+
+SUBJECT: General Pavlo Gruya Pavlovic (201 - 14578)
+
+REFERENCE: Memorandum from Deputy for Policy Coordination, SM to IO, dated 16 July 1952, Subject as above.
+
+1. Although not initially responsible for recommending that the NCFF subsidize General Pavlo Pavlovic, in referenced memorandum SE Division endorsed the continuation of payments by the NCFF to Subject on the basis of his ability to aid in research work being done for CIA at the Pentagon, as well as of his need no a meritorious exile. We have recently been advised by Miss Stern of your office that the NCFF wishes to discontinue this payment since Subject does not participate directly in the NCFF's activities. We have been further advised that if SE Division wishes General Pavlovic to receive a regular income from the NCFF, SM must provide the necessary funds.
+
+2. It is believed that termination of the subsidy by the HOPE will result in real personal hardship to the General, who, at the age of seventy, has no other known source of income. SE Division, however, is not in a position to provide the necessary funds, since this would necessitate the initiation of what would essentially be a charity project, falling more properly within the purview of IO/Branch One. Neither can this Division justify continuation of payments on the basis of work performed for SE, since he has been working primarily for the Department of the Army during the past year. The arrangements for his work at the Pentagon are such, however, that CIA can place research requirements on General Pavlovic whenever desirable.
+
+3. In reviewing the case this year, we have ascertained from the Department of the Army that Subject has worked diligently and contributed materially to the work of his office. He has been particularly commended for his adaptability and readiness to work, which have been themselves in his efforts to learn English and typing.
+
+4. It is the opinion
+
+SECRET

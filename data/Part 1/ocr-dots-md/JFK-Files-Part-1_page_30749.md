@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_30749.png
+
+Convert to MarkdownCONFIDENTIAL
+(When Filled In)
+
+MEMORANDUM OF UNDERSTANDING
+
+I hereby acknowledge that I have read and understand the contents of Handbook 20-4, Employee Conduct, dated 29 August 1961, and the information brochure for PCS returnees, dated August 1960.
+
+Signature
+NEVTON S MILEN
+
+Date
+
+CONFIDENTIAL
+(When Filled In)

@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_31773.png
+
+Convert to MarkdownSITTING OF FACTS ON RADIO FRE TERRITORIES
+
+Radio Free Europe (RFE) was established as a separate corporation of RFE when the latter was incorporated on July 11, 1950. 223,000 been on the air since mid-July 1950. At the close of 1950, 272 broadcasts were totaling 7½ hours daily, programs of 1½ hours each being addressed to the people of Poland, Czechoslovakia, Hungary, Austria and Bulgaria. The total cost of this first period, from 17 May 1950 to 30 June 1950, was $64,237.87, operating and capital costs being roughly even. The next year will be seen those same costs rise in the same ratio - capital to operating - to a total of $4,958,895.23.
+
+Today, RFE broadcasts to all the above mentioned countries, with the addition of Albania, at a weekly total rate of 1000 hours, of which 190 hours are original programming - some 2/3 of the total is world broadcast hours directed at the orbit. The original programming broadcasts are directed mainly to Czechoslovakia, Hungary and Poland, broadcasts to Bulgaria, Greece and Albania are reserved for relayed from New York.
+
+The estimated expenditures of RFE for the fiscal year 1950 are capital $8,901,120, operating expenses, $6,995,186, for a total of $12,877,280. Estimated operating expenses (only, $12,877,280). A summary of RFE expenditures to date is as follows:
+
+| | Capital | Charges | Total |
+| :--- | ---: | ---: | ---: |
+| For Period 17 May 50 to 30 June 50 | $ 200,000 | $ 750,125.16 | $ 951,255.87 |
+| For Period 1 July 50 to 30 June 51 | ?1,461,081.13 | ?1,687,851.16 | ?1,798,995.23 |
+| For Period 1 July 51 to 30 June 52 | 2,777,710.68 | 6,561,287.11 | 9,340,031.07 |
+| For Period 1 July 52 to 30 June 53 | 2,981,152.81 | 9,517,166.20 | 12,577,349.00 |
+| **TOTALS TO INCLUDE 30 JUNE 1953** | **28,496,796.92** | **316,965,777.37** | **27,127,144.17** |
+
+# RFE's FINANCIALS
+
+RFE's principal installations are its main broadcasting station and production equipment, located in Munich, Germany; broadcasting facilities maintained in New York City and the major relay center at Lisbon, Portugal.
+
+In Germany, transmitters are in operation at Holzkirchen and Eiblis, while monitoring, recording and receiving functions are at Gesellschaften and Hoosburg. In Portugal, the 50 and 100 kw transmitters flex is at Gloria, while receiving/conitering facilities and production/editing are at Hoxoqueria and Lisbon, respectively.
+
+Original capital investment in Germany as of 30 June 1950 amounted to $1,981,931. Original capital, for Portugal's of 30 June 1950, $1,981,931.50. Con-

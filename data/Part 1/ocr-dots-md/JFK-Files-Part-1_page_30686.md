@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_30686.png
+
+s, and two communicators.</td></tr><tr><td rowspan="2"><strong>RATING LETTER</strong></td><td>P</td></tr><tr><td></td></tr><tr><td rowspan="2"><strong>SPECIFIC DUTY NO. 2</strong></td><td colspan="5">Provides overall direction and guidance for unilateral and liaison operations.</td></tr><tr><td rowspan="2"><strong>RATING LETTER</strong></td><td>P</td></tr><tr><td></td></tr><tr><td rowspan="2"><strong>SPECIFIC DUTY NO. 3</strong></td><td colspan="5">Maintains liaison with the Ambassador.</td></tr><tr><td><strong>RATING LETTER</strong></td><td>A</td></tr><tr><td rowspan="2"><strong>SPECIFIC DUTY

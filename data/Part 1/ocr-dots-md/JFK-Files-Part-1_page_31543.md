@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_31543.png
+
+Convert to MarkdownSECRET
+
+Security Information
+
+5 November 1953
+
+MEMORANDUM FOR: Chief, Southeastern European Division
+SUBJECT: Humanist National Council
+
+1. The attention of the US Division and Messrs. Braden and Durnée is invited to the attached copy of a letter which I have just received from J. Anthony (Joe) Panuch concerning certain recent developments in the Romanian empire situation and with particular reference to the "League." You will note that Mr. Panuch has indicated that if we are interested in the League and its possibilities, he would be pleased to talk to us about it.
+
+2. I believe that the addresses of this memorandum will recall the significance of Mr. Panuch and the role which he has played recently, including his visit to me of about two or three months ago. (I was introduced by and considered as a minor breach of confidence the reference which was made to my name in the material which was published concerning a communication as passed to Kiny Michael, although I did note that this contained no representation that I had taken a position one way or another concerning the League or the proposed formula for resolving differences between the two principal Romanian empire factions.)
+
+3. As regards the proposal of further conversations between Mr. Panuch and either myself or some other spokesman or representative of this Agency, I continue to be inclined to the view that these are matters which should be taken up by Mr. Panuch with Mr. Sheardson and not ourselves. If after consultation between the US Division and JO Division it is agreed that this is the correct position, I should appreciate it if Mr. Braden or Mr. Durnée could talk with Mr. Sheardson about this letter and obtain his views for my benefit. I would then be in a better position to reply to Mr. Panuch's letter - presumably telling him that in line with my earlier advice to him, I still would recommend that he raise these matters with ECPK and not CIA. I could also add that I had been troubled by the appearance of my name in the published material referred
+
+SECRET
+
+Information
+
+7267

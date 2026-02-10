@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_31611.png
+
+Convert to MarkdownSECRET
+
+# CZECHOSlovakIA: INFORMATION
+
+Fellow Radio Prague announcement: O510 today re note on balloons:
+
+"The Ministry of Foreign Affairs has sent the following note to
+the Embassy of the United States on July 20, 1953:
+
+During the past days balloons were sent to Czechoslovakian territory with leaflets of a nature designed to incite discontent of the population and to encourage anti-state activities. This new attempt to influence the Czech working people with propaganda means of so primitive a level, understandably met with indignate instance, that the entire action was prepared and carried out by American citizens sent for this purpose to Germany, to German territory under U.S. occupation administration. It is, therefore, a new instance where the U.S. Government abused its position as an occupation power towards ends incomparable with the four power agreement on Germany, which binds the U.S. to carry out the occupation according to the basic tenet that Germany is never again to become a threat to world peace and its neighbors.
+
+Another important factor which makes this new violation of basic
+principle of international law particularly objectionable is the fact
+that it took place at a time when the nations of the entire world are
+increasing their efforts to strengthen the peace and assure peaceful
+cooperation.
+
+The aim of this provocation action, organized under the protection
+of U.S. occupation authorities is to increase the policies of the so-
+called cold war and to prevent a loosening of international tensions.
+
+For these reasons the Government of Czechoslovakia decisively pro-
+tests against this action and asks the Government of the U.S. to furnish
+information on the steps taken to prevent similar provocation aimed
+against peaceful co-existence of nations, representing crude interfer-
+ence in internal Czech affairs."

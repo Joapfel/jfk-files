@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_31441.png
+
+Convert to Markdown17 September 1952
+
+MEMORANDUM FOR: CHIEF, INTERNATIONAL ORGANISATIONS DIVISION
+
+ATTENTION: Mr. W. P. DURKEO, Chief, IO/TOMATIC
+
+SUBJECT: Refugee Stipendiaries of NCF
+
+REFERENCE: Secret Memo dtd 12 August 1952 from Chief, IO/TOMIC, to Chief, SE; Subject: List of Stipendiaries of NCF.
+
+1. In compliance with your request of 12 August, the referenced memorandum was circulated to the various interested branches of SE Division. Of the thirteen humanitarians listed on stipendiaries of NCF, only one, Mr. Brutus Coste, is on the payroll of SE Division. However, it has been our understanding that Mr. Coste has received no stipend since December, 1951. We would appreciate a further check on the status of Mr. Coste with respect to his reported stipend. No other duplications were reported.
+
+2. It is requested that in addition to the referenced list of stipendiaries, IO Division obtain from the NCF and RFO a list of all refugee employees from within the SE area (Humania, Bulgaria, Albania, and Yugoslavia) who may be employed in any capacity, with their salaries and job titles. Such information has not been available to the interested branches in the past, but experience has shown that the availability of this data on a current basis would be most helpful to the responsible case officers.
+
+JOHN E. BAKER
+Chief, SE
+
+PP:CACrane:bar
+
+Distribution:
+Addresses - Orig & 1
+SE/PP - 2
+RI - 2
+
+PP:CACrane:bar
+
+Distribution:
+Addresses - Orig & 1
+SE/PP - 2
+RI - 2

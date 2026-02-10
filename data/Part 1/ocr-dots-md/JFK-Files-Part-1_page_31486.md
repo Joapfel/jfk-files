@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_31486.png
+
+Convert to Markdowndo such to diagonal this negative attitude and would pave the way for a more positive and productive cooperation between the national refugee groups and the agencies active in their behalf. The control would also be desirable to suppose, help to fill vacancies in exile representation of the kind described above.
+
+5. Another weakness of the organizations surveyed in the frontier countries is their almost universal tendency in greater or lesser degree to discriminate politically or personally in the distribution of assistance. There is no comparison between the extent of this weakness in the tense and unsettled atmosphere of the frontier countries and the more normal environment of the intermediary receiving countries, France and Britain. In addition to the injustice of such discrimination, definite opportunities are lost through failure seriously to attempt to win over, through less narrow assistance, elements (such as the Czech and Slovak Separatists, Hungarian exiles and the Swabs) which now oppose or in the future might oppose the political and national structures which NCFE recognizes and supports.
+
+## Conclusion:
+
+Again, close NCFE guidance and control are indicated so that injustices may be reduced andider NCFE aims implemented, rather than inverted by narrower interests of short-circuited and unaligned refugees representatives.
+
+# - V -
+
+HOLY INDIAN REVOLUTION
+
+HOW CAN WE DO IT? THE PROBLEM OF REFUGES IF IT IS PRE-SET UP INSIDE OUR COUNTRY -- THE PERSPECTIVE OF AN URBAN HUMAN RIGHTS. (SAND)
+
+## A. NCFE's approach
+
+If NCFE is to modify its present instruments and create new ones to manifest its interest in the problem of refugees in Europe, it should first formulate a broad and comprehensive approach to the refugee as a type of person in whom and in whose problems this interest is to be shown.
+
+This approach will, by the nature of NCFE's interest in the refugee, differ markedly from those of other organizations active in the field.
+
+All these organizations, the intelligence agencies, the local national governments, the EU High Commissioner and the voluntary agencies, are interested in the Czechoslovak or Rumanian or Pole who crosses the border because, respectively, he might be a Communist agent or have information, he is or might be a political refugee or because he is a human being in need. NCFE is interested in him because he is a Czechoslovak or Rumanian

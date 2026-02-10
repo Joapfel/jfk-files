@@ -1,0 +1,50 @@
+# JFK-Files-Part-1_page_31736.png
+
+Convert to MarkdownSECRET
+
+Security Information
+
+26 Janu ary 1953
+
+MEMORANDUM FOR: CHIEF, INTERNATIONAL ORGANIZATIONS DIVISION,
+
+SUBJECT: Meeting of Poles to be held here in February
+
+REFERENCE: Memorandum on same subject from CIO to 10/Branch I, dated 23 January 1953
+
+1. NCPE has confirmed that a meeting of ambassadors and diplomats of the Polish Government in Exile is to be held here in the middle of February.
+
+2. The following individuals are scheduled to attend the meetings:
+
+a. Ambassadors
+
+Papac........................... Ambassador to the Vatican
+Potocki......................... Ambassador to Madrid
+Zenczykowski................. Ambassador to Lebanon
+
+b. Arento
+
+Korawski...................... Paris
+Raczynski..................... London
+Rabinowski.................... Geneva
+Lipeki........................ Washington
+Arcinzewski.................. Buenos Aires
+Combinski..................... Cuba
+
+c. Others
+
+Rumer.......................... Montreal
+Librach........................ Secretary-General of the Foreign Office of the Government in Exile, coming from London
+Ciechanowski.................. Former Ambassador to Washington (until 1945)
+Wazolski....................... Former Consul to the Embassy in Washington (until 1945)
+
+3. The purpose of the meeting is to discuss and decide matters concerning the foreign policy of the Government in Exile. NCPE has heard rumors, but does not know for a fact, that the Poles intend to pay their respects to the new Administration. If this should be done, General Zornkowski (who is returning from Canada at the end of this week) would be the spokesman, since he knows Eisenhower personally.
+
+4. NCPE is in no way involved in sponsoring or financing this meeting. The Polish Government in Exile has funds of its own which should enable it to send delegates.
+
+SECRET
+
+WILLIAM P. DURKEE
+Chief, 10/TOMIC
+
+Securit

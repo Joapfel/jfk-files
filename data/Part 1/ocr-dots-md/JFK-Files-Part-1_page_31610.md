@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_31610.png
+
+Convert to MarkdownSECUT
+SECURITY INFORMATION
+
+21 July 1953
+
+NOTICE: FOR: DEPUTY DIRECTOR (FDIC)
+
+SUBJECT: Czech reactions to balloon operation.
+
+1. Attached are Czech reactions to the balloon operation including; the text of a note from the Czech Ministry of Foreign Affairs delivered today to the American Embassy in Prague.
+
+2. Radio Free Europe has been instructed not to comment upon this note until directed.
+
+Attachment: s/d
+
+SECUT
+SECURITY INFORMATION

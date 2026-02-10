@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_31558.png
+
+Convert to Markdown15 October 1953
+
+MEMORANDUM FOR: INSPECTOR GENERAL
+SUBJECT: Salary Information on NCFE People
+
+1. Subsequent to Mr. Durkeo's memorandum to you of 1 September 1953, which we discussed this morning, I learned that Mr. Dalles discussed with Mr. Shepardson the need for the information as to the salaries of NCFE people. Very likely this conversation was held pursuant to your own talk with the Director.
+
+2. In any event, we have received precisely the information requested by the Inspector General in a memorandum of 6 October, and I have forwarded it to Win Scott.
+
+3. I think your effort has been successful.
+
+THOMAS W. BRADEN
+Chief
+International Organizations Division
+
+CIO:TWS/eh
+
+Orig - Addressee
+1 cc - IO/SrI
+1 cc - CIO
+1 cc - RI
+
+SECRET
+SECURITY INFORMATION

@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_31707.png
+
+Convert to MarkdownFebruary 25, 1953
+
+Dear George:
+
+Confirming what I have just told you on the phone, our mutual friend wrote Michael a note giving the exact contents of which are as follows:
+
+"After you left this afternoon, Mr. Robert Voegeler came in to see me, and among other things told me that he had certain knowledge, RFB had been infiltrated.
+
+"I picked up the word and asked him if he would tell me more about it, to which he replied that maybe he had used too strong a word. So then I told him to pick any word he wanted, but to tell me what he meant.
+
+"He then told me that there were people working for RFB who were either ex-Communists or ex-Socialists who were utterly discredited in their own country and who were doing far more harm than good. I asked him if he cared to tell me who some of these people were, to which he replied that he did not come to the office to denounce anybody. I thought I would leave it at that and we went on to another subject.
+
+"However, the purpose of his trip to Washington was to feed information to Senator McCarthy's Committee, and he will be returning in another ten days to give him some more advice.
+
+"I think it would be most important for you or Bob Lang to have a word with this gentleman and see if you can't find out who he is talking about, as I am sure you would be eager to know and to act if justified."
+
+It was our friend's suggestion, and we will act upon it, that together with Michael and Kenneth Walters I try to see Voegeler. This I will do as soon as I can locate him, and I learn that he is now in New York. We here have information that Voegeler associates socially with an individual who, having failed of employment with the Fund some time ago, has since lost an opportunity to condemn the Fund as being infiltrated. The latter individual's identity is known to Michael as is also the basic situation which gives some color to the allegation.
+
+I will reserve further comment on this until I see you personally, or I will instruct Michael to give you this background when he next goes down to see your colleagues.

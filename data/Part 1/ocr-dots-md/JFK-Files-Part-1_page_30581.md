@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_30581.png
+
+Convert to Markdown# SPECIAL QUALIFICATIONS
+
+## REASON: 
+
+Collection and dissemination of SI information; establishment and direction of intelligence nets; interrogation oflu's and refugees from Communist areas and North Korea; coordination of intelligence nets being run into North Korea, Communist Manchuria, Japan and Siam; at present incumbent is directing a CE not inakuon which will eventually turn into a SI net.
+
+Incumbent is responsible to the Unit Commander for getting up and administering an organization which can secure all the above information without divulging any significant facts about I&U and yet have adequate loyalty to assure accurate reports being made by all agents.
+
+SPECIAL QUALIFICATIONS
+
+REASONS FOR ACTION
+
+DATE OF LAST PROMOTION
+
+14-05000

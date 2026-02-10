@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_31387.png
+
+Convert to MarkdownSECRET
+
+Security Information
+
+<table><tr><td>DD/P</td><td>1-35</td></tr></table>
+
+10 November 1952
+
+MEMORANDUM FOR: Chief, International Organizations Division
+
+SUBJECT : University of the Saar
+
+1. In the Sunday November 9 issue of the New York Herald Tribune there was a rather full and very interesting account of the purposes and objectives of the University of the Saar, which I am anxious for the addressees of the original and copies of this memorandum to read. The writer of the piece has evidently been much impressed with the efforts of this institution in the field of advancing European unity, and if the account which he gives is an accurate one, it seems to me that we should (a) know more about this and (b) give consideration to providing some support for it if it is good. It might even prove to be the case that this is a better and more deserving show than some of the activities which we are currently supporting having similar objectives. I think we are generally agreed that it is better to get in behind and give support and encouragement to a movement which has demonstrated the ability to stand on its own feet than to try to create and sustain an activity which would not exist but for our own contributions.
+
+2. I should appreciate receiving from you in due course your estimate of the significance of this activity, etc.
+
+cc: C/NE (Attention: Mr. Dulin)
+C/EE
+
+SECRET
+
+Security Information

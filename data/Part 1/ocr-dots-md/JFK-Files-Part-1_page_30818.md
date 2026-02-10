@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_30818.png
+
+Convert to Markdown# SECTION 12. CHRONOLOGICAL HISTORY OF EMPLOYMENT (SEE PAGE 5)

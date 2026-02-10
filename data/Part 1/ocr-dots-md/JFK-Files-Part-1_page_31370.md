@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_31370.png
+
+Convert to MarkdownCONFIDENTIAL.
+
+TO : Chief, Covort Personnel Branch
+
+FROM : Security Officer, CIA
+
+SUBJECT: WIGREN, Lee Hobart - 14732
+
+Date: 26 February 1951
+
+Reference is made to your memorandum dated 16 November 1950 which requested that subject be granted security clearance.
+
+This is to advise that this office incorporates no objection from a security standpoint to a temporary appointment of the subject to the Processing Pool, pending completion of further security action, upon the condition that subject (1) not have access to classified material, (2) not have access to CIA secure areas, (3) not be issued a CIA alias or credential. The subject may not be assigned for duty in any CIA staff or office without further authority from the Security Officer, CIA. This clearance does not include assignment to unclassified duties outside the immediate supervision of the pool supervisor.
+
+It is requested that this office be notified immediately when subject enters on duty so that final security processing may be scheduled.
+
+FOR THE SECURITY OFicer, cia:
+
+C. V. BRADLEY
+Chief, Security Division
+
+CONFIDENTIAL
+
+19 Mar 1951
+
+5 Mar 1951
+
+Call m

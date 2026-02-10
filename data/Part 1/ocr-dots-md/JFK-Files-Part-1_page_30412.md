@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_30412.png
+
+Convert to MarkdownSECRET
+(when filled in)
+
+<table><thead><tr><th colspan="5">SECTION V</th></tr><tr><td colspan="5">GEOGRAPHIC AREA KNOWLEDGE AND FOREIGN TRAVEL</td></tr><tr><th>NAME OF REGION OR COUNTRY</th><th>TYPE OF SPECIALIZED ENGLISH PROFiciency</th><th>DATE OF ARRIVAL ON STATION</th><th>ASSIGNED TO GROUP (IF APPLICABLE)</th><th>STUDY/WORK PERIOD (IF APPLICABLE)</th></tr></thead><tbody><tr><td>1.</td><td></td><td>MAY - NO. 6</td><td></td><td></td></tr><tr><td>2.</td><td></td><td>N.</td><td></td><td></td></tr></tbody></table>
+
+<table><thead><tr><th colspan="4">SECTION VI</th></tr><tr><td colspan="4">TYPING AND STENOGRAPHIC SKILLS</td></tr></thead><tbody><tr><td>1. TYPE IN (COPY):<br/>SHORTHAND, QWERTZ, US QWERTZ, Dvorak, IBM, X, Y, Z, &amp; Enter<br/>☐ Gregg ☐ Speedwriting ☐ Stenotype ☐ Other Specific</td><td></td><td></td><td></td></tr></tbody></table>
+
+<table><thead><tr><th colspan="2">SECTION VII</th></tr><tr><td>SPECIAL QUALIFICATIONS</td><td></td></tr></thead><tbody><tr><td colspan="2">PROVIDE INFORMATION ON MOBILE SPORTS LICENSES PUBLISHED MATERIALS OR DEVICES WHICH YOU MAY HAVE INVENTED</td></tr></tbody></table>
+
+<table><thead><tr><th colspan="3">SECTION VIII</th></tr><tr><td colspan="3">MILITARY SERVICE</td></tr><tr><td>CURRENT DRAFT STATUS</td><td></td><td></td></tr></thead><tbody><tr><td>1. WAS YOUR SELECTIVE SERVICE CLASSIFICATION CHANGED?</td><td>☐ YES</td><td>☐ NO</td></tr><tr><td>2. LOCAL SELECTIVE SERVICE BOARD NUMBER AND ADDRESS</td><td></td><td>4. IF DEFERRED, GIVE REASON</td></tr><tr><td colspan="3">MILITARY RESERVE, NATIONAL GUARD STATUS</td></tr><tr><td>CHECK RESERVE OR GUARD COMPANY<br/>ZATION TO WHICH YOU BELONGS</td><td>☐ ARMY</td><td>☐ MARINE CORPS</td><td>☐ COAST GUARD</td><td>☐ NATIONAL GUARD</td></tr><tr><td>☐ NAVY</td><td>☐ AIR FORCE</td><td></td><td></td><td>☐ AIR NATIONAL GUARD</td></tr></tbody></table>
+
+<table><thead><tr><td rowspan="2">1.</td><td rowspan="2">CURRENT RANK, GRADE CO., NAME</td><td rowspan="2">DATE OF APPOINTMENT IN CURRENT BAND</td><td colspan="4">3.</td></tr><tr><td colspan="4">EXPIRATION DATE OF CURRENT OBLIGATION</td></tr></thead><tbody><tr><td>4.</td><td>CHECK CURRENT RESERVE CATEGORY</td><td>☐ READY RESERVE</td><td>☐ STARTED (at least)</td><td>☐ STANDBY (閒置)</td><td>☐ RETIRED</td><td>☐ DISCHARGED</td></tr><tr><td>5.</td><td>MILITARY MOBILIZATION ASSESSMENT</td><td></td><td colspan="4">6. RESERVE UNIT TO WHICH ASSIGNED OR ATTACHED</td></tr><tr><td colspan="7">MILITARY SCHOOLS COMPLETED (Extended Active, Reserve Duty, or Civilian)</td></tr><tr><td colspan="3">NAME AND ADDRESS OF SCHOOL</td><td colspan="3">STUDY OF SPECIALIZATION</td><td>DATE COMPLETED</td></tr><tr><td colspan="3"></td><td colspan="3"></td><td>RESIDENT</td></tr><tr><td colspan="3"></td><td colspan="3"></td><td>RESERVE/Sponsored</td></tr></tbody></table>
+
+<table><caption>SECTION IX PROFESSIONAL SOCIETIES AND OTHER ORGANIZATIONS</caption><thead><tr><th rowspan="2">NAME AND CHAPTER

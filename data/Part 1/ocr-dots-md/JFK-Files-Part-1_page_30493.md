@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_30493.png
+
+Convert to Markdown14-00000
+
+SECRET
+
+30 October 1958
+
+Following is an extract from a Memorandum of Conversation concerning Mr. Thomas E. Naughten's courtesy call on General Charles Cabell on 27 October 1958. Mr. Wm. V. Broe, ACFE, and Mr. Charles J. Baker, ACFE/THB were also present at this meeting:
+
+"Mr. Naughten said he was very sorry to see Mr. Scott Miler leave Bangkok since he had a great deal of confidence in him and felt that he was unusually well suited for the job."
+
+ACFE/THB
+
+SECRET

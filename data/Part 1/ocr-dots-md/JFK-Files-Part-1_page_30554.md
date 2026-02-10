@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_30554.png
+
+Convert to MarkdownCONFIDENTIAL
+
+FOR 20
+
+16 Apr 18
+
+MEMORANDUM FOR RECORD
+
+Approval has been granted for the marriage of Newton S. Eiler and Hell C. Stine, both of BSD # 14, in accordance with policy established by Col. Galloway in Wash Cablo 5386 (Out 61371).
+
+Mr. Eiler, CAF 7, is Intelligence Officer (Reports) working in Intelligence "F" Division. Miss Stine, CAF 5, is a clerk-typist assigned to Intelligence "G" Division. They are not assigned to the same office or working for the same supervisor.
+
+RETURN TO
+OSO PERSONNEL DIVISION
+
+CONFIDENTIAL

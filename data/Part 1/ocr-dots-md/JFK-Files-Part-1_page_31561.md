@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_31561.png
+
+Convert to MarkdownSECRET
+
+Security Information
+
+He. Flock expressed certain misgivings with reference to the
+character of RFE and VOA broadcasts, emphasising his conviction
+that Western radio broadcasts should do nothing to compromise the
+position of the Catholic Church in Poland, always taking as
+guidance the attitude and statements of the Polish clerical leaders
+themselves. He strongly urged that all possible steps be taken to
+maintain the present volume of broadcasts into Poland as a means of
+preserving hope and belief in the invitenbility of Soviet communisn's
+collapse.
+
+131
+
+Sherman D. Larb
+Executive Secretariat, DC/P
+
+Attachment
+
+SECRET
+
+Allied-Information
