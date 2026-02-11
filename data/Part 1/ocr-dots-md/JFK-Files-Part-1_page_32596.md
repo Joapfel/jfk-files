@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_32596.png
+
+Convert to Markdown<table><thead><tr><th>NAM<br>WILLIAMSON EARL J</th><th>SERIAL<br>060389</th><th>ORGN FUNDS GR-ST<br>50 660 CF GS 15 2</th><th>OLD SALARY<br>$15,045</th><th>NEW SALARY<br>$16,180</th></tr></thead><tbody><tr><td colspan="5">IN ACCORDANCE WITH THE PROVISIONS OF PUBLIC LAW 87-793 AND DCI MEMORANDUM DATED 1 AUGUST 1984, SALARY IS ADJUSTED AS FOLLOWS. EFFECTIVE 5 JANUARY 1984,</td></tr><tr><td colspan="5">IN ACCORDANCE WITH THE PROVISIONS OF PUBLIC LAW 87-793 AND DCI MEMORANDUM DATED 1 AUGUST 1984, SALARY IS ADJUSTED AS FOLLOWS. EFFECTIVE 14 OCTOBER 1984.</td></tr></tbody></table>
+
+<table><thead><tr><th>NAME</th><th>SERIAL</th><th>ORGN</th><th>FUNDS</th><th>GR-ST</th><th>OLD SALARY</th><th>NEW SALARY</th></tr></thead><tbody><tr><td>PILLIAMSON EARL J</td><td>060389</td><td>50</td><td>660</td><td>CF</td><td>GS 15 2</td><td>$15,045</td><td>$16,180</td></tr></tbody></table>
+
+<table><caption>IN ACCORDANCE WITH THE PROVISIONS OF PUBLIC LAW 87-793 AND DCI MEMORANDUM DATED 1 AUGUST 1984, SALARY IS ADJUSTED AS FOLLOWS. EFFECTIVE 14 OCTOBER 1984.</caption><thead><tr><th>NAME</th><th>SERIAL</th><th>ORGN</th><th>FUNDS</th><th>GR-ST</th><th>OLD SALARY</th><th>NEW SALARY</th></tr></thead><tbody><tr><td>PILLIAMSON EARL J</td><td>060389</td><td>50</td><td>660</td><td>CF</td><td>GS 15 2</td><td>$15,045</td><td>$16,180</td></tr></tbody></table>

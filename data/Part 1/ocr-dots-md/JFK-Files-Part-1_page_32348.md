@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_32348.png
+
+Convert to Markdown# Certification of Handgun Qualification
+
+9 August 1971
+Date
+
+Mr. Frederick E. Owens and
+(Instructor SAB Staff, OTG, ISOLATION)
+Identity
+
+Trainee FLORES, Daniel, WH
+______
+Identity
+
+on 2-6 August, Mr. Flores was given 28 hours date identity instruction in firing techniques, weapon care and safe weapons handling procedures.
+
+Subsequently Mr. Flores fired the handgun qualification course with a Revolver (Cal. 38) achieving a score of 258 out of a possible 300. Mr. Flores demonstrated that he had absorbed the instruction on safe weapon handling and that he exercises due care and discretion. Accordingly Mr. Flores is certified as qualified with the Revolver (Cal. - 38) as of this date. weapon
+
+Signed
+FREDERICK E. OWENS, SAB/OTO
+Instructor Identity

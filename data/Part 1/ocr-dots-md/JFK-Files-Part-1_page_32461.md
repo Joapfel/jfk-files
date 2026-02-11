@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_32461.png
+
+Convert to MarkdownCONFIDENTIAL
+(When Filled In)
+
+<table><tbody><tr><td colspan="3">VOLUNTARY ENTRIES</td></tr><tr><td colspan="3">Experience in the handling of employee emergencies has shown that the absence of certain personal data often delays and complicates the settlement of estate and financial matters. The information requested in this section may prove very useful to your family or attorney in the event of your discharge, and will be disclosed only when circumstances warrant.</td></tr><tr><td colspan="3">INDICATE NAME AND ADDRESS OF ANY BANKING INSTITUTIONS WITH WHICH YOU HAVE ACCOUNTS AND THE NAMES IN WHICH THE ACCOUNTS ARE CARRIED.<br>Bank of: Union Trust Co., Washington, D.C. - Daniel A. Flecker<br>BANK OF: California, Portland One, Daniel A. Flecker</td></tr><tr><td colspan="3"><input type="checkbox" /> HAVE YOU COMPLETED A LAST WILL AND TESTAMENT? <input type="checkbox" checked /> YES NO. (If "Yes" where is document located?)</td></tr><tr><td colspan="3"><input type="checkbox" /> HAVE YOU PREPLANNED AN ARRANGED CARESHIP OF YOUR CHILDREN IN CASE OF COMMON DISASTER TO BOTH PARENTS? <input type="checkbox" checked /> YES NO. (If "Yes" give name(s) and address)</td></tr><tr><td colspan="3"><input type="checkbox" /> HAVE YOU EXECUTED A POWER OF ATTORNEY? <input type="checkbox" checked /> YES NO. (If "Yes", who possesses the power of attorney?)</td></tr><tr><td>6.</td><td colspan="2">ADDITIONAL DATA AND/OR CONTINUATION OF PRECEDING ITEMS</td></tr><tr><td colspan="3">SIGNATURE AT<br>Washington, D.C. DATE 12/12/82<br>December 10, 1982<br>Signature: David L. Beevor</td></tr></tbody></table>
+
+CONFIDENTIAL

@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_32518.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR: Deputy Director for Plans
+
+SUBJECT : Appointment of Mr. Earl J. Williamson as Chief, Branch 6, WH Division
+
+1. The appointment of Mr. Earl J. Williamson as Chief of Branch 6, WH Division effective on or about 12 April 1971 is recommended. Mr. Williamson will replace Mr. Lawrence M. Stornfield who will assume the duties of Chief, Cuban Operations Group, WH Division.
+
+2. Mr. Williamson has been an employee of the Agency since June 1952; he has recently completed his assignment as COS, San Jose. Attached is a biographic profile which reflects his training, foreign language proficiency, and Agency experience.
+
+William V. Broo
+Chief
+Western Hemisphere Division
+
+Attachment:
+
+Biographic Profile (Parts I and II)
+
+The recommendation in Paragraph 1 is APPROVED:
+
+Deputy Director for Plans
+
+Date
+
+SECRET

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_32349.png
+
+Convert to Markdown# SECRET
+
+## Continuation of Narrative Comments
+
+the target is good. The project is, however, in need of good human reporting assets and it is expected that as Subject overcomes a weakness mentioned in the next paragraph he will be able to devote more of his time to this important task.
+
+The Subject has encountered some difficulty in the preparation of written material -- dispatches, intelligence reports -- and finds it necessary to spend an extended portion of his time on its preparation. The rater has discussed this with Subject on several occasions, and it is believed that his difficulty is due to a lack of experience, and that in time and with a continuing effort on his part he will develop his writing skills.
+
+The Subject's overall attitude and response towards his professional responsibilities during the first tour have been positive. He is interested in the kind of work he is doing, likes it and is willing to put in the kind of long hours it sometimes demands without complaint.
+
+## Continuation of Comments of Reviewing Official
+
+of the Base. He responds positively to guidance and direction; he is eager for new opportunities to enlarge his experience and knowledge. He appears to be completely motivated toward the work of this organization; it is a pleasure to have him in Guayaquil.
+
+SECRET

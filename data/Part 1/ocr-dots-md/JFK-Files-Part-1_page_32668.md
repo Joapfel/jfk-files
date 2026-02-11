@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_32668.png
+
+Convert to MarkdownVIA: AIR
+
+DISPATCH NO HA H-T-143
+
+(SHEET AIR OF THIS DOCUMENT)
+
+TO : Chief, WMD
+
+FROM : Chief of Station, Habana
+
+SUBJECT: GENERAL - Administrative/Personnel
+SPECIFIC - Field Fitness Report -
+Reference: HKH-A-4049, 21 November 1957
+
+DATE: 4 September 1958
+
+Action Required: None; for Headquarters' information only
+
+There has been no material change in the duties or performance of the Chief since the submission of his last annual Field Fitness Report. Therefore, the above report, which was forwarded in the reference, may also be considered as the writer's final fitness report on
+
+Distribution:
+* 3 - Headquarters
+* 2 - Files
+
+SPR/mnr
+
+3 September 1958
+
+CONFIDENTIAL
+CLASSIFICATION
+
+51-28A
+
+<table><tr><td>CONFIDENTIAL</td></tr><tr><td>CLASSIFICATION</td></tr></table>

@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_32521.png
+
+Convert to Markdownyou may wish to discuss your personal situation with your attorney or a representative of JKLANCE's Office of General Counsel. In the meantime, however, JKLANCE's position with respect to your situation is that it assumes the validity of your current marriage, unless the earlier Mexican divorce action and your current marriage are challenged. Should that challenge ever occur, it may be necessary for JKLANCE to determine that your eligibility for benefits based on your current marriage must be suspended until such time as the challenge is litigated or otherwise resolved. Special note should be taken of the fact that such a challenge might arise after your death, possibly resulting in the distribution of insurance proceeds and other death benefits to other than your immediate family as constituted at your death and contrary to your own intentions and wishes.
+
+6. Please advise me of your plans and any actions taken in connection with the above. If you have any questions on the substance of this memorandum or its purpose, please do not hesitate to let me know.
+
+CLARK F. RIDBLE
+
+Att
+
+Distribution:
+
+0 - Addressee through IDP/OP and C/WH Division
+1 - Director of Security
+1 - General Counsel
+1 - D/Pers Subject
+1 - D/Pers Chrono
+1 - OPF
+1 - C/BSD
+
+UP/BSD/RLAustin:jas (10 Feb 71)

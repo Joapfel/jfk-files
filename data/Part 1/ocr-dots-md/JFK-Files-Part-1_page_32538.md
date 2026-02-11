@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_32538.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+26 JUL 1965
+
+MEMORANDUM FOR: Deputy Director for Central Intelligence
+
+THROUGH : Director of Personnel
+
+SUBJECT : Request of Earl J. Williamson, GS-15, to Remain in the Employment of CIA Following Marriage to an Alien
+
+1. This memorandum submits a recommendation for your approval: this recommendation is contained in paragraph 7.
+
+2. Mr. Earl J. Williamson, a GS-15 Operations Officer, has requested permission to remain in the employ of CIA as a Staff Employee following his marriage to Miss Virginia J. Lobo, a 26 year old Cuban citizen living in Spain. The marriage is scheduled to take place in October 1965.
+
+3. Mr. Williamson, 50 years old, attended Loyola University in 1947-48 and Berlitz School of Languages in 1948. Prior to joining CIA, Mr. Williamson served with the U.S. Army (1942-49) achieving the rank of 1st Lieutenant in CIC. Subsequently, he was Chief, Civil Intelligence Branch in the Panama Canal Government (1949-52). Mr. Williamson entered on duty with CIA in June 1952 as a CS-12 Operations Officer with WH Division. In January 1953 he was appointed DCOS, Havana, remaining in this position until January 1959 when he was reassigned to Headquarters. In August 1960 Mr. Williamson was assigned to Madrid and in 1963 was appointed DCOS, Madrid, which is the position he presently occupies.
+
+4. The COS, Madrid, Mr. James A. Noel, has known Miss Lobo for over three years. He says she is a most attractive young lady who is a member of a distinguished and respected Cuban family. She is well educated, fluent (bi-lingual) in English, intelligent, cultured, and gracious. He has found her to be discreet at all times.
+
+5. Chief, WE Division strongly believes on the basis of past performance and proven ability that Mr. Williamson is the kind of officer whom the Agency should retain. Mr. Williamson's record to date shows that he is a mature, experienced, and dedicated officer,
+
+SECRET
+EYES ONLY
+
+<table><tr><td>Form 597</td></tr><tr><td>Printed</td></tr></table>

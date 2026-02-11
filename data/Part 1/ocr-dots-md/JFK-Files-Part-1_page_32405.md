@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_32405.png
+
+Convert to MarkdownCONFIDENTIAL
+
+**5. VOLUNTARY ENTRIES**
+
+Experience in the handling of employee emergencies has shown that the absence of certain personal data often delays and complicates the settlement of estate and financial matters. The information requested in this section may prove very useful to your family or attorney in the event of your disability or death and will be disclosed only when circumstances warrant.
+
+INDICATE NAME AND ADDRESS OF ANY BANKING INSTITUTIONS WITH WHICH YOU HAVE ACCOUNTS AND THE NAMES IN WHICH THE ACCOUNTS ARE CARRIED.
+
+ARE YOU A MEMBER OF THE NORTHWEST FEDERAL CREDIT UNION? ☐ YES ☐ NO
+IF YES, DO YOU HAVE A JOINT ACCOUNT? ☐ YES ☐ NO
+
+HAVE YOU COMPLETED A LAST WILL AND TESTAMENT? ☐ YES ☐ NO. (If "Yes" where is document located?)
+
+HAVE YOU PREPLANNED AN ARRANGED GUARDIANSHIP OF YOUR CHILDREN IN CASE OF COMMON DISASTER TO BOTH PARENTS?
+☐ YES ☐ NO. (If "Yes" give name(s) and address)
+
+HAVE YOU EXECUTED A POWER OF ATTORNEY? ☐ YES ☐ NO. (If "Yes", who possesses the power of attorney?)
+
+**6. ADDITIONAL DATA AND/OR CONTINUATION OF PRECEDING ITEMS**
+
+**7. RESIDENCE DATA - TO BE COMPLETED ONLY BY EMPLOYEES ENTERING ON DUTY**
+(No Approval Required)
+
+RESIDENCE WHEN EMPLOYED (Full Address)
+PERMANENT PLACE OF RESIDENCE AS DEFINED IN MR 23-2
+(Full Address)
+
+**8. CHANGE IN PERMANENT PLACE OF RESIDENCE**
+(To Be Completed By Employee Providing Such Change Has Been Assigned to Headquarters)
+
+FULL ADDRESS
+CUSTODY DIRECTOR ON DECEMBER
+DATE
+CHIEF OF OFFICE (when applies)
+DATE
+(MEMO. # MB 22-3)
+
+SIGNATURE
+DATE
+151
+
+CONFIDENTIAL

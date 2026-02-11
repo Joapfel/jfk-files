@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_32175.png
+
+Convert to MarkdownVETERAN'S PREFERENCE AND SOCIAL SECURITY STATEMENT
+
+Date 8-5-53
+
+1. Are you eligible to claim Veteran's Preference under any of the existing Veterans Preference Bills? Yes ____ No X.
+
+2. Furnish information substantiating Veteran's Preference claim, including disability rating, if any.
+
+3. Are you currently receiving any Social Security benefit payments?
+Yes ____ No X.
+(If you are receiving any Social Security benefit payments at the present time you should immediately contact the local Social Security field office as to whether you will still be entitled to such payment.)
+
+Signature J. Stockton D. P.
+
+89 AUG 24 1953 (1)✓

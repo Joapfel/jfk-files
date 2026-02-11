@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_32088.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="4">FIELD REASSIGNMENT QUESTIONNAIRE</th></tr></thead><tbody><tr><td colspan="2">DO NOT COMPLETE FOR HEADQUARTERS USE ONLY</td><td>DATE (from Item 3-1)</td><td>NAME OF SUPERVISOR (if known)</td></tr><tr><td>ME OF EMPLOYEE (use pseudo only if 54)</td><td>9 Nov 1971</td><td>DATE (from Item 3-1)</td><td>9 Nov 1971</td></tr><tr><td>Piccolo, Joseph</td><td></td><td>DATE RECEIVED AT HEADQUARTERS:</td><td></td></tr><tr><td>18 November 1971</td><td>HIBRT 8679,<br/>11 Nov 71</td><td>TO BE COMPLETED BY EMPLOYEE</td><td></td></tr><tr><td>1. DATE OF BIRTH</td><td>2. SERVICE DESIGNATION</td><td>3. YOUR CURRENT POSITION, TITLE AND GRADE</td><td>4. STATION OR DASH</td></tr><tr><td>8 Dec 35</td><td>D</td><td>Ops Officer/Chief FI Brazil, GS-12</td><td>Rio de Janeiro</td></tr><tr><td>6a. DATE OF PCS ARRIVAL IN FIELD</td><td>6b. REQUESTED DATE OF DEPARTURE</td><td>6c. EXPECTED DATE OF FIRST CHECK-IN AT MO</td><td>6d. DUEINUED DATE TO REPORT TO DUTY AFTER LEAVE</td></tr><tr><td>23 June 70</td><td>30 June 73</td><td>15 July 73</td><td>15 September 73</td></tr><tr><td colspan="4">7. NUMBER AND AGES OF DEPENDENTS AND WILL TRAVEL WITH YOU:<br/>3 Dependents ages: 29, 3, 2</td></tr><tr><td colspan="4">8. PERSONAL CIRCUMSTANCES THAT SHOULD BE CONSIDERED IN DETERMINING NEXT ASSIGNMENT:<br/>None.</td></tr><tr><td colspan="4">9. LIST YOUR MAJOR DUTIES DURING CURRENT TOUR (see special note on transmittal form).<br/>(also attach personal cover questionnaire in accordance with CSI-P 345-9)</td></tr><tr><td colspan="4">Chief, FI for Brazil (Coordinating activities of Station and Bases), Ops Officer for Communist Party Operations, Ops Officer for Revolutionary Terrorist Operational Activities, Supervisor for one full time inside and one full time outside Operations Officer and related FI activities of several Base Officers.</td></tr><tr><td colspan="4">10. "Ranking Districts" indicate that ratings you believe you should have based on the next several years.<br/>Advanced Operations Course, Management Courses in Preparation for assuming positions of increased supervisory responsibility.</td></tr></tbody></table>
+
+SECRET
+
+101
+
+103

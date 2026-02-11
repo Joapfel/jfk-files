@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_32006.png
+
+Convert to Markdownuse the preposition with certain verbs requiring the use of a preposition with dependent infinitives.
+
+In my judgment, the student already has the ability to use the language effectively in basic, every-day situations. After a matter of months in the foreign environment he should be able to function effectively in all job-related situations. Because he was extremely diligent and conscientious, he would be an excellent candidate for further language training.

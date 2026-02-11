@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_32106.png
+
+Convert to MarkdownSECRET
+
+(When Filled In)
+
+62-5751 NOV 1965
+
+<table><thead><tr><th colspan="7">VERIFIED RECORD OF OVERSEAS SERVICE</th></tr><tr><td colspan="7">TO:<br/>Office of Personnel, Statistical Reporting Branch, ROOM S E 2506 Headquarters</td></tr><tr><th>EMPLOYEE SERIAL NO.</th><th>NAME OF EMPLOYEE</th><th>MIDDLE</th><th>OFFICE/COMPONENT</th><th>Omitted</th><th colspan="2">Date</th></tr><tr><th></th><th>LAST<br/>(Print)</th><th>FIRST</th><th></th><th></th><th></th><th></th></tr></thead><tbody><tr><td>1-8<br/>125658</td><td>Piccolo,<br/>Joseph</td><td>7-24</td><td>25-28</td><td>51</td><td colspan="2"></td></tr><tr><th colspan="7">INSTRUCTIONS</th></tr><tr><td colspan="7">USE APPROPRIATE SPACE BELOW TO REPORT DATA FOR EITHER PCS OR TDY. INSERT APPROPRIATE CODE NUMBER IN "CODE" COLUMN TO DESIGNATE WHETHER SUBMISSION IS OF BASIC DATA, CORRECTION, OR CANCELLATION (One only). REPORT DATES BY USING THE NUMBER FOR THE MONTH, AND LAST TWO DIGITS ONLY FOR YEAR.</td></tr><tr><th colspan="7">PCS DATES OF SERVICE</th></tr><tr><th rowspan="3">TYPE OF DATA<br/>1 - PCS (Basic)<br/>2 - CORRECTION<br/>3 - CANCELLATION</th><th colspan="4">ARRIVAL</th><th colspan="3">DEPARTURE</th><th rowspan="3">COUNTRY</th><th rowspan="3">OMIT</th></tr><tr><th>CODE</th><th>MONTH</th><th>DAY</th><th>YEAR</th><th>MONTH</th><th>DAY</th><th>YEAR</th></tr><tr><td>27</td><td>28-29</td><td>30-31</td><td>32-33</td><td>34-35</td><td>36-37</td><td>38-39</td></tr><tr><th colspan="7">TDY DATES OF SERVICE</th></tr><tr><th rowspan="3">TYPE OF DATA<br/>1 - TDY (Basic)<br/>2 - CORRECTION<br/>3 - CANCELLATION</th><th colspan="4">DEPARTURE</th><th colspan="3">RETURN</th><th rowspan="3">AREA(S)</th><th rowspan="3">OMIT</th></tr><tr><th>CODE</th><th>MONTH</th><th>DAY</th><th>YEAR</th><th>MONTH</th><th>DAY</th><th>YEAR</th></tr><tr><td>27</td><td>28-29</td><td>30-31</td><td>32-33</td><td>34-35</td><td>36-37</td><td>38-39</td></tr><tr><th colspan="7">SOURCE OF RECORD DOCUMENT</th></tr><tr><td colspan="3">TRAVEL VOUCHER</td><td colspan="4">DISPATCH</td></tr><tr><td colspan="3">CABLE</td><td colspan="4">DUTY STATUS ON TIME AND ATTENDANCE REPORT</td></tr><tr><td colspan="3">OTHER (Specify)</td><td colspan="4"></td></tr><tr><th>DOCUMENT IDENTIFICATION NO.</th><th colspan="6"></th><th>DOCUMENT DATE/PERIOD</th></tr><tr><td>Reward</td><td colspan="6"></td><td></td></tr><tr><td>Prepared by</td><td colspan="3"></td><td colspan="2">Specialist on<br/>December 4, 1965</td><td colspan="2">December data verification report prepared by<br/>Beverly L. Smith, Specialist 4-65</td></tr></tbody></table>
+
+DECALY
+
+10510 ... 10/10/65 ... 10:00

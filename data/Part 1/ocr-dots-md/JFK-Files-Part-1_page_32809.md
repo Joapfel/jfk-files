@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_32809.png
+
+Convert to MarkdownMEMORANDUM FOR: Chief, TRO/AB
+
+VIA : Office of Security/Alien Affairs Staff
+SUBJECT : Request for Aliens Documentation for AMOTIN-117
+
+1. In accordance with preliminary conversations between Mr. Robert Vambriani, WJ/4/A, and Miss Tina Japinka and Mr. Patrick Phelan, TRO/AB, it is requested that an ordinary Nicaraguan passport be issued in the name of Juan Eidalgo ELIZONDO Romano for AMOTIN-117's use to travel from the United States to Argentina and return. In addition, it is requested that an Arrival-Departure Record (I&K Form I-94) be prepared for Subject.
+
+2. The requested passport should contain a forged United States multiple entry tourist visa and a cachet showing entry into the United States via Miami, Florida, in early April 1968. Inclusion of the forged United States visa in Subject's passport will not afford him any privileges he does not already legally hold in his true identity. The passport should be valid through the end of 1968.
+
+3. The following information should be included on the Form I-94 to be prepared for Subject:
+
+a. Permanent address in Nicaragua, Nicaragua; Calle 13 de Septiembre No. 403.

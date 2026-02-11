@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_32178.png
+
+Convert to MarkdownOFFICIAL ENTRANCE PERFORMANCE RATING
+
+Date: August 3, 1953
+
+Name: Joseph S. Piccolo
+End:
+
+Under the Federal Bureau of Investigation performance rating plan, every new employee is given an entrance performance rating which will constitute his official rating until superseded by a subsequent official rating.
+
+The official entrance rating for this employee
+is satisfactory.
+
+AUG 7 1963

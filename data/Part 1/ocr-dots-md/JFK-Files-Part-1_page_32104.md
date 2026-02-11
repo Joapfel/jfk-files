@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_32104.png
+
+Convert to MarkdownCONFIDENTIAL
+(When Filled In)
+
+IMPORTANT
+
+Central Processing Branch has been charged with responsibility (OPM 20-51 dated 12 October 1981) for ensuring that all employees processing PUS to the extent have reviewed the field version of the Employee Conduct Handbook. You will not be checked out for your proposed travel until you pass the following statement and return it to CPB. Your Personnel Officer can provide you with a copy of the Handbook.
+
+MEMORANDUM OF UNDERSTANDING
+
+I hereby acknowledge that I have read and understand the contents of Field Handbook 20-4, Employee Conduct, dated 30 July 1962.
+
+Signature
+JOSEPH PICCOLO
+
+Date

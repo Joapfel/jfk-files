@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_31835.png
+
+Convert to Markdown19 June 1962
+
+Director of personnel
+Central Intelligence Agency
+2430 "E" Street, N.E.
+Washington 25, D.C.
+
+Dear Sirs,
+
+In accordance with the instructions I received upon departing the Agency for Military Duty, I hereby apply for reinstatement with the Agency, effective 27 August 1962. My Unit is scheduled for discharge on 24 August 1962.
+
+Since 1 October 1961, I have been serving on active duty with the United States Air Force in the 121st Tactical Fighter Squadron which is a part of the 113th Tactical Fighter Wing, and have been stationed at Andrews AFB, Washington, D.C. with the exception of several TDY trips as noted below. I have not left the continental limits of the United States in this tour of Active Duty,
+
+16 Oct 61 to 3 Nov 61 Nellie AFB, Las Vegas, Nevada
+27 Nov 61 to 2 Dec 61 Myrtle Beach AFB, Myrtle Beach, S.C.
+12 Feb 62 to 17 Mar 62 Myrtle Beach AFB, Myrtle Beach, S.C.
+2 May 62 to 11 May 62 Robins AFB, Winston-Robins, Ga.
+
+My duties have been as an Administrative Specialist, first in the Unit Maintenance Section then in the Unit Orderly Room, with an additional duty of acting First Sergeant and Disaster Control NOCIC.
+
+My financial situation dictates that I return to gainful employment at the earliest possible date, except the request for 27 August 1962. However, the need to attend to some personal affairs will require that I be absent from Washington D.C. for the week of 3 through 7 September 1962. Therefore, if at all possible, I would like to be placed on five (5) days of advanced annual leave for 3 through 7 September or five days LMOF. If neither of the two aforementioned requests can be granted, then I request reinstatement effective 10 September 1962.
+
+I do not anticipate any further travel from Washington D.C. area prior to my release from active duty and will be available for personal interview if desired. I may be contacted at the following address and phone number:
+
+8307 Joseph B. Moccio AF22928914
+121st Tactical Fighter Squadron
+Andrews AFB, Washington 25, D.C.
+Tel: 951-3218
+
+Yours sincerely,
+Joseph B. Moccio

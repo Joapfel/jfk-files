@@ -1,0 +1,38 @@
+# JFK-Files-Part-1_page_32311.png
+
+Convert to MarkdownCONFIDENTIAL
+NARRATIVE COMMENTS
+
+<table>
+    <tbody>
+        <tr>
+            <td style="vertical-align: top; padding-right: 20px;">
+                SECTION C<br><br>
+                Indicate significant strengths or weaknesses demonstrated in current position, keeping in proper perspective their relationship to overall performance. State suggestions made for improvement of work performance. Give recommendations for future action. Comment on foreign language competence, if required for current position. Amplify or explain ratings given in Section B to provide best basis for determining future personnel action. Manner of performance of managerial or supervisory duties and cost consciousness in the use of personnel and equipment and funds, must be commented on, if applicable. If extra space is needed to complete Section C, attach a separate sheet of paper.<sup>19</sup>
+            </td>
+            <td style="vertical-align: top;">
+                Mr. Flores came to the Cuba Operations Group from a brief assignment to the Office of Training. Prior to the OTR interim, Mr. Flores had been a COG case officer and was therefore familiar with its operational techniques. During this ten-month period under review, Mr. Flores served as a section chief with responsibilities for East Asian stations with a Cuban target (Tokyo, Manila, and Hong Kong) and Canada. Mr. Flores was the only GS-13 officer to hold section chief responsibility, yet his performance compared favorably with that of the GS-14 section chiefs. As a section chief, Mr. Flores was supervisor for two operations officers, one intelligence analyst and a secretary. He was responsible for ensuring the prompt handling of correspondence to and from the field stations, and providing operational guidance and direction on matters pertaining to Cuban operations. His section was managed in a competent manner with Mr. Flores demonstrating his ability to delegate functional responsibilities.
+                <p>The Cuba Operations Group also functions in a direct case officer capacity, and Mr. Flores frequently traveled TDY to handle cases. He was the operations officer for one particularly sensitive and productive on-island reporting case. This required him to travel on short notice and to arrange for secure meeting and debriefing sessions of this reporting source.</p>
+                <p>Mr. Flores also traveled to Canada on various occasions to meet with liaison contacts and participate in developmental operations. One particular recruitment attempt required Mr. Flores to spend several days in a motel room observing the --CONTINUED--</p>
+                <br><br>
+                CERTIFICATION AND COMMENTS<br>
+                <b>1. BY SUPERVISOR</b><br>
+                MONTHS EMPLOYEE HAS BEEN UNDER MY SUPERVISION IF THIS REPORT WAS NOT BEEN SHOWN TO EMPLOYER, GIVE EXPLANATION Rating: A- Tres files:<br><br>
+                DATE OFFICIAL TITLE OF SUPERVISOR TYPED OR DESCRIBED NAME AND SIGNATURE<br>
+                DC/LA/COG Donald H. Winters<br>
+                <b>2. BY EMPLOYEE</b><br>
+                STATEMENT CONCERNING THIS EVALUATION OF MT PERFORMANCE DATE March 1977 SIGNATURE OF EMPLOYEE J. Daniel Flores<br>
+                HAVE ATTACHED NO DATE<br>
+                HAVE NOT ATTACHED NO DATE<br>
+                <b>3. BY REVIEWING OFFICIAL</b><br>
+                COMMENTS OF REVIEWING OFFICIAL Subject likes to operate. He is very practical, experienced, and realistic. He is, however, a little quiet and tends to accept things the way they are. While I have no doubt as to his skills, he may need a bit more management experience to learn how to make things move despite obstacles. He has done a fine job running the East Asian and Canada section of Cuba Operations Group.<br><br>
+                DATE OFFICIAL TITLE OF REVIEWING OFFICIAL TYPED OR DESCRIBED NAME AND SIGNATURE<br>
+                C/LA/COG Frederick H. Latrash<br>
+                <b>4. BY EMPLOYEE</b><br>
+                I CERTIFY THAT I HAVE BEEN THE ENTIRE AUTHOR OF ALL SECTIONS OF THIS REPORT DATE March 16, 1977
+            </td>
+        </tr>
+    </tbody>
+</table>
+
+CONFIDENTIAL

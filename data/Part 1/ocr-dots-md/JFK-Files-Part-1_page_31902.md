@@ -1,0 +1,8 @@
+# JFK-Files-Part-1_page_31902.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+<table><tr><td colspan="3">NOTIFICATION OF PERSONNEL ACTION</td></tr><tr><td>0305</td><td>07/21/73</td><td></td></tr><tr><td>1 SERIAL NUMBER</td><td>2 NAME (LAST FIRST MIDDLE)</td><td></td></tr><tr><td></td><td>PICCOLO JOSEPH S</td><td></td></tr><tr><td colspan="3">3 NATURE OF PERSONNEL ACTION</td></tr><tr><td colspan="2">PEASSIGNMENT AND CHANGE IN N.S.C.A.</td><td></td></tr><tr><td rowspan="2">6 FUNDS</td><td>V TO V</td><td>V TO CF</td></tr><tr><td>CF TO V</td><td>CF TO CF</td></tr><tr><td colspan="3">9 ORGANIZATIONAL DESIGNATIONS</td></tr><tr><td colspan="3">DOC/HM - DIVISION</td></tr><tr><td colspan="3"></td></tr><tr><td>11 POSITION TITLE</td><td></td><td>12. POSITION NUMBER</td><td>13 CAREER SERVICE DESIGNATION</td></tr><tr><td>CFS OFFICER</td><td></td><td>1865</td><td>D</td></tr><tr><td colspan="3">14 CLASSIFICATION SCHEDULE (GS, IB, etc.)</td><td>15 OCCUPATIONAL SERIES</td><td>16 GRADE AND STEP</td><td>17 SALARY OR RATE</td></tr><tr><td>GS</td><td colspan="2">0136.01</td><td colspan="3">13</td></tr><tr><td colspan="3">18 REMARKS</td></tr><tr><td colspan="4">SIGNATURE OR OTHER AUTHENTICATION</td></tr></table>
+
+<table><tbody><tr><td>JOSEPH S PICCOLO</td></tr><tr><td>(4/21/73)</td></tr></tbody></table>

@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_31954.png
+
+Convert to MarkdownSECRET
+
+c. To monitor and screen LA cable traffic and select items of CI significance for routing to appropriate CI Staff components, together with supplemental information as needed; to maintain liaison with other USG components as appropriate; to perform special assignments on CI cases as may be required by CI Staff.
+
+d. To maintain CI working files, including basic information with respect to the CI Objectives of each LA Division Station.
+
+e. To serve as back-up Coordinator for other divisions as may be required, and as your work schedule permits.
+
+3. During your assignment to CI/OG/OCB Fitness Reports on your performance will be based on the provisions of this LOI. Any major changes in this LOI will be made in writing and will require your signature to be effective.
+
+Stephen F. Creane
+Chief, CI/OG/OC
+
+I have read and understood the above.
+
+Joseph S. Piccolo, Jr.
+LA Division CI Coordinator
+
+Date
+
+SECRET

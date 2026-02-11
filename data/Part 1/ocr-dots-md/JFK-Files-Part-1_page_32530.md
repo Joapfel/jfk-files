@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_32530.png
+
+Convert to MarkdownSECRET
+
+19 DEC 1957
+
+MEMORANDUM FOR: Director of Central Intelligence
+
+THROUGH : Deputy Director for Plans
+
+SUBJECT : Appointment of Mr. Earl J. Williamson as Chief of Station, San Jose, Costa Rica
+
+1. The appointment of Mr. Earl J. Williamson as Chief of Station, San Jose, Costa Rica, effective on or about June 1968 is recommended. Mr. Williamson would replace Mr. Louis P. Napoli.
+
+2. Mr. Williamson has been an employee of the Agency since June 1952 and is presently assigned as Operations Officer, GS-15, Deputy Branch Chief of the WU/COG. Mr. Williamson has served in Havana and Madrid and has excellent command of the Spanish language. A biographic profile, including information regarding his Agency experience and training, is attached.
+
+Attachment:
+
+Biographic Profile (Parts 1 & 2)
+
+APPROVAL RECOMMENDED:
+
+The recommendation in Paragraph 1 is APPROVED:
+
+Director of Central Intelligence
+
+Date
+
+JAN 10 1968
+
+Date
+
+SECRET
+
+14-00000

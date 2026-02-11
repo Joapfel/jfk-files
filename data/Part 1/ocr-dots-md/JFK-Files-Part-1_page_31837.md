@@ -1,0 +1,84 @@
+# JFK-Files-Part-1_page_31837.png
+
+Convert to Markdown121st Tactical Fighter Squadron
+Andrews Air Force Base
+Washington 25, D.C.
+17 January 1962
+
+Director of Personnel
+Central Intelligence Agency
+2430 "E" Street N.W.
+Washington, D.C.
+
+Dear Sirs:
+
+On 4 October 1961 I separated from the Agency as I was called to active duty with the United States Air Force in the defense mobilization. I left my annual leave, sick leave, and retirement accounts in escrow status as I planned to return to the Agency upon release from the military. I still intend to return to the Agency. However, I would now like to be paid in coin of the realm for the amount of annual leave which I left in escrow. It is further requested that my sick leave and retirement accounts be maintained on an escrow status.
+
+Please forward correspondence on the above to the following address:
+
+SSGT Joseph S. Piccolo AF22928914
+121st Tactical Fighter Squadron
+Andrews Air Force Base
+Washington 25, D.C.
+
+1/24/62 Mrs. Betty McVay has advised me to take a check for unpaid annual leave would be mailed to subject on 16 Feb 62. We forwarded the mail of this letter to Payroll Branch for attention of Mr. McVay. In accordance with her request.
+
+BLCg148J
+
+17 Jan 1962
+
+1962-01-17 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:00:01 UTC
+
+MCM148J 17 Jan 1962 10:

@@ -1,0 +1,72 @@
+# JFK-Files-Part-1_page_32740.png
+
+Convert to Markdown<table>
+  <tbody>
+    <tr>
+      <td colspan="2">E SECRETARIAT DISSEMINATION</td>
+      <td>ASSIFIED MESSAGE</td>
+      <td>TOTAL COPY</td>
+      <td>PUBLISHING AND/OR INTIALS SEEN BY</td>
+    </tr>
+    <tr>
+      <td>NAME COPY ☐</td>
+      <td>[空格]</td>
+      <td>SLOTTED ☐</td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td>BY</td>
+      <td>AT</td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td>DISSEM BY</td>
+      <td>28</td>
+      <td>RE</td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td>ACTION UNIT</td>
+      <td>WHM</td>
+      <td>FILE VR</td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td>ACTION NO. 726</td>
+      <td colspan="4"></td>
+    </tr>
+  </tbody>
+</table>
+
+SECRET 191932Z JUL 72 STAFF
+
+CITE WH/MIAMI 15252
+DIRECTOR, MADRID.
+AKULE TYPIC AMWOLF
+
+REF: A. DIRECTOR 289389
+B. WH/MIAMI 15173 (ING59155)
+
+1. PANCHANKIS RECONTACTED ANCHALK-5 17 JULY. NO PROBLEMS AROSE AS ANCHALK-5 RECALLED PANCHANKIS FROM PREVIOUS OPS CONTACTS.
+
+2. ANCHALK-5 KNOWS VERY LITTLE OF AMWOLF-1'S PRESENT PROFESSIONAL OR PERSONAL BACKGROUND. HOWEVER, FROM THE TWO CONTACTS HE HAD WITH AMWOLF-1 HE DESCRIBED LATTER AS INTELLIGENT, CAPABLE, AFFABLE AND SOMEONE WHO COULD LISTEN TO REASON. ANCHALK-5 STATED HE STILL BELIEVES AMWOLF-1 RECRUITABLE ALTHOUGH HE ADMITS THIS BASED ON PREVIOUS ASSESSMENT AND THIS COULD NOT BE CHANGED.
+
+3. ANCHALK-5 WILLING ASSIST US IN ANY WAY. HE FEELS HE IS IN GOOD POSITION NAME PITCH (IF WE SO DESIRE) BECAUSE AMWOLF-1 KNOWS WHERE HE STANDS AND WHO HE IS AND, MOST IMPORTANT AMWOLF-1 WILL KNOW THIS NOT ANOTHER TEST BY HIS OWN SECURITY PEOPLE. THIS latter POINT, ACCORDING TO ANCHALK-5 TERRITURES MOST PERPETUAL OFFICIALS.
+
+US COPY FILMED IN 201-8Y0126
+
+SECRET
+
+<table>
+  <tr>
+    <td>FOR GENERAL DISTRIBUTION</td>
+  </tr>
+  <tr>
+    <td>NO. 302537</td>
+  </tr>
+</table>

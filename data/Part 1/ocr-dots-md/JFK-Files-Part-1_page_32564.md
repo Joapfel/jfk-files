@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_32564.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Date ____________
+
+TO : Chief, Placement and Utilization Division/OP
+Attn : Mr. William Hughes, OC Placement Officer
+
+FROM : Chief, Operations and Training Division/OC
+
+SUBJECT: Communications Training for JOHN E. WILLIAMSON
+
+The communications training record for this individual is on file in the American Activities Branch, Room 2308, I Building.
+
+If information is desired concerning this training, please call extension 2977.
+
+WILLIAM O. EDWARDS
+
+CONFIDENTIAL

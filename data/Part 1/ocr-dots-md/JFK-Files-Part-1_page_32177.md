@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_32177.png
+
+Convert to Markdown# DECLARATION OF APPOINTEE
+
+This form is to be completed before entrance on duty. Answer all questions. Any false st. sent in this declaration will be grounds for cancellation of application or dismissal after appointment. Imp. sent in criminal offense and will be prosecuted accordingly.
+
+1. IF, OR ADDRESS (street and number, city and State)
+
+2. (A) DATE OF BIRTH
+
+(D) PLACE OF BIRTH (city or town and State or country)
+
+3. (A) IN CASE OF EMERGENCY PLEASE NOTIFY
+
+(D) RELATIONSHIP
+
+(C) STREET AND NUMBER, CITY AND STATE
+
+(D) TELEPHONE NO.
+
+4. DOTH THE UNITED STATES GOVERNMENT EMPLOY, IN A CIVILIAN CAPACITY, ANY RELATIVES OF YOURS (LITERALLY BY BLOOM OR MARRIAGE) WITH WHOM YOU LIVE OR HAVE LIVED WITHIN THE PAST 24 MONTHS? ☐ YES ☑ NO
+
+If so, for each such relative fill in the blanks below. If additional space is necessary, complete under Item 10.
+
+<table><thead><tr><th>NAME</th><th>POST OFFICE ADDRESS<br>(Give street number, if any)</th><th>(1) POSITION (C) TEMPORARY OR NOT<br>(2) DEPARTMENT OR AGENCY IN WHICH<br>EMPLOYED</th><th>RELATION-<br>SHIP</th><th>MAR-<br>RIO<br>(Check one)</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+<table><thead><tr><th colspan="2">INDICATE "YES" OR "NO" ANSWER BY PLACING "<em>X</em>" IN PROPER COLUMN</th><th>YES</th><th>NO</th></tr></thead><tbody><tr><td colspan="2">5. ARE YOU A CITIZEN OF OR DO YOU OWE ALLEGIANCE TO THE UNITED STATES?</td><td>✓</td><td></td></tr><tr><td colspan="2">6. ARE YOU AN OFFICIAL OR EMPLOYEE OF ANY STATE, TERRITORY, COUNTY, OR MUNICIPALITY?</td><td></td><td>✗</td></tr><tr><td colspan="4">If your answer is "Yes", give details in Item 10.</td></tr><tr><td colspan="2">7. DO YOU RECEIVE ANY ANNUITY FROM THE UNITED STATES OR DISTRICT OF COLUMBIA GOVERNMENT UNDER ANY RETIREMENT ACT OR ANY PENSION OR OTHER COMPENSATION FOR MILITARY OR NAVAL SERVICE?</td><td></td><td>✗</td></tr><tr><td colspan="4">If your answer is "Yes", give in Item 10 reason for retirement, that is, age, optional disability, or the reason of voluntary or involuntary separation after 3 years' service; amount of retirement pay, and under what retirement act, and rating, if retired from military or naval service</td></tr><tr><td colspan="2">8. SINCE YOU FILED APPLICATION RESULTING IN THIS APPOINTMENT HAVE YOU BEEN DISCHARGED OR FORCED TO RETIRE, FOR MISCONDUCT OR LOST FACTORY SERVICE FROM ANY POSITION?</td><td></td><td>✗</td></tr><tr><td colspan="4">If your answer is "Yes", give in Item 10 the name and address of employer, date and reason in each case</td></tr><tr><td colspan="2">9. HAVE YOU BETH ARRANGED (NOT INCLUDING TRAFFIC VISIONS FOR WHICH YOU WERE FINISHED OR LESS OR FORHOLD COLLATERAL OF 12 OR LESS) SINCE YOU FILED APPLICATION RESULTING IN THIS APPOINTMENT?</td><td></td><td>✗</td></tr><tr><td colspan="4">If your answer is "Yes", list all such cases under Item 10. Give in each case: (1) The date, (2) the nature of the offence or violation. (3) the name and location of the court. (4) the penalty imposed, if any, or other disposition of the case. If appointed, put An-&nbsp;&nbsp;&nbsp;B&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp

@@ -1,0 +1,53 @@
+# JFK-Files-Part-1_page_32076.png
+
+Convert to MarkdownSECRET
+
+<table>
+   <tr>
+    <td colspan="2">AF2</td>
+    <td>REF</td>
+    <td>FILE</td>
+    <td>V.I.</td>
+    <td>000 2</td>
+   </tr>
+   <tr>
+    <td>I</td>
+    <td>N</td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>O</td>
+    <td>D</td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+  </table>
+
+T 032600 EIA582
+
+STAFF
+
+E/ES ONLY
+
+IN 963669
+
+ADDI 30375
+
+TOR:2813142 JUN 78
+
+SECRET 2813052 JUN 76 STAFF
+
+CITE ADDIS ABABA 30379
+
+TO: DIRECTOR.
+
+WISH COMMEND MESSERS PICCOLO AND THOMPSON FOR EXCELLENT PROFESSIONAL WORK IN ADDIS ABABA. DURING RECENT CI SURVEY, BOTH OFFICERS MADE DETAILED STUDIES OF CASES, FILES AND STATION ACTIVITIES THAT RESULTED IN SOUND ORAL RECOMMENDATIONS FOR IMPROVEMENT. WE ARE IMPLEMENTING THESE RECOMMENDATIONS AT ONCE. SURVEY WAS EXTREMELY VALUABLE FOR ALL STATION PERSONNEL. E2 IMPDET
+
+SECRET
+
+14-00000

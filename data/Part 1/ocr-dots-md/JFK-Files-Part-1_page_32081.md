@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_32081.png
+
+Convert to Markdown# SECRET
+
+SUBJECT: Mr. Joseph S. Piccolo - Completion of Senior Operations Course #2/76
+
+4. Mr. Piccolo, as a 40-year-old CS-13/4, was at about the average age for this class and slightly above average in grade. Although formal grades are not given to graduates of the SOC, it was the consensus of DTS staff instructors involved in SOC #2/76 that Mr. Piccolo would almost certainly rank number one in this particular group. Bringing to the class broad operational experience and understanding, Mr. Piccolo was an active participant in the six-day SAI block of instruction and made contributions based on his own operational past. The tradecraft instructors who conducted the live problem in Richmond described Mr. Piccolo as the best student in street tradecraft. One of the Course Coordinators commented that Mr. Piccolo, "exhibited, more than any of the others, the ability to lead the group." Mr. Piccolo's term paper on the subject of how a NOC station might be established in Rio de Janeiro was careful and thorough and was described by the panel as "an excellent overall plan." To a man of Mr. Piccolo's experience, at least some of the course may have seemed a little basic or redundant, but he never let it show, and always took part with the same enthusiasm as the more junior members of the class.
+
+5. A copy of this memorandum is being placed in Mr. Piccolo's official personnel file.
+
+FOR THE DIRECTOR OF TRAINING:
+
+JOHN W. DAYTON
+Course Coordinator
+Senior Operations Course
+
+SECRET

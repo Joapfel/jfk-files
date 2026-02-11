@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_31871.png
+
+Convert to Markdown**Office Memorandum • UNITED STATES GOVERNMENT**
+
+TO : Colonel Omer
+
+FROM : Gordon M. Stewart /l Cordon M Stewart
+
+SUBJECT: PICCOLO, Joseph Stephan - Cancel Permission to Leave the Country and DIRECTED 4-F Deferment
+
+DATE:
+
+24 Nov 1957
+
+It is requested that the Permission to Leave the Country granted subject on 18 November 1957 and renewed on 8 December 1959 be cancelled. Please also cancel the DIRECTED 4-F Deferment allowed on 18 November 1957. SSS Form 110 is attached; SSS Forms 300 have been destroyed.
+
+Mr. Piccolo was born on 8 December 1935 in Yonkers, New York. His permanent address is 1636 N. E. 20th Street, Fort Lauderdale, Florida.
+
+STANDARD FORM NO. 64
+
+**Office Memorandum • UNITED STATES GOVERNMENT**
+
+TO : Colonel Omer
+
+FROM : Gordon M. Stewart /l Cordon M. Stewart
+
+SUBJECT: PICCOLO, Joseph Stephan - Renew Permission to Leave the Country
+
+DATE:
+
+It is requested that the Permission to Leave the Country granted subject on 18 November 1957 be renewed. SSS Form 300 issued on this date has been destroyed. Please retain the DIRECTED 4-F Deferment allowed subject on 18 November 1957. Subject will return by December 1960 at which time we will cancel his DIRECTED Deferment.
+
+Mr. Piccolo was born on 8 December 1935 in Yonkers, New York. His permanent address is 1636 N. E. 20th Street, Fort Lauderdale, Florida.

@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_32451.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+ORIENTATION TO INTELLIGENCE FOR CT'S
+(Class of December 1967)
+
+STUDENT : Daniel FLORES
+YEAR OF BIRTH: 1935
+GRADE : GS-07
+EOD : March 1962
+
+Duration: 11-22 December 1967
+(30 hours, full time)
+OFFICE : CT
+SERVICE DESIGNATION: SJ
+NUMBER OF STUDENTS : 88
+
+COURSE OBJECTIVES - CONTENT AND METHODS
+
+In the Orientation to Intelligence Course the objectives are: (1) to Instruct the student in the basic concepts and terminology of intelligence; (2) to describe the history of U.S. Intelligence and the current role of Intelligence in the national security structure; (3) to outline the composition and mission of the Intelligence community, noting the Agency's significant role therein; (4) to define the mission of CIA. In supporting the DCI and to identify the functions of the Agency's major components, particularly in the collection, production, and dissemination of intelligence; and (5) to Identify and discuss major problems facing the Agency. The area surveys and "Articulating the United States" elements of the course are designed to introduce the students briefly to some of the Intelligence problems presented by major regions of the free world and to stimulate thought about the American way of life and its relationship to these areas.
+
+Instructional techniques include lectures given by members of the Orientation and Briefing Faculty, guest speakers from Agency components, seminars, directed reading, review exercises, training films, and Intelligence exhibits.
+
+ACHIEVEMENT RECORD
+
+The individual student evaluation is based on his score achieved on a written examination given at the conclusion of the course. This test, consisting of 100 items, covered all major aspects of the course content. The rating assigned to this student is:
+
+PROFICIENT
+
+The evaluation system used was as follows:
+
+*   O = Outstanding - 0-3 wrong
+*   S = Strong - 4-8 wrong
+*   P = Proficient - 9-15 wrong
+*   A = Adequate - 16-25 wrong
+*   W = Weak - 26- wrong
+
+FOR THE DIRECTOR OF TRAINING: Lawrence C. Beagley
+Chief, Orientation & Briefing Faculty
+
+8 January 1968
+Date
+
+S-E-C-R-E-T
+
+<table>
+  <tr>
+    <td>Signature</td>
+  </tr>
+  <tr>
+    <td>Dated</td>
+  </tr>
+</table>

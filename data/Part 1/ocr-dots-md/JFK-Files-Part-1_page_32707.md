@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_32707.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td>1. NAME (last, first, middle)</td><td>2. DATE OF BIRTH</td><td>3. GRADE</td></tr><tr><td>Hillisemon, Earl J.</td><td>March 1918</td><td>C-16</td></tr><tr><td>4. OFFICE, DIVISION, BRANCH (OF OPERATIONS STATION AND EXISTING COVER IF LATERAL ASSIGNMENT)</td><td>5. PRESENT POSITION</td><td>6. EMPLOYEE EXTENSION</td></tr><tr><td>DDP/FN/COQ</td><td>Op's Officer</td><td>7481</td></tr><tr><td>7. PROPOSED STATION</td><td>8. PROPOSED POSITION (Title, Number, Grade)</td><td></td></tr><tr><td>San Jose, Costa Rica</td><td>Chief of Station, 0198</td><td></td></tr><tr><td>9. TYPE OF COVER AT NEW STATION</td><td>10. ESTIMATED DATE OF DEPARTURE</td><td>11. NO. OF DEPARTMENTS TO ACCOMPANY</td></tr><tr><td>State</td><td>June 1968</td><td>2</td></tr><tr><td colspan="3">12. COMMENTS</td></tr><tr><td colspan="3"></td></tr><tr><td>13. DATE OF REQUEST</td><td>14. SIGNATURE OF REQUESTING OFFICIAL</td><td>15. ROOM NUMBER AND BUILDING</td><td>16. EXTENSION</td></tr><tr><td>16 February 1968</td><td>John F. Conroy</td><td>3 N 8308 KJG</td><td>4818</td></tr><tr><td colspan="4">17. OFFICE OF MEDICAL SERVICES DISPOSITION<br>MEDICALLY QUALIFIED FOR<br>PROPOSED OS PCS<br>REX HACT<br>18. OFFICE OF SECURITY DISPOSITION<br>+4 12 69<br>19. OVERSEAS CANDIDATE REVIEW PANEL DISPOSITION<br>REQUEST FOR PCS OVERSEAS EVALUATION</td></tr><tr><td colspan="4"></td></tr><tr><td colspan="4">2594 XXXXXXXXXX XXXXXXXXX<br>SECRET</td></tr></table>
+
+(1)

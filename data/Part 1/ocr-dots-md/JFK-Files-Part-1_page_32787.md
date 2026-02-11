@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_32787.png
+
+Convert to Markdown4. It is understood that the passport will be needed for about six months, following which it is to be returned to TCD/AB. Should further operational need exist for this document beyond that time, it must be borne in mind that the expiration date is 7 March 1969 and that annual revalidations are needed from that time forward. Any such revalidations would have to be entered by TCD/AB. Also, use of this passport for travel other than that originally intended (direct from U.S. to Argentina and back within six months) will require careful scrutiny by TCD/AB of the situation at the time of the intended future travel.
+
+5. In accordance with verbal arrangements between Messrs. Fombrini and Puelan, please pass on to TCD/AB details of A/C:WKL-1's procurement of the Argentine visa and any other travel control events of significance in the use of this passport so that TCD/AB may gain from the experience of this agent in the use of this alias document.
+
+6. Any further questions concerning this case should be referred to the undersigned or to Miss Tina Japikse on extension 2531.
+
+Patrick J. Puelan
+TCD/AB
+
+Attachment:
+
+* 1 Envelope (h/v)
+Nicaraguan Passport,
+Travel Itinerary
+
+Distribution:
+
+* Original & 1 - Addressee
+* 1 - C/OS/AAS (Info)

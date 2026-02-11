@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_31976.png
+
+Convert to MarkdownSECRET
+
+NARRATIVE COMMENTS (Continued)
+
+function, Subject has done very well. More importantly, in his several stints as ACOS (during COS illness which required hospitalization and medical consultations out of country), Subject really shone in his performance. He was obliged to deal with the most difficult Ambassador ever encountered by this rater, and represented and protected Station interests with skill and dignity.
+
+Subject requires little supervision, by virtue of his thorough knowledge and extensive experience in practically every aspect of the mechanics of clandestine operations in Latin America. His avocation is "Administration", in the full sense of the word, and he administers his work load impeccably. The assignment just completed was his first command job, and he has acquired the additional managerial skills necessary for him to progress in his career. There is no question of his additional potential, and it is natural to envision him as a Deputy Chief of Station at a larger Latin American Station, or, better, as a Chief of Base in his next field assignment. He is above average in security and cost-consciousness. He is fluent not only in Spanish, but also in Portuguese, and more importantly, in human relations. He can establish rapport with people at all levels of society.
+
+His personality is a pleasant one. He is low-keyed, soft-spoken, sincere and methodical and establishes natural excellent rapport with his co-workers, both subordinate and superior. While easy to get along with, he still knows how to effectively administer training, guidance, advice and discipline to his subordinates without alienating them. This rater has gotten on well with Subject. His experience, self-confidence and directness are such, however, that he might well be difficult to supervise if there were any kind of personality clash involved. In sum he knows what he is doing, and would be inclined to resent and resist advice of guidance which he might judge as unaround. While some might consider the trait a shortcoming, this later considers it a strength, overall.

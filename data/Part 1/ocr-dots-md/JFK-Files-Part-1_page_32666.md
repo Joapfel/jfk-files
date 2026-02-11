@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_32666.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+<table><thead><tr><th colspan="2">SECTION E NARRATIVE DESCRIPTION OF MANNER OF JOB PERFORMANCE</th></tr><tr><td>Stress strengths and weaknesses demonstrated in current position. Indicate suggestions made to employee for improvement of his work. Give recommendations for his training. Describe, if appropriate, his potential for development and for assuming greater responsibilities. Amplify or explain, if appropriate, ratings given in SECTIONS B, C, and D to provide the best basis for determining future personnel actions.</td><td>Mr. Williamson is very energetic and enthusiastic. He maintains excellent working relations with the WII Division. He has performed special operational tasks in the Field at the specific request of Chief, WIID. He is particularly well qualified for foreign liaison work in a Spanish-speaking country (e.g. Spain, or an important Latin American country).</td></tr></thead><tbody><tr><td>FEB 24 30 PM 60<br/>4100 HST<br/>HHS</td><td>DATE 18 Feb 1960 SIGNATURE OF EMPLOYEE Earl J. Williamson</td></tr><tr><td>2.</td><td>BY SUPERVISOR IF THIS REPORT HAS NOT BEEN SHOWN TO EMPLOYEE, GIVE EXPLANATION IF REPORT IS NOT BEING MADE AT THIS TIME, GIVE REASON.</td></tr><tr><td>MONTHS EMPLOYEE HAS BEEN UNDER MY SUPERVISION 14</td><td>IF REPORT IS NOT BEING MADE AT THIS TIME, GIVE REASON.</td></tr><tr><td>EMPLOYEE UNDER MY SUPERVISION LESS THAN 90 DAYS</td><td>REPORT MADE WITHIN LAST 90 DAYS</td></tr><tr><td>OTHER (Specify) ID: 175</td><td>OFFICIAL TITLE OF SUPERVISOR Deputy Chief, CI/ICD</td><td>TYPED OR PRINTED NAME AND SIGNATURE Paul J. Burke</td></tr><tr><td>3.</td><td>BY REVIEWING OFFICIAL I WOULD HAVE GIVEN THIS EMPLOYEE A SAME EVALUATION.<br/>I WOULD HAVE GIVEN THIS EMPLOYEE A HIGHER EVALUATION.<br/>I WOULD HAVE GIVEN THIS EMPLOYEE A LOWER EVALUATION.<br/>I CANNOT JUDGE THESE EVALUATIONS. I AM NOT SUFFICIENTLY FAMILIAR WITH THE EMPLOYEE'S PERFORMANCE.<br/><br/>COMMENTS OF REVIEWING OFFICIAL</td><td>OFFICIAL TITLE OF REVIEWING OFFICIAL Chief, CI/ICD</td><td>TYPED OR PRINTED NAME AND SIGNATURE Luthar Metal</td></tr><tr><td>DATE 12/21</td><td></td><td></td><td></td></tr></tbody></table>
+
+SECRET
+
+SECRET
+
+14-00000

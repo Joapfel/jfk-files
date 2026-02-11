@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_31849.png
+
+Convert to MarkdownSECRET
+
+REQUEST FOR PERSONNEL ACTION
+
+<table><thead><tr><th colspan="3">1. Serial No.</th><th colspan="2">2. Name (Last-First-Middle)</th><th colspan="4">3. Date Of Birth</th><th colspan="2">4. Vet Pref</th><th colspan="2">5. Srs.</th><th colspan="2">6. CS. LCO</th></tr><tr><td colspan="3"></td><td colspan="2">PICCOLO, JOSEPH S.</td><th>Mo.</th><th>Du.</th><th>Yr.</th><th>None 0<br/>5 Pt.-1<br/>10 Pt.-9</th><th>Code</th><th colspan="2">M</th><th colspan="2">1</th><th colspan="2"></th></tr><tr><th colspan="3">7. SCD</th><th colspan="2">8. CSC Form.</th><th colspan="4">9. CSC Or Other Legal Authority</th><th colspan="2">11. TEGU</th><th colspan="2">12. LCD</th><th colspan="2">13. Rpt. Sds</th></tr><tr><th>Mo.</th><th>Da.</th><th>Yr.</th><th>Yes - 1<br/>No - 2</th><th>Code</th><th>10. Aprt. Adjv.<br/>Mo.</th><th>Da.</th><th>Yr.</th><th>Yes - 1<br/>No - 2</th><th>Code</th><th>Mo.</th><th>Da.</th><th>Yr.</th><th>Yes - 1<br/>No - 2</th><th>Code</th></tr></thead><tbody><tr><td colspan="14">PREVIOUS ASSIGNMENT</td></tr><tr><th colspan="3">14. Organizational Designations</th><th colspan="2">CS/CB DEVELOPMENT COMPLEMENT<br/>DDP/WII DIVISION</th><th colspan="4">15. Location Of Official Station</th><th colspan="4">16. Position No.</th><th colspan="2">17. Occup. Series</th></tr><tr><th colspan="3">ACTION</th><th colspan="2">LEAVE WITHOUT PAY<br/>(Not to exceed 12 mos.)</th><th colspan="4">REGULAR</th><th colspan="2">30. Separation Data</th><th rowspan="4" colspan="4">Wt.</th></tr><tr><th colspan="3">PRESENT ASSIGNMENT</th><th colspan="2">A. Requested By (Name And Title)<br/>P. C. BOWERS WH/PERSONNEL OFFICER<br/>B For Additional Information Cell (Name & Telephone Ext.)<br/>Pat Cassell x8242</th><th colspan="4">C. Request Approved By (Signature And Title)</th><th colspan="2">33. Dept. Field</th><th colspan="2">34. Position Title</th><th colspan="2">35. Position No.</th><th colspan="2">36. Sert.</th><th colspan="2">37. Occup. Series</th></tr><tr><th colspan="3">SOURCE OF REQUEST</th><th colspan="2">A. Career Bar<br/>B. Res. Control<br/>C. Classification</th><th colspan="4">C. Career Bar<br/>E. Placement<br/>F. Approved By</th><th colspan="2">38. Grade & Step</th><th colspan="2">39. Salary Or Rate<br/>S</th><th colspan="2">40. SD</th><th colspan="2">41 Date Of Grade<br/>Mo. Da. Yr.</th><th colspan="2">42. PSI Due<br/>Mo. Da. Yr.</th><th colspan="2">43. Appropriation Number</th></tr><tr><th colspan="3">CLEARANCES</th><th colspan="2">Remarks</th><th colspan="2">Signature</th><th colspan="2">Date / Time</th><th colspan="2">Signature</th><th colspan="2">Date</th><th colspan="2">Signature</th><th colspan="2">Date</th><th colspan="2">Signature</th></tr></tbody></table>
+
+FORM NO 1152
+1 MAR 87
+
+SECRET
+
+(4)

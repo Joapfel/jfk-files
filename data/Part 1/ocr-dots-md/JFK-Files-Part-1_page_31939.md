@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_31939.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td colspan="7">NOTIFICATION OF PERSONNEL ACTION</td></tr><tr><td colspan="3">PAS: 22 JULY 1960</td></tr><tr><th>1. Serial No.</th><th colspan="2">2. Name (Last,First,Middle)</th><th colspan="4">3. Date Of Birth<br/>4. Vol. Pref. 5. Sex</th><th>e. CS. EOD<br/>Mo. Da. Yr.</th></tr><tr><td>125658</td><td colspan="2">PICCOLO JOSEPH S</td><td>12</td><td>08</td><td>35</td><td>Nona-0<br/>5 Pt.-1<br/>10 Pt.-2</td><td>M 1</td><td>02</td><td>04</td><td>57</td></tr><tr><th rowspan="2">7. SCD<br/>Mo. Da. Yr.</th><th colspan="2">8 CSC Petmt.</th><th colspan="3">9. CSC Or Other Legal Authority</th><th rowspan="2">10 Apm Allday<br/>Code<br/>No.-2</th><th colspan="3">11 REGL<br/>19 LCD</th><th rowspan="2">13 alt Grup. Lte<br/>Code<br/>No.-2</th></tr><tr><td>Yes. 1<br/>No. -2</td><td>1</td><td>Yes.<br/>No.-2</td><td>1</td><td>Mo. Da. Yr.</td><td>Mo. Da. Yr.</td><td>Yrs.</td></tr></table>
+
+PREVIOUS ASSIGNMENT
+
+<table><tbody><tr><th colspan="3" scope="colgroup">14. Organizational Designations</th><th scope="col">Code</th><th colspan="3" scope="colgroup">15. Location Of Official Station</th><th scope="col">Station Code</th></tr><tr><td colspan="4">DDP WH</td><td rowspan="2">4617</td><td colspan="3">WASH., D.C.</td><td rowspan="2">75013</td></tr><tr><td colspan="4">BRANCH 4</td></tr><tr><th colspan="3" scope="colgroup">16. Dept. Field</th><th scope="col"></th><th colspan="3" scope="colgroup">17. Position Title</th><th scope="col">18. Position No.</th><th scope="col">19 Serv.</th><th scope="col">20. Occup. Series</th></tr><tr><td>Dept. - 8</td><td>Code</td><td>USId - 4</td><td></td><td rowspan="2">INTELL ASST</td><td colspan="3"></td><td rowspan="2">0629</td><td rowspan="2">GS</td><td rowspan="2">0301.28</td></tr><tr><td>Frgn. - 6</td><td>2</td><td></td><td></td><td colspan="3"></td></tr><tr><th colspan="2" scope="colgroup">21. Grade & Step</th><th colspan="2" scope="colgroup">22. Salary Or Rate</th><th colspan="2" scope="colgroup">23. SD</th><th colspan="2" scope="colgroup">24. Date Of Grade<br/>Mo. Da. Yr.</th><th colspan="2" scope="colgroup">25. PSI Due<br/>Mo. Da. Yr.</th><th colspan="2" scope="colgroup">26. Appropriation Number</th></tr><tr><td>06 2</td><td></td><td>$ 4995</td><td></td><td>D</td><td></td><td>06 | 28 | 59</td><td>06 | 26 | 60</td><td></td><td>0235 | 1000 | 1000</td><td></td><td></td></tr></tbody></table>
+
+ACTION
+
+<table><thead><tr><th colspan="2" scope="colgroup">27. Nature Of Action

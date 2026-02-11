@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_32132.png
+
+Convert to MarkdownSECRET
+
+<table><tbody><tr><td>1. NAME (Last, First, Middle)</td><td>2. DATE OF BIRTH</td><td>3. GRADE</td></tr><tr><td>Piccolo, Joseph S.</td><td>12/08/35</td><td>GS-13</td></tr><tr><td>4. OFFICE, DIVISION, BRANCH (or overseas station and reporting cover if lateral assignment)</td><td>5. PRESENT POSITION</td><td>6. EMPLOYEE EXTENSION</td></tr><tr><td>DDO/WII/RIO de Janeiro</td><td>Ops Officer</td><td>5671</td></tr><tr><td>7. PROPOSED STATION</td><td>8. PROPOSED POSITION (Title, Number, Grade)</td><td></td></tr><tr><td>Managua, Nicaragua</td><td>Ops Officer 0306 GS-13</td><td></td></tr><tr><td>9. TYPE OF COVER AT NEW STATION</td><td>10. ESTIMATED DATE OF DEPARTURE</td><td>11. NO. OF DEPENDENTS TO ACCOMPANY</td></tr><tr><td>State SSN# 265 44 1914</td><td>09/10/73</td><td>three</td></tr><tr><td colspan="3">12. COMMENTS<br/>Physicals to be taken in the field.</td></tr><tr><td>13. DATE OF REQUEST</td><td>14. SIGNATURE OF REQUESTING OFFICIAL</td><td>15. ROOM NUMBER AND BUILDING</td><td>16. EXTENSION</td></tr><tr><td>18 May 1973</td><td>Karl Fleck</td><td>3D 5317 Hqs</td><td>5671</td></tr><tr><td colspan="4">17. OFFICE OF MEDICAL SERVICES DISPOSITION</td></tr><tr><td colspan="4"></td></tr><tr><td colspan="4">18. OFFICE OF SECURITY DISPOSITION</td></tr><tr><td colspan="4"></td></tr><tr><td colspan="4">19. OVERSEAS CANDIDATE REVIEW PANEL DISPOSITION</td></tr><tr><td colspan="4">24 AUG 1973</td></tr><tr><td colspan="4">QUALIFIED FOR PROPOSED ASSIGNS/OVERSEAS</td></tr><tr><td colspan="4">Chairman, Overseas Candidate Review Panel</td></tr><tr><td colspan="4">REQUEST FOR PCS OVERSEAS EVALUATION</td></tr></tbody></table>
+
+SECRET
+
+259a ...

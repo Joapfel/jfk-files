@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_32031.png
+
+Convert to MarkdownCONFIDENTIAL
+DETAILS FOR ADMINISTRATION OF ATTACHED JOT'S
+
+For Supervisor:
+
+1. The office or division will maintain time and attendance records during the period of this attachment.
+
+2. Overtime can be authorized only after supervisor has checked with the JOT Inlanding Officer. CTR will be reimbursed by division or office for overtime payments. The T&A clerk should report to JOTP at the end of each pay period any overtime worked by a JOT.
+
+3. Any security violations by this JOT will be handled in the manner that is appropriate to the division or staff. Cutl/JOTP will be notified in this event.
+
+4. Supervisors will execute any fitness reports covering the period of this attachment. Chief/JOTP will countersign such reports.
+
+5. Supervisors will provide job performance data to the Chief/JOTP when the JOT enters a promotion zone of consideration.
+
+6. JOTP is located in Room 743, Broyhill Building, Extension 3261. Any questions should be addressed to Mr. JOHN GERRY
+
+7. It is requested that each supervisor submit a progress report after three months of attachment. In the event of rotational assignments within a division where supervisors change, a progress report should be submitted at the end of each phase of the rotation.
+
+For JOT:
+
+8. Any leave will be worked out with the supervisor and if approved must be communicated by telephone to the JOTP office. See paragraph (1) above.
+
+9. The JOT will furnish Chief/JOTP with a progress report after the first month of attachment and every two months thereafter. Items desired include:
+
+a. Description of activities
+
+b. Plan for next reporting period
+
+c. Names and titles of supervisors
+
+d. Assessment of value of present experience
+
+e. Any contributing suggestions
+
+These reports should be routed to Cutl/JOTP via the supervisor.
+
+10. The JOT will advise this office of his room number and extension and name of his supervisor as soon as possible after attachment.
+
+JOTP:
+
+Included in this document:
+Name, title, position
+Department, etc.

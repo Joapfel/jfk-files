@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_32700.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="4">FIELD REASSIGNMENT QUESTIONNAIRE</th></tr></thead><tbody><tr><td>DO NOT COMPLETE</td><td colspan="3">FOR HEADQUARTERS USE ONLY</td></tr><tr><td colspan="4">AUTHENTICATION OF SIGNATURES AND VERIFICATION OF ITEMS 1 THROUGH 7, BELOW:</td></tr><tr><td>NAME OF EMPLOYEE (true)</td><td>DATE (from item 8-1)</td><td>NAME OF SUPERVISOR (true)</td><td>DATE (from Item 8-2)</td></tr><tr><td>WILLIAMSON, Earl J.</td><td>5 Dec 57</td><td>CALLWELL, William B.</td><td>5 Dec 57</td></tr><tr><td colspan="2">NAME AND SIGNATURE OF OFFICIAL AT HEADQUARTERS</td><td colspan="2">H.C. Montarvo</td></tr><tr><td colspan="2">AUTHORIZED TO AUTHENTICATE SIGNATURES AND VERIFY DATA IN ITEMS NO. 1 THROUGH 7, BELOW:</td><td colspan="2"></td></tr><tr><td colspan="4">TO BE COMPLETED BY EMPLOYEE</td></tr><tr><td>1. DATE OF BIRTH<br/>13 March 1915</td><td>2. GRADE<br/>GS-11</td><td>3. CURRENT POSITION TITLE<br/>Deputy Chief of Station</td><td>DO NOT COMPLETE</td></tr><tr><td>4. SERVICE DESIGNATION (if known)<br/>DI</td><td colspan="3">5. CURRENT STATION OR FIELD BASE<br/>Habana, Cuba</td></tr><tr><td colspan="2">6. OTHER DUTY STATIONS OR FIELD BASES DURING CURRENT TOUR<br/>None</td><td colspan="2">7. EXPECTED DATE OF DEPARTURE<br/>July 1958</td></tr><tr><td colspan="4">8. WRITE A DESCRIPTION OF YOUR MAJOR DUTIES DURING THE CURRENT TOUR OF DUTY (see special note on Transmittal Form):<br/><br/>Deputy Chief of Station - supervise 12 employees<br/>External liaison with Cuban Department of Investigation<br/>KUTUBE Operations Officer</td></tr><tr><td colspan="4">9. PREFERENCE FOR NEXT ASSIGNMENT:<br/><br/>A. WRITE A BRIEF DESCRIPTION OF THE TYPE OF WORK YOU WOULD PREFER FOR YOUR NEXT ASSIGNMENT IF IT DIFFERS FROM THAT INDICATED IN ITEM NO. 8. ABOVE. IF YOU HAVE MORE THAN ONE PREFERENCE, INDICATE YOUR CHOICES.<br/><br/>1st Choice: See Item 8<br/>2nd Choice: Office of the Inspector General</td></tr><tr><td colspan="4">B. INDICATE WHAT TRAINING YOU BELIEVE YOU SHOULD HAVE IN ORDER TO INCREASE YOUR VALUE TO THE ORGANIZATION (refer to catalog of courses, if available):<br/><br/>Refreshor Operations Course</td></tr></tbody></table>
+
+FORM NO. 202
+1 SEP 19
+
+SECRET
+
+140

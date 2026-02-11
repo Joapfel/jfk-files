@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_31970.png
+
+Convert to Markdown15 December 1976
+
+MEMORANDUM FOR: Joseph S. Piccolo, Jr.
+
+SUBJECT: Letter of Instruction
+
+Dear Mr. Piccolo:
+
+This Letter of Instruction sets forth your responsibilities and duties as an operations officer assigned to the Counter- intelligence Staff. Your performance of the duties described below will serve as the basis of the preparation of your fitness report. Any questions, clarification or elaboration regarding these instructions should be discussed with the Chief, CI/OG/SO and/or Chief, CI/OG.
+
+General
+
+1. Working under the supervision of the Chief, CI/OG/SO, you are responsible for the initiation, coordination and support of certain counterintelligence operations designed to detect and neutralize efforts by adversary foreign intelligence services which seek to penetrate U.S. Government agencies (especially CIA) as well as any intelligence service abroad with which CIA maintains a liaison relationship. To do this effectively you will be expected to develop and maintain close working contact with other components of this Agency as well as officers of other U.S. agencies involved in counterintelligence.
+
+2. Through perusal of pertinent cable traffic and other available data you should keep abreast on a continuing basis of the activities, personnel and political factors affecting the hostile opposition as well as problems which confront friendly liaison services and Agency installations overseas. It is further expected that you will contribute sound operational planning and participate actively in decisions reached concerning those counterintelligence operations assigned to you. You will also be expected to keep your immediate supervisor fully informed of all major developments and problems of an operational or administrative nature.
+
+E.2 IMPDET
+CL BY 008885
+
+SCOTT

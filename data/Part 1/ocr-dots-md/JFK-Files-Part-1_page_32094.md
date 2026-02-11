@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_32094.png
+
+Convert to MarkdownTREASURY DEPARTMENT
+
+UNITED STATES SECRET SERVICE
+
+OFFICE OF THE DIRECTOR
+
+WASHINGTON, D.C. 20226
+
+August 1, 1968
+
+The Honorable
+Richard M. Holms
+Director
+Central Intelligence Agency
+McLean, Virginia
+
+Dear Dick:
+
+As you know, the President and Mrs. Johnson visited Managua, Nicaragua on Monday, July 8, 1968, upon their return from the San Salvador Conference.
+
+Assistant to the Special Agent in Charge Ronald M. Pontius of the Presidential Protective Division, has informed me that ~~Mr. Joseph Piccolo~~ and Mr. Carl Jenkins were of particular assistance in establishing and coordinating the relations with the Nicaraguan security organizations, and President Somoza's staff. Mrs. Elizabeth Jenkin's assistance as an interpreter was also greatly appreciated.
+
+Personally and on behalf of the United States Secret Service, I wish to extend my sincere appreciation and thanks to the above mentioned personnel for the capable and professional manner in which they performed their duties.
+
+Sincerely,
+
+James J. Rowley
+
+<table><tr><td>Executive Agency</td></tr><tr><td>F-15E STRIKE EAGLE</td></tr></table>
+
+8-3-66
+
+7/8/1968
+
+MAY 20 1968
+
+7/15/1968
+
+<table>
+   <tr>
+    <td>May 20, 1968</td>
+   </tr>
+  </table>
+
+<table>
+   <tr>
+    <td>July 8, 1968</td>
+   </tr>
+  </table>

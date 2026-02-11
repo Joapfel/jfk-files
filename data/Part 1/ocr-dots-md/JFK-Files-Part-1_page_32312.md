@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_32312.png
+
+Convert to MarkdownCONFIDENTIAL
+
+FITNESS REPORT
+
+Daniel Flores
+
+NARRATIVE COMMENTS
+
+cont.
+
+movements of an operational target, and to devise a secure and timely method of approach to the individual Cuban.
+
+In comparing Mr. Flores' performance as an operations officer and as a supervisor, I believe his performance is somewhat stronger in the former capacity. Mr. Flores has all the attributes of an excellent case officer: he is aggressive, thinks operationally, and is fast on his feet in an operational situation. He is further aided by his fluency in Spanish and has on more than one occasion successfully passed himself off as a Mexican businessman. During his TDY travels, he has repeatedly demonstrated dedication to the job at hand, willingness to work long hours, and a flexibility to handle all types of situations.
+
+Mr. Flores is less enthusiastic when it comes to the paperwork and bureaucratic requirements of his position. While he is a good writer, he tends to handle his written tasks in a hurried manner and consequently, his work oftentimes requires review. He is also inclined to take the shorter and easier approach when handling the paper flow requirements. I mention these points not because they represent basic shortcomings, but simply to contrast them to his exceptionally high performance in his operations officer capacity.
+
+In sum, Mr. Flores is an extremely experienced, competent and well motivated operations officer. His talent as a "street operator" with a keen sense for the human target has been amply demonstrated. He has now quite successfully been introduced to his first supervisory position and proven that he is competent for assignments of this nature. I believe Mr. Flores is capable of handling positions of increasing responsibility and should be given the opportunity to do so.
+
+C O N F I D E N T I A L .

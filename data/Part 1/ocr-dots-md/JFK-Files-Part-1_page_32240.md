@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_32240.png
+
+Convert to Markdown26 January 1962
+
+Mr. Daniel Flores
+Apartment 203
+2828 Connecticut Avenue, N. W.
+Washington 8, D. C.
+
+Dear Mr. Flores:
+
+Processing of your application for employment with this Agency is continuing. Please advise us if any circumstance should arise which might affect your interest in a position with us.
+
+Your continued interest and patience are appreciated.
+
+OP/Corres/sjm
+File sent to:Wells

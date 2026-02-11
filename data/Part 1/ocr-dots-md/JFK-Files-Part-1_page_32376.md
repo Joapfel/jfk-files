@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_32376.png
+
+Convert to MarkdownSECRET
+
+(When Filled In)
+
+<table><thead><tr><th>GROSS WORDS</th><th>ERRORS</th><th>NET WORDS</th><th>GROSS WORDS</th><th>ERRORS</th><th>NET WORDS</th></tr></thead><tbody><tr><td>45</td><td>5</td><td>40</td><td>63</td><td>14</td><td>49</td></tr><tr><td>46</td><td>6</td><td>40</td><td>64</td><td>14</td><td>50</td></tr><tr><td>47</td><td>6</td><td>41</td><td>65</td><td>15</td><td>50</td></tr><tr><td>48</td><td>7</td><td>41</td><td>66</td><td>15</td><td>51</td></tr><tr><td>49</td><td>7</td><td>42</td><td>67</td><td>16</td><td>51</td></tr><tr><td>50</td><td>7</td><td>43</td><td>68</td><td>16</td><td>52</td></tr><tr><td>51</td><td>8</td><td>43</td><td>69</td><td>16</td><td>53</td></tr><tr><td>52</td><td>9</td><td>43</td><td>70</td><td>16</td><td>54</td></tr><tr><td>53</td><td>9</td><td>44</td><td>71</td><td>17</td><td>54</td></tr><tr><td>54</td><td>9</td><td>45</td><td>72</td><td>18</td><td>54</td></tr><tr><td>55</td><td>10</td><td>45</td><td>73</td><td>18</td><td>55</td></tr><tr><td>56</td><td>10</td><td>46</td><td>74</td><td>19</td><td>55</td></tr><tr><td>57</td><td>10</td><td>47</td><td>75</td><td>19</td><td>56</td></tr><tr><td>58</td><td>10</td><td>48</td><td>76</td><td>20</td><td>56</td></tr><tr><td>59</td><td>11</td><td>48</td><td>77</td><td>20</td><td>57</td></tr><tr><td>60</td><td>12</td><td>48</td><td>78</td><td>20</td><td>58</td></tr><tr><td>61</td><td>12</td><td>49</td><td>79</td><td>21</td><td>58</td></tr><tr><td>62</td><td>13</td><td>49</td><td>80</td><td>21</td><td>59</td></tr></tbody></table>
+
+This scale conforms to that used by the Civil Service Commission. The number of errors indicated after the gross is the maximum permissible for that specific number of gross words typed; i.e., an individual who types 60 words per minute would be allowed no more than 10 errors in a 10-minute typewriting test.
+
+SECRET

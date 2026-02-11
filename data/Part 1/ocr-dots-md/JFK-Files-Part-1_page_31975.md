@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_31975.png
+
+Convert to MarkdownSECRET
+
+- 3 -
+
+## NARRATIVE COMMENTS (Continued)
+
+from agents than most Case Officers. His two new recruitments represent the Station's most promising prospects against the FSLN in the long history of FSLN operations in Nicaragua. It is suggested that this Officer's contribution of only two recruitments (at the very end of his tour of duty) could well be more meaningful and productive than the efforts of a super-salesman whose acquisitions later prove to be marginal or useless.
+
+### DUTY NO. 2
+
+Subject conducts Station liaison at the working level with two contacts. His main job is the maintenance of the relationship, an effort handicapped by political considerations which oblige him to take but never give, to cancel scheduled training, and to maintain a low profile. Nevertheless, he does manage to extract information of interest on the terrorist and political targets, and the relationship does provide him with access to certain military officers who are being assessed and developed. Additionally, this Officer shares the task with the COS of conducting liaison at the policy level, an even more difficult, and less productive effort. Subject's warm and winning personality and extensive experience are key factors in his ability to maintain the relationship at all, which results in clear net gain to the Organization.
+
+### DUTY NO. 3
+
+Subject has done exceedingly well in the development and cultivation of ERLANK-1 for gradual recruitment as an agent of influence. PRQ Parts I and II have been submitted, and ERLANK-1 is responding to Subject's overtures of friendship. ERLANK-1 has agreed to a turn-over, and this was accomplished very recently.
+
+### DUTY NO. 4
+
+In this very small Station, the DCOS function is not a critical one, but when obliged to exercise his authority in this
+
+SECRET

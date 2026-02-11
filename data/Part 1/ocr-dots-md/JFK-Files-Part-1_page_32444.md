@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_32444.png
+
+Convert to Markdown3-E-C-R-F-T
+
+# TRAINING REPORT
+
+Operations Course, Phase II-3-68
+( 416 hours, full-time)
+
+4 March - 3 May 1968
+
+(Date)
+
+Student : FLORES, Daniel Office : CTP/OTR
+Year of Birth: 1935 Service Designation: BJ
+Grade : GS-07 No. of Students: 60 Began; 60 Finished
+EOD : March 1962
+
+## COURSE OBJECTIVES:
+
+The course is designed to prepare junior clandestine services officers for duties related to the conduct of Special Operations. Upon completion of training, the officer will be capable of developing and implementing actions which will contribute to the elimination of subversive insurgency in the underdeveloped area of the world in furtherance of U.S. policy. He shall also be capable of developing plans for the conduct of Special Operations in support of United States military operations in wartime; and will be able to plan for the use of special ground, air, and maritime operations in direct support of other intelligence activities.
+
+## ACHIEVEMENT RECORD:
+
+The performance rating and narrative comments below are derived from a synthesis of all observations and evaluations submitted on each trainee by the instructor staff.
+Student rating is indicated by the asterisk.
+
+INCOMPLETE _0_ ADEQUATE _0_ PROFICIENT _* 48_ STRONG _12_
+
+## NARRATIVE COMMENTS:
+
+Mr. Flores is a self-sufficient, steady worker, who demonstrated an excellent ability to adapt himself to the various training situations. His proficient performance during Operations Course, Phase II-3-68 did not fluctuate appreciably from beginning to end.
+
+Mr. Flores was always mentally alert, receptive to instruction and responsive to instructional exercises. He cheerfully accepted all responsibilities, consistently produced satisfactory results, and appeared to demonstrate a sense of pride in his accomplishments. His conscientious effort, sincerity, and cooperative attitude enabled him to develop a sound working relationship with his colleagues.
+
+Continued on Page 2

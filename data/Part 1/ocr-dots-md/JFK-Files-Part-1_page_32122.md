@@ -1,0 +1,3 @@
+# JFK-Files-Part-1_page_32122.png
+
+Convert to MarkdownINSTRUCTIONS TO APPOINTING OFFICER.—You must determine the following appointment would be in performance with the Civil Service Act, applicable Civil Service Rules and Regulations, and acts of Congress pertaining to appointment. This form should be checked for holding of office, pension, any record of recent discharge or arrest, age, citizenship, and member of family. Also, to establish the identity of the appointee, you should particularly check (1) his signature and handwriting against the application and, if other pertinent papers and (2) his physical appearance against the medical certificate.

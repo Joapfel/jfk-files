@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_32039.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+PERFORMANCE RECORD
+
+International Communism - Challenge and Response
+
+JOT Class 10 February - 6 March 1964
+
+Course Description
+
+A. Statement of Objectives.
+
+1. To develop a familiarization with the doctrine, organization and tactics of International Communism as represented by the Communist parties and organizations in the free world; and in addition, to make the student aware of the capabilities, methods and problems of the Soviet Union and China.
+
+2. To develop an understanding of the challenges facing the United States and the free world from the objectives, activities and capabilities of International Communism; and to assist the student to articulate the U.S. position at home and abroad to meet these challenges.
+
+B. Course Method
+
+1. Approximately one-half of the course is devoted to lectures, one-fourth to seminars, exercises and demonstrations, and one-fourth to individual study.
+
+2. Student achievement is judged on the basis of performance in two written examinations and participation in seminars, and exercises.
+
+Name: Piccolo, Joseph
+
+Written Work
+
+1st Examination: Doctrine, CP Organization & USSR 67 Proficient
+2nd Examination: China, CP Activities 59 Proficient
+Over-all Written Work Proficient
+
+Oral Work
+
+Seminars, Exercises Strong
+
+Comment:
+
+GROUP I
+
+S-E-C R-E-T Excluded from automatic degrading and declassification

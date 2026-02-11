@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_32635.png
+
+Convert to MarkdownSECRET
+
+19 June 1968
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Memorandum in Lieu of Fitness Report -
+Mr. Earl J. Williamson
+
+1. Mr. Williamson is on the eve of his departure as an overseas Chief of Station. This is a logical and justified next step in his career development. Mr. Williamson's responsibilities have been considerable in recent years: DCOS in two important Stations; Chief, FI and then Deputy Chief of WH/COG. It should be pointed out that in the latter position he was Acting Chief for long periods, performing admirably. His new assignment indicates that the most senior officers in the Division have recognized this.
+
+2. Mr. Williamson is a professional intelligence officer in the strictest sense of the word. He is hard-driving and tonacious; despite his seniority he is on any list of activists; he has the capability of getting things going, of getting the job done. He applies rigid standards to his subordinates, but no less rigid than those he applies to himself. He is cost-conscious to an unusual degree. He is a fluent speaker of idiomatic Spanish and can handle himself well in any milieu. If Mr. Williamson is ever less than diplomatic it is when considering ersatz operational proposals or phonoy practices, neither of which he can tolerate.
+
+3. There is no question that in his next assignment Mr. Williamson will benefit from the social graces of his charming wife. In his own private life Mr. Williamson maintains numerous important contacts.

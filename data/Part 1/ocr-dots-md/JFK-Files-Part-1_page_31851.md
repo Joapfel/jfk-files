@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_31851.png
+
+Convert to MarkdownSECRET
+
+PREVIOUS ASSIGNMENT
+
+ACTION
+
+PRESENT ASSIGNMENT
+
+SECRET
+
+FORM NO
+1 MAR '97
+
+1152
+
+(4)

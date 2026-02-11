@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_32511.png
+
+Convert to MarkdownC-O-N-F-I-D-E-N-T-I-A-L
+
+I wish to commend you personally for your participation in an evaluation procedure which helps to strengthen the Clandestine Service Career Service. A copy of this letter will be included in your official personnel file so that your supervisors and future Evaluation Boards may make due note of this service.
+
+Thomas H. Karamessines
+Deputy Director for Plans
+
+C-O-N-F-I-D-E-N-T-I-A-L

@@ -1,0 +1,60 @@
+# JFK-Files-Part-1_page_32801.png
+
+Convert to Markdown14-0000
+
+<table>
+   <tr>
+    <td colspan="2">CABLE SECRETARIAT DISSEMINATION</td>
+    <td>CLASSIFIED MESSAGE</td>
+    <td>1A</td>
+    <td>TOTAL COPY</td>
+    <td>16</td>
+    <td>REMITTING AND/OR INITIALS - SECRET</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td colspan="8">PERSON/UNIT NOTIFIED<br/>C/SB</td>
+   </tr>
+   <tr>
+    <td colspan="4">ADVANCE COPY ☐ ISSUED ☑ SLOTTED</td>
+    <td colspan="4">SECRET<br/>(When filled in)<br/>GROUP:<br/>SENT FROM BIOGENIC<br/>NORMING TO<br/>BIOGENESIS<br/>REPRODUCTION OF THIS COPY PROVIDED</td>
+   </tr>
+   <tr>
+    <td colspan="4">BY M. AT 0025 Z</td>
+    <td colspan="4">INDEX [] YES [X] NO<br/>PREVIOUS COPY NO: 201-307331<br/>A-REF TO FILE NO.</td>
+   </tr>
+   <tr>
+    <td>DISSEMS BY</td>
+    <td>32</td>
+    <td>PUB S6-1E0</td>
+    <td>FILE RID [] REF TO</td>
+    <td>BRANCH 3-04/4/A</td>
+    <td>DESTROY [] SIO.</td>
+    <td></td>
+    <td rowspan="2"></td>
+   </tr>
+   <tr>
+    <td>ACTION</td>
+    <td>C/SBS ☑ RED COPY</td>
+    <td>✓ TSD</td>
+    <td>VR.</td>
+    <td colspan="3">JDP, ADD, CWH2, CWNH/C06-2,<br/>"EYES ONLY"</td>
+   </tr>
+  </table>
+
+SECRET 102212Z APR 68 CITE BUENOS AIRES 0390
+PRIORITY DIRECTOR, JMWAVE INFO PANAMA CITY
+RYBAT REDTOP AERONAUT AETARGET TECHS
+
+10 Apr 68 IN 89137
+
+REF: DIRECTOR 69761
+
+1. FURTHER DISCUSSIONS WITH BIOGENESIS THIS DATE REVEAL IT SIMPLER AND CERTAINLY MORE RAPID FOR AMSTALK-1 SIMPLY APPLY FOR REGULAR TOURIST VISA. ACCORDING BIOGENESIS-49, VISA WILL BE GRANTED WITHOUT DELAY AND BIOGENESIS BACKSTOPPING NOT NECESSARY. ONCE AMSTALK-1 ARRIVES HERE, BIOGENESIS CAN WORK OUT NECESSARY COVER DOCUMENTATION AND LEGEND, AS WELL AS PROLONG AMSTALK-1 STAY.
+
+2. PLS CABLE DATE AND PLACE OF BIRTH PLUS CURRENT ADDRESS.
+SECRET
+
+BT
+
+SECRET 201-307337

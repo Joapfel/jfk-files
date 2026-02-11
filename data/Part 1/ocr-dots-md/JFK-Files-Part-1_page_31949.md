@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_31949.png
+
+Convert to MarkdownSTANDARD FORM 50 (2 PART)
+REV. APRIL 1981
+PRODUCED BY
+U.S. CIVIL SERVICE COMMISSION
+CHAPTER IX, FEDERAL PERSONNEL MANUAL
+
+# NOTIFICATION OF PERSONNEL ACTION
+
+FEB 20 Dec 1957
+
+<table><tbody><tr><td colspan="4">LNAME (OR -MRS-MRS-ONE SURVEY NAME, INITIALS) AND SURNAME<br>MR. JOSEPH S. PICCILO<br>125678</td><td colspan="3"><table><tbody><tr><td>2. DATE OF BIRTH<br>9 DEC 1935</td><td>3. JOURNAL OR ACTION NO.<br></td></tr></tbody></table></td><td colspan="2"><table><tbody><tr><td>4. DATE<br>4 FEB 1957</td><td></td></tr></tbody></table></td></tr><tr><td colspan="7">This is to notify you of the following action affecting your employment:<br>5. NATURE OF ACTION (USE STANDARD TERMINOLOGY)</td><td colspan="2"><table><tbody><tr><td>6. EFFECTIVE DATE<br>4 FEB 1957</td><td>7. CIVIL SERVICE OR OTHER LEGAL AUTHORITY<br>SO EA h03 j</td></tr></tbody></table></td></tr><tr><td colspan="8"><b>KLEEIPTED AMTMENT</b></td></tr><tr><td colspan="8" style="text-align:center;">FROM</td></tr><tr><td rowspan="6"></td><td colspan="4"><b>S. POSITION TITLE</b><br>File Clark<br>DF-12h.09</td><td colspan="3">Records Integration Division<br>Analysis &amp; Operations Branch<br>Index Section</td></tr><tr><td colspan="4"><b>9. SERVICE SERIES, GRADE, SALARY</b><br>GS-0305.01-6<br>$315.00 per annum</td><td colspan="3"></td></tr><tr><td colspan="4"><b>10. ORGANIZATIONAL DESIGNATIONS</b></td><td colspan="3"></td></tr><tr><td colspan="4"><b>11. HEADQUARTERS</b><br>Washington, D.C.</td><td colspan="3"></td></tr><tr><td colspan="4"><b>12. FIELD OR DEPT'L</b><br>DEPARTMENTAL</td><td colspan="3"></td></tr><tr><td><input type="checkbox" checked/></td><td colspan="2"><b>FIELD</b></td><td><input type="checkbox"/></td><td colspan="2"><b>DEPARTMENTAL</b></td><td><input type="checkbox"/></td><td colspan="2"><b>DEPARTMENTAL</b></td></tr><tr><td colspan="4"><b>13. VETERAN'S PREFERENCE</b></td><td colspan="4"><b>14 POSITION CLASSIFICATION ACTION</b></td></tr><tr><td>NONE</td><td>WWII</td><td>OTHER</td><td>5 PT.</td><td>10 POINT<br>(PILDAR OTHER)</td><td colspan="3"><table><tbody><tr><td>NEW</td><td>VICE</td><td>I. A.</td><td>REAL</td></tr></tbody></table></td><td colspan="2"><b>SD/LG</b></td></tr><tr><td>X</td><td></td><td></td><td></td><td></td><td colspan="4"><b>17 SUBJECT TO C. S. RETIREMENT ACT (198-NO)<br>Yes</b><br>18 DATE OF APPOINTMENT AFFIDAVITS (RECLASSIFIED ONLY)<br>4 Feb 1957</td></tr><tr><td>15. SEX<br>M</td><td colspan="2">16. APPROPRIATION<br>FROM:<br>ID: 7-2309-23</td><td colspan="3"></td><td colspan="2"><b>19 LEGAL RESIDENCE<br>☐ CLAIMED [ ] PROVED<br>STATE: Florida</b></td></tr><tr><td colspan="8"><b>20. REMARKS.</b></td></tr><tr><td colspan="8"><b>RG-101

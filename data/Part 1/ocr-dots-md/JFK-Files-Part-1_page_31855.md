@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_31855.png
+
+Convert to Markdown13 February 1957
+
+TO: CIA Security Control Officer
+
+VIA: 
+1) Chief, Interim Assignment Section
+2) Chief, Employee Services
+
+FROM: Joseph S. Piccolo
+
+SUBJECT: Permission to continue in Course
+
+1. It is requested that I be granted permission to continue in the following evening course at the University of Virginia's Northern Extension in Arlington:
+
+U. S. History - Mondays - 7:00 to 9:40 P.M.
+
+2. It is understood that tuition and all other expenses will be borne by the undersigned.
+
+Distribution:
+Original and 3 - Employee Services
+1 - IAS
+
+APPROVED FOR THE
+DIRECTOR OF PERSONNEL
+
+Employee will make no reference to, or discuss his CIA connection, assignment or duties while participating in above activity.
+
+JOSEPH S. PICCOLO
+C/USD

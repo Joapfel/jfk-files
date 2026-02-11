@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_32632.png
+
+Convert to MarkdownSECRET
+
+SUBJECT: Earl J. Williamson
+
+1 April 1968 - 31 March 1969
+
+I concur with the rater's comments. Mr. Williamson has handled himself most professionally and adroitly and the Costa Rica Station is making fine progress under his leadership.
+
+28 July 1969
+
+Date
+
+SECRET

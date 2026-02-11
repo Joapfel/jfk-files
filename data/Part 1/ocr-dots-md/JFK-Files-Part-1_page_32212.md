@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_32212.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+-2-
+
+S. By his performance in Guayaquil, Mr. Flores has demonstrated that he has found his proper role as an operations officer and that he has potential for growth in this area of endeavor. III Division strongly recommends that he be promoted to GS-11.
+
+William V. Frodo
+Chief
+Western Hemisphere Division
+
+SECRET
+EYES ONLY

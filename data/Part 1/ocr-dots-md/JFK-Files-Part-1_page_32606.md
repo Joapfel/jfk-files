@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_32606.png
+
+Convert to MarkdownSECRET
+
+STANDARD FORM 50 (7 PART)
+REV. APRIL 1981
+PROHIBITED BY
+U.S. CIVIL SERVICE COMMISSION
+CHAPTER 4, FEDERAL PERSONNEL MANUAL
+
+(FORM FILMED IN)
+
+NOTIFICATION OF PERSONNEL ACTION BJV
+
+<table><tbody><tr><td colspan="2">1. NAME (AB - MHS-DS - ONE GIVEN NAME, INITIALS, AND SURNAME):<br/>MR. EARL J. WILLIAMSON<br/>560383</td><td colspan="2"><td>2. DATE OF BIRTH: 15 Mar 1915</td><td colspan="2"><td>3. JOURNAL OR ACTION NO.: 4 DATE: 14 Dec 1956</td></tr><tr><td colspan="6">This is to notify you of the following action affecting your employment:</td></tr><tr><td colspan="2"><b>3. NATURE OF ACTION (USE STANDARD TERMINOLOGY):</b><br/>Promotion 30</td><td colspan="2"><b>6. EFFECTIVE DATE:</b><br/>16 Dec 1956</td><td colspan="2"><b>7. CIVIL SERVICE OR OTHER LEGAL AUTHORITY:</b><br/>50 USCA 403 j</td></tr><tr><th colspan="3">FROM</th><th colspan="3">TO</th></tr><tr><td colspan="3"><b>8 POSITION TITLE:</b><br/>GS-0136.01-13 $9205.00 per annum<br/>(FSS-5 $7630.00 per annum)</td><td colspan="3">Area Cops Off (DCOS) BAR-115<br/>GS-0136.01-14 $10,320.00 per annum<br/>(FSS-5 $7630.00 per annum)</td></tr><tr><td colspan="3"><b>9 SERVICE SERIES,<br/>GRADE, SALARY:</b><br/>265230<br/><br/><b>10 ORGANIZATIONAL<br/>DESIGNATIONS:</b><br/>DDE/MH<br/>Branch III<br/>Havana, Cuba Station<br/><br/><b>11 HEADQUARTERS:</b><br/>Havana, Cuba</td><td colspan="3"></td></tr><tr><td colspan="2"><input type="checkbox" checked /> FIELD <input type="checkbox" /> DEPARTMENT<br/><input type="checkbox" checked /> FIELD <input type="checkbox" /> DEPARTMENTAL</td><td colspan="2"><input type="checkbox" checked /> FIELD <input type="checkbox" /> DEPARTMENTAL</td><td colspan="2"></td></tr><tr><td colspan="2"><b>15. VETERAN'S PREFERENCE:</b><br/><table><thead><tr><th>NONE</th><th>WOM</th><th>OTHER</th><th>S-P</th><th>10-POINT</th></tr></thead><tbody><tr><td>X</td><td></td><td></td><td></td><td>170-85</td></tr></tbody></table></td><td colspan="2"><b>14. POSITION CLASSIFICATION ACTION:</b><br/><table><thead><tr><th>NEW</th><th>VICE</th><th>I. A.</th><th>REB.</th></tr></thead><tbody><tr><td>X</td><td></td><td></td><td></td></tr></tbody></table></td><td colspan="2"><b>SD/DI</b></td></tr><tr><td colspan="2"><b>13. SEX:</b><br/>M W<br/><b>16. APPROPRIATION FROM:</b><br/>7-3545-55-055 same 170-85</td><td colspan="2"><b>17. SUBJECT TO C & RETIREMENT ACI (YEB-R01): Yes</b></td><td colspan="2"><b>19. DATE OF APPOINTMENT AFFIDAVITS ISSUED (EXCEPTED): Yes</b><br/><b>LEGAL RESIDENCE CLAIMED:</b> [ ]<b>APPROVED</b></td></tr><tr><td colspan="2"><b>TO:</b><br/>ENTRANCE PERFORMANCE RATINGS:<br/>Director of Personnel</td><td colspan

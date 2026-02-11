@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_32667.png
+
+Convert to MarkdownSECRET,
+
+<table><tr><td>Recorded by</td></tr><tr><td>CSPD</td></tr></table>
+
+27 NOV 1959
+
+24 November 1959
+
+MEMORANDUM FOR: CS/Career Service Panel/Section A
+SUBJECT: Fitness Report - Earl J. Williamson
+
+A fitness report was due on Mr. Earl J. Williamson for the period 31 March 1959. Mr. Williamson was assigned to the CI Staff on 8 March 1959 after completion of an overseas tour with WH Division. A fitness report for the CI Staff for such a short period of time would serve no useful purpose.
+
+Byron B. Burnes
+CI/Support
+
+SECRET,

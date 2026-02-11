@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_32398.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+# TRAINING REPORT/CERTIFICATION OF HANDGUN QUALIFICATION
+
+TITLE: Countering Terrorist Tactics Course No. 16-77 DATES: 19-23 September 1977
+STUDENT: FIO/115, Daniel OFFICE: LA SD: D
+PURPOSE AND SCOPE OF COURSE:
+
+(S) This course stressed countermeasures to thwart terrorist acts against U.S. personnel abroad. Coverage includes a discussion of the modus operandi of terrorist groups, recognition and familiarity with explosive devices employed, basic skills training in the use of hand weapons and Mace-type chemical devices, discussion and demonstration of residential security measures, and specialized driving techniques designed to counter vehicular kidnapping attempts.
+
+## PERFORMANCE RECORD:
+
+(U/AUO) This is to certify that the student has satisfactorily completed the prescribed course of instruction.
+
+## HANDGUN QUALIFICATION:
+
+(C) Student completed 24 hours of instruction on handguns at the Special Training Center on 23 September 1977; subsequently fired the handgun Qualification test achieving a score of:
+
+Revolver (Cal. - .38) 289
+Automatic (Cal. - 9mm) 255
+
+out of a possible 300.
+
+(U/AUO) The student demonstrated satisfactory application of safety procedures; mechanical aptitude; marksmanship techniques; and maintenance during range firing/classroom sessions; and is qualified to use the handguns (or similar guns) listed above.
+
+FOR THE DIRECTOR OF TRAINING:
+
+John H. Sawyer
+Chief, Special Activities Branch/OTD
+Special Training Center
+
+9/26/77
+Date
+
+E2 IMPDET
+CL by 056382
+
+S-E-C-R-E-T

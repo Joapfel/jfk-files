@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_31998.png
+
+Convert to MarkdownSECRET
+
+SECTION C - NARRATIVE COMMENTS CONTINUED
+
+no serious doubts that he will do this.
+
+Subject was denied a promotion on the previous round, which represents, in our opinion a lack of recognition of his fine performance and potential. He deserves a promotion and his proper career development demands one.
+
+SECRET

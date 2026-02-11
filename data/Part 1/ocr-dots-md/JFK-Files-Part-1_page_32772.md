@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_32772.png
+
+Convert to Markdown18. April 1964
+
+Memo for the Record.
+
+Subject: Contact with AUSTRI-L
+
+AUSTRI-L telephoned at 1815 hours, 17 April 1963 and resorted that he went to the Argentine Consulate General in New York and applied for a tourist visa. He said he was told by them that there would be no kxxx trouble granting the visa, but that they wanted him to go to the Nicaraguan Consulate in New York and secure a letter of introduction. He told them he would and left the Consulate General. He took no further action.
+
+After exassemblation consultation with M/A/11 it was decided to advise AUSTRI-L to travel to Washington on 13 April and on 19 April go to the Argentine Embassy in Washington and try to get a visa there.
+
+AUSTRI-L was called and the above instructions were passed to him. He will call after 1800 hours to advise regarding his whereabouts in Washington.
