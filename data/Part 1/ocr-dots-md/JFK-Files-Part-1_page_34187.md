@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_34187.png
+
+Convert to Markdown14-0000
+
+<table>
+    <thead>
+        <tr>
+            <th>CLASSIFICATION</th>
+            <th>DISTRIBUTION SYMBOL AND NUMBER</th>
+            <th>PAGE NO.</th>
+        </tr>
+    </thead>
+    <tbody>
+        <tr>
+            <td>SECRET</td>
+            <td>UFGT-16628</td>
+            <td></td>
+        </tr>
+        <tr>
+            <td colspan="3">CONTINUATION OF<br/>DISPATCH</td>
+        </tr>
+        <tr>
+            <td colspan="3">
+                <p>22. AMRUBY. NO SUBSTANTIAL CHANGE. SEE REFERENCE B.<br/>PROJECT CONTINUES TO PRODUCE AVERAGE OF ONE PONY EDITION /30,000 COPIES/ EVERY THREE MONTHS FOR MAILING INTO CUBA. AS OF 1 JUNE TWO OF FOUR AMRUBY-SPONSORED SATIRE PROGRAMS ON AMTHIGH HAVE BEEN DROPPED.</p>
+                <p>23. AMICE. NO SUBSTANTIAL CHANGES. AMICE CONTINUED EFFECTIVE BOYCOTT PROPAGANDA OPERATIONS AND SERVED AS A VEHICLE FOR LAUNCHING THE QUMALT-1 ''DOLCE VITA'' SERIES. REVIEW OF PROJECT ACTIVITIES RESULTED IN ECONOMIES ACHIEVED BY MODEST PERSONNEL CUTS, USE OF A MORE SELECTIVE MAILING LIST AND ELIMINATION OF TWO FOREIGN-LANGUGE EDITIONS OF THE MONTHLY AMICE BULLETIN.</p>
+                <p>24. AMSPELL. AS REPORTED IN REFERENCE B FINANCIAL SUPPORT TO AMSPELL HAS BEEN CUT SHARPLY AND IS NOW LIMITED TO $1,000 MONTHLY. THIS PROVIDES FUNDS FOR BI-MONTHLY BULLETIN, PRESS RELEASES AND SPECIAL PRINTED PROPARFUDA. AMSPELL HAS BEEN ACTIVE IN STATION CAMPAIGNS REGARDING POLITICAL PRISONERS AND LATIN AMERICAN STUDENT MOVEMENT /CLAE/ AND PRINCIPAL AGENT HAS CONTINUED TO BE RESPONSIVE TO STATION GUIDANCE.</p>
+                <p>25. AMNON. NO MAJOR CHANGES IN PROJECT ACTIVITY. <sup>*AMNON</sup><br/>CARRIED OUT SPECIAL RADIO AND PRESS CAMPAIGN IN CONNECTION WITH FORTHCOMING CLAE MEETING IN HAVANA. SPECIAL PAMPHLET ON THIS SUBJECT IS BEING PREPARED BY AMNON FOR PUBLICATION BY AMHIM. AMNON IS ALSO STATION'S MAIN ASSET FOR AMBASE PROGRAM AND HAS TAKEN OVER AMBASE PERSONNEL FROM TERMINATED AMRUSTY PROJECT.</p>
+            </td>
+        </tr>
+        <tr>
+            <td colspan="3">
+                <p>PHILIP G. ELMARD</p>
+                <table>
+                    <tr>
+                        <td><strong>CLASSIFICATION</strong></td>
+                        <td><input type="checkbox"></td>
+                        <td><strong>PAGE NO</strong></td>
+                    </tr>
+                    <tr>
+                        <td>FORM 9-64 53a<br/>D)</td>
+                        <td colspan="2">USE PREVIOUS EDITION.</td>
+                    </tr>
+                </table>
+            </td>
+        </tr>
+    </tbody>
+</table>

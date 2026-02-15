@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_33811.png
+
+Convert to Markdownexiles, through their loosely organized Councils or Committees, to
+wholly develop, manage, and control RFE broadcasting.
+
+Since the advent of RFE was the most important development
+affecting the exiles which had occurred since their flight from home,
+they quickly understood and applauded its implications and potential
+effect on their futures. Through this instrument they could once
+again become prominent and powerful in the affairs of the homeland;
+once more they could contend for place and power.
+
+Selection of personnel for the purpose at hand quickly became a political football of rival leaders, personalities, and groups. Rightists, Leftists, Centrists, Labor Elements, and Splinter-groups argued with us for advancement of their particular personal or political views. Sponsorship of their own adherents as RFE employees through whom such views would be broadcast to their captive countrymen became the pattern of their pseudo cooperation. This pattern was followed to such an extent that ordinary progress and sensible development of our basic purpose of truly free broadcasts under exile control soon appeared to be not only impracticable, but dangerous. For example, the National Councils Division attempted to inaugurate broadcasts to Czechoslovakia under the auspices of a Czechoslovak National Council. The Council was and is made up of exile personalities of differing political views and parties. Its factions proceeded to engage in endless disputes and irreconcilable claims for control of script production and program content.
+
+Slovak "Separatists" arguing for the total independence of Slovakia
+
+14-00000

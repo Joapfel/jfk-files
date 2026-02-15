@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_33852.png
+
+Convert to MarkdownApril 2, 1952
+
+Mr. Visoiam called at his request to inform us of the high
+lights of his recent trip to Europe. He had first attended the
+meeting of the Eastern European Section of the European Movement
+in London, then visited France, Germany and Italy.
+
+Mr. Visoiam said that in Germany he had talked with Chancellor Adenauer, Secretary of State Helmutiain, and other officials of the Bonn Government, as well as with Mr. Robert and other Allied officials. He said that the Germans were sympathetic to his discussion of Hungarian affairs and showed some interest in the problems of Eastern Europe. They, emphasized, however, that Germany's present position did not enable them to speak in terms of any positive policy at this time. Mr. Visoiam got the impression that the Germans were now, and would be in the future, even more actively interested in Romania and other Eastern European countries than were France and Italy. Mr. Visoiam felt that France had completely abdicated its position in Eastern Europe and was entirely wrapped up in its own domestic problems and relations with Germany.
+
+Mr. Visoiam also discussed in Germany the question of Romanian refugees there (most of whom are Iron Guardists) and of the rather large community of Volksdeutsche who came to Germany from Romania at the close of the war. He said that the German authorities would like to have this group returned to Romania at such time as the country might be liberated, both because they contributed to Germany's over-population problem and because they would represent, as they have in the past, a possible instrument for German policy in Romania. As a Romanian, Mr. Visoiam was not over anxious to add to the members of the German minority but felt that a free Romanian Government would not deny the right of return to those who wished to do so.
+
+Mr. Visoiam talked at length with Mr. Tyler in Paris. He retains his distrust and dislike of the NCFE, which he says can never assist effectively in bringing about unity in the Romanian emigration since it supports one group 100% and persecutes the other group 100%. He was particularly incensed about Mr. Berle's recent intervention in the Malama case. He said that he regarded the situation as having very serious implications not only for the emigres but also for the future of the country itself. He denounced Kadescu's conduct, giving numerous examples, as detrimental to the true interest of Romania. One of his more specific complaints against the NCFE was the appointment of Comuniociu as head tutor (or some such title) at the Free Europe University in Strasbourg. He said that Comuniciu had no education and no qualifications for the post but was there merely because he was of the Redescu faction which NCFE favored.
+
+Mr. Visoianu saw King Michael in England but he did not indicate whether there were any new developments with respect to the King's position toward the present royalty in the Romanian emigration.

@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_33803.png
+
+Convert to MarkdownMay 7, 1952
+
+Washington 25, D.C.
+
+MEMORANDUM OF CONVERSATION
+
+PRESENTER: Mr. W. J. Scripps, Detroit News
+Dr. Allen
+Mr. Norberg
+Mr. Korns
+
+After arranging an appointment through his cousin, Senator Moody, Mr. Scripps called on the Director to discuss his proposal for a "Friendship Balloon Lift." Certain materials relating to this proposal had previously been transmitted to the Director by Mr. Allen Dulles.
+
+In reply to questioning, Mr. Scripps asserted that he was well acquainted with the NCFE winds of freedom campaign, in which he had participated, but that he had not discussed his present proposal with NCFE. He said he had talked to many American business men, who were all enthusiastic and were prepared to donate the variety of products which he proposes should be included in the payloads. He said that his father was an ardent supporter of the project, along with a Mr. Fletcher, Vice President of the Caterpillar Tractor Company and Dr. Harnett. Mr. Fletcher spent some time in Russia, he said. When asked whether Caterpillar was in the balloon business, Mr. Scripps said no.
+
+Other names mentioned by Mr. Scripps as being familiar with his proposal included Nick Naradi, identified as an ex-minister of the Hungarian Government; Frank Jewitt of General Mills (which holds a balloon research contract with the Office of Naval Research), who has given him a letter to an admiral; an Admiral Killer; and a Mr. Frank of CIA. (see below) Mr. Scripps also mentioned a Psychological Equipment Development Office located in the old Post Office building. (see below)
+
+Mr. Scripps was troubled by security problems. It was apparent that he felt he had obtained confidential information from certain government sources which he could not disclose. At the same time, he stated that in order to work out his proposal in any detail, he would need access to information presently denied him. Therefore, he suggested that he be cleared for security by the appropriate agency.
+
+As a result, it proved impossible to nail down the technical aspects of Mr. Scripps' proposal. In his formal presentation, he had described a balloon capable of carrying a 40-pound payload and costing $5. In his conversation, he mentioned a vehicle capable of carrying 300 to 600 pounds, together with a staggered release mechanism--without
+
+CONFIDENTIAL.
+SECURITY INFORMATION

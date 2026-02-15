@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_33635.png
+
+Convert to Markdownat various meetings in this country and at gatherings, such as the European Movement, abroad.
+
+### b. Psychological Warfare
+
+To engage in all sorts of activities which will encourage the spirit of resistance of the peoples of Eastern Europe and keep the story of Eastern Europe's struggle for liberation before the people of the West by appropriate publicity.
+
+### c. Research, Analysis and Planning
+
+To organize and carry on long-range research analysis and planning projects which will utilize the talents of the Eastern European refugees. This area includes the Library of Congress and other research projects and the activities of the horizontal international organizations, such as the Slavik-Nayer/Nagy Groups.
+
+3) National Councils Will Not Control RFE. Notwithstanding the State Department's views, it is wise at present to maintain the separation between the national councils and RFE. While emigres should continue to have an opportunity to speak to the peoples behind the iron curtain, they should do so as individual patriots and not as representatives of a council or of a political party. RFE, if it is to be an effective "voice" to the satellite peoples, must necessarily keep free from petty intrigues and political "empire building" currently being exhibited by the national councils. Should the national councils become the real symbols they were intended to be, they could then play a significant role in RFE.
+
+## RECOMMENDATIONS
+
+The following policy and administrative recommendations are submitted as essential to the successful operation of emigre affairs:
+
+### 1) Policy Recommendations
+
+#### a. Maintenance of National Councils
+
+During the foreseeable future, the structure of the national councils will have to be maintained. It is suggested, however, that their activities in this country be limited to the functions mentioned above.

@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_34158.png
+
+Convert to MarkdownDECLARACIONES DE RAUL DE LA RUIZ CASTRO
+
+Mi nombre es Raúl de la Rúa Castro y hasta el 20 de marzo de 1966 desempeñó el cargo de Jefe de Maquinas de la Notonave SIERRA MAESTRÍ, cargo este que abandone en Mercán, Japón.
+
+Las condiciones de trabajo en la Marina Mercante Cubana fueron uno de los motivos que me llevaron a tomar mi decisión. Tampoco podía continuar soportando el esfuerzo y la vigilancia a bordo por miembros del C-2. Vale la pena mencionar que el plan de adoyeinamiento para los miembros de las dotaciones de la flota mercante cubana ha fracasado completamente. El régimen ha abandonado dicho plan y lo único que hace ahora es sustituir a los que abandonamos los buques por personal "políticamente apto", pero caronte de capacidad técnica para desempeñar los cargos.
+
+De hecho, el régimen confronta un serio problema ante la escasez de personal técnico capacitado y titulado, y esto constituye otra fuente de problemas a bordo de los buques cubanos. Durante los últimos meses un total de veinte y nueve funcionarios, oficiales y tripulantes de la flota mercante cubana han abandonado sus cargos. Para eso se tenga una idea sobre la gravedad de este problema resulta necesario señalar que después que yo abandone el SIERRA MAESTRÍ no quedó a bordo un sólo maquinista con título, a pesar de que varios muchachos jóvenes se encontraban allí recibiendo entronamiento, pero por supuesto, aún sin el debido título. Esta es una realidad que debe ser considerada seriamente por las firmas aseguradoras de buques cubanos.
+
+La mayoría de los buques confrontan dificultades en lo referente al funcionamiento debido principalmente a la falta de piezas de repuesto y al mantenimiento defectuoso y poco eficiente y como es natural este problema se acentúa con la escasez de personal técnico capacitado en las dotaciones.
+
+Deseo manifestar que estoy contento de encontrarme junto a tantos otros compañeros de la Marina Mercante que me han precedido y quiero agradecer publicamente al "Comité de la Marina Mercante Cubana Libre" las atenciones que ha tenido connigo, así como la ayuda que me están prestando, y sinceramente espero poder volver a la Marina Mercante en un futuro próximo; cuando una vez más podamos navegar bajo el pablellón de una Patria libre.
+
+COMITE MARINA MERCANTE CUBANA LIBRE
+830 SOUTH MIAMI AVENUE
+MIAMI, FLORIDA 33130
+
+Miami, Iro. de abril de 1966.

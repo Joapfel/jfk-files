@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_33941.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+27 March 1952
+
+MEMORANDUM TO: Assistant Director for Policy Coordination
+
+SUBJECT: Crusade for Freedom
+
+Today the Director discussed with Mr. Henry Ford, II the possibility of his assuming the Chairmanship of the Crusade for Freedom next year. I understand that Mr. Ford is warm.
+
+THOMAS W. BRADEN
+Chief
+International Organizations Division
+
+SECRET

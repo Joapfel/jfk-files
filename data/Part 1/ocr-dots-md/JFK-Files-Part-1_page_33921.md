@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_33921.png
+
+Convert to MarkdownGRANVILLE, NORTH DAKOTA
+
+"In response to your letter, I included special prayers in my pastoral
+prayers today. It will be good of you to ask the peoples of Hungary,
+Czechoslovakia, Bulgaria, and other lands under the oppression of Russia
+to pray for us. We need to understand them and to receive their under-
+standing. God help us all.
+
+"How can we possibly retain our own freedoms unless we desire freedom
+for these others? One of the greatest freedoms surely must be freedom
+from self-righteousness. Will they pray for this freedom for us?
+
+"Blessed are they who feel their spiritual need,' Goodspeed
+translates it."
+
+HOBKEN, NEW JERSEY
+
+"... constructive suggestion of prayer ... We will join other Christian churches in this program. We will begin at once. Your letter will be ... posted ... Prayer changes things ... Count on us."
+
+PINE BLUFF, ARKANSAS
+
+"Will be glad to cooperate.. Beginning Sunday, March 23 and every Sunday thereafter the congregation ... will pray for your intention. ... A very fine idea."
+
+COLUMBUS, OHIO
+
+"We are glad to have a chance to share in this great crusade."
+
+CHUGWATER, WYOMING
+
+"...was glad to learn that the Crusade for Freedom is looking for help
+to The Almighty God, and He indeed can help the people behind the Iron Curtain.
+
+"I have been praying daily not only for my own dear ones who are behind the Iron Curtain but for all people who are enslaved by Communists. God's gracious Hand had lead me out from the Iron Curtain and how glad I am to be in free America."
+
+PASCOAG, RHODE ISLAND
+
+"You may include (us) ... as spiritual contributors to your worthy cause."

@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_33772.png
+
+Convert to Markdown14-00000
+
+June 13, 1958
+
+To: Admiral Miller
+From: Richard Walsh
+Subject: Crusade for Freedom Campaign
+
+I have studied very carefully the plan for the fund raising campaign this fall submitted by Fred Smith, a series of discussions have been held with the staff of Crusade for Freedom, and the following conclusions are the consensus of all who have studied the proposed program.
+
+First, it is felt that because of the nation-wide acceptance of the Crusade and its recognized success during the past two years it would be a mistake to substitute the "Dimes for Freedom" slogan for Crusade for Freedom. The Advertising Council concurs with us in our reluctance to use the word "Dimes" for several substantial reasons. First among them is the fact that our drive for funds will end on December 15th, and the March of Dimes, which the Advertising Council will also assist on, will start about January 1st. Another important factor to be considered is the difficulty of selling a new slogan, such as Dimes for Freedom, to a public which has already contributed $3,500,000 to support Crusade for Freedom, Freedom Bell, Winds of Freedom, Radio Free Europe and Radio Free Asia.
+
+The Dimes for Freedom program not only loses the effect of the last two campaigns which gave acceptance to the name Crusade for Freedom, but also takes no apparent thought of the future of the organization. That happens in 1963? Do we start from scratch again with some completely new promotional idea? By changing emphasis every year we build up no continuing and increasing acceptance of the Crusade for Freedom.
+
+Another danger inherent in the plan is the drive for 40,000,000 signatures. Even with the Freedom Train and Freedom Bell, which people could see, hear, touch and ring, 16,000,000 signatures were obtained. It is highly improbable that we could secure 40,000,000 signatures with nothing more tangible than the "We don't like Communism" statement.
+
+Except for the Dimes for Freedom slogan and the usual outline of state and local organizations, the plan itself does not lend itself to execution. Perhaps the most difficult operation would be that of the trucks with the proposed huge scrolls. Their cross-country truck would be extremely hard to operate and coordinate. The weather would cause great difficulties, particularly crossing the northern Midwest. We could not depend on any truck holding to a schedule across the Dixies, Nebraska, or half a dozen other states during the blizzard season.
+
+Another factor to be considered is that every ton in the country would not be visited.
+
+The idea of having the trucks converge on Washington is one which I think should be given a great deal of consideration. I have no doubt but that the Department of State and specifically the Voice of America would protest vigorously to any approach that might be made to Congress.

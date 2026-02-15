@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_33823.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+20 April 1952
+
+MEMORANDUM FOR: M. ROBERT F. JOYCE
+Policy Planning Staff
+Department of State
+
+SUBJECT: Future Balloon Operation
+
+1. Attached is a copy of a letter from Min Miller in which he suggests the necessity of coming to a definite decision in respect to a future balloon operation.
+
+2. Will you advise me as to (a) whether you wish to have a balloon operation in August or at any subsequent date, and (b) whether you want us to put aside funds and materials now for a future balloon operation at some unspecified time?
+
+THOMAS W. BRADEN
+Chief
+International Organizations Division
+
+Attachment
+
+Ltr from Min Miller
+did 1 Apr 52
+
+CIO: TWB:ah
+
+Orig & 1 - Addressee
+
+1 cc - IO/TXT/C
+1 cc - CIO/
+2 cc - HI
+
+SECRET

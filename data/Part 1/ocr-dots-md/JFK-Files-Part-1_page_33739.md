@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_33739.png
+
+Convert to MarkdownCzechoslavak groups in the controversy.
+
+Mr. Barbour int.posed that should the negotiations indeed fail,
+and we be faced with a Czechoslovak situation in which there would be no
+Czechoslavak Council, the whole situation of the National Councils and NCFE
+might well need to be reviewed. He pointed out that the NCFE was based very
+much on the National Council idea, and that it is constituted to work on this
+basis. Therefore, should this concept fail, it might be expedient to have a
+system of some kind of national panel whose members would be appointed by NCFE
+to work on the problems of their respective nationalities (presumably within
+the dictates and needs of American foreign policy). Mr. Barbour advised that
+such persons would have to be chosen on the basis of their ability to work
+together, thus avoiding the issues of political strife and partisan interests.
+
+Mr. Moore suggested that the meeting might wish to consider the pro-
+immediately
+
+Procedure which should follow in the wake of the possible breakdown of Czechoslovak negotiations.
+
+Mr. Lloyd proposed that the matter be referred to Washington for con-
+sideration by his office and the State Department before the Czechoslovak
+were formally advised of the drastic action contemplated by NCFE's Board of
+Directors and the subcommittee. There was general agreement that this should
+be the case.
+
+BALTIC BROADCASTS:
+
+Miss Augustine reviewed the situation of the Baltic panels in New York as regards broadcasts by Radio Free Europe. She advised that the Baltic countries would be represented at the European Movement Conference by heads of the New York Baltic panels, and specifically - Massens, Sidsikauskas and Vahter - and that thus funds had been found to carry out the original plan of sending a representative from each Baltic country to the Movement Conference.

@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_32849.png
+
+Convert to MarkdownAMENDMENT TO MEMORANDUM OF ORAL COMMITMENT
+
+TO : Chief, WH Division
+
+FROM : Chief of Station, JMWAVE
+
+SUBJECT: Amendment to Memorandum of Oral Commitment for 201-307337 ( AMSTALK-1 )
+
+Please amend Subject's NOC, effective 1 February 1968 as follows:
+
+Add to Paragraph 9, Contingent Obligations:
+
+"With prior approval of the Chief of Station, upon termination Subject may be paid up to one month's severance pay for each year's service, with three months the maximum."
+
+REVIEWED:
+(Special Contracting Officer)
+
+SIGNED H. C. Steadman
+Field Contracting Officer
+
+REVIEWED:
+Contract Approving Officer
+
+CS COPY
+
+SECRET

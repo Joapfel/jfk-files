@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_34207.png
+
+Convert to Markdownof his frustration. All there developments allow us to predict that Castro is in such bad shape that radical changes may soon be expected in Cuba.
+
+"More on Carlos R. Rodriguez' Statement".- In his statements, Carlos R. Rodriguez has uncovered that Fidel Castro has created the objective conditions for fractional work within the Party with the exclusion of the Old Guard and of the Students Directive from the executive bodies of the Party. This reveals a state of internal rift and decomposition, and such revelation, coming from a significant Old Guard source such as Rodriguez, foretells rather unpredictable consequences.
+
+November 5, 1965: "Sitting Bull (Carlos Rafael) Has Spoken!" Emphasis on Carlos Rafael Rodriguez' personal features, on his ambition to become the Cuban Revolution's "Lenin", all of which dreams have been born to pieces by Castro. Likewise, Carlos Rafael, strengthened by Moscow's backing, has pointed out, though in a rather subtle manner, the action of the unknown man of the Party in the struggle against Castroism. This he did when he indirectly charged that Castro was a petty-bourgeois.
+
+"Castro Caught his Fingers on the Door and the Door Slammed on his Nose".- Because his situation is more difficult every day, Castro hinted that his conversations on the Cuban exodus meant the beginning of deeper negotiations with the U.S. This is false. Cuban Communism is not negotiable. When President Johnson opened the doors of the U.S. to all Cubans, he left it well established that this was done because of humanitarian reasons, and that Cubans would be welcomed here until they could "return to their homeland and find it free from fear".
+
+November 6, 1965: "Stop this Honsense, Where is Che Guevara?".- Where is Che Guerava? This is a quest on that constantly hammers on Fidel's ears, whenever journalists, diplomats, etc., ask it to him. Besieged by this question, Castro one day told a correspondent for the Madrid daily "Pueblo": "I think that Guevara may never return to Cuba. He may be somewhere in Argentina". Castro, like Stalin did before him, begins by stating that Guevara will not return to Cuba. Such a question may only be answered by the murderer when he speaks of his victim. On the other hand, he is pre-

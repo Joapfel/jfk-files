@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_32977.png
+
+Convert to MarkdownSECRET
+
+20 Jan 1975
+
+CONTACT REPORT
+
+Agent - PACHANKIS
+
+D/P/T: 20 Jan 75/ Fairfax Holiday Inn rm 363/0830-0930
+
+8. Miguel Angel DIAZ Isalque: I showed P the letter from DIAZ to the PO Box 982 Coral Gables box; P said he did not know that address and had no idea how DIAZ might have got it. I told P it was a sensitive ad ress which we did not want to have blown, asked him to contact DIAZ, ostensibly because KALBINS (who long ago was having P prime DIAZ for a trip to Madrid, which never came off) had sent regards and an explanation of why the 'Madrid thing fell thru'. P is to make no mention of the Coral Gables address or the letter, but assuming DIAZ will bring it up, to try to discover how DIAZ got that address, while also discovering what it is DIAZ had in mind when he wrote the letter. P thinks he has DIAZ' phone number, if necessary can use the ploy of having seen DIAZ' TV ad for his furniture store.
+
+Emery D. PREMSELAR
+
+SECRET
+
+<table><tr><td>RECORD COPY</td></tr></table>
+
+LA/CHI
+
+20 Jan 75
+TAT 281-307337 P

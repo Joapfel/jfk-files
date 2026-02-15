@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_33755.png
+
+Convert to MarkdownSECRET
+
+26 June 1952
+
+FOIA FORM: GENERAL PERS. & TECHNICAL INTELLIGENCE
+
+TRANSFER: ATR, & TRU
+
+PURPOSE: Robert J. Moore
+
+1. On 2 June 1952 you told me of your interview with Robert J. Moore and of his influences on his decision from NCTC. Mr. Moore was dissatisfied from NCTC on security grounds and his decisions al was initiated by this Agency.
+
+2. Subsequently Moore interviewed Bill Dorkoo in New York for a job in the American Committee on United Europe but there was none available. During the course of this interview, Moore, though not knowing Dorkoo was an employee of CIC, divulged security information about KCS-CIC relationships, and our security people have been notified of this fact.
+
+THOMAS V. MOORE
+Chief
+International Organizations Division
+
+CIO,TCH/aka
+
+Distribution:
+
+Orig. = Addressed
+1 cc = CIO
+2 cc = TO/TCHIC
+2 cc = RI
+
+SECRET

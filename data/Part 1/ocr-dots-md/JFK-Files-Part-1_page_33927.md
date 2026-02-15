@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_33927.png
+
+Convert to Markdown- 13 -
+
+DEL CAMBRE, LOUISIANA
+
+"That we all recognize the necessity of turning to God for help and guidance in restoring the world to Christian ideals is the most hopeful sign of the times."
+
+HOUSTON, TEXAS
+
+"There is power in prayer. Our congregation will join you and others in your prayer plan,"
+
+LAWRENCE, KANSAS
+
+"... beginning March 23 we shall make special mention in the morning bulletin and give definite place in the program for the fellowship of prayer."
+
+SOUTH CAYUGA, ONTARIO
+
+ "... let me assure you that we are with you in this great Crusade of Prayer."
+
+LAKELAND, FLORIDA
+
+ "... want to encourage you in your Crusade for Freedom, and remind you that we who are of grass roots ... are ringing the bell."
+
+ROCK HILL, SOUTH CAROLINA
+
+"I think this is a very fine thought and trust that ministers and congregations throughout our nation will undergird your labors with prayer and faith"
+
+FROM AN ARCHDIOCESIS
+
+"In conformity with the request of the Crusade for Freedom we are asking all the Catholic Churches in the Archdiocese to continue to recite prayers for those ... under Communist domination."
+
+MT. GILEAD, NORTH CAROLINA
+
+"We will join in the continuing prayer for Religious Freedom."

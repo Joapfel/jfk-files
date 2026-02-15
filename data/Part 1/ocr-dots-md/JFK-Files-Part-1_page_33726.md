@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_33726.png
+
+Convert to Markdown14-0000
+
+RESTRICTED
+(iao)
+
+FOREIGN SERVICE DESPATCH
+
+FROM : DEPT. NO.
+
+TO THE DEPARTMENT OF STATE, WASHINGTON,
+
+REF :
+
+SUBJECT:
+
+Enclosure to
+despatch 136 from
+American Consul,
+Strasbourg,
+11/15/51 - p. 2
+
+For Dept.
+Use Only
+
+M E C D A C T I O N
+
+making a total, as of Nov., 12, 1951, of 84 men and 12 women). Notification of non-acceptance is being sent to 349 candidates. The Committee has had in mind the advance estimate that five women were to be accepted for Strasbourg, and that five theological students might be accepted for the College des Clercs. However, only one theological student has qualified for a scholarship, and suitable arrangements can be made to lodge as many as 10 or 11 women, possibly even 13. (Note: total accepted 12, as of Nov. 12), either in the Student Home for Girls or in a pension (for the older girls). In view of the quality of these women candidates, the Committee feels justified in selecting a number larger than that originally contemplated, and after consultation with Mr. DeBiltt Peale and Mr. Royall Tyler does so unanimously.
+
+The grand total of male students already accepted for Strasbourg, and accordingly notified, is thus 76 to date, as against 100 originally contemplated. The Committee has thought it preferable to maintain a high quality, rather than to make filling a quota the first consideration, especially as applications are still coming in and some promising applicants remain to be seen. Since the French university year begins only in the first week of November, a good many students were away when the application forms were sent out and their addresses unknown to anyone who could be reached. Arrangement can be made to enter late-comers for the Strasbourg university courses, and so it seems wise to allow for the probability that some high-quality candidates will still appear, none of whom could be accepted if the quota had been filled up in a hurry regardless of the advisability of maintaining a standard. Applicants can be received and registered in the university as late as Nov. 21.
+
+It is of interest to note that all candidates so far submitted to deans of faculties at Strasbourg have been considered acceptable.

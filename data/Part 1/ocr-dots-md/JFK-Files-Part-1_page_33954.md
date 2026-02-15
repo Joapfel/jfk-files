@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_33954.png
+
+Convert to MarkdownI. The Bundesminister fuer das Post- und Fernmeldewesen hereby grants to the NCFE, a membership corporation organized under the laws of the State of New York (USA) recognized in the Federal Republic as a foreign "Verein", a licence to operate the radio installations listed and specified in the Annex as foreign radio station on German territory on the following conditions.
+
+1. In operating the radio installations the NCFE will use only the frequencies and call signs al ocated to it from time to time by the competent authorities of the USA, and duly notified by said authorities to the competent organs of the International Telecommunications Union.
+
+2. The radio installations may be only operated for broadcasting purposes (Radio Regulations Chapter I Article I Section II n. 21 and 22) of the NCFE; international point to point connections for broadcasting purposes are also permitted subject to the consent of interested foreign administrations; for purposes of third parties the radio installations may not be used without prior written consent of the BPMin.
+
+3. Without prior written consent of the BPMin NCFE is not permitted to change the technical specifications of the above mentioned radio transmitting installations or to put additional radio transmitting installations into operation; changes in frequencies and call signs/must be notified to the BPMin used in advance.
+
+\* Broadcasting Service
+
+21 a) A radiocommunication service of transmissions to be received directly by the general public.
+
+22 b) This service may include transmissions of sounds or transmsions by television, facsimile or other means.

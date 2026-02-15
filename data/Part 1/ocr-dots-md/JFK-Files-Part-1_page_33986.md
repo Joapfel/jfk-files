@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_33986.png
+
+Convert to MarkdownDIOS
+PATRIA
+LIBERTAD
+
+10 S E. 9th. MIAMI
+
+Mayo de 1967 - No.37
+
+# LAS INTERIORIDADES DE CUFLET
+
+## Editorial
+
+### UNA VERDAD COMUNISTA
+
+Victor Volsky, Jefe de la Delegación Observadora Soviética al XII período de sesiones de la Comisión Económica de la O.N.U. para América Latina, declaró recientemente en Caracas que "Cuba Comunista es la hija mami de la Unión Soviética, y a las hijas menores hasta se les mima".
+
+Palabras son estas que tienen la virtud de onardecer al más indiferente de los cubanos, ya que las mismas reflejan el aire de superioridad con que estos arrogantes comunistas eslavos tratan a nuestra Patria. Sin embargo, no puede negarse que el insolente Volsky dijo una verdad en Caracas, al menos en cuanto se refiere a lo primera parte de su aserto.
+
+Ciertamente, las hijas menores dependen de sus padres. Son ellos quienes los proporcionan todo lo necesario para su subsistencia; son ellos quienes determinan, con la inapelabilidad que supone la patria potestad, el rango que han de tomar los pasos de su adorable retóno; y son ellos quienes se benefician del producto de sus labores.
+
+Siendo así, no cabe duda de que Cuba es la hija mami de la Unión Soviética. La URSS y sus satélites, en efecto, venden a Cuba el 78.6% de sus importaciones; la URSS es quien determina la política que ha de seguir el régimen de La Habana, y es la URSS quien recibe, conjuntamente con sus títeres de Europa Oriental, el 80% de los productos que exporta nuestra Patria. Ante los datos de este brutal monopolio comercial, y ante la suprema autoridad que ejerce la metrópoli sobre su pseudo-colonio del Caribe, ¿quién puede negar que Cuba es, a todos los efectos prácticos, la hija menor de la Unión Soviética?
+
+Hasta aquí la verdad. Lo mentiroso estribó en el aserto de que Cuba es la hija "mimado" de la URSS. Porque, como todo el mundo sabe, la que es en realidad es una hija oprimida, explotada, moltratada, y prostituida por esta "madre" desnaturoliizada que es la Rusia Soviética.
+
+Por I. Andres Collazo
+
+NOTA DE LA REDACCION: El outer de este trabajo ocupa el cuadro de representante en Londres de la Empres Cubana de Fletes (CUFLET) hasta el pasado mes de Marzo de 1967, en que decidió abjondar el régimen comunista de Cuba y solicitar asilo político en el mundo libre.
+
+Mi misión en Londres era la de llamar nowes del mundo libre para el comercio marítimo con Cuba, o fin de cubrir al déficit resultante de la escasez de buques cubanos y del bloque comunista que pudieran manipular el volumen comercial. Mi tarea no era nada fácil. ...El tráfico marítimo del mundo libre con Cuba ha disminuido en un 41.6% entre 1963 y 1966. Las razones de esta caída en el tráfico marítimo del mundo libre con Cuba son, a mi entender, las seguidas. La "Lista Negra" del Gobierno de las Estados Unidos; las prohibiciones decrotadas por diversos Gobiernos, tales como el de Gracia, el del Libano, y otros, y la acción del barco emprendido por los trafobajadores portuarios del hemicátero a través de la ORIT, a cuyo frente marchan los miembros de la Federación Portuguesa de Venezuela. ...Tan pronto como se inició el barco, algunas firmas navieras británicas que en aquel momento estaban considerando la entrada en el tráfico marítimo con Cuba, pero que también mantenían rutas regulares con América Latina, convencieron sus planes respecto a Cuba. Otro razón es la de los informes referentes a la situación económica y al tráfico marítimo de Cuba que publican las Organizaciones de exiliados cubanos. Yo tuve, por ejemplo, la oportunidad de ver alguna de las baletines y
+
+Continúa en la pág. 2

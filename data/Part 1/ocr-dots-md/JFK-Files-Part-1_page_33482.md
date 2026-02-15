@@ -1,0 +1,54 @@
+# JFK-Files-Part-1_page_33482.png
+
+Convert to Markdown14-0000
+
+OUTGOING MESSAGE
+
+OMF 0 0 0 0 0 0
+
+CLASSIFICATIONS
+---
+
+SECRET
+
+MESSAGE HANGING INDICATOR
+
+DATE TIME OF UP
+
+STAFF
+
+CONF:
+
+INFO: FILE
+
+C/E/CAG
+
+RELEASING OFFICE
+---
+
+COORDINATING OFFICE
+
+AUTHENTICATION OFFICE
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED
+
+E 2 IMPDET
+
+CL BY:
+004244
+
+SECRET
+
+DATE: 30 MAY 1974
+ORIG: CONNIE MOORE:SRM
+UNIT: E/CAG
+EXT: 66408/1889
+C/E/CAG
+
+SECRET
+
+004244
+
+E C E R P
+
+<table><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr></table>

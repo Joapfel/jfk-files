@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_33679.png
+
+Convert to Markdown# Mil Eroe Order
+
+(1) N.E.O.
+Nonparticipating Eroic Order
+
+(2) I.(small) A.(large) O.(small)
+
+Effects at 9:40.
+
+OEC has special passes - red with lines,
+in our personnel - one
+appears - anybody with them
+
+Adoption of old Paris - on
+It was itself - might do -
+But - this is in <u>Capitol Hill</u>
+columns -
+
+Everybody in C.D.O. is armed with this
+mole - Putnam becker people - 
+unafeasible - which they had to get out - or.

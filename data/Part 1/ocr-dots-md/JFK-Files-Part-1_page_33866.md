@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_33866.png
+
+Convert to MarkdownSECRET
+
+has not handled his affairs in a secure or professional manner, and is
+not wanted by the field station. The division plans to terminate his,
+read him out of any connection with RFE, and arrange that he be placed
+with a commercial firm for employment as a junior public relations man.
+Simple dismissal is not regarded as secure; continued employment by the
+Agency is undesirable, hence the need to find him employment of sorts
+until his familiarity with CIA activities has cooled.

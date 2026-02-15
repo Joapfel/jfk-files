@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_33770.png
+
+Convert to Markdown10 June
+
+BILL:
+
+My opinion on this matter is the same as Campbell's: that Pella has not gotten a square deal from NCFE.
+
+Have talked to Mary Newsom (just acting chief of Romanian desk, PC) on this and she 1) agrees that Pella should get renumeration for his work and 2) thinks that his background is O.K.
+
+Also talked to Wilson Pitchett. He doesn't want to give an o.k. on this, unless and until a name check has been done.
+
+Question: Do we meet the "suspense" and get a name check or do we go ahead. I'd be in favor of the latter---and of informing SR afterwards.
+
+a
+Had a name check!
+1980

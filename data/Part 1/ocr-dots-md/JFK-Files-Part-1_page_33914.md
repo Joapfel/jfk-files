@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_33914.png
+
+Convert to Markdown# EASY BAKER BUDGET
+
+Cash balance as of March 21, 1952 1,431.91
+ Paid expenses as of March 21 50,068.09
+Total cash received against budget.. 51,500.00
+
+Commitments as of March 21, 1952:
+
+P.O. 790 45.00
+" 780 30.50
+" 779 37.00
+" 749 333.20
+" 747 16,500.00
+" 743 757.60
+Robert Jordan (Dir. Church Prom.) 1,200.00
+German Accounting #5 1,465.00
+" " #6 1,943.00
+
+Total commitments 22,311.30
+
+Total expenses and commitments 72,379.39
+Total cash received on budget 51,500.00
+Budget deficit as of 3/23/52 21,879.39-

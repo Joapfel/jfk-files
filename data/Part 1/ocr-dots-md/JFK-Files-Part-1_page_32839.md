@@ -1,0 +1,243 @@
+# JFK-Files-Part-1_page_32839.png
+
+Convert to MarkdownACMIT SERVICE REQUEST
+
+201- 307337
+
+1. Agent's cryptonym or pseudonym: - AMSTALK-1 (formerly AMICE-14)
+
+2. Project identification: AMTRUNK, ANSCAR
+
+3. Agent recruited by: Irving N. PEGGINS, Stanley R. ZAMKA
+
+4. Capacity in which agent served: Team member, Team Leader of Special Operations infiltration team. Later P.A other operational teams.
+
+5. Rate of pay: Gross: $492.00 Net: $443.95
+
+6. Other commitments: None - Subject has MOC. Amendment provides for severance pay.
+
+7. Agent dismissed by: Leland H. COSFIELD
+
+8. Reason for dismissal: Economy, lack of operational activity, redirection of WOFIRM operations, reorganization at JMWAVE.
+
+9. Security risks: See Damage Report. Subject exposed to large number WOFIRM employees, sites, techniques and training and operations.
+
+10. Is Agent recommended for re-use: Yes. Subject is one of the Station's most capable, highly motivated assets.
+
+11. Manner of dismissal: Amicable - Subject offered to serve in any operational capacity as needed.
+
+12. Letter of termination signed: Termination and Quit Claim filed in 201- 307337.
+
+SECRET
+
+CS COPY
+
+201-307337
+
+(Lori)
+
+4-29-19
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-307337
+
+CS COPY
+
+201-30

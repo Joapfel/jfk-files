@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_33639.png
+
+Convert to MarkdownSECURITY INFORMATION
+
+SECRET
+
+ORGANIZATION AND FUNCTIONS OF THE PROPOSED OFFICE FOR
+"EMIGRE AFFAIRS".
+
+# I. Organization
+
+Chief
+
+Deputy Chief
+
+Two Staff Assistants
+
+Two Secretaries
+
+II. Functions
+
+The overall function of the office for "Emigre Affairs" should be
+the formulation and coordination of policy on national council and other
+emigre affairs and the transmittance of such policy to NCFE.
+
+1. Liaison and coordination with other CIA Offices.
+
+a. Transmission of material from NCFE offices to line divisions.
+
+b. Transmission of material from line divisions to NCFE.
+
+c. Coordination with the line divisions on all emigre matters in which they have an interest. If the office for "Emigre Affairs" is kept informed on the needs of the line divisions, the NCFE should be able to perform functions useful to the divisions.
+
+d. To facilitate the dealings between the Office for "Emigre Affairs" and the line divisions, there should be one person in HE-2, S2, and WE-3 designated as liaison officer on emigre matters.
+
+2. Liaison and coordination with the Department of State.
+
+a. There should be a CIA-State Coordinating Committee, which should meet regularly to discuss matters pertaining to the national councils and emigre affairs.
+
+b. Although a member of the NCFE may occasionally be present at a meeting of the Coordinating Committee, regular sessions should be attended only by members of CIA and the State Department. The system, which has been in effect during the last four months, under which bi-weekly meetings have taken place between a representative of the NCFE in New York and the Department must be discontinued.
+
+3. Supervision of the activities of the NCFE.
+
+a. The office for "Emigre Affairs" should be charged with the supervision of the NCFE's office in New York and in Paris.
+
+SEGUE:

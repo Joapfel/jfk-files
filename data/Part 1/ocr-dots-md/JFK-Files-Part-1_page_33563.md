@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_33563.png
+
+Convert to MarkdownCABLE SEC DISSEM BY 28 PER TOTAL COPIES 31-1 REV. BY
+
+PERSON/UNIT NOTIFIED
+
+REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
+
+ADVANCE COPY ISSUED/SLOTTED
+
+BY AT Z
+
+AGENCY MESSAGE
+
+<table><thead><tr><th>ACTION UNIT</th><th>REF.</th><th>FILE</th><th>VR</th></tr></thead><tbody><tr><td>[WHD]</td><td>I</td><td></td><td>19JAN SSS, OS/EG 4</td></tr><tr><td>ACTION 1</td><td>N</td><td></td><td></td></tr><tr><td>ACTION 2</td><td>P</td><td></td><td></td></tr><tr><td>184</td><td>O</td><td></td><td></td></tr></tbody></table>
+
+T 535956
+
+PAGE 01-01
+TOR:171843Z SEP 73
+
+IN 031535
+SAGO 26500
+
+SECRET 1718142 SEP 73 STAFF
+
+CITE SANTIAGO 26500
+
+TO: PRIORITY MEXICO CITY INFO DIRECTOR.
+
+FUORACLE FUOMEN
+
+REFS: A. MEXICO CITY 25196 (IN 031341)
+B. SANTIAGO 26464 (IN 030951)
+
+1. CONCUR PARA ONE REF A REQUEST.
+
+2. FILE: 15-124-53/3. E2 IMPDET
+
+C/WHT/6
+DC/WHT/4
+WH/6/Fl
+WH/6/RM
+WH/6/Sec'y
+
+SECRET

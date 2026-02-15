@@ -1,0 +1,36 @@
+# JFK-Files-Part-1_page_33653.png
+
+Convert to MarkdownSECRET
+
+18 February 1952
+
+MEMORANDUM FOR: DEPUTY DIRECTOR OF CENTRAL INTELLIGENCE
+
+SUBJECT: "The 'Voice' and Radio Free Europe Complement Each Other"
+
+1. The attached leaflet was inserted as a supplement in the January "Crusader", a newsletter which is sent out to the 8,000 regional chairman of the Crusade for Freedom organisation. It was prepared with the cooperation of the Voice of America officers in New York and was reviewed by the I Area of the Department of State.
+
+2. It is intended to acquaint the regional Crusade organizations with the facts about VOA and offset any criticism or unfortunate comparisons that may have sprung up during the 1951 campaign.
+
+H. OATES LLOYD
+Deputy Chief
+Psychological Staff Division
+
+**Attachment:**
+
+As described above
+
+**Distribution:**
+
+Addressee - Original
+DF/P - 1
+
+ADFS - 1
+C/EP - 1
+C/SE - 1
+C/NE - 1
+CIO - 1
+DCPT - 1
+RI - 2
+
+SECRET

@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_34176.png
+
+Convert to MarkdownMiami, 13 de Junio de 1966
+
+Sr. Jaime Lozano
+Presidente,
+Asociación Nacional de
+Cultivadores de Canna de Azúcar
+Edificio Suramericana do Seguros
+Calle 12, Carrera 5a, 10º piaco,
+Cali, Colombia.
+
+Estimado Sr. Lozano:
+
+Nos dirigimos a Ud. en esta oportunidad con motivo del fracaso de la presente zafra azucarera cubana, fracaso del cual Ud. ya debe tener noticias, no sólo a través de nuestro hoja de información económica ("Economic Intelligence Report") sino a través de fuentes propias.
+
+Por ejemplo, el belatín de la casa Merrill-Lynch de fecha 10 de junio de 1966 fija el monto de la presente zafra cubana en 4,450,000 TM, es decir, más de dos millones de toneladas métricas por debajo de la meta anunciada por Fidel Castro (6,500,000 TM). Esto se traducirá en una escasez que herá muy difícil que el presente récimen pueda cumplir sus compromisos azucareros con países del mundo libre tales como España y Marruecos y al mismo tiempo pueda copar un por ciento con siderable del mercado azucarero del Japón. El memorandum adjunto contiene datos que le resultarán de interes.
+
+La reciente operación en la cual el Brasil vendió 530,000 TM es una pruoba palpable de la oportunidad existente para los países libres de la América ca en los actuales momentos debido al fracaso de la zafra cubana.
+
+Sería sumamente oficaz para Colombia el explorar las posibilidades existentes en esos tres mercados de inmediato pues seguramente se podrían realizarse algunas operaciones que redundarían en beneficio para su país al mismo tiempo - que bloquearían operaciones del récimen Castro-Comunista de por si difíciles en vista de la escasez producida por el fracaso de la zafra de 1966.
+
+Es muy posible que nosotros pudiésemos cooperar en este empeño de Colombia, tanto a través de informaciones que pudiésemos obtener de la situación de dichos mercados (España, Marruecos y Japón), asume como a través de alguna gestión personal el se nos presentara la oportunidad.

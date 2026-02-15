@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_33611.png
+
+Convert to Markdown14-00000
+
+<table><thead><tr><th></th><th>Brass</th><th>Organ</th><th>Piano</th><th>Bass</th><th>Harmonium</th><th>Saxophone</th><th>Trombone</th><th>Double Bass</th><th>Drums</th></tr></thead><tbody><tr><td>Finnis, R. P.</td><td>70</td><td>250</td><td>350</td><td>250</td><td>800</td><td>300</td><td>600</td><td>100</td><td>100</td></tr><tr><td>Hawthorn, D.</td><td>10</td><td>300</td><td>200</td><td>800</td><td>500</td><td>200</td><td>400</td><td>200</td><td>100</td></tr><tr><td>Lindblom, J.</td><td>35</td><td>120</td><td>800</td><td>500</td><td>500</td><td>300</td><td>300</td><td>200</td><td>200</td></tr><tr><td>Mahoney, C.</td><td>20</td><td>100</td><td>250</td><td>500</td><td>300</td><td>200</td><td>200</td><td>200</td><td>100</td></tr><tr><td>O'Hare, G.</td><td>70</td><td>200</td><td>500</td><td>400</td><td>500</td><td>200</td><td>300</td><td>300</td><td>100</td></tr><tr><td></td><td>800</td><td></td><td></td><td></td><td>2500</td><td></td><td></td><td></td><td></td></tr></tbody></table>

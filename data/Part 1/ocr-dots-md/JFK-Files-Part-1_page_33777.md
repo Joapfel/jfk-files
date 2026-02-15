@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_33777.png
+
+Convert to Markdown10 June 1952
+
+MEMORANDUM FOR: ASSISTANT DIRECTOR FOR POLICY COORDINATION
+
+ATTENTION:
+Mr. Rick Beane
+Operations Division
+
+SUBJECT:
+MB 50 Transmitters
+
+1. This is to confirm our conversation to the effect that both DFTILLAR and TPTONIC are interested in the MB 50 mobile transmitting equipment. Both feel that they can use that equipment profitably in their radio operation. We shall need a little time to reach a judgment as to which of these projects should receive the equipment and to determine its best utilisation.
+
+2. We should like to request that this equipment be transferred to the IO Division for later determination as to whether it may best be utilized by DFTILLAR or TPTONIC.
+
+3. It is our understanding that this will be transferred to us without reimbursement and that this will not involve the IO Division in the so-called M 50 project which has been discussed at length with Mr. Lindsey and others of your staff.
+
+THOMAS W. BRADBY
+Chief
+International Organizations Division
+
+IO/EBB;blj
+Distribution
+Orig - Addressee
+
+1 - IO/LxO
+1 - CIO
+2 - RI

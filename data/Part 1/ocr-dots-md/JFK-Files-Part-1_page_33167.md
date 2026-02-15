@@ -1,0 +1,274 @@
+# JFK-Files-Part-1_page_33167.png
+
+Convert to MarkdownORIG: J. SEARS:mam
+UNIT: WII/COG/OPS
+DAT: 1255
+DATE: 7 APR 69
+
+MESSAGE FORM
+TOTAL COPIES:
+
+<table><tr><td>OUTGOING AND/OR INITIALS</td></tr><tr><td>DEPT. NO.</td></tr><tr><td>RECEIVED BY</td></tr></table>
+
+SECRET
+
+<table><thead><tr><th>01</th><th>02</th><th>03</th><th>04</th></tr></thead><tbody><tr><td>2</td><td>3</td><td>4</td><td>5</td></tr></tbody></table>
+
+<table><tr><td>CABLE SECRETARY DISSEMINATION</td><td>☐ INDEX</td><td>☐ NO INDEX</td><td>☐ RETURN TO ____________ BRANCH</td><td>☐ FILE ID</td></tr><tr><td>BY 4 PER __#</td><td colspan="4"></td></tr><tr><td>FILE IN CO FILE NO.</td><td colspan="4"></td></tr></table>
+
+CONF:
+
+WH/MIAMI
+
+CITE DIRECTOR
+
+APR 69
+
+TO WH/MIAMI
+
+RYBAT TYPIC AMROSE AMBEDEW AMCHALK
+
+REF: DIRECTOR-89999
+
+08 01 11
+
+1. MERCY GOMEZ MILA OF PARA 5 REF IDEN WITH MERCEDES GOMEZ VILA DE HART (201-329414). SUBJ'S HQS FILE, WHICH BRIEF AND INCOMPLETE, INDICATES SUBJ GRANTED POA 21 AUG 62, PRESUMABLY TO BE USED IN APPROACH TO ARMANDO HART. POA CANCELED 1 APR 63, SINCE SUBJ NO LONGER OF INTEREST.
+
+2. IN SEPT 64, SUBJ AGAIN CONTACTED BY AMBLEAK-1, PURPOSE TO PITCH ARMANDO HART WHO THEN MEXICO. SUBJ REFUSED ON GROUNDS ARMANDO NOT RECRUITABLE.
+
+3. SUBJ'S HUSBAND ENRIQUE HART KILLED BY OWN BOMB APR 58 WHEN PART OF ANTI-BATISTA FORCES. SUBJ CAME MIAMI SHORTLY THEREAFTER WITH TWO CHILDREN.
+
+4. OF POSSIBLE INTEREST, IN AUG 65 REFUGEE SOURCE IN MEXICO REPORTED ARMANDO HART'S BROTHER IN U.S. WAS CASTRO AGENT. SOURCE COULD NOT IDENTIFY BROTHER, SAID INFO CAME FROM FRIEND
+
+B261-815358
+B261-329414
+
+CONTINUED
+
+B261-307337
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+RELEASING OFFICER
+
+GROUP 1
+Includes this automatic
+Contact name and
+address changes
+
+AUTHENTICATING
+OFFICE
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+COPY NO.
+
+8
+4
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3
+2
+1
+
+3

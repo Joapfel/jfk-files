@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_33775.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+12 June 1952
+
+MEMORANDUM FOR: DEPUTY DIRECTOR OF CENTRAL INTELLIGENCE
+SUBJECT: NCFE-CFA
+
+1. I am attaching two memoranda having to do with NCFE on which it is unnecessary for you to take action. They point nevertheless to the inevitable difficulties we have in dealing with large and necessarily somewhat autonomous organisations such as NCFE and CFA. We are, as you know, charged by directive with exercising control over these organisations, and the memoranda indicate that maintaining this control is a difficult day-to-day job requiring considerable tact and determination as well as efficiency and a high spirit of cooperation. In both NCFE and CFA there is a pride in independence which ought to be encouraged, but there is also a sense of irritation with having to inform anyone in Washington about anything and the tendency to regard anyone below the level of General Smith and yourself (and with NCFE, Mr. Wisner) as in the way.
+
+2. With NCFE, this irritation probably goes back to another era. As I read the history, the operation at that time was a back-stopping operation pure and simple, and I think it was not an efficient one; certainly it had no respect in New York. We have worked hard to resolve past tangles, to make our relationships orderly and clean, and eventually to move to the point at which it may be possible to do more than backstop. I do not mean that we have any impression that it is possible to run these large organisations from Washington, but I have had in mind to build a kind of Division and to get the kind of people who would of their own abilities and efficiency be respected in a manner which would enable them to give guidance and real help in the field of ideas and policy coordination.
+
+3. We now have Bill Durkee, Romons Brown and Cord Meyer as Branch Chiefs in IO and we are getting some very good people to work with them. I think we are well equipped to handle the difficulties which the memoranda indicate, providing we have firm backing from the bill. The necessity of getting this backing leads me to ask you to review here the recent Valentine incident.
+
+SECRET

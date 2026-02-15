@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_33337.png
+
+Convert to MarkdownSalvador Allende hurries through the corridors of the Presidential Palace with his personal bodyguard on the morning of September 11, 1973, shortly before taking his own life during the military coup d'état.
+
+—Photo by The New York Times.
+
+flict between the executive and legislative branches. During the same weekend, Allende met with the leaders of his Popular Unity coalition and called for the holding of a plebiscite on his conduct of office. Although this step was reportedly opposed by the Socialists, Briones subsequently asserted that Allende planned to announce the plebiscite in a radio address at noon on the day of the coup.*
+
+Meantime, after a stormy session with Allende on September 7, the military commanders proceeded on Sunday, September 9, to draft the text of the pronunciamiento issued on September 11. They did not secure the agreement of the National Police until early on the morning of the coup itself, and only after the fourth-ranking officer in seniority had taken over the position of police commander.**
+
+On September 10, Navy units set sail from Valparaíso for previously scheduled maneuvers, but that evening they returned to port and by early morning of the 11th had seized control of that city. Concepción, the third-ranking city in Chile and a
+
+known center of leftist activism, was taken over without a hitch. Santiago required a few hours longer.
+
+To justify their action, the military commanders broadcast a communiqué to the nation. While admitting that the Allende government had initially come to power by legal means, they announced that it had “fallen into flagrant illegitimacy” by violating fundamental rights, by “artificially fomenting the class struggle,” by refusing to implement the decisions of the Congress, the judiciary and the Controller-General, by causing a critical decline in agricultural, commercial and industrial activity in the country, and by bringing about a state of inflation and anarchy which “threaten the internal and external security of the country.” The coup leaders concluded:
+
+> These reasons are sufficient in the light of classical doctrine . . . to justify our intervention to depose a government which is illegitimate, immoral, and unrepresentative of the overwhelming sentiment of the nation.**
+
+At 9:30 a.m., when it was apparent that no one but the GAP, his personal bodyguard, was ready to defend him, Allende broadcast his last message to
+
+*Information from the author's personal interviews with Patricio Ayhwin, Jan. 11, 1974, and Carlos Briones, Jan. 14, 1974.
+**Accounts of pre-coup military activities appear in The Christian Science Monitor (Boston), Sept. 17, 1973; The Wall Street Journal (New York), Sept. 25, 1973; Le Monde (Paris), Dec. 19, 1973; and Robert Moss, "Chile's Coup and After," Encounter (London, March 1974, pp. 72-80).
+
+Libro Blanco, pp. 248-49.

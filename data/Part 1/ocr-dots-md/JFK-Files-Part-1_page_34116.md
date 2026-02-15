@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_34116.png
+
+Convert to MarkdownCONFEDERACION DE TRABAJADORES DE COLOMBIA
+
+PERSONALIDAD JURÍDICA NO. 219 DE 1927
+
+PILIAL DE C.P. O.S.L.-O.R.I.
+
+Bogotá, D.O. Octubre: 17/66
+
+S. H. or
+
+MAYOR DEL JAPO,
+H. COLOMBIA
+L.
+5.
+U.
+
+CS COPY
+
+AUG-26 277
+
+19-120-26

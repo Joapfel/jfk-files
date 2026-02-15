@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_33864.png
+
+Convert to MarkdownSECRET
+
+9. However, upon Landowski's arrival in Athens on 16 October, he found that Rempft was already there, contrary to the above understanding. Landowski consequently found himself obliged to justify his position, and particularly his requests for access to refugees, as Rempft had already presented his credentials to the Greek authorities, the American Embassy, the American military authorities, and the international press representatives in Athens.¹ Landowski flew to Munich to confer with Mr. Sperling, who in an effort to resolve the problem, suggested that Landowski change the name of his supposed firm from "Europe News Service" to "Radio News and Recording Service" and that he specialize in wire recordings of refugee interviews. A new contract was therefore drawn up in Munich, using the suggested title.
+
+10. On 18 October a cable was received from Mr. Wiener in Athens relative to Rempft's presence there. This cable (IN 35284), for relay to Mr. Jackson of NYS and Mr. Lang of AVE, stated that the Athens station was concerned lost Rempft prove as troublesome as one Ira Hamilton in Turkey. On the same date an Opc Athens cable (IN 34940) inquired if Rempft were cleared and if he knew Landowski's CIA affiliation. Upon requesting PY to obtain this information, this office was informed that Rempft was cleared and that he had gone to Athens on personal orders from Mr. Lang. On
+
+6 November a
+
+1. In a subsequent intelligence report to Defense, the US Military Attaché in Athens referred to the peculiar Rempft/Landowski situation, the obvious hostility between the men, the Johnny-come-lately status of Landowski contrasted to Rempft's prior arrival, and the MA's own reluctance to agree to Landowski's access to refugees in the face of Rempft's attitude and the apparent lack of official sponsorship for Landowski.
+
+SEU.5...

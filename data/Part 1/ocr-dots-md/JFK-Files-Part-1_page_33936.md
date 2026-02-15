@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_33936.png
+
+Convert to MarkdownCONFIDENTIAL
+
+<table><caption>ROUTING AND RECORD SHEET</caption><thead><tr><th colspan="4">INSTRUCTIONS: Officer designations (see separate sheet) should be used in the "To" column. Under each comment, a line should be drawn across sheet and each comment numbered to correspond with the number in the "To" column. Each officer should initially check mark insufficient before further routing. This Record and Routing Sheet should be returned to Registry.</th></tr><tr><td colspan="2">FROM:<br/>RDD/TSS</td><td colspan="2">ACCESSION NO<br/>DATE RECEIVED IN S.A.</td></tr><tr><th>TO</th><th>ROOM NO.</th><th colspan="2">DATE</th><th rowspan="2">OFFICER'S INITIALS<br/>COMMENTS</th></tr><tr><td></td><td></td><td>RECEIVED</td><td>FORWARDED</td></tr></thead><tbody><tr><td>1.<br/>Col. VonKann</td><td>2044<br/>K</td><td>Mar 26 1957</td><td></td><td>Attached is the Memorandum for the Record mentioned in our telephone discussion 25 March 1952. Drawings and specifications of this item are in the possession of RDD, although the information is also on hand at General Mills. It carries a SECRET classification under our contractual arrangements with the U. S. Navy. Questions:<ol type="1"><li>Does CIA still have the commitment made by Mr. Wisner to the National Psychological Strategy Board for procuring 1,000 of these balloon units for stockpile and use by any agency deemed advisable by that group?</li><li>Should RDD release the SECRET drawings and specifications, movies and reports on trial operations for use by the Detroit News?</li></ol>L. R. Dailey</td></tr><tr><td>2.<br/>SAR</td><td></td><td></td><td></td><td></td></tr><tr><td>3.<br/>Cal vonKann</td><td></td><td></td><td></td><td></td></tr><tr><td>4.</td><td></td><td></td><td></td><td></td></tr><tr><td>5.</td><td></td><td></td><td></td><td></td></tr><tr><td>6.</td><td></td><td></td><td></td><td></td></tr><tr><td>7.</td><td></td><td></td><td></td><td></td></tr><tr><td>8.</td><td></td><td></td><td></td><td></td></tr><tr><td>9.</td><td></td><td></td><td></td><td></td></tr><tr><td>10.</td><td></td><td></td><td></td><td></td></tr><tr><td>11.</td><td></td><td></td><td></td><td></td></tr><tr><td>12.</td><td></td><td></td><td></td><td></td></tr><tr><td>13.</td><td></td><td></td><td></td><td></td></tr><tr><td>14.</td><td></td><td></td><td></td><td></td></tr><tr><td>15.</td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+CONFNO.: 91-9
+SEP 1968
+
+CONFIDENTIAL
+
+(1014)

@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_33594.png
+
+Convert to Markdown10 January 1952
+
+MEMO: FOR: DEPUTY DIRECTOR OF GENERAL INTELLIGENCE
+SUBJECT: National Information Bureau, Inc.
+
+1. Attached are two surveys from the National Information Bureau, Inc. The National Information Bureau is a reputable investigation agency conducting inquiries into American organizations which request funds from the public. It advises donors on whether the organizations are worthy of support.
+
+2. The attachments contain the results of an investigation into the Crusade for Freedom and the American Committee for a United Europe. Note that the Bureau's recommendation in respect to the Crusade is adverse. The American Committee for a United Europe on the other hand gets the Bureau's blessing.
+
+THOMAS W. FLADEN
+Chief
+International Organizations Branch
+
+SECRET
+
+SECRET

@@ -1,0 +1,59 @@
+# JFK-Files-Part-1_page_33651.png
+
+Convert to MarkdownSECRET
+
+February 1972
+
+DRAFT: TELEGRAM FROM THE HONORABLE JOSEPH C. GIBB
+TO CONGRESSMAN O. K. ARMSTRONG.
+
+I keenly regret to inform you that, upon further reflection and
+upon the basis of information which has recently come to my attention,
+I consider it inadvisable for me to address your Psychological Strategy
+Conference, and that I find it necessary to ask you to release me from
+speaking at your meeting on Saturday. When I was first asked to speak
+about the significance of National Committee for a Free Europe and the
+activities of Radio Free Europe, I understood that the Conference would
+discuss propaganda and psychological warfare. I was from the release
+issued by your office, that among the purposes of the conference are the
+presentation of definite plans of action to increase resistance movements,
+and to aid the peoples of the Soviet nation and the Satellite States to
+overthrow their regimes, as well as to establish a continuing organization
+to carry out the programs developed at the conference. This release also
+indicates that there will be full and open discussion of such matters and
+that persons purporting to represent underground movements in Poland, the
+Baltic States, Russia, China, Korea, etc., will take part in discussions.
+
+It is my personal view that it would be unwise to discuss matters of
+this sensitive and provocative character in open meetings, particularly
+where programs of specific action are considered. It seems to me that
+public discussions of such matters and revelations of plans and programs
+would not only expose and thus jeopardize the existence of any resistance
+movements which may be identified and described, as well as the lives of
+the people participating, but would also provide quantities of adverse
+propaganda material for use by Soviet and satellite propaganda machines.
+It is my conclusion that my position and responsibilities as Chairman of
+the National Committee for a Free Europe make it inappropriate for me to
+speak before or lend my name to such a gathering because of the significance which might be attributed to such appearance. I want to express my
+full sympathy with the motivation of yourself and your co-sponsors, and
+to point out in this connection that the aims and objectives of the National
+Committee for a Free Europe, of which I am Chairman, are to keep hope alive
+among the prisoner people of the slave states and to provide assistance
+to fugitives from Soviet tyranny. I especially desire that my decision
+against appearing shall not be a cause of embarrassment to yourself or the
+others concerned. I therefore suggest that you inform those who you believe
+should know, that due to unforeseeable circumstances I have found myself
+unable to attend.
+
+Crig:
+
+DC/TT- for files
+DD/P - chrono - 1
+L5 - -1
+Henry Poore - for use as guide.
+
+Mr. Weller read to Mr. Crow over long-distance telephone today and the latter said he would send the message from Princeton, N.J.
+
+SECRET
+
+14-00000

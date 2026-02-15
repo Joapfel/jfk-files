@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_34330.png
+
+Convert to Markdown* e.- Colombia: Mr. José R. Mercado, President of the Confederation of Colombian Workers (CTC) delivered a memorandum to His Excellency the Japanese Ambassador to Colombia, dated October 29, 1965 on the same subject.
+
+An increase of this reaction may be expected.
+
+## II.- CONCLUSIONS AND SUGGESTIONS.
+
+### A.- Conclusions:
+
+1.- Japan is presently aiding Castro-Communism.
+
+2.- Japan is highly dependent of Latin America in order to achieve further economic prosperity.
+
+3.- The Japan-Communist Cuba trade and the Japan-Latin America trade are in contradiction.
+
+4.- Japan may suffer considerable losses in its Latin American markets if trade relations with Communist Cuba continue.
+
+### B.- Suggestions:
+
+1.- The benefits derived from Cuban sugar purchases are no longer available to Japan, because, due to the drop of prices in the World Sugar Market, Castro cannot continue to give firms privileges that resulted of high prices, with enough margin to maneuver and still receive benefits. After prices hitting a post-World War II low, Castro has no margin for those operations.
+
+2.- Japan could very well substitute its purchases of Cuban sugar by increasing its purchases to Taiwan and Australia, and even better, to Latin American countries like Brazil, the Dominican Republic, and Peru, as it used to do previous to the concentration of dealings with Castro-Communism. Purchasing more sugar from democratic Latin American would improve Japan's image and at the same time it would eliminate its present trade dangers due to its dealings with Cuba.
+
+Miami, Fla., U.S.A., November 10, 1965.
+
+* Copy of Memorandum sent to all Japanese Ambassadors to Latin America attending November-meeting in Tokyo.-

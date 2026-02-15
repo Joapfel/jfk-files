@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_33331.png
+
+Convert to MarkdownSymptomatic of leftist attacks on Chilean institutions, a Santiago wall poster denounces the country's Supreme Court as "Protectors of Fascist Sedition."
+
+—Photo by Juan de Onis for The New York Times.
+
+tably, however, it also produced political divisions within the military itself, which had hitherto been relatively aloof from the process of polarization. It was soon apparent, for instance, that General Prats was willing to give the government the benefit of the doubt in nearly every instance that its decisions or actions were challenged. Conversely, the Navy was noticeably less enthusiastic, and in January Admiral Ismael Huerta resigned from the cabinet over plans for the initiation of what he took to be a food-rationing system. It is now also known that the first plans for a possible coup were made by intermediate-level officers at the end of 1972.*
+
+Food distribution became a critical issue as the black market continued to expand, with much of Chile's agricultural production going into illegal channels because of the government's refusal to increase the official prices paid for agricultural produce. The result was, in effect, two separate price systems—a subsidized, state-owned distribution system oriented primarily toward the low-income groups and a flourishing black market aimed at middle- and upper-income groups. The expansion
+
+of the coverrs of government-appointed Supply and Distribution Committees (JAPs) to deal with the black-market problem led the opposition to charge political manipulation of food distribution; nonethe-less, the government seemed powerless to combat black-market operations.
+
+The March 1973 Elections
+
+The congressional elections in March did not re-solve anything. Chile's right-wing parties had hoped that food shortages and economic difficulties would produce a two-thirds majority against the govern-ment, which might in turn permit the impeachment of the President, but the results, while showing an anti-government majority of 56 percent, gave the Allende regime 44 percent—a larger vote than most observers had predicted. The opposition pointed out that the vote of the pro-government forces had declined from the 50 percent they had registered in the 1971 municipal elections, while the government compared its 44 percent with the 35 percent that Allende had received in 1970. In fact, the only proper basis for comparison was the
+
+*The New York Times (New York), Sept. 27, 1973.

@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_33795.png
+
+Convert to Markdown<table><tr><td>SECRET</td></tr><tr><td>Security Information</td></tr></table>
+
+19 May 1952
+
+MEMORANDUM FOR THE DIRECTOR
+
+You will be interested in the attached letter from
+Matthew Woll resigning from NCFE. We were forewarned
+of this some weeks ago by Jay and others.
+
+We will be in touch with NCFE with respect to the
+form of their answer if they decide to make one.
+
+ALLEN W. DULLES
+
+Knoe.
+
+cc: DD/P
+C/IO
+
+SECRET

@@ -1,0 +1,76 @@
+# JFK-Files-Part-1_page_34198.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>INDEX ☑ YES ☐ NO</td>
+    <td>CERTIFIED MESSAGE TOTAL COPIES</td>
+   </tr>
+   <tr>
+    <td colspan="2">CLASSIFY TO FILE NOT<br/>N-DEF TO FILE NO.</td>
+   </tr>
+   <tr>
+    <td colspan="2">FILE ID ☐ RET. TO BRANCH ☐<br/>DESTROY ☐ 16.</td>
+   </tr>
+   <tr>
+    <td colspan="2">FROM John Pelvin</td>
+   </tr>
+   <tr>
+    <td colspan="2">TO J. M. WAVE</td>
+   </tr>
+   <tr>
+    <td>ACTION WH/C 8</td>
+    <td>RID COPY ADVANCE COPY UNIT TIME BY</td>
+   </tr>
+   <tr>
+    <td>INFO FILE UR WEB ADDL CHPS RAN DOY DFM3 C1FC2 CAZ CALIPER8</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>SECRET 161808Z DEC DIR OTTA CITE WAVE 9650 TYPIC AMSCROLL MHVIPER</td>
+    <td>MICROFILMED MAR 3 1980 DOC. MICRO. SER.</td>
+   </tr>
+   <tr>
+    <td colspan="2">COPIES</td>
+   </tr>
+   <tr>
+    <td>I G HAR 66 N 76425</td>
+    <td>1G MAR 66 N 76425 AN/FI FTCTECHREVISED V</td>
+   </tr>
+  </table>
+
+1. ON 15 MARCH WAVE ASSET AMSCROLL (IDEN) RECEIVED TELEPHONE CALL FROM PERSON IDENTIFYING HIMSELF AS JOHN WIES, AN OFFICIAL OF DELHI EXPORT AND SERVICE, LTD., DELHI, ONTARIO. SAID THAT DELHI HAD TRADED FOR TWO AND ONE HALF YEARS WITH CUBA UNTIL DECEMBER 64 WHEN TRADING SUSPENDED AS UNABLE COLLECT AMOUNTS DUE. WIES SAID HE THEN WENT CUBA IN ATTEMPT COLLECT. INSTEAD JAILED UNTIL FEB 65. AMONG CHARGES WAS HE KUBARK AGENT. UPON RETURN CANADA HE UNSUCCESSFULLY SOUGHT TO INTEREST CANADIAN GOVT HIS CASE. THEREAFTER RETAINED LAWYER AND NOW PREPARING SUIT. SAID HIS LAWYER ALSO REPRESENTS OTHER CANADIAN FIRMS WITH OUTSTANDING CLAIMS AGAINST CUBA AND HIS SUIT BEING PREPARED IN CONJUNCTION OTHERS. OJECT IS TO IMPOUND CUBAN ASSETS TO OBTAIN SATISFACTION CLAIMS.
+
+2. WIES SAID HE HAD BEEN CONSIDERING APPROACHING KUBARK OR OTHER ODYOKE AGENCY OFFICE IN CANADA TO FILE THIS CASE BUT DID NOT KNOW WHERE TO TURN. HE DECIDED INSTEAD TO CALL AMSCROLL AS HIS FIRM IS RECIPIENT ITS ECONOMIC BULLETIN.
+
+SECRET
+
+C000003!
+
+REPRODUCTION PROHIBITED
+
+<table>
+   <tr>
+    <td>1</td>
+    <td>2</td>
+    <td>3</td>
+    <td>4</td>
+   </tr>
+   <tr>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+  </table>

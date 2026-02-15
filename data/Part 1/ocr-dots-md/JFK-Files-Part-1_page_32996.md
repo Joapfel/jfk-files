@@ -1,0 +1,80 @@
+# JFK-Files-Part-1_page_32996.png
+
+Convert to Markdown14-00000
+
+<table><thead><tr><th colspan="2">MESSAGE COPY</th></tr></thead><tbody><tr><td>TOTAL COPY:</td><td>27</td></tr><tr><td colspan="2">SECRET</td></tr></tbody></table>
+
+S HARRY FELTON
+WH/COG/FI
+7265 R. 0229
+18 OCTOBER 1972
+
+<table><thead><tr><th colspan="4">TRANSMITTING AND REceiving, SEEN BY</th></tr><tr><th></th><th>TO</th><th>FROM</th><th>DATE</th></tr></thead><tbody><tr><td>1.</td><td></td><td></td><td>07</td></tr><tr><td>2.</td><td></td><td></td><td>6</td></tr><tr><td>3.</td><td></td><td></td><td>7</td></tr><tr><td>4.</td><td></td><td></td><td>8</td></tr></tbody></table>
+
+LE SECRETARIAT DISSEMINATION
+
+PER 09
+
+FILE IN CS FILE NO.
+
+☐ INDEX ☐ NO INDEX ☐ RETURN TO _______________ BRANCH ☐ FILE RID
+
+WHY 10 FILE.VR 10 Why EUREC click 2 c/c/PS Fl
+
+(Confidential)
+
+DATE and time (EST)
+
+SECRET
+
+(Original) (Copy)
+
+CITE DIRECTOR
+
+326678
+
+MADRID INFO MEXICO CITY WH/Miami
+
+TYPIC ANWOLF
+
+REF: MEXICO CITY 21363 (IN 734975) (NOT SENT MADRID)
+
+1. REF REPORTED TRAVEL PEDRO P INERO ERIN, PP D/71/1177, CUBA TO MEXICO, 13 OCTOBER 72.
+
+2. THOUGH CUBANS SUPPOSEDLY UNAWARE PLANNED ANCHALK-5 APPROACH TO ANWOLF-1, SUGGEST MADRID WATCH FOR POSSIBLE ARRIVAL PINERO, AS HE INVOLVED IN JUNE 1967 ANWOLF-1/ANCHALK-5 MEETING.
+
+3. MEXICO CITY: IF PINERO'S ACTIVITIES OR ANY ONWARD TRAVEL COME TO ATTENTION OF STATION, PLS REPORT.
+
+4. FILE: ANWOLF-1, ANCHALK-5, 201-S24376. E2 IMPDET.
+
+END OF MESSAGE
+
+WITH COMMENT:
+
+Ref reported travel, paragraph 1.
+
+C/EUR
+
+C/WH/COG
+
+C/EUR/IB
+
+C/WH/1
+
+THIRD OFFICER
+
+COORDINATED OFFICERS
+
+SECRET
+
+RELEASING OFFICER
+
+C/EUB
+
+C/WID
+
+AUTHORIZING CATING OFFICER
+
+REPRODUCTION ONLY IF HERALDICALLY THE ISSUED OFFICER IS RECEIVED.
+
+COPY NO.

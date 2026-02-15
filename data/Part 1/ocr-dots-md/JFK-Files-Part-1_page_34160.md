@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_34160.png
+
+Convert to Markdowntonces apareció un buque griego que desembarcó de facilitaries agua y algunos alineamentos lo comunicó al Servicio de Guardacostas de los Estados Unidos y poco después, un avión aterrizó en el lugar y marcaba el sitio para facilitarle la tarea a una de sus unidades navales que ya se encontraba en camino.
+
+La llegada del buque del Servicio de Guardacostas Norteamericano fué real -mente providencial, pues mi familia y los otros tripulantes del bote observaban aterrorizados como por la popa se acercaba velozmente una lancha patrullera cubana, que al ver el buque norteamericano viró en redondo y regresó a Cuba.
+
+Yo me encontraba en el hotel en Londres y una llamada de larga distancia me puso al corriente de la situación. Ellos se encontraban a salvo y ahora me tocaba el turno a mí.
+
+Llamada informándome del arribo de mi familia a los EE.UU. llegó precisamente cuando me encontraba reunido con el resto de los miembros de la Delegación. Estos me observaban atentamente, como queriendo adivinar lo que se me decía desde el otro lado de la línea. Por tanto, tuve que desplegar mis escasas dotes de actor teatral y simular que la llamada era oficial desde Cuba.
+
+Ante esta situación, opté por informar, faltamente, a los restantes delegados que el gobierno cubano me había encargado el cuidado de otros asuntos, por lo que tendría que demorarme algunos días más de los previstos en Madrid.
+
+Los dije también que me reservaran pasaje a bordo del vuelo de la semana si cuiente y les entregué una carta para mi familia. Llegué a Madrid el 4 de Marzo. Las autoridades españolas me brindaron toda clase de facilidades, incluso posteriormente la de ofrecarme hasta protección personal, puesto que cuando en el MINAZ se conoció mi desaparición, el gobierno notificó a las embajadas cubanas en Londres y Madrid que me encontraran y que me llevaran do regreso para La Habana aunque tuviera que ser a bordo de un buque cubano y por supuesto, en contra de mi voluntad.
+
+No deseaba tomar más tiempo para anécdotas personales y si lo he hecho ha sido porque estimo que ayudan a comprender la verdadera situación que se vive en Cuba. La situación de los funcionarios que como en mi caso, desean la libertad de nuestra Patria, y que nos encontramos sujetos a vigilancia, a represión, mis hijos expulsados de la Universidad y sujetos a las mismas privaciones que el regto de nuestro Pueblo.
+
+Pasemos ahora al tema principal de esta conferencia, que es a la vez la espina dorsal de la economía cubana y por tanto el factor determinante de la es-tabilidad o de la caída del régimen de Fidel Castro: el AZUCAR.

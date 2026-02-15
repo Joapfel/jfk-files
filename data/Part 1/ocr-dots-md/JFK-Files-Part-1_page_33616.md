@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_33616.png
+
+Convert to Markdown21 Mar 1952
+
+RECORDED FOR THE RECORD
+
+UUC-7: Telephone Conversation with Admiral H. F. Kilbey on 21 March.
+
+Admiral Kilbey called me today and asked me not to pass along two warnings:
+
+1. He objects to what we said earlier is the "approval" of CIA officials of the plan to put Admiral Kirk's Committee under the Crusade for Freedom. He said he thought the cover of the Crusade was by now almost non-existent and cited a recent meeting of an advertising group of which he is a member were, he said, various members turned to him and asked him to quit kidding. I said to Admiral Kilbey that I thought that the "approval" to which he referred was a matter of policy as between the State Department and CIA and that I thought it probable that if there had been any such approval the CIA officials who gave it and in mind the necessity of securing his views before putting the plan into effect. He replied that he wanted to be as helpful as possible and that if all Admiral Kirk had to do was to fall back on was the Crusade for Freedom then maybe we would have to yield, but he said that in any event if Admiral Kirk's Committee were to be added to the Crusade, the Crusade would have to be expanded. He could not possibly attempt to furnish cover under the present agreement with the State Department to cut down the activity of the Crusade.
+
+2. He said that he wanted to issue a warning to all here that heads would shortly roll within hours. He said that he had recently had a talk with Fred Colleary and some over hearers' regularization and that as a result of this talk his previous conviction as to the necessity for reorganization was emphasized tenfold. He said he thought there were too many jobs held by people whose qualifications were that they wore the old school lie or that they had relatives who already held jobs, and he said he considered to clean house to such a degree that he might soon be able to rent a floor in the New York building. He said that there may be some realisations as a result and that we should be prepared for them, but he said that we assured him we wanted him to conduct efficient operations and therefore we had a green light to go so until we called him off. I assured him that this was a fact.
+
+GOTBCh
+Cefof
+International Organizations Division
+
+Orig - APO-M/F-DRCI
+1 cc - TO
+2 cc - FI
+
+SECRET!

@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_33761.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">UNCLASSIFIED</th><th>RESTRICTED</th><th>L</th><th>IDENTIAL</th><th>SECRET</th></tr><tr><td colspan="6">(SEE PAGE WILL CIRCLE CLASSIFICATION TOP AND BOTTOM)</td></tr><tr><th colspan="5">CENTRAL INTELLIGENCE AGENCY<br/>OFFICIAL ROUTING SLIP</th><td></td></tr><tr><th scope="col">TO</th><th scope="col"></th><th scope="col">INITIALS</th><th scope="col">DATE</th><th scope="col"></th><th scope="col"></th></tr></thead><tbody><tr><td>1</td><td>MR. BRADEN</td><td></td><td></td><td></td><td></td></tr><tr><td>2</td><td>MR. EASMAN</td><td></td><td></td><td></td><td></td></tr><tr><td>3</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>4</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>5</td><td></td><td></td><td></td><td></td><td></td></tr><tr><th scope="row">FROM</th><td colspan="4">DEPUTY DIRECTOR</td><td>AWD</td></tr><tr><td>1</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>2</td><td colspan="5"></td></tr><tr><td>3</td><td colspan="5"></td></tr></tbody><tfoot><tr><td colspan="6"><table border="1" style="width:100%; border-collapse: collapse; text-align:center;"><tbody><tr><td>☐ APPROVAL</td><td>☐ INFORMATION</td><td>☐ SIGNATURE</td></tr><tr><td>☐ ACTION</td><td>☐ DIRECT REPLY</td><td>☐ RETURN</td></tr><tr><td>☐ COMMENT</td><td>☐ PREPARATION OF REPLY</td><td>☐ DISPATCH</td></tr><tr><td>☐ CONCURRENCE</td><td>☐ RECOMMENDATION</td><td>☐ FILE</td></tr></tbody></table></td></tr><tr><td colspan="6">REMARKS: DDCI has asked to see copy of the paper we have for use in the event something of this nature happens.</td></tr><tr><td colspan="6">JSE</td></tr><tr><th scope="row">SECRET</th><th scope="col">CONFIDENTIAL</th><th scope="col">RESTRICTED</th><th scope="col">UNCLASSIFIED</th><td colspan="2"></td></tr></tfoot></table>
+
+FORM 90-4
+
+SEP. 187
+
+10-0704-1 U. S. GOVERNMENT PRINTING OFFICE

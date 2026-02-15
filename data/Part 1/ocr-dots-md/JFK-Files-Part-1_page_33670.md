@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_33670.png
+
+Convert to MarkdownCONFIDENTIAL
+
+II eniorandun
+
+January 29, 1952
+
+To: Mr. O. E. Hadwood
+
+From: H. H. Prunty
+
+The enclosed letter copy is self-explanatory. It confirms,
+in my mind, all the worst suspicions that I have had regarding
+this public relations firm in connection with the Crusade for
+Freedom. That is one thing.
+
+The fact that they would proceed, even if they had been
+commissioned to call this meeting for the Crusade for Freedom,
+without consulting the National Committee office, on whose
+behalf they are supposed to act, is, in my opinion, assuming
+alarming proportions.
+
+Either the Crusade for Freedom works on behalf of the
+National Committee, or it does not.
+
+This is the sort of thing that will really kill the Crusade
+for Freedom in the city, and is the finale on a whole series of
+similar incidents.
+
+JAN 31 1952
+
+SECRET

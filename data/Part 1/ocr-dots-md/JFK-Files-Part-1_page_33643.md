@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_33643.png
+
+Convert to Markdown6 March 1952
+
+MEMORANDUM FOR: RAY E. MILLARD
+
+FROM: THOMAS MYERS
+
+SUBJECT: Herman Moschner - Convicted Spy
+
+1. Pursuant to our conversation, you are advised that the captioned individual was convicted in the U. S. Court at Nürnberg on 31 January 1952 on a charge of espionage. U. S. Attorney developed information which was turned over to us indicating that among other things Moschner had been directed by the Czech intelligence service to procure information about Radio Free Europe, especially bearing on the guarding of the installations and the consequences of an act of sabotage. Moschner was not an employee of RFE and the basis of the espionage charge against him was that he had endeavored to obtain information concerning personnel and activities of the CIC.
+
+2. Through the courtesy of a friendly U. S. agency, we have been provided with a copy of the targets which Moschner had been given by the Czech intelligence service. I am attaching a copy of the list of such targets and you will note that the activities of this individual clearly reflect the interest of Czech intelligence in possible sabotage of the physical installations of RFE in Munich. Further information is being developed in this matter and I will advise you when I receive same.
+
+THOMAS MYERS-

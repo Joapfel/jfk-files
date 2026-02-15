@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_33656.png
+
+Convert to MarkdownExiles Speak Over RFE
+
+Radio Free Europe, on the other hand, does not portray America. It concentrates largely on what is taking place within the slave countries. Over its transmitters Poles speak to Poles, Hungarians to Hungarians, etc. They speak as "the voice of Free Poland," "the voice of Free Hungary." etc. They look at their people's problems through their own eyes.
+
+RFE programs specialize in identifying and denouncing Communist informers and collaborators, sending back messages from escapees, and exposing the corruption and crimes within the Red regimes.
+
+In their broadcasts to behind the Iron Curtain, the Voice and Radio Free Europe have essentially the same aims: to keep alive the hope of liberation; to let listeners know that they have not been forgotten; to stiffen their resistance against their Communist oppressors; to expose the fraudulent basis of authority upon which the Moscow-dominated regimes rest.
+
+Both combat Communism and the persecution of religion and denial of human rights. Both report the superior industrial power and fighting potential of the free world over the Soviet-enslaved world.
+
+1951 Year of Progress for "Voice"
+
+During the past year the Voice of America:
+
+1. Stepped up daily programming from 30 to 50 hours daily.
+
+2. Made progress in overcoming Soviet jamming.
+
+3. Increased its broadcasts to behind the Iron Curtain, adding the "splinter" languages of Georgian, Armenian, Azerbaijani, Tatar, Turkestan, Latvian, Lithuanian and Estonian.
+
+4. Inaugurated programs to Albania, Finland, Israel and Portugal in their respective languages; to China in two additional dialects, Swatow and Amoy; to Japan and South and Southeast Asia in Hindi, Urdu, Thai, Burmese and Malayan.
+
+5. Became more outspoken and hard-hitting. One of the principal themes was the support of the UN effort to repel the Chinese and North Korean Communist aggression in Korea. Major attention was given to exposing the fraudulent Soviet "peace" drive.
+
+6. Began work on the "Ring Plan" approved by Congress, which calls for a network of powerful relay bases girdling the globe.
+
+7. Created "Vagabond"—a ship equipped with a transmitter, so that radio broadcasts may be relayed from shipboard.
+
+8. Received 318,000 letters from overseas listeners—an increase of 35% over 1950.
+
+9. Needed the Communists so successfully that Radio Moscow and Soviet regional stations doubled their attacks against the Voice.

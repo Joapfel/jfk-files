@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_32938.png
+
+Convert to Markdown<table><thead><tr><th>ACTION</th><th>ADVANCE COPY</th><th>UNIT</th><th>TIME</th><th>BY</th></tr></thead><tbody><tr><td>C/ EUR 4</td><td>RID COPY ☐ ISSUED ☐ SLOTTED ☐ USED</td><td>1</td><td>3</td><td></td></tr><tr><td>INFO<br/>FILE VR c/w HCOG.5, C/WH6, C/T, C/F2</td><td colspan="4"></td></tr></tbody></table>
+
+SECRET 091236Z CITE MADRID-1378
+
+DIRECTOR INFO JMWAVE
+[REDACTED] KEYWAY AMMOON MHGUILE
+
+REF: DIRECTOR 98887
+
+FOR MADRID BACKGROUND USE ONLY WOULD APPRECIATE
+CLARIFICATION FOLLOWING POINTS REF CABLE.
+
+9 - MAY 1967
+
+A. IS AMSTALK-1 NOW WORKING FOR CUIS OR DID HE FORMERLY WORK FOR THEM?
+
+B. IS AMSTALK-1 NOW COLLORATING FULLY WITH WOFACT?
+
+C. IS AMSTALK-1 INVOLVED IN DOUBLE AGENT OP?
+
+D. WHAT IS CONNECTION AMSTALK-1 WITH AMTRUNK-19 OTHER THAN FAMILY RELATIONSHIP?
+
+E. IS THERE SUSPICION POSSIBILITY AMTRUNK-19 DOUBLED?
+
+F. WHY DOES CUIS EXPECT AMSTALK-1 MIGHT BE WILLING TO MEET THEM IN OTHER COUNTRY?
+
+SECRET
+
+BT
+
+CS COPY
+
+<table>
+  <tbody>
+    <tr>
+      <td>AT LOU</td>
+    </tr>
+    <tr>
+      <td>[Signature]</td>
+    </tr>
+    <tr>
+      <td>FT</td>
+    </tr>
+  </tbody>
+</table>

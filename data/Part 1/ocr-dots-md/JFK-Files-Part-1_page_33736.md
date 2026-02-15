@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_33736.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+In reply refer to W-1791
+3
+11 January 1952
+
+Mr. C. D. Jackson
+National Committee for a Free Europe, Inc.
+110 West 57th Street
+New York 19, New York
+
+Dear C. D.:
+
+As promised at our last meeting, here is the text for a new paragraph 3 of the Minutes of the Meeting held in Washington on 14 December 1951. This was dictated by Oliver E. Hadwood.
+
+"3. Jackson advised that he had a tentative date to call on the Ford Foundation people in Pasadena on January 8th. Braden advised that it would be appropriate at that time to make a strong pitch on the Iron Curtain refugee problem with the idea that the government was tackling this problem but needed substantial help from private agencies, and that if Ford would give a disable sum to HCFE, which it in turn could farm out to IRC, it would help to get the ball rolling on a major psychological warfare problem. Braden stressed that private initiative was extremely important that if a private agency acted now, it would speed up the governmental machinery. He also said that the maximum estimated governmental contribution toward this problem was not expected to be more than half the cost.
+
+"Braden also advised that IRC had agreed with David Martin for Martin to step down from his post as Executive Director and that the Committee was considering the appointment of a well-known university president to assume the job. He said that Martin had agreed to step out of the picture altogether if the Committee wished him to do so but that in any case his role from now on would be minor.
+
+"It was also agreed that this discussion of refugees and IRC could include the plan worked up by Parle and Bolbeare to turn over to IRC HCFE "non-productive exiles at a cost to HCFE of approximately $1,000 a head."
+
+DCPY/HCL:nl
+Distribution:
+Addressee - Original; DCOPY - 1; PY/FNI - 1; PY/MO - 1; BY - 0

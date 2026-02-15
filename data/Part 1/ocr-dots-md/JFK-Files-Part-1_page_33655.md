@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_33655.png
+
+Convert to Markdown14-00000
+
+The VOA Around the World
+and Around the Clock
+
+NOTE: To determine Greenwich Mean Time local time zone, add or subtract the time at the base of map from your local time.
+
+The Voice of America's Global Network of Broadcasting Facilities
+
+This visualization of the world, on Mercator's Projection, aims to show at a glance how a vast array of transmitters and relay stations carries Voice of America programs in 46 languages to listeners everywhere.
+
+For European countries the programs are transmitted from stations in the United States located near New York City, Boston and Cincinnati, via directional antennas and with transmitters ranging in power from 20,000 to 200,000 watts.
+
+The transmissions are beamed toward Europe, where a network of relay stations picks up and rebroadcasts the programs within dotted areas on the map. Shortwave relay stations are located at Tangier, North Africa, andWOofferton, England, while medium-wave transmitters are located in Munich, Germany, and Salonika, Greece.
+
+Latin American programs are transmitted from shortwave stations located near New York City, Boston, Cincinnati and San Francisco to all countries south of the United States.
+
+To Far Eastern countries the programs are broadcast from high-powered transmitters (near San Francisco, then relayed by shortwave transmitters at Honolulu, Manila and Ceylon) and by a medium-wave transmitter at Manila.
+
+The map indicates a considerable overlap of radio coverage from the various transmitters, times the overlapping areas indicate different language programs, and sometimes they indicate a single language program is broadcast on several wavelengths, in order to give listeners a choice of clearest signal in a locality. Vertical lines indicate Time Zones, with GMT at Noon and International Date Line as a dotted line.

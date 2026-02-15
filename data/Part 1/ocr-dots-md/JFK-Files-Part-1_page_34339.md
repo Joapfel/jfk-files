@@ -1,0 +1,58 @@
+# JFK-Files-Part-1_page_34339.png
+
+Convert to MarkdownBLACK LIST FIRMS:
+
+Konstantinos Pitsenkakis
+6 Polytechniou St.,
+Athens,
+Greece.
+
+Ioannis Triantafyllis
+9 Patission St.,
+Athens, Greece.
+
+Nikolaos Rombapas and Son
+1 Streit St.,
+Athens, Greece.
+
+Dimitriades Textile Co.,
+
+27 Praxitelous St.,
+Athens, Greece.
+
+Solcu Sason
+c/o Transstokom
+9 Aristeidou St.,
+Athens, Greece.
+
+Nea Agrex Co.,
+28 Kapodistrious St.,
+Athens, Greece.
+
+Messinezis and Co.,
+1 Karysti St.,
+Athens, Greece.
+
+Vasilios Eleisias
+28 Mansuel Benaki St.,
+Athens, Greece.
+
+Fotis Baptis
+91 Adaminas St.,
+Athens, Greece.
+
+Franco Shipping Agency
+65 Patission St.,
+Athens, Greece.
+
+Karaginnidis Travel Agency
+11 Akti Miaduli St.,
+Athens, Greece.
+
+Esta Marítimo Agency
+3 Dimitrio Comari St.,
+Piraeus, Greece.
+
+Michael Karageorgis
+Plateia Loudovikous,
+Piraeus, Greece.

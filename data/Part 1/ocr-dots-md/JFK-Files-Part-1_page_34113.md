@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_34113.png
+
+Convert to Markdown# SUPPRESSION OF REGISTERED TRADE MARKS
+
+As is known, the Castro regime, after monopolizing foreign trade and seizing private industries, arbitrarily decreed that all Cuban trade-marks had become the property of the government. However, with the lawful owners of these trade- marks scattered as exiles over the free world, Castro has met considerable legal difficulties in using the stolen brand names for his exports. Abroad, Castro has been unsuccessful, in most cases, in assigning these trade-marks to the regime's export enterprises, as, in most countries, the brands are registored in the names of their lawful owners.
+
+Thus Castro violates international trade-mark regulations. This situation is particularly true with respect to the world-famous trade-marks of Cuban cigars. One of the best-known cases is the continued exportation of cigars bearing the "La Corona" and "Honry Clay" brands, which are the property of the American Tobacco Company. This firm was forced to take direct action in England, France, and Switzerland, countries to which Castro has had to halt exports.
+
+Another example is the much-debated case of the "BACARDI" brand, which is now being contested and which will be brought before the courts of Great Britain by February or March next year.
+
+In 1963, British authorities seized a shipment of Bacardi rum which was recently returned to Cuba, and, therefore, the regime has been unable to export this brand to England. The regime faces similar problems with Canada and Japan.
+
+The first complications rising from this case took place right in Cuba, where there were even dismissals in juridical Direction of the Ministry of Foreign Trade early this year. Presently, Cuba is facing the following difficulties in this case:
+
+1) Legal contradictions due to Cuba's very laws of expropriations and to the perennial "reorganizations" and "creations" of Cuban foreign trade concerns.
+
+2) Restricted opportunities for the Cuban regime to present witnesses, as it fears that such witnesses will take the chance to defect.
+
+3) Troubles between the Cuban regime and the very solicitor of the London "Seifert and Seddeley" case.
+
+4) Financial limitations, as the Cuban regime has only US$ 42,000 to finance the expenses of the case through the London law firm "Clark Russell".

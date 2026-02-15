@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_33798.png
+
+Convert to MarkdownSECRET
+
+Security Information
+
+REMEMBRAND FOR: CHIEF, IO
+
+SUBJECT: Albanian Desk of RFE
+
+REFERRAL: Secret Memorandum dated 1 April 1950, to Mr. Campbell, EE, from Mr. Nancy, EE, same subject. (Attached)
+
+1. It may be that Mr. Dosti was aware that there was little possibility that either Mr. Skëndil or Mr. Chokrasi would be willing to become head of the Albanian Desk of RFE and that he hoped his third choice of one of the Jakovas would therefore be accepted. However, we do not consider that this is any proof that Mr. Dosti has sold out to Zog.
+
+2. Mr. Dosti is rather easily influenced and has been impressed by the Jakovas and their position in emigre circles in New York City. Consequently, there is no doubt he would like to be in the position of sponsoring the Jakovas and we believe he sincerely felt one of them would make a good head for the Albanian Desk of RFE.
+
+3. We agree with EN/State that no consideration should be given to offering either Jakova a position with RFE and with their description of the couple; our attitude has been made known to RFE on several occasions during the past six months.
+
+GRATIAN M. IATSOVITCH
+Deputy for Policy Coordination, SE
+
+Dizedeshes original
+
+SECRET
+
+Security Information

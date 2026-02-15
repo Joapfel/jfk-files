@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_33878.png
+
+Convert to Markdown# Provisions of Proposed Agreement between NFF and CDA
+
+It is proposed that an agreement which will include the following be entered into by NFF and CDA.
+
+1. A statement to the effect that subject to the security, program, budget, and policy controls over the funds set forth below, NFF, for administrative and operational responsibility for the conduct of its operations,
+
+2. A provision that NFF will submit to CDA an annual operating plan and supporting budget for the programs which it plans to undertake during each fiscal year. The approval of such operating program and budget by CDA will include authority to fund it to proceed as necessary in their judgment to accomplish the objectives set forth in the approved program, subject to controls set forth below,
+
+3. A provision that NFF will maintain adequate accounting and fiscal controls.
+
+4. A provision that NFF will undertake only those programs which have been approved by CDA.
+
+5. A provision that CDA will provide funding to NFF for approved programs.
+
+6. A provision that CDA will furnish national policy input since to the extent for the conduct of such programs are that CDA will conform to such policy.
+
+7. A provision that NFF will conform to security regulations to be prescribed by CDA. Those will include the security clearance of necessary personnel, obtaining of security agreements from all sitting personnel, and necessary physical security measures.
+
+8. A provision to the effect that the general organizational structure and salary scales including allowances will be approved by CDA.
+
+9. A provision that the president and vice-presidents of NFF will be employed subject to the encouragement of CDA.

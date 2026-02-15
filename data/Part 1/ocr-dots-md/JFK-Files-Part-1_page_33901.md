@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_33901.png
+
+Convert to MarkdownSECRET
+
+In compiling the list of thirty names, you should I believe,
+choose individuals who fit into the "indispensable" category by
+virtue of their programming, and iden generation capabilities
+rather than because of engineering or other technical background.
+
+You will perhaps wish to know that a copy of this letter is
+being sent by Allen to Mr. Hughes to whom Allen has recently sent
+a lated interim reply.
+
+I hope that we may hear from you in regard to this list at
+an early date. While we require the names, for your own informa-
+tion, those names—according to present arrangements—would be
+made known only to our own people, not to the military authorities.
+For the latter, numbers we have will suffice.
+
+CIO/NEV:blj
+
+Distributions:
+
+Orig. - Addres:too
+1 - Hughes (as stated above)
+1 - CIO
+2 - HI
+
+1 - TONIC CHRONO
+
+SECRET

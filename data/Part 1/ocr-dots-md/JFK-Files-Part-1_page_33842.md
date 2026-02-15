@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_33842.png
+
+Convert to MarkdownCOPY
+
+March 2, 1952
+
+Dear Mr. Minett:
+
+General Gusstav Hennyey is Representative of the Hungarian National Council in Western Germany and a person in whom the Fund places trust and confidence in its dealings with the problems of the Hungarian National Council. The Fund has been desirous for some time that General Hennyey come to the United States, and believes that his visit here would be most helpful to the present activities and future of the Hungarian National Council.
+
+An opportunity presented itself last fall for General Hennyey to emigrate to the United States as a displaced person. He was granted a visa by the Consul General in Munich on November 21, 1951, EC Number 25611, D.P. Commission Validation Number A-7037, Sponsor Mr. Louis Rado, 182 Main Street, Poughkeepsie, New York. Subsequent to the issuance of his visa his file was sent by the local representative of the U. S. Immigration and Naturalization Services in Munich to the Office of the Attorney General in Washington for special consideration under No. 3-CFR-17557. Neither General Hennyey nor the National Council have been able to determine why his case has been held in suspense, by the Immigration and Naturalization Service. Indeed, in response to one inquiry General Hennyey was told that the file in question had been lost. As stated above, the Fund attaches great importance to General Hennyey's visit to the United States, and considers this visit to be of high operational importance, since it will deeply affect the work of the Hungarian National Council. We shall be very grateful for any assistance which you can render in the expedition of the decision of the Immigration and Naturalization Service. I may add that General Hennyey's visa will expire on the 21st of this month, and he also will lose his rights owing to the expiration of the Displaced Persons Act in the near future should he not be able to emigrate promptly.

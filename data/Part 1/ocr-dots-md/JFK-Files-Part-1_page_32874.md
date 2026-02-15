@@ -1,0 +1,205 @@
+# JFK-Files-Part-1_page_32874.png
+
+Convert to MarkdownSECRET
+
+SUBJECT: CUIS RECRUITMENT ATTEMPTS AGAINST EULEX IN THE U.S.
+
+2. AMSTALK-1 (Identity B) received recruitment letter in very sophisticated operation involving a frame of 35 mm film rolled up and concealed in a hollowed out crucifix on rosary beads sent via his cousin who came out on the airlift on 11 April 1967. The letter believed to be from AMGHOST-1 was mildly threatening to AMSTALK-1's family and friends in Cuba and suggesting a meeting with the CUIS in Spain or Canada. Local LNERGO not advised. AMSTALK-1 and JMWAVE Case Officer are currently in Madrid on this operation. It is believed that this operation was initiated by AMGHOST-1 for unknown reasons, but possibility exists it is to establish a communications channel to WOFACT.
+
+Extracted from report prepared by CI Section, JMWave Station June 1967
+
+<table><tr><td>AMST</td><td>FT</td></tr><tr><td>08</td><td>[Signature]</td></tr><tr><td>ABSTRACT</td><td>X</td></tr></table>
+
+CS COPY
+
+SECRET
+
+201-387337
+
+JUN 1967
+
+June 1967
+
+June 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967
+
+JUN 1967

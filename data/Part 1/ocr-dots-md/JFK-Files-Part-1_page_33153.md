@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_33153.png
+
+Convert to MarkdownSECRET
+
+WH/COG 69-288
+
+MEMORANDUM FOR: Chief, CI/OA
+
+SUBJECT : AMCHALK-5
+(201-307337)
+
+Please reinstate Subject's POA to include his use in
+the AMCHALK Project. Use of AMCHALK-5 while in Miami
+awaiting assignment to meet requirements of other WH Stations
+will be primarily in connection with development of leads for
+new on-island assets.
+
+David A. Phillips
+Chief, WH/COG
+
+DDP/WH/COG/OPS/D/Geisler:mamd
+
+10 September 1969
+
+Distribution:
+
+Orig & 1 - Addressee
+1 - WH/COG/OPS
+1 - 201-307337
+
+SECRET
+
+201-30732

@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_33684.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+18 January 1952
+
+MINORANDUM OF CONVERSATION
+
+Present were Messrs. Jackson and Washburn of HOPE, Messrs. Barrett, Joyce, Devine, Sargeant and Kohler from State, and Messrs. Dulles, Wisner, Lloyd and Braden from CIA. The meeting was held in Mr. Barrett's office on 17 January at 4:30 pm.
+
+CONCLUSION: That the Crusade for Freedom organization should continue.
+
+The following is a transcript of Mr. Braden's notes of the meeting.
+
+C. D. led off, admitting the frustrations that a long campaign
+on the Crusade for Freedom caused to the State Department and eng-
+gested the following program:
+
+1. A 1-day bell-ringing campaign in all cities.
+
+2. Direct mail to corporations.
+
+At this point, Mr. Washburn interjected to say that he would need about two weeks of "low drums" promotion before the 1-day campaign. Jackson went on to say that under such a scheme there would be no time on the part of the chairman for a build-up of invidious comparisons in the press. At Jackson's request, Mr. Washburn passed around a Crusade publication entitled "The Voice of America - 1951 - A Year of Progress". This brochure, which in four pages praises highly the work of the Voice of America, is to be mailed by the Crusade to its chief contributors.
+
+Mr. Barrett then made the following points:
+
+1. The National Committee for a Free Europe grew out of the idea of helping refugees and of giving them a voice. It has changed over the years to a huge operation with many new ideas, and the Crusade for Freedom came along as a cover necessity.
+
+2. He asked whether the demands of fund-raising had not begun to make less effective the primary job of helping refugees, whether

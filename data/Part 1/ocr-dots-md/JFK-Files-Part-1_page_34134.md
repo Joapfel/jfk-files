@@ -1,0 +1,91 @@
+# JFK-Files-Part-1_page_34134.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>INDEX ☐ YES ☐ NO</td>
+    <td></td>
+    <td colspan="2">CLASSIFIED MESSAGE C TOTAL COPIES</td>
+   </tr>
+   <tr>
+    <td colspan="3">REFERENCE TO FILE NO.</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>FILE ID ☐ REF. TO BRANCH ☐</td>
+    <td colspan="3"></td>
+   </tr>
+   <tr>
+    <td>DESTROY ☐ BY.</td>
+    <td colspan="3"></td>
+   </tr>
+   <tr>
+    <td colspan="4">
+     SECRET
+     <br/>
+     PERSON/UNIT NOTIFIED
+    </td>
+   </tr>
+   <tr>
+    <td colspan="4">
+     REPRODUCTION PROHIBITED
+    </td>
+   </tr>
+   <tr>
+    <td rowspan="5">ACTION<br/>UNITS 8</td>
+    <td rowspan="5">☑ RID COPY</td>
+    <td>ADVANCE COPY ☑</td>
+    <td>UNIT</td>
+    <td>TIME</td>
+    <td>BY:</td>
+   </tr>
+   <tr>
+    <td colspan="3"></td>
+   </tr>
+   <tr>
+    <td colspan="3"></td>
+   </tr>
+   <tr>
+    <td>☐</td>
+    <td>☑</td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>☑</td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>INFO<br/>FILE DR EUR &amp; ADDP CAZ CALPROP DOY DDMS</td>
+    <td colspan="4"></td>
+   </tr>
+  </table>
+
+SECRET 302025C CITE OTTAWA 3739
+
+IMMEDIATE WAVE INFO DIRECTOR 3739
+
+TYPE MHV IPER AM SCROLL
+
+REF JMWAVE 3320 (INO7093)*
+
+CHECK OF CANADIAN INDUSTRIAL REGISTERS, FRASERS TRADE DIRECTORY,
+DOMINION BUREAU OF STATISTICS COMPANY LISTINGS, FOOD PROCESSORS,
+SEAFOOD DISTRIBUTORS, PACKERS 1965-1966 AS WELL AS TELEPHONE
+DIRECTORIES INDICATE NO LISTING WORLD SEAFOOD DISTRIBUTORS. CHECK
+INCLUDED ALL ONTARIO AND QUEBEC.
+
+SECRET *REQUEST ADDRESS WORLD SEAFOOD DIST.
+
+BT
+
+30 SEP 66 HH:07286
+
+SECRET
+
+SECRET
+
+
+
+5901F0D005A80A8D0D6E97E5A00000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_33648.png
+
+Convert to MarkdownSECURITY INFORMATION
+
+Hungarian Exile Activities - 3-
+
+8. We shall follow up on this and shall keep you advised.
+If you have particular points which you would like us to discuss
+with Mr. Wies, please let us know.
+
+E. M. ASBRAFT
+
+cc: AD/O (1)
+Chief, Psychological Warfare Division, OFC (1) ✓
+Chief, Cover Division/PLANS/DSDO (2)
+
+SECRET!

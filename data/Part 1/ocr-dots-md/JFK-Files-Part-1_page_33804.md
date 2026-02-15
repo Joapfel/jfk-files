@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_33804.png
+
+Convert to Markdownprice. To questions as to whether either type was in existence, Mr.
+Scripps replied that he was bound by confidence. In general, however,
+he did not foresee any technical barriers.
+
+When asked how he would finance his proposal, Mr. Scripps said
+that he would begin with private contributions, with the thought that
+eventually the program would be taken over by the government. He laid
+stress on the need for early organization (e.g., fund raising, balloon
+stockpiling, crew training, selection of launching sites) in order that
+operations could be started immediately following a decision as to their
+desirability. He stated that 90 days would be sufficient to prepare
+for operations, once he got the "green light".
+
+Dr. Allen expressed his personal interest in the proposal, but
+reminded Mr. Scripps that PBS's field was strategic rather than opera-
+tional, and that in an operational proposal of such complexity, PBS
+could only give the matter a cursory review. Therefore, Dr. Allen stated
+his intention to forward the proposal to the Psychological Operations
+Coordinating Committee, which was the proper body to give the project
+the detailed screening to which it was entitled. Dr. Allen also sug-
+gested that Mr. Scripps see C. D. Jackson.
+
+Mr. Norberg then suggested that as an additional aid Mr. Scripps
+prepare a brief but fairly specific description of what he personally
+was prepared to do, along with an outline of the organization which would
+be needed to carry out the project. Mr. Scripps said that he would do
+so within the next week.
+
+COMMENT
+
+Joe Frank, when asked about Mr. Scripps, said he had met him several times between December 1950 and February, 1951. During this period of early planning for balloon operations, Frank said that Scripps proved quite helpful by quieting certain private enthusiasts, in addition to maintaining a discreet silence himself. Frank did not know for a fact that Mr. Scripps participated in the August operation, but judged that it was likely. In Frank's opinion, Scripps is a capable person with valuable connections in the business world and sufficient financial independence to be able to devote most of his time to good works. Frank thinks it would be a good idea to have him cleared as a consultant.
+
+The Psychological Equipment Development Office mentioned by Mr.
+Scripps is believed to be the Physical Security Equipment Agency, a
+military development agency operated by the Air Force under an USD
+charter. Its director is Col. H. M. McCoy. This agency is prepared to
+talk with anyone who has been cleared for security; otherwise individuals
+are asked to approach the services first.
+
+Distributions
+
+Dr. Allen
+Mr. Sherman
+Mr. Norberg
+Mr. Gates Lloyd ✓
+C.W. Alcorns ms

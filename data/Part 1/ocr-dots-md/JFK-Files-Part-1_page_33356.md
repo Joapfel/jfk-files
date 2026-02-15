@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_33356.png
+
+Convert to Markdown14-0000
+
+<table><tr><td colspan="2">CABLE SEC DISSEM BY 84 PER TOTAL COPIES 32' RUE B. REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED</td></tr><tr><td>PERSON/UNIT NOTIFIED</td><td style="text-align: center;">SECRET</td></tr><tr><td colspan="2">ADVANCE COPY ISSUED SLOTTED AT 2</td></tr><thead><tr><th rowspan="2">ACTION UNIT<br/>555<br/>ACTION #</th><th rowspan="2">INFORMATION</th><th rowspan="2">RF FILE VR<br/>[Plan] EUK8 588 a/w</th><th colspan="2">STAFF</th></tr><tr><th>[ ]</th><th>[ ]</th></tr></thead><tbody><tr><td>T 375103</td><td>EIA916</td><td></td><td></td><td></td></tr></tbody></table>
+
+T 375103 EIA916
+
+PAGE 31-31
+
+IN 345816
+
+TOR 12616282 AUG 74
+
+HAMB 1025462
+
+SECRET 281612 AUG 74 STAFF
+CITE HAMBURG 25462
+TO: DIRECTOR INFO BONN, BONN BASE.
+MHCRUNCH FUOMEN REDLEG
+REF: EGGA-6103, 12 AUG 74
+
+1. O ARTICLE BY PROF. JAMES THEBERGE, PUBLISHED IN SOVIET ANALYST, VOL. 3, NO. 17, 15 AUG. ENTITLED: "KREMLIN'S HAND IN ALLENDE'S CHILE" IS IDEAL FOR PURPOSES OUTLINED IN REF. WE ATTEMPTING TO PLACE, WILL ADVISE. SUGGEST NO INCLUDE ARTICLE IN PRESS COMMENTS.
+
+2. FILE DEFER, E2 IMPDET,
+
+<table><tr><td>SECRET</td></tr><tr><td>RECD..COPY</td></tr></table>

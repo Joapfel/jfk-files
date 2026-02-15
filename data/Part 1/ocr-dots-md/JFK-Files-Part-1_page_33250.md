@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_33250.png
+
+Convert to MarkdownSECRET
+(Not Fitted In)
+
+<table><thead><tr><th colspan="5">DOCUMENT TRANSFER AND CROSS REFERENCE</th></tr><tr><th>SUBJECT OF DOCUMENT</th><th>DOCUMENT IDENTIFICATION</th><th rowspan="4"></th><th rowspan="3"></th><th rowspan="2"></th></tr><tr><td>REDTOP/Viktor Nikolayevich SHPILEV (201-805106)</td><td>F. DISPATCH OR SOURCE DOC. SYMBOL NO.</td></tr><tr><td></td><td>NABA-19426</td><td>6. DATE 6 May 68</td></tr><tr><td></td><td>P. SOURCE CRYPTOLOGY B. DATE OF INFO. D. EVALUATION</td><td></td><td></td><td></td></tr><tr><td>5. ANALYST</td><td>G. DATE PROCESSED</td><td>10. DISSEMINATED IN</td><td>H. DATE</td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><th colspan="3">DOCUMENT DISPOSITION</th><th rowspan="2"></th><th rowspan="2"></th></tr><tr><td>12. CROSS REFERRED TO THIS FILE</td><td></td><td>13. TRANSFERRED TO RE FILE NO.</td></tr><tr><th colspan="4">ERTINENT INFORMATION</th><th></th></tr><tr><td>14.</td><td colspan="4">2. Subsequent to the completion of the Attachment (SPR on Subject), we learned from AMSTALK that SHPILEV, in a recent transaction with a local service contract, was observed to add fifteen thousand pesos to the bill. The contact receipted for the total amount, and SHPILEV then returned five of the extra fifteen thousand pesos to him. This type of activity on SHPILEV's part appears to open up interesting operational possibilities. We plan to watch the situation carefully and will advise you.</td></tr><tr><td colspan="4">FILE THIS FORM IN FILE NO.</td><td>Aristark ... 201</td></tr></thead><tbody><tr><td>15.</td><td colspan="3"></td><td></td></tr></tbody></table>
+
+SECRET
+
+[7-46]

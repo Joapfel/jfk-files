@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_34247.png
+
+Convert to Markdown"**HABLA... UNIDAD REVOLUCIONARIA** (W.R.U.L.)
+
+October 19: "The Indonesian People Against the Communists".- This article breaks Cuban deadly silence concerning Indonesian events, and summarizes and comments such events, emphasizing that the people and the armed forces have performed the miracle of recovering democracy for Indonesia. HISTORIC DETERMINISM turns against Communism, first in the Dominican Republic, next in Algeria, now in Indonesia, and tomorrow in Cuba.
+
+"Why Doesn't Fidel Talk of the Party's Reorganization?".- Right after the news on the reorganization of the Party were confirmed, Castro offered to let all dissatisfied Cubans out of the country. Among other things, this offer served as a smoke screen to cover the purge which he had carried out. Then, complete silence on the subject, so that no one would realize that the Party has been placed under his absolute personal control. He fears the reaction of the purged old Commies.
+
+October 20: "Latin America Against Communism".- The Venezuelan Dockworkers' Convention in Caracas, which had an international character, put out Resolutions in which the workers of the Americas confirm their determination to fight communism.
+
+"The Arrival of the Pro-Consul".- Gromyko's trip to Cuba is more than just a visit by the Soviet Foreign Minister: it is an unannounced inspection tour by the Pro-Consul to his Caribbean colony. Of course, this trip can bring nothing good for Fidel.
+
+October 21: "Why is Gromyko in Havana?".- Gromyko, breaking all rules of democracy, showed up in Havana. What for? Among the other problems faced by Cuba, he showed up to solve the crisis undergone by the Cuban Communist "Old Guard", who have been politically executed by Castro.

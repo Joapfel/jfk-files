@@ -1,0 +1,55 @@
+# JFK-Files-Part-1_page_33344.png
+
+Convert to Markdownleft two trade unionists seriously injured, ply with his doctrine, no matter who falls and no master following before her death in a major public rally to what the cost," said Mrs Perón. 1952.
+
+The rally was ostensibly called to publicize the Government's decision last week to nationalize the distribution and sale of petroleum products, until now, Shell and Euskal Herriaeries had shared the local sale of oil products with the State Petroleum Company.
+
+### Assertion of Leadership
+
+But Mrs. Perón devoted most of her speech to defending her claim to leadership of the Peronist movement, which has groups.
+
+She has held well-publicized posts at times her voice cracked a walk through the plaza confirmed that only the street in front of the morning Government house was filled. The cameras of the television stations— these rumors in which have recently been "Do not doubt for a moment made and slogans used by Gen. Isabel Perón, his student General Perón and his second wife, the last three weeks that con- and discipled, will faithfully serve Lva Duarte de Perón, who conservative Peronist leaders
+
+gathered an enormous personal were urging Mrs. Perón to hold her funeral and no master following before her death in a major public rally to strengthen her image in the face of rising terrorist activity, has been in power, she has said because I am a woman, I labor untiring and economic problems. Despite the poor turnout, at
+
+strongly agreed that it was successful considering that only two unions—the light and power union and the state petroleum workers—were supposed to attend. But he acknowledged that "Perón would never have addressed so small a crowd."
+
+perilous position. The Famine's declaration repudiated immediately by another member, party of the Front, a smaller group named after the late president, Rene Barrientos.
+
+The chief focus of political interest in the country has been Cordoba, the second largest city. Last February, a right-wing police coup, apparently backed by General Perón, removed the elected left-wing Peronist governor from power. During the upheaval, right-wing trade unionists also wrested control of the local labor federation from leftists.
+
+Even as the civilian elections that have supported President Banzer's generally rightwing and intensely anti-Communist regime were failing out, there were reports of dissension within the military.
+
+A pamphlet was circulated recently to all military units in La Paz, allegedly produced by a group of young officers who have taken inspiration from their counterparts in Portugal who last April led a successful coup against the authoritarian regime there.
+
+Last week, General Banzer celebrated the beginning of his fourth year in the presidency by dancing in the streets during a massive celebration of the coup d'etat that dperson Gen. Juan Jose Torres August 21, 1971.
+
+Thedocument read. In part, "Banzer's repression against his own institution (the Army) has persuaded those democratic officers to fight beside Argentine miners, workers and students...."
+
+Although President Banzer received the compulsory support of the commanders of the armed services during last week's vote, it is evident to sources here, and from reports from Bolivia, that the military is divided over the president, and his policies.
+
+After the attempted coup of June 3, many of the officers involved were either jaded or senile into exile to Paraguay and Argentina. According to reports from Argentina, many of these officers have been returning to Bolivia clandestine meetings" hang from the high ceilings to the floors. Corners and columns are clustered with posters that urge the defense of the revolution or quote Gen. Juan D. Perón, the Argentine populist leader who died in office as president on July 1.
+
+Since then, Cordoba has been the scene of repeated incidents of political violence. A few days ago, the Labor Ministry decided to remove legal recognition from the left-controlled union at Ira-Renato—a concern with mixed Argentine and French capital — after labor leaders called a strike in support of higher wages.
+
+Even as he was celebrating making speeches about the durability of the Nationalist Popular Front—the civilian-military coalition through which he has governed—the powerful Bolivian Minerals Union declared itself virtually at war with the regime. And the Front apparently was disintegrating.
+
+The clashes with the police last night resulted when officers moved to dislodge labor leaders from the union headquarters.
+
+It is believed that the younger officers are being alienated increasingly by the president. Specifically, they oppose his refusal to grant amnesty to
+
+This week one party in the coalition, the Nationalist Bolivi-
+
+unions and avoided photographing the empty stretches.
+
+Baltimore Sun
+28 August 1974
+
+Forecast is cloudy for
+Bolivia's Banzer
+
+By HUGH M. O'BRIEN
+
+Rio de Janeiro Bureau of The Sun
+
+Bonanza demanded immediate elections. The Famine's declaration repudiated immediately by another member, party of the Front, a smaller group named after the late president, Rene

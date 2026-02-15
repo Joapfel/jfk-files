@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_33910.png
+
+Convert to MarkdownCOPY
+
+OFFICE OF 7 DEPUTY UNITED STATES REPRESENTATIVE
+NORTH ATLANTIC COUNCIL
+
+AMERICAN EMBASSY,
+LONDON, W.1.
+
+29 March 1952
+
+Dear Allen:
+
+This is a somewhat belated acknowledgment to your note of 7 March. I expect to be back at 15 Broad around the middle of May.
+
+C. D. wrote me about going back on the Board of the National Committee several weeks ago, and I have told him that I am favorably disposed, but would like to defer decision until I get back and have a chance to talk with him and see what my general commitments promise to be. This is one which I should like to stay with because of my early association with you and the others in setting it up. I also was very much impressed by the layout in Portugal, which I went out to see after the Lisbon meeting.
+
+I hope all goes well with you.
+
+/s/ Chuck
+
+Allen W. Dulles, Esq.
+1308 29th Street, N. W.
+Washington 7, D. C.
+C. S. A.

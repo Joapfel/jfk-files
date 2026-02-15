@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_33829.png
+
+Convert to Markdown24 April 1952
+
+MEMORANDUM FOR: CHIEF LATIN EUROPE
+ATTENTION: Mr. O'Meara
+SUBJECT: Future of Strasbourg Free Europe University Students
+PUBLICATION: C/IO Memorandum to C/AS of 20 March 1952, Same Subject as Above.
+
+1. There are attached hereto lists of students, together with biographical data, of the Free Europe University, according to the national groups of your interest (Czechoslovakia, Estonia, Latvia, Lithuania, Poland and Hungary), as submitted to us on 14 April 1952.
+
+2. When this information was given to us the following request accompanied it:
+
+"You realize that the families of most of these students are in most vulnerable positions behind the Iron Curtain and the information we secured from them we promised to keep strictly confidential. Of course, some of the cases can be camouflaged for public consumption but we have to keep faith with these youngsters and for that reason names can not be identified with even skeleton outlines of their careers."
+
+3. The individual responsible for the administration of the Free Europe University has explained to us that:
+
+"The date of the completion of their studies in each case is impossible to furnish with any accuracy for the simple reason that French university courses are not arranged with the same exactness that characterizes the custom of American colleges and universities. On this point I can give you two bits of information. First, that in so case it is expected that any student would continue as a member of the College de l'Europe Libre for more than a maximum of three years. Also, of the present student body it is expected that 25-40 will finish their academic work at the University of Strasbourg at the end of the current university year."
+
+SECRET
+
+SECRET

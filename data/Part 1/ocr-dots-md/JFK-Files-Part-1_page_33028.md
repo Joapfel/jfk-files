@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_33028.png
+
+Convert to Markdownthe following information:
+
+If, in the opinion of any officer or agent of this Division, it is deemed necessary by reason of public necessity that any report or information which may come into his possession relating to any enemy should be transmitted to him under any circumstances, he will take all reasonable care and attention in doing so.
+
+This information shall be treated with the greatest care and Privacy. No one shall have the right to use or publish it without the written consent of the person from whom it was received. The receipt and retention of this information shall not prejudice the rights of any individual or class of individuals, nor shall it be used for any purpose other than the one for which it has been given, unless the information is shown to be necessary to carry out the operation or to prevent a危急情况。
+
+The writer, on the basis of the information available, will inform the operations officer as to the的目的and purposes of the division. Furthermore, he will take all切实 steps to be immediately compensated should any loss of life occur in connection with the execution of his orders, because they were made with the intention of going to do battle in full〇f the order of the Division.
+
+RICHARD S. ZUMWALT
+CT/OPS/M

@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_33108.png
+
+Convert to Markdown13 November 1969
+
+**MEMORANDUM NO.:** Chief, CIO/C25/MH
+
+**SUBJECT:** ANGalk/5 - Use Against the DGI in a Counter-Intelligence Operation
+
+1. The attached cable contains background information on a count rietelligence operation to be initiated in Montevideo, Cuba. Let further below are several significant points, which have not been mentioned in the cable traffic. If there points have not been considered in the operation consideration, then, it is necessary that all risks are going to be far higher than planned.
+
+## Physical Basis to ANGalk/5 and Its Relatives in Cuba
+
+2. It is believed ANGALK/5 still has close relatives in Cuba. The DGI's first letter to ACHALK/5 in 1967 carried an implied threat to these relatives. The writer does not know what happened to the relatives after ANGALK/5 double crossed the DGI in the 1967 meeting. But they are surely going to be in jeopardy again if they are there, because the DGI, in the writer's opinion, will eventually discover this second double cross.
+
+3. Furthermore, the DGI initiated an operation to assassinate ACHALK/1 who participated in Bolivia in the GUFVARA roll-up. The DGI just might consider ACHALK/5 as great an enemy as ACHALK/1.
+
+4. It is my recollection then when AChalk and PMO, the two DGI officers, met ACHALK/5 in Madrid, they were armed; moreover they clearly displayed their hoisters to ACHALK/5.
+
+## AICHALK/5's Participation in Sensitive Operations
+
+5. AICHALK/5 has been involved in Miami-based CIA Cuban operations since 1961. The AICHALK Project Outline

@@ -1,0 +1,76 @@
+# JFK-Files-Part-1_page_32841.png
+
+Convert to MarkdownAMSTALK-1
+
+SECRET
+
+-2-
+
+WOFIRM Personnel Exposed
+
+Reuben A. HANNULA as Fred Folsom
+Irving N. PEGGINS as Joe Webster
+Aubrey K. PAUKERTAS Jerry
+Andrew F. QUAAL as Bill
+Hugh R. DENDY as George
+Kurt G. MAKRICKAS as Jack
+Rudolph W. SOSPINE as Jack
+Ewan K. SCHWAMBROX as Bob
+Stuart V. KAPRIDNO as Dewey
+Alton T. PIENACK as Larry
+Thomas K. ADARKAR as Ed
+John K. TARTARILLO as John
+Marcus A. PREISSE as Jim
+Merritt R. TOOVEY as Warren
+Irving C. DEUONO as Lee
+Paul J. NAPOLILLI as Paul
+John K. GARZYNSKI as Roy
+William R. GOMERSALL as Doc
+Clayton B. FARSHTEY as Frank
+Willard R. NAUMAN as Rod
+Leland H. COBFIELD as Paul
+Paul H. KUBIAK as Rene
+Peter O. TRADERN as Larry
+
+Fletcher R. THENNE as Harry
+Daniel V. GUSSOW as Bill
+Humphrey O. EDDERK as ski
+Wilfred B. KNEAFSY as Pete
+Charles F. MASENGILL as Frank
+Lloyd V. MEADERDS as Bob
+Clayton D. HEIPPERT as Don
+Austin G. DETLOFF as Bill
+John H. HEMMING as George
+Carl M. BERSCHIUSKI as Gene
+Gary T. BERNARD as Bob
+Keith D. WINETT as Bob
+Daniel R. HOSKIER as Fred
+Lyman C. MARTEWICZ as Bill
+Aubrey R. PARANT as Randy.
+Kenneth T. STARKROOD as Ray
+Andrew S. PARMERS as Angel
+Lester S. KLINETOP as Bob
+Harold R. NOEMAYR as Roger
+Stanley R. ZAMKA as Dr. Mendez
+George H. RAMSKILL as Harold
+Mark H. ANGERHOFER as John
+
+Instructors at ISOLATION by first name or nick names
+Stanley B. JESSAWIT - True - CI trip to Spain, June 1967
+
+Indigenous Instructors Exposed
+
+AMPAL-1       AMYELL-3
+AMSKILL-1     AMPHODARCH-11
+AMSWING-2     AMWIND-1
+ANCLEVE-6     AMPULP-2
+ANCLEVE-8
+AMTERRY-1
+AMSWING-1
+AMHINT-18
+AMHINT-19
+AMPULP-2
+AMTABBY-56
+AMJILT-1
+
+SECRET

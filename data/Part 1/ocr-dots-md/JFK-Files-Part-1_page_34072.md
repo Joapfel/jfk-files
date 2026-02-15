@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_34072.png
+
+Convert to Markdown2
+
+is Frangistas, of Lisbon and Athens, represented by Purvis, London, having at his disposal some 35 Greek and Lebanon flag ships, trading mostly in Cuba. Frangistas is also the sole importer of Russian timber into Greece, a huge trade. Also this same firm made an agreement with the Soviet Union few months ago and by virtue of this Agreement, the Soviet Union has commenced building for his fleet cargo ships, bulk carriers, tankers, and deepsea fishing Trawlers, at present worth $150,000,000, against Greek products, and some of these ships (Greek flag) will find their way to Cuba, we are almost sure.
+
+E. Meantime some of the existing Greek and Lebanon flag Cuban traders were purchased with loans, through their Governments, and these Governments in turn received and receive help from the U.S.A., so in a vicious circle, some of the American money has gone for the purchase of ships to help trade with Castro's Cuba, whilst millions of American money is spent to stop this trade. What a world we live in.
+
+It must be very obvious to you that many people, watchful people, intelligent and influential, know what goes on, and will continue to watch things until, it is hoped, this mockery is stopped. It is also obvious that somewhere in one or more places, bribery and corruption are taking place, otherwise this state of affairs could not have started and cannot continue. We do not wish to believe that the American Authorities do not know what goes. If Greek and Lebanon officials are bribed to close their eyes, O.K. but who stops the American Authorities to box the ears" of the Greek and Lebanon Authorities for allowing this situation to continue, and in so doing, they breaking firstly the laws of their respective Countries, and breaking whatever agreement they have with the U.S.A. Government, and, what is more, with the American Taxpayers money.
+
+We do not intend continuing these letters, we think we have said enough and that we have given you and American Authorities sufficient information which can be checked and verified. What we now want is results, namely, complete and instant stoppage of all Greek and Lebanon flag ships trading with Cuba, otherwise you will find that one after another many other Owners, small and large companies will re-enter, or enter Cuban trading with Greek and Lebanon flag ships, and no one should dare to condemn them. Also, do not forget that there are plenty of Companies which do not trade with U.S.A. anyway, therefore blacklisting is not of any importance.
+
+Apologies again for the anonymity of this letter, and trust our reasons for it will be appreciated, especially when our facts are checked and found correct.
+
+O.O
+
+Ministry Foreign Affairs, Washington.
+U.S.A. Embassy, London.

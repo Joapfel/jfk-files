@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_33783.png
+
+Convert to Markdownpresent the
+
+French Government is engineering a special office within the Ministry of Foreign Affairs to act as a sort of General Counselor for Refugees. Both the full report and a summary of Mr. Umky's (Nadieuhronian h2s, dated April 27, 1938), indicate that this office will remain all, and the actual rehabilitation and regular work to be done will turn over to a non-governmental agency. H-III's contact with the French Committee and Dr. Osukey's report both indicate that the French Committee is to be chosen to handle this problem. Obviously, in the face of developing French policy, and the particular situation existing in France, it would be unwise for UNG to encourage MLLT to compete an duplicate a function which the French Government has already carried for an indigenous organization. However, in view of the present position of NLC in France, and its far-reaching influence through the entire field, it is believed that NLC should continue its activities in concrete affairs in France through its recent Paris office, and should extend itself to include some limited overt financial support to the French Committee to be used along the lines suggested in the Bull Report.
+
+3. H-III believes that FR interests can best be served through CPC cover support of the French Committee. By properly developing the present initial cover contacts with the French Committee, it is believed that (IFC can maintain effective operational relationships with the Committee, and insure that its actions and policies fill concern to our objectives and be properly co-ordinated with those of MLC. Thus IFC would seek to control over all Europe and activities in France, without clearly inter-fuding in French domestic affairs.
+
+4. For the reasons stated above, H-III reiterates its position as outlined in a letter dated May 19th, 1959 via whom was seen by the BCC, and in which it was deemed that H-III be responsible for correctly directing an appropriate crime activity in France, tentatively using at present the French Committee for the time being.
+
+IFC - C. CH. V.
+H-III
+
+WE-III/FC/G 3/pl
+
+Distribution:
+
+Crit. - Addressee
+
+2 - H-III
+1 - AIPC
+1 - WE-Chrono
+2 - FI Analysis
+2 - G.

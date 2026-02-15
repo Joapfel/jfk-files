@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_33084.png
+
+Convert to MarkdownSECRET RYBAT TELEPOUCH
+
+ORIGINATOR:
+
+DCOS, WH/MIAMI Lawrence Sternfield
+
+RELEASING:
+
+C/WH/COG James E. Flannery
+
+DISTRIBUTION:
+
+1 - RID
+1 - WH/COG Chrono
+1 - O-C/WH/COG Chrono
+1 - WH/COG/OPS
+1 - Signal Center
+1 - COS, Ottawa (pouched)
+1 - EUR/BC
+1 - WH/COG/OPS
+
+SECRET RYBAT TELEPOUCH UFAW-671 PAGE EIGHT

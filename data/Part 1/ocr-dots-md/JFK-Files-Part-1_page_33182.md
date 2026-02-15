@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_33182.png
+
+Convert to Markdown17 March 1969
+
+MEMORANDUM TO: DC/WH/1
+
+FROM : C. Schaefer
+
+SUBJECT : Conversation with Mr. Scott
+
+1. The concept and feasibility of the False Flag Approach targeted against both the PCM and the Cubans.
+
+2. The possibility of using either AMCHALK/3 or AMCHALK/2 to inspect Guatemalan-Mexican border for indications of arms smuggling.
+
+3. The possibility of using AMCHALK/5 as replacement for ROWTON.

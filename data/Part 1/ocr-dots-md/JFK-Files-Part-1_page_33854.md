@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_33854.png
+
+Convert to MarkdownIn reply refer to:
+15 April 1982
+
+Dear Min:
+
+One of your employees, Miron Eubaris, prior to accepting employment with your firm, was interviewed by us. With your permission we should like to continue processing papers for his employment. If you wish to keep him, we should like to know that so that we can close out the case.
+
+CIO:NBV/eh
+Orig - Addressee
+2 cc - CIO
+1 cc - IO/Ex.Off.
+2 cc - HI
+
+SECRET

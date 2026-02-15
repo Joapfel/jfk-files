@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_33841.png
+
+Convert to MarkdownApril 15, 1952
+
+Dear Oliver:
+
+When I last saw you, I spoke of the General Hennyey matter explaining the great importance that the Fund places on expediting the arrival of General Hennyey in this country for Fund purposes. I later mentioned this matter in detail to one of your liaison associates who has these matters in hand. I explained that it is considered imperative that all possible as- sistance be developed looking toward the sponsored ar- rival of General Hennyey in the shortest possible time. I now refer you to our letter of March 2, 1952, which I delivered in person to Mr. Abramson. That letter con- tains all of the necessary data for action in the case.
+
+We have just been informed that the unconscionable delay in the processing and approval of General Hennyey's entry presently will be made the subject of public pro- test by elements of the Hungarian National Council. The details of this situation will be more fully explain- ed by Leonard L. Stamm who will hand you this letter. For your convenience, I am attaching a copy of our letter of March 2 above cited, and I would further state that we believe that extraordinary action should be taken to affect the immediate processing of General Hennyey by entry permit or otherwise. Our representa- tives in Munich are in daily contact with General Hennyey and can be of particular assistance in the event you desire to use extraordinary means to expedite his departure for the United States.

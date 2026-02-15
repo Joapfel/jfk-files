@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_33983.png
+
+Convert to Markdown2) CARTOON: Headline: RYSCOTT OF CUBA-TRADING SHIPS TO BE STRIPPED UP: Castro faces a sinking vessel named "Maritime Trade With Cuba" and says: "It seems we have sprung a leak!"
+
+PAGE THREE:
+
+1) MOROCCO SEEN DRIFTING AWAY FROM CUBA: A brief story on the sale to Morocco of 160,000 tons of Brazilian sugar. It seems, we point out, that Morocco is determined to quit Cuba as a sugar supplier. First she develops her own sugar industry, then buys from Cuba's competitors. (Based on a report carried by the E.I.R.).
+
+2) CARTOON: Castro was carrying a bag (*The Moroccan sugar market*), but stumbled on his own "*Ineptitude*" and the bag "*fell from his hands*".

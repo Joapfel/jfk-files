@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_33610.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th>1945</th><th></th><th></th><th></th><th></th><th></th></tr></thead><tbody><tr><td>Mar. 24, 1945</td><td>63,700</td><td>8,500</td><td>1,200</td><td>10,000</td><td>5,500</td></tr><tr><td>Apr. 3, 1945</td><td>4,000</td><td>7,000</td><td>2,000</td><td>14,000</td><td>5,500</td></tr><tr><td>May 4, 1945</td><td>10,000</td><td>11,500</td><td>7,000</td><td>21,500</td><td>6,500</td></tr><tr><td>Jun. 23, 1945</td><td>5,700</td><td>7,500</td><td>8,000</td><td>19,000</td><td>7,500</td></tr><tr><td>Jul. 23, 1945</td><td>2,300</td><td>2,000</td><td>1,200</td><td>3,400</td><td>2,000</td></tr><tr><td>Aug. 25, 1945</td><td>2,800</td><td>2,000</td><td>2,000</td><td>4,000</td><td>2,000</td></tr></tbody></table>

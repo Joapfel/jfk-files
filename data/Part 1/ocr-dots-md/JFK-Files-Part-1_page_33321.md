@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_33321.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Ercilla
+
+October 5, 1972
+
+Demonstrators Protest President Allende's Veto of Bill Permitting University (Santiago) to Extend Its Television (Channel 13) Throughout Chile.
+
+In subsequent developments the Catholic University at Santiago as nevertheless extended its television service to the Concepcion metropolitan area, third most important in Chile, via a television repeater in Talcahuano. The Government has ordered that the repeater cease operation as the University lacks a concession under 1958 law to function in that area. The University has refused to comply, claiming that the 1970 National Television Act, which authorizes the universities to operate television channels, is the overriding statute and that it needs no additional concession to operate in any part of Chile. Meanwhile the repeater is still functioning (as of February 15, 1973) while the legal (and political) debate continues.
+
+CONFIDENTIAL
+
+-4-73 February 27, 1973 29

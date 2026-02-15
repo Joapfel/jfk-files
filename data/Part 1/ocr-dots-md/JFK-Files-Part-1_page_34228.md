@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_34228.png
+
+Convert to Markdown# EDITORIALS:
+
+**"Communist Must Fall In Cuba".-** We echo reports by recent refugee arriving concerning Castro's purchase of defective farming equipment. There purchases indicate why Castro- Communism is failing in Cuba thanks to the attitude of crooked merchants that still trade with Fidel, to the regime's own stupidity and to the resistance of the Cuban people.
+
+**"The Red Want No Peace".-** North Viet Nam has rejected all peace offers and made peckery of every approach attempted to put an end to the war. Moscow as well as Beijing keep their puppet from signing any trace and force him to maintain a war for which they give him no aid. Communism would have several more Viet Nam in other continents, in order to extend the conflict at the expense of the peoples.
+
+December 21, 1965:
+
+NEWS.-
+
+1) Four More Cubans Slip Away To Freedom: Three Draft-Aged Youths And The Father Of One.
+
+2) Juanita Castro And Dr. Carlos Corticos, Relative of Cuban President, Talk About Cuban Situation In Miami.
+
+# EDITORIALS:
+
+**"Not Even Castro's And Corticos' Relatives Want To Stay In Cuba".-** Castro's efforts to prevent the Cuban exodus are in vain. Not even the close relatives of the Cuban President and Premier want to stay on the Red Island. Carlos Corticos, an uncle to Pres. Osvaldo, has echoed the failure of the regime's backbone: economic planning. He stress his words that Cuban foreign-exchange reserves are low because current production uses more dollars than it will yield.
+
+**"The Unsolved Conflict And The Tri-Continental Parley".-** The still unsolved crisis of the Dominican Republic has bounced back in so grave a manner as to have caused 40 dead in Santiago, and Castroite violence continues because the forces of subversion want to have a banner for agitation in the Tri-Continental Conference. The masterminds of subversion in Cuba provoke these acts of violence in the Dominican for this purpose.

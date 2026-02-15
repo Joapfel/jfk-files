@@ -1,0 +1,32 @@
+# JFK-Files-Part-1_page_33825.png
+
+Convert to MarkdownSECRET
+SECURITY INFORMATION
+
+14 April 1952
+
+MEMORANDUM
+
+SUBJECT: Gathering Evidence on Slave Labor Issue - to be presented to Ecosoc Hearings
+
+A. Type of evidence that is desired:
+
+1. **Scholarly studies** - Laws, administrative regulations showing the do jure and de facto application of laws pertaining to labor.
+
+2. **Documentary evidence** - Passos, identity cards, ration cards, release papers, etc. Anything indicating the place, name of camp, administrative documents, etc. Photostatic copies accepted if the original is unavailable for retention. Seals, stamps, and signatures desirable.
+
+3. **Testimonial**
+
+a. Written testimony - probably in the form of answers to a questionnaire. These testimonials may be either:
+
+(1) Anonymous. (As few as possible)
+
+(2) Authorized use of the name, either confidentially, for release only before the court, where many sessions will be closed to the public, or the name may be released to the public.
+
+b. Tape recordings - Some excellent testimonials could perhaps be tape recorded.
+
+c. Statistical form - The bulk of this testimonial can also be reduced to a statistical form.
+
+d. No hoarsey testimony is wanted.
+
+4. **Witnesses** - A few of these should be presented by each group. However, the witnesses should be most carefully chosen to ensure that they are really genuine, really were in a concentration camp, and not in some internment or intermediate camp, and that they spent a considerable amount of time there, without having been convicted by due process of law. Furthermore, these witnesses should be men of high caliber, highly literate, capable of presenting their story clearly, and standing up to close cross-examination, without having to alter their story.

@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_33960.png
+
+Convert to Markdown4.
+
+(a) that property of NCFE brought into Germany prior
+to the termination of the Occupation statute be recognized as
+legally within Germany and subject to the free disposition of
+NCFE,
+
+(b) that NCFE be recognized as a non-profit organization
+of public interest and that in respect of its operations in
+Germany it and its employees are entitled to no less favorable
+treatment than any comparable German non-profit corporation or
+entity.
+
+(c) that the non-German personnel now employed by NCFE
+in Germany be permitted to remain in Germany while so employed
+and that additional non-German employees be permitted to enter
+Germany for such employment subject only to the right of the
+competent Germany authorities to deny entry to any individual
+whose presence in Germany would in their opinion prejudice
+German internal security.
+
+Dr. ______ stated that he recognized the importance of
+these elements in the operation of NFE in Germany and that the
+Federal German Republic would cooperate with NCFE to the
+fullest possible extent in meeting its requirements with
+respect thereto.

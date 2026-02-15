@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_33856.png
+
+Convert to Markdown14-00000
+
+Jom : 10 April
+I think if I were you I would forward this to DDP with a note on cover sheet:
+
+Forwarded per
+your request of
+April 19528
+J W B done 12 ago
+Note para 10.6 GW will be worked out the main trouble is.
+
+n.

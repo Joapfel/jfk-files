@@ -1,0 +1,61 @@
+# JFK-Files-Part-1_page_33330.png
+
+Convert to Markdown<table>
+   <caption>
+    Table 2: Some Indices of the Chilean Economy, 1970-72
+   </caption>
+   <thead>
+    <tr>
+     <th></th>
+     <th>1970</th>
+     <th>1971</th>
+     <th>1972</th>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td>Gross domestic product (% change)</td>
+     <td>3.7</td>
+     <td>8.3</td>
+     <td>1.4</td>
+    </tr>
+    <tr>
+     <td>Investment (% change)</td>
+     <td>8.6</td>
+     <td>-24.2</td>
+     <td>-8.5</td>
+    </tr>
+    <tr>
+     <td>Real wages and salaries (% change)</td>
+     <td>13.0</td>
+     <td>30.0</td>
+     <td>-9.0</td>
+    </tr>
+    <tr>
+     <td>Exports ($ million)</td>
+     <td>1129</td>
+     <td>1045</td>
+     <td>853</td>
+    </tr>
+    <tr>
+     <td>Imports ($ million)</td>
+     <td>1020</td>
+     <td>1124</td>
+     <td>1287</td>
+    </tr>
+   </tbody>
+  </table>
+
+SOURCE: Department of Economics, University of Chile.
+
+had been forbidden to inspect.") The judiciary joined in the conflict, protesting the failure of the Ministry of Justice to carry out court orders, while progovernment demonstrators denounced the viejos de mierda—"filthy old men"—in the Supreme Court. As it became apparent that there was no real possibility of resolving their differences, the two sides turned to the armed forces as impartial arbiters, and the national holidays in mid-September 1972 were marked by rival efforts of the Congress and the President to ingratiate themselves with the military.
+
+The political involvement of the military was accelerated by the next step in the Chilean tragedy—the October 1972 strike. Respectively termed the "employers' lockout" and "the national strike" by pro- and anti-Allende forces, it began far from Santiago, in the remote southern province of Aysen, with a strike by small truckers. (Referred to by the government press as the "truck-owners," the membership of the truckers' gremio—guild—was almost entirely composed of owners of one or two trucks who feared an announced plan to establish a state trucking agency which would have had priority access to new trucks and spare parts). The strike quickly spread across the nation, as the truckers were joined by bus and taxi drivers, shopkeepers, doctors, nurses, dentists, airline pilots, engineers and part of the peasantry. The Christian Democrats and the rightist parties supported the strikers, and the work stoppage dragged on for over a month resulting in an estimated loss of $150-200 million In production. Agriculture was particularly hard hit because the strike took place in the midst of the planting season; indeed, there is no doubt that part, though not all, of the 25-percent drop in the 1973 harvest was the consequence of the strike. Industry
+
+was not as adversely affected, since workers attempted to keep factories going despite management's efforts to cease production—and the October strike saw the emergency of "Industrial Belts" (Cordones) and "Communal Commands," which seemed to embody the type of spontaneous "popular power" that leftist theorists had spoken of as the basis of a genuine revolutionary class consciousness to replace the materialistic "economism" that had characterized Chilean workers until this time." When the workers seized closed factories, the plants were usually "intervened" by the government, so that an important result of the October strike was a considerable expansion of the government-controlled sector of industry and trade.
+
+The most important outcome of the strike, however, was the direct involvement of the military in the Allende cabinet. A condition of the settlement of the strike was that the military take over key cabinet posts. This resulted most notably in the assignment of the Ministry of the Interior to the Commander-in-Chief of the Army, General Carlos Prats, so as to assure that the congressional elections scheduled for March 1973 would be carried on freely and impartially.
+
+The involvement of the military and the preparations for the March elections brought about a lull in the escalation of political conflict in Chile. Inevi-
+
+¹⁹ Secretaría General del Gobierno, Libro Blanco (

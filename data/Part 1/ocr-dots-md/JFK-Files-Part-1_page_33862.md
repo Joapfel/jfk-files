@@ -1,0 +1,5 @@
+# JFK-Files-Part-1_page_33862.png
+
+, Mr. Weld. Their meeting was most unsatisfactory, as Mr. Weld was not familiar with Landowski's background and standing with RFE, had arranged no training for him, knew of no contract, and was himself busy with preparations for a trip to Europe. Upon receiving this information in a phone call from Landowski, the division requested Mr. Lasarus of FT to phone RFE and inquire into the status of the contract, and to urge that a preliminary draft be submitted to us. After several days delay, during which one contract was drawn by RFE, submitted to Landowski who signed it, and then withdrawn and destroyed by RFE officials, a new contract was finally executed by both parties without this office knowing its terms. Landowski later stated that he had felt it imperative to sign what was given him in order to end his conspicuous position in RFE's offices, where he had spent the better part of several days in the waiting room. His training consisted of little more than a tour of RFE's immigration.
+
+7. While Louis et al.

@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_33705.png
+
+Convert to Markdownunification of the two groups on a 7 to 5 basis - the 7 consisting from Visoianu's Romanian National Party, no reference was made of the facts which had been one of the main bases of opposition at the split.
+
+Mr. Auguste advised of a meeting between Mr. C. F. Jackson and General Badoua in which, among other things, the General complained that he was being excluded from Romanian discussions in BHT circles, and questioned the advisability of sending Voinieu to London along with Gafencu. Badoua claims that his Free Romanian lease is having great success. The General was informed that the invitation to go abroad to Visoianu and Gafencu had emanated from the European Government Conference itself, and that, in BHT communications with representatives of Romanian groups, there had never been any question of eliminating Badoua. The importance of unity among allies was pointed out to Badoua, and he was informed that something had to be done about the situation of the Romanian-institute.
+
+Miss Auguste advised the meeting that due to circumstances, Visoianu and Gafencu had found themselves scheduled to fly on the same plane to London; Offenbach had protected this arrangement briefly, on the ground that Visoianu would represent this situation as one in which he (Visoianu) had been able to bring Gafencu along, on the grounds imbrueance.
+
+Mr. Campbell raised the question as to what can be done about this. It pointed out that in this Romanian split Visoianu considers that his friend are in the State Department, and goes to State for advice and support, whereas Gafencu sends in letters to State, but carries his cause to BHT. In New York, where he believes his friends to be.
+
+Mr. Lloyd interjected that he considered some very stringent action must be done about this whole Romanian situation, and that unity somehow must be achieved. He suggested that with the coming into office of Admiral Miller

@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_34148.png
+
+Convert to Markdown# 6.- Problemas Específicos del Azúcar Crudo
+
+a) Filtrabilidad, El índice de filtrabilidad que mide las propiedades precisamente de refinación del azúcar crudo, ha bajado en un 25% en los años recientes, afectando seriamente los costos de producción de las refinerías que emplean este azúcar crudo como materia prima.
+
+b) Uniformidad del grano de Azúcar: Como consecuencia de la total ausencia de quinos automáticos para controlar la cristalización del azúcar, ya que la gran mayoría ha sido destruido y no reparado, la uniformidad de los cristales o granos del azúcar crudo ha disminuido a líderes inverosímiles. Es casi imposible observar azúcares cruces actuales que no tengan un alto índice de "conglomerados", "gemelos", y "Falso grano", lo que hace que la uniformidad de los cristales no se mantenga, ocasionando parjuicios a las refinerías que emplean esta azúcar como materia prima por la cantidad de mieles e impurezas que conllevan. Esto reduce la capacidad de las refinerías y aumenta considerablemente su costo de producción.
+
+c) Aspecto Sanitario; La falta de cuidado en cuanto a la higiene con que debe ser producido el azúcar, así como las calidades de las aguas que se emplean para el lavado de los azúcares en las centrífugas, el poco cuidado y esmero con que son tratadas en los almacenes, han producido un descenso en cuanto al aspecto sanitario de los azúcares acusándose un aumento considerable en el contenido de hongos, bacterias, y levaduras. Todos estos elementos extraños afectan la calidad y producen fermentaciones secundarias en el azúcar destruyéndose parte de la sacarosa de las mismas, lo cual reduce los rendimientos en las refinerías de azúcar y aumenta considerablemente el costo de producción.
+
+d) Envases: Los envases que viene utilizando el régimen comunista en los azúcares crudos, son en parte elaborados en la Unión Soviética. Estos envases de yute son de infina calidad y además como no tienen las medidas standards, el azúcar se compacta dentro de los sacos, produciéndose muchas roturas de los mismos.
+
+e) Azúcar Endurecido; Como consecuencia de la deficiencia en la tecnología de producción, las materias extrañas, y las malas condiciones de los almacenes, el índice de azúcares endurecidos en almacenamiento ha aumentado casi un 20%. Esto true como consecuencia grandes dificultades en las refinerías al disolver al azúcar y sacarla de los sacos. Además al aumentar el costo de manipulación, se aumenta el costo de producción.
+
+# 7.- Problemas Específicos del Azúcar Refino:
+
+a) Azúcares invertidos, Debido a la deficiencia tecnológica y a la baja calidad de los azúcares crudos utilizados, el contenido de azúcares invertidos ha aumentado en un 150% en los últimos años con el resultado de la baja de calidad de este tipo de azúcar.
+
+b) Cenizas: Como consecuencia de la gran cantidad de materias extrañas y la baja calidad de los azúcares crudos, asim como la deficiente calidad de los Carbones Activados empleados en las refinerías, el contenido de cenizas ha aumentado en los últimos años en un 50%, afectando la calidad de estos azúcares.
+
+c) Contenido de Azufre (SO₂): El contenido de azufre en los azúcares refinados debe ser extremadamente bajo ya que afecta la salud del consumidor y crea grandes dificultades en las industrias que usan el azúcar. Como consecuencia de la baja calidad del Acido Fosfórico Soviético que tiene un alt contenido de Azufre, los azúcares en los últimos años han sufrido un aumento del 100% en su contenido de azufre lo que afecta a la calidad de los mismos.

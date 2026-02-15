@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_33868.png
+
+Convert to Markdown8 April 1952
+
+MEMORANDUM FOR: DEPUTY DIRECTOR (PLANS)
+DEPUTY DIRECTOR OF CENTRAL INTELLIGENCE
+
+SUBJECT: Letter from Admiral Miller
+
+1. Attached is a copy of a letter from Min Miller in which he suggests the necessity of coming to a definite decision in respect to a future balloon operation.
+
+2. Can you take the time to get a policy decision from the State Department as to (a) whether they wish to have a balloon operation in August or at any subsequent date, and (b) whether they want us to set aside funds and materials now for a future balloon operation at some unspecified time?
+
+THOMAS W. BRADEN
+Chief
+International Organizations Division
+
+Attachment
+
+Ltr from Adm Miller 1 Apr 52.
+
+CIO:T&E/eh
+
+Orig - Addressees
+1 cc - ADPC
+2 cc - CIO
+2 cc - RI
+
+SECRET

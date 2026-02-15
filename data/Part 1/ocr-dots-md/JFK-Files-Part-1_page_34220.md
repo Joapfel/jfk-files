@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_34220.png
+
+Convert to MarkdownDecember 3, 1965: "France and Castroism".- As far as I know, no one has ever come alone, specially for Castro. Now, in view of his horrible financial crisis, his relations with France are obviously deteriorating. As evidence, we point out the French cancellation of a $f. 75 million contract to build a quicklime, insecticide and fertilizer plant in Cuba.
+
+"Castro Raises His Volume Again".- Castro's failure in his attempt to get the U.S. to change policy of extreme agitation, and he is promising arms to the subversive forces throughout the Americas. But there is one more reason: the Tri-Continental Conference, of which Castro wanted to be the center. However, he has been displaced to a secondary role. That is why his approach to subversion is closer to that of the Chinese than to that of the organizers of the Conference.
+
+December 4, 1965: "Latin America Excludes Cuba From Its Plans".- As has been said, some characters in Latin America publicly encourage Castro's Cuba, but privately despise it and exclude it from their plans. An example is the Spanish plan to help in Latin America's industrialization, and its exclusion of Cuba. The 19 Latin American nations also banned Cuba from their U.N. plans for industrialization.
+
+"Castro Is Moved By Dispair".- Rather than strength, Castro's speech of Dec. 2 denotes weakness and dispair. His braving about arrears with which he counts to help subversive forces throughout the Continent is a desperate provocation. There are three key points which corner Fidel Castro: One is the doctrine that subversion is aggression; the other one is the Johnson Doctrine, which became effective in the Dominican Republic, followed by Dean Rusk's Rio de Janeiro statement that the U.S., whether alone or accompanied, will intervene wherever aggression occurs.
+
+December 6, 1965: "Castro's Economic Woes Grow: Now It's Mexico and Russia".- Recently, we talked of Cuba's difficulties in its relations with France. Now, we echo a report that Cuba's trade with Mexico is steadily dwindling. On the other hand, Russia's huge sales of gold to the world market in order to be able to pay for the wheat it has

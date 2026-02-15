@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_33194.png
+
+Convert to MarkdownCABLE SECRETARIAT DISSEMINATION
+
+PERSON/UNIT NOTIFIED
+ADVANCE COPY ☐ ISSUED ☐ SLOTTED
+BY: ______ AT: ______ 2
+DISTRIBUTION PER: ____
+ACTION W/KSG-8 ☐ RID COPY
+
+CLASSIFIED MESSAGE TOTAL COPIES ROUTING AND/OR INITIALS, STEN BY:
+
+<table><tr><td>26</td><td style="text-align:center">SECRET<br/>(When Filled In)</td><td colspan="3" rowspan="4"><table border="1" style="width:100%; border-collapse: collapse; text-align:center;"><tbody><tr><td>GROUP I</td></tr><tr><td>INCLUDES THE following documents and files:</td></tr><tr><td>CLASSIFIED DOCUMENT</td></tr></tbody></table></td></tr><tr><td>REPRODUCTION OF THIS COPY PROHIBITED.</td></tr><tr><td>INDEX. ☐ YES ☐ NO</td></tr><tr><td>CLASSIFY TO FILE NO.: 201 - 307337</td></tr></table></td></tr><tr><td>FILE ID: ☐ RET. TO</td><td>BRANCH ☐</td></tr><tr><td>DESTROY ☐ SIG</td><td></td></tr></table>
+
+COBRA
+
+SECRET 162006Z AUG 68 CITE JMCOBRA 0628
+
+DIRECTOR
+AMCHALK
+
+REF: A. DIRECTOR 25058
+
+B. UFGA 30218
+
+WHEN JMCOBRA INITIATED CONTACT WITH AMCHALK-5 ON 19 JULY AGENT SAID HE HAD TURNED IN ALL ACCOUNTINGS AND SUPPORTING RECEIPTS TO PREVIOUS (BUENOS AIRES AND JMWAVE) CONTACTS AND THAT NO ACCOUNTING MATTERS WERE OUTSTANDING. PLEASE ADVISE WHAT ACCOUNTING MATTERS CONSIDERED OUTSTANDING SINCE JMCOBRA CONSIDERING TERMINATION OF AGENT.
+
+SECRET
+
+BT
+
+CS COPY
+SECRET
+
+16 Aug 68 IN 72169 J
+
+AN KB
+AR-X
+H-
+H-
+H-
+H-
+H
+H
+W/H REC-C
+
+201-307337
+16 Aug 68

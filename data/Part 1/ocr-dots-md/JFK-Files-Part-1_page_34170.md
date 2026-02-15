@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_34170.png
+
+Convert to Markdown### f.- Number of new factories
+
+A new sugar mill is programmed for 1970. This new mill will have a capacity of 13,800.0 MT of sugarcane per 24 hours and a total production of 260,000.0 MT of sugar in 120 effective days of safra.
+
+## III.- Fertilizers:
+
+**a.- Import of fertilizers:**
+- **1965** 450,000.0 MT
+- **1970 (planned)** 400,000.0 MT
+
+The plan calls for the use of 400,000.0 - 450,000.0 MT of fertilizers for the following years: 1965, 1966, 1967, 1968, 1969 and 1970.
+
+**b.- Domestic production of fertilizers:**
+- **1965** 50,000.0 MT
+- **1970** 100,000.0 MT
+
+## IV.- Cost of production:
+
+**a.- Raw sugar:**
+
+| | **1965** <br> pesos per ton sugar | **1970** <br> (planned) |
+|:---|---:|---:|
+| **Raw materials incl. cane** | 45.00 | ? |
+| **Cost of production ex factory excl. of depreciation and interest (excl. raw materials and cane)** | 51.00 | ? |
+| **Depreciation - interest** | 21.00 | ? |
+| **- by-products** | 2.00 | ? |
+| **= price ex factory** | 115.00 | ? |
+
+**b.- Refined sugar:**
+
+| | **1965** <br> pesos per lbs. |
+|:---|---:|
+| **Price ex factory** | 0.0625 |
+| **+ marketing costs and profits** | 0.0175 |
+| **= retail price** | 0.0800 |
+
+**c.- Cane:**
+
+Average price of cane at factory¹ 6.00 pesos per 1.15 MT of sugar cane,⁴⁰

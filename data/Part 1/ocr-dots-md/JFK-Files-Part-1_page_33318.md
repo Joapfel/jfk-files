@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_33318.png
+
+Convert to MarkdownCONFIDENTIAL
+
+The Government's delay in making public the results of June 1972 elections for top posts in the Communist-dominated CUT labor federation also damaged Government credibility. The opposition media scored heavily in a barrage of charges of irregularities and vote fraud with a public that takes justified price in clean elections.
+
+B. The Papelera Confrontation
+
+The Compañía Manufacturera de Papeles Y Cartones (known as the Papelera), Chile's major private producer of newsprint, became another propaganda battleground cast by the opposition in terms of "freedom versus Marxist totalitarianism."
+
+In October 1971, the Government, carrying out a long-standing pledge, announced that CORFO (the Government Development Corporation) had opened negotiations to buy out the Papelera through the purchase of its stock. The opposition media immediately launched a campaign to warn the public that the free press would be crippled if newsprint distribution were placed at the mercy of Government suppliers. At the same time, the opposition media pleaded with private shareholders to refuse to sell to the Government. In addition, a "freedom fund" was created enabling private persons to buy up Papelera shares to prevent the company from falling into Government hands.
+
+For several months pro- and anti-Government media carried out daily an intensive propaganda battle in advertisements, news stories, and editorials. Both sides resorted to the familiar numbers game: the pro-Allende media claimed that the Government was besieged by willing shareholders eager to sell out; the opposition asserted that shareholders were resisting temptation. Government propagandists argued that newsprint production was essential to the State and must be controlled by the State; the opposition said Papelera must remain in private hands as a patriotic duty.
+
+Thwarted to date in its attempt to buy out Papelera shareholders, the Government has not hesitated to use other measures -- price controls, labor-induced production shortages, and strong-arm tactics -- to prevent the delivery of raw material to the plant. The Government press also circulated rumors that Jorge Alessandrí (former President
+
+CONFIDENTIAL
+
+R-4-73 February 27, 1973 26

@@ -1,0 +1,46 @@
+# JFK-Files-Part-1_page_32928.png
+
+Convert to MarkdownAttachment #2 to UFGA-27552
+
+SECRET
+
+MEMORANDUM
+
+TO : AMSTALK-1 201 File
+THRU : Chief, SO Branch
+: DCOS/O
+: Chief, IO Branch
+FROM : SO/II/Leland H. COBFIELD
+SUBJECT: April 26 Meeting with
+AMSTALK-1
+REFERENCE: WSO-3012, 27 April 1967
+
+27 April 1967
+
+WSO-3013
+Distribution
+1-201-307337 File
+1-SO/II Chrono
+1-REG
+
+1. COBFIELD and RAMSKILL had a second meeting with AMSTALK-1 at S/H 316. An enlargement of the message which was concealed in the crucifix and brought to Miami from Cuba by the cousin of AMSTALK-1 was shown to AMSTALK-1. He read the message and the English translation, commenting that the English coincided with his own interpretation.
+
+2. AMSTALK-1's reaction to the contents of the letter was mild and he did not appear too concerned about the threats to his family (paragraphs 2 and 3). He stated that he did not recognize the name at the bottom of the letter (Arturo PITA Rey) and commented that from talks with his cousin he believed the real sender of the letter was Manolo PINIFERO\ "Barba Roja" (Director of the DGI), and that the name and address was probably an accommodation address used by the Cuban Intelligence Service.
+
+3. AMSTALK-1 identified the names in Paragraph 2 as follows:
+
+Fernando - Fernando de ROJAS - husband of AMSTALK-1's cousin, Marta (the source of the message) presently serving a 30 year jail sentence in Havana. Fernando de ROJAS was described by AMSTALK-1 as a fanatical Catholic.
+
+Carlos - Carlos PEDRAZA - husband of Gina ISALGUE who is AMSTALK-1's aunt and also in jail.
+
+Ramon - Ramon GUIN member of former AMTRUNK net and connected with Rolando CUBELA presently sentenced to Isle of Pines Prison.
+
+Gina - Gina ISALGUE sister of AMSTALK-1's mother and wife of Carlos PEDRAZA, presently in jail.
+
+SECRET
+
+CS CC
+
+ATT 2 copy FCA 27552
+
+201-307337

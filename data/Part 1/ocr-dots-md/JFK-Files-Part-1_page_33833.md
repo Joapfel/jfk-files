@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_33833.png
+
+Convert to MarkdownSECRET
+
+certainly they could not be. No statement made by HUF, no line of
+policy that HUF could pursue, no suggestion or propaganda line that
+HUF could follow could be done in the name of the National Councils
+so long as the members of each council are invaluable to reaching a
+group decision or of reaching a majority decision which the minority
+would not attempt to subvert. It seems to me that there is only
+historical value in talking about what the original concept of the
+National Council was. The concept has changed, and the change was
+necessary to correspond to the fact. The fact is the inability of
+each National Council to act as a single voice.
+
+h. without further discussion, therefore, I am unprepared to ask you if I can make a major change in this policy such as the State Department paper suggests. I understand that you and Mr. Braden have agreed with Alvin Liler and Dr. Lang to discuss this problem thoroughly with the people who are concerned in the State Department and I hope that after these discussions we may reach an agreement on the matters which the paper raises.
+
+CIO:Tab/eh
+(24 Apr 52)
+
+Orig & 1 - Addressee
+2 cc - N.R. (1 for EN/1)
+1 cc - ALB C
+1 cc - CIO
+1 cc - IC/DMIC
+1 cc - IT/OFC
+1 cc - SD/CPC
+8 cc - AI
+
+SECRET

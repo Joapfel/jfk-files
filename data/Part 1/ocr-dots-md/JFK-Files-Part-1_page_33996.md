@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_33996.png
+
+Convert to MarkdownSECRET
+
+Chief of Station, Rio de Janeiro
+
+XX
+
+Chief, WH
+
+Chief of Station, JENWAVE
+DYVOOR/PBRUYN/MHVIPER
+Material on Trading with Cuba
+
+References: A. DIRECTOR 03837
+B. RIO DE JANNINO 3756
+
+Per reference A we forward by separate cover material produced and released by the AMCONSUL organi-
+zation which we hope will be helpful in meeting your
+requirement to provide ALMPID-1 with information on
+the negative aspects of commercial trading with Cuba.
+
+Roger B. MARCHBANK
+
+Attachments:
+
+1. Maritime 5th Column press releases (U/S/C)
+
+2. Defectors statements (U/S/C)
+
+3. AESCHOLL Economic Reports (U/S/C)
+
+Distribution
+
+* 3 - COG, Rio de Janeiro, w/atts, USC and gaush
+* 2 - C/WH, w/o atts
+* 2 - WH/COG, w/o atts
+
+MAY 29 1967
+
+26 May 67
+
+UFOA 27672
+
+CS COPY
+
+10-120-06/2
+19-127-26

@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_33671.png
+
+Convert to MarkdownJanuary 29, 1952
+
+Dear Abbott:
+
+I have just been informed over the telephone
+that Earle Rogers, of Counsel Services, Inc., has called
+a meeting of the Crusade for Freedom Committee in this
+city, and has failed to consult me in any way in this
+matter.
+
+This has resulted, as usual, in causing
+utter confusion in the minds of everyone, and bodes no
+good for the Crusade in this city nor for the sponsoring
+organisation - the National Council for a Free Europe,
+for which the Crusade is operating. In your letter of
+December 7, 1951, to Mr. Herbert T. BiassCHEL, Chairman of
+the Crusade for Freedom in the District of Columbia, you
+designated me as, Director of the Washington, D.C. office.
+As I have received no instructions from you to the con-
+trary, I have presumed this situation to be continuing.
+
+The fact that Mr. Rogers would proceed in a
+matter of this kind without consultation with this office,
+and without being commissioned by you to undertake such a
+meeting, is most disturbing. This is the sort of thing
+that will really kill the Crusade for Freedom in this city.
+
+I shall hope to discuss this matter with you
+when in New York on Thursday.
+
+Mr. Abbott Washburn,
+Executive Vice-Chairman
+Crusade for Freedom,
+4 West 57th Street,
+New York, N.Y.

@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_33934.png
+
+Convert to MarkdownCONFIDENTIAL
+
+27 March 1952
+
+MEMORANDUM FOR: SPC
+
+SUBJECT: Leaflet Balloons for use in Psychological Warfare
+
+1. On at least four occasions Mr. William Scripps, Detroit News, directly or indirectly has approached the Government with proposals for utilization of balloons for psychological warfare. Following is a list of the dates and method of these approaches:
+
+a. 12 October 1950 - Letter from General W. J. Donovan to DCI enclosing "Operation Ballast." On 1 November 1950 William M. Jackson responded to this memorandum to the effect that this suggested operation was being referred to the appropriate persons and suggesting a subsequent meeting with Donovan to discuss this and other matters.
+
+b. In November 1950 as we were undertaking planning for development of balloons with General Mills, we were informed that Mr. Scripps planned a general meeting to be held in Washington to discuss balloons. Through the General Mills Washington Representative Mr. Scripps was persuaded to keep his meeting general and was informed that the various agencies of the Government had the matter under consideration and considered that it would not be in the public interest at this time to disclose the nature of their findings. Consequently, Mr. Scripps forwarded us on 1 December 1950 a proposal "The Use of Free Balloons for Load Carrying Purposes" which we acknowledged on 11 December 1950.
+
+c. On December 26, 1950 General Smith received a letter from Blair Moody summarising a suggestion from Mr. William Scripps for encouraging defection of Chinese Communist troops. A routine response to his letter was sent 6 January 1951 from Mr. Jackson. I believe also Mr. Moody called upon the Director in early February of 1951 to discuss use of balloons for psychological warfare. ADC addressed a briefing memorandum to DCI on 12 February 1951, Subj: Balloons for Carrying PW Material to Soviet Areas.
+
+2. In September 1950 the NPSB requested that CIA should represent all interested agencies of this Government and should accordingly take steps to develop, procure and stockpile an appropriate number of scientifically designed balloons for future propaganda use in conditions of international emergency. At meetings of the NPSB on 13 February 1951 and 11 June 1951 it was agreed that OPC would procure and stockpile 1,000 large leaflet balloons for use by the appropriate agency when and if such use was authorised. The Board also agreed that inquiries which the various govern-
+
+mental agencies
+
+CONFIDENTIAL
+
+4-0000

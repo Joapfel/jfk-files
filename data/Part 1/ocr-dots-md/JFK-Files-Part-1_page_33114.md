@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_33114.png
+
+Convert to MarkdownSECRET
+
+WII/COG 69-358
+
+13 November 1969
+
+MEMORANDUM FOR: Acting Chief, WH Division
+
+THRU : C/WH/Support
+
+FROM : Chief, COG
+
+SUBJECT : Travel of DCOS WH/Miami from Miami to Montreal
+
+1. Your concurrence is requested in the travel of DCOS, WH/Miami, from Miami to Montreal by Air Canada 603 on 25 November 1969
+
+2. DCOS, WU/Miami has the following non-back-
+stopped documentation in the alias of Lloyd M. Stanton:
+Illinois driver's license, Illinois birth certificate,
+Social Security card, Jamestown Insurance card, New
+York Insititute of Photography card, Chicago Public
+Library Card, vaccination certificate. The dispatch
+forwarding this documentation to Miami specified that
+the documents are for flash purposes only. DCOS,
+WH/Miami had requestod backstopping for his alias
+documentation but the request was denied by Central
+Cover.
+
+SECRET
+
+6:11 a.m.
+14 Nov
+Director 55499

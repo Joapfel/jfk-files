@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_33853.png
+
+Convert to MarkdownIn reply refer to: W-1970
+
+15 April 1952
+
+Dear Min:
+
+Looking through the recently inherited files, I notice
+a special fund which has its origin in the Foole era. For
+the present fiscal year $10,000 has been drawn and accounted
+for, as a John Waterfield accounting statement dated 27 Janu-
+ary 1952 indicates. You will note there is a cash balance
+as of 27 January of $5,578.
+
+This is one of those things that questions will always
+be raised about. I know there is good precedent for it,
+however, in business firms and maybe we should continue it.
+In any event, I wanted to bring it to your attention and to
+be sure you knew of its existence.
+
+CIO:TMB/ch
+
+Orig - Addressee
+1 cc - IO/FxOff.
+2 cc - CIO✓
+2 cc - RI

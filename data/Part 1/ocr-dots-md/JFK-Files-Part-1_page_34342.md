@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_34342.png
+
+Convert to MarkdownThe Editor
+
+HIMERISSIA
+Athens, Greece.
+
+Mr. H. Vlachou
+Editor,
+KATHEIMERINI
+Athens, Greece.
+
+The Editor
+MESSAGEER D'ATHENS
+Athens,
+Greece.
+
+Mr. Ch. Lambroukis
+Editor,
+TA NEA
+Athens, Greece.
+
+Mr. A. Domakos
+Editor,
+TO VIMA
+Athens, Greece.
+
+Mr. L. Bortolos
+Director,
+VRADYNI
+Athens, Greece.
+
+Mr. Dimitrios Dooulakis
+8 Seizani Sts.
+Imittos
+Athens, Greece.
+
+The Editor
+"The Atlantis"
+521 W. 23rd St.,
+New York 11, N.Y.
+
+The Editor
+"National Herald"
+140 W - 26 St.,
+New York 1, N.Y.
+
+The Journal of Commerce
+11 Tsami Karataasou St.,
+Makriyanni
+Athens, Greece.

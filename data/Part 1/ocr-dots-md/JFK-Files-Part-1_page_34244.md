@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_34244.png
+
+Convert to Markdown**January 17, 1966:**
+
+**NEWSCAST:**
+
+1) MEXICAN MEETS CUBAN COMMUNISM, RETURNS HOME DISAPPOINTED.
+
+2) CUBANS SNEAK OUT OF ISLAND, COAST GUARD PICKS THEM UP IN CAY SAL.
+
+**EDITORIALS:**
+
+"A summary of Castro's speech at the Tricontinental".- Castro's speech revealed the deepening of the division between the Chinese and the Russians, whom he called on to unite. He violently charged the C.P. of Latin America with getting lost in a "sea of theories", interpretations and tactics, and with unwillingness to go out into the battlefield to face the dangers of open war. He attempted to answer charges that he had abandoned the revolutionists of Santo Domingo after exciting them to revolt, and justified himself with the fact that Cuba "is a small nation", lacking in nuclear weapons. Lastly, he acknowledged the deep effect of anti-Communist propaganda in Cuba and in Latin America, which propaganda he charges of slandering his regime.
+
+"Fidel Castro at the closing of the Tricontinental".- Fidel Castro's desperate tone had defeatist overtones when he admitted what he had never admitted before: the possibility that he may lose all or part of Cuba's territory. This was a defeatist warning, perhaps made to insure a retreat without personal risks. As to Che, he added further confusion to the issue. He was not really replying to the "imperialists", as he said but to some of the delegates to the Tricontinental, who demanded a clarification of Guevara's mysterious disappearance.
+
+**January 18, 1966:**
+
+**NEWSCAST:**
+
+1) British Catholic Cardinal Blasts Polish Reds.
+
+2) Latin Christian unionists denounce Castro Regime.

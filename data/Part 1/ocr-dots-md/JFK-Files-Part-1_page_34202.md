@@ -1,0 +1,52 @@
+# JFK-Files-Part-1_page_34202.png
+
+Convert to MarkdownCommodities
+
+# Soviet Grain Imports Expected to Continue Despite Big Plans to Boost Farm Output
+
+By RAY VANKER
+Staff Reporter of THE WALL STREET JOURNAL
+
+A drastic revision of the Soviet Union's agriculture is getting under way aimed at lifting farm production by improving the lot of the peasant. For 1966, Russian leaders are deliberately slowing industrial growth to the smallest increase in the postwar period, while they count on a sharp upsurge in agriculture to propel their economy forward.
+
+Between 1966 and 1974, the Russians plan to pour an average of $13.5 billion a year in investments into agriculture, up from $11 billion in 1964 and slightly more last year. They're encouraging free marketing of fruits and vegetables from small private plots held by peasants. Farm pay is being increased. In summer or fall, the first Farmers' Congress since 1925 will be held to plan fresh ways of stimulating production.
+
+Evidence indicates the Soviets have a tough job on their hands. The likelihood is that the Communist world will continue as a major importer of grains over the next few years.
+
+The scope of the Russian agricultural overhaul is being analyzed in Munich by Soviet specialists of Radio Free Europe and Radio Liberty, which beam anti-Communist programs into Soviet bloc countries, and by authorities in foreign ministries in Western Europe and by American Government officials.
+
+May Have Important Side Effects
+
+The success or failure of the Soviet campaign may have an important bearing on world grain trade, American farm programs, the cold war and Soviet political attitudes toward the U.S.
+
+Agriculture in the Achilles' heel of the Communist world. The Soviet government reported last week that grain output dropped 21% last year to 120.5 million metric tons from 152.1 million in 1964. The result is a continuing need for big grain imports. In the crop year ending June 30, more than 35% of the world's commercial movement of wheat—about 19 million metric tons—is expected to go into Communist lands. A metric ton is 2,200 pounds.
+
+The U.S. has only a small portion of that trade. Canada, Australia, Argentina and France are major Communist bloc suppliers. But those bloc sales deplete their export stocks, reducing competition elsewhere for the U.S. Wheat stocks of major exporters may be under 30 million tons at the end of the current crop year, just over half the 1959-63 average. So the anticipated continuation of Communist grain purchases could lift world export prices. It also may result in an increase of production goals in U.S. farm programs.
+
+How does the Soviet farm-uplift campaign fit into the future world trade picture for grain? Only Romania will have surprises. The Soviet Union, Hungary, Czechoslovakia, East Germany, Poland, and possibly Bulgaria, will need imports, predicts Carl R. Evers, Radio Free Europe's top agricultural economist. A U.S. Department of Agriculture official says: "It should come as no great surprise if the Communist countries remained in the grain market, perhaps up and down, but in, for some years to come."
+
+Outlook for 1966 Cloudy
+
+Even as the new drive starts, the outlook for the 1966 crop is cloudy. Not long ago, I Khoroshilov, a member of the council of
+
+Markets at a Glance
+
+## COMMODITY INDEXES
+
+Dow-Jones Futures, Friday—133.11, up 0.70; last year, 136.53.
+
+Dow-Jones Spot — 143.91, up 0.36; last year, 143.42.
+
+Reuters United Kingdom—474.1, off 1.5; last year, 449.5. (1931 equals 100.)
+
+## FUTURES PRICES
+
+Higher — Wheat, oats, soybeans, soybean meal, soybean oil, cottonseed oil, potatoes, cattle, coffee, copper, lead, zinc, silver, wool, cotton, hides, Chicago rye and New York rubber.
+
+Irregular—World sugar, corn and frozen pork bellies.
+
+Lower—Cocoa, domestic sugar, eggs, platinum, flaxseed, Winnipeg rye, London and Singapore rubber.
+
+average $32 a month for the collective farmer, as against $91 a month for the industrial worker. So peasants try by every means to leave the collective farm, he says.
+
+In this situation, some analysts of the Communist world warn against being misled by grandiose plans of the Soviets. They note that former Premier Nikita Khrushchev launched equally impressive farm programs, raising farm investments from $6.6 billion in 1959 to $11 billion in 1964

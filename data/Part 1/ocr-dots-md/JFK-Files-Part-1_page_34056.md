@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_34056.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+4. **Radio** - The weekly AMBASAL radio programs were carried by JMOPE and tapes of each program were sent to SWBULL/1 for re-broadcast. The content of these programs was in line with the juridical nature of the AMBASAL organization, although editorial comment was frequently made on current themes not specifically related to the legal field.
+
+## B. ADMINISTRATION
+
+5. The 1967 fiscal year budget for AMBASAL is $43,000.00. On a quarterly basis the allotted figure is $10,750.00. During this quarter AMBASAL expenses amounted to $11,760.72, a total of $1,010.72 in excess of the allotted figure. Of the overall quarterly expenses of $11,760.72, agent salaries accounted for $7,000.00, radio expenses amounted to $1,901.72 and $2,859.00 was spent on printed propaganda, operational travel, and miscellaneous office expenses. Total operational expenses for the first six months of FY 1967 were $23,987.28, an excess of $2,487.28 over the $21,500.00 allocated for the first half of the fiscal year.
+
+## C. PROBLEMS
+
+6. Termination of the principal agent may be difficult. Consideration is being given to the possible future use of AMBASAL/1 as a singleton agent. The alternative is to assist him in finding suitable employment; a difficult task given his age (42), complete lack of English, and aspects of his personality and character.
+
+7. We do not anticipate any other problems relative to the termination of this operation. The AMBASAL newsletters sent to Cuba were stopped with the October issue and the monthly bulletin with the November issue. Four of the AMBASAL personnel were terminated 31 December and the radio programs were stopped in December.
+
+## D. PLANS FOR THE NEXT QUARTER
+
+8. Three AMBASAL employees will be terminated effective 31 January 1967 and the AMBASAL office will be closed during that month. It is planned to permit AMBASAL/1 to retain some of the equipment now in his office to encourage him in his plans to continue to operate on a scaled-down, independent basis. We will continue to pay a monthly salary to AMBASAL/1 through March 1967 while attempting to solve his personal situation discussed in the preceding section.
+
+SECRET

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_34059.png
+
+Convert to MarkdownSECRET
+
+- 3 -
+
+D. PLANS FOR NEXT QUARTER
+
+8. It is probable that the next World Baseball Championships sponsored by the International Baseball Federation will be held in Colombia. An effort will be made by the AMLIRA group to mount an operation aimed at assuring the denial of an invitation to participate in these championships to the Cuban team.
+
+9. The AMLIRA group is preparing propaganda materials for use in a campaign to try to influence the sports authorities in the Caribbean and Central American countries not to allow their national teams to attend the Weight Lifting Championships to be held during 1967 in Cuba.
+
+SECRET

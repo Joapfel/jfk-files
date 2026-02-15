@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_33894.png
+
+Convert to Markdownmany talented refugees who need employment and who can supply RFE's
+need for script writers, actors, announcers, etc. Accordingly, desk
+staffing has been accomplished by examining the qualifications of duly
+recommended individuals, whether the recommendations come from political
+personalities or otherwise. Selection is based on the ability of the
+individual to fill a need efficiently in turning out or participating
+in planned programs. Recruitment is determined only by ideological
+security, independence of exile politics, and personal ability. This
+is not to say that many individual exiles having decided personal con-
+victions and well-known political records are not employed, but a
+positive statement is made that those exile employees who now produce
+RFE programs reflect the policies and guidance of RFE rather than pro-
+motion of partisan objectives and personalities.
+
+B. Recruitment -- Detailed Procedures
+
+The personnel complement of each RFE nationality desk is
+founded on a hard core of dependable individuals, usually two or three
+people, including the chief of the desk. "Dependability" is established
+by exhaustive inquiry at all available sources to establish the desir-
+ability, reliability, technical proficiency and security of the working
+core of the desk. Sources used are,
+
+(a) Exile political personalities in the United States,
+
+(b) Exile references of high standing and known im-
+partiality in the United States and Overseas,
+
+(c) Overseas contacts and personal knowledge of our American representative in Europe. (Royall Tyler-Paris),
+
+(d) Checks and balances of our political advisor at Munich (W. E. Griffith),

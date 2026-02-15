@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_33685.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+the tail -- Crusade for Freedom -- is not waging the dog. He remarked that in a conversation with Alan Valentine he had found that Valentine is inclined to agree with him.
+
+3. Against Mr. Wadburn and the Crusade for Freedom, he had only one complaint. They were too good, too big-time. They made such an effective appeal that the recipients could not avoid running down the competitor. He stated as his opinion that the Crusade was jeopardizing a multi-million dollar operation -- the Voice of America -- and might even be jeopardizing another multi-million dollar operation -- Radio Free Europe -- for the sake of raising three million dollars.
+
+4. He thought balloons and some other operations done by the Committee were best done by private means.
+
+5. He leaned toward going back to the beginning and looking at the Crusade as purely a cover operation and not an attempt to raise large funds and making a lot of hoopla. He suggested that the Crusade should raise only enough money and make only enough of a campaign to provide a dignified cover. He suggested mail solicitation, magazine advertisements, the publicizing of two or three large anonymous gifts, all without high-pressure. Then he said, "Let's get on with the main job of radio and refugees."
+
+Mr. Dulles asked whether this danger to the Voice was so great. "Didn't you get more money this year?" Barrett's answer was "No" and he pointed out that there was no damage done to the Voice by the Crusade this year insofar as funds were concerned but he feared the future. Dulles asked weather we couldn't work out the timing of the Crusade so that there would be no interference on the hill. Mr. Barrett did not directly answer the question. He said the cover was bad. Too many people already know the truth about the Crusade and he is worried about it. He said it surprised him that it worried him more than it worried Mr. Dulles. A large campaign raises the question, he said, of how all the work is done on such a small amount of money. He thought the Crusade called attention to itself as cover.
+
+Howland Sargeant asked Jackson to answer this question, "Of what various uses are the Crusade?" Jackson listed them as follows:
+
+1. Cover. He agreed with Mr. Barrett that the Crusade both increased and decreased the security danger.
+
+2. It brings in money.
+
+3. It educates and interests Americans in the whole problem of psychological warfare and propaganda and does so more than anything else that is managed by the Government or by private funds. He thought this was greatly important and said that although he
+
+SECRET

@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_32927.png
+
+Convert to MarkdownArtículo 1. Cada unda
+
+En las últimas semanas del pasado mes, el gobierno de la república bolivariana ha tomado someبان que va a arriesgarse, y de esta forma, se han presentado dos bonistas a la decisión de combatirlos, con el fin de proteger a los habitantes, sin dudar en su aliento con las posibilidades de los actores políticos y sociales.
+
+La decisión de combatirlos, en este caso, es la necesidad de arribar a fiefos, amigos, los cuales han ido variando su abordaje, como fermido, foralas, kononó, Gina y otros. Espera que esta guerra esté planteadas a muerte, nuestra fortaleza no se le quiera acercar indiscriminadamente. Pero mientras cuentan que están soldadas y es necesario que entienden que en este tino de lucha no puede quedar eslabón sin aclaración.
+
+Miguel, tu sabes que tenemos pruebas demonescas contra personas muy allegadas a ti, contra las cuales, hasta el momento, no hemos actuado. Las personas, odiosa de los delitos sobre los cuajados, tienen responsabilidad directa, se han dedicado ultimamente a violar otras muchas Leyes del país; tu culpa en esto último es el estimulo y ejemplo que les inculcate. Alrededor de todo esto o de cualquiera otra necesidad humana, económica, social, que tuvieras debemos intercambiar opiniones.
+
+Nuestra proposición es: Tener una entrevista en Canada o España, donde discutiríamos toda una política encaminada a tratar de ir olvidando el pasado y situarnos a la altura de las posibilidades presentes.
+
+Para hacernos llegar tu decisión, de ir a uno u otro país, envías un cable a la dirección que te adjuntamos. Si vas al Condo de lo firmas Luriqué y si vas a España, Guillermo. Este cable lo mandas un mes antes de partir. Cuando llegues al país envías otro diciendo el lugar exacto donde resides y como localizarte. De no haber ir a ninguno de los países señalados, escriben en texto convencional explicando lo que te lo impose y la solución que pronozcés.
+
+Recuerdo, Miguel, que otros varios desden de tu decisión, por lo que te recomendamos discreción. La sott Directiva puede agregarme algunos detalles de nuestro lanteamiento.
+
+Tú decides si la guerra continúa. Algunos viejos combatientes que te recordamos, preferimos que no.
+
+Arturo Pita Key
+Calle 25 No. 316 c/ 34 y 36,
+Santiago,

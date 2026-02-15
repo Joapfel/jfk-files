@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_33792.png
+
+Convert to MarkdownCONFIDENTIAL
+Security Information
+
+ER-2-8556
+
+30 April 1952
+
+MEMORANDUM FOR: Chief, International Organizations
+
+FROM: Deputy Director Central Intelligence
+
+Attached is the proposed statement to be issued by NCFE in the event that their cover is blown. I am not very happy with it and suggest that we try to improve it.
+
+I have sent a copy to Frank Wisner.
+
+Encl.

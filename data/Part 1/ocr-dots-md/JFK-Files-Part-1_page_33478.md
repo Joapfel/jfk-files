@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_33478.png
+
+Convert to MarkdownV.S.-economie
+loopt terug
+
+WASHINGTON - De Amerikaanse regering heeft donderdag bezend ge- maakt dat de nationale economie veel krachtiger is teruggelopen. In het eerste kwartaal van dit jaar, dan was Verwaapt. Prijsen stegen houvendien met meer dan tien procent.
+
+Het bruto nationale product vermindert in het eerste kwartaal met een jaar-percentage van 5,8. Dit is de eerste keer sinds 1970 dat het bruto nationale product is verminderd en het is de scherpste dateding in 16 jaar. De verminderung van het bruto natio- nale produkt met 3,8 procent moet vergeleken worden met een schatting van tussen de 3 en 4 procent, zoals die door de regering was gedaan. In het laatste kwartaal van het vorig jaar nam het bruto nationale product toe met 1,8 procent.
+
+Opgemerkt
+
+Chili
+
+In Chileense vluchtelingen in Nederland schijnen "aampassings- problemen" te hebben. Dit nog langdurige verschil vanuit on- dermeer veroorzaakt te worden doordat zij het nog steeds niet kunnen verkroppen dat de socialis- tische droom van de Marxistische president definitief voorbij is en dat hun land nu beheerst wordt door een kleine groep reactionaire die met terreur, onderdrukking en fol- teringen probeert het volk onder de dulm te houden. Met zo'n lange vol- ain komt je een heel eind in Ne- derland en dit hadden deze idealis- ten al gauw in de gaten.
+
+MINISTERS KRIJGEN HUISARREST
+
+Ethiopische leger uit
+scherpe verwijten
+
+ETHIOPISE LEGER
+
+ADDIS ABBA — Premier Endal- kachew Makszenen van Ethiopië heeft donderdag bekendgemaakt dat de le- den van de rekening die eind februarii door de strijdkrachten gedwongen werd af te treden, huisarrest hebben egen.
+
+Volgens de Nieuwse radio heeft Makkonen de geslot op een bijeen- komst in Addis Ababa van rond 2.000 officieren en manschappen. De pre- mier zou naar de bijeenkomst ont- boden zijn door de strijdkrachten die hem hadden ieder weten dat het leger gedwongen ziet zijn in te gripen als er niet onmischelijk tegen de minis- ters werd opgelegd.
+
+Het leger verkoopt de ministers dat zij het land in een economische chaos hebben gestart, zich op onwettige wijze vertrikt hebben en na hun af- treden hebben samengesworen om verderheid te maken.
+
+PLANNEN
+
+Makonnen gel of de bijeenkomst een uitwerke eisenzetting van de hervormingspartijen van zijn reg- ering. Hijsijns de strijdkrachten voor hun voorbereiding gezaagd en deed een beroep op hen een voorbeeld te geven van de lucht. Die daarna is voor het land in de moeilijkste dagen die nog zullen komen. De premier zou het huisarrest van de voormalige mins- ters bekend heden gemaakt toen
+
+hem de vraag werd gesteld waarom een arme Ethiopiër die een broed heeft gestolen, onmiddellijk de ge-vangenis ingaat, terwijl de ex-minis- ters die ernstige misdaden zouden hebben begaan, niet voor de recht- bank worden gedaagd en maar en- gehinderd op straat rondlopen.
+
+Makonnen zei dat er een commissie is benoemd die een onderzoek moet instellen naar het gedrag van de voormalige ministers.
+
+POLITIE
+
+In de stad Asmara heeft de politie bekendgemaakt dat zij geen routine- werk meer zal verrichten, omdat haar eis tot ontlatag van het landelijke hooft van de politie, lultenant-gene- raal Yilma Shibeshi, niet is ingewil- ligd. Voorts hebben de 1.200 spoor- wegmannen die woensdag in staking zijn gegaan, de vrachtauto's tegenge- houden die goederen van Asmara naar de haverstad Massawa zouden brengen.
+
+Arbeidsourust
+in Canada

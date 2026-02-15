@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_34045.png
+
+Convert to MarkdownU.S. OFFICIALS Saturday announced that two Cuban refugee flights for Monday, May 1, will be suspended at the request of the Cuban government. Communist May Day activities are scheduled on the island that day.
+
+The U.S. financed flights, which have brought more than 60,000 refugees to this country since they were initiated 17 months ago, will resume May 2 on a twice-a-day, five-day-a-week basis.
+
+★ ★ ★
+
+## Venezuelan Reds 'Condemn Terrorism'
+
+CABACAS — Venezuela's outlawed Communist Party made an about face at its latest secret meeting, rejecting the thesis of armed insurrection and favoring participation in elections, a Communist informant said here.
+
+The Eighth Plenum of the Venezuelan Communist Party (PCV), "held somewhere in Venezuela, agreed to do without armed insurrection, condemn terrorism and participate in the next election," the Communist source reported.
+
+The PCV was outlawed by former President Romulo Betancourt in 1962 and if the government does not permit legalization now, the party will negotiate its voting strength with leftist parties that operate legally in the country.
+
+★ ★ ★
+
+## 19 Western Ships Call at Cuban Ports
+
+NINETEEN vessels from Western countries, including 10 flying the British flag, called at Cuban ports in March, a Cuban exile group in Miami reported Saturday.
+
+The exile Revolutionary Unity (UR) organization, which keeps tabs on western world shipping to Cuba, said the 19 ships also included two each from Lebanon, Cyprus and Italy; and one each from Greece, Finland and Panama. The Panamanian vessel was the first flying that country's flag to call on a Cuban port since April 1963.
+
+★ ★ ★
+
+## Colombia Denies Using U.S. Troops
+
+BOGOTA — Colombian Army Commander Gen. Guillermo Pinzon Saturday denied charges from Havana that U.S. troops are aiding the Colombian Army in its anti-guerrilla campaign.
+
+He said armed subversive activities in the country are "in a process of disintegration" due to action of Colombian Army units.

@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_33756.png
+
+Convert to MarkdownSECRET
+SECURITY INFORMATION
+
+25 June 1952
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Complaint of Yugoslav Counselor
+
+1. Wally Barbour told me today that the Counselor of the Yugoslav Embassy had called upon him to complain about the presence of Yugoslav delegates at the NCFE Williamsburg Conference and the signing of the Williamsburg statement by Yugoslav delegates.
+
+2. Mr. Barbour said that the Counselor prefaced his remarks with a statement that he knew Mr. Barbour would reply that he had no influence over NCFE and no connection with it. Mr. Barbour said that that was what he had said and that his statement was received by the Counselor with a polite shrug.
+
+3. Barbour did not seem unduly worried, but I told him that we would shortly ask him for a review of State policy in respect to the national councils and exiles with whom NCFE is dealing and he said he would welcome the opportunity to make such a review.
+
+THOMAS W. BRADEN
+Chief
+International Organizations Division
+
+CIO:TMR/eh
+
+Orig - DDCI (thru ADFC & DD/P)
+1 co - EE. (returned to C/10 9 July; destroyed. Intended by Air Force (Macomb) -
+1 co - TODAC
+1 co - CIO
+2 co - H

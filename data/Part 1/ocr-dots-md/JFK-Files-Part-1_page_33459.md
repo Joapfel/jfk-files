@@ -1,0 +1,89 @@
+# JFK-Files-Part-1_page_33459.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>CABLE SEC D SSEM BY</td>
+    <td>PER</td>
+    <td>TOTAL C counter part</td>
+    <td>1 BY</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td colspan="2">PERSON/UNIT NOTIFIED</td>
+    <td colspan="3">S E C</td>
+    <td>PRODUCTION BY OTHER THAN<br/>ISSUING OFFICE IS PROHIBITED</td>
+   </tr>
+  </table>
+
+<table border="1">
+  <thead>
+    <tr>
+      <th colspan="4">ADVANCE COPY ISSUED/SLOTTED</th>
+      <th rowspan="2">BY AT Z</th>
+      <th colspan="2">AGENCY MESSAGE</th>
+    </tr>
+    <tr>
+      <th>ACTION UNIT</th>
+      <th>I</th>
+      <th>N</th>
+      <th>F</th>
+      <!-- This cell is spanned by the first two 'F' columns -->
+      <th>RF.</th>
+      <th>FILE . VR</th>
+    </tr>
+  </thead>
+  <tbody>
+    <tr>
+      <td>WHP</td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td>John Fueser</td>
+      <td>555</td>
+    </tr>
+    <tr>
+      <td>ACTION #</td>
+      <td>685</td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td>Lester</td>
+      <td></td>
+    </tr>
+  </tbody>
+</table>
+
+T 527885
+
+PRECEDENCE
+
+PAGE 21
+
+TOR!1323242 SEP 73
+
+IN 028495
+SAGO 26421
+
+SECRET T 1322332 SEP 73 STAFF
+CITE SANTIAGO 26421
+
+TO: IMMEDIATE DIRECTOR PRIORITY BUENOS AIRES, LA PAZ, BRASILIA,
+BOGOTA, SAN JOSE, SANTO DOMINGO, QUITO, WA/MIAMI, GUATEMALA CITY,
+GEORGETOWN, TEGUCIGALPA, KINGSTON, MEXICO CITY, MANAGUA, PANAMA CITY,
+ASUNCION, LIMA, SAN SALVADOR, MONTEVIDEO, CARACAS, LONDON, PARIS,
+LCPIPIT, BONN,
+
+1. EL MERCURIO, A MAJOR CONSERVATIVE SANTIAGO DAILY, APPEARED TODAY (13 SEPTEMBER) CARRYING FOR MOST PART OFFICIAL DECLARATIONS BY THE CHILEAN JUNTA. THE FOLLOWING EDITORIAL AND ARTICLES, HOWEVER, APPEAR WORTH REPLAYING:
+
+A. MACÍA LA RECUPERACIÓN NACIONAL
+
+CON DISTINTOS LENGUAJES Y CRITERIOS, LAS PERSONALIDADES POLÍTICAS, LOS DIRIGENTES GREMIALES Y LAS INSTITUCIONES HABIAN INFLUYENTES RECLAMABAN UN CAMBIO PROFUNDO EN LA DIRECCIÓN DEL PAÍS. TANTO LA OPINIÓN PUBLIC NACIONAL COMO LA EXTRANJERA HABIAN LLEGADO A LA EVIDENCIA DE QUE CHILE ENTRABA EN UN PROCESO FATAL QUE DEBIA LLEVARLO A LA DICTADURA MARXISTA O A LA GUERRA CIVIL.
+
+LA INTERVENCIÓN DE LAS FUERZAS ARMADAS, VINO EN ESTE CASO A LIBERAR A LA CIUDADANIA DE LA INMINENTE DICTADURA MARXISTA
+
+SECRET
+RECORD COPY
+
+15-124-52
+13 SEP 73

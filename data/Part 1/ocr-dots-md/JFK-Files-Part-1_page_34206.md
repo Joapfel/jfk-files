@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_34206.png
+
+Convert to Markdown"Intrigues about the Tri-Continental Conference".- Ben Barka, the mastermind of the Tri-Continental Conference scheduled for Havana, mysteriously disappeared in Paris. We remember that, when it was thought that this conference would be held in Algeria under Chinese sponsorship, its masterminds, Che Guevara and Ben Bella, disappeared. The character who took up Che's role in this Conference, Ben Barka, now vanishes in Paris. Could it be that what happened to Ben Bella is about to happen to Fidel?
+
+November 3, 1965: "How Abject Can Castro Go!".- In his recent statement to three American and one Spanish journalists, Castro appears arrogant and acts as though he didn't care for an "aggiornamento" with the U.S. However, from the context of his statements it is quite obvious that he would like nothing better than being re-admitted to the Latin American community and getting the blessing of the U.S.
+
+His attitude must have been a terrible disappointment to his followers, who must necessarily see it as evidence that the U.S.F.R. is in full retreat in its economic war with the U.S. over Cuba.
+
+"Reticence That Reveal Insincerity, Caution and Fear".- At last, the Old Guard has spoken out through Carlos Rafael Rodriguez, following the devastating "purge" that it underwent in the hands of Fidel Castro. But fear of a second, bloody phase of the purge has kept Carlos Rafael Rodriguez from openly attacking Fidel Castro.. Instead, he has taken resource to veiled reticence and references to Fidel Castro's "petty-burgeois" past, mixed with insincere praise, in order to make it known that the "classics" of Marxism-Leninism still distrust Fidel. If their differences with the "new wave" are really a thing of the past, why does Old-Guard man Carlos Rafael now bring up the fact that Fidel was not one of them at the beginning, and that he was not a true Marxist-Leninist?
+
+November 4, 1965: "The Reaction to Camaroca: Castro's Resentment and Bitternega".- Castro's vow to let dissatisfied Cubans out was his own error of appreciation. President Johnson took the challenge and then Castro tried to sound out the U.S. for co-existentialist overtures. Hence his rejection of the Red Cross to mediate in the matter. His bitter reaction forbidding the departure from Camaroca shows the extent

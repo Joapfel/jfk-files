@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_34084.png
+
+Convert to Markdown# COFFEE
+
+## Commentary:
+
+The hurricanes during September and October cause considerable damage to the coffee crop, because it is precisely during these two months when the coffee is harvested. Besides the damage to the coffee plants, the hurricane scatters the coffee beans which rot quickly in contact with the wet soil.
+
+Pinar del Río Province: None.
+
+Havana Province: None.
+
+Matanzas Province: None.
+
+Las Villas Province: Coffee production was destroyed. Almost total loss of coffee crop.
+
+Camagüey Province: None.
+
+Oriente Province: The ANAP (National Association of Small Farmers) called all the members of this association to pick up all the coffee crop that was seriously damaged. Until October 1st., in Buey Arriba and Cuisa, 472,000 full-cans of coffee were collected, that represents a 27% of the actual crop, that was calculated in 1,740,000 full-cans. They are sending workers of Jiguani, Santa Rita and Cauto Cristo to Buey Arriba coffee plantation.
+In 'Regional' Baracoa the hurricane Ines ripped the coffee crop.
+In 'Regional' Guantánamo 13,000 full-cans suffered serious damages.
+In 'Regional' Palma-San Luis 122,000 full-cans went to the ground.

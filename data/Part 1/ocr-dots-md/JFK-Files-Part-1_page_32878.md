@@ -1,0 +1,67 @@
+# JFK-Files-Part-1_page_32878.png
+
+Convert to MarkdownORIG: C. TRETTIN:jaf
+UNIT: WH/COG/CICS
+EXT: 5106
+DATE: 14 JUNE 87
+
+<table><tr><td colspan="3">MESSAGE FORM<br>TOTAL COPIES: 19</td></tr><tr><td colspan="2">SECRET</td><td></td></tr></table>
+
+<table><tr><td>CA</td><td>ALAN RAYNE</td><td>JAMES MCGUIGAN</td></tr><tr><td>D</td><td>JOHN D. DOUGHERTY</td><td>WILLIAM H. WILLIAMS</td></tr><tr><td>C</td><td>S</td><td>L</td></tr><tr><td></td><td>10</td><td></td></tr></table>
+
+CABLE SECRETARIAT DISSEMINATION
+
+BY 2/25 P.M.
+
+CONF. JWH/C-5 ☐ RID COPY
+
+INDEX ☐ DESTROY ☐ RETURN TO RS
+
+NC INDEX ☐ FILE IN CS FILE NO.
+
+INFO: FILE . V.R. . CHM5 CHEERS ☑
+
+SECRET
+
+Classified
+
+Date and timebid (efile)
+
+(Reference number) [price]
+
+TO MADRID
+
+INFO: JMWAVE 15 1935 Z
+
+KAPOK TYPIC MHGUILE AMSTALK
+
+REFS: A. MADRID 1697 IN 88634
+B. MADRID 1691 IN 88486
+
+TO ENSURE THAT ALL INFO PERTINENT TO EVALUATION OF AMSTALK-1 OP IS AVAILABLE FOR STUDY AND CONSIDERATION WHEN MADRID PHASE COMPLETED, JERSAWIT SHOULD [STAMP] INCLUDE IN HIS FINAL REPORT A COMPLETE, DETAILED ACCOUNT OF AMSTALK-1'S ACTIVITIES DURING PERIOD HE ALONE IN LISBON AND REASON HIS APPARENT FAILURE HEED [STAMP] INSTRUCTIONS,
+
+END OF MESSAGE
+
+AC/EUR/FR
+
+C/WH/COG/CICS H. Maloney
+EUR/CUBA B.S.amy
+
+WILLIAM W. BROE
+The C/WHD
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tr><td>GROUP 1</td></tr><tr><td>Chief-Station from Automatic<br>Dispatching and<br>Specialist Offices</td></tr></table>
+
+AUTHENTICATING OFFICE
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+COPY NO.
+
+14-0000

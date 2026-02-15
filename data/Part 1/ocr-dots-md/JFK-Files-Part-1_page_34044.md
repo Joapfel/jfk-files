@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_34044.png
+
+Convert to MarkdownThe Miami Herald
+
+22-A Sunday, April 23, 1967
+
+First Work
+Scheduled
+On Capital
+British Honduras
+Plans Inland City
+
+Composed by Our Latin America Staff
+
+BELIZE, British Honduras — Construction on a long awaited new capital in the interior for this British Central American possession is expected to begin within six weeks.
+
+Total cost is estimated at $14 million. It will include roads, drainage, water supply, electricity, sewage disposal, public buildings and 740 houses of various types.
+
+The public buildings will include a legislative assembly building, two multistory government office buildings,
+
+a post office, magistrate's court, 42-bed hospital, two primary schools and one comprehensive secondary school.
+
+The new capital site is about 30 miles inland from the hurricane-susceptible coastal city of Belize where about one third of the territory's 110,000 population lives.
+
+## Grenade Injures 12 In Costa Rica Crowd
+
+SAN JOSE, Costa Rica — A fragmentation grenade thrown into a crowd paying tribute to defeated presidential candidate Daniel Oduber injured 12 persons, including a six-year-old child, police reported Saturday.
+
+Police said three people had been arrested in connection with the grenade blast.
+
+## Argentina Students Lose School Role
+
+BUENOS AIRES — The Argentine military government of Lt. Gen. Juan Carlos Ongania has banned students from ruling bodies of the nine state universities and warned students and professors to stay out of politics.
+
+One-Day Halt OKd In Refused Flights

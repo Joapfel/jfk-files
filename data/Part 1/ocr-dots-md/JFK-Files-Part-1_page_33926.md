@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_33926.png
+
+Convert to Markdown- 14 -
+
+CHICAGO, ILLINOIS
+
+"It is a pleasure to cooperate in your request for prayers starting Sunday, March 23. In fact, we will start tomorrow ... God bless you and your confreres in your work."
+
+OSHKOSH, NEBRASKA
+
+"I appreciate your getting word to them of our interest in their welfare, and believe that such a plan is a real forward step ..." 
+
+CHARLOTTESVILLE, VIRGINIA
+
+"... our church will gladly join you in praying for these our brothers and sisters. I am glad to know that you consider prayer as having a major place in the affairs of the world. ..." 
+
+NEW ORLEANS, LOUISIANA
+
+"Congratulations upon your forward step in seeking cooperation and free- dom through prayer. You may count on us and our two churches ..." 
+
+PEABODY, KANSAS
+
+"We shall take this matter seriously and make it a definite part of the Morning Worship Period ... we shall make PRAYERS FOR FREEDOM a part of our thought." 
+
+ASHVILLE, NORTH CAROLINA
+
+"The student body ... enthusiastically endorse your plan for special prayers ... and will not only participate themselves but will do everything in their power to increase the knowledge of the movement and gain widest participation from others." 
+
+PUTNEY, VERMONT
+
+"The students ... wish to join in this crusade. Beginning on Sunday, March 23, we shall say each day a decade of the Rosary for the intentions you recommend."

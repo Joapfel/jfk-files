@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_34324.png
+
+Convert to Markdown14-0000
+
+U-C Attachment; UFGA-23448
+
+7 Oct 65
+
+# Armadores Europeos Constituyen Comité Contra Discriminaciones que les Hacen en Latinoamérica
+
+LONDRES, septiembre 3 (AFP), los gobiernos a que pertenecen los representantes de los principales países meridicales de Europa han formado un Comité de acción contra la discriminación racional practicada cada vez más sonáneles, en América del Sur en el terreno de los transportes marítimos.
+
+La Camara de Transportes Marítimos del Reino Unido precisó hoy en un comunicado que este Comité, cuya sede se encuentra en Londres, tendía por objeto facilitar las consultas entre los armadores europeos y coordinar su acción a este respecto. El Comité pondrá aislamiento sus SERVICES consultivos a disposición de
+
+los gobiernos a que pertenecen
+los representantes de los al-
+majas mercantes de Europa han
+formado un Comité de acción
+contra la discriminación raciona-
+lista practicada cada vez más so-
+gan ellos, en América del Sur
+en el terreno de los transportes
+marítimos.
+
+El Comité está compuesto por representantes de las compañías marítimas cuyos servicios regulares sirven la América del Sur. Se trata de compañías domiciliadas en Bélgica, Francia, Alemania, Grècia, Italia, Países Bajos, Nueva兹, Suecia y Reino Unido. El comunicado agrega que "elito número de países, tanto de la costa occidental como de la costa oriental de América del Sur, practican discriminaciones bajo una forma u otra, en la elección de los pabellones y que ofertas parecen emprender la adopción de medidas de este género o de control y restricciones supelementarias".
+
+EL UNIVERSAL
+
+CS COPY
+
+19-120-2c

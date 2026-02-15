@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_34123.png
+
+Convert to MarkdownSECRET
+
+-4-
+
+economies. Operationally the Station has these specific projects in mind which are in addition to the normal activities:
+
+a. AMSCROLL will attempt to push further the Station-developed story of the spoiled Cuban lobster with the goal in mind of having it branded of dubious quality in Canada, France, and other countries.
+
+b. The Station has begun its utilization of AMSCROLL to analyze the 1967 sugar harvest. As for the 1966 harvest, AMSCROLL's final projection of the results of the harvest was made on 23 May, some five weeks in advance of the 29 June official Cuban announcement. AMSCROLL predicted a harvest of 4,498,400 tons, only 41,145 tons over the actual figure. We know of no one who came this close. We have observed with interest how such forecasters as Merrill Lynch offered figures that came even closer to the AMSCROLL projections as the final harvest date approached. We hope to repeat this performance for the coming year.
+
+c. At the close of this reporting period the Station began a campaign to discourage Japan-Cuban trade in favor of expanded Japanese trade with other Latin American nations. This campaign has the concurrence of Headquarters and Station Tokyo (DIRECTOR-36495 and TOKYO-9962), AMFRAME-1 and AMSNAKE-1 are being utilized to implement this campaign insofar as Latin American business organizations are concerned.
+
+SECRET

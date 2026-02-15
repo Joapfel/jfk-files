@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_33881.png
+
+Convert to MarkdownSECRET
+
+Subject: Categories of personnel from John H. Corbis) to the effect that all existing personnel of CIA proprietary organizations must have a contract relationship with CIA. The underlying reason for this requirement are (1) general control, (2) security control, and (3) to provide a basis for establishing a legal liability to such personnel in the event of a claim of any kind. It is the view of the 10 Division that the above three requirements could be better and more cleanly met by two agreements between CIA and MIE, rather than by several separate agreements between writing iniviuals and CIA.
+
+The office of the General Counsel, CIA, has indicated informally that there is no legal objection to such an agreement between MIF and CIA. He also concura informally that one contract between MIF and CIA is preferable to several contracts between individuals and CIA.
+
+Recommendation
+
+1. It is therefore recommended that the 10 Division be authorised to negotiate an agreement with MIF in coordination with the office of General Counsel and other CIA units which will incorporate the substance of the provisions in Attachment A.
+
+2. It is also recommended that the DCS or other appropriate GA authority set aside the agency regulation requiring that all writing personnel of proprietary projects be required to execute a contract with CIA.

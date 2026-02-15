@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_34260.png
+
+Convert to Markdownby the government shipping concern "Yazticas" to give Rua all possible cooperation in the fulfillment of his functions. Rua then came to see me and asked, among other things, that I surrender to him the incoming and outgoing mail of certain specific crewmen who were suspected of being against the government.
+
+Another instance of ill-treatment which Cuban seamen resent is the discrimination to which we are subject by the Cuban Customs as compared to the preferential treatment they accord to foreign sailors, particularly those from behind the iron curtain. Most everything we bring from abroad to alleviate the scarcity suffered by our families is confiscated at the Customs House.
+
+Still other reasons for disgust are the many cuts and discounts made from our already low pay and, very especially, the ridiculously low amount of foreign currency that we are allowed when we sail abroad. For spending money in foreign ports, all we get in local currency is the equivalent of $5 per week which, of course, are deducted from our basic salaries. In applying this restriction, no distinction is made between the crewmen or the various officer ranks. It is $5 for everyone.
+
+Because of all this, and because of the terrible conditions under which Communism keeps our homeland, most Cuban sailors and officers are staunch anti-Communists. The Government knows this, but nevertheless they must employ what they call "the reactionaries" because of the scarcity of other trained personnel to man Cuban boats. Their only choice is to spy on us constantly, as I have just explained.
+
+As to the operating conditions of the Cuban merchant fleet, it is worth mentioning that Polish ships, which make up a sizable proportion of Cuban shipping, are supplied with Soviet-made equipment which the Russians have long discarded as obsolete. Again, my own ship is an example. The "Aracelio" was completed as recently as 1963 in a Polish shipyard. Yet, its radar equipment is so obsolete that it is simply not used, since we could never find the parts to repair it when it broke. A German technician told my Chief Mate here that it must have been a World-War II unit.
+
+Excessive bureaucratic red tape and disorganization is another serious problem confronted by Cuban shipping and which often results in considerable damage to those firms that trade with the Castro tyranny. I will illustrate this. The Cuban government agency responsible for arranging maritime transportation for merchandise bought abroad is the "Empresa Cubana de Fletes" (CUFLET).

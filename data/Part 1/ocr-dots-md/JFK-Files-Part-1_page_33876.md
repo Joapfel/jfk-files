@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_33876.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+PROCEDURE
+FOR
+TPHEDIC TRANSFERS
+
+Step 1. a. Facility (TPTOMIC, PILLAR or what have you) sends letter of request to MEDIC.
+
+b. Facility sends certified true copy of request (la.) to IO (via area division involved if not for TPTONIC as set forth in Step 2 below).
+
+Step 2. FOR TPTOMIC only (Includes BGCAKEBOX)
+
+a. IO prepares letter for ADFC's signature, addressed to MEDIC, authorizing MEDIC to transfer funds requested by TONIC to TONIC on basis of la. above if request is in order,
+
+b. MEDIC receives letter of authority (2a.).
+
+c. MEDIC transfers funds to TONIC on basis of 2b. and at the same time prepares a letter of transmittal addressed to TONIC, copy to IO.
+
+d. TONIC, upon receipt of funds from MEDIC (2c.), prepares a letter of acknowledgment addressed to MEDIC, certified true copy to IO.
+
+e. IO prepares letter addressed to CFD, signed by IO, transmitting receipts 2d. together with certified true copy of letter 2a. (See 2f below).
+
+f. IO prepares letter addressed to CFD, signed by CIO, requesting CFD to reimburse MEDIC for the total amount of receipts 2e. Note: Letters 2e and 2f are hand carried to CFD together.
+
+g. CFD, on basis of 2f transfers funds to MEDIC.
+
+h. MEDIC acknowledges receipt of 2g by letter to IO.
+
+Step 3. FOR OTHER THAN TPTOMIC and BGCAKEBOX (after Step 1)
+
+a. Area division authorizes CFD to transfer funds from "XXX" Project to MEDIC for transfer to facility by letter, signed by appropriate area division chief. (Note: This letter comes to IO whose responsibility it is to determine that funds are available in "XXX" Project).

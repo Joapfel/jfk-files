@@ -1,0 +1,58 @@
+# JFK-Files-Part-1_page_33546.png
+
+Convert to MarkdownOUTGOING MESSAGE
+
+<table><tr><td>08-0908</td></tr><tr><td style="border-bottom: 1px solid black;"></td></tr><tr><td style="border-bottom: 1px solid black;"></td></tr><tr><td style="border-bottom: 1px solid black;">■</td></tr><tr><td style="border-bottom: 1px solid black;">■</td></tr><tr><td style="border-bottom: 1px solid black;">■</td></tr></table>
+
+<table><thead><tr><th>ADE</th><th>CO</th><th>ACF</th><th>FCC</th><th>TPS</th><th>MFG</th></tr></thead><tbody><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr></tbody></table>
+
+CLASSIFICATION
+SECRET
+
+MESSAGE HANDLING INDICATOR
+
+DATE-TIME GROUP
+
+STAFF
+
+CONF:
+
+INFO:
+
+FILE
+
+DIRECTOR
+
+GATE
+
+MESSAGE REFERENCE NUMBER
+
+0 INDEX
+0 NO INDEX
+0 RETURN TO PER
+0 IF FILE #
+
+TO REQUISITION AND INTERVENE PRIVATE SECTOR ENTERPRISES AS IT CONSIDERED JUSTIFIED.
+
+3. FILE: 15-1204-52. E 2, IMPDET-A
+
+*INTEND USE (REF B) [SIGN] FUOMEN. PLS IDENTIFY "SOCIAL AREA" PROPERTIES.
+
+**FUOMEN ON ECONOMIC PLANS OF CHILEAN MILITARY JUNTA...
+
+DATE: 22 SEPTEMBER 1973
+ORIG: WILLIAM KENT; DS0
+UNIT: ADC/WH/B
+EXT: 6556/9255
+
+I C/WHD
+
+COORDINATING OFFICE
+
+REPRODUCTIVE BY OTHER THAN THE ISSUING OFFICE IS REQUIRED
+E 2 IMPDET
+
+CLASSIFIED BY:
+CL BY: 057556
+
+C F R T

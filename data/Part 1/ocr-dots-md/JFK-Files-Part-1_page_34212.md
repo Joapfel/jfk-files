@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_34212.png
+
+Convert to Markdown# "HARLA... UNIDAD REVOLUTIONARIA" (W.R.U.L.)
+
+**November 15, 1965:** "Fidel Castro's Grave Sugar Problem".- Following Moscow's promises and instructions, Castro plunged deep into overproduction of sugar in the hope that he would be able to sell the whole crop. Last year he turned out over 6,000,000 tons of sugar and about half of it is still in the warehouses. The Russians never purchased it. This year Castro is blowing his top in face of his dilemma: If he turns out 6.5 million tons, the USSR will not buy it. If he cuts production down, the cane crop will be lost. In face of such a dilemma, he escape to the Sierra Maestra with the doctors and, from there, he puts the blame for all his woes on the U.S.
+
+"Storm Air Blowing on the Turquino".- The rally atop Mt. Turquino became a kind of a requiem for the tyrant's aspirations. He had hoped that the negotiations aimed at evacuating dissatisfied Cubans to the U.S. would pave the way for an 'aggiornamento' with the Americans, but his maneuver has turned on him like a boomerang. So, besides himself with rage, he lashed at the U.S. On top of all this, Cuban patriots showed that they are still active, and that the Malecón Drive is vulnerable to successful commando action.

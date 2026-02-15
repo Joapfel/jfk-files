@@ -1,0 +1,71 @@
+# JFK-Files-Part-1_page_33302.png
+
+Convert to Markdown<table>
+    <tr>
+        <td>771 MFG. 3/74</td>
+        <td></td>
+        <td></td>
+        <td></td>
+        <td></td>
+    </tr>
+    <tr>
+        <td colspan="2">CABLE SEC DISSEMIN BY:</td>
+        <td>PTN</td>
+        <td>TOTAL COPIES: 21-5</td>
+        <td>UN BY:</td>
+    </tr>
+    <tr>
+        <td colspan="2">PERSON/UNIT NOTIFIED:</td>
+        <td colspan="3">SECRET</td>
+    </tr>
+    <tr>
+        <td colspan="5">REPRODUCTION BY OTHER OFFICE IS PROHIBITED</td>
+    </tr>
+    <tr>
+        <td colspan="3">ADVANCE COPY ISSUED SLIPTED</td>
+        <td colspan="2">✓ STAFF</td>
+    </tr>
+    <tr>
+        <td>ACTION UNIT: CWHB</td>
+        <td>I N F O</td>
+        <td>AF. FILE VR</td>
+        <td colspan="2"></td>
+    </tr>
+    <tr>
+        <td></td>
+        <td colspan="4">CHPLAN of SS3 PPO</td>
+    </tr>
+    <tr>
+        <td>ACTION #</td>
+        <td colspan="4">APSL E03 of CILPZ</td>
+    </tr>
+</table>
+
+T 411313
+
+EIA140
+
+PAGE 01
+
+IN 358699
+
+TOR11218062 SEP 74
+
+SAGO 30293
+
+SECRET 121711Z SEP 74 STAFF
+
+CITE SANTIAGO 30293
+
+TO: DIRECTOR,
+
+RUBAT
+
+REFS: A. DIRECTOR 595482
+B. SANTIAGO 30253 (N 35-4910)
+
+1. FOLLOWING STATION AGENTS WERE CONTACTED, PERIOD 8-10 SEPTEMBER, IN CONNECTION WITH REFERENCE REVELATIONS. THEIR COMMENTS AND REACTIONS FOLLOW.
+
+2. FUERMINE-1 CONCERNED BUT RELIEVED THAT NO NAMES WERE MENTIONED. COMMENTED THAT TIMING WAS EXCEPTIONALLY BAD SINCE IT COINCIDED EXACTLY WITH EDUARDO FREI'S ARRIVAL IN THE U.S. AND WE WONDERED WHETHER THIS HAD BEEN DELIBERATE. FUERMINE-1 ASKED WHETHER WE BELIEVED THERE WOULD BE FURTHER INVESTIGATION OR MEDIA PLAY IN THE U.S. REPLIED THAT WE DID NOT KNOW BUT WOULD KEEP HIM INFORMED. HE IS TRAVELING TO GERMANY ON 22 SEPTEMBER AT INVITATION OF INTERNATIONAL COOPERATION INSTITUTE (WEST GERMAN CHRISTIAN DEMOCRATS). DURING HIS TRIP HE WILL CHECK HIS NUMBERED ACCOUNT FOR THE ARRIVAL OF RECENT FUNDS. IN VIEW OF REF DEVELOPMENTS, HE
+
+<table><tbody><tr><td>RECORD COPY</td></tr></tbody></table>

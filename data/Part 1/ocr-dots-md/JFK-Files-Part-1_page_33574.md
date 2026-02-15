@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_33574.png
+
+Convert to MarkdownSoviet side. he replied there had been none since the
+confrontation last year following NOSENKO's arrival in
+this country. We then mentioned the attempts on several
+occasions by NOSENKO's wife and mother to contact him
+through the Embassy in Moscow but added that these attempts
+ceased in March 1964 and nothing has been heard from them
+since.
+
+3. Ambassador Thompson then asked if NOSENKO had provided information which would discredit any American officials. We answered in the negative, pointing out that he had reported on former French and Canadian ambassadors. We later qualified the statement on Americans, pointing out that NOSENKO did provide information on a few Americans of lesser rank as well as private citizens.
+
+4. The DDP then noted that after we reached a point of no return in our interrogations, we might decide that NOSENKO would have to be turned back. Ambassador Thompson expressed concern that the Soviets might use this action to discourage defections. We explained that when we came to the point that a turn-back appeared desirable, we would hope that a statement could be made by the U. S. Government which would establish NOSENKO as a provocateur. The DDP then described the AJOYFUL case in brief terms to Ambassador Thompson, emphasizing the parallel planning and the possibility that a quadripartite statement by the governments might be considered. The DDP did note, however, that AJOYFUL was in British hands and that they have the major responsibility even though we and other security and intelligence services had agreed on the handling of the case. The DDP then noted that in past cases where we had turned back people with intelligence backgrounds at their own request, the Soviets had not made publicity capital of these actions.
+
+5. The earlier mention of our discussions with the FBI recalled to Ambassador Thompson some of the material on Soviet political issues which he has been receiving recently from the FBI. He commented that it was his very strong impression that the information was being fed to us by the Soviets. He said that it either consisted of information we already knew or that which the Soviets would not object to our having. He asked our views on this. The DDP com-

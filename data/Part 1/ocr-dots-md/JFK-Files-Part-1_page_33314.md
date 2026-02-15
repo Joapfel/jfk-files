@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_33314.png
+
+Convert to MarkdownCONFIDENTIAL
+
+November 1972 truck drivers strike (See Note No. 18). Another regulation decrees that stations must interrupt their transmissions whenever the Interior Minister judges it to be necessary in the interest of the internal security of the State. Still another regulation authorizes the Central Bank to control the importation of equipment and spare parts for radio, television, and the press.
+
+The Government moved quickly after the 1970 presidential election to obtain control of key stations. The Socialist Party gained control of Radio Portales, Chile's most popular station, and purchased Radio Corporación from El Mercurio (Portales has subsequently slipped in popularity). The Communist Party purchased Magallenes, an important Santiago station. The Communist Party recently also purchased Radio Simón Bolívar (formerly pro-opposition) in Concepción (as well as four other stations in southern Chile in preparation for the Congressional elections in March 1973). The rightist National Party daily La Tribuna quoted the former owner as saying that "the age of privately-owned mass media (in Chile) is over" with only the Government, strong economic consortiums, and the most powerful political parties capable of sustaining media operations. La Tribuna says the Communist Party is now the most powerful (single) broadcaster in southern Chile.
+
+PDC-oriented Radios Balmaceda and Cooperativa, however, have to date successfully resisted Government enticements and pressures (see Section VI. A. The Opposition-Media Reaction). Balmaceda -- a radio station which over the years had earned a reputation for objective newscasts -- has been the number one target of the UP in the radio field. It has suffered more temporary closures than any radio facility. The station was shut down, for example, 17 hours in June 1971 for broadcasting an alleged "alarmist" report during the State of Emergency decree after the assassination of Perez Zujovic, a former interior minister in the Frei Government. At the same time a UP station, Portales, received nothing more than an admonition for transmitting "alarmist" news more acceptable to UP propagandists. During the August-September 1971 period Radio Balmaceda was shut down on three separate occasions under similar pretexts (see Note No. 10).
+
+CONFIDENTIAL

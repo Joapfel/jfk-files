@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_33732.png
+
+Convert to MarkdownSECRET
+
+January 16, 1957
+
+SUBJECT: Report on Slavik-Jaeger Conference as outlined by Miss Hungary Augustine at January 9, 1957 meeting with State.
+
+From: N.J. Moore
+
+Miss Augustine advised that the Slavik-Jaeger Conference had been placed on the Agenda, as a result of Mr. Vodoler's co-ment (made at a meeting during December, 1951) to the effect that it would be desirable to give encouragement and moral support to the Slavik-Jaeger group.
+
+Miss Augustine explained that Egy had received some encouragement from MTT when (during January 1957) he initially broached his plan for the establishing of an overall international grouping of exiles from Central and Eastern Europe. However, when it became clear to MTT that Egy's group was to be formed on exclusively political party lines, and would be dominated by Agrarian (Peasant) Party leaders and thus, in effect, a duplication of the International Peasant Union and other such organizations already in existence who are already receiving MTT support, that it could not, therefore, be broadly representative. MTT, therefore, indicated to Egy that it could not provide financial support for an organization set upon such a basis. Egy's reaction to MTT's policy was consequently strong and critical.
+
+At about this same time the Slavik-Jaeger group (now known as the Central and Eastern European Conference) began to emerge and to become active. It was composed officially of the so-called "bureaucrats", "diplostates", and "nonpartisan personalities" which were so despised by Egy and his colleagues from the Agrarian parties and other political party leaders who took their cue from the Peasant Party politicians. This new group began actually to meet from time to time to perform prescribed work.
+
+SEFDEC
+JAN 24 1957
+
+*TRANSPARENCY*

@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_34266.png
+
+Convert to Markdown14-0000
+
+<table><tr><td>INDEX: ☐ YES ☐ NO</td><td>19-120-26</td></tr><tr><td colspan="2">CLASSIFIED MESSAGE TOTAL COPIES</td></tr><tr><td>N-REF TO FILE NO.</td><td></td></tr><tr><td>FILE RIOD ☐ RET. TO BRANCH ☐</td><td rowspan="3"></td></tr><tr><td>DESTROY ☐ SIG. Searle</td></tr><tr><td>FROM</td></tr><tr><td>ACTION</td><td>JMWAVE</td></tr><tr><td>WH/C 8</td><td></td></tr><tr><td>FILE, UR, WH8, CAZ, CALPROP, CILC2, NE6</td><td></td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☐ SLIPPED ☐ TUBED</td><td>REPRODUCTION PROHIBITED</td></tr><tr><td>UNIT</td><td>TIME</td><td>DT</td></tr></table>
+
+SECRET 291934Z
+DIR INFO RIOD CTE WAVE 8123
+TYPIC MHSPAWN
+
+REFS: A. DIR 67579 *
+
+B. TM 772926
+C. UFCA 24163
+
+PER PARA TWO REF A REQUEST, JMWAVE POUCHED REF S BULKY MATERIALS TO HOS FOR FORWARDING TO RIOD. SPECIAL AMSCROLL STUDY AND OTHER SELECTED MATERIALS POUCHED RIOD REF C.
+
+SECRET X Requested WAVE CABLE MATERAL
+
+CFN: 8123 67579 772926 24163 A JMWAVE B HOS AMSCROLL C
+
+DT
+
+SECRET
+
+29 DEC 95 11:23371
+
+A151-141

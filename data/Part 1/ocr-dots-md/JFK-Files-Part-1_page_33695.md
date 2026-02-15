@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_33695.png
+
+Convert to MarkdownThe Nazis had long wanted to arrest Milada. Having learned of her work on the new concentration camp at a liberated Czech village, a SS officer suggested to catch her with this technique. One afternoon, in 1945, Gestapo agents brought into her country home and arrested her and her husband.
+
+For Milada had hidden the notes for the proposed constitution in close proximity to her daughter's床. While kissing the child goodbye, she informed the youngster, who later earned the notes,
+
+Milada and her husband were separated, and she was taken to the Gestapo's investigations center, Petchek Palace. Here, even brave men broke under the ruthless questioning. But, though she was questioned often, she was not frightened. Her answers — all lies — seemed so logical to the Gestapo, that she did not believe even one of her co-workers in the resistance.
+
+For 15 months the Gestapo questioned her, slipped her from one prison to another. Never once did she give them the slightest hint of evidence. Not until 1944, when Hitler's armies defeated France and arrested some of her escaped coworkers, did they associate the escape with Milada.
+
+Though forced to work munition factory and ground, labor in a mosquito-infested house and clean house for the Gestapo... Milada never planned Her ready was a constant annuity to the Nazis. Her optimism and hope was a sure encouragement for her low priorities.

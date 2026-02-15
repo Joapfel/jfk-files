@@ -1,0 +1,94 @@
+# JFK-Files-Part-1_page_33502.png
+
+Convert to Markdown14-0000
+
+<table>
+  <tr>
+    <td colspan="2">FORM 30206<br/>:71 MFG. 11/73</td>
+    <td>TOTAL COPIES 25-21</td>
+    <td>RUN BY</td>
+    <td>SECRET</td>
+  </tr>
+  <tr>
+    <td>CABLE SEC DISSEMINATED BY</td>
+    <td>Jill PER</td>
+    <td></td>
+    <td></td>
+    <td></td>
+  </tr>
+  <tr>
+    <td>PERSONal UNIt NOTIFIED</td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+  </tr>
+</table>
+
+REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
+
+STAFF
+
+ACTION UNIT
+
+WILL 7
+
+ACTION *
+
+INFO
+
+DF
+FILE
+
+VR 10/16/73 EUP 8, SSS
+
+<table>
+  <tbody>
+    <tr>
+      <td rowspan="3"></td>
+      <td>1</td>
+      <td>4</td>
+    </tr>
+    <tr>
+      <td>2</td>
+      <td>3</td>
+    </tr>
+    <tr>
+      <td>3</td>
+      <td>6</td>
+    </tr>
+  </tbody>
+</table>
+
+EIA036
+
+TOR:231149Z APR 74
+
+IN 231132
+
+HAM3 24795
+
+SECRET 2309532 APR 74 STAFF
+
+CITE HAMBURG 24795 (SWARZCHILD ACTING)
+
+TO: DIRECTOR INFO BONN, BONN BASE, SANTIAGO.
+
+FUWomen PSYCH CASPECIAL
+
+REF: DIRECTOR 540262:
+
+1. WELCOME RECEIVING SPECIAL BRIEF FOR PURPOSES INDICATED IN REF.
+
+2. RELUCTANT TO LEAVE MEDIA FIELD ON CHILE TO SOVIETS AND THEIR SUPPORTERS. SUGGEST THEREFORE HOS KEEP OPEN MIND ON SELECTIVE PLACEMENTS SHORT OF GENERAL PROPAGANDA SUPPORT OF CHILEAN REGIME.
+
+3. SINCE WOMEN LIKELY TO CONTINUE PLAYING PIVOTAL ROLE IN FURTHER POLITICAL DEVELOPMENTS, BELIEVE THEIR VIEWS AND REACTIONS OUGHT BE GIVEN MORE PLAY. AS AN EXAMPLE. COULD POSSIBLY ENGINEER ARTICLE IN GERMAN MAGAZINE "DER STERN" (CIRCULATION 1,500,000), WHICH THUS FAR IN VANGUARD OF ANTI-JUNTA PROPAGANDA CAMPAIGN.
+
+THROUGH MRS. VERA VACEK.
+
+4. FILE: 15-124-46/3. E2 IMPDET.
+
+<table><tr><td>RECORD COPY</td></tr><tr><td>SECRET</td></tr></table>
+
+15-124-52
+23 Apr 74
