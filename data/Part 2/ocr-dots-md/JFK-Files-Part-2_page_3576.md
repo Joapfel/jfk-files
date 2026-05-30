@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_3576.png
+
+Convert to Markdown2. Venezuela
+
+a. The Communist effort to frustrate the presidential election (1 December) continues.
+
+b. An illegal transmitter was heard yesterday in Caracas calling for a 48-hour general strike and urging listeners to arm themselves against the Betancourt government.
+
+c. Roving bands of Communist-led terrorists sought to enforce the generally unsuccessful strike with gunfire. There were at least nine deaths (some reports go as high as 19). Guerrilla activity in rural areas is also being stepped up.
+
+d. The government has jailed an added 200 extremists in the wake of yesterday's violence and plans are afoot to detain 1,500 more.
+
+e. The army is being held in reserve in the Caracas area. (Includes Intercepts)
+
+3. South Vietnam
+
+a. Ton That Dinh, whom we had earlier identified as the least reliable of the generals' group, is trying to use his position as security minister to build himself an independent political base.
+
+(Cont'd)

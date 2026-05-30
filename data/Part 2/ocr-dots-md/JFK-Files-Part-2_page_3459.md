@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_3459.png
+
+Convert to MarkdownSEP.28.1998
+
+3:37PM A
+
+how many of these files were on US citizens. Total count
+was 1,018 files on Americans.
+
+-- March 1976: All (41 linear feet) Golitsyn file material held in records center has been recalled and a review begun. In May six more feet were acquired from SE.
+
+-- July: CI/R&A Index currently contains about 255,000 cards, down over 11,000 in last ten months.
+
+-- August: Golitsyn material has now been consolidated; about 15 linear feet have been destroyed.
+
+-- September: Approximately 40,000 cards were destroyed; they duplicated a more complete index maintained by SE/CI.
+
+-- October: CI/R&A index has been purged of all cards duplicated in DO main index--over 12,000 cards were removed and destroyed.
+
+-- February 1977: Four ISG analysts were assigned to R&A to assist in the processing and integration of CI Staff records into the DO central system.
+
+The "HONETOL" files appalled the new CI staff in their numbers and, as they were read, their scope and the hollowness of the reeds upon which they had been built.*
+
+HONETOL had not yet become notorious to the outside world,
+but inside it was perceived as a problem of major
+proportions. If, on the one hand, these files actually
+
+* The term "HONETOL" meant Golitsyn leads to a penetration of the United States--CIA as well as other US institutions. This led to two kinds of files: the leads themselves, as Golitsyn provided and described them (e.g., a file on the lead "Sasha"); and files on suspects, i.e., persons suspected of being the subject of a lead. Actual leads were very few; suspects were very many.

@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_6425.png
+
+Convert to Markdown6. Excerpts from 202-10002-10117
+
+January 31, 1964
+
+"A Contingency Plan for a Coup in Cuba"

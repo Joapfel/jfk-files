@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_4205.png
+
+Convert to Markdown25 November 1963
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: South Vietnam Situation
+
+ATTENDANCE: The President, Secretaries Rusk, McNamara, Ball, Messrs. Bundy and McCone, Ambassador Lodge
+
+1. Ambassador Lodge reported that the change in government had been an improvement, that he was hopeful over the outlook, that he expected a speedup of the war, he thought by February or March we would see marked progress. Lodge stated that we were not involved in the coup, though we put pressures on the South Vietnamese government to change its course and those pressures, most particularly on indications of withdrawal by 1965, encouraged the coup. Lodge stated that there were indications that North Vietnam might be interested in arrangements which would be of a nature satisfactory to us. He did not elaborate. He that that everybody was very happy after the coup and showed some pictures of the crowds in Saigon. He mentioned that Gen. Don would be here and that those talking with him should influence him to put on all the pressure he could. He spoke most highly of the Papal delegate and his intention to see the Pope on Wednesday. He carried with him a letter from the Papal Delegate and also from the Bishop of Saigon, apparently praising the actions in upsetting the Diem government. Lodge said he saw dangers of an anti-Christian move and this was his purpose in seeing the Pope. He made a point that Bishop Thuc had engaged in serious persecutions involving the imprisonment of a great many people, including three Catholic priests. He also made the point that Can, Diem's brother, also engaged in a variety of activities of persecution and the execution of individuals and that Can had, on his own premises, a burial ground for his victims. Lodge said that we were in no way responsible for the death of Diem and Nhu, that had they followed his advice, they would be alive today. He said that he saved Can from assassination and that Bishop Thuc was out of Saigon under orders from the Papal delegate. (Note: I question whether the Papal delegate can order a Bishop out of a country.) The tone of Ambassador Lodge's statements were optimistic, hopeful, and left the President with the impression that we are on the road to victory.
+
+The Department or state has no objection to the
+release or declassification of this document in full
+under the provisions of the JFK Assassination Records
+Collection Act of 1992 (PL102-526)
+
+Reviewed on 9/22/98 Mo. I am not sure if it is original. I see CHA's effect on this.

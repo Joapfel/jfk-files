@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_7956.png
+
+Convert to Markdown13-00000
+
+Dr. Julius Mader
+Author and editor
+Editor of "Who's Who in CIA"
+
+Mauerstrasse 69
+1066 Berlin W 66
+
+Dear Sirs:
+
+I take this opportunity of offering you:
+
+"Yellow List: Where Is the CIA?"
+
+("Gelbe Liste: Wo ist die CIA")
+
+This book presents for the first time anywhere in the world a documentation in alphabetical order of more than 400 disguised or subsidised organisations and institutions of the US civilian and military intelligence network in North, Central and South America, Europe, Africa and Asia.
+
+The "Yellow List" is available either in the English or German language.
+
+The price per copy, inclusive of air mail postal costs, is $2.00 (or the corresponding amount in other currencies at present exchange rates). The book will be sent to you immediately upon receipt of your order blank and check.
+
+I would be grateful if you would mention this publication of topical interest to others as well.

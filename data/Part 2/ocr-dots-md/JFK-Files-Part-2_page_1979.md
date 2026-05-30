@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_1979.png
+
+Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+
+DATE: 21 August 1945
+
+TO : Miss K. Haller, X-2
+
+FROM : OSS Draft Deferment Committee
+
+SUBJECT:
+
+The local Board has notified us as follows:
+
+James Arthur Noel Class 2-A Eff. Aug. 1, 1945 until Indefinitely
+
+14-0000

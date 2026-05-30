@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_3231.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+also pointedly reveal the inconsistencies of his statements." Following receipt of this call from the Deputy Director, Esterline passed the word on to Dave Phillips with the comment that he thought perhaps such broadcasts might be used as filler during the intervals when Swan was not doing its regular broadcasts.* 16/
+
+By early August 1960, however, the official policy for the Swan propaganda broadcasts aimed at Cuba, was to be "the Revolution Betrayed." This theme was formalized by the Department of State; and at the direction of the Secretary of State, copies of a 105 page document addressed to this theme were presented to members of the National Security Council, to members of the Inter-American Peace Committee, and to US Embassies in the Latin American countries.
+
+* COS Havana forwarded another suggestion for a possible propaganda attack on Castro based on a May 1960 issue of Confidential magazine, which apparently carried an article called "An American Mother's Terrifying Story -- Fidel Castro Raped my Teenage Daughter." It was COS Havana's suggestion that wide publicity be given to this article in the Spanish language, presumably including broadcasts from Radio Swan. 17/ Available records do not indicate whether this suggestion was adopted.

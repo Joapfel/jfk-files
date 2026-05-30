@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_7100.png
+
+Convert to MarkdownSECRET
+
+NO FOREIGN DISSEM
+
+ANNEX
+
+Country-by-Country Rundown on Cuban Subversion
+
+1. Argentina
+
+Clandestine reporting for the past year confirms that the Cubans are cooperating with small extremist Peronist groups in an attempt to establish a coordinated subversive effort in Argentina. Extreme-left wing Peronists (such as John William Cooke, American Barrios,ilio Gallego, and Hector Valilalon) have been in close liaison with Cuban agents (in Havana, Madrid, and elsewhere). Gallego appears to be the principal support agent of a group of Argentine terrorists and left-wing Peronists believed to be directed and supported by the Cuban embassy and Montevideo.
+
+Last January, Gallego traveled to the provinces of Jujuy and Salta, near the Bolivian border where Argentine police discovered pro-Castro guerrilla camps in March. Some guerrillas who were arrested in that raid are known to have had guerrilla warfare training in Cuba. Among the propaganda items found at these camps was a book written by Jorge Ricardo Masetti, who was in Cuba in 1963 as a director of Prensa Latina. He is thought to be "Commandante Segundo" and is probably in charge of the small guerrilla bands discovered in northern Argentina in March and April. One of the FAL rifles found in the hands of the guerrillas possessed the same specifications as those found in the 1 November Venezuelan arms cache. It is believed to be of Cuban origin.
+
+According to land resistance sources, more than 500 Argentines have received political indoctrination on subversive training in Cuba since 1960. At least 222 Argentines traveled to Cuba in 1963-26, traveled to Cuba from January through April 1964.
+
+2. Bolivia
+
+Cuban subversive activity in Bolivia has been centered on attempts to strengthen pro-Castro sentiment among the followers of extremist Vice
+
+-1-
+
+NO FOREIGN DISSEM
+
+SECRET-

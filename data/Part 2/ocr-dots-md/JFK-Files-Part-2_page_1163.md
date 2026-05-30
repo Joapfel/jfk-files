@@ -1,0 +1,6 @@
+# JFK-Files-Part-2_page_1163.png
+
+Convert to MarkdownContinuation of Section C, Fitness Report, attachment
+to HABT-2892, 22 May 1964
+
+Subject's rapport with his agents and other contacts appears to be excellent, which is doubtless an important element in his continuing success with his projects. Subject is responsive to guidance and direction and when after full discussion a course of action is agreed upon, he can be counted upon to take action within the agreed limits.

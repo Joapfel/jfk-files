@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_7321.png
+
+Convert to Markdown13-00000
+
+SUBJECT: GUIDELINES FOR MEMBERS OF THE SELECT COMMITTEE AND THEIR STAFFS WHILE TRAVELING ABROAD
+
+There have been already and there will continue to be members of the Senate Select Committee (SSC) who wish to travel abroad and talk to U.S. embassy and intelligence personnel. It is essential that we agree on guidelines to avoid serious diplomatic and security problems. The following specific guidelines are applicable.
+
+I. MEMBERS AND STAFF OF THE SSC SHOULD NOT PUBLICLY APPEAR TO BE ABROAD FOR THE PURPOSE OF INVESTIGATING U.S. INTELLIGENCE INSTALLATIONS.
+
+Most of these installations, including all CIA stations abroad, for example, are under some form of cover, or are maintaining a low profile. Certainly all have and need varying degrees of protection from exposure. At one extreme are U.S. intelligence activities behind the iron curtain. These clearly need maximum protection. Their mere visit of SSC representatives could be noted as evidence of U.S. intelligence presence within the country. Even in those countries where U.S. intelligence efforts enjoy the shielding and other benefits flowing from close liaison with the host government, care is required to avoid the potentially grave political repercussions that
+
+25 June - latest version, incorporating proposed changes by DoD.

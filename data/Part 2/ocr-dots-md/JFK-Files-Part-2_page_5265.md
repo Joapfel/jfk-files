@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_5265.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+SUBJECT: Courtesy Visit of JFK Assassination Records Review Board, 16 October 1996
+
+DCI/CSI/HRG/JPereira:bas/30373 (8 Oct 96)
+
+Distribution:
+
+Original - Addressee (w/atts)
+1 - Executive Registry (w/atts)
+1 - Executive Director (w/atts)
+1 - D/CSI (w/atts)
+1 - C/HRG (w/atts)
+1 - CSI/Chrono (w/atts)
+1 - HRG file (w/atts)

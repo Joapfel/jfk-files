@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_4139.png
+
+Convert to MarkdownSECRET
+
+2.
+
+2. On the morning of the 19th of July the under-signed called Mr. Bundy and confirmed this fact and said that a field message now indicated the possibility of an internal sabotage operation to take place on the 26th. Mr. Bundy said that such an operation would be perfectly acceptable and that the only bar was on "across water" operations. Mr. Bundy also added that Higher Authority asked him to convey to us the fact that Higher Authority, in reaching the decision to postpone, was well aware of the morale problem that might result among the Agency case officers and therefore had considerable difficulty in reaching the decision. Mr. Bundy authorized the undersigned to quote Higher Authority accordingly to any staff personnel concerned and to add that Higher Authority retains his enthusiasm and interest in the program.
+
+Desmond Fitzgerald
+Chief, Special Affairs Staff
+
+SECRET

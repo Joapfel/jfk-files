@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_3148.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+be added to the 158 who were then on duty -- making a new total of 198.
+
+Although Mr. Bissell approved the recommended increment, he nonetheless wrote a memorandum to C. Tracy Barnes, the ADDP/A, suggesting that Barnes and Dick Helms (surprisingly) take a close look at the JMATE staffing pattern to see if there were areas of duplication, particularly between the field bases and Headquarters. The DDP suggested that in the areas of FI and PM there might be slots in either the Forward Operations Base in Miami or in JMOARSMAN -- the Panama Training Site -- where possibly the staffs could be transferred during slack periods to conduct similar operations in other parts of the JMATE operation.* 127/
+
+* Lest the reader be confused by the term "Forward Operations Base," this was the JMWAVE activity in the Miami area, which continued to operate subsequent to the Bay of Pigs. At the same time that the Bay of Pigs operation was getting under way, there was considerable emphasis from various individuals in Headquarters for establishment of a "Forward Command Post," which also might be located in the Miami area, possibly in the communications complex. Some even suggested the possibility of establishing a sub-command post in a third country. In any event, no Forward Command Post was established. 128/

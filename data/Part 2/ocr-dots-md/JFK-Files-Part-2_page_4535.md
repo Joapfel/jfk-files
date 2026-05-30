@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_4535.png
+
+Convert to Markdown2 July 1960
+
+TO : C/WH/4
+
+Subject: Khrushchev Visit to Cuba
+
+1. **Background.** An invitation to visit Cuba has been extended to Khrushchev by the Government of Cuba. The invitation has been accepted, but do definite time has been set. There has been some speculation that Khrushchev would arrive in Havana in time for the celebrations of the 26th of July. The press has reported that he will arrive in August (a date confirmed by a statement of the Soviet Ambassador in Mexico). Other reports say the visit will not take place for several months, probably in December or January. In any event we must plan for the possibility of the July visit.
+
+It has been stated from several sanguine quarters that we should "do the same thing to Khrushchev that the Japs did to Eisenhower". This is a completely unrealistic dream.
+
+It is true that a successful Khrushchev visit to Cuba would be the final stone in the construction of a solid Soviet base in Cuba, with disturbing overtones for the possible construction for more Soviet ideological bases in all of Latin America. For that reason we are trying to do what we can to prevent the visit, or at least to show a massive ml opposition to it.
+
+2. **ExploitationPlans.** On 21 June Hqs sent a cable to Havana asking for views on possibility of a major effort to force cancellation of the visit. A resulting series of cables shows that the station and headquarters are now in agreement that our best hope lies in
+
+a. A massive Church manifestation or rally, which though called for some other purpose, would be to the people of Cuba an obvious way to express their protest. And
+
+b. from outside Cuba, instigating of rumors that Khrushchev's life will be in danger if from a well-planned assassination attempt.
+
+3. Mr. Helms has told us that he wants CIA to undertake no action that will imperil Station assets. This injunction was placed on us while we were exchanging cables with Havana. The result is that station assets are actively instigating the church to hold the rally. A cable from Headquarters has instructed the station to continue this course of action as long as there is "safety in numbers", i.e., as long as it is a church action rather than an AMPALM one.

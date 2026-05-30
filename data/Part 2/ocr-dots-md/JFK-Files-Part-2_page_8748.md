@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_8748.png
+
+Convert to Markdown13-00000
+
+Czech. to be head of political police of Cuba.
+Reportedly took refuge in Brazilian Embassy Havana
+which appeared to be cover-up to carry on secret
+activity. Attended school in U.S. for several years
+(believed to be military school in Georgia) and to
+be a graduate of the University of Havana. His
+father reportedly lived in Miami at this time (1962).
+An uncle by the same name, living in Cuba in 1962,
+is a graduate of the U.S. Naval Academy. In 1962
+DIAZ was head of the Department of Technical
+Investigation (DTI) of the Rebel Army. A known
+terrorist, he is said to be capable of use of
+explosive bombs and automatic weapons. Is believed
+to have directed assassinations in the past from
+somewhere in Mexico. A good friend of Rolando CUBELA.
+
+MEXI 0092 (IN 26086) Dated 10 February 1962
+
+According to [Mexico immigration] records, MARGOLLES and ARAGONES arrived Mexico City by air on 27 June 1957 as political refugees from Batista regime. Both sought political asylum in Mexican Embassy Havana in mid-1957.
+
+MEMO For The Secret Service from William McClare
+---
+Dated 13 February 1962
+---
+
+Gives summary of information on Raul DIAZ Arguelles.

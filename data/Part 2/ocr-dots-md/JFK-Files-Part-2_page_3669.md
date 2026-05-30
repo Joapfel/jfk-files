@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_3669.png
+
+Convert to Markdown6. Cambodia
+
+a. Sihanouk has signed an accord setting up regular air service between Cambodia and Communist China. A similar agreement with Hanoi is in the works.
+
+b. These lines are significant largely as gestures by Peiping and Hanoi to bolster Sihanouk's sense of importance. Neither would be a paying proposition commercially and both could flounder before the first paying passenger enplanes unless rights to overfly Laos can be obtained. (Includes INTERCEPTS)
+
+7. Greece
+
+a. It looks more and more as if Papandreou, who squeaked through to a narrow upset victory over ex-premier Karamanlis in the 3 November elections, will not be able to form a government.
+
+(Cont'd)

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_2266.png
+
+Convert to MarkdownSECR LT
+
+12 October 1960
+
+(Date)
+
+MEMORANDUM FOR: Chief, Records & Services Division,
+Office of Personnel
+
+THROUGH
+Security Support Division,
+Office of Security
+
+SUBJLCT: O'NEAL, Birch D.
+
+1. Cover arrangements have been completed for the above named subject who will be visiting a foreign country for a 30 day TOY trip.
+
+2. Effective 21 October 1956, it is requested that your records be properly (blocked) (as described above) to (deny) (subsequently) subject's current Agency employment by an external inquirer.
+
+JOH H. STONEELL
+Chief, official Cover & Liaison, CCB
+
+CC: 33D/03
+
+SECRET
+
+THIS MEMO MUST BE SEALED ON TOP OF FILE

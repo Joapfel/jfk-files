@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_4053.png
+
+Convert to MarkdownFP 65-951
+
+# ALLEGED CONNECTION WITH LEE HARVEY OSWALD
+
+On December 19, 1963, the subject advised Special Agents of the El Paso Office of the FBI that "for the record" he would like to say that his association with LEE HARVEY OSWALD was purely social and that he had met OSWALD in Mexico City and in Texas. NAGELL refused to comment further regarding this matter.
+
+On January 2, 1964, the subject advised a Secret Service Agent and a Special Agent of the FBI in El Paso, Texas, that he had been acquainted with MARINA, the wife of LEE HARVEY OSWALD. Subject further pointed out that OSWALD was having marital difficulties with MARINA. The subject stated that he knew "certain things" in the Fort Worth-Dallas area. He said he wanted to let the Secret Service know that someone like OSWALD was in that area, however, he knew nothing of OSWALD's intention to assassinate the President. The subject stated that the requests made by prisoners in the El Paso County Jail for interviews were at times honored and at other times they were not.
+
+The above interview was conducted with the subject in response to a request made by this subject to be interviewed by a Secret Service Agent. The Secret Service Agent was introduced to NAGELL and he attempted to interview NAGELL, however, NAGELL stated that the information he originally desired to report to the Secret Service was "too late now."
+
+On January 23, 1964, an Agent of the United States Secret Service, El Paso, Texas, advised that an Agent of the United States Secret Service in Dallas, Texas, had displayed a photograph of the subject to Mrs. MARINA OSWALD, wife of LEE HARVEY OSWALD, on January 18, 1964. This photograph was taken of the subject on September 21, 1963, at the El Paso County Sheriff's Office. Mrs. MARINA OSWALD carefully

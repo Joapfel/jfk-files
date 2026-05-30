@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_3080.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+activity would "take the longest to become a usable asset." 46/ The most important difference between these papers and the covert action plan presented by Dulles was that the Financial Annex showed a sharp, upward increase in the anticipated costs for FY '61 -- from $1.6-1.7 million to $3.5 million -- with the heaviest increment coming in terms of the proposed paramilitary operation. The sum for PM operations was revised from an estimated $500,000 in Dulles's 14 March presentation to a total of $1.3 million for that same year.
+
+From the time Allen Dulles enunciated the covert action plan (14 March) until President Eisenhower approved it (17 March), there was an interesting bit of bi-play between the National Security Council and the Special Group 5412. One of the principal concerns of the National Security Council was the proper US response should the Cubans try to intervene or interfere with operations of the Naval base at Guantanamo Bay, including a possible takeover of the Base. On 16 March 1960, after Gordon Gray had been fully apprised of the proposed plan for covert action submitted by Allen Dulles, Gray was the recipient of a briefing

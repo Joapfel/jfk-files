@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_8439.png
+
+Convert to MarkdownSECRET
+
+-45-
+
+June 1968: Clara (Cuban maid) said that they didn't iron the sheets here. Clara does not iron much, but Mercedes helps with the washing and ironing. They send most of the things to the laundry, especially the things that need ironing (like shirts).
+
+Mercedes also helps Clara in the kitchen some.
+
+Baker: August 1968: Mercedes says she worries, but knows it won't solve anything, so doesn't let herself suffer.
+
+Mercedes' attitude toward Mexico:
+
+1968: She believed that Cubans in Mexico had to be careful of themselves and their children as there was personal risk because they are Cubans.
+
+She doesn't like Mexico because of the high robbery rate, the fact that children are "stolen" and disappear.
+
+She complains about the poverty in Mexico, especially in the small pueblos, the fact the people go barefoot, beg, about the poverty in general.
+
+Mercedes thinks that when one reaches 35 years old, you are on the downhill.
+
+c. What are feelings about family when they are separated?
+
+Mercedes claims to miss Cruz when he is away. She says she is lonely.
+
+December 1968: When Jesus was in Guadalajara, apparently to a cultural event, he called Mercedes to see about the family, and to leave messages for the office. He told her he would call her every evening--collect.
+
+SECRET

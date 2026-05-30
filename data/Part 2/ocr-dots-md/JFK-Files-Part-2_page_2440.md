@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_2440.png
+
+Convert to MarkdownSECRET
+
+Director, Domestic Contact Service
+
+21 September 1970
+
+ATTN: OSS (Gusculin)
+
+HII-160-70
+
+Chief, Miami Field Office
+
+Miniature Transmitters
+
+RFFS : HII-145-70
+Your Speed Letter of 3 September 1970
+
+1. On 21 Sep 70 Mr. George Wackenhut, President Wackenhut Protection Systems of Coral Gables, Florida invited me to a demonstration of a new device his company has developed, which may be of some interest to us and other Government agencies. The device involves a small transmitter, dimensions about 1/2" x 3/4", or less than the size of a half pack of cigarettes.
+
+2. The transmitter can be used to track vehicles as well as persons. If used in a car reception varies from 2 - 3 miles in major high-mile metropolitan areas such as New York, to 5 - 6 miles in Miami. The central station could monitor a fleet of cars and determine where a given vehicle is.
+
+3. If the transmitter is carried on a person, as in a heel, it would only have a range of 3/4 - 1 mile, but if carried at the waist it would have 1 1/2 - 2 miles. If worn at the line of sight it would have a range of 8 - 10 miles.
+
+4. The transmitter is operated on 40 millisecond and is on the air 1 second of 5. Its output can not be picked by an AT/AM receiver and the batteries are standard mercury batteries which last 7 - 10 days.
+
+5. The equipment was recently tested by the Los Angeles Police Department and a car with the transmitter was located in a 60-foot deep, three-layer parking garage in Los Angeles.
+
+6. Some printed material describing the equipment is appended as of possible interest to TSD and other selected consumers.
+
+7. FYI: Electrominders, Inc. is a wholly-owned subsidiary of Wackenhut,
+
+JFG:nby
+
+Attachment: Printed Material As Stated
+
+<table><tr><td>DCM-1</td></tr></table>

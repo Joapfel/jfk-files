@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_7300.png
+
+Convert to MarkdownSECRET
+
+SENSITIVE
+
+## CATEGORY II
+
+1. SOUTH AFRICA: In 1959, after consultation with the Special Group, the DCI approved an overall expenditure of $165,000 to a leading South African political figure designed to encourage the creation of a new political party. This party was established in 1960. The objective was to influence the liberalization of the South African Government by having a legally constituted party in opposition to apartheid. The activity was terminated in 1962.
+
+2. SOUTH AFRICA: A project was initiated in 1962 to encourage the development of a multiracial trade union organization which opposed apartheid. It was funded through a European philanthropic organization. State Department approval was received in June 1963. A total of $311,705 was spent on this activity. The project was terminated in 1968.
+
+3. KOREA: In 1963, the Special Group approved a covert action project designed to encourage "emerging civilian government" vis-a-vis the military leadership following President Rhee's resignation and in anticipation of forthcoming elections; it proposed to support a group of National Assembly members.
+
+4. KOREA: The Special Group approved in 1967 a project designed to support a private, rural self-help organization to encourage more participation by rural farmers in local and national politics to increase their influence on the Government of the Republic of Korea; it involved the creation of agricultural training centers in rural villages, a newsletter and student rural services. It was terminated in 1970 as a project, but the movement has been continued under the auspices of the government.
+
+5. ARGENTINA: Between 1950 and 1955, efforts of the CIA were directed at countering Peron's program to obtain wide support in Latin America for his Movement of Latin American Trade Unionists (ATLAS) which was designed as one element of his campaign to expand his influence in the area. Partially as the result of CIA's efforts, the movement never caught on and it was abandoned with Peron's ouster from power.
+
+6. BRAZIL: From the early 1960's through the ouster of Goulart and the assumption of power by the conservative Brazilian military, to 1972, CIA supported a rural cooperative movement in the impoverished Northeast. This support was provided in spite of strong opposition to the movement first by the Goulart government and then by Brazilian military authorities in that area and in spite of the effect particularly after 1974 on liaison and diplomatic relations if this support by the USG were discovered. The project was terminated in 1972.

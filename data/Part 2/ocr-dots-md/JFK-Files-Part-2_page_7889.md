@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_7889.png
+
+Convert to Markdown13-00000
+
+UNITED STATES GOVERNMENT
+Memorandum
+
+TO : Mr. Rosen
+
+FROM : C. L. McGowan
+
+SUBJECT: MURKIN
+
+DATE: April 10, 1968
+
+1 - Mr. Rosen
+1 - Mr. Malley
+1 - Mr. McGowan
+1 - Mr. Long
+
+This is the matter involving the assassination of Dr. Martin Luther King.
+
+Liaison advised of the receipt of information from Richard Helms, Director of CIA, that one Robert Kramer was a possible suspect. According to information furnished by Howard Osborn, Director of Security of CIA, Kramer, who is a doctor, has been a source of trouble to CIA for some time. Only recently Mr. Helms received a very cryptic telegram from Kramer. In reviewing Kramer's file, they noted a photograph which bears a very strong resemblance to recent pictures of artist drawings of the killer which have appeared in local papers. The likeness was so striking that Mr. Helms thought it should be brought to the attention of the FBI immediately.
+
+ACTION:
+
+Senior Resident Agent Jesse Hall, Alexandria, Virginia, was telephonically contacted and instructed to obtain full details from the files of CIA Headquarters at Langley, Virginia, together with all background information on Kramer, as well as a photograph, so that this matter could be thoroughly checked out.
+
+CRM:mcs
+
+(5)
+
+REC-31
+
+12 APR 16 1968

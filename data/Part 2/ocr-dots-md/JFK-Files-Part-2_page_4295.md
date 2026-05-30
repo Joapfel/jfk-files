@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_4295.png
+
+Convert to Markdown18 July 1963
+
+MEMORANDUM FOR RECORD
+
+SUBJECT: Minutes of Special Group Meeting, 18 July 1963
+
+PRESENT: Mr. Bundy, Mr. Johnson, Mr. Gilpatric, and Mr. McCone
+
+Colonel King was present for Item 2.
+Mr. FitzGerald was present for Item 3.
+Mr. Sheldon was present for Item 4.
+
+1. Re reconnaissance 98
+
+Mr. McCone reported that during the last week no high-performance missions were flown in the Far East, due to bad weather.
+
+2. Haiti - Political Action 96
+
+Mr. McCone and Colonel King reported that the following changes have taken place in the Haitian picture since the Special Group approved, on June 20th, the proposal to reach a covert understanding with President Bosch on the use of Haitian exiles in the Dominican Republic. The developments are:
+
+a. It has been demonstrated that these exiles are of very little use, because of insecurity, lack of cohesive purpose or of adequate leadership, etc.
+
+b. President Bosch has now decided that he is unwilling to allow such an exile force to use his country as a base for military operations against Duvalier.
+
+c. Duvalier's own capabilities have improved greatly, due to such things as: the widespread purge of potentially-dissident Army officers; clearance of the border areas; and, most recently, the elimination of the Barbot brothers.
+
+Colonel King said that everyone concerned with the project agrees that Duvalier must be removed in some manner or other. However, in light of the factors mentioned above, operating elements have concluded that the existing plan is unworkable, and that it is best to switch to a different kind of operation. This would include in the first instance, training of selected exiles in intelligence collection, in communications, and in cross-border operations. Such training

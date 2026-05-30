@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_3302.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+don't even know the rest of these guys --
+Hart, Escalante, etc. <u>18</u>/<u>19</u>
+
+By way of summarizing, it would appear that CIA's official anti-Castro program as reflected in Project JMATE did not include assassination as an integral part of its operational planning, but would not have been averse to eliminating Castro or other of the Cuban leaders if the opportunity had been afforded.
+
+Based on records, however, WH/4's principals were in no way privy to, or participants in, the Mafia assassination planning at the time of the Bay of Pigs.

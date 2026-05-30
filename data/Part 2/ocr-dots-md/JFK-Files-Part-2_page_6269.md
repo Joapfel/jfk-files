@@ -1,0 +1,61 @@
+# JFK-Files-Part-2_page_6269.png
+
+Convert to MarkdownCIA SPECIAL COLLECTIONS
+RELEASE IN FULL
+2000
+
+FOR OFFICIAL USE ONLY
+
+28 Sep 94
+
+BRIEFING OUTLINE (For JFK Board)
+
+INTRODUCTION: Discuss review process for JFK records
+Walk-through look at documents
+Possible demonstration of indexing (Gloria)
+
+1. Overview of CIA's approach to review of JFK records
+
+a. How the original "core" file was organized
+
+b. How CIA identified additional records
+
+- Oswald 201 file
+
+- Search request in 1993
+
+2. Overview of CIA filing system (which include JFK records)
+Issue of operational files
+
+3. Organization of the effort
+
+- Staff (from attached data sheet)
+
+- Steps in the review process:
+
+-- Reviewers
+
+-- Senior reviewers provided guidance
+
+-- Coordinated with directorates
+
+-- Coordinated with third agencies
+
+3b Description of records under review
+
+- Condition of records
+
+  - poor quality
+
+  - not organized
+
+  - lots of duplicates
+
+  - large number of press items
+
+- Sequestered documents (64 boxes, 127,000 pages)
+Oswald 201 file (17 boxes, 35,000 pages)
+
+- Gates released a pre-assassination file on Oswald to Congress in 1992
+
+- Microfilm (1 of 64 boxes, 72 reels, 164,000 pages)

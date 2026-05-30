@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_6362.png
+
+Convert to MarkdownTo: C/HRG
+
+Subject: OGC's comments on proposed JFK regulations.
+
+Bob's comments should be included in our response to the Board, however, not as he has recommended. The language and tone is very different and does not inserted well into existing text; I think his comments will work better as a separate paragraph or as an addendum.
+
+Barry

@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_5235.png
+
+Convert to MarkdownNOV. 07 '97 10:31AM
+
+AIVO
+
+Classification of Material Transmitted
+
+HISTORICAL REVIEW GROUP
+CENTER FOR THE STUDY OF INTELLIGENCE
+
+Phone # 703-613-1806
+
+PLEASE DELIVER IMMEDIATELY
+
+CLASSIFIED FAX
+
+SUBJECT: JFK
+
+FROM: John Pereira x 31805-
+
+SENDING FAX NO. 703-613-3060
+
+DELIVER TO: Becky Strode, EXDIR OFFICE
+
+RECEIVING FAX NO. 703-734-1819
+
+DATE TRANSMITTED: 11/7 PAGES TRANSMITTED: 5-
+(including cover sheet)
+
+TRANSMITTED BY: Barbara
+
+MESSAGE:
+
+Becky, this is info you requested on JFK
+
+AIVO
+
+Classification of Material Transmitted

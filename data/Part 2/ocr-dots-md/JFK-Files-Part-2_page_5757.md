@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_5757.png
+
+Convert to MarkdownRobert M. McNamara, Jr., Esq.
+
+July 15, 1998
+
+to resolve definitively how those record groups will be handled.
+
+## 5. Completion of CIA Responses to Review Board Requests
+
+We have identified certain Review Board requests for additional information (both formal and informal) for which responses are still due from CIA. We understand that some outstanding responses are in draft form or otherwise nearing completion. CIA's completion of all outstanding responses is an essential aspect of its compliance with the JFK Act. We identified the following responses due from CIA (certain priority items are listed first):
+
+### Priority Responses Due
+
+- Accounting of Pre-Assassination Files on Oswald (partial response received) [CIA-16]
+
+- Accounting of James Angleton Files [CIA-IR-04]
+
+- Accounting of Electronic "Take" from Mexico City [CIA-IR-15]
+
+- Possible Foreign Source for Oswald Records [CIA-IR-05]
+
+- Possible IG reports re Oswald [CIA-IR-10]
+
+- Files on Warren Commission Critics [CIA-IR-11]
+
+- S. Breckenridge Files [CIA-IR-14]
+
+### Other Responses Due
+
+- Intelligence Community Staff Records [CIA-8]
+
+- Interagency Source Register [CIA-10]
+
+- Computer Search for HTLINGUAL Documents [CIA-IR-03]
+
+- QKENCHANT [CIA-IR-06]
+
+- Contacts with Journalists [CIA-IR-12]

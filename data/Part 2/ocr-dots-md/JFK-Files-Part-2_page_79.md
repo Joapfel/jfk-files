@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_79.png
+
+Convert to Markdown33. Court record - court, date, arrests, charges, punishments,
+sentences, acquittals, denazification, etc.
+
+3a. Description (Use American standards of measurement, if possible.)
+
+Age 53
+
+Posture Straight
+
+Apparent age 50
+
+Weight 195
+
+Height 5'-7 4/5'
+
+Teeth Golden
+
+Eyes Brown
+
+Hair Brown
+
+Face - shape Oval
+
+Boars On left cheek base
+
+Complexion White
+
+Build Slender
+
+Sex Male
+
+General appearance
+
+Prominent features
+
+Other identifying features
+
+35. Other miscellaneous biographical data and comments.

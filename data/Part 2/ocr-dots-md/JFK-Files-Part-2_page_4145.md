@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_4145.png
+
+Convert to Markdownoverthrow Castro. General LeMay wondered why we did not use
+bombings. There was also a discussion of Navy and Air Force
+programs to protect raiders in international waters and in the
+event of hot pursuit. It was agreed that further planning would be
+conducted.
+
+5. John Warner has reviewed the record of recent congressional debates on the test ban treaty and finds 13 senators made reference to you. No one criticized you. Senators Pastore, Humphrey, and Anderson praised you.
+
+6. John Warner has prepared a recommendation based on his reading that our standing in Congress is currently on the decline. He suggests that you meet privately with such members as Russell, Saltonstall, Vinson, and Arends to seek advice and develop a strategy for public statements by these members and other Subcommittee members.
+
+7. Mr. Kirkpatrick has forwarded a memorandum on efforts to obtain a replacement for Colonel Grogan.
+
+8. Dick Helms has forwarded a memorandum of his briefing of the Bureau of Budget officials on the Agency's covert action programs. McGeorge Bundy attended and offered 2 opinions: (a) that there be a regular annual briefing of the Special Group on covert operations as a whole, and (b) that during the present period of apparent detente there might well be very good reasons for investing even greater resources in covert actions.
+
+9. John Bross has forwarded a memorandum for the record on your meeting with Generals Carter, Blake, and Carroll about personnel security. Bross is presently drafting a memorandum to the Secretary of Defense on this subject which is being reviewed by Houston and Bannerman.

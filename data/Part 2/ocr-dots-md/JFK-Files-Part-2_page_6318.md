@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_6318.png
+
+Convert to MarkdownDRAFT
+
+(1) Records policies and schedules;
+
+(2) Filing systems and organization;
+
+(3) Storage facilities and locations;
+
+(4) Indexing symbols, marks, codes, instructions, guidelines, methods and procedures;
+
+(5) Search methods and procedures used in the performance of the agencies' duties under the ARCA; and
+
+(6) Reclassification to a higher level, transfer, destruction, or other information (e.g., theft) regarding the status of assassination records.
+
+(f) Any other record that does not fall within the scope of assassination record as described in §1400.1, but which has the potential to enhance, enrich, and broaden the historical record of the assassination.
+
+§1400.3 Sources of assassination records and additional records and information.
+
+Assassination records and additional records and information may be located at, or under the control of, without limitation:
+
+(a) Agencies, offices, and entities of the executive, legislative, and judicial branches of the federal government;
+
+(b) Agencies, offices, and entities of the executive, legislative, and judicial branches of state and local governments;

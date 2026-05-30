@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_636.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td colspan="3">INSTRUCTION SHEET</td><td>DATE<br/>14 DEC 1966</td><td>CASE NO.: 201-798301</td></tr><tr><td>SET UP FOR POA</td><td>EXPEDITE INDICES</td><td>DATE</td><td>EXPEDITE FSI INDICES</td><td>DATE</td></tr><tr><td>SET UP FOR OA</td><td>SPECIAL INQUIRY</td><td>CLIENT NAME CHECK</td><td>AREA</td><td></td></tr><tr><td colspan="5">ISSUE OPERATIONAL APPROVAL</td></tr><tr><td colspan="5">ISSUE PROVISIONAL OPERATIONAL APPROVAL</td></tr><tr><td colspan="5">EXTEND POA FOR DAYS UNTIL</td></tr><tr><td colspan="5">REINSTATE POA FOR DAYS UNTIL</td></tr><tr><td colspan="5">FORWARD ATTACHMENT TO DIVISION</td></tr><tr><td rowspan="2">FORWARD TO SECURITY OFFICE</td><td colspan="2">ATTACHMENT</td><td rowspan="2">REVIEW SECURITY OFFICE REPORT AT CI/OA</td><td rowspan="2"></td></tr><tr><td>PRO I</td><td></td></tr><tr><td colspan="3">CANCEL PER DIVISION MEMO DATED (No notice to Division)</td><td colspan="2">REVIEW AT CI/OA<br/>FNI REPORT<br/>LEFLITTER REPORT</td></tr><tr><td colspan="3">CANCEL PER CI/DA NOTICE TO DIVISION (Reason checked below, or see remarks)</td><td colspan="2">REQUEST REVIEW OF ATTACHED REFERENCE; ADVISE CI/DA OF NATURE AND SIGNIFICANCE</td></tr><tr><td colspan="3">REQUEST RI TRACES</td><td colspan="2">✓ FILE aH.</td></tr><tr><td colspan="3">REQUEST OPERATIONAL AND DIVISION TRACES</td><td colspan="2">TICKLE</td></tr><tr><td colspan="3">REQUEST FIELD TRACES</td><td colspan="2">NOTICE FIRST SECOND FINAL</td></tr><tr><td rowspan="2">REQUEST</td><td colspan="2">PRO I</td><td colspan="2">OTHER</td></tr><tr><td colspan="2">PRO II</td><td colspan="2"></td></tr><tr><td colspan="5">POA EXPIRED _______. PLEASE SUBMIT PRO II. IF, WITHIN 30 DAYS, NO FURTHER INTEREST IN SUBJECT HAS BEEN INDICATED, POA WILL BE AUTOMATICALLY CANCELLED.</td></tr><tr><td colspan="5">FAILURE TO SUBMIT PRO II AS REQUIRED UNDER CSI NO. 10-5 OR TO INDICATE ANY FURTHER INTEREST IN OBTAINING APPROVAL FOR THE OPERATIONAL USE OF SUBJECT.</td></tr><tr><td colspan="5">REMARKS<br/>To: WH/I<br/>Care closed for failure to comply.<br/>J.B. Edward P. Brodie</td></tr><tr><td colspan="3"></td><td colspan="2"><table><tbody><tr><td>JOB H. Brodie</td></tr></tbody></table></td></tr><tr><td colspan="3">SIGNATURE</td><td colspan="2">□ ccc</td></tr></table>
+
+FORM 7-63 707 SECRET
+
+SECRET
+
+(23)

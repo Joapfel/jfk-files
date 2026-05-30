@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_4015.png
+
+Convert to MarkdownEP 65-951
+
+officers of the Los Angeles Police Department during the
+course of his investigations, he had been suspended on
+June 8, 1962, and later, on June 22, 1962, had been
+dismissed.
+
+He mentioned that on July 15, 1962, "while making a meet" between Malibu and Oxnard, he had been shot in the chest. In connection with this latter incident, he exhibited a brief newspaper clipping which mentioned that he had refused completely to identify his assailants or furnish information which would assist the police in identifying and locating the person or persons involved.
+
+He stated further that on August 6, 1962, he had withdrawn his request for a hearing so that he could get the money which he alleged was due him from the State of California, consisting of $800.00 retirement contributions and $300.00 for unused accumulated leave.
+
+He stated that he felt he had been "let down" by the United States Government, both in the United States and during the time he had been in Mexico. He stated that representatives of the United States Government could have assisted him in obtaining his money from the State of California, but were only interested in soliciting from him information concerning hoodlums and other lawless elements, for the giving of which information he "could get his head blown off." He stated that he felt he had been let down by the United States Government in Mexico because nothing had been done by the Embassy in regard to his requests to have it assist him in collecting this money, which he alleged was due him from the State of California. He said that he himself had sent letters to California asking for payment of this money.
+
+By way of further background, he claimed to have served in the United States Army from August 5, 1948, (then 18 years old) until October 29, 1959, and had held the rank of Captain between the ages of 22 and 29. He stated that he had received an honorable discharge and had been wounded
+
+11.

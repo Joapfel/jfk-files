@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_3420.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY DIRECTOR FOR SCIENCE AND TECHNOLOGY
+
+Revised: 10 October 1939 (482)
+
+59909 10-68 CIA
+
+13-00000
+
+ORGANIZATION
+
+DATED
+
+HR 1, fig. 3
+
+RECIPIENT
+DATE 10 FEB 79 HR 1-1109 3
+REVISION 10-08 HR S-871
+STATUS ~~REVISED~~ HR S-871
+
+<table><tr><td>Revised: 10 October 1939</td></tr></table>

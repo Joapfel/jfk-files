@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_505.png
+
+Convert to Markdown14-0000
+
+MESSAGE FORM
+TOTAL COPIES:
+
+<table><tr><td>ONE: Marvin Francis:lg</td></tr><tr><td>UNIT: WH/1/3E04</td></tr><tr><td>EXT: 6924</td></tr><tr><td>DATE: 11 July 1968</td></tr></table>
+
+<table><thead><tr><th colspan="2">BOUTING AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>1</td><td>8</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>6</td></tr><tr><td>4</td><td>5</td></tr><tr><td>5</td><td>10</td></tr></tbody></table>
+
+CABLE SECRETARIAL DISSEMINATION
+
+BY ZK PER G
+
+COMP: WH 8 ☐
+
+<table><tr><td>X INDEX</td><td>☐ DESTROY</td><td>☐ RETURN TO _________</td><td>BRANCH</td><td>☐ FILE ID</td></tr><tr><td>☐ NO INDEX</td><td>☑ FILS IN C8 FILE NO. 201-798301</td><td></td><td></td><td></td></tr><tr><td colspan="5"><b>INFO:</b> xref 5C-9-11 201-218342<br/>FILE V2 MAN, cysls, cltA</td></tr><tr><td>(classification)</td><td>(date and time limit)</td><td>(elapse)</td><td>(picc)</td><td>(reference number)</td></tr></table>
+
+SECRET
+
+TO MEXICO CITY INFO GUATEMALA CITY
+
+REFS: A. MEXICO CITY 6223 (IN 47056)*
+
+B. GUATEMALA CITY 9236 (IN 47690)**
+
+CITE DIRECTOR: 798301
+
+1122 06z Jul 68
+
+12 JUL 1968
+
+1. HQS FILES INDICATE ARTURO SERRANO IN 1966 WAS DIRECTOR PCM PUBLISHING HOUSE FONDO DE CULTURA IN MEXICO CITY, BUT THERE NO DETAILS RE HIS CONTACTS WITH THIRD COUNTRY EXILES OR OFFICIALS, WE THEREFORE UNABLE COMMENT ON VALIDITY HIS CLAIM TO ASSIST LIRING/3.
+
+2. CONCUR GUATEMALA CITY COMMENT REF B. FEEL LIRING/4 SHOULD CONTINUE PRESS SERRANO FOR MORE DETAILS HIS CHANNEL TO AND IDENTITY OF GUATEMALAN OFFICIALS INVOLVED. BELIEVE LIRING/4 AND STATION WILL THEN BE IN BETTER POSITION TO ASSESS VALIDITY SERRANO CLAIM. SUGGEST LIRING/4 ALSO CHECK SERRANO STORY WITH LEFTIST CIRCLE OF FRIENDS TO ATTEMPT VERIFY IT AND EXPLORE POSSIBLE SOURCES OF FUNDS IF FEASIBLE. STATION
+
+RELAYSING OFFICE
+
+COORDINATING OFFICES
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tr><td>GROUP I<br/>Included from automatic<br/>recording機 and<br/>FM RECORDER.</td></tr></table>
+
+AUTHENTICATING
+OFFICE
+
+COPY NO.:
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

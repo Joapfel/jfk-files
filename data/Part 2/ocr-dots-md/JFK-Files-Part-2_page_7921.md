@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_7921.png
+
+Convert to MarkdownFORM 3966 (20)
+
+☐ UNCLASSIFIED ☐ CONFIDENTIAL ☐ SECRET ☐ TOP SECRET
+
+SIGNATURE OF REVIEWING OFFICER & OFFICE
+
+Document No.
+(To be completed by ISS/PICG)
+
+E 2 IMPDET CL BY:

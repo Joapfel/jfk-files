@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_2099.png
+
+Convert to MarkdownSECRET
+
+4 June 1952
+
+MEMORANDUM FOR: Chief, Liaison Control, OSO
+SUBJECT: Integration of James A. NOEL
+
+1. On 20 March 1952 the Department of State was requested to integrate Mr. James A. NOEL for assignment as Chief of the OSO station at Caracas, Venezuela. It is understood that Mr. Noel's papers are still in process at the Department.
+
+2. This Division has now been informed that the medical staff of CIA will not approve an overseas assignment for Mr. Noel until 1 August 1952. At that time Mr. NOEL will undergo another physical examination and if results are satisfactory he will be certified as fit for overseas duty.
+
+3. In order to avoid cancellation of Mr. NOEL's appointment, it is requested that the Department of State be asked not to call Mr. NOEL to enter on duty until advised by OSO that he is certified for overseas duty and ready to proceed to his Caracas assignment, subject to State's concurrence. It is anticipated that this will occur about 1 August 1952, or shortly thereafter.
+
+J. C. King
+Chief, Western Hemisphere
+
+SECRET!

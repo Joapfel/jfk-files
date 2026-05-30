@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_334.png
+
+Convert to MarkdownSECRET
+
+9 DEC 68 56646
+
+PARA ONE REF LIRING 2 SHOULD BE LIRING 3.
+
+SECRET
+
+BT
+
+SECRET

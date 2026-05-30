@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_5823.png
+
+Convert to Markdownfamiliar that might have relevance to the Board's review..."
+(EB OIM 98-02-See Tab 4).
+
+Finally, and in a separate tasking, all directorates
+were asked to assure that searches undertaken were
+sufficient to enable a directorate representative to provide
+a certification of compliance with the JFK Act, and that the
+DCI's Bulletin had been forwarded to all directorate
+employees. (See Tab 5).

@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_8956.png
+
+Convert to MarkdownCertain of the discrepancies noted in the previous summary Source #1 and Source #2 between information from Source #1 and Source #2 and from NOSENKO have been clarified and certain discrepancies could not be clarified. In some instances the information from Source #1 and Source #2 is adjudged to be inaccurate. The judgment is based on the hearsay nature of the reporting by Source #1 and Source #2 and measured against the absence of any reason to question this part of his life as related by NOSENKO. Examples are information from Source #1 that NOSENKO had been
+
+5

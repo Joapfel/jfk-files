@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_488.png
+
+Convert to MarkdownSECRE
+
+SECRET
+
+1. N.Y.C. CITY 7971 SECRET
+2. 4 KNOWLEDGE KNOX MATTER.
+3. SETTLEMENTS
+4. SECRETS
+
+SECRET

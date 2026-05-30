@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_3602.png
+
+Convert to Markdownd. The coup group has not thrown all Baathists out of the government; there are party members in the new cabinet.
+
+e. Syrian Baathists have welcomed this retention of their Iraqi brothers. Their attitude springs from the recognition that the Baath in Syria cannot stay afloat without support from Iraq. Even so, we hear talk of coup plotting in Damascus.
+
+f. The reaction of Nasir's Egypt, which passionately desires to see the Baath go under, has been exactly the opposite. Cairo has been backing off its all-out support for the coup ever since the new cabinet was announced.
+(Includes INTERCEPTS)
+
+For The President Only - Top Secret

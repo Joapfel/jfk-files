@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_7324.png
+
+Convert to Markdownwould be to run an unacceptable risk. Moreover, serious damage would be done to agent morale and motivation if their identity were to be revealed to Members or staff of the SSC.
+
+V. MEMBERS OF HOST COUNTRY INTELLIGENCE OR SECURITY SERVICES WILL BE CONTACTED ONLY IN EXCEPTIONAL CASES.
+
+Many foreign intelligence services will find contact with the SSC politically difficult and will avoid it. They further regard that their relationships with U.S. intelligence activities, the information they pass, and the cooperation extended are all most sensitive matters. Regardless what assurances are given them, they would find it difficult and awkward to discuss these matters with members or staff of the SSC. The very fact that such matters were under investigation could well cause the host service to reassess the desirability of a relationship with U.S. intelligence activities.
+
+VI. MEMBERS AND STAFF OF THE SSC SHOULD NOT VISIT FOREIGN TECHNICAL INTELLIGENCE INSTALLATIONS.
+
+In those countries in which we operate joint technical collection sites, the host would be firmly opposed to access by U.S. Congressional representatives, especially where there is public knowledge of the Congressional investigating interests. If such

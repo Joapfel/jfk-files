@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_2525.png
+
+Convert to Markdown14-00000
+
+SECRET
+
+20 DEC 1977
+
+CI 659-77
+
+MEMORANDUM FOR: Chief, Contract Personnel Division
+FROM : B. Hugh Tovar
+Chief, Counterintelligence Staff
+THROUGH : Chief, Career Management Staff
+Manpower and Support Branch/Contract
+SUBJECT : Contract Amendment for
+George Martin Rosnek
+
+1. **Action Requested:** It is requested that the contract for Mr. George Martin Rosnek, an Independent Contractor, be amended effective as of 1 January 1978 to pay him $50.00 per month for the use of his private living quarters as an office. It is also requested that Mr. Rosnek's contract be amended to include the interest payments on a car that he purchased so that he could be ready and available for work when we request him.
+
+2. **Background:** When CI Staff assumed responsibility for Mr. Rosnek in July 1976, we noted that the Office of Security had an informal arrangement by which it reimbursed Mr. Rosnek $50.00 per month for the use of his private quarters as office space. It is now requested that this arrangement be incorporated into Mr. Rosnek's contract.
+
+On 7 February 1977 former Chief CI Staff agreed to reimburse Mr. Rosnek for the interest payments on a car which he purchased so that he would be ready and available for work when we needed him. The monthly interest charge as of December 1977 is slightly less than $39.00 and it is
+
+E2 IMPDET
+CL BY 012208
+
+SECRET

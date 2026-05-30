@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_4184.png
+
+Convert to MarkdownMEMORANDUM FOR THE RECORD
+
+SUBJECT: Meeting at the White House 19 December 1963
+PRESENT: The President
+
+The State Department: Under Secretary George W. Ball, Deputy Under Secretary U. Alexis Johnson, Ambassador at Large Llewellyn Thompson, Assistant Secretary for Inter-American Affairs Edwin Martin, Coordinator of Cuban Affairs John H. Crimmins.
+
+The Defense Department: Deputy Secretary Roswell Gilpatrick, Secretary of the Army Cyrus Vance.
+
+Joint Chiefs of Staff: General Wheeler.
+
+USIA: Deputy Director Donald M. Wilson.
+
+The Treasury Department: Secretary Douglas Dillon.
+
+The White House Staff: Executive Assistant to the President McGeorge Bundy, Messrs. George Reedy and Williams Moyers. and Gordon Chase.
+
+CIA: General Marshall S. Carter, Messrs. Richard Helms and Desmond FitzGerald.
+
+1. The President arrived at the meeting approximately five minutes early -- prior to the arrival of several members of the group including Mr. Bundy. Without a formal introduction I commenced the scheduled briefing on the Agency Cuban program at the urging of the President and despite the activities of the Presidential photographer.
+
+2. The President appeared interested in the number of agents inside Cuba but made no particular comment concerning the program until the subject of economic denial was introduced. He asked to be told what additional measures could be taken to step up the denial program. I said that the
+
+<table><tr><td>Excludes the following:</td></tr><tr><td>Cities listed and</td></tr><tr><td>Coastlines</td></tr></table>

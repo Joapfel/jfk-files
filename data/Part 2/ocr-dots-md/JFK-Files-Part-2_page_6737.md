@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_6737.png
+
+Convert to Markdown13-00000
+
+The Honorable John Conyers, Jr.
+
+SUBJECT: Agency Records on the JFK Assassination
+
+OCA/LEG/DMPearline:rw 23 April 1992 (OCA 1123-92)
+(OCA 1123-92/1)
+(OCA 1123-92/2)
+
+Original - Addressee (w/enclos)
+
+1 - DCI
+
+1 - DDCI
+
+1 - ExDir
+
+1 - ER
+
+1 - D/OCA (w/enclos)
+
+1 - DMPearline Signer (w/enclos)
+
+1 - OCA/LEG Subject File (w/enclos)
+
+1 - OCA Record (w/enclos)
+
+1 - D/Center for the Study of Intelligence (w/enclos)

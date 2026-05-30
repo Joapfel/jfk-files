@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_900.png
+
+Convert to MarkdownConfirmation of Section B:
+
+Specific Duty No. 3
+
+collection techniques applicable to the PRC.
+
+Specific Duty No. 4
+
+KUDOV'S elements, particularly the Japanese Liaison Staff.

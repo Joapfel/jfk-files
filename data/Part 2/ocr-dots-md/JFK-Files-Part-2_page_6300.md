@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_6300.png
+
+Convert to Markdown# ADMINISTRATIVE - INTERNAL USE ONLY
+
+24 February 1997
+
+**MEMORANDUM FOR:**
+
+Richard Flynn @ DI
+Teresa Wilcox @ DST
+Kathryn Dyer
+
+**FROM:** J. Barry Harrelson
+CSI/HRG, JFK Project Officer
+
+**SUBJECT:** Records Briefing for ARRB Staff
+
+**REFERENCE:** ARRB letter to DCI, dtd. 27 November, 1997, RE CIA Compliance with the JFK Assassination Records Collection Act.
+
+1. The JFK Board (ARRB) staff has requested briefings by records "specialists" on the Agency's records systems as part of the compliance with the JFK Act process (see reference). The first DO briefing took place on 12 February. The DA briefing and a follow-up DO briefing is planned for early March. I would like to set up the remaining briefings as soon as possible.
+
+2. The ARRB staffers are very familiar with agency documents and have had several general briefings on Agency records; one member of the staff is a former Agency employee (CTC). These "compliance" briefings should focus on what files would have existed in the 1958-63 time period and how we search, or account for, those records today. The ARRB requests you have been working on give you some sense of the type of information they are interested in. In addition I am faxing a copy of the "talking points" prepared for the DO briefing. I have also ask Jeremy Gunn, ARRB General Counsel, to provide a list of directorate specific topics.
+
+3. The briefing can take place at HQ or at IP. The ARRB attendees will include Mr. Gunn and 4 or 5 members of the Board's CIA team; all are fully cleared (SCI). I have asked Mr. Gunn to provide a list of dates when he and his staff would be available. I will forward the list to you as soon as I receive it. Thank you for your assistance in setting up these briefings. If you have any questions, please give me a call on extension 31825.
+
+**CC:** John Pereira
+
+ADMINISTRATIVE - INTERNAL USE ONLY

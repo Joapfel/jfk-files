@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_2548.png
+
+Convert to Markdown14-0000
+
+Bruce A. BERTOTALLY
+
+Dear Mr. BERTOTALLY
+
+Reference is made to your contract with the United States Government, as represented by the Contracting Officer, effective 1 March 1970, as amended.
+
+Effective 16 February 1977 paragraph four (4) entitled "Compensation" is amended by authorizing you a one-time, lump sum, taxable payment in the amount of $2,100.
+
+All other terms and conditions of the contract, as amended, remain in full force and effect.
+
+UNITED STATES GOVERNMENT
+
+BY Charles W. Holding
+Contracting Officer
+
+Certified to be a true copy of the signed original which is on file in CI Staff.
+
+Huth J. Malecki
+Personnel Officer
+
+MICROFILMED
+
+JULY 1977
+
+ADMINISTRATIVE
+INTERNAL USE ONLY -

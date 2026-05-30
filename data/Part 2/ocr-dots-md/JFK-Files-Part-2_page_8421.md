@@ -1,0 +1,205 @@
+# JFK-Files-Part-2_page_8421.png
+
+Convert to MarkdownSECRET
+
+-27-
+
+Professor Barón of Liceo-Franco Mexicano met Cruz at an Embassy reception. He called Cruz because he had a friend who wanted to go to Cuba. Cruz had some books and publications he thought might interest Baron. Cruz was invited to Baron's home. Phone 562-37-46.
+
+23 July 1968: Mrs. Marta Tamayo tried to reach Mercedes de Cruz.
+
+24 August 1968: One Carlos Perez, believed to be from Prensa Latina, was trying desperately to reach Jesus at home.
+
+September 1968: One "Maruja" was calling Cruz at home. She said they would meet "at the same time and place agreed on".
+
+September 1968: One Sylvia called and left word she would meet Cruz for Sunday breakfast at Sanborns on Durango. (May be clandestine contact)
+
+February 1968: Sanchez McGregor of the University of Puebla, was receiving packages of university material from Cuba via Cruz. (LIENVOY)
+
+May 1968: Ma. Teresa Chagoya, of the Asociacion de la Juventud de Oaxaca, stopped by the Embassy to see Cruz.
+
+Sr. Bernard Diederich (P-3851), Life/Time correspondent in Mexico, was invited by Cruz to a film showing at the Embassy.
+
+Jorge Godoy of the Teatro Coyoacan, borrows film from Cruz.
+
+October 1968: maid said Mercedes went to lunch with some newsmen.
+
+Jaime Casillas of AMEX assigned Habana, has been in touch with Cruz.
+
+January 1969: Cruz was contacted by Carlos REBOLLEDO in Caracas. Rebolledo is from the Departamento de Cine, the University of Merida, Venezuela. They discussed Casa de las Americas matter. (MEXICO CITY 8828)
+
+SECRET
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T
+
+S E C R E T

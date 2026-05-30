@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_3241.png
+
+Convert to MarkdownTOP SECRET
+
+one instance, the Hammer and Sickle was used to form
+the 'T' in the word *Traidor* on a sticker that was
+being prepared for propaganda use. <u>30</u>/ In anticipa-
+tion of the possible visit, 10,000 stickers of an
+anti-Khrushchev, anti-Soviet nature were forwarded
+from Headquarters to Havana Station. The legend
+on one of these was "Cuba, Yes; Russia, No; Khrushchev,
+No;" and a second item showed a prisoner behind bars
+formed by the stripes of the Cuban flag with the words
+Sin Palabras -- "Without words."* <u>31</u>/<u>
+
+Despite these advanced preparations, no oppor-
+tunity was presented to utilize the propaganda stickers.**
+Although both Castro and Khrushchev were in attendance
+at the 15th General Assembly of the United Nations in
+New York, 19-28 September 1960, and even though Castro
+flew out of New York in an Aeroflot jet, the Khrushchev
+visit did not materialize at this time.***
+
+* See following two pages for copies.
+
+** More detailed information on propaganda leaflets and the dissemination of such materials by air drop is given in Volume I of this history, Air Operations.
+
+*** Khrushchev flew from New York directly to Moscow at the close of the UN session. On 22 October 1960 in the course of an interview in Moscow with a Cuban journalist Khrushchev did state that he wanted to visit Cuba and its people as soon as possible. 3la/

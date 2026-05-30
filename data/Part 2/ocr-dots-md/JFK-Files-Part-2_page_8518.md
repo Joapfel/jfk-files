@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_8518.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+3. The following items, all of which relate to matters of concern to Africa Division, also remain classified:
+
+Item 41, Page 6
+Exemption 5(B)(2)(3)
+
+Item 42, Page 65a
+Exemption 5(B) (2) (3)
+
+Item 47, Page 71
+Exemption 5(B) (2) (3)
+
+Item 48, Page 71a
+Exemption 5(B) (2) (3)
+
+Item 55, Page 80
+Exemption 5(B) (2)
+
+Item 130, Page 133
+Exemption 5(B) (2)
+
+Item 170, Page 189
+Exemption 5(B) (2) (3)
+
+Item 197, Page 218
+Exemption 5(B) (1) (2) (3)
+
+Item 198, Page 219
+Exemption 5(B) (1) (2) (3)
+
+Item 301, Page 427
+Exemption 5(B) (1) (2) (3)
+
+Item 339, Page 509
+Exemption 5(B) (1) (2) (3)
+
+4. Items 283, 284, 286, 287, 287a, 288, 290 and 291 pertain to National Security Council proceedings.
+
+Mr. William Edmondson, Deputy Assistant Secretary of State for African Affairs, and Mr. Paul Henze, National Security Council staff, have been informed by telephone this date that CIA will refuse the request of the attorney of Mr. Marchetti and Mr. Marks to declassify these items.
+
+/s/ EDWARD J. FOY, JR.
+Edward J. Foy, Jr.

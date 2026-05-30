@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_5241.png
+
+Convert to Markdown13-00000
+
+NOV. 26.1997 12:52PM
+
+SECRET
+
+Judge Tunheim
+
+clearly illustrates the purpose behind the Director's statutory obligation to protect intelligence methods from unnecessary and inappropriate disclosure.
+
+(S) No other cover mechanism can provide our officers the operational utility and personal security that State Department cover does. Achieving effective cover requires that our officers be fully integrated into State Department entities, offices, and functions. Our officers are routinely assigned State Department duties to make it harder for hostile services and others who might try to harm or expose our officers to identify them as Agency employees. Official acknowledgment of even the fact of Agency use of State Department cover would increase dramatically the risks that both Agency officers and our State Department colleagues encounter in serving US interests around the world.
+
+(S) State Department cover continues to be an important intelligence method. Its use is undiminished since the 1960s, and it will remain essential for the foreseeable future. I urge the Board to reconsider its recent decision insofar as it concerns the Agency's use of State Department cover. In this regard, we will be forwarding a more comprehensive memorandum addressing the damage issue prior to the next Board meeting, and we would also like to offer the Board the opportunity for a personal appearance by a senior CIA representative should that be appropriate.
+
+David W. Carey
+
+2
+
+SECRET

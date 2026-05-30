@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_8740.png
+
+Convert to Markdownwas sunk.
+
+15 Nov 63 - had information that Cuban defense forces were on the alert and possibly forewarned of upcoming operations.
+
+23 Nov 63 - sabotage operation against sawmill postponed indefinitely.
+
+## AMLISP Project 19-6-59/3
+
+SW Message #352 dated 24 January 1964, from AMLISP-1 reported an attempt on life of Fidel CASTRO that failed because one of the conspirators talked. Was to have been carried out at meal in Jagua Castle. Many persons in Cienfuegos allegedly were executed.
+
+SW Message # 44 dated 18 March 1964 to AMLISP-1 Agency requirements were sent to asset for more details on all assassination attempts and plots against CASTRO by civilians or disaffected military.
+
+SW Message #390 dated 14 March 1964 from AMLISP-1 Reported conversation with a Cuban military officer who said "they can prepare it (a coup d'etat) but when its ready the government will pull the string and squash it, because everything was under control." It is unknown whether this information was sent to the FBI or other agencies.

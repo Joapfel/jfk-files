@@ -1,0 +1,81 @@
+# JFK-Files-Part-2_page_8076.png
+
+Convert to MarkdownAPPEALS REVIEW FORM
+
+Tab-52 contains Dispatch UFGA-29877 dated 11 Apr. 1968.
+
+( ) Previously denied in toto under exemption(s) of
+
+(X) Segregable portions previously released; excised portions exempted under (a)(1), (b)(2), (c)(3) of FOIA.
+
+( ) Located during the DDO appeals review.
+
+( ) Referred to DDO for review by ________________________.
+
+Further description, identification, comments, and/or referrals, etc.
+
+I RECOMMEND:
+
+( ) Sustain initial denial in toto under exemption(s) _______________________________ of ____________
+
+( ) ADD exemption(s) _________________________________________________________________
+
+( ) DROP exemption(s) _________________________________________________________________
+
+( ) Sustain initial release of sanitized version with excised portions exempted under _________________________________ of ____________.
+
+( ) ADD exemption(s) _________________________________________________________________
+
+( ) DROP exemption(s) _________________________________________________________________
+
+(X) Release additional information with excised portions exempted under (a)(1) (b) (c) (d) of FOIA.
+
+( ) Deny document in toto under exemption(s) _________________________________ of ____________
+
+( ) Release a sanitized version with excised portions exempted under (a)(1) (b) (c) (d) of ____________.
+
+The exemptions cited above are being claimed to protect the following:
+
+( ) Information from a foreign liaison service
+
+( ) Information pertaining to a foreign liaison relationship
+
+( ) Information which would/could identify the source
+
+( ) Information pertaining to a source
+
+( ) Information pertaining to intelligence methods
+
+( ) Location of CIA overseas installation
+
+( ) Location of unacknowledged domestic installation
+
+( ) Name of CIA employee
+
+( ) File number
+
+( ) Pseudonym
+
+( ) Cryptonyms
+
+( ) Internal organizational data
+
+( ) Name of FBI agent
+
+( ) FBI file number.
+
+( ) Privacy of other individual
+
+( ) OTHER
+
+COMMENTS and/or SPECIAL INSTRUCTIONS.
+
+During the DDO classification review, this document which was marked as SECRET was:
+* maintained
+* classified to ____________
+* declassified
+* desensitized
+* downgraded to CONFIDENTIAL
+
+E2 IMPDE
+C.I. BY 01

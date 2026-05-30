@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_2902.png
+
+Convert to MarkdownCUBAN REVOLUTIONARY COUNCIL
+INTERNAL SECURITY - CUBA
+
+MIRO but in the interest of both the United States and the Cuban exiles, decided upon a public statement which reads as follows:
+
+"CUBAN REVOLUTIONARY COUNCIL
+
+"The Cuban Revolutionary Council, having studied the report of its President, Dr. Jose Miro Cardona, concerning present relations with the United States Government, agrees:
+
+"1. Not to accept the resignation of Dr. Jose Miro Cardona, and declare its full support for the basic plans contained in his resignation.
+
+"2. To affirm that there is a serious crisis, brought about by the present policy of the government of this country.
+
+"3. To express the Council's hope of overcoming the present crisis and calling upon all of America, including the United States, for moral and material support in their fight to regain their sovereignty and independence, and the strict fulfilment of American treaties and agreements, as well as the joint resolution of the U. S. Congress, calling for effective action against Soviet intervention in America.
+
+"4. To affirm that the Council has always insisted, and still insists, upon the necessity of Cuban participation in the process of liberating Cuba. The only procedure which the Council would accept would be coordination of forces, on a plane of complete respect for national dignity. Cuba will never renounce her legitimate right to be in the first line of combat.
+
+"5. To reaffirm their unshakeable decision to continue the fight against the Soviet-Castro regime, under any circumstances whatsoever.

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_179.png
+
+Convert to Markdownpor el Departamento de Estado yanqui. Comentario soviético. En entrevista con El Día. Nicolás S. Leonov, agregado de prensa de la embajada de la URSS en nuestro país, afirma: "México no es campo propicio para hacer propaganda de guerra fría. El prestigio internacional de que goza y el respeto que tiene el mundo entero no permiten que florezcan en este país brotes de la guerra fría. En la actualidad no hay ni datos, ni situaciones ni acotamientos que justifiquen el deseo de algunas personas y elementos de reavivar el cadáver del llamado problema judio en Rusia. A llegar por los argumentos, la aplicante mayoría de los firmantes usa para sus conclusiones no los datos personales, no los resultados de una investigación objetiva, sino... tomado de segunda mano, superficial, erradicado y muchas veces tergiversado por para mía voluntad".
+
+En referencia al pedido de control de las publicaciones antisemitas que hacía el llamamiento, Leonov comenta: "Es cu- rioso que pidan esto a la URSS y no a otros países en donde prolífara esta clase de literatura. Es falso afirmar que las publicaciones antisemitas aparecen en forma regular en la URSS; al contrario, la Unión Soviética es uno de los pocos países en donde la revelación de proje- ciones recientes se castiga por la ley y se condena por la opinión pública. Es una pena —concluyó— que tantos intelectu- les en tu poco espacio hayan cometido tantos errores. ¿No se pretende con toda esta propaganda contrarrestar la discrimi- nación racial, que si se practica en otros países?"
+
+El congreso. Muy en silencio se ha venido preparando un congreso que habrá de celebrarse en la ciudad de México del
+
+15 al 15 de mayo, al que concentraban inodoroamente en los países centralamericana- nos para "distinguir" los interesos de los judíos soviéticos y la distribución de la cádema. Y, sin derrame, en un día, se colocaron en Santiago el Chile, al día siguiente. Algunas Inteligradas de Argentina, etc., y otros países del "tercer sur". Como战前, un factor de Sinoamérica en la section de Cittas del N° 67, los resultados de esta campaña anti- sovietita "no paralan, ser otros que los de favorizar la propaganda imperialista y, a la postre, el anticolonialismo". Considera además que "mucho de quienes aparecen suscribiránlo ese llamado parte- cen la darse cuenta de que son empuja- das como resonancia y tooyo para la ce- lebración de un congreso comunitario antisoviético con sufree en México; es de-cir, en un país que tiene buenas relacio- nes con la URSS y que sufre en carrye propia las falacias del anticommunismo manejado desde Washington".
+
+## TRABAJO
+
+### Primero de Mayo
+
+La celebración del Primero de Mayo, no ha dejado nunca de ser representativa de las aspiraciones de la clase trabajadora y de sus condiciones de vida y de lucha, por un lado, y de la actividad de la clase capitalista y su dominio frente a aquella, por el otro.
+
+Asi, por deformado y desERViado que esté el sentido este el sentido auténtico de la commemoración, a través de toda la historia de los 1º de Mayo en el país se ha visto una CROM callista, haciendo- le el juego al régimen con el propósito de instituir el día de lucha del proleu-
+
+riado universal en una "festa del traba- jo" organizada por el gobierno Bayo el cardenismo, en pleno ascenso revolu- cionario, las manifestaciones obreras veíanون un ser en este día una presencia cons- banca en la clase trabajadora. Durante Amalia, a tiempo que se ligaban a aser sinur coahujadores en el distile, la seme- sión de las narros del movimiento obrero ligaba a su máxima expresión cuatro Fidel Velázquez lo calificaba de "pier o obiero de la República".
+
+En este 1963, lo que una vez fue en México había a favor de mejores conceptos de Vida ha devenido en una "for- ta de tendencia nacional a la que sus

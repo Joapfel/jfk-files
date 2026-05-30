@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_6888.png
+
+Convert to MarkdownEven the high-level executive branch officials who are members of the Interagency Security Classification Appeals Panel have been flummoxed by the difficulties in coordinating the declassification of information controlled under the Atomic Energy Act. This is particularly absurd because, according to Ms. Mazer,
+
+information that is similar or identical to much of what we have seen designated as FRD [i.e. classified under the Atomic Energy Act] has been in the public domain for many years, often as a result of a prior Department of Energy declassification review. Moreover, *there appears to be no system in place to get this information declassified*, even though the Departments involved—Energy, Defense, and State—acknowledge that it is innocuous.¹⁹
+
+The perpetuation of two distinct classification systems would represent a significant compromise of the Government Secrecy Act's goal of "a more stable and cost-effective set of policies and a more consistent application of rules and procedures."
+
+Therefore, I would suggest that the Committee consider the feasibility of consolidating both classification systems into one.
+
+CONCLUSION
+
+Although the Cold War has officially been over for several years now, we still face the challenges of adapting the inherited structures of that era to the present day. Fixing the classification system is foremost among those challenges.
+
+It is only natural that any significant changes to the status quo will be resisted by the bureaucratic systems that are now in place. But the Committee should have confidence in the traditional American mechanism of "checks and balances."
+
+By installing new checks and balances into a classification system that has long been allowed to function unilaterally, Congress can induce prudent changes that will advance the national interest in open and accountable government, while more efficiently protecting genuine national security information.
+
+¹⁹Remarks by Roslyn Mazer, footnote 2 above, emphasis added.

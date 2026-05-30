@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_1842.png
+
+Convert to Markdown30 June 1970
+
+MEMORANDUM FOR: Chief, European Division
+FROM : Chief of Station, London
+SUBJECT : Promotion Recommendation - James S. Woods
+
+Subject, who has been in grade as a GS-10 just two years, has been Chief of the Registry of the London Station for eighteen months. Subject, fresh from a Saigon assignment, brought with him a broad and varied background of field experience (Far East) and several Headquarters' assignments. He has been in one or another aspect of records management work since he started with us as a very junior clerk in 1952.
+
+Subject's fitness reports, since he has been in London, testify to the high regard in which he is held by the Station and the excellent results he has managed to achieve. When he arrived at the Station, the start had been made on a file reduction program but an enormous amount of organized work remained to be done. Subject set about it with great enthusiasm and a high degree of professional organization. As a result, the Registry inventory today is the leanest and the most efficient the Station has seen for many a long day, if ever before. To a great extent this can be laid at Subject's own door and he personally did much of the work. At the same time, Subject surveyed and reorganized the overall workload of the Registry and was finally able to recommend to the Station arrangement a reduction of one Registry clerk. The smaller staff is certainly required a more intensive work effort on the part of Registry personnel, which has been attained without any loss of morale; in fact, quite the reverse.
+
+Subject, therefore, emerges as a records management officer who has thoroughly learned his business and a hard-driving, sympathetic and successful supervisor. In the opinion of the Station management, Subject is already quite capable of taking over broader and more senior responsibilities in the records management field. In this respect, however, we do not believe he will be wasting his time in London by spending, as he currently plans to do, an additional year here on the completion of his tour in November. The London Registry, reflecting the multi-faceted work of the Station, is sufficiently complex an operation to warrant

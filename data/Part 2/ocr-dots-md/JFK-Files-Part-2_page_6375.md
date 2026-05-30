@@ -1,0 +1,75 @@
+# JFK-Files-Part-2_page_6375.png
+
+Convert to Markdown(1) Unless the Review Board in its sole discretion directs otherwise, records that are identified by the Review Board with respect to a particular operation or program shall include all records, pertaining to that program by any other name, pseudonym, codeword, symbol, number, or cryptonym
+
+§ 1400.8 Implementing the JFK Act— Notice of Assassination Record Designation.
+
+(a) A Notice of Assassination Record Designation (NARD) shall be the mechanism for the Review Board to announce publicly its determination that a record or group of records meets the definition of assassination records.
+
+(b) Notice of all NARDS will be published in the Federal Register within 30 days of the decision to designate such records as assassination records.
+
+(c) In determining to designate such records as assassination records, the Review Board must determine that the record or group of record will more likely than not enhance, enrich, and broaden the historical record of the assassination.
+
+Dated: June 22, 1995
+
+David G Maxwell,
+Executive Director Assassination Records Review Board.
+[FR Doc 95-15819 Filed 6-27-95; 8:45 am]
+BILLING CODE 6820-TD-M
+
+DEPARTMENT OF THE INTERIOR
+
+National Park Service
+36 CFR Part 7
+RIN 1024-AC14
+National Capital Region Parks; Special Regulations; Correction
+
+AGENCY: National Park Service, Interior.
+ACTION: Correction to final regulations
+
+**SUMMARY:** This document contains a correction to the final regulations which were published Friday, April 7, 1995 (60 FR 17639). The regulations limit the sales on Federal park land to books, newspapers, leaflets, pamphlets, buttons and bumper stickers and set standards for sites, stands and structures used in such sales within National Capital Region Parks.
+
+EFFECTIVE DATE: May 8, 1995
+
+FOR FURTHER INFORMATION CONTACT:
+
+Sandra Alley, Associate Regional Director, Public Affairs and Tourism, National Capital Region, National Park Service, 1100 Ohio Drive SW., Washington, D.C. (202) 619-7223
+
+SUPPLEMENTARY INFORMATION:
+
+Need for Correction
+
+As published, the final rule contains one error which may prove to be misleading and is in need of correction.
+
+Correction of Publication
+
+Accordingly, the publication on Friday, April 7, 1995 (60 FR 17639) of the final regulation, FR Doc. 95-8599, for National Capital Region, is corrected as follows.
+
+In the FR Doc. 95-8599, appearing on page 17649 in the issue of Friday, April 7, 1995, the words "the introductory text of" need to be added after the word "revising" that appears in the first column, beginning on the ninth line, which now reads "2. Section 7.96 is amended by revising paragraph (k)(2) to read as follows:" is corrected to read "2. Section 7.96 is amended by revising the introductory text of paragraph (k)(2) to read as follows:" 
+
+Dated: June 22, 1995
+
+Rick Gale,
+Acting Chief, Danger Activities Division
+[FR Doc. 95-15741 Filed 6-21-95, 8:45 am]
+
+BILLING CODE 4310-76-P
+
+ENVIRONMENTAL PROTECTION AGENCY
+
+40 CFR Parts 52 and 81
+[A-1-TRL-5249-6]
+
+Clean Air Act Promulgation of Extension of Attainment Date for Ozone Nonattainment Area; Maine
+
+AGENCY: Environmental Protection Agency (EPA).
+
+ACTION: Final rule
+
+**SUMMARY:** EPA is extending the attainment date for the Hancock and Waldo Counties, a marginal ozone nonattainment area in Maine to November 15, 1994. This extension is based in part on monitored air quality readings for the national ambient air quality standard for ozone during 1993. This notice also updates tables in 40 CFR 52.1024 and 40 CFR 81.320 concerning attainment dates in the State of Maine
+
+EFFECTIVE DATE: This extension becomes effective July 28, 1995.
+
+FOR FURTHER INFORMATION CONTACT:
+
+Richard P. Burkhardt, Air, Pesticides and Toxics Management Division, U.S. Environmental Protection Agency, Region I, JFK Federal Bldg., Boston, MA 02203. Phone. 617-565-3244

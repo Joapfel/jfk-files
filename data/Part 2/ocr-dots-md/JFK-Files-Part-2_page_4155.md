@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_4155.png
+
+Convert to Markdown13-00000
+
+medicine and that the small amount of arms involved should not be cached.
+Otherwise the operation was approved.
+
+Alexis Johnson and Mr. Bundy raised questions of the consequences
+of finding an arms cache or knocking over an infiltration at the time of the
+OAS debate on the Venezuelan problem. Arguments were persuasive that
+we should go slowly during this period. I read from the February 25th
+Cuban checklist of the deterioration of the spirit of the people of Cuba, the
+feeling that we were about to recognize the Castro government and the apathy
+toward further resistance as evidence of the price we are paying for
+slow-downs and deferments of action against Cuba. I said that I thought our
+Cuban program was in complete disarray. We had no policy or covert
+operations. We now are hesitating on infiltration and exfiltration, our
+economic denial program was failing, while Castro is making significant
+progress.
+
+3. The forecast of NRO activities for March was approved. [x]
+
+4. The status report on political action in Kenya was approved.
+
+JAM / mfb
+
+zmc

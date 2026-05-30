@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_6700.png
+
+Convert to Markdown13-00000
+
+# ADMINISTRATIVE - INTERNAL USE ONLY
+
+SUBJECT: Request No. CIA-16 from JFK Board
+
+~~C+ Defectors File (#0341008):~~ The ARRB staff has requested access to the parts of the Defector File that contain the Oswald documents, items a-f, listed in your 27 February memorandum. (We were unable to locate documents "e" and "f" in the HSCA sequestered collection.) Assassination- and Oswald-related documents in this file will most likely be declared assassination records. HRG will handle any third Agency coordination required.
+
+Please let me know when it will be possible to give the ARRB staff access to the files. The access is considered for background purposes only, and any notes taken will be reviewed by your staff and HRG. If a file is considered sensitive, access can be restricted to one ARRB staff member and monitored by your staff. The review can take place either at your office or in HRG. If you have questions, please give me a call, secure 31825.
+
+J. Barry Harrelson
+
+ADMINISTRATIVE - INTERNAL USE ONLY

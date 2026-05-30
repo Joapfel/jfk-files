@@ -1,0 +1,57 @@
+# JFK-Files-Part-2_page_7677.png
+
+Convert to Markdownhave the number 866 assigned to the memo that Mr. Hoover is going to send about protection of the President, and have it admitted to this record under that number.
+
+The CHAIRMAN. Yes; it may be.
+
+Representative FORD. Also a number for this letter Mr. Hoover is going to submit.
+
+Mr. RANKIN. May I assign 867?
+
+The CHAIRMAN. Yes.
+
+(Commission Exhibit Nos. 866 and 867 were marked for identification and received in evidence.)
+
+# TESTIMONY OF JOHN A. McCONE AND RICHARD M. HELMS
+
+The CHAIRMAN. The Commission will be in order.
+
+Director McCone, it is customary for the Chairman to make a short statement to the witness as to the testimony that is expected to be given. I will read it at this time.
+
+Mr. McCone will be asked to testify on whether Lee Harvey Oswald was ever an agent, directly or indirectly, or an informer or acting on behalf of the Central Intelligence Agency in any capacity at any time, and whether he knows of any credible evidence or of any conspiracy either domestic or foreign involved in the assassination of President Kennedy, also with regard to any suggestions and recommendations he may have concerning improvements or changes in provisions for the protection of the President of the United States.
+
+Would you please rise and be sworn? Do you solemnly swear the testimony you are about to give before this Commission shall be the truth, the whole truth, and nothing but the truth, so help you God?
+
+Mr. McCONE. I do.
+
+The CHAIRMAN. Will you be seated, please? Mr. Rankin will conduct the examination.
+
+Mr. RANKIN. Mr. McCone, will you state your name?
+
+Mr. McCONE. My name is John Alex McCone.
+
+Mr. RANKIN. Do you have an official position with the U.S. Government?
+
+Mr. McCONE. Yes, sir; I am Director of Central Intelligence.
+
+Mr. RANKIN. Have you been Director for some time?
+
+Mr. McCONE. Yes; a little over 2½ years.
+
+Mr. RANKIN. Where do you live, Mr. McCone?
+
+Mr. McCONE. I live at 3025 Whitehaven Street in Washington.
+
+Mr. RANKIN. Are you familiar with the records and how they are kept by the Central Intelligence Agency as to whether a man is acting as an informer, agent, employee, or in any other capacity for that Agency?
+
+Mr. McCONE. Yes; I am generally familiar with the procedures and the records that are maintained by the Central Intelligence Agency. Quite naturally, I am not familiar with all of the records because they are very extensive.
+
+Mr. RANKIN. Have you determined whether or not Lee Harvey Oswald, the suspect in connection with the assassination of President Kennedy, had any connection with the Central Intelligence Agency, informer or indirectly as an employee, or any other capacity?
+
+Mr. McCONE. Yes; I have determined to my satisfaction that he had no such connection, and I would like to read for the record—
+
+Mr. RANKIN. Will you tell us briefly the extent of your inquiry?
+
+Mr. McCONE. In a form of affidavit, I have gone into the matter in considerable detail personally, in my inquiry with the appropriate people within the Agency, examined all records in our files relating to Lee Harvey Oswald. We had knowledge of him, of course, because of his having gone to the Soviet Union, as he did, putting him in a situation where his name would appear in our name file. However, my examination has resulted in the conclusion that Lee Harvey Oswald was not an agent, employee, or informant of the Central Intelligence Agency. The Agency never contacted him, interviewed him, talked with him, or received or solicited any reports or information from him, or communicated with him directly or in any other manner. The Agency never fur-
+
+13-00000

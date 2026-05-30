@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_4254.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+8 February 1963
+
+MEMORANDUM FOR RECORD
+
+SUBJECT: Minutes of Meeting of the Special Group, 8 February 1963
+
+PRESENT: Mr. Bundy, Mr. Gilpatrick, Mr. McCone, Mr. Hilsman,
+and Mr. FitzGerald
+
+1. Agent Operations in Cuba
+
+Mr. FitzGerald discussed with the Group the CIA paper of 6 February which recommends a total of five maritime infiltration/exfiltration operations during the next thirty days.
+
+He emphasized that these black operations are entirely of an intelligence nature and that they should be viewed only as a supplement to intelligence coverage accomplished by other means. In the latter connection, the point was made that information obtained by agents of this type can contribute to the targeting of aerial reconnaissance sorties and can assist in making the process of photo interpretation more meaningful.
+
+Mr. FitzGerald also emphasized that the teams now proposed are comprised of only one to three agents. He noted that the agents available are particularly well motivated, and that those whose primary motivation was toward action rather than intelligence have been weeded out.
+
+The consensus of the Group was that while agent operations of this type cannot be considered as a primary or major source of intelligence, nonetheless this type of operation is consistent with U.S. objectives in the Cuba situation and that approval of these five should be recommended.
+
+(These missions were approved by higher authority, 9 February 1963)
+
+2. Subsidy to Venezuelan Newspaper
+
+Mr. McCone reported on financial arrangements which have been made in connection with subsidy of the Venezuelan newspaper, which
+
+SECRET
+EYES ONLY

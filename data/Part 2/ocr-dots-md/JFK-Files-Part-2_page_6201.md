@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_6201.png
+
+Convert to Markdown13-00000
+
+# Organization of Records Management in the Agency
+
+This slide is Administrative Internal Use Only
+
+D/Info Mgt *
+
+OIT
+
+Recruitment & Training*
+
+Policy Research & Audit*
+
+Archive &
+Preservation*
+
+System
+Development*
+
+DCI/IMO*
+
+DA/IMO*
+
+DI/IMO*
+
+DO/IMO*
+
+DS&T/IMO*
+
+component/imos
+
+component/imos
+
+component/imos
+
+component/imos
+
+component/imos
+
+Chart 11
+g:\adda1s\led\396airmp.ppt

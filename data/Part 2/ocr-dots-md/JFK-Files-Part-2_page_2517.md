@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_2517.png
+
+Convert to Markdown# ADMINISTRATIVE - INTERNAL USE ONLY
+
+Mr. George Martin Roanek
+
+Dear Mr. Roanek:
+
+Reference is made to your contract with the United States Government, as represented by the Central Intelligence Agency, effective 1 March 1970, as amended.
+
+Effective 9 October 1977 paragraph four (4) entitled "Compensation" is amended by deleting the figure $33,000 as it appears therein and by substituting in lieu thereof the figure $35,327. Said paragraph is also modified to provide that subsequent augmentation of your basic fee, based upon cost-of-living increases, will be individually authorized by contract amendment at appropriate times as requested and certified by the responsible Government official.
+
+All other terms and conditions of the contract, as amended, remain in full force and effect.
+
+CENTRAL INTELLIGENCE AGENCY
+
+BY
+Special Contracting Officer
+
+ACCEPTED,
+
+151
+George Martin Roanek
+
+Date
+
+WITNESS,
+
+APPROVED,
+
+B8125
+
+Date
+
+ADTRAN USE ONLY
+
+DATE APR 1970
+- Date

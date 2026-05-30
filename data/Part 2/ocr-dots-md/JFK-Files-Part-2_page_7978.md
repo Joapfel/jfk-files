@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_7978.png
+
+Convert to Markdown'Here is the start of the most famous article that we ever published — excerpted from the May, 1970, issue of *Computers and Automation*. If you would like to read this article, and look at the eleven photographs it contains, send us $2 (prepayment is necessary). This issue is RETURNABLE IN 7 DAYS FOR FULL REFUND (IF IN SALABLE CONDITION). How can you lose?
+
+Computers and Automation, 815 Washington St., Newtonville, Mass. 02160
+
+# THE ASSASSINATION OF PRESIDENT JOHN F. KENNEDY:
+## THE APPLICATION OF COMPUTERS
+### TO THE PHOTOGRAPHIC EVIDENCE
+
+by
+Richard E. Sprague
+Hartsdale, New York
+
+## Part 1. Introduction
+
+### Who Assassinated President Kennedy?
+
+On November 22, 1963, in Dallas, Texas, President John F. Kennedy, while riding in an open limousine through Dealey Plaza and waving to the surrounding crowds, was shot to death. Lee Harvey Oswald, an ex-Marine, and former visitor to the Soviet Union, was arrested that afternoon in a movie theatre in another section of Dallas; that night he was charged with shooting President Kennedy from the sixth floor easternmost window of the Texas School Book Depository Building overlooking Dealey Plaza. This act Oswald denied steadily through two days of questioning (no record of questions and answers was ever preserved). Two days later while Oswald was being transferred from one jail to another, he was shot by Jack Ruby, a Dallas night-club owner, in the basement of the Dallas police station, while millions of Americans watched on television. The commission of investigation, appointed by President Lyndon B. Johnson, and headed by Chief Justice Earl Warren of the U. S. Supreme Court, published its report in September 1964, and concluded that Oswald was the sole assassin and that there was no conspiracy.
+
+In view of the authority of the Warren Commission, that conclusion was accepted by many Americans for a long time. But the conclusion cannot be considered true by any person who carefully considers the crucial evidence — such as the physics of the shooting, the timing of a number of events, and other important and undeniable facts. In other words, Oswald was not the sole assassin, and there was a conspiracy.
+
+This article will develop that thesis, prove it to be true on the basis of substantial, conclusive evidence, and in particular some analysis of the photographic evidence.
+
+There was in fact a conspiracy. Oswald played a role in the conspiracy, although there is conclusive evidence that on November 22, 1963, he did no shooting at President Kennedy, and that, just as he claimed when he was in the Dallas jail, he was a "patsy." At least three gunmen (and probably four) — none of whom were in the sixth floor easternmost window of the Texas School Book Depository building where the Warren Commission placed Oswald — fired a total of six shots at President Kennedy.
+
+One of these shots missed entirely; one hit Governor John B. Connally, Jr. of Texas, riding with Kennedy; and four hit President Kennedy, one in his throat, one in his back, and two in his
+
+head. (The bulk of the undeniable evidence for these statements about the shots consists of: (a) the physics of the motions of Kennedy and Connally shown in some 60 frames of the famous film by Abraham Zapruder; (b) the locations of the injuries in Kennedy and in Connally; and (c) more than 100 pictures, consisting of more than 30 still photographs and more than 70 frames of movies.)
+
+More than 50 persons were involved in the conspiracy at the time of firing the shots. These persons included members of the Dallas police force (but not all of the Dallas police — and that action continued in the May 1970 issue of Computers and Automation).
+
+<table><thead><tr><th colspan="2">Contents</th><th>Page</th></tr></thead><tbody><tr><td colspan="3"><strong>Parts</strong></td></tr><tr><td>1</td><td>Introduction</td><td>30</td></tr><tr><td>2</td><td>The Photographic Evidence</td><td>34</td></tr><tr><td>3</td><td>The Application of Computers to the Photographic Evidence</td><td>56</td></tr><tr><td>4</td><td>Appendices:</td><td></td></tr><tr><td></td><td>Acknowledgements and Notices</td><td>58</td></tr><tr><td></td><td>Epilogue</td><td>59</td></tr><tr><td></td><td>Bibliography</td><td>6

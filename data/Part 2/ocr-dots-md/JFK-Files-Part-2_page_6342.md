@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_6342.png
+
+Convert to Markdown7 March 1995
+
+NOTE FOR: Bob Eatinger, OGC
+
+SUBJECT: JFK Proposed Regulations
+
+As we discussed, I would appreciate your view as to whether OGC should send a separate paper to the JFK Board on the proposed regulations.
+
+The attached is what we in HRG propose to coordinate in the Agency today, 7 March, depending on your view. I'll hold off circulating the attached draft for comment until I've heard from you.
+
+(The Board asks for comments by 10 March.)
+
+John Pereira

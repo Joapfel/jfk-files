@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_6184.png
+
+Convert to Markdown12 July 1996
+
+Visit for 22 July 1996; 10:00 a.m.
+
+# Presidential JFK Assassination Records Review Board
+
+| | Date of Birth | SSN |
+|---|---|---|
+| David George Marwell<br>Executive Director | 12/31/51 | 080-38-7009 |
+| Michelle Marie Seguin | 1/12/69 | 376-88-5236 |
+| Robert John Skwirot | 7/28/56 | 209-50-4324 |
+| Manuel Espiritu Legaspi | 8/04/68 | 568-53-8907 |
+| Mary Sperling McAuliffe | 9/25/43 | 366-44-4357 |
+| Christopher Meade Barger | 6/25/68 | 469-98-3261 |
+| Thomas Jeremy Gunn<br>Legal Counsel | 8/25/52 | 529-74-8907 |

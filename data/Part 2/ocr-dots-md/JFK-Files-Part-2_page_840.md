@@ -1,0 +1,94 @@
+# JFK-Files-Part-2_page_840.png
+
+Convert to MarkdownSECRET
+
+28 August 1974
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Meritorious Unit Citation
+
+On 20 August 1974 the Director of Central Intelligence approved award of the Meritorious Unit Citation to the Manila Station in recognition of the outstanding performance of the following employees during the period June 1971 to December 1973:
+
+Smith, Vernon
+Finneran, Robert
+Summers, Georgette
+Cohen, Meyer
+Watson, Anita
+Pider, Benjamin F.
+Gordon, James M.
+Miller, Richard H.
+Doyle, Mary Patricia
+O'Reilly, John
+Kalier, Marie E.
+Cotton, Mary Anne
+Ferguson, Alan C.
+Steed, Herbert L.
+Boucher, Charles
+Vasko, Philip F.
+Hayes, Richard
+Stephens, James L.
+Jameise, Jill
+Anton, Eleanor A.
+Lashorne, H. Wesley
+O'Reilly, Judith S.
+Donohue, Thomas A.
+Yaccaro, Joseph R.
+
+Flagg, Warren
+Sullivan, Daniel J.
+White, Robert H.
+Johnson, Richard W.
+Markle, Cheryl L.
+Thomas, Ann
+Robinson, Owen P.
+Chu, Kirby K. P.
+Larson, Judy A.
+Reiniger, Noel W.
+Blooding, Shaleta C.
+Byerly, Paul M.
+Carnivale, Frank
+Edinger, John B.
+Rejonis, Dahlia A.
+Fox, Jerome
+Kaul, Robert J.
+Rejonis, Walter G.
+von Berg, Helmut L.
+Neberline, Lloyd J.
+Sherno, Frank
+Reynolds, Malcolm
+Soderquist, Ray
+Jackson, Arthur
+Johnson, Wesley
+Kalaris, George T.
+Mears, Alyce A.
+Champlin, Wendy C.
+Behee, Jean A.
+Fitchett, Mildred L.
+Harris, Bobby
+Chao, James
+Thompson, Colin R.
+Wright, William H.
+Brookner, Janine M.
+Hauschild, Raymond G.
+Amiano, Suzanne K.
+Shields, Charles A.
+Ticulka, Vincent R.
+Newhouse, Lawrence L.
+O'Connell, Mary M.
+Kaul, Marlene
+Schroeder, Roderick
+Gesswein, F. Clark
+Chao, Karen
+Edinger, Sharon
+Shima, Terry
+
+R. L. Austin, Jr.
+Recorder
+Honor and Merit Awards Board
+
+SECRET |<--->
+
+<table><tr><td>SECRET</td></tr></table>
+
+SECRET

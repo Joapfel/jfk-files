@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_4458.png
+
+Convert to Markdown(b) Nickle Industry: The seat of this important industry unfortunately is in two small towns in Oriente province. Lightly populated areas which are of strategic importance always pose rugged operational obstacles. The nickle towns are no exception. Numerous well-meaning persons in the U.S. have attempted to help us obtain access to this critical target. Yet not until late September was the Agency able to turn up (by virtue of a New Orleans recruitment) a source of viable leads to key personnel. By cut-off date, however, we had not been able to bring any lead to function. Most promising is a lead to the technical supervisor of the Nickle complex.
+
+(c) Sugar: Two former high-level penetrations of the Sugar Industry defected to the U.S. soon after the inception of TFW. Throughout the summer it was not possible to identify a suitable candidate to replace them. A New York source in early October succeeded in placing us in touch with the chief sugar technician in Cuba. This operation should be fully productive by Christmas 1962.

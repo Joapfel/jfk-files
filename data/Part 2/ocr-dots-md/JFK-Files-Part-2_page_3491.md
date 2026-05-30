@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_3491.png
+
+Convert to MarkdownSECRET
+
+Handle via BYEMAN
+Control System
+
+17 April 1963
+
+MEMORANDUM FOR THE DIRECTOR
+
+SUBJECT: Meeting of the President's Foreign Intelligence Advisory Board, Tuesday, 23 April 1963
+
+1. The President's Board has asked that you meet with them on the 23rd from 10:15 to 11:15. They have suggested that the later half of this period be devoted to a review of both operations and intelligence on Cuba and have suggested that Mr. Cottrell attend for that period.
+
+2. Assuming that the question of the Board's charter and procedures will have been settled prior to the 23rd, I would suggest that you may wish to give them a quick review of outstanding matters including their recommendations and perhaps a briefing on the latest C. and [T.](99) flights.
+
+cc: DDCI
+
+Handle via ~~BYEMAN~~
+Control System
+
+<table><tr><td>EXHICUTED</td></tr><tr><td>BY E</td><td>23 H241-63</td></tr></table>
+
+SHEET 1 of 2
+
+(SEE ATTACHMENT) 3

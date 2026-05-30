@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_7399.png
+
+Convert to Markdownd. Documents to be examined by the investigation team within Headquarters building. If copies of documents are desired, investigators will request them from SA/DO/O who will see that they are provided promptly in appropriate classified and sanitized form. If required by the Committee (outside Headquarters building), same procedure will be followed but will be subject to review by SA/DO/O.
+
+e. Formal questions are to be put in writing in order to provide proper and full context so that most complete and pertinent answers can be provided.
+
+f. SA/DO/O to monitor all interviews.
+
+g. Discussion of note-taking and reports:
+
+(1) Maintenance of proper security and classification
+
+(2) Notes to retain same level of security classification as documents or interviews on which they based.

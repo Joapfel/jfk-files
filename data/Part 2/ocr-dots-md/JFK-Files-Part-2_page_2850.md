@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_2850.png
+
+to a very senior Agency officer. Responsible for evaluating the work of subordinate personnel and for support and assistance to promotion panels. Planned, disbursed and accounted for operational budgets of up to several millions of dollars.
+
+NO SECURITY OBLIECTIONS
+
+R.J.M.
+OS/AB
+28Apr78

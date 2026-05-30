@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_7567.png
+
+Convert to MarkdownThis material contains information affecting the National Defense of the United States within the meaning of the Espionage Laws, Title 18, U.S.C. Secs. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
+
+<table><tr><td>C-O-N-F-I-D-E-N-T-I-A-L</td></tr></table>
+
+COUNTRY International/USSR
+
+SUBJECT Second Congress of the International Radiation Protection Association, Brighton, UK, 3-8 May 1970/Biology and Ecology of Polonium and Radiolead Conference, Sutton, UK, 30 April - 1 May 1970/Current Research and Findings
+
+REPORT NO. OO- B-321/17309-70
+
+DATE DISTR. 1 Jul 70
+
+NO. PAGES 2
+
+REFERENCES DCS Case 54,123 NAVINTCOM NIP-10-70
+
+DATE OF INFO. May 70
+
+PLACE & DATE ACQ. BY SOURCE Sutton/Brighton: May 70
+
+THIS IS UNEVALUATED INFORMATION
+
+SOURCE US citizen; a professor and researcher in radiation biology at a US university.
+
+[This report was prepared for submission to the US Atomic Energy Commission and is disseminated in accordance with DCID 2/3.]
+
+1. A US radiation biology researcher attended both the Biology and Ecology of Polonium and Radiolead Conference, Sutton, UK, 30 April - 1 May 1970, and the Second Congress of the International Radiation Protection Association, Brighton, UK, 3-8 May 1970.
+
+2. The nature of the Sutton meeting was such that few significant scientific positions were taken: however, in general, the quality of the papers was very high. The scheduled Soviet participants, P V Ramzayev and FNU (Moskalev, were presumably not permitted by the USSR to attend; D Panov (Yugoslavia) was in the US, and D Djuric (Yugoslavia) did not attend for unknown reasons. The countries represented were UK (26), Italy (5), France (1), Sweden (2), Poland (1), South Africa (1), and the US (7).
+
+3. To the extent that the proper "half-life for lead in man" was discussed, the consensus appeared to be that (a) the loss rate can not be represented as a single exponential; (b) the presently available data on baboons and beagle dogs does not extend for a sufficient period of time to provide a measure of the "last slow rate loss constant"; (c) it is likely that lead and radium loss rates will differ because of the selective reutilization of Pb in bone. D Barltrop (UK) and US researchers have been performing experiments which indicate that lead is not bound by red cell membranes, but at sites in the cell interior.
+
+4. C R Hill (UK) provided a useful summary of the contribution of polonium to human radiation dose. He stipulated that the distribution of polonium will depend on whether it is administered as polonium per se or is allowed to grow in an animal as the daughter of an ingested parent. This is a significant consideration to biological researchers engaged in dose calculation work.
+
+5. Twenty-nine countries and five international bodies were represented at the Second Congress of the International Radiation Protection Association. W G Harley (UK) was the congress president and H J Dunster (UK) was the secretary of the scientific program committee. The congress shared the common problems and advantages of similar large meetings. Concurrent sessions inevitably brought about some conflicts in important papers, discussion was generally absent or quite limited, and there was the usual number of papers given in "broken" English by foreign scientists.
+
+<table><tr><td>U</td><td>NO</td></tr></table>
+
+<table><tr><td>C-O-N-F-I-D-E-N-T-I-A-L</td></tr></table>
+
+<table><tr><td>GROUP I<br/>...and other needed agencies...</td></tr></table>
+
+<table><tr><td>S</td><td>YES</td></tr></table>
+
+CONTROLLED DISSEM
+
+NO DISSEM ABROAD
+
+The dissemination of this document is limited to civilian employees and active duty military personnel within the intelligence components of the USA member agencies, and to those senior officials of the member agencies who must act upon the information. However, unless specifically controlled in accordance with paragraph 8 of DCID 1/7, it may be released to those components of the departments and agencies of the U. S. Government directly participating in the production of National Intelligence. IT SHALL NOT BE DISSEMINATED TO CONTRACTORS. It shall not be disseminated to organizations or personnel, including consultants, under a contractual relationship to the U. S. Government without the written permission

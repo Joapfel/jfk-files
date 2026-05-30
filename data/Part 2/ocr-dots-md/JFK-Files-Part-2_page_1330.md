@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_1330.png
+
+Convert to Markdown23 February 1971
+
+MEMORANDUM FOR: Secretary, CSCS Board
+SUBJECT: Recommendation for Promotion - Robert P. Wheeler
+
+1. As one of the final acts in my CIA career I want to bring to your attention and add my strong concurrence and recommendation to two (2) recorded recommendations for the promotion of Robert P. Wheeler to the grade GS-17. I find it hard to imagine a more persuasive recommendation for this action than that forwarded by my predecessor in June 1969 (Attached). I can imagine Mr. Mitchell's feeling when he prepared the second recommendation in February 1970 (Attached). And yet, I find in February 1971 there has still been no action. In the year that has passed this promotion has become even more deserved, for despite the natural dis-appointment accompanying such a continuing lack of recogni-tion, there has been no diminution of enthusiasm, no lowering of standards, and the CS is clearly better managed because of his continuing efforts. Were these two previous recommen-dations not so clear cut and descriptive, I would conclude that those in control simply do not know what this officer does and has done. Knowing what he does and how he does it should not continue to be unrewarded and, hence, I add my strongest recommendation for early and favorable action.
+
+2. This officer has performed in a most outstanding manner, as testified in his fitness reports by my prede-cessor, and certainly during my tenure as Chief, MPS for the past 12 months.
+
+Sidney A. Stein
+Chief, Missions and Programs Staff
+
+SECT...1
+
+<table><tr><td>CS</td></tr></table>

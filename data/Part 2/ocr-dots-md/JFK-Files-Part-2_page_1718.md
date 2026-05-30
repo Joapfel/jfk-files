@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_1718.png
+
+Convert to Markdown14-0000
+
+RELOCATION ORDER: CHIEF, CHANGE DIVISION:
+
+ATTENTION: Payroll Staff
+
+SUBJECT: Change in Allotted Passengers' Deployment. Personal Correspondence of WODE, James B.
+
+In all Manner requested, such copy of personnel file as may be deemed necessary to the change effecting WODE, James B.
+
+FROM: ADJUSTMENT 6-3710-55-098
+TO: ALL DEPT. (6-2309-83)
+
+If any title changes or transfer is involved, please make a copy of each document and submit with the original.
+Please provide the name of the new recipient(s) and title.
+Please provide a complete mailing address for all new recipients. If not already provided, add it to the bottom of the first line.
+
+Copy of file to send to Airs Control No. 100-1 and also to add to file.
+Please provide address for mailings.

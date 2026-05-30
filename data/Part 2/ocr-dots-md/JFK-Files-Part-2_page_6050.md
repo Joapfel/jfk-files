@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_6050.png
+
+Convert to MarkdownHENRY F. GRAFF cont'd
+
+"Presidents are Now Mayors," *The New York Times*, July 18, 1979.
+"Electing Civilians," *The New York Times*, February 22, 1980.
+"Threats to Presidency," *The New York Times*, July 25, 1980.
+"The Vexing of the U.S. Presidency: An Interview with Henry F. Graff," by Ceil Cleveland, *Columbia, Fall, 1980*, pp. 33-7.
+
+MISCELLANEOUS PIECES:
+
+Biographical sketch of Jacob Ruppert in *Dictionary of American Biography*, Supplement 2, pp. 589-90 (New York, 1958).
+
+Introduction to Margaret Bassett, *Profiles and Portraits of American Presidents*, (Freeport, Maine, 1964).
+
+Preface to James Warner Bellah, *Soldiers' Battle: Gettysburg, New York 1962*.
+
+REVIEW ESSAYS AND REVIEWS:
+
+Numerous reviews and review articles for:
+*American Historical Review*
+
+*Journal of Modern History*
+
+*Political Science Quarterly*
+
+*The New Leader*
+
+*Columbia Law Review*
+
+*Saturday Review*
+
+*The New York Times Book Review*

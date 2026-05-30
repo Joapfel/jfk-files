@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_5909.png
+
+Convert to Markdown**Security**
+
+Question 1 - For the period between 1955-65, what was the universe of files that OS had on individuals or groups?
+
+OPS located information which describes the categories of files created during this time frame. But it is impossible to state this is all inclusive:
+
+General - Usually unsolicited correspondence of crank variety and junk.
+
+Security Research Staff - possibly material of counterintelligence interest.
+
+DCD contacts - persons who travel abroad and/or have specific information.
+
+Contractor Employees - industrial contractors with collateral and/or SCI accesses
+
+Miscellaneous - Includes publications, organizations, intelligence services, etc.
+
+Alien - Foreign nationals who were of interest
+
+New Building - Persons involved with construction of Original Headquarters Building
+
+Regular - Files which included staff employees, contractors, GSA/GSI, etc.
+
+Question 2 - How are Office of Security records indexed?
+
+Prior to 1964 all index records were maintained on 3x5 inch index cards. When the information was known, these cards included names (primary, alias, telecodes), file numbers, kin/relatives, location/residence, DPOB, citizenship, occupation, polygraph number, reference source data, information codes, remarks, SSN, sex, employer, and file retirement data. To locate a file record, the subject of interest was searched in this card system.
+
+During mid-1964 these index cards with the exception of impersonal entities, were under conversion to a keypunch system. The impersonals (companies, publications, intelligence services, organizations, etc.) were maintained on cards until much later, possibly mid-1970s. Aside from the subject name indices, the Office of Security also indexed information of interest within a file record. This information could include associates, companies, publications, other government agency reports, information, etc.
+
+TODAY'S INDEXING PARAMETERS ARE VERY LIMITED.

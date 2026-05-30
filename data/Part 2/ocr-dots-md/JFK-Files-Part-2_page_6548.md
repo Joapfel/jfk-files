@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_6548.png
+
+Convert to Markdown**Regional Surveillance** -- The OAS or the Caribbean nations should take the initiative in organizing, as a part of a Caribbean security arrangement, a surface ship and aerial surveillance of the coastal and offshore waters of the Caribbean nations. These patrols should be progressively moved out from the shores of the nations being protected into the Caribbean approaches to Cuba, tying in with an OAS proclaimed zone in which movement of subversive agents, materials, forces, or arms is prohibited. Toward the end of the crescendo, they should operate close to the shores of Cuba.
+
+There should be increasing surveillance and control of land boundaries.
+
+There should be improved systematic exchange of intelligence on subversive activity.
+
+**Propaganda** -- There should be established immediately a radio station (Radio Free Cuba), probably in Florida, using covert funds, with regularly scheduled Cuban broadcasts available to all Cuban political groups. Its content should be the middle ground between VOA and Radio Swan.
+
+Initially, through public statements, VOA, etc., maintain the theme of the U.S. "watchful waiting" for change in the Castro regime. Maintain the currently enhanced VOA wave facility beamed to Cuba. High-light positive results in Latin America of the Alliance for Progress. We should warn Cuba unofficially through the suggested Radio Free Cuba of the consequences of continued subversion and of Castro's present track. Still later, prior to any decisive action, if taken, this theme should go out officially over VOA and in announcements of public officials.
+
+Initiate and organize clandestine newspapers and leaflet operations.
+
+Infiltrate Cuban exile publications. Play up, on all media, the threat
+
+13-00000

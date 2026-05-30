@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_6512.png
+
+Convert to Markdown(3) U. S. Military execution of specific counter-subversive tasks.
+
+This involves action taken in response to specific needs, as during the 1962 attempts to export Cuban revolutionaries to Central America.
+
+These were countered, and probably short-lived, by the presence of U. S. Navy destroyers patrolling the coastal area of Costa Rica at the request of the government of that country.
+
+(4) Overflight.
+
+Although primarily designed to observe and to document changes in Cuban military capabilities, those flights serve as a reminder of U.S. vigilance and determination.
+
+(5) Communications Intelligence.
+
+All of the above are supported by and given a sense of direction from the great volume of material provided through the facilities of the Communications Intelligence system.
+
+h. Propaganda + Radio and Television.
+
+(i) The Voice of America now conducts 2-3/4 hours of short wave broadcasts to Cuba daily. These serve, in some degree, to expose to the Cuban people the subversive activities of the Castro regime.
+
+(2) Armed Forces radio and television broadcasts from the Guantánam
+Naval Base seek daily to combat the spread of Communism by the orientation
+of their programs.

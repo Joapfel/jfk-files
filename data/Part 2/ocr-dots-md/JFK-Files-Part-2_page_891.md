@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_891.png
+
+Convert to MarkdownSECRET
+
+# TRAINING REPORT
+
+Covert Action Operations Course No. 63, 30 March to 17 April 1964
+60 hours part time
+
+Student : Fox, Jerome Office : PB
+Year of Birth: 1928 Service Designation: D
+Grade : 05-12 No. of Students : 13
+BOD Date : June 1955
+
+## STUDENT OBJECTIVES - CONTENT AND METHODS
+
+The Covert Action Operations Course is an advanced seminar for senior and middle grade CS officers who will direct and conduct covert action operations in the field. It provides a conference setting in which experienced officers may discuss the full range of operational problems — from policy and strategy to tactics and techniques — with senior Agency officers, both those recently returned from field posts and those assigned to Headquarters for guidance and support of CA field operations.
+
+The CAO course covers the origin and scope of CIA's covert action mission, CA activity of Bloc services and party organs, tactical approaches to the direction of CA operations, political action, economic action, propaganda, paramilitary operations, special operations, the national counterinsurgency program, covert action in the labor and youth field, counterintelligence problems in covert action, Joint CI-CA programs, and current area case studies.
+
+## ACHIEVEMENT RECORD
+
+This is a certificate of attendance. Adjectival ratings are not given in this course.
+
+FOR THE DIRECTOR OF TRAINING:
+
+Dawson Smith
+Chief Instructor
+
+22 April 1964
+Date
+
+<table><tr><td>Group I</td></tr><tr><td>Excluded from automatic downgrading and declassification</td></tr></table>
+
+SECRET

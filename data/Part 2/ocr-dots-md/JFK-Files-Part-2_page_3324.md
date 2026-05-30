@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_3324.png
+
+Convert to MarkdownEYES ONLY
+SECRET
+
+3. Newspapers are also being supported and further support is planned for the future. Avance, a leading Cuban daily (Zayas' paper), has been confiscated as has El Mundo, another Cuban daily. Diario de la Marina, one of the hemisphere's outstanding conservative dailies published in Havana, is having difficulty and may have to close soon. Arrangements have already been made to print Avance weekly in the U.S. for introduction into Cuba clandestinely and mailing throughout the hemisphere on a regular basis. As other leading newspapers are expropriated, publication of "exile" editions will be considered.
+
+4. Inside Cuba, a CIA-controlled action group is producing and distributing anti-Castro and anti-Communist publications regularly. CIA is in contact with groups outside Cuba who will be assisted in producing similar materials for clandestine introduction into Cuba.
+
+5. Two prominent Cubans are on lecture tours in Latin America. They will be followed by others of equal calibre. The mission of these men will be to gain hemisphere support for the opposition to Castro. Controlled Western Hemisphere assets (press, radio, television) will support this mission as will selected American journalists who will be briefed prior to Latin American travel.

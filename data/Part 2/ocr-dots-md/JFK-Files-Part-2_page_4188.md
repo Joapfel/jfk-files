@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_4188.png
+
+Convert to Markdown13 December 1963
+
+# MEMORANDUM FOR THE RECORD
+
+SUBJECT: Discussion with the President, 13 December - 9:30 a. m.
+
+1. Introduced General Carter but was unable to explain his responsibilities.
+
+2. Introduced Peer de Silva. The President spoke briefly of what he expects of the Station and the representatives of the Government in the Saigon community.
+
+3. Reviewed the Checklist. I emphasized (a) the dangers of the hostages in Bolivia, stating however that while 21 lives are extremely important, nevertheless, we must avoid a policy decision the consequence of which might mean the lives of an underdetermined thousands of people in the future. In fact I was saying we must not give the Communists the upper hand in this argument. I explained the critical location of the prisoners, and (b) I called the President's attention to the international oil situation and the deadlock between OPEC and the international oil companies and the opening that this is affording the Italians and possibly the French.
+
+4. Noted Item C in the notes, stating we felt, from sensitive sources, Spinelli's observation was incorrect but there was a possibility of a sufficient withdrawal by the Egyptians to make a favorable demonstration of intentions by which we could persuade Fiasal to withhold military aid to the Royalists for an extended period of several months.
+
+NOTE: Carter and de Silva left the room at this time.
+
+5. I told the President that subject to Rusk's approval, I intended to issue a series of articles on the weakness of the Soviet economy, drainage on their gold supply, over-commitments on foreign aid, etc. for the political figures who are wavering between leaning on the [signature].

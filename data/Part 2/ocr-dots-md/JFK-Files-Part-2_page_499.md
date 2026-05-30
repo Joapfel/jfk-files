@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_499.png
+
+Convert to MarkdownCABLE SECRET AT DISSEMINATION CLASSIFIED MESSAGE TOTAL COPIES ROUTING AND/OR INITIALS - SEEN BY
+
+<table><tr><td rowspan="2">PERSON/UNIT NOTIFIED</td><td colspan="4" style="text-align:center;">SECRET<br/>(When Filed In)</td><td>GROUP I<br/>MELANINE FROM AUTOMATIC COMPUTERS AND<br/>VOCATIONAL TRANSPARENCY</td><td rowspan="2"><table><tr><td>1</td><td>6</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></table></td></tr><tr><td colspan="4"></td><td>REPRODUCTION OF THIS COPY PROHIBITED</td><td></td></tr><tr><td>ADVANCE COPY ☐</td><td>ISSUED ☐</td><td>SLOTTED ☑</td><td colspan="3">INDEX ☐ YES ☐ NO</td><td></td></tr><tr><td>BY:</td><td>AT:</td><td></td><td colspan="3">CLASSify TO FILE NO.:</td><td></td></tr><tr><td>DISSENT BY:</td><td>30 PER</td><td>*</td><td colspan="3">X-REF TO FILE NO.:</td><td></td></tr><tr><td>ACTION</td><td>WHD</td><td>☑ NO COPY</td><td>FILE ID:</td><td>BRAND:</td><td>DESTROY:</td><td>SIG.</td></tr><tr><td></td><td></td><td></td><td>VOw w/cOG8 ci claps c/c/c2</td><td></td><td></td><td></td></tr></table>
+
+SECRET 102305Z MAY BE CITE MEXICO CITY 5542
+
+GUATEMALA CITY INFO DIRECTOR
+
+PBRUMEN
+
+REF: MEXICO CITY 5375 (n 98384)
+
+10 May 08570
+
+1. MANUELMARQUE) PARCEL HAS INFORMED LIRING-4 S MAY THAT HIS SISTER AND DAUGHTER IN LAW HAD SUFFOVED IN OBTAINING GUATEVISA AND TRAVELED GUATEMALA CITY IN AN EFFORT TO SEE CARLOS MINUEL (PERSAAVAL) MARCUE IN JAIL. MARCUE SAID SISTER AND DAUGHTER IN LAW E WHO RETURNING WEEK 12 MAY LEARNED PERSAAVAL AND LIRING-3 SENTENCED TO MINIMUM TERM OF SIX MONTHS.
+
+2. LIRING-4 CURRENTLY EXPLORING POSSIBILITY TRAVEL GUATEMALA
+TO TALK TO LIRING-3 STATION IN FAVOR SUCH TRAVEL IF SHE CAN GET
+VISA AS LIRING-3 CAN BE EXPECTED URGE LIRING-4GO CUBA DURING HIS
+TERM OF IMPRISONMENT.
+
+3. CAN GUATEMALA CITY STATION CONFIRM LIRING-3 SENTENCE AND PROVIDE DETAILS.
+
+SECRET
+
+3T
+
+SECRET

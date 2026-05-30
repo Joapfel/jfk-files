@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_8774.png
+
+Convert to MarkdownVenezuelan terrorist, Carlos SAVELLI Maldonado, by own admission met on 30 April and 1 May 1965 with leftist extremist reps. to discuss assassination of, among others, American ambassador (presumably American ambassador to Venezuela).
+
+AMSANTA Project 19-6-73/3
+
+MEMO for the Record dated 10 July 1963 by Lou De Santi
+Concerns FBI informant Victor Thomas VICENTE, Puerto
+Rican citizen, who penetrated Communist Parties in
+New York City, left New York for Cuba via Mexico as
+guest of ICAP (Cuban Peoples Friendship Institute).
+Was debriefed by CIA staffer Lou DeSanti upon return
+to the U.S. in July-Aug 63. VICENTE stated he had had
+interviews with CASTRO and Che GUEVARA. VIOENTE
+penetrated the FPCC, the Casa Cubá, and Jose Martí Club
+in New York City. /COMMENT: Page 127 of IG 1967 report
+mentions unnamed Puerto Rican who claims he participated
+in CASTRO inspired assassination plot in Dallas. Don't
+know if VICENTE could be that individual./
+
+SECRET/Sensitive
+
+- 96 -
+
+SECRET/SENSITIVE
+
+SECRET/SENSITIVE

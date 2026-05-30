@@ -1,0 +1,72 @@
+# JFK-Files-Part-2_page_7069.png
+
+Convert to Markdownthreatened to appeal to the President to over-
+turn the Review Board's votes, but the
+Review Board's position was that the JFK Act
+required release of information where CIA
+did not provide convincing evidence to sup-
+port their postponements. The Review Board
+allowed the CIA ample time to gather and
+present its evidence to support its requests
+for postponements as both the CIA and the
+Review Board hoped to avoid a CIA appeal
+to the President.
+
+Ultimately, the CIA determined that it would
+trust Review Board members with the infor-
+mation that the Review Board required to
+postpone the release of the location of a
+small number of CIA installations. In an
+effort to balance high public interest in the
+location of CIA installations and the need to
+protect certain installations, the Review
+Board decided to establish date "windows"
+within which it would release CIA installa-
+tion locations.
+
+The CIA never appealed a Review Board vote
+to the President.
+
+g. *CIA prefixes (cable, dispatch, field report).*
+
+i. *Review Board guidelines.* CIA cable, dis-
+patch, and field report "prefixes" are identi-
+fiers that CIA uses on its communications to
+indicate the installation that generates a par-
+ticular message. Where the Review Board
+had voted to release the location of a particu-
+lar CIA installation, the Review Board also
+voted to release CIA cable, dispatch, and
+field report prefixes that the installation gen-
+erated. Likewise, the Review Board protected
+cable, dispatch, and field report prefixes
+where it voted to protect the location of the
+CIA installation.
+
+The Review Board replaced the prefixes that
+it protected with substitute language similar
+to that used for CIA installations. An exam-
+ple of substitute language for CIA prefixes is:
+"Cable Prefix for CIA Installation in Western
+Hemisphere 1."
+
+ii. Commentary. Once the Review Board voted to release the location of a particular CIA installation, the Review Board and CIA did not disagree that the Board should release cable, dispatch and field report prefixes.
+
+h. CIA job titles.
+
+i. *Review Board guidelines.* The Review Board voted to release CIA employees' job titles except when the Board's disclosure of the title might reveal the identity of an individual or CIA installation requiring protection.
+
+ii. *Commentary.* Although the Review Board did not believe that it should vote to protect CIA job titles, standing alone, it sometimes voted to protect titles if they revealed other information that the Review Board had voted to protect.
+
+i. *CIA file numbers.*
+
+i. *Review Board guidelines.* CIA organizes many of its files by country and assigns "country identifiers" within particular file numbers. The Review Board released nearly all CIA file numbers that referred to Mexico City. The Review Board protected the "country identifiers" in CIA file numbers for all other countries with the exception of country identifiers "15" and "19." The Review Board generally released all CIA "201" or "personality" file numbers where the files related to the assassination.
+
+**ii. *Commentary*.** The CIA rarely objected to the Review Board's release of its file num-
+bers.
+
+j. CIA domestic facilities.
+
+i. *Review Board guidelines.* The Review Board released references to domestic CIA facilities where the CIA has previously officially disclosed the existence of the facility. The Review Board did not release information that would reveal the location of domestic CIA facilities where the CIA provided evidence that the facility was still in use.
+
+ii. *Commentary*. The Review Board rarely encountered the issue of whether to release the location of CIA domestic facilities in assassination records, as CIA officially acknowledges most of its domestic facilities. When the Review Board did vote to postpone the location of CIA domestic facilities, it required the CIA to provide extensive evidence as to why the CIA had to keep the location of those facilities secret.

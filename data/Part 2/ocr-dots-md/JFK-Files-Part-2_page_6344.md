@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_6344.png
+
+Convert to MarkdownCSI-0319/95
+
+8 March 1995
+
+NOTE FOR: D/IM/ADDA/IS
+DCI/IRO
+DA/IRO
+DI/IRO
+DO/IRO
+DS&T/IRO
+OGC (Bob Eatinger)
+DD/OCA
+C/IP&CRD
+C/RDP/MSG/OIT
+
+FROM: John Pereira
+Historical Review Group
+
+SUBJECT: JFK Assassination Records
+Proposed Regulations
+
+Please review attached draft comments on the proposed regulations prepared by the JFK Assassination Review Board.
+
+Our deadline for comments to the Board is 10 March, so please send me or Barry Harrelson your suggestions by cob
+
+9 March
+
+Attachments
+
+ADMINISTRATIVE - INTERNAL USE ONLY

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_4975.png
+
+Convert to Markdown13-00000
+
+MHFNO: 96-3101938
+
+SENSIND:
+
+SECRET
+
+PAGE: 4
+
+2. FILE: 014-005-039. CL REASON 1.5(B). DECL ON: X5
+
+DRV LIA-1.
+
+END OF MESSAGE
+
+SECRET
+
+SECRET

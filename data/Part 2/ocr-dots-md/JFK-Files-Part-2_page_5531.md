@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_5531.png
+
+Convert to MarkdownNames of Russians we should try to track down about Lee Harvey Oswald, Yuri Nosenko and the JFK assassination:
+
+1. General Oleg M. Gribanov, head of the Second Chief Directorate of the KGB in the early 1960s where Nosenko says he worked, primarily against American tourists, as deputy chief of the Seventh Department. Nosenko described himself as sort of favored by Gribanov and he said Gribanov instructed him, after the JFK assassination, to retrieve the Oswald file from the Minsk KGB right away.
+
+2. Anatoliy Koraleenko, deputy chief of the Second Chief Directorate or one of its departments, at time of JFK assassination. Nosenko said when the file arrived from Minski, he and Koraleenko were going over the all-important first volume--and finding KGB had nothing to do with Oswald--when a KGB officer from the First Department came in and picked it up on Gribanov's orders, to review it and write a summary of it.
+
+3. The officer who picked it up was Col. Matveev, deputy chief (I think) of First (or American) Department, Second Chief Directorate. Unhave first name.
+
+4. Chief of this First Department was Col. Sergei M. Fedoseyev or Fedoseev and presumably he would have had a hand in or supervised preparation of the "spravka" or summary.
+
+5. Gribanov and more than 40 other KGB officers were kicked out because of Nosenko's defection, according to Nosenko. That right? What happened?
+
+6. Maj. Georgi Rastrusin. Was in 1959 a senior case officer in KGB responsible for Intourist matters. Nosenko says that it was Rastrusin who told him about Oswald and how he wanted to stay in Soviet Union. Nosenko said Rastrusin said Oswald "doesn't present interest" to KGB and Nosenko checked out with his superiors. Word came back not to bother with Oswald. Nosenko was told to tell Rastrusin to tell Intourist to deal with him.
+
+7. Rastrusin returned next day and said we got a problem. Oswald tried to kill self, etc. KGB washed hands of him, decided to let Intourist deal with him. Intourist then part of Ministry of Foreign Trade. Nosenko said he believes question of what to do with Oswald was run to top of that ministry and beyond, to Khruschev or one of his deputies. In any case, decision was made to let Oswald stay in Minsk. But not, Nosenko says, by KGB.
+
+8. In the fall of 1963, a KGB colleague, M.I. Turalin, Service No. 2 (counterintelligence in foreign countries), First Chief Directorate, told Nosenko orally that Mexico City station had just sent a cable about a request by Oswald for a visa to re-enter Soviet Union. What should be done?
+
+Nosenko said he said, 'wait a second. How come he's back in America?' At that point, Nosenko said he hadn't known Oswald had gone back.
+
+9. Nosenko said he said let's go to chief of department who he identified as a Col. Cheinekov or Cheinenko (but later seemed to say his timing might be off and somebody else may have been chief of Nosenko's department at the time). In any case, Nosenko quoted chief as saying, in effect, 'I remember this crary nut. No. No. No. Tell them we don't have any interest.'
+
+Cable back to Mexico City advising KGB there get rid of Oswald by telling him to go back to his own country and apply for a visa at Soviet Embassy in Washington, etc., etc.
+
+10. Col. Gruzdey, was chief of the KGB department in Minsk that was responsible for foreigners there.
+
+11. Oleg Nechiporenko, one of three KGB officers stationed in Mexico City who reportedly interrogated or dealt with Oswald on his visit to Embassy there. Now living in Moscow area.
+Other two Mexico City officers, both still alive in Russia: Valeriy Kostikov and Pavel Yatzkov.

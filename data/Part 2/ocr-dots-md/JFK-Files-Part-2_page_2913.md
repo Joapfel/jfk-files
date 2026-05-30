@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_2913.png
+
+Convert to Markdown13-00000
+
+government privy to all the studies of the Bay of Pigs operation,
+including the Taylor report, Robert Kennedy's personal report, the
+Kirkpatrick report, and the views of the President's Foreign
+Intelligence Advisory Board.
+
+McCone did not dwell on the Bay of Pigs after he took office, but
+he did draw several conclusions. Firmly believing the decision to go
+ahead was a mistake, he nevertheless thought it an even worse mistake
+to dismember the operation once underway, contending that the CIA
+should have appealed directly to the President to reverse the
+decision to stand down the air strikes. Concluding as well that the
+members of the Taylor commission had been too closely involved with
+the events to have sufficient perspective, he believed the CIA and
+JCS had to bear special responsibility for advising the new President
+to go ahead, since at that time these were the only two Washington
+organizations dealing with international affairs which possessed
+complete continuity.
+
+Taking a detached view of the operation, McCone was able to
+concentrate on what the Agency could do to avoid similar mistakes in
+the future. Leery of large-scale operations involving the Agency's
+paramilitary capability, McCone strove, with mixed results, to remove
+the CIA from such enterprises. He also stressed the importance of
+planning an operation from beginning to end (an attitude which
+dominated his approach during the Cuban missile crisis). Finally, he
+insisted that the Agency's estimative function be privy to planned
+operations, providing early and frequent judgments.
+
+WORKING DRAFT 99
+Handle via [BYEMAN] Control System
+
+BY NO. 018-88
+copy 2 of 2
+
+TOP SECRET

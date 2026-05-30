@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_7528.png
+
+Convert to Markdown4. On 23 March 1977 several identification experts of the Disguise and Identification Section of OTS/GAD compared photos of the unidentified man with photos of MXXY Yuriy Ivanovich MOSKALEV from the FBI, British Liaison, and CRS. It was their opinion that MOSKALEV could very likely be identifiable with the unidentified man.
+
+5. Page 59 of the book "Appointment in Dallas," shows an Identi-Kit Model composite of an individual who told the author in London in 1972 that he was involved in the assassination of President Kennedy. The composite of that individual (code name "Saul"), whose real name is unknown to the author, bears a striking resemblance to the photos of Yuriy Ivanovich MOSKALEV. According to the author "Saul" identified the picture shown in the Warren Commission Exhibit #237 as having been taken at the Russian Embassy in Mexico City, either in the foyer or just outside.

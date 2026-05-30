@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_8549.png
+
+Convert to Markdown13-00000
+
+ATTACHMENT B (4)
+
+Item No. 67 (lines 24, 25) MSS p. no. 92
+
+(S) Under injunction as classified information is "For its Tibetan operation of the early sixties, the Agency constructed extensive support facilities in Northeast India and brought large numbers of guerrillas to a deserted Army base in Colorado for special training." Underlining (line 25, ninth thru twenty-third word) indicates the questionable part of the item since MSS page 97, lines 24-26 states "Some Tibetans were quietly brought to the United States for special paramilitary training at Camp Hale in the mountains of Colorado." This sentence was originally deleted, then reinstated and appears in boldface type on page 115 in the published book.
+
+SECRET

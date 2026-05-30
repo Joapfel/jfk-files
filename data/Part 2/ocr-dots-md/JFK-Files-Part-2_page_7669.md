@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_7669.png
+
+Convert to MarkdownIf you went through this letter-writing process and the paper war that goes on so often in the Government it might take a week or 10 days.
+
+The FBI does have 10 legal attaches attached to 10 embassies abroad. Their purpose is not operational. They don't investigate in those countries any matters that have to be investigated. That, if it is to be done, is handled by CIA. Our purpose in being there is to maintain liaison with our opposite number such as the Surete Nationale in France and with the national police in the Philippines, to exchange information that is vital to our internal security, and also vital to the internal security of the other country.
+
+Senator COOPER. May I ask one other question?
+
+Is there any, considering the number of defectors in the United States to Communist countries, which cannot be large, I would assume—
+
+Mr. HOOVER. I think there are about 36.
+
+Senator COOPER. Which would indicate, I would think either a lack of reliability on their part and stability or beyond that a dedicated purpose to become Communists, then upon their return, wouldn't it seem to you they should be given some special attention?
+
+Mr. HOOVER. We have now---
+
+Senator COOPER. To determine whether they are a risk to become Soviet or Communist espionage agents or in fact become dangerous?
+
+Mr. HOOVER. We have taken steps to plug that gap.
+
+Prior to the assassination of the President, a 'defector, before he came back was always cleared for return by a representative of the State Department or the military abroad. When he came back we immediately interviewed him if he was a civilian. It had to be done promptly to determine whether he could be a potential intelligence agent.
+
+Now, in December of last year, following the assassination, we expanded the criteria of what should be furnished to the Secret Service, and all defectors automatically go on the list to be furnished to the Secret Service.
+
+There are 36 defectors that we know of in this country who have been under investigation. Some of those men may have changed their views sincerely. Some of them may not have. But as a matter of general precaution, as a result of the Oswald situation, we are seeing that all go to the Secret Service.
+
+Mr. DULLES. That includes military defectors, does it not?
+
+Mr. HOOVER. Military defectors and defectors from any private agency, after they return to the U.S. and become civilians. Some have defected to China, to the satellite nations and to Russia.
+
+Senator COOPER. Just one other question, because I have to go.
+
+In the course of this investigation, as you know so well, there have been a number identified who were very close, at least to Mrs. Oswald, and a few, I can't say that were close to Oswald yet they had association with him, such as the man who drove him back and forth, Mrs. Paine, with whom Mrs. Oswald lived, and others, has there been any credible, I won't say credible because if you had you would have presented it to us in your report, has there been any claims by persons that these people are in any way related to the Communist Party?
+
+Mr. HOOVER. We have had no credible evidence that they have been related to the Communist Party in this country.
+
+Now, as to Mrs. Oswald, the wife of Oswald, there is no way of knowing whether she belonged to the Russian Communist Party in Russia. She is a rather intelligent woman, and notwithstanding that you have to talk with her through an interpreter, we have had no indication of her association with Communists in this country, nor have any of her close friends or relatives.
+
+As to his mother, we found no indication she is associated or closely associated with the Communists. She is the only one of the group that we have come in contact with that I would say is somewhat emotionally unstable. Our agents have interviewed her. She sometimes gets very angry and she won't answer questions. As to the rest of the group who had been friends of his, or worked with him in the Texas School Book Depository, none of them have indicated any Communist associations of any kind.
+
+Senator COOPER. Thank you.

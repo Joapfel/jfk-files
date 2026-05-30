@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_4240.png
+
+Convert to Markdown28 February 1964
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Minutes of Meeting of the Special Group, 27 February 1964
+PRESENT: Mr. Bundy, Mr. Johnson, Mr. Vance, and Mr. McCone.
+
+Mr. Bruce Cheever was also present for Item 1.
+
+## 1. Cuba
+
+The Special Group approved the following infiltration/exfiltration and/or caching and resupply operations: Numbers 411, 3121, 415, 422, 431, 3126, 432, 423, 416, 433, 434, and 3122, with the proviso that in regard to Number 434, a double agent operation, the cache would contain money and medicine but no weapons in case the Cubans decide to terminate the operation and publicize the cache.
+
+The four sabotage missions, specifically Numbers 414, 3111, 424, and 3113, were again placed in abeyance pending eventual resolution by higher authority of the entire problem of higher noise level operations.
+
+## 2. Kenya
+
+The Political Action Operation on Kenya was approved without discussion.
+
+Distribution
+* Mr. Johnson
+* Mr. Vance
+* Mr. McCone
+
+Please see special minute
+for additional items.

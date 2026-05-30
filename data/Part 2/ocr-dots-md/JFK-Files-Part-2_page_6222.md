@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_6222.png
+
+Convert to MarkdownSECRET
+
+SECRET
+
+24. The DO telephone directories list an Operational Services/Defector Staff beginning in October 1959? What was the Defector Staff? Did it have an operational component?
+
+25. In the period 1959-1964, were DO officers, selected to serve overseas under State Department cover, legally considered to be "members of the Foreign Service, appointed by the President with the advice and consent of the Senate?"
+
+SECRET
+
+SECRET
+
+13-00000
+MAR 31 '97 12:06PM
+P.7
+
+SECRET
+SECRET

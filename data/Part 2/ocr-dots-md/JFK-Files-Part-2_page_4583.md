@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_4583.png
+
+Convert to Markdownthree months under him than they would learn in three years of formal
+training. As a result of being so short handed, Morales had to work
+about 14 hours a day, seven days a week. Otherwise, however, he
+received excellent support generally, both from Headquarters and the
+other sections of Miami Base.
+
+7. As for suggestions for better operation in the future,
+Morales made two points. (a) the screening of military trainees
+should start at a much earlier point than was done this time; (b)
+more adequate number of personnel should be furnished.
+
+R. D. Shea
+
+TOP SECRET

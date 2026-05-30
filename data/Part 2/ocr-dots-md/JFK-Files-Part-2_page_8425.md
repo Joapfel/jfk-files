@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_8425.png
+
+Convert to MarkdownSECRET
+
+-31-
+
+17 September 1970: Cruz called Sr. Jerez at Tampico, phone 22466.
+
+17 September 1970: In background conversation from phone call at home, could be overheard following: Mercedes was complaining to Cruz that everyone at the Embassy gave her work to do while others play around. Cruz told her not to pay any attention to Angel.
+
+Cruz then called Sr. Jerez, Cia Villasana, 2-24-66, Tampico, Customs Brokers, re shipment from Holand. He needed info to get the franchise to get a shipment of 2 record players and one TV through customs. Cruz was told to call the Representaciones Maritimas in Mexico City, Avenida Juarez 42, Edificio D-11th floor and they would notify the Tampico office.
+
+Later Cruz called airlines to see about air freight from Tampico.
+
+18 September 1970: LIFEAR: Cruz called from home to Havana 30-49-70, Araceli (Arita) Herrero to see what happened to the things, she was to send him. She told Cruz they were ready but not picked up. Cruz told her to call "Papo" in the pouch section and have him send it to Cruz.
+
+18 September 1970: Cruz from home called Prensa Latina to discuss new subscriptions he wanted from Panama and Caracas. Also ordered the Xerox machine to be changed.
+
+18 September 1970: LIENVOY: Cruz met the Cubana flight.
+
+19 September 1970: Sr. Arredondo, Morelos #5, Apt. 3 Tlalnepantla, Edo. de Mexico, contacted Cruz to say he was going to have a Cine Club at the Municipal Cmte of the PRI. Cruz promises film. Cruz promises to see Arredondo the next week to coordinate a trip to the interior.
+
+19 September 1970: Luna called Cruz to go over to his apartment. (ca. 5:30 afternoon)
+
+SECRET

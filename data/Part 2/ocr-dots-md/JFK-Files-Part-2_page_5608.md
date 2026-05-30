@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_5608.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+From the Desk of Linda C. Cipriani
+
+**NOTE FOR:** J. Barry Harrelson
+**FROM:** Linda C. Cipriani
+**DATE:** 09/26/96 12:22:04 PM
+**SUBJECT:** Agee Memo - New draft
+
+Here it is... with Jeremy's improvements. Please read it carefully as I had to rush through this. Some of Jeremy's comments were slight wording changes so as not to offend "the Board" so you may not notice much change. The biggest substantive change was on my FOIA section (I have skillfully crafted this section to avoid the use of that four letter word!). Please note there is one more paragraph now because I did add a bit about Scl else being an "official". And don't forget to attach to Stokes-DCI letter which I will fax back to you.
+
+Have fun - and let me know if you need help.
+
+AGEEMEMO.DOC
+
+CC:
+
+SECRET

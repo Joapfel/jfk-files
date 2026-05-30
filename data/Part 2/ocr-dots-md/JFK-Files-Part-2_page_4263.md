@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_4263.png
+
+Convert to MarkdownEYES ONLY
+
+- 3 -
+
+4. ELINT Balloons 98
+
+Dr. Scoville gave the Group details of the operation in the Sea of Japan, employing balloons against TALL KING radars. He said that the results indicate that perhaps these radars are not as efficient as we had thought, but that further analysis is proceeding.
+
+5. Covert Operations, Cuba
+
+a. Procedures
+
+Noting that the shipping sabotage paper of 19 March had not been considered by the Cottrell committee as a body, the Special Group asked that such proposals be considered in that way before submission to the Special Group. In passing the recommendations to the Special Group it should be indicated what the position of the various Cottrell members was, just as is done in the case of political projects coordinated with State and the ambassador. Each member of the Cottrell committee would see to it that his own agency staffed the paper in the normal way for submission to the Special Group.
+
+b. Sabotage of Shipping
+
+The substance of the 19 March paper was then considered. Mr. McCone raised a question as to exactly what the U.S. objective now is in this and related fields, and questioned in addition whether we may be trying to manage exile groups too closely.
+
+There was some discussion as to the actual value of carrying out the proposed sabotage, that is whether enough damage could be done to hurt the Castro regime seriously. The consensus of the Group seemed to be that activity of this kind should not be undertaken if it could be expected to yield only small gains, but that if its effect would be really significant then that would be a different matter.
+
+Considerable doubt was expressed about the proposal for sinking and setting fire to ships. None of the members felt that there was any particular objection to the use of abrasives or other damaging materials.
+
+The proposal was then remanded for group consideration by the Cottrell committee. This committee is asked to look at the proposal in relation to everything else that is going on or is under serious consideration, in order to assess its true potentiality. Mr. FitzGerald was authorized to modify the proposal to the extent
+
+EVER ONLY
+
+Vmc

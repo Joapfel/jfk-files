@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_4523.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: AMSANTA Project
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+Job # 65-427/38 Box 7
+
+File # 19-6-73/3
+
+Volumes: 5
+
+1. Description:
+
+Coverage of Castro Communist regime through use of existing Communist Party and front penetration assets. File was opened in December 1962.
+
+2. Findings:
+
+Memo for the Record dated 10 July 1963 by Louis De Santi SAS/CI/CP
+
+FBI informant Victor Thomas VICENTE, Puerto Rican citizen, who penetrated CP's in NY City left NY for Cuba via Mexico as guest of ICAP. Was debriefed by CIA staffer Lou DeSanti upon return to U.S. in July-Aug 63. VICENTE stated he had interviews with CASTRO and Che GUEVARA. VICENTE penetrated the FPCC, the Casa Cuba, and Jose Marti Club in New York City. Page 127 of IG 1967 report mentions unnamed Puerto Rican who claims he participated in Castro inspired assassination plot in Dallas. Don't know if VICENTE could be that individual.
+
+Attachment:
+
+Researcher: KGB
+
+LAD/JFK Task Force
+
+3. Checked VICENTE 201-731222.

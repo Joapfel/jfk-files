@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_5671.png
+
+Convert to MarkdownSUBJECT: Position on Release of Information Pertaining to Mexico City Station and the JFK Assassination Records
+
+B. Cryptonyms, such as those in the LI series, unless they appear in the context of liaison (operational equities (such as LITENSOR and LITEMPO).
+
+C. We need to continue the protection of the cryptonym LIENVOY.
+
+This cryptonym is used extensively throughout the world to describe the joint activity from different perspectives. Individual occurrences may not seem to reveal anything significant but, when looking at the cryptonym in context over the entire collection it reveals the joint activity which we are trying to protect.
+
+4. Regarding the revelation of names of employees who retired under cover, we request the Board to table its final determination until the individuals have been contacted and informed that their name is being considered for release. This will allow the individual to consider the impact it will have and convey relevant information. The Directorate database is not set up to track individuals who were involved in specific operations. We need the assistance of the employees to know their operational involvement's. Office of Central Cover has prepared and is coordinating a letter to be sent to the employees which will both inform them and solicit their assistance/comments.
+
+Fredrick C. Wickham, Jr.

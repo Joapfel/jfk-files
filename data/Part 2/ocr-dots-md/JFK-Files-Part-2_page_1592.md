@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_1592.png
+
+Convert to Markdown(c) You will submit to the Government quarterly income and expense statements on the cover venture and copies of all tax returns filed in connection therewith. Your cover accounts shall be kept separate and distinct from the bank account into which your personal compensation payments are made.
+
+(d) You herein agree that monies loaned you by the Government shall be repaid from the profits of the cover venture, in amounts and at periodic intervals to be established by the Government representative over seeing your activities. After said loan has been completely repaid and all other obligations, such as local taxes, etc., have been made, you may retain any further profit derived from said cover venture. However, it is clear understood and agreed that your primary obligation under this agreement is the performance of Governmental activities.
+
+11. **Secrecy.** All information related to this agreement conveyed by this instrument, or otherwise, is secret and shall not be divulged to any person, organization or government in any form or manner, except as authorized by the undersigned Contracting Officer executing this agreement. It is agreed that any revelation whatsoever of the above information will constitute and be an immediate and final breach of this agreement and will result in forfeiture by you of any and all benefits which may then have accrued to you by reason of this agreement.
+
+12. **Instructions.** During the term of this agreement, and in your official cover capacity you herein agree to act in conformance with instructions, oral or written given you by authorized representatives of this organization.
+
+13. **Unauthorized Commitments.** No promises or commitments pertaining to rights, privileges or benefits other than those expressly stipulated in writing in this agreement or any amendment thereto shall be binding on this organization.
+
+14. **Term.** This contract is effective as of 1 November 1960, and shall continue thereafter for a period of two (2) years unless sooner terminated by the Government either:
+
+(a) By sixty (60) days' actual notice to you from the Government, or
+
+(b) Without prior notice, in the event of a breach of this contract by your violation of the security provisions hereof or by your otherwise rendering yourself unavailable for acceptable service.
+
+Subject to the availability of appropriations, this agreement may be extended upon notice from the Government. In the event of voluntary termination on your part or termination for cause by the Government prior to the expiration of this agreement or any renewal thereof, you will not be entitled to return travel expenses to the United States. Termination or expiration of this agreement will not release you from the obligation of any security oath you may be required to take.
+
+UNITED STATES GOVERNMENT
+
+BY
+Contracting Officer
+
+ACCEPTED:
+Ernest C. Maycrink
+
+WITNESS:
+APPROVED:

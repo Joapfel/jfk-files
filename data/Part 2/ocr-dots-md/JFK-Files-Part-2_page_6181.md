@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_6181.png
+
+Convert to Markdown09/16/97
+
+TUE 12:36 FAX 202 724 0457
+
+- 4-
+
+- tentative time line:
+
+11/30/97 boxes 1-6
+12/31/97 boxes 7-13
+1/31/98 boxes 14-19
+2/28/98 boxes 20-25
+3/31/98 boxes 26-31 & 44-45
+(Boxes 32-43 contain LHO's 201 file, which will be treated as a special case.)
+4/30/98 boxes 46-51
+5/31/98 boxes 52-62
+6/30/98 boxes 63-72
+
+4. Microfilm copy of Oswald 201 (approximately 12 boxes)
+
+- issue:
+
+The vast majority (if not all) Oswald Microfilm records are duplicates of records the Board has already reviewed under the JFK Act. To the extent that the records previously have been reviewed, there is little value in re-reviewing the records. The ARRB staff will survey the Microfilm 201 in an effort to identify any additional records that have not already been acted upon by the Board. All records not previously acted upon by the Board will be so designated, a RIF will be prepared, and they will be sent for Board action. The remaining Microfilm 201 will be transferred to the JFK Collection at NARA and opened in full in 2017.
+
+- status:
+
+Staff has completed its initial survey and has thus far identified no records in the 201 Microfilm that are not already in the JFK Collection.
+
+C. "Working Files" (including "Russ Holmes" papers, etc.)
+
+- status:
+
+No Record Identification Forms have been prepared. ARRB staff has conducted a general survey.
+
+- target dates:
+
+Work to commence by CIA on October 1, 1997. CIA should prepare Record Identification Forms for all records by January 1, 1998. Completion of review and Board determinations by March 31, 1998.

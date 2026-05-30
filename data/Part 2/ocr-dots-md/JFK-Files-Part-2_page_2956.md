@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_2956.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+3 October 1963
+
+McCone asks John Richardson to return to Washington on temporary duty; Dave Smith acting COS Saigon.
+
+5 October 1963
+
+After hearing trip report by McNamara and Taylor, President Kennedy states publicly that war in Vietnam can be won by the end of 1965; McCone takes pessimistic view.
+
+7 October 1963
+
+McCone meets with John Richardson.
+
+9 October 1963
+
+President Kennedy answers two questions at press conference about Richardson and the Agency.
+
+16 October 1963
+
+Far East Division develops basic paper on re-organization of Saigon station.
+
+17 October 1963
+
+McCone discusses role of Air Force and national intelligence assets with Gilpatric.
+
+25 October 1963
+
+McCone develops position paper for meeting ✓ with President Kennedy on coup plotting in Vietnam.
+
+1 November 1963
+
+Diem government overthrown by Vietnamese ✓ generals.

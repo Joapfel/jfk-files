@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_3780.png
+
+Convert to MarkdownMr. [Swann:] At the request of Helen, Mr. Kuhn's office, Policy Coordination Staff, ext 1623, I asked for a name trace and the files on the following, and gave your name:
+
+Mistretta, Vincent
+b. 13 Jan. 1913, Brooklyn NY
+FBI has a continuing investigation on Subject who has been interviewed and advised of contacts with CIA between 1970 and 1975. He named two people: 6[R.T. Conway] and a Dr. Jerry Berger. They--the FBI--want to know if we have these people or any information on this man.
+
+SRD is sending file on Mistretta, covert subject 857074; has nothing on Dr. Jerry Berger; there are three files which suggest the [R.T. Conway]:6 two on (Robert Conways) one of which is a retired file, and one on a ["Red" Conway].
+
+Do you want any or all of those?
+
+Novel, Gordon Michael
+b. 7 Feb. 1938 in San Antonio, Texas
+Lives in Houston, Tex. at 414 Baywood Paced Drive.
+FBI has an active investigation on the Subject and they disseminated a memo dated May 27, 1976 on the Subject but it may or may not have come to Security. SRD is sending his file up.
+
+jane macauley
+
+Oct. 12, 1976

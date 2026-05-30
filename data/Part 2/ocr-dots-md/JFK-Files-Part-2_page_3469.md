@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_3469.png
+
+Convert to Markdown13-00000
+
+2 November 1962
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Meeting on CA Matters with the Panel of the President's Foreign Intelligence Advisory Board
+
+1. On 1 November, the Deputy Director (Plans) met with Messrs. Robert Murphy, Gordon Gray, and J. Patrick Coyne to present a follow-up briefing on the Agency's political action programs since the one held on 20 July 1962. The meeting lasted from 2:30 to 4:45.
+
+2. There was little discussion on Cuba. In response to Mr. Murphy's inquiry, I told him that a good intelligence job had been done but that I thought it desirable to have this studied by the Board on the basis of a paper which the Director was having prepared and which Mr. Kirkpatrick had assured Mr. Coyne would be submitted to the Board after the Director had had an opportunity to review it.
+
+3. The [Brazilian] election program was covered in considerable detail. Points covered were: (a) the reason for the program, (b) the manner in which candidates were chosen, (c) the amount of money involved, (d) the methods of funding, and (e) the coordination of State and the Agency on the entire scenario. Following the presentation of the factual elements, there was considerable discussion of the political situation in [Brazil] and the direction in which that Government seemed to be tending.

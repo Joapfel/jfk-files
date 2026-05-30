@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_3455.png
+
+Convert to MarkdownSECRET SENSITIVE NOFORN
+
+These had been in a package delivered to a doctor in the
+Canal Zone, who turned them over to the Station which in
+turn forwarded them to Headquarters. The dispatch was
+passed to CI Staff by WH Division in 1972. A note on the
+dispatch indicates that CI Staff took no action other than
+to process the materials into its files; but the CI Project
+continued to hold the originals. At the time CI Project
+theorized that a mailing label on a package from Olympus
+Corporation in New Hyde Park, New York, to the Canal Zone
+doctor had fallen off the package for the doctor, and been
+erroneously fastened to the package containing the Soviet
+mail.
+
+"2. This is the only case as far as we know in which the original mail has been held by this Agency. In all other cases we examined the mail, opened it surreptitiously, photographed it, and put it back into the mail channels for delivery to the addressee. Thus, this presents us with a peculiar problem. The letters have all been opened with a letter opener. We do not know at what point along the way the letters were opened.
+
+"3. We solicit your advice. There seems to be at least two courses which we might pursue. We could send these items to the people to whom they are addressed, under cover of a letter explaining how we had acquired the mail and apologizing for our delay in forwarding it. Another course of action would be to reinsert the mail into the postal system by forwarding it under cover of a memorandum to the U.S. Postal Service. In the memorandum we would state that the mail came into our hands overseas, and was inadvertently held. The memorandum would further state that this Agency does not know at what point the mail was opened.
+
+"Attachments: 114 Items
+
+2 Hungarian Custom's [sic] Declarations
+
+5/1MC
+
+13
+SECRET SENSITIVE NOFORN

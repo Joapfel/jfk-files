@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_2317.png
+
+Convert to MarkdownSECRET
+
+23 August 1962
+
+MEMORANDUM IN LIEU OF FITNESS REPORT
+
+SUBJECT: Birch O'NEAL
+
+1 April 1960 - 31 August 1962
+
+1. There has been no change during the reporting period in the highly efficient performance of Mr. O'Neal in his position as C/CI/SIG.
+
+2. We recommend his continuation in this assignment where continuity is a requirement.
+
+James R. Hunt, Jr.
+Acting Chief, Counter Intelligence Staff
+
+Memorandum has been seen by employee.

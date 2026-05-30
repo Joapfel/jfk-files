@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_7888.png
+
+Convert to Markdown13-0000
+
+Memorandum to Mr. DeLoach
+
+RE: MURKIN
+
+Other major avenues of investigation include checking out white Mustang automobiles, since one was seen leaving at a high rate of speed after the shot was fired; efforts to trace a bedspread or blanket found with the gun, and the immediate processing of all suspects as soon as they are developed.
+
+ACTION:
+
+1. Attached is a memorandum for the White House, the Attorney General, the Deputy Attorney General and the Civil Rights Division.
+
+2. Investigation is continuing on an all-out basis.

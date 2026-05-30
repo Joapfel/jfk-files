@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_5696.png
+
+Convert to MarkdownSECRET
+
+SUBJECT: (S) Required Protection of Warrenton Training Center as CIA Facility
+
+* covert employees of the Office of External Development⁵ and the various area divisions of the Directorate of Operations (hereafter "DO") which are responsible for clandestine human intelligence operations overseas;⁶
+
+* senior officials of the Administration, Ambassadors, and senior executive branch offices in preparation for diplomatic initiatives, such as the Bosnian Peace Talks; and
+
+* members and staff from the Senate Select Committee on Intelligence.
+
+* Station C serves as the CIA's primary transmit site for high frequency (HF) covert communications (covcom) and thus maintains communications with our most sensitive and secret officers and assets operating overseas largely with non-official cover; and
+
+* Station D serves as the Agency's primary receive site for world-wide classified and encrypted communications with
+
+⁵ (S) The Office of External Development (OED) is one of the most sensitive components within the Directorate of Operations and is responsible for the recruitment and placement of "non-official cover" (NOC) officers overseas who are responsible for the recruitment and management of foreign nationals who provide clandestine services for CIA.
+
+⁶ (S) The various DO area divisions utilize WTC for immersion language training, covert communications training, and other seminars and studies where such training could not be accomplished through the Department of State or identified CIA facilities because of their pending overseas assignments. Hence, if WTC was associated with CIA, then the presence of a student at WTC would serve to identify that officer as a soon-to-be-assigned espionage officer for American intelligence -- an identification inconsistent with their pending diplomatic or commercial cover and the success of their mission.

@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_6804.png
+
+Convert to MarkdownDRAFT
+
+proceeds. However, the Committee does not intend to
+vest unfettered discretion in the Review Board to
+request any and all records of agencies without regard
+to their relationship to the assassination. The
+Committee expects that the Board will request only
+documents that may bear some reasonable relationship to
+the assassination, and that the Board will be guided by
+the principle that unreasonable risk of exposure of
+sensitive intelligence or law enforcement sources or
+methods is to be avoided.

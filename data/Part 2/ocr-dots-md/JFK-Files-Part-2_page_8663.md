@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_8663.png
+
+Convert to MarkdownSECRET
+
+June 1977
+
+SUBJECT: Juan FALCON Tamar
+
+1. This name was traced because FALCON claimed support of CIA in activities against Cuba. There is no indication in Headquarters traces that he worked for the CIA.
+
+2. UFGA 4948 (Memo from AMOT-2 from AMDIAL-2, #AA 134, dated 18 July 1962):
+
+On 17 July 1962 Cuban Station "Radio Rebelde" interviewed Juan FALCON Tamar, alleged National Coordinator of the MRR - Revolutionary Recovery Movement - under arrest in Cuba. FALCON stated that they engaged in performing a series of sabotages, such as burning the "Petroquimica" of Cotorro; a plan to destroy national transport in general; destruction of 3 buses of Rte #33; a plan for systematic destruction of the economy which included, among other things, the poisoning of cattle. FALCON admitted planning the assassination of Carlos Rafael RODRIGUEZ; which he attributed to CIA, and also mentioned assassination of Fidel CASTRO. FALCON said that the assassinations were being planned when he was arrested. FALSON claimed to have the support of the CIA.
+
+3. For document, see MRR Section of Task Force material.
+
+Researcher: [Martin Miller] LAD/JFK Task Force

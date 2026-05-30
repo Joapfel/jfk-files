@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_6283.png
+
+Convert to MarkdownMEMORANDUM OF UNDERSTANDING
+BETWEEN THE DIRECTOR OF CENTRAL INTELLIGENCE
+AND THE SELECT COMMITTEE ON ASSASSINATIONS
+
+# I. Preparation of Materials
+
+A. The Central Intelligence Agency (CIA) will cooperate fully in the investigations conducted by the Select Committee on Assassinations (Committee) by providing access, as requested, to classified information within the releasing authority of the CIA, and held by the CIA, that bears upon the study and investigation authorized by H. Res. 222. CIA will notify the Committee of any requested information held by CIA not within the releasing authority of the CIA, and notify the Committee of the proper authority to contact to obtain the information. No document or a portion of the document in the possession of CIA will be withheld without written notice of that action to the Committee. Access to all classified information designated for protection from unauthorized disclosure by the Director of Central Intelligence (DCI) and currently held by any federal agency or department shall be governed by this memorandum.
+
+B. Documentary material will be made available as expeditiously and completely as feasible, subject to the responsibility of the DCI to protect sensitive intelligence sources and methods. The Committee and CIA will periodically agree upon a list of identities that will not be excised from materials turned over to the Committee. Subject to the list of identities that will not be deleted, CIA will appropriately sanitize, including excising if necessary, information to assure protection of information identifying sensitive sources and methods. When an excision is made, CIA will indicate the nature of the source or method excised, including the functional intelligence discipline which was the source of the intelligence.
+
+C. The Chief Counsel of the Select Committee on Assassinations and a designated representative of the DCI shall meet monthly to discuss a random sample of the complete and unsanitized materials selected by the Chief Counsel for the purpose of verifying the appropriateness of the sanitizing done by the CIA. Those matters on which they do not agree shall be referred to the Chairman, Ranking Minority Member, and the DCI for resolution.

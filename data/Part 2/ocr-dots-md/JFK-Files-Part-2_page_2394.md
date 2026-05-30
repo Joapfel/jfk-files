@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_2394.png
+
+Convert to MarkdownSECRET
+
+TO : Security Officer, GSO
+FROM : CQAAO
+
+SUBJECT: Communications Debriefing of Birch D. O'Neal
+
+Date: 20 February 1950
+
+The above named individual has been debriefed by this office
+and a copy of the debriefing statement is attached for inclusion in
+the individual files.
+
+FOR THE CHIEF, COMMUNICATIONS DIVISION,
+
+L. WISDOM RAY
+
+oo with Attachment:
+
+3RD
+
+CTD
+
+SECRET

@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_2654.png
+
+Convert to Markdown# FORM 2025-1 (June 1948) - UNCLASSIFIED
+
+## (B)
+
+FROM Sept. 1947 TO Mar. 1948 CLASSIFICATION GRADE NA
+(IF IN FEDERAL SERVICE)
+
+EMPLOYING FIRM OR AGENCY: Attended Latin American Institute.
+ADDRESS: 200 Park Ave., New York City, N.Y., U.S.A.
+(St. and No.) (City) (State) (Country)
+KIND OF BUSINESS: NA NAME OF SUPERVISOR: Dr. Juvenil L. Angel/Pres.
+TITLE OF JOB: NA SALARY & PER: NA
+YOUR DUTIES: NA
+
+REASONS FOR LEAVING: Graduated...
+
+FROM June 1948 TO Sept. 1948 CLASSIFICATION GRADE NA
+(IF IN FEDERAL SERVICE)
+
+EMPLOYING FIRM OR AGENCY: National City Bank of New York.
+ADDRESS: 50th Street Branch, N.Y.C., N.Y., U.S.A.
+(St. and No.) (City) (State) (Country)
+KIND OF BUSINESS: Banking NAME OF SUPERVISOR: Dan "t" recall.
+TITLE OF JOB: L.B. M. Proof Mach. Spec. SALARY & PER: —-
+YOUR DUTIES: Operated L.B.M. Proof Machine and had various clerical duties.
+
+REASONS FOR LEAVING: To attend Latin American Institute.
+
+FROM May 1947 TO June 1948 CLASSIFICATION GRADE NA
+(IF IN FEDERAL SERVICE)
+
+EMPLOYING FIRM OR AGENCY: Encyclopedia Britannica, Inc.
+ADDRESS: 252 E. 161 St., N.Y.C., N.Y., U.S.A.
+(St. and No.) (City) (State) (Country)
+KIND OF BUSINESS: Editor, Books Sales NAME OF SUPERVISOR: Don't Recall.
+TITLE OF JOB: Head-Children's Books Dept. SALARY & PER: NA
+YOUR DUTIES: In charge Children's Books Dept. To direct sales and sell children's Books
+
+REASONS FOR LEAVING: Foot injuries.

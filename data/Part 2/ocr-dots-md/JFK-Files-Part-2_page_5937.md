@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_5937.png
+
+Convert to MarkdownSECRET
+
+(U) The Security Research Staff (SRS) was the component responsible for collecting, developing, and evaluating information of a counterintelligence nature to
+
+detect and/or prevent penetration of the Agency's organization, employees, and activities by foreign or domestic organizations or individuals. SRS conducted research in connection with employee loyalty cases and maintained records identifying personalities, environments, and personal traits of individuals who had been of counterintelligence interest over the years. SRS maintained liaison with various government agencies in connection with counterintelligence activities and coordinated the counterintelligence effort throughout OS. Using organizational charts of this time period, SRS reported directly to the office of the Director of Security.
+
+(U) Don Staton of the OPS/Management Staff was queried regarding the mission and functions of SRS during the pre-assassination time period. Mr. Staton made inquiries relating to the above request, and the OPS/Information Management Officer Ronda Allen retrieved retired policy records for review. The information on the mission and function of SRS was retrieved from the archived Office of Security administrative and historical files as well as a review of the security file on Marguerite D. Stevens.
+
+3. (U) For your information, a page-by-page review of the documents contained in the Defectors File (12 volumes) and Lee Harvey Oswald's file (7 volumes) has not been conducted for the purposes of this request. Our efforts were concentrated on the pre-assassination time frame.
+
+4. (U) This review was conducted by Katie Nakai, OPS/CD/IMB, secure 40552.
+
+Attachment
+
+8
+
+SECRET

@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_649.png
+
+Convert to MarkdownSECRET
+
+22 June 1966
+
+MEMORANDUM FOR: CI/OA
+ATTENTION: Mr. Lally
+SUBJECT: LIRING-3
+         201-798301
+
+There were no RI traces on Subject. A Provisional
+Operational Approval is requested.
+
+W. J. Kaufman
+Chief, WH/1
+
+SECRET

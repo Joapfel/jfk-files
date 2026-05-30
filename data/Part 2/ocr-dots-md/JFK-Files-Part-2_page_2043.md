@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_2043.png
+
+Convert to MarkdownCONFIDENTIAL
+
+MEMORANDUM FOR: Director of Personnel
+SUBJECT: State Department Promotion of
+NOFL, James A.
+
+1. The Department has informed this office that effective April 1, 1962 subject employee was promoted from FSR-3, $13,600 to FCR-2, $14,900
+
+2. Request this notice be placed in the official folder of the employee concerned.
+
+cc: Finance Division
+Area Division
+
+CONFIDENTIAL

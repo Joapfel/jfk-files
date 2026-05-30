@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_8341.png
+
+Convert to MarkdownSECRET
+Security Information.
+
+19. KELLY continued by stating that he was apprehended by the Greek Police, allegedly for safe keeping in April 1951. He was placed in detention and remained under Greek control until his departure from Greece to Frankfurt by air. From Frankfurt he was transported to Panama where he arrived on 5 September 1951. He was placed in detention at a hospital in Panama and was of the opinion that perhaps the hospital was an exterminating establishment for undesirables. Later, however, he said he learned otherwise and through a friend, Mr. Stanley, learned that he was sent to Panama to undergo several physical check-ups and that after that was completed he would be removed to an area some 50 miles away where he would enjoy full freedom. Also that he would remain at his new location long enough to learn a language and prepare himself for resettlement. When he required how long that would be he was told that would be about six months.
+
+20. In March 1952 KELLY was transferred to DTROBALO. He stated that he remained at DTROBALO for six months and after that period he confronted the authorities concerning his release and resettlement. Approximately one month later KELLY said he informed the Station authorities that he would leave the area if they did not release him as initially promised. He stated that he was apprehended and placed in confinement until his release in May 1953.
+
+21. KELLY advised that the above is a true account of his past experiences and in view of my limited stay in DTROBALO would appreciate any answer I could give him regarding questions that have never been resolved and consequently have disturbed him. KELLY apparently had a list of questions prepared which he drew from a notebook and proceeded to read. The questions were as follows:
+
+a. Why was he apprehended by the Greek Police?
+
+b. Why was he placed in confinement in Panama and later at DTROBALO?
+
+c. How much longer must he remain at DTROBALO?
+
+d. Is there any possibility of his working with the organization (CIA) to complete the mission he initiated?
+
+e. What happened to the texts he wrote that were taken to the United States by Mr. Willard Allan?
+
+f. Why haven't any of his old friends visited him during the past two years?
+
+g. In regards to his family —KELLY stated that only as a last resort and only if he had to remain at DTROBALO would he want his family there. He would prefer working and saving sufficient money ($2000) to purchase or build a home for them in Greece and drop the whole matter.
+
+In response to the above questions I told Kelly that:
+
+a. He was apprehended by the Greek Police because of his proposed negotiation with the French IS.
+
+b. He was placed
+
+SECRET
+
+13-00000

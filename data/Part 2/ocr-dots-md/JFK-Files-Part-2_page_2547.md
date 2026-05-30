@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_2547.png
+
+Convert to Markdown# ADMINISTRATIVE
+## INTERNAL USE ONLY
+
+Mr. Bruce A. BERTOTALLY
+
+Dear Mr. Bertotally:
+
+Reference is made to your contract with the United States Government, as represented by the Central Intelligence Agency, effective 1 March 1970.
+
+Effective 1 December 1976 said contract is amended by deleting the figures $12.50 and $603.52 as they appear in subparagraph (a) of paragraph six (6) entitled "Negotiated Benefits" and by substituting in lieu thereof the figures $18.75 and $900.04 respectively.
+
+All other terms and conditions of the contract remain in full force and effect.
+
+CENTRAL INTELLIGENCE AGENCY
+
+BY Charles W. Sandman
+Special Contracting Officer
+
+ACCEPTED:
+
+/s/ Bruce A. BERTOTALLY
+
+WITNESS:
+
+APPROVED:
+
+Certified to be a true copy of the signed original which is on file in CI Staff.
+
+MICROFILMED
+JULY 1977
+
+Ruth I. Malecki
+Personnel Officer
+
+ADMINISTRATIVE
+INTERNAL USE ONLY

@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_1630.png
+
+Convert to Markdown"C. In addition to his many duties, Mr. Woods is generally thinking of ways to increase the efficiency of the station battery, and to be of greater assistance to the station at a whole. Several of his ideas have been adopted by the station with a resulting increase in effectiveness. It's possible approaching all problems and his cheerfulness and willingness to perform any task have benefited both the Station and the Agency.
+
+"D. In view of Mr. Wood's demonstrated ability to provide leadership to the Station, Reg & try can't hope better approach to the solution of the many problems which daily have this unit. It is strongly recommended that he be promoted from S-6-09 to S-3-10 at the earliest opportunity."
+
+Mr. Woods has contributed to perform in an all-around manner asard'ed in his recent "practitioner." He recently-planned and effectively presented the model of the State Battery from one location to another. In addition, he was on 22 November '85, the present Chief of Staff: Thus far, along with "There Is No Place Like Home," added to his preëmptions by his Chairman. Said 3 November 1964. The prime concern for Mr. Woods is here presented as follows (as the likely variation will be determined after a number of tests). There is a strong interest in a new system of promotion who will know where the division lies, the areas of his care and service.
+
+The above chart states, and should be guaranteed to receive full qualification by Mr. Wood being presented for it 3-6-68. This will add to the already adequate staff. Will continue to work 3-7-68 at the

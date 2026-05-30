@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_5653.png
+
+Convert to Markdown10/8/1996
+
+branch
+responsible for operations in Mexico and Central America. Richard Helms, the CIA chief of clandestine services and later the agency's director, placed Scelso in charge of the assassination investigation. Angleton, a counterintelligence official with close ties to FBI Director J. Edgar Hoover, "immediately went into action to do all the investigating," Scelso testified, criticizing the move sharply.
+
+"Helms called a meeting at which Angleton and a lot of others were present and told everybody that I was in charge and that no one should have any conversations with anyone about the Kennedy case without my being present - which was violated from the word 'go' by Angleton, who dealt with the FBI and the Warren Commission and (Warren Commission member and former CIA Director Allen) Dulles himself... Angleton ignored Helms' orders. I tried to get Helms to make him obey and Heims said, 'You go tell him.'"
+
+Angleton, who died in 1987, spent much of his career searching for conspiracies -
+- believing that there was a Communist mole in the CIA - and was presumed by
+other CIA officers to have tried to press a conspiracy theory on the Warren
+Commission. The commission found no evidence of a conspiracy. Angleton was
+fired
+
+in 1975. Years later, a mole was found - Aldrich Ames - but he had entered the
+CIA after Angleton's dismissal.
+
+At one point in the 1978 House testimony, committee attorney Michael Goldsmith asked, "Do you have any reason to believe that Angleton might have had ties to organized crime?"
+
+"Yes," replied Sclelso, who is now retired and lives abroad, government sources said. He said the Justice Department once asked the CIA to determine the true names of people holding numbered bank accounts in Panama because the Mafia was hiding Las Vegas "skim" money there. "We were in an excellent position to do this and told them so - whereupon Angleton vetoed it and said, 'That is the bureau's (FBI's) business.'" Sclelso said he discussed the situation with another CIA officer. "And he smiled a foxy smile and said, 'Well, that's Angleton's excuse. The real reason is that Angleton himself has ties to the Mafia and he would not want to double-cross them.'"
+
+On another subject, Sclelso gave Kennedy conspiracy theorists a slight piece of

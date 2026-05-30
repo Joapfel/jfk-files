@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_3806.png
+
+Convert to MarkdownMessrs. Horak, Vaughn and Wright.
+
+July 6, 1975
+
+calls be allowed to accumulate on the Dictaphone Ansiphone and GTS coupling service you recently installed and for which I was charged.
+
+In the event you do not wish to honor your tariff regulations and community service responsibilities, available to other customers, you are then requested to suspend, until further notice from either our attorneys or from me, the paid-for service and notify all callers, including A.T.&T. executives with whom I am currently involved, that the party (i.e. Gordon Novel/G. N. Rose) can be reached at 214 358-5353 or 522-1323. Any other action will be answered by injunctive litigation.
+
+These security measures are being taken at great inconvenience to a number of people. I am certain you understand by now that I am very serious about the matters discussed in this letter.
+
+Gordon Novel Rose
+Senior Associate
+NOAH DIETRICH & ASSOCIATES

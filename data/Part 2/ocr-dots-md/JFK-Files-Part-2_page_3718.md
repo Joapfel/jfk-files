@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_3718.png
+
+Convert to Markdown13-00000
+
+# TOP SECRET DINAR
+
+Europe
+
+## WEST GERMAN POLITICAL DEVELOPMENTS
+
+The opening of the Berlin Wall during the holiday season and the death of Social Democratic Party (SPD) chairman Erich Ollenhauer have placed Willy Brandt once again in the center of the German political stage.
+
+The agreement to open the Wall resulted from Brandt's unceasing efforts to ease conditions for Berliners. His willingness to reach agreement with the East Zone authorities on the pass issue is being criticized by some Christian Democratic Union (CDU) leaders and by the CDU-oriented press in West Germany. Brandt, however, is banking on the expectation that most West Germans, like the Berliners, will approve his action. He has even hinted that there may be further negotiations with the East Germans to extend the period of the passes beyond the 5 January cutoff date. There is also speculation that both East and West Germany will find the pass agreement a model for agreement on other issues.
+
+Brandt, who was the most logical choice, was named acting chairman of the SPD immediately after Ollenhauer's death on 14 December. Deputy Chairman Herbert Wehner has proposed that
+
+Brandt's position be formalized at a special party convention next month. Fritz Erler, the party's foreign and defense expert, is slated to take Brandt's place in the hierarchy as second deputy chairman. As the SPD leader, Brandt would stand to be candidate for chancellor in the 1965 general elections. If current opinion polls are any indication, the SPD will give the CDU a strong race in that contest.
+
+Brandt, however, has not yet committed himself, since to accept the SPD chairmanship might require him to resign as mayor of Berlin and move to Bonn. In so doing he would have to operate at a distance from his political bastion.
+
+Whatever Brandt decides, the SPD is bound to miss the conciliating influence of Ollenhauer, who was able to hold together the often highly antagonistic factions of the party. Brandt, with his ideas of greater flexibility in foreign policy, may be expected to clash more frequently with Wehner, who--despite his Communist past--has come to represent the SPD's right wing.
+(SECRET NO FOREIGN DISSEM)
+
+27 Dec 63
+
+CURRENT INTELLIGENCE WEEKLY REVIEW
+
+TOP SECRET DINAR

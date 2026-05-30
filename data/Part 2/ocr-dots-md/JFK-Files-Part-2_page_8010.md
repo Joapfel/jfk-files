@@ -1,0 +1,115 @@
+# JFK-Files-Part-2_page_8010.png
+
+Convert to Markdownhave to be done rationally. I also believe that it
+will have to be done by humanists, and that before
+they can do it, we have somehow to lower, or at least
+make more permeable, the barrier that separates the
+Two Cultures. We will come back to this point later.
+Before that, let us return to the notion that engi-
+neers choose what they will work on.
+
+The Choices of Engineers
+
+Most engineers do not make cosmic choices. They
+do not decide that this product will be built and
+that one won't be. Practically all engineers, I sus-
+pect, work for other engineers, who work for others,
+who work in companies where the products are deter-
+mined not by science or philosophy, but by market
+analysis. Now market analysis has come a long way
+since the days of the Edsel, and it often guesses
+accurately, although not always so, what the public
+is interested in buying. But what the public buys is
+not necessarily what it needs,
+
+**The Market-Place Guessing Game**
+
+We buy those things that are offered for sale
+that are better (in some vague way) than the alter-
+matives available to us. Except for advertising or
+other ways of influencing public opinion, the basic
+mechanism of the market-place is a guessing game.
+Try this product, see if it sells. If it does, fig-
+ure out what it was about it that sold, and push a
+little harder. If this one does not sell, retrench
+a little, or gamble on another change — and so on.
+Advertising and public opinion do play important
+roles — how else explain so many different labels
+on the same bar of soap, the same automobile? —
+but the decision as to how the engineers' skills
+will be used has, in the past, been largely deter-
+mined by the instantaneous outcome of the market
+game.
+
+Major Civil Problems
+
+Now please do not misunderstand me. The market-
+place mechanisms are important for determining soap
+or automobile styles. I believe that criteria of
+risk-and-return of investment are elements of our
+decision-making processes that we could discard only
+at great peril to our society. What I am saying is
+that the major civil problems: pollution, poverty,
+and population density, for examples, are not likely
+to be defined by market analysis.
+
+These problems, for which acceptable solutions
+are needed, share these characteristics:
+
+First, they cross product classification lines,
+and involve more than one sector of the economy.
+They are not just problems of the auto industry, or
+the mining companies, or manufacturing-but-not-
+service-industries — they involve all of these.
+All the skills that all these sectors employ may
+have to be applied to these problems. The cement
+plants in the country and the transport companies in
+the city have pollution problems that differ only in
+detail. To expect them to do the necessary research
+and development separately, each with his eye on his
+own segment of the market, is to postpone until
+much too late, if not forever, solving even the
+smaller parts of our problems. The problems, so to
+speak, are too big.
+
+These Problems are Hardly Separable
+
+In the same way, the major civil problems are not
+readily separable. One can reduce the amount of air
+
+pollution caused by internal combustion engines by
+using electric autos, for example. If so, we may
+replace polluted air in the cities with polluted
+streams out in the country where the new massive
+power plants are. Or we can replace with solar
+energy the fissionable materials or fossil fuels we
+now use for power; however, at least in the near
+future, we would then have either much less energy
+or much more costly energy, and fewer jobs and more
+poverty. (Some among us tend to paint even blacker
+pictures. They point out that our society gave up
+slavery only when our technology developed to the
+point where machines were cheaper than slaves. Is
+it possible that we could deliberately reverse this
+process and end up with clean air, but with slaves?)
+
+This characteristic of tight linkage, or insep-
+arability of the big problems, also suggests that
+we cannot rely upon the ordinary market-place mech-
+anisms to determine how we employ our technology to
+solve our problems.
+
+Very Difficult Problems
+
+The third characteristic of our problems that
+forces us to reconsider the mechanisms of choice,
+is that our problems are so very difficult. The
+technical solutions do not exist outside of social
+considerations. The social costs outweigh such us-
+ual factor costs as materials, labor, and capital.
+Our cities present much tougher problems than put-
+ting man on the moon. As someone smarter than but
+unknown to me, has said, "We couldn't have put a
+man on the moon if the moon had been inhabited".
+
+World-wide and Nation-wide

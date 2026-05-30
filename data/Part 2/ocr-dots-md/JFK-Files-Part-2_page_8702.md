@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_8702.png
+
+Convert to Markdown13-00000
+
+associated himself with the White Rose Organization through his nephew Carlos RIVERO Collada. /COMMENT: RIVERO was one of the ransomed returnees from the Bay of Pigs, December 1962. In 1974 he defected to Cuba, saying he had been a CASTRO agent and penetration of exile organizations in the U.S. all the while. / COMMENT: CONTE in 1960 was attempting to be placed in charge of anti-Cuban programs of the "Voice of the Americas." Hqs. has speculated that CONTE: Aguero might be iden/with Bernardo MORALES, recipient of a letter dated 29 November 1962 from a Jose MENENDEZ in Cuba concerning a plot to assassinate President Kennedy. See LAD/JFK Task Force folder on CONTE.
+
+The FBI informant learned that a person by the name of Roberto had requested biographical and personal information from the Cuban Foreign Ministry on a fnu BEATON and CONTE Aguero for writing of articles concerning these persons, for the "Fact Sheet." Roberto may be iden/w Robert TABER listed in a 6 April 1960 New York Times article as a member of the Fair Play for Cuba Committee. TABER reportedly had made trips to Havana, Cuba from New York City to confer with Fidel CASTRO.

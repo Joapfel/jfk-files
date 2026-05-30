@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_8300.png
+
+Convert to MarkdownSECRET
+CONTROL
+U.S. OFFICIALS ONLY
+
+11. In submitting the above report our source commented that Kouyoumdjiev is a dangerous Communist, although he did not cite facts to support this accusation. Our source also described Subject as an unprincipled opportunist and Greek agent. According to our source, Subject had previously worked for the Greeks and was in contact with the British last spring.
+
+ROBERT A. SCHOU
+Assistant Director
+Special Operations
+
+SO DB-31992
+
+SECRET
+CONTROL
+U.S. OFFICIALS ONLY

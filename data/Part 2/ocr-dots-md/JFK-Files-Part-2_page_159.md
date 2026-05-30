@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_159.png
+
+Convert to MarkdownSECRET
+
+Suggested Actions:
+
+4. WH Division suggests that you may wish to forward a copy of this memorandum to your New York office. If Miss Cobb does establish contact, we would appreciate your office interviewing her to accept whatever information she might wish to contribute, but that no financial commitments be made on our behalf. WH Division plans to have no direct contact unless the information provided would appear to merit a special interview.
+
+WILLIAM V. BROO
+C/WBD
+
+Distribution:
+
+0 & 1 - Domestic Operations/WH
+1 - Director, Domestic Contacts Service
+* LJCOOKY-201-
+1 - WH/1/Memo Chrono
+
+SECRET

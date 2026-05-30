@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_6111.png
+
+Convert to MarkdownBIOGRAPHICAL AND FINANCIAL INFORMATION REQUESTED OF NOMINEES
+
+A. BIOGRAPHICAL INFORMATION
+
+1. Name: (Include any former names used.)
+
+John Raymond Tunheim (Jack)
+
+2. Position to which nominated:
+
+Assassination Records Review Panel
+
+3. Date of nomination:
+
+September, 1993
+
+4. Address: (List current place of residence and office addresses.)
+
+Residence: 704 South Third Street, Stillwater, MN 55082
+Office: 102 State Capitol, St. Paul, MN 55155
+
+5. Date and place of birth:
+
+9/30/53 Thief River Falls, MN
+
+6. Marital status: (Include maiden name of wife or husband's name.)
+
+Married to Kathryn Hill Tunheim (maiden name: Kathryn J. Hill)
+
+7. Names and ages of children:
+
+Elizabeth Starr Tunheim, age 9; Samuel John Tunheim, age 5.
+
+8. Education: List secondary and higher education institutions, dates attended, degree received and date degree granted.
+
+Marshall County Central High School, Newfolden, MN 1965-1971, June, 1971;
+Concordia College, Moorhead, MN 1971-1975, BA *summa cum laude* with honors, May, 1975;
+University of Minnesota Law School, Minneapolis, MN 1977-1980, J.D. *cum laude*, June 1980.
+
+November 4, 1993
+
+John R. Tunheim
+
+13-00000

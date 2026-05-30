@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_3572.png
+
+Convert to Markdown13-00000
+
+government's land reform drive. The pilot was injured
+and his two passengers were killed. The incident
+comes at a time when Soviet President Brezhnev is
+visiting Tehran. He addressed a joint session of
+parliament today.
+
+E. **Venezuela** Police seem to have restored order in downtown Caracas, but terrorism continues elsewhere. The slum district of Caracas to which the terrorists retreated is under virtual martial law. Among other things, the Dupont paint warehouse at Maracaibo was set afire and totally destroyed.
+
+F. World Peace Council The WPC meeting in Warsaw next Thursday may wind up in another free-for-all. The Chinese Communist delegation, although not intent on disrupting the conference, plans to attack the WPC president's report given to a committee meeting in Vienna last September. The Japanese delegates plan to give general support to the Chinese and will try to forestall a vote on the Moscow test ban treaty. NBR
+
+NBR
+
+For The President Only - Top Secret
+
+3/8R

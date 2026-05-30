@@ -1,0 +1,68 @@
+# JFK-Files-Part-2_page_566.png
+
+Convert to Markdown<table><thead><tr><th>MESSAGE FORM<br>TOTAL COPIES</th><th>BOUTING AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>27</td><td>19830</td></tr><tr><td>SIGNATURE</td><td>15</td></tr></tbody></table>
+
+CABLE SECRETARIAT DISSEMINATION
+
+BY: ZT
+
+TO:
+
+COMP.
+
+WH-8
+
+☑ RID COPY
+
+☐ NO DOCTR
+
+FILE: VR: WHCOG-8, TSD-6
+
+(If done, FI, OP, Ser)
+
+Reference (If known)
+
+CITE DIRECTOR: 63269
+
+Date: 19 MAR 1972
+
+LEO: J. H. W. Bush
+
+PERMIT T号
+
+REFERENCE: DIRECTOR 67083*
+
+PURCHASING AGENT S/J SLEDGE SYSTEM; 36 AND ARE RECEIVING
+SYSTEM; 52 TOGETHER WITH NECESSARY INSTRUCTIONS FOR TRAINING
+IN EN-16083
+
+END OF MESSAGE
+
+COORD: TSD/SJ Little (by phone)
+C/MC/COC/CICD D.D.hetneell
+
+RECIPIENT: Selecting appropriate S/J system for use with EN-148-1.
+2/1
+818842
+
+WILLIAM V. EDE
+C/MC
+
+V.J. KAUFMANN
+C/MC/1
+
+COORDINATING OFFICE
+
+GROUP 1
+Excluded from formal
+negotiation and
+redesignation
+
+AUTHENTICATING
+OFFICE
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+COPY NO.
+
+14-00000

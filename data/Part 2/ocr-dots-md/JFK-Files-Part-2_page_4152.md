@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_4152.png
+
+Convert to Markdown3 April
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Special Group Meeting (5412) - 2 April 1964
+
+1. Briefly reviewed the status of North Viet Nam operations 34A.
+All concluded that the results have been negative and disappointing.
+I took the position this was to be expected but that now the period of
+organization had past, we might get some better results.
+
+The CIA IDEALIST-TACKLE program was approved except
+for the North Korean flight. Defense interposed an objection to this
+flight on the grounds that they were nearing agreement for the release
+of helicopter crews which have been held in North Korean custody.
+
+ACTION: This particular flight should be withheld. USIB
+and most particularly DIA should be informed in the meeting
+On Wednesday, the 8th.
+
+2. [Discussed the problem of captains and crews for the SWIFT and NASTY craft and the necessity of withdrawing the German mercenaries and the Swedish captains. This was recognized as a must. It was agreed that substitution of Chinese Nationalist captains was acceptable on an interim basis.]
+
+ACTION: DDP to arrange with Secretary Vance for appropriate actions by the Department of Defense through their representatives in Taiwan for the recruitment, movement, compensation and care of these captains.
+
+3. [Reviewed DoD peripheral reconnaissance which was approved after extended discussion of capabilities of the new radar in Cambodia. It was agreed that the field would be instructed to carefully observe operation of this radar to determine whether the U-2s were being picked up by it. If this turned out to be a regular practice by the Cambodians, the matter should be resubmitted for reconsideration.]
+
+ACTION: The field should follow this carefully with MACV.
+
+4. [Review of ground rules for U-2 in North Viet Nam as outlined.
+Secretary Vance's paper was approved.]

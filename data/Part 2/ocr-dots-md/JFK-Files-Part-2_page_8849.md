@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_8849.png
+
+Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+14-00000
+104-10516-10239
+
+<table><tr><td colspan="4">SECURITY Coded</td></tr><tr><td>APR<br/>1731</td><td>MEXI</td><td>MILAN</td><td>HONOLULU</td></tr><tr><td colspan="4">2010-05-08</td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td>007S1</td><td></td><td></td><td></td></tr><tr><td colspan="4">AMOUNT DUE THIS NOTICE, CITY OF LOS ANGELES, CALIFORNIA 1983, JUNE 13, 1990</td></tr><tr><td colspan="4">TOTAL AMOUNT DUE THIS NOTICE, CITY OF LOS ANGELES, CALIFORNIA 1983, NOVEMBER 5, 1985, AND DECEMBER 3, 1985</td></tr><tr><td colspan="4">SUBJECT TO PAYMENT OF ALL DEMANDS MADE UPON OR DUE ANY TIME HEREBY</td></tr><tr><td colspan="4">BANK CHECK NO.</td></tr><tr><td colspan="4">CITIZENSHIP CHECK NO.</td></tr><tr><td colspan="4">TOTAL AMOUNT DUE THIS NOTICE, CHINA, AUGUST 20, 1950-52</td></tr><tr><td colspan="4">NO INTEREST OR INTEREST INDEBTEDNESS</td></tr><tr><td colspan="4">PAYMENT DUE JULY 1, 1951</td></tr><tr><td colspan="4">LIAISON CHECKS PROVIDED NO OPERATIONAL INTEREST SHARING BY ALL PARTIES</td></tr><tr><td colspan="4">ADJUSTMENTS IF ANY WILL BE MADE DIRECTLY WITH BANK</td></tr><tr><td>CORRESPONDENT OFFICER</td><td>Gary Sladec</td><td>Co-Ordinate</td><td>William B. Anderson</td></tr><tr><td>RECEIVING OFFICER</td><td>COOPERATIVE OFFICERS</td><td>880222</td><td>THE CENSUS OFFICE</td></tr><tr><td colspan="4">FORM 880222 IS RETURN ADDRESS PROOF</td></tr><tr><td colspan="4">PRODUCTION BY OTHER THAN THE ones NAMED IS FORBID</td></tr></table>
+
+<table><tr><td>DATE</td><td>REFUND</td><td>CODE</td><td>FOR REFUND</td></tr></table>

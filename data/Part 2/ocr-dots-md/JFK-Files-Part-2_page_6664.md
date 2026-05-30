@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_6664.png
+
+Convert to MarkdownMr. John Pereira
+
+January 28, 1997
+
+We request that you make this information available to us by February 24, 1997. If this does not provide you with sufficient time, please let us know, in writing, by what date you believe you will be able to answer the questions fully.
+
+Thank you for your attention to this matter.
+
+Enclosure
+
+13-00000

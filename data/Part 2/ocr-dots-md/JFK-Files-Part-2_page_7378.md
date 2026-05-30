@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_7378.png
+
+Convert to MarkdownCONFIDENTIAL
+
+GENERAL SUGGESTIONS
+FOR THE
+PROTECTION OF CLASSIFIED MATERIAL
+
+1. Designate a Committee member as the Security Officer responsible for the overall control handling and protection of the classified material.
+
+2. Establish and maintain a register of all Committee personnel who are authorized to review classified material and insure that no unauthorized personnel will have access to the material.
+
+3. Establish a central document control system whereby all classified documents are properly logged upon receipt and annotated as to disposition.
+
+4. Designate a Document Control Clerk who will be specifically responsible for the logging and control of all classified material. Appropriate records should be established to reflect that all classified material is properly logged in and out, by date and time, to authorized members of the Committee.
+
+5. In the event material is designated as being of a codeword or compartmented nature, special physical security features as enunciated by the Ad Hoc Security Committee of the United States Intelligence Board and later adopted as policy should be adhered to. (Specifics regarding these requirements will be provided in the course of the pending survey.)
+
+6. All guards assigned to the physical security control over the Committee's storage area should be U. S. citizens and possess appropriate security clearances.
+
+7. If feasible, a reading room should be established within the designated storage area
+
+CONFIDENTIAL
+
+13-00000.

@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_6169.png
+
+Convert to Markdown56 Md. L. Rev. 1, *37
+
+in all public matters is highly desirable. n210 Full disclosure is to be
+preferred over partial; the full truth is better than something less, and the
+more we know about what government has done, is doing, and plans to do, the more
+secure we will be in our liberties. Yet, the intelligence community charged with
+making the case for secrecy often does so as a matter of routine rooted in
+tradition. n211 Secrecy in a democracy deserves better; it cannot be an end in
+itself, and it certainly cannot be justified simply to obscure the intelligence
+services that generate much of it in the first place. Such an approach is
+ultimately self-defeating, both for the intelligence community and for the
+government it serves.
+
+-Footnotes-
+
+n210. See, e.g., Weiner, supra note 140 (discussing the CIA's slow release of its files on the most important covert actions of the Cold War). The argument in support of openness and accountability in government is advanced carefully by Norman Dorsen & Stephen Gillers, None of Your Business: Government Secrecy in America (1974).
+
+n211. See Wald, supra note 128 (observing that, at the Department of Energy, "ideas are "classified at birth,' or presumed secret until proved otherwise"); see also supra notes 124-134 and accompanying text.
+
+-End Footnotes-
+
+George Bernard Shaw was correct when he argued: "There are no secrets better kept than the secrets that everybody guesses." n212 Shaw's words surely describe the approach of the intelligence agencies to the Kennedy assassination. In the absence of disclosure, the public, goaded by a news-hungry press and an activist research community, will be left to speculate in sensational ways about the assassination. Such speculation will continue to have predictably corrosive consequences.
+
+-Footnotes-
+
+n212. Christopher Morley & Louella D. Everett, Familiar Quotations: A Collection of Passages, Phrases and Proverbs, Traced to Their Sources in Ancient and Modern Literature by John Bartlett 720 (12th ed. 1948) (quoting George Bernard Shaw).
+
+-End Footnotes-
+
+We should all be stunned that, with countless documents still hidden in
+government filing cabinets, researchers, newspaper reporters, [*38]
+columnists, and movie and TV producers have managed to convey a broadly held
+view that the Warren Commission failed and that the government knows more than
+it is telling. n213 We should stand in awe of their capacity to explain the
+assassination in such breathtaking terms when so much still remains under lock
+and key. By breaking confidences with former informants and disclosing
+clandestine CIA and FBI operations, a fuller record will put to the test the
+most sinister of all conspiracy theories: that the President was murdered by his
+own government. Such a matter cannot be left to chance explanation because it
+eats away at the foundation of public confidence in government, which neither
+well-intentioned secrecy nor covert operations can restore.

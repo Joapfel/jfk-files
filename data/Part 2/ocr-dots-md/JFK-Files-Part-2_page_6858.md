@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_6858.png
+
+Convert to Markdown13-00000
+
+rtt-rw TEXT-ASSASSINATIONS-3
+a0835
+13:54 05-15
+
+BC-TEXT-ASSASSINATIONS-3RDADD
+THE REUTER TRANSCRIPT REPORT
+
+HOUSE GOVERNMENT OPERATIONS LEGISLATION AND NATIONAL
+SECURITY SUBCOMMITTEE HEARING
+
+Topic: H.J. Res. 454, Assassination Materials Disclosure Act
+of 1992
+
+Witness: CIA Director Robert Gates
+
+May 15, 1992
+(Third Add)
+****
+
+x x x that question.
+
+REP. MINK: Does anyone in the room here from your agency have an answer to that question?
+
+GATES: Some of the documents had not previously been released, so would have represented new information.
+
+REP. MINK: Might we know today what exactly were new items that had not been released previously?
+
+GATES: This is David Grease (phonetic). He is the director of our center for the study of intelligence.
+
+DAVID GREASE (director, center for the study of intelligence): Mrs. Mink, some of these documents had been previously released. About half of those that are--originated at the CIA.
+
+Among the documents of other agencies that were in our files, it's my understanding, but this would have to be verified, that almost all of them, if not all of them, had been previously released.
+
+REP. MINK: So what consisted of new information that the public had not already had in its published files somewhere? Q.
+A.
+
+GREASE: Yes, I understand. We would have to respond to you separately from that. I cannot from memory tell you precisely which documents were new.
+
+I do know that the new ones are not of much consequence. They do not contain any information that is particularly enlightening. But we can tell you after the hearing what those are.
+
+REP. MINK: Can you explain a second, if the CIA had been alerted by the State Department by a cable dated October 31st, 1959, with respect to Oswald's defection, why the CIA did not open a file until 14 months alter?
+
+GATES: I don't think we have the faintest idea, Mrs.

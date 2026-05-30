@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_7886.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. DeLoach
+FROM : A. Rosen
+SUBJECT : MURKIN
+
+DATE: April 9, 1968
+
+<table><tr><td>1 - Mr. DeLoach</td></tr><tr><td>1 - Mr. Rosen</td></tr><tr><td>1 - Mr. Malley</td></tr><tr><td>1 - Mr. McGowan</td></tr><tr><td>1 - Mr. McDonough</td></tr><tr><td>1 - Mr. Long</td></tr><tr><td>1 - Mr. Martindale</td></tr><tr><td>1 - Mr. Bishop</td></tr><tr><td>1 - Mr. Conrad</td></tr><tr><td>1 - Mr. Sullivan</td></tr></table>
+
+This is the case involving the murder of Martin Luther King, Jr., 4/4/68.
+
+One of the most promising leads developed so far is the laundry tags appearing on a T-shirt and a pair of shorts apparently abandoned by the subject with the rifle that is believed to be the murder weapon. It has been determined that these laundry marks were made by a Thermo Seal marking machine manufactured by the Textile Marking Machine Company, Syracuse, New York. The manufacturer of this machine has advised that the laundry marks in question are unusual in that they consist of five characters whereas the usual code contains six characters.
+
+These markings are also unusual because the first two characters are in smaller type while the remaining three characters are in larger type. The normal arrangement is for the first three characters to be in smaller type and for the following characters to be in larger type. The Textile Marking Machine Company has stated only a limited number of machines have been manufactured which print laundry marks in this manner. Investigation is proceeding on an expedited basis to locate these machines for the purpose of identifying the laundry marks.
+
+EX-115
+
+Richard Helms, Director of the Central Intelligence Agency, has furnished the Central Intelligence Agency file on Robert Ervin Kramer, M. D., Berkeley, California, whom Helms considers a suspect because of his resemblance to an artist's conception of the subject and because of the Central Intelligence Agency's experience with Kramer. The Central Intelligence Agency file states Kramer has a long arrest record and contains a Berkeley Police Department photograph, dated 1/27/66, number 22805.
+
+Enclosure sent 4-9-68
+
+APR241968
+
+Wlm: yea
+
+CONTINUED - OVER-

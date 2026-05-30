@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_2857.png
+
+Convert to MarkdownCONFIDENTIAL
+
+MEMORANDUM FOR: William M. Kent
+SUBJECT : Quality Step Increase
+
+1. My congratulations on the award to you of a Quality Step Increase. This award is in recognition of superior sustained performance and reflects great credit on you and the job you have been doing.
+
+2. I am confident that your future performance will be of continuing high quality.
+
+With personal best wishes,
+
+William E. Nelson
+Deputy Director for Operations
+
+CL BY 009668
+E2, IMPDET
+
+CONFIDENTIAL
+
+GAMBOA.TIL

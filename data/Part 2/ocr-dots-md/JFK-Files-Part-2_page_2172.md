@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_2172.png
+
+Convert to MarkdownSECRET
+
+(When Filled In)
+
+<table><tr><td>1. DATE OF REQUEST</td></tr><tr><td>10 February 1971</td></tr><tr><td>3. POSITION TITLE</td></tr><tr><td>4. GRADE</td></tr><tr><td>08-16</td></tr><tr><td>6. EMPLOYEE'S EXT.</td></tr><tr><td colspan="2">7. PURPOSE OF EVALUATION</td></tr><tr><td><input type="checkbox"/> PRE-EMPLOYMENT</td><td><input type="checkbox" checked disabled> HDQS/TDY</td></tr><tr><td><input type="checkbox"/> ENTRANCE ON DUTY</td><td><input type="checkbox" checked disabled> OVERSEAS ASSIGNMENT</td></tr><tr><td><input type="checkbox"/> TDY STANDBY</td><td><table><tr><td>ETD</td></tr><tr><td>STATION</td></tr><tr><td>San Francisco</td></tr><tr><td>TDY OR PCS</td></tr><tr><td>TYPE OF COVER</td></tr><tr><td>NO. OF DEPENDENTS TO ACCOMPANY</td></tr><tr><td>NO. OF DEPENDENTS' REPORTS OF MEDICAL HISTORY ATTACHED</td></tr></table></td></tr><tr><td><input type="checkbox"/> SPECIAL TRAINING</td><td><input type="checkbox" checked disabled> RETURN FROM OVERSEAS</td></tr><tr><td><input type="checkbox"/> ANNUAL</td><td><table><tr><td>ETA</td></tr><tr><td>STATION</td></tr><tr><td>NO. OF DEP.'S</td></tr></table></td></tr><tr><td><input type="checkbox"/> RETURN TO DUTY</td><td><input type="checkbox" checked disabled> FITNESS FOR DUTY</td></tr><tr><td><input type="checkbox"/> MEDICAL RETIREMENT</td><td><input type="checkbox" checked disabled> ROOM NO & BUILDING</td></tr><tr><td colspan="2"><input type="text" id="roomNo"></td></tr><tr><td><input type="checkbox" checked disabled> OVERSEAS PLANNING EVALUATION (One block must be checked)</td><td><input type="text" id="reasons"></td></tr><tr><td><input type="checkbox"/> YES</td><td><input type="text" id="signature"></td></tr><tr><td><input type="checkbox" checked disabled> NO</td><td>Rath A. Sanford DO/Personnel<br/>ROOM NO & BUILDING<br/>201 Key</td></tr><tr><td colspan="2">9. REQUESTING OFFICER<br/><br/>Signature: E. L. Sanford<br/>Rath A. Sanford DQ Personnel<br/>EXT.<br/>3193</td></tr><tr><td>10. COMMENTS<br/><br/>Subject will retire effective 31 March 1971. He will come to Headquarters and be available for a medical examination on 22 February. Please schedule the medical during that week. Do is requesting approval for him to enter the Hq building.</td></tr><tr><td>11. REPORT OF EVALUATION<br/><br/>DATE Qualified Executive Annual SIGNATURE FOR CHIEF OF MEDICAL STAFF<br/>31 March 1971 Peter Znowka, OMS/pro</td></tr></table>
+
+FORM 2.69 259 USE PREVIOUS EDITIONS
+
+SECRET
+
+(26)

@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_2118.png
+
+Convert to Markdown3. Summary of Information Provided
+
+4. Remarks:
+
+Security approval recommended, though subject
+to the receipt or depository information at some
+future date. Interview waived.
+
+5. Recommendation:
+
+Final interview 1. In case unnecessary
+for originating official will provide two (unsigned
+passport size photographs and completed fingerprint
+card of Subject. Par. 6 should be returned with
+indication of disposition.
+
+By A. L. Thomson Date 1/6/44.
+
+Security Officer
+A. G. Thomson,
+
+e00.

@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_361.png
+
+Convert to MarkdownIN-46964
+
+TDCS -314/14998-66
+
+S-E-C-R-E-T NO FOREIGN DISSEM
+
+(classification) (dissem controls)
+
+CARRILLO'S PERFORMANCE AND LACK OF ACTION. (SOURCE COMMENT: IT IS NOT KNOWN WHO HAS BEEN APPOINTED AS CARRILLO'S REPLACEMENT.)
+
+3. FIELD DISSEM: CINCLANT, CINCSO.
+
+S-E-C-R-E-T NO FOREIGN DISSEM
+
+(classification) (dissem controls)

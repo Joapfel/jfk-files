@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_2038.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="4">FITNESS REPORT</th><th>EMPLOYEE SERIAL NUMBER</th></tr></thead><tbody><tr><td colspan="3"></td><td colspan="2">055292</td></tr><tr><th colspan="4">SECTION A GENERAL</th><th rowspan="10">10. CHECK (X) TYPE OF REPORT<br/>INITIAL<br/>REASSIGNMENT SUPERVISOR<br/>ANNUAL<br/>REASSIGNMENT EMPLOYEE<br/><br/>SPECIAL (Specify)<br/><br/>12. REPORTING PERIOD (From-to)<br/>1 April 1963 - 31 March 1964</th></tr><tr><td>1. NAME</td><td>(Last)</td><td>(First)</td><td>(Middle)</td><td>2. DATE OF BIRTH</td><td>3. SEX</td><td>4. GRADE</td><td>5. SD</td></tr><tr><td>NOEL, James A</td><td></td><td></td><td></td><td>1911</td><td>M</td><td>16</td><td>D</td></tr><tr><td colspan="8"><b>6. OFFICIAL POSITION TITLE</b><br/>Chief of Station, Madrid</td></tr><tr><td colspan="8"><b>7. CHECK (X) TYPE OF REPORT</b><br/>INITIAL<br/>REASSIGNMENT SUPERVISOR<br/>ANNUAL<br/>REASSIGNMENT EMPLOYEE<br/><br/>SPECIAL (Specify)<br/><br/>12. REPORTING PERIOD (From-to)<br/>1 April 1963 - 31 March 1964</td></tr><tr><th colspan="4">SECTION B PERFORMANCE EVALUATION</th><th rowspan="6">W - Weak<br/>A - Adequate<br/>P - Proficient<br/>S - Strong<br/>O - Outstanding<br/><br/>SPECIFIC DUTIES<br/><br/>RATING LETTER<br/>P<br/>P<br/>S<br/>0<br/>S<br/>O</th></tr><tr><td colspan="4"><b>SPECIFIC DUTY NO. 1</b><br/>As Chief of Station, Madrid, plans and directs all FI and CA operations within Spain</td></tr><tr><td colspan="4"><b>SPECIFIC DUTY NO. 2</b><br/>Supervises Madrid Station and Barcelona Base personnel</td></tr><tr><td colspan="4"><b>SPECIFIC DUTY NO. 3</b><br/>Maintains contact with senior officials in the Spanish Intelligence Services</td></tr><tr><td colspan="4"><b>SPECIFIC DUTY NO. 4</b><br/>Represents the Director of CIA with the Ambassador to Spain and other U.S. officials in Spain</td></tr><tr><td colspan="4"><b>SPECIFIC DUTY NO. 5</b><br/>Personally handles several sensitive third country intelligence operations.</td></tr><tr><td colspan="4"><b>SPECIFIC DUTY NO. 6</b><br/>Supervises Cuban operations in Spain</td></tr><tr><td colspan="4"><b>OVERALL PERFORMANCE IN CURRENT POSITION</b><br/>Take into account everything about the employee which influences his effectiveness in his current position such as performance of specific duties, productivity, conduct on job, cooperativeness, pertinent personal wants or habits, and particular limitations or needs. Based on your knowledge of employee's overall performance during the rating period, place the letter in the rating scale corresponding to this statement which most accurately reflects his level of performance.</td><td>RATING LETTER<br/>S</td></tr></tbody></table>
+
+FORM 4-62 45 OBSOLETE PREVIOUS EDITIONS.
+
+SECRET
+
+<table><tr><td>SECRET</td></tr></table>
+
+FEMININE
+12 MAY 1964.

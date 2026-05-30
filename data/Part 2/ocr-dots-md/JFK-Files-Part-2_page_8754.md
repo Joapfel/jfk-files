@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_8754.png
+
+Convert to Markdownraid, target of a military nature, could cause international repercussions and/or bring them under prosecution on the neutrality act. BOSCH and MENDOZA were collaborating with Jose Mario "Pepin" BOSCH Lamarque and two former sugar mill owners to back a daylight raid on a Cuban MIG base with two rocket-firing P-51's.
+
+### AMMUG Project (Cuban DGI Defector) 19-6-102
+
+**Memo for the Record dated 4 June 1964**
+
+Re Debriefing Report #119 of AMMUG-1 (Vladimir RODRIGUEZ Lahera). He did not recognize photo of Braulio MARTINEZ Alfonso, Cuban born naturalized U.S. citizen. MARTINEZ returned to Cuba after the fall of Batista. Also known as "SUAREZ" and Francisco De RAVIRICH, he has been reported as an intelligence officer.
+
+### HHTA 3782 dated 16 June 1964
+
+Dispatch from Tegucigalpa to Mexico City. A Tegucigalpa Station asset assigned to monitor certain Honduran ham radio operators of interest to the Station, reported the following, most unusual,

@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_8115.png
+
+Convert to MarkdownCONFIDENTIAL
+122103Z APR 68 CITE JNWAVE 2022
+
+DIRECTOR
+
+KAPOK TYPIC ZRPERUSAL AMCARBON
+
+IN CONNECTION WITH CUBAN MAILING OF BLACK POWER POSTERS REPORTED IN JNWAVE 2017, SEE ALSO SHIPMENT ON 7 REPEAT 7 APRIL (I.E., 3 DAYS AFTER DR. KING'S ASSASSINATION) MENTIONED IN 3/0/CUD/T397-68.
+
+IS E COPY I
+
+BT
+
+CONFIDENTIAL
+
+FULL-TEXT COPY - DO NOT RELEASE
+
+<table><tr><td>Downgraded to by authority of Dec 5, 1964</td></tr><tr><td>P</td></tr><tr><td>2 Mar '78</td></tr><tr><td>2</td><td>009560</td></tr><tr><td>012913</td><td>Jmweke</td></tr></table>
+
+SECRET
+
+12.APR.60 M 90561 m
+
+53

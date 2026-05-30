@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_3182.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+program with respect to that country
+[Cuba], except that I think Mr. Willauer
+should have a position directly subordi-
+nate to the Secretary of State for so
+long as Cuba remains a critical problem
+in our foreign relations. There should
+be no doubt as to the authority of the
+Special Assistant to the State Department
+(Mr. Willauer) to subordinate covert and
+overt activities, nor as to his responsi-
+bility for conveying policy guidance to
+the operating agencies. In their broad
+outline, these policies will, of course,
+be subject to the approval of higher
+authority. 8/
+
+An interesting aspect of the Eisenhower memoran-
+dum is that he elevated the position to be assigned
+to Mr. Willauer from that of being a Special Deputy
+to Assistant Secretary Mann, the Assistant Secretary
+for American Republic Affairs, to that of being direct-
+ly subordinate to the Secretary of State. When Thomas
+A. Parrott who acted as secretary for the Special
+Group meeting transmitted a copy of the draft of Dulles'
+memorandum to Tracy Barnes, Parrott had been made
+aware of the possibility that Eisenhower was in favor
+of raising the position of Willauer. In an aside
+to Barnes in his transmittal note, Parrott indicated
+that even if Eisenhower did want Willauer made
+directly responsible to the Secretary of State, in
+fact: "He [Willauer] will be instructed that he
+
+- 172 -
+
+TOP SECRET

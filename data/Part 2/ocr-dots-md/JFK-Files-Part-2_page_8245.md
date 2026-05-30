@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_8245.png
+
+Convert to MarkdownOctober 1946
+
+DIMITROV arrested by the police. He believes the reason he was not executed was that the communists wanted to use him as a witness against Nikola PETKOV.
+
+104 CAGWU, dated 4 October 1950; Memorandum for the record, 9.5.51

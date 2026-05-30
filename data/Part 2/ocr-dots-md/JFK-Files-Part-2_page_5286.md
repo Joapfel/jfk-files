@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_5286.png
+
+Convert to Markdown13-00000
+
+SECRET - Working Paper
+
+individual documents located in other project (example Bay
+of Pigs) or activities. The current automated
+declassification effort under the Ex. Order is setup to
+refer any assassination records to HRG/JFK team. We have
+not done any work on these materials since the sequestered
+collection and specific ARRB requests are our first
+priority. A discussion of the History staff's
+identification of the Agency's JFK collection followed. He
+would like more information.
+
+6. Additional questions/issues raised:
+
+Is there a “records” person at the Agency who can address their concerns?
+
+Gunn ask if he can go to WTC and/or other Records Centers and look at shelf lists and the files around a topic of special interest?
+
+What is on the shelf lists? Would they say, for instance, these are the files regarding JFK from Sheffield Edwards?
+
+What are the steps taken in a name trace?
+
+Are records around the specific hit searched?
+
+Is it possible to provide an explanation of the routing
+indicators in the collection?

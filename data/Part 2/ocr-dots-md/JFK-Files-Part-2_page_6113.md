@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_6113.png
+
+Convert to Markdown11. Government experience: List any advisory, consultative, honorary or other part-time service or positions with Federal, State, or local governments, other than those listed above.
+
+* Federal Practice Committee, United States District Court for the District of Minnesota; member (1990 to present)
+
+* Advisory Committee on Reducing Cost & Delay, United States District Court for the District of Minnesota; member (1991 - present); chair, Internal Court Management Subcommittee (1991 - present)
+
+* Stillwater City Charter Commission; member (1989 - present); Vice-chair (1992 - present)
+
+* Washington County Planning Advisory Commission; chair (1989-1992); member (1985-1992)
+
+* Governor's Select Committee on the Impact of Drugs on Crime, Education, and Social Welfare; member (1989-1990)
+
+* Governor's Blue Ribbon Commission on the Crisis in Liability Insurance; member (1987-1988)
+
+* Minnesota State Bar Association/Attorney General Task Force on Legal Advice to Farmers; chair (1985-1986)
+
+* Governor's Superfund Task Force; member (1984-1985)
+
+12. Previous Appointments: Prior to this appointment, have you ever been nominated for a position requiring confirmation by the Senate? If so, please list each such position, including the date of nomination, Senate confirmation, and Committee hearing, if any.
+
+No.
+
+13. Business relationships: List all positions held as an officer, director, trustee, partner, proprietor, agent, representative, or consultant of any corporation, company, firm, partnership, or other business enterprise, educational or other institution.
+
+Tunheim Lakeshore Partnership, Pelican Rapids, MN (family partnership formed to own a vacation home).
+
+14. Memberships: List all memberships and offices held in professional, business, fraternal, scholarly, civil, public, charitable and other organizations.
+
+American Bar Association (1981 - present)
+* Member, Special Committee on Lawyers in Government (1990-91) (appointed)
+* Secretary and Council Member, Government & Public Sector Lawyers Division (1993 - present) (elected)
+* Treasurer and Council Member, Government & Public Sector Lawyers Division (1991-1993) (elected)
+
+John R. Tunheim
+
+November 4, 1993

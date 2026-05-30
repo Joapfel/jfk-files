@@ -1,0 +1,109 @@
+# JFK-Files-Part-2_page_8872.png
+
+Convert to Markdown<table>
+   <tr>
+    <td colspan="2">CLASSIFIED INFORMATION</td>
+   </tr>
+   <tr>
+    <td colspan="2">S C R E T / I N P U T</td>
+   </tr>
+   <tr>
+    <td>WILLIAM H. BRUSSEL &amp; HAGUE</td>
+    <td>200-120-50</td>
+   </tr>
+   <tr>
+    <td>HAMBURG</td>
+    <td>MILAN OTT</td>
+   </tr>
+   <tr>
+    <td>BRUSSELS</td>
+    <td>LONDON</td>
+   </tr>
+   <tr>
+    <td>DEPT. 18</td>
+    <td>CITY</td>
+   </tr>
+   <tr>
+    <td></td>
+    <td>SIG#</td>
+   </tr>
+   <tr>
+    <td>C/SAS'5</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>DIP., ALDP, C/STD 4, CHC, C/TH 2, CTSD 3, C/TE 3, C/TB 3,</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>C/WE 2, C/W 5, RF, R</td>
+    <td></td>
+   </tr>
+  </table>
+
+**IMPORTANT NOTICE:**
+
+THE INFORMATION CONTAINED IN THIS DOCUMENT IS CONFIDENTIAL AND MAY BE SUBJECT TO PROHIBITED USE, DISTRIBUTION OR DISSEMINATION AS SPECIFICALLY REQUIRED.
+
+INFORMATION NAME BRUS H.G. JOY AND CASE
+(MODERN) TIME OTT PARIS MEXICO
+
+77347
+
+FRAN HILA
+
+IYBAT ZWAGON T.C.N.
+
+1. FOLLOWING IS FBI'S TICKER ITEM FROM CASTRO'S 21 OCTO-
+SPEECH: "CASTRO REVEALS THAT HIS SECURITY FORCES HAVE JUST
+DISCOVERED AN ATTEMPTED SABOTAGE OF THE CUBAN MERCHANT SHIP
+LAS VILLAS. CASTRO CLAIMS THAT THE CIA PLACED A BOMB ABROAD IN
+VESSEL IN GANOA, ITALY, BUT THAT IT WAS DEFECTIVE AND BROUGHT T
+GO OFF. THE BOMB WAS FOUND, HE SAYS, SIN THE SHIP IS DIPLOMAC
+UNLOADED."
+
+2. KUBARK FAX POLICY IS NO COMMENT AND COMPLETELY RESPOND TO SPECIFICALLY REQUESTED.
+
+END OF MESSAGE
+
+RE/G West Park by phone WE/BC/C N. John who VE/2 Jack DeLaney by phone
+
+DICKFORD FITZGERALD
+C/SAS
+
+RE/4 Steve Munger by phone VE/3 M. Pierre DuBois
+RE/5 Douglas Shermer by phone VE/3 Mr. Milley puts
+
+RICHARD P. DAVIS
+C/VEX
+
+RE/DC Joe Lynch by phone
+COACHES-ATTORNEY MALONEY by PHONE
+APPLIES-ANDRES-JONES by PHONE
+AR/L Mr. Charles Baker by phone
+
+ADWARD A. WILLIAMS
+C/SAS/JOE
+
+BELINDA OFFICER
+
+22-17
+
+COORDINATING OFFICERS
+
+GROUP 1
+CORRESPONDENT FROM EUROPE
+SERGEANT JAMES WATKINS
+CORRESPONDENT FROM SPAIN
+COOPERATIVE RELATIONS
+
+AUTHENTICATING OFFICE
+
+<table>
+  <tbody>
+    <tr>
+      <td>CLASSIFIED OFFICE</td>
+      <td>SECRET</td>
+    </tr>
+  </tbody>
+</table>

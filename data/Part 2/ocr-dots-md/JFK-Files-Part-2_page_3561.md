@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_3561.png
+
+Convert to Markdown# TOP SECRET DINAR
+
+## NON-BLOC RELATIONS - cont'd
+
+Cuba may establish diplomatic relations with Somalia and is attempting to improve its relations with Tanganyika and Ghana, according to intercepted communications. In a 27 November intercepted message, the Somali Government informed its United Nations representative that the Council of Ministers had approved the establishment of relations with Cuba, and instructed him to determine the level at which the Cubans wanted to exchange representatives. In a 26 November message, the Cuban Foreign Ministry requested its Prague embassy to obtain customs exemptions for three personnel who were on their way to Tanganyika. Cuba does not currently have diplomatic representatives in Tanganyika and the Cubans may be on a good-will mission which is expected in that country. (See article above on good-will mission to Morocco.) The three Cubans--Juan Felipe Benemelis Varona, second secretary of the Cuban Embassy in Accra, Nevris Vernier, attached at the embassy in Accra, and Jose Antonio Benitez Cabrera, an attaché of the Cuban Embassy in Prague--were scheduled to arrive in Prague on 27 November. In another intercepted message of 25 November, Havana instructed its ambassador in Ghana to sign a cultural pact with Ghana during the first part of December. The Cuban representative was told to sign the Ghanaian-inspired pact "out of political considerations." (NSA 3/0/SOD/T202-63, 27 November, TOP SECRET DINAR; NSA 2X/0/CUB/T2439-63, 27 November, SECRET SABRE; NSA 3/0/CUD/T1385-63, 27 November, TOP SECRET DINAR)
+
+The Cuban Government requested Chilean visas for two members of National Association of Small Farmers (ANAP)-- Juan Jorge Valdez Paz and Adelfo Martin Barrios--to attend a "cooperative seminar" (sic; possibly, seminar on cooperatives) to be held in Santiago. An 11 November intercepted message stated that their visit would last 15 days. (NSA 3/0/CLD/T1086-63, 27 November, TOP SECRET DINAR)
+
+## NON-BLOC COMMERCIAL RELATIONS:
+
+Cuba is continuing negotiations for the purchase of large amounts of construction equipment, probably from the Varmi company of Brussels. (See Daily Summary of 7 November for details of Varmi's offer.) According to an employee of the Spanish export-import firm CILASA who has access to the company's files, a seven-man Cuban delegation was expected to arrive in Brussels on 30 November with authorization to let contracts. The group reportedly plans to examine, disassemble, and test the equipment and has a total budget of $3.5 million. (It was previously reported that Varmi has offered to sell $1 million worth of construction equipment.)
+
+## TOP SECRET DINAR

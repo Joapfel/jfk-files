@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_5443.png
+
+Convert to Markdownsecurity, insurance lists -- consideration might be given
+to the Northwest Federal Credit Union, and overt data bases
+such as Phonedec. Like the IRS and OPM, the credit union
+might not be able from a legal standpoint to provide an
+address. However, it would probably be prepared to contact
+an individual and ask that he be in touch.
+
+C. A comment must be made about the idea of universally releasing the true names of overt employees. To the extent that any current employee, even overt employee, may be sent overseas on TDY under light cover, the release of his or her true name via these JFK documents which will receive widespread review could jeopardize his overseas mission and possibly, place his life in danger.
+
+6. These thoughts are intended to be talking points as we commence to sort out the manner in which we will deal with the true names. Clearly, we need to begin to quickly identify those names which can be released, those on which there is some question, and those few on which we really need to dig in our healing.
+
+6. I would be glad to discuss with you any of the issues raised herein.
+
+Gary M. Breneman

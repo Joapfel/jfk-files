@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_8636.png
+
+Convert to MarkdownSECRET
+
+PERSONNEL
+
+HR 20-53
+
+53. CONTRACT PERSONNEL. This paragraph sets forth policy, authorities, and responsibilities concerning the management of contract personnel. It does not apply to consultants (see HR 20-52), to personal services acquired through industrial or procurement contracts (see HR 20-55), to personnel employed by proprietary projects (see HR 230-8), or to agents (see HR 20-54).
+
+a. GENERAL. There are two categories of contract personnel: contract employees and independent contractors.
+
+(1) **CONTRACT EMPLOYEES.** Although they are not appointed employees, contract employees are employees of the U.S. Government. They have all the rights and privileges granted by law to U.S. Government employees in accordance with their citizenship status as well as those rights and privileges specified in their contracts. They work under supervised conditions and are compensated on a salary basis. Contract employees are grouped into three categories:
+
+(a) **Career Associate (Type C) Contract Employees:** Contract employees who perform duties, usually of a clandestine and operational nature, on a career basis. They are normally required to demonstrate their operational value to the Agency for not less than three years, in the case of U.S. citizens, or not less than five years, in the case of foreign nationals, to qualify for career associate status. When it is necessary for a career associate to have the staff-type access to an Agency installation or classified information, he must meet the same security approval criteria as a staff employee.
+
+(b) **Internal (Type I) Contract Employees:** Contract employees, engaged for a specific period of time, who normally work inside Agency installations. They are required to meet the same security approval criteria as staff employees, but are permitted only such access to classified information as is authorized in their security approval and is required in the performance of their duties.
+
+(c) **External (Type E) Contract Employees:** Contract employees, engaged for a specific period of time, who normally work outside Agency installatations. They are not required to meet the same security approval criteria as staff employees and are not permitted the same access to Agency installations as staff employees or internal contract employees. They are permitted only such access to classified information as is authorized in their security approval and is required in the performance of their duties.
+
+(2) **INDEPENDENT CONTRACTORS** are not employees of the U.S. Government. They are self-employed individuals who are engaged under contract to provide specific services. They receive only the compensation and benefits considered necessary to retain their services. In the Operations Directorate, their duties are normally limited to historical research and analysis and to the direction, utilization, spotting, or support of agents. They normally do not carry out espionage or covert action tasks. (Care must be taken to distinguish between independent contractors, defined herein, and agents, defined in HR 20-54.)
+
+b. POLICY
+
+(1) Contract personnel may be engaged when
+
+(a) it is necessary to provide for operational or support needs which cannot be met through the use of available staff personnel;
+
+(b) services are required of particularly well-qualified individuals who cannot meet all requirements for staff employment;
+
+Revised: 23 February 1973 (733)
+
+<table>
+   <tr>
+    <td>E2 IMPDET</td>
+   </tr>
+   <tr>
+    <td>CL By: 002230</td>
+   </tr>
+  </table>
+
+SECRET
+
+125

@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_2101.png
+
+Convert to Markdown(CONTINUED ON NEXT PAGE)
+
+14-00000
+
+APICATION FOR FEDERAL EMISSION Form 87564
+Budget Bureau No. 90-5048.
+
+<table><tr><td>ANSI<br/>ANNEX<br/>A<br/><br/>ANNEX<br/>B</td></tr></table>
+
+<table><thead><tr><th colspan="2">ANSI Annex A<br/>Application Form 87564-1</th></tr></thead><tbody><tr><td>A. Date of examination, or date of previous application for:<br/>Chief of Station<br/>1. Original subject (if mentioned in examination announcement)</td><td>☐ Yes<br/>☐ No<br/>☐ Submitted<br/>☐ Returnable</td></tr><tr><td>B. Place of employment applied for:<br/>Barcelona, Spain<br/>James Arthur NOEL</td><td rowspan="5"><div style="border: 1px solid black; padding: 5px;"></div><h3>DO NOT WRITE IN THIS BLOCK</h3><p>The Use of Civil Service Consolation Only</p><hr/> <p><strong>Material:</strong> Enter/register</p><p><strong>Applicant:</strong> Apps Review</p><p><strong>Approved:</strong></p><table border="1" style="width:100%; border-collapse: collapse;"><thead><tr><th>OPTION</th><th>GRADE</th><th>EARNED RATING</th><th>PEFER-ENCE</th><th>AUGM. RATING</th></tr></thead><tbody><tr><td></td><td></td><td></td><td>☐ 5 points (ent.)<br/>☐ 10 points<br/>☐ Wile, or<br/>Widow<br/>☐ Deat.<br/>☐ Being university-gated</td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="4" style="text-align:center;">INITIALS AND DATE</td><td></td></tr></tbody></table></td></tr><tr><td>C. Legal or voting residence (State):<br/>California</td><td></td></tr><tr><td>D. Place of birth (city and State; if born outside U.S., same city and country):<br/>New York, New York</td><td></td></tr><tr><td>E. Date of birth (month, day, year):<br/>March 19, 1913</td><td></td></tr><tr><td>F. Married:<br/>☐ Single</td><td>10. Age last birthday:<br/>35<br/>11. ☐ Male<br/>☐ Female</td></tr><tr><td>G. Height without shoes:<br/>6 feet - 0 inches</td><td>Weight:<br/>185 pounds</td></tr><tr><td>H. Have you ever been employed by the Federal Government? <br/>☐ Yes ☐ No</td><td></td></tr><tr><td>I. Now employed by the Federal Government, give present grade and date of last change in grade,<br/>CAP-12, July 1, 1945.</td><td></td></tr></tbody></table>
+
+<html><body><table><thead><tr><td colspan="2">ANSI Annex B Application Form 87564-2</td></tr></thead><tbody><tr><td>1. If World would you accept short-term appointment, if offered:<br/>☐ I to 3 months?<br/>☐ 3 to 6 months?<br/>☐ 6 to 12 months?</td><td><table><thead><tr><td>YES</td><td>NO</td></tr></thead><tbody><tr><td>X</td><td></td></tr><tr><td>X</td><td></td></tr><tr><td>X</td><td></td></tr></tbody></table></td></tr><tr><td>2. Would you accept appointment, if offered—<br/>☐ In Washington, D. C.?</td><td><table><thead><tr><td>X</td><td></td></tr></thead><tbody><tr><td></td><td></td></tr></tbody></table></td></tr><tr><td>☐ anywhere in the United States?</td><td><table><thead><tr><td>X</td><td></td></tr></thead><tbody><tr><td></td><td></td

@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_3877.png
+
+Convert to MarkdownCIA HISTORICAL REVIEW PROGRAM
+RELEASE IN FULL 1998
+
+GRAND JURIES PUSK PROBE
+W.S. McVay and Amie Perley
+Custodians of the Past, New York City
+
+The grand jury in Orleans Parish in east Baton Rouge was composed of eight men and seven women. It was the first time that the state had put a woman on trial for a crime involving her own personal life.
+
+Included in the notable panel were police Majors Thomas Barbank, Natchez County (New York) District Attorney William Cahn and former New Orleans bar operator Gordon Novel, who gained fame as the exclusive witness in Dumbé Attorney General's presidential nomination probe.
+
+Novel testified before the East Baton Rouge jurors while Barbank and Cahn huddled with the Orleans jurors during a lengthy testifying session in the afternoon.
+
+Prior to entering the grand jury room, Barbank mentioned that to his knowledge there is no syndicated gambling
+
+in Orleans Parish.
+
+Barbank denied that he did not know whether Louisiana could do it all entirely or just half, but indicated that it was possible to done some of the criminals' work. He said there are other states that may be involved in this Louisiana.
+
+Gordon Novel, who became a multi-million-dollar national gambling ring operating in Natchez County and other areas, included New Orleans, where he was later charged with mastermind.
+
+During a press conference Wednesday, Novak confirmed the gambling ring was still in operation.
+
+In Baton Rouge, Novel was
+
+in federal court and held on to April 23.
+
+Gordon Novel
+
+Novel dominated the state. He was charged with 165 cases. There may be a good chance the judge will acquit him, according to some legal experts.
+
+His defense attorney, Walter B. Sargent, has not appeared to be depressed with Novel's latest訊問. Novel would get a new trial if he were brought before the grand jury.
+
+On April 24, Novel went to a meeting with his counsel at the governor's office and throughout the day, strong doubt has been raised by authorities over whether Novel actually has the "sensational" information he claims. Novel is the only one with direct access to the state government.
+
+A week later, DA Sargent phoned Novel's attorney and asked if Novel was being pressured with Novel's information after having already learned that he was going to get a new trial. Novel would have a good chance of winning his case if he was allowed to speak to Novel before his trial.
+
+C. O. Dardenneblatt
+
+13-00000

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_8351.png
+
+Convert to Markdown# PARTIAL -PERSONAL HISTORY OF LYLE KELLY
+
+## 1. Financial Finagling in Greece
+
+(a) In February, 1951, when Kelly was head of the Democratic Bloc, three of his men arrived in Athens, coming directly from IRO camps. They needed shelter, but had no money. They were put on salary, but it was not enough to cover the sixmonths advance rent which it is the custom to pay when a lease is made in Athens. Thus Kelly's advance account was credited with advances the amount of (correspondingly $850, which was to be used to pay the rental advance. The three men were to pay it back in monthly installments.
+
+Two such installments were paid by the men when Kelly was "interned" by our people. The men were then able to complain that Kelly had forced them into quarters best described as "very inadequate, insecure and unhealthy."
+
+Comparing the quality of the quarters with the amount advanced for rent, it becomes quite certain that Kelly made some sort of deal with the landlord in order to make some money.
+
+It should be kept in mind that Kelly forced three of his own countrymen to live in these quarters, from which they were forthwith removed for health and security reasons.
+
+(b) Just prior to his removal, it was discovered that Kelly had a cash shortage of over $100 which was not accounted for in any way. When an attempt was made to collect the money, it was discovered that Kelly had spent it on himself.
+
+## 2. *Backlash* Manuscript Episode
+
+In December, 1950, Willard Allen, in accordance with a promise made to Kelly, brought with him to this country three manuscripts, ostensibly written by Kelly. Allen was to see what he could do to have these manuscripts published here. Kelly hoped to thus exploit and dramatize his escape from Bulgaria. He was given, by us, a $300 advance on the publication of the manuscripts.
+
+On December 14, 1951, in a conversation with Mr. Allen, it was learned by us that Kelly had not written the manuscripts at all. Allen learned this himself when the real author wrote to him demanding the return of his works. The author said that he had a statement from Kelly disclaiming all credit for the manuscripts. Furthermore, the real author had seen nothing of the $300 given to Kelly, although they apparently had agreed to go 50-50 on any profits realized from the publication of the manuscripts.
+
+It is clear that Kelly lied to us, and used someone else's literary talents in the hope of gaining notoriety and money himself.
+
+## 3. Relations with the French
+
+In early 1951, Kelly informed our people in Athens that a French Vice Consul from Salonica had contacted him in the hope of getting Kelly to work with him for his country. Kelly was allowed by us to continue seeing this man until it was determined adjust what the French wanted in the way of information. This point was reached, and Kelly was told not to see his Frenchman or any Frenchmen after a certain Thursday. We know definitely that Kelly saw his Frenchman on the following Friday, Saturday, and
+
+--- 201-45145 ---

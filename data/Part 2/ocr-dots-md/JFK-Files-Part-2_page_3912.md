@@ -1,0 +1,137 @@
+# JFK-Files-Part-2_page_3912.png
+
+Convert to MarkdownSECRET
+
+<table>
+   <tr>
+    <td>00400</td>
+    <td>A</td>
+    <td>137202</td>
+    <td></td>
+    <td>201-0746537</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>00A00</td>
+    <td>B</td>
+    <td>NAGELL</td>
+    <td></td>
+    <td>RICHARD</td>
+    <td>CASE T</td>
+   </tr>
+   <tr>
+    <td>00A00</td>
+    <td>C</td>
+    <td>USA/NEW YORK</td>
+    <td></td>
+    <td>GREENWICH</td>
+    <td>05 AUG 30 M</td>
+   </tr>
+   <tr>
+    <td>00A00</td>
+    <td>D</td>
+    <td>USA</td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>M</td>
+    <td>48A01</td>
+    <td>A</td>
+    <td></td>
+    <td></td>
+    <td>SOR</td>
+   </tr>
+   <tr>
+    <td>M</td>
+    <td>63A01</td>
+    <td>A</td>
+    <td></td>
+    <td></td>
+    <td>EXACT</td>
+   </tr>
+   <tr>
+    <td>M</td>
+    <td>63A01</td>
+    <td>X</td>
+    <td colspan="2">A3 ATTEMPTED SUICIDE SEVERAL TIMES</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>M</td>
+    <td>69A02</td>
+    <td>A</td>
+    <td></td>
+    <td></td>
+    <td>ABROAD</td>
+   </tr>
+   <tr>
+    <td>M</td>
+    <td>69A03</td>
+    <td>A</td>
+    <td></td>
+    <td></td>
+    <td>Z01?</td>
+   </tr>
+   <tr>
+    <td>M</td>
+    <td>48A01</td>
+    <td>B</td>
+    <td>NAGELL</td>
+    <td>RICHARD</td>
+    <td>CASE T</td>
+   </tr>
+   <tr>
+    <td>M</td>
+    <td>51A01</td>
+    <td>B</td>
+    <td>KRAMER</td>
+    <td>JOF</td>
+    <td>A</td>
+   </tr>
+   <tr>
+    <td>M</td>
+    <td>54A01</td>
+    <td>B</td>
+    <td>KRAMER</td>
+    <td>JOF</td>
+    <td>V</td>
+   </tr>
+   <tr>
+    <td>M</td>
+    <td>59A01</td>
+    <td>B</td>
+    <td>NOLAN</td>
+    <td>ROBERT</td>
+    <td>A</td>
+   </tr>
+   <tr>
+    <td>M</td>
+    <td>62A01</td>
+    <td>B</td>
+    <td>CRANE</td>
+    <td>JOF</td>
+    <td>A</td>
+   </tr>
+   <tr>
+    <td>M</td>
+    <td>48A01</td>
+    <td>C</td>
+    <td>USA/NEW YORK</td>
+    <td>GREENWICH</td>
+    <td>05 AUG 30 M</td>
+   </tr>
+   <tr>
+    <td>M</td>
+    <td>43A01</td>
+    <td>D</td>
+    <td>USA</td>
+    <td>J-543069</td>
+    <td>NEW YORK 24 MAY 68</td>
+   </tr>
+   <tr>
+    <td>M</td>
+    <td>59A01</td>
+    <td>X</td>
+    <td colspan="2">E1-DISMISSED FROM JOB JUN 62</td

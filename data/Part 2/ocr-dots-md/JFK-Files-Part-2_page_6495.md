@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_6495.png
+
+Convert to Markdown13-00000
+
+9 March 1962
+
+COPY OF COPIES
+SPECIAL DISTRIBUTION
+
+REPORT BY THE DEPARTMENT OF DEFENSE AND JOINT CHIEFS OF STAFF REPRESENTATIVE ON THE CARIBBEAN SURVEY GROUP
+
+to the
+JOINT CHIEFS OF STAFF
+on
+CUBA PROJECT(TS)
+
+The Chief of Operations, Cuba Project, has requested that he be furnished the views of the Joint Chiefs of Staff on this matter by 13 March 1962.
+
+EXCLUDED FROM GDS
+
+TOP SECRET SPECIAL HANDLING NOFORN

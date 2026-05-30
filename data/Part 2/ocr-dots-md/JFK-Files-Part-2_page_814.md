@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_814.png
+
+Convert to Markdown<table><thead><tr><td>1st of Dec</td><td>Name</td><td>2nd of Dec</td><td>School Code</td></tr></thead><tbody><tr><td>017974</td><td>Fox JENOME</td><td>45 500</td><td>(F)</td></tr><tr><td colspan="2">OLD SALARY DATE</td><td colspan="2">NEW SALARY DATE</td></tr><tr><td>Grade</td><td>Step</td><td>Schedule</td><td>New Date</td></tr><tr><td>CS 12</td><td>4</td><td>12/64 09/13/64</td><td>GS 12 5 8/2,001 09/11/06</td></tr><tr><td colspan="4">Notes and Additions<br/>① NO EXCESS LWOP<br/>IN PAY STATUS AT END OF WAITING PERIOD<br/>LWOP STATUS AT END OF WAITING PERIOD<br/>CLERKS INITIALS AUDITED BY<br/><br/>I CERTIFY THAT THE WORK OF THE ABOVE NAMED EMPLOYEE IS<br/>OF AN ACCEPTABLE LEVEL OF COMPETENCE.<br/><br/>SIGNATURE: WMcCUE 12/20/64 DATED: 8/24/66<br/><br/>PAY CHANGE NOTIFICATION</td></tr></tbody></table>
+
+105 560E Mfg 263
+
+(100)
+
+PAY ADJUSTMENT IN ACCORDANCE WITH SALARY SCHEDULES OF FL 59-504
+PURSUANT TO AUTHORITY OF DCI AS PROVIDED IN THE CIA .CT. OF 1949,
+AS AMENDED, AND A-DCI DIRECTIVE DATED 8 OCTOBER 1962.
+
+EFFECTIVE DATE OF PAY ADJUSTMENT 3 JULY 1966
+
+SERIAL DRAG, FUND, CH-1781
+
+017974 45 500 (F) 09 17 4
+
+012.003
+
+012,000
+
+SERIAL ORGN, FUNDS CH-1781
+
+017974 45 500 (F) 09 17 4
+
+012.003
+
+012,000
+
+SERIAL DRAG, FUND, CH-1781
+
+017974 45 500 (F) 09 17 4
+
+012,003
+
+012,000

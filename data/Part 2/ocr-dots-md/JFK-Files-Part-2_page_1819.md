@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_1819.png
+
+Convert to MarkdownC-O-N-F-I-D-E-N-T-I-A-L
+
+(when filled in)
+
+**TRAINING REPORT**
+
+PERFORMANCE EVALUATION WORKSHOP
+
+Student: James S. Woods
+Employee No: 010032
+Service Designation:d
+
+Dates: 23-24 February 1978
+Office: ISS
+
+COURSE OBJECTIVES
+
+At the conclusion of this Workshop, students should:
+
+1. Be familiar with the principal parts of the Agency's Personnel Evaluation Program;
+
+2. Understand their roles as supervisors in the Performance Evaluation part of the overall Program;
+
+3. Be better prepared to deal with some of the more troublesome problems encountered in performance evaluation;
+
+4. Know how to prepare more useful Fitness Reports and conduct more effective FR interviews;
+
+5. Understand how the Letter of Instruction relates to the performance evaluation process.
+
+ACHIEVEMENT RECORD
+
+This is a certificate of attendance only. No attempt was made to evaluate student achievement in the workshop.
+
+FOR THE DIRECTOR OF TRAINING:
+
+10 MAR 1978
+
+Instructor Date
+
+C-O-N-F-I-D-E-N-T-I-A-L
+(when filled in)

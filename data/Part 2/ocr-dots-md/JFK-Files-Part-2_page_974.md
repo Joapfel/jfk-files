@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_974.png
+
+Convert to MarkdownSECRET
+
+18 April 1961
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Outstanding Advance Balance,
+
+1. This memorandum is to be made a part of subject's personnel file, by direction of Acting Chief, Tokyo Station.
+
+2. As stated in Paragraph 4 of the Tokyo Station Audit Report for the period 1 September 1960 through 28 February 1961, subject has an outstanding balance of $167.62 in his travel advance account. The advance has been open since 8 December 1960, despite repeated efforts on the part of Finance to close the account.
+
+3. The balance referred to above is computed as follows:
+
+8 December 1960 - Travel advance      $500.00
+22 March 1961 - Accounting for travel for period 10-18 December 1960      332.38
+Balance Outstanding                          $167.62
+
+4. Finance Memorandum 61-19 dated 17 April 1961 again requested that the balance be refunded and the account closed. An addendum to this memorandum, signed by Acting Deputy for Operations, informed KRACKE that he was to refund the balance no later than COB 17 April 1961.
+
+5. I have written reply to the memo stated that he would refund the balance no later than 28 April 1961, upon receipt of a bank deposit slip from P3PRIME.
+
+6. After further discussion between POLLOCK, KOLCER, and the undersigned, TOKYO 6451 and PJIIT-7132 were sent to Headquarters requesting an immediate transfer of $167.62 from subject's Credit Union account to Finance Division for T/A to Tokyo Station.
+
+7. Subject has been informed that no further advances of official funds will be made to him, except for housing expenses and the exact cost of tickets necessary for official travel.
+
+Distribution
+
+* 1 - PERL
+* 2 - PH
+* 1 - A/DOPS
+
+HENRY R. FINNGRABE
+Finance Officer
+
+SECRET
+
+14-00000

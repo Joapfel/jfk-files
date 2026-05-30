@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_139.png
+
+Convert to MarkdownSECRET
+
+Attn. No. 17 to UFGA 19939
+
+SUBJECT: COBB, June
+
+## 1. BIOGRAPHIC DATA
+
+a. DPOB: c. 1930: Somewhere in US. / US citizen.
+
+b. OCCUPATION: Helping a fcn PELLICER, write a book on Anti-Communism.
+
+c. ADDRESS: Somewhere in Mexico City, DF.
+
+## 2. BACKGROUND
+
+a. Around June or July of 1959, AMDOFF/1 was ordered by Celia SANCHEZ to pay the Habana hospital bill of an American named June COBB. The bill, which A/1 recalls, ... cost $20,000 plus Habana Hilton Hotel expenses, were paid out of the PM's office account. A/I believes that Miss COBB became acquainted with Fidel and Sanchez on their US trip of April-May 1959, but ignores the details. Sanchez instructed A/I to employ Miss COBB in the press section of the PM's office: She was responsible with seeing all American and English speaking newsmen who desired to interview Castro or. requested permits to visit the interior of the island. She also helped to translate Fidel's important speeches into English. It is A/I's understanding that she had no other duties or responsibilities. She never dealt with Castro directly, but through Maria WITOSKA, who was Sanchez's liaison with the PM's office. A/I states that their relationship was limited to her official function. She appeared to have a newspaper background, but A/I ignores the details.
+
+b. About late 1959 Miss COBB, together with Jose PUENTE Blanco, then FEU (Federacion Estudiantil Universitaria) president of the University of Habana, in conjunction with the INIT (Instituto Nacional de Industrias Turisticas), took over a finca (formerly owned by Batista) near Ceiba del Agua, Habana, and set up a boarding house to be used by American students visiting Cuba as guests of the government. A/I ignores the details of this operation.
+
+c. By mid 1960 A/I learned that Miss COBB had left for New York City. She never returned. A/I claims he does not know why she made this decision.
+
+d. When A/I arrived in Mexico on late October 1964, he came to know an American writer, Daniel JAMES (address: Vicente Gomez #145, Mexico City, DF. tel 40-19-71). James told A/I that Miss COBB had recently been deported from Guatemala and was living in Mexico City. Later, A/I met Miss COBB accidently at the Mexican Ministerio de Gobernacion offices. She was very friendly and said she was helping a fcn PELLICAR (believed by A/I to be a Guatemalan) to write a book describing his defection from Communism. She wanted A/I to help pellicer with reference material on the Marcos RODRIGUEZ trial. She gave A/I her address, but i: various reasons he said he won't give up the slip
+
+SECREST COPY 03 26.65
+gof. 152634
+
+* 17 UFGA 19939
+
+2326.65
+gof. 152634

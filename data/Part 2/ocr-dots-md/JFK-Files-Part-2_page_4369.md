@@ -1,0 +1,145 @@
+# JFK-Files-Part-2_page_4369.png
+
+Convert to Markdown<table>
+  <thead>
+    <tr>
+      <th colspan="7">MARCH</th>
+      <th colspan="6">1961</th>
+    </tr>
+    <tr>
+      <th>S</th>
+      <th>M</th>
+      <th>T</th>
+      <th>W</th>
+      <th>T</th>
+      <th>F</th>
+      <th>S</th>
+      <th></th>
+      <th></th>
+      <th></th>
+      <th></th>
+      <th></th>
+      <th></th>
+    </tr>
+  </thead>
+  <tbody>
+    <tr>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td>1</td>
+      <td>2</td>
+      <td>3</td>
+      <td>4</td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td>5</td>
+      <td>6</td>
+      <td>7</td>
+      <td></td>
+      <td>8</td>
+      <td>9</td>
+      <td>10</td>
+      <td>11</td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td>12</td>
+      <td>13</td>
+      <td>14</td>
+      <td></td>
+      <td>15</td>
+      <td>16</td>
+      <td>17</td>
+      <td>18</td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td>19</td>
+      <td>20</td>
+      <td>21</td>
+      <td></td>
+      <td>22</td>
+      <td>23</td>
+      <td>24</td>
+      <td>25</td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td>26</td>
+      <td>27</td>
+      <td>28</td>
+      <td></td>
+      <td>29</td>
+      <td>30</td>
+      <td>31</td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+    <tr>
+      <td>*</td>
+      <td>*</td>
+      <td>*</td>
+      <td>*</td>
+      <td>*</td>
+      <td>*</td>
+      <td>*</td>
+      <td>*</td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+      <td></td>
+    </tr>
+  </tbody>
+</table>
+
+TUESDA
+
+21
+
+MARCI
+
+80
+
+285
+
+<table>
+  <tr>
+    <td>1- Lunch &amp; Briefing - Aecy Connally (Many to)</td>
+  </tr>
+  <tr>
+    <td>2:30 a.m.tg at N. St. "Laoz"</td>
+  </tr>
+  <tr>
+    <td>5:00 Briefig - Mr. Parrott</td>
+  </tr>
+  <tr>
+    <td>6:00-7:00 - Reception - Dr. Kent - Sheraton Park</td>
+  </tr>
+  <tr>
+    <td>7:30 Ainner - Aecy McNamara for Rt. Bl.- Hon, Harold Katkinov (stag) 3E 880 Pentagon</td>
+  </tr>
+</table>

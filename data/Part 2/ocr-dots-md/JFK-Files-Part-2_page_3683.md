@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_3683.png
+
+Convert to MarkdownNOTES
+
+A. South Korea President-elect Pak Chong-hui's success in winning control of the unicameral legislature in Tuesday's elections improves prospects for smooth operation of the new constitutional government. However, political stability will still depend on Pak's willingness to rule with moderation. If he interprets this victory as a popular mandate to pursue an aggressive authoritarian program, he could provoke serious unrest.
+
+B. Indonesia-Philippines President Sukarno's visit to Manila is on again for 4 December, according to the Indian ambassador to Djakarta. He assumes its purpose is to head off Philippine recognition of Malaysia.
+
+C. Thailand Prime Minister Sarit appears to have taken a further turn for the worst. Our station reported yesterday that he was flown by helicopter to a Bangkok hospital from his seaside villa. Police escorts described his condition as critical and rumors that he had died spread through the city.
+
+D. Rwanda-Burundi Prompt action by Burundi security forces appears to have halted the march of tribal refugees on Rwanda that we reported yesterday. There is little doubt that the refugees, who carried only a handful of modern arms and were poorly organized, would have been badly mauled by Rwandan troops if they had crossed the frontier.
+
+(Cont'd)
+
+For The President Only - Top Secret

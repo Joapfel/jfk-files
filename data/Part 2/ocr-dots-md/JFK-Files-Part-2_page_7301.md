@@ -1,0 +1,8 @@
+# JFK-Files-Part-2_page_7301.png
+
+Convert to MarkdownSECRET
+SENSITIVE
+
+7. NICARAGUA: During the period 1962 to 1966, CIA participated in efforts to interdict moves by General Somoza to purchase arms for military actions against his neighbors.
+
+8. SPAIN: In 1963, the Special Group approved a program to train 15-20 Spanish democratic labor leaders a year outside of Spain to build an effective cadre of Spanish labor leadership. In 1966, the Special Group approved a modest program designed to strengthen the Christian Democratic movement in Spain through supportive efforts with youth, political and labor elements.

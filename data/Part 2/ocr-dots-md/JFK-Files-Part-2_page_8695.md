@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_8695.png
+
+Convert to MarkdownControl of Cuban Travelers 200-9-49
+
+KNGS 0948 (IN 54974) dated 5 November 1963
+
+On 15 October 63 Dominican student Carlos Manuel CABRAL Lofontaine attempted to enter Cuba via Kingston ostensibly to attend architect conference. Jamaican authorities, suspecting the trip to be a pretext, returned CABRAL to the Dom. Rep.
+
+The First Secretary of the Cuban Embassy Ottawa, Osvaldo RELOVA, visited Kingston from 14-21 October 1963, purpose unexplained. While there he lived in the Consulate the entire stay.
+
+HABA 12,838 dated 5 November 1963
+
+Report concerning unofficial irregular air service established between Cuba and Brazil, for transportation of political rather than commercial travelers.
+
+POSN 0340 (IN 54917) dated 5 November 1963
+
+On 25 October 1963 a Russian plane arrived in Pointe-A-Pitre, Guadeloupe, with 60 passengers. 41 transferred to Panama for Rio; the remainder left on the "Russian" plane. /COMMENT: note on cable states that the Cubans were returning from architects congress./

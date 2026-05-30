@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_105.png
+
+Convert to Markdown<table><tr><td>DISPATCH</td></tr></table>
+
+<table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET</td><td>MARKED FOR INDEXING</td></tr><tr><td>TO<br/>Chief, Domestic Operations</td><td>XXX NO INDEXING REQUIRED</td></tr><tr><td>INFO</td><td>ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td>FROM<br/>Chief of Base, New York</td><td>MICROFILM</td></tr></tbody></table>
+
+<table><tr><td>SUBJECT</td><td>ISOLOG/LICOOKY -- Termination of Contact with LICOOKY/1</td></tr><tr><td>ACTION REQUIRED · REFERENCES</td><td>Action required: retire file, again.<br/>References: A. UNDA 3502, 22 January 1968<br/>B. UNDA 3650, 13 March 1968</td></tr><tr><td colspan="2">1. During a meeting with LICOOKY/1 on 5 April 1968 agreement was reached that the WOFIRM relationship with her would be terminated. A memorandum of contact (NYM-2689) concerning the meeting is attached herewith, and indicates the reasons for this termination. No administrative action is required of either the Base or Headquarters in this instance, as LICOOKY/1 was not being paid by us here, and was formally terminated once before (1966). Her file can be retired, again, and this time presumably will be the last time.</td></tr><tr><td colspan="2">2. Termination was very amicable, and LICOOKY/1 holds no ill-will for WOFIRM: she just does not wish to have any relationship with WOFIRM anymore.</td></tr><tr><td colspan="2">3. The writer fully expects to hear from LICOOKY/1 from time to time by phone (in fact, she called later the same day of the meeting to wish the writer a pleasant Easter, as she had forgotten to do so during the meeting), but does not plan any further personal contact.</td></tr><tr><td colspan="2"><p>HOWARD G. FIGALAN</p><p>Attachment: NYM-2689 h/w</p><p>Distribution: 2 C/DO w/att.</p></td></tr></table>
+
+CS CODV
+
+<table><tr><td>CROSS REFERENCE TO</td><td>DISPATCH SYMBOL AND NUMBER<br/>UNDA 2739~3761</td><td>DATE<br/>17 April 1968</td></tr><tr><td></td><td>CLASSIFICATION<br/>SECRET</td><td>HQS FILE NUMBER<br/>201-278841</td></tr></table>

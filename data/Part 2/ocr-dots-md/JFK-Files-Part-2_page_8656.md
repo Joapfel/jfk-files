@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_8656.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+DOI 50-10
+
+DDO INSTRUCTION
+NO. 50-10
+
+OPERATIONS-GENERAL
+4 September 1973
+
+academic community during that year. This audit will permit the DDO to keep abreast of major quantitative changes in the number of potentially sensitive operational cases in each Division.
+
+(5) It should be noted that the provisions of this paragraph do not apply to DDO employees who wish to study or teach privately. Approval for such activity will be obtained in accordance with the provisions of HR 10-7.
+
+## 9. INDIVIDUAL CHANGES OF STATUS OR CATEGORY
+
+When an individual undergoes a change of status which places him in one of the restricted categories described above, or transfers him from one category to another, his operational use or continued operational use is contingent upon approval or reapproval as prescribed for his new status.
+
+## 10. INTERPRETATION OR MODIFICATION OF RESTRICTIONS
+
+Certain of the policy restrictions described in this instruction are subject to interpretation, extension or modification by the Deputy Director for Operations depending on the conditions and the atmosphere for DDO operations at any particular time. Especially when dealing on the edges of policy rulings and within the guidelines set forth herein, particular heed should be paid to the price of disclosure, including careful consideration of the sensitivities of the individuals involved. When there is any doubt concerning the application of these restrictions, guidance should be obtained from the Deputy Director for Operations.
+
+William E. Nelson
+Deputy Director for Operations
+
+14
+SECRET

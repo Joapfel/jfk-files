@@ -1,0 +1,60 @@
+# JFK-Files-Part-2_page_3752.png
+
+Convert to MarkdownFROM:
+
+Headquarters Security Branch
+Security Duty Office
+
+INCIDENT REPORT
+
+| | |
+| :--- | :--- |
+| **Date of Incident** 29 August 1983 | **Date of Report** 29 August 1983 |
+| **Time of Incident** 1245 Hours | **Time of Report** 1430 Hours |
+
+Name NOVEL, Gordon W. (U) Grade NA Office NA
+
+DOB: 07 February 1938
+
+Incident Request for Office of Security Assistance (U)
+
+## Summary of Information:
+
+Received a call from Detective Arthur Trollinger, Ft. Lauderdale Organized Crime Division, who requested Office of Security assistance in verifying the employment of SUBJECT with the Central Intelligence Agency. Caller provided the following information. (U)
+
+SUBJECT, a convicted arsonist with ties to organized crime, is in the Ft. Lauderdale area. He is claiming to be affiliated with the Agency and under this guise has approached several companies specializing in electronic surveillance. It is for this reason that caller wishes to verify SUBJECT's employemt. (U)
+
+Caller provided the following description of SUBJECT:
+- DOB: 07 February 1938
+- HEIGHT: 5'8"
+- WEIGHT: 177 LBS.
+- HAIR: BROWN
+- EYES: BLUE
+
+Advised caller a report of his call would be made and forwarded to the appropriate office for any action deemed necessary. (U)
+
+## ACTION TAKEN:
+
+As stated. Copies forwarded to C/SSD for appropriate action. (U)
+
+Contacted and briefed Curt Rivers, SSD, who requested a copy of this report. (C)
+
+A check of SRD indices reflects (2) two hits in name of SUBJECT and OSDO indices reflects (1) hit in name of SUBJECT. (U)
+
+BHS
+
+Reporting Officer
+
+LDA
+
+Chief, Headquarters Security Branch
+
+<table><tr><td>WARNING NOTICE</td></tr><tr><td>INTELLIGENCE SOURCES</td></tr><tr><td>OR METHODS INVOLVED</td></tr></table>
+
+CONFIDENTIAL
+
+CL BY 039183
+DECL OADR
+DERIVED FROM COV-1-82
+
+FORM 7-82 1798 USE PREVIOUS EDITIONS

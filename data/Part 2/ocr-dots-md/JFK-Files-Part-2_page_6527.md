@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_6527.png
+
+Convert to Markdown# AN ACTION PROGRAM
+## COMBATING COMMUNIST SUBVERSION IN LATIN AMERICA
+
+### 1. Introduction
+
+While there is not total agreement on the magnitude of the Communist effort to export subversion to Latin America, from and through Cuba, there is agreement, at least, that the program embodies grave potential hazards for the treantibility of the Hemispheres. Beyond this, there is also general acknowledgement that the subversion problem is not a new one, that the Communist bridgeshead in Montevideo and Mexico City have been sources of infection to much of Latin America for too long decades or more. Finally, there is evidence that the U.S. appreciates these realities, as exhibited in the depth of ongoing U.S. programs in all of Latin America, aimed at blunting the Communist subversive thrusts into the continent.
+
+The question created by the President's underscoring of the problem is whether or not our efforts in this area are adequate - as to scope, as to coordination, and as to intensity. It is the view of this Committee that they are not. Further, it is the view of the Committee that steps aimed solely at impacting the flow of students and subversion to and from Cuba will not, if themselves, greatly shake the problem. Where must be competition efforts designed both to degrade the basis capability for Cuban-based subversion, as well as efforts to develop a more effective resistance capacity among the Latin American states. The sections to follow are designed with these two requirements in mind.
+
+First, with respect to preventing the export of Commu-nist subversion by or through Cuba, there is a summary of what we are doing now, and what we can do in the future.

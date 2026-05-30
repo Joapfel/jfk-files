@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_4735.png
+
+Convert to MarkdownSECRET
+
+on the Committee staff. She arranged a dinner party with several of the new
+staff types - this is the Church Committee not the Pike Committee. Seymour
+Bolton called the Pike Committee guys a bunch of young whippersnapper,
+snot-nosed kids. Really. The staff on the Church Committee was a little bit
+better. Anyway, at this dinner party, my wife came along too. But anyway, I
+was the target of the night, obviously, and everybody zeroed in on me, before
+dinner and after dinner and everything else. In terms to the approach to this
+whole business, where do we go from here and how. And I pointed out that
+they were in a totally different environment than they've ever been before,
+telling them this was a different kind of a game, and I said, "You are going
+to be surprised at the fact that you are not going to find very much paper
+around. And you are not going to find whole treatises like you do in law
+cases and what have you." And I said, "You are going to see my name and my
+initials on literally thousands of pieces of paper. But I'd be willing to bet
+you're not going to find more than a smattering of any substance before that
+initial or before that name. You are going to find all kinds of references to
+'as we discussed' and 'why don't we talk about this' and, you know,' let's see
+what we can do about this', 'why don't we talk about this sometime in the
+future'. You are going to find very meaningless comments." And the guy said,
+"Don't you guys ever put anything in writing?" I said, "We can, but if we can
+avoid it, no." And he said, "Well, how do you get approvals for projects?"
+And I said, "You write a project, and that you'll find. You'll find lots of
+stuff, lots of projects that we did. Some of them are one pagers, some of them
+are ten pages. But that's not what makes the whole place operate." And the
+whole purpose was to try to get me, I suppose, to tell them how to find things
+and what to look for. You know, I don't have to tell them. First of all, I

@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_8260.png
+
+Convert to Markdown6 April 1951
+
+Discussions held between ADAMSON and HAND of CIA and Colonels COVERDALE, and CARLAN, Mr. TOD, and Captain VILLEMETTE of G-2. Points (given below) the Army wants covered in a cable to OSO in Panama.
+
+a. Fort Clayton hospital detention war considered best possibility.
+
+b. Has this been discussed with G-2 USACARIB? If so, does it meet their approval? Can it be worked without advising Provost Marshal, Washington? (so leave in G-2 channels).
+
+c. AC of S G-2 Washington concurred in principle with proposal of assistance to CIA in this matter.
+
+d. As soon as operational details worked out with USACARIB, cable advising generally that can be effected forwarded by G-2 USACARIB to ACos S G-2 (personal for BOLLING). Details will come back through CIA.
+
+e. Identification of KELLY (DIMITROV) case.
+
+f. Detention period maximum of one year, relieve Army sooner if CAS

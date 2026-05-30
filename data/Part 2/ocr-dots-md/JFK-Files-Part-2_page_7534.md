@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_7534.png
+
+Convert to MarkdownPage 167: "Saul" said he left for the U.S. in Nov 1963 but would not say how or where he crossed the border. On evening of the 20th of Nov he was in Dallas.
+
+Page 177: "Saul" described how he shot President Kennedy from 2nd story window of County Records Bldg.,
+
+Page 178: "Saul" said that he used "limp" disguise" out of bldg., and in 2 hours was out of the U.S.
+
+Page 182: McDonald remembers "Saul's" statement that long before the Warren Commission even existed he had been told that there was a possibility that such a bullet would be planted to tie in OSWALD's rifle positively to the shooting.
+
+It therefore appears that the mere existence of CE No. 399 tends to prove the accuracy of "Saul"s statement and the presence of a conspiracy.
+
+McDonald said that as a professional assassin with international clientel, "Saul" had to master the art of crossing borders illegally, so that no record is kept. False passports are easiest methods.
+
+Could "Saul" be mysterious man who boarded plane for Havana? See DIRECTOR 36054. Flight from Mexico City reportedly delayed from 1700 to 2200 hours for passenger who arrived at 2130.

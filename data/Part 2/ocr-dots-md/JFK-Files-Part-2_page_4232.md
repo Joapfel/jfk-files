@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_4232.png
+
+Convert to Markdown104-10306-10021
+
+SECRET
+EYES ONLY
+
+2 January 1964
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Minutes of the Special Group Meeting, 2 January 1964.
+
+PRESENT: Mr. Bundy, Mr. Johnson, Mr. Gilpatric, and General Carter.
+
+Mr. FitzGerald was present for Items 1 and 2.
+Colonel Steakley was present for Items 3 and 4.
+
+1. <u>Cuba - Proposed Infiltration/Exfiltration Operations During</u>
+   <u>January 1964.</u>
+
+The infiltration/exfiltration operations in the January 1964 forecast were approved. Three sabotage operations, numbers 3111, 414, and 417, were approved by the Special Group subject to the concurrence of higher authority. Decision was deferred on a sabotage operation, number 413, against the petroleum refinery and storage facilities near Santiago. Mr. Johnson said that before he could exercise judgment as to the importance of this operation he must have an analysis as to what effect the total or partial destruction of this refinery would have on Cuban petroleum production and economy generally. The Group agreed that such an analysis should be prepared and be presented along with this sabotage operation for Special Group action at its next meeting.
+
+2. <u>Cuba - Infiltration/Exfiltration Operations During December 1963.</u>
+
+Mr. FitzGerald reviewed the accomplishments during the month of December. He emphasized a successful exfiltration activity of a recently activated ratline. This is the second time in two months that this ratline has successfully exfiltrated agents in danger of arrest. He also gave a resume of the underwater demolition operation (number 3117) which damaged a Cuban PT boat (Soviet-type P-6). Also, during the same operation self-destroying anti-boat mines were placed in the harbor entrance to inhibit pursuit. One of the mines was detected resulting in a Cuban government directive to all ports to take precautionary measures.
+
+SECRET
+EYES ONLY

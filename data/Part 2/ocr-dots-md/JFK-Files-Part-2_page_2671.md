@@ -1,0 +1,66 @@
+# JFK-Files-Part-2_page_2671.png
+
+Convert to Markdown# PERSONAL HISTORY STATEMENT
+
+Instructions: 1. Answer all questions completely. If question is not applicable write "NA." Write "unknown" only if you do not know the answer and cannot obtain the answer from personal records. Use the blank pages at the end of this form for extra details on any question or questions for which you do not have sufficient room.
+
+2. Type, print, or write carefully; illegible or incomplete forms will not receive consideration.
+
+HAVE YOU READ AND DO YOU UNDERSTAND THE INSTRUCTIONS?
+
+SEC. 1. PERSONAL BACKGROUND
+
+Telephone:
+c/o:
+E.
+Home: Cypress 612
+
+A. FULL NAME: Mr. William Morris Retired
+Title: Mr.
+
+PRESENT ADDRESS: 2448 Washington Ave. N.Y. C. 58, N.Y. U.S.A.
+PERMANENT ADDRESS: 2448 Washington Ave. N.Y. C. 58, N.Y. U.S.A.
+
+B. NICKNAME: Bill
+WHAT OTHER NAMES HAVE YOU USED? William
+Rosenkranz
+UNDER WHAT CIRCUMSTANCES HAVE YOU EVER USED THESE NAMES?
+Rosenkrone was legal family name formerly
+
+HOW LONG? 15 YRS.
+IF A LEGAL CHANGE, GIVE PARTICULARS Aug 4, 1944
+N.Y.C. N.Y.
+(Where): Supreme Court, Kronx County
+By what authority:
+
+C. DATE OF BIRTH: May 9, 1929
+PLACE OF BIRTH: Milan Italy
+(City) (State) (Country)
+
+D. PRESENT CITIZENSHIP: U.S.H.
+(Country)
+BY BIRTH:
+BY MARRIAGE:
+
+BY NATURALIZATION CERTIFICATE NO.: 6909991
+ISSUED: Jun 20, 1951
+(Date):
+BY: U.S. District Court
+(Court)
+AT: New York City
+(City)
+New York
+(State)
+U.S.A.
+(Country)
+
+HAVE YOU HAD A PREVIOUS NATIONALITY? Yes
+(Yes or No): Germany
+(Country):
+
+HELD BETWEEN WHAT DATES?: 4-2-77 TO June 10, 1979 ANY OTHER NATIONALITY? None
+(Country)
+
+GIVE PARTICULARS: NA
+
+HAVE YOU TAKEN STEPS TO CHANGE PRESENT CITIZENSHIP? No GIVE PARTICULARS: NA

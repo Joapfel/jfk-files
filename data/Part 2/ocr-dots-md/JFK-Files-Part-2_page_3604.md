@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_3604.png
+
+Convert to MarkdownNOTES
+
+A. **USSR** New activity involving Soviet range instrumentation ships in the Pacific appears to be forthcoming. Three instrumentation ships left Petropavlovsk 12 days ago and are apparently headed for the more distant Pacific impact area, 6,500 miles from Tyuratam. We are looking for extended range ICBM tests but we do not exclude a space event. There has so far been no announcement closing the area. (INTERCEPTS)
+
+B. **Congo-USSR** Soviet embassy personnel have not yet left Leopoldville, but their departure is expected momentarily. They were ordered out of the country after the Congolese turned up good documentary evidence of their complicity in anti-government plots. One of the items taken off a Soviet diplomat the other day was a letter from an anti-Adoula leader now in Brazzaville asking for funds and arms to over throw the Leopoldville government.
+
+C. **Britain** The Labor Party scored again in the Dundee West by-election Thursday, increasing its 1959 majority of 719 to a thumping 4,955. Heartened by this, Labor is now pushing for general elections at once. Prime Minister Home is not likely to accede.
+
+D. **Ecuador** The military junta which has run Ecuador since July may be about to come unstuck. We have a report that one of the less savory members of the group, air force Colonel Freiles, will try to take over full control this weekend. We are not sure of the reliability of this report, but Freiles is known to have been making motions in this direction.
+
+(Cont'd)

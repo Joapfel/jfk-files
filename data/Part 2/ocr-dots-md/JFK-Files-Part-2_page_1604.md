@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_1604.png
+
+Convert to Markdown18 August 1978
+
+Mr. James S. Woods
+304 Meadow Hall Dr.
+Rockville, MD 20851
+
+Dear Mr. Woods:
+
+We are enclosing the employee copy of your retirement action (Form 1150) that you requested 04 August 1978.
+
+Enclosure: 1 Form
+
+Dist.
+
+Orig. - Adse.
+1 - TRB
+1 - OPE/WOODS, James S.
+OP/TRB/SEAllewelt; sea(18AUG78)

@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_5320.png
+
+Convert to MarkdownSECRET
+
+CL BY: 611637
+CL REASON: Section 1.5 C
+DECL ON: X1
+DRV FRM: COV 2-87
+
+24 November 1997
+
+**MEMORANDUM FOR:** DCI_CSI_JFK_Team
+
+**FROM:** J. Barry Harrelson
+JFK Project Officer
+
+**OFFICE:** CSI/HRG
+
+**SUBJECT:** ARRB meeting 17 November - Results
+
+**REFERENCE:**
+
+Original Text of J. Barry Harrelson
+*Original Text of J. Barry Harrelson*
+
+CL BY: [REDACTED] 611637
+CL REASON: Section 1.5 C
+DECL ON: X1
+DRV FRM: COV 2-87
+
+21 November 1997
+
+**MEMORANDUM FOR:**
+John Pereira @ DCI
+Fredrick C. Wickham @ DO
+Lee Strickland @ DA
+Linda Cipriani @ DCI
+
+**FROM:** J. Barry Harrelson
+
+SECRET

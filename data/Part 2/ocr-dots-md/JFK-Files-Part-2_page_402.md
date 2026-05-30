@@ -1,0 +1,69 @@
+# JFK-Files-Part-2_page_402.png
+
+Convert to Markdown14-00000
+
+MESSAGE FORM
+TOTAL COPIES:
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
+
+☐ FILE RID
+
+☐ INDEX
+
+☐ NO INDEX
+
+☑ FILE IN CS FILE NO.
+
+☐ DESTRUCT ☐ RETURN TO __________ BRANCH
+
+**DISSEMIN BY ________ PER ________**
+
+**FROM:** DIRECTOR
+
+**CONF:** ☐ RID COPY **INFO:** VR , FILE .
+
+**CLASSIFICATION** (DATE AND TIME FILED)
+
+(CITE) (FCA)
+(REFERENCE NUMBER)
+
+CITE DIRECTOR
+
+TO
+
+AND IF SEE ACTUALLY SUBVERSIVE AGENT WOULD ACCOMPLISH
+IMPORTANT DISRUPTION ON OUR PART. NECESSARY TO SAY NOTHING BE
+MOST INTERESTED SEETING ANY MESSAGES OR MOREY FOUGHT. WOULD ALSO
+APPRECIATE STATION ASSESSMENT POSSIBLE DAMAGE OUR INTERESTS SUCH
+ARREST MIGHT HAVE, INCLUDING EFFECT ON ROWTON-LIRRINC/3 RELATION-
+SHIP.
+
+END OF MESSAGE
+
+WH/C/FI T. Hazlett (in draft)
+WH/C/CA/PA C. Anderson (in draft)
+WH/3/V SS
+
+~~Stuart Polyan~~
+William V. Broo
+C/WHD
+
+W. J. Kaufman
+C/WB/1
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+<table><tr><td>SECRET</td></tr></table>
+
+GROUP I
+Included from automatic
+decoding and decoding equipment
+
+AUTHENTICATING
+OFFICER
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

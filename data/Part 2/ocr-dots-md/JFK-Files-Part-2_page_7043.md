@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_7043.png
+
+Convert to MarkdownSUBJECT: THE JFK DECLASSIFICATION EXPERIENCE
+
+DA/OIM/IRG/SCD/CABriggs:bkh/31835 (29 Oct 99)
+s:/oim/fo/jim/hrp/jfk/C.B. JFK Declass Exp.doc
+
+Distribution:
+
+Original - Addressee, w/atts
+1 - C/IRG/SCD, w/atts
+1 - IRG/SCD/HRO, w/atts (Harrelson)
+1 - SCD Chrono, w/atts
+1 - SCD Subj, w/atts

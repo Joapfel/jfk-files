@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_4237.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+14 February 1964
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Minutes of the Special Group Meeting, 13 February 1964
+
+PRESENT: Mr. Bundy, Mr. Johnson, Mr. Vance, and Mr. McCone.
+
+General Maxwell D. Taylor, Mr. Thomas A. Mann, and
+Mr. Desmond FitzGerald were present for Item 1.
+
+Lt. General Marshall A. Carter was present for
+Items 1 and 2.
+
+1. **Cuba - Covert Activities.**
+
+A lengthy discussion took place on covert action potential
+to weaken the Castro regime. The first part of the discussion
+constituted an exchange of opinion of a general nature.
+
+The following points were emphasized: Continued covert
+action received support although divergence on the level of
+activity was registered. There was a consensus that the present
+level of operations was no longer effective in attaining the
+basic objective of toppling Castro but harassment might keep
+the regime off balance. There was an area of disagreement on
+proofs of effectiveness of current and past measures.
+
+Mr. Bundy summarized the dilemma by noting that the high
+risk, dangerous operations are the rewarding ones and the low
+noise, innocuous operations prove to be unrewarding.
+
+Mr. Mann emphasized that considerably more homework had
+to be completed before the next OAS meeting (presently unscheduled).
+Mr. Bundy indicated that a Cabinet level meeting with higher
+authority would have to be held eventually to determine how far
+the United States was willing to go. Mr. Bundy turned the discussion
+to the specific Department of Defense paper.
+
+On Sabotage, Mr. Vance stated that he could speak for
+the Secretary of Defense; his attitude had turned to a harder
+line.
+
+On Harassment of Free World Shipping to Cuba, para-
+graph 2.a. was considered work in progress. On paragraph 2.b.
+the attitude was negative, particularly as to ships of other
+than Cuban flag.
+
+SECRET
+EYES ONLY

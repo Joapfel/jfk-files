@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_6633.png
+
+Convert to MarkdownTOP SECRET
+
+14 May 1997
+
+MEMORANDUM FOR: Jim Hanrahan
+CSI/HRG
+
+FROM:
+John Loverro
+DI/IRO Staff
+
+SUBJECT:
+ARRB Request No. CIA-9
+
+1. The DI/IMO has located the PICL's which you requested as part of the above request. Copies for 20, 21 and 23 November 1963 are attached. Please call if you need additional material.
+
+**ADMIN-INTERNAL USE ONLY**
+when separated from attachments

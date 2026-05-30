@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_3326.png
+
+Convert to Markdown# Appendix C-1
+
+## CNO Correspondence with Department of State and NSC:
+
+1) Letter for Allen Dulles from Arleigh Burke, 17 Mar 60

@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_946.png
+
+Convert to MarkdownSECRET
+
+FIELD COMMENTS - continued
+
+Subject has performed well in his assigned field thus far and I would expect to reap substantial benefits from his performance during his second tour based on the experience and knowledge he will have gained by the end of his first tour.
+
+S E C R E T

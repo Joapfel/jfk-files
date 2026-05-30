@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_1754.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+You give him a job and need not worry about whether or how
+it will be done.
+
+The job offered no opportunity to observe his supervisory capabilities. He is cost conscious and security conscious.
+
+Fitness Report
+
+James S. Woods
+
+(continued)
+
+SECTION D.3. (continued)
+
+in Headquarters. The importance of his contribution and
+his personal initiative and efforts should be rewarded by
+a promotion.
+
+SECRET.

@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_5447.png
+
+Convert to Markdown04/23/97
+
+WED 15:53
+
+FAX
+
+C O V E R
+***
+
+S H E E T
+
+To: J. Barry Harrelson
+Fax #: 703-613-3063
+Subject: Segregated Collections
+Date: April 23, 1997
+Pages: 7, including this cover sheet.
+
+Today the Board adopted the attached guidelines.
+
+From the desk of...
+
+T. Jeremy Gunn
+General Counsel
+Assassination Records Review Board
+600 E Street, N.W.
+Washington, D.C. 20530
+
+(202) 724-0088
+Fax: (202) 724-0457
+
+CIA HAS NO OBJECTION TO
+DECLASSIFICATION AND/OR
+RELEASE OF THIS DOCUMENT'

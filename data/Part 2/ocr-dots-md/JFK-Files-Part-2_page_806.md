@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_806.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+JLB: 17N MAY 68
+
+<table><tr><td colspan="5">NOTIFICATION OF PERSONNEL ACTION</td></tr><tr><td>0DF</td><td colspan="4"></td></tr><tr><td>1 SERIAL NUMBER</td><td>2 NAME (LAST FIRST MIDDLE)</td><td colspan="3"></td></tr><tr><td>017974</td><td>FOX JEROME</td><td colspan="3"></td></tr><tr><td colspan="5">3 NATURE OF PERSONNEL ACTION</td></tr><tr><td colspan="5">REASSIGNMENT</td></tr><tr><td rowspan="2">6 FUNDS</td><td>V TO V</td><td>X</td><td>V TO CF</td><td>CF TO CF</td></tr><tr><td>CF TO V</td><td></td><td>CF TO CF</td><td></td></tr><tr><td colspan="5">9 ORGANIZATIONAL DESIGNATIONS</td></tr><tr><td colspan="5">DDP/FE<br/>FE/PMI-PHILIPPINES, MAYASIA, INDONESIA<br/>PHILIPPINE SECTION</td></tr><tr><td colspan="5">11 POSITION TITLE<br/>CON OFF VICE CONSUL W/C<br/>OPS OFFICER</td></tr><tr><td>14 CLASSIFICATION SCHEDULE (GS, IB, etc.)<br/>FSR</td><td>15 OCCUPATIONAL SERIES<br/>0136.01</td><td>16 GRADE AND STEP<br/>05.5</td><td>17 SALARY OR RATE<br/>D</td><td></td></tr><tr><td colspan="5">18 REMARKS<br/>WASH., D.C.</td></tr><tr><td colspan="5">SPACE BELOW FOR EXCLUSIVE USE OF THE OFFICE OF PERSONNEL</td></tr><tr><td>19 ACTION CODE</td><td>20 Employee Code</td><td colspan="3">OFFICE CODING</td></tr><tr><td>37</td><td>10-</td><td>ALPHABETIC</td><td>S</td><td>FE</td></tr><tr><td colspan="2">20 FIRE DEPARTMENTS</td><td colspan="3">30 RETIREMENT DATA</td></tr><tr><td>Nº</td><td>Da</td><td>Nº</td><td>COA</td><td></td></tr><tr><td></td><td></td><td></td><td>CDC</td><td></td></tr><tr><td></td><td></td><td></td><td>FCF</td><td></td></tr><tr><td></td><td></td><td></td><td>NOM</td><td></td></tr><tr><td colspan="2">15 VE PREFERENCE</td><td>30 SERV COMP DATE</td><td colspan="2">37 LONG COMP DATE</td></tr><tr><td>CODE</td><td>NO</td><td>FEB</td><td>Nº</td><td>DA</td></tr><tr><td></td><td>SM</td><td></td><td>Nº</td><td>DA</td></tr><tr><td></td><td>HM</td><td></td><td>Nº</td><td>DA</td></tr><tr><td></td><td>LT</td><td></td><td>Nº</td><td>DA</td></tr><tr><td></td><td>MSM</td><td></td><td>Nº</td><td>DA</td></tr><tr><td colspan="5">1) PREVIOUS CIVILIAN GOVERNMENT SERVICE<br/>2) CURRENT CIVILIAN GOVERNMENT SERVICE<br/>3) LEFT IN SERVICE DUE TO DISABILITY<br/>4) LEFT IN SERVICE DUE TO ACADEMIC REQUIREMENT<br/>5) OTHER REASON<br/>6) UNABLE TO FILE AS PERMANENTLY LISTED IN STATE RECORDS OFFICE</td></tr><tr><td colspan="5">SIGNATURE OR OTHER AUTHENTICATION</td></tr></table>
+
+SECRET
+
+FLW
+
+<table><tr><td colspan="3">POSTED</td></tr><tr><td>Apr 5 1968</td><td>Mars</td><td>Sun 5 May</td

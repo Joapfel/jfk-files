@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_50.png
+
+Convert to Markdown14-00000
+
+SECRET
+
+JU-232
+
+18 July 1961
+
+MEMORANDUM FOR CHIEF, WH DIVISION
+
+SUBJECT: General - Operational
+Specific - Submitting PRQ Part II on Subject JW-45
+
+REFERENCE: JW-8L
+
+In compliance with Reference, the requested information
+is herewith submitted.
+
+Warren S. Yauger
+
+Enclosure:
+
+PRQ Part II
+
+SECRET
+
+L
+
+L

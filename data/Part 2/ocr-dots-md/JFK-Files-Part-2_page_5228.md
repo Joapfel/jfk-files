@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_5228.png
+
+Convert to Markdowncould endanger current activities of the Agency in that country. I do not recall whether in my subsequent assignment as Chief of the Cuban Task Force, any mention of the assassination came up. However, if it did, revelation of my name could not only imperil those agents of the time who survive, compromise our operational methods, but also, make me a prime target for the Cuban intelligence service.
+
+None of the above should be construed as a waiver of my rights, or those of my heirs, to take legal action to prevent the release of my name and/or to collect damages, both civil and punitive, resulting from the release of my name. There exists an implicit contract between me and the Agency dating from when I accepted the inconveniences of a clandestine retirement. The Agency undertook to provide a LASTING cover for me. It should be noted that this implicit contract predates Public Law 102-526 by some 18 years. Naturally, I am going to inform my legal advisor of this entire matter. I suggest that you pull together a set of all documents pertaining to my retirement, so that these can be made available for his review.
+
+I refrain from comment about a U.S. Congress that would pass such a bill, and a President who would fail to veto it. (You of course, are not to blame.) The New York Times and the Washington Post, will, of course, be drooling to get their hands on your papers. I don't envy you because this is an extremely complicated matter. Unfortunately, the release on a lot of non-pertinent information will go a long way to reveal the scope and role of the Agency in Latin America to any analyst who wants to review the material and piece it together. I believe that this role is not significantly different today than it was when President Kennedy was murdered. Only the targets and the gadgets have changed.
+
+Sincerely yours,
+
+Thomas J. Flores

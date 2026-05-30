@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_8755.png
+
+Convert to Markdown13-00000
+
+SECRET, SENSITIVE
+
+conversation. On 14 June Mexico came in very clear and by chance picked up a strange conversation from a ham station in Cuba. The Cuban station was talking to Mexico ham radio operator named Alfonso, call letters XRIWA. Cuban station told Alfonso to contact a famous band leader named Antonio Maria Romero and kept referring to "El Corsario Negro." The Cuban station instructed Alfonso that once he contacted Romero he should have him record "Tres Lindas Cubanas."
+
+Memo for C/WH/PO/A from C/WH/SA/CI dated 15 Oct 1964
+19-6-102/3 AMMUG-1 Debriefing Report #203.
+
+AMMUG-1 said when President Kennedy died "Augusto" DGI Deputy Chief, Carlos Sixto CHAIN Soler, arranged a meeting at the National Liberation Building in Havana. He asked the National Liberation officers to urgently prepare commo system for a message to their agents to be transmitted by Radio Havana. Musical recording to accompany message was "Three (or Six) Beautiful Cubans."
+
+HHTW 1721 dated 15 October 1964
+
+Dispatch that transmitted the foregoing information to Tegucigalpa from Hqs. WH/SA.
+
+/COMMENT: The AMMUG information duplicates that recorded under ZRKNICK./

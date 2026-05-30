@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_6480.png
+
+Convert to Markdownc. US intervention would be based on:
+
+(1) A pre-arranged call for help from a Provisional Government set up by the insurrectionists (preferably to the OAS, although US action would not await formal OAS approval), or
+
+(2) A call for help from the insurrectionists after a coup had started without prior US concurrence, if the US determined that the insurgents met generally the criteria for support, or
+
+(3) Intervention by local Soviet forces.
+
+d. A coup should meet the following criteria to be supportable, recognizing that specific criteria will depend upon the situation existent at the time:
+
+(1) Have some power base in the Cuban army or militia in order to survive.
+
+(2) Be prepared to establish a Provisional Government, however rudimentary, with some sort of public claim to political viability to provide an adequate political basis for overt US action (not required if Soviet troops were clearly fighting Cuban patriots).
+
+(3) Neutralize the top echelon of Cuban leadership.
+
+(4) Seize and hold a significant piece of territory, preferably including Havana, long enough to permit the US plausibly to extend support and some form of recognition to the Provisional Government.
+
+e. **Policy Considerations.** For purposes of this paper, US policy affecting US support to a revolt in Cuba is summarized below.
+
+(1) The US does not contemplate either a premeditated full scale invasion of Cuba (except in the case of Soviet intervention or the re-introduction of offensive weapons) or the contrivance of a provocation
+
+TOP SECRET
+
+UNCLASSIFIED
+
+TOP SECRET SENSITIVE
+
+UNCLASSIFIED
+
+2
+S E N S I T I V E

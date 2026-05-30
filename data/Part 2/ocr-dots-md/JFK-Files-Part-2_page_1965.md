@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_1965.png
+
+Convert to MarkdownSECRET
+
+REQUEST FOR PERSONNEL ACTION
+
+<table><tbody><tr><td colspan="13">1. Serial No.</td></tr><tr><td>2. Name (Last-First-Middle)</td><td colspan="5"></td><td colspan="2">3. Date Of Birth</td><td colspan="2">4. Vet. Prof.</td><td colspan="2">5. Sex</td><td colspan="2">6. CS - EOD</td></tr><tr><td rowspan="2">NOEL, James A.</td><td></td><td></td><td>Mo</td><td>Da</td><td>Yr</td><td>None-0</td><td>Code</td><td></td><td>N.</td><td></td><td>Mo</td><td>Da</td><td>Yr</td></tr><tr><td colspan="2"></td><td></td><td></td><td></td><td>5 Pt-1<br/>10 Pt-2</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>7. SCD</td><td colspan="2">8. CSC Retrn</td><td colspan="5">9. CSC Or Other Legal Authority</td><td colspan="2">10. Aprmt. Affidav.</td><td colspan="2">11. FEGLI</td><td colspan="2">12. LCD</td><td colspan="2">13. All Mts. Credit LCD</td></tr><tr><td>Mo</td><td>Do</td><td>Yr</td><td>Yes - 1<br/>No - 2</td><td>Code<br/>1</td><td colspan="2"></td><td>Mo</td><td>Do</td><td>Yr</td><td>Yes - 1<br/>No - 2</td><td>Code<br/>1</td><td colspan="2">Mo</td><td>Do</td><td>Yr</td><td>Yes - 1<br/>No - 2</td><td>Code<br/>1</td></tr></tbody></table>
+
+PREVIOUS ASSIGNMENT
+
+UNVOUCHERED
+
+<table><tbody><tr><td colspan="4">14. Organizational Designations<br/>DDP/WH<br/>Branch II<br/>Argentina Section</td><td>Code</td><td colspan="4">15. Location Of Official Station<br/>Washington, D.C.</td><td colspan="4">Station Code</td></tr><tr><td colspan="2">16. Dept.- Field</td><td>Dept. X</td><td>(Attache)<br/>Area Opa Officer (Br-Ch)</td><td>Code</td><td>17. Position Title</td><td colspan="2"></td><td>18. Position No.<br/>SA-1,60</td><td>19. Serv.<br/>(FSS)<br/>GS</td><td colspan="2">20. Occup. Series</td><td colspan="2">0136.01</td></tr><tr><td colspan="2">21. Grade & Step<br/>G-15-3</td><td colspan="3">22. Salary Or Rate<br/>$ 12,150</td><td>23. SD<br/>DI</td><td colspan="2"></td><td colspan="2" rowspan="2">24. Date Of Grade<br/><table><tr><th>Mo</th><th>Da</th><th>Yr</th></tr><tr><td></td><td></td><td></td></tr></table><br/>25. PSI Due<br/><table><tr><th>Mo</th><th>Da</th><th>Yr</th></tr><tr><td></td><td></td><td></td></tr></table></td><td colspan="2">26. Appropriation Number<br/>8-3500-10-200</td></tr><tr><td colspan="12">ACTION</td></tr><tr><td colspan="2">27. Nature Of Action</td><td colspan="5">Code</td><td colspan="2">28. Eff. Date</td><td colspan="2">29. Type Of Employee</td><td colspan="2">Code</td><td colspan="2

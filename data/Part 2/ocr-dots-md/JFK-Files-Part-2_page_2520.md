@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_2520.png
+
+Convert to MarkdownSECRET
+
+30 January 1978
+
+MEMORANDUM FOR: Chief, Counterintelligence Staff
+VIA: Office of General Counsel, O&amp;MILD, Attention: Mr. John Rizzo
+FROM: Charles W. Sandman
+Chief, Contract Personnel Division
+SUBJECT: Contract Amendment for Mr. George Martin Rosnek
+REFERENCE: Memorandum from Chief, CI Staff, dated 20 December 1977
+
+1. (S) Referenced memorandum pertained to a formal request to amend Subject's contract to provide authorization for specific operational expenses.
+
+2. (S) Paragraph five (5) of Subject's current contract, among other things, provided for "other expenses". It is our opinion that the intent here was to provide authorization for expenditures for "Operational" purposes. The language being general and non-restrictive in nature, it would follow that any expenditure deemed by you, as the operating activity, to be of an operational nature, and so authorized, would be within the framework of the authorization and that there would be no need to specifically identify and additionally authorize the item and/or its value. Accordingly no action is taken upon your request, it being presumed that you already have adequate contractual authority.
+
+Concur:
+
+/s/ John A. Rizzo
+
+Office of General Counsel
+
+Distribution:
+Orig & 1 - Addressee
+1 - OGC/O&amp;M/LD
+2 - OP/CPD
+
+SECRET
+
+E2 INPUT
+CL BY: 063837
+
+Date:
+
+8. FEB 1978

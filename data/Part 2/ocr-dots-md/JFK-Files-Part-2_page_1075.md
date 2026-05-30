@@ -1,0 +1,56 @@
+# JFK-Files-Part-2_page_1075.png
+
+Convert to MarkdownCONFIDENTIAL
+
+REPORT OF INTERVIEW
+
+Name of Candidate: Scott, Jorle B.
+
+Position Considered for Office: Interviewer: Sf
+
+Personal
+Appearance:
+
+Dignified: Natural: Award:
+Well-groomed: Clean: Slovenly:
+Wide-Awake: Solid: Apathetic:
+Impressive: Ordinary: Insignificant:
+
+Personality
+
+Persuasive: Res主动: Treiturn:
+Importurab1e: Steady: Excitable:
+Cheerful: Trust: Defected:
+Straight-forward: Reserved: Energetic:
+Modest: Complacent: Concoited:
+Dominant: Confident: Subordinate:
+
+In ducation adequate? Yes (✓) No ( )
+
+Area Knowledge: Study For Est
+
+Previous intelligence or related experience: Topical in any School
+
+Salary level requested: 86-9; Low est salary acceptable: $5000.
+
+General Recommendations:
+
+1. Candidate is not recommended for employment. Reasons:
+
+2. Candidate is recommended for employment. Specific reasons: She is the best qualified for this position as she has the necessary skills.
+
+Specific Recommendation for employment:
+
+Position: Branch: Division
+
+Location:
+
+Salary level:
+
+Recommendation as to potential value of candidate to the organization in other than the position immediately under recommendation: low
+
+(Enter any additional notes on rivero, h.o.)
+
+of interviewee:
+
+CONFIDENTIAL

@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_1635.png
+
+Convert to MarkdownSECRET
+
+REQUEST FOR PERSONNEL ACTION
+
+<table><tr><td rowspan="2">1. Serial No.</td><td rowspan="2">8. Name (Last, First-Middle)</td><td colspan="3">3 Date Of Birth</td><td colspan="2">4 Vet Prof.</td><td>5 Sex</td><td colspan="3">6. CS-LOD</td></tr><tr><td>Mo.</td><td>Da.</td><td>Yr.</td><td>None-0<br/>5 Pt.-1<br/>10 Pt.-9</td><td>Code</td><td>M</td><td>F</td><td>Mo.</td><td>Da.</td><td>Yr.</td></tr><tr><td>510032</td><td>WOODS JAMES S</td><td></td><td></td><td>28</td><td></td><td></td><td></td><td>04</td><td>21</td><td>52</td></tr><tr><td>7. SCD</td><td>8. CSC Refs.</td><td colspan="2"></td><td>9. CSC Or Other Legal Authority</td><td>10. Appt. Allidav.</td><td>11. REGT.</td><td>12. LCD</td><td colspan="3"></td></tr><tr><td>Mo.</td><td>Da.</td><td>Yr.</td><td></td><td>Yes. 1<br/>No. - 2</td><td>Code</td><td>Yes. 1<br/>No.-2</td><td>Code</td><td>Mo.</td><td>Da.</td><td>Yr.</td></tr><tr><td>11</td><td>12</td><td>48</td><td></td><td>1</td><td>50 USCA 403 J</td><td></td><td></td><td>04</td><td>21</td><td>52</td></tr></table>
+
+PREVIOUS ASSIGNMENT
+
+<table><tbody><tr><th colspan="3">14. Organizational Designations</th><th>Code</th><th colspan="3">15. Location Of Official Station</th><th>Station Code</th></tr><tr><td colspan="8">DDP FE<br/>FE/PSH PHILIPPINES STATION<br/>SUPPORT BRANCH</td><td>5161 MANILA, R.P.<br/><b>67557</b></td></tr><tr><td colspan="3">16. Dept. - Field</td><td>5</td><th colspan="3">18. Position No:</th><td>GS</td><td>0306.01</td></tr><tr><th colspan="3">17. Position Title</th><td></td><td colspan="3"></td><td></td><td></td></tr><tr><th>Dept.</th><th>Code</th><th></th></tr><tr><td>USID</td><td></td><td></td></tr><tr><td>Frgn.</td><td></td><td>5</td><td>RECS MGMT ANAL.</td><td>3382</td><td></td><td></td><td></td><td></td></tr><tr><th colspan="2">21. Grade & Step</th><th>22. Salary Or Rate</th><th>23. SD</th><th colspan="2">24. Date Of Grado</th><th colspan="2">25. PSI Duo</th><th rowspan="2">Appropriation Number</th></tr><tr><td colspan="2"></td><td>$</td><td>01</td><th>Mo.</th><th>Da.</th><th>Yr.</th><th>Mo.</th><th>Da.</th><th>Yr.</th></tr><tr><td>09 1</td><td></td><td>5985</td><td>01</td><td>11</td><td>16</td><td>58</td><td>11</td><td>15</td><td>59</td><td>9 3780 55 006</td><td>nl</

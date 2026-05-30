@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_4249.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+4 June 1964
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Minutes of the Meeting of the 303 Committee, 4 June 1964
+
+PRESENT: Mr. Bundy, Mr. Johnson, Mr. Vance, and Mr. McCone.
+
+1. <u>Italy</u>
+
+At the request of Mr. McCone, the paper on the covert action program in Italy for FY-1965 was deferred until he had time to study it more carefully.
+
+2. <u>NSAM 303</u>
+
+NSAM 303 was circulated and the new designation for the Special Group 5412, the 303 Committee, was noted.
+
+3. <u>North Vietnam</u>
+
+a. The DOD paper dated 19 May 1964 entitled "North Vietnam Operations" was discussed at some length.
+
+b. Each annex of the paper was noted. In Annex A, <u>Physical Destruction Target List</u>, the members concurred in Mr. Vance's recommendation to accept all targets with the exceptions of 1, 5, and 7. Target 5 was bracketed with Nos. 14 and 15 in Annex B and is subject to the same treatment indicated below.
+
+c. In Annex B, <u>Psychological Operations</u>, the listed targets were approved except that Nos. 14 and 15 were to be examined further by DOD and CIA on the operational level. Mr. McCone stated that in regard to the Mco tribesmen (No. 14) this had been a CIA operation for some months and should be continued to be handled in the same way. He further felt that tribal operations of this type should be done covertly.
+
+d. In regard to Annex C, <u>Intelligence Operations</u>, the targets 1, 2, and 3 were approved and the Committee agreed to Mr. Vance's veto of target 4.
+
+<u>See Special Minute for Additional Item</u>
+
+SECRET
+EYES ONLY
+
+ZMC

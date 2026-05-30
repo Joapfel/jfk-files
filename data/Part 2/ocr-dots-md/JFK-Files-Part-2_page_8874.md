@@ -1,0 +1,74 @@
+# JFK-Files-Part-2_page_8874.png
+
+Convert to Markdown104-10528-10053
+
+<table><tr><td colspan="4">SECRET</td></tr><tr><td>Orig:</td><td>STEPHEN I. MUNGER/AVH</td><td></td><td></td></tr><tr><td>Unit:</td><td>DC/WE/4/X</td><td></td><td></td></tr><tr><td>Ext:</td><td>5559</td><td></td><td></td></tr><tr><td>Date:</td><td colspan="3">30 SEP 1963</td></tr><tr><td>To:</td><td colspan="3">MEXICO ROME WAVE</td></tr><tr><td>From:</td><td colspan="3">DIRECTOR</td></tr><tr><td>CONF:</td><td colspan="3">CANE 2</td></tr><tr><td>INFO:</td><td colspan="3">DDP, ADDP, C/CI, C/FI 2, C/WH 5, C/SAS 5, RF, VR</td></tr><tr><td>CIT DIR</td><td colspan="3">72347</td></tr></table>
+
+TO
+
+KABOY KEYWAY PERIOD
+REF: DIR
+
+INFO ROME WAVE
+
+IDEN A
+
+GIULIO MONDELLO, BORN 26 FEB 1917
+IN ITALY, ITALIAN CITIZEN, FORMERLY
+AGENT IN CUBA FOR FIAT AND OTHER TV
+TUBE FACTORY.
+
+IDEN B
+
+GELIOLO (LINOTYPE) FIRM, TURIN
+
+END OF MESSAGE
+
+US/5
+
+SAS/MOB
+
+SAS/NOB
+
+C/A/3
+
+DISCHARGED OFFICER
+
+COORDINATING OFFICER
+
+REPRODUCTION ONLY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.
+
+AUTHORIZING
+ISSUED BY
+
+GROUP 1
+Authorized from central.
+CHECKED AND AUTHORIZED
+OTHER REGISTRAR'S
+SIGNATURE
+C/C/31321246
+
+DATE : 1990
+TIME : 09:11:00
+GROUP 1
+SUBJECT : AUTHORIZING
+STATUS : 1
+AUTHORITIES : IDENTIFIED
+COPY : 1
+FILE : 1
+SUPERSEDES : 1
+UNCLASSIFIED : 1
+END : 1
+DATE : 1990
+TIME : 09:11:00
+GROUP 1
+SUBJECT : AUTHORIZING
+STATUS : 1
+AUTHORITIES : IDENTIFIED
+COPY : 1
+FILE : 2
+SUPERSEDES : 1
+UNCLASSIFIED : 2
+END : 2
+COPY : 2
+FILE : 2

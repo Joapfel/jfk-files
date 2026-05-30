@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_6419.png
+
+Convert to Markdown13-00000
+
+**Assassination Records Review Board**
+
+600 E Street NW • 2nd Floor • Washington, DC 20530
+(202) 724-0088 • Fax: (202) 724-0457
+
+MEMORANDUM
+
+Via Facsimile
+
+July 2, 1997
+
+CIA HAS NO OBJECTION TO
+DECLASSIFICATION AND/OR
+RELEASE OF CIA INFORMATION
+IN THIS DOCUMENT
+
+TO: Mr. J. Barry Harrelson, Central Intelligence Agency HRG
+
+FROM: Doug Horne, Assassination Records Review Board
+
+SUBJECT: Declassification Session for Califano Papers and Joint Staff/JCS Records
+
+1. The joint declassification session mentioned in our letters to the Army (re: the Joseph Califano Papers) and to the Joint Secretariat (re: Selected Papers of JCS Chairmen Lemnitzer, Taylor, and Wheeler, and selected JCS Central Files) of June 9, 1997 is scheduled to take place during the four-day window Monday, July 21-Thursday, July 24, inclusive. The first session will commence at 9:00 A.M. Monday morning, July 21, at the ARRB offices in room 207 of the Bicentennial Building, located at 600 E Street, NW (at the corner of E Street NW and 6th Street).
+
+2. Our offices are located equidistant from the following three Metro stations:
+Archives/Navy Memorial (Yellow Line); Judiciary Square (Red Line); and Gallery Place (Red Line). Parking Garages are located in the basement of the Bicentennial Building, and also across the street from us in the basement of the ARRP building.
+
+3. Please fax the names, SSNs, and clearance information for CIA attendees to Tracy Shycoff on our staff at fax number (202) 724-0457 prior to close-of-business on Wednesday, July 16, 1997. Please indicate on your visit request that the period of the visit is through the end of calendar year 1997, since it is anticipated that our efforts to expedite declassification of these documents will take more than one session to accomplish.
+
+4. We look forward to working cooperatively with all of our partners in this enterprise.
+
+BOARD MEMBERS: John R. Tunheim, Chair • Henry F. Graff • Kermit L. Hall • William L. Joyce • Anna K. Nelson
+EXECUTIVE DIRECTOR: David G. Marwell

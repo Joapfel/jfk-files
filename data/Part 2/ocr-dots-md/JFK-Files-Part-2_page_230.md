@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_230.png
+
+Convert to Markdown14-0000
+
+<table><thead><tr><th></th><th>DESTROY</th><th>RETURN TO BRANCH</th><th>FILE ID</th></tr></thead><tbody><tr><td colspan="2">MESSAGE FORM</td><td rowspan="5"><table><tr><td>ROUTING</td></tr><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table></td></tr><tr><td>TOTAL COPIES:</td><td>23</td></tr><tr><td>ORIG:</td><td>W.J.Kaufman</td><td>☐ INDEX</td><td>☑ SECRET</td></tr><tr><td>UNIT:</td><td>WH/1</td><td>☐ NO INDEX</td><td></td></tr><tr><td>EXT:</td><td>4506</td><td>☐ FILE IN CS FILE NO.</td><td></td></tr><tr><td>DATE:</td><td>4 Mar 66</td><td></td><td></td></tr></tbody></table>
+
+<table><tr><td>TO':</td><td>MEXICO CITY</td></tr><tr><td>FROM:</td><td>DIRECTOR</td></tr><tr><td>CONF.:</td><td>C/W 8</td></tr></table>
+
+<table><tr><td>CITE DIR</td><td>85413</td></tr></table>
+
+**TO MEXI**
+
+**REF:** MEXI 6341 (IN 59865)
+
+1. LUND MET WITH LICOOKY-1 FEBRUARY 7 IN NEW YORK (NY) AND FEBRUARY 28TH WHEN SHE VISITED WASHINGTON TO REVIEW THE 1962 SENATE HEARING RECORDS FOR POSSIBLE RELEASE TO USE IN HER LEGAL PROBLEMS. L-1 PLANS TO RETURN TO MEXI NO SOONER THAN MARCH 7 DEPENDING ON PROGRESS WITH HER LAWYER. L-1 WON ROYALTY CASE WHICH SHOULD PRODUCE ABOUT $700 NOW; OTHER SUIT STILL UNRESOLVED.
+
+2. NO ATTEMPT WAS MADE TO DEBRIEF L-1 IN DEPTH IN THAT ALMOST EVERY ITEM SHE RAISED WAS REPEAT MATERIAL ON HER OLD CRONIES AND CONTACTS. POINTED OR REVEALING QUESTIONING ON ANY ACTIVE TARGET, I.E. LEVENSON COMPLEX, WAS AVOIDED.
+
+3. FURTHER TO DIR 81088 L-1 STATED LEVENSON MET BERDECIO IN MEXI PRIOR TO EITHER SPRING OR SUMMER 63. IDEN OF GIRL IN CALIFORNIA UNKNOWN. LEVENSON LIVED WITH BERCEDIOS ON ARRIVAL 63. L-1 CLASSIFIES REVUELTOS, BERDECIOS, LEVENSON AS NON-COMMIE, SLIGHTLY LEFT, ALMOST APOLITICAL.
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+GROUP I
+Included from automatically demodulating and decoding
+
+AUTHENTICATING OFFICER
+
+CONTINUED......
+
+COPY NO.:
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

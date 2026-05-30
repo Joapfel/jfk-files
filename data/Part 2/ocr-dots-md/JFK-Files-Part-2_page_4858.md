@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_4858.png
+
+Convert to Markdown13-00000
+
+MHFNO: 98-2262774
+
+SENSIND: RYBAT
+
+PAGE: 2
+
+--- 
+4. FILE: NONE. DECL ON: X1, CL REASON: 1.5(C), CL BY: 0491759
+DRV LIA 1-87.
+
+END OF MESSAGE
+
+SECRET
+
+SECRET

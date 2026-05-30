@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_4137.png
+
+Convert to Markdown3. The covert action project for Bolivia was approved.
+
+4. Matt Baird put on a fine briefing on CIA counterinsurgency training. Bundy indicated he would reassure the Attorney General and I do not think we will have any further problem as to outside inspections or overseeing of our training program.
+
+5. There was no discussion of the minutes or next week's agenda.
+
+6. I reported on the high-level coverage of Cuba in accordance with the Keber memorandum, and I also gave them a briefing of our U-2 carrier operations to include the pornographic pictures.
+
+M. S. C.

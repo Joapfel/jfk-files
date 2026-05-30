@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_6163.png
+
+Convert to Markdown56 Md. L. Rev. 1, *32
+
+n193. See Exhibit Eight infra p. 53 (observing that Oswald announced his plans to attend Swiss college, but that he never arrived to attend classes).
+
+n194. See id. (documenting FBI's request to Swiss police for information about Oswald).
+
+-End Footnotes-
+
+XI. Of Times and Theories
+
+How to address the host of issues raised by these intelligence materials depends on answers to two overriding questions: The first is whether the passage of time renders open that which currently requires postponement. The second is whether, by adopting a particular theory about what happened in Dallas, the Board so fundamentally shapes its assumptions about the significance of documents that it may actually fail to open the most critical of them.
+
+More than a third of a century has passed since the murder of President Kennedy. When asked whether the sources, methods, and techniques used then are no longer worthy of protection today, the intelligence and law enforcement agencies appropriately answer no. n195 They argue that disclosure at any time will reduce their capabilities and, hence, our national security. n196 In the world of intelligence operations, all secrets must live forever, lest we be unable to find new secrets in the future.
+
+- - - - - - - - - - - - -Footnotes- - - - - - - - - - - - - -
+n195. See supra notes 154-157 and accompanying text.
+n196. See supra notes 154-157 and accompanying text.
+
+-End Footnotes-
+
+The passage of time, however, has made a difference, and in some instances dramatically so. There is today no Soviet Union to which Lee Harvey Oswald could return. If he returned to Minsk, he would find it a capital of an independent nation, rather than a satellite of the Communist Empire. The Warsaw Pact has dissolved; the capitals of Eastern Europe now sport trendy shops and capitalist enterprises; Cuba survives by importing tourists from everywhere but the United States; and China has emerged as a major American market. Not only is the Cold War dead, but so too are many of the principal figures in the assassination - President Johnson, Robert F. Kennedy, John Connally, and Jacqueline Kennedy. The U-2 is regularly fea-*tured* on television documentaries; photographs from the once super-secret Keyhole surveillance satellites of the 1960s and early 1970s leap from the pages of the current issues of Scientific American. n197 There is no doubt that the CIA, FBI, and military intelligence services snooped on us and other nations, friend and foe. n198 The CIA in particular argues that current intelligence activities must remain plausibly deniable and that the Board's role should be to postpone the disclosure of actions taken a third-of-a-century ago that conceivably could compromise current operations. Yet, we might reasonably ask ourselves, as the Board has, whether, three decades later, we would compromise our security interests around the world by indicating that a CIA station once existed in Moscow.
+
+-Footnotes- - - - - - - - - - - - - -

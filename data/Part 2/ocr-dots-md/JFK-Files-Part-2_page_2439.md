@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_2439.png
+
+Convert to Markdown29 October 1970
+
+Chief, Miami Field Office
+Director, Domestic Contact Service, OAS
+
+New Case 35,539 - Electro-Finder's Incorporated Car Locating System
+Request for Demonstration
+
+A REF : MDI-160-70 with attachments
+
+i. This is now case opened to your office.
+
+2. TSD/SDB is interested in the various Electro Finder's car locating equipment which are the subject of reference, as possible alternative to TSD's present capabilities in this field of interest.
+
+3. If it is possible to do so please arrange for a demonstration of subject equipment for TSD sometime in mid-November 1970, at the convenience of representatives of Electro-Finder's Incorporated. If such a demonstration is not possible in Florida, without incurring any cost to TSD/Special Devices Branch, or in any case, if further discussion is desired, please advise and we will be glad to pursue the matter further with appropriate TSD components.
+
+4. We appreciate your cooperation and support in this case.
+
+JAMES R. MURPHY
+
+QSMusolin/bmi
+cc: Services Div. (Control)

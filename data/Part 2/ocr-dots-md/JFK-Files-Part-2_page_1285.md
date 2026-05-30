@@ -1,0 +1,58 @@
+# JFK-Files-Part-2_page_1285.png
+
+Convert to MarkdownSEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents):
+
+1. NAME Ruthven Smith RELATIONSHIP daughter AGE 8
+
+CITIZENSHIP U.S. ADDRESS 625 323B, Route 2, Gardners, Pa. U.S.
+
+2. NAME no other children RELATIONSHIP ____________ AGE ____________
+
+CITIZENSHIP _________________ ADDRESS _________________
+
+(No. and Number) (City) (State) (Country)
+
+3. NAME ____________ RELATIONSHIP ____________ AGE ____________
+CITIZENSHIP ____________ ADDRESS ____________ (No. and Number) (City) (State) (Country)
+
+SEC. 5. FATHER (Give the same information for stepfather and/or guardian on a separate sheet).
+
+FULL NAME Robert Craighead Smith
+(Pat)
+(Last)
+
+LIVING OR DECEASED living DATE OF DECEASE __________ CAUSE __________
+PRESENT, OR LAST, ADDRESS 2225 N. 3rd St., Harrisburg, Pa., U.S.
+DATE OF BIRTH 3/28/84
+(City) (State) (Country)
+
+IF BORN OUTSIDE U.S. INDICATE DATE AND PLACE OF ENTRY
+CITIZENSHIP U.S. WHEN ACQUIRED? Birth WHERE? Baltimore, Md.
+(City) (State) (Country)
+ OCCUPATION rate clerk LAST EMPLOYER Shirk's Motor Express Co or
+EMPLOYER'S OR OWN BUSINESS ADDRESS P.O. Box 239 Enola, Pa. U.S.
+(City) (State) (Country)
+MILITARY SERVICE FROM none TO __________ BRANCH OF SERVICE __________
+(City) (State)
+
+COUNTRY DETAILS OF OTHER GOVT. SERVICE, U. S. OR FOREIGN COUNTRY
+
+SEC. 6. MOTHER (Give the same information for stepmother on a separate sheet).
+
+FULL NAME Margaret Elizabeth Burksolder Smith
+(Pat)
+(Last)
+
+LIVING OR DECEASED living DATE OF DECEASE __________ CAUSE __________
+PRESENT, OR LAST, ADDRESS 2225 N. 3rd St., Harrisburg, Pa. U.S.
+DATE OF BIRTH 8/5/88
+(City) (State) (Country)
+
+CITIZENSHIP U.S. WHEN ACQUIRED? Birth WHERE? Harrisburg, Ia.
+(City) (State) (Country)
+ IF BORN OUTSIDE U.S. INDICATE DATE AND PLACE OF ENTRY
+(City) (State) (Country)
+
+(7)
+
+11 ©1987 ICR

@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_1642.png
+
+Convert to MarkdownVIA: AIR
+
+SPECIFY AIR OR SEA POUCH
+
+CONFIDENTIAL
+CLASSIFICATION
+
+DISPATCH NO. FKLA 5486
+
+TO Chief, FE
+
+FROM : Chief, Korea Mission
+
+SUBJECT: GENERAL Administrative/Personnel
+
+SPECIFIC Recommendation for Promotion - James S. WOODS
+
+DATE: 4.FEB.1955
+
+INFO: Chief, Support Mission,
+Chinawa
+
+1. It is recommended that James S. WOODS be promoted from GS-5 to GS-7. Subject entered on duty with the Korea Mission 26 July 1954.
+
+2. WOODS presently occupies proposed Slot No. 21 which has been recommended as a GS-9 slot. Subject has been in grade as a GS-5 since 6 June 1953 and has performed the duties of his present assignment since 10 August 1954.
+
+3. Subject has had approximately two years of experience in the maintenance of agent records. This experience has enabled him not only to assume his present responsibilities with a minimum of supervision, but also to initiate a completely new and improved system for the maintenance of the agent records of the Korea Mission. Due partially to the efficiency of the system that he has initiated and partially to the enthusiasm with which he approaches his work, POENAG hao. Assumed the work load previously handled by two individuals and at the same time has managed to keep his backlog to a minimum.
+
+4. WOODS is conscientious, hard-working and more than willing to work long hours of overtime without additional compensation in order to maintain his section on a current basis. Subject individual devoted unusually long hours to reestablish himself during the recent move of this Mission to Japan. On the basis of work performance and motivation, subject is recommended as justly deserving of promotion to GS-7.
+
+5. I certify that WOODS is performing the duties outlined in the job description attached hereto.
+
+/s/ JOHN L. HARC
+
+1 February 1955
+
+1 ECL -afs
+
+DISTRIBUTION:
+
+1 - Chief, FS
+
+1 - Chief, IN
+
+CONFIDENTIAL
+CLASSIFICATION
+
+<table></table>

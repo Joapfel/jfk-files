@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_6771.png
+
+Convert to MarkdownMr. Chairman, I am here today at your request to provide my views on House Joint Resolution 454, "The Assassination Materials Disclosure Act of 1992," and to describe the nature of documents held by the CIA that relate to the assassination of John F. Kennedy. I very much appreciate the opportunity to speak on this important matter, just as I did before your Senate counterparts last Tuesday.
+
+Let me begin by stating that I am in complete agreement with the purpose underlying the joint resolution--that efforts should be made to declassify and make available to the public as quickly as possible government documents relating to the assassination of John F. Kennedy. We hope that opening up and giving journalists, historians and, most importantly, the public access to governmental files will help to resolve questions that still linger over 28 years after the assassination. Further, I believe that maximum disclosure will discredit the theory that CIA had anything to do with the murder of President Kennedy.
+
+Even before introduction of this joint resolution, I recognized the need for greater public access to CIA documents of historical importance. Two months ago, I announced the establishment of a new unit within CIA that will be responsible for declassifying as many historical documents as possible
+
+CIA SPECIAL CIRCulations
+RELEASED BY THE PRESIDENT
+2000

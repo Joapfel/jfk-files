@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_7563.png
+
+Convert to MarkdownCOUNTRY: USSR
+
+SUBJECT: Dr. Y. I. Moskalev, Institute of Biophysics, Moscow/Professional Interests/Personal Characteristics/Foreign Travel
+
+DCHI 03-A(S) 322/33488-70
+
+13 Nov 70
+
+1. In September 1970, Dr. Yuri Ivanovich Moskalev visited a US facility devoted to research in the field of nuclear medicine. Dr. Moskalev was born on 23 July 1920 in Igymnobo, USSR, which is near Kalinin. In 1922 his family moved to Leningrad. He has lived in Moscow since 1948. In 1958 he became the head of a division comprised of approximately 30 people at the Institute of Biophysics, Soviet Ministry of Public Health, Moscow. He is the best known investigator of the metabolism and toxicity of radioelements in the Soviet Union and has published a number of papers and reviews on this subject. During his visit, he outlined his as yet unpublished experiment on skin carcinogenesis in rats (dosage administered to the body surface by $Sr^{90}-Y^{90}$ plaques on the sides of the cage) and reported two percent tumors of the skin and some mammary tumors after a 245 rad exposure. It is obvious that he is a careful and trustworthy worker.
+
+2. Moskalev is conversant with English but not fluent, and has some difficulty in finding the correct English words; however, with a little patience, scientific communication is very satisfactory. He is genial, frank, and possesses a good sense of humor. He prefers Leningrad to Moscow, considering the former to be a more traditional and cultured city. His chief recreational diversion is his dacha, near Moscow, to which he sometimes travels by skis in winter (a distance of approximately 20 kilometers).
+
+3. Dr. Moskalev has visited the United States on two previous occasions; once attending the Sun Valley Symposium in 1967 and again for the Annual Hanford Biology Symposium in 1969. He has traveled to other places outside the Soviet Union and was present at a meeting sponsored by the IAEA in Vienna in 1964.
+
+- end -
+
+CONFIDENTIAL
+
+<table><tr><td>GROUP 1</td></tr><tr><td>Excluded from automatic<br/>downgrading and declassification</td></tr></table>

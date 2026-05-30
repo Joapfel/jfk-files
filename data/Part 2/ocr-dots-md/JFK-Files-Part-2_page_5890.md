@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_5890.png
+
+Convert to MarkdownThe Nagell, Novel and Ruby files were designated assassination records and copies were provided to HRP. The Sheridan and Weisberg files were made available and were reviewed by the ARRB Staff. (Attachment 13)
+
+## CIA-IR-29 Oswald LeWinter
+
+The Offices of Security, Human Resource Management, Facilities Security & Services conducted searches for information on Oswald Winter. HRM and OFSS reported negative results. OS found information in an impersonation/crank file. The DA/IRO coordinated with the DO on a statement that was provided to the ARRB staff. Attachment 14
+
+## CIA-IR-36 Handling of Cables in 1963
+
+The DA/iro provided coordination approval on a memorandum prepared by HRP describing cable handling procedures Attachment 15
+
+List of 38 Names of Interest to the ARRB-Provided by HRP 8/5/98
+
+The Offices of Security and Human Resource Management searched records for information on 38 individuals listed in the attachment. The OS and HRM responses are attached. Attachment 16
+
+4. As this declaration demonstrates, I and my predecessors to the best of our ability have caused thorough searches of all relevant DA records systems for records responsive to the JFK ARRB requests for information. In addition, the offices of the Directorate of Administration have certified to me that all employees have been furnished with a copy of DCI Tenet's 22 July 1998 directive to all employees requiring them to search records in their possession for information related to the JFK Assassination that might not have been found in the course of the searches conducted over the past 6 years.
+
+5. I declare under penalty of perjury that the foregoing is true and correct.
+
+Executed this 21 day of August 1998.
+
+Becky L.Rant
+Information Review Officer
+Directorate of Administration

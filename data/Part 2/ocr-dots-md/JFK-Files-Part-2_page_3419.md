@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_3419.png
+
+Convert to MarkdownORGANIZATION
+
+HR 1-11a
+
+## 11. OFFICE OF THE DEPUTY DIRECTOR FOR SCIENCE AND TECHNOLOGY
+
+a. THE DEPUTY DIRECTOR FOR SCIENCE AND TECHNOLOGY. The Deputy Director for Science and Technology is responsible for directing and coordinating the activities of the Offices of Scientific Intelligence, Research and Development, ELINT, Special Activities, Special Projects, and Computer Services, and the Foreign Missile and Space Analysis Center. His responsibilities include:
+
+(1) Advising the Director of Central Intelligence on scientific and technical intelligence matters;
+
+(2) Producing scientific intelligence;
+
+(3) Coordinating, in a staff capacity, existing and proposed Agency research, development, and engineering (RD&E) plans and programs to insure responsiveness to Agency needs;
+
+(4) Conducting liaison with the entire scientific community, including other Government agencies, on matters of science and technology relating to intelligence;
+
+(5) Managing the "R" Career Service.
+
+Revised: 10 October 1969 (482)
+
+<table><tr><td>GROUP I</td></tr><tr><td>Included from automatic downgrading and deduce-Mainline</td></tr></table>
+
+15

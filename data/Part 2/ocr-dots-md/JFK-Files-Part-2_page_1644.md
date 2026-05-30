@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_1644.png
+
+Convert to MarkdownCONFIDENTIAL
+
+6. **Personal Work Contacts:**
+
+a. **Initiative:** In order to maintain agent records properly, I must always keep alert for new ways to keep them up-to-date and meet any demands that may be made for drawing up new procedures for the maintenance of agent records.
+
+b. **Originality:** To adopt new ways of maintaining agent records without losing control over the flow of daily material.
+
+c. **Judgment:** I must decide what action should be taken on all KOMI file checks, regarding what information is to be sent to Headquarters and CHMI.
+
+7. **Personal Work Contacts:**
+
+I must maintain close personal contact with all case officers and branch chiefs in order that I may maintain up-to-date agent records.
+
+8. **Others:**
+
+I must maintain files of all documents routed to Personality Files. Also I must resolve problems the branch chiefs or case officers may have in regard to agent records.
+
+Also, I have recently established a 201 agent record system for the Mission and am responsible for its continual maintenance.
+
+CONFIDENTIAL

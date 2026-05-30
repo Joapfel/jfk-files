@@ -1,0 +1,61 @@
+# JFK-Files-Part-2_page_5575.png
+
+Convert to Markdown13-00000
+
+532
+
+before was one of pretty much permitting words, we wanted his cooperation and we reasonable manner, but his preference was going, to want to go out socially all the time, to continue to work. And the most important the decision to confront him with inconsistently and passing it on.
+
+> In living conditions, were they changed? Permitted to leave. He was not permitted to
+
+*--to-day treatment, not the actual interrogation, was that changed at that time?* *that early. I don't remember that.*
+
+is it correct that Nosenko was interrogated?
+
+* The subareas on which he was interrogated
+
+**Know.** Subject areas? This is a guess, this is known was made based on what the CIA people to get an admission and to break on that. on points that they had collateral on. By said what this man is saying is not the truth and, therefore, let us hit him hard on this, were tactical considerations relating to position of the interrogators which then offered the met the truth.
+
+normally the case, gives you other breaks to be interrogated was essentially a fac-
+
+that after April 4 the subject areas were him, to break him, as opposed to a desire use to you in your role as an intelligence the operation.
+
+impression. The answer is yes because by that the man was not telling the truth, that down to be untrue and that, therefore, made for his behavior and his statements were did not appear to make sense to accept as was you could be sure that that data was in doubts about this, leaving aside the motive way in which he presented it, that the able.
+
+* * * * * * *
+
+*Substance of what Nosenko had to say about*
+
+**Mean, when he first said it back in February**
+
+*Substance of it?*
+
+I'ing I said would be polluted by so much dust of the message was that Oswald wasience Services, that he was never debriefed because I was personally involved in the really pin it down.
+
+**Inident by Nosenko?**
+
+believe that it would be possible for the remained indifferent to the arrival in 1959 operator who had served at what was an it to be strange. It was only later, I think, er ramifications began to emerge that it me even more unusual.
+
+seems to me almost to have been tacked on
+
+> It doesn't seem to be part of the real body of
+
+the other things that he had to say, many of which were true. You understand that Nosenko was—much of what he said was true.
+
+
+
+Mr. KLEIN. You are talking about other areas?
+
+Mr. MURPHY. Yes, sir. This one seemed to be tacked on and didn't have much relationship, and it seemed to be so totally dependent on not just one coincidence but a whole series of coincidences, for him to have been there and all that sort of thing. That is what I mean.
+
+Mr. KLEIN. Do you recall any other specifics about what you could not accept in Nosenko's statements about Oswald?
+
+Mr. MURPHY. Yes, that they just—this is part of the first one—no contact was ever made, that he went up to Minsk and lived happily and well with no contact. The Soviet Union with foreigners don't do that. I mean, he is the only person. Read the accounts of what happened to this poor gentleman, what happened to Jay Crawford in Moscow and their intensive debriefing of him on the layout of the American Embassy. It didn't seem to be possible.
+
+Now, again, that does not constitute proof, doesn't constitute any breakthrough. It seemed to me to be strange.
+
+Mr. KLEIN. Would you distinguish between first the fact that nobody debriefed Oswald when he first came to the Soviet Union, nobody tried to find out what he knew as a marine, as a radar operator, and, second, the fact that once they decided to allow him to stay, nobody debriefed him to find out if he was some kind of a Western security agent or working for CIA?
+
+Mr. MURPHY. Yes, they would be two different points. The first point clearly involves the KGB and GRU. This is simply a chap arriving with this background and no one taking the time just from a military intelligence technical point of view, telling us how it worked when this thing came in at 90,000 feet what did the blips look like. I don't think they had many American radar operators handling operational traffic involving U-2's.
+
+Mr. KLEIN. How would you react to a statement by Nosenko that although the KGB knew Oswald was a marine, they did not bother to question him, and because of that, never knew that he was a radar operator or that he worked at the base from which the U-2's took off and

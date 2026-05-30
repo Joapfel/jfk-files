@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_1017.png
+
+Convert to MarkdownTHE WASHINGTON POST
+
+14 May 1978
+
+ARTICLE APPEARED
+ON PAGE D-4
+
+# How CIA Agents Suffer From Secrecy
+
+CONTINUED

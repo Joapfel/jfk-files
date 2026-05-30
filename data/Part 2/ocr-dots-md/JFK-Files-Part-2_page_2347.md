@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_2347.png
+
+Convert to Markdown14-0000.
+
+3. IF COURSES OF INSTRUCTION WERE COMPLETED DURING PERIOD OF THIS REPORT, LIST TITLE, LOCATION OF SCHOOL, LENGTH OF COURSE AND DATE COMPLETED.
+<table><thead><tr><th rowspan="2">C. PROFICIENCY IN<br/>POSITION LINE:</th><th colspan="3">DELEGATING</th><th colspan="3">SPECIFYING</th><th colspan="3">TERMINATING</th></tr><tr><th>YES</th><th>NO</th><th>PARTIAL</th><th>YES</th><th>NO</th><th>PARTIAL</th><th>YES</th><th>NO</th><th>PARTIAL</th></tr></thead><tbody><tr><td>SPANISH</td><td>✓</td><td></td><td></td><td></td><td>✓</td><td></td><td></td><td>✓</td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+9. HAVE THERE BEEN ANY CHANGES IN PERSONAL STATUS SINCE ORIGINAL EMPLOYMENT OR LAST REPORT • IFICHEVER IS LATER?
+
+MARITAL STATUS
+
+NUMBER OF DEPENDENTS
+
+EMERGENCY ADDRESS
+
+LEGAL ADDRESS
+
+IF THE ANSWER TO ANY OF THE ABOVE IS YES, ATTACH A SEPARATE DETAILED REPORT IN DUPLICATE HERETO. IN THE CASE OF MARRIAGE, THE REPORT WILL INCLUDE NAMES, ADDRESSES, AND CITIZENSHIP OF SPOUSE, FATHER-IN-LAW, MOTHER-IN-LAW, BROTHERS-IN-LAW AND SISTERS-IN-LAW.
+
+DATE
+
+SIGNATURE OF EMPLOYEE
+
+7. PERIOD COVERED BY THIS REPORT
+   DATE FIRST [ ] DATE TO [ ]
+
+OCCASION FOR REPORT
+ANNUAL [ ] REASSIGNMENT OF REPORTING OFFICER [ ] PROPOSED REASSIGNMENT [ ] COVERING INITIAL 90 DAYS OF EMPLOYMENT [ ]
+
+8. IS THIS EMPLOYEE QUALIFIED TO PERFORM ALL PRESENT DUTIES? [X] YES [ ] NO [ ] IS EMPLOYEE BETTER QUALIFIED FOR OTHER DUTIES? [X] YES [ ] NO
+
+DO YOU CONCUR IN EMPLOYER'S DESCRIPTION OF DUTIES UNDER SECTION 21? [X] YES [ ] NO IF NO, EXPLAIN IN SECTION 11
+HAD EMPLOYEE STRIVED FOR PROFESSIONAL IMPROVEMENT? [ ] YES [X] DO YOU RECOMMEND EMPLOYEE FOR PROMOTION? [ ] NO [ ] IF SO, WHAT GRADE AND FOR WHAT POSITION?
+9. FOR EACH FACTOR OBSERVED CHECK THE APPROPRIATE BOX TO INDICATE HOW THE EMPLOYEE COMPARES WITH ALL OTHERS OF THE SAME CLASSIFICATION WHOSE PROFESSIONAL ABILITIES ARE KNOWN TO YOU PERSONALLY. DO NOT LIMIT THIS COMPARISON TO THE OTHERS NOW UNDER YOUR SUPERVISION. DO NOT HESITATE TO MARK 'NOT OBSERVED' ON ANY QUALITY WHEN APPROPRIATE.
+
+<table><thead><tr><th>RATING FACTORS</th><th>NOT<br>ORDER-<br>YES</th><th>UNSAT-<br>IFFAC-<br>TORY</th><th>PARTIAL</th><th>GOOD</th><th>VERY<br>GOOD</th><th>EXCEL-<br>LENT</th><th>OUT-<br>STAM-<br>DING</th></tr></thead><tbody><tr><td>A. ABILITY TO WORK AND GET ALONG WITH PEOPLE</td><td></td><td></td><td></td><td></td><td></td><td></td><td>X</td></tr><tr><td>B. INTEREST AND ENTHUSIASM IN WORK</td><td></td><td></td><td></td><td></td><td></td><td

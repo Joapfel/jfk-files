@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_6202.png
+
+Convert to Markdown13-00000
+
+# Directorate of Administration
+
+## DA Information Management Officer (DA/IMO)
+
+* The DA/IMO is the Deputy Director for Administration's representative for issues relating to records and classification management.
+
+* The DA/IMO is responsible for protecting equities consistent with existing statuses, EO guidance and internal rules and regulations governing the creation, maintenance and use, and disposition of information.

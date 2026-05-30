@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_8403.png
+
+Convert to MarkdownSECRET
+
+-9-
+
+2. Nature and description of lodging and surroundings:
+
+a) previous apartment in Mexico City was only one bedroom apartment. They lived there during their first tour until Mercedes went home to have her third baby. In January 1969 she said that when she returned from Cuba she would seek new quarters. Her apartment was uncomfortable and she couldn't receive people there, they always had to eat out. Mercedes indicated to a Embassy officer she would not ask for authorization from Havana first as she might be turned down, then she would not be allowed to move.
+
+She indicated she brought from Recuperación de Bienes a dining room and living room furniture. She bought in Mexico her beds, and a refrigerator out of her own salary. She thought she fared worse than other employees.
+
+b) In early 1970 they rented their present apartment, which has three bedrooms and two baths, plus a maid's bedroom and bath. Living room, kitchen, dining room.
+
+3. Location of resident, with respect to target installation:
+
+15 blocks almost directly East from the Embassy.
+
+4. Servants: [Rollock] 1/20/70
+Clara Santa, Cuban, negro. Has special Cuban passport and is in Mexico as part of Cruz' household. Born about 1936. Called a "technical export".
+
+In 1968 the Felix LUNA (201-759016) family also had a Cuban maid which they brought with them when they came PCS. That maid is no longer here. She was also negro.
+
+July 1968 Carlota, the other maid, said she saw the records, and they were to get 1,000 pesos salary. But deductions were to be made for food, etc. In mid-1968 both Carlota and Clara Santa each got 500 pesos (U.S. $40) per month. Mercedes always pays Clara
+
+SECRET
+
+13-00000

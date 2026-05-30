@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_4481.png
+
+Convert to Markdownsubsidy and support of Cuban exile groups.
+
+E. It is recommended that the Mongoose operational mechanism be abolished.
+
+F. If you concur in this concept, specific recommendations will be made to you concerning the re-positioning of Task Force W within the DD/P.
+
+WILLIAM K. HARVEY
+Chief, Task Force W
+
+13-00000

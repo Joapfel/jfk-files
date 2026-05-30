@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_4257.png
+
+Convert to Markdown13-00000
+
+SECRET
+EYES ONLY,
+
+- 2 -
+
+provide a basis for estimating accurately the chances for successful low-level penetration of the USSR. Mr. McCone will arrange to have a USIB paper prepared on this subject.
+
+The Group noted the DESOTO destroyer voyage, which will now include a courtesy call at Djakarta.
+
+Colonel Steakley told the Group that CINCLANT has tried out the MELON PATCH photography missions, operating under the ten mile restriction which was laid on by the Special Group at its meeting of 31 January. It is now apparent to CINCLANT that adequate photography of the desired areas cannot be obtained at that distance. The Group agreed that the ten mile restriction should remain in force. In coming to this conclusion they made the point that in case of real need for this type of coastal intelligence, there would be adequate time to obtain it after an emergency actually was in effect; and further, any such information collected now would have to be up-dated before operations could be mounted based on it.
+
+The revised RED DOG missions, to be flown in C-47's, and the proposal to fly some BRASS KNOB missions from the Canal Zone, were approved.
+
+Colonel Steakley was asked to give the Group a report on the results obtained from the last mission into the Sea of Okhotsk.
+
+Colonel Steakley told the Group that the JCS will make no recommendation on low-level coverage of Laos (ABLE MABEL) until after the results of the Agency effort explained below.
+
+The Group made a point of saying that although the time is not now propitious for covering the COMOR priority targets in Cuba with low-level flights, it may well prove desirable to do this on fairly short notice. Therefore this matter should be kept under constant review by operating elements.
+
+## 2. Reconnaissance - CIA Monthly Forecast
+
+Mr. McCone told the Group that the weather has suddenly opened up over North Vietnam and that the mission to cover that area, via Laos, which was approved by the Special Group on 17 January, will actually be launched tonight. He said that after this is completed the airplane will be ferried to Taiwan in accordance with the discussion at the meeting of the 25th of February, transiting Laos on the way. Mr. McCone also reported on the recent successful GROSBEAK mission.

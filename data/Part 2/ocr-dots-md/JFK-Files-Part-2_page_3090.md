@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_3090.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+B. Forging the Tool
+
+Following President Eisenhower's approval of
+the anti-Castro program which had evolved from the
+numerous discussions, meetings, and briefings pre-
+viously mentioned, the Agency's leadership then faced
+the problem of acting directly to implement the anti-
+Castro program. Problems which had been discussed
+philosophically prior to this time now had to be put
+to the test of practicality. Among the problems of
+principal importance during the period from March to
+September 1960 were the following:
+
+The establishment of the leadership of WH/4 and
+the acquisition of personnel for WH/4;
+
+Extensive coordination between Agency representa-
+tives and representatives of other US Government
+Agencies and, at the same time, a high level of intra-
+Agency coordination.
+
+The initiation of a paramilitary training program
+for those Cubans who would be directly involved in help-
+ing to dispose of the Castro Government:
+
+Attempting to establish project parameters and
+to give proper consideration to possible changes in
+the concept of the program as time passed;

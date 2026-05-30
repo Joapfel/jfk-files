@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_4276.png
+
+Convert to MarkdownSECRET
+
+EYES ONLY
+
+- 3 -
+
+a continuing basis and cannot be subjected to a stop-and-go treatment. The DCI went on to say that any such activity is bound to be attributed to the United States and if we are to carry through with it, we must be prepared to accept the accompanying noise level. He said that a sabotage program will not be entirely beneficial to U.S. interests; on the minus side, there is the fact that this will complicate the running of intelligence operations and it could result in Cuban retaliation. Additionally, Mr. McCone said he is not in favor of extreme types of sabotage such as complete destruction of crops, contamination of water supplies, etc. He would prefer open intervention to this kind of thing.
+
+The DCI said that the combination of economic and other pressures with sabotage activities, might provide a feasible climate for a successful attempt to fragment the Castro organization. He foresaw the possibility of such fragmentation leading to assumption of power by a military dictatorship, which would probably be friendly to the U.S. In this connection, Mr. FitzGerald said that we have a line on certain high-ranking officers who are not entirely sympathetic to the regime. He pointed out, however, that a major operational obstacle to capitalizing on this situation is the difficulty of persuading individual Cubans of this type to place their trust in each other. In addition, we will have to be able to assure them that the U.S. will be sympathetic to possible successors to the present government, even though such people may have been former Castro supporters.
+
+Mr. FitzGerald touched on the proposed support to selected Cuban exile groups, for autonomous operations, as being one of the key points of the possible new program. He made the point that there is no use in the U.S. trying to deny that it backs such operations, since it will be accused of this in any case, and the accusations will be generally believed; further, such a posture is not detrimental to U.S. interests. Mr. Bundy agreed with this point. He added, however, that a "scenario" will have to be worked out, clearly indicating who in the government should respond to accusations in this field and what in general they should say.
+
+Mr. Bundy questioned a statement in the paper to the effect that covert action which might be used as a pretext for overt military intervention is ruled out. Mr. McCone and Mr. FitzGerald said that the purpose of this statement was to indicate that the covert program is not specifically directed toward the end of providing such a pretext, but that it is not intended to preclude such a situation if it should turn out to be desirable at some time in the future.
+
+Mr. FitzGerald then described a number of possible sabotage operations. In this connection, he pointed out that the paper contains a proposal for the placing of limpets, carrying suitable delay mechanisms, on the outside of Cuban ships so as to explode at sea.

@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_238.png
+
+Convert to MarkdownRELEASING OFFICER
+
+<table><tr><td>COORDINATING OFFICERS</td></tr><tr><td>SECRET</td></tr></table>
+
+CONTINUED...
+
+GROUP I
+Deliberate decepting and disinformation
+
+AUTHENTICATING
+OFFICER
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

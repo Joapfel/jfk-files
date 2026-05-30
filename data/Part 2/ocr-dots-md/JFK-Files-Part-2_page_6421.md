@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_6421.png
+
+Convert to Markdown08/05/97
+
+Assassination Records Review Board
+
+600 E Street NW • 2nd Floor • Washington, DC 20530
+(202) 724-0088 • Fax: (202) 724-0457
+
+MEMORANDUM
+
+Via Facsimile
+
+August 5, 1997
+
+CIA HAS NO OBJECTION TO
+DECLASSIFICATION AND/OR
+RELEASE OF CIA INFORMATION
+IN THIS DOCUMENT
+
+TO: Mr. J. Barry Harrelson, Central Intelligence Agency HRG
+
+FROM: Doug Horne, Assassination Records Review Board
+
+SUBJECT: Invitation to Next Declassification Session for Califano Papers and JCS Records
+
+1. I am writing to notify you that the next working session for joint declassification review of subject records in accordance with the standards of the JFK Act is scheduled for Tuesday, October 7 through Thursday, October 9, inclusive, in the ARRB conference room in our second floor offices at 600 E Street, N.W.
+
+2. Our goals for this second session are to complete joint review of the JCS papers, and to open up for review two more boxes in the Califano collection. This session will also allow selected agencies (which were not able to complete review of documents available at the first session) an opportunity to catch up.
+
+3. We see a need for representatives of the CIA to continue to attend these sessions until they are completed.
+
+4. Names and clearances need to be faxed to us only if the CIA attendees for this October session are different from those clearances passed to ARRB in July. Our point-of-contact and fax number for clearances is Tracy Shycoff, at (202) 724-0457.
+
+5. For planning purposes, following this October session, our plans are to host one session per month, of 2 to 3 days duration each time, until the declassification review of the selected JCS papers and the Califano collection is completed. Agencies which require more time are welcome to make individual appointments to review these documents in-between the monthly, group sessions.
+
+BOARD MEMBERS: John R. Tunheim, Chair • Henry F. Graff • Kermit L. Hall • William L. Joyce • Anna K. Nelson
+EXECUTIVE DIRECTOR: David G. Marwell

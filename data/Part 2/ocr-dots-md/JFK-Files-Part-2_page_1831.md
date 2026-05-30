@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_1831.png
+
+Convert to Markdown# S-F-C-11-S-T
+
+## WRITING WORKSHOP (BASIC) NO. 8
+### TRAINING EVALUATION
+
+<table><thead><tr><th colspan="4">SECTION I: IDENTIFYING INFORMATION</th></tr></thead><tbody><tr><td>NAME<br/>WOODS, James S.</td><td>SIX<br/>M</td><td>DATES OF COURSE<br/>21 Sept. - 15 Oct. 1959</td><td>NO. OF STUDENTS<br/>13</td></tr><tr><td>DATE OF BIRTH<br/>20 February 1928</td><td>FOD DATE<br/>April 1952</td><td>GRADE OR RANK<br/>03-9</td><td>OFFICE<br/>FE/Administration</td></tr><tr><td colspan="4">PROJECTED ASSIGNMENT OR PRESENT POSITION<br/><strong>Records Officer</strong></td></tr><tr><td colspan="4">SECTION II: OBJECTIVE OF THE COURSE<br/><br/>To stimulate habits of thoughtful, self-critical writing for intelligence production.</td></tr></tbody></table>
+
+<table><thead><tr><th colspan="4">SECTION III: SPECIFIC CHARACTERISTICS OF THE COURSE</th></tr></thead><tbody><tr><td>The class is conducted for ten to fifteen students. It meets for two hours morning and one hour in the afternoon on a period of four weeks. There are three sessions during the first week and two afternoons for three weeks. The course is run on the "learn by practice" system. A number of writing tests are given in class, and they are evaluated against national and Agency norms. The trainees also prepare written exercises and have an opportunity to rewrite some of them during later sessions. Students may use the form and substance of their own office's written product. Special attention is paid to logical organization, diction, sentence structure and other mechanics of writing. The trainees receive detailed comments on their papers and are encouraged to discuss special writing problems with the staff.</td></tr></tbody></table>
+
+<table><thead><tr><th colspan="4">SECTION IV: HOW THE STUDENTS ARE EVALUATED</th></tr></thead><tbody><tr><td>Staff members observe the student's writing ability, any changes demonstrated, and application to the course material. The evaluation represents their agreed comments based on the student's total performance.</td></tr></tbody></table>

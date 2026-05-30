@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_4071.png
+
+Convert to Markdown13-00000
+
+EP 65-951
+
+NAGELL stated he is presently residing at the Holiday Inn, Jacksonville, Florida, and would be there for the next few days. He said he is presently driving a 1959 Ford which bears California license MYU 890. He said he has no living relatives except his former wife, who resides at 440 South Union Avenue, Los Angeles, California, and his sister, ELEANORE GAMBERT, 8225 Grand Avenue, Elmhurst, New York.
+
+NAGELL advised that he believes in connection with his contacts that he is actually working for the Soviets. He could furnish no information as to a specific assignment given him other than that he was to go to Miami and sit in a bar which he is unable to identify and wait to be contacted by a Soviet Agent. He said he spoke Japanese and Russian fluently and is well versed in the Spanish language. He said he was shot in June, 1962, but refused to discuss any of the incidents surrounding the shooting. He said his auto has several bullet holes in it. He furnished a photograph of himself.
+
+On December 17, 1962 efforts were made to locate NAGELL for reinterview; however, it was determined that he had checked out of the motel and left no forwarding address.
+
+## December 20, 1962 to January 22, 1963
+
+On November 25, 1963, EP T-2 made available clinical records regarding the subject covering the period when the subject was a patient at the Veterans Administration Hospital, Bay Pines, Florida, from December 20, 1962, to January 22, 1963. One clinical record contained the following information:
+
+### "INTERIM SUMMARY (INTERSERVICE)
+
+"1. HISTORY OF PRESENT ILLNESS: This 32 year old white male veteran of Korean War was admitted to Ward 1-5-S on 12-20-62 because of complaints of headache and lapses of memory. He claims these since an airplane accident he had had in

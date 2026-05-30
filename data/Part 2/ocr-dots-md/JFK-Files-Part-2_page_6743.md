@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_6743.png
+
+Convert to Markdown4. Did any of these records originate with any other Federal, foreign, state, or local agency? If so, please describe which agencies and the approximate numbers.
+
+A small number of CIA's JFK assassination records, probably less than 5%, originated with the State Department and the Immigration and Naturalization Service. Another small number of records, also less than 5%, are original HSCA records stating Committee requests to CIA.
+
+5. How many of these records have been reviewed for release under the Freedom of Information Act? How many of these records have been released pursuant to such requests?
+
+CIA has released 7,432 pages of JFK assassination records, representing 1,969 documents, under the Freedom of Information Act. There is no documentation of how many JFK assassination records CIA has reviewed under FOIA.
+
+6. In the estimation of the CIA, approximately how many records would he released under the standards contained in House Joint Resolution 454?
+
+It is very difficult to estimate the number of documents that would be released if the Joint Resolution passed. We would review our holdings carefully to ensure that the maximum amount of information is released, consistent with the DCI's responsibility to protect intelligence sources and methods.

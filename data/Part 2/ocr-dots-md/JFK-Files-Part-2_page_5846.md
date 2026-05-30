@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_5846.png
+
+Convert to Markdown# Records Relating to Oswald or the Assassination known to have been destroyed or removed.
+
+In November 1997, the Information Management Officer of the Office of the Inspector General (OIG) advised that he had discovered a record which indicated a file that referred to the Kennedy assassination had been destroyed on "5/1/95". A search for information on this document revealed that the document had been created in 1977 and was described as "allegations regarding the Lee Harvey Oswald file." It was included with other documents grouped under the description:
+
+> "Individual Case Files - Consists of documents accumulated in investigating complaints, suggestions, or problems of individuals which are brought to the attention of the IG. Filed numerically by case number. Potential cases filed alphabetically."
+
+It has been confirmed that copies of the documents were made available to the HSCA and are in the sequestered collection. The OIG has reconstructed the file and will maintain it as a permanent record. Documentation is provided at Tab 1.

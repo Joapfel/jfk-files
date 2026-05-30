@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_7105.png
+
+Convert to MarkdownSECRET
+
+NO FOREIGN DISSEM
+
+A clandestine source who has good contacts with Chilean Students in Cuba reported in February that a recently returned student said some 40 Chileans would soon be leaving Cuba to return to Chile. The Source said these Chileans had received political training in Cuba and were returning with funds from the Cuban government for Allende's presidential campaign. Chilean police are reported to have identified 400 Chileans who have visited Cuba over the past three years as "subversives," but we have no evidence of any organized guerrilla training of Chilean groups in Cuba.
+
+Some 350 Chileans have left to Cuba during 1963-64, traveled to Cuba in the first 4 months of this year.
+
+## 6. Colombia
+
+Cuba has been providing funds to subversives in Colombia since 1960. The pro-Castro, Worker-Student-Peasant Movement (MOEC), the United Front for Revolutionary Action (FUAR)--whose members are building up the newly activated National Liberation Front (FLN), and the recently organized National Liberation Movement have been the principal recipients of Cuban funds. A fairly reliable source reported that Castro said that two Cubans were being evaluated to evaluate the FLN and its prospects and to pass funds for further activity.
+
+Cuba has established some contact with bandit gangs infesting the Colombian countryside. Army troops who are fighting the bandits have found Cuban propaganda in the possession of these bandits. Some bandit leaders may have had guerrilla training in Cuba, but Havana does not appear to have had substantial success so far in directing bandit activity for political ends.
+
+Colombians arrived to Cuba in 1962 made the trip before the first 4 months of 1964.
+
+## 7. Costa Rica
+
+The Communist Popular Vanguard Party (PVP) continues to send members for subversive training in Cuba. Some of these militant returnees have
+
+-6-
+
+NO FOREIGN DISSEM
+-SECRET

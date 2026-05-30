@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_8160.png
+
+Convert to MarkdownDRAFT
+
+26 April 1968
+
+KING ASSASSINATION AND USIB
+
+DCI:
+
+A. General:
+
+1. Request that the Federal Bureau of Investigation give a full report to USIB on ________________ (date) on the status of the investigation of the assassination of Dr. Martin Luther King, Jr.
+
+B. Specific:
+
+1. Is there any indication that Ray has left the USA?
+
+2. If so, when, to what country or area, and by what means and route?
+
+3. Is there any indication that Ray had in the past travelled outside the United States other than the October - November 1967 trip to Mexico as Galt?
+
+4. Is there any indication that Ray had been issued a U.S. passport under his true name or any of his aliases?
+
+<table><tr><td>Downgraded to CONFIDENTIAL</td><td>CLASSIFICATION Reveiw</td></tr><tr><td>by authority of O60595</td><td>CONDUCTED ON 28Feb1978</td></tr><tr><td>date 28 2/6 1976</td><td>E 2 IMPUGT CL BY O60595</td></tr></table>
+
+CONFIDENTIAL
+
+2-11-0532132

@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_8033.png
+
+Convert to Markdownthe television program to let The Truth, and identified "the real Mr. So-and-go" with an accuracy of better than 94 percent. The problem obviously was not the television camera.
+
+He ran the testimony of William Gurvich on the PSE Gurvich had been Garrison's chief aide in the investigation of Clay Shaw until he resigned, charging Garrison with wrongdoing. He said, "The truth as I see it is that Mr. Shaw should never have been arrested." He was asked if Garrison had known of certain illegal and unethical methods Gurvich had alleged were being used by Garrison's staff. He answered, "Yeah, of course he did. He ordered it." There was no stress in Mr. Gurvich's statements. The PSE showed that he believed what he was saying.
+
+Obviously I did not have enough testimony from a large enough number of witnesses to create a detailed picture of the Garrison-Shaw affair, but it seems probable that, at the very least, Garrison did not have much of a case against Shaw (a view later held by a New Orleans jury) and likely that Shaw was completely innocent of complicity in the assassination. The lesson of this episode is twofold. First, stress in any one person's testimony does not prove deception. Second, given enough testimony by different witnesses, the PSE can arrive at the truth.
+
+The first person I ran on the PSE who had any direct knowledge of the assassination was Oswald's widow, Marina. Unfortunately, only one of her statements was on the CBS tapes—that Oswald had owned a rifle. The PSE said she was telling the truth.
+
+The rifle had been one of the major points of controversy raised by critics of the Warren Report. The debate centered on two points: whether the Mannlicher-Carcano alleged to have belonged to Oswald was the rifle found by the Dallas police in the Texas School Book Depository, and whether that particular gun could have been the murder weapon.
+
+On the tapes, Darrell C. Tomlinson, an employee of Parkland Hospital, testified that he had found a rifle bullet on a stretcher which he believed had carried Governor Connally. There was no stress in his statement. The PSE said he was telling the truth.
+
+Dr. Joseph D. Nicol. Superintendent of the Bureau of Criminal Investigation for the State of Illinois, ran ballistic tests on bullet fragments found in the presidential limousine, and on the intact bullet found by Tomlinson. Nicol testified that both the intact bullet and the bullet fragments had been fired by the Mannlicher-Carcano. He, too, was apparently telling the truth.
+
+Deputy Constable Seymour Weitzman of the Dallas police claimed that he found Oswald's Mannlicher-Carcano on the sixth floor of the Texas School Book Depository. However, on the day of the assassination, he had told the press that the rifle he'd found was a German Mauser. The following day he signed an affidavit to that effect. But on the CBS tapes he testified that he had been mistaken about that point, that it had really
+
+development. Or course, both men could be lying. Garrison might have found some valid evidence linking Shaw to the assassination and then, in the time-honored tradition of prosecutors, invented the rest of his case. But Shaw's stress could easily be the result of his predicament, and Garrison's might also be the result of some outside issue. The situation was ambiguous.
+
+I ran the testimony of Lee Odom. Odom, a Dallas businessman, was attempting to explain the mysterious coincidence of the post office box numbers It seems that the Dallas post office box number 11906 appeared in the notebooks of both Clay Shaw and Lee Harvey Oswald. In his testimony, Odom stated that he could not account for the number appearing in Oswald's notebook, he knew how it got into Shaw's. It was Odom's box number, and he had given it to Shaw, whom he'd met by chance on a business trip to New Orleans. The PSE showed hard stress during his statement. No unrelated control statement was available for me to run for comparison.
+
+This didn't really clear things up. There were several obvious alternative explanations for Odom's stress. For example, there
+
+had been a number of rather unsavory allegations in the press about Clay Shaw, unrelated to the Garrison charges. Odom may have felt extremely uncomfortable about linking himself to this man in anyway. The coincidence of the box numbers seemed very suspicious, but Bob Smith of the Committee had pointed out to me that both Shaw's and Oswald's notebooks were filled with numbers, so the chance of such a coincidence was not that remote.
+
+At this point I began to wonder if the television camera was the "outside issue" in every case. Perhaps just being on television will so thoroughly rattle the average person that, lying or not, he is going to show stress on the PSE. I checked this out by recording and charting a number of people on television programs—public officials, men in the

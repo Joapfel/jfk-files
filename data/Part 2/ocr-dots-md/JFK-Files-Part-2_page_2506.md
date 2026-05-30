@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_2506.png
+
+Convert to MarkdownSECRET
+
+as Mr. Rosnek reaches the salary paid an employee in the top step of GS-15 (currently $47,500) his annual compensation would be increased only as the pay for that step increases.
+
+4. All other terms and conditions of said contract, as amended, remain in full force and effect.
+
+5. All classified Secret.
+
+David H. Blee
+
+David H. Blee
+
+Attachments:
+As Stated
+
+CONCUR:
+
+Chief, Career Management Staff
+
+APPROVED:
+
+Chief, Contract Personnel Division
+
+Date
+
+05 APR 1980
+
+Date
+
+2
+S E C R E T

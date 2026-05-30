@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_3906.png
+
+Convert to Markdown13-00000
+
+Registered Mail
+
+August 12, 1975
+
+Ms. Penelope Grenoble, Editor
+Los Angeles Free Press
+5850 Hollywood Boulevard
+Los Angeles, California 90028
+
+Dear Ms. Grenoble:
+
+This letter is in response to the distortions and outright falsities printed about me in the article written by William W. Turner, titled BANK ROBBER, 'MANCHURIAN CANDIDATE' LINKED TO JFK ASSASSINATION PROBE, which appeared in the July 25-31 edition of the Los Angeles Free Press
+
+I request that the Free Press either print a retraction of such lies and distortions or publish this letter.
+
+Mr. Turner, who spent ten years as a Special Agent of the FBI, is not unfamiliar to me. He has authored similar articles, both during my imprisonment in the United States and while I was detained in the German Democratic Republic, in which he knowingly and purposefully cited numerous lies about me. He has proved himself adept at putting words in my mouth and misquoting his sources of information to lend credence to his major untruths, a skill he probably developed while serving with the Bureau's intelligence-security division. His recent claims cause me to wonder whether or not he ever left the FBI.
+
+Professor Richard H. Popkin, from whom Mr. Turner obviously collected much of his latest baloney, is a character that I feel should either purchase a hearing aid or consult a psychiatrist. Each of my so-called discussions with him (all but one occurred over the telephone) were duly tape-recorded by me, and if he did in fact assert what Mr. Turner has attributed to him about me, then he too is a liar.
+
+I am listing the following facts in rebuttal to the Turner-Popkin fable:
+
+The "papers" that I "carried" when arrested did not show me to be a "decorated hero of the Korean War," nor did they reveal anything about "a career in Army intelligence." More to the point, the documents found in my possession and under my control (some of which were returned to me only last year by the FBI) ensured my incarceration for a longer period than I had anticipated. They also guaranteed my being held practically incomunicado for many months (for eleven months I was not even permitted to read a newspaper), not to mention the curtailment of my most basic constitutional safeguards.
+
+My contacts with Lee Harvey Oswald did not entail any "friendship," nor were they effected for the purpose of establishing rapport.
+
+After my acquittal (in 1968, not in 1967) I did not "drop from sight,"

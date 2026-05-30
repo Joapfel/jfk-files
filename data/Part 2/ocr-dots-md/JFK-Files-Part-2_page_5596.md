@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_5596.png
+
+Convert to MarkdownChicago Tribune, October 3, 1993
+
+What's especially galling, Posner said, is that Stone based his movie on the investigation of former New Orleans District Atty. Jim Garrison, including his prosecution of businessman Clay Shaw as an alleged conspirator.
+
+"Garrison's prosecution of Clay Shaw was disgraceful, criminal and has been thoroughly discredited. There was coercion of witnesses and changing of testimony," Posner said. "The jury took only 45 minutes to find Shaw not guilty, and one of the jurors said it would have been 20 minutes but that several jurors had to go to the bathroom."
+
+Stone has said "JFK" was a "counter-myth" to the "myth" of the Warren Commission.
+
+## The no-longer magic bullet
+
+Among the doctrines of conspiracy literature bolstered by "JFK," Posner noted, is that the so-called magic bullet found on Texas Gov. John Connally's stretcher at Parkland Hospital was almost pristine, couldn't have struck Kennedy and Connally, as the Warren Commission said it did, without zigzagging in midair, and was probably planted.
+
+"If ballistics tests didn't prove conclusively the bullet struck Kennedy and Connally, which they do, use your common sense," Posner said. "At the time the bullet was found, the conspirators wouldn't know if the bullets fired at Connally and Kennedy were still lodged in their bodies or had been recovered.
+
+"If they wanted to shield the conspiracy, there can only be three shots. More than that, and the single assassin doesn't have time to shoot. So why risk exposing the conspiracy by planting a fourth bullet that wouldn't match ballistically with remnants of the other rounds?"
+
+And what about Jack Ruby, the Chicago native who moved to Dallas to run strip clubs? Did he just happen by the Dallas jail on Nov. 24 and shoot Oswald on the spur of the moment?
+
+"Ruby's murder of Oswald does more to undermine this case in terms of getting the truth out than anything else," Posner said. "First, it prevents the trial of Oswald, where the evidence would have convicted him. It also gives us a second assassin, with ties to organized crime. It's hard for people to believe this was a coincidence, so you're off and running with a conspiracy."
+
+Posner's account of Ruby's life and his actions during the assassination week demolishes any notion he was a conspirator.
+
+According to the trade journal Publishers Weekly, six books by major publishers will appear this fall to coincide with the 30th anniversary of the assassination, with "Case Closed" standing alone in its anti-conspiracy stance.
+
+Posner has been heartened by promising sales and positive reviews. "Many readers are put off by conspiracy books that select only material that's favorable to their position, whether it checks out or not. I think these people are buying the book."
+
+## Thumbs up from the critics

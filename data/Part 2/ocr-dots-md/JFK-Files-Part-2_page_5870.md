@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_5870.png
+
+Convert to Markdown* Russ Holmes Working Files to be completed and a declassified version transferred to NARA by December 1998.
+
+* Mexico City tapes (186) to be completed and transferred to NARA by September 1999. [CIA-IR-15]
+
+* Post-September 1998 Discovery of Assassination Records.
+
+Diligent searches have been made and we are aware of no assassination records being withheld from the Board. However, given the Agency's decentralized records systems, it is possible that assassination-related documents will be discovered in the future. A guide has been prepared for those officers whose work requires them to review Agency documents and material (Executive Order Review, FOIA, etc.) that may be subject to the JFK Act. Any assassination records that are discovered will be processed according to JFK release standards and forwarded to NARA. A copy of the guide is attached. (TAB 1)
+
+* Referrals not complete by 30 September 1998. The CIA proposes that it complete its review and return to originating agency by April 1999 all unreviewed third agency referral documents which were received prior to 30 September 1998. To date the following referral have been identified for possible post-September 1998 review:
+
+a. Army's Investigative Records Repository (from Review Board):
+
+File on Alfredo Mirabal Diaz -- 151 pages
+
+b. SSCI -- Church Committee Records -- TBD pages
+(to be identified by Review Board staff)
+
+c. JFK Presidential Library:
+
+Records from Robert Kennedy files -- 1484 pages
+
+These documents have not been formally designated as Assassination Records. The CIA proposes that these be handled in a manner similar to the John F. Kennedy National Security Files on Cuba that were reviewed in 1996 by a joint CIA-State-DOD-Review Board task force.

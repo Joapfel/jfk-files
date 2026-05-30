@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_4613.png
+
+Convert to MarkdownSECRET
+
+UPOA- 1639
+
+b. Recruit and dispatch in the near future of at least four other agents to the target area.
+
+c. Exfiltrate AMOT-hs for training and return to the target area. Plan is also to provide him with a trained radio operator.
+
+d. WAVE/KUDEX is in the process of reorganizing both the AMOT and ANFAST complex as follows:
+
+a. AMOT is being reorganized as a unilateral anti-Castro Cuban Security Service.
+
+b. ANFAST will be structured as a bilateral anti-Castro Cuban Security Force from which are drawn all necessary forces to carry out its mission.
+
+c. All VOLE/ROVE groups and support assets to continue to support all existing units as INJOY-7 (political within COBRA), ANGATES-5 (military soldiers independently and/or as part of COBRA, such as INVESTIGATORS, and INJESTORS), and INVESTIGATIONS and PROSPECS. Report on anti- and pro-Castro activities in the NYS area). ANGATE-1 (general political matters) and ANFAST-1 (general criminal matters as well as preparing as a future technical asset for telephone connections).
+
+d. For the period until the ANFAST Group is being held in abeyance as a temporary, full strength group, will be tapped for information it becomes necessary.
+
+e. In support of other Base VAVE Sections, the KUDEX Section will develop and recruit assets for use in the target area. An example is making available at least twelve MOT/DIVASTS for commando type rides on the Cuban coast and mainland.
+
+f. WAVE/KUDEX will continue its primary mission off
+
+a. The detection, identification and neutralization of hostile intelligence action.
+
+b. Provide security checks on agents, potential agents and assets, and
+
+c. Provide, with the security section of Base VAVE, security checks on ODYCKE covert relationship with Cubans and Cuban organizations. In addition to the MIMOSK Section, will continue to develop an apparatus to be used as an Agent Corps which can be used in the rollup of Castro and Communist agents. Support of the post-Castro government. MOTS, ANGATES, A PANS and A SECRET will be the main source for the

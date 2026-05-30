@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_976.png
+
+Convert to MarkdownSECRET
+
+(When filled in)
+
+<table><thead><tr><th>SECTION I</th><th></th></tr></thead><tbody><tr><td>1. FULL NAME (Last, First, Middle)</td><td>Fox Jerome</td></tr><tr><td>2. CURRENT ADDRESS (No., Street, City, State, Zip)</td><td></td></tr><tr><td>3. PERMANENT ADDRESS (No., Street, City, State, Zip)</td><td></td></tr><tr><td>4. HOME TELEPHONE NUMBER</td><td></td></tr><tr><td>5. STATE, TERRITORY, POSSESSION OR COUNTRY IN WHICH YOU NOW CLAIM RESIDENCE</td><td></td></tr><tr><td>6. PERSON TO BE NOTIFIED IN CASE OF EMERGENCY</td><td></td></tr><tr><td>7. RELATIONSHIP</td><td>Aunt</td></tr><tr><td>8. HOME ADDRESS (No., Street, City, State, Country)</td><td>Paul, Genevive<br/>4933 South Salina St. Syracuse, N.Y.</td></tr><tr><td>9. BUSINESS ADDRESS (No., Street, City, State, County)<br/>333 C Washington St. Syracuse, N.Y.</td><td></td></tr><tr><td>10. HOME TELEPHONE NUMBER</td><td>H0 9 3173</td></tr><tr><td>11. BUSINESS TELEPHONE NUMBER</td><td></td></tr><tr><td>12. BUSINESS TELEPHONE EXTENSION</td><td></td></tr><tr><td>13. IN CASE OF EMERGENCY, OTHER close RELATIVES (Spouse, Mother, Father) MAY ALSO BE NOTIFIED. IF SUCH NOTIFICATION IS NOT DESIRABLE BECAUSE OF ANY REASON, PLEASE DO NOT<br/>14. FURNISH DATE, PLACE AND METHOD FOR ALL SEPARATIONS, DIVORCES OR ANNULMENTS</td><td></td></tr></tbody><thead><tr><th colspan="6">SECTION III: MARITAL STATUS</th></tr><tr><td>1. CHECK IF ONLY</td><td>X</td><td>SINGLE</td><td>X</td><td>MARRIED</td><td>DIVORCED</td><td>SEPARATED</td><td>ANNULLED</td></tr></thead><tbody><tr><td>2. FURNISH DATE, PLACE AND METHOD FOR ALL SEPARATIONS, DIVORCES OR ANNULMENTS</td><td colspan="7"></td></tr><tr><td colspan="8"><strong>STOUSB:</strong> If you have been married more than once, including annuities, use a separate sheet for former wife or husband giving date below for all previous marriages. If marriage is contemplated, provide same data for finance.</td></tr><tr><td>3. NAME (First, Middle, Last)</td><td>MARY</td><td>(Middle)</td><td>ANN</td><td>(Maiden)</td><td>PCOLE</td><td>(Last)</td><td>Fox</td></tr><tr><td>4. DATE OF MARRIAGE<br/>2 Sept. 1951</td><td colspan="7"></td></tr><tr><td>5. ADDRESS OF SPOUSE BEFORE MARRIAGE (City, State, Country)<br/>New York, N.Y.<br/>127 E. 29 St. New York, N.Y.</td><td colspan="7"></td></tr><tr><td>7. LIVING</td><td>X</td><td>VII</td><td>X</td><td>8</td><td>Y</td><td></td><td></td></tr><tr><td>8. DATE OF DEATH</td><td></td><td colspan="6"></td></tr><tr><td>9. CAUSE OF DEATH</td><td colspan="7"></td></tr></tbody><tfoot><tr><td colspan="8"><strong>FORM 444b (U.S. PROPOSED FORM):</strong><br/>10-57</td></tr></tfoot></table>
+
+SECRET
+
+1
+
+14

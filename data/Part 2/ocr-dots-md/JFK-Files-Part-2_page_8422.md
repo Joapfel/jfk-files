@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_8422.png
+
+Convert to MarkdownSECRET
+
+-28-
+
+11 January 1969: Anibal CORTINES, of the magazine Punto Final of Chile, contacted Cruz. (MEXICO CITY 8712)
+
+Jaime Delgado from Chihuahua.
+
+January 1969: Miss Valentina BORREMAN, Cuernavaca
+Phone 2-45-90.
+
+17 January 1969: Fernando CASTILLO, from Guatemala,
+contacted Cruz for a visa.
+
+25 January 1969: Margarita BAUCHE, protest singer,
+was inviting group together. Bauche's sister contacted
+Cruz to come to cocktail party for cultural revolutionary
+groups.
+
+4 March 1969: Sr. Villalba of Coyoacan, identifying
+himself as LUJUAN (ph), called Cruz. Cruz agreed to
+see him late that Thursday.
+
+26 April 1969: Prof. Rosenthan of UNAM, Prof of electronics, promised to call Cruz and stop by and see him.
+
+3 May 1969: Mario Aurelio ESPITIA (P-13,505) in Morelia,
+Michoacan, contacted Cruz re a cultural week in Morelia.
+(LIENVOY)
+
+24 June 1969: Cruz invited Victor SANDOVAL of Aguascalientes, phone 3443, to go to Cuba. (LIENVOY)
+
+20 April 1970: Cruz called Paris, France, KLE 5230, for Arnold WALL. Operator said no one answered the Embassy or Residence phones. (LIENVOY)
+
+20 April 1970: Mario GODDY of Novedades.
+
+21 April 1970: Jorge VIVEROS insisted on talking to Cruz. He was finally given an appointment.
+
+21 April 1970: Jorge SALDAÑA of Televicentro was referred to Cruz to get a visa to visit Cuba for a story.
+
+SECRET

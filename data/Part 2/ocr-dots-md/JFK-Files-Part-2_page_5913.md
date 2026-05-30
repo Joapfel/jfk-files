@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_5913.png
+
+Convert to Markdown4- What happened from the time a cable was sent from a field site until it arrived on a desk at Headquarters?
+
+Messages sent from a field site would be passed to a communicator, encrypted and transmitted via High Frequency Radio. The message received from Brandy and relayed to headquarters and then it was decrypted. The analyst of the Cable Secretariat would then read the message and match what they read against customer requirements. They then would have a typist type the dissemination on the message. The message then would be picked up from the message center by the various staffs and or divisions.
+
+5- How were cables disseminated? See item four.
+
+Please let me or Becky Rant, DA/IRO, know if you have any other questions or concerns prior to the briefing.
+
+CC: Becky L. Rant
+Andrea E. Boyce
+
+Sent on 13 March 1997 at 03:17:34 PM

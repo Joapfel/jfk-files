@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_5188.png
+
+Convert to MarkdownSECRET
+
+SUBJECT: Foreign Government Information
+Australia
+
+government. As such, CIA consents to the release of these documents with the redactions proposed by the Board.
+
+15. (S) Proposal for Future Coordination: With regards to any other foreign government information that may exist in the files, CIA proposes that it approach its liaison services to request their consent in the release of their information when it would be appropriate to do so. Although recent events with Australia make it impossible for CIA to approach them at this time, this may not be so with other services. In cases where CIA believes, because of the nature of the relationship, that it would not be possible to request the consent of the service, CIA proposes that the documents either be postponed from release or that CIA and Board's staff coordinate a summary.
+
+John F. Pereira
+
+Attachment

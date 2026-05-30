@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_6251.png
+
+Convert to Markdown7 [WUBONBON] Operations FY 65 folder 25
+
+Contains two memos for the Records by Hunt re 8/8/63 meetings
+
+8 [WUPUNDIT] Support folder 27
+
+9 [WUPUNDIT (WUBONBON)] Folder 26
+
+10 [WUBONBON] Development + Plans F 19
+
+11 [WUBONBON] Policy Papers F 20
+
+12 [WUPUNDIT] CIA Book Publishing F - 284-29
+
+13 [WUBONBON] FY 65 Support F.21
+
+14 [WUPUNDIT / WUBONBON] 5c PPOT F 23 + 22

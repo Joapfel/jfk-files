@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_7021.png
+
+Convert to Markdown13-00000
+
+Wickham seconded Pereira's assessment that we have a very good working relationship with the staff. Under the provisions of the act, the Board will be working until October 1997, dealing with CIA, FBI, DepState, as well as private individuals and even foreign governments. They are interviewing people, and as Pereira noted, "getting theories." (S)
+
+4. Staff, even those who asked pointed questions like Healey and Sheehy, seemed satisfied. Majority staffer Eberwein, perhaps reflecting concerns voiced by deputy majority director Dupart about protecting Agency sources and methods, however, expressed concern later about possibly amending the '92 act to moderate the act's bias toward release. Indeed, she contacted OCA lawyer Cindy Ellis and asked her to draft language amending the act. It had not been my impression during the briefing that staff had been especially concerned about the act to the point of intending to modify it, and its also unclear whether Eberwein was acting on behalf of senior majority staff or the membership in asking OCA to suggest modifications to the act. (S)
+
+Richard E. Schroeder
+DCI/OCA/CLG
+
+15 April 1996
+
+Distribution: DCI/CSI
+DO/ORMS
+DO/IMS
+OCA
+OGC
+RES chrono
+
+CL BY 620119
+CL REASON 1.5C
+DECL ON X1
+DRV FM HUM 4-82
+
+SECRET

@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_4873.png
+
+Convert to MarkdownSECRET
+
+MHFNO: 98-0650682
+
+SENSIND: RYBAT
+
+PAGE: 3
+
+REASON: 1.5(C).
+
+DECLARE ON: X1. DRV HUM 4-82.
+
+END OF MESSAGE
+
+SECRET
+
+SECRET

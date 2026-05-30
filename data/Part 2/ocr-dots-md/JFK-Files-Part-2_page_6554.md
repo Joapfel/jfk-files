@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_6554.png
+
+Convert to Markdown13-00000
+
+Top Secret
+
+SECRET
+
+PROPOSED ACTIONS WHICH MIGHT BE TAKEN UNILATERALLY BY THE US, BILATERALLY, OR THROUGH THE OAS, TO IMPEDE THE MOVEMENT OF SUBVERSIVE TRAINEES TO AND FROM CUBA
+
+A. Institute effective procedures to insure that U.S. citizens do not travel to and from Cuba (unilateral U.S. action).
+
+B. Continue U.S. restriction against U.S. airline service to Cuba. (This is important to avoid giving other airlines an excuse to reestablish air service) (unilateral U.S. action).
+
+C. Thoroughly examine Latin American constitutions and laws to determine the legal capability or impediment to control of travel of their citizens to and from Cuba (unilateral U.S. action).
+
+D. Arrange for adverse publicity on individuals who are known to have undergone subversive training in Cuba (unilateral U.S. action).
+
+E. Spread rumors of epidemics in Cuba (unilateral U.S. action).
+
+F. Sabotage aircraft proceeding to and from Cuba (unilateral U.S. action).
+
+G. Increase U.S. efforts to establish identity of all Latin Americans travelling to and from Cuba (unilateral U.S. action).
+
+H. Encourage Latin American countries to pass new legislation, or enforce existing legislation, restricting the travel of their citizens to and from Cuba (unilateral U.S. action).
+
+I. Persuade Latin American governments to prevent re-entry to their country of persons suspected to have been trained in subversion in Cuba (unilateral U.S. action).
+
+J. Persuade LA countries to tighten border security measures by appropriate authority (unilateral U.S. action). Supply equipment and POL for patrol and surveillance. See enclosure (6).
+
+K. Cubana's Britannia aircraft are in disrepair (2 or 3 of 5 are operational). Under existing agreements, Cuba must
+
+EXCLUDED FROM AUTOMATIC DOWNGRADING
+
+Reproduction of this document in whole or in part is prohibited except with permission of the issuing office or higher authority.
+
+ENCLOSURE (/)
+
+to CNO Ser/Memo 000 850PL
+
+000 DIR 6200.10 DOES NOT APPLY
+
+~~SECRET~~ Top Secret
+
+**Top Secret**
+
+~~45~~
+~~148~~
+
+~~S~

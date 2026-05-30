@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_1659.png
+
+Convert to Markdown14-00000
+
+<table><tr><td colspan="2">PERSO :L ACTION REQUEST</td><td>REGISTER NO.</td></tr><tr><td>NAME<br/>James S. HOODS</td><td colspan="2">REQUESTED EFFECTIVE DATE<br/>APR 21 1952</td></tr><tr><td>NATURE OF ACTION</td><td colspan="2">WORK LEAVE (VOUCHERED)<br/>LAST WORKING DAY:<br/>EMPLOYEE'S SIGNATURE:</td></tr><tr><td colspan="3">Excepted Appointment</td></tr><tr><td>FROM</td><td colspan="2">TO</td></tr><tr><td>TITLE</td><td>File Clerk</td><td>L-39.04 - 2</td></tr><tr><td>GRADE AND SALARY</td><td colspan="2">GS-305: $25.50 per<br/>OSO</td></tr><tr><td>OFFICE</td><td colspan="2"></td></tr><tr><td>DIVISION</td><td colspan="2"></td></tr><tr><td>BRANCH AND SECTION</td><td colspan="2">RI<br/>Processing and Records Branch<br/>File Section</td></tr><tr><td>OFFICIAL STATION</td><td colspan="2">Washington, D.C.</td></tr><tr><td colspan="3"><input type="checkbox" id="departmental" name="departmental" value="DEPARTMENTAL"> DEPARTMENTAL <input type="checkbox" id="field" name="departmental" value="FIELD"> FIELD</td></tr><tr><td>REMARKS<br/>(To P-39.04) 9w</td><td colspan="2">In State V-28-52<br/>Approved: John M. Scott Chief, RI<br/>15 FEB 1952<br/>DATE 18 Dec 52<br/> Trace L Greaves<br/>SIGNATURE OF OFFICER ONLY IN CASE OFFICER IS DEAD<br/><input type="checkbox" id="stale" name="stale" value="STALE"> stale</td></tr><tr><td colspan="3">FOR USE OF PERSONNEL ONLY</td></tr><tr><td rowspan="3">PLACEMENT<br/>DATE QUALIFICATIONS APPROVED</td><td>CLEARANCE REQUESTED</td><td>CLEARANCE APPROVED</td></tr><tr><td>TYPE</td><td>TYPE</td></tr><tr><td>DATE</td><td>TYPE</td></tr><tr><td>CLASSIFICATION</td><td></td><td></td></tr><tr><td>BURDEN NO</td><td>C-3 C MA</td><td>DATE APPROVED</td></tr><tr><td>FIREW</td><td>LA</td><td>REAL</td></tr><tr><td>DATE<br/>17 Feb.<br/>UFCMN EIL</td><td>Signature</td><td>Martha P. Baker<br/>Hrsn. 52</td></tr></table>
+
+TCS# NO 37-3
+JUL 1959
+
+S. B. MOOREY, PRESIDENT OFFICE 10-06-67 A. J.

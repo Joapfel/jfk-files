@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_6555.png
+
+Convert to Markdown13-00000
+
+seek Mexican concurrence in using new equipment (IL-18) on the Havana-Mexico City route. We should persuade Mexico to refuse the new aircraft on grounds of safety, facilities, or other reasons. We should also encourage Great Britain or other sources to cut off spare parts (unilateral U.S. action).
+
+L. Encourage hemispheric countries to deny unscheduled traffic stops to Cubana airlines (unilateral U.S. action).
+
+M. Persuade friendly governments in LA and elsewhere to harass ships and aircraft traveling to Cuba with administrative delays (minute examination of air worthiness certificates, customs, documents, etc.) (unilateral U.S. action).
+
+N. Seek arrangement whereby other Latin American countries would cooperate with Mexican efforts to deny travel their nationals to and from Cuba via Mexico (see Mexico City Tel 2221) (bilateral U.S. action).

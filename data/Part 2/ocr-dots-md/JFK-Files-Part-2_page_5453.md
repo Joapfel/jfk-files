@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_5453.png
+
+Convert to Markdown- CIA Stations and Other Issues
+
+Over the past two years the Review Board has established other guidelines that will continue to guide the review process, some of which will be outlined here. For CIA stations, all locations related to the Mexico City story will be released during the period 1960-69. Outside of that window, they will be released on a case-by-case basis should the identity of the station be critical to understanding the assassination. Other stations, except for those identified as particularly sensitive, will be released from the beginning of the Kennedy administration until the publication of the Warren Commission report, (i.e., January 1, 1961 to October 1, 1964). Outside of these windows, stations will be postponed. Cable prefixes, dispatch prefixes, and field report prefixes would be postponed or released according to the same windows as the stations to which they refer. CIA job titles also are redacted or opened along with the station at which the officer served.
+
+Crypts would be released along lines similar to other information. All "LI" crypts, except those considered particularly sensitive would be released through October 1, 1964, as are "AM" crypts and U.S. government crypts. In other areas, only the digraph is protected. Again, the exception is sensitive crypts, which would be protected in their entirety. After October 1, 1964, the presumption shifts towards protection of the crypts, except those that provide meaningful information about the assassination story. (For example, crypts pertinent to Garrison-era documents would likely carry the same presumption of release as those generated during the Warren Commission.)
+
+Surveillance methods will be released if the nature of the surveillance has a material bearing on information related to the assassination unless CIA provides evidence demonstrating the political or operational sensitivity, in which case the information will be released in 2017.
+
+e:\arrb\regs\review.wpd

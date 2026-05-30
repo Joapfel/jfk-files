@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_5690.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+SUBJECT: (S) Warrenton Training Center Cover Considerations
+
+c. Station D serves as the Agency's primary receiving site for world-wide communications. It also handles a significant quantity of message traffic for the White House and member organizations of the Intelligence Community on a 24-hour basis. This message traffic is vital to national security preparedness.
+
+WTC's cover allows it to maintain a very low profile. It is that low profile which protects the personnel and missions as described above. Removal of that protective cover, by act or deed, would provide easy targets of opportunity for counter-intelligence activities, terrorist activities, demonstrations, and emotionally unstable individuals.
+
+5. (S) In summary, any affiliation of WTC and the Agency, no matter how insignificant the individual occurrence or document release may seem, has the very real potential to jeopardize lives, disrupt the Agency mission, disrupt world-wide classified message traffic, and, thereby, do irreparable harm to the national security of the United States.

@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_6308.png
+
+Convert to MarkdownSecret - Working Paper
+
+Notes from Briefing of ARRB Staff on Stations
+(11 October 1995 - ARRB conf. room)
+
+CIA Attendees: Bill McNair
+Lee Carle
+John Goins
+Chuck Briggs
+Hal Bean
+Barry Harrelson
+
+Bill re Stations:
+
+No problem with release of CAS (Controlled American Source), fact we have overseas locations, CIA representatives in specific countries -- the problem comes with officially acknowledging the stations thereby putting the host government and service in a position of explaining why it is allowing a foreign espionage unit to operate in the country. This may become a serious political issue for the government, especially in countries where the government does not acknowledge its own service. Also can be perceived as "rubbing their nose in it" and can affect the trust between the Agency and the host service (violated agreement of confidentially).
+
+Marwell pointed out that this information was 30 years old and asked what was the impact of acknowledging a station presence in 1963 on current operations or relations.
+
+Bill responded "opened up old sores" and cited Rome and the sensitivity to our involvement in past election. Mentioned the reaction to the announcement on covert actions by DCI.
+
+Gunn asked if stations = liaison relationship; Bill said the other service can not say it did not know the CIA was - operating in its own country -- would look incompetent.
+
+Mary asked about changes in government; Bill responded that intell types tend to stay own or its revolving door where the group that leaves when a neww government comes into power will be back in power at some point.
+
+Bill comments on specific stations
+
+If important to the story such as Mexico City and the surrounding stations which were involved in the cable exchanges re Oswald, then will release.
+
+"Don't take it away from us for little or no gain to the story", I. e. if not critical to the story let us protect.
+
+Secret

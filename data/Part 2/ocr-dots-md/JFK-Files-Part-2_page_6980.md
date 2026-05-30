@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_6980.png
+
+Convert to MarkdownNoblesville High School have interned with the review board, with the fifth scheduled for the week of June 16th of this year. When this group completes its work, a total of 56 of our students will have participated in this unique and truly educational opportunity.
+
+I might add that except for the first group, succeeding student groups have studied, researched and prepared for their internship on their own time, outside normal class meetings. The most recent group to participate did so over spring break. The fact that students wanted to spend their vacation working with government records reflects the interest that the JFK assassination has for students.
+
+In my 28 years of teaching, I have never had a topic create as much interest as the assassination of President Kennedy. It is a mystery, and it provides an excellent research opportunity, as well as a chance for students to be actively involved in learning.
+
+Since November 22nd, 1963, there have been many who have believed, and still

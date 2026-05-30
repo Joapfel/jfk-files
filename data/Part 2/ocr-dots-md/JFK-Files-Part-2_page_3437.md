@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_3437.png
+
+Convert to MarkdownSECRET
+
+**Action to counter these activities as they might affect U.S. interests. While all the U.S.S.R. diplomatic missions are targets of vital importance for U.S. intelligence, the Soviet Embassy in Mexico City has special significance because of its proximity to the U.S. The Mexico City Station has attacked this target with determination and imagination. The Chief, SI Division, and his principal officers have commended highly the Soviet operations in Mexico City Station. The failure thus far to achieve the major objectives is tertiary more to the ingratibility of the target than to a lack of resourcefulness in attacking it. Thus, we believe that until some new methods, offering greater promise of ultimate success are developed, the present mode of attack should be continued at the present level.**
+
+24.
+
+Probably the most significant contribution which the station's operations against the Soviets in Mexico City has made to the U.S. security has been [peripheral] to the Agency's mission there. The embassy has long been a magnet for disaffected Americans who want for one reason or another to establish contact with the Soviets. Through its technical coverage of the Soviet Embassy, the station has been able to spot and, through subsequent action, to thwart a number of such Americans, several of whom might have done untold damage to U.S. interests had they not been apprehended. In this respect, the station works closely with the FBI. The Warren Commission's report on the assassination of President Kennedy made reference to information collected by station assets in connection with Oswald's activities in Mexico City.
+
+## Satellite Operations
+
+25. The Satellite Branch, which is staffed by SI Division personnel, has been diverting much of its recent time from its SI targets to a Communist-Chinese presence in Mexico City. Although there is no official government representation by the Peking regime, the New China News Agency (NCHA) has several people in Mexico City. At least three of these individuals have been identified as CHICOM intelligence officers. Project ETPESO is an audio operation against three rooms of their offices, and their telephone lines are tapped under the LIFE! Project. Some of their mail has been examined through the LIKAYAK Project. The raw results of these operations have been forwarded back to Headquarters. The Mexico City Station has no capability for the translation of the material. As of the time of the inspection, the station had heard nothing from Headquarters.
+
+98
+
+SECRET
+
+E C R E T
+
+E S Y I O

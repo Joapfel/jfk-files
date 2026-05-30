@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_7751.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+SUBJECT: MARTIN LUTHER KING, JR.
+
+We have no information that Subject appeared at a rally in [redacted] to date, nor does the Embassy have knowledge of a future visit of KING to [redacted].
+
+Any future information which becomes available will be forwarded to you. We have also taken due note of your desire that the [redacted] authorities not know of your interest in Subject's activities.
+
+COPY
+
+ATT #14
+
+59
+
+all to
+
+207-760468
+
+att 2

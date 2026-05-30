@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_6352.png
+
+Convert to Markdown. MAR 01 '95 12:51PM
+
+P.2
+
+1 March 1995
+
+MEMORANDUM FOR: John Pereira
+Barry Harrelson
+CSI/HRG
+
+FROM: Kathryn I. Dyer
+DI/IRO
+
+SUBJECT: Comments--ARRB Proposed Interpretive Regulations
+
+1. I have reviewed the proposed interpretive regulations drafted by the Assassination Records Review Board, particularly the sections addressing the ARRB's interpretation of the scope of certain provisions of the Assassination Records Collection Act. While I have comments on a number of sections, there is one section in particular which raises serious concerns--principally 1400.2 regarding additional information and records.
+
+2. As presently worded, this section opens up significant records which have nothing to do per se with the assassination, and which are currently protected by various laws, including the National Security Act of 1947, and, moreover, are exempt from disclosure under the Freedom of Information Act.
+
+For example, (d) Organizational charts of government agencies.
+(e) Records necessary and sufficient to describe the
+the Agency's:
+(1) Records policies and schedules;
+(2) Filing systems and organization; and
+(3) Storage facilities and location.
+
+Items (a) and (b) of this section (1400.2) also pose similar problems in that (a) includes all documents used by agencies during their declassification review...This includes all materials including omnibus classification guides or other materials (i.e. not merely those prepared for use in the JFK review) which would identify sensitive material across the board. Similarly, item (b) includes materials "created or used by agencies in furtherance of their review...." This entire section should at a minimum be restricted to items created by agencies for use in the assassination reviews. For example, if the DO has a master list of cryptonyms, some of which appear in JFK documents, only the subset should be included. Generic categories of information which stand alone on their own merits should be omitted.

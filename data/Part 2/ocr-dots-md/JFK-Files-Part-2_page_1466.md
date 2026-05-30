@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_1466.png
+
+Convert to MarkdownMEMORANDUM IN LIEU OF FITNESS REPORT
+
+SUBJECT:
+
+DCB: 4 October 1963
+Malo
+GS-15
+Deputy Chief of Station
+Tokyo ,
+Annual Report For the Period 1 April 1963 - 31 March 1964
+
+In preparing this memorandum in lieu of submitting Fitness Report Form 45, I can only set forth my yearly reiteration that Subject is a senior, well-experienced, well-motivated, high caliber KUBARK officer who has been in his present grade, GS-15, since 1957. His high standard of contribution to the Station as its Deputy Chief of Station continues unfailingly. Tokyo Station operations encompass a broad spectrum of internal and external targets emphasizing denied area operations. To keep on top of this activity it needs a man of energy backed up by sound operational knowledge and Subject has carried this job capably and with a will. I would certainly grade him "S" in performance evaluation.
+
+Tokyo Station is widely dispersed and I have urged Subject on several occasions to get out to the various operational elements in an attempt to get closer to and stimulate the working case officers. After one or two starts he has not kept this up on a continuing basis, remaining at his Embassy desk and invariably working through the individual branch chiefs. I am convinced more effort on his part in this field could have resulted in more yield to the Station from his long area and operations experience.
+
+Subject actively participates in the operational review and budget preparation of the Station and has shown a definite cost consciousness.
+
+Subject's long tenure in Japan and experience with things Japanese are well-known and the pro's and con's of the value of an officer remaining in one area for the major portion of his time with KUBARK (possibly to the detriment of his career) have been discussed to a sufficient degree as to rule out further reference in this memorandum. Subject is scheduled to leave the Japan station and enter an assignment where his operational talents will be of great value.
+
+In any considerations concerning Subject being conducted by any personnel board or by any official of the Agency interested in KUBARK personnel, the significant points are Subject is a deeply motivated, highly capable officer who has been in his current grade too long.
+
+Certification:
+
+By Employee:
+
+This memorandum was read by Subject and discussed with him in draft. He left the area on TDY and so cannot sign it.
+
+By Supervisor: 23 April 1964
+
+/s/ William Broo
+
+Chief of Station
+
+8 JUN 1964
+
+CONCIDENTIAL
+
+<table>
+  <tr>
+    <td>REDACTED</td>
+  </tr>
+</table>

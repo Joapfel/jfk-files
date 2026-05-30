@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_7000.png
+
+Convert to MarkdownFOR OFFICIAL USE ONLY
+
+CIA SPECIAL COLLECTIONS
+September 1993
+
+RELEASE IN FULL
+
+2000
+JFK ASSASSINATION RECORDS
+
+HPSCI BRIEFING OUTLINE
+
+Introduction: Discuss how CIA fulfilled requirements of the JFK Act.
+Discuss the withheld documents
+
+General Remarks
+
+1. Every JFK record will be seen by the Review Board.
+
+2. We have followed the JFK Assassination Records Act in determining which records will be postponed. (Section 6)
+
+- Our presumption was that a record would be released.
+
+3. We made every effort to meet the 22 August deadline established by the JFK Act. The Director was committed to this.
+
+4. This called for a major effort--additional people, lot of overtime and weekend shifts.
+
+5. We are continuing to review the postponed documents, and expect to release a high percentage of them.

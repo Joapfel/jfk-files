@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_6432.png
+
+Convert to Markdown# Operation "HORN SWOGGLE"
+
+## Objective:
+
+1. To crash or force down Cuban MIG aircraft with an all weather intercept capability by communications intrusion.
+
+## Concept of Operations:
+
+2. Closely monitor MIG air/ground communications for the purpose of determining frequency and terminology usage for practice or real GCI operations.
+
+3. By use of overriding transmitters and either a decoy aircraft or solid weather conditions, override Cuban controller and have Cuban refugee pilot issue instructions which run MIG out of fuel or towards Florida, Puerto Rico, Jamaica, a carrier, etc.
+
+This document consists of ____ pages.
+Copy # ____ of ____ copies.
+
+Special Handling of this paper is requested.
+Access should be limited to individuals requiring the information herein in order to do so safely without their official duties.
+
+ reproduction of this document in whole or in part is prohibited except with permission of the issuing office.

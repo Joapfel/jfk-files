@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_194.png
+
+Convert to MarkdownSociedad
+
+Fiesta de María José Chopitea
+
+CONCEPCION de López Belloso, María José Chopitea, María Asúsulo de Colin y June Cobb
+
+Con motivo de su día ódi-
+mástico, la escritora Maria
+José Chopitea ofreció la po-
+che del sabado en su depa-
+tamento de la calle Río Po,
+una alegre reunión.
+
+Acudio un numeroso gri-
+po de escritores, pintores,
+poetas, periodistas, quieues
+felicitaron a la anfitrona y
+distrutaron de una velada
+muy alegre.
+
+Los coches y horadillos circularen al gusto de los presentes quienes cantaron y declamaron, en un derroche de inspiración.
+
+"La Litona" fue interpre-
+tada por un rato largo each
+intermita. .porque los ver-
+ros se subieron unos a otros
+en diferentes botas.
+
+Estaban Rodriguez Iba-
+rra, intérprete del salterio.
+oleóta a los concurrentes en-
+te los que estaban, licenciado
+Benigno R. Jiménez y feha-
+ra, Cecilia Viuda de Espino-
+sa Altamirano, Horacio Es-
+pinosa Altamirano, Helia
+D'Acosta, Marina Kravss.
+Juan Garcia Jimenez, Eduan
+do Sierraia, Cristina Torres.
+Ivonne Garrido, Nica Ha.
+Maria Asunsolo de Colin, la
+encia de Mario Colin, Faber-
+to Aguilar Maria de Car-
+men Aguila, Manuel Vel-

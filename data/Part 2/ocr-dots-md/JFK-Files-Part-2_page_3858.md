@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_3858.png
+
+Convert to MarkdownNEW ORLEANS STATES-ITEM
+New Orleans, La.
+
+16 February 1968
+
+<table>
+   <tr>
+    <td>The district attorney's office today issued a grand jury subpena for Allen W. Dulles former director of the Central Intelligence Agency, to appear before the jury March 7 and 8 in connection with the probe of the assassination of President John F. Kennedy.</td>
+   </tr>
+   <tr>
+    <td>A new subpena also was issued today for Gordon Novel, former New Orleans nightclub owner. Previous efforts to get Novel back to New Orleans to testify have been unsuccessful.</td>
+   </tr>
+   <tr>
+    <td>DISTRICT ATTORNEY JIM GARRISON said his office "has succeeded in identifying the assassination of President Kennedy as an operation conducted by elements of the CIA," and said both Dulles and Novel were needed to testify about CIA activities.<br/>Both subpenas were issued through Criminal District Judge Matthew S. Braniff.<br/>The request for the Dulles subpena alleges that Dulles</td>
+   </tr>
+   <tr>
+    <td>was CIA director until Sept. 27, 1961, and as such "would have pertinent knowledge as to substantial reports that Lee Harvey Oswald was an agent and-or an employe of the CIA."</td>
+   </tr>
+   <tr>
+    <td>THE DOCUMENT SAID POSSIBLE information relative to CIA knowledge or contact with Oswald (named by the Warren Commission as the sole slayer of the President) was suppressed in certain commission documents.<br/>It charges that while Dulles headed the CIA, the organization negotiated with a New Orleans firm for the purchase of trucks and vehicles to use in the CIA-sponsored Bay of Pigs invasion of Cuba and used the name of Lee Harvey Oswald, who was at that time in Russia.</td>
+   </tr>
+   <tr>
+    <td>THE SUBPENA REQUEST QUOTED a copyrighted story in the States-Item April 25, 1967, as making public Novel's claim to have been employed by the CIA during Dulles' tenure as chief. "Gordon Novel fled the state to avoid testifying and sought to enlist the aid of the CIA in preventing his return," the document said.</td>
+   </tr>
+   <tr>
+    <td>The request said "David W. Ferrie, who has been named in an indictment as a conspirator to the murder of John F. Kennedy, was an employe of the CIA at a time when Allen Dulles was the head of the CIA. Among other things, he was a flying instructor in Guatemala prior to the abortive Bay</td>
+   </tr>
+  </table>
+
+<table>
+   <tr>
+    <td>"Gordon Novel has information on gun-running activities involving Clay L. Shaw who has been indicted by the Orleans Parish Grand Jury as a conspirator to the murder of John F. Kennedy, and Jack Ruby, whom it is commonly accepted is the slayer of Lee Harvey Oswald," the document says.</td>
+   </tr>
+   <tr>
+    <td>IT SAYS Steven Plotkin, Novel's attorney, when pressed for information relativ to the gun-running activities asserted the attorney-client privilege and named Gordon Novel as the client involved.<br/>The document requests that Novel be taken into immediate custody and delivered to an officer of the state of Louisiana to assure his attendance.</td>
+   </tr>
+   <tr>
+    <td>It says Novel was subpenaed to appear before the grand jury March 17, 1967; and adds:<br/"}, {"bbox": [1860, 1324, 2357, 1552], "category": "Text", "text": ""}, {"bbox": [1862, 1564, 2359, 1717], "category": "Text", "text": ""}, {"bbox": [1862, 1730, 2359, 1959], "category": "Text", "text": "\"Gordon Novel, by his own public admissions, sold his business on the weekend and left the city to avoid not only the aforedescribed subpena but also a new subpena which"}, {"bbox": [1321, 572, 1643, 618], "category": "Text", "text": "of Pigs invasion.\""}, {"bbox": [1326, 624, 1812, 750], "category": "Text", "text": "Dulles was never called before the Warren Commission, the document said."}, {"bbox": [1326, 763,

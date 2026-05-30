@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_6744.png
+
+Convert to Markdown13-00000
+
+APR 22 '92 08:48
+
+JOHN GLENN, OHIO CHAIRMAN
+
+SAM HUNN, GEORGIA
+CARL EVAN, MICHIGAN
+JIM SASSER, TENNESSEE
+DAVID PRYOR, ARKANSAS
+HARRIET KOSLOW, WISCONSIN
+JOSEPH L. LIEBERMAN, CONNECTICUT
+DANIEL K. AKACAI, HAWAII
+
+WILLIAM V. BATH, DELAWARE
+TED STEVENS, ALASKA
+WILLIAM S. COMER, VIRGINIA
+WARREN S. RUOMAN, NEW HAMPSHIRE
+JOHN SEYMOUR, CALIFORNIA
+
+LEONARD WEISS, STAFF DIRECTOR
+FRANKLIN C. POLK, MINORITY STAFF DIRECTOR AND CHIEF COUNSEL
+
+United States Senate
+
+COMMITTEE ON
+GOVERNMENTAL AFFAIRS
+
+WASHINGTON, DC 20610-6250
+
+April 14, 1992
+
+The Honorable Robert M. Gates
+Director
+Central Intelligence Agency
+Washington, D.C. 20505
+
+Dear Director Gates:
+
+I am please to learn that you will be testifying before the Committee on Governmental Affairs on Tuesday, May 12, 1992. The hearing will begin at 9:00 a.m. and be held in Room 342 of the Dirksen Senate Building. The subject of the hearing will be the "Assassination Materials Disclosure Act of 1992." The legislation proposes to create an independent review board to govern and coordinate the release of government information relevant to the assassination of former President John F. Kennedy. As required by Committee rules, please have 100 copies of your written testimony delivered to the Committee by close of business, Friday, May 8, 1992. While your written testimony may be as long as you wish, please plan to limit your spoken testimony to five to seven minutes in length.
+
+Your testimony will be extremely helpful to the Committee and to the Congress as it considers this important legislation. While you may discuss whatever aspects of the legislation you desire, particularly how it relates to the records and resources of your agency, the Committee would appreciate learning your views on several specific subjects:
+
+What are the reasons which the Central Intelligence Agency has records related to the assassination of President Kennedy?
+
+What have the methods been to date for the identification and definition of Central Intelligence Agency records as material related to the assassination of President Kennedy?
+
+What steps has the Central Intelligence Agency made to assess the scope of relevant documents outside of materials requested by earlier investigative or other official committees or commissions, or through the Freedom of Information Act?
+
+What is the volume of material which you might recommend be released to the public without concern for further postponement?

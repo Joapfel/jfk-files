@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_7118.png
+
+Convert to Markdown13-00000
+
+# KNOWN TRAVEL OF LATIN AMERICANS TO AND FROM CUBA - MARCH-APRIL 1964
+
+<table><thead><tr><th rowspan="2">NATIONALITY</th><th colspan="2">MARCH-APRIL</th><th rowspan="2">PURPOSE OF TRIP TO CUBA</th></tr><tr><th>TO</th><th>FROM</th></tr></thead><tbody><tr><td>ARGENTINA</td><td>11</td><td>10</td><td>1- Going to Cuba is an Argentine Communist Party leader in Buenos Aires Province. 1 - UNESCO delegate. 1-Returning is employee of Cuban Construction Ministry.</td></tr><tr><td>BOLIVIA</td><td>8</td><td>2</td><td>3- Attending May Day Celebration.</td></tr><tr><td>BRAZIL</td><td>0</td><td>0</td><td></td></tr><tr><td>BR. GUIANA</td><td>2</td><td>2</td><td></td></tr><tr><td>CHILE</td><td>14</td><td>37</td><td>4- Labor leaders attending May Day Celebration. 16- Returning are members of delegation from School of Economy of University of Chile.</td></tr><tr><td>COLOMBIA</td><td>7</td><td>0</td><td></td></tr><tr><td>COSTA RICA</td><td>3</td><td>3</td><td>1- En route to East Germany. 2- In attempt to obtain release of Teodoro Picado Lara.</td></tr><tr><td>DOM. REP.</td><td>1</td><td>7</td><td>4- Returning from 26th July Celebration.</td></tr><tr><td>ECUADOR</td><td>5</td><td>2</td><td></td></tr><tr><td>EL SALVADOR</td><td>3</td><td>8</td><td>2- Attending May Day Celebrations. 8-Returning from military training in Cuba.</td></tr><tr><td>GUATEMALA</td><td>0</td><td>0</td><td></td></tr><tr><td>HAITI</td><td>0</td><td>0</td><td></td></tr><tr><td>HONDURAS</td><td>0</td><td>0</td><td></td></tr><tr><td>JAMAICA</td><td>0</td><td>0</td><td></td></tr><tr><td>MEXICO</td><td>32</td><td>24</td><td>3- Attending May Day Celebrations.</td></tr><tr><td>NICARAGUA</td><td>2</td><td>1</td><td></td></tr><tr><td>PANAMA</td><td>2</td><td>14</td><td>3- Returnees members of Vanguard of National Action</td></tr><tr><td>PARAGUAY</td><td>0</td><td>0</td><td></td></tr><tr><td>PERU</td><td>9</td><td>0</td><td></td></tr><tr><td>SURINAM</td><td>0</td><td>0</td><td></td></tr><tr><td>TRINIDAD</td><td>0</td><td>0</td><td></td></tr><tr><td>URUGUAY</td><td>14</td><td>11</td><td></td></tr><tr><td>VENEZUELA</td><td>17</td><td>0</td><td></td></tr></tbody><tfoot><tr><td>TOTALS</td><td>130</td><td>121</td><td></td></tr></tfoot></table>
+
+SECRET
+
+SECRET

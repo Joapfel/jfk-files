@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_5779.png
+
+Convert to MarkdownAssassination Records Review Board
+
+600 E Street NW • 2nd Floor • Washington, DC 20530
+(202) 724-0088 • Fax: (202) 724-0457
+
+August 10, 1998
+
+VIA FACSIMILE AND U.S. MAIL
+
+Robert M. McNamara, Jr., Esq.
+General Counsel
+Central Intelligence Agency
+Washington, D.C. 20505
+
+Re: CIA Compliance With the JFK Assassination Records Collection Act of 1992
+
+Dear Mr. McNamara:
+
+Thank you for your July 29 letter regarding CIA's submission of its Final Declaration of Compliance with the President John F. Kennedy Assassination Records Collection Act of 1992, 44 U.S.C. § 2107 ("JFK Act"). I am writing to address CIA's desire that one official certify, under oath and on behalf of the entire agency, that CIA has conducted a thorough search for records relating to President Kennedy's assassination. Your letter and concerns were brought directly to the attention of Review Board members for their consideration. We understand that CIA would prefer that each CIA Directorate not be required to certify separately that it has done an adequate search for records on the assassination, as the Review Board had requested.
+
+The Review Board specifically considered your proposal that the certifying official be a records validation officer appointed by the CIA's Executive Director. The Review Board requests, however, that the CIA's certification be made at the highest levels of the CIA. The Review Board believes that certification by a records validation officer would be insufficient to assure, to the fullest extent possible, public confidence in the CIA's representations that it has searched for and released all relevant materials relating to President Kennedy's assassination. In view of the importance of the CIA's formal representations regarding its holdings on Lee Harvey Oswald and President Kennedy's assassination, the Review Board requests that CIA's Final Declaration of Compliance be certified, under oath, both by CIA's Executive Director and its General Counsel.
+
+I ask that CIA confirm that it will agree to this manner of certification.

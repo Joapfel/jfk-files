@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_1818.png
+
+Convert to MarkdownORIGINAL COPY—Retain in Official Personnel Folder
+
+SECRET,
+
+STANDARD FORM No 176-1
+JANUARY 1982
+(see types only until April 14, 1984)
+176-101

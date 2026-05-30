@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_4057.png
+
+Convert to MarkdownResidences
+
+(cont'd)
+
+4037 Leeward Avenue, Los Angeles, California (as of July and September, 1962); Mexico City, D. F., Mexico (subject claimed this residence from August, 1962 to October 28, 1962. On a subsequent occasion, subject claimed this residence for a period lasting until about March 15, 1963); Washington, D. C. (subject claimed this residence during period subsequent to June, 1962, and prior to December, 1962; 8225 Grand Avenue, Elmhurst, Queens, Long Island, New York (as of November 15, 1962, and again on December 7, 1962); Holiday Inn, Jacksonville, Florida (temporary residence as of December 15, 1962); Room 303, Holiday Inn, 2500 Brickell Avenue, Miami, Florida (temporary residence as of January 24, 1963); 610 South Oxford Street, Los Angeles, California (as of April 19, 1963); Box 75801, Sanford Station, Los Angeles, California (as of July 26, 1963); 3751 6th Street, Los Angeles, California (no date given); 2830½ West Boulevard, Los Angeles, California (no date given); 2712 Saturn Street, Los Angeles 19, California (no date given); 20245 Cajon Boulevard, San Diego, California (no date given).

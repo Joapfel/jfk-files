@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_855.png
+
+Convert to MarkdownSECRET
+
+REVIEWING COMMENTS (continued)
+
+for the subject, assigned him other responsibilities and given him strict deadlines in the hope that he will get organized. He is an above average officer who could do a lot better. His work comes to my attention on a daily basis. The rating officer is known to me to be a fair and objective rater. In this case, however, I disagree with the overall rating of Strong, because potential of this officer notwithstanding, he has not performed overall at that level. Both the Subject and the rating officer are aware of my views and both have read the foregoing comments. I believe the overall grade should be PROFICIENT.
+
+SECRET
+
+14-00000 .

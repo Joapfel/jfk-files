@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_5796.png
+
+Convert to Markdown09/16/98 WED 13:00
+
+ARRB
+
+Robert M. McNamara, Jr., Esq
+Gary M. Stern, Esq.
+
+September 16, 1998
+
+enclosed draft MOU so that we can resolve any outstanding issues and ultimately reach an agreement on an MOU before September 30, 1998.
+
+Thank you for your attention to this matter.
+
+cc: J. Barry Harrelson, Senior Review Officer,
+CIA
+
+Steven D. Tilley, Chief,
+JFK Collection, NARA

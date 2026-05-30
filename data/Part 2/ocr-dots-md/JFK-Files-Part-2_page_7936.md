@@ -1,0 +1,64 @@
+# JFK-Files-Part-2_page_7936.png
+
+Convert to Markdown13-00000
+
+National Broadcasting Company. There Was A President. New York: Borden Home, 1966.
+"The Nations: New Sorrowful Sad." Times, 29 November 1963, pp. 38-39.
+Nelson, Harry. "If Kennedy had Survived: Life in Reservoir Right Now Been His Fate."
+*Angeles Times*, 7 June 1968, pp. 1. 19.
+
+"New Assassination theory; theory of J. Thompson." Newsweek, 27 November 1967, pp. 29-
+
+"New conflict over assassination," U.S. News and World Report, 5 December 1966, pp. 64.
+
+"New Light on the Assassination: a secret agent's story." U.S. News and World Report,
+June 1964, pp. 38-39.
+
+Kennedy, John. "President Kennedy's Adversary," *JAMA*, 10 July 1967, pp. 129-130.
+"Notes and comment," New Yorker, 7 December 1963, p. 45.
+November 22, 1963, Dallas: Photos by Nine Bystanders," Life, 25 November 1967, pp. 87-
+"Now the Trumpet Summons Again..." Business Week, 30 November 1963, pp. 21-23.
+"Now the U.S. gets JFK autopsy," U.S. News and World Report, 14 November 1966, p. 81.
+O'Brien, Conor C. "The Life and Death of Kennedy," New Statesman, 71, no. 1818 (1966),
+50-51.
+
+—. "No one else but him," New Statesman, 30 September 1966, pp. 479-481.
+
+O'Toole, Dr. James K. "Mourning a President," Psychiatric Quarterly, 40 (1966), 737-
+755.
+
+"On the Per Right: The Assassination," Communiqué, 27 December 1963, pp. 384-385.
+
+"On the Writing of Contemporary History," Atlantic, March 1967, pp. 69-74.
+
+"Ovald's Historic Diary." Life, 10 July 1964, pp. 26-31.
+
+"Other Guns," Newsweek, 30 December 1963, p. 15.
+
+Pacis, Vicente A. "Hate Campaign did it?" Weekly Graphic, 25 December 1963, pp. 2, 3,
+98.
+
+Penter-Dovene, Hollie. "Letter from London." New Yorker, 7 December 1963, pp. 196-198.
+
+"Paris: la Coup de Dallas." New Statesman, 6 December 1963, p. 817.
+
+Periach, Alexander Von. "Jacqueline Kennedy: das Leben einer Witve." Stern Magazine, 5
+1967, pp. 904.
+
+"Pathologist Sleuth Reopens Kennedy Controversy; Suggests JFK suffered from Addison's
+Disease." Science News, 22 July 1967.
+
+"A Permanent Record of What We Watched from November 22-25, 1963." TV Guide, 25 January
+1964, pp. 23-45.
+
+Phelan, J. "Plot to Kill Kennedy? Rush to Judgment in New Orleans." Saturday Evening Pe-
+6 May 1967, pp. 21-25.
+
+"Pilgrimage to Grave of President Kennedy; Shadow Still Cast Over White House." The Times
+23 November 1966, p. 8
+
+"Piety of it." Jewish Frontier, December 1963, p. 3.
+Powerants, Charlotte, comp. The Mood of the Nation. New York: Marzani and Mussell, 1964.
+"Portrait of a Psychopath." Newsweek, 16 December 1963, pp. 82-84.
+Possumy, S.T. "Clearing the air." National Review, 9 February 1965, pp. 113-114.
+Posmanska, A. "Procès a Dallas." Cite libre, April 19

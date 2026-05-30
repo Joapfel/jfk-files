@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_3983.png
+
+Convert to Markdown13-00000
+
+**CONFIDENTIAL**
+
+**LIMIT DISTRIBUTION**
+
+In September 1963 he was accused of committing an act which he now says was bred out of his feeling of hopelessness and desperation. He claims that in a confused way he attempted while armed to rob a bank and was easily apprehended. For the next 4 1/2 years followed a complicated series of trials, appeals and retrials. In addition to spending these years in prison, he also had at least three prison hospitalizations for psychiatric observation. His appeals apparently hinged on his contention that he was "temporarily insane" at the time of the crime. He was not considered insane at any time during his imprisonment, and his claim to temporary insanity found support in the expert testimony of a noted American neurologist, Dr. Edwin Weinstein. Dr. Weinstein apparently interpreted Nagell's EEG's (electro-encephalograms) as being abnormal and argued that Nagell had developed a "paranoid personality, and instability" on the basis of his brain injury. This contention was apparently disputed by other expert witnesses, but in any case Nagell was officially acquitted on April 29 of this year.
+
+Nagell says he then went to the New York area, where his sister (his closest relative) resides, but he claims an additional complication in his life had risen in that he had once been an "acquaintance" of Lee Harvey Oswald, and had been implicated in a possible plot to assassinate President Kennedy in an article in RAMPARTS magazine which appeared in January 1968. Mr. Nagell firmly denies that he was involved in any way with any such conspiracy, and was in fact imprisoned at the time of the assassination. On the basis of this magazine article Nagell says that Mr. Garrison, the attorney general from New Orleans who is arguing that a conspiracy existed in the assassination, came up to New York to interview him. Nagell says that he denied that he had any information of use to Mr. Garrison, but that the interview left him with two fears. One fear was that Garrison might subpoena him to testify in the New Orleans proceedings, and the other fear was that the CIA might try to "eliminate" him, a suspicion which he says was planted in his mind by Mr. Garrison. He says that soon afterwards while walking down a street at night in New York City he was almost run over by a car without lights. He interpreted this as being an attempt at murder by the CIA and in some haste left the country for a tour of Europe.
+
+BACKGROUND USE ONLY
+
+**CONFIDENTIAL**

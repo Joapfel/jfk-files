@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_3873.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+9
+
+"Another figure in the case". He is also quoted as saying that he made the trip in his own car, a Lincoln.
+
+P.
+
+Raymond G. Roccas
+C/CI/R&A
+
+SECRET
+EYES ONLY

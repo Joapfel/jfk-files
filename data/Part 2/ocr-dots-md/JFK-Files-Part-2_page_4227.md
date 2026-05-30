@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_4227.png
+
+Convert to MarkdownDuring this period we also analyzed the progress of the war and the thrust of our reporting was to the effect that as the American advisers were able to exercise their influence on the South Viet Namese military, and our Embassy and General Headquarters were able to persuade Diem to reorient and redeploy his forces, gradual but consistent favorable progress was made.
+
+### J. Attitude of the Station and Others
+
+In any difficult situation involving guerrilla warfare where progress can not be measured in territory won or lost, and in casualties and prisoners, differences of opinion among observers arise. Likewise Americans required to work with a stubborn and authoritarian regime often become separated by the difficulties involved. Furthermore Americans accustomed to our civil liberties, freedoms, and the rights of the individual are shocked by the conduct of a government which deprives the individual of these privileges. Finally an American community living among natives, many of whom are visuosly critical of the government (and this is the case in Saigon and Hanoi), are bound to be influenced by, and to a degree eulogize, these criticisms.
+
+For those reasons there have been serious differences within the American community.

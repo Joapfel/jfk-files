@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_2983.png
+
+Convert to MarkdownSECRET
+
+be considered in order to make sure that we will have the ability to speak to him when or if the time comes. On this score I do not feel there is any reason for worry. There are a number of ways in which we can communicate to Fidel Castro virtually at a moment's notice. 312/
+
+Part of CIA's economic warfare against Cuba involved an elaborate scheme to supply tampered petroleum additives through an Agency mechanism in Antwerp. This was planned as subtle sabotage; after being mixed with Soviet petroleum the additives would surely but imperceptibly incapacitate Cuban machinery. Unfortunately, the doctored additives proved anything but subtle and the Cubans promptly discovered they were unusable. 313/
+
+Also a failure was an attempt by Francis S. Sherry and William C. Boner, Jr., of the Cuban Operations Group (WH/COG) to persuade Detroit automobile executives to produce spare parts deliberately designed to break down. Sherry and Boner went to Detroit in early March 1965 and explained to manufacturing vice presidents that the defective parts could be sent to Cuba through third-country suppliers. But the automobile executives refused to cooperate; they feared that their companies' reputations would
+
+- 287 -
+
+SECRET

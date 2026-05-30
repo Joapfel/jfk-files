@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_2204.png
+
+Convert to MarkdownNational Conference of Bar Examiners
+
+AMERICAN BAR CENTER
+1155 EAST 60TH STREET
+CHICAGO 37, ILLINOIS
+C. RICHARD LOCKE, DIRECTOR
+
+October 16, 1968
+
+Director of Personnel
+Central Intelligence Agency
+2430 E Street, N.W.
+Washington, D.C.
+
+Dear Sirs:
+
+As our report must be filed with the admitting authority very soon, we would greatly appreciate a reply to our inquiry
+
+Dated: September 25, 1968
+
+Concerning: BIRCH DILWORTH O'NEAL
+
+Applicant for admission
+
+to the bar of U. S. Dist. Court for D.C.
+
+For your convenience we enclose a copy of our previous letter.
+
+All information solicited and received for character reports is confidential and restricted by the proper admitting authority.

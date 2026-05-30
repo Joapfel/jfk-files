@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_3815.png
+
+Convert to Markdown13-00000
+
+<table><thead><tr><th colspan="4" style="text-align:center;">INCIDENT REPORT<br/>ADMINISTRATIVE<br/>INTERNAL USE ONLY</th></tr><tr><td colspan="2"><table border="1"><tbody><tr><td>(When Printed In)</td></tr></tbody></table></td><td colspan="2">FROM:<br/>BUILDING SECURITY BRANCH</td></tr><tr><td>DATE</td><td colspan="3">7/10/98</td></tr><tr><td>TIME</td><td colspan="3">7:00 AM</td></tr></thead><tbody><tr><td>NAME</td><td colspan="3"></td></tr><tr><td>GRADE</td><td colspan="3"></td></tr><tr><td>OFFICE</td><td colspan="3"></td></tr><tr><td colspan="4">INCIDENT INFORMATION TIME 2390 PLACE SOURCE phone 713-476-1111</td></tr><tr><td colspan="4"><u>SUMMARY OF INFORMATION:</u></td></tr><tr><td colspan="4">It is advised that he had an economic formula which would drive the world dollar dumping crisis. A advice him that a report would be made of bis offer. He would be contacted if the Agency was interested.</td></tr><tr><td colspan="4"><u>ACTION TAKEN:</u></td></tr><tr><td colspan="2">Distribution above.<br/>Reported by: LEO-1<br/>Chief, Building Security Branch</td><td colspan="2">REPORTING OFFICER<br/>CHIEF, BUILDING SECURITY BRANCH</td></tr><tr><td colspan="4"><strong>DISTRIBUTION:</strong><br/>ORIG: DD/SEC (PTOS)<br/>COPY: C/PHY. SD<br/>COPY: C/PSD<br/>FILE: BSB/PHYS. SD<br/>COPY:</td></tr><tr><td colspan="4" style="text-align:right; font-weight:bold;">ADMINISTRATIVE<br/>INTERNAL USE ONLY</td></tr></tbody></table>
+
+FORM 1798 OBSOLETE PREVIOUS EDITIONS
+
+(36)

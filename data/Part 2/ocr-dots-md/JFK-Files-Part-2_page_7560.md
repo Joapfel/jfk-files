@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_7560.png
+
+Convert to MarkdownOctober 25, 1971
+
+16. Mahlum, M. R., D. D. Mahlum, T. D. Mahony, and M. F. Sullivan. 1966. Particle Size and Animal Age as Factors in Evaluating Awards from Ingested Radionuclides. In: Gastrointestinal Radiation Injury, M. F. Sullivan, Ed., pp. 524-535.
+
+17. Mahlum, D. D. and M. R. Sikov. 1969. Physicochemical State as a Determinant of Plutonium-238 Toxicity in the Rat. Health Physics 17, 346-347.
+
+18. Mahlum, D. D. and M. R. Sikov. 1968. Effect of Environmental Temperature and Potassium Consumption on Cesium-137 Metabolism in the Rat. Health Physics 15, 541-543.
+
+20. Mahlum, D. D. and M. R. Sikov. 1968. Distribution of Cerium-144 in the Fetal and Newborn Rat. Health Physics 14, 127-129.
+
+21. Mahlum, D. D. 1971. Modification of the Hepatotoxic Action of Neptunium-237 in the Rat. Toxicology and Applied Pharmacology 18, 696-702.
+
+## Other Activities
+
+During the week, in addition to participating in the Symposium social functions, they were guests in the homes of Dr. W. N. Lutz, Director, Health and Safety Division, U. S. Atomic Energy Commission, Richland, Drs. W. J. Bair and C. L. Sanders. These occasions were enjoyable for the hosts and, apparently, for the visitors. Dr. Moskalev is an excellent chess player and very patiently played chess with both adults and children. Dr. Moiseev was interested in current fashions and consumer products. Mrs. Bair gave him the current Sears and Roebuck Christmas catalog as an example of consumer products. He was familiar with the mail order concept but we could not determine for certain that it is common in the USSR. Both Drs. Moskalev and Moiseev have dachas near Moscow which indicate they are well up the status ladder in USSR science, but it was also obvious that Dr. Moskalev's dacha is a level above Dr. Moiseev's.
+
+The visitors also expressed interest in our standard of living. The visits to our homes seemed to dispel some doubts they might have had about our standard of living. They seemed particularly to enjoy the opportunity to meet our children.
+
+## Comment
+
+All those having an opportunity to meet with our Soviet guests were impressed by their congeniality, willingness to discuss their research, interest in our family life, and the spirit of good will.

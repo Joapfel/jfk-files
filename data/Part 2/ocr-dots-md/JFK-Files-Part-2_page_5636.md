@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_5636.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+SUBJECT: Interview with John Whitten (S)
+
+DCI/OGC/LD/LCipriani:/76124 (17 May 96)
+
+Distribution:
+
+Original - Original
+1 - Registry
+1 - Lit File

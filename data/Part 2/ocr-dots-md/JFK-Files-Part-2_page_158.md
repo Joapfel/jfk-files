@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_158.png
+
+Convert to MarkdownSECRET
+
+12 August 1966
+
+**MEMORANDUM FOR:** Domestic Operations/WH
+: Director, Domestic Contacts Service
+
+**SUBJECT** : Miss Viola June Cobb, born 24 August 1927, Pomerance, Oklahoma
+
+## Background:
+
+1. On 22 or 23 September 1965 Miss June Cobb contacted the New York Public Contacts Bureau through Tom Gridswitch of the Vision Magazine, trying to establish contact in New York with USA to pass along information. WH/1 chose not to establish contact with Miss Cobb at that time, even though she was a cleared WOFACF agent in contact with the Mexico City Station.
+
+## Recent Developments:
+
+2. Miss Cobb was terminated effective 1 July 1966 and was paid her salary through 30 June and given money for one-way air fare to New York City. She was completely notified with the financial terms of the settlement and signed a Termination Security Cof. Although she was terminated for lack of access and production, there was also considerable newspaper publicity in May 1966 in the Mexico City newspapers wherein Subject was attacked because of her connection with an anti-Communist meeting, the Latin American Conference to Study the Situation of the Jewish Minority in the Soviet Union. In this publicity Subject was labeled as being closely connected with U. S. Government Police, and also as an agent of the FBI and INTERPOL. She was also accused of working for a newspaperman Denial James who was described as being responsible to WOFACF.
+
+3. Miss Cobb planned to return to New York in July where she was to look for a job. Subject had been told previously by the Mexico City Station that the telephone number of the New York WOFACF office is listed in the directory and she could call that office if contact were necessary while she was in the United States, but that she should only establish contact for an important or urgent matter. Since Miss Cobb tends to literally apply importance to a wide variety of events and subjects, and since she is likely to be short of money shortly after arriving, WH Division believes there is a possibility she may try to establish contact.
+
+SECRET
+
+GROUP 1
+EXCLUSIVE AUTHORIZED
+SUGGESTING AND
+INVESTIGATION
+
+201-27841

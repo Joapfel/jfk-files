@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_3637.png
+
+Convert to Markdown13-00000
+
+22 OCTOBER 1963 ICBM FIRING FROM PLESETSK
+
+NBR
+VRR
+
+32009 B-02
+
+75-

@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_767.png
+
+Convert to MarkdownSUBJECT: Letter of Commendation
+
+TO: COLONEL FRID DEUTER
+Commander, Det #4 (PACIFIC)
+1125th USAF Field Activities
+(ATIC) APO-94
+
+1. The successful outcome of the Aerospace Technical Intelligence Course conducted at Nichols Air Base, Philippine City, has been due to the indefatigable efforts exerted by the training team of your unit from 12 to 23 June 1961.
+
+2. During that brief period your team displayed professional excellence and mastery of the subject. They successfully completed to the students vital data on the procedural aspects of gathering aerospace technical intelligence. Their extensive use of training films further enhanced the student's learning process and the practical training they gave in intelligence photography will go a long way in helping our personnel assimilate pertinent technical aspects. They are, indeed, a credit to your organization.
+
+3. It is, therefore, with great pleasure that I commend the following members of your team for their valuable services they rendered to the Philippine Air Force:
+
+LT COL. ROBERT O'CONNOR II, 3034N
+MAJ ROBERT A. TONG, 1ST BAGG.
+MAJ JOSEPH R. O'BRIEN 10719A
+CUTAWAY, L. HAYES M-22X2014
+MR. DONNIE F. KILLER AF-10376930
+
+4. It is requested that a copy of this commendation form, part of each individual's military personal record,
+
+17MAR78 MCMLL
+Co., Col./PA
+7 11 68 MJB 93
+Leasing Office:

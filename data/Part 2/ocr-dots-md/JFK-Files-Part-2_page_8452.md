@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_8452.png
+
+Convert to MarkdownSECRET
+
+21 April 1977
+
+MEMORANDUM FOR: Executive Officer to the DDA
+
+FROM : M. L. Latta
+Deputy Chief, Plans and Review Group
+Central Cover Staff
+
+SUBJECT : Fairways Corporation
+
+1. Per our telephone conversation today, attorneys for Victor Marchetti have requested release of the 168 items previously deleted by court order from the book, The CIA and the Cult of Intelligence. Fairways Corporation was referred to CCS by the SA/DO/O for review in this connection.
+
+2. Fairways Corporation is the subject of four items (107, 128, 129, 279, on pages 123, 132, 133, and 403 respectively,) in the original manuscript. The position of CCS on all four items is that they are still classified, since they describe intelligence sources and methods by identifying an operational support facility located in the U.S., and are therefore exempt from declassification under Section 5(B)(2) of the General Declassification Schedule contained in Executive Order 11652.
+
+3. According to CCS files, in April 1975 Director Colby was asked by an NBC reporter about CIA sponsorship of Fairways in connection with a planned TV documentary on Agency proprietaries. CCS files are unclear on the point, but there are indications that Director Colby may have responded to the question in a manner which could have been construed as admission of CIA sponsorship of Fairways. In any case, CCS files contain other evidence that the matter was considered to be still classified as recently as December 1976, when Director Bush wrote to the Administrator of the Federal Aviation Administration regarding CIA sponsorship of Fairways and asked that the subject be withheld from public disclosure.
+
+E2 IMPDET
+CL BY 026089
+
+<table><tr><td>WARNING NOTICE</td></tr><tr><td>SENSITIVE INTELLIGENCE SOURCES</td></tr><tr><td>AND METHODS INVOLVED</td></tr></table>
+
+SECRET
+
+13-00000

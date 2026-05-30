@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_2349.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">ELECTION, DECLINATION, OR WAIVER OF LIFE INSURANCE COVERAGE</th></tr><tr><td colspan="2">FEDERAL EMPLOYEES GROUP LIFE INSURANCE PROGRAM</td></tr></thead><tbody><tr><td>IMPORTANT AGENCY INSTRUCTIONS ON BACK OF ORIGINAL</td><td></td></tr></tbody></table>
+
+<table><caption>TO COMPLETE THIS FORM—</caption><tr><td>1</td><td>FOLLOW THESE GENERAL INSTRUCTIONS:<ul><li>Read the back of the "Duplicate" carefully before you fill in the form.</li><li>Fill in BOTH COPIES of the form. Type or use ink.</li><li>Do not detach any part.</li></ul></td></tr></table>
+
+<table><thead><tr><th>NAME (last)</th><th>(first)</th><th>(middle)</th><th>DATE OF BIRTH (month, day, year)</th><th>SOCIAL SECURITY NUMBER</th></tr></thead><tbody><tr><td>O'NEAL</td><td>BIRCH</td><td>DILWORTH</td><td>JUNE 1, 1913</td><td>258 056267</td></tr><tr><td colspan="4">EMPLOYING DEPARTMENT OR AGENCY</td><td>LOCATION (City, State, ZIP Code)</td></tr></tbody></table>
+
+<table><thead><tr><th>Mark here if you WANT BOTH optional and regular insurance</th><th>A</th></tr></thead><tbody><tr><td>ELECTION OF OPTIONAL (IN ADDITION TO REGULAR) INSURANCE<br>I elect the $10,000 additional optional insurance and authorize the required deductions from my salary, compensation, or annuity to pay the full cost of the optional insurance.<br>This optional insurance is in addition to my regular insurance.</td><td>(A)</td></tr><tr><td>Mark here if you DO NOT WANT OPTIONAL but do want regular insurance</td><td>(B)</td></tr><tr><td>DECLINATION OF OPTIONAL (BUT NOT REGULAR) INSURANCE<br>I decline the $10,000 additional optional insurance. I understand that I cannot elect optional insurance until at least 1 year after the effective date of this declination and unless at the time I apply for it I am under age 50 and present satisfactory medical evidence of insurability. I understand also that my regular insurance is not affected by this declination of additional optional insurance.</td><td>(B)</td></tr><tr><td>Mark here if you WANT NEITHER regular nor optional insurance</td><td>(C)</td></tr><tr><td>WAIVER OF LIFE INSURANCE COVERAGE<br>I desire not to be insured and I waive coverage under the Federal Employees Group Life Insurance Program. I understand that I cannot cancel this waiver and obtain regular insurance until at least 1 year after the effective date of this waiver and unless at the time I apply for insurance I am under age 50 and present satisfactory medical evidence of insurability. I understand also that I cannot now or later have the $10,000 additional optional insurance unless I have the regular insurance.</td><td>(C)</td></tr></tbody></table>
+
+<table><thead><tr><th>SIGN AND DATE. IF YOU MARKED BOX "A" OR "C",<br>COMPLETE THE "STATISTICAL STUB." THEN RETURN<br>THE ENTIRE FORM TO YOUR EMPLOYING OFFICE.</th><th>FOR EMPLOYING OFFICE USE ONLY<br>(official receiving date stamp)<br>SECRET</th></tr></thead><tbody><tr><td>SIGNATURE (do not print)<br>DATE<br>February 16, 1968</td><td>Office 4-408<br>Feb 23 8 4-408<br>STANDARD FORM No. 176-T<br>JANUARY 1968<br>(For use only until April 14, 1968,<br>176-101)</td></tr></tbody></table>
+
+ORIGINAL COPY—Retain in Official Personnel Folder
+
+STANDARD FORM No. 176-T
+JANUARY 1968
+(For use only until April 14, 1968,
+176-101)

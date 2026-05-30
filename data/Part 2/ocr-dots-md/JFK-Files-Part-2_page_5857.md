@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_5857.png
+
+Convert to Markdown<table><thead><tr><td>INFORMAL REQUESTS</td><td>DESCRIPTION</td><td>RESPONSIBLE COMPONENT</td><td>STATUS/ REMAINING ISSUES</td></tr></thead><tbody><tr><td>CIA-IR-33</td><td>FBIS-USR-92-112</td><td>DS&T</td><td>COMPLETE</td></tr><tr><td>CIA-IR-34</td><td>Files of CIA officials/offices</td><td>DO, ODCI</td><td>DCI Area complete; DO files being reviewed by Board staff.</td></tr><tr><td>CIA-IR-35</td><td>Oswald related information provided by Source identified in RIF No 104-10151-10206</td><td>DO</td><td>COMPLETE</td></tr><tr><td>CIA-IR-36</td><td>Handling of cables in 1963</td><td>DO, DA</td><td>COMPLETE</td></tr><tr><td>CIA-IR-37</td><td>William Pawley</td><td>DO</td><td>COMPLETE</td></tr></tbody></table>

@@ -1,0 +1,8 @@
+# JFK-Files-Part-2_page_5567.png
+
+Convert to Markdown10/09/97
+
+to the public. The 97 pages of NBR documents include: correspondence with various US Government agencies and the Attorney General, memoranda on Nosenko's day to day handling, emergency procedures for Office of Security guards assigned to Nosenko, a report to the CIA Inspector General on the Nosenko case, Nosenko's request for political asylum, copies of his subsequent contracts with the CIA as an independent contractor, and additional reports, memos, and briefings concerning the Nosenko case and his handling.
+
+Combs e:\nosenko4.wpd
+File 4.20.5, 4.0.2, and 2.4

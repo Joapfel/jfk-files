@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_6823.png
+
+Convert to MarkdownSECRET
+
+1 3 Mar 62 Note saying Navy message of this date is missing from CD 692 sent from Archives
+5 26 Apr 62 Collection of Navy Memo to Hoover/FBI plus Navy, USMC, and press items
+9 7 Sep 62 Hoover to Helms, plus report fr SAC/Dallas
+2 " Redacted pages from above
+7 10 Sep 63 FBI field report on Oswald from Dallas
+3 24 Sep 63 FBI field report on Oswald from New Orleans
+3 10 Sep 63 FBI field report on Oswald from Dallas (apparently different from above)
+2 8 Nov 63 Hoover to Helms, with page from New Orleans report
+20 7 Nov 63 Hoover to Helms, with a lot of bio data on Oswald, plus Fair-Play-for-Cuba stuff
+20 25 Oct 63 FBI to INS, New Orleans, with much of material above
+14 31 Jan 64 Report, not really contemporary with this file, entitled: "Information Developed by CIA on the Activity of ...Oswald in Mexico City...,"
+28 Sep--3 Oct 63
+14 " Redacted copy of same
+
+ADDED
+LATER
+
+TOTALIED & REDACTED
+
+SECRET

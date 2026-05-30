@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_2997.png
+
+Convert to MarkdownSECRET
+
+Appendix C
+
+Source References*
+
+1. Survey of CE in SR Division, Volume II, by Robert H. Hicks, CI Staff. Aug 55. TS 110604.
+
+2. FY 1955 USSR Operational Plan. TS 91403.
+
+3. SR Division's Operational Program and Budget for the USSR, FY 1956-57. TS 107830.
+
+4. Memo, Chief, SR for the DDP, sub: Field Trip Report, 3 Oct 55.
+
+5. Survey of CE in SR Division, by Robert H. Hicks, CI Staff, Aug 55. TS 110604.
+
+6. 1958 Inspection and Review Staff review of SR Division: "The Role of SR Division," 23 Dec 58. TS 153028.
+
+7. Memo, I&R Staff for the DDP, sub: Inspection of SR/CE Staff, 22 Dec 58. TS 153026.
+
+8. SR Division Operational Program, FY 1961, pp 16 ff. 22 Mar 60, TS 175603.
+
+9. SR Division Notice No. 450, 17 Aug 61. See also CSHP 76, pp 57-64, for a more detailed discussion of the 1961 functional reorganization, and a list of the members of the Special Group which proposed it.
+
+10. Memo of Conversation, 16 Jan 64; sub: CIA Work in Support of the Warren Commission; by Tennant H. Bagley.
+
+11. XAAZ-22407, 21 Jan 64, sub: Questions to be submitted to the Soviet Government, filed in 201-288248 (Lee Harvey Oswald).
+
+* Unless otherwise indicated, all source references may be considered classified SECRET.
+
+SECRET

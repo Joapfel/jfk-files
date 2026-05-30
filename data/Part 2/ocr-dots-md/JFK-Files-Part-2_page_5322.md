@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_5322.png
+
+Convert to MarkdownSECRET
+
+The Board accepted the Agency's and ARRB staff's recommendations on 204 additional documents.
+
+**Reconsideration and Appeals:**
+
+If the Agency wishes to ask the Board to reconsider a decision or plans to appeal to the President, the ARRB staff has requested that it be notified prior to the letter to the Agency informing the DCI of the Board's decision. We expect the letter on or around Dec. 1st; the Board's determinations will also be published in the Federal Register on that date. As mandated by the White House, the Agency has seven days after notification to appeal a JFK Board decision to the President.
+
+CC:
+
+Eileen Wukitch @ DO
+Kathryn Dyer @ DCI
+Becky Dyer @ DA
+
+Sent on 21 November 1997 at 05:04:45 PM
+
+CC:
+
+Sent on 24 November 1997 at 08:14:49 AM
+
+SECRET

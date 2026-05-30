@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_6233.png
+
+Convert to MarkdownDRAFT
+
+8. We have seen DDP monthly operational reports which contain information on the allocation/distribution of operational funds. Are there other DDP records which would reflect how certain projects utilized their funding? How are these records organized? How should a search query be framed?
+
+9. Various open sources have linked the CIA to various journalists and publishing companies during the 1960's. How should a query be framed to search for connections between the Agency and journalists or publishing companies?
+
+10. Did the Agency have any relationship, projects, or contacts with publishing houses during the time of the assassination and in the aftermath of the Warren Commission? How would a search be formulated to determine whether or not the Agency had a relationship with any of the same publishing houses that were also publishing books about the assassination?
+
+11. How would a query be framed to search for files on any office or person dealing with organized crime and Cuba? How should a request be formulated to institute a reasonable search on this topic?
+
+12. Is there a comprehensive record or list detailing the identities of individuals on the Interagency Source Register? How are these records organized? How can a search query be framed to ascertain whether or not a particular individual appears in the Register.
+
+13. How could a search query be framed to ascertain whether or not a particular individual was given access to classified information by DCD (then OO)? What kind of files are assembled in the process of clearing non-Agency contacts/sources for access to classified information?
+
+DRAFT

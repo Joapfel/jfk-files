@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_4076.png
+
+Convert to Markdown**Renzel**
+
+**Service Status:** Korean War veteran, receiving $150.00 wound disability
+
+**Former Occupation:** Special Investigator, State of California, Department of Alcoholics Abuse Control
+
+**Civil Status:** In process of being divorced
+
+**Languages Spoken:** Besides English, he claims to speak Japanese fluently
+
+**Addresses:**
+4037 Leonard Avenue and Box 76121, Sanford Station, Los Angeles 5, California
+
+**Scars and Marks:**
+Left eye slants downward toward outside; vertical scar in front of left ear; half-circle shaped scar commencing in left eyebrow and extending down to cheek
+
+**Attire:** Well dressed in solid brown light-weight suit
+
+On October 1, 1968, this same individual reappeared at the American Embassy and wanted to know what had been done in regard to his case. When asked what he meant by this, he stated he meant in regard to getting the state of California to pay him the money due him. He was told that at his
+
+- 5 -

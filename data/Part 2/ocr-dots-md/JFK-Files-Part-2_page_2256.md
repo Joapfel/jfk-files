@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_2256.png
+
+Convert to Markdown23 February 1947
+
+MEMORANDUM FOR MR. FREDERICK B. LYON
+DIRECTOR, OFFICE OF CONTROLS
+DEPARTMENT OF STATE
+
+**Subject:** Request for Foreign Service Title as Attache at Caracas for Mr. Birch D. O'Neal
+
+**Enclosure:** Personal History Statement of Birch D. O'Neal
+
+1. It is requested that the Department of State grant to Mr. Birch D. O'Neal the Foreign Service title of Attaché of Embassy in Caracas, Venezuela.
+
+2. Mr. O'Neal received his A.B. and LL.D. Degrees from the University of Georgia. He was a Special Agent in the Federal Bureau of Investigation for nine years, with service in Latin America, and he practiced law one year. It is believed that he possesses the professional qualifications for the duties planned for him and, in addition, has the representative qualifications expected of an American official serving abroad.
+
+3. Mr. O'Neal will receive from CIC a basic salary of $5,000.00 per annum.
+
+4. It is requested that a diplomatic passport be issued to Mr. O'Neal, in view of the fact that he will be the chief CIC representative in Caracas.
+
+5. There is transmitted herewith a biographical sketch on Mr. O'Neal which sets forth in detail pertinent information on him and on his special qualifications for the duties it is intended that he perform at Caracas.
+
+FOR THE DIRECTOR OF CENTRAL INTELLIGENCE;
+
+DONALD T. GALLOWAY
+Assistant Director

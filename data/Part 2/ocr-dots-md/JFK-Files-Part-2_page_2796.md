@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_2796.png
+
+Convert to Markdown-2-
+
+## SECTION C -Continued-
+
+Mr. Kent has clearly projected his concern for the efficient use of Agency funds.
+
+In November 1970 Mr. Kent received a commendation for his resourceful contribution to the Chilean Task Force.
+
+### Comments of Reviewing Official: (Continued)
+
+Service. In addition, it must be noted that Mr. Kent thinks through every problem as it applies to his work. His thoroughness is of the highest nature. His depth of thought and study devoted to a given subject is rarely found among officers dealing with rapidly moving situations. His is unflappable yet flexible.

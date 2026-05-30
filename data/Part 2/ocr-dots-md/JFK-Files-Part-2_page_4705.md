@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_4705.png
+
+Convert to MarkdownSECRET
+
+INTERVIEWER: And make it more gradual.
+
+MR. HALPERN: Yeah, and make it more gradual and make it easier on people, and what have you. And, look, even Schlesinger had to go to Congress to get the number of retirees' positions opened under the CIA Retirement Act. He had to get those numbers raised to take care of the mass of people he was suddenly getting rid of. And he didn't even know that initially. And that was finally brought to his attention, that a lot of these people could take us to court if you just throw them out without giving them the CIRA benefits. And so they went to Congress, and Congress upped the figures (with a little bit of doing). I mean, that was one of the things, you know, just sheer humanity.
+
+INTERVIEWER: Sure.
+
+MR. HALPERN: You know.
+
+INTERVIEWER: The Ramparts article on the Agency and the National Student's Association.
+
+MR. HALPERN: '67.
+
+INTERVIEWER: Yeah. Was that very harmful to the Agency?
+
+MR. HALPERN: Yes. Very much so.
+
+INTERVIEWER: The flap was?
+
+MR. HALPERN: It was a big flap obviously. We had to cut back on a lot of operations.
+
+INTERVIEWER: Involving students?
+
+MR. HALPERN: Well, the students was only one of it because if you remember the Ramparts exposure went far beyond student activity.
+
+INTERVIEWER: Yeah.
+
+MR. HALPERN: It covered all kinds of things -- labor unions, women's organizations, religious groups -- you name them and we were involved in some

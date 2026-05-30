@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_4585.png
+
+Convert to Markdown13-00000
+
+5 June 1961
+
+MEMORANDUM FOR: THE RECORD.
+
+SUBJECT: Interview with Clark Simmons, Chief of WH/4's CI Section,
+1 June 1961
+
+(This memorandum should be read after Morales interview)
+
+1. Simmons is a dedicated CI type having spent the last 11 years chiefly on CI matters largely under OTR auspices. He spent two years in Egypt, 1954 to 1956, setting up and training the Egyptian CI Staff, apparently starting from scratch. He has been with OTR since then and came to WH/4 in mid-April 1960. He is about to be transferred to the WH Division Staff and his replacement will be Louis Napoli who will head the new combined FI/CI Section of WH/4. He stressed that the charter of the new combined section will give CI the right to interfere in any operation. This will be spelled out explicitly, thus countering the difficulties that Simmons had in dealing with the PM Section prior to the invasion. Bob Andrews will stay on for CI matters and Seehafer will head the FI part, both under Napoli.
+
+2. AMOTS (future Cuban intelligence service trained by Morales at Miami). This idea started when Anderson of WH Division Staff told Simmons that he had a Chilean CI officer who was available for training Cubans. Drawing on his Egyptian experience, Simmons drew the AMOT plan and prepared the training materials and sent them to Morales for execution. It was Morales who subsequently conceived the idea of training the AMFATS (future CI service) and the AMCHEERS, a reserve intelligence corps consisting of older men. These matters are discussed in detail in my memorandum on Morales. Morales also organized a group of former Cuban diplomats presently in Miami to have them available when a new government is set up. Subsequent to the invasion the AMOTS have been substantially changed by Cardona. He has replaced the top AMOTS by political appointees who have no skill in tradecraft. The top men thus fired had anticipated such a move, and, in addition to micro-filming 120,000 cards, they removed all cryptonyms and all memoranda of conversation between them and Morales with the result that the new service doesn't know the identity of the AMOTS who are presently in Cuba. The AMOTS initially numbered 96. The Miami Base now has/18 to 22 of them of whom a four are inside Cuba with 14 subsources; all of them producing FI and CI reports. By December 1960 the AMOTS had produced 1,800 intelligence reports and 750 radio monitor reports.

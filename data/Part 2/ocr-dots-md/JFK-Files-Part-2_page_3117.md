@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_3117.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+the regime." One weakness touched on by the National
+Estimate concerned the Castro militia which was char-
+acterized as "only partially armed, and for the most
+part poorly trained ... [and] appears to have little,
+if any, effectiveness as an organized combat force.
+in conventional operations." For either of the fore-
+going reasons, perhaps, an increase in the number of
+PM personnel might (a) assist in bringing a strong
+dissident leader to the fore, or (b) develop the
+capability to overcome the Castro militia. <u>90</u>
+
+The question of an increased number of PM
+trainees surfaced in a late August briefing for Presi-
+dent Eisenhower, Secretaries Gates, Dillon, and Ander-
+son, and Generals Persons, Lemnitzer, and Goodpaster
+by the DCI and Mr. Bissell. After President Eisenhower's
+National Security Adviser, Gordon Gray, summarized
+developments since the March announcement of the anti-
+Castro program, Mr. Dulles provided some specifics
+concerning the organization of the FRD and its prin-
+cipals, noting that the Headquarters for the FRD had
+been established in Mexico City, in lieu of the invi-
+tation of President Ydigoras of Guatemala to permit
+the FRD to operate from his country. Mr. Dulles
+
+TOP SECRET

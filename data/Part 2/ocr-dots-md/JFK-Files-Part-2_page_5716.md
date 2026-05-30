@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_5716.png
+
+Convert to MarkdownDavid G. Marwell
+
+DCI/OGC/LD/LCCipriani/76124 (2 Dec 96)
+
+OGC-96-53203
+
+Distribution:
+
+Original - Addressee
+1 - DC/LD/OGC
+1 - GC
+1 - C/HRG
+1 - LCC Signer
+1 - Lit File - LDG00021
+1 - OGC Registry

@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_1369.png
+
+Convert to Markdown8 January 1957
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Promotion of Robert P. WHEELER
+
+1. Mr. Wheeler entered on duty with CIA on 28 September 1952 as a GS-14. He had, previous to that, served in a distinguished manner with the G-2 Section of the Army in Japan in the early days of the occupation. His name was submitted for promotion by the Chief of the Japan Station in November 1955. He entered on duty at Headquarters as Deputy Chief of the Japan Branch in September 1956. As of this date he has served in that capacity for a period of five months. He is 41 years of age and has been in grade with the Agency for 4½ years.
+
+2. A review of Mr. Wheeler's Fitness Reports will adequately reflect his strength and weaknesses, with the possible exception of the most recent one dated 7 July 1956, in which, in undersigned's opinion, the rating officer did not have adequate time to fairly rate Mr. Wheeler. Granting his occasional tendency to allow his emotions to color his work, he is, nevertheless, one of the hardest working and generally capable officers I have been associated with. He has great ability in dealing with people, he is an accurate and meticulous reporter, and he is adjusting rapidly to the requirements of his job in Headquarters and is turning in a most effective performance. In view of the length of time in grade, his age, and above all his performance, I strongly recommend Mr. Wheeler for promotion from GS-14 to GS-15.
+
+WILLIAM E. NELSON
+Chief, FZ/1
+
+COMMITTEE

@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_108.png
+
+Convert to MarkdownSECRET
+
+- 3 -
+
+C. intellectual honesty -- LICOOXY/1 does not think that her intellectual honesty gains from her NOFIRM relationship;
+
+D. lack of understanding -- NOFIRM, except for the three officers cited above, does not really understand the real LICOOXY/1.
+
+8. Obviously, the unsaid reasons are the ones that really brought about this "confrontation", in the writer's opinion. These are as follows:
+
+A. emotional instability -- LICOOXY/1, as has been known for years by the writer, is not the most stable of individuals;
+
+B. money -- LICOOXY/1 receives no money from us anymore (since her termination in Mexico), and the writer suspects that LICOOXY/1 could have more easily rationalized working for the "Giant Indices in Washington" were she on salary;
+
+C. sex -- in this case, lack of same (LICOOXY/1 comes always to emotional involvement with her male associates, and her Case Officers cannot fulfill this need, thus giving rise to problems; in the past, LICOOXY/1 could easily obtain her physical/emotional fulfillment in Cuba and Mexico without relying on the Case Officer, but now she is getting older and quite shop-worn and cannot compete for attention from men in the environment of a place such as Manhattan);
+
+D. discipline -- again, in this case, lack of same; LICOOXY/1 tell us what she does, we don't tell her what she should do.
+
+9. LICOOXY/1 exhibited some anguish over this whole affair. She has been upset for the past month, over this as well as over the confused outlook for her in general. It was made very clear at one point what aid and comfort could have been extended to LICOOXY/1 to alleviate her anguish, and the writer beat a hasty retreat to the kitchenette for a tactical drink of water.
+
+10. Not elaborated above were the writer's answers to LICOOXY/1's opinions, but these were effective in countering her logic, if not her attitudes. LICOOXY/1 had to agree to the NOFIRM did have grounds for its assessment of her performance - not awfully good.
+
+SECRET

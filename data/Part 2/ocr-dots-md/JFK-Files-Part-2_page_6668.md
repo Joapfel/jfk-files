@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_6668.png
+
+Convert to Markdownhistory staff and to form the Historical Review Group that will review the JFK documents and other documents of historical interest.
+
+I believe these actions attest to the seriousness of our intent to getting these papers declassified and released, and to open what remains classified to outside non-governmental review. It is against this background that in response to the Committee's request, I cite our few technical reservations about the mechanism established by the joint resolution to achieve this same result. I intend to address only intelligence community concerns. I will defer to the Department of Justice on any additional problems posed by the joint resolution.
+
+First, vesting in an outside body the determination as to whether CIA materials related to the assassination can be released to the public is inconsistent with my own statutory responsibility for the protection of intelligence sources and methods.
+
+Second, I am concerned that the joint resolution contains no provision requiring security clearances or secure document handling by the assassination materials review board or its staff.
+
+Third, I am concerned that the joint resolution does not provide the Agency with the opportunity to object to the release of CIA information contained in documents originated by Congress or the Warren Commission. Under the joint resolution, documents originated by these entities can be released directly by the executive director of the assassination materials review board without any review by the President or other Executive Branch agencies.
+
+Fourth, the joint resolution provision for a 30-day period for agencies or departments to appeal decisions by the executive director to release information may not provide sufficient time for meaningful review of what could prove to be a large volume of material at one time.
+
+Fifth, and finally, Section 6 of the joint resolution, which outlines the grounds for postponement of public release of a document, makes no provision for postponing release of documents that may contain Executive privilege or deliberative process, attorney-client, or attorney work product information. While such privileges could be waived in the public interest and, in fact, are not likely to arise with respect to factual information directly related to the JFK assassination, they would be unavailable under the joint resolution in the rare case they might be needed.
+
+These are the technical problems that I believe can be solved and that will, in fact, expedite the release of documents bearing on the assassination of President Kennedy. But, again, whatever the future course of this legislation, CIA is proceeding even now to review for declassification the relevant documents under its control. Further, we will cooperate fully with any mechanism established by the Congress and the President to declassify all of this material.
+
+Mr. Chairman, let me close with a comment on why I am personally committed to getting these documents out. Like all Americans old enough to remember that terrible day in 1963, and as several members of the Committee have alluded to, I also remember where I was and what I was doing.
+
+I was a college student at William and Mary, and I can remember how the word spread like wild fire between classes of that horrible event. I made my way to Washington that weekend and stood at the intersection of Constitution and Pennsylvania Avenues, where I waited for hours to watch the President's funeral cortege. I will never forget it.
+
+I entered public service less than three years later, heeding President Kennedy's inaugural call, a call I think many in my generation heard. He said then, "Now, the trumpet summons us again, not as a call to bear arms, though arms we need, not as a call to battle, though in battle we are, but as a call to bear the burden of a long twilight struggle, year in and year out, rejoicing in hope, patient in tribulation, a struggle against the common enemies of man—tyranny, poverty, disease, and war itself."
+
+Mr. Chairman, the only thing more horrifying to me than the assassination itself is the insidious, perverse notion that elements of the American Government, that my own Agency, had some part in it. I am determined personally to make public or to expose to disinterested eyes every relevant scrap of paper in CIA's possession, in the hope of helping to dispel this corrosive suspicion. With or without legislation, I intend to proceed. I believe I owe that to his memory.
+
+Thank you.
+
+[The prepared statement of Mr. Gates follows:]
+
+
+
+PREPARED STATEMENT OF MR. GATES
+
+Mr. Chairman, I am here today at your request to provide my views on S. J. Res. 282, "The Assassination Materials Disclosure Act of 1992," and to describe the nature of documents held by the CIA that relate to the assassination of John F. Kennedy. I very much appreciate the opportunity to speak on this important matter.
+
+Let me begin by stating that I am in complete agreement with the purpose underlying the joint resolution—that efforts should be made to declassify and make available to the public as quickly as possible Government documents relating to the assassination of John F. Kennedy. We hope that opening up and giving journalists, historians and, most importantly, the public access to governmental files will help to resolve questions that still linger over

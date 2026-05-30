@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_1944.png
+
+Convert to Markdown14-00000
+
+<table><tr><td>CONTRIBUTION OF<br/>DISPATCH</td></tr></table>
+
+S E C A K
+
+Service" as reflected by the papers submitted by Field Engineers to INGOLD in connection with the information process. There was no break in the continuity of service which was completely satisfied but was inserted into the employment record of each one of our cover people for some technical reason not clear to me, and it has been in continual government service since 26 January 1931 to date without a single day's break in service, as his personnel record will disclose. He realizes, of course, that he has long lost his annual leave credit with INGOLD and the lost annual leave is therefore not a matter of contention at this writing. However, he is most interested inNOW ascertaining whether the sick leave which he has used so far from its credit when he resigned from INGOLD in 1944 has now been recovered and added to his sick leave balance now being held by IVWOCK. Since unused sick leave can now be used in computing longevity for retirement purposes, the recovery of this sick leave could play an important part in determining retirement plans. Consequently, he would greatly appreciate it if the appropriate headquarters officials would look into this matter at their earliest convenience.
+
+3. It would also like to raise another matter relating to his service with INGOLD. INGOLD served from October 1931 to July 1941 at Mazatlan, Mexico, which was then designated by the INGOLD as an "unhealthy post" for retirement purposes. Each year of duty at an unhealthy post entitled the employee to one and one half years of credit for retirement purposes. Therefore it would appropriate considering whether his service at Mazatlan during the period mentioned would, under present rules, entitle him to extra retirement credit.
+
+4. A ruling by Headquarters on the two points raised is respectfully requested.
+
+William G. EOLAND
+
+Originated by
+
+C.A.R.E.
+Mazatlan,
+Mexico, July 1971
+D.S. 10/8/71
+H.C.A.E. 1012
+Field Engineers
+P.O. Box 112
+Mazatlan,
+Mexico
+P.S. 1011
+D.S. 10/8/71
+H.C.A.E. 1012
+Field Engineers
+P.O. Box 112
+Mazatlan,
+Mexico
+P.S. 1011

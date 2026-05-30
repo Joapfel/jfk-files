@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_6463.png
+
+Convert to Markdownperpetrated by the Castro regime to serve as the cause of
+Invasion or (b) foment a revolt within Cuba which would
+call for US military intervention.
+
+f. Engineered provocation would provide greater advantages in control, timing, simplicity, and security than would a fomented revolt. It would be most difficult to generate a widespread effective revolt. However, the staging of a local uprising as a contrived incident should not be precluded.
+
+g. The United States should:
+
+(1) Initiate a coordinated program to create a pre-
+text for US military intervention in Cuba,
+
+(2) In support of the above, undertake a flexibly phased effort to build Cuban resistance potential, commencing with the intensification of intelligence collection and sabotage in Cuba, and the creation of a framework for guerrilla activity,
+
+(3) At a propitious time, launch appropriate military action to remove the Castro communist government.
+
+h. Implementation of the above would involve many agencies of the United States Government. It would appear necessary that one governmental organization should be given the primary responsibility for developing such a national plan. The Joint Chiefs of Staff should participate in the development of this national plan.
+
+1. The broad concepts herein and the views of the Joint Chiefs of Staff should be forwarded to the Special Group (5412 Committee) for consideration under the provisions of NSAM 57.
+
+J. CINCLANT's concept for fomenting a revolt in Cuba while containing much merit, should be re-examined both for its timing and for the large-scale guerrilla activity it envisages.
+
+TOP SECRET - SENSITIVE
+
+(Rev. 5/13/63)
+
+Appendix
+
+TOP SECRET
+
+- TOP SECRET-

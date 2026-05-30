@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_8612.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+Situation in private with his superiors. But Bob and his cohorts at FI/D were one step ahead of Ambassador Meyer. They had figured out a way to intercept his cables and the replies he received from Washington. So shortly after each State message was sent, Bob would appear in the CIA executive suite with a copy of the message for the personal inspection of the Director. Written on top of each intercepted cable was a warning that the contents of the cable should be kept especially confident because State was unaware that the CIA had a copy.
+
+Despite Agency knowledge of all of Meyer's instructions and information, Meyer and State's director of Iranian Affairs in Washington refused to yield to Agency pressure for a quick settlement. Even after these two men met at CIA headquarters with the Deputy Director of CIA, Vice Admiral Rufus Taylor, they still insisted that the Agency's plans for the new installation were unacceptable to the U.S. government as a whole. CIA Director Helms was so aggravated by this continued resistance than he personally telephoned Secretary of State Rusk to settle the matter. Rusk promptly ended the dispute by agreeing completely to the CIA position.
+
+Bob was also involved in another series of events which started when FI/D worked out a liaison arrangement with the codebreaking service of a certain South American government. This arrangement was ostensibly for the purpose of allowing the CIA and the other country to cooperate in decoding messages sent by third countries. However, FI/D took advantage of the liaison to intercept the secret communications of the host South American government. Such arrangements were normal procedure to Bob. The intensely dedicated law and order advocate saw nothing wrong in practicing this sort of duplicity on an allied government which cooperated in good faith.
+
+FI/D's liaison with the South American country continued for a long period of time until relations between the United States and that nation soured over unrelated issues, and as a result FI/D was forced to break off the relationship. However, FI/D did not give up hope that the previous working arrangements could be restored. 7
+
+JOSEPH
+RUSCHETZER
+REED
+MAY
+JUNIOR
+FRIDAY
+28
+SEPTEMBER
+1967

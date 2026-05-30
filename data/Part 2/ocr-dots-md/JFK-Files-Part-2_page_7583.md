@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_7583.png
+
+Convert to MarkdownCO-2-5,206,971
+
+observation of an unstable non-rotating ionized particle with albumin and glycerin as the result of moderately high caloric doses of mixtures of the acids of lactalbumin: 3% or 20%. It is also revealed from such exposures what appeared to be a variable exponential or power type of urinary uranium excretion function and a strong retention of the uranium oxides in the lungs and mucosal areas. These conclusions also allegedly caused a deterioration of conditioned reflexes: in their dogs but no pathological changes were found in the nervous system at autopsy. They did find acolerotic damage in the pulmonary mesenchymal, peritoneum and mediastinal lymph nodes. This damage was more prominent in the dogs inhaling mixtures of oxides containing the highest per cent of Uranium 210. One case, however, was so severe that with a carcinoma of the lung and another type of atypical interstitial changes in the lung. V S Karmakar of the US reported that silicosis plus radon exposures in animals caused more deaths and pathologically pulmonary damage than either silica or radon alone. In I N calls boy of the USSR reported on the body distribution and biological effects of numerous inhaled radioisotopes with acute, subacute, chronic and late-onset lung diseases. A personally know so little about the effects of the radiation sources of which he is not aware whether it was new knowledge or not.
+
+5. J Lafuma from France reported finding two radiation cases in a slave dog attached by a cross bleed circulation experiment when the slave dog inhaling radon. Padon daughters were born by the way of the master dog. The Yugoslavians reported confirmation information on finding the immediate radon daughter attached to dust articles and they stressed the importance of determining radon data in the environment in order to calculate alpha lung doses. A second, III, reported studies of people and animals exposed to radon in their spaces and found a high lung retention of radon daughters and that the bisocket daughters of radon were more readily exposed by cross contamination than the lead daughters. Jr II, had made the case for a further increase on the function of mass mean diameter and chemical composition on radiation just with relation to lung retention. A higher of free gas given an interesting theoretical discussion on the effect of the thickness and physiological activity of the bronchial mucosa and on alka-lung doses. Member of the US gave a theoretical discussion of the expected neighbor code alpha dose from a point source. A third, of Poland unfortunately was not present to give his discussions. In year on the finding of radiolabel in the hair and nails of uranium excreting and its hypothetical evaluation of Lead 210 body burden therefrom.
+
+6. J C Cilitland of the US good for the secular disquilibrium of urinary daughters in uranium multimeals, motionless for determining a mean time-weighted exposure to radon in milli cigares at a frequency of sampling for 95% confidence exceeding or not a maximum allowable concentration. He detected no new ideas. In most of the papers on environmental exposure and internal and external contamination from Japan, France and Canada.
+
+7. E C Hyatt of the US, in a paper presented in the techniques for measuring and sizing radioactive data, recommended again that the particle size and density of radioactive data should be separately evaluated, otherwise too generally thought to evaluate biological effects. It is general accepted in the section on "iological Protection" that ventilation is most important in controlling radon and radon-daughter products in non smoking atmospheres and that this has only a special limited use in temporarily uncontrolled areas of exposure. The US results, however, paid unusual attention to Mr Hyatt's paper on respirators and seemed quite concerned about the acceptability by workers of the described respirators. The Russians apparently are using disposable masks.
+
+8. Management of wastes appears to be a unique problem for the areas in which wastes occur. No general management of wastes was promoted.
+
+CONTINUED DISSEMINATION
+
+NO DISSEMINATION
+
+--F-I-D-L-T-I-A-L
+...I-D-L-T-I-A-L...
+...I-D-L-T-I-A-L...

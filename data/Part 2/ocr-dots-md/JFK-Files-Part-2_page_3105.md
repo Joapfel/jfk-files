@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_3105.png
+
+Convert to MarkdownTOP SECRET
+
+Maritime Branch representatives also discussed beach gradient problems with the Marine Corps and repre- sentatives of the Navy's Hydrographic Office. It was ascertained that much work needed to be done in order to upgrade information suitable for planning the use of LST's for beaching and landing of troops and vehicles. 74/
+
+In the weeks immediately following Eisenhower's announcement of the anti-Castro policy, the Department of State seemed to be operating in a world of its own -- making elaborate plans for Cuban briefings and the flow of information on Cuba's internal developments. On 25 March, for example, Roy Rubottom, Assistant Secretary of State for American Republic Affairs, was the originator of an elaborate memorandum which provided a check list of current operations and ten categories of activity related to developments in Cuba. From the tenor of the paper itself, it seems as though Rubottom was ignorant of the Cuban issues before the Special Group, of the discussions among CIA, State, and Department of Defense, and of the President's approved plan for covert action. Nor was there any evident awareness of the various overt
+
+TOP SECRET

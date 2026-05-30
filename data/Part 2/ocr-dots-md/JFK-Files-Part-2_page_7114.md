@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_7114.png
+
+Convert to MarkdownSECRET
+
+NO FOREIGN DISSEM
+
+as a political instrument probably presages a gradual increase of terrorist incidents. Riots in mid-May led by Communist-dominated students took place in Caracas, San Cristobal, and Merida. At the same time, one successful student-led robbery of a post office occurred, as well as an attempted robbery of the university payroll.
+
+Robberies have been the FALN's favorite means in the past to obtain money to finance its terrorist activities.
+
+By at least 139 Venezuelanians traveled to Cuba in 1968, 51 traveled to Cuba through April of this year.

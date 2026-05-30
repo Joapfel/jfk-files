@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_2397.png
+
+Convert to MarkdownGIVE PARTICULARS: Not applicable
+
+HAVE YOU TAKEN STEPS TO CHANGE PRESENT CITIZENSHIP? NO GIVE PARTICULARS:
+
+Not applicable
+
+E. LAST U.S. PASSPORT: NUMBER, DATE AND PLACE OF ISSUE Issued Washington
+D. C. 1942 actual date of issuance and number unknown.
+
+HOW MANY OTHER U.S. PASSPORTS HAVE YOU HAD? one GIVE APPROXIMATE DATES:
+Was issued latter part of January or first part of February 1942
+at Washington D. C.
+PASSPORTS OF OTHER NATIONS? None
+
+F. IF BORN OUTSIDE U.S. WHEN DID YOU FIRST ARRIVE IN THIS COUNTRY? Not applicable
+
+PORT OF ENTRY? ON PASSPORT OF WHAT COUNTRY?
+
+LAST U.S. VISA
+
+Number Type Place of Issue Date of Issue
+
+## SEC. 2. PHYSICAL DESCRIPTION
+
+AGE 33 SEX Male HEIGHT 6 feet 1 in. WEIGHT 185
+EYES Brown HAIR Brown COMPLEXION Medium SCARS left cheek appendectomy
+BUILD Slender OTHER DISTINGUISHING FEATURES None
+
+## SEC. 3. FATHER (Give the same information for Step-father and/or guardian on a separate sheet)
+
+FULL NAME Maeton Emmett O'Neal
+LIVING OR DECEASED Living DATE OF DECEASE CAUSE
+PRESENT, OR LAST, ADDRESS 402 Pine St. Bainbridge, Ga. U.S.A.
+DATE OF BIRTH March 24, 1875 PLACE OF BIRTH City State U.S.A.
+CITIZENSHIP U.S.A. WHEN ACQUIRED? At Birth WHERE? Bainbridge Ga. U.S.A.
+OCCUPATION Attorney at Law LAST EMPLOYER Self County Court House Bainbridge Ga. U.S.A.
+EMPLOYER'S OR OWN BUSINESS ADDRESS St. & No. City State BRANCH OF SERVICE None
+MILITARY SERVICE FROM None TO Date
+COUNTRY None DETAILS OF OTHER GOVT SERVICE, U.S. OR FOREIGN
+Solicitor General Court of Bainbridge 104 to present excepting 1928 to 1932.
+
+(643)

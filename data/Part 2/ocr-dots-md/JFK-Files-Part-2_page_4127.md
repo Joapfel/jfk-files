@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_4127.png
+
+Convert to Markdown26 April 1963
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Special Group (5412) meeting, 25 April 1963
+
+Attended by Bundy, Johnson, Gilpatrick, McCone
+
+1. CIA weekly report on our activities was reviewed without comment. No requests were made. No actions are needed.
+
+2. [x] Extensive discussions of DCI's recommendations for low-level reconnaissance of Cuba. Gilpatrick raised the question of political consequences. Johnson responded that Mr. Hughes had submitted a paper to him indicating the Soviets would take a harder line under these provocations. He reported that Thompson appeared to feel that low-levels would be used as a basis to halt withdrawal and possibly intensify the situation in Laos and elsewhere and that our interests would be adversely affected. I took the position that intelligence requirements were such that low-levels must be continued. It was agreed to go to higher authority with the Secretary of State and the Secretary of Defense present. Arrangements were made for a meeting about 6:30, 25 April.
+
+3. Mr. FitzGerald presented the proposed new covert policy toward Cuba, reviewing the situation and specific operations in considerable detail. The Group were impressed with the planning. They were not prepared to act, and suggested the matter be discussed with higher authority, and also that action be withheld until the Standing Group had further deliberated on the question.
+
+4. [x] Covert action in the Congo was discussed. Bronson Tweedy reported briefly. The CIA proposal was approved.
+
+5. [x] The proposed covert operations of GROSBEAK were discussed in some detail. Colonel Steakley suggested this operation might prejudice their ELINT operations. However, it was agreed that the exercise would be undertaken during the May dark-of-the-moon period and the results reported back to the Special Group prior to reaching a decision for reaching approval of continuing operations. Jorgenson was instructed accordingly.
+
+ACTION: CIA is authorized to undertake this operation; it should be watched carefully, reported accurately and fully, and brought before the Special Group at the time we're considering the June operations.

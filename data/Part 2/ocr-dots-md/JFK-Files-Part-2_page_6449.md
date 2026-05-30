@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_6449.png
+
+Convert to MarkdownTOP SECRET SPECIAL HANDLING NOFORN
+
+UNCLASSIFIED
+
+as yet no bilateral mutual support agreement binding the USSR to the defense of Cuba, Cuba has not yet become a member of the Warsaw Pact, nor have the Soviets established Soviet bases in Cuba in the pattern of US bases in Western Europe. Therefore, since time appears to be an important factor in resolution of the Cuba problem, all projects are suggested within the time frame of the next few months.
+
+## CONCLUSION
+
+7. The suggested courses of action appended to Enclosure A satisfactorily respond to the statement of the problem. However, these suggestions should be forwarded as a preliminary submission suitable for planning purposes, and together with similar inputs from other agencies, provide a basis for development of a single, integrated, time-phased plan to focus all efforts on the objective of justification for US military intervention in Cuba.
+
+## RECOMMENDATIONS
+
+8. It is recommended that:
+
+a. Enclosure A together with its attachments should be forwarded to the Secretary of Defense for approval and transmittal to the Chief of Operations, Cuba Project.
+
+b. This paper NOT be forwarded to commanders of unified or specified commands.
+
+c. This paper NOT be forwarded to US officers assigned to NATO activities.
+
+d. This paper NOT be forwarded to the Chairman, US Delegation, United Nations Military Staff Committee.

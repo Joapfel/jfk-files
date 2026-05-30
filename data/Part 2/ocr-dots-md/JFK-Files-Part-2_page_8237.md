@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_8237.png
+
+Convert to MarkdownB-2628
+
+21 MAY 1971
+
+SUBJECT: Americans Attending the World Peace Council (WPC) Conference in Budapest, Hungary, 13-16 May 1971
+
+1. the following Americans spoke at the indicated committee meetings of the WPC Conference:
+
+A.
+
+B.
+
+C.
+
+D.
+
+E.
+
+F.
+
+3. In its final coverage on 18 May of the WPC Confer-
+ence, which ended 16 May, the Hungarian Press made the
+following additional observations regarding United States
+participants:
+
+A. Sidney PECK, identified as "USA Professor,"
+spoke on the war in Vietnam;
+
+APPROVED FOR RELEASE
+
+Date 19 AUG 1976

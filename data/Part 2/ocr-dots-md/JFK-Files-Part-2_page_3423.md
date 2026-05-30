@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_3423.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+R 1-130
+
+ORGANIZATION
+Revised 6 August 1959
+
+REGULATION
+NO. 1-130
+
+PHOTOGRAPHIC INTELLIGENCE CENTER
+
+Figure 9
+
+27149 8-59
+
+~~SECRET~~

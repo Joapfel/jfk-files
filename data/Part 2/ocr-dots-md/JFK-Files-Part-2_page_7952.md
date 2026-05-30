@@ -1,0 +1,137 @@
+# JFK-Files-Part-2_page_7952.png
+
+Convert to MarkdownSASSINATION TAPES
+
+THE OFFICIAL STATE OF MARYLAND FROM
+1890 TO 1975
+
+Ed hard stress on the PSE. Unfortu-
+the nature of the wound.
+interview with Captain Humes was
+informative. Just before the interview,
+7, Humes had re-examined the autop-
+photographs and X-rays, and he dis-
+d them at length on the CBS tapes.
+grams drawn during the autopsy,
+had not been intended to precisely
+ment the location of the wounds. How-
+one now produced a sketch which, he
+did represent these locations accu-
+The interviewer asked. "Your re-
+nation of the photographs verify that
+wounds were as shown here?"
+sir," he replied. No stress.
+there any wounds other than one
+base of the neck and one up in the
+"No, sir. there were not." Moderate
+not enough to suggest deception.
+there any doubt that the wound at
+ock of the President's head was an
+ound? "There is absolutely no doubt,
+gain stress but again moderate.
+together, how many wounds were
+"There were two wounds of entrance
+to of exit." At this point the stress be-
+hard.
+
+where were the entry wounds lo-
+"Posteriorly, one low in the right
+or scalp. and one in the base of the
+n the right." Hard stress again.
+
+and he be absolutely certain that what
+was an entry wound was, in fact,
+yes, indeed we can." Hard stress.
+interview with Humes was one of the
+st and most detailed on the CBS
+and I charted most of it with the PSE.
+clear to me that he believed much
+he was saying, but the frequent flick-
+of moderate stress and the occasion-
+es of hard stress suggested that he
+nearly as confident of his testimony
+claimed to be. As Dr. Perry had
+I out, sometimes it's not easy to tell
+y wound from an exit wound.
+
+interviewer asked him one good "bot-
+te" question:
+you have any different conclusion,
+ferent ideas, any different thoughts
+her seeing [the autopsy photographs]
+than you had at that time?"
+
+replied Captain Humes, "we think
+ear up very well, and very closely,
+timony before the Warren Commis-
+
+stress was hard.
+Specter, one of the Warren Commis-
+principal investigators, also spoke on
+tapes. He said that the case against
+fitted together very well, and that
+could one find among actual crim-
+
+the charge that the Commission had been
+formed to whitewash the facts.
+
+The PSE said he was telling the truth.
+
+John McCloy, a member of the Warren
+Commission, said much the same thing,
+and added that he had seen no credible
+evidence to contradict the findings of the
+Commission. The PSE backed him up on
+this. but it failed to do so when, speaking
+of the Warren Report, he said, "There was
+nothing fraudulent about it." Here the PSE
+showed hard stress.
+
+If Specter and McCloy were as confident
+as the PSE shows them to be in the truthful-
+ness of the Warren Report, what could be
+fraudulent about it? Perhaps the snipping
+off of a few loose ends, the suppression
+of a few pieces of inconvenient evidence
+which conflicted with a version of events
+they believed to be essentially true.
+
+The one man who could be expected to
+have the most informed opinion regarding
+the work of the Warren Commission is
+former Chief Justice Earl Warren himself.
+He had declined to be interviewed on the
+CBS program in 1967, but he did appear
+on television in May, 1972, in an interview
+
+> "...we found no evidence
+> of any kind that there was
+> any conspiracy."
+> There was very hard stress
+> on "no evidence"
+
+which was part of a series called *The Bran-
+deis Television Recollections*. Bob Smith of
+the Committee provided me with the tape.
+
+The interview was an hour long, but the
+Kennedy assassination and the Warren
+Commission came up only once. The inter-
+viewer, Abram Sachar, Chancellor of Bran-
+deis University, was friendly and deferen-
+tial. I charted some of Warren's remarks
+unrelated to the assassination and found
+that he was generally unstressed. Sachar
+raised the subject of the Commission
+obliquely, and Warren volunteered several
+rather lengthy statements about it.
+
+Warren said that immediately after the as-
+sassination there were two theories, one that
+Khrushchev and Castro were behind the
+killing, the other that a group of right-wing
+Texas oilmen were responsible. He said:
+
+"We explored both of those theories for
+ten months and found no evidence that
+either of them was involved in it

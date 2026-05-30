@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_4121.png
+
+Convert to MarkdownCPT ROBERT C. NOLAN, ASN 01438346 = CPT RICHARD C. NAGELL,
+ASN 02028346
+
+*Team 26, Combined Command for Reconnaissance Activities Far East (C-CRAFE)
+
+*ACRAFE
+*USACRAFE
+HID
+FOI
+CIC
+
+DIAISON SECTION, ARMY COORDINATING DETACHMENT
+
+13-00000

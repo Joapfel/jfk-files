@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_1316.png
+
+Convert to Markdown3 APR 1974
+
+Mr. Robert P. Wheeler
+6600 Millwood Road
+Bethesda, Maryland 20034
+
+Dear Pete:
+
+I am happy to send to you, under separate cover,
+your Agency Retirement Medallion. The Medallion is a
+tangible form of recognition and appreciation of your
+service to the Agency. It should serve as a lasting
+reminder of an honorable career, rewarding associations
+and the knowledge that you played your part in a vital
+activity.
+
+Let me, therefore, add my congratulations and
+wish you the very best for the future.
+
+Distribution:
+* 0 - Addressee
+* 1 - OPF
+
+OP/RAD/ROB/MWBenthall:jtb (26 March 1974)

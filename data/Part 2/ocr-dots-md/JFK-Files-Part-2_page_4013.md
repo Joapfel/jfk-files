@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_4013.png
+
+Convert to MarkdownEP 65-951
+
+complaining that his civil rights had been violated in hopes
+that the FBI would contact the Los Angeles Police and
+facilitate the return of his property. Later, on the same
+day of July 25, 1962, the Police Department did return all
+of his property except the automobile, which was returned
+on July 26, 1962.
+
+Mr. NAGELL stated that in retrospect he believes
+that the Police Department did have a right to take the
+above items in line with their investigation. He stated that
+if it would be possible, he would like to rescind his
+original complaint. Mr. NAGELL declined to furnish a
+signed statement.
+
+The following article appeared in the Santa Monica
+Outlook of July 18, 1962:
+
+"Police Probe Mystery Shooting of Detective
+
+"West Los Angeles police today are investigating
+the strange shooting of RICHARD C. NAGELL, 32, former
+investigative officer for the Alcoholic Beverage Control
+Board.
+
+"NAGELL, in satisfactory condition in Veterans'
+Hospital in West Los Angeles with a bullet wound in the
+chest, isn't talking, according to police.
+
+"Officer JIM MAXWELL said he received a call Monday
+from NAGELL asking that the California Central Investigative
+and Identification Bureau be notified that he had been
+shot. Then NAGELL hung up.
+
+"A few moments later, a second call came in from a witness who said that a man suffering from a bullet wound had driven up to him and asked for directions to a hospital.
+
+"At the Veterans' Hospital, officers found:

@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_2778.png
+
+Convert to Markdown5 OCT 1966
+
+MEMORANDUM FOR: Secretary, CS/CS Panel (Section A)
+
+SUBJECT : Recommendation for Promotion to Grade GS-14,
+(Staff Agent)
+
+1. ~~Who was a Staff Employee~~ up to the time of his conversion to Staff in July of this year, has been connected with the Latin American scene since he joined the Agency in 1951. Even before that time he had lived in some Central American countries. Thus, it is not surprising that he brought to his assignments a thorough knowledge of the social, economic, and political currents throughout the WH Division area.
+
+2. In handling many tasks at various levels of responsibility and different locations, one facet of performance has always been outstanding: he has an unusual ability to apply his imagination toward realistic and useful operations. To be specific: on occasion of the discovery of a Cuban arms cache in November 1963, of the January 1964 riots in Panama, of the April 1965 revolution in the Dominican Republic, and of many other crises and situations which have developed in the WH area immediately took the initiative within and outside the Division for the initiation and coordination of covert action efforts to support U.S. (and Agency) objectives. In his last assignment prior to assuming his duties under nonofficial cover, his constructive analyses of this Division's covert action activities and conclusions therefrom have made a significant impact on the formulation of our operational posture. ~~Kert's~~ task in his current assignment will be to find and develop channels to Latin American Christian Democratic individuals and groups which will require maturity and judgment, tact and operational know-how, creativeness and flexibility. His current assignment is and some others in the past were at a level of a GS-14 if not higher and thus the promotion of ~~to GS-14~~ is strongly recommended at this time.
+
+by Jack W. Oltaln
+William V. Broe
+Chief,
+Western Hemisphere Division
+
+Not Approve
+12/66

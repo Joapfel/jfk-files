@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_755.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+<table><tr><td></td></tr></table>
+
+MEMORANDUM FOR: Clandestine Services Career Service Board
+
+SUBJECT : Recommendation for Promotion from GS-12 to GS-13 for Mr. Jerome A. Fox
+
+1. FE Division recommends the promotion of Mr. Jerome A. Fox from GS-12 to GS-13.
+
+2. Mr. Fox first joined the Agency in 1955 in the DDI. He rose rapidly from GS-07 to GS-12 which grade he achieved in March 1961. He spent one overseas tour in Tokyo in the Factory Markings Program. In April 1963 he transferred to the DDP. This action and the adjustments it necessitated have undoubtedly held him back from the normal career advancement to be expected for one of his ability.
+
+3. In the DDP Mr. Fox first served in Vietnam Operations in Headquarters and then from 1964-1966 in Saigon. There he performed effectively in bothliaison and unilateral operations with elements of the Vietnamese police. He personally recruited several agents and established a successful mail intercept unit. He was first recommended for promotion to GS-13 during his Vietnam tour.
+
+4. In November 1966 Mr. Fox joined FE/PMI, first on the Indonesian and currently on the Philippine Desk. He has served as the Indonesia Desk and Branch referent for Communist Party Operations, where he proved himself to be an excellent analyst. He has also served as a desk officer handling a variety of projects. He has performed his duties in a consistently strong manner, and has shown sound operational judgment. Mr. Fox writes well, and gets along extremely well with his co-workers and contacts. He is now scheduled for a field assignment in Manila in 1969. In view of his strong Headquarters desk performance and his previous recommendation from Vietnam, Mr. Fox was recommended for promotion again in February 1968.
+
+5. Mr. Fox is an experienced and competent Headquarters and field operations officer. He has repeatedly demonstrated his ability to perform at the GS 13 level. In consideration of his fine record of productivity I recommend that he be promoted to GS-13.
+
+Chief, Far East Division

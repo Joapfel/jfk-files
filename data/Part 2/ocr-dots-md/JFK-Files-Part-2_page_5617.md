@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_5617.png
+
+Convert to Markdown# Appendix 1
+
+Alphabetical and numerical listing of CIA employees, agents and collaborators and organizations controlled, financed and influenced by the CIA.
+
+ACOSTA VELASCO, JORGE. Nephew of Ecuadorian President, Jose Maria Velasco. Minister of the Treasury and Minister of Government. Informant and political-action agent of the Quito station.
+
+AGENCIA ORBE LATINOAMERICANO. Feature news service serving most of Latin America. Financed and controlled by the CIA through the Santiago, Chile, station.
+
+AGRIBUSINESS DEVELOPMENT INC. (LAAD). Provided cover for CIA officer Bruce Berckmans, q.v.
+
+AGUERRONDO, MARIO. Uruguayan Army colonel and former Montevideo Chief of Police. Close station liaison collaborator.
+
+AIR AMERICA. CIA-owned airline for paramilitary operations, mainly in the Far East.
+
+ALARCON, ALBERTO. Guayaquil businessman and Liberal Party activist. Principal agent for CIA student operations in Ecuador. Cryptonym: ECLOSE.
+
+ALBORNOZ, ALFREDO. Ecuadorian Minister of Government (internal security). Close collaborator of the Quito station.
+
+ALLEN, JOHN. CIA operations officer at Camp Peary training base, formerly assigned in the Near East.
+
+ALLIANCE FOR ANTI-TOTALITARIAN EDUCATION. Propaganda mechanism of the Montevideo station.
+
+ALMEIDA, WILSON. Publisher and editor of *Voz Universitaria*, q.v., a university student newspaper. Propaganda agent for the Quito station.
+
+ALONZO OLIVE, RAUL. Cuban engineer in sugar industry. Member of commercial delegation to Brazil and Uruguay. Recruited by the CIA in Montevideo before return to Cuba.
+
+AMADOR MARQUEZ, ENRIQUE. Labour and political-action agent of Guayaquil base. Minister of Economy.
+
+AMAYA QUINTANA, ENRIQUE. Leader of the Peruvian Movement of the Revolutionary Left (MIR), recruited in Guayaquil as a penetration agent. Resettled by the CIA in Mexico.
+
+AMERICAN FEDERATION OF STATE, COUNTY AND MUNICIPAL EMPLOYEES. The US member of the Public Service International

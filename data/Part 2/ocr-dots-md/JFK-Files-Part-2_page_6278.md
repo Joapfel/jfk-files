@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_6278.png
+
+Convert to MarkdownARRB OPEN MEETING
+
+6 August 1996
+
+HANDOUTS
+
+Memorandum of Understanding Between the Director of Central Intelligence and the Select Committee on Assassinations
+
+Office of Legislative Counsel Memorandum (OLC 79-2477) dtd
+August 1979; Subject: HSCA Records
+
+Request of Records Disposition Authority
+
+CIA's HSCA JFK Sequestered Records - I [Boxes 1-63]
+
+CIA's HSCA JFK Sequestered Records - II [Box 64]

@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_8554.png
+
+Convert to Markdown13-00000
+
+| Item No. | MSS p. no. |
+|---|---|
+| 300 | 426 |
+| 308 | 437 |
+| 318 | 469 |
+| 319 | 470 |
+| 320 | 471 |
+| 321 | 471 |
+| 322 | 473 |
+| 323 | 474 |
+| 331 | 482 |
+| 332 | 482 |
+| 333 | 483 |
+| 334 | 483 |
+| 335 | 483 |
+| 336 | 484 |
+| 337 | 507 |
+| 339 (line 1, first two words and fifth, sixth and seventh words) | 509 |
+
+SECRET
+
+2

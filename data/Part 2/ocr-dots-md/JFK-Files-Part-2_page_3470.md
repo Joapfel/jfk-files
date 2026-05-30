@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_3470.png
+
+Convert to Markdown4. CIA-sponsored activities at the Helsinki Youth Festival was the next item presented. A full report was given which followed carefully the post-mortem written by the CA Staff.
+
+5. As for CA activities in the remainder of Latin America, the following countries were covered: Dominican Republic, Chile, [Peru], [Haiti] and [British Guiana] were then touched on, with particular reference to the sensitivity of the [US-UK] cooperation on the latter.
+
+6. In Southeast Asia, an up-to-date report was presented on operations in Laos, South Vietnam, and North Vietnam. Problems in connection with North Vietnamese operations were specifically identified.
+
+7. On the [Sino-Indian] conflict, the Panel was made aware of pending and current requests from the [Indian CIB] for assistance in the training of guerrilla forces. The role of the Tibetans was also identified. In response to a query from Mr. Murphy, I said that I did not see any requirement at this time for an increase of our permanent establishment in [India], expressing the opinion that any trainers and paramilitary experts which we might send could be covered for us by the [Indians].
+
+8. In Europe, CA programs in the following areas were updated: Berlin, France and Italy, [Spain], [Finland], and [Cyprus].

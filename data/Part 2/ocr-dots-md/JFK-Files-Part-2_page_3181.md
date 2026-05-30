@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_3181.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+overt position vis-a-vis Cuba, and with the responsibility of coordinating the covert activities of the Agency into that US position. On the covert side Dillon followed the DCI's suggestion that C. Tracy Barnes should be appointed "to devote full time to the direction of the Agency's program with respect to Cuba, and to concert with Amb. Willauer." 6/
+
+Dillon's memorandum then went on to recommend that the members of the Special Group -- Dulles, Gray, Douglas, and Merchant -- should continue to exercise general supervision over the covert operation and to provide the Agency with general guidance in the operation, and -- now at the tag end of the Eisenhower administration -- went on to say that the Group
+
+should continue and intensify its general supervision of the covert-operation ... [and] maintain close and regular liaison with Secretary Anderson of Treasury or his designated representative ... [and] should meet, together with the member's individual principals, with you from time to time as it deemed necessary or as you desire. 7/
+
+In response to this recommendation, the President wrote:
+
+I approve of the suggestions regarding the reorganization of the government's
+
+TOP SECRET

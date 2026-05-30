@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_2508.png
+
+Convert to MarkdownSECRET
+
+what he believes was a commitment on the part of the Agency
+to provide him with financial assistance in the purchase of
+a home. A memorandum dated 16 February 1970, written by
+Mr. Bruce Solie describes this verbal exchange between PDDONOR
+and his case officer. (See Reference A). In addition, a
+memorandum dated 14 August 1972 also written by Mr. Solie
+(Reference B) states that "Nosenko stated that prior to his
+defection in Geneva, he discussed his future with Bagley and
+made three requests, these being:
+
+a. Employment at $25,000 per year;
+
+b. $50,000 in savings account;
+
+c. Assistance in purchasing a house.
+
+According to Nosenko, Bagley, a day or two later, informed
+Nosenko that his requests had been approved and Nosenko
+considers this constituted a valid verbal contract."
+
+3. From PDDONOR's viewpoint therefore an additional
+commitment, quite separate and apart from the three listed
+in paragraph 1 was made to him. Consequently, he now argues
+that a payment made to him in July 1970, in the amount of
+$20,000 and which he used as a downpayment on a house, was
+the fulfillment of this additional commitment and not part
+of the $50,000 he was promised for his two years in place.
+This despite the fact that in the 14 August 1972 memorandum
+as Mr. Solie states in paragraph 5, . . . "Nosenko also
+considers that the assistance in purchasing furniture, a
+house, etc., which he has been given since 1969 should be
+considered as cancelling the matter of the $50,000.
+
+4. What seems to have occurred is a change of position
+on PDDONOR's part. While previously acknowledging that the
+original $50,000 commitment had been met (paragraph 5 of
+Reference B) PDDONOR now takes the position that of the
+below listed payments only $30,000 should be applied against
+the $50,000 commitment. The July 1970 payment of $20,000,
+should be applied against a separate commitment to provide
+assistance in purchasing a home.

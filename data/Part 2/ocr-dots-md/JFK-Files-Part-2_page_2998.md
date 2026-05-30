@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_2998.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+12. XAAZ-22409, 25 Jan 64, sub: The Oswald Chronology, filed in 201-289248.
+
+13. XAAZ-22410, 25 Jan 64, sub: Name List with Traces, and XAAZ-22416, 26 Mar 64; sub: Name List with Traces, 201-289248.
+
+14. XAAZ-22414, 28 Feb 64; sub: Soviet Use of Assassination and Kidnapping, 201-289248.
+
+15. XAAZ-22420, 29 Apr 64, sub: Photo of OSWALD in Minsk, 201-289248.
+
+16. RID AEPAGAN file 74-6-67/1, Archives Job No. 64-619/32.
+
+17. 201-91182 (Irma Jung); SB/CI/P Archives DA file-Germany.
+
+18. 201-96494 (Anatoliy Nikolayevich Krushin); SB/CI/P Archives DA File-Germany.
+
+19. 201-46344 (Gennadiy Kotorovich); RID File 74-6-67/25, Archives Job. No. 65-117/79; SB/CI/P Archives DA File-Germany.
+
+20. 201-89924 (Willi von Hohenegg); SB/CI/P Archives DA File-Germany.
+
+21. 201-286975 (Guenther Faltlhansl); SB/CI/P Archives DA File-Austria.
+
+22. 201-231917 (Calvin Floyd); SB/CI/P Archives DA File-Sweden.
+
+23. 201-313667 (Olafur Eggertson Briem) SB/CI/P Archives DA File-Iceland.
+
+24. 201-248427 (Guenther Schulz); SB/CI/P Archives DA File-Germany
+
+25. 201-314343 (Carlo Gulino); also RID 48-6-28; SB/CI/P Archives DA File-Libya
+
+SECRET

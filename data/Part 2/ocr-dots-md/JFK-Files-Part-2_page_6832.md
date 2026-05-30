@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_6832.png
+
+Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+
+TO : Mr. Tolson ✓
+
+FROM : L. B. Nichols
+
+SUBJECT: TESTIMONY OF HENRY GRUNEWALD KEAN COMMITTEE
+
+DATE; April 28, 1953
+
+ALL INFORMATION CONTAINED HEREIN IS INCLASSIFIED DATE: 2-27-53 BY: SPS-5
+
+I saw John E. Tobin, the General Counsel of the Kean Committee, on Monday evening, April 27th. Tobin pointed out that on the first day Grunewald testified in Executive session,
+
+Tobin then outlined the following particulars:
+
+1. Tobin stated he had ascertained this was probably 67C
+
+2. This was the point which Tobin stated caused him the most concern because there was such a reference in the report of Special Agents dated at New York on July 20, 67C 1951, in the investigation on
+
+3. Tobin outlined this was 67C
+
+4. Tobin stated that Grunewald had the habit of passing out ties at Christmas and that as late as 1951 Grunewald had sent ties to the Director, Clyde Tolson and Guy Hotel. I told Tobin if he was inferring that because Grunewald sent ties to these three individuals they might have furnished him the information, that he ought to be pretty cautious because I knew pretty well what the feeling was. I told him in the first place the Director had not seen Grunewald to my certain knowledge for a long period of time; the Director was not intimate with Grunewald; the Director has not appreciated the manner in which Grunewald has thrown the Director's
+
+cc: Mr. Ladd
+Mr. Rosen
+
+RECORDED - 58
+IFFIED - 58
+
+JAN 141 65-6165-
+
+Telsn:
+
+Jod:
+Hollins:
+Clegi:
+Glova:
+Marko:
+Room:
+Tracy:
+Gosney:
+Moe:
+Vlousova
+Tels. Ba.
+Hoeneda
+Skis —
+Man Goo

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_6481.png
+
+Convert to Markdownwhich could be used as a pretext for such action.
+
+(2) By the same token, it is not US policy to encourage unorganized and uncoordinated mass uprisings since these would be too easily crushed by indigenous Cuban military forces. The likelihood of any spontaneous uprising surviving long enough to receive adequate US aid is small unless it is a part of, or followed immediately by, a planned and coordinated revolt led by a significant element of the Cuban military forces.
+
+(3) Once a revolt begins, the involvement of Soviet forces, either tactical formations or troops manning air defense installations, would result in immediate implementation of OPLANS 312 and 316.
+
+3. Sequence of Operations. The concept of operations set forth in this paper is based on the following general sequence of events:
+
+a. Upon receipt of word that the dissident leaders have agreed to and appear capable of meeting the criteria for US support, approval would be given to commence the coup at the earliest practicable time. (In the event that a coup were initiated without prior US knowledge, the US would proceed as described below but introduction of the special team into Cuba would probably be delayed and its task of gathering information made more difficult. Consequently, it might not be possible for the US to make a decision to support the coup in time to commit forces needed to sustain it.)
+
+b. Upon receiving word that a coup had been initiated, either on a pre-arranged basis with CIA or as a surprise to the US Government, the US would:

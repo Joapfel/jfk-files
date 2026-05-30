@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_1390.png
+
+Convert to MarkdownCONFIDENTIAL
+
+CONFIDENTIAL
+
+14-00000
+
+<table><tbody><tr><td>Is this employee qualified to perform all present duties? Yes __X__ No __X__</td></tr><tr><td>If so, what duty or duties?</td></tr><tr><td>To your knowledge in employee's description of duties under Section 2? Yes __X__ No __X__<br/>Has employee suffered for professional improvement? Yes __X__ No __X__<br/>Do you recommend employee for promotion? Yes __X__ No __X__<br/>If so, to what grade and for what position?</td></tr><tr><td>To grade GS-15. However, there is no current vacancy in JCU T/O.</td></tr><tr><td>For each factor observed check the appropriate box to indicate how the employee compares with all others of the same classification whose professional ability are known to you personally. Do not limit this comparison to the others now under your supervision. Do not hesitate to mark "Not Applicable" on any quality when appropriate.</td></tr><tr><td colspan="2">Existing Factors</td></tr><tr><td>A. Ability to work and get along with people</td><td>Not Applicable __X__ Very Good __X__ Outstanding __X__</td></tr><tr><td>B. Interest and enthusiasm in work</td><td>Not Applicable __X__ Very Good __X__ Outstandings __X__</td></tr><tr><td>C. Security consciousness</td><td>Not Applicable __X__ Very Good __X__ Outstanding __X__</td></tr><tr><td>D. Willing to group instructions</td><td>Not Applicable __X__ Very Good __X__ Outstanding __X__</td></tr><tr><td>E. Knowledge of rules</td><td>Not Applicable __X__ Very Good __X__ Outstanding __X__</td></tr><tr><td>F. Attitude toward co-workers</td><td>Not Applicable __X__ Very Good __X__ Outstanding __X__</td></tr><tr><td>G. Ability to obtain results and get through time</td><td>Not Applicable __X__ Very Good __X__ Outstanding __X__</td></tr><tr><td>H. Leadership</td><td>Not Applicable __X__ Very Good __X__ Outstanding __X__</td></tr><tr><td>I. Capacity (Non-Gullibility)</td><td>Not Applicable __X__ Very Good __X__ Outstanding __X__</td></tr><tr><td>J. Leadership</td><td>Not Applicable __X__ Very Good __X__ Outstanding __X__</td></tr><tr><td>K. Physical Stamina</td><td>Not Applicable __X__ Very Good __X__ Outstanding __X__</td></tr><tr><td>L. Mental Stamina</td><td>Not Applicable __X__ Very Good __X__ Outstanding __X__</td></tr></tbody></table>
+
+CONFIDENTIAL
+
+<table><tbody><tr><td>(1) Is your attitude toward this employee under your control or supervisory</td></tr><tr><td>so that you: definitely need him</td></tr><tr><td>or he will not have his</td></tr><tr><td>Be satisfied with this part of his</td></tr><tr><td>CONFIDENTIAL</td></tr></tbody></table>

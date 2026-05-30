@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_107.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+6. I knew something was bothering LICOOKY/1 and made her drag it out into the open. She started by remarking that WOFIRM and its computer apparently checked the welfare of its old agents every so often, and that this was the nature of our relationship. I explained that this was not the case, that I had found out she was in Manhattan and suggested to Washington that LICOOKY/1 might be of some value to us. This surprised her, and she apologized. She then took off on how when she was in Cuba she had dealt with Fidel and Che and Celia, and when she was involved with Guatemala she was dealing with AREVALO. She said that she didn't want to sound snobbish, but that she was accustomed to dealing with top politicos and intellectuals; she referred to a statement that I had made previously that perhaps she could get Tana de GAMEZ to invite her along to one of Tana's lunches with Cuban Permanent Representative Ricardo ALARCON Quesada. She said that she didn't want WOFIRM to think that she would seek out and cultivate lower level people, that she wasn't built that way. LICOOKY/1 said that even though Tana was a friend and that she liked her, Tana was not her equal, and that Tana wasn't on her pedestal". That ALARCON was certainly not in LICOOKY/1's intellectual category. LICOOKY/1 said that she considered herself as very flexible, but not that much. LICOOKY/1 is a "special person" and that WOFIRM bureaucracy -- with the exceptions of "Bill" (her Mexico case officer, a friend of the writer), C/WH/1 (with whom LICOOKY/1 is particularly taken), and the writer (LICOOKY/1 repeatedly assured me that she had a very sincere esteem for me) -- probably didn't understand or acknowledge this. LICOOKY/1 said her feelings for certain WOFIRMers were one thing, but her dislike of WOFIRM itself was something else. WOFIRM is a massive card index that shows Miguel Angel ASTURIAS as an old "Nicaraguan war-horse" -- ASTURIAS of course is Guatemalan. LICOOKY/1 couldn't stop liking Communists regardless of WOFIRM desires.
+
+and
+
+7. LICOOKY/1 went on and on in this/similar veins, very impassioned, but very straightforward and without personal rancor for the writer. Summing up, the stated reasons as to why she does not wish to continue regular collaboration with WOFIRM are as follows:
+
+A. fear of compromise -- LICOOKY/1 said that were her relationship with us to become known, it would ruin her standing in and associations with the intellectual community;
+
+B. distaste for WOFIRM -- LICOOKY/1 really believes that WOFIRM is a large card file with all the cards having errors on them;
+
+SECRET

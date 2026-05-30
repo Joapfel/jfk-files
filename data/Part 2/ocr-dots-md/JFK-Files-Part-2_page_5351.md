@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_5351.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+CONFIDENTIAL
+
+UNCLASSIFIED
+
+CONFIDENTIAL
+
+UNCLASSIFIED
+
+SECRET
+
+FOLD HERE
+
+RECEIPT PROCESSING
+
+<table><thead><tr><th>CUBIC FEET</th><th>NO. OF CONTAINERS</th><th>TYPE OF CONTAINERS</th><th>DATE RECEIVED</th><th>RECEIVED BY</th></tr></thead><tbody><tr><td>6</td><td>6</td><td>RC</td><td>13 Jan 1981</td><td>(EULIS J. SMITH)</td></tr></tbody></table>
+
+SECRET
+
+CONFIDENTIAL
+
+UNCLASSIFIED

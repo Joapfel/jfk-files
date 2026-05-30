@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_28.png
+
+Convert to MarkdownSECRET
+
+Attachment No. 1 to
+DO/HY Memorandum dated
+
+26 August 1964
+
+3. According to information in C-82943 (CI/OA File), VI/3/DMAI requested a POA on 4 May 1960 for permission to allow the use of Subject to "provide useful information on, or through visiting or unwitting employees, courier access to the Dominican Republic." Results of Greet List No. 100351 dated 4 May 1960 were "no pertinent identifiable information" on 17 May 1960, and a field trace reply of that date was "no derogatory traces." The POA was granted 31 May 1960 and the OA on 11 September 1960. These clearance were cancelled on 31 and 34 March 1961, respectively, in notices to CI/OA by VI/3/DMAI. Reasons for these cancellations were not given. On 29 August 1961, VI/4/Cuba requested a re-instatement of the OA, for use as an informant. The request was granted by CI/OA on 11 September 1961.
+
+4. An investigation report by the Office of Security in 1960 was not unfavorable. It did make reference to information in an FBI report dated 19 May 1960, in Washington, D.C., which also appeared in the Subject's 201 file. This report contained the following information:
+
+a) In 1951, as leader of the Statehood Party, Subject attached compulsory military service for Puerto Rico, calling it taxation without representation. In 1952, however, he was one of the Statehood Party leaders who made public statements of their pride in their U.S. citizenship, their desire to live permanently under the U.S. flag, and their recommendation that pardon and clemency be granted in meritorious cases of persons accused in connection with the nationalist endeavor in 1950.
+
+b) In 1952, Subject reportedly offered a job to Elmer Curet Cuevas, a Communist Party member in Puerto Rico (source not specified).
+
+c) The FBI received information (source not specified) in 1952 and 1953 that Subject received mail from one Juan Antonio Corretjer, a former member of the Puerto Rican Nationalist Party.
+
+-2-
+SECRET
+
+SECRET

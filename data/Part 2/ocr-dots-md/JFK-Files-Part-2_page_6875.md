@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_6875.png
+
+Convert to Markdownthan 70% of the documents that have come before it on appeal from agency
+decisions to keep those same documents classified.
+
+* Original classification decisions, the actions most akin to new secrets, have decreased to historic lows.
+
+* Anecdotally, those of us who are exposed to a wide variety of classified information are noting more and more situations in which information that would have been routinely classified in the past is now routinely unclassified, without any increased threat to our national security.
+
+Mr. Chairman and Members of the Committee, I can state with total confidence that the United States Government stands far in the forefront among nations in the manner, timing and extent to which it makes available to its citizens and the general public its records of governance, including its formerly classified records. In conversation after conversation that I have had over the years with foreign government officials, and with foreign students, researchers, and journalists, one visitor after another has expressed great admiration for the degree of openness offered by our freedom of information laws, and our security classification system, with its limitations on classification and its emphasis on declassifying information as soon as it is prudent to do so.

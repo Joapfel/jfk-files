@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_3262.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+gave a formal "go" to the Covert Action Plan of the Agency which had been agreed to by the 5412 Group. Mr. Nixon's only reported comments during this meeting concerned the cutting off of new capital to Cuba, the pulling out of private American firms, and the possibilities of reducing tourism to stop the flow of American dollars into Cuba. 7/
+
+Perhaps one of the reasons why Vice President Nixon has been attributed with playing a major role in the Bay of Pigs activity has to do with the relationship between Nixon's office and Mr. William D. Pawley, former US Ambassador to Peru and Brazil and a US businessman with extensive investments in Cuba and interests in various other parts of Latin America. Pawley also was a principal contributor to the Republican party, particularly to Mr. Nixon's cause. Apparently hopeful of an appointment as Assistant Secretary of State for Latin American affairs -- assuming a Republican party victory in the 1960 presidential election -- Pawley was a widely known conservative.
+
+In the spring of 1960, shortly following President Eisenhower's decision to promote the anti-Castro program, Pawley's contacts with the Agency (particularly
+
+- 249 -
+
+TOP SECRET

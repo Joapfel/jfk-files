@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_7490.png
+
+Convert to MarkdownSECRET
+
+70-1-1
+CSHB 43-1-
+CHAPTER III, ANNEX B
+
+CLANDESTINE SERVICES
+HANDBOOK NO. 43-1-
+
+15 February 1960
+
+7. Stations or branches often are concerned with personalities not of general CS concern. Files on these may be kept in any desired order. Should such personalities become of general CS interest, they must be brought into the 201 system.
+
+45
+
+SECRET
+
+13-00000

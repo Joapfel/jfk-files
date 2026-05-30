@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_6339.png
+
+Convert to Markdown**TO:** John N. Greer @ DCI
+**FROM:** John F. Pereira
+**DATE:** 03/02/95 05:07:45 PM
+**SUBJECT:** Re: Proposed Regs by JFK Assassination Records Review Board
+
+A number of us have concerns about the broad approach in the proposed regs. Among others, Bob Eatinger has written a memo on the subject. We are preparing a formal response for the Board, which will be sent around for comment
+
+In the meantime, I have had an informal discussion with the Board's Executive Director, David Marwell, advising him of our concerns. He has invited us to propose specific textual changes.
+The Board's deadline is 10 March.
+
+Any additional thoughts would be welcome
+
+**CC:** Edmund Cohen @ DA @ DCI, J. Edwin Dietel @ DA @ DCI, Edward P. Moffett @ DCI, Thomas J. Benjamin @ DCI

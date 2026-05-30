@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_4300.png
+
+Convert to Markdown8 August 1963
+
+MEMORANDUM FOR RECORD
+
+SUBJECT: Minutes of Special Group Meeting, 8 August 1963
+
+PRESENT: Mr. Bundy, Mr. Johnson, Mr. Gilpatrick, and General Carter
+
+Mr. FitzGerald was present for Item 1.
+
+Mr. Herbert was present for Item 2.
+
+Mr. Baird was present for Item 3.
+
+# 1. Cuba - Infiltration/Exfiltration Operations
+
+Of the 13 Cuban operations approved by the Special Group, 2 are to be externally-mounted sabotage operations which will be subject to possible reconsideration up to 12 August 1963. The other 11 operations approved are designed to meet the need for expanded intelligence collection activities and to develop viable internal resistance organizations.
+
+Mr. FitzGerald made a special report on Luis Somoza's conversations with exile leaders. Somoza wants the Cuban exiles to begin aggressive harassment operations against Castro and indicated that the Nicaraguan government was willing to give them a base as well as support, including military aid. Somoza intimated that this may result in Castro's launching an offensive against Nicaragua. If this occurs, Somoza would expect U.S. protection and possibly intervention. Mr. FitzGerald further stated that Manuel Artime, leader of the Movement for Revolutionary Recovery, would be in the U.S., at which time all aspects of his program would be examined. In order to avoid unfavorable complications with Somoza, two operational changes will be suggested:
+
+a. Artime should concentrate on getting resistance started inside Cuba and de-emphasize armed attack and external sabotage.
+
+b. Artime should shift the main weight of his operations to Costa Rica. There should be no break, of course, between Artime and Somoza.
+
+In this connection Mr. Johnson raised the Costa Rican Foreign Minister's question regarding Artime. It was agreed that Mr. FitzGerald would work out the language of the reply with Mr. Cottrell, giving as
+
+See special minutes
+for additional items
+
+SECRET
+EYES ONLY

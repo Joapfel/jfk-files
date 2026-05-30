@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_4038.png
+
+Convert to MarkdownEP 65-951
+
+that Doctor EDWIN A. WEINSTEIN, a civilian doctor assigned to the Neuropsychiatric Center at Walter Reed Hospital had treated him and had a considerable amount of information as to his mental condition. Continuing, he advised that he did not think that he was crazy, but that he felt that he needed psychiatric attention and advice because of the fact that he was highly emotional and at times he could not remember what he was saying or where he was for short periods. He stated that he had requested admission to the psychiatric ward at the Veterans' Hospital, Brentwood, Los Angeles, California, however, he was not granted admission and he stated that to the best of his recollection he made this request in May or June of 1963. He pointed out that all of his medical records could be obtained at the Veterans Administration Regional Office, 1380 South Sepulveda Boulevard, Los Angeles, California.
+
+He further advised that he had been hospitalized at the Veterans' Hospital, Bay Pines, Florida, from December 20, 1962 until January, 1963, at which time he was discharged against medical advice. He stated that he had been confined in this hospital as a result of "spells" that he had been having and that he was in the hospital for observation.
+
+NAGELL was highly emotional, was given to spells of crying, and stated that he had not been able to get his feet on the ground since his discharge from the United States Army in 1959. In this connection, he stated that his wife was a Japanese and that he had resigned his commission as a Captain in the United States Army since she was extremely unhappy with his being assigned to the Infantry. He said that he had resigned the commission and that after the divorce had been granted, he had not been allowed to see his two small children because he had not been able to pay the required alimony.
+
+He stated that he had been employed by the Alcoholic and Beverage Control in California, but had lost his job in 1962. He said that he had not worked since then and actually was not able to do any kind of work because of the time he had spent in the Army. He stated that the only job that he was prepared for was that of an investigator since he had learned this as a Counter-Intelligence Corps representative.

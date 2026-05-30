@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_5741.png
+
+Convert to MarkdownBEFORE
+THE ASSASSINATION RECORDS REVIEW BOARD
+WASHINGTON, D.C.
+
+CIA SPECIAL COLLECTIONS
+RELEASE IN FULL
+
+2000
+
+DECLARATION OF BRIAN LATELL
+
+I, Brian Latell, do hereby declare and say:
+
+1. I presently serve as the Director of the Center for the Study of Intelligence (``CSI'') for the United States Central Intelligence Agency (``CIA or ``Agency'') and have held this position since September 1994. I also hold the position of Chairman of the Editorial Board (``Board'') for *Studies in Intelligence* (*Studies*), a publication of CSI. I have served as a foreign intelligence officer for the United States Government for over 36 years and, at CIA, I have held a variety of senior positions of management and analytical responsibility including serving as a member of the National Intelligence Council for 14 years and National Intelligence Officer (NIO) for Latin America for four of those years. I hold a doctorate, masters and undergraduate degree from Georgetown University, have served as a Visiting Scholar at the Hoover Institution at Stanford University, and presently hold an appointment to Georgetown University's School of Foreign Service as an Adjunct Professor.

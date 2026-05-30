@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_7407.png
+
+Convert to Markdown13-00000
+
+<table><thead><tr><th colspan="4">SENDER WILL CHECK CLASSIFICATION IF TOP AND BOTTOM</th></tr><tr><td>UNCLASSIFIED</td><td></td><td>CONFIDENTIAL</td><td>SECRET</td></tr></thead><tbody><tr><td colspan="4">OFFICIAL ROUTING SLIP</td></tr><tr><th>TO</th><th colspan="2">NAME AND ADDRESS</th><th>DATE</th><th>INITIALS</th></tr><tr><td>1</td><td colspan="2">MR FENDAL</td><td></td><td></td></tr><tr><td>2</td><td colspan="2"></td><td></td><td></td></tr><tr><td>3</td><td colspan="2"></td><td></td><td></td></tr><tr><td>4</td><td colspan="2"></td><td></td><td></td></tr><tr><td>5</td><td colspan="2"></td><td></td><td></td></tr><tr><td>6</td><td colspan="2"></td><td></td><td></td></tr><tr><td>ACTION</td><td>DIRECT REPLY</td><td></td><td>PREPARE REPLY</td><td></td></tr><tr><td>APPROVAL</td><td>DISPATCH</td><td></td><td>RECOMMENDATION</td><td></td></tr><tr><td>COMMENT</td><td>FILE</td><td></td><td>RETURN</td><td></td></tr><tr><td>CONCURRENCE</td><td>INFORMATION</td><td></td><td>SIGNATURE</td><td></td></tr><tr><td colspan="5">Remarks: Copies: To Skip out, Severn<br/>For your info I have attached pages 6 and 7 of DD/10 76-3259 (26 May 1976), covering the A/DOO's portion with the SNODGRASS on MBO.<br/>Also attached as a page from the DCI's statement to the Committee on the same subject (no date)</td></tr><tr><td colspan="4">FOLD HERE TO RETURN TO SENDER</td><td></td></tr><tr><td colspan="2">FROM: NAME, ADDRESS AND PHONE NO.</td><td></td><td>DATE</td><td></td></tr><tr><td colspan="2">WALKER</td><td></td><td>10 Sept 76</td><td></td></tr><tr><td>UNCLASSIFIED</td><td></td><td>CONFIDENTIAL</td><td></td><td>SECRET</td></tr></tbody></table>
+
+(40)
+
+FORM NO. 237 Use previous editions
+1-67

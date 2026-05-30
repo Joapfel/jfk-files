@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_6562.png
+
+Convert to Markdown13-00000
+
+**TOP SECRET**
+
+**g. Timing.**
+
+Obviously, the successful execution of well-planned clandestine or covert operations is time consuming. Recruitment, isolation and training cannot be accomplished in a matter of days. There is no standby reservoir of multi-purpose agents. The operations themselves call for split second timing and are subject both to nature's elements (weather, tides, moon, season) and other uncontrollable and unpredictable circumstances (Cuban alerts, contact with patrols, compromise of internal contacts, actions of anti-Castro groups, or other world events).
+
+Timing problems are compounded by the increased security requirements and the requirements for synchronized actions.
+
+More effective operations can be undertaken when there is some general continuity in the program and there is an opportunity to plan in greatest detail. From a practical standpoint, it is extremely difficult to maintain individual or group motivation and aggressiveness when operations are delayed, aborted, cancelled or subjected to continual modification.
+
+**h. ASSETS**
+
+In considering U. S. assets for covert and clandestine operations against Cuba, it is well to review briefly in an historical context, the situation which faces the U. S.
+
+Prior to Castro's assumption of power, U. S. efforts in the field of intelligence and clandestine operations in Latin America lagged behind efforts in other more immediate problem areas of the world. At the time Castro assumed control in Cuba, there was much open controversy on the question of Castro's subservience to communism, but generally it was assumed that the change of government in Cuba was in the well-known Latin tradition. Later, it was realized that the change of government was not just a change in personalities, but a revolutionary change in governmental system. At this point, early in 1960, plans were developed to assist the people of Cuba in overthrowing their government. This plan
+
+**TOP SECRET**

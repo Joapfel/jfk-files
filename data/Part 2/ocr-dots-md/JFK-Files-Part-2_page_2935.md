@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_2935.png
+
+Convert to MarkdownTOP SECRET
+
+McNamara, Bundy and Lodge to discuss the situation in Vietnam.
+Lodge reported that the United States was in no way responsible for
+the deaths of Diem and Nhu (had they followed his advice, he said,
+they would be alive today) and said he was hopeful about the
+future. The change in South Vietnam's government had been an
+improvement, and by February or March we would see marked progress.
+
+McCone, concerned lest Lodge's statements leave the President
+with the impression that we were on the road to victory, disagreed.
+The Agency, he cautioned, had observed a continuing increase in Viet
+Cong activities since November 1, including military attacks. It
+had also observed a high volume of messages on the Viet Cong
+military and political communications networks, which could indicate
+preparations for sustained guerrilla attacks. Moreover, the new
+government's military leaders were having considerable difficulty in
+organizing the government's political structure and were receiving
+little if any help from civilians, who were staying on the sidelines
+in their traditional role as critics. In consequence, McCone could
+not at this time offer an optimistic appraisal of Vietnam's future
+prospects.
+
+Here, President Johnson observed that he approached the
+situation in Vietnam with some misgivings. A great number of
+Americans had questioned the United States' role in supporting the
+coup, and there were those in Congress who strongly believed we
+should get out of Vietnam. Both of these factors caused him
+considerable anxiety. He was not at all sure the United States had
+
+WORKING DRAFT 99
+Handle via [BYEMAN] Control System
+
+298
+
+TOP SECRET
+
+BY NO. 018-88
+copy 2 of 2

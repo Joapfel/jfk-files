@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_6955.png
+
+Convert to Markdownassassination records is properly identified, reviewed, and made public in the JFK Collection at the National Archives.
+
+The fruits of our labor from the first three years would be realized in our last year, one in which we would be reviewing some of the most difficult records, and potentially most important records, but with the benefit of our invaluable experience. I am happy to report that we have received assurances from the FBI and CIA that they will work with us in a final year to make sure that the necessary resources are applied so that our task can be completed.
+
+## IX. Conclusion
+
+In making our recommendation for a one-year extension, we, the members of the Review Board, are fully cognizant of the difficulties inherent in extending a temporary commission. We are aware of the concern that temporary bodies may have a self-preserving and self-perpetuating instinct, and want to assure you in the clearest and most unambiguous manner that our recommendation is motivated strictly by our desire to complete the job. My colleagues and I were appointed as private citizens and have many competing claims on our time and energy. It is our collective conviction that the additional time is necessary and our sincerest commitment that we will complete our task by the end of Fiscal Year 1998, if given the means.
+
+I would like to note that, as you may be aware, the Administration is supportive of the one-year extension for the Review Board and has submitted an FY 1998 budget amendment to allow us to complete our work, close out our operation, and submit our final report.
+
+Since the Review Board began this effort three years ago, we have witnessed the widespread and passionate interest that the American public has in the assassination of President Kennedy. We have received thousands of letters, telephone calls, faxes and e-mail messages from individuals who care deeply about our history. They come from all walks of life, from all over the country, and are of all ages. Their interest is of varying degrees and they do not all agree on what happened in Dallas on November 22, 1963. However, they do agree that the public has the right to see the files on the assassination.
+
+I believe that what the Review Board is all about can be summed up in a letter we received from a man from California just last week. The author is not a professional historian, not a student working on a paper for a history class, but simply a private citizen interested in learning about this tragic historical event. He wrote the following:
+
+"In my humble opinion, it appears that the ARRB is having a healing effect"

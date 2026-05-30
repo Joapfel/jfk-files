@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_7790.png
+
+Convert to MarkdownCONFIDENTIAL
+
+(d) B-75, dated 9 April 1968; Subject: Attempted Anti U.S.-Demonstrations in Kingston, according to the Special Branch of the Jamaican security service; exempt under (b)(1)(5)B(1).
+
+(e) Memorandum, dated 16 April 1968; Subject: Tentative Plans of Senator Robert Kennedy to Visit West Berlin on 1 May. Incidental reference to the Subject; exempt under (b)(3)(a) and (b)(6).
+
+(f) EX-1623, (rewritten) dated 17 April 1968; Subject: Biographic Summary on Hayden, Thomas Emmett, incidental reference to the Subject; exempt under (b)(3)(a) and (b)(6).
+
+(g) B-88, dated 18 April 1968; FBI provided our representative in Mexico with composite photos of suspected killer; exempt under (b)(3)(a).
+
+(h) B-89, dated 22 April 1968; Subject: Radio Messages for Stokely Carmichael during April 1968 riots in Washington, D.C. Incidental reference to the Subject; exempt under (b)(3)(a) and (b)(6).
+
+(i) B-92, dated 23 April 1968; Subject: Arrival of James Rufus Forman in Paris; incidental reference to the Subject; exempt under (b)(3)(a) and (b)(6).
+
+(j) B-97, dated 25 April 1968; Subject: Investigation of Death of Martin Luther King, Jr.; concerns a subject who did not appear to be identical with FBI's suspect; exempt under (b)(3)(a).
+
+(k) EX-1183 (rewrite of 19 July 1967), dated 26 April 1968; is a Biographic Sketch of Howard Zinn; incidental reference to the Subject; exempt under (b)(3)(a) and (b)(6).
+
+(l) EX-1490, dated 14 June 1968; is a Biographic Summary on Mark William Rudd; incidental reference to the Subject; exempt under (b)(3)(a) and (b)(6).
+
+(m) EX-2148, dated 4 September 1968; is a Biographic Summary on Szymanski, Albert John Jr., incidental reference to the Subject; exempt under (b)(3)(a) and (b)(6).

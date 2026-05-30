@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_2521.png
+
+Convert to Markdown14-0000
+
+Mr. George Martin Roshock
+
+Dear Mr. Rosnck,
+
+Ref. in made to your contract with the U.S. Govt., as represented by
+the Central Intelligence Agency, effective 1 March 1970, as amended.
+
+Effective 26 Dec. 1973 paragraph five (5) entitled "Allowances, Travel and other Expenses" is amended by the deletion of the last sentence in its entirety and by substituting in lieu thereof the following:
+
+"If in the course of this contract you are directed to travel or are authorized to incur other expenses, reimbursement of such expenses will be made on a commuted rate basis, based on constructive cost, while in the Washington metropolitan area. This commuted rate sum will not be reduced by any operational entertainment, that may be provided to you."
+
+All other terms and conditions of the contract, as amended, remain in full force and effect.
+
+Signature..

@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_2505.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+29 MAR
+1970
+
+CI 121-79
+
+MEMORANDUM FOR: Chief, Contract Personnel Division
+
+FROM : David H. Blee
+Chief, Counterintelligence Staff
+
+THROUGH : Chief, Career Management Staff
+Manpower and Support Branch/Contract
+
+SUBJECT : Amendment to Contract for
+George Martin Rosnek
+
+1. **Action Requested:** It is requested that the contract for Mr. George Martin Rosnek, an Independent Contractor, be amended to increase his compensation from $37,270 to $41,270 per annum effective 8 April 1979.
+
+2. **Background:** In September 1978 Mr. Rosnek, a former senior officer of the KGB, raised with his case officer the question of prior financial commitments made to him by the Agency. Specifically, he claimed that the Agency still owed him $20,000 of an original commitment of $50,000 made to him at the time of his defection. This $20,000 claim has become an obsession with Mr. Rosnek and is likely to affect negatively his relationship with the Agency unless resolved to his relative satisfaction. Attached for background information are documents relating to Mr. Rosnek's claim.
+
+3. After careful consideration of the equities involved in this case it is my belief that security considerations dictate that we settle Mr. Rosnek's claim in the following manner. I will approve an increase in his annual payment by $4,000 effective April 1979 (from $37,270 to $41,270). Thereafter, his annual compensation would be increased each October in the amount identical to the cost of living increase given to US Government employees. (This cost of living provision is currently in his contract). However, at such time
+
+CL BY 063765
+
+RVW 26 Mar 99 DRV D9c.1
+
+SECRET

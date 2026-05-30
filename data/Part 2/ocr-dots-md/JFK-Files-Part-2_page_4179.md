@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_4179.png
+
+Convert to Markdown6.
+
+Turning to the domestic scene, we will have a deficit of about $12
+of $12½ billion. We have made an effort to hold the deficit down and
+we have in the past three years. Except for Defense and Space and
+Interest on the Debt we have increased the National Budget but it
+has been increased less than it was under the previous Administration.
+With the tremendous movement from the country to the cities, we have had
+many problems. While the costs have increased, the receipts have dropped.
+We have only increased about 1% a year in the growth rate during the past
+ten years. This is serious, particularly with the great increase in pop-
+ulation.
+
+I think this Tax Bill is very important. If we get another recession
+in this country it will have a bad effect on the gold reserve.
+
+It will have a bad psycological effect on the people of the U.S. And when
+we see the strong position that Mr. Khruschev is taking with regard to
+agricultural and other domestic sections of the economy -- and if we just
+drift, we will look very bad to other nations.
+
+Furthermore, the deficit is a reflection of the fight in the hot and
+cold war we have been fighting during the past fifteen years. If we
+go to a deficit of $12 billion, this would be a most serious affair for
+the United States. If we can go forward with the present Tax Bill, we
+will be in much better shape. All of these matters -- the tax program,
+AID, defense, etc. are all related.
+
+The Military are disturbed because of our failure to go forward with
+certain programs. For instance: The B-70, Nike-Zeus, Skybolt. As a
+matter of fact, we are going forward with a large program and there is a
+limit to how much we can do, and if the necessity develops we will do more.

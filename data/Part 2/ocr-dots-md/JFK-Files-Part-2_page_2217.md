@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_2217.png
+
+Convert to MarkdownSECRET
+
+27 October 1966
+
+MEMORANDUM FOR: Mr. Emmett D. Echols
+Director of Personnel
+
+SUBJECT: Notification of Non-eligibility for Designation as a Participant in the CIA Retirement and Disability System
+
+1. Reference is made to your memorandum directed to me, dated 28 September 1966, entitled as above, in which it is stated that I may request that my case be formally considered by the CIA Retirement Board and that such request must be made within 30 days of the date of the notification. Other pressing responsibilities have not permitted me to prepare for formal consideration a challenge to the decision of non-eligibility. My request, through the support officer of the Staff to which I am assigned, for a reading on retirement benefits which I might receive should I retire on 31 December 1966 or five years from that date, would not constitute a formal request of a decision as to my eligibility for retirement under the CIA Retirement System. The figures provided me in that connection were simply to serve as a guideline for my own considerations as to possible future retirement.
+
+2. This memorandum is directed to you and to those to whom comes are designated to preclude the expiration of this day, 27 October 1966, without protesting the notification that I must provide certain notification within 30 days of 28 September 1966. I am informed that other officers of CIA who have not qualified for retirement have not in fact been given such notifications and my inquiry concerning possible benefits should not require therefore a formal decision that I am not eligible on any specific basis.

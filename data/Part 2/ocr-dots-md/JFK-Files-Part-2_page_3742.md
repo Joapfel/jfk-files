@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_3742.png
+
+Convert to MarkdownSECRET
+
+CONTINUATION SHEET
+---
+
+Section C - Narrative Comments
+
+Subject has additional growth potential as an intelligence officer and as a first echelon supervisor of individuals doing a basic intelligence task. Ethnic origins, foreign language fluency and experience acquired to date generally dictates a career for Subject in the general arena of Greek operations. While the major thrust of Subject's career orientation should be geared toward Greece and its related problems, it is believed that it is essential that, on a periodic basis, Subject be directed into non-Greek areas of interest, in order that the continued challenge of new horizons will stimulate Subject to develop to his full capacity. In practical terms, this means that out of any eight-year time cycle, at least two years should be spent by Subject on non-Greek or even non-European affairs. This officer has the potential to be a broad-gauged officer but he must be stimulated and led in that direction which will fully harness the totality of his potential.
+
+The rating officer would be pleased to have Subject work with him at any other Field Station that might be entrusted to the rating officer.

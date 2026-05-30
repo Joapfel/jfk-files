@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_7592.png
+
+to Timofeyev, Head of Biological Dept, Sungul Institute. Moskalev, a nerve physiologist and party man, worked with Catsch (and subsequently succeeded him) on research on curing or preventing radiation damage. (Source is Dr Wilhelm Henke (STIB), a returned German scientist who gave information on Soviet personalities at the Nuclear Research Institutes at Sukhumi, between 1945 and 1955.) SOURCE: CIA, CS-G-82811, 1 Mar 56, SECRET/NOFORN RELEASABLE TO U.K./CONTINUED CONTROL</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>MOSKALEV, Yuriy Ivanovich - worked as a sci. asst. in source's lab. at Sungul. Took the position of chief of the pathophysiological lab. when source left in Oct. 53. Not well qualified. Was supposedly imprisoned during the war because of his German descent or for black market dealings. Became a Party member in 1951. Had one month's TDI at the Biophysical Inst., Moscow during the last half of 52. Upon his return, he informed source that the inst. was doing intensive work on the hematological effects on dogs of radiation exposure. The inst. was also working on radiation effects on the nervous systems of dogs, similar to the conditioned reflex experiments of Pavlov. He also stated that the inst. was doing parallel work to Sungul on increasing the excretion of incorporated radioactive isotopes, using diuretic substances & hormones, particularly the parathyretrope hormone. No special results were achieved. He was married to Vera Nikolayevna Streltsova. Age 35. Medium height. Dark blond.</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>SO: CIA, CS-G-EG-1550, 24 Apr. 56, Secret.</td>
+    <td>joe</td>
+   </tr>
+   <tr>
+    <td>SRI, Consol, Biblio, lme, Ju</td>
+    <td>)956 )</td>
+   </tr>
+  </table>

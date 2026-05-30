@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_1237.png
+
+Convert to MarkdownSupplement to Staff Agent Personnel Action
+
+For _______________. Effective ____________ 27 MAY 1962
+
+Mr. _______________
+Dear Mr. _______________
+
+In view of your contemplated cover assignment, you have been designated a Staff Agent. The purpose of this Supplement is to call your attention to existing policies which are particularly material to you while you are so designated and to set forth certain rights and obligations incident to your status as an appointed employee.
+
+1. **Payroll Administration.** As indicated in your Staff Agent Personnel Action, your present salary and grade are $11,675.00 and GS-13 respectively, and you are entitled to receive the salary, allowances and other benefits applicable thereto, however, certain procedural variations will be followed to preserve the security of your cover position,
+
+(a) The gross emoluments that you receive from your cover activities will be retained by you as an offset against the gross emoluments due you from this organization. It, except as provided in paragraph 4 below, your cover emoluments ever exceed those due you as a Staff Agent, the overage is to be remitted to this organization on a monthly basis, unless a different period is specified.
+
+(b) Your Federal income taxes will be withheld and reported in conformance with HR 20-33 or any subsequent regulations or procedures promulgated by this organization. For your information, this organization shall withhold from the gross payments due you Federal income taxes in an amount which, when added to the income taxes withheld by your cover facility, will equal the tax withholdings normally made from your gross taxable compensation with this organization. If there is no differential if it is insufficient, you will be required to make tax remittances in conformance with HR 20-661-1. Also, that issuance together with R 30-720 covers the procedures to be followed in order to receive reimbursement for foreign income taxes imposed upon you:
+
+(c) This organization will deduct from the gross payments due you an amount equivalent to six and one-half percent (6 1/2%) of your gross salary for contributions to the Civil Service Retirement Fund. This amount will be deducted from the differential due you by this organization. If there is no differential or if it is insufficient, you will be required to make direct remittances to this organization in satisfaction of the required contributions.
+
+(d) If permanent quarters are not furnished, your quarters allowance will be granted at the maximum rate established for your post of assignment. Family status and grade. No accounting for this allowance will be required.
+
+If your position requires, for your benefit, a cover letter to the Social Security Fund, such contribution will be at your expense. However, voluntary contributions for cover facility programs, such as insurance and retire ment, may be considered items of expense to this organization, and to
+
+S-T-C-R-F-T

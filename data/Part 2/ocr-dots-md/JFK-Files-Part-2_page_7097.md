@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_7097.png
+
+Convert to Markdown13-00000
+
+SECRET
+NO FOREIGN DISSEM
+
+Guiana, and other countries. Indeed, on at least two recent occasions, Che Guevara was quoted as restating familiar Cuban views on revolution. In an interview published in an Italian newspaper in March, Guevara reiterated that the road to "national liberation" in Latin American must take a turn to violence. He emphasized that violence would be "necessary" in "almost all" Latin American countries, for "there is no other way." In an April interview in Algiers, Guevara said: "It is very, very, very, very, but very, hard to achieve liberation in Latin America by employing peaceful means."
+
+6. A number of reliable clandestine sources have provided information on the many facets of Cuba's subversive effort in Latin America. The most serious form of subversion from Havana is its training of other Latin Americans in the practical arts of guerrilla warfare. As many as 1,500 received such training in 1962. It is estimated that several hundred of the known 2,500 Latin Americans who traveled to Cuba in 1963 also received such training. It has been learned that "scholarship students" who go to Cuba ostensibly to study "agriculture" receive guerrilla warfare training. This instruction encompasses the use and management of communications equipment; the techniques of military intelligence, including methods of establishing intelligence networks to obtain information from peasants; training in a variety of weapons, including rifles and small arms, which are readily available in most Latin American countries; training in explosives, and training in guerrilla tactics, including instruction on how to operate independently in the countryside for extended periods of time. A separate training school reportedly trains Communist youth from other Latin American countries. The school's one-year course is divided between the study of Communist theory and practical training in political agitation and subversive activities. Reports from returning trainees confirm that the Cubans are developing extensive files on most Latin American countries on subjects pertinent to the planning and development of further subversive activity. Detailed questionnaires submitted to the training trainees requested comments on possible air drop zones, weather conditions, locations of military bases, competence of local authorities, border and frontier controls, and a long list of similar questions, obviously designed to build up a body of basic knowledge about the Americas.
+
+NO FOREIGN DISSEM
+SECRET

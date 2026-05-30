@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_6826.png
+
+Convert to MarkdownMemorandum to Mr. Tolson
+
+he was very greatly concerned about this entire matter and that, in order
+for honesty and justice to prevail, an arbitrator should be set up who would
+listen to all of the evidence and then furnish a complete report to the
+Supreme Court. Justice Fortas added that naturally the arbitrator would
+be someone whom the President could trust to furnish the absolute true facts.
+
+He stated the next problem would be to find this particular man. He said he had in mind somebody like Ken Royal, former Secretary of the Army. He asked me what I thought of him. I told him I naturally had heard Mr. Royal's name, however, Mr. Hoover would have far better judgment on this matter than I would. He next stated that perhaps someone like Ross Malone, former President of the American Bar Association, would be good in this regard. I told him that we had enjoyed very favorable relations with Mr. Malone. Justice Fortas then mentioned that there was an immediate past President of the American Bar Association from the State of Virginia. I told him he probably was thinking of Lewis Powell. He stated this was correct. He asked me what I thought of Powell. I told him that Mr. Powell had generally concurred with Mr. Hoover's beliefs concerning crime, however, on occasions he had been somewhat naive and a little weak. Justice Fortas stated that he thought Royal or Malone would be the best man.
+
+Justice Fortas told me that he would take the above action immediately. He stated he was going to Jacksonville, Florida, today; however, he would try to talk to the President prior to his departure---if not, he would discuss this matter with the President Thursday morning, 6/16/66. I told him that time was growing short inasmuch as the Supreme Court wanted an answer almost immediately. He stated this was true and that, as a matter of fact, once the arbitrator was appointed all of his facts would have to be gathered and furnished to the Supreme Court within two weeks. He stated he thought this could be done.
+
+Justice Fortas told me that he wanted to mention another subject. He stated that he had already taken steps to disqualify himself in the Hoffa case. He mentioned that the Black, Baker and Hoffa cases would be continuing cases which would go on for many years. He asked me if I knew of any irregularities on the part of Bobby Kennedy in connection with the Hoffa case. I replied in the affirmative, stating that Kennedy on one occasion had specifically asked an FBI representative to place a microphone on an attorney by the name of Haggerty. I stated this action had been taken despite the fact that the FBI had not wanted to do this. Justice Fortas replied that he had felt that such might be the case and that under the circumstances
+
+CONTINUED....OVER

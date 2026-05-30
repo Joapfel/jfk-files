@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_6265.png
+
+Convert to MarkdownASSASSINATION RECORDS REVIEW BOARD
+
+600 E Street, N.W.
+Washington, DC 20004
+
+MEMORANDUM
+
+via facsimile: † pages
+
+TO:
+JOHN PEREIRA
+CIA HAS NO OBJECTION TO
+DECLASSIFICATION AND/OR
+RELEASE OF CIA INFORMATION
+IN THIS DOCUMENT
+
+DATE: September 23, 1994
+
+FR:
+JOHN R. TUNHEIM
+Chair
+
+PHONE: (612) 296-2351
+
+RE: PEREIRA LETTERS
+
+Please disregard the letter faxed to you on the issues the Review Board would like to review on Wednesday, as that was a preliminary draft of the issues. On Monday you will be faxed a letter which will be in final form of the issues the Review Board would like to discuss. I apologize for any confusion this may have caused. Thank you.
+
+ADDRESS FOR REVIEW BOARD CHAIR
+
+102 State Capitol • St. Paul, Minnesota 55155-1002
+612 296-2351 • TOD 612-297-7206 • Fax 612-297-4193

@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_2188.png
+
+Convert to Markdown14-0000
+
+104-10291-10014
+
+October 18, 1969
+U.S. SECRETARY COMMISSION
+Papers Personnel Manual B-1
+90-P01
+
+SECRET
+
+Official Personnel Folder
+
+SECRET
+
+RETURN TO RECORDS CENTER
+IMMEDIATELY AFTER USE
+JOB 72-60 BOX 26
+3/53392
+
+ONEAL, BIRCH D.
+
+TERMINATED 68553 D
+
+67 JUN ENDED

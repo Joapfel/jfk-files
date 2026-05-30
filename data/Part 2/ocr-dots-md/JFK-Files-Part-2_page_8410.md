@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_8410.png
+
+Convert to MarkdownSECRET
+
+-16-
+
+23. Telephone contacts:
+
+Cruz receives and makes many long distance phone calls at his home. Calls came in from Havana, the Cuban Mission in New York, and from cultural/press contacts throughout Mexico. This was quite true during the pre-Olympic season when the Cubans had many cultural affairs (dance teams, art, etc.) circulating around Mexico. Now the calls mainly concern press matters. He calls the Cuban Missions in Canada and New York and purchases they are making for him. Also calls Havana and they call him at home.
+
+24. Tobacco:
+
+Mercedes used to smoke "KOOL" cigarettes when she was in Paris.
+
+As of November 1970 it does not appear either smoke now.
+(LITAINT-2)
+
+25. Alcohol:
+
+March 1968 Mercedes said Cruz was drunk the previous night. No more details. (LISAMPAN/BAKER).
+
+LITAINT-2 reports Cruz cannot hold liquor, but insists on drinking cognac. (November 1970) Gets drunk occasionally.
+
+26. Eating habits:
+
+15 August 1968: Cuban maid said Mercedes and Cruz eat very little ordinarily. They prepare barely enough so nothing is left over, and a last minute guest is a problem. Insinuation is that Mercedes is very tight.
+
+SECRET

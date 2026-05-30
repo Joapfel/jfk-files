@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_938.png
+
+Convert to MarkdownCONFIDENTIAL
+(Then filled in)
+
+<table><tr><td colspan="2">5. VOLUNTARY ENTRIES<br/>Experience in the handling of employee emergencies has shown that the absence of certain personal data often delays and complicates the settlement of estate and financial matters. The information requested in this section may prove very useful to your family or attorney in the event of your disability or death and will be disclosed only when circumstances warrant.<br/><br/>INDICATE NAME AND ADDRESS OF ANY BANKING INSTITUTIONS WITH WHICH YOU HAVE ACCOUNTS, AND THE NAMES IN WHICH THE ACCOUNTS ARE CARRIED.</td></tr><tr><td>ARE YOU A MEMBER OF THE NORTHWEST FEDERAL CREDIT UNION?</td><td>☑ YES ☐ NO</td></tr><tr><td>IF YES, DO YOU HAVE A JOINT-OWNERSHIP?</td><td>☑ YES ☐ NO</td></tr><tr><td colspan="2">HAVE YOU COMPLETED A LAST WILL AND TESTAMENT? ☑ YES ☐ NO. (If "Yes" where is document located?)<br/>Northern Virginia Bank, Reserve Bank of Northern Virginia</td></tr><tr><td colspan="2">HAVE YOU PREPLANNED AN ARRANGED GUARDIANSHIP OF YOUR CHILDREN IN CASE OF COMMON DISASTER TO BOTH PARENTS? ☑ YES ☐ NO. (If "Yes" give name(s) and address)</td></tr><tr><td colspan="2">HAVE YOU EXECUTED A POWER OF ATTORNEY? ☐ YES ☑ NO. (If "No", who possesses the power of attorney?)</td></tr><tr><td colspan="2">6. ADDITIONAL DATA AND/OR CONTINUATION OF PRECEDING ITEMS</td></tr><tr><td colspan="2">7. RESIDENCE DATA - TO BE COMPLETED ONLY BY EMPLOYEES ENTERING ON DUTY<br/>(No Approval Required)<br/>RESIDENCE WHEN EMPLOYED (Full Address)<br/><br/>PERMANENT PLACE OF RESIDENCE AS DEFINED IN HR 22-3 (Full Address)</td></tr><tr><td colspan="2">9. CHANGE IN PERMANENT PLACE OF RESIDENCE (See HR 22-3)<br/>(To Be Completed by Employee Desiring Such Change While Assigned to Headquarters)<br/><br/>FULL ADDRESS<br/><table><tr><td>DEPUTY DIRECTOR ON RESIDENCE</td><td>DATE</td></tr><tr><td>DIRECTOR OF PERSONNEL (when applicable for HR 22-3)</td><td>DATE</td></tr></table><br/><br/>SIGNED AT<br/>Wash DC<br/><table><tr><td>DATE<br/>4 Oct 73</td><td>SIGNATURE<br/>Shore For</td></tr></table></td></tr></table>
+
+CONFIDENTIAL
+
+14400000
+
+68F6F6F6F68D3DCCD9E0A0000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000

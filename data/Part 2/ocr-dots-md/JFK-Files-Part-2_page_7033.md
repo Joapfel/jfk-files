@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_7033.png
+
+Convert to Markdown3. How a Request was Worked Following receipt of a request and HRP tasking the responsible Agency component(s) to conduct a search, the materials found were first reviewed by HRP staff members before access was provided to the ARRB staff. ARRB staff then reviewed the documents and materials and identified those which it believed were relevant to their inquiry and these materials were placed in the normal queue to be reviewed and processed for release. However, the mere identification of materials did not equate to automatic release. Rather, if particularly sensitive information was involved, negotiations took place and, on occasion, a written statement about the materials was provided for release vice the actual document(s).
+
+4/21. The Agency's written responses to each request - either a letter or memorandum - included, of course, the fact that the materials designated were to be processed for release according to then current guidelines. The ARRB staff then wrote its own version of the request, search, and response. Both of these are a part of the public record on this project.
+
+5A. Lessons learned: A number of things surfaced as HRP worked to complete these requests which required considerable explanation, negotiation, and resolution.
+
+a. First among these was the fact there existed an outside Board which asked for information and carefully monitored the responses (a very powerful external Board with subpoena authority), without doubt caused documents and information to be found and made available that would not have been provided to an internal declassification project.
+
+b. Second, for any large project such as JFK to be successful, there is an absolute requirement that each directorate and independent office identify two responsible persons -- a senior management official who can ensure that deadlines (particularly deadlines established by an external
+
+13-00000

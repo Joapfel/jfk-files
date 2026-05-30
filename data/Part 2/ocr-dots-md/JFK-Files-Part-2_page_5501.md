@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_5501.png
+
+Convert to MarkdownAssassination Records Review Board
+
+600 E Street NW • 2nd Floor • Washington, DC 20530
+(202) 724-0088 • Fax: (202) 724-0457
+
+August 23, 1995
+
+HAND DELIVERED
+
+John A. Hartingh
+Inspector-in-Charge
+JFK Task Force
+Federal Bureau of Investigation
+10th Street and Pennsylvania Avenue, N.W.
+Washington, D.C. 20535
+
+RE: Foreign Government Liaison
+
+Dear John:
+
+This morning, Jack Tunheim, Phil Golrick, and I met with Kenneth Duncan and several State Department representatives regarding how best to implement the JFK Act as to information obtained from foreign governments through liaison channels. We had a very constructive discussion of the affirmative role the State Department could play in encouraging foreign governments, through appropriate diplomatic channels, to agree to the release of such information pursuant to the JFK Act. The Review Board believes that Section 10(b)(2) of the JFK Act contemplates that the State Department play precisely such a role.
+
+As for now, we will hold in abeyance requests for evidence on foreign liaison postponements to which the FBI has not yet responded. This will give us the opportunity in the near future to work with the State Department and the FBI to establish orderly procedures to persuade the foreign governments in question that it is in our countries' mutual interests to release liaison information in assassination records. Until such procedures are in place, we request that the FBI not make further contact with foreign law-enforcement or other government officials regarding the release of liaison information in assassination records.
+
+BOARD MEMBERS: John R. Tunheim, Chair • Henry F. Graff • Kermit L. Hall • William L. Joyce • Anna K. Nelson
+EXECUTIVE DIRECTOR: David G. Marwell
+
+CIA HAS NO OBJECTION TO
+DECLASSIFICATION AND/OR
+RELEASE OF CIA INFORMATION
+IN THIS DOCUMENT
+
+Copy provided to
+CIA by FBI

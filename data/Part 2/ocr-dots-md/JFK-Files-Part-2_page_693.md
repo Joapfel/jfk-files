@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_693.png
+
+Convert to Markdown<table><tr><td>CLASSIFIED INFORMATION</td></tr></table>
+
+14-00000
+
+104-10269-10079
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+<table><thead><tr><th colspan="3">CLASSIFIED INFORMATION</th></tr><tr><th colspan="2">SECRET</th><th></th></tr><tr><th>DATE :<br/>313 ERB<br/>17 MAY 61</th><th>TO : BELL<br/>FROM : RIO DE JANERIO<br/>ACTION : BELL 15<br/>INFO : DDP, COP, ADDP/A, WH, S/C 2</th><th>OUTING<br/><table><tbody><tr><td>1</td><td>CET</td><td>4</td></tr><tr><td>2</td><td></td><td>5</td></tr><tr><td>3</td><td></td><td>6</td></tr></tbody></table><br/>MAY 18 1340Z 61<br/>ROUTINE<br/>IN 2065</th></tr></thead></table>
+
+BELL WAVE MEXI INFO SAOP (BY POUCH) CITE RIOD 5366
+JMZIP
+
+1. ACCORDING LOCAL PRESS CUBAN VICE MINISTER FOREIGN AFFAIRS CARLOS OLIVARES NOW IN MEXI, PLANS COME BRAZIL ABOUT 20 MAY TO "PROCLAIM TRUTH ABOUT CUBAN REVOLUTION".
+
+2. REQUEST SOONEST RESUME DEROG INFO OLIVARES TO BE PASSED HIGH LEVEL LIAISON.
+
+3. REQUEST MEXI ADVISE RE TRAVEL.
+
+END OF MESSAGE
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No.

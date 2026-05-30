@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_2128.png
+
+Convert to MarkdownSECRET
+
+18 March 1968
+
+MEMORANDUM FOR: Chief, Clandestine Services Personnel
+Staff
+
+ATTENTION : Mr. Frank De Wald
+
+SUBJECT : Request to Revert to Civil Service
+Retirement System - James A. Noel
+
+In accordance with your request there is attached (sterilized) copy of the original dispatch signed by subject in pseudonym, addressed to the Director of Personnel, in which he requests to revert to the Civil Service Retirement System. This is forwarded for appropriate action by C/CSPS.
+
+Virginia C. Lynch
+Chief, DO Personnel & Training
+
+Attachment: A/S Above
+
+SECRET

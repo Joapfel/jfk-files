@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_2977.png
+
+Convert to MarkdownSECRET
+
+(SAM) sites to the Cubans.
+
+Finally Rusk recommended that CIA's raiding assets be kept in being but not actually used--at least until the OAS and SAM sites problems could be clarified. The President accepted this recommendation. Although CIA did try to keep its sabotage agents ready, the White House decision spelled the end of the Agency's sabotage (though not support and intelligence-collecting) infiltrations of Cuba.
+
+Agency-sponsored radio propaganda aimed at Cuba reached its peak in early 1965 with an actual expenditure of about $1,500,000 and expansion still planned. The semi-notional Cuban Freedom Committee served as cover for Radio Free Cuba, which broadcast a total of 77 hours weekly from transmitters in Miami, Key West, and New Orleans.
+
+Started in 1961, the Cuban Freedom Committee retained a public relations firm and spent $7,000 annually to establish its cover by soliciting bona fide public contributions. In its first year these totalled $5,000, but by 1965 public support had waned to $200. One of the difficulties was that any widespread US appeal for funds for Radio Free Cuba
+
+SECRET

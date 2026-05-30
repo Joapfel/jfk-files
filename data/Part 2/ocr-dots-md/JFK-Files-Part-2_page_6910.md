@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_6910.png
+
+Convert to MarkdownThe whole point of this legislation was to create new criteria and new procedures to maximize the release of information hitherto withheld by the Government. The old laws and old procedures have been tried for the last 30 years, and have not produced the type of disclosure needed to restore the confidence of the American people.
+
+It seems to me that just this once, where the public policy interest in full disclosure of these records is so apparent, the Justice Department could dispense with its usual "to-the-last-man" defense of Executive branch prerogatives, and help us deal with solving the problem.
+
+I feel obliged to take special note of one point in the Justice Department letter, and that is their claim that the Executive branch must have not only increased safeguards over its own material -- but also have the ability to veto release of any congressionally-created assassination record. This strikes me as preposterous, particularly coming from a department that is ostensibly so concerned to preserve a separation of powers. If Congress wants to release information it has developed, the President should not be able to stand in the way.
+
+Hopefully, the Committee will yet be able to obtain executive branch cooperation and move forward with this process. The public expects action on this matter, as the many letters, postcards, and

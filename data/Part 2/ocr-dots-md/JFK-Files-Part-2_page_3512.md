@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_3512.png
+
+Convert to Markdown13-00000
+
+TOP SECRET DINAR
+
+CUBAN SUPPORT OF EXTERNAL SUBVERSIVE ACTIVITIES:
+
+The (Chilean ambassador) in (Venezuela) is convinced of the accuracy of (Venezuelan) charges of Cuban subversion. (Page 11)
+
+There is an additional report on the use of a Cuban transport plane to supply pro-Castro groups in Venezuela with weapons. (Page 12)
+
+Cuban Chargé Lasalle in Bolivia is reportedly supplying weapons to the leftist section of the governing party, as the serious political crisis there becomes more intense. (Page 12)
+
+A clandestine source has reported that two Cubans are with a group of Peruvian leftists currently hiding in Bolivia, and that Castro has agreed to provide money and guerrilla training for a rival group. (Page 12)
+
+iv
+
+TOP SECRET DINAR

@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_4768.png
+
+Convert to MarkdownSECRET
+
+in. And maybe Seymour Hersh is right. Maybe you can do
+without that 5 percent. I don't know. But I don't want to
+try. He is willing to try. But a lot of it is wasteful. No
+question about that. You got an Army, you got a Navy, you got
+an Air Force. If that ain't waste, my God. But when you need
+them, oh, you need them.
+
+INTERVIEWER: It takes time.
+
+MR. HALPERN: You've got to have lead time. And this is why I
+remember we were talking in terms of clandestine collection.
+Why we try so damn hard, particularly in the beginning, being
+purists to not even talk to the DDI analysts because we might
+get captured by them and become their researchers or their
+legmen, running around in the middle of Africa finding out
+where the hell the wheat fields were or the bridges were up or
+down or the railways weren't operating or what. And you can go
+to the Library of Congress and spend two or three months and
+dig it all out. So we'd try to keep away from those guys for
+years. And the whole requirements mechanism was created to
+screen all these requests. And from all over the government
+for information on things happening abroad. And I'm sure the
+analysts thought we were a bunch of nuts not wanting all these
+things to do. But we didn't. You know clandestine collection
+is a tough goddamn job if you are going after hard targets.
+It's not cocktail gossip. In fact, the Russians used to say,
+get me a piece of paper, get me a document. That's what you
+want. You want some foreign government's document. You don't
+
+111
+SECRET

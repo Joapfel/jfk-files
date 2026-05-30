@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_7012.png
+
+Convert to MarkdownSECRET
+
+HPSCI BRIEFING - JFK DECLASSIFICATION
+
+10 April 1996
+
+1. Nature of the records--Oswald 201, Sequestered (handy copy)
+   (63 + 72)
+
+- Other records: Minutes of DCI morning meetings; working files
+
+- Third Agency documents: FBI, SSCI, Presidential libraries
+
+2. Pages released (227,000)
+
+- Percentage of pages redacted; 70 %
+
+3. Process of declassification
+
+- Former senior officers in HRG review
+
+- Coordination with OGC, DO (DO team detailed to HRG)
+
+4. Standards for review in JFK Assassination Records Collection Act, 1992
+
+- Records related to the assassination or investigation into the assassination [Eckson and activities]
+
+- Law provides grounds for postponement of disclosure of records
+
+- "Clear and convincing evidence" must be presented to the Board
+
+E.g., Identity of agent currently requiring protection
+
+- Source or method currently utilized
+
+- Foreign government relationship currently requiring protection
+
+5. Board has authority to release records unless it agrees there is "clear and convincing evidence" to support a postponement
+
+- Board then has to justify on the record each redaction with which it agrees
+
+- Once a determination is made, Board must publish it in Federal Register within 14 days

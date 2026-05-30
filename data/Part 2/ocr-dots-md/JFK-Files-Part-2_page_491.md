@@ -1,0 +1,70 @@
+# JFK-Files-Part-2_page_491.png
+
+Convert to Markdown14-0000
+
+TO: J. SEARS:mamd
+IIT: WH/COG/OPS
+T: 1255
+DATE: 8 MAY 69
+
+MESSAGE FORM
+TOTAL COPY:
+
+<table><tr><td>SECRET</td></tr></table>
+
+**ROATING...**
+
+<table><tr><td></td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></table>
+
+FILE FORM
+
+(To be filled by the Intention Agent)
+
+(Reference number)
+
+00136
+
+CITE DIRECTOR:
+
+SECRET
+
+08 29 06z May 69
+
+TO MEXICO CITY
+
+TYPIC LIRING-4
+
+REF: MEXICO CITY-0125 (IN 53298)
+
+1. VIEW PBRUMEN APPARENT SUSPICIONS OF LIRING-3, PREFER ROWTON NOT LEVY ANY REQUIREMENTS ON LIRING-4 OR OFFER ANY AID. HOWEVER, SHOULD OPPORTUNITY TO DEBRIEF OR ELICIT DEVELOP AFTER TRIP, WOULD WELCOME SAME.
+
+2. FILE 201-798301, 201-818842.
+
+END OF MESSAGE
+
+9 MAY 1969
+
+WILLIAM V. BROE
+C/WHD
+
+Jr.
+
+DC/WH/COG
+
+WALTER J. KAUFMAN
+C/WH/1
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+GROUP 1
+Included from automatically demodulating and declassified
+
+AUTHENTICATING OFFICER
+
+COPY UP
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

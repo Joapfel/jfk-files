@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_302.png
+
+Convert to MarkdownSECRET
+
+SUBJECT: Carlos JURADO-Delmar
+
+DPOB: 1930 in Mexico City
+
+CITIZENSHIP: Mexican
+
+OCCUPATION: Artist
+
+SCHOOIING: Studied anthropology and archeology at the National University in Mexico
+
+RESIDENCE: Resided in Cuba for a considerable length of time.
+
+MARITAL STATUS: Miriam CHIHAY de JURADO (Chichay is a Cuban attempt at transliteration of Peach Blossom which is her Chinese name.)
+
+DEROGATORY TRACES
+STATION
+
+Subject was a member of the FPPS in July 1961
+
+Member of the Preparatory Committee for the Third Latin American Congress, Artists and Writers, Havana in January 1962.
+
+LITAIN-2 reports that JURADO has many Communist friends in Mexico. He spent time in Cuba and may have served in the Cuban military service or militia.
+
+SECRET.

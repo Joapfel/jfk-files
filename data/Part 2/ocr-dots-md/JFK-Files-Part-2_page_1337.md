@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_1337.png
+
+Convert to Markdown13 MAR 1970
+
+MEMORANDUM FOR : Mr. Robert P. Wheeler
+
+THROUGH : Administrative Officer, MPS
+
+SUBJECT : Purchase of Service Credit
+
+1. This is to advise you that your application to purchase service credit under the CIA Retirement and Disability System has been processed. The amount of $437.00 will be required to purchase credit for the period 18 June 1946 through 17 June 1947 when no deductions were withheld from your salary. Under the current provisions of the CIA Retirement System, payment of the above amount will increase your annuity by approximately 2 per cent of your high-three average salary at the time of retirement. The amount due includes interest to the present date.
+
+2. It should be explained that under the CIA Retirement and Disability System, all periods of creditable Federal civilian service during which retirement deductions were not taken from salary must be purchased by making a deposit in order for the time to be counted in the computation of the retirement annuity. Under the Civil Service Retirement System, such periods of Federal service are always creditable in the computation of annuity, but if not purchased, the annuity is reduced by 10 per cent of the amount due. For example, if a deposit of $1,000 is required to purchase credit for those periods of service during which no deductions were withheld from salary, and it is not paid, the basic annuity would be reduced by $100 per year. If the deposit of $1,000 is paid, the retiree would have to wait 10 years to recover his own deposit before profiting from the payment.

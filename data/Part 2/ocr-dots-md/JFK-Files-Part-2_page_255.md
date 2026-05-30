@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_255.png
+
+Convert to Markdown14-0000
+
+MESSAGE FORM
+TOTAL COPIES: 23
+
+<table><tr><td>ORIG:</td><td>C.Bustos-Videla</td></tr><tr><td>UNIT:</td><td>WH/1</td></tr><tr><td>EXT:</td><td>4506</td></tr><tr><td>DATE:</td><td>24 Jan 66</td></tr></table>
+
+☐ INDEX
+☑ NO INDEX
+
+<table><tr><th colspan="2">SECRET</th></tr></table>
+
+☐ FILE IN CS FILE NO. 201-278841
+
+TO : MEXICO CITY
+
+FROM: DIRECTOR
+
+CONF: WH8
+
+INFO: VR . FILE ☑ RID COPY CA2.CA/PROP.D04,D0/H3 CIOA,
+
+SIG CEN
+
+74752
+
+TO MEXI INFO CITE DIR
+
+ETSINGER REPORTED MISS JUNE COBB RETURNING TO NEW YORK
+TO FACE LIBEL SUIT CONCERNING AREVALO BOOK. ETSINGER VAGUE
+ON NAME OF PERSON BRINGING SUIT. /KXX STATION PROVIDE
+DETAILS INCLUDING ETA, MODE OF TRAVEL AND MEANS CONTACT
+IN NEW YORK.
+
+END OF MESSAGE
+
+Jacob D. Esterline
+AC/WHD
+
+W.J. Kaufman
+C/WH/1
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+[SECRET GROUP I]
+EXcluded from automatic demotion and demotion date
+
+AUTHENTICATING OFFICER
+
+COPY NO.

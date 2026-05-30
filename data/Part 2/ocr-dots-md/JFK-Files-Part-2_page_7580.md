@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_7580.png
+
+Convert to Markdownmostly as regards tumors. So they are interested in carcinogenesis and
+in fact Moskalav asked me a question following my paper on carcinogenesis,
+he said nothing on acute, short-term effects of low doses of radiation,
+so presumably they are not concerned with these,
+
+31. People from other countries, and particularly the US, reported work having to do with low dose effects and reliable biological indicators for low ranges of dose using the chromosome aberration methods in human cells. But the Russians had nothing to say about this particular thing and seem not to be working on it as yet.
+
+Q. In your opinion, what is the level of accomplishment, worldwide, in this matter of getting reliable indicators of biological damage?
+
+A. Insofar as I know, the most sensitive and reliable biological index for damage at low dose rates involves the study of chromosome abnormalities. The approach was developed in the US and is being used extensively here and in England, and other countries are taking it up. Moreover, I think that in radiobiology in general, in almost any question you could ask, the west and particularly the US and England are very much in the fore front. From what I know of Russian radiobiology from translations and hearsay, the Russians are years behind us, but I exclude their related physical work from this judgment.
+
+33. Q. Was there reporting from the Soviets on types of radiation detection equipment used in the Vostok flights? Did they report findings on the relative biological effectiveness factor values for neutrons, protons and cosmic ray attenuations?
+
+A. Well, again, there was no specific mention of this, but the interest in
+the relative biological effectiveness factor for neutrons and cosmic
+radiation was a major concern of the whole Symposium: the attempt to
+glucidate the RBE factor and particularly the problem with respect to
+large animals, like humans, where in the case of neutrons you have a
+change in the type of radiation in the interior of the animal. You do
+not have this change with x- gamma rays, but you do have it with fast
+neutrons.
+
+34. Q. How is this neutron change manifested in large animals?
+
+A. The neutrons become moderated. As they proceed through the tissue, the hydrogen in the tissue reacts with the neutrons and there is a change in the energies taken up. At some point you have gammas. So, the first few layers of hydrogenous material on the outside of the animal tend to change the dose, and in the interior, where the important effects occur, you do not know what the dose is. We talk about mid-line doses, average doses, but the actual dose in the cells of the bone marrow or the gut, we do not know yet. This is one of the problems of the RBE and a very big one.
+
+35. [A G] Searle of Harwell reported genetic effects of low dose rate neutrons in mice finding that there were as many if not more mutations with low dose rate neutrons than with high dose rate neutrons. His work is the first direct evidence of the cumulative effect of a prolonged, or fractionated, low dose of neutrons. You do not have such an effect with x- or gamma rays. If you prolong the dose with these, the effect will be very much less than it would be if you gave the same total dose in a single fast pulse.
+
+36. Q. The neutron dose given gradually might have an even more damaging effect than if given all at once, is that it?
+
+A. Yes. At least. But the matter is still delicate, for Searle's experiment was with mice and the question remains whether neutrons, as such, will
+
+C-O-N-F-I-D-E-N-T-I-A-L
+
+POLLED DISSEM
+
+NO DISSEMINATION ABROAD
+
+WWW.FORMULA.ORG

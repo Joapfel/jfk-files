@@ -1,0 +1,71 @@
+# JFK-Files-Part-2_page_5573.png
+
+Convert to MarkdownIV. EXCERPTS OF DEPOSITION OF DAVID MURPHY BEFORE THE HOUSE SELECT COMMITTEE ON ASSASSINATIONS ON AUGUST 9, 1978
+
+INTRODUCTION
+
+Having heard from Nosenko and from an intelligence officer who believed him to be bona fide, the committee spoke to the CIA official who had overall responsibility for the interrogation of Nosenko during the years 1964-67, when Nosenko was kept in solitary confinement. Among other things, he was asked about the reason Nosenko was placed in solitary confinement, about why he questioned Nosenko's credibility, and about Nosenko's charge that his statements to the Agency were inaccurate because he had been drugged by the Agency. Portions of that transcript follow.
+
+EXCERPTS OF DEPOSITION OF DAVID MURPHY BEFORE HOUSE SELECT COMMITTEE ON ASSASSINATIONS ON AUGUST 9, 1978
+
+Mr. KLEIN. When Nosenko defected in 1964, when he came to the United States, was he in the custody of the Central Intelligence Agency at that time?
+
+Mr. MURPHY. I don't want to be cute by saying I believe so. I am not exactly sure of the legal—I mean what his legal status was. Insofar as physical facts, he was in the custody of the IO.
+
+Mr. KLEIN. What division or unit of the Central Intelligence Agency had primary responsibility for Nosenko?
+
+Mr. MURPHY. The Soviet Russian Division.
+
+Mr. KLEIN. Of which you were the Chief?
+
+Mr. MURPHY. Yes, sir.
+
+Mr. KLEIN. And what year did you leave the Soviet Russia Division?
+
+Mr. MURPHY. Beginning in 1968.
+
+Mr. KLEIN. And up until what year did the Soviet Russia Division have primary responsibility for Nosenko?
+
+Mr. MURPHY. I don't recall the exact time but it was certainly up until the spring of 1967.
+
+Mr. KLEIN. The investigation by Bruce Solie began at the end of 1967. At that time did the control or responsibility over Nosenko change from the Soviet Russia Division to another division?
+
+Mr. MURPHY. My recollection is that it changed in the spring or early summer of 1967 and the responsibility was turned over to the Office of Security of which Solie was a member.
+
+Mr. KLEIN. As Chief of the Soviet Russia Division, did you have the primary responsibility for what happened to Nosenko? And when I say happened, where he was kept, what he was asked?
+
+Mr. MURPHY. I was responsible for the case.
+
+Mr. KLEIN. OK.
+
+Mr. MURPHY. Although the case was handled by one of the groups within the Division.
+
+Mr. KLEIN. But they would report to you?
+
+Mr. MURPHY. Yes.
+
+Mr. KLEIN. There came a time in 1964, April 4, I believe, when the treatment received by Nosenko greatly changed in that hostile interrogations began, is that correct?
+
+Mr. MURPHY. I am not sure I agree with the formulation of the question.
+
+Mr. KLEIN. Well, elaborate.
+
+Mr. MURPHY. No; the previous pattern of voluntary discussion of issues under consideration changed and Nosenko was not permitted to evade questions or to decide when he would or would not want to respond.
+
+Mr. KLEIN. Could you describe for us what the pattern was before, as far as conditions and how it was changed?
+
+the factors I had to consider in connection with it, and I will continue to accept it until some evidence, not opinion...
+
+things that Nosenko states is that the KGB never said they didn't interview Oswald when Oswald stated they didn't interview Oswald when they decided to send him to Minsk.
+
+your knowledge of Nosenko, based on your knowledge of KGB procedures and techniques when he says they never interviewed
+
+what is meant by interview, a formal interview, if that is what is meant—What is being discussed now is a KGB officer speaking face to face with himself as a KGB officer, but speaking to him chooses, Nosenko says that never happened. My is credible?
+
+best of his knowledge, I will have to—I will accept that?
+
+ happen.
+
+the KGB didn't have a large book on him. Other than the feasibility of statements being done to check out the experiences of other defectors in order to see what the experiences of other defectors debriefed by KGB officers? Was that ever done, individual had been interviewed for some other the Oswald case because the Oswald investigation
+
+some who were in Russia in a proximate period. It is very possible. You would almost have to extend the period of time because the international situation is the comparison

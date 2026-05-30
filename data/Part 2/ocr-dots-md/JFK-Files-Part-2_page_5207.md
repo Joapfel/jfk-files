@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_5207.png
+
+Convert to MarkdownC. To the extent that there were any backchannel communications for the time periods 27 Sept - 16 Oct 1963 and 22 Nov - 30 Nov 1963 (other than those currently contained in the JFK Collection), please make such records available for review.
+
+Why has it been so difficult to answer these questions?
+
+15. ARRB's Request for Additional Information and Record No. CIA-14, dated December 23, 1996, documented our request for the annual or biannual Station reports for Mexico City Station for 1963 and 1964. Why has it been so difficult to provide these reports?
+
+16. The attached Agency document released in 1996 contains the paragraph:
+
+11. A memorandum marked only for file, 16 March 1967, signed M.D. Stevens, says that J. Monroe SULLIVAN, #280207, was granted a covert security approval on 10 December 1962 so that he could be used in Project QKENCHANT. (Clay) Shaw has # 402897-A.
+
+What do these numbers mean? What does the "A" at the ends of Shaw's number signify? Do the files identified by these numbers still exist? Why was Sullivan granted a covert security approval?
+
+17. During the period 1959-1963, what was the purpose or goal of QKENCHANT?
+
+18. Under what circumstances were non-agency employees given covert security clearances for the QKENCHANT project?
+
+19. Did Clay Shaw receive a covert security approval for the QKENCHANT project? Why was one needed? Did Clay Shaw receive covert security clearances for any project other than QKENCHANT
+
+20. What did Clay Shaw do within the QKENCHANT project?
+
+21. Do records exist to account for the disposition of all files on Clay Shaw?
+
+22. Did Howard Hunt have any involvement with the QKENCHANT project prior to 1964?
+
+23. Did J. Monroe Sullivan have any involvement with the QKENCHANT project prior to 1964?

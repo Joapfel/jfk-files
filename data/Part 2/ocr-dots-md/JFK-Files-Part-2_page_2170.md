@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_2170.png
+
+Convert to MarkdownSECRET
+
+8 MAR 1971
+
+MEMORANDUM FOR: CSPS/Agent Panel
+
+VIA : Central Cover Staff
+
+VIA : Office of Security
+
+VIA : CI Staff
+
+SUBJECT : Summary of Employment
+Mr. James A. Noel
+
+Attached hereto is Mr. Noel's Summary of
+Employment for approval and permanent record.
+
+Carroll L. Hauver
+Chief, DO Support Group
+
+Attachment:
+
+As Stated
+
+CONCURRENCE:
+
+(CSPS Agent Panel)
+
+(Central Cover Staff) 11/20/71
+
+(Office of Security)
+
+(CI Staff)
+
+<table>
+  <tr>
+    <td>GROUP I</td>
+  </tr>
+  <tr>
+    <td>Excluded from automatic downgrading and declassification</td>
+  </tr>
+</table>
+
+4c
+
+SECRET

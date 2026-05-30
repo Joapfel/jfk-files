@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_3093.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+file would be complete as to the purpose of the expendi-
+ture, the date, those who were involved as payees,
+and any other details; and finally that access to
+this financial file would be "limited to persons
+specifically authorized by the Deputy Director (Plans).* *57/
+In the first meeting following the Presidential
+approval of the anti-Castro program, Jake Esterline
+called the members of WH/4 together to announce that
+the program had been given the crypt of JMARC; and he
+further pointed out that 1 May 1960 was the target
+date for the beginning of training at Fort Randolph
+in Panama. (This date was predicated on the assump-
+tion of a satisfactory report from the Inspection Team
+which was to travel to Fort Randolph on 27 March.)
+Medical and security officers were to be assigned to
+the training base and the communications link was to
+be established with Headquarters. In this early
+* Unlike some suggestions that had been forwarded by
+the WH/4 Finance Officer, Michael King, the Director's
+Memorandum placed budgetary responsibility with the
+DDP and Chief, WH Division. Chief, WH/4 was not even
+included on the routing for the Director's Memorandum.
+The WH/4 Financial Officer, on the other hand, had
+suggested that certain of the responsibilities for
+approval of funding be given to the project Chief,
+or the Chief, WH/Division. 58/
+
+TOP SECRET

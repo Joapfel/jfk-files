@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_449.png
+
+Convert to Markdown5924
+Por el: V. Leguizum Parla, D. a Chichay que cuando lleguen --
+lo llamen al 48925. Chichay: acepta.- 113.-
+
+115. Salida.- Curbelo al entararre de que no está Acetvedo,--
+pido que cuando llegue lo digan lo llame y MP acepta.- 122.-
+
+123. Salida sin contestación.- 135.-
+
+135. Entrada.-MP regenta por Curbelo y Chichay pide le ha--.
+ble ng 144237.- 144.-
+
+144. Salidas ocupado.- 155.-
+
+155. Salida.- Chichay pregunta a qué número se le puede ha -
+lar a Juan Corusco y MP cito que le hablo a su mamá al --
+217404 y pregunte por la redoma casa...-170.-
+
+170. Salidas sin contestación.-136.-
+
+184. Salida al 217404.-1058.- Chichay, la esposa de Carlos -
+Jurado, pide a MP lo día a su amiga Juana Carranza que le --
+traje una caja de tabacos de La Habana y quisiera invitarlo-
+pasa hoy a las 8 de la noche a la exposición de unas carica-
+turas de unos cubanos en la Ciudadela, Balderas 125, Escola-
+do Artosanía. MP queda de dar el recado.- 210.-
+
+210. Salidas ocupado.- 219.-
+
+219. Salida al 480339.-1102.- Chichay prenota el tolefen...
+de la oficial de Carmen Fabregat y al enterarse de que MP no
+lo sube, pidió le diga que Carlos Jurado le invita a la expo--
+iciña de c. risturera que tendrá lugar en Balderas 125 hoy--
+a las 8 de la noche. MP va Sug ion.- 237.-
+
+(2.-L34.-22 Sep.66).-

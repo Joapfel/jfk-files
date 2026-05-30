@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_4138.png
+
+Convert to Markdown19 JUL 1953
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Meeting of the Special Group 18 July 1963
+
+PRESENT: Mr. McGeorge Bundy
+Mr. John A. McCone
+Mr. Roswell Gilpatric
+Mr. U. Alexis Johnson
+Mr. Thomas A. Parrott
+Mr. Desmond FitzGerald
+
+1. The undersigned was present at this meeting only for the brief item on Cuba which involved the final decision whether or not to postpone the two external sabotage operations planned for 26 July. Mr. Bundy referred to the fact that the Agency representatives had previously stated that they would prefer, in terms of the morale of the case officers and agents, to have a decision to postpone made at the earliest possible moment rather than to have such a decision reached at the last minute. Mr. Bundy stated that in light of this he felt it reasonably certain that Higher Authority would consider that negotiations in Moscow were proceeding in a sufficiently favorable manner to warrant a postponement decision at this time. Mr. Bundy said that if the undersigned did not hear from him during the course of the day Higher Authority's decision to postpone could be assumed. Mr. Bundy further said that it was only fair to warn that there might be a resumption of Moscow negotiations at a later date -- perhaps August -- and that these resumed negotiations might in turn call for postponements. (Mr. Bundy did not call and the operations have been postponed until approximately the 15th of August.)
+
+SECRET
+
+SECRET

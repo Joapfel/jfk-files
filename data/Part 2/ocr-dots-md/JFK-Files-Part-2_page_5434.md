@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_5434.png
+
+Convert to MarkdownSUBJECT: Proposal for Dealing with Employees' Names
+
+within the documentation when requesting continued protection of
+the name.
+
+4. We considered options of contacting IRS or OPM during our attempts to locate current addressing information, but based upon the fact that these offices would be unwitting of the cover arrangement for the individual, it was determined to be an unreasonable risk to the cover of these officers.
+
+Fredrick C. Wickham, Jr.

@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_2218.png
+
+Convert to Markdown3. I have questions with regard to certain aspects of the law and in respect to my eligibility, and this notification to you at this time is designed to preclude a loss of any right I might have under the law to challenge the decision of non-eligibility as given by you on 28 September 1966.
+
+4. I would appreciate a formal reply acknowledging this communication with a statement as to whether in fact the legal question of eligibility is now before the CIA Retirement Board or any other authority of the Agency, or is not. This request is intended not only for the Director of Personnel to whom it is primarily addressed and from whom such notification of non-eligibility was received, but also as intended for others receiving copies of this memorandum.
+
+cc: CIA Retirement Board (Attn. Mr. F. Donald)
+CIA Retirement Staff
+Mr. Gerald L. Miller, DDP/02
+C/CI Staff
+C/CI/Personnel-Support
+
+SECRET
+
+LAF

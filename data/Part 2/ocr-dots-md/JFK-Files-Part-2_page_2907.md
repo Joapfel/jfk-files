@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_2907.png
+
+Convert to Markdown<table><tr><td>14-0000</td></tr><tr><td>104-10298-10184</td></tr></table>
+
+<table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td colspan="2">DATE: 5/27/62</td><td>SECRET</td></tr><tr><td>TO : DIRECTOR</td><td colspan="2">IBI Filling (check box):</td></tr><tr><td rowspan="2">FROM : JNWAVE</td><td colspan="2">No Co Record Value. [Signature]</td></tr><tr><td colspan="2">Write this copy as indicated.</td></tr><tr><td colspan="3">Rehash copy marked as indicated.</td></tr><tr><td>ACTION:</td><td colspan="2">TFW 10(MR CHARLES MATT, NEW, NOTIFIED AND COPY SLOTTED)</td></tr><tr><td>INFO : DCI, DDP, ADDP, CA 22,GA/PRG, CA/PROP, S/C 2</td><td colspan="2">Marked: AT 10:30 27 MAY</td></tr><tr><td colspan="3">Artwork by Art Ryan</td></tr><tr><td colspan="3"><div style="border-bottom: 1px solid black; margin: 5px 0;"></div>OPV DIF CITE PAVE 4777<div style="margin-top: 10px;">GYMOSE</div></td></tr><tr><td colspan="3">1. MIAMI HERALD 27 MAY Carries Front Page Item by James Buchanan Entitled "MIRO Fades As Exile Chief: Three Latin Leaders Behind Ray". Article flatly states that MIRO and Council have been replaced by Manuel Ray with backing Gov Monoz Marin, Pres Rosario Betancourt and former Pres Jose Figueras, that Ray has taken over post with the blessing of the United States". Further, articles state "From Variety Sources Herald learned that MIRO was notified of change only this week" and that pays reappointment as "chief in exile" came from "underground in Cuba" according to Joaquin Godoy, Provisional MRP head in Miami. After furnishing resume Cuban activities since origin of AMBUD, article credits Cubans in Miami with saying "New Man in Field" is Adolf A. Berle Jr. who has been special ass't to State Dept and is also "Member of Pres Kennedy's Special Task Force on Latin America". Implication being that Berle is running new United States sponsored Cuban effort.</td></tr><tr><td colspan="3">2. THIS RELEASE CAUSING some furor in local Cuban colony to extent at least one CPS agent destined for isolation training has asked to be relieved if there any truth in this story. MEANWHILE WAVE</td></tr></tbody></table>
+
+<table><tr><td>SECRET</td><td>Designated as confidential<br/>according to law</td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No. 1389
+
+<table><tr><td>1389</td></tr></table>

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_7004.png
+
+Convert to Markdown# Efforts of the Board to identify additional records, including in other countries
+
+Susan said that she may have enough information for now, but she would let me know if more would be needed. I invited her to visit us if she wanted more details or to look at the records.
+
+END QUOTE
+
+## SUPPORTING TEXT:
+
+no further text in this document (U)
+
+Richard E. Schroeder
+DCI/OCA/CLG
+28 March 1996
+
+Distribution: DCI/CSI
+DO/ORMS
+DDI
+OGC
+OCA
+RES chrono
+
+CL BY 620119
+CL REASON 1.5C
+DECL ON X1
+DRV FM HUM 4-82
+
+CONFIDENTIAL

@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_3473.png
+
+Convert to Markdown13-00000
+
+<table>
+  <tr>
+    <td>DD/P</td>
+    <td>3-19/11</td>
+  </tr>
+</table>
+
+17 April 1963
+
+<table>
+  <tr>
+    <td colspan="2">Executive Registry</td>
+  </tr>
+  <tr>
+    <td>183-5249</td>
+    <td></td>
+  </tr>
+</table>
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Meeting on CA Matters with the Panel of the President's Foreign Intelligence Advisory Board
+
+1. On 15 April, at DDP's request, I met with Messrs. Robert Murphy, Gordon Gray, and J. Patrick Coyne to brief them on major covert action developments since their previous briefing on 2 November 1962. The meeting lasted from 10:00 to 12:15.
+
+2. At Mr. Murphy's request, I began with a description of our electoral operations as approved by the Special Group in Chile, the Dominican Republic, [Brazil], and Guatemala. Mr. Murphy was particularly concerned with the situation in [Brazil] and both he and Mr. Gray found it difficult to understand why the State Department continued to provide large-scale economic assistance when [Goulart] had to date refused to clean house of the Communists and fellow travelers both within the government and the labor movement. They were interested in knowing that we were in touch with some of the military leaders who are opposed to [Goulart], and they seemed to feel that a military coup at some point might be preferable to allowing a country as large and powerful as Brazil to drift into the hands of the opposition. Both gentlemen wished to know the amounts that we had expended in these electoral operations and our own estimate of the results. They did not question either the need for intervention or the size of our effort; although in the [Chilean] case Mr. Murphy wanted to be sure that we had evidence that the funds passed through [Italian] hands actually reached the [Chilean Christian Democrats].
+
+3. Mr. Murphy then raised the Argentine problem and said that he had been informed in New York that the State Department was putting considerable pressure on the Argentine regime to persuade it to hold the elections scheduled for [June] 1963. He questioned the wisdom of this pressure, pointing out that there was a real danger of the Peronistas returning to power if the elections were held. He asked our opinion and I said that, despite the pressure, there was still considerable doubt whether the elections would actually take place.

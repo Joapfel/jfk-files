@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_8897.png
+
+Convert to Markdown13-00000
+
+# Top Secret
+
+## (PRE-KGB BIOGRAPHY)
+
+NOSENKO has said at various times that the Institute course was of four years' duration and that he entered the Naval RU on graduation in 1949; that it was four years' duration and that because he failed a state examination he was graduated later, in 1950; that it was of five years' duration and he graduated in 1950, on schedule; and that it was of five years' duration but he failed an examination which delayed his graduation for three months.
+
+**Comment:** See p.367 for report that NOSENKO joined the KGB upon graduation from the Institute in 1947. The duration of the Institute course and the date of NOSENKO's completion are material to the plausibility of his claimed Naval RU service, which he said followed almost immediately upon his departure from the Institute.
+
+### Naval RU Service (ca. 1951 - ca. 1953)
+
+NOSENKO claims that upon completion of his studies at the Institute of International Relations he entered the Naval RU, serving in the Far East and then in a Baltic post, finally successfully "transferring" to the KGB through the intervention of his father's friend, KGB General KOBULOV.
+
+A sensitive source
+
+is the sole source also asserting that NOSENKO served in the RU. According to this, NOSENKO attended the Military-Diplomatic Academy and then served in the RU Information Department for about a year before securing a transfer to the KGB through his father's influence. NOSENKO denies having attended the Military-Diplomatic Academy and has never claimed service in the RU Information (Reports) Department, although he had on occasion claimed to have held Reports assignments.¹
+
+TS No. 197124
+
+Copy 10
+
+Top Secret
+
+SOU

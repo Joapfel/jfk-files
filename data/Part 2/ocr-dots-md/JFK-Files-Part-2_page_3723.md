@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_3723.png
+
+Convert to Markdown13-00000
+
+TOP SECRET DINAR
+
+Western Hemisphere
+
+AREA NOTE
+
+Bolivia: The political competition between Bolivian Vice President Juan Lechin and President Victor Paz Estenssoro is bound to intensify sharply as each maneuvers to line up support for the presidential nomination at next month's convention of the Nationalist Revolutionary Movement (MNR). Lechin probably still hopes to pull an upset by dislodging Paz or at least to demonstrate sufficient strength to assure himself of retaining his vice-presidential post. Paz seems certain, however, to be able to control the party's convention,
+
+assure his renomination, and designate his own running mate.
+
+If the forthcoming convention repudiates Lechin, he may well withdraw from the MNR and establish a "popular front" political party. He probably could count on the support of political groups ranging from leftist extremists to disgruntled factions within right-wing parties. It would seem unlikely, though, that these disparate groups could coalesce into an organization powerful enough to defeat Paz' well-organized machine in the elections set for June. (SECRET)
+
+* * *
+
+27 Dec 63
+
+CURRENT INTELLIGENCE WEEKLY REVIEW
+
+Page 18
+
+TOP SECRET DINAR

@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_6135.png
+
+Convert to Markdown56 Md. L. Rev. 1, *7
+
+n35. Question-and-Answer Session at the Annual Convention of the Associated Press Managing Editor's Association, Orlando, Fla., 1973 Pub. Papers 946, 956 (Nov. 17, 1973).
+
+n36. Vice President Spiro T. Agnew resigned on October 10, 1973, after entering a plea of nolo contendere to a federal charge of tax evasion. See Kutler, supra note 34, at 397-98.
+
+n37. See id. at 532, 540, 544-45, 547-50, 620.
+
+n38. See id. at 452.
+
+n39. See id. at 287, 314-15, 324-25, 368-69, 447-49.
+
+-End Footnotes-
+
+Under such circumstances, the Warren Commission's Report would have been subjected to reevaluation even if it had been compiled perfectly. Furthermore, because the Warren Commission labored at the height of the Cold War, n40 the Commissioners adopted a strategy that depended on implicit public trust. The Cold War environment combined with other circumstances to handicap the Warren Commission and eventually to erode that public trust in five significant ways.
+
+-Footnotes-
+
+n40. See Holland, supra note 18, at 52.
+
+-End Footnotes-
+
+First, the Commission had access to an enormous amount of information not otherwise accessible to the American press and public. n41 This information was secret, top secret, and beyond, much of it compartmentalized cryptologic and signal intelligence material dealing with the Soviet Union, Cuba, and other foreign governments, such as Communist China. n42 Because of the enormous Cold war paranoia, as well as the requirement to maintain tight secrecy around the sources and methods used to collect this information, the Commission could not argue its case fully to the American people. When the research community asserted that the government itself had been im- [*8] plicated in the assassination, n43 the evidence that the Commission had used to discount such a possibility was available only to the government charged with having abetted the crime. The cost of secrecy was uncertainty, an uncertainty that turned to cynicism, much of it based on theories about the assassination that gained legitimacy simply because they could not be tested against the appropriate evidence.
+
+-Footnotes-
+
+n41. See Hurt, supra note 6, at 432-33.
+
+n42. See Holland, supra note 18, at 64.
+
+n43. See, e.g., Harold Weisberg, Whitewash II: The FBI-Secret Service Coverup 125 (1996) (concluding that "the FBI and the Secret Service are not innocent" in the Warren Commission investigation).

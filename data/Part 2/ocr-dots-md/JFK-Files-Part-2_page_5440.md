@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_5440.png
+
+Convert to Markdowncover. The test required by Mr. Gunn to satisfy the Board and thus continue postponement until 1 June of this year is a good faith showing that reasonable attempts were made to locate the officer and failed.
+
+The section contains the additional provision which advises the Board may continue a postponement beyond 1 June of this year (i.e., until 2010) if the CIA provides the board with evidence which satisfies the criteria of either category 1 or category 3. Such additional evidence must be provided by 1 May 1977.
+
+The requirements or tests of this section for the Agency are not onerous but should be set-out as a series of uniform actions or check-off's taken in the attempt to locate each current status unknown officer. The record of these actions could then be presented to the ARRB in support of a request for continued to postponement. The DO Memorandum mentions of the possibility of asking the IRS or the OPM for assistance in this regard and this should probably be done. I recall however, that the Service will assist, through cleared contacts at the National Office, but only to the extent of determining the whereabouts of the individual and then contacting him and ask that he be in touch with his former employer. I have no current knowledge of cleared contacts at the OPM but they existed in the past and I assume they continue.
+
+C. Names having effect on current intelligence interests. The Gunn letter appears to subscribe a higher
+
+13-00000

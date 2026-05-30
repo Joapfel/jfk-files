@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_4242.png
+
+Convert to Markdownhad been reached and that attribution of U.S. support would be inferred but there should be no evidence of proof. Mr. FitzGerald indicated that this was operationally feasible.
+
+## 3. Zanzibar - Proposed Political Action
+
+The paper on Proposed Political Action in Zanzibar was approved. Mr. Waller gave a short briefing on the operational climate which emphasized the cooperative attitude of the British services and the growing likelihood that Jomo Kenyatta could be persuaded to support the West more actively.
+
+## 4. JRC Monthly Reconnaissance Forecast.
+
+The JRC Monthly Reconnaissance Forecast for April 1964 was approved.
+
+Peter Jessup
+
+### Distribution
+
+* Mr. Johnson
+* Mr. Vance
+* Mr. McCone

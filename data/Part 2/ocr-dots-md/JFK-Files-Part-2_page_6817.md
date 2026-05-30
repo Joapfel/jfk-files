@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_6817.png
+
+Convert to MarkdownSelect Committee on Assassinations, as well as material relating to the Garrison investigation and Cuban exile activities.
+
+The CIA cannot release a number of documents unilaterally because of the limits in the Privacy Act (which protects the names of American citizens against unauthorized disclosure), the sequestration of many documents by the House Select Committee on Assassinations, and the fact that many of the documents belong to agencies other than the CIA. However, we have already taken the necessary steps to lift the sequestration, coordinate with other agencies and begin the process of declassification. If necessary, I will ask the House for a resolution permitting CIA to release the results of the declassification effort on the sequestered documents.
+
+While I expect a large amount of material can be declassified under our program, I assume that there still will be information that cannot be released to the public for a variety of reasons, including privacy concerns or the exposure of intelligence sources and methods. Let me take a moment to give examples of this type of material. During the investigation by the House Select Committee on Assassinations, I understand that security and personnel files were requested on a number of Agency employees. These files contain fitness reports (performance evaluations), medical evaluations and credit checks on individual CIA officers. Although irrelevant to the question of who killed President Kennedy, these and other personal

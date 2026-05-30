@@ -1,0 +1,66 @@
+# JFK-Files-Part-2_page_6331.png
+
+Convert to Markdown(f) Artifacts.
+
+§ 1400.5 Requirement that assassination records be released in their entirety.
+
+An assassination record shall be disclosed in its entirety except for portions specifically postponed pursuant to the grounds for postponement of public disclosure of records established in section 6 of the ARCA, and no portions of any assassination records shall be withheld from public disclosure solely on grounds of non-relevance.
+
+§ 1400.6 Originals and copies.
+
+(a) For purposes of determining whether originals or copies of assassination records may be made part of the President John F. Kennedy Assassination Records Collection (the JFK Records Collection) to be established under the ARCA:
+
+(1) In the case of papers, maps, and other documentary material, the Assassination Records Review Board (the Board) may determine that a true and accurate copy of the original is sufficient;
+
+(2) In the case of photographs, the term record means the original negative if available, otherwise, the earliest generation print;
+
+(3) In the case of motion pictures, the term record means the camera original if available; otherwise, the earliest generation print,
+
+(4) In the case of sound and video recordings, the term record means the original recording, if available, otherwise, the earliest generation copy;
+
+(5) In the case of machine-readable information, the Board may determine that a true and accurate copy of the original is sufficient; and
+
+(6) Artifacts means the original object itself.
+
+(b) In cases where a copy, as defined in paragraph (a) of this section is authorized by the Board to be included in the JFK Records Collection the Board may, at its discretion, require a certified copy. In cases where an original, as defined in paragraph (a) of this section, is required for inclusion in the JFK Records Collection the Board may, at its discretion, accept the best available copy.
+
+§ 1400.7 Additional guidance.
+
+(a) A government agency, office, or entity includes, for purposes of interpreting and implementing the ARCA, all departments, agencies, offices, divisions, foreign offices, bureaus, and deliberative bodies of any federal, state, or local government and includes all inter- or intra-agency working groups, committees, and
+
+meetings that possess or created records relating to the assassination of President John F. Kennedy.
+
+(b) The inclusion of artifacts in the scope of the term assassination record is understood to apply solely for purposes of establishing the President John F. Kennedy Assassination Records Collection and for fully implementing the terms of the ARCA and has no direct or indirect bearing on the interpretation or implementation of any other statute or regulation.
+
+(c) In the case of artifacts deemed to be assassination records and included in the John F. Kennedy Assassination Records Collection, provision to the public of photographs, drawings, or similar materials depicting the artifacts shall be sufficient to comply with the ARCA's requirement that copies of assassination records be provided to the public upon request. Other display to or examination by the public of artifacts in the John F. Kennedy Assassination Records Collection shall occur under terms and conditions established by the National Archives and Records Administration that are adequate to preserve and protect the artifacts for posterity.
+
+(d) The terms and, or, any, all, and the plural and singular forms of nouns shall be understood in their broadcast and most inclusive sense and shall not be understood to be terms of limitation. Any records identified with respect to a particular person also includes any records for that person by any other name, pseudonym, codeword, symbol, number, cryptonym or alias. Any record described with respect to an operation or program includes any record pertaining to that program by any other name, pseudonym, codeword, symbol, number or cryptonym.
+
+§ 1400.8 Implementing the ARCA—Catalog of Assassination Records.
+
+(a) A Catalog of Assassination Records (COAR) shall be created as the official listing of all records determined by the Board to meet the definition of assassination record.
+
+(b) Notice of all decisions to include records in the COAR will be published in the Federal Register within 30 days of the decision.
+
+(c) In listing records or groups of records in the COAR, the Board must determine that the record or group of records will more likely than not enhance, enrich, and broaden the historical record of the assassination.
+
+Dated: February 3, 1995.
+David G. Marwell,
+Executive Director, Assassination Records
+Review Board.
+[FR Doc. 95-3112 Filed 2-7-95; 8:45 am]
+BILLING CODE 6620-TD-M
+
+ENVIRONMENTAL PROTECTION AGENCY
+
+40 CFR Parts 51 and 93
+
+[FRL-5149-9]
+
+Transportation Conformity Rule Amendments: Transition to the Control Strategy Period
+
+AGENCY: Environmental Protection Agency (EPA).
+
+ACTION: Proposed rule.
+
+SUMMARY: This action

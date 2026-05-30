@@ -1,0 +1,171 @@
+# JFK-Files-Part-2_page_7201.png
+
+Convert to MarkdownOUTGOING MESSAGE
+
+<table>
+  <tr>
+    <td>R</td>
+    <td>1</td>
+    <td></td>
+    <td>4</td>
+    <td></td>
+    <td></td>
+    <td>7</td>
+    <td></td>
+  </tr>
+  <tr>
+    <td>O</td>
+    <td>2</td>
+    <td></td>
+    <td>5</td>
+    <td></td>
+    <td></td>
+    <td>8</td>
+    <td></td>
+  </tr>
+  <tr>
+    <td>U</td>
+    <td>3</td>
+    <td></td>
+    <td>6</td>
+    <td></td>
+    <td></td>
+    <td>9</td>
+    <td></td>
+  </tr>
+  <tr>
+    <td>T</td>
+    <td colspan="6"></td>
+    <td>P</td>
+    <td>A</td>
+    <td>F</td>
+    <td>P</td>
+    <td>A</td>
+    <td>C</td>
+    <td>I</td>
+  </tr>
+</table>
+
+SIGNAL CENTER USE ONLY
+
+<table>
+   <tr>
+    <td>
+     AGE
+    </td>
+    <td>
+     COI
+    </td>
+    <td>
+     ACP
+    </td>
+    <td>
+     TOG
+    </td>
+    <td>
+     TPE
+    </td>
+    <td>
+     MRO
+    </td>
+    <td>
+     DCI
+    </td>
+   </tr>
+   <tr>
+    <td>
+     OMF
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     0
+    </td>
+    <td>
+     0
+    </td>
+   </tr>
+  </table>
+
+PAGE OF PAGES
+
+OMF 0 0 0 0 0 0 0 0 4 4
+
+CLASSIFICATION
+
+SECRET
+
+MESSAGE HANDLING INDICATOR
+
+DATE-TIME GROUP
+
+CITE
+
+MESSAGE REFERENCE NUMBER
+
+STAFF
+
+CONF:
+
+INFO: FILE
+
+DIRECTOR
+
+0 INDEX DISSEM BY:
+0 NO INDEX
+0 RETURN TO PER
+
+0 IP FILES #
+
+PROTECTION. THIS APPROACH HAS WORKED EFFECTIVELY FOR HQS AND ASSUME IT WILL BE USEFUL TECHNIQUE FOR SEOUL. Y
+
+2. BRIEFING SHOULD ALSO ZERO IN ON STATION'S COORDINATION ROLE UNDER DCID'S FOR CLANDESTINE MILITARY INTELLIGENCE COLLECTION OPS. ALSO THINK IT WOULD BE USEFUL TO HAVE PART OF BRIEFING CONCENTRATE ON IMMINENCE OF HOSTILITIES INDICATORS WHICH NOW BEING WORKED ON BY AMERICAN INTEL COMMUNITY IN CONSULTATION WITH ROK'S. THIS MIGHT WELL SHOW COMPLEXITY OF ISSUES INVOLVED IN MEASURING INTEL SUCCESS OR FAILURES. Y
+
+3. HQS HAS HAD LIMITED EXPOSURE TO CONGRESSMAN MILFORD, THUS UNABLE TO SHED ANY LIGHT ON QUESTION POSED IN REF 8 PARA 2. BASIC GUIDELINE FOR THIS BRIEFING MUST BE FULL CANDOR WHILE SIMULTaneously PROTECTING SOURCES AND METHODS. Y
+
+4. PLEASE USE ABOVE INDICATORS ON FUTURE TRAFFIC DEALING WITH BRIEFINGS OR TRAVELS OF CONGRESSIONAL MEMBERS WHO INVOLVED IN INVESTIGATION OF INTEL COMMUNITY. E-2, IMPDET.H
+
+AC/EA/JK
+DC/EA
+C/EA/COPS
+A/DDO
+TGSHACKLEY:DCM C/REVIEW STAFF
+C/OLC
+
+DATE: 24 OCT 75
+ORIG: TGSHACKLEY:DCM
+UNIT: C/EA
+EXT: 1428
+
+DDO
+RELEASING OFFICER
+
+THEODORE G. SHACKLEY, C/EA
+AUTHENTICATING OFFICER
+
+COORDINATING OFFICERS
+
+CLASSIFICATION
+
+REPROL, REACTION BY OTHER THAN THE ISSUING OFFICE IS.
+
+CHIBITED
+
+E 2 IMPDET
+CL BY: 061991
+
+SECRET
+
+S E C R E T
+
+0000000000000000000000000000000000000

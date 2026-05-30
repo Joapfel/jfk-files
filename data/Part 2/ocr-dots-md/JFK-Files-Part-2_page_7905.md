@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_7905.png
+
+Convert to Markdown13-00000
+
+Central Intelligence Agency
+
+Also attached are two FBI documents which contain information received from your agency. The information is being referred for a current classification determination and releasability under the provisions of the FOIA.
+
+If there are any questions regarding the above,
+please contact Ralph Harp, FOIPA Branch, at telephone number
+324-5566.
+
+Enclosures (8)

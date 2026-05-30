@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_7296.png
+
+Convert to Markdown5. We are also providing you as attachments B, C and D copies of memoranda from EUR, AF and EA Divisions which provides additional background on division attitudes and caveats concerning the provision of this material to the Select Committee.
+
+Attachments, a/s
+
+SECRET
+
+2
+
+SENSITIVE
+
+SENSITIVE
+
+13-00000
+
+S E N S I T I V E

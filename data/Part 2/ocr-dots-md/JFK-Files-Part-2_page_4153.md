@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_4153.png
+
+Convert to Markdown5. The recommendation to overfly Laos was held in suspension. DoD was asked to bring in specific details of the particular 34A operations which required such overflights and the probable advantages of continuing the operations by means of overflying Laos. State held very positive view against Laotian-overflights.
+
+6. The proposed infiltration and exfiltration operations in Cuba were approved. Mr. FitzGerald was warned not to cache arms with agents felt to be under Castro control. He stated that this particular Cache involved money and other things, but no arms. The caching of small quantities of arms elsewhere in Cuba was approved. Memorandum on the operation of autonomous exile groups was noted and no instructions were given to restrain these operations. The overall question of future sabotage operations was discussed. Mr. Bundy agreed to bring the matter before the President and senior Cabinet officers promptly.
+
+7. The Chilean political action as outlined in the CIA paper of April 1st was approved. It was pointed out that since the paper was drafted, COS and Ambassador in Santiago had reached an agreement about the handling of funds.
+
+8. Proposed political action in Zanzibar was approved. Mr. Waller gave a brief account of the results of the favorable negotiations with the British. Understood that implementation of this paper was to be coordinated with the British in accordance with agreement reached in London.
+
+OTHER MATTERS:
+
+1. Statement was made that a CIA U-2 was "painted" with radar on February 24th, implication being that the CIA U-2s in the vicinity of Phnom Penh.
+
+ACTION: I would like to know the facts on this.
+
+2. Question was raised about need for continuing the 30 mile intrusion into Cambodia and Laos. Indications were that the photography had produced no useful information for MACV.
+
+ACTION: This question should be studied and brought up for discussion at meeting on April 9th. I should cable Carter to investigate fully.
+
+JAM/mfb
+
+5/20C

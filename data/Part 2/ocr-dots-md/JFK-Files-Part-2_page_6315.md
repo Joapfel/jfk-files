@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_6315.png
+
+Convert to MarkdownCIA SPECIAL COLLECTIONS
+RELEASE IN FULL
+
+2000
+
+DRAFT
+
+# CHAPTER XIV — ASSASSINATION RECORDS REVIEW BOARD
+
+## Part 1400 — GUIDANCE FOR INTERPRETATION AND IMPLEMENTATION OF THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS COLLECTION ACT OF 1992" (ARCA)
+
+### Sec.
+
+*   **1400.1 Scope of assassination record.**
+
+*   **1400.2 Scope of additional records and information.**
+
+*   **1400.3 Sources of assassination records and additional records and information.**

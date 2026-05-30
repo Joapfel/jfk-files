@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_6595.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+OFFICE OF THE SECRETARY OF DEFENSE
+WASHINGTON 25, D. C.
+
+1 June 1962
+
+SENSITIVE
+
+MEMORANDUM FOR GENERAL LANSDALE
+
+From: Lt. Col. Patchell
+
+Subject: Psychological Operations Group
+
+Meeting held at 1430 hours on 28 May 62 with Mr. Hurwitch and Mr. Simm of State, Bolton of CIA, Smith of USIA, and myself attending. Following is a summary of subjects discussed:
+
+(1) CIA asked State to provide a clarification of personalities and groups to be supported - this came up in connection with a discussion of CRC and newspaper stories on its change in leadership.
+
+(2) The Armstrong Circle Theater movie has been okayed for Spanish language publication and distribution.
+
+(3) On the "Eyewitness to History" program of 25 May 62 - because of the type of movie - USIA to look at carefully and determine whether useful for replay (I will be invited to attend).
+
+(4) CIA using theme for farmers not to produce - okayed.
+
+(5) On declassification of Cuba - Soviet trade agreement - CIA has been unable to obtain, but should produce soon.
+
+(6) CIA guidance now being prepared for psych war to list priorities as follows: (a) Cuba, (b) Latin America, (c) rest of world. Draft copies will be brought to next meeting for informal review.
+
+(7) On the DRE publication "White Book on University Problems in Cuba" - 2,000 copies each are being printed in Chile in English, French, and Spanish. CIA to take action to make available in summary form for Latin newspapers and student publications.
+
+(8) On the CRC publication "Cuba Nueva" - presently going only to exile community. CIA to look into getting it into Latin America and Cuba - money appears to be no problem.
+
+SENSITIVE
+TOP SECRET
+
+~~LAP SECRET~~

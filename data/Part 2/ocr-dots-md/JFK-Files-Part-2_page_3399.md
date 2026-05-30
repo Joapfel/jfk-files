@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_3399.png
+
+Convert to Markdown19. MR from David R. McLean, 27 Jul 72, op. cit.
+
+20. WH/4 Prop Notes for 9 Aug 60.
+
+21. Memo for DCI from J. C. King, 1 Sep 60, sub: Radio Swan.
+
+22. Memo for DCI from J. C. King, 2 Aug 60, sub: Radio Swan. (DD/P 0-4013).
+
+Memo for DDP from Jacob D. Esterline, 30 Aug 60, sub: JMARC Progress Report for 25-29 August 1960.
+
+WH/4 Prop Notes for 23 Sep 60.
+
+Memo for DDP from Jacob D. Esterline, 27 Sep 60, sub: JMARC Progress Report for 23-26 Sep 60.
+
+Memo for Mobilization and Military Personnel Division from J. C. King, 19 Nov 60, sub: Request for Personnel from Department of Defense.
+
+22a. Cables to BELL from RAND: 7 Jan 61, RAND 0172 (IN 1158); 10 Jan 61, RAND 0179 (1360).
+
+22b. Dispatch to Chief, WHD from COB, JMWAVE, 20 Mar 61, sub: Request for Promotion/Fitness Report.
+
+23. [Memo from] C. T. Barnes, 15 Mar 61, sub: Propaganda Effort.
+
+23a. MR from David R. McLean, 27 Jul 72, op. cit.
+
+Memo for DDP from Jacob D. Esterline, 6 May 60, sub: JMARC Progress Report, 28 Apr-5 May 60.
+
+WH/4/Prop Notes for 20 Oct 60, 21 Oct 60.
+
+24. MR from Jacob D. Esterline, 13 Aug 60, sub: Conversation with ADDP/A.
+
+Free, Lloyd A., "A Summary Report on Attitudes of the Cuban People toward the Castro Regime" [August 1960]. (ER 60-5982).

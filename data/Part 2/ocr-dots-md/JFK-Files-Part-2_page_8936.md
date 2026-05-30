@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_8936.png
+
+Convert to Markdown13-00000
+
+# Top Secret
+
+## (Annex A)
+
+June 1964 (continued)
+
+Comment: (Continued)
+
+a Counselor of the Soviet Mission at the United Nations, as the Communist Party organizer and possibly a member of the KGB, but said that MEDVEDEV's role is not important and that he worked mainly with the Ministry of Foreign Affairs.
+
+POCHANKIN, who NOSENKO had identified as a KGB officer, was still in Geneva in December 1966.
+
+29 July 1964
+
+According to a sensitive source,
+
+(from unnamed sources, presumably KGB officers):
+
+An investigating commission of the CPSU Central Committee checking into the circumstances surrounding NOSENKO's defection has thus far been responsible for the expulsion from the KGB of 15 Second Chief Directorate employees. These include GRIBANOV, who was also expelled from the CPSU and was stripped of his rank of lieutenant general. GRIBANOV has been given a very small pension, like an ordinary Soviet citizen. This drastic action was taken since the primary responsibility for the defection was placed on GRIBANOV. It was realized that, in addition to being Chief of the Second Chief Directorate at the time of the defection, GRIBANOV was a personal friend of NOSENKO and had more or less treated NOSENKO as a protege and had taken many steps to further NOSENKO's career within the KGB. It was felt that GRIBANOV should have been aware of NOSENKO's plans to defect. Three of GRIBANOV's deputies were also expelled from the KGB, one of whom was a Major General BANNIK [BANNIKOV]. Of the 11 other Second Chief Directorate employees expelled, some were found to have been personal friends of NOSENKO and some of them were found to have confided to NOSENKO details of operations in which they were working. S.M. GOLUBEV, a KGB officer stationed in Washington, would be leaving for Moscow because the Investigating commission had determined that Yu. I. CUK, a mutual friend of NOSENKO and GOLUBEV told NOSENKO that GOLUBEV had been assigned to the Washington Legal Residency. GOLUBEV had himself worked with NOSENKO in KGB
+
+TS No. 197124
+Copy _______

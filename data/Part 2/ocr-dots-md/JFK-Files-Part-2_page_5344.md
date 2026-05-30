@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_5344.png
+
+Convert to MarkdownCONFIDENTIAL
+
+06 January 1998
+
+MEMORANDUM FOR THE RECORD
+
+TO: Barry Harrelson
+OIM/HRG
+
+FROM: (Jerry Owens)(C)
+OIG/IMO
+
+SUBJECT: (AIUO) Inadvertent Destruction of Records
+
+REF: (U) Telecon dated 06 January 1998
+
+1. (U) Per your request, attached is a memorandum written to the Office of the Inspector Generals (OIG), Deputy and Associate Deputy IG for Investigations. The attached memorandum was also reviewed by OIG/Counsel. It explains in some detail the events we discussed in referenced telephone conversation.
+
+2. (AIUO) It is understood by me, the undersigned, that no further action from the Inspector Generals office is required, and that this matter may be considered closed. The Office of Information Management/Historical Review Group (OIM/HRG) will notify the Assassination Review Board (ARB) and file a copy of this memorandum in HRG files to refer to when writing the compliance letter to the ARB.
+
+3. (AIUO) It is also understood that original documents are not required when material is requested for or being added to the sequestered collection, and that copies of the material which were inadvertently destroyed were previously provided to the HSAC and ARB (or special task force) before their destruction in 1995.
+
+4. (AIUO) With the assistance of HRG, the OIG/IMO has been able to reconstruct the file and will maintain it as a permanent record, also adding a copy of the attached to that file.
+
+CL BY 0680987
+CL REASON: 1.5(c)
+DECL ON: X-1
+DRV fm COV 1-82
+
+CONFIDENTIAL

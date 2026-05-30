@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_3521.png
+
+Convert to Markdown13-00000
+
+TOP SECRET DINAR
+
+OAS DEVELOPMENTS - cont'd
+
+The committee members, the Ambassador stated, insist that it is essential for the Venezuelan Government to "present proof of the general Cuban conspiracy" against the Venezuelan Government if the case against Cuba is to be proven. The Venezuelan Ambassador added that "one of the most important members of the committee" had stated that the Venezuelan evidence on the Cuban origin of the arms cache is not airtight and that the arms could actually have been resold by Cuba to someone else some years ago or stolen from Cuban arsenals.
+
+The Venezuelan OAS ambassador then stated that the editor of a "very important US magazine" had asked him in all seriousness on 6 December whether the arms could not have been planted in Venezuela by the CIA, as Castro has charged. The editor added that this question had been asked of him by "important persons" with whom he had discussed the problem. The Venezuelan Ambassador used this to emphasize to his foreign minister that he believes the Venezuelan Government must not dismiss this suspicion lightly. He pointed out that important persons in the United States, both in government and the press, have pointed out Venezuela's evidence on the arms cache may provide "the first opportunity" to confront the threat of Cuban subversion in the hemisphere. These individuals may be critical of the Venezuelan Government, the Ambassador warned, if its sticks to its demand that the investigation be limited to the arms cache evidence. (NSA 3/0/VED/T514-63, 7 December, TOP SECRET DINAR)
+
+The Brazilian delegate to the OAS was informed of his country's position on the investigation of the Venezuelan arms cache, according to a 2 December intercepted message. The Foreign Ministry informed him that he was to "avoid any attitude which might seem to leave Brazil isolated in a position which could be interpreted as one of sympathy or excessive understanding in relation to Cuba." On the other hand, he was instructed not to "openly state the opinion that the matter falls exclusively under the competence of the Venezuelan security authorities." The delegate was advised to delay his departure until the situation is clarified." (NSA 3/0/BLD/T206-63, 6 December, TOP SECRET DINAR)
+
+SOVIET-CUBAN RELATIONS:
+
+Fidel Castro may have been in Moscow about 15 November for talks with Premier Khrushchev, according to a civil aviation expert who is apparently passing on a rumor he heard in Cuba. The source reported as background that Castro has not appeared on Cuban TV and did not meet people he apparently would have met if he had been in Cuba.

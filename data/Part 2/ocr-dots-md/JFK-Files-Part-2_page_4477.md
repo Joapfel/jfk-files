@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_4477.png
+
+Convert to MarkdownD. Paramilitary, Commando, and Guerrilla Type Operations: Given the assumptions in Paragraph I above, no wide scale program of such activity should be undertaken. However, we propose to maintain in being our present facilities and the capability of undertaking such operations in order to fully exploit any substantial change in internal Cuban conditions or any substantial revolt or uprising which might occur.
+
+E. Economic Warfare: It is proposed to continue and intensify the program already undertaken to deny through clandestine and covert means critical materials to the Cuban economy. This consists primarily of denial operations, possibly some preclusive buying and inducing friendly U.S. and allied firms and governments to prevent the shipments of strategic materials to Cuba.
+
+F. Counterintelligence: The current counterintelligence and counterespionage program against the Cuban G-2 and related services will be continued and as possible intensified. This program has developed substantially and it should be possible within the coming months to increase its effectiveness considerably in countering not only Cuban but Bloc intelligence operations mounted against United States interests from Cuba.
+
+G. Political Action, Propaganda, Psychological Warfare: In this field the following tasks will be continued and where appropriate intensified:
+
+1. Assist and support State in any feasible action.

@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_1684.png
+
+Convert to Markdown<table><thead><tr><th colspan="16">SPACE BELOW FOR EXCLUSIVE USE OF THE OFFICE OF PERSONNEL</th></tr><tr><th>19 ACTION<br>CODE<br>37</th><th>20 Emplyo<br>Code<br>10</th><th>21 OFFICE CODING<br>39115<br>AUTOMATIC<br>CCS</th><th>22 STATION<br>CODS<br>75013</th><th>23 INTERCODE<br>CODE<br>1</th><th>24 HOURS,<br>Code<br>1</th><th>25 DATE OF BIRTH<br>02 20 88<br>EOD DATA</th><th>26 DATE OF GRADE<br>NO DA '9</th><th>27. DATE OF LEI<br>MO DA YE<br>33 SECURITY<br>REQ NO.</th><th>28 CARPER CATEGORY<br>SMH S&S CCOA<br>S&S STATE INSURANCE<br>CODE</th><th>29 SECURE HEALTH INSURANCE<br>G.S. BASIC<br>HEALTH CODE</th><th>30 LONG COMP DATE<br>MO DA '9</th><th>31 SERV COMP DATE<br>NQ DA '9</th><th>32 PREVIOUS CIVILIAN GOVERNMENT SERVICE<br>NO S&S CCOA<br>NOS&S STATE DATA</th><th>33 FEDERAL TAX DATA<br>FORM EXECUTED (COA) NO TAX EXECUTION<br>FORM EXECUTED (COA) NO TAX EXECUTION<br>1 IRS<br>2 NTC</th><th>34 STATE TAR DATA<br>FORM EXECUTED (COA) NO TAX EXECUTION<br>FORM EXECUTED (COA) NO TAX EXECUTION<br>1 IRS<br>2 NTC</th><th>35 SOCIAL SECURITY NO.<br>COA<br>NO S&S CCOA<br>NOS&S STATE DATA</th></tr></thead><tbody><tr><td>CSA</td><td>1 NO S&S<br>1 SM<br>1 COA</td><td>CSA</td><td>1 CSK<br>1 CL<br>1 PICA<br>1 DREM</td><td>CSA</td><td>1 NO S&S<br>1 SM<br>1 COA</td><td>1 COA<br>1 SM<br>1 PICA<br>1 DREM</td><td>EOD DATA</td><td>34 SER<br>33 SECURITY REQ NO.</td><td>33 SECURITY REQ NO.</td><td>SMH S&S CCOA<br>S&S STATE INSURANCE<br>CODE</td><td>COA<br>G.S. BASIC<br>HEALTH CODE</td><td>CSA<br>NO S&S CCOA<br>NOS&S STATE DATA</td><td>COA<br>NO S&S CCOA<br>NOS&S STATE DATA</td><td>FORM EXECUTED (COA) NO TAX EXECUTION<br>FORM EXECUTED (COA) NO TAX EXECUTION<br>1 IRS<br>2 NO</td><td>COA<br>NO S&S CCOA<br>NOS&S STATE DATA</td><td>FORM EXECUTED (COA) NO TAX EXECUTION<br>FORM EXECUTED (COA) NO TAX EXECUTION<br>1 IRS<br>2 NO</td><td>STATE COOS</td></tr><tr><td colspan="17" style="text-align:center;">SIGNATURE OR OTHER AUTHENTICATION</td></tr><tr><td colspan="17" style="text-align:right;">POSTED<br>AUG<br>1978<br>L<br>JRC</td></tr></tbody></table>
+
+AEO:13 AUG 76
+
+SECRET
+(When Filled In)
+
+FOM 1150 Use Previous SECRET
+
+E 2 IMPORT CL BY 007027 [••]

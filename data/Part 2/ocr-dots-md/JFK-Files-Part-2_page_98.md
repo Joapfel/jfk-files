@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_98.png
+
+Convert to MarkdownSECRET
+
+11 October 1968
+
+MEMORANDUM FOR: Contract Personnel Division
+VIA : WH/Personnel, Attention: Mr. Renehan
+SUBJECT : Joyce C. PINEINCH (201-278841)
+
+1. Subject has been terminated effective 1 July 1966 by the Mexico City Station. She was paid her salary through 30 June and was given her income tax refund for the period 1 January 1965 through 30 June 1966. A copy of the termination Secrecy Oath, signed in true name, is on file in subject's official 202 file.
+
+2. It is requested that the CPD and Office of Finance files be altered to reflect the termination of Subject.
+
+W. J. Kaufman
+C/WH/1
+
+SECRET
+
+<table><tr><td>GROUP I</td></tr><tr><td>Established on August 1,</td></tr><tr><td>CITY, STATE, ZIP</td></tr><tr><td></td></tr></table>
+
+13 October
+red x fjd
+WH1B+F
+c/WH1SS
+c/cPD
+OF/CARS

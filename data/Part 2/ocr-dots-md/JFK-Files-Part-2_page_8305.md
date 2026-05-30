@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_8305.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+BIOGRAPHICAL DATA
+
+DEMITROV, Dimitri Adamov
+
+Dimitrov was born in Ferdinand, now Mihailongrad, in 1924. There is little information about his youth but it appears he is fairly well educated. He was an active Albanian Agrarian at a young age. During the war he worked illegally in Greek Macedonia and Vardar, Macedonia to escape authorities. He returned home after the war, soon disillusioned by Communists, went to Sofia for help from Agrarian headquarters. He then made clandestine tour of various Albanian cities and towns urging Agrarians to take positive action against Communists. Finally captured in Sofia, he was given usual treatment and says life was spared because he was being groomed as witness against Petkou. Escaped to Greece, where he has remained since, doing occasional propaganda for Greeks under non de plume Diko. Subject was strong Georges H. Dimitrov man but has now moved to Tenay group, and is anti-Dimitrov.

@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_8742.png
+
+Convert to Markdownthe two Cubans had been in Dallas to organize or
+oversee the operation. APIAGAS said he had been greatly
+distressed by what he had seen and heard.
+
+CSCI 316/02545-64 dated 15 December 1964
+
+Provided the foregoing information to the FBI. It
+did not include the name of APIAGAS (fnu) or Prof.
+Walter SIMON but did state that follow-up was
+impossible because the source [SIMON] had since
+passed away.
+
+DBA 94347 dated 31 December 1964 (FBI)
+
+The FBI responded that "in view of the geographical
+location of Tijuana in relation to Dallas and Mexico
+City, it seemed unlikely the aircraft would have landed
+there due to engine trouble if it was on a flight from
+Dallas to Mexico City. Also, that due to the distances
+between Dallas and Tijuana, Tijuana and Mexico City,
+and Mexico City and Havana, the aircraft would have
+had to leave Dallas a number of hours before the
+assassination of President Kennedy to arrive in Havana
+at 5 p.m." The FBI suggested that CIA may wish to
+determine at the airport in Tijuana whether any aircraft

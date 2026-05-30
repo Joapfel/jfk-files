@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_5908.png
+
+Convert to Markdownand left an office during the same quarter they might not appear
+on the staffing complement, 2. If an individual was TDY to an
+office they would not appear on the staffing complement of that
+office. 3) If an individual was being paid by their home office
+they would not appear on the staffing complement of the outside
+office they were supporting.
+
+Question 3 - We have seen DO monthly operational reports which contain information on the allocation/distribution of operational funds. Are there other DO or DA records which reflect how a certain project utilized its funding? Can this type of information from the early 1960s still be retrieved?
+
+The DO operational fund records would contain expenditures against a certain project or operation. However, according to C/FSD the system that preceded the General Accounting System (GAS) was RCA 501 (not sure what this contained) but in all probability has been destroyed, would have this type of information also. More information may have been recorded in 201 files similar to today's automated systems.
+
+**Question 4 - What records are kept on disbursements in the field?** If hypothetically LHO had received money from the Agency what records would exist?
+
+According to the OFL Records Control Schedule station accounting containing indigenous personnel are kept for 56 years, station accounting not containing indigenous personnel are kept 20 years.
+
+**Personnel**
+
+**Question 1 - What records are maintained on contract personnel?**
+
+Responsibility for records maintained on independent
+contract personnel was transferred to OFL o/a 1 October 1996.
+Staff contract personnel files continue to be maintained by HRM.
+
+Office Contract Personnel Files contain many of the same items found in the staff Official Personnel File (OPF)-- application info, actions (Staff contracts only) clearance info, secrecy agreement, etc., and also contract info (agreements, amendments, terminations, etc.) A separate payroll file was also maintained.
+
+IC's - fee for task
+
+Staff Contracts - hired for job--not to exceed 5 years.
+
+Contract files can be opened/maintained/retired in true name, pseudo, alias or crypt depending upon the sensitivity of the contract.

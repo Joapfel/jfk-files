@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_2033.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="2">SECTION C</th><th>NARRATIVE COMMENTS</th></tr></thead><tbody><tr><td colspan="3"><p>Indicate significant strengths or weaknesses demonstrated in current position keeping in proper perspective their relationship to overall performance. State suggestions made for improvement of work performance. Give recommendations for training. Comment on foreign language competence, if required for current position. Amplify or explain ratings given in Section B to provide best basis for determining future personnel action. Manner of performance of managers/supervisors must be described, if applicable.</p><p>Mr. Noel is an old hand at running Bases or Stations abroad and his performance as Chief of Base, San Francisco, amply attests that. It goes without saying that he understands all aspects of the business, knows how to delegate, organize, direct and report. He has continued to do all these things well. His seniority, experience and maturity served the Agency in particularly good stead during this period when the location of his Base was compromised in the public press, through no fault of Mr. Noel. His subsequent and consequent actions were all taken with sound judgment and appropriate calm and circumspection. He was also most receptive to, and cooperative in, Headquarters suggestions in this matter. He is, of course, cost conscious and an excellent supervisor. His overall performance is that of a high order of senior Agency officers.</p></td></tr><tr><th rowspan="4" scope="rowgroup">DATE</th><th colspan="3" scope="colgroup">CERTIFICATION AND COMMENTS</th></tr><tr><th colspan="3">BY EMPLOYEE</th></tr><tr><td colspan="3">I CERTIFY THAT I HAVE SEEN SECTIONS A, B, AND C OF THIS REPORT</td></tr><tr><th scope="col">SIGNATURE OF EMPLOYEE</th><th scope="col"></th><th scope="col"></th></tr><tr><th rowspan="3" scope="rowgroup">2.<br/>MONTHS EMPLOYEE HAS BEEN<br/>UNDER MY SUPERVISION<br/><br/>6 months</th><th colspan="3">BY SUPERVISOR</th></tr><tr><td colspan="3">IF THIS REPORT HAS NOT BEEN SHOWN TO EMPLOYER, GIVE EXPLANATION<br/>Subject is in the field; a copy of this report is being retained to show him on his next TDY to Hqs.</td></tr><tr><th scope="col">OFFICIAL TITLE OF SUPERVISOR<br/>C/DO/I</th><th scope="col">TYPED OR PRINTED NAME AND SIGNATURE<br/>(signed in draft)<br/>Stanley H. Gaines</th><th scope="col"></th></tr><tr><th colspan="3">BY REVIEWING OFFICIAL</th></tr><tr><td colspan="3">COMMENTS OF REVIEWING OFFICIAL<br/><br/>Concur fully in overall rating of "Strong".</td></tr><tr><th scope="row">DATE</th><th scope="col">OFFICIAL TITLE OF REVIEWING OFFICIAL</th><th scope="col">TYPED OR PRINTED NAME AND SIGNATURE<br/>Gordon L. Jorgensen</th></tr></tbody></table>
+
+SECRET
+
+28 August 1967
+
+Chief, DO Division
+
+Gordon L. Jorgensen
+
+50 FH '67

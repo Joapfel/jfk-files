@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_5414.png
+
+Convert to MarkdownSECRET
+
+* The practice of counterintelligence (CI) -- and hence the issue of damage to national security -- proceeds from four basic questions:
+
+    * what information was compromised?
+
+    * what foreign intelligence service(s) received the information?
+
+    * what understanding of the information did the receiving intelligence service(s) have?
+
+    * what information did the receiving intelligence service(s) believe and thus act on to its benefit and to the detriment of the other party?
+
+* The first two questions are largely factual and can be acquired through a combination of confessions, polygraph interviews, and/or assumptions based on access.
+
+* Questions three and four, however, are the most difficult and the most important for both the acquiring intelligence service and the target intelligence service.
+
+* Question 3 is important (e.g., Boyce Lee case) but is not really an issue here since the US fully understood the information presented.
+
+* Question 4, however, is the quintessential factor for exploitation.
+
+    * If the receiving intelligence service believes its asset (e.g., a defector), they act on the information to the detriment of the other service.

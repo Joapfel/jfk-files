@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_7009.png
+
+Convert to Markdownappeals within 7 days of receiving Notification Letter
+
+4. CIA has never before presented an appeal to the President; FBI presented an appeal last year but the White House told the parties to work out their difficulties.
+
+### III. February 8th Appeal
+
+1. In November and December of 1995, the JFK Board notified DCI of the release of documents that would:
+
+- implicate high-ranking [Mexican] officials in a [joint tel-tap] operation against [foreign embassies] - [Mexican liaison] (December 7)
+
+- reveal station in [Helsinki] (December 27)
+
+- identify sensitive [unilateral] source in the [Nicaraguan] service (November 28)
+
+2. On February 8, DCI submitted an appeal to the President on these issues.
+
+a. Admittedly, CIA did have problems getting appeal out on time. The JFK staff was very understanding of our time problems and arranged to give us more time. They too have recognized that the time periods set out in the Act are too short to bring an appeal.
+
+b. The reason for CIA's delay was simply because the decision to appeal a Board determination to the President of the US is very difficult one to make, both on a procedural and a substantive level. As CIA never did an appeal before, it did not have an efficient system worked out.
+
+c. Today, the procedure is as follows: Once HRG is notified of Board decisions, they immediately pass this on to OGC and the DO. The appropriate components within DO are asked whether the release would cause current damage to the national security or intelligence operations or sources. If so, they are tasked to provide a written assessment of that damage.
+
+d. An appeal package is then prepared by OGC and the DO. This package must then be approved by GC, DDO, EXDIR, DDCI and DCI.
+
+e. Although CIA's turn around time is improving, it can take several weeks to task the appropriate people, have them gather the information needed to prepare an appeal and then get this up to the DCI.
+
+3. Despite our time problems, the JFK Staff was cooperative in the process of bringing this appeal to the President:
+
+SECRET
+
+SECRET
+
+ADMINISTRATIVE INTERNAL USE ONLY
+
+SECRET
+
+ADMINISTRATIVE - INTERNAL USE ONLY

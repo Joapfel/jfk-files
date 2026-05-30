@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_3650.png
+
+Convert to Markdownc. Now the Peasant Party, one of the three in the coalition, has voted to pull out, and probably will do so as soon as Inonu gets back from Washington. Another partner, the Turkey Party, has wanted to pull out, and apparently has stayed in only because of pressure from the military.
+
+d. A new coalition is at least a theoretical possibility, with a number of independents taking the place of the Peasant Party, but Inonu probably would not be prime minister.
+
+e. The military are working for an all-party coalition. This way, they feel, they could keep tabs on the Justice Party, but the Justice Party is not likely to buy this arrangement.
+
+f. As matters now stand, the military would take over the government itself before it would let the Justice Party form one.
+
+4. USSR wheat
+
+a. Soviet President Brezhnev has told the Iranian prime minister that the decision to buy wheat abroad was taken to avoid lowering reserves, which he has described as ample for one or two years. We think the situation is more serious than that.
+
+(Cont'd)
+
+For The President Only - Top Secret

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_6082.png
+
+Convert to Markdownconstructive dialogue with the executive branch and the Congress about the character and disclosure of documents.
+
+4. How do you view the job of ARRB Executive Director? What role do you anticipate playing in the selection of ARRB Executive Director and staff?
+
+Members of the ARRB are charged with appointing an Executive Director, whose responsibilities include serving as a principal liaison to Government offices; administering and coordinating the Board's review of records; and administering the official activities of the Board. The Executive Director will have no authority to decide or determine whether any record should be disclosed to the public or postponed for disclosure. That duty resides with the Board alone. The selection of staff members will be done in keeping with the statutory requirements. Staff members will have no authority to determine whether a record should be disclosed or postponed.
+
+### III. POLICY ISSUES
+
+1. Have you made any public statements -- oral or written -- regarding the assassination of President Kennedy or the public availability of government records regarding this assassination? Please explain, and provide copies of any relevant material.
+
+I have made no public statements.
+
+a) Can you describe what prior experience you have had, if any, with using or examining security classified records of the Federal Government?
+
+From 1968 to 1969 I served as an officer in the United States Army, a position that required me to handled many classified documents and other materials. These documents ranged from war plans, to encrypted messages, to memoranda and working papers on various intelligence matters.
+
+b) What do you think of our current security classification system? For example, would you say it operates well, has integrity, and serves the public interest?
+
+Although I have not worked with classified documents for some time, my general sense is that the present system probably leans too heavily toward classification and over-classification of materials that really do not deserve protection. My own experience in years past suggests a tendency to make secret that which is confidential and confidential that which is really not confidential.

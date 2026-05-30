@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_867.png
+
+Convert to Markdown# SECRET
+
+## Reviewing Comments (continued)
+
+role in suggesting operational ideas, levying tailored
+intelligence requirements, etc. to the various ops officers.
+Accordingly, for this rating period, I would rate Subject
+in Duty #1 at Proficient with an over-all rating of
+Proficient. Subject has the potential to increase his
+capability in the operations and ops management spheres.
+Subject and his rating officer work effectively as a team;
+consultations between them have produced some positive
+results.
+
+SECRET

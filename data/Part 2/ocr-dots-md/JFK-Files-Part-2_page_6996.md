@@ -1,0 +1,4 @@
+# JFK-Files-Part-2_page_6996.png
+
+Convert to Markdowncommittee? All those in favor, say "Aye." MEMBERS: Aye. REP. : Opposed, "No." In the opinion of the chair, the ayes have it. The bill moves forward to the full committee. There is no other business before the subcommittee. We now stand adjourned. Thank you all for your hard work.
+~END~

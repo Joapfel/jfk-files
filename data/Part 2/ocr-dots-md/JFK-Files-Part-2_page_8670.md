@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_8670.png
+
+Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+Declassified and Approved for Release
+by the Central Intelligence Agency
+Date: 2003
+
+REVIEWED BY FBVJFK TASK FORCE
+ON 9/21/98 Jak
+
+- [x] RELEASE IN FULL
+
+- [ ] RELEASE IN PART
+
+- [ ] TOTAL DENIAL
+
+JOB
+BOX RETIRED FILE
+84-777K
+7 FOLDER 001
+DESELECTED
+
+per DOL 70-17

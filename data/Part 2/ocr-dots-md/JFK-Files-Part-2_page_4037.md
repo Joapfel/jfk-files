@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_4037.png
+
+Convert to MarkdownEP 65-951
+
+In the presence of El Paso Police Department
+Detective THOMAS F. MC CONNELL, JR. and his partner,
+NAGELL stated that he desired to talk to Special Agents
+of the FBI. He stated that he did not desire to talk
+in the presence of anyone else and Detective MC CONNELL.
+and his partner then departed.
+
+NAGELL started off his conversation by saying that when he had appeared before the US Commissioner just prior to this interview, that he had "pled not guilty" since he did not know what else to do. He stated that he did not desire to be represented by an attorney and that he did not care what happened to him. He exhibited his left wrist, the inside of which was covered with a great number of superficial wounds to the skin. He stated that the night before while he was in the El Paso City Jail he had used a piece of tin in an attempt to cut his wrists. He said he had lost about a pint of blood.
+
+He stated that when he entered the State National Bank of El Paso on the afternoon of September 20, 1963, that he would not have taken any money. He said that to the best of his recollection he had been in El Paso for several days and had made an attempt to find a former war buddy of his named JOSE C. IBARRA, who formerly resided at 904 South Hill Street in El Paso. He stated that he had made inquiry at this address, but IBARRA had moved and he was not able to find out where he had gone. He said that he had known IBARRA in 1948 and 1949 when both of them were Sergeants in the Army. Continuing, he advised that he had driven to El Paso from San Diego, California. NAGELL stated that he had not eaten in three days because he did not feel like doing so. When asked if he desired food he stated that he was afraid that it would make him sick if he attempted to eat.
+
+NAGELL stated that he wanted to point out that he had in the past received psychiatric treatment and that in 1955 he had been hospitalized at Walter Reed Army Hospital as a result of the crash of an Air Force B-25. He advised that he had been the sole survivor of this crash and had spent a considerable length of time in the hospital. He advised

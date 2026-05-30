@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_3719.png
+
+Convert to Markdown13-00000
+
+# TOP SECRET DINAR
+
+Europe
+
+## AREA NOTES
+
+**NATO:** The NATO ministerial meeting in Paris, which ended on 17 December, avoided serious discussion of the more contentious issues facing the alliance. There was, for instance, only passing reference to the matter of nuclear sharing. While NATO's military posture was generally recognized as still inadequate, the Force Planning exercise--which is designed to help correct this situation--was not discussed at all. The dispute over basic strategy, the chief stumbling block to the exercise, was put off until after De Gaulle's press conference sometime in January.
+
+All but the French agreed that the alliance should explore possibilities of negotiating with the Soviets on outstanding East-West issues. The Germans, as usual, indicated some reservations because of their sensitivity regarding Berlin and German reunification. The question of restricting Western credits to the Soviet bloc was reserved for future consideration. (SECRET NO FOREIGN DISSEM)
+
+Iceland's near general strike was settled on 21 December when labor and management agreed to a 25-percent wage increase. The 11-day work stoppage was led by Communist-dominated unions seeking, as in the past, to force the resignation of the Conservative - Social Democratic government by discrediting its economic policies. The settlement is regarded as a political victory for Prime Minister Benediktsson's government, since the Communists were unable to maintain a solid grip on labor.
+
+The settlement, however, will intensify inflationary pressures and will probably force Benediktsson to take extraordinary measures to maintain economic stability. For political reasons he will try to avoid another currency devaluation, but it is doubtful that the government can maintain its economic stabilization program without resorting to this measure. (CONFIDENTIAL)

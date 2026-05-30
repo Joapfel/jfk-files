@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_3370.png
+
+Convert to MarkdownTOP SECRET
+
+21. Cable to Director from COS Havana, 18 Dec 58,
+HAVA 0704 (CHECK NO. 453). S.
+
+22. Alfred T. Cox, *Paramilitary Activities at the Staff Level*, 15 Sep 55 - 31 Dec 61, II, 374-375 (CSHP 183, Mar 70). S.
+
+23. Memo for Bob Dahlgren from Alfred T. Cox and Col. C. H. Heinlen, 31 Dec 58, sub: Support Arrangements. S.
+
+24. Memo for the President from Acting Secretary [of State], 23 Dec 58, sub: Cuba. TS [no number]. (Dwight D. Eisenhower Library: Gordon Gray Records, 1952-61, "Cuba" folder, Box 27(?).)
+
+[Minutes of] Special Group Meeting on Cuba [from Thomas A. Parrott?], 7 Jan 59. S.
+
+25. [Minutes of] Special Group Meeting on Cuba [from Thomas A. Parrott?], 7 Jan 59. S.
+
+Handwritten notes on Department of State Meeting on Cuba [by Gordon Gray?], 31 Dec 59. (Dwight D. Eisenhower Library: Gordon Gray Records, "Cuba" folder, Box 27.) U.
+
+26. Dwight D. Eisenhower, *Waging Peace* (N.Y., 1965), pp. 521, 524. U.
+
+## B. Castro Takes Over
+
+27. Cable to Havana from Director, 9 Jan 59, DIR 07542 (OUT 60805). S.
+
+Cable to Director from Havana, 15 Jan 59, HAVA 0900 (IN 47617). S.
+
+Memo for Assistant Chief of Staff, Intelligence (Army) from C. P. Cabell, 6 Feb 59, sub: Proposed US Army Operation Against the New Cuban Armed Forces. (ER 11-409a.) S.
+
+TOP SECRET

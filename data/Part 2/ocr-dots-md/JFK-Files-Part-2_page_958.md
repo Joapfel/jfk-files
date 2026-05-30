@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_958.png
+
+Convert to MarkdownCONFIDENTIAL
+
+25 MAR. 1967
+
+MEMORANDUM FOR: Chief, FE Division DD/P
+SUBJECT : Security Violation - Open Safe
+
+FOX, Jerome
+(FOURTH VIOLATION)
+
+1. An investigation by this Office has determined that Mr. Fox, assigned to your Division, was responsible for an Open Safe security violation which occurred on 9 March 1967.
+
+2. The records of this Office indicate that Mr. Fox has been previously charged with an Open Safe security violation which occurred on 28 May 1964, an Exposed Classified Material security violation which occurred on 11 January 1968, and an Exposed Classified Material security violation which occurred on 12 May 1968. In view of the fact that there have not been two consecutive years without a violation since 28 May 1964, this is to be considered Mr. Fox's fourth security violation for administrative action as specified in Section (e) of CIA Headquarters Regulation 10-1.
+
+3. It would be appreciated if you would advise this Office by memorandum of the administrative action taken in this case.
+
+S. J. ZAME
+ermal P. Gelsa
+Deputy Director of Security (PTOS)
+
+Att
+
+Violation Report
+
+cc: Deputy Director for Plans
+Director of Personnel
+
+CONFIDENTIAL
+
+<table><tr><td>DATE</td></tr><tr><td>Subject</td></tr><tr><td>Purposes</td></tr><tr><td>Security Level</td></tr><tr><td>Glossary</td></tr></table>

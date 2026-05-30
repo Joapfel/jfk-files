@@ -1,0 +1,57 @@
+# JFK-Files-Part-2_page_2900.png
+
+Convert to Markdown104-10295-10168
+
+<table><tr><td>14-0000</td></tr></table>
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+VIA: AIR
+(SPECIFY AIR OR SEA POUCH)
+
+D. MATCH NO. HKH-A-341B
+
+201-32723
+
+TO : Chief, WHD
+
+FROM : Chief of Station, Habana SRR
+
+SUBJECT: GENERAL— Administrative
+         SPECIFIC— Arthur G. VAIVADA
+
+DATE: 21 February 1957
+
+Ref: HKH-W-2092, 8 February 1957
+
+1. With regard to the contents of reference dispatch, which were communicated to the Subject, VAIVADA has no objections and is agreeable to conversion to the career agent category as described therein.
+
+2. VAIVADA requests, however, that the plans already proposed for acquisition of U.S. citizenship by his wife be carried through. He, and the Station, believe that this step will provide him with greater security in non-official cover assignments. In addition, such action will minimize the red tape he must cut each time he has to obtain new visas for himself and family.
+
+3. The Station will submit a new request for VAIVADA's training several months prior to the desired new training dates.
+
+Distribution:
+* 3-Washington
+* 2-Files
+
+20 February 1957
+
+JRP/mfbi
+
+CS COPY
+
+SECRET
+CLASSIFICATION
+
+FORM DL
+MAR. 1995
+
+51-28A
+
+RI COPY
+
+201-168 881
+
+19-1-1-7856
+
+COPY TO:

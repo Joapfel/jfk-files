@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_7007.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+**TO:** John Pereira
+Laurie Goodwin @ DO
+**FROM:** Richard E. Schroeder-C-
+**DATE:** 04/03/96 12:57:18 PM
+**SUBJECT:** ☐Re: HPSCI Request for staff brief on JFK assassination
+
+HPSCI staffer Susan Ouellette liked John Pereira's 27 Mar 96 telecon on the JFK assassination issue (see attached note) so much that she'd like to schedule a staff brief for sometime in the next two weeks. She'd like the brief to concentrate on two issues mentioned by John in the telecon:
+
+- Differences with the Board on release of certain info (names of former employees, identification of stations),
+
+and
+- Current appeal to the White House of decesion of Board to release certain info we redacted.
+
+Defer to John and DO addees to work out who'll brief (see separate note from DO/ORMS Laurie Goodwin re Bill McNair.)
+
+Ouellette suggests c. 1000 either Apr 2, 3, or 4, or Apr 9, 10, 11 since HPSCI recess schedule is pretty open.
+John, pls advise your timing preference. Thanks.
+
+C9605672.DOC
+
+I've now confirmed our briefing for HPSCI at 1030 Weds 10 April. Pls let me know who will attend for CSI and the DO.
+Thanks. OCA van will depart from DHB Main Entrance at 1000. RES 1255/3Apr96.
+
+**CC:** Brian Latell, Barry Harrelson, Fred Wickham @ DO, William McNair @ DO, Virginia B. OKUM @ DO, Montgomery Rogers, Charles Boykin, Joyce Woodburn, Jacqueline Mitchell
+
+SECRET

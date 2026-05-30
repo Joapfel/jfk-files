@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_4059.png
+
+Convert to MarkdownEP 65-951
+
+Automobile
+(Cont'd)
+
+Records of the Division of
+Motor Vehicles, Los Angeles,
+California, reflect 1957
+Ford sedan with 1963 California
+license LVZ 076, vehicle
+identification number
+C7LT138540, registered to
+RICHARD C. NAGELL, Box 76121,
+Sanford Station, Los Angeles,
+California, in December, 1962
+or January, 1963. 1963
+California license OCZ 155
+for identical vehicle registered
+to RICHARD C. NAGELL, Box 75801,
+Sanford Station, Los Angeles,
+in February or March, 1963
+(in possession of this vehicle
+when arrested in El Paso on
+September 20, 1963)
+
+IDENTIFICATION RECORD
+
+The following is the FBI Identification Record for
+RICHARD CASE NAGELL under FBI number 631 219 E, dated
+October 3, 1963:
+
+| CONTRIBUTOR OF FINGERPRINTS | NAME AND NUMBER | ARRESTED OR RECEIVED | CHARGE | DISPOSITION |
+|---|---|---|---|---|
+| Army | Richard Case | 8-5-48 |  |  |
+|  | Nagell | Albany |  |  |
+|  | RA 12 115 891 | NY |  |  |
+| Camp Holabird Baltimore MD | Richard C. Nagell #-- | FP 1-27-54 |  |  |
+| PD Los Angeles Calif | Richard Case Nagell #LA 616 479-N | 5-31-62 | drk |  |
+| USM El Paso, Texas | Richard Case Nagell #2248-A | 9-21-63 | Sect #2313 bank rob |  |
+
+55°

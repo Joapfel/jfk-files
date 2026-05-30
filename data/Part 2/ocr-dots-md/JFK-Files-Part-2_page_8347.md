@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_8347.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+29 February 1952
+
+MEMORANDUM FOR: WH DIVISION
+ATTENTION: Colonel Smith
+SUBJECT: Kelly Case
+
+1. In accordance with your request, the following information, which may be helpful in connection with subject's rehabilitation, is furnished.
+
+2. All the information we have concerning Kelly's life prior to his arrival in Greece was furnished by Kelly himself and is almost wholly unsubstantiated. This, in brief, is Kelly's story; He was born 7 May 1924 in Medkovets, Bulgaria. He studied philosophy in 1942-43 at the University of Sofia. In 1942 he joined a secret branch of the Bulgarian National Agrarian Union and worked closely with Dr. Georgi M. Dimitrov in anti-Pascist activities (a claim which Dr. Dimitrov has denied.) After emerging briefly from hiding in September 1944, he again went underground, engaging in anti-Coanunist activities in various cities and towns in Bulgaria, Yugoslavia and Macedonia where he urged members of the Agrarian Party to take action against the Communists. In October 1946 he was arrested by the police, sentenced to death, but not executed as the Communists wished to use him as a witness against the Agrarian leader Nikola Petkova. On 23 July 1947 he escaped to Greece.
+
+3. Further light is thrown on Kelly's experiences in a manuscript which he claimed to have written and delivered to U. S. authorities in Greece with the purpose of finding a publisher for this, and other, material. It subsequently developed that Kelly was not the author of these papers but rather had furnished information to a Greek friend (John Calavano) who was the real author. A rough translation of one of these documents is enclosed.
+
+4. Because of his undeniable organizational ability, tremendous energy and glib, but largely untruthful, salesmanship, Kelly was able to organize a group of Bulgarian immigrants in Greece into what he called the Bulgarian Democratic Bloc. His use by this agency was believed advisable inasmuch as his organization provided the potential for recruiting infiltration agents within a shorter time and with fewer political strings attached than any other emigre groups. Furthermore, his organization provided a convenient name for use as a front to cover operational activities. As a result of the limited recognition and support given him and of his own success in providing agents, Kelly developed a certain megalomania and consequently lost his initial popularity through dictatorial conduct and completely unwarranted behavior as the future head of the liberated Bulgarian state. An American case officer who was intimately involved with the Kelly operations at this period has furnished the following statement:
+
+"Early in
+
+SECRET
+
+201-45145"}]

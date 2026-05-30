@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_2961.png
+
+Convert to MarkdownSECRET
+
+4-5 March 1964
+McCone meets with General Eisenhower who discusses relations with de Gaulle.
+
+6 March 1964
+McCone travels to Vietnam until 13 March; McCone dissents on McNamara's trip report; reports policy disagreement separately ✓ to President Johnson.
+
+17 March 1964
+NSC meeting on Vietnam. ✓
+
+1 April 1964
+McCone develops basic position paper on NRP for use with Baker panel of PFIAB.
+
+2 April 1964
+At evening seminar, McCone develops position paper on operations against North Vietnam.
+
+7 April 1964
+McGeorge Bundy develops position paper on Covert Program Against Cuba for use in meeting with President Johnson.
+
+22 April 1964
+McCone talks to McGeorge Bundy about lack of direct briefings of the President by the DCI.
+
+29 April 1964
+McCone talks to President Johnson about lack of direct access.
+
+2 May 1964
+NSC meeting on Cuban overflights.

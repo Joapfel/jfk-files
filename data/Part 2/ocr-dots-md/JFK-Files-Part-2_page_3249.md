@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_3249.png
+
+Convert to MarkdownTOP SECRET
+
+By August of 1960, WH/D had approved a program of "subtle sabotage paying off, without resorting to the more risky and sensational type of sabotage." Unfortunately, however, there was a communications gap between the operations people and the intelligence analysts most familiar with the world petroleum industry and a number of demonstrably unworkable -- though subtle -- sabotage efforts came to naught.*
+
+The Cuban petroleum industry also was looked to as an economic-political target as well as a sabotage target. When the US refineries operating in Cuba refused Castro's order to process Soviet crude oil, WH/4 began to think in terms of disrupting the flow of this crude to Cuba by pressuring Onassis and other independent shipping operators to refuse to carry the Soviet oil. It was predicted that such
+
+* The Agency's real petroleum expertise and knowledge-ability -- both technically and economically -- on a worldwide basis was in the Fuels and Power Branch (later the Fuel's Branch) of the Office of Research and Reports (later the Office of Economic Research). Aside from the constant irritation of having to work half in the dark in response to WH/D or WH/4, ORR/F&P was constantly having to correct errors, to make apologies, or mend fences with the major US petroleum companies as a result of the lack of coordination between DDP and DDI components.

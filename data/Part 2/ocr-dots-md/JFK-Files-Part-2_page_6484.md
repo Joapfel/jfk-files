@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_6484.png
+
+Convert to Markdown(4) Complete positioning of forces for implementation of portions or all of CINCLANT OPLANS 312 and 316.
+
+d. The US would have the option of replying to a formal call for help by either publicly announcing immediately its intention to support the Provisional Government and initiating overt military operations, or responding by establishing a blockade without admitting other support for the coup. In the latter case, the US would, between the time of the Presidential announcement of the blockade and public announcement of the other forms of support, employ small groups of intelligence and reconnaissance units, thereby providing visible evidence to the insurgents that support is forthcoming and yet providing a facade of non-intervention while the US consults with its allies to gain their political support. At the same time, the US would be generating and positioning forces required for significant overt military operations. Upon publicly announcing US intent to support the Provisional Government, the US would initiate overt logistical and air support to the insurgents. There is a possibility that this level of assistance and demonstrated US intent would be sufficient to bring down the Castro regime, if the coup carried with it a significant element of the Cuban armed forces. However, it is probable that the US would have to introduce conventional forces incrementally as required to sustain the uprising and should be prepared to and would implement portions or all of CINCLANT OPLANS 312 and 316, as required.
+
+**4. Facts Bearing on the Problem.**
+
+a. **The Situation in Cuba.** The Government has an excellent surveillance network, both internally and with respect to the air and sea
+
+6.
+
+TOP SECRET SENSITIVE

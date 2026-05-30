@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_8419.png
+
+Convert to MarkdownSECRET
+
+-25-
+
+9. Superiors: degree of intimacy:
+
+a) In May 1968 the Ambassador Joaquin HERNANDEZ Armas appeared to be defending himself to Cruz, maintaining that he, HERNANDEZ, has not made a political statement as it was published in the newspaper El Heraldo. HMMA 34728.
+
+b) In August 1968, Felix Luna referred to Eduardo MUÑOZ Gutierrez of the Cuban National Council of Culture was Cruz' boss. (MEXICO CITY 6837, 20 August 68).
+
+c) Rita BLAZEK, transcriber, commented that Mercedes is very correct with the Ambassador, yet is also friendly and relaxed with him.
+
+10. Subordinates:
+
+Jesus Cruz' principal subordinates are the Prensa Latina chief. He appears to rely more on his wife than he does his part-time secretary for business matters. The Station believes he can use Rosa FERNANDEZ de ALVAREZ, the secretary of Jorge HERNANDEZ, Cultural Attaché.
+
+With the Prensa Latina men, he gives quite specific instructions. He believes he should be consulted more by Prensa Latina, so that it can be sure to follow the line. He is on the phone constantly with Prensa Latina, going to their office or having Prensa Latina employees come to the Embassy.
+
+Mercedes appears to get along well with all the employees in the Embassy, and is very friendly with official Cuban visitors. She especially likes to gossip. In this gossip she often criticizes the other compañeras in the Embassy.
+
+S E C R E T

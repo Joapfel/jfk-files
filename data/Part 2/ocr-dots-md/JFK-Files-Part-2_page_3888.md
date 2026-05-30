@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_3888.png
+
+Convert to MarkdownCIA HISTORICAL REVIEW PROGRAM
+RELEASE IN FULL 1998
+
+1/24/68
+Jxaw

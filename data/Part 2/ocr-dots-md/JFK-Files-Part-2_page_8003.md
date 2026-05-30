@@ -1,0 +1,75 @@
+# JFK-Files-Part-2_page_8003.png
+
+Convert to MarkdownThe Watergate Crime
+
+Articles Published in Computers and Automation August 1972 to September 1973
+
+Inventory of Titles, Authors, and Summaries
+
+August 1972
+
+**33** The June 1972 Raid on Democratic Party Headquarters — Part 1
+by Richard E. Sprague, Hartsdale, N.Y.
+A report on five men who have numerous connections with the Republican Party, the White House, the Central Intelligence Agency, anti-Castro Cubans, and plans for the assassination of President John F. Kennedy, and who were arrested seeking to bug Democratic National Headquarters at 2:30 a.m., June 17, 1972.
+
+October 1972
+
+**18** The Raid on Democratic Party Headquarters (The Watergate Incident) — Part 2
+by Richard E. Sprague, Hartsdale, N.Y.
+A report on further developments in the June 1972 raid by James McCord, Bernard Barker, and others, on National Democratic Party Headquarters, and implications affecting a number of Republican leaders and President Richard M. Nixon.
+
+November 1972
+
+**26** Bernard L. Barker: Portrait of a Watergate Burglar
+by Edmund C. Berkeley, Editor, *Computers and Automation*
+How a cloak and dagger operative and right-wing activist, who was caught as a burglar in the Watergate Hotel offices of the Democratic National Headquarters, looks at himself and his line of work.
+
+**29** Walter Sheridan — Democrats' Investigator? or Republicans' Countermeasure?
+by Richard E. Sprague, Hartsdale, N.Y.
+Walter Sheridan, recently employed by the Democratic National Committee to investigate the Watergate Incident, may actually be a "counter-measure" by the Republicans to defeat the Democratic investigation.
+
+December 1972
+
+**24** The Raid on Democratic Party Headquarters (The Watergate Incident) — Part 3
+by Richard E. Sprague, Hartsdale, N.Y.
+A report on further developments in the June 1972 raid by James McCord, Bernard Barker, and others, on National Democratic Party Headquarters, and implications affecting a number of Republican leaders and President Richard M. Nixon.
+
+**26** Martha Mitchell and the Watergate Incident
+by Martha Mitchell, the magazine *Parade*, and Richard E. Sprague
+How Martha Mitchell (wife of former Attorney General John Mitchell) was motivated and kept in
+
+communicado and a prisoner — reported on by Mrs. Mitchell and the editor of *Parade* magazine.
+
+**27** The Watergate Crime: An Eye-Witness Account
+by Alfred Baldwin, 3rd
+A round-by-round account by an ex-FBI agent, an employee of the Republican Committee to Re-elect the President, of what went on while five men burglarized the Watergate offices, June 17, 2:30 a.m. Baldwin's main assignment was listening to bugged calls to the Democratic National Committee.
+
+January 1973
+
+**33** President Richard M. Nixon, the Bay of Pigs, and the Watergate Incident — Part 4
+by Richard E. Sprague, Hartsdale, N.Y.
+How President Nixon lied in 1960 about the plans for the Bay of Pigs Invasion, and is suppressing in 1972 the investigations of the Watergate Incident.
+
+March 1973
+
+**26** The Watergate Crime and the Cover-Up Strategy — Part 5
+by Richard E. Sprague, Hartsdale, N.Y.
+A report on the trial of E. Howard Hunt, James McCord, Bernard Barker, and four other persons for their raid on Democratic National Committee Headquarters in June 1972 using funds of the Republican Committee for the Re-Election of the President; and the strategies of cover-up that have been employed.
+
+June 1973
+
+**26** Watergate: What More is There to Hide? — Part 6
+by Richard E. Sprague, Hartsdale, N.Y.
+How investigation into the Watergate Crime is leading to ramifications and implications, and what are some more of the now hidden connections that may be revealed.
+
+August 1973
+
+**36** Lessons of Watergate — Part 7
+by Richard E. Sprague, Hartsdale, N.Y.
+The collection of Watergate Crimes; the anatomy of a "Really Big American Cover-Up"; other cases of "Really Big American Cover-Ups"; and the implications and ramifications.
+
+September 1973
+
+**37** Six Parallels of 25 Years Ago
+by Alger Hiss
+How an establishment attacked Alger Hiss —

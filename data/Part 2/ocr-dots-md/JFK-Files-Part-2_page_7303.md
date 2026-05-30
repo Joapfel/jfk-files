@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_7303.png
+
+Convert to Markdown13-00000
+
+SECRET/SENSITIVE
+
+25 JUL 1975
+
+MEMORANDUM FOR: Chief, Covert Action Group, Services Staff
+SUBJECT : Covert Action Operations Against Right Wing Regimes
+
+1. Attached are revisions of the descriptions of the three covert action operations in Africa, cited in your memorandum to Mr. John Waller dated 18 July 1975.
+
+2. In the case of Ethiopia, we understand from your discussions with Mr. Clifton Strathern that the labor project has not been eliminated from your list but that the Director will request that discussion of it be limited to the Chairman and Vice-Chairman only of the Senate Select Committee. The Director should be informed of the potentially embarrassing procedural errors in the presentation and review of this project before the 303 Committee, and the risks of exposure to two former assets who have been jailed by the new Ethiopian regime.
+
+3. The Ethiopian labor program was undertaken without 303 Committee knowledge or approval. Subsequently, the project was presented to the 303 Committee on 22 August 1967 and Mr. Walt Rostow, then Chairman of the Security Council, asked why it had not been brought before the Committee before. He was told that for projects costing $20,000 or less, it had been the DCI's discretion to determine if a given project was sufficiently politically sensitive to warrant bringing it before the committee. Mr. Rostow directed that the 303 Committee should examine all political action projects. Nevertheless, the project was not submitted to the Committee for review in 1968, 1969 or 1973.
+
+4. In addition to these procedural errors, the arrest in 1974 and continued detention of two Ethiopian labor leaders who are former assets under this project, and accusations in
+
+E2 IMPDET
+CL BY 009904
+
+SECRET/SENSITIVE

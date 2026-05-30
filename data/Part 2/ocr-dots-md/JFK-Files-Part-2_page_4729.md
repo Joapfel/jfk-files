@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_4729.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+was going to be problems in terms of the two Hersh articles. And Seymour convinced several of the powers that be in the Agency, including Bill, and then he finally convinced me to come on back to the Agency to help out, pulling together the stuff, because they kind of felt that I knew where the poop was. I knew roughly where it was hidden, perhaps even what safe it was in, and maybe what the hell the color of the paper was. And so I agreed to come back, and so I was in there in January of '75 and stayed on until about March, I think, maybe April '75 when it dawned on me, that this is silly, a waste of time on my part because I was getting responses to my queries from all the Directorates, I mean, I was getting substantive responses from all the Directorates except one -- the DDO. And I knew damn well where the hell the information was, that they had the information. In most cases I did. And I wasn't getting it. And the rationale I was given by several of the officers in the DDO was that, "We're not sure" -- or roughly like this -- "We're not sure what Bill Colby is going to do with this information. We don't trust him. What do you want comment for?" So I mentioned this a couple of times to Bill and he kind of said, "Okay, okay." I thought, "This is crazy." And I finally wrote him a letter, and I sent it to his home, not to the office, because I know what the hell happens with paper shuffling. Because I've done enough of it in my day. And I said to Bill, "I quit for a very simple reason. You are no longer the DCI." I said, "I agree with the guys in the DDO in that nobody knows what you are going to do with this information. But in my book you are still the commanding officer. And it is up to us as troops to give you the information you ask for. What you do with it is up to you. It is your conscience, not ours. So since you are not acting as the DCI and
+
+72
+SECRET

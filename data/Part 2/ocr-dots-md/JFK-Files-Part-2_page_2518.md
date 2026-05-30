@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_2518.png
+
+Convert to Markdown14-0000
+
+Mr. George Martin Rosnek
+
+Dear Mr. Rosnek:
+
+Reference is made to your contract with the United States Government, as represented by the Central Intelligence Agency, effective 1 March 1970, as amended.
+
+Effective 16 February 1977 paragraph four (4) entitled "Compensation" is amended by authorizing you a one-time, lump sum taxable payment in the amount of $2,100.
+
+All other terms and conditions of the contract, as amended, remain
+in full force and effect.
+
+CENTRAL INTELLIGENCE AGENCY
+
+BY
+Special Contracting Officer
+
+ACCEPTED:
+George Martin Rosnek
+2 Apr 78
+Date
+
+WITNESS:
+
+APPROVED:
+B.L.
+3 Apr 78
+Date

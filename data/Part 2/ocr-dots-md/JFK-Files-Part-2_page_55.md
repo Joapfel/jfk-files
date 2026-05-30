@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_55.png
+
+Convert to MarkdownSECRET
+
+Memo No.: Jm 52
+Date : 13 July 1960
+
+MEI:ORANDUM FOR : Warren S. YAUGER
+
+FROM : Chief, WHD
+
+SUBJECT : General - Operational
+Specific - Subject of JW-48
+
+ACTION REQUIRED:
+
+Reference :
+
+You are requested to contact Subject as soon as possible and on a
+continuing basis for information on the internal political situation in
+the Dominican Republic.
+
+OLIVER G. GALBOND
+
+SECRET,

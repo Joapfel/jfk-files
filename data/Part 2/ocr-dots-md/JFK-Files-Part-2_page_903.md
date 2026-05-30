@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_903.png
+
+Convert to MarkdownContinuation of Section B:
+
+Specific Duty No. 3
+
+collection techniques applicable to the FMCP.
+
+Specific Duty No. 4
+
+KUDOVE elements, particularly the Japanese Liaison Staff
+
+Continuation of Section Z:
+
+and experience in the broader, analytical aspects of the KUCHAP area, including language and area studies.
+
+Continuation of Section P-3:
+
+normal administrative responsibilities.

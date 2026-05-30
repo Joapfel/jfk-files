@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_7690.png
+
+Convert to Markdown1300000
+
+104-10425-10008
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+MEMORANDUM FOR: General Counsel
+
+SUBJECT : Declassification of Warren Commission Documents
+
+1. In accordance with existing arrangements, we have been asked by the National Archives to review four Warren Commission documents for possible declassification. One of the documents is classified in its entirety, whereas only certain segments of the others remain in classified status. Copies of the affected materials are attached.
+
+2. We see no reason to continue the restriction on document B. Similarly, document A would normally require no further withholding from the public domain, but we checked with Mr. David Murphy, an Agency official under Department of State cover, and he requested that his true affiliation not be revealed at this time. He is still under cover and uncoordinated revelation of his true status could become an embarrassment to the Department.
+
+3. Documents C and D would go beyond what we want to release now about our dealings with defectors and the determination of their legitimacy.
+
+4. A suggested reply to National Archives is attached. We recommend your signature.
+
+151
+Raymond G. Rocca
+Deputy Chief
+Counter Intelligence Operations
+
+Attachments
+
+Distribution:
+
+* Orig & 1 - Addressee
+* 1 - DC/CIOPS/Chrono
+* ✓1 - Warren Commission File
+* 1 - CIRA/RS/Chrono
+
+E2 IMPDET
+CL BY 006593
+
+SECRET
+
+2/1/88

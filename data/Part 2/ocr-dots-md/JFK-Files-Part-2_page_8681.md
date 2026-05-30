@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_8681.png
+
+Convert to MarkdownDBA 45327 dated 12 July 1963 (FBI)
+
+Manolo AGUILAR, 829 S.W. 9th Avenue, Miami, leader of the Frente Revolucionario Anticomunista (FRAC) (Anti-Communist Revolutionary Front) obtained some 100 Beretta 7.65 caliber pistols with silencers which his organization planned to eventually use in Cuba to assassinate various Cuban leaders. AGUILAR allegedly obtained these pistols from an unidentified American who had connections with the Mafia.
+
+### DBA 45895 dated 19 July 1963 (FBI)
+
+On 15 July 1963 the Miami News carried an article "Back Stage with Bobby" by Hal Hendrix, which related growing speculation in Miami and Washington that Attorney General Robert Kennedy was quietly backing a new anti-Castro operation with exiles Manuel ARTIME, Enrique RUIZ Williams, and Roberto and Jose SAN ROMAN. All held high posts in Brigade 2506 (Bay of Pigs). Speculation linked Kennedy's close association with these exiles to a deal with Nicaragua through ex-President Luis SOMOZA.
+
+### Anti-CASTRO PM OPERATIONS 19-9-9/1
+
+#### DBA 78251 dated 18 August 1964 (FBI)
+
+Reported plan of Cuban exile leaders to assassinate

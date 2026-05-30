@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_6433.png
+
+Convert to Markdown13-00000
+
+**Operation TRUE BLUE**
+
+1. **Objective:** To degrade Castro and his government in the eyes of the Cuban people by communications intrusion.
+
+**Concept of Operations:**
+
+2. By utilizing high powered transmitters in the vicinity of Cuba (Florida, Inagwa, Jamaica, aboard Naval ship) which have the capability of overriding commercial Cuban radio and TV stations, periodically degrade Castro and other government figures in the minds of the Cuban people.
+
+3. The technique of communications intrusion could be exploited by pre-taping or live broadcasts of anti-communist and anti-Castro propaganda at station breaks, Castro speeches, etc. This idea envisions the use of a Cuban refugee to make such broadcasts and naturally would require close monitoring of stations to be worked. Any number of thoughts could be injected such as:
+
+a. "Cuba Si, Russia No."
+
+b. Communism exploits the masses.
+
+c. Communism is ruthless totalitarianism.
+
+d. Castro and henchmen feast off the land while we are rationed.
+
+e. Castro and his reign of terror.
+
+f. Castro is a lunatic and should be put away.
+
+g. Castro is the cause of all our troubles.
+
+h. Rise up against the pig Castro, etc. etc.
+
+4. If approved this operation could become a continuous project, perhaps under control of USIA.
+
+Special Handling of this paper is requested.
+Access should be limited to individuals requiring the information herein in excess of their official duties.
+
+Production of this document in whole or in part is prohibited except with permission of the issuing office.
+
+This document consists of ____ pages.
+Copy # ____ of ____ copies.

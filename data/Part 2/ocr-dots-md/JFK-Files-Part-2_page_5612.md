@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_5612.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+Mr. Scelo. Yes.
+
+Now, why did they not report everything they found out?
+
+Mr. Goldsmith. Answer your own question.
+
+Mr. Scelo. The telephone center envoy was manned by principally Mexican supervision of an American, or Mexican-American. These people were just inundated with information and apparently did not extract this and transmit it back to Washington.
+
+The later contacts with the Cuban Embassy, and so on, which only were divulged after the assassination. It is an enormous problem. Mexico had one of the biggest and most active telephone intercept operations in the whole world and the job of processing this material is just impossible.
+
+Mr. Goldsmith. Let's go through this step by step, although I was not going to do this at this time. I am going to modify the line of inquiry somewhat.
+
+Do you know how many telephone intercepts there were in the Mexico City station?
+
+Mr. Scelo. How many lines were being tapped?
+
+Mr. Goldsmith. Yes, at the Cuban and then at the Soviet.
+
+Mr. Scelo. I think there are about 80 lines being tapped altogether. That is just the number that sticks in my mind.
+
+Mr. Goldsmith. Thirty meaning a total of thirty from both the Soviet and the Cuban?
+
+Mr. Scelo. And various security suspects.
+
+101833

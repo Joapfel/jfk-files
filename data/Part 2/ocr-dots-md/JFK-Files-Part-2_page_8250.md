@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_8250.png
+
+Convert to Markdownninient members of the Gichev Agrarians and of the Democratic Party would
+be assisted in escaping to Greece (presumably from Bulgaria) to join the
+organization.
+
+DIMITROV listed the organization's tasks as follows:
+
+a. Intelligence activity in Bulgaria.
+
+b. Organization of an underground resistance movement in Bulgaria, and
+
+c. Organization of sabotage activity against Bulgaria.
+
+DIMITROV revealed that he was the president of the organization.
+
+DIMIRTOV took frequent occasion to mention that the committee had its headquarters in the American Embassy where he has a room assigned for his own use. He also stated that the committee maintains offices at 13 Patission Street, 7th floor, rooms 2-4, and there are already working at this address sight Bulgarian-speaking Americans. He also stated that his office has two Bulgarian typewriters and a car with US license plates.
+
+SODB 31992, 14 December 1950

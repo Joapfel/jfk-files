@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_3179.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+Solicited the Group's assistance in arriving at a consensus [sic] of views as to what exactly had been decided as a result of the high level meeting [the meeting with the President] of the day before. 4/
+
+According to the memorandum on the meeting, there was agreement that the US would deny its partic- ipation in any training activities in Guatemala, that there would continue to be a prohibition on the train- ing of Cubans in the United States, and that evacua- tion plans should be kept in readiness in case the Cubans in training in Guatemala had to be evacuated -- the plan to evacuate was not clear as to whether the Cubans would be taken into Florida as ordinary refugees or whether the evacuation would call for transporting the troops to our Saipan training base.
+
+The problem that apparently created the greatest difficulty at this Special Group meeting was the Presi- dent's suggestion that a single individual should be placed in charge of the anti-Castro program. The Special Group decided that there should be two indi- viduals with principal responsibilities -- one to handle the overt and the other to handle the covert activities. After reviewing a list of potential candidates:

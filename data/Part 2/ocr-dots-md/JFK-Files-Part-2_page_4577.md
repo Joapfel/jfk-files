@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_4577.png
+
+Convert to Markdown13-00000
+
+President:
+
+N/R
+
+Enright - much taken - smart - artistic - appeared more than Advanced -
+Prea says he's going to stay home a couple of ways to get peace -
+If others want to come talk OK - but he won't make trips just for funs
+He wants Peace do anything to get it but now at expense of our
+our Security - told Enright not to play off debate against US-
+Germany to say which way they go - put more into it as we had
+to fight 2 World War was because Germany - this Proo. wants going
+to be a party to any shuffling like that - then Enright is OK -
+
+Pres. wants round-up from FBIS(CIA) and USA on world reaction to
+Erhardt visit - paid if didn't make money or that deal might be well
+give up - we got criticized as to foreign policy - built up a story -
+highly favorable reporting -

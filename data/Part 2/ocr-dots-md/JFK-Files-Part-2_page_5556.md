@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_5556.png
+
+Convert to MarkdownSECRET
+
+CL BY: 611637
+CL REASON: Section 1.5 C
+DECL ON: X1
+DRY FRM: LOC 5-82
+
+5 November 1997
+
+**MEMORANDUM FOR:**
+John Pereira @ DCI
+Fred Wickham @ DO
+Lee Strickland @ DA
+Kathryn Dyer @ DCI
+~~Linda Cipriani~~ @ DCI
+
+**FROM:** J. Barry Harrelson
+JFK Project Officer
+
+**OFFICE:** CSI/HRG
+
+**SUBJECT:** 17 November JFK Board Meeting-- CIA issues (update)
+
+**REFERENCE:**
+
+1. The following CIA items are on the agenda for the 17 November ARRB meeting:
+
+* (S) Reconsideration of the release of ~~Warrenton, Va.~~ as the location of the CIA Record Center.
+
+In addition to written evidence being prepared by DA, the Agency has been offered the opportunity to brief the Board.
+
+* Chairman Tunheim's proposal to advance the opening date of the Nosenko NBR (Not Believed Relevant) material from the 2017 per the JFK Act to the year 2010.
+
+The ARRB staff disagrees with the Board on this issue and will recommend that the release date remain 2017. However, they are not confident that the Board will accept their recommendation and has requested the Agency's position on the 2010 date. If the Agency opposes the 2010 change in the date, I will need a memo from the DO explaining why. We could offer a compromise--accept the 2010 date provided the Agency has the same right in 2010 as 2017 to review and appeal the release of the records. I have asked OGC for a legal opinion. Please note that this decision affects only those documents designated "NBR" by ARRB. The documents declared to be Assassination Records (AR) will be re-reviewed and released, either sanitized or in full, during the coming year.
+
+* (S) Proposed release of reference to CIA employee being under "integrated State cover"
+
+We have provided written evidence (DO note coordinated with State and copy of MOA between CIA and State). According to the ARRB staff, some Board members consider CIA use of state cover as an "open secret" and are inclined to release. We have been offered the opportunity to brief the Board.

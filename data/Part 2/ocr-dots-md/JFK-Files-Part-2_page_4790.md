@@ -1,0 +1,8 @@
+# JFK-Files-Part-2_page_4790.png
+
+Convert to MarkdownSECRET
+
+his actions. But you can't have 535 so-called elected representatives plus 18,000 staffers second-guessing what the President and his entire government bureaucracy is doing day by day, hour by hour, minute by minute, second by second. It won't work, it just can't work. The Executive has to take the responsibility in my opinion. For what it does, the good, the bad, and the indifferent. Not everything the Executive does is right in my opinion. For example, I think that the mining of the harbors in Nicaragua was the silliest goddamn thing those guys ever did. And I was involved in operations similar to that -- deliberately and directly. But you target. If you want to go for ships target the bloody ships. We did. We made some successes, we had a lot of failures. A lot of waste motion. No question. And I remember some of my buddies who had been retired were called back -- a few of them had been in Latin American affairs, and also covert action, paramilitary affairs, and covert action affairs and political action, also covert action -- were called back for a session with the guys running the Nicaraguan activities. And among the things they were beating the bull about was, what about mining the harbors. And without exception, I am told every single guy they called back for consultation in this meeting -- 4, 5, maybe a half dozen -- every single guy said, "Oh Christ, don't go anywhere near that. That's silly." At the end of the conference they were told the mining of the harbors had already started. And as one of my friends said, "What the hell did you
+
+133
+SECRET

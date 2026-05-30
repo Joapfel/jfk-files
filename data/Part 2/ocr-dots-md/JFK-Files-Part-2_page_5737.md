@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_5737.png
+
+Convert to MarkdownMr. John Pereira
+
+October 17, 1997
+
+*Third*, the Board will presumptively vote to open in full all records that have not been reviewed in conformity with the schedule.
+
+We can assure you that we have no desire whatsoever to take steps two and three. However, at this point, we see no other method for satisfying our obligation to ensure that the CIA's assassination-related records are released by September 1998, unless the CIA agrees to schedule the review in a timely, consistent, methodical, and enforceable manner. Although you should not hesitate to contact us regarding any ideas you have for streamlining or improving the accomplishment of this task, there should be no misunderstanding by the Agency regarding what we believe our goal to be and the steps that we are prepared to take to ensure the fulfillment of our statutory obligations and our promises to Congress. It is our perception that if the Agency allocates additional resources to the accomplishment of this project, we all will be able to accomplish the goals of the JFK Act.
+
+We therefore strongly urge the Agency to allocate now whatever resources are necessary to complete its review records in an orderly and systematic manner. To the extent that the Agency is able to meet the necessary deadlines, there will be no need for us to resort to the extreme -- but potentially necessary -- measures to complete our obligations to Congress and the American people.
+
+Skwirot e:\wp-docs\ciastatu.wpd

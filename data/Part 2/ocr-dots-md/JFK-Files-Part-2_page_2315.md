@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_2315.png
+
+Convert to Markdown# SECRET
+
+MEMORANDUM IN LIEU OF FITNESS REPORT
+
+SUBJECT: Birch D. O'NEAL
+(1 April 1963 - 31 March 1964)
+
+There has been no change in duties during the reporting period and the caliber of the performance of this career officer has continued at a high level without interruption. He is thorough and analytical and makes a material contribution to the accomplishment of the Counter-Intelligence mission of the Agency. He is alert to the necessity for economy and performs capably as a supervisor.
+
+James R. Hunt, Jr.
+Deputy Chief
+Counter Intelligence Staff
+
+Birch D. O'Neal
+
+EMPLOYEE SIGNATURE
+
+REVIEWING OFFICIAL:
+
+J. Angleton
+
+James Angleton
+Chief, Counter Intelligence Staff
+
+<table><tr><td>Group 1</td></tr><tr><td>Excluded from automatic</td></tr><tr><td>downgrade and</td></tr><tr><td>declassification</td></tr></table>
+
+SECRET
+
+14-00000

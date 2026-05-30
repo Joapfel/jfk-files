@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_2562.png
+
+Convert to MarkdownBruce A. BERTOTALLY (P)
+
+Dear Mr. BERTOTALLY,
+
+The UNITED STATES GOVERNMENT, as represented by the
+CENTRAL INTELLIGENCE AGENCY, hereby contracts with you under
+the following terms and conditions:
+
+1. STATUS. Your legal status under this contract is that of an independent contractor or consultant. You are not considered an employee of the UNITED STATES GOVERNMENT by virtue of this contract. You will be required to hold yourself available at all times to fulfill requests made of you by the CENTRAL INTELLIGENCE AGENCY or to respond to tasks requested of you by the CENTRAL INTELLIGENCE AGENCY. You will refrain from engaging in other gainful employment or occupation until approval has been received from the CENTRAL INTELLIGENCE AGENCY. Instructions furnished to you pursuant to this contract and within the terms hereof shall be as binding upon you as if included in the written terms hereof.
+
+2. COMMUNICATION. In all relationships with the CENTRAL INTELLIGENCE AGENCY you will accept requests, tasks and relevant instructions from an individual hereinafter referred to as the "Authorized Government Representative." He will be fully authorized to discuss matters with you relating to your responsibilities under this contract including, but not limited to, cover arrangements, place of assignment, conditions of work or any other matters relating to your relationship with the CENTRAL INTELLIGENCE AGENCY.
+
+3. COVER AND SECURITY. In the performance of your responsibilities hereunder, appropriate arrangements will be made regarding cover and general security conditions. You may be required
+
+MICROFILMED
+DATE - 01/970
+DOC. MICRO. SER.

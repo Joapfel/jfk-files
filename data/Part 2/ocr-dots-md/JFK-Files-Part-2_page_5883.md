@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_5883.png
+
+Convert to MarkdownDECLARATION OF MARY LOU CUMMINGS
+
+I, MARY LOU CUMMINGS, hereby declare and say as follows:
+
+1. I am the Information Review Officer ("IRO") for the offices of the Director of Central Intelligence (CIA). I was appointed to this position on 5 January 1998, and have held various administrative and professional positions within the Agency since 1981. I am responsible for the review of records maintained by offices in the DCI area (Offices of the Director and Deputy Director(DCI&DDCI), Community Management Staff(CMS), National Intelligence Council(NIC), Office of the Comptroller(COMPT), Office of the General Counsel(OGC), Office of Congressional Affairs(OCA), Office of the Inspector General(OIG), Office of Public Affairs(OPA), Arms Control Intelligence Staff(ACIS), and Center for the Study of Intelligence(CSI)) that may contain JFK Assassination records and may be responsive to ARRB requests.
+
+2. By memo date 6 April 1995, the Executive Director (CIA) requested that focal points for each Directorate be appointed to be responsible for responding to requests for information from the Assassination Records Review Board (ARRB): Until that time the Historical Review Group (HRG) of the Center for the Studies of Intelligence (CSI) had been the principal liaison with the JFK Board. As of that date, DCI area/IRO was appointed to be the DCI area focal point. HRG would continue to receive requests from the Board forwarding them to the Directorate focal point for action. Responses from the Directorate were coordinated by HRG, which then made the responses available to the Board.
+
+3. In an effort to understand the DCI area records systems and to ensure the conduct of thorough searches and responses, the ARRB staff requested a meeting with the DCI area/IRO and key DCI records management officers. Detailed questions were presented in advance to CIA personnel who then provided complete responses to the ARRB staff during the summer of 1997. At that time HRG instructed my predecessor to wait for formal taskings from ARRB before proceeding with additional searches.
+See Attachment 1
+
+4. Based on personal knowledge and information reflected in the records of the DCI area/iro, I am aware that the following searches and reviews were conducted in response to Board requests for DCI area records.

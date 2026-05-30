@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_1126.png
+
+Convert to MarkdownSTANDARD FORM 50
+REV. APRIL, 1981
+PUBLISHED BY
+U. S. CIVIL SERVICE COMMISSION
+CHAPTER 31. FEDERAL PERSONNEL MANUAL
+
+CENTRAL INTELLIGENCE AGENCY,
+SECRET
+
+NOTIFICATION OF PERSONNEL ACTION
+
+<table><tr><td>1. NAME (MR., MRS., MR., MRS.) - ONE GIVEN NAME, INITIAL(S), AND SURNAME</td><td>2. DATE OF BIRTH</td><td>3. JOURNAL OR ACTION NO.</td><td>4. DATE</td></tr><tr><td>Mr. Joseph B. Smith</td><td>16 June 21</td><td></td><td>14 Dec. 53</td></tr><tr><td colspan="4">This is to notify you of the following action affecting your employment:</td></tr><tr><td>8. NATURE OF ACTION (USE STANDARD TERMINOLOGY)</td><td>6. EFFECTIVE DATE</td><td>7. CIVIL SERVICE OR OTHER LEGAL AUTHORITY</td><td></td></tr><tr><td>Reassignment</td><td>B. O. B.<br/>20 Dec 53</td><td>50 USCA 403 J</td><td></td></tr><tr><td rowspan="2">FROM</td><td colspan="3"></td></tr><tr><td>Operations Officer (PO) BF-93</td><td>8. POSITION TITLE</td><td>Intelligence Officer PO 8-5-12</td></tr><tr><td>CS-132-12 $7040.00 per annum</td><td>8. SERVICE, SERIES, GRADE, SALARY</td><td>CS-132-12 $7040.00 per annum</td></tr><tr><td>DIP/FE</td><td>10. ORGANIZATIONAL DESIGNATIONS</td><td>DIP/FE<br/>Malaya Station</td></tr><tr><td>Political &amp; Psychological Warfare</td><td>11. HEADQUARTERS</td><td>Singapore, Malaya</td></tr><tr><td>Political &amp; Psychological Warfare Sect</td><td></td><td></td></tr><tr><td>Washington, D. C.</td><td colspan="3"></td></tr><tr><td>☐ FIELD</td><td>X DEPARTMENTAL</td><td colspan="2">12. FIELD OR DEPT'L X FIELD ☐ DEPARTMENTAL</td></tr><tr><td colspan="2"><b>13. VETERAN'S PREFERENCE</b></td><td colspan="2"><b>14. POSITION CLASSIFICATION ACTION</b></td></tr><tr><td>NONE</td><td>WWII</td><td>OTHER</td><td>5-PT.</td><td><table><thead><tr><th colspan="2">10-POINT</th></tr><tr><th>DISAB</th><th>OTHER</th></tr></thead><tbody><tr><td>X</td><td></td></tr></tbody></table></td><td>NEW</td><td>VICE</td><td>L.A.</td><td>REAL</td></tr><tr><td colspan="4"></td><td>almitted</td></tr><tr><td>15. SEX</td><td>16. RACE</td><td colspan="2">17. APPROPRIATION</td></tr><tr><td>M</td><td>F</td><td colspan="2">FROM:<br/>4-3700-20<br/>TO:<br/>4-3745-55-042</td></tr><tr><td colspan="4"></td><td>Yes</td></tr><tr><td colspan="4"></td><td>18. SUBJECT TO C. S. RETIREMENT ACT (YES-NO)<br/><br/>19. DATE OF APPOINTMENT AFFIDAVITS (ACCESSIONS ONLY)</td></tr><tr><td colspan="4"></td><td>CD-PP<br/><br/>20. LEGAL RESIDENCE<br/><input type="checkbox" disabled checked/" claimed [I]oved state</td></tr><tr><td colspan="4">21. REMARKS: This action is subject to all applicable laws, rules, and regulations and may be subject to investigation and approval by the United States Civil Service Commission. The action may be

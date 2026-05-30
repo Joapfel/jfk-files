@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_1830.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+SECTION V: REPORT OF STUDENT ACHIEVEMENT
+
+Mr. Woods added to the good improvement in mechanics of expression he had achieved in the Basic Writing Workshop. He has now developed the ability to write smooth, compact, and readable sentences. He also learned to organize topics more effectively, and with further writing experience, he can develop the ability to write analytical papers of a professional caliber.
+
+Chief Instructor
+
+8-2-C-R-E-T

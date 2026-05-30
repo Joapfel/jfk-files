@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_8820.png
+
+Convert to MarkdownGeorgetown (University). Was much affected by death of President and did not want to talk much.
+
+DIRECTOR 85343 Dated 27 November 1963 (VOL. III)
+
+Cable from Hqs. to WAVE and Panama City. "Hqs. suspects Blanca Alicia FRANCO may be spearhead of penetration of AMOT/CIA ops on behalf ZRKNICK complex. AMOTS /JMWAVE Station Ops./ in direct contact with FRANCO. FRANCO, suspect Cuban agent, in contact with AMOT-110. (Norberto Felipe MARTINEZ Garcia)
+
+HDCA 3405 Dated 29 November 1963 (VOL. III)
+
+Dispatch from Santo Domingo to Hqs.concerning one Eduardo TAVARES Justo. TAVARES queried EMGLUE-1 ( ) on 2 Oct 63 about his experiences in the U.S. but did not give any indication that he was going there. On 9 Oct. five days after TAVARES departure, EMGLUE-1 reported that TAVARES had not gone to Canada as planned, but to New York. On 22 Nov 63 EMGLUE-1 reported that as of 17 Nov TAVARES was still in New York. E-1 believed TAVARES a Communist, or at least has Communist ideas.
+
+HMMA 22632 Dated 18 December 1963 (VOL. III)
+
+Dispatch from Mexico City to Hqs. "On 21 Nov 63 LICOOKY-1 obtained following info re Francisco AMADO. For past year AMADO has continued to receive visits from emissaries of Fidel CASTRO and to make mysterious trips. On each occasion (sic) AMADO receives money for various expenditures."

@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_5504.png
+
+Convert to MarkdownSECRET
+
+ATTACHMENT
+
+104-10017-10040: Although the Board continues to protect the liaison cryptonym in both paragraphs, the text shows Station cooperation with the Swedish service.
+
+104-10017-10058: Although the liaison cryptonym remains protected, Paragraph 4 indicates liaison with the Swedish service.
+
+104-10018-10089: Board has made a determination to release "your liaison" in Paragraph 1 in addition to identifying Stockholm Station.
+
+104-10018-10091: With release of Stations (Stockholm, Helsinki, Copenhagen, and Oslo), text reveals liaison with the respective local services.
+
+104-10017-10036: Although the liaison cryptonym is protected, the context of the cable clearly shows Station (if released) has a liaison relationship with the Swedish service..
+
+104-10015-10425: The text of this cable from Rome, responding to a multi-Station message, states that liaison traces will follow. Once the identification of the Station is released, the existence of a liaison relationship with the Italian service in November 1963 is revealed.
+
+104-10015-10420: Cable from Oslo in clear text indicates "no liaison" traces; therefore, if the identification of the Station is released, it will acknowledge the liaison relationship between the Station and the Norwegian service.
+
+104-10015-10159: Paragraph 4 contains information that will show that Oslo Station had a technical operation directed against the Cuban target in Norway in November 1963. Also context of the cable reflects that the following Stations have a relationship with their local liaisons: Paris, Rome, Madrid, Copenhagen, Oslo, Helsinki, Brussels, the Netherlands, London, and Ottawa.
+
+CL BY [REASON 1.5(d)]()
+DECL X5; X5
+DRV LIA 3-87
+
+SECRET

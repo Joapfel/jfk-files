@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_3298.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+aware of some sort of planned assassination activity.
+One of the principals of WH/4 recorded that on 24 Feb-
+ruary 1961 he:
+
+Asked Ed [Stanulis], Dave P[hillips],
+[Ed] Hinkle, [Bob] Moore, and Jake [Ester-
+line] why not proceed with Operation
+AMHINT to set up a program of assassina-
+tion. 12/
+
+Although the author of that remark was Chief of
+Operations for Project JMATE, he was unaware, as re-
+ported earlier in this chapter, of the Mafia connection;
+but he had indicated that one of his hopes was that
+the invasion might lead to the death of Castro.* In
+response to a specific question about the AMHINT pro-
+gram, all he could say was:
+
+I said that I was not failing to give
+some attention to the business of assas-
+sination. Now, here on the 24th of Feb-
+ruary, when I asked Ed, Dave Phillips,
+Hinkle, Moore, and Jake "why not proceed
+with Operation AMHINT to set up a program
+of assassination," either none of those
+bastards knew anything about Sheffield
+Edwards and Maheu in the Mafia ... or
+some of them did, and didn't see fit to
+say "Drain, take your AMHINT and stuff
+it. We've got this thing pretty well
+
+* See pp. 279-281.
+
+- 285 -
+
+TOP SECRET

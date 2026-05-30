@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_6711.png
+
+Convert to Markdown13-00000
+
+<table><tr><td>CIA SPECIAL COLLECTIONS</td></tr><tr><td>RELEASE IN FULL</td></tr><tr><td>2000</td></tr></table>
+
+16 September 1998
+
+MEMORANDUM FOR: Ms. Laura Denk
+Executive Director, ARRB
+
+FROM: J. Barry Harrelson
+JFK Project Officer, HRP/OIM
+
+SUBJECT: CIA-16, Oswald Pre-Assassination Files
+
+1. This is further to my letter of 24 December 1997 in response to referent request.
+
+2. That letter, was a partial response which provided the Office of Personnel Security's information. The Directorate of Operations' (DO) response was still pending. The DO response was provided on 2 September 1998 and it is attached.
+
+3. Please note that both responses are contained in the Agency's Compliance Declaration dated 2 September 1998 at Attachment V(2).
+
+4. This completes the Agency's action on CIA-16. If you have any questions about this matter, please advise.
+
+Encl. A/S

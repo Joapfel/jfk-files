@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_1597.png
+
+Convert to MarkdownSECRET
+
+21 July 1959
+
+**TO:** Chief, Finance Division
+
+**VIA:** Special Contracting Officer
+
+**FROM:** Contract Approving Officer, Michael Rae
+
+**SUBJECT:** Engagement of Ernest O. MARCHMINE (P) as Independent Contractor.
+
+1. **Term and Project Charge.** The subject individual has been engaged under oral contract, for use under Project ABSENTINEL. The effective date of the oral contract is 20 April 1959, and shall continue thereafter for a period of one year subject to termination by the Government upon thirty (30) days actual notice.
+
+2. **Security Approval.** The appropriate security approval for Subject's use has been obtained. Type Operational Approval, No. C-73532, dated 11 March 1959.
+
+3. **Citizenship.** The Subject is a foreign national.
+
+4. **Compensation.** Subject will be paid salary in the amount of $500.00 per month, payable in United States currency. Of this amount, he will actually receive $50.00 per month during training and the duration of the mission. All unpaid monies will accrue to his credit in an escrow account, the payment of which will be dependent upon the proper performance of his duties and be payable upon completion of mission for which engaged. Provisions also made for payment of bonus not to exceed $10,000.00.
+
+5. **Quarters and Subsistence.** The Subject will be furnished quarters and subsistence. Those costs to be borne by SR/DOB Station funds.
+
+6. **Operational Expenses.**
+
+Operational travel and expenses to be paid as officially authorised.
+
+a. Domestic travel costs will be borne by SR/DOB Station funds. Travel costs to and from the United States, and foreign travel will be charged against Project ABSENTINEL.
+
+b. Operational expenses to be borne by Project ABSENTINEL. Training expenses to be carried by Station Allotment.

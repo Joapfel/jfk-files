@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_8783.png
+
+Convert to Markdown13-00000
+
+SECRET /CONFIDENTIAL
+
+# GNVA 6029 (OUT 65853) 12 Dec 63 (TDCSDB 3/658,469)
+
+## Filed 68-6-147/4
+
+Report that circa 2 days after the assassination of President Kennedy, Cuban dip missions abroad began to receive a series of messages placing them on a special alert status. These messages were obviously due to apprehension by the Cuban Government that the circumstances surrounding the assassination of President Kennedy might lead to hostile activity directed against the missions. They were instructed, among other things, to be certain that there were "no compromising documents on the premises."
+
+# GNVA 6313 (IN 30483) 2 March 1964 filed 201-9293
+
+Source reported at 29 February meeting that CASTRO was concerned that Johnson would not follow Kennedy's course which might have led to negotiations.
+
+KHRUSHCHEV was convinced that CASTRO'S Caribbean Peace must be strengthened.
+
+COMMENT: Ref. IG Memo dated 25 April 1967 SECRET EYES ONLY, Page 112 - Discussion of Assassination at High-Level Government Meetings. HURWITCH of State, and McGeorge BUNDY, White House, among others, attended 10 Aug 62 Special Group (Augmented) meeting at Dept. of State. Bill Harvey attended with McCone for CIA. Remember Harvey's Mafia contacts. Also, keep in mind that Tad SZULC allegedly had access to Hurwitch,

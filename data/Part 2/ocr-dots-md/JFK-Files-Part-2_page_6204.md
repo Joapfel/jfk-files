@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_6204.png
+
+Convert to MarkdownDirectorate of Administration
+
+# Deputy Director for Support
+(DDS) - 1965
+
+* Office of the DDS (ODDS)
+
+* Office of Security (OS)
+
+* Office of Personnel (OP)
+
+* Office of Medical Services (OMS)
+
+* Office of Logistics (OL)
+
+* Office of Finance (OF)
+
+* Office of Communications (OC)
+
+* Office of Training (OTR)

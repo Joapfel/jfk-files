@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_8480.png
+
+Convert to MarkdownSECRET
+
+Item 338, page 508, Chile
+Declassified. Appendix A (Covert Action in Chile
+1963--1973), pages 144--209 of Senate Select Committee
+Hearings, Volume 7, Covert Action
+
+Item 339, page 509, Bolivia, Brazil
+Problem area. CIA presence in Brazil and Bolivia has not
+been officially acknowledged and is classified information.
+Executive Order exemption 5 (B) (2). However, David Phillip's
+book, The Night Watch, Chapter 8, is titled Brazil, Venezuela.
+Page 209 of The Night Watch concerns CIA in Bolivia.
+
+George V. Lauder
+
+3
+
+S E C R E T

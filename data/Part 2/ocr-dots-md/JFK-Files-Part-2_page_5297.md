@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_5297.png
+
+Convert to MarkdownSECRET
+
+the tapes from 22 and 23 November to be Assassination Records. A vote on releasing the tapes will be delayed until the May meeting.
+
+(S) 5. LITAMIL-9 -- a CIA Penetration of the Cuban Embassy. The identity of LITAMIL-9 was inadvertently released in 1993. He is now identified in true name as a CIA agent in John Newman's book, *Oswald and the CIA*. As of 1993, LITAMIL-9 was still alive, living in Mexico City and he has family in Cuba. Up to now, the ARRB Board has agreed to protect his identity and crypt and delay the release of his 201 file until the Agency could make some judgments about the potential damage created by the release on additional documents with his name/crypt in them.
+
+Status and Issues: The ARRB has requested that we address LI-9 issue at the May meeting. The DO has confirmed that LI-9 is still alive and living in Mexico City. The HRP/DO JFK teams are currently reviewing the 201 and other LI-9 material in the file. It is unlikely that the Board would agree to delay release until 2017, however, there is precedent for delaying release of records on individuals for shorter periods or until death.
+
+(S) 6. Richard Gibson, CIA asset. Gibson, who presently lives in England, is a left wing journalist who was associated with the Fair Play For Cuba Committee (FPFCC), an entity to which Oswald wrote letters and claimed to be a member. Gibson did not become an Agency asset until after the assassination, however, he had been of interest to the FBI when he headed the FPFCC. Unfortunately a combination of previous releases and release by the Board led to press reports in 1994/1995 about his relationship with the CIA. At that time, CIA officers were dispatched to advise him about the possible compromise and promise him the very best attempt at protecting the relationship. ARRB also agreed to delay the release of any additional information until the Agency and FBI had determined the full extend of the files on Gibson and the potential damage.
+
+Status and Issues: The Gibson documents are scheduled for ARRB action at the May meeting. It appears to be possible to release Gibson's role in the JFK assassination story and protect his relationship with the Agency in our JFK assassination records; however, the FBI has a four volumes file which covers both FBI interest and Gibson's relationship with the Agency. The HRP/DO JFK teams are currently reviewing the Gibson material and I will be meeting with the FBI to review what they are releasing on Gibson and the disposition of their file.
+
+SECRET

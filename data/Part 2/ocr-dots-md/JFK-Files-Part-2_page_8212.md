@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_8212.png
+
+Convert to MarkdownLe peuple soviétique est fidèle à STALINE !
+
+Fondateur : Honoré WILLEMS, fusillé par les nazis, le 29 février 1944.
+
+MAO TSE-TOUNG.
+
+NEDDOMADAME
+NOUVELLE SERIE - Numéro 20
+Comité du 9 au 16 mai 1933
+
+5 pages - 5 Francs
+
+(Tarif d'abonnement: pages 8)

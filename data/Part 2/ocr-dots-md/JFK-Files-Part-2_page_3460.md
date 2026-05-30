@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_3460.png
+
+Convert to MarkdownSECRET SENSITIVE NOFORN
+
+contained evidence of a penetration of CIA, this clearly was
+of vital importance. If, on the other hand, they did not,
+it was important that this be recognized and the files and
+suspicions appropriately dealt with. [Julian Fox] a lawyer
+by education who joined the staff in late summer 1975, was
+assigned to study these files. A procedure was developed
+whereby he reviewed each one by one, and prepared a summary
+of its contents. This went forward to Kalaris with, in each
+instance, a recommendation on the cover sheet for
+disposition. On file after file these cover sheets ended up
+saying the same thing: that the file had been reviewed,
+that the conclusion had been reached that there was nothing
+of merit in it, and the file should be destroyed. The review
+of the file on Richard Kovich, for example, which was eight
+pages long, was dated 22 December 1975.* Kalaris,
+concurring, sent it to ADDO Blee with a handwritten note
+that the material in this case would be packaged and held
+with instructions that it should be destroyed as soon as the
+Senate released CIA from its embargo on destruction, and
+that the summary memo and cover sheet would constitute the
+only future record. The HONETOL files received steady but
+not priority attention. It took somewhat over a year for
+[Fox] to make his way through all of them. Nothing of merit
+was found in any of them.
+
+A special approach was developed to get the MORINE data into central indices. As a result of the compartmentation applied to MORINE in the Angleton staff, much of the existing MORINE information was squirreled away and not immediately appreciated. The rejuvenated exploitation program produced a flood of [ZRTAFFY] correspondence with field stations, but this was slow to yield indexable material. It was not until the end of 1975 that a focused
+
+* Richard Kovich was one of the three CIA staff officers most severely affected by the HONETOL witch-hunt.

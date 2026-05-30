@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_5723.png
+
+Convert to MarkdownMr. J. Barry Harrelson
+
+April 16, 1997
+
+**CIA-IR-01 Personnel assigned to post from 1959-64 (see RIF 104-10065-10199).
+
+This request, originally made in November 1996, was raised at the DO follow-up briefing on April 1, 1997. It is our understanding that the DO believes that it is not able to answer this request. The ARRB staff does not find DO's response to be credible. We believe that with all of the resources at the Agency's disposal -- including ready contact with individuals who should be able to answer this question from memory -- this question can be answered.⁶ The ARRB staff has provided suggestions as to how this information could be obtained, including suggesting the types of files and cables that could be searched.
+
+CIA-IR-02 Location of cable identified in JFK 1993.07.20.10.18:29:650630.
+
+The cable was delivered to the Review Board on March 20, 1997. No further action by CIA is needed.
+
+CIA-IR-03 Full computer search for list of documents in HTLINGUAL file.
+
+CIA should undertake a computer run for all HTLINGUAL documents. All computer searches for these documents should be documented in a formal letter for the record.
+
+CIA-IR-04 Disposition of Angleton's files.
+
+The Review Board seeks to ensure that it has taken all reasonable steps to account for any files that James Jesus Angleton possessed or controlled that related to the assassination and to Lee Harvey Oswald. Because of the perceived controversy surrounding the disposition of Angleton's files, the Review Board believes it prudent to obtain a clear understanding of the types of files that he maintained and their ultimate disposition. (The Review Board does not seek to explore any subjects in Angleton's files beyond those that may have pertained to the assassination.) To date, CIA has made available certain documents provided by the CIC and the case files for *Mangold v. CIA*. The Review Board requests any additional information in the possession of CIA that would explain the disposition of Angleton's files.
+
+⁶The ARRB staff has spoken with a retired CIA official who claims to be able to answer this question from memory, but who refused to do so.

@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_7170.png
+
+Convert to Markdown13-00000
+
+FORM 3020D
+7-71 MFG. 2/75
+
+CABLE SEC DISSEM BY ________ PER ________
+PERSON/UNIT NOTIFIED ________
+
+TOTAL COPIES ________
+RUN BY ________
+
+SECRET
+
+REPRODUCTION BY OTHER THA
+ISSUING OFFICE IS PROHIBITED
+
+ADVANCE COPY ISSUED/SLOTTED
+
+BY AT Z
+
+STAFF
+
+| ACTION UNIT | I N F O | RF. FILE . VR . | 1 | 4 |
+| :--- | :--- | :--- | :--- | :--- |
+| | | | 2 | 5 |
+| | | | 3 | 6 |
+
+T 494891 EIA755
+
+PAGE 06-06 IN 754484
+
+TOR:280501Z NOV 75 SEOU 25948
+
+SINCERELY YOURS, "UNQUOTE
+
+E2, IMPDET.
+
+SECRET
+
+---
+
+SECRE

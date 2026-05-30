@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_3819.png
+
+Convert to Markdown13-00000
+
+<table><tbody><tr><td>NOVEL, GORDON</td><td>CR 69 R075149-2437<br/>/Y M /D MEM 18APR69 OPERATIONAL SUPPORT GENL<br/>/Z 2298262</td></tr><tr><td>NOVEL, GORDON</td><td>OR 70 M601153<br/>/Y M /D LST P5 06JUL70 GARRISON CASE<br/>/Z 2436576</td></tr><tr><td>NOVEL, GORDON</td><td>SR 69 S332959<br/>/Y M /D SER 2420<br/>/Z 2289130</td></tr><tr><td>NOVEL, GORDON DUANE</td><td>OR 69 R209626<br/>/Y M /D MEM 22DEC69 CIA IMPERSONATION FILE<br/>/Z 2379707</td></tr><tr><td>NOVEL, GORDON</td><td>OR 69 M535449<br/>/Y M /D CLP 15FEB69 OPEN CITY GARRISON, JAMES<br/>/Z 2292704</td></tr></tbody></table>

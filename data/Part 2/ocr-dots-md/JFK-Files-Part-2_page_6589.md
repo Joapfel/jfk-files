@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_6589.png
+
+Convert to Markdownd. The proposal could emphasize the development of a native "David" in opposition to Castro, the Cuban "Goliath." This could serve the U.S. image by making Castro the "Goliath" rather than the "David" who opposes the "North American Giant."
+
+e. This proposal could serve to prevent the U.S. from making premature commitments to a leader or a particular exile group and could be used as a device to test exile response.
+
+f. This proposal could retain for the U.S. the ability to control future selections of leaders or groups (timing and political ideologies).
+
+g. This proposal could permit the U.S. on a progressive basis to influence the ideologies of the resistance and thus to influence the platform of a future Cuban Government.
+
+h. The publicity associated with the prolonged existence of a resistance in Cuba can serve to delay the furtherance of the de facto recognition of the present Cuban Regime.
+
+**OBJECTIVE**
+
+To create an imaginary leader or image of resistance in Cuba. This image would serve as a focal point for resistance directed against Castro by Cubans or Latin Americans.
+
+**DEVELOPMENT**
+
+An imaginary name of a resistance leader could be developed utilizing a popular name from Cuban history, a name associated with resistance in Cuba or a newly devised name. The name selected should typify a person who is friendly to the Cuban people, is anti-communist, is willing to fight against the Regime, and is little-but tough. There is no requirement for a detailed staff study in order
+
+TOP SECRET Sensitive
+TOP SECRET Sensitive
+
+13-00000

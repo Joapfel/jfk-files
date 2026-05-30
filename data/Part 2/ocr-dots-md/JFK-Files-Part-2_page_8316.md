@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_8316.png
+
+Convert to Markdown13-00000
+
+CURITY:
+
+UNCLASSIFIED
+
+-2-
+
+Enclosure, ATHENS 588
+
+"But don't take it that way, Yamkov. I am not ordering you, I'm inviting you."
+
+"Okay, when do you want me to come?"
+
+"Come this afternoon, unless you'd prefer tomorrow."
+
+"Either today or tomorrow makes no difference to me. I'm coming this afternoon."
+
+Before going there, Yamkov passed by the druggist's, the only survivor of the circle of intellectuals, and told him about the invitation Tinko had made to him. He was the only man with whom he spoke with confidence and with whom he ex-changed ideas. The druggist rose, shocked, from his desk, affixed his spectacles with hands which were trembling, then put his hands on Yamkov's shoulders as if they were expressing his love and anxiety.
+
+"Be careful, my friend Yamkov. You are a bit hotheaded and cannot control your tongue. Mind you don't misbehave. Control your nerves, because we mustn't lose you. We need you, we need you. Your home and your family and your village need you. You must not be missing when the moment arises...."
+
+Yamkov left, greatly moved, and with a decision to listen to whatever they had to tell him at the People's Committee without expressing the disgust and indignation he felt for them. He had decided to be patient, to swallow his tongue, and to listen quietly to all the filth of that social disgrace, Tinko, like a little pupil of the elementary school who is chastised by his master.
+
+"The devil take him!" he spat with disgust.
+
+At the People's Committee, apart from the two "eminent" Party members - Tinko and Yanov - there was a Russian organi-zer, a large brute with an elephant neck and with a well-shaved Asiatic head. Through his large nostrils, which rhythmically closed and opened with his breathing, one felt that one was about to see the size of his mind. It seemed that he knew who Yamkov was, because his grey eyes were con-stantly fixed on him, insistently and inquiringly. Tinko introduced him.
+
+"He has a son too, a Party man, our man."
+
+"Bravo, congratulations. Where is he now?" he asked.
+
+"In ... (he felt like saying, Hell) ... Sofia," he corrected himself.

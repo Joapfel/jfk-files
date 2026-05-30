@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_6272.png
+
+Convert to MarkdownSECRET
+
+The following Agency members will attend the meeting
+with the ARRB on Wednesday, 2 August 1995:
+
+Eleanor Neiman
+Directorate of Operations
+
+Michael Luce
+Directorate of Operations
+
+John Kambourian
+Directorate of Operations
+
+Fred Wickham
+Directorate of Operations
+
+William McNair
+Directorate of Operations
+
+Robert Eatinger
+Office of General Counsel
+
+Barry Harrelson
+Historical Review Group

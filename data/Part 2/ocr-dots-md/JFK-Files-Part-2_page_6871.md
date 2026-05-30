@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_6871.png
+
+Convert to Markdownand the circumstances surrounding the creation of records. It is important that an agency with supervisory responsibility over declassification have the authority to obtain the information it needs to accomplish its work.
+
+*Third,* as with the referral process, a frequent bottleneck in the declassification process is the final transfer of records from the declassifying agency to the National Archives. An independent entity responsible for supervising this process should have the authority and responsibility of guaranteeing that once the declassification process is complete, the final step of making records available to the public is taken.
+
+*Fourth,* although the start-up process is very time-consuming, it is a necessary prelude to more efficient and productive work. The start-up time for the Review Board, as I understand is also the case for Interagency Security Classification Appeals Panel (ISCAP), required education not only of the Board and staff, but also of the agencies. It is important that any future planning of an endeavor of this nature take into account the initial costs and, importantly, take advantages of the lessons learned by the Review Board. The initial cost can be recuperated in the long run.
+
+When an independent agency, such as the Review Board, has the authority to set the agenda (by establishing timetables), sponsor joint declassification sessions, require the production of evidence, and ensure the prompt transfer of declassified records from the agencies to the National Archives, declassification can be a success. I strongly urge this Committee to take advantage of the momentum created by the JFK Act and by ISCAP, and create an authority that will be able to bring independence, consistency, and energy to the process of making the government more open and accountable to the people who have paid for it.
+
+IV. Recommendations for Making S. 712 More Effective
+
+With regard to S. 712, I wish to summarize the following recommendations that have been offered either explicitly or implicitly in the testimony above:
+
+*First,* the entity responsible for overseeing the declassification process (which, in the current version of the S. 712, is the National Declassification Center), must be genuinely independent of the agencies whose records it oversees. The Center should be staffed by persons who are both sensitive to the genuine secrets of the agencies, but who also are skeptical and demanding of proof.
+
+*Second,* the independent entity should have the power to set reasonable timetables by which an agency must complete the declassification review (or referral review). The independent entity should be empowered to release information on its own authority if agencies do not comply with reasonable timetables. The independent agency should additionally be empowered to obtain information from the agencies that

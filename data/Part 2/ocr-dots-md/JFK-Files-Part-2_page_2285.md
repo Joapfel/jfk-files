@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_2285.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">Agency and organizational designation</th><td></td><th>3. Periodic period</th><th>4. Step No.</th></tr></thead><tbody><tr><td colspan="2">5. Employee's name and social security account number when appropriate</td><td>O'MAL, BIRCH D.</td><td colspan="2">A Grade and salary<br/>05-10 $100.00</td></tr><tr><td colspan="5">PAYROLL CHANGE DATA</td></tr><tr><th></th><th>BASIC PAY</th><th>OVERTIME</th><th>GROSS PAY</th><th>RET.</th><th>FEDERAL TAX</th><th>STATE TAX</th><th>GROUP LIFO INC.</th><th>NET TOTAL</th></tr><tr><td>7. Previous normal</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>8. New normal</td><td></td><td>10</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>9. Pay this period</td><td></td><td>03</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="4">10. Remarks</td><td colspan="2">11. Appropriations</td><td colspan="2"></td><td rowspan="2">12. Prepared by<br/>gpb/8/4/55<br/>13. Audited by</td></tr><tr><td colspan="4"></td><td colspan="2">WH 4</td><td colspan="2"></td></tr><tr><td colspan="8"><input type="checkbox" checked disabled> Period: step-increase <input type="checkbox" disabled> Pay adjustment <input type="checkbox" disabled> Other step-increase</td></tr><tr><td>14. Effective date</td><td>15. Date last equivalent increase</td><td>16. Old salary rate</td><td>17. New salary rate</td><td colspan="5">(Signature) or other authorization</td></tr><tr><td>27MAR55</td><td>27SLPT53</td><td>$10000.00</td><td>$10200.00</td><td colspan="5">(Check applicable basis in case of excess LWOP)</td></tr><tr><td colspan="8"><input type="checkbox" checked disabled> In pay status at end of waiting period.</td></tr><tr><td colspan="8"><input type="checkbox" disabled> In LWOP since at end of waiting period.</td></tr><tr><td colspan="8">AK Initials of Clerk</td></tr></tbody></table>
+
+STANDARD FORM NO. 1176d—Revised
+
+Form prescribed by Comp. Gen. U. S.
+October 26, 1934, General Regulation No. 102
+
+PAYROLL CHANGE SLIP — PERSONNEL COPY

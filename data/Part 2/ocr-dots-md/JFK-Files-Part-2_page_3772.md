@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_3772.png
+
+Convert to MarkdownCIA HISTORICAL REVIEW PROGRAM
+RELEASE IN FULL 1998
+
+# New Orleans Probe Figure In D.C. Area
+
+By United Press International
+
+Gordon Novel, the "missing witness" in New Orleans Dist. Atty. Jim Garrison's investigation of an alleged Kennedy assassination conspiracy, popped up in a Washington suburb yesterday and took a lie detector test on his charge that the Garrison investigation was a "fraud."
+
+The operator of the polygraph test, Lloyd Furr of McLean, Va., said Novel "passed" the lie test. "He showed no deceptions," Furr said.
+
+"Do you honestly believe Garrison's conspiracy prosecution is a fraud," Furr said he asked Novel. "Yes," he said Novel replied.
+
+Novel, a former nightclub operator, left New Orleans shortly before a grand jury investigating the assassination tried to subpoena him.
+
+In New Orleans, Judge Matthew Braniff has issued orders for Novel to post a $50,000 bond as a material witness or he arrested as a fugitive.
+
+Novel's connection with the Garrison investigation has never been precisely spelled out.
+
+16268
+
+GARSON NOVEL
+
+ Wash Star
+
+ 27 Mar '67

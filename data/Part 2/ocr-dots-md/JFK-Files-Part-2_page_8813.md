@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_8813.png
+
+Convert to Markdown13-00000
+
+TOP SECRET CUBA
+SC-01755-77A
+
+has been interrogated and found to be clean. A third WAVE asset (identity unknown) in contact with the agent, has been turned over to the FBI for possible use against the agent."
+
+VOLUME III (Box I) Intercepted Message from Cuba to Agent in Miami, Dated 24 Nov 1963 TOP SECRET DINAR
+
+Asked following questions:
+
+1. Whether there is concentration of the Yankee Army.
+
+2. Whether there is a concentration of mercenaries.
+
+3. Whether there is an increase in pressure on those sympathetic to Cuba and the left.
+
+4. Whether active counter-revolutionaries are disappearing.
+
+5. To inform fully via CANDI (CUIS clandestine drop in Mexico City) the reaction of the Gusanos and the Republicans to the death of Kennedy.
+
+VOLUME III (Box I) Memo for Chief, JMWAVE from SAS/CI
+Dated 11 March 1964 - TOP SECRET DINAR -
+
+Memo attached copies of ZRKNICK intercepts provided CIA by the FBI:
+
+25 Dec 63 plain text letter (translated from Spanish to English) to Irma SUAREZ in Cuba. Para 6 states "I will tell you about Kennedy's death in the other letter when I am in New Jersey. All that is a ?."
+
+TOP SECRET CUBA

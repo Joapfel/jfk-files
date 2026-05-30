@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_3702.png
+
+Convert to Markdown13-00000
+
+TOP SECRET DINAR
+
+The Communist World
+
+SOVIET TRADE ACTIVITY IN THE INDUSTRIAL WEST
+
+Within a week after the central committee approved Khrushchev's plan for the chemical industry, Soviet traders apparently had their instructions and budget allocations and were renewing their activity in trade circles of the industrial West.
+
+Contracts for fertilizer installations, plastics and synthetic plants, petrochemical equipment, and mining machinery are already in various stages of negotiation. Officials in Bonn report they have under consideration a proposal by a West German consortium to supply the USSR with $400 million worth of petrochemical equipment. A Soviet mission is negotiating with the British Imperial Chemical Industry (ICI), which here-tofore has supplied the USSR with technical know-how. ICI reportedly has offered to deliver equipment and processes for the production of fertilizers, herbicides, rubber chemicals, and plastics. Negotiations also are under way for large numbers of Japanese chemical fertilizer plants.
+
+Another Western consortium, involving US equipment and processes, is discussing delivery of a large oil refinery. In addition, contracts for a wide range of other machinery and equipment will probably soon be signed. These contracts apparently had been postponed until the new chemical equipment buy-
+
+ing program was presented to the plenum and allocations for various trade corporations for next year were approved.
+
+The Soviet need for additional credit to finance planned expanded purchases is crucial. The USSR presumably can generate sufficient funds to meet down payments on sizable orders. However, credit arrangements must be set now to spread out the heavy crush of payments which otherwise would fall due in 1965-66 when equipment contracted for next year will be delivered. Soviet ability to increase hard-currency reserves is not likely to improve in the near future. Moscow's current grain imports will reduce its gold reserves by 25 percent. If these continue beyond mid-1964, the Soviet hard-currency position will be under further strain.
+
+Despite the bleak foreign exchange prospects for the USSR, Soviet officials appear hopeful that Western competition for Soviet orders will be adequate to foster Western governmental and banking opinion favorable to more and longer term credit. Moscow may also hope that a continuation of its relatively restrained foreign policy will be helpful in this context. While viewing the USSR as an acceptable commercial risk, the banking community has heretofore been unwilling to extend credits beyond a five-year period because of uncertainty about future political developments. (SECRET)
+
+27 Dec 63
+
+CURRENT INTELLIGENCE WEEKLY REVIEW
+
+TOP SECRET DINAR

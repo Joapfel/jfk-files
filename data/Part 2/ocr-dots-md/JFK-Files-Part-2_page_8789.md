@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_8789.png
+
+Convert to MarkdownAMTAUP Operation 19-132-19
+
+SW Message #32 from Agent - Undated
+
+Sent condolences on death of President Kennedy and added that "the traitors rejoiced with the news. The radios never turned off the happy music. When they learned through the news services the background and history of the assassin they were preoccupied and on the same Friday they placed all troops on alert and also all the doctors were alerted and kept at the hospitals."
+
+AMTHEO Project 19-6-99
+
+SW Message #14 from agent, undated
+
+Reported that "relatives of neighbors of a sub-source in Santiago de Cuba were arrested for being involved in a frustrated plot to kill Fidel when a bomb was found under the floor of the house in which Fidel was to be the guest on the occasion of the celebration of 26th of July."
+
+SW Message #28, undated
+
+Reported that a sub-source confirmed the frustrated assassination of Fidel at the corner of 10th and 23rd Streets (Vedado) in which one of Fidel's bodyguards was killed.

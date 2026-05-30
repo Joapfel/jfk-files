@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_2926.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+forty-eight hours should the President's terms not be met.
+
+Sunday morning, October 28, with U-2 overflights continuing and no evidence of slow-down on the Cuban missile sites, Moscow broadcast yet another Khrushchev communique--this one announcing that, in the interest of world peace, the Soviet Union had agreed to dismantle and return the Cuban missiles under United Nations verification. Not waiting for the official text, the President drafted a quick acceptance. The immediate crisis was over.
+
+* * *
+
+Serious problems, however, remained. It had become clear to McCone that removing Castro no longer was an objective of American policy, and he was concerned that, as a result of Soviet military and economic aid, Castro would be left in a position to create much mischief. Since no agreement had been reached for on-site inspection, and the SAM system remained in place to limit aerial inspection, the DCI and intelligence community would not be able to verify the removal or check on possible future reintroduction of Cuban missiles. Further, the MONGOOSE operation, tasked with toppling Castro, was in disarray. Lansdale complained he was not being kept informed of JCS planning and that the CIA's Cuban Task Force was acting outside MONGODB channels. At the height of the missile crisis (on October 26), a high-level meeting on MONGODB agreed to recall intelligence collection teams and discontinue
+
+WORKING DRAFT 99
+Handle via [BYEMAN] Control System
+
+BY NO. 018-88
+copy 2 of 2
+
+84
+
+TOP SECRET

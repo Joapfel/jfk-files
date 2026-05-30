@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_5519.png
+
+Convert to MarkdownSECRET
+# Assassination Records Review Board
+
+600 E Street NW • 2nd Floor • Washington, DC 20530
+(202) 724-0088 • Fax: (202) 724-0457
+
+September 5, 1997
+
+BY COURIER
+
+Mr. John Pereira
+Director
+Historical Review Group
+Center for the Study of Intelligence
+Central Intelligence Agency
+Washington, DC 20505
+
+Re: Request to CIA to contact liaison channels regarding LIENVOY intercepts of Oswald telephone calls in Mexico City
+
+Some time ago the Review Board requested informally that CIA contact its liaison channels in Mexico City for information related to Lee Harvey Oswald. During your recent visit here we discussed with you the feasibility of your making such contacts. I am writing in response to your request that we memorialize our request and provide some background information.
+
+The Review Board believes that all reasonable steps should be taken to account for all telephonic intercepts of Oswald during his visit to Mexico City in September-October 1963. There is evidence that CIA intercepted some telephone calls through an operation named LIENVOY conducted jointly with components of the Mexican government. We believe that it would be appropriate for CIA to contact directly Mexico City liaison channels to inquire as to whether the Mexican authorities retained copies of LIENVOY telephonic take, specifically the actual recordings of Oswald's telephone calls to the Soviet Embassy during the period of September 27 through October 3, 1963.
+
+The Review Board previously has sought information from the Mexican Government through appropriate diplomatic channels. For reasons that are obvious to those familiar with Mexico City issues, the Review Board could not raise with Mexican officials nor with the U.S. State Department the possible existence of additional tape recordings that might be in the hands of certain officials. Thus, at the behest of the Review Board, the Department of State requested that the Mexican federal government and local government agencies conduct general searches of their files for records related to the assassination of President Kennedy. The Mexican government responded
+
+SECRET
+
+BOARD MEMBERS: John R. Tunheim, Chair • Henry F. Graff • Kermit L. Hall • William L. Joyce • Anna K. Nelson
+EXECUTIVE DIRECTOR: David G. Marwell

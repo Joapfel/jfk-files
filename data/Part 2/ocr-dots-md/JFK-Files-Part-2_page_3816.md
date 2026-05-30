@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_3816.png
+
+Convert to Markdown13-00000
+
+CIA HISTORICAL REVIEW PROGRAM
+RELEASE IN FULL 1998
+
+Walter Sheridan — Democrats' Investigator?
+or Republicans' Countermeasure?
+
+Richard E. Sprague
+Hartsdale, N.Y. 10530
+
+"The NBC broadcast of June 19, 1967" put on by Walter Sheridan "will probably stand for years as a symbol of the lengths to which some powerful outside interests will go in order to interfere with state government."
+
+Walter Sheridan has recently been hired by the Democratic National Committee to head their investigation of the Watergate bugging caper. In view of the importance of this assignment, it would seem worthwhile to examine Mr. Sheridan's performance in past investigations.
+
+"Getting" Hoffa, and False Testimony
+
+Walter Sheridan first came into national prominence in 1961 when he spearheaded Robert Kennedy's drive against Jimmy Hoffa, during Robert's tenure as Attorney General. Sheridan pursued a relentless, no mercy shown, course of action to "get Hoffa", and get him he did. In the course of this crusade, some rather dubious techniques were used, which later
+
+came back to haunt Mr. Sheridan. The prime example was the "uncovering" of a key witness against Hoffa, one Grady Partin of New Orleans and Baton Rouge, Louisiana. Partin was some years later accused by a grand jury of giving false testimony against Hoffa.
+
+"Getting" Garrison
+
+Mr. Sheridan's most notable performance came in 1967 and '68 when he was an executive producer for NBC-TV news. Sheridan produced a one-hour NBC special on Jim Garrison's investigation of the assassination of President Kennedy and the trial of Clay Shaw for conspiracy to murder the President. The program, broadcast on June 19, 1967, was a highly biased, provably dishonest, personally vindictive, attack on Garrison defending Shaw. The Shaw trial did not take place until February, 1969, a year and a half later.
+
+Arrest by Garrison and Indictment by Grand Jury
+
+Walter Sheridan was arrested by Garrison on July 7, 1967, following the NBC Special, and indicted by a grand jury on two counts. The first was attempted bribery and intimidation of a witness. Rick Townley of station WDSU, the NBC affiliate in New Orleans, was arrested and indicted with Sheridan on the same charges. The federal government, especially the Justice Department, made sure that Garrison was never able to bring Sheridan and Townley to trial. The indictments are still open.
+
+If the Sheridan trial ever does take place, the conviction should not be too difficult. Here are the facts, as reported by both New Orleans newspapers, the *Times Picayune* and the *States Item*, in 1967 and summarized in "The Kennedy Conspiracy" by Paris Flammonde, Meredith Press, 1969.
+
+Sheridan and Townley, having been assigned by NBC to cover the Garrison-Shaw case, became personally and directly involved. The indictments for bribery, suppressing and altering evidence, and interfering with the trial, did not begin to tell the entire story. NBC top management, Frank McGee, the narrator of the special, and others at NBC, fully
+
+<table><thead><tr><th>The Watergate Incident</th></tr></thead><tbody><p>On June 17 at 2:30 a.m., five men were arrested in the offices of the Democratic National Committee in the Watergate Hotel, Washington, D.C. They had broken into the office, and were found with electronic surveillance devices, cameras for photographing documents, etc; they were wearing surgical rubber gloves. They were arrested by police.</p><p>These five men were James W. McCord, Jr., Bernard L. Barker, Frank Sturgis, Eugenio R. Martinez, and Virgilio R. Gonzales.</p><p>Their connections reach to the Republican Party, the Committee to Re-Elect the President, President Richard M. Nixon, the Central Intelligence Agency, and other persons and organizations.</p><p>Beginning in August 1972, "Computers and Automation" has been publishing articles on the Watergate Incident and its ramifications, because of the threat that this incident represents to democracy in the United States, and the importance of seeking the truth about it and pinning down the responsibility for it.</p></tbody></table>

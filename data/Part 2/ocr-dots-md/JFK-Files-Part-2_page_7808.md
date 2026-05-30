@@ -1,0 +1,64 @@
+# JFK-Files-Part-2_page_7808.png
+
+Convert to MarkdownPRIORITY HANDLING
+
+CONFIDENTIAL
+
+SECRET
+
+**PRIORITY HANDLING**
+
+**FOIA REQUEST**
+
+SUBJECT: (Optional)
+
+Dr. Martin Luther King, Jr. requested by Weisberg
+
+FROM:
+
+DDO/PIC
+M. Felton
+1D4125
+
+TO: (Officer designation, room number, and building)
+
+DATE
+
+RECEIVED
+
+FORWARDED
+
+EXTENSION
+
+1644
+
+OFFICER'S INITIALS
+
+DATE SENT
+5 Aug 76
+
+SUSPENSE DATE
+9 Aug 76
+
+COMMENTS (Number each comment to show from whom to whom. Draw a line across column after each comment.)
+
+Pls review the attached for release to Weisberg per his FOIA request. Pls cite exemptions for denials and partial denials.
+
+Thanks.
+MFelton
+
+2 to 8:
+Have sanitized the attached documents for release to Weisberg.
+
+RETURN TO:
+
+**PRIORITY HANDLING**
+
+**FOIA REQUEST**
+
+FORM 3749
+1-75 SECRET
+
+CONFIDENTIAL INTERNAL USE ONLY
+
+UNCLASSIFIED

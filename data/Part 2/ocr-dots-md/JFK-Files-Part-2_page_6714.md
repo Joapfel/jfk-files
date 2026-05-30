@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_6714.png
+
+Convert to MarkdownAssassination Records Review Board
+
+600 E Street NW • 2nd Floor • Washington, DC 20530
+(202) 724-0088 • Fax: (202) 724-0457
+
+October 27, 1996
+
+Mr. Barry Harrelson
+Historical Review Group
+Center for the Study of Intelligence
+Central Intelligence Agency
+Washington, D.C. 02505
+
+CIA SPECIAL COLLECTIONS
+RELEASE IN FULL
+2000
+
+Re: Status of Assassination Records Review Board Requests to CIA for Additional Information and Records
+
+Dear Barry:
+
+I am writing to follow-up on our letter of October 7, 1996, regarding the status of Assassination Records Review Board requests for information and records from the CIA.
+
+Formal Requests:
+
+CIA-1
+
+Review Board staff review continues. No CIA action needed at this time.
+
+CIA-6 (Cables and dispatches)
+
+CIA has agreed to make records available (or to have a response) by November 1, 1996.
+
+CIA-7 (Histories)
+
+Counterintelligence. CIA has made material available and Review Board staff examination is ongoing.
+
+Mexico City. The Review Board awaits CIA's compilation of the portion of the Mexico Station history that was shown to G. Robert Blakey.
+
+BOARD MEMBERS: John R. Tunheim, Chair • Henry F. Graff • Kermit L. Hall • William L. Joyce • Anna K. Nelson
+EXECUTIVE DIRECTOR: David G. Marwell

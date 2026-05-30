@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_7625.png
+
+Convert to MarkdownI would like to work with you on a project that would take advantage of our strengths. During the week ahead, I plan to work on the following:
+
+*   Watch some TED talks about leadership.
+*   Prepare for my Senate debate meeting on Friday.
+*   Finish reading J.D. Suttor's book on Leadership.
+
+I would also like to make some new friends and maybe even join a club this weekend.

@@ -1,0 +1,75 @@
+# JFK-Files-Part-2_page_6223.png
+
+Convert to Markdown13-00000
+
+MAR 31 '97 12:07PM
+
+<table>
+   <tr>
+    <td>
+     MULBARD
+    </td>
+    <td>
+     PER P.L.
+    </td>
+    <td>
+     108-636 (JFK ACT)
+    </td>
+   </tr>
+   <tr>
+    <td>
+     NARA
+    </td>
+    <td>
+     S/c
+    </td>
+    <td>
+     DATE 2/4/47
+    </td>
+   </tr>
+  </table>
+
+CIA HISTORICAL REVIEW PROGRAM
+Release As Sanitized
+1998
+
+Enclosure 21
+
+SUBJECT: Clay L. SHAW (201-813493)
+
+1. Subject was born on 17 March 1913 in New Orleans, Louisiana.
+
+2. Standard background information on Subject (parents, marital status, records of education and employment, etc.) is lacking because SHAW was a contact of the Domestic Contact Service.
+
+3. Traces on Subject have been run in RID/Main Index, the index of the Office of Security and the Central Cover Staff. The first showed only a 1951 FBI interview with SHAW about a former employee of the New Orleans International Trade Mart. The second showed that OO/Contacts Division had requested a name trace; about 1949 and that the check of FBI records then conducted was negative. Central Cover Staff had no record.
+
+4. Some of the OO-B reports based on SHAW's reporting are on hand. They are the following. (It is noted that the source description identifies the source by job title.)
+
+a. OO-B 47958, 26 March 1952, concerns a letter written to the public relations director of the International Trade Mart by one Dr. Jutta SCHALLER, a trade consultant to the Bonn Government. The letter is a follow-up of discussions held in New Orleans during December 1951. The letter said that Soviet production and export trade were being advertised and
+
+Document Number 1930-492-Y
+
+for FOIA Review on
+
+DEC 1977
+
+OCTOBER 1977
+
+STAMPed OCT 1977
+
+P.8
+
+Handwritten notes:
+"NOTE: only reduction is OK (what CIA calls a 'Diograph') from OHLC CHARTS on page 4 here paragraph II."
+
+I've included a copy of page 4 that contains the "OK"
+
+©
+
+A relatively clean, easy-to-read specimen of what we typically see.
+
+SECRET
+
+NOTE: only reduction is ok (what CIA calls a 'diagram') from OHLC CHARTS on page 4 here paragraph II:
+
+I've included a copy of page 4 that contains the 'OK'."}, {"bbox": [518, 2234, 994, 2847], "category": "Picture"}, {"bbox": [1320, 2555, 1639, 2605], "category": "Text", "text": "Document Number"}, {"bbox": [1320, 2642, 1658, 2692], "category": "Text", "text": "for FOIA Review on"}, {"bbox": [1727, 2670, 1898, 2720], "category": "Text", "text": "DEC 1977"}]

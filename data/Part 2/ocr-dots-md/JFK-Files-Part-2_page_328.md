@@ -1,0 +1,70 @@
+# JFK-Files-Part-2_page_328.png
+
+Convert to MarkdownMESSAGE FORM
+
+TOTAL COPIES:
+
+ORIG : J. Stewart/pem
+UNIT : WH/1
+EXT : 3654
+DATE : 9 December 1966
+
+☐ FILE RID
+☐ INDEX
+☑ NO INDEX
+☒ FILE IN CS FILE NO. 201-793301
+
+<table><thead><tr><td colspan="2">ROUTING</td></tr></thead><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
+
+☐ DESTROY ☐ RETURN TO ________ BRANCH
+
+FROM: DIRECTOR
+
+CONF: 
+
+INFO: VR , FILE ☐ RID COPY
+
+(COMPANY)
+
+SECRET
+
+(DATE AND TIME FILED)
+
+(CENTER)
+
+(REFERENCE NUMBER)
+
+CITE DIRECTOR
+
+TO
+
+WHERE LIRING-3 FORMERLY WORKED FOR MEXICAN GOVERNMENT AND HAS GOOD CONTACTS, TO ATTEMPT CONTACT GUATEMALAN FRIENDS ACROSS BORDER AND ARRANGE MEET THEM MEXICO, ALSO TO AFFECT JACOBO RODRIGUEZ PADILLA TO DEVELOP MORE GUATEMALAN CONTACTS, ALL FOR PURPOSE SETTING UP NET-WORK FOR CORANS.
+
+& END OF MESSAGE
+
+Summary Ref: Results LIRING-3 meeting with Jacobo RODRIGUEZ Padilla and set-up of meeting with Guatemalan communist in Guatemala.
+
+WH/2/0 TERRELL (TELECOORD) &  
+WH/COC/CISECS W.D. Aliu
+
+J. D. Esterline
+AC/WHD
+
+W. J. Kaufman
+C/WH/1
+
+RELEASING OFFICER,
+
+COORDINATING OFFICERS
+
+SECRET
+
+GROUP I
+Recommended from Washington, Washington and Other Sources
+
+AUTHENTICATING
+OFFICER
+
+REPRODUCTION, IF OTHER THAN THE ISSUING OFFICE, PROHIBITED.
+
+COPY NO.

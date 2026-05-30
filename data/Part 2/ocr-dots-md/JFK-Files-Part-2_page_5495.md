@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_5495.png
+
+Convert to Markdown13-00000
+
+SECRET' AGREEMENT
+
+I, I, ____________ (print full name), hereby agree to accept as a prior condition of my being employed by, or otherwise retained to perform services for, the Central Intelligence Agency, or for staff elements of the Office of the Director of Central Intelligence (hereinafter collectively referred to as the "Central Intelligence Agency"), the obligations contained in this agreement.
+
+2. I understand that in the course of my employment or other service with the Central Intelligence Agency I may be given access to information which is classified in accordance with the standards set forth in Executive Order 12065 as amended or superseded, or other applicable Executive Order, and other information which, if disclosed in an unauthorized manner, would jeopardize foreign intelligence activities of the United States Government. I accept that by being granted access to such information I will be placed in a position of special confidence and trust and become obligated to protect the information from unauthorized disclosure.
+
+3. In consideration for being employed or otherwise retained to provide services to the Central Intelligence Agency, I hereby agree that I will never disclose in any form or any manner any of the following categories of information or materials, to any person not authorized by the Central Intelligence Agency to receive them:
+
+a. information which is classified pursuant to Executive Order and which I have obtained during the course of my employment or other service with the Central Intelligence Agency;
+
+b. information, or materials which reveal information, classifiable pursuant to Executive Order and obtained by me in the course of my employment or other service with the Central Intelligence Agency but which, because of operational circumstance or oversight, is not formally marked as classified in accordance with such Executive Order and which I know or have reason to know has not been publicly acknowledged by the Agency;
+
+c. information obtained by me in the course of my employment or other service with the Central Intelligence Agency that identifies any person or organization that presently has or formerly has had a relationship with a United States foreign intelligence organization, which relationship the United States Government has taken affirmative measures to conceal.
+
+4. I understand that the burden will be upon me to learn whether information or materials within my control are considered by the Central Intelligence Agency to fit the descriptions set forth in paragraph 3, and whom the Agency has authorized to receive it.
+
+5. As a further condition of the special confidence and trust reposed in me by the Central Intelligence Agency, I hereby agree to submit for review by the Central Intelligence Agency all information or materials including works of fiction which contain any mention of intelligence data or activities, or contain data which may be based upon information classified pursuant to Executive Order, which I contemplate disclosing publicly or which I have actually prepared for public disclosure, either during my employment or other service with the Central Intelligence Agency or at any time thereafter, prior to discussing it with or showing it to anyone who is not authorized to have access to it. I further agree that I will not take any steps toward public disclosure until I have received written permission to do so from the Central Intelligence Agency.
+
+6. I understand that the purpose of the review described in paragraph 5 is to give the Central Intelligence Agency an opportunity to determine whether the information or materials which I contemplate disclosing publicly contain any information which I have agreed not to disclose. I further understand that the Agency will act upon the materials I submit and make a response to me within a reasonable time.
+
+7. I understand that all information or materials which I may acquire in the course of my employment or other service with the Central Intelligence Agency which fit the descriptions set out in paragraph 3 of this agreement are and will remain the property of the United States Government. I agree to surrender all materials reflecting such information which may have come into my possession or for which I am responsible because of my employment or other service with the Central Intelligence Agency, upon demand by an appropriate official of the Central Intelligence Agency, or upon the conclusion of my employment or other service with the Central Intelligence Agency.
+
+8. I agree to notify the Central Intelligence Agency immediately in the event that I am called upon by judicial or congressional authorities to testify about, or provide, information which I have agreed herein not to disclose.
+
+9. I understand that nothing contained in this agreement prohibits me from reporting intelligence activities which I consider to be unlawful or improper directly to the Intelligence Oversight Board established by the President or to any successor body which the President may establish. I recognize that there are also established procedures for bringing such matters to the attention of the Agency's Inspector General or to the Director of Central Intelligence. I further understand that any information which I may report to the Intelligence Oversight Board continues to be subject to this agreement for all other purposes and that such reporting does not constitute public disclosure or declassification of that information.

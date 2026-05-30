@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_1148.png
+
+Convert to MarkdownSECRET
+(When Filled In)
+
+<table><tbody><tr><td colspan="2">SECTION C</td></tr><tr><td colspan="2">NARRATIVE COMMENTS</td></tr><tr><td colspan="2">Indicate significant strengths or weaknesses demonstrated in current position keeping in proper perspective their relationship to overall performance. State suggestions made for improvement of work performance. Give recommendations for training. Comment on foreign language competence, if required for current position. Amplify or explain ratings given in Section B to provide best basis for determining future personnel action. Manner of performance of managerial or supervisory duties and cost consciousness in the use of personnel space, equipment and funds, must be commented on, if applicable. If extra space is needed to complete Section C, attach a separate sheet of paper.</td></tr><tr><td colspan="2">Since his assignment to Headquarters Training Branch of the Operations School, Mr. Smith has been principally engaged in a thorough study and review of all courses in Cover Action previously given in OTR. This has been a long and complicated job, the difficulty of which has been compounded by the necessity, at least in part through public events, to plan and project a total revision of instruction in the CA field. As a result, Mr. Smith has not yet had the opportunity to teach. This will come shortly, however, when a new course begins on 8 May. The "Strong" rating given him here is based on the excellent work and thoroughly professional approach he has taken in all of the preparatory work he has undertaken. He has been eminently successful in establishing useful new relationships and in maintaining his old contacts in the Clandestine Services for the purpose of laying a solid groundwork for high quality training. In addition to his responsibilities in OTR he has been regularly consulted by the CA Staff in a survey of one of its activities. This is fine testimony for the regard in which he is held outside the confines of his present job. The prognosis for a very effective performance in all of his teaching assignments is excellent. He has no supervisory responsibilities and is average in cost consciousness.</td></tr><tr><td colspan="2">CERTIFICATION AND COMMENTS</td></tr><tr><td>1.</td><td>BY EMPLOYEE</td></tr><tr><td colspan="2">I CERTIFY THAT I HAVE SEEN SECTIONS A, B, AND C OF THIS REPORT.</td></tr><tr><td>DATE</td><td>SIGNATURE OF EMPLOYER</td></tr><tr><td>10 April 67</td><td>Jay H. Smith</td></tr><tr><td>2.</td><td>BY SUPERVISOR</td></tr><tr><td>MONTHS EMPLOYEE HAS BEEN UNDER SUPERVISION</td><td>IF THIS REPORT HAS NOT BEEN SHOWN TO EMPLOYEE, GIVE EXPLANATION</td></tr><tr><td>6</td><td rowspan="3"></td></tr><tr><td>7 April 1967</td></tr><tr><td>OFFICIAL TITLE OF SUPERVISOR</td><td>TYPE OR PRINTED NAME AND SIGNATURE</td></tr><tr><td>Chief, Headquarters Training</td><td>BENJAMIN H. CUSHING</td></tr><tr><td>3.</td><td>BY REVIEWING OFFICIAL</td></tr><tr><td colspan="2">Comments of reviewing official<br/>As noted above, Mr. Smith, for several valid reasons, has not done much teaching in his first six months in the Operations School, but judging from the way he handles himself in preparing his courses, he will be a very effective teacher once he begins, which will be very soon.</td></tr><tr><td>DATE</td><td>OFFICIAL TITLE OF REVIEWING OFFICIAL</td><td>TYPE OR PRINTED NAME AND SIGNATURE</td></tr><tr><td>13 April 1967</td><td>Chief, Operations School/TR</td><td>BENJAMIN H. CUSHING</td></tr></tbody></table>
+
+SECRET
+
+<table>
+  <tbody><tr>
+    <td>DATE</td>
+    <td>OFFICIAL TITLE OF REVIEWING OFFICIAL</td>
+    <td>TYPE OR PRINTED NAME AND SIGNATURE</td>
+  </tr>
+  <tr>
+    <td></td>
+    <td>Ben H. Cushing</td>
+    <td>BENJAMIN H. CUSHING</td>
+  </tr></tbody></table>

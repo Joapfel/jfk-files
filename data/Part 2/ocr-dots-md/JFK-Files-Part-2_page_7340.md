@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_7340.png
+
+Convert to MarkdownIn sum, except in the case of very sensitive areas, discreet arrangements can be arranged for SSC visits to CIA's overseas stations and with senior officers within the covering Embassy provided the SSC member does not publicly declare himself to be on SSC business and maintains his Station contacts on a discreet basis.
+
+- Members of the SSC and their staff should not question Station personnel on specific operational detail. It is more fitting that Washington be the place where operational details are conveyed to the SSC. It is at Headquarters where the guidelines are best understood, where the most complete and authentic records are kept (many Stations finding themselves in dangerous crisis situations, have periodically destroyed their files). There is no reason, however, that Station Chiefs should not discuss operations in general terms -- operational priorities, the kinds of operations, the operational environment, relationships with the Embassy, the service attaches, etc.
+
+- Members of the SSC and their staff should not interview agent personnel. Foreign agent personnel frequently are under hostile or local service scrutiny. For them to be placed in touch with SSC members would be to run an unacceptable risk. Moreover, serious damage could be done to agent morale and motivation if they were to think their role had been revealed to members of Congress.
+
+- Members of the SSC and their staff should not in most cases be in contact with members of host country's intelligence or security services. Many services will find contact with the SSC politically difficult and will avoid it. They further regard that their relationships with CIA, the information they pass us and the sort of cooperation extended as a most sensitive matter.

@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_2948.png
+
+Convert to MarkdownSECRET
+
+10
+
+27 December 1962 Report on intelligence community's handling of intelligence relating to Cuban missile crisis completed for PFIAB.
+
+2 January 1963 NPIC moves into Building 213.
+
+3 January 1963 McCone meets with McNamara and Gilpatric to discuss A-11, SWITCHBACK, policy towards Cuba.
+
+10 January 1963 Special Group reviews reconnaissance over Cuba.
+
+10 January 1963 McGeorge Bundy discusses DOD-CIA friction; raises Kennedy's concern over Chinese Communist nuclear potential.
+
+17 January 1963 McCone meets with Italian Prime Minister Fanfani.
+
+21 January 1963 Meeting with President Kennedy on surfacing A-11.
+
+27 January 1963 McCone meets with Chiefs of Station in Panama until 29 January.
+
+30 January 1963 Col. Delsany, SDECE, admits charges of KGB penetrations and French espionage against US nuclear energy program. SECRET
+
+13-00000
+
+10

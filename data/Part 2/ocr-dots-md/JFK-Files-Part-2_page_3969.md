@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_3969.png
+
+Convert to MarkdownSTATE DEPT <TELEGRAMS> RE: Richard Nagell
+
+**D. DATED:**
+
+* D 25 MAR 1969
+* D 16 APR. 1969
+* D 17 APR. 1969
+* D 22 MAY. 1969
+
+3) Psychiatrist's Report, STATE AIRGRAM FROM BERLIN
+   DATED 29 OCT. 1968
+
+3) STATE DEPT. TELEGRAMS DATED 19 OCT. 1968 AND 22 OCT. 1968

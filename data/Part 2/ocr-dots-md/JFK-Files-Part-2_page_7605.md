@@ -1,0 +1,63 @@
+# JFK-Files-Part-2_page_7605.png
+
+Convert to MarkdownREPRODUCTION BY OTHER
+ISSUING OFFICE IS PROHIB
+
+<table>
+    <tr>
+        <td rowspan="2">ACTION UNIT</td>
+        <td colspan="3">FILE VR. DDO /55 00:45 /EURS</td>
+        <td rowspan="2"><table><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table></td>
+    </tr>
+    <tr>
+        <td>I N F O</td>
+        <td></td>
+        <td></td>
+        <!-- Cell for the third part of ACTION UNIT is spanned by the first two rows -->
+    </tr>
+    <tr>
+        <td>ACTION</td>
+        <td colspan="3"></td>
+        <td rowspan="2" style="writing-mode: vertical-rl; text-orientation: mixed; transform: rotate(180deg);">EYES ONLY</td>
+    </tr>
+    <tr>
+        <td>c/c/93</td>
+        <td colspan="3"></td>
+    </tr>
+</table>
+
+T 882004 EIA762
+
+IN 906466
+
+TOR:301935Z APR 76
+
+[LOND] 72167
+
+SECRET 301657Z APR 76 STAFF
+
+CITE (LONDON) 72167
+
+TO: DIRECTOR, (JAKARTA) INFO (THE HAGUE), (PARIS)
+
+RYBAT (PLMH) BLANKET
+
+REF: (LONDON) 72122 (SENT ONLY DIRECTOR)
+
+1. FOR (JAKARTA), (THE HAGUE), (PARIS): REF ADVISED THAT DURING 23 APR CONTACT BETWEEN PHILIP AGEE AND STEPHEN M. WEISSMAN, WEISSMAN (WHO IN CALIFORNIA) SAID HE HAD FOUND AN ARCHIVES ON AGENCY MATERIAL WITH A GREAT DEAL OF INFORMATION. HE MENTIONED INDONESIA AND SAID THAT PAUKER WAS PERSONALLY IDENTIFIED AS "OUR" MAN, BY CIA. AGEE THEN TOLD WEISSMAN THAT HE COULD ARRANGE AN INTRODUCTION TO DEWI SUKARNO AT ANY TIME FOR WEISSMAN, AS WELL AS A JOURNALIST WHO KNEW SUKARNO PERSONALLY.
+
+2. (JAGUAR) WAS SOURCE OF ABOVE INFO. AFTER CHECKING THEIR RECORDS, ON 29 APR (JAGUAR) ADVISED THAT THEY BELIEVE THE JOURNALIST IN QUESTION TO BE ONE WILLIAM L. OLTMANS OF AMERBOS 205, AMSTERDAM, THE NETHERLANDS. THEY SHOWED TO US THREE LETTERS WHICH HAD BEEN MAILED TOGETHER IN ONE ENVELOPE POSTMARKED IN THE U.K. ON 9 OCT 75. THE ENVELOPE WAS ADDRESSED "PHIL AND ANGELA" AND GAVE THEIR CAMBRIDGE ADDRESS. THE LETTERS
+
+P&L DISSEM
+
+RECD COPY
+
+SECRET
+
+<table>
+   <tr>
+    <td>
+     Form 547a Processed
+    </td>
+   </tr>
+  </table>

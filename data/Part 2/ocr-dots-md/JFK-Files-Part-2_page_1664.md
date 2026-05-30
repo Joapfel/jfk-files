@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_1664.png
+
+Convert to Markdown5 January 1952
+
+Mr. James B. Woods
+2017 Comm. Ave. N. W.
+Washington, D. C.
+
+Dear Mr. Woods:
+
+You are being considered for employment with the Central Intelligence Agency at grade 08..., salary ~~$2750.00~~ per annum.
+
+The appointment, if offered, will be temporary Indefinite in nature. Processing procedures require about 30 days to complete. Unless you are notified to the contrary during this period, you may assume that you are being actively considered for employment. Upon completion of this processing, we will contact you immediately.
+
+In the meantime, it would be appreciated if you will keep us advised of any changes in your present status, such as change of address, etc.
+
+Please let us know immediately if during the interim you find that you will not be able to accept employment with this organization.

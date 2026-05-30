@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_7581.png
+
+Convert to MarkdownC-O-N-F-I-D-E-N-T-I-A-L
+
+00-B-3,288,475
+
+- 7 -
+
+get into cells in the interior of a large animal, such as a human being, or will be moderated and changed into gamma rays. The neutron RBE for mortality in dogs, as reported from my laboratory and Brookhaven, is around 1. For small animals like mice it is more like three or four. So there is this discrepancy, and it may be promising for large animal research. Harwell, my laboratory, and the Argonne National Laboratory near Chicago are now setting up to apply low dose rate neutrons in sheep. This will be new work and should have important results.
+
+37. Q. Were results presented on cosmic and Van Allen belt radiation effects on test organisms in such areas as lethal, metabolic, developmental and genetic?
+
+A. There was nothing on this as far as I know, except for a paper from the Donner Laboratory people at the University of California, Berkeley entitled "Some Biological Effects of 730 Mev Protons". This may simulate the kind of radiation that occurs in space and this is why they are playing around with it, you see.
+
+38. Q. Were conclusions presented on determining the relative biologic effectiveness factor of biologic material when exposed to radiation from nuclear testing?
+
+A. Well, this kind of interest is implied in work with neutrons. With neutrons there is this question of RBE and it was one of the major points of discussion at the Symposium.
+
+39. Q. Did the Soviets say anything bearing on physical measurements of radiation in space in terms of relative biological effectiveness factor and implications for future manned space flights?
+
+A. All I can say is that it is logical to suppose that this is what they are after: good physical measurements of radiation of a type that might be anticipated in space.
+
+40. Q. Was there anything said on mapping and profiles for space radiation?
+
+A. There was nothing on this.
+
+41. Q. What interest have the Soviets shown in development and testing of nuclear power sources for thermionic power generators? Are the Soviets now applying such generators?
+
+A. There was nothing on this.
+
+42. Q. Did the Soviets report progress in radiation resistant materials and components for application to long space flight electronic equipment?
+
+A. This Symposium was all biological, so there was nothing on this.
+
+43. Q. Was there anything from the Soviets on methods of radiation shielding?
+
+A. It was there by implication. The fact that they were talking about the investigation of dose fields, the radiation of experimental animals with protons of high energy, implies that they would be using some kind of shielding to get the animal exposed.
+
+44. Q. This contribution would have been in Afanas'yev's paper "Production and Investigation of Dose Fields for Irradiation of Experimental Animals with Protons of High Energy"?
+
+A. Yes.
+
+C-O-N-F-I-D-E-N-T-I-A-L
+
+NO DISSEMS ABROAD.
+
+NOT FOR FOREIGN DISSEMINATION

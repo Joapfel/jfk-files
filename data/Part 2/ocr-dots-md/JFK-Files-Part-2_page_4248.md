@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_4248.png
+
+Convert to Markdownconclusion that the capability can be maintained at an
+acceptable degree of readiness without having the helium
+tanks on hand. In the event utilization is desired, the
+Department of Defense would be able to provide the helium
+as well as the launching vessels and crew or if necessary,
+helium could be commercially procured within the time
+factor necessary to ready the other components of the
+system. The CIA therefore proposes to terminate its
+current arrangements for the rental of the helium tanks
+and compressor.
+
+4. It is requested that approval be granted for the CIA to proceed, as outlined in paragraph 3 above, with the termination of rental contracts for helium tanks and compressor.

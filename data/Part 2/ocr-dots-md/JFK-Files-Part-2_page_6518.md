@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_6518.png
+
+Convert to Markdown13-00000
+
+(b) Officer exchange programs.
+
+(a) Language training for Latin American military students.
+
+(d) International Army, Navy and Air Force Defense Conferences.
+
+(e) Cooperative mapping open areas.
+
+(7) Troop information:
+
+The United States military is embarked on a program aimed at making the Latin American military aware of the realities of Communism and Communist subversion. This includes:
+
+(a) Translation into Spanish and printing of 50,000 sets of the series of ten pamphlets entitled, "Democracy versus Communism."
+
+(b) Development of an audio/visual film strip based on the "Democracy versus Communism pamphlets for the illiterate Latin American enlisted men. One Hundred and eighty of these films and records have been sent to CINGARIB for further distribution to the Latin American services.
+
+(c) Thirteen-hundred copies of the USA pamphlet "Tactics y Directivas Contra La Faraa Communista" are being procured for distribution among the Latin American military.
+
+d. The Intelligence and Non-attributable Efforts (to be supplied by CIA).
+
+2. Programs Which May Be Initiated:
+
+As in the case of Section II, the programs outlined below are within reasonable technical and practical means. However, as they cross the
+
+~~TOP SECRET~~

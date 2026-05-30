@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_8185.png
+
+Convert to MarkdownSan Germán, Puerto Rico
+
+April 27, 1968
+
+Dear Meg:
+
+I've received the group of Cornos #24 and 25,26. I've
+also sent a series of drawings based on Dr. Martin Luther
+King's assassination. They're poetic as usual but full with
+guts and disgust. The US will get no where with this
+killing of the best of their sons. Your work is getting
+there-here- where it is needed, so keep up the excellent
+job you are doing- since I know that you are working under
+a tremendous pressure. Very soon I'll send some money.
+Again I want ten Cornos 24- if you have any left. These
+drawings are getting a lot of attention especially in
+our younger generation which is counts.
+
+There is a possibility of CBS doing a program of what I am
+doing in painting and in our Art Department- if it comes
+through I'll put a word or two about el Corno. This is
+to happen -if- you know- in the fall.
+
+I'm going to New York during As june- till august-and I'll
+be studying at Columbia. I'll take with me some cornos
+to distribute. If you want to give any messages or anything
+that I can do in New York while there-please-let me know.
+
+Bueno, Mag- como siempre-la familia receives my beat
+regards and you my sincere love and efforts.

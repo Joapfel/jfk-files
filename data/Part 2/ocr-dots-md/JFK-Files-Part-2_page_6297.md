@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_6297.png
+
+Convert to Markdown# REVIEW AND DECLASSIFICATION OF THE SEQUESTERED FILES
+
+In 1992, CIA wrote to Speaker of the House Thomas Foley requesting approval to begin declassifying and releasing the records. In October of that year, Mr. Foley wrote a letter to the DCI granting CIA the authority to do so. The Speaker's decision was made in anticipation of passage of the Assassination Records Collection Act.
+
+## THE HARDCOPY MATERIAL
+
+The hardcopy part of the sequestered collection includes copies of most of the CIA documents in the Oswald 201 file. Also included are 201 files, personnel files, and security files on persons who are mentioned in documents relevant to the assassination, or who figure in one of the conspiracy theories.
+
+The collection also includes about 30,000 pages of documents, memos, and notes (many handwritten) that were created by the Committee staff during their investigation.

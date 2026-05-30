@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_5751.png
+
+Convert to Markdown13-00000
+
+Mr. J. Barry Harrelson
+July 7, 1998
+Page 2
+
+2. CIA Director George Tenet send a directive to all CIA personnel that explicitly requires all offices to search their files and notify the Historical Review Program immediately if they have any records that might possibly be considered relevant to the assassination—including any records created after 1992.
+
+3. CIA arrange for a meeting between the Review Board staff and appropriate CIA officials to discuss CIC and other counterintelligence records.
+
+4. CIA conduct a search for updated or continued records on individuals from a list of names to be provided by the Review Board, of subjects who were of interest to the House Select Committee on Assassinations. We are particularly interested in any records that CIA acquired on these subjects since the original files were sequestered in 1978. A list will be provided to you shortly.
+
+The Review Board appreciates your cooperation and assistance in resolving these issues. As time is growing short, we would like very much to ensure that these matters are handled expeditiously.
+
+cc: Assassination Records Review Board
+Mr. James Oliver
+Lee Strickland, Esq.

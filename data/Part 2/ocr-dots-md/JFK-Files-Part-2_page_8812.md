@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_8812.png
+
+Convert to Markdown13-00000
+
+# VOLUME II (Box I) Memo from FBI to CIA dated 12 Aug 1963
+
+Memo attached text of intercepted message; although in code, deciphered, it said the following: "Antonio ROJAS told me the following. CIA is still recruiting people but they are warned before hand that they have to accept Huber MATOS as their leader. My friend, Luisito AQUIAR, who was second in command to Tom DIQUE, was recruited and he will soon be sent to Cuba. RID told me the following: my prison mate Ernesto SANTANA, was also recruited a few days ago and sent by CIA and transferred to another place for his preparation. Tony, no good, and I believe the attempt (on the life) of the horse would be more effective, tell us how the check-out is going."
+
+## Memorandum for Chief of Station, Mexico dated 3 Sept 1963
+
+### (Box I) TOP SECRET DINAR
+
+Page 5 para 7 A states that AMAPOLA / crypt for CUIS/ with outstation located in the Miami area, has for its main objective the penetration of CIA and exile organizations directed against Cuba. One important agent, possibly the P/A /Jose CARBONNEL Marrero/ has been identified by the FBI and is a naturalized U.S. citizen of Cuban birth. The FBI is currently reading his S/W messages, and CIA is interrogating a WAVE asset (?) who has an unexplained connection with the agent. Another WAVE asset (name unknown) who has had contact with the agent
+
+~~TOP SECRET~~ SC-01755-77A
+
+~~TOP SECRET~~ SC-01755-77A

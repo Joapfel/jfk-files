@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_7628.png
+
+Convert to Markdown13.00000
+
+104-10422-10055
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+11 November 1975
+
+Bob,
+
+There are, in my mind, two distinct problems which have to be addressed by the Task Force. These are (a) a final proofing of the sterile copy of the file, and (b) ensuring that the machine run accurately reflects what actions were taken with regard to full and partial declassification.
+
+In the case of the final proofing only one person review the entire sanitized file to ensure consistency in the released product, eliminate duplicate materials and pick up any errors which may have slipped past, i.e. crypts etc. This should not take long, perhaps a day and should probably done by a person with a fresh view, i.e. not having done the declassification.
+
+The second problem may take more time. It would be the reviewing of each of the documents indicating what declassification, if any was done and accurately reflecting the action on the machine run. The would be a two man job. An attendant problem would be indicating on the machine run whenever duplicates bearing other numbers appear in the file. (In some cases we have found two, three or more copies of the same document, bearing a different number, larded throughout the files.) A tertiary problem is the marking on the machine run cases of drafts, research notes etc. My recommendation for this phase would be for a person from the Task Force, familiar with files and the entire excercise work jointly with a person from C/CI/ERO's office.

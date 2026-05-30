@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_6396.png
+
+Convert to Markdown06/10/97
+
+ASSASSINATION RECORDS
+REVIEW BOARD
+
+TUE 11:21 FAA 2UZ 724 0457
+
+# Assassination Records Review Board
+600 E Street NW • 2nd Floor • Washington, DC 20530
+(202) 724-0088 • Fax: (202) 724-0457
+
+MEMORANDUM
+
+June 10, 1997
+
+To: CIA Security Office
+
+From: Tracy Shycoff
+Deputy Security Officer
+
+Subject: Passing Clearances
+
+I am passing the clearance for the following ARRB employee for the purpose of reviewing documents related to the JFK Assassination Records Collection Act held by the CIA:
+
+Douglas Horne
+
+SSN 285-54-3352 DOB 5/19/52
+
+Place of Birth Oceanside, CA
+Clearance Granted 8/22/1995
+
+The clearance is at the Top Secret level and is to be passed through September 20, 1997 to Mr. John Pereira, Chief of the CIA Historical Review Group at 703-613-1805. If you need further information, please call me at the number listed above.
+
+cc: Barbara Standley, CIA Historical Review Group
+
+BOARD MEMBERS: John R. Tunheim, Chair • Henry F. Graff • Kermit L. Hall • William L. Joyce • Anna K. Nelson
+
+EXECUTIVE DIRECTOR: David G. Marwell

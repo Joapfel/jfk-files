@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_3060.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+Castro's ability to continue to finance subversive activities in other Latin America areas. President Eisenhower also objected to the focus on economic sabotage, and he would not agree to the plan to identify assets specifically for sabotage operations against the sugar industry. Eisenhower was willing to support a program to identify assets for the sugar industry " and other things as well ... including even possibly things that might be drastic." In addition to identifying assets on a broad basis, the President also requested that a comprehensive covert action program be prepared by Mr. Dulles. This, it was suggested, should go to the Special Group; and if they approved the plans, then the President wanted to discuss them. In any event, action on the PM program would be delayed until Eisenhower returned from his upcoming Latin American visit and gave his specific approval.* 23/
+
+* The Minutes of the Special Group Meeting of 17 February 1960 also noted that
+
+Mr. Joseph Scott of State also reported later that Mr. Herter had made exactly the same point.
+
+This appears to have been one of the few instances where Department of State representatives indicated support for possible direct action programs rather than political solutions to the Cuban problem.

@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_5224.png
+
+Convert to MarkdownSECRET
+
+Subject: CIA Employees
+
+DCI/OGC/LD/(Ciprian) 76124 (10 Apr 97)
+
+OGC-97-50971
+
+Distribution:
+
+Original - Addressee
+1 - GC
+1 - Lit File - LDG00021
+1 - LCC Signer
+1 - RDC - FYI
+1 - OGC Registry

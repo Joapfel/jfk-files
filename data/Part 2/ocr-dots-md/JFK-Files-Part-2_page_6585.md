@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_6585.png
+
+Convert to Markdown2. Cuba represents a steady drain on already limited Soviet and bloc resources; every shipment to Cuba means things do not appear on Soviet shelves.
+
+3. Castro really supports the Chinese, not Moscow; he is using Soviet help to promote Castroism not Moscow's policy.
+
+The above lists do not pretend to be exhaustive. They are but the beginning of a catalog of themes we can exploit in our information and propaganda offensive.

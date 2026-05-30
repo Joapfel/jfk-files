@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_6680.png
+
+Convert to MarkdownMEMORANDUM FOR THE RECORD
+
+On 8 April 1994, the complete set of SRPOINTER and HTLINGUAL security support files and indexes held by the Office of Security were destroyed in accordance with the guidelines set forth in the approved Records Control Schedules 31-76 and 31-83 and by the Office of General Counsel.

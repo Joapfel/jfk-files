@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_1256.png
+
+Convert to MarkdownSECRET
+
+CENTRAL INTELLIGENCE AGENCY
+WASHINGTON 28. D. C.
+OFFICE OF THE DIRECTOR
+
+3 APR 1954
+
+MEMORANDUM FOR: Joseph B. Smith
+
+SUBJECT: Notification of Membership in the Career Staff
+
+1. On behalf of the Director of Central Intelligence, it gives me pleasure to inform you that your application for membership in the Career Staff has been accepted by the CIA Selection Board. The effective date of your membership is 17 September 1954.
+
+2. Please indicate that you have received this notification by signing in the space provided below and return it to the Head of your Career Service. He will forward it to the Executive Director of the CIA Selection Board.
+
+3. Because your membership in the Career Staff is classified information, it is necessary that this notification be conveyed to you in this manner: The application for membership which you signed has been endorsed on behalf of the Director of Central Intelligence by the Executive Director of the CIA Selection Board and placed in your permanent Official Personnel Folder.
+
+FOR THE DIRECTOR OF CENTRAL INTELLIGENCE
+
+Harrison G. Reynolds
+Chairman, CIA Selection Board
+
+Noted:
+
+Date: 13 July 1956
+
+Career Service Staff
+Office of Personnel
+
+20 JUL 1956
+
+103
+
+P008 NO. 911, 1 APR 58
+
+FEB 000001-14000000-FE15

@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_2243.png
+
+Convert to MarkdownEXCLASSIFIED
+
+CONTROL
+885
+
+EXCLASSIFI D . KO STERIL . NO DISTRIBUTION
+
+March 9, 1950
+
+AMEMBASSY,
+CARACAS.
+
+A-66
+
+The assignment of Attaeho Birch D. O'Hall,
+CV-1003, to your Mission has been cancelled.

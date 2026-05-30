@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_1214.png
+
+Convert to MarkdownSECRET
+
+**TRAINING EVALUATION**
+
+OPERATIONS
+
+IMPORTANT: The official to whom this report is entrusted is personally responsible for it. He may show it to other members of his staff or to the student concerned if such action is considered necessary and advisable.
+
+This report summarizes the test results. Observations and opinions of the various instructors for the course listed only. More complete data are available in the files of the office of Training (Cover), and may be examined after contacting the Training and Evaluation Officer. Any questions as regards the evaluation of this student should be referred to the Chief, Training and Evaluation, TR(C).
+
+<table><thead><tr><th>NAME OF STUDENT (LAST)</th><th>(FIRST)</th><th>(MIDDLE)</th><th>AGE</th><th>GRADE IGS OR KSNJ</th><th>DATE OF REPORT</th></tr></thead><tbody><tr><td>LTC. SMITH,</td><td>Joseph</td><td>B.</td><td>32</td><td>GS-12</td><td>13 November 1953</td></tr><tr><td>DIVISION</td><td colspan="4">PROJECTED ASSIGNMENT</td><td>COURSE NO.</td></tr><tr><td colspan="6"><em>PERFORMANCE RECORD</em></td></tr><tr><td colspan="6">THE FOLLOWING GRADES SHOW THE ACHIEVEMENT OF THE STUDENT IN THE MAJOR ELEMENTS OF THE COURSE. TWO GRADES ARE ASSIGNED IN EACH AREA. ONE FOR COMPREHENSION AND ONE FOR IMPLEMENTATION. A SPECIFIC DEFINITION OF EACH OF THESE TERMS, AS WELL AS OF THE ADJECTIVAL RATINGS EMPLOYED, IS GIVEN ON THE BACK OF THIS EVALUATION FORM:</td></tr></tbody></table>
+
+<table><caption>ADJECTIVAL RATINGS</caption><thead><tr><th rowspan="2">MAJOR ELEMENTS</th><th colspan="2">FAILURE</th><th colspan="2">POOR</th><th colspan="2">SATISFACTORY</th><th colspan="2">EXCELLENT</th><th colspan="2">SUPERIOR</th></tr><tr><th>COMP.</th><th>IMP.</th><th>COMP.</th><th>IMP.</th><th>COMP.</th><th>IMP.</th><th>COMP.</th><th>IMP.</th><th>COMP.</th><th>IMP.</th></tr></thead><tbody><tr><td>1. Organization of Clandestine Operations</td><td></td><td></td><td></td><td></td><td></td><td></td><td>X</td><td>X</td><td></td><td></td></tr><tr><td>2. Cover</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td>X</td><td>X</td><td></td></tr><tr><td>3. Communications</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td>X</td><td>X</td><td></td></tr><tr><td>4. Target Analysis</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td>X</td><td>X</td><td></td></tr><tr><td>5. Criteria For Agent Selection</td><td></td><td></td><td></td><td></td><td></td><td></td><td>%</td><td>X</td><td></td><td></td></tr><tr><td>6. Agent Recruitment</td><td></td><td></td><td></td><td></td><td></td><td></td><td>X</td><td>X</td><td></td><td></td></tr><tr><td>7. Agent Handling</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td>X</td><td>X</td><td></td></tr><tr><td>8. Agent Direction</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td>X</td><td>X</td><td></td></tr><tr><td>9. Assessment and Reassessment</td><td></td><td></td><td></td><td></td><td></td><td></td><td>X

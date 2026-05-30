@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_6462.png
+
+Convert to MarkdownTOP SECRET
+
+APPENDIX
+DISCUSSION
+INTRODUCTION
+
+1. **Purpose**. This report is in response to a request from the Chairman, Joint Chiefs of Staff, to consider the desirability and requirements of a fomented revolt in Cuba. It includes an examination of engineering an incident or a series of incidents as a cause for invasion and consideration of pertinent comments received from CINCLANT.
+
+2. **Summary**. Study of the desirability and the requirements of a fomented revolt in Cuba and of the advantages of engineering an incident or a series of incidents rather than trying to generate and coordinate action from inside involving many Cubans of doubtful reliability leads to the conclusions that:
+
+a. It is unlikely that an effective spontaneous revolt will occur in the near future.
+
+b. Any uprising without US overt support is likely to be short-lived because of the improved Cuban/Soviet military capabilities presently in Cuba and Castro's increasingly efficient internal security operations.
+
+c. There appears to be little likelihood that the Castro communist regime will risk a direct provocation that could be used as a pretext for US intervention.
+
+d. Unless the United States intervenes militarily, the Castro government will become more firmly entrenched and its efforts and ability to spread international communism will increase.
+
+e. The United States should intervene militarily in Cuba and could (a) engineer provocative incidents ostensibly
+
+TOP SECRET - SENSITIVE
+
+(Rev. 5/13/63)
+
+UNCLASSIFIED
+Appendix
+
+TOP SECRET

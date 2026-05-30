@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_3397.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+Memo for DDP from D. A. Phillips, 27 Jun 60, sub:
+Estimates for Aircraft Broadcasts to Cuba.
+
+8. JMARC Propaganda program, op. cit.
+
+9. MR from David R. McLean, 27 Jul 72, sub: Interview with David A. Phillips.
+
+10. *Ibid.*
+
+10a. Cable for Director from JMASH, 22 Nov 60, MASH 1805 (IN 46419).
+
+11. Memo for C. T. Barnes from E. A. Stanulis, 21 Jul 61,
+    sub: Cuban Briefing Papers.
+
+12. [Memo for] Mrs. Geraldine S. DePuy, Director,
+    Operations Division and John P. Hebrew, Director,
+    Investigation Staff, Bureau of Foreign Commerce,
+    Dept. of Commerce from R. W. Lindsay, Intelligence
+    Division, Investigation Staff, Bureau of Foreign
+    Commerce, Dept. of Commerce, 20 May 60, sub: Swan
+    Islands (FC-2040; 2-37).
+    Ltr. for Harold W. Reeves, Collector of Customs,
+    Tampa, Fla. from Geraldine S. DePuy, 25 May 60,
+    FC-2650-FLB.
+
+Memo for Chief, WH/4 from Chief, WH/4 Support,
+27 May 60, sub: Shipment of Supplies and Equipment to Swan Island.
+
+MR from [R. S. Kraus?], 27 May 60, sub: JMHOPE.
+
+13. MR from David A. Phillips, 27 Jun 60, sub: Briefing of Senator Mundt on CIA Radio Operations against Cuba.
+
+Minutes of Special Group Meeting [from T. A. Parrott], 12 May 60.
+
+14. Memo for Chief, WHD from William E. Eisemann, 27 Jun 60, sub: Administrative Plan for the JMARC/4 Phase of Project JMARC.

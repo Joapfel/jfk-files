@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_6054.png
+
+Convert to MarkdownHENRY FRANKLIN GRAFF, cont'd
+
+6. Do you agree to have written opinions provided to the Committee by the designated agency ethics officer of the agency to which you are nominated and by the Office of Government Ethics concerning potential conflicts of interest or any legal impediments to your serving in this position?
+
+Yes.
+
+D. LEGAL MATTERS
+
+1. Have you ever been disciplined or cited for a breach of this for unprofessional conduct by, or been subject of a complaint to any court, administrative agency, professional association, disciplinary committee, or other professional group? If so, provide details.
+
+No.
+
+2. Have you ever been investigated, arrested, charged or held by any Federal, State, or other law enforcement authority for violation of any Federal, State, county or municipal law, regulation or ordinance, other than a minor traffic offense? If so, provide details.
+
+No.
+
+3. Have you or any business of which you are or were an officer ever been involved as a party in interest in any administrative agency proceeding or civil litigation? If so, provide details.
+
+No.
+
+4. Have you ever been convicted (including pleas of guilty or nolo contendere) of any criminal violation other than a minor traffic offense?
+
+No.
+
+5. Please advise the Committee of any additional information, favorable or unfavorable, which you feel should be considered in connection with your nomination.
+
+None.

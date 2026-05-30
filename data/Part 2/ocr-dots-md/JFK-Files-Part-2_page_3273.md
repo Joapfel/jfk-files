@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_3273.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+President presided and the meeting was attended by the Secretaries of State, Defense, and Treasury, the Director of the Office of Civil & Defense Mobilization, the Acting Attorney General, a representative of the Chairman of the Joint Chiefs of Staff and, among others, Messrs. Bissell, King, Esterline, and McMahan of the Central Intelligence Agency.* 17/
+
+A great deal of the briefing was devoted to the FRD and its leadership -- their policies, their background, and the internal difficulties and bickering.
+
+The propaganda picture also was discussed, with particular emphasis again on radio broadcasts from Swan Island. Gen. Cabell stated that the paramilitary plan was to develop a force of 500 men who would be divided into 25 20-man teams. The teams would go into Cuba to organize and to train indigenous dissident groups. Cabell emphasized that the implementation of the paramilitary program depended on the existence
+
+* Knight McMahan was on the Staff of the Deputy Director for Intelligence -- that component of the Central Intelligence Agency which, according to some of the "authorities" on the Bay of Pigs, was presumably uninformed and unaware of the Agency's anti-Castro program.

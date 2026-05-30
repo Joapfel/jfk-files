@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_3878.png
+
+Convert to MarkdownYoung, said that he believed in Novel to determine whether McKeithen's phone had been dialed.
+
+The Labor Management Board of Inquiries came into the picture to question Novel at the suggestion of Baton Rouge Teamsters boss Edward G. Partin. The board is investigating labor racketeering in the area.
+
+The board's chief counsel, Camille Gravel, and its chief investigator, A. Harry Roberts, talked with Pitcher to see if an agreement could be worked out for a meeting with Novel. Also present at the conference were Novel's attorneys.
+
+Failure of the board to interview Novel, said Partin, would be "continuing proof that the main endeavor has been to make me and Local 5 scapeseats."
+
+Gravel said he was uncertain whether he could subpena Novel because of the immunity granted him.
+
+There was an indication that Novel may also testify before the grand jury on Friday. According to Pitcher, Novel would remain under the immunity as long as he is in Louisiana for grand jury appearances.
+
+## LONG STATEMENT
+
+Novel, presently under indictment by the Orleans Parish Grand Jury for conspiracy to commit burglary, once issued a lengthy statement saying that he "knew of criminal influence and activity in Louisiana."
+
+In his desire to have Novel returned to the state to testify, McKeithen gave Pitcher $3,500 from his law enforcement fund to finance Novel's return.
+
+The only indictment handed down so far by the grand jury in Baton Rouge has been against Smith. The indictment charged that Smith committed public bribery by offering Young $25,000 to set up a meeting between himself and Partin, whose testimony was valuable in sending Teamsters head James R. Hoffa to prison.
+
+In New Orleans, Ward said that the reported gambling ring uncovered by Calm was not limited to the Crezant City. "It is not limited to New Orleans and probably includes, in every major city in the United States," said Ward. "These lack off bookie operations involve every city in the United States and several in Canada where there is any betting on pro or college sports," he added.
+
+## HANDBOOK BETTING
+
+Asked if handbook betting could be termed as organized crime, Ward replied: "There is not one bit of evidence to indicate that this is part of any
+
+Cosa Nostra or Mafia network." As a matter of fact, it indicates that this is the typical layoff bookie operation, necessary who ever bets are made, in which small bookies who have received bets that are too large placed the bets to a larger operator," Ward said.
+
+Ward, who is presently acting as district attorney in Orleans' absence, said that though no large-scale gambling operations are now operating in New Orleans, this does not mean that you Cahoot make a bet on an athletic event in Orleans Parish and that this will not be called to a book by use of a telephone.
+
+"You can make a bet in any city in the United States, including New Orleans, but the books themselves are not operating in Orleans Parish."
+
+Because there is no evidence that key bookie operations now exist in Orleans Parish, Ward concluded, "I do not expect any immediate indictments to be sued by the grand jury."

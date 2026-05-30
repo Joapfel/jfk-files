@@ -1,0 +1,8 @@
+# JFK-Files-Part-2_page_278.png
+
+Convert to MarkdownSECRET
+
+Jose Revueltos, Communist landmark personality in Mexico for the past several years, on a regular basis. Jose Revueltas has become an alcoholic and for the last several weeks has been living with an Indian girl. Mrs. Revueltas blames this situation of her husbands relationship with two brothers Arturo and Jorge Filio and on Jaime Navarro. According to Mrs. Revueltas these three are engaged in smuggling contraband goods into Mexico and are also engaged in smuggling drug activities. Mrs. Revueltas claims that they use their smuggling channels to help the PCM pass items and bodies in and out of the country. Jose Revueltas was the contact man between this group and Alfredo Saqueiro's and Luis Arenal who were interested in smuggling Guillermo Rousset Banda accused of murdering Carlos Farías Jimenez, both known Communists, out of the country. There has been speculation that this murder was the result of differences between the Pro-Soviet and Pro-Communist China groups of PCM. Mrs. Revueltas believes that if she could cause the arrest of the Filios and Navarro she could rescue her husband from their influence. At L-L's suggestion, she wrote an anonymous letter denouncing the Filios and Navarro, describing their activities, types of contraband she addresses where the contraband was located. Mrs. Revueltas was told by L-L she would give it to a friend of hers on the Narcotic Board in Mexico.
+
+3
+SECRET

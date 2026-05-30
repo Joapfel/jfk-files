@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_313.png
+
+Convert to Markdown682. Entrada.-1208.-Ignacio Sánchez Lerma pregunta al Viceconsul si llegó su perniso do regreso a Cuba y Miraval Indioa - quo n°.- 730.-
+
+730. Entrada.-HF plegunta por Chichay y MD informa que hoy - no trabajó.- 739.-
+
+739. Entrada equivocada.- 761.-
+
+761. Entrada 1254.-Héctor Ramírez de Arollano plegunta si - llegó su pasaporte nuevo y MD dice que sí.- 782.-
+
+782. Entrada 1300.-El italiano Rafael Giordano plegunta si - llegó su visa y MD pido'más tardo.- 814.-
+
+814. Entrada 1346.- Botifol, el que habló en la mañana, preguntá como puede hacer para solicitar prórroga para sus padres, porque a su papá lo tienen que operar nuevamente y MD pide - paso mañana al Consulado para pasar un cable. HF acepta.-859.
+
+859. Entrada 1359.-Rafael Giordano plegunta si llegó su visa y MD dice que n°.- 880.-
+
+--- (3.-Lil.- 7 Nov.66).-- ---

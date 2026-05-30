@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_3106.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+programs with reference to the Cuban problem. 75/
+About this same time, Allen Dulles made known to
+the Special Group his displeasure that the Depart-
+ment failed to consult with the Agency prior to
+announcing the reappointment of Philip Bonsal as US
+Ambassador to Cuba. 76/
+
+The Rubottom plan apparently had some impact,
+for by the end of April 1960, Gordon Gray was calling
+on Douglas Dillon, the Undersecretary of State, to
+find someone in the Department -- Dillon himself --
+to be "constantly seized of the Cuban problem and
+who would take steps to assure that all of the activ-
+ities of various groups were in harness and that all
+needed decisions were made when needed."* 77/ Mr.
+Gray also specified some of the problems which would
+face a Chief of Staff on the Cuban activity, noting:
+
+[Livingston Merchant] has set up two
+groups, one under the chairmanship of
+Mr. Mallory. In addition, there is the
+Special Group, of which Livie is a mem-
+ber, and in his absence Ray Hare sits.
+Further, there is a special activity
+
+* This, of course, apparently ignores or disregards
+the creation of WH/4 and the responsibilities desig-
+nated to the Agency by Gray's boss, President Eisen-
+hower.
+
+TOP SECRET

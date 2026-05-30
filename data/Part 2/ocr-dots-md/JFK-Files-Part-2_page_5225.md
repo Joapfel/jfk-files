@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_5225.png
+
+Convert to MarkdownAPR 15 '97 05:03PM
+
+P.2
+
+17 March 1997
+
+Ms. Beth Mills
+
+Dear Ms. Mills,
+
+Your letter of 4 March was delivered to me on 10 March, and this reply will
+be sent via the same channel.
+
+I wish to go on record as demanding that my name not be released in ANY
+document disclosed concerning the Kennedy assassination.
+
+First, I shall describe my present circumstances; and thereafter I will address
+the legal points in the legislation.
+
+I retired in 1974 in a clandestine status, using a State Department cover,
+which has worked reasonably well since then. I reside in Caracas, Venezuela. This
+city (and the entire country) is still populated with Communists and ex-Communists
+who formed part of the Marxist conspiracy to overthrow the democratically elected
+Governments in the 1960s and 70s. Many of these persons are now members of
+Congress and a few are in the President's Cabinet. During my service in Venezuela,
+as COS, I maintained liaison with civilian and military officers, during which time I
+worked with these to overcome the guerrilla offensive, and to combat the
+Communist Party after it accepted "pacification." I left in 1972 and went to
+Vietnam, from which I returned to Venezuela as a private citizen. Because of my
+wife's long employment and friendships, we are as closely connected with the
+Jewish Community as two Christians can be.
+
+Given my somewhat exposed position as COS, my true affiliation was known
+to a number of important Venezuelan Government officials. In any event, soon after
+my return, I was informed by the Venezuelan Government that an important
+Communist leader had learned of my return, and that "I was living in Urbanizacion
+Miranda (a small and somewhat isolated Caracas suburb) and that I was training
+right wing paramilitary personnel." They were right about where I lived, but

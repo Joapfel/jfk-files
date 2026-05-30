@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_4046.png
+
+Convert to MarkdownEP 65-951
+
+always acted from a principle of love for my country and this same principle actuated my conduct on September 20, 1963, however inappropriate or incomprehensible it may appear. God and I, and also the FBI, know that I am not guilty.
+
+"NAGELL is accused of pulling a gun on a teller at the bank. When the teller fled, NAGELL is alleged to have fired two shots into the bank ceiling."
+
+"NAGELL had previously indicated he might submit to examination by a psychiatrist at William Beaumont General Hospital. But at the hearing it was brought out he refused to do so now."
+
+"Judge THOMASON then overruled his motion for a writ and asked that NAGELL's case be taken before a Federal Grand Jury. Previously the judge had ordered that all prosecution be deferred until an examination report on NAGELL's mental competency was obtained.
+
+"The judge said NAGELL's argument on the bond 'more thoroughly convinces the court you need psychiatric help.'
+
+"When NAGELL was returned to the jail, he would not tell reporters why he entered the bank. As in the past he said he would not disclose his motive.
+
+"FRED MORTON, Assistant U. S. District Attorney, said Monday afternoon that the case will probably be taken before a U. S. Grand Jury in January in San Antonio."
+
+On January 3, 1964, GEORGE NORMAN STANGA was contacted and interviewed at the El Paso County Jail after he contacted the El Paso Office of the FBI and specifically requested that he be interviewed regarding RICHARD CASE NAGELL. At the time of the interview, NAGELL was incarcerated at the El Paso County Jail as a Federal prisoner for the crime of bank robbery.

@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_5548.png
+
+Convert to Markdown13-00000
+
+# Folder Summaries of the Nosenko Material Not Believed to be Relevant to the JFK Assassination
+
+## Reel 45, Folder 3
+
+During July and August 1965, Peter Deryabin, a Soviet defector, conducted a series of interrogations of Nosenko in conjunction with CIA efforts to establish Nosenko's bona fides. This folder contains one 66 page verbatim transcript of two interrogation sessions which cover Nosenko's family, background, early career and Komsomol experiences.
+
+## Reel 45, Folder 4
+
+This folder contains a 76 page verbatim transcript of two interrogation sessions by Peter Deryabin which cover Nosenko's career, Party membership, Komsomol personalities and procedures, military personalities and experiences, and his incarceration by CIA.
+
+## Reel 45, Folder 5
+
+This folder contains a 59 page verbatim transcript of two interrogation sessions by Peter Deryabin which cover Nosenko's military career, KGB buildings, personalities and procedures, and other Soviet intelligence people, roles, and titles.
+
+## Reel 45, Folder 6
+
+All the documents in this folder, but one, have been released to the public. The NBR document is a five page February 1964 memo from the Director of the Soviet Division (C/SR) David Murphy to the Deputy Director of Plans (DD/P) Richard Helms on plans to debrief Nosenko based on C/SR's belief that Nosenko is a Soviet plant.
+
+## Reel 45, Folder 8A and B
+
+Folder 8A contains the 263 page "Conclusions and Comments in the Case of Yuriy Ivanovich Nosenko" 1 October 1968 report by Bruce Solie, Deputy Chief of the Security Research Staff which concludes that Nosenko is a bona fide defector and should be believed. A sanitized version of the Solie report has been released to the public. The NBR document in folder 8B is a 135 page report on Nosenko prepared in April 1969 by N. Scott Miler of the Counterintelligence Staff (DC/CI/SIG) based on the comments and questions of Anatoliy Golitsyn. The report contains Golitsyn's comments on inconstancies he believes exist in Nosenko's testimony and his recommendations for further questioning. Golitsyn believed Nosenko was a dispatched agent.

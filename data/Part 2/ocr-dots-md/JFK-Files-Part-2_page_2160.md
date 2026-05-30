@@ -1,0 +1,157 @@
+# JFK-Files-Part-2_page_2160.png
+
+Convert to Markdownof any given situation, evidences sound and objective judgment,
+and works well under pressure. He writes lucidly, speaks
+articulately, and exhibits a high degree of cost consciousness
+in the use of government funds and property. His delegation of
+responsibility to others is meaningful and well delineated.
+
+5. Subject's performance has been strong throughout the rating period. He has given the station purposeful direction and competent management and as an effective supervisor who commands the loyalty and respect of those whom he supervises, he has succeeded in obtaining a maximum effort from the station personnel. He enjoys the confidence of the Ambassador and other principal officers of the Embassy, several of whom have expressed their appreciation of subject's work and commented on the value of the station's contribution to the functioning of the Embassy. The fact that the Ambassador arrived in Madrid with definite prejudices regarding the Agency but was of quite another mind upon his departure is testimony to subject's skill and tact.
+
+6. Subject has conducted the Agency's liaison with the Spanish services most competently, as evidenced by the relationship he established with Captain General Munoz Grandes, his ability to persuade the AEM to undertake sensitive operations in Cuba, and the fact that this liaison did not suffer following the attack on the Spanish ship "Sierra Aranzazu". Marked progress has been achieved in joint CE and CP operations, and subject has developed QUANTUM/30 to the point wherein the latter's collaboration far exceeds the cooperation normally expected in an official liaison relationship.
+
+7. In addition to his considerable executive and liaison duties, subject has carried out the previously cited operational assignments with marked ability. He is a convincing and persuasive agent handler, and his operational reporting is prompt and thorough.
+
+8. The only criticism I would make of subject is that I believe the station should be making a greater effort to develop internal assets who will be able to report on and influence developments in Spain following the departure of Franco.
+
+OVERALL PERFORMANCE IN CURRENT POSITION: "S"
+COMMENTS OF REVIEWING OFFICIAL: CONCUR
+
+EDWARD RYAN
+Deputy Chief
+Western Europe Division
+
+WALES QUEEN'S AGE
+William D. O'Ryan, C/WE
+
+SUBMITTED FOR APPROVAL
+
+RECEIVED
+
+APPROVED AND CONSIDERED FOR PAYMENT OF ACCOUNT
+
+RECEIVED
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+RECEIVED
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF ACCOUNT.
+
+APPROVED FOR PAYMENT OF

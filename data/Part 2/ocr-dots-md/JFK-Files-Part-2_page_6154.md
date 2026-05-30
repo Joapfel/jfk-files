@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_6154.png
+
+Convert to Markdown56 Md. L. Rev. 1, *23
+
+n153. See Holland, supra note 18, at 54, 56.
+
+-End Footnotes-
+
+Students of the assassination would benefit from opening the mass of information produced by the intelligence community's intense effort to get to the bottom of the President's murder. Yet, protecting America's foreign and domestic intelligence-gathering capabilities is essential to our national defense. n154 Thus, the intelligence agencies regularly assert that the identities of agents and informants must remain perpetually confidential; n155 that nothing should be revealed about the methods and sources used to gather intelligence; n156 that direct reports from United States intelligence agents should not be disclosed; n157 and that intelligence information provided by other nations to the United States, and, indeed, the very existence of such relationships, should not be disclosed.
+
+-Footnotes-
+
+n154. See Assassination Materials Disclosure Act III, supra note 96, at 381 (prepared statement of FBI Director William Sessions) (stating that among 250,000 pages requested by the House Assassinations Committee are a large number of FBI documents that "implicate national security interests").
+
+n155. See Assassination Materials Disclosure Act I, supra note 96, at 7 (statement of CIA Director Robert M. Gates) (asserting that "we have an obligation to protect the confidentiality of our sources, regardless of the amount of time that has passed").
+
+n156. See Assassination Materials Disclosure Act III, supra note 96, at 363, 373-74 (statement of CIA Director Robert M. Gates) (stating assumption "that there still will be information that cannot be released to the public for a variety of reasons, including ... the exposure of intelligence sources and methods"); Assassination Materials Disclosure Act II, supra note 96, at 109 (statement of Admiral William O. Studeman, Deputy Director, CIA) (echoing Gates's statement).
+
+n157. See supra note 154.
+
+-End Footnotes-
+
+VIII. Informants
+
+Informants play a critical role in the world of intelligence operations, both domestic and foreign. For example, the FBI relied heavily on informants to infiltrate the Ku Klux Klan in the 1960s and [*24] 1970s. n158 Today, the FBI recruits informants to help thwart narcotics trafficking and international terrorism. n159 The internal security and general welfare of the United States depends heavily on the role of informants. n160
+
+-Footnotes-
+
+n158. See Clifford S. Zimmerman, Toward a New Vision of Informants: A History of Abuses and Suggestions for Reform, 22 Hastings Const. L.Q. 81, 91-92 (1994) (describing the FBI's mishandling of KKK informants).

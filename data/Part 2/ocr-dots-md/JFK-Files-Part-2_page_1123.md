@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_1123.png
+
+Convert to Markdown<table><thead><tr><th colspan="5">PAY ROLL CHANGE DATA</th></tr><tr><td>BASIC PAY</td><td>OVERTIME</td><td>GROSS PAY</td><td>NET<br>TAX</td><td>BOND F. I. C.</td><td>NET PAY</td></tr></thead><tbody><tr><td>7. Previous normal</td><td rowspan="3">FINANCE DIVISION</td><td></td><td></td><td></td><td></td></tr><tr><td>8. New normal</td><td></td><td></td><td></td><td></td></tr><tr><td>9. Pay this period</td><td></td><td></td><td></td><td></td></tr><tr><td colspan="2">10. Remarks</td><td></td><td></td><td></td><td>PURSUANT TO DCI DIRECTIVE<br>EFFECTIVE 13 MAR. 1955<br>ADJUSTED TO:</td></tr><tr><td colspan="5">11. Appropriation(s)</td><td>Prepared by: <br>8 Sep 55</td></tr><tr><td colspan="5"></td><td>Audited by:<br>13. Audited by:</td></tr></tbody></table>
+
+<table><tr><td>Period's step-increase ☐</td><td>Pay adjustments ☑</td><td colspan="4">Other step-increase ☐</td></tr><tr><td>14. Effective date<br/>24 Oct 54</td><td>15. Date last equipment<br/>26 Apr 53</td><td>16. Old salary (ok)<br/>870.0</td><td>17. New salary<br/>$72.0</td><td colspan="2">18. Performance rating is satisfactory or better.<br/><br/>(Signature or other authentication)</td></tr><tr><td colspan="6"><input type="checkbox" /> No excess LWOP. Total excess LWOP ____________<br/><br/>STANDARD FORM NO. 1120D-Revise<br/>Form prescribed by Comp. Gen., U. S.<br/>May 8, 1950, General Regulation No. 102<br/><br/>PAY ROLL CHANGE SLIP—PERSONNEL COPY</td></tr></table>
+
+PCH

@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_4029.png
+
+Convert to MarkdownEP 65-951
+
+that he could leave the hospital AMA. In view of the chronic
+nature of his illness the future prognosis must be guarded as
+to a possibility of a permanent future social economic adjustment.
+Patient discharged A.M.A. on 1-22-63.
+
+"5. FINAL DIAGNOSIS AND PRESENT STATUS:
+
+1. Chronic brain syndrome associated with brain trauma (by history of) with behavioral reaction characterized by passive aggressive and paranoid features.
+Treated. Unchanged.
+
+(a) Precipitating Stress: Unknown.
+
+(b) Predisposition: Moderate, by history of,
+frequent hospitalizations and interviews
+for his present type of behavior.
+
+(c) Psychiatric Incapacity: Minimal. Patient is competent at this time.
+
+"6. RECOMMENDATIONS: That this patient should remain in a hospital for further observation. However, if he so desired, he could go A.M.A. to seek further NP care when indicated.
+
+"7. PRESENT STATUS OF SC DISABILITY: Not examined for rating purposes."
+
+The above mentioned clinical record from the Veterans Administration Hospital in Bay Pines, Florida, can only be made available upon the issuance of a subpoena duces tecum.
+The identity of the person to be subpoenaed is HAROLD G. COBB, Chief, Registrar Division, Veterans Administration Admission Center, Los Angeles 25, California.
+
+January 24, 1963
+
+On January 24, 1963, the subject was contacted
+by Special Agents of the Miami, Florida, Office of the
+FBI at Northeast First Avenue and Fifth Street, Miami,
+at which time he stated that his name was JOE KRAMER. He
+was sitting in his 1957 Ford hardtop, black and white in
+color, bearing California license MYU 890.

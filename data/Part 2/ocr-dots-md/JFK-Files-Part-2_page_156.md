@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_156.png
+
+Convert to MarkdownSECRET
+
+22 AUG 1966
+
+MEMORANDUM FOR: Domestic Operations/4H
+: Director, Domestic Contacts Service
+SUBJECT : Miss Viola June Cobb, born 24 August 1927, Ponas,
+Oklahoma
+
+Background:
+
+1. On 22 or 23 September 1965 Miss June Cobb contacted the New Mexico State University through Tum Comdevitch of the Vision Magazine, trying to establish contact in New York with C.I. to pass along some information. If he chose not to establish contact with Miss Cobb at that time, even though she was cleared CIA agent in contact with the Mexico City Station.
+
+Recent Developments:
+
+2. Miss Cobb was terminated effective 1 July 1966 and was paid her salary through 30 June and given money for one-way air fare to New York City. She was completely satisfied with the financial terms of the settlement and signed a Termination Secrecy Oath. Although she was terminated for lack of access and production, there was also considerable newspaper publicity in May 1966 in the Mexico City newspapers wherein Subject was attacked because of her connection with an anti-Communist meeting, the Latin American Conference to Study the Situation of the Jewish Minority in the Soviet Union. In this publicity Subject was labeled as being closely connected with U. S. Government Police, and also as an agent of the FBI and INTERPOL. She was also accused of working for a newspapeeman Daniel Jones who was described as being responsible to CIA.
+
+3. Miss Cobb planned to return to New York in July where she was to look for a job. Subject had been told previously by the Mexico City Station that the telephone number of the New York CIA office is listed in the directory and she could call that office if contact were necessary while she was in the United States, but that she should only establish contact for an important or urgent matter. Since Miss Cobb tends to
+
+SECRET
+
+<table><tr><td>Subject: A New Mexico Telephone Call Requesting a Security Clearance</td></tr></table>
+
+201-278841

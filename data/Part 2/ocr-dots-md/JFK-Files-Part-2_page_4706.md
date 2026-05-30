@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_4706.png
+
+Convert to MarkdownSECRET
+
+way or another. And practically all of those had to be dismantled. The DDP,
+then Des Fitzgerald, just before he died as a matter of fact, came up with a
+term call "Surge Funding." S-U-R-G-E funding. And what we were able to do,
+all legal and all checked out with Katzenbach and the Attorney General and
+everybody else, was in order to ease the way for a lot of these activities
+that we were involved with, we gave them extra money, a pile of money kind of
+thing, you know you are on your own from now on. Here, get going. Start up.
+And so we really did a big dismantling job. And it was very, very painful.
+Not only for the people involved in the activities, and including the officers
+who were the case officers running the thing from inside, but it hurt the
+overall effort. And one of the things, for example, even Congress finally
+recognized the need and picked up the RFE and Radio Liberty -- or Radio Free
+Europe and Radio Liberty -- and is now run by the government instead of CIA
+funding it. It's still the same money from Congress, except they now call it
+something else and they have a broadcasting committee that oversees it. You
+know, no difference except it doesn't have those nasty letters -- CIA --
+involved.
+
+INTERVIEWER: Right.
+
+MR. HALPERN: So that's the running of it. And that used to be one of the biggest costs of our covert action operations. Those and the any paramilitary activity you get into. That's where the money goes.
+
+INTERVIEWER: Sure.
+
+MR. HALPERN: Intelligence operations don't cost much, propaganda operations don't cost much and so on. So it did have a tremendous impact, no question.
+
+'67 <u>Ramparts</u>.
+
+INTERVIEWER: And this was fairly new in Helms' term of office wasn't it?

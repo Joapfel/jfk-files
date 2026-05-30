@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_3219.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+mid-November 1959 were roughly $80,000 each for the operations in Costa Rica and Yucatan, plus an additional $12,000 for intrusion broadcasts which would originate within Cuba. 2/
+
+Before the end of November, the plans to utilize the Yucatan peninsula had been abandoned because it was feared that the President of Mexico would not give his approval for such an activity; and by the early part of December, President Figueres of Costa Rica had made it clear that he did not want the propaganda operation to be set up in Costa Rica. Consequently, there was considerable discussion about the possibility of getting permission from President Betancourt of Venezuela to agree to permit the broadcasts from his country. Some members of the Special Group also suggested the possibility that the anti-Castro broadcasts might be originated from other of the Latin American countries, a project which Mr. Dulles discouraged because of the lack of suitable broadcast facilities that would be available in countries outside of the immediate Caribbean area. Somewhere along the line C. Tracy Barnes, the ADDP/A and Mr. Bissell's right hand man, came up with the
+
+TOP SECRET

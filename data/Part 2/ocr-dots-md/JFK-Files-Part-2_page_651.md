@@ -1,0 +1,54 @@
+# JFK-Files-Part-2_page_651.png
+
+Convert to MarkdownMESSAGE FORM
+TOTAL COPIES:
+
+<table><tr><td>FILE A: D</td></tr><tr><td>INDEX</td></tr><tr><td>NO INDEX</td></tr><tr><td>FILE IN CC FILE NO.</td></tr></table>
+
+<table><thead><tr><th colspan="2">OUTING</th></tr></thead><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
+
+☐ DESTROY ☐ RETURN TO ________ BRANCH
+
+□ RID COPY
+
+INFO: VR , FILE .
+
+(ELITE) (HECA)
+
+(CLASSIFICATION)
+SECRET PAGE 2
+
+DATE AND TIME FILED
+
+(REFERENCE NUMBER)
+
+CITE DIRECTOR
+
+TO
+
+REPORTING SOURCES OR LOCAL LURING PERPETUATIONS. ALSO REQUEST COMMENT ON POSSIBILITY RECRUITING I-3 ON WETTING BASIS.
+
+2. BE POSSTBLE SALVADORAN CONTRACTS NEXT, AS FILES REFLECT THAT AGG-1 WAS TO HAVE MET WITH FOIL SALVADORANS DURING VISIT NEXT MAR 64:
+A. JORGE ARTAS GOLEZ. B. ROQUE DALTON GARZA. C. ALFREDO MONTANA GONZ. D. RAUE CASTELLAROS. NOTE ARTAS IDENTIFIED AS SERGIO PEBEZ, HEAD SALVADORAN DELIBERATION TRICON CONFERENCE JAN 65. ALSO NOTE THAT MAURICIO DE LA SELVA VERMEGAS REPORTED 64 BY AGG-1 AS SALV CP LINK IN LINE WITH THIS THERE.
+
+END OF MESSAGE
+
+WH Comment: Refufumes possible lead to Central American group authorized by TRICON committee to purchase arms and supply to LA revolutionaries.
+
+WH/C/C103 Tugatay (Copy)
+WH/C/FI Tugatay (Copy)
+
+WILLIAM V. EROE
+C/WED
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><tr><td>COPY 1<br/>For personal use only</td></tr></table>
+
+AUTHENTICATING OFFICE
+
+COPY NO.

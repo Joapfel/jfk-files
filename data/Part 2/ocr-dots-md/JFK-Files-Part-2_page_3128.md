@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_3128.png
+
+Convert to MarkdownTOP SECRET
+
+with the approval of the President's comprehensive
+program of covert action against Fidel Castro in
+March 1960. 105/
+
+The difficulties encountered with the Department
+of Defense concerning the assignment of Special Force
+trainers from the US Army to the Guatemalan training
+bases has already been spelled out in considerable
+detail in another volume, but even as the Department
+of Defense was taking a negative attitude toward the
+possible use of DOD personnel in either training or
+combat activities, the Agency was proposing the re-
+cruitment of either American or foreign volunteers
+to serve as combat troops for Project JMATE. The
+Bureau of American Republic Affairs of Department
+of State, however, put the quietus on the plan for
+obtaining foreign volunteers; but J. Foster Collins,
+the Chief of the Covert Action Staff, suggested to
+the Deputy Director for Plans that possibly he (the
+DDP) could convince Livingston Merchant of the need
+to re-examine the Department of State policy.*
+
+* The problem of the Special Force trainers is discussed in Volume II of this history, Participation in the Conduct of Foreign Policy.

@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_5754.png
+
+Convert to MarkdownRobert M. McNamara, Jr., Esq.
+
+July 15, 1998
+
+Collection by September 1998.
+
+* Non-duplicate documents within Kennedy assassination working files of CIA officer Russ Holmes (19 boxes).
+
+* Non-duplicate documents selected from 7 boxes of Latin American Division working files.
+
+* CIA organizational materials, including the JMWAVE organizational chart specifically designated as an assassination record by the Review Board [CIA-1].⁵
+
+* Excerpts of certain CIA histories designated by the Review Board [CIA-7].
+
+* Excerpts of CIA's "Family Jewels" memorandum [CIA-IR-08].⁶
+
+* Excerpts of a CIA personnel file that relate to organized crime/Cuba [CIA-IR-13].
+
+* Excerpts of the personnel file of Mr. George E. Joannides, the case officer responsible for the Directorio Revolucionario Estudiantil (DRE) during a period in the early 1960's [CIA-IR-21].
+
+* CIA "A" files for Clay Shaw and Jim Garrison [CIA-IR-22].
+
+* Designated Watch Committee Reports [CIA-IR-23].
+
+* Oswald-related documents from the a general defector file maintained by the CIA's Office of Security [CIA-IR-24].
+
+* Certain records from the files of former CIA Director John McCone as designated by the Review Board [CIA-IR-28].
+
+⁵ "CIA-1" reflects that these assassination-related materials were identified by the Review Board from among materials that CIA provided in response to a formal, written request (numbered 1) from the Review Board.
+
+⁶ "CIA-IR-08" reflects that these assassination-related materials were identified by the Review Board from among materials that CIA provided in response to an informal request (numbered 8) from the Review Board.

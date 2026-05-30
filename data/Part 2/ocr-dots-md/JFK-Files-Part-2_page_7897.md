@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_7897.png
+
+Convert to Markdown13-00000
+
+21 JUN 1976
+
+James H. Lesar, Esquire
+1231 Fourth Street, S.W.
+Washington, D.C. 20024
+
+Dear Mr. Lesar:
+
+This acknowledges receipt of your letter of 11 June 1976 on behalf of Mr. Harold Weisberg requesting, under provisions of the Freedom of Information Act, access to any CIA records dealing with Dr. Martin Luther King, Jr., and/or James Earl Ray and any of his alleged or suspected accomplices in Dr. King's assassination.
+
+I shall arrange for a search of CIA files and shall be in further communication with you once the search has been completed and any records found reviewed for releasability under the Act.
+
+As you may know, the heavy volume of Freedom of Information requests received by the Agency has resulted in processing backlogs. If we do not respond within the 10 working days stipulated by the Act, it is your right to construe this as a denial, subject to appeal to the CIA Information Review Committee. It would seem more reasonable, however, for us to continue processing your request and to respond as soon as feasible. Any denials of records could be appealed at that time. Unless we hear from you otherwise, we will assume that this is agreeable to you and proceed on this basis.
+
+For your information, I am enclosing a copy of our fee schedule. If the charges seem likely to be considerable, I shall provide you with an estimate and perhaps require a partial payment in advance of processing.
+
+Enclosure: as stated
+
+IPS/CES/cb/21 Jun 76 Distribution:
+Orig - Addressee
+1 - IPS Chrono
+1 ✓ IPS (F-76-382)

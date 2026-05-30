@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_6545.png
+
+Convert to Markdownfor training, and all other feasible developments of regional themes, such as intensive efforts to build up the counterinsurgency capabilities of the region. It is very necessary, in view of the general LA situation to continue all measures necessary to isolate Castro.
+
+Initial OAS action should be the enlargement of the bases for the invocation of the Rio Treaty. This broadening should be against the continued presence of Soviet troops (unless negotiations with the USSR indicate that this aspect should be deferred) and/or against Castro's continued subversive activity. Concomitantly, the recent study of the Special Consultative Committee on Security should be given wide publicity and the US should press for implementation of its recommendations.
+
+The OAS, in the near future, probably after publication of the results of the foregoing study and enlargement of the basis for invoking the Rio Treaty to include subversion, should again formally warn Cuba against promotion of any more subversive activities. The OAS should formally state that should Cuban subversive activities rise above some (unspecified) level, a "new condition" would exist which would justify decisive action against Cuba. All episodes of subversion or sabotage which could be attributed to Castro should be highly publicized. The majority OAS support should be organized to neutralize the Brazilian co-existence theme. Bilateral approaches and economic quid pro quos should be used to win Brazil to the U.S. view within OAS.
+
+Still later, at an appropriate time, the OAS should make an official finding, from its studies initiated earlier, that the Castro regime has continued, despite warnings, to conduct aggressive and subversive actions in Latin America. A summary publication of subversive activities or
+
+- 3
+
+SECRET
+
+COSTA RICA

@@ -1,0 +1,63 @@
+# JFK-Files-Part-2_page_3932.png
+
+Convert to Markdown# 'I want to find my children'
+
+Ex-Army spook who fingered Oswald claims Uncle Sam hides his family / by Thomas C. Lucey
+
+UNCLE SAM has given Richard Case Nagell three Purple Hearts — one earned on Christmas Day — and a medal for heroism in combat.
+
+But what this ex-Army counterspy and alleged CIA undercoverman wants is that Uncle keep a promise to locate his wife and two small children.
+
+The 38-year-old former officer hasn't seen them since 1963.
+
+Officials inside the Federal Government — most likely FBI and CIA agents — know where they are and deliberately isolated him from his family, the tall, lean chain-smoker claims.
+
+Nagell became separated from his Japanese-born wife Mitsuka Takahashi and their children, Teresa, now 9, and Robert, now 8, when he was arrested for robbing an El Paso, Tex., bank in September 1963.
+
+He staged the robbery and immediately surrendered to the police, Nagell claims, because he had refused to kill Kennedy-assassin Lee Harvey Oswald and
+
+was afraid he would be killed himself.
+
+The ex-Army captain was convicted of the crime and sent to Leavenworth, but Mrs. Nagell was never told where he was,
+
+Since then Nagell has been written about in national American magazines and has worked his way inside a political prison in Communist East Germany for the CIA.
+
+Two major magazines intimated that Nagell had been insane.
+
+New Orleans district attorney Jim Garison allegedly interviewed Nagell three times in his controversial probe of what he called the plot to kill Kennedy.
+
+However, despite all the publicity about Nagell, no public mention has been made of his charges that:
+
+► FBI special agents who questioned Mrs. Nagell about her husband while he was in prison said they didn't know where he was;
+
+► The CIA used the promise of reuniting Nagell with his family as part of the incentive for him to undertake a one-man
+
+CIA assignment inside East Germany.
+
+Nagell came to Europe in February 1969 on a hunch that the path to his family started in West Berlin. In Zurich he was almost killed, he says. In Barcelona, he was watched. And in West Berlin he was attacked in a side-street bar by two strangers — one of whom had been following him for two days — and hit on the top of his head so hard a molar cracked in half.
+
+Fearing that the next attacker might murder him and reassured that the Government would finally keep its promise this time, Nagell flew home to the United States.
+
+Now he's back where he started in 1963 — when he tipped off the FBI that Oswald was planning to assassinate President Kennedy.
+
+Working through a source with access to documents on the Nagell case, The FAMILY has been able to reconstruct this incredible story of the spy who couldn't come in from the cold.
+
+RICHARD CASE Nagell first went to work for the CIA as an informant in August 1962.
+
+"Some publications have identified him as a CIA agent," the FAMILY source said. "But Nagell never claimed to be a CIA agent. For the year that he worked off and on for the CIA the first time, he was never told what he was. But it was in the capacity of an investigator or informant."
+
+Nagell had a good background for investigative and undercover assignments.
+
+In the Army, he was a CIC captain who worked in field offices in the United States and with the then super hush-hush Field Operations Intelligence in Japan and Korea.
+
+He had made captain with a battlefield commission during the Korean War at the age of 22 — possibly the youngest man to earn that distinction. Nagell served two volunteer combat tours as an infantryman in Korea, signing up for the second as soon as he returned to the States from the first. It was in Korea that he won the Bronze Star and three Purple Hearts.
+
+Copyright 1969, Thomas C. Lucey. Reproduction in whole or in part strictly prohibited without the prior written permission of the author.
+
+During a subsequent tour in the Far East with the CIC and FOI, Nagell met and married his Japanese wife in the spring of 1959. Being married to a foreign national meant an automatic removal from intelligence work so Nagell decided to leave the Army.
+
+For two years he was a California state special investigator, working on fraud cases and liquor violations.
+
+In the summer of 1962 he left that job to work for the CIA. His last assignment was to penetrate the Fair Play for Cuba Committee, where he met Oswald. Nagell also briefly investigated Oswald's Russian-born wife Marisa.
+
+Nagell considered Oswald Intelligent, "but some right-wingers were using him by feeding his ego. They made him think he was a big man, important. Oswald himself was definitely a left-winger, leaning toward Mao or maybe even Castro.

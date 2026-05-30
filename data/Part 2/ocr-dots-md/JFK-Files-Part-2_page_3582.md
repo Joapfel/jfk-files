@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_3582.png
+
+Convert to MarkdownE. Czechoslovakia-Mali We have an intercepted message from the Malian ambassador in Prague reporting incidents between Czechs and Malians a week ago Sunday. There were, the ambassador notes, "only six wounded on the Malian side." (INTERCEPT)
+
+F. Japan Ikeda does not appear to be in any particular trouble in tomorrow's elections. The long-range trend toward the left in popular vote will probably be apparent, but Ikeda's Liberal Democratic Party should retain a safe majority in the next Diet. The leftists have tried to turn rising prices and last week's twin disasters into election ammunition, but without marked success.
+
+G. Indonesia Djakarta is trying to round up support for making Sukarno's little Olympics, the "Games of the New Emerging Forces," a permanent thing. In making a pitch along these lines to the Philippine ambassador, a high Indonesian official candidly admitted that Djakarta views this sort of athletic competition as a means of achieving political ends. (INTERCEPTS)
+
+H. Israel The Israeli foreign office says Ben Gurion is denying the Sulzberger account in last Saturday's New York Times of Ben Gurion's "hints" about experiments in "military atomics" at Dimona. Ambassador Barbour is not entirely convinced of this, however, and recalls Ben Gurion's oft-expressed opinion that it does no harm to let Nasir worry about Dimona.
+
+I. Brazil A new round of army promotions and shifts in command are due to be announced Monday. Anti-Goulart elements fear, probably with good reason, that their ranks will be further thinned. Congenital plotters on the far right are talking coup yet again.
+
+For The President Only - Top Secret

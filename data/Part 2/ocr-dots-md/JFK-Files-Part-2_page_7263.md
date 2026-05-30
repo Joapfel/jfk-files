@@ -1,0 +1,149 @@
+# JFK-Files-Part-2_page_7263.png
+
+Convert to Markdown13-00000
+
+<table>
+   <tr>
+    <td>CABLE SEC DISSEM BY</td>
+    <td>PER</td>
+    <td></td>
+    <td>TOTAL COPIES</td>
+    <td>6-8 N BY</td>
+   </tr>
+   <tr>
+    <td colspan="2">PERSON/UNIT NOTIFIED</td>
+    <td colspan="3">SECRET</td>
+   </tr>
+   <tr>
+    <td colspan="5">ADVANCE COPY ISSUED/SLOTTED CLARITY BY AT Z</td>
+   </tr>
+   <tr>
+    <td>ACTION UNIT</td>
+    <td rowspan="3">I<br/>N<br/>F<br/>O<br/>ACTION #</td>
+    <td>RE FILE VR</td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td></td>
+    <td>DDO</td>
+    <td>EYES ONLY</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>STAFF</td>
+    <td colspan="4">PRECEDING</td>
+   </tr>
+   <tr>
+    <td>1</td>
+    <td></td>
+    <td>4</td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>2</td>
+    <td></td>
+    <td>5</td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>3</td>
+    <td></td>
+    <td>6</td>
+    <td></td>
+    <td></td>
+   </tr>
+  </table>
+
+T 337339 EIA706
+
+IN 697014
+
+TOR:2523372 SEP 75
+
+BUEN 34503
+
+SECRET 252234Z SEP 75 STAFF
+
+CITE BUENOS AIRES 34503 SECTION 1 OF 2
+
+TO: IMMEDIATE DIRECTOR INFO MONTEVIDEO, BRASILIA, RIO DE JANEIRO.
+
+RYBAT PLVWCADET
+
+REF DIRECTOR 745626
+
+1. COS AND DCOS HELD TWO-HOUR DISCUSSION WITH AMBASSADOR WILLIAM TRUEHEART AND MR. DAVID AARON MORNING 25 SEP AND THEN ATTENDED LUNCHEON AT WHICH CHARGE D'AFFAIRES JOSEPH MONTLLOR, EMBASSY POLITICAL COUNSELOR WAYNE SMITH, AND FBI REP ROBERT SCHERRER ALSO PRESENT. EARLIER IN MORNING THE TWO VISITORS MET PRIVATELY WITH CHARGE MONTLLOR AND IN AFTERNOON TRUEHEART TALKED PRIVATELY WITH SMITH. (AARON BECAME ILL AND REMAINED IN HOTEL.) COS AND DCOS ALSO HAD DINNER ALONE WITH VISITORS EVENING 24 SEP.
+
+2. AARON CLEARLY IN CHARGE. (AT LUNCHEON TRUEHEART EXPLAINED THAT AARON IS HEAD OF THE COORDINATION AND CONTROL WORKING GROUP, ONE OF FOUR WORKING GROUPS OF CHURCH COMMITTEE, AND TRUEHEART IS SERVING AS CONSULTANT.) AARON ASKED MOST OF QUESTIONS. BY NATURE AND TONE OF SOME OF AARON'S QUESTIONS AND COMMENTS, WE SUSPECT THAT HE HAD PREFORMED NOTIONS WHICH ANTI-BKHERALD. (E.G., ATTITUDE TOWARD SOVIET PROGRAM DISCUSSED BELOW.)
+
+SECRET
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+26
+27
+28
+29
+30
+31
+32
+33
+34
+35
+36
+37
+38
+39
+40
+41
+42
+43
+44
+45
+46
+47
+48
+49
+50
+51
+52
+53
+54
+55
+56
+57
+58
+59
+60

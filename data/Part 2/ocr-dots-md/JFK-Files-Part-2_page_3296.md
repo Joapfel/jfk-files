@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_3296.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+Castro, but it was the heart's desire of
+many exile groups.* 8/
+
+In another instance, it appeared possible that an
+agent named Rivero, a Cuban exile, might have been in
+training to make an assassination attempt because it was
+reported that he
+
+was taken to the Warrington [sic], Virginia
+firing range where he was checked out in
+the use of the Special .38 Airweight semi-
+hammerless pistol; British Welrod pistol,
+single shot, a 9mm parabellum with silencer;
+carbine with folding stock; and a 7.65mm
+British Welrod with silencer. He is to be
+also checked out this week in the use of a
+sporting rifle with telescopic lens attach-
+ment.
+
+It was revealed subsequently that upon his reinfiltration
+into Havana, Rivero had two principal sabotage missions --
+one against the Esso refinery and the other aimed at the
+Havana Electric Company. 9/
+
+In mid-July 1960, there reportedly was an internal
+Cuban attempt on Castro's life, an attempt in which neither
+WH/4 nor the Mafia played a part. A cable from Santiago
+de Cuba reported:
+
+* Hunt alleged that when he asked Barnes about the status
+of his recommendation he was told that it was "in the hands
+of a special group." Jake Esterline and Jim Flannery
+(Executive Officer of the DDP at the time of the Bay of
+Pigs) both disclaimed knowledge of any memorandum prepared
+by Hunt. A search of WH/4 records failed to surface any
+such report.

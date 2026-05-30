@@ -1,0 +1,59 @@
+# JFK-Files-Part-2_page_2373.png
+
+Convert to Markdown14-00000
+
+<table>
+    <tbody>
+        <tr>
+            <td colspan="2">I, Hon. A.B. Conner, declare that all statements made in this application are true and correct.</td>
+        </tr>
+        <tr>
+            <td>Hon. Fletcher Tarren</td>
+            <td>Dept. of State<br/>Wash. State, D.C.</td>
+            <td>Ambassador-Diplomat</td>
+        </tr>
+        <tr>
+            <td>Dr. Gordon Chason</td>
+            <td>Bainbridge, Ga.</td>
+            <td>Physician-Surgeon</td>
+        </tr>
+    </tbody>
+</table>
+
+36. MENTION HERE ANY SPECIAL QUALIFICATIONS, OR ACHIEVEMENTS, NOT COVERED ELSEWHERE IN THIS APPLICATION. INCLUDE SUCH ITEMS AS: ANY BOOKS ON ARTICLES YOU HAVE WRITTEN, SPECIAL RESEARCH WORK, TECHNICAL SKILLS, HONORARY OR PROFESSIONAL SOCIETY MEMBERSHIPS, AND ANY OTHER INFORMATION YOU CONSIDER PERTINENT. YOU MAY INCLUDE ANY PERTINENT RELIGIOUS, CIVIC, WELFARE, OR ORGANIZATIONAL ACTIVITY WHICH YOU HAVE PERFORMED EITHER WITH OR WITHOUT COMPENSATION, SHOWING THE NUMBER OF HOURS PER WEEK AND NUMBER OF WEEKS PER YEAR IN WHICH YOU WERE ENGAGED IN SUCH ACTIVITY.
+
+Phi Kappa Phi (Nonorary Scholastic Fraternity)
+
+Blue Key National Honor Fraternity
+
+Phi Delta Phi (Legal Fraternity)
+
+Decatur County Bar Association, Bainbridge, Oa.
+
+Georgia Bar Association, Atlanta, Ga.
+
+American Bar Association
+
+37. USE THIS SPACE FOR COMPLETING ANSWERS TO ANY OF THE FOREGOING QUESTIONS, NUMBERING ANSWER TO CORRESPOND WITH QUESTIONS. USE EXTRA SHEETS OF PAPER IF NECESSARY.
+
+#23. Application No. 6843 for oral examination under the War Manpower Act, made in approximately February 1947.
+
+Presently under provisions of Civil Service Retirement Act.
+
+Draft Status None
+
+Reserve Status: None
+
+CERTIFICATION
+
+False Statement on this application is Cause for Dismissal,
+
+I DO SOLEMNLY AFFIRM THAT THE INFORMATION CONTAINED HEREIN IS CORRECT TO THE BEST OF MY KNOWLEDGE AND BELIEF.
+
+DATE
+
+Bíl
+
+NAME AS USUALLY WRIITEN AND WHICH BE USED AS OFFICIAL SIGNATURE
+
+OYO-SSO-4187

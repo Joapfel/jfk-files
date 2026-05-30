@@ -1,0 +1,172 @@
+# JFK-Files-Part-2_page_6436.png
+
+Convert to Markdown13-00000
+
+I. Operation SMASHER.
+
+1. **Objective:** Disrupt or disable military and commercial communications facilities in Cuba.
+
+2. Technical Requirements:
+
+a. Detailed information on both commercial and military communi-
+cations facilities and capabilities, to include inside and outside plant
+construction, system networks, equipment details (i.e. circuitry, tubes, etc.)
+location and type of repeater stations. This information is required to
+construct a refined device.
+
+b. A vacuum tube modified in such a manner as to cause a short circuit. This is possible by inducing silicon carbide (?) into the base of the tube. When the tube becomes hot the silicon carbide liquifies and becomes a conductor; when the tube cools the matter returns to a solid non-conductive state. Such a device (vacuum tube) is available.
+
+3. Targets:
+
+a. Cuban Telephone Company. The company provides local and long distance telephone service throughout Cuba and also international telephone service.
+
+b. Radio Corporation of Cuba Avenida Carlos. The company provides radiotelephone service to American and European countries. It also provides radiotelegraph service and includes leased teleprinter channels. In conjunction with AT&T the company inaugurated over-the-horizon microwave radio service between Cuba and Florida in 1957. This latter made available two-way TV channels.
+
+c. Cuban American Telephone and Telegraph Company. Founded by IT&T and AT&T, providing six (6) submarine cables linking Havana and Key West. Facility operates in conjunction with microwave link.
+
+d. Commercial Radio and Television Stations.
+
+e. Military Radio and Land-line Facilities. These include point-to-point command and administrative systems, air/ground facilities, navigational aids. Obviously certain commercial facilities provide service to the military therefore disrupting or disabling commercial facilities will affect military communications capabilities.
+Special Handling of this paper is requested.
+
+production of this document in whole or in part is prohibited except with permission of the issuing office.
+
+Access should be limited to individuals requiring the information herein in order to carry out their official duties.
+
+This document consists of 2 pages.
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+~~Copy # 2 / of 3~~ -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -
+UNCLASSIFIED
+
+Copy # 1 / of 3 -

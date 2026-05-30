@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_1288.png
+
+Convert to MarkdownSEC. 12. POSITION DATA
+
+A KIND OF POSITION APPLIED FOR
+Intelligence specialist, Far East,
+Planning, and/or research
+
+B. WHAT IS THE LOWEST ANNUAL ENTRANCE SALARY YOU WILL ACCEPT? $ 4600
+(You Will Not Be Considered For Any Position With A Lower Entrance Salary.)
+
+C. IF YOU ARE WILLING TO TRAVEL, SPECIFY: OCCASIONALLY ... occasionally
+FREQUENTLY ... CONSTANTLY ...
+
+D. CHECK IF YOU WILL ACCEPT APPOINTMENT, IF OFFERED: IN WASHINGTON, D.C. X
+ANYWHERE IN THE UNITED STATES X
+OUTSIDE THE UNITED STATES ...
+
+E. IF YOU WILL ACCEPT APPOINTMENT IN CERTAIN LOCATIONS ONLY, SPECIFY LOCATIONS:
+
+SEC. 13. EDUCATION
+
+ELEMENTARY SCHOOL Cameron ADDRESS Harrisburg, Pa. U.S.
+(City) (State) (Country)
+
+DATES ATTENDED 1928-1934 GRADUATE? yes...
+
+HIGH SCHOOL William Penn ADDRESS Harrisburg, Pa., U.S.
+(City) (State) (Country)
+
+DATES ATTENDED 1937-1940 GRADUATE? yes...
+
+COLLEGE Harvard ADDRESS Cambridge, Mass., U.S.
+(City) (State) (Country)
+
+MAJOR AND SPECIALTY his.civt.Ec. YEARS COMPLETED graduated
+American History
+DATES ATTENDED 1940-1943 DEGREE A.B. cum laude...
+
+COLLEGE Yale ADDRESS New Haven, Conn., U.S.
+(City) (State) (Country)
+
+MAJOR AND SPECIALTY Far East YEARS COMPLETED 1
+Japanese
+DATES ATTENDED 1943-1944 DEGREE certificate
+
+CHIEF UNDERGRADUATE COLLEGE SUBJECTS History,Government,Economics,
+
+CHIEF GRADUATE COLLEGE SUBJECTS Japanese,Political Science,His-
+tory,geography.
+
+15-04MM-1

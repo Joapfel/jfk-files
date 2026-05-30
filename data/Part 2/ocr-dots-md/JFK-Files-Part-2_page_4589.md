@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_4589.png
+
+Convert to Markdown# JMARC COUNTERINTELLIGENCE PLAN
+
+## I. MISSION
+
+To develop and/or maintain and extend, through agents and other covert means, intelligence coverage of the organization, personnel, target interests, modus operandi, operations and assets of the Cuban Intelligence and Security Services and the Cuban Communist Party; to similarly develop intelligence coverage of activities affecting the Caribbean area which are conducted by the U.S.S.R., by the U.A.R., and by the Chinese Communists or other pro-CASTRO officials and groups; to protect current and future CI, FI and CA operations through analysis of their operational plans and through examination of new operational proposals; and to coordinate designated CI matters with the CI Staff and with staff and geographic components of WH Division.
+
+## II. REFERENCE
+
+JMAFC OPERATIONAL PLAN
+
+## III. CONCEPT OF OPERATION
+
+It is essential that an aggressive counterintelligence program be devised and implemented to ensure sound operational security for JMAFC operations. The JMAFC counterintelligence effort will, therefore, be directed towards acquiring information concerning the organizations, personnel, target interests, modus operandi, operations and assets of foreign intelligence and security services active in the Caribbean area; towards analysing JMAFC operational proposals and steps in light of what is learned about opposition intelligence capabilities and activities; and towards containing inimical activities directed against JMAFC assets and operations.
+
+SECRET

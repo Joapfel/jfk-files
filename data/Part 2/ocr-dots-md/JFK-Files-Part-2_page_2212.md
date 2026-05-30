@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_2212.png
+
+Convert to Markdown# ATTACHMENT D
+
+The following information is provided in response to Item 7, Page 1 of Applicant's questionnaire and Affidavit:
+
+I am and have been since early 1907 living on a part time basis as an investor. I consider myself with all others at my residence, 3001 Ridgefield Road, B something like a charitable trust with offices in the public but not for profit service to be so to the trust is without condition, no

@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_7800.png
+
+Convert to Markdown1 July 1968
+
+MEMORANDUM FOR : The Record
+FROM : M. D. Stevens
+SUBJECT : KING, Coretta Scott
+#541 487
+AKA: Mrs. Martin Luther KING
+nee: Coretta SCOTT
+
+1. Subject, without question, is the Coretta SCOTT referred to in an FBI report on Alfreda ABELL, #355 109, dated 10/29/54, which indicates that on 7 September 1951 ABELL, the Subject of a "Security Matter-C" type investigation, communicated with C. SCOTT, Route 1, Box 158, Heiberger, Alabama, which address was identified as the residence of Coretta SCOTT. According to the postmaster at Heiberger, (in 1954?), Coretta SCOTT was then attending the New England Conservatory of Music. (See attachment A) Mrs. Coretta Scott KING is said to have attended this Conservatory and while there to have met her future husband. (See attachment B)
+
+2. Alfreda ABELL, who was a clerk in the UN Secretariat from 1947 until 6/30/52 when her employment was terminated for security reasons, was said in the *New York Times* on 2 January 1953 to be one of 25 former employees of the UN ousted as one believed to be a communist or under communist discipline. While employed in the UN, ABELL was reportedly active on behalf of the Pro-Communist group of the UN Staff Committee and was friendly with, and actively participated in giving a party in October 1951 to honor, four persons who had been dismissed by the UN for security reasons. (ie: Jeanne PICOU, identified as a member of the French Communist Party; Mary Jane KEENEY, a CP member active in the Communist Party underground during the late 30's-early 40's; Benedict Soloman ALPER, also reported to be a CP member; and Rajah HOWRANI, who was reportedly a Communist Party member and had received training in the Soviet Union. The individual said to be responsible for ABELL's employment in the UN, and to have been her supervisor there at one time, was Adam TARN, a Polish citizen said to be a Communist Party member. According to the FBI report on ABELL, she registered with the American Labor Party when voting in 1949 and 1952; subscribed to the National Guardian; and attended a W.E.B. DuBois testimonial dinner in February 1951, to which she took Helen KAGAN as her guest.
+
+<table><tr><td>GROUP I</td></tr><tr><td>Excluded from automatic downgrading and declassification</td></tr></table>
+
+-1-
+
+SECRET
+
+<table>
+   <tr>
+    <td>
+     Cg to Mr.R. OBER, 19.7.67
+    </td>
+   </tr>
+   <tr>
+    <td>
+     With Caveat not to be used who check copy S19
+    </td>
+   </tr>
+  </table>

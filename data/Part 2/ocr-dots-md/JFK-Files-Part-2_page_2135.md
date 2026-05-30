@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_2135.png
+
+Convert to Markdown# SECRET
+
+SUBJECT: Retirement Information
+
+e. If you were to return to the Civil Service Retirement System, you would be entitled to retire under the 55-30 optional provision at any time after you have been back in that system for a period of one year. The Civil Service Regulations state that to retire under the Civil Service Retirement System an employee must have been under that system for at least one year during the two years immediately preceding retirement under that System. Therefore if you should desire to return to the Civil Service System you should submit a request to Headquarters sufficiently in advance of your planned retirement in order to allow time for your request to be acted upon and for transfer to be made effective, as well as allowing for the aforementioned one year required by Civil Service Regulations. The following annuity estimate would be applicable in this situation as of 31 December 1968, assuming a deposit is made:
+
+Basic Annuity $15,755.00
+Reduced to Provide for $14,450.00
+Survivor Benefit $8,664.00
+
+2. The above information is being forwarded for your consideration and should not be considered as anything more. If you have any questions regarding the above please feel free to forward them to Headquarters.
+
+S: B. DePetitou
+
+B. DePolice
+Chief, Benefits and Services Division
+
+SECRET - this document was downloaded at 07:58 on 09/12/1968, with CC BY

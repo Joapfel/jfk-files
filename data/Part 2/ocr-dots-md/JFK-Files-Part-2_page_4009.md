@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_4009.png
+
+Convert to MarkdownAP 65-951
+
+two of his officers at a Japanese restaurant which they were
+checking in regard to well known Oriental gamblers. When
+the officers refused to answer NAGELL's questions, NAGELL
+displayed a card purporting to be an identification card of
+Counter-Intelligence. Nothing of value was obtained by
+NAGELL.
+
+October 29, 1959
+
+A review on October 17, 1963, of the military service records on file at the Military Personnel Records Center, St. Louis, Missouri, indicated that RICHARD CASE NAGELL, serial number 02 028 346, was honorably discharged from the United States Army as a Captain at Fort Dix, New Jersey, on October 29, 1959, by reason of unqualified resignation.
+
+After having enlisted in the United States Army on August 5, 1948, with serial number 12 115 891, NAGELL was honorably discharged on the first occasion on August 1, 1951, as a Sergeant at Fort Benning, Georgia, to accept a commission in the United States Army Officers' Reserve Corps. NAGELL was appointed and commissioned a Second Lieutenant on August 2, 1951, under serial number 02 028 346, and entered on active duty on the same date at Fort Benning, Georgia. While serving on active duty as an officer, he was appointed a Second Lieutenant in the United States Army Officers' Reserve Corps on November 14, 1952.
+
+The service records indicated that NAGELL served in the United Nations Summer-Fall Campaign in Korea, the Second Korean Winter Campaign in Korea, the Korean Summer-Fall Campaign in 1952, the Third Korean Winter Campaign in 1953, and the United States Summer-Fall Campaign in 1953. He was awarded the Korean Service Medal with one Silver Star, the National Defense Service Medal, the United Nations Service Medal, the Bronze Star Medal, the Purple Heart with two Oak Leaf Clusters, the Expert Infantry Badge, the Parachute Glider Badge, the Combat Infantryman's Badge, and the Republic of Korea Presidential Unit Citation.
+
+His character and efficiency ratings ranged from unknown to superior, and there is no record of courts-martial or absence without official leave.

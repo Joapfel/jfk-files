@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_1643.png
+
+Convert to MarkdownCONFIDENTIAL.
+
+PUBLISHED . . James S. WOODS
+
+1. Nature and Purpose of Work:
+
+My position is that of intelligence analyst in the Personality File section of the Records Integration Branch. I am responsible for the maintenance of agent records and personality files.
+
+2. Duties:
+
+a. To maintain all agent records. This takes a good percentage of my time as it includes the following:
+
+(1) Make all KOMI file checks on PRQ's and file check requests, writing up the results and forwarding them to the proper agencies.
+
+(2) Make sure that all PRQ's and file check requests have the correct classification, the proper number of copies for distribution, correct name and telecodes, and are forwarded to the proper case officer or foreign unit.
+
+(3) See that the results of KOMI file checks received from Headquarters and CHMI are properly carded and forwarded to the case officer concerned.
+
+(4) Keep all agent records up-to-date with regard to cryptograms, POC's, OC's and other additional information received.
+
+(5) Keep files on all terminated agents and see that the proper records are filled out and forwarded when they are terminated.
+
+b. To maintain the RI card index, assuring that all cards received in RI are properly filed and have the correct names and telecodes.
+
+c. To analyze, card and file all documents forwarded to Personality Files; these include State Station memos, KOR's, Contact Reports, CC&RI Reports, etc., various intelligence summaries, etc.
+
+3. Responsibility for the Work of Others:
+
+N/A
+
+4. Scope and Effect of Work:
+
+I am responsible for making all KOMI file checks. I must see that they are made out thoroughly, quickly and accurately. My check may decide the outcome of hiring or refusing to hire a prospective agent or other employees for an operation or project.
+
+5. Supervision and Guidance Received:
+
+I receive no direct supervision or guidance in matters relating to the maintenance of agent records. I receive overall policy guidance from the Chief of RI and some guidance from branch chiefs and case officers.
+
+CONFIDENTIAL...
+
+4-00000

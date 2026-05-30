@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_4671.png
+
+Convert to MarkdownSECRET
+
+possibly. But we were zeroing in what we called the hard targets and the
+intentions and plans more than anything else. And as that kind of a group we
+were all, "We came up the hard way" kind of thing. And we felt closer
+together as a result of that.
+
+INTERVIEWER: And did the Band of Brothers include everyone in the Agency or
+was it -- ?
+
+MR. HALPERN: No, it was just the Clandestine Services.
+
+INTERVIEWER: Just the Clandestine Services.
+
+MR. HALPERN: And as a matter of fact a lot of us in the Clandestine Services,
+I wasn't one of them, a lot of us felt that we should not be part of CIA. We
+should be separate. Totally separate and not be involved with anybody else.
+And that was one of the fights that went on for a long time between the DDI
+and the DDP in that most of the DDI people felt (and the top brass
+particularly felt) that the DDP should be an adjunct of the DDI, responding
+only to DDI requests for information and in effect be the DDI's library and
+research staff. You know, find out if the bridge is still standing between
+"x" and "y" in the middle of Uganda or something like that. And we felt
+differently. The DDI felt that they were the national intelligence analyst
+group and we felt that we were the national intelligence collector's group --
+human sources.
+
+INTERVIEWER: Sure.
+
+MR. HALPERN: And drew big arguments on that. Big fights. And DDI always
+felt that we (DDP) should disseminate intelligence that we collect only to the
+DDI. They would decide who else was going to get the information. We thought
+that was a farce. We were everybody's collector from the President on down
+and it was up to the President to tell us who else to give the information

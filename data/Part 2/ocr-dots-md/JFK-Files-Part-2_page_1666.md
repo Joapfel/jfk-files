@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_1666.png
+
+Convert to Markdown97-NO-APRQ FORM NO. 84
+
+# Office Memorandum • UNITED STATES GOVERNMENT
+
+TO File
+FROM :
+SUBJECT: James S. Woods
+
+DATE: 3 January 1952
+
+1. Contacted Treasury Dept. this date and Employee Relations Officer stated that subject had no efficiency ratings since he had not been there long enough before being granted military furlough and after his discharge. However, she stated that Mr. Woods had been a very satisfactory employee and there was nothing derogatory in his file.
+
+L. E. BLAIS

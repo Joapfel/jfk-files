@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_4498.png
+
+Convert to MarkdownAugust 19/61
+
+Frank Arias has given me the following information about Ernesto Despain:
+
+Captain(Lieutenant, known formerly as) Ernesto Despain, head of the Frente Intelligence Service at 120 14th Lane, Miami, with entrance in back of building at 15th Street, off Brickell Ave., worked for with Ceferino Alvarez(G-2, known as) in Government Insurance(Seguro Gobierno) and formerly in the now non-existent BANSECO (branch of National Bank of Cuba). Josefina Socarras worked with them also Seguro del Gobierno. I have written of Josefina before through findings of Frank, who knew them all in Cuba not Despain directly, only his family). This Captain Despain is an intimate friend of Ceferino and Josefina(planning to go to New York soon). She has been trying to get something started here, as reported before. It is strongly urged that this Josefina be surveilled constantly as I, as well as Frank, think that she is affiliated with Castro's clan activities here in the States. She received monthly checks from the Centro Refugiado/Captain Despain is planning on going to join the U. S. Army. He is definitely strongly suspected of giving everythig of Intelligence to Castro and is tied in with the Communist and CC groups here. He may even soon plan to disappear from the scene and should not be allowed to get off easily. He has been keeping Dr. Jose Julio Fernandez from organizing his anti-Castro and Anti-Communist files due to lack of funds(says Despain). It seems that this was just an excuse before and was done to keep the ball functioning as should be. I think that this Dr. Jose Julio Fernandez is very sincere and is innocently giving everything into the hands of Despain without knowing. How Despain got into this position is not known by us yet.
+
+As far as we are concerned he is a Castro penetration into the Frente and U. S. activities.
+
+The above is the result of being sent to see Dr. Jose Julio Fernandez head of Intelligence Service of the Frente (as told us by Former Cuban Grl. Socallanes, friend of Frank). I went with Frank to try to find out about a woman whose son(one of two of them) had taken data and pictures for Castro of all military and naval installations in the State of Florida. cautions me against referring to me as anything special, which he

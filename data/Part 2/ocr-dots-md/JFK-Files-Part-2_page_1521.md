@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_1521.png
+
+Convert to MarkdownSECRET
+
+3. Travel to your post of duty overseas and your return travel to the United States, as well as travel performed overseas which is consistent with your cover designation, will normally be at the direction of your cover facility. Such travel will be accomplished in conformance with applicable regulations of your cover facility except when you are directed for operational reasons to perform travel in accordance with the regulations of this organization.
+
+4. Salary and (except as provided in paragraph three (3) above) allowances paid by your cover facility shall be retained by you to the extent that they are less than or equal to the salary and allowance payments due on the basis of your grade level with this organization. If such cover payments are less than the amount due, the difference will be credited to your payroll account with this organization. If such cover payments exceed the amount due, the overage will be remitted to this organization at designated intervals, presently (months if applicable). Computations hereunder will be made on the basis of the aggregate gross due and received provided, however, that in computing remittances for average Federal and, if applicable, District of Columbia income taxes withheld by your cover facility against the overage may be deducted. To assure timely accuracy in your payroll account with this organization you are expected to immediately report cover facility payroll changes.
+
+5. Your status as an employee of this organization will continue in full force and effect during your period of duty with your cover facility and you will continue to be entitled to all rights, benefits and emoluments of such status. Certain variations in procedure will be required, however, to preserve the security of your cover position.
+
+a. Upon integration into your cover facility, you will continue to be covered by the provisions of the Civil Service Retirement Act, as amended, and at your personal expense you will be subject to payroll deductions for retirement purposes (now six and one-half percent) on the basis of your cover salary or your salary from this organization, whichever is the greater.
+
+b. If you receive taxable income from both your cover facility and this organization, necessary adjustments for Federal, and if applicable, District of Columbia income tax purposes will be made in conformance with instructions received from this organization.
+
+c. Consistent with your cover activity, you will continue to be responsible for compliance with the rules and regulations of this organization.
+
+d. You are not assured upon the completion of your period of duty with your cover facility of any status with your cover based on your services performed with that organization at the request of this organization.

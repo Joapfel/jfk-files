@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_8490.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+e. Item 256, page 329: This item is still classified "SECRET" under E.O. 11652, Section 5 (B)(1) and (2).
+
+2. Any questions regarding this memorandum should be directed to Alyson Ward, SIA/I, extension 1602.
+
+Robert D. Wiecha
+
+SECRET

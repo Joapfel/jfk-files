@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_6246.png
+
+Convert to Markdown1. The Company concerned is [Prager Publishing]
+
+2. A memo by [Summar W. Beckman] "CA/PROP" dated 8/21/64 deals with the publication and royalty problems of [Milovan Djilasi's] books.
+
+3. A behind memo dated 2/11/64 deals at the status of negotiations with [Drapier], author of [Castro's Culbar]. The Agreement wants Heis unscrambling to update the book but is open to the possibility of doing another volume. He has introduced the author of the memo to two other Culbars who were writing books: Justo Camillo Hernandez and Ernesto Betancourt.
+
+4. [Susan Watkins says ZRBLESS was subproject of [WILBONSON].]

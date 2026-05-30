@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_7109.png
+
+Convert to Markdown-SECRET-
+
+NO FOREIGN DISSEM
+
+A French-language transmission is aimed at the educated class and a broadcast in Creole is beamed to the masses. The speaker has been identified as Rene Depestre, a top-ranking Haitian Communist exile in Cuba. The content of Depestre's broadcasts is consistently pro-Cuban and anti-Duvalier. Some Haitians may have received guerrilla training in Cuba, but we have no firm evidence that any such trainees have returned to Haiti. The long-time presence of many hundreds of Haitian nationals in eastern Cuba provides Castro with material for sizable infiltrations into Haiti if he should so desire.
+
+Twenty-three Haitians traveled to Cuba in 1965:
+
+## 13. Honduras
+
+Much of the pro-Castro activity in Honduras appears to be directed toward support of similar activities in neighboring Nicaragua and Guatemala. The country's rugged terrain, the absence of an effective internal security force, and the presence of long-established routes for smuggling into neighboring countries make Honduras well suited for such a role.
+
+Two recent clandestine sources report the Cuban government is dissatisfied with efforts of the Honduran Communist Party to establish an effective guerrilla movement. Cuban leaders are said to favor the establishment of a new organization with no direct ties to orthodox Communist groups. The Cubans are said to have selected Mario Sosa to organize the new movement, and to begin making contacts with "liberal" leaders to investigate their readiness for armed action against Honduras' military government.
+
+Hondrians traveled to Cuba in 1965:
+
+-10-
+
+NO FOREIGN DISSEM
+
+-SECRET-

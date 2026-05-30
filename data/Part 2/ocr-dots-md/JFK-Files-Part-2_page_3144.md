@@ -1,0 +1,54 @@
+# JFK-Files-Part-2_page_3144.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+one could have found a better man. People
+have said ... "Well, the son of a bitch
+just worked out in the Philippines as a
+stay behind ... what did he know?" He
+knew a lot. He had written a book on
+guerrillas. He was sharp, he was smart,
+and honest, and not overly ambitious. I
+am sure that he saw this as a way to further
+his career, of course. Military men, I
+think, tend to maximize that more than
+Agency people. But that was not his
+motivation -- or his primary motivation.
+He had around him some really first rate
+help ... not very high ranking ... but
+we didn't need an awful lot of high ranking
+... we needed some hard workers. Frank
+Egan, who went down to do the training,
+was the man that I would have picked. He
+was probably the most disputable of the
+bunch because he was pretty volatile. He
+has been condemned for leading the Cuban
+manpower to believe that they were going
+to get more support than he had any right
+to let them know about. Well, I wasn't
+there, but I know damned well that if I
+had been, I would have been priming up
+the Brigade to do this tough job, not by
+counseling them as to the difficulty of
+it ... at least, exclusively ... or, giving
+them lectures about now you will really
+have to do this on your own, because you
+are not going to get one iota of assistance
+from the armed forces. You don't normally
+train a group to conduct an operation of
+this sort by playing on their fears. If,
+down there at the end of the line -- first
+in Guatemala and then in Nicaragua -- Egan
+led them to believe that they were going
+to get them more help than he had any right
+to let them know, well, I can understand
+why that would have happened.* 122/
+
+* With reference to Colonel Hawkins, Jake Esterline
+has noted:
+
+(footnote continued on following page)
+
+TOP SECRET

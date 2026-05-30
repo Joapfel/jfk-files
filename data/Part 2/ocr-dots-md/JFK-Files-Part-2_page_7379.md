@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_7379.png
+
+Convert to Markdown13-00000
+
+CONFIDENTIAL
+
+for the Committee's classified material, and all research and review activities of the material should be restricted to this area.
+
+8. In those instances where the Committee meets in Executive session, every effort should be made to insure that the site being used has been subjected to a technical security inspection to negate the possibility of unauthorized transmitting or recording devices. This area of concern could pose serious security deficiencies in the event the same area would be used initially in public session and then closed for the Executive session without such an inspection being made.
+
+9. Adequate safeguards should be utilized in the transmission of classified material under the cognizance of the Committee from one area to another.
+
+10. Reproduction of any portion of the Committee's classified material should be prohibited without the express approval of the Staff Director. In this instance, notes, extracts, summaries, etc., made from classified material must also be provided the same degree of protection as that provided to the source material.
+
+11. Access controls to the storage and retention area should be established to insure that only authorized personnel are allowed entrance.
+
+12. Storage of all classified material should be within the designated area as opposed to any areas or outside offices.
+
+13. Security protection should be provided to all Committee transcripts during the transcription process as well as during the periods while they are in transit.
+
+14. A security check procedure should be established to inspect the areas where the Committee meets at the termination of each session to insure that no classified material
+
+2
+
+CONFIDENTIAL!

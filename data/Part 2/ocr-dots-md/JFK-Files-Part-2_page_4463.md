@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_4463.png
+
+Convert to Markdownup for the development of collection assets. The disseminations by
+the (N.S.A) also serve as an effective means of checking selected
+information and activity that has been provided by other sources of
+information. The (NSA) also collaborates in the dissemination of
+certain information with the CIA (communication facility) in Miami, an
+Agency unit engaged in the electronic interception and processing of
+Cuban (Internal Communications).
+
+Liaison with the aforementioned U.S. government agencies is maintained on a continuing and regular basis both at the Headquarters level in Washington, D.C. and at appropriate field installations by designated Agency components. It has been our pleasurable experience that these agencies, in addition to others such as the Department of Agriculture where specific operations required guidance in their particular fields of competence, have provided timely, effective, and professional support and guidance, in support of policy approved intelligence collection operations as required in the national interest. Without such support, the task of intelligence collection would have been in many instances much more difficult and, in many cases, impossible

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_3680.png
+
+Convert to Markdownsubmachine guns identified as among
+those shipped to Cuba from Belgium
+in 1959 and 1960. There were also
+mortars, bazookas, recoilless rifles,
+and ammunition of US manufacture.
+
+c. Communist documents seized by Venezuelan authorities earlier this month reveal that the equipment was destined for the Venezuelan Communists' paramilitary arm, the Armed Forces of National Liberation (FALN).
+
+d. The cache was found on 1 November on a beach in Falcon State in the north, scene of the most active guerrilla effort. The Venezuelan government assumes that the weapons were sent from Cuba by sea.
+
+e. Caracas will lay formal charges concerning the arms cache before a special meeting of Latin America Foreign Ministers scheduled for December. After that it will ask that the Council of the Organization of American States be convoked for consultation on the matter.

@@ -1,0 +1,104 @@
+# JFK-Files-Part-2_page_8294.png
+
+Convert to Markdown13-00000
+
+# DAILY
+### THE INTERNATIONAL NEWSPAPER OF MOTION PICTURES
+*Established May 8, 1918*
+
+TUESDAY, MARCH 24, 1964
+
+TEN CENTS
+
+## PORT THROWS OUT PAY-TV SUIT
+
+Theatre take larger share of income for 1963
+Exhibits Win First Round in Calif.; STV Plans Moves
+
+By WILLIAM ORNSTEIN
+West Coast Editor of THE FILM DAILY
+
+West Coast Editor of THE FILM DAILY
+
+AUGUST - SEPTEMBER
+HOLLYWOOD — Subscription TV lost the first round of a four-round bout in the California arena with the Crusade for Free TV. The initial round dropped to theatre owners was dismissal by U.S. District Court Judge William C. Mathis of the $117,541,500 anti-trust and conspiracy suit filed last Dec. 17 against the Crusade and 20 defendants, including theatre com-
+
+(Continued on Page 5)
+
+JACOBELIS CASE UP TO HIGH COURT AGAIN
+'TGreatest' Campaign Focus on Pictorial
+
+By WILLIAM ORNSTEIN
+West Coast Editor of THE FILM DAILY
+
+AUGUST - SEPTEMBER
+
+HOLLYWOOD — Subscription TV lost the first round of a four-round bout in the California arena with the Crusade for Free TV. The initial round dropped to theatre owners was dismissal by U.S. District Court Judge William C. Mathis of the $117,541,500 antitrust and conspiracy suit filed last Dec. 17 against the Crusade and 20 defendants, including theatre com-
+
+(Continued on Page 2)
+
+THE GREATEST STORY EVER TOLD
+EXHIBITS WIN FIRST ROUND IN CALIFORNIA’S S TV PLANS MOVES
+
+By WILLIAM ORNSTEIN
+West Coast Editor of THE FILM DAILY
+
+JACOBELLIS CASE UP TO HIGH COURT AGAIN
+'S greatest' campaign focus on Pictorial
+
+BY THE GREATEST SINGLE SOURCE FOR INFORMATION ON ALL STAR FILMS
+
+By WILLIAM ORNSTEIN
+West Coast Editor of THE FILM DAILY
+
+JACOBI - PT, NEW YORK
+
+MANDEL
+GOAL GOAL appeal
+
+BOSTON — Bobbitt, film box office receipts and attendance for January, 1964, were up over January, 1963, statistics of the Board of Trade here reveal.
+
+Weekly average theatre take in January, 1964, was £1.24 million compared to £1.08 million. Weekly attendance for January, 1964 was 7.9 million compared to 7.6 million in the same month last year. (The pound is at $2.82).
+
+GOAL GOAL appeal
+
+REPUBLIC
+BY THE GREATEST SINGLE SOURCE FOR INFORMATION ON ALL STAR FILMS
+
+BY THE GREATEST SINGLE SOURCE FOR INFORMATION ON ALL STAR FILMS
+
+By THE GREATEST PUBLICITY AND EXPLOITATION, SAID YESTERDAY "The Greatest Story" PROMOTION
+
+By B. S. SUMNER, UA national director of advertising, publicity and exploitation, said yesterday "The Greatest Story" promotion promises to be "the most exten-
+
+(C)ontinued on Page 4
+
+By B. S. SUMNER, UA national director of advertising, publicity and exploitation, said yesterday "The Greatest Story" promotion promises to be "the most exten-
+
+(C)ontinued on Page 4
+
+By THE GREATEST PUBLICITY AND EXPLOITATION, SAID YESTERDAY "The Greatest Story" PROMOTION
+
+(C)ontinued on Page 4
+
+By THE GREATEST PUBLICITY AND EXPLOITATION, SAID YESTERDAY "THE GREATEST STORY"
+
+(C)ontinued on Page 4
+
+By THE GREATEST PUBLICITY AND EXPLOITATION, SAID YESTERDAY "THE GREATEST STORY" PROMOTION
+
+(C)ontinued on Page 4
+
+By THE GREATEST PUBLICITY AND EXPLOITATION, SAID YESTERDAY "THE GREATEST STORY" PROMOTION
+
+(C)ontinued on Page 4
+
+By THE GREATEST PUBLICITY AND EXPLOITATION, SAID YESTERDAY "THE GREATEST STORY" PROMOTION
+
+(C)ontinued on Page 4
+
+By THE GREATEST PUBLICITY AND EXPLOITATION, SAID YESTERDAY "THE GREATEST STORY" PROMOTION
+
+(C)ontinued on Page 4
+
+By THE GREATEST PUBLICITY AND EXPLOITATION, SAID YESTERDAY "THE GREATEST STORY"

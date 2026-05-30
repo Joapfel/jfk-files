@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_4199.png
+
+Convert to Markdown29 November 1963
+
+Late developments on the Mexico City investigation of
+Oswald's activities
+
+1. Results of the first interrogation of Silvia Duran have been received. Reveals nothing other than confirmation of Oswald's effort to secure authority to enter USSR via Havana. His requests were refused.
+
+2. Result of second interrogation of Silvia Duran has not as yet been received.
+
+3. FBI dispatched a man from Washington to Mexico City at the request of Ambassador Mann.
+
+4. The Nicaraguan, Alvarado, has been turned over to the Mexican authorities for questioning, by the CIA station at the specific request of the FBI.
+
+NOTE: CIA Headquarters refused this turn-over until FBI request received because FBLis in control of the investigation.
+
+5. Alvarado's story becoming increasingly questionable because of a public statement carried by Mexico City radio and press prior to Alvarado's entering the picture, to the effect that Oswald had received $5,000 from the Cuban Embassy.
+
+To be used by DCI in meeting with the President at 10:30 on 29 November 1963 with Secty. McNamara and Bundy.

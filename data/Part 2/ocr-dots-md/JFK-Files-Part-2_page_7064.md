@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_7064.png
+
+Convert to Markdownclashed with the CIA's strong evidence in support of postponement. Initially, the Board was inclined to release Scelso's true name, but the Agency argued convincingly against release. CIA provided evidence on the current status of the individual, shared correspondence sent by him, and even arranged an interview between him and a Review Board staff member. As an interim step, the Review Board inserted his prior alias "Scelso" as substitute language. (See illustration.) Then, at its May 1996 meeting, Board members determined to release "Scelso's" true name in five years or upon his death.
+
+c. *Information that identifies CIA officers.*
+
+i. *Review Board guidelines.* For specific information that, if released, would reveal the identity of an individual CIA officer that the Board had voted to protect, the Review Board protected the information.
+
+ii. *Commentary.* Whenever the Review Board voted to protect the identity of an individual throughout federal agency assassination records, it had to be realistic enough to realize that some information about individuals is so specific that release of the information would reveal the individual's identity. Examples of specific identifying information include home addresses, birth dates, job titles, names of family members, and other less obvious, but equally revealing pieces of information.
+
+d. *Names of National Security Agency employees.*
+
+i. *Review Board guidelines.* The Review Board protected the names of all National Security Agency employees that it encountered. The Review Board would have considered releasing names of National Security Agency employees if it determined that a particular name was extremely relevant to the assassination.
+
+ii. *Commentary.* Due to the nature of NSA information, few NSA employee names appeared in NSA's assassination records. Even though the Review Board did not often encounter NSA employee names, it did have to vote on those names that it did confront. NSA's policy of not releasing the names of its employees conflicted with section 6(1)(A) of the JFK Act that presumed release of such information unless NSA could prove that individual NSA employee names required protection. NSA argued that the release of any names, other than those of publicly acknowledged senior officials, jeopardized the potential security of U.S. cryptographic systems and those individuals. As it did with the names of other intelligence agents and officers, the Review Board considered the names of NSA officers on a document-by-document basis. Given the nature of NSA information, the Review Board members agreed that none of the few names which appear in the documents, and for which NSA requested protection, was of high enough public interest or central to an understanding of the assassination story. Thus, it protected the names.
+
+3. Intelligence Sources and Methods, and Other Matters Relating to the National Security of the United States
+
+*Text of Section 6(1)(B) and (C)*

@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_6693.png
+
+Convert to MarkdownCONFIDENTIAL
+
+06 December 1993
+
+MEMORANDUM FOR: Phil Boycan Services Team Leader
+
+FROM: William Marshall Services Team
+
+SUBJECT: Transfer of POINTER and related files
+
+REFERENCE:
+Memorandum, dated 23 November 1993 from Leonard Kaplan (C/IRT) to Jim Archibald (OGC)
+
+Memorandum, dated 23 November 1993, from Jim Archibald (OGC) to Leonard Kaplan (C/IRT)
+
+1. On 30 November 1993, Investigations and Services Branch (I&SB) received a copy of an Office of General Counsel (OGC) memorandum, dated 23 November 1993, wherein Jim Archibald advised that it would be prudent for I&SB to transfer the below list of files to the Information Review Team (IRT).
+
+2. In accordance with this memorandum, I&SB (3S04 Stafford) transferred the below list of files, on 06 December 1993, to Leonard Kaplan (C/IRT) via Barbara Deavers (G20 Stafford).
+
+3. Therefore, as of 06 December 1993, I&SB considers itself absolved of the responsibility as custodian of the files. Conversely, as of 06 December, IRT assumes the responsibility as custodian of the files.
+
+FILES TRANSFERRED FROM OS/I&SB TO OS/IRT:
+
+1. HT LINGUAL (BANJO) 0119144
+2. WESTPOINTER 0583870
+3. SR POINTER No case number visible
+4. DAVID G. ELLIS FILE No case number visible
+5. PROJECT INDIAN No case number visible
+(Continued on next page)
+
+WARNING NOTICE
+INTELLIGENCE SOURCES
+OR METHODS INVOLVED
+
+CL BY 0701140
+DECL OADR
+DERV FRM COV 1-82
+
+CONFIDENTIAL

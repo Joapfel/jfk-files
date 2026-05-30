@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_7013.png
+
+Convert to Markdown- Options available: substitute language e.g., "Northern European station"
+
+- Also, summary of a record
+
+- Board has access to every document in full
+
+6. Issues raised by Board's decisions:
+
+- Problem: Board has difficulty in linking disclosure of information that is 30 years old with damage to current intelligence operations
+
+- Identification of stations e.g., (Helsinki) window
+  (Jan 1961 - Sept 1964)
+  exceptions
+
+- Names of former Agency employees who retired under cover
+
+- Board guidelines: Protect person if retired under cover and now residing overseas, but not if in US (1 year to provide additional evidence)
+
+- Liaison, joint operations in Mexico
+
+- Briefing of the Board by (Dave Edger), Jeff Smith, Central Cover, DO desk officers, others
+
+- Problem of accumulative effect of releases--eroding cover, ability to conduct operations
+
+7. Provision for appeal to the White House if we disagree with Board's determination
+
+- President has sole authority to require postponement of a record or information
+
+--President required to advise the Board within 30 days of the Board's determination
+
+-- This is published in the Federal Register
+
+8. Current appeal (now resolved)
+
+- Issues: identification of Agency asset liaison relationship
+identification of station
+
+> document examples
+
+- Potential appeal: Tokyo station
+
+9. Additional requests of Board to review other records e.g., history of Mexico City station, Intelligence Community Staff records
+
+Notes:
+* Board does not accept "prine.plb" as justification for postponement - requires evidence
+* Even if agreement to perfect (lieutenant max) disagreement over specific / such language attached
+* precedent set by JFK -> re FOIA edg.

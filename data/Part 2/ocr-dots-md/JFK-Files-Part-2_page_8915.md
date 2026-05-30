@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_8915.png
+
+Convert to Markdown# Top Secret
+
+(Annex A)
+
+10 February 1964 (continued)
+
+According to a sensitive source
+
+NOSENKO was affiliated with the KGB for approximately sixteen years, since about 1947, and was an employee of the Second Chief Directorate in Moscow. His father, now dead, was a Deputy to the Prime Minister of the Soviet Union and also Minister of the Shipbuilding Industry.
+
+There is a shipyard named after NOSENKO's father in the Ukraine.
+
+Comment: NOSENKO claims to have served in the GRU until 1953, when he entered the KGB.
+
+According to a sensitive source,
+
+several KGB
+It appeared quite certain to
+officers that NOSENKO had the rank of lieutenant colonel in the KGB.
+
+Comment: NOSENKO was at the time claiming to have been a KGB lieutenant colonel.
+
+According to a sensitive source,
+from KGB officers
+
+The photograph which appeared in U.S. newspapers is not that of NOSENKO. One KGB officer worked with NOSENKO for several years in KGB Headquarters; he described NOSENKO as a person who likes to be fashionably dressed at all times and is fond of women, by nature a friendly individual and generally well-liked by his fellow workers. NOSENKO worked in the Second Chief Directorate.

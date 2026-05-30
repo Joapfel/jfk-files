@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_3425.png
+
+Convert to MarkdownNATIONAL PHOTOGRAPHIC INTERPRETATION CENTER
+
+Revised: 16 August 1963
+
+<table><tr><td>HR 1, fig. 16</td></tr></table>
+
+ORGANIZATION
+
+<table><tbody><tr><td>CIA/NPIC DET</td></tr><tr><td>DIA/NPIC DLE</td></tr><tr><td>ASSISTANT FOR ADMINISTRATION<br/>ADMINISTRATIVE STAFF</td></tr><tr><td>ASSISTANT FOR OPERATIONS<br/>OPERATIONS STAFF</td></tr><tr><td>ASSISTANT FOR PHOTOGRAPHIC ANALYSIS<br/>PHOTOGRAPHIC ANALYSIS GROUP</td></tr><tr><td>ASSISTANT FOR PLANS AND DEVELOPMENT<br/>PLANS AND DEVELOPMENT STAFF</td></tr><tr><td>TECHNICAL INTELLIGENCE DIVISION</td></tr><tr><td>PUBLICATIONS DIVISION</td></tr><tr><td>COLLATERAL SUPPORT DIVISION</td></tr><tr><td>PRODUCTION SERVICES DIVISION</td></tr></tbody></table>
+
+<table><tr><td>18305 & 63</td></tr></table>

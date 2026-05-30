@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_3515.png
+
+Convert to Markdown13-00000
+
+TOP SECRET DINAR
+
+FIDEL CASTRO'S SPEECH - cont'd
+
+"Things have changed quite a bit," Castro declared, "to attack or to blockade Cuba now would not be easy; we can defend ourselves; we are calm; we know what we have to defend ourselves with." Then, in an implied reference to the Soviet shipment of strategic missiles to Cuba last year, Castro declared: "When we hear some of these lackeys of imperialism talking so calmly about invading Cuba, when it has been only one year since the October crisis, they are once more proving us right and are once more justifying Cuba's taking defensive measures; this talk led to the October crisis." Castro then declared that "these men are so deceived by their own propaganda that...they cannot conceive of what any invader would meet here." A war against Cuba, he said, "would not end while there was a single mercenary soldier treading on our soil."
+
+Castro then returned briefly to his views as to how peace can be assured in the Caribbean. "Whatever they want to discuss with Cuba," he said, "let them come and discuss honestly with Cuba; because we have stated the indispensable prerequisites for a peaceful atmosphere...in the Caribbean." Thus far, however, "they have answered with aggressions on top of aggressions." This course, he said, "is doomed to failure." (CIA FBIS Havana, 7 December, OFFICIAL USE ONLY)
+
+## CUBAN INTERNAL SITUATION:
+
+A shake-up in the Cuban cabinet has moved Faure Chomon Mediavilla to the post of transportation minister; he succeeds Capt. Omar Fernandez, whose ministry was recently under attack by Castro for alleged inefficiencies and "vices." Major Jesus Montane Oropesa is replacing Chomon as communications minister.
+
+Chomon, who served as Castro's first ambassador to the Soviet Union, took over as communications minister in March 1962. He is currently a member of the National Directorate of PURS. Fernandez, his predecessor, is reportedly moving to an unspecified position in the Ministry of Industries under Che Guevara.
+
+Montane took part in the attack on the Moncada Barracks in 1953 and followed Castro to exile in Mexico. He took part in the GRANMA expedition of 1956 when he was captured and imprisoned. After the revolution, he reportedly received only a minor post in the government because he had talked too much in prison. His most recent post, dating from at least August 1962, has been as number two man in the Tourism Institute (INIT). He is said to be an ardent Marxist-Leninist, who preaches it at every opportunity. (UPI 63, 6 December, UNCLASSIFIED; background information: SECRET)

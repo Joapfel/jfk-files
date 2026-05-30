@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_8520.png
+
+Convert to MarkdownTHE VIETNAM-CAMBODIA EMERGENCY, 1975
+Part IV—Cambodia Evacuation: Testimony of Ambassador John Gunther Dean
+
+HEARING
+
+BEFORE THE
+
+SPECIAL SUBCOMMITTEE ON INVESTIGATIONS
+
+OF THE
+
+COMMITTEE ON
+
+INTERNATIONAL RELATIONS
+
+HOUSE OF REPRESENTATIVES
+
+NINETY-FOURTH CONGRESS
+
+SECOND SESSION
+
+MAY 5, 1976
+
+Printed for the use of the Committee on International Relations
+
+U.S. GOVERNMENT PRINTING OFFICE
+
+WASHINGTON : 1976
+
+75-094
+
+13-00000

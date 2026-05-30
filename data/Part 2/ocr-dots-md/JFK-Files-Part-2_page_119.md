@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_119.png
+
+Convert to MarkdownSECRET
+
+8 November 1967
+
+MEMORANDUM TO: CI/OA
+FROM : DO/I
+SUBJECT : LICOOXY 1 (201-278841)
+REFERENCE : Form 889 dated 27 October 1967
+
+1. The following summaries indicate no derogatory information on Subject.
+
+2. New York report dated 12/29/59 captioned "June COBB - Registration Act-Cuba" furnished CIA 1/8/60. This report stated that June Cobb translated manuscripts as part of her job for Fidel Castro with the idea of familiarizing the American people with Castro's writing. June Cobb believes Castro is doing a tremendous job in reconstructing the economy of Cuba. However, she stated that in her opinion it is unthinkable that Communism would ever be embraced by Castro or the people of Cuba. There seems to be no particular significance to this report as this information was previously known by the Agency.
+
+3. Letter to Director, FBI, from CIA dated 11/7/60. captioned "June COBB - Internal Security - Cuba". Bernie Brennan asked June Cobb to deliver some information to Juan Orta who stated that Brennan was not needed anymore. Cobb thought Brennan might have been attempting to obtain a position with the Cuban Tourist Commission. The Agency has no further interest in Brennan. Therefore, there is no significance attached to the report.
+
+4. Washington report dated 4/26/62 captioned "Lyle Stuart - IS - Cuba; SM-C; RA-Cuba", furnished to CIA 5/4/62 was merely interview with Stuart. There is no significance attached to this report.
+
+S E C R E T.

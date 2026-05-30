@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_2851.png
+
+Convert to MarkdownRESUME
+
+William M. Kent
+836 Van Buren Street
+Herndon, Virginia
+Telephone: Home - (703) 437-3162
+Office - (703) 351-4104
+
+**SUMMARY OF BACKGROUND:** U.S. Army (1946-1948). Department store manager-trainee, El Salvador (1950-1951). Twenty-six years (1952-1978) of experience as an officer with the Central Intelligence Agency, covering a variety of operational and staff assignments, domestic and foreign, ranging from intelligence collection, to propaganda and political action, to administration, personnel recruitment and training, and career management. Hold active Top Secret clearance.
+
+**EDUCATION:** USAFI, Latin American Institute (New York), Mexico City College (Mexico). Emphasis on international affairs, international trade, journalism, public relations and advertising, languages. Numerous CIA-sponsored courses and seminars on varying aspects of management, security, economics, EEO, and other topics related to the intelligence craft.
+
+**TRAVEL AND FOREIGN LANGUAGES:** Periods of residence in Europe, Panama, Venezuela, El Salvador. Travel to Cuba, Chile, Peru, Guatemala, Nicaragua, Mexico. Extensive travel in the United States. Fluent in Spanish and Italian, slight capability in German and French.
+
+PERSONAL:
+
+Community Service:
+
+Active in Little League, Cub Scouts, Boy Scouts
+Officer and President of PTA
+Fourteen years in Rotary International, variously as member of the Board of Directors, Committee Chairman, Vice President and President
+Founder, later President, Vice-president of town-wide citizens association
+Served on number of civic and mayoral committees
+
+Interests:
+
+International affairs, writing, fishing and outdoors,
+gardening, etc.
+
+Other:
+
+Age: 48 Married, 5 children (ages 22, 23, 24)
+
+NO SECURITY OMISSIONS
+AND
+U.S. ARMY
+4 APRIL 1978

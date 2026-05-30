@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_7492.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+IN 71187 PAGE 2
+
+2. SQUARE HAS ARRANGED WITH PMS LIAISON OFFICER TED YOUNG
+3. BE ANY FURTHER CALLS MADE. EMBASSY IN CLOSE CONTACT SQUARE
+4. CBR.
+
+S. WILL ADVISE FURTHER DEVELOPMENTS.
+C R E T
+
+/S COMMENT: Hqs requested information on the Polish driver connected with the Russian diplomatic establishment in Australia.
+
+<table><tr><td>SECRET</td></tr></table>
+
+JETT VAS FOR LETTERS TO BE SUBMITTED TO THE CIVILIAN SECTION OF THE POLISH GOVERNMENT LABOUR DEPARTMENT. THE SECRETariat will provide a copy of this letter and the correct translation for publication in the appropriate issue of the organisaion's内部文件的月刊, 目标是确保其内容的机密性。该计划由外交部长奥特še宁亲自监督。
+
+<table><tr><td>1975-01-01</td></tr></table>

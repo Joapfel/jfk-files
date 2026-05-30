@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_7584.png
+
+Convert to MarkdownC-0-N-F-I-D-E-N-T-I-A-L
+
+<table><thead><tr><th>COUNTRY</th><th>SUBJECT</th><th>DATE OF INFO.</th><th>PLACE & DATE ACQ.</th></tr></thead><tbody><tr><td>Austria/USSR/International/Belgium/Sweden</td><td>Symposium on Radiological Health and Safety in Nuclear Materials Mining and Milling Held in Vienna 26-31 Aug 63 Under Auspices of the International Atomic Energy Agency, NO. PAGES the International Labor Organization, and the World Health Organization (IAEA-ILO-WHO)/USRR Research and Practice in These Subjects As REFERENCES Disclosed at the Symposium/Visits to Related Laboratories In Belgium and Sweden: De L'Energie Nucleaire, Mbl, Belgium; (2) Division of Radiobiology, Research Institute of National Defense, Stockholm, Sweden, and (3) Forsvarets Forskningsanstalt, Research Institute of National Defense, Stockholm, Sweden</td><td>3 Dec 63</td><td>Holt, Mole, Stockholm</td></tr><tr><td></td><td></td><td></td><td>Aug 63</td></tr><tr><td>REPORT NO.</td><td>DATE DISTR.</td><td colspan="2">Case 40170 C-S13-7</td></tr><tr><td>00-E-3,209,471</td><td>3 Dec 63</td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+THIS IS UNEVALUATED INFORMATION
+
+SOURCE: US nuclear biologist.
+
+He is head of the pharmacology operation of a major US atomic laboratory.
+
+1. In late August 1963 I attended the Symposium on Radiological Health and Safety in Nuclear Materials Mining and Milling held in Vienna, Austria. The symposium was under auspices of the International Atomic Energy Agency, the International Labor Office, and the World Health Organization. In early September 1963 I visited related laboratories as follows; (1) Laboratories Du Centre D'Etudie Nucleaire, Mbl, Belgium; (2) Division of Radiobiology, Research Institute of National Defense, Stockholm, Sweden, and (3) Forsvarets Forskningsanstalt, Research Institute of National Defense, Stockholm, Sweden.
+
+2. Due to a misunderstanding in the USSR, the topics covered by the symposium were not known sufficiently in advance for Soviet scientists to contribute papers on other than nuclear toxicology. Therefore, Soviet Delegate N Tschernokov briefly discussed USSR uranium mine health practices which included three areas of activity: (1) Maximum efforts are taken to suppress dust at the source, and mines are well ventilated; (2) Personnel protective devices, such as respiratory masks and filters, are used, and (3) Preventive health or prophylactic procedures include assignment of mine workers to a sanitarium for one month each year. No kidney damage or other pathology apparently has been seen as a result of uranium mining activities in the USSR. There was no mention of cancer due to this activity. Four papers from the USSR dealt with laboratory studies on the toxicology of internal emitters. Most Soviet studies involved intratracheal administration of the isotopes -- although it was brought out that the importance of inhalation as a route of entry is being recognized. The symposium brought together a world cross section of scientific disciplines for discussion of uranium mining and milling hazards. Details of all of this are given in my trip report which follows:
+
+3. IAEA, ILO, and WHO Symposium on Radiological Health and Safety in Nuclear Materials Mining and Milling, Vienna, Austria, August 26-31, 1963. Visits were also made to the following laboratories:
+
+C-O-N-F-I-D-E-N-T-I-A-L
+
+<table><thead><tr><th>STATE</th><th>ARMY</th><th>NAVY</th><th>AIR</th><th>FBI</th><th>AEC</th></tr></thead></table>
+
+GROUP 1
+Excluded from automatic downgrading and declassification
+
+<table><tr><td>INFORMATION CONTROLLED</td></tr></table>
+
+NO DISSEMIN ABROAD
+
+NO FOREIGN BOMBER
+
+DISSEM: The dissemination of this document is limited to civilian employees and active duty military personnel within the intelligence command of the USIB member agencies, and to those senior officials of the member agencies who must act upon the information. However, unless specifically directed in accordance with paragraph 8 of DC

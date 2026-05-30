@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_1393.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td>NOTIFICATION OF ESTABLIMENT OR CANCELLATION<br>OF OFFICIAL COVER BACKSTOP</td><td>DATE</td><td>MARCH 1971</td></tr><tr><td>X CHIEF, CONTROL DIVISION</td><td>FILE NUMBER</td><td>4908</td></tr><tr><td>TO:<br>(Check)</td><td>CHIEF, CONTRACT PERSONNEL DIVISION</td><td>EMPLOYEE NUMBER<br>060247</td></tr><tr><td>X CHIEF, OPERATING COMPONENT (For action)</td><td>ID CARD NUMBER</td><td>MPS</td></tr><tr><td colspan="3">ATTN: MPS/Chief Personnel Branch</td></tr><tr><td>REF:</td><td>OFFICIAL<br>COVER</td><td>X DISCONTINUED</td></tr><tr><td>FORM 1322 dtd MARCH 1971</td><td></td><td></td></tr><tr><td>SUBJECT</td><td>UNIT<br>REMOVE FROM:<br>U.S. ARMY STAFF GROUP</td><td></td></tr><tr><td>WHEELER, Robert P.</td><td colspan="2">KEEP ON TOP OF FILE WHILE COVER IN EFFECT</td></tr><tr><td colspan="2">ESTABLISHMENT OF OFFICIAL COVER BLOCK RECORDS<br>(OFR 20-800-11)</td><td>CANCELLATION OF OFFICIAL COVER UNBLOCK RECORDS<br>(OFR 20-800-11)</td></tr><tr><td>A. TEMPORARILY FOR ____________ DAYS<br>EFFECTIVE DATE ____________<br>B. CONTINUING AS OF ____________</td><td>DATE</td><td>EFFECTIVE COB 28 FEB 1971</td></tr><tr><td>SUBMIT FORM 642 TO CHANGE LIMITATION CATEGORY.<br>(HHB 20-7)</td><td>X SUBMIT FORM 642 TO CHANGE LIMITATION CATEGORY.<br>(HHD 20-7)</td><td></td></tr><tr><td>AS CERTAIN THAT CIA W-2 BEING ISSUED.<br>(HHD 20-11)</td><td>X RETURN ALL OFFICIAL DOCUMENTATION TO CCS.</td><td></td></tr><tr><td>SUBMIT FORM 1322 FOR ANY CHANGE AFFECTING THIS<br>COVER. (NR-240-2*)</td><td colspan="2">DO NOT WRITE IN THIS BLOCK - FOR CCS INTERNAL USE ONLY</td></tr><tr><td>SUBMIT FORM 1323 FOR TRANSFERRING COVER<br>RESPONSIBILITY. (NR-240-2*)</td><td colspan="2"></td></tr><tr><td>X SUBMIT FORM 2688 FOR GEHA HOSPITALIZATION CARD</td><td colspan="2"></td></tr><tr><td colspan="3">REMARKS AND/OR COVER HISTORY</td></tr><tr><td>EDP/pw</td><td colspan="2"></td></tr><tr><td>DISTRIBUTION: COPY 1 - CO<br>COPY 2 • OPERATING COMPANY<br>COPY 3 • S/C<br>COPY 4 • OIL/FILL RATE<br>COPY 5 • OP<br>COPY 6 • SCS • FILE</td><td colspan="2">James H. TNB Linde<br>CHIEF, OFFICIAL COVER, CENTRAL COVER STAFF</td></tr></table>
+
+1551
+
+SECRET
+
+(13-80-43)

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_7525.png
+
+Convert to Markdownthe Cuban and Bulgarian groups quartered in the same building
+in Moscow. Any time the Cubans had a problem, Yuri would solve
+it for them. Yuri was a good friend of Juan (pseudo) a KGB
+officer who taught the Cubans about the Agency (CIA) and the
+West German intelligence apparatus. Juan told the DGI member
+that he had served in Mexico for about 20 years and in the U.S.
+clandestinely for about 10 years (specific dates unknown). Yuri
+was entrusted with their welfare only, and did not attend classes
+with the Cuban group.
+
+3. SE/X travel records were reviewed in search of an individual by the name of Yuri who possibly fit the description of the unidentified man. This lead to an individual by the name of Yuriy Ivanovich MOSKALEV, a Soviet, reportedly a Doctor of Medical Sciences, who has participated in international scientific conferences for the USSR since 1962 or earlier. Although there is no official 201 file on MOSKALEV, there is a sizable dossier on him in the Central Reference Service. Many of the documents in his dossier are OO reports from U.S. scientists concerning MOSKALEV's attendance and behavior at scientific meetings. It is obvious that he has a much greater knowledge of the English language than he admits. His capability is said to improve greatly after a few drinks; however, it is noted that he rarely, if ever, drank at the scientific meetings. It is also noted that on occasions he reportedly was not qualified to represent the Soviets at a particular conference. His papers rarely, if ever, were specific, or presented new data.

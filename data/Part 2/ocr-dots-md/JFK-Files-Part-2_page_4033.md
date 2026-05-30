@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_4033.png
+
+Convert to MarkdownEP 65-951
+
+address as Post Office Box 75801, Sanford Station, Los Angeles.
+He then said he lived at 610 South Oxford Street, Los Angeles 45.
+
+June 4, 1963 and August 14, 1963
+
+On September 23, 1963, EP T-3 advised that the medical records, Veterans Administration (VA) Outpatient Clinic, 1031 South Broadway, Los Angeles, California, contained the following information regarding the subject:
+
+On June 4, 1963, NAGELL appeared at the Outpatient Clinic and was referred to the Neurological Clinic for treatment. His condition was diagnosed as "depression, tearful, nervous, rigid. Would only utter words 'Got to see my kids.'"
+
+On August 14, 1963, NAGELL appeared at the Outpatient
+Clinic, complaining of "impairment of vision, left eye." Records
+indicate foreign matter removed from eye and NAGELL discharged.
+An appointment for September 16, 1963, was made for NAGELL,
+but he failed to keep this appointment.
+
+Records indicate the following service-connected
+injuries have been entered on NAGELL's records:
+
+Multiple scars, left face and head
+
+Reconstructed left ear canal
+
+Paresia (paralysis), partial, left facial nerve
+
+Lagophthalmos - left (defective hearing bilateral)
+
+Multiple scars, left forearm, left buttocks, right leg, and right knee
+
+Tracheotomy
+
+Fractures, right and left mandibles (jaw)
+
+Brain concussion
+
+Right hypertropia
+
+The above information can be made available only upon the issuance of a subpoena duces tecum. The identity of the person to be subpoenaed is Mrs. MARGUERITE COFFEE, Chief of Medical Records, VA Outpatient Clinic, 1031 South Broadway, Los Angeles, California..

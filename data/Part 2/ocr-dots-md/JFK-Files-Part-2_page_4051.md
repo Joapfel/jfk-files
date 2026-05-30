@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_4051.png
+
+Convert to Markdown13-00000
+
+EP 65-951
+
+Medical Center for Federal Prisoners, Springfield, Missouri, for a period of 30 days for the purpose of psychiatric examination. The subject advised the court that he would not cooperate with the psychiatrists at the Medical Center for Federal Prisoners at Springfield.
+
+While being removed from the United States District Court House in El Paso, Texas, enroute to the El Paso County Jail on January 24, 1964, and while in the custody of the Deputy United States Marshals, the subject accused the Assistant United States Attorney of violating his constitutional rights. This accusation was a repetition of numerous accusations which the subject had previously made against the Assistant United States Attorney, according to Assistant U. S. Attorney MORTON.
+
+On January 24, 1964, Assistant United States Attorney FREDERICK J. MORTON, El Paso, advised that he had received information on a confidential basis a short while before to the effect that there was a man incarcerated in the El Paso County Jail under a Federal charge of attempted bank robbery by the name of RICHARD CASE NAGELL who was a Communist and who was about to defect to Russia when arrested. Mr. MORTON related that the story was generally that NAGELL, a retired Army Captain who served with distinction in the Korean War in combat and with CIC, became embittered with the United States and our form of government partially due to the alleged denial of visitation privileges of his children, custody over whom was awarded to his Japanese wife by California divorce decree. He allegedly turned over secret material to Soviet agents while in the Military Service. He was supposed to obtain a passport to Russia here in El Paso from a Communist agent but was so distraught over the possibility of never again seeing his children that he considered suicide or some other drastic means of preventing his defecting that he went in a bank in El Paso, asked for $100.00 in cashier's cheques, pulled a gun which caused the teller to run, and fired two shots high into the wall and fled. At the time of his arrest, he called the policeman a "capitalistic s.o.b." and has stated that what he did was done out of "love for country." Other than that he has made no statements concerning the bank robbery except to say that he did not

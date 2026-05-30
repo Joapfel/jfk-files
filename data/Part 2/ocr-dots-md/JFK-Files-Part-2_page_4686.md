@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_4686.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+Committee, I remember, for example, Senator Huddleston, who was on the Church Committee and later was on the Intelligence Committee. During the days of the Church Committee he was talking about, "You can't just have CIA or the intelligence people talk to a couple of people up on the Hill and that's it. You've got to talk to everybody." After he'd been on the Intelligence Committee for a while, and I've got his clippings somewhere in my stack of clippings, Huddleston said, "The Congress, the members of Congress" -- he was addressing his own buddies -- "the members of Congress have to accept us on the Intelligence Committee as your surrogates." And that is all we were trying to do. In an intelligence community to have an intelligence committee be the surrogate -- and there was four of them -- be the surrogate for the whole Congress. But Huddleston when he was on the Church committee said, "You can't do that, you can't do that. We all have to know." Well, he found out personally.
+
+INTERVIEWER: He finally changed.
+
+MR. HALPERN: He changed his mind.
+
+INTERVIEWER: That's neat.
+
+MR. HALPERN: So you know, that's all they were saying. And it finally, it took him a long while to get around to it, but he finally did it.
+
+INTERVIEWER: Some get educated faster than others.
+
+MR. HALPERN: That's right. So when you talk about. . . The '74 break, I think, was a big thing, a big thing. And I think if the election of Congress in '74 had gone a little bit differently, and there hadn't been that total break and disorder up on the Hill, the disarray I call it, which all began with the Vietnam business and aided by the Watergate -
+
+INTERVIEWER: And Nixon resigning in '74.

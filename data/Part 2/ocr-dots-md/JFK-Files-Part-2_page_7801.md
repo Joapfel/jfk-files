@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_7801.png
+
+Convert to Markdown3. ABELL and Helen KACAN, who also was terminated at the UN Secretariat for security reasons, were reported in October 1952 to frequently return to the UN premises where they were said to often be seen in its corridors conversing with certain Russians and alleged Communists. According to a confidential FBI informant, ABELL in March 1952 made a check payable to KAGAN in the amount of $150, and KACAN had made checks payable to ABELL on a number of occasions. Helen KAGAN is Helen KACAN-POZNER, AKA: Elena Aleksandrovna Wilga, etc., #348 486, who is suspected of having long engaged in Soviet intelligence activities. Her brother, Vladimir A. POZNER, is an identified KGB officer and her cousin, Vladimir Wolf POZNER, is a known member of the French Communist Party and is suspected of involvement in Soviet intelligence. Her long-time consort, Peter WILGA, a leading figure in the CPUSA, was also suspected of Soviet intelligence connections. Helen KAGAN-POZNER WILGA is of continuing interest to the FBI and to SRS.
+
+4. At a Senate Internal Security Subcommittee hearing in New York City in late 1952, Alfreda ABELL refused on grounds of self-incrimination to say whether she was then or ever had been a communist, whether she tried to organize UN workers, or whether since leaving the UN in the Summer of 1952 she had revisited UN headquarters in the role of a communist organizer. The FBI continued to have an interest in ABELL until at least December 1961, the date of an FBI report in her file.
+
+5. The postmaster at Heiberger, Alabama in advising regarding Coretta SCOTT, as stated above, commented that she had in the past sung on the same program with Paul ROBESON at ROBESON's personal invitation. (Louis BUDENZ has stated that prior to his, (BUDENZ), defection from the Communist Party in 1945, he knew Paul ROBESON as a secret member of the Communist Party.)
+
+SECRET
+
+<table><tr><td>GROUP 1</td></tr><tr><td>Excluded from automatic downgrading and declassification</td></tr></table>

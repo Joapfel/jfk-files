@@ -1,0 +1,8 @@
+# JFK-Files-Part-2_page_7622.png
+
+Convert to Markdown13-00000
+
+Mr. Wall:
+
+Mr. Vorhis believes that the drafts he can get withheld for the FOIA requests. Unless they present a significant change from the final copy - . Of course I will see a final copy ! ) Should mark this att. for no release ?
+Also - what about other drafts - shall we

@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_7630.png
+
+Convert to MarkdownTO: Chief, CI
+
+Re your remarks on a report to DDO for DCI and other DD's on the
+declassification exercise, it will include the following:
+
+Number of documents reviewed.
+
+Number of documents declassified entirely (including those
+with major sanitization, such as removal of crypts, slugs, true names, etc.).
+
+Number of documents partially declassified (portions of text removed which cannot be released because of substantive content).
+
+Number of documents remaining classified.
+
+Number of documents referred to other agencies.
+
+Number of manhours spent on the exercise, with professional and
+clerical breakdown (for possible cost estimates in future).
+
+Number of pages of documents copied.
+
+Are there any additional items you wish included?
+
+JOR
+
+13-00000

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_7709.png
+
+Convert to Markdown# DEVELOPMENTAL AND RECRUITMENT APPROACHES TO AMERICANS
+
+## THE SOVIET SECURITY THREAT IN THE DETENTE PERIOD
+
+1. The aura of detente in the Soviet and Bloc relations during the last year and a half, we believe, has created a favorable climate for recruitment and penetration in the West. This paper deals with the problems as we see them. There are related counterintelligence issues which involve internal security: the leakage and exchange of economic, scientific and political information; the sale of technological information; and the impact of disinformation and agents of influence on American policy. As has been noted in our previous forums, since 1961 when KAGO brought us documentary evidence* that Soviet intelligence had launched a full-scale penetration effort against the "Main Enemy," we have seen a steady and continuing Soviet effort to effect penetrations of the U.S. Government. Detente has done nothing to blunt this effort. Soviet intelligence has worked steadily on the American target and has been quick to seize upon the openings to the West which KRUSHCHEV was the first to label "Detente." BREZHNEV has made the word the cleavage of the moment. It has been clear to Soviet intelligence, as it has been apparent to Western counterintelligence, that Soviet policy designed to exploit Western technology and, hopefully, change the balance of military power has created new opportunities for Soviet espionage.
+
+2. These new opportunities may be characterized as a plethora of choices: a harvest almost unprecedented since the New Economic Policy (N.E.P.) period and the 1958 Central Committee decision to assign to the KGB a new vital role in the policy to exploit the West by returning to the principles of LENIN. Soviet intelligence now finds more Americans, both official and unofficial:
+
+a. Anxious to exchange all types of information;
+
+b. Willing to discuss virtually any subject;
+
+c. Inclined to believe there is truly a latent and potentially viable dissident movement in the USSR which can be influenced if only the American people-to-people concept could prevail;
+
+\*\*Referred to and quoted in Attachment A.
+
+SECRET
+
+02926

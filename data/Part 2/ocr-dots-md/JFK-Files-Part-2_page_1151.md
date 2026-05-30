@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_1151.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+SECTION C (CONTINUED)
+
+thinking; he is perceptive and resourceful. He requires a minimum of guidance and direction. Subject showed some definite improvement with respect to cost consciousness and it is noteworthy that it did not adversely affect his enthusiasm. His operational and positive reports continue to be clear, concise and well written.
+
+Summed up, Subject is a highly regarded professional officer who made a most worthwhile contribution to the Station's overall mission.
+
+SECRET

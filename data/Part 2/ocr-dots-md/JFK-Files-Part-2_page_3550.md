@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_3550.png
+
+Convert to Markdown13-00000
+
+TOP SECRET DINAR
+
+OTHER CUBAN REACTIONS TO THE ASSASSINATION - cont'd
+
+Carlos Lechuga, Cuban UN ambassador, issued a statement early on 23 November stating: "Despite the antagonisms existing between the Government of the United States and the Cuban Revolution, we have received with profound displeasure the news of the tragic death of President Kennedy. All civilized men are always saddened by happenings such as this. Our delegation before the United Nations desires to express that this is the sentiment of the people and the Government of Cuba." (UPI New York, 23 November, UNCLASSIFIED)
+
+Cuban Foreign Minister Roa dispatched a message to Carlos Lechuga shortly after President Kennedy's assassination asking Lechuga to "please send me at once all the data that you have on Lyndon B. Johnson including his political connections, etc." Lechuga replied immediately: "biographical data on Lyndon Johnson are in cable of Prensa Latina and in UPI dispatch 169 and supplements." He also referred to "Who is Who" which he had sent the Foreign Ministry earlier and said he will cable additional information later. (NSA 3/0/CUD/T1382-63 and -T1381-63, 23 November, TOP SECRET DINAR)
+
+The Cuban Foreign Ministry dispatched a circular message late on 22 November to a number of Cuban diplomatic missions abroad stating only "do not make any statements." This was probably an attempt to prevent any comments on President Kennedy's assassination until the official Cuban line could be established. (NSA 3/0/CUD/T1380-63, 23 November, TOP SECRET DINAR)
+
+Che Guevara, in a speech on 24 November, expressed apprehensions similar to those stated by Fidel Castro the night before. Guevara blamed President Kennedy's assassination and the killing of Oswald on reactionary forces in the United States and warned Cubans that a new, tougher policy against Cuba will be forthcoming from the United States. "Everything indicates that in the next months and years world peace will be threatened by the most unscrupulous, ferocious, and warlike monopolistic oligarchy--and with the most murderous potential --that the history of humanity has every known," Guevara said. (CIA FBIS, 25 November, OFFICIAL USE ONLY)
+
+## CUBAN SUPPORT OF EXTERNAL SUBVERSIVE ACTIVITIES:
+
+A Venezuelan Government press conference tying the arms cache found in Venezuela earlier this month to Cuba is scheduled for Tuesday, 26 November, according to the US Embassy in Caracas.
+
+This is to be followed by a report to the OAS, probably on 2 December. (Am Emb Caracas 601, 24 November, CONFIDENTIAL)

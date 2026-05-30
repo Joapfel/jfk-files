@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_7023.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+TO: Richard E. Schroeder-C-
+FROM: John F. Pereira
+DATE: 04/16/96 02:40:06 PM
+SUBJECT: Re: DRAFT--OCA MFR on 10 Apr 96 HPSCI JFK Docs Brief
+
+The MFR looks basically fine.
+
+Two minor suggestions:
+
+Par 1. - change "our own investigation" to the House Assassinations Committee's investigation
+
+Par 1, last sent. - change last part of sent to read without always focusing on the broader cumulative impact of their discrete decisions.
+
+CC: J. Barry Harrelson
+
+SECRET

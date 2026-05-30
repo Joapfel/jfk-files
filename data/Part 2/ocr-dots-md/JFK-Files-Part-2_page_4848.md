@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_4848.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+INTERVIEWER: Same government.
+
+MR. HALPERN: Same government. Same people involved. Same appropriations and all that kind of stuff. I don't understand, honestly, as a citizen, what the hell the big difference is. So, but in terms of the future, there has got to be some kind of better rapport than developed as a result of the Church and Pike Committee which was strictly adversarial. And you can't have that and run intelligence. I don't care whether it's NSA, DIA, CIA, the FBI, the Secret Service, Drug Enforcement Agency. Any of them. And what is it, there are 11 or 12 components in the Community at the moment and all of them have, you've got to understand, what in the hell the world is all about. And you can't have all of this stuff going up on media coverage. And you can't have it be used to help somebody's election prospects.
+
+INTERVIEWER: Both in the Executive and in the Congress.
+
+MR. HALPERN: And the Congress. And the leaks, I am sorry to say, most of the leaks come from the Executive side. I'm sure of that. And I've been writing on that, too. And at least from sitting on the outside, and I don't know whether I am right or wrong, but my own gut feeling is that the leaks as they appear in the press -- and I don't know for the last 10 years what, you know, what really is classified. I've got a feeling for it, that's all. After 32 years in the business you kind of understand some of this stuff. But most of the stuff

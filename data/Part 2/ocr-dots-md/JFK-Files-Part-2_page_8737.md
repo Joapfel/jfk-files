@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_8737.png
+
+Convert to Markdownprovided a copy of the letter to local FBI office.
+
+LIAISON WITH OTHER U.S. AGENCIES 19-2-4
+
+DIRECTOR 03964 Dated 8 December 1962
+
+Hqs. CIA Cabled Secret Service, FBI and State Dept.
+Security, giving text of a letter from Havana, dated
+27 November 1962, concerning a plot to assassinate
+President Kennedy. Letter also stated that Fidel was
+very anxious to know how plans were progressing. Letter
+was addressed to a Post Office Box in Miami belonging
+to the Radio Libertad La Voz Anti-Comunista de America.
+Since the addressee was unknown to members of Radio
+Libertad, one of their Maimi reps. passed the letter to
+a contact of JMWAVE Station. Addressee was Bernardo
+Adalberto MORALES-Rivero. /COMMENT: See CUBAN Foreign
+Relations 19-9-2, DBF 47612, 27 Apr 1960./
+DIRECTOR 04013 Dated 8 December 1962
+
+Hqs. CIA provided White House Secret Service, FBI and
+State Dept Security with traces on Bernardo MORALES,
+above, who entered the U.S. in May 62 on fraudulent visa.
+DBA 28980 (FBI) Dated 12 December 1962
+
+Advised the Agency that the FBI had no information iden/with
+MORALES-Rivero, intended recipient of the above letter,
+or Jose MENENDEZ, the sender.

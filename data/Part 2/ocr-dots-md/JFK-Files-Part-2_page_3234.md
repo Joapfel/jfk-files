@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_3234.png
+
+Convert to MarkdownTOP SECRET
+
+other evidence of the need to have someone with Spanish language capability immediately available at Radio Swan, were the following: A machine-run of Agency employees failed to surface anyone with sufficient Spanish language to undertake an announcer's job; inability to exploit the fatal shooting of a Venezuelan child by a pro-Castro goon, could not be turned to US advantage; and by mid-November 1960 WH Division was requesting that a requirement be laid on to the Department of Defense for a serviceman with native fluency in Spanish who could be used as an announcer at Radio Swan.*
+
+* In the instance of the death of the Venezuelan child, the pro-Castro Cuban press was able to get the story out before it could be broadcast from Radio Swan. The pro-Castro press claimed that the death had been caused by a counter-revolutionary. (Sources for the foregoing discussion related to the lack of Spanish language capability are listed in reference 22/.)
+
+The lack of Spanish language capability was felt throughout the project, not only in the propaganda effort. As late as January 1961, for example, the training facility in the Canal Zone was pushing Headquarters for the services for a two week period of an Air Force sergeant who was fluent in Spanish. The training base wanted the sergeant to assist in briefing and debriefing an infiltration team. The request was denied, however, because there was a greater need for the man's services as an instructor at the air training base in Guatemala. 22a/ In another instance, a request from COB Miami for promotion of a clerical from GS-4 to GS-5 was based on the fact that "her services as a translator have been of the greatest importance to the Base since her arrival." 22b/
+
+- 221 -
+
+TOP SECRET

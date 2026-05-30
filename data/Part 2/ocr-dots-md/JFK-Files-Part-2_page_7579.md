@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_7579.png
+
+Convert to MarkdownC-O-N-F-I-D-E-N-T-I-A-L
+
+00-B-3,288,475
+
+- 5 -
+
+24. Moskalev, both from the papers he gave and his questions and comments in discussion, indicated that he was very sharp, very advanced in his knowledge of the biological effects of radiation, particularly with respect to distinguishing among the effects of various energies of neutrons and the techniques for measuring these energies. I think it may be safely assumed that the Russians are using very advanced methods for detecting and measuring the various energies of neutrons--the dosimetry of neutrons. In the biological effect, I think they are way behind us. But they are much involved in the potentials of neutron irradiation and their objectives are, I am sure, the effects of space radiation on human beings.
+
+25. Actually, [V P] Afanas'ev, who is a physicist, was even more sophisticated than Moskalev. Afanas'ev's paper was entitled "Production and Investiga- tion of Dose Fields for Irradiation of Experimental Animals with Protons of High Energy". His paper showed that both their production of high energy protons in the laboratory and the measurements of these protons with respect to animal work is sophisticated. They are advanced in this. I think this is the distinction to be made: they are more advanced in the technology of producing high energy radiations and the measurement of these than they are in biological effects of radiation.
+
+26. Q. Was anything reported on effects of radiation on non-regenerative tissues such as the brain?
+
+A. The Russians are very much involved in CNS effects of radiation, but they presented no data at the Symposium. The paper that Moskalev gave was a survey of Russian research work on biological action of neutrons and isotopes. It covered maybe twenty different pieces of work with only a few sentences for each. It presented no new data and nothing on the CNS as I recall. Afanas'ev's paper, on the other hand, presented new data on the production of dose fields with high energy protons.
+
+27. One gets the impression that whereas Russians physics is mechanistic and quite indistinguishable from ours in that respect, Russian biology is impregnated with philosophy. Moskalev, for example, spoke of how the body "adapts" to radiation in the sense that a single animal adapts. Most biologists will reserve this word to changes in a species over a very long period. I suppose you could consider wound healing as adaptation in a sense. But western biology sees certain events occuring in an organism as the consequence of a wound which can be described without resort to notions of teleological adaptation. This philosophical tendency has been a damaging element in Russian biology, I believe.
+
+28. Q. Here there results in the use of drugs in radiation protection?
+
+A. I can recall nothing on protective drugs from anybody. There was here and there a reporting of drugs used to enhance the effect of radiation with respect to tumor treatment.
+
+29. Q. Was anything presented on the characteristics of a bio-element used for space radiation detection including the number required for an extended space probe and the method of transmitting information?
+
+A. I am afraid I do not understand the question.
+
+30. Q. Was there anything on biological indicators at low ranges of radiation doses?
+
+A. There is a tremendous amount of interest in such indicators everywhere. Moskalev's presentations did not say anything specific except that the Russians are working on long-term effects of small doses of radiation
+
+C-O-N-F-I-D-E-N-T-I-A-L
+
+X/XXXXXXXX
+NO FOREIGN DIS
+
+NO DATED ADDAD

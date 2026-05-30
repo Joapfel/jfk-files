@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_6161.png
+
+Convert to Markdown- Footnotes-
+
+n182. See Exhibit Five infra p. 47.
+
+n183. Id.
+
+n184. Id.
+
+n185. See id. The material enclosed in brackets in Exhibit Five was originally withheld by the CIA. See id.
+
+- End Footnotes-
+
+There is also the question of whether the Board should reveal the identities of those who handled information relating to the investigation of the assassination. America's intelligence machine is a huge bureaucracy that processes information in staggering quantities. n186 How and by whom information relating to the assassination was organized, processed, and distributed is central to evaluating the CIA's role in the assassination. For example, Exhibit Six pertains to the continuing debate about whether the Agency photographed Oswald entering the Soviet Embassy and whether a record of what he had to say there was ever sent to CIA headquarters. n187 Arguably, unraveling the chain of custody of that material is critical. Yet, to do so would require identifying the persons who handled it. In this instance, the Board decided that, on grounds of personal privacy and potential harm, it would not disclose the name of one CIA official involved with the Mexico City operation, although the names of other officials were released in cooperation with the CIA.
+
+- Footnotes-
+
+n186. See Assassination Materials Disclosure Act III, supra note 96, at 397 (photograph depicting voluminous JFK assassination files); Wald, supra note 128 (describing the Department of Energy's accumulation of information).
+
+n187. See Exhibit Six infra p. 48.
+
+- End Footnotes-
+
+### X. Foreign Liaison
+
+The American government conducts its intelligence operations in collaboration with the services of other nations. n188 For example, the most secret agreement ever entered into by the English-speaking world is the pact by which the United States, Great Britain, Canada, [*31] Australia, and New Zealand carved the world into spheres of cryptologic influence, assigning each nation targets and agreeing to standardize terminology, code words, and other operations procedures. n189 Revelations of these and other relationships could prove extremely embarrassing to the cooperating governments, especially when those governments profess to be neutral or have publicly stated that they have no connection with the CIA. However, a full understanding of the intelligence base upon which the Warren Commission and the intelligence community as a whole assessed the Kennedy assassination depends on a thorough accounting of such connections. Moreover, perhaps nowhere else is negative information more important than when the intelligence service of another country has access to

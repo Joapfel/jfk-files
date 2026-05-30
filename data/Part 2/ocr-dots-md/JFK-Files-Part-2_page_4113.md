@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_4113.png
+
+Convert to Markdown13-00000
+
+24 April 1970
+
+Francis X. Plant
+Special Assistant
+Office, Under Secretary of the Army
+Room 1E520, The Pentagon
+Washington, D.C.
+
+Dear Mr. Plant:
+
+In further reference to my letter from Switzerland: During our conver-
+sation of 6 April you made it clear that I must step back into time and prove
+the existence of a condition over ten years ago that could and should have
+been resolved by the Army then . . . a feat that is all the more complicated
+by the ABCMR's refusal to interview the appropriate witnesses, view certain
+pertinent records and to place the blame for my not receiving an adequate
+medical examination where it belongs.
+
+I believe what you really meant to say was that in my particular case
+(as opposed to others much less valid) the function of the Board to correct
+an injustice does not apply.
+
+So if this assumption is fact, as I have every reason to feel it is, then
+you may pass on to the Secretary that before my case is closed the Army will be
+confronted with a scandal that will make France's Dreyfus affair seem inconse-
+quential by comparison. I am not quite the fool that apparently I have been
+taken for.
+
+P.S. Enclosed are some xerox copies of several documents which your house-
+cleaning office might find of interest. The originals, together with
+numerous other documents and the details about them, are safely locked
+away.

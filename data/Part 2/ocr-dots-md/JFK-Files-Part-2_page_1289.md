@@ -1,0 +1,68 @@
+# JFK-Files-Part-2_page_1289.png
+
+Convert to MarkdownSEC. 14. ACTIVE U. S. OR FOREIGN MILITARY SERVICE
+
+U.S. Army corporal
+
+1946
+Mar.1943-Feb.
+
+(Country)
+Ft. Snelling, Minn., U.S.
+(Last Station)
+11081139
+(Serial Number)
+honorable
+(Type of Discharge)
+
+REMARKS:
+
+SELECTIVE SERVICE BOARD NUMBER
+3
+ADDRESS
+Harrisburg, Pa.
+
+IF DEFERRED GIVE REASON
+---
+
+INDICATE MEMBERSHIP IN MILITARY RESERVE ORGANIZATIONS
+listed Reserve, July 1942-Mar. 1943.
+College En-
+
+Sec. 15. CHRONOLOGICAL HISTORY OF EMPLOYMENT FOR PAST 15 YEARS. ACCOUNT FOR ALL PERIODS. INCLUDE CASUAL EMPLOYMENT. INCLUDE ALSO PERIODS OF UNEMPLOYMENT. GIVE ADDRESSES AND STATE WHAT YOU DID DURING PERIODS OF UNEMPLOYMENT. LIST LAST POSITION FIRST. (List all civilian employment by a foreign government, regardless of dates.)
+
+FROM August 1, 1946 TO date CLASSIFICATION GRADE (IF IN FEDERAL SERVICE)
+---
+EMPLOYING FIRM OR AGENCY Dickinson College
+---
+ADDRESS Carlsle, Va. U.S.
+---
+(St. and No. or City) (State) (Country)
+---
+KIND OF BUSINESS college NAME OF SUPERVISOR Herbert Wing, Jr.
+---
+TITLE OF JOB Asst. Prof. of History SALARY $ 3600 PER year
+---
+YOUR DUTIES teach 1a hours of history weekly
+---
+REASONS FOR LEAVING no chance for advancement
+---
+May 1946 July 1946 CLASSIFICATION GRADE CAF 1 (I think) FROM TO (IF IN FEDERAL SERVICE)
+---
+United States Employment Service
+---
+EMPLOYING FIRM OR AGENCY
+2nd and Locust Str, Harrisburg, Pa. U.S.
+---
+ADDRESS
+(St. and No. or City) (State) (Country)
+---
+KIND OF BUSINESS ... (City) ... GENOY ... ... NAME OF SUPERVISOR ...
+---
+TITLE OF JOB Jr. clerk 108 month SALARY $ PER year
+---
+YOUR DUTIES process veterans' applications for unemployment compensation; send out checks.
+---
+REASONS FOR LEAVING to accept position at Dickinson
+
+(7) 19-699-1

@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_8125.png
+
+Convert to Markdown13-00000
+
+1513517 APR 68
+
+DIRECTOR INFO
+
+RE A
+B DIRECTOR 49250
+
+1..

@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_8288.png
+
+Convert to Markdown13-00000
+
+Anti-Communist International
+
+U.S.A. OFFICE: 2188 BROADWAY • NEW YORK
+OX 7-5895
+
+The A. C. I. is starting V.V. (VICTORY FOR VIETNAM)
+
+RALLIES
+
+SATURDAY, APRIL 1, 1967, 7:00 P.M. at 4 W. 43rd St.
+
+COLUMBIA UNIVERSITY CLUB will be the first rally with these important main speakers.
+
+Adm. Joseph J. Clark (U.S.N. Ret.)
+
+Hon. Hamilton Fish
+
+Vito Battista, Taxpayers Org.
+
+Lee Sterling, American Property Rights Assn.
+General Dico Dimitroff
+
+Arnold McCulloch, Peter Fechter Brigade
+
+Edward Rorer, American Patriots for Freedom
+
+Jason Friedman, Director Jewish Section of the
+A. C. I.
+
+Make reservations either by phone, OX 7-5895 or by mail, P.O. Box 1095, N. Y. 10017.
+
+Bring your friends. Be there to help the fighting boys in Vietnam and the Vietnamese People. Help the President of the U.S.A. and his Military Leaders in Vietnam to win the war in the battlefield, which will produce the VICTORY PEACE TALKS.
+
+Dr. Wm. GLASKOW, Chrmn.
+A. R. K. JERIC, Treasurer
+S. KRAWEC, Publish. Dept.
+Havly SCHIEBER, Gen'l. Sec.
+
+Mail adress:
+P. O. Box 1095
+New York, N. Y. 10017

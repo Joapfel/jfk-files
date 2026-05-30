@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_4230.png
+
+Convert to MarkdownSTORY
+
+recession had created a body of opinion among the military, the Security
+Forces and the public that would carry off a coup and establish a new
+government. CIA reported this condition did not exist. During the week of
+August 26 and without taking a position as to whether the regime should or
+should not be removed, the Agency urged care and deliberation. It pointed
+out that to act precipitously and without assurance of success a civil war
+would inevitably result, the war against the Viet Cong would be lost and
+the Communists would take over.
+
+This position was highly emasculating to those who wished to
+move precipitously. It is for this reason that the advocates of action to
+move precipitously without coordination and without intelligence support
+are now carrying on a campaign against the Central Intelligence Agency
+and the Station.

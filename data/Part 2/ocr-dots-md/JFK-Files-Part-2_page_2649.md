@@ -1,0 +1,97 @@
+# JFK-Files-Part-2_page_2649.png
+
+Convert to Markdown(13) 10-68-41
+
+| (Name and Chapter) | (St. and Number) | (City) | (State) | (Country) |
+| :--- | :--- | :--- | :--- | :--- |
+| **DATES OF MEMBERSHIP:** | | | | |
+
+5.
+
+| (Name and Chapter) | (St. and Number) | (City) | (State) | (Country) |
+| :--- | :--- | :--- | :--- | :--- |
+| **DATES OF MEMBERSHIP:** | | | | |
+
+6.
+
+| (Name and Chapter) | (St. and Number) | (City) | (State) | (Country) |
+| :--- | :--- | :--- | :--- | :--- |
+| **DATES OF MEMBERSHIP:** | | | | |
+
+7.
+
+| (Name and Chapter) | (St. and Number) | (City) | (State) | (Country) |
+| :--- | :--- | :--- | :--- | :--- |
+| **DATES OF MEMBERSHIP:** | | | | |
+
+SEC. 25. MISCELLANEOUS
+
+A. IF YOU ADVOCATE OR HAVE YOU EVER ADVOCATED; OR ARE YOU NOW OR HAVE YOU EVER BEEN A MEMBER OF, OR HAVE YOU SUPPORTED, ANY POLITICAL PARTY OR ORGANIZATION WHICH ADVOCATES THE OVERTHROW OF OUR CONSTITUTIONAL FORM OF GOVERNMENT IN THE UNITED STATES? No
+IF "YES," EXPLAIN:
+
+B. DO YOU USE, OR HAVE YOU USED, INTOXICANTS?
+
+IF SO, TO WHAT EXTENT?
+
+C. HAVE YOU EVER BEEN ARRESTED, INDICTED OR CONVICTED FOR ANY VIOLATION OF LAW OTHER THAN A MINOR TRAFFIC VIOLATION? IF SO, STATE NAME OF COURT, CITY, STATE, COUNTRY, NATURE OF OFFENSE AND DISPOSITION OF CASE:
+
+D. HAVE YOU EVER BEEN COURT-MARTIALED WHILE A MEMBER OF THE ARMED FORCES?
+IF ANSWER IS "YES," GIVE DETAILS BELOW:
+
+E. LIST BELOW THE NAMES OF GOVERNMENT DEPARTMENTS, AGENCIES OR OFFICES TO WHICH YOU HAVE APPLIED FOR EMPLOYMENT SINCE 1940:
+(One) NA
+
+(13) 10-68-41
+
+<table>
+   <tr>
+    <td> (Name and Chapter ) </td>
+    <td> (St. and Number) </td>
+    <td> (City) </td>
+    <td> (State) </td>
+    <td> (Country) </td>
+   </tr>
+   <tr>
+    <td colspan="5"> DATES OF MEMBERSHIP : .. </td>
+   </tr>
+   <tr>
+    <td> 5. </td>
+    <td> (Name and Chapter) </td>
+    <td> (St. and Number) </td>
+    <td> (City) </td>
+    <td> (State) </td>
+    <td> (Country) </td>
+   </tr>
+   <tr>
+    <td colspan="5"> DATES OF MEMBERSHIP: .. </td>
+   </tr>
+   <tr>
+    <td> 6. </td>
+    <td> (Name and Chapter) </td>
+    <td> . (St. and Number.) </td>
+    <td> (City) </td>
+    <td> (State) </td>
+    <td> (Country) </td>
+   </tr>
+   <tr>
+    <td colspan="5"> DATES OF MEMBERSHIP: .. </td>
+   </tr>
+   <tr>
+    <td> 7. </td>
+    <td> (Name and Chapter) </td>
+    <td> (St. and Number.) </td>
+    <td> (City) </td>
+    <td> (State) </td>
+    <td> (Country) </td>
+   </tr>
+   <tr>
+    <td colspan="5"> DATES OF MEMBERSHIP: </td>
+   </tr>
+   <tr>
+    <td colspan="5"> SEC. 25. MISCELLANEOUS </td>
+   </tr>
+   <tr>
+    <td colspan="5"> A. IRO YOU ADVOCATE OR HAVE YOU EVER ADVOCATED; OR ARE YOU NOW OR HAVE YOU EVER BEEN A MEMBER OF, OR HAVE YOU SUPPORTED, ANY POLITICAL PARTY OR ORGANI- ZATION WHICH ADVOCATES THE OVERTHROW OF OUR CONSTITUTIONAL FORM OF GOV- ERNMENT IN THE UNITED STATES? No </td>
+   </tr>
+   <tr>
+    <td colspan

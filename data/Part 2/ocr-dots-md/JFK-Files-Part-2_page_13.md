@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_13.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+help KUBARK achieve this objective.
+
+5. I told him that I would appreciate his cooperation in meeting with two of my friends who are more fully versed in these matters. He agreed and set the meeting for Monday, 19 January 1965. SKEWER/I gave me his unlisted private telephone number and suggested that I contact him Monday morning, 19 January 1965, to set time and place for the meeting. The number is 842-2120.
+
+E. A. STANULIS
+
+Distribution:
+
+Orig.--C/DO/SA
+ADCDC/CO
+Gale W. Allen
+1--WUBRINY/OPS
+1--WUBRINY/D
+1--SKEWER/I 201 file
+1--SA Chrome
+
+SECRET
+
+1
+
+1
+
+1

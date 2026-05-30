@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_8782.png
+
+Convert to Markdownreach back as far as twenty years to revenge actions taken against him at that time. Source added that in the current situation CASTRO was fully capable of undertaking an act of desperation, for example the aerial bombardment of the U.S. or some gross act against the Soviet Ambassador in Cuba.
+
+GNVA 5006 (OUT 54584) 28 Mar 1963 (TDCSDB 3/653,939)
+
+Filed 68-6-147/4
+
+At the height of the October 62 Cuban crisis, CASTRO haranged a Soviet commander about the "impossibility" of permitting U.S. planes to photograph Cuba. The Soviet succumbed to CASTRO's persuasiveness and took action which resulted in shooting down a U-2 plane. The Soviet command was furious and the Soviet officer was returned to the USSR under arrest.
+
+GNVA 6022 (IN 79271) 12 Dec 63 filed 68-6-147/3
+
+Report that there was no speculation among orbit or
+Soviet officials re implications of Johnson's
+accession. There was a special alert status ordered
+for Cuban Missions as a result of the assassination
+of President Kennedy. The alert was still in effect
+9 December 1963.

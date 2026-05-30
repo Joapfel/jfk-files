@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_6728.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+SUBJECT: (S) Protection of [IJDECANTER] Cryptonym
+
+13. (U) I would be pleased to appear before the Board in person to respond to any particular questions and am hopeful that this important information can be postponed from public release.
+
+Lee S. Strickland

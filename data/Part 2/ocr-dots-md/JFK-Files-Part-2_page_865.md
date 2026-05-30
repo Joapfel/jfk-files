@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_865.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td>SECTION C</td></tr></table>
+
+<table><tbody><tr><td>NARRATIVE COMMENTS</td></tr><tr><td>Indicate significant strengths or weaknesses demonstrated in current position keeping in mind, perspective their relationship to overall performance. State suggestions made for improvement of work performance. Give reasons for training. Comment on foreign-language competence, if required for current position. Amplify or explain ratings given in Section B to provide best basis for determining future personnel action. Mention past performance of monoglot or supervisory duties and degree of consciousness in the use of personnel move, equipment and funds must be commented on, if applicable. If extra space is needed to complete Section C, attach a separate sheet of paper.</td></tr><tr><td>Subject arrived at Station in May 1969 well prepared and took over from his predecessor in an organized and professional manner; there were no hitches, either in terms of personality conflicts or operational lag. He has since continued to demonstrate care in preparation and approach to what is a demanding and highly varied assignment; he "uses" his past experience with originality and selective aggressiveness, and more important, with a keen sense of adaptability to his operational environment. Subject is definitely not a clock-watcher and gives of his own time freely and at his own initiative. Subject's initiative in developing new assets/operations is limited only by the broad scope of duties already assigned.<br/>Section B Specific Duties are directly related to Subject's Letter of Instruction dated 26 May 1969. In discharging his responsibilities as MPWATCH referent, which includes advice and guidance to other Mission intelligence components in addition to Station officers, Subject is limited only by the extent to which he is called on; he himself is thoroughly grounded and available for the discharge of this function. He has handled one existing and very sensitive coopted liaison asset in excellent fashion and is developing a second such asset into a unilateral role; based on qualifications and experience, he can do more in this area and in the unilateral field generally, even given an already restrictive time schedule. In a rapidly changing operational atmosphere,<br/>continued ---/</td></tr><tr><td>SECTION D</td></tr></tbody></table>
+
+<table><tr><td>CERTIFICATION AND COMMENTS</td></tr></table>
+
+<table><tr><td>I, BY EMPLOYEE</td></tr></table>
+
+<table><tr><td colspan="3">I CERTIFY THAT I HAVE SEEN SECTIONS A, B, AND C OF THIS REPORT</td></tr><tr><td>DATE</td><td>SIGNATURE OF EMPLOYEE</td><td></td></tr><tr><td>26 February 1970</td><td>/s/ Jerome Fox</td><td></td></tr><tr><td colspan="3">BY SUPERVISOR</td></tr><tr><td colspan="3">MONTHS EMPLOYEE HAS BEEN UNDER MY SUPERVISION</td></tr><tr><td>OFFICIAL TITLE OF SUPERVISOR</td><td>TYPED OR PRINTED NAME AND SIGNATURE</td><td></td></tr><tr><td>26 February 1970</td><td>Ops Officer</td><td>/s/ Harry G. Peterson</td></tr><tr><td colspan="3">BY REVIEWING OFFICIAL</td></tr><tr><td colspan="3">COMMENTS OF REVIEWING OFFICIAL<br/>Concur generally with ratings and narrative comments. Subject is a dedicated, responsive and methodical officer whose previous duty station was Headquarters Philippine Desk. In a relatively brief period of time Subject has obtained a good knowledge of the MPWATCH situation and operational information. Probably because of the presence of knowledgeable senior ops officers at the Station, Subject has been somewhat reserved in executing his assigned responsibility as MPWATCH functional officer. I believe Subject could have been more vigorous in this primary area of responsibility. This may change when these officers are rotated this spring and summer. This matter has been discussed with Subject by COS/DCOS and encouraged him to assume a more aggressive and substantive</td></tr><tr><td>DATE</td><td>OFFICIAL TITLE OF REVIEWING OFFICIAL</td><td>* TYPED OR PRINTED NAME AND SIGNATURE</td></tr><tr><td>26 February 1970</td><td>DCOS</td><td>/s/ Terry T. Shima</td></tr></table>
+
+SECRET
+
+<table>
+  <tr>
+    <td>14-00000</td>
+  </tr>
+</table>

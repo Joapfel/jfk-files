@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_6148.png
+
+Convert to Markdowntoughened since 1787).
+
+-End Footnotes-
+
+## V. Openness and Secrecy - FOIA
+
+For more than 190 years, the American public did not have a legal right to gain access to information about its government. n115 All of that changed, however, in 1966 when President Lyndon Johnson signed FOIA n116 and thereby altered the historical relationship between the federal government and the public. n117 FOIA presumes that government information is public information and is implemented by the judicially enforceable requirement that all federal agency records be made available promptly upon request, subject only to nine exemptions, which are to be narrowly construed. n118
+
+- Footnotes-
+
+n115. The issue of openness in government has historically been framed in terms of the right of the government to keep secrets, rather than the right of the public to have access to governmental records. See Seth F. Kreimer, Sunlight Secrets and Scarlet Letters: The Tension Between Privacy and Disclosure in Constitutional Law, 140 U. Pa. L. Rev. 1 (1991). The movement towards greater openness in the post-World War II period has been part of a broader movement in the twentieth century to hold government accountable for its actions. See id. As a result, since the progressive era of the early twentieth century, we have seen the institution of public records, open meetings, and "sunshine laws." See id.
+
+n116. 5 U.S.C. 552 (1994).
+
+n117. The Act has come under criticism from both advocates of openness and proponents of secrecy. See, e.g., Carome & Susman, supra note 98, at 223 (criticizing the Act because the cost of implementation outweighs the benefits it is supposed to provide); Non-Denial: How Attitudes and Inertia Combine to Subvert the Freedom of Information Act, Kiplinger Program Rep. 1-32 (Summer 1994) (discussing the success of FOIA in providing Americans with a means of acquiring information about their government).
+
+n118. 5 U.S.C. 552.
+
+- End Footnotes-
+
+Critics of FOIA seldom doubt its good intentions, but they do doubt its effectiveness, complaining that the cost of implementing it [*19] far outweighs its supposed benefits. n119 The argument against FOIA was perhaps best summed up by Justice Antonin Scalia, who described the statute as "the Taj Mahal of the Doctrine of Unanticipated Consequences, the Sistine Chapel of Cost-Benefit Analysis ignored." n120 Critics like Justice Scalia charge that FOIA harms the government's and the public's legitimate need for secrecy. n121
+
+- Footnotes-
+
+n119. See Carome & Susman, supra note 98, at 223; see also supra note 117.
+
+n120. Antonin Scalia, The Freedom of Information Act Has No Clothes, 14 ABJ J. on Gov't & Soc'y 1026 (1982).

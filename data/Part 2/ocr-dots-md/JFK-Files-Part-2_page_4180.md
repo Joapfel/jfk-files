@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_4180.png
+
+Convert to MarkdownThis Administration has spent a good many millions more than has been appropriated for Space and Defense -- and perhaps we should spend more.
+
+One of our big jobs will be to persuade our colleagues in Europe to do a better job themselves. If we maintain six divisions in Europe and they only maintain a force which will permit them to fight only two or three days -- if we have sufficient force to fight and supply for ninety days and those around us can only fight for two or three days, then we should take another look. France carries their burden abroad, but not in Europe. We should consider very hard the narrow interests of the United States as well as the interests of the Free World. If we grown weak economically, our influence will grow less and less and if that happens, our Free World's position will grow weaker. De Gaulle is basing his whole position on the position of the United States. He can do this because he feels we will maintain our military power in Europe and he can bank on it.
+
+Mr. Foster is engaged in the Test Ban. We might be successful here if the Russians need it and if they know that we will change this if the Chicom's develop an atomic capacity. If they do we will have great difficulty in protecting Asia. If the Test Ban Treaty is successful it will inhibit the Russians from starting a nuclear war and if so we should make every effort to conclude the treaty. But if the nuclear test ban includes only the Russians and the U.S. it is not worth very much. We should support Foster all we can until we see where it is going. If we get a successful treaty, we will fight it through if it will help us. (On the Hill ?)
+
+Thanks for your cooperation. All worked well together and harmoniously. Hope we can maintain the mutual relations which have been so good in this Administration.

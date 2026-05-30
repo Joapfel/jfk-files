@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_147.png
+
+Convert to MarkdownSECRET
+
+PRO PART I (EQUIVALENT)
+
+NAME: C O B D, Viola June
+Aka June CO33; Clarinda E. SNAPP
+
+DPOB: 24 August 1927; Ponca, Oklahoma.
+
+CITIZENSHIP: USA
+
+OID: Subject returned to New York from Mexico City in July 1966 to look for a job. She recently came to our attention through the FBI/New York field office when the latter contacted our New York base to inquire of her present residence. Subject is presently in contact with the DC3/New York field office, from whom we shall attempt to ascertain her present residence and employment.
+
+SECRET

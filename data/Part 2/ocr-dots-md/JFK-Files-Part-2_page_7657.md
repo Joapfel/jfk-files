@@ -1,0 +1,61 @@
+# JFK-Files-Part-2_page_7657.png
+
+Convert to MarkdownMr. DULLES. Do you have some more?
+
+Mr. McCLOY. I think I have got all the questions I wanted to ask.
+
+(At this point in the proceedings, Representative Ford leaves the hearing room.)
+
+Mr. DULLES. I have two or three questions.
+
+As you know, Mr. Belmont, there have been a wide variety of rumors that have been spread abroad very particularly with regard to the assassination.
+
+I have before me, just received last night, a book just being published in England, it is coming out in the next day or 2, called "Who Killed Kennedy," by Thomas G. Buchanan, published in London by Secker and Warburg. I have not had an opportunity yet to read the book. I have read a good deal of the background material on which it is based.
+
+I would like to ask though when this book is available to you, and we will make a copy available to you and see that you get one promptly, whether you would have the Bureau read this, an appropriate person in the Bureau familiar with the case or yourself, and possibly give us your views with regard to certain of the allegations here within your particular competence.
+
+Mr. BELMONT. As I understand it, Mr. Dulles, this is probably a compilation of the articles that he wrote in the French press.
+
+Mr. DULLES. Express; yes.
+
+Mr. BELMONT. Which, I believe, we sent over to the Commission as we received them.
+
+Mr. DULLES. That is correct.
+
+Mr. BELMONT. And from my recollection of perusing those articles, they are filled with false statements, innuendoes, incorrect conclusions, misinformation, and certainly what I would term false journalism. In other words, he has stated as fact or as a correct conclusion many things which the Commission's investigation has disproved completely.
+
+We will be glad to read the book and to furnish you with a general comment on it. But to take down each statement in there and go into it would probably result in a critique of 500 pages.
+
+Mr. DULLES. We do not want that. I don't think we need that.
+
+Mr. BELMONT. Where actually many of these allegations have already been resolved by the Commission, I am sure. We will be glad to read it and give you a—
+
+Mr. DULLES. I think that would be useful for the Commission to have, Mr. Chairman. Do you agree?
+
+The CHAIRMAN. Very well; yes. If you find any factual matters in there that contradict your findings, we would expect you to call it to our attention.
+
+Mr. BELMONT. Most certainly, sir.
+
+The CHAIRMAN. But otherwise I don't think we want a review of the book. That is your idea, is it?
+
+Mr. DULLES. Not a review of the book, but if there are allegations there, any evidence you can factually deny, that would be helpful to have it.
+
+Mr. McCLOY. Do you have any record of Buchanan? Do you know anything about Buchanan's background?
+
+Mr. BELMONT. No, sir; I do not recall.
+
+Mr. DULLES. I wish you would check.
+
+Mr. BELMONT. We can send you a letter.
+
+The CHAIRMAN. We have the record.
+
+Mr. McCLOY. He seems to be very much Ivy League, Lawrenceville School and Yale.
+
+Mr. DULLES. He was at one time, I believe, he admitted to being a Communist at one time. He was at one time employed by the Washington Star, I am advised, and I believe, according to the information I have, that he was terminated by the Star some years ago.
+
+Mr. BELMONT. I thought he had been in touch with the Commission.
+
+The CHAIRMAN. He came in, he did come in here, and made a statement which we have recorded. His testimony wasn't taken. He just walked in off the street.
+
+Mr. DULLES. I have one or two more questions, Mr. Chairman.

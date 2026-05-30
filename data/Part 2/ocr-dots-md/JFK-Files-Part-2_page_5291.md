@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_5291.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+2. Mr. Gunn will be at IP the week of 24 February to review additional material related to CIA-7. Please provide the documents, or a status of the search, by 20 February 1997.
+
+J. Barry Harrelson
+
+Att: Ref Document
+
+SECRET
+
+3

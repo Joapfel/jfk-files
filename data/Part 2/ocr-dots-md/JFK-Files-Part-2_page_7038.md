@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_7038.png
+
+Convert to Markdown<table><tr><td>JFK Assassination Records Collection Act</td></tr><tr><td><ul><li>Five year Effort; Estimated 100 person years expended</li><li>Extraordinary Authorities/ Access/ "non Precedent Setting Releases"</li><li>Processed over 14,000 CIA documents upon which the Board took direct action.</li><li>Transferred to the National Archives over 100,000 redacted pages for the JFK Collection.</li><li>Prepared a Declaration of Compliance with the Act, with a detailed accounting of CIA actions in response to the Board's requests.</li><li>Negotiated a detailed Memorandum of Agreement among CIA, the JFK Board and the National Archives regarding the disposition and processing of all documents resulting from the five year review.</li><li>"The Review Board considered the CIA's compliance with the JFK Act....to be one of [the Board's] highest priorities." It is particularly significant that the board fully accepted the Agency's Declaration of Compliance and reported favorably on the Agency's activities in response to the Board.</li></ul></td></tr></table>
+
+During FY 1998, compliance with the legal requirements of the JFK Act absorbed the preponderant portion of HRP resources. HRP completed necessary coordination with the JFK Assassination Records Review Board on behalf of the Agency, an ongoing process since FY 1994. HRP provided a central Agency focus for a process which:
+
+* Coordinated with Board Staff on relevancy and classification on roughly 250,000 pages (many duplicates)
+
+* Processed over 14,000 CIA documents upon which the Board took direct action.
+
+* Transferred to the National Archives over 100,000 redacted pages for the JFK Collection.
+
+* Prepared CIA's Declaration of Compliance with the Act, a detailed accounting of CIA actions in response to the Board's requests.
+
+* Negotiated a detailed Memorandum of Agreement among CIA, the JFK Board and the National Archives regarding the disposition and processing of all documents resulting from the five year review.
+
+The Board's report of 30 September 1998 states that "The Review Board considered the CIA's compliance with the JFK Act....to be one of [the Board's] highest priorities." It is particularly significant that the board fully accepted the Agency's Declaration of Compliance and reported favorably on the Agency's activities in response to the Board.

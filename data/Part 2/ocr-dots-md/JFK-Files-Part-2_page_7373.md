@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_7373.png
+
+Convert to MarkdownCONFIDENTIAL
+
+COMPARTMENTED INTELLIGENCE INDOCTRINATION
+
+I have been informed that pursuant to law (Sections 792, 793, 794, 795, 797 and 798 of Title 18, United States Code) I am not to discuss with or disclose to any person any information relating directly or indirectly to the below identified compartmented Programs, unless such person is currently authorized to discuss or receive such information or material of the particular category involved. I am aware that the responsibility of ascertaining that such an authorization for another person is valid and current, rests with me.
+
+I acknowledge that it is my responsibility to inform myself of the contents of the above mentioned sections of Title 18, U.S. Code, as they pertain to performance of my duties. I am aware further that if a change in my status renders it no longer necessary for me to receive compartmented intelligence, my name will be removed from the list of persons authorized to receive such material.
+
+News media reports concerning any of these compartmented materials does not relieve me of my obligation under the oath signed below.
+
+I acknowledge that I have been briefed on the following compartmented systems or programs:
+
+OATH OF SECRECY
+
+I do solemnly swear that I will not discuss with or disclose to any person, regardless of his official position or status, any information relating directly or indirectly to Compartmented Intelligence, any information derived therefrom, or the nature of the sources of such intelligence, until I have ascertained that such person has been authorized to discuss
+
+CONFIDENTIAL
+
+E-2 IMPDET
+CL BY ____________

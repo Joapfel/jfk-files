@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_5666.png
+
+.
+
+2. CIA concurs with the release of the following name in the specific documents cited:
+
+Miguel Nazar-Haro in documents 104-10052-10058 and 104-10014-10016.
+
+Because of the relationship of this individual with the CIA, future documents containing his name must be reviewed on a case-by-case basis; there may be situations in which the Agency will request that the name be protected.
+
+CL BY: 611637
+CL REASON: 1.5(c)
+DECL ON: X1
+DRV FRM: COV 2-87
+
+SECRET
+
+13-00000
+
+SECRET

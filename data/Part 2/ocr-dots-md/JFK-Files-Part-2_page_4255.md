@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_4255.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+- 2 -
+
+was approved at the meeting of 31 January 1963. He said that Agency funds on deposit with the Morgan Guaranty, which will serve as collateral against the bank's loan to the new entrepreneur of this newspaper, would draw interest at 4%, while the purchaser will pay the commercial rate of 6%. The Chairman expressed satisfaction with this arrangement.
+
+Thomas A. Parrott
+
+Distribution
+
+Mr. Johnson
+Mr. Gilpatrick
+Mr. McCone
+
+SECRET
+EYES ONLY
+
+13-00000

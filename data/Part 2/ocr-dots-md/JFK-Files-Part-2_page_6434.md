@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_6434.png
+
+Convert to MarkdownTHE JOINT CHIEFS OF STAFF
+WASHINGTON 20, D.C.
+
+2 February 1962
+
+MEMORANDUM FOR Brigadier General Edward G. Lansdale, USAF, Assistant to the Secretary of Defense
+
+Subject: Ideas in Support of Project
+
+The enclosed ideas are submitted for your consideration and possible use in furtherance of the objectives of the Cuba Project. I think some of them have promise and should you desire our group to develop any of them in more detail, we will do so.
+
+WILLIAM H. CRAIG
+Brigadier General, USA
+DOD Representative
+Caribbean Survey Group
+
+6 encls
+
+1. Operation Smasher (2Pages) (TS)
+
+2. Operation True Blue (1Page) (TS)
+
+3. Operation "Horn Swoggle" (1Page) (TS)
+
+4. Operation "No Love Lost" (1Page) (TS)
+
+5. Possible Actions to Provide, Harrass, or disrupt (4Pages) (TS)
+
+6. Operation Invisible Bomb (1Page) (TS)
+
+SECRET
+
+SPECIAL HANDLING
+
+<table>
+   <tr>
+    <td>EXCLUDED FROM AUTOMATIC REGRADING; DOD DIR 5200.10 DOES NOT APPLY</td>
+   </tr>
+  </table>
+
+CSGWG 0#19
+
+13-00000

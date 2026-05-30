@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_7395.png
+
+Convert to Markdownhad suggested a different orientation. Mr. Anderson, characterizing the enterprise as a survey rather than an investigation, stated that his instructions were from the Chairman of the Committee: they called for a detailed review of the operation of the Directorate in its entirety. Mr. Walters would mention certain particular interests, noted below, but that did not set limits to the ultimate scope of the survey. Mr. Walters then took over:
+
+a. He expects to do a complete review, from the managerial and substantive standpoint, of the Directorate. His initial interests indicated an auditor's approach to these questions - how budgets are compiled, examination of accounting procedures for regular and special funds, cost systems and the like.
+
+b. He went on, however, to the management aspects which they would also pursue to determine the results of the Directorate's operations - the value of intelligence produced versus the costs involved in procuring it, and areas of possible overlap in collection with the military and with NSA.
+
+c. Specific areas which would be explored, given, as examples, included contingency reserves, the "special retirement fund" (presumably referring to MHMUTUAL), the procedures for reimbursing the State Department for cover and support, proprietaries (how created, their justification, value and effectiveness), safe-houses and "CA cadres."
+
+Mr. Anderson reluctantly agreed to Mr. Shackley's request for a memorandum spelling out these objectives in sufficient detail so that we could take the managerial steps necessary to resolve any conflicts in the priority of the time of our managers and senior operations officers who would be involved in current operations as well as overlapping inquiries from other groups concurrently overseeing the Directorate. Mr. Anderson also asked for any ongoing studies which the Directorate might have which would aid the team in its work.
+
+SECRET
+
+2

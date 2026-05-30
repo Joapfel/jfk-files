@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_4119.png
+
+Convert to Markdown13-00000
+
+R. C. Nagell
+Box 2337, Grd Cen Sta
+New York, N.Y. 10017
+U.S.A.
+
+Mr. Francis X. Plant
+Special Assistant
+Office, Under Secretary of the Army
+Room 1E520, The Pentagon
+Washington, D.C. 20300
+
+USA

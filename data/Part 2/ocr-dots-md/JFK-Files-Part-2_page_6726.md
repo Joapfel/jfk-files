@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_6726.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+SUBJECT: (S) Protection of ~~IJDECANTER~~ Cryptonym
+
+satellite. What the Soviets were able to deduce was devastating
+to American intelligence. The Soviets, based on other
+information they had acquired through signals intelligence,
+concluded that an imaging satellite they had believed to be non-
+operational was in fact operational and actively imaging their
+territory. Since the Soviets had believed it was non-
+operational, they had taken no countermeasures (i.e.,
+concealment) and the US had acquired a treasure trove of
+intelligence. Immediately upon learning the true status, they
+took extensive countermeasures and invaluable intelligence was
+directly and immediately lost.
+
+8. (S) With further respect to question four, we have the quintessential factor for exploitation. If the foreign service believes its asset, they act on the information to the detriment of the United States; if they do not, the United States may escape damage fully or to some degree. This is the critical question that a foreign country must answer and it is the critical information that we must protect vis-à-vis defectors in our fold.
+
+9. (S) In the matter at hand, we are very constrained by what the Russian government knows by virtue of their own knowledge and what they have acquired from the substantially released document and the *Los Angeles Times* article. The Russians know that Sergei PAPUSHIN (i.e., IJDECANTER) defected to the United States; they know or suspect what he told the US; they know or suspect that we fully understood the import of what he said; **they do not know, however, whether we believed him and thus incorporated his information into our operational practices and activities.** And it would be critically damaging today to confirm to the Russians the final piece of the PAPUSHIN puzzle and allow them to have the ultimate benefit from what heretofore has been a US intelligence success.
+
+10. (C) Indeed, as a reference point for this discussion, we can look briefly to the NOSENKO story. Here, also, the Russians knew the first three parts of the puzzle. What they did not know was whether we had accepted his story or not. Indeed, the CIA did not know the answer for a long period of time and this lack of knowledge was crippling to our FI effort against the Soviet Union and our entire CI program for a substantial period of time.

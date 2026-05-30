@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_2171.png
+
+Convert to MarkdownSUMMARY OF EMPLOYMENT
+
+James A. Noel
+
+From 1931 to 1944 I served as a Foreign Service Officer in
+various posts in Mexico. In 1944 I joined OSS/SSU/CIG and from
+that date until 1947, I worked in Europe and Latin America. In
+1947 I again joined the Department of State, and served in many
+posts in Latin America until 1966 when I returned to the United
+States for a two (2) year detail with the Department of Army. In
+1968 I retired from the Department of State and since then I have
+been living in the San Francisco area doing occasional work on a
+consultant basis for the Department of Defense.

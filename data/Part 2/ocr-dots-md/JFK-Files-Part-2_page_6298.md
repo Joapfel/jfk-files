@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_6298.png
+
+Convert to Markdown# THE MICROFILM PORTION OF THE SEQUESTERED COLLECTION
+
+As I noted earlier, there are approximately 72 reels of microfilm in the sequestered collection. (Incidentally, we have arranged to have all of the microfilm records printed in hard copy.)
+
+The decision to microfilm a portion of the sequestered collection was apparently based on two major considerations:
+
+First, the integrity of the sequestered records had to be maintained.
+
+Second, a number of the files requested by the HSCA were active and had to be available to allow people to continue conducting their normal activities.
+
+The solution was to replace certain records with microfilm versions. These records were microfilmed during 1979-80 with the approval of the Assassinations Committee.
+
+## THE CONTENT OF THE MICROFILM
+
+A sizeable portion of the microfilm--approximately 50 percent--duplicates the hard-copy-files. For example, there are 12 reels of material from the Oswald 201 file.
+
+The bulk of the reels consists of files on individuals and organizations, including personnel files of CIA employees. There are also a number of files on anti-Castro organizations. All but a small percentage of the materials are CIA-originated cables, dispatches, memoranda, reports, and correspondence.
+
+There are questions of privacy that we believe the Board may want to consider in determining what information is to be released to the public. Some of the records contain, for example, medical information on an individual.
+
+There are also questions of relevancy that we suggest the Board consider. For example, many of the documents cover sensitive activities that go far beyond the timeframe of the assassination or investigations into the assassination.

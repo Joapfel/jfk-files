@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_3603.png
+
+Convert to Markdown13-00000
+
+SOVIET EXTENDED RANGE IMPACT AREAS
+
+TOP SECRET
+DINAR
+
+33741
+
+VBR

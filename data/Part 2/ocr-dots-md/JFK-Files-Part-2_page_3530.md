@@ -1,0 +1,59 @@
+# JFK-Files-Part-2_page_3530.png
+
+Convert to MarkdownTOP SECRET DINAR
+
+CUBAN ECONOMIC DEVELOPMENT - cont'd
+
+opposed the Second Agrarian Reform Law and is willing to
+use "doctrinally unwelcome" measures to increase production.
+(Page 3)
+
+Cuba is taking further steps to improve its fishing industry,
+including several construction projects in the Chuyima ship-
+yards in the Almendares River, the launching of 18 fishing
+boats, and the sending of an (official mission) to Spain in
+connection with the fishing industry.24 (Page 4)
+
+INSURGENCY AND CIVIL UNREST:
+
+Counterrevolutionary elements apparently attacked an obser-
+vation post on (Cayo de Cristo) on a recent undetermined date.
+(Page 4)
+
+A suspected counterrevolutionary was arrested on 3 December
+in (Guantanamo.) (Page 5)
+
+CUBAN FOREIGN SERVICE:
+
+The Cuban ambassador to the USSR is in Havana for a short
+"vacation." (Page 5)
+
+CUBAN AIR FLIGHT CONNECTIONS:
+
+The Soviet-made AN-12 transport plane being ferried to Cuba
+reached Recife, Brazil, on 5 December, and left there for
+its last stop before it is scheduled to arrive in Cuba on
+7 December. (Page 5)
+
+SHIPPING SUPPORT FOR CUBA:
+
+The US Embassy in Beirut believes that Lebanon may act to
+curtail the use of its ships in the Cuban trade. This
+would result in a significant decline in Cuban shipping
+in free world bottoms. (Page 5)
+
+CUBAN - CHINESE COMMUNIST RELATIONS:
+
+Wang Yu-ping has been named the new Chinese Communist am-
+bassador to Cuba. He is a senior diplomat, but not as high
+ranking an individual as the recently appointed Chinese
+Communist ambassadors to Algeria and the UAR. (Page 5)
+
+BLOC ECONOMIC RELATIONS:
+
+A Bulgarian arms negotiator has returned from Havana to Sofia.
+(Page 6)
+
+ii
+
+# TOP SECRET DINAR

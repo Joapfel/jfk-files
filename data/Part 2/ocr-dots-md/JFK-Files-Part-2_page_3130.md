@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_3130.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+and the Government of Cuba over the lease of Guantanamo
+Bay. So serious was this issue in fact, that the
+Agency agreed
+
+that all Cubans participating in over-
+flights of Cuba would be told that Guan-
+tanamo Naval Base was not to be used as
+a safe haven, and that if they landed
+there, they would be turned over to the
+Cuban authorities. <u>107</u>
+
+The Guantanamo Base also presented a major dif-
+ficulty for the Department of State. Evidence of this
+surfaced in early October of 1960 when it was reported
+that during a meeting of the State Working Group on
+Cuba a suggestion was put forward that the US try to
+influence Latin American nations to approve US reten-
+tion of the base. One proposal had been made that
+this be done through the Inter-American Defense Board
+(IADB), where a resolution apparently was about to be
+introduced asking for a definition of the relations
+between Cuba and the USSR, with the expectation that
+this might force Cuba's resignation from membership
+on the IADB. According to Col. John F. Mallard, the
+Agency's liaison officer with the State Working Group:
+
+In addition, State desires that the
+IADB, make some statement on the impor-
+tance of Guantanamo Bay to Latin American
+hemisphere defense. This statement would,
+in effect, give Latin American approval
+to U.S. retention of this base. <u>108</u>/<br>
+- 120 -<br><br>TOP SECRET

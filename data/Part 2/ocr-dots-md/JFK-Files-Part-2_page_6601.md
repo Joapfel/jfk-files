@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_6601.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>SECRET-NOFORN SPECIAL HANDLING</td>
+   </tr>
+  </table>
+
+OFFICE OF THE SECRETARY OF DEFENSE
+WASHINGTON 25, D.C.
+
+18 June 1962
+
+MEMORANDUM FOR GENERAL LANSDALE
+
+From: Lt. Col. Patchell
+
+Subject: Psychological Operations Group
+
+The meeting held 1430-1600 on 18 June was attended by Mr. Hurwitch, Mr. Bart Wells, Mr. Summ, and Mr. Phillips (State), Mr. Bolton (CIA), Mr. Bob Smith (USIA), and Lt. Col. Patchell. Following are items of interest.
+
+(1.) CIA distributed copies of a student booklet (English and French versions attached). Thirty-thousand copies were printed in Spanish, French, English, and Portuguese in Chile -- sponsored by a Latin American student organization, and primarily for Latin audiences. The booklets will be used on tour of Latinos in Africa and were distributed throughout Latin America and at international youth and student meetings in Quebec and Helsinki. Some copies will be mailed into Cuba.
+
+(2.) CIA presented draft guidelines for overseas posts re Cuba. The group made some minor changes. The guidelines are PRIMARILY FOR USE 26 July.
+
+(3.) State will put out a similar circular to its posts, and USIA will consider doing the same.
+
+(4.) Roundup reports of overseas stations on actions are due within 7 days after 26 July. They are to cable significant actions immediately.
+
+(5.) Hurwitch distributed copies of a draft cable intended to exploit Cardenas incident (copy attached).
+
+(6.) Lt. Col. Patchell asked full exploitation of Mexican defector -- suggesting appearance before OAS Committee, trip through Latin America, etc.
+
+EXCLUDED FROM AUTOMATIC REGRADING; DOD DIR 5200,10 DOES NOT APPLY
+
+SENSITIVE
+
+SECRET-NOFORN SPECIAL HANDLING
+
+This document contains 2 pages.
+Copy No. 2 of 2 copies. Series_

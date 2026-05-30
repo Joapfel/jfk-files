@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_3380.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+79. Minutes of Special Group Meeting of 28 Apr 60 from T. A. Parrott [29 Apr 60?]. S.
+
+Memo for E. Stanulis from J. D. Esterline, 30 Apr 60, sub: Review of Coordination with other Agencies. S.
+
+80. Memo for Chief, JMARC/CI from Jacob D. Esterline, 14 Jun 60, sub: Bureau Stay-Behind Activity. S.
+
+81. Memo for Acting Director of Central Intelligence from J. C. King, 23 Jun 60, sub: Operational Activities of the FBI in Cuba. S.
+
+82. MR from J. C. King, 30 Jun 60, sub: FBI Intelligence Operations in Cuba and Mexico. S.
+
+83. Dispatch to Chief WHD from COB JMASH, 30 Aug 60, sub: Forwarding of Memorandum (UFGA-113). S.
+
+84. Official Routing Slip for Bill Byrne from Don [Ewing], 6 Mar 69, sub: [Review of papers on JMWAVE]. S.
+
+85. Memo for the President through the Secretary of State from Allen W. Dulles, 9 Jul 60, sub: [Briefing of Presidential Candidates] [ER-62-1750]. S.
+Dwight D. Eisenhower Library, Clean-Up Files (Gordon Gray, et al), Box 64, Actions by the President, Miscellaneous Action Notes, 18 Jul 60, "Telegrams to Sen. John F. Kennedy and Sen. Lyndon B. Johnson." U.
+
+Memo for Mr. C. T. Barnes from John H. Dyer, 20 Jul 60, sub: Briefing Material. C.
+
+Memo for Mr. C. T. Barnes from E. A. Stanulis, 21 Jul 60, sub: Cuban Briefing Paper. S.
+
+Memo for the President from Allen W. Dulles, 3 Aug 60, sub: [Briefing of JFK, 23 Jul 60, and LBJ, 28 Jul 60]. ER-60-6067. S.

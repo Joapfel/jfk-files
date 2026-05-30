@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_6423.png
+
+Convert to MarkdownThe Assassination Records Review Board was established by the JFK Act, which was signed into law by President George Bush. The five members of the Board were appointed by President Clinton, confirmed by the U.S. Senate, and sworn in on April 11, 1994. The law gives the Review Board the mandate and the authority to identify, secure, and make available all records related to the assassination of President Kennedy. It is the responsibility of the Board to determine which records are to be made public immediately and which ones will have postponed release dates.
+
+The Review Board consists of the following members:
+
+* Honorable John R. Tunheim, Chair; U.S. District Court Judge, District of Minnesota.
+
+* Dr. Henry F. Graff; Professor Emeritus of History at Columbia University.
+
+* Dr. Kermit L. Hall; Dean, College of Humanities, and Professor of History at The Ohio State University.
+
+* Dr. William L. Joyce; Associate University Librarian for Rare Books and Special Collections at Princeton University.
+
+* Dr. Anna K. Nelson; Distinguished Adjunct Historian in Residence at The American University.

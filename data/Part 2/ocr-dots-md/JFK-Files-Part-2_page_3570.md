@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_3570.png
+
+Convert to Markdownc. Justice Party members will be putting on pressure for early national parliamentary elections. However their party leaders do not believe the Turkish military, which ousted Menderes in 1960, would permit them to take over if they won new elections.
+
+d. They will probably try to work out some rapprochement with the armed forces.
+
+For The President Only - Top Secret
+
+LBR

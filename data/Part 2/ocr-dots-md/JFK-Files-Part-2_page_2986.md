@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_2986.png
+
+secretary.
+
+The Mexico City Station devoted a major part
+of its time to running or supporting operations
+against Cuba; 47 percent of its cable traffic con-
+cerned Cuban operations. Mexico was the only Latin
+American country maintaining diplomatic relations
+with Castro and had the only direct air link to Ha-
+vana. WH Division assigned top priority to recruit-
+ing agents in place in Cuba, and Mexico City Station
+not only ran its own operations but supported the
+tentative plans of other stations.
+
+The variety and volume of technical operations
+created a heavy workload managing safehouses, listen-
+ing posts, and vehicles. For photography alone the
+station had six base houses commanding the entrances
+to target embassies, two mobile photosurveillance
+trucks, and three agents trained in photosurveillance
+on foot. It was such projects that provided informa-
+tion on the visits of Lee Harvey Oswald, President
+Kennedy's assassin, to the Cuban and Soviet Embassies
+
+SECRET

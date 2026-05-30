@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_17.png
+
+Convert to MarkdownS-E-C-R-E-T
+(When Filled In)
+
+MEMORANDUM FOR: DOCO/SA
+
+ATTENTION : Gale W. Allen
+
+FROM : Deputy Director of Security (Investigations and Operational Support)
+
+SUBJECT : FERRE, Antonio Luis
+         #450 945
+
+1.
+
+Reference is made to your memorandum dated 7 January 1964 which requested a Provisional Cover Security Approval to permit Subject, President, Puerto Rican Cement Company, to be made witting of Agency interest in WUBRINY/D in the event his father, a cleared Agency contact, desires to discuss with Subject this interest.
+
+2. In accordance with the provisions set forth in Clandestine Services Instruction No. 10-5 and Clandestine Services Instruction - Field No. 10-5, a Provisional Cover Security Approval is granted for the use of the Subject as described in your request as set forth in paragraph 1, above. This confirms a verbal PCSA granted 5 January 1965.
+
+3. Subjects of Provisional Cover Security Approvals are not to represent themselves as, nor are they to be represented as, employees of CIA.
+
+4. Your attention is called to the fact that a Provisional Cover Security Approval does not constitute complete compliance with the provisions of CIA Regulation 10-3. Therefore, if you should desire at a later date to change the status or use of this individual, a request for approval to cover any proposed change should be submitted to this office.
+
+5. This approval becomes invalid in the event action is not taken within 90 days of the date of this memorandum.
+
+FOR THE DIRECTOR OF SECURITY:
+
+<table><tr><td>R.S. Sparline,<br/>Victor R. White</td></tr></table>
+
+<table><tr><td>S-E-C-R-E-T<br/>(When Filled In)</td><td>GROUP I<br/>Excluded from Auto-<br/>matic downgrading and<br/>declassification</td></tr></table>

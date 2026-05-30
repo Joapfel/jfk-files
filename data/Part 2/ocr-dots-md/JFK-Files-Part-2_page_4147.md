@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_4147.png
+
+Convert to Markdown18 June 1964
+
+# MEMORANDUM FOR THE RECORD
+
+SUBJECT: 303 Committee Meeting - 18 June 1964
+
+## 1. Item I: Autonomous Operations
+
+This was raised in view of Manuel Ray's request for $25,000 and indications that he is attempting to make a new expedition to Cuba in a chartered ship. Various courses of possible action with Ray were discussed, ranging from cutting him off altogether to giving him the money. It developed that Ray is acting inconsistently with the agreement with him which was that he would operate outside the United States. Therefore it was decided that we would tell him that he must abide by the agreement, that he must find a base of operations outside the United States and if he does we will endeavor to secure the release of his ship which is now in Puerto Rico, and that we will give him financial support.
+
+2. With respect to Artime, it was pointed out that Artime's operations are very costly. CIA has put $4.6 million into this operation this year - the future bill will be large, but not as great. FitzGerald reported that Artime planned one hit and run operation a month, but he noted he would be lucky if he could pull off one every 3 months. Bundy seemed to feel Artime was more of a threat than an operator and should be maintained for that purpose and operations discouraged. FitzGerald pointed out this is not practical. It was agreed to proceed with Artime recognizing that U.S. or CIA support of him would probably be "blown". Furthermore it was suggested that he be cautioned to be careful and not follow unduly reckless courses of action.
+
+3. There was a long discussion on the implications of the CIA June 10th memorandum reporting plans of Cuban exiles to assassinate leading Cuban government leaders. This report was taken most seriously by the group. It was felt that the purpose of advising us through CIA of these plans was to put us on notice and therefore we should not fail to take appropriate precautionary actions to see that no assassination attempt of which we had knowledge was carried out. It was decided that appropriate authorities, i.e. Department of Justice and the FBI, should be notified and urged to take appropriate action against the individuals involved.
+
+I took the position that we are overly exercised, that I was inclined to write the whole thing off as Miami cocktail party talk rather than definite plans. Had I seen the Memo before it was distributed, I would have investigated the sources and the credibility of the whole thing before taking action. However the group were more concerned than I and therefore planning to discuss the subject with the Attorney General and possibly Mr. Hoover.

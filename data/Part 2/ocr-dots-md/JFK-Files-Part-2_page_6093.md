@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_6093.png
+
+Convert to Markdown3. As an ARRB member, I envision my relationship and responsibilities to:
+   a) the President to be one of faithfully executing to the best of my ability the provisions contained in the President John F. Kennedy Assassination Records Collection Act of 1992;
+   b) the Congress to be one of fulfilling the purposes of the same legislation to the best of my ability, and to responding fully to requests for information from appropriate oversight groups concerning our progress;
+   c) other executive branch agencies to be one of cooperating to the utmost of my ability to facilitate the review of any of their assassination records and to provide them with full information concerning our activities.
+
+4. I view the job of ARRB Executive Director to be one of organizing staff for the most efficient and effective implementation of the policies and procedures adopted by the Board. Apart from setting policies and procedures, there is no more important task for the Board than hiring the best-qualified Executive Director and overseeing the Executive Director's hiring of staff.
+
+### III. POLICY ISSUES
+
+1. I have not made any public statements-- oral or written-- regarding the assassination of President Kennedy or the public availability of government records regarding this assassination.
+
+2. As an ARRB member, I will be examining security classified records with a view to at least partial public disclosure:
+
+   a) I have had prior experience with security classified records first in working with the Papers of Senator Arthur Vandenberg at the William L. Clements Library at The University of Michigan, where we had to initiate a declassification review of parts of those papers, and, second, in my current duties at Princeton University where we have had to initiate contact with the State Department concerning the declassification review of hundreds of reels of microfilm of the most important state documents as selected by John Foster Dulles himself.
+
+   b) The current security classification system certainly has integrity. I would hope that, in the interest of a fully informed citizenry and accountable public officials, that somewhat more emphasis might be given to disclosure of records after the passage of a specified period of time, allowing for agency

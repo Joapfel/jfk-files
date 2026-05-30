@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_2923.png
+
+Convert to MarkdownTOP SECRET
+
+the Soviets would install offensive weapons in Cuba.
+
+The group proceeded to consider various courses of action open to the United States should the Soviets place MRBMs in Cuba. McCone had a three-part proposal already in hand, calling for 1) an immediate aggressive political action program to awaken Latin America and the Free World; 2) a provocative action against Guantanamo or some other vital American interest, leading to instant United States retaliation; and, 3) immediate commitment of sufficient U.S. military forces to occupy Cuba, destroy the regime, free the people, and establish Cuba as a member of the community of American States. McCone noted that the group was reluctant to consider committing U.S. military forces, however, both because of the magnitude of the task and because of concern about Soviet retaliatory actions elsewhere in the world.
+
+Reaching no conclusions on any course of action, the group at length asked McCone to brief the President on the situation. The following day, McCone reported in detail to the President, adding the personal report of De Vosjoli, who had recently visited Cuba. The President, who appeared quite familiar with the situation, expressed concern, but agreed with General Taylor and McCone that policy decisions should wait until the next day, when he would meet with his principal advisers.
+
+On August 23, therefore, President Kennedy met with Rusk, McNamara, Gilpatric, Taylor, Bundy and McCone to discuss Cuba. The President requested an analysis of the threat which offensive
+
+WORKING DRAFT
+Handle via [BYEMAN] Control System
+
+45
+
+TOP SECRET
+
+BY NO. 018-88
+copy 2 of 2
+
+1/70c

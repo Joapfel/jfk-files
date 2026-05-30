@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_8433.png
+
+Convert to MarkdownSECRET
+
+-39-
+
+4. Persons to whom most attached:
+
+5. Material things to which most attached:
+
+6. Information which could be used to blackmail:
+
+7. Information which could be used to shock or depress:
+
+He could be shocked by potential loss of salary or
+potential Prensa Latina flap, which is his greatest
+fear.
+
+S E C R E T

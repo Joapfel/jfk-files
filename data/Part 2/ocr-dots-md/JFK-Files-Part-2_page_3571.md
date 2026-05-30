@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_3571.png
+
+Convert to MarkdownNOTES
+
+A. **Cuba** The U-2 which flew yesterday's mission over Cuba crashed while returning, about 40 miles north of Key West. Air and sea rescue craft were sent to the scene. An air rescue unit sighted an unopened parachute, a life raft, and oil slick in the crash area. The pilot is presumed lost. There is no indication that the plane was attacked.
+
+B. **Berlin** Local East German troops acting without higher authority appear to have been responsible for turning high powered searchlights on pilots taking off from West Berlin's Tempelhof airfield on 14-16 November. There were five such incidents. A message of 16 November instructed border guard elements to discontinue such acts. There have been no further incidents reported since.
+
+C. **Albania-USSR** A Radio Tirana broadcast has accused Khrushchev of personally releasing Barghoorn for fear that Moscow's wheat deal with the US might collapse. The Albanians are on record as preferring to eat grass rather than to kowtow to the West, but they are not above eating Chinese wheat acquired from Western sources.
+
+D. **Iran-USSR** The Soviet Union's timing seems to be off in Iran. Government sources have reported that a twin engined plane was shot down in Iranian territory yesterday by Soviet jet fighters who violated Iranian air space. The Iranians say that the plane was on a photographic mission in connection with the
+
+(Cont'd)
+
+For The President Only - Top Secret
+
+3/BR

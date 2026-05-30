@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_2149.png
+
+Convert to MarkdownAs has been indicated above, KLOBUKAR has made excellent progress
+in gaining access to the consular community and in maintaining
+personal contact with potential recruitment prospects. He has
+also done extremely well in his direct participation in the
+academic area and in the supervision and direction of his support
+asset; his performance has been **Strong**.
+
+Signed in pseudo on 45a on 12 May 1970
+
+Eugene O'Mara
+
+Chief of Base, San Francisco
+
+Signed in pseudonym on 45 a by employee on 12 May 1970
+Employee
+
+I concur with the rating and narrative comments. Subject has
+done remarkably well in establishing himself within the San Francisco
+diplomatic community.
+
+REVIEWED OFFICIAL:
+
+C/DOI/1
+
+11 June 1970
+
+Signature
+
+Date
+
+SECRET RYBAT

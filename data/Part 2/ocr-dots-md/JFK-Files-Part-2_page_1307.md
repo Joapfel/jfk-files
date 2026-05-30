@@ -1,0 +1,64 @@
+# JFK-Files-Part-2_page_1307.png
+
+Convert to Markdown- 4 -
+
+: eph B. Smith
+
+Box 323 B, Route 2
+Gardners, Pa.
+
+Items 21 and 23, form 57
+
+C. Graduate Training (cont.)
+
+2. University of Pennsylvania 1948-51
+
+a. At Pennsylvania I have taken courses primarily in American history.
+
+b. I received a master's degree, Feb. 1950
+
+c. I have completed course work for my Ph. D. I expect soon to take my doctoral examination.
+
+d. I have taken several courses in foreign area study.
+* Latin American History
+* The U.S. and Latin America
+* Latin American Parties and Politics
+* British Foreign Policy 1919-1939.
+
+e. In addition to the above, I have taken course work in U.S. foreign policy 1990 to date.
+
+II. Research and Publication
+
+A. See pp. 2 and 3, Work Project #1
+
+B. Work Project #2
+
+1. Sponsored by Dickinson College.
+
+2. Scope - to investigate the relation of Dickinson College to the frontier community in which it was established in 1783.
+
+3. I was the sole researcher.
+
+4. Principal sources were: the large letter collection, Dickinson College Library, Church records at Carlisle and Philadelphia (Presbyterian Historical Society), early Carlisle newspapers, (American Antiquarian Society, Worcester, Massachusetts), contemporary writings, local histories.
+
+5. This study was made from Oct. 1947 until June 1948.
+
+6. Methods were historical.
+
+7. Findings and Conclusions
+
+a. Dickinson College, founded 1783, had numerous problems incident to the establishment of any such institution, but intensified by the hostility of frontier society; e.g. financial, disciplinary, recruitment.
+
+b. Frontier society rejects higher education as unnecessary and even hostile to its social goals.
+
+c. That under-developed areas need so-called practical education first.
+
+8. The material was used in the publication of the first volume of materials on early America published by the college under title of "Bulwark of Liberty", June, 1950.
+Also published in part as "A Frontier Experiment in Higher Education", Pennsylvania History, Pennsylvania Historical Association, January, 1949.
+
+9. Two persons associated with this project: Whitfield J. Bell, Dickinson College, Carlisle, Pa.
+Ray Morris, Dickinson College, Carlisle, Pa.
+
+10. I was solely responsible for methods, procedure and writing.
+
+11. The project was promoted by the college as noted in (1).

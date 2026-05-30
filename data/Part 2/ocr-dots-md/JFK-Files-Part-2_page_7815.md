@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_7815.png
+
+Convert to Markdown13-00000
+
+CONFIDENTIAL
+(When Filled In)
+
+<table><thead><tr><th colspan="4">REQUEST FOR DISSEMINATION CHANGE OR CABLE REFERENCE SERVICE</th></tr><tr><td>TO: CABLE SECRATARIAT BRANCH, OC<br/>CABLE REFERENCE SECTION<br/>IA-53 HQS. EXT. 6159, TUBE ES-6</td><th>NAME OF REQUESTER<br/>FROM:<br/>Felicia Mary D.<br/>DIVISION/BRANCH<br/>HT-1 DD0/PLC</th><th>DATE<br/>EXTENSION</th><td>3 Aug 78<br/>1649</td></tr></thead><tbody><tr><td colspan="2"><input type="checkbox"/> It is requested that the dissemination of <br/>IN/DIR NUMBER<br/><br/>STATION NUMBER<br/><br/></td><td colspan="2" style="text-align:center;">be changed as indicated.</td></tr><tr><td colspan="2"><input type="checkbox"/> ADD:<br/><input type="checkbox"/> Recall copies from:<br/><input type="checkbox"/> Change action from:</td><td colspan="2" style="text-align:center;"><input type="text" name="to"></td></tr><tr><td colspan="2">Authorized by: <input type="text" name="authorized_by"></td><td colspan="2" style="text-align:center;"><input type="text" name="name_authorized_by"> F01A</td></tr><tr><td colspan="2">In coordination with: <input type="text" name="coord_with"></td><td colspan="2" style="text-align:center;"><input type="text" name="nameCoordWith"> NAME (type or print) EXT.</td></tr><tr><td colspan="2"></td><td colspan="2" style="text-align:right;">EXT.</td></tr><tr><td colspan="2"><input type="checkbox"/> Please furnish one copy of the cable described. I have <input type="checkbox"/> have not <input type="checkbox"/></td><td colspan="2" style="text-align:right;">CO 100<br/>CO 101<br/>CO 102</td></tr><tr><td>IN/DIR NUMBER</td><td>STATION NUMBER</td><td>DATE 68</td><td>SUBJECT</td></tr><tr><td></td><td>PANDA 6180</td><td>April 6</td><td>VIA WAGL</td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+CONFIDENTIAL
+
+E-2, IMPDET CL. BY: 007622
+
+(47)

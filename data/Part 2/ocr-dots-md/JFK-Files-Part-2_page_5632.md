@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_5632.png
+
+Convert to Markdown# Classification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+I do not know whether you informed yourself about
+the magnitude of our political action program at
+the time--absolutely enormous.
+
+We were trying to follow the Soviets and all the satellites and the Cubans. At the same time, the main thrust of the Station's effort was to attempt to recruit Russians; Cubans and satellite people. 658/
+
+Perhaps the nature of the CIA Mexico City Station's handling of the Oswald case prior to the assassination can best be summed up in Dave Phillips' response when he was asked how he would characterize that handling: "At the very best, it is not professional, at the best." 659/
+
+V. Mexico City Station Reporting of Information Concerning
+Oswald After the Assassination
+
+A. Reporting of information concerning the photograph
+of the Mexico Mystery Man
+
+Even though some people in the Station clearly dis-
+associated the photograph that was described in MEXI 6453
+from Oswald after receiving the 10/11 cable, 656/ it is
+clear that some people still considered it possible for
+some reason that the photograph was of Oswald. In Octo-
+ber, Ann Goodpasture had argued this very point with Win-
+ston Scott. 657/ On the day of the assassination, the
+Mexico City Station cabled Headquarters that it was sending
+
+Classification:
+as soon as possible "copies of only visitor to
+
+294
+
+Classified by derivation:

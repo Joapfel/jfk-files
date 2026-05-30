@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_5952.png
+
+Convert to MarkdownAdministrative - Internal Use Only
+
+6 August 1998
+
+MEMORANDUM FOR: Historical Review Program
+ATTN: JFK Project Officer
+
+FROM: Frieda Omasta
+Associate Information Review Officer, DDA
+
+SUBJECT: CIA IR-19 (DAMRO No. 32)
+
+1. This is in response to your 5 August 1998 memorandum (attached) wherein you requested that the Directorate of Administration (DA) conduct searches on the following names identified in CIA-IR-19 of the 27 July 1998 ARRB memorandum (attached). Specifically, upon the DA's review of the 27 July memorandum, we advised your office that we had no record of ever having been tasked to conduct searches on these names.
+
+Andrew "Andy" Anderson
+Howard Guebler
+Gordon Duane Novel
+Edward Scannel Butler III. Director. Information Council of the Americas (INCA).
+
+2. The Center for CIA Security, CCS conducted a search of memorandum attached) in the Personnel Security Management Data Program/Personnel Security (MDP/PS) database and, based upon the information provided, was able to identify that the names of Gordon Duane NOVEL and Edward Scannel BUTLER are cross-referenced in Volume II of the following security file:
+
+"GARRISON CASE" AIN 0 601 153. Vols I-III.
+
+No records were located in CCS on Howard Guebler or Andrew (Andy) Anderson.
+
+3. Please let us know if you need the volume referred to above. Meanwhile, unless you advise us to the contrary, this concludes DA action on CIA IR-19
+
+4. If you have any questions, please feel free to call me on 31201.
+
+Attachments
+
+Administrative - Internal Use Only

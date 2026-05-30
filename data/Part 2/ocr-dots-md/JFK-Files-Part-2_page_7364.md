@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_7364.png
+
+Convert to Markdown13-00000
+
+ENTRAL INTELLIGENCE AGENCY
+WASHINGTON, D.C. 20505
+
+<table><tr><td>Executive Bureau</td></tr><tr><td>75-2249/A</td></tr></table>
+
+16 JUN 1975
+
+Honorable Elmer B. Staats
+Comptroller General of the United States
+General Accounting Office
+441 G Street
+Washington, D. C. 20548
+
+Dear Mr. Staats:
+
+My attention has been directed to a letter from Mr. Keller, General Accounting Office, to the Honorable William Proxmire dated May 10, 1974, which was placed in the Congressional Record by Senator Proxmire on February 11, 1975. The letter deals with the intelligence community and reviews the General Accounting Office's right to audit and obtain information from the Central Intelligence Agency.
+
+Inasmuch as Mr. Keller has treated a subject basic to this Agency's capability to carry out work mandated by Congress, I believe it would serve a useful purpose to review some of the background concerning the use of confidential funds and their relationship to the audit of CIA over the years.
+
+Mr. Keller notes in his letter that there are "a fairly substantial number of instances where expenditures are accounted for solely upon a certification by the head of the department or establishment involved." The need is clear in the case of this Agency. The necessity to safeguard certain truly vital foreign intelligence secrets has been recognized by the Congress in its direction to the Director of Central Intelligence to protect intelligence sources and methods from unauthorized disclosure. This responsibility was complemented by authorizing certain expenditures "for objects of a confidential, extraordinary, or emergency nature," to be accounted for solely on the certificate of the Director of Central Intelligence. Such expenditures would apply, for example, to a secret agent operating abroad in a hostile climate whose identity must be protected not only so that he can continue supplying the intelligence involved, but also because his freedom--and on occasion his life--weighs in the balance.
+
+Other intelligence activities do not have such obvious security requirements, but are, nonetheless, within the sources and methods concept. Liaison with foreign intelligence and security agencies is extremely important in fields of both positive intelligence and counterintelligence. Such liaisons to be effective depend on the confidence of each service that the other will protect not only the mere fact of the relationships, but also its sources and methods and sensitive information. Compromise of any of these brings not only protests from the foreign liaison service, but in some cases a lessening or even cessation of its cooperation.

@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_6191.png
+
+Convert to Markdown# The Law
+
+The President John F. Kennedy Assassination Records Collection Act was enacted by the Congress and signed into law by President George Bush on October 26, 1992. The law states "All Government records concerning the assassination of President John F. Kennedy should carry a presumption of immediate disclosure."
+
+The law mandates that all assassination-related materials be housed in a single collection in the National Archives and Records Administration (NARA).
+
+The Act defines five categories of information for which disclosure may be postponed, including national security, intelligence gathering, and privacy -- provided there is "clear and convincing evidence" of some harm which outweighs public disclosure.
+
+The law requires all federal agencies to make an initial assessment of whether they possess records relating to the assassination. The agencies themselves will conduct an initial review to determine whether their records may be disclosed immediately or whether disclosure should be postponed. The agencies must then give all records that are not disclosed to the Review Board. The Review Board will then evaluate all agency decisions to postpone the release of records. Once the Board completes its review of an agency's recommendation for postponement, all records, including those that have a postponed release date, will be transferred to NARA. The Act requires that all assassination records must be opened by 2017, with the exception of records certified for continued postponement by the President.
+
+## Authority of the Assassination Records Review Board
+
+The Senate report of The President John F. Kennedy Assassination Records Collection Act of 1992 stated that "the underlying principles guiding the legislation are independence, public confidence, efficiency and cost effectiveness." In order to achieve these objectives, the Act gave the Board the specific powers to:
+
+* direct government offices to provide identification aids and organize assassination records;
+
+* direct government offices to transmit assassination records to the National Archives;
+
+* obtain assassination records that have been identified and organized by a Government office;
+
+* direct government offices to investigate the facts, additional information, records, or testimony from individuals which the Board has reason to believe is required;
+
+* request the Attorney General to subpoena private persons to compel testimony, records, and other relevant information;
+
+* require any Government office to account in writing for the destruction of any records relating

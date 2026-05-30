@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_3529.png
+
+Convert to Markdown13-00000
+
+# TOP SECRET DINAR
+
+## DAILY SUMMARY
+
+6 December 1963
+
+<table><tr><td>This summary of significant information has not been coordinated outside the Office of Current Intelligence. It does not represent a complete coverage of all current reports received, nor does time permit the complete evaluation of all reports which are included.</td></tr></table>
+
+# CONTENTS
+
+## MILITARY DEVELOPMENTS:
+
+An intercepted Cuban military message of 5 December indicated that the Cuban armed forces are giving courses in chemical warfare defense. (Page 1)
+
+## INTERNATIONAL RELATIONS:
+
+Moscow press reports the OAS meeting on Cuban arms shipments. (Page 1)
+
+## CUBAN INTERNAL SITUATION:
+
+Apparitions of Santa Barbara have been reported from Oriente Province. (Page 1) <sup>08</sup>
+
+The Portuguese ambassador in Havana reports his impressions of the reactions to President Kennedy's assassination. (Page 2)<sup>10</sup>
+
+Two government soldiers were killed in southern Oriente Province when a dice game, involving military and civilian personnel, was uncovered and fired upon by troops from Unit 24 1948.) (Page 3)
+
+Dolores Ibarruri, secretary general of the Spanish Communist Party, arrived in Havana from Moscow on 5 December, according to press reports. (Page 3)
+
+## CUBAN ECONOMIC DEVELOPMENT:
+
+Carlos Rafael Rodriguez, minister of INRA, has expressed serious dissatisfaction with Cuba's current agricultural situation and revealed that he disagrees with Castro's emphasis on "ultimate aims" in place of current "tactics." Rodriguez also informed the British ambassador that he had
+
+1
+
+TOP SECRET DINAR
+
+3/7V

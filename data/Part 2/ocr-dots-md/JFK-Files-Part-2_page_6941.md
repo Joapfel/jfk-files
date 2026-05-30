@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_6941.png
+
+Convert to Markdownthe assassination and whether the public interest in disclosure
+outweigh other concerns). Additionally, without such persons on
+the Review Board, it may be difficult to persuade the public that
+all pertinent materials will be disclosed, thus undercutting the
+objective of restoring trust in government. A committee of
+distinguished citizens who know nothing about the subject is not
+likely to inspire trust.
+
+Sec. 6. Grounds for Postponement of Disclosure
+
+Subsection 1 states that disclosure may be postponed if its
+release would (A) reveal "an intelligence asset."
+
+This must be qualified. It should only apply to living,
+covert intelligence agents. Furthermore, if material in the public
+domain identifies or suggests the identity of an intelligence
+agent, the presumption should be that such material shall be
+disclosed unless the agency which employed the agent can show by
+clear and convincing evidence that serious damage to the agent can
+reasonably be expected to result from disclosure.
+
+Subsection 1 states that disclosure may be postponed if its
+release would (B) reveal "an intelligence source or method which
+is currently utilized, or reasonably expected to be utilized, by
+the United States Government. . . "
+
+This provision also must be modified. The first problem is
+that there is no limiting definition of "intelligence source of
+method." Under this proviso, it would be possible to withhold such
+"intelligence sources" as newspapers, libraries, law enforcement

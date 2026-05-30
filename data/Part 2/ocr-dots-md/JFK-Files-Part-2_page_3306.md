@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_3306.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+question of developments of the anti-Castro program
+until late in the fall, following the election of 1960
+and the defeat of Mr. Nixon. At that time Mr. Eisen-
+hower reinjected himself into the program and stimulated
+action to the point where some of CIA's planners hoped
+that -- in addition to the propaganda program which was
+already underway -- paramilitary operations might be
+initiated. Apparently this was feared by Castro,
+too, for in his famous TV broadcast on the Bay of Pigs
+he said:
+
+> When our country was in danger of direct aggression and mobilized itself, it waited for the [Kennedy] presidential inauguration thinking that this man [Kennedy] would do something different, because all in all, we didn't understand why a man who assumed the administration of the United States would want to bear the guilt of someone else's mistakes.*
+
+This was not to be, however, for aside from considerable
+emphasis on the propaganda activity, there was only
+limited support for sabotage activities prior to the
+
+* Raul Roa, Castro's Foreign Minister charged that in the Eisenhower administration Vice President Nixon and General C. P. Cabell, ADCI, were two of the most vigorous proponents of direct action, with Cabell proposing air and naval protection for the invasion and, if necessary, use of US marines to hold the beachhead.
+
+2/

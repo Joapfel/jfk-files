@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_7318.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+Talking Points For Use With Senator Gary Hart On His Proposed
+Contact With QJWYN
+
+1. Senatorial contact with a former CIA agent would run the risk of his exposure to his local government and the press. Because of his former activities and relationships he might be subjected to reprisals from abroad, possible prosecution for espionage at home from his local government and harassment from the media.
+
+2. Active as well as former CIA agents abroad would have further cause to believe that the American intelligence service is incapable of protecting its informants from disclosure. Contacting an agent under the insecure conditions involved would violate the Agency's promise to this former informant to protect the confidentiality of the relationship.
+
+3. Foreign intelligence services with which the CIA is in liaison would find this approach highly unprofessional and risky. It is bound to raise further questions about the dangers of continued confidential cooperation with the CIA.
+
+4. It is possible that the local government involved might lodge a formal protest to the US mission protesting the unusual procedure of a Senate investigating committee interrogating its nationals in violation of its sovereignty without requesting formal permission.
+
+6/24/75
+
+<table><tr><td>Classified by</td><td colspan="2">014359</td></tr><tr><td colspan="3">For personal use only</td></tr><tr><td colspan="3">DISTRIBUTION STATEMENT: All copies of E.O. 11852 and Schedule B (1), (2), (3)</td></tr><tr><td colspan="3">Formally declassified on</td></tr><tr><td colspan="3">Date Impossible to Determine</td></tr></table>
+
+SECRET

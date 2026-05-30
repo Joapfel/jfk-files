@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_8436.png
+
+Convert to MarkdownSECRET
+
+-42-
+
+31 July 1968: Maid reported that when a man came to visit whom Mercedes knew very well, Mercedes did not lift a hand to help Clara. But when a man came whom Mercedes did not know too well, she tries to impress the man by working in the kitchen to impress the man with her feelings of equality.
+
+Maid said Mercedes does not like visitors. She does not go along with the confraternity idea and of establishing good relations with one's comrades. Mercedes does not want this at her house.
+
+When being introduced to a stranger, Cruz is very business-like.
+
+5. Summary of estimate of his poise and self assurance:
+
+Mercedes appears to have a strong personality.
+From her language she does not appear to be well-bred.
+The low-level Embassy employee on occasion joked her about being mulatto. (HMMA 36767)
+
+6. Family Orientation:
+
+Transcribers note: Cruz often gives his wife work,
+He relies on his wife. He talks fast, and sounds
+domineering when talking to his wife. (BLAZEK).
+
+29 March 1968: Mercedes explained Cruz was going
+to Monterrey and she couldn't go. In Cuba he never
+wanted to take her. (Apparently on business trips).
+LISAMPAN/BAKER.
+
+June 1968: Mercedes recounted in a dream she mentioned the name "Oscar" just as Jesus arrived home from outside and overheard her. He got furious. (He is very jealous). When Mercedes asked if Cruz didn't trust her, he said "the danger is in over-confidence"
+
+S E C R E T

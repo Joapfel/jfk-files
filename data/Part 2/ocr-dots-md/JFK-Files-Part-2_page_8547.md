@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_8547.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+ATTACHMENT B (2)
+
+Item No. 49
+
+MSS p. no. 71a
+
+(S) Reference to CIA sponsorship of the _Rome Daily American_ is still classified SECRET because it describes intelligence sources and methods as related to newspaper publications. CCS files contain a newsclip from the September and October 1974 edition of the _Columbia Journalism Review_ which states, "Landon K. Thorne, Jr., the CIA's Bross, and a lawyer for CIA, Benjamin Shute, then a partner in the prestigious Wall Street law firm of Cravath, Swaine, and Moore, now acknowledge that the fourth partner [in the purchase of the _Rome Daily American_ in 1956] was the CIA. [Bross] recently called the arrangement 'atypical' of what the Agency was doing, 'a bad example'. It is questionable whether the remarks made by Mr. Bross, who retired from the Agency in 1971, and Mr. Shute, who left the Agency long before that, can be considered as constituting official Agency disclosure of this information."
+
+SECRET

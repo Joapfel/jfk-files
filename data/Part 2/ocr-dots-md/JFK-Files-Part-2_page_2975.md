@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_2975.png
+
+Convert to Markdown# SECRET
+
+blocs in the country: Barrientos, supported by the campesinos; General Alfredo Ovando Candia, supported by the army; and the Communists and leftists, sup- ported by tough mine and factory workers. To have Barrientos elected, CIA first had to promote a credible election by underwriting the campaigns of both the selected winner and his token opposition at the polls.
+
+The real question was whether elections would be held at all. In 18 months the La Paz Station spent $585,000, first to persuade the armed forces to clamp down on the leftists, then to persuade Barrientos to run, then to convince Ovando he should not interfere, and finally to promote enough politi- cal opposition to make the election plausible. In a genuine tour de force, COS Lawrence M. Sternfield produced what OAS observers called a democratic and honest election--and got the results from the elec- toral tribunal four days before the election.
+
+On 7 April 1964 President Lyndon B. Johnson presided at a White House meeting which laid down general guidelines for CIA action against Cuba. Others at the meeting included Secretary of State
+
+SECRET

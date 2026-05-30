@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_3445.png
+
+Convert to Markdownthe mail opening program except they worried about its security and also thought it would be more effective if expanded. This is how the survey described the project in 1959:
+
+>a. The Project Branch conducts a project of censorship within the US of mail from the USSR which is called HTLINGUAL. Originally this project was developed by the Office of Security at the request of SR Division in 1952. Its purpose was to identify and to obtain samples of handwriting and basic background facts on long established correspondence between persons in the USSR and the United States. Such information was to be used operationally to sustain any communications with secret writing, which would likely pass the Soviet censors and could be picked up in the U.S.A. The interception is done at the central Post Office in New York, and the letters are delivered to the Agency for processing and return. As the need for Soviet communication camouflage lessened with the increase of legal travel to and from the USSR the Project was re-oriented and expanded toward direct CI and FI goals in September 1956, and it was taken over by the CI Staff.
+
+>b. At present this group includes [five] employees in New York and [fifteen] at Headquarters. Those in New York are under the Office of Security; those in Headquarters under the CI Staff. The yearly cost is the total of the various salaries.
+
+>c. The primary purposes of this Project are to produce CE information, operational leads and any positive intelligence that can be gleaned from the mail.
+
+>d. The operation in New York photographs about 50,000 envelopes per month out of a total of about 200,000 letters coming from the USSR to individuals in the U.S.A. via New York. These films are forwarded to Headquarters and examined in the Projects Branch and some 10,000 of them are selected on the basis of Agency interest in the areas of origin in Russia. These 10,000 negatives are then made into prints, and the names of the addressees are recorded alphabetically on IBM cards. From the IBM cards RI makes a continuing record and a copy of this record of names is returned to the Projects Branch.
+
+>e. About 1,000 of these intercepts are opened per month in New York by the Office of Security, the letters verifaxed and copies sent to the Projects Branch at Headquarters. There is a watch list of some 500 names on file both in the Branch at Headquarters and in the Security Office in New York and any letters coming from or going to any of the names
+
+SECRET
+
+50

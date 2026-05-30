@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_4594.png
+
+Convert to Markdown(5) WH/FI will prepare studies of Castro's subversive activities abroad.
+
+2. **S. DEVELOPMENTAL PHASE**
+
+1. Principal Objective: To advance our knowledge of opposition services and to develop a security service for the Cuban Government in exile.
+
+2. Operational Tasks:
+
+a. WH/L/CI: During this second phase, WH/L/CI personnel will:
+
+(1) Screen operational correspondence and cable traffic for leads to CI operations against the Cuban Intelligence and Security Services and the Cuban Communist Party and forward pertinent leads and CI information to appropriate CI Staff component and/or authorized security officers of agencies of U.S. intelligence community.
+
+(2) In coordination with Political Action Section of WH/L, outline an organization for a security intelligence service for the Cuban Government-in-Exile and list its functions in detail.
+
+(3) Continue and/or complete all tasks cited in Phase I.
+
+(4) Staff the FOB with two operations officers and one analyst to perform those functions necessary to the initiation and conduct of secure CI operations and CI protection activities.
+
+b. CI Staff: The SIG, IC, and OPS/WH, as indicated, will carry out the following activities:
+
+(1) Revise the notebook on Cuban Intelligence and Security Services as required (OPS/WH).
+
+(2) Prepare organizational studies and blacklists of Cuban Intelligence and Security Services personnel, and black lists of persons aiding or abetting Cuban clandestine activity, in secret.

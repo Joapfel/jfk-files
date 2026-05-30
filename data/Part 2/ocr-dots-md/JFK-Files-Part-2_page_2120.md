@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_2120.png
+
+Convert to MarkdownSECRET - SECURITY INFORMATION
+
+CONTRACT PERSONNEL
+
+OFFICE OF PERSONNEL
+RETURN FILE TO 5E62, HQS
+
+<table>
+  <tr>
+    <td>NOTICE: This is an Office of Personnel File and subject to 10 day limitation period. This file has been charged to [Name] and is due to be returned to CONTRACT PERSONNEL DIVISION, 5E-62 Hqs., x7841, as of [Date]</td>
+  </tr>
+</table>
+
+30
+
+JOB 25750
+Dated 2/19/82
+
+RETURN
+FORMS 575 101 USE PREVIOUS EDITIONS
+
+KLOBUKAR, Gecell

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_8360.png
+
+Convert to MarkdownSECRET
+
+4. Any questions pertaining to this information may be referred to Mr. William Hopkins on extension 8641.
+
+/S/ TENNAYSON L. ELLIS
+
+EDWARD J. CARROLL
+Chief, ROH/OTS
+
+RQM/OIS/WKHopkins/lms
+Distribution:
+   Orig & 1 - Addressee
+   1 - RI/AM
+   3 - OIS
+
+SECRET
+
+201-525 76
+201-45111

@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_4143.png
+
+Convert to MarkdownSECRET - EYES ONLY
+
+-2-
+
+September 23, 1963
+
+can maintain adequate security. At the same time, in view of the truth that security leaks are more likely to occur when substantial numbers of persons are involved, it seems essential to me that we constantly convey the high importance of security to others who are privy to information about our covert activities against Cuba. May I ask that members of the Special Group take such steps within their areas of authority as they think appropriate, and may I in particular urge that the Central Intelligence Agency, as executive agent for these enterprises, emphasize the importance of security to all those with whom it has necessary business on these matters, so that we can maintain the high level of security set in these recent operations.
+
+McGeorge Bundy
+
+SECRET - EYES ONLY
+
+(page 2 of 2 pages)

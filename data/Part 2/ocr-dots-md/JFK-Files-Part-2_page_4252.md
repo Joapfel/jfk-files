@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_4252.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+-2-
+
+It was estimated that Artime's schedule of one operation per month was overly optimistic; one every three months was about all Artime could accomplish. The decision was to drive home to Artime that his greatest value was not in hazardous hit-and-run actions but in his survival as a continuing psychological threat in being.
+
+Mr. FitzGerald, in discussing the current situation in Cuba, stated that he believed the regime was in considerable difficulty. There has been a large increase in the number of executions and mass arrests. He also cited the fact that an entire CIA Pinar del Rio net has been rolled up by Castro's security forces and the key man executed. The sugar and crop prospects were not good, the world price having dropped. Some of the members were surprised at this picture and stated it did not seem to conform to the daily bulletins. Mr. McCone said that he would ask for a SNIE on the current situation in Castro Cuba.
+
+A paper was discussed on alleged plans which involve the underworld to assassinate certain Cuban leaders. Mr. McCone was somewhat skeptical of the reported plots and stated that he would like to go into the matter further. Others, including Mr. Bundy, felt that the United States was being put on notice and should do everything in its power to ascertain promptly the veracity of the reports and then undertake prevention. It was decided that Mr. Bundy would call the matter to the Attorney General's attention as a matter of law enforcement.
+
+Peter Jessup
+
+Distribution:
+
+* Mr. Johnson
+* Mr. Vance
+* Mr. McCone

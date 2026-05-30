@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_6414.png
+
+Convert to Markdown13-00000
+
+JOINT STAFF PAPERS (147 documents)
+
+Using broad topic guidelines provided previously by ARRB staff, the Joint Staff at the Pentagon has reviewed 40 boxes of records of Joint Chiefs Chairmen Lyman Lemnitzer, Maxwell Taylor, and Earle Wheeler for 1961-1964, as well as JCS central files for 1962 and 1963, and has flagged 147 documents which will enhance the historical understanding of the Kennedy administration, and which some scholars will believe may be relevant to the assassination.
+
+Topics:
+
+(1) ICCCA (Interdepartmental Coordinating Committee of Cuban Affairs) meetings regarding future U.S. policy toward Cuba.
+
+(2) Special Group (5412 committee) meetings and decisions; and covert paramilitary operations against Cuba.
+
+(3) Cuban coup planning.
+
+(4) Vietnam coup planning, and discussion of Diem and Nhu.
+
+(5) OPLAN 34A (covert actions against North Vietnam).
+
+(6) U.S. military strength levels in Vietnam.
+
+Apparent Equities:
+
+Multiple agency equities appear to apply to virtually every document—usually State, OSD and/or NSC. The Joint Staff has stated in writing that it is prepared to expeditiously process these documents for declassification in collaboration with agencies which have equities, and then accession the declassified documents to NARA. Currently the Joint Staff is awaiting guidance from ARRB staff on which of the tabbed folders we desire to have placed in the collection; upon receipt of that guidance, they will commence declassification review.
+
+Home e:\wp-docs\Jointstaff.wpd
+File: 4.0.4

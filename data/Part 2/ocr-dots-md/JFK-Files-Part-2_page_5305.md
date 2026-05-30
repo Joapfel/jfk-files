@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_5305.png
+
+Convert to MarkdownSecret
+
+5 March 1997
+
+Memorandum For: Fred Wickham, DO Focal Point for JFK
+Linda Cipriani, OGC Focal Point for JFK
+
+From: Barry Harrelson ~~BA~~
+JFK Project Officer
+
+Subject: (U) CIA Employees Names in JFK Records
+
+(AIOU) In meetings on March 4, 1997, I raised with David Marwell and Jeremy Gunn my concerns with the large number of employee names scheduled for review in May 1997 and the potential harm to the Agency if most of these names are released. I found both receptive to our concerns and willing to re-open the issue of the release of CIA employees true names with the Board. Marwell cautioned, however, that they could not predict the Board's response and that we should move expeditiously to provide our "evidence" to the Board.
+
+(U) If you agree with my assessment of the situation (see below), I recommend we move quickly to engage upper management and prepare the necessary material. Please provide your response as soon as possible.
+
+**Background**
+
+(AIOU) In March 1996, the ARRB agreed to protect the names of all Agency staff employees that appear in JFK documents until May 1997. The agreement reflected the Board's recognition of the need to facilitate the document review, and that it would take time for the Agency to collect evidence to defend individual names.
+
+(AIOU) Jeremy Gunn's memo summarizing the Board's approach to the release of CIA employee names describes a name-by-name approach and sets categories and specific requirements for the release or protection of an individual. Even if the DO is able to complete the research on all employees protected to date (590), it is unlikely that it will be able to develop the type of evidence required by the Board to protect most individuals. Under a name-by-name approach, we can expect a majority of the names to be released.
+
+CL By: 611637
+CL Reason: 1.5 (c)
+DECL On: X1
+DRV From: PER 9-87;COV 1.1-86
+
+Secret

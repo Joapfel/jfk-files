@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_6524.png
+
+Convert to Markdown(2) The designation of a single point in the Govern-
+ment to be held responsible for supervising the execution of the total
+program,
+
+(3) An intensified and broadened news and propaganda program, including the following:
+
+(a) Underwrite, as necessary, and conduct an information program within each country in Latin America using these themes:
+
+1. An exposition of acts on subversive training, movement of subversives and general subversive programs.
+
+2. Objectives of the Communists within each country.
+
+3. Communist methods of operation.
+
+4. Facts on the decrease in living standards within Cuba since the rise of Castro.
+
+5. Facts on terror and repression in Cuba.
+
+(b) Develop a Pro-American Anti-Communist Press
+
+Many Latin American papers, even the anti-communist ones, are infiltrated by communist agents and many of their columnists, proof-readers and linotypers are bought with communist money. Circulation of these papers is artificially inflated by low prices and underwritten by communist funds. The United States must match this financial investment in news control in order to convey the truth
+
+TOP SECRET
+~~LAP~~ SEC R...

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_3538.png
+
+Convert to Markdown13-00000
+
+TOP SECRET DINAR
+
+CUBAN - CHINESE COMMUNIST RELATIONS - cont'd
+
+While he is, of course, a member of the Chinese Communist party, he is not a ranking party member. He appears to be a lower ranking person than newly assigned Chinese Communist ambassadors to such countries as the UAR and Algeria. The earliest biographic references to him have him as a member of the Chinese Communist Army in 1931. He subsequently became an army political commissar and rose to the rank of general. It is not unusual, however, for Chinese Communist diplomats to be generals. He speaks Russian, but there is no information that he speaks Spanish. For the last year and a half, however, he has been stationed in Peiping and he could have learned the language then. He accompanied Chinese Communist chief of state Liu Shoa-chi on the latter's visit to Cambodia last spring. (CIA FBIS Havana, 6 December, OFFICIAL USE ONLY; BACKGROUND DATA: SECRET NO FOREIGN DISSEM)
+
+BLOC ECONOMIC RELATIONS:
+
+L.P. Kyuchukov, chief of the Engineering Directorate of the Bulgarian Ministry of Foreign Trade, was to arrive in Prague from Havana yesterday and fly on to Sofia today.
+
+Kyuchukov, who is thought to have negotiated Bulgarian arms shipments to Cuba, was noted traveling between Havana and Santiago de Cuba on 21 and 23 November--the third time he has been in Cuba since November 1962. (DIRNSA, 2X/0/QOC/T2810-63, 5 December, SECRET SABRE)
+
+BLOC RELATIONS:
+
+A 4-man Soviet delegation, headed by USSR Deputy Minister of Education Serafim Nikichev, arrived in Cuba on 5 December to spend a month "working on the curriculum of Havana University's School of Social Sciences." Nikichev was accompanied by "academicians" Aleksandr Smirnov, Vassiliy Rayike, and Maria Filipova. The group was welcomed at Jose Marti airport by the Rector and Deputy Rector of the university, Juan Mier Febles and Mariano Rodriguez Solveira, and the school's protocol specialist, Professor Pedro Canas. The delegation's trip to Cuba is the first tangible result of the Soviet-Cuban educational exchange agreement signed in Moscow two months ago. That agreement provides for the loan of Soviet academicians and educational administrators to Cuban schools, the exchange of students and instructors between the two countries, and the use of Soviet texts in Cuba. (CIA/FBIS, Havana, 5 December, UNCLASSIFIED)
+
+NON-BLOC COMMERCIAL RELATIONS:
+
+The US consul in Antwerp has been informed by the Varmi Company of Brussels that it will not sell construction equipment to Cuba; there have been reports that such a sale, perhaps totaling $1 million, was being negotiated. (See Daily Summary of 7 and 13 November.)
+
+-6-
+
+TOP SECRET DINAR
+
+VPJ

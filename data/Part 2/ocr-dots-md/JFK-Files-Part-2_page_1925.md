@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_1925.png
+
+Convert to MarkdownChief, New York Office
+
+30 November 1959
+
+Chief, Contact Division (Support)
+
+Now Case 31785
+
+CASE 82
+yes.59621
+
+1. Commercial Study has requested a Dan S. Bradstreet report on Permindex Ltd., a Swiss Corporation registered in Bern, July 1956, and its affiliate formed in Rome, Centro Indirizzo Commerciale (World Trade Center). We are advised that Dr. Jareno is, former Prime Minister of Hungary, is president of Permindex.
+A-79699
+
+2. Attached is outline of information desired on the two organizations. If the D & B report does not contain the financial information desired, would you please try to obtain this information through your bank sources.
+
+K. M. AIRCRAFT
+
+Attachment
+
+LIGrant:go
+cc: Index
+
+59621
+
+c

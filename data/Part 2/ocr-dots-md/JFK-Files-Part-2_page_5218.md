@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_5218.png
+
+Convert to MarkdownSECRET
+
+Subject: CIA Employees
+
+important for the Review Board to reconsider the laws which
+protect classified information, because they clearly reflect
+a larger US Government policy to protect covert CIA
+employees from disclosure.
+
+7. (U) By Executive order and statute, the President and Congress have made the Director of Central Intelligence responsible for protecting sources of intelligence. In his Directive of 22 January 1946 that established the Central Intelligence Group, President Truman made the DCI responsible for protecting sources. With the establishment of CIA, Congress also gave the DCT this responsibility. The National Security Act of 1947, Section 103(d)(3), codified at 50 USC §403(3)(c)(5), requires the DCI to protect intelligence sources from unauthorized disclosure. In addition, §403(3)(d)(2) requires the DCI to ensure that risks to the United States and those involved in the collection of intelligence through human sources are minimized.
+
+8. (U) Protecting the identity of individuals working for CIA, not only covertly but overtly as well, has been of particular concern to US lawmakers since the establishment of the Agency. For example, with Section 6 of the Central Intelligence Agency Act of 1949, 50 USC §403g, Congress specifically exempted the CIA from the provisions of any law requiring the publication or disclosure of the organization, functions, names, titles, salaries, or numbers of personnel employed by the Agency.
+
+9. (U) In 1980, Congress passed the Classified Information Procedures Act (CIPA) which sets out pretrial, trial, and appellate procedures for criminal cases involving or potentially involving classified information. Working with the Department of Justice and the courts, CIA has successfully protected the names of CIA employees from public release even in criminal trials where there are heightened (i.e., constitutional) considerations favoring disclosure to the defendant of all government information relevant to the defense. CIPA allows for in camera ex parte hearings in which the judge can rule on questions of admissibility and relevancy of classified information, including the identity of CIA employees who may have information pertaining to the defense, before it is introduced either to the defendant, defense counsel, or in open court. In some cases involving CIA, the judge has ordered that CIA information be turned over to the defense, but only in some unclassified form such as in a summary. In other cases, judges have reviewed the classified information and ruled that the harm to national security outweighs the

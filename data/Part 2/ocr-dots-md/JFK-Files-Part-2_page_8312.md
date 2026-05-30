@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_8312.png
+
+Convert to Markdown13-00000
+
+CONFIDENTIAL
+
+SECURITY:
+
+HENS 588
+
+throws some light on the activities of the Tanev clique and
+the Barev brothers.
+
+d. Memorial Services for Nikola Petkov. On Saturday, September 23, 1950, Diko organized a memorial service in Lavrion, commemorating the third anniversary of the hanging of Nikola Petkov. Diko stated that about eighty refugees came to his church service. (Pictures of the occasion, see enclosure No. 10, indicate that about sixty were present.) The majority of the people in attendance were Bulgarians, but there were also a few refugees of other nationalities, a Greek priest and sacristan, and a few town officials.
+
+The memorial service lasted for more than an hour and included a mass, and a speech by Diko. Diko claims that his speech was so moving that all of the refugees cried, including himself. Following the service, Diko laid a wreath at the town soldier's monument and the group repaired to a tavern for refreshments.
+
+The cost of the memorial service, indicated below, was not inconsiderable. Diko states that he paid about half of it himself, and that the other half was paid for from collections among the refugees.
+
+COST OF MEMORIAL SERVICE
+
+| | |
+|:---|---:|
+| 1. Wreath | 100,000 drachmae |
+| 2. Priest | 110,000 " |
+| 3. Wine | 40,000 " |
+| 4. Ceremonial wheat-and-sugar | 200,000 " |
+| 5. Candles | 100,000 " |
+| 6. Food and drink at tavern | 320,000 " |
+
+870,000 "
+
+It is interesting to note that no Gemetoists took part in or attended the memorial service. This was claimed by Diko, and corroborated by a Gemetoist who visited the Embassy early in October to complain about the "high-handed audacity of Diko in pretending to speak for Democracy." (Note: The Peripheral Reporting Unit had been invited to attend the Memorial Service but did not do so since it did not wish to appear to sponsor one refugee group as against another.)
+
+## 3. Comments
+
+Diko is a pleasant, hard working young man of average intelligence. He shows a politician's glibness which is extraordinary in a man of his age. He can talk for hours about
+
+**CONFIDENTIAL**

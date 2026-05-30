@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_2522.png
+
+Convert to MarkdownSECRET
+
+26 DEC
+
+CI 494-78
+
+MEMORANDUM FOR: Contract Personnel Division
+FROM : David H. Blee Chief, Counterintelligence Staff
+THROUGH : Chief, Career Management Staff Manpower and Support Branch/Contract
+SUBJECT : Contract Amendment for Bruce A. BERTOTALLY
+
+1. **Action Requested:** It is requested that the contract for Bruce A. BERTOTALLY, an Independent Contractor, be amended by changing the last sentence of Paragraph S, Allowances, Travel, and Other Expenses, to read as follows:
+
+> "If, in the course of this contract, you are directed to travel or are authorized to incur other expenses, reimbursement of such expenses will be made on a commuted rate basis, based on constructive cost, while in the Washington metropolitan area. This commuted rate sum will not be reduced by any operational entertainment that may be provided to you."
+
+2. Background: Because of the current wording in paragraph S of BERTOTALLY's contract, C/PCS/CSS/B&F believes that a reduction in BERTOTALLY's commuted rate entitlement must be made when operational entertainment (meals) are provided him by his case officer. This interpretation is based on the present wording in the contract stating that reimbursement for expenses will be in "substantial accordance with CIA regulations." Since under CIA regulations a reduction in per diem is effected when meals are provided by the Government, C/PCS/CSS/B&F believes the language of the contract should be amended to permit operational entertainment (meals) to be provided to Subject without resultant deduction in his commuted rate reimbursement.
+
+3. All other terms and conditions of the contract remain in full force and effect.
+
+David H. Blee
+
+CONCUR:
+
+C/CMS
+
+SECRET
+
+DERIVATIVE CL BY 063765
+☐ DECL ☑ REVW ON 26 Dec 62
+DERIVED FROM 09C.1

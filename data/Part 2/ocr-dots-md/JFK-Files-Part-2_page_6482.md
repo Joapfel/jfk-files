@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_6482.png
+
+Convert to Markdown13-00000
+
+TOP SECRET SENSITIVE
+
+(1) Introduce into Cuba a "special team" to obtain information which would assist in making a decision to support the insurgents. This team, composed of several persons representing DOD, State, and CIA, would make contact with the coup leaders within twenty-four hours of the start of the coup if the US had prior knowledge of the plan, probably later if not. The report of the findings should be received by CIA within twenty-four hours after the team's arrival on the island but this might not be possible without prior knowledge of the insurgents' plans. In any event, American reliable reports from trained observers in Cuba would be of great value to making a decision to intervene in order that the US would not commit its prestige to the support of an uprising which might collapse prior to the point at which US help has become effective enough to sustain and expand it. (The special team, augmented as appropriate by CINCLANT, would remain in Cuba as a liaison element with the Provisional Government if the US intervened and would be directed to report immediately to CINCLANT for operational control at the time the decision was made to intervene.)
+
+(2) Order forces needed to establish an air and sea blockade of Cuba to take assigned stations in preparation for implementing the blockade; commence generating and positioning forces required for the implementation of CINCLANT OPLANS 312 and 316.
+
+c. A recommendation to intervene, based on a multiple source intelligence assessment including the special team's report, would be made to the President. This would be the critical decision because, once made, certain actions would ensue immediately and, henceforth,
+
+4
+
+TOP SECRET SENSITIVE
+
+UNCLASSIFIED
+
+UNCLASSIFIED SENSITIVE

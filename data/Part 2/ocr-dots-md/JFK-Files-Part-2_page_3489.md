@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_3489.png
+
+Convert to MarkdownSECRET
+
+20 April 1963
+
+MEMORANDUM FOR: Mr. Kirkpatrick
+
+DCI does not want to meet the Board with Cottrell and requests that you advise the Board that Cottrell is not privy to many operational matters. Your suggestions seemed agreeable to Mr. McCone.
+
+W. Elder
+
+SECRET

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_6565.png
+
+Convert to MarkdownThe proponents in DoD of a more cautious approach are sensitive to the commitment of U. S. military resources in the unconventional field at the expense of implicit responsibilities in the conventional area. There is some opposition on moralistic grounds and there is concern that the inability to maintain security in any sizeable covert or clandestine operation could subsequently reflect adversely on the military establishment or the professional military as a group. Other objections include a reluctance to assume the responsibilities and risks entailed in operations of this nature and a preference to play a supporting role to the "professionalism" of CIA. Some bureaucratic or organisational lethargy may also influence military views.
+
+In the past, the military has played an essential role in three major categories -- money, men and materiel. From the fiscal standpoint, the Department of Defense can provide vast expenditures with relatively great flexibility.
+
+The vast resources in manpower of the DoD (with military technical and linguistic skills, overseas experience, physical conditioning and personal dedication and aggressiveness) provides a very lucrative potential for DoD participation in clandestine and covert actions. The major problem in this connection is the separation of the individual from the military service. The mechanics of individual cover, dummy records, and the administrative processing is essentially no great problem. The difficulties appear in the consideration of family and military associations. It is relatively easy to quickly isolate and "sheep dip" an air crew or a small boat crew for one short mission; however, this process is not easily extended for any protracted period. There is usually a requirement to consider carefully the pay and allowances of military personnel operating independently or in conjunction with CIA personnel on clandestine and covert operations.
+
+The material assets of the Department of Defense can play a major role in CIA's overall operation. DoD can provide cover for many of CIA's training, supply and storage installations. DoD is involved in surveillance activities. The DoD inventory of aircraft
+
+TOP SECRET
+10th
+SECRET KEY

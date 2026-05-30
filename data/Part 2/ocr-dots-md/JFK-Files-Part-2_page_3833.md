@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_3833.png
+
+Convert to Markdownby working on the outside,
+
+8. In addition to his coal company, Mr. HUGHES stated he has various other business interests in Chicago, Florida and other parts of the United States. He is a partner in a real estate venture in the Ft. Lauderdale, Florida area. Mr. HUGHES claims a part-ownership of the Maryland Hotel in Chicago.
+
+9. Mr. HUGHES said that he is a personal friend of Mr. Hugh HEFNER, founder and operator of the Playboy Club chain. Mr. HUGHES said that for a few years in the early 1960's, he was the owner of the Playboy Club in New Orleans, Louisiana. He founded the New Orleans Playboy Club and later, disposed of it because it was unprofitable.
+
+10. Mr. HUGHES said he has been estranged from his wife for several years. She has refused to give him a divorce. The wife lives in Chicago with the children of the marriage. Mr. HUGHES said he has an apartment in the Carriage House, Chicago.
+
+11. Mr. HUGHES further said that he is "not perfect" and it is no secret that he has been involved with a lot of women over a period of years. Mr. HUGHES indicated that women seem to be attracted to him. He admitted being a "soft touch" for people in need.
+
+12. Mr. HUGHES claimed contacts with a number of important people in politics, entertainment, business, sports and society. He said he is a personal friend of entertainer Frank SINATRA. Mr. HUGHES claimed that people are always calling on him for political and business favors. These people think he can get things done.
+
+13. Mr. HUGHES said that between 3:00 p.m. and 6:15 p.m. on 18 March 1969, his office received telephone calls (four) from a "Mr. ROSE" on a "Mr. BARRON" calling for "Mr. ROSE", requesting that he come to Room 551, Ambassador East Hotel, for some urgent matter. On two of the calls, the caller identified himself as a CIA Representative. The above calls were taken by either his secretary (Marilyn) or his office manager (Mr. WARD).
+
+14. After the last call, Mr. HUGHES said he tried to call Agent FAY at the FBI, but he was gone for the day. Mr. HUGHES then called Room 551, above hotel, and asked "Mr. ROSE" what the matter was all about? What was so urgent? Was he with the Central Intelligence Agency? Was he with the United States Government? Mr. HUGHES said "Mr. ROSE" avoided the point blank question of whether he was with the Central Intelligence Agency, "Mr. ROSE" parried the direct question with the remark, "I said CIA". Mr. HUGHES further related that "Mr. ROSE" wasn't going to admit he was representing the Central Intelligence Agency. Then Mr. HUGHES told "Mr. ROSE" that the whole matter was so
+
+13-00000

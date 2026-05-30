@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_8900.png
+
+Convert to Markdown13-00000
+
+Top Secret
+
+(SEVENTH DEPARTMENT - January 1962-January 1964)
+
+who was [erroneously] considered to be a CIA officer. SHAKHOV "maybe" had some contact with MARK in 1960 or 1961, but NOSENKO did not know the substance of it. A counter-intelligence officer of the First Chief Directorate, S.M. GOLUBEV, had once been on a delegation with SHAKHOV and he had noted "little details". While SHAKHOV was in the United States, earlier, he had been terminated [as an agent] by KGB officers who had submitted a report stating that SHAKHOV liked life in the United States, American products, and money. In that KGB report he was depicted as "not good" and 'not wanting to work as an agent".
+
+NOSENKO stated that SHAKHOV had served with the Ministry of Foreign Affairs in the United States and that during that service he acted as an agent-recruiter for the KGB. SHAKHOV was permitted to travel abroad even though suspected of being an American agent, because he belonged to the Ministry of Foreign Affairs, and "the KGB could do nothing about his trips abroad". "There was no proof, only suspicions, and furthermore, SHAKHOV was a member of the personal staff of the head of the Soviet delegation, S.K. Tsarapkin." According to NOSENKO, SHAKHOV was not and never had been a KGB officer.
+
+Comment: SHAKHOV has served in and visited the United States since 1942, when he was assigned to the Soviet Consulate General in New York. He attended the 1945 Conference on International Organization in San Francisco, and he had attended a number of sessions of the UN General Assembly. Most recently SHAKHOV was assigned to the U.S. in 1963 as a member of the Soviet Mission to the UN. KGB officer RASTVOROV identified him as an MVD [KGB] officer whom he is certain he saw at MVD Headquarters in Moscow,
+
+a sensitive source identified him as "an employee of the KGB": and KGB defectors PETROV and DERYABIN have reported that from a photograph, SHAKHOV'S face "was familiar". An FBI source, however, in 1964 said that SHAKHOV was a "pure diplomat" and that to his knowledge, SHAKHOV had engaged in no Soviet intelligence activity until that time.

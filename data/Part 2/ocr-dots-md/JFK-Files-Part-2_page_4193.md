@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_4193.png
+
+Convert to Markdown3 December 1963
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Discussion with the President at his residence on Sunday, Dec. 1 - 10:00 o'clock - about 30 minutes. No one was in attendance.
+
+1. Reviewed a series of reports. There was no Checklist.
+
+2. [The President asked about news from Venezuela, particularly concerned about Chenault.] 98
+
+3. [Briefly reviewed a clandestine report from Bonn as a means of indicating sources to CIA not available to others.] 98
+
+4. [Reported to the President that the UN Commission to Saigon felt a bit critical towards the U.S. presence; however we are in some doubt as to whether they will include such criticism in their public report.] 98
+
+5. Briefly reviewed the final report on the Alvarado case in Mexico City.
+
+6. The President then brought up the question of men in government. Emphasized the need for men, particularly young men. I urged the President to discuss this matter with the Business Council and with the AFL-CIO group. He said that meetings would be arranged this coming week.
+
+7. [I advised the President that I was to meet with Halaby to pursue the SST problem.] 98
+
+8. [I requested the President to instruct Bundy that Memorandums of Conversation with Heads of State should be distributed to me automatically. Also that the State Department be instructed to send such Memorandums to me. The President agreed.]
+
+NOTE: This should be followed up by Mr. Cline.
+Bundy will apparently discuss this matter later
+with the President who agreed that such distri-
+bution should be automatic except in very special
+circumstances in which he wished distribution
+held to his own personal files for reasons of
+his own choice. I could take no exception to this
+decision.]
+
+9. We should contact Hoover concerning identification of people sending in ads and letters to the Dallas newspapers.
+
+NOTE: I should call Hoover concerning this.
+
+JAM/mfb (tape)
+
+5/MC

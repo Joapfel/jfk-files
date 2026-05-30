@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_3519.png
+
+Convert to Markdown13-00000
+
+TOP SECRET DINAR
+
+CUBAN AIR FLIGHT CONNECTIONS:
+
+(Spain) has approved regularly scheduled Havana-Madrid flights by CUBANA airlines, according to an intercepted message of 7 December. It was previously reported that the (Spanish) Government was unwilling to reduce these flights because it believes the connections are vital to (Spain); however, the (Foreign Ministry said it would limit CUBANA flights to Havana-Madrid-Havana without stops in Algiers or Prague, and would refused landing to Soviet-built CUBANA aircraft.) (See Daily Summary of 18 November.) It has also been reported that CUBANA is assured of capacity passenger loads for the Havana-(Madrid) service and plans to pool air freight from all of Western Europe for delivery to Havana via (Madrid), thus assuring full payloads both ways. (See Daily Summary of 4 December.) (NSA 2X/OQDT/T211-63, 8 December, SECRET SABRE; Background information: NO FOREIGN DISSEM)
+
+SHIPPING SUPPORT FOR CUBA:
+
+Argentina is reportedly attempting to stop one of its ships--the SS ANAMAR--from delivering a cargo of coffee to Cuba, despite the fact that there are currently no legal restrictions against Argentine ships calling anywhere in the world. The ANAMAR left Brazil on 1 November with a cargo of Brazilian coffee, purchased by the USSR and destined for Cuba. (See Daily Summary of 8 November.) The Argentine Foreign Ministry informed US Embassy officials that it was determined to prevent the ANAMAR from going to Cuba because of potential unfavorable press reaction. Argentina wants to avoid legal and financial entanglements in the matter; however, it is determined to stop the ship and is reportedly even considering some type of provocation which would force the ship to put into Puerto Rico. The owners of the ANAMAR are equally adamant that the ship will not go to Cuba; reportedly they had agreed to ship coffee from Brazil to some Central American country to pay some back bills, and were only informed later that the shipment would go to Cuba. According to the owners, the ship is now lying off the coast of Brazil awaiting resolution of the problem. The owners reportedly stated they will sink the ship rather than go to Cuba. (Am Emb Buenos Aires 1017, 4 December, CONFIDENTIAL)
+
+(OAS) DEVELOPMENTS:
+
+(Brazilian OAS delegate Penna Marinho) reported to his government from (Washington) on 5 December that several (OAS delegates) have been impressed by the Cuban claim that the weapons found in Venezuela last month had actually been planted there by the United States.
+
+29
+
+24
+
+29
+
+08/06
+
+61PJ
+
+-7-
+
+TOP SECRET DINAR

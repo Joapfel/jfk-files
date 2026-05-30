@@ -1,0 +1,109 @@
+# JFK-Files-Part-2_page_5577.png
+
+Convert to Markdownone, or I am not aware of anyone
+those officers concerned with this
+of any former Soviet intelligence
+from they spoke about this matter
+someone did, I never heard of it.
+and, beginning in April 1964, would
+to Oswald and the problems which
+Oswald constituted a major area
+
+other areas which posed equally inter-
+ich more and which had occurred
+which obviously is not easy for us
+
+d decision made the decision as to who
+4?
+group.
+
+ria that he used to pick his inter-
+
+us Nosenko's English was not good,
+it is one of the aspects of the CIA
+people because you then lose. In the
+uly hostile guy who is liable to go
+ther side, and so you don't want to
+at a good idea to simply bring a lot
+died the case and became in depth,
+the officers that they had available
+
+conversations about a week ago, it is
+ogated Nosenko about the Oswald
+Oswald, he didn't know anything
+Oswald at all. Is there any reason
+can tell us?
+
+thought the point was that he had,
+the CI debriefings or interrogations.
+about Oswald. I am not sure very
+than was available at the time.
+
+chosen was because he was level-
+ing to be with the case for the
+That is why he was used. And his
+of many, he is a very good officer.
+
+that he wasn't what you are saying,
+find that difficult to believe. But I
+
+a hypothetical situation, where I
+knew nothing about Oswald other
+you think that was unusual that
+already who knew about Oswald, at
+n A to Z, everything that the CIA
+unusual, that they didn't do that?
+
+was the other point I made to you
+let me be frank, we spoke to the
+r knowledge is gained from that,
+ped up deposition that what I say
+s, but my recollection of it is that
+perience, and my question is would
+
+cause there were very few people,
+leed elsewhere who had a lot of
+of very many hostile CIA debrief-
+probably otherwise, either abroad,
+
+might have had experience, but I know it might sound strange. There just wasn't
+squads and squads of highly trained fluent Russian speaking CI experienced
+interrogators.
+
+Mr. KLEIN. One thing I would point out to you is that I have listened to a number of tapes, and all of the ones I have listened to were totally in English, there was no Russian.
+
+Mr. MURPHY. Yes,
+
+Mr. KLEIN. My question is, was the questioning of Nosenko considered a major operation in the Bureau in 1964?
+
+Mr. MURPHY: It was an important operation, an important case.
+
+Mr. KLEIN. And yet there was nobody with interrogation experience who could be used to interrogate him?
+
+Mr. MURPHY. I am sure some of the people had interrogation experience. I mean [CIA employee] himself had a lot of background in this field. I can't explain why the officer who debriefed him on Oswald did not have prior briefing on Oswald except what I mentioned to you the other day, because it was not a thing that we thought we were going to get through on, because we were weak in that area at that time.
+
+Mr. KLEIN. Was Nosenko ever given any drugs?
+
+Mr. MURPHY. Not to my knowledge.
+
+Mr. KLEIN: Were there ever any conversations in which you took part about whether to give him drugs in order to get him to tell the truth?
+
+Mr. MURPHY. There were many, many conversations all the time about various things that could be done, all the techniques that are known, to get him to talk, but as far as I know and in discussions with the medical officer who handled the case, there was never any decision made or any attempt made to use these, because none of them appeared to be likely to produce results and they all would be very harmful and, therefore, not produce results.
+
+Mr. KLEIN. Between 1964 and 1967 when you lost control over the case, in those years, it is your statement that if any drugs were given to him, to get him to tell the truth, you would have known about it, and no such thing happened?
+
+Mr. MURPHY. That is correct.
+
+Mr. KLEIN. Are you aware that Nosenko was given a lie detector test in 1964, in April?
+
+Mr. MURPHY. Yes, sir.
+
+Mr. KLEIN. Do you know the result of that test?
+
+Mr. MURPHY. It indicated he was lying on several key points.
+
+Mr. KLEIN. Do you have any reason to believe that test was invalid?
+
+Mr. MURPHY. No.
+
+Mr. KLE

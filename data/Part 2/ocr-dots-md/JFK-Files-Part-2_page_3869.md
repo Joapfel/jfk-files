@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_3869.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+f. NOVEL's New Orleans attorney, Steve PLOTKIN, said he "served as an intermediary between the CIA and anti-Castro Cubans in New Orleans and Miami before the April, 1961, Bay of Pigs invasion. Plotkin maintained, though, that Novel had 'little or nothing to do with the Bay of Pigs invasion and certainly had absolutely nothing to do with the assassination of President Kennedy.'" (The Washington Post, 26 May 1967.)
+
+11. On 7 May 1967 NOVEL again telephoned the FBI's office in New Orleans. He said that in the near future GARRISON would accuse the FBI of possessing originals of five letters: one from Clay SHAW to David FERRIE, one from Lee Harvey OSWALD to SHAW, one from FERRIE to Jack RUBY, one from RUBY to OSWALD, and one from Senator and former Attorney General Robert Kennedy to FERRIE. He added that GARRISON has a typewriter which FERRIE owned in 1963 and also has two typewriters, personal and business, belonging to SHAW. He said that GARRISON's chief investigator, William CURVICH, has a close relative, living in Russia, who was instrumental in designing the MIG. He remarked that GARRISON plans to subpoena an attorney. му MARTIN, allegedly associated with CIA. He said that Layton Patrick MARTENS was the "ether" marine probably involved in the Houna bunker burglary. (FBI memorandum DBB 80563, 9 May 1967.) (Comment: Mr. Arthur Deoley of CI/R&A knew a Walter SHERIDAN (see P3) who is believed identical with the Walter SHERIDAN of this report, who was an FBI special agent, and who worked for Senator Robert Kennedy when he was Attorney General.)
+
+12. On or about 11 May 1967 GARRISON accused two lawyers, one of them PLOTKIN, of receiving CIA money. "We know that Mr. Plotkin has been receiving money, if only through an intermediary, from the CIA." Both lawyers denied the charge. (New Orleans, AP, 11 May 1967.) GARRISON later broadened this charge to include all defense attorneys. "Every lawyer involved in this case, without exception, involved in the attempts to derail the investigation, has been connected by us with the Central Intelligence Agency, Garrison said." (Washington Post, 29 May 1967.)
+
+SECRET
+EYES ONLY

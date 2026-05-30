@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_6842.png
+
+Convert to Markdown13-00000
+
+Serial Removal Charge Out.
+4-674 (Rev. 7-8-73)
+
+Subject HENRY WILLIAM GRUNEWALD
+***
+
+This serial, the original memorandum from the FBI to the Attorney General dated 3/16/53 , which was returned to the Bureau signed by the Attorney General authorizing FBI to conduct electronic surveillance, has been permanently removed for retention in the per memorandum to dated 7-13-73. See 62-115687-1 for details and where maintained.
+
+Removed By 343 Date 1/21/74
+
+Complete File and Serial Number 65-6165-124
+
+ALL INFORMATION CONTAINED
+UNDER TO BE UNCLASSIFIED.
+DATE 5/19/82 BY spartaples
+12-27-89 spsa.47+

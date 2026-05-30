@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_6866.png
+
+Convert to MarkdownIn May 1963, Secretary of Defense Robert McNamara met with military advisers in the eighth of a series of conferences on Vietnam in Honolulu, Hawaii. Part (a) of this exhibit includes all of the material that had been publicly released on the conference prior to Review Board action (a 6-page summary published in *Foreign Relations of the United States*) and part (b) includes the title pages of the full 213-page *Record [of the] Eighth Secretary of Defense Conference* from the Joint Chiefs of Staff Official File that has now been opened in full. Prior to Review Board action, the memorandum had been excluded from automatic regrading and declassification and could presumably have remained classified forever. A stamp on page 1 discloses that the document was systematically reviewed by JCS In May 1989, and the classification of Top Secret was continued. The document was opened in full at an ARRB declassification session in July 1997.
+
+## Exhibit E.
+
+Monthly Operational Report 1-30 September from the Chief of Station, Mexico City to Chief KURIOT, October 18, 1963.
+
+The CIA typically is reluctant to release information regarding technical surveillance. This document is a CIA monthly operational report for Mexico City for September 1963, a period that includes Lee Harvey Oswald's arrival in the Mexican capital. The attached form discloses that this document was reviewed in 1993 and postponed in its entirety. It was opened in full in 1995 after a Board vote.
+
+## Exhibit F.
+
+NSA SIGINT product report, November 26, 1963.
+
+The Review Board has had some success in releasing NSA records. This document discloses NSA's intercepts of communications related to Cuban military alerts after the assassination of President John F. Kennedy. It was originally unavailable to the public in any form and was exempt from automatic declassification. This document was released with sanitizations by Board vote.
+
+## Exhibit G.
+
+Memorandum to McGeorge Bundy from Gordon Chase, June 15, 1964. Subject: Assassination of Castro.
+
+This document from the files of the National Security Council was originally classified "Secret" and was exempted from declassification in 1976. The NSC agreed to release it in full after discussions with the Review Board in 1998.

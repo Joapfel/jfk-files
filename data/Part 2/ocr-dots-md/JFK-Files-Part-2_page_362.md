@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_362.png
+
+Convert to Markdown<table><thead><tr><td colspan="2">INDEX: ☐ YES ☐ NO</td><td rowspan="3">CLASSIFIED MESSAGE</td><td rowspan="3">TOTAL COPIES 56</td></tr><tr><td colspan="2">X-REF TO FILE NO.:</td></tr><tr><td>FILE RID ☐ REF. TO BRANCH ☐</td><td>DESTROY ☐ SIG.:</td></tr><tr><td colspan="4">FROM:</td><td colspan="3"><table><tr><td colspan="2">SECRET</td><td colspan="2">EXCLUSIVE FILM AUTOMATIC DETECTION AND DECLARATION FROM<br/>PERSON/UNIT NOTIFIED</td></tr><tr><td>REPRODUCTION PROHIBITED</td><td></td><td></td><td></td></tr></table></td></tr><tr><th>ACTION</th><th>ADVANCE COPY</th><th>UNIT</th><th>TIME</th><th>BY</th></tr></thead><tbody><tr><td>[Signature] <span style="font-size:larger;">✓</span> RID COPY</td><td><input type="checkbox" checked disabled></td><td><input type="checkbox" disabled></td><td><input type="checkbox" disabled></td><td></td></tr><tr><td>INFO<br/>FILE: <span style="text-decoration: overline;">JVR</span>, c/w HWE, c/f E12, c/f E18e, c/f E19, c/f C5/50G, c/f 51D2, <span style="text-decoration: underline;">c/f 064</span>, c/f D0M3</td><td colspan="4"></td></tr></tbody></table>
+
+SECRET 261845Z CITE MEXICO CITY 9371
+
+DIRECTOR INFO JMAAVE
+
+KAPOK TYPIC LIRING
+
+REF: MEXICO CITY 9346 (1245539) *
+
+26No 1a: 46965
+
+1. LIRING-3 TOLD WALLACE 3. ROWTON HE MET WITH OSMANI CIENFUEGOS ON REF TRIP BUT RESULTS SOMEWHAT LESS THAN HOPED FOR POSSIBLY DUE NAIVE MANNER WHICH LIRING-3 PRESENTED HIS PLANS TO CIENFUEGOS.
+
+2. ACTIONS LIRING STAFF AS LIRING-3 LEFT FOR HAVANA SEEMED INDICATE CUBANS NOT READY FOR LIRING-3 VISIT. LIRING-3 OBTAINED OWN VISA PRIOR DEPARTURE THROUGH FRIEND IN HAVANA, ARNOL RODRIGUEZ CAMPS, AND MADE PLANS DEPART 4 NOV. THAT DAY, HOWEVER, EMBASSY TOLD HIM VISA NOT COMPLETE, NEEDED SIGNATURE, AND HE UNABLE DEPART. LIRING-3 INDIGNANTLY TOLD REGINALDO CEPEDA CUBANS DID NOT TRUST HIM SINCE THERE NO REASON FOR DELAY. LIRING-3 TOLD AMBASSADOR HE LEAVING NEXT PLANE, 6 NOV, OR WOULD NOT GO AT ALL. IN PROCESS LIRING-4, ANGRY OVER APPARENT STALLING, WENT STORMING TO AMBASSADOR CLAIMING THERE NO REASON FOR DELAY. STATION BELIEVES THIS PARTLY REASON LIRING-4 NO LONGER WORKING INCONSULATE.
+
+SECRET
+
+Great debt
+where is he going now?

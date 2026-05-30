@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_3170.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+the dissident elements located within the country had gone by the board. What was now to be undertaken was an amphibious assault in strength -- the strength as yet to be determined -- with the concomitant requirement for heavy air support for resupply and possibly for military support as well. Indicative of the confusion which surrounded this period when the concept was changing were Jake Esterline's remarks shortly following the collapse of the Bay of Pigs when he testified before the Taylor Committee. It appears as though Esterline had been informed -- incorrectly as it turned out -- that in his testimony of 1 May 1961 Lt. Col. Frank Egan had indicated to the committee that the strike force concept has been in being since his EOD in June 1960.*
+
+In rebutting what he thought Egan's testimony had been, Esterline reported:
+
+> My recollection is that Lt. Col. Egan came to us about June 1960 and that he
+
+* Egan had actually testified that following the Guatemalan revolt he had been sent down to organize the brigade, and he stated that the number of Cuban trainees had been on the order of 420 on 20 November 1960 and had risen to nearly 600 by the first week of December. 20/

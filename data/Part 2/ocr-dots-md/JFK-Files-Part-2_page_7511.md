@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_7511.png
+
+Convert to MarkdownPersonal Misc.
+
+1. Very adept diplomat - finds it easy to adopt conversation to group he is with.
+
+2. Excellent chess player, patient with both adults and children.
+
+3. Has dasha near Moscow.
+
+4. Reads, writes, and comprehends English well, but speaks it with less proficiency. Reportedly speaks it much better after few drinks. (He is careful about drinking, if he drinks at all, in relation to attending conferences.)

@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_3551.png
+
+Convert to Markdown120000
+104-10302-10022
+
+TOP SECRET
+NOFORN
+
+COPY NO. 107
+SC NO. 00550/63
+
+29 November 1963
+
+DAILY
+SUMMARY
+
+CENTRAL INTELLIGENCE AGENCY
+THIS DOCUMENT CONTAINS CODE WORD MATERIAL
+
+GROUP I
+Excluded from
+automatic downgrading
+and declassification
+
+NOFORN
+
+TOP SECRET

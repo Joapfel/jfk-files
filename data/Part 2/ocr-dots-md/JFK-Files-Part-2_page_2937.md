@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_2937.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+United States would continue the late President Kennedy's Vietnam policies as they had been confirmed at a mid-November meeting in Honolulu. McCone also observed that, for the first time, he had received an indication of what the Johnson tone would be.
+
+McCone did not brief Johnson on November 25, the day of President Kennedy's funeral, and at a State Department reception that evening, the President apologized to McCone for it. Were there were any developments which required his personal attention?, he asked. McCone replied that there were not and that he would call him if any developed.
+
+The following day, McCone met with the President for about twenty minutes. Johnson asked whether all appropriate Agency resources were being made available to support the FBI's investigation of the assassination. He then told McCone with considerable contempt that certain Justice Department officials had proposed an independent panel, headed by someone like Thomas E. Dewey, to investigate the assassination. Johnson had rejected this proposal, only to learn that an identical plan would appear as lead editorial in the Washington Post. Furious at what he believed was a deliberate leak, he had finally succeeded in killing the editorial by intervening personally with Katherine Graham.
+
+McCone met again with the President on November 28 for about thirty minutes. After reviewing the checklist, Johnson questioned him about South Vietnam, Venezuela, Greece, Turkey, Rumania and Yugoslavia. He asked McCone to recommend someone as Ambassador to
+
+WORKING DRAFT 99
+Handle via [BYEMAN] Control System
+
+BY NO. 018-88
+copy 2 of 2
+
+300
+
+TOP SECRET
+
+2 E/MC

@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_10.png
+
+Convert to Markdownb. The Puerto Rican Cement Company has a verbal agreement with Mr. Philpotts granting him exclusive distribution of cement in Guadaloupe, Barbados, and Antigua.
+
+c. AMCO currently owes the Puerto Rican Cement Company $40,000 and is slow in payment.
+
+d. The normal procedure for payment is for the consignee to pay Mr. Philpotts by a note which the Puerto Rican Cement Company discounts.
+
+e. The Puerto Rican Cement Company is currently examining how much credit it can extend to AMCO. In this connection the company is examining whether credit extended to AMCO can be insured under the Foreign Credit Insurance Association. (FCIA insures 80% of export credit.) If so, the risk to the Puerto Rican Cement Company would be reduced and further credit could be extended.
+
+f. The Puerto Rican Cement Company has sold 133,000 bags of cement to AMCO.
+
+7. SKEWER/I said that Mr. Philpotts is aggressive and that he is pushing Puerto Rican cement. Mr. Carter asked SKEWER/I if his firm were worried about the amount of credit extended to AMCO. SKEWER/I replied that AMCO is trying to help the Puerto Rican Cement Company and Puerto Rican Cement is in turn trying to help AMCO. SKEWER/I imparted the impression that he has absolute confidence in his subordinates. In calling Tomas, SKEWER/I said to us that he had gone over the head of his son. SKEWER/I was not aware that AMCO Puerto Rico is a subsidiary of AMCO Panama. When apprised of this fact, he said that this arrangement is probably for tax purposes. SKEWER/I left the impression that he considers AMCO as a Puerto Rican company and one worthy of support. He recalled that he had previously given a job to a Trujillo opponent, Fred Imbert, whom no one else would hire. Mr. Imbert now has his own shipping company and SKEWER/I suggested that we assess his operation. He recalled that Mr. Trujillo had telephoned him about harboring a criminal. SKEWER/I told Trujillo to mind his own business as would SKEWER/I. Mr. Stanulis indicated that KUBARK would not want to consider Fred Imbert's operation, given his family's involvement in the Dominican Republic. Throughout the conversation, the picture emerged of a man who trusts his subordinates and who would help an individual or firm, particularly Puerto Rican, which is also trying to help his firm.
+
+SECRET
+
+14-00000

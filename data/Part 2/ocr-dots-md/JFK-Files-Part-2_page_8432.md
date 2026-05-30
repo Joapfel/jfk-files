@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_8432.png
+
+Convert to MarkdownSECRET
+
+-38-
+
+June 1968: In connection with Cuban Olympic cultural performances Cruz complained that the Cubans didn't give him adequate photos, catalogues, etc., and the Cubans complained Cruz didn't give them information on itinerary. Said Cruz should have given more details on what was needed. LIFEEK
+
+7 May 1970: Venezuelan newspaperman Ciro Medina complained to a Prensa Latina contact that Jesus Cruz was a little "slow" (inefficient) and didn't know the score. He had had Medina's papers for a visa for a week and hadn't touched them. (LIENVOY)
+
+Mercedes seems to be quite efficient, and Jesus seems
+to depend a lot on her in his work.
+
+F. Control Data
+
+1. Family difficulties:
+
+None. Cruz lets Mercedes run the show.
+
+2. Difficulties in office:
+
+Cruz: none
+
+September 1970: Mercedes complained to Cruz that everyone at the Embassy gave her work to do while others played around. Cruz told her not to pay any attention to Angel (Morales, Charge and her boss).
+
+3. Difficulties with friends:
+
+Avoids people he owes money to until he pays them back.
+
+S E C R E T

@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_5780.png
+
+Convert to Markdown13-00000
+
+Mon, 14:40
+
+JUN 20 1998
+
+MON 14:40 FAA 2UZ 7/24 0457
+
+ARRB
+
+Robert M. McNamara, Jr., Esq.
+August 10, 1998
+Page 2
+
+Thank you for your cooperation.
+
+cc: Linda Cipriani, Esq.,
+CIA
+
+J. Barry Harrelson, Senior Review Officer,
+CIA

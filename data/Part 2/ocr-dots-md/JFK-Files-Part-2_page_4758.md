@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_4758.png
+
+Convert to MarkdownSECRET
+
+MR. HALPERN: Oh, if by anxiety you mean concern that the thing
+might leak . . .
+
+INTERVIEWER: Yeah.
+
+MR. HALPERN: Yeah. There always was and this is why it was so
+tightly held. If you are thinking about using anxiety in terms
+of morality, no. Because as far as we were concerned, I think
+most of the guys on the Task Force, we were at a war with
+Cuba. I mean, when you start sending in people to shoot up
+somebody else's country and blow up parts of somebody else's
+country and they take losses, I mean human losses, and we take
+human losses, that's war as far as I am concerned. I don't
+care what you call it, call it police action, call it something
+else, but anyway, we were at war. And of course, some people
+could even call it by today's terminology, terrorism.
+International terrorism. We weren't targeting market places,
+though, and bus stations and things like that obviously. We
+were going after industrial plants, power plants, sugar
+plants. Things like that. But people did get hurt on both
+sides. So yes, there was that kind of an anxiety in terms of
+keeping our hand out of the assassination plots as much as
+possible. Having been involved in only one of them, I have no
+idea, for example, if Bill Harvey was mucking around with
+Rosselli of the Mafia. Bill knew how to keep a secret. And
+even though I was his Exec., I had no idea and I know his deputy
+had no idea at all. And as a matter of fact the deputy didn't
+have any idea of the AMLASH operation.

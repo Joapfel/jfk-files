@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_1338.png
+
+Convert to Markdown# ADMINISTRATIVE INTERNAL USE ONLY
+
+## FOR THE DIRECTOR OF PERSONNEL
+
+(a) Francis G. Monan
+
+Francis C. Monan
+Chief, Retirement Affairs Division
+
+**Distribution:**
+
+* O - Addressee
+* I - D/Pers
+* I - CPF
+* I - ROB Soft File
+* I - ROB Reader
+
+OP/RAD/ROB/RTConners:jst (6 March 1970)
+Retyped: OP/RAD/JMC (13 March 1970)
+
+ADMINISTRATIVE INTERNAL USE ONLY

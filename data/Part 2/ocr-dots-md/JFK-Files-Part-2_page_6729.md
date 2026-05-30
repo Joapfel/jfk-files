@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_6729.png
+
+Convert to MarkdownSECRET
+
+# CIA TALKING POINTS
+
+## re Protection of "IJDECANTER" Cryptonym
+Before the Assassination Records Review Board (ARRB)
+
+26 AUGUST 1998
+
+* The ADDO -- Jim Pavitt -- has asked that I address the Board on an issue of extreme importance to the Directorate of Operations and the CIA.
+
+* We request the postponement of certain very limited information in one document -- specifically, the actual cryptonym of a CIA source (IJDECANTER).
+
+* It is our considered judgment that the release of this cryptonym, in the particular context of the given document (SX-59777 of 15 December 1991), and juxtaposed with the *Los Angeles Times* article of 29 December 1997, would:
+
+    * provide an identifiable benefit to the Russian counter-intelligence effort,
+
+    * result in concomitant damage to US counter-intelligence interests, and,
+
+    * have a chilling impact on cooperation of current and prospective intelligence sources given this disclosure which could be viewed as an official betrayal of confidence.
+
+* Mindful, however, of the Board's statutory purpose and objectives, we propose however:
+
+    * a substitution of a fictitious cryptonym (e.g., "TRUSTED") for the actual cryptonym IJDECANTER in this or any other document where it appears and would otherwise be releasable, and/or,
+
+CL BY: 0619849 C/IRG/OIM
+CL Reason: 1.5(c)
+Decl On: X1
+Drv From: HUM 4-82
+
+SECRET
+
+Office of
+OIM
+Information Management
+
+13-00000

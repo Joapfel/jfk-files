@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_7839.png
+
+Convert to MarkdownCONFIDENTIAL
+
+30 JUL 1976
+
+MEMORANDUM FOR: Privacy and Information Coordinator, DDO
+SUBJECT: Martin Luther King, Jr.
+REFERENCE: F-76-382
+
+This office recommends following action concerning the documents referred by OS/IRG:
+
+* London-5061, dated 8 June 1968 and London-5062, dated 8 June 1968; concerns Ray traveling in London; source of this information was the FBI, some of the information was received from Scotland Yard; excluded under 1900.3(g) (4) and exempt under (b)(1)(5)(B)(1).
+
+* Ottawa-5446, dated 8 June 1968; concerns travel of Galt; (SMABOVE/9) a Canadian service provided the information; exempt under (b)(1)(5)(B)(1).
+
+* UFGT-16828, dated 15 July 1966; concerns surveillance of Dr. Martin Luther King, Jr. by the Dade County/Florida police (Criminal Intelligence); excluded under 1900.3(g) (4).
+
+John J. Reagan
+Chief, International Terrorism Group
+Operations Staff
+
+CONFIDENTIAL
+
+<table><tr><td>E.IMPDET CL BY:058723</td></tr></table>

@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_5420.png
+
+Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+13,00000
+104-10332-10007
+
+d_o u_m_e n_t h_a_d 4_7 pg Dif.
+60 page count is wrong.

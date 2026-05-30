@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_2968.png
+
+Convert to Markdownof assets commencing with a close per-
+sonal relationship between the station
+chief and the President of Mexico, high-
+level telephone taps, photographic sur-
+veillance, unilateral intelligence as-
+sets and a broad scale of covert action
+capabilities.
+
+Within a week of the inspector's visit
+Frederick W. Cole was relieved as chief of station
+in La Paz, partly because of comments made by Ambas-
+sador Ben Stephansky, a former labor attache who had
+not worked closely with CIA. Lyle T. Shannon, COS,
+Panama City, left WH Division (perhaps coincidentally)
+a few months after the Inspector General had described
+him thus:
+
+The chief of station is a GS-18 who has served in many different posts in the Agency. He has been in Panama for about five years. A wide gap in human relations exists between the chief of station and his staff. He is coldly aloof and is reputed to brook no difference of opinion even on questions of operational procedures. He is a hard-driving administrator. His talents along this line are granted even by the Ambassador, who bluntly discredits his ability as an intelligence officer. <u>275</u>
+
+Although the separate Task Force W (TFW) was
+not officially established until 8 March 1962, the
+planning and execution of the Bay of Pigs operation
+
+SECRET

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_3559.png
+
+Convert to MarkdownTOP SECRET DINAR
+
+CUBAN EXILE AND REFUGEE ACTIVITIES - cont'd
+
+Cubanos Libres may be planning to hijack a ship in a raid that would be staged from Miami, according to a member of a group of Cuban refugees who have provided useful reports. The source reported that funds for the raid were to be raised at a dinner scheduled for 24 November in Le Tre Venezie restaurant, 472 West 9th Avenue, New York City. At the dinner, Cubanos Libres was planning to show films of their raids against Cardenas Bay in October 1962 and the Arechabala Refinery in June 1963. (CIA TDCSDB-3/658,109, 28 November, CONFIDENTIAL NO FOREIGN DISSEM/CONTROLLED DISSEM)
+
+A small group of Cuban refugees may have attempted to infiltrate Cuba about 27 November, according to a prominent exile activist who received the information from a close associate of a person involved in the attempt. Reportedly, a 20- to 22-foot speed-boat left Key Biscayne, Florida, the night of 26 November to rendezvous off Key Largo with a Cuban fishing boat and then proceed to an infiltration point on the north coast of Las Villas. The fishing boat is reportedly based in a shrimp fishery on the southeast coast of Key Largo. The persons involved in the operation were Manuel Pedro Gutierrez Cardenas, and presumably two infiltrees--Emilio Perez Fernandez and Luis Aguiar Perez. Two crew members, known only by nicknames, were "Comacho" and "Vascoy," possibly Jose Bascoy Barrios. (CIA TDCSDB-3/658,104, 27 November, SECRET/CONTROLLED DISSEM)
+
+BLOC RELATIONS:
+
+The Albanian ambassador to Cuba, Josif Pogace, delivered a speech to a nearly empty hall in Havana on 26 November. A Polish correspondent in Havana informed Warsaw that the speech, in celebration of Albania's national holiday, was attended by only 80 people, mostly Chinese Communist embassy personnel, students, and journalists. Cuba was represented by an official of the Cuban foreign cultural council. The Polish correspondent reports that the audience applauded the ambassador's words on the subject of "contemporary revisionism" and "the revisionist blockade of Albania" but reacted with silence to his attack on "false guarantees for Cuba." (CIA FBIS 105, 27 November, OFFICIAL USE ONLY)

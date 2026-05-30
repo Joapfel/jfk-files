@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_2645.png
+
+Convert to Markdown# Section D (continued)
+
+healthy skepticism enables him to contribute materially to the smooth, still on-going, transition from the old to the new way. In this context he has made invaluable suggestions on how we shall proceed in order to improve the operational efficacy of a NOC officer, as well as to ease the burdens imposed on the private life of a NOC officer.
+
+3. Worthy of special note is the systematic and orderly fashion in which he tackled each new problem. These attributes resulted in his solving many of the thorny personnel problems which have confronted us of late. Mr. Kent's industriousness -- on the average he spends 10 hours a day in the office -- together with his legendary meticulousness have enabled him to set up an effective referral system through which we control the flow-through of both traditional and new NOC officers -- a most difficult and at times frustrating task.
+
+4. As a deputy and acting branch chief he has been a firm and stern supervisor who exacts precision and perfection from his subordinates. The firmness and sterness, however, are tempered by a judicious application of human understanding or compassion in cases of "hard-to-place" NOC officers. His advice in solving many of these cases to the satisfaction of both the officer and the operational component involved was most welcome.
+
+5. In sum, Mr. Kent has been a most effective deputy. As noted above, he has many outstanding traits and his overall performance has been a solid strong.
+
+CONFIDENTIAL_

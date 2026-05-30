@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_6795.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+Central Intelligence Agency
+
+Washington, D.C. 20505
+
+OCA 2157-92/1
+
+22 May 1992
+
+The Honorable William V. Roth, Jr.
+Ranking Minority Member
+Committee on Governmental Affairs
+United States Senate
+Washington, D.C. 20510
+
+Dear Mr. Roth:
+
+I am writing to correct for the record two statements I made when I testified before the Committee last Tuesday on the Assassination Materials Disclosure Act.
+
+I testified that there were 33 documents, amounting to approximately 110 pages, in the Oswald file that was declassified and released to the public. A subsequent count by my staff revealed that the file actually contains a total of 34 documents, amounting to 124 pages. I gave the correct numbers when I testified last Friday before the Subcommittee on Legislation and National Security of the House Committee on Government Operations.
+
+In addition, I was asked at your hearing by Senator Cohen whether the State Department or the CIA had had any contact with any Soviet officials concerning KGB or GRU files relevant to the Kennedy assassination. I answered that there had been no contact between the CIA and the Russian KGB on this matter, and I added that the State Department might have requested those files, but I was not certain. At the time, I believed that that was an accurate answer. I have since discovered, however, that in January 1992 an Agency official did ask the new Russian internal service (MBRF) for any information related to the Kennedy assassination. The Russians advised us, after reviewing their file holdings on Oswald, that they had nothing that would add to our knowledge or to the 22 November 1991 ABC television special on this issue, which they termed "detailed and objective."
+
+CL BY 2196777
+DECL OADR
+DRV FM LIA 3-87

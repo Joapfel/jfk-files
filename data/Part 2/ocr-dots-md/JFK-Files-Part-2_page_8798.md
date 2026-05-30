@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_8798.png
+
+Convert to MarkdownAMWORLD Operation
+
+19-124-27
+
+Memo for the Record by Henry Hecksher, 10 July 1963
+Washington, D.C. Meeting with ARTIME (BOX 18)
+ARTIME related events prior to the Bay of Pigs invasion.
+Manuel RAY had just arrived in the U.S. from Cuba. He
+enjoyed strong Department of State support. It was his
+intent to get the U.S. to withdraw support from the FRD
+and to obtain control over the training camps himself.
+VARONA's and CARILLO's intention was to see the FRD go
+down. Hecksher said he masterminded RAY's defeat and
+RAY knew it.
+
+Memo by Henry D. Hecksher on AMWORLD Meeting in
+Washington 7 to 10 Nov 1963 Subj: Dr. La Saga (BOX 18)
+
+LaSaga was the MRR delegate in the U.S. while ARTIME
+was imprisoned in Cuba (following the Bay of Pigs
+invasion.) ARTIME demoted LaSaga. LaSaga described
+by Hecksher as one of the most intelligent men he had
+ever met. It was LaSaga's firm position that while
+President Kennedy was in power it would be impossible
+to defeat CASTRO.
+
+WAVE 6925 (IN 89430) dated 23 May 1964
+
+Concerns Tad SZULC' articles in the New York Times
+19, 20 and 21 May which AMCARBON-1 believes were
+fabricated and violated newsbeat agreement he had with
+AMCARBON-1.

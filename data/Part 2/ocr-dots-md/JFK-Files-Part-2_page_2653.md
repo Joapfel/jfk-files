@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_2653.png
+
+Convert to MarkdownSEC. 16. HAVE YOU EVER BEEN DISCHARGED OR ASKED TO RESIGN FROM ANY POSITION? HAVE YOU LEFT A POSITION UNDER CIRCUMSTANCES WHICH YOU DESIRE TO EXPLAIN? GIVE DETAILS:
+
+A. Resigned position in El Salvador under protest of employer whose desires were that remained with the company
+
+SEC. 17. GENERAL QUALIFICATIONS
+
+A. FOREIGN LANGUAGES (STATE DEGREE OR PROFICIENCY AS "SLIGHT," "FAIR," OR "FLUENT")
+
+LANGUAGE Spanish SPEAK Fluent READ Fluent WRITE Fluent
+
+LANGUAGE Italian .SPEAK Fluent READ Fluent WRITE Fluent
+
+LANGUAGE French
+GERMAN
+SPEAK Slight
+Slight
+READ Slight
+Slight
+WRITE Slight
+Slight
+
+B. LIST ALL SPORTS AND HOBBIES WHICH INTEREST YOU: INDICATE DEGREE OF PROFICIENCY IN EACH:
+
+Track - High School Track Team, Baseball, Football (only as spectator)
+
+Stamp Collecting Writing
+
+Music and Dancing Breeding and raising tropical fish
+
+C. HAVE YOU ANY QUALIFICATIONS, AS A RESULT OF TRAINING OR EXPERIENCE, WHICH MIGHT FIT YOU FOR A PARTICULAR POSITION?
+
+Some experience and travel in Latin America plus knowledge of Spanish would aid in work in Latin countries.
+
+D. LIST ANY SPECIAL SKILLS YOU POSSESS AND MACHINES AND EQUIPMENT YOU CAN USE, SUCH AS OPERATION OF SHORT-WAVE RADIO, MULTISTAGE COMPYOMETER, KEY PUNCH, TURRET LATER, SCIENTIFIC OR PROFESSIONAL DEVICES:
+
+IBM Proof Machine
+
+Writing Short Stories
+
+Cartooning
+
+Typing
+
+APPROXIMATE NUMBER OF WORDS PER MINUTE IN TYPING 50 SHORTHAND
+
+(9) 10-4228-1

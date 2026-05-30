@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_7937.png
+
+Convert to Markdown13-00000
+
+# Notes on the text of the article
+
+### "Dan Teufliache Spiel um den Kennedy-Mord. Der Trich des Welthemorrhmen Durchsetzt und Miesglockt." Schloßsacheypapier, 15, no. 49 (1963), 1, 3.
+### "This is a Great Nation." Economist, 30 November 1963, pp. 901-902.
+### "This nation, under God; Statement by the editors." Reader's Digest, January 1964, pp. 37-39.
+
+Thomas, J. "Le Monde Libre et la Crise de Dallas." La nouvelle newsmagazine, 7 (1) 83-88.
+
+Thompson, Josiah. Six Seconds in Dallas, New York: Bernard Geis Associates, 1967.
+
+Thompson, Thomas. "In Texas a Policeman and an Assesin are Laid to Rest," Tom., 6 December 1963, pp. 528-52K.
+
+Thompson, W.C. A Bibliography of Literature relating to the Assassination of President John F. Kennedy. San Antonio, Texas (n.d.)
+
+" thousand Days." Life, 16 July, 23 July, 30 July, 5 November, 12 November, 19 November 1965.
+
+A Thousand Days! John F. Kennedy in the White House. Boston: Houghton Mifflin, 1965.
+Three patients at Parkland." Texas State Journal of Medicine, January 1964, pp. 60-74.
+Thruston, Wesley S. The Trumpets of November. New York: Bernard Geis Associates n.d.
+Time between. Reporter, 5 December 1963, p. 14.
+"The Times Investigates the Assassination." Newweek, 12 December 1966, p. 20.
+Tobin, Richard L. "If You Can Keep Your Head When All About You Television and News Coverage of the Kennedy Assassination Story." Saturday Review, 14 December 1963, pp. 53-54.
+
+The Torch Is Passed; the Associated Press Story of the Death of a President. New York: Associated Press, 1964.
+
+"A Tragedy and a Challenge." Business Week, 30 November 1963, p. 126.
+"Tragic Day in Texas." Senior Scholar, 18 November 1966, p. 7.
+"Tragic end of John F. Kennedy." U.S. News and World Report, 2 December 1963, pp. 31-32.
+Trevor-Roper, Hugh. "Kí Ólta meg Kennedy-t?" Forum, 25 (1966), 1601-1609.
+Troelstrup, Glenn. "New Light on the Assassination: A Secret Agent's Story." U.S. News and World Report, 8 June 1964, pp. 38-39.
+
+Tupa, Stefan. "Dallas: Declaratiit ei Ipotzea." Luma, 12 March 1964, pp. 9-10.
+Turnbull, J.W. "Notes from Texas." Commonweal, 13 December 1963, p. 337.
+Turner, V.V. "Some disturbing parallels: assassination of N.B. King and J.F. Kennedy."
+
+Ramparts Magazine, 29 June 1968, pp. 33-36.
+
+"Two Mrs. Kennedy." National Review, 4 April 1967, pp. 335-336.
+United Press International. Brochure of front pages of 91 American newspapers. November 22 to 25, 1963. New York: KPR Publications n.d.
+
+U.S. Congress. House. Committee on the Judiciary. Preserving evidence pertaining to the assassination of President Kennedy: report to accompany H.R. 9545. Washington: G.P.O., 1965.
+
+Senate. Committee on the Judiciary. Preserving evidence pertaining to the assassination of President Kennedy: report to accompany H.R. 9545. Washington: G.P.O., 1965.
+
+U.S. 88th Congress. House Report 1913, authorizing subpoena power for Commission on Assassination of President John F. Kennedy. Report from Committee on Judiciary to Accompany H.J. Resolution

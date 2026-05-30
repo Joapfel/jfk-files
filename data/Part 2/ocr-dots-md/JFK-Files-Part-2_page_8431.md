@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_8431.png
+
+Convert to MarkdownSECRET
+
+-37-
+
+16. Subject's access to safes:
+
+August 1968: Mercedes was trying to finish a "confidential" in time for the pouch. She reportedly is in charge of all classified material in the Embassy. She is known to have safes in her room. (LISAMPAN, LITAMIL-7)
+
+17. Passes or keys carried:
+
+October 1968: Mercedes left the keys in her raincoat pocket at home. Had to go after them in order to "open everything up". (LIFEAT)
+
+18. Professional reputation:
+
+Jesus:
+
+28 April 1968: Lino Salazar Cuban Consul in Veracruz, had arranged a big inauguration for the Cultural Institute there with plans for the Ambassador to attend. When he contacted the Ambassador directly, the latter said Cruz had mentioned nothing and therefore, the Ambassador already had plans. (HMMA 34634)
+
+May 1968: A Mexican called the Embassy and Ambassador to complain about Cruz and how he was handling the matters of the ballet, etc. The complaint center on the propaganda for the cultural events--program drafts were full of errors, arrived late at the printers. He also complained he could never find Cruz, and Cruz didn't understand the problems. Ambassador promised to speak to Cruz.
+
+June 1968: Someone from Morelia asked the Ambassador for a written report inviting Mexican artisans and ballet (presumably to Cuba). Hernandez knew nothing about the plans.
+
+SECRET
+
+13-00000
+
+SEC
+RET

@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_4114.png
+
+Convert to Markdown13-00000
+
+deceptive. I had killed before and I had participated in homicides under the auspices of both MI and the CIA (one instance being the part I played in the February 1958 abduction-interrogation-murder of an FOI agent, a U.S. soldier, MSCT Emmett E. Dugan, from Crafton, Pa., suspected of having defected in place to the Chinese), under the guise that an American variation of the Soviet "wet affair" was the only alternative, that it was either essential to some overall intelligence effort or in the best interests of our national security. And it was a similar-sounding argument, ultimately reduced to a

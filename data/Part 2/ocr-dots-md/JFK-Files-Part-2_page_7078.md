@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_7078.png
+
+Convert to Markdownsubsequent court challenges to the Board's action, and the FOIA cases.
+
+8. If you have any questions concerning the application of the Act to your review of the assassination records, please call me on secure extension 76105.
+
+Robert J. Eatinger, Jr.

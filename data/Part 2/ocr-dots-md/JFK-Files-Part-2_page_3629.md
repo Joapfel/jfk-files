@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_3629.png
+
+Convert to MarkdownNOTES
+
+A. Oswald Press stories to the effect that Lee Harvey Oswald recently visited Mexico City are true, according to our information. Oswald visited both the Cuban and the Soviet embassies on 28 September. He was trying, we are told, to arrange for visas so that he could travel to the USSR via Havana. He returned to the US on 3 October.
+
+B. Brazil A new round of military promotions and re-assignments will be made public today. The present instability of the Brazilian political scene is reflected in the numerous reports of coup plots which this event has precipitated.
+
+C. USSR At last report the three Soviet range instrumentation ships were dead in the water 500 miles south of Johnston Island, roughly the same position they occupied for last year's extended range ICBM shots. No announcement closing this area of the Pacific to shipping has been made and there is no activity as yet at the Tyuratam missile test center, but we look for some action in the next few days.
+(INTERCEPTS)
+
+D. Algeria We have a report from a good clandestine source that a group of army officers is plotting with Defense Minister Boumedienne to overthrow Ben Bella. A growing estrangement between the two has been apparent for some time, but this is the first good indication that Boumedienne is making common cause with those who wish to turn Ben Bella out of office.
+
+(Cont'd)

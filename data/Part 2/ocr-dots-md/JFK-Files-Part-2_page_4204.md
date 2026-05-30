@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_4204.png
+
+Convert to Markdown7. The President noted with some considerable contempt the fact that certain people in the Department of Justice had suggested to him on Saturday that an independent investigation of the President's assassination should be conducted by a high level group of attorneys and jurists, probably headed by Governor Dewey. President Johnson rejected this idea, and then heard that the identical plan was to be advanced in a lead editorial in the Washington Post. The President felt this was a deliberate plant and he was exceedingly critical. He personally intervened, but failed with Mr. Al Friendly and finally "killed" the editorial with Mrs. Graham.
+
+JAM/TMLee/mfb

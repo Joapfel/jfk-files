@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_6921.png
+
+Convert to Markdowngreer" to the murder of President Kennedy. The injunction would apply to all congressional committees and all executive agencies, including the CIA, the FBI, the Secret Service, and the National Archives. The bill could direct these record-holders to make the materials public. It could specify that the only materials to be held back would be those itemized in the current bill -- agents, intelligence sources and methods, etc.
+
+Where legislative writ does not run or is disputable, a statute could urge voluntary action. The current bill asks such cooperation from state and local agencies and foreign governments. A statute that sought to avoid constitutional disputes could ask the same of the President regarding records of the White House and Executive Office.
+
+This alternative bill could require or request public reports describing materials withheld from release -- their characteristics and quantities, the general reasons for non-disclosure, and plans for eventual release.
+
+A Review Board could be created with a limited -- and more workable -- mandate.
+
+Its first duty could be to review record-holders' guidelines. These might well differ from agency to agency. Procedures for searching National Security Agency files of

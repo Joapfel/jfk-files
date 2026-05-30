@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_5986.png
+
+Convert to MarkdownFOR OFFICIAL USE ONLY
+
+GARRISON, James AIN 0 535 449 1994
+HSCA list reflects Garrision, James. CCS has no record.
+
+HEMMING, Gerald Patrick AIN 0 592 464 circa 1980-1981
+HSCA list reflects Heming or Henning, CCS has no record of either.
+
+HEMMING, Gerald Patrick AIN 0 429 229 04 August 1995
+HSCA list reflects Heming or Henning, CCS has no record of either.
+
+MASFERRER Y ROJAS, Rolando AIN 0 352 772 25 October 1994
+CCS record reflects listing as Masferrer Rojas, Rolando Arcadio.
+
+PAWLEY, William D. AIN 0 350 653 24 October 1994
+CCS record reflects listing as Pawley, William.
+
+PAWLEY, William D. AIN 0 346 416 20 October 1994
+CCS record reflects listing as Pawley, William.
+
+PAWLEY, William D. AIN 0 121 104 circa 1980-1981
+
+PAWLEY, William D. AIN 0 357 552 circa 1980-1981
+
+PROENZA, Maria Teresa AIN 0 342 000-A circa 1980-1981
+CCS record reflects listing as Proenza, Teresa.
+
+PROENZA, Maria Teresa AIN 0 317 003 1994
+CCS record reflects listing as Proenza, Teresa.
+
+## ATTACHMENT B CONTINUED
+
+SALVAT ROQUE, Juan Manuel AIN 0 219 999 circa 1980-1981
+CCS record reflects listing as Salvat, Juan Manuel.
+
+SNYDER, Richard E. AIN 0 389 179 03 June 1995
+
+STURGIS, Frank Anthony AIN 0 343 309 circa 1980-1981
+CCS record reflects listing as Sturgis, Frank.
+
+STURGIS, Frank Anthony AIN 0 349 691 1994
+CCS record reflects listing as Sturgis, Frank.
+
+VECIANA, Antonio Carlos Blanch AIN 0 256 167 1994
+
+WERBELL, Mitchell Livingston III FOR OFFICIAL USE ONLY

@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_8219.png
+
+Convert to Markdown13-00000
+
+MEMORANDUM
+
+SUBJECT: Jamaican Special Branch Report - Jamaica/United States Black Power Ties
+
+1. Pertinent items from the Jamaican Special Branch monthly report for April 1968, which contains several references to ties between Black Power groups in Jamaica and the United States, are provided, in full, below. A summary of the report, omitting portions concerning the United States or United States citizens, has been disseminated in CS-311/06459-68, a copy of which is attached.
+
+2. The items of possible interest, omitted from the dissemination, are noted below:
+
+a. During April 1968, four meetings of the Wilson faction of the Nation of Islam (NOI) were held. On 13 April, Percy Hayles, the boxer, said that he was impressed with the doctrine and had written to Elijah Mohammed asking for a scholarship to enable him to study in one of the Islam Universities in the United States. Errol Levy said that only a revolution could end the white man's practice of robbing the black people of everything.
+
+b. At the meeting on 24 April, Cecil (Prince Buster) Campbell stated that the premises on 47 Charles Street in Kingston belonged to him and he was willing for it to be used for the assistance of the black race. He called for unity among black people and said that his organization was fighting to rule Jamaica. He told members that they should be prepared to meet the Reverend Sherriffe (aka Thomas View) who would soon be visiting the Island.
+
+c. On the 5th and 8th of April, discussions were held led by George Vassel, leader of the Young Socialist
+
+FULL TEXT COPY -- DO NOT RELEASE
+
+<table>
+  <tr>
+    <td>CLASSIFICATION REVIEW</td>
+  </tr>
+  <tr>
+    <td>CONDUCTED ON 28+1978</td>
+  </tr>
+  <tr>
+    <td>E12 IMPUTED BY 060574</td>
+  </tr>
+</table>
+
+<table><tr><td></td><td></td></tr></table>
+
+0 OCT 1968
+
+75
+
+1978
+
+E12 IMPUTED BY 060574
+
+<table><tr><td></td><td></td></tr></table>

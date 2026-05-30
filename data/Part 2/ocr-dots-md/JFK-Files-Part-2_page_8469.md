@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_8469.png
+
+Convert to MarkdownSECRET
+
+the African American Institute, which published Africa Report, is included in a list of Agency proprietaries in Book VI of the Senate Select Committee Final Report, pg. 263. However, the Report gave as its source for the list the book The Invisible Government, by Wise and Ross, pp. 247n-248n. This citation should not be considered official Government disclosure of Agency sponsorship of the Institute. NOTE: CA Staff confirms the need for continued classification and will comment separately.
+
+e. Item 48, page 71a -- PREUVES. Classified SECRET; describes intelligence sources and methods as related to several magazine publications. [Section 5(B)(2)] NOTE: CA Staff confirms the need for continued classification and will comment separately.
+
+f. Item 48, page 71a -- ENCOUNTER. Classified SECRET; describes intelligence sources and methods as related to several magazine publications. [Section 5(B)(2)] NOTE: CA Staff confirms the need for continued classification and will comment separately.
+
+g. Item 48, page 71a -- FORUM. Classified SECRET; describes intelligence sources and methods as related to several magazine publications. [Section 5(B)(2)] NOTE: CA Staff confirms the need for continued classification and will comment separately.
+
+h. Item 50, page 72 -- AXEL SPRINGER. Classified SECRET; describes intelligence sources and methods of operations based in Germany. [Section 5(B)(2)] NOTE: EUR Division confirms the need for continued classification and will comment separately.
+
+i. Item 51, page 72 -- FODOR and FODOR GUIDES. Classified SECRET; describes intelligence sources and methods of operations based in Europe. [Section 5(B)(2)]
+
+j. Item 55, page 80 -- RTV. Classified SECRET; describes intelligence sources and methods of operations directed against Egypt. [Section 5(B)(2)]
+
+k. Item 56, page 81 -- RTV. Classified SECRET; describes intelligence sources and methods of operations directed against Egypt. [Section 5(B)(2)]
+
+SECRET
+
+SECRET
+---

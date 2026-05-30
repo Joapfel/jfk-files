@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_5578.png
+
+Convert to Markdown13-00000
+
+INVESTIGATION OF THE ASSASSINATION
+OF PRESIDENT JOHN F. KENNEDY
+
+HEARINGS
+BEFORE THE
+SELECT COMMITTEE ON ASSASSINATIONS
+OF THE
+U.S. HOUSE OF REPRESENTATIVES
+NINETY-FIFTH CONGRESS
+SECOND SESSION
+
+SEPTEMBER 18, 19, 20, AND 21, 1978
+
+VOLUME III
+
+Printed for the use of the Select Committee on Assassinations
+
+41-572 O
+
+U.S. GOVERNMENT PRINTING OFFICE
+
+WASHINGTON : 1979
+
+For sale by the Superintendent of Documents, U.S. Government Printing Office
+Washington, D.C. 20402

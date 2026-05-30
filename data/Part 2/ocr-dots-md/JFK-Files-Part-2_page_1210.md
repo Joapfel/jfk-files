@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_1210.png
+
+Convert to MarkdownSECRET
+
+SECURITY INFORMATION
+
+<table><tbody><tr><td>17. IN WHAT RESPECT IS THIS PERSON'S PERFORMANCE ON PRESENT JOB MOST NOTICEABLY GOOD OR OUTSTANDING?</td></tr><tr><td colspan="2">See Para. 11 (b) and realistic application of corespond techniques.</td></tr><tr><td>13. ON WHAT, ASPECT OF PERFORMANCE SHOULD THIS PERSON CONCENTRATE EFFORT FOR SELF IMPROVEMENT?</td></tr><tr><td colspan="2">Should concentrate on more concise oral presentations.</td></tr><tr><td>14. COMMENT ON THIS PERSON'S ABILITY TO HANDLE GREATER RESPONSIBILITIES NOW OR IN THE FUTURE.</td></tr><tr><td colspan="2">Capable of added responsibilities and with proper guidance and experience has almost unlimited capabilities.</td></tr><tr><td>15. ARE THERE OTHER DUTIES WHICH BETTER SUIT THIS PERSON'S QUALIFICATIONS? (Recommend appropriate reassignment, if possible.)</td></tr><tr><td>No.</td></tr><tr><td>6. WHAT TRAINING OR ROTATION DO YOU RECOMMEND FOR THIS PERSON?</td></tr><tr><td colspan="2">Due for complete training prior to field assignment in January 1954.</td></tr><tr><td>7. IF PERFORMANCE DURING REPORT PERIOD HAS BEEN UNSATISFACTORY, THERE IS ATTACHED COPY OF MEMORANDUM NOTIFYING THIS PERSON OF UNSATISFACTORY PERFORMANCE.<br/>HA</td></tr><tr><td>8. THIS PERSONNEL EVALUATION REPORT HAS BEEN DISCUSSED WITH THE PERSON EVALUATED. ADDITIONAL COMMENTS INCLUDING COMMENT ON ITEMS 7, 8 AND 9, ARE SHOWN BELOW UNDER ITEM 20.</td></tr><tr><td>DATE<br/>21 Dec 1953<br/><hr/>SIGNATURE OF SUPERVISOR</td></tr><tr><td>9. I HAVE REVIEWED THE ABOVE REPORT. (Comments, if any, are shown in Item 20.)<br/><hr/>28 Rts<br/><hr/>SIGNATURES OF SELECTIVE OFFICIAL</td></tr><tr><td>DATE</td></tr><tr><td colspan="2">COMMENTS: If necessary, may be continued on reverse side of cover sheet.</td></tr></tbody></table>
+
+SECRET

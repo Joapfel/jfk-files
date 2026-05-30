@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_6284.png
+
+Convert to MarkdownD. In making any excisions or other alterations of requested materials, CIA shall be bound by 18 U. S. C. Subsection 1505 and all other applicable statutes.
+
+## II. Request Procedure
+
+A. The CIA element responsible for dealing with the Committee is the Coordination and Review Staff of the Office of Legislative Counsel (C&RS/OLC). All Committee requests for information will be conveyed to CIA only via the Coordination and Review Staff. Absent extraordinary circumstances, appointments with CIA employees and former employees will be arranged through the Coordination and Review Staff.
+
+B. All Committee requests for information will be in writing. In the interest of timely response, C&RS/OLC will accept preliminary telephone or other oral requests, but no information can be made available until a request is received in writing from the Chief Counsel or one of the Deputy Chief Counsels.
+
+## III. Staff Clearance
+
+Prior to access by Committee personnel to any material which has been designated for protection from unauthorized disclosure by the DCI, such Committee personnel will be granted security clearance by the Committee after consultation with the CIA. Committee personnel requiring access to such material will be required to execute, in advance, the attached Select Committee on Assassinations Nondisclosure Agreement.
+
+## IV. Transcripts of Statements Under Oath
+
+A steno-typist from either the Committee or the CIA will make a verbatim record of all statements of current CIA personnel taken under oath. One copy of the record will be made available to the Committee and the other to the CIA in accordance with the Rules of the Committee.
+
+## V. Examination of Material
+
+Materials to which access has been granted by CIA will be reviewed in a CIA reading room set aside for this purpose or in a designated area within the Committee's offices.
+
+## VI. Storage of Materials
+
+A. Committee procedures for control and storage of any documents or materials provided by the CIA which require protection will follow security standards and procedures established in consultation with, and approved by, the CIA.

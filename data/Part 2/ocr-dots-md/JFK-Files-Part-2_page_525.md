@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_525.png
+
+Convert to Markdown14-0000
+
+MESSAGE FORM
+TOTAL COPIES:
+
+<table><thead><tr><th colspan="2">DUE MARVIN FRANCIS<br/>UNIT WH/C/FI/TC<br/>EST 2625<br/>DATE 19 OCTOBER 1966</th></tr><tr><td>☐ FILE RID</td><td>S E C R E T</td></tr><tr><td>☐ INDEX</td><td></td></tr><tr><td>☐ NO INDEX</td><td></td></tr></thead><tfoot><tr><td>X FILE IN CS FILE №.</td><td>201-800004</td></tr></tfoot></table>
+
+<table><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
+
+DISTRIBUTION STATEMENT: <u>DISTRIBUTION STATEMENT HERE</u>
+
+**DESTROY** ☐ **RETURN TO BRANCH**
+
+**TO** MEXICO CITY INFO: RIO DE JANEIRO, CARACAS, JWAVE
+
+Typic Ampop
+
+REF: MEXICO CITY 8889 (IN 20149) (BEING SENT RIO DE JANEIRO)
+
+FOR MEXICO CITY: PLEASE ATTEMPT ELICIT FROM LIRING/3
+
+INFORMATION CONCERNING AMPOP/1'S WIFE AND FAMILY WHO ARE SUBJECTS OF REFERENCE. PARTICULARLY INTERESTED WIFE'S FUTURE PLANS; HER TREATMENT WHILE CUBA; AND REACTION AMPOP/1 EMPLOYERS TO HIS DEFECTORY AND desertion his family.
+
+END OF MESSAGE
+
+C/WH/C/FI
+D C/WH/C/CI
+C/WH/C/NO
+WH/1
+WH/3/V
+WH/5
+
+THOMAS J. FLORES
+J.C/WII/C
+
+WILLIAM V. BROE
+C/WHD
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+<table><tr><td>SECRET</td></tr></table>
+
+AUTHENTICATING OFFICE
+
+COPY NO.
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

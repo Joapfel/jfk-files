@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_6785.png
+
+Convert to MarkdownFOIA process a much more positive attitude toward declassification and release of Agency records.
+
+To understand the magnitude of the effort involved in reviewing the JFK papers for declassification, it is important to place them in some context. CIA's collection of documents related to the assassination of President Kennedy consists of approximately 250,000-300,000 pages of material. This includes 64 boxes of copies and originals of information provided to the Warren Commission and the House Select Committee on Assassinations and 17 boxes of material on Lee Harvey Oswald accumulated after President Kennedy's assassination.
+
+Unfortunately, what we are dealing with is a mass of material that is not indexed, is uncatalogued, and is highly disorganized--all of which makes the review process more difficult. The material contains everything from the most sensitive intelligence sources to the most mundane news clippings.
+
+These records include documents that CIA had in its files before the assassination, a large number of records that CIA received later as routine disseminations from other agencies, as well as the reports, correspondence, and other papers that CIA prepared in the course of the assassination investigations. I should emphasize that these records were assembled into the present collection as a result of specific inquiries received from the Warren Commission or the House Select Committee on Assassinations.

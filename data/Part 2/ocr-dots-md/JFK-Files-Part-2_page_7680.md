@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_7680.png
+
+Convert to Markdown13-00000
+
+(Commission Exhibits Nos. 868 and 869 were marked for identification and received in evidence.)
+
+Mr. RANKIN. Mr. McCone, if I may return to you, I will now ask you if you have any credible information that you know of or evidence causing you to believe that there is any or was any conspiracy either domestic or foreign in connection with the assassination of President Kennedy?
+
+Mr. McCONE. No; I have no information, Mr. Rankin, that would lead me to believe or conclude that a conspiracy existed.
+
+Representative FORD. Did the CIA make an investigation of this aspect of the assassination?
+
+Mr. MCCONE. We made an investigation of all developments after the assassination which came to our attention which might possibly have indicated a conspiracy, and we determined after these investigations, which were made promptly and immediately, that we had no evidence to support such an assumption.
+
+Representative FORD. Did the Central Intelligence Agency have any contact with Oswald during the period of his life in the Soviet Union?
+
+Mr. McCONE. No; not to my knowledge, nor to the knowledge of those who would have been in a position to have made such contact, nor according to any record we have.
+
+Representative FORD. Did the Central Intelligence Agency have any personal contact with Oswald subsequent to his return to the United States?
+
+Mr. McCONE. No.
+
+Mr. RANKIN. Mr. McCone, your Agency made a particular investigation in connection with any allegations about a conspiracy involving the Soviet Union or people connected with Cuba, did you not?
+
+Mr. McCONE. Yes, we did. We made a thorough, a very thorough, investigation of information that came to us concerning an alleged trip that Oswald made to Mexico City during which time he made contact with the Cuban Embassy in Mexico City in an attempt to gain transit privileges from Mexico City to the Soviet Union via Havana. We investigated that thoroughly.
+
+Mr. RANKIN. Do you also include in your statement that you found no evidence of conspiracy in all of that investigation?
+
+Mr. McCONE. That is correct.
+
+Mr. RANKIN. And also the investigation you made of the period that Lee Harvey Oswald was in the Soviet Union?
+
+Mr. McCONE. That is right.
+
+Mr. RANKIN. Mr. McCone—
+
+Mr. DULLES. Could I ask one question there? Does your answer, Mr. McCone, include a negation of any belief that Oswald was working for or on behalf of the Soviet Union at any time when you were in contact with him or knew about his activities?
+
+Mr. McCONE. As I have already stated, we were never in contact with Oswald. We have no evidence that he was working for or on behalf of the Soviet Union at any time. According to his diary, Oswald did receive a subsidy from the Soviet Red Cross which we assume had the approval of the authorities. Such a payment does not indicate to us that he even worked for the Soviet intelligence services. Furthermore, we have no other evidence that he ever worked for Soviet intelligence.
+
+Representative FORD. Is the Central Intelligence Agency continuing any investigation into this area?
+
+Mr. McCONE. No, because, at the present time, we have no information in our files that we have not exhaustively investigated and disposed of to our satisfaction. Naturally, any new information that might come into our hands would be investigated promptly.
+
+Mr. HELMS. I simply wanted to add that we obviously are interested in anything we can pick up applying to this case, and anything we get will be immediately sent to the Commission, so that we haven't stopped our inquiries or the picking up of any information we can from people who might have it. This is on a continuing basis.
+
+Representative FORD. In other words, the case isn't closed.
+
+Mr. HELMS. It is not closed as far as we are concerned.

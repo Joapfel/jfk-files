@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_5785.png
+
+Convert to MarkdownSUBJECT: (U) Electronic Dissemination of Employee Bulletin
+
+IMS/ESG/HCS Fwickham x44448:mjk (21 August 1998)
+
+**Distribution:**
+
+Original - C/HRP/OIM
+1 - C/IMS/ESG
+1 - IMS/ESG/HCS
+1 - ESG Chrono File
+
+ADMINISTRATIVE — INTERNAL USE ONLY
+
+ADMINISTRATIVE INTERNAL USE ONLY

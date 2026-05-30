@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_8206.png
+
+Convert to Markdown13-00000
+
+Stockely CARMICHAEL :
+
+Notre objectif final :
+
+Nous attaquer aux
+structures capitalistes
+des U.S.A.
+
+Dans son numéro du Premier Mal, l'« Humanité Nouvelle », organe central du Parti Communiste Marxiste-Léniniste de France a publié une interview de Stockely Carmic- haül, leader du « Black Power » (Pouvoir Noir) Cette interview a été réalisée par un camarade africain lors du récent séjour de Carmichael à Paris.
+
+Le Black Power est un mouvement de masse de Afro-américains. Certaines de ces positions peuvent ne pas toujours coïncider avec celles des marxistes-léoniniistes mais il est évident que le combat du Black Power est héroïque, courageusement anti-raciste,
+
+C'est cela qui est important: C'est pour cette raison que nous reproduisons ce re-
+
+marquable document.
+
+La grande vogue du combat civil ait commencé sur les grandes villes d'Afrique occidentale, en particulier en Amérique du Nord, où les grandes villes d'Afrique ontété les larges bases de la socialisation, les victimes radicales et Fordro capitaliste (et, c'est d'ailleurs à peine qu'ils sont, et ne sont plus, les victimes radicales et Fordro capitaliste établie, c'est d'ailleurs à peine qu'ils sont, et ne sont plus, la faiblesse du mythe intégrationnel). Lorsque consacre, par exemple, la faiblesse d'un mythe intégrationnel, on fait appel à la béninoisité�.
+
+STOCKELY CARMICHEL — L’aspect principal de la situation du people afro-américain estcelui d’une nouvelle forme du colonialisme inférieur. Il s’appagit d’une situation presque originale qui implique que notre lutte se fixe deux objectifs principaux :
+
+— Objectif numéro 1 : éliminer l’oppression coloniale qui nous visage en tant que Noirs sur le triplo plan économique, social et politique.
+
+— Objectif, numéro 2 : nous attaquer aux structures capitalistes et imperialistes des U.S.A.,
+Il est évident que l’objectif n°1 sera assuré onlyment pour nous soûs alco-humoriens. Quant à l’objectif n°2, il concernera tous les révolontaires.

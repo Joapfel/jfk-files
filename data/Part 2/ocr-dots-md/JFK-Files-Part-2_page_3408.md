@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_3408.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+12. Richard D. Drain, Personal Notes.
+
+13. Drain-Pfeiffer OH Interview, op. cit., Tape 3, p. 60.
+
+14. Job 63-605/58, Folders 1, 2, 3: AMHINT-Operations, 19-132-16/1-3.
+
+Cable to BELL from JMWAVE, 24 Feb 61, WAVE 3931 (IN 0915).
+
+15. WH/4 Prop Notes for 27 Feb 61, 28 Feb 61.
+
+Richard D. Drain, Personal Notes, 28 Feb 61.
+
+16. Letter to Jack B. Pfeiffer from R[ichard] D. D[rain], 24 Jan 76.
+
+Letter to Richard D. Drain from Jack B. Pfeiffer, 22 Jan 76.
+
+17. Esterline-Pfeiffer OH Interview, op. cit., Tape 1, pp. 15-16.
+
+"Must Go List"
+
+18. Drain-Pfeiffer OH Interview, op. cit., Tape 1, p. 21.

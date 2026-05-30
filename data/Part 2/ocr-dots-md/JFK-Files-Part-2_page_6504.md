@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_6504.png
+
+Convert to Markdown7. Hijacking attempts against civil air and surface craft should appear to continue as harassing measures condoned by the government of Cuba. Concurrently, genuine defections of Cuban civil and military air and surface craft should be encouraged.
+
+8. It is possible to create an incident which will demonstrate convincingly that a Cuban aircraft has attacked and shot down a chartered civil airliner enroute from the United States to Jamaica, Guatemala, Panama or Venezuela. The destination would be chosen only to cause the flight plan route to cross Cuba. The passengers could be a group of college students off on a holiday or any grouping of persons with a common interest to support chartering a non-scheduled flight.
+
+a. An aircraft at Eglin AFB would be painted and numbered as an exact duplicate for a civil registered aircraft belonging to a CIA proprietary organization in the Miami area. At a designated time the duplicate would be substituted for the actual civil aircraft and would be loaded with the selected passengers, all boarded under carefully prepared aliases. The actual registered aircraft would be converted to a drone.
+
+b. Take off times of the drone aircraft and the actual aircraft will be scheduled to allow a rendezvous south of Florida. From the rendezvous point the passenger-carrying aircraft will descend to minimum altitude and go directly into an auxiliary field at Eglin AFB where arrangements will have been made to evacuate the passengers and return the aircraft to its original status. The drone aircraft meanwhile will continue to fly the filed flight plan. When over Cuba the drone will be transmitting on the international distress frequency a "MAY DAY" message stating he is under attack by Cuban MIG aircraft. The transmission will be interrupted by destruction of the aircraft which will be triggered by radio signal. This will allow ICAO radio
+
+Annex to Appendix
+to Enclosure A
+
+TOP SECRET SPECIAL HANDLING NOFORN
+
+TOP SECRET SPECIAL HANDLING NOFURN

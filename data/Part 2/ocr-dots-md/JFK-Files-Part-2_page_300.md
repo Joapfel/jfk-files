@@ -1,0 +1,276 @@
+# JFK-Files-Part-2_page_300.png
+
+Convert to Markdown14-00000
+
+<table><tr><td colspan="5">ROUTING AND RECORD SHEET</td></tr><tr><td>SUBJECT: (Optional)</td><td>UNCLASSIFIED</td><td>INTERNAL USE ONLY</td><td>CONFIDENTIAL</td><td>SECRET</td></tr><tr><td>FROM:<br/>WH/1/Zerance 332 Area</td><td>EXTENSION<br/>3696</td><td>NO<br/>DATE</td><td></td><td></td></tr><tr><td>TO: (Officer designation, room number, and building)</td><td colspan="2">DATE</td><td rowspan="15">OFFICER'S INITIALS<br/><i>J.S. Stewart</i><br/>Date deloyed Kares.<br/><u>Note above the name.</u></td><td rowspan="15">COMMENTS (Number each comment to show from whom it came. Draw a line across column after each comment.)</td></tr><tr><td></td><td>RECEIVED</td><td>FORWARDED</td></tr><tr><td>1.<br/>WH/1</td><td></td><td></td></tr><tr><td>2.</td><td></td><td></td></tr><tr><td>3.</td><td></td><td></td></tr><tr><td>4.<br/>DCWH/1</td><td></td><td>6/3 97</td></tr><tr><td>5.</td><td></td><td></td></tr><tr><td>6.</td><td></td><td></td></tr><tr><td>7.<br/>CI/OA</td><td></td><td></td></tr><tr><td>8.</td><td></td><td></td></tr><tr><td>9.</td><td></td><td></td></tr><tr><td>10.</td><td></td><td></td></tr><tr><td>11.</td><td></td><td></td></tr><tr><td>12.</td><td></td><td></td></tr><tr><td>13.</td><td></td><td></td></tr><tr><td>14.</td><td></td><td></td></tr><tr><td>15.</td><td></td><td></td></tr></table>
+
+FORM 3-63 610 USE PREVIOUS EDITIONS □ SECRET □ CONFIDENTIAL □ INTERNAL USE ONLY □ UNCLASSIFIED
+
+UNCLASSIFIED
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+UNCLASSIFIED
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+UNCLASSIFIED
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+UNCLASSIFIED
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+UNCLASSIFIED
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+UNCLASSIFIED
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+UNCLASSIFIED
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+UNCLASSIFIED
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+UNCLASSIFIED
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+UNCLASSIFIED
+
+INTERNAL
+USE ONLY
+
+SECRET
+
+INTERNAL
+USE ONLY
+
+CONFIDENTIAL
+
+INTERNAL
+USE ONLY
+
+SECRET

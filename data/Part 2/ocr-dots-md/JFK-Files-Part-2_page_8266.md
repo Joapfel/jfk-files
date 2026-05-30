@@ -1,0 +1,8 @@
+# JFK-Files-Part-2_page_8266.png
+
+Convert to MarkdownCirca 21 April 1951
+
+Discussions concerning disposal of DIMITROV since he had full knowledge
+of names of next infiltration teams and general knowledge of operations.
+
+WASH 38789 (OUT 97616), 21 April 1951

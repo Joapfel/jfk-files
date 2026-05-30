@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_3332.png
+
+Convert to Markdown13-00000
+
+Distribوا this to:
+
+(1) All U.S. diplomatic posts.
+
+(2) Army, Navy and Air Force for further distribution to units or officers in contact with Latin Americans.
+
+For use as talking points to:
+
+(1) Discredit the Castro regime.
+
+(2) Build support for the U.S. position.
+
+(3) Alert Latin Americans as to the Communist aspects.
+
+f. All Services - Prepare and distribute speech material suitable for inclusion in various types of addresses. Material should cover:
+
+(1) Communist aspects of present Cuban government.
+
+(2) Threat of Communism in Cuba to hemispheric defense.
+
+(3) The dictatorial aspects of the Cuban regime.
+
+(4) The Cuban regime's actions against the basic human rights.
+
+(5) The strategic importance of the Guanahamo Naval Base.
+
+(6) The logic of the firmness of the treaties by which we hold
+Guanahamo and the formal commitment of the Castro regime on taking power
+to honor Cuba's international commitments.
+
+**_Distribute this material to the Services and to their Leagues and Associations for maximum use in public speeches._**
+
+c. IADB - have General Skaer, as Director of the Staff, IADB, inject into the monthly intelligence briefings at the IADB information on the latest Soviet Bloc actions and the progress of International Communism in Cuba.
+
+h. State, in conjunction with CIA and the Service intelligence agencies, hold special briefings once each month on the general situation in Cuba with special emphasis on the Communist aspects for the following:
+
+(1) U. S. officials of the OAS and UN.
+
+(2) U.S. personnel of the Staff of the IADB.
+
+(3) Official U.S. personnel in Washington having duties involving close contact with Latin Americans.
+
+i. All Services provide special briefings on a one-time basis along the line of communication above for officers and enlisted personnel of units proceeding to Caribbean or South American ports.
+
+j. Navy endeavor to have a good reporter or author prepare a story containing the Navy's views on Guanahamo for publication in a national magazine with wide circulation in Latin America.
+
+TOP SECRET
+
+316 //

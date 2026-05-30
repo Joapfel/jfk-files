@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_1882.png
+
+Convert to MarkdownSECRET
+
+<table><tbody><tr><td>1. NAME (Last, First, Middle)</td><td>2. DATE OF BIRTH</td><td>3. GRADE</td></tr><tr><td>WOODS, James S.</td><td>20 February 1928</td><td>GS-10</td></tr><tr><td>4. OFFICE DIVISION BRANCH (or overseas station and existing cover if lateral assignment)</td><td>5. PRESENT POSITION</td><td>6. EMPLOYEE EXTENSION</td></tr><tr><td>DDP/EUR</td><td colspan="2">Records Admin Officer a/07152</td></tr><tr><td>7. PROPOSED STATION</td><td>8. PROPOSED POSITION (Title, Number, Grade)</td><td></td></tr><tr><td>Rome, Italy</td><td>Records Admin Officer 0699 (09)</td><td></td></tr><tr><td>9. TYPE OF COVER AT NEW STATION</td><td>10. ESTIMATED DATE OF DEPARTURE</td><td>11. NO. OF DEPENDENTS TO ACCOMPANY</td></tr><tr><td>SS# 502-16-6806<br/>Nominal (Light State)</td><td>31 May 1971</td><td>-2-</td></tr><tr><td colspan="3"><strong>12. COMMENTS</strong><br/>Please evaluate for proposed assignment.<br/>No language is required for this position<br/><br/>Form 58 attached</td></tr><tr><td colspan="2"><strong>13. DATE OF REQUEST</strong><br/>8 March 1971<br/><strong>14. SIGNATURE OF REQUESTING OFFICIAL</strong><br/>Floyd G. Lanter, E/Pers</td><td colspan="2"><strong>15. ROOM NUMBER AND BUILDING</strong><br/>4B0002 Hq.<br/><strong>16. EXTENSION</strong><br/>7152</td></tr><tr><td colspan="4"><strong>17. OFFICE OF MEDICAL SERVICES DISPOSITION</strong><br/><br/><strong>18. OFFICE OF SECURITY DISPOSITION</strong><br/><br/><strong>19. OVERSEAS CANDIDATE REVIEW PANEL DISPOSITION</strong><br/><br/>QUALIFIED FOR <strong>CONFIDENTIAL</strong><br/>HNL 1 3 59/11</td></tr><tr><td colspan="4"><strong>REQUEST FOR PCS OVERSEAS EVALUATION</strong></td></tr></tbody></table>
+
+FORM 1-40 259a PARALYOUS EDITIONS SECRET
+
+<table><tr><td>Ceiling</td></tr><tr><td colspan="2">GROUP I - OVERSEAS CANDIDATE REVIEW PANEL AND MEETING AREA</td></tr></table>
+
+(4)

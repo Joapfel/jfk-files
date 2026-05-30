@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_8384.png
+
+Convert to Markdown13-00000
+
+THIS
+ID
+
+OFFICE OF THE VICE PRESIDENT
+
+WASHINGTON
+
+May 27, 1958
+
+Mr. Dim. Ad. Dimitroff
+1424 S. Kenmore Avenue
+Los Angeles 6, California
+
+Dear Mr. Dimitroff:
+
+On behalf of the Vice President I wish to acknowledge your letter of May 20 concerning your plans to fight Communism.
+
+You may be sure that the Vice President sympathizes with your desire and your firmness of purpose; however, I must tell you that the State Department and the United States Information Agency are the operative agencies in this field. I can only suggest, therefore, that as you continue to develop your ideas you keep in touch with them so that they can give your projects careful consideration.
+
+I know that the Vice President would want me to extend to you his good wishes and his appreciation for your generous comments concerning his South American trip.
+
+R. E. Cushman, Jr.
+Executive Assistant
+to the Vice President

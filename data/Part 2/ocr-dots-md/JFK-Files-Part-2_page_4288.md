@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_4288.png
+
+Convert to Markdownthat the U.S. government stands behind previously-expressed commitments to ensure that India does not use its own increased military strength to mount an attack on Pakistan.
+
+It was agreed that State and Defense should draft a paper for higher authority, outlining this proposed approach to the Pakistan government, with a CIA representative participating in the drafting of the paper to the extent necessary to assure that the intelligence interests and the views of the Special Group are adequately reflected.
+
+Thomas A. Parrott
+
+Distribution
+Mr. Johnson
+Mr. Gilpatrick
+Mr. McCone

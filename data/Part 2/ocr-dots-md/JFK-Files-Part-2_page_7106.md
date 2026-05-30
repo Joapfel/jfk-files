@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_7106.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+NO FOREIGN DISSEM
+
+begun training small groups of party members, but they appear to have no immediate plans for anti-government action. Much of the pro-Castro activity in Costa Rica appears to have been directed against neighboring Nicaragua. Cuba-trained revolutionaries based in Costa Rica have on occasion crossed into Nicaragua. The police inspector at a town in the Pacific banana zone reported in early February that two unidentified Cubans who traveled from Panama to Costa Rica attempted to stir up Costa Rican banana workers in support of Panamanian charges against the US.
+
+The Costa Rican Society for Friendship with Peoples, a small Communist-front group designed to propagandize on behalf of the Cuban revolution and pro-Castro "revolutionary movements" in other Latin American countries, is an important Havana asset in San Jose.
+
+8. Dominican Republic
+
+The country's two militant pro-Communist organizations, the 14th of June Political Group (APCJ) and the Dominican Popular Movement (MPD), are faithful supporters of Castro. Havana Radio quickly voiced support for last December's abortive APCJ guerrilla campaign, but we have no firm evidence of Cuban material support for this effort. The quick response from Radio Havana suggests, however, the existence of a communications link with one or more pro-Castro organizations in the country. Quick response by Havana to unrest in the Dominican Republic also was reflected during the transit workers strike in early May.
+
+One Dominican who has received guerrilla training in Cuba organized the 14th of June Revolutionary Movement (MR 14J) earlier this year out of the old APCJ and MPD. The immediate aim of this new organization is to promote urban terrorism. A terrorist captured by police in mid-March is said to have told police that this group is receiving arms and guidance from Castro.

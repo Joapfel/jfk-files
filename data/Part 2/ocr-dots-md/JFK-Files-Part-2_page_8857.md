@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_8857.png
+
+Convert to Markdown14-0000
+
+<table><tr><td>CLASSIFIED INFORMATION</td></tr><tr><td>22</td><td>SECRET</td></tr><tr><td>3</td><td>1</td></tr><tr><td>3</td><td>5</td></tr><tr><td>3</td><td>6</td></tr><tr><td colspan="2">TO: DIRECTOR</td></tr><tr><td colspan="2">FROM: VILLAGE OF CHIHUAHUAL DE OJOS, CA 2, CA/PES, CA/PROP, CHIHUAHUAL DE OJOS, CI/IC 2, FI, FI/D, FI/INT 2, Log./LL, LE, LH, CH, CL/1, AC/CL, AC/HL, AD, RS, OR,</td></tr><tr><td colspan="2">TOCO:</td></tr></table>
+
+<table><tbody><tr><td rowspan="2">DATE: DEC 21 014 2:03 IN: 2-247</td></tr><tr><td>INTEL TYPE: DESIGNED</td></tr><tr><td>SUPPRESS SOURCE: DESIGNATED FROM ITALIA AND FRENCH AMENDMENTS TO CUBA, CUBAN MERCHANTS AND SUGAR EXPERTS</td></tr><tr><td>FILMED: 21/12/85</td></tr><tr><td>REPORT CLASS: SECRET NO FOREIGN DISSEMINATION SUBJECT: EFFORTS OF CUBAN GOVERNMENT TO INITIATE COMMERCIAL BARTER WITH WESTERN EUROPEAN COUNTRIES DED DEC 63 PADA MEXICO MEXICO CITY 20 DEC 63 APP 3 SOURCE: WESTERN EUROPEAN BUSINESSMAN WHO TRAVELS FREQUENTLY TO CUBA WHERE HIS COMPANY MAINTAINS COMMERCIAL INTERESTS.</td></tr></tbody></table>
+
+<table><thead><tr><th colspan="2">NO DETECTION OF THE ATTACHMENT<br/>TO PORT OF ARRIVAL NOTED<br/>MADE OUT OF THOUGHT<br/>PLEASE BY THE AGENT ON LINE.</th><th>TDCS<br/>PRECEDENCE</th></tr><tr><th></th><th></th><th>Routine<br/>Priority</th></tr></thead><tbody><tr><td>RELEASING TO:</td><td>DATE DELIVERED: 11/29/85</td><td>BASED ON:</td></tr><tr><td></td><td>LIMITS</td><td>SECRET</td></tr></tbody></table>

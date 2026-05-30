@@ -1,0 +1,57 @@
+# JFK-Files-Part-2_page_1293.png
+
+Convert to MarkdownSEC. 18. GIVE FIVE CHARACTER REFERENCES—IN THE U. S.—WHO KNOW YOU INTIMATELY—(Give residence and business addresses where possible.)
+
+| | Street and Number | City | State |
+| :--- | :--- | :--- | :--- |
+| 1. William Shower, Jr. | BUS. ADD. RES. ADD. | 317 N. 2nd St., Harrisburg, Pa. | |
+
+a. Herbert C. Rupp, Jr. | BUS. ADD. RES. ADD. | 5010 N. Second St., Harrisburg, Pa.
+
+b. James G. Gates | BUS. ADD. RES. ADD. | 7289 Cameron St., Harrisburg, Pa.
+251 S. Hanover St., Carlisle, Pa.
+
+4.igt. Edward F. Keevan | BUS. ADD. RES. ADD. | Pentagon, Washington, D.C.
+5401 Columbia Pike, Arlington Va.
+
+6. Whitfield J. Bell | BUS. ADD. RES. ADD. | Dickinson College, Carlisle, Pa.
+165 W. High St., Carlisle, Pa.
+
+SEC. 19. NAMES OF FIVE PERSONS WHO KNOW YOU SOCIALLY IN THE UNITED STATES—NOT REFERENCES, RELATIVES, SUPERVISORS, OR EMPLOYERS—(Give residence and business addresses where possible.)
+
+| | Street and Number | City | State |
+| :--- | :--- | :--- | :--- |
+| 1. Milton E. Flower | BUS. ADD. RES. ADD. | 160 W. Pomfret St., Carlisle, Pa. Dickson College, Carlisle, Pa. |
+
+2. Harry E. Newman | BUS. ADD. RES. ADD. | Bond Bakers, Harrisburg, Pa.
+5012 N. 3rd St., Harrisburg, Pa.
+
+3. irg. Harry T. Rensel | BUS. ADD. RES. ADD. | Pomeroy's Inc., Harrisburg, Pa.
+2501 Green St., Harrisburg, Pa.
+
+4. Roy R. Kuebler | BUS. ADD. RES. ADD. | Dickinson College, Carlisle, Pa.
+212 N. Hanover St., Carlisle, Pa.
+
+5. Philip Bridgham | BUS. ADD. RES. ADD. | Dickinson College, Carlisle, Pa.
+422 W. Louther St., Carlisle, Pa.
+
+SEC. 20. GIVE THREE NEIGHBORS AT YOUR LAST NORMAL RESIDENCE IN THE U. S.—(Give residence and business addresses where possible.)
+
+| | Street and Number | City | State |
+| :--- | :--- | :--- | :--- |
+| 1. Frank Black | BUS. ADD. RES. ADD. | G. H. Masland, Carlisle, Pa.
+4006 Route 2, Gardners, Pa. Naval Supply Depot, Mechanicsburg, Pa. |
+
+2. Walter Slusser | BUS. ADD. RES. ADD. | R.D.2, Gardners, Pa.
+ unknown
+
+3. Lloyd Brough | BUS. ADD. RES. ADD. | R.D.2, Gardners, Pa.
+
+SEC. 21. FINANCIAL BACKGROUND
+
+A. ARE YOU ENTIRELY DEPENDENT ON YOUR SALARY: yes IF NOT, STATE SOURCES OF OTHER INCOME
+
+B. NAMES AND ADDRESSES OF BANKS WITH WHICH YOU HAVE ACCOUNTS
+Carlisle, Deposit Bank and Trust Co., Carlisle, Pa.
+
+(11) 10-6235-1

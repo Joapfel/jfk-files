@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_3520.png
+
+Convert to Markdown13-00000
+
+TOP SECRET DINAR
+
+(OAS) DEVELOPMENTS - cont'd
+---
+These (delegates, Penna Marinho) stated, "are wondering whether the Cuban Government would be so stupid as to send to Venezuela arms with the inscription 'Cuban Army' and the insignia of Cuba engraved on them" as indicated by the Venezuelan photographs shown at the (OAS). These (delegates) believe, (Penna Marinho) went on, that if Cuba had actually sent the arms to Venezuela it would first have removed any indication of their origin. This account indicates that the (Brazilian delegate) and the others of whom he speaks are apparently unaware that considerable effort had, in fact, been made to erase all evidence of the Cuban origin of these arms. The 31 submachine guns found in the cache had their serial numbers and other identifying marks recently ground off. Venezuelan technicians, using a highly technical process, were able to raise the serial numbers and the Cuban shield on some of the weapons. In independent tests, US technicians were able to raise the numbers and shields on three of these weapons. The numbers correspond to those of weapons known to have been delivered to Cuba from Belgium in 1959 and 1960. Similarly, in the case of the 81 light automatic rifles of Belgian manufacture found in the cache, all identifying marks had been obliterated. In this case, one-fourth inch of molten brazing alloy had been used to cover the places where the numbers had been ground off and it was not possible to restore the numbers. However, Venezuelan military authorities have noted that these weapons are unique to those manufactured expressly for the Cuban Government by Belgium's Fabrique Nationale in 1959, when Cuba ordered 22,500 such weapons. (NSA 3/O/BLD/T2041-63, 6 December, TOP SECRET DINAR; background data: (SECRET NO FOREIGN DISSEM))
+---
+
+The Venezuelan OAS delegate dispatched a "personal, urgent, and confidential" message to his foreign minister on 6 December expressing certain misgivings as to the attitudes of members of the special (OAS) fact-finding committee with respect to the Venezuelan charges against the Castro regime which the committee was named to investigate. The ambassador reported that he had just received "strictly confidential information" that the prevailing opinion within the committee is that it must investigate the entire subject of Cuban subversive activities in Venezuela, not limiting itself to the evidence on the Cuban origin of the arms cache found in Venezuela last month.
+
+-8-
+
+TOP SECRET DINAR
+
+c/pJ

@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_5310.png
+
+Convert to MarkdownSECRET
+
+William H. McNair @ DO
+Linda C. Cipriani @ DCI
+Eileen M. Wukitch @ DO
+
+**FROM:** J. Barry Harrelson
+JFK Project Officer
+
+**OFFICE:** OIM/HRP
+
+**SUBJECT:** ARRB Meeting 20 July - Results
+
+**REFERENCE:**
+
+The ARRB took the following actions on CIA document issues:
+
+1. Accepted CIA request to consider crypts/project names in Ford Presidential Library Documents (Rockefeller Commission) NBR, not believed relevant, protect until 2017;
+
+2. Accepted CIA request to "retype" the Australian document being released in sanitized form (Board voted to protect the liaison relationship and to delete any identifying information at previous meeting);
+
+3. Accepted CIA approved language for description of 4 pages dealing with the assassination from a sensitive foreign document know as the "Mark Lane" document. [Board member with permission of the foreign government had reviewed the full document on 7 July and agreed that the only the 4 pages should be included in the JFK collection.]
+
+4. Rejected CIA request for reconsideration of previous decision to protect only the graph of crypt, IJDECANTER [asset, dead, identity and relationship with Agency exposed in Dec 1997 LA Times article];
+
+5. Rejected CIA request to deny in full JMWAVE org chart / Board voted 5-0 to "open in full".
+
+The next Board meeting is 6 August. I need to as soon as possible if the Agency is going to appeal or ask for reconsideration re items 4 and 5.
+
+CC:
+Edmund Cohen @ DA
+James R. Oliver @ DA
+Stephen M. White @ DCI
+Martin J. Boland @ DA
+
+Sent on 20 July 1998 at 06:24:40 PM
+
+CC:
+
+SECRET

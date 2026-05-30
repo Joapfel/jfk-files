@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_1588.png
+
+Convert to Markdown19-00001
+
+2 September 1961
+
+In the event that, after consultation with the United States Government, as represented by the Contracting Officer, effective October 1, 1961, you are finally notified that said contract will be terminated by the Government as of said September 1st, 1961. You are further informed of the contents of paragraph (a) hereof of said contract, which reads as follows:
+
+All. Settled. All information related to this agreement conveyed thereon instructions, this instruction, or otherwise, is secret and shall not be divulged to any person, organization or government in any form or manner, except as authorized by the underigned Contracting Officer authorizing this agreement. It is agreed that no revelation whatsoever of the above information will constitute and be an immediate and final breach of this agreement and will result in forfeiture by you of any and all benefits which may then have accrued to you by reason of this agreement.
+
+You are hereby authorized a one-time payment in the amount of $2,000. Full compensation will be made for all work performed. In full consideration for said payment and offer, it is agreed that if at any time the Government and any agency thereof, Department or Instrumentality, therefrom or on behalf of, or for the benefit of, said Department or Instrumentality, shall use and employ force, arms, agents and instruments in any form whatever during a period of six months from the date hereof, the Government will pay you, as part payment therefor, $10,000.
+
+Your signature is in the same position below in acknowledgement of the service hereunder.
+
+UNITED STATES GOVERNMENT
+at OK
+Contracting Officer
+
+Date: 7-9-61
+
+S
+Account #:
+555
+Approved By: Fadl

@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_5930.png
+
+Convert to MarkdownSECRET
+
+27 February 1997
+
+MEMORANDUM FOR: J. Barry Harrelson
+Historical Review Group
+Center for the Study of Intelligence
+
+FROM: Janet A. Ecklund
+Chief, Information Management Branch
+Office of Personnel Security
+
+SUBJECT: Request No. CIA-16 from JFK Board
+
+REFERENCE: CSI 97-062 dated 31 January 1997.
+
+1. (U) The Office of Personnel Security has researched this request from the Assassination Records Review Board relating to the existence of pre-assassination files on Lee Harvey Oswald.
+
+2. (U) In response to the specific questions listed in Mr. Marwell's letter to the Historical Review Group, the following responses are provided to those three questions pertaining to the Office of Personnel Security (OPS). These responses are the best reasonable answers based on available information. Please note OPS was known as the Office of Security prior to 1 October 1994.
+
+**Question 1:** (U) Please identify, as specifically as possible, each file held by CIA on Oswald at the time of the assassination of President Kennedy.
+
+**Response:** (U) At the time of the assassination, the Office of Security (OS) held two files which contained information on Lee Harvey Oswald. A file entitled Defectors File (#0341008) contained a reference to Lee Harvey Oswald,
+
+Regraded Confidential
+When Separated From
+Secret Attachment
+
+CL BY: 0605636
+CL Reason: 1.5(c)
+DECL ON: X1
+DRV FROM: COV 1-82
+
+SECRET

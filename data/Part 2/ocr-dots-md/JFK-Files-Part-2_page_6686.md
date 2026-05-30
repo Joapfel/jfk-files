@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_6686.png
+
+Convert to Markdown9 February 1994
+
+MEMORANDUM FOR: OGC/Litigation STEVE
+FROM: Terri Eagal
+Information Review Team
+SUBJECT: Files Scheduled For Destruction
+
+1. On 7 February 1994, this office was given direction by Mr. Archibald, Legal Advisor for the Office of Security, to deal directly with your office in reference to the attached.
+
+2. If you have any questions about the attached, please feel free to call on 40615. Your prompt assistance in this matter is greatly appreciated.
+
+3. Thank you for your coordination and cooperation in assisting the Records Control Schedule Analysts; Terri Eagal (40615) and Lydia Hoffman (40616).
+
+Terri Eagal
+Information Review Team
+
+13-00000

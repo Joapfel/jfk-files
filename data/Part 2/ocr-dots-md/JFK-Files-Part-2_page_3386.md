@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_3386.png
+
+Convert to MarkdownTOP SECRET
+
+131. Memo for DDP from J. C. King, 19 Oct 60, sub: Use of US Contract Personnel for JMARC Maritime Operations. S.
+
+132. Cable to JMASH from Director, 9 Nov 60, DIR 10738 (OUT 90611). S.
+
+133. Cable to Director from MADD, 1 Nov 60, MADD 8452 (IN 36407). S.
+
+134. Eisemann-Pfeiffer OH Interview, op. cit., Tape 1, p. 7.

@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_7130.png
+
+Convert to Markdown13-00000
+
+FORM 3020b
+7-71 MFG. 2/75
+
+CABLE SEC DISSEM BY ____ PER ____ TOTAL COPIES ____ RUN BY ____
+PERSON/UNIT NOTIFIED ____
+
+<table><tr><td>SECRET</td></tr></table>
+
+REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
+
+ADVANCE COPY ISSUED/SLOTTED
+
+BY AT Z
+
+<table><thead><tr><th>ACTION UNIT</th><th>I N F O</th><th>RF. FILE . VR .</th></tr></thead><tbody><tr><td>ACTION #</td><td></td><td></td></tr></tbody></table>
+
+<table><thead><tr><th colspan="3">STAFF</th></tr></thead><tbody><tr><td>1</td><td>4</td><td></td></tr><tr><td>2</td><td>5</td><td></td></tr><tr><td>3</td><td>6</td><td></td></tr></tbody></table>
+
+T 592369 EIA799
+
+PAGE 02-02
+
+IN 790579
+
+TOR:111013Z JAN 76
+
+JKRT 35661
+
+CONGRESSMEN WERE HUNGRY AND WANTED TO GET OFF TO LUNCH).
+
+3. THE DELEGATION IS QUITE DIFFERENT FROM CODEL RANDALL.
+
+NONE HAD THE INTENSITY OR INTEREST OF REP MILFORD OR THE TOUGH POLITICAL PERCEPTION OF REPS WILSON/DICKENSON. MR. CARY WAS QUITE HELPFUL IN ORGANIZING THE GROUP AND PROVIDING CLUES TO THEIR OUTLOOK. ET
+
+4. OVERALL, BELIEVE DELEGATION WAS SATISFIED THOUGH THEY PROBABLY DO NOT CONSIDER THIS AN IMPORTANT PART OF THEIR TRIP.
+
+E2, IMPDET.
+
+S E C R E T
+
+---
+
+S E C R E T
+
+---

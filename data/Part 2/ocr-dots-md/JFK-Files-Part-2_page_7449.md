@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_7449.png
+
+Convert to Markdownc. Recruit third nationals and Latin American diplomats to be assigned or transferred to bloc countries.
+
+d. Obtain communications intelligence on bloc diplomatic traffic.
+
+4. Obtain information on the Chinese Communists in Mexico.
+
+a. Spot, assess and recruit or develop sources in the Chinese community.
+
+b. Exploit the Government files on Chinese living in Mexico and effect penetration of the SHARP.
+
+4/R

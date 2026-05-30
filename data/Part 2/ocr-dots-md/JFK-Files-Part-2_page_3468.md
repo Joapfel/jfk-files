@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_3468.png
+
+Convert to Markdown- 3 -
+
+7. Also in the afternoon, the Deputy Director (Plans) read to the Panel a paper on Operation Mongoose which the Director had used earlier in the day for briefing the President. This paper was used on the instruction of the Director. The Panel asked questions about Agency activity involving Cuba, all of which were answered with the exception of one having to do with the role of the Attorney General. This query was raised by Mr. Gray who recognized and gracefully accepted the fact that he was not answered directly.
+
+8. Before the afternoon session adjourned, the Panel raised the question of the total dollar amount of funds expended annually for covert action. The Deputy Director (Plans) showed them a chart compiled by DDP-FG, dated 4 April 1962. This chart gives the precise dollar amounts expended annually. These figures vary from the Congressional ones since the support slice is not included.
+
+Distribution:
+
+Original - The Director
+l cc - Exec. Director
+l cc - C/CA-IO
+l cc - DD/P
+
+Richard Helms
+Deputy Director (Plans)
+
+13-00000

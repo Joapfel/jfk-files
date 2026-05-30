@@ -1,0 +1,56 @@
+# JFK-Files-Part-2_page_1374.png
+
+Convert to MarkdownVIA
+
+AIR
+(Specify Air or Sea Pouch)
+
+DISPATCH NO.
+
+7751
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+
+TO
+
+Chief, FE
+
+FROM
+
+Chief, Japan Base, Tokyo J.K.
+
+SUBJECT
+
+GENERAL Administrative/Personnel
+SPECIFIC
+
+5. DEC 1955
+
+DATE 30 November 1955
+
+INFO: COS/UA
+
+1. Attached is a rotation data sheet on Mr. Richard P. Wheeler.
+
+2. As you will note, lists as his first choice return to Japan Base.
+
+3. While it is realized that Japan Base concurs in its request, provided it does not hinder his career. This concurrence is based on the fact that Japan Base will be losing by next summer several of its key personnel who have contributed much to the operations of the Base. These include STANED, HASILISI, possibly CAPASSO and others.
+
+4. He has a unique knowledge of the Japanese scene, speaks the language and has a continuity of service that makes his service invaluable.
+
+5. During the next couple of years as this base gradually reduces in size, and while the Japanese are still in a receptive mood it is felt that such can be accomplished through our liaison efforts. It is therefore felt that his experience can be to the maximum benefit to KUBIK by his return here for another tour.
+
+6. In order to assist this base in its planning, an early answer will be appreciated.
+
+Chief, Japan Base, Tokyo
+
+Attachment:
+
+1. Rotation Data Sheet:
+
+Distribution:
+
+Orig & 2 - Chief, FE, w/attach.
+1 - COS/UA, w/o attach.
+
+<table><tr><td>SECRET</td></tr><tr><td>CLASSIFICATION</td></tr></table>

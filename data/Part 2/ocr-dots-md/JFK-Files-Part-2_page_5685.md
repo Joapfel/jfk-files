@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_5685.png
+
+Convert to MarkdownSUBJECT: Release of JFK Documents
+
+inquiry about our present relationship. It is doubtful that our relationship, and certainly our very sensitive operations, could withstand the resulting public debate. The existence of Prague Station, past and present, cannot be surfaced at this time without serious damage to national security. (S)
+
+6. Public acknowledgment of our stations in Managua, San Jose, Panama City, San Salvador, Santo Domingo, Buenos Aires, Lima, Santiago, and Montevideo would not further damage our operational capabilities in a specific sense. Overall, any release of information about a clandestine service breeds distrust in professionalism and will put future operations at risk. (S)
+
+7. We receive significant national collection systems support from Australia which affects national system collection efforts against Tier IA targets throughout Asia. We would jeopardize this by releasing the presence of our station to the public. Tokyo is a special case in that there is continuing disagreement regarding our station. We should not complicate the current "Spy Mania" atmosphere in Tokyo. There have been two incidents regarding our presence in Japan during the present year. Any further disclosure would exacerbate the tension and create an untenable operational atmosphere for our station and personnel. (S)
+
+8. Public acknowledgment of a station in India would be a problem for the U.S. Government. U.S. and India foreign relations are always delicate; the Indian Government is very sensitive to perceived slight to its national sovereignty, and public acknowledgment of a station would prove embarrassing to the Indian Government which in turn could ask that the station be closed. If the station were closed or significantly downsized, it would affect a large number of important intelligence collection operations. (S)
+
+9. Public acknowledgment of a station in Tunisia would be a problem for Tunisia vis-à-vis its Libyan neighbor. Libya and Tunisia share a border which means the Tunisian Government must act with some prudence regarding its relations with Libya. The Libyan Government would almost certainly respond very negatively.

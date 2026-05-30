@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_4077.png
+
+Convert to Markdownrequest, he had been permitted to make statements on the previous occasion for the purpose of having those statements made of record with the Embassy and he was assured that this was being done. However, he was told that for any assistance in regard to his financial situation in Mexico, he should contact the Protection and Welfare Section to see if that section could be of any assistance. At first he stated he would not visit the Protection Section again, but on leaving he stated he was going there and also asked what section of the Embassy he should contact to renounce his United States citizenship.
+
+A short time later on October 1, 1962, he did contact the Protection and Welfare Section, where he was advised that the section could not intervene for him in the collection of his alleged debt from the State of California.
+
+Shortly thereafter, he appeared in the Passport and Citizenship Section, where he refused to give his name but said what the penalty would be for going to an Iron Curtain country and what effect it would have on his citizenship. He was advised that such an action would be a violation of Federal law.
+
+MOBILL also on October 1, 1962, appeared in the Office of Veterans Affairs, American Embassy, Mexico City, and stated that he was withdrawing his request for G.I. educational benefits as a Korean veteran.
+
+A short time later on October 1, 1962, he left with the Embassy a copy of his letter of August 7, 1962, to the State of California Personnel Board, which, for the purpose of further background, is set out in its entirety as follows:
+
+"August 7, 1962
+
+State Personnel Board
+300 Capitol Avenue
+Sacramento, California
+
+"Conclusion:
+
+"I hereby withdraw by agreement of the punitive provision herein set forth against me for criminal conduct by the
+
+- 6 -

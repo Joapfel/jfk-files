@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_5854.png
+
+Convert to MarkdownAttachment V. Tab 1
+
+JFK Assassinations Records Review Board Requests
+for Additional Information and Records
+As of 1 September 1998
+
+<table><thead><tr><th>FORMAL REQUESTS</th><th>DESCRIPTION</th><th>RESPONSIBLE COMPONENT</th><th>STATUS/ REMAINING ISSUES</th></tr></thead><tbody><tr><td>CIA - 1</td><td>Information on the organization of CIA</td><td>All directorates, the Office of the Director and HRP</td><td>COMPLETE</td></tr><tr><td rowspan="3">CIA - 2</td><td rowspan="3">CIA 2 through 5 were background questions on the JFK collection; these types of questions were handled informally; no written responses prepared</td><td>HRP, DO</td><td>COMPLETE</td></tr><tr><td>HRP, DO</td><td>COMPLETE</td></tr><tr><td>HRP, DO</td><td>COMPLETE</td></tr><tr><td>CIA - 3</td><td rowspan="4">Cables and dispatches</td><td>DO</td><td>COMPLETE</td></tr><tr><td>CIA - 4</td><td>HRP, DO, DS&T</td><td>CONTINUING 1 History pending access approval.</td></tr><tr><td>CIA - 5</td><td>DCI/IRO</td><td>COMPLETE</td></tr><tr><td>CIA - 6</td><td>DI</td><td>Documents available; being reviewed by Board Staff</td></tr><tr><td>CIA - 7</td><td>Review of 60 CIA histories</td><td>DCI/IRO</td><td>COMPLETE</td></tr><tr><td>CIA - 8</td><td>Intelligence Community Staff Records</td><td>DI</td><td>Documents available; being reviewed by Board Staff</td></tr><tr><td>CIA - 9</td><td>Intelligence Community Publications on Cuba or USSR, Nov. 20-30, 1963</td><td>DI</td><td>Documents available; being reviewed by Board Staff</td></tr><tr><td>CIA - 10</td><td>Interagency Source Register</td><td>DO</td><td>COMPLETE</td></tr><tr><td>CIA - 11</td><td>Sylvia Duran Materials</td><td>HRP, DO</td><td>COMPLETE</td></tr><tr><td>CIA - 12</td><td>Files on five persons allegedly connected with JMWAVE</td><td>DO, DA</td><td>COMPLETE</td></tr><tr><td>CIA - 13</td><td>Mexico City Back-channel Communications</td><td>DO</td><td>COMPLETE</td></tr><tr><td>CIA - 14</td><td>Mexico City Station annual Reports</td><td>DO</td><td>COMPLETE</td></tr><tr><td>CIA - 15</td><td>Win Scott files from Russ Holmes files</td><td>HRP, DO</td><td>COMPLETE</td></tr><tr><td>CIA - 16</td><td>Oswald Pre-Assassination Files</td><td>DO, DA</td><td>COMPLETE</td></tr></tbody></table>
+
+14-00000

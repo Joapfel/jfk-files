@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_3984.png
+
+Convert to MarkdownCONFIDENTIAL
+
+BACKGROUND USE ONLY
+
+LIMIT DISTRIBUTION
+
+In June, shortly thereafter, he discussed with an American consular official in Zurich his recurrent fear that the CIA was going to "hit" him. His next travel point was to West Berlin, and on June 11, 1968, while his train was traversing the DDR, he says that he was taken off the train and illegally detained. He is not certain why he was taken off the train but admits to having talked freely on the train to other passengers about his life history, and he was also carrying with him a heavy portfolio of all of his Army and government records involved with his service career, disability, and imprisonment. For several months Nagell claims that he was interrogated by the East Germans and repeatedly asked to confess his role as a spy or govern- ment agent. Eventually, Nagell says that he concluded the only way to be released would be to feign mental illness, which he says he proceeded to do. This was several weeks ago and he says he was soon examined by an East German psychiatrist and events were set in motion which culminated in his release today, four and one-half months after his detention began.
+
+Mr. Nagell's plans for the future center around returning
+to the United States and beginning an appeal to the govern-
+ment to grant him a psychiatric disability pension, as well
+as for his physical disability, on the basis of his head
+injury. He no longer believes that it is realistic to think
+that the CIA was trying to kill him.
+
+Mental Status Exam
+
+Mr. Nagell is a tall, 38 year old male who shows the evidence
+of a prior head injury in the form of extensive scars on
+the left side of his face, facial asymmetry due to seventh-
+nerve injury, reconstructive surgery on his left ear, etc.
+In addition he shows some healed incisions on his left wrist
+which he claims were superficial lacerations self-inflicted
+at the time of his first imprisonment in 1963, and again a
+few weeks ago in the DDR. He denies that in either instance
+he seriously intended to kill himself. He is of superior
+intelligence and shows a remarkable memory for dates and
+names. Initially he was belligerent, angry, and suspicious
+of every effort made to help him. Over the span of two
+hours, he gradually became more cooperative and rational.
+He is in his own terms a "chronically paranoid person" by
+which he means that he is always highly suspicious and tends
+to impute intentions where none may exist. Despite his
+
+CONFIDENTIAL
+
+BACKGROUND USE ONLY

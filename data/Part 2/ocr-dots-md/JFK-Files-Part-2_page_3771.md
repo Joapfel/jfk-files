@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_3771.png
+
+Convert to Markdown# Garrison Seeking Two As Arms Theft Plotters
+
+NEW ORLEANS, La. (AP) — Dist. Atty. Jim Garrison has asked Canadian and Texas authorities to arrest two men charged in an incident which Garrison's office says “may or may not be related” to his probe of the Kennedy assassination.
+
+Garrison telegraphed arrest warrants yesterday to Montreal for Gordon Novel and to Dallas, Tex., for Sergio Arcacha Smith, based on charges of conspiring to burglarize a munitions bunker in 1961.
+
+Garrison obtained a warrant for Novel's arrest last week as a material witness in the probe of President John F. Kennedy's assassination.
+
+The new charge accused Novel and Arcacha of conspiring with David W. Ferrie to commit simple burglary of a munitions dump in Houma, about 40 miles southwest of New Orleans,
+
+Garrison has alleged that Fer- rie, Lee Harvey Oswald and Clay L. Shaw plotted in mid- September 1963 to kill President Kennedy. Oswald and Ferrie were dead. Shaw, 4, a retired New Orleans executive, has been indicted on a charge of conspiring to kill the president.
+
+The warrants for Novel and Arcacha were signed by Criminal Dist. Court Judge Thomas Brahney, who set bond at $5,000 for each. Novel already had a $50,000 bond awaiting him on the warrant for his arrest as a material witness,
+
+Arcacha, head of the anti-Castro Cuban Revolutionary Council in New Orleans in 1961, said in Dallas he does not know whether he will fight extradition to New Orleans. But he added, "It is a shame that in this country they do this to honest people."
+
+The Shaw case is scheduled for arraignment Wednesday.
+
+CIA HISTORICAL REVIEW PROGRAM
+RELEASE IN FEBRUARY 1998

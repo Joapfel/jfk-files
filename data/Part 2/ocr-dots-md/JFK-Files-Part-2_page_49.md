@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_49.png
+
+Convert to MarkdownSECRET
+
+8 August 1961.
+
+SUBJECT: Luis Albert PERRE
+
+1. Luis Albert PERRE, prominent Puerto Rican businessman, financier, and industrialist, was born in Ponce, Puerto Rico on 17 February 1904. The Subject was educated in the Ponce Public schools, the Morristown School in New Jersey, and the Massachusetts Institute of Technology where he received his B.S. and M.S. degree in Mechanical Engineering.
+
+2. PERRE has traveled widely, primarily through Europe and the Caribbean, under United States Passport #3452P, issued in 1953, San Juan, Puerto Rico. Subject speaks Spanish, English, and French; he is a member of the Roman Catholic Church, the Republican (State-hood) Party, Lions Club, and the American Society of Mechanical Engineers.
+
+3. PERRE is presently Vice-President of Farre Industries and has held (or in some instances still holds) the following positions:
+
+Vice-President Ponce, Cement Corp., Ponce, P.R.
+Vice-President Puerto Rico Iron Works, Ponce, P.R.
+President Puerto Rico Glass Corp., San Juan, P.R.
+Vice-President Puerto Rico Clay Corp., San Juan, P. R.
+President Fabrica Nacional Vidrio, Maiguetia, Venezuela
+Director Cementos Nacionales, Santiago de Cuba
+Chairman Ponce Products, Inc., Miami, Florida
+Director Maule Industries, Miami, Florida
+Director Banco de Ponce, P.R.
+
+The Subject's capital holdings are estimated to be over $1,000,000; his earnings are estimated at $50,000 per year.
+
+4. Mr. PERRE is widely known throughout the Caribbean and is reportedly a man of high moral character and above average intelligence.
+
+SECRET
+
+Sent to STATE on 8 Aug 61 no puchl. candidate for OAS-prepared team for D.N. from Long practical trial.

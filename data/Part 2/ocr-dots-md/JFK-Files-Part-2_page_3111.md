@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_3111.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+go in with the US Marines. He admitted that this was only his personal opinion, but he felt that in view of his experience and contact with the Cuban exiles, he had a good point. I could not help agree with him. 83/
+
+Agent George Davis apparently was extremely interested in full cooperation with the Agency, quickly accepting the Agency representative's proposal that they visit the FBI offices once or twice each week to compare notes; and the CIA field representative, in turn, agreed to pass on to Mr. Davis in the FBI any information which the Agency might acquire pertaining to FBI interests.*
+
+* The Forward Operations Base (FOB) opened in May 1960 in Coral Gables, Florida, and it was the second FOB that had been established since the formation of WH Division -- the initial base having been set up during the anti-Arbenz operation in Guatemala in 1953-1954. In general, the Miami FOB paralleled the organization of Headquarters with FI, CI, CA, Support, and PM units. FOB reported directly to the Chief, WH Division, not to Jake Esterline, Chief, WH/4. Initially the satellite communications center for relaying commo between Headquarters and the field -- including facilities in the Florida Keys concerning the maritime operations -- was established; and ultimately the commo link would connect Headquarters with the operations in Guatemala and Nicaragua. The cover firm for the base, was Clarence A. DePew & Sons, a notional cover for an organization engaged in classified research.
+
+A series of some 32 reports has been prepared on the FOB, and the reports are available through the Records Management Officer of WH Division. These (footnote continued on following page)
+
+TOP SECRET

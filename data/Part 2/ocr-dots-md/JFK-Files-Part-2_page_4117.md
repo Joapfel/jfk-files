@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_4117.png
+
+Convert to MarkdownRe: Teams 25 & 26, U.S. Army Coordinating Detachment (USACRAPE 8177 A.U.), Korea. 1956-1957. And ROA HID operations sponsored and directed by U.S. Military Intelligence.
+
+"Completely true!"
+
+# UNC Rejects Red Kidnaping Charge
+
+PANMUNJOM, Korea (AP)—The U.N. Command Saturday labeled "completely false" a Communist charge that an armed raiding party from the Republic of Korea broke into a North Korean village and killed a farmer and kidnapped a teen-age boy.
+
+"There is no evidence that these actions were done by the military personnel of the U.N. Command." U.S. Maj. Gen. Matthew K. Deichelmann told Communist North Korean members of the Military Armistice Commission.
+
+He said the Communist claim could have been manufactured for propaganda,
+
+MAJ. CEN. Chung Kok Rok senior Communist delegate to the commission, demanded immediate return of the 17-year-old North Korean boy allegedly kidnapped Dec. 2.
+
+Gen. Chung also handed the U.N. side a list of 150 North Koreans it claimed have been kidnaped from North Korea since the Korean war ended three years ago.
+
+Deichelmann said the roster was accepted and would be studied.
+
+"I MERELY pointed out that 3 was a well-known fact that many thousands of unhappy people living under any intelligent regime must end their lives to escape to the laws where they live according to their conscience," he added.
+
+The North Korean side called the 5th meeting of the Armistice Commission to accept the alleged Dec. 2 kidnapping.
+
+Deichelmann said "it is entirely

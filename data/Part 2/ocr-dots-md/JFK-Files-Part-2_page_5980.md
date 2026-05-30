@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_5980.png
+
+Convert to Markdown14-0000
+
+HSCA Names
+
+Alvarado, Gilberto
+Arcacha-Smith, Sergio
+Azcue Lopez, Esuebio
+Cabell, Earle
+Calderon, Luisa
+Cheme, Leo
+Cobb, June Viola
+Conein, Lucien E.
+de Mobrenschildt, George
+Diosdado, Cesar
+Duran, Silvia Tirado de
+Ferrie, David W.
+Garrison, James
+Garro de Paz, Elena
+Gutierrez Menoyo, Eloy
+Hall, Loren Eugene
+Heming, Gerald Patrick
+Johnson, Priscilla Mary Post
+Kantor, Marvin
+Kostikov, Valeriy Vladimirovich
+Martin, Jack
+Masferrer y Rojas, Rolando
+McMillan, Priscilla Johnson
+McVickar, John Anthony
+Nagell, Richard Case
+Odio, Sylvia
+Pawley, William D.
+Proenza, Maria Teresa
+Raikin, Spas
+Ray, Manuel
+Ruby, Jack
+Salvat Roque, Juan Manuel
+Shaw, Clay
+Snyder, Richard E.
+Sturgis, Frank Anthony (aka Fioriri)
+Teciana, Antonio Carlos Blanch
+Webster, Robert Edward
+Verbell, Mitchell Livingston III

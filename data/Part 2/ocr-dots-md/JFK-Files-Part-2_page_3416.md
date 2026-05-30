@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_3416.png
+
+Convert to MarkdownHR 1-11e
+
+27 March 1964
+p. 23
+
+Mission Statement
+Office of Special
+Activities
+
+27 March 1964
+fig.7, p. 22
+
+Organizational Chart
+Office of Special
+Activities
+
+The following Directorate of Science and Technology documents are pending Directorate re-review.
+
+HR 1-11e
+
+10 February 1975
+p. 23
+
+Mission Statement
+Office of Technical
+Service
+
+HR 1
+
+10 February 1975
+fig.7, p. 22
+
+Organizational Chart
+Office of Technical
+Service
+
+RETURN TO CIA
+Background Use Only
+Do Not Reproduce
+
+DRAFT

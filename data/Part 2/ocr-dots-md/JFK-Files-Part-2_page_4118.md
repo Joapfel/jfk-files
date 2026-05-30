@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_4118.png
+
+Convert to Markdown13-00000
+
+# UN C Dismisses Red Infiltration Charge
+
+MUNSAN-NI, Korea (UNC/MAC)—A United Nations Command representative Friday branded as “wholly” without foundation” Communist charges that two persons allegedly under UNC orders, had crossed the military demarcation line into North Korean territory on Apr. 27, 1957, to perpetrate “hostility acts.”
+
+Id. Col. James H. Dyson, senior member of the UNC component of the team that conducted an investigation, informed his Communist counter-part:
+
+"Complete and careful examina-
+
+tion and the lack of the testimony and evidence in this case shows clearly not the conclusions contained in your report are not substantiated by evidence."
+
+(Col., DYSON was referring to an out-the-way investigation of the alleged incident, conducted by a Military Armamentice Commission joint observer team May 23.
+
+According to Commauds claims, two armed personnel crossed the military demarcation line disguised in uniforms
+
+of soldiers of the Korean people's Army and penetrated 1,600 yards into Communist territory on the night in question before being stopped by anist Demilitarized 7 police.
+
+One of the persons was rested while the other went to the south. Communications were said.
+
+CHARACTERIZING the actions of the Communists as "completely unfounded," Col. D expressed doubt if they "in the strongest possible terms."

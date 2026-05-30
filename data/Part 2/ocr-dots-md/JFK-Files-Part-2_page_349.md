@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_349.png
+
+Convert to MarkdownREPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+COPY NO.

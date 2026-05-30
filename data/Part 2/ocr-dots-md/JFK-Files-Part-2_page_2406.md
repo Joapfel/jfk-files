@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_2406.png
+
+Convert to Markdown## SEC. 20 GENERAL QUALIFICATIONS (Cont'd)
+
+### D. HAVE YOU ANY SPECIAL KNOWLEDGE OR TRAINING WITH RESPECT TO:
+
+MOTOR VEHICLES? [ ] Yes [ ] No AIRPLANES? [ ] No [ ] Yes
+
+GIVE PARTICULARS ..................................................................
+
+### C. LIST all SPORTS AND HOBBIES WHICH INTEREST YOU; INDICATE DEGREE OF PROFICIENCY IN EACH.
+
+* Swimming - Excellent
+* Fishing - Good
+* Driving - Excellent
+* Golf - Fair
+* Tennis - Fair
+
+### D. HAVE YOU ANY QUALIFICATIONS, AS A RESULT OF TRAINING OR EXPERIENCE, WHICH MIGHT FIT YOU FOR A PARTICULAR POSITION?
+
+Yes. I have had considerable supervisory and administrative experience in the intelligence field, having been in charge of all F.B.I. personnel in Colombia and Mexico while in those countries. In addition, I supervised from Washington, the counter-intelligence work of the U.S. I. A. in men. I was an American citizen during 1945, and on March 1946 administered the work of the New York Division of the F.P.I., as an instant special agent in Chief. I am qualified to undertake administrative work in foreign countries.
+
+## SEC. 27. PERSON TO BE NOTIFIED IN CASE OF EMERGENCY:
+
+| NAME | Mrs.pira L. Chideul | RELATIONSHIP | Life |
+|---|---|---|---|
+| ADDRESS (603) | 400 Pine Street St. & No. | CITY | AL |
+|  |  | State |  |
+|  |  | Country |  |
+
+AL
+
+- 11 -

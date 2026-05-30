@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_3900.png
+
+Convert to Markdown13-00000
+
+<table><tr><td colspan="2">CLASSIFICATION</td></tr><tr><td>MEMORANDUM FOR THE RECORD</td><td>DATE<br/>WASH. POST<br/>5-26-67</td></tr><tr><td>SUBJECT</td><td>FILE NUMBER</td></tr><tr><td colspan="2">In District Attorney in Garrison's investigation of the Kennedy assassination worked for the Central Intelligence Agency in early 1961 Novel's attorney said yesterday The attorney Steve Plotkin said Novell served as an intermediary between the CIA and anti-Castro Cubans in New Orleans and Miami before the April 1961 Bay of Pigs invasion Plotkin maintained though that Novel had title of nothing to do with the Bay of Pigs invasion and certainly had absolutely nothing to do with the assassination of President Kennedy Garrison has charged that the CIA fomented a monstrous coverup to dupe the Warren Commission in its investigation of the assassination Plotkin made this statement After the New Orleans States Item said it had discovered a letter written by Novel apparently to a CIA official named "Mr. Weiss" and asking that he be taken out of this mess In March of this year</td></tr><tr><td colspan="2">CIA HISTORICAL REVIEW PROGRAM<br/>RELEASE IN FULL 1998</td></tr><tr><td>OFFICE AND TITLE</td><td>SIGNATURE</td></tr><tr><td colspan="2">FORM 1954 GROUP I<br/>RECORDED FROM AUTOMATIC<br/>DOWNSLOADING AND<br/>DECLARATION</td></tr></table>
+
+(40)

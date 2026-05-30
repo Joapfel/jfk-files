@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_5799.png
+
+Convert to Markdown09/16/98
+
+d. The Army's Investigative Records Repository file on Alfredo Mirabal Diaz.
+
+The CIA will complete its review and and recommendations for release of the major record categories listed above no later than April 30, 1999. To the extent there may be other agency documents requiring CIA review under JFK Act, the CIA will continue to undertake such review.
+
+4. The CIA shall handle the certain original or postponed records in the following manner:
+
+a. By September 30, 1998, CIA shall transmit to the "Protected Collection," in accordance with Section 5(e) of the JFK Act, the originals of all postponed records from Lee Harvey Oswald's 201 file, Office of Security file, and "A" file.
+
+b. By September 30, 1998, CIA shall transmit to the "Protected Collection" the hardcopy original of Marina Oswald's 201.
+
+c. By September 30, 1998, the CIA will transmit to the "Protected Collection" all of the original microfilm rolls for the CIA-HSCA sequestered collection.
+
+d. By September 30, 1998, the CIA will transmit to the "Protected Collection" all records with postponed information to the extent that such records are not available on the CIA-HSCA microfilm rolls transmitted to NARA.
+
+e. By October 30, 1998, the CIA will transmit to the "Protected Collection" the entire Oswald 201 file that was printed from the CIA-HSCA sequestered collection microfilm (this will provide the CIA with time to make its own reference copy).
+
+f. By December 31, 1998, CIA shall transmit to the "Protected Collection" the originals of all postponed records from the Russ Holmes working files (this will permit the CIA to process duplicate records in the Holmes Collection by that date).
+
+5. The Review Board and the CIA have determined that certain materials reviewed under the JFK Act are not believed to be relevant to the Kennedy assassination (designated "NBR"), but nonetheless should ultimately be placed in the JFK

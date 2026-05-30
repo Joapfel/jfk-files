@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_6317.png
+
+Convert to MarkdownDRAFT
+
+any inter- or intra-agency collection or segregation of documents and other materials);
+
+(3) Other records or groups of records listed in the Notice of Assassination Record Designation, as described in §1400.8 of this chapter.
+
+## §1400.2 Scope of additional records and information.
+
+The term **additional records and information** includes:
+
+(a) All documents used by government offices and agencies during their declassification review of assassination records as well as all other documents, indices, and other material (including but not limited to those that disclose cryptonyms, code names, or other identifiers that appear in assassination records) that the Assassination Records Review Board has a reasonable basis to believe may constitute an assassination record or would assist in the identification, evaluation or interpretation of an assassination record. The Assassination Records Review Board will identify in writing those records and other materials it intends to seek under this section.
+
+(b) All training manuals, instructional materials, and guidelines created or used by the agencies in furtherance of their review of assassination records.
+
+(c) All records, lists, and documents describing the procedure by which the agencies identified or selected assassination records for review.
+
+(d) Organizational charts of government agencies.
+
+(e) Records necessary and sufficient to describe the agency's:

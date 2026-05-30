@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_1160.png
+
+Convert to MarkdownSECRET
+
+SECTION C (Continued)
+
+and direction but is quick to disagree if such be the case. However, he can be counted upon to implement fully a decision once one has been reached.
+
+SECTION D.3. (Continued)
+
+In his written work, more so than in his oral presentations which tend to be somewhat rambling. He is a cheerful and outgoing person who has learned Spanish exceptionally rapidly and well. He has developed a good understanding of, and rapport with, his contacts both liaison and independent.

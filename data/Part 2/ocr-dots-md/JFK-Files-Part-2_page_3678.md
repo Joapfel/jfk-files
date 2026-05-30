@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_3678.png
+
+Convert to Markdown1. USSR
+
+a. TASS has finally announced that the USSR will conduct another series of ICBM firings to the Pacific during the period 2 December to 25 January.
+
+b. Since our last mention of this subject, we have picked up indications that some of the firings this time may be made from operational launchers rather than from the Tyuratam rangehead.
+
+c. There has been unusual traffic on the strategic rocket forces communications link between the operational site at Plesetsk and Moscow similar to that which preceded the firing last October from Plesetsk to Kamchatka.
+
+d. In addition, some inter-cepted telephone conversations have implied that the firing ranges would be different this time.
+
+e. We also have some fragmentary evidence that the forthcoming firings may be the object of a special tracking or detection project. (Includes INTERCEPTS)
+
+For The President Only - Top Secret

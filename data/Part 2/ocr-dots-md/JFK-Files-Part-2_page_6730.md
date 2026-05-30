@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_6730.png
+
+Convert to MarkdownSECRET
+
+* if desired, a textual explanation of the cryptonym in the nature of a factual description of the source (e.g., "a valued American intelligence source who was a senior, but not general rank, official in the intelligence service (KGB) of the former USSR; specifically, he served in the Second Chief Directorate which was responsible for internal counter-intelligence efforts."
+
+* As the Board is aware, the relevant document has been released almost in its entirety.
+
+* The released version reports that a Soviet official (Boris ZHURAVLEV) had provided information to the effect that OSWALD was a KGB source.
+
+* It continues by stating that CIA did not believe ZHURAVLEV to be a credible source.
+
+* It continues by stating that this CIA assessment is supported by reporting from another source (identity redacted but, in fact, IJDECANTER).
+
+* It concludes by stating that this source (IJDECANTER) has had his "... bona fides ... fully established [by CIA]."
+
+* It is this final fact which is critical.
+
+* By having released this substantive information -- "bona fides ... established" -- AND by otherwise having IJDECANTER known to the public in true name and crypt, THEN WE MUST PROTECT the cryptonym here so that the key intelligence judgment of CIA is not compromised.
+
+* I would appreciate a few moments to explain, with I hope some degree of specificity, why identifiable damage would come from this disclosure -- the disclosure of the crypt in this particular instance along with this key intelligence judgment.

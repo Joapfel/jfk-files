@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_6188.png
+
+Convert to MarkdownBarger, Christopher Meade 469-98-3261
+Combs, Kathryn Michelle 229-13-8465
+Golrick, Philip David 225-21-0020
+Gunn, Thomas Jeremy 529-74-8907
+Legaspi, Manuel Espiritu 568-53-8907
+Marr, Irene Frances 013-54-5987
+Marwell, David George 080-38-7009
+Rosen, Brian Eliot 473-58-1973
+Skwirot, Robert John 209-50-4324
+Trzaska-Sails, Valerie Marie 589-40-1874

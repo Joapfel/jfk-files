@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_3699.png
+
+Convert to Markdown# TOP SECRET DINAR
+
+## CONTENTS
+
+(Information as of 1200 EST, 26 December 1963)
+
+### THE COMMUNIST WORLD
+
+| | Page |
+|---|---|
+| **SOVIET TRADE ACTIVITY IN THE INDUSTRIAL WEST** | 1 |
+| Within a week after the central committee approved Khrushchev's plan for the chemical industry, Soviet traders apparently had their instructions and were renewing contacts in the industrial West. | |
+| **CHINESE COMMUNIST LEADERS' AFRICAN TOUR** | 2 |
+| While Chou En-lai and Chen Yi have been able to project an aura of Afro-Asian amity during the first two weeks of their two-month tour, they have not scored comparable successes in the political or economic fields. | |
+| **EAST GERMAN REACTION TO RELAXATION OF BERLIN TRAVEL** | 3 |
+| The East German people, while elated over the holiday travel arrangements in Berlin, are publicly voicing hope that they may be permitted to visit their relatives in West Berlin and West Germany. | |
+| **NORTH KOREA IMPROVES AIR DEFENSE CAPABILITY** | 4 |
+| Pyongyang has more widely dispersed its supersonic MIG-21s, has acquired relatively sophisticated new radar, and has equipped its IL-28s with an improved blind bombing and navigational system. | |
+| **NORTH VIETNAM'S MILITARY ESTABLISHMENT** | |
+| This military force, primarily a ground army with no tactical air and little naval capability, is nevertheless the most formidable in Southeast Asia. Its most notable achievement is its highly specialized capability to support and maintain insurgency operations in adjacent countries. (Published separately as Special Report SC No. 00624/63B) | |
+| ASIA-AFRICA | |
+| **ENTHUSIASM FOR SOUTH VIETNAM REGIME FLAGGING** | 5 |
+| The military regime is beginning to take steps to make its counterinsurgency effort more effective, but the generals still seem to have little idea of how to rally significant popular support. | |
+| **LAOS** | 6 |
+| Communist forces have moved to erase recent gains by rightist units in central Laos. Neutralist and Pathet Lao representatives are continuing their efforts to ease tension between the two factions. | |
+
+27 Dec 63
+
+CURRENT INTELLIGENCE WEEKLY REVIEW
+
+Page i
+
+TOP SECRET DINAR

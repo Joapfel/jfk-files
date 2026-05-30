@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_8261.png
+
+Convert to Markdownfacility available.
+
+g. Transportation under escort via MATS to military base Panama proposed.
+NB (included at bottom of page): ADAMSON reworked cable and rew'd draft
+to HAND, CARLAN, TOD, and VILLEMETTE who approved. HAND took draft in
+order to have OSO get it out today.
+
+Note dated 8 April 1951.

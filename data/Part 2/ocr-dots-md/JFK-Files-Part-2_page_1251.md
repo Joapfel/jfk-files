@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_1251.png
+
+Convert to MarkdownCONFIDENTIAL
+
+8 January 1962
+
+MEMORANDUM FOR: Mr. Joseph D. Smith
+
+SUBJECT : Commendation for Services Performed in Connection with President John F. Kennedy's Visit to Venezuela and Colombia
+
+1. It gives me a great deal of personal pleasure to commend you on the high degree of competence and devotion to duty you displayed in connection with President John F. Kennedy's visit to Colombia and Venezuela. The professionalism you demonstrated in planning for and during the President's visit contributed to the outstanding success of his trip.
+
+2. A copy of this memorandum is being made a matter of record in your personnel file.
+
+RICHARD M. BISSELL, JR.
+Deputy Director
+(Plans)
+
+CONFIDENTIAL

@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_939.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="5">FIELD-CONDITION QUESTIONNAIRE</th></tr></thead><tbody><tr><td colspan="3">DO NOT COMPLETE FOR HEADQUARTERS USE ONLY</td><td colspan="2"></td></tr><tr><td>NAME<br/>J.S. Fox</td><td>DATE RECEIVED AT HEADQUARTERS,<br/>14 March 1973</td><td>SIGNATURE<br/>14 Mar 73</td><td>Name of Supervisor (true)<br/>George Kalaris</td><td>DATE (if not 3/26)<br/>14 Mar 73</td></tr><tr><td></td><td></td><td>DISPATCH NUMBER<br/>FPMT-15218</td><td>DATE RECEIVED BY CAREER SERVICE,<br/></td><td></td></tr><tr><td colspan="5" style="text-align:center;">TO BE COMPLETED BY DEPLOYED</td></tr><tr><td>I. DATE OF BIRTH<br/>10/9/28</td><td>J. SERVICE DESIGNATION<br/>D</td><td>3. YOUR CURRENT POSITION, TITLE AND LEVEL<br/>Opa Ofcr, GS-13</td><td>K. STATISTICS ON BASE<br/>Manila</td><td>L. CARRY FOR CURRENT COUSE<br/>MIHALLUX</td></tr><tr><td>A. DATE OF PCS ARRIVAL IN FIELD<br/>(2nd tour)<br/>29 June 71</td><td>B. DUE TO BE DATE OF DEPARTURE<br/>1 July 1973</td><td>C. EXPECTED DATE OF FIRST CHECK-IN AT NO<br/>1 August 1973</td><td>D. DUE IN DATE TO REPORT TO SGT.<br/>1 September 1973</td><td>E. DUE IN DATE TO REPORT TO SGT.<br/>AFTER LEAVE<br/></td></tr><tr><td colspan="5">7. NUMBER AND AGES OF DEPENDENTS AND WILL TRAVEL WITH YOU?<br/>Wife; Dau - 13; Son - 12</td></tr><tr><td colspan="5"><b>8. PERSONAL CIRCUMSTANCES THAT SHOULD BE CONSIDERED IN DETERMINING NEXT ASSIGNMENT.</b><br/>Wife cannot travel by air for medical reasons. Separate travel has been utilized in past assignments with principal and dependents going by air and wife following by ship.</td></tr><tr><td colspan="5"><b>9. LIST YOUR MAJOR DUTIES DURING THIS TOUR (see special note on transmittal form).<br/>(also attach personal cover questionnaire in accordance with CSI-P-240-8)</b><br/><br/>Referent on MHABYSS matters 1 July 1972 to present.<br/>Referent on MPWATCH matters prior to 1 July 1972.<br/>Recruit and handle unilateral agents.<br/>Backup liaison officer with official services.<br/>Station PERAMPART officer.</td></tr><tr><td colspan="5"><b>10. TRAINING REQUIRED.<br/>INDICATE WHAT TRAINING YOU BELIEVE YOU SHOULD HAVE DURING THE NEXT SEVEN DAYS</b><br/><br/>None</td></tr></tbody></table>
+
+202
+
+SECRET
+
+(4)

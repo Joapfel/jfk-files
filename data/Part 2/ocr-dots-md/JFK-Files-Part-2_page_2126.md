@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_2126.png
+
+Convert to MarkdownSECRET
+
+5. See A. (General Information)
+
+6. None known
+
+7. None known
+
+8. It is anticipated that KLOBUKAR will continue his association with CIA in a Career Agent, non-official cover capacity.
+
+9. N.A.
+
+10. N.A.
+
+11. N.A.
+
+12. N.A.
+
+13. N.A.
+
+D. Operational Information
+
+1. The type of operation is FI and the duration of assignment is indefinite. KLOBUKAR will be involved in spotting, assessing, and handling of selected agents. In appropriate and highly selected cases he will act as a recruiter. No need is anticipated at present that any individual will be made witting of KLOBUKAR's CIA affiliation while he is under unofficial cover.
+
+2. San Francisco area.
+
+3. Possibly other areas for which San Francisco Base is responsible and in the northwestern United States.
+
+4. Ideally, KLOBUKAR'S cover should be such as to allow him free and plausible business, and social and professional access to as great a portion of the local foreign element of the business, academic, consular and journalistic community.
+
+5. KLOBUKAR's income cushion will be that of a retired Foreign Service Officer, supplemented by his cover income, approximatively in total $30,000.00 per annum.
+
+- 3 -
+
+SECRET

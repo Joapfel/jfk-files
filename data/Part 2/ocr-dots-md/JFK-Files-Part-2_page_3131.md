@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_3131.png
+
+Convert to MarkdownTOP SECRET
+
+This frame of reference concerning Guantanamo Bay led the Executive Officer of WH/4, Ed Stanulis, to prepare an extremely sharp memorandum for Chief, Western Hemisphere Division raising some questions which are as pertinent to CIA today as they were when they were raised in 1960. Stanulis wrote as follows:
+
+I realize that this Agency is an implementing arm of the Executive Branch and has no right or privilege in the area of formulation of U.S. national policy. I believe that within this framework we who are part of this Agency are permitted to comment on certain State Department or other Executive Department propositions that appear, on the basis of our own personal observations and experience, to be counter-productive to the best interest of the United States. I am convinced that the course of action, described in paragraph 1 [that the U.S. use the IADB to win Latin American support for the U.S. retention of Guantanamo] is in fact within this category.
+
+It is high time that the U.S. take an understandable public position in matters of international agreement, compact, contract, and treaty. The rights of the U.S. to the Guantanamo Bay area have been clearly and legally described in several documents which bear the signatures of the then reigning and cognizant governments of the United States and Cuba, respectively. Certainly the assistance of any single or plural Latin American national entity (ies) seems to me to be indicative of an admitted weakness on the part of the United States

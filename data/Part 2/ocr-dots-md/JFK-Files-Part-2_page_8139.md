@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_8139.png
+
+Convert to MarkdownCONFIDENTIAL
+SECRET
+
+BASIC : Mexico City 5247 (IN 93087)
+
+PROJECT: None
+
+LIAISON: None
+
+WH/1/Charles M. Bounds; jb
+
+18 April 1968
+
+Distribution:
+
+Orig & 1 - Federal Bureau of Investigation
+2 - CI/GPS/DQ
+1 - WH/1/Chrono
+1 - C/MH/FI
+
+CONFIDENTIAL
+SECRET
+
+201-0832/82
+
+13-00000

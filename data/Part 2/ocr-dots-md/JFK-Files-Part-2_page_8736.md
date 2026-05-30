@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_8736.png
+
+Convert to Markdown13-00000
+
+# AMLEO Operation 19-6-75/2,3,4
+
+## UFGA 15995 Dated 2 June 1964
+
+In February 1963 AMLEO-3 (Capt. Jose Ricardo RABEL Nunez) Cuban defector, in debriefing claimed that he had high-level anti-Communist contacts in the GOC (whom he refused to name) who would listen to Rebel Army exiles but would take no positive action with them unless they demonstrated their power by eliminating Fidel or carrying out other strong action that would prove they had strong outside backing. RABEL said that the death of Fidel would be the best way to change the Government of Cuba. [COMMENT: RABEL was used in relation to the AMTRUNK Operation. He returned to Cuba on his own in 1965. RESEARCHER COMMENT: Appears possible RABEL may have been CIS provocation agent whose mission was to convince the CIA or some exile group to try to undertake a plot to assassinate Fidel.]
+
+## LIAISON with Department of the Army (ACSI) re Cuba 19-2-12
+
+### WAVE 1196 (IN 07492) Dated 20 June 1964
+
+A letter from AMSHOT-1 (now SLFREE-1) on-island, dated 8 January 1964, advised that one Francisco BLANCO was arrested on 17 Oct 1963 for involvement in a planned assassination of Fidel CASTRO. BLANCO was employed by the Office of Planificacion (sic) JUCIPLAN. JMWAVE Station
+
+SECRET/CONFIDENTIAL

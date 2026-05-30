@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_6909.png
+
+Convert to Markdownthe public can continue to use the Freedom of Information Act to request from the agencies documents related to the assassination.
+
+Mr. Chairman, this Resolution may appear complicated, but the matter of disclosure is itself complicated. It cannot be accomplished arbitrarily or summarily. The process established by the Resolution, in my view, is logical and takes account of all the interests and equities in the disclosure of these documents. In the end, I think it will result in all of the pertinent information pertaining to the assassination of President Kennedy being made public in a prompt and orderly way, and, in doing so, will help restore confidence among the public in our Government.
+
+Since the Joint Resolution was introduced, comments have been received from the Justice Department as well as others suggesting the need for change.
+
+With regard to the reaction of the Justice Department, I must say I found it very unfortunate that the Department chose to take what I found to be an extreme, hard-line position in opposing many of the key provisions of the Resolution. Rather than showing the flexibility needed in this unique circumstance to deal cooperatively with the Congress on a matter that is a serious concern for many Americans, the Justice Department chose to reassert familiar claims of Executive privilege and all of the other reasons asserted over the years to block the release of government information.

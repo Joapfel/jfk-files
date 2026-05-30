@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_7776.png
+
+Convert to MarkdownCOMMITTEE TO INVESTIGATE
+ASSASSINATIONS
+
+HERNAND PISTHARWALD, JR.
+EXECUTIVE DIRECTOR
+
+1320 16TH STREET, N. W.
+WASHINGTON, D. C. 20006
+(202) 232-1152
+
+ROBERT SMITH
+DIRECTOR OF RESEARCH
+
+JAMES LESLAE
+COUNSEL
+
+FOR IMMEDIATE RELEASE:
+
+In observance of the tenth anniversary of President Kennedy's death, the Committee to Investigate Assassinations is sponsoring a two-day Conference at Georgetown University on November 23rd and 24th. A brochure describing the Conference and its program is attached. As you will note, several of the Nation's prominent writers and investigators of the assassinations of the past decade will speak.
+
+While a number of different points of view on the subject will be represented, there is general consensus that the Executive Branch has failed to make known all the relevant facts of the assassinations. We believe that the Congress must ultimately take the initiative if the public is to learn all of the facts, and that Watergate has shown us that Congress' action depends largely on disclosures by an informed press and other news media.
+
+A press pass will be available for you at the Conference registration desk. For further information, please contact:
+
+Ms. Andrea Wyatt
+Conference Coordinator
+(202) 232-1152
+
+WA 15 ENCLASUR
+
+21

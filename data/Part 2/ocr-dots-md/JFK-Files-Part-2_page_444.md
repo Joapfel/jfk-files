@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_444.png
+
+Convert to Markdown270. Salida al 492141.-1530.-Jorrin pido a S le díga a Juan que lo tiene un paquete y HP acepta,- 224,-
+
+234. Salida al 310106.-HD pregunta por Enrique, Olga y Sergio, y HF informa que no están,- 233.-
+
+333. Salidas al 259100.-1601.- Curbelo es comunica a la Enaba Jara Americana, pide la ext., y propone a la sacerita .... que notifican lo tiene de la vivaux --- y es --- una estazá lista a las 5. Curbelotque irá a esa hora.- 246.
+
+246. Salidas sin contestación y ocupado,- 434,-
+
+434. Entrada.- Holande preguntas a Jorrin si alguien lo llamó y eso dice que no, pero Carlos Jurado le da uns un recuerdo, - Holando Rodríguez propuesta con Carlos Jurado y Jorrin díee-ofectivamente estaba equivocada.- 247,
+
+348. Salidas ocupado y sin contestación,- 693,-
+
+693. Salida al 153273.-1700.- Jorrín se queta de que le llevaron el petico pero sin los 6 atomisadoras que pidió y HP - pide marque al 158720 y hablo con la sacerita Durán.- 706.-- Jorrín acepta y al enterrarce de que por la mañana no habló-- con la sacerita Durán, repite lo anterior a la sacerita Buerrora y data quoda de envíarse la mañana.- 756,--
+
+756. Aparato muerto y salidas ocupadas y sin contestación,852.
+(3.-131.- 10 Okt.66).--

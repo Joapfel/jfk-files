@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_3467.png
+
+Convert to Markdown3. The Director then described in some detail Agency covert financial support in the recent [Peru] elections, the last [Greek] elections, and the [Finland] election. He also described our activities in connection with the Italian political parties. Following this, he covered our plans for the upcoming [Brazilian] elections. He touched on our thoughts with regard to the political situation in [British Guiana].
+
+4. At this juncture, the Director discussed Agency labor operations. He read to the group a short paper which outlined our support to anti-Communist labor unions in [France] and [Italy], our work through the [ICFTU], and our relationships with [American] labor and the assistance [United States unions] have given us.
+
+5. Agency support to cultural organizations was raised by Dr. Langer, and the Director covered in some detail the current status of our support plus that of the Ford Foundation to the Congress for Cultural Freedom and the International Commission of Jurists. He touched on the Asia Foundation, and our desire to try to obtain the services of Mr. Livingston Merchant to head it.
+
+6. In the time remaining to him, the Director went over with the Panel country by country an extended list of political parties and leaders supported by the Agency throughout the world. What he did not have an opportunity to cover in this list the Deputy Director (Plans) finished during the remainder of the morning and during the afternoon session.

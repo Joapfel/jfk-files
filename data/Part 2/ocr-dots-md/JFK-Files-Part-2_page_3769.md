@@ -1,0 +1,56 @@
+# JFK-Files-Part-2_page_3769.png
+
+Convert to MarkdownS. STATES-ITEM
+
+MAY 25, 1967
+
+Novel Admitted Bunker Theft, Rhodes Is Told
+
+Continued from Page 1
+
+New Orleans to Houma at night in a Lincoln automobile owned and driven by Gordon Novel and in a panel truck.
+
+The extradition papers also included a photograph of No-vel identified by a former girl friend, Marlene Mancu- go, 42 Oaklawn dr., Metairie, who had dated Novel in 1961.
+
+THE DOCUMENTS also contain a copy of the simple burglary charge leveled against Novel and Arcacha by the sheriff of Terrebonne Parish. The affidavit was signed by Capt. Bert Boyne, and others, unnamed, un-lawfully entered it by cutting the lock with a pair of bolt cutters which had been brought along for the pur-pose,
+
+"AFTER ARRIVING at the site of the bunker, which was leased by Schlumberger Well Services Corp., the defendant, Gordon Novel, Sergio Arca-cha Smith, David W. Ferrie, and others, unnamed, un-lawfully entered it by cutting the lock with a pair of bolt cutters which had been brought along for the pur-pose,;
+
+"After entry into the bunk-er (they) took various forms of explosives and munitions. Thereafter they returned to the city of New Orleans with the stolen munitions."
+
+Novel Admitted
+Bunker Theft,
+Rhodes Is Told
+
+An affidavit filed with new extradition papers sent to Co-lumbus, Ohio, claims that Gordon Novel admitted his part in a burglary of a mun-tions bunker in Houma in 1961. The new extradition papers were sent to Ohio Gov. James Rhodes as part of Orleans Parish Dist. Attorney Jim Garrison's efforts to bring Novel back to Louisiana on a burglary conspiracy charge.
+
+Garrison wants Novel in connection with his investiga-tion of President Kennedy's assassination.
+
+James L. Alcock, an assist-ant district attorney, said in the affidavit:
+
+"The said Gordon Novel re-sponded to questioning by Jim Garrison, district attorney for the Parish of Orleans, and William Gurvich, investigative aide to Jim Garrison, that he and the parties named here-in did in fact commit the conSPIRACY and burglary outlined above."
+
+In the body of the affidavit, Alcock declared that Novel, Sergio Arcacha Smith, David W. Ferrie and other unnamed persons "did conspire, agree, and combine to burglarize a munitions bunker located in Houma, La."
+
+He said the conspiracy was entered into in New Orleans at the home of Arcacha.
+
+Alcock said that the men went to Houma on or about Aug. 21, 1961.
+
+"The trip was made from (Turn to Page 4, Column 5)
+
+CIA HISTORICAL REVIEW PROGRAM
+RELEASE IN FULL
+
+declined to say what ques-tions were asked or what in-formation was obtained from the man.
+
+He is Juan M. Valdes, a self-described Latin playwright who figured in one of the city's more sensational murders. A subpoena was issued for him yesterday.
+
+Valdes in the summer of 1984 discovered the mutilated body of Dr. Mary Stults Sher-man, a women physician who occupied the same St. Charles ave. apartment building where the summoned witness lives.
+
+HE WAS investigating smoke coming from the Sherman apartment when he stumbled onto the body. Dr. Sherman's killer, who has never been found, tried to burn the body.
+
+Garrison would not comment on what questions will be ask-ed Valdes.
+
+Another Latin, 80-year-old Carlos Quiroga, spent two hours and ten minutes before the grand jury yesterday and emerged without comment.
+
+QUIROGA, a Cuban exile, was once a close friend and associate of a fugitive witness from the Garrison Inquiry, 44-year-old Sergio Arcacha Smith,

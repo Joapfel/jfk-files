@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_6713.png
+
+Convert to Markdown104-10336-10000
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+# ADMINISTRATIVE - INTERNAL USE ONLY
+
+5 December 1996
+
+MEMORANDUM FOR: Fredrick C. Wickham @ DO
+DO JFK Focal Point
+
+FROM: J. Barry Harrelson
+CSI/HRG
+JFK Project Officer
+
+SUBJECT: Priority Requests from ARRB Staff
+
+REFERENCE:
+
+REQUESTS:
+
+1. The ARRB Staff is planning to interview Russ Holmes about his JFK Ancillary (working) Files. Dave Marwell has requested that Holmes be given on one day clearance so that he can look to the files. How do you want to handle?
+
+2. Has David Vance Vanek (SSN 482-36-5577) ever worked for the Agency (DO)? Vanek is an army officer who served in Thailand and Vietnam; could have been detailed to Agency. He figures in one of the conspiracy theories that the ARRB staff is currently taking depositions on. Can DO check or is this an OP issue -- we have not had a lot of luck with OP. Initially the ARRB staff was going to make this a formal request, but agreed to hold off for the moment. The theory involves counter-terrorism training and the death of an American with knowledge of JFK assassination.
+
+3. **Agency Officers in Moscow:** The ARRB staff is researching Oswald's contacts in Moscow. The records shows that he came into contact with other Americans besides Snyder (the Consular Officer). Gunn requested a list of the CIA officers in Moscow a few weeks ago. Based on discussions with Ellie, etc., I told him a list did not exist and would be considered very sensitive if we did prepare one. I ask him to be more specific; if he had names, we would check against Agency records. Since then his staff has located a list of senior officers in Moscow prepared for the HSCA (Eileen has copy). He has now resurrected his requests. Let discuss the next step.
+
+4. Did Mrs. G. Stanley Brown (Verna Deane Stebbens Brown, born 12 August 1928) work for the Agency; what was her status when she was in Moscow as Embassy receptionist/secretary? She is the wife of George Stanley Brown, an Agency employee from 1952-1962. According to the ARRB staff, she had contact with Oswald (see item #3).
+
+I will give you a call on Friday to discuss our responses to the above request..
+
+CC:

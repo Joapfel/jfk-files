@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_960.png
+
+Convert to MarkdownREPUBLIC OF VIETNAM
+
+AWARD COMMENDATION
+
+FOR Mr. JEROME FOX, American counterpart to the Police Special Branch of the Directorate General of National Police, who is awarded the Third Class Honorary Police Medal by Decree No. 1744-ND/FP/NP of 24 September 1966.
+
+Mr. JEROME FOX is an outstanding counterpart and a sincere friend
+of the National Police Branch.
+
+During his period as service in Vietnam, Mr. JEROME FOX devoted
+all his ability, experience, and good will to helping the Police
+Special Branch, especially in the task of setting up a people's
+intelligence net.
+
+The dedication and enthusiasm of Mr. JEROME FOX helped the
+National Police Branch to achieve excellent results in safeguarding
+security and maintaining law and order in Saigon, the Capital.
+
+Mr. JEROME FOX's spirit of mutual aid merits praise and recognition.
+
+Saigon,
+
+24 September 1965
+
+Chairman of the Central Executive Committee
+
+/Signed and Sealed/
+
+Air Vice Marshal NGUYEN CAO KY

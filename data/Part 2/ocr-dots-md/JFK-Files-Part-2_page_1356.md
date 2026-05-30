@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_1356.png
+
+Convert to MarkdownBIOGRAPHICAL INFORMATION
+
+NAME : Mr. Robert Prontiss Wheeler
+GRADE : GS-15
+SERVICE DESIGNATION : DI
+DATE AND PLACE OF BIRTH : 4 October 1915, Fitzgerald, Georgia
+MARITAL STATUS : Married; six children
+EDUCATION AND CAREER OUTSIDE OF AGENCY :
+* 1934-1937, Mercer University
+* 1941-1942, University of California
+* 1942-1943, University of Colorado
+* 1944-1946, George Washington University, M.A., International Relations
+* 1941-1942, University of California, Rector in Political Science (part-time)
+* 1942-1946, U.S. Navy, Language Officer, Intelligence Specialist, Lt.
+* 1946-1952, War Dept., GRI, FRC, Tokyo, Intelligence Specialist
+
+LANGUAGE PROFICIENCY : Japanese - Fair
+
+CIA EXPERIENCE : EOD CIA Sep 1952, Acting Chief, FI, concurrently
+Chief of Liaison, Tokyo Station
+Jun 1956, Deputy Chief, FE/1
+Mar 1957, Acting Chief, FE/1
+Dec 1957, Chief, FE/P0/FI, FE Division
+
+CIA TRAINING : Operations Course, Clandestine Methods & Techniques,
+Staff Indoctrination, Secret Writing, Documentation,
+Clandestine Services Review, CIA Review, Special
+Management Course, Reading Techniques

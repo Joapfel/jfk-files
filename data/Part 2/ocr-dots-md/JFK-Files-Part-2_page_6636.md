@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_6636.png
+
+Convert to MarkdownTOP SECRET
+
+19 June 1997
+
+MEMORANDUM FOR: Barry Harrelson
+CSI/HRG
+
+FROM: John Loverro
+DI/IRO Staff
+
+SUBJECT: JFK Assassination Board Request
+
+1. Dick Flynn asked me to forward the attached to you. Documents included are the President's Intelligence Checklist for 22, 24, and 29 November 1963, the Daily Summary for 25 and 29 November 1963 and 2,3,4,5,6,9,10,11,12 and 13 December 1963, the Weekly Summary for 22 and 29 November 1963, the President's Intelligence Briefing Book for 26 November 1963, the Current Intelligence Digest for 26 November 1963 and 2 December 1963, Current Intelligence Memorandums for 25 and 29 November 1963, CIA Memorandums for 23,24,25 November 1963 (World Reaction to the Assassination of President Kennedy), a memorandum on the Analysis of World Reaction to President Kennedy's Assassination (13 December 1963), FBIS World Reaction Series No. 8-1963, Government Leaders Expected to Attend President Kennedy's Funeral, 25 November 1963, FBID 25 November 1963 entitled "The Past Soviet Propaganda Assessment of President Johnson", two undated memoranda from Job#79T01762, Box 5, Folder 3, several rough drafts of various papers, and a memorandum entitled "Rumors About Lee Harvey Oswald" dated 23 March 1964.
+
+2. Please let us know if the DI/IRO can be of additional assistance.
+
+John Loverro
+
+HANDLE VIA TALENT-KEYHOLE-COMINT
+CHANNELS JOINTLY
+
+TOP SECRET

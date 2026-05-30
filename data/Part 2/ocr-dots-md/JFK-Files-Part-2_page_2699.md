@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_2699.png
+
+Convert to MarkdownSECRET
+
+INTEGREE AGREEMENT
+
+Mr. William M. Kent
+Washington, D. C.
+
+Dear Mr. Kent
+
+This is a memorandum of agreement between you and the United States Government in regard to your employment by CIA. It is hereby mutually agreed and understood that:
+
+1. As an employee of CIA, at the present grade and salary of __03-11 $7270__ per annum, you will accept cover employment in the Foreign Service effective as of __23 July 58__. You will, insofar as consistent with your basic respon-
+sibility to CIA, abide by all the rules, regulations, practices and policies
+of the Foreign Service in order to appear as a conventional member of that
+establishment. Your appointment to the Foreign Service is being effected
+at the class of FSR-7 and salary of $61.35 per annum.
+
+2. It is understood and agreed that the minimum period of your overseas tour of duty is governed by and coincident with the prescribed tour of duty of your cover organization. Currently, your prescribed tour consists of a period of __two (2)__ years from the date of your arrival at your overseas post of duty. Your assignment may be terminated earlier for the convenience of CIA, and the length of your tour of duty, as currently specified, may be unilaterally changed by CIA in order to conform with subsequent changes in the prescribed tour of the Foreign Service. If you request termination of your overseas assignment solely for your own convenience, unless it is for circumstances that are considered by the Agency to be beyond your control or if you are terminated for cause either by the Foreign Service or CIA before you have completed the minimum period of service prescribed above from the date of arrival at your overseas post of duty, you will not be entitled to return travel or transportation for yourself or your dependents to the United States at Government expense. If you request termination of your overseas assignment solely for your own convenience, unless it is for circumstances that are considered by the Agency to be beyond your control or if you are terminated for cause either by the Foreign Service or CIA before you have completed one (1) year of service from the date of your arrival at your overseas post of duty, you will be required to reimburse the Government for all its expenses for your travel and transportation, and that of your dependents, from the continental United States to such overseas post of duty.
+
+3. Travel to your post of duty overseas and your return travel to the United States, as well as travel performed overseas which is consistent
+
+SECRET

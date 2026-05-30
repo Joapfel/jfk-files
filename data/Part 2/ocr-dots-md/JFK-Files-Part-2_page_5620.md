@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_5620.png
+
+s, records clerks and secretaries bring the overall station personnel total to around fifty.
+
+## Liaison Operations
+
+Dominating the station operational programme is the LITEMPO‡ project which is administered by Winston Scott,‡ the Chief of Station in Mexico City since 1956, with the assistance of Annie Goodpasture,‡ a case officer who has also been at the station for some years. This project embraces a complicated series of operational support programmes to the various Mexican civilian security forces for the purpose of intelligence exchange, joint
+
+operations and constant upgrading of Mexican internal intelligence collection and public security functions.
+
+At the top of the LITEMPO operation is the Mexican President, Gustavo Diaz Ordaz,‡ who has worked extremely closely with the station since he became Minister of Government in the previous administration of Adolfo Lopez Mateos‡ (1958-64). Scott had also developed a very close working relationship with Lopez Mateos, and, since Diaz Ordaz became President two years ago, Scott has been working closely with the current Minister of Government, Luis Echeverria.‡ Thus the LITEMPO project focuses at the top on the President and the current Minister of Government who will be the second consecutive choice of PRI leaders to pass from internal security to the presidency.
+
+Scott's chummy relationship with Diaz Ordaz none the less has its problems. In 1964 Fulton Freeman went to Mexico City as Ambassador to crown a Foreign Service career that had started in the same Embassy in the 1930s. He is expected to retire after the 1968 Olympic Games. At the time of his assignment to Mexico City Freeman's expectations of meaningful diplomatic relations with Diaz Ordaz collided with the President's preference for dealing with Scott, and Freeman was relegated to protocol contacts with the President while his diplomatic talents focused on the Foreign Minister. The problem of who would deal with the President was confused somewhat by the Ambassador's insistence, not long after arrival, on a detailed briefing about the station operational programme, which Scott refused. Eventually both Scott and the Ambassador visited the White House, where President Johnson settled matters according to the wishes of the Agency and of his friend Diaz Ordaz. Scott continued, of course, to work with the President and the Ambassador never got the full briefing he had demanded. Since then the relations between Scott and the Ambassador have warmed, but the Ambassador forbids any station operations directed against the Mexican Foreign Ministry.
+
+While Scott frequently meets the President and the Minister of Government, two non-official cover case officers handle the day-to-day contact with the chiefs of the security services subordinate to Echeverria. One of these officers is a former FBI agent who worked in the legal attaché's office in the Mexico City Embassy - the legal attaché is usually the FBI office in an American

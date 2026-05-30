@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_3099.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+on propaganda, excellent results were being obtained.
+
+The reports on the evolution of the government in exile and the buildup of the stay-behind network and on paramilitary activity indicated that much work still remained to be done to get these activities off the ground. Further, it was pointed out to the DCI and the DDCI that budget estimates were rapidly escalating, principally because:
+
+Direct costs of nonexpendable equipment [were] being charged against the project which, in fact, was the major cause of the project's over-obligation. It was the opinion of all concerned that such property should be held on a Memorandum Receipt basis without cost to the project, and that charges, if any, should be reflected as direct costs only if property was found unserviceable or was not returned to communications stock supply after the project is terminated. The DCI was advised that this matter would be discussed with the Comptroller for resolution. 65/
+
+Most important in connection with this briefing, was the DCI's comment that:
+
+With respect to personnel needs, he assured all, no matter whether personnel were overseas or in the US, he would arrange to obtain personnel required in support of JMARC. 66/
+
+The meaning of Chief/WH/4's comments to the DCI, was made quite clear within a few days when Amendment No. 1 to the project was submitted to the Director.

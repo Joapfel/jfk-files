@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_3173.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+rather more positive recollection of the change in
+concept, having noted:
+
+That decision as to the character of
+the operation was rather gradually modi-
+fied during the late autumn [of 1960],
+and it's very difficult, even for someone
+who was close to those developments, to
+put a finger on the exact moment when a
+clear decision was made, or the circum-
+stances, or, really, the people who made
+it. It was a decision rather forced by
+circumstances. 23/
+
+When discussing the situation in October of 1975,
+however, Bissell volunteered the following observations
+about the change in concept for the operation. He said:
+
+One of the clearest impressions I have
+of the whole planning period and of this
+change in concept was that by November
+[1960] ... and I don't think Esterline
+bought this view either as completely or
+as soon as I did ... I [also] remember
+the feeling that I was well ahead of
+King ... in my belief that we had to place
+nearly exclusive reliance for the initial
+phase on whatever force it was possible
+to land. So, I also remember very clearly
+-- and I think as early as November -- where
+I think there were probably under 500 people
+in the brigade in training -- I remember
+repeatedly saying to Hawkins and Esterline
+that if we are really going to have to
+place this heavy reliance on a landing
+force, this is an all together prepos-
+terously inadequate number ... I remember
+being told that people did not see how it
+would be feasible to get up to the size I
+was talking about in the time period; but
+secondly ... I have a clear recollection
+that he [Jack Hawkins] had a lesser sense
+
+- 163 -
+
+TOP SECRET

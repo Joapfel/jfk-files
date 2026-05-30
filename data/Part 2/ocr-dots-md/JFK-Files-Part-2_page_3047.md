@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_3047.png
+
+, Tracy Barnes, is all
+over him. One of J. C. King's few very
+good men, Jacob D. Esterline, is pulled
+aside and made Chief of the project ...
+The old man had a great deal of *amour
+propre*, J. C. King did. He was very vain.
+He had all of the area expertise that one
+would like to see in a Division Chief,
+but he had been at it an awful long time.
+It was a very incestuous Division. In
+terms of the rotation, it was solely
+within WH. There were very few people
+in WH who had served outside of the
+Western Hemisphere, except in Washington.
+They were a tight-knit little group, and
+here now, for the second time running, one
+of their big chances to shine -- there
+was a lot of money and all that kind of
+stuff -- again had been taken away ...
+and it was ... it was tough. 9/
+
+Where Drain implied that J. C. King was cut com-
+pletely out of WH/4 activities and operations, Mr.
+
+Bissell had indicated that the situation was somewhat
+different. In the course of an oral interview, the
+
+- 37 -
+
+TOP SECRET

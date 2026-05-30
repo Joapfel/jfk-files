@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_4054.png
+
+Convert to MarkdownEP 65-951
+
+examined the photograph and then stated that she did not know the individual who appeared in the photograph and had never seen him before. Mrs. OSWALD was advised of the name and aliases of the subject and she stated that she did not know anyone by any of those names.
+
+On January 24, 1964, while the subject was being removed from the United States Court House in El Paso to the El Paso County Jail for incarceration and while in custody of the Deputy U. S. Marshals, the subject made wild accusations to newspaper reporters, accusing the FBI of not attempting to prevent the assassination of President KENNEDY and stating that the FBI had questioned him regarding LEE HARVEY OSWALD. These statements were made by the subject in a shouting manner on the elevator enroute to the El Paso County Jail and within earshot of the newspaper reporters, according to AUSA MORTON.
+
+DESCRIPTION
+
+The following descriptive information regarding RICHARD CASE NAGELL was obtained through interviews with NAGELL and his acquaintances, observation, and record checks:
+
+Names: RICHARD CASE NAGELL, also known as Joe Cramer, Joe Kramer, Joe Krane, Robert C. Nolan
+
+Race: White
+
+Sex: Male
+
+Nationality: American
+
+Date and place of birth: August 5, 1930, Greenwich, New York
+
+Height: 6'2"
+
+Weight: 180 pounds
+
+Build: Medium
+
+Hair: Reddish-brown
+
+Eyes: Brown
+
+Scars and marks: Left eye slants downward toward outside; 2" vertical scar in front of left ear; half circle shape scar commencing in left eyebrow and extending down to cheek
+
+50.

@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_150.png
+
+Convert to MarkdownC. TRETTIN:jaf
+WH/COG/CICS
+5106
+
+20 JANUARY 26 JUNE 67
+
+MESSAGE FORM
+TOTAL COPIES: 24
+
+<table><tr><td colspan="2">ROUTING AND/OR INITIALS SEEN BY:</td></tr><tr><td>MO</td><td>7</td></tr><tr><td></td><td>8</td></tr><tr><td></td><td>9</td></tr><tr><td></td><td>10</td></tr></table>
+
+SECRET
+
+<table><tr><td>SECRET</td></tr></table>
+
+[機密]
+DO BASE/NEW YORK
+
+TYPIC
+
+REFERENCE: DO BASE/NEW YORK 3108
+
+JUNE COBB IS FORMER WOFACT AGENT RESIDING NEW YORK CITY. HQS HAD GIVEN NAME AND CLEARANCE TO CONTACT COBB IN CONJUNCTION WITH INVESTIGATION LNERGO CONDUCTING. MATTER HANDLED THROUGH WODISH OFFICE. SUGGEST TO LNERGO THEY CONTACT NEWYORK WODISH OFFICE FOR CURRENT ADDRESS OF JUNE COBB WHO HAS BEEN ALREADY ALERTED TO LNERGO DESIRE CONTACT HER.
+
+END OF MESSAGE
+
+C/WH/COG/CICS Eugene F. O'Meara
+DO/WH Della D.
+
+CY/DO/OP
+EUGENE F. O'MEARA
+
+RELATING OFFICE
+
+<table><tr><td>COORDINATING OFFICES<br/>SECRET</td></tr></table>
+
+<table><tr><td rowspan="2">GROUP I<br/>Related from automatically<br/>owngrading and<br/>declassification</td><td>AUTHENTICATING<br/>OFFICE</td></tr><tr><td></td></tr></table>
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+COPY NO. 201-278841

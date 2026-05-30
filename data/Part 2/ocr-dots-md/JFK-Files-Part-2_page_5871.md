@@ -1,0 +1,8 @@
+# JFK-Files-Part-2_page_5871.png
+
+Convert to Markdown3. "Custody of CIA Assassination Records to be Released in
+2017."
+
+The CIA proposes that the classified versions of Lee Harvey Oswald's Security File and "A" File along with Marina Oswald's original 201 be transferred to the protected (secure) portion of the JFK Collection At NARA by 30 September 1998. The CIA will need to retain custody of the classified version of the original Oswald 201 and the CIA-HSCA sequestered collection to complete the review of duplicate documents by September 1999.
+
+In September 1999, the classified versions of the Oswald 201 (original and microfilm from the sequestered collection) will be transferred to NARA. Due to the sensitive nature of the information in the remaining sequestered collection, particularly the NBR material, CIA proposes that the Agency and National Archives work out a joint custody arrangement that would allow these records to remain in CIA physical custody until 2017.

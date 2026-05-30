@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_7536.png
+
+Convert to Markdown27 September 63: OSWALD went to Cuban Embassy, Mexico City and made appoint for visa to Cuba on way to USSR. OSWALD to Soviet Embassy to get letter of recommendation. They wouldn't give it to him because they didn't know who he was.
+
+OSWALD went to Soviet Embassy on 27 Sept.
+
+" then went back to Cuban Emb. on 27 Sept.
+
+Valery KOSTIKOV talked with Sylvia Duran and said Soviet had never heard of OSWALD.

@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_1977.png
+
+Convert to Markdown3. To be able to plan my travel and leave, it is important that I know the approximate duration of TDU.
+
+4. Should it be possible to postpone the date of my arrival at my new post until 15 June? This would be a great convenience to me, and I would appreciate any consideration which headquarters may be able to give to this request.
+
+Chief of Station

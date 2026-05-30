@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_6838.png
+
+Convert to Markdown(5) Bureau file 67-322 also reflects that, in April 1929, the Bureau conducted an investigation entitled, "William H. Vander Poel, Henry W. Grunewald, Application for Commission in Officer's Reserve Corps." It is noted that Vander Poel had served as an Agent of the Bureau of Investigation during World War I. At the time of the investigation, both were seeking to obtain a commission in the United States Army. The Bureau's investigation reflected that Grunewald was not trustworthy, possessed a bad reputation and had been indicted for violation of the National Prohibition Act, although he was not convicted of this offense. This information was furnished to the Military Intelligence Service by memoranda to the Department dated May 6, 1929, and September 10, 1929.
+
+(6) Bureau file 65-6165 reflects that at the request of Mr. Stephen T. Early, Secretary to the President, the Bureau conducted an investigation in June and July, 1940, entitled, "Harry H. Woodring; Henry William Grunewald, also known as Henry Grunewald, Frederich Wilhelm Grunewald, and Henri Grunewald; Misconduct in Office, Espionage." Mr. Early's request was based on allegations received from[...], to the effect that Grunewald was believed to be "inaboott" with Senator Gerald P. Kye and that[...], that Grunewald, on two occasions, had given the secretary a check in the sum of $4000 for Senator Kye. It was alleged that Grunewald had intimated this money came from Secretary of War, Harry H. Woodring and that the money was paid in connection with Bar Department negotiations. On June 25, 1940, the Bureau received a memorandum from the Military Intelligence Service reflecting that Mr. Smith K. Brookhart had informed that Service that he had learned through an alleged employee of the French-English Intelligence Service in 1917-1918 that the head of Nazi espionage in Washington, D. C., was Frederich Wilhelm Grunewald, also known as Henry William Grunewald, Westchester Apartments, Washington, D. C. It is noted that McDonald at that time was also residing in the Westchester Apartments and during 1937 and a period of 1938, Grunewald shared offices with McDonald and former Senator Arthur L. Robinson, in the Bureau Building, Washington, D. C. (1)
+
+(1) 65-6165-3
+
+E1
+
+87.2755 287

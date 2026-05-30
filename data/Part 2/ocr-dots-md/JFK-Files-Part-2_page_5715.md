@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_5715.png
+
+Convert to Markdown13-00000
+
+DEC 09 '96 03:17PM
+
+David G. Marwell
+
+Harrelson directly. As usual, they will provide you with the specific information you need as quickly as possible to continue to record CIA's compliance with the JFK Act.
+
+As to your request for a complete description of the steps CIA has taken to respond to specific requests, I understand that there are several outstanding requests. HRG has assured me that these requests have been discussed with your staff and responses will be provided to you as quickly as possible. Given the number and breadth of the requests that are being made by the Review Board and the limited staff resources available to CIA to process such requests, I ask that the Review Board continue to prioritize all its requests for information or documents. With the Review Board's priorities established in this way, the Agency can immediately work on those requests that are most important to the Review Board. Of course, as CIA responds to these requests, HRG will provide any information the Review Board needs as to how the searches were conducted. I believe that this method will best meet the needs of the Review Board and will allocate CIA's limited resources in the most efficient manner possible.
+
+Finally, as to your requests to interview CIA officials responsible for this Agency's compliance with the JFK Act, Mr. Pereira has always been available to the Review Board for informal discussions as well as for giving sworn testimony including depositions. CIA has never objected to the Review Board deposing or interviewing informally any of its current or former employees and has, in fact, facilitated such interviews. You will also recall that, on 6 August 1996, Messrs. Pereira and Harrelson gave sworn testimony at an open hearing of the Review Board.
+
+I trust that this responds to the concerns raised in your letter. Of course, if you should have any questions regarding this matter, please do not hesitate to contact Linda C. Cipriani, an attorney in the Office of General Counsel, at (703) 874-3124.
+
+With every good wish, I am
+
+Sincerely yours,
+
+Michael J. O'Neil

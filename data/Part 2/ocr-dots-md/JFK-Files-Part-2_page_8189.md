@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_8189.png
+
+Convert to Markdown13-00000
+
+dear Meg,
+
+I am sorry to have put the Japanese filmmaker on you; my
+misjudgement. You were right to send the thing back to me.
+
+Some changes in my life have recently re-determined the summer, and I am doubtful tonight, really doubtful for the first time (tho I have been thinking about this for a couple of weeks, but have not written because Everything was up in the air), about the trip this summer. The thing is that a more important thing has come up, namely going to England this fall to do some very important work in an applied philosophy called Scientology (to go "clear" as they call it), and doing that I must teach all summer to make money and also to do work on the fall issue of CATERPILLAR. Marie Benoit and I are seriously considering getting married in England, and while I could put the trip off until next spring, she wants to do the thing this fall, and we both want to go clear together. So, considering all of this, I think you should scratch my name, and hope I can go to Cuba later as well as hope the Cubans will see fit to invite me later (I have heard nothing from any Cubans about the trip this summer, so I figured it is not completely set). Heres some space if you need it.
+
+All of the other names I sent you are still to my knowledge good. If I hear otherwise I will write you immediately.
+
+CATERPILLAR 3/4 is out, and 3 copies are on their way to you.
+I will mail a box of #2 and more 3/4s when I get the time. Sorry
+not to hv sent more, but only 3 went out to the contributors this
+time and I forgot about you sending some to Cuba when I mailed
+yours.
+
+Saw Sergio a few weeks ago. It was nice to see him.
+We had supper in Chinatown and I gave him a new poem.
+
+A number of people have commented on your prose/poem in
+#3/4. Very impressive is the general word. I hope it looks good
+to you when you see the magazine.
+
+I have a great deal new
+work; are you open to printing more of my poetry in a forthcoming
+EL CORNO?
+
+I hope you are not upset my change in plans. This
+Sunday is the first day they have been definite. Hoping your
+life goes well these days,
+
+affectionately,
+Connie

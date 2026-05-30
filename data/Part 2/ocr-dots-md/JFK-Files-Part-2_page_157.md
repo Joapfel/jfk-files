@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_157.png
+
+Convert to MarkdownSECRET
+
+liberally apply importance to a wide variety of events and subjects, and since she is likely to be short of money shortly after arriving, WE Division believes there is a possibility she may try to establish contact.
+
+Suggested Actions:
+
+4. WE Division suggests that you may wish to forward a copy of this memorandum to your New York office. If Miss Cobb does establish contact, we would appreciate your office interviewing her to accept whatever information she might wish to contribute, but that no financial commitments be made on our behalf. WE Division plans to have no direct contact unless the information provided would appear to merit a special interview.
+
+William V. Broe
+Chief
+Western Hemisphere Division
+
+Distribution:
+
+O & 1 - DO/WH
+cc - D/DCS
+cc -> LICOOKY-1 201-
+cc - WH/1/Memo Chrono
+
+SECRET

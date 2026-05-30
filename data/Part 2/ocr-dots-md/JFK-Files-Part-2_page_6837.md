@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_6837.png
+
+Convert to MarkdownThe Attorney General
+
+Complete details concerning the information developed in connection with the request of Deputy Attorney General Rogers will, of course, be furnished to him upon the completion of the investigation of these matters.
+
+NOTE:
+
+This is a condensed version of information received from
+the Washington Field Office which has been set forth in as readable
+form as possible for the information of the Attorney General.
+It is to be noted an attempt has been made to furnish the Attorney
+General with only pertinent information which appears would be of
+interest to him.

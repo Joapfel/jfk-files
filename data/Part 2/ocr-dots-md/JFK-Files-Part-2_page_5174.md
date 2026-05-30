@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_5174.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+SUBJECT: Release of JFK Documents
+
+relationships with the Zaireans because of our need for their cooperation in assisting with a Presidentially-mandated program and will need to improve our relationship over the next several months to accomplish our goals in that part of the world. We also continue to have a Station in Dakar, Senegal. We have liaison there and would not want to jeopardize it. In dealing with developmental contacts, there have been recent instances where potential assets have voiced concern about our Agency's ability to keep its relationships clandestine. To expose our station there would further hamper developmental relationships and eventual recruitments. (S)
+
+4. Within the context of our European presence, I have the following comments:
+
+Brussels - Public acknowledgment would force the government and liaison service to pay closer attention to Station operations and therefore present a threat to ongoing sensitive operations. (S)
+
+Helsinki - A neutral country. Public acknowledgment of a CIA station would embarrass the government and liaison; thereby inhibiting the close and productive liaison relationships we now enjoy as well as presenting a threat to ongoing sensitive operations. (S)
+
+Paris - No additional damage. (S)
+
+Bonn - No specific damage. (S)
+
+Berlin - No specific damage. (S)
+
+Luxembourg - Public acknowledgment would embarrass the government and inhibit liaison cooperation; thus endangering ongoing operations. (S)
+
+The Hague - Public acknowledgment would draw questions from the press and create political problems for the government and liaison. This would endanger the continuation of sensitive joint operations. (S)

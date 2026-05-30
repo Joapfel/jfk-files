@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_8835.png
+
+Convert to MarkdownIzda.
+
+14-00060
+
+Caja de la Sociedad Nueva: Petróleo, Gas y Alcobal
+
+| | | | |
+| :--- | :--- | :--- | :--- |
+| Col. Fugros & AS (S.C) M. 1029 4 1/00 | 51,000 Drs. Cal. Hector | | |
+| S. de Cuba VAMATIN 1034 5 0700 | 100,000 " | ca P. Crudo | |
+| S. de Cuba ALEMAN 1048 | 140,000 " | " " " | |
+
+Habana | IUM. SH. 1038 10.6.10 | 240,000 Brrls. P. Crudo | |
+| Habana | O. PIONEER 1015 Ag. 6 | 174,000 " " " | |
+| Nicaro | VLADIMIR 1009 Ag. 11 | 49,000 " " F. Cll | |
+| | 1007 10.6.11 | 322,000 " " P. Crudo | |
+| | | 22,000 " " " | |
+| FRUZE | 1070 | | |
+| L. SPIEGEL 1075 | | | |
+
+(Carar)...Antilla THOMAS 1019
+Nuevitas " 1,500,000 Clms. de Miel
+1,900,000 " " "
+I.de Sabina JACOB 1050
+Nuevitas " 1,500,000 " " "
+" 1,500,000 " " " |

@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_2420.png
+
+Convert to MarkdownJalian KIDB Data/Reported from El Salvador
+
+GE-20981
+
+George S. Rualin/la
+
+cc: L.J./78
+
+C/MR/1
+3 B 4462 Eq.
+
+Attached for you and possible late COO-A(S)-327/6120-enclosures. Please collect this is of course operated to your service. Incidents occur if we can obtain direct information if do service specific requirements which to advance. We so reply. Further d' of this matter, your discretion.

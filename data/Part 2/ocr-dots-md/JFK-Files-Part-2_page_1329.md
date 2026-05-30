@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_1329.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+U.S. CIVIL SERVICE COMMISSION
+
+Memorandum
+
+MAR 4 1971
+
+Completion of "The Winter Program for FEI Executives" at the Federal Executive Institute in Charlottesville, Virginia
+
+Subject: Nancy W. Dalton
+
+From: Nancy W. Dalton Registrar, Federal Executive Institute
+
+To: Mr. Hugh Clayton Registrar, Office of Training Central Intelligence Agency Washington, D. C. 20505
+
+Date:
+In Reply Refer To:
+
+Your Reference:
+
+This is official notice that ROBERT P. WHEELER has satisfactorily completed the "Winter Program for FEI Executives" at the Federal Executive Institute, Charlottesville, Virginia. This session of that educational program was held from February 28 - March 2, 1971. One copy of this memorandum is intended for filing in the employee's official personnel folder and the other copy for routing to the employee's immediate supervisor.
+
+Keef Freedom in Your Future With U.S. Savings Bonds
+
+CSC FORM 631
+NOVEMBER 1981
+
+4c
+
+14-00000

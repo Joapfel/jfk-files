@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_7497.png
+
+Convert to MarkdownSECRET
+
+# MEMORANDUM FOR THE RECORD
+## SUBJECT: DEBRIEFING OF DAVID M. WILSTED (ps)
+
+6 June 1960
+
+1. On 1 June 1960 Mr. John G. Heyn and Mr. John Kennedy of WHD, Mr. Robert Brown of CI/OPS, Mr. Robert Bryant of FI/OPS and Mr. Charles Bray of FI/D met with David M. WILSTED (ps).
+
+2. WILSTED emphasized that the whole telephone system in Mexico City is undergoing a reformation. The company Telefonos de Mexico, S.A., has sub-contracted this work of cleaning up and reorganizing the phone system to the independent firm, Intel. They are cleaning up unused and old lines, putting in new and spare lines, restructuring exchange areas, laying underground cables, etc. Eventually we should be better off because there should be more surplus lines. The renovation work has hampered much of the LIFETAT work, principally because many of the lines now are underground and we cannot get access to them before they enter the central. This is particularly true with respect to the Czech Embassy, to whose telephone lines we cannot obtain access from the vantage point we now occupy.
+
+3. WILSTED said that we try to keep track of the activities of "Intel" but since they seem to attack "Colonias" at random, we have no prior warning of their presence in a certain area.
+
+4. In the recent past, Mexico has been using houses for listing posts for security reasons. We have more control over the access of phone company inspectors or repairman to houses. However, under new regulations, all new apartment buildings must have telephone lines installed in the building by the phone company during the construction phase. This means that the lines and their destination are concealed. WILSTED proposed that this will mean we can again use apartments since we can siphon off a line destined for use by another tenant in such a way that the phone company cannot trace its destination without tearing the building apart and we can then install a separate line to the building and hook up the subscriber to this line which, if checked, will belong to a legitimate subscriber.
+
+5. One system which has been used effectively is to take one-half of two separate pairs which have one faulty line each. These two half pairs then form one good pair which we can use.
+
+6. WILSTED explained that it cost about 3000 pesos to get a regular telephone. This entails the purchase of a telephone company bond, which later can be sold.

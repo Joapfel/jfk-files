@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_4040.png
+
+Convert to MarkdownEP 65-951
+
+pounds received in battle with the enemy in Korea. Other papers also disclosed he had been awarded the Bronze Star for meritorious and outstanding service in Korea.
+
+"Speaking to FBI Agents and other officers NAGELL admitted he had entered the Army as a buck private and was in line for promotion to major when he was given his honorable discharge. He told agents he spoke Russian, Japanese and Spanish fluently.
+
+His Army papers disclosed NAGELL had graduated with honors from the Army Military Intelligence School, from a special leader's course, and had served in the counter intelligence corps (CIC). He had records showing he had been given top secret security clearance on September 22, 1950."
+
+The September 22, 1963, issue of the El Paso Times contains an article on page 1-A entitled "NAGELL Pleads Not Guilty." According to the article, "City jailers reported NAGELL has refused to eat his meals since he was booked in jail. They also reported the prisoner attempted to cut his wrists in his City Jail cell Friday night by using a tin can converted to an ash tray."
+
+"After he was turned over to the custody of Sheriff BOB BAILEY, jailers were instructed to maintain a close watch on the prisoner and stop him from making any attempts on his life.
+
+The September 26, 1963, issue of the El Paso Times contains an article on page 7-A entitled "NAGELL To Take Sanity Test at La Tuna." According to the article, "Former Army Captain RICHARD CASE NAGELL, 34, charged with bank robbery in an unsuccessful attempt to hold up the State National Bank, will be taken to La Tuna Correctional Institution Thursday for a sanity test."
+
+"He will be examined by Dr. R. J. BENNETT on the motion of Assistant U. S. District Attorney FRED MORTON, who obtained an order authorizing the check up from U. S. District Judge R. E. THOMASON.

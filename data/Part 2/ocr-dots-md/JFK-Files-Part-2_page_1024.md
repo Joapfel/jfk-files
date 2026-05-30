@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_1024.png
+
+Convert to MarkdownSECRET
+
+SUMMARY OF AGENCY EMPLOYMENT
+
+JOSEPH B. SMITH
+
+September 1951 to January 1954 - Began employment with the Department of the Army as a Civil Service employee in grade GS-11, assigned to the Pentagon in Washington, D.C. as a research analyst of economics and political affairs concerning Korea. Because of my wartime experience and some post war graduate work on Korea, I was contacted by the Army for this position during the Korean War.
+
+January 1954 to August 1956 - In 1954 I applied for employment with the United States Information Service as an Information Officer with the Grade of Foreign Service Staff S. I served on the U.S.I.S. Mission in the Far East area. My duties included design execution and supervision of the U.S.I.S. media operations in the Far East. Also I was special liaison representative with the British Information Officer for the British High Commissioner for that area.

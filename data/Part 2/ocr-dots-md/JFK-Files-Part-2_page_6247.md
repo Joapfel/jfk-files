@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_6247.png
+
+Convert to MarkdownMAR 18 '97 06:59PM
+
+4/3/78
+HARDWAY
+
+Summary of W21 Bandy's Development and Plans file.
+
+1. "Subject + Project File Request and Field Notification of Action" dated 6/26/63 describes the project as "a Developmental and Target Opportunity project based in the U.S." Sub-projects are to lie targeted abroad."
+
+2. Project Action form dated 8/28/63 signed by Karamessines approves as $65,000 budget for [MILITARY] for the fiscal year 1963 (July) to 1964 (June).
+
+4. Memo dated 3/17/64 to DDP from Francy Barnes requests that [MILITARY'S] budget be increased to $80,000.
+"The requested increase is needed to (a) cover an unanticipated developmental charge in connection with an individual doing works involving a Hotan American"}, {"bbox": [1416, 2610, 1477, 2644], "category": "Text", "text": ""}]

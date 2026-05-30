@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_2720.png
+
+Convert to MarkdownSECRET
+
+16 JUN 1966
+
+MEMORANDUM FOR: Head, Clandestine Services
+Career Service
+SUBJECT : Notification of Approval of
+Quality Step Increase -
+William M. Kent
+
+1. I am pleased to send to you the attached official notification of the approval of the Quality Step increase which you recommended for this employee.
+
+2. As this award is designed to encourage excellence by recognizing and rewarding the employee, may I ask that you arrange to have this Quality Step increase presented at an appropriate ceremony.
+
+Distribution:
+
+O & I - C/WH Division
+1 - C/CSPS
+4 - OPF - KENT
+1 - D/Pers Chrono
+1 - C/PD
+
+OP/DD/RP/PD/JJCaldwell:ksd (16 June 1966)
+
+GROUP 1
+Excluded from automatic de upgrading and declassification
+
+SECRET
+
+<table><tr><td>GROUP 1</td></tr><tr><td>Excluded from automatic degrading and declassification</td></tr></table>

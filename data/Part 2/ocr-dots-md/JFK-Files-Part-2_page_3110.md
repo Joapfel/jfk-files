@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_3110.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+the memorandum he had prepared on this subject was
+being held in the files should questions about this
+particular Bureau activity ever be raised. King
+also recommended that the Agency not take the initia-
+tive in raising the question. 82/
+
+Neither Col. King, nor anyone else involved in
+the anti-Castro operation ever registered a formal
+protest against the FBI's activities in the Havana
+area. By mid-summer 1960, the relationship became
+even closer, particularly as the Agency expanded
+activities at the Forward Operations Base, JMASH
+(later JMWAVE) in Miami. In one report concerning
+the number of the Cuban exiles in the Miami area who
+were under suspicion of -- or were -- working for
+Castro, or who were trying desperately to get sup-
+port from one or another US Agency, an FBI agent
+made a rather interesting forecast to the CIA repre-
+sentative with whom he was exchanging information.
+According to the report from Miami, an FBI agent
+
+told me that his personal opinion was
+that it would be virtually impossible, if
+not completely impossible, to bring about
+the overthrow of the Castro regime using
+Cuban exiles. He thought the only solu-
+tion to the problem, and the one that
+stood the best chance of success, was to
+
+TOP SECRET

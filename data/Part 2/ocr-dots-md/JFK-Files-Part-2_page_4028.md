@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_4028.png
+
+Convert to Markdown13-00000
+
+EP 65-951
+
+to his demands a better rapport was established and a private
+interview was given him. He seemed well oriented in all
+spheres. Speech was of normal flow and coherent. He showed
+no flight of ideas. He denied delusions or hallucinations.
+No suicidal or homicidal tendencies were elicited. He states
+that his main trouble is 'headaches which I have had continuously
+recently.' He also complains of 'dizziness, and at times an
+unsteady gait.' These symptoms are sometimes associated with
+a transient loss of memory. During the interview his retention
+and recall were good. Sensorium was intact. When I asked
+him what he thought was wrong he said 'I think my trouble is
+physiologic.' When I asked him what he meant by physiologic
+he stated 'My trouble is all due to my head injury.' He felt
+reassured when I told him that I thought some of his symptoms
+were due to that mishap. Although he smoked continuously
+during the interview he related quite a story about his Army
+activities and his domestic situation, but was somewhat evasive
+about the trouble he was in while in California, especially
+the trouble involving the F.B.I. and some shooting event. He
+was presented before the Psychiatric stand and at first was
+somewhat reluctant to answer questions and when asked a question
+that was not due to his liking he would relate 'this is my
+private life.' During the Staff Conference he said 'you
+Psychiatrists are all stereotyped.' During the Staff
+Conference, however, his mood was one of friendliness and
+not one of depression, although he will occasionally get irri-
+table when supposedly asked a personal question. After the
+interview at the Staff Meeting he approached me saying 'that
+he did not want any of the nurses aides to know about his
+business and that was the reason why he refused to give out
+any information.' He further related that he keeps everything
+in a little book that he has done or said because he has a poor
+memory, although some of these memory deficits were not brought
+out in the interview with him. He was advised to stay on the
+ward for another week or two for further observation but he
+felt that he did not have to since nothing more could be done
+for him. He also said the reason for him wishing to leave
+was that 'he had a job in mind and was going for an interview.'
+Since his insight and judgment were unpredictable at times
+and although no psychotic behavior was noted, it was felt

@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_4963.png
+
+Convert to MarkdownSECRET
+
+MHFNO: 96-3469532
+
+SENSIND: RYBAT
+
+ON: X1 DRV FROM: HUM 4-82.
+
+END OF MESSAGE
+
+SECRET
+
+SECRET

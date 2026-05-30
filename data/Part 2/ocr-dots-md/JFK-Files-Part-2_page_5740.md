@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_5740.png
+
+Convert to MarkdownMr. J. Barry Harrelson
+
+February 11, 1997
+Page 2
+
+Therefore, please submit the CIA's official initial Statement of Compliance to the Review Board as soon as possible, but no later than March 16, 1998.
+
+After formal submission of the CIA's initial Statement of Compliance, we would schedule an informal interview with you (and perhaps other members of the Historical Review Group) to ask questions regarding the Compliance Statement and regarding the sufficiency of the CIA's record searches. After addressing any outstanding issues, the CIA would thereafter submit its Final Declaration of Compliance.
+
+I recognize that you are extremely busy processing CIA records for inclusion in the JFK Collection. However, it is essential that the CIA devote sufficient time and attention to its Final Declaration of Compliance because, as we have stated before, the Final Declaration will constitute the CIA's representation to the American public, under oath, that the CIA has diligently searched for records relating to the JFK assassination and that the CIA is not withholding any materials regarding the assassination.
+
+cc: Linda Cipriani, Esq.
+(By facsimile)

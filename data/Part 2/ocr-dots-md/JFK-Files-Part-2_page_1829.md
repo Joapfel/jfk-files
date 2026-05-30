@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_1829.png
+
+Convert to MarkdownB-L-C-R-E-T
+
+WRITING WORKSHOP (INTERMEDIATE) NO. 2
+TRAINING EVALUATION
+
+<table><thead><tr><th colspan="4">SECTION I: IDENTIFYING INFORMATION</th></tr></thead><tbody><tr><td>NAME<br/>WOODS, James B.</td><td>SEX<br/>M</td><td>DATES OF COURSE<br/>26 October - 19 November 1959</td><td>NO. OF STUDENTS<br/>17</td></tr><tr><td>DATE OF BIRTH<br/>20 February 1928</td><td>SOD DATE<br/>April 1952</td><td>GRADE OR RANK<br/>G-3</td><td>OFFICE<br/>FR/Administration</td></tr><tr><td colspan="4">PROJECTED ASSIGNMENT OR PRESENT PROJECTION<br/>Records Officer</td></tr><tr><td colspan="4">SECTION II: OBJECTIVE OF THE COURSE<br/><br/>To stimulate habits of thoughtful, self-critical writing for intelligence production.</td></tr><tr><td colspan="4">SECTION III: SPECIFIC CHARACTERISTICS OF THE COURSE</td></tr><tr><td colspan="4">The course is conducted for 10 to 15 students in groups of six. The first three weeks are initial orientation, learning objectives over a period of four weeks. There are three sections during the first week and two thereafter for three weeks. The course is run on the "learn by practice" system. A number of writing treats are given in class, and they are evaluated against national and agency norms. The trainees also prepare written exercises and have an opportunity to rewrite some of them during later sessions. Students may use the form and format of their own office's written product. Special attention is paid to logical organization, direction, sequence structure and other mechanics of writing. The trainees receive detailed comments on their papers so are encouraged to discuss special writing problems with the staff.</td></tr><tr><td colspan="4">SECTION IV: HOW THE STUDENTS ARE EVALUATED<br/><br/>Staff members observe the student's writing ability, any changes demonstrated, and application to the course material. The evaluation represents their agreed comments based on the student's total performance.</td></tr></tbody></table>
+
+D-M-C-R-E-T

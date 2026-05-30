@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_5572.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+SUBJECT: Discussions with Center for the Study of Intelligence on the Release of Material Relating to Yuriy Nosenko
+
+DO/CIC/AG/FIOB/RPringle:ek/76246 (31 Aug 94)
+
+Distribution:
+
+Orig - John Pereira, Barry Harrelson, Ellie Neiman
+for Concurrence and Return to CIC/AG
+
+1 - AD/CSI
+
+1 - CSI (Harrelson)
+
+1 - Neiman
+
+1 - C/CIC Chrono
+
+1 - CIC/AG Chrono
+
+1 - CIC/AG Defector File
+
+4
+
+SECRET

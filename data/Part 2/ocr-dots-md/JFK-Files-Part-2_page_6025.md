@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_6025.png
+
+Convert to MarkdownDr. Kermit L. Hall
+
+Experience
+
+The Ohio State University, Dean, College of Humanities, and Professor of History and Law, 1994 - Present
+
+The University of Tulsa, Dean, College of Arts and Sciences and Professor of History and Law, 1992-94
+
+University of Florida, Associate/Full Professor of History and Law, 1981-92
+
+Wayne State University, Assistant/Associate Professor, Department of History, 1976-81
+
+Vanderbilt University, Assistant Professor, Department of History, 1972-76
+
+Education
+
+Master of Study of Law, Yale University Law School, 1980
+
+Ph.D., The University of Minnesota, 1972
+
+M.A., Syracuse University, 1967
+
+B.A., The University of Akron, 1966
+
+Dr. William L. Joyce
+
+Experience
+
+Princeton University, Associate University Librarian for Rare Books and Special Collections, 1986-Present
+
+The New York Public Library, Assistant Director for Rare Books and Manuscripts, 1981-1985
+
+American Antiquarian Society, Worcester, Massachusetts, Curator of Manuscripts, 1972-81, Education Officer, 1988-81
+
+William L. Clements Library, The University of Michigan, Manuscripts Librarian, 1968-72
+
+Education
+
+Ph.D., The University of Michigan, 1974.

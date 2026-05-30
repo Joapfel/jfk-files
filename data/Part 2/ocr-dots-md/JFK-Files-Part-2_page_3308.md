@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_3308.png
+
+Convert to Markdown13-00000
+
+TOP SECRET
+
+aside from, apart from, and independent of the formal
+anti-Castro program which was undertaken by CIA. At
+most, four or five senior officials -- Allen Dulles,
+Richard Bissell, Shef Edwards, Bill Harvey, and pos-
+sibly, Tracy Barnes -- probably were knowledgeable
+about the Mafia connection and Mr. Maheu.
+
+In terms of Project JMATE itself, the few bits
+of information which indicate the possibility of as-
+sassination attempts against the Cuban leadership also
+fail to demonstrate any responsibility for their ini-
+tiation on the part of WH/4. If anything, the evidence
+would indicate that WH/4's position was one of watchful
+waiting and wishful thinking that dissident Cubans
+would themselves eliminate the Castros and Che Guevara.
+The possibility, of course, that Agency-supplied weapons
+might be involved in such an attempt cannot be ruled
+out. 3/
+
+Obviously it would be foolish to contend that
+those principally responsible for developing CIA's
+anti-Castro program would have objected to the assas-
+sination of Fidel Castro. On the other hand, this
+was not one of the basic concepts nor intentions of
+the official program of the Central Intelligence Agency.
+
+- 295 -
+
+TOP SECRET

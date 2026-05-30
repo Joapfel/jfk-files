@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_34.png
+
+Convert to MarkdownSECRET
+
+(When Filled In)
+
+No. C-82943
+
+MEMORANDUM FOR: Chief, WH/4 - A. Amori
+
+Operational Approval is hereby granted in the case of Luis Albert FERRE , for the purpose specified in your request
+dated 12 Aug 1961.
+
+CA granted for use of Subject as set forth in PRQ Part II.
+
+This Approval is based upon evaluation of information available to this Office, and is granted under authority contained in DSI 10-5 and FR 10-215.
+
+CI/OPERATIONAL APPROVAL AND SUPPORT DIVISION
+
+Date: 11 Sept 1961
+
+Distribution:
+Orig. to Addressee
+1 to Files
+
+SECRET
+
+FROM NO. 124 ABSOLUTE PREVIOUS EDITIONS.
+1 JUN '61
+
+90)

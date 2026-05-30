@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_162.png
+
+Convert to Markdown<table><tr><td rowspan="2">CONTINUATION OF<br>DISPATCH</td><td>CLASSIFICATION</td><td>DISPATCH SYMBOL AND NUMBER</td></tr><tr><td>SECRET</td><td>EDNA-29461</td></tr><tr><td colspan="3">9. Headquarters will be advised should the Station have additional contact with her.</td></tr><tr><td colspan="3">for<br>Willard C. CURTIS</td></tr></table>

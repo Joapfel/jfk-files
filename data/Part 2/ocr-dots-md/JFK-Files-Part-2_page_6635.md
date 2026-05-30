@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_6635.png
+
+Convert to Markdown13-00000
+
+SECRET
+
+SUBJECT: JFK Assassination Review Board Request
+
+- Information on anti-Castro activity by Cuban exile groups operating in the US for the period January 1961 to January 1964.
+
+4. Ilse did a search of these topics and was able to find three documents related to activities of Cuban exile groups in Miami for the time period specified. These documents are attached. There were no hits on the other requests.
+
+Richard J. Flynn

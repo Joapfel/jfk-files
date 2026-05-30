@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_6819.png
+
+Convert to Markdownresources within the Intelligence Community, I have directed the allocation of 15 full-time positions to expand the History Staff and to form the Historical Review Group that will review the JFK documents and other documents of historical interest.
+
+I believe these actions attest to the seriousness of our intent to get these papers declassified and released, and to open what remains classified to outside, non-governmental review. It is against this background that, in response to this Committee's request, I cite our technical reservations about the mechanism established by the joint resolution to achieve this same result. I intend to address only Intelligence Community concerns; I will defer to the Department of Justice on any additional problems posed by the joint resolution.
+
+First, vesting in an outside body the determination as to whether CIA materials related to the assassination can be released to the public is inconsistent with my statutory responsibility to protect intelligence sources and methods.
+
+Second, I am concerned that the joint resolution contains no provision requiring security clearances or secure document handling by the Assassination Materials Review Board or its staff.
+
+Third, I am concerned that the joint resolution does not provide the Agency with the opportunity to object to the release of CIA information contained in documents originated by

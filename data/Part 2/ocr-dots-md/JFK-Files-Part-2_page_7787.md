@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_7787.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Cables:
+
+(a) Kingston-4005, dated 8 April 1968; according to (RUABBE/1) a Jamaican service four groups are trying to get demonstrations going against the Amembassy, but without success; exempt under (b)(1)(5)B(1).
+
+(b) Bogota-0654, dated 10 April 1968; (GISOY/GIJAY) unit intercepted propaganda items from Cuban mail pouch. Disclosure to the requestor would identify a clandestine method of the station for obtaining information; exempt under (b)(3)(a) and (b)(6).
+
+(c) Mexico City-5210, dated 15 April 1968; Para. 3 of this cable mentions an intercepted letter addressed to President Johnson protesting the King assassination. (LITEMPO/12) a member of a Mexican service provided the information; exempt under (b)(1)(5)B(1).
+
+(d) Mexico City-5249, dated 17 April 1968; the Legal Attache provided composite photos of suspect in connection with King assassination and asked for check of visitors to Soviet and Cuban embassies; exempt under (b)(3)(a).
+
+(e) Bogota-0703, dated 20 April 1968 (GISOY) surveillance team followed an American National with a striking resemblance to Galt; exempt under (b)(3)(a) and (b)(6).
+
+(f) Paris-9506, dated 22 April 1968; concerns Forman's arrival in Paris, incidental reference to the Subject; exempt under (b)(3)(a) and (b)(6).
+
+(g) Nairobi-3000, dated 14 June 1968; source (TGFLER/1) stated he had an interview with Robert F. Williams. Incidental reference to the Subject; exempt under (b)(3)(a) and (b)(6).
+
+(h) Director-48988, dated 7 November 1968; concerns a Richard George Perrin, incidental reference to the Subject in a record pertaining to another subject and should not be considered a document responsive to the requestor; exempt under (b)(3)(a) and (b)(6).

@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_3586.png
+
+Convert to MarkdownFor this day, the Checklist Staff can
+find no words more fitting than a
+verse quoted by the President to a
+group of newspapermen the day he
+learned of the presence of Soviet
+missiles in Cuba.
+
+For The President Only ~~Top Secret~~

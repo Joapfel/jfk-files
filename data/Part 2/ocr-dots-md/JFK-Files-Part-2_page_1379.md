@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_1379.png
+
+Convert to MarkdownVIA AIR
+
+DISPATCH NO. FJBA-3333
+
+<table><tr><td>CLASSIFICATION</td></tr></table>
+
+13 JAN 1955
+
+TO : Chief, FS
+FROM : Chief, Japan Mission
+SUBJECT : 
+GENERAL : Administrative - Personnel
+SPECIFIC : Request for Extension of Overseas Duty
+
+completed his two-year overseas tour on 28 September 1954. Subject requests an extension to 28 September 1956. The Chief of Mission concurs in this request.
+
+Viola N. PARTAIN
+Acting Chief, Personnel Section
+
+Distribution:
+4 - Headquarters
+1 - Support Mission
+
+<table><tr><td>CLASSIFICATION</td></tr></table>

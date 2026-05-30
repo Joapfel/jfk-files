@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_6579.png
+
+Convert to Markdown5) Other countries. To insure understanding of what is involved in the Cuban situation, to use Cuba to disprove that communism provides useful answers to the needs of developing countries, to expose the continuing danger of communist efforts to export revolution.
+
+6) the Home Base. To provide the American people and the Congress with the full facts of the Cuban situation within the limits of legitimate security considerations.
+
+Assets
+
+The psychological program toward Cuba should utilize the full range
+of the Government's capabilities for action and information. These in-
+clude, among others: a) public statements by the President and other
+officials;
+
+b) informational assets such as the public affairs and Congressional relations agencies of State, Defense and other agencies;
+
+c) the Government's research and analysis facilities;
+
+d) overseas information programs in all media, especially the facilities of the U.S. Information Agency;
+
+e) the diplomatic mechanism for both formal and informal contacts;
+
+f) capabilities for unattributed programs of action and ~~information~~.

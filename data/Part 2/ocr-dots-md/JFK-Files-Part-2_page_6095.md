@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_6095.png
+
+Convert to Markdown13-00000
+
+A. BIOGRAPHICAL INFORMATION
+
+1. Name:
+    Anna Kasten Nelson
+    (former name used: Anna Louise Kasten)
+
+2. Position to which nominated:
+    John F. Kennedy Assassinations Records Review Board
+
+3. Date of nomination:
+    October 25, 1993
+
+4. Address:
+
+    Residence: 3121 Quebec Pl.N.W., Washington, D.C. 20008
+    Office: Department of History, The American University
+            Washington, D.C. 20016
+
+5. Date and place of birth:
+    Fort Smith, Arkansas, 12/1/32
+
+6. Marital status:
+    Married, Paul Nelson
+
+7. Names and ages of children:
+    Eric M., 34.
+    Michael S., 31
+
+8. Education: List secondary and higher education institutions, dates attended, degree received and date degree granted.
+
+    Ft. Smith (AR) High School, 1950
+
+    Ft. Smith Junior College (now Westark), 1950-1952, A.A.
+
+    University of Oklahoma, 1952-1954, B.A.
+
+    University of Oklahoma, 1954-1956, M.A.
+
+    Ohio State University, 1961-1964, Rh.D. candidate
+
+    George Washington University, 1965-1972, Ph.D.
+
+9. Employment record: List all jobs held since college, including the title or description of job, name of employer, location of work, and dates of employment.
+(See attachment A)
+
+10. Military Service: List any military service, including dates, rank, and type of discharge.
+None

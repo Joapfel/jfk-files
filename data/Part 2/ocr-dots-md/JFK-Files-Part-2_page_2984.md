@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_2984.png
+
+Convert to MarkdownSECRET
+
+be ruined if the doctored parts accidentally got in-
+314/
+to the wrong channels.
+
+In the wake of the ill-fated Bay of Pigs invasion of 1961 and the active years of 1962-1964, anti-Castro operations began to diminish in 1965. Operations continued but at a slower pace. John L. Hart had the title of Deputy Chief, WH Division, for Cuba (DCWHD/C), and operated a large base in Miami with virtual autonomy. A chain of safehouses, training sites and boat-moorages stretched through the Florida keys to Key West. From these CIA launched maritime operations which regularly placed and retrieved agents from the Cuban coast, but whose intelligence product often did not justify the effort.
+
+Meanwhile CIA ran a dwindling number of on-island intelligence agents, including some handled in cooperation with the US Navy base at Guantanamo, where hundreds of Cubans still worked by day and returned to Castroland at night. As the Cuban General Directorate of Intelligence (DGI) improved and expanded under Soviet tutelage, CIA agent networks were rolled up and even singleton
+
+U/R
+
+SECRET
