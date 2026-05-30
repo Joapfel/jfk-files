@@ -1,0 +1,81 @@
+# JFK-Files-Part-1_page_35454.png
+
+Convert to Markdown14-0000
+
+<table>
+  <tbody>
+    <tr>
+      <td>CLASSIFIED MESSAGE</td>
+    </tr>
+    <tr>
+      <td><table>
+        <tbody>
+          <tr>
+            <td>SECRET<br/>CLASSIFICATION</td>
+          </tr>
+        </tbody>
+      </table></td>
+    </tr>
+    <tr>
+      <td>DATE: 08 JUNE 62<br/>FILE: 08/0845Z</td>
+    </tr>
+  </tbody>
+</table>
+
+DISTRIBUTION:
+
+ACTION:
+
+INFO:
+
+<table>
+  <thead>
+    <tr>
+      <th></th>
+      <th>DEFERRED</th>
+      <th>PRIORITY</th>
+      <th>INITIALS</th>
+      <th>DTG</th>
+      <th>INCOMING NUMBER</th>
+    </tr>
+  </thead>
+  <tbody>
+    <tr>
+      <th scope="row">RR ROUTINE</th>
+      <td></td>
+      <td>OPERATIONAL IMMEDIATE</td>
+      <td>FAS</td>
+      <td>Ø72128Z</td>
+      <td>IN-Ø6Ø69</td>
+    </tr>
+  </tbody>
+</table>
+
+TO WAVE
+
+INFO DIR MANA GUAT SALV TEGU SANJ
+
+CITE PACY 8/25 ✓
+NUMBER (MASSEY ACTING)
+
+REF: WAVE 4407
+
+1. AMTEASE-1 ARRANGING FOLL FOR AMBUD-1 VISIT PACY:
+
+A. RECEPTION TOCUMEN INTL AIRPORT;
+
+B. BREAKFAST WITH NARCISCO CARAY, RECTOR UNIV OF PANAMA; ARLOS AROSEMENA, PANAMA DELEGATE OAS-PRESIDENT PACY LAW ASSOCIATION; AND LUIS ALFARO, PRESIDENT SAN FERNANDO MEDICAL CLINIC;
+
+C. SUPPER WITH HYJULA-1 (IDEN) AND DULCIDO GONZALEZ, LEADING ANTI-COMMIE INDUSTRIALIST;
+
+D. TIMES FOR INTERVIEW WITH HYJULA-1, PRESIDENT CHIARI, FORMIN GALILEO SOLIS, AND OTHERCABINET MINS;
+
+E. TOUR UNIV OF PANAMA AND HQS DEMOCRATIC LABOR UNIONS;
+
+2. STATION RAIMAN FINANCING PORTION OF LOCAL PROP VALUE. WILL AIRMAIL CLIPPINGS, FOTOS MANA SALV GUAT SANJ TEQU FOR POSS REPLAy, ALTHOUGH ITEMS MAY NOT BE TIMELY ALL CASES.
+
+END OF MESSAGE
+
+SECRET CLASSIFICATION INCOMING
+
+ACTION COSTOS DC/OS EX CI FI TS SEC SJP? AFN HASI TR CCNHO RI

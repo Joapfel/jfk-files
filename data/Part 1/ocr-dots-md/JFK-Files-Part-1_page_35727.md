@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_35727.png
+
+Convert to Markdown2. "CIF"
+
+"CIF", without further details, was mentioned by the Federal Bureau of Investigation as having offices with Robert R. Mullen and Company. The Bureau was advised "no record" on the basis of available information.
+
+3. Ameritas, Incorporated
+
+Ameritas, Incorporated is said to be a Florida real estate firm and several individuals listed employment with this organization when registering at the Watergate. The Bureau was advised "no record".
+
+4. George Leonard
+
+George Leonard, 1601 Washington Avenue, Kansas City, Kansas, registered at the Watergate. The Federal Bureau of Investigation was advised "not identifiable".
+
+5. Edward Warner
+
+Edward Warner, 143 West 73rd Street, New York City, New York, registered at the Watergate. The Federal Bureau of Investigation was advised "not identifiable". The Federal Bureau of Investigation later listed the person as Edward L. Warren, of the same address, and we advised "no record". The press has speculated that "E. Warren" may be an alias of Mr. James W. McCord.
+
+6. Paul Jose Piedra
+
+Paul Jose Piedra registered at the Watergate. The Federal Bureau of Investigation was advised "no record".
+
+7. Joe Granada
+
+Joe Granada registered at the Watergate. The Federal Bureau of Investigation was advised "no record".

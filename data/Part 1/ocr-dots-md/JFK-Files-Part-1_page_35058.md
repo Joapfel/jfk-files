@@ -1,0 +1,37 @@
+# JFK-Files-Part-1_page_35058.png
+
+Convert to MarkdownCUBAN DELEGATION REVOLUTIONARY FRONT
+FINANCE DEPARTMENT
+DELEGATIONS
+"TABLA Y NO OCESA"
+
+November 1 to 30, 1960
+
+ANNEX "I-M"
+
+| Date | L A T I N A S : | Check No. | Total |
+|---|---|---|---|
+| | **ARGENTINA:** |  |  |
+| Nov. 11 | Given | 615 | $ 275,00 |
+| | **PERU:** |  |  |
+| Nov. 11 | Given | 615 | $ 350.00 |
+| Nov. 28 | "Propaganda" | 826 | 350.00 |
+| | |  | $ 700.00 |
+| | **COLOMBIA:** |  |  |
+| Nov. 11 | Given | 615 | $ 300.00 |
+| | **HONDURAS:** |  |  |
+| Nov. 11 | Given | 615 | $ 300.00 |
+| Nov. 24 | Travelling tickets (L.Garcia) | 789 | 70.00 |
+| | |  | $ 370.00 |
+| | **COSTA RICA:** |  |  |
+| Nov. 11 | Given | 615 | $ 400.00 |
+| Nov. 14 | Given | 631 | 500.00 |
+| | |  | $ 900.00 |
+| | **SAN SALVADOR:** |  |  |
+| Nov. 25 | Sent to J.L.Fernandez | 613 | $ 125.00 |
+| | **Total of "Latins":** |  | $2,670.00 |
+| | **NORTH AMERICANS:** |  |  |
+| | **ATLANTA:** |  |  |
+| Nov. 24 | Traveling tickets (R.Rodriguez) | 793 | $ 500.00 |
+
+Continues page No. 2

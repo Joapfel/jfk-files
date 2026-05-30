@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_35478.png
+
+Convert to Markdown11. On May 2, 1954, F/P Charlene, called on July 30 to be sent to Company C in New York City. It arrived at the airport and was met by Charles, who called a few minutes later and asked where he was. Charles told him that he had run out of gas and could not go any further. He called the New York station to tell them that he would return to the city when he had more gas. While waiting for some help from the other stations, Charles waited until he was sure to have it before leaving the area.
+
+On April 6, Charles called back to find out how his friends were doing. His first call was to Bill, who was in the hospital. The second one was to Bob, who was in the hospital with a broken arm. His third was to Joe, who was in the hospital with a broken foot. His fourth was to John, who was in the hospital with a broken leg. He also called the Red Cross for help, but they didn't help because they thought Charles was still at home, which was not true.
+
+The next day Charles went to the hospital to see Bill. When he got there, Bill was still in bed. Charles told him that he needed help. Bill refused to let anyone into the room except his wife. Charles called the police, but they didn't help. He called the firemen, but they didn't come either. He called the Red Cross, but they didn't help. He called the city council, but they didn't help either.
+
+By 8:00 A.M., Monday, May 7, Charles called to ask how his friends were doing. His first call was to Bill, who was in the hospital with a broken foot. Charles told him that he needed help. Bill refused to let anyone into the room except his wife. Charles called the police, but they didn't help. He called the firemen, but they didn't come either. He called the Red Cross, but they didn't help. He called the city council, but they didn't help either.
+
+By 9:00 A.M., Tuesday, May 8, Charles called to ask how his friends were doing. His first call was to Bob, who was in the hospital with a broken foot. Charles told him that he needed help. Bill refused to let anyone into the room except his wife. Charles called the police, but they didn't help. He called the firemen, but they didn't come either. He called the Red Cross, but they didn't help. He called the city council, but they didn't help either.
+
+By 10:00 A.M., Wednesday, May 9, Charles called to ask how his friends were doing. His first call was to Joe, who was in the hospital with a broken foot. Charles told him that he needed help. Bill refused to let anyone into the room except his wife. Charles called the police, but they didn't help. He called the firemen, but they didn't come either. He called the Red Cross, but they didn't help. He called the city council, but they didn't help either.
+
+By 12:00 A.M., Thursday, May 10, Charles called to ask how his friends were doing. His first call was to the Red Cross. They told him that they couldn't help. He called the Red Cross again, but they didn't help. He called the city council, but they didn't help either.
+
+By 2:00 P.M., Friday, May 11, Charles called to ask how his friends were doing. His first call was to the Red Cross. They told him that they couldn't help. He called the Red Cross again, but they didn't help. He called the city council, but they didn't help either.
+
+By 3:00 P.M., Saturday, May 12, Charles called to ask how his friends were doing. His first call was to Bill. He told him that he needed help. Bill refused to let anyone into the room except his wife. Charles called the police, but they didn't help. He called the firemen, but they didn't come either. He called the Red Cross, but they didn't help. He called the city council, but they didn't help either.
+
+By 4:00 P.M., Sunday, May 13, Charles called to ask how his friends were doing. His first call was to Bob. He told him that he needed help. Bill refused to let anyone into the room except his wife. Charles called the police, but they didn't help. He called the firemen, but they didn't come either. He called the Red Cross, but they didn't help. He called the city council, but they didn't help either.
+
+By 5:00 P.M., Monday, May 14, Charles called to ask how his friends were

@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_35672.png
+
+Convert to MarkdownMayo 1 Viernes Dr. Cesar Lugones # 94 Clinología
+" 2 Sabado Dr. " " # 95 Clínología
+" 4 Lunes Dr. Maceo # 96 Catarteritis
+" 5 Martes " # 97 Parálisis I
+" 6 Miércoles " # 98 Parálisis II
+" 7 Jueves Dr.Alonso Portuondo # 99 Costuartritis
+" 8 Viernes Dr. " " # 100 "'
+" 9 Sabado Dr. " " # 101 "'
+" 11 Lunes Dr. Peñalver # 102 Medicina ocupacional
+" 12 Martes Dr. Peñalver # 103 Anganismo
+" 13 Miércoles Dr. Peñalver # 104 Saturnismo
+" 14 Jueves Dr. Maceo # 105 Cartas
+" 15 Viernes Dr. " # 106 Cartas, sífilis, artritis
+" 16 Sabado Dr. " # 107 " , " # II
+" 18 Lunes Dr. " # 108 Manquillosis, Carta
+" 19 Martes Dr. " # 109 Hepatitis viral, Carta
+" 20 Miércoles Dr. " # 110 Palabras sobre la fecha
+" 21 Jueves Dr. Gonzalez Mayo # 111 Tuberculosis en Ganado V.
+" 22 Viernes Dr. Gonzalez Mayo # 112 Tuberculosis en Ganado V.
+" 23 Sabado Dr. " " # 113 Enfermedades aviarías
+" 25 Lunes Dr. " " # 114 Aftosa
+" 26 Martes Dr. " " # 115 "
+" 27 Miércoles Dr. " " # 116 "
+" 28 Jueves Dr. De la Vega # 117 Chafizion
+" 29 Viernes Dr. De la Vega # 118 Retinitis pigmentaria
+" 30 Sabado Dr. De la Vega # 119 Desprendimiento retinal

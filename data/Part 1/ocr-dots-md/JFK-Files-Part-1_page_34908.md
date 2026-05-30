@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_34908.png
+
+Convert to MarkdownREPÚBLICA DE CUBA
+MINISTERIO DE JUSTICIA
+DIRECCION GENERAL DE JUSTICIA
+
+Responsable del Registro do encargados las firmas
+que autori: La�ana Encar-
+gado del: La Rabana
+
+CERTIFIED COPY OF RECORDS AL PREFERENCIAL ENCAR-
+GADO DEL REGISTRO DEL ESTADO CIVIL DE LA CABANZA,
+que consta de este documento, por la
+solicitud que guarda con las que acostumbra a usar en sus
+actos oficiales.
+
+12 de octubre de 1987.

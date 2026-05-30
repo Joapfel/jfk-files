@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_34495.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+## CELOTEX I
+
+We will want more detail on the actual surveillance, including possible higher approval.
+
+This is responsive to the DCI's request for newspaper articles that led to the surveillance.
+
+## CELOTEX II
+
+Questions similar to CELOTEX I.
+
+We may want actual copies of newspaper stories for display, in addition to memos, should DCI wish to use it.
+
+## MOCKINGBIRD
+
+No recorded (in CIA) formal approval by Attorney General. It may be that Justice will have a copy.
+
+Does this raise a question of surveillance* of congressmen if one is contacted by someone under surveillance?
+
+3. Security experts to have reports on Maheu, SIESTA, REDFACI, surveillance trucks, and Israeli COMINT by COB Thursday.
+
+S. D. Breckinridge
+
+Attachments a/s
+
+- 2 -
+
+SECRET
+EYES ONLY

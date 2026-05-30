@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_34462.png
+
+Convert to MarkdownEMERGENCY INSTRUCTIONS
+
+(Continued)
+
+any event, every possible security precaution should be taken during the movement of SUBJECT, including the use of handcuffs or any other restraining devices deemed necessary in order to maintain proper custody and control over the SUBJECT and prevent his escape.
+
+4. If, in the judgment of the SSA, a fire has reached, or is likely to reach proportions that it could not be controlled by firefighting equipment on the premises, it shall be his responsibility to notify the Clinton Fire Department. In this event, the Security Detail should move with dispatch to remove the SUBJECT from the premises prior to arrival of the Fire Department. The SUBJECT should be placed in an automobile, accompanied by four members of the Security Detail, and driven away from the premises. At appropriate intervals, telephone calls should be made to the safehouse. If no answer is received, the cognizant DEO official should be contacted for instructions as to whether to return to the safehouse or proceed to an alternate site.
+
+FIRE
+
+(Tenant House)
+
+1. In case of fire in the Tenant House, the occupants thereof should be instructed to immediately notify the Main House and to use any available means to combat the fire until assistance arrives, unless the fire is out of control, in which case all efforts should be directed towards the evaluation of the occupants of the premises. It should be clearly understood that in no case should any of the occupants of the Tenant House call the Fire Department. This decision is the sole responsibility of the SSA.
+
+2. Upon notification of a fire in the Tenant House, the person notified should immediately inform the SSA and assist in the dispatching of available personnel and fire extinguishers to combat the fire. If, in the judgment of the SSA, the fire has reached, or is likely to reach, proportions that it could not be controlled by the available firefighting equipment, it shall be his responsibility to notify the Clinton Fire Department and to take necessary precautionary measures to prevent the observation of the SUBJECT by firemen or other unauthorized persons who might be attracted to the scene.

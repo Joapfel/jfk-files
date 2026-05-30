@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_35509.png
+
+Convert to MarkdownNo. 1. June 65
+
+Received from
+
+One thousand three hundred sixteen and 25/100
+
+"El Medico y Usted" on WRUL for June 65
+Cashier's Check #400704
+
+8,1316.25
+
+Robert Wilkensten

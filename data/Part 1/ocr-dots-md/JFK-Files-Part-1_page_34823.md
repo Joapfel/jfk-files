@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_34823.png
+
+Convert to Markdown# MEMORANDUM
+
+## THE WHITE HOUSE
+WASHINGTON
+
+CONFIDENTIAL
+
+MEMORANDUM OF CONVERSATION
+
+September 9, 1966
+
+5:30 p.m.
+
+SUBJECT: Manuel Artime - leader of the Bay of Pigs expedition
+
+Artime came to see me at his own initiative. The meeting had been arranged through Congressman Dante Fascell's office. I have known Artime for several years, but had not seen him for about two years.
+
+Artime stated that the purpose of his visit was to express some personal views about the Cuban situation. He said he fully appreciated the fact that the Cuban exile looks at his homeland in a manner quite different from the United States Government with its world-wide responsibilities. Nevertheless, he thought it important that hit-and-run raids be resumed against Cuba to (1) keep up the hopes of the opposition inside the island and (2) force Fidel to maintain a high state of alert which materially subtracts from his economic efforts. Artime noted that assets to make these raids are available but are not being used. He did not specifically ask for support to resume his activities.
+
+I told him that while his arguments had certain merit, there were also other considerations which should be kept in mind, i.e., that hit-and-run raids provide a pretext for Castro to turn the screws of repression harder on the Cuban people and to place the blame for his own failure on external attacks. Artime acknowledged the validity of these arguments and did not pursue the matter further.
+
+Artime said that he had reached the point where he had to think of finding a job to support his wife and three children. He indicated a preference for a job that would permit him to travel throughout Latin America so that he could maintain his contacts in other countries, and asked that I let him know if I learned of any opportunities I said I would.
+
+The rest of our conversation ranged over a series of points -- Cubela, Rabel, Gutierrez Menoyo, Huber Matos, the status of political prisoners, Castro's security measures, mutual friends in Miami -- but he had nothing significant to say.
+
+Toward the end of our conversation, he returned to the subject of raids to volunteer his services in a leadership or subordinate capacity if the United
+
+CONFIDENTIAL

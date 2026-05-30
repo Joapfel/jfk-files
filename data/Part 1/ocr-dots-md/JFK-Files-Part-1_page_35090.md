@@ -1,0 +1,89 @@
+# JFK-Files-Part-1_page_35090.png
+
+Convert to MarkdownCARTOS RELATIVOS AL CHEQUE No. 242
+
+FOR $709.00 - "PAULA AND SOSA"
+
+Manutención y Albergue:
+(Occasional support to cuban refugees)
+
+*   Ceferino V. Palmer Frado
+*   Guillermo Losa Zafrana
+*   Félix Domínguez y Sra.
+*   Antonio Ramos y Sra.
+*   Ramón García Avila
+*   Emilio Izquierdo
+*   Rogerio de los Santos
+*   Árcángel Amador
+*   José A. Darias
+*   Orlando Bayona
+*   Augusto Pupo
+*   Modesto B. García
+*   Jorge Varela
+*   Mario Pérez Chile
+*   Luis Hernández
+*   Justo Delgado
+*   José F. Mederos Robaina
+*   Miguel A. Victorero
+*   Gilberto Junco
+*   Arturo Escarce Cancio
+*   Senén Brito Alfonso
+*   Julio Tur
+*   Enrique Moreno
+*   José M. Fagil Moreira
+*   Luis Fuente Roca
+*   Cándido C. Aguilar
+*   Ricardo Zabala Sánchez
+*   Andrés I. Rodríguez
+
+$ 44.00
+
+51.00
+
+24.00
+
+24.00
+
+22.00
+
+12.00
+
+12.00
+
+12.00
+
+20.00
+
+22.00
+
+12.00
+
+12.00
+
+12.00
+
+12.00
+
+12.00
+
+12.00
+
+12.00
+
+12.00
+
+12.00
+
+12.00
+
+12.00
+
+12.00
+
+12.00
+
+12.00
+
+$ 459.00 A
+
+Pasa a la Hoja No. 2

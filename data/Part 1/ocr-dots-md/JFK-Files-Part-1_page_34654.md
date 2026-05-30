@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_34654.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+<table><tr><td>SECRET</td></tr></table>
+
+<table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+TO:
+
+FROM: DIRECTOR
+
+CONF.
+
+INFO:
+
+PAGE THREE
+
+OUT 52128
+
+TO
+
+INFO
+
+CITE DIR
+
+THAT AFFECT KUBARK, BUT STRESS THAT YOU RECOGNIZE THAT REPORTS ARE OFTEN MISLEADING. IN PUBLIC MEDIA REPORTERS ARE NOT ACCURATELY REPORTED.
+
+END OF MESSAGE
+
+DDCI (in draft)
+COPS (in draft)
+
+ALLEN W. DULLES
+RELEASING OFFICE
+
+COORDINATING OFFICER
+SECRET
+
+RICHARD M. BISSEL
+
+AUTHENTICATING OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED. Copy No. 1 of 2

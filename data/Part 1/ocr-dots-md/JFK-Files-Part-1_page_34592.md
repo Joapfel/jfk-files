@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_34592.png
+
+Convert to MarkdownSECRET
+
+EYES ONLY
+
+1-9-69
+
+DRAFT:JMM - 19 June 1969
+
+SUBJECT: Briefing of Key Congressional Contacts on the Nosenko.Case
+
+The following paragraphs are proposed as guidance for briefing key congressional contacts on the history and status of the Yuriy Ivanovich Nosenko case. They are based primarily on material provided by SB Division, and have been cleared by SB, CI Staff and the Office of Security. It is proposed that the Chairmen and/or senior staff officers of each of the Agency Subcommittees be briefed along the lines indicated.
+
+1. This case goes back sometime into history and you may recall having heard of it several years ago. From time to time it has received press play, both when it first broke in early 1964 and occasionally since.
+
+2. Yuriy Ivanovich Nosenko, a Staff Officer of the Committee for State Security (KGB) of the USSR, and son of a former Minister of Shipbuilding in the USSR, defected to the Agency in Geneva, Switzerland, on 4 February 1964. He was then brought to the United States where he has since been in the custody of the Agency undergoing extensive debrieferings by officers of the Agency and the FBI.
+
+SECRET EYES ONLY

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_34521.png
+
+Convert to MarkdownSECRET
+
+in Frankfurt, West Germany. The alien involved was Eduard Oun, an Estonian who defected from Estonia through Sweden in 1955.
+
+6. The incident in Frankfurt involved mistreatment of Oun during interrogations directed by Torpats. The charges of physical abuse included the striking of Oun with the fist; application of turpentine and ointments to various parts of the body, the scrubbing of Oun's body with a brush, and forcing Oun to stand in the nude as long as eight days during interrogations with only very brief rest periods.
+
+7. Torpats was returned to Headquarters and was brought before an Employment Review Board for consideration of separation from the Agency. The Board's recommendations initially were that Torpats be "transferred to an area outside the Clandestine Services." Torpats appealed the decision, and a later recommendation included reduction in grade from GS-14 to GS-13. Torpats later received unsatisfactory fitness reports and engaged in various "in house" battles with Agency officials concerning his employment.
+
+8. Torpats was later terminated in accordance with the authority granted the DCI under Section 102(c) of the National Security Act of 1947, as amended, effective 30 January 1961. Later in 1961, Torpats filed suit against the DCI contesting his dismissal, and the U.S. District Court for the District of Columbia granted the government's motion for summary judgment against Torpats. Torpats appealed the decision, and the U.S. Court of Appeals, in 1962, upheld the lower court's ruling that Torpats' termination was legal.
+
+9. The Office of Security file of Eduard Oun contained little information other than interrogation reports dated 1956. It was not clear from file information whether Oun entered the United States after the Frankfurt incident. The most recent document contained in the Oun file was dated 17 September 1956 and noted that Oun had been psychiatrically examined and found qualified for Agency sponsored immigration to the U.S. under Public Law 203.
+
+SECRET

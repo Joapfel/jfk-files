@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_34953.png
+
+Convert to MarkdownJUAN DE LA FERIA, S/CL. - - -
+CITARIO: - Si el Presidente de la República
+delجزo Civil a cargo de, suyos; al que co-
+pisan d'co:- - - - - - - - - - - - -
+JUEVEME: por lo SISTEMA DE BAZA T ROZSCHAFTEN.
+EL PRIMARTE Y MIRAR: ARAUJO.- D.G. Le GOUIN DE SANTA CLARA: a -
+les tres y cince de la tarde del día 10, con elسا 4 de enero do mil -
+noviembre, cuarenta y cinco, por al. de Della Torre. J. Del Toro, Junta Municipal por designación legal y de un miembro delay.
+Testator y Testada, se precedió "interrumpido" y sinctsado el eludir-
+de su遗 da los actuales y al Nover 20. Sra. Blanca Guadalupe Ro-
+lalfe Diez y el rigeo, por su nombramiento de Sra. Y RAFAELLA,
+natural y vecino del entire San Juan, deidad, OFFICE, CUBANO,
+Teniente del Númerto, Hijo de laupa Barrio Della Torre, Procurador
+PÚBLICO y de IASIDORO VENECIANO ARMANDO y NICKOLÁO, de los quehaceres
+DOMESTICOS y ANIMOS de su doméstico, "Sra. Mª. Mª. TIBAUINA DEL
+SLAMIN"}, {"bbox": [473, 1089, 2152, 1726], "category": "Text", "text": "Delaminó mis y ENDED, natural y vecina de esta Clara, cubano,\nsultora, hijo de Miguel Henr Cuello y de Luis José Tres Llanos, -\nIrrigóronle y de su川, sucesor de su doteleffo y la Lujo y norte\nalés de edad, concierto de los Testigos de los que Jorge Inglés No-\nrell, Concedo Macarone Traz, Orlando Viñoles, J. Anglín Ávila-\nlos encargados, naturales de la Clara, de profesión Tropie-\nteros, de cuarto cruce, sonon Viñolaseta, datakey de edad y\nde este vecinalicio. Todo lo cual responde de lo que testifies de\nLa Escritura número cincuenta del comienzo aná, la quezgana ante ci-\nche Notario por los nombramientos Contrayentes y contado en esta Ju-,\ngado, junto con el opertoo Expedición. Incia panel que se re:fi-\nen en cumplimiento de lo dispuesto en el artículo antecedeENTE -\ndel Código Notarial, firmamos el Senor Juoz, por parte m que Certí-\nfico. De hice constar que no se consigna la inibucación de los pa-\ndes de los Contrayentes por no constar de la empruela Escritura,\nde que también Certifico.- dr. Rafael Sed. y Testa. Hay una sello.-"}, {"bbox": [469, 1768, 2155, 1926], "category": "Text", "text": "B. P. E. A SU ORIGINAL Y A PUNTO DE ITALIA, EL ARTÍCULO 31 DE\nDE LA PRESENTACIÓN DE LA PRESENCIA DEL PRESIDENTE DEL ESTADOS.\n2. H. TRES."}, {"bbox": [668, 2008, 1015, 2042], "category": "Text", "text": "JULIO MONTOY"}, {"bbox": [465, 2127, 1013, 2205], "category": "Text", "text": "ofidó por\nR.V."}, {"bbox": [1344, 2803, 1763, 2853], "category": "Page-footer", "text": "G13.25706\n0531.87706"}]

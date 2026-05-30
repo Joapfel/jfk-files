@@ -1,0 +1,47 @@
+# JFK-Files-Part-1_page_34820.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM
+
+TO : Chief of Station
+THRU : D/OPS
+FROM : SP-4/Burton J. CELENZA
+SUBJECT: TYPIC/Operational AMBUD Progress Report 1-July - 30 September 1966
+
+Date: 19 October 66
+WSP-1650
+Distribution 4-COS 1-D/OPS 1-C/SP 1-SP-4 Chrono 1-19-124-25 1-REG
+
+A. Operational Highlights
+
+1. The AMBUD program for the handling and disposition of residual Brigade matters pertaining to dependent benefits and medical attention continued during the reporting period. All major developments were reported to Headquarters as described in the following paragraphs.
+
+2. The results of a survey of all persons receiving AMBUD benefits, and the JMWAVE recommendations for handling the ultimate termination of these benefits, were forwarded by UFGA-25261, 3 June 1966.
+
+3. The conclusion of the vocational rehabilitation program covering 63 Brigade members on 30 June 1966 was reported by UFGA-25901, 14 September 1966.
+
+4. The current status of the remaining six medical cases which included a request for Headquarters guidance on the disposition of these cases was prepared in September and forwarded by UFGA-26075.
+
+B. Administration
+
+3. In accordance with guidance received from Headquarters (DIRECTOR 10331, 7 June 1966), payment of benefits were to continue unchanged until further notice. During the reporting period JEWAVE received no guidance or instruction to change this basic decision by Headquarters.
+
+6. Expenses incurred during the reporting period are tabulated as follows:
+
+Remove from Project S.A., 9-124-25/6
+CS Classification: S.A.
+JOB # 73-S07-25 Fold: 3
+Res: _______ Fold: 3
+
+<table><tr><td>SEAL OF A BRIGADE</td></tr><tr><td>SUBMIT TO ORDER</td></tr><tr><td>FULL NAME</td></tr></table>
+
+SECRET
+
+3 OCT 1966
+
+Am# : TO LHPA 26296
+
+19-124-25/6
+
+19-124-25/6A

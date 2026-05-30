@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_35172.png
+
+Convert to MarkdownSTATEMENT OF EXPENSES
+
+ANNEX "A"
+Page No. 5
+
+<table><thead><tr><th>Check No.</th><th>CHECK NO.</th><th>Total</th></tr></thead><tbody><tr><td>Felix D. Urra Pagés</td><td>1092</td><td>$ 175.00</td></tr><tr><td>José Dorta García</td><td>1093</td><td>$ 250.00</td></tr><tr><td>Esteban Echevarría D.</td><td>1094</td><td>275.00</td></tr><tr><td>Pedro Echegoyen de la G.</td><td>1095</td><td>275.00</td></tr><tr><td>Víctor Espinosa H.</td><td>1096</td><td>225.00</td></tr><tr><td>Marcial Facio C.</td><td>1097</td><td>300.00</td></tr><tr><td>José ... Pajardo M.</td><td>1098</td><td>225.00</td></tr><tr><td>Jesús Couce Limares</td><td>1099</td><td>175.00</td></tr><tr><td>Elpidio N. Felizola R.</td><td>1100</td><td>250.00</td></tr><tr><td>Segisberto Fernández A.</td><td>1101</td><td>225.00</td></tr><tr><td>Luic Fernández Ardois</td><td>1102</td><td>300.00</td></tr><tr><td>Francisco Fernández S.</td><td>1103</td><td>325.00</td></tr><tr><td>Lajislao Fernández M.</td><td>1104</td><td>175.00</td></tr><tr><td colspan="2">C.A.N.C.B.L.L.D.</td><td>-0-</td></tr><tr><td>Antonio Fernández R.</td><td>1105</td><td>-0-</td></tr><tr><td>José A. Fernández R.</td><td>1106</td><td>275.00</td></tr><tr><td>Nabi Ferra Aata</td><td>1107</td><td>225.00</td></tr><tr><td>Ramón J. Ferrer</td><td>1108</td><td>175.00</td></tr><tr><td colspan="2">R.O.M.D.L.L.D.</td><td>275.00</td></tr><tr><td>Rolando Fuentes R.</td><td>1109</td><td>-0-</td></tr><tr><td>Tristán García A.</td><td>1110</td><td>275.00</td></tr><tr><td colspan="2">C.A.N.C.B.L.L.D.</td><td>175.00</td></tr><tr><td>René García Fernández</td><td>1111</td><td>-0-</td></tr><tr><td>Benigno García L.</td><td>1112</td><td>275.00</td></tr><tr><td colspan="2">Isabel Cuatorres</td><td>225.00</td></tr></tbody></table>
+
+(Continues page No.6)

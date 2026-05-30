@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_35285.png
+
+Convert to MarkdownPROPAGANDA
+
+July 31, 1962
+
+Annex "II"
+
+Balance on July 1, 1962. $ 3,827.39
+Deposit (For July) 20,000.00
+$ 23,827.39
+July Expenses (See Annex "II-A") 20,537.13
+Balance on July 31, 1962. $ 3,290.26
+
+NOTE: The July 26, deposit will be considered in August Report.
+
+nn.

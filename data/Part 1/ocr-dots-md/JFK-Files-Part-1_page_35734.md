@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_35734.png
+
+Convert to MarkdownQuestion 28
+
+MR. DIRECTOR, WHEN YOU WERE BEFORE THE COMMITTEE LAST YEAR WE ASKED YOU TO OUTLINE FOR US THE PARTICIPATION IN THE WATERGATE BURGLARY AND THE SUBSEQUENT ATTEMPT TO COVER UP WHITE HOUSE INVOLVEMENT IN THAT BURGLARY AND YOU DID SO VERY WELL. HAS ANYTHING BEEN UNCOVERED IN THE YEAR SINCE YOU WERE HERE IN THIS AREA. HAS ANY FURTHER PARTICIPATION BY CIA PERSONNEL BEEN REVEALED.
+
+## Proposed Reply
+
+A brief answer to this question is that there have been major developments regarding allegations of CIA participation in the Watergate burglary and the subsequent attempt to cover up White House involvement. However, as the definition of Watergate has been expanded to include other matters we have continued our rigorous attempts within the Agency to learn everything possible about any Agency personnel associations and correspondence on these developments. In line with this the following actions have been or are being taken.
+
+a. Senator Baker's continuing requests for record searches and files are being pursued.
+
+b. Testimony of Agency personnel before the Senate Select Committee has been completed.
+
+c. Requests for Agency documents and files for the Office of the Special Prosecutor are continuing to be supplied.
+
+d. Requests for Agency documents and files for the Special Counsel of the Impeachment Committee are being honored.
+
+Our search has not revealed the participation of any CIA personnel not previously identified.

@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_35228.png
+
+Convert to MarkdownDEMOCRATIC REVOLUTIONARY FRONT
+
+Bank Conciliation
+
+On 31 July 1960
+
+Balance According to Bank Statement
+
+Less: Checks Drawn but not Collected
+
+| Check | Date | In Name Of |
+|---|---|---|
+| | | Manuel A. Varona |
+| | | A. Sanches Arango |
+| | | Sent to F. Vidal Santiago |
+| | | Manuel Artínez |
+| | | Manuel A. Varona |
+| | | Juan Rodriguez Pintado |
+| | | Wife of F. Vidal Santiago |
+| | | Roberto Fernandes |
+| | | Pascasio Linera |
+
+Balance on our books Conciliated 31 Jul 60

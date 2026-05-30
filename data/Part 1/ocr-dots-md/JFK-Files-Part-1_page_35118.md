@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_35118.png
+
+Convert to Markdown14-00000
+
+MINISTERIO DE FINANCIAS DE LA NACIÓN
+"REVILLA AND SOSA"
+INFORME
+
+Octubre 1 al 31 de 1960

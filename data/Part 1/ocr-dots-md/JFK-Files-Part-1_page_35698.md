@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_35698.png
+
+Convert to MarkdownSECRET
+
+<table><tr><td>1. NAME (Last, First, Middle)</td><td>2. DATE OF BIRTH</td></tr><tr><td>HICKS, CALVIN W.</td><td>8 NOV 1924</td><td>GS-13</td></tr><tr><td>4. OFFICE, DIVISION, BRANCH (or overseas station and existing cover if lateral assignment)</td><td>5. PRESENT POSITION</td><td>6. EMPLOYEE EXTENSION</td></tr><tr><td>DDP/WH/CS/CS Dev Comp</td><td>OPS OFFICER</td><td>6815</td></tr><tr><td>7. PROPOSED STATION<br>(LA DAZ, BOLIVIA)<br>(STATE 32)</td><td>8. PROPOSED POSITION (title, number, grade)</td><td>OPS OFFICER - 0977 - GS-13</td></tr><tr><td>9. TYPE OF COVER AT NEW STATION</td><td>10. ESTIMATED DATE OF DEPARTURE</td><td>11. NO. OF DEPENDENTS TO ACCOMPANY</td></tr><tr><td></td><td>SEPT 66</td><td>7</td></tr><tr><th>12. NAME OF DEPENDENT TO ACCOMPANY</th><th colspan="2">13. RELATIONSHIP</th><th>14. DATE OF BIRTH</th><th colspan="2">15. REPORT OF MED. HIST. (SF 89) ATT.</th></tr><tr><td></td><td></td><td></td><td>MONTH</td><td>YEAR</td><td>YES</td><td>NO</td></tr><tr><td>CATHERINE L.</td><td>WIFE</td><td></td><td>MAY</td><td>1925</td><td></td><td>X</td></tr><tr><td>THERESA L.</td><td>DAU</td><td></td><td>JAN</td><td>1953</td><td></td><td>X</td></tr><tr><td>MICHAEL C.</td><td>SON</td><td></td><td>JULY</td><td>1954</td><td></td><td>X</td></tr><tr><td>MARY C.</td><td>DAU</td><td></td><td>DEC</td><td>1955</td><td></td><td>X</td></tr><tr><td>LISA ANNE</td><td>DAU</td><td></td><td>OCT</td><td>1957</td><td></td><td>X</td></tr><tr><td>DANIEL C.</td><td>SON</td><td></td><td>FEB</td><td>1959</td><td></td><td>X</td></tr><tr><td>PATRICIA E.</td><td>DAU</td><td></td><td>MAR</td><td>1960</td><td></td><td>X</td></tr><tr><th colspan="6">16. COMMENTS</th></tr><tr><td colspan="6">FORM 89 ATTACHED IN DUPLICATE. PLEASE SCHEDULE MEDICAL AS SOON AS POSSIBLE.</td></tr><tr><td>17. DATE OF REQUEST<br>10 MAY 1966</td><td>18. SIGNATURE OF REQUESTING OFFICIAL<br>(Kenneth L. Wambold)</td><td>19. ROOM NUMBER AND BUILDING<br>GH 56 Hqs</td><td colspan="2">20. EXTENSION<br>6815</td><td colspan="2"></td></tr><tr><th colspan="6">21. EVALUATION AND SIGNATURE OF APPROVING OFFICIAL</th></tr><tr><td colspan="6">Date: 2 JUN 1966<br>Security Approval has been granted for the use contemplated by this request.<br>Chief, Personnel Security Division</td></tr><tr><td colspan="6">REQUEST FOR PCS OVERSEAS EVALUATION</td></tr></table>
+
+SECRET
+
+GROUP I
+Excluded from automatic downgrading and declassification
+
+(4) FORM 6-65 259a

@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_35482.png
+
+Convert to MarkdownSarzo Mauri
+
+Participó a la Juventud Socialista en el Fondo Esmeralda de Obras Públicas alrededor del comienzo del Gobierno Auténtico.
+
+Al llegar el actual gobierno al poder el fué dejado cesante en dicho lugar, por haber estado de acuerdo con la dictadura de Batista, y haber colaborado con los distintos Directores que hubo en dicho lugar.
+
+Despuésociendo por supuesto lo que el hubo de realizar después. - ZI CR. Guillermo Perez Fraga, que vive en el 820 N.W. 13 Ct. Apto. Y en ese puede ser localizado por el telefono 373 8122, puede dar sus informes que yo.
+
+Tambien el tiene una íntima amiga en esta ciudad que vive en el 630 K.E. 22 Tc. y tiene el telefono.379 8546, esta sabe de el mismo mas pues sabe que estuvo en China comunista y el Canada.
+
+También tiene una hermana aquí, y que se puede localizar at traves de la persona anteriormente señalada.

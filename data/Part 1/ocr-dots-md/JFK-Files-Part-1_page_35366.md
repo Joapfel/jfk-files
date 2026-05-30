@@ -1,0 +1,39 @@
+# JFK-Files-Part-1_page_35366.png
+
+Convert to MarkdownDATE
+
+CHECK NO.
+
+TOTAL
+
+PAYROLL:
+
+Deo. 1
+" 1 Duloe Torres
+" 1 Estralla Villapol
+" 1 Clara Ramírez
+" 1 Alberto Santos
+" 1 Antonio Corrastaru
+" 1 Cristila Gallardo
+" 1 Puerto Martínez
+
+7094 $ 200.00
+7095 200.00
+7096 200.00
+7097 200.00
+7098 220.00
+7099 180.00
+7120 150.00
+---
+$ 1,350.00
+
+EXPENSES:
+
+Deo. 1 Reimbursement revolving fund 7168 $ 986.25
+" 7 Reimbursement revolving fund 7226 767.65
+" 15 Reimbursement revolving fund 7300 500.77
+" 20 Toys for prisoners children 7325 1,500.00
+---
+TOTAL:- $ 5,104.67
+
+ml.

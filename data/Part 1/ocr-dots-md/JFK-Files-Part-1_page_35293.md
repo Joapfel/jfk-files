@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_35293.png
+
+Convert to MarkdownI, Juan Paula Báez, Comptroller, hereby certify that the Statement and Annexes enclosed in this Report for the month of January, 1962, that shows Incomes for $59,784.50; Expenses for $43,491.26, and Balance in Bank on January 1st, 1962, $6,412.73 and January 31,1962, $22,705.97, (Propaganda $17,305.97 and Delegation Especial $5,400.00), are to my knowledge - correct.
+
+Juan Paula Báez
+Comptroller.
+
+Miami, February 22, 1962.
+
+nnc.

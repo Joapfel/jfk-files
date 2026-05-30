@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_35325.png
+
+Convert to MarkdownHE RECIBIDO de "Judicatura Cubana Democrática la canti-
+dad de Ciento cuarenta y zíz e dollares cinco centavos
+importe de la asignación correspondiente al presente---
+mes.
+
+SON $ 147.05
+
+Miami, FEB. 5 1962
+
+ORIGINAL
+
+Miguel Álvarez de la Cerre
+
+19

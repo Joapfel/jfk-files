@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_35227.png
+
+Convert to Markdown# FRENTE REVOLUCIONARIO DEMOCRATICO
+## Misceláneos
+### Mes de Julio de 1960
+
+ANEXO 8
+
+| Partida | Fecha | mCheck | Detalle | Importe |
+|---|---|---|---|---|
+| 900 | Jul 12 | 29 | Aumento Fondo Fijo a $100.00 | $ 50.00 |
+| 901 | Jul 26 | 49 | Pago Préstamo Dr. Carrillo | 1,500.00 |
+| 902 | Jul 27 | - | Cargo Bancario | 2.70 |
+| 903 | Jul 27 | 66 | Atención Personal | 3.00 |
+| 904 | Jul 27 | 66 | Alquiler Taxi | 4.00 |
+| 905 | Jul 27 | 66 | Alquiler Taxi | 6.50 |
+| 906 | Jul 27 | 66 | Atención Personal | 1.22 |
+| 907 | Jul 12 | 28 | Gastos en Periódicos (F.Fijo) | 1.50 |
+| 908 | Jul 12 | 28 | Periódicos (Fdo. Fijo) | 2.00 |
+| 909 | Jul 12 | 28 | Periódicos (Fdo. Fijo) | 2.30 |
+| 910 | Jul 12 | 28 | Periódicos (Fdo. Fijo) | 0.40 |
+| 911 | Jul 15 | 34 | Periódicos (Fdo. Fijo) | 1.11 |
+| 912 | Jul 19 | 42 | Periódicos (Fdo. Fijo) | 1.00 |
+| 913 | Jul 19 | 42 | Periódicos (Fdo. Fijo) | 0.70 |
+| 914 | Jul 19 | 42 | Periódicos (Fdo. Fijo) | 0.35 |
+| 915 | Jul 27 | 66 | Periódicos (Fdo. Fijo) | 0.60 |
+| | | | Total Misceláneos | $ 1,577.38 |

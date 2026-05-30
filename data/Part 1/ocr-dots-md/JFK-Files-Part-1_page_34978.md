@@ -1,0 +1,50 @@
+# JFK-Files-Part-1_page_34978.png
+
+Convert to MarkdownSECRET
+
+Chief of Station, JMAAVE
+
+Chief, Northern Hemisphere Division
+OPERATIONAL/TYPIC/AMRUD
+Concerning Dependency Payment for Jorge A. Yon (Case #143)
+
+FOR YOUR INFORMATION
+
+REFERENCES:
+A. UFGA-27393, dated 31 March 1967
+B. UFGA-27538, dated 11 May 1967
+C. UFGA-27670, dated 29 May 1967
+
+1. Headquarters concurs in JMAVE's proposal to terminate payments to the Trustee for dependents of Subject of references provided there is no question that Subject of the DOCTRINA ARTICLE forwarded in reference A and Subject of references are identical. Presumably AMTIN-1 has personal knowledge of this case and can explain the discrepancy between the spelling of the name as KIBO in the press clipping and KIM which according to available records is Subject's actual patronymic.
+
+2. Since the Trustee will be advised that the case will be reviewed in the event the parents come to the United States, it is suggested that copies of any additional information AMTIN-1 may have on file, and any identifiable traces on the father, be forwarded for inclusion in Subject's 201 file.
+
+Ellen V. MARGANY
+
+Distribution:
+Orig and 2 - COS, JMAAVE
+
+UFOF-6550
+
+SECRET
+
+19-124-35/B
+201-295852
+
+6 June 1967
+
+WH/COG/CICS/NANCYE GRATZ:mjr
+
+7447
+
+Distribution:
+
+1 - RID
+1 - WH/REG/C WH/COG/NO
+1 - WH/COG/CICS
+1 - WH/COG/NO
+1 - Originator
+
+AC/WH/COG
+
+Earl J. Williamson

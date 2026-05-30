@@ -1,0 +1,26 @@
+# JFK-Files-Part-1_page_35229.png
+
+Convert to MarkdownFRENTE REVOLUCIONARIO DEMOCRATICO
+
+Conoiliación Bancaria
+
+En 31 de Julio de 1960
+
+Saldo Según Estado del Banco $ 3,548.48
+
+Meno: Cheques Girados y no Cobrados:
+
+| Check | Fecha | A Nombre De | Amount |
+| :--- | :--- | :--- | :--- |
+| 47 | Jul 26 | Manuel A. Varona | $ 931.49 |
+| 53 | Jul 26 | A. Sanchez Arango | 750.00 |
+| 57 | Jul 26 | Envío F. Vidal Santiago | 300.00 |
+| 61 | Jul 27 | Manuel Artíme | 150.00 |
+| 62 | Jul 27 | Manuel A. Varona | 150.00 |
+| 63 | Jul 27 | Juan Rodríguez Pintado | 250.00 |
+| 65 | Jul 27 | Sra. de F. Vidal Santiago | 200.00 |
+| 68 | Jul 28 | Roberto Fernández | 120.00 |
+| 70 | Jul 31 | Pasosio Linera | 146.00 |
+| | | | **2,997.49** |
+
+Saldo en n/l Conciliado Jul 31/60 $ 550.99

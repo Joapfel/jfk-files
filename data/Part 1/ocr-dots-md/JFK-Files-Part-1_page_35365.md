@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_35365.png
+
+Convert to MarkdownAPRIL 17, 1961
+
+DATE
+
+CUST NO.
+
+TOTAL
+
+Duo. 1
+" 1
+" 1
+" 1
+" 1
+" 1
+" 1
+" 1
+" 1
+" 1
+" 1
+" 1
+" 1
+
+Manuel A. de Verona 7143 $ 350.00
+Antonio Naccio 7144 350.00
+Sergio Carbó 7145 350.00
+Raúl Vélez Tírez 7146 350.00
+Francisco Carrillo 7147 350.00
+José Fernández Rueda 7148 350.00
+César Baró 7149 350.00
+Caicdo Soto 7150 350.00
+Carlos Rodríguez 7151 350.00
+Miguel Cobo 7152 350.00
+Hlynto Díaz 7153 350.00
+Ricardo Louriá 7154 350.00
+Enrique Huertas 7155 350.00
+
+TOTAL:- $ 4,550.00
+
+ml.

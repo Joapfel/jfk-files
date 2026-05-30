@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_35472.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+who would know LILIANA. TOMKU affirmed Osiel was previously with MINUTO Cuitierrez in the second Front of Escanabray. Osiel was under asylum in the Brazilian embassy (sic, Argentine Embassy?), when TONKU gained political asylum. When Osiel finally received his safe conduct from the embassy, he went to Puerto Rico and, TOMKU postulates that Osiel is now again with MENOTO in either the United States or Puerto Rico.
+
+6. Two snap shots (to be returned) were provided by TOMKU of himself and six other individuals who were in asylum at the same time. He identified these, in the photograph in which Monsignor Eduardo DOZA Masvidal is seated, as, from left to right: Manuel VILLAMANAN, Oliverio TOMKU, Nils DIAZ (believed to be in US), Publio RUIZ (US), Jorge Del VALLE (Mex?), and Osiel GONZALEZ (US or Puerto Rico?).
+
+7. Upon completing the debriefing, Stroud and TOMKU "exchanged small talk" for a while until TOMKU finally stated that he still wished there was something more he could do to help free Cuba, and asked "What do you think I should do?" Stroud replied that no person could really make that type of decision for another individual, and countered by asking TOMKU what alternatives he had in mind, other than remaining in the US Army as a career military officer.
+
+8. TOMKU replied that, of course, he was once an agriculturalist, but that there were few job opportunities in which he could apply his past experience. His sister had also asked him if he felt he and his family would want to live with her in Spain or Mexico, but he didn't think too much of this idea. He then stated that he had been asked by Manuel ARTIME to take a job as an instructor. Without indicating any association of even awareness of ARTIME's activities, or of ARTIME's contact with TOMKU (as indicated in TOMKU's 201), TOMKU was asked what he thought of ARTIME's proposition. TOMKU stated that he would no longer follow any man as a individual or as a leader, because a man's ideals, outlook, and objectives change with time. For example, the people of Cuba followed Fidel because of the ideals he advocated. When Fidel took over, his accomplishments gradually became quite different from the ideals he had espoused. TOMKU continued by saying he would "no longer follow a man. One could only trust his ideals or an organization which followed those ideals, since a good organization would be less likely of being controlled by a single man." When asked for an example of the type of organization he had in mind, TOMKU replied he was most favorably inclined towards the ideals and goals of the JURE. (The JURE or JRC is an organization created by Manolo RAY Rivero around a nucleus of former 26 July Movement leaders. See memo and attachment dated 23 July 1963 from Johns Hugh Crimmins, Coordinator of Cuban Affairs, ARA, Department of State in TOMKU's 201-283206.)
+
+SECRET
+
+<table><tr><td>July 1</td></tr><tr><td>included from automatically downgrading and declassification.</td></tr></table>
+
+TOMKU

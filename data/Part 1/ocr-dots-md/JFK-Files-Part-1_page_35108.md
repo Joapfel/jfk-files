@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_35108.png
+
+Convert to MarkdownCUBAN DEMOCRATIC REVOLUTIONARY FRONT
+FINANCE DEPARTMENT
+GENERAL EXPENSES--
+"PAULA AND SOSA"
+
+October 1 to 31, 1960
+
+ANNEX "I-I"
+
+| | Total |
+|:---|---:|
+| **OFFICE SUPPLIES:** | $ 453.55 |
+| **MISCELLANEOUS:** | 3,624.73 |
+| | **$ 4,078.28** |
+
+**NOTE:** Due to the many payments made as "General Expenses", but as no one exceeds of $350.00 the details are remited in Spanish.
+
+amr.

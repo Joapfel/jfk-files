@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_35583.png
+
+Convert to Markdown<table><tr><td>POST OFFICE DEPARTMENT<br/>OFFICIAL BUSINESS</td><td>PREFERENCE FOR PRIVATE USE TO AVOID<br/>PAYMENT OF POSTAGE, $1.00</td></tr><tr><td colspan="2">INSTRUCTIONS- Fill in items below and complete instructions on other side, if applicable. Must be cut last ends, attach and hold firmly to back of article. Post on front of article. RETURN RECEIPT REQUESTED.</td></tr><tr><td>REGISTERED NO</td><td>NAME OF SENDER<br/>MAY BE HEADED</td></tr><tr><td>CHECK NO.</td><td>STREET AND NO OR P.O. BOX<br/>PO BOX</td></tr><tr><td>INSURED NO.</td><td>CITY, STATE, AND ZIP CODE<br/>Carol. GALLAGH F.L.A.</td></tr></table>
+
+US-18-71348-S-7
+
+<table><tbody><tr><td colspan="2">INSTRUCTIONS TO DELIVERING EMPLOYEE</td></tr><tr><td><input type="checkbox"/> Deliver ONLY to addressee</td><td><input type="checkbox"/> Show address where delivered</td></tr><tr><td colspan="2">(Additional charges required for these services)</td></tr><tr><td colspan="2"><strong>RECEIPT</strong></td></tr><tr><td colspan="2">Received the numbered article described on other side.</td></tr><tr><td>SIGNATURE OR NAME OF ADDRESSEE (must always be filled in)<br/>Alessandra C. Carini<br/><br/>SIGNATURE OF ADDRESSEE'S AGENT, IF ANY<br/>Desireing Albertson, #56</td><td>DATE DELIVERED<br/>11/23/68</td></tr><tr><td>SHOW WHERE DELIVERED (only if requested)</td><td></td></tr></tbody></table>

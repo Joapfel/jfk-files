@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_35724.png
+
+Convert to MarkdownEYES ONLY
+
+9. **James Louis Baker**
+
+James Louis Baker served with the Agency from 2 July 1952 until 24 June 1972, when his contract was allowed to expire. Mr. Baker, a GS-12, Operations Officer assigned to Special Operations Division/DDP, was in Saigon, South Vietnam, from April 1968 until 24 July 1971, when he was returned to Headquarters because of serious marital and related medical problems involving his wife. Divorce proceedings continued through early 1972, and his case has been monitored by the Office of Personnel. Subject was referred to McCord Associates by the Office of Personnel, but he acquired a position with the Bureau of Narcotics and Dangerous Drugs, to be effective as of 26 June 1972. His application may possibly be on file at McCord Associates.
+
+F. **OTHER CIA CONNECTIONS**
+
+1. **Robert Foster Bennett**
+
+Robert Foster Bennett, son of U. S. Senator Wallace Bennett of Utah, is Director and Executive Vice-President of Robert R. Mullen and Company, which has been utilized by the Agency for commercial cover purposes. Mr. Bennett has been interviewed by members of the news media because of intense interest in Mr. Everette Howard Hunt, Jr., a former Agency Staff Employee working for the same firm. A Covert Security Approval was issued on 19 March 1971 for Mr. Bennett's use in providing cover for an Agency overseas asset. The Executive Director-Comptroller and the Director of Central Intelligence were advised at the time of the approval.
+
+EYES ONLY
+
+8
+
+SECRET

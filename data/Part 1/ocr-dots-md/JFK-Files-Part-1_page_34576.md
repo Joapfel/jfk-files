@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_34576.png
+
+Convert to MarkdownTOP SECRET
+EYES ONLY
+
+CENTRAL INTELLIGENCE AGENCY
+
+WASHINGTON 20 A. C.
+
+OFFICE OF DEPUTY DIRECTOR OF CENTRAL INTELLIGENCE
+
+12 February 1964
+
+MEMORANDUM FOR: United States Intelligence Board Members
+
+SUBJECTS: Yuri Ivanovich NOSEMKO
+
+1. This memorandum refers to the State Department release of 10 February on subject case and provides additional background as well as information on his current status.
+
+2. As a KGB staff officer, NOSEMKO is regularly assigned to the Counterintelligence Directorate of the KGB in Moscow but was included in the Soviet delegation to the Disarmament Conference as part of a cover arrangement which permitted him to carry out intelligence and security functions in Geneva on behalf of the KGB.
+
+3. NOSEMKO also attended various sessions of the Disarmament Conference held in Geneva in 1962. During the course of these sessions, NOSEMKO sought contact with officials of the U. S. Government, informed those officials that he was affiliated with the Soviet State Security apparatus and volunteered to aid the U. S. Government in detecting Soviet subversive activity directed against the U. S. Government. During the course of his contact with U. S. authorities, NOSEMKO stated that his cooperation with the U. S. Government originated with his distaste and hatred for the Soviet regime in general, with his desire to obtain revenge for the unjust death of his father, a senior official in the Soviet shipbuilding industry, and with the general admiration of the Americans with whom he had come in contact within the Soviet Union.
+
+4. In late January 1964, NOSEMKO arrived in Geneva, again masquerading as a member of the Soviet delegation to the Disarmament Conference. Subject secretly notified his CIA contacts in the United States concerning his presence in Geneva and arranged to meet with these contacts. During a series of meetings NOSEMKO provided information including documents concerning Soviet State Security activities within the USSR and abroad and a detailed account.
+
+TOP SECRET
+EYES ONLY
+
+14-00000

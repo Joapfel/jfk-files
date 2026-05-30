@@ -1,0 +1,7 @@
+# JFK-Files-Part-1_page_35342.png
+
+Convert to MarkdownI, Juan Paula Baez, Comptroller, hereby certify that the Statement and Annexes enclosed in this "PAULA AND SOSA" Report for the month of December, 1961, that shows Incomes of $396,668.74, balance in our books on December 1, 1961, $34,597.97, -- Expenses for $115,256.01, and Transferences for $275,000.00 are to my knowledge correct.-- -
+
+Miami, February 5, 1962.
+
+ml.

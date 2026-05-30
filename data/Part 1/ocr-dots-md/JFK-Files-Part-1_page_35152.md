@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_35152.png
+
+Convert to Markdown# FRATE REVOLUCIONARIC DE ONGENTICO
+DEPARTAMENTO DE FINANZAS DE MIA MI
+"FARRLA AND SOSA"
+TRANSFERENCIAS
+
+## ANEXO "I-X"
+
+### Octubre 1 al 31 de 1960
+
+| Fecha | Check No. Total | |
+|---|---|---|
+| Oct. 27 | 255 | $50,000.00 |
+
+amr.

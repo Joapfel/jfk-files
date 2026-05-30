@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_34607.png
+
+Convert to MarkdownSECRET
+
+The Secretary of State, Ambassador Thompson, and other senior officials in the Department of State were informed of our reservations about Nosenko's bona fides and our fears that he might be a dispatched KGB agent. In discussions about the possibility of Nosenko's eventual deportation, the Secretary of State expressed serious concern about the adverse reaction that such a move might have on other potential defectors.
+
+The Director of Security, State Department, was informed of the bona fides problem at an early date. We have worked closely with this office since then on the problem of evaluating the significance of Nosenko's information as it affects the security interests of the State Department.
+
+Because so much of Nosenko's information affected U.S. internal security matters for which the FBI bears primary responsibility, and because the possibility that Nosenko was a KGB plant had a direct bearing on the validity of certain FBI operations, the FBI was kept fully informed on our views about Nosenko's bona fides and our progress in interrogating and investigating him from the moment of his defection. The FBI liaison officer was told of our reservations on Nosenko's bona fides as early as 5 February 1964. The Director of the FBI and his deputy for Internal Security, William Sullivan, were kept completely up to date, and we coordinated all major

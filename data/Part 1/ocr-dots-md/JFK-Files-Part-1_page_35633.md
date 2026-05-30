@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_35633.png
+
+Convert to MarkdownPrograma racial "El lodeco y Ud."
+
+Diciembre, 1964
+
+2 Miercoles # 275 Recordando "El dia del lodeco"
+
+4 Viernes # 276 Intoxicacion por Salicilato y por Arsenico
+
+7 Lunes # 277 7 de Diciembre
+
+9 Miercoles # 278 Reciente Congreso Sanitario sobre Asia y Africa
+
+11 Viernes # 279 Sobre un reciente Plan Piloto en la lucha contra el Cancer del Pulmon
+
+14 Lunes # 280 Contendiendo alguna correspondencia
+
+16 Miercoles # 281 " " "
+
+18 Viernes # 282 Sobre la prevención del Carcer
+
+21 Lunes # 283 Vacunación en el niño I
+
+23 Miercoles # 284 " " II
+
+25 Viernes # 285 " " III
+
+28 Lunes # 286 Algunas consideración sobre Difteria
+
+30 Miercoles # 287 La Antibiótoterapia contribuye a disminuir las enfermedades por Rickettesias

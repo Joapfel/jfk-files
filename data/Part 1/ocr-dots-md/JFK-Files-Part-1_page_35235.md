@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_35235.png
+
+Convert to Markdown14-0000
+
+TRANSLATION
+
+F R D
+
+DEPARTMENT OF FINANCES
+
+MIAMI
+
+REPORT AUGUST 1960

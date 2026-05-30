@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_34936.png
+
+Convert to MarkdownSeptiembre 21, 1967
+
+Sr. Juan Paula
+1720 S. W. 97 Place
+Miami, Florida 33165
+
+Querido Paula:
+
+De acuerdo con nuestra conversación telefonica con la presente
+te envío una fotocopia de la carta que en Agosto 17 ppdo. nos
+escribio la Sra. Maria Cernuda.
+
+APB:cpa

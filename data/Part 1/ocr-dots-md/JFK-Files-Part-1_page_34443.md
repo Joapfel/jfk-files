@@ -1,0 +1,210 @@
+# JFK-Files-Part-1_page_34443.png
+
+Convert to MarkdownDepartment of Justice
+Washington 20530
+
+October 20, 1963
+
+Mr. Richard Helms
+Director
+Central Intelligence Agency
+Washington, D. C. 20505
+
+Dear Mr. Helms:
+
+Re: Yuriy Ivanovich Nosenko
+(ER 69-5003/1)
+
+Reference is made to your letter dated October 9, 1969, concerning the above case, in which you urge the concurrence of the Attorney General in your proposal to have the above-named alien admitted for permanent residence in the United States in accordance with the provisions of Section 7 of the Central Intelligence Act of 1949, as amended.
+
+The Commissioner of Immigration and Naturalization has informed me that on the basis of the records of his Service and the information furnished by you, and in the absence of any other evidence adverse to the alien, he concurs in your proposal that the alien be permitted to enter the United States for permanent residence under the authority of the foregoing statute.
+
+Upon the basis of all the evidence received for consideration and your statement of recommendation and approval which carries with it your determination that the entry of the individual concerned is in the interest of national security and in the furtherance of the national intelligence mission, I concur in your recommendation that the admission for permanent residence of the subject alien be authorized under the provisions of Section 7 of the Central Intelligence Agency Act of 1949, as amended.
+
+SECRET
+
+<table><tr><td>Classified from autorecognized</td></tr><tr><td>Transmitting and</td></tr><tr><td>Classification</td></tr></table>
+
+Assistant Attorney General
+INTERNAL SECURITY DIVISION
+
+SECRECY
+CONFIDENTIAL
+REMITTING AND
+ASSIGNING TO THE
+CLASSIFICATION
+
+J. Walter Grumley
+Assistant Attorney General
+
+SHEETUITE
+CLASSIFIED FROM AUTORECognIZED
+BY:
+ASSIGNING AND
+CLASSIFICATING
+SECRET
+CONFIDENTIAL
+ORIGINAL
+FOR THE
+ATTORNEY GENERAL
+TO BE DELIVERED IN whole or in part.
+REMIT IT OR DISPOSE OF IT AS IS
+THE ORDER OF THE UNITED STATES
+GOVERNMENT.
+DATE:
+OCTOBER
+20,
+1963
+SUBJECT
+OF
+SHEETUITE
+CLASSIFIED
+FROM
+AUTORECOGNIZED
+BY:
+THE
+ATTORNEY GENERAL
+FOR THE
+CLASSIFICATION
+AS
+APPROVED
+FOR ISSUE
+AND
+DISSEMINATION
+PURSUANT
+TO
+ORDER
+OF
+THE
+GOVERNOR
+OF
+TEXAS
+OCTOBER
+20,
+1963
+BY
+THE
+ATTORNEY
+GENERAL
+TO BE DELIVERED IN WHOLE OR IN PART
+AS IS
+THE ORDER
+OF
+THE
+GOVERNOR
+OF
+TEXAS
+OCTOBER
+20,
+1963
+BY
+THE
+ATTORNEY
+GENERAL
+TO BE DELIVERED IN whole OR IN PART
+AS IS
+THE ORDER
+OF
+THE
+GOVERNOR
+OF
+TEXAS
+OCTOBER
+20,
+1963
+BY
+THE
+ATTORNEY
+GENERAL
+TO BE DELIVERED IN whole OR IN PART
+AS IS
+THE ORDER
+OF
+THE
+GOVERNOR
+OF
+TEXAS
+OCTOBER
+20,
+1963
+BY
+THE
+ATTORNEY
+GENERAL
+TO BE DELIVERED IN WHOLE OR IN PART
+AS IS
+THE ORDER
+OF
+THE
+GOVERNOR
+OF
+TEXAS
+OCTOBER
+20,
+1963
+BY
+THE
+ATTORNEY
+GENERAL
+TO BE DELIVERED IN WHOLE OR IN PART
+AS IS
+THE ORDER
+OF
+THE
+GOVERNOR
+OF
+TEXAS
+OCTOBER
+20,
+1963
+BY
+THE
+ATTORNEY
+GENERAL
+TO BE DELIVERED IN WHOLE OR IN PART
+AS IS
+THE ORDER
+OF
+THE
+GOVERNOR
+OF
+TEXAS
+OCTOBER
+20,
+1963
+BY
+THE
+ATTORNEY
+GENERAL
+TO BE DELIVERED IN WHOLE OR IN PART
+AS IS
+THE ORDER
+OF
+THE
+GOVERNOR
+OF
+TEXAS
+OCTOBER
+20,
+1963
+BY
+THE
+ATTORNEY
+GENERAL
+TO BE DELIVERED IN WHOLE OR IN PART
+AS IS
+THE ORDER
+OF
+THE
+GOVERNOR
+OF
+TEXAS
+OCTOBER
+20,
+1963
+BY
+THE
+ATTORNEY
+GENERAL
+TO BE DELIVERED IN WHOLE OR IN PART
+AS

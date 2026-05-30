@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_35079.png
+
+Convert to Markdown# COSTOS RELATIVOS AL CHEQUE No. 419
+FOR $6,937.52 - "PAULA AND SOSA"
+
+## Partida No. 10
+
+### Manutención y Albergue:
+(Ceccasional support to cuban refugees)
+
+Joaquín Rodríguez $ 20.00
+José Fellón 20.00
+Marta García Rubio 50.00
+Ramón Rodríguez 20.00
+Héctor Varona 20.00
+Wamer Hablutzel 25.00
+Raúl Vázquez 20.00
+Ernesto Peinó 20.00
+Nildo Batista 20.00
+Eddy González 20.00
+Reynaldo Lazo 20.00
+Osvaldo Rodríguez 20.00
+Eduardo Herrera 20.00
+Francisco García 20.00
+Renta (Hotel) 16.35
+Renta (Hotel) 17.41
+Renta (Hotel) 16.77
+Renta (Hotel) 4.16
+Renta (Hotel) 12.40
+Manuel Avila 20.00
+$ 402.09
+
+Gastos de Transporte (Gas and Oil) 11.23
+
+### Varios (Miscellaneous)
+Teléfono $ 12.02
+Otros 23.10
+35.12
+$ 448.44
+
+amr.

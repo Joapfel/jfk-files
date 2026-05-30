@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_35556.png
+
+Convert to MarkdownMEMORANDUM
+
+March 1, 1965
+
+BY LANDFORD & COMPANY LEGAL ASSIST. ENDED INVOICES
+
+As required from WJML called me to pay as follows P.M.
+and that part of bill from Invoice No. 1475 of March 1st
+for $200.00, the following invoices are still unpaid:
+
+Invoice No. 10.10 of November 30, 1965 for $807.50
+Invoice No. 1415 of January 2, 1965 for $1,216.25
+Invoice No. 1-50 of February 1, 1965 for $1,215.00
+
+I am sure that he would appreciate very much if some
+of his bills were due for paying these outstanding invoices.
+
+ROBERT WELLS CLARK, JR.

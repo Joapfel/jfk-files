@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_35109.png
+
+Convert to MarkdownSUSAN DEMOCRATIC REVOLUTIONARY FRONT
+
+FINANCE DEPARTMENT
+COMUNICATIONS
+"PAULA AND SOSA"
+
+October 1 to 31, 1960
+
+ANNEX "I-J"
+
+| Date | Check No. | Total |
+|---|---|---|
+| **MAIL:** | | |
+| Oct. 6 | Stamps | $ 17.56 |
+| Oct. 18 | P.O. Box | 195 10.50 |
+| Oct. 18 | P.O. Box | 196 7.50 |
+| Oct. 26 | Stamps and P.O.Box | 251 7.57 |
+| Oct. 27 | Stamps | 256 11.97 |
+| | | $ 55.10 |
+
+TELEPHONE:
+
+| Oct. 8 | Telephone - Fort Lauderdale | 121 | $ 6.42 |
+|---|---|---|---|
+| Oct. 14 | Long distance - FR-7-3389 | 168 | 60.06 |
+| Oct. 18 | Telephone - FR-3-1717 | 189 | 115.48 |
+| Oct. 12 | Telephone - H.R.D. | 136 | 9.30 |
+| Oct. 27 | Telephone - FR-7-1103 | 256 | 81.95 |
+| Oct. 27 | Telephone - NE-4-4416 | 256 | 14.41 |
+| Oct. 27 | Telephone - FR-3-3083 | 256 | 63.80 |
+| | | | $ 351.42 |
+
+TELEGRAPH:
+
+| Oct. 14 | Cables to the presidents of<br>latin american countries | 164 | $ 490.54 |
+|---|---|---|---|
+| Oct. 18 | Cables | 195 | 23.53 |
+| Oct. 18 | " | 195 | 35.20 |
+| Oct. 26 | " | 251 | 32.60 |
+| | | | $ 581.87 |
+| | | | $ 988.39 |
+
+amr.

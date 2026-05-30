@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_35452.png
+
+Convert to Markdown2.
+
+that STOCKWOOD not AMASH/1 and UNSHAPU/7, presumably in alias but I do not know the details. It was also apparent by the time AMASH/1 left that he knew UNSHAPU/5 was working for KUBARK and we know that UNSHAPU/7 was aware to some extent of AMASH/1's plans (UNSHAPU/9 had MARGEN been recruited by KUBARK at that time). It was agreed that AMASH/1 would use the address of UNSHAPU/13's parents for a/w letters to KUBARK (UNSHAPU/13 is wife of UNSHAPU/9).
+
+AMASH/1 next arrived in Paris in late November or early December 1968. AM/HP/1 STOCKWOOD and OTRICH (tiny from Headquarters) met with him in Paris (this time in a safe house of the Station). AMASH/1 left for PERUEN from Madrid on 20 February 1965. During this stay in Paris AMASH/1 met the following KUBARK staffers and agents:
+
+STOCKWOOD, CLOAHL, RODANER
+AM/HP/10, UNSHAPU/9, UNSHAPU/5, UNSHAPU/13
+
+You will recall that in December 1968 UNSHAPU/5 had a sévère breakdown and AMASH/1 played an important part in convincing UNSHAPU/5 that he should agree to hospitalisation. It was in this connection that CLOAHL and RODANER met AMASH/1. CLOAHL subsequently met with AMASH/1 two or three times to receive reports for STOCKWOOD. These meetings were brief meetings or in the home of UNSHAPU/5.
+
+During this stay, AMASH/1 traveled to Madrid at least once to meet with AM/HP/1 and AMBAR/1. I am not aware of results of these meetings except that AMASH/1 was cooking the physical instruments to carry out his plan to eliminate ANTHONY.
+
+There was no additional contact with AMASH/1 in Paris subsequent to February 1965 but the station (CLOAHL and PERLERS) did have subsequent contact with UNSHAPU/5, UNSHAPU/9, AMASH/2 and AMASH/3. You will recall that it was AMASH/3 who made the "joking" pitch to MIRLES on 6 May 1965. AMASH/2 and MIRLS/3 were both aware of AMASH/1 plans.

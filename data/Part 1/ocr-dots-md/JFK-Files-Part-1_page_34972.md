@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_34972.png
+
+Convert to MarkdownREPUBLICA LE CUYA
+MINISTKO DE JUSTCIA
+SECCION CENTRAL DE JUSTICIA
+
+DR. JUAN GUZMÁN CABALITO EDMUNO, Jefe del Negeriado de Asuntos Lexico, Jurídicos de la Komisía de Legalizaciones de Forma de Funcionarios Judiciales.
+
+CERTIFICADO que es Trafficante, al percar, con las:LA Firma del Puclicario Judicario que constat se. yORDENADA por: Hacia... 20 ABR.1963_

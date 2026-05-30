@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_35184.png
+
+Convert to MarkdownSTATEMENT OF EXPENSES
+
+ANNEX "A"
+Page No.17
+
+| | Check No. | Total |
+| :--- | :---: | ---: |
+| Pedro Juárez Diaz | Jorge L. Quesada J. | December 1377 | $ 225.00 |
+| Pedro Valdez Diaz | Angel R. Mujica H. | December 1378 | 275.00 |
+| Rosario Soriano | Rolando C. Sorondo Q. | December 1379 | 250.00 |
+| Raúl H. Modina | Ineido A. Cabrera C. | December 1380 | 225.00 |
+| Raúl M. Modina | Angel M. Barrios V. | December 1381 | 225.00 |
+| C.A.N.D.I.L.E.D. | | 1382 | -0- |
+| Raúl M. Modina | José R. Barrios V. | December 1383 | 250.00 |
+| José Fernández | Guillermo Fortuño | December 1384 | 250.00 |
+| Yolanda Fortuño | Candido Sierra Rey | December 1385 | 225.00 |
+| C.A.N.D.I.L.E.D. | | 1386 | -0- |
+| Antonia Benaedo | Juan A. Formoso F. | December 1387 | 250.00 |
+| Francisco Salvo | Néstor Varona F. | December 1388 | 175.00 |
+| Carlos Barreto Jr. | Benito R. González C. | December 1389 | 225.00 |
+| José乙ocita Santos | Manuel Avila Ruiz | December 1390 | 500.00 |
+| Elton M. Rodríguez | Orlando Bayona T. | December 1391 | 225.00 |
+| Germán Villavicencio | Rogelio de los Santos | December 1392 | 175.00 |
+| Alice María Ortiz | Mario A. Enriquez T. | December 1393 | 225.00 |
+| De Hóspital | Rolando Noya G. | December 1394 | 250.00 |
+| Maria Milená Garcia | Modesto C. García M. | December 1395 | 175.00 |
+| Sirella M. Arroyo | Félix Domínguez C. | December 1396 | 200.00 |
+|侧田未三 香田正纪 | Arcangel Wador | December 1397 | 225.00 |
+| Leticia Suárez | José A. Baría Rodriquez | December 1398 | 250.00 |
+| María García | Juan M. Velasco J. | December 1399 | 250.00 |
+| Brent Noorliguez | Guillermo Cancio G. | December 1400 | 225.00 |
+
+(Continues page No.15)

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_35195.png
+
+Convert to MarkdownSUB, DTD, A.C. REV. JUDGMENT FILE
+FILED
+"RISCHE AND R.M"
+EQUITY OF A RECOVETING FUND
+
+CHECK NO. 1345
+OCTOBER 16, 1960
+
+MIMEX "A-2"
+
+The "Revolving Fund" of the Comptroller office in the Military Section is created by this check, under the custody of Mr. Manuel Blanco, and it will continue being by this amount.
+
+$ 100.00
+
+ml.

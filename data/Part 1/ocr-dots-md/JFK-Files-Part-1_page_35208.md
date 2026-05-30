@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_35208.png
+
+Convert to Markdown# STUDENTS' SECTION
+
+In Attachment-6 are explained the amounts delivered to the Students' representatives in exile which collaborate with the DEMOCRATIC REVOLUTIONARY FRONT.
+
+## OFFICE SUPPLIES
+
+In Attachment-7 are listed all expenses made for office supplies.
+
+## MISCELLANEOUS
+
+In Attachment-8 the expenditures which do not come under the other titles are explained.
+
+The Fixed Fund of the Front's office was increased to the amount of $100.00 by means of check #29 of 12 July 1960. This Fixed Fund is under the custody of Ana Villarreal.
+
+Dr. Justo Carrillo was repaid the loan he made during the month of July in the amount of $1,500.00 with check #49 of 29 July 1960.
+
+There are entries paid from the Fixed Fund for taxi fares and personal courtesies which because of their amounts do not merit special attention.

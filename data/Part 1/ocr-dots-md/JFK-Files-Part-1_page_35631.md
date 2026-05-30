@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_35631.png
+
+Convert to Markdown# Programa Radial "El Medico y Usted"
+## Febrero 1965
+
+1 Lunes # 301 Fiebre Escarlatina
+3 Miércoles # 302 Algunas consideraciones sobre Diabetes
+5 Viernes # 303 Sobre la necesidad de ir a un control de las medicinas que se expenden al publico
+8 Lunes # 304 Hepatitis Virales
+10 Miércoles # 305 Policitenia
+12 Viernes # 306 Actividades de la Organizacion Mundial de la Salud para el año 1965
+15 Lunes # 307 Fiebre Reumática o Carditis Reumática
+17 Miércoles # 308 La Conjuntivitis en el niño recién nacido
+19 Viernes # 309 Sobre un recuento informe del sumonto de los casos de Virusela y Colora en el mundo
+22 Lunes # 310 Contestando correspondencia
+24 Miércoles # 311 24 de Febrero
+26 Viernes # 312 Muertes por accidente en carretera

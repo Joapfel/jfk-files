@@ -1,0 +1,45 @@
+# JFK-Files-Part-1_page_35275.png
+
+Convert to Markdown# TRANSLATION
+
+Miami, 6 October 1960
+
+Executives
+Democratic Revolutionary Front
+
+Dear Sirs:
+
+Attached herewith we are submitting the KDET corresponding to the month of September of the current year which contains the following:
+
+Statement "I": Statement of Receipts and Expenditures
+Bank Conciliation
+
+Attachment "I-A": Assets
+
+Attachment "I-B": Propaganda
+
+Attachment "I-C": Administrative and General Expenses
+
+Attachment "I-D": Payroll
+
+Attachment "I-E": Trips
+
+Attachment "I-F": Supplies
+
+Attachment "I-G": Communications
+
+Attachment "I-H": Students' Section
+
+Attachment "I-I": Commissions or Delegations
+
+Attachment "I-J": Checks to be Justified
+Summary of Receipts and Expenditures Operations
+
+- Statement "II": Liquidation of Checks to be Justified
+
+*Public accountant
+
+CP. Juan Paula
+
+* (signed)
+CP. Mario Girbau

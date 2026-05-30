@@ -1,0 +1,34 @@
+# JFK-Files-Part-1_page_35173.png
+
+Convert to MarkdownSTATEMENT OF EXPENSES
+
+AMOUNT "AM" PER No. 6
+
+| Account No. | Description | Check No. | Total |
+|---|---|---|---|
+| 1 | Inocente P. Garcia Fonseca | 1116 | $ 225.00 |
+| 1 | José Gabriel Navas | 1117 | 175.00 |
+| 1 | Celia Maria Castellana | 1118 | 225.00 |
+| 1 | Joelad Zayas | 1119 | 225.00 |
+| 1 | Mirta Ort | 1120 | 225.00 |
+| 1 | Mirta Fort | 1121 | 225.00 |
+| 1 | Jorje Giraud | 1122 | 225.00 |
+| 1 | Adilde Gujones | 1123 | 250.00 |
+| 1 | Julia Alcalde | 1124 | 225.00 |
+| 1 | Gloria Melancon | 1125 | 175.00 |
+| 1 | C.A.H.S.L.D. | 1126 | -0- |
+| 1 | Herminda Carrera | 1127 | 175.00 |
+| 1 | Belia Fernandez | 1128 | 225.00 |
+| 1 |>José B. González N. <J | 1129 | 150.00 |
+| 1 | Selina Romero | 1130 | 225.00 |
+| 1 | Aria Diaz | 1131 | 175.00 |
+| 1 | Mireya Valles | 1132 | 250.00 |
+| 1 |>Luis A. Guerra G.<J | 1133 | 175.00 |
+| 1 | Inocente P. García Fonseca | 1134 | 225.00 |
+| 1 | Roselia Duaut | 1135 | 225.00 |
+| 1 | Argentina .Guz | 1136 | 175.00 |
+| 1 | Amado Valle | 1137 | 175.00 |
+| 1 | Gloria Rodriguez | 1138 | 175.00 |
+| 1 | Gerónimo Hernandez | 1139 | 225.00 |
+
+(Continues page No.7)

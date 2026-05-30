@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_35331.png
+
+Convert to MarkdownHE RECIBIDO de "Judicatura Cubana Democrática la canti-dad de Ciento cuarenta y siete dólares, cinco centavos importe de la asignación correspondiente al presente----mes.
+
+SON $ 147.05
+
+Miami, FEB 5 1962
+
+ORIGINAL
+
+Inés E.R. Ruig Sánchez
+
+25

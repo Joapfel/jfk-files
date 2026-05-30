@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_35112.png
+
+Convert to MarkdownCUBAN DEMOCRATIC REVOLUTIONARY FRONT
+FINANCE DEPARTMENT
+TRANSPERENCES
+"FAULA AND SOSA"
+
+October 1 to 31, 1960
+
+ANNEX "I-M"
+
+| Date | Chock No. | Total |
+|---|---|---|
+| Oct. 27 | Transference to the account "Rasco and Paula", to pay the month of November to the military dependants, that by mistake was deposited again in the account "Faula and Sosa".- See annex "I-C". | 225 | $ 50,000.00 |
+
+amr.

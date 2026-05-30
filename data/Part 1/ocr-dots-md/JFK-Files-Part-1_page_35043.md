@@ -1,0 +1,42 @@
+# JFK-Files-Part-1_page_35043.png
+
+Convert to Markdown# CUBAN DEMOCRATIC REVOLUTIONARY FRONT
+## FINANCE DEPARTMENT
+
+### ASSETS
+
+#### "PAULA AND SOSA"
+
+November 1 to 30, 1960
+
+ANNEX "I-E"
+
+| Date | Check No. | Total |
+| :--- | :--- | :--- |
+| **DEPOSITS:** | | |
+| Nov. 3 Deposit - Electricity service - 1700 Biscayne Blvd. | 491 | $ 150.00 |
+| Nov. 3 Deposit - Telephone service - 1714 Biscayne Blvd. | 516 | 600.00 |
+| Nov. 4 Revolving fund - Social Work - J.Riera | 533 | 1,000.00 |
+| Nov. 7 Deposit - Telephone service - 1700 Biscayne Blvd. | 541 | 900.00 |
+| Nov. 8 Deposit - Telephone service - Comptroller Department | 570 | 50.00 |
+| Nov. 9 Deposit - Water service - 1714 Biscayne | 580 | 20.00 |
+| Nov. 1 Guaranty for laborers visas (R.Piñera) | 409 | 200.00 |
+| Nov. 9 Revolving fund - Comptroller Department | 582 | 500.00 |
+| Nov. 11 Deposit - Telephone service - 228 NE. 31 St. | 607 | 100.00 |
+| Nov. 21 Deposit - Electricity service - 228 NE. 31 St. | 730 | 20.00 |
+| Nov. 21 Deposit - Gas service - 1700 Biscayne | 735 | 10.00 |
+| Nov. 21 Deposit - Water service - 1700 Biscayne | 741 | 10.00 |
+| Nov. 28 Petty Cash (Mario Rodriguez) | 832 | 50.00 |
+| Nov. 30 Deposit - Telephone service - José Sosa | 849 | 300.00 |
+| | | **$ 3,910.00** |
+| Less:Reinbursment - Revolving Fund- Social Work (Check 533) | | 1,000.00 |
+| **Total of Deposits** | | **$ 2,910.00** |
+
+**OFFICE EQUIPMENT:**
+
+| Date | Description | Check No. | Total |
+| :--- | :--- | :--- | :--- |
+| Nov. 1 | 1 Underwood No. 7643983 | 421 | $ 110.00 |
+| Nov. 1 | 1 Underwood No. 7737343 | 421 | 110.00 |
+
+Continues page No. 2

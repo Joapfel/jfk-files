@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_35289.png
+
+Convert to Markdown# JUDICATURA CUBANA DE OGG:ATTICA
+
+July 31, 1962.
+
+Annex "IV"
+
+Balance on July 1, 1962. $ - o -
+Deposit (For July) 5,000.00
+July Expenses (See Annex "IV-A") 5,000.00
+Balance on July 31, 1962. $ - o -
+
+NOTE: The July 26 deposit will be considered in August Report.
+
+nn.

@@ -1,0 +1,79 @@
+# JFK-Files-Part-1_page_35004.png
+
+Convert to MarkdownGUBERNATORIAL BUDGET FRONT
+FISCAL YEAR 1964-65
+BALANCE (OVER TO REFUND)
+"Table and costs"
+
+December 1 to 31, 1960
+
+ANNEX "I-G"
+
+| Date | Check No. | Total |
+| :--- | :--- | :--- |
+| **PERMANENT:** | | |
+| Dec. 1 | 1004 | $ 300.00 |
+| Dec. 3 | 1061 | 175.00 |
+| | | --- |
+| **Total Permanent** | | **$ 475.00** |
+
+| | | |
+| :--- | :--- | :--- |
+| **OCCASIONAL:** | | |
+| Dec. 2 | R. Ferralta | 1047 |
+| Dec. 2 | A. de la Vega | 1048 |
+| Dec. 3 | Installation of B. de Condomar | 1052 |
+| Dec. 3 | Miguel Alba | 1056 |
+| Dec. 5 | F. Rodriguez | 1068 |
+| Dec. 5 | C. Naredo | 1073 |
+| Dec. 5 | T. Gamba | 1076 |
+| Dec. 5 | A. Gonzalez | 1099 |
+| Dec. 6 | R. Rodriguez | 1123 |
+| Dec. 6 | Installation of M. Blanco | 1124 |
+| Dec. 6 | N. Jimenez | 1129 |
+| Dec. 7 | R. Jaime | 1141 |
+| Dec. 7 | B. Llerena | 1142 |
+| Dec. 7 | E. Favlede | 1143 |
+| Dec. 7 | O. Clive | 1146 |
+| Dec. 7 | R. Rodriguez | 1147 |
+| Dec. 7 | L. Martinez | 1148 |
+| Dec. 7 | J. Sordo | 1149 |
+| Dec. 8 | A. Estevez | 1154 |
+| Dec. 9 | E. Mendez | 1166 |
+| Dec. 9 | J. Moralejo | 1177 |
+| Dec. 9 | A. Bernal Lopez | 1182 |
+| Dec. 9 | A. Bernal Bosca | 1183 |
+| Dec. 9 | R. Morejon | 1185 |
+| Dec. 9 | F. Rodriguez | 1187 |
+| Dec. 9 | F. Sanchez | 1190 |
+| Dec. 9 | E. A. Perez | 1191 |
+| Dec. 9 | Installation of H. Garcia and wife | 1191 |
+| Dec. 12 | C. Hardones | 1200 |
+| Dec. 12 | Elias Contreras | 1201 |
+| | | --- |
+| | | **$ 50.00** |
+| | | **50.00** |
+| | | **100.00** |
+| | | **30.00** |
+| | | **50.00** |
+| | | **50.00** |
+| | | **50.00** |
+| | | **300.00** |
+| | | **150.00** |
+| | | **50.00** |
+| | | **50.00** |
+| | | **150.00** |
+| | | **50.00** |
+| | | **50.00** |
+| | | **100.00** |
+| | | **100.00** |
+| | | **50.00** |
+| | | **300.00** |
+| | | **200.00** |
+| | | **50.00** |
+| | | **50.00** |
+| | | **50.00** |
+| | | **50.00** |
+| | | **30.00** |
+
+(Continues page No.2)

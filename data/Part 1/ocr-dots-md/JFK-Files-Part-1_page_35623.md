@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_35623.png
+
+Convert to MarkdownSECRET
+
+<table><thead><tr><th colspan="4">DISTRIBUTION VOUCHER</th></tr><tr><td>TO: Finance Officer,</td><td>FROM:</td><td>DATE:</td><td>27 May 64</td></tr></thead><tbody><tr><td colspan="3"></td><td>Bruce MacMaster</td></tr><tr><td>AMOUNT REQUESTED</td><td>ADVANCE TO BE ACCOUNTED FOR ON RECEIPT</td><td>DATE</td><td>27 June 1964</td></tr><tr><td>$ 2,632.50</td><td>XXX</td><td></td><td></td></tr><tr><td colspan="4">PLEASE AGREE TO THE FOLLOWING FIVE POINT ACCOUNT FOR THIS ADVANCE BY SUBMITTING A CHECK IN THAT AMOUNT WITHIN THREE DAYS OF RECEIPT AND REFUND IF THE BALANCE IS NOT PAID AS PROMISED IN THE DISBURSMENT REFERRAL FORM</td></tr><tr><td colspan="2"><b>Cashier's Check requested.</b></td><td colspan="2"><b>Signature:</b> Bruce MacMaster</td></tr><tr><td>DATE</td><td>RECEIPT NO.</td><td>DESCRIPTION</td><td>ALLOTMENT NO.</td><td>AMOUNT</td></tr><tr><td>27 MAY 1964<br/>May</td><td></td><td>WKUL Station Program: Made County Medical Society (Radio Americas)<br/>1-31 May 1964 - Auth: CGB</td><td>TOTAL</td><td>2,632.50</td></tr><tr><td colspan="5">PLEASE ATTACH RECEIPT AS FOLLOW'S (Give reason)</td></tr><tr><td colspan="5">Cashier's Check requested. Make payable to: Radio New York Worldwide</td></tr><tr><td colspan="4"><b>DISCLOSURE</b><br/>I CERTIFY THAT THE DISBURSEMENTS ITEMIZED ABOVE ARE NECESSARILY DATED BY THE PRODUCT OF OFFICIAL BUSINESS OF A CONFIDENTIAL SOURCE, THAT I HAVE NOT SEEN NOR WILL I BE, RELEVANT TO THE EVENT FROM ANY OTHER SOURCE AND THAT THIS CLAIM AND ATTACHMENTS ARE TRUE AND CORRECT IN ALL RESPECTS</td></tr><tr><td>APPROVED</td><td>DATE</td><td>ALLLOTMENT NUMBER</td><td>DATE</td><td>SIGNATURE</td></tr><tr><td></td><td>27 May 64</td><td></td><td>27 May 64</td><td>Theodore G. Shacklay</td></tr><tr><td>RECEIPT</td><td></td><td>PLEASE ACKNOWLEDGE RECEIPT OF THE FUNDS REQUESTED ABOVE.</td><td></td><td>Bruce MacMaster</td></tr><tr><td colspan="3"></td><td><b>STATUS OF THE FINANCE OFFICER IS:</b></td><td><b>DATE:</b> June 1, 1964 19</td></tr><tr><td colspan="3"></td><td><b>PREFERRED BY</b></td><td><b>DOLLAR VALUE</b></td></tr><tr><td colspan="5" rowspan="3">Received from<br/>Two thousand six hundred thirty two - 50/100 Dollars<br/>WKUL Station Program (Made County Medical Society)<br/>Radio Americas - 1-31 May 1964</td></tr><tr><td colspan="3"></td><td><b>POSTED BY</b></td></tr><tr><td colspan="3"></td><td></td></tr><tr><td colspan="3"></td><td><b>PICKUP LOCATION</b></td><td></td></tr><tr><td colspan="3"></td><td><b>IF CREDIT OK</b></td><td></td></tr></tbody></table>
+
+(1-3) 16-491
+20 800-022
+
+$ 2,632.50
+R.
+
+<table><tr><td>OK CREDIT INTEREST</td></tr></table>
+
+<table><tr><td>~~$~~ 2,632.50</td><td>R</td></tr></table>

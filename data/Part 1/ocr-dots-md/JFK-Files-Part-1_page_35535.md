@@ -1,0 +1,44 @@
+# JFK-Files-Part-1_page_35535.png
+
+Convert to MarkdownSECOND REQUEST
+BERNARD L. KAPPALMAN
+
+CERTIFIED PUBLIC ACCOUNTANT
+800 FIFTH AVENUE
+NEW YORK 36, N.Y.
+LONG Island 2-1148
+
+* DADE COUNTY MEDICAL SOCIETY
+Radio Americas
+* 101 Madeira
+Coral Gables, Florida
+
+GENTLEMEN: In connection with our audit of the records of
+
+RADIO NEW YORK WORLDWIDE - WRUL
+
+their account with you shows a balance of $ 1,923.75 as December 31, 1964.
+
+Kindly compare this balance with your records and if correct please so state, but if not correct, state the amount due according to your records and please explain on the reverse side. If any portion of the amount is represented by notes given as additional security for the account, please show each note separately.
+
+This request for confirmation is merely for the purpose of verifying your account. Please furnish the information as prompt as possible. An addressed envelope is enclosed for your convenience.
+
+The balance of $
+by our statement on the mentioned above is correct.
+
+THE FIRST NATIONAL BANK OF MIAMI NO. 389049
+
+MANUFACTURER 2/3/65
+
+63-58
+631
+
+PAY TO THE ORDER OF RADIO NEW YORK WORLDWIDE $3,198.75
+
+FIRST NATIONAL BANK OF NEW YORK N.Y.
+
+CASHIER'S CHECK
+
+:0631-0058: 1000-50 1-0-
+
+B0631-0058.png

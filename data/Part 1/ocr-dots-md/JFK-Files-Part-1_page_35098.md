@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_35098.png
+
+Convert to MarkdownCUBAN DEMOCRATIC REVOLUTIONARY FRONT
+FINANCE DEPARTMENT
+
+OTHER INCOMES
+
+"PAULA AND SCSA"
+
+October 1 to 31, 1960
+
+ANNEX "I-C"
+
+Oct. 17: Reinbursement - Francisco Carrillo: $ 300.00 Amount given in excess for the payment of the payroll
+
+Oct. 19: Reinbursement - Juan Paula: 75.89 Amount not used on check No. 55, account 19314 "Banco del Comercio, S.A." Mexico D.F., for his expenses in a trip to Mexico.
+
+Oct. 19: Reinbursement - Ana Tomeu: 250.00 Her salary of September
+
+Oct. 21: Enrique Llaca: 11.50 Amount not used on check 228, Sept. 8, "Rasco and Paula", for a trip to Colombia.
+
+Oct. 26: Roberto Fernández: 61.92 Amount in excess on check No. 91, August 8, ("Rasco and Paula") for the Students Section.
+
+Oct. 27: Paula and Sosa: 50,000.00 A deposit that must have been done in the account "Rasco and Paula", on check No. 255, and that by mistake, was redeposited in this account.
+
+$ 50,702.31
+
+amr.

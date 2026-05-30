@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_35158.png
+
+Convert to MarkdownFRENTE REVOLUCIONARIO DEMOCRATICO
+DEPARTAMENTO DE FINANZAS DE MIAMI
+"FAULA AND SOSA"
+DISTRIBUCION POR CONCEPTO DE "CHECKS A JUSTIFICAR
+
+Octubre 1 al 31 de 1960
+
+<table><thead><tr><th>Fecha</th><th>Detalle</th><th>Check Nro.-</th><th>Total</th><th>-Varios-</th><th>Comisiones</th><th>Delegaciones</th><th>-Viajes-</th><th>Directorio Estudiantil</th><th>Propaganda</th></tr></thead><tbody><tr><td>Cot. 4</td><td>Angel de Varona-Casa Ejecutivo</td><td>1</td><td>$5,000.00</td><td>$5,000.00</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Cot. 7</td><td>Joaquín Sanjeris-Com. Información e Inteligencia</td><td>109</td><td>5,916.00</td><td></td><td>$ 5,916.00</td><td></td><td></td><td></td><td></td></tr><tr><td>Cot. 7</td><td>Olga Cabo-Delegación Colombia</td><td>112</td><td>1,000.00</td><td></td><td></td><td>$ 1,000.00</td><td></td><td></td><td></td></tr><tr><td>Cot. 8</td><td>Abel Nestre-Com. Propaganda</td><td>122</td><td>700.00</td><td></td><td>700.00</td><td></td><td></td><td></td><td></td></tr><tr><td>Cot. 11</td><td>Ricardo Sardina-Viaje a N.Y.</td><td>125</td><td>238.49</td><td></td><td></td><td></td><td>$ 238.49</td><td></td><td></td></tr><tr><td>Cot. 11</td><td>J.I.Rasco-Viaje América Central</td><td>129</td><td>2,485.30</td><td></td><td></td><td></td><td>2,485.30</td><td></td><td></td></tr><tr><td>Cot. 14</td><td>Tulio Díaz-Direc. Estudiantil</td><td>169</td><td>250.00</td><td></td><td></td><td></td><td></td><td>$ 250.00</td><td></td></tr><tr><td>Cot. 17</td><td>Bartolomé Bestard-Com. Transporte</td><td>177</td><td>6,000.00</td><td></td><td>6,000.00</td><td></td><td></td><td></td><td></td></tr><tr><td>Cot. 18</td><td>Abel Nestre-Com. Propaganda</td><td>194</td><td>20,000.00</td><td></td><td>20,000.00</td><td></td><td></td><td></td><td></td></tr><tr><td>Cot. 18</td><td>Raúl Soutary-Com. Propaganda</td><td>197</td><td>1,000.00</td><td></td><td>1,000.00</td><td></td><td></td><td></td><td></td></tr><tr><td>Cot. 18</td><td>Antonio Collada-Viaje a N.Y.</td><td>204</td><td>584.58</td><

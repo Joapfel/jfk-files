@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_34535.png
+
+Convert to Markdown<table><tr><td>6. Reason for going to the U.S.S.R.</td></tr><tr><td>Note: Person accompanying for a transit visa through the U.S.S.R. must have an exit transit visa of the same country which or through the border station, if any, to be issued upon leave of absence from the U.S.S.R.</td></tr><tr><td>7. If minors under 16 years of age are accompanying you, indicate the surname, name and patronymic of each child</td></tr><tr><td>8. Write on this form: The USSR, before: ( ), indicate when, where and purpose of stay)</td></tr><tr><td>9. Surnames, names, patronymics and addresses of close relatives in the U.S.S.R.</td></tr><tr><td>10. Your permanent address</td></tr><tr><td>Date<br/>(day, month, year)<br/>Signature</td></tr></table>
+
+DOCUMENTS
+
+Visas
+
+To enter and leave
+the U.S.S.R., a for-
+eign tourist must
+have a valid national
+passport and Soviet
+entry and exit visas.
+It should not take
+more than a week to receive one's visa.
+
+Citizens of foreign countries are issued Soviet visas through Consulates of the U.S.S.R. in their own country. The applicant must fill in and sign an application form (see sample) and enclose three photographs of passport size, as well as a copy of the Intourist or In-tourist contractor firm voucher to the effect that the applicant has paid the full cost of the tour. The tourist need not apply to the Soviet Consulate in person, as the tourist firm will take care of the matter.
+
+Citizens of Bulgaria, Hungary, the German Democrat- ic Republic, the Democratic Republic of Viet-Nam, the Chinese People's Republic, the Korean People's Demo- cratic Republic, the People's Republic of Mongolia, Po- land, Romania and the Czechoslovak Republic have the right, according to a reciprocal agreement, to enter and leave the Soviet Union without applying for Soviet visas, on the basis of their national passports alone.

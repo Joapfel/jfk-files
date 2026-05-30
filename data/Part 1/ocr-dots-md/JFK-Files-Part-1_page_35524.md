@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_35524.png
+
+Convert to Markdown9 April
+
+One thousand eighty-three and 00100 Dollars
+
+Cashier's Check #393105 for Invoice #65-4-2 for "El Medico y Usted" on Radio Americas, April 65.
+
+$1,083.00
+
+Robert WILKENSON

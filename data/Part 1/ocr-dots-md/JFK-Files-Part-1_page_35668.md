@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_35668.png
+
+Convert to Markdown14-0000
+
+Cortas recibidas para el Programa "EL MUNICIPIO Y JUSTicia"
+
+Agosto 2, 1964 Corozal, Puerto Rico
+Agosto 11, 1964 Laiquintia, Venezuela
+Agosto 12, 1964 Corozal, Puerto Rico
+Agosto 13, 1964 Salcedo, Republica Dominicana
+Agosto 14, 1964 San Andres Isla
+Agosto 25, 1964 Habana, Cuba
+Agosto 26, 1964 Rio Ceballo, Republica Argentina
+Agosto 31, 1964bieg de Arvila, Camagay, Cuba.

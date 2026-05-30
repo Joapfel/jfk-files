@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_34822.png
+
+Convert to MarkdownTHE WHITE HOUSE
+WASHINGTON
+
+CONFIDENTIAL
+
+September 13, 1966
+
+MEMO FOR BILL BROE
+
+Bill-
+
+I should have sent you copies of these two memorand before this.
+
+I think that they would be of some in-
+terest to you and your staff.
+
+WGBowdler
+
+Attachments
+
+CONFIDENTIAL
+
+* after some unrelated to brigade members and payment to dependent. (Can someone concern themselves with an individual? St. George and a film CAS is making her get married between the LCS & the S.R. for use against West)

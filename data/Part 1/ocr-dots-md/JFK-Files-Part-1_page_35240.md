@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_35240.png
+
+Convert to MarkdownFRENTE REVOLUCIONARIO DEMOCRATICO
+DEPARTAMENTO DE FINANZAS DE MIAMI
+
+CONCILIACION BANCARIA
+
+En Agosto 31, 1960
+
+Saldo Segun Estado del Banco $ 138.54
+
+Monee: Checks Cirodes y no Cobrados:
+
+| Fecha | Check No. | Description | Amount |
+|---|---|---|---|
+| 8-1-60 | 74 | Letter Service | $ 24.00 |
+| 8-11-60 | 125 | Burrelle's Press Clipping | 25.00 |
+| | | | 49.00 |
+
+Saldo en Nuestros Libres Cenillado en 8-31-60 $ 89.54
+
+NOTA: El check No. 74 de Letter Service por $24.00 no aparece pagado por el Banco y tenemos la duda de si fue anulado o no. En posible que haya sido anulado ya que no ebra en nuestro poder el recibe & la factura que lo ampare, en cuyo caso, el efectivo disponible en Banco ascenderia a $113.54 (Cliente tres pesos y cincuenta y cuatro centavos) en Agosto 31. Existe ademas un Fondo Fijo ascendente a $100.00 (Cien pesos).

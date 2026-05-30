@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_35378.png
+
+Convert to MarkdownPago No. 2
+
+RODRIGUEZ GONZALEZ, Roberto $ 225.00
+SERRANO CAMILO, Félix T. 450.00
+COPO GRANDA, Edgar 225.00
+TEJERA CUTLEREZ, José M. 225.00
+VARONA ARJONA, Carlos A. 275.00
+ZAMORA GARCIA, Pedro O. 500.00
+Total:- $ 30,150.00

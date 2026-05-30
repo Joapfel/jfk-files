@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_34635.png
+
+Convert to MarkdownReceived this date from an Authorized Government Representative four Bank Cashiers Checks drawn on the following banks:
+
+* #155784 Riggs National Bank $15,000.00
+* #01-028564 Union Trust Company 15,000.00
+* #0661511 American Security & Trust 15,000.00
+* #2-442275 The National Bank of Washington 7,052.00
+
+The above amount, $52,052.00, together with the $35,000.00 advance received on 25 October 1972, constitutes full payment for back salary covering the period April 1964 to March 1969.
+
+/s/ IDEN 1
+
+/s/ IDEN 5
+
+Witness:
+
+Date: November 16, 1972.

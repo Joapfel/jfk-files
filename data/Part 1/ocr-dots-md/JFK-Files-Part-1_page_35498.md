@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_35498.png
+
+Convert to Markdown14-0000
+
+27 July 1965
+
+One thousand twelve and 5C/100 Cashier's Check #408698 for "El Medico y Unido" on Radio Americas for July 65
+
+$ 1,012.50
+
+Robert WILKENSON

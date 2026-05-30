@@ -1,0 +1,25 @@
+# JFK-Files-Part-1_page_34423.png
+
+Convert to MarkdownSECRET
+SENSITIVE
+
+-2-
+
+Subject: Apparent RIS Interest in Donald E. Thomas, Bell Laboratories
+
+phone call to Thomas was made on a pay phone. In fact, when the operator cut in for overtime, Thomas called Pavlov back at the pay phone. Thomas mentioned that he possibly might have the phone number written down somewhere.
+
+4. Soon after the phone call from Pavlov, Thomas called John McVicker of the State Department and inquired if any clearance of Pavlov's proposed trip to his home in Madison would be necessary. McVicker told Thomas that any such clearances were Pavlov's worry and that he need not be concerned about same.
+
+5. During his recent trip to the USSR, it would appear that Thomas was exposed to two incidents which possibly could have been of opposition fabrication. One involved an approach by a Soviet interpreter by the name of FNU Petrov, who took Thomas aside and asked him if he could do him a personal favor by getting him a subscription to National Geographic Magazine for which he, Petrov, would reimburse Thomas in rubles. Thomas politely refused. A MOSCOM
+
+6. The other incident involved Thomas being photographed with an attractive young female interpreter, Ludmilla Oshkina. According to Thomas, when one of the Soviets in their party was about to take a picture of him standing next to Ludmilla, another individual standing nearby was pushed out of the way apparently so that he would not be included in the photograph. In addition, Ludmilla attempted to strike an affectionate pose with Thomas for the photograph by slipping her arm through his. Thomas claims to have pushed her arm away just as the photo was being snapped.
+
+7. Assessment of Thomas: Subject strikes us as being extremely naive and unrealistic. He appears to be more apprehensive about his dealings with CIA than his dealings with Soviets. In fact, when Thomas was asked if he would mind if a tape recorder were used for debriefing, he became very nervous and expressed a fear that, if such a tape were made, perhaps the Soviets might gain access to it and use it against him in some way at a future date.
+
+Thomas had an outline in his own handwriting of the sessions of the Popov Society Meeting. When we asked for a photostat of same, he again expressed misgivings and indicated that he would prefer to have a typewritten copy prepared for us instead of a copy in his own handwriting because he was fearful that it might fall into Soviet hands.
+
+SECRET
+SENSITIVE
+
+10612

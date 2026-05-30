@@ -1,0 +1,58 @@
+# JFK-Files-Part-1_page_35648.png
+
+Convert to Markdown-1-Porque Fis... (3-15-65.-919)
+
+su solidaridad con el caso de cualquier intervinctor extranjero; en la
+Declaración de La Habana, 1940, se concluye que cualquier accion por
+parte de un estado no americano o contra de la integridad e inviolable-
+biliado del territorio, la soberanía o la independencia política de un
+estado americano, sería considerado como un acto de agresión contra
+los Estados Unidos; en la Conferencia de Rio Janeiro, 1947, se
+acordo un tratado de defensa y auxilio mutuo entre los países americanos;
+y, la Carta de Bogotá, 1948, condicionó, por su carácter intervencionista,
+la actividad política del Comunismo Internacional, y demandó doctrina to-
+taliteria, por considerarlas incompatibles con el concepto de las li-
+bertades americanas.
+
+Ninguna de esas obligaciones ha cumplido la O.E. porque cada scaber-
+des por las amenazas y difamaciones de Rusia y de Fidel Castro, quien,
+s grites, ha llamado locayos del Imperiellamo Yankee a los Presidentes
+letinosamericanos, y Ministerio de Colonia del mismo Imperiellamo, a
+la O.E., encarneciendo despectivamente.
+
+Hay intervención extranjera en Cuba, que de hecho, en una colorida de
+Rusia que, como metrópoli del Comunismo Mundial, ha amenazado a cual-
+quier país que ataque a Cuba; Nueva sp na hecho en su defensa contra el
+dominio soviético. ni seguirá ese dejo la menor ayuda, fuera de vu-
+nas palabras, a los cubanos libres pararealizar en su Patria; la sobera-
+nía de Cuba, que reside esencialmente en el cuadro libre, dejo de exis-
+tir totalmente, pues alla no hay más voluntad que la del Amo y Señor
+Fidel Castro, siente docil del Kamilm.- Es posible, si no faltó e hi-
+mocrecía, que alguna Estado Americano, decidió a la Magna Organización,
+irrافق, respecto a las sanciones contra Cuba, el principio de no in-
+terVENCIón por su respecto a la autodeterminación de los pueblos, lo
+cual esta, no en el traíder Fidel Castro, (el no es el pueblo de Cuba)
+sino en los cubanos libres que han logrado evitar del infernal Comu-
+nismo imperante en Cuba, y en los que, en la lucha, uno gineco en prios-
+nos. Y otros cuelo amenazas a presidio o muerto por sus arqueros de
+libertad.- Por tanto, cualquier Estado que no quiera cumplir sus obli-
+gaciones contrárias en virtud de la Carta Magna de la O.E., debe ser ex-
+pulsado de su seno y privado de las relaciones diplomáticas, comerciales,
+turísticas, culturales con los Estados leales.- Tal resolución es neces-
+saria para mantener la dignidad y disciplina de tan alta Corporación poli-
+ítica; pues toda asociación restringe, necesariamente, uno o más dere-
+chos de cada uno de sus miembros. en cambio de otros mayores y más pro-
+veculosos.- Y todos los americanos, desde Alaska hasta Patagonia, no
+seríanamos grandemente orgullosos de nuestra O.E., por preferir un po-
+sible sacrificio humano al de nuestra dignidad, que debe estar por enci-
+nto de toda vilenza, y que el Comunismo Internacional ha escarcelado y
+continúa encarneciendo dominiosamente con sus difamaciones y amenazas
+a la glorie de Pasaomate.
+
+El Comunismo en Cuba, que tan bello mente ha herido y continua que-
+brando a los ciudadanos de mayor cultura y de más altos ideales, no
+es un problema que incumba únicamente a los gigantes hijos de la Perla
+Antillana; no es un Managers que estalla solamente a los corajudos adalides
+del continente colombiano; el embriño turbulento de Cuba -y el de Viet-
+nam-es el conflicto entre el Comunismo Agresor y el Capitalismo con-
+tructor, conflicto que interesso a todos los hombres con en

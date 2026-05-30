@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_34634.png
+
+Convert to Markdown25 October 1972
+
+Received this date from an Authorized Government Representative three Bank Cashiers Checks drawn on the following banks:
+
+#A1 25-349 Schroder Trust Company $15,000.00
+#FE 54779 Morgan Guaranty Trust Co. 10,000.00
+#A593613 Harris Trust & Savings Bank 10,000.00
+
+This is an advance against a back salary payment covering the period April 1964 to March 1969 which was approved on 18 October 1972. I understand that this advance, $35,000.00, will be deducted from the total back salary payment covering the specified period when the finalization of this payment is made in the near future.
+
+/s/ IDEN 1
+
+/s/ IDEN 5
+
+Witness
+
+Date: October 25, 1972

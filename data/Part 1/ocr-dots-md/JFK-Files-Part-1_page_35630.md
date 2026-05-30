@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_35630.png
+
+Convert to MarkdownPrograma Radial "El Médico y Usted"
+
+Marzo, 1965
+
+1 Lunes # 313 Sarcempion
+3 Miércoles # 314 Tuberculosis del Tracto fœnino
+5 Viernes # 315 Sobre los ríos del rápido crecimiento de las ciudades
+8 Lunes # 316 Mononucleosis infecciosa
+10 Miércoles # 317 Agranulocitosis
+12 Viernes # 318 Sin agua no puede haber vida
+15 Lunes # 319 Util campaña para dar a conocer la Bronquitis Cénica
+17 Miércoles # 320 Algunas consideraciones sobre el Acma
+19 Viernes # 321 Artritis Reumatoidea
+22 Lunes # 322 Algunos corrientes sobre Tuberculosis
+24 Miércoles # 323 Colitis acida
+26 Viernes # 324 'El cera Peptíca'
+29 Lunes # 325 Glomerulo-Nefritis áruga y Síndrome Nefrotíco en el niño
+31 Miércoles # 326 Afecciones del Tiroide en el niño

@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_35334.png
+
+Convert to MarkdownHE RECIBIDO de "Judicatura Cubana Democrática la canti-
+dad de Ciente cuarenta y siete delle en cinco contados
+importe de la asignación correspondiente al presente---
+mes.
+
+SON $ 1+7.05
+
+Miami, FEB 5 1962
+
+ORIGINAL
+
+Gustavo de Ribeaux Figuerae

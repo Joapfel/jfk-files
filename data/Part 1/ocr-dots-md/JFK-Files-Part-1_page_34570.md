@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_34570.png
+
+Convert to MarkdownYuriy Ivanovich NOSENKO (Aka: Yuri NOSSENKO)
+
+30 October 1927
+
+Male
+Soviet
+
+Nicolayev, Ukraine, USSR
+Divorced
+Brown
+Blue/Gray 5ft. 11 inches
+Caucasian --

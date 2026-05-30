@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_34585.png
+
+Convert to MarkdownEMERGENCY INSTRUCTIONS
+
+Instructions and procedures are set forth below for the handling of emergency situations such as fire, the escape or attempted escape of SUBJECT, and the sudden illness or serious injury to the SUBJECT. Should such situations arise, it might be necessary to call on the Police, the Fire Department, or outside medical facilities for assistance. It is possible that in such an event representatives of the press or curiosity-seekers in the local community might be attracted to the site, thereby creating security problems with respect to the custody and protection of the SUBJECT from a publicity standpoint.
+
+In view of the above, it is therefore imperative that these instructions be thoroughly understood and memorized by all personnel assigned to the Special Security Detail on this case.
+
+FIRE
+(Main House)
+
+1. In case of fire in the Main House, the person discovering the fire should apply the nearest fire extinguisher, unless, in his judgment, the fire has reached such proportions where available equipment would be useless. Simultaneously, he should dispatch another member of the Security Detail to alert the Senior Security Agent (SSA) and the other occupants of the house. If no one is available in the immediate vicinity, the person discovering the fire should alert others in the house by shouting "FIRE".
+
+2. Upon being notified of a fire, the SSA shall be responsible for directing the fighting of the fire, protecting classified and sensitive documents and equipment on the premises, calling the local Fire Department if circumstances warrant, and evacuating personnel. Also, at the first available opportunity, the SSA should call the SAC or ASAC, or if they cannot be reached, a senior DFO Agent, and furnish him with full particulars concerning the situation and the action being taken.
+
+3. In utilizing members of the Security Detail in fighting a fire, it should be borne in mind that two guards must be maintained on the third floor at all times, so long as the SUBJECT remains confined to his quarters. If it should become necessary to remove the SUBJECT from his quarters during an emergency, a minimum of four guards should be present unless circumstances are such as to make this infeasible. In

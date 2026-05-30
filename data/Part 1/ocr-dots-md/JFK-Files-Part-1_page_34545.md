@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_34545.png
+
+Convert to Markdown12. You stated that no KGB officer was ever in contact with Oswald. How could you make such a statement if you did not read the file? You were not responsible for it, and, according to your information, you did not visit Minsk to study the Oswald case.
+
+Note: Oswald's diary clearly shows that most of the students he met were most likely not students at all. They were more likely KGB officers under cover as students.
+
+13. You stated previously that it was Officer Krupnov who wrote a request and opened the case file on Oswald, which was later sent to Minsk.
+Name other officers who participated in making the decision to open the file, who handled the file, and who sent the file to Minsk. What part did you personally play in Oswald's case while Oswald was in Moscow?
+
+14. You stated previously that the Second Chief Directorate of the KGB was not interested in Oswald because it was concerned only "with internal matters." Isn't it true that the Second Chief Directorate is the internal counterintelligence organization and is responsible for foreigners who enter the Soviet Union for any reason? Isn't it true that the tourist department of the Second Chief Directorate is responsible for foreign tourists such as Oswald? Then why wasn't the Second Chief Directorate interested in Oswald? Do you see any contradictions in your statement?
+
+15. You stated that there was no attempt made to exploit Oswald for propaganda purposes, such as Radio Moscow broadcasts, TV lectures, etc. How do you know this? Do you have any comments on the following:
+"On October 19 (1960), Lee (Oswald) was interviewed in his room at the Hotel Berlin by a correspondent of Radio Moscow, Lev Setyayev, who was ostensibly seeking his impressions as a tourist to use in propaganda broadcasts overseas," Was there an officer in the KGB by the name of Setyayev? Was this interview organized by the KGB?
+
+16. Do you have any information that Oswald might have been met in Leningrad by Intourist and then made all the arrangements to go to Moscow?

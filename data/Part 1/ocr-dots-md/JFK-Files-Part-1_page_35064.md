@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_35064.png
+
+Convert to MarkdownCURRIOL DEVELOPMENT FRONT
+FINANCE DEPARTMENT
+TRANSPARENCIES
+"FAULA AND SOSA"
+
+November 1 to 30, 1960
+
+ANNEX "I-R"
+
+| Date | Check No. | Total |
+| :--- | :---: | ---: |
+| Nov. 2 | To the account "Rasco and Paula" | 427 $84,000.00 |
+| Nov. 14 | To the account "Rasco and Paula" | 635 50,000.00 |
+| | **TOTAL** | **$134,000.00** |
+
+NOTE : These transferences have been done to the effects of increasing the account "Rasco and Paula", through which the payroll of the Social Work and the military staff. is paid.

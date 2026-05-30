@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_34770.png
+
+Convert to Markdown14-0000
+
+<table>
+    <tbody>
+        <tr>
+            <td colspan="2">CONTINUATION OF<br>DISPATCH</td>
+            <td>CLASSIFICATION<br>SECRET</td>
+            <td>DISPATCH SYMBOL AND NUMBER<sup>B</sup><br>UFGA-26878</td>
+        </tr>
+        <tr>
+            <td colspan="4">
+                b. Operational: Subject was first contacted by a JMWAVE case officer in Miami during July 1960. The last of several missions to Cuba, dating back to 9 December 1960, was the infiltration by JMWAVE on approximately 1 May 1962. Subject was arrested on 29 May 1962 and executed on 30 August 1962.<br>
+                c. Other: Subject was a friend of Manuel ARTIME prior to early 1959 when Subject joined ARTIME to form the Rural Commands. Subject resumed control with ARTIME following Subject's arrival in Miami in 1960. Re the ARTIME claim in Reference B that the mother of Subject is in bad health, there is nothing in the file regarding the mother's health, but mention is made of an aunt, Mrs. Eloisa CASTELLANO Rosales, who was in bad health due to liver trouble. According to JMWAVE traces Mrs. CASTELLANO entered the U.S.A. on 3 July 1963 (A13319405). In summary, it is noted that Subject was considered as a valuable asset during the period of his service. However, it is believed that the dependents have been well-paid according to JMWAVE policy, and there is no record of their dissatisfaction with the final settlement. It is further noted that a close and long-time association existed between Subject and Manuel ARTIME, source of the current request for financial assistance to the dependents.
+            </td>
+        </tr>
+        <tr>
+            <td colspan="4">
+                3. Jorge FUNDORA (Hero and Martyr). Reference is made to paragraph 2.B. of Reference B which is concerned with the possible increase of payment to the widow, Silvia HEREDIA. There is nothing in JMWAVE records to indicate that Subject ever worked for WOFACT. However, the original AMBUD arrangement for designation of dependents eligible for benefit payments resulted in the addition of certain non-WOFACT cases to the payment rolls. Further, a review of the original HEW questionnaire shows that Mrs. HEREDIA declared her total income to be the $175.00 a month AMBUD payment. No mention was made of additional income from the MRR. Unless Headquarters has information not available to JMWAVE, we strongly recommend no increase in payments be made.
+            </td>
+        </tr>
+        <tr>
+            <td colspan="4">
+                4. Francisco ECHEVERRIA Texier is the Subject of paragraph 2.C., Reference B. There is nothing in JMWAVE records to indicate that Subject was ever employed by WOFACT. Unless Headquarters has additional information regarding this case it is recommended that payments not be initiated to the wife.
+            </td>
+        </tr>
+        <tr>
+            <td colspan="2">FORM 53a<br>USE PREVIOUSLY CITED</td>
+            <td>CLASSIFICATION<br>SECRET</td>
+            <td>☐ CONTINUED</td>
+            <td>PAGE NO.<br>2</td>
+        </tr>
+    </tbody>
+</table>

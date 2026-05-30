@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_34541.png
+
+Convert to Markdown2. You stated previously that Marina was an obyvatel. Do you have any comments on the following: "We knew each time you had a date. We knew when you applied for your marriage license. We knew the date of your wedding." These were the words of the Komsomol secretary in Minsk when Marina was expelled from the Komsomol.
+
+3. Do you have any comments on Marina's statement when she said, "Our government (Soviet) knows every move I make." She makes this comment shortly after her expulsion from the Komsomol.
+
+4. Did you know that while in Minsk Marina belonged to a group of youths who gathered together to listen to Voice of America and BBC? Would that be enough for the KGB to have Marina in its card files? Is it possible that Marina was the KGB agent reporting on them?
+
+5. You stated that if Marina had been recruited by the KGB, you would know about it and it would be in the file. But you did not read the file. How then do you know that she was not recruited?
+
+6. You said that among Marina's relatives there was an officer of the Minsk Militia, a Lt. Colonel. Do you have any comments on Marina's revelation that her real father was a traitor and that he was shot? If her father was a traitor and he was shot, would his name be in the KGB card file? Would the name of Marina's mother be in the KGB card file as the wife of a traitor? Is it then possible that Marina's name also would be in the KGB card file somewhere?
+
+7. You stated previously that KGB had no interest in Marina prior to her meeting Oswald and that the KGB investigated her only after Oswald applied for permission to register marriage with Marina. How do you know that? Did you read a special file on Marina? Marina revealed lately that while she was living in Leningrad in 1958 or 1959, she met a diplomat from Afghanistan who lured her to his hotel room and tried to make love to her. Do you think the KGB in Leningrad would know about this diplomat and whom he lured to his hotel? Is it possible that

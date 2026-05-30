@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_35262.png
+
+Convert to MarkdownDEMOCRATIC REVOLUTIONARY FRONT
+MIAMI DEPARTMENT OF FINANCES
+
+1 to 31 August 1960
+
+ATTACHMENT "I-J"
+
+MISCELLANEOUS
+
+| Date | Check No. | Total |
+| :--- | :--- | :--- |
+| Expenses Coordination of M.R.R. in Exile | | |
+| S. Aldereguia Transfer in Curazao | | |
+| Coordination Section Expenses (Luis Bueno) | | |
+| Extension Visas (Lopez-Cubenas-Hernandez) | | |
+| Various Expenses Not Classified | | |
+| **Total Miscellaneous (Expenses)** | | |

@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_35076.png
+
+Convert to MarkdownGASTOS RELATIVOS AL CHEQUE NO. 419
+POR $6,937.52 - "PAULA AND SOSA"
+
+Partida No. 7
+
+Por la remisión a la Sra. Josefa Patterson
+a la calle 29 letra "C", No. 7016, entre -
+70 y 72, Buenavista, Mariano, por medio -
+del Sr. Freddie Goudie.
+
+$ 200.00
+
+amr.

@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_35603.png
+
+Convert to MarkdownDIVISION 68-8-2
+
+August 4, 1964
+
+Delistr L. Daugherty, M.D.
+President
+Dade County Medical Ass'n, Inc.
+1500 L.H. Fourth Avenue
+Miami, Florida 33136
+
+PASSED RL MEDIODO Y GATED
+
+Dear Sirs,
+
+The following charges are for broadcast time,
+studio rental, tapes and other expenses for the month
+of August, 1964:
+
+Radio Station Time
+28 progress @ $30.00 $700.00
+
+Studio Rental and Tapes 318.00
+
+Production and Sales Fax 203.00
+
+Progress for WNYL, New York
+Tapes, Studio time and Postage 85.00
+
+Amount Due: $1,460.50
+
+Payable to RADIO AMERICAS, INC.

@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_35220.png
+
+Convert to MarkdownDEMOCRATIC REVOLUTIONARY FRONT
+
+Communications
+
+Month of July 1960
+
+ATTACHMENT 5
+
+| Entry | Date | Check | Detail | Amount |
+|---|---|---|---|---|
+| | | | A. Villarreal - Postage Stamps | |
+| | | | A. Villarreal - Postage Stamps | |
+| | | | Franking (?) Costs (Fixed Fund) | |
+| | | | Telephone (FR 3-1717) | |
+| | | | Postage Stamps (Fixed Fund) | |
+| | | | Postage Stamps (Fixed Fund) | |
+| | | | Postage Stamps (Fixed Fund) | |
+| | | | Postage Stamps (Fixed Fund) | |
+| | | | Postage Stamps (Fixed Fund) | |
+| | | | Postage Stamps (Fixed Fund) | |
+| | | | Long Distance Calls Dr. Rasco in Mexico (Fixed Fund) | |
+| | | | Telegram (Fixed Fund) | |
+| | | | Special Franking (?) (Fixed Fund) | |
+| | | | Cables and Telegrams (Fixed Fund) | |
+| | | | Postage Stamps (Fixed Fund) | |
+| | | | Certified Correspondence (Fixed Fund) | |
+| | | | Long Distance Calls Dr. Carrillo in Mexico | |
+
+Total Communications | | | | |

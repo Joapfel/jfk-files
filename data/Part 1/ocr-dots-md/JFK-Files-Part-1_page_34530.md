@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_34530.png
+
+Convert to Markdown14-00000
+
+All you need for a trip to the Soviet Union is your national passport and, if you mean to stay in the country long enough to visit and the itinerary.
+
+Visa. As a rule, you are allowed for travellers by foreign and travel aims. But you can get your visa yourself. Visas are issued to Soviet tourists in every country five to seven days advance. The visa is valid for the indicated time of travel. I know nothing of entry and exit on the Soviet border at all. I am going on your route.
+
+If you decide to visit your friend or alter the itinerary, apply to the service bureau at your hotel. If Intourist is able to provide the necessary accommodation, your visa will be altered accordingly. Visa's and subsequent alterations in them, are free of charge.
+
+Visas for transit travel via the U.S.S.R. by railway or motor are issued if you have the pertinent visa of the country neighboring on the U.S.S.R. You need no Soviet visa if you travel
+
+via U.S.S.R. by air, provided you do not stay in Soviet transfer towns for more than 24 hours.
+
+Intourist does not service travellers who come on visits to relatives in the Soviet Union. Neither does it offer services in towns where Intourist agencies are unavailable. In such cases, apply to a Soviet consulate abroad.
+
+Under reciprocal agreements between the Soviet Union and some other countries, no visas are necessary for nationals of these countries for travel in the U.S.S.R. and for Soviet-tourists visiting these countries.
+
+Medical Formalities. An international small-pox inoculation certificate is required for entry to the Soviet Union from African, Asian and South American countries, and, in addition, a cholera certificate for entry from India and Eastern Pakistan.
+
+Customs. Personal belongings—garments, shoes, tourist and sports gear, perfumery and cosmetics, etc. in quantities necessary for the time of stay in the Soviet Union, depending on the season, are duty-free. Besides, travellers may bring duty-free (per person; two cameras, one amateur camera and a reasonable (non-commercial) amount of souvenirs. Persons coming to the Soviet Union on a hunting tour provided they have a certificate issued by Intourist or a foreign travel firm confirming this purpose of their trip) may bring sporting rifles.
+
+To make sure passage home is unhindered, please register the foreign currency you have brought with you with the customs, which will issue you a pertinent certificate.
+
+It is prohibited to bring to the U.S.S.R. Soviet currency. Soviet government bonds, annulled securities, annuities, gasolines, andhashish and applicants for smoking them, cannabis, duds, and locks, blanks, records, etc., politically and economically prejudicial to the U.S.S.R.
+
+All objects and articles (except those prohibited by law), may be shipped out of the USSR. in any quantity, provided they have been purchased with Soviet money issued at the Vneshtorg Bank of the U.S.S.R. or the bank's branches or offices of the State Bank of the USSR (Gosbank) and exchanged with foreign convertible currency. For the exchange of a passage of such goods make sure you have the person-at bank certificates or shop's bills.

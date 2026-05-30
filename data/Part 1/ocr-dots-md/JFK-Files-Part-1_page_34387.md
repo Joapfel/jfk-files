@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_34387.png
+
+Convert to MarkdownSECRET
+
+102334Z
+CITE WAVE 9407 (ING HURST ACTING)
+SAOP DIR TODY
+CONFIDENTIAL
+
+SECURITY
+CLASSIFICATION
+
+WAVE 9406 (IN 7/2/80)
+
+TYPIC
+MHVIPER
+PSYCH
+
+REF: WAVE 9406 (IN 7/3/80)
+
+IDEN: UNKDAD REVOLUCIONARIA
+
+SECRET
+
+CFN
+
+SECRET
+
+1002317
+
+REPRODUCTION PROHIBITED
+
+<table><tr><td>44</td><td style="text-align:center">SECRET</td></tr><tr><td colspan="2" style="text-align:center">PERSON/UNIT NOTIFIED</td></tr><tr><td>ADVANCE COPY ☐</td><td>UNIT SLIPPED ☐</td></tr><tr><td>ACTION WHLC 8</td><td>TIME DOI BY</td></tr><tr><td>INFO VR. FILE, DFK, WHC, FE6, CA2, CAPROD, DCY, DOAH3, CULC2</td><td></td></tr></table>
+
+SECRETS

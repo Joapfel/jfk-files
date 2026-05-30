@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_35084.png
+
+Convert to MarkdownGASTOS RELATIVOS AL CHEQUE No. 419
+POR $6,937.52 - "PAULA AND SOSA"
+
+## Partida No. 14
+
+Por el alquiler de una automóvil al Sr. Guillot, que según comprobante, asciende a $306.94 (por 5 semanas) sin que haya reintegrado $33.06 de sobrante, correspondiendo $250.00 al pago del cheque No. 244 de Octubre 26 y la diferencia a esta cirogación. (Automobile rent - Manuel Guillot). $ 150.00
+
+amr.

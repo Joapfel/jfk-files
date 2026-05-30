@@ -1,0 +1,205 @@
+# JFK-Files-Part-1_page_34680.png
+
+Convert to MarkdownCOPY NO.
+
+CLASSIFIED MESSAGE
+
+<table><tr><td>ORIG:</td></tr><tr><td>UNIT:</td></tr><tr><td>EXT:</td></tr><tr><td>DATE:</td></tr></table>
+
+<table><tbody><tr><td colspan="2">S-E-C-R-E-T</td></tr></tbody></table>
+
+<table><thead><tr><th colspan="4">ROUTING</th></tr></thead><tbody><tr><td>1</td><td></td><td>4</td><td></td></tr><tr><td>2</td><td></td><td>3</td><td>-</td></tr><tr><td>3</td><td></td><td>6</td><td></td></tr></tbody></table>
+
+TO:
+
+FROM: DIRECTOR
+
+CONF.:
+
+INFO:
+
+RECEIVED
+No File or Message Found.
+Marked [x]
+None required [ ]
+
+CITE DIR: 35831
+
+6. FULL DETAILS NOT AVAILABLE. PSYCH GUIDANCE WILL FOLLOW.
+
+END OF MESSAGE
+
+RICHARD M. BISEZEL
+DDP
+RELEASED OFFICE
+
+WH/C/CAoberstT, in dcp T
+COORDINATING OFFICES
+
+J C. KING
+C/WHD
+AUTHENTICATING OFFICE
+
+<table><tr><td>S-E-C-R-E-T</td></tr></table>
+
+Copy No. 40001969. REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+EDITION: 1369
+
+LISBON: 1970-71
+
+EUGENIE D. HARRIS
+
+14-00000
+
+COPY NO.
+
+PAGE NO.
+
+REVISED
+
+COPY NO. 13001969
+
+EDITION: 1369
+
+LISBON: 1970-71
+
+EUGENIE D. HARRIS
+
+14-00000
+
+COPY NO.
+
+COPY NO.
+
+COPY NO. 13001969
+
+EDITION: 1369
+
+LISBON: 1970-71
+
+EUGENIE D. HARRIS
+
+14-00000
+
+COPY NO.
+
+COPY NO.
+
+COPY NO. 13001969
+
+EDITION: 1369
+
+LISBON: 1970-71
+
+EUGENIE D. HARRIS
+
+14-00000
+
+COPY NO.
+
+COPY NO.
+
+COPY NO. 13001969
+
+EDITION: 1369
+
+LISBON: 1970-71
+
+EUGENIE D. HARRIS
+
+14-00000
+
+COPY NO.
+
+COPY NO.
+
+COPY NO. 13001969
+
+EDITION: 1369
+
+LISBON: 1970-71
+
+EUGENIE D. HARRIS
+
+14-00000
+
+COPY NO.
+
+COPY NO.
+
+COPY NO. 13001969
+
+EDITION: 1369
+
+LISBON: 1970-71
+
+EUGENIE D. HARRIS
+
+14-00000
+
+COPY NO.
+
+COPY NO.
+
+COPY NO. 13001969
+
+EDITION: 1369
+
+LISBON: 1970-71
+
+EUGENIE D. HARRIS
+
+14-00000
+
+COPY NO.
+
+COPY NO.
+
+COPY NO. 13001969
+
+EDITION: 1369
+
+LISBON: 1970-71
+
+EUGENIE D. HARRIS
+
+14-00000
+
+COPY NO.
+
+COPY NO.
+
+COPY NO. 13001969
+
+EDITION: 1369
+
+LISBON: 1970-71
+
+EUGENIE D. HARRIS
+
+14-00000
+
+COPY NO.
+
+COPY NO.
+
+COPY NO. 13001969
+
+EDITION: 1369
+
+LISBON: 1970-71
+
+EUGENIE D. HARRIS
+
+14-00000
+
+COPY NO.
+
+COPY NO.
+
+COPY NO. 13001969
+
+EDITION: 1369
+
+L

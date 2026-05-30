@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_35493.png
+
+Convert to Markdown1 Sept 65
+
+Two hundred seventy and 50/100带小数点后
+Radio program "El Medico y United" for Sept 65
+Cashier's Check #
+
+270.50
+
+Robert WILKINSON

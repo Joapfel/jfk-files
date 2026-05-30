@@ -1,0 +1,43 @@
+# JFK-Files-Part-1_page_34997.png
+
+Convert to Markdown# PAYROLL
+
+ANEX "I-F"
+
+Page No. 7
+
+| | Check No. | Total |
+| :--- | :---: | ---: |
+| **COMMITTEES:** (Cont.) | | |
+| **Communication:** | | |
+| Ubaldo Arteaga | 864 | $ 150.00 |
+| Angel Castillo Barroso | 887 | 275.00 |
+| Gustavo Cuervo Fernández | 894 | 175.00 |
+| Hildebrand Díaz Rojas | 899 | 250.00 |
+| Celso Fimienta | 981 | 275.00 |
+| Fernando Trespalacios | 1011 | 275.00 |
+| Francisco A. Zayas González | 1024 | 300.00 |
+| Frank Zayas (Confidential) | 1025 | 150.00 |
+| Armando Menéndez Rabasa | 1096 | 250.00 |
+| Elvira Píñon | 1121 | 200.00 |
+| | | **$ 2,300.00** |
+| **Total of Committees:** | | **$32,335.00** |
+
+**OTHERS :**
+
+**Office of the General Coordinator:**
+Carlos Manuel Cibrián Ruisánchez | 889 | $ 150.00 |
+Jorge Alberto Estrada Casas | 904 | 150.00 |
+Vicente León León | 939 | 350.00 |
+Luis Morales Ortega | 967 | 150.00 |
+Jorge A. Morán Lamadrid | 968 | 300.00 |
+Ricardo Zabala Sánchez | 1023 | 90.00 |
+| | | **$ 1,190.00** |
+
+**Office of the Auxiliar Coordinator:**
+
+Teresa de Jesús Oti Montaner | 974 | $ 200.00 |
+Pablo Pérez Zamora | 980 | 150.00 |
+| | | **$ 350.00** |
+
+Continues on page No. 8

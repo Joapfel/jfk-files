@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_34931.png
+
+Convert to MarkdownLa Habana, Agosto 17, 1957.
+
+COCONUT GROVE BANK
+MIAMI, FLORIDA.
+
+Atenciones al Sr. Administrador/
+
+SEÑOR:
+
+Me dirijo a usted por este medio, para que me haga el favor de informarme al Sr. John Paulbath, que necesito urgentemente que se comuníco conmigo , ya que necesito que me envíe los pasejos para irme por Vía Espana.
+
+Si me he tenido la libertad de molestarlo es porque en Noviembre del pasado escribi el Sr. Paulbath a P. O. Box 427 Tempi MI, Station en esa ciudad y el้อ casi de sois meses mo devolvieron la carta, diciendo que esa dirección no estaba reglada, a partir do entonces una amiga suo vive en Los Angeles ha estado tratando de localizar hace la fecha sin éxito ninguno.
+
+El Sr. Paulbath me envió une certificación donde me informaba que el dinero que mensualmente se me estébe asignando (por el fallo ciento de mi esposo) referente al. Elize Dotal 1023, se me estaba depositando en esa cuenta, por lo cual le estoy incluyendo copia de dicha certificación. Laljina notifica que tuvo del Sr. Paulbath fud en Febrero de 1966, donde me informó que en esa fecha el saldo do la cuenta arrojabe $12,518.21 U. S. Dolares.
+
+Apolo a su bonao para que pasaste, pues llevó mas de seis año tratando de irno de acuf desde que ni esposo o. p.d. se marchó, ya que principalmente cuando con ese todos los pareles preparado cuando cerraron la Embajada Americanas acuf que fué a los dos meses de haberte ido al esposo, despidus en abril de ese mismo año fué curandovino la invasión de Playa Gorda y donde Currió y el 1 de Junio radio al hija, fud por esa fecha cuando empezaron a dar visa weiver para trasladarse a los Estados Unidos aunque consiguí las visas no pudo irno puesto que no logré obtener el passaporte de la niña ya que para obtenerlo no exigían la documentación de el , y como Acuf no consta la defunción de él por jumpado alguno, pues yo fui a todos los lugeros donde pudiera lograrla. Entonces empecé a visitar abogados y entidades del gobierno para ver como podría obtener el pasaporte de mi hija, y al fin de mucho luchar a fines de noviembre del pasado año me lo entregaron, escribiendole enseguida el Sr. Paulbath para que me envíara enseguida el dinero de los pasejeuya carta fuc la que me devolvieron.

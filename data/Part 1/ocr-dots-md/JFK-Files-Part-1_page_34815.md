@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_34815.png
+
+Convert to MarkdownSECRET
+
+UPCH-6308
+
+4. A conference with the MUTUAL Committee will be held in the near future in order to obtain guidance concerning the proposal for disbursing future AMBUD payments. JIWAVE will be kept advised of the progress of this activity.
+
+Ellon F. MARGANY
+
+Ernest A. LUSBY
+
+Distribution:
+
+3 - COS/JMNAVE

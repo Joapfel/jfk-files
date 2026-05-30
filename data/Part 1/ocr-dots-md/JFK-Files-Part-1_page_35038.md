@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_35038.png
+
+Convert to Markdown# CIVIL SECTION BUDGET
+
+STATEMENT "III"
+
+Page No. 2
+
+| | -Budgeted- | -Spent- | Excess | Defect |
+| :--- | :---: | :---: | :---: | :---: |
+| **Non-Budgeted:** | | | | |
+| Assets | -0- | $12,787.58 | $12,787.58 | |
+| Monroe Hotel | -0- | 1,802.55 | 1,802.55 | |
+| **Total** | **-0-** | **$14,590.13** | **$14,590.13** | |
+| **TOTAL BALANCE** | **$181,700.00** | **$193,120.81** | **$32,938.89** | **$21,518.08** |
+| **Difference in excess** | **11,420.81** | **-0-** | **-0-** | **11,420.81** |
+| | **$193,120.81** | **$193,120.81** | **$32,938.89** | **$32,938.89** |
+
+* Includes the budget of the Comptroller Department ($1,700.00) of which $1,350.00 were used for payroll.
+
+amr.

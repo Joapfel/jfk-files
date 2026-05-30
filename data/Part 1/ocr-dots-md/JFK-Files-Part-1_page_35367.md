@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_35367.png
+
+Convert to Markdown14-00000
+
+A. M.
+
+| DATE | DESCRIPTION | CASH # | TOTAL |
+| :--- | :--- | :---: | ---: |
+| Dec. 8 | Anesthesia operation Adelgais Soto | 7252 | $ 65.00 |
+| " 8 | Hospital expenses Adelgais Soto | 7253 | 1,031.45 |
+| " 19 | Medical assistance Roberto González | 7323 | 495.00 |
+| " 19 | Medical assistance Adelgais Soto | 7324 | 295.00 |
+| | **TOTAL:-** | | **$ 1,886.45** |
+
+ml.

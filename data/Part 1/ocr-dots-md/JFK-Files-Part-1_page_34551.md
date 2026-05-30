@@ -1,0 +1,12 @@
+# JFK-Files-Part-1_page_34551.png
+
+Convert to Markdown45. You stated that when the file on Oswald arrived from Minsk, you, together with other officers looked quickly through the file, then senior officers Fedoseyev and Matveyev of the First Department of the Second Chief Directorate took the file and you never saw it again. Because the file was in your department only 20-30 minutes (in other places Nosenko said 35-40 minutes), the Spravka could not be written in such a short time, and because the file was taken away to the higher authorities of the Second Chief Directorate and to the KGB chairman, you had no chance to see the second Spravka. Then again the question is which summary did you read--the second or the first or both? Describe in detail how long the summary was, what was in it, and how long it took for you to read-it. Did-you-make any notes-from the summary in case later on you had to report the "facts" to US intelligence?
+
+46. What do you know about Oswald's visit (from Minsk) to the American Embassy in Moscow on July 8, 1961?
+
+**Note:** Oswald flew from Minsk to Moscow allegedly without permission from the Soviet authority.
+
+What do you know about Marina's visit to Moscow on July 10, 1961?
+What part did the KGB play in the arrangements of Marina's visit to the American Embassy in Moscow without checking her papers and without stopping her at the gates. In what hotel in Moscow did Oswald and Marina stay at that time?
+
+✓47. You stated previously that the First Chief Directorate provided no information about Oswald before Oswald went to Mexico. What information did the First Chief Directorate give to the Second Chief Directorate before he went to Mexico? Did you read this information? If you did not personally read it, then how did you learn the contents of the First Chief Directorate information? Who from the First Chief talked Directorate particularly to the officers of the Second Chief Directorate and with whom did they talk?

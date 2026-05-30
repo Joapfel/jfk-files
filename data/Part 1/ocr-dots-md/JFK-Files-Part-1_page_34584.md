@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_34584.png
+
+Convert to MarkdownTO BE OPENED BY ADDRESS only.
+
+1 July 1964
+
+MEMORANDUM FOR: Headquarters
+
+SUBJECT : LECTUR, George M.
+(Emergency Instructions Regarding Custody Of)
+#262 622 C SD/1
+
+1. Attached are instructions and procedures to be followed in the event of emergency situations affecting the SUBJECT's health, safety and custody, as well as the security of the safehouse where SUBJECT is currently being held.
+
+2. This is to formalize instructions which, for the most part, are already in effect and have been briefed to the personnel of the District Field Office and are concerned with this case.
+
+3. Dissemination of copies of these instructions to members of the Special Security Detail will be made upon notification of Headquarters approval.
+
+JOHN D. ROGEL, JR.
+Special Agent in Charge
+
+Attachment:
+
+Emergency Instructions (2)
+
+C123--11-7
+7/8 4 23 5H 8P
+
+TO BE OPENED BY ADDRESSEE ONLY.

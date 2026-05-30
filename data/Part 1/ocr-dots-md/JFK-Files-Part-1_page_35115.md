@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_35115.png
+
+Convert to MarkdownCUBAN DEMOCRATIC REVOLUTIONARY FRONT
+FINANCE DEPARTMENT
+ADVANCES RECEIVABLES
+"PAULA AND SOSA"
+October 1 to 31, 1960
+
+ANNEX "I-O"
+
+| Date | Check No. | Total |
+|---|---|---|
+| Oct. 4 | A. Fernández Morell - Military Sec. 21 | $ 350.00 |
+| Oct. 17 | Serapio Montejo - Military Section 178 | 300.00 |
+|  |  | $ 650.00 |

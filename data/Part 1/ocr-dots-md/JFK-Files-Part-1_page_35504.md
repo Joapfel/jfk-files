@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_35504.png
+
+Convert to Markdown12 July
+
+65
+
+One hundred fifty and 00/100 .
+
+Continental Communications Inc. bill for "El Medico y Jsted" for May and June 65 Cashier's Check #408974
+
+$130.00
+
+Robert WILKENSON

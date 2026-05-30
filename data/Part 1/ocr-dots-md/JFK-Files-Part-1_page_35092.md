@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_35092.png
+
+Convert to MarkdownGASTOS RELATIVOS AL CHEQUE No. 243
+
+P.C.R. $ 600.00 - "PAULA AND SCISA"
+
+Gastos de asistencia médica y operación
+en el hospital de un oficial necesitado
+del Estado Mayor. (Medical assistance
+and surgery)
+
+$ 600.00
+
+amr.

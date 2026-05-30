@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_35699.png
+
+Convert to Markdown14-00000
+
+104-10250-10199
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+TO : Deputy Chief, SCD
+
+FROM : Chief, Special Referral Branch
+
+SUBJECT: HIDALGO, Balmes, Jr.
+#65077
+
+22 June 1954
+
+The Subject is a covert employee of this Agency now in the United States for four weeks training and being considered for use by Staff C/ICB in a highly sensitive assignment. Immigration authorities may submit questions through this Agency which will be answered by the Subject, but requests to have the Subject testify in open court hearings must be refused.
+
+DETAILS
+
+1. Reference is made to the letter received by the Alien Affairs Staff from the Immigration and Naturalization Service and reference to your request of 15 June 1954 to ascertain the details of the Subject's status with this Agency and prepare a reply to I&NS.
+
+2. On 17 June 1954 Special Agent Chester R. HOATSON of this office interviewed Mr. Robert DAHLGREEN, Acting Chief, WH/FI, Room 1128 "J" Building, and Mr. John DOWNTT, Chief, WH/Panama, Room 2204 Quarters "J", x11456, regarding the Immigration request. The following information was obtained during this interview.
+
+a. The Subject is still a covert employee of this Agency, is now in the United States (New York City) on home leave, and is scheduled to report to Washington, D.C., to commence four weeks of covert training on 6 July 1954.
+
+b. The Subject is presently under consideration by Staff C/ICB for an assignment with a highly sensitive project under the supervision of Staff C/ICB. Under this proposed assignment any publicity or notoriety that the Subject would receive from testifying publicly on questions of Communist associations of which he may have knowledge would ultimately preclude his future use with the Staff C project and would probably jeopardize his future as a covert employee of this Agency.
+
+c. If the Staff C assignment does not materialize, the Subject will return to Folcroft, Panama Canal Zone on approximately 15 August 1954 as a case officer, and this position would also be jeopardized by undue publicity.

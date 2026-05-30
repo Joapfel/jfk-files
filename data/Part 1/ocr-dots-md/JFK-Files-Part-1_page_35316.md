@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_35316.png
+
+Convert to MarkdownHE RECIBIDO de "Judicatura Cubana Democrática la canti-
+dad de Ciento carenta y al restante cientos cincuenta
+importe de la asignación correspondiente al presente---
+mes,
+
+SON $ 147.05
+
+Miami, FEB 5 1962
+
+ORIGINAL
+
+Agustín Elizondo Serize
+
+10

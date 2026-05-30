@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_34990.png
+
+Convert to Markdown# GUARANTEE CO. CORPORATE DEBT SERVICE
+## LOANS TO THE U.S. GOVERNMENT
+
+### STATES
+
+#### "PIULA" AND SCS."
+
+December 1 to 31, 1960
+
+AUGUST "I-E"
+
+| Date | Description | Check No. | Total |
+| :--- | :--- | :--- | :--- |
+| | **DEPOSITS:** | | |
+| Dec. 7 | Revolving fund Monroe Hotel | 1145 | $ 100.00 |
+| Dec. 12 | Deposit - Telephone service - F.I. Diaz Lanz - Authorized by Finance Department | 1194 | 150.00 |
+| Dec. 15 | Increase revolving fund Military Section | 1229 | 5,000.00 |
+| | **Total of Deposits** | | **$5,250.00** |
+
+| | | | |
+| :--- | :--- | :--- | :--- |
+| **OFFICE EQUIPMENT:** | | | |
+| Dec. 5 | 1 Air-conditioner Mr. Sosa's office | 1069 | $ 183.34 |
+| Dec. 22 | 1 Legal file, 4 drawers (Comptroller Department) | 1339 | 48.93 |
+| | **Total of Office Equipment** | | **$ 232.27** |
+
+| | | | |
+| :--- | :--- | :--- | :--- |
+| **CTHERS:** | | | |
+| Dec. 5 | 1 R.C. Transmitter (Abel de Varona) | 1103 | $ 19.95 |
+| Dec. 5 | 1 R.C. Receiver (Abel de Varona) | 1103 | 34.95 |
+| Dec. 5 | 1 Servo (Abel de Varona) | 1103 | 8.95 |
+| Dec. 5 | 1 Multi-Testor (Abel de Varona) | 1103 | 16.50 |
+| Dec. 5 | 1 Boat (Abel de Varona) | 1103 | 10.60 |
+| Dec. 12 | 1 "Madjin" Ship spare part | 1202 | 200.00 |
+| | **Total of Others** | | **$ 290.95** |
+| | **TOTAL OF ASSETS** | | **$5,773.22** |
+
+ml.

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_35124.png
+
+Convert to Markdown# INGRESOS POR TRANSFERENCIAS DE LA CUENTA "RASSO AND PAULA"
+
+## AÑO "I-B"
+## ENERO - OCTubre
+
+### INGRESOS POR TRANSFERENCIA DE LA CUENTA "RASSO AND PAULA"
+
+Octubre 1 al 31 de 1960
+
+| Octubre 10 - Depósito Check No. 237 | $ 12,026.33 |
+|---|---|
+| Octubre 14 - Depósito Check No. 238 | 3,000.00 |
+| **TOTAL DE INGRESOS POR TRANSFERENCIAS** | **$ 15,026.33** |
+
+anr.

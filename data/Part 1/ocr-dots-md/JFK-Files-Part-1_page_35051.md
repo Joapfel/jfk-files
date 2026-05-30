@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_35051.png
+
+Convert to MarkdownCUBAN REVOLUTIONARY DELEGATE IN CHICHEFRONT
+FINANCE DEPARTMENT
+MAINTENANCE
+"PAULA AND SOSA"
+
+November 1 to 23, 1960
+
+ANNEX "I-I"
+
+Details remitted in Spanish $ 6,781.37
+
+amr.

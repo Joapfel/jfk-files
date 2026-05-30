@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_34862.png
+
+Convert to MarkdownRECEIPT
+
+5 April 1968
+
+RECEIVED FROM NANCYE GRATZ, WH/COG, THREE CHECKS FOR
+REIMBURSEMENT OF TRAVEL EXPENSES FOR FOLLOWING BEC
+EMPLOYEES.
+
+| PAYEE | AMOUNT |
+|---|---|
+| Mrs. Jeanne BROCKIE | $121.50 |
+| Mr. James Frank HEFTON | 169.80 |
+| Mr. Wilfred HARREN | 166.25 |
+
+Ben DeFelice
+DD/Pers/SP

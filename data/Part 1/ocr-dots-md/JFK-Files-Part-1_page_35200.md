@@ -1,0 +1,24 @@
+# JFK-Files-Part-1_page_35200.png
+
+Convert to MarkdownDemocratic Revolutionary Front
+
+Miami, Florida
+
+Distinguished Cubans:
+
+Attached herewith I am remitting the report corresponding to the
+past month of July of the current year containing the following:
+
+I. SUMMARY STATEMENT OF RECEIPTS AND EXPENDITURE OPERATIONS
+
+II. ATTACHMENTS CORRESPONDING TO EXPENDITURES
+
+III. BANK CONCILIATION
+
+IV. GENERAL
+
+Attentively,
+
+(signed)
+Juan Paula Baez
+Public Accountant

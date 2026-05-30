@@ -1,0 +1,10 @@
+# JFK-Files-Part-1_page_35176.png
+
+Convert to MarkdownSTATEMENT OF EXPENSES
+
+ANNEX "A"
+Page No.9
+
+<table><thead><tr><th></th><th>Check No.</th><th>Total</th></tr></thead><tbody><tr><td>Joaquin L. Vazquez</td><td>1188</td><td>-0-</td></tr><tr><td>Alga Pacifico</td><td>1189</td><td>375.00</td></tr><tr><td>Maria Perez</td><td>1190</td><td>275.00</td></tr><tr><td>Juan Tajon</td><td>1191</td><td>175.00</td></tr><tr><td>Humberto Cortina</td><td>1192</td><td>300.00</td></tr><tr><td>Manuel Perez</td><td>1193</td><td>250.00</td></tr><tr><td>Olga Ferdomo</td><td>1194</td><td>225.00</td></tr><tr><td>Sara Iglesias</td><td>1195</td><td>175.00</td></tr><tr><td>Ana Maria Quintana</td><td>1196</td><td>275.00</td></tr><tr><td>José Manuel Raffo</td><td>1197</td><td>250.00</td></tr><tr><td>Hilda Valbes</td><td>1198</td><td>225.00</td></tr><tr><td>C. A. M. C. H. I. B. D</td><td>1199</td><td>-0-</td></tr><tr><td>Rosa J. Ramos Justiniano</td><td>1200</td><td>175.00</td></tr><tr><td>Juan Garcia Vieta</td><td>1201</td><td>175.00</td></tr><tr><td>Nancy Salas Perez</td><td>1202</td><td>325.00</td></tr><tr><td>Esmira Martinez</td><td>1203</td><td>275.00</td></tr><tr><td>Rita Garcia</td><td>1204</td><td>225.00</td></tr><tr><td>Gloria Luz Rodriguez</td><td>1205</td><td>175.00</td></tr><tr><td>Luz Marina Herrera</td><td>1206</td><td>225.00</td></tr><tr><td>Manuel Rodriguez San Pedro</td><td>1207</td><td>275.00</td></tr><tr><td>Nicolas Kennedy</td><td>1208</td><td>175.00</td></tr><tr><td>Clara I. Horales</td><td>1209</td><td>225.00</td></tr><tr><td>Victoria Castellanos</td><td>1210</td><td>175.00</td></tr><tr><td>Robel Puchol</td><td>1211</td><td>175.00</td></tr></tbody></table>
+
+(Continues page No.10)

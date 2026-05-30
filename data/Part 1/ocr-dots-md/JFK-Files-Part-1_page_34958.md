@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_34958.png
+
+Convert to Markdown14-0000
+
+# TRANSLATION
+
+Chicago, May 8, 1967
+
+Dear Mr.
+
+In your letter of 1 May 1967 you asked me for my marriage certificate and my son's birth certificate, I do not have them because my home was immediately intervened by the so-called Comandante Felix Torres who burned my family passport and wouldn't even let me get my son's clothing. My cousin (?), Porfirio's brother Rodolfo RAMIREZ x.x.x.x. clandestinely went to the coasts of Cuba to get me. I am sending you photostatic copies of our parolee cards. I believe they will suffice but at the same time I will write to Porfirio's mother who is still in Cuba since she has not been given permission to leave and come to this country and I will ask her to get copies of the marriage certificate.
+I will send them to you as soon as I receive them.
+
+Thanks again,
+/s/ Clara DELGADO

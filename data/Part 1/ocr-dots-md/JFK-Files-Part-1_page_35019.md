@@ -1,0 +1,48 @@
+# JFK-Files-Part-1_page_35019.png
+
+Convert to MarkdownPERU:
+
+Payroll:
+
+Dec. 2  Armando Cruz 1037  $  200.00
+Dec. 2  Frank Diaz Silveira 1037  350.00
+
+Others:
+
+Dec. 23 Expenses of November 1364  129.80
+Dec. 26 Expenses of November 1367   71.75
+Dec. 27 Expenses of November and December 1370  357.00
+                                     Total Peru   $1,108.55
+
+PUERTO RICO:
+
+Payroll:
+
+Dec. 2  Manuel Fernández 1037  $  500.00
+Total Puerto Rico   $  500.00
+
+CHILE:
+
+Payroll:
+
+Dec. 3  J. Valdés Crespo (E. Miró) 1063  $  600.00
+Total Chile      $  600.00
+
+GUATEMALA:
+
+Payroll:
+
+Dec. 28 Enrique Collazo 1361  $  250.00
+Total Guatemala   $  250.00
+
+TOTAL LATINS   $4,583.55
+
+NORTH AMERICANS:
+
+CHICAGO:
+
+Others:
+
+Dec. 16 Expenses F. Martinez 1274  $  400.00
+
+(Continues page No.3)

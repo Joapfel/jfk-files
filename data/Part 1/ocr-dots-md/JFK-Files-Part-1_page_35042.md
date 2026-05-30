@@ -1,0 +1,30 @@
+# JFK-Files-Part-1_page_35042.png
+
+Convert to MarkdownGUBAN DEMOCRATIC REVOLUTIONARY FRONT
+FINANCE DEPARTMENT
+
+REINBURSMENTS CORRESPONDING TO THE MONTH OF NOVEMBER
+
+"PAULA AND SOSA"
+
+November 1 to 30, 1960
+
+ANNEX "I-D"
+
+Nov. 14 Reimbursement from Mr. Abel de Varona (Part of the check No. 589, for the rent of the phisicyan's house -November- that had been already paid. (See Annex "I-G") $ 97.85
+
+Nov. 16 Reimbursement from the account "Rasco and Paula" to restitute the "Revolving Fund" that was created through the account - "Paula and Sosa". (See Annex "I-E") 1,000.00
+
+Nov. 21 Reimbursement of check 690 for excess in advertising in "Diario de la Marina" (See Annex "I-K") 6.00
+
+Nov. 22 Reimbursement of check 730 for excess in the telephone bill (FR-7-2389) (See Annex "I-J") 70.90
+
+Nov. 28 Reimbursement of check 797 for excess in a trip (M. Cobo). (See Annex "I-H") 0.30
+
+Nov. 28 Reimbursement of check 749 in excess in pamphlet freight (See Annex "I-K") 39.31
+
+TOTAL $ 1,214.36
+
+NOTE: These amounts have been deducted from the totals of their respective accounts, as can be seen in the correspondent annexes, to the effects of the exact determination of the expense in each case.
+
+amr.

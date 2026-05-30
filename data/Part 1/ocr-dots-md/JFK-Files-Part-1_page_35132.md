@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_35132.png
+
+Convert to MarkdownHONIHA
+
+ARANGO "I-E"
+Hoja No. 4
+
+| | Check No. | Total |
+|:---|---:|---:|
+| **CONTRIBUTES:** (Continuación) | | |
+| **Transporte:** | | |
+| Armando Vázquez Almagro | 16 | $ 200.00 |
+| **Información e Inteligencia:** | | |
+| Ramiro Fernández-Horia Fernández | 230 | $ 200.00 |
+| Jorge Roque Castro | 220 | 125.00 |
+| Paulino Pérez Blanco | 210 | 125.00 |
+| | | $ 450.00 |
+| **Organización y Proselitismo:** | | |
+| Jesús Miranda Hernández | 133 | $ 150.00 |
+| Heriberto Corona Menéndez | 104 | 175.00 |
+| Abel de Varona Loredo | 47 | 175.00 |
+| Adrián Vidal Aznares | 18 | 225.00 |
+| Pedro Montiel Zapirain | 137 | 250.00 |
+| Rafael Galis Menéndez | 17 | 225.00 |
+| José Millán Velasco | 13 | 225.00 |
+| Enrique Villarreal Concepción | 7 | 350.00 |
+| Luis Bueno Ramaden | 72 | 450.00 |
+| Roberto Varona García | 101 | 400.00 |
+| Claudio González Morales | 43 | 90.00 |
+| Pedro Pablo Bermúdez P. | 134 | 190.00 |
+| | | $ 2,005.00 |
+| **Comunicaciones:** | | |
+| Francisco A. Zayas González | 44 | $ 300.00 |
+| Fernando Trespalacios | 24 | 275.00 |
+| Gustavo Cuervo Fernández | 11 | 175.00 |
+| Ubaldo Arteaga | 78 | 150.00 |
+| Hildebrand Díaz Rojas | 74 | 250.00 |
+| | | $ 1,150.00 |
+
+Continúa en la Hoja No. 5

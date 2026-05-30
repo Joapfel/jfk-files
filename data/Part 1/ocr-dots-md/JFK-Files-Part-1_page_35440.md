@@ -1,0 +1,60 @@
+# JFK-Files-Part-1_page_35440.png
+
+Convert to Markdown14-0000
+
+MESSAGE FORM
+TOTAL COPY(S)
+
+ORIG : MARVIN FRANCIS:ack
+UNIT : WH/C/FI/TC [ ] INDEX
+EXT : R. 1271 [ ] NO INDEX
+DATE : 29 MARCH 1966 [ ] FILE IN CS FILE NO.
+
+<table><thead><tr><th colspan="3">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>TC</td><td>5 CE</td></tr><tr><td>2</td><td></td><td>6 CH</td></tr><tr><td>3</td><td>FF</td><td>7 PR</td></tr><tr><td>4</td><td>100-</td><td>8 G</td></tr></tbody></table>
+
+TO BONN
+
+FROM: DIRECTOR
+
+CONF: DELINQUENT FILE [UNDOWNLOADED] DESENSITIZED
+
+CITE DIR 92483
+
+TO BONN
+
+INFO
+
+TYPIC KAPOK MILAPRON ANNEST AMWHIP
+
+REF: DIR 92482
+
+IDEN REF: JUAN VENTURA VALNER, CUBAN EXILE WHO OWNS JEWELRY SHOP AND RESIDES GENEVA. MAKES INFREQUENT BUSINESS TRIPS TO ROME.
+
+END OF MESSAGE
+
+WH/C/RR/MHAPRON S.W. Robins
+WH/C/CICS John A. Fastow
+C/WH/C/FI J.D. Williamson
+EE/G George J. King
+
+WILLIAM V. BROE
+C/WH
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+SECRET
+
+GROUP I
+Included from automatic
+downgrading and
+decalsstenics
+
+AUTHENTICATING
+OFFICER
+
+COPY NO.
+
+31-6
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.

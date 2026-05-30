@@ -1,0 +1,11 @@
+# JFK-Files-Part-1_page_35338.png
+
+Convert to Markdown"OPERACION GRIETA"
+
+Annex "IV"
+---
+
+Deposit (January 19, 1962) $ 4,384.50
+
+January Expenses (See Annex "IV-A" _________ $ 4,384.50
+Balance on January 31, 1962. $ ---0---

@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_34512.png
+
+Convert to MarkdownUNITED STATES (GOVERNMENT)
+Memorandum
+
+TO : Files
+FROM : IDEN 2
+SUBJECT: IDEN 1
+
+DATE: 13 July 1973
+
+1. On 12 July 1973, the attached Acknowledgement and Release which was prepared by the General Counsel was signed by the Subject in the presence of IDEN 5 and witnessed by the undersigned. There were no problems involved in obtaining the signature of the Subject who had previously voluntarily stated he would sign such a document if he would receive the $15,000.00 which Subject considered was the fulfillment of an Agency promise in 1964 before his defection.
+
+2. Subject understood that the attached did not affect the existing contractual agreement with Subject and that all stipulations in that contract were valid and continuing.
+
+3. Also attached is a copy of the $13,000.00 Cashier's Check given to Subject on 12 July 1973 which completed the agreed sum of $15,000.00, the Subject having previously received $2,000.00 which was a part of the agreed sum.
+
+'/s/ IDEN 2....
+
+*Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan*

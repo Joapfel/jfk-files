@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_35031.png
+
+Convert to MarkdownCHART OF CUSTODY, J. C. FOSTER
+MISSOURI
+MILITARY DEPARTMENT (ABDUCED FROM NOTE)
+"PUBLIC RECORD"
+DECEMBER 1 TO 31, 1960
+
+ANNUAL "Y-F"
+
+Balance as per books (Annex "I-L") $51,088.90
+Plus: Payroll charged to Military Section
+(Annex "I-L") 450.00
+Cost of Military Section $52,338.90
+
+ml.

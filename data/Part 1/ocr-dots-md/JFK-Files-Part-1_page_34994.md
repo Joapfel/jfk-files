@@ -1,0 +1,41 @@
+# JFK-Files-Part-1_page_34994.png
+
+Convert to MarkdownANEX "I-F"
+Page No. 4
+
+Check No. Total
+
+COMMITTEES: (Cont.)
+
+Organization and Proselytism:
+
+Pedro Pablo Bermúdez              871   $  175.00
+Irina Bouza Enríquez               874   125.00
+Luis Bueno Ramsden                 875   350.00
+Manuel Castillo Robles            886   225.00
+Heriberto Corona Méndez             891   200.00
+Humberto Figueras González        911   250.00
+Rafael Galis Menéndez              914   225.00
+Claudio González Morales           928   175.00
+René Luis Pelly                   945   125.00
+Héctor La-Mar                     948   175.00
+Raúl Medina Mesa                  957   200.00
+José Millán Velasco                962   225.00
+Jesús Miranda Hernández            963   200.00
+Segundo Miranda Hernández          964   250.00
+Pedro Montiel Zapirain             966   225.00
+José Manuel Sánchez Navarro        1003   325.00
+Roberto Varona García              1015   225.00
+Abel de Varona Loredo              1016   175.00
+Adrián Vidal Aznares               1020   225.00
+Mario Villalonga Suárez            1044   175.00
+Juan Mesa                         1083   200.00
+Anselmo Rodríguez Rendueles       1236   200.00
+Raúl Fernández Corredera           1238   200.00
+Gloria Espinosa Díaz               1240   150.00
+Jorge Fernández López               1241   150.00
+Rolando Fernández Corredera      $150.00  1243
+                                (Ant.)    85.00   1092
+                                $235.00  235.00
+
+Continues on page No. 5

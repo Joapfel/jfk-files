@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_34903.png
+
+Convert to MarkdownREPUBLICA DE CUBA
+MINISTERIO DE JUSTICIA
+DIRECCION GENERAL DE JUSTICIA
+
+Responsable del Registro do legalizan/los firmas
+que autora: las certifican de la Llave
+gado del Estado Civil de: La Llave
+
+CENTRO PARA LA QUALIFICACIÓN DEL ESTADO CIVIL DE LA LLAKEY
+---
+, que consta de este documento, por la
+solicitud que guarda con las que acostumbra a usar en sus
+actos oficiales.
+
+22 de 1987.

@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_35080.png
+
+Convert to MarkdownGASTOS RELATIVOS AL CHEQUE NO. 419
+
+FOR $ 6,937.52 - "PAULA AND SOSA"
+
+Partida No. 11
+
+Manutención y Albergue:
+(Occasional support to cuban refugees)
+
+Ramón Rodríguez $ 20.00
+Amado Cantillo 20.00
+Julián Bunuedo 20.00
+Warnov Hablutzol 20.00
+Eddy González 20.00
+Reynaldo Lazo 20.00
+Alberto Pérez Sordo 20.00
+Nildo Batista 20.00
+Manuel Avila 20.00
+Ramón Rodríguez 20.00
+Héctor Varona 25.00
+Raúl Vázquez 30.00
+Pablo Astudillo 25.00
+Eduardo Herrera 20.00
+Acelo Pedroso 20.00
+Joaquín Rodríguez 20.00
+Gastón Rodríguez 114.80
+Renta Hotel 45.20
+
+$ 500.00
+
+amr.

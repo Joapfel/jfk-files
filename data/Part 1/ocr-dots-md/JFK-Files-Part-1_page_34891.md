@@ -1,0 +1,14 @@
+# JFK-Files-Part-1_page_34891.png
+
+Convert to MarkdownREPUBLICA DE CUBA
+MINISTERIO DE JUSTICIA
+DIRECCION GENERAL DE JUSTICIA
+
+CIRCA VALERIA CAMPO2 y/o ARSENYO MENDEZ SIERRA
+
+Responsable del Registro de Legalizaciones de las Firma que aut證fication Son certificaciones expedidas por el Encargado del Registro del Estado Civil de La Habana.
+
+CERTIFICADO: Que es auténtica el parecer la firma del Encarga-
+do del Registro del Estado Civil de La Habana
+que consta de este documento, por la semejanza que guarda
+con las que coexisten a usar en sus actos oficiales.

@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_35145.png
+
+Convert to MarkdownAPRIME REVOLUCIONARIO DE OPERATIVO
+
+DEPARTAMENTO DE FINANCIAS DE LITANI
+
+"PAULA AND SOSA"
+
+ALQUILERES
+
+1960 "I-H" AÑO
+
+Octubre 1 al 31 de 1960
+
+| Fecha | Check No. | Total |
+|:---|---:|---:|
+| Oct. 14 | Alquiler aptos. 4 y 10 - 520NW 23 Court | 168 $ 30.90 |
+| Oct. 14 | Alquiler casa Morell (Triple-A) | 168 $ 30.00 |
+| Oct. 14 | Alquiler apto. 10 - 520 NW 23 Ct. | 168 $ 15.45 |
+| Oct. 18 | Alquiler casa Armando Díaz | 195 $ 150.00 |
+| Oct. 12 | Alquiler casa Raúl Amieva | 135 $ 65.00 |
+| Oct. 12 | Alquiler casa M. Mulet | 135 $ 50.00 |
+| Oct. 26 | Alquiler Oficina Congress Building No. 1105 (Sept. y Oct.) | 250 $ 310.00 |
+| Oct. 26 | Alquiler casa 520 NW 23 Ct. | 251 $ 66.35 |
+| Oct. 26 | Alquiler casa 1100 SW 3rd. Ave | 251 $ 33.50 |
+| Oct. 27 | Alquiler casa 470 NW 51 Ave. | 257 $ 80.00 |
+| Oct. 27 | Alquiler casa Yolanda Rubio | 257 $ 125.00 |
+| Oct. 28 | Alquiler casa Biscayne Blvd. y 17 | 271 $ 300.00 |
+| | **TOTAL ALQUILERES** | **$ 1,256.20** |
+
+amr.

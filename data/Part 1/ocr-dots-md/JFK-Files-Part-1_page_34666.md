@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_34666.png
+
+Convert to Markdownthe area. Clearances have been obtained for two Cubans who will act as coordinators for the operation.
+
+e. AVCEL-T-1, a Hungarian diplomat, has been recruited and has agreed to act as a courier for the intel net in Cuba. The agent is currently on his way to Cuba via boat.
+
+f. AHOT-34, the principal agent/W/T operator, using signal plan CGARIX, returned to Cuba via legal means on 6 September and was once again in radio communication with us as of 10 September. He is in contact with AMVAKIN-1, the principal agent of what remains of our intelligence net in Cuba.
+
+g. Control of the CGARIX W/T communication link was passed to WAVE from Headquarters effective 14 September.
+
+h. AMPALN-1 was dispatched to Guane to attempt to recruit Raúl CERERO Bouillla, Minister of the National Bank of Cuba, who is presently attending the sugar conference in Switzerland.
+
+i. Jesús López Guerrara, Cuban airline pilot who is disaffected with the Castro regime, is in contact with the Madrid station and has agreed to cooperate and remain in place.
+
+j. Arrangements are being made for a technical surveillance of the charge office in the Cuban Embassy, Montevideo.
+
+## D. Propaganda Activity
+
+### 1. Major Efforts
+
+a. Operation Bolivar. Designed to place sixty student/agents of the Direktorio Revolucionario Estudiantil (DREM) elite group in universities throughout the Western Hemisphere. Progress: Three in place and twenty-one are processing.

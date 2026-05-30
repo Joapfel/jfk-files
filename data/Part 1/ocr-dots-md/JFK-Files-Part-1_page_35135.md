@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_35135.png
+
+Convert to MarkdownFOMINA
+
+ANEXO "I-E"
+
+Hoja No. 7
+
+| | Check No. | Total |
+| :--- | :---: | ---: |
+| **OTRCS:** (Continuación) | | |
+| **Funciones Especiales:** | | |
+| José Manuel Sánchez Navarro | 32 | $ 325.00 |
+| Francisco M. Carrillo Masvidal | 94 | 400.00 |
+| María Antonia Mesa Lecourt | 19 | 250.00 |
+| Jesús M. Marinas Alvarez | 46 | 175.00 |
+| Manuel Rodríguez Fleitas | 196 | 300.00 |
+| Osvaldo Jimirre Noy | 29 | 100.00 |
+| | | **$1,550.00** |
+| **Departamento de Control:** | | |
+| Juan Paula Baez | 90 | $ 400.00 |
+| Mario Girbau García | 88 | 250.00 |
+| Ana Matilde Rodríguez Rodríguez | 89 | 200.00 |
+| | | **$ 850.00** |
+| **Federación Estudiantil Universitaria:** | | |
+| Orestes Guerra Cué | 27 | $ 100.00 |
+| **Directorio Estudiantil:** | | |
+| Jorge Más Casanova | 26 | $ 100.00 |
+| María Teresa Vildés Hurtado | 151 | 90.00 |
+| Adi Pino Feres | 152 | 90.00 |
+| Oscar Cerallo Mayo | $ 50.00 | 195 |
+| | 90.00 | 173 |
+| | | **$ 140.00** |
+| | | **140.00** |
+| Alejandro Portes | $ 90.00 | 171 |
+| | 125.00 | 63 |
+| | | **$ 215.00** |
+| | | **215.00** |
+
+Continúa en la Hoja No. 8

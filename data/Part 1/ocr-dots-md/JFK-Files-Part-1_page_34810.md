@@ -1,0 +1,81 @@
+# JFK-Files-Part-1_page_34810.png
+
+Convert to MarkdownSECRET
+
+Chief of Station, JMYAVE XX
+
+Chief, Western Hemisphere
+OPERATIONAL/TYPIC/AMBUD
+Recommendations for Termination of Certain Dependency Payments
+
+ACTION REQUIRED: See paragraph 3
+
+REFERENCE : UFGA-25261, dated 3 June 1968
+
+1. It is recommended that JMYAVE arrange to notify specific AMBUD dependents that certain payments will be terminated as of 1 January 1967. The cases, and the reasons for such terminations, are listed below by case number corresponding to Reference Attachment #1.
+
+Case # 3
+
+Terminate payments to 2nd and 3rd dependents,
+daughters of Benito BLANCO Cruz. Both daughters
+are over 21 years of age.
+
+Case # 4
+
+Terminate 2nd and 3rd dependents, married brothers
+of Manuel BLANCO Navarro and substitute the father,
+Manuel BLANCO Canisal, as 2nd dependent.
+
+Case # 8
+
+Terminate payment to 2nd dependent of Daniel
+FERNANDEZ Mon and pay only $175 to mother, Lucia
+DON Puerten.
+
+Case # 16
+
+Terminate payments to 2nd and 3rd dependents,
+parents of Benjamin QUINTANA Perera, who are
+apparently not receiving any financial assistance
+and may actually be deceased. Although there is
+some question regarding the legal status of 1st
+dependent, deceased claimed her as his wife and
+payment should continue until further notice.
+
+continued......
+
+UFGW-6306
+
+S E C R E T
+
+<table>
+   <tr>
+    <td>
+     S DEC 1968
+    </td>
+   </tr>
+  </table>
+
+19-124-25/3
+
+30 Nov 68
+
+WH/COG Nancye Gratz mak
+
+2578
+
+Distribution:
+
+1 - WH/COG/ESEC
+
+1 - WH/COG/MO
+
+Thomas J. Flores
+
+① - C/WH/COG C/WH/COG Robert Ortman
+
+WH/COG/MO
+
+C/WHD
+
+William V. Broe

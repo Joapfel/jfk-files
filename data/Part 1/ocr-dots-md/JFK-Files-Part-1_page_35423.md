@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_35423.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+Letters to the Acosta signed "Pepe" will contain S/W; letters to the Acosta address signed "Luis" will be written on S/W carbon and indicate resupply of S/W material.
+
+NOTE: Subject can receive or send S/W messages using the AMTUNK/10 S/W System.
+
+NOTE: Emergency commo: if contact cannot be made through above systems, AMTHIP/1 in NYC can probably arrange a means of contacting subject.
+
+C/O: Wainwright (Formerly)
+
+SECRET

@@ -1,0 +1,20 @@
+# JFK-Files-Part-1_page_34966.png
+
+Convert to Markdown14-0000
+
+TRANSLATION
+
+Miami 7 May 1967
+
+Mr.
+
+The only paper that I have in my possession is my daughter's
+birth certificate. My marriage certificate is in Cuba. I cannot
+send anyone to get it because the person who *xxixxx* goes to get
+it would be persecuted because the name of my husband is on it.
+
+Attached is the child's certificate. I would appreciate k
+your letting me know if this is sufficient since trying to obtain
+mine would be difficult.
+
+/s/ Teresa SUAREZ

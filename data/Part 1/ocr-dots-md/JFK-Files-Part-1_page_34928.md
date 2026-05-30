@@ -1,0 +1,40 @@
+# JFK-Files-Part-1_page_34928.png
+
+Convert to MarkdownPROTECTIVE MUTUAL LIFE INSURANCE
+
+Florida Branch Office.
+
+MIAMI, FLORIDA
+
+P. O. B. 701
+Miami, Fla. 33144
+
+Miami, August 7, 1967
+
+MRS. MARIA CERIUDA
+Colina 33
+Jesus del Monte
+Havana, Cuba
+
+Dear Mrs. Cermuda:
+
+In response to your request for funds to be able to leave Cuba,
+we wish to advise you that the only legal means by which passage
+can be purchased with US dollars is from Iberia Airlines in Ma-
+drid for persons desiring to leave Cuba.
+
+Please let us know if you agree, in which case you must send us
+the names of your daughter, sister, father and yours as they ap-
+pear in the Passports, and we will send the necessary funds to
+Madrid for purchase of tickets and Iberia Airlines in turn will
+notify its Havana Office that the passages have been prepaid and
+the Havana Office will then notify you that the passages are avail-
+able.
+
+Please contact us through our new mailing address shown above.
+
+JPB/kw
+
+Sincerely yours.
+
+JOHN PAULBATH

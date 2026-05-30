@@ -1,0 +1,22 @@
+# JFK-Files-Part-1_page_35066.png
+
+Convert to MarkdownCUBAN DEMOCRATIC REVOLUTIONARY FRONT
+FINANCE DEPARTMENT
+
+CHECKS OF OCTOBER CANCELLED IN NOVEMBER
+
+November 1 to 30, 1960
+
+ANNEX "I-T"
+
+| Date | Check No. | Total |
+|---|---|---|
+| Oct. 4 | Manuel Comellas - Payroll | 82 $ 125.00 |
+| Oct. 6 | Luis Farajón - Payroll | 92 350.00 |
+| Nov. 18 | Antonio Locada - To be justified | 205 200.00 |
+| Nov. 28 | Tacuba Printing - Publicity | 276 300.00 |
+| Nov. 29 | Tacuba Printing - Publicity | 278 200.00 |
+| Nov. 29 | Vicente A.Romeo - Publicity | 281 105.00 |
+| | | **$ 11,280.00** |
+
+NOTE: The amounts of these checks was considered in October, as part of the total amount of the accounts to which each one of them corresponds. They were no cashed in the bank, because they were cancelled on November, reason for what the total amount of them is considered in this month as an increase in the balance in bank shown in our books.

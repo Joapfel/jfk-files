@@ -1,0 +1,51 @@
+# JFK-Files-Part-1_page_35236.png
+
+Convert to MarkdownMiami, 6 September 1960
+
+Executives
+Democratic Revolutionary Front
+
+Dear Sirs:
+
+Attached herewith we are submitting the REPORT corresponding
+to the month of August of the current year which contains the
+following:
+
+Statement "I": Statement of Receipts and Expenditures
+         Bank Conciliation
+
+Attachment "I-A": Assets
+
+Attachment "I-B": Propaganda
+
+Attachment "I-C": Administrative and General Expenses
+
+Attachment "I-D": Payroll
+
+Attachment "I-E": Trips
+
+Attachment "-F": Sustenance and Rents
+
+Attachment "I-G": Communications
+
+Attachment "I-H": Students' Section
+
+Attachment "I-I": Commissions and Delegations
+
+Attachment "I-J": Miscellaneous
+
+Attachment "I-K": Checks to be Justified
+Summary of Receipts and Expenditures
+Operations
+
+Attentively,
+
+(signed)
+CP Enrique Ros
+
+* (signed)
+CP Mario Girbau
+
+(signed) Juan Paula
+
+Public Accountant

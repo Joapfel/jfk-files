@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_34469.png
+
+Convert to MarkdownSECRET FOR ONLY
+
+3. Nosenko had been a KGB officer for approximately ten years at the time of his defection. Nosenko has provided a large quantity of counter-intelligence data and a limited amount of positive intelligence. For example, one of his reports played a part in the negation of a major hostile penetration in Great Britain. Where appropriate, his information has been shared with the FBI, other U.S. Government agencies and foreign liaison services. This has resulted in extensive and continuing investigative activity. In addition, Nosenko identified many hundreds of Soviet Intelligence Officers and provided a considerable quantity of useful information on the organization of the KGB, its operational doctrine and its techniques and methods.
+
+4. In debriefing him it became apparent that Nosenko, the privileged and undisciplined son of a former ranking Minister of the Soviet Government, was a particularly complex personality, one given to exaggeration of his own importance. In this regard, certain aspects of his life history, when weighed against other information already in our possession, raised some doubts concerning his veracity. To permit extensive and prolonged debriefing, arrangements were made to accommodate Nosenko under highly secure conditions. These arrangements were dictated, during the initial phases at least, by the additional need to provide Nosenko with continuing personal protection since there was the distinct possibility that, as a KGB officer,
+
+2 SECRET FOR ONLY

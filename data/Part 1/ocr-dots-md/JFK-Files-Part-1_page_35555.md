@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_35555.png
+
+Convert to MarkdownThe following charges, an ad valorem tax, and license rental, to be paid on other organizations:
+
+Studio location - 2/50 70.00
+Studio match and setup - 1/50 114.00
+Production and (Rear)混音 - 1/50 136.50
+Programs for music, radio,录影, and TV shows - 1/50 57.00
+Miscellaneous - 1/50 70.00
+
+TOTAL: 1,923.50
+
+THE FIRST NATIONAL BANK OF MIAMI NO. 389048
+
+PAY TO THE ORDER OF RADIO AMERICAS, INC. 1.050.50
+
+FIRST NAT STK 557.060 AND 50 CTS
+
+CASHIER'S CHECK
+
+⑈0631⑈0058⑈ ⑆000⑉50⑈0⑈

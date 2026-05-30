@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_35065.png
+
+Convert to MarkdownCUBAN DEMOCRATIC REVOLUTIONARY FUND
+FINANCE DEPARTMENT
+
+MISCELLANEOUS
+"FAULA AND SOSA"
+
+November 1 to 30, 1960
+
+ANNEX "I-S"
+
+| Date | Description | Check No. | Total |
+| :--- | :--- | :--- | ---: |
+| Nov. 1 | Confidential expenses (Dr.Carrillo - R.V.) | 389 | $ 500.00 |
+| Nov. 1 | Expenses of a messenger to Havana | 408 | 100.00 |
+| Nov. 1 | Expenses of a messenger to Havana | 411 | 129.60 |
+| Nov. 3 | Confidential (Dr. Varona) | 512 | 2,000.00 |
+| Nov. 4 | Furniture and equipment purchased by Mr. Ros, for the Miami Delegation office, and that were transferred from it by Mr. Leopoldo Morffi. For that reason they are considered as a lost. | 523 | 371.63 |
+| Nov. 7 | Operation "Savannah" | 552 | 120.00 |
+| Nov. 9 | Confidential (Traveling tickets) | 586 | 43.20 |
+| Nov. 10 | Secret Service A.Torres | 588 | 50.00 |
+| Nov. 18 | Purchase of military texts | 707 | 100.00 |
+| Nov. 21 | Expense charged by mistake and reimbursed by Mr. Ros | 730 | 70.90 |
+| Nov. 21 | Transference, from Mexico to Miami, of Dr. Rasco's family | 747 | 700.00 |
+| | | | **$4,185.53** |
+
+See credit on schedule "I-S"

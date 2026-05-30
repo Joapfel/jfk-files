@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_34934.png
+
+Convert to Markdown14-00000
+
+Mrs. Maria Cernuda
+Colina 53
+Jeana del Monte
+Habana, Cuba
+
+Mr. John Paulbath
+Protective Mutual Life Insurance
+P.O.B. 701
+MIAMI, Fla. 33144
+U.S.A.
+
+NOTIFIED
+SEP 23 '67
+
+VIA AEREA - PAR AVION

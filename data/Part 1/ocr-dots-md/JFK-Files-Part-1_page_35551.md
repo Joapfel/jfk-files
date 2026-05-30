@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_35551.png
+
+Convert to Markdown14-00000
+
+WR U L
+===
+
+| | Caring | Amount | Carbon Cloud # |
+| :--- | :--- | :--- | :--- |
+| 1344 | 1-31 Dec | $2,733.75 | 3-69784 |
+| ? | 1-15 Nov | | ? |
+| 1389 | 16-30 Nbr | $ 667.00 | 376168 |
+| 1399 | 1-31 Dec. | $1,316.25 | $ accr |
+| | | | 1,923.75 |
+| 1419 | 1-31 Jan | $1,316.25 | 382709 |
+
+Vickra says: pls check your books
+to see whether or not she ours are
+for same program.

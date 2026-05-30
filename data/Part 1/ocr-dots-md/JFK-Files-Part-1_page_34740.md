@@ -1,0 +1,29 @@
+# JFK-Files-Part-1_page_34740.png
+
+Convert to Markdown14-00000
+
+D
+
+Selva Heredia - Nueva Inglesie State
+Born: 11 Jun 1936
+Res: 180 SE 14 Janice
+Miamis Fla.
+
+Chilean. Edilio Agu. 2
+Reginal " 6
+
+2) Manuel Guillo - wife Virginia Castellano
+Born 22 Dec 1905 - Born 24 Jun 1992
+Res: 3488 N.E. 3rd St. #2
+Miami F.la.
+
+3) Rosa Robosa
+Born 3 Dec 1925
+Res: 1152-1 SW 10th St Apt. 1
+Miami Fla.
+
+Children.
+Francisco - Age 17
+Alfonso " 12
+Manuel " 6
+Jose Antonio " 4

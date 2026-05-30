@@ -1,0 +1,9 @@
+# JFK-Files-Part-1_page_34534.png
+
+Convert to Markdown12. Some questions about visas could be put to Nosenko based on information provided in the book, Your Trip to the USSR (A Tourist's Manual). The book is published by Foreign Languages Publication House, Moscow. Although there is no date of publication in this book, the information provided in the book strongly suggests that it was published no later than 1962. The information states that "it should not take more than a week to receive one's visa." The applicant must fill in and sign an application form (sample enclosed) and enclose three photographs of passport size as well as a copy of the Intourist or Intourist contractor firm voucher to the effect that the applicant has paid the full cost of the tour. The tourist need not apply to the Soviet consulate in person, as the tourist firm will take care of the matter.
+
+APPLICATION FORM
+
+For Persons Who Wish to Obtain an Entry Visa to the U.S.S.R. or a Transit Visa Through the U.S.S.R. (Write clearly in ink or type all answers in full)
+
+<table><thead><tr><th>QUESTIONS</th><th>ANSWERS</th></tr></thead><tbody><tr><td>1. Surname, name and patronymic (persons who have more than one surname, or who have pen names, must list them in full; married women and widows must give their maiden name and their husband's surname)</td><td></td></tr><tr><td>2. Date and place of birth</td><td></td></tr><tr><td>3. Nationality</td><td></td></tr><tr><td>4. Citizenship. If you were formerly a citizen or subject of another country, indicate former citizenship.</td><td></td></tr><tr><td colspan="2">Place of present residence and profession:</td></tr></tbody></table>

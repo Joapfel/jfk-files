@@ -1,0 +1,21 @@
+# JFK-Files-Part-1_page_34463.png
+
+Convert to MarkdownEMERGENCY INSTRUCTIONS
+(Continued)
+
+3. At the first available opportunity, the EGA should call the SAC or ASAC, or if they cannot be reached, a senior DFO Agent, and furnish him with full particulars concerning the situation and the action being taken.
+
+ESCAPE OR ATTAINING ESCAPE
+
+1. Strict vigilance and security should be maintained on a 24 hour basis in accordance with established procedures in order to discourage and prevent the SUBJECT's escape. If SUBJECT should make an attempt to escape, sufficient force should be used as is necessary under the circumstances in order to subdue the SUBJECT and maintain custody and control over him. However, unnecessary brutality and the indiscriminate use of force will not be condoned.
+
+2. All personnel assigned to the Special Security Detail on duty at the site shall be alerted by means of the emergency alarm and/or other appropriate means, and brought into play on any escape attempt. Should the SUBJECT succeed in escaping from the house proper, the SSA shall be responsible for coordinating and directing a hot pursuit of the SUBJECT by all means available.
+
+3. The use of firearms should be scrupulously avoided except in extreme circumstances of self-defense. However, the SSA under circumstances that indicate there are no other means of preventing SUBJECT's total escape, may direct a qualified firearms-trained agent to fire shots over SUBJECT's head followed by verbal warning to halt. In no event, except in self-defense as stated above, will an agent shoot directly at the SUBJECT.
+
+4. At the first available opportunity, the SAC/DFO, or in his absence, one of the ASACS, should be telephonically advised of all the circumstances surrounding an escape attempt. In no case shall the Police be notified unless authorized by the SAC or ASAC.
+
+ILLNESS OR IllERY
+
+1. In case of sudden illness or serious injury to the SUBJECT,
+Dr. Charles BOHRER, or other physician designated by him in the event

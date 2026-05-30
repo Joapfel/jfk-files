@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_34925.png
+
+Convert to MarkdownP.O. Box 701
+Miami, Florida 33101
+
+Dear Mr. Friedman:
+
+This is in regard to your letter of September 19, 1967 requesting to be advised of the reason for the discontinuance of payments heretofore made to Mrs. Miguelina Teurbe Fritz.
+
+Financial assistance had been made available to Mrs. Fritz with the mistaken understanding that she was the surviving widow of Roberto PEREZ Cruzata. That assistance was in the nature of a gratuity and was in no way based on a contract of insurance.
+
+As indicated in my letter of December 31, 1960, a review of this matter showed that Mrs. Fritz had never been married to Roberto PEREZ Cruzata and, therefore, was not his widow. Upon finding that she lacked the requisite status, it became necessary to discontinue financial aid.
+
+While your interest in this matter is understandable, I must advise that no further payments can be made.
+
+Sincerely yours,
+
+John L. McKercher

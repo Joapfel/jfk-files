@@ -1,0 +1,35 @@
+# JFK-Files-Part-1_page_35179.png
+
+Convert to MarkdownSTATEMENT OF EXPENSES
+
+ANNEX "A"
+Page No.12
+
+| Check No. | Description | Check No. | Total |
+| :--- | :--- | :--- | ---: |
+| 1200 | Castón Pérez | | $50.00 |
+| 1261 | Humberto Cortina L. | | 250.00 |
+| 1262 | Luis Regalado | | 100.00 |
+| 1263 | Armando Ruiz A. | | 175.00 |
+| 1264 | Ernesto Abreu A. | | 175.00 |
+| 1265 | Juan F. Abreu Horta | | 175.00 |
+| 1266 | Rafael Villaverde L. | | 225.00 |
+| 1267 | Luis E. Martínez C. | | 225.00 |
+| 1268 | Pedro Kontero | | 275.00 |
+| (Soc.Work) | | | 300.00 |
+| 1270 | | | -0- |
+| (Soc.Work) | | | 225.00 |
+| 1272 | | | -0- |
+| (Soc.Work) | | | 250.00 |
+| (Soc.Work) | | | 325.00 |
+| (Soc.Work) | | | 225.00 |
+| (Soc.Work) | | | 300.00 |
+| (Soc.Work) | | | 275.00 |
+| (Soc.Work) | | | 275.00 |
+| 1279 | | | -0- |
+| (Soc.Work) | | | 300.00 |
+| (Soc.Work) | | | 250.00 |
+| (Gen.Staff) | | | 250.00 |
+| (Gen.Staff) | | | 250.00 |
+
+(Continues page No.13)

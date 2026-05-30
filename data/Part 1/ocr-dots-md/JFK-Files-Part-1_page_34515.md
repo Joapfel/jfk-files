@@ -1,0 +1,13 @@
+# JFK-Files-Part-1_page_34515.png
+
+Convert to Markdown# DEFECTORS
+
+| TAB | TITLE | DATE |
+|---|---|---|
+| 1 | Memo for Mr. Garrison from S. D. Breckinridge, Subj: Information on Detention of Defector | 30 Jan '75 |
+| 2 | Memo for IG from Jerrold B. Brown, Subj: Request for Information (re: Report that DCI fired an employee for abusing a defector) | 18 Jun '75 |
+|  | MFR from Walter Elder, Subj: Rockefeller Commission Contact (re: Report that DCI fired an employee for abusing a defector) | 23 Jun '75 |
+|  | Memo for IG from C. W. Kane, Subj: Alleged Illegal Activities (Unidentified Subject -- Alleged Abuse of Defector) | 27 Jun '75 |
+| 3 | Routing Slip to S.-Breckinridge from F. Bucci | 22 Jan '75 |
+| 4 | Att: Memorandum of Agreement Between the Attorney General of the United States and the Central Intelligence Agency for the Entry of Aliens of Interest to the Central Intelligence Agency under Specific Circumstances | 10 Feb '75 |
+|  | Memo for Inspector General from Jerrold B.Brown, dated 18 June 1975, Subject: Request for Information (ro- DCI firing an employee for abusing a defector) | 18 June 1975 |

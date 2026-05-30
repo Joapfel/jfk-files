@@ -1,0 +1,27 @@
+# JFK-Files-Part-1_page_35514.png
+
+Convert to MarkdownC O P Y
+
+CYC10: 65-2-2
+
+May 1, 1965
+
+Dobert C. Mroughty, B.B.
+President
+Dothan County Medical Ass'n. Inc.
+1950 U.N. South Avenue
+Madison, Florida 33136
+
+From Airs
+
+The following charges are for broadcast news,
+studio rental, tapes and other expenses.
+
+Photo station fee - $65 150.00
+Studio rental and tapes - 1/65 125.00
+Production and talent fees - $65 125.00
+Programs for N.L.T., New York Insv., Studio Time and Postage - $65 150.00
+---
+TOTAL $710 1,982.50
+
+Payables to PUTO ATTN: IN.

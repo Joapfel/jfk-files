@@ -1,0 +1,18 @@
+# JFK-Files-Part-1_page_35287.png
+
+Convert to Markdown# CLANDESTINENESS
+
+July 31, 1962
+
+| | Annex "III" |
+| :--- | ---: |
+| Balance on July 1, 1962. | $ 33,500.00 |
+| Deposit (For July) | 25,000.00 |
+| July Expenses (See Annex "III-A") | $ 58,500.00 |
+| Balance on July 31, 1962. | $ 39,500.00 |
+
+NOTE: The July 26, deposit will be considered in August report.
+
+This balance of $39,500.00 is due to the fact that amounts are not given to the Organizations until they have justified the amounts previously handled to them.
+
+nn.

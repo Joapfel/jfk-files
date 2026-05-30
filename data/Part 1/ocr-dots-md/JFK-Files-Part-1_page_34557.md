@@ -1,0 +1,15 @@
+# JFK-Files-Part-1_page_34557.png
+
+Convert to MarkdownTOP SECRET
+
+UNCLASSIFIED when blank—TOP SECRET when attached to Top Secret Document—Automatically downgraded to SECRET when filled in form is detached from controlled document.
+
+CONTROL AND COVER SHEET FOR TOP SECRET DOCUMENT
+
+<table><thead><tr><th>DOCUMENT DESCRIPTION</th><th></th><th>REGISTRY</th></tr></thead><tbody><tr><td>Source</td><td>C/SR</td><td>CIA Control No.</td></tr><tr><td>Doc. No.</td><td colspan="2">CSC1-3/781,491</td></tr><tr><td>Doc. Date</td><td colspan="2">19 May 1964</td></tr><tr><td>Copy No.</td><td colspan="2"># Repro 2</td></tr><tr><td>Number of Pages</td><td colspan="2">2</td></tr><tr><td>Number of Attachments</td><td colspan="2"></td></tr></tbody></table>
+
+<table><caption>ATTENTION: This form will be placed on top and attached to each Top Secret document received by the Central Intelligence Agency or classified Top Secret within the CIA and will remain attached to the document until such time as it is downgraded, destroyed, or transmitted outside of CIA. Access to Top Secret matter is limited to Top Secret Control personnel and those individuals whose official duties relate to the matter. Top Secret Control Officers who receive and/or release the attached Top Secret material will sign this form and indicate period of custody in the left-hand columns provided. Each individual who sees the Top Secret document will sign and indicate the date of handling in the right-hand columns.</caption><thead><tr><th rowspan="2">REFERRED TO<br/>Office</th><th colspan="3">RECEIVED</th><th colspan="2">RELEASED</th><th colspan="3">SEEN BY</th></tr><tr><th>Signature</th><th>Date</th><th>Time</th><th>Date</th><th>Time</th><th>Signature</th><th>Office/Div.</th><th>Date</th></tr></thead><tbody><tr><td>DDP(TSCO)</td><td>B. Swigg</td><td>15 JUN<br/>1970</td><td>13</td><td>2</td><td>13</td><td></td><td></td><td></td></tr><tr><td>PCI/OLC<br/>Scotf Brickebridge</td><td>S. Stavridt</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>D/D/TSCO B. Swigg</td><td></td><td>19 JUN<br/>1970</td><td></td><td>19 JUN<br/>1970</td><td></td><td></td><td></td><td></td></tr><tr><td>Stevie<br/>L/DOJ/DMcNamair</td><td></td><td>19 Jun 78</td><td></td><td>19 June 78</td><td></td><td></td><td></td><td></td></tr><tr><td>L/C (MCCAY)</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>DDO/TSCO B. Swigg</td><td></td><td>20 UN<br/>978</td><td></td><td>20 JUN<br/>1978</td><td></td><td></td><td></td><td></td></tr><tr><td>DCI/OCC<br/>Brickebridge or Harvelsen</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>DDO/TSCO</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+NOTICE OF DETACHMENT: When this form is detached from Top Secret material it shall be completed in the appropriate spaces below and transmitted to Central Top Secret Control for records.
+
+<table><thead><tr><th colspan="2">DOWNGRADED</th><th colspan="2">DESTROYED</th><th colspan="

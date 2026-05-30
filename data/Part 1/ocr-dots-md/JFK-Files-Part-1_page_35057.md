@@ -1,0 +1,28 @@
+# JFK-Files-Part-1_page_35057.png
+
+Convert to Markdown# MILITARY SECTION
+
+LATE "J-L"
+
+Page No. 2
+
+Date
+
+Check No.
+
+Total
+
+MISCELLANEOUS: (Cont.)
+
+Nov. 19 Equipment reparation - Transportation Committee (FL.Díaz Lanz) 727 $ 600.00
+Nov. 21 Expenses strictly confidential 744 160.00
+Nov. 22 Purchase of one radio (F.Zayas) 760 65.00
+Nov. 28 Naval Section Payroll 823 1,938.50
+Nov. 28 Purchase of a radio-plant (Communications) 827 600.00
+Nov. 28 Confidential 828 60.00
+
+Total $14,997.98
+
+TOTAL "MILITARY SECTION" $53,295.52
+
+amr.

@@ -1,0 +1,17 @@
+# JFK-Files-Part-1_page_34597.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR: The Inspector General
+SUBJECT : The Nosenko Case
+
+Attached please find a summary of a document written in 1967 to the General Counsel outlining the Nosenko case and explaining to him actions which had been taken with regard to Nosenko. As noted in the first paragraph, in October 1967 Nosenko took up residence in the Washington area and was advised that, should he wish to leave the apartment for any location whatsoever, he was free to so do. In other words, from that date, Nosenko was essentially a totally free man. That he chose not to flee in any way may be indicative of his attitude toward the manner in which he was handled prior to October 1967.
+
+While one can criticize the fact that Nosenko was kept incommunicado for approximately three years, and therefore presumably denied full civil rights, the attached document does indicate, we believe, that the Agency was on the horns of a dilemma in this regard. There were legitimate doubts about Nosenko's bona fides and concern that he was a Soviet plant. There was no country to which he could be deported save the Soviet Union, and Nosenko himself refused to return there. Yet, in the United States, save when isolated from society, he was considered to be a continuing threat to national security.
+
+Recognizing that only legal experts can judge definitively the merits of the case, it seems to the writer that the Agency had no choice but to hold Nosenko incommunicado pending resolution of his bona fides. He was admitted to the United States under the provisions of Section 212 (d) (5) of the Immigration and Nationality Act, namely as a parolee to the Agency. As a parolee, Nosenko de facto from the date of his entry to the United States did not enjoy the full civil rights of the normal citizen. He was a ward of the Agency, in a sense, and the Agency was ultimately responsible for his
+
+E2 IMPDET
+CL BY 018307
+
+SECRET

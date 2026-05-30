@@ -1,0 +1,19 @@
+# JFK-Files-Part-1_page_35483.png
+
+Convert to MarkdownCharla con el profesor Agustín P. Pons
+
+# Posible un intercambio de médicos de Cuba y España
+
+Por JORGE COO
+De la Redacción de EL MUNDO
+
+Lo mejor que he visto en día de fensá que ofreció en Cuba son sus médicos, así ce el salon de actos del Colegio expresó el doctor Agustín Pe- Médico Nacional. El doctor dro Fons, сининае médico Pons es ampliamente conocil español, durante la conferen do en los grandes centros asisterciales de Europa, en dorde en materia da Clíника Médica es llamado con jus- ticia El Maestro. Ha sido ade- más, presidente del Instituto Médico farmacéutico y pre- sidente de la Academia de Ciencias Medicas, siendo en la actualidad su presidente de honor.
+
+Actualmente se encuentra de visita en nuestro país, acompañado por su auxiliar el docto Pedro Botet invita- mos por el Consorcio Científico del Ministerio de Salud Pú- blica y el Colegio Médico Na- cional.
+
+A una pregunta sobre su impresión de nuestro sistema foráneo en la P ág. 2, (s. et. 2).
+
+Sejo de en ma-
+bril"
+de lo
+I V

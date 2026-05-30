@@ -1,0 +1,33 @@
+# JFK-Files-Part-1_page_35202.png
+
+Convert to MarkdownCIVILIAN STATEMENT OF RECEIPTS AND EXPENDITURE OPERATIONS
+
+Proceeding from the conciliated balance of 30 June 1960 of $2,868.95,
+we added to it a loan received from Dr. Justo Carrillo Hernandez in the
+amount of $1,500.00, receipts from the Department of Finances in the amount
+of $8,000.00 and a spontaneous contribution from an anti-communist admirer
+from South America in the amount of $30.00. We arrived at a total of
+$12,398.95 of cash on hand for the month of July 1960.
+
+If from the total of cash on hand for the month of July 1960 we
+subtract the expenditures which are:
+
+Traveling expenses (see Attachment 1)      $6,002.46
+Propaganda (see Attachment 2)            1,172.38
+Personnel (see Attachment 3)            1,136.00
+Sustenance and rents (see Attachment 4)   559.50
+Communications (see Attachment 5)        960.75
+Students' Section (see Attachment 6)     220.00
+Office supplies (see Attachment 7)        219.19
+Miscellaneous (see Attachment 8)          1,577.38
+
+we have a total of cash on hand at the Florida National Bank and Trust
+Company on 31 July 1960 of $550.79. There exists on this date a $100.00
+Fixed Fund which increases the cash on hand by this amount.
+
+TRAVELING EXPENSES
+
+In Attachment 1 you may observe to whom the various checks were issued
+as well as the amount of each expenditure. Although entry #1 is charged to
+Dr. Luis Aguilar Leon, according to verbal information, only $200.00
+corresponds to this gentleman and the remaining $100.00 corresponds to

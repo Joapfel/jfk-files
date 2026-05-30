@@ -1,0 +1,16 @@
+# JFK-Files-Part-1_page_35022.png
+
+Convert to MarkdownDELAYS, TACKS
+
+ANEX "I-N"
+Page No. 5
+
+RESUME:
+
+| | Payroll | Others | Total |
+| :--- | ---: | ---: | ---: |
+| LATIN<br>NORTH AMERICANS | $ 4,025.00 | $ 558.55 | $ 4,583.55 |
+| | 5,670.00 | 4,528.00 | 10,198.00 |
+| **TOTAL** | **$ 9,695.00** | **$ 5,086.55** | **$14,781.55** |
+
+ml.

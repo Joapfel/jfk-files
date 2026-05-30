@@ -1,0 +1,23 @@
+# JFK-Files-Part-1_page_35388.png
+
+Convert to Markdown14-0000
+
+SECRET
+
+20 October 1961
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Meeting with Dr. Miro in New York City on October 16, 1961
+
+The meeting with Dr. Miro on October 16 was postponed from 10:00 until such time as his audience terminated with Cardinal Spellman. He arrived at my room at about 10:50. He declared that the Cardinal had went when he learned the details of the suffering of the Cubans at the hands of Castro; declared that the Archbishop of Miami wasn't doing enough for the Cuban refugees; that the U.S. wasn't doing enough for them; that Castro must be overthrown. Piro told the Cardinal that in all Latin America there were going to be organized acts of sympathy for the Cuban sufferers. The Cardinal said he would say a mass for them on October 17. He invited Piro to see him at any time.
+
+Miro answered my query as to the Laceraa affairs by stating that it was very successful; 2,800 people were inside the auditorium and another 1,000 people outside; that Laceriaa had received such applause.
+
+The Inter-American Press Association affairs also had given an opportunity to present the Cuban tragedy. He said that he (Piro) had told how Fidel had shot 31 people in September alone, and other details; had described how Communist was gaining ground day by day; that in Cuba they have installed a powerful radio station broadcasting to Latin America; that ten countries have broken with Cuba, but Argentina has not; that everybody is confused.
+
+He informed me that as for the documents relating to the Cuban plots in Argentina, the Argentine military man can talk to Varona, and he gave them some documents that have no importance. The officers told Varona textually "We have no confidence in the Argentine Foreign Office," nevertheless, when they arrived there, they turned over the documents to the Foreign Office. But these documents had no importance; they were merely to demonstrate that there had been an extradition of documents, and that they were originals. The important documents are held by Varona in Miami.
+
+Miro said they also visualized another act involving Laceraa in Miami, but that his "ad'inistrative" budget really does not provide for propaganda activities (such as the Current SF and Laceraa affairs). I countered that it was considered that his budget was sufficient for his to conduct some propaganda activities; obviously nothing on a major scale -- but some things.
+
+SECRET

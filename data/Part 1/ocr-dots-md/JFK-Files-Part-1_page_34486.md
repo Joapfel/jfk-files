@@ -1,0 +1,31 @@
+# JFK-Files-Part-1_page_34486.png
+
+Convert to MarkdownSECRET
+
+to the effect that Nosenko considers this approach to repre-
+sent blatant and cruel manipulation of his family by the KGB
+and that he will not lend himself to the scheme by agreeing
+to an interview or in any other way.
+
+Nosenko's Status
+
+To recapitulate, Nosenko entered the United States on
+12 February 1964 on parole to the Agency under the provisions
+of Section 212 (d) (5) of the Immigration and Nationality
+Act. Parole responsibility is delegated to the Agency by
+the Attorney General under the terms of an agreement executed
+by the Attorney General and the FBI on 10 February 1955,
+which states:
+
+"After parole of such aliens, the Central Intel-
+ligence Agency will assume responsibility for
+care, supervision and control of a kind and
+degree it believes consistent with the internal
+security needs of the United States during con-
+tinuance of their parole status."
+
+In accordance with our understanding of this agreement, and
+because we had reason to believe that Nosenko was a conscious
+and willing agent of a hostile intelligence service, we
+ensured that he was under our direct observation and control
+at all times from the moment of his arrival in the United
