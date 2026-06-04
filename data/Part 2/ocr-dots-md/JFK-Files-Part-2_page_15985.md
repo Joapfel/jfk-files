@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_15985.png
+
+Convert to MarkdownIII. TRAVEL AND ARRESTS OF
+CHICAGO BLACK PANTHER PARTY (BPP)
+
+A. Travel of Chicago BPP
+
+On November 1, 1968, BOBBY LEE RUSH flew to National Headquarters, Oakland, California, where he met national leaders of BPP. RUSH returned to Chicago on November 4, 1968.
+
+11/7/68)
+
+On March 8, 1969, BOBBY LEE RUSH and WILLIAM O'NEAL, both leaders, Chicago BPP Chapter, arrived San Francisco by air, having departed Chicago, Illinois, at 4:00 p.m., March 8, 1969. RUSH and O'NEAL were in contact with national leaders of BPP at Berkeley, California, and returned to Chicago on the evening of March 13, 1969.
+
+3/14/69)
+
+Chicago BPP members have not utilized commercial transportation outside of Chicago other than on two trips to National Headquarters, San Francisco and Berkeley, California, in November, 1968, and March, 1969.
+
+Chicago BPP members have made several trips in personally owned vehicles, and on one occasion in a privately owned aircraft to the Champaign-Urbana, Illinois, area.
+
+2/28/69)
+
+In March, 1969, Chicago BPP members traveled to Detroit, Michigan, for conference with BPP members.
+
+3/21/69)

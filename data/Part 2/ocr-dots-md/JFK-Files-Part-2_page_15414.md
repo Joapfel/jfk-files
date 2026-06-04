@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_15414.png
+
+Convert to MarkdownMemorandum Mr. Donahoe to Mr. Belmont
+
+Re: Intelligence Coverage of Friendly Foreign Countries
+(Semiannual Evaluation)
+
+65-63113
+
+PAST OR PRESENT WEAKNESSES:
+
+No weaknesses have cropped up in the past six months. Over-all program is operating smoothly and effectively.
+
+REVIEW OF PROGRAM AT INTERNAL SECURITY - ESPIONAGE CONFERENCE 6/9-10/60:
+
+At this Conference, captioned program was reviewed. Consideration was given to questions whether we should endeavor to develop sources at establishments outside Washington and New York City and whether we should relax our procedures to permit more direct approach during interviews with potential sources. Conference concluded that probability of there being important intelligence data within foreign official establishments outside Washington and New York City was too remote to warrant expenditure of manpower and money for purpose of endeavoring to expand program in this direction at this time. With regard to relaxing requirement that potential sources be interviewed under suitable pretext, preferably of a criminal nature, Conference felt we are operating in too delicate an area to let down safeguards at this time. Conference agreed that New York and Washington Field Offices should, on a highly selective basis, endeavor to develop higher-level sources where situation permits such efforts by making approaches to them through sources currently being operated on lower levels (such as chauffeurs, clerks, secretaries, et cetera, in diplomatic establishments). This will be done.
+
+ADMINISTRATIVE CONTROLS:
+
+Controls are exercised on day-to-day basis through review of outgoing instructions to field. Technical surveillances are subject to 90-day evaluations. No interviews are conducted of potential sources without specific State Department clearance. Control file is maintained to which copies of pertinent correspondence are regularly routed. Semi-annual evaluation of program encompasses review of control file.
+
+ADEQUACY AND CURRENTNESS OF INSTRUCTIONS:
+
+Review of control file discloses instructions are current and adequate.
+
+OVER-ALL VALUE:
+
+For the most part, this program consists of a coordination of accepted investigative and intelligence procedures for the purpose of proper direction, redirection when indicated, and administrative controls.

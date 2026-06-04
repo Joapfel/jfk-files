@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_9625.png
+
+Convert to Markdownpreparation for advanced training in these three important activities which will be dealt with in greater detail further on in the training program.
+
+## INTELLIGENCE
+
+Underground warfare, as we customarily think of it, cannot succeed unless it is supported by a well developed organization comprising all the essential functions of intelligence, security, propaganda, communications, supply, medical services, etc.
+
+Of all these, intelligence is most important. Let's consider one example: Suppose you picked up a telephone book, opened it at random, closed your eyes and put your finger on one name. Now suppose you read that name for the first time and said to yourself, "Sometime in the next 30 days I'm going to kill this man."
+
+Consider the situation - one man, picked at random is marked for death. He might be the most powerful, the wealthiest, the most influential man in that city but none of those things would help him in the least. He would be defenseless. Why? Because you would have one thing that he did not have - intelligence. You would know his identity and he would not know yours. So long as that condition continued, there would be no possible way in which he could arrange an adequate defense against you.
+
+Exactly the same situation exists between ourselves and our communist and socialist enemies. Our success will be directly proportionate to our knowledge of them and inversely proportionate to their knowledge of us.
+
+Whatever a member's principal job may be in the Secret Army Organization, he must have a basic knowledge of intelligence techniques. This subject is therefore the first to be considered in our training program.
+
+The word "intelligence", when used in a military sense refers to those methods that can be used to gain useful information. We usually think of this as knowledge of the enemy but it also includes information about the terrain, general population, available supplies and all other facts that will help in planning future activities.
+
+Intelligence is roughly divided into three parts:
+
+1. Observation. During a hot war this includes scouting and patrolling, observation of enemy troop movements, etc. On the cold war front this includes shadowing of enemy personnel, surveillance of enemy officers, tapping of telephones, interception of messages, etc.
+
+2. Research and Analysis. Colleging and cataloging all possible useful information from general sources: newspapers, radio, trade magazines, etc., then watching up isolated scraps of information until an accurate picture is obtained of some situation that world not otherwise be known.

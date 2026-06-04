@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_15296.png
+
+Convert to Markdownprovide accurate up-to-date intelligence information. We now have 28 actual and 29 potential live sources at the establishments of 33 non-Soviet-bloc countries. The principal cost involved in this phase relates to Agent time devoted to investigations of sources and time spent in handling these source
+
+## 2. Positive Results Achieved
+
+This program has enabled us to provide the White House and the intelligence community a continuing flow of information affecting the national and international interests of the U. S. Specifically, this information has included details of the plans and activities of those countries involved in the Middle East crisis, details regarding the continuing crisis in Panama, developments related to the recent U. S.-Bolivia crisis, and substantial valuable information regarding developments in the Dominican Republic. In the areas mentioned above as well as in a number of other instances, information developed through this program and disseminated within the U. S. Government has provided recipients current information regarding international political scene and has assisted those responsible for policy-making decisions in these areas. Recently, the U. S. Ambassador to the UN and members of his staff expressed their appreciation for a continuing flow of pertinent data provided to them as regards the Middle East situation. This program produces information of the type necessary to enable the Bureau to fulfill its investigative and internal security responsibilities.
+
+### Extent and Nature of Current Supervision
+
+Prior to Division re-organization (January, 1970), the Number One Man of the then Latin American Section served as coordinator of this program. In this capacity, he was in periodic contact with the Section Chief of the then Nationalities Intelligence Section and with individual supervisors concerning objectives and results achieved. Since Division re-organization, which brought matters involving all friendly foreign countries (except West Germany) under the present Nationalities Intelligence Section, the Number One Man of the Nationalities Intelligence Section serves as coordinator along these same lines.
+
+### Current Justification for Continuation
+
+This program continues to produce information of substantial value as regards Bureau investigative and intelligence interests as well as the interests of other U. S. agencies. The

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_16675.png
+
+Convert to Markdown1
+
+January 16, 1973
+
+Dolo
+
+Photographs were taken at 2337 West Monroe on January 7, 1970. Present were Special Agents *and* Visual Information Specialists. Federal Bureau of Investigation *and* K. WILLIAM O'CONNOR, U.S. Department of Justice Attorney and ANTHONY J. SCIAFFRA, Deputy Coroner.
+
+1/7/70
+
+Chicago, Illinois
+
+File:
+
+by
+
+Date disclosed 1/12/70
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is looned to your agency. NW 88613 Decd: 32199554 be distributed outside your agency Page 2172

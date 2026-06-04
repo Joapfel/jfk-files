@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_16468.png
+
+Convert to Markdown75c
+
+ESSAYS FROM
+THE MINISTER OF DEFENSE
+HUEY NEWTON
+
+71.5
+
+NW 88613 DocId:32199554
+Page 1965
+
+11.5

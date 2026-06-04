@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_19009.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+Possible KGB Approach to Jaffe in New York
+
+Jaffe stated that one man whom he met in New York prior to his Moscow assignment whom he never saw again was Vladimir Barkovski, a Soviet Consular Officer. Jaffe continued: "He asked me to do some work. I had lunch with him in Sardi's Restaurant. Barkovski said, 'When Soviet journalists come over to this country they don't know the American political system. Would you (Jaffe) write out a long brief which would help them?' " Jaffe stated he told Barkovski: "I don't think I could to that. I would have to register as an agent." Jaffe continued: "He got panicky and said, 'we will pay you well.'"
+
+In discussing his Soviet contacts, Jaffe also stated: "Another man who squired me around in Moscow was Nikolay Kalinin. I knew him very well. He was assigned to me. The last I heard, he was in Vienna as Press Officer."
+
+SECRET
+32
+
+NW 88326 DocId:32989704 Page 303

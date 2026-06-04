@@ -1,0 +1,63 @@
+# JFK-Files-Part-2_page_13574.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES; INTERVIEWS OF FBI EMPLOYEES OR FORMER EMPLOYEES
+
+DATE: 5/23/75
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD In
+Asst. Dir.
+
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Invt.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Secy.
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED BY
+
+DATE 1-19-75 BY
+
+At the Executives Conference on May 22, 1975, I presented for discussion the question of the procedures to be followed when former employees or current employees of the Bureau are contacted for interview by staff representatives of the Senate Select Committee, or are called for testimony pursuant to a subpoena issued by the Committee. I explained the background including the numerous attempts to arrive at a working arrangement with the Committee in terms of stated guidelines and that all such efforts in the past had proven unworkable.
+
+I pointed out that when presented with the proposal that an agency representative be present during interviews, the Committee met and voted unanimously to reject that proposal. The issue of whether the agency representative would be present during the interview therefore is a stumbling block to the development of a reasonable procedure to be followed by the Committee and by our present and former employees. I requested the authority of the Executives Conference and approval of the Director to waive the requirement that a Bureau representative be present during interviews and following a vote such approval was given.
+
+I then requested authority to undertake the development of a working understanding with the Committee in behalf of the Bureau by which we would be given notice of the identities of persons to be interviewed prior to interview or testimony, that we would be advised of the subject matter of the
+
+1 - Mr. Callahan
+1 - Mr. Adams
+1 - Mr. Jenkins
+1 - Each Assistant Director
+1 - Mr. Mintz
+JAM:mfd
+
+REC-100
+
+1 - Mr. Hotis
+
+CONTINUED - OVER
+
+17 JUN 10 1975
+
+84 JUN 1 1 1975
+
+NW 88296 Doctd:32989588 Page 99

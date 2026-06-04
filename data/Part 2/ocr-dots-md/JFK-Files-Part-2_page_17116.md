@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_17116.png
+
+Convert to MarkdownThe Indianapolis Division of the Federal Bureau of Investigation (FBI) advised on October 1, 1969, JEWEL COOK, WILLIE CALVIN and CLEVELAND COOK were all arrested in Indianapolis, Indiana, where they had travelled to help the Indianapolis BPP Chapter get back on its feet. The three individuals are BPP Chicago members. These three, according to the Indianapolis Division were arrested for larceny and violation of a local firearms act. In the vehicle they were travelling in, a .38 Cqlt Snubnose revolver bearing Serial Number 223772 was found.
+
+This gun was reported stolen in Chicago on March 24, 1969. Source advised the above individuals were incarcerated in Indianapolis, Indiana on charges of unlawful possession of a weapon and stealing a car battery. The three, according to the source, were in Indianapolis to assist in re-organizing that BPP chapter.
+
+| 10/2/69)
+
+Officer FUNK, Chicago, Illinois Police Department (PD), advised on October 3, 1969, that seven Negro males were arrested at BPP Headquarters following a shooting incident that date during the early morning hours.
+
+Officer WANER, Chicago PD, advised on October 4, 1969 that officer SHAMLEY was injured by a shotgun blast believed to have originated at BPP Headquarters.
+
+Officer LARA, Chicago PD, subsequently advised on October 4, their investigation reflects that the PD responded to a call from an anonymous caller regarding gun shots at Panther Headquarters. When the police arrived, shooting occurred and upon entering Panther Headquarters, seven BPP members were arrested, one shotgun and one .30 caliber Carbin was confiscated.
+
+Source advised the shooting had occurred at Panther Headquarters during the Headquarters during the early morning hours of October 4, 1969 because of trouble recently developing between Vice Lords and the BPP. Source stated the Vice Lords were a Negro youth gang operating on Chicago's West side and had approached the Panthers "wanting
+
+N\W 88613 DocId:32199554
+Page 2613

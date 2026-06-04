@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_13250.png
+
+Convert to MarkdownAtlanta, Georgia
+
+May 12, 1975
+
+WRITER'S OBSERVATIONS
+
+1. Siedel obviously was attempting to verify allegations made by other individuals.
+
+2. All of his questions appeared to have been previously prepared in writing.
+
+3. At one point he commented he was conducting this interview for a colleague (not named).
+
+4. Siedel did not appear satisfied with the results of the interview. It is presumed he considers the writer's cooperation to be minimal.
+
+5. As Siedel prepared to depart he was informed that during 23 years as an agent the writer suffered some adverse administrative action; that these ultimately proved to be experiences from which the writer profited. He was told the writer had "no axe to grind" regarding the Bureau and no intent or desire to accomplish any questionable literary fame."
+
+6. Upon departing Siedel inquired as to the proximity of the Equitable Building (office building) and the First National Bank of Atlanta (also office building). Any significance to these locations was not apparent to the writer. When informed that banking hours terminated at 4:00pm Siedel made no comment.

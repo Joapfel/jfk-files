@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_18882.png
+
+Convert to MarkdownIn Reply, Please Refer to
+File No.
+
+UNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+New York, New York
+
+August 7, 1972
+
+# Sam Jaffe
+
+A confidential source, who has furnished reliable information in the past, advised a Special Agent (SA) of the Federal Bureau of Investigation (FBI), that the July 15, 1972 issue of "UPI Log", the house organ of United Press International, reflected that "Sam Jaffe Special UPI Correspondent has been granted a visa to visit China. He will arrive in early August and will file for the news wires, news pictures, and audio".
+
+The source advised that Jaffe is not on the regular UPI staff, but has done free-lance work for the UPI, such as covering the United Nations General Assembly (UNGA) with a tape recorder. It was the source's opinion that the visa from Mainland China was not arranged for Jaffe by the UPI as they would have sent somebody of more consequence, if they had been able to get a visa. The source also noted that during the UNGA, Jaffe leaned to the Soviet Mission to the United Nations for "behind the scene" type news rather than trying to be friendly with the new Chinese delegation.
+
+The source described Jaffe as a former Moscow correspondent for the Columbia Broadcasting System, who is, or has had, numerous close contacts with Soviet nationals. Source stated that Jaffe later worked as a correspondent for the American Broadcasting Company in Southeast Asia and also did free-lance work for UPI in New York.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
+
+ENCLASURS
+
+ENCLOSURE
+
+NW 88326 DocId:32989704 Page 176

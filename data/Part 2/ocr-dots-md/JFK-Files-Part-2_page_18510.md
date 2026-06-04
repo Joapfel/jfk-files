@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_18510.png
+
+Convert to MarkdownLegal Counsel to Mr. Adams
+
+RE: STATUS OF RESPONSES TO CONGRESSIONAL
+COMMITTEE REQUESTS
+
+| Date of Request | Nature of Request | Status |
+|---|---|---|
+| Letter, 7/14/75 | Request concerning two highly sensitive Bureau programs in the foreign intelligence field. | Response being prepared. |
+| Letter, 7/14/75 | Request concerning COINTELPRO documents. | Response being prepared. |
+| Letter, 7/14/75 | Material pertaining to Martin Luther King. | Awaiting Departmental decision. |
+| Letter, 7/14/75 | Material pertaining to Ku Klux Klan. | Response being prepared. |
+| Letter, 7/16/75 | Information regarding functions of Attorney General with respect to supervision of and policy-making for internal security and intelligence activities. | Response being prepared. |
+| Letter, 7/23/75 | List of people interviewed in O&C Inspection Review. | Response prepared and delivered to Department. |
+| Letter, 7/24/75 | List of Agents in New York City area who had surname "Kehoe." | Response being prepared. |
+| Letter, 7/28/75 | Superseding request for FBI materials for delivery and/or access of Committee. | Response being prepared. |
+
+# Committee on the Judiciary
+## Subcommittee on Constitutional Rights (Tunney's Committee)
+
+| Date of Request | Nature of Request | Status |
+|---|---|---|
+| Letter, 7/18/75 | Material concerning Flagging procedures in Identification and NCIC Systems. | Response being prepared. |
+
+CONTINUED - OVER
+
+NW 88326 DocId:32989627 Page 108

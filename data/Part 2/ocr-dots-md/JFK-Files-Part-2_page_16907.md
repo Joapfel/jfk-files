@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_16907.png
+
+Convert to Markdown## III. Welponality
+
+### A. Krieger's Age of
+
+1. Range
+
+2. Role of fio
+
+3. Landline
+
+4. Landline
+
+5. Exter & Banke
+@ care
+
+6. 2. Hicial Price
+@ care
+@ die as a role life
+@ appearance (Time is
+
+B. Mandate
+
+1. Heoding
+
+2. Bear
+
+3. Pulling Trigger
+
+C. Mids
+1. Target Position
+2. Holding
+3. Recalling
+
+11

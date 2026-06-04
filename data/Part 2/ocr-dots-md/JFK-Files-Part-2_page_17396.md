@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_17396.png
+
+Convert to MarkdownBLACK PANTHER PARTY (BPP)
+
+Chicago were placed to telephone numbers 528-0500 and
+663-0423.
+
+On February 8, 1969, who has furnished reliable information in the past, advised that on the night of February 7, 1969, some "Black Panthers" were at the Illini Union, where they met with representatives of the Black Students Association. Two of the Black Panthers, Billie Brooks and William Dunn were arrested by the University of Illinois Police Department for disorderly conduct.
+
+advised that the Black Students Association enlisted the aid of SDS in posting bond for the two Panthers.
+
+He further advised that after Brooks and Dunn were released on $200 bond, the Black Panthers, telephonically contacted someone in Chicago, Illincis, requesting that three car-loads of Black Panthers be sent to Champaign-Urbana, Illinois. advised that the Panthers were staying at the Sheraton Motor Inn, Urbana, Illinois.
+
+On February 8, 1969, Linda Rosson, Clerk, Sheraton Motor Inn, Urbana, Illinois, advised that there was no one registered at the Sheraton under the names mentioned above, however, a group of Negroes were checked into the motel late in the evening of February 7, 1969, or early in the morning on February 8, 1969, by the night clerk.
+
+On February 8, 1969, Sergeant Earl Anderson, University of Illinois Police Department, Urbana, Illinois, advised that at approximately 8:00 p.m. on February 7, 1969, two uniformed officers of the University of Illinois Police Department were on duty in the Illini Union, when Billie Brooks shouted obscenities at the police officers and Brooks drew his fist back at one of the officers. A scuffle ensued with Brooks being arrested for disorderly conduct and resisting arrest and William Dunn being arrested for disorderly conduct. Sergeant Anderson advised that extra police officers were assigned to the Illini Union and no further incidents occurred. Sergeant Anderson further described Billie Brooks, 1320 Kedoel, Chicago,

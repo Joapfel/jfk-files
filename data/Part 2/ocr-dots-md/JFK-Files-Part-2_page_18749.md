@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_18749.png
+
+Convert to MarkdownNY 134-3315
+
+If the Bureau so desires, this office believes that the subject of "The Nation" could be discreetly and tactfully brought up in the course of a conversation with JAFFE. This may then be discussed in a conversational vein serving the purpose of exploring JAFFE's present knowledge of the staff of "The Nation". This subject will not be brought up with JAFFE in the absence of Bureau permission.
+
+Every opportunity has been taken to acquaint JAFFE with the fact that his relationship with the Bureau must be held in strictest confidence at all times. JAFFE has made known the fact on repeated occasions that information which he furnishes to the Bureau must be handled in strictest confidence, since if it became known that he were furnishing information to the Bureau, his position as a news reporter would be jeopardized. JAFFE has been told to use the facilities of a public pay station when telephonically contacting this office, and that he should not have any personal contact at the NYO. However, these latter instructions were qualified to the extent that if in his position as a news reporter it is necessary for him to contact this office concerning matters other than those on which he is furnishing information to this office, he must of course feel free to do so. JAFFE has been told he is not to consider himself to be an employee of the Bureau and that this cooperation with the Bureau is to be on a voluntary basis at all times. The Bureau's labor policy was explained to JAFFE inasmuch as he is a member of a labor union.
+
+JAFFE has been told that; under no circumstances would the fact that he is cooperating with the Bureau in furnishing information to the Bureau, place him in the position of receiving preferential treatment.

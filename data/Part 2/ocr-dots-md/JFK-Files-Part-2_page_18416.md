@@ -1,0 +1,62 @@
+# JFK-Files-Part-2_page_18416.png
+
+Convert to MarkdownThe Attorney General
+
+Director, FBI
+
+U. S. SENATE SELECT COMMITTEE
+ON INTELLIGENCE ACTIVITIES
+
+August 7, 1975
+
+Enclosed for your information is a memorandum with enclosure concerning an interview by a representative of the captioned Committee of former FBI Inspector Donald E. Moore. Single copies of the memorandum and its enclosure are also enclosed for forwarding to Mr. James A. Wilderotter, Associate Counsel to the President.
+
+Enclosures - 4
+
+62-116395
+
+1 - The Deputy Attorney General
+
+Attention: Michael E. Shaheen, Jr.
+Special Counsel for
+Intelligence Coordination
+
+1 - 67- (Personnel File Former FBI Inspector Donald E. Moore)
+
+LFS:1hb 1hb
+(10)
+
+EX 104
+
+REC 27
+
+9 AUG 21 1975
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. 3
+
+Asst. Dir.: ENCLOSURE
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+Director Sec'y
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+GPO 954-546
+
+84 AUG 25 1975
+
+NW 88326 DocID:32989627 Page 14

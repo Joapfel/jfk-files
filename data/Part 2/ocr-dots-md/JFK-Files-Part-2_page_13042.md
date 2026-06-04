@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_13042.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : SAC, NEW YORK (100-111180)
+
+FROM : SA FRANCIS T. LEONARD
+
+SUBJECT: STANLEY DAVID LEVISON
+IS-C
+
+DATE: 7/26/63
+
+The following is being submitted as a revised characterization of the subject:
+
+STANLEY LEVISION is a secret member of the Communist Party, United States of America (CPUSA).
+
+NY T-
+July 16, 1963
+
+NY T- is NY 694-S*.
+
+A three by five card has been prepared containing the above characterization and will be filed in the library of the NYO.
+
+NATIONAL SECURITY INFORMATION
+Unauthorized "Disclosure"
+Subject to Criminal Sanctions
+
+E-NY (100-111180) (414)
+FTL: rmv
+
+(1)
+
+Classified
+Exempt from G.15, Category 2
+Date of Declassification Indicate
+
+SECRET
+
+NEW SECRET

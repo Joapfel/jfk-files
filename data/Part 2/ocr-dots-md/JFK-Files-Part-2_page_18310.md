@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_18310.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY ATTORNEY GENERAL
+WASHINGTON, D.C. 20530
+
+SEP 23 1975
+
+TO: John A. Mintz, Assistant Director
+Legal Counsel Division
+Federal Bureau of Investigation
+
+FROM: Michael E. Shaheen, Jr.
+Special Counsel for Intelligence
+Coordination
+
+SUBJECT: Senate Select Committee Request
+
+Attached is a letter dated September 19, 1975, from John Elliff of the SSC staff which requests "delivery on a priority basis" of certain documents in the possession or control of the Bureau. Please arrange for prompt compliance with this request.
+
+ALL FBI INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/17 BY 502 nm/cj
+
+EX-108
+
+cc: Paul Daly
+
+REC-41
+
+21 SEP 25 1975
+
+LEGAL Op/Lettr
+5-Est
+
+8-4 MAY 13 1976

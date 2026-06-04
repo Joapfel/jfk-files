@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_17274.png
+
+Convert to MarkdownChicago, Illinois
+
+July 16, 1969
+
+It was learned that on the night of July 10, 1969, GARY TYLER, RONALD SATCHHELL and ROSE EDWARDS drove to the area of the 31st Street Beach, Chicago. There they found a white male parked in a car with a Negro female. SATCHHELL and TYLER decided to kill the white boy and rob him, however, they were talked out of killing him by EDWARDS. TYLER and SATCHHELL did, however, rob him and verbally abused the couple. It is not known how much money they got. All of above are BPP members.

@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_17984.png
+
+Convert to Markdown**INTERNAL SECURITY BRANCH**
+
+**IS-1 Section**
+
+| | |
+|:---|:---|
+| **Joseph G. Deegan** | **Section Chief** |
+| **William H. Atkinson** | **Number 1 Man** |
+| **Black Nationalist and White Hate - Central Unit William D. Neumann** | **Unit Chief** |
+| **Two Special Agents** | |
+| **Black Nationalist and White Hate - East Unit Paul E. Nugent** | **Unit Chief** |
+| **Two Special Agents** | |
+| **Black Nationalist and White Hate - West Unit Garnett T. Tunstall** | **Unit Chief** |
+| **Three Special Agents** | |
+| **Black Nationalist - South, Klan and Informant Unit Homer A. Newman, Jr.** | **Unit Chief** |
+| **Two Special Agents** | |
+| **Civil Disorders Reporting Unit Seymor F. Phillips** | **Unit Chief** |
+| **Two Special Agents** | |
+
+**IS-2 Section**
+
+| | |
+|:---|:---|
+| **Robert L. Shackelford** | **Section Chief** |
+| **Conrad W. Thompson** | **Number 1 Man** |

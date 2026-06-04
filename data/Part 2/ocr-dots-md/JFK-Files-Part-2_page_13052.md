@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_13052.png
+
+Convert to MarkdownNY. 100-149194
+
+that at a National Negro Commission meeting held on
+11/19, 20/60, at CP Headquarters, 23 West 26th Street,
+NYC, TED BASSETT, a representative of "The Worker",
+stated that the CP is now in the process of placing
+members of the Party in key positions in the SCLC.
+BASSETT continued by saying that a Western Conference of the
+Christian Leadership is now being formed and a CP member
+is the leader in this conference.
+
+advised on 5/1/62, that on 4/30/62,
+
+ISADORE WOFSY, CP, USA fund functionary, said that
+according to LEM HARRIS, he was told by STANLEY LEVISION
+that the CP, USA had sent "an experienced, professional,
+secret organizer" to New Orleans, who would assist the
+MARTIN LUTHER KING group there in its fight for political
+equality of Negroes. LEVISION allegedly told HARRIS
+that he personally, and not the Party, was financing
+this organizer.
+
+advised on 5/2/62, that according to
+
+LEM HARRIS, the secret CP organizer, whom the CP, USA had
+sent to New Orleans, was JOSE HUDSON. HARRIS said that
+HUDSON would be associated with SERGEANT CAULFIELD in
+Baton Rouge.
+
+On 7/2/62, (NO 1084-S) advised that SERGEANT
+CAULFIELD returned to Baton Rouge, Louisiana, from Atlanta,
+Georgia, on 5/31/62. Informant said that CAULFIELD stated
+that he and JOSE HUDSON met HUNTER O'DELL in Atlanta,
+O'DELL having flown there from NYC.
+
+NO 1084-S stated that CAULFIELD paid CP dues
+to O'DELL for several CP members from Louisiana. O'DELL
+had come to Atlanta regarding organization of the MARTIN
+LUTHER KING movement. O'DELL thought that if an active
+
+NWW 88296 DocId:32989550 Page 22

@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_18522.png
+
+Convert to MarkdownLegal Counsel to Mr. Adams
+
+RE: STATUS OF RESPONSES TO CONGRESSIONAL
+COMMITTEE REQUESTS
+
+| Date of Request | Nature of Request | Status |
+|---|---|---|
+| Letter, 7-8-75 | Communication to all employees concerning Senate Select Committee inquiries. | Response being prepared. |
+| Letter, 7-14-75 | Request concerning two highly sensitive Bureau programs in the foreign intelligence field. | Response being prepared. |
+| Letter, 7-14-75 | Request concerning COINTELPRO documents. | Response being prepared. |
+| Letter, 7-14-75 | Material pertaining to Martin Luther King. | Response being prepared. |
+| Letter, 7-14-75 | Material pertaining to Ku Klux Klan. | Response being prepared. |
+| Letter, 7-23-75 | List of people interviewed in O&C Inspection Review. | Response being prepared. |
+
+Subcommittee on Civil and Constitutional Rights House Judiciary
+Committee (Edwards Committee)
+
+| Date of Request | Nature of Request | Status |
+|---|---|---|
+| Letter, 7-9-75 | Requested information concerning surreptitious entry. | Response being prepared. |
+| Letter, 7-15-75 | Requested information pertaining to our assignment of Bureau personnel to Congressional Committees. | Response being prepared. |
+
+CONTINUED - OVER
+
+NW 88326 DocId:32989627 Page 120

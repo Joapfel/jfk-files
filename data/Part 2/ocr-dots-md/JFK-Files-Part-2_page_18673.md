@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_18673.png
+
+Convert to MarkdownGebhardt was asked if he felt the Cointelpro was a separate entity distinguished from the basic investigation and it was explained that the Cointelpro was a phase of the overall investigation in any particular organization or individual.
+
+Gebhardt was asked if he felt Congress should enact legislation which would set forth specific investigative techniques that could or could not be utilized by the FBI or other Federal investigative agencies. He was advised in Gebhardt's opinion, such legislation should not be enacted, and in reply to the question as to why such legislation should not be enacted, it was pointed out that as an investigative agency, there must of necessity be allowed a certain flexibility because no two investigations are exactly alike and the circumstances of such investigations could possibly not be related to such Federal law.
+
+In answer to the question as to how Congress should assure the American public that questionable activity such as the Cointelpro, was not being engaged in by an investigative agency such as the FBI, Seidel was informed that the Congress and the American people must rely upon the integrity and honesty of the Director of the FBI and the Attorney General.
+
+It was pointed out that both the Director of the FBI and the Attorney General are nominated by the President, hearings are held before the various Congressional Committees and finally approved by the Senate. It was further pointed out that Director Kelley has recently stated in connection with the publicity relative to Cointelpro, that he has no intention of permitting this program to be reinstituted in the FBI and if circumstances ever arose which circumstances he could not contemplated at this time, wherein it was thought such activities should be embarked upon, he would obtain the personal approval of the Attorney General prior to such instituting. Seidel was informed that Gebhardt was in total agreement with this statement of Mr. Kelley.
+
+Gebhardt was asked as to what his feelings were relative to what the relationship should be between the FBI and Congress. He was informed that a Senate Oversight Committee was recently established and it was felt that this was a good start and that this Committee should formalize and

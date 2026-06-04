@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_16670.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+
+Date 1/16/70.
+
+Pursuant to an on-the-scene examination of the premises located at 2337 West Monroe Street on January 6 and 7, 1970, the following items were removed from the premises for subsequent Laboratory examination:
+
+1. Copper fragment recovered from south west corner of kitchen.
+
+2. Two cartridges recovered from bundle of clothing in entrance hall.
+
+3. Blood sample removed from black eight-drawer dresser in living room.
+
+These items were listed with Deputy Coroner ANTHONY SCIARAFFA, Cook County, Illinois, and with his permission removed from the premises.
+
+On 1/6-7/70 at Chicago, Illinois
+
+SA
+
+1/12/70
+
+Date dulated
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is not to be distributed outside this agency. NW 88613 Document 32199554 Page 2167

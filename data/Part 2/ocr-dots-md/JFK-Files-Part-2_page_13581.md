@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_13581.png
+
+to the Counsel to the President.
+
+**RECOMMENDATION:**
+
+For information.
+
+ALL INFORMATION CONTAINED
+HEREIN IS NOT CLASSIFIED
+BY THE PRESIDENT
+
+DATE 11-04-74
+
+1 - Mr. Wannall.
+1 - Mr. Cregar
+1 - Mr. Mintz
+1 - Mr. Hotis
+1 - Mr. Daly
+
+PVD:eek
+(7)
+
+11 1975
+
+8 4
+
+17 JUN 10 1975
+
+Buy U.S Savings Bonds Regularly on the Payroll Savings Plan
+
+NW 88296 DocId:32989588 Page 108
+
+2010-108

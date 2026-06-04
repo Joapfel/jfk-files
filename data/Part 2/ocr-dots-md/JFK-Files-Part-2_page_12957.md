@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_12957.png
+
+Convert to MarkdownThe following is a summary of a 17-page report dated 12/17/73 furnished by Mary Jo Cook, former FBI informant.
+
+A regional conference of the New York/Northern
+New Jersey Region, VVAV/WSO, was held at a college on
+12/8-9/73. 20 listed people attended.
+
+A member reported another individual had
+supposedly run guns to Cuba.
+
+A member requested information attesting to the
+bad conditions in a Vietnamese jail.
+
+A member said he had 2600 names on a mailing
+list.
+
+Old business was discussed.
+
+Changes in one VVAW/WSO objective were turned
+down.
+
+In other matters, the following was discussed:
+
+Correspondence with prisoners.
+
+Plans for selling the organization's newspaper.
+
+Support for a prison fast.
+
+Approval of amnesty for war resisters.
+
+Impeach Nixon campaign.
+
+U.S. involvement in Korea.
+
+Organization and communication.
+
+Coalition with other groups.
+
+Possible underground VVAW group.
+
+Possible sponsorship of a college lecture.
+
+The VVAW's connection with the Revolutionary
+Union with some displeasure voiced.
+
+A recent military alert and the possibility of
+a mail opening and telephone tap alleged.

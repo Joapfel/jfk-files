@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_15870.png
+
+Convert to MarkdownSource stated that representatives of the CP of Illinois contacted BPP Headquarters to advise that they had held a bazaar that date and had a considerable amount of food left and wanted to donate it to the BPP. The food was accepted.
+
+12/7/69)
+
+Source advised on December 6, 1969, a world bazaar was held by the CP of Illinois attended by several leading national CP leaders. Source stated a representative of the Panthers arrived and was introduced as EUGENE CHARLES. CHARLES stated, according to the source, the police had surrounded the house in which FRED HAMPTON and MARK CLARK were killed prior to the raid and shut off all telephone lines in the area. CHARLES stated that it was a planned murder and that HAMPTON had stated, prior to the raid, that this could possibly happen, but the Panthers should not cry over his death, but should prepare to defend themselves. CHARLES concluded saying the pigs can kill us all, but the revolution cannot be killed. CHARLES was presented a check in the amount of $150.00 to help defray the expenses of the Panthers.
+
+12/10/69)
+12/12/69)
+
+Source stated CHARLENE MITCHELL of the CP Black Liberation Committee, New York would open an office at 417 East 47th Street, Chicago, Illinois. This location would be the headquarters from which the CP will attempt to form a BPP defense committee and organize a BPP defense committee conference for March 7-8, 1970. Source stated the CP will not solicit cooperation using the CP name, but would work in the name of the BPP.
+
+1/20/70)
+
+Source advised a meeting of the Emergency Citizen's Committee for Defense of the BPP was held at 7:30 PM on January 20, 1970, at the Afro-American Book Store, 416 West 63rd Street, Chicago. Source stated there were two items on the agenda. The first point concerned the "National Conference Against
+
+NW 88613 DocId:32199554
+
+Page 1 of 677

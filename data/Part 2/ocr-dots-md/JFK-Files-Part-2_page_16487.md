@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_16487.png
+
+Convert to Markdownthe same reasons that the racist U. S. Armed Forces
+occupy South Vietnam;
+
+You are hereby drafted into the Black Panther Party for Self Defense, invested with the rank of Field Marshall, delegated the following authority, power, and responsibility:
+
+To establish revolutionary law, order and justice in the territory lying between the Continental Divide East to the Atlantic Ocean; North of the Mason-Dixon Line to the Canadian Border; South of the Mason-Dixon Line to the Gulf of Mexico.
+
+So Let It Be Done.
+
+--Huey P. Newton
+Minister of Defense
+
+June 29, 1967
+
+EXECUTIVE MANDATE NO. 3:
+STATEMENT OF THE MINISTER OF DEFENSE
+
+Delivered on March 1, 1968.
+
+SO LET THIS BE HEARD:
+
+Because of the St. Valentine Day massacre of February 14, 1929, in which outlaws donned the uniforms of Policemen, posed as such, and thereby gained entrance to locked doors controlled by rival outlaws with whom they were contending for control of the bootlegging industry in Chicago; and because these gangsters, gaining entry through their disguise as Policemen, proceeded to exterminate their rivals with machinegun fire, we believe that prudence would dictate that one should be alert when opening one's door to strangers. late a' night,
+
+DocId:32199554
+
+Page 1984

@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_15869.png
+
+Convert to MarkdownSource advised the National BPP, Berkeley, California, sent, on November 15, 1969, 23 cartons of newspapers to Chicago. The charges were $158.60.
+
+11/14/69)
+
+Source stated the Illinois BPP sent $2,000 to National BPP. $1700 was in payment for newspapers, $250 for records and $50 for buttons. Chicago chapter also requested 27,000 papers be sent to Chicago.
+
+12/17/69)
+
+Source advised LUCY MONTGOMERY, former wife of a prominent Chicago attorney and minority group sympathizer was alleged to have donated $2,000 to the BPP for a medical center.
+
+11/19/69)
+
+Source also stated the BPP had approximately $3,000 in cash, the money being received from the return of various bonds.
+
+11/19/69)
+
+Source stated that allegedly the BPP had received in total donations since the death of HAMPTON approximately $40,000., the largest donation being received from the University of Wisconsin the week of January 12, 1970, in the amount of $4,000.
+
+1/9/70)
+
+VIII. CONTACTS WITH COMMUNIST PARTY AND OTHER GROUPS
+
+Source stated that a CP of Illinois meeting was held on October 18, 1969, and attended by National Officers CLAUDE LIGHTFOOT and CHARLENE MITCHELL. At this meeting it was stated the CP lacks influence in black communities and there was no direct relationship of communists working in the BPP.
+
+10/22/69)

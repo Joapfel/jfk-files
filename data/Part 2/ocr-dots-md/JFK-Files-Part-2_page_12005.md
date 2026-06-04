@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_12005.png
+
+Convert to Markdown12. Requests of informant to help defend others
+
+a. If a security informant is requested by the Communist Party, communists being prosecuted by the Government, or by other interested parties to assist in the preparation of the defense in subversive-type cases or receives assignment where such information is readily available, informant should tactfully decline such assignments.
+
+b. Any such request received by informant should be reported immediately to the contacting Agent and made a matter of record.
+
+c. If the informant cannot avoid becoming involved, he should be instructed not to report to the contacting Agent any information pertaining to defense plans or strategy.
+
+d. Any such incident must be reported promptly to the Bureau.
+
+[13. Preparation for testifying
+
+Contacting Agent must condition the informant to the fact that someday
+the knowledge he possesses may be needed as evidence in court to assist
+the Government in combating the evil of communism. Psychologically
+prepare the informant for the fact that he may at some future date be
+called upon to render a still further contribution to his Government by
+testifying to the information he has furnished on security matters.
+Proper indoctrination of the informant is essential as the Bureau must.
+provide with:;ases whenever the Department initiates prosecutions in
+security cases.]

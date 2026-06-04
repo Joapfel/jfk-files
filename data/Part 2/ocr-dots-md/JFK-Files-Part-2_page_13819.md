@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_13819.png
+
+Convert to MarkdownGENE: SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+RE: CONTACT OF MR. AND MRS. SCHAFER WITH STAFF MEMBERS OF SSC
+
+According to the Schafers, Mr. Epstein began the interview with the Schafers by stating the purpose of the Senate Committee and why the Schafers were asked to Washington, D. C. Mr. Epstein stated that the Committee was trying to develop information on what the U. S. intelligence agencies have been doing, what changes in these agencies are needed and "where mistakes might have happened."
+
+The Schafers advised they requested Mr. Epstein to ask them specific questions. He asked them what was the entire period of time of the Schafers' relationship with the FBI and if they were still associated with the Bureau. Mr. Schafer told Mr. Epstein that he was not going to admit any association with the FBI at this point and the reply seemed to greatly upset Mr. Epstein. He asked the Schafers why they had come to Washington, D. C. The Schafers replied they wanted to establish some groundwork for any relationship with the Senate Committee. Mr. Epstein attempted to have the Schafers relate their activities in behalf of the FBI. Mr. Schafer advised they refused to comply due to Mr. Epstein's manner and presentation. The Schafers stated they received the definite impression that Mr. Epstein and his colleagues expected to hear an afternoon of interesting stories and anecdotes.
+
+Mrs. Schafer told Mr. Epstein that they had done nothing wrong, illegal, immoral or unethical in their "movement" activities and they were proud of their contributions to the nation's internal security. The Schafers related they enjoyed a happy relationship with the FBI and they knew of nothing questionable or unprofessional regarding the Bureau's handling of their information. The Schafers said they made it clear that they would be happy to tell the SSC these things; however, since they were not reassured by Mr. Epstein, and were in fact put off by his manner and his colleagues' brusque reactions, they would not furnish anything further to Mr. Epstein. The Schafers stated that short of appearing before the Senate Committee, they wanted to be left alone.

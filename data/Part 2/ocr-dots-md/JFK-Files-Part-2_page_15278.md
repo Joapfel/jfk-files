@@ -1,0 +1,143 @@
+# JFK-Files-Part-2_page_15278.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+W. C. Sullivan
+
+M : R. D. Cotter
+
+ECT: INTELLIGENCE COVERAGE OF NON-COMMUNIST COUNTRIES
+
+DATE: 7/12/65
+
+1 - Mr. Belmont
+
+1 - Mr. Sullivan
+
+1 - Liaison
+
+1 - Mr. Cotter
+
+1 - Mr. Jaquiss
+
+It is believed State Department clearance should be obtained to add Burma to list of countries approved by State Department under captioned program.
+
+Captioned program involves development by FBI of confidential sources and informants in diplomatic establishments of friendly foreign nations where:
+
+(1) It appears that country is leaning toward Sino-Soviet-bloc.
+
+(2) Where situation within the particular country involves serious diplomatic or military crisis.
+
+(3) Where it is clear investigation is needed.
+
+It is believed we should at this time obtain State Department clearance to institute program to develop sources and informants at Burmese diplomatic establishments in the United States.
+
+Burma is integral part of critical Southeast Asian area where United States is deeply involved politically, economically and militarily to stem the tide of Chinese Communist influence. The Burmese Government is carrying on protracted negotiations with the Burmese Communist Party, or White Flag, insurgents. Communist China has evidenced great interest in these talks. Any information we can obtain concerning Burma's attitude toward the United States or concerning the critical political and military situation in Southeast Asia should be of value.
+
+REC-107
+491
+
+65-63113
+1 - 105-97459 Sub 301 (Nationality Group Coverage - Asia)
+1 - 105-97459 Sub 264 (Nationality Group Coverage - Burma)
+
+HJJ:gas
+(8)
+
+18 JUL 22 1965
+
+CONTINUED - OVER
+
+UNRECORDED COPY FILED IN
+
+JUL 26 1965
+
+NW 88613 DocId:32199554
+
+Page 775
+
+S. F. Blandorp
+G.A. Koepp
+L. A. Nilsen
+G.E. Madsen
+T. O. Andersen
+A.R. Sørensen
+J. F. Johansen
+P.S. Mikkelsen
+R. O. Jensen
+S. B. Fjeldstad
+J. O. Mikkelsen
+B. Carstensen
+B. Johansen
+J. H. Aakirn
+F. J. Buhl
+K. Kjærulff
+L. F. Jensen
+J. L. Førup
+O. G. Pedersen
+N. F. Pedersen
+J. B. Aakirn
+L. G. Christensen
+K. Kjærulff
+C. Aage Andersen
+J. W. Aagaard
+L. F. Jensen
+B. Carstensen
+B. Johansen
+J. H. Aakirn
+F. J. Buhl
+K. Kjærulff
+C. Aage Andersen
+J. W. Aagaard
+L. F. Jensen
+B. Carstensen
+B. Johansen
+J. H. Aakirn
+F. J. Buhl
+K. Kjærulff
+C. Aage Andersen
+J. W. Aagaard
+L. F. Jensen
+B. Carstensen
+B. Johansen
+J. H. Aakirn
+F. J. Buhl
+K. Kjærulff
+C. Aage Andersen
+J. W. Aagaard
+L. F. Jensen
+B. Carstensen
+B. Johansen
+J. H. Aakirn
+F. J. Buhl
+K. Kjærulff
+C. Aage Andersen
+J. W. Aagaard
+L. F. Jensen
+B. Carstensen
+B. Johansen
+J. H. Aakirn
+F. J. Buhl
+K. Kjærulff
+C. Aage Andersen
+J. W. Aagaard
+L. F. Jensen
+B. Carstensen
+B. Johansen
+J. H. Aakirn
+F. J. Buhl
+K. Kjærulff
+C. Aage Andersen
+J. W. Aagaard
+L. F. Jensen
+B. Carstensen
+B. Johansen
+J. H. Aakirn
+F. J. Buhl
+K. Kjærulff
+C. Aage Andersen
+J. W. Aagaard
+L. F. Jensen
+B. Carst

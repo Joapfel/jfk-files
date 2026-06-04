@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_15271.png
+
+Convert to MarkdownLetter to SAC, New York
+
+RE: NATIONALITY GROUP COVERAGE
+105-97459-234
+
+NOTE:
+
+By memorandum W. R. Wannall to W. C. Sullivan
+7/21/64, captioned "Intelligence Coverage of Non-Communist
+Countries" it was recommended and approved that State
+Department clearance should be secured for the development
+of live sources in Japanese establishments. Clearance was
+secured from H. Bartlett Wells on 7/27/64 by SA W. J. McDonnell.
+
+NW 88613 DocId:32199554
+
+Page 768

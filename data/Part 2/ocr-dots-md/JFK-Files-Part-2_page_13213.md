@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_13213.png
+
+Convert to Markdown10 JUN 1975
+
+Staff Members of the Senate Select Committee on Intelligence Activities who have received a security
+investigation by the Federal Bureau of Investigation within the past five years and are certified as
+meeting requirements of EO 10450 for access to classified information up to and including TOP SECRET.
+
+| Name | Compartmented Clearance Designated (SI, TK, B) | Briefed | Date and Place of Birth | Social Security No. |
+|---|---|---|---|---|
+| Aaron, David | * B 4/15 | 8-21-38 | Ill. | 550-44-7971 |
+| Bader, William | * B 4/17 | 9-8-31 | NJ | 545-30-3377 |
+| Bayly, John | * B 5/19 | 1-26-44 | DC | 578-60-2305 |
+| Banoff, Barbara | | 12-20-45 | Cal. | 561-68-9123 |
+| Barkey, Howard | * B 6/2 | 1-26-17 | Mo. | 490-01-6758 |
+| Baron, Frederick | * B 5/19 | 12-2-47 | Conn. | 494-54-5241 |
+| Benz, Charity I. | * B 5/23 | 7-23-46 | NY | 053-38-7410 |
+| Birdsell, Wayne | | 5-2-06 | DC | 578-03-1841 |
+| Bouschard, Samuel | * B 6/10 | 3-12-24 | Maine | 007-18-3292 |
+| Brissett, Belva | * B 6/10 | 6-23-41 | Ok. | 440-44-6374 |
+| Brooks, Nancy | * B 5/23 | 2-14-40 | Ky | 313-38-6773 |
+| Brown, C. Harold | | 6-6-38 | Ohio | 278-34-3428 |
+| Carpenter, Margaret | * B 5/19 | 8-27-44 | Cal. | 555-62-6129 |
+| Carter, Barry | * B 4/24 | 12-14-42 | Cal. | 567-56-8854 |
+| Chesnick, Barbara | | 4-18-46 | WI | 390-46-2235 |
+
+ENOSCHONE
+5210-41
+JUN 10 1975
+Page 8
+
+N\W 88296 DocId:32989588 Page B-5

@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_13076.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D. C. 20535
+
+Addressee: SENATE SELECT COMMITTEE
+
+☐ LTR ☒ LHM ☐ Memo ☐ Report dated 11/18/75
+
+U.S. SENATE SELECT COMMITTEE.
+
+Capion of Document:
+
+10/28/75 request - SI, ADEX
+
+Originating Office: FBI
+
+Delivered by: P. V. Wally Date: 11/20/75
+Epstein
+
+Received by:
+
+Title:
+
+Return this receipt to the Intelligence Division, FBI
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+
+DATE 10/27/75 BY SP 3 ALM/EHL
+
+ENCLOSURE 62-116395-1163
+
+NW 88296 DocId:32989550 Page 46

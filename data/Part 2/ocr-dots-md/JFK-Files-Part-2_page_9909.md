@@ -1,0 +1,75 @@
+# JFK-Files-Part-2_page_9909.png
+
+Convert to MarkdownThe Attorney General
+
+Director, FBI
+
+U. S. SENATE SELECT COMMITTEE
+ON INTELLIGENCE ACTIVITIES (SSC)
+
+2 - Mr. J. A. Mintz
+(1 - Mr. P. V. Daly)
+1 - Mr. W. R. Wannall
+1 - Mr. J. G. Deegan
+
+February 26, 1976
+
+1 - Mr. W. O. Cregar
+1 - Mr. S. J. Miller
+
+Reference is made to SSC letter dated February 19,
+1976, requesting certain FBI materials.
+
+Enclosed for your approval and forwarding to the
+SSC is the original of a memorandum responsive to that request.
+
+A copy of the memorandum is also enclosed for your
+records.
+
+Enclosures (2) ENCLASUREMENT ENCLOSED
+62-116395 REC-112 4-11-76 1460X-
+
+1 - The Deputy Attorney General
+
+Attention: Michael E. Shaheen, Jr.
+Special Counsel for
+Intelligence Coordination
+
+SJM:lhblhk
+(10)
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1/24/81 BY 52ALMYP
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+
+Asst. Dir.:
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Legal Coun. ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Telephone Rm. ____
+
+TO BE HAND-DELIVERED BY THE OFFICE OF CONGRESSIONAL AFFAIRS
+
+MAIL ROOM ☐ TELETYPE UNIT ☐ S.J.SSM-J MJD
+
+GPO : 1975 O - 594-120
+
+8 Apr 2 1976
+
+NW 88326 DocId:32989603 Page 174
+
+Director

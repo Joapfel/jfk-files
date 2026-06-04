@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_18556.png
+
+Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF FORMER FBI SA BY SSC
+
+Statement of John M. Matter
+
+My assignment came orally from Section Chief Miller and quite possibly Assistant Director Conrad in a conference of the three of us in which I was advised that a Top Secret investigation of MLK had been authorized by the then Attorney General (AG) Robert F. Kennedy to determine if any attempt was being made by the Communist Party (CP) to infiltrate MLK's organization and use it to serve the Party's purposes. This particularly related to at least one highly placed MLK staff member (whose name I do not recollect) who had been associated with CP activities in the past. I was told that I was to render all technical assistance that was required in keeping with any requests made by then DPD. Assistant Director, William C. Sullivan, or DPD case supervisor handling the Investigation. Some tapes from the AD-authorized MLK installations would be received by me, and I was to prepare a composite tape of any dergotary information in these tapes. William Campbell of the Washington Field Office (WFO) was to work with me and was to be primarily responsible for preparing a transcript of the WFO tapes, while pinpointing for me any information that might be of value for the enemy.
+
+Campbell came to the KSEC with the WFO tapes and he and I set up the necessary transcription and filtering equipment for him in the studio and control room parts of Room 7318 in the Justice Building (JB). At some point additional tapes were received from authorized MLK installations
+
+In
+
+I would have determined these locations either from "identification on the tape reels" or from "letters of transmittal," as such actually received with the tapes. I could not specifically recall whether any of the tapes were received directly by the KSEC, from the last three YOs, but was of the opinion then they were most likely received from the DPD case supervisor whose name I could not specifically recall.
+
+I was asked specifically if that case supervisor's name

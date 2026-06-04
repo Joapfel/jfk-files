@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_17268.png
+
+Convert to MarkdownRE: BPP
+
+"We have gotten together a staff of lawyers who will be on call for party cases and who will try to put a stop to false arrests by being on the scene as soon as possible after the arrest.
+
+"The telephones should be operating by the middle of next week. This was an extreme error on my part for not coming to you for monetary assistance soon as we knew we couldn't get money.
+
+## Ministry of Education
+
+"Classes in Political Education are currently being taught by Deputy Minister Billy 'Che' Brooks until he gets another teacher. 'Che' and his staff are in the process of formulating a program to deal directly with the community. 'Che' was recently in Urbana at the University where he helped to set-up the educational part of the chapter there. He has also been instrumental in getting relevant courses taught in the schools here on college, high school and elementary levels. He is catching hell due to the nature of this racist (obscene) institution, but the Panthers will see him through.
+
+## Ministry of Health
+
+"This ministry, headed by Deputy Minister Ronald 'Doc' Satchel is formulating programs dealing in three aspects; (1) first aid classes for members of the party and the community; (2) establishing community health centers throughout the black community; (3) dealing with the poor health conditions dominant in the communities.
+
+"First aid classes are to be held on Wednesdays from 7-8 PM, and since Deputy Minister of

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_12855.png
+
+Convert to MarkdownSECRET
+
+WFO 105-26269
+
+5. Upon completion of above leads will consider requesting Bureau approval to interview the subject.
+
+The attached report is being classified "Confidential" as it reveals our investigative interest in the members of various foreign diplomatic establishments in the Washington, D. C., area. [x] (B)
+
+SECRET
+
+HW 50953 DocId:32340935 Page 3

@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_15720.png
+
+Convert to Markdownthe newsmenbers can see what is hannening especially to the Black Panther Party in this area (so below for details) must include that the very least that black neone must do to continue living in this country is to protect their persons from attack. As the Black Panthers have said, it is the man behind the gun who is dangerous. Black Panthers do not accidentally shoot each other or anyone else. If they use weapons it is when they are personally attacked. If the whites have already declared war on the black neonle and are forming huge million-dollar arsenals, what kind of response do they expect from the black community? As long as Stokeley Carmichael has said, the blacks are not going to die the way the Jews in Europe died. The Warsaw Ghetto Uprising will be the example to follow - not the quiet exodus to the furnaces.
+
+Many neonle object to the notion of the gun saying that there are other ways to stop violence - that the blacks should gain political and economic power. However, as will be shown below, it makes power to get power. If violence is to be prevented, the whites have the immediate oblation to stop the police from using their array of weapons against the blacks. To ask the blacks to turn the other cheek and let killed is a plea that is immoral and foolish.
+
+# THE SACRAMENTO INCIDENT
+
+Because the Black Panther Party has exercised its constitutional right to bear arms, Assemblyman Mufford decided that this right would have to be curbed. He introduced a bill "prohibiting instruction in the use of firearms for the purpose of rioting, and prohibiting the carrying of loaded firearms on public streets and in public places by all except peace officers, guards, and members of the armed forces." (S. F. Chronicle Story, 5/3/57). As most neone know the second amendment to the United States Constitution says that "A well regulated militia, being necessary to the security of a free State, the right of the neonle to keep and bear arms shall not be infringed." The purpose of this amendment was to prevent the very thing that Mufford's bill tries to set un: the regulation of the neonle's right to be free. What is the nature of this right? Huey Newton stated it very clearly when he said that if the neonle are unarmed, and if the government has a regular police force and a military force, the neonle are slaves to the government or are subject to slavery at any time. Newton's conclusion: so long as the police are armed, the black neonle should be armed. As Newton said: "Ninety percent of the reason we carried guns in the first place was educational. We set the example. We made black neonle aware that they have the right to carry guns."
+
+## Why Go to Sacramento with Guns?
+
+There is some history to the Sacramento incident of which most neonle are unaware.
+
+On April 1, 1967, a young black man named Denzil Dowell, aged 22 years, was killed by a member of the Contra Costa Sheriff's department. Denzil Powell was killed with his hands raised over his head. His family was denied the right to photograph his body and the right to have his clothes returned to them. Denzil Dowell was unarmed. Furthermore the sheriffs knew that he was suffering from an uninjured injury which would prevent him from escaping from the scene of the crime. WHY WAS HE KILLED? As with the killing of Panther Bobby Hutton (see below) there is no reason - other than that he was black.
+
+On April 18, 1967, the Black Panther representatives, bearing arms, went to see District Attorney Nejedly of Contra Costa County to ask for an investigation of Denzil Dowell's death. The District Attorney said that he would hold such an investigation and would re-
+
+NW 88613 DocId:32199554 Page 1217

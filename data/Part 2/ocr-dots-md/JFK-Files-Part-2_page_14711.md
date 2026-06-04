@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_14711.png
+
+Convert to Markdown# Assassination of President John Fitzgerald Kennedy
+
+The essence of the Clay Shaw trial in New Orleans lies in the connection New Orleans District Attorney James C. Garrison is attempting to establish between Lee Harvey Oswald, David Ferrie (now deceased), and Clay Shaw. The principal witness has been Perry Russo who has said Oswald, Ferrie, and Shaw discussed assassinating President Kennedy at a meeting in Ferrie's apartment in New Orleans in September, 1963.
+
+Immediately following the assassination of President Kennedy, the FBI received allegations of a connection between Ferrie and Oswald. These allegations were thoroughly and exhaustively investigated. No evidence was ever developed that Oswald and Ferrie were acquainted. Clay Shaw's name never came up in the investigation and the FBI never investigated him.
+
+The FBI has held to a "hands-off" policy regarding Garrison's investigation. Although we are closely following Shaw's trial, we have no observers in the courtroom. It is noted that the Criminal Division of the Department of Justice has an unofficial observer in the courtroom.
+
+Garrison's mental stability is questionable. He received a medical discharge in October, 1951, from the U. S. Army for an emotional problem. He admitted to Army authorities that he had received psychiatric treatment. Garrison was a Special Agent of the FBI for four months, resigning to re-enter military service in July, 1951.

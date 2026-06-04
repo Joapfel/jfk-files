@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_19006.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+Expulsion of Jaffe from Soviet Union
+
+Jaffe advised that after receiving the "exclusive" from "Slava" concerning the Khrushchev ouster, he continued to meet with "Slava" "on and off" until Jaffe was expelled from the Soviet Union in October, 1965. In explaining the expulsion, Jaffe said that without advising him, John Scali of the American Broadcasting Company (ABC) wrote a story which Jaffe thinks was a "trial balloon", intimating that Leonid Brezhnev and Aleksei Kosygin were about to be ousted. Jaffe got a call from ABC in New York asking what he thought about Scali's story. Jaffe stated he did not believe the story was true and he asked "Slava" for his opinion. "Slava" indicated that although he would like to see it happen, he did not believe it would occur "because they were too new" as Soviet Heads of State. Jaffe continued: "The next morning, Henry Shapiro called me, asking why I had written such a story." Jaffe denied knowing anything about it. He explained that it was later that he learned that the story had been written by John Scali. (WF T-2 has identified Shapiro and his wife, Lyudmila Nikolayevna Shapiro, as KGB agents.)
+
+At the time Scali's story broke, Jaffe and his wife were in the process of packing in preparation for their departure from Russia for Hong Kong and Jaffe's ABC successor in Moscow already had been named. The first indication Jaffe received of his expulsion was a call from ABC in New York asking what Jaffe had done to cause the Soviets to recall the visa for Jaffe's successor. Jaffe said he replied: "Did you ever think it could be John Scali's story?"
+
+Later Jaffe was called into the Soviet Foreign Office and told he had to leave the Soviet Union in ten days and that the ABC office in Moscow was being closed. Jaffe said he inquired: "Are you holding this (story) against me?" Jaffe was told that the Soviets were not, and that "we know exactly what you said about us for four years." Jaffe indicated this was the first indication he had that the Soviets had technical coverage on him. Jaffe said he did not want to leave the Soviet Union under these conditions. He said the Soviets told him, "We are not holding this against you but it has to be." Jaffe was told not to worry about the deadline for his departure and that he could get additional time. Jaffe also was told he would be able to return to Russia. He continued: "After that, everything went smoothly. They only opened one box at the Customs Office. No problems at all. I don't recall that I saw Slava again" (after his expulsion was announced).

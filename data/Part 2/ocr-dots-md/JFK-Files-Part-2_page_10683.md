@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_10683.png
+
+Convert to Markdown# FEDERAL BUREAU OF INVESTIGATION
+
+<table><tr><td colspan="3">REPORTING OFFICE</td><td>OFFICE OF ORIGIN</td><td>DATE</td><td>INVESTIGATIVE PERIOD</td></tr><tr><td colspan="3">PHILADELPHIA</td><td>PHILADELPHIA</td><td>8/25/71</td><td>8/21-23/71</td></tr><tr><td colspan="6"><u>TITLE OF CASE</u></td></tr><tr><td colspan="6">CAMDEN ACTION: DR. WILLIAM ALBERT JOSEPH ANDERSON-FUGITIVE; REVEREND MILO MARION BILLMAN-FUGITIVE; TERRY EDWARD BUCKALEW-FUGITIVE; PAUL BERNARD COUMING -FUGITIVE; FATHER MICHAEL J. DOYLE-FUGITIVE; ANN GRANT DUNHAM-FUGITIVE; FATHER PETER DONALD FORDI-FUGITIVE; KEITH WILLIAM FORSYTH-FUGITIVE; MICHAEL JOHN GIOCONDO-FUGITIVE; ROBERT GLENN GOOD-FUGITIVE; JOHN PETER GRADY-FUGITIVE; MARGARET MARY INNESS-FUGITIVE; FRANCIS MEL MADDEN-FUGITIVE; LIANNE MARIE MOCCIA-FUGITIVE; BARRY JAMES MUSTI-FUGITIVE; JOAN MARY REILLY-FUGITIVE; ROSEMARY REILLY-FUGITIVE; KATHLEEN MARY RIDOLFI-FUGITIVE; JOHN ROBERT SWINGLISH-FUGITIVE; SARAH JANE TOSI-FUGITIVE; ROBERT WILLIAM WILLIAMSON-FUGITIVE</td></tr><tr><td colspan="6">REPORT MADE BY<br/>ELMER E. SUSSMAN<br/><br/>CHARACTER OF CASE<br/>CGR-BURGLARY; TGP; DGP; MUTILATION OF PUBLIC RECORDS; INTERFERENCE WITH THE ADMINISTRATION SSA OF 1967; CONSPIRACY</td></tr></table>
+
+## References
+
+Philadelphia teletypes to the Bureau and Newark 8/22/71 and 8/23/71.
+
+-P-
+
+<table><tr><th colspan="4" scope="colgroup">ACCOMPLISHMENTS CLAIMED ☐ NONE</th><th rowspan="2" scope="col">ACQUIT-TALS</th><th rowspan="2" scope="col">CASE HAS BEEN:</th></tr><tr><th scope="col">CONVIC.</th><th scope="col">AUTO.</th><th scope="col">FUG.</th><th scope="col">FINES</th><th scope="col">SAVINGS</th><th scope="col">RECOVERIES</th></tr><tr><td></td><td></td><td>21-PH</td><td></td><td></td><td></td><td></td></tr></table>
+
+<table><tbody><tr><th colspan="2">APPROVED</th><th>SPECIAL AGENT IN CHARGE</th><th colspan="3">DO NOT WRITE IN SPACES BELOW</th></tr><tr><th colspan="2">COPIES MADE:</th><th>5-Bureau (52-94527)<br/>3-Newark (52-6817)<br/>1-USA, Newark, N.J.<br/>1-Boston (52-6636) (Info)<br/>1-New York (52-10018) (Info)<br/>1-WFO (52-12554) (Info)<br/>6-Philadelphia (52-7165)<br/>1-Departmental Attorney GUY GOODWIN</th><th colspan="2">AUG 30 1971</th></tr><tr><th>Agency</th><th>Request Recd.</th><th>Dissemination Record of Attached Report</th><th colspan="3">Notations</th></tr><tr><td></td><td></td><td>CAMPbell<br/>ICC TICKET A, ICC CAD Art Guy Grumman<br/>Clg.BJ 8/19/71</td><td colspan="3"></td></tr><tr><td>Date Fwd.</td><td></td><td></td><td colspan="3"></td></tr><tr><td>How Fwd.</td><td></td><td></td><td colspan="3"></td></tr><tr><td>By</td><td>54SEP

@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_12960.png
+
+Convert to Markdown**Jury selection**
+
+The jury element is the people's component in the existing system of criminal justice; it is only quasi-organized and partially managed. The use of systematic jury selection can be an important tool in the practice of people's law, but at present it is being developed and used selectively as a successful foil in cases of overt political attack. The minimal program in jury selection defense work is to secure a group of twelve people who will take their function as jurors seriously and assume that the defendants are innocent until proven guilty. The maximal program is to secure a jury which will acquit the defendants.
+
+Since 1970, serious inroads have been made on the jury system: proposed abolition of 12-person juries, non-unanimous verdicts, abolition of voir dire of prospective jurors by lawyers, disciplining of 'disruptive' lawyers and other reforms! to 'speed up' decision-making. Juries are under attack by the narrow, elite group who seek to rule this country only because this vehicle of the people's power cannot be relied upon to make political prisoners of us all.
+
+## Challenging jury composition
+
+18 U.S.C. Sec. 1861 is a federal statute which places an obligation on the courts to assure the right to a jury selected at random from a fair cross-section of the community. Data, gathered from observing juries, which suggests an imbalance can be used as grounds for access to jury selection records. Through an example of the conviction correlation hypothesis, a water jury wheel, a demography (the study of the characteristics of a population) of the voter registration list can be determined.

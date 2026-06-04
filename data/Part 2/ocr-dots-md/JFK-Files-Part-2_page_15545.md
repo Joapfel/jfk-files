@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_15545.png
+
+Convert to Markdown'Fascism is what we have in this country today,' he heatedly began, 'and there are three integral parts: the avaricious businessman, the demagogic politician, and the racist pig dog policeman.'
+
+HAMPTON, embattled in the courts on as-sault charges, said one of the worst dangers for blacks is their belief in the white power structure's 'false values.'
+
+'Athletics and entertainment are the biggest form of exploitation there is,' he cried, blasting the likes of WILT CHAMBERLAIN and singer JAMES BROWN as helping to perpe-tuate a dangerous myth.
+
+'Hell, with all this work to be done, we got no time for playing.'
+
+The Panther chairman said that everyone has the right to defend himself, so if people don't want the Panthers to have guns, all guns should be thrown in the ocean and not turned in to Chicago police sup. JAMES CONLISK 'so that he can sell them.'
+
+"When you mix explosive chemicals and put them in a keg," he continued, "you can march around it, picket it, slap petitions on it, but it's still explosive. You have to get inside at the chemicals, the cause."
+
+HAMPTON said he knew his theories weren't very popular.
+
+"But look, I'm 21, if you think that it has all happened in 21 years and that I did it, then you should take me out and shoot me. But
+
+NW 88613 DocId:32199554 Page 1042

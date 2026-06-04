@@ -1,0 +1,64 @@
+# JFK-Files-Part-2_page_9493.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+CONFIDENTIAL
+
+Copy to:
+
+1 - MIG, Detroit (RM)
+1 - Secret Service, Detroit (RM)
+1 - OSI, Dayton, Ohio (RM)
+1 - NIS, Chicago (RM)
+
+Report of:
+Date: SA DONALD V. RITENOUR, JR.
+Office: Detroit, Michigan
+2/17/71
+
+Field Office File #: 157-3075
+
+Title: BLACK PANTHER PARTY (BPP)
+NATIONAL COMMITTEE TO COMBAT FASCISM (NCCF)
+DETROIT DIVISION
+
+Bureau File #:105-165706-sub 15
+
+Character: SECURITY MATTER - SMITH ACT OF 1940;
+SEDITIOUS CONSPIRACY
+REBELLION AND INSURRECTION
+
+Synopsis:
+
+The Detroit NCCF continues to operate
+under the direction of BPP National Head-
+quarters, Oakland, Calif. The Detroit
+NCCF operates a Free Clothing Program
+in Detroit and Free Breakfast for School
+Children Programs in Detroit and Flint,
+Michigan. Following political education
+classes in January, 1971, NCCF members
+and associates marched in the street in
+front of 611 Continental, Detroit. Detroit
+NCCF members beat two associates suspected
+of theft. Detroit continues to receive
+copies of "The Black Panther" newspaper
+from BPP National Distribution, San Francisco,
+California.
+
+- P -
+
+DETAILS
+
+CONFID
+
+<table>
+   <tr>
+    <td>GROUP 1</td>
+   </tr>
+   <tr>
+    <td>Excluded from automatic downgrading and doclassification.</td>
+   </tr>
+  </table>
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to NW 88296. Document ID: 229889574. Page 402 not to be distributed outside your agency.

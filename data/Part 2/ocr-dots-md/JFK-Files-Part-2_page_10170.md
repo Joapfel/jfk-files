@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_10170.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+WASHINGTON, D. C. 20535
+
+Addressee: SENATE SELECT COMMITTEE
+
+☐ LTR ☑ LHM ☐ Memo ☐ Report dated 2-26-76
+
+Caption of Document: U.S. SENATE SELECT COMMITTEE (SSC)
+(2/19/76 review of report) concerning informants
+
+Originating Office: FBI
+
+Delivered by: J. A. Stamey Date: 3/3/76
+
+Received by: R. Kelly
+
+Title: ATTORNEY - SSC
+
+Return this receipt to the Intelligence Division, FBI
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1/19/76 BY: SRAMKP
+
+ENCLOSURE
+
+NW 88326 DocId:32989603 Page 211

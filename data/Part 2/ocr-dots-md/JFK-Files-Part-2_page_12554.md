@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_12554.png
+
+Convert to Markdownfurnish copies of reports bearing dual character, "Security of Govern-
+ment Employees; Security Matter - C," to appropriate intelligence
+agencies of armed services. Instructions regarding dissemination to
+Defense Industrial Security Clearance Office, Defense Supply Agency,
+Columbus, Ohio, appear in this section of this manual under individuals
+employed in or having access to key facilities - dissemination. In-
+structions regarding all phases of FBI responsibilities under Executive
+Order 10450 are in section 19, volume II, of this manual.
+
+h. Individuals who own property or reside in immediate vicinity of instal-
+lation or other premises under cognizance of branch of armed services
+Disseminate locally to intelligence service of military branch involved.
+
+i. Airmen issued certificates by Federal Aviation Administration (FAA) FAA issues certificates to airmen, defined as persons in command or acting as pilot, mechanic, or member of crew in navigation of aircraft while under way; individuals directly in charge of inspection, main- tenance, overhauling, or repair of aircraft, aircraft engines, propellers, or appliances; and any individual serving in capacity of aircraft dispatcher or air-traffic control tower operator. Furnish subversive data concerning such persons to Bureau by report or LHM. In cover communication, recommend it be furnished to FAA. Dissemination will be made only at Bureau. For additional instructions regarding dissemina- tion to FAA, see MRR, part II, section 5.
+
+j. Dissemination to Secret Service
+
+Under agreement between FBI and Secret Service concerning protective
+responsibilities dated 11-26-71 (set out in section 102, volume IV,
+of this manual), reports or LHMs are disseminated to Secret Service
+(both locally and at[FBIHQ]) in all cases which meet standards set forth
+As practical matter, this includes virtually all security cases on
+individuals where any substantial information exists as to subversive,
+extremist, or revolutionary activities or sympathies on the subject's
+part. Furnish Bureau extra copy of report or LHM in these cases.
+
+(1) Secret Service must be advised of reason for referral; that is, statement of class or classes of agreement which applies to subject. Use FD-376, which serves as letter of transmittal for both local and [FBIHQ] dissemination. Forward original and one copy to Bureau. Maintain copy in case file and upon transfer of origin, furnish copy to new office of origin. Be certain individual is properly categorized.
+
+(2) If subject of prior investigation is being recommended for ADEX,
+do not disseminate prior reports without first reviewing them
+carefully to insure they meet current reporting standards and are
+suitable for dissemination. If one or more prior reports are
+found unsuitable for dissemination, prepare LHM containing the
+pertinent information involved for dissemination to Secret Service
+along with current report. Forward copies of such LHM to Bureau
+for [FBIHQ] dissemination.
+
+(3) After initial dissemination to Secret Service, as changes occur
+in residence and employment, advise Secret Service locally by
+FD-366 and furnish two copies to Bureau.
+
+(4) For instructions pertaining to dissemination to Secret Service in matters involving threats against President, refer to section 134B, volume IV, of this manual.

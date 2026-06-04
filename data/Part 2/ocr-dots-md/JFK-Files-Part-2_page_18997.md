@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_18997.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+Jaffe also advised on December 2, 1965, that he knows Vadim Evgenievich Golovanov, an exchange student studying at Stanford University, Palo Alto, California. Kalugin and Golovanov are acquainted with each other because of their journalistic backgrounds and assignments in the journalism field in Russia. Jaffe said Golovanov formerly was a Radio Moscow correspondent usually assigned to interview prominent American citizens visiting Russia.
+
+During interview of December 2, 1965, Jaffe also furnished information on several other Soviet nationals. He said he had seen Vladimir P. Suslov briefly in Moscow since Suslov returned to Russia, and Jaffe indicated Suslov is now Andrei Gromyko's chief advisor. Jaffe stated Vladimir F. Petrovskiy and his wife, Mira, also were employed in Gromyko's office when they were in Russia. According to Jaffe, Petrovskiy and his wife attended Jaffe's reception at the American Embassy, Moscow following his marriage two and a half years ago.
+
+Jaffe said Yuri Vinogradov, who was formerly employed on the Staff of the United Nations Secretariat, was a good friend of his and was one of three individuals who stood up for him at the time of his marriage in Russia. The other two were Stewart Ramsey of McGraw-Hill, Incorporated, and Martin Paige, of the "London Daily Express." Since Vinogradov returned to Russia in February, 1965, he has been inaccessible to Jaffe. Vinogradov is assigned to the Foreign Ministry in Moscow and Jaffe has heard that while in the United States, Vinogradov was running around with an Indian girl who was the wife of U-Thant's Military Advisor. Jaffe said this allegedly is the reason Vinogradov was recalled to Russia.
+
+Jaffe said Igor Chechetkin is now in charge of the United Nations Information Bureau in Moscow. Jaffe said he has not seen Vladimir I. Bogachev since his return to the United States, although he is well acquainted with Bogachev. Jaffe said Vadim Bogoslovski is employed by the Central Committee of the Communist Party of the Soviet Union in a position in which he is supposed to have no contact with foreigners.
+
+SECRET
+20
+
+NWW 88326 DoctID:32989704 Page 291

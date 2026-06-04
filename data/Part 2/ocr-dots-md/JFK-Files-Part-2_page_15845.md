@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_15845.png
+
+Convert to MarkdownI propose that we should reform the method and the system of study throughout the Party. The reasons are as follows?
+
+# I.
+
+The twenty years of the Communist Party of China have been twenty years in which the universal truth of Marxism-Leninism has become more and more integrated with the concrete practice of the Chinese revolution. If we recall how superficial and meager our understanding of Marxism-Leninism and of the Chinese revolution was during our Party's infancy, we can see how much deeper and richer it is now. For a hundred years, the finest sons and daughters of the disaster-ridden Chinese nation fought and sacrificed their lives, one stepping into the breach as another fell, in quest of the truth that would save the country and the people. This moves us to song and tears. But it was only after World War I and the October Revolution in Russia that we found Marxism-Leninism, the best of truths, the best of weapons for liberating our nation. And the Communist Party of China has been the initiator, propagandist and organizer in the wielding of this weapon. As soon as it was linked with the concrete practice of the Chinese revolution, the universal truth of Marxism-Leninism gave an entirely new complexion to the Chinese revolution. Since the outbreak of the War of Resistance Against Japan, our Party, basing itself on the universal truth of Marxism-Leninism, has taken a further step in its study of the concrete practice of this war and in its study of China and the world today, and has also made a beginning in the study of Chinese history. These are all very good signs.
+
+# II.
+
+However, we still have shortcomings, and very big ones too. Unless we correct these shortcomings, we shall not, in my opinion, be able to take another step forward in our work and in our great cause of integrating the universal truth of Marxism-Leninism with the concrete practice of the Chinese revolution.
+
+First, take the study of current conditions. We have achieved some success in our study of present domestic and international conditions, but for such a large political party as ours, the material we have collected is fragmentary and our research work unsystematic on each and every aspect of these subjects, whether it be the political, military, economic or cultural aspect. Generally speaking, in the last twenty years, we have not done systematic and thorough work in collecting and studying material on these aspects, and we are lacking in a climate of investigation and study of objective reality. To behave like "a blindfolded man catching sparrows" or a "blind man groping for fish," to be crude and careless, to indulge in verbiage, to rest content with a smattering of knowledge--such is the extremely bad style of work that still exists among many comrades in our Party, a style utterly opposed to the fundamental spirit of Marxism-Leninism. Marx, Engels, Lenin and Stalin have taught us that it is necessary to study conditions conscientiously and to proceed from objective reality and not from subjective wishes; but many of our comrades act in direct violation of this truth.
+
+Second, take the study of history. Although a few Party members and sympathizers have undertaken this work, it has not been done in an organized way. Many Party members are still in a fog about Chinese history, whether of the last hundred years or of ancient times. There are many Marxist-Leninist scholars who cannot open their mouths without citing ancient Greeco; but as for their own ancestors--sorry, they have been forgotten. There is no climate of serious study either of current conditions or of past history.
+
+61
+
+NW 88613 DocId:32199554 Page 1342

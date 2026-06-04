@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_16029.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DEMONSTRATIONS PROTESTING THE TRIALS OF INDIVIDUALS INDICTED FOR THEIR ACTIVITY DURING THE DEMOCRATIC NATIONAL CONVENTION (DNC) OF 1968 IN CHICAGO, ILLINOIS
+
+tempt loading with red paint to spray on the demonstrators.
+
+At 11:00 a.m., on October 7, 1969, SAs of the FBI observed a group of blacks, identifying themselves as BPP members, arrive at the outdoor plaza of the Federal Building, Chicago. The group was observed to pass out literature entitled "Government Conspiracy to Destroy Black Panther Party". The pamphlet criticized the Chicago PD, referring to police officers as "pig Daly's imperialistic mad dogs" and reported "the continued raids, jailing and murdering of Panthers proves it is a government conspiracy to destroy the revolutionary leaders at Babylon (America)."
+
+An eighth source advised on October 7, 1969, that a BPP rally was scheduled to be held on October 7, 1969, to emphasize support of Bobby Seale, National Chairman of BPP, in an attempt to gain community backing for BPP. The BPP has been instructed by its leadership that any member becoming involved in militant action will be instantly purged from the Party.
+
+At 11:45 a.m., on October 7, 1969, SAs of the FBI observed BPP members setting up loudspeaker equipment in the outdoor plaza area of the Federal Building, Chicago. Approximately 75 to 100 demonstration participants were observed in the vicinity of the plaza area.
+
+At 12:30 p.m., on October 7, 1969, SAs of the FBI observed about 75 members of BPP as well as approximately 225 spectators, gathered in the plaza of the Federal Building, Chicago. On this occasion, Bobby Rush, Deputy Minister of Defense, Illinois BPP Chapter, Chicago, addressed those assembled, advising that the United States Government should be tried for conspiracy against BPP because of the numerous raids on BPP offices throughout the country. Rufus Walls, Deputy Minister of Information, Illinois BPP Chapter, Chicago, was observed by SAs of the FBI to be
+
+-15-
+
+CONFIDENTIAL
+
+NW 88613 DocId:32199554 Page 1526

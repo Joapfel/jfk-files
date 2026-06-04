@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_17540.png
+
+Convert to MarkdownSources advised a rally was held at the American University, Washington, D.C., on September 13, 1969, with approximately 700 to 800 people in attendance. The theme of all speakers was to the effect that a revolution was going on at that time and that all oppressed people should be armed. BOB LEE, Secretary of the BPP, Chicago spoke. LEE contained his remarks to the above and exhibited the film "American Revolution II" which is described as an anti-police and anti-establishment film.
+
+| 9/13/69)
+
+Source advised on September 14, 1969, the BPP sponsored a rally at the Intermediate School, 201, 125th Street, Madison Avenue, New York City, New York. Between 400 and 500 people attended and most were either black or Puerto Rican. BOB LEE spoke after showing the "American Revolution II" film and his remarks were concerned with the "Facist Pig Tactics" used by police to suppress the desire of the people.
+
+| 9/15/69)
+
+The Chicago "Tribune" a daily Chicago newspaper in its Four Star Final edition on September 18, 1969, printed an article regarding the BPP Breakfast for Children Program. The article reflects the program as being almost non-existent in Chicago. The article also stated that FRED HAMPTON states the program feeds 3,000 to 3,500 children, but investigation determined that on some days the locations were not opened and on other days only handfuls of children showed up. The article concluded, saying the neighborhood merchants who had previously donated to the program had all but ceased donations.
+
+Source advised the Breakfast for Children Program is run by BARBARA SANKEY, and JOAN GRAY.

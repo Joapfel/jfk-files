@@ -1,0 +1,77 @@
+# JFK-Files-Part-2_page_14421.png
+
+Convert to MarkdownJAMES O. EASTLAND, MISS., CHAIRMAN
+
+JOHN E. MCGEEHAN, A.K.A.
+SAM J. BROWN, JR., N.C.
+PHILIP A. HART, MICH.
+EDWARD H. KENNEDY, MASS.
+DICK BATH, IND.
+QUENTON N. BURDICK, N. DAK.
+ROBERT C. BYRD, W. VA.
+JOHN V. TUNNEY, CALIF.
+
+MOMAN L. HRUSKA, NERR.
+JIHAN L. FONG, HAWAII
+HUGH SCOTT, PA.
+STRUM THURMOND, S.C.
+MARLOW W. COOK, KY.
+CHARLES MCC. MATHIAS, JR., MO.
+EDWARD J. GURNey, FLA.
+
+SUBCOMMITTEE:
+
+ARD M. KENNEDY, MASS., CHAIRMAN
+
+PHILIP A. HART, MICH.
+BIRCH BAYN, IND.
+QUENTIN N. BURDICK, N. DAK.
+JOHN V. TUNNEY, CALIF.
+
+STROM THURMOND, S.C.
+CHARLES McC. MATHIAS, JR., MD.
+EDWARD J. GURNey, FLA.
+
+NATHAN LEVENTHAL, CHIEF COUNSEL
+
+PETER M. STOCKETT, JR.
+CHIEF COUNSEL AND STAFF DIRECTOR
+
+# United States Senate
+
+## COMMITTEE ON THE JUDICIARY
+
+### SUBCOMMITTEE ON ADMINISTRATIVE PRACTICE AND PROCEDURE
+
+(PURSUANT TO SEC. 3, S. RES. 55, BID CONGRESS)
+
+WASHINGTON, D.C. 20510
+
+April 10, 1975
+
+Honorable Edward H. Levi
+Attorney General
+Department of Justice
+Washington, D.C.
+
+Dear Mr. Attorney General:
+
+A newspaper report in today's Washington Post has raised serious questions as to how many federal agencies engage in electronic surveillance and the extent of such surveillance.
+
+At a hearing on May 23, 1974, before the Subcommittee on Administrative Practice and Procedure, Attorney General Saxbe testified on this subject. I asked him: "Can you tell us about any other organizations or government departments that are involved in any wiretapping at all today?" The Attorney General replied: "We do not believe that there is anyone else and the penalties are rather severe." (p. 495) I am enclosing a copy of the hearings for your convenience.
+
+The recent reports raise questions concerning the completeness and clarity of Attorney General Saxbe's earlier testimony. President Johnson's executive memorandum of June 30, 1965, requires that federal agencies engage in wiretapping only with the prior approval of the Attorney General. In order to fully answer the questions that have been raised, I request that you provide the Subcommittee on Administrative Practice and Procedure with the following information by April 16:
+
+1. A list of all federal departments, agencies, bureaus, divisions, and other units that conduct, have conducted, or have authority to conduct electronic surveillance of any type (including wiretaps, bugs, and other uses of any device or apparatus which can be used to intercept a wire or oral communication).
+
+RECEIVED
+
+APR 14 1975
+
+CRIMINAL DIVISION
+
+ENCLOSURE
+
+NW 88296 DocId:32989532 Page 172
+
+CRIMINAL DIVISION CRIMINAL DIVISION CRIMINAL DIVISION ENCL

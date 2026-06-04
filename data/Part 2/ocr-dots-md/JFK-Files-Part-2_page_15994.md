@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_15994.png
+
+Convert to MarkdownA source advised that on October 26-27, 1963, a conference of members of the Communist Party, USA (CPUSA), including national functionaries, met in Chicago, Illinois, for the purpose of setting in motion forces for the establishment of a new national Marxist-oriented youth organization which would hunt for the most peaceful transition to socialism. The delegates were told that it would be reasonable to assume that the young socialists attracted into this new organization would eventually pass into the CP itself.
+
+A second source has advised that the founding convention for the new youth organization was held from June 19-21, 1964, at 150 Golden Gate Avenue, San Francisco, California, at which time the name W.B. DuBois Clubs of America (DCA) was adopted. Approximately 500 delegates from throughout the United States attended this convention.
+
+The second source advised in September, 1966, that Mike Zagarell, CPUSA Youth Director, stated that in Negro communities the Party still supported the plan to build "left" socialist centers and to solidify the Party base through the DCA. This source also advised in September, 1966, that Daniel Aubin, CPUSA National Organizational Secretary, stated the Party believes the DCA should have a working class outlook and be a mass organization favorable to socialism, socialist countries and Marxism, and in April, 1967, Gus Hall, CPUSA General Secretary, indicated that the DCA primary emphasis should be on developing mass resistance to the draft.
+
+A third source advised in September, 1967, that Jarvis Tyner was elected Chairman of the DCA on September 10, 1967, near the conclusion of the Third National Convention of the ICA held in New York, New York, from September 8-10, 1967.
+
+A fourth source advised on July 26, 1968, that Jarvis Tyner continues in his position as Chairman of the DCA.
+
+This fourth source also advised on July 26, 1968, that Jarvis Tyner is a member of the National Committee of the CPUSA.
+
+The fourth source further advised on July 26, 1968, that the headquarters of the ICA are located at 34 West 7th Street, New York, New York, 10003.

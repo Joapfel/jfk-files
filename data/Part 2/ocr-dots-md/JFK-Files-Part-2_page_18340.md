@@ -1,0 +1,59 @@
+# JFK-Files-Part-2_page_18340.png
+
+Convert to MarkdownFRANK CHURCH, IDAHO, CHAIRMAN
+JOHN G. TOWER, TEXAS, VICE CHAIRMAN
+
+PHILIP A. HART, MICH.
+WALTER F. MONDALE, MINN.
+WALTER D. HUDDLESTON, KY.
+ROBERT MORGAN, N.C.
+GARY HART, COLO.
+
+HOWARD H. BAKER, JR., TENN.
+BARRY GOLDWATER, ARIZ.
+CHARLES MCC. MATHIAS, JR., MD.
+RICHARD S. SCHWEIKER, PA.
+
+WILLIAM G. MILLER, STAFF DIRECTOR
+FREDERICK A. O. SCHWARZ, JR., CHIEF COUNSEL
+CURTIS R. SMOTHERS, MINORITY COUNSEL
+
+United States Senate
+
+SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+(PURSUANT TO S. RES. 21, 94TH CONGRESS)
+
+WASHINGTON, D.C. 20510
+
+September 16, 1975
+
+Michael E. Shaheen, Jr., Esq.
+Special Counsel for Intelligence
+Coordination
+Office of the Deputy Attorney General
+U. S. Department of Justice
+Washington, D.C. 20530
+
+ALL FBI INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/11/66 BY J.Q.McLey
+
+Dear Mike:
+
+The following two documents, which relate to the Martin Luther King, Jr. matter, are the subject of a pending Committee request for documents:
+
+A. Airtel dated 2/12/62 from SAC, New York, to Director, FBI, subject "Dr. Martin Luther KIng, Jr., SM-C (00:Atlanta);"and
+
+B. Airtel dated 8/15/66 from SAC, New York, to Director, FBI, subject "Communist Party, USA, Counterintelligence Program, Internal Security - C (Stanley David Levison)."
+
+These two documents had been previously provided to the Committee in heavily or almost completely excised form. Virtually the entire contents of Item A. (a 3-page airtel) were excised because "it could result in identification of an FBI informant," and more than 12 pages of Item B. (a 29-page airtel) were excised because such portions contained information which "tends to identify highly sensitive sources of continuing value." A third document which is needed by the Committee, and which would presumably also be provided by the Bureau only in excised form is a New York field office letter to the Bureau dated 6/21/62 as cited in the last paragraph of page 9 of the 10/11/62 memorandum from the SAC, Atlanta, to the Director, FBI, subject "Communist Infiltration of the Southern Christian Leadership Conference, IS-C (00: Atlanta)."
+
+SEP 16 1975
+
+ENCLOSURE
+
+NW 88326 DocId:32989653 Page 338
+
+U 2 - 116395 789

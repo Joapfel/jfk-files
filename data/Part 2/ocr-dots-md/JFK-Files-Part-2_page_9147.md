@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_9147.png
+
+Convert to MarkdownRH 157-1558
+
+DRAGER would have access to a small cache of weapons maintained
+at the ANP Headquarters and at Spotsylvania, Virginia.
+
+L. Associates, Both Business and Social
+
+On January 21, 1967, RH T-1 advised that subject,
+since arriving in Arlington, Virginia, in 1966, has been closely
+associated only with other members of the ANP; and to the knowledge
+of this source, DRAGER has not made any outside acquaintances.
+
+M. Up-to-date Photograph of the Subject
+
+On August 8, 1966, Detective AL CALLAHAN, Trenton, New Jersey, Police Department, made available to SA NORMAN A. HENDRICKS a photograph of the subject taken at the time of his arrest in 1963. :
+
+II. CONNECTIONS WITH KLAN-TYPE AND HATE-TYPE ORGANIZATIONS
+
+On April 8, 1966, RH T-1 advised that "Probationary Trooper" FRANK DRAGER had joined the ANP on March 9, 1966, and attended a meeting of the ANP held on March 13, 1966, at the ANP Barracks, 6150 Wilson Boulevard, Arlington, Virginia.
+
+On April 22, 1966, RH T-1 advised that "Probationary
+Trooper" FRANK DRAGER attended a formal meeting of the ANP held
+April 3, 1966, at the ANP Barracks, Arlington, Virginia.
+
+On October 31, 1966, RH T-2 advised that as of October 26, 1966, DRAGER was assigned the following duties in his employment with the ANP: "Printing operations, including purchase of materials, quality control on press, and bindery operations, as well as on call for special assignments."
+
+On January 21, 1967, RH T-1 advised that DRAGER is
+presently a "Lieutenant" in the ANP, attached to National Headquarters,
+6150 Wilson Boulevard, Arlington, Virginia.

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_9555.png
+
+Convert to Markdownpeople, of whom the Palestinians are an integral part, have not known racism throughout their long history.
+
+2. Likewise, the Palestinian Revolution is not an anti-semitic movement, for "anti-semitism" is a Western concept alien to the Arab past.
+
+3. The Palestinian Revolution aims at destroying the Zionist structure in Palestine as represented by the political entity of the State of Israel. It has been pseudo-legitimized by so-called international recognition which ignored the will of the Palestinian people, their right to self-determination and to sovereignty on their Palestinian soil.
+
+4. The Palestinian Revolution aims at regaining the lost rights of the Palestinian people. After the liberation of our homeland, we shall live with those who will live with us according to our inherent belief in the principles of equality, justice, and humanity.
+
+The Palestinian people hate war as much as any other people, but the continued presence of Zionism on our land and the continued political existence of Israel: our country impose war on us because the victory of Zionism does not mean peace. It means continuous oppression and danger. Likewise, it encourages all racist movements and ideologies to act viciously against truth and justice. This leads to nothing but war. Therefore, it is imperative that we fight, and fight until victory. This is a just struggle for the welfare of justice and true peace.
+
+The Zionist movement today is a new form of Nazism; in other words, opposing it and fighting it are human duties, for the struggle is merely an extension of the world's struggle against Nazism and
+
+the continuation of the long chain of human struggle against forces of oppression, injustice, and racism. The destruction of Zionism, of the political entity of Israel, is essential; otherwise, all those who gave their lives in World War II and in all wars of liberation throughout history will have died in vain, will have been robbed of their imperatives and values that motivated these sacrifices.
+
+Brothers: In spite of their dispersion and destitution, the Palestinian people stand today through their Revolution as the front line of defense of their rights, the Arab nation's right, and the rights of humanity at large.
+
+The principles of the Revolution, having been declared long before the June, 1967, War, aim at more than merely removing the effects of that aggression. The Revolution's basic principle, "Revolution till Victory," means that it is a movement aiming at the liberation of Palestine and the world from one of the most dangerous international movements threatening man's humanity, dignity, and freedom. Thus, exposing Zionism's dangers and fighting it everywhere is as important as the military struggle being waged by your brothers in the occupied areas, though obviously it is no substitute for it.
+
+Having clarified the basic principles and the position of the Palestinian Revolution, we must now proceed to analyze the present condition of this revolution and its strength in facing the future.
+
+The Fedayeen vanguards of the Palestinian people who began their commando activities against the enemy on January 1, 1965, were, and still are, fully aware of the difficulties that lie ahead of them on their road to revolution and freedom.
+
+The phase through which we passed prior to June, 1967, was that of preparation for the revolution, preparation for it through steadfast:
+
+NW 88296. DocId:32989574 Page 464
+
+26

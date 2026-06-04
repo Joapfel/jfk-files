@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_10287.png
+
+Convert to MarkdownWe have concluded that the best solution is to have this officer attend a university in the Midwest for at least a year, working towards an advanced degree until there has been time for the situation to clarify itself. We plan to make no operational use of the CIA Officer whatsoever, during the period of time that he is attending the university. Upon completion of his year's study, we will review the situation and decide the next course of action at that time.
+
+Paragraph l. c. is deleted because it contains sensitive Agency operational methods and techniques.
+
+d. FR Division has been briefed in general on the existence of an audio operation done by the FBI but with close (TSD support) in San Francisco. This operation is directed against IDEN-62. I understand the operation has been exceptionally well done. However, the responsibility for this activity has come from Chief, TSD in conjunction with SB Division.
+
+e. Three microphones were planted in various locations in the IDEN-61 by the FBI. The equipment was produced by CIA and the overall operation was joint, although no CIA personnel have entered the premises. The operation was deactivated and is presently dormant. The mikes, however, are still in place. If discovered the operation could cause some embarrassment to the American Government, but it is unlikely the finger would point to CIA.
+
+SECRET/SENSITIVE
+
+00615

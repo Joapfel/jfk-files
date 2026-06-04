@@ -1,0 +1,75 @@
+# JFK-Files-Part-2_page_17133.png
+
+Convert to MarkdownFREE BREAKFASTS FOR CHILDREN
+
+Last week the democratic bistroge press carried an article which stated that the Black Panther Party in the City of Chicago was no longer feeding hungry school children. The article also stated that the Party was using the Breakfast money and food for their own personal use. This is totally incorrect, the Black Panther Party refuses to accept the ideology of this superstitious pig power structure which starves out 95% of its population and uses food funds to send their astrologers to the moon for the purpose of heightening exploitation.
+
+The people and the Black Panther Party say there's something terribly wrong when Daley's Storkvam pigs have nothing more to do than sit in front of our breakfast center, and spy on and intimidate the hungry school children, who attend our centers by the hundred credits each morning.
+
+Not only do the Breakfast Centers provide free breakfasts but they also serve as a place where children receive revolutionary culture, education and also imitate the first aid treatment. We believe anything the people want and need can be gained through revolutionary struggle and until the people realize this we will continue to light the uprisings that this pig power structure has placed on the people.
+
+So the Black Panther Party's Breakfast for Children Program will continue in any prevent community as long as the slaves and it necessary. And we say to the pigs who wallow in the pig pen care in front of the Breakfast Center, our office and crabs, Neware: The boat of the people is much too fast, so go back home where you belong. Watch out pigs, it's a people's thing! ALL POWER TO THE PEOPLE
+
+FREE ALL POLITICAL PRISONERS
+State Hervertine
+
+BAIL MONEY IS
+NEEDED TO FREE
+ALL POLITICAL
+PRISONERS
+SEND MONEY TO
+BLACK PANTHER PARTY
+ILL CHAPTER
+2350W MADISON
+243-8276
+
+CONSPIRATORS cont.
+
+One attorney, Gerald Lefcourt, is the chief counsel for the New York 21 and must return to New York to fight for their freedom. The only reason he can give for locking the attorneys up is Chairman Bobby's insistence upon having Charles Garry as his counsel. This is blackmailed, piracy, genuine and unequaled.
+
+One must understand the significance of the coasts here in Babylon. There are't too many more pigs they can husl, or too many more laws that they can pass, but the fashial power structure can call grand jury meetings and issue indictments forever. They are using the court system to frustrate the revolutionary struggle and impregnate the man power needed to carry the revolution through to the end.
+
+Pig Nixon, Hoffman, and Hoover, we have uncovered your conspiracy against the people. The people of the whole world see
+
+through your factarial lien and your kangaroo court. You smell of pig manship and your true nature is evident to all who see you walk low in the mine. Keep your hands off Bobby mother.... Keep your hands off the people. You are on the verge of extinction. The people are waiting for the opportune time to hang you for your astronomical crimes. You and all reactionaries are doomed. Give up 'Adolph' Hoffman, we are 'too revolutionary proletarians'intoxicated to be astronomically intuited.
+
+Justice To Those Who Deserve Justice
+Death To Those Who Deserve Death
+
+Free All Political Prisoners
+
+Shove the Time Off the Pig
+
+L. E. Fugent, Charles
+
+Information: Information Committee
+
+SUBSCRIPTION FORM
+
+Support Your Newspaper-- Subscribe Today!
+
+<table><thead><tr><td></td><td>National Subscriptions</td><td>Foreign Subscriptions</td></tr></thead><tbody><tr><td>3 MONTHS (13 ISSUES)</td><td>$7.50</td><td>$5.00</td></tr><tr><td>6 MONTHS (26 ISSUES)</td><td>$5.00</td><td>$4.00</td></tr><tr><td>ONE YEAR (32 ISSUES)</td><td>$7.50</td><td>$5.00</td></tr></tbody></table>
+
+ENTER MY SUBSCRIPTION FOR:
+
+3 MONTHS (13 ISSUES)
+
+6 MONTHS (26 ISSUES)
+
+ONE YEAR (32 ISSUES)
+
+(Please Select)
+
+ENTER
+
+ADDRESS
+
+City
+
+STATE
+
+PUA: MANKIND, CO.
+OF MAYOR TO: MAYOR OF INFORMATION BLACK PANTHERS PARTY.
+OFFICE ADDRESS TO: 410 N. Market Place San Francisco CA 94106
+
+NW 88613 DocId:32199554 Page 2630 - 31 -

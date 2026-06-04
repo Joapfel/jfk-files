@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_13823.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENSTUDY 75
+
+DATE: 7-23-75
+
+The Senate Select Committee on Intelligence Activities requested a staff interview with former Special Agent David E. Todd about COINTELPRO and the investigation at San Francisco of the Black Panther Party.
+
+At the direction of Bureau teletype 6-9-75, San Francisco on 6-11-75, advised Todd of above and that he was released from the applicable employee secrecy agreement for the purpose of the Staff interview.
+
+By letter dated June 11, 1975, Mr. Todd said the interview "may involve information disseminated to other Government agencies under security classification and may touch on foreign policy as well."
+
+Mr. Todd asked:
+
+1. For written confirmation of the release given him orally as well as a release from the provisions of any applicable executive orders;
+
+2. If there is "any limitation on the scope of the material" he may release; and
+
+3. Whether he will be permitted to "refresh my recollection by reviewing official files prior to or during the interview."
+
+Enclosure
+
+1 - Mr. Adams - Enc.
+1 - Mr. Wannall - Enc.
+1 - Mr. Cregar - Enc.
+1 - Mr. Mintz - Enc.
+1 - Mr. Hotis - Enc.
+1 - Mr. Daly - Enc.
+1 - Personal File Special Agent David E. Todd - Enc.
+1 - Mr. Miller - Enc.
+
+JDM: PVD:eek
+(10)
+
+3 JUL 9 1975
+
+(CONTINUED - OVER)

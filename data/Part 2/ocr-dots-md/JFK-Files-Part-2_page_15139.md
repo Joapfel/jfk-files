@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_15139.png
+
+Convert to MarkdownUNIFORM CRIME REPORTS
+1966 PRELIMINARY ANNUAL RELEASE
+
+On Wednesday, p. m., March 15, 1967, the FBI's preliminary crime reports for 1966 were released to the press.
+
+This report highlighted the fact that crimes of violence
+were up 11%. There was a 9% increase in murder, a 10% increase
+in aggravated assault, a 10% increase in forcible rape, and a 14%
+increase in robbery. As a group, crimes against property increased
+11% during 1966.
+
+The sharpest crime increase was noted in the group of cities having less than 10,000 inhabitants. Crime in these cities rose 14%. Large cities with over 100,000 inhabitants had an average increase of 10%, while crime in rural areas was up 7% and crime in the suburbs rose 13%.
+
+In the release dated March 15th the Director reiterated
+the need for adequate firearms legislation, noting that there was a
+23% increase in 1966 in serious assaults where guns were used. The
+Director also highlighted the fact that six out of every ten murders
+were committed with the use of a firearm. 71% of these murders
+were committed with handguns, 17% with shotguns and 12% with rifles
+or other type firearm.
+
+This crime report release also indicated that in 1966 police arrests of adults for all criminal acts (excluding traffic offenses) dropped 1%; however, arrests of persons under 18 years of age increased 9%.
+
+Our preliminary annual release also noted that nationally,
+police solutions of crime index offenses averaged 25% and noted that
+police solved 89% of murders, 72% of aggravated assaults, 65% of
+forcible rapes, 35% of robberies and 21% of property offenses.

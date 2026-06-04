@@ -1,0 +1,70 @@
+# JFK-Files-Part-2_page_15561.png
+
+Convert to MarkdownFREE BREAKFASTS FOR CHILDREN
+
+The people and the Black Panther Party, say in a statement released by them Tuesday morning, are being asked to join in the effort to help break the cycle of poverty among black Americans.
+
+Last week the damaging encroachment of urbanized areas on inner城 neighborhoods was pointed out by the Black Panther Party in the City of Chicago, as well as in other parts of the city. The article, issued last week, said that "the Black Panther Party believes it is possible for all our citizens to be successful in meeting the problems of the Black Panther Party's任务。"
+
+The Black Panther Party has a long history of fighting againstSegregated housing and food funds. It has also helped found the Food Justice Project which stars in the film
+
+and is one of many groups having started in recent years to fight for equality and justice for children, who attend our services but are hungry every day.
+
+This is a people's thing. We want to give kids the tools they need to build a better life for themselves and their families.
+
+The BLACK PANTHER PARTY is people can be involved in. Through your fact sheet and your angarage, you see the power of pig manure and its true nature is evident to all who see you. Keep your hands off Bobby mother... Keep your hands off the people. You are on the verge of extinction. The people are wanting for the opportune time to hang you for your astronomical crimes. You and all reactionaries are doomed if you're an Adolph Hoffman, we are too revolutionary proletarian intoxicated to be astronomically intimidated.
+
+CONSPIRATORS cont.
+
+One attorney, Gerald Leftour, is the chief counsel for the New York 21 and must return to New York to fight for their freedom. The only reason he can give for locking the attorneys up at Chairman Bobby's assistance upon having Charles Garry as his counsel. This is blackmail, conspiracy, genuine and undemocratic.
+
+One must understand the significance of the courts have in Babylon. There aren't too many more pigs they can hire, or too many more laws that they can pass, but the fact that power structure can call grand jury hearings and issue indictments forever. They are using the court system to frustrate the revolutionary struggle and impson the man-power needed to carry the revolution through to the end.
+
+Pig Nixon, Hoffman, and Hoover, we have uncovered you're conspiracy against the people. The people of the whole world see
+
+through your fact sheet and your anger. Your worst enemy is the state. Keep your hands off Bobby mother... Keep your hands off the people. You are on the verge of extinction. The people are wanting for the opportune time to hang you for your astronomical crimes. You and all reactionaries are doomed if you're an Adolph Hoffman, we are too revolutionary proletarian intoxicated to be astronomically intimidated.
+
+Justice To Those Who Deserve Justice
+Death To Those Who Deserve Death
+Free All Political Prisoners
+Smoke the Smoke Off the Pig
+
+# FREE HEALTH CARE
+
+The BLACK PANTHER PARTY is one way to be involved. Establishing a FREE PEOPLE'S MEDICAL CLINIC to satisfy the medical needs of our communities can be a light to the office of the community. We understand that the capital necessary will never provide adequate medical service to the BLACK PANTHER PARTY. For further information, call 24x7, 24 hrs.
+
+Technical assistance supplies and doctoring supplies should be made available to theBLACK PANTHER PARTY by the Illinois CHAPTER of the BLACK PANTHER PARTY 230 West Madison Street. CHAPLAIN
+
+Support Your Newspaper--Subscribe Today!
+
+<table><thead><tr><th></th><th>National Subscriptions</th><th>Foreign Subscriptions</th></tr></thead><tbody><tr><td>3 MONTHS (3 ISSUES)</td><td>$2.50</td><td>$3.00</td></tr><tr><td>6 MONTHS (6 ISSUES)</td><td>$5.00</td><td>$6.00</td></tr><tr><td>One Year (12 ISSUES)</td><td>$7.50</td><td>$9.00</td></tr></tbody></table>
+
+PLEASE MAINTAIN THIS DOCTRINE OF FREEMANSHIP OF MAN. SUPPORT THE INFORMATION BLACK PANTHER PARTY OF MONTGOMERY TO GET THE CIGAR HOUSE IN SAN FRANCISCO CA 94129
+
+SUBSCRIPTION FORM
+
+NATIONAL
+
+3 MONTHS (3 ISSUES)
+
+6 MONTHS (6 ISSUES)
+
+ONE YEAR (12 ISSUES)
+
+FEBRUARY 1989
+
+SANDERSON
+
+ADRENGTH
+
+LETTER FOR A MINUTE
+
+NAME
+
+ADDRESS
+
+SAMPLE CHARTER FOR THE NEWSPAPER
+
+SAMPLE CHARTER FOR THE NEWSPAPER
+
+NEWSPAPER CHARTER FOR THE NEW

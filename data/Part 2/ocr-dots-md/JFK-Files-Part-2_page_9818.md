@@ -1,0 +1,54 @@
+# JFK-Files-Part-2_page_9818.png
+
+Convert to MarkdownFRANK CHURCH, IDAHO, CHAIRMAN
+JOHN G. TOWER, TEXAS, VICE CHAIRMAN
+
+PHILIP A. HART, MICH.
+WALTER F. MONDALE, MINN.
+WALTER D. HUDDLESTON, KY.
+ROBERT MORGAN, N.C.
+GARY HART, COLO.
+
+HOWARD H. BAKER, JR., TENN.
+BARRY GOLDWATER, ARIZ.
+CHARLES MC C. MATHIAS, JR., MD.
+RICHARD S. SCHWEIKER, PA.
+
+WILLIAM G. MILLER, STAFF DIRECTOR
+FREDERICK A. O. SCHWARZ, JR., CHIEF COUNSEL
+CURTIS R. SMOTHERS, MINORITY COUNSEL
+
+United States Senate
+
+SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+(PURSUANT TO S. RES. 21, 94TH CONGRESS)
+
+WASHINGTON, D.C. 20510
+
+March 5, 1976
+
+Michael E. Shaheen, Jr., Esquire
+Office of Professional Responsibility
+Room 4313
+U.S. Department of Justice
+Washington, D.C. 20530
+
+Dear Mike:
+
+On March 4, 1976, Mr. James Johnson of the FBI reviewed the Select Committee's draft titled "CIA and FBI Mail Opening." James Dick and Thomas Dawson of the Committee staff revised the draft to meet all security problems previously raised by Mr. James Lee of the Bureau, and discussed the revisions with Mr. Johnson to make certain that their concerns were met.
+
+This letter is to confirm the fact that, unless I receive word to the contrary from you, the Department of Justice has no objection to the publication of this report.
+
+Thanks again for your help throughout the inquiry into this subject.
+
+Copy to Paul Daly
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 2/6/01 BY SPAMKP
+
+ENCLOSURE
+
+62-116395-1472

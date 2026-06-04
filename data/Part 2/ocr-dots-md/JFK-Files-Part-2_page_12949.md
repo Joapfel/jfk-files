@@ -1,0 +1,75 @@
+# JFK-Files-Part-2_page_12949.png
+
+Convert to MarkdownThe Attorney General
+
+Director, FBI
+
+U. S. SENATE SELECT COMMITTEE
+ON INTELLIGENCE ACTIVITIES (SSC)
+
+2 - Mr. J.A. Mintz
+(1 - J.B. Hotis)
+November 26, 1975
+
+1 - Mr. W.R. Wannall
+
+1 - Mr. Cregar
+
+1 - Mr. Deegan
+
+1 - Mr. Klein
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/23/75 BY SPA ALM/EHL
+
+Reference is made to the November 24, 1975, SSC request forwarded to the Department of Justice by letter dated November 24, 1975, requesting certain documents desired from the FBI.
+
+Enclosed for your approval and forwarding to the Committee are the original of two memoranda in response to this request.
+
+Also enclosed for your records are copies of the memoranda which are being delivered to you with a set of the materials which are being delivered to the SSC.
+
+Your attention is invited to the fact that amongst the documents being furnished to the SSC are communications concerning negotiations between the FBI, former FBI informant Gary Thomas Rowe and the Department pertaining to financial arrangements with Rowe.
+
+Enclosures -36
+
+62-116395
+
+1 - The Deputy Attorney General
+Attention: Michael E. Shaheen, Jr.
+Special Counsel for
+Intelligence Coordination
+
+SK:tdp (10)
+
+DEC 11 1975
+
+SEE NOTE PAGE TWO
+
+ORIGINAL AND ONE TO AG
+
+Assoc. Dir.
+Dep. AD Adv.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Couns.
+Telephone Rm.
+Director Sec'y
+
+MAIL ROOM [x] TELETYPE UNIT [ ]
+
+GPO 051-74
+
+NW 88296 DocId:32980550 Page 90

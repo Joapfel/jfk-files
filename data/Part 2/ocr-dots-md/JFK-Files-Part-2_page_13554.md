@@ -1,0 +1,113 @@
+# JFK-Files-Part-2_page_13554.png
+
+Convert to MarkdownNR 007 SF CODE
+5:13 PM NITEL, 5/14/75 MCC
+
+TO DIRECTOR (62-113395)
+
+FROM SAN FRANCISCO
+ATTN LEGAL COUNSEL
+
+SENSTUDY 75
+
+RE BUREAU TELETYPE TO ALL OFFICES DATED MAY 2, 1975, ABOVE
+CAPTION.
+
+ON MAY 14, 1975, LESTER B. SEIDEL, INVESTIGATOR, SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES, WASHINGTON, D.C., TELEPHONICALLY CONTACTED THE SAN FRANCISCO OFFICE AND REQUESTED THE IDENTITY OF THE SPECIAL AGENT IN CHARGE OF THE SAN FRANCISCO OFFICE IN 1970. HE WAS ADVISED THAT SPECIAL AGENT IN CHARGE CHARLES W. BATES SERVED IN THAT CAPACITY FROM JANUARY, 1970, THROUGH APRIL, 1970; THAT FORMER SPECIAL AGENT IN CHARGE HARRY J. MORGAN (NOW RETIRED) SERVED FROM APRIL, 1970, THROUGH SEPTEMBER, 1970; AND THAT ASSISTANT DIRECTOR ROBERT E. GEBHARDT SERVED AS SPECIAL AGENT IN CHARGE FROM SEPTEMBER, 1970, THROUGH NOVEMBER, 1972.
+
+SEIDEL DID NOT INDICATE THE SPECIFIC NATURE OF HIS INQUIRY OTHER THAT IT WAS CONNECTED WITH THE COMMITTEE WITH WHICH HE IS AFFILIATED.
+
+ABOVE BEING FURNISHED FOR INFORMATION OF BUREAU.
+
+END
+HOLD
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED.
+DATE 1-18-75 BY S.R. Ambrus
+cc Dism.
+
+<table>
+   <tr>
+    <td>Assoc. Dir.</td>
+   </tr>
+   <tr>
+    <td>Dep.-A.D.-Adm.</td>
+   </tr>
+   <tr>
+    <td>Dep.-A.D.-Inv.</td>
+   </tr>
+   <tr>
+    <td>Asst. Dir.:</td>
+   </tr>
+   <tr>
+    <td>Admin.</td>
+   </tr>
+   <tr>
+    <td>Comp. Syst.</td>
+   </tr>
+   <tr>
+    <td>Ext. Affairs</td>
+   </tr>
+   <tr>
+    <td>Files &amp; Com.</td>
+   </tr>
+   <tr>
+    <td>Gen. Inv.</td>
+   </tr>
+   <tr>
+    <td>Ident.</td>
+   </tr>
+   <tr>
+    <td>Inspection</td>
+   </tr>
+   <tr>
+    <td>Intell.</td>
+   </tr>
+   <tr>
+    <td>Laboratory</td>
+   </tr>
+   <tr>
+    <td>Plan. &amp; Eval.</td>
+   </tr>
+   <tr>
+    <td>Spec. Inv.</td>
+   </tr>
+   <tr>
+    <td>Training</td>
+   </tr>
+   <tr>
+    <td>Legal Conn.</td>
+   </tr>
+   <tr>
+    <td>Telephone Rm.</td>
+   </tr>
+   <tr>
+    <td>Director Sec'y</td>
+   </tr>
+  </table>
+
+REG-117
+
+FEDERAL DEPARTMENT OF COMMERCE, AGENCY
+COMMUNICATIONS SECTION
+
+MAY 14 1975
+
+TELETYPE
+
+JUN 20 1975
+
+CC
+
+JUN 20 1975
+
+62-116395-2/10
+
+REG-117
+
+S-W0016
+
+JUN 20 1975
+
+S R Dism.

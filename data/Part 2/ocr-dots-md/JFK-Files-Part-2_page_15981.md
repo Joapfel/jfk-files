@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_15981.png
+
+Convert to Markdownat Chicago that JEFF FORT, leader of BR, Negro youth gang, Chicago's south side, had sent him a message that he (FORT) would blow off HAMPTON's head if HAMPTON continues going into BR territory.
+
+HAMPTON indicated he desired to join forces with BR, but FORT is opposed to joining with BPP.
+
+1/28/69)
+
+On January 29, 1969, FRED HAMPTON, Chicago BPP leader, met with JEFF FORT, leader of BR. HAMPTON told FORT, Rangers should join forces with BPP, but FORT refused to consider it. FORT told HAMPTON to stay out of Chicago. HAMPTON told FORT that he was worse than white racists in holding back progress of Black People.
+
+2/3/69)
+
+On March 12, 1969, it was learned there is bad blood between the BR and the BPP at Chicago. A gang war between BPP and BR is not beyond imagination.
+
+3/12/69)
+
+On April 8, 1969, it was learned Chicago BPP has been negotiating with BR regarding an alliance, but JEFF FORT, leader of BR is proving to be stumbling block.
+
+4/9/69)
+
+On April 24, 1969, Chicago BPP held meeting at Englewood High School, Chicago, Illinois. BILLY BROOKS, Chicago BPP member, advised students aim of BPP was to gain control of city through recruitment of Negro teenagers and Negro youth gangs. BROOKS stated two Negro youth gangs, The Devil's Disciples, and the Cobrastones have already aligned themselves with the BPP. BROOKS stated BPP is trying to convert BR to join BPP.
+
+4/29/69)

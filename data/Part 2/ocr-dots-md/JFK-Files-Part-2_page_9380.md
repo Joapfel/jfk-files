@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_9380.png
+
+Convert to MarkdownDE 157-3075
+
+DE T-11 is
+DE 1718-E (PROB)
+
+DE T-12 is
+DE 2524-E (Ghetto)
+
+DE T-13 is
+GSDE 2907-E - CONFIDENTIAL SOURCES
+
+DE T-14 is
+DE 1515-C
+
+DE T-15 is
+DE 1330-E
+
+C*
+
+Cover Page
+
+NW.88296 DocId:32989574 Page 289

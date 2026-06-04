@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_10012.png
+
+Convert to MarkdownDeputy Assistant Attorney General
+Criminal Division
+
+August 19, 1974
+
+Director, FBI
+
+FEDERAL EMPLOYEE SECURITY PROGRAM
+EXECUTIVE ORDER 10450
+
+Since the issuance of Executive Order 11785 on June 4, 1974, abolishing the Attorney General's list of designated organizations, one of the standards used by the FBI in initiating investigations of individuals pursuant to Executive Order 10450 has been eliminated. This is true with regard to investigations under captioned matter of individuals which may be initiated by the FBI based on information contained in our files as well as in evaluating requests for investigations of individuals received from other agencies and departments pursuant to Section B(d) of Executive Order 10450.
+
+In this connection it is noted that the Criminal Division of the Department in its letter of July 11, 1974, advise that continued investigation by the FBI of the Nation of Islam is warranted because, among other things, "its reported activities appear to come within the criteria of Executive Order 10450."
+
+In view of the issuance of Executive Order 11735, it will be appreciated if you will furnish guidelines to be used by the FBI in initiating investigations of individuals under captioned matter pursuant to Executive Order 10450 and specifically criteria to be utilized in determining whether available information is sufficient basis for an investigation.
+
+1 - Director
+Department Security Staff
+
+NW 88326 DocId:32989603 Page 53

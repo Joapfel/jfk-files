@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_10340.png
+
+Convert to MarkdownCONTACTS WITH OTHER U.S. GOVERNMENT AGENCIES WHICH COULD OR HAVE RESULTED IN USE OF CIA-DEVELOPED TECHNOLOGY IN ADDRESSING DOMESTIC PROBLEMS
+
+## Executive Office of the President
+
+ORD represents DD/S&T on the R&D Sub-Committee of the Cabinet Committee for International Narcotics Control that is concerned with research support of the narcotics control problem.
+
+(Dr. Leonard Laster, OST)
+
+(Cianci/LS)
+
+## Office of Telecommunications Policy
+
+Technical surveillance countermeasures and physical security information was exchanged with them.
+
+(Noe/TA)
+
+## Bureau of Narcotics and Dangerous Drugs (BNDD)
+
+Techniques and equipment for navigation and tracking was discussed with BNDD.
+
+(Mr. Charles Gaskin, BNDD)
+
+(Van Dewerker/TA)
+(Noe/TA)
+
+Technical information was exchanged relating to the development of simple, portable sensor systems for the detection of concealed bulk narcotics and narcotic laboratory effluents.
+
+(Mr. John Gunn and
+Mr. Bill Butler, BNDD)
+
+(Parker/DSP)
+
+Audio tapes were processed to improve their intelligibility. The source of the tapes was unknown.
+
+(Mr. Charles Gaskin, BNDD)
+
+(Scott/An)
+
+00220
+
+SECRET
+
+ATTACHMENT 1

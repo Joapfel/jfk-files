@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_12627.png
+
+Convert to Markdown(a) Complete description
+(b) Notation that security index flash notice has been posted in Identification Division
+(c) Photograph, with date taken. It is to be most current or best likeness of subject.
+(d) Dangerous characteristics of subject, including notation if subject possesses firearms
+(e) Other data which will assist in apprehension, such as directions to residence or employment when these are unusual, number of minor children and aged dependents
+
+(2) If descriptive data have not been obtained, case must be kept pending. Upon posting of security index flash notice, field will be furnished FBI number and fingerprint classification which should be affixed to reverse side of security index cards filed in geographical, special, and unavailable sections.
+
+(3) Use FD-186 to report information for separate card attached to back of security index card. Case Agent should fill in form and forward to clerical employee designated to post information. Thereafter, file FD-186 in case file. FD-186 may be used to record information that subject has been physically observed and to note descriptive data.
+
+## 6. Arrangement of security index
+
+### a. At Bureau
+
+Entire index is maintained on IBM tabulating cards. Security index cards are printed by automatic data processing and transmitted to field. An alphabetical breakdown of true names and all aliases of subjects is also maintained at Bureau for administrative purposes.
+
+### b. In field office
+
+Active security index in each field office is maintained in four sections: geographical, alphabetical, unavailable, and special sections. [Complete set of each field office's Security Index is also maintained in Headquarters city in a state of readiness to be evacuated on a moment's notice in the same manner as geographical section with unavailable and special section cards filed in back.]
+
+#### (1) Geographical section
+
+After receipt of three security index cards from Bureau and after necessary data have been added to two cards, file one in geographical section of index (except special section and unavailable section cards) and one in duplicate set maintained away from headquarters city. Geographical section is broken down by residence address in accordance with needs of each office. Where logical, it should be broken down by state, county, city, and, if needed, into boroughs or suburbs and precincts. Cards are filed alphabetically under each geographical breakdown. Cards in this section will be withdrawn and used by Agents should apprehension of subjects become necessary.
+
+Cards will show "unknown" residence for (a) subjects whose addresses are not known but prompt location within division is expected and (b) subjects whose location in another division is in process of verification. File these cards in breakdown designated "Verification Pending." With Bureau authority, offices covering large industrial areas may set up second geographical section and file cards by subjects' employment. Depending on time of day apprehensions are initiated, geographical-employment or geographical-residence section may be used.
+
+#### (2) Alphabetical section
+
+File duplicate card alphabetically in this section; there is no other breakdown. Alphabetical card is control card. If card is withdrawn from geographical section for apprehension, make notation on alphabetical card.

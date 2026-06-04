@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_18450.png
+
+Convert to Markdown12. What have been the effects of this coordination?
+
+13. To what extent has each of the foregoing been com-
+patible with the legal authority for and the purposes
+of the activity?
+
+14. By what means has the activity been monitored,
+controlled and administered?
+
+15. What are the potential abuses to which the activity may lead?
+
+16. To what abuses has the activity led?
+
+17. What steps have been taken to investigate such abuses?
+
+18. What steps have been taken to avoid such abuses?
+
+19. What have been the costs and utility of the activity?
+
+In some instances, the specific questions set forth below may appear to repeat some of the general questions. The purpose in such cases is simply to clarify the application of the general question to the specific case. Except where inapplicable by their terms, all general questions relate to each specific case.

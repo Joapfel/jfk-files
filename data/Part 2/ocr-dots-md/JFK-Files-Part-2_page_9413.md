@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_9413.png
+
+Convert to MarkdownDE T-1
+November, 1970
+
+The NCCF opened a new office at 3595 17th Street,
+Detroit, which has been designated CIC Number Two.
+
+DE T-1
+December, 1970
+
+## B. Officers and Members
+
+OLIVER MC CLURE, III, also known as Malik, is in charge of the Detroit NCCF and the Ministry of Information, 12847 14th Street, Detroit, Michigan.
+
+CHARLES HOLT is second in command of the Detroit NCCF and is in charge of CIC Number Two, 7708-12 Mack Avenue, Detroit.
+
+MICHAEL DENNIS HILL, BPP, California, is currently in charge of CIC Number One, 2219 Indiandale, Detroit.
+
+DE T-1
+July 15, 1970
+
+LORENE BANKS is the only member of the Detroit NCCF who is currently receiving any type of welfare assistance, she receives Aid to Dependent Children.
+
+DE T-1
+August 26, 1970
+
+OLIVER MC CLURE is no longer leader of the Detroit NCCF.
+
+DE T-1
+September 9, 1970
+
+BRENDA JACKSON, member Detroit NCCF, had a baby girl, fathered by Malik (OLIVER MC CLURE), former leader of the Detroit NCCF.
+
+DE T-1
+October 5, 1970

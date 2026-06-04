@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_16427.png
+
+Convert to MarkdownA five page memorandum captioned "National Organizational Structuer, Black Panther Party" was observed at Chicago BPP Headquarters, 2350 West Madison Street, Chicago, Illinois, on June 4, 1969.
+
+Numerous copies of this memorandum were observed.
+
+Memorandum sets forth the three-level organizational structure of the Black Panther Party.
+
+The first level lists the officers and various ranks of the National Central Committee of Black Panther Party.
+
+The second level lists the officers and various ranks of the Central Staff of any state level Black Panther Party Chapter.
+
+The third level refers to the Central Staff of any local city branch of Black Panther and lists the officers and ranks of individuals in such a group.
+
+The entire memorandum is being set forth in the appendix section of this report.

@@ -1,0 +1,97 @@
+# JFK-Files-Part-2_page_15245.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : W. C. Sullivan
+DATE: 2/21/63
+
+FROM : W. R. Wannall
+
+SUBJECT: TECHNICAL SURVEILLANCE COVERAGE OF DIPLOMATIC ESTABLISHMENTS
+
+I - Belmont
+I - Evans
+I - Sullivan
+I - Wannall
+I - J.D. Donohue
+I - G.C. Moore
+
+J U N E
+
+On 1/31/62, with approval of Attorney General, we instituted program to expand our use of technical surveillances on diplomatic establishments of countries outside Soviet Bloc. In connection therewith we advised the Attorney General on 1/26/62 that on a selective and probing basis of six to eight establishments at a time we would explore coverage of 16 countries (selection being based on potential for intelligence acquisition and consideration of trouble-spot status).
+
+To date we have at one time or another afforded coverage to all countries on this list except Laos, Morocco, Panama, Thailand and South Vietnam. At present time we have technical coverage on Brazilian Embassy, Brazilian United Nations Delegation, Argentinian Embassy, Mexican Embassy, Venezuelan Embassy, and are in the process of making installation at Venezuelan Delegation to United Nations.
+
+ST-109 REC-27 325
+
+In addition to technical coverage of countries mentioned in above list, we have during past year found it necessary to institute technical coverage on other countries not included in the list but outside of Soviet Bloc which suddenly developed as trouble spots or which for one reason or another developed a potential for intelligence acquisition which had to be explored immediately. For example, during Cuban crisis we instituted coverage on establishments of Chile, United Arab Republic, Uruguay, and Bolivia. During investigation of sugar lobbying activities, coverage was instituted on Haiti and Nicaragua. More recently because of tense conditions in Middle East brought about by Iraqi coup, we are instituting coverage of Embassy of Iraq. Likewise, because of changing conditions in Guatemala we have during past month instituted coverage on Embassy of Guatemala and the Ambassador's residence.
+
+13 MAR 5 1963
+
+OBSERVATIONS:
+
+In view thereof of changing world conditions, we should allow ourselves more flexibility in connection with our program of expanded technical coverage of non-Soviet-bloc countries and not restrict such coverage solely to countries upon a list prepared a year ago. Although
+
+65-63113
+Enclosure - Sd 8/28/63
+GCM:slj
+(7)
+
+MAR 15 1963
+
+NW 88613 Docid:32199554
+
+Page 142
+
+<table>
+   <tr>
+    <td>Tolson</td>
+   </tr>
+   <tr>
+    <td>Belmont</td>
+   </tr>
+   <tr>
+    <td>Mohr</td>
+   </tr>
+   <tr>
+    <td>Casper</td>
+   </tr>
+   <tr>
+    <td>Callahan</td>
+   </tr>
+   <tr>
+    <td>Conrad</td>
+   </tr>
+   <tr>
+    <td>DeLoach</td>
+   </tr>
+   <tr>
+    <td>Evans</td>
+   </tr>
+   <tr>
+    <td>Gale</td>
+   </tr>
+   <tr>
+    <td>Rosen</td>
+   </tr>
+   <tr>
+    <td>Sullivan</td>
+   </tr>
+   <tr>
+    <td>Tavel</td>
+   </tr>
+   <tr>
+    <td>Trotter</td>
+   </tr>
+   <tr>
+    <td>Tele. Room</td>
+   </tr>
+   <tr>
+    <td>Holmes</td>
+   </tr>
+   <tr>
+    <td>Gandy</td>
+   </tr>
+  </table>

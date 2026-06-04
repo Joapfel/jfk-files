@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_10648.png
+
+Convert to Markdown13. Extremist Informant - Development of sources to provide intelligence and evidentiary information concerning extremist individuals and organizations.
+
+14. Ghetto Informant - Development of individuals living or working in Ghetto areas who can furnish information with particular emphasis on situations which may create civil unrest.
+
+15. Intensification of Investigation of Weatherman and Other Similar Terrorist Groups - Use of full resources of FBI and use of innovative methods to achieve a more comprehensive coverage of such groups.
+
+16. Key Activist - Investigation of individuals who were extremely active and vocal in their statements denouncing the U.S. and calling for civil disobedience and other forms of unlawful and disruptive acts.
+
+17. Key Extremist - Provided intensified coverage of selected extremists who were known to be active and who had previously evidenced the potential for fomenting violence or revolutionary activities.
+
+18. Location of Non-Fugitive Weatherman Members - Intensified efforts to locate non-fugitive Weatherman members.
+
+19. New Left Extremist - False Identity - Attempt to provide effective dissemination of voluminous data concerning false identities used by Weatherman personnel and other New Left extremists.
+
+20. New Left Movement - Finances - Periodic information made available to the USDJ and the White House regarding income source of various revolutionary groups.
+
+21. New Left Movement - Publications - Coverage of Publications being circulated by New Left Movement.
+
+22. Potential for Racial Violence - Survey of localities having potential for racial violence based on current social conditions.
+
+23. Potential for Violence and Civil Unrest - Periodic assessment of potential for violence and civil unrest throughout the U.S. with emphasis on situations involving racial factors.
+
+24. Prisacts - Extremist, revolutionary, terrorist, and subversive activities in penal institutions.

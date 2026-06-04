@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_10730.png
+
+Convert to MarkdownANNE GRANT DUNHAM
+
+As previously noted, DUNHAM was apprehended by
+Special Agents of the FBI on August 22, 1971, in the court-
+yard of St. Paul's Church, 422 Market Street, Camden, N. J.
+On the same date she was afforded a hearing before U. S.
+Magistrate CHARLES L. RUDD, Camden, N. J., and was remanded
+to the custody of the U. S. Marshal in lieu of $20,000 good
+bail. She was released on September 3, 1971, after posting
+ten per cent cash or security on a $7,500 bond which had been
+set by the Third Circuit Court of Appeals, Philadelphia, Pa.,
+on September 3, 1971.
+
+A search of the fingerprints of ANNE GRAND DUNHAM
+has failed to disclose prior arrest data in the files of the
+Identification Division, FBI, Washington, D. C.

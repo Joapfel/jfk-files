@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_18281.png
+
+Convert to MarkdownFRANK CHURCH, IDAHO, CHAIRMAN
+JOHN G. TOWER, TEXAS, VICE CHAIRMAN
+
+PHILIP S. HART, MSCH.
+WALTER F. MONDALE, MINN.
+WALTER D. HUDDLESTON, KY.
+ROBERT MORGAN, N.C.
+GARY HART, COLO.
+
+HOWARD H. BAKER, JR., TENN.
+BARRY GOLDWATER, ARIZ.
+CHARLES MCC. MATHIAS, JR., MD.
+RICHARD S. SCHWEIKER, PA.
+
+WILLIAM G. MILLER, STAFF DIRECTOR
+FREDERICK A. O. SCHWARZ, JR., CHIEF COUNSEL
+CURTIS R. SMOTHERS, MINORITY COUNSEL
+
+United States Senate
+
+SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+
+(PURSUANT TO S. RES. 21, 94TH CONGRESS)
+
+WASHINGTON, D.C. 20510
+
+September 26, 1975
+
+Michael E. Shaheen, Jr., Esq.
+Special Counsel for Intelligence Coordination
+Office of the Deputy Attorney General
+U. S. Department of Justice
+Washington, D. C. 20530
+
+Dear Mike:
+
+The Committee requests delivery by Monday morn-
+ing, September 29, of section 48 of the FBI's Manual for
+Bureau Supervisors, page 60, entitled "Income Tax Returns".
+
+ALL FBI INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/17/75 BY: SPATIAL
+
+ENCLAS
+
+NW 88326 DocId:32989653 Page 279

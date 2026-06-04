@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_9196.png
+
+Convert to MarkdownRE: MICHAEL HALSEY BROWN
+
+hear that 15 out of 17 convicted traitors since 1945
+have been Jews? (Of course, 17 out of 17 members of
+the Mafia are Italians). Or that Jews run the NAACP
+(PRES; Sidney Fineberg), CORE, etc? Or that three
+Russian Jews own ABC. CBS, and NBC (For a record of
+their activities see 'None Dare Call it Treason')?
+What he said that really hit me between the eyes,
+though, was when he referred to the 6 million Jews
+Hitler allegedly gassed: 'Dont' you think those people
+DID something?
+
+"What really drove his point home to me, however, was a full page ad in our city newspaper- 'Six Reasons Why You Should Worry About Extremism' Put out by the National Council for Civic Responsibility (A very left-wing outfit). Most of the people listed as directors, etc. of the organization were you-know-what. Seems they're scared stiff of the John Birch Society, etc., because they might repeal the income tax and impeach Earl Warren. It's too bad they didn't mention us Nazis-we're not going to impeach Earl Warren when Rockwell gets to be President in '72. We're going to hang him.
+
+"Sure will be glad when I get back to the states. All the girls over here are a bunch of coon-loving bleeding hearts and it makes my Alabama blood boil.
+
+"Is there any race problem in Colorado? My buddy in the photo is going there in a year or two and if there's a demand for white men to stand up to the racemixers I might go with him. The way the Negroes are pushing now we're headed for a full-scale racial war: I don't want to be left out when it starts.
+
+"You sure got over on your jail time. I got six months in the stockade once for just having a pistol. Colorado must be a swinging state.
+
+"Well, be good. Lots of Luck,
+
+"Mike
+
+"M. H. Brown
+1926 Awapuhi St.
+Honolulu, Hawaii"

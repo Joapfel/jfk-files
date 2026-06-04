@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_18288.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENSTUDY 75
+
+1 - Mr. Mintz
+1 - Mr. Adams
+1 - Mr. Wannall
+
+DATE: 9/12/75
+1 - Mr. Cregar
+1 - Mr. Hotis
+1 - Mr. Daly
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/17/M75 BY S.P.AMKELIJ
+
+On 9/11/75, Special Counsel for Intelligence Coordination Michael E. Shaheen, Jr., was advised that Senator Howard Baker had reviewed the information contained in Bureau files pertaining to him per instructions of the Attorney General and in response to the letter from Senator Frank Church, Chairman of the Senate Select Committee, dated May 27, 1975. Baker requested that one particular file be made available for review by his designee on the Senate Select Committee, James Madigan. This file is titled ALLEGED TAPPING OF TELEPHONE OF UNITED STATES SENATOR HOWARD BAKER, WASHINGTON, D. C. (B träfile 139-4744). Shaheen was asked what the Department position was concerning this particular request inasmuch as the file had been made available to the Senator pursuant to the instructions of the Attorney General.
+
+REC-7
+
+Shaheen advised that inasmuch as the initial request was from the Chairman of the Senate Select Committee for access to files for Senators that any modification of that request giving access to Senate Select Committee Staff Members should also be pursuant to a communication from the Chairman of that Committee. Shaheen indicated that making the file available to Senator Baker's designee may set a precedent which could be used by other interested Senators on the Committee to gain access for their designees. Shaheen offered to telephonically advise John Elliff, Task Force Director for the Senate Select Committee, that the Department would not grant access to this particular file for Madigan. He was advised that the Bureau should perhaps respond to Senator Baker's request inasmuch as it was made to the Bureau and that unless he was advised to the contrary the Bureau would advise Senator Baker of this decision. Shaheen interposed no objection to this decision.
+
+RECOMMENDATION:
+
+That Senator Baker be advised that it was not possible to grant access to his designee, Madigan, to the above-described file.
+
+PVD:lqd
+(8)
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan

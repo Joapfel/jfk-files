@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_12605.png
+
+Convert to Markdownagency having security responsibility, and interested agencies can be included on FD-128 submitted by old office of origin. (3) Office of origin, upon verification of address, immediately submit FD-128 transferring origin. Submit original and one copy to Bureau and two copies to office covering new address enclosing copies of all previous reports, other pertinent serials, photograph if available, and ADEX cards. Show full title and designation. (4) Where flash notice has been placed with Identification Division, note on FD-128 and designate extra copy of FD-128 for Bureau for attention of Identification Division. (5) Old office of origin submit current report or LHM. If LHM submitted, cover communication should include same documentation as is required in administrative pages of reports.
+
+Do not delay submission of FD-128 solely for preparation of report or LHM, but note on FD-128 that appropriate communication is being prepared. Old office of origin should furnish Secret Service locally with subject's new residence and business addresses by FD-366. Copy of FD-366 should be provided to new office of origin for dissemination to Secret Service locally by latter office. Case will remain pending in both old and new offices until report or LHM is submitted by old office. New office of origin is responsible to follow matter until completed.
+(6) New office of origin should review pertinent material received with FD-128 and information in its files to determine if additional investigation warranted. If not, advise Bureau by letter that case is being closed.
+(7) Upon receipt of FD-128, office covering new address is origin and should place office file number on ADEX cards and file them in its ADEX.
+(8) Upon receipt of new cards from Bureau, new office is to transfer information from reverse side of old geographical card to new card, appropriately file new cards, and destroy old ones.
+
+b. Subjects not included in ADEX
+(1) Transfer office of origin by FD-128 upon verification by another office of subject's presence in that division. Enclose copies of all reports and other pertinent serials to new office of origin.
+(2) New office of origin should initiate appropriate investigation or advise Bureau case closed if no action warranted.
+
+12. Cancellation and removal of cards from ADEX
+
+a. Death of a subject
+Destroy card and advise Bureau by LHM.
+
+b. Permanent departure
+Upon learning of subject's departure from U. S. or Puerto Rico for foreign country, immediately ascertain conditions of departure. No card shall be canceled by reason of such departure unless subject is alien whose permanent departure has been verified. If U. S. citizen who has been out of country has renounced U. S. citizenship and taken citizenship of foreign country, card may be canceled when it has been determined he does not intend to return to U. S.
+
+c. Imprisonment of subject
+Do not cancel card because subject imprisoned, regardless of length of time he will be incarcerated. Place card in unavailable section and handle as set forth under imprisoned subjects above.
+
+d. Entry of subject into armed forces
+Upon learning of entry, submit to Bureau FD-122 to cancel ADEX and FD-366 to advise Secret Service of entry, disseminating copy of FD-366 locally to Secret Service. Also submit report or LHM setting forth pertinent information not previously reported and including facts
+
+4-13-72
+
+NW 88321 DocID:32989529 Page 1939

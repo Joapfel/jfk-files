@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_10213.png
+
+Convert to Markdown11 May 1973
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: General: Office of Security Survey
+
+1. At the Director's instruction, and with the concurrence of the then DD/P, the Office of Security developed informants in RID to report on the activities of RID employees on whom security questions had arisen. This program, which included upwards of a dozen informants at its peak, has declined to its present level of three, only one of whom is reporting regularly on matters of current interest.
+
+2. The principal object of Security's interest through this informant is a female who was employed in RID for a number of years until she resigned in 1969. Her resignation coincided with the initiation of a security review on her by the Office of Security, but Security does not know whether the employee was aware of this security review at the time of her resignation.
+
+3. Security's interest in this employee was occasioned by reports that she had developed an increasingly intimate acquaintance with a Cuban national. Reporting by one informant, who was also being developed by the Cuban, suggested that the Cuban might have an intelligence interest in the female. The same informant also subsequently reported that the Cuban had numerous other contacts among clerical and secretarial employees of the Agency. Among these employees is one girl who works in a biographic section in SB Division.
+
+4. Subsequent to her departure from the Agency, the ex-RID employee entered into a common-law marital relationship with the Cuban and joined him as partner in a photographic business. In this capacity she solicited business among CIA employees, especially those requiring passport photos. Recently, she and the Cuban sought to employ Security's informant in this business on a part-time basis.
+
+00053
+
+SECRET
+
+E.....IMPST CL BY......

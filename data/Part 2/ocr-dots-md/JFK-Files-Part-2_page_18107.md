@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_18107.png
+
+Convert to MarkdownDr. Leland J. Haworth
+
+NOTE:
+
+See cover memorandum F. J. Baumgardner to W. C. Sullivan, dated 12/17/64, captioned "Communist Infiltration of Southern Christian Leadership Conference, Internal Security - Communist," prepared by TPR:jad.
+
+This letter is classified "Top Secret" because the enclosure is so classified. It may be downgraded to the classification of "Secret" upon removal of the enclosure since the information contained therein was obtained from a highly sensitive source with respect to the racial situation in the Atlanta area; the unauthorized disclosure of which could seriously hamper the defense interest of the Nation;

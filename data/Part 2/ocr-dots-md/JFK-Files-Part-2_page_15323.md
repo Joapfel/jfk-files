@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_15323.png
+
+Convert to Markdown# MEMORANDUM TO BOARDMAN FROM BELMONT
+
+JUNE
+
+RECOMMENDATIONS (continued):
+
+2. That Liaison discuss this matter with Mr. Robert Murphy, Deputy Under Secretary of State for Political Affairs, pointing out to him that there is an intelligence gap and that this Bureau contemplates such limited coverage, with State Department endorsement and approval; that Mr. Murphy indicate those countries where at the present time State Department feels there is a need and a potential for such intelligence; that Mr. Murphy be advised that any needs of the Defense Department along this line should be funneled to the Bureau through the State Department.
+
+3. After Mr. Murphy has been consulted, that we advise the Attorney General, in writing, of the intelligence gap presently existing, our proposal relative thereto, and the results of our conference with the State Department, indicating either that we are going ahead, with his approval (if the State Department endorses this program), or that we are not going ahead (if the State Department fails to endorse the program).
+
+4. If it is decided that we should proceed with this program, we should point out to the Attorney General that additional funds will be necessary for its implementation.

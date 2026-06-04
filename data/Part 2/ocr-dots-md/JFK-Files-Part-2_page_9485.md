@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_9485.png
+
+Convert to MarkdownDE 157-3075
+
+ROBERT BAY, BPP, New York, was hit on the head with a gun butt by JUNE HILLIARD, Assistant Chief of Staff, BPP, because BAY beat up someone he thought was a police informer.
+
+DE T-1
+
+December 14, 1970
+
+On December 2, 1970, Detective WILLIAM HENNAHAN, Security Section, Intelligence Division, Detroit Police Department, advised that he was contacted by the Detroit Edison Electric Company, who advised that a crew from the electric company went out to check the meter at 611 Continental, Detroit, a NCCF office, which is in the rear of the house, as the house was occupied and a request for service had not been received. They discovered that the meter had been jumped and were going to disconnect service at the meter but were chased away by occupants of the house. The electric company is not going to take any further action as they consider it too dangerous to attempt to cut off the electricity and are going to let the NCCF have the electricity.

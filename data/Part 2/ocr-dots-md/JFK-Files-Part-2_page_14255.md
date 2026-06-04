@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_14255.png
+
+Convert to Markdown--Congress has provided that meetings of the Senate Committee on the Budget may be closed to the public if it is determined by a record vote of a majority of the members that the matter to be discussed
+
+...will disclose matters necessary to be kept secret in the interest of national defense or the confidential conduct of the foreign relations of the United States. 2 U.S.C.A. 190a-3.
+
+--Congress, after requiring that the Secretary of State transmit forthwith to the Congress the text of any international agreement, other than a treaty, to which the United States is a party, goes on to provide that
+
+...any such agreement the immediate public disclosure of which would, in the opinion of the President, be prejudicial to the national security of the United States shall not be so transmitted to the Congress but shall be transmitted to the Committee on Foreign Relations of the Senate and the Committee on Foreign Affairs of the House of Representatives under an appropriate injunction of secrecy to be removed only upon due notice from the President.
+1 U.S.C.A. 112b.
+
+--Finally, Congress, in enacting the Freedom of Information Act, expressly exempted from disclosure matters which are
+
+...specifically authorized under criteria established by an Executive order to be kept secret in the interest of national defense or foreign policy. 5 U.S.C.A. 552(b)(1).
+
+2. Despite this apparent lack of authority to release classified data and the existence of the above-mentioned statutes, Congress is constitutionally immunized, at least in part, against any consequences flowing from release and disclosure of classified information. Article I, § 6 of the Constitution states in respect to Senators and Representatives that:
+
+...for any Speech or Debate in either House, they shall not be questioned in any other Place.

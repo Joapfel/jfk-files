@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_14871.png
+
+Convert to MarkdownIt is our view that such legislation should be restricted to cover educational and religious facilities only. This was called to the Department's attention by the afore-mentioned memorandum dated September 2, 1959, captioned "Legislative Program, Eighty-sixth Congress, Second Session."

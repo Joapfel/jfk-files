@@ -1,0 +1,134 @@
+# JFK-Files-Part-2_page_9866.png
+
+Convert to MarkdownThe Attorney General
+
+Director, FBI
+
+UNITED STATES SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+1 - Mr. W. R. Wannall
+February 20, 1976
+
+1 - Mr. F. J. Cassidy
+(Attn: Mr. J. W. Dalseg)
+1 - Mr. W. O. Cregar
+1 - Mr. T. J. McNiff
+
+Reference is made to SSC letter dated July 9, 1975, requesting material relating to electronic surveillance of the so-called "Kissinger-17," and Department letter to the SSC dated July 15, 1975, captioned "Access/Delivery of Documents Requested in Senate Select Committee Letter of July 9, 1975."
+
+Enclosed for your approval and forwarding to the Committee is the original of a memorandum with enclosed summary, which is responsive to referenced SSC request. A copy of this memorandum, with enclosure, is being furnished for your records.
+
+It is being left to the decision of the Department as to whether approval of the White House and/or the Judiciary should be obtained prior to enclosed summary being referred to the SSC.
+
+MAR 9 1976
+
+This is also to confirm a telephone conversation on February 18, 1976, between Special Agent Thomas J. McNiff of this Bureau and Michael E. Shaheen, Jr., Special Counsel for Intelligence Coordination, whereby Mr. Shaheen stated that excisions from the summary, for reasons of privacy, should be the responsibility of the SSC.
+
+Enclosures (4)
+
+62-116395
+
+1 - The Deputy Attorney General
+Attention: Michael E. Shaheen, Jr.
+Special Counsel for
+Intelligence Coordination
+
+TJM:dmt/1hb/hb
+(11)
+
+GPO : 1975 O - 594-120
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+Mar 1 1976
+
+NW-88326 DocId:32989603 Page 131
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+12568 BY SSRAUMO
+ENCLOSURE
+5
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Legal Coun.
+Plan. & Eval.
+Spec. Inv.
+Training
+Telephone Rm.
+Director Sec'y
+
+P.O. Box 52111 DE
+Dept. of State
+8 MAR 1976
+
+4
+
+H-1222303-HRJ-JN
+
+D152303 01/MAR/76
+
+D152303 H1-MAR-76
+
+D152303 H1-APR-76
+
+F-1222303-B1
+
+GPO : 1975 O - 594-120
+
+8 4 MAR 1 1976
+
+M-88326 DocId:32989603 Page 131
+
+H-1222303-HRJ-JN
+
+D152303 01/MAR/76
+
+D152303 H1-MAR-76
+
+D152303 H1-APR-76
+
+F-1222303-B1
+
+GPO : 1975 O - 594-120
+
+D152303 H1-APR-76
+
+D152303 H1-MAR-76
+
+D152303 H1-DST-76
+
+F-1222303-B1
+
+GPO : 1975 O - 594-120
+
+D152303 H1-DST-76
+
+D152303 H1-MAR-76
+
+D152303 H1-APR-76
+
+F-1222303-B1
+
+GPO : 1975 O - 594-120
+
+D152303 H1-APR-76
+
+D152303 H1-MAR-76
+
+D152303 H1-DST-76
+
+F-1222303-B1
+
+GPO :

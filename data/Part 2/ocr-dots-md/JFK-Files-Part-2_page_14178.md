@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_14178.png
+
+Convert to MarkdownMemorandum to Mr. W.R. Wannall
+
+RE: MORTON HALPERIN
+FREEDOM OF INFORMATION ACT (FOIA) REQUEST
+
+Mr. Garrison advised that CIA considers items 1 and 2 to be CIA documents and item 3 to be an FBI document containing CIA information. CIA proposes to furnish Halperin declassified copies of items 1 and 2 which have been sanitized in accordance with the brackets on the attached copies. CIA has no objection to the Bureau's furnishing Halperin a copy of item 3 if it is declassified and the CIA information indicated by brackets in the attached copy is excised. Mr. Garrison noted that CIA no longer considers the 9/22/48 memorandum to be operative since CIA's Office of Policy Coordination no longer exists.
+
+Mr. Garrison advised further that with regard to a Senate Select Committee (SSC) request for copies of all agreements between the FBI and the CIA, CIA does not plan to provide the SSC with copies of items 1 and 2 but plans to allow appropriately cleared SSC staff representatives to examine the unsanitized Secret versions of items 1 and 2 at CIA Headquarters. He further advised that CIA would have no objection if the Bureau allows SSC staff representatives to examine item 3 in Bureau space provided it is classified Secret in accordance with CIA's classification of its information. Mr. Garrison requested that if the Bureau decides to provide the SSC with a copy of item 3 for its retention, the document be declassified and sanitized in accordance with the attached copy.
+
+The Intelligence Division has no objection to the FOIA request of Halperin being handled in accordance with the above. Recommendation for handling of the SSC request will be made by separate memorandum.
+
+**ACTION:**
+
+This memorandum and its attachments should be forwarded to the FOIA Unit of the Files and Communications Division for appropriate handling.

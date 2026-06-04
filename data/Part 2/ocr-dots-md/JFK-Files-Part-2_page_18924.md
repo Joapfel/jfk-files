@@ -1,0 +1,61 @@
+# JFK-Files-Part-2_page_18924.png
+
+Convert to MarkdownFBI
+
+Date: 2/27/70
+
+Transmit the following in
+
+(Via AIRTEL)
+
+To: DIRECTOR, FBI (105-28333)
+
+FROM: SAC, WFO (105-8906)
+
+SAMUEL ADASON JAFFE
+INFORMATION CONCERNING
+
+SAMUEL ADASON JAFFE, former has been
+voluntarily furnishing information on an irregular basis
+concerning Soviet and Chinese matters. On 2/26/70, JAFFE,
+at his request, was contacted by SA LYLE J. THEISEN
+concerning a pending investigation in the Chinese field.
+
+On 2/27/70, JAFFE telephonically advised SA
+THEISEN that he was interested in doing a 26 minute interview
+of the Director of the FBI for a weekly program of Metro-
+Media, Inc., entitled "Profile."
+
+JAFFE advised that the interview, if granted
+would be presonally conducted by him and would generally
+cover such subjects as crime in America, civil rights and
+the future of the FBI. The date and place of the interview
+would be at the discretion of the Director.
+
+JAFFE was advised by SA THEISEN that these
+requests are handled directly by the Bureau and any
+correspondence should be so directed.
+
+As indicated in Bureau files, JAFFE was considered
+by the KGB to be one of their agents and his recent contacts
+with the Soviets remain suspicious.
+
+2 Bureau
+1 - WFO
+
+LJT:n sr (3)
+
+Approved:
+
+10 1970
+
+Special Agent in Charge
+
+Sent M Per
+
+Classified by 0135
+
+Exempt from CDS, Category 9.03
+Date of Deactivation Inactive
+
+NW-88326 Doctd:32989704 Page 218

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_14903.png
+
+Convert to MarkdownFebruary 8, 1960
+
+INDUSTRIAL SECURITY PROGRAM
+
+On February 2, 1960, the House passed H.R. 8121, introduced by Mr. Walter, which would authorize the Secretary of Defense to establish a program for screening employees of private contractors for access to classified information. The bill states that procedures prescribed by Defense shall be designed to protect from disclosure all information which, in the opinion of the Secretary of Defense, would affect the national security, safety, or public interest or would tend to compromise investigative sources or investigative methods. The bill has been referred to the Senate Committee on the Judiciary and, if passed, would permit Defense to reinstitute the same program which was in effect at the time of the Supreme Court decision in the Greene Case. Defense could, however, institute a new program offering a maximum of confrontation while protecting sources or techniques in accordance with the terms of the bill.
+
+On February 5, 1960, Assistant Attorney General Yeagley forwarded a new draft of the proposed Executive Order in this matter and stated it was the result of meetings with the Attorney General and the White House and that he hoped that it would be the final draft. This draft introduced four major changes.
+
+The first of these would permit use of information from a so-called "casual" informant without confrontation if the informant could not appear due to death, severe illness, or some other cause determined by the head of the department to be good and sufficient. The underlined words have been added and would considerably broaden the circumstances under which information from such a source might be used.
+
+A second change, however, would require that when an exception to confrontation was granted in the case of death or severe illness, as indicated above, the identity of the source be disclosed to the applicant. This requirement would apply only in the case of death or severe illness and would not apply to the new exception discussed in the previous paragraph. We have repeatedly told the Department that we must respect the

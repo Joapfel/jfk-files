@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_12712.png
+
+Convert to MarkdownXII. Furnish no information and make no statements to a person being interviewed which might later be used to embarrass Bureau. Agents should not allow themselves to be interviewed by interviewee or to be placed in a position of answering questions instead of asking them.
+
+XIII. Terminate immediately an interview if subject proves to be hostile or uncooperative on initial contact.
+
+XIV. Exploit a subject's knowledge to utmost if he is found to be willing to furnish information of value.
+
+XV. Questions asked of a subject being interviewed should be so worded as to require an admission or denial of all pertinent items of subversive information developed during prior investigation unless to do so would expose investigative techniques or security informants.
+
+XVI. A cordial and friendly attitude alone on part of a subject should not be construed as evidence of cooperation insofar as potential dangerousness is concerned when he fails to admit or furnish substantially same subversive information verified through previous investigation.
+
+XVII. Inform subject that we are interested in interviewing him in great detail and arrange to conduct interviews over as extended a period of time as necessary to develop matter fully. Conduct necessary investigation or research to verify or add to what is being developed on interview. Request information from other offices or Bureau to assist in interview if needed.
+
+XVIII. Reduce information obtained to a signed statement if subject willing that this be done.
+
+XIX. Determine willingness to testify to information furnished in possible future Federal proceedings.
+
+XX. Consider possibility of developing these individuals as informants. If possibility is apparent, pursue matter with view to establishing subject as a reliable source in subversive movement with which he has been connected.
+
+XXI. When no information is developed during course of an interview which would affect a subject's status, submit results thereof in letter form immediately following interview and also in next report submitted in case. At least one report will be submitted in each case in which a subject is interviewed with Bureau authority. In case of an individual employed in or holding a sensitive position enumerated in 87D 6b (7) (e) IV above, results of all interviews must be submitted promptly in report[or letterhead memorandum]form; [depending on priority designation, until such time as he begins to cooperate as a security informant or a source.]
+
+XXII. Report information regarding subject's admissions of his own subversive activities and associations and set forth a statement to effect that he did or did not furnish information regarding subversive activities of others.
+
+XXIII. Report statements of denial regarding subject's subversive activities developed through prior investigation and follow by a brief summary statement of past subversive activity which is being denied by subject.

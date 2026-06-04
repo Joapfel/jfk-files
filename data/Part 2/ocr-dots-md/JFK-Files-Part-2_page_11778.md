@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_11778.png
+
+Convert to Markdown# PART II
+
+## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+
+### H. INFORMATION TO BE FURNISHED TO THE BUREAU
+
+1. Which does not have a nationwide circulation or interest
+
+a. Relating to law enforcement concerning
+(1) Scientific apparatus
+(2) Equipment
+(3) Personnel
+(4) Methods
+(5) Economics
+
+b. Newspaper clippings, other than items bearing the date line of a national wire service, should be submitted when they concern
+(1) The FBI, derogatory and complimentary. If possible, show author.
+(2) Outstanding abuses of parole and probation
+(3) Outstanding instances of juvenile crime
+(4) Bad local crime conditions
+(5) Scientific crime detection experts
+(6) Bureau police schools only when there is some unusual feature about the publicity. Examples: items setting forth comments made by police officers as to the value of police schools; comments on the caliber of schools in which FBI participates; incidents in which a police officer credits instruction he received in a police school as enabling him to capture a fugitive, solve a case, or otherwise perform his work more efficiently. (File in individual pertinent school files clippings relative to each police school in which field participates.)
+(7) Police training in colleges and universities
+(8) Aggravated sex offenders
+(9) Matters appearing in the press concerning the names of prominent persons who are mentioned in connection with Bureau cases. These matters also include wire service stories mentioning directly or indirectly persons of prominence in pending investigations being handled in your division. Forward such matters immediately and if there is any question as to what action should be taken ask for specific instructions.
+(10) Items of interest by nationally syndicated columnists need not be submitted if it is apparent that such items will come to the Bureau's attention through its review of Washington, D. C., newspapers. Columns of interest by writers syndicated regionally should, of course, be submitted.
+
+2. Method of preparation for transmittal
+
+a. Mount the clipping on form FD-350 within the borders shown.
+
+b. Do not fold the clipping except in the case of a very large picture or in the case of a single word in a headline too long to fit in the allotted space. Make certain the clipping is placed evenly on the paper and does not hang over its edges. If necessary, a second page may be used and the only requirement is that a margin at least 1 1/2 inches deep should be left at the top of the page.
+
+c. The large block on the right side of FD-350 has space for the insertion of the names of more than one newspaper. The names of newspapers clipped may be overprinted in this space. Placing the page number on the line in front of the name of the newspaper will serve to designate which paper the clipping is from. The page number may be written in longhand. Only the page number on which the article begins should, be shown. If overprinting is not used, required information other than page number should be typed.
+
+d. Show whether the matter mentioned is being investigated.
+
+e. Insert staples horizontally at the top and bottom and vertically at the sides of all clippings. Use only a sufficient number of staples to hold the clipping securely to the paper.
+
+f. Do not mutilate or mark clipping in any manner by underlining or circling words or by drawing arrows to direct attention.
+
+g. No cover letter needed when submitting clippings unless clarification is required for a particular clipping. This may be handled by routing slip, letter, or airtel accompanying clipping in question.
+
+5
+
+2-27-75
+
+NW 88321 DocId:32989529 Page 1112

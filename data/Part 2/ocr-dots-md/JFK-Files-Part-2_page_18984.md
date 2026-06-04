@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_18984.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+suggested that information which Jaffe obtained concerning a dispute in the Kremlin. came from someone in the American Embassy in Moscow. Jaffe denied that his source was in the American Embassy in Moscow but refused to tell Kislov the identity of his source.
+
+Kislov then proceeded to give Jaffe a complete
+run down of everything he had done in Russia. He named females
+Jaffe had dated and told Jaffe all about his association with
+Galina. He went on to tell Jaffe that Galina was formerly a
+designer in a factory in Moscow but that she would be given a
+trial and be banned from Moscow.
+
+When Jaffe asked Kislov about the story being prepared for "Komsomolskaya Pravda", Kislov told Jaffe that he liked him. He said that he might be able to kill the story while at the same time he looked at his watch. He then said that he would see what he could do, expressing the opinion that he could probably kill the story. Before Jaffe left Kislov's company, Kislov said that he would like to see Jaffe again and Jaffe agreed to see him although no definite arrangements were made.
+
+On the following morning Kislov called Jaffe and told Jaffe that he had succeeded in killing the story. He asked Jaffe to have lunch with him and a date was made. At lunch Kislov told Jaffe that he had been in the United States. He then told Jaffe that it was necessary to watch Western correspondents in Moscow as the Soviets know that American citizens pay a great deal of attention to material written in newspapers. He said it was necessary for the Soviets to be careful what they permit Western correspondents to write and say. He said the Soviets would like to know Western reaction to Soviet moves particularly Soviet moves in situations like the Cuban crisis.
+
+Kislov then went on to tell Jaffe that he was lucky
+to be in Moscow and it was only because of his superiors that he
+was granted a visa. He told Jaffe that Jaffe killed his chances
+for obtaining a Soviet visa of his own accord because of his
+conduct during the trial of Francis Gary Powers on espionage
+charges in Moscow in 1960. At this time Kislov said that the
+Soviets concluded that Jaffe was employed by the Central Intel-
+ligence Agency (CIA) and had been assigned to keep track of
+Powers' wife, Barbara, since he spent so much time in her company.
+
+SECRET
+
+7

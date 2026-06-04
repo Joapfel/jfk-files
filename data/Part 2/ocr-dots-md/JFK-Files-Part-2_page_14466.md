@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_14466.png
+
+Convert to MarkdownMemorandum to Mr. Belmont
+Re: BUREAU INFORMANT 200
+105-67845
+
+a most sensitive and reliable source, indicating that John Doe has been in direct contact with... The contents of the Hunter Report should then be summarized as necessary and paraphrased. Following the reporting of information found in Buffles on the subject, and instructions regarding the investigation to be conducted a paragraph as follows should also be added: "You are being cautioned that information obtained from Bureau Informant 200 is not to be disseminated outside the Bureau and should not be set forth in any investigative reports. Information from this informant should be utilized for lead purposes. only. You must avoid any statement concerning the scope of the coverage in effect in this instance and under no circumstances is the subject or any unauthorized person to become aware that we have knowledge of his contact with a person in Russia."
+
+In those instances where an opened or closed case file on a person mentioned in a Hunter Report is located at the Bureau, the Hunter Report will be forwarded to the appropriate Section Chief or Supervisor for his information and any action he deems necessary. Said Supervisor might desire to advise the field in the manner described above or place a brief, paraphrased version of the Hunter Report into the subject's main file for information purposes.
+
+RECOMMENDATION:
+
+In view of the extreme sensitivity of this source, the knowledge of the same is to be confined to a need-to-know basis. Therefore, within the Domestic Intelligence Division the Section Chiefs of the Nationalities and Intelligence Section, the Internal Security Section, and the Subversive Control Section will be advised of the above procedure for their personal information. All supervisors in the Espionage Section will also be informed of this procedure.

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_9454.png
+
+Convert to MarkdownThe use of different types of ammunition and explosives should be considered also.
+
+PART I. RECIPES
+
+I will begin by pointing out that we must not allow the racist power structure to defined our struggle. What I mean is the language that we use like everything else in this society: in the service of the racist capitalist band. They control the educational institutions, the news media and the means of production to turn out all the educational material. We sometimes are trapped by the rhetoric (words) of the master. In our 400 year struggle for survival it has been the guns and force manifested in the racist pig cops that occupy our community that directly oppress, repress, brutalize and murder us. So for us to talk about self-defense against this brutality and murder that is defined by the racist power structure an unjust homicide. So when a self-defense group moves against this oppressive system, by executing a pig by any means, sniping, stabbing, bombing etc., in defense against the 400 years of racist brutality and murder this can only be defined correctly as self-defense. The slaveown however, through his lackeys and puppets call it "terrorism", the work of caucasian men, criminal killers, etc.. He must define our strategy not the pigs. Carlos Harigella an urban guerrilla in Brazil who was assassinated in 1969 just one month before Fred Hampton and Bill Clarin, says, "the accusation of assault or terrorism no longer has the pejorative (negative meaning it used to have). It has acquired new coloration. It does not factionalize, it does not discredit; on the contrary it represents focal point of attraction."
+
+auto in the chamber, the first thing to deal with is proper sight alignment. Sight alignment is lining up your front sight with your rear sight and both lined up on the target is called the "sight picture". The correct sight picture basically is having the front not too high or too low, not to the right or to the left, but having the target resting on top of the front sight. The sight picture will not always appear perfect, but if the correct sight picture is understood practice will bring improvement.
+
+The next thing to get down with is trigger squeeze. That's right you squeeze the trigger, you don't pull it for jerk it, contrary to what ever you saw on t.v., trigger squeeze is a process of putting slow steady pressure on the trigger until a shot goes off. If you try to anticipate the shot, you will jerk and mess up your aim.
+
+It would be ideal if you could incorporate into your group a veteran of the pigs' military service. Veterans are of great value and assistance in helping with the above training also when you are ready to begin practice with live ammunition. When practicing with live ammunition make sure your location is where you won't be harassed by pigs. Actual combat conditions can be deadly as a training ground. When practicing with live ammo., remember it is valuable. Don't just start popping caps for the heck of it; the whole purpose is to prepare yourself to be "a Match for One Hundred" which will only come about as a result of correct practice.
+
+One thing to guard against is flinching. Flinching is caused by being intimidated by the sound and kick of your weapon. With proper trigger squeeze and breath control, you won't have any problems with flinching. If you have problems keeping all your shots in a fairly small group or if you have a problem just getting your shots on the target anywhere you are probably flinching. Have someone watch you as you fire and they will be able to tell you whether or not you are flinching.
+
+The basic thing in the training of members of self-defense groups is to know how to handle the fire arms of all types, hand guns, rifles
+
+shot-guns, chine guns, etc.
+
+NW 88296 DocID:32989574 Page 363.

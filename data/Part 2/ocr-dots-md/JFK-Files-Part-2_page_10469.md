@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_10469.png
+
+Convert to MarkdownC. V. NOYES
+
+My total contact with other agencies in terms of assistance
+with domestic operations has been in the field of audio sur-
+veillance countermeasures, anti-hijacking, or drugs. Speci-
+fically, I participated in TSCC and R&D Subcommittee meetings
+which included technology exchanges and some equipment ex-
+changes on a temporary basis ostensibly for testing or trial.
+I also assisted in xraying the office walls of the Chairman
+of the AEC (then Mr. Schlesinger) at the request of Mr. Richard
+Cowan of AEC Security. The operation occurred one evening
+(date unknown) and was an attempt to resolve some anomalies
+created by the use of the nonlinear junction detector.
+
+Other persons contacted over the years have been:
+
+Mr. Robert Burnett, Secret Service
+
+Mr. Martin Pera, U. S. Customs
+
+Mr. Marvin Beasley, DASA
+
+Mr. Thomas Allen, FBI
+
+Major Jack Nelson, OSI/USAF
+
+Major John Langager, ONI/USN
+
+Mr. Richard Cowan, AEC
+
+SECRET
+
+00243
+
+NW 88296 DocId:32989624 Page 108

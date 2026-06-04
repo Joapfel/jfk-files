@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_16881.png
+
+Convert to Markdownh. BRENDA, 928-6794.
+
+i. AL, 533-5010.
+
+j. ANNE, 722-4384.
+
+k. BOO, 265-1909.
+
+l. CHARMAINE, 666-6523.
+
+m. DOUGLAS BLANCHARD, 521-0850.
+
+n. DIANE B., 1646 West 14th Place, 243-6586.
+
+o. DOSS (Shell Station) SE 3-9342, 243-3095.
+
+p. DOROTHY TURNER, 642-9782.
+
+q. DELORIS, 261-4997.
+
+r. Count 19, 522-1273.
+
+s. ETHEL GRIFFIN, 667-7607.
+
+t. FANNIE, 337-5163.
+
+u. FRANK, 277-7724.
+
+v. JOAN GREY, 704 East 51st Street, KE 6-2854.
+
+w. WILLIE HAWKINS, 4258 West Adams, 826-2440.
+
+x. WILLIE HOLMAN, 56 North Long, 261-2117.
+
+y. GEORGE (JONES), 287-1087.
+
+z. JOAN, NU 3-6620.
+
+aa. LYNN and FRENCH, 5301 South Maryland,
+667-0115.
+
+bb. MOSE, 1404 East 76th, 955-8890.

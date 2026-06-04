@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_16126.png
+
+Convert to Markdown# REPORT
+of the
+IDENTIFICATION DIVISION
+LATENT FINGERPRINT SECTION
+
+YOUR FILE NO.
+FBI FILE NO.
+LATENT CASE NO.
+
+January 6, 1970
+
+TO: SAC, Chicago
+
+SGT. DANIEL GROTH, JAMES DAVIS.
+JOHN CISZEWSKI, EDWARD CARMODY, ET AL.
+CHICAGO, ILLINOIS, POLICE OFFICERS - SUBJECTS;
+FRED HAMPTON (DECEASED)
+MARK CLARK (DECEASED)
+
+RE: BRENDA HARRIS
+VERLINA BREWER
+BLAIN ANDERSON
+RONALD STACHEL, ET AL. - VICTIMS;
+SUMMARY PUNISHMENT - CIVIL RIGHTS
+
+Evidence personally delivered to FBI Laboratory on
+
+REFERENCE: 12-31-69 by SA Robert M. Zimmers
+EXAMINATION REQUESTED BY: Chicago
+SPECIMENS: Q26, portion of door
+
+The listed Q specimen is described in the
+Laboratory report, which is being furnished separately,
+and will include disposition of the item.
+
+No latent prints of value present or developed
+on specimen.
+
+THIS REPORT IS FURNISHED FOR OFFICIAL USE ONLY
+
+NW 88613 DocId:32199554
+Page 1623

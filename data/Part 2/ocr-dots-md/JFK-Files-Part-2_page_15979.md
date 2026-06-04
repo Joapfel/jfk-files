@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_15979.png
+
+Convert to MarkdownOn December 18, 1968, members of Chicago Chapter BPP and members of BR met to discuss possibility of combining their organizations. No agreement was reached.
+
+12/19/68)
+
+On December 18, 1968, thirty Negroes, including three females, all believed to be members of BPP met with approximately 100 Negro youths, all believed to be members of the BR, Negro Youth gang, which operates on Chicago's south side, at First Presbyterian Church, 6400 South Kimbark Avenue, Chicago, Illinois.
+
+BR members displayed various weapons to BPP members at church, prior to JEFF FORT, leader of BR meeting with FRED HAMPTON and BOBBY LEE RUSH, leaders of BPP. Discussion between BR and BPP leaders was concerned with whether BR and BPP should join forces. FORT indicated BR was not anxious to join BPP, but would consider BPP joining BR.
+
+12/19/68)
+
+On December 26, 1968, several members of Chicago BPP, including FRED HAMPTON, met JEFF FORT, leader of BR, who was accompanied by 30 BR, at restaurant-tavern, Chicago, Illinois. FORT told HAMPTON, if BPP members did not join the BR, they had better stay out of BR territory in Chicago.
+
+12/30/68)
+
+On December 27, 1968, FORT told HAMPTON the Panthers had until noon December 28, 1968, to join Rangers, as Rangers, or stay out of Ranger territory on Chicago's south side. HAMPTON told FORT he had until noon December 28, 1968, to have BR join Panthers, as Panthers, or stay out of their territory.
+
+12/30/68)

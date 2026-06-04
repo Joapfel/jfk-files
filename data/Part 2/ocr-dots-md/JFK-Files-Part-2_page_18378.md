@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_18378.png
+
+Convert to MarkdownFRANK CHURCH, IDAHO, CHAIR
+JOHN G. TOWER, TEXAS, VICE CHAIRMAN
+
+PHILIP A. HART, MICH.
+WALTER F. MONDALE, MINN.
+WALTER D. HUDDLESTON, KY.
+ROBERT MORGAN, N.C.
+GARY HART, COLO.
+
+HOWARD H. BAKER, JR., TENN.
+BARRY GOLDWATER, ARIZ.
+CHARLES MC C. MATHIAS, JR., MD.
+RICHARD S. SCHWEIKER, PA.
+
+WILLIAM G. MILLER, STAFF DIRECTOR
+FREDERICK A. O. SCHWARZ, JR., CHIEF COUNSEL
+CURTIS R. SMOTHERS, MINORITY COUNSEL
+
+United States Senate
+
+SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+(PURSUANT TO S. RES. 21, 34TH CONGRESS)
+WASHINGTON, D.C. 20510
+
+September 15, 1975
+
+Michael E. Shaheen, Jr., Esq.
+Special Counsel for Intelligence Coordination
+Office of the Deputy Attorney General
+U. S. Department of Justice
+Washington, D. C. 20530
+
+Dear Mike:
+
+With reference to my letter of September 11, 1975, requesting materials contained in FBI and Justice Department files, please add the following item: the FBI "rap sheet" on Alfredo Perez (wife's name Florenz) residing in Reston, Virginia.
+
+Please advise Mr. David Bushong of the Committee staff as soon as this information is available. It should be treated with the highest priority.
+
+Delivered by Hand
+
+ALL FBI INFORMATION CONTAINED HEREBY IS UNCLASSIFIED
+DATE 09/11/85 BY SPALMELLY
+
+ENCLOSURE
+
+NW 88326 DocId:32989653 Page-37b

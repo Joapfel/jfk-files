@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_9232.png
+
+Convert to MarkdownDE 157-3075
+
+There are also approximately six community workers who are young high school age blacks who are interested in the BPP and help sell BPP newspapers and solicit donations to the Party. They hold no official Party status and their interest in the Party's work vacillates and their work is irregular and inconsistent.
+
+DE T-2
+
+April 4, 1973
+
+The fact that four Detroit Party members are presently in California, the fact that so many Detroit Party members work for the Party on a very limited basis and the wavering interest of the community workers has severely hurt the BPP's success in the last six months in Detroit.
+
+DE T-1
+
+May 3, 1973
+
+AC AC
+
+GERALD CRAWFORD and CAROLYN STURDIVANT, former stalwarts of the Detroit BPP Chapter, have ceased all activity in the Party in the last few months. They are no longer considered Party members.
+
+DE T-1
+
+May 1, 1973
+
+III. BPP PUBLICATIONS
+
+A. Distribution of the BPP Newspaper
+
+DE T-4 and DE T-5 advised on various dates between November, 1972 and April, 1973 that the BPP received the following number of copies of the "Black Panther" newspaper from BPP National Distribution, New York City, New York:

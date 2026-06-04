@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_11887.png
+
+Convert to Markdowna. Receipts should be of such a nature that they will be self-sufficient so that, if it becomes necessary to introduce receipts in evidence, they will not relate to other documents or files.
+
+b. Receipts should clearly show:
+
+(1) Date on which payment was made
+
+(2) Period for which made when informant is paid on period basis
+
+(3) Total amount paid broken down into separate amounts for services or expenses where pertinent
+
+(4) Name of Agent making payment
+
+(5) Signature of person receiving money
+
+c. Receipts are not to be witnessed by another Agent.
+
+d. If necessary to make corrections on receipts, they must be initialed by informant and not by Agent.
+
+e. When transmitting receipts and itemized statements of expenses to Bureau, staple them directly to blue slip, leaving margin of one to one and one-half inches at top to avoid contact with Acco fastener punch. Place staples so that date or other data appearing on receipt will not be mutilated and all information on receipt can be easily read without detaching it from blue slip.
+
+6. Income tax returns
+
+a. Advise informants who receive compensation for their services to Bureau that such compensation must be reported as income when filing an income tax return.
+
+b. Bureau income should be set forth on Federal income tax return, form 1040, as income received from other sources for personal services rendered through a private enterprise or similar general term applicable to informant's position and station in life.
+
+c. If informant is self-employed and files schedule C as self-employed individual, it may be possible to include his Bureau income with his self-employed income from other sources without revealing connection with Bureau.
+
+d. If informant cannot report payments received from Bureau for services without jeopardizing his security as informant, such payments will be subject to 20 per cent withholding tax. There are four categories of circumstances in which taxes will not be withheld. Taxes are not to be withheld from payments made (1) to other than security informants and sources, (2) for reimbursement of expenses, (3) under SAC authority, or (4) to informants who have been able to report Bureau income on their Federal tax returns without jeopardizing their security or without challenge from Internal Revenue Service. Each office has detailed instructions and exhibits concerning procedure to be followed in handling and control of money withheld.
+
+e. When informant or former informant is initially considered as potential witness in Bureau case, determine whether he paid Federal and state taxes on income he received from Bureau for his services. If such taxes have not been paid, obtain all pertinent details and promptly submit recommendations for handling situation.
+
+7. Stipulation re payments made to witnesses
+
+a. In trials in which informants; former informants, or other persons who were paid sums of money are prospective witnesses, Bureau must furnish Department set of photostats of original receipts signed by prospective witnesses. Original receipts and set of photostats will be transmitted to field office in whose territory trial will take place. Office handling prosecution must determine from Government attorney which individuals are to be used as witnesses. Thereafter office should furnish and/or cause other appropriate offices to furnish to Bureau following information:

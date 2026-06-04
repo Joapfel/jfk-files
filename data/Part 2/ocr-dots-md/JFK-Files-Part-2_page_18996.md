@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_18996.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+V. Jaffe's Contacts with FBI Subsequent to Expulsion From Moscow, October, 1965
+
+On December 2, 1965, Jaffe advised agents of the New York Office of the FBI that he was notified of his expulsion from Russia in October, 1965, by Leonid Zamyatin, number one man in the Press Department of the Soviet Foreign Ministry. During his stay in Moscow he had contact with Zamyatin and Boris Pyadyshev, number two man in the Press Department; Fedor Semenov, number three man in the Press Department; Fedor Fedorenko, number four man in the Press Department; and Anatoli Kachev, number five man in the Press Department of the Soviet Foreign Ministry. All of these people were friendly to Jaffe and somewhat apologetic concerning the fact that he was being expelled from the Soviet Union. This was particularly true of Kachev, who told Jaffe that he hoped to be able to see him in New York City sometime in the future.
+
+Fedor Stepanovich Fedorenko has been reported as connected with the Soviet Committee of Information (KI).
+
+Leonid Mitrofanovich Zamyatin has been reported as connected with the Soviet Ministry of Internal Affairs (MVD).
+
+According to Jaffe, Kachev also told him not to be concerned about his expulsion and that, if there were anything the Soviets could do for Jaffe, Oleg Kalugin was in Washington, D.C. Jaffe said he is acquainted with Kalugin and knew Kalugin when he was the number three man in the Press Department of the Soviet Foreign Ministry, after Kalugin's return to Russia from his previous assignment in New York City and prior to his present assignment at the Soviet Embassy in Washington, D.C. Prior to his present assignment in Washington, D.C., Kalugin transferred from the Press Department of the Soviet Foreign Ministry to Radio Moscow in the American Department. Jaffe said Kalugin is very Americanized in his outlook and Jaffe knows Kalugin to be a very talkative individual.
+
+SECRET
+19
+
+NW 88326 DocID:32989704 Page 290

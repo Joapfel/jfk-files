@@ -1,0 +1,93 @@
+# JFK-Files-Part-2_page_11186.png
+
+Convert to MarkdownINDEX FOR SECTION 87D
+
+References are to page,
+
+Status of cases (continue:
+
+wh: obtaining photographs, 27
+
+whi securing handwriting, 26
+
+whi. verifying residence and employment, 58, 70-
+
+Students
+
+contacts with, 25
+
+investigations of, 24
+
+Summarizing information in reports, 76,77
+
+Summary reports, 21,47,71,76
+
+Superiors of faculty members, 25
+
+Surveillances
+
+photographic, 35,37
+
+physical, 35,38
+
+Tabbing SI cards, 45b,53,62,64,68, 70
+
+Thumbail sketches, 79
+
+Title of reports, 72
+
+Top functionaries, 66,69
+change of office of origin,
+70
+definition of, 69
+designation of, 69
+handwriting of, 70
+inclusion in key figure list,
+70
+movement of, 59
+photographs of, 68,70
+program, 66
+regulations governing, 70
+reports on, 59,70
+status of, 70,73
+tabbing for detcom, 62,70
+Topical headings in reports, 74
+
+Tours, 33a
+
+Travel
+
+abroad, 33,69
+
+behind iron curtain, 34
+
+Unavailable section of security index, 53
+
+imprisoned subjects, 54
+
+missing subjects, 32,34
+
+subjects traveling abroad, 34,54
+
+Underground membership or activity, 31
+
+United Nations employoes, 25,52
+
+U. S. Government employees, 25,70,80
+
+U. S. Information Agency, inclusion of subjects in security index or reserve index, 70
+
+Verification of addresses, security index, 32,54, 57,58,74,81a
+
+employer, security index, 32,57,74,81a
+
+key facility or defense facility status of place of employment, 64
+
+Voice of America (See U. S. Information Agency.)
+
+Wife and husband, security investigations, 72
+
+Yugoslav intelligence agents; contacts with, factor in determining dangerousness of individual, 44a
+
+82g
+2-13-68

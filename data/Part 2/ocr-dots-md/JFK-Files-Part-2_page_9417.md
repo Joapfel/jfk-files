@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_9417.png
+
+Convert to MarkdownDE 157-3075
+
+JOLLY did when he and MC CLURE were at the BPP Constitutional Convention at Philadelphia, Pennsylvania, September 5 to 7, 1970.
+
+**DE T-1**
+
+September 9, 1970
+
+On October 5, 1970, LINDA WARNSLEY, Detroit NCCF, requested instructions from National Headquarters, San Francisco, regarding the setting up of a medical cadre.
+
+**SF T-16**
+
+October 5, 1970
+
+On October 17, 1970, CHARLES HOLT, second in command, Detroit NCCF, sent a report to JUNE HILLIARD, Assistant Chief of Staff, BPP, that the NCCF had moved out of 7708 Mack Avenue, and into the community as he had directed.
+
+**SF T-16**
+
+October 17, 1970
+
+HUEY NEWTON, Minister of Defense for the BPP, is scheduled to arrive in Detroit on November 16, 1970, along with his secretary, CONNIE MATTHEWS, and DAVID HILLIARD; BPP Chief of Staff. NEWTON will speak at three universities in the Detroit area to raise funds for the Detroit 16.
+
+**DE T-1**
+
+November 15, 1970
+
+THOMAS JOLLY, BPP, New York, left Detroit at 10:30 p.m., December 16, 1970, and is scheduled to arrive at San Francisco at 12:30 a.m., December 17, 1970.
+
+**SF T-22**
+
+December 16, 1970
+
+KENNETH HORSTON, BPP, San Francisco, returned from California to Detroit on December 23, 1980, he is currently in charge of the Detroit NCCF.
+
+**DE T-1**
+
+December 24, 1970
+
+NWW-88296-DocID:32989574-Page-326

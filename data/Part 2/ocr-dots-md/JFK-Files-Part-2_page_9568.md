@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_9568.png
+
+Convert to MarkdownHe continued: "Before, the Arab governments could delay our struggle and prevent it. But the situation has changed now. We have become strong, much stronger than they think, and the source of our strength is not guns or the number of men who carry them, rather the source of our strength is the Arab people. You might ask here: 'Why, then, do we proclaim that we will not interfere in other Arab affairs?' This question has caused much damage, and has been used against us. Let me, however, assure you; we are the ones who interfere in Arab affairs the most. We impose our presence on all Arab governments, and impose on them the fulfillment of all our demands. We get from them all we ask for. This cannot be an indication of weakness, but on the contrary. There is no necessity for a conflict with them if they support the Palestinian revolution. But if they forbid us what we need, then we will not remain silent."
+
+Without being interrupted, he continued:
+
+"Let me give you an example from Lebanon to clarify the idea. In principle, we have no right to give an opinion about the present Lebanese regime. It is not our duty to demand or work for a change of government; that is the duty of the Lebanese people, and ** this is not for us, therefore, to give an opinion about internal matters, to demand the resignation of Al-Yafi's government or the appointment of this or that minister. Our only interest is that the Lebanese regime does not stand against the Resistance Movement to destroy it. Even if the regime attempts to strike against us, we would not retaliate to overthrow it. Rather we would let the Lebanese people express their will. The day the incident of Kafr Shuba occurred, Fatch men and the Al-Asifah fighters did not demonstrate, to demand protection for the Resistance Movement. It was the Lebanese people, who demonstrated and demanded protection for the Resistance Movement. This is also the case in Jordan. We never thought of
+
+asking King Hussein to remove such and such minister, and appoint another. We never asked him to remove any officer or governor and such internal matters. We do, however, exercise our right for self-protection and for the continuation of our struggle."
+
+Abu Amar continued in a serious tone: "Do you know how many martyrs we lost on 4/11/1968 (referring to the clash between the Jordanian security forces and the Resistance Movement)? We had 17 martyrs. Hundreds of innocent and unarmed civilians were also injured. If we had not been wise that day and if we had not controlled ourselves, we would have witnessed a great massacre. We informed the King of our intentions clearly. We told him that we will not interfere in his government's internal affairs, except when our own existence is threatened. What is our basic demand from Jordan at this stage? Our demands are: to exist on its territory, to move freely among Palestinians, and to have the right of dying for our land."
+
+I asked him: "The relation between Arab governments and the Palestinian Resistance Movement could deteriorate...if a "peaceful settlement" is reached the picture will change and the governments would attempt to liquidate the Resistance Movement. What then?"
+
+Abu Amar answered: "That is possible, and I assure you that we are in a state of alertness, because we expect attempts at our liquidation anytime. We know that some Arab governments are using us, in their international contacts, as a trump card in their play at reaching a "peaceful settlement". But these governments do not know that we are now strong; **than ever**. We are the third largest force here ... right after the Jordanian Army and the Iraqi forces in Jordan. This is our own military strength. We also derive strength from popular support here, in Jordan, and abroad. This support stems from the determination of our nation to resist defeat and to
+
+39
+
+NW 88296 DocId:32989574 Page 477

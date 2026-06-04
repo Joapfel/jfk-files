@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_12662.png
+
+Convert to Markdown3. Investigative procedures re subversive organizations, new left groups, suspected subversive organizations, and communist fronts
+
+Develop fully and report on following topics, where applicable:
+
+a. **Origin and scope**
+
+Date of formation. Circumstances under which founded. Identify individual or individuals responsible for organizing group. Identify all chapters and give their locations.
+
+b. Whether incorporated
+
+Determine if organization has filed incorporation papers with appropriate state officials.
+
+c. Aims and purposes
+
+Determine whether organization advocates violence, resistance, and unlawful activity.
+
+d. Location of headquarters
+
+e. Officers
+
+List principal officers, including board of directors, and give appropriate characterization of each showing subversive affiliation.
+
+f. Membership
+
+(1) General
+
+Ascertain estimated membership. Whenever possible, secure membership lists, mailing lists, or other records showing affiliation with organization. Secure accurate description of all lists to eliminate confusion as to exact identity or significance of any list.
+
+(2) CPUSA
+
+Details of semiannual reports are not to contain membership statistics. Following instructions are for cover pages.
+
+(a) Cover pages must contain latest statistics on total CPUSA members in district. Set forth on separate page or pages. Offices covering district headquarters should submit following figures: for entire district, for individual states, or portion of state covered by district. Auxiliary offices which have been authorized to submit this data by letter should include membership figures in such letters and submit them to Bureau and office of origin on April 1 and October 1. Office of origin responsible to obtain complete figures from auxiliary offices.
+
+(b) Each office must show for its territory following: number of Negroes in CPUSA, name and title of each Negro who has national level position or who has district level position above that of club chairman. When possible, membership totals should be broken down as to nationality, sex, employment, veteran status, and membership in unions.
+
+(c) Include evaluation of reliability of figures furnished by each source and of final figures. Use of only one source is not acceptable unless facts demonstrate such information is most reliable available. Also include totals of positively identified CPUSA members and tentatively identified members within six-month period preceding report.
+
+(d) Explain in detail any increase or decrease in membership. Include results of membership recruiting drives. Endeavor to ascertain results of national registration drives.
+
+(e) Include whether all persons identified as CPUSA members in report who reside within area covered by reporting office are listed in security index, or are informants or sources. List any exception by name and show status of investigation and whether name has been furnished to Bureau for indexing.
+
+g. Official organ, if any, and other literature
+
+(1) May be obtained through confidential mailbox, panel sources, and confidential informants
+
+(2) Appropriately identify all such literature.
+
+(3) Promptly furnish to Bureau at least one copy of each pertinent piece of literature.
+
+h. General activities

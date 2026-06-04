@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_14398.png
+
+Convert to MarkdownENCLOSURE
+
+<table><thead><tr><td colspan="4">FEDERAL BUREAU OF INVESTIGATION<br>WASHINGTON, D.C.</td><td colspan="2">A3,925,594</td></tr><tr><th>CARRIERS CODE 16</th><th>BILL NUMBER 37 53</th><th>TRANSP AMOUNT 65 48</th><th>ALTERNATE AMOUNT 72</th><th>CARRIER'S CODE</th><th>BILL NUMBER</th><th>TRANSP AMOUNT</th></tr></thead><tbody><tr><td>The National Airlines</td><td>Company is requested to furnish a coach class air transportation at lowest rate from Washington, DC to Miami, Florida + return. (IF ROUND TRIP SERVICE REQUIRED WRITE AND RETURN) (SHOW CARRIERS AND JUNCTION POINTS AND WHERE MIXED CLASS SERVICE IS TO BE FURNISHED SPECIFY SUCH OF BETWEEN THE SPECIFIC POINTS FOR USE OF LISA WHITSON and others with accommodations (LOWER OF NTH, P.O. SEAT, ETC) from to (IF ROUND TRIP SERVICE REQUIRED WRITE AND RETURN) to transport not over Ms. of excess baggage from I CERTIFY THAT I HAVE RECEIVED THE TRANSPORTATION SERVICE OR TICKETS REQUESTED EXCEPT AS STATED ON REVERSE SIDE.<br>TRAVELER'S SIGNATURE: Fish Whitson<br>TITLE: Special Agent<br>TRAVELER MUST ASCERTAIN COST OF TRANSPORTATION AND/OR ACCOMMODATIONS AND RECORD IN SPACES BELOW</td><td>Washington, DC</td><td>107.40</td><td></td><td></td><td></td></tr><tr><td>PLACE OF ISSUE</td><td colspan="4">LISA WHITSON<br>I CERTIFY THAT THE TRANSPORTATION REQUESTED IS FOR SPECIAL BUSINESS.<br>ISSUING OFFICER'S SIGNATURE: Fish Whitson<br>TITLE: Special Agent<br>FISCAL DATA (APPROPRIATION AUTHORIZATION ETC.)</td><td rowspan="3">DO NOT FOLD, SPINDLE OR MUTILATE<br><br>Side-Viewed States of America<br>Transportation Figure 2<br>MEMORANDUM CARD COPY</td></tr><tr><td>TRANSPORTATION AMT</td><td>ACCOMMODATION AMT.</td><td></td><td>TOTAL</td><td>0502<br>21-70</td></tr><tr><td colspan="5">TICKET AGENT WILL NOT ACCEPT THIS</td></tr></tbody></table>
+
+ALL INFORMATION CONTAINED IS UNCLASSIFIED BY BIS A.M. 1/19
+DATE: 1-19-91
+
+ENCL
+
+NW 88296 DocId:32989532 Page 149

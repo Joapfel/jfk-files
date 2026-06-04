@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_17333.png
+
+Convert to MarkdownCONFIDENTIAL
+
+EMERGENCY CONFERENCE TO DEFEND
+THE RIGHTS OF THE BLACK PANTHER PARTY
+TO EXIST (ECD) (BPP)
+
+On March 14, 1970, the second source advised that at a meeting of the Illinois District of the CP leadership held on March 13, 1970, in Chicago to discuss the results of the March 7-8 conference it was stated that there appeared to be a decision in the BPP plans concerning CP support for that organization. In that connection it was stated that David Hilliard did not feel that the BPP needed support from the CP, but that Bobby Seale and Huey Newton felt that they should go along with the CP.
+
+It was unanimously agreed at this meeting that the conference was a success and that the CP feels it should be the vanguard in any future action. It was indicated that efforts would be made to attempt to unite all leftist groups in the cause of the conference. In addition it was agreed that national headquarters should be moved to New York City under the leadership of Angie Dickerson. It was felt that the CP should continue to guide but not to dominate any future similar functions.
+
+Copies of this memorandum are being furnished
+the following offices:
+
+United States Secret Service, Chicago, Illinois
+
+Region I, 113th Military Intelligence Group
+Evanston, Illinois.
+
+CONFIDENTIAL
+
+DocID:32199554

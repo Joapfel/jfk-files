@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_10346.png
+
+Convert to MarkdownSUBJECT: Contacts With Other U.S. Government Agencies Which Could or Have Resulted In Use of CIA-Developed Technology in Addressing Domestic Problems
+
+<u>Proposed Use of NASA ERTS Satellite (Agency association would be SECRET)</u>
+
+The Agency is preparing a proposal for an experi-
+mental program to aid in estimating the Soviet wheat
+crop. A part of the information would be obtained from
+a satellite launched for other announced programs. Ground-
+truth data will be collected on North American crops.
+
+(Briglia/PAS)
+
+U.S. Department of Agriculture and Bureau of Narcotics
+and Dangerous Drugs
+
+CIA has requested the establishment of a two-acre plot of opium poppies at a USDA research site in Washington state, to be used for tests of photo-recognition of opium poppies.
+
+(Mr. Quentin Jones, USDA)
+(Mr. Fred Garfield, BNDD)
+
+(Lawrence/DSP)
+(Cianci/LS)
+
+Army, Military Police Agency, Ft. Gordon
+
+Air Force, Office of the Inspector General
+
+<u>Army, Office of Provost Marshall General</u>
+
+We have exchanged technical surveillance countermeasures and physical security information with them.
+
+(Noe/TA)
+
+U.S. Army
+Rocky Mountain Arsenal, Newport Army Ammunition Plant,
+Toelle Ordnance Depot
+
+LS/ORD tested environmental samples from testing,
+storage and production facilities in the U.S.
+
+Identity 125/LST
+
+00235
+
+7
+
+SECRET

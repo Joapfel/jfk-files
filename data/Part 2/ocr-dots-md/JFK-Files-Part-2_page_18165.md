@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_18165.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (ESC)
+
+RE: INTERVIEW OF FORMER FBI SPECIAL AGENT (SA) EDWARD F. GAMBER, BY ESC STAFF MEMBERS
+
+Gamber was subsequently interviewed by Wallach on September 2, 1975, and voluntarily furnished to the Atlanta Field Office a statement concerning the interview which is incorporated into a memorandum, a copy of which is attached hereto.
+
+Gamber additionally advised that he had no objection to his statement being disseminated to the White House and the Department; however, he specifically requested it not be disseminated to the OSC. Gamber further advised that when arrangements were made between himself and Wallach for the interview, he, Gamber, intended to contact the Legal Counsel Division of the FBI by collect call on August 22, 1975. Gamber stated, however, that he inadvertently failed to make the call due to the pressure of business.
+
+Enclosure
+
+NOTE:
+
+The LHM incorporating Gamber's statement was received by cover of Atlanta airtel 9/5/75 "Senstudy 75." The information reported herein concerning contacts with Gamber are from Bureau teletype 8/14/75 and Atlanta teletypes 8/15, 21/75.

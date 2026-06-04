@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_16131.png
+
+Convert to MarkdownDale 2/26/70
+
+Photographs were taken during the autopsy of FREDERICK ALLEN HAMPTON at the Veterans Administration Hospital, utilizing a speedgraphic camera with flash attachment and Polaroid adapter. Polaroid color sheet film was used.
+
+On 2/16/70 at Shreveport, Louisiana File # _______
+
+SA PATRICK E. COONEY Date dictated 2/20/70
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency, and its contents are not to be distributed outside your agency.

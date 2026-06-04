@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_9309.png
+
+Convert to MarkdownDE 157-3075
+
+| Month | Copies |
+| :--- | :--- |
+| August | 19,774 |
+| September | 7,500 |
+| October | 7,200 |
+
+Copies of "The Black Panther" newspaper are shipped
+to EDGAR ROBINSON, 611 Continental, Detroit, from New York
+Distribution, 146-20 Rockaway Boulevard, Jamaica, New York.
+
+DE T-9
+May 20, 1971
+
+## 2. Local Publications
+
+The following are copies of publications which
+were either produced or reproduced by the Detroit NCCF-BPP
+for distribution to members, associates and to the general
+public attending political education meetings:
+
+DE T-1 furnished a copy of the following leaflet
+on January 14, 1971:

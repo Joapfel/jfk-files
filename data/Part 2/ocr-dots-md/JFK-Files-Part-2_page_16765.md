@@ -1,0 +1,63 @@
+# JFK-Files-Part-2_page_16765.png
+
+Convert to MarkdownREPORT
+of the
+
+FEDERAL BUREAU OF INVESTIGATION
+WASHINGTON, D. C. 20535
+
+To: FBI, Chicago
+
+Re: SGT. DANIEL GROTH; JAMES DAVIS; JOHN CISZEWSKI; EDWARD CARMODY; et al.
+
+Chicago, Ill. Police Officers - Subjects;
+FRED HAMPTON (DECEASED); MARK CLARK (DECEASED);
+BRENDA HARRIS; VERLINA BREWER; BLAIR ANDERSON;
+
+RONALD STACHEL et al. - VICTIMS SUMMARY PUNISHMENT - CIVIL FLEETS
+
+Date:
+FBI File No.
+Lab. No.
+
+January 26, 1977
+
+Specifications received 1/21/70
+
+K1 .357 Magnum Colt revolver, Serial Number 16779 (Corbett)
+
+K2 .38 Special Colt revolver, Serial Number 790280 (Howard)
+
+K3 .38 Special Smith and Wesson revolver,
+Serial Number V-401642 (Howard)
+
+K4 .357 Magnum Colt revolver, Serial Number 20275 (Davis)
+
+K5 .38 Special Smith and Wesson revolver,
+Serial Number C-334879 (Kelly)
+
+K6 .38 Special Smith and Wesson revolver,
+Serial Number C-174386 (Marusich)
+
+K7 .38 Special Colt revolver, Serial Number 369988 (Marusich)
+
+K8 .38 Special Colt revolver, Serial Number 36064 (Carmody)
+
+K9 .38 Special Smith and Wesson revolver,
+Serial Number 7455 (Harris)
+
+K10 .38 Special Colt revolver, Serial Number 7991 (Broderick)
+
+K11 .38 Special Smith and Wesson revolver,
+Serial Number 183979 (Groth)
+
+K12 .38 Special Colt revolver, Serial Number 857237 (Groth)
+
+K13 .38 Special Colt revolver, Serial Number 627788 (Hughes)
+
+K14 .38 Special Colt revolver, Serial Number 39731 (Hughes)
+
+K15 .357 Magnum Smith and Wesson revolver,
+Serial Number S-188411 (Gorman)
+
+(continued on next page)

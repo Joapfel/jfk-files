@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_18964.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+Yuri Nikolaevich Vinogradov;
+
+Lyudmila Borisovna (LNU), an artist who worked in the television section of APN.
+
+Jaffe stated he also had several contacts with Oleg Danilovich Kalugin in Moscow; however, he did not associate as closely with Kalugin as he did with the aforementioned Soviets.
+
+(Nikolai Sergeevich Kalinin has been reported as connected with KGB and with MVD.)
+
+(Oleg Danilovich Kalugin has been reported as connected with KGB.)
+
+Jaffe stated that another of his Soviet contacts, Vladimir Borisovich Barkovski, was definitely connected with KGB. Barkovski asked Jaffe to "write for their (Soviet) journalists because they don't know about the U.S." Jaffe said he mentioned Barkovski to "Slava," but "Slava" said he never heard of him. He also mentioned Kalinin to "Slava" and "Slava" denied knowing him. Jaffe said he believes Kalinin definitely was connected with KGB. He continued: "When I came to Moscow, who popped up of all people, but Nikolai Kalinin." Jaffe advised he once had his translator call. Kalinin at a telephone number furnished by Kalinin; however, Kalinin was not known to the party answering the telephone.
+
+In answer to a specific question, Jaffe said it was Lyudmila Borisovna (LNU) who confirmed the "Khrushchev ouster exclusive" given him by "Slava." Jaffe said he accomplished this through a telephone call to Lyudmila at APN. Prior to contacting Lyudmila, Jaffe had not been able to confirm the story.
+
+SECRET

@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_17412.png
+
+Convert to Markdown"THIRD WORLD UNITY CONFERENCE,"
+OLIVET PRESBYTERIAN CHURCH,
+CHICAGO, ILLINOIS,
+
+FEBRUARY 14 - 16, 1969
+
+many nationally-known militant black nationalist groups. Koen's objective is to set up a meeting of the leadership of various groups so that common objectives and policies could be determined and to prevent these groups from working at cross purposes. Koen did not give any details as to the time or location of this meeting, but did state it was to be kept as secret as possible to avoid attention from any police or government authorities.
+
+The above source made available a leaflet announcing
+the Third World Unity Conference, a copy of which is at-
+tached near the end of this communication.
+
+A second confidential source advised on February 17,
+1969, that the Third World Unity Conference was held as
+scheduled at the Olivet Presbyterian Church, 1443 North
+Cleveland Avenue, Chicago. The conference was sponsored
+by Black Active and Determined (BAD), a Negro youth group
+located on the near North side of Chicago, and by the Young
+Lords. The conference began at 7:30 p.m. on February 14,
+1969. All persons were searched for weapons prior to being
+admitted to the conference. This source made available a
+schedule for the conference, a copy of which is attached
+near the end of this communication. Speakers at this session
+of the conference were Fred Hampton, Deputy Chairman, Chicago
+Chapter of the Black Panther Party (BPP), and Luis Cuza,
+Leader of the Young Lords.
+
+For a characterization of the BPP, see the attached
+appendix page.
+
+Hampton spoke about the BPP and stated he was
+seeking recruits for that organization. The source estimated
+the attendance at this session at about 20 persons, 13 of
+whom were blacks and 7 Puerto Ricans. The meeting ended at
+9 p.m.
+
+The second source advised that the conference was
+resumed on February 15, 1969, and the speakers were Hampton
+and Russ Meek, a militant black radio and television personality
+in Chicago, who spoke concerning police brutality. Approximately
+
+NW 88613 DocId:32199554
+
+Page 2909

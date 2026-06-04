@@ -1,0 +1,95 @@
+# JFK-Files-Part-2_page_9580.png
+
+Convert to MarkdownU
+N
+FED
+A
+D
+S
+T
+E
+A
+P
+D
+M
+E
+N
+T
+O
+R
+F
+I
+C
+S
+T
+I
+F
+E
+S
+T
+I
+C
+E
+
+F
+E
+D
+A
+R
+E
+U
+L
+A
+R
+E
+U
+F
+I
+C
+H
+C
+O
+J
+E
+K
+S
+C
+O
+N
+S
+C
+I
+T
+E
+N
+G
+R
+O
+F
+I
+N
+V
+E
+S
+T
+A
+G
+N
+I
+O
+N
+
+In Reply, Please Refer to
+File No.
+
+December 17, 1970
+
+Title BLACK PANTHER PARTY (BPP), NATIONAL COMMITTEE TO COMBAT FASCISM (CCCF) - DETROIT DIVISION
+
+Character RACIAL MATTERS - SMITH ACT OF 1940;
+ SEDITIOUS CONSPIRACY, REBELLION AND
+ INSURRECTION
+
+Reference Detroit report dated and captioned as above
+
+All sources (except any listed below) whose identities are concealed in referenced communication have furnished reliable information in the past.

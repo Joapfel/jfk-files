@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_17389.png
+
+Convert to Markdown# BLACK PANTHER PARTY (BPP)
+
+Rochelle Broome
+Vernon Harmon
+Al Mitchell
+Maurice McKinley
+Ivory Taliferro, Jr.
+Leedy Lipscomb (phonetic)
+Buddy Lipscomb (phonetic)
+Emile (last name unknown)
+Ronnie Brown
+Steve Dorsey
+
+advised that Johnson had held the meeting to try to create more interest in establishing a Black Panther Chapter at Champaign-Urbana. advised that the individuals expressing interest in joining a Black Panther organization were Broome, Harmon, Mitchell, McKinley, and Taliferro. He advised that the other individuals present did not appear to have too much interest in the BPP, and appeared to be there out of curiosity. He advised that in addition to the above individuals, he thought there were two or three airmen from Chanute Air Force Base, Illinois, however, he was not certain of this. Also at the meeting was an ex-convict from Chicago, Illinois, whom he recognized as being an individual that had been arrested in Rantoul, Illinois, for robbing a filling station.
+
+further related that he had heard that some "Black Panthers" had been in Champaign, Illinois, the week prior to the meeting, and he had heard that they had beat up John Lee Johnson. Also advised that after the meeting on-January 14, 1969, Maurice McKinley beat Johnson and that the fight was a dispute concerning who was going to be the local leader of the Black Panther organization.
+
+On January 16, 1969, Eldon Quick, Chief of Police, Rantoul, Illinois Police Department, advised in June, 1966, there were two Negro males arrested at Rantoul, Illinois, for armed robbery in connection with the robbery of a filling station. He advised that they were Oliver L. Dority and J. C. Tribbett, both from Chicago, Illinois.
+
+C O N F I D E N T I A L
+
+NW 88613 DocId:32199554
+Page 2886

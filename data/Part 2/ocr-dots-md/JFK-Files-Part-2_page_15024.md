@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_15024.png
+
+s exist. For example, we recently sent the following letters
+to the Attorney General bring to his attention shortages of judges or U. S.
+Attorneys in the indicated areas:
+
+9-1-67, Southern District of Georgia;
+
+8-16-67, Eastern District of Michigan;
+
+8-7-67, District of Kansas;
+
+8-3-67, District of New Jersey;
+
+8-2-67, Southern and Northern Districts of Mississippi;
+
+7-31-67, Western District of New York.
+
+(CONTINUED - OVER)

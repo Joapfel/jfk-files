@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_18121.png
+
+Convert to MarkdownLegal Counsel to Mr. Adams
+
+RE: SENSTUDY 75
+
+MacDougall had traveled from New York for purposes of this particular interview, they felt that it would be in their interest to also interview MacDougall concerning mail openings. He requested that MacDougall be released for purposes of the mail openings interview. He also informed SA Daly that after the mail covers interview, MacDougall will return to the Bureau so that he can be appropriately briefed by the Legal Counsel Division concerning his Fifth Amendment rights.
+
+## RECOMMENDATION:
+
+That SA MacDougall be released from existing employment agreement for purposes of interview by the Senate Select Committee concerning mail openings.

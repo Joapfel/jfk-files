@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_16294.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+1 - U.S. SECRET SERVICE, CHICAGO, ILLINOIS (VIA COURIER)
+1 - USA, CHICAGO, ILLINOIS (VIA COURIER)
+
+Copy to: 1 - REGION I, 113TH MILITARY INTELLIGENCE GROUP,
+EVANSTON, ILLINOIS (VIA COURIER)
+
+CONFIDENTIAL
+
+Report of: SA RICHARD T. HESLIN
+Date: 11/18/69
+
+Office: Chicago, Illinois
+Bureau File #: 
+
+Field Office File #:
+
+Title: YOUNG PATRIOTS
+
+Sender: RACIAL MATTERS
+
+Synopsis: The Young Patriots (YP) was formed in August, 1968 by CHUCK GEARY, a leader in Uptown Chicago. The group was founded to act as a youth movement within GEARY's plans of building civic pride in the Uptown area in order to help its poor people. The present headquarters of the YP is at 1421 West Wilson, Chicago, Illinois. On 12/1/69, the headquarters will be moved to 860 Buena Street, Chicago, Illinois. YP is a youth group opposing racism and encouraging a coalition of all races in order to alleviate poverty. Most Young Patriots are poor whites from the Appalachian Region of the United States.
+
+- P -
+
+DETAILS
+
+This case was predicated upon receipt of information that the Young Patriots (YP) had become allied with the Black Panther Party (BPP) and had potential of developing into a basic revolutionary group.
+
+(5/15/69
+
+I. ORGANIZATIONAL STRUCTURE
+
+Headquarters
+
+All literature distributed by the YP shows their
+headquarters as 1421 Wilson Avenue, Chicago, Illinois.
+
+CONFIDENTIAL
+Group I
+
+Excluded from automatic downgrading and declassification
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

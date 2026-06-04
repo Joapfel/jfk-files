@@ -1,0 +1,63 @@
+# JFK-Files-Part-2_page_18434.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. R. Wannall
+
+FROM : W. O. Cregar
+
+SUBJECT: SENSTUDY 75
+
+2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+
+DATE: 7/24/75
+
+1 - Mr. W. R. Wannall
+
+1 - Mr. W. O. Cregar
+
+1 - Mr. D. Ryan
+
+1 - Mr. S. F. Phillips
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.: 
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Legal Counsel ✓ Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Telephone Rm. ____
+Director Sec'y ____
+
+This memorandum records Bureau waiver from secrecy agreement for interview of Atlanta Field Office (FO) SA Edward A. Shea by Senate Select Committee (SSC) Staff Members at Atlanta, 7/22-23/75.
+
+Supervisor S. F. Phillips of the Senstudy 75 Project was in Atlanta 7/22/75 in connection with the interviews there of six SAs (five from Atlanta FO; one who traveled to Atlanta from Knoxville FO) by SSC Staff Members Michael Epstein and Mary DeOreo. Interviews concerned the former FBI investigation of Martin Luther King, Jr. At approximately 5:00 p.m., 7/22/75, Epstein telephonically contacted Phillips and advised that one of the interviews developed information resulting in his desire to interview a seventh SA, Edward A. Shea of the Atlanta FO. In order to avoid another trip to Atlanta, Epstein asked if Phillips could obtain FBI clearance for the interview which would concern: (1) any possible COINTELPRO operations in Atlanta with respect to King or the Southern Christian Leadership Conference (SCLC); (2) Shea's assignment to a "file review or file retrieval" project during past year concerning COINTELPRO; and (3) concerning COINTELPRO "generally." (It should be noted that earlier this year, Shea handled a project relating to classifying documents in Atlanta files regarding COINTELPRO. Shea advised Phillips of this and also said that he does not recall seeing any documents regarding COINTELPRO/SCLC - KING.) Epstein desired to interview Shea the morning of 7/23/75.
+
+62-116395
+
+EX 104
+
+REC 17
+
+1 - 67- (Personnel File SA Edward A. Shea)
+
+SFP:lhb/lhb
+(8)
+
+5 JUL 31 1975
+
+CONTINUED OVER
+
+10AUG21 1975

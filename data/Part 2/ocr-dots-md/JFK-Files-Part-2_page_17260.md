@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_17260.png
+
+Convert to MarkdownMarch 31, 1969
+
+CONFIDENTIAL
+
+Director
+United States Secret Service
+Department of the Treasury
+Washington, D. C. 20220
+
+Dear Sir:
+
+The information furnished herewith concerns an individual who is believed to be covered by the agreement between the FBI and Secret Service concerning Presidential protection, and to fall within the category or categories checked.
+
+1. ☐ Has attempted or threatened bodily harm to any government official or employee, including foreign government officials residing in or planning an imminent visit to the U. S., because of his official status.
+
+2. ☐ Has attempted or threatened to redress a grievance against any public official by other than legal means.
+
+3. ☑ Because of background is potentially dangerous; or has been identified as member or participant in communist movement; or has been under active investigation as member of other group or organization inimical to U. S.
+
+4. ☐ U. S. citizens or residents who defect from the U. S. to countries in the Soviet or Chinese Communist blocs and return.
+
+5. ☑ Subversives, ultrarightists, racists and fascists who meet one or more of the following criteria:
+
+(a) ☐ Evidence of emotional instability (including unstable residence and employment record) or irrational or suicidal behavior:
+
+(b) ☐ Expressions of strong or violent anti-U. S. sentiment;
+
+(c) ☑ Prior acts (including arrests or convictions) or conduct or statements indicating a propensity for violence and antipathy toward good order and government.
+
+6. ☐ Individuals involved in illegal bombing or illegal bomb-making.
+
+Photograph ☐ has been furnished ☐ enclosed ☐ is not available ☑ may be available through Subsequent communication
+
+CONFIDENTIAL
+
+DAS
+
+Upon removal of classified enclosures, if any, this transmittal form becomes UNCLASSIFIED.]

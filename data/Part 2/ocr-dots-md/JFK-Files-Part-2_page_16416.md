@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_16416.png
+
+Convert to MarkdownEverything reactionary
+is the same; if you don't
+hit it, it won't fall. This
+is also like sweeping the
+floor; as a rule, where the broom does
+not reach, the dust will not vanish
+of itself.
+
+MAO TSE-TUNG
+
+93

@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_14717.png
+
+Convert to MarkdownGARY STEVEN KRIST;
+RUTH EISEMANN-SCHIER;
+BARBARA JANE MACKLE - VICTIM
+KIDNAPING
+
+On December 17, 1968, 20-year-old Barbara Jane Mackle was abducted from an Atlanta, Georgia, area motel. A $500,000 ransom demand was subsequently made of her father, Robert Mackle, a Coral Gables, Florida, resident and business official. FBI investigation resulted in the safe return of Miss Mackle, who had been buried in a coffin-like box northeast of Atlanta, Georgia; the recovery of most of the ransom money; and the apprehension of one of the subjects, identified as Gary Steven Krist. An all-out investigation continues to locate Ruth Eisemann-Schier, the other subject in this case. Federal charges were filed in Miami, Florida, against subjects for violation of Extortion Statute, Interstate Transportation in Aid of Racketeering Statute, and the Aiding and Abetting Statute. The subjects were indicted in DeKalb County, Georgia, for kidnaping on January 13, 1969. The Bureau has furnished results of its investigations to local authorities and is cooperating in the state trial which will be held in this matter. Krist was brought before the circuit court in DeKalb County, Georgia, on February 7, 1969, at which time the court appointed two attorneys to represent him. One of the attorneys is James R. Venable, who has been for many years Imperial Wizard for the National Knights of the Ku Klux Klan, Inc. A three-week delay was requested by the attorneys, and the judge set the next appearance for February 28, 1969.
+
+NW 88613 DocId:32199554
+Page 214

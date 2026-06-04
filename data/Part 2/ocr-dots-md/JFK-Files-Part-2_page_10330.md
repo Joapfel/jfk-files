@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_10330.png
+
+Convert to Markdown8 May 1973
+
+MEMORANDUM FOR: Deputy Director for Science & Technology
+SUBJECT : TSD Support to Other Agencies
+
+1. Technical Services Division's charter (CSI 1-8) requires that it provide technical assistance to both CIA operations and other activities as may be directed by the Deputy Director for Operations.
+
+2. Over the years the chief non-CIA recipients of this support have been the Department of Defense, the Federal Bureau of Investigation, Bureau of Narcotics and Dangerous Drugs, Immigration and Naturalization Service, Department of State, United States Postal Service, Secret Service, Agency for International Development, and the White House.
+
+3. While varying widely among the different recipients, these services have included training and materials, and in a few instances participation in the fields of audio and visual surveillance, secret writing and related communications, personal protection, disguise, concealment devices, electronic beaconry, illicit narcotics detection, and counter-sabotage/terrorism.
+
+4. In most instances requirements for this support are received by TSD through higher echelons (Office of the Director or Deputy Director for Operations). Unless the service involved is a trivial or continuing one, the request is referred to the Foreign Intelligence Staff Departmental Coordination Group for coordination and approval at the appropriate Agency levels.
+Approval within TSD by the Chief of Operations or Development and Engineering and the Chief of TSD or his Deputy also is required.
+
+5. The attachment lists the primary services provided to the organizations named in Paragraph two.
+
+E2 IMPDET
+CL BY 059098
+
+SECRET
+
+00215

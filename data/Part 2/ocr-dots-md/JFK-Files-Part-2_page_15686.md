@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_15686.png
+
+Convert to Markdownbecause they know what JAKE was. We
+have to remember Santa Claus, a
+(garbled) revolutionary brother who's
+in jail now. The pigs are trying to
+charge him with the murder of the two
+pigs that were killed in the incident
+with JAKE. We must defend this brother.
+We must (garbled) this brother on our
+minds and on our lips and demand that he
+be set free. Demand that the pigs
+realize that if he did anything it was
+in defense of his self-defense. It was
+in defense of black people, in defense of
+the Black Panther Party and in the
+defense of all human rights. When we
+talk about brothers and sisters in jail,
+I hope you realize that you in jail by
+standing right here on this corner.
+Everybody in fascist (phonetic) Babalon
+is in jail because nobody in fascist
+
+NW 88613 Docld:32199554

@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_16017.png
+
+Convert to MarkdownDEMONSTRATIONS PROTESTING THE TRIALS OF INDIVIDUALS INDICTED FOR THEIR ACTIVITIES DURING THE DEMOCRATIC NATIONAL CONVENTION (DNC) OF 1968 IN CHICAGO, ILLINOIS
+
+CONFIDENTIAL
+
+contacted him. Haas reported that RYM II plans a rally in the plaza area of the Federal Building, Chicago on October 9, 1969, from 12 noon to 3:00 p.m., and expected to assemble a crowd numbering 5,000 persons.
+
+On October 3, 1969, at 12:35 p.m., SAs of the FBI reported the lobby area and outside plaza of the Federal Building, Chicago, appeared calm with normal activity and no demonstration participants observed.
+
+A first source reported that during the noon recess of "The Conspiracy 8" trial on October 3, 1969, Rennard "Rennie" Davis, one of the defendants in the trial, held a press conference in Room 204A of the Federal Building, Chicago. Davis has publicly described himself as one of the early members of SDS, and a project director of the National Mobilization Committee to End the War in Vietnam, currently known as the New Mobilization Committee to End the War in Vietnam (NMC). The NMC has been publicly identified as an organization which specializes in forming and directing coalitions of anti-Vietnam War groups throughout the nation for massive anti-war expressions and was the organization that directed demonstration activities during the 1968 DNC at Chicago as well as the march on the Pentagon October, 1967, Washington, D.C., and the Spring Mobilization of April, 1967, in New York City.
+
+During the news conference Rennie Davis introduced Robert Levin, Assistant Professor, Merrimac College, North Andover, Massachusetts, and one other individual. Both individuals asserted that they had been mistaken for Jerry Rubin, one of the eight principal
+
+CONFIDENTIAL
+
+NW 88613 DocId:32199554 Page 1514

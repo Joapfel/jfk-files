@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_9587.png
+
+Convert to MarkdownSD 157-2815
+
+All individuals referred to herein as leaders of the SAO in the San Diego area are either being actively investigated or have been so investigated in the past to determine whether they should be placed on the ADEX.
+
+For the additional information of the Bureau and Kansas City, which is Office of Origin in the Minutemen investigation, all individuals associated with the Secret Army Organization (SAO) at San Diego are former members of the Minutemen organization or sympathizers or supporters of that organization. Inasmuch as information contained in this report covers the main areas of Minutemen-type activity within the San Diego area and due to the fact that the individuals who have formed the SAO consider the Minutemen organization to effectively be non-existent, this report is being submitted to Kansas City in lieu of the regular report on Minutemen activity at San Diego.
+
+For the information of the Phoenix Division, SD 1155-E reported on 11/9/71 that the SAO had received a written request from one CHARLES MANLEVE, 2938 North Seventeen Drive, Phoenix, Arizona, asking for information regarding the SAO.
+
+In connection with its investigation of the individual named JOHN OWEN BURTON as referred to in Las Vegas letter dated 12/6/71 and Phoenix letter dated 12/17/71, Oklahoma City should note that, in early January, 1972, JERRY LYNN DAVIS, SAO leader at San Diego, indicated to SD 1155-E that there were one or - Informant more individuals in the State of Oklahoma, exact location not known, who DAVIS referred to as contacts of the SAO.
+
+In addition, it is noted that SD 1155-E has advised of other contacts of the SAO or written requests for information about the SAO from areas within the Kansas City, El Paso, Baltimore, Los Angeles, Portland, and Sacramento Divisions.
+
+Part II, C., of this report sets forth information regarding an incident in which a young woman, PAULA ELAINE THARP, was injured by sniper fire while at the residence of a San Diego State College professor named PETER GEORGE BOHMER.
+
+C -
+COVER PAGE
+
+NW 88296 DocId:32989574, Page 496.

@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_16183.png
+
+Convert to MarkdownDate 1/14/70
+
+On January 6, 1970, during a search of the kitchen located in the apartment at 2337 West Monroe, Chicago, Illinois, a copper bullet jacket was located in the southwest corner of the room. The jacket was under a piece of cloth tacked to the door frame and floor.
+
+SA JOHN E. DALMAN
+
+Date dictated 1/12/70
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

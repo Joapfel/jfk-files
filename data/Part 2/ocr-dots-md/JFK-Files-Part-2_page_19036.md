@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_19036.png
+
+Convert to MarkdownSAMUEL ADASON JAFFE
+
+# Jaffe's Employees in Moscow
+
+Jaffe advised that in 1965 prior to his expulsion he had a Soviet cameraman and a translator. The cameraman had left several months before the ABC office was closed, and he was replaced by Yuri Boridorov (phonetic), who stayed until Jaffe's expulsion and actually closed the ABC office. The translator, Aleksandr "Sasha" Nezmanov (phonetic), "was good and would stick his neck out, but he was mixed up with some girl. This was the excuse he gave." "Sasha" told Jaffe he had "gotten himself in trouble with a circus girl and this was about to cause a scene." "Sasha," who broke down and cried when he related the story to Jaffe, said he made the girl pregnant and she had threatened to come down to his office and complain. Jaffe said he asked "Slava" about this, and his only comment was "they weren't very good" employees. Jaffe said the translator's replacement was a "great big goon type who knew nothing," and Jaffe fired him.
+
+Jaffe stated he left Russia about a month after the Scali story broke. He continued: "I had already reported the denial based on what I saw and believed, but ABC didn't use them - radio did but TV didn't." Jaffe stated the Soviets were aware of the ABC radio denial but they asked Jaffe why the denial did not appear on television, stating "the impact was created on TV." According to Jaffe, this is why Henry Shapiro, UPI correspondent, called and complained. Then Reuter's called. Jaffe said he replied: "No, gentlemen, I have knocked the story down." Jaffe again commented that it was only when the Soviets indicated they were aware of his criticism of the story "that I knew I had been bugged. They knew everything I said."
+
+SECRET
+59
+
+NW 88326 DocId:32989704 Page 330

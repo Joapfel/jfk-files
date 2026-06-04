@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_15035.png
+
+Convert to Markdown# BRIEF
+
+LUNCHEON MEETING WITH ATTORNEY GENERAL AND OTHERS
+
+Thursday, February 20, 1969
+
+DocId:32199554
+
+NW 88613 Page 532

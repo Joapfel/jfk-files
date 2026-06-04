@@ -1,0 +1,80 @@
+# JFK-Files-Part-2_page_14454.png
+
+Convert to MarkdownOffice of the Vice Chairman
+
+TO : MR. BOARDMAN
+
+FROM : A. H. BELMONT
+
+SUBJECT: COVERAGE OF MAIL TO THE U.S. S. R.
+
+SECRET
+
+UNITED STATES
+SIDE FOR
+CLASSIFICATION
+ACTION
+
+GOVERNMENT
+
+DATE: January 22, 1958
+
+Tolson
+
+Nichols
+
+Boardman
+
+Belmont
+
+Mason
+
+Mohr
+
+Parsons
+
+Rosen
+
+Tamm
+
+Nease
+
+Winterrowd
+
+Tele. Room
+
+Holloman
+
+Gandy
+
+On January 10, 1958, Harry Stone of MI-5, Liaison Representative with the Bureau, confidentially advised that his service had determined that Soviet illegal agents all over the world, when they want a meet with their principal, are under instructions to send a proper communication to "K. S. Smirnov, Central Post Office, Vladimir, U.S.S.R." Mr. Stone stated that the aforementioned information was being made available to the Bureau and the RCMP only.
+
+On the basis of this information, we immediately instructed the Washington Field and New York Offices to institute confidential inquiries with appropriate Post Office officials to determine the feasibility of covering outgoing correspondence from the U.S. to the U.S.S.R., looking toward picking up a communication dispatched to the aforementioned address.
+
+On January 21, 1958, SAC Powers of the New York Office called advising that his preliminary inquiries at first disclosed that such coverage could possibly be effected at LaGuardia Airfield. Powers stated that he subsequently received a call from the Chief Post Office Inspector who told him that he would not be able to make such arrangements and explained that something had happened in Washington on a similar matter and that Bureau Headquarters should take up the matter with Post Office Headquarters here in Washington. The Post Office Inspector said that it did not involve our agency and because of what was going on in Washington at the present time, he just couldn't do it on his own.
+
+Almost simultaneous with this advice, Mr. James Angleton of CIA approached our Liaison Agent, Sam Papich on a personal basis. He indicated that if it were known within CIA that he was volunteering this information to the Bureau, he would lose his job. Mr. Angleton stated it had come to the attention of CIA, through the Post Office, that we were making inquiries concerning the coverage of mail to the (U.S.S.R), and as a result CIA was expecting to receive an inquiry in Washington from the FBI. Mr. Angleton then admitted that this coverage was one of the biggest and most secret operations being conducted by CIA. He stated the coverage is actually made through the Post Office in New York.
+
+WAB:hmm
+
+(5)
+
+cc: 1 - Boardman
+1 - Belmont
+1 - Branigan
+
+SECURITY CHECK FEB 20 1959
+
+46 OTRC 76
+
+MCT. 22
+
+005-93089-1
+
+FEB 20 1959
+
+1945-06-05
+
+RECD
+
+2240000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000

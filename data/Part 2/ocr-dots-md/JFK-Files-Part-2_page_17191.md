@@ -1,0 +1,8 @@
+# JFK-Files-Part-2_page_17191.png
+
+Convert to MarkdownBLACK PANTHER PARTY (BPP)
+
+On May 26, 1969, Captain Samuels of the Maywood, Illinois, Police Department advised an Agent of the Chicago Office of the FBI that Fred Hampton's mock trial took place on May 24 and 25, 1969, at the Maywood village hall with the permission of the newly elected Maywood Mayor Leonard A. Chabala. Captain Samuels further stated that during the mock trial, the Maywood Police Department was under instructions from Mayor Chabala to stayaway from that trial and not to be observed in the vicinity of the village hall. According to Captain Samuels, Mayor Chabala indicated that he believed that if the participants of the mock trial were left alone there would be no trouble and, Mayor Chabala stated that he was so confident in Fred Hampton and the fact that Fred Hampton and his followers would be orderly, that he (Chabala) would resign if there was any trouble at the trial. Captain Samuels reported that approximately 140 individuals participated in the trial on both the evenings of May.24 and 25, 1969, and that of these groups approximately 70 were Negro, 55 Caucasians and 15 Mexicans. Captain Samuels related that Hampton appeared not only as defendant in the mock trial but acted as his own defense attorney. Captain Samuels further related that local Maywood restaurant operator "Tacos Charlie" Krop and newly elected Maywood village trustee, Reverend Thomas Streitor served on the jury. According to Captain Samuels, at the completion of the two evenings sessions, Fred Hampton was found innocent of the charge of robbery.
+
+NWW 88613 DocId:32199554
+Page 2688

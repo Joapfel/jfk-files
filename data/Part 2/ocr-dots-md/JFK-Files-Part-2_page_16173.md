@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_16173.png
+
+Convert to MarkdownMAC DONELL advised that the above-described
+two slides were of material removed by him from the slung
+shown in Photo #104, which he had introduced into evidence
+before the Federal Grand Jury sitting at Chicago, Illinois.
+
+MAC DONELL exhibited a number of color photographs
+which he stated he had taken in connection with his examination
+of the residence at 337 West Monroe Street, Chicago,
+Illinois, and made the comment that there is something
+"very pertinent" to be concluded from the examination of
+the gun powder marks, which appear on the inside of the
+entrance door to the apartment and further, that he believes
+that he is the only one who has realized the particular significance
+of these powder marks.

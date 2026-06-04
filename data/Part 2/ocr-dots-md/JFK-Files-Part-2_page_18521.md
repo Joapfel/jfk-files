@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_18521.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: STATUS OF RESPONSES TO CONGRESSIONAL COMMITTEE REQUESTS
+
+DATE:7-24-75
+
+The purpose of this memorandum is to set forth in summary form the requests we have received from various Committees in Congress and the status of our replies.
+
+Senate Select Committee On Intelligence Activities (Church's Committee)
+
+Date of Request Nature of Request Status
+
+Letter, 5-14-75 Includes among other things information concerning wire-taps, including their reconstruction of Bureau files, as well as Inspection surveys for ten offices. Responses to most questions prepared, approved, and delivered.
+
+Letter, 6-27-75 Request for information concerning alleged abuses. Department seeking clarification.
+
+Letter, 6-30-75, received by Bureau 7-8-75. Request pertaining to COINTELPRO. Response being prepared.
+
+Letter, 7-3-75 Requests documents pertaining to COINTELPRO be furnished to the Committee in Committee space. Response being prepared.
+
+1 - Mr. Wannall
+(Attn: Mr. Cregar)
+1 - Mrs. Metcalf
+
+1 - Mr. Mintz
+1 - Mr. Hötis
+1 - Mr. Daly
+
+RECD-102
+
+NT GETTY COPY RECORDED
+
+CONTINUED - OVER
+
+PVD;bjc, (7)
+
+84MAR1975
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+NW 88326-DocID:32989627 Page 119

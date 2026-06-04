@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_15781.png
+
+Convert to MarkdownSPRINGFIELD, ILLINOIS
+
+JANUARY 23, 1960
+
+BLACK PANTHER PARTY
+FLORIDA, ILLINOIS
+
+On December 14 1969.
+
+I advised that the Peoria, Illinois branch of the Black Panther Party (BPP) has been holding meetings for the past several months at 415 Konson Street, Peoria, Illinois.
+
+A characterization of the Black Panther Party (BPP) is included in the Appendix of this memorandum.
+
+I advised that as of December 1, 1969, the following were members of the Peoria, Illinois BFP:
+
+Mark Clark, leader
+
+Leon Karps, second in command
+
+Anthony Harris
+
+Edward McChriston
+
+Bonnie (Last Name Unknown)
+
+I advised that several other local Negroes attended several of the meetings but would not consider them to be members of the BFP. I stated that all of the above mentioned Panthers possess weapons, kind or make unknown to him, as he is not familiar with weapons. I advised that he has never seen nor heard them speak of having any stockpile of weapons in the Peoria, Illinois area. I advised that all of the above Panthers were unemployed and evidently obtained money by stealing, or selling newspapers (the Black Panthers). He advised he does not know of any crimes that they might have committed.
+
+I stated that the BFP, Peoria, Illinois, was not very functional and was in need of funds and members. I advised that to the best of his knowledge, the BFP was not receiving any financial support from anyone or any other organization.

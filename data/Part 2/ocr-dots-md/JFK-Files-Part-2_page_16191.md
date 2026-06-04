@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_16191.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Copy to:
+
+1 - AAG JELLIS LEONARD, Chief of Civil Rights Division at Chicago
+
+1 - USA, Chicago (Attention: AUSA ROBERT J. D. BARSTOW)
+
+Report of:
+Date:
+Field Office File #:
+Office:
+Bureau File #: Chicago
+
+Title:
+
+SERGEANT DANIEL N. G. E;
+ET AL -
+SUBJECTS;
+FRED A. HAMPTON (ENCAINED)
+ET AL - VICTIMS
+
+Character:
+
+SUMMARY PUNISHMENT - CIVIL RIGHTS
+
+Synopsis:
+
+Investigation conducted by FBI at BFF apartment,
+2337 West Monroe Street, Chicago; FBI Identification
+Division and FBI lab reports set forth. FCJ
+adjourned 3/12/70 and reconvened 4/7/70.
+
+-P-
+
+DETAILS: AT CHICAGO, ILLINOIS
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency, it and its contacts
+
+N.W.68613°DocID:32199554
+Page 1688

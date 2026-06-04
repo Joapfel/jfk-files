@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_17290.png
+
+Convert to Markdown# I. Introduction
+
+## II. The Grand Jury's Investigation and Findings
+A. Background
+B. Events Preceding Grand Jury Investigation
+C. Modus Operandi of Grand Jury Investigation
+D. Planning the Raid
+E. Preservation of Crime Scene
+F. The Chicago PD Crime Scene Investigation
+G. The Panther Investigation
+H. The Cause of Death
+I. The IID Investigation
+K. The Inquest
+L. Cook County Grand Jury
+M. Other Investigations
+N. FBI Report on Ballistics and other Evidence
+O. Testimony of Officers
+
+## III. Analysis of Applicable Criminal Statutes
+
+## IV. Discussion and Recommendations
+A. Potential Law Violations
+B. Law Enforcement Problems
+1. Concept of SAO Police
+2. Pre-Trial Publicity
+3. Coroner's Office
+4. Chicago PD Crime Lab
+5. Internal Inspections Division
+C. Other Problems
+1. Defense Counsel
+2. News Media
+
+NW 88613 DocId:32199554
+Page 2787

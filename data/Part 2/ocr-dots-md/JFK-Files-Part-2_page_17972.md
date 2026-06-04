@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_17972.png
+
+Convert to MarkdownTOP SECRET
+
+Memorandum to Mr. J. B. Adams
+
+RE: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES; RODERICK HILL'S ASSOCIATE COUNSEL TO THE PRESIDENT
+
+furnishing reports and letterhead memoranda which had been prepared for dissemination would satisfy the Committee's needs. He was advised by both you and Mr. Mintz that it was our feeling that we should not furnish the raw material but summaries could be prepared for the Committee's purposes and if necessary, Bureau officials could be placed under oath and attest to the correctness of the summaries. Wilderotter said that this was a matter which he would afford further consideration.
+
+As during the conference with Buchen and Hills, it was obvious as the result of our meeting with Wilderotter that The White House was most anxious that it not be caught by surprise by revelations of activities which in any way might be considered questionable. The White House is making every effort possible to become cognizant of any such situation prior to the Committee hearings.
+
+Classified "Top Secret" to protect highly sensitive investigative techniques and matters relating to foreign relations.
+
+ACTION:
+
+For information. Further contacts with Wilderotter or other White House Staff Members will be duly reported.
+
+TOP SECRET
+
+- 2 -

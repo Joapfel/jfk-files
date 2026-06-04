@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_9663.png
+
+Convert to MarkdownNK 157-2011
+
+ROY FRANKHOUSER
+133 South Fourth Street
+Reading, Pa.
+215-678-7167
+
+DENNIS
+215-RE 9-5765
+
+ALBERT P. BAILEY
+1100 Cobbs Street
+Dexel Hill (Delaware County), Pa.
+
+GENE CONNALLY
+215-926-5999
+
+BEILERMAN (swastica)
+215-RE 9-5624
+
+FRED HERMET
+215-757-4801
+
+GEORGE K
+215-739-3618
+
+RED
+215-355-5696
+
+ROY
+215-355-1509
+
+DEBBIE
+215-547-0746
+392-5900
+
+Parking Ticket:
+
+Bureau of Police, Reading, Pa. #18025
+Dated June 6, 1974, 1:41 p.m.,
+green Ford, 282302374 Alabama
+Reverse Side: 373-9515
+Fourth Street
+678-9587
+LUND
+
+Puerto Rico:
+
+Checking Account:
+FRANK A. DRAGER, JR.
+The Chase Manhattan Bank, National Association,
+Charlotte Amalie Branch, St. Thomas, Virgin Islands
+#02160602720-1-032286

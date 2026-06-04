@@ -1,0 +1,59 @@
+# JFK-Files-Part-2_page_9928.png
+
+Convert to MarkdownThe Attorney General
+
+Director, FBI
+
+U. S. SENATE SELECT COMMITTEE
+ON INTELLIGENCE ACTIVITIES (SSC)
+
+Reference is made to the request of the SSC dated February 19, 1976, for access to FBI materials.
+
+Attached is a memorandum which is a partial response to referenced request. Enclosed for your records is a copy of the memorandum prepared for the Committee.
+
+Enclosures (2)
+
+62-116395
+
+1 - The Deputy Attorney General
+
+Attention: Mr. Michael E. Shaheen, Jr.
+Special Counsel for
+JWJ:emg intelligence Coordination
+(10) emg
+
+TO BE HAND-DELIVERED BY THE OFFICE OF CONGRESSIONAL AFFAIRS.
+
+REC-104
+
+3 ENCLOSURE
+
+MAR 10 1976
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Legal Coun.
+Plan. & Eval.
+Spec. Inv.
+Training
+Telephone Rm.
+Director Sec's
+
+MAIL ROOM [ ] TELETYPE UNIT [ ]
+
+8.4 MAR 1 1 1976
+
+NW 88326 DocId:32989603 Page 193
+
+GPO : 1975.O - 594-120

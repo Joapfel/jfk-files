@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_18858.png
+
+Convert to MarkdownJuly 16, 1954
+
+A. H. Belmont
+
+INTERNAL SECURITY - R
+
+In Mr. Nichols' memo to Mr. Tolson dated July 13, 1954, it is reported that James R. Shepley of "Time" and "Life" magazines in Washington, called on July 10, 1954, stating that he believed the FBI had a surveillance on Sam Jaffe, a writer for "Time" and "Life," who has the assignment of writing a story on contemporary religions. Shepley stated that Jaffe plans to visit Red China to study Buddhism.
+
+Jaffe and his wife on July 9, 1954, had dinner with Konstantin Fedoseev of the Soviet Embassy and the latter's wife. Shepley stated the purpose of this meeting was to get Fedoseev's cooperation in travel clearance. The Director commented, "I want facts re this situation."
+
+FTO has submitted a memorandum of explanation from the Agents engaged in the surveillance referred to above. This memo states that at 8:37 p.m. on the night of July 9, 1954, surveilling agents observed Fedoseevs, accompanied by an unidentified couple leave the Fedoseev's residence and walk to a nearby restaurant. During this period the four persons under surveillance did not appear to be surveillance conscious. Agents did not enter the restaurant as they thought this would be indiscreet. The Fedoseevs and the unidentified couple left the restaurant at 11:18 p.m. and were immediately observed to scrutinize passing traffic and other pedestrians in the area. In view thereof, the surveillance was maintained from a discreet distance. After walking in a roundabout way to the residence of the Fedoseevs at 10th and R Sts., N.Y., the unidentified couple took a taxi. The taxi followed a circuitous route to the Mayflower Hotel, during which time the unidentified couple constantly peered through the rear and side windows at passing automobiles and pedestrians. After leaving the taxi at the Mayflower Hotel at 12:26 a.m., the unidentified couple subsequently identified as Sam Jaffe and his wife, of "Time" and "Life" magazines, engaged in a series of maneuvers designed to determine if they were under surveillance. This included several entrance
+
+Tolson and erits into the Mayflower Hotel and excursions to side streets in Boardman—vicinity during which period they appeared to be looking for surveillance by hidin; in store fronts and doorways and unexplainably reversing direction of their travel. Six different agents participated
+
+Mohr
+Parsons
+Rosen
+Tamm
+Sizoo
+Winterrowd
+Tele. Room
+Holloman
+Gandy
+
+105-20151
+cc -105-15373
+10,-50:2
+Attachment
+C.P.:fjm
+
+GT RECORDED
+
+AUG 5 1954
+
+NWW 88326 DocId:32989704 Page 152

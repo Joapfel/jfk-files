@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_10261.png
+
+Convert to Markdowntenure, there were microphones in his regular office, his inner office, his dining room, his office in East Building, and his study at his residence on White Haven Street. I do not know who would be willing to raise such an issue, but knowledge of such operations tends to spread, and certainly the Agency is vulnerable on this score.
+
+11. Also under the heading of old business, I well remember the hue and cry raised, especially by Carl Kaysen in the White House, when the Agency injected a contaminating agent in Cuban sugar bound for the Soviet Union. Shortly after the Cuban missile crisis, there was a disposition in Washington to reexamine the Bay of Pigs, and the fact that several Alabama National Air Guard officers lost their lives in the Bay of Pigs was surfaced with surprisingly little excitement at the time.
+
+12. During my stint on the 7th floor there was a special arrangement with the Office of Communications whereby the Director's office gained access to non-CIA traffic. This surfaced briefly at one point shortly after Admiral Rayborn became DCI. He had visited the Signal Center and removed a copy of a telegram from the Embassy in the Dominican Republic for Under Secretary George Ball, Eyes Only. He returned to his office and proceeded to discuss this telegram with George Ball who was naturally quite curious as to how Rayborn knew about it, and also as to how Rayborn had it in his possession before Ball did. Ben Read in the Secretary of State's office and I spent several weeks putting this one to rest.
+
+13. Finally, DCI McCone, as you and I well know, operated on a very lofty plane, and I think certain of his activities could be misunderstood: One example was his decision in July of 1964 to have Aristotle Onassis and Maria Callas flown from Rome to Athens on Air Force KC 135. Their arrival in Athens in this airplane attracted the attention of the local press and in due course Mr. John
+
+00462

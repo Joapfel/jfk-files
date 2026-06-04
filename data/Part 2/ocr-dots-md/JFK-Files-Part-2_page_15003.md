@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_15003.png
+
+Convert to MarkdownSHORTAGES OF U. S. DISTRICT JUDGES
+
+AND
+
+SHORTAGES IN THE U. S. ATTORNEYS' OFFICES
+
+We have, on a number of occasions, instructed the field to advise us of any shortage of U. S. Attorneys or Federal Judges, which is affecting our prosecutions.
+
+In this connection, since September 1, 1966, we have written to the Department, pointing out a shortage of a Federal Judge or a U. S. Attorney in the Southern District of Ohio, the Middle District of Florida, the Eastern and Southern Districts of Illinois, the Eastern District of Louisiana, the District of Puerto Rico, the District of New Jersey, the Eastern District and Western District of Wisconsin, the Middle District of Tennessee, the Eastern and Southern Districts of New York, the Eastern District of Michigan, and the Northern and Eastern Districts of Texas.

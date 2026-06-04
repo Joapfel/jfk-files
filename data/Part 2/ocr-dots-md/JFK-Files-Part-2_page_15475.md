@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_15475.png
+
+Convert to Markdown# Iraq
+
+Embassy, Washington, D. C. WF 1446-S* 2,329
+
+# Israel
+
+Embassy, Washington, D. C. WF 568-S*
+Consulate, NYC NY 1137-S* 2,082
+1,200
+
+# Mexico
+
+Chancery, Washington, D. C. WF 1409-S* 605
+
+# Nicaragua
+
+Chancery, Washington, D. C. WF 970-S* 1,202
+
+# Panama
+
+Chancery, Washington, D. C. WF 1456-S* 666
+
+# Yugoslavia
+
+Yugoslav Mission to UN, NYC NY 525-S* 1,573
+Yugoslav Consulate, NYC NY 628-S*
+Yugoslav Consulate, Pittsburgh PG 177-S* 2,157
+416
+
+Yugoslav Consulate, Chicago CG 6427-S* 292
+Yugoslav Consulate, San Francisco SF 1808-S* 380
+Yugoslav Embassy, Washington, D. C. WF 1318-S* 2,659
+
+# Venezuela
+
+Chancery, Washington, D. C. WF 1442-S* 1,102
+
+TOTAL ESTIMATED MONTHLY COST ~~$33,557~~
+$26,080

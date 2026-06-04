@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_17535.png
+
+Convert to MarkdownALK has allegedly produced a movie called American Revolution II, which is a film about the Democratic Convention in Chicago, August, 1968, as well as about BPP activities.
+
+7/25/69 DAN STERN
+
+On 7/22/69, the BPP received another $250 check from STERN's alleged group.
+
+Health Clinics, Dr. ERIC KAST (phonetic), Lawndale Association For Social Health (LASH), ACE COLLINS, Medical Committee on Human Rights
+
+7/25/69
+COLLINS is working with several doctors, including KAST (phonetic), in attempting to set up the BPP Health Clinic. It seems that LASH will actually form this first, but the BPP will then take it over. This is due to the fact that donations to the BPP are not tax deductible but are when given to LASH. First Health Clinic planned for 3850-52 W. 16th St. The Medical Committee on Human Rights is also playing an unknown part in this project.
+
+WANDA ROSS, BARBARA SANKEY, Breakfast For Children Program
+
+7/29/69
+ROSS and SANKEY are the major persons to see concerning this program.
+
+Chicago Chapter, FRED HAMPTON, HOWARD ALK
+
+7/30/69
+The BPP lawyers have allegedly received a $2,500 advance check from the Bluething Recording Company in California. This is half of a $5,000 promised advance payment for records to be produced by this company of HAMPTON's speech. Another $2,500 is allegedly to be received upon the return of the contract to the company. This deal was allegedly arranged through ALK.

@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_11787.png
+
+Convert to Markdown<table>
+  <thead>
+    <tr>
+      <th></th>
+      <th>Page</th>
+    </tr>
+  </thead>
+  <tbody>
+    <tr><td>K. Informant Files..................................................</td><td>13</td></tr>
+    <tr><td>&nbsp;&nbsp;1. Opening............................................................</td><td>13</td></tr>
+    <tr><td>&nbsp;&nbsp;2. Monthly administrative report...................................</td><td>13</td></tr>
+    <tr><td>&nbsp;&nbsp;3. Assignment and tickler cards...................................</td><td>13</td></tr>
+    <tr><td>&nbsp;&nbsp;4. Subfiles.............................................................</td><td>13</td></tr>
+    <tr><td>&nbsp;&nbsp;5. Channelization......................................................</td><td>13</td></tr>
+    <tr><td>&nbsp;&nbsp;6. Channelizing memoranda - destruction of....................</td><td>13</td></tr>
+    <tr><td>&nbsp;&nbsp;7. Correspondence......................................................</td><td>13</td></tr>
+    <tr><td>&nbsp;&nbsp;8. Maintenance of files............................................</td><td>13</td></tr>
+    <tr><td>&nbsp;&nbsp;9. Use of informant by Department - filing correspondence re....</td><td>14</td></tr>
+    <tr><td>&nbsp;&nbsp;10. Form FD-238.........................................................</td><td>14</td></tr>
+    <tr><td>&nbsp;&nbsp;11. Bulky material submitted by informant..........................</td><td>14</td></tr>
+    <tr><td>L. Payments to Informants..........................................</td><td>14</td></tr>
+    <tr><td>&nbsp;&nbsp;1. No gifts to informants............................................</td><td>14</td></tr>
+    <tr><td>&nbsp;&nbsp;2. SAC authority.....................................................</td><td>14</td></tr>
+    <tr><td>&nbsp;&nbsp;3. Payments on a regular basis - Bureau authority...............</td><td>14</td></tr>
+    <tr><td>&nbsp;&nbsp;4. Six-month evaluation of informants not paid on Bureau<br/>&nbsp;&nbsp;&nbsp;&nbsp;authority....................................................................</td><td>15</td></tr>
+    <tr><td>&nbsp;&nbsp;5. Receipts.................................................................</td><td>15</td></tr>
+    <tr><td>&nbsp;&nbsp;6. Income tax returns...................................................</td><td>16</td></tr>
+    <tr><td>&nbsp;&nbsp;7. Stipulation re payments made to witnesses....................</td><td>16</td></tr>
+    <tr><td>&nbsp;&nbsp;8. Receipt of unemployment compensation.............................</td><td>17</td></tr>
+    <tr><td>M. Monthly and Quarterly Letters....................................</td><td>17</td></tr>
+    <tr><td>N. Signing of Loyalty Oaths, Affidavits, and Statements...........</td><td>18</td></tr>
+    <tr><td>O. Discontinued Informants...........................................</td><td>19</td></tr>
+    <tr><td>P. Furnishing Informants to Immigration and Naturalization<br/>Service (INS)..............................................................</td><td>20</td></tr>
+    <tr><td>Q. Corrective Action on False Information.............................</td><td>21</td></tr>
+    <tr><td>R. Confidential Sources..................................................</td><td>21</td></tr>
+    <tr><td>&nbsp;&nbsp;1. Definition............................................................</td><td>21</td></tr>
+    <tr><td>&nbsp;&nbsp;2. Assignment of symbols...............................................</td><td>21</td></tr>
+    <tr><td>&nbsp;&nbsp;3. Index.................................................................</td><td>22</td></tr>
+    <tr><td>&nbsp;&nbsp;4. Files.................................................................</td><td>22</td></tr>
+    <tr><td>&nbsp;&nbsp;5. Utilization............................................................</td><td>22</td></tr>
+    <tr><td>&nbsp;&nbsp;6. Security confidential sources - certification of stability<br

@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_18419.png
+
+Convert to MarkdownInterview of Donald E. Moore by
+Mr. Loch Johnson, Senate Select Committee
+
+July 28, 1975
+
+Mr. Johnson stated at the outset that this was an informal interview and he did not place me under oath. He asked about my background which was provided him and included the fact that I served in the FBI from March 10, 1941, until my retirement at the end of June 1973.
+
+The interview concerned the so-called Huston Committee and he asked if I knew Tom Charles Huston before the Committee was established. I said I recalled meeting Huston once, in Bill Sullivan's office, but I didn't recall when this was, but it was before the Committee was formed. In response to questions, Mr. Johnson was informed as follows:
+
+I was aware of the meeting at the White House attended by Director Hoover, Mr. Helms, Admiral Gayler and Gen. Bennett. I was probably aware the meeting was to take place before the meeting date but I can't recall this. (He said the meeting was held June 5, 1970.) I was not at a meeting held in Mr. Hoover's office June 8 but I recall hearing about the meeting, probably from Bill Sullivan. I don't recall a meeting held in the Domestic Intelligence Division after this at which Sullivan, Bill Cregar, George Moore, Fred Cassidy and I were present. I did attend the initial meeting of the Working Group headed by Sullivan and was present because Sullivan asked me to be there. I remember Sullivan and Cregar were at the meeting and I thought one or more other FBI representatives were present. He mentioned George Moore and Fred Cassidy were at the meeting.
+
+I recall Mr. Helms and Mr. Angleton from CIA were present but did not recall the names of others including the representatives from NSA, DIA and the military services. I recall Sullivan chaired the meeting and that Huston sat at the opposite end of the table. Either Helms or Sullivan announced that Helms probably couldn't stay for the entire meeting but I don't recall Helms leaving, although he did not sit directly at the conference table.
+
+ENCLOSURE,
+
+62-116395-543
+
+NW 88326 DocId:32989627 Page 17

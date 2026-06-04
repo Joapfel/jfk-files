@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_14522.png
+
+Convert to MarkdownSECRET
+
+cc - Boardman
+- Belmont
+- Branigan
+- Liaison
+- Sanders
+
+October 14, 1955
+
+VIA LIAISON
+
+Honorable Robert Murphy
+Deputy Under Secretary of State
+for Political Affairs
+Department of State
+Washington 25, D. C.
+
+Dear Mr. Murphy:
+
+Reference is made to your letter of October 10, 1955, which notes that it is important for the Department of State to keep track of the movements and contacts of selected Latin Americans while in this country when there are reasons to believe that subversive activities directed at the other governments of this hemisphere are being planned and coordinated in this country. Your letter also notes that this Bureau has shown an understandable reluctance to conduct direct surveillance of such Latin Americans where there is no evidence of nor reason to suspect subversive activities directed against the United States or violation of United States laws. You requested an opinion as to how surveillances of selected Latin American visitors to this country might be arranged on an individual case basis.
+
+When there is creditable information available indicating that subversive activities directed at other governments of this hemisphere are being planned and coordinated in the United States, the FBI takes prompt investigative action in view of the probability of violations of the registration or neutrality provisions of United States laws. In conducting these investigations all logical investigative techniques are used, including physical surveillances where circumstances would warrant. Full-time physical surveillances require a tremendous expenditure of manpower, however, and are practicable only in connection with some phases of highly important cases in the security or criminal fields. In the greater majority of cases more actual information can be obtained through such
+
+Tolson — investigative techniques as spot-type surveillance, the use of
+Boardman available sources of information and informants, the development of
+Nichols special sources in a particular case and the use of other highly
+Belmont confidential investigative techniques where appropriate. There is no
+Harbo
+Mohr however, no reluctance on the part of the FBI to conduct physical
+Parsons
+Roseen — Surveillances where the circumstances warrant such action.
+Tamm
+Suzoo Enclosure to memo Belmont to Boardman, 10/13/55, ESS:mgh:ane,
+Winter
+Tele. 10779m
+Hollon
+Gandy /"STATE DEPARTMENT REQUESTS FOR SURVEILLANCES OF LATIN AMERICAN VISITORS TO THE UNITED STATES."
+
+SECRET
+
+(7)
+
+NW 88613
+DocId:32199554 Page 19

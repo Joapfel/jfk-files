@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_18957.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+Jaffe continued: "Petrovskiy was concerned because 'The Washington Post' is on a deliberate kick to defame him." Jaffe indicated Petrovskiy has been accused of being responsible for the Soviet Union using the United Nations (UN) for its own advantage. Jaffe stated: "He (Petrovskiy) admits he made a mistake. He thought because it was made public and was given to a group, he was able to publish it, and this has caused embarrassment for the UN." Petrovskiy told Jaffe that "Robert Esterbrook has had two articles sort of attacking me. I admit I made a mistake. I was wrong. I told the Secretary General (of the UN) this. I didn't know you had a group through which this should be cleared." Why should this man continue to attack me? Two articles in 'The Washington Post' and one in the 'Los Angeles Times,'" Jaffe said Petrovskiy indicated the Secretary General of the UN was upset over the incident and Petrovskiy wonders if he should try to "pull the book back" (from publication), if it is still possible to do so.
+
+Jaffe advised that the next day he visited the UN and talked to Petrovskiy and (FNU)'Loginov,' who is (Soviet) Press Officer here (Washington,D.C.) and used to be Press Officer in Moscow. We had a conversation. He said he would be in Washington this week and would look me up. Loginov started to discuss the Chinese. I said I would like to go there. He said he had been in China and speaks Mandarin. He said he was very skeptical about one point in (United States President) Nixon's press conference, why he brought up Czechoslovakia in the press conference. 'Do you (Jaffe) think it was a slam at us (Soviets)?' He seemed to read a lot of stuff into it."
+
+(Vadim Petrovich Loginov was in the United States October 27,1959-November 25,1959 as a group leader and member of a Soviet delegation of students. He was again in the United States September 4,1967-November 29,1967 as a temporary trainee at the Soviet Embassy. He returned to the United States February 12,1968 as First Secretary, Political Division, Soviet Embassy, Washington, D.C.)
+
+SECRET
+
+NW 88326 DocId:32989704 Page 251

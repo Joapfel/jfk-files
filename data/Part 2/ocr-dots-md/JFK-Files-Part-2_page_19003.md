@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_19003.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+Association with KGB Contact "Slava"
+(Vyacheslav Aleksandrovich Kuskov, aka
+Vyacheslav Aleksandrovich/Mislyuk,
+Vyacheslav/Kiselov, Vyacheslav/Kislov)
+
+Jaffe was requested to recount the circumstances under which he met "Slava." He stated he met "Slava" through Yuri Fedorov, an employee of Novosti Press Agency (APN). Initially Jaffe was led to believe "Slava" also was connected with APN, but later he learned "Slava" was connected with KGB.
+
+Jaffe continued: "What specifically he ('Slava') did, I don't know, but he was contacting foreigners. He was interested in what went on at American Embassy briefings. I would string him along. I would meet him usually at a restaurant. He was a real hawk, a real Stalinist - Khrushchev was wrong, China was right - real old-guard Stalinist. Whenever there was anything of any importance regarding Soviet-American relations he would ask, 'what did they say at the briefings?'"
+
+Jaffe indicated he told "Slava" he did not learn anything important at the briefings. Jaffe continued: "This was basically the relationship. The only thing he asked me for was 'What is the thinking at the Embassy? What did the Ambassador have to say at the briefing?' I got the impression he had other sources because he would say, 'This isn't what I understand.'"
+
+In answer to a specific question, Jaffe said he would see "Slava" on the average of once every two or two and one half weeks. He continued: "I have met his wife. She was formerly KGB." Jaffe indicated he learned from "Slava" that his wife had been with KGB and was retired.
+
+Jaffe indicated he subsequently met "Slava's" boss following an automobile accident in which he hit a pedestrian in Moscow. He had had a couple of drinks, and was driving an employee to the airport when a Russian male suddenly appeared "weaving in front of my car. I hit the guy. I thought he was dead. I got out of the car. He was unconscious." Jaffe indicated the police appeared as did a "Mobile Lab" and a crowd of people. Jaffe gave a statement and was told everything was all right; however, it was necessary for him to go to the
+
+SECRET
+
+26
+
+NW 88326 DocId:32989704 Page 297

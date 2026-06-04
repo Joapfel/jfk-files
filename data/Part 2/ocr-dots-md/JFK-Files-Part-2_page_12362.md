@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_12362.png
+
+Convert to MarkdownH. SYMBOLS
+
+1. Assigning numbers
+
+a. All informants should be designated by permanent symbol number of which Bureau must be advised. Once number assigned, it must not be subsequently reassigned to any other informant or source.
+
+b. Potential security informants and confidential sources whose identity must be protected may be assigned permanent symbol numbers if they are producing sufficient information to warrant use of such designations.
+
+c. Individuals to whom permanent symbols assigned are not to be advised of such symbols.
+
+d. Cover name should be used by informant in signing his statements and in communications between informant and field office. Advise Bureau of cover name.
+
+e. Prefix of symbol number consists of appropriate field office teletype abbreviation. Suffix of symbol number will consist of letter "S" for security informant; letters "PSI" for potential security informant; letters "CS" for confidential source.
+
+f. Although source may subsequently furnish information requiring change in designation (e.g., from security to criminal or to racial, etc.), number previously assigned will remain same; however, suffix is to be changed to appropriate letter or letters indicating this change (NY OOO-S to NY OOO-C or to NY OOO-R).
+
+2. Communications - use of symbols
+
+a. After Bureau is advised of permanent symbol, in subsequent communications true name of informant should not be set forth; use symbol number.
+
+b. In all communications after initial letter, Bureau and field office file numbers for informant must be set forth.
+
+c. In communications between offices, follow same procedure.
+
+d. Informants and sources entering another division
+
+(1) Active informants and sources entering another division on temporary basis should be referred to in initial letter to interested office by true name and symbol number if necessary for other division to know identity. Office receiving such letter should make appropriate index cards for "Informants and Sources in Other Divisions" index. Subsequent letters between interested offices may then identify individual by symbol number only.
+
+(2) Individuals who leave division where they have been furnishing information and do not plan to return should be immediately discontinued, their symbol number, if any, should be cancelled, and their true name used in all administrative correspondence.
+
+(3) If informant is transferred to another office and remains active, his identity must still be protected.
+
+e. In communications concerning potential security informant when a symbol number is not assigned, name of potential security informant and abbreviation "PSI" shall be used; e.g., "John Doe, PSI."
+
+f. In espionage and foreign nationality matters, caption of communication should also show character and country designation (i.e., IS - R for Russia or IS - PO for Poland, etc.). This facilitates routing at Bureau.
+
+I. INDEXING
+
+True names and aliases of all informants, as well as cover name assigned, shall be indexed in general office indices as any other name. Index cards should show file number of informant, but such terms as "Informant" or "Potential Security Informant" shall not appear.
+
+J. INDICES
+
+1. Alphabetical name index and symbol number index
+
+Are to be kept by SAC, ASAC, or security supervisor consistent with maximum security and best administrative practice
+
+a. Alphabetical name index
+
+In all offices maintain card index showing true identities of all security informants, potential security informants, and security confidential sources. This is to be known as alphabetical name index. File cards in alphabetical order.

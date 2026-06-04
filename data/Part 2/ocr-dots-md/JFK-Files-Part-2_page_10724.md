@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_10724.png
+
+Convert to MarkdownPH 52-7165 Sub S
+
+FATHER MICHAEL JOSEPH DOYLE
+
+As previously noted, DOYLE was apprehended by Special Agents of the FBI on August 22, 1971, inside the Post Office Building, 401 Market Street, Camden, N. J. On the same date he was afforded a hearing before U. S. Magistrate CHARLES L. RUDD, Camden, N. J., and was remanded to the custody of the U. S. Marshal in lieu of $10,000 good bail. He was released on September 1, 1971, on his own recognizance bond of $10,000.
+
+A search of the fingerprints of Father MICHAEL JOSEPH DOYLE has failed to disclose prior arrest data in the files of the Identification Division, FBI, Washington, D. C.

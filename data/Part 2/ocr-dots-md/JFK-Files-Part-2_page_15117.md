@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_15117.png
+
+Convert to MarkdownFBI LABORATORY EXAMINATIONS MADE FOR NON-FEDERAL LAW ENFORCEMENT AGENCIES
+
+EXHIBIT NO. 25
+
+# FISCAL YEAR 1969
+
+TOTAL 93,786
+
+<table><tr><td>FOREIGN</td></tr><tr><td>BAHAMAS</td><td>4</td></tr><tr><td>CANADA</td><td>118</td></tr><tr><td>ICELAND</td><td>7</td></tr><tr><td>PANAMA</td><td>2</td></tr></table>
+
+ATFBI
+CEREBRITIS SECTION
+
+VIRGIN ISLANDS, U.S.A. 359
+
+NW 88613 DocId:32199554 Page 614

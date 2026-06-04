@@ -1,0 +1,79 @@
+# JFK-Files-Part-2_page_12924.png
+
+Convert to MarkdownSECRET
+
+62-116305
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+EXCEPT WHERE SHOWN
+OTHERWISE
+
+2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+1 - Mr. W. R. Wannall
+1 - Mr. V. V. Kolombatovic
+1 - Mr. W. O. Cregar
+1 - Mr. R. L. Moore
+
+November 11, 1975
+
+U. S. SENATE SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+RE: VISITS OF SSC STAFF
+MEMBERS TO FBI
+LEGAL ATTACHES
+
+CLASSIFIED BY [HANDWRITTEN] TO [HANDWRITTEN]
+DECLASSIFY ON: 25X [HANDWRITTEN]
+
+On September 10, 1975, Mr. David Aaron, an investigator for SSC was briefed at FBI Headquarters (FBIHQ) in preparation for his planned visit to Brasilia, Brazil, on September 22, 1975, and Buenos Aires, Argentina, on September 25, 1975, in connection with the Committee's inquiry into U. S. intelligence activities. Mr. Aaron was briefed on the overall role and mission of the FBI's Legal Attaches (Legats), and specifically on the activities and functions of the Legats at Brasilia and Buenos Aires. He was advised that Legat, Brasilia, utilized two confidential sources in order to facilitate the prompt coverage of leads in Brazil. He was also told that Legat, Mexico City, and Legat, Brasilia, were the only Legat offices that utilized paid confidential sources. (S)
+
+Legat, Buenos Aires, informed FBIHQ that the U. S. Embassy at Buenos Aires received instructions, classified "Secret," from the U. S. Department of State with regard to the visit of David Aaron, a former U. S. Department of State Foreign Service Officer, and William Truchart, a former U. S. Ambassador, to the U. S. Embassies at Brasilia, Buenos Aires, and Montevideo and the U. S. Consul General in Rio de Janeiro. The
+
+Assoc. Dir.
+Dep. AD Adm. —
+Dep. AD Inv. —
+Asst. Dir:
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+Director Sec'y ____
+
+RLM: emj
+(9)
+
+ORIGINAL AND ONE COPY TO ATTORNEY GENERAL
+SEE NOTE, PAGE FOUR
+
+SECRET
+
+Classified by G2B3 WocB
+Exempt from CWS, Categories 2 and 3
+Date of Declassification Indefinite
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+ANALYTICS:
+
+GPO : 1975 O - 569-920
+
+NW 88296 DocId:32989550 Page 65
+
+62-116305 - 1159
+
+JBA PVR
+
+62 116315

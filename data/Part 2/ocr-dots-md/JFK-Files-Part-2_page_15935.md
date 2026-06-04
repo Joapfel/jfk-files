@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_15935.png
+
+Convert to MarkdownBLACK PANTHER PARTY (BPP)
+
+Willie Aikens, current associate;
+
+Willie Calvin, member, not known if still active;
+
+William O'Neal, Chief of Security;
+
+Joseph Kolheim, member, activity not known;
+
+Ted Boston, Field Secretary () formerly on
+the Security Staff;
+
+Billy Dunn, also known as "Bones", member of the
+Security Staff;
+
+Diane Dunn, alleged wife of Billy Dunn, member of
+the Security Staff;
+
+Robert Campbell, believed member of the Security
+Staff;
+
+Sandra Rich, member, believed from California,
+believed on the Security Staff.
+
+James Steward, formerly on the Security Staff,
+resides in Maywood, Illinois, area.
+
+The source also advised that the Panthers and
+the Blackstone Rangers, a local Chicago south side Negro
+youth gang, have met on occasion for the purpose of forming
+a coalition, however, the results to date have been negative.
+The source stated that one such meeting resulted in the
+arrest of several BPP members as well as Rangers during
+December, 1968.
+
+Copies of this memorandum are being furnished the
+following agencies:

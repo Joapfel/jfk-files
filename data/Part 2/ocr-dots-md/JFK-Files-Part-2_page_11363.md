@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_11363.png
+
+Convert to MarkdownWhen the subject of such an investigation is presently in the security index, a letter must be directed to the Bureau at the time the report is submitted advising that the subject is in the security index.
+
+Information of interest to FBI and/or AEC obtained subsequent to completion of Atomic Energy Act - applicant investigations concerning AEC employees or persons having access to restricted data should be handled according to instructions in section 20, volume II, of this manual.
+
+f. [Submission of and general rules concerning security reports]
+
+(1) General
+
+[Submission of summary reports should not be delayed for the purpose of conducting current investigation in previously closed cases, but appropriate leads should be set out.]

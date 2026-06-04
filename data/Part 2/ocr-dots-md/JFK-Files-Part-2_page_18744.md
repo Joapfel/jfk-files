@@ -1,0 +1,64 @@
+# JFK-Files-Part-2_page_18744.png
+
+Convert to MarkdownOffice Men. um • UNITED : OVERNMENT
+
+TO : MR. A. H. BELMONT
+
+FROM : MR. W. A. BRANTIGAN
+
+SUBJECT: SAMUEL ADASON JAFFE, aka.
+
+DATE: January 27, 1959
+
+1 - Mr. Nease
+1 - Mr. Belmont
+1 - Mr. Branigan
+1 - Mr. Hanning
+1 - Mr. Linton
+
+Tolson ____
+Belmont ____
+Mohr ____
+Nease ____
+Persons ____
+Rosen ____
+Tamm ____
+Trotter ____
+W.C. Sullivan -
+Tele. Room: ____
+Hollomon ____
+Gandy ____
+
+CONFIDENTIAL
+DeLoach McGuire W.C. Sullivan
+
+Subject is Columbia Broadcasting System (CBS) news reporter. He has had extensive contact with Soviets in official capacity since 1951. He traveled in Asia, including Red China, interviewed Red China's Premier Chou-En-lai in 1955. He wrote five articles in "The Nation" from 1951-55. He was interviewed by Bureau Agents 1-3-56 at his request. He participated in making a film for CBS in the New York Office in 1957. He was cooperative. He was interviewed 9-12-58 after Bureau approval to determine his attitude toward cooperation with Bureau concerning his knowledge and contact of Soviets in New York. He has been contacted and furnished significant information on seven occasions since that time. (C)
+
+In response to Bullets 11-21-58 and 12-2-58 authorizing continued contact with Jaffe to further his development and alerting New York to possibility of obtaining information from Jaffe concerning "The Nation," New York, by letter 1-15-59, has indicated that they believe that in view of subject's cooperation and reaction to our contact with him, they can discreetly and tactfully bring up the subject of "The Nation" in the course of a conversation with Jaffe.
+
+Subject is acquainted with four known Soviet-satellite intelligence agents. He has furnished information concerning an additional two Soviet officials. He is still interested in traveling to Red China. and in his contacts with the New York Office, he has indicated that he will keep confidential his relationship with the Bureau and does not expect favors as a result of cooperation furnished. His uncle was formerly on the Security Index of the New York Office but was cooperative when interviewed by Bureau Agents.
+
+The New York Office requests Bureau permission to develop subject as a potential security informant and stated they will make no mention of "The Nation" without Bureau authority.
+
+RECOMMENDATION:
+
+If you approve, there is attached a letter to New York authorizing development of subject as a potential security informan t and
+
+Enclosure
+
+105-28333
+1 - Bufile (94-4925)
+1 - Bufile (61-901)
+1 - Bufile (100-376393)
+LML:hrt
+(8)
+
+REC-13
+
+JAN. 30 1959
+
+UNRECORDED
+
+NW88326 DocID:32/000004 Page 38 4 JAN 1959 09:56:05 AM
+
+5-01

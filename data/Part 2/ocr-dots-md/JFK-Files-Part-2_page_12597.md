@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_12597.png
+
+Convert to MarkdownF. ADMINISTRATIVE INDEX
+
+1. Purpose and general policy
+
+a. To have a readily available and up-to-date listing of individuals who are deemed dangerous to the internal security, especially in the event of a national emergency.
+
+b. The Administrative Index (referred to as ADEX) includes the names and identifying data concerning individuals who fall within four categories of dangerousness described below.
+
+c. Under no circumstances should individuals be included in ADEX, or otherwise be the subject of investigative attention, merely because of their opposition to Government policies or because of the exercise of their constitutional rights of protest and dissent. The ADEX is intended, and should be utilized, solely to list individuals who constitute a potential or actual threat to the internal security of the United States and/or whose activities and statements indicate that they would resort to violent, illegal, or subversive means.
+
+d. Matters relating to the ADEX are not to be included in reports or LHMs prepared for dissemination outside the Bureau. If field office believes that special circumstances justify discussion of ADEX with qualified representatives of other Federal agencies on strictly confidential basis, furnish full facts to Bureau and request prior approval for such action.
+
+e. Contents of ADEX must be accurate and correct at all times: Matters relating to its maintenance should be given preferred attention.
+
+2. Categories
+
+a. Category I
+
+(1) All national leaders of revolutionary organizations whose aims and purposes include the overthrow and destruction of the Government by force and violence or other unconstitutional means, and individuals affiliated therewith who have demonstrated propensity for violence against the person rather than property or have received special training in sabotage, espionage, guerrilla warfare, or have engaged in underground-type operations.
+
+(2) Revolutionaries, though unaffiliated with any specific organization, who have demonstrated by acts or statements a propensity for violence, including acts of terrorism, assassination, or any interference with or threat to the survival and effective operation of national, state, and local Governments and of the defense efforts.
+
+(3) National leaders of extremist organizations.
+
+(4) Any individual who qualifies for the ADEX should be included in Category I if he is employed in or has access to a key facility.
+
+b. Category II
+
+(1) Secondary leadership of revolutionary and extremist organizations. Secondary leadership would comprise, for example, regional, state, and local leaders who are involved in policy making in fulfilling anti-U. S. objectives of their respective revolutionary organizations and whose activities do not justify their inclusion in Category I.
+
+(2) Active participants in furthering the aims and purposes of the revolutionary or extremist organization with which affiliated.
+
+(3) Other unaffiliated revolutionaries or extremists who have demonstrated by acts or statements a propensity for violence against property rather than persons.
+
+c. Category III
+
+(1) Rank-and-file membership in, or participation in activities of, revolutionary organizations within the last five years as evidenced by overt acts or statements established through reliable sources, informants, or individuals.

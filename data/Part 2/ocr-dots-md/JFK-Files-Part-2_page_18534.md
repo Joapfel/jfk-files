@@ -1,0 +1,93 @@
+# JFK-Files-Part-2_page_18534.png
+
+Convert to Markdown1 - Mr. J. B. Adams
+
+2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+
+1 - Mr. W. R. Wannall
+
+August 7, 1975
+
+The Attorney General
+Director, FBI
+
+1 - Mr. W. O. Cregar
+
+1 - Mr. T. J. McNiff
+
+UNITED STATES SENATE SELECT COMMITTEE
+ON INTELLIGENCE ACTIVITIES
+
+This is in response to an oral request from
+Mr. Loch Johnson, Senate Select Committee Staff Member,
+that two former FBI Special Agent employees be made
+available for interview and/or their current addresses
+be made available to the Senate Select Committee so that
+the Committee may arrange for the interviews.
+
+Attached for your approval and forwarding to
+the Committee is the original of a memorandum responsive
+to the above request. A copy of this memorandum is being
+provided for your records.
+
+Enclosures (2)
+
+62-116395
+
+REC-26
+
+1 - The Deputy Attorney General
+
+Attention: Michael E. Shahceen
+Special Counsel for
+Intelligence Coordination
+
+1 - 67-449472
+
+1 - 67-431020
+
+TJM:dmt
+
+(12)
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+
+AUG 1 MOZROOM TELETYPE UNIT
+
+GPO 954-546
+
+NW 88-328 DocId:3289627 Page 132
+
+#MOR/16 SP2 ALM/716
+
+62-116395
+
+62-116395
+
+62-116315-521
+
+8 AUG 15 1975
+
+JENCLOSURE
+
+WOC
+Eut.
+A1

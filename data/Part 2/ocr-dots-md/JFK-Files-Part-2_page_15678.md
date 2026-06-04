@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_15678.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+CONFIDENTIAL
+
+1. NISC (RM)
+
+2. U.S. SECRET SERVICE (Via Courier)
+
+3. REGION I, 113TH MI GROUP, EVANSTON, ILLINOIS (Via Courier)
+
+4. OSI (Via Courier)
+
+Name: SA ALAN R. STEPHENS
+Date: January 16, 1975
+Field Office File #: CHICAGO
+Bureau File #: 1
+
+BLACK PANTHER PARTY (BPP)
+
+RACIAL MATTERS; SMITH ACT OF 1940; SEDITIOUS CONSPIRACY; REBELLION AND INSURRECTION
+
+Speech of JOAN GRAY, Chicago BPP member, given 12/31/69,
+at Chicago's Civic Center, set forth in details.
+Chicago BPP Chapter, according to source, received
+$2,686 at rally held 1/4/70, at Afro-Arts Theater, 3937
+South Drexel Blvd., Chicago. CP of Ill. Chairman CLAUDE
+LIGHTFOOT present. Confidential sources report political
+orientation classes, attended in past, teach BPP Ten-
+Point Program, use MAO's Red Book, and BPP papers as
+teaching aids. Numerous documents, distributed by
+Chicago BPP, set forth.
+
+- P -
+
+CONFIDENTIAL
+
+Group I
+Excluded from auto-
+matic downgrading and
+declassification
+
+This document contains no recommendations or conclusions of the FBI. It is the property of the FBI and is loaned to your agency, and its contents are not to be distributed outside your agency.

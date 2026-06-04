@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_18941.png
+
+Convert to MarkdownSECRET
+
+LIN advised Jaffe to contact him later at which time he would have a definite answer as to a possible interview. -S-
+
+On April 18, 1969, Jaffe recontacted LIN telephonically at which time LIN indicated a reluctance to grant an interview with Jaffe, feeling that granting such an interview would leave the door open to interviews by many other journalists. LIN, however, indicated a desire to talk with Jaffe and after exchanging telephone numbers and addresses a luncheon engagement was set for April 28, 1969, at the faculty lounge at McGill University, Montreal, Canada. -S-
+
+On April 28, 1969, Jaffe flew to Montreal and met LIN for lunch as previously arranged. Jaffe expressed to LIN his strong desire to visit the China Mainland as a correspondent and suggested that it might be possible that the Chinese Government would permit foreign journalists to enter the China Mainland in connection with the October celebrations. LIN expressed the opinion that the October celebrations would make no difference in the Government's policy concerning the admittance of journalists. LIN suggested that Jaffe write a letter by the first of June, 1969, to the Chinese Government indicating that he desired to enter the China Mainland as a private citizen, stating that he had interviewed CHOU En-lai in 1955 as an American journalist and that if he is permitted to enter China, he would like to continue to pursue his career as a journalist. -S-
+
+LIN indicated that the best way to establish contact would be through the Chinese Embassy in Paris; however, when Jaffe indicated that he knew no one there and the possibility existed that the letter would not be forwarded to the proper channels LIN stated he would "Be going East in early summer" and he would be willing to see to it that the letter would be properly dispatched. LIN also suggested that Jaffe's letter be sent to him for perusal prior to its dispatch as he possibly could be of assistance in wording the letter correctly. LIN emphasized that Jaffe should indicate in his letter that he was writing as a private citizen; however, he should not try to hide that fact. That he is a journalist and state in the letter that he had previously been a journalist for "The Nation" and that he would like to write and produce films about China. - S -
+
+SECRET
+
+NW 88326 DocId:32989704 Page 235 2

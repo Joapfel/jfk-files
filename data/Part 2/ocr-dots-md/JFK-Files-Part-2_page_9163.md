@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_9163.png
+
+Convert to MarkdownMEDITATION ROOM
+
+GLASS
+
+SECURITY OFFICER - 1333 02
+
+X
+
+STONES
+
+WICKER
+
+30 FEET
+
+- 15 feet -

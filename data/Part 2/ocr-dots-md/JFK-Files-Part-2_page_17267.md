@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_17267.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+Chicago, Illinois
+
+July 10, 1969
+
+BLACK PANTHER PARTY
+
+A characterization of the Black Panther Party (BPP) is set forth in the appendix of this memorandum.
+
+On July 8, 1969, the source, who has furnished reliable information in the past, advised that a report on the progress of the Illinois BPP, 2350 West Madison Street, Chicago, Illinois, dated March 1, 1969, was forwarded to David Hilliard, Chief of Staff, National Headquarters, BPP, 3106 Shattuck, Berkeley, California, on an unknown date and report was signed by Iris E. Shinn, Communications Secretary. Source stated this report in part reads as follows:
+
+"Dear David:
+
+"The following is a communications report on the progress of the party here in Illinois.
+
+"The Deputy Minister of Economic Development, Ron Patterson; and the Deputy Minister of Labor, Eric 'Bear' Scott, were voted off the central staff. Reasons for this are that since they recently ovalned an outside office they have been doing nothing but bullshit. They were both doing nothing to either better the lot of black people or heighten the contradictions of this racist (obscene.) They're staffs were doing nothing, because they were doing nothing. At this writing both these positions are open and also the position of Deputy Minister of Religion, who resigned.
+
+This document contains neither recommendations nor conclusions of the Federal Bureau of Investigation. It is the property of the Federal Bureau of Investigation and is loaned to your agency; it and its contents are not to be distributed outside your agency."

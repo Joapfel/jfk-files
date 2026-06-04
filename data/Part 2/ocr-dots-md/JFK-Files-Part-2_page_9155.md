@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_9155.png
+
+Convert to MarkdownNY 185-229
+
+## ADMINISTRATIVE
+
+As set forth in the initial New York teletype, interview of UN employees was prohibited by the Secretary-General's office until 8/20/74. Since that date, however, the Legal Department of the Secretary-General's office has advised the NYO that it will authorize the interview and appearance for testimony of all UN employees necessary to the successful prosecution of the captioned matter. All interviews, however, must be held outside the UN premises.
+
+The suspect in this matter, MICHAEL HALSEY BROWN, FBI #313 717 E, previously known to the Los Angeles and Alexandria Offices as a former member of the American Nazi Party in 1966 through 1967 and a one-time bodyguard of GEORGE LINCOLN ROCKWELL, founder of that organization. Los Angeles files indicate that in 1969 BROWN was identified as a member of the Iron Cross Motorcycle Club, a pro-Nazi motorcycle group in Glendale, California.
+
+The Louisville Office has obtained, by subpoena, the suspect's toll call records for the period covering the captioned incident. Initial investigation tends to support theory that after departure from Berea, Kentucky, BROWN contacted pro-Nazi associates in Falls Church, Virginia, Hicksville, NY, and the NYC area during the period of the captioned incident.
+
+Initial opinion of AUSA confirmed by separate communication.
+
+## LEADS
+
+### ALEXANDRIA
+
+#### At Falls Church, Virginia
+
+(1) Will contact logical informants covering the American Nazi Party and other white hate group sources to determine possible assistance rendered to BROWN in the captioned incident.
+
+COVER PAGE
+
+-B-

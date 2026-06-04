@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_9042.png
+
+Convert to Markdown(5)
+
+[CA]S-2290
+
+20 October 1964
+
+MEMORANDUM FOR: Mr. Norman Philcox
+Legal Attache
+
+FROM : [ ] CAS (5)
+
+SUBJECT : Crank Letter Concerning Warren Commission Document
+
+CIA HAS NO OMISSION TO
+DECLASSIFICATION OR RELEASE
+IN THIS DOCUMENT.
+
+Our office in Madrid has sent us a copy of the attached Spanish-language letter addressed to the American Ambassador to Spain, and signed by one Antilin PERIS, alleging in the first paragraph that the author has some information of interest to impart. After opening the second paragraph by saying that he had to flee Paris due to an indiscretion committed there, the author states:
+
+"There (apparently Paris), in the home of some American friends, I got hold of an authentic document about the assassination in Dallas, which they say was swiped from the Warren Commission and which is certainly prejudicial for President Johnson. I have it on good authority that they are currently trying to sell it to no less than the Director of "Paris-Match." Someone from the Embassy of the United Kingdom in Paris is involved in the matter."
+
+The author closes by suggesting that an advertisement be inserted in a Madrid newspaper if there be any interest in further details.
+
+There are no traces from Madrid on Antilin PERIS, which according to [CAS, Madrid] is almost certainly an alias. Needless [S] to say there is no return address on the letter or envelope, which was mailed from Barcelona on 26 September 1964. [CAS, Madrid] has [S], forwarded us a copy of the letter on the off chance that we may have received similar allegations; in such case [Madrid] would [S] appreciate learning the details so that they might inform the Embassy. It was also suggested that we show you this letter.
+
+[CAS, Paris] has no traces on Antilin PERIS.
+
+cc: United States Secret Service
+Attn: Mr. John Hanly
+
+SECRET
+
+HW 50953 DocId:32156250 Page 3

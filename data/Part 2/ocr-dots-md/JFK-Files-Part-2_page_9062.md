@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_9062.png
+
+Convert to MarkdownSECRET
+
+CASES AND/ OR SITUATIONS
+INVOLVING COMFLICTS WITH THE
+CENTRAL INTELLIGENCE AGENCY (CIA)
+
+(1) HEAR (THE RORIS MARCHES CASE)
+
+This was a sensitive Soviet-espionage case which originated in 1943 and terminated for the most part in 1957. The case had many wide foreign ramifications and historically has been, and undoubtedly will be, one of the most important and involved cases of Soviet operations in this country and abroad. We did not disseminate any information of significance in this case until 1954. On various occasions when the Liaison Agent has become involved in heated arguments with CIA officials, they have seen fit to raise this case as an outstanding example of FBI failure to cooperate with the Agency. The position taken by CIA was that it should have been advised regarding the Soviet operational activity in foreign countries, claiming that the Agency would have had the opportunity to develop more information of significance, identify Soviet agents, and possibly prepare conditions for recruitment or doubling of Soviet operatives. We did not disseminate our reports to CIA because of the extreme sensitivity of the case. We actually did not permit CIA to handle any investigations relating to the HEARS E until 1957.
+
+In 1957, CIA complained that it certainly had every right to have received the information earlier because many aspects of the MOCASE pertained to CIA employees and operations. CIA further argued that it had been greatly handicapped in effectively carrying out the leads in 1957 because the leads were given to the Agency at the same time that the case was publicized. The Agency argued that the failure of the Bureau to coordinate with CIA those French aspects of the case permitted the French, rather than the U. S., to play a dominating role in Europe.
+
+SECRET
+
+HW 50953 DocId:32169180 Page 8

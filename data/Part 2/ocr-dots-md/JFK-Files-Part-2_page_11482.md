@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_11482.png
+
+Convert to Markdown(D) Whether or not defectee available for interview by all Agents
+
+(E) Whether he is in position to testify and willing to do so
+
+III. Do not include information concerning security informants for security reasons.
+
+IV. Proper maintenance of this file will be useful in identifying persons who may be in a position to furnish information of value in the future and will obviate necessity of extensive file reviews in this connection.
+
+V. A special index may be used for this file if desirable. If used, it should contain cards filed alphabetically indicating names, times, and places defectees were in a subversive movement and a brief description of information available from them. Break index down geographically and subdivide by years if desirable.
+
+7. Administrative procedures
+
+[a. Reserve index
+
+(1) Purpose
+
+The reserve index is designed to represent those persons who, in the light of ever-changing conditions, should be continually borne in mind from the standpoint of the security of the country with a view toward possible investigation, interrogation, or action under the security index program. This index may serve as an administrative aid and working index containing a central repository of the names of individuals having sympathy for or affiliation with the Communist Party or other basic revolutionary organizations.
+
+(2) Individuals to be included
+
+This index is to contain names of individuals when, following investigation, the information does not justify the inclusion of the subject's name in the security index when there is evidence of:
+
+(a) Membership in a basic revolutionary organization subsequent to January 1, 1949, together with some indication of sympathy or association with such an organization or a subversive front organization subsequent to the reported membership and no reliable evidence of defection
+
+(b) Investigation has failed to substantiate allegations of membership in a revolutionary organization within the past five years, coupled with some evidence or information indicating activity, association, or sympathy for the subversive cause within the same period, and no reliable evidence of defection.
+
+(c) The individual, within the past five years, by his associations, writings, financial support, or conduct in relation to and support of subversive organizations or the international communist movement is in a position to influence others at the time of a national emergency and no reliable evidence of defection.
+
+(d) Leadership or substantial activities in a major subversive front group over three years ago, together with some evidence of continuing activity, association, or sympathy for the subversive cause within three years and no reliable evidence of defection
+
+(e) Membership in a subversive front organization within the past three years and no reliable evidence of defection

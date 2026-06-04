@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_12277.png
+
+Convert to Markdown1. **Recording investigative activity**
+
+All investigative activity must be made a matter of record in the field office filed with all sources of information being completely identified.
+
+Sources include all confidential informants - criminal, security, (and etc.)
+
+Agents must not have and use informants known only to the individual Agents personally.
+
+## 1. INDOCTRINATION, DIRECTION, AND CONTROL OF SECURITY INFORMANTS
+
+### 1.1 Cautious against divulging relationship
+
+a. During initial development and consistently thereafter, impress upon informant the absolute necessity that he refrain from divulging through any media any information regarding his relationship with Bureau.
+
+b. These instructions must be properly worded and phrased to prevent any possibility Bureau's being accused of attempting to impose censorship.
+
+### 2. Developing additional background
+
+a. During development of informant, additional data concerning his background should be continuously obtained from informant.
+
+b. After gaining informant's confidence, information will be elicited which may be pertinent to his operation and may have effect upon his retention, such as data revealing he is mentally or emotionally unstable, or has some personal problem which would make him a risk as an informant,
+
+### 3. Handling indications of instability
+
+a. Details of any indications of instability should be furnished to the Bureau immediately upon being obtained, with recommendations as to informant's continuance.
+
+b. Set forth the steps being taken to prevent any embarrassment to Bureau.
+
+### 4. Contacts by Agents
+
+a. Except in espionage and foreign nationality matters where the frequency of contact is dependent on the circumstances of each case, informants should be contacted as often as necessary, but at least one personal contact should be made every two weeks.
+
+b. If such frequent contacts cannot be established, obtain specific Bureau authority for an exception to this requirement (except in espionage and foreign nationality matters). In requesting such exception, set forth all attendant circumstances.
+
+c. During each contact, informant's activities since previous contact should be carefully reviewed and the contacting Agent should make certain the informant has furnished in writing or verbally all information and data which he has obtained since the last contact. If additional or supplementary information is furnished during this contact with the informant, this information should be handled in the same manner as outlined in subsection G.
+
+d. Contacting Agent should become so well acquainted with informant that he will not breach the confidential relationship. If there is slightest indication informant may do so, Agent should be able to anticipate this action and forestall it.
+
+e. Contacting Agent should not only collect information but also direct informant, be aware of his activities, and maintain such close relationship that he knows how informant is thinking with regard to Bureau connection. This relationship should not be so reciprocal that informant obtains information concerning Agent or Agent's business, personal or official.
+
+f. Good judgment must prevail in handling informant to see he does not become too familiar with Agent and later cause embarrassment to Agent or Bureau by using it for his own advantage such knowledge which he may obtain.
+
+g. Promptly advise Bureau of any indication informant is wavering in Bureau relationship.

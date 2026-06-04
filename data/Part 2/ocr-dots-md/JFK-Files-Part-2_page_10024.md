@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_10024.png
+
+Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+as well as in evaluating requests for investigations of individuals received from other agencies and departments pursuant to Section 8(d) of EO 10450. Guidelines were requested for the use of the FBI in initiating investigations of individuals pursuant to EO 10450 and specifically criteria to be utilized in determining whether available information is sufficient basis for investigation under EO 10450.
+
+A response to these inquiries was made by the Assistant Attorney General for Administration on November 1, 1974, (enclosed), advising that the FBI should continue to conduct investigations to identify organizations coming within the purview of Section 8(a)(5) of EO 10450, i.e., organizations which: (1) unlawfully advocate or practice the commission of acts of force or violence to prevent others from exercising their rights under the Constitution or laws of the United States or any State; or (2) which seek to overthrow the Government of the United States or any State or subdivision thereof by unlawful means. The Department advised that if the investigation of an organization "suggests a determination that the organization is engaged in illegal activities or potentially illegal activities, it should continue."
+
+Regarding the investigation of individuals, the Department advised that members or affiliates of organizations described above should be investigated and the same yardstick should be utilized as was indicated for organizations in determining whether the investigation should continue. The Department added, however, that "[when a determination can reasonably be made that the individual's activities, either within the organization or as an individual, do not appear to be in violation of any law, then the investigation should cease.]"
+
+In a memorandum dated December 11, 1974, (enclosed), to the Assistant Attorney General for Administration, clarification was requested of the guidelines for investigations by the FBI of applicants and employees in the Executive Branch under EO 10450 since the Department's statement that the same yardstick should be utilized in the case of organizations and individuals appears to be at variance with that used concerning organizations.

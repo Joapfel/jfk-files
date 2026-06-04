@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_15786.png
+
+Convert to Markdown# I. ORIGIN, PURPOSES AND LOCATION OF BPP CHAPTERS
+
+## A. Origin
+
+The Chicago Chapter of the BPP was organized on August 25, 1968, at a meeting at 6110 South Dorchester Street, Chicago, Illinois. This meeting was attended by approximately 10 Negro males. The purpose of the meeting was to dissolve the then current Chicago branch of SNCC and to organize a Chicago Chapter of the BPP.
+
+* 8/27/68)
+
+The BPP did not have a headquarters until space was acquired at 2350 West Madison Street, Chicago, Illinois, in November, 1968. The space acquired was the second and third floor of the building at the above address.
+
+* 11/20/68)
+
+Source advised the Illinois Bell Telephone Company assigned telephone number 243-8276 to the BPP above address.
+
+* 3/27/69)
+
+## B. Purposes, Aims and Rules of Chicago BPP Chapter
+
+On November 1, 1968, BOBBY LEE RUSH, Deputy Minister of State, Chicago BPP, flew to National Headquarters, Oakland, California, where he met with ELDRIIGE and KATHLEEN CLEAVER and BOBBY GEORGE SEAILE. The CLEAVERS and SEAILE are members of the Central Committee of the National BPP.

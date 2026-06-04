@@ -1,0 +1,72 @@
+# JFK-Files-Part-2_page_13913.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+# Memorandum
+
+SECRET
+
+TO : Mr. W. R. Wannall
+FROM : ~~W. O. Cregar~~ Euf
+SUBJECT: SENSTUDY 75
+
+1 - Mr. J. B. Adams
+2 - Mr. J. A. Mintz
+(1 - J. B. Hotis)
+
+DATE: 6/23/75
+
+1 - Mr. W. R. Wannall
+1 - Mr. W. A. Branigan
+1 - Mr. J. G. Deegan
+1 - Mr. R. L. Shackelford
+1 - Mr. W. O. Cregar
+1 - Mr. J. W. Dalseg
+1 - Mr. J. P. Lee
+1 - Mr. J. P. Thomas
+
+Assoc. Dir.
+Dep. AD Adm
+Dep. AD Ins.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intnl.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+This is to record assignments of FBI representatives to coordinate with Intelligence Community Staff (ICS) Task Force (TF) leaders on ICS TFs for which FBI does not have primary responsibility.
+
+My memorandum to you 6/17/75 reported upon a 6/13/75 meeting chaired by Mr. James Wilderotter, Associate Counsel to the President, to discuss the functions of TFs in connection with investigation of the intelligence community by the Senate Select Committee (SSC). An enclosure to that memorandum listed the various TFs and indicated those regarding which the FBI was expected to be involved with. We were asked to designate a specific individual who would coordinate with the TF leader of TFs which were not assigned to FBI representatives. The following designations are proposed:
+
+| Subject | Principal Agency | TF Leader | FBI Representatives |
+|---|---|---|---|
+| Electronic surveillance and warrantless wiretap | Justice | George Calhoun | J. W. Dalseg |
+| Use of proprietary CIA organizations | Justice | Erich Isenstead Green 3140 | W. A. Branigan |
+| Mail cover and intercept | Justice | Phil White | J. P. Lee |
+
+62-116395
+
+JPT:bkbbrd (12)
+
+ALL INFORMATION CONTAINED HERIN IS UNCLASSIFIED DATE 10-16-75 BY SAACOMP
+
+CONTINUED = OVER SECRET SECRET
+
+Classified by 6875 Exempt from GDS, Category Number 2 Date of Declassification Indefinite
+
+NW'88326 DecId:32980611 Page 168
+
+8A JUL 5 1975
+
+7/5

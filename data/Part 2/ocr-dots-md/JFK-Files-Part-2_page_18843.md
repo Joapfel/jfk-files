@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_18843.png
+
+Convert to MarkdownWFO 105-8906
+
+JAFFE asks that his passport be amended allowing him to travel in Communist China as a professional American journalist and he understands that he will personally assume all the risks in such an undertaking. If this request is not within the power of the Department of State to approve, he desires to know if the Department of State would have any objection if he deposited his passport with the nearest Embassy and entered Communist China, assuming all risks, as a private citizen.
+
+His purpose in visiting Communist China would be in the capacity of a professional journalist for the "Nation" magazine of America and other American publications to write on what is taking place in Red China today. He would also seek an interview with Red China's leader MAO TSE-TUNG and other Communist officials. He would try to interview the eleven American fliers held by the Reds and the Americans who have deflected to the side of the Reds. He would deport himself in the best interests of the U. S. and would provide information to his Government upon his return.
+
+He has excellent reasons to believe that the Red Chinese government would allow him to enter their country as a journalist. During the Asian-African Conference at Bandung, Indonesia, he obtained an interview with Red Chinese Premier CHOU-EN-LAI through the good offices of Prime Minister U NU of Burma. He filed a full report of this interview with the American Embassy at Rangoon, Burma on 5/20/55 and previously he had informed the American Consul at Singapore of certain statements CHOU-EN-LAI made to him during the interview. The Red Chinese know that Prime Minister U NU thinks well of him.
+
+He was also told by one KANG MAO-CHAO, Counselor for Cultural Affairs at the Red Chinese Embassy in New Delhi that he stood an excellent chance of being admitted to his country, as "My Premier was impressed by the way your story was handled." KANG MAO-CHAO added that also in his favor was the fact that CHOU-EN-LAI knew him as well as do others in his government. His request for admittance to Red China is presently being considered by the authorities at Peking.
+
+JAFFE concluded his statement by relating that he hopes that in making a decision the Department will realize that it would be in the best interests of our Government and our people that an American journalist be permitted to visit Red China to report firsthand on the state of affairs there.
+
+An Application dated 7/31/52 at New York City for a passport by Mrs. JAFFE, then JOSEPHINE CLARK WINTER, reflects the following:

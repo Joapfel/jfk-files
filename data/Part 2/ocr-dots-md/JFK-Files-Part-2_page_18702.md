@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_18702.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: Senstudy 75
+62-116395
+
+reportedly voiced his displeasure to O'Flaherty stating he did not approve of the latter's action. The memorandum in question dealt with CIA's possible use of derogatory information to determine the direction Senator Jackson would take in future actions he might encounter which might involve CIA activity. Threat advised he would recontact his relative to determine if this individual would come forward, reveal his identity and be cooperative in any investigation.
+
+A memorandum from CIA dated 7/29/75 indicates that James Daniel O'Flaherty, born 11/4/42, is a member of the Staff of SSC and has been granted a security clearance up to "Top Secret."
+
+On the morning of 7/31/75, Philadelphia Office was telephonically contacted and instructed to expedite a contact with Threat to determine the availability of his relative. At approximately 2:30 p.m., 7/31/75, Philadelphia Office advised that Threat, upon recontact, had stated that it would be impossible to contact his relative before this coming weekend. In conversation, he identified his relative as a niece who is currently attending school in Washington, D. C. He further advised that O'Flaherty reportedly is no longer residing with his wife and is engaged in an emotional relationship with his niece. Threat added he believed his niece would be cooperative as she has expressed her disapproval of O'Flaherty's action. He concluded by saying that upon determination of his niece's decision in this regard he would immediately advise the Philadelphia Office.
+
+OBSERVATIONS:
+
+The above information, if accurate, represents a serious violation of the agreement regarding confidentiality existing between the SSC and members of the intelligence community as it relates to material being turned over or made available to Staff Members of the Committee. It is incumbent
+
+CONTINUED - OVER
+
+NW 88326, DocId:32989627 Page 300

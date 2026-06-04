@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_9446.png
+
+Convert to MarkdownPOSITIONS IN FIRING:
+
+There are various positions in firing (shown) on. Each one is used for a different battle condition. The prone position is for when you are being shot at and you have no cover, lay down as shown below making yourself as small a target as possible. The kneeling position is when you can get behind a car or something, in making yourself as small a target as possible, and your standing position can be held in defense (for making yourself a small target) or for use in pursuit or offense. You should learn and become comfortable in each of the positions, because you never know what a variation might dictate.
+
+STANDING (DEFENSE)
+
+DOUBLE ACTION
+
+PHOTO # 7
+
+KNEELING POSITION
+
+PRONE POSITION
+
+Sight Alignment is aligning your rear sight front sight together,
+
+Sight Picture is placing the sights on your target with your already aligned.
+
+Breath Control consists of taking a breath, letting a little out, holding the rest until you have completed your trigger squeeze and the gun has been fired.
+
+Trigger squeeze is very important in accurate shooting. When shooting single action apply light steady pressure on the trigger. The shot should not be anticipated, it should not be a surprise to you, when shooting double action or rapid firing, quick steady pressure must be applied. Be sure not to jerk the trigger. Use the tip of your finger. When shooting double action might have to use more pressure.
+
+GTCS # 5&7
+
+38
+
+<table><thead><tr><th>CORRECT</th><th>INCORRECT</th></tr></thead><tbody><tr><td></td><td></td></tr><tr><td>SIGHT ALIGNMENT</td><td>SIGHT PICTURE</td></tr></tbody></table>

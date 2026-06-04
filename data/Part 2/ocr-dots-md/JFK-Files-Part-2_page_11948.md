@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_11948.png
+
+Convert to Markdown[ [6.] Past records of contacts with potential informants so that the cases will not become delinquent.
+
+[7.] During contacts with potential informants, if it develops individual does not have the necessary capabilities discontinue efforts.
+
+[8.] During initial stages of development at an occasion active informants may raise a personal question concerning their own position if it becomes known publicly that they are affiliated with a subversive organization. In the event a potential informant or informant inquires as to what can be done for him in such a case, he may be told that his cooperation is a matter of record in the FBI and if some question arises concerning his loyalty we will consider making the facts of his cooperation with the FBI known to his employer so to the responsible individuals. It should be pointed out that this action may make it impossible for him to continue on behalf of the FBI and the service which he is performing for his country may be terminated. Before taking steps to advise anyone of a potential informant's or informant's cooperation, prior Bureau authority must be obtained.
+
+[9.] From the first interview with a potential informant through his develop- ment and until he is discontinued, extreme caution should be used at all times to be certain he is not a plant.
+
+[10.] When potential informant begins to furnish current information and otherwise qualifies for designation as informant, assign permanent symbol number and advise Bureau. This communication must be personally initiated by SAC or ASAC acting in his absence; in individual's background must also be thoroughly reviewed at this time, keeping in mind possibility of using informant as a witness. If individual has any weaknesses, set forth safeguards being followed to insure security and to prevent embarrassment to Bureau.
+
+## E. BUREAU POLICY
+
+1. Development of military personnel
+Do not develop informants among military personnel on military reservations, establishments, etc., unless specifically approved by the Bureau.
+
+2. Contacts by designated Agents
+Contacts with an informant or potential informant should only be made by the Agent or Agents specifically designated to contact him.
+
+3. Divulging information to informant
+No information should be divulged to a potential informant or an informant concerning any of the Bureau's investigative activity other than that which is essential to his proper operation.
+
+6
+
+9-13-68
+
+NW 88321 DocId:32989529 Page 1282

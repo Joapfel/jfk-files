@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_16301.png
+
+Convert to MarkdownOn September 18, 1969, when Special Agents (SAs) of the Federal Bureau of Investigation (FBI) were conducting a neighborhood investigation, Mrs. WILLIAM FESPERMAN, wife of the then leader of the Young Patriots answered a door and when interviewed furnished the following information:
+
+The YP has three main programs. The first is a "Free Pantry Program" which operates out of the Patriot's Office and until that time, September 18, 1969, had fed 400 people. There is a proposed medical clinic which was scheduled to open before the end of 1969. At that time, an alternate school was being run by the Patriots in which Mrs. FESPERMAN was a teacher. The school had an enrollment of fourteen children.
+
+Mrs. FESPERMAN stated that the group is not prone to violence and that their idea of violence was similar to that of the BPP. They would not attack anyone but if they were victimized by police brutality, they would defend themselves. Mrs. FESPERMAN declined to furnish any other information regarding the YP.
+
+The YP are attempting to organize the people of the Uptown area of Chicago. Once the people are organized, they intend to use their vote in local elections in order to defeat the building of high rise apartments in the Uptown area of Chicago and force absentee landlords to rebuild the area. The main unifying force of the YP is their belief that they are victims of police brutality. Although very few of the youths within the group have ever been arrested, and none of their leaders have ever been arrested, they claim they are constantly stopped on the street, searched and harrassed by the police.
+
+9/25/69)
+
+## National and State Officers
+
+Prior to November 1, 1969, WILLIAM FESPERMAN, also known as PREACHERMAN, was a self-styled leader and spokesman for the YP. His second-in-command was CRAIG WALDEN, Minister of Defense of the YP. Third-in-command was BOBBY MC GUINNESS, Minister of Education, and fourth-in-command was PAT FELTON, field secretary.
+
+11/12/69)

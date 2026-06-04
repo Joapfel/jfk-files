@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_9622.png
+
+Convert to Markdown3. Each member must respect the security of every other member. Do not, under any circumstances, identify one member of the organization even to other members without his expressed permission on each and every occasion.
+
+9. Avoid loose talk. Do not discuss organizational plans in public places where you could be overboard. Do not even talk at such a discussion in the presence of non-members.
+
+10. Do not write political letters in new papers or magazines under your own name. To do so achieves very little except to identify you to the enemy.
+
+11. If you are already known as a patriot, or as a member of this organization you may find advisable to spread the rumor that you have become disillusioned with the right-wing or for you to pretend a gradual loss of interest.
+
+12. Classify your various members addresses, your communications and your other activities as "top secret", "secret" or "restricted". Use your most secret lines of communication only for the most important messages rather than flooding them with unimportant material.
+
+13. Demand obedience to all security measures from all members. Persistent disregard for security measures should be cause for disciplinary action.
+
+14. Check your lines of communication from time to time by sendingoney messages to make certain they are not intercepted.
+
+15. Change mail drops, meeting places, etc. frequently.
+
+16. Properly secure random points, mail drops, etc. now that may be used in time of some future emergency:
+
+17. Each unit should assign some member the rank of Security Officer and should set up a system of fines or other penalties for failure to comply with security precautions.
+
+18. Observe the "lead to know" rule. Each member should be given only that information which is needed by him in the performance of his duty or which he will need in collaborating with other members of the unit. No member should feel "left out" because he is denied such information. Instead every member should willingly avoid information which he does not need.
+
+19. Be careful that you are not followed in going to and from meeting places or in making contact with other members of the organization.
+
+20. Keep all records and correspondence carefully hidden and in a manner that they can be easily destroyed. Receipt should be kept in code whenever possible.

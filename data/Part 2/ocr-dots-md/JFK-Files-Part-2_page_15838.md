@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_15838.png
+
+Convert to Markdownhome have been called noolls and thurs all theives. Thus, when they heard what the naters called the Panthers they wanted to know what these "hoodlums" were up to, carrying guns. Thus, the Panther messaue was spread in the black community almost because of the impress distortions.
+
+As to press accounts calling the Panthers miliant and anti-white, these were false charnes. The documents below indicate that the Panthers are not a racist oranization and will form coalitions with white crouns who are willing to support the Panther platform and who will work to end racism.
+
+The Nulford bill was enacted into law as a special bill and has been used, predictably since then, to harrass members of the Black Panther Party. Attorneys feel that the bill is clearly unconstitutional. However, as will be shown below, lack of funds, as well as the nature of the court system, mrevent the unconstitutionality from being adequately tested. Eight members of the Black Panther Party served jail sentences on theoney charge. The rest did not serve time because the district attorney indicated that if eight would serve *&*maxx he would not press charges against the rest. It should be noted that this tyne of justice is not limited to the Black Panthers. Every day black neone are arrested on charnes which are false or unsubstantiated. Because of lack of funds many of them serve jail sentences. Many of those who can afford attorneys are found guilty by all-white juries and judges. Since Sacramento, the Panthers have been constantly harrassed. See below for further details.
+
+THE MURDER OF BOBBY-HUTTON-AND-THE-ARREST-OF-THE-PANTHER-8
+
+On Sunday, April 7, the Black Panther Party had planned a picnic barbecue to raise money for the defense of Huey P. Newton. Saturday night Eldridge Cleaver, Bobby Hutton, and a number of other Panthers were driving around Oakland to collect food that the sisters had nrenared. Their mission was interrunted when several squad cars of Oakland police intercented and ambushed the Panthers in their own community. Today, Eldridge Cleaver is behind bars, possibly for life. Bobby Hutton is dead - murdered by the Oakland nins when he tried to surredder from the gas-filled, burning house. Seven other Panthers plus Cleaver face Grand Jury indictments for attempted murder, indictments based on false information provided by the nigs and ex-torted confessions from the imprisoned Panthers.
+
+The following information came out in an interview a San Francisco Chronicle reporter had with Cleaver in jail:
+
+Bobby Hutton, aged 17, was killed by police bullets - he was told to run for a squad car and, while his hands were raised and he was unarmed, officers shot him down.
+
+With one or two exentions, the arsenal of nuns the police claim was taken from the scene of the shoot-out was actually taken from a marked Panther's car's locked trunk, miles away, and hours later.
+
+Following the police ambush of the Panthers, cons made no attemnt to immediately allow Cleaver and Hutton out of the house they were Boled un in. Instead they poured a fusillade of bullets in through its walls.
+
+Eldridge Cleaver was not carrying a gun. "I was never armed", he said, "because Huey P. Newton had laid down orders that, as a narrow-lee, I should not be armed."
+
+Although the nigs and the racist press reheatedly tried to call the Panther se-un, within two minutes after the police had-
+
+NW 8613 Docd:32199554
+the
+Page 1335
+
+54 -

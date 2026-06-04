@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_18067.png
+
+Convert to MarkdownK. William O'Connor
+
+July 14, 1975
+
+6. All materials which reflect what transpired between the Director's approval of Mr. Sullivan's October 15, 1963 memorandum, and the transmission of Mr. Sullivan's October 18, 1963 memorandum to Mr. Belmont.
+
+7. A xerox of the original of the Director's November 17, 1963 memorandum to Mssrs. Tolson, Belmont, De Loach, Rosen, and Sullivan.
+
+8. A xerox of the original of the director's February 5, 1964 memorandum to Mssrs. Tolson, Belmont, Kosen, Sullivan, De Loach, and Evans.
+
+9. Access to the original memoranda from Mr. Sullivan to Mr. Belmont, dated:
+
+a. November 22, 1964;
+
+b. November 27, 1964.
+
+10. The identity of the author of the 1964 "up-to-date revision" of the 1963 monograph.
+
+11. All materials which reflect or relate to Mr. Sullivan's instructions to subordinates in 1964 to revise the 1963 monograph.
+
+12. All materials which transmitted for approval and/or signature the December 1, 1964 letter from the Director to Mr. Moyers.
+
+13. All materials which reflect the approval of Mr. Belmont, Mr. Tolson, and/or the Director of:
+
+a. Recommendations contained in Mr. Sullivan's November 22, 1964 memorandum to Mr. Belmont;
+
+b. Recommendations contained in Mr. Sullivan's November 27, 1964 memorandum to Mr. Belmont;
+
+c. The December 1, 1964 letter from the Director to Mr. Moyers.
+
+14. Access to the second page (unexcised) of the December 17, 1964 memorandum from Mr. Baumgardner to Mr. Sullivan.

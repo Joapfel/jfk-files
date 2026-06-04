@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_17318.png
+
+Convert to MarkdownEMERGENCY CONFERENCE TO DEFEND
+THE RIGHTS OF THE BLACK PANTHER
+PARTY TO EXIST (ECDBPP)
+
+Reverend C.T. Vivian was the next speaker who stated that in order to save ourselves the BPP had to be saved. He emphasized that self-interest was involved. He said that a planned program should be made which would insure the survival of the various black and radical groups in order that decisions dealing with various issues might be made. He also stressed the unification of youths and members of the working class.
+
+The Reverend Billy Robinson from Akron, Ohio, then made an appeal for funds.
+
+David Hilliard then spoke briefly and remarked that he did not need any organizations including the CP to tell him how to run the BPP. He added that the only way to deal with the mass media was to run them down and shoot them if necessary to keep them from telling lies.
+
+A Professor Hicks from Brandeis University in Massachusetts gave a report on racists. In that connection he called for regional and local conferences on a broader basis; that current Congressional investigation regarding the BPP be stopped; political prisoners be released from jail; war on the judicial system, discussion of current issues.
+
+Dick Criley then gave a credentials report concerning the conference and stated that 540 people had registered representing 128 organizations from 23 states plus one individual from Canada and one from East Germany. He then stated that plans were being formulated for the continuation of Emergency Conference to transfer its headquarters to New York, New York, where Angie Dickerson would be in charge. He stated that the Committee should be empowered to enlarge itself. The morning session of March 8, 1970, then ended at 2:00 pm.
+
+CONFIDENTIAL
+
+-8-

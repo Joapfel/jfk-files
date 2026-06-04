@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_14102.png
+
+Convert to MarkdownThe Attorney General
+
+Director, FBI
+
+2 - Legal Counsel Division
+(1-Mr. J.C. Farrington)
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+
+April 21, 1975
+
+1 - Mr. P. T. Blake
+
+UNITED STATES SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+
+ALL INFORMATION CONTAINED HERewith ARE NOT classified. DATE 4-26-75 BY SPALDING
+
+Reference is made to a letter from the Senate Select Committee dated March 19, 1975, requesting certain documents and other information from the Federal Bureau of Investigation (FBI).
+
+Two of the documents requested were the Special Report of the Interagency Committee on Intelligence (Ad Hoc) dated June, 1970, and the original report on COINTELPRO activities prepared by the Committee headed by Assistant Attorney General Henry Petersen. With respect to the original report on COINTELPRO activities, pursuant to the conversation between Mr. John C. Keeney, Department of Justice, and Special Agent James C. Farrington, FBI Headquarters, on March 27, 1975, it was agreed the Department would await receipt of the Bureau's opinion prior to formulating its response to Senator Church's request for the 39-page Petersen report on COINTELPRO.
+
+The 39-page COINTELPRO report, as well as all but one of Exhibits A through P attached thereto, contains matters relating to the internal deliberations of Department and FBI representatives who constituted the study Committee headed by former Assistant Attorney General Petersen. It is, therefore, suggested that if it is decided the report should be made available to Senator Church, it be done with the provision it not be made public. EX 104 REC-59 MAY 1 1975
+
+Concerning the exhibits referred to in the text of the report: Exhibits A through L are summaries and memoranda prepared by the FBI or by Department attorneys based on their review of FBI material, and some of these are classified "Secret"; Exhibits M and N are legal memoranda prepared by Department attorneys in connection with the study Committee inquiry; Exhibit P is a work paper prepared by the FBI setting
+
+EWL:glw/jvl
+(8)
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Evol.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone No.
+President Colby 1 1/25 MAIL ROOM ☐ TELETYPE UNIT ☐ GPO 954-545
+NW 88296 DocId:32989588 Page 133

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_11196.png
+
+Convert to Markdown[G. VISITORS TO COMMUNIST-BLOC COUNTRIES [AND TO CUBA] (For instructions on visitors to Communist China, see section 105F.)
+
+Soviet-bloc Intelligence Services (SBIS) have used the technique of contacting visitors to communist-bloc countries to recruit intelligence agents from among the visitors. Individuals in the U. S., either permanent resident aliens or others who travel to communist-bloc countries (except Yugoslavia) [and to Cuba,] should be considered as being available to SBIS for recruitment purposes.
+
+On a highly selective basis, and with an absolute minimum of investigative effort, a small percentage of these visitors should be interviewed, when information concerning such travel comes to attention of the field offices, in order to uncover any visitors who may have been approached for recruitment. If, after interview, available data indicates recruitment approach was made, further investigation should be conducted to determine whether individual represents a security risk and/or may be used against SBIS. Interviews can also:
+
+(1) produce sources in various nationality fields; (2) serve to alert visitors to notify FBI in event they are contacted or learn of anyone contacted by SBIS;
+
+(3) have a deterrent effect on persons interviewed; (4) produce positive intelligence information of interest to other government agencies,
+
+1. Permanent resident aliens
+
+Prior to 12-1-60, aliens who had been granted permanent residence in the U. S. were not subject to travel restrictions imposed upon U. S. citizens traveling on U. S. passports. New departure control regulations were published in the "Federal Register" 12-1-60 which prohibit the departure of permanent resident aliens from the U. S. who intend to travel to or through Altania, communist-controlled China, North Korea, and North Vietnam. Departure for these areas may be authorized in individual cases by the Secretary of State after consultation with the Attorney General.
+
+The regulations also require permanent resident aliens who intend to depart the U. S. for travel to or through Bulgaria, Czechoslovakia, Estonia, Hungary, Latvia, Lithuania, Poland, Romania, the Soviet Zone of Germany ("German Democratic Republic"), Union of Soviet Socialist Republics, or Yugoslavia to obtain from INS reentry permits prior to departure from the U. S.
+
+[The "Federal Register" 1-19-61 added Cuba to the list of countries to which permanent resident aliens in the U. S. could not travel without authorization of the Secretary of State in consultation with the Attorney General. On that date, the necessity for permanent resident alien letters to the U. S. to obtain reentry permits from INS prior to departure from the U. S. was also published in the "Federal Register.]
+
+a. Notification
+
+(1) Each INS district office which is a filos control office will pursuant to instructions from INS central office furnish to local FBI offices the identities of permanent resident aliens applying for reentry permits. Locations of INS files control offices are set forth in section 9, page 4f, volume I, of this manual. Arrangements should be made by local liaison with INS to secure, on a continuing basis, the identities of such aliens who have secured reentry permits.
+
+(2) The Department of State will notify the Bureau of the identities of those resident aliens who have been authorized by the Secretary of State to travel to or through Albania, communist-controlled China, [Cuba,]North Korea, and North Vietnam. Upon receipt of such information from the Department of State, Bureau will search the names through Bureau records and furnish results to interested field offices.
+
+b. Office of origin
+
+In all cases involving resident aliens, the office of origin will be the field office covering the known residence in the U. S. of the alien.

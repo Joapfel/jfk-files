@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_18066.png
+
+Convert to MarkdownSELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+
+(PURSUANT TO S. RES. 23, 1975 CONGRESS)
+
+WASHINGTON, D.C. 20510
+
+July 14, 1975
+
+K. William O'Connor, Esq.
+Special Counsel for Intelligence Coordination
+Office of the Deputy Attorney General
+U. S. Department of Justice
+Washington, D. C. 20530
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED BY
+
+DATE 10/18/75
+
+Dear Mr. O'Connor:
+
+Reference is made to your letter of July 8, 1975, transmitting certain materials relating to the Martin Luther King, Jr. monographs.
+
+We would appreciate being supplied the following additional items in response to Appendix D, Item 9, of the Committee's letter of May 14, 1975:
+
+1. All materials reflecting the earlier recommendation and approval which are indicated in the first sentence of Mr. Sullivan's October 15, 1963 memorandum to Mr. Belmont.
+
+2. The identity of the author of the monograph which was attached to Mr. Sullivan's October 15, 1963 memorandum to Mr. Belmont.
+
+3. All materials which reflect or relate to Mr. Sullivan's instructions to subordinates concerning the preparation of the 1963 monograph.
+
+4. All materials which reflect or relate to the transmission of the monograph to Mr. Sullivan from subordinates prior to Mr. Sullivan's October 15, 1963 memorandum to Mr. Belmont.
+
+5. All materials which reflect Mr. Tolson's transmission to the Director of Mr. Belmont's memorandum of October 17, 1963.
+
+ENCLASURE
+
+ENCLOSURE
+
+72-116395-796
+
+NW 88326 DocId:32989653 Page 64
+
+JUL 14 1975
+
+KWOC.

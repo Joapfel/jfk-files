@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_14428.png
+
+Convert to Markdown4. The number of surveillances installed during each period which continued for each of the following time categories: under one week, one week to one month, one month to six months, over six months.
+
+5. The numbers of electronic surveillances in which:
+
+a. One electronic surveillance device was installed;
+
+b. Two electronic surveillance devices were installed;
+
+c. Three to five electronic surveillance devices were installed;
+
+d. Six to ten electronic surveillance devices were installed;
+
+e. More than ten electronic surveillance devices were installed.
+
+6. The total maximum number of surveillances in operation at any one time during each period, as referred to in Mr. Mardian's letter of March 1, 1971.
+
+7. The number of electronic surveillances installed, conducted, maintained or monitored by any person or organization, or by any unit or employee of any state or local government, that were directed, supervised, made at the request of, made with the knowledge of, or connected in any way with any agency or other unit of the United States government.
+
+8. The number of wiretaps or other electronic surveillances conducted in a foreign country in which the object or target of the surveillance was a United States citizen and which were directed, conducted, supervised, made at the request of, made with the knowledge of, or connected in any way with any agency or other unit of the United States government.
+
+B. For each of the periods calendar year 1971, January 1, 1972 to June 19, 1972, June 20, 1972 to December 31, 1972, and January 1, 1973 to September 30, 1973, please provide:
+
+9. a. The number of electronic surveillances that were installed in cases involving domestic security, as defined in United States v. United States District Court and as referred to in Mr. Kleindienst's statement of June 19, 1972.
+   b. The number of electronic surveillances that were installed with respect to activities of a foreign power or foreign agents as described in United States v. United States District Court, 407 U.S. at 322.
+   c. The number of electronic surveillances that were installed on domestic organizations and individuals with a "significant connection with a foreign power, its agents or

@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_15192.png
+
+Convert to MarkdownMemorandum Mr. Donahoe Mr. Belmon
+Re: Intelligence Coverage of Friend y Foreign Countries
+
+(Semiannual Evaluation)
+
+65-63113
+
+On a continuing basis it produces information of value to State Department in its formulation of foreign policy and handling of international relations and to the Bureau in its investigative and intelligence responsibilities.
+
+RECOMMENDATION:
+
+Recommend d program be continued in present form. Re-evaluation will be submitted i December, 1960.

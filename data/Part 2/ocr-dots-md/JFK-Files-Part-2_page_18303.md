@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_18303.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY ATTORNEY GENERAL
+
+WASHINGTON, D.C. 20530
+
+SEP 25 1975
+
+TO: John A. Mintz, Assistant Director
+Legal Counsel Division
+Federal Bureau of Investigation
+
+FROM: Michael E. Shaheen, Jr.
+Special Counsel for Intelligence
+Coordination
+
+SUBJECT: Senate Select Committee Request:
+COINTELPRO Documents
+
+The attached letter from the Senate Select Committee is self-explanatory and requests that the documents in the two attached packages be cleared for the Committee's use at public hearings. Because the hearings are scheduled to begin September 30, your prompt attention to this request is invited.
+
+cc: Paul Daly
+
+EX-108
+
+REC-1
+
+SEP 29 1975
+
+LEGAL CONSEL
+
+1-4 MAY 1 3 1975
+A.M. to 9-25-75
+62-116395
+5-EH
+S-CH
+
+84 MAY 1 3 1975
+
+NW 88326 DocID:32989653 Page 301

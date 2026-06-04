@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_19021.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+Jaffe made the following comments when shown photographs of Soviet nationals identified by WF T-2 as officers of the Special Section of the Second Chief Directorate (SCD), KGB, working against foreign correspondents and its successor. Department 10, SCD, KGB.
+
+1. Yevgeniy Nikolayevich Aleshin: Jaffe stated he thinks he knew this individual when he served with the SMUN, New York City.
+
+2. Vadim Osipovich/Biryukov: Jaffe indicated he thought this individual was associated with KGB. Jaffe said he spoke excellent English and formerly worked for Time-Life in Moscow and now works for Novosti. He stated "Time-Life got a lot of things through him and his contacts." Jaffe described him as a very sharp, "hard-nosed" individual who wore western-style clothes, including button-down sport shirts. Jaffe stated he met this individual at Soviet receptions.
+
+3. Evgeniy Petrovich Gromakovskiy: Jaffe stated he is sure he has met this man, probably in the United States, possibly New York, rather than in Russia. Jaffe stated he "Never had any dealings" with him, and possibly met him at some luncheon or reception.
+
+4. Mikhail Vasilevich Kalinkin: Jaffe stated he definitely has met this individual. He thinks he first met him during Khrushchev's visit to the United States, and he also has seen him in Moscow.
+
+5. Vyacheslav Ivanovich Kevorkov: Jaffe stated this individual is connected with KGB and commented: "Evil S.O.B. This is the man who said he was Secretary of the Union of Journalists."
+
+Jaffe indicated he first met Kevorkov in the company of the young Soviet poet, Stasa Yeftisev (phonetic) in Helsinki during the Youth Festival. According to Jaffe, Jena (Anastasia)/Stevens, daughter of American correspondent Edmund Stevens, and this poet secretly used Jaffe's Moscow office to engage in sexual intercourse until Jaffe learned about it and ordered them to stop using his place.
+
+SECRET
+44
+
+NW 88326 DocId:32989704 Page 315

@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_9516.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+CONFIDENTIAL
+
+1 - MIG, Detroit (RM)
+
+1 - Secret Service, Detroit (RM)
+
+1 - OSI, Dayton, Ohio (RM)
+
+Copy to:
+
+1 - NIS, Chicago (RM)
+
+Report of: SA DONALD V. RITENOUR, JR.
+Date: 1/6/71
+
+Field Office File #: 157-3075
+
+Title: BLACK PANTHER PARTY (BPP)
+NATIONAL COMMITTEE TO COMBAT FASCISM (NCCF)
+DETROIT DIVISION
+
+Character:
+SECURITY MATTER - SMITH ACT OF 1940;
+SEDITIOUS CONSPIRACY, REBELLION AND INSURRECTION
+
+Synopsis:
+The Detroit NCCF continues to operate under the direction of BPP National Headquarters, Oakland, Calif., who sent a representative to take charge of the Detroit NCCF. The Detroit NCCF is operating Free Breakfast and Clothing Programs in Detroit and a Free Breakfast Program in Flint, Michigan. In Flint they are in the process of fortifying their office. Detroit is receiving free electric service at 611-613 Continental as the NCCF has by-passed the electric meter and refuse to allow the electric company on the property to turn off the electricity. The NCCF continues to hold political education classes on Sundays and recently obtained Army manuals on explosives.
+
+- P -
+
+DETAILS
+
+<table><tr><td>CONFIDENTIAL</td></tr><tr><td>GROUP 1</td></tr><tr><td>Excluded from automatic downgrading and declassification</td></tr></table>
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

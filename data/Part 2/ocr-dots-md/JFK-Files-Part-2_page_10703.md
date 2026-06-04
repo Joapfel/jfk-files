@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_10703.png
+
+Convert to MarkdownPH 52-7165 Sub 3
+
+TABLE OF CONTENTS
+
+<table><thead><tr><th></th><th>Page Number</th></tr></thead><tbody><tr><td>I. PROSECUTIVE ACTION</td><td>3</td></tr><tr><td>II. DETAILS OF EACH INDIVIDUAL ARREST</td><td>6 - 124</td></tr><tr><td>1. Dr. WILLIAM ALBERT JOSEPH ANDERSON</td><td>7</td></tr><tr><td>2. Rev. MILO MARION BILLMAN</td><td>7 - 14</td></tr><tr><td>3. TERRY EDWARD BUCKALEW</td><td>15 - 18</td></tr><tr><td>4. PAUL BERNARD COUMING</td><td>19 - 22</td></tr><tr><td>5. Father MICHAEL JOSEPH DOYLE</td><td>23 - 28</td></tr><tr><td>6. ANNE GRANT DUNHAM</td><td>29 - 32</td></tr><tr><td>7. Father PETER DONALD FORDI</td><td>33 - 37</td></tr><tr><td>8. KEITH WILLIAM FORSYTH</td><td>38 - 41</td></tr><tr><td>9. MICHAEL JOHN GIOCONDO</td><td>42 - 46</td></tr><tr><td>10. ROBERT GLENN GOOD</td><td>47 - 51</td></tr><tr><td>11. JOHN PETER GRADY</td><td>52 - 55</td></tr><tr><td>12. MARGARET MARY INNESS</td><td>56 - 61</td></tr><tr><td>13. FRANCIS MEL MADDEN</td><td>62 - 68</td></tr><tr><td>14. LIANNE MARIE MOCCIA</td><td>69 - 73</td></tr><tr><td>15. BARRY JAMES MUSTI</td><td>74 - 79</td></tr><tr><td>16. JOAN MARY REILLY</td><td>80 - 94</td></tr><tr><td>17. ROSEMARY ELIZABETH REILLY</td><td>95 - 100</td></tr><tr><td>18. KATHLEEN MARY RIDOLFI</td><td>101 - 107</td></tr><tr><td>19. JOHN ROBERT SWINGLISH</td><td>108 - 113</td></tr><tr><td>20. SARAH JANE TOLI</td><td>114 - 118</td></tr><tr><td>21. ROBERT WILLIAM WILLIAMSON</td><td>119 - 124</td></tr></tbody></table>

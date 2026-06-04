@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_16569.png
+
+Convert to MarkdownSSC LETTER 8/20/75
+
+PART II
+
+ITEMS # 4 and 5
+
+AND
+
+PART IV
+
+ITEM # 2 g and h
+
+N# 88613 Docd:32199554

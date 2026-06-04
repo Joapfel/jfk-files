@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_18790.png
+
+Convert to MarkdownNY 134-3315
+
+Indices of this office do not contain any references reflecting derogatory information with respect to JAFFE's wife.
+
+JAFFE's wife's mother's name is JOSEPHINE A. CAVE, who resides at 19 E. 72nd St., NYC.
+
+In the case entitled, "Bureau file 65-58632, there is a reference which reflects that on 10/17/50, St., NYC, was in touch with Rumanian the US, who has been in exile, having resigned his position in furnished information alleging recruitment into the MGB on However, he was exhaustively interviewed on numerous occasions and steadfastly and vehemently denied this allegation. apparently circulated in social circles in NYC and its contact with him is not believed to be significant in and of itself.
+
+Information in the files of this office reflect that Mrs. JOSEPHINE AUGUSTE/CAVE, born 11/22/10, in Cleveland, Ohio, subject's mother-in-law, entered the US on 6/12/43, to visit her daughter, JOSEPHINE CLARK WINTER at 912 5th Ave., NYC. She intended to return to England and said she was presently married to Lt. Col. GERALD E. CAVE, British Army, Royal Artillery 83, Light Anti-Aircraft Division.
+
+The records of the Credit Bureau of Greater NY, when checked by IC ALFRED G. ENNULAT on 10/8/58, did not contain any information with respect to CAVE.
+
+JAFFE is not known to have any marital difficulties or domestic problems.
+
+There are leads outstanding in other divisions concerning background investigation of subject. For this reason, no request is being made by this office to contact

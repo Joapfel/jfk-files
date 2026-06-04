@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_9713.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+
+8/13/74
+
+Date of transcription.
+
+VINCENT RAMPONE, 545 Hamilton Avenue, was interviewed regarding any knowledge he may have as to how WILLIAM ERIC CARROLL was in possession of RAMPONE's driver's license and Social Security Card.
+
+RAMPONE advised he is a close friend of JAMES KEITH, known to him as TEX, and on the evening of June 12, 1974, KEITH and JAKE visited his apartment. They stayed there for several hours talking about things in general.
+
+JAKE then began to go off on a right wing tangent and talked about "niggers and how they should be sent back to Africa." RAMPONE told KEITH that this individual was not welcome in his house inasmuch as he, RAMPONE, did not advocate the right wing program. At that time KEITH stated a FRANK DRAGER needed a garage to park his car. RAMPONE then realized DRAGER was also a right wing extremist and declined this request. He stated that at that time JAKE had access to his bedroom and bathroom and possibly obtained some of this identification at that time. RAMPONE showed his original driver's license and indicated the only thing JAKE could have obtained was an old temporary driver's license which was probably laying on his dresser.
+
+Interviewed on 8/1/74 at Trenton, N.J.
+
+File # NK 157-2011
+
+by SA CHARLES F. MOFFETT /mla Date dictated 8/7/74
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

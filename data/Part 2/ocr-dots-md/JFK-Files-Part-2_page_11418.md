@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_11418.png
+
+Convert to MarkdownII. [Activity in support of Cuban regime
+
+Careful consideration should be given to recommending
+for inclusion in the security index those individuals
+who in the light of the clear identification of the
+Cuban Government as procommunist, pro-Soviet bloc,
+and anti-U. S., would be deemed dangerous or potentially
+dangerous to the internal security of the U. S. in the
+event of an emergency involving Cuba and the U. S.
+In connection therewith, there should be a substantial
+showing of data within the following standards:
+
+(A) An individual has served as a leader or officer or
+has substantially participated in the activities
+of a pro-Castro organization and has engaged in
+activities which have included either the preparation
+or distribution of pro-Cuban or anti-U. S. propaganda;
+the active collection of funds for any agency or
+representative of the Cuban Government or for a
+pro-Castro group, which funds are not intended for
+the relief of human suffering or other charitable
+purposes; active participation in acts of violence
+against anti-Castro individuals or groups or
+against the U. S.; or the active collection of
+intelligence data regarding the national defense
+of the U. S. or which would serve the purposes
+of the Cuban Government as opposed to the interests
+of the U. S., where there are reasonable grounds
+to believe that such data is to be or has been
+conveyed to any agency or representative of the
+Cuban Government.
+
+(B) An individual, whether he has participated in
+organizational activity or not, has engaged in
+one or more activities specified in (A) above and
+it has been clearly established, by overt acts or
+statements or other evidence, that there are
+reasonable grounds to believe the loyalty of the
+individual would lie with the Cuban Government in
+the event of armed conflict between the Cuban
+Government and the U. S.
+
+(C) Aliens of Cuban nationality and aliens holding Cuban citizenship should be considered for the security index when it is determined that one of these (1) is likely to foster, encourage, or promote the policies, programs, or objectives of the Cuban Government, or collaborate with the Cuban Government or (2) is likely to engage in or attempt to engage in acts of espionage, sabotage, or other activities inimical or detrimental to the defense or public safety of the U. S. as shown by overt acts or statements established through reliable sources, informants, or individuals. Activities on a subject's part which should be considered in determining whether his name should be added to the security index under the foregoing would include but should not be limited to (1) participation in organizations supporting the Castro regime, (2) participation in picket lines formed in support of the Cuban Government, (3) contacts with Cuban agents operating in this country on behalf of the Cuban Government, or (4) statements or activities on a subject's part establishing reasonable grounds to believe that his loyalty would lie with the Cuban Government in the event of armed conflict between the U. S. and Cuba.

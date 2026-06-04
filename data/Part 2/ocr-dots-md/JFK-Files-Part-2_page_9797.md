@@ -1,0 +1,62 @@
+# JFK-Files-Part-2_page_9797.png
+
+Convert to Markdown1 - Mr. J. B. Adams
+
+2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+
+3 - Mr. T. W. Leavitt
+(1 - Mr. W. O. Cregar)
+(1 - Mr. T. J. McNiff)
+
+March 3, 1976 #MDR-6 2/6/01
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 2/6/01 BY SRJALMRO
+
+62-116395
+
+U.S. SENATE SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+Reference is made to SSC letter dated February 9, 1976, requesting appropriate FBI materials describing the policy and procedures of the Bureau for investigations carried out pursuant to Executive Order (EO) 10450, (enclosed), as amended, including, but not limited to, the standards for checking the names for Federal employees or prospective employees in FBI files (a National Agency Check) the standards for determining whether or not there is "derogatory information" in the FBI files, the policies for dissemination of such information, and the circumstances under which the FBI will conduct its own investigation of a prospective Federal employee. Set forth below is this Bureau's response to the requests mentioned in referenced letter. Also enclosed are materials responsive to the requests mentioned in referenced letter.
+
+Policies and Procedures of the FBI for
+Investigations Pursuant to EO 10450, as Amended
+
+Executive Order (EO) 10450, as amended, came into existence on April 27, 1953, and serves as the basic authority under which most personnel investigations are conducted at the present time involving applicants and employees in the Executive Branch.
+
+EO 10450, in its preamble, states that the interests of the national security require all persons privileged to be employed by the Government shall be reliable, trustworthy, of good conduct and character, and of complete and unswerving loyalty to the United States.
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Qualifying
+Count.
+Res. Rm.
+Sec'y
+
+Section 2 requires the agency head to maintain an effective program to insure that the employment or retention of applicants and employees is clearly consistent with the interests of the national security.
+
+Original and one copy to AG.
+
+GLS:pln/kkk
+
+ENCLOSURE
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+GPO : 1975 O - 569-920

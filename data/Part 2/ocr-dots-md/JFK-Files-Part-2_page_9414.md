@@ -1,0 +1,54 @@
+# JFK-Files-Part-2_page_9414.png
+
+Convert to MarkdownDE 157-3075
+
+MICHAEL DENNIS HILL, BPP, California, is now
+leader of the Detroit NCCF; OLIVER MC CLURE having been
+purged. CHARLES HOLT is second in command and LORENE
+BANKS is financial secretary. EDGAR ROBINSON is distribution
+manager for "The Black Panther" newspaper, and RONALD SMITH
+is in charge of the Free Clothing Program.
+
+WAYNE THEODORE ROBERTSON is in charge of the
+NCCF branch at Flint, Michigan.
+
+DE T-1
+
+November, 1970
+
+KENNETH HORSTON, BPP, San Francisco, is the present
+leader of the Detroit NCCF as MICHAEL DENNIS HILL, former
+leader, left the area because he was afraid of being implicated
+in the shooting of two Detroit Police Officers on October
+24, 1970.
+
+RONALD SMITH is in charge of the Free Clothing
+Program.
+
+EDGAR ROBINSON is in charge of distribution of
+"The Black Panther" newspaper.
+
+RONNIE IRWIN is in charge of the NCCF office at
+3595 17th Street, Detroit, and resides at this location.
+
+TONY NORMAN is officer of the day at 3595 17th
+Street, Detroit, and resides at this location.
+
+LARRY POWELL is officer of the day at 611
+Continental, Detroit, and resides at this location.
+
+DORTHEA SMITH is in charge of communications.
+
+ALICE RAYFORD is in charge of finances.
+
+LORENE BANKS, who is now living at 611 Continental,
+is in charge of the Breakfast Program.
+
+WAYNE THEODORE ROBERTSON is in charge of the
+Flint Branch of the Detroit NCCF.
+
+DE T-1
+
+January 4, 1971
+
+NWW 88296 DocId:32989574 Page 323

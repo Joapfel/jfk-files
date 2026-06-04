@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_9731.png
+
+Convert to Markdown18. Immediate return to our original form of the Republic as prescribed by our founding Fathers.
+
+19. Immediate abolition of all unfair usery practices, i.e./ Unfair mortgage practices, etc.
+
+20. Immediate re-organization of the Nations unsatisfactory school system. Establishment of free education system and trade school and apprentice program.
+
+21. Immediate return to the Sovereign Rights of States.
+
+22. Instant revision of the Social Security system to allocate appropriate relief immediately and henceforth to those elderly and needy citizens.
+
+23. Immediate abolition of all Government "payoffs" to corporations and farms for not producing or growing products and for ridiculous depletion payoffs. Total elimination of all Government price fixing but not necessarily certain price ceilings and/or some controls to protect the public.
+
+24. Immediate allocation to the formation of an agency to scientifically and objectively investigate thoroughly, the harm and damages caused by various use of all drugs. Their rapid but thorough study will be presented to the American public thus creating in some cases more liberal and in other cases more stringent laws governing the use and sale of drugs.
+
+a. Stiffer penalties for users of illegal drugs.
+
+b. Harsher penalties for sales of drugs.
+
+c. Death penalties for suppliers of forbidden drugs.
+
+d. Abolition of drug "give away" programs.
+
+25. Immediate re-establishment of a just law and order for the protection of all American Citizens and the elimination of Americas enemies.

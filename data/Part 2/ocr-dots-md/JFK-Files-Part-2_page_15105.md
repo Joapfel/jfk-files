@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_15105.png
+
+Convert to MarkdownCIVIL RIGHTS CASES HANDLED
+
+1965-1969
+
+FISCAL YEARS
+
+*ALL-TIME HIGH
+
+1881
+
+NW 88613 DocId:32199554
+
+Page 602

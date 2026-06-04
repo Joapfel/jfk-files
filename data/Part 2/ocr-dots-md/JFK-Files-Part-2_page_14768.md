@@ -1,0 +1,56 @@
+# JFK-Files-Part-2_page_14768.png
+
+Convert to Markdown1 - Mr. C. D. DeLoach
+
+5/28/69
+
+Airtel
+
+To: SAC, WFO (134-6831)
+
+From: Director, FBI (134-15133)
+°CNF. INFT
+INFORMANT
+
+Reurairtel dated 5/23/69 captioned "World Congress of Women, Helsinki, Finland, June 14 - 17, 1969; IS - R."
+
+Authority granted to advance the informant up to $800 over and above existing expense authorization to cover expenses connected with attendance at the World Congress of Women.
+
+Insure the source is expeditiously and thoroughly debriefed upon return to the United States and advise Bureau of results. Secure an itemized list of expenses and any excess monies should be returned to your office by the informant.
+
+1 - Mr. M. F. Row (6221 IB)
+
+FEG:djb
+(10)
+
+NOTE:
+
+See memorandum C. D. Brennan to Mr. W. C. Sullivan, dated 5/28/69, captioned "World Congress of Women, Helsinki, Finland, June 14 - 17, 1969; IS - Miscellaneous," prepared by FEG:djb.
+
+JUN 10 1969
+
+RECD
+
+JUN 5 1969
+
+<table><tr><td>MAILED 10</td></tr><tr><td>MAY 29 1969</td></tr><tr><td>FBI</td></tr><tr><td>COMM-FBL</td></tr></table>
+
+Tolson ____
+DeLoach ____
+Mohr ____
+Bishop ____
+Casper ____
+Callahan ✓
+Control ____
+Felt ____
+Sale ____
+Rosen ____
+Sullivan ____
+Travel <del>
+Trooper ____
+<ins>NW 88613</ins> Dcld:32199554
+Holmes ____
+
+Page 265
+
+TELETYPE UNIT ☐

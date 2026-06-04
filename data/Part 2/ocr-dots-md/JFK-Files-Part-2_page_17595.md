@@ -1,0 +1,59 @@
+# JFK-Files-Part-2_page_17595.png
+
+Convert to Markdown62-116395
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 2 - 20 81 BY S.A. SMITH
+U. S. SENATE SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+RE: INTERVIEW OF RETIRED FBI
+SPECIAL AGENT (SA) BY SSC
+STAFF MEMBER
+
+April 28, 1975
+
+1 - Mr. W. O. Cregar
+
+1 - Mr. J. G. Deegan
+
+1 - Mr. S. F.
+Phillips
+
+Set out below is information available to the FBI concerning captioned matter.
+
+SSC Interview of Retired FBI SA Lish Whitson
+
+On the afternoon of April 23, 1975, Mr. Lish Whitson personally appeared at the office of an FBI official, stated that he had just been interviewed by Mr. Michael Epstein, Staff Member of the SSC, and was desirous of reporting the results of that interview which Whitson related as follows:
+
+Epstein first asked Whitson when he entered the FBI, then he first arrived for assignment at FBI Headquarters, to which Headquarters Division he had been assigned, and when he retired. (FBI records reveal that Whitson joined the FBI as an SA November 20, 1933, and retired June 19, 1972. He was assigned at Headquarters December 16, 1941, attached to the Domestic Intelligence Division and served in that Division until his retirement. The current name for that Division is Intelligence Division). Epstein then told Whitson that he knew that Whitson had at one time railed a package to the Bureau of Investigation from Tampa, Florida, and asked Whitson to relate the details concerning this matter. Whitson thereupon
+
+**Asst. Dir.** — 
+**Dep. AD Adm.** — 
+**Dep. AD Inv.** — 
+**Admin.** — 
+**Comp. Syst.** — 
+**Ext. Affairs** — I - 100-106670 (Martin Luther King, Jr.) 
+**Files & Com.** — I - 67-29405 (Personnel File Former SA Lish Whitson) 
+**Gen. Inv.** — 
+**Ident.** — 
+**Inspection** — 
+**Intell.** — SFP:ekw 
+**Laboratory** — (11) 
+**Plan. & Eval.** — 
+**Spec. Inv.** — 
+**Training** — 
+**Legal Coun.** — 
+**Telephone Rm.** — 
+**Director Sec'y** — 
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+SEE NOTE PAGE FIVE
+
+GPO 954-545
+
+ENCLOSUNG
+
+NW 88296 DocId:32989628 Page 35

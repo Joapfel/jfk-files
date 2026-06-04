@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_9750.png
+
+Convert to Markdownof any derogatory information which it may have on file. The Federal Bureau of Investigation will at once open a full field investigation within the continental limits of the United States, etc., when such investigation is required by the availability of information within those areas. Completion of such investigation will be reported to the originating agency through normal channels.
+
+A. The Departments of Army, Navy, and Air Force will utilize their own facilities for the necessary investigation of any of their own civilian personnel stationed outside the continental limits of the United States, Alaska, Hawaii, Puerto Rico, and the Virgin Islands.
+
+B. With respect to the necessary investigation under Class II of any of the personnel of other Departments and Agencies stationed outside the continental limits of the United States, Alaska, Hawaii, Puerto Rico and the Virgin Islands:
+
+1. In occupied areas the Theater Commander will have full responsibility to utilize any appropriate investigative facility of the United States available in his area of command.
+
+2. In unoccupied areas the principal diplomatic officer will be responsible for utilizing any investigative facility of the United States which is available in the country of his jurisdiction, or, if there is no such investigative facility available within the country of his jurisdiction, he shall refer the matter to the principal diplomatic officer stationed in a nearby country in which investigative facilities are available.
+
+The reports of completed investigation shall be forwarded to the Federal Bureau of Investigation through normal channels.
+
+It is understood that the declaration of emergency, or the establishment of martial law within areas of the continental United States, Alaska, Hawaii, Puerto Rico, or the Virgin Islands will have the effect of making those areas "occupied territory," with the consequent application of procedures described in sections IA and EI and IIA above.
+
+The agreement which this memorandum serves to record has to do only with the establishing of a method of handling actual investigations in areas where the Federal Bureau of Investigation has no investigative facilities. Furthermore, the procedures herein prescribed do not purport to limit in any way, or delay the exercise of, the authority possessed by

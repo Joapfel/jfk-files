@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_10812.png
+
+Convert to MarkdownDate: August 25, 1971.
+
+At approximately 4:35 a.m., the residence at 20 North 4th Street, Camden, N. J., was entered through the front door, which was open, and numerous other FBI agents were already in the house.
+
+After assisting in conducting a brief search of the house, three individuals were located in the second room on the first floor as you enter the house. These individuals were two white females and one white male who would not identify themselves. They were verbally advised of the agents' identity by show of credentials, and of the charge of conspiracy to destroy government property. They were placed under arrest and were placed against the wall, where they were patted down for possible weapons. SAs PHILIP E. BROWN and KLAUS C. ROHR were specifically requested to observe the patting down for these weapons, and then the pockets of the individuals were emptied and the contents were placed at their feet.
+
+One of the white females, who later identified herself as SARAH JANE TOSI, was handcuffed and taken to the Bureau car to await transportation to the U. S. Post Office in Camden, N. J., for processing. The items which had been taken out of TOSI's pockets were as follows: one one-dollar bill, three quarters, two dimes, one penny, and one mechanical light blue pencil with the following information on the pencil: "Vic's Cafe, 852 Ferry Avenue, Camden, N. J., Phone EM 5-0993."
+
+As TOSI was being placed in the Bureau car, SA J. PATRICK CUNNINGHAM assisted and stayed with TOSI from that time on along with SA ALLAN E. MEYER.
+
+8/22/71
+
+of Camden, N. J.
+
+File: Philadelphia 52-7165-SUB-
+
+MEYER, PHILIP E. BROWN, FEB 17/71 AEM:EMR
+
+AEM:ENR
+Date Issued: 8/23/71
+
+(under reconditons not conclusions of the FBI. It is the property of the FBI and is leased to your agency:
+To be distributed outside your agency.)

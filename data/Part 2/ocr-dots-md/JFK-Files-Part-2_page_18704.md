@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_18704.png
+
+Convert to MarkdownSECRET
+
+Memorandum to Mr. W. R. Wannall
+Re: Senstudy 75'
+62-116395
+
+2. If Thwait's niece declines cooperativeness, pertinent information obtained thus far will, in memorandum form concealing identity of source, be furnished via established liaison channels to the Department, CIA, and Senators Church and Tower. Additionally, a lead will be sent to the Memphis Office to interview Professor Katz at the University of Vanderbilt in an attempt to corroborate the allegation.
+
+SECRET
+
+EHW 88326 DocId:32989627 Page 302
+
+- 4 -

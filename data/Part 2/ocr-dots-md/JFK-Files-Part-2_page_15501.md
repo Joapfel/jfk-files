@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_15501.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+W. C. Sullivan
+R. D. Cotter RLE
+
+M
+
+I:CT:
+
+INTELLIGENCE COVERAGE OF
+NON-COMMUNIST COUNTRIES
+
+DATE: 7/12/65
+
+1 - Mr. Belmont
+1 - Mr. Sullivan
+1 - Liaison
+1 - Mr. Cotter
+1 - Mr. Jaquiss
+
+It is believed State Department clearances should be obtained to add Burma to list of countries approved by State Department under captioned program.
+
+Captioned program involves development by FBI of confidential sources and informants in diplomatic establishments of friendly foreign nations where:
+
+(1) It appears that country is leaning toward Sino-Soviet-bloc.
+
+(2) Where situation within the particular country involves serious diplomatic or military crisis.
+
+(3) Where it is clear investigation is needed.
+
+It is believed we should allow a time obtain State Department clearance to institute programs to develop sources and informants at Burmese diplomatic establishments in the United States.
+
+Burma is integral part of critical Southeast Asian area where United States is deeply involved politically, economically and militarily to stem the tide of Chinese Communist influence. The Burmese Government is carrying on protracted negotiations with the Burmese Communist Party, or White Flag, insurgents. Communist China has evidenced great interest in these talks. Any information we can obtain concerning Burma's attitude toward the United States or concerning the critical political and military situation in Southeast Asia should be of value.
+
+65-63113 REC-107
+
+1 - 105-97459 Sub 301 (Nationality Group Coverage - Asia)
+1 - 105-97459 Sub 264 (Nationality Group Coverage - Burma)
+
+18 JUL 22 1965
+
+HJJ:gas
+(8)
+
+CONTINUED - OVER---
+
+JUL 26 1965
+
+NW 88613 DocId:32199554 Page 998
+
+NOTICE COPY RECORDED ON DECEMBER 1, 1965

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_10807.png
+
+Convert to MarkdownThe following items were taken from SWINGlish after a search of his person:
+
+(1) Greyhound bus ticket, number 1 49120676 12 dated "20 Aug. 71" for travel between Washington, D. C., and Philadelphia, Pa.
+
+(2) White lined paper, 4 5/8" x 3 1/16"; on one side "CARL POPLAR" 0-966-2533 H-428-1813" on the other side "966-1386 MILO BILLMAN"
+
+(3) Blank white paper 2 15/16" x 4 15/16" with following writing on one side, "Graphic House, 3307 Conn. Ave. 362-4464" "Courtney Griffin, 2700 Conn. Ave." on the other side in black ink was number 833 in redink the following: 832 8695 832 0045 5512 Conn. 6:30 8:20
+
+(4) Pink slip 4 1/4" x 2 5/8" with following printed on front: "Thank you for using CENTRAL DELIVERY, Driver No. 3037 (in ink); Refer to the above number when verifying deliveries; For pick-up with in the hour 589-8500." On the reverse side in writing was the following: "15.41 50 4.00 $ 19.91" This was underlined and crossed out with $10.00 beside it. Below this was "EMMAUS."
+
+(5) Pink slip from Central Delivery with printing on front; the same as that previously described except there is no writing after Driver No. On the reverse side is the following:

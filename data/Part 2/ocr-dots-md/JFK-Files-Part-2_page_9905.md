@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_9905.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+
+February 3, 1970
+
+Date
+
+Miss JOYCE LEBRA, Associate Professor of History,
+University of Colorado, Boulder, Colorado; 1590 Hillside Drive,
+Boulder, advised she is a colleague of THOMAS RIHA in the
+Department of History and considers herself a close personal
+friend.
+
+At the outset of the interview, it was explained to LEBRA that the purpose of the interview was to ascertain any available information from her concerning Mrs. GALYA TANNENBAUM on whom this Bureau is conducting an investigation under the Federal Impersonation Statute.
+
+Miss LEBRA advised that to the best of her recollection RIHA never did mention anyone to her by the name of TANNENBAUM or any individual connected with Military Intelligence or the United States Immigration and Naturalization Service. She stated that if TANNENBAUM had been a close friend of RIHA's, this fact would probably have been known to her, as she and RIHA generally associated with the same circle of friends in the University community.
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 1/24/01 BY S2ALMP
+
+This document is prepared in response to your request and is not for dissemination outside our Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.
+
+On 1/21/70, Boulder, Colorado. File: Denver 47-3190.

@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_18805.png
+
+news editor from 7/31/51, to 11/30/51, and from 5/15/52, to 6/10/52.
+
+4. BENJAMIN SONNENBERG, NYC, in public relations as a reporter and writer of feature material on the Empire State Building, NYC, dates not listed.

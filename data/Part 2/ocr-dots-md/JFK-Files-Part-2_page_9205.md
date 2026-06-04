@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_9205.png
+
+Convert to Markdown<table><thead><tr><th>REPORTING OFFICE</th><th>OFFICE OF ORIGIN</th><th>DATE</th><th>INVESTIGATIVE PERIOD</th></tr></thead><tbody><tr><td>DETROIT</td><td>SAN FRANCISCO</td><td>7/9/74</td><td>5/14/73 - 6/20/74</td></tr><tr><th>TITLE OF CASE</th><th colspan="3">REPORT MADE BY</th><th>TYPED BY</th></tr><tr><td>BLACK PANTHER PARTY</td><td colspan="3">SA ROBERT W. MEYERS, JR.</td><td>dmz</td></tr><tr><th>CHARACTER OF CASE</th><th colspan="4"></th></tr><tr><td></td><td colspan="4">EM</td></tr></tbody></table>
+
+REFERENCE: Detroit report of SA LAWRENCE W. LEVINE, 5/9/73.
+
+-RUC-
+
+ADMINISTRATIVE
+
+Detroit chapter of BPP has closed all its offices, terminated all of its activities and all but two members have relocated in Oakland, California. In view of this fact, Detroit is considering this matter RUC.
+
+Detroit is maintaining cases on all active members until their location in Oakland, California is verified by San Francisco.
+
+<table><tbody><tr><td colspan="8">ACCOMPLISHMENTS CLAIMED ☐ NONE</td></tr><tr><td>CONVIC.</td><td>FUG.</td><td>FINES</td><td>SAVINGS</td><td>RECOVERIES</td><td rowspan="2" colspan="2"><strong>ACQUIT-TALS</strong></td><td rowspan="2" colspan="2"><strong>CASE HAS BEEN:</strong><br/>PENDING OVER ONE YEAR ☐ YES ☐ NO<br/>PENDING PROSECUTION<br/>OVER SIX MONTHS ☐ YES ☐ NO</td></tr><tr><td colspan="7"></td></tr><tr><td colspan="8"><strong>SPECIAL AGENT IN CHARGE</strong></td></tr><tr><td colspan="8"><strong>DO NOT WRITE IN SPACES BELOW</strong></td></tr><tr><td colspan="8">APPROVED <em>(Signature)</em></td></tr><tr><td colspan="8">COPIES MADE:<br/>① Bureau (105-165706 sub 15) (RM)<br/>I - Secret Service, Detroit (RM)<br/>2 - San Francisco (157-1204) (RM)<br/>1 - Detroit (157-3075)<br/><em>(Handwritten note below RECEPTIVE DATED 7 JUL 22 1974)<em>WECEIVED<br/><em>(Handwritten note below RECIPIENT DATED 15 JUL 1974</em></td></tr><tr><td colspan="8"><strong>Dissemination Record of Attached Report</strong></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8"></td></tr

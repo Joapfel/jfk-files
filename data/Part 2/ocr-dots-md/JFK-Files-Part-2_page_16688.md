@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_16688.png
+
+Convert to MarkdownFEDERAL CIRCULATION OF INVESTIGATION
+
+1
+
+Date 2/17/70
+
+pharmacist, Stineway Drugs, 2400
+Madison, Chicago, Illinois, advised that all their
+prescriptions are filed by number only and no records are
+kept on names of persons obtaining prescriptions at thei-
+store.
+
+was furnished the following names and
+advised that he does not recall any of these individuals
+obtaining prescriptions at their store:
+
+FRED A. HAMPTON
+MARK CLARK
+BRENDA HARRIS
+VERLINA A. BREWER
+BLAIR J. JOHNSON
+RONALD SATCHEL
+DEBORAH JOHNSON
+LOUIS TRUJOCK
+HAROLD BELL
+
+2/10/70
+
+Chicago, Illinois
+
+On SA and SA
+
+File #.
+
+2/13/70
+
+by Date dictated
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is licensed to other agencies: NW 88613 and 9564 be distributed outside your agency.
+
+Page 2185

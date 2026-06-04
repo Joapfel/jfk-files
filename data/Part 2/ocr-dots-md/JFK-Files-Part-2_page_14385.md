@@ -1,0 +1,90 @@
+# JFK-Files-Part-2_page_14385.png
+
+Convert to MarkdownNRØ14 NK CODED
+
+9:42PM URGENT 5/2/75 DJP
+
+TO DIRECTOR (62-116395)
+
+FROM NEWARK
+
+SENSTUDY 75
+
+FEDERAL BUREAU OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+MAY 04 1975
+
+TELETYPE
+
+<table>
+   <tr>
+    <td>Assoc. Dir.</td>
+   </tr>
+   <tr>
+    <td>Dep.-A.D.-Adm.</td>
+   </tr>
+   <tr>
+    <td>Dep.-A.D.-Inv.</td>
+   </tr>
+   <tr>
+    <td>Asst. Dir.:</td>
+   </tr>
+   <tr>
+    <td>Admin.</td>
+   </tr>
+   <tr>
+    <td>Comp. Syst.</td>
+   </tr>
+   <tr>
+    <td>Ext. Affairs</td>
+   </tr>
+   <tr>
+    <td>Files &amp; Com.</td>
+   </tr>
+   <tr>
+    <td>Gen. Inv.</td>
+   </tr>
+   <tr>
+    <td>Ident.</td>
+   </tr>
+   <tr>
+    <td>Inspection</td>
+   </tr>
+   <tr>
+    <td>Intell.</td>
+   </tr>
+   <tr>
+    <td>Laboratory</td>
+   </tr>
+   <tr>
+    <td>Plan. &amp; Eval.</td>
+   </tr>
+   <tr>
+    <td>Spec. Inv.</td>
+   </tr>
+   <tr>
+    <td>Training</td>
+   </tr>
+   <tr>
+    <td>Legal Coun.</td>
+   </tr>
+   <tr>
+    <td>Telephone Rm.</td>
+   </tr>
+   <tr>
+    <td>Director Sec'y</td>
+   </tr>
+  </table>
+
+RE: BUREAU TELETYPE TO ALEXANDRIA, MAY 2, 1975.
+
+FORMER SA, LEO THOMAS CLARK CONTACTED MAY, 2, 1975, BY SAC PAUL J. MOHR AND HE WAS TOLD HE MIGHT BE INTERVIEWED BY THE SSC STAFF MEMBERS AND THAT IF QUESTIONS WERE ASKED WHICH RELATED TO SENSITIVE BUREAU OPERATIONS HE COULD REQUEST THAT AN FBI AGENT BE PRESENT. CLARK VOLUNTEERED HE WAS SUBPOENAED BEFORE WATERGATE COMMITTEE AND TESTIFIED. ALL THIS MATTER WAS REPORTED IN PRESS.
+
+HE ALSO VOLUNTEERED THAT ON APRIL 17, 1975, HE WAS INTERVIEWED BY COMMITTEE STAFF MEMBERS IN WASHINGTON, D.C. ON SAME MATERIAL REGARDING 1964 DEMOCRATIC PARTY NOMINATION CONVENTION. STAFF MEMBERS WERE MICHAEL EPSTEIN, MONK GITERSTEIN, LOCK JOHNSON. HE SAID THEY HAD ALL OF HIS PREVIOUS TESTIMONY AND WENT OVER SAME, MATERIAL. AT THE END OF THE CONVERSATION, ARK BECAME BELIGERANT STATING HE ONLY TOLD THE TRUTH REGARDING HIS ACTIVITIES IN THE BUREAU AND ADVISED THE BUREAU TO DO THE SAME. HE WANTED TO MANOWT 1975 WHAT ASSISTANCE AN AGENT COULD RENDER TO HIM AND WHO INSTRUCTED THAT HE BE CONTACTED AND FOR WHAT REASON. CLARK WAS ADVISED WE MERELY INTENDED TO ASSIST HIM AND HE COULD ACCEPT IT OR NOT.
+
+FORMER SA, HOWARD J. WILSON, SHORT HILLS, N.J., ALERTED BY PERS. REC. UNIT
+
+84 MAY 15 1975
+
+NW 88296 DocId:32989532 Page 136

@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_15225.png
+
+Convert to MarkdownSAC, NPO
+
+12/6/61
+
+Director, FBI (105-97453-212)
+
+NATIONALITY GROUP COVERAGE - ECUADOR
+
+On 11/28/61 clearance was obtained from the Department of State for the Bureau to discreetly institute investigation designed to develop sources at the Ecuadorian establishments. Accordingly, recipient offices should institute a survey for the purpose of identifying persons employed at the Embassy of Ecuador, Washington, D. C., the Ecuadorian Mission to the United Nations, New York City, and the Consulate of Ecuador. New York City, particularly United States citizens, who might pass as potential as sources or informants. Submit your requests for investigation in this regard in separate 134 cases with a request for Bureau clearance to institute investigation in each individual case.
+
+Submit the results of your initial survey under caption 30 days after receipt of this communication and thereafter on a 90-day basis setting forth progress being made to develop confidential sources and informants until such time as adequate coverage is assured.
+
+Extra copies are being furnished NPO and New York for their files on the above-mentioned Ecuadorian diplomatic establishments.
+
+### 4 - New York
+
+* 1 - 65-63113 (Intelligence Coverage of Friendly Foreign Nations)
+* 1 - 62-57242 (Embassy of Ecuador, Washington, D. C.)
+* 1 - 105-New (Ecuadorian Mission to the United Nations, New York City)
+* 1 - 105-New (Consulate of Ecuador, New York City)
+
+TML:bjs
+(14)
+
+**NOTE:** On 11/28/61 Mr. J. P. McDonnell, Office of Security, Department of State, advised SA Orrin H. Bartlett that State Department approval was being granted the Bureau to develop sources and informants at the Embassy of Ecuador, Washington, D. C., and other Ecuadorian establishments if it should become necessary.
+
+NOT RECORDED
+
+167 DEC 23 1961
+
+<table><tr><td>YELLOW DUPLICATE</td></tr><tr><td>DEC 5 - 1961</td></tr><tr><td>MAILED</td></tr></table>
+
+64 DEC 12 1961
+
+NW.88613 Doctd:32199554 Page 722

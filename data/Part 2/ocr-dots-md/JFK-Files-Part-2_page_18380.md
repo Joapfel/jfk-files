@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_18380.png
+
+Convert to MarkdownMemorandum to Mr. Adams from Legal Counsel
+
+Re: SENSTUDY 75
+
+CIA directive to destroy or impinge on his decision to maintain the toxins and, further, the Presidential Order was directed toward offensive biological weapons of war in possession of the Department of Defense. Additionally, Dr. Gordon pointed out that the shellfish toxin over which he had custody was a chemical substance and could not be classified as a biological weapon.
+
+Former Director Helms will appear before SSC in public session, 9-17-75.
+
+**RECOMMENDATION:**
+
+For information.

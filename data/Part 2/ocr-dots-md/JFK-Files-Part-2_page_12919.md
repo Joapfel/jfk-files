@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_12919.png
+
+Convert to MarkdownUnited States Senate Select Committee
+To Study Governmental Operations with
+Respect to Intelligence Activities (SSC)
+
+In the FY 1963 material, on page 2, paragraph 1, the sentence beginning with "For example..." and ending "...the Bolshevik Revolution" should be excised.
+
+In the last paragraph on page 2 of this document, the word "key" in line 3 should be excised.
+
+In the enclosure to former Director Hoover's letter to the Honorable Robert F. Kennedy dated January 10, 1961, on page 2 the paragraph which has already been partially excised and which begins "A CP leader..." and which ends "...of the world" should be excised in its entirety. On page 3, the last remaining paragraph which begins "Through our security..." and ends "...aware of its plans" should be excised. On page 4 in the last paragraph, the sentence beginning with "In one phase..." and ending with "...monolithic unity" should be excised.
+
+In the Director's letter to the Attorney General dated September 2, 1965, paragraph 2, the following words or numbers should be excised: "two thousand," "774," and "two each day." These same excisions should be made in the Director's letter to the Honorable Marvin Watson dated September 2, 1965.
+
+With regard to the declassification of item number 1 identified in the SSC letter of November 4, 1975, it should be noted that the briefing by former Director Hoover on November 6, 1958, was afforded the President and his Cabinet rather than the President and the National Security Council.
+
+## 1 - The Attorney General
+
+**NOTE:**
+
+See letter to the Attorney General dated 11/14/75, captioned "United States Senate Select Committee on Intelligence Activities," prepared by DR:lfj.

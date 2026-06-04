@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_17379.png
+
+leader of the Security
+Staff (returned)
+
+This group allegedly registered into rooms 240
+
+NW 88613 DocId:32199554
+Page 2876

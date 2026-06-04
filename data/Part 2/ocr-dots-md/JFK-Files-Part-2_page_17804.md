@@ -1,0 +1,188 @@
+# JFK-Files-Part-2_page_17804.png
+
+Convert to Markdown5010-106
+
+UNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. Cleveland
+DATE: 4-3-75
+
+FROM : G. R. Steel
+
+SUBJECT: SENATE SELECT COMMITTEE ON
+INTELLIGENCE ACTIVITIES (SSC)
+HOUSE SELECT COMMITTEE ON
+INTELLIGENCE ACTIVITIES (HSC)
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Evd.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 7-18 75 BY SP2 AMI-K
+
+EX104 MCT
+
+PC REG44
+
+ACTION: For information. Since it appears the nucleus of the Committee has been formed, it is suggested Senator Church be contacted and queried regarding a more realistic (30 day) deadline on the remaining investigations concerning future staff members and their replacements.
+
+1 - Mr. Adams
+1 - Mr. Walsh
+
+1 - Mr. Mintz - (Legal Analysis Office)
+1 - Mr. Cleveland
+1 - Mr. Steel
+
+GRS:dc
+-6-
+
+APR 17 1975
+
+JUN 11 1975
+
+NW 88296 DocID:32989628 Page 244
+
+COPY FILED IN
+UNRECORDED COPY FILMED ON APR 18 1975
+
+UNRECORDED COPY FILED IN APR 18 1975
+
+APR 17 1975
+
+XEROX WCC
+
+APR 17 1975
+
+JUN 11 1975
+
+APR 18 1975
+
+APR 19 1975
+
+JUN 11 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1975
+
+JUN 12 1

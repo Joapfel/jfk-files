@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_18683.png
+
+Convert to MarkdownIII. Newly requested materials; delivery requested by Monday, August 11, 1975:
+
+A. All of Section 8 of the Manual of Instructions.
+
+B. Sections 1, 6, 7H, 7J, 8L, and 14F of the Manual of Rules and Regulations.
+
+C. Superseding versions of Section 6 of the Manual of Rules and Regulations, since January 1, 1960.
+
+D. The following materials referred to in memoranda previously delivered to SSC regarding FBI legal attaches:
+
+1. Memoranda of W. C. Sullivan of June 7, 1971, and June 16, 1971;
+
+2. Memoranda of Mr. Wannall of May 27, 1971, and May 28, 1971;
+
+3. Letter of Hoover to the President dated September 21, 1970;
+
+4. Memorandum of W. C. Sullivan dated September 22, 1970
+
+5. Memorandum of Mr. Brennan dated September 21, 1970;
+
+6. Memorandum of Mr. Child of May 23, 1969;
+
+7. Recommendations of Dalby, Felt, and Beaver upon the recommendation made in memorandum of Sullivan of June 7, 1971:
+
+8. Material pertaining to an inspection of all FBI foreign liaison posts conducted in 1971 pursuant to instructions from Hoover to Assistant Director Ponder in charge of inspections.
+
+E. Materials pertaining to the origin, operation, and termination of the Mass Media Program implemented by the former FBI Crime Records Division.

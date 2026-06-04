@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_12630.png
+
+Convert to Markdown7. Status
+
+Carry cases as pending until all active investigation has been conducted.
+Thereafter, status shall be as follows:
+
+a. Top functionaries
+   Pending inactive. Submit reports annually. Place case in pending-active status 45 days prior to date report due.
+
+b. Key facility cases
+   Pending inactive. See instructions under individuals employed in or having access to key facilities.
+
+c. Other security index subjects
+
+(1) Closed
+
+(a) Follow by administrative tickler to insure submission of periodic reports according to priority designation. If, following investigation, no subversive data is developed and information consists only of verification of residence and employment and negative contacts with sources, submit FD-400 in lieu of report setting forth identities of informants and sources contacted and any pertinent administrative data. Also submit FD-305 properly executed. Open case 45 days prior to date report due.

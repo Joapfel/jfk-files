@@ -1,0 +1,64 @@
+# JFK-Files-Part-2_page_15396.png
+
+Convert to Markdown1 - Mr. Schaefer
+
+SAC, WFO
+
+Director, FBI
+
+THAILAND ACTIVITIES IN THE UNITED STATES
+INTERNAL SECURITY - THAILAND
+
+ReBulets 5/20/58 and 6/29/59 both captioned
+"Intelligence Coverage of Diplomatic Representatives of
+Friendly Foreign Nations."
+
+Recently, CIA via liaison channels advised it
+was giving consideration to utilizing one Ruth Naomi Burney
+as a source of political information. She was born 6/29/30
+and is a citizen of the U. S. She resides at 1647 Lamont
+Street, Northwest, Washington, D. C., and is employed as a
+telephone operator at the Embassy of Thailand. CIA disclosed
+Burney is personally acquainted with certain CIA employees;
+however, no close friendship exists between her and the CIA
+employees. The Bureau advised CIA that Burney is of interest
+to us, and that we are giving consideration to developing
+her as a source of information. In addition, CIA was also
+informed that when subject is no longer of any interest to
+us, CIA will be advised.
+
+State Department clearance for the Bureau to institute a program to develop informants and sources within all diplomatic establishments of the country of Thailand in the U. S. was granted 9/15/59. Bureau authority is hereby granted Washington Field and New York Offices to conduct a survey regarding the identities of the individuals who can be utilized regarding captioned matter and, thereafter, submit recommendations as to individuals to be investigated in separate 134 cases with a request for Bureau authority for such investigation in each individual case. Include in your survey the names of sources and informants that are currently being used in the Thailand diplomatic establishments within your respective territories and/or the names of sources and informants not assigned to a Thailand diplomatic establishment who are in a position to furnish information regarding Thailand activities in the U. S. and in general.
+
+2 - New York
+
+Tolson ____
+Belmont ____
+Mohr ____
+Nease ____
+Parsons ____
+Rosen ____
+Tamm ____
+Trotter ____
+W.C. Sullivan -
+Tele. Room ____
+Holloman ____
+Gandy ____
+
+105-new
+
+VRS: bud (9)
+
+1 - 65-58587 (Embassy of Thailand)
+① - 65-63113 (Intelligence Coverage of Diplomatic Representatives of Friendly Foreign Nations)
+
+1 - 105-new (Ruth Naomi Burney)
+
+MAILROOM [ ] TELETYPE UNIT [ ]
+
+5 2 0075 1959
+
+NW 88613 DocId:32199554 Page 893
+
+ORIGINAL FILED IN
+
+SEE NOTE PAGE TWO

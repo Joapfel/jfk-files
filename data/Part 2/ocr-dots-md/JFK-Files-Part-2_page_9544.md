@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_9544.png
+
+Convert to Markdown# Who Are The Black Panthers?
+
+The 10 point program of the Black Panthers Party begins "We want our freedom. We want power to determine the destiny of our black community." The Black people in America were brought here from their native land as slaves, and ever since they have been kept on the lowest level of American society. They are a community of people with their own history, economic life, and culture. Yet they've never had political power over their own community. The Black Panther Party formed to fight for this political power.
+
+But the founders of the Black Panther Party, led by Huey P. Newton, knew that they had to have more than their goals. They had to understand how they were going to achieve them. Huey's answer was "Serve the People" and "Pick up the gun." The Black Panthers realized that the people can be liberated only by their own efforts, and that the Panthers had to reach out to their community, find out its needs, and respond to them. And they realized that "political power grows out of the barrel of a gun," that the people in the black community were being moved down by the police and had to defend themselves, and that political power over their community would never leave the hands of the rich and enter their own hands unless they combatted the police--the army of the rich.
+
+Huey first put his understanding of serving the people and picking up the gun into practice when he and Bobby Seale went out one night with a hammer and a shot gun to put up a stop sign that was badly needed by the community. Bobby stood guard with the shot gun while Huey hammered in the sign. Later, the Panthers started many health clinics, breakfast for children programs, and other community services.
+
+Because of what the Panthers want for their people, because they are going about getting it, and because the community is beginning to look towards them for leadership, their enemy is scared. So scared that they have started a nation wide campaign to destroy the Panthers. Fred Hampton was murdered in Chicago while he slept, Bobby Hutton was murdered in Oakland, Calif. as he walked out of a house with his hands up, both by police officers that still remain free. Black Panther and N.C.C.F. offices all across the nation (L.A., New Orleans, Toledo, Philadelphia) have been attacked and ransacked by police officers. And now Detroit joins the list, just as the N.C.C.F. here was beginning to start a free community health clinic and to gain the support of the community.
+
+But the Panthers continue to grow and sink deeper and deeper roots among the people. And all of us poor and working people, black and white, should be glad, should defend the Panthers and help them grow. For the Panthers are fighting the enemy of all poor and working people: the rich (e.g. the owners of GM) who run this country and control not only the black community but all of our communities, schools and factories. Huey says "We don't hate white people; we hate the oppressor." And so do we. We say right on Huey P. Newton. Power to the Black Panther Party! Power to the People! Free the Detroit 15!
+
+Committee to Free the Detroit 15
+
+N:W 88296 DocId:32989574 Page 453

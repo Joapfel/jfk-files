@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_18439.png
+
+Convert to MarkdownJune 27, 1975
+
+Within the Committee mandate, contained in S. Res. 21, there are four broad subjects relating to the intelligence community which we are required to investigate and study in order to determine the facts and ultimately to decide whether to make recommendations for legislative or other changes. They are:
+
+1. The structure, performance, and utility of government operations with respect to intelligence activities.
+
+2. Whether certain policies or practices are or are not illegal, unethical, or otherwise improper.
+
+3. Whether there has or has not been excessive duplication or inadequate coordination between and among intelligence agencies and, more generally, the efficiency of intelligence activities.
+
+4. Whether there has or has not been adequate internal and external control and oversight over the policies and practices of intelligence agencies.
+
+In attempting to find the answers to these fundamental questions, the Committee is proceeding in two ways. First, we are examining intelligence functions broadly as instruments of government policy, giving attention to the authority for particular functions, the problems which intelligence activities are designed to solve, the procedures by which intelligence activities are and have been proposed, approved, executed, evaluated, and terminated, the range and scope of the activities utilized to achieve intelligence objectives, and the propriety and utility of the activities undertaken. Second, we will examine in depth certain subjects within the broad topics of investigation. (We would, of course, welcome your suggestion of other cases that would give added insight into intelligence matters under your jurisdiction.) These specific subjects for investigation are not intended to limit the scope contained in the more general questions.

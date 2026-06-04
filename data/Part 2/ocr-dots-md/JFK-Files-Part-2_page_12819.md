@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_12819.png
+
+Convert to MarkdownSECRET
+
+MM 149-425
+
+business places in Southwest Miami. According to MEDINA, the source did not mention any of the out of town bombings and, not wishing to appear too inquisitive, he did not inquire about that.
+
+The source told MEDINA that the leader of this group, now known as Cuban Power, is MANUEL VILLAFANA who has worked for CIA for many years and is still directly employed by CIA. The other members of the group are not believed to be connected with CIA at this time, although many of them probably were in the past.
+
+The source told MEDINA that VILLAFANA and his associates have plenty of C-4 and C-5 and the know-how to use it.
+
+MEDINA stated he had no further information concerning this matter at present, but he will attempt to obtain more details and corroborating information.
+
+MANUEL VILLAFANA is the subject of Miami File 105-2615. This is a dead file which shows only that VILLAFANA was of operational interest to CIA in 1960.
+
+Miami file 62-3573 contains background information pertaining to VILLAFANA as follows:
+
+**MANUEL VILLAFANA MARTINEZ**
+Date of Birth: April 27, 1926
+Place of Birth: Camaguey, Cuba
+Parents: RAFAEL VILLAFANA TURINO
+OLEMA MARTINEZ ROURA
+Residence: Miami
+Occupation: Air Force Pilot
+In March, 1959, he was assigned to Mexico as Military and Air Attache with the rank of Captain.
+
+In 1963, VILLAFANA was one of many Cubans forbidden by INS to leave the United States.
+
+There are no recent references on VILLAFANA.
+
+SECRET
+
+AA
+
+HW 50953 DocId:32294534 Page 19

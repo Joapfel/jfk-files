@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_18724.png
+
+Convert to Markdown# FBI
+
+Date: 7/8/59
+
+Transmit the following in
+(Type in plain text or code)
+Vic AIRTEL
+(Priority or Method of Mailing)
+
+NY 134-3315
+
+LOUIS F. BUDENZ has described OPEN ROAD, INC., as a Communist created travel organization used in connection with securing transportation for Comrades between the U.S. and Russia.
+
+"Who's Who in American Jewry" for the year 1938 to 1939, indicates that GEORGE KEENAN HOURWICH was born in Washington, D.C., on 11/19/04, attended Harvard University, Auslander Institute (Berlin), Sorbonne University (Paris) and Fordham University.
+
+HOURWICH was the Secretary of READEX MICROPRINT CORP., This firm was in contact with Soviet and satellite officials and when officers of this firm were interviewed, they were cooperative. However, HOURWICH was not interviewed.
+
+Report of SA FRANCIS X. PLANT, dated 1/10/45, in the case entitled, reflects that the subject of this case walked into the office of the law firm in which HOURWICH was a partner on 11/1/44. , an Attorney, was an associate of ARTHUR ADAMS, prominent Soviet Espionage figure in the 1940s.
+
+HOURWICH was also attorney for JOSEPH ISRAELS and had power of Attorney over ISRAELS' bank account, according to information set forth in the report of SA T. SCOTT MILLER, dated 3/7/47, at N.Y., captioned,
+
+Approved:
+Special Agent in Charge
+Sent M Per
+
+NW 88326 DocId:32989704 Page 18

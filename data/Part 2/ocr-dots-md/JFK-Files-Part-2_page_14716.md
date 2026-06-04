@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_14716.png
+
+Convert to MarkdownSIRHAN BISHARA SIRHAN
+ASSASSINATION OF SENATOR
+ROBERT F. KENNEDY
+
+On June 5, 1968, Senator Kennedy was shot and killed in the Ambassador Hotel, Los Angeles, California, following a political speech. Sirhan Bishara Sirhan was identified by witnesses as the assailant. He was indicted by a Los Angeles County grand jury and charged with murder. Trial began at Los Angeles Superior Court on January 7, 1969. A jury has been selected and the trial is presently in progress.

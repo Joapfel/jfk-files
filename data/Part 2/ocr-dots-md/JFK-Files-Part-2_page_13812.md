@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_13812.png
+
+Convert to MarkdownB. The Internal Security Section (formerly Division)
+
+The Committee is examining the activities of the
+Internal Security Section of the Justice Depart-
+ment and its predecessor, the Internal Security
+Division. These entities have supervised the
+Department's internal security law enforcement
+activities, coordinated certain interdepartmental
+internal security policies, and engaged in the
+collection, analysis, and dissemination of intelli-
+gence.
+
+Questions
+
+The Committee requests that the Justice Department
+address the following specific questions:
+
+1. Under what circumstances, if any, has the Justice Department seriously considered prosecutions under the Smith Act and laws pertaining to seditious conspiracy, rebellion, or incursion, or "subversive activities", since January 1, 1960?
+
+2. To what extent has FBI intelligence activity provided valuable evidence for use in the prosecution of specific federal crimes?
+
+3. What have been the practices and procedures for coordination of policy through the Inter-departmental Committee on Internal Security?
+
+4. What have been the practices and procedures for the interdepartmental and interagency evaluation of domestic intelligence and domestic collection of foreign intelligence through the Intelligence Evaluation Committee and its predecessors?
+
+5. With respect to the Interdivisional Intelli-
+gence Unit and the Analysis and Evaluation
+Section of the Internal Security Division,
+
+a. What have been the practices and proce-
+dures of the Unit and Section for the
+gathering of intelligence?

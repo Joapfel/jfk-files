@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_11691.png
+
+Convert to MarkdownFEBRUARY 27, 1970
+
+MANUAL OF RULES AND REGULATIONS
+REVISION 212
+
+RE: REVISED PAGES
+
+There are enumerated below pages of the Manual of Rules and Regulations, enclosed herewith, which have been revised. Revisions appearing on these pages are identified by brackets. The date appearing at the bottom of the pages indicates the date of revision. The new pages should be inserted immediately in the appropriate section and the old corresponding pages should be removed and turned over to the Special Agent in Charge who has the responsibility for the appropriate destruction of these old pages.
+
+This cover letter should be retained until the next consecutively numbered letter is received. This will enable the field office immediately to detect the failure to receive the latest manual revisions.
+
+<table><tr><td>Table of Contents</td></tr><tr><td style="padding-left: 4em;">Pages 1 and 2</td></tr><tr><td style="padding-left: 4em;">Pages 3 and 4</td></tr><tr><td>Part I</td></tr><tr><td style="padding-left: 2em;">Section 5 - Pages 5 and 6</td></tr><tr><td style="padding-left: 4em;">Pages 9 and 10</td></tr><tr><td style="padding-left: 4em;">Pages 11 and 12</td></tr><tr><td style="padding-left: 4em;">Page 13 (Pages 14 and 15 deleted)</td></tr><tr><td style="padding-left: 2em;">Section 6 - Pages 1 and 2</td></tr><tr><td style="padding-left: 2em;">Section 13 - Pages 3 and 4</td></tr><tr><td style="padding-left: 4em;">Pages 5 and 6</td></tr><tr><td style="padding-left: 4em;">Pages 7 and 8</td></tr><tr><td style="padding-left: 4em;">Pages 9 and 10</td></tr><tr><td style="padding-left: 2em;">Section 14 - Pages 3a and 4</td></tr><tr><td style="padding-left: 4em;">Pages 5 and 6 (Page 5a deleted)</td></tr><tr><td style="padding-left: 4em;">Pages 7 and 8</td></tr><tr><td style="padding-left: 4em;">Pages 8a and 8b</td></tr><tr><td style="padding-left: 4em;">Pages 9 and 10</td></tr><tr><td>Part II</td></tr><tr><td style="padding-left: 2em;">Section 1 - Page 1</td></tr><tr><td style="padding-left: 2em;">Section 2 - Pages 5a and 6</td></tr></table>
+
+Index
+
+<table><tr><td>Pages 15 and 16</td></tr><tr><td>Pages 31 and 32</td></tr><tr><td>Page 34</td></tr><tr><td>Pages 41 and 42</td></tr><tr><td>Pages 43 and 44</td></tr></table>
+
+Enclosures (43)
+
+Director

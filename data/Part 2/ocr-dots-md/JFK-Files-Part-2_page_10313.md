@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_10313.png
+
+Convert to MarkdownCIA INTERNAL USE ONLY
+
+**Young:** Harry Eisenbeiss and Clarus Rice of CRS had frequent contacts with Young during the summer of 1972 in connection with Executive Order 11652 and the implementing NSC directive. This involved visits by Young to CIA to discuss information storage and retrieval and several meetings of an inter-agency group dealing with the implementation of the Executive Order and directive.
+
+3. In accordance with my instructions, several Offices reported domestic activities which might appear questionable to outsiders. Their responses are attached. Most of these activities are clearly within the Agency's charter, but there are a few which could be viewed as borderline.
+
+- DCS collects information on foreign students studying in the US.
+
+- DCS collects information on physicians practicing in the US who have studied abroad (mostly foreign nationals).
+
+- DCS accepts information on possible foreign involvement in US dissident groups and on the narcotics trade when sources refuse to deal with the FBI and BNDD directly.
+
+- DCS assesses the suitability and willingness of US citizens to cooperate with CIA.
+
+- DCS, for six months in late 1972 and early 1973, was acquiring telephone routing slips on overseas calls.
+
+Information deleted because it reveals sensitive operational techniques and methods.
+
+- NPIC and COMIREX review satellite imagery from NASA programs to identify photography too "sensitive" for public release.
+
+00181

@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_18995.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+IV. Allegations of WF T-3 Concerning Jaffe
+
+WF T-3 advised that the American correspondent, Sam Jaffe, was approached by the KGB in Moscow but does not know the details concerning this approach. WF T-3 stated he did not know if the KGB had been successful in recruiting Jaffe but believed the attempt failed. He reported that Yevgeniy N. Aleshin commented that when Jaffe was in Moscow he personally controlled all of Jaffe's actions and knew all the details concerning Jaffe's activities. Aleshin also commented that he regarded Sam Jaffe as a hoax.
+
+WF T-2 identified Aleshin by name and photograph and advised that until 1952 he was involved in Communist Party - Komsomol work; from 1952 - 1960 served in the 1st Department, SCD, KGB; and since 1960 or 1961 was Chief of 10th Department, SCD, KGB. While in the 1st Department he served in the 2nd and 3rd Sections; at one time was chief of the section dealing with Russians suspected of having connections with United States Intelligence, and from about 1959 - 1960 was Deputy Chief of the 1st Department.
+
+SECRET
+18
+
+NW 88326 DocId:32989704 Page 289

@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_16704.png
+
+Convert to Markdownto the back bedroom. The shot patterns are typical of those produced by buckshot. The area had been previously explored, but one-shot pellet remained at the time of the Laboratory examination of the scene, and it was removed for examination.
+
+All other holes appearing in the back bedroom have been logically associated by trajectories from shot sources fired elsewhere in the apartment.
+
+5. A part of the building at 2335 West Monroe Street, property next door to the apartment where the shooting occurred, is an enclosure referred to as a shed. This enclosure is over a porch leading to the back door of the apartment at 2335 West Monroe Street. On the side of this enclosure is a shot pattern typical of one produced by buckshot. The shot producing this pattern appeared to have been fired from the direction of the right window in the back bedroom.
+
+Inside the enclosure was an indentation in the side of a washing machine stored there that could have been produced by a buckshot, but nothing was found in the impression to permit its identification with buckshot.
+
+In the kitchen door was a hole that penetrated the door. The trajectory of the missile producing this hole led to a corner of the kitchen. No projectiles were found. The enclosure and kitchen of the premises referred to had been previously explored.
+
+No holes having the appearance of bullet holes were found in the kitchen or dining room other than the shot hole near the northeast corner of the dining room that has been described above.
+
+It was not possible to determine the sequence of the shots fired in the apartment.
+
+(continued on next page)

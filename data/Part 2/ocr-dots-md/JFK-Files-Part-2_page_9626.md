@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_9626.png
+
+Convert to Markdown3. Espionage. This involves the placing or recusing of agents within the enemy personnel where they can learn the enemy's plans first hand, steal the enemy's documents or materials, influence or misdirect the enemy's plans or policies.
+
+Suppose you had a chance to see some important document for just a few minutes. How quickly could you scan it for its essential content? How well could you separate the important from the unimportant? Could you record this information in a written message that can be easily read and will not be misinterpreted?
+
+Imagine that you are the leader of a patrol sent forward to observe and track an enemy column prior to a possible ambush. From time to time you will need to send back your observations in written form. Each S. A. O. member must develop the ability to put his thoughts on paper in such a way that they will be easily read and unmistakable.
+
+The first two projects are designed to give the new member an opportunity to test those skills while learning (or reviewing) basic elements of espionage activity. When these have been completed more advanced material will be furnished to the member directly. Useful intelligence projects of increasing complexity and importance will be assigned to those wishing to specialize in this work.
+
+SECURITY
+
+It is obvious what a great advantage we can gain over our enemies by proper information about their plans and activities. It is equally true that much of this advantage will be lost unless we can keep our plans and activities secret from them. This is the basic purpose of all security activities. Overall security operations of an underground movement can be divided into five basic parts:
+
+1. Protecting the identity of underground personnel and their families.
+
+2. Keeping secret the location, movements and plans of underground units.
+
+3. Keeping secret the location of underground headquarters, alternate hideouts and supply depots.
+
+4. Protecting the identity of civilians, or individual members of the population that are friendly to underground forces.
+
+5. Maintaining secrecy of communications.
+
+As we have already said it is difficult to even guess what forms the coming conflict will take. Nevertheless, the strategy of all successful underground movements must satisfy these three basic principles:
+
+First, is the "Principle of Deliberate Delay". During this state, the underground gathers its forces, checks its security, prepares its intelligence, establishes its line of communications and waits for the enemy to become complacent and overconfident.

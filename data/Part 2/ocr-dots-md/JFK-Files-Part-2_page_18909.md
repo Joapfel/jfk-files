@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_18909.png
+
+Convert to MarkdownALEKSANDR DAVIDOVICH SHVEITSER (SHVEYTSER)
+
+SECRET
+
+Chief Directorate (SCD), KGB "was contacting Yevtushenko, trying to influence him - to use" him; however, source indicated Bobkov was unsuccessful, and source described Yevtushenko as a "tough nut" to crack.
+
+Source was advised that during a recent visit of Shveitser to the United States with the Soviet group to attend the 20th International Pugwash Conference, Shveitser reportedly roomed at a hotel in New York City with Mikhail Ilich Bruk, another member of this group. (Source previously identified Bruk as a KGB agent.) Source stated the fact that Bruk and Shveitser roomed together while traveling abroad does not necessarily indicate that Shveitser also is a KGB agent. He said it would appear more logical for a KGB agent to avoid associating too closely with another KGB agent. Source stated Bruk is of Jewish background and he described him as a "very sharp agent - clever agent - he wasn't ordinary informer."
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your area.
+
+SECRET
+
+- 3*-
+
+NW-88326 DocId:32989704 Page 203

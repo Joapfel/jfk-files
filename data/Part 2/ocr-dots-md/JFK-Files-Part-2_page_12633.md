@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_12633.png
+
+Convert to Markdownd. Cases referred by military
+
+Military intelligence agencies often refer cases for security investigations under Delimitations Agreement in which security-type fraud violations are involved. If subversive information does not warrant full security investigation but does indicate possible fraud violation, advise interested agency that FBI's investigation will be directed toward proving possible violation of law and that any background investigation contemplated by it pursuant to its administrative responsibilities will not interfere with FBI investigation. Advise agency pertinent information developed will be furnished and request agency to do likewise. Immediately initiate security matter - fraud against the Government investigation. If subversive information warrants full security investigation and also indicates fraud violation, advise interested agency that Bureau is initiating full security investigation in conjunction with investigation of possible violation of law and results will be furnished. Conduct expedite investigation to determine subject's dangerousness and whether a fraud violation is involved.
+
+7. Submission of subversive derogatory information on individuals
+
+a. Offices covering national or local headquarters of various subversive groups should promptly furnish Bureau names and identifying data regarding persons affiliated with such groups, to include basic revolutionary organizations, fascist-type organizations, black extremist organizations, and front groups of these. Furnish Bureau such information by letter and, where appropriate, indicate that list of names is being furnished for Bureau indexing purposes.
+
+b. Information from all sources should be reviewed to insure Bureau has been furnished lists of all individuals affiliated with organizations enumerated in item a. Include information concerning a number of individuals in one letter if possible. Set out sufficient identifying data to facilitate check of Bureau files.
+
+c. Offices obtaining information regarding subversive affiliation of individuals residing outside their territories should promptly advise offices covering such persons' addresses.
+
+d. Names of subscribers to Communist Party nominating petitions and names appearing on subscription lists of subversive organizations should be indexed in field office covering address shown for subscriber but should not be forwarded to Bureau for indexing.
+
+e. Important subversive information concerning any individual and any new subversive information concerning an individual of importance should be furnished Bureau expeditiously.
+
+f. Subversive and/or derogatory information coming to attention of field office through name check or otherwise on employee of executive branch of Government, which information is within purview of EO 10450, should be forwarded promptly to Bureau for dissemination to Civil Service Commission. Such information relating to other employees of Government or employees of United Nations and other public international organizations should be furnished Bureau immediately.

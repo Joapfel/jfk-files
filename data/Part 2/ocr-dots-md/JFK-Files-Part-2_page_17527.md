@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_17527.png
+
+Convert to MarkdownBOBBY RUSH
+
+RUSH indicated that the Party would be purged to about 50 hard core members, then the structure of the Party would be rebuilt. From now on if a member is late or makes an error and cannot take the punishment, that member will be purged from the Party.

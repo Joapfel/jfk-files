@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_16804.png
+
+Convert to MarkdownWhite cotton fibers were present on Q200, Q201. Q213, Q215 and Q245; however, white cotton fibers are too common and possess too few individual microscopic characteristics to be associated with a particular source.
+
+Other fibers for which no source could be found were black synthetic fibers on Q200; a yellow-green cotton fiber, a white woolen fiber and a green paper fiber on Q201; a white synthetic fiber and three green paper fibers on Q210; a black woolen fiber, a red cotton fiber and a green paper fiber on Q215; a black woolen fiber on Q233; an orange woolen fiber on Q237 and a blue acrylic fiber on Q251.
+
+Fragments of foam were adhering to Q233. These foam fragments are different from the foam in the composition of the Q167 specimen.
+
+Fragments of tan paper were adhering to Q237. These paper fragments are different from the paper in the composition of the Q165 specimen.
+
+### PAINT EXAMINATIONS:
+
+Specimen Q208 bears deposits of paint which exhibit the following layer structure:
+
+(1) Light brown varnish
+
+(2) Beige paint
+
+(3) Dark brown paint
+
+Specimen Q218 exhibits deposits of a blue paint intermixed with plaster-like material.
+
+Specimens Q219 and Q235 exhibit thin contaminated deposits of a gray, paint-like material which is too contaminated for comparison purposes.
+
+Specimen Q237 bears heavy deposits of a gold metallic nitrocellulose lacquer paint.
+
+(continued on next page)
+
+80

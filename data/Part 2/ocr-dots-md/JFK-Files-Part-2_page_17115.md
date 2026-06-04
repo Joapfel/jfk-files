@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_17115.png
+
+Convert to MarkdownSource advised three individuals, alleged Chicago BPP members attended a meeting in Milwaukee, Wisconsin. When these individuals left the meeting they had in their possession, two M-1 Carbines allegedly purchased from an unidentified BPP member in Milwaukee. These three individuals stated they were returning to Chicago.
+
+; 8/18/69)
+
+Source advised that JOSEPH GRAY and DONALD SMILEY, BPP members were arrested with three other individuals earlier that date and charged with unlawful use of weapons and aggravated assault for shooting at ANDREW BLAIR, a Negro male, residing at 6943 South Justine Street, Chicago. BLAIR, at the time of shooting, was walking through the Chicago Housing Authority Project located at 5041 South Federal Street. BLAIR was not injured at the time of his arrest. SMILEY was in possession of a .25 caliber semi-automatic pistol. GRAY possessed a .22 caliber revolver.
+
+; 9/11/69)
+
+Source advised they had learned that the Royal Canadian Mounted Police (RCMP) had recently found plastic bombs, sawed off shotguns and smoke bombs as a result of a raid on an apartment in Ottawa, Ontario, Canada. The source stated three men were believed to have been residing at the apartment and were identified by the RCMP as ROBERT BRUCE, NATHANIEL JUNIOR and DENNIS HARVEY, Chicago BPP members in exile. BRUCE is wanted in Chicago on kidnapping and assault with intent to commit murder charges according to the sources. These sources also advised JUNIOR and HARVEY are wanted on bond default charges after they failed to appear in court as a result of charges filed earlier, charging them with attempting to purchase machine guns.
+
+; 10/1/69
+
+; 10.1.69)
+
+NW 88613 DocId:32199554
+Page 2612

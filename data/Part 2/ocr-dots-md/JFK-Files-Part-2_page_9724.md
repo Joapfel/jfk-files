@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_9724.png
+
+Convert to MarkdownNorth Eastern: Frank everything going well, awaiting word from the council for planned activities. Four men busted for non-political charges, they'll be OK. Slight problem with two Connecticut units--seems like they've been infiltrated.
+
+South Eastern: No problems, giving the Feds hell. No new units this month but existant units are all ready for action. Lets get going.
+
+Central: Lots of Federal activity out here and we haven't been able to do much. Waiting for word on Nationally co-ordinated effort. Eleven new cells formed, find information enclosed. Good meeting last month, keep up the good work.
+
+North Western: Apparently little or no Federal harassment. I think we are really in the clear out here. They still have little of no knowledge of the existence of our section.
+
+South Eastern: A real political hot bed. Following your instructions to lay low until we can get our hands on the Red bastards getting all the publicity. Kool Can't hold the units down out here they're all after blood. Hope they don't begin doing things without permission or until our little National thing can be done.
+
+Canada: Lots of excitement up here. Have made many inroads with other groups and should really get Central Canada going good soon.

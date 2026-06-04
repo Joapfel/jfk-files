@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_17378.png
+
+Convert to MarkdownIn Reply. Please Refer to
+File No.
+
+Chicago, Illinois
+
+February 11, 1969
+
+CONFIDENTIAL
+
+BLACK PANTHER PARTY (BPP)
+
+The following information, in summary form,
+was learned during the first nine days of February, 1969,
+by a source who has furnished reliable information in
+the past:
+
+See the attached appendix for a characterization
+of the BPP.
+
+During the first week of February, 1969, the
+following Chicago BPP member went to the University of
+Illinois, Champaign - Urbana, in a 1964 GT0, orchid purple
+Pontiac, bearing an unknown Illinois license, owned by the
+Dunn's (below), where they were to contact John Lee Johnson
+and Steve Jackson, residents in Champaign - Urbana area,
+regarding the establishment of a BPP in that area:
+
+Bobby Lee Rush, Deputy Minister of Defense
+
+Billy "Bones" Dunn
+
+Diane Dunn
+
+Ted Boston
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
+
+CONFIDENTIAL
+
+Group I
+Excluded from automatic
+downgrading and
+declassification
+
+NW 88613 DocId:32199554
+Page 2875

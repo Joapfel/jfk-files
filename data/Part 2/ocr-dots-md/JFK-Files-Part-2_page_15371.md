@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_15371.png
+
+Convert to MarkdownMemorandum to Mr. Belmont
+
+Re: INTELLIGENCE COVERAGE OF
+FRIENDLY FOREIGN COUNTRIES
+65-63113
+
+have 21 live sources in establishments of eight countries and 62 potential sources now under development assigned in establishment of 12 countries. This phase of intelligence coverage is sound, enhances Bureau's prestige as intelligence agency, and is based on long-range planning. Costs involved are those arising from intensive, thorough field investigations of potential sources (generally American employees in foreign establishments). Such costs considered fully justified in view of our responsibilities in the internal security field and as an intelligence agency.
+
+Examples cited to illustrate intermittent phases of captioned program, undertaken as need for coverage arises, and to explain manner in which other programs contribute to our coverage in this field.
+
+Based on detailed analysis, it is concluded that captioned program is working efficiently and effectively with due regard for cost factors and administrative controls.
+
+ACTION:
+
+It is recommended this program be continued in its present form at this time. Reanalysis and re-evaluation of the program will be undertaken in six months.
+
+DETAILS:
+
+The purpose of this memorandum is to evaluate and analyze our program concerned with intelligence coverage of friendly foreign countries. The memorandum recommends the continuation of this program in its present form with provisions for re-evaluation and reanalysis in six months.
+
+Basic Bureau policy is, and for several years has been, to conduct investigations of individuals representing "friendly" foreign countries (those outside the Soviet bloc) only in instances where we receive allegations that such individuals are engaging in activities in violation of our laws or otherwise constitute a security menace.
+(65-63113-5)
+
+NW 88613 DocId:32199554
+Pages:001

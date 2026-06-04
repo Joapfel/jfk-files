@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_17757.png
+
+Convert to MarkdownLegal Counsel to Mr. Adams Memo
+
+RE: CONGRESSIONAL COMMITTEES
+REVIEW OF FBI OPERATIONS
+
+RECOMMENDATIONS:
+
+(1) That all responses to Congressional inquiries concerning FBI operations be forwarded to the Congressional committees by letterhead memorandum through the Deputy Attorney General. Upon approval, these letterhead memoranda will be hand-delivered to the Deputy Attorney General's office by Legal Counsel Division.
+
+(2) That in instances where access to a particular document should be limited because of the contents of that document, a property stamp in line with the above be affixed thereto.

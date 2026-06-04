@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_12281.png
+
+Convert to Markdowndocument in the pertinent informant file and is not to be serialized. If a particular section of this form is not applicable, such should be noted thereon. If it did becomes applicable, the serial number can be noted at that time.
+
+## 12. Bulky material submitted by informant
+
+Where informant or source submits bulky material other than a statement and same pertains to a specific investigative matter, bulky material may be filed in the investigative case file, together with a copy of executed form FD-306 or a channelizing memorandum containing all applicable items set forth on form FD-306. In such a case, the original form FD-306 or channelizing memorandum should be filed in the subfile of the informant or source and the file and serial number where the bulky material is located should be noted thereon.
+
+# N. PAYMENTS TO INFORMANTS AND HANDLING MONEY RECEIVED
+
+## 1. No gifts to informants
+
+a. Gifts should not be given to informants since such actions might be misconstrued.
+
+b. Relationship between Agents and informants shall be maintained on a businesslike basis.
+
+c. [Dedicated]
+
+d. Investigative employees must not approach, directly or indirectly, representatives of companies, private industries, or insurance companies and request assistance regarding payments of money, gifts, or products of such companies to informants.
+
+## 2. SAC authority to pay informants
+
+a. In specific instances in which it is necessary and expedient to pay money to obtain information concerning matters or persons under investigation, which is not otherwise obtainable, or to advance an individual to obtain such information, SAC may approve: (1) of amounts up to $200 and totaling not more than $200; or (2) of amounts regardless of the number of payments. The application for payment of any one of these must be made only to individuals who have never been regularly paid for service or expenses on Bureau authorization. In other words, once an individual has been paid on Bureau authorization, regardless of the amount, this authority of the SAC may not be utilized.
+
+b. Individuals who is paid on SAC authority should not be described in concrete terms as an informant or source who is being paid on a "regular basis" or on "Bureau authorization."
+
+c. The blue slip reclaiming any of these payments authorized by the SAC must clearly and accurately explain the circumstances and summarize the information obtained so the Bureau will be in a position to pass intelligently such blue slips for payment.
+
+d. Prior Bureau authorization must be obtained to make an additional payment to an individual who has received payments totaling $200.
+
+## 3. Payments on continuing basis - Bureau authority
+
+a. To pay anyone on a continuing basis, obtain specific Bureau authorization, as follows:
+
+b. Requesting this authorization, a justification must be set forth explaining the following items and using the subheadings shown. (1. espionage and foreign nationality matters, use subheadings where applicable.)
+
+(1) Recommend:
+
+(Use following as nearly as possible:
+
+"I recommend: ( ) authority granted to continue ( ) for a period of up to $ (amount) per (month, week) for services, plus up to $ (amount) per (month, week) for expenses actually incurred for a period of _ months, effective (date).")
+
+--15-63

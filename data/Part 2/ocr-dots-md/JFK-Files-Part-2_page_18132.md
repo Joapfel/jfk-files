@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_18132.png
+
+Convert to Markdown(212) MU2-8383
+
+KANTOR, SHAW & DAVIDOFF, P.C.
+
+ATTORNEYS AT LAW
+200 PARK AVENUE
+NEW YORK, N.Y. 10017
+
+August 26, '71 197
+
+Mr. James Kehoe
+c/o Federal Bureau of Investigation
+201 East 69th Street
+New York, New York
+
+FOR PROFESSIONAL SERVICES RENDERED:
+
+Appearance before the Senate Select Committee on Intelligence Operations in Washington, D.C. on August 12, 1975; Office conference on August 6, 1975; Telephone conversations with Senate Committee Staff; Telephone conversations with F.B.I. legal staff; Preparation of Memorandum of Testimony. . . . . $750.00
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10/18/75 BY SPAMley
+
+ENCLOSURE
+
+NW 88326 DocId:32989653 Page 130

@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_17207.png
+
+Convert to MarkdownFBI
+
+Date: 10/14/69
+
+Transmit the following in _______________
+
+(Type in plaintext or code)
+
+Via
+
+AIRTEL
+
+(Priority)
+
+TO: DIRECTOR, FBI
+
+FROM: SAC, CHICAGO
+
+SUBJECT: DEMTRI
+IS - M
+
+GGP:
+
+Approved:
+
+Sent
+
+M
+
+Per
+
+NW 88613 DocId:321995 Special Agent in Charge'

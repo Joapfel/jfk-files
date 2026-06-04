@@ -1,0 +1,57 @@
+# JFK-Files-Part-2_page_10628.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : MR. CALLAHAN
+
+FROM : H. N. BASSETT
+
+SUBJECT: SENSTUDY 75
+
+DATE: 6/9/75
+
+Assoc. Dir. ____
+(Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.: 
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Hng. Inspect. ____
+Intell. ____
+Laboratory ____
+Legal Counsel ____
+Plag. & Eval. ____
+Spec. Inv. ____
+Training ____
+Telephone Rm. ____
+Director Sec'y ____
+
+In response to a Senate Select Committee request for guidelines utilized by the Inspection Division, memorandum H. N. Bassett to W. R. Wannall dated 6/2/75, captioned as above, noted there would be no objection to a review of the Handbooks for Headquarters and field office inspections by Committee Staff members provided the review was conducted in FBI space with an Inspection Division representative present.
+
+On 7/8/75 Mr. Mark Gitenstein of the Select Committee Staff reviewed the FBIHQ Inspection Manual in the presence of SA Fred B. Griffith. Mr. Gitenstein was specifically advised these Manuals are used solely as guidelines for the Inspection Staff and are not binding on anyone but staff members. They cannot be used to document any deficiencies noted during an inspection. He was told such action would have to be based on applicable provisions in either the Manual of Instructions or the Manual of Rules and Regulations.
+
+During the review it was noted Mr. Gitenstein made notes regarding the following Sections:
+
+1. Section 2 (Recording the Inspection Findings), pages 5 and 6 which deal with the assembly and distribution of inspection reports and work papers.
+
+2. Section 4 (Specific Division Operations), pages 4 and 5 which are concerned with surveys and audits.
+
+3. Section 8 (Inspector's Summaries), pages 1, 2 and 4 which deal with the summary for the Director, the letter to the Division Head from the Director and personnel write-ups.
+
+Mr. Gitenstein stated he would return at a later date to review the field manual.
+
+ACTION: None. . . for information.
+
+~~8/4/75~~ CFBC75wmj
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+NW 88296,Docid:22989624 Page 267
+
+6 JUL 18 1975

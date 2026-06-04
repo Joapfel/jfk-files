@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_13138.png
+
+Convert to MarkdownSUMMARY OF INFORMATION SUPPLIED BY GARY THOMAS ROWE WHO WAS AN INFORMANT OF THE FBI FROM MAY, 1960, UNTIL JANUARY, 1966.
+
+I. INFORMANT REPORTS SUBMITTED BY GARY THOMAS ROWE
+
+1. On 5/14/61 Rowe advised that the burning of a bus and the beating of individuals at a bus depot in Alabama during May, 1961, was instituted by a local Ku Klux Klan unit.
+
+2. On 5/17/61 Rowe stated that the Klan would try to intercept a bus which was due to arrive in Birmingham, Alabama, at 11 P.M. on 5/17/61. He further stated that Klansmen should intercept the bus on the highway and give all persons present, whether black or white, an opportunity to get off. They would be allowed to enter privately owned automobiles and have a safe journey to the nearest town. Rowe was advised by another Klansman that those who refused to leave the bus would be beaten.
+
+3. On June 4, 1962, Rowe furnished copies of five documents expected to be distributed by Klansmen in order to discourage voters from voting for certain candidates who allegedly supported various civil rights groups.
+
+4. During March, 1962, Rowe furnished information regarding a local Klan meeting at which 23
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+GPO : 1975 O - 569-920
+
+NW 88296 DocId:32989550 Page 108
+
+MDR-16 ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10/23/61 BY SPA ALM/EHC

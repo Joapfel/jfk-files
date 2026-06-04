@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_12875.png
+
+Convert to MarkdownSAC, NEW YORK (100-111180)
+
+SA FRANCIS T. LEONARD (415)
+
+STANLEY LEVISON
+IS-C
+
+The following characterization is being submitted for approval with respect to the subject:
+
+NY T- who has furnished reliable information in the past, advised on August 23, 1962, that STANLEY LEVISON is a secret member of the Communist Party, United States of America (CP, USA), and contributes funds to the CP on a regular basis.
+
+NY T- is NY 694-S*.
+
+MDR 16
+SP 2ALM/EHC
+
+DECLASSIFIED BY
+ON 8/27/80
+
+1 - NY 134-91-INV. S/KO
+1 - NY 100-111180 (415)
+
+FTL: gem
+(2)
+
+NATIONAL SECURITY INFORMATION
+
+Unauthorized Disclosure
+Subject to Criminal Sanctions
+
+NW 88296 DocId:32989550 Page 16

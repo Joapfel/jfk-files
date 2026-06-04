@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_9195.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUDGE
+FEDERAL BUREAU OF INVESTIGATION
+
+Honolulu, Hawaii
+
+January 19, 1965
+
+Re: MICHAEL HALSEY BROWN
+(Also Known As MIKE H. BROWN)
+RACIAL MATTER - HAWAII
+
+On November 23, 1964, William File, 634 East Boulder Street, Colorado Springs, Colorado, advised that his daughter Irene had been arrested approximately three months ago in Pueblo, Colorado, on a charge of robbing a filling station. He reported his daughter had been placed in the custody of her parents until such time as there is an additional hearing in the matter.
+
+While Irene was in the Pueblo County Jail she started receiving letters from Brown, a person whom she has never personally met. File pointed out Irene's picture had appeared in newspapers after her arrest, and it is possible Brown may have gotten her name and address from a newspaper article.
+
+File made available a copy of a letter of November 9, 1964, addressed to his daughter. He advised she is not aware of the fact he had made such a copy. The letter is quoted as follows:
+
+"Nov. 9, 1964
+
+"Dear Irene,
+
+"Looks like my boy Barry sure took a shellacking, doesn't it? I lost $115 on that clown. Next time I'll back Robert Shelton (Grand Imperial Wizard of the KKK) or somebody I can get better odds on. As long as I'm going to lose I'd like better than 4 to 1 odds like I got on Goldwater.
+
+"Commander George Lincoln Rockwell (head of the American Nazi Party) spoke here last week at the university. He was fabulous! If he's ever in Colorado speaking be sure to hear him. My little band of extremists and I had dinner with him and decided to cast our lot with his movement--the guy really knows some things. Like did you
+
+2503-1
+
+ENCLOTTED
+
+In Reply, Please Refer to
+File No.

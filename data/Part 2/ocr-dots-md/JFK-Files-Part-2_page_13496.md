@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_13496.png
+
+Convert to Markdown4. In addition to the "category II" items, there are a number of additional subjects largely geographic in nature for which the DCI feels CIA should assume responsibility for preparing comprehensive papers. In view of the apparent adversary relationship between the Senate Select Committee Staff and the agencies under investigation, it may be that preparation of papers dealing comprehensively with specific subjects will deflect some of this cross-agency probing and result in a positive solution to problems before they arise.
+
+5. The Chairman reminded the group of the responsibility which exists to keep Mr. Cotter of the Post Office Department informed on matters resulting from the Congressional investigations which will clearly impact on his agency's affairs. At present, the cross-agency character of the interviews now under way indicate a possible communication gap in adequately coordinating on postal matters.
+
+6. The Chairman explained the DCI's action taken in late May to separate the responsibility for CIA's response to the Congressional Select Committees from those responsibilities of the IC Staff. Both Dr. Clarke and Mr. Elder emphasized the very close relationship which exists in the two efforts. Mr. Elder will represent CIA at all USIB Ad Hoc sessions henceforth.
+
+7. The Chairman questioned Mr. Elder, the CIA representative, whether or not the Senate Select Committee had yet furnished the Agency with a list of subjects with which they plan to deal in depth. Mr. Elder reported they have not yet done so, but it is apparent that three items are of priority interest at the moment: assassinations, the Phoenix program, and covert action; that it appears clear the Committee is currently pursuing the question of authorities, approvals, and support from other agencies.
+
+8. The 27 May request addressed to the DCI covering materials under the jurisdiction of a number of Community agencies was provided to the members of the Ad Hoc Group. Dr. Clarke indicated he was seeking policy guidance on selected items in the request which dealt with Community product such as NIE etc. He noted the 27 May request indicated identical letters were being forwarded to the Secretary of State and the Secretary of Defense. Copies have been sent to all USIB Ad Hoc members, the NSC and the White House.

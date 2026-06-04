@@ -1,0 +1,59 @@
+# JFK-Files-Part-2_page_17194.png
+
+Convert to MarkdownBLACK PANTHER PARTY (PP)
+
+Appeal To The People
+
+On March 26, 1969 Fred Hampton was jailed on the alleged crime of tolerary.
+
+Fred Hampton has represented the people in various positions from Fres. of the N.A. A. C. P. Youth Council current present position of Chair of the Black Panther Party State of Ill.
+
+This is an unjust and unfair trail. Since no U. S. court avesse
+has ever allowed any black person the right of trial by his peer
+group or people from his black community as defined by the consti-
+tution U.S. This constitution has never been beneficial to any-
+one except the ruling class.
+
+In effect Chairman Fred is now a Political Prisoner
+was he jailed because he was a criminal, or menace to the community,
+No, Because he was a champion of the people.
+
+Chairman Fred was about educating of the people to this
+capitalist, racist, oppressive, dogmatic, pig power structure.
+He was about putting power in the hands of the people where the power
+belongs. Unless proven otherwise Justice and freedom for a lll does not
+exist here in America. He has demonstrated the lies of the American
+democracy and its true nature.
+
+Our experiences have shown us that American Democracy does not exist, and is a myth and a bunch of Bull----
+We appeal to all people to become aware of the molyve injustice of the Pig Power Structure .
+
+"The People, and the People alone are the motive force in the making of world history".
+
+Mao Tse Tung
+
+You can be jailed a liberator but you cannot jail a literate
+You can kill a revolutionary but you cannot kill a revolutionary".
+
+Chair. Fred Hampton
+
+And this is why we say
+
+Black Power to black people
+
+White Power to white people
+
+Red Power to red people
+
+Purplle Power to purple people
+
+Which is why we any ;
+
+All
+
+lower to
+All People
+
+From the deck of Infra.
+
+NWI 88613 DocID:32199554

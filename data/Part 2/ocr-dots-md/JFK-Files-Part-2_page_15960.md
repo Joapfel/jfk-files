@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_15960.png
+
+Convert to Markdown4
+
+10. What is to Be Done - V. I. LENIN
+
+11. Autobiography of Malcolm X
+
+12. The Ballot or the Bullet - Malcolm X
+
+14. Revolution in the Revolution - Regis Debray
+
+15. The Challenge of the Congo - K. Nkruma
+
+16. Guerilla Warfar - Che Guevara
+
+17. Axioms of Kwame Nkruma - K. Nkruma
+
+18. Periodicals - newspaper
+
+Black Panther Party - Black Community Newspaper Service
+National Guardian - International Perspective
+Muhammad Speaks (newspaper)
+Ramparts (magazine)
+Granma (official journal of the Communist Party of Cuba)
+Tricontinental (journal of the Organization of Solidarity of the people of Africa, Asia, and Latin America.)
+Minority of One - magazine.
+
+5/2/69)
+
+On May 14, 1969, the Chicago Chapter of the BPP distributed to BPP members the following "Mandatory Readings" from Quotations of MAO (Red Book):
+
+Mandatory Reading from the Red Book
+
+1. Curriculum Black Panther Party Political Education Classes Self-cultivation P. 237-250
+
+2. War and Peace P.58
+
+3. Discipline P. 254
+
+4. Imperialism and All Reactionaries are Paper Tigers P. 72.
+
+NW 88613 DocId:32199554
+
+Page 1457

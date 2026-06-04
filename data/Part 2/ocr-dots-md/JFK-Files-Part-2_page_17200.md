@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_17200.png
+
+Convert to MarkdownUNITED STATES C ERNMENT
+Memorandum
+
+TO : DIRECTOR, FBI
+
+FROM : SAC, CHICAGO
+
+SUBJECT: BLACK PANTHER PARTY (BPP) RM
+
+DATE: 4/30/69
+
+Copies of this LHM are also being furnished the USA, U. S. Secret Service, OSI, NISO, all Chicago, and Region I, 113th MI Group, Evanston.
+
+It is noted that Chicago telephonically disseminated the information contained in this LHM to the appropriate local and Federal agencies upon receipt or same.
+
+RMM,
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+NW 88613°DocId:32199554 Page 2697

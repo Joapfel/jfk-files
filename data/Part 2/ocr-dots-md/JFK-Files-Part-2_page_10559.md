@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_10559.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : MR. CALLAHAN
+
+FROM : J. B. ADAMS
+
+SUBJECT: REQUEST BY VARIOUS SENATORS ON SENATE SELECT COMMITTEE TO REVIEW THEIR FBI FILES
+
+DATE: 7/24/75
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inven. ____
+Asst. Dir.:
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ✓
+Telephone Rm. ____
+Director Sec'y ____
+
+At the meeting between Mr. Kelley and the Attorney General, along with their respective staffs on 7/21/75, the Attorney General determined that there should be broad disclosure of material in the files of those Senators on the Senate Select Committee requesting access to same and that in the main the Bureau should only restrict access to revelation of live informants or information which would reveal the identity of live informants. In addition, he indicated that in his review of the file on Senator Hart he noted certain derogatory information on relatives which he felt Senator Hart should not see. Also, there may be criminal investigations against one of the Senators of such a nature that revelation should be restricted.
+
+It was agreed that Deputy Assistant Attorney General O'Connor and I should review the files in order to determine problem areas and Mr. O'Connor would consult with Judge Tyler as needed.
+
+Files have been reviewed and there is general agreement that almost all of the information can be revealed with certain limited excisions taking care of problem areas. Mr. O'Connor advised on 7/24/75 that he has been in touch with the Committee and they will make arrangements to come to my office and review their files in my presence along with Mr. O'Connor. Senator Goldwater has added his name to the list and Mr. McDermott has been advised in order to insure all pertinent material is accumulated.
+
+ACTION:
+
+None. Information only.
+
+1 - Mr. McDermott
+
+JBA:ams
+
+(3)

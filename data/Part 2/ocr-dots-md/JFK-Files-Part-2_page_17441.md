@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_17441.png
+
+Convert to Markdownif a BPP group is formed in Evanston. He asked HAMPTON how money was gathered to support BPP activities and HAMPTON told him about holding parties and dances and charging admission. HAMPTON gave as an example an event to be held in Haywood on the night of 3/27/69 which will be a "show" wherein speakers will talk about Negro history and there will be an exhibition of Negro dancing and the admission is $1.00. This is how money is gathered to support the BPP.

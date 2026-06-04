@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_15569.png
+
+Convert to MarkdownBAD HEALTH CARE is part of the way of life in the black community and in the Latin community. This fact is proved by all statistics:
+
+**The life expectancy of U.S. blacks is 7 years less than whites.
+
+**The infant mortality of children in Chicago poverty areas is among the highest in the country.
+
+**In public hospitals throughout the U.S., black and Latin women are forced to submit to sterilization following childbirths.
+
+**In the U.S., "health care" is a profit-making industry and not a human right for all people.
+
+LACK OF GOOD DECENT HEALTH CARE is one of the many ways this racist capitalist system oppresses the people, and tries to keep us too weak to fight for our rights.
+
+THE BLACK PANTHER PARTY understands the immediate needs for good health care. To serve these needs, the Black Panther Party is establishing the PEOPLE'S FREE MEDICAL CARE CENTER. By serving the health needs of the people, the Black Panther Party is setting an example as they have in the Breakfast-for-Children Programs they have started all over the country.
+
+## WHY DO WE NEED THE PEOPLE'S FREE MEDICAL CARE CENTER?
+
+The People's Free Medical Care Center is the first step in getting rid of the barbaric fee-for-service merchandizing of medical care which takes place in the capitalist economy. Capitalism is the system which claims to provide health services for the people, but which is really ruled by the profit motive. In the People's Free Medical Care Center, care will be given to the people on the basis of need, and not on the basis of ability to pay. The Center is much more than free medical care, however — more than welfare or charity — for the Center will be run according to the needs of the people it serves.
+
+The doctors at the Center, instead of running it and dominating it, will be in the position (where they belong) of serving the people. (over, please)
+
+NW 88613 DocId:32199554
+Page 1066
+
+42

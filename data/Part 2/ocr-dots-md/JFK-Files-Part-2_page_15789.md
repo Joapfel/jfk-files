@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_15789.png
+
+Convert to Markdownstate or state area, and local committees and staff
+where said rules or rules of the BLACK PANTHER
+PARTY were violated.
+
+Every member of the party must know these verbatim
+by heart, and apply them daily. Each member must
+report any violation of these rules to their
+leadership or they are conter-revolutionary and are
+also subjected to suspension by the BLACK PANTHER
+PARTY.
+
+THE FOLLOWING RULES ARE:
+
+1. No party member can have narcotics or weed in his possession while doing party work.
+
+2. Any party member found shooting narcotics will be expelled from this party.
+
+3. No party member can be drunk while doing daily party work.
+
+4. No party member will violate rules relating to office and meetings of the BLACK PANTHER PARTY, ANYWHERE.
+
+5. No party member will use, or fire a weapon of any kind unnecessarily or accidentally at anyone other than the enemy.
+
+6. No party member can join any other army force other than the BLACK LIBERATION ARMY.
+
+7. No party member can have a weapon in his possession while drunk or loaded off narcotics or weed.
+
+8. No party member will commit any crimes against other party members or BLACK people at all, and cannot steal or take from the people, not even a needle or a piece of thread.

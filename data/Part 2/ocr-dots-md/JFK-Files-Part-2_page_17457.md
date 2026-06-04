@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_17457.png
+
+Convert to MarkdownRE: MALCOLM X BLACK HAND SOCIETY OF THE WORLD, INC.
+
+Source indicated that various honorary awards were granted to Negroes in attendance and these awards presented by the Malcolm X Black Hand Society of the World, Inc., went to Dick Gregory, Huey Newton, and Bobby Seale, both BPP members and which awards were accepted by Fred Hampton. Several other of these awards were given to persons who the source could not identify.
+
+A characterization of the BPP is attached.
+
+Source advised that Carolyn Rodgers read some of her poems, two of which were entitled "I Ain't Seen Nothin' Yet" and "Poem. For Malcolm".
+
+Source identified Fred Hampton of the Chicago BPP as the next speaker and Hampton expressed his great love and respect for Malcolm X and for his philosophies, stating that Malcolm X had gone to the mountain top but had come back to realize that he was still a "suppressed nigger". Hampton stated that Malcolm X saw that change was necessary and from that point in Hampton's speech, he gave a typical BPP speech concerning the necessity for Negroes arming themselves to beat back the oppressor. Hampton concluded by stating that he was a revolutionary, with the comments "all power to the people, all power to the BPP, Panther power".
+
+Source stated that Dick Gregory was the last speaker but limited his comments to the necessity for black people organizing themselves in their own behalf and indicated he was in sympathy with the BPP.
+
+Source advised that because of inclement weather, the scheduled picnic to precede the evening rally at the Capitol Theater did not take place, other than a few members of the Malcolm X Black Hand Society of the World, Inc., being present to direct those appearing to attend the nighttime rally.
+
+A copy of this communication is being furnished to the United States Attorney and U. S. Secret Service, both Chicago, and Region I, 113th Military Intelligence Group, Evanston, Illinois.

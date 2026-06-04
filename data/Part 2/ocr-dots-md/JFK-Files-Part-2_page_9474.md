@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_9474.png
+
+Convert to MarkdownDE 157-3075
+
+On July 18, 1970, a Detroit Police Officer was walking to a call box at the intersection of Woodward and State Streets, Detroit, when he was pushed off the curb and down into the street and continued to be assaulted by LARRY POWELL, member of the Detroit NCCF. Witnesses indicated that the attack was completely unprovoked. POWELL was arrested and charged with Assault and Battery on a police officer.
+
+DE T-3
+July 20, 1970
+
+Detective Lieutenant WILLIAM MC COY, Security Section, Intelligence Division, Detroit Police Department, advised on July 30, 1970, that about 9:30 a.m., this date, a Channel 50 television news car was in the vicinity of Detroit NCCF headquarters, 2219 Indiandale, Detroit, when a Negro male, age 25 to 30 years, 6'2", 200 pounds, with beard and moustache, fired three shots at the news car from the porch of the office. There were no injuries to the occupants of the car, which was probably in the vicinity to film traffic signs in the vicinity of the above office, which had been painted black and had posters pasted on them.
+
+On October 24, 1970, Detective Lieutenant WILLIAM MC COY, supra, advised that at 5:45 p.m., October 24, 1970, two Detroit Police Department Officers put out a radio "officer in trouble" call due to difficulty in subduing individuals who had been given loitering tickets, apparently in connection with their distributing NCCF literature.
+
+Two unmarked patrol cars with plain clothes officers responded and arrived in the area almost immediately, however, a crowd had gathered and one of the officers was recognized and the crowd began to attack the car with bottles and rocks. When the officers attempted to leave the area by driving across a vacant lot, the car was hit by gunfire and one officer suffered minor injuries.
+
+The second police car had stopped near the corner of 16th and Myrtle near an NCCF office and a short time later another shot hit one of the patrolman on the back of the head and he was dead on arrival at the hospital.

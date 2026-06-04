@@ -1,0 +1,68 @@
+# JFK-Files-Part-2_page_18535.png
+
+Convert to Markdown62-116395
+
+1 - Mr. J. B. Adams
+2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+1 - Mr. T. J. McNiff
+
+August 7, 1975
+
+UNITED STATES SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES
+
+RE: ADDRESSES OF FORMER
+BUREAU EMPLOYEES
+
+On July 28, 1975, Mr. Loch Johnson, Senate Select Committee Staff Member, orally requested of Special Agent Paul V. Daly, FBI Headquarters, that former FBI Special Agents Thomas J. Smith and Richard D. Cotter be made available for interview and/or their current addresses be made available to the Senate Select Committee so that interviews may be arranged. The subject matter of the interview is to be limited to the above former employees' knowledge concerning the "Huston Plan."
+
+This is to advise that both Messrs. Smith and Cotter have been released from their employment agreement with this Bureau for the purpose of an interview by the Senate Select Committee concerning their knowledge of the "Huston Plan." In response to Mr. Johnson's request, there is set forth below the last known address for each of the above-named former employees:
+
+Thomas J. Smith, 3410 Memphis Lane, Bowie, Maryland
+20715.
+
+Richard D. Cotter, 5337 Ravensworth Road, Springfield,
+Virginia 22151.
+
+1 - The Attorney General
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y.
+
+1 - 67-449472
+1 - 67-431020
+
+TJM'dmt
+(11)
+
+ORIGINAL AND ONE TO THE
+ATTORNEY GENERAL
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+ENCLOSURE
+
+GPO 954-546
+
+NW 88326 DocId:32989627 Page 133

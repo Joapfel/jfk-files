@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_12496.png
+
+Convert to Markdownn. Channeling information to case files
+
+(1) Memoranda regarding membership or activity in subversive organizations, including summaries of informant reports, should be channeled to case files of individuals involved. When information from informants or surveillances is channeled to individual case files, it should be documented.
+
+(2) When preparing lengthy channeling memoranda reporting material of interest to other offices, limit number of copies prepared to two for each other office. Clearly indicate next to names of other offices the page number containing information of interest and note on cover page that distribution of material to individual case files should be handled by recipient offices.
+
+o. Movement of subjects between offices
+
+If office of origin receives information that subject of current or past investigation changes residence to territory of another division, office of origin request verification within 30 days. If new residence confirmed, office of origin submit FD-128 to transfer origin. Office of origin should furnish new office with any pertinent subversive data which has not previously been reported in a form suitable for dissemination, or suitable for incorporation in an LHM or report.
+
+p. Destruction of Channeling Memoranda
+
+At the option of appropriate field supervisors, in order to avoid the accumulation of channeling memoranda in a case file as well as to facilitate the subsequent preparation of LHMs or reports, the following procedure may be used: Files may be reopened for preparation of an "investigative insert" for later inclusion in a LHM or report, using T symbols identifying informants who have furnished prior information. Agent preparing this insert should also prepare a cover memorandum showing what serials in the file have been covered by his review and also identifying all symbol number informants involved and indicating the location of the original data (similar to documentation in the cover pages of a report). The channeling memoranda covered in the review can then be destroyed and the "investigative insert" along with its cover memorandum can, if necessary, be forwarded to another field division in the event the subject moves.
+
+[ [4. Urban Guerrilla Warfare
+(Instructions relating to investigations of above subject matter are contained in section 122, item A8, Manual of Instructions.)] ]
+
+D. DISSEMINATION OF DATA DEVELOPED
+
+1. General Policy
+
+Information developed during these investigations should be furnished to other agencies in Executive Branch which have a legitimate interest. See MRR, part II, section 5, pertaining to Bureau's overall responsibilities and policies in dissemination.
+
+Do not disseminate earlier reports without reviewing them to insure they meet current reporting standards. If they are unsuitable for dissemination, prepare LHM containing pertinent information.
+
+2. Specific requirements
+
+Following instructions cover representative situations which occur frequently.
+
+a. Members of armed forces
+
+Delimitations Agreement between FBI and armed forces intelligence agencies (see section 102B, volume IV, of this manual) requires free exchange of all information of mutual interest between subscribing agencies. Immediately refer any derogatory or possibly significant information developed concerning members of military services, including contacts with individuals or groups of security interest, to military service having primary responsibility.

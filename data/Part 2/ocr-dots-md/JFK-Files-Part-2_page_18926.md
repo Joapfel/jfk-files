@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_18926.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : DIRECTOR, FBI (105-28333)
+
+FROM : SAC, WFO (105-8906) (C)
+CONF. INTR.
+
+SUBJECT: FORM 493-104
+IS - R
+
+DATE: 9/29/69
+
+SECRET
+
+On September 18, 1969, subject contacted SA ELBERT T. TURNER by telephone and advised that he had been in New York the previous week where he had accidently met VLADIMIR ALEKSANDROVICH CHUCHUKIN, First Secretary of the Soviet United Nations Delegation at the delegates lounge. Subject said that he had known CHUCHUKIN for about ten years and mentioned to CHUCHUKIN that he was currently looking for a job. They made a luncheon date for the following day (9/11/69) for which CHUCHUKIN was late. They met at the lounge but went to another restaurant to eat at CHUCHUKIN's suggestion. During the luncheon, there was no conversation which would suggest that CHUCHUKIN was making any kind of intelligence follow up.
+
+Subject stated that he had not had any further contact with BORIS SEDOV and occasionally sees BORIS STRELNIKOV, who resides in his apartmenthouse, but merely exchanges greetings with him. Subject indicated that there has been no further indication of Soviet intelligence follow up with him.
+
+Subject stated that he was going back to New York the following week and is still looking for a job.
+
+An extra copy of this letter is submitted for the Bureau (105-94406) and New York (105-45740) files on CHUCHUKIN.
+
+EX. - 11W
+
+REC-23
+
+3-Bureau
+2-New York (134-3315) (Info) (RM)
+2-WFO
+(1-105-39752)
+
+ATT:yh
+
+(7)
+
+OCT 31969
+
+Classified by
+
+Exempt from CDS, Conditional 2-3
+
+Date of Declassification To Write
+
+3 SEP 30 1969
+
+NW 88326 DocId:32989704 Page 220 Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan

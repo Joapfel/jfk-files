@@ -1,0 +1,61 @@
+# JFK-Files-Part-2_page_10598.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. R. Wannall
+
+FROM : W. O. Cregar
+
+SUBJECT: SENSTUDY '75
+
+1 - Mr. N. P. Callahan
+1 - Mr. J. B. Adams
+2 - Mr. J. A. Mintz
+
+DATE: 7/11/75
+
+1 - Mr. W. R. Wannall
+1 - Mr. J. G. Deegan
+1 - Mr. R. L. Shackelford
+1 - Mr. W. O. Cregar
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.: 
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intel. ____
+Laboratory ____
+Legal Coun. ____
+Plan & Eval. ____
+Spec. Inv. ____
+Training ____
+Telephone Rm. ____
+Director Sec'y ____
+
+This memorandum recommends that the Director raise the question of privacy and source protection with Senators of the Senate Select Committee (SSC) on the occasion of his anticipated meeting in Executive Session with the SSC tentatively scheduled for the week of 7/14/75.
+
+By letter dated 7/9/75, Senators Frank Church and John Tower of SSC requested the Attorney General and the Director to appear before the Committee in Executive Session during the week of 7/14/75. The purpose of this meeting is to discuss the matter of concern to Mr. Kelley and steps which might be taken to expedite the response to requests for documents essential to the Committee inquiry.
+
+The Senstudy staff of the Intelligence Division is preparing for the Director's use copies of each of the written requests received from SSC annotated with the dates of our response to each request; the date it was delivered to the Department; and the date it was delivered to the SSC staff.
+
+There remains, however, a serious problem precipitated by three recent written requests of the SSC dated 6/30/75 (received by the Bureau on 7/7/75); 7/1/75 (received by the Bureau on 7/8/75); and 7/8/75 (received by the FBI on 7/9/75). All three of these requests appear, in part, to disregard the privacy of certain individuals or requests the identity of sources cooperating with the FBI.
+
+Enclosure
+
+WOC:emg/dsh
+(9)
+
+CONTINUED - OVER
+
+NWP-88296 DocId:32989624 Page 237
+
+84 AUG 5 1975

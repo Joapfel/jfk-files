@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_18560.png
+
+Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF FORMER FBI SA BY SSC
+Statement of John M. Matter
+
+Court Seal [JFK Law.10(a)1].
+
+<table><tr><td>I supposed that Bureau officials had their own reason for requesting such a composite, but I was never told.</td></tr></table>
+
+Epstein kept pressing me with "didn't you think this was strange?" and finally "what was your opinion?" To the former I replied "not necessarily," and to the latter I said a possible reason could have been that Bureau officials wanted to give the composite to AG Robert F. Kennedy to show him the type of information being obtained so that he could decide whether the surveillances he had authorized were to be continued. I never discussed the "MLK tapes" with anyone in the Crime Records Division. I don't rule out the possibility that some member of that Division may have asked whether I had worked on the tapes, but I certainly had no discussion on the subject matter. I did not discuss the tapes with "Boke" DeLoach (specifically named by Epstein after he had asked me whether I had discussed the tapes with anyone in the Crime Records Division). Epstein asked if I had any knowledge of Ernie Belter having anything to do with the MLK installation - WFO, and I told him, "none."
+
+He appeared to be trying to find some sort of record within the Bureau so that he could get names, dates and assignments. In answer to his inquiry, I stated that it was quite likely I had received an "assignment slip" to account for my time in the case. I seriously doubted that such a slip would bear the name of MLK but would most likely have identified it as a "special case" or the "MLK case." I had no knowledge of how Campbell's assignment was handled. A register is kept in the Re SEC for personnel signing in and out, but this would only show dates and times worked by me and other personnel, and would not indicate what I was doing during a particular day or 'period of time period.' Campbell, being assigned to WFO, would have signed in and out on the WFO register, even though he was working for a longer period of time in the Re SEC space.

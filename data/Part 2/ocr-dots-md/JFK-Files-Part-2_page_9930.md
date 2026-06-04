@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_9930.png
+
+Convert to MarkdownRE: U. S. SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSG)
+
+NOTE:
+
+It is believed the materials responsive to the SSC request pertains to the Overcast, Espionage - Russia case, Bureau file 65-68052 which consists of two sections. This material will be available to respond to questions posed by the SSC members and will preclude the Xeroxing of every serial in the file.

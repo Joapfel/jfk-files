@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_14827.png
+
+Convert to MarkdownMemorandum to Mr. Sullivan
+
+RE: LUNCHEON ENGAGEMENT OF THE DIRECTOR
+WITH THE ATTORNEY GENERAL AND
+MR. SARGENT SHRIVER, DIRECTOR OF THE
+OFFICE OF ECONOMIC OPPORTUNITY
+DURING WEEK OF SEPTEMBER 18, 1967
+
+We have, of course, kept OEO promptly advised of all
+allegations received of misconduct on the part of antipoverty
+employees as well as allegations regarding the misuse of anti-
+poverty funds. In accordance with the Director's instructions such
+information is furnished the White House and the Attorney General.
+ACTION: also
+
+Submitted for the Director's possible use.

@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_18507.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. R. Wannall
+FROM : J. G. Deegan
+SUBJECT: SENSTUDY - 75
+
+1 - J. A. Mintz
+(Attn: J.B. Hotis)
+1 - W. R. Wannall
+DATE: 8/6/75
+1 - W. O. Cregar
+1 - J. G. Deegan
+1 - H. A. Newman
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Legal Coun.
+Plan. & Eval.
+Spec. Inv.
+Training
+Telephone Rm.
+Director Sec'y
+
+Through arrangements made by Mr. John Hotis, Legal Counsel Division, (Unit Chief Homer A. Newman), IS-1 Section, Intelligence Division, was interviewed for the purpose of developing general information regarding the handling of informant files within the FBI by Mr. John T. Elliff and Mr. Mark Gitenstein of the Domestic Intelligence Task Force, U. S. Senate Select Committee on Intelligence Activities. The interview was conducted on 8/4/75 in FBI space and lasted from approximately 2:00 p.m. until 2:30 p.m.
+
+The interview was extremely general in nature and dealt exclusively with general information regarding the handling of informant files both in the field and at FBIHQ. The questions asked dealt with such matters as what type of files were maintained in the field and at FBIHQ regarding informants and generally the types of information contained therein. They were particularly interested as to whether or not an individual informant file either at FBIHQ or in the field would contain information which would specifically identify informants other than the informant on which the file was maintained. They also inquired whether or not there was a sub A section of each informant file maintained at FBIHQ as was the case in the field. Questions were also asked as to whether or not the individual file maintained at FBIHQ on informants would run into several volumes. This inquiry was answered to the effect that the size of the file would depend on the activity of the informant, how long he had been operated, etc.
+
+HAN:cah (6)
+
+REC-102
+
+9 AUG 19 75
+
+CONTINUED OVER
+
+84 AUG 19 1975
+
+NW 88326 DocId:32989627 Page 105

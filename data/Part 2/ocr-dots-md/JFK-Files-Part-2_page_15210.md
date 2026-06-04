@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_15210.png
+
+Convert to MarkdownMemorandum to Mr. A. H. Belmont
+Re: INTELLIGENCE COVERAGE OF
+FRIENDLY FOREIGN COUNTRIES
+
+65-63113
+
+It is also recommended that liaison secure State clearance for very discreet investigations of potential sources which we will hereafter select.
+
+NW 88613 DocId:32199554
+
+Page-footer

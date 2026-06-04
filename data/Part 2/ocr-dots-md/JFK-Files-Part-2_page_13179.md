@@ -1,0 +1,62 @@
+# JFK-Files-Part-2_page_13179.png
+
+Convert to Markdown2 - Mr. J. A. Mintz (1-Mr. J. B. Hotis)
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+
+November 25, 1975
+
+1 - Mr. A. J. Duffin
+1 - Mr. J. W. Johnson
+
+U. S. SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSG)
+
+Reference is made to the November 7, 1975, request by the SSC for delivery of FBI materials.
+
+Item 1 of referenced SSC letter requested the following:
+
+1) All materials pertaining to the opening of mail to or from Gilbert Stuart and Virginia R. Stuart during the years 1960 and 1961, by FBI Agents in or around the cities of New York and Providence, Rhode Island. (This request encompasses materials located in FBI Headquarters, the New York Field Office, and the Resident Agency in Providence, Rhode Island).
+
+Pursuant to your request, the indices and the files of the FBI Headquarters, the New York Office and the Boston Office, which includes the Resident Agency in Providence, Rhode Island, were reviewed for any material pertaining to the opening of mail to or from Gilbert Stuart and Virginia R. Stuart with negative results.
+
+1 - The Attorney General
+
+ORIGINAL AND ONE COPY TO THE ATTORNEY GENERAL MDR-16
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10/20/00 BY SP&ALM/EHL
+
+JWJ:emg
+
+(9)
+
+NOTE:
+
+A copy of SSC request dated 11/14/75 is attached. In response to Bureau teletype 11/17/75, New York and Boston teletypes, 11/18/75, advised no information in their files as to any openings of mail to or from the Stuarts.
+
+ENCLOSURE
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Evol.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+GPO : 1975 O - 569-920
+
+NW 88296 DocId:32989550 Page 149

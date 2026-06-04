@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_9307.png
+
+Convert to MarkdownDE 157-3075
+
+E. Contact With Other BPP and NCCF Chapters
+
+KENNETH HORSTON, leader of the Detroit branch of
+the BPP, was in contact with BPP, New York on December
+31, 1970.
+
+DE T-7
+December 31, 1970
+
+ZAYD SHAKUR, Deputy Minister of Information for
+New York, arrived in Detroit the evening of January 9, 1971,
+and returned to New York, January 11, 1971.
+
+DE T-2
+January 11, 1971
+
+BOBBY RUSH, Deputy Minister of Defense, Illinois
+Chapter, BPP, held a regional staff meeting at Chicago, on
+January 17, 1971, and was extremely irritated because Detroit
+and several other offices failed to send a representative.
+
+DE T-8
+January 17, 1971
+
+A representative of the Toledo, Ohio NCCF was to
+obtain the film "The Battle of Algiers" through the
+Detroit NCCF.
+
+DE T-5
+January 21, 1971
+
+SAM NAPIER, BPP, New York, contacted BPP Chicago
+and requested six boxes of newspapers sent to Chicago from
+New York be sent to the Detroit NCCF.
+
+DE T-8
+March 26, 1971
+
+YVONNE KING, Communications Secretary, Illinois
+BPP, returned to Chicago from Detroit on June 4, 1971.
+
+DE T-8
+June 4, 1971
+
+11
+
+NW 88296 DocId:32989574 Page 216

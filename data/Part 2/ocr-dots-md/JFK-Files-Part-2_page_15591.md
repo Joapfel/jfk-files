@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_15591.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO
+FROM : DIRECTOR, FBI
+SAC, CHICAGO
+SUBJECT: BLACK PANTHER PARTY (BPP) RM
+
+DATE: 11/26/69
+
+Copies of LIM are being furnished to the USA, OSI, USSS and 133th Military. The Chicago Police Department and Illinois State Attorney's Office have also been orally advised of the contents of this LIIM.
+
+RMM/amx
+
+NW 8861 - Doc ID:32199554 Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan Page 1088

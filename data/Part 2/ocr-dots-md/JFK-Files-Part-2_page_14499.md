@@ -1,0 +1,60 @@
+# JFK-Files-Part-2_page_14499.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+# Memorandum
+
+TO: Mr. Rosen
+
+FROM: R. I. Shroder
+
+SUBJECT: COMMUNIST PARTY OF VENEZUELA [JFK] CENTRAL INTELLIGENCE AGENCY (CIA) INTERNAL SECURITY - VENEZUELA KIDNAPING
+
+SECRET
+
+CIA HAS NO OBJECTION TO DECLASSIFICATION AND/OR RELEASE OF CIA INFORMATION IN THIS DOCUMENT.
+
+DATE: March 15, 1967
+
+1 - Mr. Rosen
+2 - Mr. Malley
+3 - Mr. Shroder
+4 - Mr. Thompson
+5 - Mr. Sullivan
+6 - Mr. Trotter
+
+This relates to information received from CIA indicating the possibility that the Communist Party of Venezuela may attempt to kidnap the child of a CIA employee Thomas Keogh. No investigation is being conducted by us and appropriate dissemination has previously been made.
+
+At our suggestion, through liaison with CIA, fingerprints and photographs have been obtained and were furnished to SA W. O. Cregar by Mrs. Jane Roman of CIA on 3/10/67. This material is being made part of this file for possible use in the event of a kidnaping. Photographs and fingerprints are of the following individuals: Joseph Edward Keogh; Thomas Patrick Keogh, Jr.; Christina Margarita Keogh; Elizabeth Teresa Keogh; Francis Xavier Keogh; Thomas Patrick Keogh, III, and Maria Rita Keogh.
+
+ACTION:
+
+This matter has been coordinated with the Identification Division and it is recommended that this memo and attachment be sent directly to SA Carl Volker, Room 4125, IB, in order that the fingerprints may be promptly classified and filed.
+
+Enclosure
+
+ST-114
+
+FDT:emf (7)
+
+NEW ENCLASUREMENT ATTACHED
+
+REC 33
+
+MAR 20 1967
+
+NEW ENCLASMENT
+
+All information contained herein is classified except as shown at left.
+
+(6) 9/25/95 Classified by [illegible] Declassify on: OADR [illegible]
+
+SECRET
+
+SECRET 1
+
+SECRET MAR 29 1967
+
+HW 50953 DocId:32199369 Page 4
+
+This document is prepared in response to your Committee's request. It is used as limited to official proceedings by the FBI without the express approval of the FBI. The content may not be disclosed to unauthorized personnel. Your request for information outside your Committee's scope does not justify the expression or publication of this document. This document is intended for personal use only and should not be distributed without prior written permission from the government agency from which it was received.

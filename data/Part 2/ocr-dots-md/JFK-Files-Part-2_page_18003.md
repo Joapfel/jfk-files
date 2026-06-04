@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_18003.png
+
+Convert to MarkdownFile #:
+62-HQ-116395
+
+Serial Scope:
+
+769
+726-768,770-793X,795-2nd NR 797,798
+799-806,807X-810
+
+Released under the John F. Kennedy Assassination Records Collection Act of 1992 (44 USC 2107 Note).
+Case#NW 88326 Date: 03-18-2025
+
+RWW88326 DocId:32989653 Page 1

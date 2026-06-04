@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_9115.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+CONFIDENTIAL
+
+In Reply, Please Refer to
+File No.
+
+Detroit, Michigan
+
+November 12, 1968
+
+DECLASSIFIED BY SPB MAC/EN (JFK)
+ON 4-14-93
+
+Re: Black Panther Party (BPP)
+Detroit Division
+
+A characterization of the BPP is contained in the appendix attached hereto.
+
+Sources hereinafter referred to have furnished reliable information in the past.
+
+On November 11, 1968, from 7:00 p.m. to 7:30 p.m., WTVS Channel 56, a local educational television station in the Detroit area, carried a program entitled, "Facts About the Black Panther Party". The program was moderated by Lonnie Peeks, a local black militant associated with the Student Non-Violent Coordinating Committee (SNCC).
+
+A characterization of the SNCC is contained in the appendix attached hereto.
+
+This was a panel type program with the following persons, all from the Detroit area, appearing:
+
+* Lonnie Peeks
+* Luke Tripp
+* Leonard Brown
+* Victor Stewart
+* Marian Kramer.
+
+Peeks advised that Marian Kramer was a replacement for John Williams, who had another engagement.
+
+CONFIDENTIAL
+GROUP J
+Excluded from automatic clearing and declassification
+
+ENCLOSURE
+
+NW 88296 DocID:32989574 Page 24

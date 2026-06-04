@@ -1,0 +1,57 @@
+# JFK-Files-Part-2_page_18111.png
+
+Convert to MarkdownROUTE IN ENVELOPE
+
+OPTIONAL FORM NO. 10
+MAY 1962 EDITION
+GSA GEN. REG. NO. 27
+
+UNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. C. Sullivan
+
+FROM : C. D. Brennan
+
+1 - Mr. C. D. DeLoach
+1 - Mr. W. C. Sullivan
+1 - Mr. C. D. Brennan
+
+DATE: August 24, 1967
+
+1 - Mr. D. J. Brennan
+1 - Mr. D. M. Wells
+
+SUBJECT: MARTIN LUTHER KING, JR.
+SECURITY MATTER - COMMUNIST
+
+**PURPOSE:** TO BE DETERMINED IN PARAGRAPH (e), BELOW, ARE TO BE PROTECTED REPRESENTATIVE OF SERVICE AND COUNTRY INVOLVED.
+
+To obtain approval to disseminate to S. C. Hocking, Covert Australian Security Intelligence Officer, Australian Embassy, Washington, D. C., a copy of the monograph entitled, "Communist Influence in Racial Matters--A Current Analysis."
+
+## BACKGROUND:
+
+S. C. Hocking, who has the formal title of First Secretary-Migrant Matters, Australian Embassy, Washington, D. C., has advised that the Vietnam Protest Movement in Australia is considering inviting prominent Americans to lecture in Australia on Vietnam. Martin Luther King, Jr., President of the Southern Christian Leadership Conference, has been mentioned by this group as one they might invite for this purpose. Mr. Hocking has requested that he be furnished any information of a political or subversive nature concerning King so that his Director-General can brief the Prime Minister of Australia.
+
+## OBSERVATION:
+
+Since there is a good possibility King might be invited to Australia in the near future, it is deemed desirable to advise appropriate government officials of his heavy alliance to Communist advisors and his immoral conduct.
+
+All information contained herein is unclassified except where shown otherwise.
+
+RECOMMENDATION:
+
+The attached document be disseminated by routing slip to Mr. Hocking through Liaison Section.
+
+Enclosure
+
+DMW:llc (6)
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed without the express approval of the FBI.
+
+SECRET 30
+
+67 AUG 28 1967
+
+NW 88326 DocId:32989653 Page 109

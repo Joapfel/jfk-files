@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_17869.png
+
+Convert to MarkdownPAGE TWO DL 105-NEW
+
+SAS         3X   1X   1X   1X   1X   1X   2
+IS PERCENT   100  34   63   62   24   30   16
+CI PERCENT   100  66   11   38   76   16
+
+SAS         1   1   1   1
+IS PERCENT   13   6   2
+CI PERCENT   8
+
+X RA AND HEADQUARTERS AGENTS ASSIGNED TO IS AND CI SQUAD.
+END.

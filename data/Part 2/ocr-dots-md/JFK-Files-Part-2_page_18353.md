@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_18353.png
+
+Convert to MarkdownMr. W. F. Wannall
+
+F. J. Cassidy
+
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+1 - Mr. J. G. Deegan
+
+9/18/75
+
+1 - Mr. R. L. Shackelford
+1 - Mr. F. J. Cassidy
+1 - Mr. D. K. Pettus
+
+CONTELPROS
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/1/75 BY S24HnNely
+
+This is to identify additional serials which are being made available for access in Room 4171, JEH, or delivered to staff members of the Senate Select Committee (SSC) for retention in SSC office.
+
+Attached are nine serials relating to CPUSA matters which were made available for access for SSC staff members in Room 4171, JEH, on 9/10/75.
+
+Each serial, prior to being made available for access, was excised in accordance with current guidelines relating to excision for access and were approved for passage by the appropriate Section Chief.
+
+Barbara Banoff, SSC staff member, on 9/10/75, requested that eight serials relating to CPUSA matters be re-excised for delivery after having been reviewed by SSC staff members in Room 4171, JEH. Subsequent to the request for delivery, the serials were re-excised by personnel of the respective Sections in accordance with current guidelines relating to excision for delivery. Each serial, prior to being made available for delivery, was approved for passage by the appropriate Section Chief. The list indicating receipt by Banoff of the eight serials on 9/12/75 is attached.
+
+Enclosures
+
+63-116009
+
+(1)
+
+DKP:ij
+(11)
+
+CONTINUED - OVER
+
+NOT RECORDED
+
+48 OCT 1 1975
+
+INITIATE ON ORIGINAL
+INITIATE ON ORIGINAL
+
+OCT 7 1975.

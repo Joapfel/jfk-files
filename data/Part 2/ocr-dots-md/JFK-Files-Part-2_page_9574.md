@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_9574.png
+
+Convert to MarkdownA shipment consisting of seven boxes of newspapers contracted to NORMAN/MC KEE, NCCF, 2219 Indiandale, Detroit, shipper as above, arrived Detroit 5:10 p.m., November 26, 1970, via United Airlines, with instructions to hold at
+
+DE T-18
+November 30, 1970
+
+HUEY P. NEWTON, leader of BPP, is scheduled to speak at the following locations in an effort to raise funds for the Detroit 16s:
+
+| Date | Location |
+|---|---|
+| November 16, 1970 | Oakland University, Rochester, Michigan |
+| November 17, 1970 | Michigan State University, East Lansing, Michigan |
+| November 17, 1970 | University of Michigan, Ann Arbor, Michigan |
+| November 18, 1970 | Western Michigan University Kalamazoo, Michigan |
+
+DE T-1
+November 12, 1970
+
+BEVERLINA PONELL, Financial Secretary, Illinois Chapter, BPP, arrived in Detroit, November 19, 1970, and returned to Chicago, November 20, 1970. She attempted to borrow busses for the transportation of the Chicago group to the Constitutional Convention, Washington, D.C., but was refused.
+
+DE T-1
+November 20, 1970
+
+ROBERT BAY and ZAYD SHAKUR, BPP, New York, DAVID HILLIARD, CONNIE MATTHEWS, and HUEY NEWTON, BPP San Francisco, arrived in Detroit October 16, 1970, and left October 18, 1970, en route to New York. These individuals were in Detroit
+
+45
+
+NW 88296 DocId:32989574 Page 483

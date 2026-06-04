@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_9984.png
+
+Convert to Markdowninvestigative material and information are to be maintained in confidence and no access given thereto, except, with the consent of the investigative agency concerned, to other departments and agencies conducting security programs under the authority of the act of August 26, 1950.
+
+It is strongly urged that you amend the provisions in Section 9(k) of the Sample Security Regulations, because, unless such is done, some departments and agencies may furnish to the employee a copy of the complete record of the case, which would include this Bureau's investigative reports.
+
+Your attention is called to Section 4(b) of the regulations setting forth provisions covering the scope of the investigation to be conducted. The provisions, as set forth, do not include a check of the fingerprint files of this Bureau. As Section 3(a) of the Order, itself, calls for a check of such files, it is suggested you may wish to include this also in the regulations.

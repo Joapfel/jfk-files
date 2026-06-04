@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_9070.png
+
+Convert to Markdowndetermined that the Legal Attache had made inquiries in Paris. In response to leads which had been sent from Bureau Headquarters. This matter is being highlighted because it was a vitally important operation to CIA and the Agency had received indications that information had been leaked to French authorities. We have no evidence or reason to believe that the Legal Attache Office ever involved itself in any such leak. However, we should not, under any circumstances, discount the fact that CIA has penetrated French services, and has had access to sensitive information in Paris. The French have always had an outstanding capability of tapping phones and installing microphones in Paris. Such coverage on U. S. officials, including their residences, should never be excluded. The information we had conveyed to our Legal Attache possibly may have been acquired by the French through clandestine coverage. CIA possibly could charge us with handling their sensitive information in an insecure manner by transmitting it to Paris without conferring with the Agency.
+
+In connection with alleged French espionage activity in the U. S., CIA has never been satisfied with the efforts made by the Bureau. The Agency possibly could take the position that we looked lightly at the allegations and did not pursue a matter which, in their eyes, merited a more aggressive approach. (Bufile - )
+
+For some time, CIA has held a position that the French Intelligence Service (SDECE) is penetrated by the Soviets. The Agency has pointed out that if the French are collecting sensitive information in the U. S., the product is ending up in Moscow. In January, 1964, we reviewed the status of our investigation of French intelligence activities in the U. S. The Director commented "I think this whole thing has been imaginary on the part of CIA which has been played as a sucker by me. I would waste no more time on it at least until all CIA restrictions are removed." CIA did impose restrictions by not permitting us to pursue certain leads because it feared that its sensitive source would be jeopardized.
+(Bufile - )
+
+SECRET

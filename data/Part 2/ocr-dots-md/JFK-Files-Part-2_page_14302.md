@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_14302.png
+
+Convert to Markdown(b) relate to electronic surveillances of telephones and/or premises at 2414 Atlantic Avenue and/or the Clairidge Hotel in Atlantic City, New Jersey, during August 1964.
+
+8. Committee staff access to all memoranda and other materials reflecting the identities of persons monitored, the content of conversations monitored, and/or any information obtained from conversations monitored on the surveillances described above.
+
+9. Copies of all memoranda and other materials relating to the preparation, dissemination, and/or withdrawal of all monographs concerning Martin Luther King, Jr., not to include the monographs themselves.
+
+10. All records, vouchers, travel authorizations, expense receipts, ticket stubs, governmental travel requests (GTR's), and any other documents which relate to travel by:
+
+(a) Former Special Agent Lish Whitson from Washington, D.C., to Tampa or Miami, Florida, during 1964;
+
+(b) Former Special Agents Cartha DeLoach, Hobson Adcock, Don Manning, Harold Linebaugh, and Elmer Todd from Washington, D.C., to Atlantic City, New Jersey, during August 1964;
+
+(c) Former Special Agent William C. Sullivan from Washington, D.C., to Atlanta, Georgia, during 1964.
+
+11. The current office of assignment or last known address of the following persons who, in 1964, were employed at the Newark, New Jersey, office of the FBI:
+
+(a) Robert L. Tagg
+
+(b) John B. Meade
+
+(c) Billie D. Williams
+
+(d) John J. Creamer, Jr.
+
+(e) John J. Connolly
+
+(f) Marjorie Ann Miermelewski
+
+(g) Mary Ann Mass
+
+12. The last known address of the following former Special Agents of the FBI:

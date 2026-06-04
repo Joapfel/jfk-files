@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_18447.png
+
+Convert to Markdown## 3. FBI Foreign Counterintelligence Operations
+
+The Committee seeks to determine the nature of FBI counterintelligence operations directed at foreign intelligence activities within the United States or at any other hostile foreign-related activities within the United States. Since FBI operations to "counter" these activities go beyond intelligence collection, the Committee must consider whether such practices require statutory authorization. The impact of counterintelligence operations on United States foreign relations will also be considered.
+
+Responsible staff: Senior staff
+Task Force leader
+Loch Johnson
+Barbara Banoff
+
+## 4. Inspection Division Investigations
+
+The Committee is examining the relationship of the FBI Inspection Division to FBI intelligence and counterintelligence activities. This includes both regular Inspection Division reviews of Intelligence Division and field office functions and specific investigations of allegations of improper conduct in connection with FBI intelligence activities.
+
+Responsible staff: Senior staff
+Task Force leader
+Mark Gitenstein

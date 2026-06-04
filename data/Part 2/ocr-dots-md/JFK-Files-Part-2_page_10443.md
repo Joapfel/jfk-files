@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_10443.png
+
+Convert to MarkdownSECRET
+
+13 May 1973
+
+MEMORANDUM FOR: DDI
+
+SUBJECT : Sensitive Activities
+
+1. FBIS has been engaged in no activities related to the Ellsberg and Watergate cases.
+
+2. FBIS operations occasionally extend to the domestic arena. From time to time, FBIS linguists are made available to DDO or Office of Communications components for special operations (usually abroad) involving close-support SIGINT work or translation of audio take. On one occasion recently DDO, on behalf of the FBI, requested the services of several FBIS linguists skilled in Arabic to work directly for the FBI on a short-term project here in Washington. The arrangements were made by Mr. Oberg of the DDO CI Staff. He said the project was very highly classified and that FBIS participation was approved by Mr. Colby and the Director. FBIS participation was approved by the Director of FBIS after a check with the ADDI. Other examples of sensitive linguistic support work are help in the handling and resettlement of defectors, the recent assignment of an employee to the Bureau of Narcotics and Dangerous Drugs to transcribe recordings in a rare Chinese dialect, and the detailing of another Chinese linguist on two occasions to assist in the U.S. military training of Chinese Nationalist cadets.
+
+3. Within its responsibility for monitoring press agency transmissions for intelligence information, FBIS publishes and distributes some material which falls in a "gray" area of copyright protection, libel, and privacy of international communications. Press services controlled by national governments and transmitted by radioteletype without specific addressees, e.g. the Soviet TASS service and the PRC's KCNA, are monitored by FBIS and the material is disseminated without restriction. The legality of this has been affirmed by decisions of the Office of General Counsel. However, we also monitor some in-house, correspondent-to-headquarters dispatches which are considered private point-to-point transmissions. FBIS therefore avoids public distribution of material monitored from these circuits by labeling them with an "Official Use Only" caveat. The same caveat is used on material which we monitor from other press agencies which are protected by international copyright, e.g. Agence France Presse (AFP), the Middle East News Agency (MENA), and the Iraqi News Agency (INA). This procedure has allowed FBIS to disseminate news
+
+00202
+
+NW 88296 Doctd:32989624 Page 82
+
+<table>
+  <tr>
+    <td>2</td>
+    <td>IMPSET CL NO 0143</td>
+  </tr>
+</table>

@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_16935.png
+
+Convert to Markdown10/7/69
+
+RON SATCHEL, FRED N. JOHNSON, FRED HAMPTON,
+DEBRA JOHNSON
+
+These Panthers, JOHNSON pregnant by HAMPTON, are residing at 2337 West Monroe Street and HAMPTON is using the name FRED M. JOHNSON.
+
+LOUIS TRULOCK
+
+This Panther resides on the second floor, Room 10, in a building located on the corner of Jackson and Monroe. This person is allegedly very adapt to picking locks, is also very knowledgeable in the art of robbery.

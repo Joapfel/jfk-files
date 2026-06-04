@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_14754.png
+
+Convert to MarkdownFBI
+
+Date: 9/24/68
+
+Transmit the following in
+
+Via AIRTEL
+
+(Type in plaintext or code)
+
+(Priority)
+
+TO: DIRECTOR, FBI (105-174254)
+
+FROM: SAC, WFO (100-New)
+
+COUNTERINTELLIGENCE AND SPECIAL OPERATIONS
+(NATIONALITIES INTELLIGENCE)
+
+INFORMANT has advised that GALINA V. UTEKHINA, a cultural attache at the Soviet Embassy, Washington, D.C. (WDC), has been conferring with source concerning the reaction of peace groups in the United States to the Soviet occupation of Czechoslovakia. UTEKHINA has met with Women Strike for Peace (WSP) and Women's International League for Peace and Freedom (WILPF) groups and expressed interest in meeting people in the peace movement throughout the United States. She is also desirous of speaking before student groups.
+
+UTEKHINA has advised source that she would like to arrange a two week's tour of Soviet cities for a delegation of WSP women. A group from WILPF has already been to the Soviet Union and have returned. UTEKHINA wanted to know what WSP's reaction to this proposal might be.
+
+3 - Bureau
+
+3 - WFO
+
+(1 - GALENA UTEKHINA)
+(1 - 134-6831)
+
+PHW:fet
+(6)
+
+C. C. • Bishop
+
+AIRTEL
+
+EX-114
+
+17 OCT 2 1968
+
+Classified by 6136
+Exempt from GDS Category 593
+Date of Declassification Indefinite
+
+Approved: ________ Sent ________ M Per ________
+
+NW 88613 DocId:321995541 Agent in Charge
+Page 251

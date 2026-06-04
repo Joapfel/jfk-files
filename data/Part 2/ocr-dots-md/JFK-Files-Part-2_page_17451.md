@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_17451.png
+
+Convert to MarkdownInformant advised SA DAVID R. STRUCK on April 16, 1969:
+
+Several individuals, all Negro youths, broke the windows in the Tastee-Freeze at 12th and Madison. The identities of the youths are not known to informant.
+
+On April 14, 1969, a meeting was held at ROBERT BRUCE's house, in Maywood. Present were the following BPP members; FRED HAMPTON, ROBERT BRUCE, WALTER ALLEN, TYRONE GLADNEY, MATTHEW ANGRUM and NATHANIAL JUNIOR. Nothing was planned or decided at the meeting and the discussion centered around HAMPTON being sentenced on May 13, 1969.
+
+Informant advised SA ROBERT PEVAHOUSE on April 22, 1969:
+
+The owner of the Tastee-Freeze identified GREGORY PERKINS as one of the persons who broke his windows and has signed a complaint against him. PERKINS intends to talk to the BPP about possible retaliation against the owner for signing the complaint.

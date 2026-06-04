@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_19056.png
+
+Convert to MarkdownWFO 105-8906
+
+situations like the Cuban crisis. He also requested the source to bring him a miniphone recording machine from the United States. Source stated that he had never experienced anything else which would indicate the Soviets were attempting to compromise him.
+
+Source was expelled by the Soviets in 1965, only after it was known to KGB that he was to be replaced by ABC. Shortly after his return to the United States, he was assigned to Hong Kong by ABC and has not been thoroughly debriefed concerning his activities in Moscow.
+
+2) Soviet defector ~~advised that~~ this individual (SAM JAFFE) was recruited by the KGB about 1962. He said when JAFFE arrived in 1961, the First Department of the Second Chief Directorate (SCD), which operated against the American Embassy, and the Tenth Department of SCD, which operated against foreign correspondents, consulted and it was decided that the First Department would operate against JAFFE for the purpose of recruiting an American agent moving in American Embassy circles. [Footnote: said that in 1962 or 1963, VYACHESLAV ALEKSANDROVICH KUSKOV was working with JAFFE, but did not know if JAFFE was considered as an agent or just an operative contact. He did know that KUSKOV was meeting JAFFE and obtained information from him. re-called also that JAFFE was used by KGB in connection with trips of two groups of Americans to the USSR, where they met with Premier KHRUSHCHEV. The Seventh Department of SCD, which was working against tourists (of which [Footnote: , the Tenth Department, and the First Department were all planning work against these groups. KGB desired to operate agents against them to find out what was said by them after meeting with KHRUSHCHEV. He recalled that KUSKOV had been requested to utilize JAFFE in this connection and furnished information which he had received from JAFFE. said one group was a group of businessmen which met with KHRUSHCHEV on 11/6/62 or possibly 1963, and another group contained some Congressmen who came to the USSR in connection with the signing of some treaty pertaining to atomic energy.]]
+
+103
+
+MWW 88326 DocId:32989704 Page 350

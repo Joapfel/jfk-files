@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_9691.png
+
+Convert to Markdownthe Bill of Rights, and eliminated or revised all the amendments to the Constitution. We have formed a national caucus of the hundreds of known and unknown political leaders whose present identity will remain anonymous, who at the time the enemy aliens perish or relinquish control, will immediately be brought before the American voter to seize popular control of vacant political offices.
+
+We of the NRA are the people, we speak for the people, and we will violently eliminate America's enemies with the haste of a speeding bullet. The NRA has chosen for its spokesman a well-known adversary for the return of America to a natural social order. The revolutionaries of the NRA are ordered to maintain in every way possible or to avoid detection by the enemy, but are ordered not to deny their association if at such time they are detected by the enemy or captured. All NRA members and associates are instructed that if captured they are governed by the laws set at the Geneva Conference for captured soldiers and prisoners of war. This is by all means a declaration of war. The enemies of white America will fall like flies at a Raid party.
+
+The following is a very brief synopsis of the goals of the NRA once we seize power.
+
+1. All non-whites immediately loose citizenship and prepare for repatriation.
+
+2. The Federal Reserve will be abolished and all illegal tender returned and it will be replaced with legal notes once citizenship is confirmed.
+
+3. Israel immediately declared an illegal enemy state.
+
+4. Immediate deportation of all Jews, either racial or religious.
+
+5. Income tax abolished. (Product) taxation and industrial support.

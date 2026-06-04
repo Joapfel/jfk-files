@@ -1,0 +1,61 @@
+# JFK-Files-Part-2_page_9101.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO: DIRECTOR, FBI (157-6908)
+
+FROM: SAC, NEWARK (157-2011) (P)
+
+SUBJECT: FRANK AUGUST DRAGER, JR.
+EM-WHITE ACTION MOVEMENT
+OO: NEWARK
+
+DATE: 4/15/74
+
+Re Newark teletype to Bureau 1/14/74; Bureau letter to Newark 2/13/74; Springfield teletype to Bureau 3/8/74; Springfield letter to Bureau 3/21/74.
+
+Enclosed for the Bureau are five copies of an LHM dated and captioned as above. Enclosed is one LHM for each receiving office for information purposes.
+
+NK T-1 is PH 811-E, informant
+NK T-2 is an acquaintance-of-subject, confidential source
+NK T-3 is IP 3373-E, informant
+NK T-4 is an individual in the Dover Township PD, confidential Source
+
+This investigation is based on information which indicates the subject is possibly engaged in activities which could involve a violation of Title 18, USC, Section 241 (Conspiracy Against Rights of Citizens), Section 245 (Federally Protected Activities), Civil Rights Act of 1968, or related Civil Rights Statutes.
+
+The subject claimed on 9/27/73 to be the acting Grand Dragon of the Ku Klux Klan.
+
+It is recommended DRAGER be continued as a subject of ADEX, inasmuch as he has since 9/12/73, been traveling the East Coast claiming to be a Grand Dragon of the KKK and overall coordinator for all right-wing organizations located on the
+
+cc 622 08
+
+"ENCLOSURE ATTN."
+
+EX-115
+
+2-Bureau (Enc. 7)
+1-Cincinnati (Enc. I) (Info)
+1-Indianapolis (Enc. 1) (Info)
+1-Kansas City (Enc. 1) (Info)
+1-Miami (Enc. 1) (Info)
+1-Philadelphia (Enc. 1) (Info)
+1-Springfield (Enc. 1) (Info)
+2-Newark
+CFM/mla/jz
+(10)
+
+REC-10
+
+4 APR 18 1974
+
+7 MAY 21 1974
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+5-8-74
+
+5010-108
+
+NW 88296 DocId:32989574 Page 10

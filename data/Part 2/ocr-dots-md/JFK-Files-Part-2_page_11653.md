@@ -1,0 +1,87 @@
+# JFK-Files-Part-2_page_11653.png
+
+Convert to Markdown# PART II
+
+## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+
+### A. PRESS RELEASES
+
+Employees are forbidden to furnish to the press either directly or indirectly any information concerning Bureau matters without prior authorization from the Bureau except in following instances. (Bureau in turn must obtain departmental clearance as set forth in Departmental Order 2460.)
+
+1. Bureau authority is granted for SACs to make releases on purely routine cases, local in nature, not involving other field divisions, national policy, national interest, other Federal agencies, state, county, or municipal employees, or persons of prominence whose names would be newsworthy in themselves, and where arrests have been made with the authorization of the USA in the following classifications. The Bureau is to be advised that such releases have been made.
+
+a. Routine cases in which complaints have been filed
+
+b. Selective Service cases, except when draft boards are involved
+
+c. Interstate transportation of stolen motor vehicle, except when wide-spread rings are involved
+
+d. White Slave Traffic Act
+
+e. Deserter cases, except charges growing out of the harboring of deserters
+
+f. Illegal wearing of uniform
+
+g. Impersonation
+
+h. National Firearms Act
+
+i. Federal Firearms Act
+
+j. Extortion
+
+k. Red Cross Act
+
+l. Theft from interstate shipment
+
+m. May Act
+
+n. Patent matters
+
+o. Copyright matters
+
+p. Federal Reserve Act
+
+q. Mail fraud
+
+r. Falsely claiming citizenship
+
+s. Illegal manufacture, possession, or wearing of civil defense insignia
+
+t. Illegal manufacture, sale, or use of military cremation urn
+
+u. Crimes on the high seas
+
+v. National Bankruptcy Act
+
+w. Theft, embezzlement, robbery, illegal possession of, or destruction of Government property
+
+x. Crimes on Indian reservation
+
+y. Crimes on Government reservation
+
+z. Bills of Lading Act
+
+aa. False entries in records of interstate carriers
+
+ab. Illegal use of a railroad pass
+
+ac. Interstate transportation of gambling devices
+
+ad. Interstate transportation of lottery tickets
+
+ae. Interstate transportation of obscene matter
+
+af. Escaped Federal prisoner, escape and rescue, parole violator or conditional release violator or probation violator
+
+ag. Interstate transportation of stolen property
+
+ah. Unlawful flight to avoid prosecution, unlawful flight to avoid confinement, unlawful flight to avoid giving testimony (Bureau still to be promptly advised)
+
+ai. Bank robbery
+
+aj. Interstate transportation of stolen cattle
+
+ak. Migratory Game Bird Act
+
+6-30-58

@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_14468.png
+
+Convert to MarkdownSECRET
+ROUTE IN ENVELOPE
+
+Federal Bureau of Investigation
+
+March 10, 1972
+
+BY CIA COURIER
+
+Director
+Central Intelligence Agency
+Washington, D. C. 20505
+
+ATTENTION: Deputy Director for Plans, JAMES ANGLETON
+
+RE: HUNTER PROJECT
+
+Dear Sir:
+
+☐ 1. For your information, I am enclosing communications which may be of interest to you.
+
+☐ 2. It will be appreciated if you will have the investigation conducted as requested in the enclosed memorandum and furnish the results.
+
+☐ 3. No further investigation is contemplated with regard to this matter.
+
+☑ 4. You will be advised of the pertinent developments in connection with this inquiry.
+
+☐ 5. Please note change in caption of this case.
+
+☐ 6. Status of case:
+[ ] Completed
+[ ] Incomplete
+
+TO MAR 10 1972
+
+Enc.
+
+Reference is made to your special notation on Hunter Report No. 27,226, Item 72A13AM. Attached is a list of types of traffic we would like to receive.
+
+EXCLOSURE.
+
+97 MAR 1, 1972

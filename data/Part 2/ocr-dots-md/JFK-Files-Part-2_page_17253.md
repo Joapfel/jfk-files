@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_17253.png
+
+Convert to Markdown# E. Police Records
+
+On February 14, 1969, the records of the Identification Division, Federal Bureau of Investigation (FBI), Washington, D.C., were searched. They showed, under FBI number 756 977 G, that the fingerprints of RONALD JEROME SATCHEL were submitted on January 30, 1969, by the Chicago Police Department for aggravated assault and resisting arrest.
+
+SATCHEL's fingerprints were also submitted on February 9, 1969, by the Sheriff's Office, Urbana, Illinois, for conspiracy to commit theft of service. (Details of this arrest are set forth under the heading of Activities.)
+
+On February 12, 1969, the records of the Chicago Police Department were searched, and they showed, under number IR 227462, that RONALD J. SATCHEL, Negro male, born June 22, 1950, was arrested on January 30, 1969, by the Chicago, Illinois, Transit Authority officers for aggravated assault, disorderly conduct and resisting arrest when he disregarded officer's warnings to stop bothering subway passengers.
+
+## II. MEMBERSHIP
+
+On February 4, 1969, advised that RONALD SATCHEL, 6846 South Clyde Avenue, Chicago, Illinois, was a member of the BPP in Chicago, Illinois. He reportedly held the position of Minister of Health on the Central Committee of the BPP in Chicago. This Central Committee consists of fourteen members.
+
+## III. ACTIVITIES
+
+In February, 1969, advised that in the first week of February, 1969, members of the BPP in Chicago went to the University of Illinois, Champaign-Urbana Campus, for the purpose of establishing a BPP in that area.

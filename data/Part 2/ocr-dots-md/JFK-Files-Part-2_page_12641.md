@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_12641.png
+
+Convert to Markdownf. Subject no longer dangerous or potentially dangerous
+
+Frequently information is received or investigation develops that subject is no longer threat to internal security by reason of physical condition, defection, or expulsion from subversive movement. Such defection may be shown by lack of activity and obvious disinterest over extended period or declaration of opposition to principles of subversive movement.
+
+When there is sufficient information regarding subject's present sympathies to conclude he should no longer be considered dangerous, request authority for interview or advise Bureau why subject should not be interviewed. Bureau will not cancel security index card without consideration being given to interview. If, upon interview, subject proves cooperative, advise Bureau by letter and recommend cancellation.
+
+[In all cases the recommendation for removal from the security index should be made by FD-122 with attached succinct summary of facts on which the recommendation is based. Submit abstract with FD-122 used to recommend removal from security index.]
+
+g. Subjects removed from security index solely upon basis of application of security index criteria, with no affirmative indication of defection
+
+With passage of time, limits specified in security index criteria will operate to remove subjects even though there is no affirmative indication of defection. When recommending such removal, consider if facts warrant inclusion of subject in section A of reserve index. Following procedures are for subjects not being recommended for inclusion in section A of reserve index:
+
+(1) When subjects are removed from security index solely on basis of application of criteria, retain security index cards bearing descriptive matter on reverse sides; i.e., cards previously filed in geographical, special, or unavailable sections. Destroy cards previously filed in alphabetical section. Those offices maintaining two sets of geographical cards should retain only one card.
+
+(2) Mark "cancelled" across face of each card retained and file in reserve index, section B.
+
+(3) Above instructions do not apply to individuals removed from security index based upon activity in Nation of Islam. Their cards should be destroyed.
+
+## 11. Priority apprehension program
+
+### a. Purpose
+
+Some security index subjects, because of their training, violent tendencies, or prominence in subversive activity, would be more inclined or more capable of committing acts against U. S. in time of national emergency than others. Such subjects must be immobilized in least possible time. Individuals in security index tabbed priority I, and possibly priority II, would be arrested first in event of limited but grave emergency, probably without arrest of other subjects. In all-out emergency, consideration for apprehension will be given to all subjects. Decision as to priority of apprehension should be based on subject's subversive activities and revolutionary tendencies.
+
+### b. Priority tabbing
+
+(1) Each security index subject should be considered for priority I tabbing who falls within following categories:
+
+(a) All top functionaries
+
+(b) All individuals considered to be hard-core national and state leaders of basic revolutionary organizations and leaders of other subversive organizations and unorganized groups and individuals who have indicated propensity for violence and/or have received special training in sabotage, espionage, and/or guerrilla warfare, or have engaged in underground operations
+
+(c) Individuals employed in or having access to key facilities

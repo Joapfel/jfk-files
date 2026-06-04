@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_18761.png
+
+Convert to MarkdownNY 65-15026
+
+Board of Directors of the Great Atlantic and Pacific Tea Company (A & P). During the evening in conversation with KAHN, KALININ told KAHN that CHISTAS MIKOVAN, Deputy Soviet Premier, would like to observe the operation of a large food store chain during his forthcoming visit to the United States, and he, KALININ, was wondering if KAHN could arrange to have MIKOVAN meet the president of the A & P as well as observe the operations of this firm. KAHN told KALININ that he thought this could be arranged. Subsequent to his conversation with KALININ, KAHN told JAFFE about it and expressed his intention to see if he could arrange to fullfil MIKOVAN's desire as expressed by KALININ. KAHN will keep JAFFE advised of any arrangements which he makes and JAFFE will in turn immediately advise this office.
+
+This office does not believe that KALININ, as a translator assigned to the United Nations Secretariat, holds a position in which he would be permitted to make arrangements for any activities of KALOYAN while MIKOYAN is in the United States. KALININ is not known to be an exceptionally intelligent or polished individual and it is unlikely that he will be one of the Soviet Nationals closely associated with MIKOVAN while MIKOVAN is in the United States. Accordingly, the above information has not been included in a memorandum suitable for dissemination; however, if in the future more concrete information with respect to KALININ'S efforts to arrange a visit for MIKOYAN to the A & P comes to the attention of this office, it will be included in a memorandum suitable for dissemination.
+
+The Bureau will be kept advised.

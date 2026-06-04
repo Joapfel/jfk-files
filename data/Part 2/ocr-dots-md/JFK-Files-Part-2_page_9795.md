@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_9795.png
+
+Convert to MarkdownAssistant Attorney General
+for Administration
+
+Your memorandum of November 1, 1974, in part,
+responded to this Bureau's memorandum of August 19, 1974,
+which asked for guidelines to be used by the FBI in
+initiating investigations of applicants and employees in
+the Executive Branch of the Government pursuant to Section
+8(d) of EO 10450. This Section specifically instructs
+other agencies to promptly refer to the FBI for investi-
+gation those cases which develop information indicating
+that an individual may have been subjected to coercion,
+influence or pressure to act contrary to the interests of
+the national security, or information relating to any of
+the other matters described therein.
+
+Since the guidelines furnished by you are
+concerned primarily with possible violation of law, a
+decision to be made by the Department, it will be
+appreciated if you will furnish additional guidelines
+to cover 'sympathetic association' and other standards
+mentioned in Section 8(a) (2) through (8) when the
+investigation concerns an applicant or employee in the
+Executive Branch of the Government.
+
+In considering the foregoing, it should be noted
+the FBI has another responsibility under EO 10450 which is
+set forth in Section 5. This Section provides that
+whenever there is developed or received by any department
+or agency information indicating that the retention in
+employment of any officer or employee of the Government
+may not be clearly consistent with the interests of the
+national security, such information shall be forwarded to
+the head of the employing department or agency or his
+representative.
+
+Your attention is also invited to Chapter 736 of
+the Federal Personnel Manual, which instructs agencies to
+promptly refer to the FBI for investigation cases "which
+develop information indicating that a person may have been
+subject to coercion, influence or pressure to act contrary
+to the interests of the national security, or information on
+possible disloyalty to the United States."

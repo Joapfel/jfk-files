@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_9158.png
+
+Convert to MarkdownNY 185-229
+
+DETAILS:
+
+Enclosed for the Assistant United States Attorney, Southern District of New York are 3 photographs of the captioned device obtained from the United Nations (UN) Security Force on August 7, 1974, and a UN pamphlet captioned, "A Room of Quiet".
+
+Investigation in this matter is predicated upon receipt of information from the United States Mission to the United Nations (USMUN) on August 7, 1974, that an explosive device, consisting of five sticks of dynamite, had been located in the southwest corner of the Meditation Room, UN General Assembly Building, New York, New York.
+
+On August 7, 1974, Assistant United States Attorney (AUSA) MAURICE MC DERMOTT, Southern District of New York (SDNY), was apprised of the details in this matter, and advised that it was his opinion that further FBI investigation was warranted in accordance with Title 18, USC, Section 970, regarding the protection of foreign diplomatic establishments and international organizations.
+
+The following investigation was conducted at New York, New York:

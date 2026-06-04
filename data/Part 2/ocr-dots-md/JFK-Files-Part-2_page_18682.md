@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_18682.png
+
+Convert to MarkdownII. Materials to which the SSC staff has been given access;
+delivery requested by Friday, August 15, 1975:
+
+A. The following materials maintained in the so-
+called "Official and Confidential" files and
+designated "non-derogatory," previously examined
+by SSC staff:
+
+1. Agreement between FBI and Secret Service;
+
+2. Attorney General - Submission of Memoranda by FBI;
+
+3. "Black Bag" Jobs;
+
+4. Expansion of FBI Foreign Intelligence Coverage;
+
+5. Intelligence Coverage - Domestic and Foreign;
+
+6. Directives (60);
+
+7. Cook, Fred (52).
+
+B. Summaries or notes on interviews conducted by Inspection Division for July 3 Inspection for the individuals whose names are underscored on the attached list (slightly expanded from previous access requests).

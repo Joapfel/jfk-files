@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_8996.png
+
+Convert to Markdowna Cuba, que fué en una de estas ocasiones, y precisamente el-
+miércoles 18 del repertido mes de septiembre, en que al llegar
+el dicente al Consulado, alrededor de las once horas, vió sen-
+tado en un sillon, al lado izquierdo de la sala de espera del
+Consulado, entrando por la puerta de la esquina, a un nortea-
+mericano de un metro setenta y cinco centímetros de estatura,
+más o menos, complejón regular, más bien delgado, vistiendo-
+pantalón gris, saco sport negro, camisa blanca y una corbata-
+de cordón tipo texano, calzando zapatos cafés; que le llamó --
+la atención del dr. la voz, el cutis muy palido del individuo,
+su aspecto de tristeza y los ojos muy hundidos, siendo estos-
+ce color oscuro y que le dio la impresión de ser un drogadic-
+to; que también le llamó la atención que el pelo de ese sujeto
+era oscuro en su mayor parte, pero tenía partes o mechones --
+rubios, calculándole unos veintiseis años de edad aproximada-
+mente. Que además de este individuo, que fue quien más le llá-
+mó la atención, estaban también en el Consulado una muchacha-
+rubia, de pelo ondulado, y de unos veintiseis años de edad, --
+que se sentó al sofá, y con el brazo izquierdo en el sopó, el
+más o menos, y una señora gorda como de treinta y ocho años,--
+blanca, con pelo castaño, está al parecer mexicana por el acen-
+to de su voz; también estaba en el Consulado el Cubano que --
+generalmente se ocupa de recibir y atender a las personas que
+llegan a esas oficinas; que el declarante se sentó en un sillon
+al lado opuesto de la entrada en que el norteamericano -
+que le llamó la atención, se encontraba, y se puso a leer un-
+libro; que cuanto estaba en su lectura, notó que se estacionó
+un automóvil de alquiler en la puerta del Consulado, bajándose-
+se del vehículo dos personas, un negro, alto, de un metro --
+complejón delgado, pero fuerte, de ojos saltones, pómulos sa-
+lientes, labios gruesos, pelo rojizo y muy aborregado, vis-
+tiendo traje color café, y un blanco, joven, como de veinte --

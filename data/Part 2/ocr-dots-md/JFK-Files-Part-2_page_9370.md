@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_9370.png
+
+Convert to MarkdownThe interest in the Flint branch of the NCCF is continuing to decrease, only about five children are showing up for the Breakfast Program, this is probably due to the preparation of the food, which is very bad.
+
+DE T-1
+
+January 14, 1971
+
+DE T-2 advised on various dates in January, 1971, that the Breakfast Program operated at the following locations, five days a week:
+
+* St. Leo's Church, 15th and Grand River, Detroit about seven children per day
+
+* 3591 17th Street, Detroit about ten children per day
+
+* 3595 17th Street, Detroit about ten children per day
+
+* 611 Continental, Detroit about forty children per day
+
+The Breakfast Program in Flint decreased to less than eight children per day in February, 1971.
+
+DE T-1
+
+February, 1971
+
+The Detroit Breakfast Program has been discontinued due to lack of funds.
+
+DE T-2
+
+February 10, 1971
+
+The Breakfast Program was reinstituted the last week in March, 1971, at 611 Continental, and St. Leo's Church, Detroit.
+
+DE T-2
+
+April 1, 1971
+
+NWW 88296 DocId:32989574 Page 279.

@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_12056.png
+
+Convert to Markdown12. During initial stages of development and on occasion active informants may raise a personal question concerning their own position if it becomes known publicly that they are affiliated with a subversive organization. In the event a potential informant or informant inquires as to what can be done for him in such a case, he may be told that his cooperation is a matter of record in the FBI and if some question arises concerning his loyalty we will consider making the facts of his cooperation with the FBI known to his employer or to the responsible individuals. It should be pointed out that this action may make it impossible for him to continue on behalf of the FBI and the service which he is performing for his country may be terminated. Before taking steps to advise anyone of a potential informant's or informant's cooperation, prior Bureau authority must be obtained.
+
+13. Specifically advise each potential informant that he is not and cannot consider himself a Bureau employee or "undercover Agent" of the FBI. In this regard, the seriousness of violating the impersonation statutes must be impressed upon the informant.
+
+14. Advise potential informant that his cooperation must be strictly confidential at all times and if he should feel he cannot maintain this confidence he should so advise. There should be no doubt left in the mind of the informant that his relationship must remain on a confidential basis and if he violates the confidence he will be of no value and by so doing the Bureau's investigative activity may be jeopardized. This must be thoroughly impressed upon the informant before you accept him as such. If the informant has a special problem which would require his revealing his relationship to his wife, etc., this should be learned from him during the initial interview and a recommendation made to the Bureau when the results of the interview are furnished. The special circumstances will be taken into consideration by the Bureau.
+
+15. If a prospective informant is connected in any manner with a labor union, inform him that the Bureau is not interested in employer-employee relationships as such and is only concerned with obtaining information on the infiltration in labor unions by subversive elements.
+
+16. If the potential informant is a student, teacher, or has any similar relations with a school, college, or university, in his initial interview and subsequent handling, be sure to follow current instructions concerning investigations on the campuses of colleges and universities...
+
+17. From the first interview with a potential informant through his development and until he is discontinued, extreme caution should be used at all times to be certain he is not a plant.
+
+18. When potential informant begins to furnish current information and otherwise qualifies for designation as informant, assign permanent symbol number and advise Bureau. This communication must be personally initiated by SAC or ASAC acting in his absence; individual's background must also be thoroughly reviewed at this time, keeping in mind possibility of using informant as a potential witness. If individual has any weaknesses, set forth safeguards being followed to insure security and to prevent embarrassment to Bureau.]
+
+E. BUREAU POLICY
+
+[1. Development of military personnel]
+Do not develop informants among military personnel on military reservations, establishments, etc., unless specifically approved by the Bureau.
+
+[2. Contacts by designated Agents]
+Contacts with an informant or potential informant should only be made by the Agent or Agents specifically designated [to contact him.]
+
+[3. Divulging information to informant]
+No information should be divulged to[a potential]informant[or an informant] concerning any of the Bureau's investigative activity other than that which is essential to[his] proper operation.
+
+NW-88321 DocId:32989529 Page 1390
+
+6
+2-12-60

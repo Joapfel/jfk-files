@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_18623.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. C. Sullivan
+
+FROM : Mr. W. R. Wannall
+
+SUBJECT: OPERATIONS
+LEGAL ATTACHE,
+SANTO DOMINGO OFFICE
+
+1 - Mr. DeLoach
+1 - Mr. Sullivan
+DATE: August 22, 1966
+1 - Liaison
+(Mr. Papich)
+1 - Foreign Liaison
+Unit (Mr. Potocki)
+1 - Mr. Wannall
+1 - Mr. Griffith
+
+This is to recommend that the Central Intelligence Agency (CIA) be advised that we have set up a regular Legal Attache Office in Santo Domingo in view of the President's desire that the FBI remain in the Dominican Republic and that Legal Attache, Santo Domingo, be authorized to turn two informants over to the Agency.
+
+In accordance with the desire of the President and recommendation of the Honorable Marvin Watson, Special Assistant to the President, that the FBI remain in the Dominican Republic, the Director, on 8/2/66, advised the White House that our staff in Santo Domingo would be reduced to three men and that henceforth this office will be manned in a manner similar to that of our other Legal Attache Offices. It will not be an operational office but rather will serve as a strategic listening post for intelligence data and as liaison with agencies of the Dominican Republic, as well as other agencies of foreign governments in that country.
+
+In light of this redirection of effort, we instructed Legal Attache, Santo Domingo, to review his informant coverage to determine if any of our informants should be made available to the Agency for operation. Legal Attache has recommended that two informants, DOM-10 and DOM-12, be turned over to CIA. DOM-10 has been used principally to develop subversive data on individuals in Santiago, Dominican Republic. (DOM-12) is a penetrative-type informant who has gained membership in Dominican subversive groups. Both of these sources are operational and are not the type we would contact in a normal liaison capacity. Continuation of their services under our current criteria would be a questionable procedure.
+
+REC-71 64-4503-363
+14 SEP 22 1966
+
+Enclosure
+
+1 - 64-4123-211 (Legal Attache Informants - Santo Domingo Office)
+1 - 134-13781 (DOM-12)
+
+FBG:pem/js
+(9)
+
+ST-101
+(CONTINUED - OVER)
+
+62SEP281966
+
+NW 88326 DocId:32989627 Page 221

@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_16496.png
+
+Convert to Markdown# What Police Institutes Are About
+
+The pigs are coming down on the people. The racist power structure is getting “aptight” because large numbers of black, brown and white people are understanding what this country and the pigs are all about. The more we understand, the harder we fight. And the harder we fight, the greater is the threat to the political, economic and social control of this country by the racist power structure. And when the people in power feel threatened they respond in the only way they can—with force and violence.
+
+As the number of black rebellions, campus revolts, labor strikes, welfare marches and sit-ins, rent strikes, etc., increase, the power structure and its pigs become increasingly incapable of stopping the people and are forced to develop newer, more sophisticated methods to control them. That is what police institutes like the one at the University of Illinois at Chicago Circle and the one on police technology at IIT are all about.
+
+## "Just Doin' My Job"
+
+We often hear about how the cop is "just doing his job". That's certainly true enough; but what exactly is his "job"? The actions of the police in the black and brown communities make that clear. Try telling any ghetto dweller that the police are in his community to protect the people. He knows that is a lie—they are there to protect private property, to function as an "occupying army" to protect the property of the outside—generally white—businessman. When the "showdown" between property and people's lives comes the pigs will always side with the businessman. The order that Daley gave last April—"Shoot to kill"—was no mistake. Ogilvie's statement upon sending in the National Guard—"Property Must Be Protected"—meant the same thing—the property of storeowners and slumlords is to be maintained at the cost of human lives.
+
+Pigs serve three repressive functions in what we will call the black and brown internal colonies. This is not to say that the pigs are not repressive in white neighborhoods; the brutal attacks on white youth—students, dropouts, gang kids, and to an increasing extent white workers—should dispel that idea. The pigs function in a similar manner in white neighborhoods but it is obvious that the repression brought down on the black and brown communities is not only more intense given the nature of this racist society, but it is of
+
+174

@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_15536.png
+
+Convert to MarkdownRush answered this question. 'Yes, we are armed but this is our constitutional right and it is only in self defense. We don't believe in harassing anybody to make them join our party and we urge individuals who are racists and don't want to abide by our program. And if anyone has a complaint about this kind of thing he or she should come to the office and we'll punish the person in front of the complainant,' he said.
+
+When asked about their feelings toward SCLC's Operation Breadbasket, Hampton said that organization should have initiated the free feeding program.
+
+'Jesse Jackson spoke at our convention in California a few weeks ago and he should put into action what he said there because he got two standing ovations when he spoke,' Hampton said.
+
+'And Jesse should be telling the people about people like Hanruhan, Mayor Richard J. Daley and Police Gang Intelligence Unit head (Edward) Buckney and the atrocities they're perpetuating on black people.
+
+'In fact,' Hampton continued, 'Jesse should get on the radio and make a (public service) tape in direct opposition to what Hanrahan's telling the people to do about the gangs.' (Hampton was apparently referring to Hanrahan's public service announcements which advise Chicago citizens to lodge complaints with his office if they were intimidated or harassed by gang members.)
+
+'All these pigs do is label a gang and then the people start believing that meas and
+
+NW 88613 DocId:32199554 Page 1033

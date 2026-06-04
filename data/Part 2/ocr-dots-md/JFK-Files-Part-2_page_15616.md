@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_15616.png
+
+Convert to MarkdownBLACK PANTHER PARTY (BPP)
+
+This incident culminated in the arrest of four demonstrators who were charged with disorderly conduct. Following the arrest the demonstrators moved their demonstration to the Evanston PD to protest the arrest of their group.
+
+During the demonstration at the Evanston PD the number of demonstrators rose to approximately 100. The demonstrators left the PD at approximately 3:45 pm and proceeded again to the business district and attempted to remove an American flag from the Downtown flagpole. The demonstrators were stopped by citizens. A fight resulted and six more demonstrators were arrested and their charges ranged from aggravated battery, disorderly conduct to resisting arrest. All those arrested were either NW or Kendall College students.
+
+Following the later arrests a group of approximately 10 NW students returned to the PD to make bond for those arrested. The crowd dispersed at 5:15 pm without further incident or arrests being made.
+
+On December 6, 1969, Officer James Neilson, Chicago PD, advised that Robert Rush, Deputy Minister of Defense, Illinois BPP, publicly surrendered at Noon to Commanders Robert Harness and George Sims of the Second and 11th Police Districts, respectively. Rush was charged with failure to register a firearm as a result of a raid on his residence, 2030 South State Street, on December 5, 1969. The surrender took place on the stage of the Capital Theatre, 79th and South Halsted Streets during an Operation Breadbasket meeting that was in progress and attended by mostly Negroes. No incidents were reported or arrests made as a result of the above arrest and those at the Theatre remained calm.

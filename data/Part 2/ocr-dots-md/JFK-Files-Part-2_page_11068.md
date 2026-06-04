@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_11068.png
+
+Convert to MarkdownAt the seat of Government a careful appraisal will be made of the field's recommendation, following which the office will be advised concerning the Bureau's decision on the recommendation.
+
+(4) Regulations governing the handling of top functionaries
+
+(a) Designation and deletion of top functionary status
+Designate or remove a subject as a top functionary by individual letter to the Bureau carrying the subject in the caption and containing a brief statement as to the reason for designation or deletion.
+
+Where office of origin for top functionaries is transferred, deletions in the old office of origin and additions in the new office are handled in accordance with 87D 7b (9) (b).
+
+(b) Photographs
+Photographs must be obtained for each top functionary. Whenever possible, the photographs should be obtained from public records, law enforcement agencies, state or Federal Government agencies, and similar sources. Where more direct means employed, use extreme care to avoid prejudicing the investigation. Send two copies (one is for Secret Service headquarters) of photographs of each top functionary to the Bureau, either by cover letter or as enclosure to a report. Maintain a copy of each photograph in the subject's individual case file in the field. If album of top functionary photographs maintained, be sure duplicates are also filed in each individual subject's file.
+
+(c) Handwriting specimens
+Suitable handwriting specimens of each top functionary must be obtained. Whenever possible, obtain handwriting specimens from public records, law enforcement agencies, and similar sources. Again, if more direct means employed, use extreme care. Send specimens to the Bureau under a separate cover letter by registered mail for the attention of the FBI Laboratory. Letter should bear caption of individual case.
+
+Handwriting specimens should be sufficiently extensive to permit possible future comparisons by the Laboratory. When specimens submitted may be of value as evidence, letter of transmittal should so state and Bureau should be requested to return specimens after copies have been made.
+
+(d) Security index cards
+Request preparation by FD-122 at the earliest possible moment. Same rules apply to preparation and maintenance as apply to other security index cards. All security index cards for top functionaries shall be designated for priority I.
+
+(e) Change of office of origin
+FD-128 changing office of origin on a top functionary automatically deletes him as top functionary in old office and adds him as a top functionary in new office. For further instructions concerning the change of office of origin in these cases, see 87D 7b (9) (b).
+
+(f) Reports
+I. Character - Internal Security - (followed by appropriate letter designating the organizational affiliation or nationalistic tendency)
+
+(5) Maintenance of list
+Each office must maintain a current list on top functionaries.
+
+67-69
+10-14-68

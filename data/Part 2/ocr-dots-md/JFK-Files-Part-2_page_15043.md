@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_15043.png
+
+Convert to Markdownand therefore should be punished rather than him. The Judge rejected her appeal and her son's trial is scheduled for March, 1969.
+
+### Criminal Intelligence and Organized Crime
+While our organized crime investigations are aimed at key members in the power structure, they have also struck hard in the lower echelons with progressively greater penetration into the heart of hoodlum activities - gambling operations. Fiscal year 1968 capped four consecutive record years in convictions of organized crime figures with 281. There are now 789 other hoodlum figures awaiting trial in Federal court thus indicating a continuance of the upward trend in convictions in fiscal year 1969. Recent major accomplishments in the organized crime field include the arrest or conviction of many top La Cosa Nostra leaders across the country. Our dissemination of criminal intelligence data to other Federal and local law enforcement agencies has broken the million mark in number of items in the past five years. This shared FBI data enabled other law enforcement agencies to conduct hundreds of raids, execute thousands of arrests, and recover millions of dollars in gambling funds or stolen property each year. Department Task Force Operations (also called Strike Force) have been formed in Detroit, Michigan; Brooklyn, New York; Philadelphia, Pennsylvania; Chicago, Illinois; Miami, Florida; and Newark, New Jersey; since the original group at Buffalo, New York. We now maintain liaison with these Task Force groups and it has been recommended that we expand our liaison arrangements with Task Force. There have been La Cosa Nostra leadership changes in New York and Chicago.
+
+### Department's Manual for use of Electronic Surveillance Under Title III of Omnibus Crime Control Bill
+Attorney General has been furnished our views regarding Department's draft manual for use of electrical surveillance pursuant to Title III of Omnibus Crime Control Bill, the general provisions of which concern administrative regulations not specifically required by the statute itself. The manual's requirements would impose tremendous administrative and procedural restrictions on the FBI and other Federal agencies to the point that strict compliance might be self-defeating to the goal of maintaining discreet electronic
+
+f

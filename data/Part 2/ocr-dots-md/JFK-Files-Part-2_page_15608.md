@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_15608.png
+
+Convert to MarkdownFREDERICK ALLEN HAMPTON
+
+Contact with first and second confidential sources, both of whom have furnished reliable information in the past, failed to determine any knowledge on the part of either source in any direct conversation between David Hilliard, Chief of Staff, Black Panther Party, San Francisco, California, and Hampton, Chairman, Illinois Black Panther Party, in regards to the context of Hampton's speech.
+
+On December 4, 1969, Frederick Allen Hampton died as a result of gunshot wounds received in a shoot out with local authorities, Chicago, Illinois, on the morning of December 4, 1969.
+
+Copies of this memorandum are being furnished to:
+
+United States Attorney, Chicago
+U. S. Secret Service, Chicago
+Region I, 113th MI Group, Evanston
+
+NW 88613 DocId:32199554 Page 1105

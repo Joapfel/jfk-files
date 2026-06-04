@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_14687.png
+
+Convert to MarkdownFlorida, (all in connection with organized crime matters) and the Dominican Embassy (in connection with security matters). Details concerning these installations were set forth in a summary memorandum regarding the Bureau's involvement in the prosecution of Baker dated 1/10/67.
+
+Logs relative to the electronic surveillances on Black, the Fremont Hotel and Siegelbaum were furnished to the Department and excerpts were furnished to the trial judge who ordered that they be made available to the defense. These logs were the subject of pretrial hearings during November, 1966, following which the judge ruled that there was no causal relationship between the information in the logs and the charges in the indictment.
+
+ Logs concerning Baker's conversations intercepted on the Dominican Embassy installation were similarly furnished to the Department and to the trial judge who placed a protective order thereon and has instructed that any dis- cussions relative to them must be held only in his chambers. Information as to the existence of these logs has been leaked to the press, presumably by Edward Bennett Williams to cause some action favorable to his client. His reporting to the trial judge that the FBI was responsible for this leak is absolutely ridiculous and is completely unfounded.

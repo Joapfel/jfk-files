@@ -1,0 +1,62 @@
+# JFK-Files-Part-2_page_11351.png
+
+Convert to MarkdownIV. Changes, additions, and deletions of data appearing in section A of reserve index cards
+
+(A) Changes in data appearing on section A reserve index cards should be submitted to the Bureau by form FD-122a.
+
+(B) Deletions from section A of the reserve index should be recommended by letter. The letter should set forth the basis for the recommendation.
+
+(C) Changes in office of origin are to be handled by submission of form FD-128a. Forward section A cards to new office of origin.
+
+(b) Section B
+
+I. This section is to contain the names of all other individuals included in the reserve index. This section is to be maintained only in the field office.
+
+II. Changes in office of origin are to be handled by submission of form FD-128a. Forward section B cards to new office of origin.
+
+(4) Content
+
+(a) Each card in section A and section B should contain, as a minimum, the following:
+
+I. Name and aliases
+
+II. Race
+
+III. Sex
+
+IV. Organizational affiliation or nationalistic tendency
+
+V. Citizenship
+
+VI. Residence
+
+VII. Employment
+
+VIII. Birth data
+
+IX. Office file number
+
+(b). In addition, membership and position or association in a subversive group or groups, together with the source and date of the information, may be added.
+
+(5) Removal and deletion of cards
+
+(a) Destroy cards on individuals who subsequently become security informants or sources or who subsequently become subjects of security index cards.
+
+(b). Advise the Bureau of the destruction only in the case of section A cards.]
+
+b. Security index
+
+(1) Purpose
+
+(a) Security index cards are prepared and maintained by the Bureau to serve as operational guide for apprehension of persons deemed dangerous or potentially dangerous to the internal security of the country in the event of a national emergency.
+
+(b) It shall contain the names of all persons who have been determined through investigation to be dangerous or potentially dangerous because of their membership in or affiliation with or espousal of doctrines of basic revolutionary organizations and/or front organizations and who will be apprehended upon receipt of instructions from the Attorney General.
+
+(c) It shall include subjects of espionage investigations and any other type of Bureau investigation provided their activities bring them within the scope of the security index criteria.
+
+(d) Action shall be taken against individuals included in the security index only upon authorization of warrants of arrest by the Attorney General. However, in preparing and maintaining the security index, to all practical effects, the Bureau is making the decision as to those persons who will be apprehended in the event of an emergency, inasmuch as the Attorney General has advised that he does not have funds or
+
+43
+7-15-60
+
+NW 88321 DocId:32989529 Page 685

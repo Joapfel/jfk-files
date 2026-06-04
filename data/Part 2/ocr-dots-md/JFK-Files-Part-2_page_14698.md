@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_14698.png
+
+Convert to Markdown# SYNOPSIS
+
+## BUREAU STATISTICS
+
+**FBI Personnel** As of 2/13/69 there were 6,929 Special Agents and 9,052 clerical employees for a total of 15,981 employees on the rolls of the FBI.
+
+**Overtime Services** The overtime service by our investigative staff averages more than two and one-half hours each workday and during fiscal year 1968 totaled 3,845,461 hours, the equivalent of 1,849 additional employees on a full-year basis. This was a cost-free saving to the Government of over $14 million.
+
+**National Crime** Crime Index for January-September, 1968, recorded a 19 percent increase. Largest increases noted in cities 250,000 to 1 million population where a 22 percent rise was recorded. There were an estimated 4.6 million serious crimes in the United States in 1968 compared to 3.8 million in 1967.
+
+**District of Columbia Crime** For calendar year 1967, District had sixth highest crime rate among the 56 cities 250,000 and above. Crime figures for calendar year 1968 indicate District recorded an over-all gain of 25 percent in the number of serious offenses.
+
+**National Crime Information Center (NCIC)** NCIC is a nationwide index of documented law enforcement information on crime and criminals. Began in January, 1967, with pilot operation. Now terminals in 47 states. Over 780,000 records in system and 33,000 messages handled daily in 24-hour operating day.
+
+### DOMESTIC INTELLIGENCE OPERATIONS
+
+New Left Movement has led a wave of extremism on our college campuses marked by growing violence. Part of world-wide

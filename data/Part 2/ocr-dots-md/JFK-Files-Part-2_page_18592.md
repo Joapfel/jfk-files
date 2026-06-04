@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_18592.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+WASHINGTON, D. C. 20535
+
+Addressee: Senate Select Committee
+
+☐ LTR ☒ LHM ☐ Memo ☐ Report dated 7/16/75
+
+U.S. Senate Select Committee Re: Documents
+Capion of Document Pertaining to the Committee's Prior
+Request. Re: Further Documents Pertaining
+to the FBI and Department of Justice.
+Appendix A, Item 5.e., Appendix B Items 4.a.,
+Originating Office: and 4.b.
+
+Delivered by: Richard Taylor Date: 8/8/75
+
+Received by:
+
+Title:
+
+Return this receipt to the Intelligence Division, FBI
+
+FMDR16
+ALL INFORMATION CONTAINED
+BEFORE IS UNTERWAITED
+DATE 10/10/00 BY SPJ ALM176
+
+NW 88326 DocId:32989627 Page 190

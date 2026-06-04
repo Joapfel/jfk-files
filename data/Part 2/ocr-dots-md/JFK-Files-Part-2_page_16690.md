@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_16690.png
+
+Convert to Markdown1. Medical Director, Neighborhood Health Center, Office of Economic Opportunity, 529 29th Street, advised he has records reflecting that CHERYL PETERSON, 2859 Humboldt Street, Denver, Colorado, visited this center on August 9, 1969 and was diagnosed as being anemic. She was given two prescriptions on that date which were filled at this center, one pertaineed to iron tablets and the other to vitamin tablets.
+
+She also visited this center on August 19, 1969 in connection with a possible pregnancy and was advised by the examining doctor she was not pregnant.
+
+advised that his records reflect she is a Negro female; born May 25, 1951 in the State of Illinois; Social Security Number 330-44-6203; parents, Mr. and Mrs. SOLOM PETERSON, 1510 South Kostner, Chicago, Illinois; marital status single.
+
+stated that CHERYL PETERSON failed to return for a reappointment set for two months after she was last in the center and that mail sent to her by the center to the above Denver address was returned marked addressee moved, no forwarding address.
+
+He advised further that his records do not indicate that CHERYL PETERSON has any connection with the Black Panther Party or FRED A. HAMPTON, MARK CLARK, BRENDA HARRIS, VERLINA A. BREWER, BLAIR J. ANDERSON, RONALD SATCHIEL, DEBROAH JOHNSON, LOUIS TRULOCK or HAROLD BELL.
+
+2/12/70
+
+Denver, Colorado
+
+On
+of
+
+File #.
+
+SA
+
+by
+SA
+
+Date dictated_ 2/12/70
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency...
+
+NW 88613 DocId:32199554
+Page 2187

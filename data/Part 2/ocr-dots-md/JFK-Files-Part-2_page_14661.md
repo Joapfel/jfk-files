@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_14661.png
+
+Convert to Markdownnone of the evidence used in Black's trial was obtained as a result of the listening device. The Supreme Court on June 13, 1966, ordered a response by the Department to questions raised by the Court with regard to the initial memorandum filed by the Department which was answered on July 13, 1966, by supplemental memorandum.
+
+This memorandum indicated the listening device, installed with trespass under general Departmental authorization had monitored conversations of Black and his attorney.
+
+The United States Supreme Court on November 7, 1966, vacated the income tax conviction and granted a new trial, which will not be set until after the Robert Baker trial.
+
+To date, the Bureau has received over 1,000 names of individuals of prosecutive interest for a determination if such subjects have been covered by FBI microphones. A number of problems have resulted.
+
+One problem which has been encountered, and which can be expected to be even more serious in the future, is the lack of identifying data accompanying the names of individuals on whom the Department has made inquiry in these matters. For example, one list recently received included 475 names, in some cases with a minimum of identifying data and in others with no identifying data at all. In order that an accurate determination can be made whether an individual in question has, in fact, been covered by one of our microphones, it will be necessary that the Department provide adequate identifying data when submitting these names for review.

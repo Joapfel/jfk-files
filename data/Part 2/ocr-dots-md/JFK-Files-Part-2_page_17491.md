@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_17491.png
+
+Convert to MarkdownCONFIDENTIAL
+
+SPEECHES OF FREDERICK ALLEN HAMPTON,
+AT ILLINOIS STATE UNIVERSITY, NORMAL,
+ILLINOIS, 10/29/69 and SOUTHERN
+ILLINOIS UNIVERSITY, CARBONDALE,
+ILLINOIS, 11/14/69
+
+There were approximately 350 persons in attendance at this speech, most of whom were Negroes.
+
+There were no incidents and no arrests in connection with Hampton's appearance.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

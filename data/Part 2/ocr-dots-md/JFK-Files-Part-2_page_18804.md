@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_18804.png
+
+Convert to MarkdownNY 134-3315
+
+On 11/27/52, JAFFE was married to JOSEPHINE CLARK WINTER, who was born on 10/10/32, at NYC. During interview, JAFFE advised that his wife is a volunteer worker at the United Nations International Childrens Emergency Fund.
+
+On an application for a passport, dated 7/21/52, which JAFFE'S wife filled out, she listed her permanent residence as 215 East 73rd St., NYC, and stated that her last American passport #448639 was issued in June, 1951, in Washington, D. C. Her father, LESTER CLARK WINTER, was born in Baltimore, Maryland, about 1907, and resided at Mission Road, Mission, Kansas. Her mother, JOSEPHINE A. CAVE, was born in Cleveland, Ohio, on or about 11/22/10, and resided at 19 East 72nd St., NYC. She was issued passport #50858, NY series, on 8/1/52, at NYC. In connection with an application for a passport, dated 5/25/51, at NYC, LOUIS PAVELEK, a friend, completed an affidavit supporting statements in her application. He resided at 1448 121st St., South Ozone Park, NY,
+
+On 5/14/54, the records of Time, Inc., 9 Rockefeller Plaza, NYC, were checked concerning JAFFE. These records reflected the following information:
+
+## Education
+
+1. Graduated Claremont High School, Oakland, California, 1946.
+
+2. Graduated University of California, Berkeley, California, 1949.

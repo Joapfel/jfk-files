@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_15648.png
+
+Convert to Markdown# III. TEACHING OF REVOLUTIONARY PROGRAM
+
+advised on November 14, 1969, he attended a political orientation class at the Precious Blood Church, Western and Congress Streets, Chicago, on October 29, 1969. About 30 individuals were in attendance.
+
+The major discussion centered on arguments to counter the classic racist doctrine that all whites are evil by nature and cannot be saved except by extermination. The counter argument was that a multiplicity of reasons are responsible for the white race's technological advantage over the non-white race, but the white man's system of economics makes him the monster he is. It was also argued that capitalism and imperialism by their very nature causes the white man to act as he does. The race or color of his skin has nothing to do with his actions. Source was unable to identify the leader of the above class.
+
+also advised on November 14, 1969, a political orientation class of the BPP was held on November 3, 1969, at the Precious Blood Church, Western and Congress Streets, Chicago, Illinois, with approximately 20-30 people present.
+
+The class dealt with the last two issues of the BPP newspaper. There was considerable discussion concerning an open letter to the BPP in which the Panthers were criticized for their defense of "Fatch", an Arab guerrilla movement.

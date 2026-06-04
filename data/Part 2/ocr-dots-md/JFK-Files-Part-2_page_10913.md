@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_10913.png
+
+Convert to Markdown# PART II
+
+## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+
+### B. FBI LAW ENFORCEMENT BULLETIN
+
+This publication is issued the first of each month by the Bureau for the benefit of law enforcement agencies.
+
+#### 1. Contents
+
+a. Foreword by the Director
+
+b. [Fugitive notices and interesting or unusual fingerprint patterns]
+
+c. Articles and features designed to inform law enforcement officers of new, but proven, programs and techniques to enhance their professional capabilities
+
+d. Items alerting law enforcement officers to dangerous weapons or techniques utilized by the criminal element ]
+
+#### 2. Distribution
+
+Limited to law enforcement officers and others engaged in or having a legitimate interest in law enforcement work
+
+#### 3. Filing and indexing
+
+a. In a 66 classification file, bound on the side, and fully indexed. Informative matter to be indexed under subject matter. For uniformity, the Bureau is to forward by routing slip to all divisions each month an indexing list of the basic and pertinent items to be indexed. Index cards are to be prepared by each office. Any additional items not listed but considered to be worthy of indexing by a particular office should also be indexed. The indexing lists are to be destroyed after the field office inspection by FBHQ.
+
+b. This file may be destroyed when it is over five years old. Retain index cards.
+
+c. Current copy should be placed in bookcase, available to all Agents.
+
+d. Deleted
+
+#### 4. [Suggestions and submissions]
+
+a. Each field office is required to submit three suggestions for byline articles from each state within its territory. Prior to submitting suggestions, proposed authors may be approached to determine their willingness to prepare an article and to identify the scope of their topic. However, proposed authors should not be asked to prepare a manuscript until the Bureau notifies the field office that the suggestion has been accepted and the article is requested. In contacts with any proposed or potential authors, absolutely no representations should be made which would obligate the FBI to any publishing commitments since many factors determine which articles received are ultimately published.
+
+b. In suggesting featured articles, consideration should mainly be given to manuscripts concerning proven programs and techniques of law enforcement which may be of significant value to other agencies. Suggestions should be concerned with training, research, or operational matters. Avoid items of a "newsletter" nature and matters which have a limited scope of interest in the profession.
+
+c. Each field office should be alert to exceptional photographs which could be recommended for use as a cover for the magazine. The Bureau wishes to project on the Bulletin's cover the best image of law enforcement. Attention-getting photographs showing officers giving aid to helpless citizens, protecting the weak, comforting the injured, or apprehending the guilty are examples of those that should be recommended when they come to the attention of field offices.
+
+d. Transmit all material for the magazine to the Bureau under the caption:
+
+FBI Law Enforcement Bulletin
+Research Section (External Affairs Division) ]
+
+5-28-74

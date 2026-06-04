@@ -1,0 +1,86 @@
+# JFK-Files-Part-2_page_15366.png
+
+Convert to MarkdownSAC, New York (105-31090)
+
+Director, FBI (62-77787-205)
+
+DELEGATION TO UNITED NATIONS
+FROM BRAZIL, NEW YORK CITY
+IS - BRAZIL
+
+Reurlet 9-26-58.
+
+State Department clearance was previously obtained on 9-5-58 for a program looking toward development of sources on a carefully selected basis at Brazilian Embassy, Washington, D. C., and other Brazilian establishments in this country, if deemed necessary. Accordingly, you are authorized to proceed with such a program with respect to captioned establishment.
+
+No active investigations or interviews with persons from captioned establishment should be conducted without specific Bureau authority since the Bureau must obtain State Department clearance for each such investigation and interview.
+
+1. 65-63113 (Intelligence Coverage of Diplomatic Representatives of Friendly Foreign Nations)
+
+RDC:mtb
+
+(5)
+
+Yellow DUPLICATE
+OCT 21 1958
+MAILED
+
+DEC 29 1958
+
+NWI 88613, DocID:32189554
+Page 863
+
+<table>
+  <tbody>
+    <tr>
+      <td>YELLOM</td>
+    </tr>
+    <tr>
+      <td>DUPLICATE</td>
+    </tr>
+    <tr>
+      <td>OCT 21 1958</td>
+    </tr>
+    <tr>
+      <td>MAILED</td>
+    </tr>
+  </tbody>
+</table>
+
+I did not find any text in the image.
+
+**Wilson**
+**Boardman**
+**Elmon**
+
+[ohr]
+ease
+arsons
+osen
+amm
+rotter
+layton
+ele. Room
+olloman
+
+**Date:** 63 OCT 24 1958
+
+* This image does not contain any tables.
+* The text in the image contains two paragraphs that are indented and appear to be介绍 about Wilson, Boardman, Elmon.
+* The second paragraph includes ellipses of the words "osen" and "rotter."
+
+* The ellipsis for "osen" indicates the word is missing from the original image.
+* For "rotter," there is no complete word but the context suggests it could be a placeholder or a break in the text.
+
+The ellipsis for "layton" also implies it might be an additional person mentioned in the context:
+
+- [o] layton
+- [i] ele. Room
+
+This interpretation suggests the order of these people in the image:
+Wilson → Boardman → Elmon → olsen → amm → rotter → layton → ele. Room → olloman.
+
+This order matches the ellipsis in the original image, confirming the correct sequence.
+
+The ellipsis for "osen" implies the word is missing. Similarly, the ellipsis for "rotter" suggests it might be a break in the text.
+
+The ellipsis for "layton" implies the word is missing from the original image.

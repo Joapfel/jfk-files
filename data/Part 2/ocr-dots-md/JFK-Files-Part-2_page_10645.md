@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_10645.png
+
+Convert to MarkdownFurther Documents Pertaining
+to the FBI and Department of Justice
+
+Policies and Procedures
+
+NOTE CONTINUED:
+
+TOP SECRET
+
+26. Sobir - Investigation of certain Soviet-bloc immigrants and repatriates in an attempt to identify those previously recruited by Soviet-bloc intelligence.
+
+27. Socap - Review of certain records to identify Soviet illegals who have applied for documentation as U.S. residents as part of their effort to establish a bona fide cover identity.
+
+28. Vietnamese Refugee - Efforts to uncover possible infiltration of North Vietnamese agents in the refugee flow to the United States.
+
+29. Walklok - Screening of requests for birth certificates under an established criteria to identify such requests which may have originated with Soviet intelligence.
+
+30. Technical and Microphone Surveillance - Survey of telephone and microphone installations functioning at certain times.
+
+31. Al Fatah Automatic Data Processing Project - means of identifying Al Fatah members and their contacts through use of ADP equipment.
+
+32. Cuban Refugee - Detection of Cuban intelligence agents who might infiltrate into the U.S. through refugee channels.
+
+33. Desevo - Development of selected contacts to be directed against Soviet-bloc officials.
+
+34. East-West Exchange - Provided internal security safeguards regarding admission to the U.S. of Soviet and satellite nationals.
+
+35. Z Coverage - Screening of mail destined for the Soviet Mission to the United Nations,
+
+TOP SECRET
+
+- 5 -
+
+NOTE CONTINUED PAGE 6
+
+Navy 888296 DocID:32989624 Page 284

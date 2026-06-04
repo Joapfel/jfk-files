@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_14837.png
+
+.
+
+Of course, as previously reported, IRS has established a failure to file criminal violation on Goldfine for the years 1955, 1956, and 1957. However, since this is a misdemeanor, Justice had waited until the tax fraud investigation was developed in order to go ahead with its prosecution. The one weakness in the tax fraud case is proving knowledge and culpability directly to Goldfine. IRS feels that he will argue that his tax affairs were handled by a competent tax firm and he had every right to feel that his tax affairs were being handled within the law.
+
+In addition to the tax fraud investigation, the Inspection Service of IRS looked into the Goldfine matter to determine the extent of any irregularities or misconduct on the part of Revenue employees. The investigation has not developed any criminal violations on the part of IRS employees. The report does reflect gross administrative failures and irregularities in the handling of work in the Boston Region. Much of this was due to the fact that Goldfine assigned all of his tax matters in the New England area to Lawrence P. Harrington, a former IRS employee. Harrington
+
+DW 88613 DocId:32199554 Page 334

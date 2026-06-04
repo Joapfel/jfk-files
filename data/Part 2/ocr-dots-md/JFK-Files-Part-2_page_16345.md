@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_16345.png
+
+Convert to MarkdownFDC-107 (Rev. 4-15-84)
+
+# FEDERAL BUREAU OF INVESTIGATION
+
+Date 6/6/69
+
+In connection with the arrest of various individuals at the Black Panther Headquarters, 2350 West Madison Street, Chicago, Illinois, the following items were found incidental to the arrest of these individuals:
+
+One fully loaded Smith and Wesson .38 Special Revolver, Serial Number K 232080. Found on the desk of Minister of Defense Office, 2nd floor front.
+
+One Universal Company, .30 caliber "Enforcer", Serial Number 143213; found on the desk in Minister of Defense Office, 2nd floor front.
+
+One Mauser rifle, Serial Number 209454; found on 2nd floor main room;
+
+One Sears, Roebuck and Company, Model 300, 12 gauge shotgun, Serial Number 15447, found in Minister of Defense office, 2nd floor;
+
+One Remington Model 514 .22 caliber rifle, no serial number; found in Minister of Defense Office, 2nd floor front room.
+
+On 6/4/69 at Chicago, Illinois File #_______
+
+by SA ANTHONY F. DE LORENZO/
+
+Date dictated 6/5/69
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency by its contents are not to be distributed outside your agency.

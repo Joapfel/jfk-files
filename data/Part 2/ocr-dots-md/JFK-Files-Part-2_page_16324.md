@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_16324.png
+
+Convert to Markdown2
+
+Inspector AHERN advised that RACKLEY had been
+suspected by the New Haven Chapter of the BPP of being a
+police informant, for which he was tortured and murdered.
+RACKLEY's mutilated body was disposed of in a swamp near
+Middlefield, Connecticut.
+
+On May 27, 1969, Assistant United States Attorney (AUSA)
+JOHN V. CASSIDENTO, District of Connecticut, New Haven,
+Connecticut, authorized the filing of a complaint charging
+GEORGE SAMS, JR. with violation of Title 18, Section 1073,
+United States Code. Specifically GEORGE SAMS, JR. was charged
+with unlawful flight to avoid prosecution (UFAP) - murder;
+conspiracy to commit murder; kidnaping; conspiracy to commit
+kidnaping; and binding with intent to commit a crime.
+
+On May 27, 1969, an authorized complaint was filed
+by SA ROBERT C. PUCKETT before United States Commissioner
+ARTHUR H., LATIMER at New Haven, Connecticut, who issued
+a warrant for GEORGE SAMS, JR.'s arrest on May 27, 1969.
+
+A male individual who referred to himself as
+"DETROIT GEORGE" was at Chicago BPP Headquarters, 2350 West
+Madison Street, Chicago, Illinois, on May 26, 1969.
+
+5/26/69)
+
+A male individual who used the name WADDELL (phonetic)
+was at Chicago BPP Headquarters, 2350 West Madison Street,
+Chicago, Illinois, on May 26, 1969.
+
+5/26/69)
+
+A male individual who was referred to as WADDELL
+(phonetic) was at Chicago BPP Headquarters, 2350 West
+Madison Street, Chicago, Illinois, on May 29, 1969.
+
+5/29/69)
+
+- 3 -

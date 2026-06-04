@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_16000.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Chicago, Illinois
+
+June 13, 1969
+
+RACIAL TENSIONS,
+MAYWOOD, ILLINOIS, 1969
+
+On June 12, 1989, Captain Robert Samuels, Acting Chief of Police, Maywood, Illinois, Police Department, advised an Agent of the Federal Bureau of Investigation (FBI) that a rally was held from approximately 2:30 p.m. until 4:00 p.m. on that date at the Lido Theater located at Fifth Avenue and Warren Street. According to Captain Samuels, the purpose of the rally was to raise money for legal fees, obtain signatures on petitions, demanding the release of Frederick Allen Hampton, Vice-Chairman of the Central Committee of Illinois Chapter of the Black Panther Party (BPP), who was currently confined to the Menard State Penitentiary, Menard, Illinois.
+
+Attached as an appendix is a characterization of
+the BPP.
+
+Captain Samuels further advised that approximately
+60 individuals of both the Caucasian and Negro races attended
+the meeting and the group dispersed without incident. Captain
+Samuels stated that a rally was generally regarded in Maywood
+as a failure inasmuch as it did not draw a significant crowd
+or provoke news coverage.
+
+This document contains neither recommendations nor conclusions
+of the FBI. It is the property of the FBI and is loaned to
+your agency; it and its contents are not to be distributed
+outside your agency.

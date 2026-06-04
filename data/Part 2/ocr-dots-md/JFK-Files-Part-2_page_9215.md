@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_9215.png
+
+Convert to MarkdownDE T-1
+
+June 20, 1974
+
+### III. BPP NEWSPAPER
+
+DE T-1 and DE T-8, advised that the BPP newspaper arrived irregularly from Chicago on a Cash on Delivery basis between November, 1973, and February, 1974. Papers were disposed of on a door to door basis by community workers. ROLLIN REID was responsible for the program.
+
+DE T-8
+January 30, 1974
+
+### IV. BPP SPONSORED PROGRAMS AND COMMUNITY ACTIVITY
+
+#### A. Free Bussing to Prison
+
+According to DE T-1, free busses between Detroit and the Jackson, Michigan State Prison were provided on the following dates:
+
+* May 27, 1973
+* June 3, 1973
+* June 17, 1973
+* June 21, 1973
+* July 8, 1973
+* August 11, 1973
+
+The free bus trips to Jackson, Michigan were stopped by a lack of funds after the trip on August 11, 1973. All of the trips left from the BPP office at 2228 Bewick.
+
+DE T-1
+October 26, 1973
+
+3

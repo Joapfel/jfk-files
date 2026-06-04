@@ -1,0 +1,67 @@
+# JFK-Files-Part-2_page_18596.png
+
+Convert to Markdown2 - Legal Counsel Division
+(1-Mr. J.B. Hotis)
+1 - Mr.W. R. Wannall
+1 - Mr. W. O. Cregar
+1 - Mr. D. R. Dickson
+
+G2-116395
+
+June 11, 1975
+
+UNITED STATES SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES
+
+RE: DOCUMENTS PERTAINING TO THE "HUSTON PLAN", COINTELPRO, AND OTHER PRACTICES AND PROGRAMS
+
+OTHER SPECIFIC FBI PRACTICES AND PROGRAMS
+
+Reference is made to the letter from the captioned Committee dated May 14, 1975, and appendices thereto, which contained requests for certain documents and other information from the FBI.
+
+Appendix C, Part III, Item #28 requested all memoranda and other materials pertaining to the origins and conduct of the FBI investigation in the Dominican Republic (DN) in 1965.
+
+Pursuant to your request, attached hereto are the following communications:
+
+1. Director Hoover memorandum dated May 17, 1965.
+
+2. A. H. Belmont memorandum to Mr. Sullivan dated May 17, 1965, captioned, "Legal Attach's Office, Dominican Republic."
+
+3. SAC letter no. 65-31 dated June 2, 1965.
+
+4. Director Hoover memorandum dated August 24, 1965.
+
+5. Director Hoover memorandum dated September 10, 1965.
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+DRD:mjgn
+(9)
+
+This document is prepared in response to your request and is not for dissemi-
+nation outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person,
+nel without the express approval of the FBI.
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+GTO 931-546

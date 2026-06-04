@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_15925.png
+
+Convert to MarkdownHe stated that he has received no complaints from any of LEWIN's physician customers and considers LEWIN overall to be an above-average employee. He stated that nothing has come to his attention which might cause him to question LEWIN's moral character or loyalty to the United States of America.
+
+He stated that LEWIN is considered by him to be one of his better salesmen. He stated that LEWIN received approximately $1,800.00 in bonuses for his work during 1968, and his base salary is approximately $8,000.00 per year. He stated that LEWIN is provided with a company vehicle for company business and is allowed to use this for personal business by paying the company a specified amount for mileage. He stated that until either February or March, 1969, this vehicle was a 1967 or 1968 dark green Ford. He advised that one of LEWIN's unknown friends wrecked this vehicle in one of the above months, and LEWIN rented a Hertz vehicle until he recently received a Plymouth.
+
+He stated that each salesmen submits a schedule each week indicating whom they contacted on the specific day of the week. He stated that the salesmen generally work Monday thru Friday, however, LEWIN occasionally makes a Saturday call on a customer.
+
+He stated that LEWIN does not have access to any of the products which he sells as the company delivers directly to the customer.

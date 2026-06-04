@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_17216.png
+
+Convert to MarkdownFBI
+
+Date: 10/13/69
+
+Transmit the following in
+
+(Type in plaintext or code)
+
+Via
+
+(Priority)
+
+TO : DIRECTOR, FBI
+FROM : SAC, CHICAGO
+SUBJECT: BLACK PANTHER PARTY (BPP)
+RM
+
+copies are also being furnished to the USA, USSS, both Chicago, as well as Region I, 113th Military Intelligence Group, Evanston, Illinois.

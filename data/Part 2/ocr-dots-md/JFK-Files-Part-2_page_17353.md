@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_17353.png
+
+Convert to Markdown# STUDENTS FOR A DEMOCRATIC SOCIETY
+
+The Students for a Democratic Society (SDS), as it is known today, came into being at a founding convention held at Port Huron, Michigan, in June, 1962. The SDS is an association of young people on the left and has a current program of protesting the draft, promoting a campaign for youth to develop a conscientious objector status, denouncing United States intervention in the war in Vietnam and to "radically transform" the university community, and provide for its complete control by students. GUS HALL, General Secretary, Communist Party, USA, when interviewed by a representative of United Press International in San Francisco, California, on May 14, 1965, described the SDS as a part of the "responsible left" which the Party has "going for us." At the June, 1965, SDS National Convention, an anti-communist proviso was removed from the SDS constitution. In the October 7, 1966, issue of "New Left Notes," the official publication of SDS, an SDS spokesman stated that there are some communists in SDS and they are welcome. The national headquarters of this organization as of July 24, 1968, was located in Room 206, 1608 West Madison Street, Chicago, Illinois.
+
+NW 88613 DocId:32199554

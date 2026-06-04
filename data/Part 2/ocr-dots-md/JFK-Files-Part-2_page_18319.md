@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_18319.png
+
+Convert to MarkdownSeptember 18, 1975
+
+I. Democratic National Convention 1968
+
+The Committee requests delivery of all underlying documents used to prepare the memorandum of July 31, 1975, entitled "Sullivan Memorandum to John Dean (Democratic Convention 1968)". The underlying documents should include, but not be limited to, all materials as they relate to the subject matter of the July 31, 1975, memorandum:
+
+A. pertaining to contacts with FBI personnel and anyone at the Democratic National Committee including, but not limited to, John Criswell.
+
+B. pertaining to contacts between FBI personnel and anyone on the White House staff or the staff of the Vice President of the United States at that time, including, but not limited to, William Connell.
+
+C. prepared by or for J. Edgar Hoover, Cartha DeLoach, William C. Sullivan, and other Bureau personnel.
+
+D. prepared by or for Marlin Johnson, Special Agent in Charge of the Chicago Field Office of the FBI at the time of the Democratic National Convention.
+
+E. pertaining to requests by the FBI to the Attorney General of the United States for authority for electronic surveillance and any response by the Attorney General pertaining to the aforementioned requests.
+
+II. Files on Warren Commission Critics
+
+The Committee requests delivery of all underlying documents used to prepare the February 3, 1975, memorandum entitled "Information concerning Washington Star-News article January 31, 1975, regarding Hale Boggs' son claiming possession of files of Warren Commission critics". The Committee requests a serial-by-serial description of the contents of any such
+
+ALL FBI INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/17/75 BY SPAMCHL
+
+ENCLOSURE
+
+62-116395-9/64

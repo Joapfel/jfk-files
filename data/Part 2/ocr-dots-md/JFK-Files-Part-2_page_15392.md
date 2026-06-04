@@ -1,0 +1,63 @@
+# JFK-Files-Part-2_page_15392.png
+
+Convert to MarkdownMr. A. H. Belmont
+
+September 9, 1959
+
+Jr. S. B. Donahoe
+
+1 - Mr. Belmont
+1 - Mr. Donahoe
+1 - Mr. Papich
+1 - Mr. Bartlett
+1 - Mr. Schaefer
+
+THAILAND ACTIVITIES IN THE UNITED STATES
+INTERNAL SECURITY - THAILAND
+
+Memorandum Papich to Frohbose 8/31/59 captioned "Ruth Naomi Burney, IS-Thailand," disclosed subject personally acquainted with certain Central Intelligence Agency (CIA) employees and CIA giving consideration to utilizing her as source of political information. Subject born 6/29/30 and is a citizen of the U. S. She resides at 1647 Lamont Street, Northwest, Washington, D. C., and is employed as telephone operator at Embassy of Thailand.
+
+Memorandum Papich to Frohbose 9459 captioned "Ruth Naomi Burney, IS-Thailand," stated Mrs. Jane Roman, CIA, advised there is no close friendship existing between subject and other CIA employees. CIA indicated, however, it would like to approach subject with view of developing her as a source of information as she would have access to numerous conversations which could shed light on political conditions in Southeast Asia. Liaison has suggested that we look into this matter for possible development of subject as a Bureau source and in so doing would restrict CIA from any contact with her.
+
+"Ufiles do not contain any information identifiable with subject."
+
+ACTION:
+
+1. Requested liaison advise CIA that subject is of interest to us and that we are giving consideration to developing her as a source of information of this Bureau. CIA should also be informed that when subject is no longer of any interest to us CIA will be advised.
+
+<table>
+  <tr>
+    <td>YELLOWS<br/>DUPLICATE</td>
+  </tr>
+  <tr>
+    <td>SEP 23 1959</td>
+  </tr>
+  <tr>
+    <td>MAILED</td>
+  </tr>
+</table>
+
+NOT RECORDED
+
+117 SEP 28 1959
+
+Tolson 105-New
+Belmont
+DeLoach VV.5:mJ (9)
+McGuire
+Mohr
+Parsons 1 65-53687 (Embassy of Thailand)
+Rosen 1 65-63113 (Intelligence Coverage of Diplomatic Representatives of Friendly Foreign Nations)
+Tamm
+Trotter
+W.C. Sullivan
+Tele. Room 105-New (Ruth Naomi Burney)
+Holloman
+Gandy
+
+MAIL ROOM [ ] TELETYPE UNIT [ ]
+
+NW 88613 DocId:32199554
+
+ORIGINAL FILE
+JANGIRO

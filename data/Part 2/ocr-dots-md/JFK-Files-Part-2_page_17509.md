@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_17509.png
+
+Convert to MarkdownCOOK is allegedly going to testify at some school board which will allegedly attempt to expell WALLS.
+
+COOK is to testify for the school against WALLS.
+
+DENNIS HARVEY
+NATHANIEL JUNIOR
+DENNIS CUNNINGHAM
+HOWARD ALK
+
+These persons are meeting at ALK's to talk about their machine gun charge of April 11, 1969.

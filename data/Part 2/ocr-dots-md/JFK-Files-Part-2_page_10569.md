@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_10569.png
+
+Convert to Markdown# FBI INFORMATION-GATHERING PRACTICES WITH RESPECT TO MEMBERS OF CONGRESS
+
+There is a total of more than 6,500,000 files at FBI Headquarters. Most of these contain information gathered during investigation of matters—including some 100 types of criminal, security, and applicant-employee cases—assigned to the FBI by laws of Congress, directives of the President, and orders of the Attorney General.
+
+The remainder of these more than 6,500,000 files include:
+
+(1) Personnel files regarding FBI applicants. and employees;
+
+(2) General files regarding FBI contacts and dealings with a variety of individuals and organizations concerning matters that do not require or involve FBI investigation; and
+
+(3) Administrative-type files, such as those of a policy nature, those containing statistical reports, those detailing FBI cooperative services, and the like.
+
+An *unknown*, but *extremely small*, percentage of these more than 6,500,000 FBI files contain information regarding present or former Congressmen and Senators which may have been *accumulated prior to, during, or after their tenure in Congress*.
+
+## WHAT FBI FILES CONTAIN ON CONGRESSMEN:
+
+FBI Files contain substantially the same types of information regarding Senators and Congressmen as is contained in them about other citizens. Basically this information falls into the following categories:
+
+### Violations of Law
+
+(1) Allegations that Congressmen or Senators have violated Federal laws within the FBI's jurisdiction.
+
+# MPEY6
+ABN INFORMATION CONTAINED
+WILL BE UNCLASSIFIED UNTIL FEBRUARY 1, 1976
+DATE 10/2/00 BY SP-2ALM/76
+
+ENCLOSURE
+
+42 - 1/6 3/5 - 4/10
+
+NW 88296 DocId:32989624 Page 208

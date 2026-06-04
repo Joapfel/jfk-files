@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_17054.png
+
+Convert to MarkdownU N I T E D S T A T E S G O V E R N M E N T
+
+M e m o r a d u m
+
+DIRECTOR, FBI
+
+FROM: J. SAC, CHICAGO
+SUBJECT: BLACK PANTHER PARTY (BPP) BM
+
+DATE: 11/13/69
+
+Copies of this LHM are also being furnished the following agencies. USA, OSI, USSS and 113th MI. The Chicago PD has been orally advised of the contents of this LHM.
+
+RMM:

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_10532.png
+
+Convert to MarkdownMay 1973
+
+SUBJECT: Request for Information on Sensitive Activities
+
+You will recall that in Fiscal Years 1971 and 1972, I believe, Agency funds were made available to the FBI. These funds may still be possibly held in a special account for that use. This is one of the areas where TSD has been very much involved. Chuck Briggs would have the details as this was handled through the Executive Director's office and of course Angleton would have additional information.
+
+E2 IMPDET CL BY 357737
+
+00582
+
+SECRET

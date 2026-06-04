@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_10416.png
+
+Convert to Markdown29 May 1973
+
+MEMORANDUM FOR: Inspector General
+
+SUBJECT : Mr. Colby's Request to Inspector General to Determine Subject Referred to by Two Notes in a PP/B Memo to DD/M&S
+
+REFERENCE : D/PPB Memo to DD/M&S dated 23 May 1973, Subject: Watergate Principals - Direct or Indirect Involvement
+
+1. The two notes of 13 and 20 January 1972 refer to approval by the DCI (at that time Mr. Helms) for the expenditure of $30-32K for a sensitive CS project. No further details were given, Mr. Colby asked that DDO records be checked.
+
+2. DDO records show that the funds went to the CI Staff for a project called Iden 99. This is a joint operation with the Iden 100 service for the collection of ELINT intelligence. The activity is handled by the Special Intelligence Group of the CI Staff.
+
+3. The funds cited in the notes was transferred to CI on 13 January 1972. It is believed by DDO/MPS and the CI Staff that the two notes refer to the same appropriated amount, i.e., $30 to 32K and not to two separate allocations.
+
+John C. Richards
+
+SECRET
+
+00145
+
+<table><tr><td>2</td></tr></table>
+
+NW-88296 DocId:32989624 Page 55
+
+IMPCT CL BY:656789

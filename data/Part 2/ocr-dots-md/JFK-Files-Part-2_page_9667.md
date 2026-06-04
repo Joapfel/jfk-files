@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_9667.png
+
+Convert to MarkdownIDENTIFICATION DIVISION
+
+The following FBI record, NUMBER 405 550 E, is furnished FOR OFFICIAL USE ONLY.
+
+<table><thead><tr><td>CONTRIBUTOR OF FINGRPRINTS</td><td>NAME AND NUMBER</td><td>ARRIVED OR RECEIVED</td><td>CHARGE</td><td>DISPOSITION</td></tr></thead><tbody><tr><td>Co Jail<br/>Ht Holly NJ</td><td>Frank A Drager<br/>2nd, #8771</td><td>1-9-63</td><td>armed rob<br/>&amp;l:151-41</td><td></td></tr><tr><td>S Pol Princeton<br/>NJ</td><td>Frank August<br/>Drager II<br/>#07693</td><td>1-9-63</td><td>material<br/>witness</td><td></td></tr><tr><td>FD Trenton NJ</td><td>Frank August<br/>Drager II<br/>#20118</td><td>5-13-63</td><td>BEL & aslt<br/>D/weapon CON Poss<br/>of burg tools</td><td></td></tr><tr><td>Co-Pros Office<br/>Trenton NJ</td><td>Frank August<br/>Drager II<br/>#12925</td><td>5-13-63</td><td>CON; Poss of burg<br/>tools; B&E w/l to<br/>steal; adult w/<br/>DW</td><td></td></tr><tr><td>PD Trenton NJ</td><td>Frank August<br/>Drager 2nd<br/>#20118</td><td>7-9-63</td><td>poss burg tools<br/>unl use DW<br/>PL from auto</td><td></td></tr><tr><td>o-Pros Off<br/>Trenton NJ</td><td>Frank August<br/>Drager #12925</td><td>7-11-63</td><td>L BE &L poss<br/>burg tools poss<br/>D/W</td><td>committed<br/>Mercer County<br/>Jail</td></tr><tr><td>Hamilton Twp Pol<br/>Trenton NJ</td><td>Frank August<br/>Drager #29069</td><td>.7-11-63</td><td>B.E & L</td><td>scc supp met</td></tr><tr><td>Mercer Co NH<br/>Armonk 15</td><td>Frank August<br/>Drager u.<br/>#116-64</td><td>3-6-64</td><td>as lt w D.N.</td><td>9 mos<br/>A.1--6-64</td></tr><tr><td colspan="4"></td><td>22</td></tr></tbody></table>
+
+In no instance shall any person be held responsible for personal injury or damage caused by his/her conduct. Where final decision is not made on a case-by-case basis, the burden of proving that an individual committed such an act rests with the state.
+Remarks indicated by asterisk * are based on the felicitations in FBI files but are listed only as advisory. Legal experts believe these to be highly identical with each other except for minor differences.

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_16580.png
+
+Convert to Markdown1
+
+**DETAILS: AT CHICAGO, ILLINOIS**
+
+This report contains the results of a preliminary investigation in accordance with departmental letter to the Bureau dated December 11, 1969, regarding the above captioned matter. This departmental letter, which was forwarded by Mr. JERRIS LEONARD, Assistant Attorney General, Civil Rights Division, is summarized as follows:
+
+The Department received a telegram dated December 5, 1969, from JOHN GWYNN of the Illinois State Branch, National Association for the Advancement of Colored People (NAACP), and other officials of that organization. The Department also received a telegram from THOMAS PICCOU, Managing Editor, "Chicago Daily Defender," WHITNEY H. YOUNG, Jr., Executive Director, National Urban League, and a number of individuals of Maywood, Illinois. All of these communications generally alleged that the shooting and killing of members of the Black Panther Party (BPP) on or about December 4, 1969, was unnecessary, unjustified, and of questionable legality. They requested that an investigation be made of the matter.
+
+The departmental letter requested the FBI to conduct a preliminary investigation so that the Department could determine whether violations of Title 18, United States Code, Sections 242 and 241, were involved. It was stated that the investigation should include, but not be limited to, the following:
+
+1. Identify and interview all persons, including the allegedly wounded individuals who were present when the police conducted the Black Panther Party raid at 2337 West Monroe Street, Chicago, Illinois, on December 4, 1969.

@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_17012.png
+
+Convert to MarkdownBLACK PANTHER PARTY (BPP)
+
+ADVERTISEMENT
+
+ADVERTISEMENT
+
+# ATTENTION!
+
+JAMES DAVIS
+EDWARD CARMODY
+WILLIAM COXMAN
+RAY BRODERICK
+JOHN MARCHSICH
+FRED HONARD
+WILLIAM KELLY
+EDWARD V. NANKAHAN
+
+DANIEL GROTH
+JOHN CISZENSKI
+ROBERT HUGHES
+GEORGE JONES
+LYNWOOD HARRIS
+WILLIAM CONRERT
+PHILIP JOSEPH (State's Attorney's Police)
+RICHARD S. JALOVIC (State's Attorney's)
+
+You are asked to appear and testify with THE PANTHER SURVIVORS before THE PEOPLE'S INQUEST
+
+Into the Killings of FRED HAMPTON and MARK CLARK Sunday, March 8, 1970 at 2:00 p.m.
+
+First Congregational Church 43 No. Ashland, Chicago
+
+*Subsequent cases have been tried by the will of the people.*
+
+NW 88613 DocId:32199554 Page 2509

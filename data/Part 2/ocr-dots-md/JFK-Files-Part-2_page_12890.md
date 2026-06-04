@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_12890.png
+
+Convert to MarkdownMichael E. Shaheen, Jr., Esq.
+
+November 7, 1975
+
+Also I am enclosing requests for documents relating to two of the three former FBI informants who are scheduled to testify on December 4. These requests supplement our document request of August 20, 1975 pertaining to informants (Part IV-4).
+
+In addition, we wish to interview and possibly de-pose the Special Agents who handled the three former in-formants (Rowe, Hardy and Cook) who are scheduled to testify at the public hearing on December 4. Because of the limited time remaining before the scheduled hearings, we request that the Special Agents be made available for interviews and depositions as soon as possible.
+
+cc: Paul V. Daly
+Office of Congressional Affairs.
+Federal Bureau of Investigation.

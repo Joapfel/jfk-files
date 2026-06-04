@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_9535.png
+
+Convert to Markdownand the topics used concerned the "Battlefield in
+Cairo."
+
+DE T-27
+
+November 17, 1970
+
+Political education classes are held by the Detroit
+NCCF every Sunday at 12845 14th Street, Detroit, Michigan.
+
+DE T-1
+
+November 24, 1970
+
+IV. DOCUMENTS URGING THE REVOLUTIONARY PROGRAM
+
+On November 2, 1970, DE T-23 furnished copies of
+two leaflets, one entitled "Free the Detroit Panthers" on
+the front and "The prisons and Jails are Filled with Political
+Prisoners" on the back and the other "Fund Raising Rally."

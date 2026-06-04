@@ -1,0 +1,80 @@
+# JFK-Files-Part-2_page_18277.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. R. Wannall
+WANNAID:
+
+FROM : W. O. Cregarus
+
+SUBJECT: SENSTUDY 75
+
+1 - Mr. J. A. Mintz
+1 - Mr. E. W. Walsh
+1 - Movement Section
+
+DATE: 9/26/75
+
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregarus
+1 - Mr. S. F. Phillips
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED BY SPA ALMELBY
+
+On 9/10/75, SA Daniel A. Flynn of the New York Office (NYO) was interviewed by a Staff Member of the U. S. Senate Select Committee on Intelligence Activities (SSC) in its offices in Washington, D. C., on the subject of mail openings. The interview was recorded by an SSC stenographer.
+
+On the morning of 9/26/75, SAC Robert Denz, NYO, telephonically contacted Supervisor S. F. Phillips of the Senstudy 75 Project and advised that Flynn had been contacted by James Dick, the SSC Staff Member who had interviewed him. Dick informed Flynn that the transcript of the interview is available for review by Flynn but that the review must be done in SSC offices, pursuant to SSC rules. The deadline for Flynn's review is 9/30/75. Also according to SSC rules, Flynn's review will not permit any substantive changes but only changes as to grammar, and the like. Flynn desires the opportunity to review the transcript and authority was sought for his coming to Washington, D. C., the morning of 9/30/75.
+
+EX-106
+
+REC-7
+
+62-116395
+
+1 - 67- (Personnel File SA Daniel A. Flynn)
+
+SFP: lhb lhb
+(8)
+
+84 OCT 2 1975
+
+CONTINUED - OVER
+
+NW 88326 Docid:32989653 Page 275
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Legal Coun.
+Plan. & Eval.
+Spec. Inv.
+Training
+Telephone Rm.
+Director Sec'y
+
+RE: THE NEW YORK TIMES
+
+The following are the highlights of the telephone conversation between me and SA Daniel A. Flynn, the transcript of which I am transmitting this morning. All questions should be directed to me. My name is Daniel A. Flynn, and my telephone number is 212-689-1111. This is the best number you can use, as it has a 120-second hold time, which allows me to get the impression that we are talking for several minutes when in fact we are only speaking for a second or two. This also ensures that if there is any background noise, the sound will be clear.
+
+In addition to seeking authority for the trip, SAC Denz inquired as to the position Flynn should take in the event he reviews the transcript and finds the recording as inaccurate from a substantive standpoint. Phillips told Denz that, before coming to Washington, D. C., Flynn ought to review any notes he has, as well as the LHM which Flynn prepared and submitted to the Bureau after the interview. If Flynn finds that in his opinion the transcript is inaccurate from a substantive standpoint, and he is unable to persuade Dick to make any changes, Flynn should submit another LHM.
+
+62-116395
+
+1 - 67- (Personnel File SA Daniel A. Flynn)
+
+SFP:lhb lhb
+(8)
+
+CONTINUED - OVER

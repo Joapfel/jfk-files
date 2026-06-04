@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_14998.png
+
+Convert to MarkdownBOMBING DEATH OF
+WHARLEST JACKSON
+AT NATCHEZ, MISSISSIPPI
+ON FEBRUARY 27, 1967
+CIVIL RIGHTS
+BOMBING MATTERS
+
+A full investigation is being conducted at the Department's request concerning the death of Wharlest Jackson at Natchez, Mississippi, as a result of a bomb exploding in his pickup truck as he left work at the Armstrong Tire and Rubber Company in Natchez shortly after 8 p. m. on February 27, 1967.
+
+Jackson had been employed by the Armstrong Company since June, 1955. On February 20, 1967, he began training for a new job as a cement mixer, a type of position previously held only by white men. His particular job was a new position and was based on seniority. Jackson had held the position of treasurer in the National Association for the Advancement of Colored People in the Natchez branch and is survived by his wife and five children. George Metcalf, a Negro fellow employee, also active in the National Association for the Advancement of Colored People, who previously customarily rode to work with Jackson, was seriously injured in a similar type explosion in 1965.
+
+On the scene examination by Laboratory experts indicates that a high-order explosive was detonated under the cab portion of Jackson's truck directly beneath the driver. Fragments of wire recovered at the scene appear to be wire from an electric blasting cap, indicating that such a cap may have been connected to and activated by the electric wiring system of the truck. Portions of the wires to the brake light, tail light, and left rear turn indicator light, which were originally located on the inside of the left frame, are missing as a result of the explosion. No additional physical evidence has been disclosed to date.
+
+Extensive investigation conducted under the on-the-scene supervision of Inspector Joseph A. Sullivan indicates that a group known as the Silver Dollar group is responsible for the bombing. The Silver Dollar group is reportedly a secret group of Mississippi and Louisiana Klansmen founded in June, 1965. One informant is presently a member of the group but to date has been unable to establish the identity of

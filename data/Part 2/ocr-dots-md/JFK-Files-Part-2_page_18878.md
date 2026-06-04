@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_18878.png
+
+Convert to MarkdownHON 105-6699
+
+He was referred to the Consular Section of the American
+Consulate General, Hong Kong. As of this date JAFFE has
+received the necessary funds from the US to pay his tax
+bill and presumably will be leaving Hong Kong for the US
+on 10/25 or 26/72. At this point no specific data pertinent
+to subject's itinerary is available.

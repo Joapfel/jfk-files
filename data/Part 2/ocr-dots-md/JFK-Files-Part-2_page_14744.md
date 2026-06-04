@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_14744.png
+
+Convert to MarkdownWFO
+
+105-New
+
+(WF 1777-S,) who was the source of the above, was invited to attend the WCW by members of the SWC while she was with the WSP delegation in Moscow.
+
+Since returning to the United States, source has been receiving literature, magazines, and letters from various women in Moscow associated with the SWC. Her last letter from ADA IVANOVA (who acted as interpreter for the delegation on their tour of the Soviet Union), dated 5/8/69, at Moscow, indicates IVANOVA expects to see her in Helsinki.
+
+During the latter part of April, 1969, and to present time, WSP has been considering an official invitation received from the Women's International Democratic Federation (WIDF), founded by SWC, to send ten observers to the WIDF convened WCW in Helsinki, 6/14-17/69. SARAH SHORESMAN, 904 Jimeno Road, Santa Barbara, California 93103, who heads the WSP International Clearing House, is handling arrangements for the WSP delegation to Helsinki. She has informed source that MARY CLARKE of Los Angeles, California, and TAIMI HALONEN of Seattle, Washington, will be going from the West Coast; a couple of women from Chicago, Illinois, names as yet unknown, from the Mid-West, and it is assumed a couple of women from Philadelphia, Pennsylvania, and New York City will accompany the group.
+
+Locally, the WSP in Washington, D.C. (WDC), want a couple of its women to go but they do not have the finances to send them. Source has been cleared and backed by the Steering Committee to go since she has the financial ability to pay her own way. She has the reputation of vacationing in Europe each summer so that her motives in going to Helsinki have not been subject to question.
+
+The SWC has advised source and WSP that the theme of the Congress is, "The Role of Women in the World Today". There will be five individual reports: Solidarity with the Women and Children of Vietnam; Women in the Family; Women at Work; Women in Society and Women in the Fight to Win and Defend National Independence, Democracy and Peace. Reports will be given by women from South Vietnam, Australia, U.S.S.R., Mexico, and Sudan.
+
+The cost of attending the WCW in Helsinki, Finland, will amount to approximately $800., which includes round-trip air fare from WDC, registration fee of $20., and room and meals at $10 to $12 per day.

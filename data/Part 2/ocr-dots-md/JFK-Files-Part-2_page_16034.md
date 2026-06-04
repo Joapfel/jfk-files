@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_16034.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DEMONSTRATIONS PROTESTING THE TRIALS OF INDIVIDUALS INDICTED FOR THEIR ACTIVITIES DURING THE DEMOCRATIC NATIONAL CONVENTION (DNC) OF 1968 IN CHICAGO, ILLINOIS
+
+On October 7, 1969, Richard Elrod, Assistant Corporation Concil, City of Chicago, advised he was contacted on October 6, 1969, by Mark Kadish, who identified himself as an attorney, and stated he wanted to represent the demon- strators who would participate in the Weatherman and RYM II SDS factions, October 8 through 11, 1969, activity scheduled to occur in Chicago.
+
+Kadish advised on this occasion that he and 20 other attorneys, including 10 from Ohio and 10 from Wisconsin, desired to be notified when demonstrators were arrested. Kadish was advised by City of Chicago court officials that any arrests that might be made would involve individuals, not organizations, and that any request for an attorney would have to be made on an individual basis by the persons arrested. Kadish was further advised in the event those arrested desired an attorney they would, of course, be permitted to have one. Kadish was told that he and his group would not, however, be allowed to assume legal repre- sentation for demonstrators who might be arrested on a mass basis.
+
+Elrod further advised that Kadish requested that permits be granted so that SDS demonstrations could take place on the dates indicated at the following locations:
+
+10/9/69 - Vicinity of International
+Harvester Tractor Works
+2600 West 31st Street
+Chicago
+
+10/10/69 - Pasteur Park,
+Located across street from
+Cook County Hospital
+1835 West Harrison Street
+Chicago
+
+10/11/69 - Peoples Park at
+Armitage and Halsted Streets
+Chicago
+
+-20-
+
+NW 88613 DocId:32199554

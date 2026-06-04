@@ -1,0 +1,86 @@
+# JFK-Files-Part-2_page_13203.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Legat, Mexico (105-3702)
+
+FROM : R SA Roland E. Trent
+
+SUBJECT: LEE HARVEY OSWALD
+IS-R-Cuba
+
+Re: [x] Allegation of PEDRO GUTIERREZ VALENCIA]
+
+SECRET
+
+DATE: 3-13-64
+
+Classified by K803 MDA/HRK
+Declassify on: 04/MAR/93
+
+On 3-13-64, MARGARITA MUNGUIA, Vasa Section, U.S. Embassy, Mexico, D.F., made available visa-file data concerning ERNESTO MITRANI LEVY, holder of Cuban passport No. 26367, issued in December, 1959, with expiration date in 1964. [x]
+
+Addresses for this individual were given as Miguel Aleman #259, Apartment #301, MEXIKAN Colonia Roma, Mexico, D.F., and Calle Arellano Esquina "C", #269, Havana, Cuba. [x]
+
+MITRANI's date of birth is shown as December 29, 1936, at Havana, Cuba, and he is further described as fair complexion, 5' 7"; 176 lbs.; Cuban national, no scars or marks, brown hair and green eyes. The visa file data also shows MITRANI to be of Turkish extraction. [x]
+
+MITRANI secured a one entry B-2 visa on 1-27-61 valid through 4-27-61, for the alleged purpose of a pleasure trip to Los Angeles, California. [x]
+
+The visa file card contains a photograph of ERNESTO MITRANI and this card indicated his employment as of January, 1961, as a merchant and manufacturer of plastics. [x]
+
+The application made by MITRANI as the U.S. Embassy, Mexico, D.F., in January, 1961, was for a non-immigrant visa to visit the U.S. [x]
+
+RET
+
+CLASS. & EXT. BY SP 3TEK/RH/AHR 7-5-79
+REASON-FCIM II, 1-2.4.2
+DATE OF REVIEW 3-13-84
+
+All information contained herein is UNCLASSIFIED. EXCEPT WHERE SHOWN OTHERWISE.
+
+CIA HAS NO OBJECTION TO RELEASE OF CIA INFORMATION
+
+DECLASSIFICATION AND/OR, RELEASE OF CIA INFORMATION IN THIS DOCUMENT AS SANITIZED-JAN 9/29/63
+
+SECRET
+
+CLASSIFIED BY Sd68 SALUTE
+DECLASSIFY ON: 25X (L)
+
+HW 50953 DocID: 32183961 Page 2
+
+9/8/98
+
+Sd68 SLVide
+JFK
+
+SJD
+
+MAR 17 1964
+
+LEGAL ATTACHE - MEXICO
+
+<table>
+   <tr>
+    <td>SEAR'V.L.</td>
+    <td>LISED</td>
+   </tr>
+   <tr>
+    <td>SENTENCED</td>
+    <td>MILED</td>
+   </tr>
+   <tr>
+    <td>FOR 17 1964</td>
+    <td></td>
+   </tr>
+   <tr>
+    <td colspan="2">LEGAL ATTACHE - MEXICO</td>
+   </tr>
+  </table>
+
+SECRET
+
+CLASSIFIED BY Sd68 SLVide
+DECLASSIFY ON: 25X (L) [x] [x]

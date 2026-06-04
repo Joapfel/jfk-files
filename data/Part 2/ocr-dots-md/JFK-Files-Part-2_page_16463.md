@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_16463.png
+
+Convert to Markdowndent one and we realize it. Black people are realizing it more and more. We cannot gain our freedom under the present system; the system that is carrying out its plans of institutionalized racism. Your question is what will have to be done to stimulate them to revolution. I think it's already being done, it's a matter of time now for us to educate them to a program and show them the way to liberation. The Black Panther Party is the beacon light to show black people the way to liberation.
+
+You notice the insurrections that have been going on throughout the country, in Watts, in Newark, in Detroit. They were all responses of the people demanding that they have freedom to determine their destiny, rejecting exploitation. Now the Black Panther Party does not think that the traditional riots, or insurrections that have taken place are the answer. It is true they have been against the Establishment, they have been against authority and oppression within their community, but they have been unorganized. However, black people learned from each of these insurrections.
+
+They learned from Watts. I'm sure the people in Detroit were educated by what happened in Watts. Perhaps this was wrong education. It sort of missed the mark. It wasn't quite the correct activity, but the people were educated through the activity. The people of Detroit followed the example of the people in Watts, only they added a little scrutiny to it. The people in Detroit learned that the way to put a hurt on the administration is to make Molotov cocktails and to go into the street in mass numbers. So this was a matter of learning. The slogan went up "Burn, baby, burn". People were educated through the activity and it spread throughout the country. The people were educated on how to resist, but perhaps incorrectly.
+
+## Educate Though Activity
+
+What we have to do as a vanguard of the revolution is to correct this through activity. The large majority of black people are either illiterate or semi-literate. They don't read. They need activity to follow. This is true of any
+
+colonized people. The same thing happened in Cuba where it was necessary for twelve men with a leadership of Che and Fidel to take to the hills and then attack the corrupt administration: to attack the army who were the protectors of the exploiters in Cuba. They could have leafleted the community and they could have written books, but the people would not respond. They had to act and the people could see and hear about it and therefore become educated on how to respond to oppression.
+
+In this country black revolutionaries have to set an example. We can't do the same things that were done in Cuba because Cuba is Cuba and the U.S. is the U.S. Cuba has many terrains to protect the guerrilla. This country is mainly urban. We have to work out new solutions to offset the power of the country's technology and communication: its ability to communicate very rapidly by telephone and teletype and so forth. We do have solutions to these problems and they will be put into effect. I wouldn't want to go into the ways and means of this, but we will educate through action. We have to engage in action to make the people want to read our literature. Because they are not attracted to all the writing in this country: there's too much writing. Many books makes one weary.
+
+## Threat from Reformers
+
+MOVEMENT, Kennedy before his death, and to a lesser extent Rockefeller and Lindsay and other establishment liberals have been talking about making reforms to give black people a greater share in the pie and thus stop any developing revolutionary movement. Would you comment on this?
+
+HUEY: I would say this: If a Kennedy or Lindsay or anyone else can give decent housing to all of our people; if they can give full employment to our people with a high standard; if they can give full control to black people to determine the destiny of their community; if they can give fair trials in the court system by turning over the structure to the community; if they can end their exploitation of people throughout the world; if they can do all of these things they would have solved the prob-
+
+140

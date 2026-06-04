@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_10208.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+I. SURVEILLANCES
+
+A. SIESTA
+
+During the periods 1-20 February, 12 April-7 May, and 9-20 August 1971, a surveillance was conducted of Miss Deborah Fitzgerald, a former staff employee, and Orlando Toro Nunez, a Cuban national with whom Miss Fitzgerald had become professionally and emotionally involved. Surveillance was predicated upon information that Miss Fitzgerald had been seeking from employees information in Information Processing Division files, and that employees were visiting a photographic studio operated by Miss Fitzgerald and Nunez in Fairfax City, Virginia. In addition to physical surveillance, one surreptitious entry of the photographic studio was made, and an attempt to enter the apartment of Nunez was aborted because of a door lock problem.
+
+B. PARAGON
+
+Pursuant to a request from the CI Staff, approved by the DCI, surveillances were conducted of Iden 69 and her associates at various times from May to September 1971. Iden 69, an acknowledged Latin American revolutionary, had long been a source of the WH Division and had given information regarding a plot to assassinate or kidnap Vice-President Agnow and the DCI. Surveillances included coverage of the activities of Iden 69 during two visits to the United States, technical coverage of debriefings of her by WH Division representatives in New York City, and surveillance, including mail coverage, of several American citizens alleged to be part of the plot. Although most of the surveillance occurred in New York City, surveillance of one of the individuals included extensive coverage of a commune in Detroit.
+
+C. GELOTEX I
+
+At the direction of the DCI, a surveillance was conducted of Iden 180 of the Washington Post during
+
+E2 IMPDET
+CL BY 000988]
+
+SECRET
+EYES ONLY
+
+000%G

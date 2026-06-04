@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_17195.png
+
+Convert to MarkdownBLACK PANTHER PARTY (BPP)
+
+Captain Samuels further advised that these Panthers then called on the high school principal and asked for permission to use the school-wide public address system to broadcast a plea to "cool it". Captain Samuels related that the principal denied this request and ordered the four from the high school premises and Captain Samuels noted that there was no further incident.
+
+On May 27, 1969, Detective Sergeant Philip Hardiman, Cook County Sheriff's Police, Chicago, Illinois, advised an Agent of the Chicago Office of the FBI that Fred Hampton was currently confined at the Cook County Jail pending transfer to a state penitentiary.
+
+Copies of this letterhead memorandum are being furnished to the following agencies:
+
+* United States Attorney, Chicago, Illinois
+
+* United States Secret Service, Chicago, Illinois
+
+* Region I, 113th Military Intelligence Group, Evanston, Illinois.

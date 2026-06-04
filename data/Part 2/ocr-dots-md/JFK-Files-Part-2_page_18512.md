@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_18512.png
+
+Convert to MarkdownLegal Counsel to Mr. Adams
+
+RE: STATUS OF RESPONSES TO CONGRESSIONAL COMMITTEE REQUESTS
+
+## Hearings (continued)
+
+| Date of Request | Nature of Request | Status |
+| :--- | :--- | :--- |
+| 7/29/75 | Orally advised by Committee staff members letter sent : requesting Bureau testimony relating to Budget matters. | Testimony to be 8/7 or 8/8/75. |
+
+**RECOMMENDATION:**
+
+For information.

@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_10548.png
+
+s furnished the FBI. In this regard, your office was advised of the final disposition of this matter by the FBI on February 10, 1971. Although some of the documents from this file are subject to disclosure, they are not being included since you would be aware of the contents of this data.
+
+Additional information concerning you which is contained in our central records is exempt from disclosure as provided by Title 5, United States Code, Section 552 (b)(1), (b)(2), (b)(5), (b)(6), (b)(7) (C) and (D). These exemptions protect, respectively matters that are specifically authorized under criteria established by an Executive Order to be kept secret in the interest of national defense or foreign policy; information relating to the internal personnel rules and practices of this Bureau; inter-agency or intra-agency memorandums or letters which would not be available through discovery proceedings during litigation; information JAR 29 1976 personnel file the disclosure of which would constitute a clearly unwarranted invasion of personal privacy; information the disclosure of which would constitute an unwarranted invasion of privacy of third parties; and the identity of and information furnished by sources pursuant to an assurance of confidentiality.
+
+1 - The Attorney General
+
+2 - The Deputy Attorney General
+
+Attn: Susan M. Hauser
+Attn: K. William O'Connor
+
+1 - Bujile 62-116395
+
+lam:dal (14) CONTINUED OVER
+
+NW 88296 DocId:32989624 Page 187
+
+NOT RECORDED
+
+I did not find any record of the matter in my files." - John A. DiLorenzo, author of "The making of the American Republic: a history of政体从Ancient Greece tothe Founding of the United States of America" published by Random House, New York, N.Y., in 1976. The title of the book and the passage about the Deputy Attorney General appear throughout the text but there is no mention of it in the body of the document or its immediate surroundings. It is possible that diLorenzo wrote his own version of the events and ideas he discussed in the book based on his own research and observations, rather than using information that was already in the public domain. However, the reference to the Deputy Attorney General and the claim that it was published prior to the Declaration of Independence make it very likely that the information in question came from diLorenzo's original research and writing.

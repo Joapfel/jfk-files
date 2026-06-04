@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_13550.png
+
+Convert to MarkdownIn the same vein, I should like to invite your attention
+to some procedural matters surrounding recent witness presenta-
+tion before the Committee. It appears, from reports which I
+have received, that two former FBI agents who recently appeared,
+did not receive copies of the Committee's Rules of Procedures
+until immediately before appearance before the Committee; and
+that the scope of their proposed testimony was defined with
+somewhat less than optimum precision for pre-clearance. Some
+procedural problems are almost inevitable, especially in the
+early stages of hearings. I know that you share my interest
+in assuring that full procedural due process is unequivocally
+provided to all witnesses who testify before the Committee or
+are interviewed by Committee Staff. In calling this matter to
+your attention I seek your support in restricting such problems
+to a minimum and prospectively avoiding others of like kind.
+
+Sincerely,
+
+Edward H. Levi
+Attorney General
+
+NWW 88296 DocId:32989588 Page 75

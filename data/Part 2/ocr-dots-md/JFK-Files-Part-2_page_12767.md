@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_12767.png
+
+Convert to Markdown"(4) the extent to which the positions taken or advanced by it from time to time on matters of policy do not deviate from those of any Communist-action organization, Communist foreign government, or the world Communist movement referred to in section 781 of this title."
+
+e. [Deleted]
+
+f. [Deleted]
+
+3. [How proceedings are instituted (Title 50, USC, § 792 (§ 13 of act))]
+
+Whenever the Attorney General has reason to believe that any organization is a communist-action organization or a communist front organization, or that any individual is a member of an organization determined by a final order of the Board to be such, he shall file a petition with the Board and serve upon the organization or individual, as the case may be, a copy thereof, for a determination that such is true via a hearing before the Board.
+
+4. Findings of the Board and publication of same (Title 50, USC, § 792 (§ 13 of act))
+
+If, after a hearing on the matter, the Board finds - (1) that an organization is a communist-action organization or a communist front organization, it shall make a report in writing to state its findings and cause to be served on such organization an order determining the organization to be a communist-action organization or a communist front organization, or (2) that an individual is a member of a communist-action organization, it shall make a report in writing in such order determining such individual to be a member of a communist-action organization.
+
+a. Findings of the Board shall be published in the Federal Register that such orders have become final and this publication shall be notice to all persons that such orders have become final. Records of the Board concerning such hearings shall be available to the public.
+
+5. Employment of members; contribution of funds, services, or advice by Government personnel (Title 50, USC, § 784 (§ 5 of act))
+
+"(a) When there is in effect a final order of the Board determining any organization to be a Communist-action organization or a Communist-front organization, it shall be unlawful -
+
+"(1) For any member of such organization, with knowledge or notice of such final order of the Board -
+
+"(A) in seeking, accepting, or holding any nonelective office or employment under the United States, to conceal or fail to disclose the fact that he is a member of such organization; or
+
+"(B) to hold any nonelective office or employment under the United States; or
+
+"(C) in seeking, accepting, or holding employment in any defense facility, to conceal or fail to disclose the fact that he is a member of such organization; or
+
+"(D) if such organization is a Communist-action organization, to engage in any employment in any defense facility; or
+
+"(E) to hold office or employment with any labor organization, as that term is defined in section 2 (5) of the National Labor Relations Act, as amended (29 U. S. C. 152), or to represent any employer in any matter or proceeding arising or pending under that Act.
+
+"(2) For any officer or employee of the United States or of any defense facility, with knowledge or notice of such final order of the Board -
+
+"(A) to contribute funds or services to such organization; or
+
+"(B) to advise, counsel or urge any person, with knowledge or notice that such person is a member of such organization, to perform, or to omit to perform, any act if such act or omission would constitute a violation of any provision of paragraph (1) of this subsection."}, {"bbox": [52, 3269, 785, 3302], "category": "Page-footer", "text": "NW 88321 DocId:32989529 Page 2101"}, {"bbox": [1210, 3232, 1379, 3263], "category": "Text", "text": "4-12-68"}]

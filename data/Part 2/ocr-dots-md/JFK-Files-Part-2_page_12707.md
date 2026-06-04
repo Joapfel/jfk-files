@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_12707.png
+
+Convert to MarkdownTABLE OF CONTENTS
+
+87D
+SECURITY INVESTIGATIONS OF INDIVIDUALS
+
+| | Page |
+| :--- | :--- |
+| (5) Seamen and subjects employed in the maritime industry, including longshoremen and other water-front employees. | 80 |
+| (6) Employees of the Federal Government within the purview of Executive Order 10450. | 80 |
+| (7) Individuals who own property or reside in immediate vicinity of an installation or other premises under cognizance of a branch of armed services. | 81 |
+| (8) Airmen issued certificates by Federal Aviation Administration. | 81 |
+| (9) Security index - dissemination of information to Secret Service. | 81 |
+| (10) Dissemination at Bureau. | 81a |
+| b. Data developed concerning individuals who are not within the Bureau's investigative jurisdiction. | 82 |
+| (1) Members of the armed forces. | 82 |
+
+Index.................................................. 82a
+
+17-18
+2-13-70
+
+NW 88321 DocId:32989529 Page 2041

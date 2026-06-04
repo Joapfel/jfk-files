@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_16041.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Chicago, Illinois
+
+October 14, 1969
+
+In Reply, Please Refer to
+File No.
+
+Title DEMONSTRATIONS PROTESTING THE TRIALS OF INDIVIDUALS INDICTED FOR THEIR ACTIVITIES DURING THE DEMOCRATIC NATIONAL CONVENTION OF 1968 IN CHICAGO, ILLINOIS
+
+Character Reference is made to letterhead memorandum dated and captioned as above
+
+All sources (except any listed below) whose identities are concealed in referenced communication have furnished reliable information in the past.

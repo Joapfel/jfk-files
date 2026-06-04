@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_14231.png
+
+Convert to MarkdownAppendix C
+
+Part I
+
+Section 9 - Disciplinary Matters
+
+Part II
+
+Section 1 - Authority--Training--Submission of Information
+
+Section 2 - Supervision--Availability-Resident Agencies
+
+Section 3 - Administration of Offices
+
+Section 4 - Communications
+
+Section 5 - Dissemination of Information
+
+Section 6 - Publications, Press, and Public Contacts
+
+Section 7 - Payments--Property
+
+Section 8 - Miscellaneous Regulations
+
+Section 9 - Classification--Character--Copies--Abbreviations

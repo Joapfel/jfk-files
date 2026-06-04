@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_10693.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Copy to:
+1-USA, SDNY
+(ATT: AUSA BLAINE MICHAEL)
+
+Report of:
+ROBERT P. SADOWSKI
+8/31/71
+
+Office: New York, New York
+
+Date:
+
+Field Office File #: 52-10018(Sub G)
+Bureau File #: 52-94527
+
+Title:
+FRANK RICHARD POMMERSHEIM
+
+Character:
+CRIME ON A GOVERNMENT RESERVATION-BURGLARY;
+DESTRUCTION OF GOVERNMENT PROPERTY; THEFT OF
+GOVERNMENT PROPERTY; MUTILATION OF PUBLIC
+RECORDS; INTERFERENCE WITH THE ADMINISTRATION
+OF THE SELECTIVE SERVICE SYSTEM; CONSPIRACY
+
+Synopsis:
+Subject indicted by FGJ, Camden, NJ, 8/27/71, for CGR-Burglary, DGP, TGP, Mutilation of Public Records, Interference with Administration of SSS and Conspiracy to commit same. Bench Warrant issued. Subject, WMA, born 12/12/43, NYC, NY, 5'11", brown hair and eyes, arrested 8/27/71, at place of employment by SAS of the FBI without incident. Arraigned same date before US Magistrate, released on his own recognizance. Hearing set for 9/1/71. Description and background data set forth.
+
+-D-
+
+DETAILS:
+
+Investigation in this matter was predicated upon receipt of a telephonic communication from the Philadelphia, Pennsylvania (Pa.) Division of the Federal Bureau of Investigation (FBI) advising that subject was indicted by a Federal Grand Jury (FGJ) convened in Camden, New Jersey (NJ), on August 27, 1971, for Crime on a Government Reservation-Burglary, Destruction of Government Property, Theft of Government Property, Mutilation of Public Records,
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
+
+NW 88321 DocId:32989529 Page 27

@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_15537.png
+
+Convert to Markdownnext thing, all the young warriors, the
+youths who will fight the power structure
+are thrown in jail, indicted and put away
+for good. . . these people had better get
+hired to what's happening and stop going a-
+round believing these fascist pigs.
+
+'And the next time the pigs attack our headquarters, there's going to be a lot of dead pigs. We didn't fire back when the FBI busted in 'cause we wanted to show the people who the enemy really is. But the next time, the people will defend us,' Hampton declared.
+
+'One thing's for sure,' said Hampton confidently, 'the Black Panther Party is not going to be suppressed no matter what the pigs like Hanrahan, Daley, Buckney, and (Cook County Jail Supt.) Winston Moore do.
+
+'Vere the vanguard of the people and we say more power to the people and the people are our first and most important concern.'
+
+On August 29, 1969, a rally was held in Grant Park, Chicago, Illinois, to commemorate the confrontations between the Chicago Police Department (PD) and the demonstrators during the Democratic National Convention held during August, 1968. SA SAMUEL P. WALLACE made a tape recording of speeches at the above rally on August 29, 1969, and the following are the remarks made by FRED HAMPTON at this rally:
+
+FRED HAMPTON
+
+"Now first of all I don't know if it's true.
+Somebody told me that a young man, I don't
+even know (inaudible) make a special request
+(inaudible) all you got to do is come on up
+here and get it. (Inaudible) everybody in
+our work shop (inaudible) in our work shop.

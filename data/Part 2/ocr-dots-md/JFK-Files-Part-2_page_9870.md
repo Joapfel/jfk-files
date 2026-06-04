@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_9870.png
+
+Convert to MarkdownBrr, Velvety of each tap
+Rejoice / Pol.
+SCF overhear
+
+Nixon dissem- 7/18/69.
+
+Branden told friend "is clear the Admin. will win on the ABM by a two vote margin. He [BJ] said, 'they've got Williams & they've got Magnussen.' Frank Frank told B. that Sen. Kennedy planned to spend the weekend w/ Robert Padawood. But B. uncertain as to how Kenn. would be on ABM.
+
+Ehrl dissem = ~~7/25/69~~ 7/25/69
+
+One target contacted a steardess "and apologized for drinking too much the previous evening. She concerned that he drinks too much & also suggested he cut his hair."
+
+Ehrl, dissem 7/28/69.
+
+Friend told one target that "much of what is being said now about what little Pres has done in the WHT or looking ahead to do is based on the conviction that Mitchell has a strategic view of Nixon's role that involves the South."
+
+Ehrl, dissem, 7/31/69
+
+"Display of affection get. woman (not his wife) & one target
+
+ENGLS
+
+62-116395-1463-1

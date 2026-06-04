@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_10422.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>WARNING: NOTICE</td>
+   </tr>
+   <tr>
+    <td>SENSITIVE INFORMATION. ALL SOURCES AND METHODS INJECTED</td>
+   </tr>
+  </table>
+
+SECRET
+
+<table>
+   <tr>
+    <td>2</td>
+    <td></td>
+    <td>011018</td>
+   </tr>
+   <tr>
+    <td colspan="3">E...IMPDET CL BY...</td>
+   </tr>
+  </table>
+
+MEMORANDUM FOR: Deputy Director for Management and Services
+SUBJECT : Contacts with Individuals Named in the Watergate Matter
+
+1. I am addressing this to you instead of to the Director of Central Intelligence since I doubt that the information contained herein is of such significance to warrant his interest and because it has been on record with the Agency since July 1972. However, if you feel that the information is of such interest that it should be forwarded to the Director I shall put it in the proper format to do so.
+
+2. My only contact with anyone named in connection with the Watergate and related matters was through Mr. Jack Bauman a former Agency employee now retired and living in Winterhaven, Florida. In December 1971 Mr. Bauman called me from Florida and advised that he wanted to get in touch with Howard Hunt. He said that he did not have Hunt's home phone number and that it was probably unlisted but that since Hunt was a former employee, could I contact Hunt and ask him to give Mr. Bauman a call. I had only met Hunt once about 10 years before but I agreed to relay the message. I called Howard Hunt at his home and told him that Mr. Bauman did not have his home phone and requested he call Mr. Bauman. Mr. Hunt thanked me for relaying the message and said that he would call Mr. Bauman. This seemed of little consequence to me in December 1971 but in July 1972 I den 17 of the Office of Security contacted me in regard to the FBI investigation of the Watergate situation. At that time I informed Iden 17 of the telephone call from Mr. Bauman in December 1971. Attached is a copy of a Memorandum for the Record prepared by Iden 17 as a result of our conversation.
+
+3. In the summer of 1972 I took my family to Disney World in Florida and took that occasion to drop in to see Jack Bauman. Mr. Bauman told me in a private conversation that he had been interviewed three or four times by the FBI in connection with the Watergate affair and he related to me his contact
+
+00155
+
+THIS ONLY

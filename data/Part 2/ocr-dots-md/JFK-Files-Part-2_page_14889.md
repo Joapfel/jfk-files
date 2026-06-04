@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_14889.png
+
+Convert to MarkdownJanuary 15, 1960
+
+PROTECTING IDENTITY OF CONFIDENTIAL INFORMANTS
+CONFRONTATION ISSUE
+
+The Supreme Court is scheduled to hear arguments on two cases involving hearings and the right of confrontation on January 18, 1960. The cases involve Hannah vs. Larche and Hannah vs. Slawson. Solicitor General Rankin will argue the cases for the Government.
+
+The cases involve the President's Civil Rights Commission which was established by the Federal Civil Rights Act of 1957 to investigate charges of citizens being discriminatorily deprived of the right to vote. The question raised for the Supreme Court is whether the Civil Rights Act of 1957 authorizes the Civil Rights Commission to conduct hearings wherein state registrars and private citizens accused of depriving others of the right to vote are denied notice of charges against them and confrontation.
+
+Although the hearings held by the Civil Rights Commission are investigative rather than judicial or punitive such as the normal Government hearing, the argument and the Supreme Court decision in these cases could shed some light on the issue of confrontation as well as the investigative agency's right to protect the identity of confidential informants. This is particularly true in view of the current negotiations to produce an Executive Order in relation to the Industrial Security Program.
+
+These are the two cases which the "Washington Post" commented upon editorially on December 14, 1959, supporting the Civil Rights Commission's hearing procedures in that it was necessary that the Commission protect their confidential informants from reprisals by segregationists. The "Washington Evening Star" on January 11, 1960, in reporting the Attorney General's first trip to argue a case before the Supreme Court on the constitutionality of the Federal Civil Rights Act commented that the above cases would prove more difficult for the Government to argue and obtain a favorable decision.

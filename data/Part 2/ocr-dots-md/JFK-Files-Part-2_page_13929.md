@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_13929.png
+
+Convert to MarkdownUNITED STATES SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+
+5) T. J. Smith memorandum to E. S. Miller captioned "FBI Intelligence Letter for the President Code Name 'Inlet' Research Matter," dated February 2, 1973.
+
+Enclosures - 8
+
+1 - The Attorney General
+
+NOTE:
+
+See W. O. Cregar memorandum to Mr. W. R. Wannall 6/18/75 cap-
+tioned "SENSRUD." The above material which we are furnishing to the
+Committee was supplied by SA Thomas J. Deakin, Central Research
+Unit, IS - 3 Section, INTD, who located the documents and
+provided sanitized Xerox copies, deleting administrative
+material.

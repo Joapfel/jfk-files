@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_19028.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+Jaffe's "Exclusive" Regarding Professor Frederick Barghoorn.
+
+Jaffe advised that another "exclusive" he obtained while in Moscow was information about the release of Professor Frederick Barghoorn. Jaffe obtained this "exclusive" from Mikhail "Mike" Bruk, "a guy who never pumped me." He said Bruk was an employee of APN, an "extremely interesting man, a fine linguist" who normally covers scientific matters. Jaffe stated it is his opinion that the release of Barghoorn was the culmination of a fight between Khrushchev and the KGB and his opinion was confirmed by statements made to him by Yuri Vinogradov that Khrushchev initially was not aware that Barghoorn was being detained and after he learned of it he insisted, over the objections of KGB, that he be released.
+
+Jaffe said he learned beforehand of the expected release of Barghoorn while attending a Soviet-American Friendship meeting with Bruk and Vinogradov. He continued: "Mike (Bruk) took me out in the hall. He said he (Barghoorn) will be released. He will leave here tomorrow for London." Jaffe said the release occurred on a Saturday and no British European Airways (BEA) flight is scheduled from Moscow on Saturday; however, the BEA plane was detained and did not depart until Saturday, with Barghoorn. Jaffe said that before releasing the story, he tried to verify it with the American Embassy, but was unable to do so.
+
+SECRET
+51
+
+NW 88326. DocId:32989704 Page 322

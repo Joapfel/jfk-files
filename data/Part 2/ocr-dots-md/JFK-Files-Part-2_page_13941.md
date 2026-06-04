@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_13941.png
+
+Convert to MarkdownNovember 7, 1969
+
+The President
+The White House
+Washington, D. C.
+
+Dear Mr. President:
+
+There is enclosed for your information a document containing items of current intelligence interest. This paper has been prepared to highlight certain timely developments in our security and intelligence investigations. Material of this type will be furnished to you in this manner on a continuing basis.
+
+A copy of this document is being sent to the Attorney General. Upon removal of the classified enclosure, this letter becomes unclassified.
+
+ALL INFORMATION CONTAINED
+DOES NOT EXIST
+UNCLASSIFIED
+BY
+DATE 9-24-2000
+BY S.R.AHM/JP
+
+MDR-16
+
+NW 88326 DocId:32989611 Page 198

@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_15728.png
+
+Convert to Markdownthe car door and eat him brutally. About ten Panthers and their associates gathered around to protest and were arrested. This rash of arrests coincided with the visit of Stokelav Carmichael to the Bay Area.
+
+12. April 3, 1968-Police entered Father Neil's church in Oakland where the Panthers were holding a meeting. A black youth associated with the Panthers (but not authorized by them to possess a gun) was, according to police, drunk and waving a gun outside the church. Police surrounded the church and entered it, about twelve of them in threatening manner. They were accompanied, inexplicably, by a white priest and a black clergyman, both from Oakland. David Hilliard came out of the out of the sanctuary and refused to allow police to enter the sanctuary. Upon seeing Hilliard, police lowered their guns and cast their eyes about, looking for someone else. The Panthers are convinced they were locking in for Bobby Seale.
+
+13. April 5, 1968-San Diego police crashed down the door of Ken Denman, PFP leader and Panther organizer in San Diego. They had no warrant.
+
+14. April 6, 1968-Several Panthers in cars in west Oakland on Saturday night, April 6, were approached by two policemen and menaced with guns. When the Panthers tried to defend themselves, shooting began, and the Panthers ran into a nearby house. After about 90 minutes of shooting by some 50 members of the Oakland P. D. who set fire to the house and filled it with tear gas, the Panthers were forced to surrender. With floodlights covering the house, Bobby Hutton walked out with his hands un. Someone gelled that he had a gun, and he was shot. He was not armed; no gun was found anywhere near his body. Eldridge Cleaver, wounded in the leg, and eyes badly burned by tear gas, came out. In total, nine persons were arrested, including Panther National Captain David Hilliard. Two policemen were wounded slightly.
+
+15. April 9, 1968- Two Black Panther women were going about Oakland in a car putting up posters announcing the candidacy of Huey Newton for Congress and Bobby Seale for Assembly on the Peace and Freedom ticket. Twelve policemen with shotguns stopped their car and searched it - without probable cause. Throughout the day, national cars circled the Newton-Seale campaign headquarters. Sam Nanier and other Panthers were physically stopped by police from putting up campaign posters. Police have been spotted by Oakland residents tearing down Newton-Seale posters.
+
+16. April 13, 1968-Four members of the Black Panther Party were returning from Bobby Hutton's funeral when they were arrested on suspicion of robbery. Since it was Friday, they were to be kent over the weekend before they could be arraigned. This is a typical police procedure - it means three days detention instead of overnight before a court appearance. The robbery took place on Monday. Furthermore the robbery car was driven by one person with one passenger. Four people were arrested Friday. The car was in the shop being repaired at the time of the alleged robbery. On Sunday, after a weekend of work by Attorney Alex Hoffmann, the "suspects" were released - they couldn't be identified as having even a remote connection with the alleged robbery. When arrested
+
+NW 88613 DocId:32199554
+Page 1225

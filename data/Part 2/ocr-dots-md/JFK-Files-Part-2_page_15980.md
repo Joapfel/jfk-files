@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_15980.png
+
+Convert to MarkdownOn January 6, 1969, Central Committee of the BPP at Chicago met and decided to conduct no activity or attempt to recruit members from BR territory. BPP leaders do not plan, as of this time, to meet with JEFF FORT or any members of BR.
+
+1/6/69)
+
+On January 14, 1969, FRED HAMPTON and BOBBY RUSH, leaders of BPP at Chicago, Illinois, appeared on radio program, Radio Station WVON, Chicago. HAMPTON stated BPP was currently in the process of educating BR at Chicago. JEFF FORT, leader of BR immediately telephonically contacted WVON and stated HAMPTON confused as far as educating BR. FORT stated BR are educating BPP, and this was understanding reached when leaders of BR and BPP met at Chicago Church several weeks ago.
+
+1/15/69)
+
+On January 15, 1969, FRED HAMPTON, BPP leader, Chicago, accused JEFF FORT, Leader of BR of being responsible for the deaths of more Negroes than the Ku Klux Klan or police at meeting in Maywood, Illinois (Chicago suburb). HAMPTON said FORT is "in" with Chicago's Mayor DALEY, because when he is arrested he is always released.
+
+On January 15, 1969, HAMPTON said he is the new MALCOLM X.
+
+1/16/69)
+
+The friction and hatred between well organized Negro youth gangs and BPP at Chicago is so great, it seems unlikely BPP will be able to obtain any unity among substantial numbers of black individuals at Chicago, in near future or possibly at any time.
+
+1/28/69)
+
+On January 17, 1969, FRED HAMPTON, Chicago BPP leader, advised at BPP rally on January 17, 1969, held
+
+NW 88613 DocId:32199554 Page 1477

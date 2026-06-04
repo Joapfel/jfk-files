@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_10454.png
+
+Convert to MarkdownORD-2328-73
+
+9 MAY 1973
+
+MEMORANDUM FOR: Deputy Director for Science and Technology
+
+SUBJECT : Repeated Survey of ORD for Non-Foreign Intelligence Activities
+
+The 7 May survey has been repeated and refined with respect to all ORD services or dealings with other agencies on domestic, non-foreign matters. In addition, this report covers all our activities dealing with the research and development of intelligence equipment for foreign use which has been tested in the United States and might have collected domestic information. Again, each member of ORD available today was asked either directly or through his supervisor to provide the above requested information, whether he was directly involved or not. We have used all diligence to search our records available to us during this time period to ensure this is a complete and factual list.
+
+Sayre Stevens
+Director of Research & Development
+
+Attachments:
+
+1 - Contacts with Other Government Agencies
+
+2 - Domestic Tests
+
+SECRET
+
+00223

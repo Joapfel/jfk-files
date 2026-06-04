@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_9803.png
+
+Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+The memorandum pointed out that, as in the past,
+these reports are furnished to the Department in order that
+consideration may be given as to whether any Federal laws
+have been violated and for information concerning possible
+subversive infiltration into the Executive Branch of the
+Government.
+
+With regard to a determination as to whether any
+Federal laws have been violated, it was noted the violations
+generally involve Title 18, U.S. Code 1001, and a response is
+received from the Criminal Division.
+
+Information concerning subversive infiltration
+into the Executive Branch is furnished for the Department's
+assistance in discharging its responsibilities under
+Section 13 of EO 10450.
+
+The Assistant Attorney General for Administration,
+by memorandum dated August 26, 1974, (enclosed), advised that
+the practice as outlined in the memorandum of August 14, 1974,
+satisfies the needs of the Department.
+
+As the result of reorganization in the Department,
+these reports are now sent to the Director, Security and
+Administrative Services Staff.
+
+CIRCUMSTANCES UNDER WHICH THE FBI WILL CONDUCT ITS
+OWN INVESTIGATION OF A PROSPECTIVE FEDERAL EMPLOYEE
+
+With regard to Sections 5 and 8(d), supra, the FBI
+sent a memorandum dated May 1, 1953, (enclosed), to the
+Deputy Attorney General pointing out that the FBI contemplated
+following the policy in existence under EO 9835 (Federal
+Employee Loyalty Program) of initiating an investigation based
+on available information rather than awaiting a request for
+such an investigation under EO 10450 from the interested
+department or agency. It was stated that if this practice
+was in conflict with the provisions of EO 10450, consideration
+could be given to clarification in subsequent regulations.

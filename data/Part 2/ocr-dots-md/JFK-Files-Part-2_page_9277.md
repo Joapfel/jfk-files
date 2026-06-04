@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_9277.png
+
+Convert to MarkdownIn Reply, Please Refer to
+File No.
+
+Title Black Panther Party
+
+Character Extremist Matters
+
+Reference Report at Detroit, dated and captioned as above
+
+All sources (except any listed below) whose identities are concealed in referenced communication have furnished reliable information in the past.

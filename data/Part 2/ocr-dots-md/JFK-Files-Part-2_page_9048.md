@@ -1,0 +1,429 @@
+# JFK-Files-Part-2_page_9048.png
+
+Convert to MarkdownCIA HAS NO OBJECTION TO
+DECLASSIFICATION AND/OR,
+RELEASE OF CIA INFORMATION
+IN THIS DOCUMENT. AS SANITIZED
+
+Transmit the following in
+
+Via AIRTEL
+
+Date: 1/8/65
+
+SECRET
+
+ confidential
+
+(Type in plain text or code)
+
+(Priority or Method of Mailing)
+
+TO : Director, FBI (100-409763)
+FROM: Legat, Bern (105-284) (P)
+MARK LANE
+SM - C
+
+CLASSIFIED BY S668 SIO KEL
+DECLASSIFY ON: 25X (4)
+Re Bern letter 1/5/65.
+
+On 1/6/65 JOHN DIMMER, Chief, Office of Special Assistant (covert CIA), the Embassy, Bern confidentially informed that he had learned that LANE was to speak in Zurich, Switzerland, some time in the next two weeks on the subject of OSWALD's innocence in the killing of President KENNEDY. LANE's talk is allegedly to be sponsored by HEINRICH BUCHBINDER, well known Swiss Trotskyite who is prominent in the Swiss Movement Against Atomic Armament (Schweizerische Bewegung gegen die Atomare Aufrüstung - SBGA.)
+
+At DIMMER'S request, he was furnished background material concerning LANE. DIMMER stated that he would keep this office informed of further developments in this matter.
+
+Classified by 7/13/93
+NOT RECORDED
+199 JAN 19 1965
+
+⑤ Bureau Declassify on: UAD
+(1 - Liaison)
+(1 - New York) (100-117844)
+1 - Bern
+APPROPRIATE AGENCIES
+AND FIELD OFFICES
+ADVISED BY ROUTING
+SLIP(S) of Class
+DATE 1/6-19-65
+
+HDG:mls
+(6)
+
+EXEMPT FROM SDS CATEGORY 243
+CLASSIFIED BY 2040
+EXEMPT FROM SDS CATEGORY 243
+DATE OF DECLASSIFICATION INDEFINITE
+
+SECRET
+
+60JAN191965
+
+Approved:
+
+Special Agent in Charge
+
+Sent ____
+
+M Per ____
+
+HW 52333 DocId:32165536 Page 2
+
+<table><thead><tr><th></th><th></th><th></th><th></th></tr></thead><tbody><tr><td>HDG:mls</td><td>(6)</td><td>CLASSIFIED BY 2040 EXEMPT FROM SDS CATEGORY 243 DATE OF DECLASSIFICATION INDEFINITE</td><td></td></tr><tr><td>C C. Wick</td><td></td><td></td><td></td></tr></tbody></table>
+
+14 APR 1965
+
+105-82555
+
+CONFIDENTIAL
+
+SECRET
+
+557-5976906-000
+
+ORIGINAL FILE
+
+155
+
+5373
+
+14+ VR
+
+5373
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET
+
+SECRET

@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_18731.png
+
+Convert to MarkdownNY 134-3315
+
+d. Amount Paid for Services and Expenses by Month: (e)
+
+Not applicable.
+
+e. Type and Number of Meetings Attended, and Other Activity: (c)
+
+Not applicable.
+
+f. Number of Written and Oral Reports Submitted: (g)
+
+Sixteen oral reports on the following dates:
+
+* 9/12/58 (Initial interview)
+* 11/6/58
+* 11/12/58
+* 12/4/58
+* 12/10/58
+* 12/31/58
+* 1/9/59
+* 1/12/59
+* 1/22/59
+* 1/26/59
+* 2/12/59
+* 2/24/59
+* 2/25/59
+* 3/12/59
+* 3/25/59
+* 4/8/59
+
+g. Information Furnished of Unusual Value: (h)
+
+On 11/6/58, the informant furnished information with respect to the conduct of VLADIMIR P. SUSLOV at a reception at the Czechoslovak UN Delegation, on 10/10/58. The informant advised that SUSLOV became quite intoxicated during this reception, and while intoxicated became amorous with two females present, one of whom is Secretary to the Pakistan Ambassador to the UN. Subsequent to this interview, informant was able to ascertain this female's name as BERTHA SAUNDERS. (i)
+
+-2-

@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_18074.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum,
+
+TO : A. H. Belmont
+
+FROM W. C. Sullivan,
+
+DATE: 10-18-63
+
+SUBJECT: COMMUNISM AND THE NEGRO MOVEMENT--A CURRENT ANALYSIS
+
+Re my memo in captioned matter 10-15-63, attached, in which it was recommended and approved that we disseminate the prepared analysis regarding communist activities and the Negro movement on a select basis to individuals and agencies set forth in referenced memo.
+
+Attached are appropriate letters of transmittal for dissemination. Through them, we are sending a copy of the analysis to the Attorney General, with a copy each for the Deputy Attorney General, and the Assistant Attorneys General Burke Marshall and J. Walter Yeagley. In addition, a copy is being sent as an enclosure to attached letters for P. Kenneth O'Donnell, Special Assistant to the President; the Honorable Dean Rusk, Secretary of State; the Honorable John A. McCone, Director of Central Intelligence Agency; the Honorable Robert S. McNamara, Secretary of Defense; Rear Admiral Rufus L. Taylor, Director of Naval Intelligence; Major General Alva R. Fitch, Assistant Chief of Staff for Army Intelligence; and Brigadier General John S. Samuel, Director of Special Investigations for the Air Force.
+
+RECOMMENDATION:
+
+That the attached letters be approved and sent.
+
+Enclosures
+
+CDB:jej
+(10)
+
+1 - Mr. Belmont
+1 - Mr. Evans
+1 - Mr. Sullivan
+1 - Mr. Baumgardner
+1 - Mr. Bland
+1 - Mr. D. J. Brennan
+1 - Mr. R. W. Smith
+1 - Section tickler
+1 - Mr. C. D. Brennan
+
+REC 7:
+
+5 OCT 23 1963
+
+This document is prepared in response to your request and is not for dissemi-nation outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.
+
+78 NOV 6 1963
+
+NEW 88326 DocId:32989653 Page 72

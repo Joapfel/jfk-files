@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_15374.png
+
+Convert to MarkdownMemorandum to Mr. Belmont
+
+Re: INTELLIGENCE COVERAGE OF
+FRIENDLY FOREIGN COUNTRIES.
+65-63113
+
+the event we received information indicating a foreign intelligence representative was acting outside the scope of his approved activities. We asked that information of this latter nature be called to our attention if received by one of the recipient agencies to assist us in eliminating unnecessary inquiries and concentrating on matters deserving the most attention. We requested all six agencies to furnish us the identities of any foreign intelligence representatives then in the U. S. and to provide us on a continuing basis data with respect to future arrivals of such representatives, both in instances where working arrangements existed and otherwise. (65-63113-1 through 4)
+
+Since our letters of 11-18-54, all six of the recipient agencies have furnished data of the nature requested. A current analysis of these data has shown that information provided by National Security Agency, while quite complete, has been of little operational value. This is occasioned by the fact that National Security Agency is not an operational agency and foreign government representatives entering the U. S. to consult with National Security Agency personnel would normally be expected to be connected with service agencies of their own governments; however, the data furnished by National Security Agency are of value. The names of the individuals furnished are indexed in our files and, if the coverage discussed in categories two and three below produces information indicating that any of these foreign intelligence representatives become operational contrary to the purpose for which they arrived in this country, we are in a position to identify them through indices checks and establish immediately the identity of the U. S.-sponsoring agency. Since November, 1954, we have learned of no instances through this procedure wherein foreign representatives admitted to this country under National Security Agency sponsorship have become operational or in any other manner created a security threat of investigative interest to the Bureau.
+
+In many instances the information furnished by the five agencies other than National Security Agency has related to foreign intelligence personnel on an operational level and frequently is submitted under the name of the individual concerned. This is reviewed by the responsible supervisor, who checks files and takes any required action; such as, instituting investigation, referral to field for

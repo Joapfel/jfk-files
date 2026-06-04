@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_16349.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+
+June 5, 1969
+
+One 7.65 mm caliber Mauser semiautomatic pistol, serial number 394266, with seven loaded rounds in the magazine and one loaded round in the chamber was recovered from the middle desk drawer of the Black Panther Office of the Day Desk in the middle second floor office of the Black Panther Headquarters.
+
+On 6/4/69 at Chicago, Illinois File # CG
+
+by SA DAVID M. FRAHM Date dictated 6/4/69
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

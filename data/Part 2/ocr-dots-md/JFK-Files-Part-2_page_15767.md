@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_15767.png
+
+Convert to MarkdownFAYE:
+
+I say the armed forces I'm talking about
+the Department of Justice and the state
+police authorities.
+
+All right, Mr. GARRY, because you weren't
+here I guess to defend BOBBY SEALE and that's
+a whole rigamarole here with the conspiracy 8
+which is now the conspiracy 7 and so on, that
+BOBBY SEALE is now in jail serving a contempt
+of court sentence. How are you going to
+fight that action?
+
+GARRY:
+
+We intend to appeal that of course. We
+think that the conduct of the court, when
+the facts are known, are going to be shown
+it was barbaric, atrocious and not in the
+highest standards of American judicial
+process. When a judiciary forgets its
+role and becomes a partisan, then we don't
+have justice as we understand it in America.
+While we're talking about justice, I have
+some great criticisms to make of American
+justice. I don't want to compare it with
+any other country because I've never been

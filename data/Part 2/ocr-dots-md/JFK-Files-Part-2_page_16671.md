@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_16671.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+
+Date 1/16/70
+
+A shed attached to the residence located at 2335 West Monroe Street, was examined for the purpose of noting and recording any bullet and/or shot holes.
+
+Pertinent measurements and trajectory patterns were taken. No projectiles were recovered and no items were removed from the premises.
+
+On 1/6-7/70 at Chicago, Illinois
+
+File # 
+
+by SA
+
+Date dated 1/12/70
+
+This document contains weather recommendations and conclusions of the FBI. It is the property of the FBI and may not be distributed outside your agency. NW-88613.Dqold:32199554

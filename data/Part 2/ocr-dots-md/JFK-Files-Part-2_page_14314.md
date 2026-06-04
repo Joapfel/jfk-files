@@ -1,0 +1,457 @@
+# JFK-Files-Part-2_page_14314.png
+
+Convert to MarkdownThe Attorney General
+
+May 16, 1975
+
+Director, FE
+
+REQUEST OF HARRY E. WACHTEL ON
+BUTALF OF ESTATE OF MARTIN LUTHER
+KING, JR., CONGRESSMAN ANDREW YOUNG,
+AND DELUGATE WALTER S. FAUNTRAY
+
+1 - Mr. Wannall
+1 - Mr. Moore
+1 - Mr. McDermott
+1 - Mrs. Metcalf
+1 - Mr. Hotis
+1 - Mr. Mintz
+
+At a conference on March 10, 1975, Harry H. Wachtel, attorney representing the estate of Dr. Martin Luther King, Jr., Mrs. Coretta King, and her children, accompanied by Congressman Andrew Young and District of Columbia Delegate Walter E. Fauntroy, advised representatives of the Attorney General and the FMI of their great concern for the privacy of Mrs. King and her children. They were concerned that inquiries into an investigation conducted by the FMI of Dr. Martin Luther King, Jr., could reveal information of a derogatory nature concerning Dr. King. They indicated an interest in undertaking appropriate measures to limit the possibility of public disclosure of derogatory information that may be produced as a result of taxations such as those that might be made by the Senate Select Committee on Intelligence Activities and requested that they would be advised should such inquiries be made by a committee of Congress.
+
+Subsequent to that meeting, the FMI has learned that the Senate Select Committee on Intelligence Activities is conducting interviews with an effort to develop information concerning an FBI investigation of Dr. Martin Luther King, Jr. In view of this fact, this matter is being brought to your attention in order that you may determine what action you feel is appropriate in response to the requests made by Mr. Wachtel on behalf of Mrs. King, her children, and the estate of Dr. Martin Luther King, Jr., which requests were joined in by Congressman Andrew Young
+
+SEE NOTE PAGE 2
+
+JAM:mfd
+(12)
+
+NOT RECORDED
+
+46 MAY 30 1975
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+Assoc. Dir. ____
+Dop. AD Adm. ____
+Dop. AD Inv. ____
+Asst. Dir.: 
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+Director Soc'y ____
+
+8 MAY 30 1975
+
+NWD88298 DoCId:32989532 Page 65
+
+ALL INFORMATION CONTAINED
+'EREIN IS UNCLASSIFIED
+DATE2 20-8/1 BY: Spyskemch
+ORIGINAL FILE N
+
+V
+
+S
+
+M
+
+A
+
+T
+
+E
+
+N
+
+O
+
+R
+
+E
+
+N
+
+S
+
+U
+
+N
+
+O
+
+C
+
+L
+
+A
+
+S
+
+I
+
+S
+
+T
+
+A
+
+M
+
+E
+
+N
+
+D
+
+V
+
+A
+
+L
+
+E
+
+R
+
+A
+
+H
+
+E
+
+L
+
+I
+
+Y
+
+P
+
+R
+
+O
+
+W
+
+A
+
+R
+
+S
+
+P
+
+O
+
+N
+
+G
+
+A
+
+R
+
+O
+
+R
+
+N
+
+E
+
+L
+
+O
+
+P
+
+R
+
+O
+
+N
+
+D
+
+G
+
+H
+
+R
+
+O
+
+F
+
+O
+
+N
+
+O
+
+P
+
+R
+
+O
+
+N
+
+D
+
+G
+
+H
+
+R
+
+O
+
+F
+
+O
+
+N
+
+O
+
+P
+
+R
+
+O
+
+N
+
+D
+
+G
+
+H
+
+R
+
+O
+
+F
+
+O
+
+N
+
+O
+
+P
+
+R
+
+O
+
+N
+
+D
+
+G
+
+H
+
+R
+
+O
+
+F
+
+O
+
+N
+
+O
+
+P
+
+R
+
+O
+
+N
+
+D
+
+G
+
+H
+
+R
+
+O
+
+F
+
+O
+
+N
+
+O
+
+P
+
+R
+
+O
+
+N
+
+D
+
+G
+
+H
+
+R
+
+O
+
+F
+
+O
+
+N
+
+O
+
+P
+
+R
+
+O
+
+N
+
+D
+
+G
+
+H
+
+R
+
+O
+
+F
+
+O
+
+N
+
+O
+
+P
+
+R
+
+O
+
+N
+
+D
+
+G
+
+H
+
+R
+
+O
+
+F
+
+O
+
+N
+
+O
+
+P
+
+R
+
+O
+
+N
+
+D
+
+G
+
+H
+
+R
+
+O
+
+F
+
+O
+
+N
+
+O
+
+P
+
+R
+
+O
+
+N
+
+D
+
+G
+
+H
+
+R
+
+O
+
+F
+
+O
+
+N
+
+O
+
+P
+
+R
+
+O
+
+N
+
+D
+
+G
+
+H
+
+R
+
+O
+
+F

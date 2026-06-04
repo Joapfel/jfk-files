@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_8976.png
+
+Convert to MarkdownA las 8:30 AM, del 2 de Octubre de 1963, se le designó el asiento número 12 a nombre H.O. LEE, el día primero de octubre para el pago la cuenta del hotel incluida esa noche y alrededor de las 6:30 AM, salió del hotel para dirigirse a la terminal de Transportes del Norte y a bordar el autobús 332, asiento número 12 de la línea mencionada que salió a las 8:30 AM, con destino a Laredo, México, En la Ciudad de Monterrey, los pasajeros del autobús 332, transbordaron a un vehículo de relevo número 373 de la misma línea, que continuó hacia Laredo esa noche a las 10:00 PM. Cuando el autobús llegó a Laredo, México, autoridades mexicanas de Migración detuvieron a Oswald, debido a supuestas irregularidades en sus documentos turísticos, Oswald se fue de las autoridades mexicanas cuando regresó al autobús, después de que las autoridades migratorias habían checado sus documentos. Hizo comentarios negativos de las mismas.
+
+Siendo aproximadamente la 1:35 AM, del día 3 de octubre del mismo año, Oswald cruzó el puente internacional para dirigirse a Dallas, Texas, a donde arribó ese mismo día.
+
+Se sabe que el expediente de Lee Harvey Oswald, existe en la Dirección General de Servicios Migratorios de la Secretaría de Gobernación y esta clasificado como confidencial.
+
+## 23 noviembre de 1963
+
+Con relación a Rubén Durán Navarro, quien fue detenido hoy en las calles de Heródoto No. 14-7 lugar donde fueron detenidos Silvia Tirado de Durán y su esposo Horacio Durán Navarro se tiene conocimiento de los siguientes:
+
+Rubén Durán Navarro expresó ser originario de los Angeles, California, casado con Betty Cerratos, tener 38 años de edad, encontrándose en trámite su solicitud de nacionalidad mexicana, su oficio es decorador y esta empleado con su hermano Horacio Durán Navarro en un despacho que este último tiene en las calles de Veracruz 42 en esta ciudad y con teléfono 14-10-31. En 1960 se paso para Miami y visitó Cuba en donde permaneció 2 días y posteriormente se dirigió a Petesburgo, donde realizó un trabajo de decoración, hace aproximadamente un año visitó una exposición de pinturas en las calles de Tokio 63 en esta capital, lleva amistad con el General José de Jesús Clark Flores, a quien le ha

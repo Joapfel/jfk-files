@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_14313.png
+
+Convert to MarkdownMemorandum to Mr. Adams
+
+Re: Request of Harry H. Wachtel, etc.
+
+RECOMMENDATION:
+
+That attached memorandum to the Attorney General advising him of the concern of the King family and of the request that they be advised of congressional inquiries be approved and sent.

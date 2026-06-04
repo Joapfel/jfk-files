@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_16216.png
+
+Convert to MarkdownCONFIDENTIAL
+APPENDIX
+
+2
+
+BLACK PANTHER PARTY (BPP)
+PEORIA, ILLINOIS
+
+BLACK PANTHER PARTY (BPP)
+
+The national headquarters of the BPP is located at 3106 Shattuck Avenue, Berkeley, California. Branches have been established at various locations throughout the United States.
+
+C O N F I D E N T I A L
+A P P E N D I X
+
+NW 88613 DocId:32199554
+Page 1713
+
+- 6 -

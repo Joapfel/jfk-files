@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_14481.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : MR. W. C. SULLIVAN
+
+FROM : W. A. BRANIGAN
+
+SECRET
+
+DATE: 8/21/61
+
+CLASSIFIED BY 10/26/61 L'Allier
+DECLASSIFY ON: 25X JFK
+
+SUBJECT: BUREAU INFORMANT 200 POLICY
+
+Reference is made to memorandum Stewart to Branigan 8/8/61 re same subject wherein it was requested a conference be arranged between Special Agents Sam J. Papich, W. D. Stewart and an interested CIA representative to explain to CIA specific type of "Project Hunter" material we desire.
+
+On 8/17/61 Special Agents (Sam J. Papich, W. D. Stewart) and CIA representatives, (James Hunt, John Mertz and Thomas Chalmers) conferred at CIA concerning the "Project Hunter." The observation set out on pages 2, 3, and 4 of the referenced memorandum were individually discussed with the CIA representatives. They appeared very pleased with our analysis of the Hunter material received and were also pleased with the attention afforded it. (Mr. Hunt), at the conclusion of the conference, requested we furnish a set of guides, similar to our afore-mentioned observations discussed, for his people. Attached is a blind memo for CIA setting forth material in which we have no interest and a specific interest.
+
+In order to better understand the coverage of Bureau Informant 200, the writer specifically asked the following questions and received the following answers:
+
+1. Is the informant covering all traffic or selected traffic?
+
+Answer: Approximately 500,000 items pass to and from each month. Approximately 200,000 items are screened. The other 300,000 escape screening because they pass through at hours when no one is on duty. Of the 200,000 items screened, approximately 1,200 items receive "close" scrutiny.
+
+2. What portion of the informant's coverage are we getting?
+
+Answer: Of the 1,200 items closely scrutinized, we are receiving approximately 250 to 300 monthly.
+
+WDS:ct
+Enclosure
+(105-93089)
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED EXCEPT WHERE SHOWN OTHERWISE.
+
+SECRET
+
+25 AUG 29 1961
+
+61 SEP 1 1961
+
+SECRE

@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_16121.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+TO : SAC, CHICAGO
+
+FROM : SA ROY MARTIN MITCHELL
+
+SUBJECT: BLACK PANTHER PARTY (BPP)
+
+DATE: OCT 9 1969
+
+who has furnished reliable information in the past, will not testify but attests to the accuracy of the following information.
+
+: advised on the dates indicated:
+
+10/3/69
+
+LYNN FRENCH, MANUEL DOZIER,
+
+These persons will more or less represent the BPP at an alleged rally sponsored by SDS at the International Harvester Plant, 2600 South California, 10/9/69.

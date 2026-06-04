@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_15578.png
+
+Convert to MarkdownLR
+
+FRED HAMPTON stated that the demonstrations by the BPP at the Federal Building in Chicago during the trial are for the purpose of telling the facts to the people. He stated that BPP is somewhat allied with the faction of MIKE KLONSKY, current member of the National Interim Committee (NIC) of the SDS and current leader of the Revolutionary Youth Movement II (RYM II) faction of SDS, but that the current leadership of SDS, called the Weatherman faction, are a "bunch of damn fools".
+
+HAMPTON claimed that the BPP is the vanguard in this country whereupon CHARLENE MITCHELL questioned this statement stating that actually the vanguard are those who work on the basis of a Marxist-Leninist outlook.
+
+Further discussion brought out that preparations are being made by the BPP to circulate petitions for community control of the local police departments and that a survey indicates that the people in the ghetto are very enthusiastic over this idea.
+
+Concerning the establishment of a National Defense Organization, CHARLENE MITCHELL stated that prospects are good for calling a national conference of such an organization where possibly branches of the organization can be established in the major cities in this country. In this connection, MITCHELL spoke of ANGELA DAVIS, a California CP professor at the University of California at Los Angeles (UCLA) where attempts had been made to dismiss her, but that people rallied to her support and that such broad defense support should also be established for BOBBY SEALE, Chairman, National BPP, who is one of the defendants in the anti-riot trial in Chicago.

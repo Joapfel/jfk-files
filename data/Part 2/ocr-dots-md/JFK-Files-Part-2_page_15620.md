@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_15620.png
+
+Convert to MarkdownBLACK PANTHER PARTY
+
+Chief Cimino stated that following the service, Hampton's body would be removed to O'Hare International Airport for shipment to Haynesville, Louisiana. The body will be transported on Delta Airlines Flight 359, departing Chicago at 9:15 a.m., December 10, 1969, arriving Shreveport, Louisiana, at 1:30 p.m., the same date.
+
+advised on the same date that students staged walkouts at both the Crane High School, 2245 West Jackson Boulevard, and the DuSable High School, 4934 South Wabash, in memory of Hampton. No incidents were reported, nor were any arrests made.
+
+also advised that students at Parker High School, 6800 South Stewart Avenue, with one hundred per cent Negro enrollment, and Hirsch High School, 7740 South Ingleside, with ninety-nine per cent Negro enrollment, held memorial assemblies for Fred Hampton, deceased chairman of the Illinois Chapter BPP, on December 10, 1969. No incidents were reported, nor were any arrests made.
+
+further advised that Orr High School, 1040 North Keeler Avenue, which has a sixty-four per cent white enrollment, was the scene of fist fights on December 10, 1969, between Negro and white students. The school closed at 12:20 p.m., following the arrival of the Chicago PD at the school. The PD calmed down the situation at Orr High School and it remained calm. No serious injuries or property damage was reported. At least six students were arrested.
+
+On December 9, 1969, a Maywood, Illinois, Police Department source advised funeral services for Hampton commenced at approximately seven p.m. at the above Baptist Church and were concluded at 8:55 p.m. The attending crowd numbered approximately 3,000, and included youth gang members, as well as militant black and white leaders.

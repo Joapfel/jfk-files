@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_17439.png
+
+Convert to MarkdownInformant made available copies of 6 flyers being passed out by the BPP in Maywood. These were entitled "Ten Point Program," "6 Week Vocabulary Test," "Responsibilities of Private," "8 Points of Attention," "Attention - Letter from Black Panther Acting Deputy Minister of Education," and "Definitions - Minister of Education."
+
+Informant advised on 3/17/69:
+
+FRED HAMPTON has obtained through DON WILLIAMS, the old 5 & 10¢ Store at 17th and Madison. The BPP will set up a suburban headquarters here at the beginning of April.
+
+DON WILLIAMS is not a member of the BPP.
+
+Informant advised on 3/19:
+
+There was a meeting at ROBERT BRUCE's house, 28 South 15th Avenue on 3/17/. Present were HAMPTON, BRUCE, WALTER ALLEN, PETER HAMMACK, WESLEY WADE, "BOBBY" CARSWELL, TYRONE GLADNEY, WILMA and MATHEW ANGRUM, three unknown males from Argo-Summit.
+
+One JIMMY PERRY (Pb) from La Grange was at the meeting and it appears he will try to gather a group of youths from La Grange to join the BPP.
+
+Informant subsequently advised on 3/19:
+
+A meeting was held at BRUCE's house on 3/19 with the same individuals present as on 3/17 except there were also present three girls and four boys from Argo-Summit. There also were two older men in their late 20's or early 30's present, but their identities are unknown.
+
+The discussion at both meetings was about the rules and regulations of the B.P.P. and the ways to attract new members.
+
+FRED HAMPTON left the meeting early, alone.
+
+ROBERT BRUCE and WALLER ALLEN each have a .32 caliber pistol in their cars.

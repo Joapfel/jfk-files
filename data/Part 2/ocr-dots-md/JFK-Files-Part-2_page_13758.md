@@ -1,0 +1,62 @@
+# JFK-Files-Part-2_page_13758.png
+
+Convert to MarkdownUNITED STATE
+# MENT
+
+Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENSTUDY 75
+
+DATE: 6-19-75
+
+Assoc. Dir.
+Dep. AD Aftn.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Legal Coun.
+Plan. & Eval.
+Spec. Inv.
+Training
+Telephone Rm.
+Director Sec'y
+
+Reference is made to my memo dated 6-2-75, that a luncheon with staff members of the Senate Select Committee Task Force conducting the inquiry into the FBI be held with the Director.
+
+Mr. Kelley approved the recommendation, and Mr. Elliff, Domestic Task Head for the Committee, was asked whether he would like to attend a luncheon with Mr. Kelley and he indicated he would, but would have to check with the Committee. Mr. Elliff was advised that the Director's schedule permitted a luncheon be held on June 24, 1975, at 12:30 p.m..
+
+Mr. Elliff stated on 6-18-75, he will attend the luncheon along with the following staff members of the Committee: Lester B. Seidel, John Smith, William Ricks, Michael Epstein, and Mark Gitenstein.
+
+In addition to the staff members, Section Chief William O. Cregar, Inspector John B. Hotis, and SA Paul V. Daly will attend. Assistant Director John A. Mintz will also attend luncheon.
+
+RECOMMENDATION:
+
+For information.
+
+1 - Mrs. Metcalf
+1 - Mr. Wannall
+1 - Mr. Cregar
+1 - Mr. Mintz
+1 - Mr. Hotis
+1 - Mr. Daly
+
+PVD:eek
+(8)
+
+REC-26
+
+3 JUN 15 1975
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan

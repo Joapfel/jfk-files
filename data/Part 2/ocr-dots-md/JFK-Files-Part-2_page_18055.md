@@ -1,0 +1,60 @@
+# JFK-Files-Part-2_page_18055.png
+
+Convert to Markdown62-116395
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/18/75 BY SPARKLEY
+
+September 15, 1975
+
+U. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF FBI SPECIAL AGENT (SA)
+FRED J. CASSIDY BY SSC STAFF MEMBER
+
+Set out below is information concerning an interview of FBI SA Fred J. Cassidy by a Staff Member of the SSC. Cassidy is currently assigned to FBI Headquarters. The details of the interview are as furnished by Cassidy.
+
+On advance notice from Mr. Loch Johnson, SSC Staff Member, Cassidy was advised that he was to be interviewed on August 20, 1975. Cassidy was informed by the Legal Counsel Division of the FBI that he was being released from any applicable employment agreement for purposes of the SSC interview concerning the Huston Plan. It was explained to Cassidy that he had a right to counsel; however, the FBI was unable to provide private counsel. Cassidy was also told that there were certain privileged areas concerning which he would not be required to answer questions. These areas concern information which might divulge the identities of FBI sources; information relating to sensitive methods and techniques; information which might adversely affect ongoing FBI investigations; and information which had originated with other agencies, including foreign intelligence agencies. Cassidy was informed that if a question arose during the interview in one of these areas, he had the privilege, before replying, of consulting with an FBI representative.
+
+The following is a first-person statement prepared by
+Cassidy reporting the interview of him.
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+1 - 67-
+
+SFP:bkbkb
+(10)
+
+ORIGINAL AND ONE COPY TO AG
+
+(Personnel file SA Fred J. Cassidy)
+
+SEE NOTE PAGE 6
+
+MAIL ROOM [ ] TELETYPE UNIT [x] ENCLOSURE
+
+GPO 954-546
+
+NW 88326 DocId:32989653 Page 53

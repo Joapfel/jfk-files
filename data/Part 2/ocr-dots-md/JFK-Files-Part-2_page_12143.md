@@ -1,0 +1,58 @@
+# JFK-Files-Part-2_page_12143.png
+
+Convert to MarkdownSECTION 107. [INTERNAL] SECURITY INFORMANTS AND CONFIDENTIAL SOURCES; 107
+[AND FOREIGN COUNTERINTELLIGENCE ASSETS]
+
+TABLE OF CONTENTS
+
+"SECRET - NO FOREIGN DISSEMINATION"
+
+[[PART II. FOREIGN COUNTERINTELLIGENCE (FCI) ASSETS
+
+| | Page |
+|---|---|
+| **W. Foreign Counterintelligence (FCI) Assets** | |
+| 1. Definitions................................................... | 25 |
+|   a. Informative Assets (IA)................................. | 25 |
+|   b. Operational Assets (OA)............................... | 25 |
+| 2. Objectives of OA............................................ | 25 |
+| 3. Individuals to be considered as OAs.................... | 26 |
+| 4. Restrictions.................................................. | 26 |
+| 5. Development of U. S. Military or other U. S. Government Personnel.................................................... | 27 |
+| 6. Development of personnel of foreign diplomatic establishment or international organization.................. | 28 |
+| 7. Development.................................................... | 28 |
+| 8. Opening of asset files...................................... | 28 |
+| 9. Maintenance of FCI asset files and indices............... | 28 |
+| 10. Symbol numbers............................................. | 29 |
+| 11. Captions.................................................... | 29 |
+| 12. Background inquiries and interviews.................... | 29 |
+| 13. Authority to operate assets............................ | 30 |
+| 14. Contact with assets...................................... | 30 |
+| 15. Confidentiality of relationship........................... | 30 |
+| 16. Reliability of assets...................................... | 31 |
+| 17. Assignment of pseudonyms.................................. | 31 |
+| 18. Recording of information received from asset.......... | 31 |
+| 19. Channelization of information of intelligence value received from the asset....................................... | 32 |
+| 20. Passage of documents, written report or oral information, to hostile foreign intelligence................... | 32 |
+| 21. Oral information received from debriefing asset......... | 34 |
+| 22. Coverage of OA meets with foreign intelligence officer, co-opted worker, or agent............................. | 34 |
+| 23. Disinformation............................................. | 35 |
+| 24. OA cover story............................................. | 35 |
+| 25. Receipt of money or property by OA...................... | 35 |
+| 26. Payments to FCI assets - either OA or IA.................. | 35 |
+| 27. Evaluation of FCI assets................................... | 36 |
+| 28. Income tax returns......................................... | 37 |
+| 29. Receipt of unemployment compensation.................... | 37 |
+| 30. Monthly and quarterly letters........................... | 37 |
+| 31. Corrective action on false information................... | 38 |
+| 32. Discontinuance of assets................................... | 38 |
+| 33. Discontinued assets....................................... | 39 |
+| 34. Classification............................................. | 39 ] |
+
+"SECRET - NO FOREIGN DISSEMINATION"
+
+2a
+
+10-15-74
+
+NW 88321 DocId:32989529 Page 1477

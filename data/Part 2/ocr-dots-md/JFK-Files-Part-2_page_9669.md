@@ -1,0 +1,80 @@
+# JFK-Files-Part-2_page_9669.png
+
+Convert to Markdown3
+
+UNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGA
+WASHINGTON, D.C. 20537
+
+10-11-73 680
+
+IDENTIFICATION DIVISION
+
+The following FBI record, NUMBER 405 550 E , is furnished FOR OFFICIAL USE ONLY.
+
+<table><thead><tr><th>CONTRIBUTOR OF FINGERPRINTS</th><th>NAME AND NUMBER</th><th>ARRESTED OR RECEIVED</th><th>CHARGE</th><th>DISPOSITION</th></tr></thead><tbody><tr><td></td><td>#12025 7-11-63, L BE & L Ross burg tools poss D/V March 6, 1964, Mercer County Workhouse nine months; Probation two years, consecutively to first charge to run concurrently on other charges on charge of September Term 1962 Indictment Nos. 428-62 Assault w/dangerous Weapon; 431-62 Breaking and Entering w/intent to Steal; 472-62 Possession of Burglars Tool 473-62 Breaking, Entering & Larceny and 474-62 Larceny.</td><td></td><td></td><td></td></tr><tr><td colspan="5">SUPPLEMENT<br/>24</td></tr></tbody></table>
+
+Information may be obtained from this file if data furnished by PDR for use as contributors. Where final disposition is not shown or further explanation of charge is desired, communicate with agency contributing those fingerprints.
+Declarations indicated by * and/or has been on fingerprint in FBI files but are listed only as iniv. to indicate leads as being possibly identical with subject of this record.
+
+U S. GOVERNMENT PRINTING OFFICE, 1963 O - CTR
+
+NW 88296 DocId:32989574 Page 578
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O-CTR
+
+U.S. GOVERNMENT PRINTING OFFICE, 1963 O

@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_18569.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D. C. 20535
+
+Addressee: SENATE SELECT COMMITTEE 28
+
+☐ LTR ☑ LHM ☐ Memo ☐ Report dated 7/25/75
+
+U.S. Senate Select Committee on Intelligence
+Caption of Document: Activities. Re: SCOPE. (Relet
+From captioned Committee 7/14/75 concerning
+nature of SCOPE.)
+
+Originating Office: FBI
+
+Delivered by: Richard Taylor Date: 8-8-75
+
+Received by:
+
+Title:
+
+Return this receipt to the Intelligence Division, FBI
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/13/75 BY SP 2 ALM 12/66
+
+#MDR16
+
+NWW 88326 DocId:32989627 Page 167

@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_14411.png
+
+Convert to MarkdownTHE WHITE HOUSE
+WASHINGTON
+
+April 16, 1975
+
+MEMORANDUM FOR: DR. JOHN M. CLARKE
+Associate Deputy to the DCI
+for the Intelligence Community
+
+FROM: JAMES A. WILDEROTTER
+
+On Monday, April 14, the White House provided copies of the "Colby Report" (including the annexes) and the attached list of documents to the Senate Select Committee as classified documents. NSCIDs 4, 5, and 6 -- as well as the obsolete and superseded NSCIDs corresponding to them -- were not provided to the Committee.
+
+SECRET ATTACHMENT
+
+ENCLOSURE

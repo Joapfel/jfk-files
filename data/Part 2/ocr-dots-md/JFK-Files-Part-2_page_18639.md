@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_18639.png
+
+Convert to MarkdownFBI
+
+Date: 5/27/70
+
+Transmit the following in
+
+(Type in plaintext or code)
+
+Via AIREL
+
+CONFIDENTIAL
+(Priority)
+
+CLASSIFIED BY SP-2 ALM/716
+DECLASSIFY ON: 25X.1,6
+
+TO: DIRECTOR, FBI (105-10828)(5) REC/12
+
+FROM: SAC, WFO (105-524)(P)
+
+EMBASSY OF ISRAEL
+WASHINGTON, D. C.
+IS - ISRAEL
+(00:WFO)
+
+(s) Enclosed for the Bureau are eight copies of an LHI dated and captioned as above. Informant mentioned in LHI is WF 568-S*; LHM has been classified "Secret-No Foreign Dissemination" and has been marked "(S)".
+
+A call to telephone 225-4551 received the reply, "Senate press" which could possibly indicate that the KRAFT mentioned in LHM is in fact JOSEPH KRAFT, the columnist. (5)
+
+Informant has previously furnished information indicating that ANNON SPIENAK is employed in the Economic Office, Embassy of Israel. (5)
+
+② Bureau (Enc. 8) ENCLOSURED
+
+1 - WFO
+
+CAM:vm
+(3)
+
+REC-112 105-10821 2012
+
+CONFIDENTIAL
+(S)
+
+17 MAY 28 1970
+
+NAT. D/M. SJC
+
+U.S. GOVERNMENT PRINTING OFFICE: 1968 O - 316-099 (11)

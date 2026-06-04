@@ -1,0 +1,81 @@
+# JFK-Files-Part-2_page_15207.png
+
+Convert to MarkdownUNITED STATES
+Memora
+
+TO : Mr. A. H. Belmont
+FROM : Mr. S. B. Donahoe
+SUBJECT: INTELLIGENCE COVERAGE OF FRIENDLY FOREIGN COUNTRIES
+
+DATE: February 7, 1961
+
+In view of recent information received indicating Morocco has accepted Soviet military aid and will soon request the United States and France to remove its military bases from Morocco, the Department of State is being requested to grant clearance for us to institute a program to develop sources and informants in Moroccan diplomatic establishments in the United States.
+
+Recent newspaper publicity has indicated a definite interest by the Soviets and Communist China in infiltrating various countries of Africa, which at the present time are in the throes of various nationalist moves. On 11-16-60 an article appeared in the Madrid daily newspaper "A.B.C." which stated the Moroccan Government had announced the acceptance of Soviet military aid. On 11-22-60 the same newspaper reported a Moroccan military mission was departing Morocco for Moscow on that date to discuss Soviet military aid. The same newspaper reported on the same date that a good-will mission from Morocco had been received by Khrushchev in Moscow. A United Press International release dated 12-5-60 stated that Morocco may soon demand removal of all United States and French military bases on her territory.
+
+Madrid papers in October, 1960, related that Moroccan labor unions, which are communist infiltrated, planned to send representatives to Cuba and the same unions are urging the Moroccan Government to disband the Royal Moroccan Army and set up Castro-type militias.
+
+OBSERVATIONS:
+
+In view of the political developments in Morocco as indicated above, it is believed that we should institute a program to develop sources and informants at Moroccan diplomatic establishments in the United States for the purpose of obtaining intelligence data of assistance to the United States Government concerning Moroccan activities in the United States. Such sources will be in a position to furnish us with information indicating possible Moroccan activities within our investigative jurisdiction.
+
+EX 104
+
+REC-22
+
+5/29 EX 104
+
+1 - 62-77787-235 (Moroccan UN Delegation, New York City)
+1 - 62-103546 (Moroccan Consulate, New York City)
+1 - 105-62915 (Moroccan Embassy, Washington, D.C.)
+
+FEB 24 69
+
+5/1
+
+NW 88613 DocId:32199554
+Page 704
+
+UNRECORDED COPY
+
+Tolson
+
+Mohr
+
+Pursons
+
+Belmont
+
+Callahan
+
+Conrad
+
+DeLoach
+
+Malone
+
+McGuire
+
+Rosen
+
+Trotter
+
+Evans
+
+W.C. Sullivan
+
+Tele. Room
+
+Ingram
+
+Gandy
+
+1961-05-28 11:14
+
+65-63/13-230
+
+REMEMBER THE AMISTADERS' JOURNAL OF THE MARCH 2, 1960
+
+THE NEW YORK CITY DEMOCRAT said in his column:
+
+"Mr.belmont and Mr. Donahoe were present for much of the meeting, and I know that the meeting brought about some results that are to be very valuable to the country."

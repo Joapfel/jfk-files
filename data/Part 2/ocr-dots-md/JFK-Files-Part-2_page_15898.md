@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_15898.png
+
+Convert to MarkdownIn Reply, Please Refer to
+File No. CG 157-1291
+
+Title BLACK PANTHER PARTY
+CHICAGO DIVISION
+
+Character RACIAL MATTER - ORGANIZATION
+
+Reference Report of SA ALAN R. STEPHENS,
+dated and captioned as above.
+
+All sources (except any listed below) whose identities
+are concealed in referenced communication have furnished reliable
+information in the past.
+
+This document contains neither recommendations nor opinions of the FBI. It is the property
+of the FBI and is licensed to your agency; it and its contents are not to be distributed outside
+your agency.

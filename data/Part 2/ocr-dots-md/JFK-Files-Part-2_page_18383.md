@@ -1,0 +1,59 @@
+# JFK-Files-Part-2_page_18383.png
+
+Convert to MarkdownFRANK CHURCH, IDAHO, CHAIRMAN
+JOHN C. TOWER, TEXAS, VICE CHAIRMAN
+
+PHILIP A. HART, MICH.
+WALTER F. MONDALE, MINN.
+WALTER D. HUDDLESTON, KY.
+ROBERT MORGAN, N.C.
+GARY HART, COLO.
+
+HOWARD H. BAKER, JR., TENN.
+BARRY GOLDWATER, ARIZ.
+CHARLES MC C. MATHIAS, JR., MD.
+RICHARD S. SCHWEIKER, PA.
+
+WILLIAM G. MILLER, STAFF DIRECTOR
+FREDERICK A. O. SCHWARZ, JR., CHIEF COUNSEL
+CURTIS R. SMOTHERS, MINORITY COUNSEL
+
+United States Senate
+
+SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+
+(PURSUANT TO S. RES. 21, 94TH CONGRESS)
+
+WASHINGTON, D.C. 20510
+
+September 17, 1975
+
+ALL FBI INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 9/17/75 BY AJM/JCL
+
+Michael E. Shaheen, Jr., Esq.
+Special Counsel for Intelligence Coordination
+Office of the Deputy Attorney General
+U. S. Department of Justice
+Washington, D. C. 20530
+
+Dear Mike:
+
+As Mark and you discussed today on the phone,
+it was the Committee's intent in Fritz Schwarz' letter to
+you of September 4, 1975, that the FBI, as well as the
+Internal Security Division, provide information pertaining
+to the individuals and organizations listed in that letter.
+Of course this letter and the August 29 letter are modified
+by my letter of September 10. Furthermore, this request is
+of the highest priority and therefore we want to be kept
+informed of its progress on a daily basis. Perhaps the
+best approach would be to have Bureau representatives con-
+tact either Mark Gitenstein or Art Harrigan immediately so
+that we might prioritize the names listed in the September
+4 letter.
+
+ENCLOSURE
+
+NW 88326 DocId:32989653 Page 381

@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_18546.png
+
+Convert to Markdownunless the identity of the individual as an informant or potential
+informant has already been made known to the Committee, or unless the
+Attorney General, the Chairman and Vice Chairman, jointly agree on the
+limited disclosure of such identities to the Chairman and Vice Chairman.
+
+(d) An exception to (a) and (b) above is made for information which would identify persons, as sources, who have provided or continue to provide information to the FBI, and as to whose identity the FBI has undertaken an obligation of confidentiality. In order to preserve that obligation of confidentiality, the FBI will withhold access to this class of information, unless the identity of the individual as a source has already been made known to the Committee, or unless the Attorney General, the Chairman and Vice Chairman, jointly agree on the limited disclosure of such identities to the Chairman and Vice Chairman.
+
+(4) Those materials to which the staff has access may be reviewed and studied in Room 417L of the Hoover Building and such notes may be taken as deemed appropriate by the Staff.
+
+(5) The Committee staff shall select from these materials to which access is herein provided, those materials which it deems pertinent to the Committee's inquiries and necessary for delivery to the Committee's offices.

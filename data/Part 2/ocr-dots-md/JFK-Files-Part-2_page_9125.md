@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_9125.png
+
+Convert to MarkdownSECRET ARMY ORGANIZATION
+
+Name (FNU) Stan
+Address From San Diego CALIF.
+Race White
+Sex Male
+Nationality American
+Height 6'1"
+Weight 225 pounds
+Hair Short, brown
+Eyes Hazel
+Build Stocky
+Miscellaneous Wears small goatee
+
+Name (FNU) Si
+Address From Seattle, Washington
+Race White
+Sex Male
+Nationality American
+Height 6'1"
+Weight 235 pounds
+Hair Short, light brown
+Eyes Blue
+Build Pudgy
+Miscellaneous Wears glasses
+
+Source furnished the following four items of printed material, which had been prepared before the meeting for recruitment purposes and for dissemination to prospective
+
+CONFIDENTIAL

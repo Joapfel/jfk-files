@@ -1,0 +1,63 @@
+# JFK-Files-Part-2_page_16163.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+
+2/26/70
+
+Date:
+
+At 6:00 PM, an autopsy was performed on the body of FREDERICK ALLEN HAMPTON by Dr. CHARLES PETTY, pathologist from Dallas, Texas. The autopsy was performed at the Veterans Administration Hospital, Shreveport, Louisiana. Those in attendance, according to a list provided by JOSEPH KEANE, U. S. Marshal, Shreveport, Louisiana, were as follows:
+
+For the State of Illinois:
+
+1) THOMAS BETT, Assistant State Attorney
+
+2) NICK MOTHERMAN, Assistant State Attorney
+
+3) Dr. JERRY KEARRIS, Cook County Coroner's Office
+
+4) Dr. WILLIAM NAVRELLA, Pathologist
+
+For the HAMPTON family:
+
+1) FRANCIS E. ANDRICH, Attorney
+
+2) Dr. DAVID SPEAR, Pathologist
+
+3). Dr. EARL CALDHEW, Pathologist.
+
+For the U. S. Government:
+
+1) Dr. CHARLES PETTY
+
+2) JERRIS LEONARD, Assistant Attorney General,
+Civil Rights Division, U. S. Department of Justice
+
+3) JAMES TURNER, Deputy Assistant Attorney General.
+U. S. Department of Justice.
+
+4) DONALD E. WALTER, U. S. Attorney, Shreveport,
+Louisiana
+
+5) JAMES GARDNER, Deputy U. S. Marshal.
+
+2/16/70 Shreveport, Louisiana
+
+On
+
+of
+
+File
+
+SA PATRICK R. COONEY
+
+By
+
+Date Dated,
+
+5/26/70
+
+This document contains references to recommendations or conclusions of the IBI. It is the property of the IBI and may not be distributed without your consent.
+
+NW 88613 DocId:32199554
+Page 1660

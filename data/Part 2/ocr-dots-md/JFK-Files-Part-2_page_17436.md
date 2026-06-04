@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_17436.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : SAC, CHICAGO
+
+FROM : SA JAMES W. GERBLICK
+
+SUBJECT: RACIAL TENSIONS
+MAYWOOD, ILLINOIS
+1969
+RM
+
+DATE: 3/18/69
+
+Where appropriate, the information has been dis-seminated to local authorities.
+
+Informant advised on March 7, 1969:
+
+FRED HAMPTON said he will institute a 6 week training course for BPP members to begin in a couple of weeks. This will be to help the members learn the rules, their rights when arrested and maybe some training in the use of firearms. He will have three teachers. HAMPTON also said he wants to get some of the new rapid fire army rifles.
+
+JWG/

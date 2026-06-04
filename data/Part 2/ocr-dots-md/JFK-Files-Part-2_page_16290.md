@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_16290.png
+
+Convert to MarkdownIn Reply. Please Refer to
+File No.
+
+UNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+Chicago, Illinois
+
+July 7, 1969
+
+BLACK PANTHER PARTY
+
+For characterization of the Black Panther Party (BPP),
+see the appendix pages.
+
+On July 2, 1969.
+
+advised that the BPP would hold a rally at Lincoln Park on North Avenue in Chicago on July 4, 1969, which would begin at approximately 4:00 p.m. Sources stated that David Hilliard, Chief of Staff, National Black Panther Party, Berkeley, California, would be among various speakers to participate in this rally.
+
+advised that allegedly plans were being made for lesser rallies to be held at Washington Park and possibly Garfield Park, both Chicago, on July 4, 1969.
+
+advised that the Panthers had been ordered to keep the rallies orderly and not to attempt any confrontation with the police, and in addition, were told not to bring any firearms.
+
+advised on July 7, 1969, that the Illinois BPP held a rally at Lincoln Park in Chicago, which began at approximately noon on July 4, 1969. Approximately 500 persons were in attendance at this rally.
+
+Bob Rush, Deputy Minister of Defense, Illinois BPP, spoke briefly concerning his recent conviction for unlawful use of weapon and his upcoming appeal. He also told about plans by the BPP to attempt to take Captain William Buckley, Head of the Chicago Police Department Gang Intelligence Unit, to court, charging him with conspiracy to suppress political independence. Rush also spoke briefly on BPP policies and programs.
+
+This document contains neither recommendations nor conclusions of the Federal Bureau of Investigation. It is the property of the Federal Bureau of Investigation; it and its contents are not to be distributed outside your agency.

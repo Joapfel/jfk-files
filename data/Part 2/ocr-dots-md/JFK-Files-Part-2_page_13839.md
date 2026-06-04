@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_13839.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: Senstudy 75
+62-116395
+
+packages were reviewed by Section Chief William O. Cregar and Special Agents Leon F. Schwartz and Thomas J. McNiff in Room 4123 JEH.
+
+Material contained therein runs the entire gambit from CIA cooperation, and in some instances financing of Bureau sensitive operations in foreign intelligence field, to CIA involvement in domestic affairs including cooperation with police departments and other Federal agencies. In all, it was determined that approximately 174 pages of the document contain information which in some respect has a bearing on this Bureau's operations.
+
+Pertinent page numbers were identified to Mrs. Mowitt and she is taking this Bureau's request for these pages back to CIA Headquarters for the purpose of obtaining authorization to furnish this Bureau with copies of the pages in which this Bureau is interested. Mrs. Mowitt advised that she would insure our request in this respect received expeditious attention and she will furnish us with the results at the earliest time.
+
+RECOMMENDATION:
+
+None. Above submitted for information. You will be kept advised of developments.

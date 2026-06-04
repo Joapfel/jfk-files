@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_14963.png
+
+Convert to Markdownthis installation and details of same were included in our
+letter to the Acting Attorney General 12/29/66.
+
+At the specific request of former Attorney General
+Kennedy, a microphone surveillance (trespass required) was
+conducted on the Washington, D. C., hotel room of James E.
+Haggerty (former attorney for James Riddle Hoffa) during
+period 8/7/61, through 8/11/61. This coverage was for the
+specific purpose of identifying an alleged "contact" of
+Hoffa's in the Justice Department, whom Kennedy thought
+Haggerty would meet in Washington. Information concerning
+this coverage was included in our letter to the Acting
+Attorney General dated 12/29/66. In addition, in response
+to a letter from Vinson dated 12/29/66, we furnished the
+Acting Attorney General copies of logs prepared in connection
+with this coverage by memorandum dated 1/6/67.

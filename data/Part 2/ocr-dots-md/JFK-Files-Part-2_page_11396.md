@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_11396.png
+
+Convert to MarkdownIII. Persons active in Communist Party underground
+
+IV. Any other security index subject whose activities, past or present, regardless of membership in a revolutionary organization, clearly and unmistakably depict the individual as a potential saboteur, espionage agent, or disruptionist in the event of an emergency
+
+(c) Recommendations for and removal of detcom designation
+
+I. Approval of SAC
+Designation of each subject for detcom program or removal of any subject therefrom must be personally approved by SAC, or in offices having more than 1,000 security index subjects by SAC, ASAC, or Bureau-approved security supervisor. If individual subjects being recommended for inclusion in security index are also being recommended for detcom, above-required approval by SAC may be handled in conjunction with requirements specified in 87D 7b (4).
+
+II. [When form FD-122 is submitted recommending either tabbing for detcom or deletion of such tabbing, attach an additional page setting out a brief summary of facts upon which the recommendation is based.]
+
+III. [Deleted]
+
+(d) Administrative procedures for handling detcom program
+Take following action to assure that security index cards for subjects tabbed detcom for priority of apprehension will be readily available for emergency action in your office:
+
+I. Consider each security index case for detcom tabbing whether subject's security index card is filed in geographical, special, or unavailable sections of security index.
+
+II. Geographical section
+Divide geographical section of security index into two distinct parts.
+
+(A) Part I of geographical section shall include only security index cards for subjects who are tabbed detcom under instructions noted above.
+
+(B) Part II of geographical section shall contain security index cards for all subjects that are NOT tabbed detcom.
+
+(C) In offices having two separate and distinct geographical sections, i.e., geographical-employment and geographical-residence, as provided under 87D 7b (6) herein, each such geographical section must be broken into parts I and II, in line with foregoing, so that cards tabbed detcom will be separated and maintained apart from other security index cards.
+
+(D) No colored tabs necessary on cards of detcom subjects in geographical section.
+
+III. Alphabetical section
+
+(A) One security index card for each subject is to be filed in alphabetical section in strict alphabetical order with no other breakdown whatsoever.
+
+(B) Affix a colored tab to each security index card designated for detcom in alphabetical section to readily identify such subjects.
+
+(C) Detcom tabbings approved at Bureau will be shown on security index cards forwarded to field by code letters "DC" in first line on cards and by word "DETCOM" stamped in large red letters.

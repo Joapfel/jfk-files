@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_9729.png
+
+Convert to MarkdownThe following is a true copy of a tape sent to the F. I. Hand the news services in early April 1974.
+
+The new Revolutionary Army herewith immediately declares that the present Government of the United States of America is an illegal confederation of aliens and enemies of the people of America.
+
+The National Revolutionary Army (NRA), its officers and followers henceforth Seceed from the United States of America until such time we may be able to restore a Government of the people, by the people and for the people and oust the enemy aliens now in control.
+
+Through force and violence and what ever means available to the NRA, we will, totally, forcefully and quickly restore dignity to our American Republic.
+
+We have adopted the American Constitution in its original form, revised the Bill of Rights and eliminated or. revised all of the Amendments to the Constitution.
+
+We have formed a National caucus of hundreds of known and some unknown political leaders whose present identities will remain anonymous, who at the time the enemy aliens perish or relinquish control, will immediately be brought before the American voter to seize popular control of the vacant political offices.
+
+We of the N.A. are the people. We speak for the people. And we will violently eliminate Americas enemies with the haste of a speeding bullet.
+
+the N.A. has chosen for its spokesman a well known adversary for the return of America to a Natural Social Order. The Revolutionaries of the N.R.A. are ordered to maintain secrecy in every way possible and to avoid detection by the enemy, but are ordered not to deny their association if at such time they are detected by the enemy or captured.
+
+All N.R.A. members and associates are instructed that if captured they are governed by the laws as set forth at the Geneva Conference for captured soldiers and prisoners of war:
+
+This is by all means a Declaration of War. The enemies of White America will fall like flies at a "Raid" party.
+
+WHITE POWER
+
+FRANK DRAGER AND BILL CARROL
+
+84
+
+NWW 88296 DocId:32989574 Page 638 •

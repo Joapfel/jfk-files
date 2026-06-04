@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_13697.png
+
+Convert to MarkdownCOPY RETAINED IN
+PERSONNEL RECORDS UNIT
+
+# Attention:
+
+Jack Harrington
+Office of the Legal Counsel
+
+Remytelcall 5/16/75
+
+David E. Todd
+
+ENCLOSURE
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 12-01 BY LLAUYER
+
+[REC-L
+
+17 MAY 21 1975
+
+PERS. REC. UNIT
+
+LEGAL COUNSEL
+
+84 JUN 3 1975.
+
+NW 88296 DocId:32989588 Page 222

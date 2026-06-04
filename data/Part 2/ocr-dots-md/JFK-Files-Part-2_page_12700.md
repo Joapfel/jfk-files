@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_12700.png
+
+Convert to MarkdownDetermine during security investigations whether subjects have any close relatives in armed forces. Promptly call such associations to attention of appropriate military intelligence services, together with pertinent data, including reports, on subjects involved. Evaluation of these associations lies entirely within province of military intelligence services, but Bureau must disseminate this information immediately upon receipt. Advise Bureau by letter concerning any subversive contacts or information developed concerning military personnel, including statement as to local dissemination and enclosing LHM setting out subversive data.
+
+**b. Aliens and naturalized citizens**
+
+Furnish information concerning aliens and naturalized citizens which might have bearing on their deportation or denaturalization to Immigration and Naturalization Service (INS). If in doubt, disseminate.
+
+**c. Employees of or persons having regular access to key facilities or employees of plants having contracts with military services**
+
+See instructions in this section concerning individuals employed in or having access to key facilities.
+
+**d. Employees of public utilities (including state and municipal facilities) which are not on key facilities list or otherwise in item c, above, and facilities which are or may become engaged in manufacture of materials vital to national defense**
+
+Disseminate locally to Army and other intelligence services if their interest is apparent.
+
+**e. Individuals on inactive duty who are members of or hold commissions in reserve branches or National Guard**
+
+Disseminate locally to appropriate military intelligence service.
+
+**f. Seamen and subjects employed in maritime industry, including long-shoremen and water-front employees**
+
+Disseminate locally to Coast Guard and, when circumstances dictate, to other interested intelligence agencies, including NISO.
+
+**g. Employees of Federal Government within purview of Executive Order 10450**
+No dissemination of reports in security of Government employees cases may be made in field. If, however, subject is employed in key facility, furnish copies of reports bearing dual character, "Security of Government Employees; Security Matter - C," to appropriate intelligence agencies of armed services. Instructions regarding dissemination to Defense Industrial Security Clearance Office, Defense Supply Agency, Columbus, Ohio, appear in this section of this manual under individuals employed in or having access to key facilities - dissemination. Instructions regarding all phases of FBI responsibilities under Executive Order 10450 are in section 19, volume II, of this manual.
+
+**h. Individuals who own property or reside in immediate vicinity of installation or other premises under cognizance of branch of armed services**
+
+Disseminate locally to intelligence service of military branch involved.
+
+**i. Airmen issued certificates by Federal Aviation Administration (FAA)**
+FAA issues certificates to airmen, defined as persons in command or acting as pilot, mechanic, or member of crew in navigation of aircraft while under way; individuals directly in charge of inspection, maintenance, overhauling, or repair of aircraft, aircraft engines, propellers, or appliances; and any individual serving in capacity of aircraft dispatcher or air-traffic control tower operator. Furnish to Bureau subversive data concerning such persons by report or LHM. In cover communication, recommend such data be furnished to FAA. Dissemination will be made only at Bureau. For additional instructions regarding dissemination to FAA, see Manual of Rules and Regulations, part II, section 5.

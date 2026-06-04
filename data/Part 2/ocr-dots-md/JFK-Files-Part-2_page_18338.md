@@ -1,0 +1,67 @@
+# JFK-Files-Part-2_page_18338.png
+
+Convert to MarkdownThe Attorney General
+
+2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+1 - Mr. E. W. Larson
+
+September 22, 1975
+
+Director, FBI
+
+U. S. SENATE SELECT COMMITTEE
+ON INTELLIGENCE ACTIVITIES (SSC)
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 09/17/95 BY AP/LANKley
+
+Reference is made to letter dated September 19, 1975, from Senator Frank Church, Chairman, SSC, to Mr. Paul V. Daly, Office of Legal Counsel, FBI. This communication enclosed a list of documents which the SSC may decide to declassify for public hearings on the Huston Plan. The FBI was requested to advise whether any of the documents required appropriate excisions prior to the declassification.
+
+On September 21, 1975, Messrs. William O. Cregar and Elmer W. Larson of the FBI met with Mr. John Elliff of the SSC Staff. During this meeting, the documents, which were enclosed with the September 19, 1975, letter, were carefully reviewed and excisions were made and mutually agreed to.
+
+This is to advise that the FBI has no objection to the declassification and use of the documents for public hearings providing the excisions mutually agreed to on September 21, 1975, are in effect.
+
+62-116395
+
+1 - The Deputy Attorney General
+
+Attention: Michael E. Shaheen, Jr.
+Special Counsel for
+Intelligence Coordination
+
+EWL:1hb
+(9)
+
+NOTE:
+
+The documents were reviewed by SAs Cregar and Larson on Sunday, September 21, 1975, and the excisions agreed upon by Mr. Elliff. On September 22, 1975, Mr. Elliff again contacted us and advised that the excisions were agreeable to the Committee. He also requested that we acknowledge the letter of September 19, 1975, through Mr. Shaheen of the Department who would then GPO 954-546
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.: 
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+
+EWC EMAIL ROOM ☐ TELETYPE UNIT ☐
+
+RECD MAIL REC'D ___________ FINAL COPY ___________ Page 35 final reply to the Committee.
+
+HW 88326 DoD:32700 F4/81a

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_18716.png
+
+Convert to MarkdownNY 134-3315
+
+offered to pay all of this employee's expenses while he visited Russia, if this employee would pay his expenses to Russia. Informant advised that this individual met BORISSOV at the UN while BORISSOV was employed there in the Department of Public Information. Since BORISSOV'S return to Russia this employee was apparently in contact with him according to informant. Informant got this information secondhand and was not able to furnish this individual's name until 7/7/59. On 7/21/59 a Research Analyst on the staff of the CBS, appeared at the NYO and furnished information concerning his association with PETR BORISSOV, known Soviet Agent. This is identical with the individual about whom informant furnished information and he is now being considered for development as an informant or double agent. He is going to Russia.
+
+On 6/3/59, as a result of his contacts with Soviet Nationals, informant was able to shed some light on the rather sudden departure of VADIM BOGOSLOVSKI, Protocol Officer at the Soviet UN Delegation. Through his contacts among Soviet Nationals he learned that BOGOSLOVSKI was having family troubles and on 8/11/59, he learned that BOGOSLOVSKI did not expect to return to the US because of these family troubles.
+
+On 7/7/59, informant advised that IMRE HOLLAI, Counselor of the Hungarian Delegation to the UN, was spending a vacation at Cape Cod in Massachusetts. HOLLAI is a known Hungarian Agent and this was the first information to come to the attention of this office concerning his travel to Cape Cod. This information resulted in appropriate investigation of HOLLAI in Cape Cod.
+
+h. Approximate Number of Persons on Whom Informant Furnished Coverage and Their Importance
+
+Approximately 28 individuals connected with the UN or Delegations to the UN. Many of these are known agents of the Soviets or the Satellites.

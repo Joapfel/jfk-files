@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_18999.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+He stated he and his wife visited the Soviet ship "Bikal" on four or five occasions while it was in Hong Kong and they entertained two Russian engineers, F. Gouriev and Pavel Dmitriev on one occasion in their home after having met them aboard the Russian ship.
+
+Jaffe also advised that he and Brian Slevin, Chief of the Special Branch, Hong Kong Police, never saw eye-to-eye. He said Ted Cavan of British Intelligence, Special Branch, Hong Kong mentioned to Jaffe that Jaffe was being recalled by ABC for security reasons. Jaffe indicated he was unable to understand why ABC had recalled him from Hong Kong.
+
+On September 17, 1968, Jaffe advised he probably would be assigned to Washington, D.C., and would depart for Washington the latter part of the week. He said that while in Washington, D.C., during the week of September 9, 1968, he contacted Oleg Kalugin and Vladimir Bogachev. RUSSE K. D.C.
+
+On November 14, 1968, Jaffe approached some agents of the Washington Field Office who were conducting a surveillance in the area of his residence (but not on Jaffe) and indicated he would like to have contact with the FBI in Washington, D.C., in the same manner as he had previously had contact in New York. He indicated he was in contact with Soviets in Washington, D.C., and would report on them.
+
+On February 5, 1969, Jaffe telephonically contacted an agent of the New York Office and advised that ABC was in receipt of two copies of a book entitled "America's Unelected Rulers of the Council of Foreign Relations", written by Phoebe Greene/Courtney of New Orleans, Louisiana. According to Jaffe, this book lists a number of people who are members of the Council on Foreign Relations who have subversive backgrounds. Jaffe is one of the individuals listed in this book. According to Jaffe, another section accuses Jaffe of being a member of the American League for Peace and Democracy. Jaffe indicated he is quite incensed over the information contained in this book concerning him and he connected the information in the book with his recent recall from Hong Kong by ABC. Jaffe said he has never been a member of the American League for Peace and Democracy; however, he has been a member for many years of the Council on Foreign Relations. Jaffe said he understands that Courtney and her husband reside in New Orleans and are considered to be erratic individuals in the area of anti-Communist activity.
+
+SECRET
+22
+
+NW 88326 DocId:32989704 Page 293

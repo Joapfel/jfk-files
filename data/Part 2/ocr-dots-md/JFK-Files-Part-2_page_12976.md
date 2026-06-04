@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_12976.png
+
+Convert to MarkdownUNITED STATESGC RWNMENT
+Memorandum
+
+TO : Mr. DeLoach MDR-16
+
+DATE: January 14, 1966
+
+FROM : A. Rosen
+HEREIN IS CLASSIFIED
+DATE 10/20/66 BY SEA A/M
+
+SUBJECT:
+
+EUGENE THOMAS, ET AL;
+VIOLA LIUZZO, AKA, ET AL - VICTIMS
+CIVIL RIGHTS - ELECTION LAWS
+
+1 - Mr. DeLoach
+1 - Mr. Rosen
+1 - Mr. Malley
+1 - Mr. McGowan
+1 - Mr. Hines
+
+In response to the Director's inquiry concerning correspondence relating to the demands made by Gary Thomas Rowe, prior to his testifying in the Federal trial of the three subjects responsible for the shooting of Mrs. Viola Liuzzo, the following items are attached:
+
+(1) The teletype from Inspector J. L. McGovern dated 11-23-65, setting forth the substance of the discussion of John Doar, Assistant Attorney General, Civil Rights Division with Gary Thomas Rowe concerning demands made by Rowe. The teletype indicates that McGovern was present during Doar's discussion with Rowe and on page six of the teletype McGovern states that although Bureau personnel were present throughout the interviews between Doar and Rowe, Bureau personnel made no assurance, promises, nor commitments to him.
+
+(2) A copy of the teletype from Mr. McGovern dated 11-23-65, which sets forth in detail the demands made by Rowe. Because of the urgency of relaying Rowe's demands to the Department, a Xerox copy of the teletype was prepared deleting the transmittal data at the top of page one and the last paragraph on page one continuing to the top of page two wherein Rowe expressed his confidence in Bureau personnel and felt he had been let down by the Department and does not trust its representatives.
+
+(3) A copy of the memorandum as prepared from McGovern's teletype of 11-23-65 as actually furnished to Mr. John Doar on 11-24-65.
+
+REC-10844-2560/- 
+
+(4) Attached is a memorandum from Mr. Rosen to Mr. Belmont dated 11-24-65 recording the discussion of Supervisor J. William Hines with Mr. Doar wherein he was furnished the memorandum (Item 3) and the demands were discussed.
+
+JWH:cry (6)
+
+CONTINUED - OVER
+
+17 JAN 18 1966
+
+NW 88296 DocId:32989550 Page 117.

@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_16314.png
+
+Convert to Markdown# WHO HAS THE POWER?
+
+1. Who likes the U.S. Government?
+Those who it helps.
+
+2. Who does it help?
+(Owners of big businesses- banks, factories, chain stores.)
+
+3. What are these people called?
+Boss. Capitalist. Parasite. Bloodsucker. Ruling class.
+
+4. How many capitalists are there?
+Damn few. The richest 1% owns 76% of all stock. The top 99 families alone are worth 37 Billion Dollars.
+
+5. What does that mean to us?
+Since these rich pigs have the money, they can say where it goes, who gets it, and how much they get.
+
+6. What are the results of this?
+I out of 3 Americans is underfed.
+Not enough schools.
+Not enough houses.
+Not enough medical care.
+Blothen air and poisoned water.
+Wars that kill our youth, widow our women, and turn half the world against us: Vietnam. Korea. Dominican Republic.
+
+7. Why do we blame the capitalists?
+Look who holds the power in this country. Look where our "leaders" spend our money. These multi-millionaires made their fortunes off other men's sweat and labor. They didn't give a damn about us then, when they took the profits. They don't share the wealth that we produced. They make the decisions; we do the work and pay the taxes.
+
+Something must be done. The Young Patriots Organization is about doing it. All Power to the People!
+
+Young Patriots
+We Fight for Freedom!
+1421 Wilson
+
+NW 88613 DocId:32199554
+
+Page 1811

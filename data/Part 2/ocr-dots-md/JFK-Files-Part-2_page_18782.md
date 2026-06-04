@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_18782.png
+
+Convert to MarkdownUnited States Department of Justice
+Federal Bureau of Investigation
+
+New York, New York
+
+November 7, 1958
+
+CONFIDENTIAL
+
+Re: Also Known As
+
+On November 6, 1958, an informant, who is in a position to furnish reliable information, advised that he has known subject for quite some time. He originally met subject at a party at subject's home. He was invited to this party by Nikolai S. Kalinin, another Soviet, with whom he is acquainted.
+
+Informant said that he has seen subject quite often at the United Nations Secretariat in New York City. Some time ago, subject asked Informant if he could ascertain the feeling of American business and American industry toward Red China and apprise subject of this feeling. Informant told subject at that time, that subject should be able to ascertain this for himself by reading American newspapers and magazines. Informant said that subject is interested in economics and is quite well versed in this field.
+
+Informant advised that he had not seen subject for several months, but on November 5, 1958, he had lunch with him. During lunch, subject asked Informant what he thought of the recent elections in the United States. Informant told subject that it was his opinion that the Republican Party was beaten on their national and foreign policy. Subject told Informant that he likes the way Informant analyzes situations, and he would like Informant to write his analysis of the American political situation and make this analysis available to him, so that he in turn can make this analysis available to Soviet
+
+ENCLOSURE
+
+NW 88326 DocId:32989704 Page 76

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_15972.png
+
+Convert to MarkdownOn February 17, 1969, one DAN STERN, believed associated with the Garfield Organization, a West Side Chicago community organization, whose purpose was to re-habilitate, improve, and stabilize the Garfield community, but which is now defunct, gave a check in the amount of $650.00 to the Chicago BPP Chapter. The check may have represented contributions from a number of individuals residing in the Garfiled area on Chicago's West Side.
+
+2/28/69)
+
+It was learned on April 18, 1969, that Chicago BPP Chapter received $2,500.00 from the Students for a Democratic Society (SDS), additional details unknown.
+
+4/27/69)
+
+Rent on space utilized by Chicago BPP Chapter is $150.00 a month, which is paid by RUSH.
+
+2/27/69)
+
+On December 18, 1968, BOBBY LEE RUSH, FRED HAMPTON, and HENRY ENGLISH, all Chicago BPP leaders, opened a checking account at Sears Bank and Trust Company, Homan at Arthington Streets, Chicago, Illinois, 60624. Checking account was opened under the name Black Panther Party, 2350 West Madison Street, Chicago, Illinois, 60612.
+
+The agreement RUSH, HAMPTON, and ENGLISH signed with the bank stipulated any checks drawn against the Black Panther account must contain the signatures of two individuals. The only persons authorized to sign checks were RUSH, HAMPTON, or ENGLISH.
+
+On December 18, 1968, an initial deposit was made to this account in the amount of $301.00. On December 31, 1969, the account had a balance of $10.00 which represented
+
+NW 88613 DocId:32199554 Page 1469

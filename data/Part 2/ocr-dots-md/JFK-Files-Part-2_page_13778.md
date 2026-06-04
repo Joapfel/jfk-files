@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_13778.png
+
+Convert to MarkdownThe Committee's inquiry focuses on the following specific areas:
+
+1. FBI Internal Security Intelligence Operations
+
+The Committee seeks to determine the nature and purpose of FBI intelligence operations directed at foreign intelligence activities and subversive or extremist activities within the United States. It has been alleged that the scope of FBI intelligence investigations is too broad and has extended to legitimate political activities.. Consequently, the Committee must examine how the FBI's responsibilities have been defined.
+
+Responsible staff: Senior staff
+Task Force leader
+Mark Gitenstein
+
+2. The FBI and the U. S. Intelligence Community.
+
+The Committee seeks to determine what have been the policies and procedures for coordination between the FBI and other agencies in the U. S. intelligence community. There have been occasions in the past where friction between the FBI and other agencies has produced serious dissatisfaction within the U. S. intelligence community. The purpose of this inquiry is to evaluate the adequacy of past and present coordinating mechanisms.
+
+Responsible staff: Senior staff
+Task Force leader
+Mark Gitenstein

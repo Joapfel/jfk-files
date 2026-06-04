@@ -1,0 +1,65 @@
+# JFK-Files-Part-2_page_18886.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : DIRECTOR, FBI (105-28333) -C-
+
+FROM : SAC, WFO (105-8906)
+
+SUBJECT: SAMUEL ADASON JAFFE
+IS-CH
+
+DATE: 3/22/71
+
+SECRET
+
+ReBulet to Legat Hong Kong 2/17/71 and WFClet
+to the Bureau , aka
+IS-CH".
+
+It is noted that captioned subjects relationship
+with SZETO Kung, a new Chinese news agency representative
+in Hong Kong, is set forth in ReWFOlet. Additionally, upon
+interview on 2/25/71, JAFFE readily volunteered information
+re his correspondence with SZETO as set forth Hong Kong
+letter dated 1/22/71. JAFFE added that he had continued to
+correspond with SZETO, hoping that this will in some way
+facilitate his possible travel to the China Mainland in the
+near future.
+
+In regards to further contact with JAFFE, WFO will,
+(UACB), continue the policy as outlined in ReWFOlet.
+
+EX-11
+
+③ Bureau
+(1- Legat Hong Kong) (105-6699)
+1- WFO
+
+REC 12
+
+LJT:cf
+
+(4)
+
+4 MAR 1971
+
+Copy to
+by routing slip for
+
+☑ Info ☐ action
+Date
+
+NO APN
+By H.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+classified by 6136
+NAM INSC SEC-
+9-03
+YTD
+Date of Classification:
+NAI
+
+NFW88326 DocId:32989704 Page 180 Buy

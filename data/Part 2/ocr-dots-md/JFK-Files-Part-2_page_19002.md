@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_19002.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+VII. FBI Interviews of Jaffe in March, 1969
+
+At the request of a Special Agent, Jaffe voluntarily appeared for interviews at the Washington Field Office of the FBI on March 20, 21, and 27, 1969.
+
+March 20, 1969
+
+At the inception of the interview on March 20, 1969, Jaffe was advised that it was realized he had been in contact with FBI Agents in New York since 1958, and had furnished information concerning his contacts with Soviet nationals. He was advised that interviewing agents were interested in his contacts with Soviet nationals in Russia and in the United States, and since he had not been fully debriefed concerning his tours of duty in Moscow and Hong Kong, interviewing agents desired to obtain his comments concerning these assignments including his comments concerning his relationship with "Slava" in Moscow, which he previously reported to the FBI in 1963. His comments concerning contacts with Soviets since his return from Hong Kong were also solicited.

@@ -1,0 +1,125 @@
+# JFK-Files-Part-2_page_12743.png
+
+Convert to Markdown# INDEX FOR SECTION 87D
+## References are to page.
+
+Contacting
+
+faculty members, 25
+informants, 34,73
+registrars, 25
+students, 25
+superiors of faculty members, 25
+
+Contacts
+
+during investigation, 25
+of foreign establishments, 25
+
+Content
+
+and appearance
+of reserve index cards, 43
+of security index cards, 48
+of reports, 74
+Corroboration, 37
+Cover pages, 77,78
+Criteria for inclusion in security
+index, 44a, 45
+
+Cuban
+
+activity in support of Cuban regime, 45a
+aliens, 45a, 45b, 81a
+contacts with, factor in determining
+dangerousness of
+individual, 44a
+pro-Cuban activity, 45b
+special section, 49,53
+tabbing cards, 45b, 64
+
+Dangerousness
+
+definition of, 44
+determination of, 44
+Nation of Islam membership,
+46
+Death of Security index subject,
+60
+Defected Subjects, 42
+Defectors to Sino-Soviet-bloc
+countries, 57
+
+Defense
+
+Industrial Security Clearance
+Office, 65,81
+Supply Agency, 65,81
+Definitions, 19
+of dangerousness, 44
+of top functionaries, 66
+Delimitations Agreement, 64, 82
+Departmental applicants, inclusion
+in security index or
+reserve index, 70
+Determination of
+dangerousness, 44
+membership and position in labor
+organizations, 29
+Disaffection of U. S. citizens
+abroad, 57
+
+Dissemination
+
+concerning individuals who are
+not within Bureau
+investigative
+jurisdiction, 82
+of letterhead memoranda, 33a, 42c,
+58a, 74, 81, 81a
+
+of reports at SOG, 81a
+in field, 79
+on subjects employed in key
+facilities, 65, 80
+to Defense Industrial Security
+Clearance Office,
+Defense Supply Agency,
+65,81
+to Immigration and Naturalization
+Service, 80, 81a
+to Secret Service, 81, 81a
+addresses business, change in, 58a
+residence, change in, 58a
+closing case, 47, 74
+letterhead memorandum, 57, 81, 81a
+reports, 47, 74, 81, 81a
+stamping reserve index cards, 43
+Documentation of
+letterhead memorandum, 42c, 58a, 78
+reports, 78
+completion of, 78
+
+Employees of
+international organizations, 25
+U. S. Government, 25,70
+dissemination of data re, 80
+Employment, verification of (See
+verification of.)
+Espionage subjects, inclusion
+in security
+index or reserve
+index, 70
+
+Evidence, 37
+desirability of
+admissibility, 29,37
+corroboration, 37
+of knowledge of aims and
+purposes, 29
+of membership or affiliation, 29
+preservation of, 37
+Executive Order 10450, 80, 81
+
+82b
+2-13-70

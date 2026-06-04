@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_13130.png
+
+Convert to MarkdownThe following is a summary of a five page report, dated 7/19/74, furnished by Mary Jo Cook, former FBI informant.
+
+A meeting of the National Defense Committee of the VVAW/WSO was held on 6/7-9/74 at St. Louis, Missouri. Eleven identified individuals attended.
+
+The purpose was to ascertain the feasibility of setting up a National Defense Committee which would be operational throughout the United States. As concerns VVAW/WSO, the meeting sought to advise members that the organization's Defense Committee will take steps to secure the release or acquittals of any members arrested.
+
+A representative from the National Collective in Chicago talked about the Gainesville 8 in a derogatory manner, implying the Government did not try the Gainesville 8 for purely political reasons, but that the leader and some others planned some kind of illegal activity. He also said if there had been no Agent provocateur there would never have been a trial and that the National Collective would not have permitted violent activity. 17 items were handed out, a large portion of which were reprints from national and "movement" publications covering such topics as how to avoid being questioned by the FBI. One of these, on jury selection, is attached.

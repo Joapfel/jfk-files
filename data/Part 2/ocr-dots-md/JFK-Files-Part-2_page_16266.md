@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_16266.png
+
+Convert to Markdownby the State Committee that the Party should borrow some money and make donations to selected organizations. $100 was to go to the Chicago BPP.
+
+6/18/69)
+
+## VIII. CONTACTS WITH CP OR OTHER GROUPS
+
+A meeting of the South Side Club of the CP of Illinois was held on May 28, 1969, and those present were advised that at the recent National CP Convention, members were asked to associate with industry, the BPP and SDS.
+
+6/2/69)
+
+FRANCES GABOW, self-admitted CP member, contacted BOB RUSH to arrange a meeting with RUSH where a gift could be turned over to him.
+
+6/17/69)
+
+ALL MEMBERS OF THE BPP MUST BE CONSIDERED POSSIBLY ARMED AND DANGEROUS IN VIEW OF DESIRE OF ALL MEMBERS TO HAVE FIREARMS.
+
+5/20/69)

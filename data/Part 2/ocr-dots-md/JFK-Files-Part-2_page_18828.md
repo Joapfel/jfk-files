@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_18828.png
+
+Convert to MarkdownSTANDARD FORM NO. 64
+
+Office Men. dum . UNITED
+
+GOVERNMENT
+
+TO : DIRECTOR, FBI (105-28333)
+
+FROM : SAC, WFO (105-8906)
+
+SUBJECT: SAMUEL ADASON JAFFE
+IS - R
+
+DATE: August 21, 1956
+
+advised 8-17-56, that SAM JAFFE (PH), NYC,
+
+contacted employee IVAN F. BUKANOV at Soviet Embassy and asked for his passport. BUKANOV stated he had it but he understood that they (possibly U. S. State Department) would not allow him to travel in China. JAFFE laughed and stated "I think it will work out." He said he would apply for a Soviet visa when he reaches Peking. JAFFE then asked that BUKANOV forward his passport right away to CBS News, but then said it would be best to send it to his home, 200 East 66th Street, Apartment C-110L, New York. BUKANOV said he would send it Special Delivery.
+
+Submitted for information.
+
+2-Bureau
+1-New York (105-8180) (Info) — REGISTERED MAIL
+1-WFO
+LEW/mdb
+(4)
+
+RECORDED - 91
+
+29 AUG 22 1956
+
+ESP/SEC
+
+©0.AUG 22 1956
+
+NW 88326 DocID:32989704 Page 122

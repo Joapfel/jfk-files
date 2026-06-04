@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_14667.png
+
+Convert to MarkdownMAY 1962 EDITION
+GSA GEN. REG. NO. 37
+
+UNITED STATES GOVERNMENT
+Memorandum
+
+TO : Mr. Gale
+FROM : W. V. Cleveland
+
+DATE: 1/3/67
+
+SUBJECT: WILLIAM COURTLEIGH GARDNER
+DEPARTMENTAL APPLICANT
+ASSOCIATE JUDGE
+DISTRICT OF COLUMBIA
+COURT OF GENERAL SESSIONS
+
+The Office of the Deputy Attorney General has requested investigation of William Courtleigh Gardner, who is under consideration for appointment as Associate Judge, District of Columbia Court of General Sessions.
+
+Background data furnished by the Department indicates Gardner, aged 49, was born in Springfield, Ohio. He served in the United States Army from 1942 to 1946. He received his A.B. degree from Howard University, Washington, D. C., in 1948 and his LL.B. degree from Harvard Law School, Cambridge, Massachusetts, in 1951. From 1951 to the present he reportedly has practiced law in Washington, D. C. Gardner listed membership in various bar associations and civic organizations including present membership in the District of Columbia Special Police Trial Board.
+
+Bureau files contain no information identifiable with Gardner.
+
+ACTION:
+
+The investigation of Gardner has been initiated. Appropriate memorandum will be submitted upon its completion.
+
+1 - Mr. DeLoach
+1 - Mr. Wick
+1 - Mr. Gale
+1 - Mr. Cleveland
+1 - Mr. Cornell
+
+JFC:jmm
+(6)

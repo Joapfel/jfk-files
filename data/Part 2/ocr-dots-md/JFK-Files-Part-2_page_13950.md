@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_13950.png
+
+Convert to MarkdownU. S. Senate Select Committee to
+Study Governmental Operations With
+Respect to Intelligence Activities (SSC)
+
+Re: Testimony of Retired FBI
+Special Agent (SA) Robert R.
+Nichols Before SSC Executive Session
+
+called into the office of the Special Agent in Charge and told that advice from the Bureau had been received that the technical surveillance was authorized. When inquiry was made concerning the mechanics of installing the surveillance, Nichols answered that he had nothing to do with this phase. On questioning, Nichols discussed the monitoring plant he had set up with a cover company and Nichols gave the general location of the plant. Nichols indicated that he did not know who actually made the installation and was asked if an Al Miller was the sound man in the office. Nichols acknowledged that he was and when asked if Nichols had monitored the surveillance, Nichols indicated he had on a spot basis.
+
+Nichols was questioned and furnished information of a biographical and personal nature. It included such things as the period of time he was assigned in Atlanta, the period of time assigned security work, the King case and criminal work, as well as when and why he had been transferred from Atlanta to Oklahoma City. Seidel brought up the matter of Nichols' testimony in Houston, Texas, in connection with an FBI case concerning the heavyweight boxer Cassius Clay. On questioning, Nichols acknowledged he had been transferred to Oklahoma City because of what the Bureau considered his deficiencies in his testimony in that case. Seidel inquired as to what actually Nichols had done wrong and Nichols replied that he had received a letter of censure but had thrown it away and cannot now recall the specific deficiencies for which he was censured. He only recalled that his testimony was considered not up to Bureau standards. Seidel then asked, "What are the Bureau standards? Didn't you tell the truth?" Nichols responded that there was no question as to the truthfulness of his testimony, that he had told the truth.

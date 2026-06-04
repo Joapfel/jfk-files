@@ -1,0 +1,98 @@
+# JFK-Files-Part-2_page_18542.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY ATTORNEY GENERAL
+
+WASHINGTON, D.C. 20530
+
+July 21, 1975
+
+TO: Edward H. Levi
+Attorney General
+
+FROM: K. William O'Connor
+Special Counsel for Intelligence
+Coordination
+
+SUBJECT: Proposed Procedures - SSC
+
+<table>
+   <tr>
+    <td>Assoc. Dir.</td>
+   </tr>
+   <tr>
+    <td>Dep. AD Adm.</td>
+   </tr>
+   <tr>
+    <td>Dep. AD Inv.</td>
+   </tr>
+   <tr>
+    <td>Asst. Dir:</td>
+   </tr>
+   <tr>
+    <td>Admin.</td>
+   </tr>
+   <tr>
+    <td>Comp. Syst.</td>
+   </tr>
+   <tr>
+    <td>Ext. Affairs</td>
+   </tr>
+   <tr>
+    <td>Files &amp; Com.</td>
+   </tr>
+   <tr>
+    <td>Gen. Inv.</td>
+   </tr>
+   <tr>
+    <td>Ident.</td>
+   </tr>
+   <tr>
+    <td>Inspection</td>
+   </tr>
+   <tr>
+    <td>Intell.</td>
+   </tr>
+   <tr>
+    <td>Laboratory</td>
+   </tr>
+   <tr>
+    <td>Legal Coun</td>
+   </tr>
+   <tr>
+    <td>Plan. &amp; Eval.</td>
+   </tr>
+   <tr>
+    <td>Spec. Inv.</td>
+   </tr>
+   <tr>
+    <td>Training</td>
+   </tr>
+   <tr>
+    <td>Telephone Rm.</td>
+   </tr>
+   <tr>
+    <td>Director Sec'y</td>
+   </tr>
+  </table>
+
+This draft of "Proposed Procedures" has not been discussed with SSC staff. It is intended to reflect the substance of the discussion had on 7/21, in your office; and incorporates (as underscored) additional language for the purposes suggested by that discussion. Also reflected are the slight editorial changes requested by the SSC in the draft attached to Senator Church's letter of July 18, 1975.
+
+These procedures are designed to permit broad access for SSC staff to FBI materials at the FBI, or delivery of such materials, if appropriate, to the SSC. The present scope of the access is defined by the requests as received; those extant are the subject of superseding redraft under paragraph 1. The prospective scope of requested information is not restricted, but is subject to negotiation as indicated in the amendment to paragraph 1.
+
+The proposed modification of paragraph 3 will be the focus of most controversy. The SSC will probably object to the withholding of sources under paragraph 3(d) (proposed) saying that access to information at the FBI offices is all that is required; that no note on such documents can be removed from the premises of the FBI under procedure 6; and that if they wish to pursue any sources, the appeal provision of existing paragraph 6 should cover it. Since that was the purpose of paragraph 6, and since paragraph 6(a) was designed to focus on any real problem which might arise, the scope of the stated problem under paragraph 3(d) may be seen by the SSC as an attempt to withhold information from the SSC staff, and delay the inquiry (since the Bureau would have to do considerable pre
+
+ENCLOSURE
+
+cc: Deputy Attorney General
+✓ Director, FBI
+Mr. Scalia
+Doug Marvin
+
+REC-26
+EX-101
+
+17 JUL 24 1975
+
+LEGAL COUNSEL
+
+NW 88326 DocId:32989627 Page 140

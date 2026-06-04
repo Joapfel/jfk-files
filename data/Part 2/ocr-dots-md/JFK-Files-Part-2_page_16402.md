@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_16402.png
+
+Convert to MarkdownWhat imperialism fears most
+is the awakening of the Asian,
+African and Latin American
+peoples, the awakening of the
+
+peoples of all countries. We should unite and
+drive U.S. imperialism from Asia, Africa and
+Latin America back to where it came from.
+
+MAO TSE-TUNG

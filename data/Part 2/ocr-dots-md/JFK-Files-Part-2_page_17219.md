@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_17219.png
+
+Convert to MarkdownIt is noted, however, that information in
+the enclosed LHM has been furnished the United
+States Attorney and Secret Service Chicago, and
+Region I 113th Military Intelligence Group, Evanston,
+Illinois, orally.

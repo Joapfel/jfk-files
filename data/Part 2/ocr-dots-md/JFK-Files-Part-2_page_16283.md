@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_16283.png
+
+Convert to MarkdownBLACK PANTHER PARTY (RPP
+
+Captain Samuels stated that no major news media appeared for this conference and the above group of individuals remained in the area approximately 45 minutes then departed. He stated there were no incidents or disturbances in connection with this conference and no future plans were announced concerning these petitions.
+
+Copies of the Letterhead Memorandum are being furnished to the following organizations:
+
+United States Attorney, Chicago, Illinois
+United States Secret Service, Chicago, Illinois
+Region 1, 113th Military Intelligence Group, Evanston, Illinois.
+
+CONFIDENTIAL
+
+NW 88613 DocId:32199554

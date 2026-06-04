@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_16858.png
+
+Convert to MarkdownEmployment
+
+Present Address
+Former Address
+Education
+
+Typist for Security
+Plating Company
+2645 West Fulton
+2350 West Madison
+4317 West Wilcox
+Presently enrolled in
+night school at
+Austin High School
+Mother MARY WASHINGTON
+Address unknown
+Unknown
+None
+
+Father
+Brothers and Sisters
+Previous admitted
+arrests
+
+Arrested by Chicago
+Police Department ear-
+in 1968 was held for =
+few hours and then
+released, reason for
+arrest unknown.
+
+WASHINGTON had the following names and address in her purse:
+
+BARBARA A. SANKEY
+2156 West Monroe
+Chicago, Illinois
+Employment Mc Master-Car Supply Company
+PO Box 4355
+
+Brother WOODS
+DA 8-3123
+At home 344-4540.

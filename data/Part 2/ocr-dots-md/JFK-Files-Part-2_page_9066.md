@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_9066.png
+
+Convert to MarkdownSECRET
+
+(10) INTERNAL SECURITY LEADS IN FOREIGN COUNTRIES
+
+During the 1950's, we gave our Legal Attaches numerous leads stemming from internal security cases in the U. S. In many instances we did not see fit to notify CIA although the Agency always maintained that you could not separate "internal Security" from "counter-intelligence," namely a lead in France pertaining to a communist in the U. S., warranted advising CIA, if not, at least asking the Agency to handle the lead. In the last several years, it is not believed that there is any basis for complaint since we have regularly been notifying CIA concerning subjects of cases who travel abroad. If the Legal Attache is investigating, CIA is notified in order to avoid duplicate efforts. There have been exceptions where we have taken the position that CIA should not be notified because of the sensitivity of the matter. How many such exceptions are known to CIA cannot be established from our files; however, we should bear in mind that when our Legal Attaches investigate, they contact many of the same foreign officials normally contacted by CIA. How many of these foreign officials are CIA informants, or on the Agency payroll, is unknown.
+
+(11) BUREAU OPERATIONS IN CUBA
+
+We operated informants in Cuba when we had a Legal Attache's Office in Havana. Informants reported on activities of communists and other subversives in that country. During the period we operated these informants, we did not coordinate our operations with CIA. We did not advise the Agency that we had such sources. However, in 1960, after Castro came on the scene, it became infeasible to handle certain informants in a secure manner. Approval was granted to turn certain informants over to CIA. What these informants may have subsequently told CIA about past Bureau operations is unknown. This item is being cited in the event CIA had evidence to establish that we had been operational in Cuba and had not coordinated with the Agency pursuant to Directives. (Memorandum Donahoe to Belmont, February 5, 1960, re: "Partido Socialista Popular," 64-200-210, 2377 and Memorandum Frohbose to Belmont, February 3, 1960, re: "Narcisco Tauler Beneficto," 134-8539-4)
+
+SECRET
+
+- 9 -

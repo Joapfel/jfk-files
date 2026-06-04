@@ -1,0 +1,60 @@
+# JFK-Files-Part-2_page_18386.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+SUBJECT: SENSTUDY 75
+
+1 - Mr. Mintz
+1 - Mr. Wannall
+1 - Mr. Cregar
+DATE: 9/11/75
+1 - Mr. Hotis
+1 - Mr. Daly
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Legal/Coy.
+Plan.& Eval.
+Spec. Inv.
+Training
+Telephone Rm.
+Director Sec'y
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/12/85 BYSQALWELLY
+
+David Bushong, who identified himself as a Senate Select Committee Staff Member, telephonically requested on 9/10/75 that the Bureau determine the listing for telephone number 714-756-3388 in Rancho, Santa Fe, California, and the listing for Post Office Box 515 in Rancho, Santa Fe, California. Bushong indicated that the fact he was attached to the Senate Select Committee could be verified by inquiry with Staff Director Bill Miller or Security Officer Ben Marshall of that Committee.
+
+Mark Gitenstein of the Senate Select Committee was telephonically contacted by SA Paul V. Daly and advised of the request received from David Bushong. He was informed that the Bureau did not have authority to conduct an investigation for the Senate Select Committee in the absence of instructions from the Attorney General and that the Bureau would not conduct such an investigation in the absence of same. Gitenstein agreed that the Bureau should not conduct the investigation and indicated he would bring this to the attention of Bushong.
+
+Subsequently, ASAC Arthur Barger of the San Diego Office telephonically advised he had been contacted by David Bushong and asked to make available to him information he had requested the Bureau to furnish. Barger was informed that the Committee had been notified that this was an improper request and that the Bureau was not going to comply. He was told to tell Bushong that Mark Gitenstein of the Committee had been apprised of this matter and he should contact Gitenstein.
+
+Gitenstein was telephonically recontacted and advised that Bushong had contacted the San Diego Office requesting an investigation and Gitenstein was reminded that he had stated previously he would insure that Bushong was advised that his was an improper request. Gitenstein explained that he did not realize Bushong had left for San Diego and that he would straighten the situation out. REC-20 C2-1/16 9/25-130 SEP 25 1975
+
+PVD lad
+(7)
+
+CONTINUED - OVER
+
+8 4 2 1975 Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+NEW 88326 DocId:32989653 Page 384
+
+ERA ADE-

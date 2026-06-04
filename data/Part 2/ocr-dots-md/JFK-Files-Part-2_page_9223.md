@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_9223.png
+
+Convert to MarkdownDE 157-3075
+
+Information regarding BPP fortifications and apparent target practice at 157 Collingwood by BPP members was furnished to the Intelligence Section of the Detroit, Michigan Police Department on March 13, 1973.
+
+Identity of Special Agent of the FBI conducting pretext interview of LONNIE DARDEN is SA JOHN V. INSOGNA. Pretext used was that of a concerned citizen of the Detroit Black community.
+
+One copy of instant report is being furnished to Secret Service, Detroit.
+
+- C * -
+
+COVER PAGE

@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_16286.png
+
+Convert to MarkdownIn Reply. Please Refer to
+File No.
+
+Chicago, Illinois
+
+July 22, 1969
+
+BLACK PANTHER PARTY
+CHICAGO DIVISION
+
+A confidential source who has furnished reliable information in the past, advised on July 18, 1969, the Illinois Black Panther Party (BPP) was planning a press conference to be held in Maywood, Illinois, at 11:00 a.m. on July 19, 1969. The purpose of this conference was to propose renaming Maywood, Illinois to Hampton Park, Illinois, in honor of Fred Hampton, imprisoned Deputy Chairman of the Illinois BPP.
+
+Lieutenant William Stanley, Maywood, Illinois, Police Department, advised on July 19, 1969, that the press conference scheduled for that date in Maywood, Illinois, did not take place. He advised the Maywood Police Department remains alert for any possible future planned activities by the BPP.
+
+Copies of the memorandum are being furnished to the following agencies:
+
+United States Attorney, Chicago, Illinois
+U. S. Secret Service, Chicago, Illinois
+Region 1, 113th MI Group, Evanston, Illinois
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

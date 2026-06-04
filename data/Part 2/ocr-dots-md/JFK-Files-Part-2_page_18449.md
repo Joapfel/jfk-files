@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_18449.png
+
+Convert to Markdown# III. Case Studies
+
+## General Questions
+
+The descriptions which follow of the specific cases the Committee intends to study are, intended to serve the dual purpose of notifying the FBI of the issues the Committee will explore in connection with each case and eliciting from the FBI all information and material in its possession relating to the questions the Committee wishes to explore in each case. In order to avoid unnecessary repetition of certain questions which will be basic to the Committee's investigations of each case, certain fundamental questions are set forth below. As to each case described, the Committee intends to explore these fundamental questions, and expects that the FBI will, as to each case, provide all information and material it has relating to these basic questions even though they are not repeated in the discussion of each particular area.
+
+1. What is or has been the legal authority for the activity?
+
+2. What have been the purposes of the activity?
+
+3. What techniques have been employed in the activity?
+
+4. What kinds of information have been gathered in the activity?
+
+5. How have specific uses of the activity been initiated and approved?
+
+6. How have the targets for the activity been selected?
+
+7. What have been the criteria for target selection?
+
+8. How has the intelligence which is collected been used?
+
+9. To whom has the intelligence collected been disseminated?
+
+10. What has been the basis for any dissemination with respect to each recipient?
+
+11. How has the activity been coordinated with other intelligence agencies?

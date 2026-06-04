@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_16916.png
+
+Convert to MarkdownSECRET
+
+Suggest an alternative plan for the escape of the POWs and their captors.
+
+Problem:
+
+Complete your assignment in a personable manner. Show: To cause Chapter 16, Section 2, to assist the police in apprehension by presenting a list of all the prisoners, and thereby chase the persons of interest into the rivulet orients' camp, and then lead them out to be taken to this camp.
+
+Delegation of: All hands at once. (Blame Pfig.)
+
+A. Communication:
+
+1. Telephonre
+
+2. Radios
+
+3. V. P.
+
+B. Physics:
+
+1. Light
+
+2. Gas
+
+C. Scientific communication:
+
+1. Aeronautics, etc.
+
+N. Health Distribution (Blues: F=)
+
+1. Non-personal (first)
+
+2. Personal (second)
+
+E. Military edition:
+
+1. Air force city (fiele)
+
+2. Navy city (Inland)
+
+3. Marine city (Chale)

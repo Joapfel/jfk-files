@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_12739.png
+
+Convert to MarkdownII. Whenever reports relating to security index subjects contain data affecting material included on subject's existing security index card, cover pages accompanying report shall include as last page form FD-305, appropriately checked, which form contains items pertaining to following:
+
+(A) That subject's name is included in security index or agitator index
+
+(B) That data appearing on security index card or agitator index card is current
+
+(C) That FD-122 or FD-397 has been submitted to Bureau where security index card or agitator index card changes are necessary
+
+(D) That a suitable photograph is or is not available and date photograph was taken
+
+(E) That subject is employed in a key facility and agency charged with security responsibility is specified and that agencies interested in that facility are specified
+
+(F) Reason for classifying report
+
+(G) Dates subject was previously interviewed and reason for not reinterviewing subject
+
+(H) That subject no longer meets security index or agitator index criteria and a letter has been directed to Bureau recommending cancellation
+
+(I) That subject's case has been reevaluated and reasons are set forth as to why subject's activities continue to fall within security index or agitator index criteria
+
+(J) That subject's security index card is designated priority I, priority II, or [priority III] and reasons why subject's activities warrant such designation
+
+III. Form[FD-305 appropriately completed is also to be attached to cover communication submitting letterhead memorandum in priority III security index cases.]
+
+(b) Documentation of reports
+
+I. [Complete documentation of all reports is required. This also applies to succinct letterhead memoranda submitted in priority III security index cases and other similar letterhead memoranda where necessary. In this regard, see 87D 7a (3) (a) IV D.]
+
+II. If information necessary for complete documentation is not available in subject's case file, necessary review of other office files should be made. If not obtainable, this fact must be indicated in cover page(s) accompanying report to Bureau.
+
+III. Extensive investigation should not be conducted to further identify and locate outside individuals who have in past furnished background information or to obtain documentary evidence of background information. For example, if previous investigation revealed that subject, according to reliable records, such as birth records, school records, or records of Immigration and Naturalization Service, was born at a certain place on a certain date, such information will be sufficient for inclusion in report. Further verification will not be necessary.
+
+IV. During preparation of summary reports, it is often found that information being included in a report was originally obtained by another office and all of necessary information for complete documentation will not be in possession of office preparing report. In such an instance, if office preparing report is in possession of photostats of documents obtained by other offices and identity
+
+78
+2-13-70

@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_15471.png
+
+Convert to MarkdownMemorandum to Mr. Sullivan
+
+Re: TECHNICAL SURVEILLANCE COVERAGE OF DIPLOMATIC ESTABLISHMENTS
+65-63113
+
+Out of the original sixteen countries on list furnished Attorney General 1/26/62, we have not instituted coverage on Laos, Morocco, Thailand and South Vietnam. We will endeavor to explore productive potential of these four countries as soon as such is feasible consistent with Bureau's over-all technical demands.
+
+In addition to above, by letter to Attorney General 2/25/63 we advised we were expanding above coverage to include such additional non-Soviet-bloc countries, not on original list of sixteen but which have developed into either trouble-spot areas or otherwise represent good potential for technical coverage. Since 2/25/63 we have covered following establishments under this expanded category:
+
+Embassy of Guatemala
+Residence of Guatemalan Ambassador
+Embassy of Nicaragua
+
+This coverage on these three establishments to date has furnished worthwhile intelligence data and is still being maintained. We are in the process of instituting coverage on Embassies, UN Delegations and residences of Ambassadors of Syrian Arab Republic and United Arab Republic, such coverage being instituted at State's request in view of critical situation developing in Middle East.
+
+When above is installed, we will be covering currently sixteen different establishments under this expanded coverage of non-Soviet-bloc countries.
+
+ACTION:
+
+This program will be followed closely and will be reanalyzed in 90 days.

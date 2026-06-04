@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_16520.png
+
+Convert to MarkdownTHE STRONG BLACK MAN DIDN'T LIKE BEING A SLAVE SO HE FOLDED THE

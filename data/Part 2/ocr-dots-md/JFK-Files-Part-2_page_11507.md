@@ -1,0 +1,63 @@
+# JFK-Files-Part-2_page_11507.png
+
+Convert to Markdown(d) Other security index subjects
+
+I. Closed
+
+(A) Cases of all other security index subjects must be followed by administrative ticklers set up so as to insure submission of an annual investigative report. The cases shall be opened and assigned 45 days prior to the date the annual report is due. Such cases shall also be opened and assigned six months after submission of the annual report to accomplish verification of addresses. Upon such verification, the cases should be closed administratively.
+
+(c) Cases of subjects recommended for security index
+
+I. Pending inactive
+
+(A) If all active investigation completed at the time FD-122 forwarded to Bureau
+
+(B) Lead to follow Bureau for security index card should be set forth.
+
+II. Closed
+
+(A) Upon receipt of security index card from Bureau
+
+(B) Thereafter follow by administrative tickler for investigative report as in (d) above.
+
+(f) Subjects not in security index who are not to be included therein
+
+I. Closed
+
+(A) Prior to closing, instructions under 87D 6b (7) pertaining to interview must be complied with.
+
+(9) [Content]
+
+(a) [In order to insure completeness of investigation, the following items should be considered as pertinent to an investigation and subsequent reporting of such should be handled under topical headings where appropriate.]
+
+I. Background
+
+(A) Birth date
+
+(B) Citizenship status
+
+(C) Education
+
+(D) Marital status
+
+(E) Military service record (domestic or foreign, including type of discharge, citations, etc.)
+
+(F) Identification record
+
+(G) Employment
+
+(H) Residence
+
+(I) Status of health (if known)
+
+II. Connections with Communist Party (or other basic revolutionary groups and/or front organizations)
+
+(A) Information concerning admission to revolutionary group including sponsors, etc.
+
+(B) History of activity in, attendance at meetings of, and positions held in subversive movement with which subject is identified
+
+NWW 88321 DocId:32989529 Page 841
+
+74
+
+4-10-59

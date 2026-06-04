@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_9156.png
+
+Convert to MarkdownNY 185-229.
+
+LEADS (CONT'D)
+
+LOS ANGELES
+
+At Los Angeles and Glendale, California
+
+(1) Will, through logical informant coverage, attempt to determine relationship of the captioned incident with the Identity Group and the Iron Cross Motorcycle Club.
+
+LOUISVILLE
+
+At Berea, Kentucky
+
+(1) Will conduct logical investigation to trace disposition of dynamite shipped to Berea Sewer Service Commission, Berea, on 8/21/73. Will also consider review of employees' records to determine possible relationship of MICHAEL HALSEY BROWN.
+
+(2) Will continue efforts to obtain current photograph of BROWN.
+
+(3) Will continue to discreetly follow BROWN's activities.
+
+NEWARK
+
+At Newark, New Jersey
+
+(1) Will contact logical informants in pro-Nazi and white hate group areas for information regarding the captioned incident.
+
+(2) Will continue efforts to identify GABRIEL KORDOVI (ph), as previously set forth.
+
+NEW YORK
+
+At New York, New York
+
+(1) Will maintain liaison with the UN Security Force and will exhibit photograph of BROWN when furnished by Louisville.
+
+(2) Will exhibit photograph of BROWN to logical employees at the Commodore Hotel, NYC, in an attempt to identify BROWN as hotel guest.
+
+COVER PAGE
+
+-C*-

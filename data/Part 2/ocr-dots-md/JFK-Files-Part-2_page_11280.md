@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_11280.png
+
+Convert to MarkdownINDEX FOR SECTION 87D
+
+References are to page.
+
+National
+  Defense Education Act of 1958, 22
+  Guard members, dissemination of information concerning, 80
+  Science Foundation Act of 1950, 22
+Naturalized citizens
+  dissemination of information concerning, 80
+  investigations of, 26
+Negative information, security index cases, submit by letter, 74
+New office of origin, 58
+
+Observation of subject, 28,50,57
+Office of origin, 27a,58,59,72,81a
+Out of the country, unavailable section of security index, 54
+Overt acts, 45
+
+Periodic review of reserve index section A, 42b
+  section B, 42c
+Personal observation of subject, 28,50,57
+Photographic surveillances, 35,37
+Photographs, 28 of key figure, 67 of top functionaries, 70 status of security index cases while obtaining, 28,68
+Physical description, 28
+  surveillances, 35 maintenance of SA's notes, 38
+Position and importance, 30 in labor organizations, 29 Potential dangerousness, 44 of Nation of Islam members, 46
+Preservation of evidence, 37 Priority apprehension program, 62
+Private records, 36 Public Law 87-835, 22 source information, 36 utility employees, dissemination of information concerning, 80 Purpose of investigation, 19 security index, 43
+
+Receipt of information of subversive activities, 25
+Recommendation for inclusion in section A, reserve index, 42b,61 security index, 47
+  Cuban activity, 45a,45b status, 74
+  when subject has Chinese sympathy, 48
+  when subject is of Chinese extraction, 48
+  when subject is out of country, 48
+  when there is missing background information, 47
+Re-evaluation of security index status, 46,57,72,78
+Registrars of institutions of learning, 24,25
+Reinterviews, 42
+Relatives in armed forces, 27
+Removal from security index, 46a,61
+Reports administrative data in, 77 character of, 73 content of, 74 cumulative items, 76 dissemination of, 79 to Secret Service, 81 documentation of, 78 lumping information in, 76 narrative-type statements, 77 negative information, security index cases, submit by letter, 74 schedule of, 73 status of, 73 summarizing information in, 76 title of, 72 topical headings in, 74 when necessary after interview, 41 when necessary at time requesting Bureau authority to interview, 39 when not necessary after interview, 40a when not necessary at time requesting Bureau authority to interview, 39 Reserve index, 42a arrangement, 42b cards, content and appearance, 43 content, 43 names deleted from security index, 61,62
+
+NW 88321 Doctd:32989529 Page 614
+
+82e
+3-25-65

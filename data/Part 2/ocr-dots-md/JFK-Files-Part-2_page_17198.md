@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_17198.png
+
+Convert to MarkdownBLACK PANTHER PARTY (BPP)
+
+stated that the Illinois BPP was paid
+solely from the admissions charged and received a total
+of approximately $500.00.
+
+Source stated that Cook was arrested for a traffic violation during the evening.
+
+advised that one Mark Clark, BPP leader Peoria, Illinois, made arrangements for this speech.
+
+Source stated one Leon Harps, BPP leader Peoria,
+Illinois, is responsible for distributing the Black Panther
+Paper and one Edward McChriston, appears to be responsible
+for the Illinois BPP Branch in Peoria, Illinois.
+
+Source stated that the Chicago group arrived back
+in Chicago about 6:00 a.m. on October 30, 1969.
+
+Copies of this memorandum are being furnished
+the following agencies:
+
+United States Attorney, Chicago, Illinois;
+
+United States Secret Service, Chicago, Illinois;
+
+Office of Special Investigations, Chicago, Illinois;
+
+Region I, 113th Military Intelligence Group,
+Evanston, Illinois.

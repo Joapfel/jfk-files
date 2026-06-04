@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_14883.png
+
+Convert to MarkdownDr. William Frank treated the victim on 12/17/59 and found two superficial lacerations at the back of the head which were closed by two stitches each. No other injuries were noted and Smith complained of no other injuries. Officer Devries told Dr. Frank that the lacerations were caused by a night stick.

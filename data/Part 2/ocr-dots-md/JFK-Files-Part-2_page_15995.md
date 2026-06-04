@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_15995.png
+
+Convert to Markdown# W.E.B. DU BOIS CLUBS OF CHICAGO (DCC)
+
+On May 3, 1965, a source advised that on June 30, 1964, a group of young people who attended the founding convention of the W.E.B. DuBois Clubs of America (DCA) met in Chicago and adopted a statement of purpose and constitution forming the DCC as an affiliate of the national DCA.
+
+A second source advised on April 17, 1968, that the DCC Organizing Committee, which was set up by the DCA to further DCA activities in the Chicago area, is dormant. GERALD KIRK, who is a member of the Communist Party of Illinois and the coordinator of DCC activities, is the only officer and member. At this time the DCC has no aims or purposes and does not maintain a headquarters.
+
+The second source advised there are no other DCC clubs in the area and that during the past year DCC activity has been almost nonexistent.

@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_15654.png
+
+Convert to Markdown# I'VE MOLLYON THE MURDER OF FRED HAMPTON.
+
+MURDER. Isn't that what you have to call it when a man is gunned down in bed?
+
+FASCISM. POLICE STATE. Isn't that what you have to call it when police can make their own "laws" and act as judge, jury, and executioner?
+
+OUTRAGE. GRIEF. ANGER. FRUSTRATION. ANGUISH.
+If we -- white, middle class, "respectable" people --
+feel this way, how do you think poor and oppressed
+black people feel, when they see an outspoken and
+courageous young leader brutally killed by the forces
+of so-called "law-n-order"?
+
+A society that lives by the sword will be torn apart by the sword. The ancient law is still true: What you sow, you shall reap. Sure: members of the Black Panther Party have said they have the right of armed self-defense. But how many of the rest of us also keep guns around the house "just in case"?
+
+Isn't it, then, hypocritical for white society to decry
+the stockpiling of guns only when it's done by black people?
+
+GENOCIDE. Isn't that what you have to call it when there's a systematic deadly attack on a whole group of people... whether it's the Jews in Germany, the villagers of Song My in Vietnam, or the members of the Black Panther Party in Chicago?
+
+IN TIMES LIKE THESE, TO BE SILENT IS TO BE AN ACCOMPLICE.

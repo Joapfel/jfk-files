@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_17169.png
+
+Convert to MarkdownNWI 88613 DocId:32199554
+
+# Panther
+plea hits
+judge's
+leniency
+
+BY JEFF LYON
+
+AN IMMEDIATE appeal bond is being sought for Illinois Black Panthers Chairman Fred Hampton, who has been sentenced to 2 to 5 years in prison by Criminal court Judge Sidney Jones Jr. for a $71 holdup of a Good Humor man.
+
+Attorneys for Hampton, 20, will base their demand for appeal bond on two grounds, according to Bobby Rush, Panther minister of defense.
+
+"One will be Judge Jones' action recently in letting off George Kamberos, the restaurant owner, who was accused of killing a 15-year-old boy with his car — the man whose driver's license had been suspended three times and revoked twice," said Rush.
+
+"THE OTHER will be the fact that the four Cicero white youths who killed a black, Jerome Huey, in 1966 were allowed out on appeal bond after their conviction," he noted.
+
+Rush, in a news conference in Panther headquarters, 2350 Madison st., said "Sissy Jones" had been "pressured by Dodohead Daley and his gang of merry mutts" to get Hampton off the streets.
+
+"But he won't be gone for long," Rush added.
+
+Ald. A. A. [Sammy] Rayner [6th] also appeared at the conference to say Hampton "is my brother, and in trouble, and I'm with him."
+
+HAMPTON, of 804 S. 17th st., Maywood, was sentenced by Jones yesterday. Hampton, held without bond pending appeal, was denied a motion for a new trial after testimony was introduced that Hampton advocates armed revolution.
+
+Hampton was convicted by a jury April 7 of robbing an ice cream truck driver last July 10 in the Irving school playground in Maywood. Good Humor man Nelson T. Suitt testified his truck was looted of $71 worth of ice cream bars by youngsters after Hampton jumped into the truck cab and struck and choked him.
+
+CONFIDENTIAL
+
+- 3 -

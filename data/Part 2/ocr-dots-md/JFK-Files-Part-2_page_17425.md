@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_17425.png
+
+Convert to Markdown# RACIAL TENSIONS, NORTHERN ILLINOIS UNIVERSITY DE KALB, ILLINOIS
+
+## YOUNG SOCIALIST ALLIANCE (YSA)
+
+and content of the remarks of the speakers, especially Hampton. At that point, Boutelle, the moderator, declared the meeting adjourned.
+
+After the meeting adjourned, without further incident, several of the panel members went to the black student offices on the campus where about 125 black students were present. Hampton told them the blacks have to take over because whites will not give them their rights. He told them to stop attending white schools, to read Marx and Malcolm, prepare for the revolution, and get guns.
+
+Said second source advised that the Black Liberation Alliance is a recently organized militant Negro organization comprised primarily of former members of the Chicago branch of the Congress of Racial Equality (CORE) who defected from CORE during the latter part of 1968.
+
+Malcolm X was a black nationalist who was killed in New York City on February 21, 1965 during a rally of his followers. The Malcolm X Black Hand Society of the World, Incorp. was formed in Chicago, Illinois in the summer of 1968 for the announced purpose of perpetuating his memory and to stress black unity.
+
+The Dodge Revolutionary Union Movement was the black caucus of the Detroit United Auto Workers Union and the Concerned Transit Workers were Negro bus drivers who conducted a wildcat strike of the Chicago Transit Authority in the summer of 1968.
+
+Operation Breadbasket is the economic program of the Southern Christian Leadership Conference.
+
+James Harvey is a militant black nationalist who has been active as spokesman for militant black student organizations.

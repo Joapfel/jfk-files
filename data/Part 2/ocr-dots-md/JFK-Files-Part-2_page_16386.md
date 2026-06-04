@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_16386.png
+
+Convert to MarkdownALINOIS BLACK PANTHER SOCIETY
+
+2350 W. Madison Street
+Chicago, Illinois
+
+March 11, 1969
+
+ATTENTION:
+
+Dear Sir:
+
+In reference to the conversation between you and Miss Ross some months ago I am submitting this report as to the reason for the Black Panthers Fund Raising Drive for the Black community. We have a number of programs for the community which through your assistance we would like to see implemented.
+
+Some of which are:
+
+* Breakfast for Children Program
+* Law Firm Center
+* Free Health Clinics
+* Food Buying Club (which we have, but which is not being operated on a large basis)
+* Economics Assistance to ADC Mothers
+* Day Care Nursery
+* Tenant's Union for the upkeep of the buildings
+
+We have at present limited vehicles by which to make this materialize to:
+
+* Rallies
+* Minimal Donations
+* Proceeds from Posters, Papers, Pamphlets, etc.
+
+These as you see are very limited for the programs we have in mind. We are not asking you for money; simply your assistance in securing a financial base for the Black community. With the many resources that you have at hand -- in implementing many of our objectives would be a definite boost.
+
+NW 88613 DocId:32199554
+Page 1883

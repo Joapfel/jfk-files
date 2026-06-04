@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_19012.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+March 21, 1969
+
+Identifications of Soviet Contacts
+
+On March 21, 1969, when requested to review numerous photographs of Soviet nationals and comment concerning his recollections of them, Jaffe stated he has a very poor recollection of names of individuals; however, he has a very good recollection of faces of individuals he has met. Jaffe made the following comments concerning the first group of photographs displayed to him:
+
+1. Vladimir Ivanovich Bogachev: APN correspondent.
+
+Bogachev has been reported as connected with Soviet Military Intelligence (GRU).
+
+2. Vladimir Borisovich Barkovski: The Soviet national who approached Jaffe with a request of Jaffe to write an analysis of the American political scene. Subsequently, when shown a group of photographs of Soviet nationals identified by WF T-2 as officers of the KGB, including photographs of Barkovski and his wife, Jaffe again identified Barkovski and also indicated he recognized his wife.
+
+WF T-2 identified Barkovski as a KGB officer who was KGB Resident in the United States in the late 1950's; in 1962 was Chief of the First (American) Department of the First Chief Directorate (FCD), KGB; and in 1963 was appointed Deputy Chief of the newly created Scientific - Technical Directorate, FCD, KGB.
+
+3. Aleksandr Aleksandrovich Bessmertnykh: Face looks familiar.
+
+When shown a photograph of this individual, WF T-2 thought he had seen this individual, and he may have been an officer of the FCD, KGB. He was aware there was a Colonel Bessmertnykh who until 1962, worked in the FCD, KGB.
+
+SECRET
+35

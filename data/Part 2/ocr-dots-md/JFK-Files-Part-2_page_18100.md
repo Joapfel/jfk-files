@@ -1,0 +1,79 @@
+# JFK-Files-Part-2_page_18100.png
+
+Convert to MarkdownI - Mr. Belmont
+I - Mr. Mohr
+I - Mr. DeLoach
+I - Mr. Rosen
+
+December 21, 1964
+
+BY LIAISON
+
+Rear Admiral Rufus L. Taylor
+Director of Naval Intelligence
+Department of the Navy
+The Pentagon
+Washington, D.C.
+
+Dear Admiral Taylor:
+
+By letter dated November 30, 1964, you were furnished a copy of a study entitled "Communism and the Negro Movement--A Current Analysis." There is enclosed a memorandum containing additional information relating to the personal conduct of Martin Luther King, Jr. Copies of this document are being furnished to interested officials of the Government.
+
+The sources utilized in the enclosure have furnished reliable information in the past and because of their sensitive nature, the memorandum has been classified "Top Secret." Upon removal of the classified enclosure, this transmittal letter becomes unclassified.
+
+Enclosure
+
+100-442529
+TPR:jed (12)
+
+REC-11
+
+1 DEC 23 1964
+
+SEE NOTE PAGE TWO
+
+This document is prepared in response to your request and is not for dissem- nation outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized person- nel without the express approval of the FBI.
+
+Tolson
+
+Belmont
+
+Mohr
+
+DeLoach
+
+Casper
+
+Callahan
+
+Contrad
+
+Evans
+
+Gale
+
+Rosen
+
+Sullivan
+
+Tavel
+
+Trotter
+
+Tele. Room
+
+Holmes
+
+Gandy
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+DEC 51 IS FEBRUARY
+
+E. B. L.
+
+KECEMED-DIRECTOR
+
+6 DEC 29 1964/2PM
+
+DOD 88326 DocId:32989653 Page 98

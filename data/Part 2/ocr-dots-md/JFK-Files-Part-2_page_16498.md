@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_16498.png
+
+Convert to Markdown6. reveal their third function: that of stopping any movement which threatens the racist power structure. Any organization which seriously attempts to meet the needs of the people will be attacked and if possible destroyed. The pigs will use "any means necessary" from arrests on absurd trumped-up charges to infiltrating organizations and framing people to beatings and murder.
+
+The repression directed against radical and revolutionary groups in the past few months has been overwhelming. In Chicago the Black Panther Party and the Young Lords Organization have experienced police harassment to the greatest extent. The Black Panther Party has been organizing continually to meet the needs of the black community. They have set up a Breakfast for Children program in which they feed several hundred children free breakfast each day (often their only hot meal) and are setting up a free Health Care program. The Panthers have always spoken against racism, urging black and brown people, white working class and young people to fight against the real enemy—the racist power structure. As a result, the Panthers have become the targets of a special program of repression—the shooting and jailing of Huey P. Newton, the attempt to jail Eldridge Cleaver, the murder of at least 15 Panthers around the country, the arrest of 21 in New York on conspiracy charges, and the jailing of more than 30 Panthers in one week in Chicago are specifics of that repression.
+
+The Young Lords, a militant Puerto Rican youth group, has also involved itself in the fight for its people's needs. They have organized a program of opposition to the urban renewal
+
+POLICE REPRESSION DIRECTED AGAINST THE
+
+—Huey P. Newton: attacked, shot, jalled and sent to prison
+
+—Eldridge Cleaver: parole revoked, hounded out of town
+
+—Bobby Seale: indicted for "inciting a riot" at Democratic Convention
+
+—Bobby Hutton: shot 19 times and killed by Oakland Police
+
+—15 Panthers around this country murdered by pigs
+
+—Fred Hampton: convicted of "robbery"—allege-distributing them to neighborhood kids
+
+—"Bunchy" Carter and John Huggins: murdered by police
+
+—Bobby Rush: arrested 4 times, 3 of them on gun control
+
+—21 New York Panthers: indicted for "conspiracy" ($2,000,000 bail)
+
+—3 Chicago Panthers: indicted for "conspiracy" to bomb
+ball
+
+—2 Chicago Panthers: while carrying out the property
+
+—19 Chicago Panthers: arrested in Chicago on having license plates attached with regulation pointed at angles rather than straight ahead
+
+NW 88613 DocId:32199554

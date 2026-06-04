@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_14690.png
+
+Convert to Markdown# JURY PANEL INVESTIGATIONS
+
+On January 9, 1967, a letter was forwarded to the Acting Attorney General advising him that in view of the increasing sensitiveness to intrusion by the Federal Government into the rights of defendants in criminal trials and in order to assure that future requests for jury panel investigations would be made only in truly exceptional cases, investigations of this nature should not be undertaken by the Bureau except upon the specific written request of the Attorney General or the Deputy Attorney General and that our field offices were being so instructed.

@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_16332.png
+
+Convert to Markdown1.
+
+On the following three pages are five xerox copies of photographs of individual which was taken at Chicago BPP Headquarters, 2350 West Madison Street, Chicago, Illinois, based on background appearing in photos, and referred to in preceeding page. Also a zerox copy of photograph of section of Chicago BPP Headquarters.
+
+Original photographs mentioned above are being retained by Federal Bureau of Investigation, Chicago.

@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_19004.png
+
+traffic chief of police appeared. "This man spotted me" and he was required to take a sobriety test. Jaffe stated he passed the test although there was a trace of alcohol in his system. Jaffe was permitted to leave, but later was required to return to the police station and "they said it was decided to press charges."
+
+Jaffe said he reported the matter to the American Embassy and received conflicting advice. "Some said shut up because if you push them" it might lead to serious trouble. "Others said scream like hell because they have never convicted an American correspondent." Jaffe decided "to take the dovish" position.
+
+Jaffe continued: "At this point 'Slava' found out about it. He came to see me and said it was very, very serious." A little later, Jaffe and his wife had prepared to leave on vacation but at the last minute he was told he could not obtain an exit visa until the automobile accident had been cleared up. Jaffe then got a call from "Slava" who "Said he would like me to meet a guy. This man - I think I could identify - very young, very tough, aggressive guy, good looking, in 30's. 'Slava' said it was his chief and he just wanted to meet me." Initially the conversation was quite general, with "Slava's" boss, who spoke very good English, asking Jaffe his thoughts about the Soviet Union. Toward the end of the meeting, "Slava" mentioned Jaffe's automobile accident problem, and asked "what do you think we can do about it?" Then the two Soviets conversed in Russian, after which Jaffe was told "don't worry."
+
+Later, at the advice of Kamenev, Jaffe's translator, Jaffe visited the injured Soviet at a hospital, and "brought him some booze," Jaffe continued: "They found out about this and the police were furious," insinuating that Jaffe was trying to influence the victim. A month passed, and still Jaffe did not receive an exit visa. Then "Slava" called and requested a meeting. They met in a park in Moscow. "Slava" showed Jaffe a piece of paper concerning the police charges, and tore it up in Jaffe's presence. Jaffe asked "Slava" what "Slava" wanted from him and "Slava" replied: "Forget about it. The case is closed. You have to make a financial settlement." Thereafter, Jaffe met the victim's wife, paid her 100 or 200 rubles, and she signed a statement releasing Jaffe from all other claims.
+
+SECRET
+27
+
+NW 88326 DocId:32989704 Page 298

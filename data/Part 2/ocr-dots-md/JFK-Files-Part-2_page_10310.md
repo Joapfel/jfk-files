@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_10310.png
+
+Convert to Markdown22 May 1973
+
+MEMORANDUM FOR: Inspector General
+
+Bill--
+
+Attached are the reports Bill Colby asked to see:
+
+1. Restless Youth (September 1968), No. 0613/68, Secret/Sensitive/No Foreign Dissem (Copy 78).
+
+This document was produced in two versions--one with the chapter on radical students in America (pages 25-39) which was sent only to the President, Walt Rostow, and Cy Vance (former Deputy Secretary of Defense); the other version without the references to the American scene was disseminated to twenty people outside the Agency. This document without the material on the US was updated in February 1969 and copies were sent to the Vice President and Dr. Kissinger. A still more abbreviated edition was sent to the Attorney General in March 1969.
+
+2. Black Radicalism in the Caribbean (6 August 1969), No. 1839/69, Secret/No Foreign Dissem (Copy 142).
+
+3. Black Radicalism in the Caribbean--Another Look (12 June 1970), No. 0517/70, Secret/No Foreign Dissem (Copy 98).
+
+Please note that these are our record copies and should be returned.
+
+Edward W. Proctor
+Deputy Director for Intelligence
+
+Attachments
+
+SECRET/SENSITIVE
+
+00171
+
+<table>
+   <tr>
+    <td>E 2</td>
+    <td>under c. by</td>
+    <td>013329</td>
+   </tr>
+  </table>

@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_18139.png
+
+Convert to MarkdownUnited States Senate Select Committee
+to Study Governmental Operations with
+Respect to Intelligence Activities (SSC)
+
+SAC E. Hugo Winterrowd
+
+1550 North Parkway
+Memphis, Tennessee 38112
+
+SAC Joseph L. Schmit
+
+650 Hunt Lane
+Manhasset, New York 11030
+
+SAC Donald E. Roney
+
+131 Cambridge Drive
+Windsor Hills
+Wilmington, Delaware 19803
+
+SAC Henry A. Fitzgibbon
+
+76 Easton Road
+Bronxville, New York 10703
+
+SAC Joseph K. Ponder
+
+3719 Carriage House Court
+Alexandria, Virginia 22309
+business address:
+3030 South Red Hill Avenue
+Santa Ana, California 92705
+
+SAC Victor Turyn
+
+2645 Turf Valley Road
+Ellicott City, Maryland 21043
+
+SAN FRANCISCO
+
+SAC Williams W. Burke, Jr.
+
+1847 Aztec Drive
+Jackson, Mississippi 39211
+
+SAC Richard D. Auerbach
+
+P. O. Box 1768
+Seattle, Washington 98111
+
+NW 88326 DocId:32989653 Page 137

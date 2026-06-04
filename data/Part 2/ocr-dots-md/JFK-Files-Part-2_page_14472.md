@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_14472.png
+
+Convert to MarkdownSECRET
+
+Memorandum from W. A. Branigan to Mr. E. S. Miller
+RE: [BUREAU INFORMANT 200]
+
+advised that the U. S. Postal Service had raised a question as to CIA's necessity to continue PROJECT HUNTER in view of possible security problems within the Postal Service.
+
+The Bureau has always handled PROJECT HUNTER material on a strict need-to-know basis. The material received is handled on one desk in the Domestic Intelligence Division where it is screened for items of possible investigative use and retention. Material of no interest is destroyed. HUNTER material can be only transmitted to our field divisions in paraphrased form and can only be used for investigative purposes. The material can never be incorporated in any communication which is intended for dissemination outside of the Bureau. HUNTER material that is retained is kept in a Special File Room in the Records Branch at the Identification Division Building. Periodically CIA has been furnished with general guidelines as to the material which would be of special interest to our needs. For example, we are currently interested in material concerning current and former Soviet exchange students, visitors, researchers, and scientists. We are likewise interested in Americans who are in the USSR for an appreciable period of time. We are interested in American communists and other extremists who may be corresponding with persons in the USSR.
+
+We have always considered the product from PROJECT HUNTER as valuable to our investigative interests. In this connection, it has provided us with the identities of Americans in contact with [Soviet] exchange students in the United States who offer some potential as informants regarding the [Soviet] students' activities. We know from highly confidential sources that a proportion of these students have already been recruited by one or the other of the major [Soviet] Intelligence Services. We know also that many of the exchange students will subsequently be posted to the United States in some official capacity.
+
+PROJECT HUNTER has identified numerous individuals from the United States and from other areas of the world in attendance at the Central Komsomol School and Friendship University.
+
+CIA has permitted us to furnish them the names of specific individuals in whom we have an investigative interest, and this has been valuable in covering their activities. The product from HUNTER has also been valuable in identifying Soviets who plan to and later visit the United States.
+
+- 2 - SECRET
+
+CONTINUED - OVER

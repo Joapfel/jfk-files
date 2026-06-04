@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_15327.png
+
+Convert to MarkdownTO : MR. L. V. BOARDMAN
+
+FROM : MR. A. H. BERMONT
+
+SUBJECT: STATE DEPARTMENT REQUESTS FOR SURVEILLANCES OF LATIN AMERICANS
+
+DATE: November 18, 1955
+
+1 - Mr. Boardman
+1 - Mr. Belmont
+1 - Mr. Sanders
+1 - Mr. Kuhrtz
+1 - Mr. Bartlett
+1 - Liaison Section
+1 - Mr. Papich
+
+Reference is made to my memorandum of 10-13-55. By letter dated 10-10-55 Mr. Robert Murphy, Deputy Under Secretary of State, noted that it was important that State Department keep track of movements and contacts of selected Latin Americans while in the U.S. when there are reasons to believe subversive activities directed at other governments of this hemisphere are being planned and coordinated here. The letter noted that the FBI had cooperated in furnishing information from established sources but "has shown understandable reluctance to become involved to the extent of conducting direct surveillances in cases where there is no evidence of or reason to suspect subversive activities directed against the U.S. or violation of U.S. laws." A reply dated 10-14-55 was sent to Murphy. By letter dated 10-14-55 a copy of our letter to Murphy was sent to Allen Dulles of the Central Intelligence Agency (CIA). It should be noted that CIA also received a copy of Murphy's letter to us.
+
+On 11-16-55 James Angleton of the CIA confidentially advised Liaison Agent Papich that Allen Dulles might make some comments concerning Murphy's letter before the Intelligence Advisory Committee (IAC) meeting, week of 11-21-55. Our position concerning this matter was clearly set forth in our reply to Murphy 10-14-55. We advised that when there is creditable information available indicating that subversive activities directed at other governments of this hemisphere are being planned and coordinated in the U.S., the FBI takes prompt investigative action. We advised that in conducting these investigations all logical investigative techniques are used including physical surveillances where the circumstances warrant it. We made it clear that there was no reluctance on the part of the Bureau to conduct physical surveillances when deemed necessary but we also pointed out that there were instances where information could be obtained through other means than physical surveillances. We advised State that when that agency received creditable information concerning Latin Americans involved in subversive activities directed at either the U.S. or other governments, we would appreciate receiving the information immediately in order that an investigation could be promptly initiated. We stated that every effort would be made to develop those matters which might be of particular interest to State and that we would give consideration to the utilization of a physical surveillance when requested and when it was agreed that such type of coverage was warranted and necessary. We indicated that when considering these matters it would be necessary to evaluate each on an individual basis. State's attention was directed to the fact that where there was reason to believe that Latin Americans would be engaged insubversive activities while in the U.S. it would appear to be most desirable that they not be allowed to enter the country in the absence of overriding diplomatic considerations.
+
+BJP:fjb16866
+
+⑩ IAC meeting for week of November 21, 1955, cancelled.
+
+NOT RECORDED
+
+NW 88613 DocId:32199554

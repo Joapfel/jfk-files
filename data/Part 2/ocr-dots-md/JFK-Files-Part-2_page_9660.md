@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_9660.png
+
+Convert to MarkdownNK 157-2011
+
+KEVIN O'BRIEN
+212-369-1512
+
+LOUIS MUSTACHIO
+Kopling House #421
+165-167 East 88th
+NYC
+
+JAMES MADDLE (NRP)
+10 West 90th Street
+NYC
+212-877-7048
+
+Ohio:
+
+United White P.P.
+4319 Clark Avenue
+Cleveland, Ohio 44109
+
+FRANK ZORETICH
+P.O. Box 02119
+Cleveland, Ohio 44109
+
+Mrs. PHILLIPS
+3508 Library Avenue
+Cleveland, Ohio 44109
+
+Driver's License in the name of:
+DENNIS DEAN RITTER
+5924 Lakeside
+Toledo, Ohio 43611
+
+DENIS D. RITTER (employee's card)
+Reliance Electric Company
+Toledo Sales and Systems
+#7700, signed DENIS D. RITTER
+
+City of Toledo, Ohio
+Handguns' Identification Card #13668
+DENIS D. RITTER
+5924 Lake Side

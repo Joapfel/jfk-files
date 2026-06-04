@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_17455.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Chicago, Illinois
+
+May 21, 1969
+
+# MALCOLM X BLACK HAND SOCIETY
+## OF THE WORLD, INCORPORATED
+
+On May 20, 1969, a Chicago Police Department source, which has furnished reliable information in the past, advised that a memorial birthday celebration for the late Malcolm X, was held on the night of May 19, 1969, at the Capitol Theater, 7941 South Halsted, Chicago, Illinois, and this celebration was sponsored by the Malcolm X Black Hand Society of the World, Inc., whose leader is W. C. Anas Luqman.
+
+A source, who has furnished reliable information in the past, advised that the Malcolm X Black Hand Society of the World, Inc., was organized in May, 1968. The first public meeting was held at Senate Theater, 3128 West Madison Street, Chicago, Illinois, on May 20, 1968. The purpose of the Malcolm X Black Hand Society of the World, Inc., was to perpetuate the teachings of Malcolm X and to stress black unity in membership which is limited to blacks only and there are no chapters or affiliations outside of Chicago.
+
+Malcolm X is fully described in the characterizations pertaining to Muslim Mosque, Incorporated (MMI), and Organization of Afro-American Unity, Inc., (OAAU) in the Appendix Section.
+
+This source reported that the affair at the Capitol Theater was attended by approximately 350 persons with no more than 10 being white and it lasted from approximately 9:00 until midnight. This source identified the speakers as:
+
+Fred Hampton, Negro male, member of the Black Panther Party (BPP), Chicago
+
+This document contains neither recommendations nor conclusions of the Federal Bureau of Investigation. It is the property of the Federal Bureau of Investigation and is loaned to your agency; it and its contents are not to distributed outside your agency.

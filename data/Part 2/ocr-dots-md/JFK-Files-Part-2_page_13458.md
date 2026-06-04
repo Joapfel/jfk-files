@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_13458.png
+
+Convert to MarkdownMoore to Jenkins Memo (cont'd.)
+Re: CLYDE A. TOLSON
+
+Based upon a request from Mr. Mohr to Mr. Callahan, a Bureau clerk did go to the residence of Mr. Tolson on the day of his death whereupon he delivered some 24 boxes and 6 rolls of tape. The clerk merely delivered the boxes and tape and then left the residence. We have no idea what was placed in the boxes nor how this story started in the first place.
+
+RECOMMENDATION:
+
+For information.

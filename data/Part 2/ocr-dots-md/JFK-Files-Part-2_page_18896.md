@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_18896.png
+
+Convert to MarkdownSAMUEL ADASON JAFFE
+
+SECRET
+
+CONFIDENTIAL
+
+On January 12, 1971, Jaffe arrived in Paris, France, and contacted LE CHAN at which time it was suggested to Jaffe that the proposal first be discussed with THICK THIEN CHAU, President of the Association of Vietnamese Buddhists in France.
+
+Jaffe met with THICK THIEN CHAU for a two hour luncheon engagement on January 12, 1971. THICK THIEN CHAU was generally receptive to the proposal, however, he suggested that the proposal be handled through the National Liberation Front (NLF) representative in Paris, HA THANH LAM. Jaffe was not immediately receptive to this; however, THICK THIEN CHAU indicated that the possibility of any success with his proposal would depend on this course of action.
+
+On January 14, 1971, at 10:30 a.m. Jaffe met with HA THANH LAM, Director of Information, NLF, Paris, France; however, due to a language barrier further discussions were arranged for 4:30 p.m. that day when each could obtain the services of a translator.
+
+At 4:30 p.m. Jaffe returned to the offices of HA THANH LAM with Ann David an acquaintance of his from Sorbonne University, Paris, France. HA THANH LAM had at his office a Buddhist nun, THICK MAN DA/LA, who spoke excellent English and who appeared to be very influential during the course of discussion.
+
+Jaffe emphasized to HA THANH LAM the great concern of the people of the United States for the U.S. prisoners of war in North Vietnamese prison camps and the necessity of allowing an unbiased group, including himself, of U.S. citizens to visit all the prisoners in all the camps and not just a so-called "representative number who may have been brainwashed."
+
+SECRET CONFIDENTIAL
+
+2
+
+NW 88326 DocId:32989704 Page 190

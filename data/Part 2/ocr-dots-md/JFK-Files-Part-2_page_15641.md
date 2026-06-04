@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_15641.png
+
+Convert to MarkdownThe police report on the incident reflects that
+the incident was apparently the result of a previous per-
+sonal altercation between Bell and one James Caldwell,
+male Negro, 5804 South Calumet, who is a guard at the
+Cook County Jail, Chicago.
+
+As a result of thisaltercation, Bell, Winters,
+and possibly others went to Caldwell's home looking for
+him. He was not at home, and Caldwell's wife then called
+the CPD. It was this call that the officers were responding
+to.
+
+The area outside the scene of the shooting remained
+calm and no large crowds gathered.
+
+A spokesman for the Deputy Superintendent's Office,
+CPD, advised that the CPD is in the process of attempting
+to determine how many people actually took part in the shooting
+and is looking for at least one and possibly two male Negroes,
+details unknown, whom they believe took part in this shooting.
+
+On November 13, 1969, a source, who has furnished reliable information in the past, advised that Bell, although carried as a member of the Illinois Chapter of the Black Panther Party (BPP), is not a trusted member of that Party inasmuch as he is and was suspected of being an informant for the Black P Stone Rangers, a local Negro youth gang. Bell has been inactive for several months, almost since joining the Party, due to this suspicion.
+
+This source advised that Winters, also known as Jake Winters, was a close associate of the BPP but was not a member. He was very knowledgeable in weaponry and is suspected of stealing several weapons from BPP headquarters.
+
+Source advised, however, that the BPP is now claiming
+that both Bell and Winters were upstanding BPP members and are
+attempting to obtain their photographs and will publish the
+story concerning captioned incident in the BPP newspaper in the
+near future.

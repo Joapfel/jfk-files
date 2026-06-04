@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_15693.png
+
+Convert to Markdownyou love the Black Panther Party. You love Chairman FRED, you love that new little baby boy, that little baby man. You love that man that loves new revolutionary (inaudible) than you do everything in your power to make sure that he has a fit future. Even his future means fighting. Make sure that if an arms struggle, make sure that the majority of the mass of the people are out and with you fighting.
+
+Make sure he wont have a State Street to walk down and stand in for rallies. Don't let the situation still be at that level by the time that baby reaches age where he can actually fight. That's our job, that's what we have to do if we want to talk about Chairman FRED. Lets keep that in mind. We say all power to the people. Long live the spirit of Deputy Chairman FRED (inaudible).

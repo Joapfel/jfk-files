@@ -1,0 +1,65 @@
+# JFK-Files-Part-2_page_14478.png
+
+Convert to MarkdownORIGINAL FORM NO. 10
+
+UNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. C. Sullivan
+
+FROM : Mr. W. A. Branigan
+
+SUBJECT: (BUREAU INFORMANT 200) POLICY
+
+DATE: 6/9/61
+
+1 - W. C. Sullivan
+1 - W. A. Branigan
+1 - W. D. Stewart
+
+Tolson
+
+Belmont
+
+Mohr
+
+Callahan
+
+Conrad
+
+DeLoach
+
+Evans
+
+Malone
+
+Rosen
+
+Sullivan
+
+Tavel
+
+Trotter
+
+Tele. Room
+
+Ingram
+
+Gandy
+
+The purpose of this memo is to bring to your attention, as a matter of interest, the increase in the volume of Hunter Reports received from CIA, the additional administrative controls instituted to cope with increased volume, and lastly the desirable type of information Bureau Informant 200 has been continually furnishing.
+
+(Bureau Informant 200) is the symbol number designated for information furnished on a highly confidential basis by CIA and referred to by CIA as "Project Hunter" and the reports emanating from this project. This informant originated in 1/58 and furnished its first Hunter Report in 2/58. As of 6/6/61, we have received Hunter Report number 5005; many reports transmit as many as twelve items, and some reports transmitting up to twenty items. My memo to Mr. A. H. Belmont dated 12/5/60 revealed as of that date 3425 Hunter Reports had been received. You may be interested to learn that in the last seven months we have received 1680 Hunter Reports or almost 50% of the number received from 2/58 until 12/60. On 3/9/61 CIA advised representatives of this Bureau that it had recently established a laboratory in New York City in connection with this project. This laboratory is able to process Hunter material for secret writing, microdots and possibly codes. Our liaison representative advised the laboratory would probably increase the Hunter Report volume to us by 20%; however, from the above figures it appears this increase in volume is far greater than 20%.
+
+A memo W. D. Stewart to W. A. Branigan 2/21/61 re captioned matter recommended and received approval for the utilization of a stamped notation on the front of the Hunter Report permitting the interested supervisor to destroy contents of a Hunter Report if found to be of no value after checking the appropriate block on the stamp indicating his reason for destroying same. Approval to destroy these Hunter Reports was received from CIA which can, if necessary, at a later date reproduce any Hunter Report. A memo from Mr. Belmont 3/3/61 to All Supervisors of the Espionage, Nationalities Intelligence, Internal Security and Subversive Control Sections instructed all recipients re use of above-mentioned stamp. In addition, above memo 2/21/61 received approval for a procedure whereby Hunter Reports would be screened for destruction by substantive desk handling captioned matter prior to sending these reports to Records Section for handling to préclude any indexing or handling which would later be deemed unnecessary if report is destroyed.
+
+(105-93089)
+
+REC-8
+
+JUN. 14 1961
+
+WDS: slj
+
+EX 101

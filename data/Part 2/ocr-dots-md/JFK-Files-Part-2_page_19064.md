@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_19064.png
+
+Convert to MarkdownLetter to SAC, WFO
+RE: FORMER NY 2524-S
+105-28333
+
+SECRET
+
+serve as logical basis for an approach to him in the event you believe an interview necessary or desirable; however, no contact should be made with him without prior Bureau authority.
+
+**NOTE:**
+
+Subject (Sam Jaffe) is former informant of NYO who was directed against Soviets in that city. He recently returned from Hong Kong where he was correspondent for ABC. the Soviet defector known by code word furnished information indicating Jaffe had been approached for recruitment by KGB. during prior assignment in Moscow, USSR. WFO currently reviewing all available material concerning him and in connection with its reinterviews of attempting to clarify some information he previously furnished so that consideration can be made to securing Bureau authority for a comprehensive interview of subject after which a determination can be made as to the advisability of our continuing utilization of him.
+
+SECRET
+
+SECRET
+
+NW 88326 DocId:32989704 Page 358

@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_12717.png
+
+Convert to Markdown(4) Content
+
+(a) Each card in section A and section B should contain, as a minimum, the following:
+
+I. Name and aliases
+
+II. Race
+
+III. Sex
+
+IV. Organizational affiliation or nationalistic tendency
+
+V. Citizenship
+
+VI. Residence
+
+VII. Employment
+
+VIII. Birth data
+
+IX. Office file number
+
+X. Letters "SS" if dissemination has been made to Secret Service in accordance with instructions in section 134B, item 2, volume IV, of this manual
+
+(b) In addition, membership and position or association in a subversive group or groups, together with source and date of information, may be added.
+
+(5) Removal and deletion of cards
+
+(a) Destroy cards on individuals who subsequently become security informants or sources or who subsequently become subjects of security index cards.
+
+(b) [Deleted]
+
+b. Security index
+
+(1) Purpose
+
+(a) Security index cards are prepared and maintained by Bureau to serve as operational guide for apprehension of persons deemed dangerous or potentially dangerous to internal secu- rity of country in event of a national emergency.
+
+(b) It shall contain names of all persons who have been deter- mined through investigation to be dangerous or potentially dangerous because of their membership in or affiliation with or espousal of doctrines of basic revolutionary organiza- tions and/or front organizations or who are black nationa l- ist extremists and who will be apprehended upon receipt of instructions from Attorney General.
+
+(c) It shall include subjects of espionage investigations and any other type of Bureau investigation provided their activ- ities bring them within scope of security index criteria.
+
+(d) Action shall be taken against individuals included in secu- rity index only upon authorization of warrants of arrest by Attorney General.

@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_14301.png
+
+Convert to Markdown# APPENDIX D
+
+## REQUEST PERTAINING TO ELECTRONIC SURVEILLANCE
+
+Please provide the Committee:
+
+1. "Manual for the Conduct of Electronic Surveillance".
+
+2. All memoranda and other materials relating to the maintenance and operation of the so-called "ELSUR" electronic surveillance index.
+
+3. Committee staff access to a list of all warrantless electronic surveillances, identified by subject and target, which were instituted or operated by, for, on behalf of, or at the request of the FBI, from January 1, 1960, until the present.
+
+4. A list of all electronic surveillances, identified by subject and target, of the so-called "Kissinger 17".
+
+5. A list of all electronic surveillances, identified by subject and target, which were instituted or operated by, for, on behalf of, or at the request of, the FBI, and which intercepted and/or monitored any conversations of Martin Luther King, Jr., at any time between January 1, 1960, and April 5, 1968.
+
+6. With respect to each surveillance listed in response to numbers 4 and 5, please provide:
+
+(a) the address of the premises surveilled, and the number of the telephone surveilled;
+
+(b) a generic description of the surveillance technique employed;
+
+(c) all memoranda and other materials reflecting written or oral authorization and re-authorization by the President, the Attorney General, the Director of the FBI, White House officials, or National Security Council officials;
+
+(d) a list of all memoranda and other materials reflecting dissemination outside the FBI of information from each surveillance, stating author, address(s), and dates, together with the purpose of such dissemination.
+
+7. All memoranda and other materials which:
+
+(a) relate to intelligence activities at or in connection with the Democratic National Convention in Atlantic City, New Jersey, in August 1964;

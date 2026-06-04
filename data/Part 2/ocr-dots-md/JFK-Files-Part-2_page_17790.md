@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_17790.png
+
+Convert to Markdown"Individual Identification data including name or names, addresses, photograph (or statement as to availability of such), physical description, date and place of birth, employment, and marital status.
+
+"Organization - Name or names, address or addresses, officers, size, purpose or goals of organization, source of financial support, background data and such other relevant information as may be available.
+
+"Reason for Referral - Statement of the class or classes of information described in Section IV B under which the individual or organization belongs.
+
+"Information in FBI Files - A summary, as appropriate, of pertinent portions of any FBI file on an individual or organization referred.
+
+"FBI Identification Records - The USSS will make specific requests in each instance where a check of the FBI identification records is desired.
+
+"B. Types of information to be referred:
+
+1. Information concerning attempts, threats, or conspiracies to injure, kill, or kidnap persons protected by the USSS or other U. S. or foreign officials in the U. S. or abroad.
+
+2. Information concerning attempts or threats to redress a grievance against any public official by other than legal means, or attempts personally to contact such officials for that purpose.
+
+3. Information concerning threatening, irrational, or abusive written or oral statements about U. S. Government or foreign officials.
+
+4. Information concerning civil disturbances, anti-U. S. demonstrations or incidents or demonstrations against foreign diplomatic establishments.
+
+5. Information concerning illegal bombings or bomb-making; concealment of caches of firearms, explosives, or other implements of war; or other terrorist activity.
+
+6. Information concerning persons who defect or indicate a desire to defect from the United States and who demonstrate one or more of the following characteristics:
+
+a. Irrational or suicidal behavior or other emotional instability.
+
+b. Strong or violent anti-U. S. sentiment.
+
+c. A propensity toward violence.

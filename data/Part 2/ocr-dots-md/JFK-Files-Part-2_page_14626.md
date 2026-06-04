@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_14626.png
+
+Convert to MarkdownMay 26, 1960
+
+STATUS OF JOHN GEORGE LEDES, ET AL.
+FRAUD AGAINST THE GOVERNMENT -
+CONFLICT OF INTEREST
+
+This case relates to the association between
+Ledes, a former legal adviser to Securities and Exchange
+Commission (SEC) Commissioner James C. Sargent and Joseph
+Abrams, a New York promoter of unsavory reputation. We
+completed an extensive investigation which determined that
+Ledes endeavored to assist Abrams with several SEC matters
+while Ledes was still with that agency. Abrams made loans
+to Ledes to finance properties which Ledes purchased.
+
+The attorney for subject Abrams advised his client
+not to talk to us. The attorney for Ledes, James M. Mc Inerney,
+refused to make Ledes available for interview unless he,
+Mc Inerney, is present. We informed the Department and suggested
+that they consider calling Ledes before a Federal Grand Jury or
+interviewing him themselves in Mc Inerney's presence.
+
+On May 13, 1960, Roger Connor, Executive Assistant to
+Assistant Attorney General Wilkey, advised that Joseph Abrams
+had been brought down from Danbury, Connecticut, Federal
+Correctional Institution to Washington, D. C., for appearance
+before a Federal Grand Jury here. The Grand Jury presentation
+by three Department attorneys started that date and is currently
+continuing. Leads growing out of the Grand Jury hearings are
+being received and are currently outstanding in Washington Field
+Office, New York, Atlanta and Miami. These matters are being
+given immediate and continuous attention.

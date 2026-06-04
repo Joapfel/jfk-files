@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_13747.png
+
+Convert to MarkdownSECRET
+(CONFIDENTIAL When Separated
+From Accompanying Documents)
+
+MEMORANDUM FOR LIEUTENANT GENERAL BRENT SCOWCROFT
+THE WHITE HOUSE
+
+Subject: Senate Select Committee Request for Documents on the Cabinet Committee to Combat Terrorism
+
+The Department of State has been asked by the Senate Select Committee investigating intelligence to provide information on the structure and functions of the Cabinet Committee to Combat Terrorism and its Working Group. Because all of the basic documents concerning the CCT are Presidential, we are forwarding them to you for review for possible release to the Senate Committee.
+
+The relevant documents are:
+
+-- Memorandum for the President from Secretary William P. Rogers on September 18, 1972 (the report referred to in the President's Memorandum of September 25, 1972);
+
+-- Memorandum for the Secretary from President Richard M. Nixon on September 25, 1972; and
+
+-- Six reports to the President from the Chairman of the Cabinet Committee to Combat Terrorism (the Secretary of State).
+
+These documents set forth the basic structure and functions of the Cabinet Committee and its Working Group.
+
+There are many functions of the Cabinet Committee and its Working Group discussed in the reports to the President other than the intelligence function being investigated by the Senate Select Committee. We do not see any need for the discussion of these other functions to be withheld from the SSC.
+
+6 JUN 25 1975
+
+SECRET
+(CONFIDENTIAL When Separated
+From Accompanying Documents)
+
+5 JUL 23 1975
+
+N W 88326 DocId:32989611 Page 2
+
+JUL 14 1975
+
+XEROX
+
+RECONCILIATION COPY DELEGATED DECREE 01-1507750532441943701211020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201700221020170022102017002210201

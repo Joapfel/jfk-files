@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_9372.png
+
+Convert to MarkdownDE 157-3075
+
+About 40 to 50 children are being fed at 2435
+Pennsylvania each day.
+
+DE T-4
+September 30, 1971
+
+## 2. Free Lunch Program
+
+A Free Lunch Program was opened at 2591 Pennsylvania in July, 1971, which was attended by only 20 to 25 persons until the Archdiocese began providing box lunches and the attendance jumped to about 150 children.
+
+DE T-4
+July, 1971
+
+The Free Lunch Program is held at 2435 Pennsylvania five days a week from 10:00 a.m. to 1:30 p.m.
+
+DE Tpr
+August, 1971
+
+About 40 to 50 children are being fed each
+day, the Archdiocese is no longer furnishing lunches.
+
+DE T-4
+September 30, 1971
+
+## 3. Free Clothing Program
+
+The Free Clothing Program is operating at 3591 17th Street, Detroit, Monday through Saturday.
+
+DE T-2
+January, 1971
+
+The Free Clothing Program has been discontinued due to lack of funds.
+
+DE T-2
+February 10, 1971
+
+76

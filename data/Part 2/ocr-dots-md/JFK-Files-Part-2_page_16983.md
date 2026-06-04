@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_16983.png
+
+Convert to MarkdownBLACK PANTIER PARTY (BPP)
+
+Brenda Harris, Negro female, age 18, residing at 1848 South Hamlin. Harris received a gunshot wound in the hand and right leg.
+
+Verlina Brewer, Negro female, age 17, residing at 125 West 107th Street. Brewer was wounded in the legs.
+
+Blair Anderson, Negro male, age 18, residing at 6943 South Justine. Anderson received a groin and leg wound.
+
+Ronald (Doc) Satchel, Negro male, age. 19, Deputy Minister of Health, Illinois BPP, listing 2337 West Monroe Street as his address. Satchel was wounded in the right leg, right flank, and right hand.
+
+Deborah Johnson, Negro female, age 19, Lieutenant of Finance, Illinois BPP, listing 2337 West Monroe Street as her residence.
+
+Lewis Trulock, Negro male, age 19, Legal Counsel, residing at 1900 West Jackson Boulevard.
+
+Harold Bell, Negro male, age 23, Captain of Defense, Illinois BPP, residing at 317 Howard Street, Rockford, Illinois.
+
+According to the Police Department source, the individuals arrested will be charged before the Cook County Grand Jury with attempted murder.
+
+Sergeant Daniel Groth, Cook County State's Attorney Police, advised on the above date he had led the other officers in conducting the raid and stated that when he approached the door to the apartment, he knocked and identified himself as a police officer and stated he was in possession of a search warrant to search the premises. Groth stated that upon receiving no response, he repeated his demand for entry and after several minutes had passed, forced the door open. Sergeant Groth stated he was accompanied by four police officers with four additional officers
+
+NW 88613 DocId:32199554
+Page 2480 - 2 / -

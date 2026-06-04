@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_17344.png
+
+Convert to MarkdownBLACK PANTHER PARTY
+
+Hampton reportedly stated "let's start violence. The white man is in power so he can stop it." Hampton also called on blacks to reject capitalism as offered by the white man stating "if a white man offers you black capitalism, don't take it - it's evil if he offers it. He offered slavery."
+
+Diane Dunn spoke of the role of the black woman in the "revolution" stating as follows:
+
+"The role of the black woman is to push her man, to be behind him all the way. Without a woman, he is nothing."
+
+Hampton talked about organizing a BPP in Champaign-Urbana, Illinois at which point John Lee Johnson, a black leader in the so-called "North End" of Champaign, said that everyone who wanted to join should see him. Johnson said that recruiting efforts would be undertaken and asked how many would join at which time a large number of hands were raised.
+
+The January 12, 1969 issue of the "Courier", on page 18, reported that the group of individuals representing BPP, who visited the University of Illinois and the "North End" reportedly left the area on the evening of January 11, 1969 to return to Chicago. It was reported that the purpose of the visit of these individuals to Champaign-Urbana was to recruit local members for the organization. It was further reported that local persons, who were not identified, were contacted for details of the activities and said they could not comment without violating BPP security of the confidence placed in them.

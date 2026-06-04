@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_9470.png
+
+Convert to Markdown"I say hungry children should be fed. Not because they got money but because they're hungry.. This morning the children sitting here at this free breakfast for children program. This is Chairman Bobby Seale's idea. He organized the breakfast for childrens program for you children and you know where Chairman Bobby Seale is right now? He's in Connecticut. There fascist pigs tried to murder him in the electric chair for feeding all the children.
+
+"Now you children know what we are going to do to the pigs for that? Right on. (Group in background replies "Right On.")
+
+"Deputy Chairman Fred Hampton of the Illinois Chapter of the Black Panther Party was murdered in his sleep for implementing the socialistic programs that Chairman Bobby Seale laid down for him. The free breakfast for children program, the free medical health care clinic is why.
+
+"He was murdered in his sleep, you know? (response from group in background "Right On.")
+
+"You can look at, you can look at the pigs and you can see every time somebody tries to help the people are do some for the people or serve the people like the members of the Black Panther Party and National Committees to Combat Fascism do, the pigs will vamp down on them. Pigs will start coming down on them hard. And that shows: you that they're doing their job. But there's a lot of people running around here who call themselves serve the people call themselves so-called revolutionaries, you know. And the pigs they don't care nothing about them. They don't look at them twice. All the pigs do is laugh at them. And you know they ain't doing their job. You know: Revolution comes out the barrel of a gun, not out of the sleeve of no dashaki. Right On? (people in background respond "Right On.")

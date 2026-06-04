@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_10456.png
+
+Convert to MarkdownSECRET
+
+SUBJECT: Contacts With Other U.S. Government Agencies Which Could or Have Resulted In Use of CIA-Developed Technology in Addressing Domestic Problems
+
+### BNDD (cont'd)
+
+BNDD was given permission in the fall of 1972 to receive proposals from Aerospace, Inc., concerning a Radar People Detector developed for ORD.
+
+(Mr. Charles Gaskin, BNDD) Identity 125 /LS)
+
+A prototype bioluminescence sensor was developed for the detection of narcotics for application in Southeast Asia. BNDD was given a demonstration of the instrument.
+
+(Dr. Laster/OST)
+(Mr. Stan Sobel, BNDD)
+
+(Terek/LS)
+
+## USIB Technical Surveillance Countermeasures Committee
+
+Continuing contacts were maintained with the intelligence community regarding technical surveillance countermeasurers and physical security. This exchange of information, reports, and equipment has been conducted under the auspices of USIB TSCC and involves State, FBI, Secret Service, NSA, DIA, Army, AF, and Navy.
+
+(Noe/TA)
+(Noyes/PD)
+
+## State Department
+
+Two contracts for development of countermeasures techniques were funded jointly with the State Department.
+
+(Noe/TA)
+
+00230
+
+SECRET

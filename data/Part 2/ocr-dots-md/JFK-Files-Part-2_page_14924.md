@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_14924.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. DeLoach
+FROM : R. E. Wick
+SUBJECT: DIRECTOR'S LUNCHEON MEETING WITH ACTING ATTORNEY GENERAL RAMSEY CLARK
+1 P.M., FRIDAY, JANUARY 13, 1967
+
+DATE: January 12, 1967
+
+Miss Gandy has advised that in connection with Mr. Hoover's luncheon meeting with the Acting Attorney General tomorrow, it would be helpful if we could set forth for the Director's information any items which might come up for discussion.
+
+The attached data prepared by the various Divisions throughout the Bureau may be helpful to Mr. Hoover in connection with the luncheon meeting.
+
+Enclosures
+
+1 - Mr. DeLoach
+1 - Mr. Callahan
+1 - Mr. Gale
+1 - Mr. Sullivan
+1 - Mr. Rosen
+
+REW:par
+(7)
+
+"ENCL. BEHIND FILE"
+
+5 FEB 2 1967
+
+CRIME RESEARCH
+
+S2FEB1131967
+
+NW 88613 DocId:32199554 Page 421

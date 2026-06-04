@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_14407.png
+
+Convert to Markdown30 April 1975
+
+Staff Members of the Senate Select Committee on Intelligence Activities who have received a security investigation by the Federal Bureau of Investigation within the past five years and are certified as meeting requirements of EO 10450 for access to classified information up to and including Top Secret.
+
+| NAME | DATE & PLACE OF BIRTH | SOC. SEC. NO. |
+|---|---|---|
+| Belva Brissett | 6-23-41 | Oklahoma | 440-44-6374 |
+| Margaret Carpenter | 8-27-44 | California | 555-62-6129 |
+| Joan Erno | 8-30-46 | D. C. | 215-46-2988 |
+| Arthur Harrigan | 3-16-44 | New York | 141-34-1031 |
+| Diane LaVoy | 11-10-48 | Venezuela | 165-40-3119 |
+| James Rowe | 6-6-51 | D.C. | 579-62-6719 |
+| Elizabeth Smith | 6-21-49 | New York | 076-42-0199 |
+| Martha Talley | 9-7-50 | No. Carolina | 245-88-1368 |
+
+ENCLOSURE
+
+NW 88296 DocId:32989532 Page 158

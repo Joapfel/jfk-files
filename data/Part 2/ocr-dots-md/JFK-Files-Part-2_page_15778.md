@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_15778.png
+
+Convert to MarkdownDAVID HILLIARD
+
+Copies of this memorandum are being furnished to the following agencies:
+
+United States Attorney, Chicago, Illinois.
+
+United States Secret Service, Chicago, Illinois.
+
+Office of Special Investigations, Chicago, Illinois.
+
+United States Naval Investigative Service Office, Chicago, Illinois.
+
+Region 1, 113th Military Intelligence Group, Evanston, Illinois.

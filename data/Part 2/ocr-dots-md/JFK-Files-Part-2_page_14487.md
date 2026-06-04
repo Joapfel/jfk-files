@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_14487.png
+
+Convert to MarkdownProject Hunter
+
+as possible. In particular, if it is evident paper from which copy is to be made is not type to give a good reproduction, it would be appreciated if a notation concerning name and address of United States recipient or sender could be made from original. Frequently, information of interest is received but United States person's name on reproduction is indistinguishable and information becomes of no value.
+
+V LIST OF PERSON DESIRED ON THE WATCH LIST AS OF AUGUST 18, 1961
+
+| NAME | ADDRESS |
+|---|---|
+| BERLAND, MARK V. | Flat 15 Lasvinskaya St. 11 Perm 24, USSR |
+| FOSTER, WILLIAM Z. | Apartment 6B, 1040 Nelson Avenue, Bronx, New York |
+| HASKELL, ROY | 12 Crown Street Brooklyn, New York |
+| KAHN, ALBERT EUGENE | 1302 Henno Way, Glen Ellen, California |
+| KOVOLENKO, V. P. | General P. O., Kiev I, USSR |
+| PECHTER, BERNARD DAVID | 2161 Shattuck Avenue Berkeley, California |
+| ROBERTS, HOLLAND DEWITTE | 383 Hadonia, Palo Alto, California. During Week Days - 787 Castro Street, San Francisco, California |
+| SUCHOBECK, ALEX (NMI) | 1315 Lincoln Avenue, Pacific Grove, California |
+
+SECRET,
+
+-3-

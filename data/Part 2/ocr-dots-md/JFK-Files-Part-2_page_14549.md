@@ -1,0 +1,57 @@
+# JFK-Files-Part-2_page_14549.png
+
+Convert to Markdown# Office Memorandum • UNITED STATES GOVERNMENT
+
+**TO :** Mr. A. H. Belmont
+**DATE :** June 2, 1958
+**FROM :** Mr. R. R. Roach
+**SUBJECT:** INTELLIGENCE COVERAGE OF DIPLOMATIC REPRESENTATIVES OF FRIENDLY FOREIGN NATIONS
+Reference is made to the memorandum from Mr. Donahoe to you dated May 26, 1958, in the above-captioned matter.
+Liaison was instructed to contact the Department of State and orally clear our intentions to explore the possibility of developing sources and informants on carefully selected bases at the Israeli diplomatic establishments. It was also recommended that we clearly point out to State that we intend to seek State clearance for each investigation and each interview.
+
+**Tolson**
+**Nichols**
+**Boardman**
+**Belmont**
+**Mohr**
+**Parsons**
+**Rosen**
+**Tamm**
+**Trotter**
+**Nease**
+**Tele. Room -**
+**Holloman -**
+**Gandy**
+
+Instant matter was discussed on May 29, 1958, with Mr. J. P. McDonnell, Bureau of Security and Consular Affairs, Department of State. At that time he advised that he would discuss this matter with the Israeli Desk Officer and would advise the Bureau as soon as possible. On June 2, 1958, Mr. McDonnell advised Mr. Bartlett of the Liaison Section that State has no objection to the Bureau's proposed course of action of attempting to develop sources and informants at the Israeli diplomatic establishments in the United States. Mr. McDonnell pointed out that State feels that the U. S. citizens who are hired by the Israelis to work at their diplomatic establishments in the United States are given employment only after careful consideration of their nationalistic tendencies; that State feels that most of the U. S. citizens hired by the Israelis are pro-Israeli in their thinking and as a result the Bureau should proceed with caution. Mr. McDonnell further stated that the Bureau should check with State for clearance prior to investigation and interview. Mr. Bartlett advised Mr. McDonnell that this definitely would be done.
+
+**ACTION:**
+
+For information.
+
+OHB:bjt ljg
+(9)
+
+REC-11
+EX-101
+
+23 JUN 5 1958
+
+1 - Mr. Belmont
+
+1 - Mr. Donahoe
+
+1 - Mr. Mossberg
+
+1 - Liaison Section
+
+1 - Yellow 65-58190 (Israeli Consulate, New York City)
+
+1 - Yellow 105-10828/(Israeli Embassy, Washington, D. C.)
+
+1 - Yellow 62-77787-345 (Israeli Delegation to the UN)
+
+1 - Mr. Bartlett
+
+NEW 88613
+DocId:32199554 Page 46

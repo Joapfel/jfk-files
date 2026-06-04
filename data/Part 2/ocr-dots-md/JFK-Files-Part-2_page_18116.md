@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_18116.png
+
+Convert to MarkdownThe Attorney General
+
+NOTE:
+
+Issue raised by the SSC here is that they have detected in their investigation of the Internal Revenue Service and through review of Cointelpro documents furnished to them by the FBI instances relating to FBI use of tax return information. Included in this material were a number of cases in which the FBI locally requested and, according to the documents, received tax returns or tax return information from Internal Revenue Service employees. Earlier the SSC had sought to interview individuals who assisted us in several of our Cointelpro operations. We successfully resisted these attempts to obtain the identities of such individuals and our assent to such interview by the SSC. We were sustained in our position by the Attorney General. Our position was based on the fact that we considered that we had an obligation, expressed or implied, of confidentiality toward such sources who had acted on our behalf.
+
+The SSC now raises a question as to whether our
+position concerning contacts with and identities of employees
+of the Internal Revenue Service is the same as with the
+"confidential sources." For the reasons cited in our letter
+we do not believe it would be possible to sustain such an
+argument.

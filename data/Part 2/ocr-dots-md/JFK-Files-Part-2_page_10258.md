@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_10258.png
+
+Convert to Markdown21 JUN 1972
+
+Foreign Support for Activities Planned to Disrupt
+or Harass the Democratic National Convention
+
+There are no additional indications, as of this date, of foreign plans or efforts to inspire, support, or take advantage of activities designed to disrupt or harass the National Convention of the Democratic Party in Miami, Florida, 10-13 July 1972.
+
+00574

@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_17332.png
+
+Convert to MarkdownEMERGENCY CONFERENCE TO DEFEND
+THE RIGHTS OF THE BLACK PANTHER PARTY
+TO EXIST (ECD) (BPP)
+
+pulled out of the apartment, kicked and cursed by the police, even though he was badly wounded.
+
+Another survivor of the raid was Harold Bell from Rockford, Illinois. He stated that he had been pulled from the room before he could come to the assistance of Fred Hampton. Blair Anderson, a former BPP member and a survivor of the raid stated that he had been beaten and cursed by the police even though not wounded. Deborah Johnson, another survivor of the raid testified that she had been in the back room of the apartment with Fred Hampton and that as Hampton raised his head he was shot by the raiders. She testified that it was possible that Hampton was asleep when he was killed.
+
+Donette Brewer, another survivor of the raid testified that in addition to being kicked and cursed, even though wounded she fell from a stretcher as the raiders roughly carried her down the steps of the apartment.
+
+Louis Truelock, another survivor of the raid did not testify before the "Inquest".
+
+Sources five and six stated that the "coroner" pronounced that the "jury" had found the EPP survivors innocent of any crime and that the raiders were guilty of murder. The "coroner" reportedly remarked that we the people now ask for appropriate action by the state and hold States Attorney Edward Hanrahan and his police in contempt of the people.
+
+Both sources stated that the "inquest" was actually a complete farce and could not have been accurate as to detail inasmuch as it was based entirely on information of the survivors of the raid.
+
+CONFIDENTIAL
+
+NW 88613 DocID:32199554
+Page 2829

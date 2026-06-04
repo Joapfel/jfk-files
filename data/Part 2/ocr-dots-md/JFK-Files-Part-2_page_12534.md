@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_12534.png
+
+Convert to Markdown(2) Informants and sources should not be directed by FBI to join or participate in activities of target organization. However, if subversive group requests informant to do so, latter may comply.
+
+(3) Be certain all persons interviewed, including informants, are aware that FBI is not interested in normal activities of target organization but solely in efforts to influence or control the organization by subversive elements.
+
+d. Conversion to full scale investigation
+
+If target organization becomes completely dominated and controlled by subversive elements, advise FBIHQ on UACB basis that full investigation is being initiated as subversive organization. Drop infiltration designation from title of case.
+
+5. Subversive publications
+
+Each office should review such publications produced in its territory to determine whether any advocate subversion, violence, or violations within FBI jurisdiction. If so, submit available information by LHM to FBIHQ with copy of pertinent material and make recommendations as to further action. Insure that FBIHQ is aware of all subversive publications with brief identifying data.
+
+6. Investigative steps
+
+Efforts should be made to develop reliable informants at all levels and in all segments of subversive organization.
+
+Live informant coverage should be supplemented by other logical investigation including review of appropriate public records and publications, interviews with former members of group and, on selective basis, through such techniques as physical and photographic surveillance.
+
+7. Administrative and reporting procedures
+
+a. Reporting requirements and status
+
+When necessary data has been developed concerning organization's activities (See B. 2. above), submit report. After initial report, reports should be submitted semiannually (unless FBIHQ has instructed otherwise in individual cases). LHM may be used to provide FBIHQ or other interested agencies with significant data of immediate interest on an interim basis between reports.
+
+b. Informant coverage
+
+Cover pages of reports should include a brief summary of informant coverage available with respect to the organization, identifying informants who report on the group's activities by symbol number and showing specifically which informants are members of the group.
+
+c. Topical headings
+
+Both reports and LHMs should be organized under logical headings.
+
+d. Character
+
+All cases should use character "Internal Security," e.g., "Communist Party, USA; Internal Security." In case of subsidiary or front group, character should show name or abbreviation of the parent organization, e.g., "Young Workers Liberation League, Internal Security - CPUSA"; "Young Socialist Alliance, Internal Security - SWP." Caption of subversive infiltration cases should include name of subversive group and target organization, e.g., "Infiltration of (Name of target organization) by Socialist Workers Party, Internal Security - SWP."
+
+e. Classification - 100
+
+8
+
+6-6-73
+
+NW 88321 DocId:32989529 Page 1868

@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_18680.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: Senstudy 75
+62-116395
+
+instructed to insure that the interview of Mitchell was conducted in a most discreet and thorough manner. They were instructed to submit this evening a nitel summarizing results of the interview followed immediately by an LHM suitable for dissemination setting forth in detail results of the interview.
+
+At 2:15 p.m., 8/6/75, SA Stukey called advising that he had telephonically contacted Mitchell and arranged for an interview of her at her residence at 6:00 p.m., 8/6/75.
+
+ACTION:
+
+None. Above submitted for information. You will be advised of results of interview along with recommendation for additional action to be taken in this matter.

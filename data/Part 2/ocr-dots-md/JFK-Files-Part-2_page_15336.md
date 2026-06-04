@@ -1,0 +1,80 @@
+# JFK-Files-Part-2_page_15336.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Tic: mall
+.igan
+A. Belmont
+Mr. Boardman
+
+December 6, 1956
+
+The Attorney General
+
+Director, FBI
+
+INTELLIGENCE COVERAGE
+OF FRIENDLY COUNTRIES
+
+As a result of action taken by this Bureau over
+a year ago, we, at the present time, have a well-functioning
+program designed to produce positive intelligence infor-
+mation in this country concerning various foreign nations.
+This intelligence information relates to the policy which
+these foreign nations are pursuing or developing in
+connection with various international matters.
+
+With the development of the recent crises in
+the Middle East and Eastern Europe we found that our efforts
+in this field were especially rewarding. Through numerous
+sources which have been established during the past year we
+secured voluminous intelligence data which were given within-
+the-hour dissemination to other Governmental departments and
+officials.
+
+Deputy Under Secretary of State Robert Murphy has addressed a letter to me concerning some of the intelligence information which has been sent to the Department of State during recent weeks. Mr. Murphy commented as follows:
+
+"I want to express the Department's appreciation to you and the Bureau for the special coverage which you have been providing us during these recent weeks. The material has been immensely valuable to us in keeping abreast of fast-moving events and developments. in the international situation and has been of great assistance to us in the formulation of policy."
+
+In view of the keen interest you have expressed in the past in the operations of this Bureau, I felt that you would like to be advised of the above.
+
+65-63113
+
+WRW:pbb
+(7)
+
+Tolson
+Nichols
+Boardman
+Belmont
+Mason
+Mohr
+Parsons
+Rosen
+Tamm
+Nease
+Winterrowd
+Tele. Room
+Holloman
+
+DEC 1
+
+NW88613 DocId:32199554
+
+CONFIDENTIAL
+
+<table>
+  <tr>
+    <td>MAILED</td>
+    <td>5</td>
+  </tr>
+  <tr>
+    <td>DECE 6, 1956</td>
+    <td></td>
+  </tr>
+  <tr>
+    <td colspan="2">COMM-FBI</td>
+  </tr>
+</table>
+
+Page 833

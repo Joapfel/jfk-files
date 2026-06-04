@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_11141.png
+
+Convert to MarkdownThe Communist Party, USA, is divided into district and state organizations, then into county, city, section, and club organizations. The number and nature of these subdivisions are dependent on the number of members in the various localities. Every party member must belong to a party club.
+
+The Communist Party strategy and policy is based primarily on the loyal support and defense of the Soviet Union. The party line changes from time to time depending upon the current program of the international communist movement.
+
+**b. Socialist Workers Party**
+
+The Socialist Workers Party was founded at a convention held in Chicago, Illinois, from 12-31-37 to 1-3-38. The present headquarters are located at 116 University Place, New York 3, New York. The following statements are taken from the "Declaration of Principles and Constitution of the Socialist Workers Party" which was adopted at this convention:
+
+"The purpose of the party is set forth in its declaration of principles: Its purpose shall be to educate and organize the working class for the abolition of capitalism and the establishment of a workers' government to achieve Socialism." (From article II under the caption "Purpose.")
+
+"We call upon all revolutionary militants to join with us to build the SWP into the mass revolutionary party which will lead the working class of the United States to power; and which, together with the revolutionists of all countries united in the Fourth International, will achieve the victory of the international revolution and of world Socialism."
+
+"The main specific task of the SWP is the mobilization of the American masses for struggle against American Capitalism, and for its over-throw..." (Part III of above pamphlet.)
+
+Shortly after the Fourth International was founded in Switzerland on 9-3-38, the Socialist Workers Party in the U. S. announced that it was the "American Section" of the "world party of the Socialist revolution" (Fourth International). At a special convention on 12-21-40, the Socialist Workers Party passed a resolution ending its organizational connection with the Fourth International (because of the passage of the Vorhis Act).
+
+This organization follows the 'exist-Leninist-Trotskyist line.' Statements made by functionaries indicate that in the event of war between the U. S. and the Soviet Union, the Socialist Workers Party would defend the latter.
+
+c. [Deleted]

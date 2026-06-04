@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_16735.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+
+Date: January 16, 1970
+
+On January 9, 1970, photographs were taken of户 door and rear entrance and porch of building at 2335 West Monroe, Chicago, Illinois. Present during filming were Special Agents *JESSE H. QUEEN*, U.S. Department of Justice Attorney, and a resident of this address.
+
+1/9/70 a: Chicago, Illinois
+File:
+
+by:
+
+Date dictated: 1/12/70
+
+NW 88613, DocId:32199554
+Page 42 of 645
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to you by Distribution outside your agency.

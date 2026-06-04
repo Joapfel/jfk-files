@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_11994.png
+
+Convert to Markdown12. **Bull. 316:** Submit by informant
+
+When an .source submits bulky material other than a statement and . . . that is so bulky and important to a specific investigative matter, bulky material may be f. in the . . . case file, together with a copy of executed form ...-306 or . . channelizing memorandum containing all applicable items set forth on for . FD-306. In such a case, the original form FD-305 or channelizing memorandum should be filed in the subfile of the informant or source and the file and serial number where the bulky material is located should be noted thereon.
+
+N. PAYMENTS TO INFORMANT AND HANDLING MONEY RECEIVED
+
+1. No gifts to informants
+
+a. Gifts should . . . be given to informants since such actions might be misconstrued.
+
+b. Relationship between Agents and informants shall be maintained on
+a businesslike basis.
+
+[Deleted]
+
+Investigative employees must not approach, directly or indirectly, representatives of companies, . . . state industries, or insurance companies and request assistance regarding payments of money, goods or products of such companies to informants.
+
+2. Payments to autorities to pay informants
+
+a. . . . special information in which it is necessary and expedient to . . . spend more time and effort in ascertaining information concerning matters of persons under investigation . . . . which is not otherwise obtainable, . . . to advance . . . expense mons. . . . . . . individual to obtain such information, . . . may apply for $200 or . . . no.d. . . . regardless of the number of . . . amounts up to $200 and totaling not more than $200 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .

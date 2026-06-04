@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_16299.png
+
+Convert to Markdown## 11. REVOLUTIONARY SOLIDARITY
+
+Revolutionary solidarity with all oppressed peoples of all countries and races defeats the divisions created by the narrow interests of cultural nationalism.
+
+Monopoly capitalism and corrupt Russian-socialism are enemies of the interests of the oppressed people throughout the world.

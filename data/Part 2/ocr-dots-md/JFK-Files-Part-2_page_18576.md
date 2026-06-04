@@ -1,0 +1,150 @@
+# JFK-Files-Part-2_page_18576.png
+
+Convert to MarkdownTHE DIRECTOR OF CENTRAL INTELLIGENCE
+
+WASHINGTON, D. C. 20505
+
+Intelligence Community Staff
+
+DCI/IC 75-2614
+11 August 1975
+
+MEMORANDUM FOR: Members of the USIB Ad Hoc Coordinating Group
+
+SUBJECT : Security Clearances
+
+Attached is an updated listing of staff personnel certified by the Staff Director/Senate Select Committee as meeting the requirements of Executive Order 10450 for access to classified information up to and including TOP SECRET. Some of these individuals have been certified as meeting the requirements of DCID 1/14 and have been provided the appropriate briefing.
+
+EX-IU!
+
+REC-26
+
+Jack E. Thomas
+Major General, USAF (Ret.)
+Chief, Coordination Staff/ICS
+
+Attachment
+
+AUG 14 1975
+
+ENCLOSURE
+
+84 AUG 1 8 1975
+
+NW 88326 DocID:32989627 Page 174
+
+<table><tr><td>10-10-00</td></tr><tr><td>SP 2 Alm 1/76</td></tr></table>
+
+#MDR16
+
+## MAR 17 1976
+
+APR 17 AM 17/76
+
+SP 2 Alm 1/76
+
+SP 2 Alm 17/76
+
+#MOR16
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+SP 2 ALM 17/76
+
+SP 2 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+SP 2 ALM 17/76
+
+SP 2 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR 17 ALM 17/76
+
+APR

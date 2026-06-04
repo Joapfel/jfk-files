@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_10665.png
+
+Legal Attache in Bonn whose function would largely be
+to travel weekly to West Berlin in order to prepare the FBI's
+case for a permanent presence there.

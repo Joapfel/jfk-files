@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_15712.png
+
+Convert to Markdownfrom the gun. The Black Panther Party has a political program which it would like to see enacted for the benefit of black people. See below for the program.
+
+## WHAT IS THE STATUS OF THE BLACK MAN IN AMERICA TODAY?
+
+Eldridge Cleaver, Black Panther Minister of Information has stated that the black man is a colonial subject and that black America is a colony within white America. The fact that the colonial subjects are dis dispersed throughout the country does not make their colonial sub- jugation any the less real. Cleaver has stated that: "Black people in North America have always been colonies by a dual status. We were both slave and Christian, we were both free and segregated, we are both integrated and colonized. In the past this duality has worked to our disadvantage. It kept us running around in circles. Today we propose to turn it to our advantage, in the manner that we have turned our blackness from a disadvantage into a rallying point of advantage."
+
+Huey Newton has said that the black man in America today is a man of confusion. He is of the lower socio-economic background. He has withdrawn from his hostile environment which he daily faces and denies his own ability. He has been taught that he is inferior and he blames himself. He tries to change this image through his style of life - his desire for flashy material possessions. He is asked to resect a law which does not resnect him. Those who believe in cultural nationalism try to answer his problem by turning him back to the time of the eleventh century in Africa. However, his free- dom cannot come from such an identification. His freedom will come from identifying with the revolutionary struggles of neopole of color all over the world, including Africa today. The black man, accord- ing to Cleaver, has a common culture and a common history. All the blacks to be a nation is land.
+
+### What is the History of the Black Man in America?
+
+The history of the present attitude of the whites toward blacks in this country has deep psychological roots, according to Newton. It dates to the time, hundreds of years ago, when the white Europeans first came into contact with black Africans. It relates to cultural differences. The Europeans who came to Africa worshipped one god - a god who was all-good. This was his absolutism. Man was said to have been created in the image of the all-good god and therefore could do no evil. Man's instinctual sexual drives were deemed ungod-like and were repressed. Such evil was deemed to come from outside man- the result of demons, devils, and witches - who were burned at the stake.
+
+On the other hand, the Africans below the Sahara, mostly black, had a different form of worthin. Their god was both good and bad. They believed in dualism. Their god had two or more heads - one good and one bad. The African had to avoid being like the bad head and must get into the favor of the good head. However, he did not deny part of his being as coming from outside himself. Thus, his sexual drives were part of him - not evil demons from the outside.
+
+When the Europeans came to Africa they enslaved the blacks south of the Sahara who believed in dualism. They were told by the church that the "good" Africans north of the Sahara, who believed in a single god, were more in line with the European belief and should not be enslaved.

@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_10760.png
+
+Convert to MarkdownPH 52-7165 SUB S
+
+and a Commonwealth of Massachusetts driver's license number
+017387913.
+
+In subject's right pocket:
+
+Four single dollar bills, five quarters, seven
+nickels, four dimes, and 12 pennies: one cylinder type
+cigarette lighter; one black comb; one Parliament cigarette
+filter tip.
+
+Around subject's neck a black metal cross on a
+Black string.
+
+Total monies seized $14.12.
+
+The following items were immediately returned to
+
+INNESS:
+
+One black comb and a pack of Parliament cigarettes.
+
+The pale green cigarette pack holder is designated
+#1 and is imprinted on the front with the letter "C" in
+silver. Inside on the front flap the following names were
+written in blue ink:
+
+"LORETTA" with the number "893-6008"; "FLYM" with
+the number "492-5093"; the Massachusetts driver's license
+is designated #2 and contains the following information:
+
+License number 017387913, expiration date November 6,
+1974, name INNESS MARGARET M., 118 Alcott Road, East Falmouth,
+date of birth November 6, 1944, and contained the signature
+and picture of subject thereon.
+
+The cigarette lighter is assigned #3 and is of the
+cylinder type with a red body, gold ends and named "Dispozalite";
+the black metal cross with black string is designated #4
+and the Parliament filter tip is assigned #5.
+
+The subject was stripped searched in the women's
+restroom, fifth floor by FBI Clerk TRUDY CROUTHARMEL. Miss
+CROUTHARMEL noted no weapons or evidence on the person or
+in the clothing of subject.
+
+Subject was then read a copy of the "Advice of
+Rights" form and furnished a copy of said from to read
+herself. Subject stated she understood her rights and

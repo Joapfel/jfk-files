@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_12148.png
+
+Convert to Markdown4. Contacts by Agents
+
+a. Informants should be contacted as often as necessary, but at least one personal contact should be made every two weeks. If such frequent contacts cannot be established, obtain specific Bureau authority for exception to this requirement.
+
+b. During each contact, carefully review informant's activities since previous contact and make certain informant has furnished all information which he has obtained since last contact.
+
+c. Contacting Agent should not only collect information but direct informant, be aware of his activities, and maintain such close relationship that he knows informant's attitude towards Bureau. Good judgment must prevail in handling informant to see he does not become too familiar with Agent. Promptly advise Bureau of any indication informant is wavering in Bureau relationship.
+
+d. Arrangements for paying informant or personally contacting him must be specific and no doubt should be left in minds of either Agent or informant as to methods of payment, amount, place, and time.
+
+e. Informants should use only public telephones in communicating with contacting Agent and consideration should be given to furnishing informants nonpublished office telephone number for emergency communication.
+
+f. Positive information received from informant should be subject of written statement by informant or memorandum prepared by contacting Agent to be placed in informant's subfile and appropriately channelized.
+
+g. Record dates of all contacts, whether negative or positive, in informant's administrative file. Memorandum or form FD-209 may be used. If informant contacted frequently, one memorandum or form may be used for several contacts.
+
+h. Dates of negative contacts and file numbers of cases involved must appear in informant's administrative file. Where file has more than one subject, name of subject under inquiry should be noted. Do not set forth title of case involved.
+
+i. If positive information received from informant, show only dates of contacts in informant's administrative file. Place positive information in informant's subfile and appropriately channelize same.
+
+j. Alternate Agent should be designated for contacts with informant and should be thoroughly acquainted with informant so that contacts may be handled by alternate Agent where necessary.
+
+5. Checking reliability
+
+a. Reliability of all active informants must be constantly checked.
+
+b. Give consideration to use of any investigative technique deemed necessary to be certain they are completely reliable and are furnishing accurate, truthful information.
+
+6. Fingerprints
+
+a. After informant has been developed and unless some reason to contrary exists, obtain and forward his fingerprints to Identification Division if they are not on file there.
+
+b. If informant refuses, do not force issue.
+
+c. Forward informant's fingerprints as enclosure to FD-165 using applicant-type fingerprint card, form FD-258, fully executed. Appropriate field office should be shown as contributor, field case file number in number space, and "inquiry" in space for "company and address" on face of card.

@@ -1,0 +1,66 @@
+# JFK-Files-Part-2_page_18363.png
+
+Convert to MarkdownTELETYPE
+
+URGENT
+
+TO: SAC, DENVER
+ADIC, LOS ANGELES
+
+FROM: DIRECTOR, FBI
+
+SENSTUDY 75
+
+1 - Mr. Mintz
+1 - Mr. Wannall
+1 - Mr. Cregar
+1 - Mr. Hotis
+1 - Mr. Daly
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/17/75 BY SP2ALMelg
+
+THE SENATE SELECT COMMITTEE HAS REQUESTED THAT SPECIAL AGENTS IN CHARGE THEODORE F. ROSACK AND RALPH J. RAMPTON BE MADE AVAILABLE IN WASHINGTON, D. C., FOR INTERVIEW BY THAT COMMITTEE ON 9/23/75. THE INTERVIEW WILL INVOLVE SACS RAMPTON'S AND ROSACK'S KNOWLEDGE OF THE BUREAU'S INVESTIGATION OF MARTIN LUTHER KING, JR., THE SOUTHERN CHRISTIAN LEADERSHIP CONFERENCE, STANLEY DAVID LEVISION, AND COMMUNIST INFLUENCE IN THE RACIAL MOVEMENT. SACS RAMPTON AND ROSACK SHOULD ARRANGE TO ARRIVE IN WASHINGTON, D. C., IN TIME TO BE BRIEFED BY A REPRESENTATIVE OF THE LEGAL COUNSEL AND INTELLIGENCE DIVISIONS AT 9 A.M., 9/23/75, IN ROOM 4509 OF THE JUSTICE BUILDING.
+
+FEDERAL BUREAU OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+SEP 18 1975
+
+NOTE: Michael Epstein, Senate Select Committee Staff Member, made the request for the interviews of SACs Rampton and Rosack concerning their knowledge of the Bureau's investigation of Martin Luther King, Jr., the Southern Christian Leadership Conference, Stanley David Levison, and Communist Influence in the Racial Movement. This communication will serve as approval for the waiver of the existing employment agreements signed by SACs Rampton and Rosack for purposes of this interview.
+
+PVD: lad 1AD
+
+(13)
+
+MAIL ROOM ☐ TELETYPE UNIT ☑
+
+GPO : 1975 O - 569-920
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Phone Rm:
+For Secy ☐
+
+WOWTHUG K. DOBY
+JBL
+
+J. E. Pen.
+
+KIMMY 88326 DocId:32989653 Page 361

@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_11255.png
+
+Convert to Markdownfellow office territory, the name and title of each Negro included in this total who maintains a national level position, and the name and title of each Negro included in this total who maintains a district level position above the status of "club chairman." Members of the Communist Party, USA, who are now carried as unidentified but who are known to be members of the Negro race should be included in the total number of Negroes.]
+
+When possible, totals should be broken down as to nationality, sex, employment, veterans, and membership in unions. Auxiliary offices which, due to lack of Communist Party activity in their divisions, have been authorized to submit data by quarterly letter should include membership figures in these letters to the Bureau and office of origin. These letters to be submitted by auxiliary offices prior to first day of month in which quarterly report is due. Office of origin responsible to obtain complete figures from its auxiliary offices.
+
+(b) In preparing estimates, best available informants and sources must be used. Include in cover pages of quarterly reports evaluation of degree of reliability of figures furnished by each source and of final figures submitted. Also include in cover pages total number of individuals positively identified as Communist Party members and total number of individuals tentatively identified as party members within the twelve-month period immediately preceding the submission of the quarterly report. In reporting membership figures, information from one source only is not acceptable unless facts are set forth demonstrating information from this source is the most accurate and most reliable information available.
+
+(o) Explain in detail any increase or decrease in membership figures previously submitted. Where informants use such terms as "inactive" or "paper" members, their exact understanding of the meaning of the terms used and the number of individuals so described must be clearly explained. Full explanation must be made as to whether individuals so described are included in final membership figures submitted, together with reason for their inclusion or exclusion.
+
+(d) Results of membership recruiting drives
+
+(e) Make discreet efforts to ascertain results of annual national registration drives.
+
+(3) Funds (Bureau file 100-3-63)
+
+(a) Income and expenditures
+
+(b) Plans and results of fund drives including:
+
+I. Total amount sought by the state Communist Party organization
+
+II. Specific amount to be contributed by the state organization to the national committee fund drive
+
+III. Specific amount to be contributed by the state organization to "The Worker" fund drive
+
+IV. Specific amount to be retained by the state organization after contributing to the national committee and "The Worker" fund drives for use in the state organization's own operations
+
+(o) Large contributions by known party groups or front organizations
+
+(d) Identity of any new party "angels"
+
+(e) Distribution of funds not sent to Communist Party headquarters, such as funds in safe-deposit boxes, separate bank accounts, etc.
+
+(f) Any special padding of expense accounts by Communist Party functionaries should be reported.
+
+7
+
+10-14-63
+
+NW 88321 DocId:32989529 Page 589

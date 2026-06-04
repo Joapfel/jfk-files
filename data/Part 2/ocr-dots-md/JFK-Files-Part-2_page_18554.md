@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_18554.png
+
+Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF FORMER FBI SA BY SSC
+
+Statement of John M. Hatter
+
+when I was first assigned to the Radio Engineering Section (hereinafter Re SEC), and how long I was in that Section. He asked how I would describe my particular kind of work and I told him "security work" in the Security Unit in which I ultimately became Unit Chief. He inquired if I was assigned to other than the Re SEC and I advised that when I first reported on duty in the Laboratory in 1944, it was the Electrical Section, but that about two or three years later that Section was merged with the Re SEC. He asked and was told that the Chief of the Re SEC at the time was I. W. Conrad, who later became Assistant Director of the Laboratory.
+
+After about 10 minutes, Epstein started to question me as to what Units existed in the Re SEC, what type of work was done in the Units and who was working with me in my Unit, explaining that he was trying to get an idea of how the Re SEC was set up and where an investigation of MLK-type would fit into that Section. I asked for and was granted permission to see the FBI consultation representative who accompanied me. When advised by me of this line of questioning, the representative told me to supply such information as to the Re SEC's set-up and the name of any Agents in my Unit. On returning to the interview, Epstein then produced an FBI organizational chart from the position of Director on down through the individual units in the sections under each division (this chart appeared to be one issued after my retirement in May, 1971). He called my attention to the Re SEC and the Units listed thereunder, all of which dealt with radio matters except one which was listed as "Evidence Examinations." I advised him that my work fell into the latter and that all other units listed had to do with some phase of radio communications used throughout the Bureau. I furnished him at his request the following names of persons who had worked with me in "security matters" during 1960 to 1968, which he named as the period in which he was interested:

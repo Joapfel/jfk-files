@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_15575.png
+
+Convert to MarkdownLH
+
+# Church Predicts Change
+
+In the case of the Trinity church, investigators learned that the Panthers took over the building. The pastor left in January and the building is now open only for Sunday services.
+
+The Rev. Kenneth Young, an official of the Missouri synod's northern Illinois district of the Lutheran church, refused to comment on reports that the Panthers had been asked to vacate the building last Saturday.
+
+I have no comment at this time", he said. But there may be some developments concerning the building next week.
+
+The breakfast-for-children program was started by the Panthers national headquarters in Oakland last April, and several feeding centers were established in the San Francisco bay area.
+
+However, authorities on the west coast told The Tribune that only small numbers of children are being fed there.
+
+This source advised on October 6, 1969, that he had determined that FRED HAMPTON, Deputy Chairman of the Illinois Chapter of the BPP, Chicago, Illinois, had informed representatives of the National Chapter of the BPP in California that the BPP in Chicago was encountering some problems in connection with the establishment of their health clinic. It was the sources understanding in that regard that HAMPTON had remarked that the Vice Lords, a Chicago West Side Youth Gang, had disrupted activities at the health clinic that day and in thatconnection had ordered the Minister of Health of the Chicago BPP Chapter and an electrician performing work at the clinic to leave the establishment that afternoon. HAMPTON according to the source, had indicated that the clinic was not open as some work had to be done prior to its opening.

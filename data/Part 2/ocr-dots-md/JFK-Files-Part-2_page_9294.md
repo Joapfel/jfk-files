@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_9294.png
+
+Convert to MarkdownDE 157-3075
+
+DE T-7 is
+NY 7034-E
+
+> **INFORMANTS**
+
+DE T-8 is
+CG 7392-E
+
+> CONFIDENTIAL
+SOURCES
+
+DE T-9 is
+CSDE 2116-E
+
+DE T-10 is
+CSDE 2580-E
+
+DE T-11 is
+a well placed source
+
+DE T-12 is
+DE 347-E
+
+> **INFORMANTS**
+
+DE T-13 is
+DE 1339-E
+
+DE T-14 is
+NY 6155-E
+
+C*
+
+Cover Page
+
+NW 88296 DocId:32989574 Page 203

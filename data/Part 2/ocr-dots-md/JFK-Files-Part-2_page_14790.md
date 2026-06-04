@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_14790.png
+
+Convert to MarkdownBREAKDOWN OF RECORDS IN NCIC COMPUTER
+
+TOTAL
+1,744,434
+
+AS OF MARCH 1, 1970
+
+NW.88613. DocId:32199554
+
+Page 287

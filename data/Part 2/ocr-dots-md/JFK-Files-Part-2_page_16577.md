@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_16577.png
+
+Convert to MarkdownFBI
+
+Date: 12/12/69
+
+Transmit the following in
+(Type in plaintext or code)
+
+Vio
+
+AIRTEL
+
+(Priority)
+
+TO: SAC, CHICAGO
+
+✓ From: Director, FBI
+
+SGT. DANIEL GROTH; JAMES DAVIS;
+JOHN CISZEWSKI, EDWARD CARMODY, ET AL
+CHICAGO, ILLINOIS POLICE OFFICERS - SUBJECTS;
+FRED HAMPTON; MARK CLARK; BRENDA HARRIS;
+VERLINA BREWER; BLAIR ANDERSON;
+RONALD SATCHEL, ET AL - VICTIMS
+SUMMARY PUNISHMENT - CIVIL RIGHTS
+
+Enclosed are two copies of a self-explanatory Departmental letter dated 12/11/69 and two copies of its enclosure.
+
+Complete the requested investigation in accordance with the provisions of Section 27, Volume II, Manual of Instructions, and surep within ten days of the receipt of this communication.
+
+State in the first paragraph of the details of your report that it contains the results of a ☐ limited investigation and underscore the word ☐ limited ☑ preliminary ☑ preliminary
+
+Advise ☑ all persons interviewed
+[X] appropriate officials at the outset that this investigation is being conducted at the specific request of the Assistant Attorney General in charge of the Civil Rights Division.
+U. S. Department of Justice, referring to him by name as well as title.
+
+Remarks: If victims or other persons in the premises at the time of the raid decline to be interviewed, you should immediately advise the Bureau.
+
+Enc. (4)
+
+Sent Via
+NW 88613 Docid:32199554
+Page 2074
+
+TELETYPE UNIT ☐

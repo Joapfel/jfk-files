@@ -1,0 +1,63 @@
+# JFK-Files-Part-2_page_19042.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+Jaffe stated that "Slava" might have thought
+that he (Jaffe) was "Slava's" agent. He continued: "Little
+things came out of 'Slava', but I never knew exactly what he
+did. I do know I would tell him what I would think, which is
+not a secret." Jaffe indicated he never told "Slava" or any
+other Soviet connected with Soviet Intelligence anything other
+than his own observations and opinions and denied furnishing:
+any information from any Government documents. He also
+emphatically denied that KGB had made any arrangements for
+meeting him after he left Moscow or that they had been any
+such meetings since he left Moscow. He said nobody had fol-
+lowed up "Slava's" contacts with him.
+
+In response to a specific question, Jaffe stated
+he did not think "Slava" had anything to do with his expulsion
+from Russia. He continued: "My guess is John Scali, who is
+very close to CIA" was responsible for the expulsion. Jaffe
+continued: "John wanted to set me up with CIA. They (CIA)
+would do things in indirect ways." Jaffe then related an in-
+cident in which Scali invited several ABC employees to a
+party, including an individual introduced to Jaffe as an employee
+of the Department of Commerce, who expressed very much interest
+in Jafe's assignment to Russia. Jaffe later verified that this
+individual was connected with CIA and he feels it would have
+been better if the individual had been completely open with him.
+
+Jaffe then stated: "I still believe CIA sent me
+to Moscow on the (Francis Gary) Powers trial. Prior to the
+trial, he was approached by a CIA representative in California
+who indicated he was aware Jaffe would be sent to Moscow by
+Columbia Broadcasting System (CBS). Jaffe stated he (Jaffe)
+was not aware of it at that time. Jaffe said he subsequently
+was told by another CIA representative whom he met while attending
+meetings of the Council on Foreign Relations that he had been
+picked to go to Moscow with Barbara Powers and help Marvin Kalb,
+CBS correspondent, cover the trial. On the eve of his departure,
+a CIA representative who claimed he was a psychiatrist gave Jaffe
+background material on spy trials and said "they were very much
+interested in determining if Powers is brainwashed." Jaffe
+related that Barbara Powers developed a friendship with him
+and constantly sought his company and advice and expressed a
+strong dislike for CIA personnel accompanying them. Jaffe, at
+the insistence of Mrs. Powers, wrote a letter to the President
+of the Soviet Union appealing for clemency for Powers. Jaffe
+continued: "There was nothing physical between us. We went
+down town (in Moscow) and went to the KGB building (at the
+request of Mrs. Powers, who insisted on seeing the building).
+This was the first time she cried. Then we went back. The
+next morning was the trial. The next thing I know I am sitting
+down in the VIP section. They wrote that I was a member of the
+family. The game (with CIA) has been going on for a long time."
+
+SECRET
+
+65
+
+NW 88326 DocId:32989704 Page 336

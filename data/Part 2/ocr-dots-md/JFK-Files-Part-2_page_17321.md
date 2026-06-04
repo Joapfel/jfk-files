@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_17321.png
+
+Convert to MarkdownCONFIDENTIAL
+
+EMERGENCY CONFERENCE TO DEFEND
+THE RIGHTS OF THE BLACK PANTHER PARTY
+TO EXIST (ECD) (BPP)
+
+Christine Johnson
+African-American Heritage Association
+
+Bobby Rush
+Chairman
+Illinois BPP
+Chicago, Illinois
+
+Father William Hogan
+Association of Catholic Priests
+
+Lucy Montgomery
+
+Rabbi Robert A. Siegal
+Chicago, Illinois
+
+Reverend Charles Yerkes
+New York, New York
+
+Reggie Brooks
+Akron University
+Akron, Ohio
+
+Irving Sarnoff
+Los Angeles Peace Council
+Los Angeles, California
+
+Mickie Lemer
+"The Conspiracy"
+Chicago, Illinois
+
+Al Evanoff
+District 65
+Distributive Workers of America and
+Fifth Avenue Parade Committee, New
+York, New York
+
+Arthur Kinoy
+Professor
+Rutgers University
+New Brunswick, New Jersey
+
+CONFIDENTIAL
+
+- 11 -

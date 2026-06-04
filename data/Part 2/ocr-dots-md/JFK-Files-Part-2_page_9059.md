@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_9059.png
+
+Convert to MarkdownSECRET
+
+(2) Mail Coverage. Another much needed intelli-gence tool is mail coverage. Its importance has been proven in the past. I have the impression that it has been discontinued, and I would suggest that our represen-tatives should confer and examine together whether this asset might be deployed against communications of the Soviet Block, the New Left, and identified foreign agents.
+
+(3) CIA Technical Services. A significant expendi-ture of this Agency's money and personnel has been com-mitted to research and development for the improvement of technical aids. This Agency has provided your Bureau with an appreciation of our resources and capabilities, and has offered you at cost or gratis our most sophisticated equipment.
+
+Although we will continue these services, we would welcome any suggestions from your Bureau for improvement in the technical field including proposals how these assets can be better employed. Your comments will be particularly appreciated in view of our mutual interests in implementing Operation...
+
+(4) Courses in Positive Intelligence Requirements and Reporting. Since the collection and reporting of positive foreign intelligence is, as you say, only incidental to your main internal security and counterintelligence responsibili-ties, I realize that your personnel are somewhat at a dis-advantage in carrying out the evaluating and reporting processes necessary for the conduct of positive intelligence. At our 1966 conference, we offered to institute positive intel-ligence training courses, including reports writing and
+
+SECRET

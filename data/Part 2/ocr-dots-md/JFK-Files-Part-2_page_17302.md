@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_17302.png
+
+Convert to MarkdownFBI
+
+Date: 2/6/70
+
+transmit the following in
+
+(Type in plaintext or code)
+
+AIRTEL
+
+(Priority)
+
+TO: DIRECTOR, FBI
+
+FROM: SAC, CHICAGO
+
+SUBJECT: BLACK PANTHER PARTY (BPP) MEDICAL CENTER RM - BPP
+
+DEH
+
+Approved:
+
+Special Agent in Charge
+
+Sent
+
+NW 88613 DocId:32199554 Page 2799

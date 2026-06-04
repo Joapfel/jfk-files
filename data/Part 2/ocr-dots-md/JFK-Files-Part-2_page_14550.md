@@ -1,0 +1,67 @@
+# JFK-Files-Part-2_page_14550.png
+
+Convert to MarkdownSAC, Washington Field
+
+6-4-58
+
+Director, FBI
+
+INTELLIGENCE COVERAGE OF DIPLOMATIC REPRESENTATIVES OF FRIENDLY FOREIGN NATIONS
+65-63113 (Budfile)
+
+ISINT
+65-58700 (Budfile)
+
+ReBulet 5-19-58 captioned "Intelligence Coverage of Diplomatic Representatives of Friendly Foreign Nations."
+
+In view of the present political situation in the Middle East and the activities of the Israeli Intelligence Service in the U.S., the Bureau has obtained State Department clearance for the institution of a program to develop sources and informants at Israeli diplomatic establishments in the U.S.
+
+On 6-2-58 Mr. J. P. McDonnell, Bureau of Security and Consular Affairs, Department of State, at the time of granting this clearance, pointed out that the State Department feels the U.S. citizens who are hired by the Israelis to work at the diplomatic establishments in the U.S. are given employment only after careful consideration of their nationalistic tendencies; that the State Department feels that most of the U.S. citizens hired by the Israelis are pro-Israeli in their thinking and as a result the Bureau should proceed with caution in connection with this program.
+
+As pointed out in relet, it will still be necessary for your office to obtain State Department clearance through the Bureau for an investigation or interview of prospective sources and informants considered in connection with this program. Investigations of possible sources and informants must be most thorough and discreet and must be handled in conformance with Section 107 of the Manual of Instructions. Interviews must be handled by experienced agents. The interviews should be well thought out in advance and conducted with tact and discreteness. When an individual you have interviewed agrees to cooperate, subsequent contacts should be handled in accord with existing Bureau instructions and you should be alert to any indication that the informant may be a plant.
+
+Tolson
+Nichols
+Boardman
+Belmont
+Mohr
+Parsons
+Rosen
+Lamm
+Rotter
+Ease
+ele. Room
+ollomon
+andy
+
+3 - New York
+
+REc - 11
+
+EHM:et (9)
+
+MAIL ROOM
+
+<table>
+  <tbody>
+    <tr>
+      <td>MAILED</td>
+    </tr>
+    <tr>
+      <td>JUN 4 ~ 1958</td>
+    </tr>
+    <tr>
+      <td>COMM-CBI</td>
+    </tr>
+  </tbody>
+</table>
+
+50 JUN 12 1958
+
+NO JUN 6 1958
+
+UNRECORDED COPY FILED IN
+
+NW 88613
+
+DocId:32199554 Page 47

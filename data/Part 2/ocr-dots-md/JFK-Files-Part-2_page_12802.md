@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_12802.png
+
+Convert to MarkdownSECRET
+
+MM 149-425
+
+The following information was obtained by SA JAMES D. HAYES:
+
+On February 23, 1968, [HARRY RANDALL] CIA Covert, Miami, (Protect), advised his office had received an anonymous tip as follows: (S)
+
+[RANDALL] explained he did not know the origin nor did he have any further information concerning this tip and was endeavoring to ascertain more about this matter, if possible.
+
+One RICARDO MORALES has a bank account, No. 80-657-9 in the Riverside Bank, Miami, Florida. 951 SW 1st Avenue is apparently the address of an apartment which had been utilized by Cuban Power. This account contained a receipt for rent on an apartment which has been used by Cuban Power. It is presumed this apartment has been used in the nature of a safehouse.
+
+The foregoing information was furnished to Lieutenant HARVARD SWILLEY, Intelligence Unit, Miami Police Department, in connection with their current investigation of MORALES, who is currently incarcerated in the Dade County Jail under local violation.

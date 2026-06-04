@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_15858.png
+
+Convert to MarkdownWe who live in Chicago, State of Illinois, must face an increasingly evident truth: we have no control over the institutions which govern our lives. For our survival and the survival of our freedoms, we must now demand control of these forces, particularly that one which we confront daily in our communities and which often makes the final decision regarding our lives. . . or deaths: the POLICE DEPARTMENT.
+
+These racist police have been used as forces working against the people and in cahoots with the corrupt political figures. These lying politicians and murdering, brutalizing police, joined by the greedy businessmen like Hunt and DuPont, are in control of our destinies. It is become an "AMERICAN TRADITION" for police to prevent the American people from protesting these intolerable conditions. This "AMERICAN TRADITION" is reaching astronomical heights and becoming an "AMERICAN NIGHTMARE" because the 'three-in one' described above needs to suppress the ever-growing activity of oppressed people to be free once their eyes are opened to the truth about why a Black youth is shot in the back for throwing rocks at the railroad tracks; why Black and oppressed people work for $2.00 an hour, 10 hours a day and still not make enough to provide for his family with enough left over for the pleasures we have been brainwashed into thinking are necessities (color t.v.s and cadillacs) by the system's master Brainwasher, the BOOB TUBE.
+
+72
+
+NW 88613 DocId:32199554
+
+Page-footer:"

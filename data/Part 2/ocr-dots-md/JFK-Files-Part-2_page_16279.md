@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_16279.png
+
+Convert to MarkdownFBI
+
+Date: 7/31/69
+
+Transmit the following in __________
+
+(Type in plaintext or code)
+
+To: DIRECTOR, FBI
+
+From: SAC, CHICAGO
+
+SUBJECT: BLACK PANTHER PARTY (BPP) RM
+
+CONCERNED YOUTH ORGANIZATIONS (CYO)
+SCOTT COUNTY, IOWA
+ROCK ISLAND COUNTY, ILLINOIS
+RM
+
+DRH:
+
+Agreed:
+Date:
+M. Pet.:
+
+NW 88613 DocId:32199554

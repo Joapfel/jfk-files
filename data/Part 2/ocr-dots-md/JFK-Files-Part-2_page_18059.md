@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_18059.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF FBI SPECIAL AGENT (SA)
+FRED J. CASSIDY BY SSC STAFF MEMBER
+
+Sullivan then tried to have the other agencies listed as the agency which submitted the restraints. Having accomplished this, he was then in a position to advise Mr. Hoover that this or that was not wise or necessary. When the final report was prepared, the FBI then footnoted most of the recommendations as opposing them.
+
+Mr. Johnson said he had been advised by Mr. Helms and Admiral Gaylor that the final draft which they reviewed prior to going to Mr. Hoover's office to sign it did not contain the footnotes and that they were not aware that the FBI was objecting to the recommendations until they saw the final version of the report in Mr. Hoover's office.
+
+I told him that I cannot specifically recall what was in the final draft; however, I was aware that all of the working group was aware of the FBI position as it was so stated at the meeting in which the draft was hammered out. I told him I specifically recalled this as it had put Mr. Sullivan in a most embarrassing position. At one point when asked why a change was to be made or why the FBI was going to object, Sullivan responded with words to the effect that because Mr. Hoover said so.
+
+Mr. Johnson asked why covert mail coverage was listed as a restraint as CIA was engaged in such coverage in 1970. I told him I was not in a position to discuss CIA operations with him. He also asked about the removal of restrictions or use of surreptitious entries to obtain cryptographic materials. I told him I was not free to discuss such activity with him.

@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_14675.png
+
+Convert to MarkdownMemorandum to Mr. Gale
+
+Re: Harold Frank Reis
+
+that the Director and personnel in the FBI felt that Reis and Flug were the deliberate perpetrators of discord between the FBI and the Department. Mr. Clark was advised that obviously Reis had deliberately caused a great deal of unpleasantness in our dealings in the Black Case. Mr. DeLoach further told Mr. Clark that we not only had an intense dislike and distrust of Reis but that Justice Fortas of the Supreme Court had advised of his feelings concerning Reis and that Justice Fortas had even advised the President concerning this matter. Mr. Clark stated that he was glad to get these facts and that he would take this matter under consideration.
+
+ACTION: Attached is a memorandum to the Acting Attorney General referring to the Department's request for a name check and Internal Revenue Service record check concerning Reis and briefly summarizing the derogatory information developed by the three investigations conducted concerning Reis.
+
+It is suggested that the attached memorandum to the
+Acting Attorney General be delivered to him by Mr. DeLoach and at
+that time the Acting Attorney General again be advised of our past
+unsatisfactory relations with Reis and he be furnished the infor-
+mation received from the highly confidential source indicating that
+persons connected with the Southern Christian Leadership Conference
+considered Reis "our best friend up there." Attached is a copy of
+Atlanta's memorandum 6/23/05 reporting the details of this infor-
+mation.

@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_9961.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY ATTORNEY GENERAL
+WASHINGTON, D.C. 20530
+
+FEB 1 0 1976
+
+TO: John A. Mintz, Assistant Director
+Legal Counsel Division
+Federal Bureau of Investigation
+
+FROM: Steven K. Blackhurst
+Assistant Special Counsel for
+Intelligence Coordination
+
+SUBJECT: Senate Select Committee Request
+dated February 9, 1976
+
+Attached is a letter from the Senate Select Committee dated February 9, 1976. Please arrange for an appropriate response.
+
+EX-115
+
+DEC-38
+
+7 MAR 19
+
+cc: Paul Daly
+
+ALL FBI INFORMATION CONTAINED
+BEFORE THIS UNCLASSIFIED
+DATE 2/16/76 SP2A MISC
+
+NWW-88326 DocId:32989603 Page 2

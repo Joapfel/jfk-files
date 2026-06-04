@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_15282.png
+
+Convert to MarkdownMr. R. D. Cotter
+
+1/20/66
+
+Mr. A. R. Jones
+
+1 - Mr. R. D. Cotter
+1 - Mr. E. H. Mossburg
+1 - Mr. A. R. Jones
+
+NATIONALITY GROUP COVERAGE
+MIDDLE EAST
+
+This is an analysis of our program to develop informants in the diplomatic establishments in the U. S. of certain Middle East countries.
+
+On June 23, 1959, State Department approved a program to develop informants in the diplomatic establishments in the U. S. of the following Middle East countries: Iran, Iraq, Jordan, Lebanon, Saudi Arabia, Syria, UAR and Yemen. These countries were selected because it was believed that they were drifting toward the Soviet bloc and because the Middle East had long been a volatile "trouble spot." The Middle East remains turbulent and unpredictable. Cyprus and the Arab-Israeli borders continue to be the major trouble spots but poor Iranian-Iraqi relations as well as the unresolved Yemeni question may also cause many problems. State indicated it was all right to investigate any proposed source but interviews would be considered on a case basis. State advised it did not desire us to use anyone other than Americans, but it would consider the use of non-Americans if there was an investigative interest involved. We have no investigative need for sources since there has been no information developed indicating any of these countries has conducted espionage or intelligence activities against the U. S.
+
+At the present time the countries of Jordan, Saudi Arabia and Lebanon appear to be firmly oriented toward the Western World and it does not appear that further efforts to develop sources at these establishments is warranted.
+
+The oil-rich countries of Iran and Iraq are still being wooed strenuously by the Soviets and our efforts to develop sources should continue. We have one good informant who works part time at the Embassy of Iran in Washington, D. C. Another informant who worked full time there recently resigned. We also have a symboled informant who works as a secretary at the Embassy of Iraq, Washington, D. C. A source who was employed at the Consulate General of Iran, New York City, recently resigned. New York has a good PSI at the Iraqi Consulate and another under development.
+
+Comparatively recent revolutions in Yemen and Syria show the continuing political instability in this area and offers opportunities for
+
+Enclosure
+
+105-97459-350
+① - 65-0113 (Intelligence Coverage)
+ARJigas (5)
+
+50 JAN 27 1966
+
+CONTINUED - OVER
+NOT RECORDED
+
+1966 JAN 27 1966 3-4
+
+WV 88613 Qddid:2199554
+
+LDP
+
+Page 779
+
+WTC12A_24Sep3 1989

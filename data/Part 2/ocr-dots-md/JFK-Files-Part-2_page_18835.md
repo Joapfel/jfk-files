@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_18835.png
+
+Convert to MarkdownLetter to Director, FBI (105-28333)
+From SAC, San Francisco (105-3646)
+
+to exceed two weeks. JAFFE stated that he had contacted FEDOSEEV in hopes to obtain a visa for a longer period of time but FEDOSEEV had advised him that the issuance of such a visa would not follow but that he could possibly obtain an extension on the two weeks' visa. JAFFE stated that he challenged the statement of FEDOSEEV that his visa would be extended and since he could receive assurance of a visa for a period not to exceed two weeks he had decided against making the trip to the Soviet Union and had returned to his home in Atherton from Washington, D.C., and New York.
+
+JAFFE commented that in discussing his desire for a visa with FEDOSEEV, the latter had indicated that should JAFFE write objectively concerning the Soviet Union he, FEDOSEEV, felt certain that JAFFE's visa would be extended. JAFFE stated that he challenged this remark of FEDOSEEV and indicated to the latter that he felt FEDOSEEV's remarks were equivalent to blackmail and that in order for him to get an extension on his visa he would have to slant his articles in favor of the Soviet Union. FEDOSEEV immediately denied this intent and stated only they desired the articles to be written objectively. JAFFE stated that during his conversation with FEDOSEEV he had remarked that his, JAFFE's, father had been born in the Soviet Union. FEDOSEEV seemed very impressed by this statement on the part of JAFFE and inquired if JAFFE's father was still a citizen of the Soviet Union. JAFFE stated that when he advised FEDOSEEV that his, JAFFE's, father was an American citizen that FEDOSEEV was apparently very disturbed concerning this and on several occasions inquired of JAFFE if the latter had any relatives still residing in the Soviet Union. JAFFE stated that FEDOSEEV was visibly dis-appointed when advised that JAFFE had no relatives presently residing in the Soviet Union.
+
+The above is furnished for the information of the Bureau, Washington Field, and New York by virtue of their interest in activities of JAFFE to obtain a Soviet visa to visit Russia.

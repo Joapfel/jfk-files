@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_15460.png
+
+Convert to MarkdownMemorandum to Mr. Sullivan
+
+Re: INTELLIGENCE COVERAGE OF FOREIGN COUNTRIES
+65-63113
+
+RECOMMENDATION:
+
+Attached is a letter to the Attorney General forwarding him a copy of Ball's letter and copies of prior correspondence for ready reference. We are advising the Attorney General that in view of our vital interest in the Latin-American situation we will endeavor to develop as effective coverage as possible within the framework of the limitations imposed by the State Department.

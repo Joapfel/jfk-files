@@ -1,0 +1,66 @@
+# JFK-Files-Part-2_page_15267.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO W. C. Sullivan
+FROM W. R. Wannall
+SUBJECT: INTELLIGENCE COVERAGE OF NON-SOVIET-BLOC COUNTRIES
+
+1 - Belmont
+1 - Sullivan
+DATE: April 17, 1964
+1 - Liaison (Bartlett)
+1 - Wannall
+1 - Mossburg
+
+Tolsøn
+Belmont
+Mohr
+Casper
+Callahan
+Conrad
+DeLoach
+Evans
+Gale
+Rosen
+Sullivan
+Tavel
+Trotter
+Teie. Room
+Holmes
+Gandy
+
+OPTIONAL FORM NO. 10
+MAY 1962 EDITION
+GSA GEN. REG. NO. 27
+
+Page 104
+
+We are recommending State Department clearance be obtained to institute a program to investigate potential sources employed at diplomatic establishments of Kenya in the U. S.
+
+On 3-23-64 Mr. H. B. Wells, State Department, advised the Bureau the State Department was very suspicious of Burudi Nabwera, Ambassador from Kenya to the United Nations and Ambassador designate to the U. S. from Kenya. Mr. Wells pointed out Burudi is a henchman of Oginga Odinga, a prominent procommunist political leader in Kenya. Wells requested us to investigate Nabwera to determine his activities and contacts in the U. S. This investigation is presently being conducted.
+
+The New York Office has requested State clearance be obtained to investigate Rene Baptiste, a chauffeur at the Kenya United Nations Mission, to determine his potential as a security informant. There are no U. S. nationals at this establishment and there is a need for source coverage there, particularly in view of the State Department's request that we investigate Nabwera. Bureau files contain no information that can be identified with Baptiste based on information available.
+4-21-64 disengaged track K.B.Nelso, State
+4-27-64 Nellis approved for Kenya as a larger Country. ASBK
+
+ACTION:
+
+It is recommended that Bureau Liaison contact the appropriate State Department representative to obtain clearance for us to institute discreet investigations of potential security informants at diplomatic establishments of Kenya in the U. S. who may be of assistance to us in our investigation of the Ambassador. State should be advised we will obtain clearance from that Department prior to actually contacting any potential source.
+
+1 - 105-97459 Sub 325 (Nationality Group Coverage - Kenya)
+
+EKM:jal
+(8)
+
+1 - 134-12633 (Rene Baptiste)
+
+12 MAY 1 1964
+
+72 MAY 8 1964
+
+NEW 88613 DocId:32199554
+
+WT DETT YACO GEDMOCEAN

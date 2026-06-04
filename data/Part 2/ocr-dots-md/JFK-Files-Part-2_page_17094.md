@@ -1,0 +1,82 @@
+# JFK-Files-Part-2_page_17094.png
+
+Convert to Markdown# LETTER TO BOBBY FROM HIS WIFE
+
+Bobby:
+
+The first pig has been high-hjembed you, and are trying
+to release you on transportation charges. The random for
+you Bobby, is the consideration of all Panther members and
+members. If this pig power structure had any knowledge of political economy, and the hardships of oppressed people, then they wouldn't get like rats, but like judge
+Chambers, who freed our Electors.
+
+The Panther Party has, h, and will go forth into the
+community and educate the masses of the people about
+the situation, the elections and its murders which the
+ruling class have subjected us to. The working class has
+a rich fatherly morality rate, death from starvation, and
+the slave rate has been on a steady increase. All this
+is part and part of making sure that the costs still jin-
+ge in the goods of the bourgeoisified Jacksonans. These-
+forts, it is easy tological that the over-crowded businessmen,
+the competitive politicians, the monstrous racist pig cops, can-
+do nothing more than murder us, when we show the geo-
+pic the current ideology.
+
+The pig here, and will go forth to hire, organizations
+who are tools for the government to kill members of the
+Black Panther Party. Remember when it was mentioned
+that there have been too many legalized judicial murders
+in the court room? Judge Hoffman is the true example
+of a legal panglossian.
+
+Bobby, I lose you, and I'm going to try and tell the
+masses of people what you've been rapping to me in the
+past. Your spirit is strong. It's like that ever pounding
+beast within the souls of Black people which says, their
+spirit will never die, because you, Bobby, and Huey P
+Herman started a fire within the masses, that the pigs will
+never put out.
+
+Your Other half.
+Allee
+
+WHO ARE THE REAL CONSPIRATORS
+
+JUDGE JULIA J. HAWKWAY
+
+"As a Black Man in America, I can't get a fair trial in a RACIST COURT... Chairman Bobby Seale
+
+This was the theme of the court proceedings of the Conspiracy Eight. From the hand picked jury (eight middle aged, white subalternes, two house'nigges, and two bigDUAMNEN-in-all registered voters) to the constitutional by Julius 'Adolph Eichman' Hoffman of all the defense motions,
+
+Before the selection of the racist, Nazi
+hidden jury was made, they were allowed to
+read newspapers in the communist courtroom.
+Later, Hoffman, pig Nixon's chief fund raiser
+and right hand luckey in Illinois, told the
+prospective jurors not to read newspapers
+listen to TV or talk with each other.
+
+The special category of juror, all regu-
+lated voters, were in contradiction to the
+political morals of the defendants. The de-
+fendants demonstrated against the bourgeon-
+政治运动, 并发表文章, 指责美国的反共政变。
+The FARTY demands that all defendants
+be tried in a court by a jury of their peer
+group and not only white suburbanites, right-
+wing blackbacons, and capitalist business-
+men. This overt misrepresentation of the
+community illustrates the conspiracy against
+the defendants in general, and the Chairman
+in particular, without the only conspiracy
+
+was spent on demagogic sleight-of-hand
+tricks. They became excellent as the General-
+ization of the movement. The com-
+ments, however, did not come to pass -
+nowhere in the manner of Non-
+conformity, a little too direct in nature.
+Abolitionists, who have made use of their clini-
+cal immunity, have been able to gain some 
+see NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT PAGE SEE NEXT

@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_17703.png
+
+Convert to MarkdownSECRET
+
+1 APR 1975
+
+MEMORANDUM FOR: Associate Deputy to the DCI
+                 for the Intelligence Community
+
+VIA : Deputy Director for Administration
+
+SUBJECT : Security Survey, Senate Select Committee
+         Facility, Room G-308, Dirksen Building,
+         Capitol Hill
+
+2 APR 1975
+
+1. Attached to this memorandum is a letter to Mr. William G. Miller for your signature.
+
+2. A security survey of the Senate Select Committee facility, Room G-308, Dirksen Building, as requested by Mr. Ben Marshall, Security Director of that Committee, was completed on 24 March 1975.
+
+3. With the security procedures now in effect and those planned for implementation, the facility will provide adequate protection for the handling and storage of CIA documents of all levels of classification. Also attached for your information is a copy of the survey report.
+
+Att
+
+cc: DD/A
+Chairman, SECOM
+
+Regraded Unclassified when separated
+from Classified Attachment(s)
+NW 88296 DocId:32989628 Page 143
+
+SECRET
+
+OS 5 1284
+E-2 IMPDET
+CL BY 063417

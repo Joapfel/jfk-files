@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_16358.png
+
+Convert to Markdown1.
+
+On following two pages are four xerox
+copies of photographs taken at Chicago Black
+Panther Party (BPP) Headquarters on June 4, 1969,
+showing some of posters mentioned hereinafter.
+
+Original photographs are being maintained
+by Federal Bureau of Investigation, Chicago.

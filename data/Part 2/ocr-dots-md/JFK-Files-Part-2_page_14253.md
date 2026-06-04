@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_14253.png
+
+Convert to MarkdownMEMORANDUM FOR: Antonin S. Slia, Esq.
+Assistant Attorney General
+Office of Legal Counsel
+
+Attached is a hurriedly done legal memorandum entitled "Authority of Congress to Release Classified Data." I would welcome your comments on this so that a finished document could be made available to the various agencies concerned.
+
+John S. Warner
+General Counsel
+Central Intelligence Agency
+
+12 April 1975
+
+(DATE)
+
+NO. 101 REPLACES FORM 10-101 (47)
+G 54 WHICH MAY BE USED.
+
+MEMORANDUM FOR: James A. Wilderotter, Esq..
+Associate Counsel to the
+President
+
+Attached is a hurriedly done legal
+memorandum entitled "Authority of
+Congress to Release Classified Data."
+I would welcome your comments on
+this so that a finished document
+could be made available to the various
+agencies concerned..
+
+John S. Warner
+General Counsel
+Central Intelligence Agency
+
+12 April 1975
+
+(DATE)
+
+NO. 101 REPLACES FORM 10-101 (47)
+G 54 WHICH MAY BE USED.

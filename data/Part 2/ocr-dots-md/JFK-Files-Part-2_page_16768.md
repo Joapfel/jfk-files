@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_16768.png
+
+Convert to MarkdownQ18 Red plastic disc found on floor of rear bedroom
+
+Q19 Shot pellet removed from shot hole designated Number 2 in east wall of back bedroom
+
+Q20 Lead core from copper-jacketed bullet from base of so-called wall in back bedroom
+
+Q21 Scrapings from bloodstain on unmounted door in dining room
+
+Q22 Scrapings from bloodstain on bed frame in rear bedroom
+
+Q23 Scrapings from bloodstain on north wall in rear bedroom
+
+Q24 Scrapings from bloodstain on south wall of living room
+
+Q25 Shotgun wad from under bundle of clothing wrapped in chenille bedspread on floor of entrance hall
+
+Q26 Part of door through entrance to living room from entrance hall
+
+Specimens received 1/12/70, personally delivered by SA
+
+Q27 Bullet jacket fragment recovered from southwest corner of kitchen, on floor
+
+Q28 - Q29 Two cartridges recovered from clothes bundle in entrance hall
+
+Q30 Blood sample removed from black eight-drawer dresser in living room
+
+Specimens received 1/21/70, under cover of letter dated 1/12/70
+
+Q31 Hassock
+
+Q32 Man's suit coat
+
+Q33 - Q37 Five packages of tablets
+
+Q38 Pillbox
+
+Q39 Packet containing two orange tablets or candies
+
+Results of examination:
+
+The shot pattern in the piece of plasterboard, all from the wall to the right of the front entrance door was produced by a contact or near contact shot. The pieces of
+
+NWI 88613 DocID:32199554 Page 2265 :! :45 (continued on next page)

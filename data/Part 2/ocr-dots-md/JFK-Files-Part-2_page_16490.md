@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_16490.png
+
+Convert to MarkdownBlacks and colored people in America, confined within the caste system, are discriminated against as a whole group of people. It is not a question of individual freedom, as it is for the children of the upper classes. We haven't reached the point of trying to free ourselves individually because we're dominated and oppressed as a group of people.
+
+Part of the people of this country which is a great part, part of the youth themselves. But they're not doing this as a group of people. Because as a group they're already free to an extent. Their problem is not a group problem really, because they can easily integrate into the structure. Potentially they're mobile enough to do this. They're the educated ones, the "future of the country," and so forth. They can easily gain a certain amount of power over the society by integrating into the rulership circle.
+
+But they see that even within the rulership circle there are still antique values that have no respect for individualism. They find themselves subjugated. No matter what class they're in they find themselves subjugated because of the nature of this class society. So their fight is to free the individual's soul.
+
+This brings about another problem. They're being ruled by an alien source that has no relation to the world, to the culture of individual expression. They want to escape this, to overturn this, but they see no need to form a structure or a real, disciplined vanguard movement. Their reasoning is that by setting up a disciplined organization they feel they'd be replacing the old structure with other limitations. They fear they'd be setting themselves up as directing the people, therefore limiting the individual again.
+
+But what they don't understand, or it seems that they don't understand, is as long as the military-industrial complex exists, then the structure of oppression of the individual continue. An individual would be threatened even if he were to achieve his freedom by working. He'll be three hundred be-cause there will be an organized lower group there ready to strip him of his individual freedom at any moment.
+
+In Cuba they had a revolution, they had a vanguard group that was a disciplined group, and they, realized that the state won't disappear until imperialism is completely wiped out, structurally and also philosophically or the bourgeois thoughts won't be changed. Once imperialism is wiped out they can have their communist state and the state or territorial boundaries will disappear.
+
+In this country the anarchists seem to feel that if they just express themselves individually and tend to ignore the limitations imposed on them, without leadership and without discipline they can oppose the very disciplined, organized, re-actionary state. This is not true. They will be oppressed as long as imperialism exists. You cannot oppose a system such as this to oppose it with organization that seven more extremely disciplined and dedicated than the structure you're opposing.
+
+I can understand the activists wanting to god directly from state to non-state, but historically it's incorrect. As far as I'm concerned, thinking of the recent French Revolution, the reason the French uprising failed is simply because the activists in the country, who by definition had no organization, had no people that were reliable enough as far as the mass of the people were concerned, to replace DeGaulle and his government. Now, the people were skeptical about the Communist Party and the other progressive parties, because they didn't side with the people of medium living. They lagged behind the people, so they lost the respect of the people, and the people looked for guidance from the students and activists.
+
+But the activists were unable to offer a structural program to replace the DeGaulle government. So the people were forced to turn back to DeGaulle. It wasn't the people's fault, it was John Bendit's fault and all the other activists who felt they could just go from state to non state.
+
+In this country getting back home to North America now we can side with the student radicals. We would try to encourage them and persuade them to organize and weid a sharp cutting tool.

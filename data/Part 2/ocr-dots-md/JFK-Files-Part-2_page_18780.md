@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_18780.png
+
+Convert to Markdown11/7/58
+
+PLAIN TEXT
+
+AIRTEL
+
+TO : DIRECTOR, FBI (100-361868)
+
+FROM : SAC, NEW YORK (65-15026)
+
+SUBJECT:
+
+On 11/5/58, SKULL ADASON JAFFE, news reporter, CBS, telephonically contacted SA EDWARD P. GALLER and said that he possessed some information which he would like to furnish to the Bureau.
+
+On 11/6/58, JAFFE was interviewed by SAB LAWRENCE J. DOXL and EDWARD P. GALLER. He furnished information which is not forth in letterhead memorandum, five copies of which are enclosed.
+
+JAFFE advised that he has been to obtain permission to visit Red China as a journalist, but he has not received any encouragement from the Red Chinese authorities. He talked to subject about getting some assistance from the Soviets. Subject told him that there was nothing which he could do, nor was there anyone at the
+
+4- Bureau (100-361868) ( nels.5) (m)
+(1- 105-2032) (S.W.L. ADISON JAFFE)
+
+1- New York (13-911) (SKUL ADASON JAFFE)
+
+1- New York (65-15026)
+
+LFC/dmb
+(7)
+
+ENCLOSURE
+4- Bureau (100-361868) ( nels.5) (m)
+
+Exemptions: U.S. Government 217 1/15 - 26333
+Bureau for verification 175 NOV 14 1958
+
+52 NOV 17 1958
+
+NOT RECORDED
+175 NOV 14 1958
+
+NW 88326 DocId:32989704 Page 74

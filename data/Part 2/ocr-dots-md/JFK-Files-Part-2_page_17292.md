@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_17292.png
+
+Convert to Markdownpolicy of genocide. Newsmen, students, public offici-
+tals, and neighborhood residents were given guided tours
+of the apartment. Panther guides claimed the physical
+evidence proved that the police did all the shooting.
+
+In those The competing accounts were given equal and
+extensive coverage in all media. Responsible leaders,
+black and white, demanded impartial investigations;
+Negro congressmen announced their own investigation;
+a special "Blue Ribbon" coroner's inquest was scheduled;
+citizens group headed by former Supreme Court Justice
+Arthur Goldberg was formed to investigate; the Chicago
+Black Patrolmen's League determined that the police
+account was untrue and promised to find and expose the
+facts; the Illinois Attorney General agreed to look
+into the matter; the Internal Investigations Division
+of the Chicago Police Department initiated an investi-
+gation. Letters, telegrams, delegations and editorials
+all called on the U. S. Department of Justice to initiate
+an investigation to determine if there had been a vio-
+lation of the civil rights of the apartment occupants.
+
+On December 19, 1969, United States Attorney
+General John Mitchell appointed Assistant Attorney General
+Jerris Leonard and a special bi-racial team of experienced
+federal prosecutors to collect all of the facts with
+respect to the incident and present them to a federal
+grand jury.
+
+This report contains the findings of the grand
+jury after hearing nearly 100 witnesses and considering
+
+NW 88613 DocId:32199554
+Page 2789

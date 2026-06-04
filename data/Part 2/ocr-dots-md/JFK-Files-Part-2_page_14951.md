@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_14951.png
+
+Convert to MarkdownThe Acting Attorney General
+
+the Manhattan and Brooklyn Sections of the American Labor Party but outside of New York City they have been unable to win control."
+
+When reviewed in May, 1942, Mr. Reis's selective service file disclosed he had been classified SA because of the dependency of his mother. His file contained an affidavit from a relative who was a physician to the effect that Reis should not engage in strenuous physical activity because of a congenital heart disease. Several persons interviewed in 1942 stated Mr. Reis was in good health and engaged in sports. Mr. Reis told another individual that he was perfectly healthy. In August, 1943, at an induction station, Mr. Reis was found physically disqualified for military service by reason of "chronic valvular heart disease, encumbrance," and was classified 4F.
+
+Two of the individuals listed by Mr. Reis as references in 1942 were members of the National Lawyers' Guild which has been cited by the House Committee on Un-American Activities as a communist front.
+
+The Internal Revenue Service has advised that its records show that income tax returns were timely filled by Mr. Reis for the years 1938, 1941, and 1945. There was no record of unpaid taxes, lies, or intelligence investigations concerning these returns.

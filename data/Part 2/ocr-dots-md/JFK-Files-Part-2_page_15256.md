@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_15256.png
+
+Convert to MarkdownMemorandum for Mr. Sullivan
+Re: INTELLIGENCE COVERAGE OF NON-SOVIET-BLOC COUNTRIES (ANNUAL EVALUATION)
+
+MAGNITUDE
+
+This program has ramifications affecting the work on many desks handling matters relating to non-Soviet-bloc countries, depending on international developments and the current intelligence requirements of both the Bureau and the State Department. The principal field activity is at New York City and Washington, D.C., where the majority of diplomatic establishments are located.
+
+PAST OR PRESENT WEAKNESSES
+
+No weaknesses have developed during the past year. The program is operating smoothly and effectively.
+
+ADMINISTRATIVE CONTROLS
+
+Controls are exercised on a day-to-day basis through a review of outgoing instructions to the field. Technical surveillances are evaluated each 90 days. No interviews of potential live sources are conducted without specific State Department clearance. A control file is maintained to which copies of pertinent correspondence are routed. Annual evaluation includes review of this control file.
+
+ADEQUACY AND CURRENTNESS OF INSTRUCTIONS
+
+Review of control file reveals that instructions are current and adequate at this time.
+
+OVER-ALL VALUE
+
+This program on a continuous basis produces information of considerable value to State Department in its formulation of foreign policy and to the Bureau in handling our investigative and intelligence responsibilities.
+
+RECOMMENDATION:
+
+It is recommended this program be continued in its present form. Re-evaluation will be made in May, 1965.

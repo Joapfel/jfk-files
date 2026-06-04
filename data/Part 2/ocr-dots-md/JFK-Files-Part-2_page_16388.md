@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_16388.png
+
+Convert to MarkdownAn eight page document captioned "Suggested Plan for the Complete Breakdown of the State of Illinois Power Structure" was located in a brown record box which was in the private office on the southeast corner of the second floor of the building occupied by the Chicago Black Panther Party (BPP). The office where this document was located is under the sole jurisdiction and control of the Chicago BPP.
+
+The document which is set forth in full in the appendix section of this report set forth information indicating the BPP would seek to cause chaotic conditions in the State of Illinois by the destruction of communication, power and transportation systems. The document indicated the execution of city and state officials should occur as well as crippling the fire department.
+
+The document also sets forth information concerning "Suggested Organization of Section and a 'military' training schedule." The document was labeled "Top Secret."
+
+65
+
+NW 88613 DocId:32199554
+Page 1885

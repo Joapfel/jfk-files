@@ -1,0 +1,108 @@
+# JFK-Files-Part-2_page_18008.png
+
+Convert to Markdown<table>
+   <thead>
+    <tr>
+     <td>Name</td>
+     <td>Designated</td>
+     <td>Briefed (SI, TK, B)</td>
+     <td>Date and Place of Birth</td>
+     <td>Social Security No.</td>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td>Koscis, Susan</td>
+     <td>*</td>
+     <td>B 9/17</td>
+     <td>11-5-49 NY</td>
+     <td>051-42-2418</td>
+    </tr>
+    <tr>
+     <td>Krauss, George Henry Jr.<sup>3</sup></td>
+     <td></td>
+     <td></td>
+     <td>9-9-16 Colo.</td>
+     <td>385-01-1876</td>
+    </tr>
+    <tr>
+     <td>LaVoy, Diane</td>
+     <td>*</td>
+     <td>B 6/10</td>
+     <td>11-10-48 Venezuela</td>
+     <td>165-40-3119</td>
+    </tr>
+    <tr>
+     <td>Liebengood, Howard</td>
+     <td></td>
+     <td></td>
+     <td>12-29-42 In.</td>
+     <td>307-44-9707</td>
+    </tr>
+    <tr>
+     <td>Lombard, Charles<sup>1</sup></td>
+     <td>*</td>
+     <td>B 4/24</td>
+     <td>6-2-30 France</td>
+     <td>578-44-9471 Badge</td>
+    </tr>
+    <tr>
+     <td>Lynch, Mary</td>
+     <td></td>
+     <td></td>
+     <td>3-16-26 W.Va.</td>
+     <td>250-38-1344</td>
+    </tr>
+    <tr>
+     <td>MacDonald, Naldeen</td>
+     <td>*</td>
+     <td>B 8/20</td>
+     <td>10-19-51 Brazil</td>
+     <td>225-78-8708</td>
+    </tr>
+    <tr>
+     <td>Madigan, Michael James<sup>1</sup></td>
+     <td>*</td>
+     <td>B 4/15</td>
+     <td>4-18-43 DC</td>
+     <td>042-34-3797 TF Badge</td>
+    </tr>
+    <tr>
+     <td>Marshall, Benjamin</td>
+     <td>*</td>
+     <td>B 4/17</td>
+     <td>5-4-19 NE</td>
+     <td>485-28-4503</td>
+    </tr>
+    <tr>
+     <td>Marshall, Burke</td>
+     <td></td>
+     <td></td>
+     <td>10-1-22 NJ</td>
+     <td>577-44-5241</td>
+    </tr>
+    <tr>
+     <td>Mascioli, Cynthia</td>
+     <td>*</td>
+     <td>B 6/26</td>
+     <td>1-4-51 NY</td>
+     <td>112-44-7636</td>
+    </tr>
+    <tr>
+     <td>Mason, Judy</td>
+     <td>*</td>
+     <td>B 6/10</td>
+     <td>1-6-46 DC</td>
+     <td>578-60-7280</td>
+    </tr>
+    <tr>
+     <td>Maxwell, Elliot Everett</td>
+     <td>*</td>
+     <td>B 4/15</td>
+     <td>7-24-46 NY</td>
+     <td>133-34-4225 TF Badge</td>
+    </tr>
+    <tr>
+     <td>Mayo, Betty</td>
+     <td>*</td>
+     <td>B 6/26</td>

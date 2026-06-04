@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_10840.png
+
+Convert to MarkdownNK 89-56
+
+Upon arrival, CUNNINGHAM was again in the foyer,
+as if expecting someone. SA WALLER again identified himself
+by displaying his credentials again, and identified the other
+men as SAS of the Federal Bureau of Investigation (FBI).
+
+CUNNINGHAM was advised that the information that
+MC GOWAN was at this residence was considered reliable and
+that the agents would like to search the residence. At this
+point CUNNINGHAM said, "No, you are not going to search my
+house", and proceeded to lash out at SA WALLER with his left
+forearm and elbow, striking SA WALLER in the left jaw. He
+then placed his open right hand on SA WALLER's face and struck
+out at SA WALLER with his hands and arms. With his left
+arm, he grabbed SA WALLER around the neck and lifted up.
+
+With the help of SAS DEBBAUDT, OWENS, and TIERNEY,
+with SAS CARROLL and GASS attempting to get into the small
+foyer area, CUNNINGHAM was subdued and placed under arrest,
+being so advised by SAS OWENS and WALLER.
+
+CUNNINGHAM was taken to the Camden, New Jersey,
+Office of the FBI by SAS DEBBAUDT and OWENS.
+
+SAS CARROLL, GASS, TIERNEY and WALLER searched the
+premises at 130 North 4th Street, Camden, New Jersey, but
+MC GOWAN was not located on these premises.
+
+At this residence were also two other males, LIANNE
+MOCCIÀ and two other females, all of whom refused to identify
+themselves except PHILIP TRACY.
+
+TRACY stated to SAS WALLER and CARROLL that he was
+employed by the Village Voice, 80 Union Place, New York City.
+New York, telephone number 212-WA 4-4669. TRACY also volunteered
+that he could not understand nor explain why CUNNINGHAM had
+become so violent and acted the way he did in view of the
+gentlemanly conduct of agents and if he had been in charge
+here, this would not have happened, since CUNNINGHAM'S actions
+were unnecessary and unreasonable.

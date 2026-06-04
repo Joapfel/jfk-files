@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_9553.png
+
+Convert to MarkdownIt is indeed an honor to address this Seven-teenth Convention of the Organization of Arab Students in the United States and Canada. I wish to thank the organization for its kind invitation to Fatch to address this conference which represents a corner-stone of active Arab thought vis-a-vis the Palestinian Revolution. It is evident from the delegates, the program, and the guests, that we are concerned here not with rhetoric but with conscious analysis, planning, and understanding of the importance of the Palestinian Revolution and its far-reaching impact upon the Palestinian people, the Arab nation, the world's conscience and all humanistic values.
+
+As you no doubt know, the Palestinian people have not ceased to struggle against their oppressors. ever since they first realized that world colonialism and expansionist Zionist settler colonialism were conspiring to rob them of their Palestinian homeland. To Zionists, this was the first step toward seizure and control of the Arab nation's resources which will effectively hinder its economic development and cultural progress.
+
+* As you also know, the Palestinian people subsequent to the 1948 catastrophe have been subjected to severe constraints, as well as destitution, poverty, dispersion, and persecution. It is indeed amazing that this treatment has not led to the loss of the Palestinian people's identity, destruction of their will, and their total dispersion, as was originally intended. The Palestinians' genuine revolutionary will, their clear understanding that they are part of the Arab nation and that their struggle against Zionism is-in-reality-the Arab nation's struggle, their ultimate victory, and their mature understanding of the moral and human imperatives for the liberation of their homeland are all various elements combined
+
+to thwart their opponent's well-laid plans. The Palestinian people withstood all pressures and continued to resist by different means. Finally, they stood to take once again the full responsibility for their own destiny, especially after the continuous failure of the Arab governments became blatantly evident.
+
+The beginning of 1965 signaled the end of dependency and asserted the Palestinians' right to take command of their own struggle. Hence the Palestinian people formed the general framework of the Revolution according to the following principles:
+
+1. All action must be guided by a free and independent Palestinian will in thought, words, and deed.
+
+2. Protecting the Revolution from any influence or interference from any Arab government and avoiding involvement in the internal affairs of the Arab governments.
+
+3. Considering the struggle for the liberation of Palestine a phase of national struggle and hence must absorb all strata and all segments of the Palestinian society, asserting that the "liberation of Palestine is the road to unity."
+
+4. Fusing the Palestinian people and the revolutionary vanguards through armed struggle.
+
+5. Fusing the Palestinian people with the Arab masses through the armed revolution, for the Palestinian Revolution is Palestinian in inception, Arab in depth, and national in goals and objectives.
+
+6. Setting the liberation of Palestine over all other Arab issues.

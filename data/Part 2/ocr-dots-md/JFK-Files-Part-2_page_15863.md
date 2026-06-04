@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_15863.png
+
+Convert to MarkdownSource advised the political orientation classes, which the source had attended were normally presided over by BOBBY RUSH, who normally discussed the BPP ten-point program to ascertain whether those in attendance had committed the ten points to memory. Source stated FRED HAMPTON had, in the past, discussed statements from Chairman's MAO "Red Book," and had those in attendance offer their views. The source also stated "Essays of Huey," and military discipline were discussed by the Panther leaders.
+
+12/15/69)
+
+Source stated that during November, 1969, FRED HAMPTON, accompanied by two other individuals, using the names of JEWEL COOK and STEPHANIE FISHER traveled to Canada for a five-day speaking engagement at several Canadian colleges.
+
+This source stated that in fact HAMPTON was
+accompanied by WILLIE CALVIN and JERI ELDRIDGE.
+
+Source further advised that HAMPTON was
+alleged to be receiving approximately $3,000 plus
+travel expenses for the speaking engagements.
+
+The source further advised that HAMPTON,
+CALVIN and ELDRIDGE departed Edmondton, Canada, on
+November 20, 1969, following their speaking engage-
+ments and CALVIN and ELDRIDGE were apprehended by
+Canadian officials for using false identification when
+they entered Canada.
+
+, 11/12/69,
+11/16/69, 11/18/69,
+11/21/69)
+
+Mr. CHARLES F. CARROLL, United States
+Immigration, Winnipeg, Canada, telephonically advised
+the Minneapolis Office of the FBI, saying two
+individuals, claiming BPP membership, were being
+deported by Canadian officials on November 21, 1969.
+He identified these individuals as WILLIE CALVIN,
+
+NW 88613 DocId:32199554

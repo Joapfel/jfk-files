@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_18919.png
+
+Convert to MarkdownU. N. E D STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+SECRET
+
+Washington, D.C. 20535
+September 15, 1970
+
+In Reply, Please Refer to
+File No.
+
+By communication of August 17, 1970, the U.S. Department of State advised that among the Soviets invited to attend captioned conference were Mikhail Ilich Bruk, born September 22, 1929, Leningrad, described as "Chief Editor of News Agency," and Lyudmila Alekseyevna Gvishiani, born November 4, 1928, Kirensk, described as "Senior Researcher, Institute of U.S.A., USSR Academy of Sciences" and daughter of Soviet Premier Aleksey Nikolayevich Kosygin.
+
+On September 15, 1970, Samuel Adason Jaffe (hereinafter referred to as source), former American Broadcasting Company (ABC) correspondent in Moscow, Union of Soviet Socialist Republics (USSR), who now resides in Bethesda, Maryland, telephonically advised a Special Agent of the Federal Bureau of Investigation (FBI) that he had been invited to a party to be given on Friday, September 18, 1970, at about 8 p.m., at the Harmony Club in New York City, for Mikhail Bruk, a Soviet national currently visiting the United States with a Soviet group which includes the daughter of Soviet Premier Kosygin.
+
+Source stated he received a call the night of September 14, 1970, from a very close friend, Jeff Jaffe, President of Ward Candy Company, extending an invitation for source and wife to attend the party. Source said Jeff Jaffe is not a relative of source, however, source's father at one time represented the Ward Candy Company. Jeff Jaffe is one of a group of American millionaires referred to as "Young Presidents of America," which recently visited the USSR. Before making the trip, source told Jeff Jaffe he might be contacted in the USSR by some of source's former Soviet acquaintances, including Mikhail Bruk. Source informed Jeff Jaffe that Bruk has acted as an interpreter for Americans in Moscow and has attended a number of Pugwash Conferences as an interpreter, and source indicated he suspected Bruk was connected with the Soviet Committee for State Security (KGB).
+
+ENCLOSURE
+
+SECRET
+
+<table><tr><td colspan="2">GROUP I.<br>Exams from autopsies<br>Cranial and vertebral radiographs</td></tr></table>
+
+NW 88326 DocId:32989704 Page 213

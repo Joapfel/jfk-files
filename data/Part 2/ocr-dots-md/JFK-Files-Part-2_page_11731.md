@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_11731.png
+
+Convert to Markdownh. If an item to be submitted appears on more than one page of the news- paper, the words "Continued on page...," the subheadline on the con- tinued page, and the words "Continued from page..." should not be mounted.
+
+i. Mounted clippings should read from top to bottom, column by column, from left to right.
+
+j. All clippings must be complete.
+
+k. Only one copy of a clipping need be submitted except that two copies of all items pertaining to actual or possible civil rights violations should be forwarded.
+
+1. Include clippings with other mail being sent to Bureau on the day that the clippings appear in the local paper. Forward clippings from resident agencies the day they arrive at headquarters city.
+
+3. Resident Agents must be alert for material appearing in the local press.
+
+4. Submission of publications of security interest to the Bureau
+
+a. General principle governing submissions
+
+The Bureau desires to receive publications of security interest at [FBIHQ]for purposes of information, research, and intelligence. Consequently, it is requested that evidentiary copies of publications be retained in the field and only nonevidentiary copies be forwarded to the Bureau by routing slip.
+
+b. Manner of handling and forwarding nonevidentiary copies of publica-
+
+(1) Nonevidentiary copies of newspapers, magazines, journals, periodicals, news bulletins, and books, obtained regularly (by subscription or repeated purchase) and forwarded to the Bureau, need not be identified as to source. They should be submitted via ordinary mail by routing slip (marked for the attention of[Section IS-3, Intelligence Division])unless transmittal by cover letter has been specifically requested. Routing slips may be used to notify the Bureau of routine administrative matters, such as temporary suspension of a publication (e.g., during summer months, lack of funds), temporary delay in obtaining or receiving particular issues of a publication, or other information which will keep the Bureau informed relative to the status of these publications. To avoid confusion, nonevidentiary copies which have been marked for identification (source, Agent, date, and place of acquisition)should be further annotated: "Not Evidence."
+
+Letters should be used in connection with initiating action or ceasing action to obtain publications desired by the Bureau; to call to the attention of the Bureau specific items of information connected with these publications; and in those instances in which good judgment dictates that certain circumstances or information should be recorded in letter form.
+
+(2) Each SAC and each legal attache must keep the Bureau, attention [Section IS-3, Intelligence Division,informed on a current basis regarding publications (including books) of potential interest that are not included in the current list of publications which is supplied periodically to the field and to the legal attaches. These publications would include those published by subjects of security or counterintelligence investigations and publications which may otherwise have a security or counterintelligence significance.
+
+(3) Each SAC and each legal attache should insure that the handling of publications for which his office is responsible is being given adequate supervision at all times. Subscriptions to these publications should be followed closely to insure that the publications are received at the Bureau on a current basis. The Bureau should be advised of the expiration date of the subscrip- tion to each publication in sufficient time to enable the Bureau to determine the necessity for renewal.

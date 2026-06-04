@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_9302.png
+
+Convert to MarkdownDE T-2 advised in May, 1971, that during May,
+1971, LONNIE DARDEN was officer of the day at 157 Collingwood
+and that the membership consisted of 38 active members
+including six community workers.
+
+CHARLES HOLT, second in command of the NCCF, has
+been reduced to a community worker by KENNETH HORSTON.
+
+# DE T-2
+
+May 11, 1971
+
+DE T-2 advised during June, 1971, that the member-
+ship of the BPP in June, 1971, consisted of 34 active
+members and five community workers.
+
+When KENNETH HORSTON is not available, EDGAR
+ROBINSON, distribution manager, is in charge of 157 Colling-
+wood, and LONNIE DARDEN is in charge of 2591 Pennsylvania.
+
+DE T-4
+
+July 2, 1971
+
+DE T-4 advised in July, 1971, that the BPP
+consisted of 24 active members and four community workers in
+July, 1971.
+
+DE T-4 attributed the decrease in membership to
+the fact that some people were unhappy with HUEY NEWTON's
+policy of non-violence and because they had been directed
+to attend church.
+
+DE T-4 advised during August, 1971, that the
+following persons were leaders of the Detroit BPP during
+August, 1971:
+
+KENNETH HORSTON, leader
+DIANE BROWN, Minister of Information
+LONNIE DARDEN, CIC #1
+EDGAR ROBINSON, distribution manager
+LORENE BANKS, Breakfast and Lunch Programs
+WAYNE THEODORE ROBERTSON, finances
+
+NW 88296 DocID:3298957.4 Page 211

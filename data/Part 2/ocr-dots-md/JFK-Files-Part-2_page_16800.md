@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_16800.png
+
+Convert to Markdown# SHOT PELLET COMPARABLE IN SIZE AND/OR WEIGHT TO #7 1/2 SECTION
+
+One shot pellet, Q239, was comparable in size to #7 1/2 shot. Some weight loss was evident and while the measurable diameter was comparable to that of #7 1/2 shot, its weight was slightly less than standard for #7 1/2 shot.
+
+## SHOT PELLET COMPARABLE IN SIZE AND/OR WEIGHT TO #8 SHOT
+
+One shot pellet, Q203, was found to be comparable in size and weight to #8 shot. This pellet was not deformed and did not possess markings normally present on a shot pellet that had been fired from a shotgun.
+
+## LEAD FRAGMENTS THAT COULD NEITHER BE ASSOCIATED WITH SHOT PELLETS NOR BULLET FRAGMENTS
+
+The following specimens are mutilated, deformed and fractured lead fragments which could not be identified as to source:
+
+| Specimens Number | Weight (in grains) |
+| :--- | :--- |
+| Q204 | 24.25 |
+| Q206 | 52.375 |
+| Q208 | 28.4 |
+| Q215 | .625 |
+| Q219 | 44.6 |
+| Q221 | 12.75 |
+| Q229 | 35.9 |
+| Q244 | 6.63 |
+| Q247 (2 pieces) | .4 & .9 |
+| Q260 | 33.75 |
+
+| Specimen Number | Weight (in grains) |
+| :--- | :--- |
+| Q262 | 29.875 |
+| Q263 | 25.0 |
+| Q267 | 11.2 |
+| Q271 | 34.9 |
+| Q273 | 18.125 |
+| Q274 | 5.25 |
+
+## MISCELLANEOUS ITEMS SUBMITTED
+
+Specimen Q207 is a copper cup into which a shotgun primer is seated. This specimen has suffered no apparent damage.
+
+(continued on next page)

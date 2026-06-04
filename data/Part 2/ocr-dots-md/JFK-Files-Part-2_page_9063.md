@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_9063.png
+
+Convert to MarkdownSECRET
+
+How much information CIA has developed over
+the years concerning our operational activity in
+Mexico City is unknown. However, we should bear-in
+mind that former Special Agent George Munro handled
+many of our operations in Mexico, including key infor-
+mants, and subsequently began performing services for
+CIA after he left the Bureau. We also should not
+forget that Americans operating in Latin American
+countries for one agency are heavily exposed to the
+resources of another U. S. intelligence or investigative
+agency. This Agent knows from personal experience that
+operating in these areas constitutes a "very small world"
+and the exposure to leaks and errors is considerable.
+
+(3) THE ABEL CASE
+
+Although CIA has not raised the point for
+several years, the prevailing attitude was, and probably
+still exists, that the FBI did not play it square with
+CIA in the Abel case by not making certain that the
+Agency was given the proper recognition for its contri-
+butions. CIA feels that in the first place, there would
+not have been any U. S. access or availability to the
+source in this case, Reino Hayhanen, because CIA took
+the full responsibility for moving Hayhanen from France
+to the U. S. in 1957. CIA claims it took the risk and
+responsibility of doing this after the Bureau declined
+to become involved in any operation designed to transport
+Hayhanen to the U. S. It should be noted that Hayhanen
+was an alcoholic and that his first contacts with CIA
+in Paris raised questions concerning Hayhanen's mental
+stability.
+
+After Hayhanen arrived in the U. S., we
+arranged access to him for a period, the purpose of
+which was to obtain a complete story of his intelli-
+gence activities in the U. S. and we were particularly
+interested in identifying all of his associates, es-
+pecially the man who later was identified as Rudolph
+Abel. After a short handling period in the U. S., we
+dropped Hayhanen because he became a problem. It was
+an extremely critical situation because we had not yet
+identified Abel. CIA agreed to take the responsibility
+for the carrying and safeguarding of Hayhanen but we
+
+SECRET
+
+- 4 -

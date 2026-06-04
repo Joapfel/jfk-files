@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_16374.png
+
+Convert to MarkdownThe following six pages sets forth copies of materials obtained at Chicago BPP headquarters on June 4, 1969. All materials were available in sufficient quantities to suggest likelihood of distribution. Materials described as follows:
+
+(a) "Collaborating with the Enemy." A critical attack on U.S. Government, state and local governments, as well as officials of those branches of government.
+
+(b) "Climax" - This circular criticizes capitalistic system.
+
+(c) "To the Oppressed People". Criticism of Capitalism.
+
+(d) "Sing Each Verse Three Times". Song referring to "off the pig."
+
+NW 88613 DocId:32199554
+
+Page 1871

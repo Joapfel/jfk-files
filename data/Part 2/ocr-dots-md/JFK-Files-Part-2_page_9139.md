@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_9139.png
+
+Convert to MarkdownRH 157-1558
+
+I. BACKGROUND
+
+A. Birth
+
+On August 17, 1966, the records of the New Jersey Bureau of Vital Statistics, State Health Building, Trenton, New Jersey, were reviewed by SA NORMAN A. HENDRICKS, and a birth record for FRANK AUGUST DRAGER, II, was located. This record showed he was born August 4, 1940, at Trenton, New Jersey, and his parents were listed as FRANK AUGUST DRAGER, age 23, white, occupation - farmer, and who was born in Pennsylvania; and his mother was listed as MINNIE MOORE DRAGER, age 18, white, housewife, who was born in Pennsylvania. The residence of the subject's parents was listed as RD #1, Lower Makefield Township, Pennsylvania.
+
+B. Citizenship Status
+
+The subject is a citizen of the United States by virtue of birth.
+
+C. Education
+
+On July 1, 1966, RH T-1 made available an application for membership in the American Nazi Party (ANP) dated July 26, 1965. This application pertained to FRANK AUGUST DRAGER, JR. Under the section marked "Education," DRAGER indicated that he had attended elementary school in Trenton, New Jersey, from 1945 to 1954. He then attended Hamilton Junior High School in Trenton, New Jersey, from 1954 to 1956; and Pemberton High School, Pemberton, New Jersey, from 1956 to 1958. The application also indicated he had attended Omaha University in Omaha, Nebraska, nights, from 1958 to 1960, but did not receive a degree.
+
+Concerning the ANP, see Appendix.
+
+D. Marital Status
+
+The above-mentioned ANP application pertaining to the subject reflected that DRAGER, as of July 26, 1965, was single.

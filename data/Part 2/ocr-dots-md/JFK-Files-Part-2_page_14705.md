@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_14705.png
+
+Convert to Markdown# BUREAU STATISTICS
+
+## FBI Personnel
+
+As of 2/13/69 there were 6,929 Special Agents and 9,052 clerical employees for a total of 15,981 employees on the rolls of the FBI.
+
+## Overtime Services
+
+The overtime service by our investigative staff averages more than two and one-half hours each workday and during the fiscal year 1968 totaled 3,845,461 hours, the equivalent of 1,849 additional employees on a full-year basis. Taking into consideration the limited extent to which this overtime was compensated under fringe benefits regulations of the Civil Service Commission, there was a cost-free saving to the Government of over $14 million when compared to the value of the total overtime performed. This is a tremendous voluntary contribution by our investigative staff.
+
+## National Crime
+
+While preliminary crime figures for calendar year 1968 are not yet available, for the period January through September, 1968, over the same period in 1967, the Crime Index nationwide recorded a 19 percent increase. The largest increases were noted in cities 250,000 to 1 million population where a 22 percent rise was recorded. Nationally, the violent crimes of murder, forcible rape, robbery and aggravated assault as a group increased 21 percent and the more voluminous property crimes of burglary, larceny $50 and over and auto theft rose 19 percent. There were an estimated 4.6 million serious crimes in the United States in 1968 compared to 3.8 million in 1967.
+
+## District of Columbia Crime
+
+For calendar year 1967, Washington, D. C., had the sixth highest crime rate among the 56 cities 250,000 population and above. Crime figures for calendar year 1968 indicate that
+
+NW 88613 DocId:32199554 Page 202

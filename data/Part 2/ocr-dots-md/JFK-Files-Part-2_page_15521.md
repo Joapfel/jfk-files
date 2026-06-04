@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_15521.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+W. C. Sullivan
+
+FROM : W. R. Wannall
+
+DATE: May 8, 1970
+
+TO:
+
+SUBJECT: INTELLIGENCE COVERAGE OF FRIENDLY FOREIGN COUNTRIES
+
+Attached herewith is a single copy of a write-up prepared in
+captioned matter during recent inspection of Domestic Intelligence Division
+(April, 1970).
+
+The Inspector concluded that captioned program is productive
+and should be continued.
+
+**RECOMMENDATION:**
+
+That attached memorandum serve as annual evaluation of
+instant program.
+
+REC-29
+
+Enclosure
+
+AJD:ams
+
+(4)
+
+1 - Mr. Sullivan
+1 - Mr. Wannall
+1 - Mr. O'Brien
+
+MAY 18 1970
+
+ENCLOSURE
+
+65-63113
+
+NW-68613 Doc1032199554

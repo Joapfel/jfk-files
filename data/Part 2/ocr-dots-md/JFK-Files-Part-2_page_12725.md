@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_12725.png
+
+Convert to Markdown(9) Movement of subjects between offices and transfers of security index cards
+
+(a) Subjects of security index cards
+
+I. Requests to verify addresses of security index subjects from other offices must be assigned immediately and results of investigation to verify new address must be transmitted to office of origin within two weeks.
+
+II. Office of origin, upon receipt of verification of address, should submit FD-128 immediately transferring office of origin. Forms regarding unavailable section subjects should be prepared in accordance with 87D 7b (6) (b) IV above.
+
+III. Submit original and one copy of FD-128 to Bureau. Submit two copies thereof to office covering subject's new address, enclosing copies of all previous reports, other pertinent serials, photograph if available, and security index cards. FD-128 should show full title and priority level designation.
+
+IV. Information concerning key facility employment of subject in new office should be furnished by that office to old office of origin so that geographical reference number, agency having security responsibility, and interested agencies can be included on FD-128 submitted by old office of origin.
+
+V. Where security index flash notice has been placed with Identification Division, notation to that effect must appear on FD-128 and extra copy of FD-128 must be specifically designated for Bureau marked for attention of Identification Division so that those records will show new office controlling existing security index flash notice.
+
+VI. Old office of origin will submit current report [in priority I and priority II security index cases and a succinct letterhead memorandum in priority III security index cases.]
+
+Submission of FD-128 should not be delayed solely for preparation of report [or letterhead memorandum] when office of origin is to be changed, but notation should be made on FD-128 that old office of origin is preparing [appropriate communication.]]
+
+[Old office of origin is responsible for furnishing Secret Service locally with subject's new residence and business address.]
+
+Case will remain pending in both old and new offices of origin until report [or letterhead memorandum] is submitted by old office of origin. New office of origin is responsible to follow matter until [completed.]
+
+[In Priority III security index cases, a succinct letter-head memorandum should be prepared setting forth all pertinent information for Bureau and new office of origin. If applicable, information contained therein may be summarized. Yellow file copy retained by old office of origin must contain notations indicating exact location of all original information which has been set forth or summarized in letterhead memorandum. Cover communication transmitting such letterhead memoranda must contain a statement indicating that such notations have been made.]

@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_18866.png
+
+Convert to MarkdownApproximately 20 minutes after the couple had entered the hotel for the second time, SA FLANAGAN, under suitable pretext, interviewed the elevator operator, who advised that a couple answering the description of Mr. and Mrs. JAFFEE had gotten off the elevator at the eighth floor.
+
+Upon receipt of the information from SA McGEARY, as obtained from the cab driver, that the couple were possibly associated with the Press, SA KENOYER contacted the appropriate supervisor and was instructed to discontinue the surveillance in view of the possibility that the unknown couple were associated with the Press.
+
+It was noted in the early stages of the surveillance that the individuals involved were extremely surveillance conscious and the Agents made every attempt to be very discreet. As set forth in detail above, the automobiles and Agents involved were rotated as much as possible to avoid detection by the persons under surveillance. Even though it was apparent to the Agents that the parties under surveillance were apparently looking for a tail, it was not felt desirable to discontinue the surveillance until the couple were identified. The importance of identifying unknown individuals who have personal contact with officials of the Soviet establishments has been impressed on the Field by the Bureau as a necessary part of the Soviet Intensification Program.
+
+On July 10, 1954, SA KENOYER ascertained that the files of this office reflect that SAM JAFFEE of Life magazine on July 6, 1954, discussed with KONSTANTIN G. FEDOSEEV the prospect of having dinner together. No definite plans were made for this dinner. The files also reflected that JAFFEE was residing in Room 877 of the Mayflower Hotel, which is the same floor to which the unknown couple proceeded on the night of July 9, 1954. This information was not available to the Agents conducting the surveillance on July 9, 1954. (C)

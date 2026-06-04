@@ -1,0 +1,54 @@
+# JFK-Files-Part-2_page_15705.png
+
+Convert to MarkdownGAN BY CHAIRMAN F
+SEND CHECKS OR M
+ORDERS
+
+WORLD IN REVOLUTION
+
+SUBSCRIPTION FORM
+
+Support
+Your
+Newspaper
+Subs
+Today
+
+Enter my subscription for (check box):
+
+National Subscriptions
+
+3 MONTHS: (13 ISSUES) ................... ☐ $2.50
+
+6 MONTHS: (26 ISSUES) ................... ☐ $5.00
+
+ONE YEAR: (52 ISSUES) ................... ☐ $7.50
+
+(please print)
+
+Name _________________________________________________
+
+ADDRESS _________________________________________________
+
+CITY _________________________________________________
+
+STATE/ZIP # ____________________ COUNTRY ____________
+
+PLEASE MAIL CHECK MINISTRY OF INFORMATION, BLACK
+
+OR MONEY ORDER TO:
+Box 2637 Ministry of Information, Black
+
+# FREE HEALTH CARE
+
+The BLACK PANTHER PARTY is establishing a FREE PEOPLE'S MEDICAL CLINIC to satisfy the medical needs of our community. We understand that the capitalists in America will never provide adequate medical service so the BLACK PANTHER PARTY has moved to establish another com-
+
+ple can be involved.
+
+Technical assistance, supplies, and donations can be brought to the office of the ILLINOIS CHAPTER of the BLACK PANTHER PARTY, 2350 West Madison Street. For further information, call 243-8276.
+
+ALL POWER TO THE PEOPLE
+
+NW 88613 Doctd:32199554
+
+Page 1202

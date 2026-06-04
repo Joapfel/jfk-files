@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_10664.png
+
+Convert to Markdown**SECRET**
+
+Memorandum from M. V. Hale to Mr. S. M. McWeeney
+
+Re: Senate Select Committee on Intelligence (SSCI)
+Request to Discuss the Office of Liaison and
+International Affairs (OLIA) and the
+Counterintelligence Situation in West Berlin
+
+**DETAILS CONTINUED:**
+
+The second reason for this gap involves the legal guidelines under which the U. S. military, by virtue of their authority of an occupying power in West Berlin, conducts technical surveillance and mail openings. Mr. Eliff stated that, as an occupying power, the U. S. military, much like the FBI domestically, is the entity which conducts telephone monitorings of criteria country establishments and personnel in the U. S. sector of West Berlin. It also opens certain mail of interest from the East which passes through this sector. However, whenever there is an overhear of a U. S. national or whenever there is mention made of a U. S. national in a piece of correspondence, that U. S. national's name is not disseminated to any other U. S. intelligence agency. This lack of dissemination is as a result of a lawsuit in the early 1970s against the U. S. Army which, at that time, had in fact been monitoring the activities of U. S. nationals. As a consequence of this lawsuit, very stringent guidelines were written which compelled the U. S. military to use the Foreign Intelligence Surveillance Court to monitor Americans including stringent guidelines for minimizing overhears of U. S. nationals when monitoring non U. S. nationals.
+
+The net results of these restrictions is that, according to Mr. Eliff, 15 years worth of overhears of U. S. nationals as well as the like potential collection of names of U. S. persons via mail openings has been lost.
+
+Mr. Eliff advised it was his belief these minimization restrictions were too stringent and should be amended to allow for dissemination. He however stated that he thought the issue should be brought up after the upcoming elections in that he did not believe a "lame duck" administration would be interested in undertaking the issue.
+
+(CONTINUED - OVER)
+
+**SECRET**
+-3-

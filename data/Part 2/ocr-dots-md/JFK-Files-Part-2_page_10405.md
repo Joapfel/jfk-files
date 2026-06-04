@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_10405.png
+
+Convert to MarkdownSUBJECT: Sensitive Activities Performed by the Office of
+Logistics
+
+Executive Fellowship. The book is entitled "Where's
+What -- Sources of Information for Federal Investigators."
+It is a full treatise on the existence of sources of in-
+formation that may be useful to an investigator. The
+book's first printing of 300 copies was made in June 1967.
+Due to demand, a second printing of 600 copies was made
+in September 1968. The title page of the book gives
+attribution to Mr. Murphy, Office of Security, Central
+Intelligence Agency, and the Brookings Institution Federal
+Executive Fellowship. The book is classified Confidential,
+and it is our understanding that the distribution was made
+to appropriate agencies of the Federal Government. A copy
+of Mr. Murphy's book can be made available for review if
+desired.
+
+Sometime in 1972, a representative of the Law
+Enforcement Assistance Administration (LEAA) requested
+that the Agency give consideration to our publishing, at
+LEAA expense, an unclassified version of this volume. It
+was the intent of LEAA to make broad-scale distribution
+to Police Departments throughout the country. The Director
+of Security and I consulted on this matter and jointly
+determined that the LEAA request should not be honored be-
+cause the Agency should not put itself in the position of
+publishing law enforcement material for general and un-
+classified purposes, and it would be an abuse of our print-
+ing facilities.
+
+b. On 5 January 1971, the Director of Security re-
+quested that I approve his leasing up to eleven motor
+vehicles for use in connection with a special support
+operation which would last approximately 3 months. The
+Director of Security informed me, in his requesting memo-
+randum of 5 January 1971, that "This support activity has
+been undertaken at the specific instruction of the Director
+and has his personal approval." The request was approved.
+
+c. From 1968 to date, the Office of Security has requisitioned from this Office a considerable amount of materiel which we understand was to be given or loaned by them to local Police Departments. In certain cases some of this materiel was issued from Agency stocks and, in other cases, direct procurement of the materiel was made by funds furnished by the Office of Security. A complete listing of such materiel is found in Attachment 2.
+
+EYES ONLY
+SECRET
+
+0012-3

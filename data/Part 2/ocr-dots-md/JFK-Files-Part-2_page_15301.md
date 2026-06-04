@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_15301.png
+
+Convert to Markdown3. Extent and Nature of Current Supervision
+
+The program as it relates to all friendly foreign countries (except West Germany) is coordinated by the Number One Man of the Nationalities Intelligence Section working through the separate supervisors assigned to the individual country's desk within the Section.
+
+4. Current Justification for Continuation
+
+This program continues to produce information of substantial value relative to Bureau investigations as well as substantive foreign political information of vital interest to the White House and members of the intelligence community. The information continues to illustrate the FBI's ability to produce valuable intelligence information relative to foreign political matters and to solidify the Bureau's position as a valuable source of foreign intelligence data. It is recommended that this program be continued.
+
+5. Periodic Justification
+
+Program is evaluated annually and was last justified by memorandum dated 5/8/70.

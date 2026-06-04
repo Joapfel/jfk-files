@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_18042.png
+
+Convert to MarkdownTREAT AS YELLOW
+
+3791 (6.75) NW 88326 DocId:32989653 Page 40 CLASSIFY AS APPROPRIATE SEE INSTRUCTIONS ON REVERSE BEFORE COMPLETING.
+
+<table><thead><tr><th colspan="8">CLASSIFY AS APPROPRIATE</th></tr><tr><td>TO:</td><td colspan="4">Intelligence Community Staff</td><td colspan="2">FROM:</td></tr><tr><td>ATTN:</td><td colspan="4">Central Index</td><td colspan="2">FBI</td></tr><tr><td colspan="8">SUBJECT: Abstract of Information Provided to Select Committees</td></tr><tr><td colspan="4">1. HOW PROVIDED (check appropriate term. If a document was made available for review but not transmitted, so note.)</td><td colspan="4">2. DATE PROVIDED<br/>9/18/75</td></tr><tr><td>DOCUMENT</td><td>BRIEFING</td><td>INTERVIEW</td><td>TESTIMONY</td><td>OTHER</td><td colspan="4"></td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8">3. TO WHOM PROVIDED (check appropriate term; add specific names if appropriate)</td></tr><tr><td></td><td></td><td colspan="7">The Attorney General with copy for forwarding to the White House</td></tr><tr><td></td><td></td><td>HSC</td><td colspan="6"></td></tr><tr><td colspan="8">4. IDENTIFICATION (provide descriptive data for documents; give name or identification number of briefer, interviewee, testifier and subject)</td></tr><tr><td colspan="8">Memorandum reporting results of an interview by SSC Staff Member of former Assistant Director Joseph K. Ponder</td></tr><tr><td colspan="4">5. IN RESPONSE TO (list date and item number if in response to formal request, otherwise state verbal request of (name), initiative, subpoena, etc.)</td><td colspan="4">6. CLASSIFICATION OF INFORMATION (enter U, C, S, TS or Codeword)<br/>U</td></tr><tr><td colspan="8"></td></tr><tr><td colspan="8">7. KEY WORDS (enter the appropriate key words from the list provided separately; if key words not listed are used underline for emphasis)</td></tr><tr><td colspan="8">Surveillance, electronic</td></tr><tr><td colspan="8" style="text-align:right;">ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED BY SPAMCLY<br/>DATE 10/18/75</td></tr><tr><td colspan="8">8. SUMMARY (see reverse side before completing this item)</td></tr><tr><td colspan="8">Former FBI investigation of Martin Luther King, Jr.</td></tr><tr><td colspan="8">62-116395</td></tr><tr><td colspan="8">FMK:lhb</td></tr><tr><td colspan="8">(4) ORIGINAL VIA LIAISON TO CENTRAL COMMUNITY INDEX IN CONNECTION WITH SENSTUDY 75</td></tr></thead><tbody><tr><td colspan="8" style="text-align:center;">5 woc 78</td></tr><tr><td colspan="8" style="text-align:center;">TREAT AS YELLOW</td></tr></tbody></table>
+
+CLASSIFY AS APPROPRIATE
+
+3791 (6.75)
+
+NW 88326 DocId:32989653 Page 40

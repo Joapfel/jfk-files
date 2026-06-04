@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_9408.png
+
+Convert to MarkdownDE 157-3075
+
+# ADMINISTRATIVE
+
+All persons mentioned in this report as being connected with the NCCF, who reside in the Detroit Division, are listed on the SI or are currently under investigation.
+
+This report is classified confidential to protect sources whose identity, if made known, would be prejudicial to the internal security of the U.S.
+
+# INFORMANTS
+
+## Identity of Source
+
+* DE T-1 is
+  DE 1330-R
+
+* DE T-3 is
+  Detective Lieutenant WILLIAM MC COY,
+  Security Section,
+  Intelligence Division
+  Detroit PD
+
+* DE T-21 is
+  DE 1414-R*
+
+* DE T-26 is
+  DE 1423-R (PROB)
+
+* CG T-6 is
+  CG 7392-R*
+
+* SF T-16 is
+  SF 3215-R*
+
+* SF T-22 is
+  SF 3259-R*
+
+* DE T-24 is
+  Lieutenant LOUIS SZABO
+  Intelligence Unit
+  Flint, Michigan PD
+
+* DE T-23 is
+  RONALD EDWARD SMITH, RI - Ghetto
+
+- B*
+Cover Page

@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_15313.png
+
+Convert to MarkdownDEPARTMENT OF THE NAVY
+OFFICE OF THE CHIEF OF NAVAL OPERATIONS
+
+WASHINGTON 25, D. C.
+
+IN REPLY REFER TO
+
+Op-921B/dtn
+Ser 05491P92
+
+RECORDING DEPT
+
+Re: Intell. Couying 8 - FEB:1955
+
+By dear Mr. Hoover:
+
+Reference is made to your letter of November 13, 1954, wherein you advised that the Bureau would like to be notified when information is received that an intelligence representative of a foreign government is coming to the United States. Your letter requested details of any liaison arrangements with such representatives, of their approved activities, and of any activities appearing to be outside the scope of their approved missions.
+
+As you are aware, most foreign countries have officially accredited Naval and Air Attaches for conducting appropriate liaison on naval and naval air matters with the Department of the Navy. These attaches and members of their staffs, with the sanction of the Department, make innumerable visits and contacts with naval representatives and representatives of private contractors to the Navy. It is assumed that, with the exception of the travel of Soviet and Satellite Attaches, your interest does not extend to the day-to-day activities of these representatives as long as such activities remain within normal and authorized bounds.
+
+There is transmitted for your information a copy of the current monthly roster of Foreign Naval and Air Attaches, and a copy of the Office of Naval Intelligence Guide for such attaches. The roster will be provided to you on a monthly basis henceforward.
+
+Further, any information which may come to our attention and which suggests improper activities of an internal security nature by foreign Naval and Air Attaches will be provided promptly.
+
+With respect to intelligence representatives visiting this country, you will be notified, in accordance with the request contained in your letter.
+
+Mr. J. Edgar Hoover
+Director, Federal Bureau of Investigation
+Department of Justice
+Washington 25, D. C.
+RECORDED - 33
+
+CARL F. ENGE
+Rear Admiral, U. S. Navy
+Director of Naval Intelligence
+INDEXED-33
+
+Encl:
+
+(1) Roster of Foreign Naval Attaches and Foreign Air Attaches accredited to the Department of the Navy, of 1 Jan 1955
+
+(2) Guide for Foreign Naval Attaches and Foreign Air Attaches accredited to the Department of the Navy, of Jul 1954
+
+EXH
+JUN 7 1955
+FEB 27 1955
+
+NW 88613 DocId:32199554 T
+Page-810

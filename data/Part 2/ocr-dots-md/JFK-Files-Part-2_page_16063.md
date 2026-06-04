@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_16063.png
+
+Convert to MarkdownRE: BLACK PANTHER PARTY
+
+The foregoing documents were seized and are
+being held as evidence at the Chicago Office of the FBI.
+
+A characterization of the BPP is attached as
+an appendix hereto.
+
+Copies of this memorandum are being furnished
+to the following agencies:
+
+United States Attorney,
+Chicago, Illinois
+
+United States Secret Service,
+Chicago, Illinois
+
+Office of Special Investigations,
+Chicago, Illinois
+
+United States Naval Investigative
+Service Office, Chicago, Illinois
+
+Region I, 113th Military
+Intelligence Group,
+Evansston, Illinois
+
+NW 88613 DocId:32199554 -

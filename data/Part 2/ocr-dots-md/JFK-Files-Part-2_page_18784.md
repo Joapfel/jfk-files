@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_18784.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Subject's only reply to informant was that Pasternak's book, "Doctor Zhivago," was "political treason." Subject also said that this was "their system," with an air of finality.
+
+The records of the United States Department of State reflect that Vladimir Borisovich Barkovsky, a Soviet national, is Counselor of the Soviet Mission to the United Nations. These same records reflect that Nikolai Sergeevich Kalinin, a Soviet national, is a translator assigned to the United Nations Secretariat.
+
+This is loaned to you by the Federal Bureau of Investigation, and neither it nor its contents are to be distributed outside the agency to which loaned

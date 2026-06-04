@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_18060.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF FBI SPECIAL AGENT (SA)
+FRED J. CASSIDY BY SSC STAFF MEMBER
+
+**NOTE:**
+
+Legal Counsel Division advice to Cassidy was given
+by Supervisor P. V. Daly. .

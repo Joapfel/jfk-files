@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_17214.png
+
+Convert to MarkdownBLACK PANTHER PARTY (BPP)
+
+Harry Moody, Negro male, age 23, residence
+6715 South Oglesby;
+
+Terrance Watson, Negro male, age 19,
+residence 2145 West Lake Street.
+
+The above individuals have been reported by
+as members of the Chicago Chapter BPP.
+
+Officer Waner, Chicago PD, advised on
+October 4, 1969, that an Officer Shanley, Chicago PD,
+was injured in front of BPP Headquarters by a shotgun
+blast fired by an unknown individual. Officer Waner
+stated the shotgun blast was believed to have
+originated from Panther Headquarters. Officer Shanley
+was taken to Illinois Research Hospital.
+
+Captain Joyce, 13th Police District, advised
+subsequently that additional police patrols had been
+sent into the vicinity of Panther Headquarters and
+additional reinforcements were to be maintained in the
+general area. Captain Joyce concluded saying the
+injury to Officer Shanley was possibly only superficial
+and could be a result of a ricochet from the shotgun blast.
+
+Officer Lara, Chicago PD, subsequently advised
+on October 4, 1969, that further information developed
+by the PD regarding the shooting at Panther Headquarters
+reflects the police were responding to a telephone call
+alleging shots had been fired from Panther Headquarters.
+Officer Lara stated he and Officer Shanley, above,
+investigated the call when Officer Shanley was hit by
+concrete torn up as a result of a shotgun blast which
+originated from the roof of Panther Headquarters.
+This shot was in the rear of the headquarters and not
+directly on Madison Street which runs in front of the
+headquarters. Officer Lara concluded saying that he and
+other officers arrived after their first shot, entered
+Panther Headquarters and arrested seven male Negroes and
+confiscated a .30 caliber carbine and a shotgun.

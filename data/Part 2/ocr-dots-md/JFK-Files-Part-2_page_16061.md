@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_16061.png
+
+Convert to Markdown**DETAILS: AT CHICAGO, ILLINOIS**
+
+This investigation was predicated upon receipt of information from the New Haven Division reflecting that GEORGE SAMS, JR., had been charged with the holding and subsequent murder of one, ALEX RACKLEY for several days in May, 1969, during which time he was tortured, scalded with boiling water, beaten, burned, and subsequently murdered. An authorized complaint was filed May 27, 1969, before United States Commissioner (USC) ARTHUR H. LATIMER at New Haven, Connecticut, by SA ROBERT C. PUCKETT. A Commissioner's warrant was issued for his arrest on May 27, 1969, charging violation of Title 18, Section 1073, United States Code.
+
+On June 3 and 4, 1969, information was received that the subject had been, and was then, as late as 12:30 a.m., on June 4, 1969, in the Black Panther Party (BPP) Headquarters, 2350 West Madison Street, Chicago, Illinois. He further advised that the subject was expected to remain there at least for the remainder of that night.
+
+At approximately 5:00 a.m., on June 4, 1969, Agents of the Chicago Office surrounded the premises at BPP Headquarters. SA R. B. YADON, Jr., telephonically informed a person answering the telephone at this address that a warrant was outstanding for the arrest of subject, GEORGE SAMS, Jr., and three other individuals. SA YADON attempted to elicit cooperation of those within the BPP Headquarters without success. After approximately 30 minutes, the occupants of this building were ordered out on the street and were placed under arrest. These eight individuals identified themselves as follows:
+
+LOCKEITT PHILIP BIBBS
+BRUCE ALLEN DICKSON
+ANDREA BEVERLY GRAVES
+HARVEY DWIGHT HOLT
+PATRICK KEEN
+LARRY MAURICE ROBINSON
+JESSIE WARD
+GEORGIA WASHINGTON.

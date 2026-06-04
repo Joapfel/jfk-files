@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_13026.png
+
+Convert to MarkdownCompartmented
+Clearance
+Designated Briefed
+
+Date and
+Place of Birth
+
+Social
+Security No.
+
+(SI, TK, B)
+
+| Name | Designated | Briefed (SI, TK) | Date and Place of Birth | Social Security No. |
+| :--- | :---: | :---: | :---: | :---: |
+| Shea, Patrick | * B 4/15 | 2-28-48 | Utah | 528-64-1965 |
+| Shelburn, Frank | | 5-30-13 | Va. | 338-24-6934 |
+| Smith, Elizabeth | * B 5/19 | 6-21-49 | NY | 076-42-0199 |
+| Smith, John L. | * B 6/26 | 3-3-39 | Ky. | 400-52-5800 |
+| Smith, Stephanie | | 3-23-54 | Ohio | 282-58-6476 |
+| Smothers, Curtis | * B 5/16 | 8-26-43 | Md. | 220-38-9869 |
+| Snider, Lewis Brittle | * B 4/24 | 1-12-45 | NC | 246-72-0956 |
+| Talley, Martha | * B 6/26 | 9-7-50 | NC | 245-88-1368 |
+| Tascione, Rosemary | | 6-23-45 | NY | 085-34-6648 |
+| Theoharis, Athan George | | 8-3-36 | Wisc. | 395-32-1273 |
+| Thoben, Florence | | 6-2-10 | Ind. | 313-12-1857 |
+| Thomas, Robert, | | 12-16-25 | Md. | 219-14-5186 |
+| Tonalonis, Alexandra | | 6-1-48 | Md. | 200-38-8408 |
+| Towell, Mary | * B 6/10 | 4-25-44 | Tenn. | 566-64-7628 |
+| Treverton, Gregory | * B 6/2 | 1-21-47 | Colo. | 524-62-2459 |
+| Trueheart, William | * B 6/2 | 12-18-18 | Va. | 225-20-6411 |
+| Turner, James | * B 7/14 | 6-29-53 | Cal. | 215-64-7255 |
+| Tschirgi, James⁶ | * B 6/26 | 2-23-25 | Wyo. | 520-16-7290 |
+| Vance, James | * B 7/23 | 4-6-36 | Ohio | 078-28-3950 |
+| Wallach, Paul | * B 6/26 | 5-24-47 | NY | 149-36-2999 |
+| Ward, Fred | | 11-20-40 | DC | 225-50-9983 |
+
+NWW 88296, DocId:32989550, Page 167

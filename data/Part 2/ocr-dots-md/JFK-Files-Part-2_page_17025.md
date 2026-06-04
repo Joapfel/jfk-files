@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_17025.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+DIRECTOR, FBI
+
+DATE: 3/10/70
+
+FROM : SAC, CHICAGO
+
+SUBJECT: BLACK PANTHER PARTY ·
+RM - BPP
+
+Enclosed for the Bureau are 11 copies of
+an LIM dated and captioned as above.

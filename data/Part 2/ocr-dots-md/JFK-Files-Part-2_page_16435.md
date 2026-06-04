@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_16435.png
+
+Convert to MarkdownThe following two pages are xerox copies of xerox posters (approximately 8½" by 11") which were displayed on the walls of the Chicago BPP Headquarters, 2350 West Madison Street, Chicago, Illinois, on June 4, 1969. Both posters were in regard to police officers. Photographs on both posters were poor reproductions, however, printing suggested that San Francisco Police Officer MICHAEL O'BRIEN is a "pig". O'BRIEN's poster indicated he was wanted by the BPP for the murder of brother GEORGE BASSKET.
+
+The second poster was a poor photographic reproduction of a coffin carrying the body of a police officer and captioned "all power to the people."

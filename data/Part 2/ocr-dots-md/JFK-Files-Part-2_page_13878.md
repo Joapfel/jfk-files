@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_13878.png
+
+Convert to MarkdownAs to O-FBI public statement - no interest.
+
+As to P (the overall FBI recommendation), he would like personal access.
+
+I discussed as an alternative, access to the initiating documents in the COINTELPRO matters; and that I would attempt to obtain those as an alternative solution to his inquiry. He said that he might be interested in those documents, but they were far less important to him than access to A-E. He reiterated his sensitivity to the question of raw files, and indicated a strong inclination to avoid the raw files question, proceeding by the proposed expanded summaries route if necessary, with expanded summaries to be prepared only in the event of specific questions being raised after staff access to A-E.
+
+He then went on to state that he perceived a significance in the recommendation and proposals of the Petersen Report; and that he felt FBI and DOJ policies might be perceived as at loggerheads, although this was muted in the prose. He said that he felt sure that, at an appropriate time, the Committee would wish to explore, by AG testimony at SSC, the actions of the DOJ on the recommendation reflected in the report. I said that I understood his interest in that process.
+
+My recommendation is that, in view of the retrenchment regarding "raw files", A-E be made available, under the conditions outlined above; I am furnishing a copy of this memorandum to Mr. Daly for dissemination to appropriate Executives of the Bureau, and to Mr. Maroney of the Criminal Division.
+
+I believe a prompt decision as to A-E would be most helpful.

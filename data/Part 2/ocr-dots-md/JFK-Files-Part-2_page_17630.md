@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_17630.png
+
+Convert to MarkdownPOSITION PAPER
+DOMESTIC INTELLIGENCE DIVISION
+
+INVESTIGATIONS OF SUBVERSION
+
+May 13, 1972
+
+OVERVIEW
+
+This paper deals with the conduct by the FBI of Intelligence-type investigations supervised by the Domestic Intelligence Division. Authority for these investigations is documented and outlined, including situations where there is no direct violation of law. Criteria and controls and dissemination policies implementing this authority are detailed.
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1-18-72 BY SP-2 ALM/16
+
+ENCLOSURE
+
+NW-88296-DocId:32989628 Page 70

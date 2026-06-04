@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_13752.png
+
+Convert to MarkdownThe Deputy Attorney General
+
+NOTE: According to referenced communication, Mr. Doar requested to review a communication he caused to be sent while in the Department asking for information concerning the Mississippi Freedom Democratic Party Delegation. The Deputy Attorney General had asked that the documentation concerning the request and our response be located and furnished to him. The Department also asked our views as to whether he should be given access to or delivered the documents for the purpose of refreshing Doar's recollection.

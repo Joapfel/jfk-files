@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_15585.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+Chicago, Illinois
+
+November 17, 1969
+
+BLACK PANTHER PARTY (BPP)
+
+A characterization of the BPP is contained in
+the appendix section.
+
+On November 14, 1969, who has furnished reliable information in the past, advised that Fred Hampton, Deputy Chairman, Illinois BPP, and three or four other Chicago area BPP members traveled to Carbondale, Illinois, in a 1966 black two-door Oldsmobile 98, where Hampton allegedly spoke before a group of approximately 300 students at Southern Illinois University (SIU).
+
+Hampton's speech allegedly consisted of BPP history,
+theory and practice, followed by a question and answer period.
+
+Hampton allegedly received a $600 check written on SIU payable to Fred Hampton as admission to the speech was free.
+
+advised that arrangements were allegedly made for this speech with the help of one Reggie Brown, who is described as a male Negro, about 19 years old, light skinned, natural hair, wearing glasses, the only known BPP member at SIU, through the Black Student Union (BSU) at the University. This person is allegedly a BPP member from New York, New York, a student at SIU, and one who sells approximately 1,000 BPP newspapers on campus per week.
+
+The above Chicago Panthers returned to Chicago on
+November 15, 1969.
+
+Copies of this memorandum are being furnished to
+the following agencies:
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your scope-

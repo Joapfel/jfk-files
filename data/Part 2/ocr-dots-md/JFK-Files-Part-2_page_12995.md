@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_12995.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY ATTORNEY GENERAL
+
+WASHINGTON, D.C. 20530
+
+November 24, 1975
+
+TO: John A. Mintz, Assistant Director
+Legal Counsel Division
+Federal Bureau of Investigation
+
+FROM: Michael E. Shaheen, Jr.
+Special Counsel for Intelligence
+Coordination
+
+SUBJECT: Senate Select Committee Request
+
+Attached is a Senate Select Committee letter requesting delivery of certain documents pertaining to Mary Jo Cook and Gary Thomas Rowe. Please prepare an appropriate response.
+
+cc: Paul Daly
+
+MDR-16
+ALL FBI INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE: 10/20/86 BY: SPG 1 ALM/THC
+
+10-25-86
+
+1-DG 1-DG 11/24/86 SK:top Enc: 36
+
+NEW 88296 DocId:32989550 Page 136

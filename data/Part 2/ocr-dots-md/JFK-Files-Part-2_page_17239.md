@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_17239.png
+
+Convert to MarkdownRE: BLACK PANTHER PARTY (BPP)
+
+CONFIDENTIAL
+
+Joseph Noonan, United States Secret Service, Chicago,
+advised on February 25, 1969, that he had received information
+on February 25, 1969, that reportedly Fred Hampton and Bobby
+Lee Rush, both leaders in the Chicago BPP Chapters are supposed
+to have air reservations on British European Airways (BEA),
+Flight 1624, departing Frankfurt, Germany, to West Berlin,
+Germany, on February 26, 1969.
+
+Source advised on February 25, 1969, that none of
+the Chicago BPP leaders mentioned above are known to have an
+United States passport.
+
+On February 25, 1969, Mrs. Gertrude Wild, Administrative Assistant, United States Passport Office, State Department, Chicago, Illinois, advised that records available to her failed to reflect any record of a passport or passport applications for any of the Chicago BPP members listed above.
+
+Source further advised on February 25, 1969, that
+Bobby Rush, Fred Hampton, Nathaniel Junior, and William O'Neal,
+mentioned above, all have outstanding court cases against
+them in Chicago, Illinois. Source indicated that all have
+stated they fear that they may be arrested by Chicago police
+officers if they attempt to leave the Chicago court jurisdiction
+without permission of the court. Source advised that Fred
+Hampton indicated to his attorney that he will not be in
+Chicago court on February 26, 1969.
+
+Bob Ders, Manager, Trans World Airlines (TWA), O'Hare Field, Chicago, Illinois, advised on February 25, 1969, that none of the Chicago BPP members, referred to above, have reservations on TWA or Pan American flights for February 25 or 26, 1969, or on any other date. Ders stated that TWA and Pan American are the only airlines serving Chicago, Illinois, that have non-stop flights from Chicago, Illinois, to Frankfurt, Germany.
+
+CONFIDENTIAL
+
+N\W 88613 Docld:32199554
+Page 2736

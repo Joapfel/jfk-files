@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_16456.png
+
+Convert to Markdownto be acting in the role of the house Negro. They are pro-administration. They would like a few concessions made, but as far as the overall setup, they have a little more material goods, a little more ad-vantage, a few more privileges than the black have-nots; the lower class. And so they identify with the power structure and they see their interests as the power structure's interest. In fact, it's against their interest.
+
+The Black Panther Party, was forced to draw a line of demarcation. We are for all of those who are for the promo-tion of the interests of the black have-nots, which represents about 98% of blacks here in America. We're not controlled by the white mother country radicals nor are we controlled by the black bour-geoisie. We have a mind of our own and if the black bourgeoisie cannot align itself with our complete program, then the black bourgeoisie sets itself up as our enemy. And they will be attacked and treated as such.
+
+**MOVEMENT:** The Black Panther Party has had considerable contact with white radicals since its earliest days. What do you see as the role of these white radicals?
+
+**RUEY:** The white mother country radical is the offspring of the children of the beast that has plundered the world ex-ploiting all people, concentrating on the people of color. These are children of the beast that seek now to be redeemed because they realize that their former heroes, who were slave masters and murderers, put forth ideas that were only facades to hide the treachery they inflicted upon the world. They are turn-ing their backs on their fathers.
+
+The white mother country radical, in resisting the system, becomes some-what of an abstract thing because he's not oppressed as much as black people are. As a matter of fact his oppression is somewhat abstract simply because he doesn't have to live in a reality of oppression.
+
+Black people in America and colored people throughout the world suffer not only from exploitation, but they suffer from racism. Black people here in America, in the black colony, are op-pressed because we're black and we're exploited. The whites are rebels, many of them from the middle class and as far as any overt oppression this is not the case. So therefore I call their re-
+
+jection of the system somewhat of an abstract thing. They're looking for new heroes. They're looking to wash away the hypocrisy that their fathers have presented to the world. In doing this they see the people who are really fight-ing for freedom. They see the people who are really standing for justice and equality and peace throughout the world. They are the people of Vietnam, the people of Latin America, the people of Asia, the people of Africa, and the black people in the black colony here in America.
+
+## White Revolutionaries
+
+This presents somewhat of a problem in many ways to the black revolutionary especially to the cultural nationalist. The cultural nationalist doesn't understand the white revolutionaries because he can't see why anyone white would turn on the system. So they think that maybe this is some more hypocrisy being planted by white people.
+
+I personally think that there are many young white revolutionaries who are sin-cere in attempting to realign themselves with man-kind, and to make a reality out of the high moral standards that they maintainers and forefathers only expressed. In pressing for new heroes the young white revolutionaries found the heroes in the black colony at home and in the colonies throughout the world.
+
+The young white revolutionaries raised the cry for the troops to withdraw from Vietnam hands off Latin America, with-draw from the Dominican Republic and also to withdraw from the black community or the black colony. So you have a situation in which the young white revolutionaries are attempting to identify with the oppress-ed people of the colonies and against the exploiter.
+
+The problem arises then in what part they can play. How can they aid the colony? How can they aid the Black Panther Party or any other black revolutionary group? They can aid the black revolut-ionaries first by simply turning away from the establishment, and secondly by choosing their friends. For instance, they have a choice between whether they will be a friend of Lyndon Baines John-son or a friend of Fidel Castro. A friend of Robert Kennedy or a friend of Ho Chi Minh. And these are direct opposites. A friend of mine or a friend of Johnsons. After they make this choice then the white revolutionaries have a duty and a respon-sibility to act.

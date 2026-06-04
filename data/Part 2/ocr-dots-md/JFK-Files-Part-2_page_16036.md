@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_16036.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DEMONSTRATIONS PROTESTING THE TRIALS OF INDIVIDUALS INDICTED FOR THEIR ACTIVITIES DURING THE DEMOCRATIC NATIONAL CONVENTION (DNC) OF 1968 IN CHICAGO, ILLINOIS
+
+The defense's point was again overruled by Judge Hoffmann. Judge Hoffmann then admonished defense attorney Kunstler for his behavior during the court's remarks and for the posture of the defendants at the defense table during the trial. The court recessed at 4:30 p.m. on October 7, 1969, without incident to reconvene at 10:00 a.m. the following morning.
+
+-22-
+
+CONFIDENTIAL
+
+NW 88613 DocId:32199554 Page 1533

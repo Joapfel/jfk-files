@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_15152.png
+
+Convert to Markdown# DOMINICAN SITUATION
+
+The FBI was ordered into the Dominican Republic by the President in May, 1965, to develop information to be used in preventing communists from gaining control in that country. At the height of the Dominican Revolution, we had a staff of 14 Agents. In August, 1966, at White House instructions, we established a permanent Legal Attache office there staffed with three Agents.
+
+Since his inauguration July 1, 1966, Dominican President Joaquin Balaguer has brought about a degree of stability, however, there continues to be strong undercurrents of dissension. The rightists reportedly have considered plots to remove Balaguer. Juan Bosch's political party, the loser in the June, 1966, election, has been most vocal in its opposition to Balaguer's programs and only recently published a document which appears intended to set the stage for a vast movement of resistance against Balaguer. The communist groups have suffered much internal dissension but to establish a common cause could be expected to regroup as they have in the past. They possibly would be willing to let Bosch's political party provide the overt leadership.

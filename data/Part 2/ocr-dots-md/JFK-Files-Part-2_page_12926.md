@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_12926.png
+
+Convert to MarkdownSECRET
+
+U. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE
+ACTIVITIES (SSC)
+
+RE: VISITORS OF SSC STAFF
+MEMBERS TO FBI
+LEGAL ATTACHES
+
+the interview by stating that the operations of Legats, Brasilia, and Buenos Aires, were not the type of Legat operations he desired to review, indicating that Mexico City Legat's operations were more of the type of interest to them. Aaron asked pointed questions concerning the mechanics of Legat reporting on intelligence information developed locally to FBIHQ and the local coordination of this information with the Embassy components. Aaron requested the Legat provide him with the general nature of intelligence developed and reported by the Legat to the Embassy and FBIHQ. He was told that generally international and local terrorism were the prime topics of Legat reporting. Inquiry was also made into the reason for FBI expansion of foreign liaison activities in 1970. He was told that the Legat was not personally aware of any special reason other than that the FBI liaison operations required additional personnel and Aaron was referred to FBIHQ for any additional information in this regard. Legat was asked whether the CIA Station had ever requested Legat to secure data from FBI computer banks on Argentine residents of CIA interest who had previously resided in the U. S. Legat's reply was in the negative. Other questions mainly dealt with cooperation and coordination activities between the FBI and the CIA at the Embassy. Inquiry was also made into the relationship of the Drug Enforcement Agency and FBI overseas. The interview lasted approximately thirty-five minutes.
+
+Upon arrival in Buenos Aires, Mr. Aaron was suffering from an intestinal problem and remained in his Buenos Aires hotel on September 25, 1975. The Charge D'Affaires hosted a small luncheon for former Ambassador Truchart on that date which Legat, Buenos Aires, attended. Truchart was very open regarding the operations of the SSC
+
+SECRET
+
+- 3 -

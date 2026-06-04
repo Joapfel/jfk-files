@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_17713.png
+
+Convert to MarkdownFRANK CHURCH, IDAHO, CHAIRMAN
+JOHN G. TOWER, TEXAS, VICE CHAIRMAN
+
+PHILIP A. HART, MICH.
+WALTER F. MONDALE, MINN.
+WALTER D. HUDDLESTON, KY.
+ROBERT MORGAN, N.C.
+GARY HART, COLO.
+
+HOWARD H. BAKER, JR., TENN.
+BARRY GOLDWATER, ARIZ.
+CHARLES MCC. MATHIAS, JR., MD.
+RICHARD S. SCHWEIKER, PA.
+
+WILLIAM G. MILLER, STAFF DIRECTOR
+
+United States Senate
+
+SELECT COMMITTEE TO.
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+(PURSUANT TO S. RES. 21, 94TH CONGRESS)
+WASHINGTON, D.C. 20510
+
+March 31, 1975
+
+Mr. John Clarke
+Associate Deputy to the D/DCI/IC
+Central Intelligence Agency
+2430 E Street, N.W.
+Washington, D.C. 20505
+
+Dear John:
+
+With respect to our letter to you of March 17, 1975
+you will find attached the first list of members of the Committee
+staff designated to receive compartmented information.
+
+With best wishes,
+
+Enclosure
+
+FWB: ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED BY: SP-2 ALM/75 DATE: 1/18/75

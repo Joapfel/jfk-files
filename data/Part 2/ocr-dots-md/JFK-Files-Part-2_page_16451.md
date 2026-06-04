@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_16451.png
+
+Convert to MarkdownV. Sectional Tactics (In detail for section and sub-leaders)
+
+1. Deployment
+   a. position
+   b. advancement
+   c. retreat
+
+2. The Cell
+   a. two riflemen, one auto riflemen
+
+VI. Field Training
+
+1. Living in and by the elements.
+
+2. Adhesiveness with fellow members.
+
+3. There should be at least a three day camp out with rations for one meal, and a condition of rest during the whole camp out.
+
+VII. Enemy Interrogation
+
+1. Rights of Soldier
+
+a. Name, People-Liberation Army
+
+b. Never has right to surrender
+
+c. Right and duty to escape
+
+d. Geneva Agreement
+
+VIII. A test should be given at the end of the four week period of the material covered. If trainee fails he should be given the training over once again, and if he fails again something else should be found for him to do for the people.
+
+VI. Area and weeks of suggested study class
+
+1. I, II
+
+2. III, IV, V
+
+3. IV, V
+
+4. VI, VII and test.

@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_16575.png
+
+Convert to MarkdownDEC 11 1969
+
+Director
+Federal Bureau of Investigation
+
+DJ:NY:05:18:5
+
+Jervis Leonard
+Assistant Attorney General
+Civil Rights Division
+
+DJ 246-23-971
+] 13-831-387
+
+Sexual Harassment,
+John G. Darcy,
+Edward Carmine, et al, Chicago, Illinois
+Police Officer, Subject to
+Fred Womble, Mark Clark,
+Brenda Harris, Vojlina Breuer,
+Blair Anderson and Ronald Satchel Buxton
+Notices
+Summary Punishment
+CIVIL ACTION
+
+This refers to your examination of December 5 and December 8, 1969 submitted "blockagon" Party Activity, Chicago, Illinois."
+
+In connection with this matter, I am enclosing herewith two copies of a telecopy of December 5, 1969 to the Department from John Cuyman of the Illinois State Branch, MJCOP and other officials of that organization. We have also received a telephone call from Thomas Pico, Nanaimo Editor, Chicago Daily News, Monday H. J.rosing, Jr., Executive Director, National Brochure Office and from a number of individuals of Haywood, Illinois, all of these communications generally addressing that the shooting and killing of members of one blockagon Panther organization were, on or about December 4, 1969, unnecessary, unjustifi-
+able and of doubtful legal authority. They request that an investigation be made of the matter.
+
+In view of the circumstances, please conduct a preliminary investigation so that we may determine

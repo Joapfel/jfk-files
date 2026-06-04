@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_14702.png
+
+Convert to MarkdownDonald Edward Ganoung We have investigated Ganoung as a Departmental applicant for the position of consultant with the Law Enforcement Administration at Washington, D. C., the position he now holds. He has a degree in criminology and is a former Episcopalian priest who has worked among deviate elements. He has also been active in civil rights and antidraft demonstrations and twice was arrested in this connection. Divorced by his wife in 1967 after he had an affair with another woman, Ganoung also
+
+The results of our investigation of him were furnished to the Attorney General on 2/11/69.
+
+IRS [JFK Law 11(a)]
+
+William Henry Rentschler Rentschler, a candy company operator, has been extremely active in Illinois Republican Party politics. He carried on a notorious adulterous relationship which led to a divorce from a former wife. Our investigation of him revealed many prominent persons who would not recommend Rentschler for a position with the Government in view of his moral weaknesses and reported lack of business acumen. Our investigation not yet complete but summary memo furnished the White House on 2/10/69.
+
+Special Inquiry Investigations for the White House Security officers of various Government agencies have expressed shock at the lack of knowledge or the total disregard of the provisions of the Federal Employee Security Program by the White House staff responsible for filling top-level positions with the new Administration. Most requests for investigation have been of persons already firmly established in their new jobs. When derogatory data is developed it is simply requested that the investigation be continued. Only one person is known to have been discharged as a result of derogatory information developed during investigation. Don Virdin, Internal Revenue Service (IRS), called Bureau 2/13/69 and indicated Bureau had checked through IRS only 8 of last 25 publicly announced Presidential appointees. Bureau has run checks of IRS on all requests received from White House on Presidential appointees and it would appear White House only asked for 8 of last 25 to be checked.
+
+Selective Service These cases in recent years have broadened in scope with recurring schemes to obstruct the draft. We have 14,000 pending investigations, up 5,000 from a year ago. Fiscal year 1968 produced 809 convictions and the first seven months of this fiscal period have recorded 380 convictions, an increase over this period a year ago. An interesting case is summarized which involves an 18-year-old Californian whose mother, following his arraignment for failure to register for the draft, attempted to get a Restraining Order by contending that she was responsible for her son's actions
+
+NW 88613 DocId:32199554 e
+Page 199

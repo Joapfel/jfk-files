@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_12711.png
+
+Convert to MarkdownVIII. Letters requesting Bureau authority for the interview must contain the following information, if available: (A) Residence address, occupation, employment and race of subject, date and place of birth, citizenship, and status of health (B) Marital status. If married, the occupation, employment, and race of the spouse. (C) Length of time subject a member of or affiliated with subversive organizations and positions he held in such organizations. In cases in which investigation is based on some allegation or circumstances of a security nature other than membership in or affiliation with subversive organizations, facts upon which investigation is predicated should be briefly set forth. (D) If married, information indicating the spouse is or has been a member of or affiliated with subversive groups, the position held in such groups, and the length of time of such membership or affiliation. (E) Membership or affiliation of any other close relatives in subversive groups (F) Information regarding defection, expulsion, inactivity, and present sympathies of the subject and, if married, of the spouse (G) What is expected to be gained by the interview
+
+IX. In each letter, pertinent information, if available, regarding the seven items listed above must be set out under the appropriate number but the above headings need not be restated. If no pertinent data is available regarding any of the items, you should make the appropriate comments after the respective number.
+
+X. All letters requesting Bureau authority to interview the subject of a security investigation must be personally approved by the SAC.
+
+XI. One of the required copies of the letter to the Bureau should consist only of the first page of the letter. When unnecessary for Bureau to issue specific instructions or comments in connection with authorizing an interview, the Bureau will approve the request by placing an appropriate rubber-stamp impression on the single-page copy of the incoming letter and return it by routing slip.
+
+XII. Upon receipt of Bureau authority, the interview must be conducted within [45] days. If this is impossible, advise Bureau of the reasons why the interview was not effected and state that the subject will be contacted within the next [45] days. At the end of the second [45-day] period if the interview has not been conducted, request additional authority. Include in the letters any new information bearing upon the advisability of conducting the interview.
+
+(f) Preparations for and conduct of interviews
+
+I. Interviews must be conducted by two Special Agents. An Agent experienced in security investigations who has knowledge of Bureau regulations regarding development of informants must conduct the actual interrogation. Approach need not be made by both Agents at the same time and one Agent may observe from a secure distance. Background of subject and individual circumstances will determine exactly how approach should be handled in each case. Two Agents should be physically present during any interview or contact with known or suspected Nation of Islam members in all types of Bureau cases.
+
+II. Preparations for interview must be thorough and conducted so that interviewing Agents will not be compromised, the Bureau will not be embarrassed, and confidential informants will not be exposed.

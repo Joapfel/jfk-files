@@ -1,0 +1,58 @@
+# JFK-Files-Part-2_page_11680.png
+
+Convert to MarkdownJULY 28, 1969
+
+MANUAL OF RULES AND REGULATIONS
+REVISION 205
+
+RE: REVISED PAGES
+
+There are enumerated below pages of the Manual of Rules and Regulations, enclosed herewith, which have been revised. Revisions appearing on these pages are identified by brackets. The date appearing at the bottom of the pages indicates the date of revision. The new pages should be inserted immediately in the appropriate section and the old corresponding pages should be removed and turned over to the Special Agent in Charge who has the responsibility for the appropriate destruction of these old pages.
+
+This cover letter should be retained until the next consecutively numbered letter is received. This will enable the field office immediately to detect the failure to receive the latest manual revisions.
+
+Table of Contents
+Pages 1 and 2
+
+Part I
+Section 5 - Pages 1 and 2
+Section 11 - Pages 1 and 2
+Pages 3 and 4
+Page 5
+
+Section 12 - Pages 5 and 6
+Pages 6a and 6b
+
+Part II
+Section 3 - Pages 25 and 26
+Section 4 - Pages 2a and 2b
+Pages 7 and 8
+Page 15
+Pages 65 and 66
+
+Section 6 - Pages 7 and 8
+
+Section 7 - Pages 7 and 8
+Pages 15 and 16.
+Pages 21 and 21a
+Pages 31 and .32
+
+Section 8 - Pages 1 and 1a
+
+Section 9 - Pages 15d and 16
+Page 25
+
+Index
+Pages 1 and 2
+Pages 15 and 16
+Pages 19 and 20
+Pages 21 and 22
+Pages 27 and 28 (Pages 26c,26d,26e, and 26f deleted)
+Pages 28a and 28b
+Pages 28c and 28d
+Pages 31 and 32
+Pages 37 and 38
+Pages 39 and 40
+Pages 45 and 46
+
+Enclosures (31)

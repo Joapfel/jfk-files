@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_9290.png
+
+Convert to MarkdownCONFIDENTIAL
+
+In the issue of April 25, 1970, the BPP newspaper had an article by Minister of Culture Emory Douglas as follows:
+
+"The only way to make this racist U. S. Government administer justice to the people it is oppressing, is . . . by taking up arms against this government, killing the officials, until the reactionary forces . . . are dead, and those that are left turn their weapons on their superiors, thereby passing revolutionary judgement against the number one enemy of all mankind, the racist U. S. Government."
+
+The BPP headquarters is located at 1046 Peralta Street, Oakland, California. Branches of the BPP, and Committees to Combat Fascism, under control of the BPP, have been established in various locations in the U. S.
+
+11*

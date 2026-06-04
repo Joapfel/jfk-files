@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_18422.png
+
+Convert to Markdown<table><thead><tr><th colspan="10">CLASSIFY AS APPROPRIATE</th></tr><tr><td>NOTE: SEE INSTRUCTIONS ON REVERSE BEFORE COMPLETING.</td></tr><tr><th>TO:</th><td colspan="5">Intelligence Community Staff</td><th>FROM:</th><td rowspan="2">FRT</td></tr><tr><th>ATTN:</th><td colspan="5">Central Index</td><td></td></tr><tr><th>SUBJECT:</th><td colspan="7">Abstract of Information Provided to Select Committees</td></tr><tr><th colspan="3">1. HOW PROVIDED (check appropriate term. If a document was made available for review but not transmitted, so note.)</th><th colspan="4"></th><th colspan="2">2. DATE PROVIDED</th></tr><tr><th></th><th>DOCUMENT</th><th>BRIEFING</th><th>* INTERVIEW</th><th>TESTIMONY</th><th>OTHER</th><th></th><th colspan="2">8/7/75</th></tr></thead><tbody><tr><td colspan="9">3. TO WHOM PROVIDED (check appropriate term; add specific names if appropriate)</td></tr><tr><td colspan="3"></td><td colspan="6" style="text-align:center;">The Attorney General with a copy for forwarding to the White House</td></tr><tr><td colspan="9">4. IDENTIFICATION (provide descriptive data for documents; give name or identification number of briefer, interviewee, testifier and subject)</td></tr><tr><td colspan="9">Memorandum reporting results of an interview by SSC Staff Members of former FBI Inspector Donald E. Moore</td></tr><tr><td colspan="3">5. IN RESPONSE TO (list date and item number if in response to formal request, otherwise state verbal request of (name), initiative, subpoena, etc.)</td><td colspan="4"></td><td colspan="2">6. CLASSIFICATION OF INFORMATION (enter U, C, S, TS or Codeword)<br/>U</td></tr><tr><td colspan="9">7. KEY WORDS (enter the appropriate key words from the list provided separately; if key words not listed are used underline for emphasis)</td></tr><tr><td colspan="9">Intelligence Collection<br/>10/11/00 SPZ ALM/716</td></tr><tr><td colspan="9">8. SUMMARY (see reverse side before completing this item)</td></tr><tr><td colspan="9">Concerning the FBI and the so-called Huston Report</td></tr><tr><td colspan="9">62-116395<br/>FMK: fmk<br/>(4) ORIGINAL VIA LIAISON TO CENTRAL COMMUNITY INDEX IN CONNECTION WITH SENSTUDY 75</td></tr><tr><td colspan="9">TREAT AS YELLOW</td></tr></tbody></table>
+
+NW 88326 DocId:32989627 Page 20
+
+CLASSIFY AS APPROPRIATE
+
+ENCLOSURE
+
+62-116395-54/3
+
+3791 (6-75)

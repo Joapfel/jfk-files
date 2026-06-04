@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_10451.png
+
+Convert to MarkdownATTACHMENT
+
+FEDERAL BUREAU OF INVESTIGATION
+
+TSD has had a close working relationship with the FBI over
+the past few years. The FBI is the only organization that has
+been fully briefed on TSD audio techniques and equipment. The
+following are situations where TSD equipment and guidance were
+involved in operations:
+
+(A) Identity 59 - Four masked transmitters were installed. Two have failed and two remain workable.
+
+(B) Identity 60 - A TSD built masked transmitter was installed to collect emanations from a crypto-graphic machine. The system continues to function when samples of the emanations are needed.
+
+(C) Identity 61 - Two transmitters have been installed and are operating. One is specifically designed to collect the sounds of typewriting, the other is a straight audio transmitter to collect con-versations. A FBI agent is manning the listening post. A third system is not oper-ating, probably due to battery expiration. The tape made from this room was made by the National Security Agency before failure.
+
+(D) Identity 62 - TSD furnished equipment and con-sultation covering Identity 62.
+First masked switched trans-mitters were used in two apartments used as tempor-ary quarters. Later masked switched transmitters and microwave transmitters were installed in the permanent quarters along with mic and wire installa-tions, entirely furnished by the Bureau. This install-ation is not fully operational because the full comple-ment of personnel have not yet arrived.
+
+SECRET
+
+00221.

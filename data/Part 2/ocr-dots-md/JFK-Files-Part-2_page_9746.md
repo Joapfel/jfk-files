@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_9746.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Washington 25, D. C.
+
+IN REPLY, PLEASE REFER TO
+
+November 21, 1947
+
+FILE No.
+
+Mr. Paul A. Walker
+Acting Chairman
+Federal Communications Commission
+Washington, D. C.
+
+Dear Mr. Walker:
+
+Under date of November 18, 1947, there appeared in the column of Mr. Marquis Childs in the Washington Post the following statement attributed to Mr. Clifford J. Durr of the Federal Communications Commission: "Already the FBI is furnishing to the commission unsolicited reports on individuals connected with radio, and I can assure you that if you should be told the kind of things contained in many of these reports you would dismiss the information as baseless gossip."
+
+The Federal Bureau of Investigation has referred to the Federal Communications Commission from time to time information which it has received in the course of its regular investigations which appeared pertinent or material to matters within the jurisdiction of the Commission. It is the policy and practice of the Federal Bureau of Investigation to avoid any attempts to evaluate the significance of information relating to matters without its jurisdiction or the effect of such information upon the contemporary policies and programs of other agencies. As a result, the Bureau furnishes to the various Government departments such information as it receives which appears pertinent to the operations of those Government departments. In so far as is practicable, the Bureau attempts to evaluate the reliability of the source of this information. Without attempting to make any suggestions as to the use which should or should not be made of the information itself.
+
+Mr. Childs, in his column quoting Mr. Durr's statement, adds the following observation upon Mr. Durr's statement: "Note the word 'unsolicited'. It indicates that the FBI initiated investigations and sought to influence FCC decisions by sending reports on certain individuals to the commission. If this is happening, it is something Congress should know about."
+
+I desire to advise you that this Bureau has not at any time attempted in any manner or degree to influence FCC decisions. The material which has been transmitted to the Commission was sent solely for the purpose of affording the Commission information which came to the Bureau from various sources; which information, it was believed, might be of interest to the official activities of the Commission.

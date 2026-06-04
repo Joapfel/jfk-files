@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_17231.png
+
+Convert to Markdown2/20/70
+
+DIRECTOR, FBI
+
+SAC, DETROIT
+
+CHANGED
+DONNETTE VERLINA BREWER, aka.,
+Laverne Brewer
+Cookie
+RM - BPP
+
+Two copies of the LHM are being furnished
+G-2 and Secret Service, and one copy of the LHM is being
+furnished USA, all Detroit, Michigan.

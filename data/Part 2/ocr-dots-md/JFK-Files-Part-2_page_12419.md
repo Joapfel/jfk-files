@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_12419.png
+
+Convert to Markdown(c) Obvious administrative material, such as operational instructions given by contacting Agent
+
+Such data should be furnished orally by informant and recorded in memorandum form for informant file.
+
+b. Furnished orally by informant
+
+(1) Contacting Agent should promptly reduce information to writing so that it will be accurately recorded as contemporaneously as possible with making of oral statement by informant to Agent.
+Leave out following items:
+
+(a) Any reference concerning Director and Bureau
+
+(b) References to other documents and statements submitted by informant
+
+(c) Obvious administrative material, such as operational instructions given by contacting Agent
+
+Such data should be recorded in memorandum for informant file.
+
+(2) Prepare on paper devoid of Bureau markings or identification.
+
+(3) Date at top with date informant furnished information. No other date is desired except date of meeting or activity described in body of statement.

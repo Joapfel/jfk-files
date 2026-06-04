@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_9679.png
+
+Convert to Markdown association with the American Nazi Party or with the National
+Socialist White Peoples Party.
+
+DRAPER advised he knows no one in Illinois associated
+with the American Nazi Party or the National Socialist White
+Peoples Party and the name DAX DRAPER means little to him.
+He does recall DRAPER writing to his fill but stated DENNIS
+was not at Nazi Party Headquarters in Arlington during the
+same period that he served there.
+
+He advised that he knows no one in the Phoenix,
+Arizona area since the death of WILDEBOCK PAID (phonetic).
+He. knows of no right wing activity in that area but he did
+recall in the past he communicated with a Nazi Party member
+there but he no longer recalls this individual's name.
+
+DRAPER stated that all of his travels are basically
+politically motivated and that the rain philosophy of his
+WAL is victory for white Christianity and a return to the
+natural order. He feels that the white race was placed on
+this earth as the "gifted race" and that a geographical
+separation of the races is necessary to prevent interbreeding
+of the races. He contributes the basis of his beliefs to
+the writings of HUTTER but stated that many of the ancient
+philosophers preached the same white supremacy philosophy.
+He believes that, interbreeding of the races will eventually
+lead to the degeneration of our society and its eventual
+downfall.
+
+DRAPER stated that in the event the political
+system fails as a means for the right wing groups in this
+country to save the country from its external and internal
+enemies, then any other means necessary will be used to achieve
+their goals. He feels that if the Government will not act
+to save the country then right wing organizations must act to
+do so.
+
+DRAPER stressed the danger of an internal enemy in
+the form of an overly suppressive Government that would no
+longer act for the well-being of the average white American.
+Although he stated again that the right wing extremist
+organizations will attempt to gain power by legislating political
+process, if this process should break down any method, including
+that of violence, would be used to accomplish their goals.
+He stated the targets of the right wing would be any suppressive

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_12724.png
+
+Convert to Markdown(f) Project of verifying addresses of security index subjects shall be handled by reopening and assigning cases for verification and closing cases administratively upon ac- complishment of verifications. [In priority I and priority II security index cases, verification of residence and employment should be conducted at time of submission of investigative reports and should be included therein.
+
+I. In priority III security index cases, verification of residence and employment should be recorded on FD-154 and placed in case file. Such information may be in- cluded in letterhead memorandum when prepared.]
+
+(8) Changes, additions, and deletions of data appearing on security index cards
+
+(a) Submit to Bureau by FD-122 any changes, additions, or dele- tions involving name, aliases, citizenship, organizational affiliation or nationalistic tendencies, priority designa- tion, date or place of birth, key facility geographical reference number, abbreviation of agency having security responsibility (see 87D 7c (2) below), residence or business address. Exception: Change office of origin by form FD-128.
+
+(b) Insertion or removal of cards from special section or unavailable section should be handled pursuant to 87D 7b (6)
+
+(b) III or IV.
+
+(c) Temporary handwritten notations may be made on existing security index cards pending receipt of corrected cards from Bureau.
+
+(d) Indicate use of FD-122 for changes by checking proper open- ing paragraph and submit without abstract.
+
+(e) Set out only items being changed, added, or deleted. If being deleted, specify "Delete."
+
+(f) Upon receipt from Bureau of corrected security index cards with duplicate copy of FD-122 (stamped "Corrected Security Index cards attached. Substitute for cards in file and destroy old cards. Place photograph and description on reserve side of geographical cards."), action to be taken includes:
+
+I. Check accuracy of data on cards.
+
+II. Transfer separate cards with descriptive data and photograph from back of old geographical section cards to back of corrected cards, staple them, and file in geographical section. Exception: For special or unavailable section subjects, see 87D 7b.(6) (b) III or IV above.
+
+III. File third card in alphabetical section of security index.
+
+IV. Destroy old cards.

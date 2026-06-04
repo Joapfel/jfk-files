@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_9989.png
+
+Convert to Markdownfiles or if requests for full field investigations are received concerning such employees prior to a final determination as to whether they are to participate in the procedures under Executive Order 10450.
+
+It would be appreciated if you could furnish an early reply to the questions posed in this memorandum.

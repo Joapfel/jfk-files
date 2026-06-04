@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_10321.png
+
+Convert to Markdown8 May 1973
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Summary, Special Programs Division (SPD), Office of Communications, Operational Contacts with Other U.S. Government Agencies
+
+1. Prior to 1969 the OC COMINT intercept unit, which was then in Miami, had relatively frequent contact with the Miami bureaus of the FBI and FCC, Miami Police and the Miami Beach Police. The staff provided support to these activities in monitoring, identification and DF of specific illegal agent transmissions conducted by foreign nationals and American citizens in the greater Miami area. Arrangements for this support were made through the DDO's Chief, WH, Miami.
+
+2. In late September 1972, NSA, through Division D/DDO, requested that the Special Programs Division initiate a hearability survey of certain HF long-distance commercial telephone circuits between the U.S. and South America. The circuits carried drug related long-distance calls of interest to the BNDD and other U.S. agencies. Because of the availability of personnel and technical capabilities, the survey was conducted at the OC Relay Station at Iden 92 Virginia, where the circuits could be satisfactorily intercepted. On 15 January 1973, formal NSA tasking of the intercept was instituted. On 30 January 1973, all coverage was terminated by Division D because of possible legal complications.
+
+3. The Chief and Deputy Chief, SPD and SPD/Special Electronic Operations Branch have been engaged in informal technical liaison with operating components of the FBI for a number of years. Initial contacts and arrangements for support of specific activities have been made by the Division D/DDO. Support has been provided in the form of
+
+DOWNGRADED TO SECRET
+UPON REMOVAL OF ATTACHMENT
+
+E2 IMPDET CL BY 061947
+
+T&P SECRET
+
+HANDLE VIA COMMITMENT CHANNELS
+
+00140

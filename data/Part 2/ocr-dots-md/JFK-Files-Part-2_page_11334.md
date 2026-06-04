@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_11334.png
+
+Convert to Markdown(10) Dissemination at the Bureau
+
+There are some situations in which dissemination is made at the Bureau instead of in the field. In the majority of instances, information received by the FBI should properly be furnished immediately to some other agency within the executive branch of the Government so that the responsibilities of the other agency might be fulfilled properly. Care must be taken, however, not to disseminate information to any field branch of another Government agency where such a procedure is deemed inadvisable because of the inadequacy of security measures in that branch. In these instances the data should be brought to the immediate attention of the Bureau for dissemination at the SOG. An example of the latter is, of course, the Atomic Energy Commission, which receives reports only through the Bureau, as noted in section 87D 7c[(3)]of this manual. Information relating to foreign travel plans of security subjects is disseminate to interested agencies, including the State Department, only at the SOG, as set out in 87D 6b (4). Dissemination is also made at the SOG to the State Department, unless it appears undesirable, in those cases in which subjects have been indicted for violations grounded on subversive activities. Dissemination in these cases is made to preclude these subjects from utilizing the fact they obtained a passport to refute allegations of subversive connections. The State Department, therefore, will be in possession of data concerning a defendant should he attempt to utilize this tactic in such an action.
+
+b. Data developed concerning individuals who are not within the Bureau's investigative jurisdiction
+
+(1) Members of the armed forces
+
+The Delimitations Agreement between the FBI and the armed forces intelligence agencies states that the responsibility assumed by one organization in a given field carries with it the obligation to exchange freely and directly with other subscribing organizations all information of mutual interest.

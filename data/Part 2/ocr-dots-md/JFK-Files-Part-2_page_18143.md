@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_18143.png
+
+Convert to MarkdownUnited States Senate Select Committee
+to Study Governmental Operations with
+Respect to Intelligence Activities (SSC)
+
+NOTE CONTINUED:
+
+requested FBI to furnish the names and addresses of various former and present Special Agents, requested by the SSC, and advised the Department had determined that SSC staff interviews with present and former Special Agents would not interfere with any current criminal investigation by the Department. Shaheen advised he will so advise the SSC when the requested information is transmitted.

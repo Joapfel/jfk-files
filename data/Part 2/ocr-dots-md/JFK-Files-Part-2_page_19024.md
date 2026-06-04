@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_19024.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+6. Ivan Kuzmich Fedotkin: Jaffe stated he has met this man someplace, possibly at a reception or party; however, he has had no close contact with him.
+
+7. Nikolay Aleksandrovich Gavrilenko: Jaffe initially was shown a sheet of paper containing two photographs of Gavrilenko and one of his wife. He indicated the face of Gavrilenko is familiar. Later, when shown another group of Soviet nationals identified by WF T-2 as officers of the SCD, KGB, including a sheet with three photographs of Gavrilenko, two of which appeared on the previous sheet depicting Gavrilenko and his wife, Jaffe commented that although the hair appears to have changed, there is a striking similarity in the eyes of this individual with "Slava's" boss. Jaffe commented: "I would say this might have been 'Slava's' boss."
+
+WF T-2 has identified Gavrilenko as a former officer of the First Chief Directorate, KGB, who worked in the Geneva KGB Residentura. From 1959 - 1962, he was a senior case officer of the First Section, First Department, SCD, KGB, working against Air Force Attaches assigned to the American Embassy, Moscow, and in 1963, he was made Chief of the Special Section - Technical of the SCD.
+
+8. Ilya Sergeyevich Glazunov: Jaffe mentioned this individual by name and stated he "has to be a KGB plant a great political artist." Jaffe stated his (Jaffe's) wife knew him better than he did because Glazunov made portraits of the wives of American Embassy personnel. According to Jaffe, Glazunov "wanted to join the Union of Soviet Artists, but they didn't want him." Jaffe described him as a "greasy S.O.B." who had a "lovely wife."
+
+WF T-2 identified Glazunov as a painter and agent of Section 1, Department 1, SCD, who gave lessons to diplomats and wives, and spotted, assessed, and furnished information to KGB on diplomats.
+
+SECRET
+47
+
+NW 88326 DocId:32989704 Page 318

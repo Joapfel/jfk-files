@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_11120.png
+
+Convert to Markdown(c) Information suggestive of additional leads and information of particular significance in showing subject's knowledge of and adherence to revolutionary aims of organization or organizations with which he is associated should be fully and carefully reported.
+
+(d) Each report is to include all information having any pertinency as to whether or not there is justification for security index card. This includes pertinent information concerning background and subversive activities.
+
+(e) When previous summary reports which have been prepared are not suitable for dissemination because of disclosure of sources, information contained therein should be included in current summary reports with sources fully protected. Each office must be certain that all pertinent information has been incorporated in either a past or current disseminative summary report.
+
+(f) Frequently information will have been obtained[reporting] subject's presence at numerous meetings of subversive organizations over a period of years. In many instances these facts will have been reported by only one informant. In others, two or three informants will have reported subject's attendance at meetings. The question of pertinency of all such items is dependent upon the weight of all of the evidence obtained against the subject.
+
+(g) Such repetitious and cumulative items to be specifically set forth in reports may be reduced in number to the point where they will be limited to a representative number of such items. Each such item specifically set forth must be fully documented.
+
+(h) The number of such items to be included in each instance will be dependent upon the preponderance of other evidence available for inclusion in the report which will lend weight to our case against the subject.
+
+(i) Selection of such items with regard to period of time will be dependent upon all facts developed against subject. Selection should be based upon the objective of specifically reporting data sufficient to justify continued detention of each subject if apprehended.
+
+When selection of representative number of such items is made, they should be followed by a general statement summarizing any other items furnished by source. The summarizing statement should indicate that source advised during a specified period of time that subject also attended a certain number of other meetings during a certain period.
+
+In the documentation of a summarizing statement set out the file number and serial scope.

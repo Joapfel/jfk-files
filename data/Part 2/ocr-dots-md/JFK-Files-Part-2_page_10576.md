@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_10576.png
+
+Convert to MarkdownIncluded among the FBI records to be retained under the Records Retention Plan formulated by the National Archives and Records Service are those which would have historical value and would document policies, procedures, functions, legislative and budget matters, and the like-- and reports of investigations of both civil and criminal activities, including "crimes involving, and other records, concerning, the Presidents and Vice Presidents of the United States, members of and delegates elected to the Congresses of the United States, cabinet heads, judges and other officials appointed by the President."
+
+In establishing the FBI Records Retention Plan, the National Archives and Records Service noted, "Ordinarily the records of a Federal agency that are worthy of permanent retention amount to a rather small percentage of the total volume of records generated. Many of the records produced by the Federal Bureau of Investigation, however, relate to a number of controversial if not important aspects of the history of the United States, particularly to the role of the Federal Government in its relation to its citizens. To be sure, many years will pass before these records can be made available to the public for historical and other serious research. Nevertheless, the archival value of these records will not decrease nor will interest in them dissipate."
+
+In addition, the FBI is also required by the Federal Records Act to make records containing adequate and proper documentation of its administration and operations which, among other things, are designed to furnish information necessary to protect the legal and financial interest of the Government and of persons directly affected by FBI activities.
+
+## Practical Reasons for Retaining Information
+
+Logic, reason, and lessons learned from more than six decades of law enforcement experience dictate that the FBI should maintain records of investigations it has conducted (category #1 cited at the top of page 7) and records of information it has disseminated to other agencies (category #2 on page 7).
+
+Such records enable the FBI to answer questions or challenges (including those arising in judicial or administrative proceedings) involving investigations FBI Agents have conducted and/or information the FBI has disseminated to other

@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_17694.png
+
+Convert to MarkdownLegal Counsel to Adams Memo
+
+RE: SENSTUDY 75
+
+RECOMMENDATION:
+
+No action be taken by the Bureau to obtain clarification
+of Senator Church's statement pending the results, 4-11-75, meeting of
+the Executive Committee of the Ad Hoc Coordinating Group on Congressional
+Review, and that in the interim we furnish the Senate Select Committee only
+those documents which do not have a caveat such as classified documents
+or documents bearing the property stamp.

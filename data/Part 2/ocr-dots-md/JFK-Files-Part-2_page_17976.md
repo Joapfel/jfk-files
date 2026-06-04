@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_17976.png
+
+Convert to Markdown# NW 88296 DocId:32989628 Page 416
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1/7/01 BY 522.7AM/205
+
+9/8/6
+
+Access only
+
+arch 7/28

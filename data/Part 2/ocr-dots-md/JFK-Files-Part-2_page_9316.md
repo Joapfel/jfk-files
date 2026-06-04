@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_9316.png
+
+Convert to MarkdownCOMMITTEE TO COMBATE MINISTRY OF INFORMATION
+613 CONTINENTAL
+DETROIT MICH.
+499-2878
+
+Where Is Freedom?
+
+...When we are not even secure
+from being savagely beaten,
+jailed, and murdered by
+"POLICEMAN"—who stand before
+the WORLD; YET go "Unpunished"!
+
+...GENOCIDE IN HOSPITALS...
+
+"New Detroit"
+"Detroit-16"
+
+"Algiers Motel"
+"1967 Rebellion"
+
+FREE THE DETROIT
+FREE-DOM "16" FREE-DOM
+
+SEND:
+
+Checks—Money Orders
+Property Slips—Surely
+
+TO:
+
+/Stronghold Consolidated Productions Inc.
+
+611 Continental Detroit-48215
+
+NCH

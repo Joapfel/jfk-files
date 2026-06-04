@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_12877.png
+
+Convert to MarkdownTOP SECRET
+
+NY 100-136585
+
+When Dr. MARTIN LUTHER KING was invited to address the AFL-CIO convention some time ago, KING, on LEVISION's advice, first obtained approval to do so from A. PHILLIP RANDOLPH, negro labor leader, who, if he had not been consulted in the matter, might have felt that KING's making a speech at the aforesaid convention was a blow to RANDOLPH's prestige.
+
+KING delivered a remarkably effective speech at the AFL-CIO convention, and, as a result, received invitations from numerous labor leaders, including "MC DONALD of Steel," to address their respective unions. As the outstanding champion of negro rights in the country, KING is a powerful political influence, recognized as such by the higher echelons of the Democratic Party. He has access to Attorney General ROBERT KENNEDY and President KENNEDY, who, politically, need KING, particularly in the South, where in cities like Atlanta and New Orleans the negro vote now constitutes the balance of power, and where KING controls the negro vote.
+
+JAMES HOFFA, Teamsters Union "boss" appreciates the political power of KING, particularly the fact that KING can influence the 90,000 negro members of the Teamsters Union. HOFFA invited KING to address the Teamsters Union, and KING accepted the invitation. Knowing that KING is being deferred to by Attorney General KENNEDY, and President KENNEDY, HOFFA requested KING to contact the Attorney General in an effort to influence the latter "to lay off" HOFFA. KING was inclined to do as HOFFA requested, but LEVISION convinced him that to do so would be politically unwise, inexpedient, and likely to be a "boomerang," since the Attorney General would never accede to such a request, particularly in the case of HOFFA.
+
+LEVISION had to steer KING away from another politically hazardous situation. Some months ago OTTO PREMINGER, Hollywood movie director, entered into negotiations with a KING representative for KING to play a part in a picture which PREMINGER would direct. Although PREMINGER'S offer was "tempting," since it meant "fast, easy money" for KING'S organization, LEVISION realized that for KING to accept the offer would lower the latter's prestige. After convincing KING of this fact, LEVISION personally telephoned to PREMINGER, telling him that "the deal was off."

@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_16589.png
+
+Convert to MarkdownOn December 18, 1969, Assistant Attorney General JERRIS LEONARD, together with Department Attorney JAMES TURNER, First Assistant United States Attorney JACK B. SCHMETTERER, met with Acting Chief Judge EDWIN A. ROBSON of the U.S. District Court for the Northern District of Illinois. It is noted that Chief Federal District Judge WILLIAM J. CAMPBELL was ill and that Judge ROBSON was Acting Chief Judge in his absence.
+
+At this meeting the decision was made, subject to the approval of Chief Judge CAMPBELL, that the December 1969, Federal Grand Jury will be held over to hear. testing in this case. A special charge will be issued this grand jury on December 22, 1969. Assistant Attorney General LEONARD advised that one or two witnesses may appear before this grand jury on approximately December 23, 1969, following which the grand jury will be adjourned until approximately January 5, 1970.
+
+Assistant Attorney General LEONARD advised that he would personally handle the presentation of this matter to the Federal Grand Jury and that he would be assisted by Departmental Attorney JAMES TURNER, WILLIAM O'CONNOR and JESSIE QUEEN, all of whom are from Washington, D.C. Also assisting him would be MILTON BRANCH, Assistant United States Attorney from Denver, Colorado.
+
+United States Attorney Thomas A. FORAN at Chicago has subsequently advised Special Agent in Charge MARLIN F. JOHNSON that he completely concurrs in the above description of Federal Grand Jury procedure in this case. Mr. FORAN designated ROBERT J. BREAKSTONE as a representative from the United State's Attorney's Office at Chicago to work with Mr. LEONARD.
+
+First Assistant United States Attorney JACK B. SCHMETTERER advised on the evening of December 16, 1969, that Chief Judge WILLIAM J. CAMPBELL said concur with Acting Judge EDWIN A. ROBSON's decision to hold the December, 1969, Federal Grand Jury to hear this matter.

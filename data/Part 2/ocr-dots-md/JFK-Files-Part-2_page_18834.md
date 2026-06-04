@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_18834.png
+
+Convert to MarkdownSTANDARD FORM NO. 84
+
+Office Memo
+
+UNITED STATES GOVERNMENT
+
+TO : Director, FBI (105-28333)
+
+FROM J. N. SAC, San Francisco (105-3646)
+
+SUBJECT: SAMUEL ADASCH JAFFE
+INTERNAL SECURITY - R
+
+DATE: 1/6/56
+
+On 12/29/55 JAFFE telephonically contacted SA LEWIS H. JOHNSON of the San Francisco Office and advised that he had received a letter addressed to him from a JERRY RUBIN, which letter indicated that RUBIN desired to contact JAFFE regarding the latter's trip to Russia. JAFFE advised that the letter from RUBIN was written on plain stationery and set forth RUBIN'S telephone number. JAFFE advised that he had telephonically contacted RUBIN and the latter had indicated that he was employed by a Government agency and desired to make an appointment to discuss with JAFFE the latter's trip to Russia. JAFFE advised SA JOHNSON that he was suspicious of RUBIN inasmuch as the latter had written his letter on plain stationery and had declined to identify the Government agency with which he was connected. JAFFE advised that an appointment had been made for him to meet with RUBIN on January 4, 1956. JAFFE requested an agent of this office contact him prior to the above-arranged meeting.
+
+SA FRED R. ELLEDGE contacted JAFFE at the latter's home, 301 Fletcher Drive, Atherton, California, on January 3, 1956. JAFFE at this time repeated the information furnished by him to SA JOHNSON regarding RUBIN.
+
+advised that at the time of the Wednesday appointment RUBIN should exhibit proper credentials, and in the event he did not do so JAFFE advised that he would contact the San Francisco Office of the FBI.
+
+JAFFE identified himself as a correspondent presently representing the North American Newspaper Alliance. He stated that he was formerly employed by "Time" and "Life" and in connection with this employment had been assigned to writing and research on the article published in "Life" magazine dealing with the various religions of the world. JAFFE stated that in connection with this assignment he had made the acquaintance of FEDOSEEV (KONSTANTIN G. FEDOSEEV), Counselor, Soviet Embassy, Washington, D.C. JAFFE stated that he had contacted FEDOSEEV initially in his efforts to obtain a visa to enable him to enter China. He commented that it had been a mistake to approach the Soviets in this regard inasmuch as they could not or at least did not do anything to aid the issuance of this visa.
+
+Exempt from GCS, Category 3
+
+JAFFE stated that he had been attempting to obtain a visa to enter the Soviet Union to write a series of articles on conditions existing there and in his efforts to obtain this visa he had again contacted FEDOSEEV. After considerable delay he was advised that a visa would be issued for a period not
+
+RECORDED-39
+
+(2) Bureau (105-28333)(Registered)
+1 - Washington Field (105-3906)(Information)(Registered)
+1 - New York (105-8180)(Information)(Registered) 13 JAN 10 1956
+1 - San Francisco (105-3646)
+
+NW 88326/Dgld:32989704 Page 128
+
+INDEX 10-69

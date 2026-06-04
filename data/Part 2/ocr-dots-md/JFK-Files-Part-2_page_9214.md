@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_9214.png
+
+Convert to MarkdownDE T-1
+February 5, 1974
+
+## II. MEMBERSHIP
+
+### A. BPP Local Leaders
+
+The following individuals are considered to hold leadership positions in the Detroit chapter of the BPP:
+
+PHILANDERS LONNIE DARDEN, also known as Lonnie Darden, In Charge (Minister of Information)
+
+ROLLIN GARY REID, Head of the Paper Program
+
+PLEASE STALLWORTH, in charge of office
+
+DE T-1
+May 3, 1973
+
+### B. Active Members
+
+The following listed individuals were known members of the Detroit BPP. Those who functioned only on a part-time basis are so indicated:
+
+LORENE CHASETTE BANKS, Part-time
+
+ERMA MORRIS
+
+TRACY WILSON
+
+WESSIE MAE COOPER
+
+GWENDOLYN JEAN RICHARDSON
+
+WAYNE KEITH CURTIS, Part-time
+
+-NW 88296 DocId:32989574 Page 123-

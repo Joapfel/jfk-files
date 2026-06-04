@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_14477.png
+
+Convert to MarkdownRE: PROJECT HUNTER
+
+8. Any traffic from or to U. S. Students in Moscow, or to U. S. persons who were former students in Moscow,
+
+9. Any traffic between U. S. persons who are with a current exposition or a previous exposition in the USSR.

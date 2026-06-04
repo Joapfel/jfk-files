@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_17045.png
+
+Convert to MarkdownMemorandum
+
+TO : DIRECTOR, FBI
+
+FROM : SAC, CHICAGO
+
+SUBJECT: BLACK PANTHER PARTY (BPP)
+
+DATE: 10/28/69
+
+Copies are also being furnished the following agencies, United States Attorney, United States Secret Service, Office of Special Investigations, 113th Military Intelligence Group, Region I, Evanston, Illinois.
+
+The Chicago Police Department has been cally advised of the contents of the LHM.

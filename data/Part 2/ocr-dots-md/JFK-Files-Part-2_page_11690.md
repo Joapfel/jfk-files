@@ -1,0 +1,71 @@
+# JFK-Files-Part-2_page_11690.png
+
+Convert to Markdownd. Each insert should be filed with the bulletin to which it relates.
+No indexing of individual notices contained therein is necessary.
+
+4. Each office must submit to the Bureau annually at least three suggestions for articles, identifying the suggested author, and briefly describing the nature of the suggested article. The article should not be prepared, submitted, or mentioned to the suggested author until the Bureau directs that it be obtained. Suggestions may cover any general or specific subject of law enforcement interest, including the following:
+
+a. Better investigative or administrative methods and techniques of any nature, particularly those used or developed by FBI National Academy men
+
+b. Improved or unusual equipment being used
+
+c. Complicated, unusual, and well-handled cases which are illustrative of law enforcement problems and excellent police work.
+
+d. Human interest items from local police work
+
+e. Police and firearms training subjects
+
+f. Crime prevention articles from departments which have taken aggressive action to combat juvenile delinquency
+
+g. Transmit all material to the Bureau under the caption:
+FBI Law Enforcement Bulletin
+Research (Crime Records)
+
+## C. SPEECHES
+
+1. Bureau is to be notified of all speaking engagements. Speaking engagements are to be handled by the SAC. If he cannot handle them, the ASAC should. If neither can, an Agent previously approved as a speaker is to be designated and the Bureau advised UACB. Changes in speaking engagements must be communicated promptly to the Bureau. Three weeks prior to any radio or television[appearance,] a manuscript of the[remarks]must be submitted for the Bureau's review and approval[unless previously approved]. Bureau material is utilized or the program is of an impromptu nature and time does not permit prior Bureau approval.] In some other cases involving important speeches, the Bureau will specifically request such manuscripts. If speech is to be broadcast or televised, prior Bureau approval of manuscript and commitment must be obtained. These regulations, as well as all other FBI administrative procedures, should not be the subject of comment to the public.
+
+2. Copy of Bureau letter approving speaker should be placed in his field personnel file.
+
+3. Each office is to designate a supervisor to handle speech material. To this supervisor must be routed law enforcement bulletins, FBI Notes, interesting case material, magazines, research literature, and newspaper clippings containing information of value to police instructors and approved speakers. This material to be indexed as to subject matter and filed in the speech material files.
+
+## D. INTERESTING CASE WRITE-UPS
+
+1. Write-ups of interesting cases may be:
+
+a. Requested by the Bureau
+
+b. Voluntarily submitted by the office of origin
+
+c. Suggested by other offices
+
+2. They are prepared concerning cases of:
+
+a. Major importance
+
+b. Public interest
+
+c. Unusual and effective investigative techniques
+
+d. Novel investigations of human interest
+
+3. They are prepared:
+
+a. Double spaced
+
+b. Bureau file number to appear in upper left corner of first page
+
+c. Title includes names and aliases of convicted subjects
+
+d. Accurately
+
+e. After a review of the entire file
+
+f. In chronological or logical order, with all dates definite
+
+g. Showing the actual time which is to be served under sentence
+
+2
+3-29-63
+
+NW 88321 DocId:32989529 Page 1024

@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_14379.png
+
+Convert to MarkdownTELETYPE TO SACs, ALEXANDRIA ET AL
+RE: SENSTUDY 75
+62-114395
+
+ALEXANDRIA: HAROLD F. LEINBAUGH, 1643 NORTH VAN DORN,
+ALEXANDRIA. WILLIAM P. GEORGE, 8338 WAGON WHEEL ROAD, ALEXANDRIA
+
+BALTIMORE: DONALD G. HANNAING, 18 OXFORD STREET, CHEVY CHASE
+NEW HAVEN: HOBSON H. ADCOCK, 65 CLEMBRDOK ROAD, STAMFORD,
+CONNECTICUT.
+
+MEMARK: LEO THOMAS CLARK, 1421 ATLANTIC AVENUE,
+ATLANTIC CITY. JOHN PATRICK DEVLIN, 39 BEMMINGTON ROAD,
+LIVINGSTON, NEW JERSEY. ROHARD J. WILSON, 30 CAMPBELL ROAD,
+SHORT HILLS, NEW JERSEY.
+
+OHARA: JOHN J. QUINE, IOWA LAW ENFORCEMENT ACADEMY,
+JOHNSTON, IOWA
+
+NOTE: Addresses are most recent available in personnel files of these former Agents. The Newark teletype mentioned was sent up with an informative note advising that we had checked with Mr. James Wilderotter, Associate Counsel to the President, and he interposed no objection to our contacting former Agents who participated in the special squad we had at Atlantic City in 8/64 and advising them they might be approached for interview by the SSC. Assistant Director Mintz concurred in the Intelligence Division recommendation that we, on approval, contact the former Agents as indicated in this outgoing teletype. Deputy Associate Director J. B. Adams advised of his agreement with this recommen-dation and for instructions to go forward to the field.
+
+Howard J. Wilson, one of the former Agents designated to be contacted, resigned for family reasons after being censured, suspended, placed on probation, and transferred for unsatisfactory work performance detected during an inspection of the Newark Office. However, there is no evidence in his personnel file suggesting Wilson is hostile to the Bureau and the INTD believes he should be included among those former Agents to be contacted.

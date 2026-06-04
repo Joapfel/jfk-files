@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_12687.png
+
+Convert to Markdown(3) Special section
+
+Retain cards on individuals in following categories in special section for reasons stated. Maintain special section in sub-sections as follows:
+
+(a) Espionage subjects
+When apprehension of subject will destroy chances of penetration and control of operating espionage parallel or destroy chances of penetration and control of "sleeper" parallel
+
+(b) U. S. Government employees
+So their identities can be readily determined and consideration given to each before apprehension is ordered
+
+(c) Atomic energy program employees
+Because their apprehension must be cleared with Atomic Energy Commission representatives to avoid interference with atomic energy work
+
+(d) Foreign government employees
+So consideration may be given to each on basis of relations then existing between U. S. Government and country involved
+
+(e) United Nations Secretariat and other international organization employees
+Because State Department must be notified after such apprehensions take place. This category includes U. S. citizens and immigrants or stateless persons not holding diplomatic visas and not having protection of International Organization Immunities Act.
+
+(f) Pro-Tito individuals
+Because such individuals, although pro-Marxist-Leninist, adhere to Tito form of communism and it is not possible to predict whether Tito would become aligned with Russia in event of open hostilities or would align himself on side of U. S. This does not include members of communist groups who from time to time make statements in support of Tito, but only individuals, particularly those of Yugoslav birth or descent, whose support of Tito is clear and unequivocal regardless of Yugoslavia's foreign policies.
+
+(g) Cuban
+So that, in event of emergency involving Cuba and U. S., special handling may be afforded those subjects on index solely on basis of pro-Castro affiliations, activities, or sympathies. (Security index cards denoting such contain code "CUB" on line 1.)
+
+FD-122 recommending individuals in one of above categories should include words "Special Section" typed in upper right portion. Type proper category in space after "Miscellaneous (Specify)."
+
+Cards for special section bear appropriate code letters in upper right portion designating proper subsection. When cards of subjects in these categories are received from Bureau, check for accuracy, place required additional data on two, and file alphabetically in appropriate subsection of special section. File third card in alphabetical section. Never file special section cards in geographical section.
+
+When subject no longer comes within one of categories of special section, submit FD-122 with words "Remove from Special Section" typed in space provided after "Miscellaneous (Specify)." If card should be placed in unavailable section, add "Place in Unavailable Section" in this space. When new cards are received from Bureau, destroy old cards. Special section card shall indicate priority level for apprehension, although it is not contemplated that subjects in this section will be apprehended under mass apprehension program. Cases will be given individual attention and subjects will not be apprehended in absence of specific Bureau instructions.

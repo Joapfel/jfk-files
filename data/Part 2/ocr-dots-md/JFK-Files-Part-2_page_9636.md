@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_9636.png
+
+Convert to MarkdownSECRET ARMY OPERATION
+
+SPECIAL BULLETIN
+
+No doubt most citizens of San Diego are aware of the controversy surrounding the activities of San Diego State Economics Professor PETER G. BOHMER. For any of you who are not, here is a brief run down:
+
+Bohmer, age 27, is a self-proclaimed left wing radical professor out at San Diego State who around other things has been teaching that the communist economic system is superior to our own free enterprise sytem. That the tax payers have to put with this kind of taxation is bad enough, but it does not end there. Bohmer, who has a long record of communist activities behind him, has made it his policy to give lower grades to students in his classroom who do not share his left wing views. One of his students was a veteran of the Vietnam War, with a fine combat record. This student was a special target of Bohmer, who never missed an opportunity to ridicule and insult this students beliefs.
+
+A quick look at Bohmer's record will show why he hated this student. In 1970 Bohmer's record will show 45 days in the pokey for anti-war protesting. This was when he was a graduate student at MIT in Massachusetts. The demonstration that earned him his jail was against defence research conducted on the MIT campus. He was also a member of SDA and a supporter of the Black Panther Party while at Harvard and MIT. It does seem strange that San Diego State was not able to find another professor somewhere who was not a communist jail bird.
+
+For any of our readers who may care to look up this Red Scum, and say hello, here is some information that may help. His address is 5155 Muir, Ocean Beach, telephone number is 222-7243, he drives a dark blue 1968 VW Sedan, California license DM 147. Just to make sure you talk to the right guy here is his descriptions: He has dark brown shoulder length hair, green eyes, weight is about 160 lbs. and he is 5'10" tall. Now in case any of you don't believe in hitting people who wear glasses, to be fair I guess we will have to tell you he wears contact lenses.
+
+If you do run out to see Bohmer one might here are a few other people you may run into: Michele Mazzby, she is Bohmer's girl friend and lives at the same address as he. She is a student at San Diego State. She is no doubt the "Teacher's Pet". One can bet she gets good grades. She drives a bronze two door Corvair with the front crashed in, California license KMZ 777. Next comes George Katsufраса, a good friend of Bohmer's. Cenago came from Boston a short time after Bohmer, and lives at the Muir address too. Next in line isames Starl Ann We tehead, she is George's girl friend and lives at the Muir address part of the time. the rest of the time you can find her at 302 Whaley, Oceanside. She drives a 1965 two door Dodge Dart, number RCH 420. And lastly we come to Elizabeth Jay Land of 5544 Indiana St, San Diego. Her car is a Plymouth Valiant 1964 light blue, license number SJ 335. Who's girl friend she is, is your guess.

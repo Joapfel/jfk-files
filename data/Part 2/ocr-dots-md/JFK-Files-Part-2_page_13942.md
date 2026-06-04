@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_13942.png
+
+Convert to MarkdownNovember 7, 1963
+
+The Attorney General
+
+Director, FBI
+
+FBI INTELLIGENCE LETTER
+FOR THE PRESIDENT—
+
+There is enclosed for your information a document containing items of current intelligence interest. This paper has been prepared to highlight certain timely developments in our security and intelligence investigations. Material of this type will be furnished to you in this manner on a continuing basis.
+
+This document has also been made available to the President. Upon removal of the classified enclosure, this letter become unclassified.
+
+Enclosure
+
+ALL INFORMATION CONTAINED
+WHICH IS UNCLASSIFIED
+DATE 9-28-90 BY 5:27 AM
+
+MDK-6

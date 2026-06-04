@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_16048.png
+
+Convert to MarkdownIncidental to a search to locate federal fugitives at 2350 West Madison Avenue, Chicago, Illinois, the premises of the Illinois Chapter of the Black Panther Party (BPP), the following documents were located in a brown record box which was in the private office on the southeast corner of the second floor of that building:
+
+On 6/4/69 of Chicago, Illinois File# ___
+
+SAS DAVID M. FRANK and
+ROBERT J. TOMPKINS DMP
+
+Date dictated 6/6/69
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and it is loaned to you by:
+It and its contents are not to be distributed outside your agency.

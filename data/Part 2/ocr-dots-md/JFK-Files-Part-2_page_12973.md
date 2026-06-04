@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_12973.png
+
+Convert to Markdown<table><thead><tr><th></th><th style="text-align: right;">FBI<br>Date:</th><th>5/21/65</th></tr></thead><tbody><tr><td colspan="3">Transmit the following in<br>(Type in plain text or code)</td></tr><tr><td>Via</td><td>AIRTEL</td><td>AIRMAIL<br>(Priority)</td></tr><tr><td colspan="3"><b>TO:</b> DIRECTOR, FBI (44-28601)<br><br><b>FROM:</b> SAC, TAMPA (44-313) (P)<br><br>EUGENE THOMAS, ET AL.;<br>VIOLA LIUZZO, aka<br>ET AL. - VICTIMS<br>CR; EL<br>(OO:BH)</td></tr><tr><td colspan="3">On 5/20/65, Mrs. DOROTHY M. ROWE again advised that she has not received any alimony payments from her ex-husband since the October, 1964, payment, which means he is in arrears 6 months, total due $690.</td></tr><tr><td colspan="3">Mrs. ROWE will commence work on 5/24/65 at a salary of approximately $57 per week, $228 per month. She has fixed obligations that will amount to approximately $424 per month. She has stated that if she were receiving her alimony payments she could better meet her obligations.</td></tr><tr><td colspan="3">Please advise what you have been able to accomplish re the alimony payments.</td></tr><tr><td colspan="3">3 - Bureau<br>2 - Birmingham<br>2 - Tampa<br>JEW:cwp<br>(7)</td></tr><tr><td>CC:WMcK</td><td></td><td>REC. 19</td></tr><tr><td>Approved:</td><td>Sent</td><td>M Per</td></tr><tr><td colspan="3">Special Agent in Charge</td></tr></tbody></table>
+
+NEW 88296, DocId:32989550 Page 114
+
+21 MAY 24 1965

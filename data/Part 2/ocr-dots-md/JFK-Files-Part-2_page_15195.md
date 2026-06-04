@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_15195.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : W. C. Sullivan
+FROM : N. R. Wannall
+SUBJECT: INTELLIGENCE COVERAGE OF NON-SOVIET-BLOC COUNTRIES (ANNUAL EVALUATION)
+
+DATE: 5/21/62
+
+1 - Belmont
+1 - Sullivan
+1 - Wannall
+1 - Mossburg
+1 - Callahan
+1 - G.C.Noore
+1 - Mullins
+1 - Cotter
+
+ORIGIN AND PURPOSE
+
+This program was inaugurated in 1954 and was expanded in 1955 and 1958 to provide for the acquisition of positive intelligence data as well as information which would assist FBI investigations through three principal phases: (1) Regular notification from the U. S. intelligence agencies as to arrival in U. S. of intelligence personnel from non-Soviet-bloc countries; (2) Maintenance of technical surveillances of official establishments of selected non-Soviet-bloc countries with approval of State Department; and (3) Development of live sources within such establishments.
+
+SCOPE AND COST
+
+The first phase consists chiefly of review of file references and indexing at Seat of Government at nominal expenses. Under the second phase, we are presently operating 19 technical surveillances covering official establishments of 10 non-Soviet-bloc countries at a total estimated monthly cost of $23,827. These countries are Brazil, Congo, Cuba, Dominican Republic, France, Guinea, Indonesia, Israel, Netherlands, and Portugal. Coverage of 6 of these countries (Brazil, Congo, Guinea, Indonesia, Netherlands, Portugal) was prompted by Attorney General's expressed interest in January, 1962, in having Bureau increase technical surveillances to include establishments of various countries outside the Soviet Bloc. These surveillances are tentative in nature and, if they prove unproductive, they will be discontinued in favor of coverage on other critical countries. (For details of technical surveillance coverage, see attachment A.)
+
+Under the third phase of this program, we currently have 41 actual and 32 potential live sources in the establishments of 29 non-Soviet-bloc countries approved by State Department as "target" countries. (For details, see attachment B.) Costs of this phase are principally those arising from field investigations of potential sources and agents' time in handling producing sources. Costs of program are considered fully justified based on value of information developed.
+
+65-63113
+
+Enclosures - 2
+
+RDC:smf
+
+(9)
+
+17 MAY 23 1962
+
+MM-88613-Rocld:32199554
+Page-692

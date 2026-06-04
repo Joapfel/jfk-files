@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_18492.png
+
+Convert to MarkdownThe Honorable Edward H. Levi
+
+July 7, 1975
+
+I believe that the answers to these questions are essential to a complete understanding of the policies and procedures followed by the Justice Department in electronic surveillance cases. Full information on these matters is necessary for the Committee to fulfill its mandate "to recommend the enactment of any new legislation . . . necessary or desirable to strengthen or clarify the national security, intelligence, or surveillance activities of the United States and to protect the rights of United States citizens with regard to these activities." With the continued cooperation of the Justice Department, I am convinced that the Committee will be able to discharge this responsibility in the critical area of national security electronic surveillance.
+
+Sincerely,
+
+Frank Church
+Chairman
+
+NW 88326 DocId:32989627 Page 90

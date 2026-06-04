@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_13948.png
+
+Convert to MarkdownCONFIDENTIAL
+
+U. S. Senate Select Committee to Study Governmental Operations With Respect to Intelligence Activities (SSC)
+
+Re: Testimony of Retired FBI Special Agent (SA) Robert R. Nichols Before SSC Executive Session
+
+Court Seal [JFK Law 10(a)1]
+
+Seidel questioned Nichols concerning alleged harassment of King by the FBI and mentioned such specific allegations as the following: Sending of a tape recording to Mrs. King; anonymous telephone calls to attempt to cancel press meetings by King; false fire alarms; and furnishing of information about King to the clergy and other news media, including an Atlanta editor, Ralph McGill. In each instance during this phase of the questioning, which Nichols described as rather extensive by Seidel, Nichols answered that he did not participate in any such actions and was unaware that any such things were being done. He also told Seidel that he knew of no COINTELPRO (counterintelligence) activity on the part of the FBI against King.
+
+Nichols was asked if he had contacts at Atlanta, Georgia, Police Department (PD) in the King investigation which Nichols acknowledged he had been assigned to in 1964. Nichols answered that he had confided in one detective in the security detail of the PD and on the urging of Seidel, Nichols furnished the detective's identity as Sergeant Bobby Moore.
+
+- 5 -
+
+~~CONFIDENTIAL~~

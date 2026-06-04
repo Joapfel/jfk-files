@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_9563.png
+
+Convert to MarkdownZionist challenge by education, economic and human mobilization,
+and competed with the Zionists in the fields of management,
+finance and technology.
+
+With all their efforts, by 1947 the Zionists had only been able to acquire 5.6% of the total area of Palestine. However, the 1947 U.N. resolution for partition allowed them 56% of Palestine, and by terror and aggression they went on to occupy 80% in 1948. Today, after the June 5 1967 aggression, the rest of our Palestine is occupied, as well as Sinai and the Golan Heights.
+
+For twenty years, the Palestinians were the victims of world
+procrastination. While many resolutions were passed in the United
+Nations, the Israelis continued to occupy more and more territory
+while the world remained indifferent. Under such conditions, the
+only alternative left to the Palestinians was armed revolution.
+
+I am sure that the facts of the case are very clear to you. You can visualize the conditions under which our people have suffered. For twenty years most of the Palestinians have lived in a diaspora of shabbats, misery and the humiliation of a meager dole. In this schizophrenic world of ours the rights of Africans, Asians and Polynesians were recognized and espoused, while Palestinian rights were disregarded and forgotten. Not even the tragedy of the heroic Angolans, South Africans and Zimbabweans equalled theirs. For, along with these oppressed people, the Palestinians were totally uprooted from their land and completely denied the right to live on it and enjoy its fruits.
+
+Our people have risen to arms because all other means have
+been exhausted. We refuse to accept misery and diaspora as our
+fate, and we refuse charity and compromise as solutions to our
+problem. We shall overcome: through a long-term liberation
+revolution to destroy the bases of colonialist aggression that frustrate
+the exercise of our inalienable rights, and to bring an end to the
+racist militarist regime that oppresses our people. We will fight so
+that peace with justice is restored to our land.
+
+rusty weapons and against heavy odds, our youth embarked on
+the revolution with all the determination and persistence of a long-
+oppressed people. Now as we embark on our fifth year of struggle,
+the fruits of our sacrifices are beginning to show. The Palestine
+Liberation Movement has succeeded in awakening our people,
+in rekindling its hope for a better future with dignity and respect
+in our own land. We are forcing the enemies of peace to admit
+their failure to extinguish our revolution, we are winning battles,
+and we are starting to shape our destiny. We are not swayed by
+emotional appeals, we are not seekers of revenge, we are not
+bloodthirsty terrorists. We are freedom fighters with clear and
+mature goals. We are fighting today to create the new Palestine
+of tomorrow: A progressive, democratic, secular Palestine in
+which Christian, Moslem and Jew will worship, work, live peacefully
+and enjoy equal rights. This is no utopian dream or false promise,
+for we have always lived in peace, Moslems, Christians and Jews
+in the Holy Land. The Palestinian Arabs gave a refuge, a warm
+shelter and a helping hand to Jews fleeing persecution in Christian
+Europe and to the Armenians fleeing persecution in Moslem
+Turkey, as well as to Greeks, Circassians and Maltese among others.
+
+Our Palestinian revolution still stretches its welcoming hand to all human beings who want to fight for, and live in, a democratic, tolerant Palestine, irrespective of race, color or religion.
+
+During the last four years, some 500 of our people have given
+their lives on the battlefield. During the same period many more
+than that have died in refugee camps from bitter cold, poor nourishment and disease.
+
+We are here to assert to you, and to ask you to confirm to your people, that our people will not lay down their arms until Palestine is liberated and our rights restored. We will not accept any settlement that denies us these rights, be it the Security Council's resolution, or any other proposal or political settlement ensuing from it. We will not accept any substitute to a war of national liberation and will tenaciously hold to it regardless of sacrifices and costs. Could anybody have asked you to accept anything less than total freedom from Nazism, fascism or colonialism? We are confident the people of the world will back our struggle and will support our revolution, for it is the struggle of man to achieve the loftiest of man's values: peace and justice.

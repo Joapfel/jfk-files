@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_9427.png
+
+Convert to MarkdownEast. Com., Ministry of Infor.
+
+1370 Boston Road
+Bronx, N.Y. 11212
+(212) 328-9911-9999
+
+Detroit, MI Ministry of Information
+
+12847 14th Street
+Detroit Michigan
+or call this number
+921/3854 Info. Center #2
+
+WHY SHOULD WE RENRITE THE CONSTITUTION ON THE UNITED STATES
+
+The Constitution of the U.S.A. does not and never has protected our people or guaranteed to us those lefty ideals enshrined within it. When the Constitution was first adopted we were held as slaves. We were held in slavery under the constitution. We have suffered every form of indignity and imposition under the Constitution, from economic exploitation, political subjugation to physical extermination.
+
+We need no further evidence that there is something wrong with the Constitution of the United States of America. We have had our Human Rights denied and violated perpetually under this Constitution-- for hundreds of years. As a people, we have received neither the Equal Protection of the Laws nor Due Process of Law. Where Human Rights are being daily violated there is denial of Due Process of Law and there is no Equal Protection of the Law. The Constitution of the United States does not guarantee and protect our Economic Rights, or our Political Rights, nor our Social Rights. It does not even guarantee and protect our most basic Human Right, the right to LIVE!
+
+The pigs here in fascist America are using their power to repress the masses of poor and oppressed people. The oppressor makes the laws and then turns these same laws into weapons to be used against the masses of oppressed people.
+
+Evidence of this is seen daily through out the Black Community. Such as the unauthorized imposing of curfew by the mayor of Lincore, We all learned then that the mayor does not have the authority to impose curfews, on June 12, 1970 Mayor Blackwell of Highland Park imposed another of these unauthorized curfews, in which black people were beaten, gased, shot, arrested , for violation of this illegal curfew.
+
+June 28, 1970 Red, Lawrence White, and Michael Anderson were attacked, gased, fired upon, arrested, and incarcerated by the Detroit Police Department, and held for 75,000 dollars ransom apiece. These brothers are in Jail today because they chose to defend themselves when attacked, rather than accepting their own murder in the name of so-called law and order.
+
+June 17, 1970 Mrs. Mc Clure and her two sons Melvin and, William Mc Clure, and Tommy Ward were for no other reason other than general harassment stopped, harassed viciously beaten, arrested, and charged with resisting and obstructing justice, after which they were also incarcerated.
+
+These are only a very few of the incidents that take place in the oppressed communities through out the United States of America, under the existing constitution of the United States.
+
+We therefore call for a Revolutionary People's Constitutional Convention, to be convened by the American people, to write a new Constitution that will guarantee and deliver to every American Citizen the inviolable Human Right to Life, Liberty, and The Pursuit of Happiness!
+
+ALL POWER TO THE PEOPLE
+
+DEATH TO ALL PIGS
+DETROIT N.C.C.P.
+
+NW 88296 DocId:32989574 Page 336
+
+19

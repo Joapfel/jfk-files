@@ -1,0 +1,64 @@
+# JFK-Files-Part-2_page_18918.png
+
+Convert to MarkdownFBI
+
+Date: 9/16/70
+
+transmit the following in _________________
+
+(Type in plaintext or code)
+
+ia
+
+AIRTEL
+
+(Priority)
+
+TO: DIRECTOR, FBI
+FROM: SAC, WFO
+
+IS - R (GROUP)
+(WFOfile.105-100799) (P)
+
+IS - R (GROUP)
+(00: MI)
+(WFOfile 105-96243) (P)
+
+SECRET
+
+CARBON COPY
+
+ReWFOlets 4/29/69 and 5/2/69, captioned "JAFFE" reporting interviews in March and April 1969 of JAFFE. ReBuairtel 9/14/70, entitled "SAMSUNG"
+
+Enclosed are seven copies for the Bureau, three for New York, two for Boston and three for Milwaukee of LHM reporting info from JAFFE concerning MIKHAIL ILICH BRUK, a member of the Pugwash group, as well as a summary of info from JAFFE concerning BRUK and JAFFE.
+
+LHM classified "Secret" since it contains info from CIA so classified. Sources are "WF T-1" and CIA (WF T-2).
+
+Info concerning JAFFE was volunteered by him. He indicated he was, not certain whether or not he would attend the party for BRUK, but would advise the FBI of any contact he might have with BRUK or any other member of JAFFE's captioned group.
+
+④-Bureau (Enc-7)
+(1-105-28333) (JAFFE)
+2-Boston (Info) (Enc-2) (RM)
+3-Milwaukee (Enc-3) (RM)
+3-New York (Info) (Enc-3) (RM)
+(1-134-3315) (JAFFE)
+3-WFO
+(1-105-8906) (JAFFE)
+
+NOT RECORDED
+
+168 SEP 18 1970
+
+STC
+
+JPP: CJB
+
+Classified by
+
+Exempt from GDS, Category
+
+Date of Publication Indefinite
+
+Sent M Per:
+
+NW 88326 DocId:3298204 Page:21 Charge Charge

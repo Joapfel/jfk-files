@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_18464.png
+
+Convert to Markdown3. What were the purposes of each program?
+
+4. In each case, by what means was it intended the purpose would be accomplished?
+
+5. What internal FBI procedures were adopted for the consideration and approval of specific disruptive activities and for determining the results of such activities?
+
+6. As to each operation listed above, and any others of a fundamentally similar kind, identify by type the sources of the information used against individuals and groups for disruptive purposes.
+
+7. As to each instance in which such information was obtained through electronic surveillance
+
+(a) What or who was the target of the surveillance?
+
+(b) Was the surveillance legal?
+
+(c) Was the surveillance conducted pursuant to warrant?
+
+(d) What were the dates of the surveillance?
+
+(e) What were the precise means of surveillance?
+
+(f) Who authorized the surveillance (both within and without the FBI)?
+
+(g) What was the purpose of the surveillance?
+
+8. As to each case listed above and all fundamentally similar cases, what was the legality and propriety of the disruptive activities? Should any of the activities referred to in the above sentence be forbidden by statute, considered for future use, or otherwise subject to statutory or administrative regulation?

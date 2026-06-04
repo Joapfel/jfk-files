@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_11173.png
+
+Convert to Markdown[ [11.1] Contributing to the establishment of a totalitarian dictatorship; (Title: UCC, § 783(a)) Section 4(a) of the Internal Security Act of 1950 provides that it shall be unlawful for any person knowingly to combine, conspire, or agree with any other person to perform any act which would substantially contribute to the establishment within the U. S. of a totalitarian dictatorship, the direction and control of which[is to]be vested in, or exercised by or under the domination or control of, any foreign government, foreign organization, or foreign individual. (The term "totalitarian dictatorship," according to the act, refers to systems of government not representative in fact, characterized by (A) the existence of a single political party, organized on a dictatorial basis, with so close an identity between such party and its policies and the governmental policies of the country in which it exists, that the party and the government constitute an indistinguishable unit, and (B) the forcible suppression of opposition to such party.)
+
+a. Elements
+
+(1) A person knowingly combined, conspired, or agreed with another person
+
+(2) To perform any act which would substantially contribute to the establishment within the U. S. of a totalitarian dictatorship
+
+(3) The direction and control of which is to be vested in, or exercised by or under the control of, any foreign government, foreign organization, or foreign individual.
+
+b. Penalty
+
+Maximum - $10,000 or two years or both, and thereafter be ineligible to hold any office or position of honor, profit, or trust created by the Constitution or laws of the U. S.
+
+c. Statute of limitations
+
+Ten years, except statute will not run on officer or employee of the U. S., etc., until after his employment has ceased.
+
+d. Evidence
+
+Neither the holding of office nor membership in any communist organization by any person shall constitute per se a violation of section 4(a) of the Internal Security Act of 1950 or of any other criminal statute.
+
+e. Departmental instructions
+
+The Department has requested the Bureau to furnish any information developed relating to this violation.
+
+f. [Deleted]
+
+95-97
+4-22-68
+
+NW 88321 DocId:32989529 Page 507

@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_15684.png
+
+Convert to MarkdownAll of us will have to be there.
+
+Genocide doesn't just mean physical
+murder, economic murder, psychological
+murder. All of these things combined
+make genocide on our black people.
+
+We must try the United States Government
+if we are to go to United Nations and
+although (garbled) we must try them
+with genocide of our people and demand
+a halt to it. And we don't demand a
+halt to it by marching down State Street.
+with signs. We don't demand a halt to
+it by sitting in. We don't demand a
+halt to it by praying in and loving in.
+That man doesn't respect that. He
+doesn't respect anything but the same
+thing that he uses and that's a gun.
+
+We must remember all the (garbled)
+brothers and sisters in the Black
+Panther Party and in the black community
+
+NWI 88613 DocId:32199554

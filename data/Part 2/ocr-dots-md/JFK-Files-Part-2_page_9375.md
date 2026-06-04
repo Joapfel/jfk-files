@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_9375.png
+
+Convert to MarkdownDE T-2
+
+January 25, 1971
+
+VIRON REDWINE, Detroit NCCF member who went to California to act as Newton's bodyguard, was disillusioned with the BPP on his return to Detroit, claiming that NEWTON was crazy, sniffs cocaine, and that everyone follows his lead and does whatever he commands without question. REDWINE claimed that internal discipline is disintegrating as female Panther members in Oakland use birth control pills and everyone uses marijuana.
+
+DE T-4
+July, 1971
+
+The BPP had a booth at the Michigan State Fair the end of August and the first of September, 1971, at which they sold papers, flags, and sought donations. All members in the booth were clean, neatly dressed and polite, in an effort to change the rough, violent image of the BPP.
+
+DE T-4
+September, 1971
+
+DE T-3 advised on September 23, 1971, that KENNETH HORSTON, leader, Detroit BPP, held a press conference on that date. HORSTON claimed that early on the morning of September 23, 1971, Detroit Police Officers fired on the BPP office at 2591 Pennsylvania, Detroit, and presented a woman claiming to be a witness to the shooting. The woman stated that she saw four men in a black car with "Detroit Police" on the side fire at 2591 Pennsylvania, Detroit.

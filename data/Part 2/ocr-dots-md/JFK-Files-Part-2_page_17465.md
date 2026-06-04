@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_17465.png
+
+Convert to MarkdownInformant stated there are rumors around Argo-Summit that NATHANIEL JUNIOR and DENNIS HARVEY are seeking a way to go to Cuba before they are arrested. Informant stated he believes JUNIOR is at 2350 West Madison hiding out.
+
+Informant advised the BPP meeting on 5/21 was held at Chuck's Record Shop, 1019 South 17th. The only thing discussed was the mock trial to be held at the Old Lutheran Seminary, 1644 South 11th Avenue, on Saturday night at 8:00 p.m. This building is used by the O.E.O. and apparently someone made it available to the BPP.
+
+### Informant advised on 5/24:
+
+The place of the mock trial was changed to the Village Hall in Maywood for 5/24, and 25/69, at 8:00 p.m. All persons are invited.
+
+FRED HAMPTON expects to be sentenced on 5/26, and needs $3,000-$4,000 bond money to stay out of jail during his appeal.
+
+### Informant advised on 5/26/69:
+
+The mock trial went smoothly Saturday and Sunday night. More than 100 people attended, half black and half white. HAMPTON was found "not guilty." HAMPTON was his own lawyer. No violence occurred.
+
+### Informant advised on 5/28/69:
+
+ROBERT BRUCE is very unhappy because FRED HAMPTON was kept in jail without an appeal bond. He tried to get the BPP to meet and discuss ways of raising bond money, but was unsuccessful on 5/26, and 5/27.
+
+BRUCE said the BPP should wait about a week if a week and a half to see if HAMPTON will get out on bond. After that, if he is not out, then there will be plans made for destruction of property in Maywood. - 2 -

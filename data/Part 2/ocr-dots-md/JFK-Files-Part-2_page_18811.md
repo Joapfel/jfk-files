@@ -1,0 +1,213 @@
+# JFK-Files-Part-2_page_18811.png
+
+Convert to Markdown9/18/58
+
+AM
+
+PLAIN
+AIFT L
+
+TO: DIRECTOR, FBI (105-43307)
+
+FROM: SAC, NEW YORK (105-10369)
+
+SUBJECT:
+
+No NY airtel dated 9/10/58, which reflects that Guide, UN, was in contact with subject.
+
+IRS records reflect that entered the US at NY on , with a B & type visa, issued 10/21/57. This would appear to rule her out as being identical with the blonde American stenographer with whom subject entered on 10/1/57, and to whom he expressed his intention of seeking entry in the US. However, this office believes that it will still be profitable to exhibit a photograph of to the source abroad through CIA as he says. One might some similarly check the telephone records of and the American stenographer of interest in this matter.
+
+4 - Bureau (105-48507)(Am)
+(1) - 105-20333 (SAMUEL ADASON JAFFE)
+
+1 - New York (134-3315)
+1 - New York (105-18909)
+
+EFG:mlm
+(7)
+
+INITIALS ON ORIGINAL
+
+N W GELF TENNENT
+
+SEP 27 1958
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3
+
+INITIALS ON ORIGINAL
+
+6136 M 3
+
+SUF 9718:3

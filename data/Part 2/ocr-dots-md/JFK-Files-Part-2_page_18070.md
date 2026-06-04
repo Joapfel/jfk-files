@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_18070.png
+
+Convert to Markdown NW 88326 DocId:32989653 Page 68
+
+TREAT AS YELLOW
+
+<table><tr><td>CLASSIFY AS APPROPRIATE</td></tr></table>
+
+<table><tr><td>TO:</td><td>Intelligence Community Staff</td><td rowspan="2">FROM:</td></tr><tr><td>ATTN:</td><td>Central Index</td></tr><tr><td colspan="3">SUBJECT: Abstract of Information Provided to Select Committees</td></tr><tr><td colspan="3"><div>1. HOW PROVIDED (check appropriate term. If a document was made available for review but not transmitted, so note.)</div><table><tr><td>X</td><td>DOCUMENT</td><td>BRIEFING</td><td>INTERVIEW</td><td>TESTIMONY</td><td>OTHER</td></tr></table></td></tr><tr><td colspan="3"><div>3. TO WHOM PROVIDED (check appropriate term; add specific names if appropriate)</div><table><tr><td>X</td><td>SSC</td></tr><tr><td></td><td>HSC</td></tr></table></td></tr><tr><td colspan="3"><div>4. IDENTIFICATION (provide descriptive data for documents; give name or identification number of briefer, interviewee, testifier and subject)</div><div style='text-align:center'>Memorandum and enclosures</div><div style='text-align:right'>ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED<br/>DATE 10/18/75 BY SDJARMLEY</div></td></tr><tr><td colspan="3"><div>5. IN RESPONSE TO (list date and item number if in response to formal request, otherwise state verbal request of (name), initiative, subpoena, etc.)<br/>SSC letters 8/28/75, 7/14/75, Items 3, 4, 6, 11, 12, 14, 15, 16, 18, 21 and 22</div><div>6. CLASSIFICATION OF INFORMATION (enter U, C, S, TS or Codeword)<br/>S</div></td></tr><tr><td colspan="3"><div>7. KEY WORDS (enter the appropriate key words from the list provided separately; if key words not listed are used underline for emphasis)</div><div style='text-align:center'>Surveillance, electronic</div></td></tr><tr><td colspan="3"><div>8. SUMMARY (see reverse side before completing this item)</div><div style='text-align:center'>Materials relating to Martin Luther King, Jr.: monographs and interoffice memoranda</div><div style='text-align:center'>62-116395<br/>FMK:lhb<br/>(4) ORIGINAL VIA LIAISON TO CENTRAL COMMUNITY INDEX IN CONNECTION WITH SENSTUDY 75</div></td></tr></table>
+
+<table><tr><td>CLASSIFY AS APPROPRIATE</td></tr></table>

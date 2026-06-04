@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_10449.png
+
+Convert to Markdownrequest of CI/PG. Trainees represent internal security or national police from all countries participating in AID Police assistance programs.
+
+## White House
+
+Stationery, special memoranda, molds of the Great Seal have been furnished the Social Secretary. The Deputy Director for Operations is apprised of these requirements.
+
+## Police Respresenting Washington, Arlington, Fairfax and Alexandria
+
+During the period 1968 - 1969 a series of classes reflecting basic and surveillance photography, basic audio, locks and picks, countersabotage and surreptitious entry were given to selected members from the above mentioned cities. Overall training was approved by the Director of Central Intelligence and in turn validation was required for each course from the Director of Security.
+
+SECRET
+
+00210

@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_17364.png
+
+Convert to MarkdownDELMOS RAYMOUND WARD
+
+On January 29, 1969, a review of the records of the Chicago Police Department revealed that Delmos R. Ward, Chicago Police IR #155946, was arrested on January 17, 1969, on a charge of armed robbery, per robbery case report number H008327.. Reportedly on January 9, 1969, four Negroes accosted the victim at the intersection of Pulaski and Harrison Avenues, Chicago, and forced their way into victim's auto at knifepoint and took $7 and the auto from the victim. Chicago Police records indicate that one of the Negroes was subsequently identified as Ward and an Armed Robbery Warrant #378412 was issued in Cook County Court, Branch 43, on January 15, 1969, and that subsequently Ward was arrested by Chicago Police Officers at 655 Lake Street, Oak Park, Illinois, on January 17, 1969.
+
+Records further reflect that Ward indicating he was employed
+by Dual Fastner, Franklin Park, Illinois, was released on $5,000
+bond and a court date on January 29, 1969, in Branch 43, was
+set for Ward.
+
+On February 4, 1969, Detective Eidgish Waters, Area Four, Robbery, Chicago, Illinois, Police Department, advised an Agent of the Chicago Office of the FBI that Ward's January 28, 1969, court date in Branch 43, had been continued to February 4, 1969, and on that date further continued to March 20, 1969. According to Detective Waters, Ward remains free on $5,000 bond.
+
+Copies of this memorandum are being furnished
+the following agencies:
+
+U. S. Secret Service
+Chicago, Illinois
+
+Group I, 113th Military Intelligence Group
+Evanston, Illinois
+
+DELMOS RAYMOUND WARD SHOULD BE CONSIDERED ARMED AND DANGEROUS
+
+NW 88613 DocId:32199554
+Page 2861

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_15763.png
+
+Convert to MarkdownCHARLES GARRY:
+
+Well I have tremendous faith and confidence
+in a free press and a free press is exactly
+what it means. The difficulties that we've
+had in the dissemination of information from
+the Black Panther Party is being able to tell
+the truth. It's true that since MARK CLARK
+and FRED HAMPTON were murdered and the Los
+Angeles police overstayed their police
+authority that the press media has been
+giving dissemination to the things that the
+community has been aware of for a long long
+time. The Black Panther Party has had a
+program for almost three years. They have
+projected humanness, qualities, genuineness
+and the only time that the media has ever
+been interested is if some particular member
+of the Black Panther Party did something
+that shocked the white racist community.
+Then the media would be interested. But
+when the Black Panther Party would call a
+press conference and talk about breakfast
+for children, talk about the health program,
+
+NW 88613 DocId:32199554
+Page 1260

@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_9917.png
+
+Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+Messrs. Neumann, Held and Burns will be notified
+of the SSC's desire to interview them in connection with these
+memoranda. Mr. Held is currently in an official travel status
+and will remain in such status until the first week of March.
+
+1 - The Attorney General
+
+NW-88326 DocId:32989603 Page 182

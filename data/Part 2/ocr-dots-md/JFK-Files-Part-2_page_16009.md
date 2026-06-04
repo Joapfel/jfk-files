@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_16009.png
+
+Convert to Markdown10/20/69
+
+TO: DIRECTOR, FBI
+FROM: SAC, CHICAGO
+SUBJECT: BLACK PANTHER PARTY (BPP) RM
+
+One copy of the LEM is being disseminated locally to the USA and U.S. Secret Service, both Chicago, and Region I, 113th MI Group, Evanston, Illinois.

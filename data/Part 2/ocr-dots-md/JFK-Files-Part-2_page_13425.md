@@ -1,0 +1,58 @@
+# JFK-Files-Part-2_page_13425.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENSTUDY 75
+
+DATE: 5/22/75
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Infill
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+On 5/21/75, Andy Smith, Supervisor in our Birmingham Office, called Deputy Assistant Director Herington and advised that former SA Robert R. Nichols (EOD: 1/6/47; retired: 5/12/72) had been contacted by the Senate Select Committee for interview. Smith connected Nichols through to Herington, at which time Nichols advised that about ten days ago Lester Seidel of the Senate Select Committee had contacted him. At that time, Nichols was going to Oklahoma City, and has just recently returned home to Birmingham. Nichols stated that at one time he was the case agent in the Atlanta Office on the Martin Luther King investigation, and it was presumed this was the subject matter of the proposed interview.
+
+Nichols was advised that the decision as to whether he would consent to interview was entirely his to make. He was reminded that he had signed a secrecy agreement, and was reminded of the provisions of AG Order 501-73 requiring prior authority from the appropriate Departmental official prior to a current or former employee furnishing information he acquired during the course of his employment. He was also advised that he had a right to be represented by a personal attorney if he desired and that he had all the constitutional rights available to him, the same as any citizen. He was further told that if he desired to have an FBI representative available, but not present during the interview, he could so request, noting that the purpose of the FBI representative would be to counsel him concerning sensitive areas which might be explored.
+
+REC-107
+
+JUN 3 1975
+
+It was emphasized to Nichols that the FBI would not and could not recommend the course of action he should take and that the decision with regard to this interview was entirely his to make.
+
+RECOMMENDATION:
+
+For information.
+
+1 - Mr. Adams
+1 - Mr. Wannall
+1 - Mr. Phillips
+1 - Mr. Mintz
+1 - Mr. Hotis
+1 - Mr. Herington
+
+JH:mtm-
+
+COPY RETAINED IN PERSONNEL RECORDS UNIT

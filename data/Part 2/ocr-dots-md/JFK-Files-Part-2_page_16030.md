@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_16030.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DEMONSTRATIONS PROTESTING THE TRIALS OF INDIVIDUALS INDICTED FOR THEIR ACTIVITY DURING THE DEMOCRATIC NATIONAL CONVENTION (DNC) OF 1968 IN CHICAGO, ILLINOIS
+
+among those present at this rally.
+
+SAs of the FBI also observed Robert (Bob) Stewart, Chicago leader of Youth Against War and Facism, a youth organization opposing United States imperialism, carrying a sign which read "Racist pig Daly stop fascist raids, free the Panthers now".
+
+At 12:45 p.m., on October 7, 1969, during this rally, SAs of the FBI observed Artie Seale, wife of Bobby Seale, one of "The Conspiracy 8" defendants and National Chairman of BPP, read in a very low voice, an inaudible statement to those assembled. At 12:52 p.m., on October 7, 1969, SAs of the FBI observed Allen Holmes, who is called "Omar", speak to the BPP gathering stating that the real conspiracy was between Mayor Daly, the pigs, President Nixon and United States Attorney General John Mitchell, in their combined efforts to crush the BPP. Omar stated the people of the United States must organize against police brutality and oppose raids against the BPP as conducted in the past by the Chicago pigs. He stated the next time the pigs shoot the Chicago BPP Headquarters door down, they will get a surprise. It was pointed out people should fight capitalism with socialism, racism with solidarity and ended his talk by making an appeal for all Chicago citizens and those attending the rally, to help BPP build.
+
+As of 1:30 p.m., on October 7, 1969, SAs of the FBI and Officers of the Chicago PD reported the demonstrators remained orderly, no incidents had occurred and no arrests had been made.
+
+CONFIDENTIAL
+
+-16-
+
+NW 88613 DocId:32199554 Page 1527

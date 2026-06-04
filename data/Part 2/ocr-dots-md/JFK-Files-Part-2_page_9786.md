@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_9786.png
+
+Convert to MarkdownMay 8, 1974
+
+Deputy Assistant Attorney General
+Criminal Division
+
+Director, FBI
+
+# EXECUTIVE ORDER 10450
+
+Executive Order (EC) 10450 is currently being amended by the Department and representatives of this Bureau have participated in a task force headed by Mr. Oran Waterman, Director, Department Security Staff, which is recommending certain changes be made in EC 10450.
+
+During the course of discussions within the task force, it was pointed out to Mr. Waterman the Bureau's authority to conduct investigations in the domestic subversion field has come under considerable scrutiny. The Bureau is now conducting investigations of domestic subversion on the basis of existing Federal statutes. This investigative policy may not adequately meet the needs of an effective security of Government employees program under EC 10450.
+
+The Assistant Attorney General, Office of Legal Counsel, previously solicited our views on abolition of the Attorney General's List. In our response cautioned "Abolition of the Attorney General's List, dated April 11, 1974, our comments included advice that under our current statutory basis for domestic subversion investigations may not adequately meet the needs of EC 10450 and the observation the FBI has never received specific instructions from the Attorney General to conduct intelligence-type investigations to identify and determine the activities of organizations described in Section 8 (a) (5) of EC 10450. We also requested to be advised as to the instructions of the Attorney General relating to the FBI conducting intelligence-type investigations under EC 10450, as well as the scope and parameters within which such investigations should be conducted.

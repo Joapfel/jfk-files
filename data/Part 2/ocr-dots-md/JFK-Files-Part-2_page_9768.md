@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_9768.png
+
+Convert to Markdownwork out similar procedures with the Civil Service Commission and other interested agencies with respect to Executive Order 10450.
+
+3. In reference to the problem of the responsibility of conducting investigations abroad, the Departments of State and Army were requested by letter dated June 5, 1953, to continue the same arrangement under Executive Order No. 10450 for investigations abroad as existed under Executive Order No. 9835. The letter stated that in the absence of any indication of disagreement with this plan, it would be assumed that the existing arrangement would remain in effect. To date no expressions of disagreement have come from either Department.
+
+4. In respect to the re-adjudication question arising under section 4, I agree that the Bureau should conduct additional investigations only when their purpose is to develop information of the type described in section 8(d). However, I believe the Civil Service Commission, rather than this Department, should issue direct instructions to all departments and agencies as to proper procedures in connection with requests for investigation. I would accordingly recommend that you work out a plan with the Civil Service Commission to so advise the interested departments and agencies.
+
+5. As you point out, the last sentence of section 9(k) of the sample security regulations is subject to possible interpretation requiring the employee to be given a copy of the investigative reports in connection with his case. In order to preclude this possibility, an appropriate amendment has been transmitted to all departments and agencies... Many of them have also been informally advised of the matter. In addition, since they are supposed to submit their regulations to this Department before issuance, proper precautions will be taken at that time.
+
+6. I agree that your existing policy of sending all Bureau reports to the Commission for dissemination to the appropriate departments and agencies should be continued.
+
+7. You note that the sample security regulations do not state whether the hearings are to be open or closed and that under Executive Order 9835 the Loyalty Review Board issued a directive to all departments and agencies requiring hearings under that order to be private. In accordance with your suggestion, an amendment to that effect has been transmitted to all executive departments and agencies.
+
+8. You point out that the sample security regulations provide in section 9(c)(4) that each employee shall have the right "to cross-examine any witness offered in support of the charges", whereas under Executive Order 9835 the Loyalty Review Board issued

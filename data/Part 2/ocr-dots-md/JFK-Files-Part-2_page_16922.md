@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_16922.png
+
+Convert to Markdown# Military Training System
+
+A 4-week mandatory class for all members (the, Sun, and Mon).
+The restriction of all non-member classes should be conducted in a civil,
+military staff; classes conducted either partly or partly in the military
+discipline at all times! &x. In the case of the class room of the military,
+institute, all talking should cease and all trainees should take a firm stand.
+All standing position and remain in it manner until given the order to be issued.
+All classes or class activities should begin with: All Power the People and the State
+to the People's Revolution. The main purpose of the class is to give even
+party member a basic practical training in the military phase of the People's Army.
+There should be no absenteeism from the Political Education Classes (政治軍事).
+reason being a military mind without a people's ideology is a false bill.
+and the people don't need no Lies. Classes should be conducted in an
+evenly manner at all time.
+Structure of the Classes
+I. Discipline:
+
+A. Discipline is the exact execution of orders resulting from an initiative by military leaders, rather than on its own, solely upon habit or fear. Discipline is necessary to secure and secure,

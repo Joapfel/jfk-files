@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_14467.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : MR. A. H. BELMONT
+
+FROM : MR. D. E. MOORE
+
+SUBJECT: HUNTER P.
+ESPIONAGE - R
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/26/61 BY J. A. Nield
+
+cc Mr. Parsons
+Mr. Conrad
+Mr. Belmont
+Mr. D. E. Moore
+Mr. Branigan
+Mr. W. B. Stewart
+
+Hunter is CIA's sensitive project involving the review of mail going to the (Soviet Union). CIA makes available to us results of their analysis relative to this project.
+
+On 3-9-61 during a conference on (Soviet) illegal espionage activities between Special Agents Papich, Litrento, Duckett and M. and Messrs. Angleton, Horton and Hunt of CIA, we were advised that C IA has now established a laboratory in New York in connection with this project which can examine correspondence for secret writing, micro-dots and possibly codes. He said the laboratory is fully equipped and they would be glad to make its facilities available to us if at any time we desire an examination of this nature to be made in NYC and time was of the essence and would not permit the material to be brought to our Laboratory in Washington, D.C. We expressed our appreciation for the offer and said that in the event we desired to utilize their laboratory, we would contact them.
+
+ACTION: For information.
+
+DEM:td.(7)
+
+REC-22
+
+7 MAR 23 1961
+
+MAR 28 1961

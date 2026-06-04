@@ -1,0 +1,54 @@
+# JFK-Files-Part-2_page_18076.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>Memorandum</td>
+   </tr>
+  </table>
+
+TO : Mr. A. H. Belmont
+
+FROM : W. C. Sullivan
+
+SUBJECT: COMMUNISM AND THE NEGRO MOVEMENT--A CURRENT ANALYSIS
+
+1 - Mr. Mont
+1 - Mr. Lio.
+1 - Mr. DeLoach
+1 - Mr. Evans
+
+DATE: November 22, 1964
+
+1 - Mr. Rosen
+1 - Mr. Sullivan
+1 - Mr. Bland
+1 - Mr. Baumgardner
+1 - Mr. Phillips
+
+Enclosed is a paper, captioned as above, which depicts the communist influence in the Negro movement with emphasis on Martin Luther King, Jr. This paper is an up-to-date revision of the one by the same title prepared under the date of October 16, 1963. In updating it we emphasized three main areas: (1) the continued dependence of King upon former Communist Party, USA members, current and former Party sympathizers and his continued reliance on the long-time communist Stanley David Levison; (2) facts relating to the moral degeneracy of King; and (3) the recent and current Party aims and activities relative to the racial movement.
+
+RECOMMENDATION:
+
+Upon approval, consideration will be given to appropriate dissemination. When approved, the paper should be returned to the Domestic Intelligence Division for printing and the preparation of appropriate letters if disseminated.
+
+Enclosure
+
+SFP:kao.
+
+(10)
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10/18/64 BY S.P.Melny
+
+11 DEC 10 1964
+
+<table><tbody><tr><td>SENT DIRECTOR</td></tr></tbody></table>
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.
+
+ENCLOSURE
+
+66DEC1964
+
+INT'L DEC 10 1964
+
+NW 88326 DocId:32989653 Page 74

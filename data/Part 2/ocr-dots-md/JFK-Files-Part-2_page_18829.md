@@ -1,0 +1,74 @@
+# JFK-Files-Part-2_page_18829.png
+
+Convert to Markdown69748
+
+105-28333
+
+BY COURIER SERVICE
+
+**Date:** January 29, 1956
+
+**To:** Director (orig & 1)
+Central Intelligence Agency
+2430 E Street, N. W.
+Washington, D. C.
+
+**Attention:** Deputy Director, Plane
+
+**From:** John Edgar Hoover, Director
+Federal Bureau of Investigation
+
+**Subject:** SAMUEL ADASON JAFFE
+INTERNAL SECURITY - R
+
+Reference is made to your request for a check of FBI files regarding Sam A. Jaffe dated January 11, 1956.
+
+A review of files of this Bureau disclosed that subject's full name is Samuel Adason/Jaffe; who was born June 19, 1929, at San Francisco, California. His permanent residence address is listed as 301 Fletcher Drive, Atherton, California, and his mailing address is 68 Post Street, San Francisco, California. Passport files, Department of State disclose that his mother, Dorothy I. Jaffe, was born in Ohio and is deceased. His father, Abram S. Jaffe, was born in Russia about 1893 and currently resides at 891 28th Avenue, San Francisco, California. His father, Abram S. Jaffe, immigrated to the United States about 1894 and has resided continuously in the United States from 1894 to 1955. Abram S. Jaffe was naturalized at Philadelphia, Pennsylvania, date unknown, through his father.
+
+Citizenship by birth
+
+Exempt from GCS, Category 243
+
+VT:MDP
+
+(5)
+
+ENCL:
+
+Tolson
+
+Boardman
+
+Nichols
+
+Belmont
+
+Harbo
+
+Mohr
+
+Parsons
+
+Rosen
+
+Tamm
+
+Sizoo
+
+Winterowd
+
+Tele. F on
+
+Hollomon
+
+Gandy
+
+JAN 24 1955
+
+INN-D-27
+
+EXL-107
+
+JAN 24 1955
+
+NW 88326 DocId:32989704 Page 123

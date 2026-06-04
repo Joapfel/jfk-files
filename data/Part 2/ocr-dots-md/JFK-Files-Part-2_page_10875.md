@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_10875.png
+
+Convert to Markdown# PART II
+
+## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+
+2. Requesting authority for release
+   a. By teletype.
+      At least four hours before the time of release, developments in the case, an outline of the release, and statement release will be made UACB are to be furnished the Bureau.
+   b. By telephone where time is of essence.
+      Confer with division head having supervision of the matter for investigative clearance and with [Press Services Office] for final press clearance. While good judgment must prevail, in important cases in which a local newspaper deadline is approaching, it may be advisable to telephone the Bureau for clearance.
+
+3. Press releases are to be made personally only by the SAC or in his absence by the ASAC.
+
+4. Releases are to be made both at headquarters and the local area affected by developments. All material prepared for the public must be reviewed word for word. It is not to contain words or phrases which might be regarded as objectionable or offensive to a member of any race, creed, or religious sect. Thorough advance planning should be utilized wherever possible, and all press releases should be coordinated to eliminate any avoidable delays.
+
+5. In the absence of an overriding consideration bearing on the public interest, no statement should be put in an announcement to the press to the effect that a subject either has confessed or has admitted his crimes without specific Bureau approval. In case of doubt, consult the Bureau. When the fact that a subject has given a confession is included in a complaint and an inquiry is forthcoming from the press, a "no comment" reply should be given. The complaint is a court record and must be left to speak for itself.
+
+6. On-the-spot announcements by SAC are authorized in emergency situations in which good judgment so dictates. Emergency on-the-spot statements by Agents limited to their official identity and, if known, the identity of fugitive or criminal in gun battle. If badly wanted fugitive apprehended in remote area and SAC absent, Agent may, in rare emergency only and where time of essence, furnish bare details. Contact by SAC with press should be effected immediately where press desires further details.
+
+7. In those instances in which a press release is issued at [FBIHQ], television and radio media should be merely provided with a written copy of the press release, and Bureau personnel should not submit to live, filmed, or tape-recorded interviews of any kind, including the reading of the release itself, without prior Bureau authority. Tact and diplomacy must be exercised in declining to participate in such interviews. With respect to local press releases, SACs may, when requested, make personal appearances on television and radio provided no interviews are conducted and there is absolutely no elaboration over and above the original press release. These conditions should be made known in advance to television and radio station representatives when such requests are received. Reading of these local press releases on the telephone to the news media should be done by the SAC or ASAC.
+
+8. In the absence of special circumstances, Bureau Agents should never suggest or request a reporter or another representative of a newspaper or similar publication to withhold the publication of news. In the event that special circumstances do exist, it will be necessary to clear with the Bureau prior to making any such request.
+
+1a
+
+3-27-73

@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_16683.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+
+Date 1/31/70
+
+On the early afternoon of January 28, 1970,
+
+SA New York FBI Resident
+Agency, personally turned over to SA
+JR., FBI Laboratory, Washington, D. C., at Washington,
+D. C., the below-described two (2) items, which
+over to SA on the evening of January 27, 1970, at
+residence in New York:
+
+#1 One (1) one-inch by three-inch microscope slide labeled "HLMacD, 12/10/69, F Head."
+
+#2 One (1) one-inch by three-inch glass microscope slide labeled "HLMacD, 12/10/69, F Base."
+
+19
+
+On 2/28/70 of Washington, D. C.
+
+File #.
+
+by SA
+
+Date dictated 1/29/70
+
+NW 88613 DocId:32199554

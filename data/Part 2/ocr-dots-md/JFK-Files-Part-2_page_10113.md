@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_10113.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE
+ACTIVITIES (SSC)
+
+**Answer:**
+
+(a) The FBI does not have files on any of the following persons nor is there any indication that any of them were ever employed by the FBI directly or indirectly or contacted by the FBI: Mrs. Jan (Kenneth) Sorensen, Boulder, Colorado; Mrs. Carol Word, Littleton, Colorado; George Stein, Lyons, Colorado; Henry Madrid, Pueblo, Colorado; Harvey Bevier, Denver, Colorado; and Jaroslav Riha, San Antonio, Texas.
+
+(b) The FBI does not have files on any of the following persons nor is there any indication that any of them were ever employed by the FBI, however, they were contacted by the FBI as indicated on separate reports of interview which are being furnished to the SSC: Zdenek Cerveny, Boulder, Colorado; Francesca Stein, Lyons, Colorado; and Professor Joyce Lebra, Boulder, Colorado.
+
+(c) The FBI does have files on Professor Donald Fanger, Cambridge, Massachusetts; Professor Stephen Fischer-Galati, Boulder, Colorado; and Professor Oldrich Leska, Prague, Czechoslovakia. These files are not related to the disappearance of Thomas Riha.
+Professors Fanger and Leska were never employed by the FBI directly or indirectly nor is there any indication they have ever been contacted by the FBI. Professor Fischer-Galati has never been employed by the FBI directly or indirectly. Correspondence between Fischer-Galati and the FBI and other Government officials regarding the disappearance of Thomas Riha was previously furnished to the SSC on November 21, 1975. The FBI is now furnishing a copy of a report of interview of Fischer-Galati by the FBI on January 26, 1970.

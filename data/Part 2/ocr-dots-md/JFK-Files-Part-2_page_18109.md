@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_18109.png
+
+Convert to MarkdownDr. Leland J. Haworth
+
+**NOTE:**
+
+See memo W. C. Sullivan to Mr. Belmont, dated 12/21/64, re "Communismand the Negro Movement-- A Current Analysis," TPR:rbm.
+
+This letter is classified "Top Secret" since the enclosure is so classified in order to fully protect the extremely sensitive sources involved.

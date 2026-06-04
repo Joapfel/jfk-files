@@ -1,0 +1,78 @@
+# JFK-Files-Part-2_page_18668.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENSTUDY 75
+
+DATE: 7-23-75
+
+Assoc. Dir.
+Dep. AD Adm.
+Dép. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Legal Coun.
+Plan. & Eval.
+Spec. Inv.
+Training
+Telephone Rm.
+Director Sec'y
+
+On July 23, 1975, Mike Gitenstein, staff member Senate Select Committee, requested that he be given a briefing concerning "Official and Confidential" files. By way of background, we furnished a summary of the inspection inquiry to the Committee by letterhead memorandum dated 7-16-75, and also made available for review in Bureau space a list of people contacted during the course of this inquiry.
+
+With regard to Gitenstein's request it would appear beneficial for us to brief the Senate Select Committee representative concerning the scope and details of this inquiry. In this regard it appears Gitenstein is interested in those individuals who were contacted by the Inspection Division during their inspection into the "Official and Confidential" files.
+
+If approved the briefing will be tentatively scheduled for Friday, July 25, 1975.
+
+RECOMMENDATION:
+
+That a briefing be arranged for Gitenstein concerning the "Official and Confidential" files inspection inquiry by Inspection Division.
+
+1-Mr. Bassett
+1-Mr. Wannall
+1-Mr. Cregar
+1-Mr. Mintz
+1-Mr. Hotis
+1-Mr. Daly
+
+PVD:lgp
+
+(8)
+
+REC-47
+
+5 JUL 29 1975
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+84 JUN 15 1975
+
+NW 88326. DocId:32989627 Page 266
+
+RICHMOND, VIRGINIA
+
+The 4/15 section in gping and not going to change. I had p.d. with Gitenstein. H. Helse on and w how I was going to pay. Generally bad news for him concerning the 10% bonds in general. Generalmente bad news for him concerning the 10% bonds in general. I think I'm the only one supporting them.
+
+THE PRESIDENT HAS COMPLETED READING THE follow-
+
+# MORE THAN ONE THOUSAND CITIZENS SUPPORT SAVINGS PLAN DATED JULY 29, 1975
+
+DATE 10-16-00
+TIME 1:50 PM
+LOCATION ACUMEN
+STAMP #30216
+
+84 JUN 15 1975

@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_9202.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Honolulu, Hawaii
+
+January 19, 1965
+
+In Reply, Please Refer to
+File No.
+
+Title MICHAEL HALSEY BROWN
+
+Character RACIAL MATTER - HAWAII
+
+Reference Memorandum dated January 19, 1965,
+at Honolulu, Hawaii
+
+All sources (except any listed below) used in referenced communication have furnished reliable information in the past.

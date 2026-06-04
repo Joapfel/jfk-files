@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_17459.png
+
+Convert to Markdown# APPENDIX
+
+This confidential source advised on May 17, 1965, that the headquarters of the MMI are located in Suite 128, 3001 Throops Avenue, 2090 Seventh Avenue, New York, New York, where they were established on March 19, 1964. These headquarters are based with the Organization of Afro-American Unity Incorporated (OAAAU) which was also headed by MAICOLM X.
+
+MALCOLM X was assassinated on February 21, 1965, at a meeting of the OAAAU rally at the Audubon Ballroom, 1600 and 166th Street, New York City.
+
+This same confidential source advised on September 8, 1965, that the activities of the MMI following the death of MALCOLM X were limited to the teaching of classes in the Islamic Religion and a class in judo for self-protection. Classes were held regularly until the latter part of July, 1965, when they were discontinued. Since then, the MMI has held no meetings and there has been absolutely no activity by the MMI which appears to be completely "dead"

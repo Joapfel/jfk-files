@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_12536.png
+
+Convert to Markdown2. Investigative procedures
+
+a. Scope of investigation.
+
+Data concerning the following items should be developed and reported, if pertinent:
+
+(1) Background information, including
+
+(a) True name and aliases.
+
+(b) Date and place of birth.
+
+(c) Residences, past and present.
+
+(d) Occupations and employments, past and present.
+
+(e) Citizenship status; where applicable, naturalization data.
+
+(f) Family background. If available, include identities of immediate family and any information indicating they are employed in sensitive positions or by U. S. Government. If member of immediate family is known to be engaged in subversive activities, include succinct resume.
+
+(g) Military records, including any service in foreign forces.
+
+(h) Educational background.
+
+(i) Arrest record and disposition of charges.
+
+(j) Physical description. Make reasonable effort to secure photograph.
+
+(k) Handwriting and/or handprinting specimens should be obtained, if readily available, and kept in case file. Special efforts should be made to secure such specimens with regard to leaders of subversive groups and they should be furnished to FBIHQ by letter for attention of FBI Laboratory to be included in National Security File.
+
+(2) Subversive activities and affiliations, including
+
+(a) Information concerning membership in subversive movements, organizations or front groups, date and circumstances of adminision, positions held, and participation in activities of organization (e.g., attendance at meetings or other functions, fund-raising or recruitment efforts on behalf of organization, contributions, etc.)
+
+(b) Statements made or other factors which indicate awareness of the subversive nature of group, including involvement in underground operations, and/or in any other illegal or violent actions promoted by organization or movement.
+
+(c) Information tending to show subject's importance in subversive movement or organization, e.g., degree of influence and leadership exercised, close association with national or local leaders, participation in policy decisions.
+
+b. Investigative steps
+
+The following steps should be considered, but are not all inclusive.
+
+(1) File reviews. Office indices should be checked. Any pertinent information developed should be included in initial report.
+Where logical, check files of other field offices and/or FBIHQ.
+
+(2) Public source material. Make full use of public records and public sources of information, including hearings of congressional or other Government committees both state and Federal, and publications, including those issued by subversive groups.
+
+(3) Check of files of other government agencies, both Federal and local, which could logically be expected to have pertinent information.

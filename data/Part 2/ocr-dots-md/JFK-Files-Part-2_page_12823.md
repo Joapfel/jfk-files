@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_12823.png
+
+Convert to MarkdownMM 149-425
+
+ERNESTO DE LA FE, described as coordinator of
+"Los Accionistas de Cuba" (Actionists of Cuba) reportedly
+sent a communication to SERGIO FREIJO, giving FREIJO the
+signal to start activity against communism and CASTRO. No
+further details were mentioned in this connection. MM 724-S
+said ERNESTO DE LA FE is the brother of ROMERO DE LA FE, who
+is currently in the Miami area, released on bond from his
+arrest in connection with the hijacking of the "freighter
+transport." ERNESTO was the Minister of Press and Propaganda
+in the BATISTA Government and General Secretary of an anti-
+communist organization. He is currently serving a 30 year
+sentence in prison in Cuba.
+
+MM 724-S believed SERGIO FREIJO has recently been
+in contact with Cuban news reporter BENJAMIN DE LA VEGA, who
+may be aware of the reported communication received by
+FREIJO from ERNESTO DE LA FE.
+
+The following information was obtained from PCI JESUS DIEGUEZ on February 23 and 27, 1968, by SA JAMES J. O'CONNOR:
+
+PCI related that SERGIO FREIJO "is the type to work with Poder Cubano". About a month ago FREIJO, who is employed at Aerodex, called PCI and inquired if the latter knew of a place in which a person could be hidden out. A few months previously FREIJO inquired if PCI could obtain explosives. PCI stated he replied in the negative to inquiries by FREIJO and that he did not ask FREIJO what was going on.
+
+PCI advised that FREIJO has known him since Cuba.
+During the revolutionary activity against President BATISTA,
+FREIJO was involved in a plot to kill a communist organizer
+named FABIO GRAUBART, and, at that time, FREIJO was hidden
+by a group which included the PCI.
+
+PCI had lived in Chicago prior to the hijacking
+of the freighter "Freight Forwarder" at Miami about
+September, 1967 by a group of Cubans headed by RAMIRO DE
+LA FE.
+
+SECRET
+
+HW 50953 DocId:32294534 Page 23

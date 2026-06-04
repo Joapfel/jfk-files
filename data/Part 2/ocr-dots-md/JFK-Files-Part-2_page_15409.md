@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_15409.png
+
+Convert to MarkdownA. H. Belmont
+
+S. B. Donahoe
+
+April 15, 1960
+
+CEYLONESE ACTIVITIES IN THE UNITED STATES
+IS - CEYLON
+
+On 2/16/60 a source of WFO furnished information which disclosed that the current Ceylonese Ambassador to the United States R.S.S. Gunewardene, while assigned as ambassador in Rome in 1954, did not conceal his sympathies to representatives of the countries in the "peace camp" and that he was often in attendance at cultural and social events of the "Peoples Democratic States." This information was disseminated to State Department. In addition, WFO was requested to analyze the situation in its office as it pertained to coverage of Ceylon. Its views and recommendations regarding a program for the development of sources and informants in the embassy of Ceylon were requested.
+
+WFO has advised that it has no coverage at Ceylonese establishments at the present time and that the entire Ceylonese non-diplomatic staff contains only four possibilities for developing such coverage. It recommended instituting investigation of these individuals for the purpose of exploiting their potential.
+
+In view of the information concerning the Ceylonese Ambassador's past sympathies coupled with the Bureau's responsibilities in security investigations regarding international trends or developments affecting the internal security of the U.S. and our responsibilities for keeping other interested agencies advised of current intelligence information, it is believed that we should consider the possibility of establishing appropriate coverage within the Ceylonese establishments in the U.S.
+
+Recommendation:
+
+That liaison discuss orally with an appropriate official in the Bureau of Security and Consular Affairs at Department of State, the possibility of the Bureau developing live sources within Ceylonese diplomatic establishments within the U.S. If it is approved, also secure clearance for very discreet investigation of potential sources which we will thereafter select.
+
+FILE: baj
+
+(6)
+
+105-85418
+
+① - 65-63113 (Intelligence Coverage of Diplomatic Representatives of Friendly Foreign Nations)
+
+NOT RECORDED
+
+141 AUG 3 1960
+
+NW 88613 DocId:32199554

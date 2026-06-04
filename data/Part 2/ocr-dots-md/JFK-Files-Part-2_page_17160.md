@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_17160.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+Chicago, Illinois
+
+November 4, 1969
+
+BLACK PANTHER PARTY (BPP)
+
+See appendix for characterization of BPP.
+
+On October 30, 1969, who has furnished reliable information in the past, advised that Bobby Rush, Deputy Minister of Defense, Fred Hampton, Deputy Chairman, both of the Illinois BPP, Cleveland Cook, BPP member of the Chicago Branch of the Illinois BPP, and other BPP members traveled to Normal, Illinois, during the evening hours of October 29, 1969, via a 1964 maroon, two-door Bonneville Pontiac, bearing unrecalled 1969 Illinois license.
+
+stated that Hampton spoke before a mixed group of approximately 300 students in the University Union Building at Illinois State University (ISU), Normal, Illinois, where an admission of 85 cents per person was charged. This speech lasted about 45 minutes. The group then went to Wesley Hall where Hampton spoke to about 75 persons, black and white, for about an hour. The group then went to a Fraternal House where Hampton talked with about 10 black persons.
+
+Hampton's speech was the same at all three functions. He spoke on the history and philosophy of the BPP, and denounced the current antiriot law trial in Chicago, Illinois. Hampton also announced plans for a demonstration at the Federal Building, Chicago, Illinois, for 12:00 noon, Saturday, November 1, 1969, and invited all to come.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

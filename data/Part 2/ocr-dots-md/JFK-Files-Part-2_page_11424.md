@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_11424.png
+
+Convert to MarkdownThe alphabetical card will be in the nature of a
+control card. Should the original or geographical
+card be withdrawn from the geographical section for
+apprehension purposes, an appropriate notation shall
+be made on the alphabetical card for the purpose of
+administrative handling.
+
+III. Special section
+
+Security index cards of individuals coming within the categories enumerated below shall be retained in the special section of the security index for the reasons stated. This section shall be broken down into[seven] subsections headed by tabs designating the categories. The special section is to be maintained in accordance with the following instructions:
+
+(A) Espionage subjects
+When apprehension of the subject will destroy chances of penetration and control of an operating espionage parallel or would destroy known chances of penetration and control of a "sleeper" parallel
+
+(B) U. S. Government employees
+In order that the identities of the subjects so employed can be readily determined, and specific consideration given to each such object before apprehension is ordered
+
+(C) Atomic energy program employees
+Because their apprehension must be cleared with the Atomic Energy Commission representatives to avoid interference with atomic energy work
+
+(D) Foreign government employees
+So that individual consideration may be given to each individual on the basis of the relations then existing between the U. S. Government and the country by which the subject is employed
+
+(E) United Nations Secretariat and other international organization employees
+Because of the fact that they are employees of such organizations, regardless of their national origin, and the State Department must be notified after such apprehensions take place. In this category would be citizens of the U. S. and those immigrants or stateless persons not holding diplomatic visas and who do not have protection of the International Organization Immunities Act.
+
+(F) Pro-Tito individuals
+Because such individuals, although pro-Marxist-Leninist, adhere to the Tito form of communism as opposed to the Stalin or Russian form of communism. In light of the current international situation, it is not possible to predict whether Tito would become aligned with Russia in the event of open hostilities or would align himself on the side of the U. S. and its allies. Therefore, Tito adherents in the security index must receive consideration for apprehension separate from others included in the index.
+
+Supporters of the Tito government are not considered to include members of any communist splinter groups who from time to time make statements in support of Tito, but should include only those individuals, particularly those of Yugoslav birth or descent, whose support of Tito is clear and
+
+10-15-62
+
+NW 88321 DocId:32989529 Page 758

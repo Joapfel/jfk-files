@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_17156.png
+
+Convert to MarkdownNMC
+BPP
+
+a defendant in the current anti-riot law trial being held in Chicago, Sidney Peck, an organizer and National Co-chairman of the NMC from Cleveland, Ohio, Sidney Lens, National Co-chairman of NMC and Terence Halliman, present West Coast organizer of the NMC were already present at Lens' home and did not want to let any BPP members into the meeting except Hewitt, however, the Panthers forced their way into the meeting with Hewitt's approval. Source stated that allegedly Hewitt, and other Chicago BPP leaders had decided prior to attending the meeting that all would attend or none would attend. Further, according to source, they decided that unless the NMC changed their philosophy to the Panther philosophy Hewitt would not accept the co-chairmanship.
+
+advised that upon entry of the BPP members the NMC group immediately started arguing among themselves and during the confusion the Panther helped themselves to the food which had upon their entry, been refused to them.
+
+stated that Lens and Peck told Hewitt that they had wanted Panther representation on this committee for over a year.
+
+Source stated that Hewitt indicated that the Panther philosophy was too much different than the philosophy of this group and in addition the Panthers feel that this group is responsible for Bobby Seale, National BPP Chairman, being a defendant in the current anti-riot law trial in Chicago. Hewitt, according to source, related that Seale was advised not to come to Chicago during the Democratic National Convention, August, 1968 by the National BPP Central Committee, however, he came anyway.
+
+Source stated that nothing was accomplished at this meeting as Hewitt finally told the group that the NMC revolution is based on Bourgeois Philosophy whereas the BPP is one based on the prolelariat, therefore, if the NMC really wants BPP representation, the NMC must change its philosophy. Source stated that due to the numerous disagreements among the NMC group and their mistreatment of the BPP members present, the BPP members walked out about 9:15 PM. Source stated that another meeting may possibly take place, however, no date was mentioned.

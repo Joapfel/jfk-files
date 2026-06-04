@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_9189.png
+
+Convert to MarkdownFED-302 (Rev. 11-27-70).
+
+# FEDERAL BUREAU OF INVESTIGATION
+
+Date of transcription _______________ 8/23/74
+
+ED BLUHM, Parking Attendant, Commodore Hotel,
+Park Avenue at 42nd Street, Manhattan, advised that if
+a customer requests that his car be parked at the
+Manhattan Parking and Realty Corp. Parking Lot, located
+at 213 East 43rd Street, which is the parking lot
+utilized by the Commodore Hotel, the license plate number
+is recorded before the vehicle is driven to the parking lot.
+
+BLUHM stated that a review of the entries made
+on August 5, 1974, for vehicles so parked did not reflect
+any vehicle with Kentucky license plates.
+
+Interviewed on 8/21/74 at New York, New York File # NY 185-229
+
+by SA VINCENT MILACCIO, JP.
+
+Date dictated 8/23/74
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

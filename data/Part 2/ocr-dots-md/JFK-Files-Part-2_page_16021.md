@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_16021.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DEMONSTRATIONS PROTESTING THE TRIALS OF INDIVIDUALS INDICTED FOR THEIR ACTIVITY DURING THE DEMOCRATIC NATIONAL CONVENTION (DNC) OF 1968 IN CHICAGO, ILLINOIS
+
+The fifth source reported earlier source heard one of the occupants of "The Conspiracy" office space state,"Looks like the dirty pigs got in here last night." The fifth source also reported personally observing from an adjacent room approximately 100 quart bottles filled with an unidentified liquid. The bottles were not capped did not have an odor and no wicks or other materials were noted associated with them. The bottles were sitting on the floor and on two eight foot tables in the room. Source stated based on such a brief observation, a speculation could not be made as to whether the bottles were incendiary devices.
+
+## Courtroom Activity
+
+The trial of "The Conspiracy 8" reconvened at 10:05 a.m. on October 3, 1969, in United States District Court, Federal Building, Chicago. No disturbances or unusual incidents occurred during trial proceedings.
+
+During the morning session the Defense conducted cross examination of a Chicago Police Sergeant Robert Murray regarding his testimony concerning observations in Lincoln Park during the 1968 DNC activities. To offset Sergeant Murray's testimony, Defense brought in to the court room a similar appearing white male, wearing a motorcycle helmet. in an effort to confuse Murray's testimony as to his identifying Jerry Rubin's, one of the trial defendants, activity in Lincoln Park. Defense raised objections to testimony of other police officer witnesses claiming their testimony in surveiling the trial defendants violates the defendant's constitutional rights of privacy. Court recessed on October 3, 1969 to reconvene at 10 a.m. on October 7, 1969.
+
+Court was not scheduled to reconvene on Monday October 6, 1969 because of a prior court appearance commitment of one of the defense attorneys William Kunstler, and because of a prior dental appointment. Of theense Attorney Leonard Weinglass.
+
+CONFIDENTIAL
+
+NW 88613 DocId:32199554
+Page 1518

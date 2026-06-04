@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_15213.png
+
+Convert to MarkdownMemorandum
+
+TO : W. C. Sullivan
+FROM : S. B. Donahoe
+SUBJECT: INTELLIGENCE (OVERAGE OF FRIENDLY FOREIGN COUNTRIES (SEMIANNUAL EVALUATION)
+
+DATE: June 22, 1961
+
+JUNE
+
+1 - W. C. Sullivan
+1 - Donahoe
+1 - Mossburg
+1 - Callahan
+1 - Cotter
+1 - Moore, G. O.
+
+ORIGIN AND PURPOSE
+
+Program inaugurated 1954 and expanded in 1955 and 1958 to provide for acquisition of positive intelligence and investigative information through three principal phases: (1) receipt of notification from other U.S. agencies of arrival in U.S. of intelligence personnel of friendly governments; (2) maintenance of technical surveillances of official establishments of foreign governments at State Department request; and (3) development of live sources within such establishments.
+
+SCOPE AND COST
+
+First phase principally involves review of file references and indexing procedures at Seat of Government at nominal cost. Under second phase, five technical surveillance are currently being maintained covering official establishments of Cuba, France and the United Arab Republic at a total estimated monthly cost of $11,586. (For details see Attachment A). Under third phase we presently have 28 actual and 35 potential sources in the establishments of 26 nations approved by State Department as target countries. (For details see Attachment B). Costs of this phase are principally those arising from field investigations of potential sources and agents' time in handling producing sources. Costs are considered fully justified since sound counter-intelligence coverage requires sources which can produce.
+
+TIE-IN WITH OTHER PROGRAMS
+
+This program supplements and is supplemented by a number of programs which result in intelligence coverage; such as, CODE WORLD Soviet Bloc Intelligence Activities in the U.S., and name check program covering holders of official and diplomatic visas.
+
+Enclosures - 2
+
+WRW:bcf is:
+
+EX-107
+
+17 JUN 27 1961
+
+NWW88613 DoD:32199554 Page:10

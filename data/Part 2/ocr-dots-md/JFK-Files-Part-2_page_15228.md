@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_15228.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+of these would report such approaches to their own governments and create tensions between us and friendly Foreign Ministers and Presidents. Some would, of course, do their best to appear co-operative, with the full knowledge of their own governments. Having in mind other means of high reliability, I am not convinced that a comprehensive program of penetration through foreign embassy personnel will yield intelligence of sufficient importance to be worth the high political risks. However, that is something we can look into after your preliminary investigations have proceeded further.
+
+I am asking my colleagues to follow closely the possibilities of fully exploiting the Special Security Committee recently established by the OAS as a result of a Punta del Este resolution. I personally hope that we can move without delay to a discreet but effective international cooperation against subversion and espionage, especially in the Caribbean area.
+
+SECRET
+
+NW 88613 DocId:32199554

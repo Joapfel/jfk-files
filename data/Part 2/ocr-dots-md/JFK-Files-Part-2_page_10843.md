@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_10843.png
+
+Convert to MarkdownNK 89-56
+
+Height 6
+Weight 190 pounds
+Eyes Brown
+Hair Brown
+Former Employment Professor,
+Rutgers University
+New Jersey
+Current Employment Translator - Spanish,
+French, Italian
+
+Set forth below is an FBI Identification Record for
+DALE CUNNINGHAM, FBI number 49 200 G:

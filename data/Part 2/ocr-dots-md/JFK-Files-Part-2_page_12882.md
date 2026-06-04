@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_12882.png
+
+Convert to MarkdownNY 100-149194
+
+MARTIN LUTHER KING movement could be organized in Louisiana, the State Senatorial District where CAULFIELD resides permanently (Lettsworth, Louisiana), CAULFIELD might be furnished as much as $1,000.00 per month to promote this movement. The funds are to come from the MARTIN LUTHER KING movement and the object is to get every eligible Negro to register to vote. CAULFIELD reportedly met MARTIN LUTHER KING, JR., while in Atlanta, and discussed with him the voter registration matter in Louisiana.
+
+On 4/27/62, a pretext telephone call was made to UN 6-2000, which is the NYC listing for the Committee to Defend MARTIN LUTHER KING and also the listing for the SCLC at 312 West 125th Street, NYC. The pretext used was that of a person interested in contributing money to the KING committee. The person answering the phone during the conversation identified himself as JACK O'DELL, and furnished the following information:
+
+His office is the Northern Branch of the SCLC.
+The Committee to Defend MARTIN LUTHER KING, at 312 West
+125th Street, was organized as an "ad hoc" committee to
+assist in the KING defense, when he was the subject of
+court action. When the reason for this committee's
+being in existence was removed, it was formally dissolved.
+The same personalities them formed the Committee to Aid
+the Southern Freedom Struggle, which is now operated at
+312 West 125th Street.
+
+O'DELL stated that it would make no difference
+as to whether a person contributing money makes out checks
+payable to the Committee to Defend MARTIN LUTHER KING, the
+SCLC or the Committee to Aid the Southern Freedom Struggle,
+because they are all one and the same.

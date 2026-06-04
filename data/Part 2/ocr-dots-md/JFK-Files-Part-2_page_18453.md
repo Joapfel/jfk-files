@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_18453.png
+
+Convert to Markdown## 2. Warrantless Electronic Surveillance and "Leaks"
+
+The Committee is examining several instances of the use of warrantless electronic surveillance and other investigative techniques in connection with "leaks" of classified information. These cases may involve specific allegations of abuse or other controversial matters where there is reason to believe improprieties may have occurred. These instances include:
+
+a. The investigation of alleged "leaks" by or to 17 Executive officials and newsmen between May 1969 and February 1971.
+
+b. The investigation of alleged "leaks" from a military staff member assigned to the National Security Council in 1971-72.
+
+c. The reported investigation of columnist Joseph Kraft in 1969.
+
+d. The reported investigation of the activities of Mrs. Anna Chennault and Vice Presidential candidate Spiro Agnew in 1968.
+
+e. Any other instances of warrantless electronic surveillance in connection with the investigation of "leaks" to the press.
+
+### Questions
+
+The Committee requests that the FBI and the Justice Department address the following specific questions:
+
+a. Through what procedures and by whom were each of these electronic surveillances authorized and approved, continued, and terminated?
+
+b. As to each person to whom information was disseminated, please state:
+
+(1) The nature of the information.
+
+(2) The basis for the dissemination.

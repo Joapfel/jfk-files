@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_17573.png
+
+Convert to Markdown7.) Attorney General's file.
+
+8.) Assistant Attorney General's file.
+
+9.) National Security file.
+
+10.) Internal Security file.
+
+11.) FBI file.
+
+In conclusion, Mr. SCHEWE stated that after reviewing all of the above data, he concluded that the pertinent document of interest to us is not at the FDR Library at Hyde Park, NY. SCHEWE added that if any such document is at the Library, it is misfiled and as there are approximately 21 million pages of manuscripts and documents at the Library, it would be impossible to locate same.
+
+It is to be noted that on the enclosed "buck slip" there are four penciled notations, i.e. 285-C, X20, X285 and X67. SCHEWE stated that these notations are part of the FDR Library cross-reference system. SCHEWE added that he checked these references and could locate nothing further regarding the matter of interest to us. SCHEWE stated that these references pertained to the enclosed "buck slip".

@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_15264.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : W. C. Sullivan
+FROM : W. R. Wannall
+SUBJECT: INTELLIGENCE COVERAGE OF NONCOMMUNIST COUNTRIES
+
+DATE: 2-5-64
+
+1 - Mr. Belmont
+1 - Mr. Sullivan
+1 - Mr. Wannall
+1 - Liaison
+1 - Mr. G. Moore
+
+Since Dominican Republic continues to be trouble-spot area primarily due to instability of Government and known efforts of extremists on the "Left" and "Right" to bring about a coup, State Department is being requested to grant clearance for us to initiate a program to develop sources and informants in Dominican diplomatic establishments in the U. S.
+
+For a number of years we have had a program to develop live sources at official establishments of various key noncommunist countries which have been designated as "target" countries because of various factors, including evidence of Soviet or communist infiltration, importance in cold war and/or other international developments which make a particular country of special significance. In the past Dominican Republic, although meeting above criteria which would qualify it as a "target" country, has not been so designated as our coverage was considered quite adequate.
+
+However, now that the Dominican Government is most unstable following the 9-25-63 overthrow of Juan Bosch, there has been a steady change in diplomatic personnel assigned to U. S. which makes it feasible for us to take additional steps to develop new sources in diplomatic establishments. In the past we have handled development of such potential sources in Dominican establishments by securing State Department clearance on an individual basis.
+
+In order to streamline our procedures in this regard, it is felt we should now take necessary steps to make Dominican Republic a "target" country by securing appropriate State Department clearance for such source development.
+
+ACTION:
+
+Liaison should obtain State clearance from appropriate State Department representative for FBI to conduct discreet investigations of potential security informants in Dominican diplomatic establishments in U.S. Liaison should advise State no interviews will be conducted with any potential source without first obtaining State Department clearance.
+
+65-63113
+1 - 105-97459-211 (Nationality Group Coverage - Dominican Republic)
+
+GCM:lab
+(7)
+
+FEB 25 1964
+
+NW 88613 Decd: 32199554
+1964
+Ayele ewe
+65-63113-
+
+Page761

@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_19008.png
+
+Convert to MarkdownSAMUEL ADASON JAFFE
+
+Possible Current KGB Approach to Jaffe by
+Boris Sedov
+
+On March 20, 1969, Jaffe advised that yesterday (March 19, 1969) he received a call from Boris N. Sedov, Soviet Embassy Press Department, whom Jaffe has seen a few times recently. Jaffe stated: "Sedov said 'I was thumbing through our photograph files and found a picture of you taken in Red Square. You were interviewing a Russian.'" Jaffe said Sedov indicated he thought Jaffe might want the photograph and an offer was made that they get together for lunch soon. In response to inquiry, Jaffe stated Sedov's comments "sounded funny to me."
+
+(Sedov has been reported to have been a KGB officer.)

@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_13019.png
+
+Convert to MarkdownDOCUMENT REQUEST
+
+1. The following documents and materials relating to Gary Thomas Rowe, Jr., whether in the custody or possession of the FBI Birmingham, Alabama office or elsewhere:
+
+a) All documents and materials reflecting contacts and reports of contacts (and the substance thereof) between Gary Thomas Rowe, Jr. and FBI Special Agents from January 1, 1960 to April 1, 1965.
+
+b) All documents and materials reflecting information supplied by Gary Thomas Rowe, Jr. to FBI Special Agents (and Bureau Field or Headquarters summaries thereof) from January 1, 1960 to April 1, 1965.
+
+c) All documents and materials relating to any guidance, directions, instructions, or suggestions given to Gary Thomas Rowe, Jr. by FBI Special Agents from January 1, 1960 to April 1, 1965.
+
+d) All documents and materials relating to Bureau and Field Office supervision of the handling of Gary Thomas Rowe, Jr. by FBI Special Agents from January 1, 1960 to April 1, 1965.
+
+e) All documents and materials relating to payments of money to, or other financial arrangements between, Gary Thomas Rowe, Jr., the FBI, and the Justice Department - from March 25, 1965 to December 31, 1966.

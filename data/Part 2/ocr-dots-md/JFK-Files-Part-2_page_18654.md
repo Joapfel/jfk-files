@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_18654.png
+
+Convert to MarkdownThe Attorney General
+
+In response to the second request in your letter, my answer is restricted to communications between the White House and the FBI as it would not be appropriate for me to attempt to respond for other agencies under your jurisdiction.
+
+There are two major areas in which the Attorney General does not see communications between the White House and the FBI. They are the results of name checks and the results of full field investigations we do for the White House. The White House requests approximately 13,000 name checks per year concerning persons who visit the White House complex who could pose a physical threat or possible embarrassment to the President directly or indirectly. Approximately 1,000 full field background investigations on Presidential appointees, members of the White House staff, and other persons having regular access to the White House are requested annually.
+
+I direct your attention to Section 0.15 (b) (7), Title 28, Code of Federal Regulations, which states that the Deputy Attorney General shall "Coordinate Departmental liaison with the White House staff and the Executive Office of the President." When this order was promulgated there were discussions between the Department and Bureau officials as to its implementation and its impact on existing direct liaison between the FBI and the White House. My letter to the Attorney General, May 2, 1974, captioned "Revision of the Department of Justice Organization Regulations (28 CFR Part 0)," set forth the FBI's need for a Special Agent-Liaison officer to handle day to day operational liaison with the White House. His activities were outlined and it was requested that he continue to handle operational problems on a daily basis with specific individuals because of the sensitivity of the matters involved, both of a personal security and intelligence nature.
+
+By memorandum dated May 16, 1974, captioned "Direct Operational Liaison with the White House," the Attorney General authorized the continuance of FBI direct operational liaison with the White House.

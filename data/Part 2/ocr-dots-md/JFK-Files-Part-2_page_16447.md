@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_16447.png
+
+Convert to MarkdownB. External: to gather intelligence material in sectional area.
+
+C. Political: (Sub-Section Leader) Teaching and maintaining a high level of political ideology of party at section of each.
+
+D. Medical: Primary job, aiding injured members of section. Secondary job, aiding the injured of the mass of the people.
+
+F. Communications: Handling communications between sections and main body and within section, and (in grave times) between people and section.
+
+G. Supply: Collection and distribution of supplies.
+
+## Other Suggestions
+
+1. Comrade Court, to handle minor violations (major violations are handled by main body), Democratic Court.
+
+2. Sectional Citations, to be given to sections who are outstanding in relating to the people, sell papers, etc. This will build sectional historical pride and increase morale.
+
+3. Sectional title names. Example: Night Fighters, Big Black Five, etc. This will also help build morale.

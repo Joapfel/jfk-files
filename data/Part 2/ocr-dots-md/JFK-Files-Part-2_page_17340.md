@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_17340.png
+
+Convert to MarkdownRECORD OF INFORMATION FURNISHED OTHER AGENCIES
+
+Orally 1/15/69 By Telephone Written Communication
+date date date
+
+Information concerning:
+Freelance Hampton
+
+Information furnished from File, Serial, and Page Number:
+
+Information furnished was obtained:
+
+☐ during course of Bureau investigation
+
+☑ from informants
+
+☐ from complainants or other sources
+
+Information furnished to:
+Copt W.Hammond - in agreement P.D.
+
+Number of items disseminated: 1
+
+Remarks:
+
+Apt. address mhsr Hampton,
+a Chicago P. A fugitive, is being
+staging in Chicago furnished.
+Copt, Jannula will not be
+E. C.U., Chicago
+Special Agent
+
+NW 88613 DocId:32199554
+Page 2837

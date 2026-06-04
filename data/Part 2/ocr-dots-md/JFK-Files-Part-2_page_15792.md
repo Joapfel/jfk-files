@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_15792.png
+
+Convert to Markdownat 1222 West 109th Street and is manned by SAMUEL LEROY LATSON. This office operates by a pay telephone located near there and does not have authority to contact the National Office of the BPP. This location is merely used for the BPP newspaper distribution and to keep the name of the BPP known on Chicago's South side.
+
+1/31/70)
+
+## Joliet, Illinois Branch
+
+Source advised the BPP - Joliet had confined activity to selling newspapers. Source stated the headquarters, as previously reported at 528 South Water Street, is not being used and that JAMES DAVID STUBBS has left the area.
+
+11/12/69)
+
+On December 19, 1969 and January 19, 1970, Sergeant HOWARD MARTINSON, Joliet, Illinois, Police Department (PD) advised the BPP headquarters had been closed and there had been no activity in the Joliet area by the BPP.
+
+# II. IDENTITY OF LEADERS AND MEMBERSHIP INFORMATION
+
+## A. Officers of Chicago Chapter, BPP
+
+As of January 31, 1970, the following individuals listed in alphabetical order were reported by Sources as officers of the Central Staff of the Illinois Chapter BPP. Sources noted all members were purged in November, 1969, with the exception of the then Deputy Chairman FRED HAMPTON and BOBBY LEE RUSH, present Deputy Minister of Defense. Sources stated all members were reinstated to Panther status in December, 1969; however, the only officers left are as follows:
+
+BROOKS, BILLY LAMAR, born July 18, 1948. BROOKS commonly known as "CHE" and is the Deputy Minister of Education, Illinois BPP.

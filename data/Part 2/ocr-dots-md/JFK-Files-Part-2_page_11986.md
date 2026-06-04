@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_11986.png
+
+Convert to Markdown8. Instruct each interested Bureau office which has made further dissemination of such information to follow the instructions set forth above.
+
+9. Also set up a control file regarding this corrective action, and upon completion of same submit to the Bureau a final letter under the informant's caption identifying each case by title, character, Bureau file, where known, and date of communication.
+
+10. This letter will be used to check all pertinent Bureau files to see that necessary corrective action has been taken in each instance.
+
+11. If necessary, other field offices which have received information from the informant should also be requested to submit summary letters showing what corrections have been made.
+
+12. It is imperative that all information from the informant be correctly labeled and great care must be taken to see that this is done.
+
+13. Occasionally, an ex-informant through his speech, writings, or actions raises a doubt as to his reliability subsequent to the time he was an informant. It is not necessary to go back and change the evaluation of the information attributed to that individual in the absence of a definite indication that the informant furnished unreliable information to the Bureau while he was an informant.
+
+14. Dissemination of information from sources of questionable reliability and known unreliability should be made in accordance with part II, section 5, of the Manual of Rules and Regulations.
+
+## [T.] CONFIDENTIAL SOURCES
+
+### 1. Definition
+
+See page 3 of this section.
+
+### 2. Assignment of symbols
+
+a. A symbol number may be assigned if an unusual security problem exists, or if typing would be saved.
+
+b. Advise Bureau by letter giving name, address, business affiliation, symbol number, reason for assigning a symbol number, and a brief statement concerning type of information furnished.
+
+c. The abbreviation "CS" may be used in intra-Bureau communications for confidential source; e.g., "Richard Roe, CS." Communications relating to espionage and foreign nationality matters should in addition have a character indicating the country involved; e.g., IS - R for Russia.
+
+d. When a permanent symbol has been assigned to a confidential source, the abbreviation "CS" is to appear before the symbol number; e.g., CS NY-000-S.
+
+e. Numbers assigned to confidential sources are to be taken from the series of numbers used for your security, racial, and criminal informants.
+
+### 3. Index
+
+a. Index cards on form FD-348 like those prepared for informants must be made up and filed as an adjunct to the criminal informant index, racial informant index, or the security informant index, depending on the type of information furnished.
+
+b. The symbol index is handled similarly to the symbol index on informants.
+
+c. Duplicate confidential source cards may be maintained with the criminal informant index, racial informant index, and the security informant index if the source furnishes information of value in these types of investigations.
+
+### 4. Files
+
+When active investigation is initiated relative to an individual who has potential as a security confidential source, a 134 classification file should be opened and maintained in a pending status until efforts to develop the individual are discontinued. Files may be opened on confidential sources in criminal matters in a manner identical with that for handling criminal informant files in the discretion of the SAC.
+
+5-13-69
+
+NWW 88321 DocId:32989529 Page 1320

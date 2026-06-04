@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_9531.png
+
+Convert to MarkdownDE-157-3075
+
+The Association of Black Students, Oakland University, Rochester, Michigan, sponsored a rally in support of the Detroit 16 on November 16, 1970, featuring HUEY P. NEWTON.
+
+HUEY P. NEWTON is the Minister of Defense, BPP.
+
+The main theme of the speech given by HUEY P. NEWTON on November 16, 1970, at Oakland University, was that all poor blacks and poor whites, the working classes, the oppressed of the world, must all join forces as a united body against the "ruling circle" in the United States. NEWTON repeatedly referred to this "ruling circle" throughout his entire speech and apparently interpreted this "ruling circle" as those leaders of Government and industry, the imperialists or those who are rich in this society. NEWTON wanted equality for everyone with no one being superior to his fellow man. He indicated the Negro is a class brother with the poor whites and they must join in their effort to overcome the "ruling circle."
+
+NEWTON stated, "The Black Panther Party is the vanguard of the revolution on a world-wide level because the world is really one community and we've taken Marxist-Leninist to a greater level and, therefore, we are the greatest Marxist-Leninists that ever lived, and we say this not to be arrogant because some times I wish that someone else would carry that banner because the way is narrow and the burden is heavy."
+
+In conclusion, the speech by NEWTON was a rambling, many times incoherent Marxist-Leninist influenced, low-key revolutionary type speech which attempted to show a connection between the BPP and the League of Revolutionary Black Workers (LRBW), as well as a unity between the BPP and all oppressed persons of the world.
+
+A characterization of the LRBW is contained in the appendix pages attached hereto.
+
+His speech called for the release of the Detroit 16, freedom for ANGELA DAVIS, BOBBY SEALE, and all the oppressed brothers and for the ultimate overthrow of the pigs.

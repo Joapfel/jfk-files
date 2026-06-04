@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_9252.png
+
+Convert to MarkdownDE 157-3075
+
+On December 20, 1972, LONNIE DARDEN, BPP-NF
+leader at Detroit, was interviewed under suitable pretext
+by a Special Agent of the FBI and DARDEN made the following
+statement regarding ELDRIDGE CLEAVER:
+
+"Eldridge Cleaver will not be allowed back in the BPP. We're (BPP-NF) not saying that there is a peaceful co-existence that will exist between the BPP and Eldridge Cleaver. We're saying that the court systems are responsible for the execution of poor and oppressed people and we in turn are exposing the court system in this particular racist attitude against poor and oppressed people and not trying to build a peaceful co-existence with a particular element that had defected from the Party."
+
+VII. BPP FUNDS
+
+The following is a summary of the financial
+situation of the BPP provided by DE T-1 and DE T-2
+from November, 1972 to April, 1973. Income was from
+such sources as the sale of BPP newspapers, donations,
+and contributions from Party members. Expenses were
+for such items as food, lodging, transportation, and
+telephone.
+
+| Month | Income | Expenses |
+|---|---|---|
+| November, 1972 | $1,400 | $2,080 |
+| December, 1972 | 1,200 | 2,170 |
+| January, 1973 | 437 | 1,819 |
+| February, 1973 | 410 | 1,734 |
+| March, 1973 | 600 | 1,850 |
+| April, 1973 | 575 | 1,800 |
+
+Above sources noted that Party assets are considerably higher than indicated above due to the fact that Party members turn over large amounts of money to the Party from their welfare checks.
+
+28
+
+28

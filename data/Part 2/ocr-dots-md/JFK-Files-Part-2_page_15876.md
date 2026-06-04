@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_15876.png
+
+Convert to MarkdownJeffries, Alvin
+
+Arrested: 1/26/69
+Charge: Disorderly Conduct
+Disposition: Leave to file denied
+
+Arrested: 5/18/69
+Charge: Loitering
+Disposition: Leave to file denied
+
+Arrested: 5/20/69
+Charge: Disorderly Conduct
+Disposition: Discharged
+
+Arrested: 7/17/69
+Charge: Disorderly Conduct
+Disposition: $20 fine and no cost
+
+Junior, Nathaniel Walter
+
+Arrested: 2/9/69
+Charge: Defrauding an Innkeeper
+Disposition: Plead guilty, paid $25 fine and $15 cost
+
+Kent, Willie T.
+
+Arrested: 12/9/69
+Charge: Auto Theft
+Disposition: Dropped
+
+Kolheim, Joseph Tyrone
+
+Arrested: 11/21/68
+Charge: Disorderly Conduct, Resisting Arrest, Battery
+Disposition: Fined $100
+
+Arrested: 12/18/68
+Charge: Unlawful Use of Weapons
+Disposition: Dismissed
+
+Arrested: 4/23/69
+Charge: Criminal Damage to Property
+Disposition: Dismissed, $15 court cost
+
+Maxwell, Terry S.
+
+Arrested: 4/12/69
+Charge: Disorderly Conduct
+Disposition: Released to parents

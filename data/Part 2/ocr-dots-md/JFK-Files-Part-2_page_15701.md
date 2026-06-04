@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_15701.png
+
+Convert to Markdown# MURDERERS!
+
+STATE' EDWA HANR
+
+JOHN CISZEWSKI
+
+EDWARD CARMODY
+
+On Thursday morning, December 4, 1969, Hammerhead Hanrahan's Maniac squad murdered in cold blood, the Chairman of the Illinois Chapter of the Black Panther Party... in cold blood, and as all pigs do, they didn't give him a chance. They knew that Fred was one of the baddest brothers in the world and one of the baddest M.F.'s off the block. He came down from the mountain top and clearly showed that he wanted to be with the people. (The people he loved and fought for every
+
+CHAIRMAN FRED HAMPTON
+
+THE DEPUTY CHAIRMAN STILL LIVES!!!
+REVOLUTION IN OUR LIFE TIME!!!
+PIECE UP!!!
+
+NW 88613 DocId:32199554
+Page 1198

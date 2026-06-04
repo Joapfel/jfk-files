@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_18469.png
+
+Convert to Markdown# G. "Notional" Organizations
+
+The Committee is examining the FBI's alleged creation of the support for "notional" organizations for intelligence or counterintelligence purposes. Although it may rely upon informants and other clandestine operatives, this alleged practice is sufficiently novel to require separate attention.
+
+## Questions
+
+The Committee requests that the FBI and the Justice Department address the following specific questions:
+
+1. What groups, organizations, movements, or other associations has the FBI caused directly or indirectly to be formed or created for intelligence or counterintelligence purposes? Please provide a complete list from January 1, 1960, to the present.
+
+2. What groups, organizations, movements, or other associations has the FBI supported financially or materially? Please provide a complete list from January 1, 1960, to the present.
+
+3. In which cases has the FBI supported or created such organizations in coordination or cooperation with other agencies?
+
+4. How have the presence of such "notional" organizations affected the public's perception of the movements of which they form a part?
+
+5. How have any FBI programs for the creation and support of such groups been coordinated with any similar programs undertaken by the CIA or other U.S. intelligence agencies?
+
+Responsible staff: Senior staff
+Task Force leader
+Mike Epstein

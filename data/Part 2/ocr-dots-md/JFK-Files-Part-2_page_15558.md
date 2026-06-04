@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_15558.png
+
+Convert to MarkdownBULL
+ILLINOIS CHAPTER
+BLACK PANTHER PARTY
+
+VOL.1
+
+NO. 4
+
+STATEMENT BY
+CHAIRMAN BOBBY SEALE
+TO JUDGE JULIUS J. HOFFMANN
+
+If I am continuously denied this constitutional right of legal defense counsel of my choice who is effective by the Judge of this court, then I can only see Judge Hoffman as a blatant recuse of this U.S. Court with gross prejudicial error toward all defendants and myself in particular.
+
+POWER TO THE PEOPLE!

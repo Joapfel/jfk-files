@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_18400.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>5-113a (Rev. 3-21-73)</td>
+   </tr>
+  </table>
+
+CLASSIFIED BY SP-2 AL-01/16
+DECLASSIFIED ON: 2-9
+
+SECRET
+Intelligence Division
+
+INFORMATIVE NOTE
+
+Date 8/4/75
+
+In connection with our responses to the Senate Select Committee (SSC), the White House has instructed that the Intelligence Community prepare a briefing for Senators Church and Tower of the SSC regarding warrantless electronic surveillances and surreptitious entries. During meetings of the Intelligence Community, it was agreed that NSA, FBI and CIA would give the briefings. No date has been scheduled for the briefings, although it is anticipated representatives of the White House will monitor a preview of the actual briefing to be given Senators Church and Tower.
+
+During meetings of the Intelligence Community representatives, to discuss the contents of such a briefing, it was agreed among representatives of NSA, CIA and FBI that efforts would be made to avoid identifying specific foreign targets of surreptitious entries or warrantless electronic surveillances.
+
+Attached is a memorandum from CIA advising that CIA has already disseminated to the SSC information concerning sensitive technical operations against certain Embassies and diplomatic establishments in the U.S. (S)
+
+ACTION: For information and record purposes.
+
+WOC:bcw
+
+SECRET
+Classified by AL-02834
+Exempt from GDS, Category 1+
+Date of Declassification Indefinite

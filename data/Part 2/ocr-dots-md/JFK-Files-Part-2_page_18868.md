@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_18868.png
+
+Convert to MarkdownSAC, New York (105-8180)
+
+June 29, 1954
+
+RECORDED - 90 Director, FBI (105-28333) -]
+
+~~VY-103~~
+
+SAM A. JAFFE
+INTERNAL SECURITY - R
+
+Reurlet 6-11-54.
+
+Budles contain numerous references to name of Sam Jaffe. These references are being reviewed and any pertinent information identifiable with him will be furnished to you. New York should also thoroughly review its files and include any pertinent information in report form suitable for dissemination.
+
+JJT:rmc
+
+Tolson
+Ladd
+Nichols
+Belmont
+Clegg
+Glavin
+Harbo
+Rosen
+Tracy
+Gearty
+Mohr
+Wintercrowd
+Tele. Room -
+Holloman
+
+<table><tbody><tr><td>MAILED 3</td></tr><tr><td>JUL 29 1954</td></tr><tr><td>JUN 2 9 1954</td></tr><tr><td>COMM-FBI</td></tr></tbody></table>
+
+19 JUL 29 1954
+
+NWA 88326 DocId:32989704 Page 162
+
+UJ

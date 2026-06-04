@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_13437.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+RE: SENSTUDY 75
+62-116395
+
+It is noted that we previously furnished to the Select Committee with the AG's approval one copy each of Sections 87 and 122 of the Manual of Instructions. Section 87 is concerned with investigations of subversive organizations and individuals. Section 122 addresses extremist matters and civil unrest. In his discussion of these two Sections it was readily apparent Mr. Gitenstein had conducted a thorough review. In this regard, he noted a difference in the investigative procedure outlined in these two Sections of the Manual. Mr. Gitenstein was advised that the Intelligence Division had just completed a Manual revision combining these two Sections into one and had submitted it to the Director for his approval. Mr. Gitenstein commented this was an excellent idea to combine these two Sections into one and expressed the hope that the revised Section could be made available to the Committee for its review in anticipation of the forthcoming Committee hearings.
+
+At the conclusion of the meeting, Elliff asked whether the FBI would be willing to meet with the Staff to discuss such sensitive issues as surreptitious entry, the opening of mail, and incommunicado interviews. Elliff was advised that the Bureau was aware of certain allegations that have appeared in the press and felt that any interviews in sensitive areas should be restricted to the Senators on the Committee. Elliff interposed no objection to this suggestion.
+
+The thrust of the meeting gave Bureau officials present the impression that the task force was primarily concerned with identifying what areas of the Bureau's investigative responsibilities needed to be better defined through new legislation. In fact, Elliff solicited the observations of those present as to what the Bureau's needs were in the way of new legislation to permit the Bureau to carry out its internal security responsibilities effectively. He recognized certain limitations involving records of educational institutions, banking institutions, telephone companies and credit establishments currently restrict the Bureau and suggest that some legislation with Congressional oversight should be written to assist the FBI in carrying out its mission.

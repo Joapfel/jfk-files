@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_16190.png
+
+Convert to MarkdownSERGEANT DANIEL R. GROTH,
+ET AL
+CHICAGO POLICE OFFICERS
+FRED A. HAMPTON (DECEASED)
+ET AL - VICTIMS
+SUMMARY PUNISHMENT - CIVIL RIGHTS
+
+Peter Dedich, Special Agent, Alcohol, Tobacco, and Firearms, 36 East Wacker Drive, Chicago, Illinois, advised that their investigation concerning the firearms recovered by the States Attorney's Office at 2337 West Monroe Street, reflected that their department succeeded in tracing down only four of the 19 guns recovered. The four traceable firearms are as follows:
+
+1. 32 caliber S and W model 30-1, serial number 730073, was sold on October 29, 1963 to Brown Supply Company, 416 South Adams Street, Peoria, Illinois. On September 19, 1964, Brown Supply Company sold the firearm to H. Mayo, 501 Hamilton Boulevard, Peoria, Illinois. Mayo owns and operates a restaurant, described as a white male, blond hair, blue eyes, 5' 9", 150 pounds.
+
+2. Colt 45 caliber auto pistol, model 1927, serial number 7111. This weapon was sold by Casavanova's, Milwaukee, Wisconsin, to M and M Sporting Goods Store, 3823 North Richards, Milwaukee, Wisconsin. The firearms was sold to M and M Sporting Goods June 9, 1969, and the stores books and records for the firearms report on their inventory, but have no record of the sale and it is their belief that the gun has been stolen.
+
+3. Carbine 30 caliber M1, serial number 16573, was purchased on August 21, 1969, by Darkin M. Gentry, head of the Black Panther Party, Milwaukee, Wisconsin.

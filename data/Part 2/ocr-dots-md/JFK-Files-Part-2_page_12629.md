@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_12629.png
+
+Convert to MarkdownH. REPORTS ON INDIVIDUALS
+
+1. General
+
+Cases of all security index subjects must be reopened for preparation of reports following schedule below. Critically analyze each case in light of security index criteria each time it is reopened and brought up to date.
+
+2. Schedule of submission of reports
+   a. Priority I - annually
+   b. Priority II - annually
+   c. Priority III - initial report must be summary. Subsequent information may be furnished by LHM. Each office is responsible to insure all pertinent developments are furnished Bureau.
+
+3. Origin
+Office covering territory in which subject's subversive activities occur
+
+4. Classification
+a. 100 - for individuals affiliated with basic revolutionary and front organizations of Marxist ideology
+b. 105 - for member of Puerto Rican nationalist groups or others having foreign nationalistic tendencies
+c. 157 - Nation of Islam and other black nationalist subjects
+
+5. Title
+Only one subject shall be carried in title of each report. Separate reports must be submitted for each subject regardless of relationship; i.e., husband and wife, father and son, etc.
+
+6. Character
+(a. The designation "Security Matter" (SM where appropriate) is to be set out in all instances. Use organizational affiliation where the organization of the subject is a current or continuing investigation or where a Bureau-approved thumbnail sketch exists. Examples:
+   Security Matter - C (Communist)
+   Security Matter - SWP
+   (Socialist Workers Party)
+   Security Matter - SMC
+   (Student Mobilization Committee)
+
+b. Every effort is to be made to use a meaningful organizational affiliation or nationalistic tendency designation; however, where this cannot be done, the following designations are to be adhered to in submitting to the Bureau:
+
+(1) Security Matter - Subversive (Where activity of subject is primarily protest in nature and is related to demonstrations and other efforts to disrupt or destroy Government operations in line with espousal or support of a philosophy which advocates overthrow of the Government by any means possible, including force and violence, and/or a demonstrated propensity for violence to achieve the same objective or to deny others their rights under the Constitution.)
+
+(2) Security Matter - New Left (Where activity of subject is primarily violence, extremist, student and/or communal-existence oriented and relates to demonstrations and other efforts to disrupt or destroy Government operations in line with espousal or support of a philosophy which advocates overthrow of the Government by any means possible, including force and violence, and/or a demonstrated propensity for violence to achieve the same objective or to deny others their rights under the Constitution.)]
+
+NW 88321 DocId:32989529 Page 1963
+
+.9-13-71

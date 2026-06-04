@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_11499.png
+
+Convert to Markdown(i) Subjects missing or out of country may be recommended for the security index provided instructions set forth in 87D 6b (3) and (4) are followed. Forms FD-122 submitted on subjects should include data required in 87D 7b (6) (b) IV below.
+
+(j) [When form FD-122 is submitted recommending a security index card be prepared on a subject who is of Chinese extraction, the words "Other - Chinese" must be included in the space on the form calling for a statement as to the subject's race. When form FD-122 is submitted recommending that a security index card be prepared on a person who is not of Chinese extraction but who has shown definite sympathies with Communist China, the form should include under "Miscellaneous" a statement to the effect "sympathetic to Communist China."]
+
+(k) Upon receipt of form FD-122 at Bureau, the case of the subject will be reviewed and if recommendation of field is concurred in, security index cards will be prepared. Duplicate copy of form will be returned to office of origin stamped "Security Index card approved and prepared, three copies attached. Please description and photograph on reverse side of Geographic card. Cards should be filed in your Security Index." The three cards shall be filed in security index as outlined below. The returned copy of FD-122 shall be placed in subject's main investigative case file. Offices with a geographical breakdown by residence and employment will receive an extra card.
+
+(1) When security index cards are received from Bureau, data thereon must be checked for accuracy. Cards will be complete except for field office file number, description, and photograph. Office file number should be placed on face of all cards. Descriptions and photographs are maintained on separate cards of similar size to security index cards which are stapled to back of two of the cards. One card will then be filed in the geographical section of office security index (except special section cards and unavailable section cards - see 87D 7b (6) (c) III and IV below), and one card shall be filed in the duplicate security index maintained away from headquarters city. The other card is filed in alphabetical section of security index. No information other than office file number shall be permanently added, deleted, or changed on face of security index card without complying with instructions set forth below under 87D 7b (8).
+
+(5) Content and appearance of security index card
+
+(a) Data to appear on face of card
+
+When complete, face of security index card should contain the following information. If any of items enumerated in I through XIV are missing at time the security index card is made, the case should be continued as pending and investigation conducted to obtain the necessary information. Set forth under each item below are possible categories in which subject may be classified, together with code letters which should be placed in appropriate space on form FD-122 when sending form to Bureau recommending security index card be prepared. Code letters should subsequently appear on security index cards received from Bureau.
+
+I. Name and aliases
+
+The full and correct name and aliases of the subject must be contained on the security index card. When the true name of a subject or any aliases are changed, added, deleted, or are found to be incorrect, form FD-122 must be submitted reflecting the correct data to be placed on the security index card.

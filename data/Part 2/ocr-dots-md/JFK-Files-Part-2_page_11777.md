@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_11777.png
+
+Convert to MarkdownRE: REVISED PAGES
+
+There are enumerated below pages of the Manual of Rules and Regulations, enclosed herewith, which have been revised. Revisions appearing on these pages are identified by brackets. The date appearing at the bottom of the pages indicates the date of revision. The new pages should be inserted immediately in the appropriate section and the old corresponding pages should be removed and turned over to the Special Agent in Charge who has the responsibility for the appropriate destruction of these old pages.
+
+This cover letter should be retained until the next consecutively numbered letter is received. This will enable the field office immediately to detect the failure to receive the latest manual revisions.
+
+**Part I**
+
+Table of Contents - Pages 5 and 6
+
+Section 4 - Page 47-50
+Pages 59 and 60
+
+Section 12 - Pages 1 and 1a
+Pages 5 and 6
+
+Section 5 - Page 13
+
+Section 14 - Pages 13 and 14
+
+Section 6 - Pages 5 and 5a
+Page 7-8
+Pages 9 and 10
+
+Section 16 - Pages 3 and 3a
+Page 3b
+
+Section 7 - Pages 5 and 6
+
+Section 17 - Pages 1 and 2
+Pages 3 and 4
+
+Section 8 - Pages 27 and 28
+Pages 29 and 30
+
+Section 9 - Pages 21 and 22
+Page 25
+
+**Part II**
+
+Section 3 - Pages 1 and 1a
+Pages 9 add 10
+Pages 15 and 15a
+
+Index - Page 43
+
+Clarence M. Kelley
+Director
+
+Enclosures (23)

@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_16500.png
+
+Convert to Markdown# WHAT TO DO
+
+It should be clear that the police institute will not in any way benefit the black and Latin communities, the working people or the youth of this country: will not in any way help to solve the serious problems we face—racial inequality, imperialist wars, poverty. In fact, by emphasizing a policy of overwhelming police power and continued repression it may aggravate the problems.
+
+We must expose and educate people to understand the role of this institute and the pigs. We must demand that this institute be stopped.
+
+While we demand that the police institute get off the Chicago Circle campus, it is not because we see the University as some sort of “ivory tower” which must be protected from outside influences. The university—with its police institutes, war research, military and corporate recruiting, ROTC—is as much a part of the racist power structure as any other institution. We want the pig institute off the campus as a first step to stopping it permanently. If it is moved off the campus and into the community we will organize to stop it there.
+Our program should be based on the demand: STOP THE PIG INSTITUTE.
+
+Power to the People
+Black Power to Black People
+Latin Power to Latin People
+
+for more information, contact Chicago Regional SDS, 641-0932
+
+NW 88613 DocId:32199554
+Page 1997

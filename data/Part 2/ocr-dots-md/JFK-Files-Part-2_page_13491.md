@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_13491.png
+
+Convert to MarkdownHonorable Charles E. Wiggins
+
+NOTE:
+
+The resolution of the State Bar of California (SBC) referred to above did not identify the specific incident in which they were interested so Congressman Wiggins' letter was acknowledged and we indicated additional details would follow. On 4/25/75 San Francisco advised the basis for the SBC resolution was articles contained in the 2/7/75 issues of the San Francisco Examiner and Oakland Tribune. In these articles Muse was not mentioned by name but the details corresponded with his case. On 4/28/75 Supervisor Ernest Wall, New Orleans, advised Muse was identified by name in articles concerning this incident in the 2/2/75 issue of the New Orleans Times Picayune and the 2/25/75 issue of the New Orleans States Item. Since Muse revealed his relationship with the FBI and has been publicly identified by name and appears to be no privacy issue or need to protect the confidentiality of our files, Congressman Wiggins should be advised of the complete details in this matter. As the SBC urged issues such as this be considered by the select committees of the U.S. Senate and House of Representatives, a copy of this communication is being furnished for the information of the Legal Analysis Section and Project Senstudy 75 in Division 5.

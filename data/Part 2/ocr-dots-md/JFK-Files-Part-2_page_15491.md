@@ -1,0 +1,71 @@
+# JFK-Files-Part-2_page_15491.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : W. C. Sullivan
+
+FROM : W. R. Wannall
+
+SUBJECT : INTELLIGENCE COVERAGE OF NONCOMMUNIST COUNTRIES
+
+DATE: July 21, 1964
+
+1 - Belmont
+1 - Sullivan
+1 - Liaison (Bartlett)
+1 - Wannall
+1 - Meier
+
+In view of recent Japanese developments, State Department is being requested for clearance for our initiation of program to develop live sources in Japanese official establishments.
+
+For a number of years, we have had a program to develop live sources in official establishments of noncommunist countries, designated as "target" countries, because of presence of certain significant factors. Japan has not previously been designated as a "target" country.
+
+State Department "Secret" Research Memorandum RFE-36, dated 6-17-64 on "Communist China's Policy for Establishing Diplomatic Relations," reports that Peiping's interest in expanding its network of diplomatic ties has significantly increased in past three years. Communist China now has diplomatic relations with 48 countries and, because of its recent successes and continued intensive efforts, it may soon overtake Nationalist China which has recognized 60 countries. According to the memorandum, this is liable to have immense effect on Chinese representation in international organizations, particularly the United Nations (UN). According to State Department, Japan is the number one target on Communist China's diplomatic horizon and an intensive step-by-step cultivation of Japan is under way. CIA's "Secret" Special Report, "The China Problem in Japanese Politics," dated 5-1-64, reports that in Japan supporters of the Japanese Government feel that development of Japan's informal relations will ripen into full-fledged diplomatic relations with Communist China.
+
+The fact that trade between Japan and Communist China is on the increase certainly can be expected to encourage establishment of diplomatic relations between these countries in the not too far distant future. In 1963, this trade increased 60 per cent over 1962 and it is expected to take another big jump in 1964. Further, the Communist Party of Japan (CPJ) is urging close ties with China. This organization of approximately 105,000 members has taken the side of Communist China in its ideological war with the USSR.
+
+65-63113
+
+EX 100
+
+1 - 105-97459-234 (Nationality Group Coverage - Japan)
+
+ACH:jal
+(7)
+
+87'AUG A 1984
+
+NW 88613 Docid:32199554
+
+REC 55
+
+18 JUL 31 1964
+
+CEN CHG 1 3/24/64 H.B.Wells, INR, state, will check & upps wpm comm
+
+Page 468
+
+Tolson
+Belmont
+Mohr
+Casper
+Callahan
+Conrad
+DeLoach
+Evans
+Gale
+Rosen
+Sullivan
+Tavel
+Trotter
+Tele. Room
+Holmes
+Gandy
+
+CEN CHG 2
+
+CEN CHG 3
+CEN CHG 4
+CEN CHG 5

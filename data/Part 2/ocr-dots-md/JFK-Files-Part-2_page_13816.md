@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_13816.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: Senstudy 75
+62-116395
+
+CONFIDENTIAL SECRET
+
+area, Angleton replied that he did not know but that he believed the current senior Bureau official concerned with operational matters to be Deputy Associate Director James B. Adams.
+
+In addition, Angleton advised that certain questions he was asked dealt with alleged Soviet attempts to infiltrate the CIA and other agencies. Again, Angleton avoided a direct answer and indicated that the FBI would be the appropriate agency to direct such questions to. Finally, Angleton commented that in the event the Bureau thought it desirable he would be happy to personally brief the Director or other appropriate Bureau official concerning his testimony. He commented that he has not been asked to, nor has he offered to, brief William Colby, Director of Central Intelligence, concerning his testimony.
+
+RECOMMENDATIONS:
+
+1. We are checking for any available information in files concerning Israeli intelligence collection capabilities in the United States. Results will be summarized in separate memorandum.
+
+2. It is not believed appropriate to request Angleton to brief the Director or other Bureau official concerning his testimony, particularly since Angleton has not seen fit to brief his former superiors at CIA. A request by the Bureau for a briefing by Angleton might be misconstrued if it were to come to the attention of Colby or other CIA officials. [Signature]
+
+ NW 88326 DocId:32989611 Page 71
+
+COMMITTEE MEMBERS: JBA, Pm

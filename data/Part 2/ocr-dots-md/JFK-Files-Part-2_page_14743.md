@@ -1,0 +1,66 @@
+# JFK-Files-Part-2_page_14743.png
+
+Convert to MarkdownFBI
+
+Date: 5/23/69
+
+Transmit the following in __________
+Vio AIRTEL
+(Priority)
+
+TO: DIRECTOR, FBI
+FROM: SAC, WFO (105-New)
+WORLD CONGRESS OF WOMEN,
+HELSINKI, FINLAND
+JUNE 14-17, 1969
+IS - R
+
+RE WFOairtel and LHM captioned, "WOMEN STRIKE FOR PEACE DELEGATION TO SOVIET UNION, NOVEMBER 11 - DÉCEMBER 2, 1968; IS - INFO CONCERNING", dated 12/20/68.
+
+Re LHM, page 4, in reporting on conference between the Soviet Women's Committee (SWC) and Women Strike for Peace (WSP) delegation held in Moscow, USSR, on 11/27/68, states that the Soviet women feel very militant and will continue to feel this way until the last American soldier leaves Vietnamese soil. At this conference, the SWC stated a World Congress of Women (WCW) would be held in Helsinki, Finland, in June, 1969; that Vietnam would be the focus of attention. If the war ends by June, 1969, the Congress will discuss reconstruction of the damage, otherwise "all phases of work to end the war" will be discussed.
+
+MCT-40 REC. 87
+
+5 Bureau
+(62-107350) (WSP)
+(105-174254) (COUNTERINTELLIGENCE AND SPECIAL OPERATIONS)
+(134-15133)
+
+2 - Chicago (AM) (RM)
+
+1 - Detroit (Info) (RM)
+
+1 - Newark (Info) (RM)
+
+2 - New York (RM)
+
+2 - Philadelphia (RM)
+
+2 - San Francisco (RM) (AM)
+
+2 - Seattle (RM) (AM)
+
+4 - WFO
+(1-100-48466) (COUNTERINTELLIGENCE AND SPECIAL OPERATIONS)
+(1-100-39566) (WSP)
+(1-134-6831)
+
+191066
+
+4 JUN 5 1969
+
+53 JAN 20 1969
+
+(21)
+
+Approved:
+NW 88613
+AIP
+Page-240
+
+Sent M Per
+
+al Agent in Charge
+__JBCERMINI__
+
+NI CEFIL YPOO GECRCERMINI

@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_17450.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+DATE:
+
+4/30/69
+
+TO : SAC, CHICAGO
+
+FROM : SA JAMES W. GERBLICK
+
+SUBJECT: RACIAL TENSIONS
+MAYWOOD, ILLINOIS, 1969
+RM
+
+Where appropriate, the information set forth has been disseminated to local authorities.
+
+Informant advised SA JAMES W. GERBLICK on April 11, 1969:
+
+FRED HAMPTON said that BOBBY SEALE was at a meeting of the Black Panther Party (BPP) in Maywood on April 9, 1969. He is in Chicago because of some Court problems. SEALE wants to get some help from the BPP in California.
+
+Informant advised he knows of no BPP member in Maywood named "NICK" nor anyone named "DENNIS".
+
+FRED HAMPTON now has someone traveling with him and HAMPTON said he is a "bodyguard".
+
+Informant will attempt to identify him.
+
+JWG
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+NW'88613 DocId:32199554 Page 2947

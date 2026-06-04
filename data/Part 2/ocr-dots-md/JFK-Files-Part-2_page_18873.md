@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_18873.png
+
+Convert to Markdown62-116464-212
+
+enc.
+12
+
+RGK:dmt 11/10/75
+
+The Attorney General. U.S.CHOUSE OF REPRESENTA-
+TIVES SELECT COMMITTEE ON
+INTELLIGENCE (HSC)
+
+REHSC let 10/22/75 requesting all files, records and documents concerning Sam Jaffe. Enclosed is a memo responding to the request. Also enclosed are 2 volumes of material which constitute the FBI files on Jaffe.

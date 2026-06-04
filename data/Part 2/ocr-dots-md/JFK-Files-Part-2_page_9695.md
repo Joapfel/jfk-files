@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_9695.png
+
+Convert to MarkdownNK 157-2011
+
+On June 11, 1974, NK T-2 advised he developed information that would indicate a meeting was held at the residence of AL LENTZ, Grand Dragon of the National Knights of the Ku Klux Klan, in the York, Pennsylvania area. In attendance, were numerous members of the Ku Klux Klan and Minutemen organization.
+
+FRANK DRAGER was known to have been at this meeting.
+DRAGER outlined his plans for establishing an organization called
+the National Revolutionary Army. DRAGER explained that the goals
+of this group were to "destroy" the United States Government and
+replace it with members of his own group. DRAGER was believed to
+have mentioned he contacted H. RAP BROWN, a black extremist, and
+other activist leaders and plans to united, these various groups
+to achieve his goals.
+
+DRAGER also indicated he had a large quantity of dynamite
+and plans to blow up two city blocks on July 4, 1974. DRAGER
+stated that he did not have blasting caps at that time but might
+be able to get them from a Minuteman member in Indiana.
+
+DRAGER alleges to have traveled to various parts of
+the country and has urged members of the right wing to commit
+acts of violence on July 4, 1974, so that the NRA could take
+credit for these acts. The source was advised DRAGER exhibited
+four .45 caliber pistols, three .30 caliber carbines and one
+bolt action rifle at this meeting.
+
+The source was further advised DRAGER braggs about his
+passing bad checks in Florida and his using stolen credit cards
+to purchase gasoline, food and lodging. DRAGER supposedly plans
+to obtain $200,000.00 in the near future and this might be
+accomplished through a kidnapping or bank robbery.
+
+DRAGER further indicated sometime during the meeting
+that he would like to know how to make letter bombs.
+
+On June 13, 1974, NK T-3 advised he learned a meeting
+was held at the home of ALBERT LENTZ, head of a small group called
+the Independent Ku Klux Klan of York, Pennsylvania. FRANK DRAGER
+was known to have been in attendance with six or seven other
+right wing sympathizers. At that meeting, DRAGER stated he plans
+to blow up two city blocks by placing dynamite in the sewer system
+of this city.

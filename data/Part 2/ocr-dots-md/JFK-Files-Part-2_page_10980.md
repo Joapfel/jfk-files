@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_10980.png
+
+Convert to MarkdownPART II
+SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+
+activities or close association with other persons will be involved in
+unfavorable publicity or become the subject of adverse investigative
+activity, or who will capitalize on their friendly association with
+the SAC.
+
+4. Except where a suitable file is already in existence, a dead file in classification 80 is to be opened on each contact.
+
+5. A three- by five-inch card on each contact is to be retained in an SAC contact box in the exclusive possession of the SAC. Each card is to contain:
+
+a. Name of the contact
+
+b. Office and home addresses and telephone numbers
+
+c. Nature of service which can be received
+
+d. Any comments which would be helpful in handling the individual
+
+e. Date of first contact and name of SAC first developing the contact (Show in the lower left corner on the front of the card.)
+
+f. Dates of contacts by the SAC (to be entered on the reverse side of the card in longhand). Contacts more frequent than quarterly should not be listed.
+
+g. Any necessary descriptive data
+
+6. Each contact is to be indexed in the general indices. The card is to show the name of the individual, date of preparation, and the notation, "See SAC."
+
+7. SAC contacts located in headquarters city must be contacted at least three times each year; those located [in areas regularly covered by road trips] out of headquarters city or located [in resident agencies] must be contacted at least two times each year.
+
+8. Advise Bureau immediately when a contact is discontinued UACB. If the contact is transferred or moves to another city located within another field division, a copy of the communication advising of the discontinuance should be designated for that field division. Also advise field division of background information re contact,
+
+9. Advise Bureau promptly of changes of addresses or status of SAC contacts.
+
+10. Each office must submit a complete roster of SAC contacts to reach the Bureau by the first week of May and November each year. If there are any changes in address, employment, or other pertinent data, such information should be set forth. If there is no change in status, so state.
+
+11. From time to time, the Bureau sends these contacts reprints of speeches and other material to assist in making them more "FBI minded" and aware of some of the problems confronting us. Any indication that such material is not welcomed by any SAC contact should be made known to the Bureau without delay.
+
+12. Immediately upon assuming the duties of SAC, such SAC should visit all persons listed as SAC contacts and in addition leading officials located in the field division.

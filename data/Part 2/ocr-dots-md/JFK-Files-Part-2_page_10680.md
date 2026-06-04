@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_10680.png
+
+Convert to MarkdownNK 89-56
+
+During the past two months numerous attempts have been made in person and telephonically to contact PHILIP TRACY, reporter, through the "Village Voice". On each occasion receptionist personnel of the "Village Voice" advised that TRACY was not there at the present time, that they had no idea as to how to contact him nor a telephone number where he could be reached, but they would take a message for him. On each occasion a message was left but never answered.
+
+On March 31, 1972, Special Agent (Accountant) ROBERT H. WALLER and SA MARTIN J. GASS observed DALE SPEERS CUNNINGHAM driving a blue Ford convertible with California license 710-DOL.
+
+The following investigation was conducted by SC ELIZABETH O'LAUGHLIN at Sacramento California:
+
+On April 12, 1972, a check of vehicle registration records, through the California Law Enforcement Telecommunications System (CLETS), revealed that California license 710-DOL is registered for 1972 to KOREAKI OGATA, Department of Biology, University of Pennsylvania, Philadelphia, Pennsylvania, for a 1966 Ford convertible. No stolen stops on file.
+
+A check of driver's license records, through CLETS, reflects the following description of OGATA:
+
+Name: KOREAKI OGATA
+Date of Birth: April 5, 1943
+Sex: Male
+Height: 5' 6"
+Weight: 130 pounds
+Hair: Black
+Eyes: Black
+Marital Status: Single
+California driver's license number: N722888
+Mailing address: Department of Biology Stanford, California
+Residence address: 27261 Black Mountain Road Los Altos Hills, California
+
+.2
+
+NW 88321 DocId:32989529 Page-14

@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_15113.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+UNITED STATES DEPARTMENT OF JUSTICE
+JOHN EDGAR HOOVER, DIRECTOR
+
+CASES INVOLVING LATENT
+FINGERPRINT EXAMINATIONS
+
+FISCAL YEARS
+
+29,414
+
+27,425
+
+23,621
+
+19,400
+
+1966
+
+1967
+
+1968
+
+1969
+
+FBI IDENTIFICATION DIVISION
+
+FIG. 1. Identification of latent fingerprints by the Federal Bureau of Investigation (FBI). This figure represents a bar chart comparing the number of identified fingerprints from various years. The x-axis labels are 1966, 1967, 1968, and 1969. The y-axis shows the number of identified fingerprints. The bars are labeled 1966, 1967, 1968, and 1969. The height of each bar corresponds to the number of identified fingerprints from that year.

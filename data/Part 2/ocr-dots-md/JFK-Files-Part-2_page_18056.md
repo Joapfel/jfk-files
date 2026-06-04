@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_18056.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF FBI SPECIAL AGENT (SA)
+FRED J. CASSIDY BY SSC STAFF MEMBER
+
+On August 20, 1975, Mr. Loch Johnson of the Senate Select Committee to Study Governmental Operations with Respect to Intelligence Activities (SSC) staff interviewed me in my office, Room 4821, JEH Building, concerning my knowledge of, and participation in, the so-called "Huston Plan."
+
+Mr. Johnson did not place me under oath or advise me of my rights.
+
+He asked about my background which I provided, including the fact that I have been a Special Agent of the FBI since August 7, 1950.
+
+With regard to the extent of my participation in the Huston Plan, I advised Mr. Johnson that I was selected by former Assistant Director William C. Sullivan to act as the liaison officer for the plan, probably because of my experience in the FBI Domestic Liaison Section and my extensive liaison contacts through my participation in the various United States Intelligence Board (USIB) Committees. My duties with regard to the Huston Plan were to insure that appropriate notification of meetings was made and that the various papers prepared as the result of meetings held were delivered to the proper individuals in the other agencies participating in the plan. Some of the papers were delivered personally by me, others were sent by courier.
+
+I advised Mr. Johnson that I was generally aware of the contents of the papers prepared through my attendance at the meetings of the working group and discussions with participating personnel; however, I personally made no input nor did I participate in the preparation of the workpapers or the finished product.

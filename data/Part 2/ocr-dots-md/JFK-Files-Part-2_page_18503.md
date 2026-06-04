@@ -1,0 +1,61 @@
+# JFK-Files-Part-2_page_18503.png
+
+Convert to Markdown62-116395
+
+1 - Mr. J. B. Adams
+2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+1 - Mr. V. V. Kolombatovic
+
+August 8, 1975
+
+(Attn: Mr. L. A. Crescioli)
+
+1 - Mr. T. J. McNiff
+
+UNITED STATES SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES
+
+RE: INTERVIEW OF SPECIAL AGENT LOUIS A. CRESCIOLE
+BY SENATE SELECT COMMITTEE STAFF MEMBERS
+
+Set out below is information concerning an interview of Special Agent Louis A. Crescioli by Senate Select Committee (SSC) Staff Members. Mr. Crescioli, who has been a Bureau Agent since September, 1954, is currently assigned to FBI Headquarters, Domestic Liaison, handling liaison responsibilities with the military and the U. S. Postal Service.
+
+On advance notice from Mr. James Dick, SSC Staff Member, Mr. Crescioli was advised that he was to be interviewed at 2:00 p.m., August 1, 1975, in the Senate Office Building, Washington, D. C. Mr. Crescioli was informed by this Bureau's Legal Counsel Division that he was being released from any applicable employment agreement for purpose of this interview as it relates to Bureau liaison operations with regard to the U. S. Postal Service. Mr. Crescioli was advised there were certain areas concerning which he would not be required to answer questions, namely: information which might divulge the identities of FBI sources; information relating to sensitive methods and techniques; information which might adversely affect on-going FBI investigations and information which originated with other agencies, including foreign intelligence agencies.
+
+After meeting at the Senate Office Building with Staff Members at the scheduled time, it was learned the interview of Mr. Crescioli would occur in Room 610 of the Carrol Arms Hotel which is located across the street from the Senate Office Building, Washington, D. C. The interview commenced at approximately 2:05 p.m., and was conducted by Mr. Dick and his SSC Staff Associate Mr. Paul Wallach, Special Agent Thomas J. McNiff, FBI Headquarters, accompanied Mr. Crescioli and was present during the interview.
+
+Assoc. Dir. ________ which is located across the street from the Senate Office Building,
+Dep. AD Adm. ________ Washington, D. C. The interview commenced at approximately 2:05
+Dep. AD Inv. ________
+Asst. Dir.: ________ p.m., and was conducted by Mr. Dick and his SSC Staff Associate
+Admin. ________ Mr. Paul Wallach, Special Agent Thomas J. McNiff, FBI Headquarters,
+Comp. Syst. ________ accompanied Mr. Crescioli and was present during the interview.
+Ext. Affairs ________
+Files & Com. ________
+Gen. Inv. ________
+Ident. ________ 1 - 62-23533
+Inspection ________ 1 - 67- (Louis A. Crescioli)
+Intell. ________ whch
+Laboratory ________
+Plan. & Eval. ________ TJM:dmt
+Spec. Inv. ________ (12)
+Training ________
+Legal Coun. ________
+Telephone Rm. ________
+
+SEE NOTE PAGE 4
+
+ENCLOSURE
+
+GPO 954-546
+
+MAI. ROOM V TELETYPE UNIT ☐
+
+NWW88328 DocId:32989627 Page 101
+
+All right reserved.
+Copyright 1975 by GPO, Washington, D.C. All Rights Reserved.

@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_15855.png
+
+Convert to MarkdownAnother problem is the relation between old and new cadres. Since the beginning of the War of Resistance, our Party has grown enormously, and large numbers of new cadres have emerged; that is a very good thing. In his report to the Eighteenth Congress of the Communist Party of the Soviet Union (B.) Comrade Stalin said,"... there are never enough old cadres, there are far less than required, and they are partly going out of commission owing to the operation of the laws of nature," Here he was discussing the cadres situation and not only the laws of nature. If our Party does not have a great many new cadres working in unity And co-operation with the old cadres, our cause will come to a stop. All old cadres, there fore, should welcome the new ones with the utmost enthusiasm and show them the warmest solicitude. True, new cadres have their short comings,, They have not been long in the revolution and lack experi- ence, and unavoidably some have brought with them vestiges of the unwholesome ideology of the old society, remnants of the ideology of petty-bourgeois individualism. But such shortcomings can be gradually eliminated through education and tempering in the revo- lutionX, The strong points of the new cadres, as Stalin said, is that they are acutely sensitive to what is new and are therefore enthusiastic and active to a high degree---the very qualities that some of the old cadres lack,, Cadres, new and old, should respect each other,, learn from each other, and overcome their own shortcom- ings by learning from each others strong points, so as to unite as one in the common cause and guard against sectarian tendencies. Generally speaking, in places where the old cadres are mainly in charge, it is they who should bear the chief responsibility if rela- tions with the new cadres are not good.
+
+All the above—relations between the part and the whole, rela-
+tions between the individual and the Party, relations between out-
+side and local cadres, relations between army cadres and other ca-
+dres working in the locality, relations between this and that army
+unit, between this and that locality, between this and that depart-
+ment and relations between old and new cadres—are relations within
+the Party. In all relations it is necessary to enhance the spirit of
+communism and guard against sectarian tendencies, so that the ranks
+of our Party will be in good order, march in step, and therefore
+fight well. This is a very important problem which we must solve the
+oughly in rectifying the Party's style of work. Sectarianism is an
+expression of subjectivism in organizational relations; if we want
+to get rid of subjectivism and promote the Marxist-Leninist spirit
+of seeking truth from facts, we must sweep the remanences of sectar-
+fanism out of the Party and proceed from the principle that the
+Party's interests are above personal or sectional interests, so
+that the Party can attain a complete solidarity and unity.
+
+— 701 —
+RIGHT ON!

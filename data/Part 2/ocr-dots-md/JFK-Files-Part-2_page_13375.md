@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_13375.png
+
+Convert to Markdown# MANUAL OF RULES AND REGULATIONS
+
+NOTE CONTINUED:
+
+The MRR sections to be made available are described by number and heading as follows:
+
+Part I
+
+Section 9 - Disciplinary Matters
+
+Part II
+
+Section 1 - Authority--Training--Submission of Information
+
+Section 2 - Supervision--Availability-Resident Agencies
+
+Section 3 - Administration of Offices
+
+Section 4 - Communications
+
+Section 5 - Dissemination of Information
+
+Section 6 - Publications, Press, and Public Contacts
+
+Section 7 - Payments--Property
+
+Section 8 - Miscellaneous Regulations
+
+Section 9 - Classification--Character--Copies--Abbreviations.

@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_10776.png
+
+Convert to MarkdownAt approximately 4:33 a.m. on August 22, 1971, two white males and three white females standing against the wall located in cleove Driveway, east side of St. Paul's Episcopal Church, located across from the U.S. Post Office building at Fourth and Market Streets, Garden, New Jersey. One white male later identified as Fruitly J. HSC was observed holding a walkie-talkie, which was immediately taken from him by SA THIXTER. A pair of cheap binoculars were found on the tape and a brown tote bag were located near the feet of these four individuals. SA THIXTER identified himself and the other agents present as being Special Agents of the FBI, and advised these four individuals that they were being placed under arrest for conspiracy. The three white females were subsequently identified as being MARGARET MARY INNESS, ANNE CRANey DUVILLY, and JOHN REILLY.
+
+On 8/22/71 of Camden, New Jersey File #: Philadelphia 52-7165-SUB S
+SA HOWARD G. THIXTER, SA RICHARD G. HARRISON
+SA ROGER B. FARCOCK
+
+By: EGG Time of Date Acquired 8/23/71
+
+If this document contains any number or considerations not concluded of the FBI, it is the property of the FBI and is loaned to your agency.
+It ends its contents are not to be distributed outside your agency. C:

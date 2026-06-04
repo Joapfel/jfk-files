@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_16856.png
+
+Convert to MarkdownJustice, Washington, D. C., where the registration state-
+ment of China Books and Periodicals, 2929-24th Street,
+San Francisco, 10, California, as an agent of Guozi
+Shudian of Peking, China, is available for inspection.
+The fact of registration does not indicate approval of
+this material by the Government of the United States."
+
+Also taken during the search were: one pair
+of tweezers; one felt tip blue pen; one blank firearms
+registration form; and numerous assorted papers which
+WARD declined to accept and requested they be discarded
+by the searching Agents. All of the items taken from
+WARD were returned to him except the pair of tweezers
+which were given to the United States Marshal.
+
+In addition, WARD had in his possession the
+following items which were not taken: fifty cents in
+change comprised of one quarter, three nickels and one
+dime; one cigarette lighter; five books of matches;
+one pack of Kool cigarettes; one scrap of paper bearing
+the notation DIANE JONES, 2822 California, telephone
+number 326-6189; one scrap of paper bearing the notation
+"has been changed" 201 South Ashland, Political Orienta-
+tion MWF 8:00; one scrap of paper bearing the notation
+BEVERLEY, 722-5960, 4122 North Wilcox.

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_9982.png
+
+Convert to Markdownfull field investigations under Executive Order 9835, as called for in Section 4 of the Order. As you were previously advised, this Bureau feels it should conduct such investigations only when the purpose is to develop information of a nature described in Section 8(d) of the Order. Unless specific information to this effect is included in the regulations, it can be anticipated that this Bureau will receive a large number of requests for investigations solely for the purpose of bringing the investigation up to date, or to develop some information of a nonsubversive nature.
+
+Under Executive Order 9835, this Bureau, through agreement with the Civil Service Commission, followed the policy of sending all its reports to the Civil Service Commission for dissemination to the appropriate departments and agencies. As you know, the current Order requires that the Civil Service Commission maintain a security-investigations index, which is to include the index maintained by the Civil Service Commission in conjunction with Executive Order 9835. This Bureau believes the policy previously followed of sending these reports to the Civil Service Commission should be continued.
+
+It will be necessary that a standard form containing sufficient identifying data be utilized in checking individuals' names through this Bureau's files and in connection with investigations conducted under this Order.
+
+With reference to per-diem, intermittent, temporary, etc., employees, the Civil Service Commission should utilize extreme care in permitting, at the request of a department or agency head, less than the minimum investigation required in other cases.
+
+Recording Section 5 of the Order, this Bureau, on receipt of information of a nature necessitating investigation by it, contemplates following the policy of immediately initiating the investigation rather than awaiting a request for such an investigation by the department or agency concerned. The agency head, however, will be notified that information of a nature requiring investigation by this Bureau has been received, and an investigation is being conducted; and that upon request he will be furnished with the basis for the investigation. If it is felt that such a policy is in conflict with the provisions of the Order, it would be appreciated if consideration
+
+-2-

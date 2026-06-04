@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_14228.png
+
+Convert to Markdownif such a document exists. Please also provide the Committee with
+a list of the classifications used in the FBI's filing system as well
+as a complete set of printed forms used by the Bureau (e.g., FD-165,
+etc.).
+
+We believe that all the foregoing material will help expedite and focus the inquiry. I assume that Mr. Hotis will contact me promptly to arrange for our review of this material.
+
+Frederick A. O. Schwarz, Jr.,
+Chief Counsel,
+Senate Select Committee to
+Study Governmental Operations
+With Respect to Intelligence
+Activities
+
+NW 88296 DocId:32989588 Page 259

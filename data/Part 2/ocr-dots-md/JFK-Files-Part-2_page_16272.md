@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_16272.png
+
+Convert to Markdown**WALTER ALLEN**
+
+CONFIDENTIAL
+
+Credit
+
+The records of the Chicago Credit Bureau, Incorporated, as checked on August 5, 1969, reflect no information concerning Walter Allen.
+
+Criminal
+
+The records of the Bureau of Records and Communications, Chicago Police Department, as checked on August 6, 1969, reflect no information concerning Walter Allen.
+
+The records of the Maywood, Illinois Police Department, as reviewed on August 6, 1969, reflect no information concerning Walter Allen.
+
+Descriptive Information
+
+The following composite description of Walter Allen was furnished by the above two confidential sources.
+
+Name: Walter Allen
+Alias: Count
+Race: Negro
+Sex: Male
+Height: 5'4" - 5'7"
+Weight: 120 - 140 pounds
+Age: 20 - 22
+Complexion: Dark
+
+Activities
+
+The first confidential source mentioned above advised on December 31, 1968, Walter Allen had been passing out BPP applications in Maywood, Illinois, and that he was allegedly a member of the BPP.
+
+This source subsequently advised Allen is a member of the Illinois BPP and between January 16, 1969, and June 15, 1969, he attended approximately 19 BPP meetings in the Maywood - Broadview area.
+
+CONFIDENTIAL
+
+NW 88613 DocId:32199554 Page 1769

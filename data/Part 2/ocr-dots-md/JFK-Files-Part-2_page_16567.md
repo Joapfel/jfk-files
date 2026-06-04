@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_16567.png
+
+Convert to MarkdownIn Reply, Please Refer to
+File No.
+
+Title BLACK PANTHER PARTY (BPP)
+
+Character RACIAL MATTERS SMITH ACT OF 1940 SEDITIOUS CONSPIRACY, REBELLION AND INSURRECTION
+
+Reference Report of Special Agent Hubert M. Hart, dated and captioned as above.
+
+All sources (except any listed below) whose identities are concealed in referenced communication have furnished reliable information in the past.

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_18341.png
+
+Convert to MarkdownMichael E. Shaheen, Jr.
+
+September 16, 1975
+
+The Bureau's position with respect to the excised portions of Items A. and B. above was reiterated by FBI representatives at our September 9 meeting, notwithstanding our position that these materials were deemed to be absolutely essential to our complete understanding of the King investigation. As you are aware, several other documents previously provided to the Committee contain conclusionary statements about Stanley Levison as predicates for many of the actions taken with respect to King, and it would appear that the withheld portions of Items A. and B. above, as well as the 6/21/62 New York letter described above, would contain the detailed bases for such conclusions.
+
+I am sure you would agree that the underlying facts concerning Levison are vital in order that we can meet our responsibilities to fully assess the propriety of the FBI's activities with respect to this case. Accordingly, I would appreciate your personal attention to this matter, including your own examination of the three documents in question, and hopefully, a determination by you that these documents should be provided to the Committee in unexcised form (except for the names of so-called "live" informants).
+
+An early resolution of this matter is essential, and I would hope you can respond by the end of the week.
+
+NWW 88326 DocId:32989653 Page 339

@@ -1,0 +1,76 @@
+# JFK-Files-Part-2_page_10203.png
+
+Convert to Markdown- OPTIONAL FORM NO. 10
+MAY 1962 EDITION
+OSA GEN. REG. NO. 27
+
+UNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : MR. W. R. WANNALL,
+FROM : MR. W. O. CREGAR
+SUBJECT: SENSTUDY 75
+
+1 - Mr. J. Cochran, Jr.
+1 - Mr. R. J. Gallagher
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+
+DATE: July 24, 1975
+
+1 - Mr. W. A. Branigan
+1 - Mr. A. B. Fulton
+1 - Mr. J. G. Deegan
+1 - Mr. R. L. Shackelford
+1 - Mr. F. S. Putman
+1 - Mr. J. W. Redfield
+1 - Mr. T. J. McNiff
+
+Assoc. Dir. ____
+Dop. AD Adm. ____
+Dop. AD Inv. ____
+Asst. Dir.: 
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Legal Coun. ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Telephone Rm. ____
+Director Soc'y ____
+
+My memorandum dated 7/23/75 captioned as above advised you that this Bureau had received from Central Intelligence Agency (CIA) 190 pages extracted from a 693-page document prepared by CIA citing instances wherein CIA believed some of its activities may have exceeded its legal mandate. Some of the CIA activities cited in this document include references to Bureau operations of an extremely sensitive nature and it was also noted that the Senate Select Committee has had access to this document. It was recommended that pertinent pages extracted from the CIA document be routed to the respective Bureau Division and/or Intelligence Division Section believed to have an interest in the material contained therein for the purpose of fully identifying the subject matter and making an assessment as to whether any compromise to this Bureau's operation is involved.
+
+This is to advise that the following pages from the document were furnished to the following Divisions and/or Sections of the Intelligence Division on the morning of 7/24/75 for the purpose of review, assessment, and recommendations, if any:
+
+General Investigative Division - Pages 107, 108, 111, 149-151, 155, 156, 158-161, 178, 180, 181, 296, 298, 301, 353 and 354
+
+Laboratory Division - Pages 65-67, 113, 118, 119, 182, 202, 221, 222, and 234, (pages 238-240 and 248 were furnished for information purposes as these pages contained information concerning techniques used and/or developed by CIA which may be of interest).
+
+Intelligence Division
+
+Section CI-1
+
+Pages 23, 24, 28, 29, 70, 72, 73, 77, 136, 140-142,
+
+298, 329, 582, 615, and 628.
+
+REC-88
+
+3 JUL 31 1975
+
+62-116395
+
+TJM:ekw (12)
+
+CONTINUED - OVER
+
+84 JUL 31 1975

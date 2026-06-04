@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_13802.png
+
+Convert to Markdown# H. Joint FBI-Police Operations
+
+The purpose of this inquiry is to examine certain allegations that joint FBI-police operations resulted in misconduct or abuse. These cases are complex and involve a variety of techniques. Nevertheless, they may indicate some of the most serious problems which may arise in attempting to deal with potentially violent situations.
+
+## 1. The White Knights of the Ku Klux Klan, Mississippi
+
+The Committee is inquiring into the relationships between the FBI and other law enforcement agencies and private organizations in Mississippi in connection with the White Knights of the Ku Klux Klan. The purpose of the inquiry is to determine what effect, if any, FBI activities had on the actions of other law enforcement agencies and private individuals with respect to the White Knights of the Ku Klux Klan in Mississippi. This investigation may involve allegations of abuses or other controversial matters where there is reason to believe improprieties may have occurred.
+
+### Questions
+
+The Committee requests that the FBI and the Justice Department address the following specific questions:
+
+a. Was this organization a target of FBI COINTELPRO operations?
+
+b. If so, how and by whom was it selected as a target?
+
+c. What were the purposes of any disruptive operations directed at it?
+
+d. To what extent were the purposes achieved?
+
+e. What disruptive techniques, if any, were employed?

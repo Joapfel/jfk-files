@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_16526.png
+
+Convert to MarkdownHUEY P. NEWTON, LEADER OF THE BLACK PANTHER PARTY. ORGANIZED THE

@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_9719.png
+
+Convert to MarkdownCan we change all this? Yes and the N.R.A. will.
+
+We will bring their tot sitarian Economic dictated to its knees and replace it with a healthy system as prescribed by our founding Fathers and return to the Constitutional free Republic that this was meant to be.
+
+We will not rest until every traitor to our system is eliminated and the Communist and Zionist World conspiracy to dominate the White Race is rendered useless.
+
+When we see the Communist clenched fist, we will cut it off.
+When we see the Zionists star of david it will enrage us to attack. When we see the jew nose,- we will be looking down the sites of our rifles.
+
+When we find a Government enemy within our Range we won't hesitate to lite our fuses.
+
+Enemies Beware, the N.R.A. is playing for keeps.

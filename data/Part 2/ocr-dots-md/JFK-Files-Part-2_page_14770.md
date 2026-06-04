@@ -1,0 +1,68 @@
+# JFK-Files-Part-2_page_14770.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT
+
+# Memo
+## andum
+
+TO : Mr. C. D. Brennan
+
+FROM : R. L. Shackelford
+
+SULLIVAN
+BROOKLYN
+DEPT.
+COSTA MESA
+LA JONGOS
+
+1 - M. J. D. Brennan
+1 - Mr. R. L. Shackelford
+1 - Mr. B. F. Rose
+1 - Mr. F. B. Griffith
+
+DATE: 11/19/70
+
+Conrad
+Felt
+Gale
+Rosen
+Tavel
+Walters
+Soyars
+Tele. Room
+Holmes
+Gandy
+
+**SUBJECT:** STOCKHOLM CONFERENCE ON VIETNAM (SCV)
+INTERNAL SECURITY - MISCELLANEOUS
+
+PURPOSE:
+
+This is to recommend that the Washington Field Office be authorized to advance the sum of $775 to INFORMAL TUT to enable this informant to attend a conference of the above group in Stockholm, Sweden, on 11/28-30/70.
+
+BACKGROUND:
+
+The SCV was organized in 1967 and is controlled to some extent by the Soviet-dominated World Council for Peace (WCP). The SCV, since its inception, has been one of the major sounding boards for anti-American propaganda in connection with the war in Vietnam. This group has also provided the North Vietnamese with a propaganda outlet and has enhanced the position of the North Vietnamese delegation to the Paris Peace Talks.
+
+The forthcoming conference in Stockholm will undoubtedly hammer out the details for additional moves and propaganda against the United States' position in Vietnam. It is, therefore, most desirable we afford these meetings live informant coverage. INFORMAL TUT is well established in the peace movement on a national and international scale having contacts with major women's groups throughout the United States and in the Soviet Union. This informant, in June, 1969, attended a meeting of the WCP in East Berlin on our behalf and furnished excellent intelligence information. She has received an official SCV invitation and is in a logical position to attend. This informant is a retired schoolteacher and can make this trip without creating any suspicion.
+
+Enclosure
+
+100-453546
+
+RE: DEC 18, 1970
+
+22. DEC 22 1970
+
+1 - 134-15133
+1 - Mr. M. F. Row (6221 IB)
+
+FBG:cal
+
+57DE(8)070
+
+CONTINUED - OVER
+
+NW 88618 (DoD: 32199354) 1970
+
+Page 267

@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_18295.png
+
+Convert to MarkdownADDENDUM: LEGAL COUNSEL DIVISION PVD:1ad 8/26/75
+
+On 8/25/75, SA Daly determined from Michael Epstein of the Senate Select Committee that this particular interview was not considered an "abuse" interview and if the Bureau so desired, they could have a representative present during the interview. Accordingly, Recommendation #2 in this memorandum should be changed to show that an Agent may, in fact, be present.
+
+NW 88326 DocId:32989653 Page 293

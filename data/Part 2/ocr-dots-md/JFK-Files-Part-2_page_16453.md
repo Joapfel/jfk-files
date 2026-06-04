@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_16453.png
+
+Convert to MarkdownHuey Newton interview
+originally published in
+
+THE MOVEMENT
+
+August 1968
+
+Printed by
+Students for a
+Democratic Society
+
+August 1968
+
+ORDER MORE COPIES FROM:
+
+SDS, 1608 W. Madison, Chicago
+Illinois 60612
+
+THE MOVEMENT, 449, 14th St.,
+San Francisco, California
+
+Huey Newton photos: Jeff Blankfort
+Back page photo: Stephen Shames
+
+NW 88613 DocId:32199554
+
+Page 1950

@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_15639.png
+
+Convert to MarkdownSource stated that the above apartment serves as a "Panther Crib," meaning that it is available to any BPP member for use, such as sleeping or eating. Source stated that the following individuals are among the most frequently seen at this address:
+
+FRED HAMPTON, Deputy Chairman;
+
+BILLY BROOKS, Deputy Minister of Education;
+
+RONALD SATCHEL, Deputy Minister of Health;
+
+LOUIS TRULOCK, Legal Counselor; all Illinois BPP officials, as well as ALVIN JEFFERIES, ROBERT CAMPBELL and numerous female BPP members including DEBRA JOHNSON who is allegedly pregnant by HAMPTON.
+
+At approximately 3:15 am, November 13, 1969, a spokesman from the Deputy Superintendent's Office, Chicago Police Department (PD), Chicago, Illinois, advised that moments earlier officers responding to a report of a "man with a shotgun" at 5802 Calumet, Chicago, located in a south side Negro ghetto, were met with gunfire from at least two male Negroes.
+
+The first three officers to arrive at the scene were JOHN GILHOOLY, white male, age 21; MICHAEL BRADY, white male, age 26; and, DANIEL COFFMAN, white male, age 26. All three officers were shot, according to the CPD spokesman, before they got their guns out of their holsters.
+
+GILHOOLY and BRADY were approaching the building from the front when a Negro male with a shotgun and a male Negro with a carbine fired on them. GILHOOLY subsequently died on November 14, 1969, from his wounds and BRADY received a head wound which he was treated at a local hospital and released. COFFMAN received gunshot wounds in the leg, hand and chest and is hospitalized.
+
+Scores of policemen then responded and firing continued for almost one-half hour. Six other CPD officers received wounds as a result of this gunfight:

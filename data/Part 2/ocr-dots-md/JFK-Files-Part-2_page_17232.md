@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_17232.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Detroit, Michigan
+February 20, 1970
+
+CONFIDENTIAL
+
+Re: Donnette Verlina Brewer
+
+All sources utilized in this memorandum have furnished reliable information in the past.
+
+The Chicago Police Department advised in December, 1969, that Verlina Brewer, Negro female, age 17, was wounded by a gun shot during a shoot-out on December 4, 1969, between the Cook County States Attorney's Police and occupants of the apartment of Fred Hampton, Deputy Chairman, Illinois Chapter of the Black Panther Party (BPP). Hampton and another BPP official were killed in that shoot-out.
+
+A characterization of the BPP is contained in the appendix attached hereto.
+
+On December 11, 1969, confidential source number one advised that Donnette Verlina Brewer had returned to her home in Michigan and was living with her parents who were arranging to have a bullet removed from her leg. It was learned that Brewer resided at 2139 Yorktown, Ann Arbor, Michigan.
+
+On December 22, 1969, Captain Walter Hawkins, Ann Arbor Police Department, advised his department's records indicate Donnette Verlina Brewer, who was born January 10, 1952, is the daughter of William Brewer, 2139 Yorktown, Ann Arbor, Michigan. Her name has been referred to the Ann Arbor Police Department on several occasions due to subject's continually running away from home.
+
+CONFIDENTIAL
+GROUP I
+Excluded From Automatic
+Downgrading and
+Declassification
+
+NW 88613 DocId:32199554
+Page 2729

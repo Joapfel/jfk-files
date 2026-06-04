@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_18954.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+Press Officer indicated Sedov had been in New York but was now back in Washington, D.C. The Press Officer told Jaffe he would tell Sedov to get in touch with Jaffe. According to Jaffe, the Press Officer, whose name he cannot recall, displayed great interest in Jaffe and "practically begged" Jaffe to invite him to his home. The Soviet stated: "You haven't forgotten? You said you would have me over. You are a great fellow. You will have me over?" Jaffe said he replied in the affirmative. According to Jaffe, the Soviet "made very sure I knew he was Jewish, which was very obvious." Jaffe associates the Soviet's name with the Russian word for "potato."
+
+Boris Valentinovich Yarochevskiy, "Tass" Correspondent,
+and his wife, Inna Grigoryevna Yarochevskaya
+
+Jaffe said he attended a Hungarian reception April 17, 1969 which also was attended by several Soviet journalists. The Soviets spent considerable time during the reception, which was held just after the United States "spy" plane was shot down by the North Koreans, in conversation with Bob McCloskey of the United States Department of State.
+
+Jaffe continued: "I met this young guy - the newest arrival from 'Tass' - Boris (last name unknown) (LNU) and Inna (his wife)." Jaffe described Boris as "very, very Ivy League" and "quite bright." Inna, who looked familiar to Jaffe, came over to Jaffe and stated: "Sam, how are you? You don't remember me? No? You are still a legend in Moscow. There is still talk about you." Inna then indicated that she was one of the translators for Reuters News Agency in Moscow, working for John Miller. Her last job was translator for Lares Bruger (phonetic), a Swedish newspaper correspondent in Moscow and a friend of Jaffe.
+
+Jaffe stated Boris apparently studied at McGill University in Canada and Inna apparently joined her husband in Canada just prior to his assignment in Washington, D.C. Inna indicated she and Boris have only been in Washington, D.C. about one or one and one-half months.
+
+SECRET

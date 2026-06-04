@@ -1,0 +1,66 @@
+# JFK-Files-Part-2_page_18566.png
+
+Convert to MarkdownSECRET
+
+The Attorney General
+Director, FBI
+
+2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+1 - Mr. W. R. Wannall
+July 28, 1975
+
+1 - Mr. W. O. Cregar
+1 - Mr. R. D. Hampton
+
+UNITED STATES SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+Reference is made to a letter from the SSC dated July 14, 1975, requesting certain documents and other information from the FBI.
+
+Attached for your approval and forwarding to the Committee is a memorandum containing a partial response to requests contained in referenced letter, but which represents, in its entirety, our reply to the Committee's inquiry concerning the nature of "[SCOPE]." A copy of this memorandum is being provided for your records. (A) (S)
+
+Enclosures (2)
+
+62-116395
+
+REC-26
+
+1 - The Deputy Attorney General
+
+Attention: K. William O'Connor
+
+Special Counsel for
+Intelligence Coordination
+
+AUG 14 1975
+
+RDH:mjg mjs
+(9)
+
+NOTE:
+
+Referenced SSC letter requested information concerning [SCOPE and ORKID]. Information concerning [ORKID] will be handled by CI-1 and will be disseminated orally to the proper representatives of SSC.
+
+Classified "Secret" to protect a sensitive investigative technique.
+
+SECRET
+
+Classified by 7005
+
+Exempt from GDS, Category Number 2
+
+Date of Reclassification Indefinite
+
+NATIONAL SECURITY INFORMATION
+
+Unauthorized Disclosure
+
+Subject to Criminal Sanctions
+
+GPO 954-546
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+8 4 AUG 18 1975
+
+NW 88326 DocId:32989627 Page 164

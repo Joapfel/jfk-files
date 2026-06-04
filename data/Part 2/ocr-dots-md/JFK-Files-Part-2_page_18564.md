@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_18564.png
+
+Convert to MarkdownNW 88326 DocId:32989627 Page 162
+
+<table>
+   <tr>
+    <td>CLASSIFY AS APPROPRIATE</td>
+    <td>TO: Intelligence Community Staff<br/>ATTN: Central Index<br/><br/>SUBJECT: Abstract of Information Provided to Select Committees<br/><br/>FROM:<br/>FBI<br/><br/>1. HOW PROVIDED (check appropriate term. If a document was made available for review but not transmitted, so note.)<br/><table><thead><tr><th></th><th>DOCUMENT</th><th>BRIEFING</th><th>X INTERVIEW</th><th>TESTIMONY</th><th>OTHER</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table><br/><br/>2. DATE PROVIDED<br/>8/7/75<br/><br/>3. TO WHOM PROVIDED (check appropriate term; add specific names if appropriate)<br/><table><tbody><tr><td></td><td>SSC</td></tr><tr><td></td><td>HSC</td></tr></tbody></table>The Attorney General with a copy for forwarding to the White House<br/><br/>4. IDENTIFICATION (provide descriptive data for documents; give name or identification number of briefer, interviewee, testifier and subject)<br/>Memoranda reporting results of an interview by SSC Staff Members of former Special Agent of the FBI John M. Matter.<br/><br/>5. IN RESPONSE TO (list date and item number if in response to formal request, otherwise state verbal request of (name), initiative, subpoena, etc.)<br/>NA<br/><br/>6. CLASSIFICATION OF INFORMATION (enter U, C, S, TS or Codeword)<br/>U<br/><br/>7. KEY WORDS (enter the appropriate key words from the list provided separately; if key words not listed are used underline for emphasis)<br/>Surveillance, electronic Organization and staffing<br/>AMDR16<br/>10/10/00 SP-2 Alm/JTG<br/><br/>8. SUMMARY (see reverse side before completing this item)<br/><br/>Former FBI investigation of Martin Luther King, Jr.<br/><br/>G2-116395<br/>FMK: fmk<br/>(4)<br/>ORIGINAL VIA LISKON TO CENTRAL COMMUNITY INDEX IN CONNECTION WITH SENSTUDY 75<br/>TREAT AS YELLOW</td>
+   </tr>
+  </table>

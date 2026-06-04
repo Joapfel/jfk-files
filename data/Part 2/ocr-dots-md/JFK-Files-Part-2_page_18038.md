@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_18038.png
+
+Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF FORMER FBI AD BY SSC
+
+NOTE CONTINUED:
+
+coverage was on his home as opposed to the coverage on
+his offices at Southern Christian Leadership Conference
+which we obtained while I was there.
+
+"Based on my brief discussion with Epstein and his manner in making the appointment, I had the feeling that his interview of me was arranged over the Labor Day weekend to suit his personal convenience or to fit his personal travel plans. He was pleasant, low-keyed, and not at all aggressive or probing and I had the impression that he learned nothing during the interview that he had not known before. I told him on several occasions during the interview that my memory of this ten year old matter is very poor, that he should rely on the records made at the time for a more accurate account.
+
+"I also had the impression that he is pursuing leads based on material furnished to him by Sullivan."
+
+The foregoing impressions of Ponder are not being included in the material being furnished to the Department as it appears obvious Ponder intended this information for the exclusive information of the Bureau.

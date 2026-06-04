@@ -1,0 +1,60 @@
+# JFK-Files-Part-2_page_11767.png
+
+Convert to Markdown6D - E
+
+SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+
+4. Do not:
+
+a. Identify law enforcement officers by name but by title and NA affiliation
+
+b. Show aliases of subjects of Dependents Assistance Act of 1950
+
+c. Show aliases of victims of WSTA cases
+
+d. Use complicated sentence structure
+
+e. Use technical references to statutes
+
+f. Express personal opinions
+
+g. Reveal identity of confidential informants
+
+h. Use Bureau expressions like "the subject" and "the Bureau"
+
+i. Prepare interesting case write-ups on juveniles, sex offenders, and parole violators but submit these by letter
+
+j. Use adjectives excessively
+
+5. Transmittal
+
+Set forth all data necessary for Bureau's consideration at the beginning of write-up and then follow with interesting case data. Transmit by routing slip, Attention: External Affairs Division.
+
+6. Dissemination
+
+[Field Offices will be advised by routing slip when new write-ups are prepared. If copies are desired, an appropriate letter should be submitted to the Bureau, Attention: External Affairs Division, setting forth the specific use for which the write-up is intended. In instances where write-ups, either those previously prepared or those to be published in the future, may be released outside the Bureau, it will be necessary to first obtain Bureau approval.]
+
+7. Interesting case control file
+
+A copy of all communications concerning the dissemination of write-ups outside the Bureau is to be placed in the Interesting Case Control file. These communications should contain the identity of the person to whom the write-up is being made available, as well as the purpose for which it is to be used.]
+
+E. CIRCULAR LETTERS, TRADE AND BUSINESS PUBLICATIONS
+
+1. Circular letters must be approved in advance by the Bureau and sent in by the office initiating the request.
+
+2. SACs may approve the use of a circular letter directed to banking-type institutions within their own divisions to expedite circularization of known serial numbers of money included in the loot taken in a bank robbery, bank burglary, or bank larceny. On a highly selective basis, on approval of the SAC, leads may be set out to contiguous offices to circularize banking-type institutions in those divisions, and the Bureau should be notified that this action is being taken unless advised to the contrary. Communications setting out such leads must include sufficient facts to enable the Bureau to properly evaluate and justify the additional circularization. In all other cases prior Bureau approval must be obtained in accordance with existing rules governing circular letters. In all instances the circular letter must include the following:
+
+a. A brief concise statement concerning the bank robbery, bank burglary, or bank larceny and the fact that included in the loot or money taken was money, the serial numbers of which are known
+
+b. List of known serial numbers according to denomination, series year if known, alphabetical order, and numerical sequence
+
+c. A statement that the matter is to be treated confidentially
+
+d. A cautionary statement that no bank employee should take any action which would tend to jeopardize his or her life or safety
+
+e. The address and the telephone number of the field office with a statement that any person should contact the field office by calling collect
+
+3
+5-28-74
+
+NW 88321 DocId:32989529 Page 1101

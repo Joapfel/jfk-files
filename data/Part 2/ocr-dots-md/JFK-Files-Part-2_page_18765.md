@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_18765.png
+
+Convert to Markdownalso true, however, that Soviet nationals engaged in intelligence operations are trained to be as observant as JAFFE obviously is. In view of this, it is logical to assume that there must be other persons, including Soviet nationals, who believe that his value in the field is considerably lessened.
+
+It is the intention of this office to consider as a potential confidential source in view of his many and varied contacts among UN personnel.
+
+Notwithstanding this fact, it is believed that will be of value to us in our continuing efforts to obtain information of value relating to the activities of Soviet and Soviet-bloc officials as such activities relate to intelligence operations.
+
+No attempt will be made to direct or control activities, but contact will be maintained with him on a regular basis of at least monthly, in order to create as many good sources of information as possible in order to properly discharge our responsibilities in the internal security field.

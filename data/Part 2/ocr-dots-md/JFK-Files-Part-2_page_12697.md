@@ -1,0 +1,56 @@
+# JFK-Files-Part-2_page_12697.png
+
+Convert to Markdown(b) Priority III cases must be opened for verification of residence and employment on annual basis. Review case file for any necessary action including re-evaluation of subject's status, or possible rede-signation as priority I or II.
+
+When pertinent information is submitted to Bureau for dissemination, FD-305 and FD-376 should accompany cover communication.
+
+d. Subjects recommended for security index
+
+(1) Pending inactive
+If all active investigation completed at time FD-122 forwarded to Bureau, set forth lead to follow for security index approval and dissemination of report to Secret Service.
+
+(2) Closed
+After security index approved and dissemination to Secret Service, follow by administrative tickler for periodic report.
+
+e. Subject not being recommended for index
+Closed - prior to closing, comply with instructions pertaining to interviews.
+
+8. Content
+
+a. Include following and handle under topical headings where appropriate.
+
+(1) Background
+(a) Birth data
+(b) Citizenship status
+(c) Education
+(d) Marital status
+(e) Military service record (domestic or foreign, including type of discharge, citations, etc.)
+(f) Identification record
+(g) Employment
+(h) Residence
+(i) Status of health (if known)
+
+(2) Connections with Communist Party, other basic revolutionary groups, front groups, black nationalist extremist groups, and/or other subversive organizations or unorganized groups
+
+(a) Information concerning admission into revolutionary group, including sponsors, etc.
+(b) History of activity in, attendance at meetings of, and positions held in subversive movement
+
+(3) Revolutionary statements by subject
+(a) Determine each statement and full details surrounding it.
+(b) Determine all statements showing adherence to principles of Marxism-Leninism or other revolutionary doctrines.
+
+(4) Other activities indicating furtherance of program of subversive organizations
+(a) Speeches and writings
+(b) Organizational directives and/or educational outlines signed by or issued by subject, or issued while subject was officer of organization
+(c) Pertinent contacts between subject and leaders of organizations
+(d) Details concerning subject's attendance or connection with subversive training schools
+
+(5) False statements made by subjects, including aliases
+Evidence may be obtained from passports, tax returns, and voting, marital, employment, and selective service records.
+
+(6) Miscellaneous
+Pertinent items not falling under above categories
+
+b. Reports on individuals should be confined to:
+
+(1) Proof of membership and activity in basic revolutionary organizations, front organizations, and/or other organizations or unorganized groups

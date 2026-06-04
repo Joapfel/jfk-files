@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_9159.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+
+Date of transcription 8/12/74
+
+Detective CHARLES WELLS, Bomb Squad, New York City
+Police Department (NYCPD) furnished the following information
+to SA JAMES R. LYONS:
+
+On August 7, 1974, he and Officer BRIAN MURRAY were working an 8:00AM to 4:00PM tour of duty. At 9:55AM, he received a telephone call from the United Nations Security Section and was advised that a bomb was discovered in the United Nations General Assembly building.
+
+Detective WELLS further advised that he and Officer MURRAY responded to the United Nations General Assembly building, U.N. Plaza, and were led to the Meditation Room located on the first floor just inside the main lobby.
+
+WELLS observed five loose sticks of dynamite located in a corner of the room beneath a small wicker stool. He also observed a length of red firecracker type fuse which was placed on one stick of dynamite, a book of matches, and a partially burned Lucky Strike cigarette butt.
+
+WELLS stated that he removed the above described material to the NYCPD bomb truck. The explosive filler was transported to the NYCPD Range, Rodman's Neck, New York, and the dynamite wrappers, the book of matches, cigarette butt and fuse were taken to the NYCPD Bomb Squad office.
+
+Detective WELLS described the dynamite as five sticks of Hercules 60 Percent Gelatine Extra, manufactured August 21, 1973, and measuring 1 1/4 inches by 8 inches.
+
+Interviewed on 8/9/74 of New York, New York File # 185-229
+
+by SA JAMES R. LYONS:jas Date dictated 8/12/74
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency:
+and its contents are not to be distributed outside your agency. 3-

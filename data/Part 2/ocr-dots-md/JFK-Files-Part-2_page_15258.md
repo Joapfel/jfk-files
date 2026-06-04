@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_15258.png
+
+Convert to Markdown<table><tbody><tr><td>Cyprus</td><td></td></tr><tr><td>Embassy, Washington, D.C.</td><td>$ 393.67</td></tr><tr><td>UN Mission, New York City</td><td>339.00</td></tr><tr><td>Dominican Republic</td><td></td></tr><tr><td>Chancery, Washington, D.C.</td><td>929.16</td></tr><tr><td>UN Delegation, New York City</td><td>169.50</td></tr><tr><td>Ecuador</td><td></td></tr><tr><td>Embassy, Washington, D.C.</td><td>2,637.91</td></tr><tr><td>France</td><td></td></tr><tr><td>Chancery, Washington, D.C.</td><td>2,018.75</td></tr><tr><td>Consulate, Washington, D.C.</td><td>1,269.00</td></tr><tr><td>Ambassador's Residence, WDC</td><td>538.33</td></tr><tr><td>Greece</td><td></td></tr><tr><td>Embassy, Washington, D.C.</td><td>788.00</td></tr><tr><td>UN Delegation, New York City</td><td>678.00</td></tr><tr><td>Iraq</td><td></td></tr><tr><td>Chancery, Washington, D.C.</td><td>1,288.50</td></tr><tr><td>UN Delegation, New York City</td><td>509.50</td></tr><tr><td>Israel</td><td></td></tr><tr><td>Chancery, Washington, D.C.</td><td>3,242.83</td></tr><tr><td>Consulate, New York City</td><td>849.16</td></tr><tr><td>Japan</td><td></td></tr><tr><td>UN Delegation, New York City</td><td>678.00</td></tr><tr><td>Embassy, Washington, D.C.</td><td>3,114.50</td></tr><tr><td>Mexico</td><td></td></tr><tr><td>Chancery, Washington, D.C.</td><td>1,115.00</td></tr><tr><td>Nicaragua</td><td></td></tr><tr><td>Chancery, Washington, D.C.</td><td>1,115.00</td></tr></tbody></table>
+
+NW 88613 DocId:32199554
+
+Page 755

@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_13931.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>CLASSIFY AS APPROPRIATE</td>
+    <td>NOTE: SEE INSTRUCTIONS ON REVERSE BEFORE COMPLETING.</td>
+   </tr>
+  </table>
+
+ NW 88326 DocId:32989611 Page 186
+
+TREAT AS YELLOW
+
+62-116395
+
+SFP:1hb
+(4)
+
+ORIGINAL VIA LIAISON TO CENTRAL COMMUNITY INDEX IN CONNECTION WITH SENSTUDY 75. LFS 7-2-75
+
+5
+
+woc
+
+MOR-16
+
+5
+
+LFS
+7-2-75
+
+3791 (6.75)

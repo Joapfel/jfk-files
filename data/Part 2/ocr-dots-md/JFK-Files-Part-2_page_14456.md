@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_14456.png
+
+Convert to MarkdownSECRET
+
+MEMO TO: MR. BOARDMAN
+RE: COVERAGE OF MAIL TO THE U.S.S.R.
+
+and in view of the volume of material being sent from the U.S., their coverage is an extensive and expensive operation. He indicated that they had to set up an elaborate array of IBM machines to tally and tabulate the results. In addition a complicated indexing procedure was involved, as well as complex scientific examinations of the material. He said two or three hundred CIA employees are exclusively engaged on various facets of the coverage. Angleton also indicated that the cost of the operation was well over a million dollars a year. He further indicated that the coverage has been in existence in excess of a year and he stated that the sole purpose for the coverage was to identify persons behind the Iron Curtain who might have some ties in the U.S. and who could be approached in their countries as contacts and sources for CIA. Angleton indicated that CIA had successfully developed several sources through this means. He stressed the confidential nature of his information and stated that while other officials of CIA more directly concerned with the coverage were expecting a visit from the FBI, he was passing this along for our guidance.
+
+It would appear that our inquiries of the Post Office officials in New York have flushed out a most secret operation of CIA. The question immediately arises as to whether CIA in effecting this coverage in New York has invaded our jurisdiction. In this regard, it is believed that they have a legitimate right in the objectives for which the coverage was set up, namely, the development of contacts and sources of information behind the Iron Curtain, and according to Angleton they have had some success in this regard. At the same time, there is an internal security objective here in which, because of our responsibilities, we have a definite interest, namely, the identification of illegal espionage agents who may be in the United States. While recognizing this interest, it is not believed that the Bureau should assume this coverage because of the inherent dangers in the sensitive nature of it, its complexity, size and expense. It is believed that we can capitalize on this coverage by pointing out to CIA our internal security objectives and holding them responsible to share their coverage with us. Of course, we are not interested in the identities of the numerous persons in this country legitimately corresponding abroad. The Post Office has indicated there are approximately four thousand items of correspondence to the U.S.S.R. each day. Angleton said they have not come up with a microdot or secret message communication as yet.
+
+ACTION:
+
+1. On the basis of our inquiries conducted in New York, we are in a position and should, through Liaison, approach CIA, informing them that it has been indicated that their Agency has coverage of mail going to the (U.S.S.R.) We should get from them the details of their coverage and explain our interest in being furnished with the results of the coverage as it might affect internal security matters.
+
+SECRET
+
+SECRET

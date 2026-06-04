@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_13937.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. DeLoach
+DATE: 11/20/69
+
+FROM : W. C. Sullivan
+
+SUBJECT: FBI INTELLIGENCE LETTER FOR THE PRESIDENT
+
+This is to recommend that attached letter be approved for sending to all field offices to advise them of the initiation of captioned intelligence letter and to furnish them instructions for the submission of material suitable for use in this letter. Transmission of captioned letter to the President on a continuing basis has been approved in accordance with the Director's instructions to keep the President fully informed of significant intelligence developments within the purview of the Bureau's security responsibilities.
+
+RECOMMENDATION:
+
+That the attached letter be approved for field-wide dissemination. If approved, this memorandum should be returned to the Research-Satellite Section, Domestic Intelligence Division, for further processing of enclosure.
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED
+
+DATE 0-28-69 BY S. Peck/AF

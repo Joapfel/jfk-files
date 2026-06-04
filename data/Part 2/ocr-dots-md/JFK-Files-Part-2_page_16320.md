@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_16320.png
+
+Convert to Markdown"ABOUT FRED"
+
+As a result of an act of repression by America's "Pig Power Structure,"
+there now exists another "Political Prisoner."
+
+As of May 26, 1969, America once again has kidnapped from the oppressed masses, a man concerned solely with our liberation and freedom. Chairman of the Illinois Chapter of the Black Panther Party, Chairman Fred Hampton is temporarily (jailed) in a 'well known' Illinois Concentration Camp. We say, "temporarily jailed" because we know and fully understand that once you, the masses, realize just what Fred Hampton stands for, fights for, and what U.S. capitalism and U.S. imperialism stands for, you too will strive to FREE CHAIRMAN FRED; AND ALL OTHER POLITICAL PRISONERS.
+
+In regards to accomplishing 'our' mission, we ask for your support in attending
+the planned rally in Honor of Chairman Fred Hampton. As well as a day of en-
+joyment, this will also be a day of education for all. And it may even be a day
+of bringing about more unity to oppressed people of America.
+
+ALL POWER TO THE PEOPLE
+BLACK PANTHER PARTY
+(WESTERN SUBURBS)
+
+N\! 8\! 6\! 3  DocID:32199554

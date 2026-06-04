@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_15957.png
+
+Convert to Markdown# D. RULES OF THE CHICAGO CHAPTER OF THE BPP
+
+On May 1, 1969, Chicago chapter of the BPP circulated the following Rules of the Black Panther Party, Chicago, Illinois:
+
+Every member of the BLACK PANTHER PARTY throughout this country of racist America must abide by these rules as functional members of this party. CENTRAL COMMITTEE members, CENTRAL STAFFS, and LOCAL STAFFS, including all captains subordinate to either national, state, and local leadership of the BLACK PANTHER PARTY will enforce these rules. Length of suspension or other disciplinary action necessary for violation of these rules will depend on national decisions by national, state or state area, and local committees and staffs where said rules or rules of the BLACK PANTHER PARTY were violated.
+
+Every member of the party must know these verbatim by heart, and apply them daily. Each member must report any violation of these rules to their leadership or they are conter-revolutionary and are also subjected to suspension by the BLACK PANTHER PARTY.
+
+THE FOLLOWING RULES ARE:
+
+1. No party member can have narcotics or weed in his possession while doing party work.
+
+2. Any party member found shooting narcotics will be expelled from this party.
+
+3. No party member can be drunk while doing daily party work.
+
+4. No party member will violate rules relating to office and meetings of the BLACK PANTHER PARTY, ANYWHERE
+
+5. No party member will use, or fire a weapon of any kind unnecessarily or accidentally at anyone other than the enemy.
+
+6. No party member can join any other army force other than the BLACK LIBERATION ARMY.

@@ -1,0 +1,137 @@
+# JFK-Files-Part-2_page_11257.png
+
+Convert to MarkdownINDEX FOR SECTION 87D
+
+References are to page.
+
+**Forms (continued)**
+
+FD-128a, 27a, 42c, 77
+FD-154, 57
+FD-154a, 42b, 42c
+FJ--165, 27,77
+FJ--186, 50
+FD-305, 74, 78
+FD-305a, 78
+FD-306, 36
+FD-336, 39
+FD-366, 57, 81a
+FD-376, 81
+
+Fraud against the Government,
+20,21,22
+
+Geographical
+
+reference number of key facility
+shown on security
+index card, 49
+section of security index, 51,63
+Government employees, 25,70,80
+
+Handwriting, 29
+of key figures, 67
+of top functionaries, 70
+Hostile subjects, interviews
+of, 41
+Husband and wife, security
+investigations,
+72
+
+Identification record, 27
+Immigration and Naturalization
+Service,
+dissemination to,
+80, 81a
+Imprisoned subjects in security
+index, 54,57,60
+Inactive section of security
+index, 56
+Indices, check of, 34,72
+Individuals
+
+to be investigated, 22
+traveling abroad, 33
+against whom stops are
+placed, 34
+who are included in security
+index, 34
+who travel behind iron
+curtain, 34
+with tours when no subversive
+information on
+individual, 33a
+with tours when there is
+subversive in-
+formation on
+individual, 33a
+with foreign diplomatic status,
+26
+
+Informants, cancellation of
+security index
+cards pertaining
+to, 60
+
+Interviews
+
+Bureau approval by rubber
+stamp, 40
+Bureau authority, 39,40a
+conditions for, 40
+conducting at place of
+employment, 40a
+content and form of letter to
+Bureau requesting
+authority for, 39
+contents of letter containing
+results of, 42
+determine willingness to testify
+during, 41
+evaluation of, 45b
+forty-five-day extensions of
+Bureau authority, 40
+no report needed afterward, 40a
+of hostile subjects, 41
+of individuals connected with
+institutions of
+learning, 24,
+25
+of individuals who have traveled
+behind iron
+curtain, 34
+of section A, reserve index
+subjects, 39
+of security index subjects,
+38
+of subjects connected with
+labor unions, 41
+of subjects who express desire
+for, 42
+on SAC authority, 38
+preparations for, 40
+purpose of, 38
+recontact without Bureau
+authority, 40a
+results not affecting security
+index status, 41
+signed statements in connection
+with, 41
+to be conducted within 45 days,
+40
+when current report necessary
+in order to
+request Bureau
+permission, 39
+when current report not necessary
+in order to request
+Bureau permission, 39
+when discontinue, 40a
+when report needed after, 41
+with Bureau authority, 39
+
+NW 88321 Doctd:32989529 Page 591
+
+7-13-65
+
+82c

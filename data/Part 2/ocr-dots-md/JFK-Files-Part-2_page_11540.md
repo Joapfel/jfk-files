@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_11540.png
+
+Convert to MarkdownII. Mark canceled across face of each such card being retained and file it in the reserve index.
+
+III. Consider whether the subject's name should be placed in section A of the reserve index. If his name should be included in section A, submit form FD-122a,
+
+[IV. The above instructions do not apply in the case of individuals removed from the security index based upon activity in the Nation of Islam. Security index cards in such cases should be destroyed.]
+
+(h) Subjects of Chinese extraction
+
+In any communication recommending cancellation of a security index card on a subject of Chinese extraction, such communication must contain the words "Other - Chinese." This regulation relates specifically to those subjects placed on the security index following a recommendation submitted in accordance with the instructions contained in section 87D 7b (4) (j) above.
+
+(II) Priority apprehension program (DETCON)
+
+(a) Purpose
+
+Many individuals included in security index because of their training, violent tendencies, or prominence in subversive activity are extremely dangerous and would be more inclined to commit or capable of committing overt acts against the U. S. in time of national emergency than would others in security index. Degree of dangerousness of such individuals is so pronounced that in interest of security they must be immobilized in the least possible time prior to others in security index. The administrative procedure developed to make apprehensions on a priority basis is referred to as the detcom program. Subjects designated for priority apprehension are referred to as detcom subjects.
+
+Individuals in security index tabbed detcom would be arrested first in event of a limited but grave emergency, probably without the arrest of other security index subjects.
+
+In an all-out emergency, all subjects whose names are in the security index will be considered for immediate apprehension.
+
+Subjects tabbed for detcom should comprise a hard core of subversives. Each individual case should stand on its own merits and decision to consider subjects for priority of apprehension should be based on subject's subversive activities and revolutionary tendencies.
+
+(b) Subjects to be tabbed detcom
+
+Each security index subject should be considered for detcom tabbing (priority of arrest) who falls within one or more of following categories:
+
+I. All top functionaries and key figures
+
+If. Currently active communists or members of any basic revolutionary organization (active within past year) when there is evidence of one or more of following:
+
+(A) Activity as local organizers or leaders in the organization
+
+(B) Special training at Lenin School or Far Eastern Institute in Moscow
+
+(C) Experience as picket captains, strong-arm men, or active participation in violent strikes, riots, or demonstrations
+
+(D) Violent statements or strong revolutionary tendencies as shown by their activities

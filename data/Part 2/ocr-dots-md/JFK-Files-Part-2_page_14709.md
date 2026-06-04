@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_14709.png
+
+Convert to Markdownagainst the United States by the Soviets. The embassies of these countries in Washington and their missions to the United Nations in New York are focal points for their espionage activities. On 3 of February, 1969, there were approximately 230 Soviet personnel and 117 satellite personnel with intelligence assignments operating out of their respective official establishments.
+
+This represents since February, 1959, a 210% increase in Soviet intelligence personnel and a 100% increase in satellite intelligence personnel.
+
+A Consular Convention between the United States and the Soviet Union became effective July 13, 1968. This would grant diplomatic immunity from criminal jurisdiction for Soviet Consular personnel in the United States and United States Consular personnel in the Soviet Union. On August 13, 1968, the Soviet Foreign Ministry proposed establishment of a Soviet Consulate General at San Francisco, California, in return for a United States Consulate General in Leningrad. There has been no progress in negotiations regarding establishment of Consulates since last August. Establishment of a Soviet Consulate in San Francisco will increase Soviet capability for espionage.

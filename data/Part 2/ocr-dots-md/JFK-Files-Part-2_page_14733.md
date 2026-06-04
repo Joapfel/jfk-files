@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_14733.png
+
+Convert to Markdown# S C REQUEST
+
+## PART II
+
+### Item 1
+
+Retain
+Excised portions denoted in red.
+Note - when, if ever, delivered - further deletion necessary
+
+NW 88613 DocId:32199554
+Page 230

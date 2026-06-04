@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_17149.png
+
+Convert to MarkdownFBI
+
+Date: 11/5/69
+
+Transmit the following in
+
+(Type in plaintext or code)
+
+Via
+
+(Priority)
+
+TO : DIRECTOR, FBI
+FROM : SAC, CHICAGO
+SUBJECT: BLACK PANTHER PARTY
+RM;
+DEMNOV
+
+Copies of this LHM are also being furnished the USA, USSS, 113th Military and OSI. The Chicago PD has also been orally advised of the contents of this LIM.
+
+RMM
+
+Approved:
+
+Sent M For NW 88613 DocId:3219955 special Agent in Charge Page 2646

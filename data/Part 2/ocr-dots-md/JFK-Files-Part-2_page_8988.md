@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_8988.png
+
+Convert to MarkdownAmistad o contacto con un tal Carol J. Soles.- Detalles, americano residente en Corpus Christy, Texas, dueño de un Fiat 62, pacas 63 Texas KU-94-95, Silvia estaba con Soles en este coche en el mes de enero 1963 y se cree que tuvieron relaciones íntimas.
+
+Amistad o contactos con un tal Tomas L. Ross - prueba - nombre supuesto.
+
+Amistad o contactos con un tal Richard J. Aranda, americano residente en Texas, dueño de un Cadillac 1950, placas de Texas 1963 JF-96-75. Silvia estaba con Aranda en el coche arriba mencionado, en el mes de enero de 1963, y se cree que tuvieron relaciones íntimas.
+
+Contacto con Harvey Lee Saffe - Detalles, americano residente en San Antonio, Texas, dueño del Chevrolet 1959, el cual estaba estacionado frente de la casa de la hermana de Silvia en el mes de enero de 1963.
+
+Contacto con Ramón Palomino - Detalles.
+
+Contacto con Larry Fister - prueba. Nombre supuesto.
+
+¿Cómo fue la primera vez que Silvia sabía del complot de asesinar al presidente Americano? Detalles.
+
+¿Otras personas metidas en el complot?
+
+¿Que papel tuvo Durán en el complot?
+
+¿Cuánto se pagó al asesino?
+
+¿Fuera de Durán, las demás personas en la embajada cubana con quien tuvo contacto Oswald?
+
+¿Cuánto recibió Durán por el papel en el Complot?
+
+¿Por qué quiso Durán irse a Cuba?
+
+¿Quién dio a Durán las instrucciones para el viaje a Cuba?
+
+¿Hace cuanto tiempo Durán trabajó con el G-2 cubano?

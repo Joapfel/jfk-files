@@ -1,0 +1,6 @@
+# JFK-Files-Part-2_page_12549.png
+
+Convert to MarkdownIn all of the above cases recommend removal from ADEX by FD-122 with attached succinct summary of facts. In all instances except c., submit current LHM or report for dissemination to Secret Service at FBIHQ and also furnish report or LHM to Secret Service locally.
+
+12. Reevaluation of ADEX status
+Prepare administrative tickler concerning each ADEX subject to come up at two-year intervals. This tickler, which is independent of any assignment card, should prompt careful assessment of case to insure subject still falls within ADEX criteria.

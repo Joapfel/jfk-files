@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_15782.png
+
+Convert to MarkdownIn relation to the killings of Mark Clark and Fred Hampton, in Chicago, Illinois, on December 4, 1963, further advised that Clark and Harris departed Peoria, Illinois, together on or about December 1, 1969. advised that Clark borrowed a car, a 1965 Ford Mustang, in order to help move Harris to Rockford, Illinois. advised that Clark, after dropping Harris off in Rockford, Illinois, was to go to Chicago, Illinois, for instructions in operating the EFP in Peoria, Illinois. No advised that evidently Harris decided to accompany Clark to Chicago, Illinois, as Harris was arrested in Chicago on December 2, 1969. He advised in the event Harris makes bond, he will probably return to Rockford, Illinois. advised that another Panther, Edward McChriston from the Peoria, Illinois branch of the EFP also went to Chicago, Illinois, in late November, 1969, as a warrant was issued for his arrest as he failed to appear in court on local charges. advised that McChriston may also be residing in the Rockford, Illinois, area as he has relatives in the area.
+
+advised that since the death of Mark Clark on December 4, 1963, until present date, December 14, 1969, the Peoria, Illinois branch of the EFP has not held any meetings and that the new leader of the Peoria, Illinois EFP will be Leon Harps.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

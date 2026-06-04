@@ -1,0 +1,67 @@
+# JFK-Files-Part-2_page_10651.png
+
+Convert to Markdown(UNITED) STATES GOVERNMENT
+
+Memorandum
+
+TOP SECRET
+
+TO Mr. W. R. Wannall
+
+FROM W. O. Cregar
+
+SUBJECT: SENSTUDY 75
+
+1 - Mr. J. B. Adams
+DATE: 7/23/75
+
+1 - Mr. J. A. Mintz
+1 - Mr. W. R. Wannall
+1 - Mr. V. V. Kolombatovic
+1 - Mr. W. O. Cregar
+1 - Mr. T. J. McNiff
+
+Assoc. Dir.
+Dep. AD A
+Dep. AD B
+Asst. Dir:
+Admin.
+Comp. Syst
+Ext. Affairs
+Files & Co
+Gen. Inv. -
+Ident.
+Inspection
+Interv.
+Laboratory
+Plan. & Ev
+Spec. Inv. -
+Training -
+Legal Coun.
+Telephone R
+Director Sec''
+
+SYNOPSIS:
+
+On 6/20/75, we were advised that CIA had in 1973 prepared a 693-page document citing instances wherein CIA operations may have exceeded its mandate. This document, in sanitized form, was reviewed by Intelligence Division personnel and was found to contain many references to this Bureau, some of which dealt with operations of an extremely sensitive nature. The Senate Select Committee on Intelligence Activities (SSC) has had access to this document. At the specific request of this Bureau, CIA on 7/15/75 made available 190 pages of the document believed to be of interest to this Bureau. These pages are submitted as enclosures to this memorandum, which highlights some of the contents thereof. Items so highlighted include various technical support CIA has provided this Bureau in the area of electronic coverage of embassies in the United States, handling of Iron Curtain country defectors; CIA notional and proprietary operations, some of which were used to procure technical equipment for this Bureau; CIA-FBI cooperation in training matters relating to counter-espionage responsibilities; interception of mail from behind the Iron Curtain; CIA briefing and debriefing of FBI sources traveling abroad and CIA involvement and interest in domestic dissident groups. Mention is made in this document that while McCone was CIA Director, conversations over his phone and in his office were recorded. As SSC has had access to this document, attempts are being made to fully identify all references for purpose of possible damage assessment to this Bureau.
+
+AUG 5 1975
+
+ENCLOSURE
+
+Enclosures
+
+TOP SECRET
+
+62-116395
+
+TJM:lhb lhb
+(7)
+
+84 5 1975
+
+ROUTE IN ENVELOPE
+
+CONTINUED - OVER
+
+HWF 50953 DocId:32176434 Page 2

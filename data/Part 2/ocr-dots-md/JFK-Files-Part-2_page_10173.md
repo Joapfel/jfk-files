@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_10173.png
+
+Convert to Markdown94TH CONGRESS
+2D SESSION
+
+H. RES. 1073
+
+IN THE HOUSE OF REPRESENTATIVES
+
+MARCH 4, 1976
+
+Mr. EDGAR submitted the following resolution; which was referred to the Committee on House Administration
+
+RESOLUTION
+
+1 Resolved, That the report of the Select Committee on
+
+2 Intelligence filed on January 29, 1976, and entitled "Report
+
+3 of the Investigations of the United States Intelligence Agencies and Activities" shall be printed as a House document.
+
+V
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1/19/76 BY SDAUM
+
+File
+S-JM
+
+NW 88326. DocId:32989603 Page 214

@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_15777.png
+
+Convert to MarkdownMARTY FAYE
+
+Can I ask you sir, how your fees are paid?
+
+CHARLES GARRY
+
+Our fees are paid by gratitude, being able to make a contribution to a better world. Until I got involved with the Black Panther Party I was bringing in between $150 - 200,000 a year in fees to the firm I'm with. Since October 27, 1968, I've brought in $34,000 and our costs alone in the HUEY NEWTON case were over $70,000. I'm not talking about expenses and the cost of defending and representing members of the Black Panther Party, ELDRIDGE CLEAVER, BOBBY SEALE and all others. The firm I'm with is financially being horribly drained. But, we are getting the gratitude, the gratitude of being able to do something within yourselves, to make a contribution, for the responsibilities that the white society has had for 400 years and has failed. And it is our responsibility, and I hope my fellow white citizens of America, will join us and make some contributions, financially. The Black Panther Party needs money. Our firm needs some money to be able to carry on. Other lawyers are in this fight. WILLIAM KUNTSLER, LEONARD WEINGLASS, are in that courtroom before Judge HOFFMAN day in and day out, and I'm satisfied that that Judge, no matter what the verdict is, intends to send BILL KUNTSLER and LEONARD WEINGLASS to jail for contempt of court.
+
+NW 88613 DocId:32199554 Page 1274

@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_10101.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D. C. 20535
+
+Addressee: SENATE SELECT COMMITTEE
+
+☐ LTR ☑ LHM ☐ Memo ☐ Report dated 2/20/76
+
+U. S. Senate Select Committee (SSC). (SSC)
+
+Ca: on of Document: Letter 7/9/76, page 3, pargraph 2,
+subsection A; Dept letter 7/15/76)
+
+Originating Office: FBI
+
+Delivered by:
+Received by:
+Title:
+
+Date: 2/27/76
+
+Return this receipt to the Intelligence Division, FBI
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED.
+DATE 12/20/76 BY SD:AM/PR
+
+ENCLOSURE

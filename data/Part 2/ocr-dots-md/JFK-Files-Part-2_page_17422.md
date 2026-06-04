@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_17422.png
+
+Convert to MarkdownHAMPTON was paid $900.00 and JONES was paid $2,500.00 for their appearances at the campus according to PAUL WADE, and this money came from parties and dances at the campus.
+
+There is a party which will be held tonight in Maywood to celebrate the birthday of HUEY NEWTON. There will be a meeting tomorrow night (2/18/69) at ROBERT BRUCE's house.
+
+The party was held on 2/17/69, at "The Nursery" and about 25 BPP members were present including HAMPTON, BRUCE, WALTER ALLEN, PETER HAMMACK, and WESLEY WADE. A collection of $60.00 was taken and sent to NEWTON.
+
+There was a meeting on 2/18/69, at BRUCE's house with 15 persons in attendance, including a few girls. HAMPTON, BRUCE, ALLEN, KENNY BELL, TYRONE GLADNEY, WESLEY WADE, and one JOE BROWN were present. BROWN has been out of military service for about 6 months and is believed to be living in Broadview, Illinois. The main purpose of the meeting was to plan a big push against white people this summer to move them out of the black neighborhoods and business areas everywhere, Maywood included. Details were not discussed. A flyer will be passed out soon about this matter.
+
+FRED HAMPTON does not want Negro youths going into military service. When he hears that someone has been drafted he tells them not to go, particularly if they are members of the BPP.
+
+He talked to MARCELLES LACY and JOE WATTS, two Negro youths from Maywood, when they were drafted, but they both went into the service anyway.

@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_18752.png
+
+Convert to Markdown1/12/59
+
+TO: DIRECTOR, FBI. (100-361800)
+
+FROM: SNG, XCN YONK. (05-15026)
+
+Enclosed herewith are the original and
+the copies of a letterhead memorandum for the Bureau
+ofocy FSA for San Francisco and Washington Field.
+
+This letterhead memorandum reflects information
+provided by CANCELled Aachen JAU's, home reporter, CHS,
+CWS (戶外雑誌 identity) to SA EDWARD F. GANEER on
+1/27/59.
+
+It has been classified confidential
+because its collection investigation of a Soviet national,
+WILLIAM, resulted in its sensitivity nature requires state-
+ECONOMIC IMPROVAL.
+
+5-Caseau (100-301063) (Fins. 5) (H1)
+(1 - Mlle 105-7502)(~~R. Bülle 105-2333~~ ANL INKON JAPAN)
+1-Leean Precolingo (Info) (Lines. 1) (AM)
+1-Washington Field (Info) (Lines. 1) (AM)
+1-New York (105-33634) (~~1-New York (105-33634)~~)
+1-New York (134-3315)
+1-New York (16-19020)
+
+LTD: MD (634) (II)
+
+EXCD 1/23/59
+
+63 JAN 23 1959
+
+ORIGINAL COPY

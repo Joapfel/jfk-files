@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_15977.png
+
+Convert to MarkdownII. CHICAGO BPP RELATIONS WITH ORGANIZATIONS AND OTHER GROUPS
+
+A. Chicago BPP and SDS
+
+On January 10, 1969, Chicago BPP leaders spoke
+to group at University of Illinois, Urbana, Illinois,
+which was sponsored by SDS Chapter at University of Illinois.
+
+1/10/69)
+
+On February 10, 1969, leaders of SDS and BPP
+at Chicago discussed plans to hold rallies on February
+16, 1969, and February 17, 1969, throughout the United
+States in honor of birthday of HUEY P. NEWTON, National
+BPP leader, who is presently serving a 2-15 year prison
+sentence.
+
+2/10/69)
+
+On April 9, 1969, rally held at Chicago, Illinois,
+which was jointly sponsored by SDS and BPP members from
+Chicago. Purpose was to raise money for individuals under
+indictment as result of disturbances at Democratic Con-
+vention which was held at Chicago, August, 1968.
+
+BOBBY SEALE, National BPP leader, spoke to group,
+as did FRED HAMPTON and BOBBY RUSH, Chicago BPP leaders.
+
+4/9/69)
+
+It was learned on April 6, 1969, that Chicago
+Chapter of SDS is going to do mass leafletting on April 8,
+1969, in Chicago universities and colleges. The leaflets
+are in support of the Black Panther Party and especially
+in support of BOBBY LEE RUSH, leader of Chicago BPP who
+is to be tried on a murder charge.
+
+SDS show of support is also for 19 Chicago
+BPP members who were recently arrested as well as for
+BOBBY SEALE, National BPP leader, who has been indicted
+for crossing state lines to incite a riot.
+
+4/9/69)

@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_19000.png
+
+Convert to MarkdownSECRET
+
+SAMUEL ADASON JAFFE
+
+Jaffe also advised that he has been in contact with Boris G. Strelnikov, Pravda correspondent in Washington, D.C.
+
+SECRET
+23
+
+NWW 88326 DocId:32989704 Page 294

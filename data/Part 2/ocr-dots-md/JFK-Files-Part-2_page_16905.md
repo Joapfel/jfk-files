@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_16905.png
+
+Convert to Markdown# Military Training and Education
+
+A 4-week mandatory class for all members, (men, Women, and Seniors), the purpose of all non-member classes is to develop military staff, classes conducted in private methodology, and stressing individual discipline at all times. • Ex. If upon the completion of the course, all trainees should take a firm stand; all standing position and remain in this manner until given the order to be issued. All classes or class activities should begin with: 1. All Power to the People and 2. War on Poverty, the Purpose of the Class is to give even every member a basic practical knowledge of the People's living standards. The Political Education Classes (P.E.) reason being a military mind without a people's ideology is a false bill, and the people don't need no Pigs. Classes should be conducted in an orderly manner at all times.
+
+## Structure of the Classes
+
+### I. Discipline:
+
+A. Discipline is the exact execution of orders resulting from an intelligentilling methodology rather than simply by habit or fear. Discipline is necessary to secure excellence,
+
+DocID:32199554
+Page 2402

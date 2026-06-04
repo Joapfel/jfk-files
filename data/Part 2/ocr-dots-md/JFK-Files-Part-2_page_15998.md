@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_15998.png
+
+Convert to MarkdownAPPENDIX
+
+SOCIALIST WORKERS PARTY
+CHICAGO BRANCH
+
+In May, 1968, a source advised that it was his understanding that the currently active Chicago Branch of the Socialist Workers Party (SWP) was one of the founding branches of the SWP at a 1938 Chicago Trotskyist Convention, and it follows the aims and principles of the SWP which maintains national headquarters in New York City.
+
+Members of the Chicago Branch serve as SWP national functionaries, and per capita membership dues and a sustaining fund quota are sent by this branch on a monthly basis to SWP national headquarters.
+
+The SWP has been designated pursuant to Executive Order 10450.

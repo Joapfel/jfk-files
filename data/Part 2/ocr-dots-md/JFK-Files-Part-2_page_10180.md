@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_10180.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: Martin Luther King, Jr.
+100-106670
+
+of this matter which reportedly was to lead to a
+judgement by the Department as to whether or not the
+investigation of King's assassination should be reopened.
+
+ACTION:
+
+None. For information.

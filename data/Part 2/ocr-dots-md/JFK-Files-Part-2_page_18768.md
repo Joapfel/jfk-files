@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_18768.png
+
+Convert to MarkdownSF 65-4257
+JTK/lp
+
+"U.S. Naval Intelligence figures were cited for March, 1956. Out of 183 'non-communist registered vessels' grossing 1,130,560 tons in trade to and from the Chinese Mainland, 59 were British vessels, 15 Japanese and the rest European, BOYD pointed out. By October, 1956 the number of ships had grown to 214 a month, he said. Of these, 43 vessels were British, 24 Japanese and the rest European.
+
+"We trade with Russia and the satellites, why not China?", BOYD asked.
+
+"You cannot ignore the world's most populated country forever. Forever is a very, very long time."
+
+Another release dated Tuesday, January 7, 1958, stated "Unless the United States lifts its embargo and recognizes Red China it will forfeit control of Asia to the Soviets, JIM ROBINSON, NBC news correspondent in Tokyo, warned a meeting of the San Francisco Area World Trade Association of the San Francisco Chamber of Commerce today during a luncheon at the Fairmont Hotel.
+
+"While the Chinese have had little love for the West there is still time to woo them away from the Russians,' he continued.
+
+"To do this the U.S. State Department must be realistic and face up to the fact that the Government of Communist China is a going concern and that China, with 640 million mouths to feed, has had only Russia to turn to because of the trade embargo.
+
+"It is an illusion to believe that China is seething with revolt and that an invasion by the Chinese Nationalists would bring the Communist regime to its knees.
+
+"Red China's so-called allegiance to Moscow is scaled to her dependency on the Russians for food and machinery.
+
+"Breaking the U.S. embargo would counterbalance Russia's influence greatly."
+
+U.S. Bureau of Customs, San Francisco, advise the present embargo prohibits any American vessel to visit Red China ports. Exporters to Red China must apply for an export license through the Bureau of Foreign Commerce, Washington, D.C., and any imports must be approved by Foreign Funds Control Section, Federal Reserve Bank, New York City. Customs officials have advised that there is no U.S. trade with Red China at the present time.
+
+There are being enclosed for the NYO four photostats of news releases and excerpts from San Francisco newspapers obtained from World Trade Division, setting forth names of local individuals desirous of trade with Red China.

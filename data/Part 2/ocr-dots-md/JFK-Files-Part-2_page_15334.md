@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_15334.png
+
+Convert to MarkdownSAC, New York
+
+(Orig & 1)
+
+December 3, 1956
+
+Director, FBI (65-63113)
+
+PERSONAL ATTENTION
+
+INTELLIGENCE COVERAGE OF DIPLOMATIC REPRESENTATIVES
+OF FRIENDLY COUNTRIES
+
+In the recent past, and particularly during the month of November, I have noted that your office has been forwarding a great volume of intelligence material to the Bureau. I have reference to the information produced by your established sources and relating to the tense international situations, especially those created by the crises in the Middle East and Eastern Europe. Much of the material has been of a high intelligence nature or potential and, upon its receipt at the Bureau, has been given within-the-hour dissemination to other agencies and departments, particularly the Department of State. The latter Department has informed me that it has placed a high evaluation on some of this intelligence and has found it most useful in its day-to-day operations.
+
+I am writing to you to stress the importance of continuing the flow of this vital information to the Bureau to enable us not only to maintain but to increase the efficiency of our operations in this field.
+
+It is recognized that the establishment of additional sources for the production of this material and the servicing of these sources have called for an even greater application to their duties on the part of the personnel of your office assigned to this work. I request that you convey my personal appreciation to them for their past efforts in this connection and advise them that upon their continued efforts rests, to a large extent, the degree of success of this phase of the Bureau's over-all intelligence program.
+
+WRW:pbb
+(4)
+
+RECORDED-61
+
+16 DEC 4 1956
+
+<table><tr><td>MAILED &amp;</td></tr><tr><td>FEB 3 1956</td></tr><tr><td>COMM-FBI</td></tr></table>
+
+DEC 6 1956
+
+Dec 6 1958
+
+NW 88613 DocId:32199554
+
+Page 831

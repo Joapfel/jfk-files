@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_15651.png
+
+Convert to MarkdownIt is also a proven fact and reality that Dalev's task force makes daily and weekly raids on the Black community. They murdered little John Soto, 16 years old. They murdered Michael Soto, 20 years old, and shot wildly and unconcerned through every window in one of the buildings in the Henry Honer project, injuring scores of children. They murdered Jimmy Tucker and untold others.
+
+JAKE WINTERS understood that the only way to stop fascist pig forces from invading and slaughtering Black people and people period and that is by defending yourself with arms in hand: He didn't talk about Black Capitalism for surviving nor did he talk about teaching "Pork Chop" culture Nationalism for surviving like Ron Karenga's US organization in L.A. JAKE WINTERS was 18 years old and he made a far greater commitment than most men will ever make in their entire life time. This brother was an honor student, a graduate of Engleworth High School who turned down five scholarships to work for the People. He helped as much as he possibly could at the Free Breakfast for Children Centers, plus he worked 7 days a week at the Post Office to bring in money to keep the Centers operating.
+
+JAKE WINTERS is the highest personification of Huey P. Newton and Malcolm X. The spirit of these revolutionaries is manifested in each member of the Black Panther Party and we will always remember JAKE WINTERS. Because of JAKE WINTERS we will intensify the struggle; because of JAKE WINTERS we will continue serving the poor oppressed people -- the Proletariat.
+
+LONG LIVE THE SPIRIT OF JAKE WINTERS
+ALL POWER TO THE PEOPLE
+RIGHT ON, JAKE
+SEIZE THE TIME
+
+DEPUTY MINISTER OF INFORMATION
+R. CHAKA WALLS
+ILLINOIS CHAPTER BLACK PANTHER PARTY
+2350 W. MADISON CHICAGO, ILLINOIS
+
+FUNDS NEEDED FOR BREAKFAST PROGRAM
+
+24-A
+
+NW 88613 DocId:32199554
+
+Page 1148

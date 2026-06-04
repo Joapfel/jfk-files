@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_9486.png
+
+Convert to Markdown# APPENDIX
+
+## LEAGUE OF REVOLUTIONARY BLACK WORKERS
+Also known as
+Dodge Revolutionary Union Movement (DRUM)
+
+A source advised on April 22, 1970, that the League of Revolutionary Black Workers (LRBW) is a black extremist labor union, with headquarters at 179 Cortland, Highland Park, Michigan, in the greater Detroit metropolitan area. Source advised that the LRBW is attempting to oust the United Auto Workers (UAW) from their position as bargaining representative for black workers in the Detroit area automotive plants. Source advised that the LRBW has used threats of violence against both black and white supervisory personnel and UAW leaders in an attempt to intimidate them into an agreement with LRBW demands. The LRBW has referred to the automotive industry and the UAW as "racist".
+
+A second source advised that membership in the LRBW is limited to Negroes only, by virtue of the LRBW constitution which states "membership is denied to all honkies due to the fact that said honkey has been the historic enemy, betrayer and exploiter of black people." Membership in the LRBW is less than 25 persons.
+
+The second source also stated that the LRBW had suborganizations operating at Ford Motor Company which was known as the Ford Revolutionary Union Movement (FRUM) and Eldon Avenue Gear and Axle Plant (ELRUM) as well as other assembling and supplying plants, but that at the present the LRBW is active only at the Dodge Main Assembly Plant in Hamtramck, Michigan. This suborganization is known as Dodge Revolutionary Union Movement (DRUM). The other suborganizations are now defunct.

@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_16917.png
+
+Convert to Markdown3. Air-train, air-pipe.
+4. Water-train, (pump).
+5. Locomotive.
+
+ execution of: (All kind of
+ A. Officiali (Cable)
+ B. Military (rank)
+ C. State
+ D. Redesaf
+ E. Management and
+ communication, justly, Charles
+ f. Emergency Service)
+
+Other Areas:
+A. Air in Stowe & calculated for direct
+B. Police Storage (to be provided for supply partly)
+C. The necessary Storage (the depriure p., etc.,
+       = Traffic, etc. amount)
+D. The triptyche of three depots.
+
+Other Libraries:
+Served Jef a Libraie in March.
+(Fair Date: March 29th.)
+(To be done by the
+in near future. (Ongoing))
+Service SdV. (Legally M.B.) the basic
+job to do.
+The Pliage of cities, calculations, or any
+18 th the place of cities, calculations, or any
+178

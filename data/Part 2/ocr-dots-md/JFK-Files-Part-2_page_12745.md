@@ -1,0 +1,149 @@
+# JFK-Files-Part-2_page_12745.png
+
+Convert to MarkdownINDEX FOR SECTION 87D
+References are to page.
+
+Informants (See security informants.)
+
+Interviews
+
+Bureau approval by rubber stamp, 40
+
+Bureau authority, 39, 40a
+
+conditions for, 40
+
+conducting at place of employment, 40a
+
+content and form of letter to Bureau requesting authority for, 39
+
+contents of letter containing results of, 42
+
+determine willingness to testify during, 41
+
+discontinuing, 40a, 41
+
+evaluation of, 45b
+
+forty-five-day extensions of Bureau authority, 40
+
+of hostile subjects, 41
+
+of individuals connected with institutions of learning, 24, 25
+
+of individuals who have traveled behind iron curtain, 34
+
+of section A, reserve index subjects, 39
+
+of security index subjects, 38
+
+of subjects connected with labor unions, 41
+
+of subjects who express desire for, 42
+
+on SAC authority, 38
+
+preparations for, 40
+
+purpose of, 38
+
+recontact without Bureau authority, 40a
+
+reinterviews, 42
+
+report
+
+needed after, 41
+
+not necessary afterward, 40a
+
+when requesting Bureau permission, 39
+
+results not affecting security index status, 41
+
+signed statements in connection with, 41
+
+to be conducted within 45 days, 40
+
+with Bureau authority, 39
+
+Investigations
+
+aliens, 26, 80 (See also aliens.)
+
+faculty members, 24
+
+members of labor unions, 29, 39, 41
+
+naturalized citizens, 26, 80
+
+purpose, 19
+
+restrictions on, 24
+
+scope of, 26
+
+students, 24
+
+Investigative procedures, 26
+
+techniques, 34
+
+file reviews, 34
+
+photographic surveillances, 35, 37
+
+physical surveillances, 35, 37, 38
+
+private firms, records, 36
+
+public source information, 36
+
+security informants, 34
+
+Key facilities, 64
+
+character, 73
+
+Delimitations Agreement, 64
+
+employees considered for priority I, 63
+
+included in security index, 65
+
+list, 49, 64
+
+responsibility, 64
+
+agency having security, 49, 58, 58a, 65
+
+status of reports of subjects employed in, 66, 73
+
+when to investigate individuals employed in, 64
+
+Knowledge of aims and purposes, 29
+
+Labor union membership, 29
+
+Labor unions, 29, 39, 41
+
+Law enforcement officers not to act company SAs on security investigations, 26
+
+Letterhead memorandum, 33, 33a, 41, 42c, 57, 58, 58a, 60, 72, 74, 78, 81, 81a, 82
+
+Letters in lieu of reports, security index cases, 73
+
+List
+
+key facilities, 49, 64
+
+top functionaries, 67
+
+Longshoremen, dissemination of information concerning, 80
+
+Lumping information in reports, 76
+
+82d
+2-13-70
+
+NWO 88321 DocID:32989529 Page 2079

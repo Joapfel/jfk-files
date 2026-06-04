@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_9521.png
+
+Convert to MarkdownDE 157-3075
+
+The NCCF is currently operating the Free Breakfast for School Children Program at three locations in Detroit, feeding a total of approximately 60 persons.
+
+The NCCF also began a Free Clothing Program on December 5, 1970, which is scheduled to be open every Saturday.
+
+**DE T-1**
+December 7, 1970
+
+The NCCF branch at Flint, Michigan, has a Free Breakfast for School Children Program which operates five days a week and feeds approximately 50 children per day.
+
+**DE T-26**
+December 11, 1970
+
+At approximately 1:45 a.m., December 25, 1970, a marked police vehicle driving south on 17th Street from Magnolia Street, Detroit, observed a man who they believed had a pistol in his hand. The police car, upon circling the block, found same Negro male standing on the proch of 3591 17th Street, an office of the NCCF, with a rifle, which he pointed at the police car, which immediately left.
+
+**DE T-3**
+December 28, 1970
+
+### III. TEACHING OF THE REVOLUTIONARY PROGRAM
+
+Political education classes will be held at Community Information Center Number 1, 611 Continental and Center Number 2, 3595 17th Street, beginning Sunday, December 13, 1970.
+
+**DE T-1**
+December 9, 1970
+
+The Detroit NCCF has been studying the following U.S. Army Manuals:

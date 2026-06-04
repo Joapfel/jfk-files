@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_16659.png
+
+Convert to MarkdownDEPARTMENT OF PUBLIC SAFETY
+
+ROSS V. RANDOLPH
+Director
+
+FIREARM OWNER'S IDENTIFICATION
+DIVISION
+
+Manley D. Hawks
+Superintendent
+
+SENATE BILL 1350
+75th General Assembly - 1967
+Approved August 3, 1967
+Effective July 1, 1968
+
+SENATE BILL 1351
+75th General Assembly - 1967
+Approved August 3, 1967
+Effective August 3, 1967
+
+HOUSE BILL 1258
+75th General Assembly - 1967
+Approved August 3, 1967
+Effective August 3, 1967
+
+6

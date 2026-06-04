@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_11506.png
+
+Convert to Markdown(6) Character
+
+(a) Key figures and top functionaries
+Internal Security - followed by the letters designating the organizational affiliation or nationalistic tendencies.
+Examples:
+- Internal Security - C
+- Internal Security - SWP
+
+(b) Others
+Security Matter - followed by the letters designating the organizational affiliation or nationalistic tendencies.
+Examples:
+- Security Matter - C
+- Security Matter - SWP
+- Security Matter - X (native fascist)
+- Security Matter - M (miscellaneous)
+
+When a subject is deleted as a key figure, the character shall be changed from internal security to security matter in the first report following the deletion and all subsequent reports. When a security matter subject is designated a key figure, the first report after the designation and all subsequent reports shall bear the internal security character. In any event, if subject is employed in a key facility, add the additional characters: "Internal Security Act of 1950" if the organizational activity of the subject is of a communist nature.
+
+(7) Deleted
+
+(8) Status
+All cases shall be carried in a pending status until all active investigation required by the preceding instructions has been conducted. Thereafter, the status shall be as follows:
+
+(a) Top functionaries
+I. Pending inactive
+(A) Reports are to be submitted quarterly. Forty-five days prior to the date a quarterly report is due, each such case shall be placed in a pending-active status for the preparation of the report so that the report can be submitted at the designated time.
+
+(b) Key figures
+I. Pending inactive
+(A) Reports are to be submitted semiannually. Forty-five days prior to the date a semiannual report is due, each such case shall be placed in a pending-active status for the preparation of the report so that the report can be submitted at the designated time.
+
+(c) [Deleted]

@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_16609.png
+
+Convert to MarkdownThe following are the identities of the
+States Attorney's Police, who participated in the
+raid as made available on December 27, 1969, by
+Sergeant DANIEL R. GROTH, Cook County States Attorney's
+Police:
+
+*   Sergeant DANIEL R. GROTH - Star Number 1698
+*   Officer JOSEPH GORMAN - Star Number 2515
+*   Officer GEORGE JONES - Star Number 1764
+*   Officer ROBERT HUGHES - Star Number 8790
+*   Officer JAMES DAVIS - Star Number 12426
+*   Officer WILLIAM KELLY - Star Number 6985
+*   Officer EDWARD CARMODY - Star Number 2517
+*   Officer JOHN CISZEWSKI - Star Number 12489
+*   Officer PHILIP JOSEPH - Star Number 12637
+*   Officer JOHN HARUSHCH - Star Number 5329
+*   Officer FRED HOWARD - Star Number 11673
+*   Officer LYNWOOD HARRIS - Star Number 6761
+*   Officer WILLIAM GORDRICK - Star Number 7077
+*   Officer RAY BRODERICK - Star Number 10136
+
+Officers JONES, DAVIS, HOWARD, JOSEPH, and
+HARRIS are of the Negro race.
+
+Sergeant GROTH advised that all of these
+officers would be available to respond to any subpoena
+directed to them in care of the Cook County States
+Attorney, 2600 South California Avenue, Chicago, Illinois-

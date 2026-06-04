@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_16418.png
+
+Convert to MarkdownA 16 page pamphlet entitled "Huey Newton Talks to the Movement," was observed at Chicago BPP headquarters, 2350 West Madison Street, Chicago, Illinois, on June 4, 1969.
+
+Hundreds perhaps thousands of copies of this pamphlet were observed. Quantity of pamphlet would indicate likelihood of plans for distribution.
+
+Pamphlet sets forth NEWTON's comments, observations and philosophy regarding the BPP Movement in the United States.
+
+NEWTON also discusses cultural nationalism, Student Non-violent Coordinating Committee, as well as his observations concerning the "liberals" and white revolutionaries. The entire pamphlet is being set forth in the appendix section of this report.

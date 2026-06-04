@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_10029.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D. C. 20535
+
+Senate Select Committee
+
+Addressee:
+
+☐ LTR ☒ LHM ☐ Memo ☐ Report dated 3/3/76
+
+Caption of Document: SSC let 2/9/76 requesting FBI materials describing the policy & procedures of the Bureau.
+
+Originating Office: FBI
+Delivered by: K. Stassun Date: 3/8/76
+Received by: Fredrich Baron
+Title: Counsel
+
+Return this receipt to the Intelligence Division, FBI

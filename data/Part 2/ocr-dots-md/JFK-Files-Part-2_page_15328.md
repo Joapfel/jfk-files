@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_15328.png
+
+Convert to MarkdownMemo to Mr. Boardman
+from Mr. Belmont
+
+ACTION:
+
+In the event this matter is brought up at the IAC meeting,
+we will be guided by our position described above and we will wait
+to hear what comments Mr. Dulles may make. We will be particularly on
+the alert for any maneuver which possibly might be forming as a result
+of joint CIA - State collaboration.
+
+-2-

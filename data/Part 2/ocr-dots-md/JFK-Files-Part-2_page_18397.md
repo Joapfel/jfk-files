@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_18397.png
+
+Convert to MarkdownTeletype to New York
+
+Re: SENSTUDY 75
+
+NOTE: Michael Epstein, Senate Select Committee Staff Member, made the request for the interviews of SAC Denz and SA Sullivan concerning their knowledge of the Bureau's investigation of Martin Luther King, Jr., the Southern Christian Leadership Conference, Stanley David Levison, and Communist Influence in the Racial Movement. This communication will serve as approval for the waiver of the existing employment agreements signed by SAC Denz and SA Sullivan for purposes of this interview.

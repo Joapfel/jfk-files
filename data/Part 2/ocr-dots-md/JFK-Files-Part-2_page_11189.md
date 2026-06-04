@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_11189.png
+
+Convert to Markdown... a first
+
+recommendation is being made, and submitted with a
+current report. If not, the Bureau should be advised
+of the reasons for not activating his security in...
+card. I either cancel or sell the inactive card.
+
+(7) Periodic verification of all active
+
+(a) The data record shall be in an up-to-date status at all times.
+
+(b) The whereas of all security index subjects should be known at all times. The residence and business addresses of all security index subjects must be checked at least once each six months, except those imprisoned and those who were included in the security index because of disaffection for the U. S. (action to a Soviet-bloc country, including Cuba since 10-1-60)](see section 105G, item 3, volume IV, of this manual). The residence and employment of those who were included in the security index because of disaffection for the U. S. must be verified every thirty days. The case of any security index subject who is out of the country must be followed at least each six months to determine if he has returned to this country.
+
+Perfect arrangements to be advised on a current basis of
+any indication that the subject is engaged in subversive
+activities, is exhibiting violent tendencies, or plans to
+change his residence or employment. Periodic checks to
+verify residence or business addresses may be made under
+appropriate pretext by telephone, or other expeditious
+means.
+
+(c) The physical characteristics and description of each security index subject shall be determined or verified by personal observation and the individual case file of each security index subject shall show that this has been done. If a security index subject has not been personally observed previously, this should be done during the next verification of the subject's residence and/or business addresses.
+
+(d) Use form FD-154 in verifying addresses of security index
+subjects when its use will facilitate the checking of the
+addresses. When FD-154 is not used in verifying addresses,
+a notation must be made on the last FD-154, FD-122, or FD-128
+in the subject's case file showing the subject's current
+residence and business addresses and the date such addresses
+were verified. This must be done to assure that the file
+will contain all information concerning the status of the
+case and that the file will come to the attention of the
+Agent or field supervisor to determine if additional action
+is warranted at the time of the verification of addresses.
+Each time that a security index subject's residence and
+employment are verified, the case must be reevaluated to
+assure that the subject is qualified for inclusion in the
+security index under the criteria for such inclusion. A
+notation to the effect that the case has been reviewed for
+this purpose shall be made in the file.
+
+(e) If it is determined that the residence or business address or both have been changed from those appearing on the security index card, FD-122 should be submitted to the Bureau with the current residence or business address shown thereon. In such instances, FD-122 should show only the changes to be made on the security index card. FD-122 should be accompanied by form FD-366 for dissemination to Secret Service. Secret Service should be advised locally by dissemination of FD-366.
+
+57
+11-14-67
+
+NW 88321 DocID:32989529 Page 523

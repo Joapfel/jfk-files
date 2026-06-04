@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_13881.png
+
+Convert to MarkdownHOUSE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+
+NOTE CONTINUED:
+
+Attorney General for his approval and subsequent transmittal
+to Mr. Nedzi. In accord with the recommendation in memorandum
+from G. R. Steel to Mr. W. V. Cleveland 6/10/75, a copy is
+also being furnished to the Attorney General for transmittal
+to the Senate Select Committee.

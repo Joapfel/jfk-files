@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_17384.png
+
+Convert to MarkdownFBI
+
+Date: 2/13/69
+
+Submit the following in _______________
+
+(Type in plaintext or code)
+
+AIRTEL
+
+(Priority)
+
+TO : DIRECTOR, FBI
+FROM : SAC, CHICAGO
+SUBJECT: YOUNG SOCIALIST ALLIANCE - DE KALB
+IS - SWP
+
+Secret Service, USA, both Chicago, and Region I,
+113th MI Group, Evanston, Illinois, are being furnished
+a copy of the LHM, via courier.
+
+HGM
+
+Approved:
+
+Sent M Per NW 88613 DocId:32199554 At Agent in Charge & Page 2881

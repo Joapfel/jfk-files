@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_19005.png
+
+Convert to Markdown# Jaffe's "Exclusive" Regarding Khrushchev Ouster
+
+Jaffe continued: "Khrushchev was ousted after this. 'Slava' called me and said: 'A friend of yours is out - somebody that likes you and you like,'" Jaffe continued: "I said, why are you telling me this. He said I thought you should be the first one to know."
+
+Jaffe said he was afraid to release this story without verification, fearing it might be some sort of pro-vocation. He attempted to verify the story thought American Embassy personnel. "They said we know something is going on;" however, Jaffe got the impression they were not aware of the actual story. Jaffe then contacted a girl who worked for APN named Lyudmila (last name unknown) and asked if she was aware that an important story was breaking. She asked "Does it have anything to do with Khrushchev?" Jaffe stated only then did she confirm the story. Jaffe also stated that Victor Louis, a correspondent for the "London Evening News", also had the "exclusive" on the Khrushchev ouster. (WF T-2 has identified Vitaliy Yevgenievich Luy, aka Vitaliy Yevgeniyevich Louis, Victor E. Louis, a correspondent, married to an English girl, as an agent of the Directorate of Moscow, KGB).
+
+SECRET
+28
+
+NW 88326 DocId:32989704 Page 299

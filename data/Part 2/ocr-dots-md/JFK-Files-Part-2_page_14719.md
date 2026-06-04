@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_14719.png
+
+Convert to MarkdownMr. Lee H. Dillenak
+Assistant Attorney General for Administration
+
+February 6, 1963
+
+1 - Mr. DeLoach
+1 - Mr. Callahan
+1 - Mr. Gale
+1 - Mr. Cleveland
+① - Mr. Hartley
+
+Director, FBI
+
+DEPARTMENTAL APPLICANTS
+BURRACU OF NARCOTICS AND DANGEROUS DRUGS
+
+With regard to the request of Mr. Giordano, Associate Director, Bureau of Narcotics and Dangerous Drugs, that the Bureau of Narcotics and Dangerous Drugs be permitted to conduct credit and criminal checks and contact the last two employers in connection with clinical applicants, he was informed on February 4, 1963, of the underability of divided responsibility and duplication of investigative effort by the FBI and the Bureau of Narcotics and Dangerous Drugs. He was advised that it was felt that either they should handle these investigations entirely or the FBI should handle them entirely.
+
+Please be advised that effective immediately we will not accept any additional requests for investigations of clerical applicants since this Bureau wants no part of divided responsibility regarding these investigations or criticism for any possible duplication of investigative effort. If during the course of the Bureau of Narcotics and Dangerous Drugs investigations of their clerical applicant's subvertiveocy培告 Information is developed, it should be referred to this Bureau for a full field investigation under the provisions of the Federal Employee Security Program.
+
+1 - Mr. Henry L. Giordano
+Associate Director, Bureau of Narcotics and Dangerous Drugs
+
+NOTE: See cover memorandum J. H. Gale to DeLoach 2/8/63, same caption, WVC:dbb:nsm.
+
+WVC:nsm:dbb
+(9)

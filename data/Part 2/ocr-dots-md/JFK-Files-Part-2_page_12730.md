@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_12730.png
+
+Convert to Markdownv. Persons active in Communist Party or other organization underground apparatus
+
+vi. Any other security index subject whose activities, past or present, regardless of membership in a revolutionary organization, clearly and unmistakably depict individual as a potential saboteur, espionage agent, or disruptionist in event of an emergency
+
+(C) Individuals employed in or having access to key facilities
+
+II. Security index subjects considered for priority II
+
+(A) All individuals who are considered to be of second level leadership of basic revolutionary organizations and other subversive organizations and individuals who present a significant threat but are in less influential positions than those in priority I
+
+III. All other individuals on security index will be tabbed priority III.
+
+(c) Recommendations for and removal of priority designation
+
+I. Approval of SAC
+
+Designation of each subject as to priority or removal of any subject therefrom must be personally approved by SAC, or in offices having more than 1,000 security index subjects by SAC, ASAC, or Bureau-approved security supervisor.
+
+II. When form FD-122 is submitted recommending either tabbing for priority or deletion of such tabbing, attach an additional page setting out a brief summary of facts upon which recommendation is based.
+
+(d) Administrative procedures for handling priority program
+
+Take following action to assure that security index cards for subjects tabbed for priority of apprehension will be readily available for emergency action in your office:
+
+I. Geographical section
+
+Divide geographical section of security index into three distinct parts.
+
+(A) Part I of geographical section shall include only security index cards for subjects who are tabbed priority I.
+
+(B) Part II of geographical section shall contain security index cards for all subjects that are tabbed priority II.
+
+(C) Part III of geographical section should contain security index cards for all subjects who are tabbed priority III.
+
+(D) In offices having two separate and distinct geographical sections, i.e., geographical-employment and geographical-residence, as provided under 87D 7b (6) herein, each such geographical section must be broken into parts I, II, and III.
+
+(E) Priority cards will be the following colors: priority I - beige, priority II - green, priority III - white.
+
+II. Alphabetical section
+
+(A) [Alphabetical section will be broken down into two groupings. First group will include priority I and priority II security index cards filed in strict alphabetical order. Second group will contain all priority III security index cards filed in strict alphabetical order.]
+
+(B) Priority tabbings approved at Bureau will be shown on security index cards forwarded to field by code letters "P I," "P II," or "P III" in first line on cards.

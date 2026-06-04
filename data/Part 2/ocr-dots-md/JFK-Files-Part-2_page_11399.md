@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_11399.png
+
+Convert to MarkdownCases of all security index subjects must be reopened or placed in a pending status for the purpose of preparing investigative reports in accordance with the schedule outlined in 87D 7f (8).
+
+Office indexes and any material channellized to the case file since the most recent report should be reviewed and the case brought up to date by appropriate investigation to determine subject's current activities.
+
+If no subversive information is available, the fact that appropriate confidential informants have been contacted with negative results should be submitted in report form. This is necessary in order that the Department can be advised of the status of the case of each individual who is listed for apprehension in the case of an emergency.
+
+Each time that a case is reopened and brought up to date, it should be critically analyzed in the light of the security index criteria set out in 87D 7b (3) herein. This procedure must be followed on a continuing basis for each security index subject.
+
+## (2) Origin
+
+The office of origin will be that office covering the territory wherein the subject's subversive activities occur. In most instances this will also be the office in which territory the subject resides and is employed. In those cases in which the subject's subversive activities take place in the territory of an office other than the office covering the place of residence and/or employment, the office of origin shall be that office which can best cover the subversive activities of the subject.
+
+## (3) Deleted
+
+## (4) Classification
+
+(a) 100 - for individuals affiliated with the basic revolutionary and front organizations of Marxist ideology and members of the Nation of Islam
+
+(b) 105 - for members of [Puerto Rican nationalist groups] or others having nationalistic tendencies of a non-Marxist character
+
+## (5) Title
+
+Only one subject shall be carried in the title of each report. Separate reports must be submitted for each subject regardless of their relationship; i.e., husband and wife, father and son, etc.

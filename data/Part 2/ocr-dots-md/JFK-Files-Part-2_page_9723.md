@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_9723.png
+
+Convert to Markdownof Right Wingers to reach the Youth and the successes of the
+left to reach them to any other single issue than incomes to
+my mind and that is瓜ana. The Right Wing is not it and
+the left wing for it. The real purpose of Pot (now) is not
+as most Right Wingers believe, i.e., to destroy the minds
+of the Youth, but rather to separate Right Wingers from Pot
+smokers. The average person who indulges in a little Pot.
+smoking is not a left winger but since most Right Wingers
+are anti-Pot, the probability of the two getting together
+is remote even though they might have the same basic political
+thoughts. Pot is political and more and more Right Wingers
+are beginning to take a more leisurely attitude at Pot smokers
+as they find their ranks dwindling.
+
+If we allow things that are not basic issues to divide us, then
+we will surely loose. We cannot afford this. The Revolution
+is here and Victory is at hand. We are joining forces with
+other Nationalistic groups here and abroad. Many men have
+been waiting years for this time. Segments of the Right and
+left are joining forces. Many have lost their lives prepar-
+ing for this day and we don't intend letting them down.
+
+As a great man once said "THIS TIME THE WORLD".
+
+Those of you who are fighting on our side, be it directly or
+indirectly, underground or above, let us strike only at the
+real enemy, the jew and the jew infested Government.
+
+May reason be our guide, may our will be our strength, may our
+sacred duty to act in this way give us determination and above
+all my our faith protect our people.
+
+Seig Heil, Revolution
+
+William E. Carroll
+Maj., U.S.A.
+Youth Commandant
+
+NW 88296 DocId:32989574 Page 632

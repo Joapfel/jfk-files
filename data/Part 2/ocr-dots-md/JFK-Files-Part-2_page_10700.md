@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_10700.png
+
+Convert to MarkdownPH 52-7164 Sub S
+
+Francis Xavier Madden (True Name), Mel Madden; FRANK POMMERSHEIM to FRANK RICHARD POMMERSHEIM; ROSEMARY REILLY to ROSEMARY ELIZABETH REILLY, aka Ro Ro. Fugitive has been deleted following Reverend EDWARD J. MC GOWAN's name since New York advised by teletype on 9/8/71 that MC GOWAN had voluntarily surrendered to the FBI at New York City on that date.
+
+REFERENCES
+
+Reports of SA ELMER E. SUSSMAN, dated 8/25, 8/31, 9/1, and 9/7/71 at Philadelphia;
+
+Report of SA ROBERT P. SADOWSKI, dated 8/31/71 at New York captioned, "FRANK RICHARD POMMERSHEIM, aka."
+
+-P-
+
+LEADS
+
+This case is receiving immediate preferred attention. The Bureau will be promptly advised of pertinent developments. Leads to other divisions are being set out by teletype or other expeditious means.
+
+Voluminous evidentiary material was seized during the course of searches incidental to the arrest, searches of vehicles, and execution of search warrants at premises. Philadelphia is currently cataloging all seized material in preparation for transmittal to the FBI Laboratory.
+
+ADMINISTRATIVE DATA
+
+Two copies of instant report are being furnished the Newark Division since prosecution lies in the district of New Jersey. In addition, the Newark Division has a separate interest in Dr. WILLIAM ANDERSON, Rev. MILO BILLMAN, Fr. MICHAEL J. DOYLE, MICHAEL JOHN GIOCONDO, FRANCIS MEL MADDEN, SARAH TOSI, JAYMA ANN ABDOO, EUGENE F. DIXON, and MARTHA SCHEMELEY.
+
+One copy of instant report is being furnished the Boston Division for information since that division has a special interest in PAUL BERNARD COUMING, MARGARET MARY INNESS, LIANNE MARIE MOCCIA, BARRY JAMES MUSI, and SARAH JANE TOSI.
+
+B COVER PAGE

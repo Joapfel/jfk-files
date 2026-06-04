@@ -1,0 +1,66 @@
+# JFK-Files-Part-2_page_15442.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+# Memorandum
+
+TO : Mr. Belmont
+FROM : C. A. Evans Can
+
+DATE: April 9, 1962
+
+SUBJECT: INTELLIGENCE COVERAGE OF FOREIGN COUNTRIES
+
+The Attorney General has forwarded the attached letter from Secretary Rusk dated April 2, 1962. This letter is in response to one from the Attorney General dated March 20 and concerns the Attorney General's view as to the desirability of the FBI expanding its existing program of developing sources in diplomatic establishments of foreign countries. A letter by the Attorney General was sent after he was informed the State Department had declined to give clearance to our expanding this program to include coverage of additional Latin American countries.
+
+Secretary Rusk in his letter agrees that all necessary steps should be taken to enhance the security of the United States and, therefore, has no objection to the program of preliminary discreet investigations. The Secretary does say that he is not convinced that a comprehensive program of penetration through foreign embassy personnel will yield intelligence of sufficient importance to be worthy of the high political risks. He adds, however, thatthis is something that can be looked into further after the preliminary investigations have been conducted.
+
+The Attorney General mentioned orally that he was sending the letter and that, of course, we couldn't expect the State Department to totally reverse itself. The Attorney General suggested that we proceed with the preliminary investigations and thereafter if we encounter any further difficulties with the State Department, he would like to be informed.
+
+ACTION
+
+ENCLOSURE / ENCLOSURE
+
+NOT RECORDED
+191 APR 30 1962
+
+25 APR - 27 1962
+
+The Domestic Intelligence Division will proceed to implement this expanded program on a highly selective basis. This is the type of investigation which of necessity will be handled on a most discreet basis.
+
+Enclosure
+
+1 - Mr. Sullivan
+
+CAE:sp
+
+NW 88613 DocId:32199554
+
+ORIGINAL
+
+Page 939
+
+<table><tr><td>Wilson</td></tr></table>
+
+<table><tr><td>Miller</td></tr></table>
+
+<table><tr><td>Hollister</td></tr></table>
+
+<table><tr><td>Benson</td></tr></table>
+
+<table><tr><td>Richardson</td></tr></table>
+
+<table><tr><td>Sullivan</td></tr></table>
+
+<table><tr><td>Tavel</td></tr></table>
+
+<table><tr><td>Trotter</td></tr></table>
+
+<table><tr><td>Tele. Room</td></tr></table>
+
+<table><tr><td>Holmes</td></tr></table>
+
+<table><tr><td>Gandy</td></tr></table>
+
+<table><tr><td>Tolson</td></tr><tr><td>Belmont</td></tr><tr><td>Mohr</td></tr><tr><td>Callahan</td></tr><tr><td>Conrad</td></tr><tr><td>DeLoach</td></tr><tr><td>Evans</td></tr><tr><td>Malone</td></tr><tr><td>Rosen</td></tr><tr><td>Sullivan</td></tr><tr><td>Tavel</td></tr><tr><td>Trotter</td></tr><tr><td>Tele. Room</td></tr><tr><td>Holmes</td></tr><tr><td>Gandy</td></tr></table>
+
+<table><tbody><tr><td>E.C. Sine</td></tr><tr><td>J.D. Higley</td></tr><tr><td>A.R. Silliman</td></tr><tr><td>D. Williams</td></tr><tr><td>W.H. Stedman</td></tr><tr><td>W.S. Dura</td></tr><tr><td>V.L. Zerlong</td></tr></tbody></table>

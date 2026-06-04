@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_12075.png
+
+Convert to Markdownb. Symbol number index
+
+(1) The same official as set out in la (1) above is to maintain the symbol number index. This index shall contain a card for each individual to whom a symbol number has been assigned.
+
+(2) File cards numerically and any symbols which consist of fictitious names shall be filed alphabetically behind the numerical symbol index.
+
+c. The above indices (alphabetical name index and symbol number index) shall not be available for review by Agents seeking informant help in connection with their cases.
+
+d. Where good reason exists for an Agent to obtain information from either of these indices, it should be furnished by the official having custody of the cards. These indices should be used as a guide only; informant's file must be reviewed to determine specific nature of his activities and type of information he furnishes.
+
+## 2. Index entitled "Informants and Sources in Other Divisions"
+
+a. A separate index may be maintained for the use of Agents on informants and sources in other divisions who may be available for assistance.
+
+b. If such index is maintained, a separate index card is to be prepared on each informant and source that has been furnished.
+
+c. These cards should contain brief background data, together with the identity of the Bureau communication which contains the complete background data.
+
+d. File these cards alphabetically by name and symbol number. Duplicate cards may be prepared to be filed geographically and/or by subject matter.
+
+## 3. Agents' informative index
+
+a. An Agents' informative index may be maintained by the same official as set out in la (1) above for the use of Agents on the type of informant coverage in the division.
+
+b. File these cards by geographical location, arranged alphabetically by states, cities, subdivisions within cities, etc.
+
+c. Behind each geographical location there should be a guide card indicating the type of information which can be furnished, such as Communist Party, Civil Rights Congress, Polish Activity, etc.
+
+d. On this guide card set forth the symbol numbers of the informants and confidential sources who can provide this coverage.
+
+e. Potential informants, confidential sources, panel sources, and sources of information who do not have permanent symbols should be set forth by name.
+
+f. When an individual can provide more than one type of information, his symbol or identity (if a potential informant, confidential source, panel source, or source of information without a permanent symbol) should be set forth on as many guide cards as he may provide types of information.
+
+g. These guide cards should [show] the above data and it is permissible to place alongside the name or symbol number, as the case may be, the names of the contacting Agents to whom a request may be made for a specific check with the individual.
+
+h. Also, there may be set forth on these guide cards symbol numbers of informants who move outside a division and who still may be excellent sources regarding past activities. They should be declassified from informants to confidential sources or sources of information. If any such individual has moved from a division and is being utilized by the division to which he has moved and has received a symbol number from the latter division, such designation should be indicated on the guide card.
+
+i. The names or symbol numbers, as the case may be, of individuals contained in the index entitled "Informants and Sources in Other Divisions" who can be of assistance to your office may be set forth on the appropriate guide cards in this index.

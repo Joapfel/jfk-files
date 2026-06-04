@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_10751.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+
+Date: August 23, 1971
+
+SA SHERRWOOD, following the arrest of ROBERT GLENN GOOD inside the Debraule Service Office, Fifth Floor, U. S. Post Office Building, assured custody of GOOD at approximately 1:35 a.m., and in connection with his arrest, which included finger writing, photographing, a strip search, and the securing of personal identification information from him.
+
+At about 7:10 a.m., GOOD was furnished an advice of Rights and Waiver form, which he read, which SA SHERRWOOD orally explained to him, and which he declined to sign after stating that he understood his rights as set forth in this form. GOOD stated he did not desire to furnish any information whatsoever.
+
+In connection with the strip search of GOOD and the search of the clothing he was wearing, three items were retained as evidence:
+
+1. One pair of worn soiled brown gloves which GOOD was wearing.
+
+2. One partial roll of black electrician's tape, which was found in the right-hand front trousers pocket.
+
+3. Two pieces of a knife blade, wrapped in black tape, which were found in GOOD's shirt pocket.
+
+GOOD was furnished a copy of an inventory for these items.
+
+At about 11:20 a.m., GOOD was taken by SA CHAMBERS to the U. S. Marshal's Office, Third Floor, U. S. Post Office Building, at which time he was turned over to the U. S. Marshal for an appearance before Magistrate CHARLES L. RUDD. GOOD appeared before Magistrate RUDD at approximately 1:10 p.m.
+
+On 8/22/71 at Camden, N. J.
+File # Philadelphia 100-52641
+Philadelphia 52-7165-Sub
+
+SA'S GEORGE E. SHERRWOOD and ROBERT G. CHAMBERS, (GES:BSM) Date Dated 8/23/71
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and it is loaned to you agency. It and its contents are not to be distributed outside your agency.

@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_17430.png
+
+Convert to MarkdownSAC, CHICAGO
+
+3/4/69
+
+SA JAMES W. GERBLICK
+
+RACIAL TENSIONS
+MAYWOOD, ILLINOIS
+1969
+RM
+
+Where appropriate, the information set forth has been disseminated to local authorities.
+
+Informant advised on February 20, 1969, the following:
+
+Informant made available a copy of a four page flyer "Black Panther Weekend Newsletter" dated February 1, 1969, and a copy of "The Black Panther" newspaper dated February 17, 1969. He advised the next meeting would be on February 24, 1969, at the home of ROBERT BRUCE, 28 South 15th Avenue, Maywood, Illinois.
+
+JWG
+
+NW 88613 DocId:32199554
+
+Page 2927

@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_12836.png
+
+Convert to Markdownterrorist activities by anti-Castro groups in the US, and
+Ricardo never repeated the suggestion.
+
+Freddy Lugo
+
+a. Involvement in the crash: Lugo was arrested in Trinidad with Ricardo on suspicion of having planted the bomb aboard the Cubana plane. A CIA source alleges that Lugo apparently was only peripherally involved in the bombing and is not considered to be one of the leading participants.
+
+Lugo, a Venezuelan citizen, is also a photographer employed by Posada's company. According to a CIA source, he also worked for DISIP under the same arrangements noted above for Ricardo.
+
+b. Relationship with US:
+[CIA states that it has had no contact with Lugo.] The name and phone number of US Legal Attache Leo were discovered in Lugo's address book when he was arrested in Trinidad. Leo says that he has had no contact with Lugo and speculates that his name and phone were furnished to Lugo by Posada.
+
+Luis Posada Carriles
+
+a. Involvement in Crash: Posada was arrested on October 14 in Venezuela along with Orlando Bosch and three others accused of conspiring to sabotage the plane. Posada, a Cuban exile who is now a Venezuelan citizen, is vehemently anti-Castro and is suspected of having been the main supporter of Bosch during the latter's stay in Venezuela prior to being
+
+SECRET
+SENSITIVE
+
+HW 50953 DocId:32296782 Page 5

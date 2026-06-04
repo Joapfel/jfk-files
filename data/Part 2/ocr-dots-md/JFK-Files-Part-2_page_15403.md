@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_15403.png
+
+Convert to MarkdownMemo Donahoe to Belmont
+
+Re: INTELLIGENCE COVERAGE OF FRIENDLY FOREIGN COUNTRIES (SEMIANNUAL EVALUATION)
+
+DETAILS
+
+Re memo 6-25-59 evaluating captioned program and analyzing
+preceeding six month's results. This is re-evaluation and report
+on results achieved since that date.
+
+ORIGIN AND PURPOSE
+
+Basic program inaugurated 1954 and expanded in 1955 and
+1958 to provide for acquisition of positive intelligence and investi-
+gative information through three principal facets:
+
+1. Receipt of notification from six other agencies of arrival in U.S. of intelligence personnel of friendly foreign governments
+
+2. At specific request or with specific approval of Deputy Under Secretary of State or official designated by him, maintenance of technical surveillances on official establishments in United States of countries located in trouble areas.
+
+3. With prior State Department approval, development of live sources within establishments of friendly countries, as Bureau's intelligence and investigative requirements demand extension of coverage.
+
+SCOPE AND COST
+
+1. Under first category Bureau receives notification from other intelligence agencies of arrival of intelligence personnel in U.S. Handling of these notifications is confined to Seat of Government and principally involves review of any file references and indexing procedures at nominal costs. In appropriate instances field is alerted to presence of intelligence personnel but active investigation is not instituted in absence of information which would form basis for security-type case.
+
+2. Present technical surveillances under second category, with estimated monthly costs are as follows:

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_9324.png
+
+Convert to Markdown# THE CATECHISM OF THE REVOLUTIONIST
+BY Mikhail Alexandrovich Bakunin
+with Introduction by Minister of
+Information Black Panther Party
+
+The Catechism of the Revolutionist, by Mikhail Alexandrovich Bakunin, is one of the most important formulation of principles in the entire history of revolution. A contemporary of Marx, Bakunin was the epitome of the activist and his deeds spoke louder than his words. But his words, are what history has allowed to endure, Bakunin's message. The history of revolutionary movements all over the world attest to the fact that Bakunin's message must be unearthed and scrutinized by a new generation faced with a new tyranny. In the midst of all this Evil and human suffering there is too much co-existence going on. Peach seckers co-existing with War Mongers, Communists co-existing-with Capitalist; Slaves co-existing with Slave Masters. Black nationalists co-existing with Anti-Aro-American hordes.
+
+It's time to intensify the struggle. Within the black colony of Afro-America, this means a declaration of war upon the black liberation and upon the class of Big Business Men who have turned the National Liberation Struggle into Big Business. These Civil Rights' Executives must be allowed one choice and one choice only: return to your people, bringing with you your wealth and skills, and put it at the disposal of your people's cause. You have nothing that is sacred—not even your life.
+
+Intensifying the Struggle means, at this stage within the white mother country, arising from the sleep of tradition and making some new definitions. Some new distinctions. Within the ranks of the white mother country radicals, the new generation must part company with the old set the very least. Preferably, the new generation should take hold of the old and bend them or break them. There is nothing left for them to prove. They must be demoted to advisory and technical positions. Pressure on them must be stepped up to the maximum and kept there. Stop at nothing.
+
+Compared to the job that Afro-American Revolutionaries and white mother country radicals have on their hands, all revolutions and national liberation struggles of the past have been child's play. What must be kept clear is that white mother country radicals are fighting for a revolution—while Afro-American revolutionaries are fighting for national liberation — against a common enemy: White racist Capitalism and its bastard offsprings, Colonialism, Imperialism, and Neo-Colonialism.
+
+Read the Catechism. Perhaps you will find a word or phrase that will enhance your revolutionary perspective and intensify your activity. At the very least you have to appreciate Bakunin's spirit. If you get Bakunin's message, then the whole world will have moved a little closer to the future.
+
+NWI 88296 DocId:32989574 Page 233
+
+Master of Information
+Black Panther Party

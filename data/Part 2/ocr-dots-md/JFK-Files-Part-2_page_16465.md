@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_16465.png
+
+Convert to Markdownpeople saw it and responded to it. They were very enthusiastic about the示范-straits because they too suffer from being treated unfairly by the parole authorities and by the police here in the jail.
+
+## Open or Underground
+
+**MOVEMENT:** The Panthers organizing efforts have been very open up until this point. Would you like to comment about the question of an underground political organization versus an open organization at this point in the struggle?
+
+**HUEY:** Yeah. Some of the black nationalist groups feel that they have to be underground because they'll be attacked. But we don't feel that you can romanticize being underground. They say we're romantic because we're trying to live revolutionary lives, and we are not taking precautions. But we say that the only way we would go underground is if we're driven underground. All real revolutionary movements are driven underground. Take the revolution in Cuba. The agitation that was going on while Fidel was in law school was very much above ground. Even his existence in the hills was, so to speak, an above the ground affair because he was letting it be known who was doing the damage and why he was doing the damage. To catch him was a different story. The only way we can educate the people is by setting an example for them. We feel that this is very necessary.
+
+This is a pre-revolutionary period and we feel it is very necessary to educate
+
+the people while we can. So we recovery open about this education. We have been attacked and we will be attacked even more in the future but we're not going to go underground until we get ready to go underground because we have a mind of our own. We're not going to let anyone force us to do anything. We're going to go underground after we educate all of the black people and not before that time. Then it won't really be necessary for us to go underground because you can see black anywhere. We will just have the stuff to protect ourselves and the strategy to offset the great power that the strong-arm men of the establishment have and are planning to use against us.
+
+## White Organizing
+
+**MOVEMENT:** Your comments about the white prisoners seemed encouraging. Do you see the possibility of organizing a white Panther Party in opposition to the establishment? possibly among poor and working whites?
+
+**HUEY:** Well as I put it before Black Power is people's power and as far as organizing white people we give white people the privilege of having a mind and we want them to get a body. They can organize themselves. We can tell them what they should do, what their responsibility is if they're going to claim to be white revolutionaries or white mother country radicals, and that is to arm themselves and support the colonies around the world in their just struggle against imperialism. But anything more than that they will have to do on their own.

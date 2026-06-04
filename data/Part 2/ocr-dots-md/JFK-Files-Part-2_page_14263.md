@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_14263.png
+
+Convert to Markdownpresented at an Executive Session, or classified papers, and other materials received by the staff or its consultants while in the employ of the Committee shall be made public, in whole or in part or by way of summary, or disclosed to any person outside the Committee unless authorized by a majority vote of the entire Committee, or after the termination of the Committee, in such manner as may be determined by the Senate.
+
+7.6 Before the Committee is called upon to make any deposition with respect to the testimony, papers, or other materials presented to it, the Committee members shall have a reasonable opportunity to examine all pertinent testimony, papers and other materials that have been obtained by the Committee staff. No member shall release any such to testimony, papers, or other materials, or any information contained in such testimony, papers, or other materials, to the public or any person outside the Committee unless authorized by a majority vote of the entire Committee, or after the termination of the Committee, in such manner as may be determined by the Senate.
+
+### RULE 8. PREPARATION FOR COMMITTEE MEETINGS
+
+8.1 Under direction of the Chairman, the Staff Director, Chief Counsel, Counsel to the Minority, or other designated staff members shall brief members of the Committee at a time sufficiently prior to any Committee meeting in order to assist the Committee members in preparation for such meeting and to determine any matter which the Committee member might wish considered during the meeting. Such briefing shall include a list of all pertinent papers and other materials that have been obtained by the Committee that bear on matters to be considered at the meeting.
+
+8.2 The Staff Director, the Chief Counsel, and the Counsel to the Minority shall recommend to the Chairman and the Vice Chairman the testimony, papers, and other materials to be presented to the Committee at any meeting. The determination whether such testimony, papers, and other materials shall be presented in open or Executive session shall be made pursuant to the rules of the Senate.
+
+### RULE 9. STAFF
+
+9.1 The appointment of all staff members and consultants shall be confirmed by a majority vote of the Committee. After confirmation, the Chairman shall certify staff appointments to the Financial Clerk of the Senate in writing.
+
+9.2 Except as otherwise provided by the Committee, the duties of staff and consultants shall be performed, and staff personnel affairs and day-to-day operations, including security and control of classified documents and material, shall be administered under the direct supervision and control of the Staff Director and the Chief Counsel. The Counsel for the Minority shall be kept fully informed regarding all matters and shall have access to all material in the files of the Committee.
+
+9.3 The staff of the Committee shall not discuss either the substance or procedure of the work of the Committee with anyone other than a member of the Committee or other Committee personnel. Upon termination of employment by the Committee, each member of the staff, or consultant, shall surrender all classified and other material relating to the work of the Committee which came into his possession while in the employ of the Committee.
+
+9.4 The employment of any member of the staff or consultant who fails to conform to any of these Rules shall be immediately terminated.
+
+### RULE 10. SERVICES, INFORMATION, FACILITIES, AND PERSONNEL OF THE GOVERNMENT, CONSULTANTS
+
+The Chairman shall have the authority to utilize the services, information, facilities, and personnel of the departments and agencies of the government, and to procure the temporary or intermittent services of experts or consultants or organizations thereof to make studies or assist or advise the Committee with respect to any matter under investigation.
+
+
+
+### RULE 11. REPORTING OF MEASURES OR RECOMMENDATIONS
+
+11.1 No measure or recommendations shall be reported from the Committee unless a majority of the Committee is actually present and a majority of those present concur.
+
+11.2 In any case in which the Committee is unable to reach a unanimous decision, separate views or reports may be presented and printed by any member or members of the Committee.
+
+11.3 A member of the Committee who gives notice of his intention to file supplemental, minority, or additional views at the time of final Committee approval of a measure or matter, shall be entitled to not less than three calendar days in which to file such views, in writing, with the Clerk of the Committee. Such views shall then be included in the Committee report and printed in the same volume, as a part thereof, and their inclusion shall be noted on the cover of the report.
+
+### RULE 12. CHANGES IN RULES
+
+These Rules may be modified, amended, or repealed by the Committee, provided that a notice in writing of the proposed change has been given to each member at least 48 hours prior to the meeting at which action thereon is to be taken.
+
+## ANNOUNCEMENT OF POSITION ON VOTES
+
+Mr. STEVENS. Mr. President, on April 23, 1975, I submitted for the RECORD a summary of my position on the votes for H.R. 2166, the

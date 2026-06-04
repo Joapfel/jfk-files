@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_15234.png
+
+Convert to MarkdownMemorandum to Mr. Sullivan
+Re: TECHNICAL SURVEILLANCE COVERAGE OF DIPLOMATIC ESTABLISHMENTS
+65-63113
+
+2. It is recommended that we go ahead and authorize the New York and Washington Field Offices to conduct secure surveys as to feasibility of coverage of the establishments mentioned. This will enable us to move more rapidly if the Attorney General approves the proposed targets. If approved, New York and Washington Field will be so instructed.
+
+DocId:32199554

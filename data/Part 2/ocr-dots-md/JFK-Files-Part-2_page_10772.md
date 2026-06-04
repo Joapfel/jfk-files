@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_10772.png
+
+Convert to MarkdownMUSI declined to volunteer any other information regarding previous arrests, Social Security Number, Selective Service Number or draft status. He was not in possession of a Selective Service Draft Card.
+
+2/11 diameter circular soup on left shoulderblade. Numberous large fleckles on shoulders and upper back. Address 703 Washington Street Dorchester, Massachusetts Commonwealth of Massachusetts #052351934, in the name of BARRY J. MUSI, 25 Simmons Avenue, Belmont, Massachusetts Married - Declined to identify spouse.
+
+Scars and Marks
+
+Address
+Driver's License
+
+Marital Status
+
+77

@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_16997.png
+
+Convert to Markdown# BPP GENERAL ORDERS
+
+Chicago area BPP leaders have warned all members that if they are arrested for any activity which they activated, they will be premantly expelled from the party. This order is allegedly good until canceled. It was made with the idea that Panthers should not ruin any chances to bring charges against the police officers conducting the raid at 2337 West Monroe on 12/4/69.
+
+12/7/69
+
+JEWEL COOK, RUFUS WALLS, WILLIE CALVIN, BOBBY RUSH
+
+It appears that the BPP in the Chicago area will be run by the above individuals.
+
+## WILLIAM "BILL" HAMPTON, FRED HAMPTON
+
+Rumors are that WILLIAM HAMPTON, brother of FRED, will be taking FRED's place as Deputy Chairman, Illinois Chapter of BPP. According to Chicago area BPP leaders, this will not happen as HAMPTON's position for BPP publicity must be preserved. Further the BPP theory of his death may be harmed if his position was filled.
+
+# BPP FINANCES
+
+As a result of the publicity of the raid on 2337 West Monroe by the police on 12/4/69, the BPP has allegedly received
+
+NWW 88613 DocId:32199554
+Page 2494

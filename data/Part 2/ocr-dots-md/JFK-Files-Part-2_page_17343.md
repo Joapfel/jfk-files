@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_17343.png
+
+Convert to MarkdownBLACK PANTHER PARTY
+
+1. An end to the "white man's robbing of the black by such vices as dope and prostitution."
+
+2. Exemption of all blacks from military service.
+
+3. Freedom for all black convicts.
+
+4. All black jury trials for black men.
+
+5. United Nations supervised black plebescite to determine black destiny.
+
+In this regard Rush said, "And the first thing we're going to do is to put Mayor Daley on welfare."
+
+6. Freedom for all oppressed blacks.
+
+7. Full employment for all blacks and "an end of the robbery of the black community by the white capitalist pigs."
+
+8. Decent housing.
+
+9. Relevant education to show the history of the black man and "how the white man took everything he has from the black."
+
+10. An end to "cop brutality and murder" referring to police officers as "racist pigs".
+
+In commenting on military service, Rush said they were not going to circulate petitions or burn draft cards. He added "when they come for us, we gonna give them a gun." Rush said that he regretted a seeming lack of cooperation between campus and community blacks relating to the current black issue and stated "I notice the black students here don't relate with the black community. That's sad because if you are not part of the solution, you're part of the problem."

@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_12753.png
+
+Convert to MarkdownXIII. Employment address and any additional data deemed necessary to assist in locating a subject in an emergency. Labor union affiliation, if any.
+
+XIV. Field office file number
+
+(b) Data to appear on separate attached card
+
+I. The following data must be placed on a separate card to be attached to reverse side of the security index card being filed in the geographical, special, or unavailable sections. Data will not be attached to the security index card filed in the alphabetical section. These cards contain printed captions to assist in recording the descriptive information. Captions are not all-inclusive and should be aug- by other data required.
+
+(A) Complete description
+
+(B) Notation that security index flash notice has submitted for posting in Identification Divi-
+
+(C) Photograph, with date taken placed below. This photograph is to be the most current or best likeness of subject.
+
+(D) Dangerous characteristics of subject, including notation if subject possesses firearms
+
+(E) Other data which will assist in effecting app- hension of subject, such as directions to re- or employment, where subject not situated is located, listing of number of minor children and aged dependents.
+
+II. If descriptive data have not been obtained, case must be kept pending until investigation conducted to develop this information. Upon posting of security index flash notices in security index cases, the field will be furnished the FBI number and fingerprint classification which should be affixed to reverse side of the security index cards filed in geographical, special, and unavail- able sections.
+
+III. Form FD-186 is used for purpose of compiling information to be posted on the separate card attached to back of the security index card filed in the geographical section of index. Form may be filled in by the Agent handling the case in legible handwriting and forwarded to clerical employee designated to post this information on the attachment to the geographical, special, or unavailable sections. After the security index card has been pre- pared at Bureau and sent to field and information appear- ing on FD-186 has been posted on the card to be attached, it shall be filed in the investigative case file.
+
+FD-186 may also be used to record informati- on about a security index subject has been physically查ved. Descriptive data developed during observa- tion of the subject should be noted on FD-186 for post-
+
+(6) Arrangement to the security index
+
+(a) At Bureau
+
+The entire secu- rity index is maintained at the Bureau through the utili- tion of IBM tabulating cards. The 5- by 8-inch secu- rity index cards are printed by automatic data processing and transmitted to the field. Through use of this device, the security index can be broken down into the various categories of information appearing on the security index cards when such breakdowns become nec- essary for administrative purposes at the Bureau. This procedure makes it possible to maintain the content of the security index in the field and . the Bureau in an identical con- dition at all times.
+
+An alphabetical break- -off of the true names and all aliases of security index su- persists and is also maintained at the Bureau for administrative pur- poses.-
+
+4-11-69

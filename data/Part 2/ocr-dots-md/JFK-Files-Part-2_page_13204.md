@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_13204.png
+
+Convert to MarkdownThe following information is classified "SECRET" and not
+to be further disseminated without specific authority of
+the CIA, Mexico City Station
+
+As of 7-6-61 one E. MITRANI was working in the Cuban
+Consulate, Mexico, D.F., and had reportedly offered to cooperate
+with anti-Castro persons in Mexico, D.F.
+
+The E. MITRANI, mentioned above was subsequently identified
+as ERNESTO MITRANI (S)(n)
+
+ERNESTO MITRANI aka E. Mitrani, mentioned above, was subsequently
+identified as ERNESTO MITRANI LEVY, who in about December, 1959
+was employed as an "Auxiliary Consular Clerk" in the Cuban Embassy,
+Mexico, D.F. [ ] ERNESTO MITRANI LEVY had reportedly been helpful
+to anti-CASTRO forces in Mexico. [JOSE ANTONIO PORTUONDO]
+
+On October 24, 1960, MITRANI received a telegram recalling him to Havana, Cuba; however, he did not want to return to Cuba, and reportedly went to the then Ambassador PORTUONDO, and explained that he planned on marrying a Mexican girl; that his father had offered him employment in Mexico, and for these reasons he did not want to return to Cuba. PORTUONDO reportedly counseled MITRANI to write to the Cuban Foreign Office in Havana and explain his problem, which MITRANI reportedly did. At that time MITRANI was the holder of Cuban Diplomatic passport No. 480 and also held a regular passport.
+
+MITRANI reportedly had arrived in Mexico on December 15, 1959;
+he was a bachelor at the time of his arrival, and his father
+was reportedly engaged in business in Mexico. His residence
+in about 1960 was given as residing at the corner of Avenida
+Insurgentes Sur and Viaducto Miguel Aleman, Mexico, D.F.,
+telephone No. 11-96-11. The telephone and address data was as
+of 10-24-60 (S)(n)
+
+MITRANI was reportedly in contact with the USIA, U.S. Embassy, Mexico, D.F., in 1960 in regard to his desire to remain in Mexico, and MITRANI was reportedly told that a visa to enter the U.S. would be arranged for him if he would publically denounce the Cuban regime.
+
+MITRANI reportedly never publically denounced the Cuban regime although CIA file data reflects that someone wrote to the Cuban Embassy in 1960 stating that MITRANI was a "spy" and cooperating with anti-CASTRO forces (S).
+
+MITRANI reportedly acting as a "cut-out" supplied one report to the CIA, Mexico City station [x] which was submitted on or about 8-13-62. (S)
+
+The CIA, Mexico City Station has no data on file concerning
+MITRANI since 8-13-62. ( )
+
+Above CIA data secured from DAVID PHILLIPS.
+
+SECRET
+
+N.W. 50953 DocId:32183961 Page 3
+
+EASTERN EXPLORATION

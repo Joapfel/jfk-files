@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_13783.png
+
+Convert to Markdown# A. Electronic Surveillance
+
+The Committee is examining all forms of electronic interception of communications including wiretapping, electronic eavesdropping, consensual electronic surveillance interception of video and data communications, local monitoring devices, and all other forms of electronic or technical monitoring. The Committee's general questions apply to each of the techniques listed above, as well as to the matters set forth in the following specific cases.
+
+## 1. Warrantless Electronic Surveillance
+
+The Committee seeks to determine whether the Attorney General should have the authority to authorize electronic surveillance for certain purposes without a prior judicial warrant. This power has been exercised by succeeding Attorneys General since 1940, upon the explicit directive of the President. The Supreme Court has ruled that this power does not extend to purely domestic matters, but the remaining scope of the Attorney General's authority remains undefined by the Supreme Court.
+
+### Questions
+
+The Committee requests that the FBI and the Justice Department address the following specific questions:
+
+a. What is the scope and basis of the claim of Executive authority to conduct warrantless electronic surveillance?
+
+b. What have been the procedures for consideration and approval of requests for warrantless electronic surveillance authorized by the Attorney General?
+
+c. What are the specific disadvantages of the judicial warrant requirement for those electronic surveillances which have been authorized by the Attorney General?

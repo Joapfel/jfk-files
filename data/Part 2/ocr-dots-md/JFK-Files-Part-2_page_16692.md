@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_16692.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+
+Dolo 2/26/70
+
+Prior to the autopsy of the body of FREDERICK ALLEN HAMPTON, Impressions of the right index finger of HAMPTON were obtained using a common black ink pad and a sheet of white unlined paper.
+
+The purpose of the impressions was to effect identification.
+
+On 2/15/70 of Shreveport, Louisiana File # C902
+SA
+
+Dolo dictated 2/20/70
+
+NW'88613 DocId:32199554
+Page 2189
+
+*All recommendations nor conclusions of the FBI. It is the property of the FBI and is intended for use by the agency and may be distributed outside your agency.*

@@ -1,0 +1,61 @@
+# JFK-Files-Part-2_page_14281.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+# Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENSTUDY 75
+
+DATE: 5/9/75
+
+Assoc. Dir. ____
+Dep. AD Adm. __
+Dep. AD Inv. __
+Asst. Dir.:
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection:
+Intel. ✓ ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training:
+Legal Coun. ✓ ____
+Telephone Rm. 210 ____
+Director Sec.'s ____
+
+At approximately 2:35 PM, Mr. Allen G. Sentinella telephonically advised that he retired from the Atlanta Office in 1971, and is currently employed at Georgia State University, Atlanta, Georgia. Sentinella said he had just been contacted by an individual who identified himself as Lester Seidel of the Senate Select Committee. Seidel desires to interview Sentinella on Monday, May 12th, concerning the Martin Luther King and Levinson cases.
+
+Sentinella stated that while assigned to the Atlanta Office he handled the dissemination of information received from informants during our investigation concerning the communist infiltration of the SCLC. Sentinella said he recalled very little concerning this investigation and gave his assurances that he would not divulge any confidential information.
+
+Sentinella asked whether or not he should retain private counsel and he was informed if he felt it necessary, he should do so. He was further informed that his interview was entirely voluntarily and he had no obligation to submit to interview. Mr. Sentinella gave his office telephone number as Area Code 404-658-2167, 2168 or 2170 and his home phone number as Area Code 404-475-5327.
+
+RECOMMENDATION: For information. REC-100 62-11635-5 143
+
+RECOMMENDATION: For information. 16 MAY 27 1975
+
+1 - Mr. Adams
+
+1 - Mr. Wannall
+
+1 - Mr. Creager
+
+1 - Mr. Mintz
+
+1 - Mr. Hotis
+
+RFO:mtm
+
+(6)
+
+84 MAY 27 1975
+
+NW 88296 DocId:32989532 Page 32

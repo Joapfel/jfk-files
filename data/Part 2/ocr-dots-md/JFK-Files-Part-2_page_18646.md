@@ -1,0 +1,62 @@
+# JFK-Files-Part-2_page_18646.png
+
+Convert to MarkdownThis document is prepared in response to your request and is not for dissemi-
+nation outside your Committee. Its use is limited to official proceedings by
+the Committee and to the light may not be disclosed to unauthorized person-
+nel without the express approval of the FBI.
+
+62-116395
+
+July 30, 1975
+
+UNITED STATES SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SEC)
+
+RE: REQUEST FOR IDENTITIES AND ADDRESSES OF SPECIAL AGENTS WITH SURNAME KEHOE ASSIGNED NEW YORK CITY AREA MID-1960's
+
+Reference is made to the letter from captioned committee dated July 24, 1975, which requested a list of all Special Agents assigned to the New York City area in the mid-1960's who had the surname Kehoe and requested the unit to which they were assigned as well as their current address.
+
+Pursuant to your request, set forth below are the names and business addresses of the two Special Agents of the FBI with surname Kehoe who were employed in the New York City area in the mid-1960's. Both were assigned to the investigation of Soviet espionage matters and both are currently Special Agents of the FBI.
+
+Francis Joseph Kehoe
+Federal Bureau of Investigation
+Gateway I, Market Street
+Newark, New Jersey 07101
+
+James Patrick Kehoe
+Federal Bureau of Investigation
+201 East 69th Street
+New York, New York 10021
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.:
+Admin. DCT:pms (9)
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+Director Sec'y ____
+
+ORIGINAL AND ONE COPY TO AG
+
+MAIL ROOM [x] TELETYPE UNIT [ ]
+
+ENCLASURS
+
+GPO 954-546
+
+NW 88326 DocId:32989627 Page 244
+
+This image does not contain any tables.
