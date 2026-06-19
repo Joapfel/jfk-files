@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_22317.png
+
+Convert to Markdown# TOP SECRET
+
+1. Mr. Madigan. You have no inclination or no feeling at all for what his assignment was?
+
+2.
+
+3. Mr. Maheu. No, I do not.
+
+4.
+5. Mr. Madigan. In covert terms whether it was an espionage assignment or whether it was a PR kind of assignment? No idea?
+
+6.
+7. Mr. Maheu. I don't know.
+8. Mr. Madigan. Was there ever an island involved with that assignment to your knowledge?
+
+9.
+10. Mr. Maheu. Not to my knowledge or recollection.
+11. Mr. Madigan. You never heard of an island called Peletier have you?
+
+12.
+13. Mr. Maheu. Not to my recollection.
+14. Mr. Madigan. During the 1960's did you employ a fellow by the name of Jack Buckley? We may have discussed this before.
+
+15.
+16. Mr. Maheu. I believe that from time to time a Jack Buckley did work for Robert A. Maheu Associates. I don't believe he was an employee.
+
+17.
+18. Mr. Madigan. Would he be on a kind of an intermittent contract basis like Frank was? You would use him every once in awhile?
+
+19.
+20. Mr. Maheu. My recollection is that he did some work for Robert A. Maheu Associates and, as I say, not an employee.
+
+21.
+22. Mr. Madigan. Do you know what types of assignments he did?
+
+23.
+24.
+25.

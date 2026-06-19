@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_24436.png
+
+Convert to Markdowntheir face that the plot involved assassination, although Bissell
+and Edwards insist the real meaning must have been understood.
+
+There is some other evidence which can be said both to suggest
+that Dulles and Cabell did know and to suggest that they did not
+know. (See Section (b) below.)
+
+(ii) **McCone**: McCone testified that he did not know about or authorize the plots. Helms and Bissell both stated that McCone was not told by them of the earlier assassination efforts when McCone assumed the position of DCI in November 1961. The I.G. Report states that Harvey received Helms' approval not to brief McCone when the actual efforts were resumed in 1962. Harvey testified this accorded with his recollection. Thereafter, Helms and Harvey did not tell McCone about assassination activity on several occasions. Helms did not recall any agreement not to brief McCone, but did not call into question the position taken by Harvey or the I.G. Report on this matter. Helms did say that McCone never told him not to assassinate Castro, but added that he was not claiming that he told McCone about the plots. (These matters, as well as the various reasons put forward by Harvey and Helms for not briefing McCone, are set forth in Section (c) below.)
+
+(b) Did Allen Dulles Know of or Authorize the Initial Plots Against Castro?* Both Allen Dulles and his Deputy (DDCI),
+
+\* This testimony relates to the "airplane" incident in July 1960 and what the I.G. Report referred to as the initial phase of the assassination effort involving the underworld. With respect to the "schemes" prior to that operation, the I.G. Report concluded they could "find no evidence that any of the schemes were approved at any level higher than division, if that". (I.G., p. 10.)

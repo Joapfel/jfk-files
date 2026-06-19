@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_24813.png
+
+Convert to MarkdownI think the meeting of September 15th has to be seen in the context of two previous meetings of the 40 Committee on September 8th and September 14th in which the 40 Committee was asked to look at the pros and cons and the problems and prospects of a Chilean military coup to be organized with United States assistance.
+
+(Kissinger testimony, p. 5)
+
+According to the summary of the 40 Committee meeting on September 8, the following was discussed:
+
+...all concerned realized that previous plans for a Phase II would have to be drastically redrawn.... The DCI made the point, however, that congressional action against Allende was not likely to succeed and that once Allende was in office the Chilean opposition to him would disintegrate and collapse rapidly. While not advocating a specific course of action, the Director further observed that a military golpe against Allende would have very little chance of success unless undertaken soon. Both the Chairman and the Attorney General supported this view....At the close of the...meeting the Chairman directed the Embassy to prepare a "cold-blooded assessment" of:
+
+1) the pros and cons and problems and prospects involved should a Chilean military coup be organized now with U.S. assistance, and
+
+2) the pros and cons and problems and prospects involved in organizing an effective future Chilean opposition to Allende.
+
+(CIA Memorandum/Policy Decision Related to Our Covert Action Involvement in the September 1970 Chilean Presidential Election, 9 October 1970)
+
+Ambassador Korry responded to the 40 Committee's request for a "cold-blooded assessment" on September 12. He stated that "We /the Embassy/ believe it now clear that Chilean military will not, repeat not, move to prevent Allende's accession, barring unlikely situation of national chaos and widespread violence." The Ambassador went on to say that "Our own military people /are/ unanimous in rejecting possi-
+
+TOP SECRET

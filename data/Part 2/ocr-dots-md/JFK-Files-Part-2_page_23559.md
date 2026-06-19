@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_23559.png
+
+Convert to MarkdownFor its part, CIA had developed a whole series of functions paralingling already existing functions of the State Department, and of the Defense Department as well. Today it has its own political desks and military staffs; it has in effect its own foreign service; it has (or has had) its own combat forces; it even has its own air force. Its annual budget is about twice that of the State Department. The contemporary CIA possesses many of the characteristics of a state within a state.
+
+## II. Doctrine
+
+Though CIA's autonomy developed for historical reasons, it has been able to endure because there is no doctrine governing our conduct at clandestine operations. The problem of doctrine for CIA is the extent to which its various clandestine missions are compatible with a free and open society.
+
+It is idle to argue that, because the Communists can do such-and-such, we are free to do it too. Communism is a creed nurtured in conspiracy and the whole point of Communist social and political organization is to make conspiracy effective. If 'fighting fire with fire' means contracting the freedoms traditionally enjoyed by Americans in order to give more freedom to CIA, no one seriously wishes to do that. Yet I do not feel that we have tried rigorously to think through the limits which the maintenance of an open society places on secret activity. Until this is done, CIA's role will not be clearly defined and understood. The problem which must be faced is: what sort of secret activity is consistent with the preservation of a free social order?
+
+We must begin, I believe, by accepting the fact that the United States will continue to be a nation in which politicians will ask questions and make speeches, especially will dig out stories, newspapers will publish editorials, individuals, driven by promptings of conscience, will hurt out things harmful to the state, and so on. We do not wish to change those things and could not do so without violating the essence of our society. These things make up the framework in which CIA must operate. In short, they constitute the problem; and, as General Marshall used to say, "There's no point in fighting the problem."

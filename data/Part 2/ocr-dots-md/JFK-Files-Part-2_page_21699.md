@@ -1,0 +1,79 @@
+# JFK-Files-Part-2_page_21699.png
+
+Convert to Markdown# TOP SECRET
+
+1 gsh 9
+
+2 Phone (Area 202) 544-6000
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+might have directed me to this particular unit.
+
+I was told that somewhere within the overall political and psychological staff there was located a man with a small office. This man's name was Pash, Colonel Boris Pash, and my understanding was that Colonel Pash had been doing business, let us say, with the Agency in West Germany for quite a while.
+
+I sought out Colonel Pash. I was directed to his office and found sitting with him another Agency officer named Lazarus.
+
+Lazarus: I'm not sure whether it is Arthur Lazarus.
+
+Mr. Baron. It's a Greek name. Aristotle is his correct first name, but he goes by Article.
+
+Mr. Hunt. Very good. But in any case, he was known throughout my career as Article Lazarus. And I was at that point on, let's say, a search mission to determine whether the alleged capability of Colonel Pash in 'wet affairs,' which is how it was referred to, that is liquidations, would have any relevance to our particular problem of the Albanian dis-appointments.
+
+Mr. Baron. By liquidations, you mean assassinations?
+
+Mr. Hunt. Assassinations. Assassinations, kidnappings, removals, let's say.
+
+This had been alleged to me. So I spoke to Colonel Pash in Mr. Lazarus' presence. I explained the problem to him, although at that juncture I'm quite sure that we had not identified the Albanian suspect. So we were talking hypothetically
+
+HW 50955 DocId:32202418 Page 4
+
+TOP SECRET

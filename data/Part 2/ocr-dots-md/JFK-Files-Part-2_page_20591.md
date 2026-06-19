@@ -1,0 +1,165 @@
+# JFK-Files-Part-2_page_20591.png
+
+Convert to Markdown<table><tr><td>Mr. Tolson</td></tr><tr><td>Mr. Felt</td></tr><tr><td>Mr. Rosen</td></tr><tr><td>Mr. Mohr</td></tr><tr><td>Mr. Eich p</td></tr><tr><td>Mr. Miller, ES.</td></tr><tr><td>Mr. Chtchen</td></tr><tr><td>Mr. Casper</td></tr><tr><td>Mr. G.</td></tr><tr><td>Mr. I.</td></tr><tr><td>Mr. Cleveland</td></tr><tr><td>Mr. Ponder</td></tr><tr><td>Mr. Bates</td></tr><tr><td>Mr. Waikart</td></tr><tr><td>Mr. Walters</td></tr><tr><td>Mr. Scyans</td></tr><tr><td>Tele. Room</td></tr><tr><td>Miss Holmes</td></tr><tr><td>Miss Gandy</td></tr></table>
+
+JAN 12 1972
+
+WR011 NY CODE
+12:5PM|RGENT 1-13-72 GMD
+
+TO DIRECTOR
+
+ATT DOMESTIC INTELLIGENCE DIVISION
+
+WASHINGTON FIELD 120-49940
+
+FROM NEW YORK 120-174481 IP
+
+WOMEN'S NATIONAL ABORTION ACTION COALITION (WONAAC): 00: WFO IS-NEW LEFT
+
+ON JANUARY THIRTEENTH SEVENTY TWO, DETECTIVE HENRY SUAREZ, SIS, NYCPD ADVISED WOMEN'S NATIONAL ABORTION ACTION COALITION (WONAAC) AND OTHER UNKNOWN GROUPS OF WOMEN ARE TO CONDUCT MARCH AT FOUR THIRTY P.M. THURSDAY, JANUARY THIRTEENTH SEVENTY TWO. THIS MARCH IS TO BEGIN AT FORTY SECOND STREET AND TIMES SQUARE AND GO TO HERALD SQUARE (THIRTY FOURTH STREET AND SIXTH AVENUE), NEW YORK, NEW YORK.
+
+NO FURTHER INFORMATION AVAILABLE AT THIS TIME,
+CONCERNING PURPOSE OF MARCH OR NUMBER EXPECTED TO PARTICIPATE.
+
+REO-8/1
+
+JAN 20 1972
+
+GXC FBI WASHDC
+
+NW 88321 DocId:32989546 Page 96
+
+END
+
+1972
+
+NO JAN 18 1972
+
+ADMINISTRATIVE:
+
+SIS, NYCPD COGNIZANT. NEW YORK WILL COVER AND SUTEL.
+
+END
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+54
+
+JAN 20 1972
+
+5

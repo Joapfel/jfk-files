@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_23361.png
+
+Convert to MarkdownTOP SECRET
+
+1. Chiefs in the field, to a greater extent than Dr. Gottlieb would.
+2. The last thing I am doing is impugning his veracity and his testimony.
+3. Mr. Baron. When you say it is not the way we do business, you meant to say it was your understanding in general Agency practice that the Chief of Station in a situation like this would be expected to check back with Headquarters?
+4. Mr. Tweedy. When a Chief of Station was given the authority to carry out something entirely on his own initiative, that was made quite clear -- I'm not talking about this case, I mean generally -- this was made quite clear.
+5. Mr. Baron.. When you were talking about the fact that "this was not the way that we generally did business," you weren't referring to the fact that you would have made it absolute! explicit in any conversation with Sidney Gottlieb or anybody like him who was undertaking a sensitive mission that the Chief of Station would be expected to check back?
+6. Mr. Tweedy. If I had not mentioned this to Sidney Gottlieb and he said I did not, I am perfectly prepared to believe him, it would be because it never occurred to me that the Chief of Station would act in any other way. That is it.
+7. Mr. Dawson. Of course, Mr. Hedgeman also testified that it never would have occured to him to have carried this out without having checked back, and he did so, of course: the cables will show that very clearly. What we are trying to focus
+
+TOP SECRET
+
+NW

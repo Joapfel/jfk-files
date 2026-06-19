@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_24483.png
+
+Convert to MarkdownOut of these March 1960 meetings of the NSC and Special Group came
+the general covert action plan against Cuba.*
+
+Against this background of general discussions of Cuba, we con-
+sidered certain remarks appearing in the records of a March 10, 1960 National
+Security Council meeting and a March 14, 1960 Special Group meeting.
+
+The record of the NSC meeting of March 10, 1960 (at which President
+Eisenhower was present) states that Admiral Arleigh Burke, in commenting on
+Allen Dulles' statement that the Cuba covert action plan was in preparation,
+"suggested that any plan for the removal of Cuban leaders should be a package
+deal, since many of the Cuban leaders around Castro were even worse than Castro."
+(Gray Ex. 2, p. 9). And, according to the minutes of a Special Group meeting
+on March 14, 1960 (which President Eisenhower did not attend) "there was a
+general discussion as to what would be the effect on the Cuban scene if Fidel
+and Raül Castro and Che Guevara should disappear simultaneously." (Gray Ex. 3,
+p. 2).
+
+Admiral Burke, who served as Chief of Naval Operations from 1955 to
+1961, stated in an affidavit** that although he did not have a specific recollec-
+tion of the March 10, 1960 meeting of the National Security Council, he had a
+clear recollection of the discussions of Cuba policy that took place in the
+spring of 1960. (Burke affidavit, p. 1). Burke stated that the reference to
+the suggestion by him at the March 10, 1960 meeting "clearly refers to the
+
+* As Gray testified, this plan covered four areas: sabotage, economic sanctions, propaganda, and training of a Cuban exile force for a possible invasion. Gray stated that this plan had nothing to do with assassination. (Gray, 7/9/75, p. 17).
+
+** Admiral Burke was unable to testify in person before the Committee because he was in the hospital.
+
+TOP SECRET
+
+NWW 50955 DocID:32423539 Page 113

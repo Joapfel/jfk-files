@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_20808.png
+
+Convert to MarkdownLetter to Philadelphia
+Re: Women's National Abortion Action
+Coalition (WONAAC)
+100-468406
+
+**NOTE:**
+
+In letter dated 1/31/73 Philadelphia advised that information had been received on 10/26/72 that WONAAC, which is dominated and controlled by Socialist Workers Party (SWP), had moved to the University of Pennsylvania. Philadelphia requested authority to continue investigation. Philadelphia being authorized to continue investigation in a most discreet manner and to avoid conducting investigation which could be construed as infringement on academic freedom. Philadelphia also being advised to furnish such information on a more timely basis in the future.

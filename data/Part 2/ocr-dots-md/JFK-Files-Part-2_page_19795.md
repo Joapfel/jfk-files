@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_19795.png
+
+Convert to MarkdownSecond source is [BS 803-8.]
+
+Third source is Officer DONALD EYAN, Boston University Security Police.
+
+Agents observing the Washington, D. C., Demonstration were WILLIAM ARMS, WILLIAM BROOKS, RICHARD COEFMAN, NORMAN WATKINSON, MASON NOAH, and WILLIAM TUCKER.
+
+MATILDA JONES IS AN ADFK SUBJECT TO THE BOSTON Division; and appropriate security investigations are being conducted concerning EVELYN CLARK, JANE ROLAND, and PAT EUTNAM.
+
+Boston as of this time contemplates coverage of the scheduled conference through BS 1781-P8I and BS 1414-B (Prob.) as well as the Campus Police Force at Boston University.
+
+New York and WTO are requested to advise of any additional pertinent information they possess concerning the scheduled conference and whether sources from those divisions will be in attendance.
+
+The enclosed LHM has been classified "Confidential" as the unauthorized disclosure of information provided by the sources could reasonably result in identification of these sources or continuing value, compromise their future effectiveness, and thus adversely affect the defense interests of the United States.
+
+Boston following, and Bureau will, be advised of pertinent developments.

@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_21404.png
+
+Convert to MarkdownSECRET
+
+Letter to SAC, Boston
+RE: RICHARD THOMAS GIBSON
+105-93072
+
+regarding him or his activities. Information reported by
+Gibson should not be incorporated into any communication
+which will be afforded dissemination outside the Bureau.
+If necessary, the information he has furnished may be
+included on the administrative pages of an investigative
+report(s)
+
+On 10/29/70 CIA made available to the Bureau by
+cover letter of the same date 29 separate reports covering
+the activities and contacts of Sugar during his visit to
+this country during the period 9/24-10/11/70 when he
+traveled to Chicago, Detroit, New York, Philadelphia, and
+San Francisco. These reports have been reviewed at the
+Bureau and are being forwarded as enclosures to this
+communication for appropriate offices. Recipient offices
+should carefully review the reports, insure their chan-
+nelization to appropriate field files and/or indexing,
+and take any appropriate action necessary on the information
+contained therein. (S)
+
+The following reports are enclosed for the
+following field offices:
+
+Boston: Report S-52, Danny Schechter (BS 100-39117)
+Chicago: Copy of CIA cover letter (for reference purposes)
+Report S-31, Leibel Bergman
+Report S-32, Herbert Block (CG 134-1800)
+Report S-59, Don Wright (CG 134-2818)
+Detroit:
+Report S-33, James Boggs
+Report S-36, Albert Cleague
+Report S-44, Milton Henry
+Report S-47, League of Revolutionary Black Workers
+Report S-58, Robert Franklin Williams
+Los Angeles: Report S-38, Angela Davis
+Milwaukee: Report S-50, Paul Richards
+New Orleans: Report S-45, Richard Henry
+
+HW 50953 DocId:32339240 Page 28
+
+SECRET
+
+SECRET

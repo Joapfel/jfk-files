@@ -1,0 +1,8 @@
+# JFK-Files-Part-2_page_19720.png
+
+Convert to MarkdownWOMEN'S NATIONAL ABORTION ACTION COALITION
+
+Vol I
+
+SSC
+10/15/75 #80

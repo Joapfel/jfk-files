@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_21079.png
+
+Convert to Markdownfiasco, we have not seen any evidence of high-grade intelligence being developed by CIA in Cuba since McCone became Director of the agency. To show impressive results, McCone must fall back on intelligence information developed through high-altitude photography and the use of other sophisticated technical equipment being used to photograph targets and to intercept communications. Much of this is, of course, being done in collaboration with other U. S. agencies such as the Air Force.
+
+# FBI COOPERATION WITH CIA
+
+During the past year there have been numerous instances of excellent cooperation rendered by the Bureau to CIA. Set forth are some outstanding examples:
+
+## INFORMATION FROM SENSITIVE SOURCE SOLO
+
+We have furnished CIA information from our sensitive Communist Party source who has traveled to Russia and has been in contact with Soviet leaders. This information has been most valuable to CIA in following developments particularly the differences between Red China and Russia.
+
+## TOPHAT
+
+Our sensitive penetration of the Soviet Military Intelligence Service (GRU) has produced highly valuable information of use to CIA.
+
+GIMME
+
+This is a highly sensitive penetration of the Czech Intelligence Service. His information has significantly assisted CIA in obtaining a current picture of the Czech intelligence organization.
+
+## BUREAU FURNISHES CIA A VALUABLE SOURCE
+
+Our sensitive Czech source, Gimme, is scheduled to return to Czechoslovakia. Arrangements have been made to make him available to CIA.
+
+## FEDORA
+
+Through this sensitive KGB penetration, we have furnished CIA leads pertaining to Soviet intelligence operations abroad. In addition, we have given the agency data pertaining to the organization and functions of KGB.

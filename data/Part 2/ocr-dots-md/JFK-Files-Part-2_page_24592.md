@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_24592.png
+
+Convert to Markdown# H. The Question of Authorization for the 1963 Assassination Plot
+
+## 1. The 1963 Assassination Plot
+
+TOP SECRET
+
+This section discusses the specific question of authorization above the Agency for the delivery of the poison pen to AM/LASH on November 22, 1963, and reviews certain policies of the Kennedy Administration during 1963 which are relevant to that question.*/ (The facts relating to the poison pen plot are set out at pp. ___ above).
+
+## 2. The Issue of Authority
+
+Much of the testimony of Helms and the Kennedy Administration members discussed in the preceding section (see pp. ___ to ___) is relevant to the question of authorization for the 1963 assassination activity. Once again there was no evidence that anyone above the Agency was informed about or specifically authorized the plot.
+
+As in the case of the 1962 assassination plot, however, Helms testified that he believed the 1963 assassination activity was permissible in view of his perception of continuing pressure exerted by the Administration to overthrow Castro /and his perception that there were no limits placed on the means that could be used to achieve Castro's downfall. (Helms, 9/11/75, pp. 11-13)./
+
+The testimony of Helms and the Kennedy Administration members on the issue of whether the pressure to overthrow Castro made assassination permissible without a direct order is discussed in detail in the preceding section and is not repeated here. Before turning to Helms' specific testimony relating to AM/LASH (including his view that AM/LASH was not seen as a potential assassin) we discuss below the Kennedy Administration Cuba policy in 1963. In
+
+*/The evidence showed that the "science-fiction" devices of an exploding sea shell and a poison diving suit were abandoned at the laboratory stage within the CIA and that no authorization was sought for their development or eventual use. Evidence, the focus in this section is on the activity involving the delivery of the poison pen to AM/LASH.
+
+TOP SECRET

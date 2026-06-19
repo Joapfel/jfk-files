@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_21228.png
+
+Convert to MarkdownCOMMENT:
+
+On November 28, (N-46), NOSENKO stated that this case was included among the notes furnished to him by EVGENI NOSKOV acting for Section Chief VITALI DERA in 1963 (as noted above)
+
+15. SPENCER ROBERTS
+
+On page 422 it is stated that NOSENKO did not indicate his original source of information on SPENCER ROBERTS
+
+COMMENT:
+
+On March 18, 1968, (N-165), NOSENKO stated that he did not recall how he learned about this case but it happened after he left the 1st Department in January, 1962.
+
+16. JOHANNA ROSS
+
+On page 423 it is stated that NOSENKO did not indicate the source of his information on JOHANNA ROSS.
+
+COMMENT:
+
+On November 10, 1967, (N-18d), NOSENKO stated that ROSS was in the USSR as a tourist in 1959, and an agent of the 3rd Section, 7th
+
+TOP SECRET
+
+213

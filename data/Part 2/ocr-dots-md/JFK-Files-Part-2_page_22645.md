@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_22645.png
+
+Convert to MarkdownTOP SECRET
+
+1. Senator Baker. Did he have a prominent responsibility?
+
+2. Mr. Angleton. He was a man that had a very difficult case abroad, which meant that it had to be buried; no leakages.
+
+3. And Rused him twice, and one was a pretty lengthy use of him.
+
+4. And he followed instructions to the letter. He strayed on the one. And it is not important. It is just something that he did something that wasn't very wise.
+
+5.
+6.
+7
+8. Senator Baker. Doyou know why he went into the Watergate Complex?
+9.
+10. Mr. Angleton. I can't understand it, because I would say it was ideological with him. There wasn't any difficulty in understanding his views on a given subject.
+
+11.
+12.
+13. Senator Baker. The equipment that was used, I am told, was a fairly primitive sort for that sort of operation.
+14.
+15. Does that agree with your appraisal of him?
+
+16. Mr. Angleton. That is what I read. And that surprised me also, because as a rule -- let me put it this way, what I am saying is, it was the Soviets who made an allegation that in a certain country very close to us they were using a laser beam on a window of the Minister of Defense, and acquiring everything.
+
+17.
+18.
+19.
+20.
+21. So, instead of using anybody in the clandestine side, I took McCord and the group and sent them to that country for six or seven weeks to work on it. So, McCord has great knowledge of the -- he knows the counter electronics. And
+
+22.
+23.
+24.
+25.
+
+TOP SECRET
+
+HAW 50955 DocId:32423393 Page 51

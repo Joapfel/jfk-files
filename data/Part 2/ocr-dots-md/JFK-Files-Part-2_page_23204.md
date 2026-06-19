@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_23204.png
+
+Convert to MarkdownTOP SECRET
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+26
+
+time was Carl Kazen, recently retired head of the School of Advanced Studies in Princeton.
+
+Mr. Baron. During the Eisenhower Administration did you have direct contact with Gordon Gray or Andrew Goodpaster with reference to Congolese affairs.
+
+You are shaking your head and we have to put it on the record.
+
+Mr. Tweedy. I am almost convinced that the answer is no. I am just thinking. I know Gordon Gray quite well. I don't recall ever having policy discussions with him at all, nor General Goodpaster. I think the answer is certainly no.
+
+Mr. Baron. You mentioned to me earlier that you had attended only two National Security Council meetings in your memory and that those two meetings were both long after the death of Lumumba, is that correct?
+
+Mr. Tweedy. I can only imagine that they must have been because this was well into the Kennedy Administration. I wouldn't be able to put any dates on it now.
+
+Mr. Baron. It was during the directorship of John McCone at CIA?
+
+Mr. Tweedy. Yes, that is without question. And McBundy was at the meetings. Yes, it must have been well after the death of Lumumba, maybe even the following year.
+
+Mr. Baron. During the latter part of the Eisenhower
+
+TOP SECRET

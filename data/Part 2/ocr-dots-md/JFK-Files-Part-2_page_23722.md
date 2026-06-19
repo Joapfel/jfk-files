@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_23722.png
+
+Convert to MarkdownSecretary of Defense are connected to attend or whether they're all supposed to be designees.
+
+I don't know what the protocol is but is it likely that the Secretary of Defense would attend if it were a designee of the Secretary of State?
+
+Mr. Miller. Sometimes sure.
+
+Mr. Bader. They certainly did on these other committees.
+
+But what would you propose?
+
+Mr. DiGenova. The language is a little unclear.
+
+Mr. Bader. Perhaps it should say that the Secretary of State is chairman and he presumably then could designate whomever he pleased.
+
+Mr. Kirbow. As a matter of practicality, if the Secretary of State doesn't show up and the Secretary of Defense is there, who's going to chair the meeting?
+
+Mr. Aaron. As a matter of practicality if the Secretary of State doesn't show up, the Secretary of Defense won't be there.
+
+Mr. Kirbow. And you address down because he's never going to go to this kind of meeting where he takes up the day to day operations.
+
+Aren't you really talking here. Don't you leave the language so vague that you fail to imply that what you want is a review of the religion and not the day to day we need one more agent in Amsterdam and two more in Brussels?
+
+TOP SECRET
+
+WILLIAM PAUL
+
+HW 50955 DocId:32423509 Page 96

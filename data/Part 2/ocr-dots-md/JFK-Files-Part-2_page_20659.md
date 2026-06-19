@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_20659.png
+
+Convert to MarkdownWFO 100-55420
+
+3. Illinois Women's Abortion Coalition (IWAC), located at 343 South Dearborn Street, Chicago, Illinois, Room 343. IWAC is a non-membership organization with no officers and minimal activity. Those individuals who function in IWAC are predominantly YSA-SWP members.
+
+(WF T-5 and WF T-6, 1/17/72
+and 1/14/72)
+
+4. D. C. Womens Abortion Action Coalition (D. C. WAAC), located at 1346 Connecticut Avenue, N.W., WDC, Room 303. Staff members of D. C. WAAC are DEE MOSBACHER, SHARON NAIMAN and STAR BOWIE. Also HOLLY RUSSELL and ANNA SEAGRAVES, who are high school "women." All of these individuals are members of the WDC Local of the YSA.
+
+(WF T-1, 3/10/72)
+
+5. In addition to the above, WONAC affiliates and/or support groups are reportedly located in the following areas:
+
+Los Angeles, California
+San Francisco, California
+Hartford, Connecticut
+New Haven, Connecticut
+Gainesville, Florida
+Chicago, Illinois
+Maine
+Detroit, Michigan
+Newark, New Jersey
+Binghamton, New York
+Cincinnati, Ohio
+Harrisburg, Pennsylvania
+Cleveland, Ohio
+Philadelphia, Pennsylvania
+Pittsburgh, Pennsylvania
+St. Louis, Missouri
+Rhode Island
+Austin, Texas
+
+NW 88321 DocId:32989546 Page 164
+
+5

@@ -1,0 +1,64 @@
+# JFK-Files-Part-2_page_19283.png
+
+Convert to MarkdownFBI
+
+Date: 1/4/68
+
+Transmit the following in
+
+(Type in plaintext or code)
+
+Via AIRTEL
+
+(Priority)
+
+TO: DIRECTOR, FBI (100-448475)
+
+FROM: SAC, WFO (100-47173) (P)
+
+DEMONSTRATION PROTESTING
+UNITED STATES POLICY IN
+VIETNAM, WASHINGTON, D.C.
+JANUARY 15, 1968
+(00:WFO)
+
+Transmitted herewith are 11 copies of an LHM for the Bureau with 2 each for New York and Philadelphia describing above demonstration.
+
+LHM being disseminated locally to Secret Service, AUSA and military intelligence agencies. Local law enforce- ment agencies cognizant.
+
+Sources used in LHM are: first source is WF 1777-S second source is CARTER BARBER, 2633 Adams Mill Road, WDC; this source is NY 694-S*.
+
+LHM is classified "Confidential" in view of the fact that information reported from first source could lead to the identity of a source of continuing value and compromise future effectiveness.
+
+REC 5
+
+WFO continuing to follow and will report pertinent details.
+
+ENCLOSURE
+
+DATE FORW:
+HOW-FORM:
+(W/PDF)
+BY:
+Enc.: 2
+
+4 - Bureau
+(1-105-138315)
+2 - New York (RM)
+2 - Philadelphia (100-49497)
+2 - WFO
+(1-100-44061)
+
+GTT:dgp
+(10)
+AIRTEL
+
+B JAN 9 1968
+
+Approved:
+
+Sent M Per
+
+66 JAN 10 1968 Special Agent Charge
+
+NW 88321 DocId:32989544 Page 164

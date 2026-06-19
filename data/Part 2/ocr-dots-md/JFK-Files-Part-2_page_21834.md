@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_21834.png
+
+Convert to MarkdownTOP SECRET
+
+taken during the Bay of Pigs operation) present Castro with a contaminated diving suit* (Colby, 5/21, pp. 38-39).
+
+The Inspector General's Report dates this
+operation in January 1963, when Fitzgerald replaced Harvey as
+Chief of Task Force W, although it is unclear whether Harvey or
+Fitzgerald conceived of the plan (I.G., p. 75). It is likely
+that the activity took place earlier, since Donovan had completed
+his negotiations by the middle of January 1963. Helms characterized
+the plan as "cockeyed" (Helms, 6/13, p. 135).
+
+TSD bought a diving suit, dusted the inside with a fungus that would produce a chronic skin disease (Madura foot), and contaminated the breathing apparatus with a tubercule bacillus (I.G., p. 75). The Inspector General's Report states that the plan was abandoned because Donovan gave Castro a different diving suit on his own initiative (I.G., p. 75). Helms testified that the diving suit never left the laboratory (Helms, 6/13, p. 135).
+
+(e) AMLASH
+
+(1) Origin of the Project
+
+In March 1961, an officer of the Mexico City CIA station met with a highly-placed Cuban official to determine if he would cooperate in efforts against the Castro regime (I.G., p. 78). The Cuban, referred to by the cryptonym AMLASH-1, had been
+
+*Donovan was not aware of the plan.

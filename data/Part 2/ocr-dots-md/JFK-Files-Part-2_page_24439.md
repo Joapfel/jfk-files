@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_24439.png
+
+Convert to MarkdownThe Executive Officer to the Chief of the Cuba
+
+court action project, who had sent the cables testified that
+he had "heard" that Dulles had countermanded Barnes' plan and
+had indicated that "assassination was not to be considered."
+
+(Duty Officer, p. 29).* The officer added, however, that he
+had no personal knowledge of the reason for calling off the plan,
+or even if Dulles had been the one who called it off, he further
+testified that
+
+"assassination had not been part of the Cuba covert action project in 1960 and that Dulles' action in this incident conformed with CIA policy against the use of assassination." (Duty Officer, p. ___).**
+
+* The countermanding cable to the Havana station, which was "Operational Immediate," was sent the morning after the cable of the previous night. The officer who sent that cable testified:
+
+"...I saw the cable and was told that, to the best of my knowledge, my memory is that the Director [Dulles], not the Deputy Director [Bissell] ... had countermanded the cable and had directed that -- had indicated that ... assassination was not to be considered." (Duty Officer, p. 29).
+
+The officer stated that he did not talk to either Dulles or Bissell about the countermanding cable, but that he did see the cable and in all likelihood heard of the reason for Dulles' re-action in discussions the same morning with his superior, the Chief of the Cuba project. (Duty Officer, pp. 30-32).
+
+** The officer testified:
+
+"...we were schooled that although other countries [used assassination] we do not, and I had always understood this as a basic rule." (Duty Officer, p 14).
+
+"Question: So was it your understanding after this cable, and in view of your knowledge of the Agency general practice with respect to assassination in which you had been schooled that it was not done, that assassination was not part of the Cuba Project, as far as you knew?"

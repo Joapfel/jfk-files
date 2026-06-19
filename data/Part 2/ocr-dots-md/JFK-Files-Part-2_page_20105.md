@@ -1,0 +1,195 @@
+# JFK-Files-Part-2_page_20105.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+# Memorandum
+
+TO : ACTING DIRECTOR, FBI
+
+DATE: 7/6/72
+
+FROM : SAC, DETROIT (100-40426)
+
+SUBJECT: NATIONAL WOMEN'S POLITICAL CAUCUS (NWPC) POLICY COUNCIL MEETING 6/24 - 25/72 WASHINGTON, D.C. INFORMATION CONCERNING WOMEN'S NATIONAL ABORTION ACTION COALITION (WONAAC) IS - C (TROTSKYITE) DEfile 100-40426
+
+Enclosed for the Bureau are eight copies of an LHM captioned, "National Women's Political Caucus (NWPC), Policy Council Meeting", dated as above.
+
+Also enclosed for the Bureau are three samples of literature distributed at captioned meeting.
+
+One copy each of captioned LHM is being furnished New York, San Francisco, and WFO for their information.
+
+Source is DE 2831-S location: this LHM.
+
+Bureau (Enc. - 11) (RM)
+1 - New York (Enc. - 1) (Info.) (RM)
+1' - San Francisco (Enc. - 1) (Info.) (RM)
+1 - WFO (Enc. - 1) (Info.) (RM)
+4 - Detroit
+1 - 134-3030
+1 - 100-1334 (SWP)
+
+ZTL: PMR (9)
+
+REC-23
+
+AGEN, ARMY, OF YD, SEC, SER, STATE, YD
+
+DIA; 2cc9320; Icclcigarette
+2cc RMO (ISA, CHG 1/3) 1/73
+DATE FOB: 7/19/72
+HOW FORW: R/S
+BY: GJL /men
+
+2-5-72 U S Savings Bonds Regularly on the Payroll Savings Plan
+
+NW 88321 DCID 32989545 Page 389
+
+RECEIVED
+
+NO RECOVABLE
+COPY RECEIVED
+
+DATE FOB: 7/19/72
+
+HOW FORW: R/S
+
+BY: GJL/men
+
+2-5-72
+
+RECEIVED
+
+NO RECOVABLE
+COPY RECEIVED
+
+DATE FOB: 7/19/72
+
+HOW FORW: R/S
+
+BY: GJL/men
+
+2-5-72
+
+RECEIVED
+
+NO RECOVABLE
+COPY RECEIVED
+
+DATE FOB: 7/19/72
+
+HOW FORW: R/S
+
+BY: GJL/men
+
+2-5-72
+
+RECEIVED
+
+NO RECOVABLE
+COPY RECEIVED
+
+DATE FOB: 7/19/72
+
+HOW FORW: R/S
+
+BY: GJL/men
+
+2-5-72
+
+RECEIVED
+
+NO RECOVABLE
+COPY RECEIVED
+
+DATE FOB: 7/19/72
+
+HOW FORW: R/S
+
+BY: GJL/men
+
+2-5-72
+
+RECEIVED
+
+NO RECOVABLE
+COPY RECEIVED
+
+DATE FOB: 7/19/72
+
+HOW FORW: R/S
+
+BY: GJL/men
+
+2-5-72
+
+RECEIVED
+
+NO RECOVABLE
+COPY RECEIVED
+
+DATE FOB: 7/19/72
+
+HOW FORW: R/S
+
+BY: GJL/men
+
+2-5-72
+
+RECEIVED
+
+NO RECOVABLE
+COPY RECEIVED
+
+DATE FOB: 7/19/72
+
+HOW FORW: R/S
+
+BY: GJL/men
+
+2-5-72
+
+RECEIVED
+
+NO RECOVABLE
+COPY RECEIVED
+
+DATE FOB: 7/19/72
+
+HOW FORW: R/S
+
+BY: GJL/men
+
+2-5-72
+
+RECEIVED
+
+NO RECOVABLE
+COPY RECEIVED
+
+DATE FOB: 7/19/72
+
+HOW FORW: R/S
+
+BY: GJL/men
+
+2-5-72
+
+RECEIVED
+
+NO RECOVABLE
+COPY RECEIVED
+
+DATE FOB: 7/19/72
+
+HOW FORW: R/S
+
+BY: GJL/men
+
+2-5-72
+
+RECEIVED
+
+NO RECOVABLE
+COPY RECEIVED
+
+DATE FOB: 7/19/72

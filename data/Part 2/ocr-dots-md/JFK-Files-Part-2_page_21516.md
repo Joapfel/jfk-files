@@ -1,0 +1,56 @@
+# JFK-Files-Part-2_page_21516.png
+
+Convert to Markdown1. cers whose objective would be to plan for the overthrow of
+2. the Castro regime.
+
+3. Mr. Smothers. Was it your understanding that these plans were to extend to assassination?
+
+4. Mr. Halpern. That word was not used, sir. But no
+
+6. holds were barred, and we had no limitation.
+
+7. Mr. Smothers. Let me ask you it another way. What was
+
+8. your understanding of what Mr. Bissell had been told to do
+
+9. by the President and the Attorney General?
+
+10. Mr. Halpern. To get rid of Castro and the Castro regime
+
+11. on the Island of Cuba.
+
+12. Mr. Smothers. Did Mr. Bissell convey to you the idea
+
+13. that that included killing Castro?
+
+14. Mr. Halpern. The subject never came up per se.
+
+15. Mr. Smothers. What did you come away from that meeting
+
+16. expecting to do?
+
+17. Mr. Halpern. We were very hard put to come up with
+any real ideas. We didn't know what to do, frankly. And we
+
+18. went back -- one thing we both agreed on, both Zogbey and
+
+19. I, is that we were not going to come up with a piece of
+paper which said this was going to be easy or could be done
+
+20. overnight, or could be done with mirrors.
+
+21.
+
+22. The Chairman. Did you come away after your conversation
+with Mr. Bissell with the idea that he had instructed you
+to come up with a plan of some kind designed to overthrow,
+
+23.
+
+24.
+
+25.
+
+TOP SECRET
+
+HW 50955 DocId:32281927 Page 9

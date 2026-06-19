@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_21619.png
+
+Convert to MarkdownIUP SECRET
+
+1 service, he might not be from Havana, he might be from the
+2 Soviets, from us, or from the Brazilians.
+3 So, it is not an unusual practice.
+4 Mr. Schwarz. Incidentally, you just let drop one thing
+5 in your testimony a moment ago. You said that in your 25-year
+6 involvement with intelligence matters you had been bothered
+7 by your activities on only two occasions, one of which was
+8 Chile.
+9 And then you said what the other one was. What was that?
+10 Mr. Phillips. I was in Washington attending the Chiefs
+11 of Station course, which is a training course for people who
+12 are going out on their first assignment as Chief of Station.
+13 When President Johnson decided to send 22,000 Marines
+14 to the Dominican Republic, it occurred to me that in order to
+15 protect and evacuate American citizens, that that job might
+16 have been done with 400 Marines. I was scheduled to go there
+17 as the Chief of Station. And I just wasn't sure that I
+18 wanted to be associated with something like that. But I de-
+19 cided, well, I suppose President Johnson knows what he is
+20 doing, I will go -- I am going to go along. So, I did go
+21 along.
+22 Senator Schweiker. One question on your differentiation
+23 between where you drew a personal commitment line on assassin-
+24 ations, but not overthrow. I have trouble quite understanding
+25 it, because as I understand Chile, the plot was to overthrow
+
+TOP SECRET
+
+HW 50955 DocId:32282005 Page 9

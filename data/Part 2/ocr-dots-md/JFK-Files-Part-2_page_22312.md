@@ -1,0 +1,73 @@
+# JFK-Files-Part-2_page_22312.png
+
+Convert to Markdown1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+TOP SECRET
+
+Mr. Madigan. Did you ever hear of project Happy Days?
+
+Mr. Maheu. No.
+
+Mr. Madigan. Or Project Harp Star?
+
+Mr. Maheu. No.
+
+Mr. Madigan. Or Project Norfok?
+
+Mr. Maheu. No.
+
+Mr. Madigan. Did you have an occasion to receive an assignment from the CIA with regard to the leader of another foreign country, who we will refer to as Leader "B"?
+
+Mr. Maheu. Yes, sir.
+
+Mr. Madigan. What was your assignment in that regard?
+
+Mr. Maheu. I was told that said leader would be visiting Los Angeles, that he was enthralled with Hollywood and asked if I could find someone to have a party, preferably in a private home, with a reasonably large attendance on his behalf during his trip to Los Angeles.
+
+Mr. Madigan. And who did you contact with regard to that?
+
+Mr. Maheu. I contacted Mr. Gregson Bautzer.
+
+Mr. Madigan. Is that B-a-u-t-z-e-r?
+
+Mr. Maheu. B-a-u-t-z-e-r, a Hollywood attorney.
+
+Mr. Madigan. And did he hold the party that you refer to?
+
+Mr. Maheu. Yes, he did.
+
+Mr. Madigan. Was part of your assignment to line up a woman who was to try and associate herself with this leader?
+
+Mr. Maheu. My recollection is that the intent was to
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+HW 50955 DocId:32203816 Page 22
+
+TOP SECRET

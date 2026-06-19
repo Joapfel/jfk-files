@@ -1,0 +1,133 @@
+# JFK-Files-Part-2_page_22404.png
+
+Convert to MarkdownSECRET
+
+be requested and that is about it.
+
+Q And those were run out of the United States?
+
+A Oh, yes.
+
+Q Can you think of anything, any other type of para-military activity other than maritime operations.
+
+A No. I really can't, no.
+
+Q Am I correct that those operations were manned by CIA contract employees?
+
+A Right.
+
+Q Which would include Cuban refugees.
+
+A Right.
+
+Q And some CIA officers?
+
+A Right.
+
+Q Any other branches of the services, Armed Services, involved? This, of course, is posted Bay of Pigs.
+
+A Yes. No, not to my knowledge. You have got to remember that probably down through the years we probably have people on detail from other -- from the military branches in the Government, but other than that I don't think that -- of course, during the Bay of Pigs operation we also had people detailed into the Agency.
+
+Q Now, the training of persons involved in maritime operations, I take it, was conducted in part within the United States and in part outside of the United States. Is that correct?
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32203851 Page 42
+
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- — — — — — —
+- —

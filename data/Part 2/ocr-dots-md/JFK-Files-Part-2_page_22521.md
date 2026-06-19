@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_22521.png
+
+Convert to MarkdownWiley stated that he learned from a former police- man who served under Batista that every G-2 station in Havana had cached 400 Czech machine guns and approximately two million rounds of ammunition. Source told Wiley that he knew this to be true because he had worked putting these items there. Wiley himself definitely discounts this story.
+
+Wiley reported that a source had obtained from another source who worked at this place that there were 200 Russian or East German (European) technicians at the Baracoa (ph) base.
+
+Wiley reported that he had received information that at Marianu or Marianal there had been observed a number of pairs of cranes. These pairs of cranes consisted of a large crane and a small crane which are apparently built together and are so designed that they are used for handling odd shaped or unusual sized material. No other details given.
+
+Wiley stated that inside the prison cell while he was first incarcerated, he heard that the Cuban police claimed that they had in prison the head of the sabotage group, the head of the Activist group and the Chief of Finance of the MRR movement in Havana. Wiley stated that he got pretty close to the men in the cell. They apparently liked him and in fact talked quite freely to him and that when he mentioned this to several of these individuals, the various men did not deny to him the above. Wiley said that these prisoners admitted that they were connected with and were leaders of one of the two major sections of the MRR in Havana.
+
+Wiley stated that one of the above mentioned men whose name is Hermando Marchecho claimed that while being interrogated he was able to see reports which were signed by three or four individuals which he recognized as double agents in the ranks of MRR. Marchecho stated that as far as he was concerned, the appearance of these names on reports indicated that a heavy penetration of the MRR had been made by Castro's intelligence. According to Wiley, Marchecho was completely discouraged by this but nevertheless clearly indicated to Wiley that he and his associates and his organization would continue the struggle against Castro.
+
+SEP 30 1975
+
+CIA
+
+SECRET
+
+HW 50955 DocId:32203889 Page 29

@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_23830.png
+
+Convert to MarkdownTOP SECRET
+
+oversight committee should be doing rather than setting it out
+here. It's just a question.
+
+Mr. diGenova. This is a rewrite of my original recommen-
+dation, and it is a good point. It may very well be that that
+is superfluous, if you are considering oversight by a committee.
+
+Senator Huddleston. The Committee cannot conduct an audit,
+though.
+
+Mr. diGenova. And that was the purpose for the Committee
+taking on board independent GAO auditors.
+
+Mr. Maxwell. The Committee can request GAO auditors.
+
+Mr. Kirbow. Anything that appears to be on an audit
+calls for an audit.
+
+Senator Huddleston. Calls for a GAO audit or gives the
+Committee authority to call for one.
+
+Mr. diGenova. I don't think we need a statute. We can
+talk about it as part of Congressional oversight. As part of
+the Congressional oversight function, the oversight committee
+should review proprietaries annually and where necessary
+conduct audits with the assistance of the General Accounting
+Office.
+
+Mr. Kirbow. Here, Mr. Chairman, I think again the point we
+made yesterday, that we should say at least annually, so that
+they don't put you in a box if you want one every two months
+because of circumstances, "at least annually."
+
+Senator Huddleston. You could add in Section 3, at least
+
+TOP SECRET
+
+HW 50955 DocId:32423513 Page 55

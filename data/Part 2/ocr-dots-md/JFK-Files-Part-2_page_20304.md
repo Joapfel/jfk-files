@@ -1,0 +1,81 @@
+# JFK-Files-Part-2_page_20304.png
+
+Convert to MarkdownCongress, as its first order of business, resolve to end the war in Vietnam and immediately arrange for the withdrawal of all American troops.
+
+Congress use its power to heal a sick society at home.
+
+Congress use its power to make reparation for the ravaged land we leave behind in Vietnam.
+
+Congress listen to what the American people are saying and refuse the insatiable demands of the military-industrial complex.
+
+WOMEN OF AMERICA, our power is unlimited. On January 15 American women will:
+
+PETITION the United States Congress
+
+CONVENE a Congress of American Women that afternoon to develop programs to meet the crisis in America—programs which will express our political power, reason and conscience.
+
+LET US DECLARE our intention to return to our communities and mobilize women on all levels of activity, dedicated to reshaping American society and restoring our country to a position of honor in the community of nations.
+
+## National PARTIAL LIST OF SPONSORS
+
+Muriel Adams
+Mia Aurbakken Adjali
+Donna Allen
+Carol Anderson
+Ellen Aurbakken
+Helen Becker
+Norma Becker
+Mrs. Harry Belafonts
+Mrs. John C. Bennett-
+
+Rebecca Berman
+Peggy Billings
+Kay Boyle
+Nikki Bridges
+Jane Buchenholz
+Catherine L. Corio
+Twila Lytton Cavert
+Mary Clarke
+Eva Rubinstein Coffin
+
+Mrs. Martin Luther King, Jr.
+
+Jessica Milford
+Nelle Morton
+Grace Moro Newman
+Dorothy Nyland
+Mrs. Joseph Popp
+Rosa Parks
+Mrs. Benjamin Spock
+Susan Sonntag
+
+Dagmar Wilson
+Florence Criley
+Elsie Thomas Culver
+Polly Cuthbertson
+Ruby Dee
+Mrs. Ann Eaton
+Judith Morse Eaton
+Groce Loucks Elliott
+
+TO ALL AMERICAN WOMEN,
+
+I am proud of the fact that my first vote cast in Congress was a vote against war. It was the first opportunity for a woman to vote because I was the first woman to be elected to Congress.
+
+I believed then as I do today that women are the ones who must be concerned with the needs and development of the human race. I have always fought for the dignity of all human beings -- for those of the present as well as those of future generations.
+
+I will continue to struggle as long as I live.
+
+I hope all women will respond to the following CALL, and join me in Washington on January 15, 1968, the opening day of Congress.
+
+With highest hopes,
+
+JEANNETTE RANKIN
+
+ALL WOMEN ARE URGED TO WEAR BLACK WHEREVER THEY ARE ON JANUARY 15
+
+CONFIDENTIAL
+
+3
+
+NW 88321 DocId:32989545 Page 588

@@ -1,0 +1,70 @@
+# JFK-Files-Part-2_page_19967.png
+
+Convert to MarkdownFBI
+
+Date: 12/13/67
+
+Transmit the following in
+Type in plaintext or code
+
+VIA AIRTEL
+
+(Priority)
+
+TO: DIRECTOR, FBI
+
+FROM: SAC, WFO (100-47173) (P)
+
+"CHANGED"
+DEMONSTRATION PROTESTING UNITED
+STATES POLICY IN VIETNAM,
+WASHINGTON, D.C.,
+JANUARY 15, 1968.
+INFORMATION CONCERNING
+(INTERNAL SECURITY)
+(00:WFO)
+
+Title is marked "Changed" to indicate new date for the above demonstration which was originally carried as "DEMONSTRATION PROTESTING UNITED STATES POLICY IN VIETNAM, WASHINGTON, D.C., JANUARY 8, 1968."
+
+ReBuairtel to all offices dated 12/5/67, sent under caption indicated in first paragraph.
+
+Transmitted herewith are 11 copies of an LHM for the Bureau and 2 copies each for LA, NY, SF and SE indicating the change in plans for the date of the above demonstration as well as details of the protest activities.
+
+LHM being disseminated locally to Secret Service, AUSA and military intelligence agencies. Information
+
+AGENCY: G-2, ONI, OSI, SEC. SER.
+
+ENCLOSURE
+
+Bureau (Enc. 11)
+(1-105-138315) (VIDEM)
+
+New York (Enc. 2) (RM)
+
+Los Angeles (Enc. 2) (RM)
+
+San Francisco (Enc. 2) (RM)
+
+Seattle (Enc. 2) (RM)
+
+WFO
+(1-100-44061) (VIDEM)
+(1-100-46369) (WMC)
+(1-100-47147)
+
+C. C. Bishop
+
+DEC 21 1967
+
+GTT:dgp
+(16) AIRTEL
+
+Approved: 5-10-68
+
+Sent M Per
+
+Special Agent in Charge
+
+NI GET ITEN TO AYOO CITY YOCC DENNIE
+
+NW 88321 Doctd:32989545 Page 251

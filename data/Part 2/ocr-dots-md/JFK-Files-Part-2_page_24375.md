@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_24375.png
+
+Convert to Markdownmost Members of Congress, called for vigorous action to stem the Communist infection in this hemisphere. These policies rested on widespread popular support and encouragement.
+
+Throughout this period, the U.S. felt impelled to respond to threats which were, or seemed to be, skirmishes in a global Cold War against Communism. Castro's Cuba raised the spectre of a Soviet outpost at America's doorstep. Events in the Dominican Republic appeared to offer more such opportunities for the Russians and their allies. The Congo, freed from Belgian rule, occupied the strategic center of the African continent, and the prospect of Communist penetration there was viewed as a threat to American interests in emerging Africa. Americans are well aware of the powerful reactions set off in the United States in the 1960's by the domino theory in Indochina. And, even the election in 1970 of a Marxist president in Chile was seen by some as a threat similar to that of Castro's takeover in Cuba.
+
+The Committee regards the unfortunate events dealt with in this Interim Report as an aberration, explainable at least in part, but not justified, by the pressure of events at the time. The Committee believes that it is still in the national interest of the United States to do what it can to help nations resist Communist domination, but it is clear that this cannot justify in the future the kind of abuses covered in this report. Indeed, the Committee has resolved that steps must be taken to prevent them from happening again.

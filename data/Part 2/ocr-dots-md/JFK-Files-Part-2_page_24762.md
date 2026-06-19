@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_24762.png
+
+Convert to MarkdownTrujillo government could be successful unless it involved
+Trujillo's assassination
+
+He communicated this opinion to both the State Department and
+the CIA. In July 1960, he advised Assistant Secretary Rubottom
+that the dissidents were
+
+ "... in no way ready to carry on any type of revolutionary activity in the foreseeable future except the assassination of their principal enemy." (Dearborn to Rubottam letter, 7/14/60)
+
+It is uncertain what portion of the information provided
+by Dearborn to State was passed above the Assistant Secretary
+level. Through August of 1960, only Assistant Secretary Rubottom,
+his Deputy, Lester Mallory, and Staff Assistant Frank Devine,
+were, within the Latin American Division of the Department,
+aware of Dearborn's "current projects." (Devine to Dearborn
+letter, 8/15/60)*
+
+By September 1960, Thomas Mann had replaced Roy Rubottom as Assistant Secretary for Inter-American Affairs, and Frank Devine had become a Special Assistant to Mr. Mann. While serving as Special Assistant to the Assistant Secretary, Devine reportedly spent ninety percent of his time coordinating State activities in Latin America. It was in this capacity that Devine maintained almost daily communication with Ned Holman and other officials of the CIA's Western Hemisphere Division (Devine, p.7).
+
+*Dearborn's candid reporting to State during the summer of 1960 raised concern with the Department and he was advised that certain specific information should more appropriately come through "the other channel" (presumably, CIA communications). Dearborn was advised that his cables to State were distributed to at least 19 different recipient offices. (Id.)

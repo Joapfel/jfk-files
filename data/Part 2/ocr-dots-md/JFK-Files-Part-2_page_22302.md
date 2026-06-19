@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_22302.png
+
+Convert to Markdown1960.
+
+Mr. Madigan. It was sometime after you had begun in '54
+with your Agency operation?
+
+Mr. Maheu. That is correct.
+
+Mr. Madigan. Or your sponsorship?
+
+Mr. Maheu. That is correct.
+
+Mr. Madigan. Subsequently, did this Leader "A" come to
+the United States to your knowledge: after this?
+
+Mr. Maheu. I don't recall whether he came subsequently or
+prior to.
+
+Mr. Madigan. When the same leader did come to the United
+States, were you involved in any assignment for the CIA with
+regard to his presence in the country?
+
+Mr. Maheu. Yes, I was.
+
+Mr. Madigan. And what was that assignment?
+
+Mr. Maheu. I was told by the State Department and the
+CIA that this leader would be in need of female companions and
+that the government was very much concerned that the type of
+women that would be secured for him might eventually be very
+destructive to the national security of the United States
+government unless said women had been cleared by local police
+departments in several of the cities in which he was scheduled
+to travel.
+
+Mr. Madigan. Who was the Agency representative that gave
+you this assignment? Did you go through Mr. O'Connell, or was
+
+TOP SECRET
+
+H.W. 50955 DocId:32203816 Page 12
+
+# TOP SECRET
+
+33
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area 202) 544-6000

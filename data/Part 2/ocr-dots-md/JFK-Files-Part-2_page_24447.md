@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_24447.png
+
+Convert to MarkdownO'Connell contacted Roselli in early September 1960.
+
+During the week of September 25, O'Connell, Maheu, and Roselli met with Giancana and Trafficante in Miami. Bissell testified as follows concerning the sequence of those events:
+
+"Q.: Well, before we come to the meeting [with Dulles], you had been informed, prior to that, had you not, that contact had been made with the Mafia?
+
+"Mr. Bissell: I had.
+
+"Q.: Now were you informed that the Mafia had been given the go ahead to proceed with actual efforts to assassinate Castro?
+
+"Bissell: Not that early, to my best recollection. . . . I cannot date that at all well. I would suppose that it was within the next two or three weeks." (Bissell, 6/9, pp. 20-21.)
+
+On the other hand, Roselli's testimony suggests that Maheu had indicated prior to the "latter part of September" 1960 that a large sum of money would be paid for Castro's death (Roselli, p. 17), and Edwards' May 14, 1962 memorandum indicated the briefing of "senior officials" took place after the money had been offered.
+
+It is clear, then, that even if Dulles was informed about the use of underworld figures to assassinate Castro, subordinate agency officials had previously decided to take steps toward arranging for the killing of Castro, including discussing it with organized crime leaders.

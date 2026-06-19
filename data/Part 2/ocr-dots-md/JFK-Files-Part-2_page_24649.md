@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_24649.png
+
+Convert to MarkdownHedgman summarized his testimony on this question in his second appearance:
+
+I probably had authority to act on my own but ... it was possible that I had to go back and get clearance for my action. (Hedgman, 8/25/75, p. 11; see also 8/21/75, p. 39.)
+
+Hedgman testified, however, that a "policy decision" had been made -- that assassination had been "approved" as "one means" of eliminating Lumumba as a political threat (Hedgman, 8/21/75, p. 52).
+
+I thought the policy decision had been made in the White House, not in the Agency, and that the Agency had been selected as the Executive Agent, if you will, to carry out a political decision. (Hedgman, 8/21/75, p. 52.)
+
+Although Hedgman assumed that the President had not personally selected the means of assassination, he testified that he was under the impression that the President had authorized the CIA to do so and to proceed to take action:
+
+**Hedgman:** ... I doubt that I thought the President had said, you use this system. But my understanding is the President had made a decision that an act should take place, but then put that into the hands of the Agency to carry out his decision.
+
+**Q:** Whatever that act was to be, it was clearly to be assassination or the death of the foreign political leader?
+
+**Hedgman:** Yes.
+
+**Q:** Instigated by the CIA, initiated by the CIA?
+
+**Hedgman:** Certainly if those -- if Dr. Gottlieb's lethal agents were employed, that would have been the result, yes. (Hedgman, 8/21/75, p. 104.)

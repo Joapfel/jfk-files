@@ -1,0 +1,62 @@
+# JFK-Files-Part-2_page_22982.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+1 problems, and so on. It was a substantive management operation,
+
+2 problem-oriented type of conversation.
+
+3 Mr. Baron. What period of time would you place this in?
+
+4 Mr. Halley. Probably sometime in the summer of '62,
+
+5 because my family was already in Miami at that point, and when
+
+6 I first went to Miami my family was not with me. I think my
+
+7 wife joined me in Miami sometime in the summer of '62, you know,
+
+8 I would have to research that. It is obviously available from
+
+9 the records as to when my family moved and a permanent change
+
+10 of station.
+
+11 Mr. Baron. Was there any discussion whether direct or
+
+12 indirect of assassination of Cuban leaders during your meetings
+
+13 with General Lansdale?
+
+14 Mr. Halley. I do not recall any such conversations. You
+
+15 know, I think that from my point of view, we are off a little
+
+16 bit on this perspective. I would like to try to focus on the
+
+17 perspective for you in the historical setting.
+
+18 Mr. Baron. Please do.
+
+19 Mr. Halley. I think by your questions and your interest,
+
+20 you are narrowly focused on this assassination thing, but let
+
+21 me turn that around a bit, and let me put it in my context at
+
+22 the time which may help you understand my answers.
+
+23 Mr. Baron. Before you do, can I stop you for one moment?
+
+24 I would like to get back on the track that we originally
+
+25 started on of asking you about the JMWAVE Station in general
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+76000370135
+WARD & PAUL
+
+# TOP SECRET

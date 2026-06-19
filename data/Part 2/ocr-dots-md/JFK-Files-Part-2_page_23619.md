@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_23619.png
+
+Convert to Markdown1. President has now approved contingency plans discussed during your stay here with one major exception: You are not to request a pre-signed request for help from Dominican dissident groups.
+
+2. We consider it essential that you continue to work to strengthen pro-U.S. sentiment among dissident groups. Your work along this line had been invaluable. However, we also must not permit U.S. policy to be made dangerous of disclosing U.S. association with political assassination or intervention in the Dominican Republic. This last principle is overriding and must prevail in doubtful situation. However, there is much you can do to protect U.S. interests within this framework of policy including most of the measures in which you are now engaged. Specific instructions follow:
+
+3. Inform U.S. Support for their position In case of assassination or overthrow of Trujillo--whether or not initiated by pro-U.S. group--the group should be permitted to make an immediate request for assistance from U.S., Venezuela, Colombia and the O.A.S.. This request will be responded to favorably by the United States. They should declare this solves the provisional government and request help whether or not they actually are able to assume power. If they are favorable to this procedure recommended
+
+HW 50955 DocUd:32423505 Page 97

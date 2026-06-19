@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_23864.png
+
+Convert to MarkdownTOP SECRET
+
+writing, publication, distribution within the United States
+or its territories, of any book, magazine, article and so forth.
+It has been pointed out that this formulation would prevent
+the writing of a book, even in a foreign language, within the
+United States, to be published abroad and distributed abroad,
+or any such materials from being published within the United
+States, even if they were distributed abroad.
+
+Now, that may be too restrictive and go beyond what the Committee intended, and so therefore we wanted to raise this here, to get a better understanding of what we were attempting to accomplish.
+
+As I understand it, what we were -- it was not clear, but it is possible that what the Committee had in mind was that any writing, publication for distribution in the United States would have been the appropriate formulation for this, and if that is correct, we can make a very easy fix.
+
+Senator Morgan. Why wouldn't it?
+
+The Chairman. Why wouldn't it accomplish it if we say that by statute the CIA should be prohibited from subsidizing the writing or production or distribution within the United States or its territories of any book, magazine, article, publication, film, or video or audio tape unless attributed to the CIA.
+
+Wouldn't that take care of it?
+
+Mr. Aaron. If that is what the Committee intends, that
+
+TOP SECRET
+
+WARD & PAUL
+
+HW 50955 DocId:32423521 Page 9

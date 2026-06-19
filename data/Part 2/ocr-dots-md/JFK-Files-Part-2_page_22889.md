@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_22889.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+7600930513
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+TOP SECRET
+
+104
+
+The Chairman. We seem to have a developing problem for reasons unexplained with the Justice Department. I have already mentioned one aspect of that problem, in connection with the failure of the Department to supply most of the material that we have requested, though that request was put to the Department two months ago, and it has been decided already by the Committee that Mr. Levy and Mr. Kelley should be brought before the Committee in the hopes that these delays can be overcome.
+
+The first question before the Committee is when that can be done. It is suggested that the Attorney General has Tuesday morning available. If it is all right with the Committee, I would like to schedule his appearance, together with that of Mr. Kelley, for Tuesday morning.
+
+Senator Baker. Mr. Chairman, I don't mean to intrude my personal convenience into this consideration unduly, but if the Attorney General could do it at Tuesday noon, say, it would help me. I have a commitment in Tennessee Monday night. If I catch the Tuesday morning plane I can't get here until 11:50.
+
+If that's not possible, I will cancel Monday.
+
+The Chairman. This is procedural in character, so it is not altogether important that every member be present. I think that from the standpoint of this Committee schedule, Tuesday morning, the Attorney General and Mr. Kelley would be good, would it not?
+
+TOP SECRET
+
+HW 30955 Document 92423108 Page 107

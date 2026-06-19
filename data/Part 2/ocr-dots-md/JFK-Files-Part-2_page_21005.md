@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_21005.png
+
+Convert to MarkdownSECRET
+
+MM 109-471
+
+effective action in Cuba. According to [TEPEDINO], CUBELA desires some sort of compact equipment with which he can possibly eliminate CASTRO; however, CIA keeps offering him only large, bulky, unserviceable material.
+
+According to [TEPEDINO], there is now under discussion some plan to kill FIDEL CASTRO, in which CUBELA will figure. CIA allegedly was formerly in favor of such a plan; however, inasmuch as Attorney General ROBERT KENNEDY would have no part of it, it was shelved. Now the plan has allegedly been brought up again for consideration. President JOHNSON allegedly is aware of it, and has not ruled against it. If set in motion, it will be scheduled to occur sometime before the elections in November.
+
+[TEPEDINO] told the informant he has not been able to learn much more concerning this plan, other than that CUBELA is supposed to participate, that it is to be accomplished by men in Cuba, and possibly someone from Europe.
+
+The informant advised [TEPEDINO] did not specifically indicate how he had acquired this information; however, the informant presumed from his manner of speaking that he had obtained it from CUBELA.
+
+The above is for the information of the Bureau, and is not being submitted in form suitable for dissemination since both [TEPEDINO] and CUBELA are apparently of operational interest to CIA. Dissemination would also lead to the disclosure of MM 761-S. Although questioned closely, MM 761-S was not able to furnish any further details.
+
+2.

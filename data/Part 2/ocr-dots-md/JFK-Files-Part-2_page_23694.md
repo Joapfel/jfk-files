@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_23694.png
+
+Convert to MarkdownI think what we have to look at is the degree of coercion
+which is implied here, the kind of bind that you get these
+people in where they really are perhaps totally alienated from
+wherever they came from and what sort of a crack do you put
+them in and that not only goes to the humanitarian aspect of it
+but to questions over liability and the rest.
+
+Senator Huddleston. I think they could be very helpful
+to us.
+
+Mr. Rader. Senator. I could also try to adjust the time,
+Senator Mathias. It could be before or after our afternoon
+meeting, if that would be more in your reach.
+
+Senator Mathias. Well, I haven't gotten my walking papers
+for the morning yet.
+
+Mr. Inderfurth. It's interesting in this respect: to the
+about Lee Harvey Oswald, about his being over there, and we're
+talking about immigrants coming here and defectors and so on.
+
+Senator Mathias. It's the other side of the coin.
+
+Senator Huddleston. There's a question of how many doors
+we ought to close.
+
+Senator Mathias. Mr. Chairman, I regret to raise a
+further complication. There's a meeting that I had for 6:00
+that's now been postponed to 6:30. So it would probably mean
+I can't get here until 7:30.
+
+Senator Huddleston. Maybe 7:30 would be a better time.
+I don't know. These people need to get out and get some fresh
+
+TOP SECRET
+
+HW 50955 DocId:32423509 Page 68
+
+WARD & PAUL

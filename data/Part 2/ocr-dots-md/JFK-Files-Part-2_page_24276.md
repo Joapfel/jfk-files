@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_24276.png
+
+Convert to Markdownbudget year ahead. For any other Federal agency, the notion of establishing a new publicly owned enterprise without advance notice to the Appropriations and substantive committees of Congress would be proscribed.
+
+For the small-scale proprietaries, those which require small subsidies to get underway, CIA is able to launch them without supplemental financing -- i.e., within its regular budget -- and, therefore, these remain completely invisible in the Agency budget submission.
+
+### D. Some General Considerations
+
+a. **The relationship of utility to size:** The evidence established a dilemma faced by CIA planners who recognize that proprietaries can sometimes be most effective operationally when they are large; indeed, as in Laos, there can be a thrust toward enormity imposed by the very nature of the operation. The dilemma is that large size conflicts with deniability: In areas of the world or types of activity where there is little commercial appeal or few operating commercial firms, where would large-scale enterprises get financing but from the U.S. Government? Laotion operations actually could not be covered in the end. The experience suggests that proprietaries may have limited utility for paramilitary operations in the future.
+
+b. **The factor of competition with private enterprises.** Do CIA proprietaries of the income-producing class unfairly compete with private U.S. businesses, both with regard to their Government financing and their secrecy? Is the utility to the Government of

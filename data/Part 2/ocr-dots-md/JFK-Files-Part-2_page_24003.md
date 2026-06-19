@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_24003.png
+
+Convert to MarkdownU.S. policy. (Santiago 469, October 5; Santiago 473, October 6)*
+
+Three days later the Chief of Station told General Huerta, Commander of the Carabineros that "the U.S. Government favors a military solution and is willing to support it in any manner short of outright military intervention." (Task Force Log, 9 October) General Huerta informed the COS that there was no chance of a coup by the Chilean Army high command. (Task Force Log, 10 October)
+
+On October 7, Colonel Wimert approached members of the War Academy in Santiago who in turn asked him to provide light weapons. This was Colonel Wimert's first contact with the Army Lt. Colonel to whom he would ultimately pass three submachine guns on October 22. At this meeting, the Lt. Colonel told Colonel Wimert that he and his colleagues were
+
+trying to exert force on Frei to eliminate Gen. Schneider to either replace him, send him out of the country. They had even studied plans to kidnap him. Schneider is the main barrier to all plans for the military to take over the government to prevent an Allende presidency. (Santiago 483, 8 October)
+
+According to the CIA's wrap-up report on Track II, between October 5 and October 20, the CIA Station and the Army Attache--for the most part the latter--made 21 contacts with key military and Carabinero officials. (CIA Report on Chilean Task Force Activities, 8 November 1970)
+
+In his testimony, Colonel Wimert indicated that the Lt. Colonel was affiliated with General Canales. (Wimert testimony, p. 52) In a cable sent to Headquarters on October 18, in which the Lt. Colonel's request for three submachine guns was made, the Station indicated that Wimert believed the Army officer, and his companion, a Navy Captain, were in league with Admiral Tirado. (Station 562, October 18) At another point in his testimony, Wimert stated, "There was Valenzuela here and the Navy Captain and the Army Lt. Colonel and the Air Force General over here." (Wimert testimony, p. 107) The Committee has been unable to determine the exact affiliation of the Army Lt. Colonel. However, as previously stated, both General Canales and Admiral Tirado were affiliated with General Valenzuela and Admiral Tirado was in contact with General Viaux.

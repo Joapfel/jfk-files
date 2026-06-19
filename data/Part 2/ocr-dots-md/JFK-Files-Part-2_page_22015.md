@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_22015.png
+
+Convert to MarkdownBook V, p. 25 Helms directed Karamessinis and Angleton to fully cooperate with the desk officer, John Whitten, charged with investigating the assassination. On November 24, Mexico City cabled the names of known contacts of Soviet personnel in Mexico City and AMLASH's name (Rolando Cubela) was included on that list. Nonetheless neither Fitzgerald, Helms, Tom K or Angleton advised the desk officer of significance of this name.

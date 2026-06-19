@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_23957.png
+
+Convert to MarkdownDominican Republic. Noted the President's view that the United States should not initiate the overthrow of Trujillo before we knew what government would succeed him, and that any action against Trujillo should be multilateral." (Record of Actions by National Security Council, 5/5/61) (Approved by the President, 5/16/61)
+
+Although the precise dates are uncertain, Dearborn was recalled to Washington to participate in drafting of these contingency plans and recommendations. Dearborn was in Washington at least from May 10 through May 13, 1961.
+
+While in Washington, Dearborn met with State Department personnel and with Richard Goodwin and Arthur Schlesinger of the White House staff. When testifying before the Committee, he was unable to recall the substance of his discussions with Goodwin and Schlesinger, aside from his general assumption that the current situation in the Dominican Republic was discussed. He did not recall any discussion with Goodwin or Schlesinger concerning arms, either those which had been passed to the dissidents or those which were being sought. (Dearborn, 7/29, pp. 58-61) Dearborn left the meeting at the White House, however, with the firm impression that Goodwin had been reviewing cable traffic between Washington and the Dominican Republic and was very familiar with events as they then stood. (Dearborn, 7/29, p.62)

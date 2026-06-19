@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_20309.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+Philadelphia, Pennsylvania
+
+January 12, 1968.
+
+DEMOCRATIZATION FOSTERING DEMOCRATIC SITES
+POLICY IN VIEITNAM, WASHINGTON, D. C.
+JANUARY 15, 1968
+
+On January 5, 1968, Officer JAMES MC. GOVERN, Civil Disobedience Unit, Philadelphia Police Department, made available two flyers pertaining to the scheduled January 10, 1968, Jeanette Rankin Brigade (JRB) demonstration in Washington, D. C. The first carried the heading "Join the Jeanette Rankin Brigade" and listed the address and phone number for the JRB as 20 South 12th Street, Philadelphia, Pa. (to 4-5570). The second was a message "To all American Women" from JEANNETTE RANKIN and listed a partial list of sponsors. Copies of these flyers are attached to this memorandum.
+
+The information service of the Bell Telephone Company of Pennsylvania reflected that the listing for 20 4-5570 was Women Strike for Peace, 20 South 12th Street, Philadelphia, Pa.
+
+On January 5, 1968, PRESIDENT JOHNSON called for the withdrawal of U.S. forces. A strike was contacted under suitable pseudonym. She stated that the Jeanette Rankin Brigade was an ad hoc committee formed of various peace groups and church women. It was being coordinated in Philadelphia out of the WFP office only for this one occasion and for the group of women going to Washington, D. C., on January 15, 1968. A letter to the Capitol to petition Congress was received; a test of the activities would then be held at the Capitol, at Georgetown University which had provided facilities for the convening
+
+CAPTAIN DESTROYED
+
+~~27 MAY~~ 13, 1971
+
+NW 88321 DoCId:32989545 Page 593
+
+ENCLOSURE
+
+86

@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_21320.png
+
+Convert to MarkdownSECRET
+
+On 3/18/59, Eloy Gutierrez Menoyo, at a press conference, stated that his organization* supported the Castro Government "as long as it lives up to the principles for which we fought", and that if it should deviate "we will take whatever steps circumstances dictate". He further stated that his group was 100% anti-communist.
+
+On 4/20/59, Gutierrez left Havana to visit Miami at the invitation of Miami's Mayor, (source not clear).
+
+Paul Bethel, Press Officer, U.S. Embassy, Havana, Cuba (protect identity), advised that Tony Beacon was appointed Gutierrez's press secretary on the above mentioned trip and Beacon was paid by Nick Bartone, an American who was attempting to sell C-74's (Globemaster I) to Cuba.
+
+"The Havana Post ", dated 5/27/59, carried an article to the effect that the Second National Front of the Escambray (105-78831) had issued a statement which endorsed the Agrarian Reform Program of the Cuban Government. The statement was signed by Gutierrez, National Chief, and Armando Fleitas, Secretary General of the organization.
+
+Add. info. according to PSI Hugo Gonzalez Lajonchere
+(protect identity).
+
+105-78831-1 p.1,2
+(5/38)
+
+A Foreign Service Dispatch from the Department of State,
+dated 5/28/59, revealed that Eloy Gutierrez Menoyo had told the Embassy
+in Cuba that the Segundo Frente Nacional del Escambray (105-78831) was
+strongly anti-communist and would take action if necessary should the
+Government come under communist control or domination.
+
+State also advised that a source, who had spent a month with
+the Segundo Frente under the command of Gutierrez, advised that the group
+was non-political and definitely not communist. Gutierrez felt that
+Fidel Castro had a number of communists among his advisors and he believed
+one of these was "Che" Guevara. Guevara had been joined by some of the
+members of the Segundo Frente, with Gutierrez's approval, but Guevara's
+followers had not been allowed to take arms with the Segundo Frente.
+
+105-78831-3 p.2,3,4
+(5/38)
+
+* Second National Front of the Escambray.
+
+-6- SECRET
+
+HW 50953 DocId:32336679 Page 5

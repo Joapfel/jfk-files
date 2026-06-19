@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_24579.png
+
+Convert to Markdownsuggestion, Harvey testified:
+
+"I think the consensus of the Group was to sweep that particular proposal or suggestion or question or consideration off the record and under the rug as rapidly as possible. There was no extensive discussion of it, no discussion, no back and forth as the whys and wherefores and possibilities and so on."
+
+(Harvey, p. 30).
+
+(3) Testimony of Goodwin
+
+Goodwin testified that he had a recollection of "limited certainty" that the subject of a Castro assassination was raised at the August 10 meeting.*
+
+Goodwin testified that "I am unable to say with any certainty who it was" who raised the subject of a Castro assassination at the August 10 meeting. (Goodwin, 7/18, p. 8)**/
+
+*/ In a staff interview prior to his testimony, Goodwin recalled the date of the meeting at which a Castro assassination was raised as falling in early 1961, after the Bay of Pigs. (Memorandum of Staff Interview with Goodwin, May 27, 1975, p. 2). After reviewing the Minutes of the August 10, 1962 meeting and the Lansdale and Harvey memoranda of August 13 and 14, respectively, Goodwin testified that he had "misplaced the date of the meeting in my own memory." (Goodwin, 7/18, p. 7). In placing the incident on August 10, 1962, Goodwin stated
+
+"Now, of course, you know, it may not be. That's the best recollection I now have. It's a little better than the earlier one, but it's not certain." (Goodwin, 7/18, p. 8).
+
+**/In a magazine article in June 1975, Goodwin was quoted as stating that at one of the meetings of a White House task force on Cuba it was McNamara who "said that Castro's assassination was the only productive way of dealing with Cuba." (Branch and Crile, "The Kennedy Vendetta," *Harpers*, July, 1975, p. 61). In his testimony on July 18, 1975, Goodwin stated: "that's not an exact quote" in the article, and explained further: (Footnote continued on following page.)

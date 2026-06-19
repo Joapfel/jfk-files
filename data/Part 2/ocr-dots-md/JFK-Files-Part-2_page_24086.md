@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_24086.png
+
+Convert to Markdownstrong language used in discussions at the Special Group and NSC, as reflected in minutes of relevant meetings,
+
+led Dulles to believe that assassination was desired. The minutes contain language concerning the need to "dispose of" Lumumba, an "extremely strong feeling about the necessity for straight forward action", and a refusal to rule out any activity that might contribute to "getting rid of" Lumumba.
+
+### Castro
+
+The effort to assassinate Fidel Castro took place in an atmosphere of extreme pressure by Eisenhower and Kennedy Administration officials to discredit and overthrow the Castro regime. Richard Helms recalled that:
+
+> "I remember vividly [that the pressure] was very intense. And therefore, when you go into the record, you find a lot of nutty schemes there and those nutty schemes were borne of the intensity of the pressure. And we were quite frustrated."
+
+Bissell recalled that:
+
+> "During that entire period, the administration was extremely sensitive about the defeat that had been afflicted, as they felt, on the U.S. at the Bay of Pigs, and were pursuing every possible means of getting rid of Castro."
+
+Another witness, Samuel Halpern, stated that sometime in the Fall of 1961 Bissell was
+
+> "chewed out in the Cabinet Room in the White House by both the President and the Attorney General for, as he put it, sitting on his ass and not doing anything about getting rid of Castro and the Castro Regime."
+
+General Lansdale informed the agencies cooperating in Operation
+
+HW 50955 DocId:32423525 Page 189

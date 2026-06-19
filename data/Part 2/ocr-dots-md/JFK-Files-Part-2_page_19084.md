@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_19084.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+TO : DIRECTOR, FBI
+ATTENTION: CRIME RECORDS DIVISION
+FROM : LEEGAT, HONG KONG (134-0)
+SUBJECT: SAM A. JAFFE
+SOURCE OF INFORMATION
+
+DATE: 8/29/66
+
+Captioned subject is the American Broadcasting Company's China-Southeast Asia News Correspondent based in Hong Kong. JAFFE has indicated a very friendly attitude towards the Bureau and personnel of the New York Office. Unless certain facts militate to the contrary, it is expected that Legat will become better acquainted with JAFFE through mutual friends.
+
+The Bureau is requested to advise whether there is any information in Buffles which would make it inadvisable for Legat to have contact with JAFFE.
+
+3 - Bureau
+(1 - Foreign Liaison)
+
+1 - Hong Kong
+DAG/djw
+(4)
+
+EDT
+
+9 SEP 7 1966
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan

@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_20784.png
+
+Convert to MarkdownNY 100-174481
+
+INFORMANTS (Continued):
+
+| Identity of Source | File Where Located |
+|---|---|
+| NY T-5 | NY 100-174481-17, 90 |
+| NY T-6 | NY 134-17617A-145 |
+| NY T-7 | NY 134-19305A-14 through 75 |
+| NY T-8 | BS 134-729A-762-787 |
+| NY T-9 | WF 134-9613 Sub A 182-221 |
+| NY T-10 | BS 134-729A-762-787 |
+| NY T-11 | 100-174481-155 |
+
+LEAD:
+
+NEW YORK
+
+AT NEW YORK, NEW YORK. Will follow and report activities of instant organization.
+
+C*
+
+COVER PAGE

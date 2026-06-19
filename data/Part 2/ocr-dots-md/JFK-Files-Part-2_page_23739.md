@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_23739.png
+
+Convert to MarkdownI agriculture. I mean it's a funny kind of mixture of people.
+
+The CIA sort of does this in part as a service of common concern to the intelligence community and in part at least heretofore it does the overt collection function as a service to its own analysts.
+
+This was particularly in the early days when we had less access to information in the denied areas of the world. It was a very rich source of information for us. It still is quite a good and important and economical source, and it's a good program. The question is how much it should be involved in clandestine support and if you want to find a way to encourage it, to if you will, emphasize its overt mission over its covert mission or do you want to put it back into some overt side of the Agency or the government?
+
+Mr. Maxwell. I have some very mixed feelings about this recommendation and the problem might be described better by looking at the flow of information from the end point.
+
+The FRD now is involved in the recruitment of agents for foreign intelligence gathering within the United States. A number of times they need, and I think they have indicated to the Committee that they need some help in determining whether they should go to an individual and say, can you introduce me to this potential agent of influence in a country, can you introduce me to the student without blowing up in their faces?
+
+TOP SECRET
+
+HW 50955 DocId:32423509 Page 113

@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_23934.png
+
+Convert to MarkdownThese events are discussed below under subheading A.
+
+Evidence reflecting the degree of knowledge of those events
+possessed by senior American officials is treated thereafter.
+As used herein, "senior American officials" means individuals
+in the White House or serving as members of the Special Group.
+
+A. Specific Events Indirectly Linking U.S. to Dissidents' Assassination Plans
+
+1. Assassination Discussions and Requests for Explosives
+
+At meetings held with dissident leaders in New York City on February 10 and 15, 1961, CIA officials were told repeatedly by dissident leaders that "the key to the success of the plot [to overthrow the Trujillo regime] would be the assassination of 'Trujillo." (CIA memo for the record, 2/13/61) Among the requests made of the CIA by dissident leaders were the following:
+
+(a) Ex-FBI agents who would plan and execute
+the death of Trujillo.
+
+(b) Cameras and other items that could be used to fire projectiles.
+
+(c) A slow-working chemical that could be rubbed on the palm of one's hand and transferred to Trujillo in a handshake, causing delayed lethal results.
+
+(d) Silencers for rifles that could kill from a distance of several miles. (Id.)
+
+Other methods of assassinating Trujillo proposed by dissidents

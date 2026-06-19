@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_21076.png
+
+Convert to MarkdownUNITED STATES GOVERN
+Memorandum
+
+TO : Director, FBI (100-409763) DATE: 5/13/64
+
+FROM : Legat, Bern (105-284) (RUC)
+CIA HAS NO OBJECTION TO DECLASSIFICATION AND/OR,
+SUBJECT: MARK LANE RELEASE OF CIA INFORMATION IN THIS DOCUMENT, EXCEPT [BRACKETS] CLASSIFIED BY S668 SL0/6c
+SM - C [K 5-6-98] [SLD/KSR 5-27-98 (JFK)] [DFI 4/21/97]
+Re Bulet 4/20/64.
+[ ] SECURITY INFORMAT
+
+Security information furnished by referenced communication was disseminated to the indicated sources of this office on 5/4/64 :
+
+[x] Abteilung II - Gruppe Staatspolizei, Bundesministerium für Inneres (Austrian Security Police), Vienna, Austria.
+
+[ ] Security Branch, American Embassy, Vienna, Austria.
+
+[ ] U. S. Consulate General, Vienna, Austria.
+
+[ ] Schweizerisches Bundespolizei (Swiss Federal Police), Bern, Switzerland.
+
+[x] Other Research Branch (covert CIA), American Embassy, Vienna.
+
+Data furnished to the U. S. sources was classified Confidential.
+Material furnished to the foreign sources will be handled as Confidential under existing security agreements.
+
+Appropriate notations are maintained in the files of the indicated sources to insure that this office will be notified in the event subject comes to their attention.
+
+3 Bureau (1 - Liaison)
+1 - Bern
+
+HDG:mls
+(4)
+
+RECI 49
+
+8 MAY 18 1964
+
+SECRET
+
+68 MAY 22 1964
+
+68

@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_22871.png
+
+Convert to Markdown1. Mr. Bundy. And that is the MONGOOSE programs.
+
+2. Mr. Schwarz. In connection with the MONGOOSE program, you had some dialogue about the Attorney General which was quite extensive. Let me ask you one additional question on that subject. What was the relationship personally and professionally between the Attorney General and General Maxwell Taylor?
+
+3.
+4.
+5.
+6.
+7
+
+8. Mr. Bundy. It was very close. I think that they first met in a hardworking sense when they were -- I think they were both members of the committee to look into what happened after the Bay of Pigs, or if the Attorney General was not a member he was certainly closely interested.
+
+9
+10
+11
+12
+
+13. Mr. Schwarz. He was a member.
+
+14. Mr. Bundy. And I am sure the Attorney General was one of the people strongly favoring the appointment of General Taylor as the President's military advisor. They were both active and ardent tennis players, they liked each other, and they visited back and forth. One of the Kennedy children is named for General Taylor, I think. There was a relation of real trust and confidence between them. And the measure of its strength is that I think it easily survived later very short differences over Vietnam.
+
+15
+16
+17
+18
+19
+20
+21
+22
+
+23. Mr. Schwarz. Now recognizing that, what I am asking for you is a matter of opinion and not a fact, given your understanding of that relationship, will you give us your opinion
+
+24
+25
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+7 6 0 0 C 3 0 5 J G
+
+Phone (Area 202) 544-6000
+
+cb132
+
+NW 30955 Doc #:52425400 Page 89
+
+# TOP SECRET

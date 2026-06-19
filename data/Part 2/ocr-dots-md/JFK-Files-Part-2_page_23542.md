@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_23542.png
+
+Convert to MarkdownSECRET
+
+FEB 1970
+
+successful, might have the effect of extensive sabotage. In view
+of the risks involved, however, and the poor deniability of U.S.
+support where aircraft are involved, it is recommended that such
+operations be avoided at least for the present.
+
+Manolo Ray of the MRP has asserted an independent MRP
+capability to conduct infiltration, intelligence collection, sabotage
+and defection operations into Cuba. He recognizes a need for U.S.
+support but is very firm in his desire to operate as independently
+as possible of any official U.S. connection. His initial request
+is for five boats, some materiel and some money. He admits,
+however, that, looking ahead, additional support such as real
+estate, some help with training and communications will be required.
+He offers to share his information with the U.S. Government, seek
+U.S. advice and, at least for a period of time, be willing to operate
+with the Revolutionary Council. The Council's views are being
+canvassed and Ray has been asked to prepare a prospectus giving
+in some detail his needs for U.S. support for the immediate future
+and the step-up required over a period of time should his efforts
+prove successful.
+
+The Ray proposal should certainly be examined and given support
+within reasonable limits if the relationships proposed both with the
+Council and with the U.S. are satisfactory.

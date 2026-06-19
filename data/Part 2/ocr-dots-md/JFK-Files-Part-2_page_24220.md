@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_24220.png
+
+Convert to Markdown# VI. Project MHBOUND
+
+In 1958, at the time construction of the new CIA headquarters building in Langley was begun, a small counterintelligence operation was established to maintain surveillance of activities to prevent hostile penetration and sabotage. It was successful in its objectives and, therefore, upon occupancy of the building in 1962 the Project, now known as MHBOUND, was established as an outgrowth of the initial effort.
+
+From a single office in Arlington, Virginia, the project expanded to four field offices (Arlington, Falls Church, Los Angeles and St. Louis). Also, it grew from a single corporate entity into three separate corporations. The parent organization in 1962 was Anderson Enterprises, Inc., which operated in the greater Washington area and was set up to create a bona fide commercial corporation which would perform security services on a competitive basis for any and all individuals and companies which might require them, as well as Federal and local governmental units. In addition, it would conduct operations for the Office of Security of the CIA. This activity proved most successful, with customers utilizing it for document destruction, for consultation, for guard work, and for investigations.
+
+Anderson Enterprises, Inc. developed legitimate business contracts with agencies of the Federal government and with commercial firms. The provisions of the so-called Pinkerton Act 'prohibition' prohibit a company engaged in investigative /from contracting with

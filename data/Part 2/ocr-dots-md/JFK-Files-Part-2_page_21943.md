@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_21943.png
+
+Convert to MarkdownDavid A. Phillips, Chief of Station in Rio de Janeiro, was summoned back to Washington to head the operation. With the exception of the Division Chief, William Broe, his deputy James Flannery and the head of the Chile Branch, no other officers in the Division were aware of the task force's activities, not even those officers who normally had responsibility for Chile. The task force had a special communications channel to Santiago and Buenos Aires to compartment cable traffic about Track II.
+
+(November 18, 1970, Helms to Kissinger memo, page 3) Most of the significant operational decisions were made by Phillips, Broe and Karamessines, who met on a daily basis.
+
+It should be noted that all those involved with the task force described the pressure from the White House as intense. Indeed, Karamessines has said that Kissinger "left no doubt in my mind that he was under the heaviest of pressure to get this accomplished, and he in turn was placing us under the heaviest of pressures to get it accomplished." (Karamessines testimony, August 6, 1975, page 7) The Deputy Chief of the Western Hemisphere Division, James Flannery, testified that pressure was "as tough as I ever saw it in my time there, extreme." (Flannery testimony, July 15, 1975, page 20) Broe testified that "I have never gone through a period as we did on the Chilean thing. I mean it was just constant, constant....Just continual pressure....It was coming from the White House." (Broe testimony, August 4, 1975, page 55)
+
+### C. The Use of the Army/Attache and Interagency Relations
+
+The CIA Station in Santiago had inadequate contacts within the Chilean military to carry out its task. However, [the U.S. Army] Attache in Santiago, Colonel Paul Wimert, knew the Chilean military

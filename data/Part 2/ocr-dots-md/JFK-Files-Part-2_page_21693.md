@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_21693.png
+
+Convert to Markdown# TOP SECRET
+
+chart it looked very complicated. In operation it was quite
+simple. It was handled really as one entity with various faces
+appearing. And the complications of those whereby maintaining
+your directors, who took no part in the operation, your companies
+directors, and things, and keeping your letterhead straight
+for your writing for the different companies.
+
+Mr. Maxwell. Were there other sources of funds,
+profits made by proprietaries in stock or bond transactions that
+went back into the investment fund?
+
+Mr. Houston. They would all go into the central in-
+vestment fund, and in the initial stages, particularly where
+there was income from funds and dividends -- until the stock
+market broke there were some capital gains registered. Then
+the investment policy went more and more, particularly as
+the interest rate went up, in the Eurobonds and certificates
+of deposit, where for a while you were getting -- I think we
+got a weighted average of over 11 percent. And then those
+would go back into the fund against the insurance loss account-
+ability. The most difficult thing we had was trying to
+decide what was enough, because there was no actuarial exper-
+ience such as in a nominal insurance company.
+
+Mr. Wides. You mean the capitalization of particular
+companies against insurance?
+
+Mr. Houston. Exactly.
+
+Mr. Wides. What about proprietary profit, was that
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000

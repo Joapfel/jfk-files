@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_20915.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Women's Bail Fund
+
+On January 6, 1972, the first source made available a one page leaflet distributed through the mails by the Women's Bail Fund and dated December, 1971. The leaflet is a request for funds for the Bail Fund with the notation that donations are tax exempt. The leaflet, in part says, "The Women's Bail Fund is one arm of the growing nationwide prison solidarity movement. During the past year we raised bail to release over 120 women who have been imprisoned while awaiting trial....."
+
+On January 23, 1972, a seventh confidential source advised that Post Office Box 637, Cooper Station, NY, NY, is subscribed to by the Women's House of Detention Bail Fund and rented by Mary C. Pinotti, 86 East 3rd Street, NY, NY (Telephone 777-5823.)
+
+The third source advised on February 10, 1972 the Women's Bail Fund is trying to obtain a grant from the NY People's Life Fund (PLF), however, they have been advised by the PLF that they may receive a loan rather than an outright grant. The source advised the Fund participated in a demonstration a month ago at the New York City Correctional Institution at Riker's Island, NY, however, said its activities seem to be limited. The source advised that two principal activists of the Women's Bail Fund are Amy Lowenstein and Gerry Tosca.
+
+The NY PLF is a fund set up by the War Tax Resistance (WTR) to grant loans or funds to local groups in the NY area.
+
+MEMBER OF SUBJECT ORGANIZATION
+
+The WTR is a national organization which encourages the non-payment of federal taxes as a protest to the war in Indochina.
+
+CONFIDENTIAL
+
+NW 88321 DocId:32989546 Page 420

@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_23188.png
+
+Convert to MarkdownTOP SECRET
+
+Senator Schweiker. And there were all kinds of Cuban Committees.
+
+Mr. Halley. That's right, and therefore, unless there is a name that goes with it, I have trouble drobbing it out.
+
+Senator Schweiker. All right.
+
+I meant, did your work involve any working relationship
+to the Molten Company in Washington?
+
+Did you use them in any relationship at all?
+
+Mr. Halley. No, my knowledge of the Molten Company
+doesn't start until about 1972.
+
+Senator Schweiker. Okay, I'll let somebody else handle that...
+
+How about the half mile for this situation? Well, what
+your program was, what role or relationship forgetting Ogwald did you make with them since they obviously had some for
+intelligence relationship?
+
+Mr. Halley. None. In other words, we felt that that
+was an organization that really interested to the point
+of.
+
+Senator Schweiker: However, you didn't have a separate
+forces section.
+
+Mr. Halley. Yes, ma'am. There's a counterintelligence
+section, but one activity against those kinds of groups,
+our counterintelligence staff was primarily concentrated at
+the University of Illinois. During the information
+weekend especially on those boxes and other forms, like the map
+
+TOP SECRET
+
+NWI:55510 DocID:32423435

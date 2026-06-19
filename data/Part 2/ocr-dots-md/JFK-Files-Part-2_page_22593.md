@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_22593.png
+
+Convert to MarkdownSECRET
+
+have a close association with Pennington without elaborating as to specific details. For example: On March 1967, Wiley prepared a report which states as follows - "In dealing with Don (Sweaney) and Lee (Pennington), both of whom know of my connection, I avoid any talk of my company activities. At one time, both knew some of my work because we received cooperation from them on certain projects. However, since Don went to his present job there has been little contact.
+
+I talk to Don as I do to everyone else. I ignore any questions or statements with double meanings, surreptitious glances, etc. This is because of two reasons - need-to-know rule and Don is seldom out of earshot of fellow workers. No one overhearing us will learn anything I don't want them to know.
+
+"Since the recent exposure of company activities is the chief topic of discussion, and especially since I am considered by many as an 'expert' on one of the projects, there is little way of avoiding the subject without arousing suspicion. I have always taken the same stand, that of a critic - but with qualifications - regarding the area of my knowledge. Under the circumstances, it would be quite impossible to take any other position."
+
+"During my discussion with Don, the only company business that was mentioned was the project with which everyone knows I am familiar. It is, therefore, obvious that I could not have said what was reported. I would suggest that someone other than the original source talk to Don. I would also urge that both Don and Lee be reminded not to mention, under any circumstances, their knowledge of me."
+
+DONALD SWEANY
+
+Wiley's knowledge of and association with Sweany is not fully known from the Wiley files, nor is there any reference to any such association in the Office of Security file on Donald Sweany. However, it can be presumed, based upon their mutual association with Lee Pennington at the American Legion, that they probably have known each other
+
+SEP 30 1975
+
+CIA
+
+113
+SECRET
+
+HW 50955 DocId:32203889 Page 101

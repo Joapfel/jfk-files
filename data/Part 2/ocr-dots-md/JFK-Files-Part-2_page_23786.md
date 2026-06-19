@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_23786.png
+
+Convert to Markdown# TOP SECRET
+
+Mr. Kirbow. Well, perhaps I misunderstand the extension that you, your full recommendation.
+
+Do you want to go beyond where the administration is in their position?
+
+Mr. Bader. I am recommending to go beyond where the Administration is at this stage, to extend the operational prohibition on the part of CIA to use American -- Americans in the media --
+
+Mr. Kirbow. Wherever located.
+
+Mr. Bader. Where they are using them undercover, at this stage, to the extent that it is a cover proposition.
+
+Senator Huddleston. Even if they are in foreign media?
+
+Mr. Bader. Yes, sir.
+
+Senator Huddleston. And even though all of their activities are related to foreign; they are not writing for American news services.
+
+Mr. Bader. Alternately, they could be with American media organizations.
+
+Mr. Kirbow. Mr. Chairman, I don't think there is a single shred of evidence on our record that that is in any way wrongdoing or in any way adversely affects the rights of American citizens. Clearly it will prohibit or could prohibit in the future the proper use of an individual that could be essential to the intelligence collection processes of the CIA, and it singles out a specific agency which is not doing any harm to
+
+1. HW 50955 DocId:32423513 Page 11
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+9.
+10.
+11.
+12.
+13.
+14.
+15.
+16.
+17.
+18.
+19.
+20.
+21.
+22.
+23.
+24.
+25.

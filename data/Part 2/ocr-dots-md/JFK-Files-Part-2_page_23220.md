@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_23220.png
+
+Convert to MarkdownTOP SECRET
+
+finding a way to sneak inside the U.N. guard to simply
+snatch Lumumba from custody, this was clearly access to assassin-
+ate him, is that correct?
+
+Mr. Tweedy. That would certainly be my recollection.
+Kidnapping was never a factor that I recall at all or even
+considered, at least I don't remember it.
+
+Mr. Baron. In your discussions with Richard Bissell
+about the prospect of assassinating Lumumba, did he mention to
+you that he had had similar discussions with Justin O'Donnell?
+
+Mr. Tweedy. I was reminded of Justin O'Donnell's
+role in all this. As you may recall, when I talked to you
+and Mr. Wides, and until you reminded me I had forgotten
+that Justin-O'Donnell played any role whatsoever and now
+that it has been brought to my recollection I recall it.
+I recall it almost in detail.
+
+I remember being told that he had expressed reservations
+or disagreement or refusal to participate to Bissell and I
+think my response to you was if he said that I would believe
+him but I didn't recall it.
+
+Mr. Baron. Did Richard Bissell ever indicate to you
+that he had asked Justin O'Donnell to go to the Congo to
+assassinate Lumumba?
+
+Mr. Tweedy. Well, he must have indeed have told me
+that he was going to ask O'Donnell to go to the Congo to
+examine the thing on the ground, but I don't recall him ever
+
+TOP SECRET

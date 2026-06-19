@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_23489.png
+
+Convert to MarkdownNOTE ON GRAY TESTIMONY FOR FAOS:
+
+short summary
+
+If we don't re-write the Gray chronology, you should note to the senators that since we w drafted it we have received a new batch of key documents from the Eisenhower library which are reflected (quoted) in the Gray Chronology.

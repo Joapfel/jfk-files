@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_23819.png
+
+Convert to MarkdownTOP SECRET
+
+1 tomorrow to review the cover paper from which this summary is
+2 drawn. I know Eric has some problems with the cover paper, both
+3 editorially, because they view it as overly simplistic and
+4 harsh because it reflects all of the Inspector General's
+5 judgments, but they have some problems with cover in general,
+6 but I don't think this is going to be part of that problem.
+7 Senator Huddleston. I have some problem with this page
+8 70 relating to Welch because it seems the whole implication of
+9 that is that he was murdered because his cover was blown, and
+10 so far there has been no evidence that that is the case. It
+11 highlights the argument, I think, correctly, but it seems to me
+12 it leaves the impression that here is a case where a fellow's
+13 cover or lack of cover resulted in his death.
+14 I think the Agency people have specifically said to us
+15 so far that they have no reason at this point yet to expect
+16 that that was the reason he got killed.
+17 Mr. Maxwell. In regard to the specific quote, I think
+18 we have to be very careful as to getting involved in an argument
+19 which would imply that anything that we possibly did had an
+20 effect on it, and also, that it seems to point to Mr. Welch
+21 and say, well, it is all his fault.
+22 Senator Huddleston. He didn't protect his cover, he
+23 didn't do what they advised him to do, and you see down here
+24 we have another quote which says, referring to international
+25 terrorism and incitement for these kind of people to take the
+
+HW 50955 DocId:32423513 Page 44

@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_23720.png
+
+Convert to Markdownin volume the most material and according to CIA analysts
+most of that information, a large proportion of that is
+revealed to their report and yet obviously a great deal of
+clandestine collection is carried out by the CIA itself and
+the military services account for a significant amount of
+collection, some of which is extremely important in countries
+with military governments.
+
+The issue then becomes whether there shouldn't be a
+particular mechanism to deal with it and the proposal here is
+to create a subcommittee of the CFR for that purpose, or a
+special committee of the CFR. And the reason for that is to
+put in the chair the Department of State or the Secretary of
+State's designee and representatives of the Secretary of State
+and it would be a committee essentially of the CIA, the Department
+of State and the Department of Defense trying to bring some
+focus into those programs and making some choices and so forth.
+
+I might have Bill Bader speak to it. I think the
+recommendation originates with him.
+
+Mr. Bader. This recommendation is part of two basic
+recommendations that deal with the question of human intelligence
+collection.
+
+First is the question of the approval mechanism. As you'll
+see when we get into the latter part of the paper, one of
+these very strong recommendations that we have as the committee,
+or is being offered to the committee as a possible recommendation
+
+TOP SECRET
+
+HW 50955 DocId:32423509 Page 94

@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_22499.png
+
+Convert to MarkdownSECRET
+
+"Because of the obvious value of having access to such an index, the writer (McCord) recommends that we encourage the continuation of Wiley's index project in any way in which we are able to further such work."
+
+(There is no objective evidence in the file other than the above to support Wiley's contention that he was given encouragement by Mr. DeLoach of the FBI to continue the project.)
+
+The above was brought to the attention of Harlan Westrell (Chief, Counterintelligence Branch, SRS), who in turn brought the matter to the attention of Colonel Sheffield Edwards, Director of Security, circa early December 1955.
+
+Via a memorandum dated 19 December 1955, McCord informed Westrell of the receipt of additional correspondence from Wiley, and McCord included a rehash of the matter including statements:
+
+"I hope the Office of Security can encourage the continuation of the project, at least until the index is completed up through 1940, which would take about another year of work by Wiley. The index has considerable potential CE (counter espionage) value to this Office, for one thing, by virtue of the fact that there will be numerous heretofore unidentified Communists' names turn up in the index, some of whom went underground during the World War II years. The index may give us the one clue necessary to detect any such penetration existing within this Agency. The value in protecting the Agency thereby is of course inestimable. The continuation of the project would have other merits, which we have discussed previously."
+
+McCord also recommended that, should the project fail, the Agency consider employing Wiley.
+
+SECRET
+
+SEP 30 1975
+CIA
+
+- 4 -
+
+SECRET
+
+HW 50955 DocId:32203889 Page 7

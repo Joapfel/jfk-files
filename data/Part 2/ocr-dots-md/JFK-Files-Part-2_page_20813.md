@@ -1,0 +1,64 @@
+# JFK-Files-Part-2_page_20813.png
+
+Convert to MarkdownFBI
+
+Date: 3/2/73
+
+Transmit the following in
+(Via)
+
+AIRTEL
+(Priority)
+TO:
+
+ACTING DIRECTOR, FBI (100-468406)
+FROM:
+
+SAC, WFO (100-55420) (P)
+
+WOMEN'S NATIONAL ABORTION ACTION COALITION
+IS - C (TROTSKYIST)
+
+Re WFO report dated 12/15/72, captioned "WDC CHAPTER OF WONAAC, IS-C (TROTSKYIST)," setting forth information concerning an "International Tribunal on Abortion, contraception and forced sterilization" scheduled to be held in New York City, 3/9-11/73.
+
+Enclosed for the Bureau are five (5) copies and three
+(3) for New York of an LHM dated and captioned as above.
+
+The source referred to in attached LHM is INFORMANT.
+REC 43
+INFORMANT a member of the YSA and SWP Locals, WDC
+and INFORMANT a member of the YSA Local, WDC, have both
+been selected by WDC YSA/SWP leadership to attend the "Inter-
+national Woman's Day Soliditary Meeting" in New York City on
+3/10/73 and to remain over for political activity at the
+YSA/SWP national office on 3/11/73.
+
+Bureau authority is requested to send both of the
+above sources to New York City for participation in the Woman's
+Day Soliditary Meeting and political activity at YSA/SWP
+national office, and to advance to each source the amount
+of $88 for expenses to be actually incurred, including $38
+round trip metro coach fare from WDC to New York and $25
+each per day for two days for food, lodging, contributions
+and miscellaneous expenses.
+
+2. Bureau (Enc. 5)
+
+3 - New York (100-174481) (Enc. 3)
+   (1 - 100-133479) (YSA)
+
+4. WFO (1 - 100-55420)
+   (1 - 100-35189) (YSA)
+   (1 - 134-9834 SUB A)
+   (1 - 134-9613 SUB A)
+
+AAM:jab
+(9)
+Approved:
+Special Agent in Charge
+
+Sent M Per
+
+U.S.Government Printing Office: 1972 - 455-574
+
+NW 88321 DocId:32989546 Page 318

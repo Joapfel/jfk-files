@@ -1,0 +1,94 @@
+# JFK-Files-Part-2_page_19659.png
+
+Convert to MarkdownFOR L BUREAU OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+MAR 5 1971
+
+TELETYP
+
+NR 005 SE PLAIN
+
+6:30 PM NITEL 3-5-71 DCA
+
+TO DIRECTOR (ATTN: DOMESTIC INTELLIGENCE DIVISION)
+
+FROM SEATTLE (100-NEW) 2 P
+
+COMMITTEE TO DEFEND THE RIGHT TO LIVE, INTERNATIONAL WOMENS DAY MARCH, SEATTLE, WASHINGTON, MARCH EIGHT, NINETEEN SEVENTY- ONE. IS - MISCELLANEOUS, VIDEM. OO: SEATTLE.
+
+ON INSTANT DATE, A SOURCE WHO HAS FURNISHED RELIABLE INFORMATION IN THE PAST, REPORTED TWO UNIDENTIFIED INDIVIDUALS WENT TO A MEETING OF THE FREEDOM SOCIALIST PARTY, A SCHISMATIC GROUP OF THE SOCIALIST WORKERS PARTY WHICH HAS BEEN DESIGNATED BY THE ATTORNEY GENERAL OF THE U. S. PURSUANT TO EXECUTIVE ORDER ONE ZERO FOUR FIVE ZERO, HELD IN SEATTLE, DURING THE EVENING OF MARCH FOUR.LAST AND DISTRIBUTED LEAFLETS ADVERTISING AN INTERNATIONAL WOMENS DAY MARCH BEGINNING FOUR THIRTY PM AT THE WOMENS JAIL, FOURTH AND CHERRY, SEATTLE. THE AFFAIR IS UNDER THE SPONSORSHIP OF A NEW GROUP, THE COMMITTEE TO DEFEND THE RIGHT TO LIVE.
+
+EX-10A REC-63
+
+THE PURPOSE OF THE MARCH WILL BE TO PROTEST THE INVASION OF LAOS, THE BROADENING OF AGGRESSION IN INDO CHINA AND ESCALATION TOWARDS A THIRD WORLD WAR. THE GROUP ADVOCATES IMMEDIATE WITH-
+
+MAR 9 1971
+
+END PAGE ONE
+
+6 MAR 17 1971
+
+"cc to IDIU
+Adm. data deleted"
+
+5/24/71
+
+NW 88321 Didd:32989544 Page 540
+
+<table>
+   <tr>
+    <td>Mr. Tolson</td>
+   </tr>
+   <tr>
+    <td>Mr. Sullivan</td>
+   </tr>
+   <tr>
+    <td>Mr. Mohr</td>
+   </tr>
+   <tr>
+    <td>Mr. Bishop</td>
+   </tr>
+   <tr>
+    <td>Mr. Brennan</td>
+   </tr>
+   <tr>
+    <td>Mr. Callahan</td>
+   </tr>
+   <tr>
+    <td>Mr. Casper</td>
+   </tr>
+   <tr>
+    <td>Mr. Conrad</td>
+   </tr>
+   <tr>
+    <td>Mr. Dalley</td>
+   </tr>
+   <tr>
+    <td>Mr. Felt</td>
+   </tr>
+   <tr>
+    <td>Mr. Gale</td>
+   </tr>
+   <tr>
+    <td>Mr. Risen</td>
+   </tr>
+   <tr>
+    <td>Mr. Trust</td>
+   </tr>
+   <tr>
+    <td>Mr. Walters</td>
+   </tr>
+   <tr>
+    <td>Mr. S. Va. &nbsp;&nbsp; 3</td>
+   </tr>
+   <tr>
+    <td>Tele. Room</td>
+   </tr>
+   <tr>
+    <td>Miss Homes</td>
+   </tr>
+   <tr>
+    <td>Miss Gandy</td>
+   </tr>
+  </table>

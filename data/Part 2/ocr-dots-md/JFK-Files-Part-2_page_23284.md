@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_23284.png
+
+Convert to Markdown1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+TOP SECRET
+
+11
+
+Mr. Schwarz. Now that indicates, does it not, that the weapons were passed sometime after late January, you can tell that?
+
+Mr. Goodwin. Yeah.
+
+Mr. Schwarz. All right.
+
+You can tell that by looking at the heading 2 which indicates when the request for the passage of the arms was made.
+
+Mr. Goodwin. Yes, it says in late January. Of course they weren't authorized until the 12th.
+
+Mr. Schwarz. But they were passed, in any event, after the Kennedy Administration took office.
+
+Mr. Goodwin. Yes.
+
+Mr. Schwarz. Now you told President Johnson, Vice President Johnson,-- we will mark this Goodwin Exhibit 2, a memorandum which, Senators, is at Tab II, the book which is marked book 2 of 2 and dated June 1, 1961.
+
+(The document referred to was marked Goodwin Exhibit No. 2 for identification.)
+
+TOP SECRET
+
+760051731
+HANO & PAPY
+610 Euston Street, 5F, Washington, D.C. 20003

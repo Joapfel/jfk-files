@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_20297.png
+
+Convert to MarkdownCOPIES. DESTROYED
+
+27 MAY 12 1971.
+
+ENCLOSURE
+
+1053-4498475-74
+
+NW 88321 DocId:32989545 Page 581

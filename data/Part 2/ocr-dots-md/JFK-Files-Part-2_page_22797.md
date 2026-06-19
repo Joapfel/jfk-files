@@ -1,0 +1,68 @@
+# JFK-Files-Part-2_page_22797.png
+
+Convert to Markdown1
+2
+3
+4
+5
+
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+fact is that you were given a briefing, and you didn't urge it,
+but on the other hand you didn't say it should stop.
+
+Now can you explain, if you can, the testimony of your
+friend Mr. Bissell, and the contrast between that and
+your testimony?
+
+Mr. Bundy. Well, as I understand Mr. Bissell's testi-
+mony -- and I should add, so that there will be no misunder-
+standing, that I have not only the advantage of discussions with
+you, but I have talked with him about it -- as I understand
+that testimony from that conversation, he was trying to ex-
+plain a situation in which he had no reason to question an Agency
+history to the effect that he first gave instructions on this
+matter in February 1961. And in that context -- and he had
+no reason to question the report that he had received
+White House encouragement -- it is in that context that his
+speculations about Mr. Rostow and about me seem to fall.
+
+I would be surprised, if his memory were refreshed
+with respect to the dates of January which you have des-
+cribed to me, if he were to believe that any initiative in
+this enterprise would come in the first instance from the
+Kennedy Administration.
+
+The Chairman. Mr. Bundy, our transcript of the
+Bissell testimony makes it clear that Mr. Bissell himself
+does not dispute the documented record. He said in effect,
+if Harvey says that I told him that I had been twice instructed
+
+TOP SECRET
+
+760000301454
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area 202) 544-6000

@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_20717.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+CONFIDENTIAL
+
+Copy to:
+
+Report of: ARTHUR V. SULLIVAN, JR.
+Date: 6/23/72
+
+Office: Boston
+
+Field Office File #: 100-43809
+
+Bureau File #: 100-468406
+
+Title: WOMEN'S NATIONAL ABORTION ACTION COALITION
+
+Character: INTERNAL SECURITY - COMMUNIST (TROTSKYIST)
+
+Synopsis: Informants advised the Boston Women's Abortion Action Coalition (BOWAAC), the local affiliate of the Women's National Abortion Action Coalition (WONAAC), was formed during the late summer, 1971, out of the local-Female Liberation (FL) group. Its headquarters is located at 552 Mass. Avenue, Cambridge. BOWAAC is not a formal membership group but there are approximately a total of 20-25 females regularly involved in the group's work. The Young Socialist Alliance of Boston (YSA-B) and the Socialist Workers Party (SWP), Boston faction within BOWAAC, which comprises about half of the activists, were the controlling force. However, recent reports indicate this faction has apparently alienated itself from other activists and does not now believe BOWAAC can be built into a successful supporter group for the YSA and SWP locally.
+
+-P*-
+
+CONFIDENTIAL
+
+<table><tr><td>GROUP 1</td></tr><tr><td>Excluded from automatic<br/>dowgrading and<br/>declassification</td></tr></table>
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to NW 88321 DiscId:32989546 cPage227e not to be distributed outside your agency.

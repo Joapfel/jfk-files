@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_21089.png
+
+Convert to MarkdownMemo to Mr. Belmont
+
+Re: Central Intelligence Agency,
+Information Received from James
+Angleton
+
+the Bureau, particularly with regard to that information which he receives from the Israeli Intelligence Service. Angleton is now furnishing the Liaison Agent blank memoranda which are dated, captioned, and which carry a control number; for example, "SP-1." This number will serve as a ready reference when some question comes up within the Bureau or the CIA. The Liaison Agent will make an appropriate notation on each memorandum indicating that the documents emanate from Angleton. It is believed advisable to set up a control file containing a copy of each document furnished by Angleton. This can be done in a manner similar to the arrangement effected in handling reports received from Stott. (S)
+
+In view of the above, Angleton more or less falls into the category of a Confidential Informant. He furnishes information of a sensitive nature and it is, therefore, believed that when disseminating his data, he should be protected as a source. Up to date Supervisors have been handling this information in a secure manner; however, since the volume of data received from Angleton has increased, it is believed desirable to alert all Section Chiefs regarding the handling of information received from Angleton. (R.W.)
+
+SECRET
+
+- 3 -

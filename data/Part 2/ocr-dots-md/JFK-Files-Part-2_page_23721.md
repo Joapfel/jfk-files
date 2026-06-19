@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_23721.png
+
+Convert to Markdownis that human collection projects would go to the operations
+advisory group for approval. That is, for operational approval.
+
+As you know from our testimony these kinds of projects
+do not go to the 40 Committee type organizations where they
+deal with covert action projects.
+
+So on the one hand we're hoping to deal with the question
+of operational approval. In this particular subcommittee we
+go to the question of overall management and direction of
+tasking, what should we be doing. What should the United States
+be doing in the human collection field? Where should we be
+in x number of years? What should the principal objectives
+of human collection be?
+
+And in this way we hope to bring the diversity that now
+exists in the community from the CIA to the military services
+and bring it together under the chairmanship of the Secretary
+of State who would help provide this kind of overall direction
+and management guidance.
+
+It is not an important elaboration of the committee on
+foreign intelligence. It should be there in any event because
+it's a management problem. This gives it focus, this gives
+the Secretary of State the chairmanship of a committee and I
+think properly so, that deals with this larger problem of
+whether human intelligence collection.
+
+Mr. Maxwell, it's unclear here whether it's chaired
+by a representative of the Secretary of State and the UCI and
+
+TOP SECRET
+VANDERVAUL
+
+HW 50955 DocId:32423509 Page 95

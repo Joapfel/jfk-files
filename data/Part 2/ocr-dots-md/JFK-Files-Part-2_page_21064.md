@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_21064.png
+
+Convert to MarkdownSECRET
+
+B-956
+
+10 MAR 1970
+
+SUBJECT: George Hoover PRATT
+
+Reference: A. Our memorandum of 11 February 1970, Subject as above.
+
+B. Your letter dated 21 November 1969, Subject: George Hoover PRATT, Internal Security - Laos, Racial Matters.
+
+CIA HAS NO OBJECTION TO
+DECLASSIFICATION AND/OR,
+RELEASE OF CIA INFORMATION
+IN THIS DOCUMENT. except For
+BEACUETS KP 10-10-97
+
+S/D/KSR 1-17-98(JFK)
+
+1. Our representative in Vientiane, Laos has provided the following additional information concerning Herman JACKSON and King SMEDLEY mentioned in paragraph 1A of reference A:
+
+a. Herman JACKSON is believed to be identical with William Herman JACKSON, also known as Jack Karl IAWHORN, who was born on 24 November 1926 in Dothan, Alabama. JACKSON is a retired United States Army Master Sergeant who now owns Jack's American Star Bar in Bangkok, Thailand. He carries United States passport number 2539419.
+
+b. King SMEDLEY is believed to be identical with James Warren SMEDLEY, negro male born on 3 October 1922 at Roanoke, Virginia. SMEDLEY served in the United States Air Force. He carries United States passport 2424089.
+
+2. Please provide us with copies of the fingerprint records of Subject and William Herman JACKSON. Please advise us if we may provide these records to [official Thai] sources in order to facilitate checking certain Thai records that would otherwise not be available.
+
+EX. - 106 REC-35
+
+PLEASE TRANSMIT REPLY VIA LIMERON, MR. S. J. PARISH 1/63-1504-
+
+8 MAR 24 1970
+
+NO FOREIGN DISSEM/NO DISSEM ABROAD
+
+SECRET
+
+HW 50953 DocId:32308802 Page 4

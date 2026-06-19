@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_22834.png
+
+Convert to MarkdownTOP SECRET
+
+The Chairman. I think that since the point is important, that when the Committee Staff complete its review of the evidence it ought to be reminded to look closely at that Helms testimony and identify exactly what words Helms might have used to describe his relationship with Robert Kennedy.
+
+Senator Baker. And the time involved and what position Helms occupied at the time.
+
+The Chairman. I have another question.
+
+Mr. Bundy, we also have it from Mr. Bissell that at one time he called in an officer, a subordinate, O'Donnell, -- that at one time Mr. Bissell called in a subordinate whose name was Mr. O'Donnell, and asked Mr. O'Donnell if he would be willing to undertake the assassination of Mr. Lumumba.
+
+Mr. O'Connell testifies that he said he would not be willing to undertake the assassination of Mr. Lumumba, because he had moral compunctions against killing.
+
+Mr. O'Donnell further testifies that he was then or thereafter dispatched to the Congo, where he was informed that some poison had been made available -- had come to the CIA headquarters in the Congo.
+
+Mr. Bundy. I am sorry, I missed that last.
+
+The Chairman. He was informed that some poison had arrived at the CIA headquarters in the Congo.
+
+When we asked Mr. Bissell on what authority he had asked O'Connell as to his willingness to undertake the assassination
+
+TOP SECRET
+
+760030171
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+HW 50955 DocID:52423406 Page 32

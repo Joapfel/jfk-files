@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_23436.png
+
+Convert to Markdown# TOP SECRET
+
+## Issues and Questions
+
+### 1960 (Cont'd)
+
+February 12 A "special" NSC meeting was held on this day. The only record of this meeting in the NSC minutes states: "On instructions from the Executive Secretary no memorandum was written." (NSC Minutes)
+
+Why were no minutes written?
+
+February 17 Special Group approves evaluation of agents for Cuban sugar mill sabotage. GRAY "discussed this matter with his associate" (Eisenhower) and reported two tactical objections. (SG Minutes)
+
+Does context show that phrase "his associate" refers to President EISENHOWER?
+
+March 9 GRAY tells Special Group that any covert action like sugar mill sabotage should be undertaken only after overall consideration of "whether and how the U.S. wishes to move against CASTRO." (SG Minutes)
+
+Did such consideration involve assassination plotting?
+
+March 14 At an NSC meeting, Allen DULLES "reported that a plan to affect the situation in Cuba was being worked on. Admiral BURKE suggested that any plan for the removal of Cuban leaders should be a package deal, since many of the leaders around CASTRO were even worse than CASTRO." (NSC Minutes)
+
+Was this "package deal" the simultaneous triple assassination plot that was mentioned on November 3, 1960?
+
+At a Special Group meeting, after a paper titled "General Covert Action Plan for Cuba" was read, there was "a general discussion as to what would be the effect on the Cuban scene if FIDEL and RAUL CASTRO and CHE GUEVARA should disappear simultaneously." (SG Minutes)
+
+Does this simultaneous disappearance plan refer to assassination planning?
+
+Is there a connection between this Special Group discussion and the NSC discussion on March 14, 1960, re a plan to remove Cuban leaders?
+
+April 7 "GRAY asked the [Special] Group's views on what happens after TRUJILLO, specifically how CASTRO can be kept out of the Dominican Republic." Acting DCI CABELL recommends U.S. military intervention after TRUJILLO departs. (SG Minutes)
+
+Did U.S. support TRUJILLO'S opponents out of a desire to keep CASTRO out of the Dominican Republic?

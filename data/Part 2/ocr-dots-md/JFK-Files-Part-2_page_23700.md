@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_23700.png
+
+Convert to MarkdownThen the question arose about the deadline on the 15th and the Chairman is going to ask that this deadline be set aside because of the problems of not being able to finish security and those other matters.
+
+So he is taking steps to do that now.
+
+Senator Huddleston. But I think it's still incumbent on us to make a special effort to move as fast as we can, and we plan to go ahead tonight.
+
+Okay, now we get back.
+
+Mr. Aaron. We're on page 37 and the procedure we're trying to follow to expedite things is to look particularly at the recommendations and at the bracketed language.
+
+Now recommendation 20 —
+
+Senator Huddleston. Before we get to 20, there's a problem in wording. "The last paragraph before 20, the Committee also found that there's no established inter-Agency mechanisms for establishing the bona fides of defectors." You've used established twice there.
+
+Mr. Aaron. I think we can take the first one out.
+
+Ms. Culbreth. We might say, David, that the staff hopes to take a real editorial shot at this before it gets published, anyway, and maybe even before it gets to everybody next week, and we would hope that we can get a lot of these things.
+
+But certainly, any that you see that you want us to be sure that we get to point out...
+
+TOP SECRET
+
+HAW 50955 DocId:32423509 Page 74
+
+WARD & PAUL

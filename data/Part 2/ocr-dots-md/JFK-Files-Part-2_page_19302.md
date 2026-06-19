@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_19302.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT
+
+FEDERAL BUREAU OF INVESTIGATION
+Atlanta, Georgia
+
+January 4, 1968
+
+FD-323
+
+In Reply. Please Refer to
+File No.
+
+Title: DEMONSTRATION PROTESTING U.S. POLICY IN VIETNAM, WASHINGTON, D.C., JANUARY 15-16, 1968
+
+Character: INFORMATION CONCERNING (INTERNAL SECURITY)
+
+Reference: Memorandum prepared at Atlanta, Georgia, dated and captioned as above.
+
+All sources whose identities have been concealed in the referenced communication have furnished reliable information in the past.
+
+This document contains neither recommendations not conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

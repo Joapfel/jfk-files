@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_22585.png
+
+Convert to MarkdownSECRET
+
+Honor America Week (1969)
+Support Our POW's and MIA's (1970)
+Operation Gratitude for Firemen and Law Enforcement
+Forces (1970)
+Welcome Home with Honor Day (1973)
+
+The NCRP is currently engaged in the initial stages of planning for a possible reception and program in the near future for the recently exiled Soviet author, Alexander I. Solzhenitsyn.
+
+RECEIVED FROM -105-
+
+SEP 30 1975
+
+CIA
+
+SECRET
+
+HW 50955 DocId:32203889 Page 93

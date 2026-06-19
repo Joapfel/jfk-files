@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_24297.png
+
+Convert to MarkdownSECRET
+
+grant provided it in Section S(b) of the CIA Act, and because of the unique
+nature of its statutory responsibilities, possesses both the express power
+to procure property confidentially without recourse to the Act and the
+implied power to dispose of property confidentially without recourse to th
+Act.
+
+RESPECTFULLY SUBMITTED
+
+Gary M. Breneman
+Assistant General Counsel
+Central Intelligence Agency
+
+OCT 30 1975
+
+CIA
+
+HW 50955 DocId:32423532 Page 191
+
+SPDATT

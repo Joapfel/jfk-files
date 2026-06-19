@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_21138.png
+
+Convert to MarkdownTOP SECRET
+
+that CIA warned BELITSKIY against SHULGINA. The paper noted
+that CIA did not warn BELITSKIY against SHULGINA but BELITSKIY
+had reported to CIA that SHULGINA was a KGB agent. SHULGINA
+was for two years a Secretary-Correspondent of NBC Correspondent
+IRVING R. LEVINE and according to BELITSKIY was involved in
+the sexual entrapment and KGB recruitment of British MP TOM
+DRIBERG [5]. It was stated that NOSENKO's apparent ignorance of
+SHULGINA's involvement with LEVINE and other Americans belied
+his claim that she was his agent during the 1955-58 period.
+It was also noted that in 1964 he failed to recognize her photo-
+graph; when shown her name he identified her not as his former
+agent but as an SCD agent involved with BELITSKIY.
+
+**COMMENT:** On December 11, 1967, (N-64), NOSENKO listed SHULGINA as one of his agents and indicated that in 1960 she left Intourist and worked in the Radio Committee. On January 24, 1968, (N-109), he stated that she was an agent of GEORGIY IVANOVICH RASTRUSIN before she was turned over to NOSENKO with whom she
+
+TOP SECRET

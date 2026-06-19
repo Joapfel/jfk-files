@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_19706.png
+
+Convert to MarkdownIn Reply, Please Refer to
+File No.
+100-55290
+
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+November 13, 1972
+
+Director
+United States Secret Service
+Department of the Treasury
+Washington, D. C. 20220
+
+RE: "FURIES" NEWSPAPER
+WOMEN'S LIBERATION MOVEMENT
+PUBLICATION, WASHINGTON, D.C.
+
+Dear Sir:
+
+The information furnished herewith concerns an individual or organization believed to be covered by the agreement between the FBI and Secret Service concerning protective responsibilities, and to fall within the category or categories checked.
+
+1. ☐ Threats or actions against persons protected by Secret Service.
+
+2. ☐ Attempts or threats to redress grievances.
+
+3. ☐ Threatening or abusive statement about U. S. or foreign official.
+
+4. ☐ Participation in civil disturbances, anti-U. S. demonstrations or hostile incidents against foreign diplomatic establishments.
+
+5. ☐ Illegal bombing, bomb-making or other terrorist activity.
+
+6. ☐ Defector from U. S. or indicates desire to defect.
+
+7. ☒ Potentially dangerous because of background, emotional instability or activity in groups engaged in activities inimical to U. S.
+
+Photograph ☐ has been furnished ☐ enclosed ☐ is not available.
+
+1 - Special Agent in Charge (Enclosure(s))
+U. S. Secret Service
+
+Enclosure(s)

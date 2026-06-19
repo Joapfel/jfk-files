@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_23475.png
+
+Convert to Markdownd. The CIA site on Saipan. This would be very secure but would require a large amount of airlift.
+
+e. Fort Randolph, in the Panama Canal Zone. At this location the trainees could be kept secure but would almost certainly know where they were.
+
+Mr. Douglas said that a military base could be made available, such as Laughlin Air Force Base near Del Rio, Texas. He said that the use of such real estate might be tied into some sort of cooperation with Tracy Voorhees' Committee on Cuban Refugees. He felt also that the U.S. capability for intervention in Cuba will probably not be effective enough unless there is more overt participation than has been contemplated to date. Gen. Lansdale said that he and Gen. Bonesteel were of the same opinion.
+
+Mr. Gray supported this general position, stating that when the current Cuban plan was approved, the situation in that country was different than it is now. Since then, the Cubans have received sizeable amounts of bloc arms and have organized a militia, and Mr. Gray wondered how effective a few hundred exiles could be. Mr. Dulles acknowledged that it would be necessary to have internal support if the Castro government were to be successfully overthrown; he felt that there is reason to believe such support might develop, perhaps within the militia itself.
+
+Mr. Mann expressed the opinion that the way to proceed is to seal Cuba off from the rest of Latin America and to settle down for a one or two year wait, presumably to see whether the tide might not turn in our favor. He said that in the meantime we could infiltrate small groups of trained Cubans as a token, but that we should postpone a decision on a striking force for four or five months. In this general connection, Mr. Bissell said that even if it is finally decided that overt U.S. forces should be used, there still should be a nucleus of trained Cubans available. Therefore, our present activities should be continued in any case.
+
+Summing up, the Group decided that the possibility of splitting the present body of trainees into three or four groups should be examined urgently (particularly in view of Mr. Mann's estimate that the OAS investigation might take place in two or three weeks). Alternate sites to be examined would include Vieques, Laughlin AFB and Fort Randolph.
+
+SECRET - TOPICS ONLY
+
+OCT 13 86
+
+PROPERTY OF
+THE WHITE HOUSE
+
+HW 50955 DocId:32423488 Page 48

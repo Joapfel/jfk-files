@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_23961.png
+
+Convert to Markdownpersonal defense attendant to their projected efforts to re-
+move 'Trujillo" could be developed by the Station. The memo-
+randum made no recommendation to approve or disapprove passage
+of these weapons. (Id.)
+
+On May 15, 1961, Bundy forwarded to Goodwin another
+memorandum. This one, entitled "The Current Situation in and
+Contingency Plans for the Dominican Republic," had been received
+by Bundy from the State Department. Attached was an under-
+lying document which began:
+
+"Recent reports indicate that the internal
+Dominican dissidents are becoming increasingly
+determined to oust Trunillo by any means, and
+their plans in this regard are well advanced."
+
+The May 15 memorandum stressed that it was highly desirable
+for the U.S. to be identified with and to support the elements
+seeking to overthrow Trujillo. The attachment
+recommended that Consul General Dearborn inform the dissidents
+that if they succeed "at their own initiative and on their own
+responsibility in forming an acceptable provisional government
+they can be assured that any reasonable request for assistance
+from the U.S. will be promptly and favorably answered." (Documents
+from State Dept. files bearing Nos. 279-286).
+
+F. Drafts Leading to and Final Cable of May 29, 1961
+
+A copy of Dearborn's cable of May 16, 1961, requesting
+urgent State Department guidance, was forwarded to Richard -
+Goodwin. At the specific request of Goodwin,
+the State Department replied to Dearborn on May 17,
+
+TOP SECRET
+
+HW 50955 DocId:32423525 Page 64

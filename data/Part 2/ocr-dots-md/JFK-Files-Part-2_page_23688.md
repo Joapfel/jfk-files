@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_23688.png
+
+Convert to Markdownat the question of duplication with overt reporting by the
+military attaches or by the foreign service or whomever.
+
+In other words, it's trying to establish a standard.
+
+Senator Huddleston. Okay, so where are we?
+
+Mr. Aaron. I think we're at the following point that
+as far as the bracketed sentence is concerned, we'll go back
+to the Agency and establish what the practice is when review
+is necessary of including the paragraph along the lines
+suggested by Senator Hart saying the oversight committee should
+look into this particular practice if indeed it is a practice
+with the absence of policy on this point.
+
+As to the question of American companies, I think I
+still need to be directed as to how to deal with that. I
+think when in doubt, delete.
+
+Senator Hart: Can we just commend them for that? Can
+we say it's a good practice?
+
+Mr. Aaron. Well, the Committee notes that it's been
+the practice not to do this and that that should continue as
+a part of their standard procedures.
+
+Senator Mathias. Have we ever commended them?
+
+Mr. Bader. There is much text here which talks about
+sensible, responsible practices,
+
+Senator Mathias. I do think you should mention that we're
+talking about their domestic operations of American companies.
+
+Mr. Aaron. Yes... FRO is supposed to tell you that but
+
+TOP SECRET
+WARD & PAUL
+
+HW 50955 DocId:32423509 Page 62

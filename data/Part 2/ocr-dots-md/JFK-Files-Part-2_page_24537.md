@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_24537.png
+
+Convert to MarkdownE. The Issue of Authority Outside the Agency
+
+This section discusses the evidence as to whether there was authorization
+from outside the Agency for the assassination activity that took place during
+the Mongoose operation.
+
+TR. 7/17, p.4)
+
+As discussed below in detail, both Helms and the Kennedy Administration
+officials agreed that no direct order was ever given for Castro's assassina-
+tion and that no one outside the Agency (including McCone) was informed
+about the assassination activity. Helms testified, however, that he believed
+the assassination activity was permissible and that it was within the scope
+of the authority given to the Agency. McGone and the other Kennedy Admini-
+stration officials disagreed, testifying that assassination was not permissible
+without a direct order and that a Castro assassination was not within the
+authorized bounds of the Mongoose operation.
+
+In April 1962, when the poison pills were given to Roselli in Miami,
+Helms was the CIA Deputy Director in charge of covert operations and reported
+to McCone, the CIA Director. Helms had succeeded Bissell in this job,
+following Bissell's retirement in February, 1962, as a consequence of the
+failure of the Bay of Pigs invasion. Helms testified that, after the Bay
+of Pigs, "Those of us who were still (in the Agency) were enormously anxious
+to try and be successful at what we were being asked to do by what was then
+a relatively new Administration. We wanted to earn our spurs with the
+President and with other officers of the Kennedy Administration." (Helms
+
+1. Helms' Testimony Concerning Authority
+
+As set forth below, Helms testified that while he doubted whether
+he was initially informed that Harvey gave poison pills to Roselli and did
+not recall having authorized a Castro assassination in that form, nevertheless,
+Helms had authorized the 1962 assassination plot because "we felt that we

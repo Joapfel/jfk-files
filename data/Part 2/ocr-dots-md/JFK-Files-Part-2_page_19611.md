@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_19611.png
+
+Convert to Markdown# ADMINISTRATIVE
+
+RENYAT AND LHM, MARCH THIRTY ONE, LAST, AND WFOTEL,
+MARCH THIRTY ONE, LAST.
+
+SOURCE CONCEALED IS INFORMANT
+LHM FOLLOWS WITH ADDITIONAL INFO RELATING TO MARCH.
+
+END
+
+To White House, AG, Secret Service,
+CIA, State, SI, D.J, DJA, Vice
+President by tel. CC's of White
+House tel to DAG; AAG's: IS, CRD,
+CRIM, IDIU; NIS 4-15-71

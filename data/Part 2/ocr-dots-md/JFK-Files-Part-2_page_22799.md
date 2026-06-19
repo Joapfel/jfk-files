@@ -1,0 +1,79 @@
+# JFK-Files-Part-2_page_22799.png
+
+Convert to MarkdownTOP SECRET
+
+1
+
+My own impression as to this matter -- and I have already testified to the fact that I am relying on a recollection of a meeting of which there is no record -- is that had I been briefed on this essentially hypothetical internal, undirected character, it did not appear to me to be a matter that required further authority outside the CIA. That may or may not have been right, but that is the quick judgment I appear to have reached. Because I certainly did not raise the question with others.
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+Senator Baker. Do you recall that, Mr. Bundy, or is that your surmise?
+
+11
+
+12
+
+Mr. Bundy. That is my reconstruction more than my -- I know I did not raise it, I did not press the question, and I did not feel, therefore, that it was a question that needed further analysis, and it did not, so far as I know, get further consideration in the White House. My own recollection is that I didn't hear the words again in any serious context that I can recall until this year.
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+The Chairman. And you cannot recall who it was who briefed you?
+
+19
+
+20
+
+Mr. Bundy. I really cannot.
+
+21
+
+22
+
+Mr. Schwarz. Can you narrow the field?
+
+23
+
+24
+
+Mr. Bundy. I can narrow the field. It would have to have been a senior officer at the Agency, or someone with previous understanding in the White House. I have no reason to suppose
+
+25
+
+TOP SECRET
+
+HW 30935 DocID:52423406 Page 17
+
+760050415
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area 202) 544-6000

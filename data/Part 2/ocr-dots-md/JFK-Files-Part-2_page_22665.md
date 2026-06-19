@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_22665.png
+
+Convert to MarkdownTOP SECRET
+
+10
+
+69
+
+in the normal course of events, we might have put Golitzen in
+contact with Nosenko, which may have meant the assassination
+of Golitzen, because the whole approach of Nosenko was one
+where logically you would bring them in and have two bodies,
+one from the First Chief Directorate, that is, Golitzen, the
+CIA part of the system, and the other from the FBI part of the
+system, and therefore you would have a very strong balance
+against the KGB. But we didn't do that. Because there were
+certain things, litmus papers, questions put to Nosenko. And
+as far as I was concerned, if he was bona fide he would have
+answered one way, and he did not answer that way. And they had
+to do with some deeper secrets regarding a meeting of the
+2000 members of the KGB and the Soviet Government in May of
+1959, presided over by Shelepin and attended by many members
+of the Central Committee on the reorientation of the Soviet
+Services and the return to Leninism wherever intelligence
+operations has a political objective. And this is a part of
+the process of de-Stalinization. And so when we took him
+unwittingly chronologically through his career, he omits
+all of this phase. And we had three or four or five other test
+things, where their damage report would not show that Golitzen
+had access, because it was part of his way of getting in and
+breaking compartmentation. And therefore they would have no
+evidence that he had sufficient knowledge.
+
+Mr. Schwarz. And so Nosenko looked funny to you, he
+
+TOP SECRET
+
+76030117:1
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000

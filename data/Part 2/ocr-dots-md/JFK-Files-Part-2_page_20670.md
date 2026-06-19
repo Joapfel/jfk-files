@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_20670.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+Boston, Massachusetts
+
+February 18, 1972
+
+WOMEN'S NATIONAL ABORTION ACTION
+COALITION (WOMAAC) CONVENTION
+FEBRUARY 11-13, 1972, BOSTON,
+MASSACHUSETTS
+
+A source on February 11, 1972, advised as follows:
+
+The opening session of the WOAAAC Convention held at Boston University, Boston, Massachusetts, February 11-13, 1972, began at approximately 8:00 p.m. the evening of February 11, 1972, and was in the nature of a rally held in Hayden Hall, Boston University with approximately 600 individuals present. Of this number, approximately 50 were males; but it is noted that this was the only convention session to which males were invited.
+
+The general theme of the rally was "How To Win Abortion Law Repeal." Matilde Miles nee Zimmerman who in December 1971, transferred from the Socialist Workers Party (SWP), Boston to the SWP, New York and is now also a WOAAAC national staff member, was one of the two rally moderators.
+
+The SWP, Boston is the local affiliate and follows the aims and purposes of the national SWP.
+
+The SWP has been designated pursuant to Executive Order 10450.
+
+The source advised that the rally speakers, all of whom stressed the legalization of abortion, included the following:
+
+Judy Syferg Coordinator of WOMAAC
+West, Feminist Author
+
+<table><tr><td>GROUP 1</td></tr><tr><td>Precluded from automatic<br/>decals; and</td></tr><tr><td>PRORATION</td></tr></table>
+
+NWI 88321 Doctd:32989546 Page 175

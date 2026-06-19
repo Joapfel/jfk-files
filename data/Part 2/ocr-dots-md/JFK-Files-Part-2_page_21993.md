@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_21993.png
+
+Convert to MarkdownC-VII
+
+C-VII-1 Letter/Jeanne Davis to Belin re: Review of NSC Documents Relating to Assassination, May 30, 1975
+
+Attachments include excerpts from Special Group/303 Committee meetings.
+
+C-VII-5 Memorandum/Cargill to Files re: Justice Department Documents Relating to Plots to Assassinate Castro, May 21, 1975
+
+These documents relate to the wiretapping incident in Las Vegas.
+
+C-VII-6 Memorandum/Cargill to Files re: Documents from DPD Files Related to Cuban Operations, 1959-1961, May 21, 1975
+
+C-VII-10 Memorandum/Cargill to Files re: Persons Identified in 1967 IG Report, May 15, 1975
+
+C-VII-18 Letter/Jeanne Davis to Belin re: NSC Documents, May 9, 1975
+
+Contains excerpts from a paper prepared for NSC discussion on May 5, 1961 re Cuba. Discusses "If Castro were removed from the scene."
+
+C-VII-22 Letter/Dean Rusk to Belin, April 28, 1975
+
+C-VIII
+
+Project PAMA
+
+Revises to the "Intelligence exploitation" of the United Nations 15th General Assembly by the CIA. There were allegations that there was a CIA plot against Castro to be carried out while he was in New York. Documents and papers in this file are directed towards this charge. 1 (B)

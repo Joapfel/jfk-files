@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_23538.png
+
+Convert to Markdown2 May 1961
+
+MEMORANDUM FOR: Mr. Richard N. Goodwin
+Assistant Special Counsel to the
+President
+
+SUBJECT: Possible Covert Activities against Cuba
+
+Attached is a brief statement regarding covert operations
+against Cuba. In view of your familiarity with this subject
+and our conversations over the past few days, I have not
+attempted to provide you with much detail.
+
+Richard M. Bissell, Jr.
+Deputy Director
+(Plans)
+
+Attachment: Paper as stated above
+
+EYES ONLY
+
+EVERY CITY

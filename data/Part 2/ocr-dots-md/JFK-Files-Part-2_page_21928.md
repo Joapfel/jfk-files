@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_21928.png
+
+Convert to Markdowntherefore, he knew it could be done. (Station to Hqs cable,
+3/21/61) Two days later, Headquarters cabled that the pistols
+and ammunition were being pouched. However, the Station
+Chief was instructed not to advise Dearborn. (Hqs. to Station
+cable, 3/24/61)*
+
+b. Reason for the CIA Instruction
+Not to Tell Dearborn
+
+Owen testified that he believed the "don't tell Dearborn the pistol is being pouched" language simply meant that the sending of firearms through the diplomatic pouch was not something to be unnecessarily discussed.
+Owen pp. 78,79)
+
+Dearborn said he never doubted the pouch was used, since he knew
+Owen had no other means of receiving weapons. (Dearborn,
+7/29, p. 33)
+
+c. Were the Pistols Related to Assassination?
+
+Dearborn testified that he had asked for a single pistol
+for purposes completely unrelated to any assassination con-
+sideration. (Dearborn, 7/29, pp. 29-31) He said he had been
+approached by a Dominican contact who lived in a remote area
+and was concerned for the safety of his family in the event
+of political reprisals. Dearborn testified that he had believed
+
+* The Inspector General's Report, issued in connection with
+a review of these events, concludes that:
+
+"There is no indication in the EMDEED operational files
+that the pistols were actually pouched. The request
+for pistols appears to have been overtaken by a sub-
+sequent request for submachine guns." (I.G. Report, p. 60)
+
+This conclusion is difficult to understand in light of the March
+24, 1961, Headquarters to Station cable, which provides:
+
+"C. Pouching revolvers and ammo requested TRUJ 0462
+(in 20040) on 28 March. Do not advise(name Dearborn deleted)
+this material being pouched. Explanation follows."
+
+DocID:32202487

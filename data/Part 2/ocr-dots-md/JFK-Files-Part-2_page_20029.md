@@ -1,0 +1,58 @@
+# JFK-Files-Part-2_page_20029.png
+
+Convert to MarkdownFBI
+
+Date: 12/28/67
+
+Transmit the following in
+
+(Type in plaintext or code)
+
+AIRTEL
+
+REGISTERED MAIL
+
+Priority
+
+Via
+
+TO: DIRECTOR, FBI
+FROM: SAC, MIAMI (105-9843) (P)
+SUBJECT: DEMONSTRATION PROTESTING UNITED STATES POLICY IN VIETNAM, WASHINGTON, D.C., JANUARY 8, 1968 INFORMATION CONCERNING (INTERNAL SECURITY)
+
+Re Miami teletype to Director dated 12/27/67.
+
+Enclosed for the Bureau are 11 copies of LHM concerning the captioned demonstration. Two copies are being furnished Philadelphia, the office of origin of the WILPF. Two copies are being furnished Atlanta and San Francisco who have current investigations concerning the Jeannette Rankin Brigade. One copy is being furnished all other offices for their information.
+
+The title has not been changed to record the new set date since this information has not been corroborated in the Miami Division.
+
+ENCLOSURE
+
+3 - Bureau (Enc. 11) (RM)
+2 - Atlanta (Enc. 2) (RM)
+2 - Philadelphia (Enc. 2) (RM) (1 - 100-9882) (WILPF)
+2 - San Francisco (Enc. 2) (RM)
+2 - WFO (Enc. 2) (RM)
+
+AGENCY: G-2, ONI, OSI, SEC. SER.,
+RAO (ISD, GRG, GD)
+
+DATE FORW: T-t-f-C-8
+HOW FORW: R-H-R-D-C
+BY:
+
+1 - (Enc. 1) (RM) (Info)
+2 - Miami (1 - 105-9843) (1 - 100-11990)
+
+JJM:sl
+(66)
+
+REC 8
+
+C. C. - Bishop
+
+13 JAN 8 1968
+
+Approved: JAN 12 1968
+Sent M Per
+NW 88321 DocId:329895481 Page310 Charge

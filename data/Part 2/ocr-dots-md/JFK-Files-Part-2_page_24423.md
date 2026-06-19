@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_24423.png
+
+Convert to Markdownhotel bill during his stay in Miami in October 1960.* The CIA's involvement with Roselli caused the Agency some difficulty during Roselli's subsequent prosecutions for fraudulent gambling activities and living in the country under an assumed name.**
+
+(d) Plans in Early 1963
+
+Two plans to assassinate Castro were explored by Task Force W, the section concerned with covert Cuban operations, in early 1963. Desmond Fitzgerald (now deceased), Chief of the Task Force, asked Samuel Halpern to determine whether an exotic seashell, rigged to explode, could be deposited in an area where Castro commonly went skin diving (Halpern, p. 28). The idea was explored by the Technical Division and discarded as impractical (Helms, 6/13, p. 135; I.G., p.77)
+
+A second plan involved having James Donovan
+
+(who was negotiating with Castro for the release of prisoners
+
+* FBI reports reveal that Roselli's expenses at the Kennilworth Hotel, where he was registered from October 11 - 30, 1960 under the name. of J.A. Rollins, were paid by Maheu (File R-505, FBI file summary, p.10). Maheu's expenses were reimbursed by the CIA.
+
+** In May 1966, the FBI threatened to deport Roselli for living in the United States under an assumed name unless he cooperated in an investigation of the Mafia. (Roselli, whose true name is Filippo Saco, was born in Italy and allegedly brought illegally into the United States while still a child.) Roselli contacted Edwards, who informed the FBI that Roselli wanted to "keep square with the Bureau," but was afraid that gangsters might kill him for "talking" (CIA Justice File R-153, Memorandum, Osborn to FBI, 5/27/66). After Roselli was arrested for fraudulent gambling activities at the Friars Club in Beverly Hills in 1967, he requested Harvey, who had left the Agency, to represent him (CIA Justice File R-153, Memorandum for Record by Osborn, 12/11/67). Harvey contacted the Agency and suggested that it prevent the prosecution (Osborn Memorandum, supra). Roselli was subsequently convicted of violating United States interstate gambling laws. In 1971, the CIA approached the Immigration and Naturalization Service, Department of Justice, to "forestall public disclosure of Roselli's past operational activity with CIA "that might occur if deportation proceedings were brought. (CIA to Select Committee, 7/21/75). It was agreed that CIA would be kept informed of developments in that case. The deportation order is presently being litigated in the courts. Did you do anything to stop it?

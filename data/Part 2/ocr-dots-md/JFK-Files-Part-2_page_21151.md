@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_21151.png
+
+Convert to MarkdownTOP SECRET
+
+COMMENT: The statement of [FRIPPEL] that "NIKOLAEV" (NOSENKO) conducted almost all of the interrogations strongly suggests that NOSENKO was a counterintelligence officer rather than just an "English speaking specialist in sexual entrapment." A number of other cases, all summarized in the CIA paper, establishes this fact beyond reasonable doubt. [RICHARD BURGHI's] (pages 115-120) description of his recruitment is one such case. He described his meeting with a Russian, "ANATOLI," [on June 18, 1956], who introduced him to "VIKTOR" and "YURI IVANOVICH" in a Moscow restaurant on [June 20, 1956]. He identified the photograph of YURI IVANOVICH NOSENKO as "YURI IVANOVICH" and said he left after about twenty minutes. On [June 23, 1956], [BURGHI] traveled to [Kiev] where he was met at the airport by "YURI IVANOVICH" and "VLADIMIR STEPANOVICH" who took him to an apartment and introduced him to "ANATOLI SERGEEVICH" (undoubtedly ANATOLI SERGEEVICH KOZLOV, Deputy Chief of the 7th Department who
+
+75a
+
+TOP SECRET

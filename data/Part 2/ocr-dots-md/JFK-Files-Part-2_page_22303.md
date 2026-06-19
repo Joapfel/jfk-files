@@ -1,0 +1,89 @@
+# JFK-Files-Part-2_page_22303.png
+
+Convert to Markdown# TOP SECRET
+
+it someone different?
+
+Mr. Maheu. This request emanated from, directly from the State Department.
+
+Mr. Madigan. Who in the State Department?
+
+Mr. Maheu. Mr. Scott McCloud, who was then Director of the Office of Security and Consular Affairs.
+
+Mr. Madigan. Was it coordinated with the CIA, or was this strictly between yourself and the State Department?
+
+Mr. Maheu. My recollection is that the CIA was kept apprised, however that the coordination was with the State Department, in connection with the security that was being provided for this leader during his visit to the United States.
+
+Mr. Madigan. Did you meet with the State Department or CIA people or both in New York City when the leader arrived there?
+
+Mr. Maheu. My recollection is that I met with Security Personnel of the State Department.
+
+Mr. Madigan. What did you do in New York for this assignment?
+
+(Pause)
+
+Mr. Maheu. I don't recall.
+
+Mr. Madigan. And did you meet with the New York police with regard to the assignment?
+
+Mr. Maheu. I don't recall.
+
+Mr. Madigan. Did you obtain or send over any females over
+
+TOP SECRET
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000

@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_23598.png
+
+Convert to MarkdownIOP SECRET
+
+amt
+
+25
+
+the United States. Several months later, I presume because
+of that trip and several other contacts I maintain with
+representatives of the Cuban government at the United Nations
+and the Organization of American States, because of my personal
+friendship with a number of people at the White House and
+Mr. Goodwin, Mr. Donnegan and others, in a conversation with
+Mr. Goodwin it was suggested that I come and see the Attorney
+General. I was invited to lunch with Mr. Kennedy at the Justice
+Department. We discussed in considerable length the situation
+in Cuba following the invasion, the pros and cons of some
+different possible actions by the United States government in
+that context.
+
+At the end of this conversation, the Attorney General asked me whether I would have objections to meeting with his brother the President. I said I would of course be pleased to do so.
+
+The following day I received a call from the White House indicating that the President would like for me to come in at 11:00 o'clock in the morning on that day in November, which I did. And I was received by the President in the company of Mr. Goodwin in the Oval Office for a conversation which lasted, if memory serves, in excess of an hour and a half, in which the President discussed a number of his views on Cuba in the wake of the Bay of Pigs, asked me a number of questions concerning my conversations with Premier Castro, a general review of the
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32423505 Page 76

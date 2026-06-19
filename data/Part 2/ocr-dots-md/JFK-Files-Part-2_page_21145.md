@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_21145.png
+
+Convert to MarkdownTOP SECRET
+
+proposition a young male for homosexual activities.
+
+On May 16, 1968, ROBERTS (S) changed his story but stated that he attended Navy Language School with MALIA (S) in 1944-45 and suspected that he was a homosexual. In 1963 he saw him in [Cannes, France](S), in a group of homosexuals on a beach frequented almost exclusively by homosexuals.
+
+In addition, information was reported to the American Embassy in Rome, Italy, in 1966 regarding a close association between [MALIA](S) and a young German, JORG B. MARUSCZYK (S) who according to a physician appeared to be a homosexual.
+
+The above information effectively supports NOSENKO's allegation that [MALIA](S) was involved with homosexuals.
+
+On November 7, 1967, February 6, March 8, and April 10, 1968, (N-14, 121, 125, 178), NOSENKO furnished detailed information regarding the [MALIA](S) case which indicated he had a personal knowledge of that case. He said he had no doubt that [MALIA](S) was connected with American Intelligence. This conclusion was based on
+
+TOP SECRET
+
+HW 50953 DocId:32318825 Page 31

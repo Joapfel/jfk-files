@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_23288.png
+
+Convert to MarkdownTOP SECRET
+
+15
+
+1 wanted -- in order to carry out an assassination, they thought
+2 they needed transfer of additional weapons, of submachine guns.
+3 I don't remember any indication that anyone thought that a
+4 carbine or a .38 was adequate to mount an effort of that kind
+5 against Trujillo. But they, of course, were interested in
+6 assassinating Trujillo, involved as they were in a very life
+7 and death struggle, their families were being slaughtered --
+8 Mr. Schwarz. The record demonstrates that the Agency was
+9 informed in April, prior to the memorandum that went to you
+10 which we marked as Exhibit 1, that the dissidents intended to
+11 undertake the assassination effort and to do so within the
+12 means that they eventually actually did, by blockading the
+13 road and shooting Mr. Trujillo as he was visiting his mistress.
+14 And that they intended to do it whether or not they received
+15 the machine guns, but they would like the machine guns, just
+16 to help.
+
+Now, were you informed by the Agency or by anyone else
+that the dissidents intended to accomplish the assassination
+with the small arms whether or not they got the machines?
+
+Mr. Goodwin. I was informed that both this and other
+groups intended and wanted to assassinate Trujillo. We got
+reports of assassinations about to occur almost every two or
+three weeks in the White House. There is a long gap between
+wanting to kill Trujillo and being able to do it, and -- but
+at all times, continually, up into May, there was the very
+
+TOP SECRET
+
+410 First Street, Ste. 11 - Washington, D.C. 20003
+
+76006113

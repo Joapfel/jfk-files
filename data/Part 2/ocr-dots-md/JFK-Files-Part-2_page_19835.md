@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_19835.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Re: WONAAC
+
+Doris Abdurrahiy
+1516 Widener Place
+Philadelphia, Pennsylvania
+
+Marsha Coleman
+Barnard College,
+Hewitt Hall 733,
+Box 424
+New York, New York
+
+Yoshie Hzquierdo
+20201 Lindsay
+Detroit, Michigan
+
+P. Morgan Hamilton
+1724 Wymore #6
+East Cleveland, Ohio
+
+Joyce Shatteen
+13359 Euclid #12
+East Cleveland, Ohio
+
+Hattie L. Mc Citdeon
+2349 Cumberland Street
+Philadelphia, Pennsylvania
+
+Doris A Long
+237 East Twelfth Street
+New York, New York
+
+Terita Johnson
+7621 South Caginaw
+Chicago, Illinois...
+
+Maria Robinson
+1367 Joliet Place
+Detroit, Michigan
+
+Maxine Williams
+16315 130th, #12-B
+Jamaica, New York
+
+CONFIDENTIAL
+
+NW 88321 DocId:32989545 Page 119 - 4 -

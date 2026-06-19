@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_20062.png
+
+Convert to MarkdownSource 9 SOURCE
+Source 10 INFORMANTS
+Source 11
+
+Instant LHM is classified CONFIDENTIAL to protect the identities of sources of continuing value.
+
+San Francisco will continue to follow and report any pertinent information received concerning this matter.

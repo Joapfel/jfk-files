@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_22726.png
+
+Convert to Markdown1 being contacted perhaps by nine different intelligence services
+
+2 Now, there is no one who has supported the question of his mala fides. In other words, everyone, to a man, has
+
+3 stated that he is bona fide, that they have never been able to disprove a statement of fact that he has given as a statement of fact, although they do not necessarily agree with his hypotheses.
+
+4
+5
+6
+7 That is the official statement.
+
+8 Mr. Miler. May I just add two things on this?
+
+9 First, Mr. Johnson, it goes back to the business of compartmentation and not advising stations. In the case Angleton cited, the Paris station of the CIA was not told anything about the information, and I think this is a very good example of why you would not.
+
+10
+11
+12
+13 The second point I would like to follow up on is with respect to this defector's information, there were five leads which were passed to the FBI about penetration which involved the CIA, for action. And one case was solved, but it was solved only after the FBI officially sent us a letter saying that they concluded that there was no substance to this information.
+
+14
+15
+16
+17
+18
+19
+20 They had to reopen the investigation -- Mr. Angleton. And they also said: send it to the Army.
+Mr. Miler. Yes, send it to the Army.
+
+21
+22
+23
+24 Now, they had to reopen the investigation when their surveillance spotted a man coming out of the Soviet embassy, and
+
+25
+
+TOP SECRET
+
+HW

@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_21594.png
+
+Convert to MarkdownINTERVIEW AND MEETING SUMMARY
+
+FILE: SECRET
+
+He knew Soviet agents and other countries' agents were in the Secretariat. Dulles stressed that there was little coverage or penetration at the U.N. The FBI "religiously observed" the ban on operating in the U.N. compound. Papich was present when Hoover and Dulles met. When Hoover objected to the plan, Dulles dropped it. Another example: Angelton might be disturbed about our lack of information about KGB operations out of the embassy. He would discuss with Papich how to penetrate the KGB.
+
+Friction would develop in "the gray area" of positive intelligence. For example, a top foreign official came to the United States for medical treatment. The CIA knew he was coming to the U. S. and wanted to know his relationship with Communists and wanted intelligence on the instability in the country. The CIA wants him surveilled to find out his contacts, what he's saying, and a wiretap or bug. The FBI would not do this since he was not an intelligence agent and not within FBI jurisdiction. The CIA would be upset. There were several cases like this, one involving a Bolivian agent. Over the years, Papich sold Hoover on one of these, but it was always a gray area. The NSU store coordination never worked with the FBI.
+
+In summary, the sources of friction were (1) the OSS experience, (2) political and psychological warfare by CIA, and (3) the CIA desire for positive intelligence gathering in the U. S.
+
+There was no major issue regarding CIA's desire to develop "friends" in the U.S. Papich recalls no more than three to six instances of disagreement. The FBI never helped the CIA create an organization for deep cover. It never needed FBI help because it moved on its own. The CIA Office of Security advised Papich that they had a relationship with the National Student Association. This never gave the FBI a problem.
+
+The Katzenbach report would not give the FBI problems but many good CIA contacts overseas went down the drain when contacts through student groups were curtailed. Papich believes that if these contacts
+
+SECRET
+
+HW 50955 DocId:32281992 Page 7

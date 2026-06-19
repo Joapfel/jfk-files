@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_22628.png
+
+Convert to MarkdownTOP SECRET
+
+1 He was a more valuable agent. If he had not been uncovered he would have been today Chief of British Intelligence.
+
+2 NBR
+3 In the case of George Blake, who was in the British
+4 secret service, he gave to the Soviets one year in advance the
+5 entire plans of our so-called Tunnel of Love, that is, the
+6 tunnel we built in Berlin -- very elaborate -- to tap all of
+7 the Soviet military lines.
+
+8 Now, even one year in advance, they took no preventive
+9 action in order to save George Blake.
+
+10 Now, what has happened since December 22 to the U.S.
+11 intelligence community, in the position that Hersh enjoys, with
+12 the prestige and the impact on the U.S. public, it stands to
+13 reason that you can't get them to give any baby talk as to what
+14 the Soviets would or would not do, when you see something that
+15 is the objective from the end of the last war to the present,
+16 and destroy the agent.
+
+17 Senator Baker. Do you think Hersh is a Soviet Agent?
+
+18 Mr. Angleton. I am not saying that he is a Soviet
+19 agent. To begin with, when I went back to see Wells, who
+20 was in counter intelligence with me in London during the war,
+21 I told him I could not buy Szulc's article regarding Hersh, the
+22 alleged meetings and that they had certain sources, and the
+23 introduction of Dr. Mann's name and so on simply didn't hold
+24 water, and something was wrong.
+
+25 But Dr. Mann is a suspect Soviet agent, a friend of
+
+TOP SECRET
+
+HW 50955 DocId:32423393 Page 34
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+76009114136
+
+Phone (Area 202) 344-4000

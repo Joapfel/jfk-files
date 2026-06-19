@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_19832.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+CONFIDENTIAL
+
+Detroit, Michigan
+
+March 1, 1972
+
+Re: Women's National Abortion Action Coalition (WONAAC) Convention, February 11 - 13, 1972 Boston, Massachusetts
+
+On February 18, 1972, source, who has furnished reliable information in the past, furnished the following information:
+
+A Women's National Abortion Action Coalition (WONAAC) Convention was held on the Boston University campus, Boston, Massachusetts, during the period of February 11 - 13, 1972.
+
+Approximately 1,000 persons were in attendance at this convention which was held to determine future action of WONAAC and to allow diverse factions within the Women's Abortion Movement to join ranks under one issue.
+
+Female members of the Socialist Workers Party (SWP) and Young Socialist Alliance (YSA) from all over the county were requested by the national office of the SWP and YSA to attend this convention in order to insure the effective control of the convention by the SWP.
+
+As the youth organization of the Socialist Workers Party (SWP), the Young Socialist Alliance (YSA) serves as the main source of recruitment into that organization. The YSA is described in the masthead of its official publication, "The Young Socialist Organizer," as "A multi-national revolutionary socialist youth organization."
+
+The SWP has been designated pursuant to Executive Order 10450.
+
+CONFIDENTIAL
+
+<table><tr><td>GROUP 1</td></tr><tr><td>Excluded from automatic downgrading and declassification</td></tr></table>
+
+EXCLUSION
+
+NWW 88321 DocId:32989545 Page 116

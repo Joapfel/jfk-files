@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_24618.png
+
+Convert to MarkdownIn the summer of 1960, there was a great deal of concern at the highest levels in the United States government about the role of Patrice Lumumba in the Congo.* Lumumba, who served briefly as Premier of the newly independent nation, was viewed with alarm by United States foreign policymakers because of what they perceived as his magnetic public appeal and his leanings toward the Soviet Union.
+
+Under the leadership of Lumumba and the new President, Joseph Kasavubu, the Congo declared its independence from Belgium on June 30, 1960. In the turbulent month that followed, Lumumba threatened to invite Soviet troops to hasten the withdrawal of Belgian armed forces. The United Nations Security Council requested a Belgian withdrawal and dispatched a neutral force to the Congo to preserve order. In late July, Lumumba visited Washington and received pledges of economic aid from Secretary of State Christian Herter. At the beginning of September, Soviet airplanes, trucks, and technicians were arriving in the province where Lumumba's support was strongest.
+
+By mid-September, Lumumba sought protection from the UN guard in Leopoldville after losing a struggle over the leadership of the government with Kasavubu and Joseph Mobutu, Chief of Staff of the Congolese armed forces. In early December, Mobutu's troops captured Lumumba while he was traveling toward his stronghold at
+
+* Since the period in which the events under examination occurred, the names of many geographical units and governmental institutions have changed. For instance, the nation formerly known as the Republic of the Congo is now the Republic of Zaire and the present capital city, Kinshasa, was known then as Leopoldville. For the sake of clarity in dealing with many of the documents involved in this section, the names used in this report are those which applied in the early 1960's, contemporaneously with the events under consideration.

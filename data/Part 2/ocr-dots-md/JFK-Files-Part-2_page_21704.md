@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_21704.png
+
+Convert to MarkdownTOP SECRET
+
+Mr. Baron. But that would be the person primarily responsible for taking care of this double agent problem?
+
+Mr. Hunt. That's correct.
+
+Mr. Baron. Are you aware of what happened with that suspected double agent?
+
+Mr. Hunt. I have no idea because, as I may have indicated previously off the record, it became apparent some years later that the unfortunate fate of our Albanian agents was linked far more closely to the revelations of Kim Philby, the Soviet agent who was in direct liaison with us in Washington and in Great Britain, rather than any penetration, although the possibility of a penetration was of course always there. But I don't think that anybody was ever focused.
+
+Again, I left for Latin American affairs. I left the Division about that time and I really never heard about it again. Doug Blaufarb, the Albanian chief, departed for Southeast Asia, and the whole sort of complex of knowledgeable people was broken up through normal transfers and special activities like the Guatemala project.
+
+Mr. Baron. Was Doug Blaufarb knowledgeable about your approach to Colonel Pash?
+
+Mr. Hunt. Very likely he was, yes. I don't think I would have discussed anything with Colonel Pash about the matter without talking to Doug about it.
+
+Mr. Baron. Who else would have known that you approached
+
+HW 50955 DocId:32202418 Page 9
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

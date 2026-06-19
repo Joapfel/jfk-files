@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_21882.png
+
+Convert to Markdown(a) (O'Donnell's Operations in the Congo
+
+(i) Tweedy and the Chief of Station Agreed That a Senior Case Officer Should be Sent to the Congo to Concentrate on the Assassination Operation
+
+In early October, 1960, several cables sent in the specially restricted PROP channel dealt with a plan to send a "senior case officer" to the Congo to aid the Chief of Station with the assassination operation.* On October 7, Bronson Tweedy informed Hedgman that he "WOULD EXPECT DISPATCH TDY [TEMPORARY DUTY] SENIOR CASE OFFICER RUN THIS OP" by supervising a third country national operative (CIA Cable (OUT 78336), Tweedy to Chief of Station, 10/7/60). On October 15, Tweedy requested Hedgman's reaction to the suggestion of dispatching the senior case officer as soon as possible to concentrate on the assassination operation (CIA Cable (OUT 81396), Tweedy to Chief of Station, 10/15/60). Two days later, the Chief of Station replied affirmatively:
+
+BELIEVE EARLY ASSIGNMENT SENIOR CASE OFFICER
+HANDLE PROP OPS EXCELLENT IDEA. (CIA Cable
+(IN 28936), (Chief of) Station to Tweedy).
+
+The Chief of Station advised that his responsibilities for "MULTIPLE OPS" had restricted the amount of time he was able to devote to the assassination operation (CIA Cable, 10/17/60).
+
+* See Section 4(e), supra, for full treatment of these cables.

@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_22904.png
+
+Convert to Markdown106000030561
+
+760000130561
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+22 clear that we are working at a highly intensified pace in order to get the necessary evidence, and then there is no reason why we can't address ourselves to this question.
+
+Senator Hart of Michigan. The only reason that I raise that is that I am as anxious to conclude this chapter, but this Committee, as a Committee, then must decide the ultimate question: do you have open hearings? Do you go to a closed Senate?
+
+The Chairman. That will be a top item of consideration for the Committee. I have only deferred this discussion thinking that we had best get all of the evidence first. That is all. Then we will take it up at an appropriate time and discuss it.
+
+Senator Baker. Mr. Chairman, do I understand the situation to be then it is your hope that we will finish our Executive Session testimony before the August recess, but not a report to the Senate?
+
+The Chairman. No, that is not my position. My position is that we should complete the testimony and make our report and recommendation on this issue.
+
+Senator Baker. But without prejudice to a future determination of whether we have public hearings?
+
+The Chairman. Oh, yes, that's always open to us. But I -- let me make it -- let's not have any misunderstanding there.
+
+It is always open to this Committee to decide whether public hearings on this or any other issue should be arranged in
+
+TOP SECRET
+
+Phone (Area 202) 544-6000
+
+HW 90933
+
+Page 122

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_23275.png
+
+Convert to Markdown# TOP SECRET
+
+2
+
+## PROCEEDINGS
+
+The Chairman. We will come back into order.
+
+Mr. Goodwin, would you please take the oath?
+
+Do you swear that all the testimony you are about to give in this proceeding will be the truth, the whole truth, and nothing but the truth, so help you God?
+
+Mr. Goodwin. I do.
+
+The Chairman. I am given to understand that there has been some problem in connection with your appearance here today and that there are some notes that you have that you feel you need for purposes of your testimony which you have not brought with you. Is that the case?
+
+Mr. Goodwin. Yes, I think they might be helpful. They have been in storage for several years and I just had no access to them. I have to go get them out of the storage. They were notes -- my files and everything have been in storage for several years. I've had no access to them. And they consist of the files that I brought from the White House with me.
+
+The Chairman. Have you been interviewed by members of the staff and shown certain documents that the staff believes will be pertinent to your testimony?
+
+Mr. Goodwin. I have been shown documents connected with the Dominican Republic and the assassination of Trujillo today.
+
+The Chairman. And do you believe that you are prepared today to give us testimony relating to Mr. Trujillo or do you
+
+TOP SECRET
+
+6115007

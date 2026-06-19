@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_23537.png
+
+Convert to MarkdownSECRET
+
+indigenous revolutionary movements. We cannot meet such a threat effectively -- well-organised as it is -- when our overseas operations are so diffuse and uncoordinated as they are today. The aid program, the political bureaus of State, the USA, educational exchange, CIA activities all go, to too great an extent, their own way under separate hoods and often in pursuit of separate goals. I believe that resulting diffusion of effort, results in great waste of resources and intelligence. We must organize our non-military overseas operation to reflect our basic objective in Latin America -- the strengthening of democratic Western-oriented nations and governments so that they have the capacity to resist communist attack in all its forms. Those who are charged with the responsibility for achieving this objective must have control over the instruments which our government provides. Just as we have seen the need for some centralization of command in fighting hot wars -- it is needed for effectively waging a cold war. This does not necessarily mean a "Chief of Hemisphere Operations"; but if the very least it means that, within each key country there must be a central operational capacity and authority cloth direct lines to the levels of action in Washington.
+
+SECRET
+
+HW 50955 DocId:32423505 Page 15

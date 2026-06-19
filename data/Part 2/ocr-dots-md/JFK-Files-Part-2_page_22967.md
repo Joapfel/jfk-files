@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_22967.png
+
+Convert to MarkdownTOP SECRET
+
+13
+
+Mr. Halley. Right. You know, the chronology of the Chiefs of our Task Force were that it was Harvey, then FitzGerald, then Screber, after that, Hart. I served with all four of those This was a very active period, you know, with precision, I cannot outline for you today the dates when Harvey left and FitzGerald took over, you know, when FitzGerald left and Screber took over and so forth. This is something that I would have to research to give you the precise dates.
+
+Mr. Baron. What was the substance of this meeting that they had in which the President was present?
+
+Mr. Halley. This was a general review of activities that were being conducted against Cuba.
+
+Mr. Baron. Was there any mention of any assassination effort at that meeting?
+
+Mr. Halley. No, there was not.
+
+Mr. Baron. You were attending at that point in connection with the survey you conducted?
+
+Mr. Halley. No. I was attending at that point as the Station Chief from Miami in order to make a contribution to the issues that were being discussed, to the fact that detailed, substantive back-up for whatever questions might be put to the Agency spokesmen. I made reference to that because you asked me if I knew the relationship between Mr. McCone and this three-man group. I said no, on a day-to-day basis I did not know the relationship, but that there were meetings that were
+
+760039410 First Street, S.E., Washington, D.C. 20003
+
+TOP SECRET

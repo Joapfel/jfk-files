@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_24530.png
+
+Convert to Markdownto Helms a month prior to Harvey's trip to meet Roselli in Miami. Pursuant to the discussion at the Special Group's meeting on March 5, Helms was asked to estimate "for each week as far into the next twelve months as possible . . . the members and type of agents you will establish inside Cuba . . . (and) brief descriptions . . . of actions contemplated." (Memo to Helms from Lansdale, March 5, 1962)
+
+Moreover, the approved plan for Operation Mongoose, as of
+the time of Harvey's meeting with Roselli in Miami required that any
+proposal to supply arms and equipment to particular resistance
+groups inside Cuba "be submitted to the Special Group for decision,
+ad hoc." (Lansdale Memo to ____________, April 11, 1962, p. ).
+And the Guidelines for the Mongoose program emphasized that, after specific
+tasks were approved by the Special Group Augmented and given to participating
+agencies by Lansdale, normal command channels were to be observed. As the
+Guidelines stated:
+
+During this period, General Lansdale will continue
+as Chief of Operations, calling directly on the
+participating departments and agencies for support
+and implementation of agreed tasks. The heads of
+these departments and agencies are responsible for
+performance through normal command channels to
+higher authority.* / (Guideline for Operation Mon-
+goose, March 14, 1962, p.2)
+
+* The initial draft of these Guidelines had referred to the President but was later amended to read "higher authority." (Draft Guidelines, March 5, 1962, p.2) The minutes of the consideration of these Guidelines were also amended with respect to the manner in which the Guidelines were approved.
+
+On March 16, 1962, a Memorandum for Record of "Discussion of Operation Mongoose with the President" of the Special Group (Augmented) stated:
+
+"In the presence of the Special Group (Augmented)
+the President was given a progress report on Operation MON-
+GOOSE. The guidelines dated March 14, 1962 were circulated
+and were used as the basis of the discussion. After a
+prolonged consideration of the visibility, noise level and
+risks entailed, General Lansdale and the Special Group (Aug-
+mented) were given tacit authorization to proceed in accordance
+with the guidelines."
+
+(footnote cont'd.)

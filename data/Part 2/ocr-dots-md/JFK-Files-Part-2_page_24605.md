@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_24605.png
+
+Convert to Markdownthat he believed Castro's assassination was within the scope of the CIA's authority. /(Helms, 9/12/75, pp. 11-12)/ As in the case of the 1962 plots, Helms based this on the vigor of the Administration's policy towards Cuba /and his perception that there were no limits put on the means that could be used in the effort against Castro. (Helms, 9/12/75, pp. 11-12). Thus, Helms testified that after the missile crisis the U.S. continued to conduct covert actions whose purpose was "to overthrow Castro." (Helms, 6/13/75, p. 24.) /Helms was asked whether it was his opinion that the offer of the poison pen to AM/LASH was authorized because it came within the scope of the 1963 program against Castro. Helms responded:
+
+/"I think the only way I know how to answer that is that I do not recall when things got cranked up in 1963 any dramatic changes or limitations being put on this operation. There was still an effort by whatever device, and perhaps only slightly differently oriented at this time, to try to get rid of Castro...But I do not recall specific things being said, now, (we are not) going to do this, we're not going to do that, and we're not going to do the other thing, and we will do just these things."/
+
+(b) Testimony of Administration Officials
+
+As with the Mongoose period, the Administration officials agreed that they were not informed about any assassination plot and that there was no order that Castro be assassinated. Again, they disagreed with Helms' position that an assassination plot could be undertaken without express authority. The only added part relating to the AM/LASH plot was certain testimony which asserted that it was inconceivable that the President would have approved an assassination plot at the very same time he had authorized talks to explore the possibility of improved relations with Castro.*
+
+*/Rusk testified that "I find it extraordinarily difficult to believe" and that "I just can't conceive" President Kennedy would have authorized the passage of an assassination device for use against Castro while Atwood was exploring the possibility
+
+TOP SECRET
+
+HW 50955 DocId:32423539 Page 235

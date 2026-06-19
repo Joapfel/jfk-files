@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_23440.png
+
+Convert to Markdown# TOP SECRET
+
+## Issues and Questions
+
+**1960 (cont'd)**
+
+September 8
+During brief discussion of CONGO developments, "GRAY said that he hoped that Agency people in the field are fully aware of the top-level feeling in Washington that _vigorous action_ would not be amiss." (SG Minutes; emphasis added)
+
+Against LUMUMBA personally?
+
+September 21
+Allen DULLES stated at an NSC meeting that "LUMUMBA was not disposed of and remained a great danger as long as he was not disposed _of._" (NSC Minutes)
+
+Did the NSC contemplate "disposing of" LUMUMBA by assassination?
+
+October 24
+At an NSC meeting, Allen DULLES reported that "five Congolese soldiers had attempted to assassinate MOBUTO on the 15th of October. The U.S. had prior information of this attempt and had warned MOBUTO . . . (NSC Minutes)
+
+Did this information prompt the U.S. to plot the assassination of LUMUMBA in retaliation or to protect MOBUTO?
+
+November 3
+At a Special Group meeting, Mr. MERCHANT "asked whether any real planning has been done in taking direct positive action against FIDEL, RAUL and CHE GUEVARA. He said that without these three the Cuban government would be leaderless and probably brainless. He conceded that it would be necessary to act against all three simultaneously."
+
+The minutes further state: "General CABELL pointed out that action of this kind _is_ uncertain of results and highly dangerous _in conception and execution_, because the _instruments must be Cuban_. He felt that, particularly because of the necessity of simultaneous action, it would have to be concluded that Mr. MERCHANT'S suggestion is beyond our capabilities." (SG Minutes)
+
+Was MERCHANT referring to an assassination of Cuban leaders?
+
+Shortly before this, CIA had made the assassination contract with the Mafia. Was General CABELL unaware of this CIA contract? Was General CABELL expressing a traditional CIA objection to assassination proposals? If so, on what other occasion did Mr. GRAY hear the CIA objection?

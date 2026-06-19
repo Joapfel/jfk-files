@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_21209.png
+
+Convert to Markdown(It is noted that [SHAMROCK] described SHAKHOV as an agent rather than an officer of KGB.)
+
+TOP SECRET
+
+COMMENT:
+
+NOSENKO was interviewed concerning SHAKHOV on February 24, 1968, (N-108), and related that he was a diplomat in the Ministry of Foreign Affairs from the 1930's and before that had worked for the Young Communist League in Leningrad. In the 1940's he had worked for the Soviet "Embassy" in the USA and was an FCD agent with the code name "RICHARD". In the 1950's KGB stopped work with him as an agent and put his file in the archives. He participated in many meetings and conferences relating to disarmament. In the late 1950's KGB started a "checking file" on him because he was suspected of connections with American Intelligence and there was a "signal" indicating a connection with the American diplomat [MARK.] (S) Because of these suspicions, in 1962 a plan was prepared to check him and NOSENKO was sent to Geneva as security. [SM]
+
+TOP SECRET
+
+166
+
+HW 50953 DocId:32318825 Page 95

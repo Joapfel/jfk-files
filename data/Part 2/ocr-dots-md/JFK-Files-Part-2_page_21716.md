@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_21716.png
+
+Convert to Markdown# TOP SECRET
+
+End 1st, b. PA
+
+It would be about '57 or '58, and I had dinner in his home in Taipei, and I'm quite sure I said at that time, whatever happened to Boris Pash, or what do you hear from Boris?
+
+Now he was a rather unusual individual to say the least, and I don't think he was dead. I don't know who told me that Boris, that Pash died, but whatever he said, it was, well, he was okay the last time I saw him and that was the last time we ever discussed it.
+
+Mr. Baron. And you didn't discuss this request?
+
+Mr. Hunt. No.
+
+Mr. Baron. Where did you receive the impression that Colonel Pash was dead?
+
+Mr. Hunt. I guess when, either from reading the Lawrence and Oppenheimer book or from the newspapers, from the Crewdson story. I don't think at the first level when I began recalling the story, I don't think I was aware that Boris Pash was dead.
+
+Mr. Baron. In the Crewdson story there is an allusion to the fact that Colonel Pash is probably dead.
+
+Are you saying that that came from Crewdson's research and not from yourself?
+
+Mr. Hunt. Oh, yes, that came from Crewdson's research, not mine.
+
+Mr. Baron. This is more than a minor note on the record, Colonel Bash is not dead.
+
+Mr. Hunt. Oh, good, I thought he was dead.
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NHW 50955 DocId:32202418 Page 21

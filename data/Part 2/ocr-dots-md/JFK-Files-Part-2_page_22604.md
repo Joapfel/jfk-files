@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_22604.png
+
+Convert to MarkdownTOP SECRET
+
+which was known as Plan Hope, which is simply putting the Italians in an airplane and having them fly over to the Roumanian border and make very primitive photographs of the whole region.
+
+And I was sent back to the Air Force. And then I had code operations, embassy penetrations, and so on.
+
+So, in advance the resuscitation of the Italian service, Army and Navy, Air Force, and the Minister of the Interior, was American rehabilitation. And I am not going to go into the details of the political situation. There was the civil war in Greece, and the revival of the international Brigade and in fact the Soviets had built up, when they were not fighting the war, in the post-war period, assassinations, and instability.
+
+And throughout this we had very close supervision from Mr. Murphy, and General Donovan. And we had special interest in the Vatican, and what was happening in Berlin behind the Curtain.
+
+And the then acting Secretary of State for the Vatican, Montini, who is the present Pope. And so there was much to do through our channels, and General Donovan, with Montini, the Pope, who is now the Pope, one of the basic problems was the cold war. We did not buy the cold war, it came to us and we worked with the Germans, and as we broke down the opposition, we began to find that we were not getting the
+
+TOP SECRET
+
+76031414117603141411
+
+HARO & PAUL
+
+410 Forti Street, S.E., Washington, D.C. 20003
+
+HW 05G09995 Social:52420995 Page 10

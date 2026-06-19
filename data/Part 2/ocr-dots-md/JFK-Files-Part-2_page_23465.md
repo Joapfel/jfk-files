@@ -1,0 +1,141 @@
+# JFK-Files-Part-2_page_23465.png
+
+Convert to MarkdownSECRET - EYES ONLY
+
+25 August 1960
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Minutes of Special Group Meeting, 25 August 1960
+
+PRESENT: Messrs. Merchant, Gray, Irwin, Dulles
+
+1. Congo
+
+Mr. Parrott outlined broadly three (or as Mr. Dulles later described them "2 1/2") operational lines that we are following in mounting an anti-Lumumba campaign in the Congo. These included: operations through the chief advisor of the Christian Trade Unions; the planned attempt of a Socialist labor Senator to arrange a vote of no confidence in Lumumba; and a brand new contact with an alleged leader of certain independent labor groups. He emphasized that the latter had just come up and that we are now in the process of assessing the bona fides and capabilities of the individual.
+
+The Group agreed that the action contemplated is very much in order. Mr. Gray commented, however, that his associates had expressed extremely strong feelings on the necessity for very straightforward action in this situation, and he wondered whether the plans as outlined were sufficient to accomplish this. Mr. Dulles replied that he had taken the comments referred to seriously and had every intention of proceeding as vigorously as the situation permits or requires, but added that he must necessarily put himself in a position of interpreting instructions of this kind within the bounds of necessity and capability. It was finally agreed that planning for the Congo would not necessarily rule out "consideration" of any particular kind of activity which might contribute to getting rid of Lumumba.
+
+Mr. Irwin commented that certain individuals in Defense have given thought to the possibility of using high officials of the Catholic Church in Africa to promote the general objectives of the West. In this connection, he cited a preliminary assessment which had been made of the Negro Cardinal recently appointed by the Pope - the assessment being that the individual in question is a man of not
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER NO. 220
+-DO NOT DESTROY-
+
+SECRET - EYES ONLY
+
+PROPERTY OF
+THE WHITE HOUSE OFFICE
+
+C87100
+
+HW 50955 DocId:32423488 Page 38
+
+SECRET - EYES ONLY
+
+E3
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER NO. 220
+
+—DO NOT DESTROY—
+
+C87100
+
+SECRET - EYES ONLY
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER NO. 220
+
+—DO NOT DESTROY—
+
+C87100
+
+SECRET - EYES ONLY
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER NO. 220
+
+—DO NOT DESTROY—
+
+C87100
+
+SECRET - EYES ONLY
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER NO. 220
+
+—DO NOT DESTROY—
+
+C87100
+
+SECRET - EYES ONLY
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER NO. 220
+
+—DO NOT DESTROY—
+
+C87100
+
+SECRET - EYES ONLY
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER NO. 220
+
+—DO NOT DESTROY—
+
+C87100
+
+SECRET - EYES ONLY
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER NO. 220
+
+—DO NOT DESTROY—
+
+C87100
+
+SECRET - EYES ONLY
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER NO. 220
+
+—DO NOT DESTROY—
+
+C87100
+
+SECRET - EYES ONLY
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER NO. 220
+
+—DO NOT DESTROY—
+
+C87100
+
+SECRET - EYES ONLY
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER NO. 220
+
+—DO NOT DESTROY—
+
+C87100
+
+SECRET - EYES ONLY
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER NO. 220
+
+—DO NOT DESTROY—
+
+C87100
+
+SECRET - EYES ONLY
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER NO. 220
+
+—DO NOT DESTROY—
+
+C87100
+
+SECRET - EYES ONLY
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER NO. 220
+
+—DO NOT DESTROY—
+
+C87100
+
+SECRET - EYES ONLY
+
+THIS DOCUMENT IS A SOURCE IN CASE IN ON HISTORICAL PAPER

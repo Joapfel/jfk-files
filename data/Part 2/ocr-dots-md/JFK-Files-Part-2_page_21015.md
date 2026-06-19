@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_21015.png
+
+Convert to MarkdownMM 97-300
+
+SECRET
+
+The interviews appearing in this report with MARCOS PEREZ JIMENEZ, Dr. CARLOS SISO, and the subject, appear on SF 64s and FD 302s in original form in Miami case file 7-475, captioned: "UNSUBS; MARCOS PEREZ JIMENEZ - VICTIM; KIDNAPPING - CONSPIRACY (Buffer 7-9452).
+
+INFORMANTS
+
+IDENTITY
+
+LOCATION OF ORIGINAL INFORMATION
+
+MM T-1 is [CIA, Havana, information contained in Butel to Miami dated October 9, 1959] (14) 7-475-9
+
+(mm T-2 is [ANA ROSA GUERRA] (e) admitted CIA informant in Havana, [who works in the office of ALBERTO BAYO, JR., Director, Air Fumigation, Havana] (e)) Instant report, page 7.
+
+mm T-3 is JANET SUMMERS, District Manager's Clerk, Southern Bell Telephone and Telegraph Company, Miami Beach, Florida (nature of information) Instant report, page 12.
+
+Careful consideration has been given to each source concealed in this report, and they were con- cealed only in those instances where identities must be concealed.
+
+C*
+
+- COVER PAGE -
+
+SECRET

@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_19854.png
+
+Convert to MarkdownCONFIDENTIAL
+
+WFO 100-55420
+
+1. That a telegram be sent to the New York State Court of Appeals and New York Governor NELSON A. ROCKEFELLER, condemning the court's February 10, 1972, decision denying women on Medicaid the right to abortions on demand.
+
+2. That the coalition continue to organize black, Puerto Rican, Chicano, native American and Asian American participation in their activities.
+
+3. That members of local coalitions confront candidates for office and force them to take a stand on abortion, and that they publicize those who oppose abortion so that the voters can see where these politicians stand.
+
+4. That the coalition make a special effort to reach out to and involve "gay" women in their activities.
+
+(WF T-1, 2/14/72)
+
+YSA and SWP members of WONAC felt the conference to be a success in that opposition proposals submitted were turned down in favor of those proposals backed by the YSA-SWP women.
+
+(WF T-1, 2/14/72)
+
+CONFIDENTIAL
+
+8*

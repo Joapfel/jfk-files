@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_20240.png
+
+Convert to MarkdownFBI
+
+Date: 1/8/68
+
+Transmit the following in
+
+(Type in plaintext or code)
+
+Via AIRTEL AIR MAIL
+(Priority)
+
+TO: DIRECTOR, FBI,
+
+FROM: SAC, LOS ANGELES (100-70701)(P)
+
+RE: DEMONSTRATION PROTESTING UNITED STATES POLICY IN VIET NAM
+WASHINGTON, D. C.
+1/15/68
+INFORMATION CONCERNING (INTERNAL SECURITY)
+OO: WASHINGTON FIELD OFFICE
+
+Re Los Angeles airtel and letterhead memoranda (LHM) dated 12/12/67 and 12/30/67, captioned as above.
+
+For the information of the Bureau there are attached eleven copies of an LHM, with one copy each for the information of the Washington Field and San Francisco Divisions. Instant LHM contains all data currently available in the Los Angeles Division regarding the formation and plans of the Jeannette Rankin Brigade: (JRS).
+
+Instant LHM has been classified "Confidential - Group I," to protect Source One. INFORMANT is a currently active symbol numbered informant of continuing value.
+
+Because of her political position, no attempt has been made to characterize California Assemblywoman YVONNE BRATHWAITE in the details of instant LHM; however, for the Bureau's own information, it is pointed out that
+
+3 Bureau (Enc. 11) (RM) (AM)
+1 - San Francisco (100-59302) (Enc. 1) (RM) (AM)
+1 - Washington Field (100-47173) (Enc. 1) (RM) (AM)
+1 - Los Angeles
+
+GGB/lhk
+(6)
+
+20 JAN 13 1968
+
+AGENCY: G-2, OMI, OSI
+
+DATE FOR: 1-19-68
+HOW FOR: LHS
+BY: W.S. Hall
+
+Approved:
+C. O. Bishop
+G-3
+
+Sent: Muni M Per:
+
+NW 88321, DocId:32989545, Page 82, Ent in Charge
+933 4x4L +K

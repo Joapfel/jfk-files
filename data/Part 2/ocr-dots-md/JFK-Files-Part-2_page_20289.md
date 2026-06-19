@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_20289.png
+
+Convert to MarkdownTO
+
+CONFIDENTIAL
+
+JEANNETTE RANKIN BRIGADE
+
+FROM: C. D.
+
+SUBJECT: Participants in the demonstration will include Frances Bordofsky, a member of the New York District Committee, Communist Party, USA; Sylvia Thompson, a member of the Communist Party's New York County Committee; Rosalind Durham, Communist Party member in the State of Illinois; and Linda Corr, Taimi Halonen, and Thorun Robel, Communist Party members in the State of Washington.
+
+Sources have reported that buses have been chartered to transport demonstrators from Cleveland, Ohio; Newark, New Jersey; New York, New York; and Philadelphia, Pennsylvania. These buses are in addition to a special train of approximately 20 cars which is to transport participants from New York to Washington, D. C. Three coaches will also be added to a regularly scheduled train at Philadelphia. In addition to the on January Demonstrations in support of the Brigade's demonstration in Washington, D. C., are being planned for Chicago and St. Louis. In Chicago, the Women for Peace, a pacifist group, will hold a demonstration January 15, 1968, from 12 noon to 1 p.m. at the Federal Building, Chicago, Illinois. This demonstration will urge Congress to stop the war in Vietnam and to work on human needs in the United States. The participating women have been asked to wear black clothing. Mourning veils will be furnished them at the demonstration. Request to meet with Speaker of the House, John McOuismack and Senator Michael J.MSC> Mansfield on the steps of the Capitol is scheduled to be held on the steps of the St. Louis County Courthouse, Clayton, Missouri, on January 15, 1968, from 12 noon to 1 p.m.
+
+NOTE:
+
+Classified "Confidential" as some of the information included in this summary comes from sensitive sources, there is compromise of which would be detrimental to the U. S.
+
+Xerox copies being sent to Mrs. Mildred Stegall, the White House; the Vice President; the Secretary of State; the Secretary of Defense; Director of the Central Intelligence Agency; United States Secret Service; the Attorney General; the Deputy Attorney General; and Assistant Attorneys General J. Walter Yeagley, Stephen J. Pollak and Red M. Vinson, Jr.
+
+CONFIDENTIAL
+
+See memorandum C.D. Brennan to W.C. Sullivan dated 1/12/68 captioned as above as prepared by RHH:jav.

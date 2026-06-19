@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_21761.png
+
+Convert to Markdown# TOP SECRET
+## SENSITIVE
+
+H. TV intrusion
+
+**Status:** Equipment to enable TV intrusion of Havana TV broadcasts has been reactivated on a small vessel under CIA control. CIA plans to attempt intrusion on 22 January during Castro's forthcoming speech and parade demonstrations.
+
+I. Special sabotage support
+
+**Status:** State has explored, with negative results, the feasibility of pre-emptive action with respect to tanker charters (most Bloc shipments to Cuba are carried in Western bottoms). CIA has initiated action to contaminate POL supplies for Cuba, although visible results (stoppage of some Cuban transport) is not expected until mid-1962. CIA is introducing "Lubzol," a corrosive additive, to Cuban locomotive diesel fuel oil through commercial suppliers in Belgium. It will be 4 months before the first locomotives breakdown. CIA expects to be able to have at least one agent recruited by 28 February to attempt introduction of a corrosive additive to jet fuel storage tanks in Cuba.
+
+J. Military actions
+
+**Status:** Defense has been tasked with preparing a contingency plan for U.S. military action, in case the Cuban people request U.S. help when their revolt starts making headway. This contingency plan will permit obtaining a policy decision on the major point of U.S. intentions, and is looked upon as a positive political-psychological factor in a people's revolt, even more than as a possible military action. Defense also has been tasked with fully assisting State and CIA, as commitments of Defense men, money, and materiel are required.
+
+K. Major elements of the population
+
+**Status:** Both State and CIA are continuing to explore their capabilities (with results largely negative to date) for mounting special group operations inside Cuba focused upon dynamic elements of the population, particularly operations through the Church to reach the women and families, and through Labor contacts to reach the workers. Other elements include enlistment of the youth and professional groupings. Special consideration is to be given to doing this through Latin American operational contacts. This is vital to the success of our political action nucleus when CIA can put it into place.
+
+L. Outlook
+
+**Status:** As reported to the Special Group last week, there has been a period of a realistic second look at CIA capabilities to mount the required clandestine operations against Cuba, and a subsequent start in "tooling up." After this second look, CIA has concluded that its realistic role should be to create at least the illusion of a popular movement, to win external support for it, to improve CIA operational capability, and to help create a climate which will permit provocative actions in support of a shift to overt action. This outlook, although arrived at thoughtfully within CIA, is far short of the Cuba project's goals. CIA must take yet another hard look at its potential capabilities, in the light of the following tasking, to determine if it cannot make the greater effort required.
+
+4
+
+SENSITIVE
+
+TOP SECRET
+
+HW 50955 DocId:32202426 Page #

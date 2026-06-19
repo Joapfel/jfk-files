@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_24674.png
+
+Convert to Markdownto make his opposition to assassinating Lumumba a matter of record (O'Donnell, 9/11/75, pp. 44-45):
+
+[In the Agency, since you don't have documents, you have to be awfully canny and you have to get things on record, and I went into Mr. Helms' office, and I said, Dick, here is what Mr. Bissell proposed to me, and I told him that I would under no conditions do it, and Helms said you're absolutely right. (O'Donnell, 6/9/75, pp. 15-16).
+
+Richard Helms testified that it was "likely" that he had such a conversation with O'Donnell and he assumed that O'Donnell's version of their conversation was correct (Helms, 9/16/75, pp. 22-23).*
+
+William Harvey testified that O'Donnell had informed him about the conversations with Bissell:
+
+Mr. O'Donnell came to me and said that he had been approached by Richard Bissell ... to undertake an operation in the Congo, one of the objectives of which was the elimination of Patrice Lumumba. He also told me that he had declined to undertake this assignment. (Harvey, 6/25/75, p. 9.)
+
+Harvey said that in a later conversation with Bissell, Bissell told him that he had asked O'Donnell to undertake such an operation (Harvey, 6/25/75, p. 9).
+
+O'Donnell said that within forty-eight hours of his second discussion with Bissell, he departed for the Congo (O'Donnell, 9/11/75, pp. 45-46).
+
+* Helms testified that he did not follow-up on this conversation in any way. He did not recall why O'Donnell had gone to the Congo or what his mission was (Helms, 9/16/75, pp. 32-33).

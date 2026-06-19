@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_23116.png
+
+Convert to MarkdownNWP:59510
+
+TOP SECRET
+
+BECUTTVE SESSION
+
+Thursday, May 6, 1976
+
+United States Senate,
+Select Committee to Study Governmental
+Operations with Respect to
+Intelligence Activities,
+Washington, D. C.
+
+The Committee met, pursuant to notice, at 2:40 o'clock P.M., in Room 608, the Carroll Arms Hotel, the Honorable Richard S. Schweiker presiding.
+
+Present: Senator Schweiker (presiding).
+
+Also present: Jim Johnston and Paul Wallach, Professional Staff Members.
+
+Do not fold, cut or毁之。

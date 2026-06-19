@@ -1,0 +1,88 @@
+# JFK-Files-Part-2_page_23064.png
+
+Convert to MarkdownTOP SECRET
+
+1 Mr. Baron. Which was released recently by George McGovern, to whom Castro had sent this report.
+
+2
+
+3 Mr. Halley, is it true that I had asked you to review this
+report before we began our session today?
+
+4
+
+5 Mr. Halley. Yes, you did, you did ask me to look at the
+report.
+
+6
+
+7 Mr. Baron. Can you point to any names or incidents in
+this report that are connected in any way in your mind to
+actual assassination attempts against Cuba-- Castro?
+
+8
+
+9
+
+10 Mr. Halley. No, I cannot point to any names that in my
+mind are attached to an assassination attempt against Castro.
+You asked me to look at this originally to see if any of the
+names were familiar to me in any way. I made a list of some
+of the names that rang a bell with me, for various reasons.
+
+11
+
+12
+
+13
+
+14
+
+One name is Humberto Sori Marin. I recall that he was active, he was active with the DRE.
+
+15
+
+16
+
+17 Mr. Baron. At what page is that?
+
+18
+
+Mr. Halley. There is no page number.
+
+19
+
+For instance, here's a name, Humberto Sori Marin. That is
+familiar to me. I do not know whether that was from the
+reporting showing that he was in prison, you know, we constantly
+got reporting on, or why, it is a name that I recognize in the
+counterrevolutionary sense, that it is something that crossed
+my desk, to see the name.
+
+20
+
+21
+
+22
+
+23
+
+24
+
+All right. The other name that is familiar is Tony Varona.
+
+25
+
+TOP SECRET
+
+Phone (Area 202) 544-6000
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW SSSS Social Security Page 156
+
+# TOP SECRET
+
+111

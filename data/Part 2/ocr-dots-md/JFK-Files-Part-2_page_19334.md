@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_19334.png
+
+Convert to MarkdownLA 100-70701
+
+LA 4490-S has revealed in the past that members of both the Women Strike for Peace (WSP) and the Women for Legislative Action (WLA) were very active in the political campaigning for her which resulted in her election.
+
+The LAPD and the LACSO are cognizant of changes in time schedule for local JRB action. Information copies of this LHM are being furnished the U. S. Attorney and Secret Service, Los Angeles; Region II, U. S. Army, Pasadena; Office of Special Investigations, Norton Air Force Base; Naval Investigative Service Office, San Diego, California. Coverage is continuing.
+
+Exact dates and locations of the subcommittee meetings of the JRB have not been detailed in instant LHM to further protect Source One, as some of these meetings were attended by small numbers of persons which could aid in pinpointing this valuable Security Informant.
+
+The Bureau and Washington Field will be advised promptly if the identities of any additional persons from the Southern California area traveling to Washington, D. C., become known.

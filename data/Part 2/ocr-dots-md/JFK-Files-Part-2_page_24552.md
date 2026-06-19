@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_24552.png
+
+Convert to Markdownthe Special Group, April 19, 1962, from Lansdale, p. ____). On April 26, 1962, the Special Group Augmented was informed by Lansdale that Harvey was in Florida "initiating a new series of agent infiltrations" and would return to Washington on April 30. (Memorandum for the Special Group /Augmented/, April 26, 1962, from Lansdale.) At the Special Group meeting on the same day General Taylor requested that Harvey "attend the next meeting and report on agent activities." (Memorandum for the Record, April 26, 1962, by McCone.) The next day, April 26, 1962, Harvey was sent a memorandum informing him of General Taylor's request as well as the fact that McCone wanted to meet with Harvey and Lansdale "immediately on your return to discuss the Task Force activities," (Memorandum for Action, Elder to Harvey, April 27, 1962.)
+
+Harvey did report to the Special Group upon his return but did not mention his meeting with Roselli or the delivery of the pills and the weapons.
+
+Harvey testified that when he reported to the Special Group Augmented on his trip to Miami, he did not inform them or, indeed, any individual outside the Agency, that he had given the pills to Roselli. (Harvey, 7/11, p. 16.)* And when McCone asked Harvey to brief him on what Harvey had done in Miami, Harvey did not tell McCone of the pills. As indicated above, Harvey did not believe it was necessary to do so. (Harvey, 7/11, p. 17.)*
+
+* Harvey testified with respect to why he did not brief the Special Group Augmented, in the following exchange:
+
+"Q.: '...Did you believe that the White House did not want the Special Group to know?'"
+
+"A.: 'Well, I would have had no basis for that belief, but I would have felt that if the White House (tasked) this (operation to the CIA) and wanted the Special Group to know about it, it was up to the White House to brief the Special Group and not up to me to brief them, and I would have considered that I would have been very far out of line and would have been subject to severe censure.'*
+
+(Harvey Tr. 7/11, p. 77).

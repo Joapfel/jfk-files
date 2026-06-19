@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_23449.png
+
+Convert to Markdown# Supply Drops - Cuba
+
+Gen. Cabell explained that the Pinar de Rio supply mission had not taken place because of the absence of specified communication from the DZ, and the Escambray operation had been canceled because of weather. He said that these missions are still planned, and assumed that the Group had no objections. The members so signified.
+
+# U-2, Cuba
+
+Gen. Cabell said that the photographic coverage on the first flight had been only about 50%, because of cloud cover. He continued that we are analyzing the exact results on a priority basis and that some time after the middle of next week we should be in a position to make recommendations for the missions required to extend the coverage.
+
+Mr. Gray commented somewhat wryly that this was all right with him since he "would certainly not be available to discuss anything of this kind before the middle of next week." The other members appeared to have the same reaction.
+
+# Policy Consideration Re Cuban Exiles
+
+Mr. Gray said that Assistant Attorney General Yeagley had spoken to him after his meeting with Col. King and Messrs. Esterline and Holman. He had said that the information given to him by the CIA representatives, and the arrangements for future coordination if necessary, were entirely satisfactory to him. He had stated, however, that a problem remains with respect to action the FBI should take; that is, the FBI needs guidance in its handling of Cuban exile groups other than those under the direction of CIA.
+
+The Group agreed that the best way to attack this problem would be to have Mr. Yeagley attend next week's Special Group meeting and discuss the matter at first hand. Mr. Parrott was asked to make arrangements for this.
+
+# Value of Cuba to the USSR as a Base Vis-a-vis
+Cape Canaveral
+
+Mr. Parrott gave Mr. Merchant the gist of the OSI memorandum
+
+SECRET - ENGLISH COPY
+
+PROPERTY OF THE WHITE HOUSE OFFICE
+
+SECRET-ENGLISH COPY
+
+HW 50955 DocId:32423488 Page 22 --

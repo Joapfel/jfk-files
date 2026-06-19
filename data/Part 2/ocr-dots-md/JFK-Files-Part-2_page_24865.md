@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_24865.png
+
+Convert to Markdownwith the columnist, Margurite Higgins, in which Diem asserted that his policy toward the Buddhists had always been conciliatory and asked for harmony and support of the government.
+
+Shortly after midnight on August 21, 1963, Nhu ordered forces loyal to him to attack pagodas throughout Vietnam, arresting monks and sacking the sacred buildings. Over thirty monks were injured and 1,400 arrested. The American Embassy was taken by surprise and viewed the attacks as a shattering repudiation of Diem's promises to Nolting. (Pentagon Papers, p.210)
+
+On August 24, 1963, the State Department sent a cable (Deptel 243) to the new ambassador in Vietnam, Henry Cabot Lodge. The telegram was prepared by Roger Hilsman, Assistant Secretary of State for Far Eastern Affairs, and Under Secretary of State Averell Harriman, and was approved by President Kennedy. (Pentagon Papers, p.235) Deptel 243 told Lodge to press Diem to take "prompt dramatic actions" to redress the grievances of the Buddhists.
+
+"We must at same time also tell key military leaders that US would find it impossible to continue support GVN (Vietnamese Government) militarily and economically unless above steps are taken immediately which we recognize requires removal of the Nhu's from the scene. We wish give Diem reasonable opportunity to remove Nhu's but if he remains obdurate, then we are prepared to accept the obvious implication that we can no longer support Diem. You may also tell appropriate military commanders we will give them direct support in any interim period of breakdown central government mechanism ... Concurrently with above, Ambassador and country teams should urgently examine all possible alternative leadership and make detailed plans as to how we might bring Diem's replacement if this should become necessary ...
+
+* Conein testified that the raids might have been timed to occur when no American Ambassador was in Vietnam (Nolting had left a few days before and his replacement, Lodge, had not yet arrived) (Conein, p.21).

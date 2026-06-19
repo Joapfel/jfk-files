@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_24567.png
+
+Convert to MarkdownGilpatric testified that "it was not unusual" for President Kennedy and Robert Kennedy to deal directly with people at various levels in the Executive Branch. (Gilpatric, p. 58). With respect to Mongoose, Gilpatric said that Robert Kennedy was the "moving spirit" (Gilpatric, p. 11). But Gilpatric stated that Robert Kennedy's role was "primarily to spur us on, to get going, get cracking." (Gilpatric, p. 47). Thus, although Robert Kennedy frequently complained that the plans of the CIA and Mongoose weren't "massive enough" and that "we should get in there and do more," Gilpatric pointed out that Robert Kennedy was not making specific proposals in these urgings, and the result he desired was a general one "to limit the Castro regime's effectiveness," rather than any specific measure.
+
+(Gilpatric, p. 47).
+
+g. Testimony of Rusk
+
+Dean Rusk served as Secretary of State throughout the
+Kennedy Administration. Rusk participated in a number of Special Group
+Augmented meetings during the Mongoose operation. (Rusk, p. ___).
+
+(Footnote continued from previous page.)
+
+Now this disturbs me, and I don't know whether our councils of govern-
+ment operate that way in all areas or not, but if they do then it seems
+to me it would raise a very serious question as to whether or not the
+troops are getting the right orders."
+
+"Mr. Gilpatrick....I thought there were limits on the use of power, and that was one of them."
+
+"Senator Huddleston. And going beyond that would require that some-
+body make a specific effort to make sure he understood precisely what
+they were talking about, would that be your interpretation?"
+
+"Mr. Gilpatrick. It would." (Gilpatric, p. 31).

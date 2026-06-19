@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_21577.png
+
+Convert to Markdown# TOP SECRET
+
+1. Mr. Dick. Were you told that it was illegal?
+
+2. Mr. Osborn. No. I assumed it was. You don't open mail in peacetime.
+
+3.
+
+4. Mr. Wallach. Did the Office of Security also run the project in Washington whereby diplomatic pouches were opened?
+
+5.
+
+6. Mr. Osborn. Not to my knowledge.
+
+7. Mr. Wallach. Do you have any knowledge of the project?
+
+8. Mr. Osborn. We had some arrangement with the Department of Customs, as Dulles Airport. And it may have been diplomatic pouches. I am not sure that it was, but we did have some arrangements with Customs. But I can't recall the details of it. But I feel sure that we did.
+
+9.
+10
+11
+12
+
+Mr. Wallach. At Dulles?
+
+13.
+
+14. Mr. Osborn. The one I specifically remember was at Dulles. And I am pretty sure it was diplomatic pouches. But I can't recall the details, I really can't. But I have a recollection of this. Ang again, we were doing it just as a mechanism again. It was the Clendestine Services that had to be calling the shot of that.
+
+15
+16
+17
+18
+19
+
+Mr. Wallach. I am just asking for the extent of your knowledge.
+
+20.
+21
+
+Mr. Osborn. And if we did it at Dulles we must have done it some other places.
+
+22.
+23
+
+Mr. Wallach. What cooperative arrangement with Customs are you aware of?
+
+24.
+25
+
+HW 50955 DocId:32281990 Page 8
+
+TOP SECRET

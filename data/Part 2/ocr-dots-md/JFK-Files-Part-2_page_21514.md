@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_21514.png
+
+Convert to MarkdownTOP SECRET
+
+group at the meeting, stated that Mr. Helms would henceforth be -- the words were, his man on Cuba. This was something that nobody in the room apparently had any inkling of, and particularly Mr. Helms, nor ~~Mr. Zogbey~~.
+
+The Chairman. May I ask you to repeat that?
+
+I am sorry, I just didn't catch it.
+
+Mr. Halpern. At a meeting sometime in December 1961, which was the morning staff meeting that the Director held, and
+
+~~Mr. Zogbey~~ was present --
+
+Mr. Schwarz. But you were not?
+
+Mr. Halprrn I was not, I got this from ~~Mr. Zogby~~ -- the Director, Mr. McCone, announced that Mr. Helms would be his man on Cuba, Mr. Helms would then be the Chief of Operations for the Deputy Director of Plans, and Mr. Bissell was in the room as the DDP.
+
+Mr. Helms had no inkling of this before the meeting, and so stated to ~~Mr. Zogbey~~, and even asked ~~Mr. Zogby~~ if he had had any inkling before the meeting.
+
+~~Mr. Zogbey~~ told me that he had none whatsoever.
+
+Mr. Schwarz. Did Mr. Helms then come and visit your new organization and tell you to make some changes?
+
+Mr. Halpern. Yes. He came to ~~Mr. Zogbey's~~ office and looked at the list of officers, male and female, who were still working in the branch. Most of them were the remnants of the people from the old Bay of Pigs operation who had not yet been reassigned.
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32281927 Page 7

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_23114.png
+
+Convert to MarkdownThe United States Senate
+
+R3014
+
+Report of Proceedings
+
+Hearing held before
+
+Senate Select Committee to Study Governmental
+Operations With Respect to Intelligence Activities
+
+Thursday, May 6, 1976
+
+Washington, D.C.
+
+(Stenotype Tape and Waste turned over to the Committee for destruction)
+
+WARD & PAUL
+
+3827 WILSON BOULEVARD
+ARLINGTON, VA 22205
+
+(703) 641-0880
+
+TOP SECRET
+
+NWH:55510 DocId:32423435

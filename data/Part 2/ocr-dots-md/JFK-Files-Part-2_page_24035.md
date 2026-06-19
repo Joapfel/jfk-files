@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_24035.png
+
+Convert to Markdown"I have approved all the messages you are receiving from others today, and I emphasize that everything in these messages has my full support. We will do all that we can to help you conclude this operations successfully . . . Until the very moment of the go signal for the operation by the Generals, I must reserve a contingent right to change course and reverse previous instructions. While fully aware of your assessment of the consequences of such a reversal, I know from experience that failure is more destructive than an appearance of indecision. I would, of course, accept full responsibility for any such change as I must also bear the full responsibility for this operation and its consequences." (Cable, 8/29/63).
+
+In a reply cable, Lodge stated:
+
+1. I fully understand that you have the right and responsibility to change course at any time. Of course I will always respect that right.
+
+2. To be successful, this operation must be essentially a Vietnamese affair with a momentum of its own. Should this happen you may not be able to control it, i.e., the "go signal" may be given by the generals." (Cable, Lodge to President, 8/30/63)
+
+A cable from Saigon dated August 31, 1963, stated:
+
+"This particular coup is finished . . . Generals did not feel ready and did not have sufficient balance of forces . . . There is little doubt that GVN (South Vietnamese Government) aware US role and may have considerable detail . . ." (SAIG 0499, 8/31/63)
+
+Deptel 243 and the VOA broadcast set the tone for later relations between the United States representatives and the generals. Big Minh, who had initial doubts about the strength of American support, grew in confidence.
+
+### C. The November 1963 Coup
+
+American dissatisfaction with the Diem regime became increasingly apparent. On September 8, AID Director David Bell, in a television interview, stated that Congress might cut aid to South Vietnam if the Diem government did not change its course
+
+NW 50955 DocId:32423525 Page 138

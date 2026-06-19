@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_22765.png
+
+Convert to Markdowngsh 17
+
+Mr. Johnson. Could you give a brief example of the CIA role in strategic deception, a specific example?
+
+Mr. Angleton. No, I can't. I mean I could get into cases but it's too vague. It's always been something that has been arrived at ad hoc and it served the purpose, but I wouldn't call it strategic.
+
+Mr. Miler. No program, in other words.
+
+Mr. Angleton. In other words, the proper strategic decep-
+tion would be the President calls in the Director and says, no
+one knows that in three months I'm going on the following trip.
+I will have meetings with the following people. I'm not
+going to announce it until a week before I leave.
+
+So it gives you a time span of two months to use all of your sources to put across disinformation or information, a letter in the mailbox to the proper addressee that, you know, favor his role or favor his mission and helps him out. And that's what we are trying to seek and have been trying to seek for a long time. But there has to be a way of knowing what are some of the intentions of the government in order to advance it through disinformation or deception.
+
+Mr. Miler. With respect to the military, if I may return to that, I think that one of the -- probably the greatest difference and failure with respect to CIA counter-intelligence relationships with the military was with respect to the situation in Vietnam because CIA did not perform a counter-
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+763011135

@@ -1,0 +1,56 @@
+# JFK-Files-Part-2_page_21074.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+NO
+:Y:
+
+Director, FBI
+
+DATE: 12/23/64
+
+FROM : Legat, Bern (62-70) (RUC)
+
+SUBJECT: RELATIONS WITH SECRET SERVICE THREATS AGAINST THE PRESIDENT
+
+ReBulet 11/19/64.
+
+Files of Legat, Bern, have been reviewed for individuals residing in Switzerland and Austria considered to be a possible threat to the President, and no one was found to fit this category.
+
+In addition, discreet inquiry was made of the following sources, all of whom had no knowledge of individuals who might be considered threats:
+
+Consular Section, the Embassy, Bern;
+Office of Special Assistant (covert CIA),
+the Embassy, Bern;
+American Consulate General, Vienna;
+Research Branch (covert CIA), the Embassy,
+Vienna;
+Security Officer, the Embassy, Vienna.
+
+In this regard, however, Bureau attention is called to the case entitled PAUL GEORGE ANDERSON, aka, IS-X (Bureau 100-415051). ANDERSON has been reported to be of interest to the Secret Service (Legat, Paris, letter dated 10/16/64). While he does not reside in territory covered by this office, he is in rather frequent transit en route to Hungary, where he is attempting to obtain a visa for his Hungarian wife to enter the U.S.
+
+③ Bureau (1 - Liaison)
+2 - Bern (1 - 105-213)
+
+HDG:mls
+(5)
+
+REC. 108
+
+CLASSIFIED BY 5668 SLIDKSR
+DECLASSIFY ON: 25X
+
+14 DEC 28 1964
+
+CIA HAS NO OBJECTION TO
+DECLARATION AND/OR
+RELEASE OF CIA INFORMATION
+IN THIS DOCUMENT. EXCEPT FOR
+SECRET
+
+JAN 5 1965
+
+64 JAN 6 1965
+
+HW 50953 DocId:32311270 Page 2

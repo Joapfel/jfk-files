@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_21213.png
+
+Convert to MarkdownWith further reference to the 1957-59 cases, NOSENKO stated on July 27, 1968, (N-212) that there was no time limitation put on BOBKOV'S request. He wanted a list of recruitments and the list was prepared from available files, recollections of officers etc. without reference to year of recruitment.
+
+**[15. Recall Telegram]**
+
+
+
+Pages 324 and 325 relate to the recall telegram and it is noted that NOSENKO alleged that a telegram had been received by the KGB Residency in Geneva on February 4, 1964, ordering NOSENKO to return to Moscow. Eventually NOSENKO retracted this assertion and stated that there was no recall telegram; that he invented the telegram to hasten his defection.
+
+It is stated that [special intelligence] does not confirm the existence of the recall telegram but SCOTCH reported on February 20, 1964, that the KGB resident in New York had advised members of the Residency on February 18 or 19, 1964, concerning the content of telegrams received from KGB
+
+TOP SECRET
+
+HW 50953 DocId:32318825 Page 99

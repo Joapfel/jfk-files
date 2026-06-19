@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_20168.png
+
+Convert to MarkdownNY 100-174481
+
+change was not being used for that purpose, but rather
+to sustain members of the SWP-YSA.
+
+The Sunday morning session, July 16, 1972, was labeled "Meeting to Discuss Internal Hassles." About 35 independents attended and a few number of SWP-YSA members and sympathizers were present. Independents there were from New Haven, Boston, Detroit, New York (NY), Chicago, Philadelphia, and San Francisco.
+
+The independents did not waiver in their firm opposition to SWP-YSA control of WONAAC. Six national coordinators of WONAAC were independents and decided to resign publicly at the afternoon plenary session. They also decided to combat SWP control of the feminist movement through the various publications.
+
+The six national coordinators who resigned were JUDY SIPHERS, San Francisco; ANN C. DAVIDSON, Philadelphia; ROSE WEBER, NY; VICKI ESLINGER, Columbia, South Carolina; NANCY ROLF, NY; and ELLEN SHAPIRO, NY.
+
+There were approximately 700-800 women in attendance at the afternoon session. According to one of the SWP leaders, these women were from 31 states and three countries-Canada, Italy and Sweden. The states that had more representation than others were Ohio, Illinois, New York and Massachusetts.
+
+Most of the problems and differences between the independents and the SWP centered around approaches to abortion law reform. The SWP was charged with always having demonstrations and rallies and never doing any work through the legislative process.
+
+The independents stated that they were tired of this hassle and that they believed there were more effective ways to change abortion laws than carrying placards in the streets.

@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_23879.png
+
+Convert to Markdown1 people behind the Iron Curtain, to convince them as people that
+2 we are nice folks, that they ought to influence their government
+3 to be a little bit more friendly toward us? It doesn't have
+4 any impact at all in a totalitarian state, none.
+5 It is really a one way street.
+6 Now, I am all for cultural exchange, simply because I
+7 like to watch Russian ballet dancers, especially females, but
+8 the fact of the matter is cultural change does more to soften
+9 up the American public toward the Iron Curtain than the
+10 other way around.
+11 The Chairman. That is an argument as to the merits of
+12 cultural exchange, and how you view ballerinas, but, the question
+13 here we face is whether or not we should put American students
+14 in a position where they feel they must --
+15 Senator Tower. I don't think they must be coerced.
+16 The Chairman. But there is an element of intimidation
+17 involved if they are receiving a grant from the government.
+18 Senator Tower. Well, I would favor a specific prohibition
+19 against making that a condition of getting a grant or scholarship
+20 of some sort.
+21 Senator Baker. Or continuing one.
+22 Senator Tower. Or continuing one.
+23 Senator Hart of Michigan. Well, John, what do you say
+24 to Dee's point? If my roommate turns out to be a spy, it is
+25 automatically assumed I am, and every guy in the outfit. What
+
+TOP SECRET
+
+WARD & PAUL

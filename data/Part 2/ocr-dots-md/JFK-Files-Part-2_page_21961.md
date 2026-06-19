@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_21961.png
+
+Convert to MarkdownThat same day, General Valenzuela informed (Colonel Wimert) that he,
+General Huerta, Admiral Tirado and an Air Force General were prepared
+to sponsor a coup. (CIA Report on Chilean Task Force Activities, 18
+November 1970) Their plan was to begin with the kidnapping of General
+Schneider on the following evening, October 19, at a military
+dinner being given for Schneider,* after which Schneider would be flown
+to Argentina, Frei would resign and leave Chile, Admiral [Tirado] would
+head the military junta, and dissolve Congress. With respect to the
+kidnapping of Schneider, the cable reports:
+
+> General Viaux knowledgeable of above operation but not directly involved. He has been sent to Vina to stay with prominent physician. Will be seen in public places during 19 and 20 October to demonstrate fact that above operation not his doing. Will be allowed to return to Santiago at end of week. Military will not admit involvement in Schneider's abduction which is to be blamed on leftists. (Santiago 566, 19 October)
+
+The kidnapping of the evening of October 19 failed because General Schneider
+left in a private vehicle, rather than in his official car, and his police guard
+failed to be withdrawn, but the Army (Colonel Wimert) assured Colonel Wimert that an-
+other attempt would be made on October 20. (Santiago 582, 20 October)
+[Colonel Wimert] was authorized to pay Valenzuela $50,000 "which was the price
+agreed upon between the plotters and the unidentified team of abductors."
+
+* The ("False Flag Officer") who was in contact with Viaux at the time the Valenzuela plan was given to Colonel Wimert apparently understood that Viaux was involved in the October 19 attempt. He stated:
+
+Q. Were you told any of the details of how the (Viaux) kidnapping would be carried out?
+
+Mr. Sarno. They indicated it was going to be
+at some sort of a banquet which the General
+(Schneider) would be attending.
+
+(Sarno testimony, p. 37)

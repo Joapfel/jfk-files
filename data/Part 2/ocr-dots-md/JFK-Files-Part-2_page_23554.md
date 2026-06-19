@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_23554.png
+
+Convert to MarkdownMay 24, 1961
+
+MEMORANDUM OF CONVERSATION WITH:
+
+Dick Bissell
+Tracy Barnes
+
+Mr. Bissell agreed that no major decisions concerning covert activities in Cuba should be made before the President returns from his European trip. However there are a few things he thought should be done immediately:
+
+1. That he revise the internal CIA organization in preparation for possible covert activities. This means changes bothehere and in Miami.
+
+2. That a small group (30 to 40) Cuban pilots be continued as pilots under commercial cover in Central America and perhaps one or two American companies. No commitment should be made to them that they would be used in future activities. They would be trained as individuals and not as any group or "movement." This is primarily to keep their skills alive and to keep them available.
+
+3. He wishes to clean up the Nicaraguan situation. We have left a lot of Military hardware there as a residue of the Cuban operation. He would like to pull this equipment out of there, turning some of the B 26's over to Somoza and allowing some of the Cuban pilots to remain there to train Nicaraguans in flying these planes. This would be at Somoza's request and would only be done if he insisted upon it as a re-payment for services rendered. I stressed that no Americans should be involved in the training of Nicaraguan pilots.
+
+4. He would like to train a few Cubans as radio operators. They would be trained as individuals and would not know each other or that any others were being trained. This amounts to training some individual agents for possible future use. No commitments would be made to any of the men trained. It is felt that this much activity is necessary in the next few weeks.
+
+5. In addition, the Agency would like to survey the various potential insur-rectbnonary groups which now exist. There are several of these groups, three or four of which claim to have an underground in Cuba. We should speak to them. We should tell them we could make absolutely no commit-ment as to any future activities. However, he would like from them an assessment of what they thought they could do in the future and -- if they were to be active -- what help they would require from the United States.
+
+TOP SECRET

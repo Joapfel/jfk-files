@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_23640.png
+
+Convert to MarkdownNow the next paragraph. C --
+Mr. Kirbow. Could we take these one at a time because
+these are rather critical?
+
+Mr. Chairman, one of the things that came before this
+Committee when I guess it was Mr. Colby testifying and at each
+meeting that Mr. Miller and the staff had with the people from
+the White House and the CIA when we were preparing the oversight
+bill, we heard many good reasons why we should not deprive the
+DCI of this ability to sign certifying out of certain funds
+and being able to expend them without a great big red tape
+machine to hinder that type of operation.
+
+If, as David says, his recommendation here is to prevent
+reprogramming, except within very narrowly defined statutory
+limits, is a first step toward restricting that further
+activity. I would like to except on this and have it discussed
+before the Full Committee, or in the absence of that, or
+connected with it, have the record that we have that shows us
+that we should restrict by legislation here --
+
+Senator Huddleston. What is the major thrust there?
+Is it to in fact limit or restrict or is it to actually have
+it defined and specified in the statute as to what circumstances
+might prevail?
+
+Mr. Aaron. The thrust here is as follows. The DCI
+can now reprogram money within his own agency to some extent.
+That budget, depending on the parts he can reprogram, I don't
+
+TOP SECRET
+
+HW 50955 DocId:32423509 Page 14

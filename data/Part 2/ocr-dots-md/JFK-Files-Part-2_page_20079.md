@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_20079.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DEMONSTRATION PROTESTING
+UNITED STATES POLICY IN VIET NAM,
+WASHINGTON, D.C., JANUARY 15 - 16, 1968
+
+4. Congress listen to what the American people are saying and refuse the insatiable demands of the military industrial complex.
+
+It is further stated that following the petitioning of Congress the group will hold its own Congress to articulate their position on achieving peace and then return to their own communities and mobilize women dedicated to reshaping American society, and restoring the country to a position of honor in the community of nations.
+
+According to the pamphlet the group will meet January 15, 1968, at the Union Depot, Washington, D.C., at 11:30 a.m. and walk to Congress and present the petition. Many plan to stay in Washington to begin implementation of their demands by presenting them to Congressmen and Senators on January 16, 1968.
+
+Attached to the pamphlet is an application for rail tickets to travel to Washington by Baltimore and Ohio Railway, leaving Chicago January 14, 1968, at 4:30 p.m. It is also indicated that plane and bus transportation may also be arranged for if enough people are interested. Anyone needing assistance in securing accommodations is advised to contact the Hospitality Office, 2140 Peace Street, N.W., Washington, D.C., telephone number (202) 293-2020.
+
+The pamphlet contains a partial list of persons who are National sponsors and Chicago sponsors. Included among sponsors listed were the following:
+
+Sylvia Bloom
+
+As of October, 1967, Sylvia Bloom was a member of the CP of Illinois.
+
+(CG T-1, October 5, 1967)
+
+CONFIDENTIAL
+
+NW 88321 DocId:32989545 Page 363

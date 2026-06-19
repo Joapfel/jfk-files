@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_22551.png
+
+Convert to MarkdownSECRET
+
+Macao, Cambodia, Manila, Singapore, Kuching, Brunei, Singapore, Vietnam, Brussels, Amsterdam, London and New York City.
+
+The 1965 Federal income tax return shows a 49 day trip to South America from 31 July to 17 September 1965. Originally an extended trip had been approved to include the 9th World Youth Festival as planned for Algiers. The World Youth Festival was cancelled, but a trip to cover Bolivia, Ecuador, Peru, Chile, Argentina, Uruguay, Paraguay, Brazil and Venezuela remained. Expenses were to be covered by the cover fund. In a memo concerning his proposed South American trip for July 1965, Wiley advised that "The cover fund is sufficient to pay all expenses, and the income from the trip should be enough to return the money and show a profit (perhaps a very good one)." A travel voucher shows expenses for the trip 31 July 1965 to 17 September 1965 of $2234.72. The itinerary: New York City, Miami, Panama, Bogota, Quito, Lima, Cusco, La Paz, Santiago, Cordoba, Buenos Aires, Asuncion, Iguape, Sao Paulo, Rio de Janeiro, Brasilia, Rio de Janeiro, Reclife, Belem, Manaus, Caracas, New York City. The cover accounting for 1965 shows the South American trip expense of $2234.72 was offset against income and there is no record of an advance.
+
+No foreign travel is reflected in the Federal Income Tax Returns or files for 1966 or 1967.
+
+The 1968 Federal income tax return reflects a 55 day trip to Athens, Cairo, Indo-China, Manila, Taipei and Seoul. An 18 December 1967 memo to Chief, SRS, from Cecil C. Tighe related to his briefing Wiley regarding the up-coming trip by Wiley to Vietnam and Laos, warning him to exercise care and not expose himself unnecessarily to danger.
+
+An accounting of the expenses for the trip 16 January to 9 March reflects that air transportation was supplied by the Government of Vietnam. The itinerary shows: Athens, Bangkok, Vientiane, Saigon, Hong Kong, Macao, Manila, Taipei and Seoul. Total other expenses of $828.11 were incurred and are reflected as an expense in the 1968 cover accounting and offset against income.
+
+SEP 30 1975
+CIA
+
+SECRET'

@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_23711.png
+
+Convert to Markdownthat.
+
+Mr. Aaron. I think that's a fair point. The question, I guess, the case at which the certification would run most would add to what already is in the sentence preceding it which is review by the Committee which the Attorney General is to chair, would be the case in which the Attorney General is aware of a particular activity, is aware that it is illegal but just doesn't do anything about it on the theory that it is somebody else's business. And he doesn't really, he doesn't have an obligation in this category of matters to render a judgment and bring it to the attention of the President or the Congress.
+
+Senator Mathias. Why don't we say this, that the Attorney General be required to advise the President and the oversight committee that he is familiar with the procedures established to accomplish this purpose and that he is not aware of any violation of the Constitution or other law in the execution of the action.
+
+I think you can lay that kind of a burden on the Attorney General.
+
+Mr. Aaron. Would it be possible to just make it sort of a reporting function in which he said, and this is in the same direction, the Attorney General will be required to advise the President and the oversight committee if he finds that these options are being taken in a manner that violates?
+
+TOP SECRET
+
+WARD & FAUL
+
+HW 50955 DocId:32423509 Page 85

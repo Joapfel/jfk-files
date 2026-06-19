@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_21647.png
+
+Convert to MarkdownIUP SECRET
+
+132
+
+Mr. Phillips. There is no indicator to say who it went
+to.
+
+Mr. Schwarz. Does the "eyes only" have any significance
+to you in the third line?
+
+Mr. Phillips. Only in the sense that what [Colonel]
+Wimert was saying was, this may go over to the Defense Depart-
+ment, but not through regular channels, and not to anyone else
+other than General Bennett.
+
+Mr. Schwarz. Did it go to General Bennett?
+
+Mr. Phillips. I do not know.
+
+Mr. Schwarz. And did you pass it to someone?
+
+Mr. Phillips. If it did not go it would have been
+highly unusual for a message to come in from overseas saying,
+give this to the head of another Agency, and for it not to
+be delivered it would have been extremely unusual.
+
+Mr. Schwarz. What would be the normal form of its
+delivery? Would there be a cover note put on it?
+
+Mr. Phillips. It would have probably been folded
+into an envelope and delivered by hand. Because if it is
+really an "eyes only" message of such import, if it goes
+through a communications channel, it means that they are going
+to be operators of machinery to see it, and so forth. If
+an American Ambassador overseas wants to get a very sensitive
+message up he has the option of sending it to us and saying,
+will you please hand carry this over to the Secretary of State?
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32282005 Page 37

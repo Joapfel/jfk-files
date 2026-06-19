@@ -1,0 +1,72 @@
+# JFK-Files-Part-2_page_22980.png
+
+Convert to Markdown# TOP SECRET
+
+26
+
+1 the control of money and so forth was vested in the Task Force Commander, Mr. Harvey.
+
+2
+
+3 Therefore, I never dealt with this three-man group as a body. I dealt with the individuals, you know, and various mutations.
+
+4
+
+5
+
+Mr. Baron. Would you say that the three-man group had a less formal, more free-wheeling style of decision making, and there was a real change in the rigor with which you were required to report after the Special Group took over?
+
+6
+
+7
+
+8
+
+9
+
+Mr. Halley. I would have to say that the total reporting became more formalized the longer we stayed in business. I cannot ascribe this to the difference of style of the three-man group as opposed to the Agency chain of command or subsequent with the requirements of the Special Group. This evolved from a body of experience that was gained as the operation was established and got some experience.
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17 So I would not want to characterize that as being a result of the groups.
+
+18
+
+19
+
+Mr. Baron. You did not have any problem with the propriety of the three-man group in the early stages?
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25 Mr. Halley. No, I had no reason to believe that it was not a duly constituted body. In other words, the officers that I reported to, in that particular case, Mr. Harvey, Mr. Helms, were my chain of command at that particular point, were the ones who briefed me on the existence of this three-man body
+
+# TOP SECRET
+
+76000170103
+WARD & HALL
+
+Phone (Area 202) 544-6000
+
+410 First Street, S.E., Washington, D.C. 20003
+
+## Phone (Area 202) 544-6000

@@ -1,0 +1,105 @@
+# JFK-Files-Part-2_page_24164.png
+
+Convert to MarkdownSECRET
+
+SENSITIVE - 53 -
+
+| PROJECT/ ENTITY | HIGHEST NET EQUITY BALANCE ON AGENCY RECORDS 1952-1974 | NET WORTH BALANCE 31 DEC 74 |
+|---|---|---|
+| NOVEL | $ 51,200 | $ |
+| NTEICACER | 80,768 | |
+| OBLIVIOUS | 14,600 | |
+| OKMAJOR | 411,000 | |
+| OKSALE | 46,600 | |
+| OQKADIAK | 92,800 | |
+| OQKAIL | 170,150 | |
+| PAFANFARE(same as FANFARE) | 30,300 | |
+| PARABASIS | 39,000 | |
+| PAWALRUS (was WU) | 92,800 | |
+| PBGREGALE | 47,800 | |
+| PBTEMPLE | 5,000 | |
+| PDBASIC | 1,053,500 | 465,800 |
+| &nbsp;&nbsp;&nbsp;PDBASIC/200 | |
+| &nbsp;&nbsp;&nbsp;PDBASIC/100 | |
+| &nbsp;&nbsp;&nbsp;PDBASIC/400 | |
+| &nbsp;&nbsp;&nbsp;PDBASIC/300 | |
+| PEI'CIID | 13,000 | |
+| POL'S | 25,000 | |
+| PODEARLY | 32,800 | |
+| POVARSITY | | |
+| &nbsp;&nbsp;&nbsp;POSPOKE(same as POVARSITY) | 31,900 | 18,000(a) |
+| PBPOUTER | 36,700 | |
+| PSLAWFUL | 11,000 | |
+| QKACTIVE | 5,500,000 | |
+| QKBOTTOM | 4,179 | |
+| QKFEARFUL | 236,900 | |
+| QKHUMMER | 5,000 | |
+| QKOPERA | 7,605,400 | |
+| QKSHOGUN | 21,000 | |
+| QRBASTE | 533,000 | 389,400 |
+| &nbsp;&nbsp;&nbsp;QRBLAZE | |
+| &nbsp;&nbsp;&nbsp;QRBLOND | |
+| &nbsp;&nbsp;&nbsp;QRBLUFF | |
+| QRBEND | 220,000 | |
+| QRBIBB | 102,500 | |
+| QRBUZZ | 12,900 | |
+| QRDYNAMIC(same as AEDYNAMIC) | 151,500 | |
+| &nbsp;&nbsp;&nbsp;QRTENURE | 89,200 | |
+| &nbsp;&nbsp;&nbsp;QRTERRACE | 40,700 | |
+| QRGLAD | 16,700 | |
+
+(*) See attached schedule.
+
+RECEIVED FROM
+
+NOV 4 1975
+
+CIA
+
+SECRET
+CLASSIFIED
+
+29
+
+SECRET
+CLASSIFIED
+
+CONFIDENTIAL
+PROJECT ID: 94-24392 Page 18
+
+NEW: SENSITIVE, PRIORITY: HIGH, PAGE: 38
+
+NOTE:
+PRIORITY:
+CONFIDENTIAL
+PROJECT/ ENTITY
+---
+NEW
+NTEICACER
+---
+
+OBLIVIOUS
+OKMAJOR
+OKSALE
+OQKADIAK
+OQKAIL
+---
+PAFANFARE(same as FANFARE)
+PARABASIS
+PAWALRUS (was WU)
+PBGREGALE
+PBTEMPLE
+PDBASIC
+&nbsp;&nbsp;&nbsp;PDBASIC/200
+&nbsp;&nbsp;&nbsp;PDBASIC/100
+&nbsp;&nbsp;&nbsp;PDBASIC/400
+&nbsp;&nbsp;&nbsp;PDBASIC/300
+PEI'CIID
+POL'S
+PODEARLY
+POVARSITY
+&nbsp;&nbsp;&nbsp;POSPOKE(same as POVARSITY)
+PBPOUTER
+PSLAWFUL
+---
+QK

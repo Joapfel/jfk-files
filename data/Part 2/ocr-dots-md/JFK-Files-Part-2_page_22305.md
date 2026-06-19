@@ -1,0 +1,54 @@
+# JFK-Files-Part-2_page_22305.png
+
+Convert to MarkdownTOP SECRET
+
+1 Mr. Madigan.
+
+2 that the women that were allowed access, as you put it, to this leader "A" were to be women that the police would have some control over so that they would not be a possibility of a later Blackmail people with the United States government, etc. that is not correct?
+
+3
+4
+5
+6
+7
+Mr. Maheu. That is my recollection, yes.
+
+8 Mr. Madigan. Did you participate in sending these women or providing these women over to the hotel where the leader was staying?
+
+9
+10
+11
+Mr. Maheu. I don't recall.
+
+12 Mr. Madigan. Do you recall telling me yesterday that you did?
+
+13
+14
+Mr. Maheu. No, I do not.
+
+15 Mr. Madigan. Do you recall telling me yesterday when I asked you whether someone had travelled from city to city, you indicated that you thought maybe one did, but you weren't sure about how many others.
+
+16
+17
+18
+Mr. Maheu. That is correct.
+
+19
+20
+Mr. Madigan. How many cities did you visit during the trip that this Leader "A" made?
+
+21
+22
+Mr. Maheu. Several cities.
+
+23
+24
+Mr. Madigan. Now were the women that were provided known to you or represented to you as prostitutes in any of these cities?
+
+25
+
+10 11 12 13 14 15 16 17 18 19 20 21 22 23 24 25
+
+TOP SECRET
+
+HW 50955 DocId:32203816 Page 15

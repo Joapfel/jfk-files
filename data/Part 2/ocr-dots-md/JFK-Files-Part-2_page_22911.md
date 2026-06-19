@@ -1,0 +1,56 @@
+# JFK-Files-Part-2_page_22911.png
+
+Convert to MarkdownTOP SECRET
+
+29 and this is what they feared all along, and the whole intelli-gence apparatus would be gravely weakened and the men in the field would be jeopardized by investigation of this kind.
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11 We take that chance with this kind of -- and what do we learn from it? Is it worth that chance?
+
+Senator Hart of Colorado. Well, that question could be asked of any witness that we have in here. Number two, the CIA,
+
+12
+13 Mr. Colby and the Chief of Station in [Amsterdam] 1-25 have no doubts that this can be carried out without any security breach what-soever. Now that's the CIA. He has not worked for them in ten years.
+
+14
+15
+16 The Chairman. And the CIA would be the first to jump upon the breach and say, we told you so.
+
+Senator Hart of Colorado. Well, I leave it to the Committee. I can't tell you what we're going to find out, it may be zero.
+
+17
+18 Senator Mathias. The Station Chief does not raise that as one of the dangers.
+
+19
+20 Senator Baker. Yes, they did.
+
+Senator Hart of Colorado. Nor does Colby.
+
+21
+22
+23
+24
+25 Mr. Wides. Mr. Chairman, excuse me. The paper that suggests the possibility that Mr. Win might have been in the United States in 1963 is a paper involving the activity records of William Harvey who will be here this afternoon and that may be that you can get more testimony under oath from him that will
+
+TOP SECRET
+
+NSA
+
+Phone (Area 202) 544-6000
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+760030569
+
+HW 30933 DocID:32423400 Page 129

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_22676.png
+
+Convert to Markdown10 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+7 6 8 0 U C C I L I F
+
+# TOP SECRET
+
+report. What was that report?
+
+Mr. Angleton. At one stage in all of this -- and it was much later, after all the dust settled -- Helms got the Inspector General, who had come from the clandestine side of our business, to institute -- I don't like to use the word inspection, it is too authoritative -- to go into the Nosenko matter and see if there is anything there that he should know, because Helms is fully aware of the split on this whole question of bona fides, and it bothered him, because I had brought him in touch with Golitzen, and he was fully aware of all my activities, and travels and so on.
+
+And so this person who was chosen began to interview everybody and reopen the whole thing. I mean, there were 21 safe leads of stuff if you really got into all of the Golitzen and Nosenko and the other things that pertained, as I pointed out. to the Warren Commission, to the asininity of what has happened, of 27 years of experience of myself and my two colleagues, that these are the facts, that there are 20 cases
+
+--
+
+Mr. Schwarz. You said Warren Commission. You mean Rockefeller?
+
+Mr. Angleton. Excuse me, Rockefeller.
+
+There are 20 some odd cases that a counterintelligence officer in our business should know before he even begins to get his feet wet.
+
+TOP SECRET
+
+HW 30933 Document:32425393 Page 63

@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_24098.png
+
+Convert to Markdownactivity increases the probability that it will occur,
+since the capability represents a tool that is available
+for use. There is the further danger that authorizing a
+capability may be misunderstood as authorizing its use
+without need for obtaining explicit authorization.
+
+Of course, an assassination capability should never
+have been created in the first place.

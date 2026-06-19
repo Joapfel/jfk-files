@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_24106.png
+
+Convert to Markdown# EPILOGUE
+
+We do not believe that the acts which we have examined represent the real American character. They do not reflect the ideals which have given the people of this country and of the world hope for a better, fuller, fairer life. We regard the assassination plots as aberrations.
+
+We must not adopt the tactics of the enemy. Means are as important as ends. Crisis makes it tempting to ignore the wise restraints that make men free. But each time we do so, each time the means we use are wrong, our inner strength, the strength which makes us free, is lessened.
+
+Despite our distaste for what we have seen, we have great faith in this country. The story is sad, but this country has the strength to hear it and to learn from it. We must remain a people who confront our mistakes and resolve not to repeat them. If we do not, we will decline; but, if we do, our future will be worthy of the best of our past.

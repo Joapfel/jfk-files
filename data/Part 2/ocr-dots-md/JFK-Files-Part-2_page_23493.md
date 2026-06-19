@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_23493.png
+
+Convert to MarkdownGray said that shortly after the BERLIN TUNNEL, Eisenhower said, "I want the 54/12 committee to consider any action that impinges upon the sovereignty of another country."
+
+TOP SECRET
+
+Gray said that in almost every case, a proposed covert action would have been discussed with the State Department and would have been staffed out before Special Group meeting. "Most of the rest of us did not have a chance to reflect before the meeting."
+
+Gray said that during his tenure, there was no chairman of the 54/12 (Special Group). But perhaps Merchant conducted the meetings.
+
+Gray said that during the transition to the Kennedy administration, he asked McGeorge Bundy to promise him that the Special Group would not be washed out. Gray explained that the Special Group was necessary for the protection of the President. The Special Group discussions allow the President the chance to know in advance about actions which are potentially embarrassing to him. The President's representative to the Group (Gray, then Bundy) has the right to object to an action and take it up with the President. The President has a chance to know about everything that goes on in the Special Group, and through his Special Assistant for National Security Affairs, the President would have a chance to say "no" to a proposed action. Gray said that the presence of the Special Group would protect a President from operations such as assassinations.
+
+### 3. "His Associate":
+
+Initially, Gray did not recognize the phrase used by Parrott in the Special Group minutes "Mr. Gray's associate" or "his associates". Gray's first reaction was that "his associates" would probably refer to members of his NSC staff.

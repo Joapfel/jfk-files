@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_20255.png
+
+Convert to MarkdownFBI
+
+Date: 1/9/68
+
+Transmit the following in
+
+(Type in plaintext or code)
+
+Via AIRTEL AIRMAIL
+(Priority)
+
+TO: DIRECTOR, FBI
+
+FROM: SAC, ALBANY (100-20033) (P)
+
+SUBJECT: DEMONSTRATION PROTESTING UNITED STATES POLICY IN VIET NAM, WASHINGTON, D.C., JANUARY 8, 1968
+INFORMATION CONCERNING (INTERNAL SECURITY)
+
+Attached herewith for Bureau, is the original and 10 copies, and for WFO 2 copies, of an LHM regarding captioned subject. Also attached for the Bureau is one post card regarding captioned subject.
+
+Source in attached LHM is INFORMANT. Source characterizing Women's International League for Peace and Freedom is INFORMANT.
+
+Albany sources alerted for identification of individuals and organizations participating in captioned protest and for determination of financial backing.
+
+③ Bureau (Enc. 12) (RM)
+2-WFO (Enc. 2) (RM)
+2-Albany
+
+TCK:gab
+(7)
+
+AGENCY: G-2, ONI, OSI
+
+DATE: DEC.
+HOW:
+LRY: 10-30
+
+REC 3
+
+Approved:
+
+Sent M Per
+
+Nw 88321 DocId:32989545 Page 539 Specifying Address in Charge

@@ -1,0 +1,134 @@
+# JFK-Files-Part-2_page_23321.png
+
+Convert to MarkdownTOP SECRET
+
+4R
+
+1 about that instruction.
+
+2 Mr. Schwarz. Assuming that you are telling the truth --
+3 Mr. Goodwin. Thank you.
+4 Mr. Schwarz. We have to explore whether something went
+5 wrong in the communication process, and I want to put some
+6 information in front of you and then see if you can help us
+7 explain what, if anything, went wrong.
+8 Would you show him Exhibit 2-A.
+9 Now Exhibit 2-A is a cable dated March 20th from the Agency
+10 in the Dominican Republic to the Agency in Washington. And
+11 reading in Paragraph 3, it describes the way in which -- it
+12 describes a plot.
+13 In Paragraph 4, it says the following: "To do, they need
+14 fiva M-3's or comparable machine guns and 1500 rounds
+15 ammunition for personal defense in event fire fight. Will use
+16 quiet weapons for basic job." Now the basic job is apparently
+17 the assassination.
+18 Now again, were you told -- now, in Exhibit 1, you were
+19 told in the briefing on covert action by the CIA that the
+20 carbines and the pistols had been passed for personal defense
+21 weapons and not to do the basic job, as this telegram indicates.
+22 Mr. Goodwin. That's correct. That's what it says.
+23 Mr. Schwarz. Right. I understand that.
+24 Now, what I am trying to understand is, in telling you that
+25 the weapons had been passed for personal defense purposes, do
+
+TOP SECRET
+
+25
+
+24
+
+23
+
+22
+
+21
+
+20
+
+19
+
+18
+
+17
+
+16
+
+15
+
+14
+
+13
+
+12
+
+11
+
+10
+
+9
+
+8
+
+7
+
+6
+
+5
+
+4
+
+3
+
+2
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+760050609174850110000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000

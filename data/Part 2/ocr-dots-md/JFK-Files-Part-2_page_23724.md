@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_23724.png
+
+Convert to Markdownoperations and choices between overt and clandestine human
+collection.
+
+Mr. Kirbow. And Mr. Chairman, without going back and
+belaboring one of the other recommendations, I think that the
+staff should do that in each instance where we may have given
+a task to a committee to do a great deal more detail because
+even on this domestic counter-intelligence activities my
+earlier recommendation was that by statute the policies governing
+domestic counter-intelligence should be considered.
+
+You don't want them to consider the day to day operation
+I don't believe.
+
+Mr. Aaron. But I do think that we shouldn't lose sight
+of the fact that we are interested particularly in the latter
+case and I think in this case that you're interested in the
+program.
+
+I mean you just don't want to say it will be the policy
+of the U.S. to do some or it would be the policy -- I mean
+you really want to have an opportunity in a management sense to
+look at the overall program -- is the program achieving what
+it's supposed to achieve, is the scale of the program here
+as opposed to there in the right balance to reflect our
+priorities?
+
+In other words, I think that...
+
+Mr. Miller. It's not a rubber stamp, you're smoking.
+
+Mr. Aaron. That's right and it isn't just accidental with
+
+TOP SECRET
+
+WORD BY PAUL
+
+HW 50955 DocId:32423509 Page 98

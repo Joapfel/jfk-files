@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_23340.png
+
+Convert to MarkdownTOP SECRET
+
+1 the same time period.
+
+2 This merely confirmed what I think I probably heard from Mr. Bissell first.
+
+3
+
+4 Mr. Baron. In this discussion with Mr. Bissell, you are referring to the subject of getting access to Lumumba for the purpose of assassination.
+
+5
+
+6
+
+7 Mr. Tweedy. I think it probably came up in the sense that the thrust of the American position was that there was no solution in the Congo without the fall from power of Mr. Lumumba, and no measure should be overlooked to achieve this -- constitutional, revolutionary and indeed, executive action, if you want to call it that.
+
+8
+
+9
+
+10 Mr. Baron. Meaning assassination?
+
+11 Mr. Tweedy. Yes.
+
+12 But none of these possible measures were excluded, and the main point was that everybody agreed that Lumumba had to go or we were in for very serious trouble in the Congo.
+
+13
+
+14 Mr. Baron. You were referring a moment ago in discussing this cable from Allen Dulles to the fact that when you first discussed the possibility of assassinating Lumumba as one means of removing him from power with Richard Bissell, Bissell referred to this cable.
+
+15
+
+16 Mr. Tweedy. No, I would have seen this cable when it went out. I am afraid you cannot pin me down on this, because I cannot remember the sequence of events. It would have been a
+
+TOP SECRET
+
+HW-

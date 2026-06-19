@@ -1,0 +1,60 @@
+# JFK-Files-Part-2_page_19752.png
+
+Convert to MarkdownFBI
+
+Date: 11/12/71
+
+Transmit the following in
+(Type in plaintext or code)
+
+Via AIRTEL
+
+(Priority)
+
+TO: DIRECTOR, FBI
+(ATTN: DOMESTIC INTELLIGENCE
+DIVISION)
+
+FROM: SAC, WFO (100-54927)
+
+WOMAN'S NATIONAL ABORTION
+ACTION COALITION (WONAC)
+SPONSORED DEMONSTRATION
+11/20/71, WASHINGTON, D.C.
+IS - NEW LEFT
+(00:WFO)
+
+Re WFO airtel to Bureau 11/5/71 and airtel and LHM 11/2/71.
+
+Enclosed for the Bureau are 10 copies of an LHM including two copies designated for the Identification Division, Latent Fingerprint Section. Also enclosed for the Identification Division is original letter to U.S. Capitol Police in container marked evidence.
+
+Source utilized in LHM is WF 2188-S.
+
+This LHM is being classified confidential to protect the unauthorized disclosure of information which could be prejudicial to the defense interest of the nation.
+
+It is noted that in the past the YSA/SWP organizers of captioned demonstration have eschewed violence to achieve their ends. This letter is being submitted due to the possible connection with captioned demonstration.
+
+U.S. Secret Service Intelligence Division and MPD Intelligence Division have been telephonically advised.
+
+ENCLOSURE
+
+Bureau (Enc. 10)
+
+(1-Identification Division, Latent Fingerprint Section (Enc. 3)
+
+1 - WFO
+
+RCC:jmg
+
+AGENCY: ACS/AWS-CS-55
+Sent: RPH J A C O B r S D
+DATE: 11/29/71
+U. S. GOVERNMENT PRINTING OFFICE: 1971-413-135
+
+Approved
+
+(4) Special Agent in Charge
+
+BY
+
+NW 88321 Doctd:32989545 Page 36

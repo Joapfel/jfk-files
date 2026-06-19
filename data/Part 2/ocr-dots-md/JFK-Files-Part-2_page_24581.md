@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_24581.png
+
+Convert to MarkdownMcCone also testified that McNamara agreed that the Lansdale Memorandum should be withdrawn for the same reason expressed by McCone, i.e. because the topic of a Castro assassination had not been given consideration by the Special Group Augmented. (McCone, p. 39).
+
+## (2) Testimony of Harvey
+
+As discussed above (see p. ___) Harvey's Memorandum of August 14, 1962 states that upon receiving Lansdale's August 13 Memorandum, Harvey demanded that Lansdale excise the words referring to "liquidation of leaders." Harvey's Memorandum further stated that "the Special Group (Augmented) is not expecting any written comments or study on this point." This latter passage raises the issue whether Harvey meant to state that the Special Group Augmented authorized a Castro assassination plan or activity but that no written record should be made. In his testimony, Harvey clarified this point by stating that the Special Group did not express a desire to proceed with the suggestion of a Castro assassination:
+
+"Senator Schweiker: ...was it understood in an unwritten way that (assassination) was to proceed?"
+
+"Mr. Harvey: Not to my knowledge, no.... If there was any unwritten understanding on the part of the members of the Special Group concerning this, other than what was said at the meeting, I do not know of it..."
+
+(Harvey, pp. 30-31).
+
+Harvey further testified that shortly after the August 10 meeting, McCone told Harvey that he had called McNamara to state that assassination should not be discussed and that he had told McNamara that if he was involved in such matters, he might be excommunicated from his church. (Harvey, p. 25).

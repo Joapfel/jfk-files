@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_23668.png
+
+Convert to Markdown Senator Huddleston. Could we solve it by just having a narrative statement at the end of all of these recommendations relating to the DCI to say that the foregoing, preceding recommendations would, if carried out, substantially strengthen the role of the DCI or they are intended to do that?
+
+And this brings up the question as to whether or not in this expanded role he should also at the same time be essentially responsible for the operation of one of the agencies and that this matter, as his duties are expanded, this matter needs to be considered further and a determination made whether or not it's appropriate that he continue to hold that responsibility.
+
+That's not a recommendation. It's just a commentary on what we have done.
+
+Mr. Kirhow. It highlights the problem and passes it to the oversight committee, which would have time to conduct hearings on it after some history had been established on the new role.
+
+Senator Mathias. Could Senator Hart elaborate on his brief statement of position?
+
+Senator Hart. I think the division out there that apparently the President has worked out is a bad one. And I for one would like to go on record somewhere or another as opposing it.
+
+Mr. Miller. Do you mean, Senator, that
+
+TOP SECRET
+WILL BE PUBLIC
+
+HW 50955 DocId:32423509 Page 42

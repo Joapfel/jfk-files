@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_22789.png
+
+Convert to MarkdownTOP SECRET
+
+Administration came in, at which time he moved over to the Defense Department.
+
+Mr. Schwarz. We have indicated to you that we are going to discuss the countries of Cuba, the Dominican Republic and Vietnam, although not much on Vietnam. And the majority and minority staff have shown you some documents of that period, some 15 years ago. Before I get to those three countries, I would like to ask you some questions about a subject called Executive Action. Have you ever heard of the subject called Executive Action?
+
+Mr. Bundy. Yes, I have.
+
+Mr. Schwarz. When did you first hear of it?
+
+Mr. Bundy. Well, as I have told your staff, that is a real difficulty for me, because I cannot pinpoint the time at which I heard of it. My impression was that it was some time in the early months of 1961.
+
+Mr. Schwarz. And do you have a recollection as to the context in which you heard about it, the person from whom you heard about it, and will you provide to the Committee your full recollection of the subject of Executive Action in the early 1961?
+
+Mr. Bundy. Would it help if I try to describe in a general way what I now understand of this matter, the part which is recollection and the part which is clarified by discussions with the staff and what I now think about it?
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+76000304116
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

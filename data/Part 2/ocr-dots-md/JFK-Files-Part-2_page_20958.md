@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_20958.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+TO : ACTING DIRECTOR, FBI
+
+FROM SAC, HOUSTON (100-12843) (RUC)
+
+SUBJECT: "FURIES" NEWSPAPER WOMENS LIBERATION MOVEMENT PUBLICATION WASHINGTON, D.C. IS - RA OO: WFO
+
+DATE: 10/11/72
+
+ReWFOlet to Bu, 7/31/72.
+
+The following investigation was conducted by SA RICHARD L. SCHUHLER at Houston, Texas:
+
+On 8/4/72, a review of Cole's 1972 City Directory for Houston, Texas revealed that telephone number 713-643-5584 is presently subscribed to DANIEL R. HARRIS, 8315 Meadville, Houston, Texas.
+
+REC 25
+
+On 8/4/72, a check was made of Houston indices and it revealed that a 62-0 information concerning entry for DANIEL R. HARRIS exists consisting of the following information:
+
+On 8/4/70, Mr. and Mrs. DANIEL R. HARRIS, 8315 Meadville, Houston, Texas, visited the Houston Office of the FBI requesting assistance because their daughter, HELAINE HARRIS, had run away from home on 5/12/70. On this occasion, Mr. HARRIS advised that for the previous six or eight months his daughter had become very interested in the National Organization of Women (NOW) and the Young Womens Liberation Front, which was active at the University of Houston. He stated that his daughter became interested in the Women's Liberation movement when she attended some courses at the University of Houston and at the University of Thought which was active on the University of Houston campus. HELAINE HARRIS attended the Southern Female Liberation meeting at Edwards, Mississippi from May 8-10, 1970 and upon her return from this meeting she left home after her parents had demanded she stop participating in this type of activity. Mr. HARRIS further advised that their daughter telephonically contacted him from Albuquerque, N. M. on 7/30/70 at which time she stated
+
+② - Bureau (RM)
+XEROX WFO (100-55290) (RM) 1cc 90401
+FI - Houston
+PHILIP MORRIS SAC 15 NOV 72
+
+(5)
+
+16 OCT 16 1972
+
+Rev. Act. Sect.
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+NW 88321 Doctd:32989546 Page 463

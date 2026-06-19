@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_19144.png
+
+Convert to MarkdownIn Reply, Please Refer to
+File No.
+
+UNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+New York, New York
+
+August 28, 1972
+
+Title Women's Bail Fund
+
+Character Internal Security -
+Revolutionary Activities
+
+Reference is made to New York memorandum,
+dated and captioned as above.
+
+All sources (except any listed below) whose identities are concealed in referenced communication have furnished reliable information in the past.

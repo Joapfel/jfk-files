@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_22596.png
+
+Convert to MarkdownTOP SECRET
+
+The United States Senate
+
+Report of Proceedings
+
+INVENTORIED
+ON 2/15/77
+BY BC
+
+Hearing held before
+
+Senate Select Committee to Study Governmental
+Operations With Respect to Intelligence Activities
+
+Thursday, June 19, 1975
+
+Washington, D. C.
+
+(Stenotype Tape and Waste turned over
+to the Committee for destruction)
+
+WARD & PAUL
+
+410 FIRST STREET, S. E.
+WASHINGTON, D. C. 20003
+
+(202) 844-6000
+
+TOP SECRET
+
+7600011404

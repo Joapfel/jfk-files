@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_22699.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+WARD & PAUL
+
+7600011539
+
+410 First Street, S.E., Washington, D.C. 20003
+
+TOP SECRET
+
+This is the very last question. You referred to files that are maintained on persons who have some contact with the Soviet Union and the Soviet nationals. And I would like to pursue that in a personal way.
+
+About two years ago Arbotov was in this country, and he came to lunch in my office. And we had several members of Congress there. Would this kind of thing be a matter of record?
+
+Mr. Angleton. If there was any technical coverage from the Soviet Embassy, then my answer would be yes.
+
+Senator Mathias. My recollection is, he came with one person with him, whose name I don't remember.
+
+Mr. Angleton. If the Bureau had him under surveillance, and he came here -- now, I am getting onto ground I don't know -- the newspaper said Mr. Hoover gave an order that the Hill was off-base, and when the Soviet came here he was never surveilled, and whom he saw was unknown. That is what the newspaper said. My own observation would be in any technical coverage of an installation, the door of an individual, would result in dossiers on all people who had contacts, if the man was suspect, or there is a reason.
+
+Senator Tower. Excuse me. You are talking about a Soviet person visiting members here on the Hill?
+
+Senator Mathias. Yes. And what I am trying to get at is the circumstances under which a file or dossier might be
+
+TOP SECRET
+
+HW 50955 DocId:32423393 Page 106

@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_22852.png
+
+Convert to Markdowncb 13
+
+Phone (Area 202) 544-6000
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Mr. Schwarz. As Bundy Exhibit 2B the minutes of the
+303 Committee of 18 June 1964.
+
+(Document referred to is marked as
+Bundy Exhibit No. 2B for
+identification.)
+
+TOP SECRET
+
+TOP SECRET
+
+76000930539

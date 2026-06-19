@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_22534.png
+
+Convert to MarkdownA 2 July 1965 handwritten note apparently prepared for a briefing of Wiley states partially, "Turn over any assts to 'B' (FBI) they want - cooperate."
+
+In July 1965, Mendoza received information from
+Wiley concerning his contacts with the American Security
+Council (ASC) and a mid-West speaking trip during the
+period 24 May to 1 June 1965. The latter trip, according
+to Wiley, was paid for by the Young Americans for Freedom.
+Regarding his contacts with the American Security Council,
+Wiley advised:
+
+"My contact with ASC goes back to the middle 1950's when I first met John Fisher. At that time he was setting up the organization based on Harry Jung's files. Before it was named ASC, the org. was the Mid-American Research Library, and, later, Fidelifax. (Perhaps vise versa).
+
+"Over the years I've been in touch with
+ASC frequently. In addition to Fisher, I know
+Jack Ison and Bill Lambie - both former FBI
+men who worked on the subversive desk in New
+York (and elsewhere?). Ison left ASC in 1962
+to join the Hoover Co., Canton, Ohio. My
+last information is that he was in their White
+Plains, N.Y. office. Another man in the Chicago
+office whom I met was D. Alspaugh, a research
+specialist. I have no knowledge of his back-
+ground.
+
+"In the Washington Office, I know Lee Pennington a friend for years before he joined ASC. While he was in Washington, I also knew Frank Johnson (a former ONI man?). I believe he is presently in Europe.
+
+"My first contact with Dewitt Copp was in the fall of 1964. (NOTE: During my conversation with Copp he told me that the Chinese Air Force U-2 Flights were tied in with CIA). I spoke to him about my trip to Asia because of his having been in the area and to obtain outlets for material. Copp was in close touch with the Chinese Embassy, and I think it was Frank Toa who
+
+RECEIVED FROM
+
+SEP 90 1975
+
+CIA
+
+SECRET-

@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_22296.png
+
+, presenting all
+22 of this evidence, frankly at the time not knowing if the King
+23 himself had a piece of the action --
+24 Senator Huddleston. Had some of this evidence come from
+25 the wiretap?
+
+TOP SECRET
+
+21
+
+Ward & Paul
+
+410 First Street, S.E., Washington, D.C. 20003
+
+HW 50955 DocId:32203816 Page 6
+
+TOP SECRET

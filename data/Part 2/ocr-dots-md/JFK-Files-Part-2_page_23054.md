@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_23054.png
+
+Convert to MarkdownTOP SECRET
+
+101
+
+this mission was over and they returned, those weapons were
+taken back from them and accounted for. They were shaken down
+so that we did not have weapons disappearing out of our
+control.
+
+Mr. Baron. Such weapons, high-powered rifles with telescopic scopes, conceivably with silencers, were supplied with some regularity, but they were kept under tight control?
+
+Mr. Halley. We had high-powered rifles. I cannot think now
+of a case where there was a sniper scope attached to the rifle.
+I can think of no case where there was a silencer attached to
+a rifle in any of these commando raids. There were a number of
+raids conducted, some of them involved teams of fifteen or
+twenty men. I am not prepared to say that no man ever had one,
+but I do not recall one. You know, if you gave me an inventory
+which are in the files, for each of the operations and say here
+is the operation plan, does this list of equipment fifteen years
+later look reasonable to you, I would be able to tell you yes
+or no. But off the top of my head, I do not recall a sniper
+scope or a silenced rifle.
+
+Mr. Baron. Do you know a man by the name of Rolando Martinez?
+
+Mr. Halley. Of Watergate involvement?
+
+Mr. Baron. Yes.
+
+Mr. Halley. Yes, I know of him. I have never met him personally. I know of him. He was a member of our boat
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+HW 50955 DocID:32423434 Page 103

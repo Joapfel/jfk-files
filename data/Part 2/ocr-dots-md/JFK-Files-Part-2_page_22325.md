@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_22325.png
+
+Convert to MarkdownSECRET/SENSITIVE
+
+Safe Houses for use by defectors and the wiring of operations assets' apartments or other premises where conversations with assets would be forthcoming. For instance, in 1962 the apartment of a defector (Golitzen) was wired. It was believed that Golitzen had become unhappy with CIA treatment and was considering leaving the country. A telephone tap was placed on his phone to attempt to verify this. Brewer believes that these cases involved positive foreign intelligence gathering as opposed to being security cases. From the names of the individuals whose conversations were to be recorded, Brewer presumes that most of these technical operations were directed against foreigners.
+
+Brewer is aware of a few technical operations relating to security. One involved the bugging of the premises of a former employee (Paul Garble) in about 1964 because of his questionable associates. Another, in 1963, involved a telephone tap on a newsman (although Brewer was unaware at the time the tap was placed that it was being directed against a newsman). (1149)
+
+The Technical Division of the Office of Security may have been involved in some technical operations in the United States during the 1960's and earlier. However, their primary responsibility was counter-audio work overseas. Brewer does not believe that they would have been involved in significant amounts of technical work in the States.
+
+## Surveillance Operations
+
+Prior to 1968, the Washington Field Office was performing some unsophisticated surveillance. This generally related to surveillance of defectors and training operations directed against perspective overseas CIA agents. The purpose of the training was to assist WFO in its surveillance techniques and to determine how well the perspective overseas agents could make contacts and "drops" without being detected. The Field Office had little equipment to undertake sophisticated surveillance at that time. (1150-28)
+
+In 1968, with the creation of the Surveillance and Technical Unit, a much more concentrated effort was made in the area of surveillance. (1157)
+
+## Assistance to Local Police
+
+Brewer remembers that at some point in time two sets of alias documents prepared by Technical Services were given to the Metropolitan Police Department. This included a social security card, driver's license, D. C. permit, etc.
+
+I again interviewed Mr. Brewer at approximately 2:30 pm on the same day, just prior to his leaving for the Commission hearings, at which he was testifying. He indicated that it was the policy of the CIA to offer gratuities to various
+
+SECRET/SENSITIVE
+
+HW 50955 DocId:32203834 Page 4

@@ -1,0 +1,60 @@
+# JFK-Files-Part-2_page_19689.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+TO : ACTING DIRECTOR, FBI
+
+DATE: 8/21/72
+
+FROM SAC, CHICAGO (100-52994) (P)
+
+SUBJECT:
+"FURIES" NEWSPAPER
+WOMEN'S LIBERATION MOVEMENT
+PUBLICATION, WASHINGTON, D.C.
+IS-RA
+OO: WFO
+
+Re Springfield letter to Bureau dated 7/6/72 and
+WFO letter to Bureau dated 7/31/72.
+
+Springfield by letter dated 7/6/72 requested that
+Chicago furnish to Washington Field pertinent information
+concerning SUSAN HATHAWAY as it appears in Chicago files.
+
+Pertinent information concerning HATHAWAY was
+furnished to Washington Field by letters dated 1/18/71 and
+1/24/72 captioned "SUSAN HATHAWAY, SM-NEW LEFT (EXTREMIST)"
+WFO file 100-48808.
+
+By letter dated 7/31/72 Washington Field furnished
+the toll call records for the "Furies" telephone 202 544-
+7613. The following numbers within the Chicago Division
+appeared in these toll records:
+
+312 528-2475
+
+Public records of the Illinois Bell Telephone
+Company (IBTC) disclose this number is listed to JUDSON
+H. MINER, 632 West Oakdale, Chicago. Another listing is
+shown for JUDSON H. MINER, lawyer, 22 East Huron, Chicago,
+telephone #751-1170. This latter number apparently is
+MINER's business office.
+
+2 Bureau (RM)
+2 Washington Field (100-5290) (RM)
+2- Chicago
+
+REC-63
+
+PLT:meb
+(6)
+
+SEP7 1972
+
+21 AUG 23 1972
+
+Rev. Act. Sect.
+
+NW 883-1-DocId:32989544 Page 570 Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan

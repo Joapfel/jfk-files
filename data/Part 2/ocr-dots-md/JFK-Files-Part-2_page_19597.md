@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_19597.png
+
+Convert to MarkdownST
+
+NY 100-172046
+
+plans for the march, and that this individual is probably
+ABBY~ROCKEFELLER, daughter of DAVID ROCKEFELLER, President
+of Chase Manhattan Bank, NYC.
+
+LEADS:
+
+ALBANY, BALTIMORE, BOSTON, CLEVELAND AND
+INDIANAPOLIS
+
+Will furnish any information regarding this
+matter to the Bureau, Alexandria and WFO.

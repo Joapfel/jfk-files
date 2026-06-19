@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_20081.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DEMONSTRATION PROTESTING
+UNITED STATES POLICY IN VIET NAM,
+WASHINGTON, D.C., JANUARY 15 - 16, 1968
+
+In October, 1963, Florence Criley attended a banquet sponsored by the CP of Illinois at Chicago.
+
+(CG T-6, November 21, 1963)
+
+Bernice Diskin
+
+Diskin is a current member of the CP of Illinois.
+
+(CG T-5, December 28, 1967)
+
+Rosalind Durham
+
+Rosalind Durham is a current member of the CP of Illinois.
+
+(CG T-5, December 28, 1967)
+
+Frieda Engel
+
+In 1944, Frieda Engel was a member of the Communist Political Association Club in the Manhattan Section of New York City, New York.
+
+(CG T-7, June, 1944)
+
+According to the Secretary of State of New York at Albany, New York, April 16, 1947, the name Frieda Engel appeared on a 1946 CP nominating petition in New York State.
+
+Virginia Hardin, a self-admitted former CP member, advised February 17, 1961, that she knew Frieda Engel to be a member of the Heights CP club of Cleveland, Ohio, as of April, 1960.
+
+CONFIDENTIAL

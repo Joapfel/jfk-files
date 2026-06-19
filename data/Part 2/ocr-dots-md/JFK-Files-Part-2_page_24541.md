@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_24541.png
+
+Convert to Markdownb. Helms' Testimony That He Had No Direct Order to Assassinate Castro and Did Not Inform the President or the Special Group of the Assassination Activity
+
+Helms testified that there was no direct order to assassinate Castro.
+
+He said that his perceptions of authority did not reach the point where he could testify that he had specific instructions to kill Castro. As he put it:
+
+"I have testified as best I could about the atmosphere of the time, what I understood was desired, and I don't want to take refuge in saying that I was instructed to specifically murder Castro." (Helms, 6/13, p.88).
+
+On the question of whether the President was informed of any assassination plots, Helms pointed out that "nobody wants to embarrass a President of the United States (by) discussing the assassination of foreign leaders in his presence" (6/13, p. 29), and that the Special Group was "the mechanism that was set up. . .to use as a circuit breaker so that these things did not explode in the President's face and that he was not held responsible for them." (6/13, p. 29). However, Helms also testified that he had "no knowledge that a Castro assassination was ever authorized by the Special Group (Augmented)" (6/13, pp.28-29).
+
+In addition, Helms said he never informed the Special Group Augmented or any member of that Group that Harvey had given the pills to Roselli in Miami "because I am not even sure I knew about it at the time." (Helms, 7/18, p.18).* Helms also stated he never told Robert Kennedy about any assassination activity and my "presumption is he wasn't informed" (Helms, 6/13, p.58), and that "Harvey kept (the Roselli pill plot) pretty much in his back pocket." (Helms, 6/13, pp.57-58).
+
+Helms further testified that although Robert Kennedy was "constantly in touch" with him in 1962 and 1963, Robert Kennedy never instructed Helms

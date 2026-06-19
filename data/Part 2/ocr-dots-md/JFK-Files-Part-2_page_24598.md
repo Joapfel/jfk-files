@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_24598.png
+
+Convert to MarkdownSorensen, who participated in these meetings, testified that the "widest possible range of alternatives" were discussed, but that "assassination was not even on the list". (Sorensen, 7/21/75, p. 4.) He said that consideration of possible options such as forcing "a non-Communist solution in Cuba by all necessary means" did not encompass assassination:
+
+"[this] could not have included or implied assassination. Instead, it expressly referred to 'the development of pressures' and 'gradual escalation of the confrontation in Cuba' to produce an overthrow of the regime, including 'a willingness to use military force to invade Cuba'. Such a course was obviously not adopted by the President, and in any event expressed an approach far different from assassination". (Sorensen affidavit, 7/25/75, p. 4).*
+
+The record of the first Standing Group discussion of Bundy's memorandum shows that a number of alternatives were discussed (none of which involved assassination) but no conclusions were reached.
+
+On May 28, 1963, the Standing Group met again. McCone argued for steps to "increase economic hardship" in Cuba, supplemented by sabotage to "create a situation in Cuba in which it would be possible to subvert military leaders to the point of their acting
+
+*/ The Bundy memorandum also used the phrase "all necessary measures" to describe the steps the U.S. was willing to take to "prevent" a direct military threat to the U.S. or to the Western Hemisphere from Cuba. Sorensen explained the meaning of this phrase in the context of the April 23 discussion of Kennedy Administration policy.
+
+"[this phrase] could not by any stretch of semantics or logic have included assassination or any other initiative. It reflected the purely defensive posture implemented six months earlier when long-range missiles and other offensive weapons were placed in Cuba. (Sorensen affidavit, 7/25/75, p. 4)

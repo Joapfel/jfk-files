@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_23098.png
+
+Convert to MarkdownPara el 28 de setiembre de 1963, aniversario de los Comités de Defensa de la Revolución, los contrarrevolucionarios Orlando Martíniano de la Cruz Sánchez, Juan Israel Cazañas León, Jesús Plácido Rodríguez Mosquera, Luis Beltrán Arencibia Pérez, Francisco Vlanco de los Cuetos, Federico Hernández González y otros, vinculados al agente del CIA Pierre Owen Diez de Ure, prepararon un plan de atentado contra nuestro Primer-Ministro.
+
+Estos elementos, agrupados en las organizaciones contrarrevolucionarias "Frente Interno de Unidad Revolucionaria" (FIUR), "Triple A", "Movimiento Democrático Revolucionario" (MDR), "Ejército de Liberación Nacional" -- (ELN), contaron con el asescamiento y aseguramiento de la CIA.
+
+El plan consistía en dinamitar las conductoras del alcantarillado que pasa por debajo de la tribuna presidencial. Liquidado el plan y detenidos los autores, el agente -- Pierre Owen Diez de Ure, ciudadano francés residente en nuestro país, confesó que trabajaba para la CIA desde hacía dos años -- aproximadamente, facilitándole informaciones de diversa índole.
+
+For September the 28th 1963, anniversary of the Committees of Defense of the Revolution, the counterrevolutionary Orlando Martíniano de la Cruz Sánchez, Juan Israel Cazañas León, Jesús Plácido Rodríguez Mosquera, Luis Beltrán Arencibia Pérez, Francisco Vlanco de los Cuetos, Federico Hernández des González and others, related to the -- CIA agent Pierre Owen Diez de Ure, prepared a plot against our Prime Minister.
+
+These individuals grouped into the "Frente Interno de Unidad Revolucionaria" (FIUR), -- "Triple A", "Movimiento Democrático Revolucionario" (MDR), "Ejército de Liberación Nacional" (ELN) counterrevolutionary organizations, had CIA advice and support.
+
+The plan was to dynamite the sewage pipes - which pass under the presidential tribune. Once the plan frustrated and the authors -- arrested, the agent Pierre Owen Diez de Ure, French citizen living in our country, ---- confessed that he had been working for the-CIA for approximately two years, and that he had given this Agency information of various sorts.
+
+76000070:J.C.

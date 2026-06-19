@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_24550.png
+
+Convert to MarkdownThus, Harvey relied upon his superiors within the Agency for authority.
+
+Indeed, Harvey indicated that his perception of the authorization for the
+1962 assassination activity may have come from the period when Allen Dulles
+was DCI. As Harvey stated:
+
+> "But I had every right to believe organizationally,
+> humanly, whatever way you want to put it, that nothing
+> that was being told to me by Bissell had not in fact
+> come to him from /Allen Dulles/.
+
+But Harvey made clear that this did not imply that McCone knew of or au-
+thorized the assassination activity:
+
+"The Chairman: 'That doesn't necessarily mean that be-
+cause the previous director had knowledge that Mr. McCone
+had knowledge. It is not like a Covenant that runs in
+the land.'"
+
+"Mr. Harvey: 'No, of course not, and they don't always
+brief their successors.'" (Harvey, 6/25, p. 85.)

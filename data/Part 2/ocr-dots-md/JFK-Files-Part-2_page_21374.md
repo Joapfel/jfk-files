@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_21374.png
+
+Convert to MarkdownSECRET
+
+UNITED STATES GOVERNMENT
+
+TO : D. J. BRENNAN
+FROM : S. J. PAPICH
+
+DATE: September 3, 1963
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED AND EXCEPT WHERE SHOWN OTHERWISE.
+
+SUBJECT: PERMANENT STUDENT COMMITTEE FOR TRAVEL TO CUBA IS - C
+
+Austin Horn, Central Intelligence Agency (CIA), advised the Liaison Agent on August 30, 1963, that a reliable CIA source in Madrid, Spain, had been in contact with Mark Tischman, one of the American students who accompanied the group which recently visited Cuba. This contact took place on August 27, 1963, at which time Tischman volunteered the following information to the CIA source:
+
+Tischman identified the following students as "fellow travelers": Joseph Rex, Elena B. Fleming, John Milton, Don Ranmann, and Alberti Maher.
+
+Tischman referred to Levi Laub as a "communist in ideology" but not a Party member. He stated that Phillip A. Luce is "a person of Marxist-Leninist tendencies"; that Michael Brown is a Trotskyite; that John W. Thomas is a decided partisan of the policy of Mao Tse Tung; that Eric D. Johnston is "of communist ideology though not a Party member"; that Clinton M. Jenks is "the son of the number three ranking communist in California"; and that the only student in the group who is actually a member of the Party is Allan Sheffield.
+
+ACTION:
+Possible C.P. Member
+1948
+SYM
+C.P. Suspect
+
+The above information is being directed to the attention of the Internal Security and Nationalities Intelligence Sections.
+
+4-1-98
+CLASSIFIED BY 5668 SLD / KSR
+DECLASSIFY ON: 25X (JFK)
+REC 46
+
+1 - Mr. Baumgardner
+1 - Mr. Wannall
+1 - Mr. Simpson
+1 - Liaison
+1 - Mr. Papich
+
+SJP : gp
+
+(6)
+
+11 SEP 5 1963
+
+SEP 10 1963
+
+CIA HAS NO OBJECTION TO DECLASSIFICATION AND/OR RELEASE OF CIA INFORMATION IN THIS DOCUMENT, EXCEPT FOR THE BRACKETS.
+
+SECRET
+
+HW 50953 DocId:32338055 Page 2

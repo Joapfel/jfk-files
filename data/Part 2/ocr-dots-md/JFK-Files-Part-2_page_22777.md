@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_22777.png
+
+Convert to MarkdownTOP SECRET
+
+gsh
+
+1 Prior, he was Deputy Chief of the NKVD. He was the resident
+2 KGB resident in Peking. He's the one who with Mao set up the
+3 underground that took over China. He was the head of Karlhorst
+4 the largest KGB in Germany. He operated people like George
+5 Blake. He organized the kidnapping of Otto John, the head
+6 of Security, West Germany.
+
+7 He has now been placed as the Deputy Chief, or Deputy
+8 Chairman, of the Moscow Chamber of Commerce, the same role that
+9 DZHERDZINSKY Lenin had Derjensky in the NEP. That is the role to be
+10 able to deal with Western capitalists with the view of abroad
+11 recruitments and with the view of using them as agents of
+12 influence.
+
+13 Now there's a tremendous amount of data. Now this is
+14 what I'm trying to say, that counter-intelligence has always
+15 been kept at a very low level as far as its ability to submit
+16 such studies or whatnot to the National Security Council or to
+17 a forum where they are debated. But they happen to be the
+18 only hard intelligence because they are coming from men who
+19 were 16 years in this one case, a part of that mechanism and
+20 who read all the files.
+
+21 Mr. Epstein. What happens to all that?
+
+22 Mr. Angleton. Well, that's been used by directors in
+23 briefings but there's never yet been a forum where you can
+24 actually have a confrontation with people who hold contrary
+25 views.
+
+WARD & PAUL
+
+760011327
+
+410 First Street, S.E., Washington, D.C. 20003
+
+TOP SECRET

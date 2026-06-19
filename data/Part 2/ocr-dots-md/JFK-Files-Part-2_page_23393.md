@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_23393.png
+
+Convert to MarkdownTOP SECRET
+
+Mr. Baron. This cable requests the views of the Chief of Station on suggestions A, B and C for various covert operations.
+
+In paragraph C, there is a reference to WEROAK.
+
+Mr. Tweedy, we have received the representation from the CIA that that was a cryptonym used to refer to Lumumba.
+
+Is that consistent with your interpretation of the cable?
+
+Mr. Baron. It is indeed.
+
+Mr. Tweedy. This paragraph C says in part: "Only direct action we can now stand behind is to support immobilizing or arresting WEROAK, desirable as more definitive action might be. Any action taken would have to be entirely Congolese."
+
+Now, you signed this cable, but it was not sent in the special sensitivity channel that dealt with Gottlieb's mission to the Congo.
+
+Before we discuss this cable, let us also introduce into the record as Exhibit II another cable which you signed on October 15, 1960 which was sent in the YOPROP channel to the Chief of Station.
+
+(The document referred to was marked Tweedy Exhibit No. 11 for identification.)
+
+TOP SECRET
+
+NW

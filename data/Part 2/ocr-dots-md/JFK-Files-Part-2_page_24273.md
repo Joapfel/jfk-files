@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_24273.png
+
+Convert to MarkdownGenerally, the notionals have increased in number by about
+30% since the current CCS chief's takeover of Cover operations
+in 1967. This reflects a policy of increasing the number of
+cutout arrangements to increase security -- i.e., reduce likeli-
+hood of outside discovery of the identity of agents or case
+officers working under cover of the end-point notional by intro-
+ducing intermediate notionals for payments or identity backstops.
+
+What does this ~~table~~ tell us about basic distinctions of one type of proprietary from another? First, it indicates that external registration divides the pot in half. Those which have some form of legal standing with U.S. (State, local) and foreign corporate regulatory and tax authorities are subject to external governmental scrutiny. This occasions additonal expense and man-power to assure that in all respects this group of proprietaries behaves in accordance with local law and commercial expectations. The second group -- the notionals -- exist only as names on doors and phone directories and stationery, with backstopping for identi-fication provided by Agency switchboards, mailstops, and check issuance.
+
+The next level of distinction is within the class of legally
+registered proprietaries: those which carry on a commercial in-
+come-producing operation and those which are simply cover arrange-
+ments, with at most a bank account and an attorney backstopping
+calls and mail. The latter are shown in the table above as
+"devised facilities" and "DFN"'s.
+
+Within the class of commercial, income--productive proprietaries,
+there is a distinction between those which are wholly dependent upon
+
+HW 50955 DocId:32423532 Page 167

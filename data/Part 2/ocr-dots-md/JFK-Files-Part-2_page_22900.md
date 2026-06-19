@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_22900.png
+
+Convert to Markdown18
+
+115
+
+possession of those who did so.
+
+Now what I would like is, while we finish this cycle on assassinations, that we include among our studies of alleged assassinations this matter and we request the documentation, of all appropriate documents, under the category of assassination.
+
+Mr. Schwarz. Senator, when that document came to our attention, we questioned a person who expands upon the allegations contained in the documents. I wrote a letter to the White House and the CIA. We wanted forthwith to receive copies of all such documents relating to the passage of weapons. We have had no response from the CIA.
+
+Mr. Hills, we met with in the White House a week ago Tuesday or Wednesday, and I said we must have the documents and he said you cannot have them until you have the briefing on Chile, because we refuse to accept this as an assassination plan.
+
+The Chairman. May I make this suggestion, Senator Mondale?
+
+First of all, I believe that it is absolutely imperative that the Committee complete its investigation on the issue of the assassination of foreign government leaders before the recess and issue its report. That puts us under great pressure, but if we don't do it, I am going to ask the Committee to stay on the job. I would like very much to go to China, that is my first opportunity in forty years to go to China, and I have
+
+TOP SECRET
+
+7600030587
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area 202) 544-6000
+
+HW 30933 Social:52423406 Page 110

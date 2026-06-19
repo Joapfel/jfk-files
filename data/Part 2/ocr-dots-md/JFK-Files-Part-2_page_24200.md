@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_24200.png
+
+Convert to Markdownb) THE SALE OF SOUTHERN AIR TRANSPORT, INC.: A CASE STUDY IN DISPOSAL OF A CIA PROPRIETARY
+
+BACKGROUND
+
+Southern Air Transport Incorporated (SAT) is a U.S. Air Carrier,
+incorporated in the State of Florida on October 31, 1949. From its
+inception until its purchase in 1960 by the Central Intelligence
+Agency (CIA), it was privately owned by Messrs. Fredrick C. Moor
+and Stanley G. Williams. It was purchased by the CIA on August 5,
+1960, and owned by the CIA through December 31, 1973. CIA sold the
+firm back to Mr. Williams on December 31, 1973.
+
+The decision to acquire Southern Air Transport was triggered by
+a change in the regulations governing the award of Military Air Trans-
+port Service (MATS) contracts. On April 1, 1960, Air America (AAM)
+had begun flying a seven-month MATS contract operating out of Tachikawa
+AFB in Japan, to other Pacific locations. In June of 1960, the De-
+partment of Defense (DOD) and the Civil Aeronautics Board (CAB) changed
+the regulations governing the awarding of MATS contracts to require
+that bidders hold at least a Supplemental Certificate of Convenience
+and Necessity for an Air Carrier and that they participate in the
+Civil Reserve Air Fleet Program (CRAF). Air America did not meet
+either of these new criteria and could not obtain appropriate waivers
+to them. The Air America heavy airlift capability represented an
+asset for use by the U.S. Government in future operational contin-
+gencies throughout the Far East area. Loss of the MATS contract
+would result in under utilization of aircraft and air crews and the
+
+HW 50955 DocId:32423532 Page 94

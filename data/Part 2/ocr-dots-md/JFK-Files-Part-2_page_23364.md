@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_23364.png
+
+Convert to MarkdownTOP SECRET
+
+Mr. Tweedy. This is mostly discussion of [機密]。
+
+Mr. Baron. The man you referred to was at this time an agent that was in contact with the Chief of Station?
+
+Mr. Tweedy. I remember him very well. I could not possibly remember his name. I remember him very well; I met him later.
+
+Mr. Baron. He proved to be a highly effective agent for the Station?
+
+Mr. Tweedy. He was a very good intelligence agent, an excellent intelligence agent, for the simple reason that he was able to make contact with groups and media in the Congo which was very difficult for non-Africans to reach. He was, for a year or two, a first-class intelligence source basically: not an action source, but an intelligence source.
+
+Mr. Baron. When you read the sentence that is at the beginning of paragraph B on the first page where it says: "Concur this possibility worth watching, but if decided support for TOPROP objectives. Believe essential such be provided through third national channel with PRIME role completely concealed."
+
+What are you referring to there?
+
+Mr. Tweedy. I am not sure; I do not remember. I do not recall what the incoming cable said.
+
+What I am obviously saying is [机密] had, I guess, an [机密] wife who was, at least had been, an [机密] employee. I think what I was saying is, if we wanted to use
+
+TOP SECRET
+
+WORK
+
+04
+
+08
+
+10

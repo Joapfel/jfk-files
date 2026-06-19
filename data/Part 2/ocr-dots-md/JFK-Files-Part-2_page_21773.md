@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_21773.png
+
+Convert to Markdown# TOP SECRET
+
+10
+
+Mr. Wides. You never heard of any plots, nor of any
+arrested people attempting to shoot a bazooka when he was
+giving a speech at Havana Stadium?
+
+Mr. Sarno. No, sir.
+
+Mr. Wides. Let me go to the period when you went to
+Florida.
+
+When you first came here, that was before Station Chief
+Noel had moved the whole station to Miami?
+
+Mr. Sarno. Noel wasn't there. When I arrived in Florida,
+Noel was not then -- no, sir, he was not the station chief.
+
+Mr. Wides. Who was the station chief?
+
+Mr. Sarno. I don't think I should give you his name.
+I don't know. You have the rest of all of them, but I can't
+recall --
+I can state that there were two station chiefs between
+Noel and Shackley, three of them, in fact.
+
+
+
+Mr. Wides. Shackley came in when, 1963?
+
+Mr. Sarno. '62.
+
+Mr. Wides. When in '62?
+
+Mr. Sarno. I think the spring of '62 is when it was.
+
+Mr. Wides. When was he replaced by Mr. Dimmer?
+
+Mr. Sarno. If I am not mistaken, it was in '64, I think.
+June, July, I think, something like that, of '64.
+
+Mr. Wides. And then Mr. Dimmer was replaced in '66 by
+Mr. Hines, Paul Hines?
+
+410 First Street, S.E., Washington, D.C. 20003
+
+HW 50955 DocId:32202440 Page 5
+
+TOP SECRET

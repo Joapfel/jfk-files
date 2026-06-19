@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_19990.png
+
+Convert to Markdown**CONFIDENTIAL**
+
+UNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Philadelphia, Pennsylvania
+
+December 22, 1967
+
+DEMONSTRATION PROTESTING UNITED
+STATES POLICY IN VIETNAM,
+WASHINGTON, D.C., JANUARY 15, 1968
+
+On December 21, 1967, a source made available "A Call To American Women." A Xerox copy of this "Call" is attached to this memorandum.
+
+The source obtained the call at a meeting of the Philadelphia Social Science Forum Committee (PSSFC) held on December 15, 1967.
+
+A characterization of the PSSFC is attached to this memorandum.
+
+Source advised that at the PSSFC meeting of December 15, 1967, a film about Vietnam was shown. After the film, RUTH KRAUSE, a housewife from Cherry Hill, N.J., who have been to Vietnam, spoke.
+
+A second source advised on December 18, 1967, that RUTH KRAUSE was a member of the Communist Party of Eastern Pennsylvania and Delaware (CPEPD) at that time.
+
+On the "Call," listed under "Partial List of Sponsors" were the following names with no further identifying data:
+
+CATHERINE L. GAMP
+RUTH KRAUSE
+ETHEL TAYLOR
+
+CONFIDENTIAL
+
+GROUP I
+Excluded from
+automatic downgrading
+and declassification
+
+ENCLOSURE
+
+In Reply, Please Refer to
+File No.

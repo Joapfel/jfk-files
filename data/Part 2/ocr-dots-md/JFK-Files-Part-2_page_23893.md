@@ -1,0 +1,57 @@
+# JFK-Files-Part-2_page_23893.png
+
+Convert to Markdown1 first of all, and then we'll take up 47.
+
+2 Mr. Miller, will you call the roll?
+
+3 Senator Huddleston. Mr. Chairman, I think I am probably
+
+4 the only one that has suggested that it should not be statutory,
+
+5 and I would just point out that that might be a result of the
+
+6 fact that I am in the media, so I would withdraw that unless
+
+7 somebody else wants to make that recommendation.
+
+8 The Chairman. I thought yours went to 47.
+
+9 This is 46.
+
+10 Senator Huddleston. It did, but they both relate to the
+
+11 media.
+
+12 The Chairman. Well, let's take a vote on 46, which
+
+13 would recommend that Congress enact a statute conforming to
+
+14 the CIA's self-imposed prohibition on U.S. journalists or
+
+15 foreign journalists accredited to the U.S. media abroad.
+
+16 Mr. Miller. Mr. Hart of Michigan.
+
+17 Senator Hart of Michigan. Did you want a roll call?
+
+18 The Chairman. Yes.
+
+19 Senator Hart of Michigan. Aye.
+
+20 Mr. Miller. Mr. Mondale.
+
+21 Senator Mondale. Aye.
+
+22 Mr. Miller. Mr. Huddleston?
+
+23 Senator Huddleston. Aye.
+
+24 Mr. Miller. Mr. Morgan.
+
+25 Senator Morgan. Aye.
+
+TOP SECRET
+
+WARD & PAUL
+
+HW 50955 DocId:32423521 Page 38

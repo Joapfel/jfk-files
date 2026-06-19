@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_19685.png
+
+Convert to MarkdownBS 100-44951
+
+Boston file 100-38735 entitled "EVAN PATCHEN DELLINGER, aka PATCH DELLINGER; SM - ANARCHIST (BUFILE 100-450988)" reflected that DELLINGER was subject of Boston investigation based on his participation in a "Teach-In" and Rededication Service on 1/29/68 at the Arlington St. Church, Boston. During the above activity, DELLINGER made a statement in support of the "Resistance Group" and turned in what was reported to be Selective Service cards.
+
+The primary function of the Resistance Group was to aid, abet, and counsel young men faced with the draft.
+
+EVAN PATCHEN DELLINGER graduated from Swarthmore College, Swarthmore, Pa., on 6/6/66 majoring in economics. He was arrested at Chester, Pa. on 4/1/64 and was charged with disorderly conduct.
+
+The 1968-69 Harvard University Directory of Officers and Students reflected that DELLINGER was enrolled in the School of Medicine, Harvard University, Cambridge, Mass.
+
+It had been reported that PATCH DELLINGER was present at a Socialist Workers Party (SWP) Street Meeting in New York City on 7/21/64.
+
+The file further disclosed that inasmuch as the Boston office had no current information associating DELLINGER with the SWP or the Young Socialist Alliance and that his activities on behalf of the New England Resistance were pacifist in nature, it was felt that DELLINGER did not warrant inclusion on the Security or Agitator Indexes maintained at that time; and thus, the case was placed in a closed status.

@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_23674.png
+
+Convert to MarkdownThere agreed upon at the staff level that were left out:
+
+Mr. Aaron. I have one here.
+
+Mr. Kirhow. Well, just for your information, there appears to be several things which were not just an occasional one but several things that were agreed on at the staff level that subsequently found their way back here in the exact original language.
+
+But I won't dwell on that now.
+
+Mr. Aaron. I'd be happy to take that out to see what we can do about it.
+
+Now the first bracket that I find is on page 36. If there are any others before that that people have, we can take that no.
+
+Mr. Maxwell. There's one on 32. It's not a bracket but it was a statement that would have been included as to the committee's findings as to internal controls on espionage activities by the Central Intelligence Agency.
+
+Mr. Aaron. Yes, I recall that one.
+
+Mr. Maxwell. Also on that page there's no effective machinery to make sure that those outside the clandestine service. I think that was addressed to the CIA because unless a finding is made at the CIA that the WCI at this point the Director...
+
+Mr. Aaron. I don't understand.
+
+TOP SECRET
+
+NW 50955 DocId:32423509 Page 48

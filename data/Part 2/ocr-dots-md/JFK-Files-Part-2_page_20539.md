@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_20539.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+NOV 18 1971
+
+NR 007 SF CODE
+
+TELETYPING
+
+11:02PM NITEL 11/17/71 JAK
+
+TO DIRECTOR
+ATLANTA
+NEW YORK
+WASH FIELD OFFICE
+
+FROM SAN FRANCISCO (157-0) 2P
+
+WOMEN'S NATIONAL ABORTION COALITION, WASHINGTON, D.C. EM.
+
+RELIABLE SOURCE ADVISED THAT ERICKA HUGGINS HAS BEEN REQUESTED TO APPEAR AT A RALLY AND DEMONSTRATION SPONSORED BY CAPTIONED ORGANIZATION TO BE HELD IN WASHINGTON, D.C. NOV. TWENTY NEXT.
+
+ON NOV. SIXTEEN LAST, HUGGINS DISCUSSED THIS MATTER WITH SPP CHAIRMAN BOBBY SEALE IN NEW YORK INFORMING HIM OF THE REQUEST AND THAT THE ORGANIZATION WAS BEING RUN BY ALL BLACK WOMEN AND ALL OF THE SPEAKERS TO APPEAR WERE TO BE BLACK. REPORTEDLY THE ROUND TRIP FARE FOR TWO WOULD BE PROVIDED IN THE EVENT HUGGINS CAN APPEAR.
+
+END PAGE ONE
+
+REC-36
+
+NOV 19 1971
+
+NOV 88321 DocId:32989546 Page 44
+
+<table><tr><td>Mr. Tolson</td></tr><tr><td>Mr. Rosen</td></tr><tr><td>Mr. Mohr</td></tr><tr><td>Mr. DeJP</td></tr><tr><td>Mr. Miller, ES</td></tr><tr><td>Mr. Callahan</td></tr><tr><td>Mr. Casper</td></tr><tr><td>Mr. Conrad</td></tr><tr><td>Mr. Dalbey</td></tr><tr><td>Mr. Cleveland</td></tr><tr><td>Mr. Pender</td></tr><tr><td>Mr. Bates</td></tr><tr><td>Mr. Tavel</td></tr><tr><td>Mr. Walters</td></tr><tr><td>Mr. Soyars</td></tr><tr><td>Tele Room</td></tr><tr><td>Mrs. Morris</td></tr><tr><td>Miss Gandy</td></tr></table>
+
+INCORPORATED
+
+100-465406 - 10

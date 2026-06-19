@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_23672.png
+
+Convert to MarkdownThat would be the main reason that I would think that you would move the DCI away from that.
+
+Senator Mathias. But it does not appear to me that you exonerate your national intelligence officer, whatever you call him. just because you have someone else you can also point to.
+
+I think you'd get two fish on the same hook if something goes wrong.
+
+Mr. Aaron. I think that would be in part true depending upon what the particular problem was.
+
+Senator Mathias. Well, sure, if their checkwriter is out of wack and they haven't called in the repairman, they might confine the responsibility to...
+
+Senator Huddleston. Actually, you don't exonerate him. As I see it for the operations of the Central Intelligence Agency you have added to him the responsibility for the operations of the other intelligence agencies, too, and he has to review authority and he is fact would be the focal point of any misdeed or wrong deed that may occur, whether it's in NSA or CIA or whatever.
+
+Mr. Aaron. It would really be very similar to the role he would now have under the Executive Order to the NSA. It's much closer to that.
+
+We'll go ahead with this memorandum and present it either this afternoon or at some time next week.
+
+TOP SECRET
+
+... TOP SECRET ...

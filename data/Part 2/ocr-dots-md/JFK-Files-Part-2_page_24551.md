@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_24551.png
+
+Convert to Markdownb. **Harvey and the Special Group Augmented**
+
+Harvey testified that he never informed the Special Group Augmented, or any of its members individually, of the ongoing assassination plots. As we described earlier, the Special Group Augmented and its Mongoose program began its Cuba activities in late 1961 through 1962. Harvey attended many of the Special Group Augmented meetings as the CIA's representative. He testified that at no time was assassination discussed at any of the meetings, except for the August 10, 1962 meeting.*
+
+We took substantial testimony covering the April/May 1962 period when the underworld contact was reactivated, the pills were passed to Roselli and delivered to Cuba. Harvey had been appointed several months earlier as head of the CIA's Task Force W, which operated under the Special Group Augmented as the CIA's action arm for Mongoose activities.
+
+In the latter part of April, Harvey went to Miami where the CIA had its large (at least 200 persons) JM/WAVE Station. As Harvey testified, in addition to his meeting with Roselli and the delivery of the poison pills, Harvey's trip had other totally unrelated (in Harvey's view) purposes as well:
+
+"...this was one of a number of periodic trips for the purpose of reviewing in toto...the actual and potential operations at the Miami base...and this covered the whole gamut from personnel administration, operational support in the way of small craft [and] so on..."(Harvey., 7/11, pp. 15-16).
+
+The Special Group Augmented expected to receive a report from Harvey on his April trip to Miami. On April 19, 1962, while Harvey was in Miami, Lansdale told the Special Group Augmented that:
+
+"Upon the return of Mr. Harvey from his current field visit, more specific information on the status of agent training and operations should be made available." (Memorandum for
+
+* This meeting and the testimony concerning it is treated in depth in the section, infra, pp. ____.

@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_24743.png
+
+Convert to Markdownactual assassination plots against Castro already undertaken by the CIA (Bissell, 6/11/75, p. 47; 7/22/75, p. 31). Bissell was "quite certain" that he would not have expected Bundy to mention the executive action capability to the President. (Bissell, 7/22/75, p. 35). Bissell testified:
+
+Q. Would you think the development of a capability to kill foreign leaders was a matter of sufficient importance to bring to the attention of the President?
+
+Bissell: In that context and at that time and given the limited scope of activities within that project, I would not." (Bissell, 7/22/75, p. 35).
+
+Bissell said that he and Bundy spoke about an untargeted "capability" rather than the plan or approval for an assassination operation (Bissell, 7/17/75, p. 11). Bissell said that although he does not have a specific recollection, he "might have" mentioned Castro, Lumumba, and Trujillo in the course of a discussion of executive action "because these were the sorts of individuals at that moment in history against whom such a capability might possibly have been employed." (Bissell, 6/11/75, pp. 50-51).
+
+Bissell said his impression was that Bundy, in addition to expressing no unfavorable reaction to the project, might have actually given a more affirmative reaction (Bissell, 7/22/75, pp. 25, 28). Bissell testified that he might have interpreted Bundy's reaction as approval for the executive action concept (Bissell, 7/22/75, p. 30).
+
+Q: ... I think the testimony of this witness is going further in saying what you received from (Bundy) was, in your view, tantamount to approval?
+
+Bissell: I, at least, interpreted it as you can call it approval, or you could say no objection. He (Bundy)

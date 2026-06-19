@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_23374.png
+
+Convert to MarkdownTOP SECRET
+
+39
+
+Mr. Baron. You would read that sentence literally instead of an oblique reference to getting access to Lumumba's food by which he might be poisoned?
+
+Mr. Tweedy. I would read it much more literally than that.
+
+Mr. Baron. Let us turn then to Exhibit 6, which is a cable from the Chief of Station on September 30th to Jadwin, which is yourself —
+
+(The document referred
+to was marked Tweedy
+Exhibit No. 6 for
+identification.)
+
+TOP SECRET
+
+NW

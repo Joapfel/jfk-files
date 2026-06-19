@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_21915.png
+
+Convert to Markdownon September 21, 1960, Allen Dulles stressed the danger of
+Soviet influence in the Congo. Despite the fact that Lumumba
+had been deposed from his position as Premier and was in UN
+custody, Dulles continued to regard him as a threat, especially
+in light of reports of an impending reconciliation between
+Lumumba and the post-coup Congolese government:
+
+Mobutu appeared to be the effective power in the
+Congo for the moment but Lumumba was not yet
+disposed of and remained a grave danger as long
+as he was not disposed of. (NSC Minutes,
+9/21/60.)
+
+Three days after this NSC meeting, Allen Dulles sent a
+personal cable to the Chief of Station in Leopoldville which
+included the following message:
+
+WE WISH GIVE EVERY POSSIBLE SUPPORT IN ELIMINATING LUMUMBA FROM ANY POSSIBILITY RESUMING GOVERNMENTAL POSITION OR IF HE FAILS IN LEOP[OLDVILLE], SETTING HIMSELF IN STANLEYVILLE OR ELSEWHERE. (CIA Cable, (OUT 73573), Dulles to Leopoldville, 9/24/60.)
+
+On September 26, (Sidney Gottlieb), under assignment from CIA headquarters, arrived in Leopoldville (CIA Cable [IN 18989], Leopoldville to Director, 9/27/60), provided the (Chief of) Station with poisons, instructed him to assassinate Lumumba, and assured him that there was Presidential authorization for this mission (see Sections 4(b)-4(c), supra).
+
+Marion Boggs, NSC Deputy Executive Secretary, who wrote
+the memorandum of the discussion of September 21, did not
+interpret Dulles' remark as referring to assassination...

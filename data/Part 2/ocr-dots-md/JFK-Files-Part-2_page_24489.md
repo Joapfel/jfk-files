@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_24489.png
+
+Convert to Markdown(DRAFTING SUBCOMMITTEE)
+
+8/29/75
+
+c. THE QUESTION OF AUTHORIZATION DURING THE KENNEDY ADMINISTRATION
+---
+
+The evidence on the issue of whether or not assassination plots were authorized during the Kennedy Administration is divided herein into two broad sections. The first primarily relates to the assassination operation involving underworld figures and occurring prior to the Bay of Pigs invasion of April, 1961. The second section deals with the Post-Bay of Pigs period, including the Roselli operation in the spring of 1962, Operation Mongoose, the laboratory schemes in early 1963, and the AM/LASH plot in the fall of 1963.
+
+(i) PRE-BAY OF PIGS ASSASSINATION PLOTS
+
+The pattern of testimony for this period was essentially the same as for the Eisenhower Administration. Bissell, once again, said he assumed and believed that Dulles had met with President Kennedy and informed him, in a circumlocutious fashion, that the operation had been planned and was being attempted. Bissell also testified that he (Bissell) did not inform the President about the assassination efforts or any of the other non-CIA persons with whom he was working on covert Cuban operations. The Kennedy Administration officials all testified that they did not know about or authorize the plots. Furthermore, they said they did not believe the President did or would authorize an assassination plot.
+
+There were for this period no significant contemporaneous documents.
+
+a. BISSELL WAS OF THE OPINION THAT DULLES HAD INFORMED PRESIDENT KENNEDY THAT THE ASSASSINATION OPERATION HAD BEEN PLANNED AND WAS BEING ATTEMPTED
+
+When John F. Kennedy became President in January, 1961, Richard Bissell was still Deputy Director for Plans and the principal agency official responsible for the ongoing efforts against the Castro regime, including both the Bay of Pigs operation and the assassination plots. Bissell is the only sur-

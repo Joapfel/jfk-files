@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_21553.png
+
+Convert to Markdown# TOP SECRET
+
+wasn't. But he was at a meeting when the bills were delivered, and Dr. Treichler came over to Colonel Edwards' office.
+
+Mr. Wides. But you don't recall whether you ever knew that Roosevelt knew what it was in connection with as distinct from merely knowing it was a lethal pill, is that right?
+
+Mr. O'Connell. I can't say -- to my personal knowledge, the discussion never came up when I was there. I don't think he is a dummy, and I don't think Treichler is any dummy, and I think they had a general idea.
+
+But as far as I know they were never officially told.
+
+Mr. Wides. To your knowledge, before you went overseas no one else in the office of Security, Mr. Bannerman, Mr. White or Mr. Hall, none of those men or anyone else knew about the project, only yourself and Mr. Edwards?
+
+Mr. O'Connell. Well, I would say this, to my knowledge they were never briefed. However, I think I brought up an incident this morning where Colonel Edwards was on leave and Colonel King called Mr. Bannerman, who was his deputy, and assumed that Bannerman knew all about it and started talking about it, what are we going to do about this -- I don't know what the conversation was about. And Bannerman called in and said, what was this all about?
+
+Mr. Wides. This was in 1962 before you left?
+
+Mr. O'Connell. Yes. It was while I was up in the office. And I said, I don't have the authority to brief you on it.
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+HW 50955 DocId:82281988 Page 6
+
+TOP SECRET

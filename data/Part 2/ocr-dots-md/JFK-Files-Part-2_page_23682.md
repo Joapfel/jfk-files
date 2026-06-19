@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_23682.png
+
+Convert to MarkdownWe just went through this the other day with the labor unions. The whole paragraph.
+
+Senator Huddleston. I have some concern with that too.
+
+When we talk about expressly prohibiting penetration of American companies, it seems to me that the question is whether or not we're penetrating those companies with company executives being unwitting or whether--
+
+Mr. Aaron. That's the point.
+
+Senator Huddleston. It seems to me the real problem is when we were doing it secretly.
+
+Mr. Aaron. And that's the point.
+
+Senator Huddleston. The company ought to have the right to make a determination as to whether or not its interest would be severely jeopardized if this were to happen.
+
+Mr. Treverton. I think this language probably isn't clear enough. If we did human penetration without the knowledge of the company on the operation of the company primarily--
+
+Mr. Kirhow. We're talking about a corporate operation against a U.S. company in the United States?
+
+Mr. Treverton. Presumably it would not be in the U.S.
+
+Mr. Kirhow. If that's what's intended, it does not convey it to even an informed reader:
+
+Senator Huddleston. Well, we saw foreign intelligence collection.
+
+TOP SECRET
+
+WARD A. PAUL
+
+HW 50955 DocId:32423509 Page 56

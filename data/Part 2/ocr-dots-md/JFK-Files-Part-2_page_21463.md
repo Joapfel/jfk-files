@@ -1,0 +1,81 @@
+# JFK-Files-Part-2_page_21463.png
+
+Convert to MarkdownSAC, New York (105-42387)
+
+Director, FBI (105-93072)
+
+RICHARD THOMAS GIBSON
+IS - CUBA
+
+According to Bureau Source 6, on 9-21-65 Richard Gibson in London contacted Robert Williams in Cuba and indicated he had received an unidentified message from Williams. Gibson assured Williams of his personal loyalty and solidarity in "the struggle." Gibson also said he was partially responsible for Williams' situation and was ready to make any effort which would help.
+
+As you are aware, Central Intelligence Agency (CIA) has advised in confidence that it is operating Gibson and the message would indicate that CIA is attempting to have Gibson re-establish contact with Williams. Note that CIA has assigned the code name SUGAR to Gibson and data originating with him will be attributed to that code name.
+
+CIA's operational interest in Gibson must be maintained in strictest confidence. Bureau Source 6 data is for lead purposes only and must not be included in communications prepared for dissemination.
+
+1 - London (100-2611)
+1 - Foreign Liaison Unit
+1 - 100-387728 (Robert Williams)
+
+RAM:bjs (80 portions of Para 2 and 4 Classified Rev CIA Report)
+
+NOTE:
+
+Williams is the Negro racist who fled to Cuba to avoid a kidnapping trial and is now a Bureau fugitive. Gibson was formerly head of the Fair Play for Cuba Committee but has claimed to be repentant. We were in touch with him in 1962 at which time he offered to serve as informant purely for financial reasons without showing any allegiance whatsoever to the U.S. We advised CIA of his offer to cooperate and in May, 1965 CIA did make contact with Gibson in London where he now resides.
+
+<table><tr><td>MAILED 4</td></tr><tr><td>OCT 22 1965</td></tr><tr><td>COMM-FBI</td></tr></table>
+
+Tolson
+
+Belmont
+
+Mohr
+
+DeLoach
+
+CLASSIFIED AND
+CALLED ON
+EXTENDED BY S.P.H.I.R. MAJ-SS
+FOR REASON OF EXTENSION
+FEB 13 EX-103
+Gale F.C.M., H., T.
+Sullivan
+DATE OF REVIEW FOR
+RECLASSIFICATION
+~~Tele. Room~~
+~~Polmes~~
+~~andy~~
+
+RE-SECRET
+
+REC 50
+
+TOP SECRET
+
+105-93072-W
+
+129
+
+123094 SAMPLE (JFK)
+
+Classified by: SOPMAC
+Declassify on: DADR
+
+OCT 25 1965
+
+MAIL ROOM
+
+TELETYPE UNIT
+
+UNRECORDED COPY FILED IN
+
+10-22-65
+
+PERSONAL ATTENTION
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED EXCEPT
+WHERE SHOWN OTHERWISE
+
+TOP SECRET
+
+N.W. 88296 DocId:32339276 Page 7

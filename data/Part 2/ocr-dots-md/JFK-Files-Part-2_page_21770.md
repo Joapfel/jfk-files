@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_21770.png
+
+Convert to MarkdownTOP SECRET
+
+Vol. 3 of 3
+Cuba
+The United States Senate
+
+UNINVENTORIED
+BY 5/26/79
+BY CHG
+SSCI DEV.
+258-11
+
+Report of Proceedings
+
+CIA HAS NO OBJECTION TO
+DECLASSIFICATION AND/OR
+RELEASE OF THIS DOCUMENT
+AS SANITIZED
+
+Friday, June 25, 1979
+
+Washington, D.C.
+
+(Stenotype Tape and Waste turned over
+to the Committee for destruction)
+
+WARD & PAUL
+410 FIRST STREET, S. E.
+WASHINGTON, D. C. 20008
+(202) 544-6000
+
+TOP SECRET
+
+HW 50955 DocId:32202440 Page 2
+
+R654
+5/26/79
+CHG
+258-11

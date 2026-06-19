@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_24402.png
+
+Convert to Markdownseveral sensitive covert operations in which "he didn't want to
+have an Agency person or a government person get caught"* (O'Connell,
+p. 158). Maheu was initially paid a monthly retainer by the CIA
+of $500, which was terminated after his practice became more
+lucrative (O'Connell, pp. 13-14; I.G., p. 15). O'Connell had
+served as Maheu's case officer since the Agency first began using
+Maheu's services, and by 1960 they had become close personal
+friends (Maheu, p. 6).
+
+Sometime in late August or early September 1960,
+O'Connell approached Maheu about the proposed operation (O'Connell,
+p. 9; Maheu, 7/29, p. 6). As Maheu recalls the conversation,
+O'Connell asked him to contact John Roselli, an underworld figure
+with possible gambling contacts in Las Vegas, to determine if he
+
+* During 1954-1955, Maheu cooperated with the CIA in attempting to undermine Aristotle Onassis' contract with the Saudi Arabian government that would have given Onassis virtually complete control over shipping of oil from Saudi Arabia. Although he was employed by Onassis' competitor, Niarchos, Maheu worked closely with the CIA. He testified that he contracted for a listening device to be placed on Onassis' room in New York after first consulting with the Agency, and that he provided the impetus for the termination of the contract by publicizing its terms in a newspaper in Rome that he said he purchased with CIA funds. (Maheu, 7/30/75, pp. 14-25.)
+
+O'Connell testified that Maheu, at the CIA's request had also
+previously arranged for the production of a film in Hollywood
+depicting a foreign leader with a woman in the Soviet Union. The
+CIA planned to circulate the film, representing it to have been pro-
+duced, but not released (O'Connell, pp. 159, 162-163). Maheu testi-
+fied that he had located an actor resembling the leader and had
+arranged for the production of the film (Maheu, 7/30/75, pp. 39-42).

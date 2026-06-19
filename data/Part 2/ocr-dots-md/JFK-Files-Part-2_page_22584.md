@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_22584.png
+
+Convert to MarkdownNational Committee for Responsible Patriotism (NCRP):
+as its Executive Director and one of its founders in 1967,
+he has been its principal member and has been involved
+with managing its office, raising funds, and charting its
+activities. Operating principally with volunteers and
+donated funds, Wiley, who has occasionally received some
+private remuneration for his services, has organized
+numerous parades, receptions, motorcades, banquets and
+programs. He has arranged publicity and made a number
+of media appearances. In connection with these and other
+activities he has had close contact with labor leaders,
+the military and the White House. In April 1973, Wiley
+received a signed commendation from President Nixon in
+recognition of his efforts, which states:
+
+"Dear Mr. Wiley:
+
+"The overwhelming success of the recent New York parade in honor of our Vietnam veterans was truly heartening, and I know that the greatest share of the credit for this is due to the remarkable efforts of you and your organization. The tribute that was paid to our Nation's servicemen is an inspiring reminder of the pride all Americans feel for those who gave so much in the cause of freedom. I am sure I speak for citizens throughout the country in expressing deep appreciation for your unsacrificial dedication of time and talent to this patriotic project.
+
+"With my gratitude and very best wishes,
+
+Among activities which the NCRP organized are:
+
+* Free USS Pueblo Sailors
+
+* Free American Citizen George Pellezo from Cuban Prison
+
+SEP 30 1975
+
+CIA
+
+SECRET

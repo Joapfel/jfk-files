@@ -1,0 +1,99 @@
+# JFK-Files-Part-2_page_22792.png
+
+Convert to MarkdownTOP SECRET
+
+1
+
+Mr. Bundy. No.
+
+2
+
+Mr. Schwarz. What context did it come up in?
+
+3
+
+Mr. Bundy. It came up in a context in which it was being
+described to me by someone else. And that is really about
+as far as I can take it with precision.
+
+4
+
+5
+
+6
+
+Mr. Schwarz. Was it described to you by someone else
+as a capacity in being?
+
+7
+
+8
+
+Mr. Bundy. As a capacity -- and this is not something
+I want to be too certain about, Mr. Schwarz, but my recollec-
+tion would be that it was a capacity coming into being.
+
+9
+
+10
+
+11
+
+Mr. Schwarz. Now, receiving that information, did you
+take any steps to discourage or dissuade the person, whoever
+it was, who was describing to you the capacity coming
+into being?
+
+12
+
+13
+
+14
+
+15
+
+Mr. Bundy. What I recollect is that I was satisfied with
+the description I received on two points.
+
+16
+
+17
+
+First, that this was not an operational activity, and
+would not become such without two conditions: first, that
+there be a desire or a request or a guidance that there
+should be planning against some specific individual; and
+second, that there should be a decision to move against an
+individual.
+
+18
+
+19
+
+20
+
+21
+
+22
+
+Being satisfied that these two things were not happen-
+ing -- and I am now giving you a reconstruction rather than
+a precise recollection -- I am confident that what I did was
+
+23
+
+24
+
+25
+
+TOP SECRET
+
+7600030119
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+410 First Street, S.E., Washington, D.C. 20003
+
+HTV

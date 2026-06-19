@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_23019.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+7 6 N WARD & PAUL 7 0 1 1:
+
+in some sort of caper involving a U-Haul truck.
+
+Mr. Baron. At that time, if Harvey had made a request of you to supply $5,000 worth of equipment like explosives, detonators, .30 caliber rifles, .45 caliber handguns, radios and boat radar, would you have supplied that equipment to Harvey or to anyone he designated without asking him what the purpose of the operation was?
+
+Mr. Halley. Yes, I would have supplied it to Harvey or to his designated representative, depending on how that person identified himself to me with the equipment that he requested. That was my chain of command and, if he had told me that he had wanted this material for any operational activity, I would have seen to it that it was issued to him. That is the way the Agency functions.
+
+Mr. Baron. Would it have been standard procedure in a paramilitary operation to procure equipment that would not have been traceable to the United States as the IG Report indicates was done in this case?
+
+Mr. Halley. It depends. It depends on what was the sponsorship that was trying to be conveyed to the paramilitary group.
+
+In other words, let us say there was a Venezuelan businessman who may have been giving some assistance to a Cuban exile group. If somebody had gotten in touch with that Venezuelan businessman and he was saying I brought weapons into Florida
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+TOP SECRET

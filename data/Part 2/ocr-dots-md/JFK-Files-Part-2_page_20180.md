@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_20180.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+TO : ACTING DIRECTOR, FBI (100-468406)
+
+FROM : SAC, PHILADELPHIA (100-53818) (RUC)
+
+SUBJECT: WOMEN'S NATIONAL ABORTION ACTION COALITION (WONAAC) IS - C (TROTSKYIST) (OO:New York)
+
+DATE: 2/28/73
+
+Re Philadelphia letter to Bureau dated 1/31/73 and Bureau letter to Philadelphia dated 2/12/73.
+
+For the information of New York, referenced Bureau letter to Philadelphia dated 2/12/73 authorized a continued investigation of WONAAC utilizing only established sources. The Bureau further advised that the investigation was to be conducted in a most discreet manner and that no action was to be taken which could in any way be construed as infringement by the FBI on academic freedom at the University of Pennsylvania.
+
+The case file of captioned organization has been reviewed as well as all indices references to captioned organization and it has been determined that while some of the individuals associated with WONAAC in the Philadelphia area are also known to be affiliated with the Socialist Workers Party (SWP) and for the Young Socialist Alliance (YSA), the majority of WONAAC supporters appear to be individuals interested in social change rather than revolutionary political change.
+
+REC-5
+
+In view of the fact that WONAAC represents basically a social change vehicle dealing with the single issue of abortion rights and the fact that a recent U. S. Supreme Court decision upheld the right to abortion, thereby reducing the political value of this issue, it would appear that a continued investigation of WONAAC at this time is not desirable.
+
+1 - Bureau (100-468406) (RM)
+1 - New York (100-174481) (RM) (Info)
+1 - Philadelphia (100-53818)
+
+JCH:klh
+(4)
+
+MAR 5 1973
+
+FIVE
+
+NW 88321 Ball:32989545 Page:1 of 1 U.S. Savings Bonds Regularly on the Payroll Savings Plan

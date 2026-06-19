@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_21110.png
+
+Convert to MarkdownMM 105-2234
+
+This report is classified confidential since data reported from MM T-1, who is MM 726-S should reasonably result in the identification of a confidential informant of continuing value and compromise the future effectiveness thereof. (u)
+
+INFORMANTS
+
+| IDENTITY | LOCATION OF ORIGINAL INFORMATION |
+|---|---|
+| MM T-1 is MM 726-S, contacted by SA <br> LEMAN L. STAFFORD, JR. | 134-307-Sub A-98 <br> Instant report, page 4, 5 |
+| MM T-2 is MM 492-S, contacted by <br> SA JAMES D. HAYES | Instant report, page 5 |
+| MM T-3 is MM 724-S, contacted by SA <br> JAMES D. HAYES | Instant report, page 6 |
+
+Careful consideration has been given to each source concealed in this report, and "T" symbols have been utilized only in those instances where identity must be concealed.
+
+-C*-
+
+COVER PAGE -

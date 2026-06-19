@@ -1,0 +1,71 @@
+# JFK-Files-Part-2_page_22916.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+76000730573
+
+# TOP SECRET
+
+34 Mr. Schwarz. I'll mark a string, Mr. Bundy, and if Mr. Kelley could put it in front of you, we'll then talk about them.
+
+As Bundy Exhibit 6-A, the memorandum for the record, Meeting on Cuba, 3 April '63, between the President, the Attorney General, yourself and five or six other people.
+
+Mr. Bundy. Right.
+
+(The document referred to was marked as Bundy Exhibit No. 6-A for identification.)
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+# TOP SECRET

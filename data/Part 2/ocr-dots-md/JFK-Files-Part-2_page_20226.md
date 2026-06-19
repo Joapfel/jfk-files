@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_20226.png
+
+Convert to MarkdownWFO 100-54927
+
+WFO files show WELCH attended SWP National
+Convention, August, 1971.
+
+Secret Service and AUSA have been notified.
+Other interested agencies also cognizant.
+
+LEAD
+
+Receiving offices are requested to conduct appropriate investigation to determine the numbers and composition of those groups from their area planning to attend captioned demonstration,
+
+WFO will continue to follow locally.

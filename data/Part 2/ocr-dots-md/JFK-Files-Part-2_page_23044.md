@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_23044.png
+
+Convert to MarkdownTOP SECRET
+
+1 run by William Harvey?
+
+2 Mr. Halley. To develop the capability to carry on the assassination?
+
+3 Mr. Baron. Yes.
+
+4 Mr. Halley. No. I have no knowledge of Harvey being focused on a project or given the capability of carrying one out.
+
+5
+6
+7
+8 Mr. Baron. Harvey has testified, as has Richard Bissell, I will represent to you, that instruction was given by Bissell to Harvey to set up, to develop such a capability in early 1961 and that Harvey took steps to develop such a capability in coordination with an asset in New York named OJWIN and I think that period of greatest activity was in 1962 and WIN was involved in spotting potential assets among the criminal under- world in Europe and might be used for any number of dirty deeds.
+
+10
+11
+12
+13
+14
+15
+16
+17 Mr. diGenova. It should be emphasized that the Executive Action Plan that you are referring to has had as its goal the incapacitation of foreign leaders, one possibility of incapacitation being the ultimate weapon, assassination. It was just not assassination. It was a spectrum of activities that could be used to incapacitate a foreign leader anywhere from illness, chemical warfare, and then including death. Correct me if I am wrong, but it was not just assassination.
+
+21
+22
+23
+24
+25 Mr. Baron. Does that ring any bells?
+
+TOP SECRET
+
+Phone (Area 202) 544-6000
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+767777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777777

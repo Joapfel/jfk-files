@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_21200.png
+
+Convert to MarkdownTOP SECRET
+
+to act as Section Chief during his absence. He
+also utilized NOSKOV in this capacity on occasion
+
+No ENKO'S Contacts with FRIPPEL (S)
+
+On page 266 in discussing the [ARSENE FRIPPEL] case it is stated that [FRIPPEL] asserted he met NOSENKO in Odessa in February, 1962, which NOSENKO flatly denies.
+
+COMMENT:
+
+On November 4, 1967, (N-10b), NOSENKO wrote concerning the [FRIPPEL] case that [FRIPPEL] returned to the USSR in 1962 with a group of correspondents and "I have seen him twice. In March, 1963, 'Artur' [FRIPPEL] on the ship 'Olympia' was in Odessa, where I flew and have seen him." Whether NOSENKO saw him in Odessa in February, 1962, has not been clarified
+
+VOLKOV and WILLIAM J. ZUBON(S)
+
+On page 267 it is stated that NOSENKO is apparently uninformed regarding the use of VOLKOV in a KGB entrapment operation against American tourist [WILLIAM J. ZUBON] in July, 1962.
+
+TOP SECRET
+
+HW 50953 DocId:32318825 Page 86

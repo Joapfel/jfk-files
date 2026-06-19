@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_22693.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+WARD & PAUL
+
+7600011573
+
+TOP SECRET
+
+while you were employed with the Agency, Mr. Angleton? I believe that might be a fair question.
+
+Senator Tower. In your capacity as Head of Counter-
+intelligence, did it ever come to your attention -- did you
+ever have any certain knowledge that Israeli agents were
+actually trying to acquire nuclear secrets in the US, atomic
+secrets?
+
+Mr. Angleton. Do I have to respond to that?
+
+Mr. Kirbow Would you like to go off the record a moment, Mr. Chairman.
+
+Senator Tower. We can go off the record.
+
+(off the record discussion)
+
+Senator Mathias. Mr. Chairman, I would suggest that perhaps we defer that subject for the moment. I am sure we will be meeting with Mr. Angleton again.
+
+Senator Tower. Then, too, we can get the FBI matter in the meantime.
+
+I have just a couple of questions that I would appreciate
+it if Mr. Angleton would give us his evaluations as an expert
+on. And they go back to his testimony relative to the Kennedy
+assassination.
+
+As I recall, you said that immediately after the assassi-
+nation Golitzen on his own initiative communicated with you
+and advised you that it was normal practice for a defector who
+had a military background to be processed in Department 137
+
+TOP SECRET
+
+HW 50955 DocId:32423393 Page 100

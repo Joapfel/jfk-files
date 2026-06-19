@@ -1,0 +1,255 @@
+# JFK-Files-Part-2_page_20397.png
+
+Convert to MarkdownFBI
+
+Date: 1/17/68
+
+Transmit the following in
+
+(Type in plaintext or code)
+
+Via AIRTEL
+
+(Priority)
+
+**TO:** DIRECTOR, FBI
+**FROM:** SAC, CHICAGO (100-44707) C
+**SUBJECT:** DEMONSTRATION PROTESTING U.S. POLICY IN VIET NAM, WASHINGTON, D.C., 1/15-16/68 INFORMATION CONCERNING (IS)
+**VIDEM**
+
+Re Chicago airtel and LHM 1/4/68; and Chicago teletypes 1/10, 11, 12, and 15/68.
+
+Enclosed for the Bureau are 11 copies and for WFO 2 copies of an LHM captioned as above.
+
+The sources are identified as follows:
+
+T-1 Informants
+T-2
+T-3
+T-4
+
+One copy each of the LM is being administered locally to the 113th MI Group, Evanston, Illinois, and USA and Secret Service, Chicago.
+
+The LM is classified confidential in order to protect T-1, T-3, and T-4, sources which are of continuing value.
+
+3 - Bureau (Enc. 1) (L.)
+2 - WFO (Enc. 2) (R.I.)
+3 - Chicago
+
+1 - 100-42717
+1 - 100-4775
+
+JWT:mr
+(8)
+
+1 : JAN 19 1963.
+
+JAN 24 1968
+
+Sent M Per
+
+NW 88321 D66ID:92989545 Page:681
+
+ELVIS 'S' INTERVIEWED
+
+HOW FORWARD: YES
+
+DATE FOLLOWED 1-1-68
+
+HOW FORWARD: YES
+
+3-0-68
+
+23:15
+
+24:15
+
+25:15
+
+26:15
+
+27:15
+
+28:15
+
+29:15
+
+30:15
+
+31:15
+
+32:15
+
+33:15
+
+34:15
+
+35:15
+
+36:15
+
+37:15
+
+38:15
+
+39:15
+
+40:15
+
+41:15
+
+42:15
+
+43:15
+
+44:15
+
+45:15
+
+46:15
+
+47:15
+
+48:15
+
+49:15
+
+50:15
+
+51:15
+
+52:15
+
+53:15
+
+54:15
+
+55:15
+
+56:15
+
+57:15
+
+58:15
+
+59:15
+
+60:15
+
+61:15
+
+62:15
+
+63:15
+
+64:15
+
+65:15
+
+66:15
+
+67:15
+
+68:15
+
+69:15
+
+70:15
+
+71:15
+
+72:15
+
+73:15
+
+74:15
+
+75:15
+
+76:15
+
+77:15
+
+78:15
+
+79:15
+
+80:15
+
+81:15
+
+82:15
+
+83:15
+
+84:15
+
+85:15
+
+86:15
+
+87:15
+
+88:15
+
+89:15
+
+90:15
+
+91:15
+
+92:15
+
+93:15
+
+94:15
+
+95:15
+
+96:15
+
+97:15
+
+98:15
+
+99:15
+
+100:15
+
+101:15
+
+102:15
+
+103:15
+
+104:15
+
+105:15
+
+106:15
+
+107:15
+
+108:15
+
+109:15
+
+110:15
+
+111:15
+
+112:15
+
+113:15
+
+114:15
+
+115:15
+
+116:15
+
+117:15
+
+118:15
+
+119:15

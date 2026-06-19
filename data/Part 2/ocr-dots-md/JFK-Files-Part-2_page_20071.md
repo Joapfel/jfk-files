@@ -1,0 +1,54 @@
+# JFK-Files-Part-2_page_20071.png
+
+Convert to MarkdownFBI
+
+Date: 1/4/68
+
+Transmit the following in _______________
+
+(Type in plaintext or code)
+
+Via AIRTEL AIRMAIL
+(Priority)
+
+<table><tr><td>TO:</td><td>DIRECTOR, FBI</td></tr><tr><td>FROM:</td><td>SAC, ATLANTA (100-7300) (P)</td></tr><tr><td>SUBJECT:</td><td>DEMONSTRATION PROTESTING U.S. POLICY IN VIETNAM, WASHINGTON, D.C., JANUARY 15-16, 1968 INFORMATION CONCERNING (INTERNAL SECURITY) (OO: WFO)</td></tr></table>
+
+ReBuairtel to Albany, 12/5/67, and Atlanta teletypes to Director, WFO and San Francisco, 12/28/67 and 1/3/68.
+
+Enclosed herewith for the Bureau are 11 copies, for WFO 2 copies, and for San Francisco 2 copies, of an LHM captioned as above, prepared at Atlanta, Georgia, on 1/4/68, and suitable for dissemination.
+
+Copies of the enclosed LHM are being furnished to 111th MIG, Region V, Fort McPherson, Ga.; U.S. Secret Service, Atlanta, Ga.; NIS, Charleston, S.C.; OSI, Robins AFB, Ga.; and USA, Atlanta, for their information.
+
+③ - Bureau (Enc. 11) (RM)
+2 - WFO (Enc. 2) (RM) REC-35
+2 - San Francisco (Enc. 2) (RM)
+12- Atlanta (2 - 100-7300)
+(1 - 100-6730) (VIDEM)
+(1 - 100-7274) (BUSINESS EXECUTIVES MOVE FOR VIETNAM PEACE)
+(1 - 25-18472) (J. BRITTAIN PENDERGRAST, JR.)
+(1 - 100-7122) (ATLANTANS FOR PEACE)
+(1 - 100-3128) (AMERICAN FRIENDS SERVICE COMMITTEE)
+XEROX (1 - 100-7253) (NANCY COLLINSON)
+(1 - 100-5720) (ISOBEL FORBES CERNEY)
+(1 - 100-6351) (CORETTA KING)
+(1 - 100-New Dead) (NAN S. PENDERGRAST)
+(1 - 100-6857) (SOUTHERN COORDINATING COMMITTEE TO END THE WAR IN VIETNAM)
+
+DATE FORW:
+HOW FORW:
+BYs
+
+AGENCY: G-2, OMI, OSI, SEG-SER, -
+RAO (SD, GRD, CD)
+
+1 JAN 5 1968
+
+INT'L STD.
+
+C. C. Disposition: CTH:met (19)
+Approved: J. H. CM
+Sent ________ M Per ________
+
+END THE WAR IN VIETNAM
+
+NW 88321 DocId:32989545 Page 35 of 11 Agent in Charge

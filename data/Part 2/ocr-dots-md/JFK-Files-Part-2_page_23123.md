@@ -1,0 +1,61 @@
+# JFK-Files-Part-2_page_23123.png
+
+Convert to Markdown# TOP SECRET
+
+1. Senator Schweiker. What was the relationship of your station and your assignment to General Lansdale? What role did he play?
+
+2.
+
+3.
+
+4.
+
+5.
+
+6.
+
+7.
+
+8.
+
+9.
+
+10.
+
+11.
+
+12.
+
+13.
+
+14.
+
+15.
+
+16.
+
+17.
+
+18.
+
+19.
+
+20.
+
+21.
+
+22.
+
+23.
+
+24.
+
+25.
+
+Mr. Halley. Well, when I first came into this activity in 1962, the principal people that seemed to be involved with it at that time were Robert Kennedy, General Lansdale, Dick Helms, and William Harvey, and the group of Kennedy, Lansdale and Helms were providing, if you will, the guidance and the direction as to where this thing should go in the early days.
+
+Shortly after the operation was established and I was in Miami, Lansdale seems to have faded out of this particular picture, and I was not involved in the Washington maneuvers of this, so I am not clear as to exactly what was the reason for his departure from this particular scene.
+
+Senator Schweiker. And was that -- do you remember the cryptonym Operation MONGOOSE?
+
+Mr. Halley. I've heard the cryptonym Operation MONGOOSE.

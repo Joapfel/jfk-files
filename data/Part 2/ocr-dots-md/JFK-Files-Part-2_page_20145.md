@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_20145.png
+
+Convert to MarkdownIn Reply, Please Refer to
+File No.
+
+UN UNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+Minneapolis, Minnesota
+
+September 21, 1972
+
+Title MINNESOTA WOMEN'S ABORTION ACTION COALITION
+
+Character
+
+Reference Letterhead memorandum dated and captioned as above at Minneapolis
+
+All sources (except any listed below) whose identities are concealed in referenced communication have furnished reliable information in the past.

@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_21759.png
+
+Convert to Markdown1. Phone (Area 202) 544-6000
+2. WARD & PAUL
+3. 410 First Street, S.E., Washington, D.C. 20003
+
+TOP SECRET
+
+110
+
+Mr. Schwarz. These are minutes of the Special Group which you attended, and it states: "Mr. Harvey gave a rundown on progress to date with agent teams and in the general field of intelligence, including the Opa-locka interrogation center (and the Madrid clandestine interrogation center). He outlined various difficulties encountered and said that three agent teams had been infiltrated."
+
+Now did Mr. Harvey, at that meeting, state anything -- do you recollect Mr. Harvey making that report?
+
+General Lansdale. In general terms, yes.
+
+Mr. Schwarz. Did he state anything relating to the passage of pills to persons to accomplish the assassination of Fidel Castro in the week prior to this meeting?
+
+General Lansdale. No. As a matter of fact, we were very proud that he had gotten these teams in, that they had been infiltrated, and so forth, and collecting intelligence.
+
+Mr. Schwarz. Were they the first teams?
+
+General Lansdale. Yes.
+
+Mr. Schwarz. Did he say anything at that meeting that you recall about the subject of assassinations?
+
+General Lansdale. Nothing.
+
+Mr. Schwarz. Would you give the witness the May 7th '62 memorandum of General Taylor, Subject, Report of Progress to Higher Authority?
+
+Now, Senators, that is supposedly slipped in your notebooks
+
+TOP SECRET
+
+HW 50955 DocId:32202426 Page 2

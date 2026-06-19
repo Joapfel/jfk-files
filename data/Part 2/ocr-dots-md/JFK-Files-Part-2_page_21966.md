@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_21966.png
+
+Convert to MarkdownTOP SECRET
+
+(Notes of meeting) Kissinger told Karamessines that "our handling of the problem during the earlier meeting had been perfect and he added we were doing fine and keep it up." (Memorandum for the Record/Chile, 22 September 1970, by Thomas Karamessines)
+
+## B. October
+
+### October 5
+
+A cable sent to Santiago, released by Karamessines, requested a report on how the Station planned to contact the three Chilean Generals --Prats, Valenzuela (and Huertas)-named in a cable of September 30. (Headquarters 449) The October 5 cable indicated that the report was needed for a discussion with Kissinger on October 6. (Santiago 556, 5 October 1970) Karamessines presumed such a meeting had taken place, although he had no specific memory of it. (Karamessines testimony, pp. 69-70) His calendar for October 6 indicates that he attended a 40 Committee meeting on Chile. (Karamessines calendar) Kissinger chaired the 40 Committee.
+
+### October 6
+
+The Station reported that General Viaux was "ready to launch golpe evening 9 October, or morning 10 October." (Santiago 472, 6 October 1970) In response, CIA Headquarters labeled the prospective coup one "with scant chance of success which will vitiate any further more serious action." The Station was directed to try to "stop ill-considered action at this time." (Headquarters 585, 6 October 1970)
+
+Kissinger testified he had not been informed of the Viaux plan, supporting his recollection with the fact that the CIA memorandum of an October 10 conversation between Karamessines and Haig (see below) makes no mention of any previous plots. (Kissinger testimony, p. 24)

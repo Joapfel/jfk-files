@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_24129.png
+
+Convert to MarkdownH. <u>Relationships with Tax, Regulatory, and Other Agencies</u>
+
+Management and control of proprietaries often requires "cooperative
+interface" with outside agencies to gain beneficial working relation-
+ships and, as necessary, any appropriate authorizations. These
+relationships are described below.
+
+For those proprietaries which maintain commercial books and other
+financial records. U.S. and State tax returns are prepared annually by
+commercial managers based on the corporation's financial records. For
+other entities where only internal Agency records are maintained, tax
+returns are prepared by Agency specialists in a manner to reflect the
+normal operations of a bona fide commercial business. Close coordination
+is maintained with the Internal Revenue Service, which is aware of the
+Agency's use of proprietary commercial entities. In the event an Agency
+entity is singled out for IRS audit, it has been agreed that the Agency,
+through the Office of General Counsel, will notify IRS of Agency
+ownership. The IRS then cancels the audit in order to conserve auditor
+manpower.
+
+The Air proprietaries necessitated contact with the Civil Aeronautics Board, the Federal Aviation Agency and the National Transportation Safety Board. Specific problems were discussed, usually with the Office of General Counsel of the agency concerned by the CIA General Counsel.
+
+The Air Proprietaries dealt with State Department and the Agency
+for International Development, generally on a contractor/customer basis,
+although senior personnel of those agencies were advised by the Agency
+of its ownership of the companies.

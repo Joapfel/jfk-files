@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_24814.png
+
+for Latin American affairs on the NSC staff, summarized the CIA's "cold-blooded assessment" in a memo to his boss: "Military action is impossible; the military is incapable and unwilling to seize power. We have no capability to motivate or instigate a coup." (Memorandum for Dr. Kissinger/Chile--40 Committee Meeting, Monday--September 14, September 14, Viron P. Vaky)
+
+On September 14, the 40 Committee met to discuss these reports and what action was to be taken:
+
+Particular attention was devoted to a CIA prepared review of political and military options in the Chilean electoral situation based on the Embassy and Station's "cold-blooded assessment." The Committee focused on the so-called "Rube Goldberg" gambit which would see Alessandri elected by the Congress on October 24th, resigning thereafter to leave Frei constitutionally free to run in a second election for the presidency.
+
+TOP SECRET

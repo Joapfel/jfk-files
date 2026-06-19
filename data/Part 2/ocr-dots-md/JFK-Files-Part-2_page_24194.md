@@ -1,0 +1,65 @@
+# JFK-Files-Part-2_page_24194.png
+
+Convert to MarkdownSECRET, - 84 -
+
+DEINHAUL (Cont'd) -
+in concert with the original objectives of the pro-
+ject. In 1967 under the terms of the Katzenbach
+Report, it was necessary for the Agency to discon-
+tinue its support to the bona fide U.S. foundation
+(ostensible former owner of the bank as mentioned
+above) which had acted as a collection agent for
+the sale proceeds. Incident to the Agency's dis-
+engagement from support of the foundation, the
+foundation was allowed to keep all proceeds from
+subsequent payments on the purchase price for the
+bank.
+
+LPJACK -
+This travel service proprietary was sold in 1975
+to an Agency employee at the time of his retirement.
+This individual had ostensibly owned the firm but
+in fact only managed it for the Agency. No agree-
+ment was negotiated for the continued use of the
+travel service by the Agency, however, the Agency
+was using the travel service at the time of sale
+largely for the purchase of airline tickets for
+travel in support of sensitive projects. This
+practice still continues, and it is estimated
+that Agency business represents about 30% of the
+gross airline ticket sales of the entity on an
+annual basis.
+
+WUSWAMP -
+The Agency owned 50% of the equity in this foreign
+entity which constructed low cost housing in one
+of the less developed countries of the world.
+The Agency's equity was sold to WUPESKY, a private
+company which provided cover for an Agency employee
+who managed the Agency's foreign low cost housing
+program. No agreement was made with WUPESKY for
+the subsequent purchase of services or products
+of WUSWAMP, and no such purchases were made.
+Nevertheless, WUPESKY continued to provide cover
+for the Agency Employee until 1973.
+
+HTNAMABLE -
+This proprietary was a non-profit organization
+which undertook high risk scientific research
+programs in support of Government sponsored
+reconnaissance programs. In 1966, the Agency
+decided to terminate its proprietary relationship
+with the entity and it was determined that,
+because of the charter of non-profit organizations,
+any proceeds from the liquidation would have to
+be given to other non-profit organizations or
+foundations. Accordingly, the plant and equipment
+were sold to a profit making corporation which
+created a subsidiary around the assets purchased.
+The proceeds of the sale were distributed among
+
+RECD
+DEC 10 1973
+CIA
+
+SECRET, (c)

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_24509.png
+
+Convert to MarkdownIt is clear from the record, moreover, that the defeat at the Bay of Pigs had been regarded as a humiliation for the President personally and for the CIA institutionally.
+
+By July the Special Group had agreed that the basic objective "is to provide support to a U. S. program to develop opposition to Castro and to help bring about a regime acceptable to the U. S." (Memo for the Record, July 21, 1961.) Occasional harrassment operations were mounted during the summer but there was neither over- all strategy nor much activity.
+
+2. National Security Action Memorandum 100 of October 5, 1961, and the
+CIA Intelligence Estimate
+
+The documentary evidence and testimony indicate that in the fall of 1961 the question of the effect of Castro's removal from power and the prospects in that event, for U. S. military intervention were considered by the Kennedy Admini-
+stration.
+
+Two studies were prepared in this connection. Pursuant to National Security Action Memorandum 100 ("NSAM 100"), the State Department was asked to assess the potential courses of action open to the U. S. should Castro be removed from the Cuban scene, and to prepare a contingency plan with the Department of Defense for military intervention in that event. The CIA, prepared an "Intelligence Estimate" on the "situation and prospects" in Cuba. As discussed below, the evidence indicates that the focus of these studies was on the possible courses of action open to the U. S. in a post-Castro Cuba, rather than on the means that might bring about Castro's removal. However, it also appears that assassination was not excluded from the potential means by which Castro might be removed.
+
+NSAM 100
+
+On October 5, 1961, Bundy issued National Security Action Memorandum No.
+100 ("NSAM 100") (Bundy, Ex 3) entitled "Contingency Planning for Cuba", NSAM
+100 was addressed to the Secretary of State stated in full: "In confirmation of
+
+HW 50955 DocId:32423539 Page 139

@@ -1,0 +1,59 @@
+# JFK-Files-Part-2_page_22776.png
+
+Convert to MarkdownWARD & PAUL
+
+760
+
+gsh
+
+28
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+# TOP SECRET
+
+66
+
+Leninism. They have rededicated themselves to the shift in the military balance of power. They have reinstituted, in effect, what was the policy of the NEP period, the New Economic Policy, the attraction of Western business, the attraction of Western capital into the Soviet Union to bolster the Soviet Union, the disruption of the economies of other nations, which would have an adverse effect on the economy of this nation -- all of this centrally controlled and directed, used through such countries as Romania, where we have for several years now deluded ourselves that Romania is independent, through Bulgaria, through Hungary, through Poland, all the rest of it.
+
+This is the major threat to the United States. Counterintelligence is probably, in my view, at least, one of the major ways that you're going to be able to counter this and at least get the information brought to the attention of the people who are making the decisions and making the policy for this country.
+
+Mr. Epstein. Has our penetration effort been good enough to establish whether or not the Soviet Union has been involved in direct covert action against the United States, such as to undermine our economy, not using other countries but directly?
+
+Mr. Angleton. There's been a tremendous amount of information on this. I mean, for example today the second head of the Chamber of Commerce in Moscow is General Pitovranov.
+
+# TOP SECRET
+
+HH 58-59
+
+Dollar:32423354 Page 70
+
+4101 First Street, S.E., Washington, D.C. 20003
+
+444-6000
+
+Phone (Area 202) 544-6000

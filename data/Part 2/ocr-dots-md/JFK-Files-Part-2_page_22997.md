@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_22997.png
+
+Convert to Markdown410 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area 202) 544-6300
+
+TOP SECRET
+
+involvement in each is different. I am having a little
+trouble --
+
+Mr. Baron. Could you explain what different categories of companies you were receiving help from at that point, and about how many of each there might have been?
+
+Mr. Halley. I do not think I could do that. We are talking about hundreds of companies that we used during that period of time. Some of them might simply have been a company set up and registered and run out of some attorney's office. It simply provided back stopping for the ownership of the small boat.
+
+Everything has to be owned by somebody, it has to have a Coast Guard registration, you know, things like that. Even if I had access to the files to answer your question, it would take me weeks to pull all that together to give you an answer.
+
+I don't think there is an overview statement.
+
+Mr. Baron. Would it be fair to say that you had cooperation on a grand scale from all kinds of people in private enterprise in the Miami area, or in Southern Florida?
+
+Mr. Halley. I think it would be fair to say that we had extensive cooperation - I do not like your word "grand" -- that we had extensive cooperation from the civilian sector in Florida, in the state of Florida, to facilitate the conduct of this clandestine mission.
+
+Mr. Baron. Did you also have extensive cooperation from
+
+TOP SECRET
+
+HW 30993 DocID:32423434 Page 46

@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_21644.png
+
+Convert to Markdown129
+
+there were it says, "There is no doubt that this will confuse Colonel Wimert. Background for his information".
+
+Now, there are two ways in which those words "for his information" can be read. One is that it is the genuine background.
+
+The other is that it is a story to be given Wimert for his information, which is the fact, if you know, and which way doyou read it if you do not know what the facts are?
+
+Mr. Phillips. I assume that it is the true story, because nowhere during this period did I encounter anything, nor do I remember anything that I thought was devious to the extent of falsehood in putting something down like that.
+
+So, I assume that it is really for his background of what happened.
+
+Mr. Schwarz. And you don't remember from where you got the information which you provided in this cable?
+
+Mr. Phillips. I do not. Perhaps I can be more helpful after you talk to others. But I simply do not.
+
+Mr. Schwarz. The last paragraphs make the notation "that we must advise GEneral Bennett time when Wimert shown" the telegram which is Exhibit 3.
+
+Did you advise General Bennett?
+
+Mr. Phillips. I did not. If it was done -- and I presume it was -- I was not involved, and wouldn't have been involved. And they would not have sent me over to see General
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

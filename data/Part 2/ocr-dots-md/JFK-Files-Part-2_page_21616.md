@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_21616.png
+
+Convert to Markdown1. And you did that.
+
+2 Mr. Phillips. Yes.
+
+3 Mr. Schwarz. And then it goes on as follows: "These
+
+4 officers will perform the delicate shows with great flap
+
+5 potential which cannot be done by Station personnel or any
+
+6 Chilean."
+
+7 That is right, isn't it?
+
+8 Mr. Phillips. That is true.
+
+9 Mr.Schwarz. And by flap potential you meant exposure?
+
+10 Mr. Phillips. Contacting screwballs such as Marshall,
+
+11 that sort of thing.
+
+12 Mr. Schwarz. But generally pursuing the Track II
+
+13 activities?
+
+14 Mr. Phillips. That is right.
+
+15 Mr. Schwarz. Continuing: "An example. We have can-
+
+16 didates who can successfully pose as [BRAZILIAN] intelligence
+
+17 officers." You did that, didn't you?
+
+18 Mr. Phillips. Yes.
+
+19 Mr. Schwarz. And this goes on: "If he approached, funded
+
+20 and ran a Chilean General, any flap would be a [BRAZILIAN ONE].
+
+21 Mr. Phillips. Yes.
+
+22 Mr. Schwarz. So the scheme was that not only would
+
+23 the U.S. not be blamed, but other countries like [BRAZIL] would
+
+24 be blamed if something went wrong.
+
+25 Mr. Phillips. Yes, this is particularly sensitive to me,
+
+TOP SECRET
+
+HW 50955 DocId:32282005 Page 6

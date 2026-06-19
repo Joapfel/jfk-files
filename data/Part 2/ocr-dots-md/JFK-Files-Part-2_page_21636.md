@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_21636.png
+
+Convert to MarkdownIUP SEELKEI
+
+112
+
+Mr. Schwarz. And this is a cable releasing officer Willia-
+Broe, authenticating officer David A Phillips, dated Octo-
+ber 14, 1970, from CIA headquarters to Santiago, CIA.
+
+And it says:
+
+"Please deliver the following message ('destroy immedi-
+ately') to Colonel Wimert eyes only from Lieutenant General
+Bennett."
+
+Now, on what basis did you authenticate that message
+which purports to be to Colonel Wimert from Lieutenant General
+Bennett?
+
+Mr. Phillips. Obviously -- not obviously, but because
+I presume in this case -- I am sure in this case once again
+there was a document that was handed to me and I was told,
+send this down. In order to make this point, I was in there,
+and it was sort of a direct operational thing, and when I
+authenticated them I did it because I knew what was going on.
+If Bill Broe, my boss, came in and said, here is a document
+that we want to send, or if Tom Karamessines said, I worked on
+the assumption that they were passing on to me the authority
+to authenticate, and I didn't necesarily turn to them and say,
+hey--
+
+Mr Schwarz. Prove that --
+Mr. Phillips. Prove that you have been talking with
+General Bennett -- I obviously didn't do that.
+
+Mr. Schwarz. Then mark as Exhibit 6 an undated docu-
+
+TOP SECRET
+
+HW 50955 DocId:32282005 Page 26

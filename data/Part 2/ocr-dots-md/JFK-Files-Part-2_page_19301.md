@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_19301.png
+
+Convert to Markdown# DEMONSTRATION PROTESTING U.S. POLICY IN VIETNAM, WASHINGTON, D.C.,
+
+JANUARY 15-16, 1968
+
+address a group of Atlanta women interested in peace activities at the Ebenezer Baptist Church in Atlanta, Georgia, on the evening of January 4, 1968, and Mrs. Martin Luther King, Jr., National Sponsor of the Jeannette Rankin Brigade, would also speak at the meeting. The article stated further that Mrs. King would join Miss Rankin in the fifty-woman national delegation on the opening day of Congress. According to the article, Isobel Cerney, Founder of the Southern Coordinating Committee to End the War in Vietnam, would be on the program at Ebenezer Baptist Church.
+
+## ISOBEL FORBES CERNEY
+
+A source on August 25, 1961, advised that a meeting of the Palo Alto Communist Club, Palo Alto, California, was held on August 23, 1961, and that $36.00 was turned over in this meeting as an up-to-date payment of Communist Party dues for Isobel and Edwin H. Cerney.
+
+The source also advised on September 18, 1961, that a close friend was trying to have Isobel Cerney kicked out of the Communist Party because of her present religion "jag" and because she did not attend Communist Party meetings regularly when visiting Palo Alto during the Summers.
+
+The source further advised on August 28, 1962, that Isobel and Edwin H. Cerney were then out of the Communist Party, although the $25.00 received for their current dues was to be retained by the Party.

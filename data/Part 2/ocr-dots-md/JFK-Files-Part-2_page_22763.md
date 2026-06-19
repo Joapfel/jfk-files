@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_22763.png
+
+Convert to MarkdownTOP SECRET
+
+53
+
+Mr. Johnson. Does the CIA have veto powers over military proposed double-agents?
+
+Mr. Miler. No, not the veto power.
+
+Mr. Angleton. Well, it never really comes up to a veto. But if we took a stand against it and supplied reasoning that made sense, they would go along the way that we wanted. We've never had a head-on collision.
+
+Mr. Miler. There would oftentimes be differences in the field, that would be presented through the proper channels, say from the Army back to the ACST from our field station to headquarters. And then there would be a discussion and a resolution at the Washington level.
+
+Now obviously, in any kind of a situation like that, there have been instances where, you know, there was bad feelings and misunderstandings and so forth. But I think that overall, at least in my experience in the way we try to conduct the business was that it was mutually beneficial.
+
+Now the military services have complained to me because I represented and a couple of my people represented the Agency on double agents to the military services and so forth, that we were not as forthcoming in providing them information about our possible assets and so forth as they were.
+
+Their system was different. They had a clearinghouse system where this was available and so forth. Our position on it was that if we had a requirement, we would perhaps find
+
+TOP SECRET
+
+HW 50955 DocID:52423594 Page 37

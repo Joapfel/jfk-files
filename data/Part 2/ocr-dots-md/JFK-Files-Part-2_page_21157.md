@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_21157.png
+
+Convert to MarkdownSECRET
+
+tourists for intelligence. The 1st Department
+of SCD wrote the final report about overall
+American Intelligence operations against the USSR,
+but NOSENKO's portion regarding use of tourists was
+considered good and was accepted as written.
+
+NOSENKO stated that there was an analysis each
+year regarding use of tourists for intelligence and
+even in 1955 there were some indications of tourist
+use by Americans including "little facts" - how the
+tourists acted, trying to get military information,
+trying to find drops, studying candidates for
+recruitment, etc. Each year they had good examples
+for the analysis including the use of other
+nationalities by the Americans. NOSENKO, however,
+could not remember any of the specific examples
+used in the analysis.
+
+On April 1, 1968, (N-175), when questioned concern-
+ing a case involving [MC QUIRE] something like that,
+
+TOP SECRET

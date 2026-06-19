@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_22872.png
+
+Convert to MarkdownTOP SECRET
+
+the likelihood that Robert Kennedy, in the face of Maxwell Taylor's Chairmanship of the Special Group Augmented -- was Maxwell Taylor understood to be the Chairman of the Special Group Augmented?
+
+Mr. Bundy. It certainly is my understanding.
+
+Mr. Schwarz. Would Robert Kennedy in your opinion, in the fact of Maxwell Taylor's Chairmanship of the Special Group Augmented, have developed a bach-channel relationship with someone else for the purpose of assassinating Fidel Castro?
+
+Mr. Bundy. No.
+
+Mr. Schwarz. Now, in connection with MONGODB, you were a member of the Special Group Augmented, were you?
+
+Mr. Bundy. I was. I wasn't its most faithful attender, but I was a member.
+
+Mr. Schwarz. To the extent that you did attend, would you describe the nature of the meetings, what kind of items were brought before you, what was the process for decision making?
+
+Mr. Bundy. It is very difficult to do that without documentary reconstruction. But in the broadest sense, I think I can do it. The kinds of things would be Cuban exiles, training them, how united are they, whose the leader, and what kind of operations against the island are we able to mount, specific proposals, just because I have seen it in
+
+410 First Street, S.E., Washington, D.C. 20003
+
+7600037539
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+TOP SECRET

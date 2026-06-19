@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_20055.png
+
+Convert to MarkdownEND
+
+WA...
+
+RNK R RELAY
+FBI WASH DC
+
+RWF FTR FBI WASH DC FOR #10/rnk
+
+cc MR. SULLIVAN
+NW 88321 DocID:32989545 Page 339

@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_21481.png
+
+Convert to MarkdownWFO
+
+134-5437 Sub A
+
+**UNSUB; AMERICAN TOURIST TO RUSSIA**
+**FROM SOUTH OF SAN DIEGO OF**
+**INTEREST TO 13TH DEPARTMENT, KGB**
+
+Source was questioned in this matter in effort to obtain identifying data. He was unable to recall any additional info of value and explained that his recollection was based on brief examination of a paper which came across his desk with many others. Source repeated there is a possibility that captioned case is identical with the case involving an American whose occupation was repairing pipes, and stated his recollections concerning this was also very vague. Source could not recall the case officer from the Seventh Department who handled captioned case.
+
+**UNSUB; CODE CLERK ALLEGEDLY**
+**RECRUITED-BY KGB MOSCOW, SPRING, 1960**
+
+Photograph of Sergeant CHARLES BRYANT was displayed to source who advised the face was familiar especially the characteristics twisting of the mouth to one side, but advised he could not recall any circumstances which made his recollection of the picture possible. In view of the current status of NOSENKO he was not furnished with the facts in this case at this time.
+
+**AMERICAN PRIESTS IN MOSCOW - STUDIED BY KGB**
+
+Source advised that prior his departure from Moscow GENNADIY GRYAZNOV, the KGB official, who was then Chief of Section, had told him that two American priests in Moscow were being studied and that one was under consideration for approach on the basis of blackmail. GRYAZNOV told source that a Russian girl who is employed at American House is on very friendly relations with this priest and KGB has knowledge that he has carressed and fondled her and anticipates they may succeed in catching him having intimate relations with this girl in which case a recruitment approach will be made.
+
+**UNSUB; KGB AGENT ANDREY**
+
+E 3 - JX(7)
+
+SEC-

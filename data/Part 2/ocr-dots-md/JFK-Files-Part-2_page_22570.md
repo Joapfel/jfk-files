@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_22570.png
+
+Convert to MarkdownSECRET!
+
+In December 1964, SRS prepared a blind memorandum out-
+lining the use of Wiley, to wit:
+
+"Wiley has been a contract agent of SRS since 1959 and operates under a non-official cover of a one-man news agency in New York City. He is actually assisted clerically by his wife, who is witting.
+
+"Wiley, 38 years of age, is a born and bred
+New Yorker who comes from a theatrical family. He
+came to our attention in 1955 when he was compiling
+an index of the Daily Worker on a grant from the
+Americanism Commission of American Legion. The
+grant was depleted before the index was completed;
+SRS arranged to finance same, and eventually ob-
+tained a copy of the index. From 1957-1959, Wiley
+was financed as a cleared source from both OS and
+CI Staff funds.
+
+"Wiley's contract does not require renewal and can be terminated for cause or otherwise with a maximum of 90 days notice. SRS has no agreements with Wiley as to length of contract and he is not entitled to leave, retirement, or other benefits normally due an employee.
+
+"Wiley is paid from OS funds in the amount of $10,500 base salary, plus a quarterly payment of $131.25 in lieu of retirement and hospitalization. He is paid his local travel expenses (which in the last fiscal year have been extremely low) on a monthly voucher arrangement. All payments are deposited through covert Agency channels into a separate bank account for Wiley in New York.
+
+"By virtue of his non-government activities in obtaining photographic assignments and in assisting other writers in research, in addition to occasional sales of his articles directly to publishers, Wiley's cover firm has so far been self-funding. He usually requires a large out-lay of cash in addition to his regular payments only if he is making an overseas trip.
+
+FROM
+
+SEP 30 1975
+
+CIA
+
+SECRET!

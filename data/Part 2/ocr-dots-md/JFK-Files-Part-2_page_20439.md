@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_20439.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. C. Sullivan
+
+FROM : C. D. Brennan
+
+1 - Mr. DeLoach
+1 - Mr. Bishop
+1 - Mr. Sullivan
+
+DATE: 1/19/68
+
+1 - Mr. C.D. Brennan
+1 - Mr. G.C. Moore
+1 - Mr. Thompson
+
+SUBJECT: DEMONSTRATIONS PROTESTING UNITED STATES INTERVENTION IN VIETNAM INFORMATION CONCERNING (INTERNAL SECURITY)
+
+The Washington Field Office has advised that approximately 20-25 women began picketing in front of the White House at 1 p.m. today in support of Ertha Kitt's views expressed during a White House luncheon 1/18/68 in opposition to the war in Vietnam. Included among the demonstrators are representatives of Women Strike for Peace, a pacifist group which is opposed to the war in Vietnam. All pertinent information developed has been furnished to Secret Service, the Metropolitan Police Department, the Park police and the military intelligence agencies by the Washington Field Office.
+
+**ACTION:**
+
+For information. You will be advised of additional developments.
+
+CWT:jav
+
+(7) jav
+
+REC-57
+
+JAN 13 1968
+
+ADDENDUM BY D. E. MOORE (1/19/68)DEM:hmm: The Washington Field Office advised at 2:15 p.m. that the above-mentioned demonstration broke up at 1:45 p.m., after a speech was made by comedian Dick Gregory. No arrests or incidents occurred.

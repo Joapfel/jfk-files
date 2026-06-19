@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_22583.png
+
+Convert to MarkdownSECRET!
+
+PERSONAL ACTIVITY
+
+Since 1966, Wiley's specific assignments for OS have been at a minimum, whereas his personal activities have increased. Much of his personal activity has been or might be construed as having been domestic political action. In 1970, his name was placed as a candidate for U.S. Representative from the 15th district of New Jersey, but he failed to receive the nomination. However, in 1972, he did campaign as an Independent candidate for the U.S. Senate in New Jersey. He received approximately one per cent of the ballots cast in the election won by Senator Clifford P. Case.
+
+He has been active in and frequently the prime mover in a number of organizations of conservative or right-wing persuasion. As such, he has earned considerable reputation as a capable coordinator and organizer through actions in support of "pro-American" and conservative causes. The parades, receptions, petition gathering, demonstrations and other publicity making ventures in which he has participated have run the gamut of support for the Republic of Vietnam, U.S. war policies, strong national defense posture, the Nationalist Chinese, U.S. prisoners in foreign lands and anti-bussing for integration.
+
+Among these organizations with which he has been prominently identified are:
+
+- **Parents and Taxpayers:** an organization opposing bussing for integration. He was doing public relations for this group as early as 1964 and has been periodically involved in this activity with this and other organizations to date.
+
+- **Free China Support Group and The Committee of 1,000,000:** these organizations are pro-Nationalist China and actively opposed the U.S. recognition of the People's Republic of China.
+
+- **Young Americans for Freedom:** a conservatively oriented youth group.
+
+- **Committee to Unite America:** as a member in 1971, he was active in its efforts aimed at lowering the level of public hostility toward government policies.
+
+RECEIVED
+
+SEP 30 1975
+
+CIA
+
+SECRET'

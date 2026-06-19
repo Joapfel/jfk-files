@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_19468.png
+
+Convert to MarkdownWOMEN'S INTERNATIONAL LEAGUE FOR PEACE AND FREEDOM
+
+TORCH OF FRIENDSHIP
+
+LADY LIBBY POETRYARD
+
+Monday, January 15, 1967 from 2 P.M. to 4 P.M.
+
+WEAR BLACK IF POSSIBLE
+
+THOUSANDS of American women will see to it that PEACE in Vietnam will be the first order of business when Congress convenes.
+
+Speaker of the House John McCormick and Senator Mike Mansfield will receive a delegation of 50 women led by Jeanette Rankin. The women will present a petition to these two Congressmen who represent the whole Congress.
+
+* PETITION the United States Congress to use its power to heal a sick society at home.
+
+* use its power to make reparation for the ravaged land we leave behind in Vietnam
+
+* listen to what American people are saying and refuse the insatiable demands of the military-industrial complex.
+
+JEANNETTE RANKIN
+HELENA, MONTANA
+
+November 27, 1967
+
+TO ALL AMERICAN WOMEN,
+
+I am proud of the fact that my first vote cast in Congress was a vote against war. It was the first opportunity for a woman to vote because I was the first woman to be elected to Congress.
+
+I believed then as I do today that women are the ones who must be concerned with the needs and development of the human race. I have always fought for the dignity of all

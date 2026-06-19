@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_24406.png
+
+Convert to MarkdownTOP SECRET
+
+duals on whom he intended to rely: "Sam Gold", who would
+serve as a "back-up man" (Roselli, p. 15), or "Key" man
+(Maheu, p. 17), and "Joe", whom "Gold" said would serve as
+a courier to Cuba and make arrangements there (I.G., p. 19).
+O'Connell, who was using the name "Jim Olds", met "Sam" and
+"Joe" only briefly (O'Connell, pp. 26-29).
+
+O'Connell testified that he learned the true identities of his associates one morning when Maheu called and asked him to examine the "Parade" supplement to the *Miami Times*.* An article on the Attorney General's ten-most-wanted criminals list revealed that "Sam Gold" was Mom Salvatore Giancana, a Chicago-based gangster,** and "Joe" was Santos Trafficante, the Cosa Nostra chieftain in Cuba/ (O'Connell, pp. 28-30); I.G., p. 19). O'Connell reported his discovery to Edwards (O'Connell, pp. 31, 33) but did not know whether Edwards reported this fact to his superiors (O'Connell, pp. 32, 41). O'Connell testified that this incident occurred after "we were in this thing up to our ears", a month or so after
+
+* A search of supplements to all Miami papers during this period did not reveal the article described by O'Connell.
+
+** Sam Giancana was murdered in his home on June 20, 1975.
+
+/ Trafficante made regular trips between Miami and Cuba on gambling syndicate business (I.G., pp. 19-20).

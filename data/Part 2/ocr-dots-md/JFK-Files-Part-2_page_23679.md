@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_23679.png
+
+Convert to Markdown Senator Hart. If it's happening, I don't think it should.
+2. If we have to sacrifice some human intelligence, I don't think
+3. we ought to have a CIA guy tugging on somebody's sleeve who's
+4. filling out his immigration forms because it is a very subtle
+5. and very powerful form of coercion.
+
+6. I don't think it should go on if it is going on but
+7. I think the oversight committee should find out.
+
+8. Mr. Bader. It's my personal position on this that
+9. we don't have the evidence. We have not taken it through to
+10. come to a conclusion on this:
+
+11. I personally think that it's a problem that should be
+12. pointed out, and I think perhaps my own view is that the
+13. formulation of a recommendation to look into this as a possible,
+14. as a problem would be my recommendation.
+
+15. I don't believe that is David's recommendation.
+
+16. Senator Mathias. I would think that you might as you
+17. contemplate this thing. there are all types of opportunities
+18. for this and I don't have any idea whether it's been done or not,
+19. but I would think an illegal alien, for example, would be a
+20. tremendous target.
+
+21. Mr. Aaron. I might just say --
+22. Senator Mathias. It's a different problem,
+
+23. Mr. Aaron. It's a subtle problem because abroad I personally
+24. was involved in a case in which someone seeking to emigrate to
+25. the United States. his desire to do that was exploited abroad
+
+TOP SECRET
+
+WILLIAM PAUL

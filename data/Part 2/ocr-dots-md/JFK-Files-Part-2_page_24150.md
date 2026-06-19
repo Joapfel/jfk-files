@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_24150.png
+
+Convert to Markdown88. **LPEPIC**
+
+A Delaware corporation based in New York City with a branch office in the Far East which provides commercial cover to a contract employee in the Far East targeted against foreign intelligence; net assets $27,265; one employee.
+
+90. **LPRERUN**
+
+A Delaware company used to provide compensation and tax attribution to an independent contractor, assets of $7,094; no employees.
+
+91. **LPGRASS**
+
+A Delaware company used as the ostensible investors of funds in LPKILT; assets of $1,826; no employees.
+
+92. **LPSHUFFLE**
+
+A New York company incorporated but never opened for business; being held in reserve for possible future use; no assets; no employees.
+
+93. **LPDAIS**
+
+A New York corporation based in New York with a branch office in Europe. Used as the ostensible employer of an Agency employee during his tour in Europe targeted against foreign intelligence; net assets $6,845; one employee.
+
+94. **LPDUPE**
+
+A Massachusetts company incorporated to provide cover and source of livelihood to an Agency employee on a tour in the Near East; assets of $9,647; one employee.
+
+NOV 6 1975
+
+CIA
+
+SECRET<sup>16</sup>-

@@ -1,0 +1,57 @@
+# JFK-Files-Part-2_page_22912.png
+
+Convert to MarkdownTOP SECRET
+
+127
+
+30
+
+shed some light as to whether he was just using OJWIN as a cover
+which is what he told me, the designation for billing, or
+whether he's willing to give out some more testimony.
+
+The Chairman. Well, let us get that additional informa-
+tion--
+
+Senator Baker. One further point, Mr. Chairman, that might
+be of interest if my memory is correct, and I believe it is
+correct, is that the major commercial cover for the Agency in
+
+Amsterdam was run by the Mullin Company,
+
+15-25
+29
+
+Senator Hart of Colorado. Frank, he's not worked for the
+Agency in ten years. He's not an active agent.
+
+The Chairman. Suppose that he were to tell us something
+that is of importance, then how do we cross-examine him? Then
+we have to bring him here for cross-examination, then we have
+blown his cover.
+
+Senator Baker. Mr. Chairman, may I say one other thing?
+I meant to say it, and I frankly forgot, just so my colleagues
+know what I'm about and not that I'm doing it behind their
+back.
+
+I got a call last night from one of the editors of Harper's
+magazine in Europe relaying to me that Bernard Barker wanted to
+talk to me, and he thinks about the Butterfield situation, and
+I intended to call him, but I wanted you to know that.
+
+The Chairman. That's fine.
+
+Let's defer decision right now, on that decision, Senator
+
+TOP SECRET
+
+HW 50553 DSCN.52423406 Page 150
+
+7600h0395393
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area 202) 544-6000

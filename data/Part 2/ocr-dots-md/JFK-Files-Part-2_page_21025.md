@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_21025.png
+
+Convert to MarkdownCONFIDENTIAL
+
+MAR 23 1967
+
+The above [code name] has been assigned to a Cuban alien whose activities are being [directed](s) against a Cuban intelligence service(s). He was requested by his Cuban principal(s) to obtain information relating to anti-Castro activities in the United States(s).
+
+Through his contacts with anti-Castro individuals in Miami, the following information was obtained: (S)
+
+A meeting of anti-Castro leaders was held recently at the home of Palayo Garcia. Manuel Fernandez, former Secretary of Labor-in-Cuba, acted as chairman, and the meeting was attended by former Castro officials, such as Manuel Urrutia, Manuel Ray, Felipe Pazos, Raul Chibas, Rufo Lopez Fresquet, Danilo Mesa, Elena Mederos, and Efreu Gonzalez. (G)
+
+At the meeting, Fernandez suggested that a committee be formed and efforts made to have the committee travel to Cuba for a conference with Cuban officials, in order to discuss the release of political prisoners. It was believed that the discussion concerning political prisoners could be expanded to include a discussion of differences between Cuba and the United States. Those in attendance agreed that such a discussion would be timely, inasmuch as it appears that Fidel Castro is not completely satisfied with Cuba's relations with the Soviet Union. If the discussion of the relations between Cuba and the United States should prove productive, such information (n) will be provided.
+
+Approved By USER S
+by Jack Cabbett CIA
+Thomas F. O'Harey III
+3/30/67
+WOB
+
+SECRET
+GROUP->-
+Excluded from automatic
+downgrading and
+declassification
+
+CONFIDENTIAL
+SECRE!
+
+ENCLOSURE
+SECRET
+
+CW
+
+NW 50953 DocId:32304242 Page 4

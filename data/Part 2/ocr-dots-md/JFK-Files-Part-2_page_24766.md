@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_24766.png
+
+Convert to MarkdownTOP SECRET
+
+Mann suggested for Merchant's consideration and, if he approved, for discussion by the Special Group, the provision of token quantities of selected items desired by the dissidents. Mann specifically mentioned small explosive devices which would place some "sabotage potential" in the hands of dissident elements, but stated that there "would be no thought of toppling the GODR (Government of Dominican Republic) by any such minor measure." (Mann to Merchant memo, 1/12/61) This memorandum was drafted on January 11 by Mann's Special Assistant for CIA liaison, Frank Devine.
+
+A covering memorandum from Scott to Merchant, forwarding Mann's memo, was apparently taken by Merchant to the Special Group meeting. Merchant's handwritten notations indicate that the Special Group "agreed in terms of Tom Mann's memo" and that the Secretary of State was informed of that decision by late afternoon on January 12, 1961. (Scott to Merchant memo, 1/12/61)
+
+There is no evidence that any member of the Special Group, other than Allen Dulles, knew that the dissidents had clearly and repeatedly expressed a desire for arms and explosives to be used by them in assassination efforts.* While it is, of course, possible that such information was passed orally to some or all of the members of the Special Group, and perhaps even discussed by them on January 12, 1961, there is no
+
+*Various CIA cables, including those dealing with the sniper rifles, indicate that copies were sent to the DCI, Allen Dulles.
+
+HW 50955 DocId:32423539 Page 396

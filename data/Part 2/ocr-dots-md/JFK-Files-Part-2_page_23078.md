@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_23078.png
+
+Convert to Markdown believed he was being supported by U.S. businessmen with financial stakes in Cuba. Roselli needed Ciancana and Trafficante in the first phase as a means of establishing contacts inside Cuba. He did not need them in the second phase, because he had Varona. However, it would be naive to assume that Roselli did not take the precaution of informing higher-ups in the syndicate that he was working in a territory considered to be the private domain of someone else in the syndicate.)
+
+When the pills were given to Varona through Roselli, Varona requested arms and equipment needed for the support of his end of the operation. Roselli passed the request to Harvey. Harvey, with the help of Ted Shackley, the chief of the JMAVE Station, procured explosives, detonators, twenty .30 caliber rifles, twenty .45 caliber hand guns, two radios, and one boat radar. Harvey says that the "shopping list" included some items that could be obtained only from the U.S. Government. Harvey omitted those items, because Roselli, posing as a representative of private business interests, would not have had access to such equipment. The cost of the arms and equipment, about $5,000, was T/A'd to headquarters.
+
+Harvey and Shackley rented a U-Haul truck under an assumed name, loaded it with the arms and equipment, and parked it in the parking lot of a drive-in restaurant. The boys were then given to Roselli for
+
+SECRET-FILES ONLY
+EXHIBIT
+
+76020070301
+
+SECRET-FILES ONLY
+
+NH 30933 DOCID:32423434 Page 127

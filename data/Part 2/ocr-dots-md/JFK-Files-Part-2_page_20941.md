@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_20941.png
+
+Convert to MarkdownWFO 100-55290
+
+For these reasons, the toll records for the "Furies" telephone 202-544-7613, were obtained from the last five month period.
+
+On 7/13/72, Miss JEWEL JOHNSON (Protect by Request), 1117 Anacostia Road, S. E., WDC employed at Civil Aeronautics Board, 1825 Connecticut Avenue, N. W., WDC, advised SA DENNIS PHILLIP HYTEN that she is the owner of the row house at 219-11th Street, S. E., WDC. She stated that three women, SUSAN HATHAWAY, SUSANXSCHWING and COLETTA REID originally rented the house. She stated she has no background information on any of the women and is not aware of anyone else residing at the residence. She has received no complaints about the residents from the neighbors. Miss JOHNSON added she would help the FBI in any way possible.
+
+Atlanta advised as follows in referenced letter:
+
+The 5/29/72, issue of "The Great Speckled Bird", an underground newspaper with general distributions in the Atlanta, Ga., area, carried the following notice:
+
+"On application of Sally Gabb, Marianne Kaufman and Nancy Jones, all of 432 Moreland Ave., N.E., Atlanta, Georgia, articles of incorporation have been granted the Sojourner Truth Press, Inc. by the Honorable Septha Tanksley, Judge of the Superior Court of Fulton County, in accordance with the applicable provisions of the Georgia Business Corporation Code. The registered of the corporation is located at 432 Moreland Ave., N.E., Atlanta, Georgia and it's registered agent is Sally Gabb. The purpose of the corporation is printing and dissemination of information. The minimum capital with which the corporation shall commence business is $500.00."
+
+NW 88321 DocId:32989546 Page 446

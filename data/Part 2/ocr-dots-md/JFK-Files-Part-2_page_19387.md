@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_19387.png
+
+Convert to MarkdownTeletype to SAC, St. Louis
+
+RE: DEMONSTRATIONS PROTESTING U.S.
+POLICY IN VIETNAM
+100-448475
+
+NOTE:
+
+SL-1019-S is a 43-year-old Negro female who is employed as a housewife. She has been an informant since 7/53. Informant is a member of the Missouri State Committee; CP, USA; member of the Financial Committee; and Organizational Secretary of the CP of Missouri. She is currently authorized payments of up to $235 per month for services and up to $20 per month for expenses. Source would be able to furnish valuable information concerning dirty efforts during this demonstration. The demonstration in Washington, D. C., on 1/15/68 is sponsored by the Jeannette Rankin Brigade composed of women from various peace organizations. Teletype being used in view of necessity for informant to make travel arrangements.

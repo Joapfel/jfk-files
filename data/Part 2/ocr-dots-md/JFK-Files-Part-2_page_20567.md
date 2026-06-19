@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_20567.png
+
+Convert to Markdown# PUBLIC INVESTIGATION SECTION
+
+NOV 20 1971
+
+HR 004 SF PLAIN
+4/46PM 11-20-71 URGENT MXG
+
+TO: LEM DIRECTOR
+FROM: SAN FRANCISCO (100-71464) (P)
+
+WOMEN'S NATIONAL ABORTION ACTION COALITION (WONAC); DEMONSTRATION,
+NOVEMBER TWENTY, INSTANT, SAN FRANCISCO, IS -NEW LEFT.
+
+RALLY AT CIVIC CENTER ENDED BY THREE FOURTY-FIVE PM. OFFICIAL POLICE ESTIMATE OF CROWD WAS APPROXIMATELY EIGHT HUNDRED. SEVERAL HUNDRED YOUNG PEOPLE ATTENDING A SKI SHOW NEARBY WERE MERELY ONLOOKERS AND NOT PART OF DEMONSTRATION. NO INCIDENTS OR ARREST.
+
+## ADMINISTRATIVE:
+
+RE SF TEL ELEVEN TWENTY, SEVENTY ON SUIT -46,9406-38
+
+REC-32 103 -46,9406-38
+
+SAS OBSERVING WERE EDWARD O'FLYNN AND JAY GRODIN. JERRY WRIGHT, ONE HUNDRED FIFTEENTH MIG, ADVISED. TO: DICKSON, INTELLIGENCE DETAIL, SOURCE OF OFFICIAL CROWD ESTIMATE.
+
+LHM FOLLOWS.
+
+END
+
+MKA FBI WASH DC
+
+57 DEC 10 1971
+
+NW 88321 DocId:32989546 Page 72
+
+<table><tr><td>Mr. Tolson</td></tr><tr><td>Mr. Felt</td></tr><tr><td>A. L. Kirtley</td></tr><tr><td>Mgr Bishop</td></tr><tr><td>Jr. Munder, ES</td></tr><tr><td>Mr. Callahan</td></tr><tr><td>Lt. Clsner</td></tr><tr><td>Mr. Conrad</td></tr><tr><td>Mr. Dalbey</td></tr><tr><td>Mr. Cleveland</td></tr><tr><td>Mr. Ponder</td></tr><tr><td>Mr. Bates</td></tr><tr><td>Mr. Taver</td></tr><tr><td>Mr. Walters</td></tr><tr><td>Mr. Soyars</td></tr><tr><td>Tele. Room</td></tr><tr><td>Afriss Holmes</td></tr><tr><td>Miss Gandy</td></tr></table>
+
+FOR NOV 23 1971
+
+H. W. Kirtley U.S. Air Force

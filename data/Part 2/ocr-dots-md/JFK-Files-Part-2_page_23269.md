@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_23269.png
+
+Convert to Markdown# TOP SECRET
+
+the way President Kennedy presided over those two meetings. He was annoyed by the Congo and irritated by it and he was worried that he had to spend so much bloody time on it, but he was damn well determined to see the thing through and he was continually goosing his staff to do just that, but in support of the U.N. We weren't going to do it all by ourselves. It couldn't have been clearer.
+
+Mr. Baron. All right, as I mentioned before, the Committee is interested in your wisdom on policy-making and analysis in the intelligence community generally and there may be other members of the Committee staff that would like to call upon you to testify on other subjects because of your long experience in Agency activities.
+
+But I want to thank you now for your complete cooperation and the tremendous amount of information that you have provided on this one subject that has been very helpful?
+
+Mr. Tweedy. Thank you, Mr. Baron. I can assure you anything I can do to help the Committee in other areas I will be glad to do it and if I don't think I can help because I don't think I know enough about the subject I will just say so, otherwise: I am not afraid to put my, two bits in.
+
+Mr. Baron. As far as your two bits goes, we would be interested in your two bits worth on policy recommendations in general, institutional, critique or suggestions for change or any kind of recommendations that you would care to make,
+
+TOP SECRET

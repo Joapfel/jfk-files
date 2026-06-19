@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_21382.png
+
+Convert to MarkdownCONFIDENTIAL
+
+UNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED EXCEPT
+WHERE SHOWN OTHERWISE.
+
+February 11, 1972
+
+Re: Arab Terrorist Activities
+
+The following information was furnished by a confidential source abroad on February 4, 1972:
+
+According to the source, a pro-Palestinian organization called the Palestine Committee-Brussels was organized during 1970 within the Belgian National Palestine Committee for the purpose of supporting Palestinian revolutionary activities. The Brussels Committee was headed by Luc Dupire, a Belgian national born on April 9, 1942, at Haine St. Paul, and the National Palestine Committee by Aron Raindorf, a Belgian citizen born on December 22, 1919, at St. Gilles.
+
+Following a period during which the two groups worked in harmony, a schism took place in November, 1971, which resulted in a new group being formed by Dupire and Yvonne Sterck which was called The Responsible Group for the National Palestinian Committee and the Palestinian Committee-Brussels without other members of either group being consulted. Raindorf, according to the source, is currently attempting to regain control over divergent elements and to restore order to the groups involved.
+
+In this connection, Raindorf traveled to London where he remained from December 26 through December 28, 1971, and met with one Gibson, described only as an American Negro journalist, and with an individual known as Manchanda, described as being of Pakistani origin. The source indicated Manchanda is probably identical to Albert Manchanda, a British citizen born on April 9, 1919, in India. Raindorf also traveled to Beirut, Lebanon, on January 20, 1972, and to Damascus, Syria, to meet with elements of the Fath and the O.L.P. which were not further described by the source.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
+
+ENCLOSURE
+
+GROUP 1
+
+Excluded from automatic downgrading and declassification
+
+CONFIDENTIAL
+
+HW 50953 DocId:32339240 Page 6

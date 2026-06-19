@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_21919.png
+
+Convert to MarkdownBissell did not recall being informed by (Gottlieb) that Gottlieb had represented to the Chief of Station that there was Presidential authorization for the assassination of Lumumba (Bissell, 9/10/75, p. 46). But Bissell said that assuming he had instructed Gottlieb to carry poison to the Congo, "there was no possibility" that he would have issued such an instruction without authorization from Dulles (Bissell, 9/10/75, p. 47). Likewise Bissell said he "probably did" tell Gottlieb that the mission had the approval of President Eisenhower (Bissell, 9/10/75, p. 47). This led to Bissell's conclusion that if, in fact, the testimony of the Chief of Station about Gottlieb's actions is accurate, then Gottlieb's actions were fully authorized:
+
+Q: In light of the entire atmosphere at the Agency and the policy at the Agency at the time, Mr. Gottlieb's representation to the Chief of Station that the President had instructed the DCI to carry out this mission would not have been beyond the pale of Mr. Gottlieb's authority at that point?
+
+Bissell: No, it would not. (Bissell, 9/10/75, p. 65).
+
+Bissell further stated:
+
+Knowing Mr. Gottlieb, it is literally inconceivable to me that he would have acted beyond his instructions. (Bissell, 9/10/75, p. 41.)
+
+With respect to his assignment to Justin O'Donnell to "plan and prepare for" the assassination of Lumumba (Bissell, 9/10/75, p. 24) Bissell testified that "it was my own idea to give

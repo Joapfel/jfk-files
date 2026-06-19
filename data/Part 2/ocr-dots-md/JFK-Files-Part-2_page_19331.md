@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_19331.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DEMONSTRATION PROTESTING U. S.
+POLICY IN VIETNAM
+WASHINGTON, D. C.
+
+JANUARY 15, 1968
+
+Records of the U. S. District Court, San Francisco, show that on May 25, 1949, HARRY BRIDGES was indicted for criminal actions of perjury and conspiracy committed to conceal CP membership, thereby fraudulently obtaining U. S. citizenship. BRIDGES was convicted of these charges on April 4, 1950. On appeal, the Ninth Circuit Court of Appeals upheld the conviction. Based on the Statute of Limitations having run, the U. S. Supreme Court reversed the conviction on May 15, 1953.
+
+CONFIDENTIAL
+
+- 4% -

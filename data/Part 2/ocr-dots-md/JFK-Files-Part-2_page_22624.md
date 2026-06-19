@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_22624.png
+
+Convert to MarkdownTOP SECRET
+
+first live human being I saw that had actually allegedly heard from Hersh. And he thought they had been set up -- and that was the biggest agony in the Agency.
+
+Senator Baker. And the person who set him up --
+Mr. Angleton. Hersh told him, according to Szulc, that he was scared of the story, because this was his source on the December 22 article. And therefore he wondered aloud whether he had been set up.
+
+Senator Baker. Did he say who had been the source of the
+December 22 information?
+
+Mr. Angleton. Absolutely no.
+
+Mr. Kirbow. Off the record.
+
+(Off the record.)
+
+Mr. Schwarz. I just want to make sure, in your conversa-
+tion with Mr. Szulc as opposed to your testimony here today
+on the merits, did you deny to Mr. Szulc that you or
+the Agency had facilitated the transfer of atomic technology
+to Israel?
+
+Mr. Angleton. I denied it. But the conversation drifted rapidly, because Szulc was talking about a very great agent that he had in the Agency. And he was bragging about the fact that he had more sources than Hersh had. And then he said, do you know Australia?
+
+And I said, yes, I know Australia.
+
+Does the word Sydney mean anything to me?
+
+760 U1 I 1 A1
+
+WARD & PAUL
+
+A10 First Street, S.E., Washington, D.C. 20003
+
+TOP SECRET

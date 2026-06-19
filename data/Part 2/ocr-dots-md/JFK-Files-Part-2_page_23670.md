@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_23670.png
+
+Convert to MarkdownHW 50955 DocId:32423509 Page 44
+
+# TOP SECRET
+WILL BE DELIVERED IN ENGLISH ONLY. NO TRANSLATION.
+
+I'm the operating head.
+
+You know, that can be a dissipation of his accountability.
+
+You have a man that is so involved in so many other things that some nameless person is under him calling the shots. But if we were to move him away from that, then that nameless person becomes the man that we're looking to as far as the operation of the CIA is concerned.
+
+Mr. Kirhow. At that time too wouldn't you expect that that person would be named as the Director of the CIA. would be nominated by the President and confirmed by the Senate?
+
+Mr. Miller. What's wrong with having the DCI in charge of the community as long as the deputé is under his direct control?
+
+Senator Huddleston. Well, you have the community of the USA. You don't call the director out there the director of the DCI.
+
+We should be consistent.
+
+Mr. Aaron. Option 2 --- we'd have a clear deputy, we'd know who he was. He'd be confirmed by the Senate. He'd be a man of stature and he wouldn't be anybody's deputy. He would be responsible.
+
+Mr. Kirhow. He wouldn't be a deputy at all. He'd be the director of CIA.
+
+Senator Huddleston. We'd just elevate the deputy for operations to be the director.

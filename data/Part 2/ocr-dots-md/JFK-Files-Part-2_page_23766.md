@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_23766.png
+
+Convert to Markdowninfluencing the carrying out of the election?
+
+Senator Huddleston. Well, we subvert our own elections every time we run.
+
+Senator Mathias. The original suggestion was efforts to overthrow democratically elected governments. I mean both of these -- efforts to subvert the results of a valid electoral process.
+
+Senator Huddleston. I think that's all right.
+
+Mr. Inderfurth. In a sense what is a democratically elected government?
+
+Movnihan says that in the U.N. there are 24, so in a sense we could actually list them.
+
+Mr. Digenova. What about, what is a valid electoral process? Whatever it is in each country? I mean the communist countries have one party and that's a valid electoral process in that country.
+
+Senator Mathias. This would be Cannon's advice.
+
+Senator Huddleston. Well, I think we have to recognize the right of another country to have their electoral process and it would be valid if someone in that country were attempting to circumvent their established constitutional processes.
+
+Mr. Maxwell. The qualifier in the Senator's proposal was democratic, so that at least in some way it restricts the notion of a dictator.
+
+Senator Huddleston. Self-determination means should be
+
+TOP SECRET
+MARIA PAUL
+
+HW 50955 DocId:32423509 Page 140

@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_22903.png
+
+Convert to Markdown21
+
+the first of August.
+
+Senator Baker. I agree with you 100 percent.
+
+The Chairman. This Committee has got to get its business
+done and I know the purpose of the delay downtown is to make it
+as difficult as possible for us to cope with our work. We will
+be engulfed completely if we cannot deal with this phase of
+our work in the time that we have given it and put it over until
+the fall. What I'm suggesting is not just simply the report of
+the Committee. We are going to complete our witnesses,
+we have time to issue such a report.
+
+I am also suggesting the recommendations the Committee will
+make with respect to this issue. We have to put this behind
+us. It is just folly not to do it, because we must get on with
+the other phases of the report and there is no reason we cannot
+do it. If we can't do it by the end of this month, then we're
+not going to be any more advantaged or any better advantaged
+to then go out on our recess and come back and take it up anew
+in the fall. It is a very clear-cut issue.
+
+Senator Hart of Michigan. But what is not clear-cut to me is how we report to our peers.
+
+The Chairman. We will take that up.
+
+Senator Schweiker. We discussed that at one meeting. We had a little informal meeting. Maybe you missed that, Phil.
+
+The Chairman. There is nothing that could be gained by putting it off or deferring it or postponing it. It is very
+
+TOP SECRET
+
+7600590 WARD & PAUL
+410 First Street, S.E., Washington, D.C. 20003
+
+HW 30933 Document:32423406 Page 121

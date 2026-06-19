@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_21229.png
+
+Convert to MarkdownDepartment, had relations with her at the
+National Hotel which were photographed.
+
+In 1962 or 1963 NOSENKO heard from
+GRYAZNOV that she was again in Moscow as
+a tutor for the American Ambassador's
+children and was in "close relations"
+with a foreign Negro. 1st Department was
+planning to approach her and, if successful,
+to use her against American code clerks
+
+17. JOHN RUFE (S)
+
+On page 424 it is stated that NOSENKO did not relate
+the [JOHN RUFE] case to his 7th Department service and did not
+indicate the source of information
+
+COMMENT: NOSENKO stated on November 28, 1967, (N-46), that this was one of the cases furnished by EVGENI NOSKOV in 1963 acting for VITALI DERA as indicated above.
+
+18. COLLETTE SCHWARZENBACH (S)
+
+On page 425 it is stated that NOSENKO did not recall
+
+TOP SECRET
+
+HW 50953 DocId:32318825 Page 115
+
+TOP SECRET
+
+214
+
+TOP SECRET

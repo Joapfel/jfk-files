@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_19929.png
+
+Convert to Markdown# JEANNETTE RANKIN BRIGADE
+
+The source further advised that the Marin Chapter of the Women's International League For Peace And Freedom (WILPF) is supporting the Jeannette Rankin Brigade in every way possible.
+
+A characterization of the WILPF is contained in the appendix.

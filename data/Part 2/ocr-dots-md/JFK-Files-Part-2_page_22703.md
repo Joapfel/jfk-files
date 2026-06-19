@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_22703.png
+
+Convert to MarkdownTOP SECRET
+
+760011515
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+# TOP SECRET
+
+## Senator Baker. What would you do, Mr. Angleton, to try to rehabilitate the Agency in particular in counterintelligence capability, since you feel that it is deteriorating, what things in particular would you do?
+
+Mr. Angleton. My feeling is that the Agency has to go through the purgatory that -- these fires that no man would put out -- and therefore let it be shocking or whatever. And let all the political repercussions take place, and if you go to purgatory, my view is, the bigger the fires, the better. So my view is, let it all come out. And let people take the consequences. I am not a believer that an agency can have two fathers. And I don't believe in inferiors reporting on their superiors by directive. And I don't believe that the Agency below the Director has to be responsive to two authorities.
+
+Senator Baker. What two authorities?
+
+Mr. Angleton. I mean the Congress and the Executive. In other words, if Colby is asked, what do you know about Chile, my view is that on Chile would yoy please ask the White House. And that is what I am trying to get at, at least so then they can come back with Colby after the Executive part has told Colby what it might be. But to throw the burden on the Director to respond to a question on Chile, gives him -- he is always in that dual position. And something doesn't seem to work that way. And the lower you go in the Agency, even to
+
+TOP SECRET

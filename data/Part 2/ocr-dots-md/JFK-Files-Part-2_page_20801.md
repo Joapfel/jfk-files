@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_20801.png
+
+Convert to MarkdownWFO 100-55420
+
+**C. Location**
+
+D.C. WONAAC is located at 1346 Connecticut Avenue, N.W., WDC, Suite 318.
+
+(WF T-1, 12/6/72)
+
+**D. Headquarters**
+
+National WONAAC is located at 150 5th Avenue, New York, New York.
+
+(WF T-1, 12/6/72)
+
+YSA/SWP members are a minority force on the National WONAAC staff and the independent staff members favor elimination of YSA/SWP women from WONAAC.
+
+(WF T-1, 7/5/72)
+
+**E. Officers**
+
+Dr. BARBARA ROBERTS, National Coordinator of WONAAC, resides at 4528 Van Ness Street, N.W., WDC.
+
+(WF T-1, 12/6/72)
+
+The following individuals, who are all members of the WDC locals of the YSA and/or SWP, are considered to be the key people involved in D.C. WONAAC:
+
+BARBARA SANDSTROM
+STARR BOWIE T
+PAT PUTNAM T
+TOBA SINGER (wonapec)
+KATHY KERSEY
+SARA SMITH
+
+(WF T-1, 12/6/72)

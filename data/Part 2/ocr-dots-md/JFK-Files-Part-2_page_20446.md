@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_20446.png
+
+Convert to MarkdownSE 100-29048
+
+The LHM is classified confidential because information
+from the above sources, if disclosed, might compromise regular
+security informants of continuing value.
+
+A copy of the LHM is designated for BUfile 100-408204
+on the source who covered this demonstration at Washington, D.C.
+for the Seattle Office.

@@ -1,0 +1,87 @@
+# JFK-Files-Part-2_page_22950.png
+
+Convert to MarkdownTOP SECRET
+
+16
+
+48 was going to be a coup, I believe the language somewhere in one of the cables is that it was in the interests of the United States that it should succeed.
+
+Mr. Schwarz: Now, on the day of the coup, Ambassador Lodge told Mr. Diem that he would provide help to get him out of the country and do so by airplane; but he couldn't have the plane for twenty-four hours. And did you know of the twenty-four hour point?
+
+Mr. Bundy. I don't remember that we did.
+
+Mr. Schwarz. But don't you find it incomprehensible that the United States was not able to supply an airplane for twenty-four hours?
+
+Mr. Bundy. I don't really know because it depends on where the plane was going to go, what kind of plane. I don't think I'm competent to answer that question.
+
+What occurs to me is, there were lots of other ways of offering asylum for a twenty-four hour period, and I don't think I really find that a very significant point.
+
+The Chairman. Any further questions?
+
+If there are no further questions, I want to thank you for your testimony, it has been long, a very long morning, and it has been very helpful testimony. We appreciate it very much.
+
+Mr. Bundy. And I am thankful to you, Mr. Chairman.
+
+Mr. Chairman, if it is not inappropriate and there is no
+
+TOP SECRET
+
+760003060,
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Hm
+
+5
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25

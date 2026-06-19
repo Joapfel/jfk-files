@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_21241.png
+
+Convert to Markdownthat he had furnished information to the Soviets in Moscow
+but stated that he was afraid not to continue to meet with
+them.
+
+On April 2, 1968 (N-176), NOSENKO stated that while looking at an encyclopedia he had seen the name of a flower which reminded him of a KGB agent with an unusual Jewish name FIAKSEL. This agent was married to an American furrier. He also recalled another furrier whose name was [REDACTED] and another case involving a father and son who were in the tobacco business. This father and son were Americans who had traveled to the USSR and were of interest to MIKHAIL FEDOROVICH SHISHKIN of the 7th Department which had an operation against the son involving KLARA K. GORBACHEVA. (NOSENKO later corrected this name to KLARA KONSTANTINOVA GORBUNOVA.)
+
+On April 4, 1968 (N-176), NOSENKO stated that SHISHKIN at one time was Chief of the 1st Section of the 7th Department but later was demoted and became a Senior Case Officer in the Section handling businessmen in the late 1950's. The case involving the American tobacco man and his son occurred in the
+
+TOP SECRET
+
+227
+
+TOP SECRET

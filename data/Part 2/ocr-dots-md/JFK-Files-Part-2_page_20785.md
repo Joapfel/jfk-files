@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_20785.png
+
+Convert to Markdown# UNITED STATES DEPARTMENT OF JUSTICE
+## FEDERAL BUREAU OF INVESTIGATION
+
+Copy to:
+
+Office: New York, New York
+
+Bureau File #: 100-468406
+
+Report of:
+Date: NOV 30 1972
+Field Office File #: 100-174481
+Title: WOMENS NATIONAL ABORTION ACTION COALITION (WONAAC)
+
+Character: INTERNAL SECURITY-C (TROTSKYIST)
+
+Synopsis: WONAAC founded as result of conference held in NYC, NY, during July, 1971, for purpose of forming National Movement of Independent Groups throughout the US who favored legalized abortions and to end restrictive contraception laws and forced sterilization. National and NY State staff offices located 150 5th Avenue, NYC, NY. WONAAC does not maintain formal membership, and funds obtained through contributions. YSA and SWP influence and control over WONAAC reported since founding conference. Source advised February, 1972, that as result of de-escalation, Vietnam War, YSA-NYL plans to concentrate in area of Women's Liberation Movement through influence in WONAAC. Activities of WONAAC dutifully reported at regular membership meetings YSA-NYL during period March, 1972, through October, 1972. CAROL EATON, National Staff Member, advised under pretext in November, 1972, SWP/YSA influence not now significant, and WONAAC has always accepted help from whatever source offered. WONAAC International Tribunal scheduled to be held in NYC in March, 1972.
+
+-p*-
+
+DETAILS:
+
+Investigation in this case is predicated upon receipt of information in July, 1971, from NY T-1, alleging the Young Socialist Alliance (YSA) and Socialist Workers Party (SWP) had taken over and were influencing the First National Womens Abortion Conference, held during that month
+
+NOT duplicated within your agency."

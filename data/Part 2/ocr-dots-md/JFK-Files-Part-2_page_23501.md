@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_23501.png
+
+Convert to MarkdownTo; Files
+From: FDB
+Re: NOTES ON TESTIMONY OF ROBERT H. JOHNSON (6/18/75)
+Date: 7/5/75
+
+Biographical Background
+
+1951-62 National Security Council staff member
+
+1962-67 State Department, member of Policy Planning Council
+
+Chronology of Events
+
+Summer, 1960 Johnson attended a meeting of the NSC to discuss developments in the CONGO. "At some time during that discussion, President EISENHOWER said something -- I can no longer remember his words -- that came across to me as an order for the assassination of LUMUMBA...There was no discussion; the meeting simply moved on."
+
+--Johnson said he might have omitted the statement from his de-briefing memo due to its sensitivity.
+
+-- J. said probably Allen DULLES and Gordon GRAY were present at the meeting (in the Cabinet Room).
+
+--The formal record of decision by the NSC is unlikely to contain information on this subject, he said.
+
+--The memos which Johnson did on the meetings would be with President Eisenhower's papers. (10)
+
+"I was surprised ...that I would ever hear a President say anything like this in my presence or the presence of a group of people. I was startled."

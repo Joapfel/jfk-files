@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_24596.png
+
+Convert to MarkdownIn addition, the ONE Paper warned that the United States
+would most likely be blamed if Castro should die by another's
+hand. "If Castro were to die by other than natural causes the
+U.S. would be widely charged with complicity, even though it
+is widely known that Castro has many enemies". (Bundy Ex. 6-I,
+p. 4.)
+
+The ONE Paper also identified a number of possible U.S.
+actions in the event of Castro's death, ranging along a spec-
+trum that included no U.S. initiatives, action to support a
+government in exile, quarantine and blockade, and outright
+invasion. (Bundy Ex. 6-I, pp. 7-12.)
+
+On May 28, 1963, the Standing Group discussed the ONE Paper.
+
+The Standing Group found that "all of the courses of action
+[open to the U.S. should Castro die] were singularly unpromising".
+
+(Summary Record of NSC Standing Group Meeting No. 7/63, May 28,
+1963, p. 1).
+
+Bundy agreed that the Standing Group "certainly posed the
+question" in the Spring of 1963 as to what would happen if Castro
+died or were killed. (Bundy, 7/11/75, p. 130.) But he testified
+that he had no recollection of a Castro assassination being on
+the minds of Standing Group members when they discussed this
+contingency. (Bundy, 7/11/75, p. 14.)
+
+*/As indicated above p. __), Bundy did recall that over the period 1961 and 1963 "the subject of a Castro assassination was mentioned from time to time by different individuals", but said that he was not aware of "much discussion in the Spring of 1963 on that subject". (Bundy, 7/11/75, p. 140.)
+
+TOP SECRET
+
+UNCLASSIFIED
+
+NFW 50955 DocId:32423539 Page 226

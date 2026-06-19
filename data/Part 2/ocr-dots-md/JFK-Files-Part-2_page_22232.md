@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_22232.png
+
+Convert to MarkdownNO OBJECTION
+NATIONAL SECURITY COUNCIL
+
+CIA HAS NO OBJECTION TO
+DECLASSIFICATION AND/OR
+RELEASE OF THIS DOCUMENT
+AS SANITIZED
+
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Gen. Lansdale<br>Gilpatrick<br>Don Wilson</td><td>Oct 31, 1962</td><td>MONGODB<br>SGA<br>CUBA</td></tr></tbody></table>
+
+OCCURRENCE:
+
+Gilpatrick asked Lansdale to give him a brief outline of Operation MONGOOSE in light of current U.S./USSR negotiations re: Cuba. Lansdale talked to Bruce Cheever and "sketched in the purpose, which was to get a fix for Gilpatrick as one of the U.S. negotiators with the Soviets on whether or not all actions (sabotage, etc.) had come to a stop---didn't want the U.S. embarrassed and Gilpatrick wanted to be sure of this.
+
+TOP SECRET
+
+SOURCE: Oct 31, 1962 memo for the record by Gen.Lansdale (00744)
+
+FILE:
+
+STAFF: Wallach
+DATE: July 3, 1975

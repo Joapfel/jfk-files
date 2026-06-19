@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_22897.png
+
+Convert to Markdown10 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+760030541
+
+Phone (Area 202) 544-6000
+
+15
+
+Senator Hart of Michigan. Would it be useful, at least,
+if it is the feeling of the Committee to authorize you people,
+or Bill, today, to say that the Committee barely suppressed its
+outrage and that it won't do, and we will see you Tuesday?
+
+Don't wait till Tuesday.
+
+The Chairman. I think something should be said, actually.
+
+Senator Hart of Michigan. Well, it prejudges the hell out
+of it, but unless we get an extension to 1980 for this Committee --
+The Chairman. I think you're right. Something needs to be
+
+said publicly that the Committee is determined that we feel
+that not only has time -- we've already said, we've already
+made public the letter we have sent. I think a follow-up needs
+to be that we are concerned that impediments that are now being
+suggested which would interfere with the Committee's right to
+interrogate witnesses, we do not intend to allow the Committee's
+work to be obstructed and if necessary we will be prepared to
+subpoena witnesses though we would hope that that would not
+have to be the case.
+
+Senator Baker. And we are going to try to work it out
+from Tuesday.
+
+The Chairman. We're going to try to work it out from
+Tuesday.
+
+Senator Baker. I have a business matter.
+
+The Chairman. So does Senator Mondale.
+
+Senator Mondale. Just one point.
+
+TOP SECRET
+
+112

@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_23865.png
+
+Convert to Markdown1 would take care of it.
+
+2 Senator Mondale. Publicly attributed.
+
+3 Mr. Aaron. Publicly.
+
+4 Senator Huddleston. That is getting at what really we
+5 are trying to do.
+
+6 The Chairman. How about the balance of 45, "nor should
+7 the CIA be permitted to undertake any activity to accomplish
+8 indirectly such distribution within the United States or its
+9 territories.
+
+10 Well, I think that follows and should be a part of it.
+
+11 Very well.
+
+12 Senator Mathias. Mr. Chairman, I wonder, while we are in
+13 this area, if you could refresh my recollection, whether
+14 "grantees" in No. 44 applies to both foreign and American
+15 grantees.
+
+16 Mr. Bader. Yes, it would, Senator, under this language,
+17 because the Fulbright program or the -- such government-sponsored
+18 programs to include, too, include foreigners. As I understood
+19 it from the discussion of the Committee, the intent here was
+20 to ensure that public funds that were publicly devoted to
+21 a specific purpose were so spent and that was the issue that
+22 was involved here, was the appropriated funds for educational
+23 programs be kept to educational programs and not to be used
+24 operationally. But the language here would certainly include
+25 foreigners.
+
+TOP SECRET
+
+WARD & PAUL
+
+HW 50955 DocId:32423521 Page 10

@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_21706.png
+
+Convert to MarkdownTOP SECRET
+
+that he would have been knowledgeable about it.
+
+Mr. Baron. Was that Milton Buffington?
+
+Mr. Hunt. Yes. I think he later went on and had a career
+in the Office of Security. Milton Buffington, yes.
+
+Mr. Baron. Anyone else?
+
+Mr. Hunt. Yes, I have the names of three men who unfor-
+tunately are dead. I could give those names, though. Mr. C.
+Tracy Barnes, Mr. John Baker, who I've already mentioned, and Mr
+
+These men were all at one time or another
+chiefs of the Agency's PP staff.
+
+Another man now living to the best of my knowledge who
+might well have had knowledge of Pash's function was the
+then-chief of the Economic Warfare staff of the PP staff and his
+
+16a
+
+410 First Street, S.E., Washington, D.C. 20003
+
+HW 50955 DocId:32302418 Page 11
+
+TOP SECRET

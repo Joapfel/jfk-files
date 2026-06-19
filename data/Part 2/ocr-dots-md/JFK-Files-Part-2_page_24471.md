@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_24471.png
+
+s and the documents--that Nixon was not significantly involved in Cuban matters generally at the critical times. There is no evidence suggesting his knowledge of the Castro assassination effort during the period under review, significant parts of which occurred during the Presidential campaign. (Bissell, p. 39; Gray, 7/9, p. 39) Therefore, we concluded that, despite the indications in Nixon's book *My Six Crises* (p. 46) that he was involved in Cuban matters generally--and Howard Hunt's characterization of him as the [action officer] for the Bay of Pigs, there was insufficient reason to examine Mr. Nixon on Cuba looked at alone. We came to a contrary conclusion on Chile and . . .
+
+TOP SECRET
+
+HW 50955 DocId:32423539 Page 101

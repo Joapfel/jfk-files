@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_21060.png
+
+Convert to MarkdownCONFIDENTIAL
+
+MEMORANDUM FOR: Chief, Consular Section
+FROM: Liaison Section
+SUBJECT: Miriam Finkleman WINNER (or WINER)
+
+9 August 1965
+
+CIA HAS NO OBJECTION TO
+DECLARATION AND/OR,
+RELEASE OF CIA INFORMATION
+IN THIS DOCUMENT,
+
+According to usually reliable Cuban exile sources in Madrid, the Subject was born in Poland on 5 February 1922; she became a Cuban citizen in 1945. Subject arrived in Madrid, Spain, on 12 May 1963, bearing Cuban passport #34059 issued on 24 July 1956. Her last known address in Cuba was Ronda 17, Apt. 18, Habana.
+
+The following is Subject's educational history:
+
+*   **1930 to 1936** - Primary school at Ludwipol, Poland
+*   **1938 to 1942** - High school-Instituto Marianoo, Habana
+*   **1942 to 1947** - University of Habana (degree in Philosophy and Letters)
+*   **1958** - University of Columbia, New York (summer school studying German literature).
+
+From 1956 to 1961, Subject was a professor of literature and languages at the Central University in Santa Clara, Las Villas. She held the same position from 1961 to 1962 at the University of Habana. She reportedly speaks English, German and Spanish fluently.
+
+On arrival in Madrid in 1963, Subject listed the following members of her immediate family:
+
+Ana Winner - mother - 1800 S. Treasure Drive, Miami Beach, Florida
+Sam Benton - brother - same as above
+Francis Lyons - sister - 14 Walton Street, Portland, Maine
+Salomon Finkelman - brother - 3105 SW 79th Avenue, Miami, Florida
+Clara Belaster - sister - Miami, Florida.
+Julie Abramson - niece - 57 State Road, Portland, Maine.
+
+According to Manuel Cortina, who was formerly acquainted with Subject in Santa Clara, The Subject is currently the Director of English Language at the Mangold Institute in Madrid. He has no information concerning her present address, however, he said Subject is believed to be living with an unidentified Cuban exile who was a professor in Las Villas; to Source's knowledge, they are not married. Source has no additional information concerning Subject's current activities.
+
+GROUP I
+
+Excluded from
+automatic downgrading
+and declassification
+
+ENCLOSURE
+
+CONFIDENTIAL
+
+HW 50953 DocId:32307179 Page 5

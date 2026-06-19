@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_23287.png
+
+Convert to MarkdownTOP SECRET
+
+the document which we marked as Exhibit 1, in fact the arms were delivered after January 20th.
+
+Mr. Goodwin. I may have known. All I -- my first knowledge was this document, the timetable that I requested which simply informed me that the delivery of carbines had been made in late January. I don't know any more than that.
+
+Mr. Schwarz. All right.
+
+Mr. Goodwin. This is my source of knowledge. I may have learned more subsequent to it if Dearborn pinpointed it.
+
+Mr. Schwarz. In addition with dealing with Dearborn, were you dealing with anybody from the CIA on this?
+
+Mr. Goodwin. Well, they were always at the meetings.
+
+Mr. Schwarz. Who do you remember from the CIA?
+
+Mr. Goodwin. Tracy Barnes -- I can't be sure who all was there. At the meeting with the Vice President, I'm sure somebody like Bissell, at least, would have been there. But I'm sure you must have a list.
+
+Mr. Schwarz. Now I would like you to testify in answer to a series of questions as to what you were or were not told.
+
+Now, were you told that the arms which had been delivered had been delivered to persons who said at times that they wanted to use them for personal defense, but who said more often that they wanted to use them for assassination purposes?
+
+Mr. Goodwin. I was given to understand and told specifically and it's reflected in the documents, that they
+
+TOP SECRET
+
+410 East Street, #1, Washington, D.C. 20003
+
+7600517111
+
+400045500000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000

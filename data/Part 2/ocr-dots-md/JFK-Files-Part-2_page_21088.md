@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_21088.png
+
+Convert to Markdown**Memo to Mr. Belmont**
+
+**Re:**
+* Central Intelligence Agency
+* Information Received from James Angleton
+
+Intelligence division. Angleton handles special cases of a various nature and he is usually given considerable freedom and leeway in directing the operations of his unit. In general, he is responsible only to the Director of CIA. He has numerous foreign sources and channels for developing information. The primary source is the Israeli Intelligence Service. In addition to this, he is in contact with Jay Lovestone, who periodically makes available to Angleton copies of reports which Lovestone has received from American Federation of Labor representatives throughout the world. These representatives are associated with the Free Trade Union Committee, which is subsidized by the CIA. Angleton also has independent sources in the intelligence services of France, Italy, Greece, and Great Britain. On occasion he utilizes sources in the Vatican. Some of the men under his control are on various foreign assignments in Europe and are responsible only to him. Most of them are traveling under commercial cover.
+
+During the past several months Angleton has been very cooperative with the Bureau. He has volunteered voluminous information of interest to the Bureau and he has followed Bureau leads in an effective manner. Much of the information which Angleton has furnished appears in the raw form, that is, it consists of the actual reports received from Angleton's sources. This has been of advantage because the Bureau has been in a position to better evaluate the information instead of waiting for the delay and processing through normal channels in the CIA. In addition to information regarding security matters furnished by Angleton, he has also been of valuable assistance by keeping the Liaison Agent apprised of administrative changes and reorganization within the CIA. Angleton is thoroughly informed regarding the foreign intelligence activities of his agency and he frequently clarifies matters which the CIA sometimes camouflages with some of its cloak and dagger techniques.
+
+For your information, Angleton was instructed by General Walter Bedell Smith, while he was still Director of the CIA, to cooperate fully with the Liaison Agent and was told that he, Angleton, could disseminate any information he saw fit. This policy has continued under Allen Dulles.
+
+Since the volume of information received from Angleton has increased the Liaison Agent has endeavored to encourage Angleton to establish some uniformity in the dissemination of information to
+
+SECRET

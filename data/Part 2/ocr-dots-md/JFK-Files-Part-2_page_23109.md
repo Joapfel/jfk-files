@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_23109.png
+
+Convert to MarkdownEl 17 de marzo de 1967, resultaron detenidos Félix Asencio Crespo, Wilfredo Martínez Díaz y Gustavo Areces Alvarez, al tratar de infiltrarse por la zona de Cayo Fragoso, - procedentes de Estados Unidos.
+
+El objetivo principal que traían era realizar un atentado contra nuestro Primer Ministro y desatar una actividad sistemática de sabotajes con explosivos plásticos, todo ello complementado con ataques piratas, para dar la imagen en el exterior de actividades subversivas de grupos en distintas zonas y crear una situación que permitiera a las organizaciones contrarrevolucionales radicadas en Estados Unidos, recabar ayuda oficial.
+
+Para llevar a cabo sus actividades en territorio cubano, los mismos fueron entrenados por la CIA, a través de las organizaciones "M-30-11", "RECE", "Los Pinos Nuevos", "Comandos L", "Alpha-66" y otras.
+
+Para esta misión se les facilitó todo el material bélico necesario.
+
+Félix Asencio Crespo, Wilfredo Martínez Díaz and Gustavo Areces Alvarez were arrested on March 17th, while they tried to infiltrate the Cayo Fragoso zone, coming from the United States.
+
+The main objective they should carry out was to assassinate our Prime Minister and launch a systematic activity of sabotage -- with plastic explosives, all that supported with pirate attacks, in order to give abroad an image of the existence of subversive -- activities in different areas and, thus, to create a situation which would permit the counterrevolutionary organizations located in the United States to succeed in getting official support.
+
+In order to carry out their activities in Cuban territory, they were trained by the CIA through the "M-30-11", "RECE", "Los Pinos Nuevos", "Comandos L", "Alpha-66" and others organizations. For this mission they were given all the necessary warlike material.
+
+7600517-1

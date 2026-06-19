@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_20800.png
+
+Convert to MarkdownWFO 100-55420
+
+This investigation is predicated upon information
+that the Washington, D.C., (WDC), locals of the Young
+Socialist Alliance (YSA) and the Socialist Workers Party
+(SWP) are playing a major role in activities of the WDC
+chapter of the Womens National Abortion Action Coalition
+(D.C. WONAAC).
+
+(WF T-1, 12/6/72)
+
+As the youth organization of the SWP,
+the YSA serves as the main source of
+recruitment into that organization.
+The YSA is described in the masthead
+of its official publication "The Young
+Socialist Organizer," as "A multinational
+revolutionary socialist youth organization."
+
+The SWP has been designated pursuant
+to Executive Order 10450.
+
+I. ORGANIZATIONAL DATA
+
+A. Origin and Scope
+
+D.C. WONAAC is an affiliate of Womens National
+Abortion Action Coalition (WONAAC), which was founded at
+a conference held in New York, New York, July 16-18, 1971.
+WONAAC's national headquarters was originally located in
+WDC, but was moved to New York, New York, during December,
+1971. The WDC chapter was originally referred to as D.C.
+Womens Abortion Action Coalition (D.C. WAAC), but was
+subsequently changed to D.C. WONAAC in order to be identified
+completely in name with national,
+
+(WF T-1, 12/6/72)
+
+B. Aims and Purposes
+
+D.C. WONAAC's goals are synonymous with those
+of WONAAC, which have been defined as "working on a national
+scale to make abortion legal, to end restrictive contraception
+laws, and to end forced sterilization."
+
+(WF-1, 7/21/71 and 12/6/72)

@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_19985.png
+
+Convert to MarkdownCONFIDENTIAL
+
+W.E.B. DU BOIS CLUBS OF AMERICA (DCA)
+SAN FRANCISCO DIVISION
+
+A source has advised that as of April, 1966, the records of the DCA reflect that the following Du Bois Clubs and/or Chapters in Northern California are affiliated with the parent organization, the DCA:
+
+1. Berkeley Du Bois Club (BDBC), (Chartered)
+
+2. Fillmore Du Bois Club (FDBC), (Chartered)
+
+3. San Francisco Du Bois Club (SFDBC), (Chartered)
+
+4. San Francisco State College Du Bois Club (SFSCDBC), (Chartered)
+
+5. San Jose Du Bois Club (SJDBC), (Chartered)
+
+6. San Jose State College Du Bois Club (SJSCDBC), (Non-chartered)
+
+7. Stanford University Du Bois Club (SUDBC), (Non-chartered)
+
+A second source has advised in April, 1967, that for all intent and purpose, the DCA is defunct in the general San Francisco Bay Area, although certain elements in the Northern California District Communist Party are attempting to revive interest in the DCA.
+
+APPENDIX
+
+8
+
+CONFIDENTIAL
+
+NWW 88321 DocID:32989545 Page 269

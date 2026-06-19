@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_21261.png
+
+Convert to MarkdownSECRET
+SENSITIVE
+
+2
+
+WARNING NOTICE
+SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED
+
+C. Ramiro de LA FE, brother of Ernesto de LA FE who had been recently released from jail in Cuba.
+
+D. Rolando MASFERRER, Editor of "Libertad."
+
+E. Alberto DIAZ Masvidal, Editor of "Miami Extra."
+
+F. Max LESNIK, Editor of "Replica."
+
+G. Vicente RUBIERA, leader of Telephone Workers Trade Union in Miami.
+
+H. Santiago REY Pernas, former Cuban Minister of Interior.
+
+I. Alberto del RIO Chaviano, former Brig. General in the Cuban Army.
+
+5. Following are highlights of [KASSEL]'s report for our representative who met him in Miami:
+
+A. The Partido Revolucionario del Pueblo (PRP) has ceased to exist for all practical purposes. According to Ignacio LEDON, responsibility for the disintegration of the PRP falls on its leader Antonio SANTIAGO, whom [KASSEL] describes as a "farsante."
+
+B. Mario RIVADULLA, a member of the PRP Executive Committee who now lives in Santo Domingo, told [KASSEL] that it is impossible to organize a political movement in exile which would be capable of influencing in any way the development of events in Cuba. RIVADULLA now believes that there is no alternative but to await a spontaneous change of events in Cuba and a possible overthrow or assassination of Castro by the military.
+
+C. [KASSEL] attended a meeting of about 15 persons on 16 August presided over by Rolando MASFERRER, Director of the weekly "Libertad." MASFERRER told the participants that they should begin firing practice on a Florida farm to prepare themselves for action against Cuba before November, because he (MASFERRER) is sure that Castro will be overthrown by that time. MASFERRER pointed out that U.S. Security and
+
+SECRET
+SENSITIVE
+
+HW 50953 DocId:32319484 Page 3

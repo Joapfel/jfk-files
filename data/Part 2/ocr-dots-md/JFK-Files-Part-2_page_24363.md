@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_24363.png
+
+Convert to MarkdownSECRET
+
+DOMESTIC REAL PROPERTY LISTING
+
+| Location | Street Address | Personnel | Purpose |
+|---|---|---|---|
+| Washington | | | |
+| C. Safehouses | | N.A. | Covert meetings |
+| 1 Location | | | |
+| D. Non-Official Properties | | 3 | Contractor liaison |
+| 1 Location | | | |
+| Wisconsin | | | |
+| A. Overt & Nominal Properties | Milwaukee, Wi | Courthouse, 517 E.' Wisconsin Ave. (EOP) | 2 U.S. resident contact |
+
+492 abrd 26532126:PT001 55605 AMI

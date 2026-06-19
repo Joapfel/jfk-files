@@ -1,0 +1,61 @@
+# JFK-Files-Part-2_page_21713.png
+
+Convert to Markdown# TOP SECRET
+
+1 most likely.
+
+2 Mr. Baron. And neither of those two men are alive today?
+
+3 Mr. Hunt. That's right.
+
+4 Mr. Baron. Did whoever gave you the information about
+
+5 Boris Pash indicate to you that there were any other units
+
+6 in the CIA that could take care of such problems by means of
+
+7 assassination?
+
+8 Mr. Hunt. No. My distinct impression and recollection is
+
+9 the function, if indeed it existed, and I believed it then
+
+10 to have existed as I do today, was centralized or focused in
+
+11 Colonel Pash and ~~Artie Lazarus~~
+
+12 Mr. Baron. Now what would have been the formal title
+
+13 of the unit that Colonel Pash and ~~Artie Lazarus~~ were running?
+
+14 Mr. Hunt. If it had one, I never knew it.
+
+15 Mr. Baron. Can you add any other detail to the record
+
+16 on your talk with Colonel Pash and his reaction to your
+
+17 request that he consider on a general level the planning of
+
+18 an assassination of a suspected double agent?
+
+19 Mr. Hunt. Well, as I recall it, my conversation with him
+
+20 was a relatively brief one. I stepped in the door, met him,
+
+21 saw ~~Artie Lazarus~~, who I knew briefly, or at least knew him
+
+22 by sight, and I sat down and I said, we have this problem in
+
+23 the Albanian branch. We may need somebody liquidated in
+
+24 Western Germany. Can you handle it if that day comes, or if
+
+25 it comes to that?
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32202418 Page 18
+
+TOP SECRET

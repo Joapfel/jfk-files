@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_20899.png
+
+Convert to MarkdownTHE COMMITTEE TO DEFEND THE RIGHT TO LIVE
+
+NW 88321 DocId:32989546 Page 404

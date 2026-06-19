@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_24653.png
+
+Convert to MarkdownHAS NOT BEEN ABLE PENETRATE ENTOURAGE.
+THUS HE HAS NOT BEEN ABLE PROVIDE OPS
+INTEL NEEDED THIS JOB. (CIA Cable
+IN 28936, Chief of Station to Tweedy,
+10/17/60.)
+
+Hedgman testified that this operative left Leopoldville "sometime in October" which terminated their discussions about gaining access to Lumumba for the purpose of assassinating him (Hedgman, 8/21/75, p. 61). The Chief of Station continued to communicate with headquarters about finding a means to move forward with the assassination operation and securing the necessary manpower to do so.
+
+Hedgman confirmed Tweedy's view that although the assassination operation was still his highest priority, he was overburdened with responsibility for other operations so that he could not concentrate on the progress of the assassination mission:
+
+ALTHOUGH MAINTAINING PRIORITY INTEREST THIS OP, ABLE DEVOTE ONLY LIMITED AMOUNT TIME, VIEW MULTIPLE OPS COMMITMENTS. (CIA Cable, IN 28936, 10/17/60.)
+
+Due to his workload, the Chief of Station responded enthusiastically to Tweedy's suggestion of an additional case officer:
+
+BELIEVE EARLY ASSIGNMENT SENIOR CASE OFFICER
+HANDLE PROP OPS EXCELLENT IDEA ... IF CASE
+OFFICER AVAILABLE [CHIEF OF STATION] WOULD
+DEVOTE AS MUCH TIME AS POSSIBLE TO ASSISTING
+AND DIRECTING HIS EFFORTS. (CIA Cable
+IN 28936, 10/17/60.)

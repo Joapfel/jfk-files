@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_21202.png
+
+Convert to MarkdownTOP SECRET
+
+5. W. E. JOHNSON
+
+Pages 268-272 relate to the KGB entrapment of [W. E. JOHNSON](). It is stated on page 272 that although JOHNSON apparently confirmed NOSENKO's role, NOSENKO's version of the case is incompatible with what must have been the actual time frame. It was pointed out that according to his version, within five days of JOHNSON's arrival KGB would have discovered he was a homosexual, concluded he was a threat, after intercepting his letters, and arranged his entrapment. The rapid pace of events suggests that his homosexuality was already known to KGB. Therefore, NOSENKO's participation contradicts his assertions about the timing of his transfer from the American Department.
+
+**COMMENT:** On November 7, 1967, and March 6 and 7, 1968, (N-15, N-157, N-159), NOSENKO discussed the [JOHNSON]() case, furnishing basically the same information previously furnished. He added that DERA was the case officer for this case and DERA had posed as the Administrator of the hotel in which [JOHNSON]() was registered.
+
+TOP SECRET

@@ -1,0 +1,193 @@
+# JFK-Files-Part-2_page_24318.png
+
+Convert to Markdown(2) How will the instrumentality be disposed of?
+
+(a) Will it be disposed of intact? If so, by bid, negotiation, gift, etc.; or
+
+(b) Will the instrumentality shell be transferred to another Agency project; or
+
+(c) Will the charter be terminated; or
+
+(d) Will the instrumentality continue to operate without Agency participation; or
+
+(e) Will the instrumentality be deactivated but retained in a dormant state for future possible use?
+
+f. Requirement, if any, for additional funds to cover liquidation and estimated date of financial liquidation
+
+g. Disposition of Assets and Liquidation
+
+(1) If the instrumentality is not to be sold intact, how will noncash assets be disposed of? By bid, 'negotiation, transfer to another Agency project, gift, etc.?
+
+(2) Include a positive recommendation to be developed in consultation with the Director of Finance for the disposition of all cash assets including funds recovered or realized through the liquidation process.
+
+h. Final Audit
+
+The plan should provide for a final audit before the instrumentality is liquidated or sold.
+
+i. Authorization for adjustment of Agency financial records for profit or loss.
+
+j. A positive statement that the Office of Finance is authorized to make necessary adjustments to the instrumentality's investment account based on the final liquidation financial statement
+
+7. FISCAL ANNEXES
+
+a. GENERAL
+
+Use of the fiscal annex is based on the principle that accounting requirements should be determined by the nature of the relationship between the instrumentality and the Agency, the degree of control
+
+Revised: 29 October 1974
+
+OCT 80 1975
+
+S-E-C-R-E-T
+
+HW 50955 DocId:32423532 Page 212
+
+RECEIVED
+14
+
+FROM
+ROM
+
+RECEIVED
+14
+
+OCT 90 1975
+
+S-E-C-R-E-T
+
+HW 50955 DocId:32423532 Page 212
+
+RECEIVED
+14
+
+FROM
+ROM
+
+OCT 80 1975
+
+S-E-C-R-E-T
+
+HW 50955 DocId:32423532 Page 212
+
+RECEIVED
+14
+
+FROM
+ROM
+
+OCT 90 1975
+
+S-E-C-R-E-T
+
+HW 50955 DocId:32423532 Page 212
+
+RECEIVED
+14
+
+FROM
+ROM
+
+OCT 80 1975
+
+S-E-C-R-E-T
+
+HW 50955 DocId:32423532 Page 212
+
+RECEIVED
+14
+
+FROM
+ROM
+
+OCT 90 1975
+
+S-E-C-R-E-T
+
+HW 50955 DocId:32423532 Page 212
+
+RECEIVED
+14
+
+FROM
+ROM
+
+OCT 80 1975
+
+S-E-C-R-E-T
+
+HW 50955 DocId:32423532 Page 212
+
+RECEIVED
+14
+
+FROM
+ROM
+
+OCT 90 1975
+
+S-E-C-R-E-T
+
+HW 50955 DocId:32423532 Page 212
+
+RECEIVED
+14
+
+FROM
+ROM
+
+OCT 80 1975
+
+S-E-C-R-E-T
+
+HW 50955 DocId:32423532 Page 212
+
+RECEIVED
+14
+
+FROM
+ROM
+
+OCT 90 1975
+
+S-E-C-R-E-T
+
+HW 50955 DocId:32423532 Page 212
+
+RECEIVED
+14
+
+FROM
+ROM
+
+OCT 80 1975
+
+S-E-C-R-E-T
+
+HW 50955 DocId:32423532 Page 212
+
+RECEIVED
+14
+
+FROM
+ROM
+
+OCT 90 1975
+
+S-E-C-R-E-T
+
+HW 50955 DocId:32423532 Page 212
+
+RECEIVED
+14
+
+FROM
+ROM
+
+OCT 80 1975
+
+S-E-C-R-E-T
+
+HW 50955 DocId:32423532 Page 212
+
+RECEIVED
+1

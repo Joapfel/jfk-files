@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_22405.png
+
+Convert to MarkdownSECRET
+
+A I would think probably the major portion of it was conducted within the United States.
+
+Q The Keys would be considered within the United States.
+
+A Oh, yes.
+
+Q Or were there any locations where it was conducted outside the United States?
+
+A Following the Bay of Pigs, I don't think so. Not to my knowledge. I just don't know, I just don't recall but I don't think that -- I think all the training was done domestically.
+
+Q Now, what kinds of operations are included within this category of maritime operations?
+
+A Well, the infiltration operations, infiltrating agents into Cuba, exfiltrating agents, hit and run sabotage raids. That is about the extent of it.
+
+Q Now, when did these operations commence? Was it shortly after the Bay of Pigs?
+
+A I would -- I think these operations were probably at their height during the period about 1963 through, say, 1967. The program was terminated in 1968, I think in December 1968, something like that.
+
+Q Why was the program terminated?
+
+A First of all, it was too expensive. It wasn't providing enough intelligence and it simply wasn't -- economically,
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-0000
+
+HW 50955 DocId:32203851 Page 43
+
+25

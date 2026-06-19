@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_24034.png
+
+Convert to MarkdownIn a cable on August 25, CIA Chief of Station John Richardson reported the result of a conference among himself, Lodge, True- heart, General Harkins (Commander, Military Assistance Command, Vietnam (MACV) and General Weede (Chief of Staff, MACV). They accepted Deptel 243 "as a basic decision from Washington and would proceed to do their best to carry out instructions", (I.G., C, pp. 7-8) but believed that Diem would refuse to remove his brother from his position in the government.
+
+Early in the morning of August 26, 1963, the Voice of America in South Vietnam placed the blame on Nhu for the August 21 raids and absolved the army. The broadcast also reported speculation that the United States contemplated suspending aid to the South Vietnamese Government (Pentagon Papers, p. 212).* Later on that same day, Lodge presented his credentials to Diem. CIA officers Conein and Spera were told to see Generals Khiem and Khanh, respectively, and to convey to them the substance of Deptel 243, but to remind them that "we cannot be of any help during initial action of assuming power of state. Entirely their own action, win or lose" (SAIG 0304, 8/26/63).
+
+A message from the White House on August 29 authorized Harkins to confirm to the Vietnamese Generals that the United States would support a coup if it had a good chance of succeeding, but did not involve United States armed forces. Lodge was authorized to suspend United States aid at his discretion. (Deptel 272, 8/29/63.) A cable from the President to Lodge on the same day stated:
+
+*In a cable to Harriman, Lodge complained that the VOA broadcast had "complicated our already difficult problem" by eliminating "the possibility of the generals' effort achieving surprise." Lodge further warned that "the US must not appear publicly in the matter, thus giving the 'kiss of death' to its friends" (Cable, Lodge to Harriman, 8/26/63).

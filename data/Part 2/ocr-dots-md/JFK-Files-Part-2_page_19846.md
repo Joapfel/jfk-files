@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_19846.png
+
+Convert to MarkdownWFO 100-55420
+
+ADMINISTRATIVE - NON-SYMBOL SOURCE
+WFO report 3/21/72.
+
+WF T-2 is MARVIN GLICKMAN, Rental Agent, 150
+5th Avenue, New York City, New York.
+
+THIS PAGE IS TO BE MAINTAINED IN HEADQUARTERS CITY AT ALL TIMES.

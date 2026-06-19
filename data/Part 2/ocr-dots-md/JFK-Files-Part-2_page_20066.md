@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_20066.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DEMONSTRATION PROTESTING U. S. POLICY
+IN VIETNAM, WASHINGTON, D. C.,
+JANUARY 15, 1968
+
+A third source advised in January, 1968, Zena Druckman is a current member of the San Francisco County Communist Party (CP).
+
+Catherine Cole, formerly Kay McTernan, according to a fourth source, in May, 1947, was transferred from the Wilshire-Fairfax Club to the 13th CD Club of the Los Angeles County CP during 1947.
+
+Source four in 1946 and a fifth source in 1950 have advised that Malvina Reynolds was a CP member from 1931 to 1948 and continued active in the CP until 1950.
+
+Source three on January 4, 1967, also advised that at a meeting of the Fillmore Club of the San Francisco County CP on December 14, 1966, in San Francisco, a discussion took place among the members present about members who carry books, but do not attend meetings. It was suggested that Hazel Grossman be dropped from the club because of her inactivity and absence from the meetings.
+
+A sixth source advised on October 31, 1962 that Terence Hallinan, the son of Vivian Hallinan, stated in October, 1962, that his mother would be willing to join the CP if her husband, Vincent Hallinan would also join.
+
+A seventh source advised on October 8, 1965, that in August, 1965, Ethel R. Ledel was a "People's World" (PW) subscriber.
+
+The PW is a West Coast communist newspaper.
+
+Source one has also advised that attorneys Arthur Kinoy and William Kunstler from the East Coast are expected to draw up a petition to end the war in Vietnam to be presented to Congress. The demonstrators are then going to ask the Speaker of the House to present the petition as the first order of business. If he does not they will send him a telegram.
+
+CONFIDENTIAL
+
+NFW-88321=DocID:32989545-Page 350

@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_24555.png
+
+Convert to MarkdownMcCone pointed out that although the Cuban problem was discussed in terms of " dispose of Castro," or "knock off Castro", these terms were meant to refer to "the overthrow of the Communist Government in Cuba" and not a Castro assassi- nation. (McCone, p. 44; McCone Ex. 4, memorandum April 14, 1967, to Helms.)
+
+McCone further stated that "it is very hard for me to believe"
+that Robert Kennedy would have initiated a Castro assassination activity
+without consulting with the Special Group Augmented. (McCone, p. 52).
+
+b. Testimony of Taylor
+
+Taylor served as Chairman of the Special Group Augmented during the Mongoose Operation (Taylor, 7/9, p. ). In addition, Taylor also served as President Kennedy's Military Representative and Intelligence Advisor after the Bay of Pigs until his appointment as Chairman of the Joint Chiefs of Staff in November 1962 (Taylor, 7/9, p. ; Bundy, 7/11, p. 25).
+
+Taylor testified that a Castro assassination plan was "never" submitted to the Special Group Augmented, either orally or in writing. (Taylor, p. 41). Taylor further testified that he and the Special Group Augmented were never told of the passage of the poison pills to Roselli in April 1962, and that the passage of these pills without the knowledge of the Special Group Augmented was "entirely, completely out of /_the_ context and character of the way the /_Special Group Augmented_ operated or the way it would accept" that an operation was properly authorized. (Taylor, p. 43). And Taylor testified that although the Special Group Augmented was "certainly anxious for the downfall of Castro" an "assassination never came up" in the meetings and discussions of the Special Group Augmented. (Taylor, p. 62).
+
+With respect to whether President Kennedy or Robert
+Kennedy or Robert Kennedy might have bypassed the Special Group Aug-
+mented to deal directly with Helms or CIA officers to assassinate

@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_23302.png
+
+Convert to MarkdownTOP SECRET
+
+it and having shown it to President Kennedy, are you testifying
+that it was your understanding that the meaning of that
+sentence -- that that sentence was intended to convey to Mr.
+Dearborn a prohibition against involving the United States
+in an assassination attempt on the life of Mr. Trujillo?
+
+Mr. Goodwin. Absolutely. And in my first draft, I did it
+in terms of disclosure and changed that, struck that phrase
+about disclosure in order to make the point, and always at the
+President's instruction, to make absolutely clear to the Consul,
+because I used the very word disclosure, you can see here, and
+I crossed it out, in my handwriting.
+
+Mr. Schwarz. Could you read into the record how you
+changed it?
+
+Mr. Goodwin. Well, it's not very grammatical, it's
+embarrassing. Also, on the xerox -- I can't read the hand-
+writing on the xerox.
+
+"However we also must not" -- something -- "permit any
+danger of disclosing any U.S. association with political
+assassination or intervention in the Dominican Republic,"
+it says or intervention. All that was struck.
+
+Senator Baker. That sounds like exactly what the Chairman
+asked you. It sounds like it might be interpreted as, please
+don't get caught.
+
+Mr. Goodwin. Absolutely, which is why I changed it,
+Senator, to read "however, we must not run risks of U.S.
+
+TOP SECRET

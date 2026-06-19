@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_21198.png
+
+Convert to MarkdownTOP SECRET
+
+On April 22, 1968, (N-184), NOSENKO stated that he could not make a flat statement that he would have known of any recruitments in the American Embassy during the 1955-59 period but believed he would have heard of them. He would have known of any such recruitments in 1960-61. He believed he would also have known of any recruitments in the 1962-63 period because he saw GRYAZNOV frequently and GRYAZNOV talked freely because NOSENKO helped him advance from Senior Case Officer in January, 1962, to Deputy Chief of Section 1, then Chief of Section 1, and then Deputy Chief of Department 1 about August or September, 1963.
+
+In view of NOSENKO's stated knowledge of MORFLI'S and GARLAND's and the officers who had their cases and since there is no evidence that either was the subject of a recruitment approach or other important development, it is submitted that his lack of knowledge
+
+TOP SECRET
+
+HW 50953 DocId:32318825 Page 84

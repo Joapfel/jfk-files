@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_23804.png
+
+Convert to Markdown1 there more or less under the auspices of the church group.
+
+2 Mr. Kirbow. At least a local church frequently sponsored
+3 them.
+
+4 Senator Huddleston. I don't think you can prohibit all
+5 those kinds of people. I think some kind of definition should
+6 include the primary occupation of clergy, clergy itself.
+
+7 Senator Mathias. Well, why don't we commit to staff for
+8 the moment the question of definition?
+
+9 Senator Huddleston. I think we will have to do that.
+10 Okay. Are we ready to move on that?
+
+11 Mr. Aaron. The recommendation is that whomever or however
+12 we define them -- and that's obviously an important question,
+13 that they either be prohibited by statute. The other alternative
+14 is to simply prohibit any further or recommend the prohibition
+15 of any further CIA recruitment in this field.
+
+16 Ms. Culbreath. The way this is worded, this would get
+17 anybody who is a lay member of a church. You have got recruit-
+18 ments of American clergy or laity.
+
+19 If I am a member of the Methodist church, I am in the
+20 laity of the church.
+
+21 Mr. Miller. You have raised a question. There are people
+22 who are not priests in the religious hierarchy in a particular
+23 sect who may devote their entire lives to that particular
+24 church.
+
+25 Senator Mathias. Well, I think the word "a religious" -- TOP SECRET
+
+HW 50955 DocId:32423513 Page 29

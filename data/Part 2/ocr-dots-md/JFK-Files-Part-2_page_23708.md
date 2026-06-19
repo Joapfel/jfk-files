@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_23708.png
+
+Convert to MarkdownIn this specific situation, for example, we've already
+not the Attorney General being involved with the oversight
+responsibilities. When he takes office he already has the
+obligation to see that all the laws and activities of agencies
+are carried out as they're supposed to be.
+
+And in addition to that, we are proposing in another
+part of our recommendations that the general counsel and the
+inspector general of the CIA be subject to Senate confirmation
+so that there are lots of other kinds of checks, and I would
+just hope that as the Senators consider additional proposals
+like this, that we don't get to the point that the Congress
+is hamstringing them inside the agencies on how they carry
+out the responsibilities.
+
+Each one of these standing by itself may look like,
+well, this is a good idea and we should have this additional
+certification or this addition chain of reporting and making
+sure you get it authorized.
+
+But I have a fear after having looked through a good
+bit of this, that we are getting too many layers in there, and
+I would just urge a caution if there are situations where we
+maybe have it pretty well covered until we get some opportunity
+to see how this new set-up is going to work, whether we're
+going to have the kind of abuses we had before. Maybe we don't
+need each of these details of Congress going down into the
+agencies and saving how they go about their day to day business.
+
+TOP SECRET
+
+BARD & PAUL
+
+HW 50955 DocId:32423509 Page 82

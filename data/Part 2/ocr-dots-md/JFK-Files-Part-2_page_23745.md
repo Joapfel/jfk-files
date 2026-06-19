@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_23745.png
+
+Convert to Markdownto be before 1971, 1973.
+
+Senator Huddleston. Is there any chance that anybody would be denied the product of this investigation if we changed it?
+
+Mr. Bader. One of the things we should bear in mind, Mr. Chairman, is that if you go down the road and talk about these various reforms or changes in the intelligence structure, that moving the DCI function and enhancing his powers and then perhaps eventually separating the Director of CIA from the DCI, that at this point it would seem logical for an overt collection side of an intelligence agency to be with the DCI.
+
+But that is down the road as well and perhaps what we want to do with something like this is — you don't understand that point?
+
+Mr. Maxwell. No, I don't.
+
+Mr. Kirbow. What he's really saying is that if you move all of this overt side out of the DCI, you leave the covert side out there without any of the support function, which this group furnishes to them.
+
+Mr. Bader. Down the road when you have a DCI
+
+Mr. Maxwell. If you assume that the DCI is going to take the entire DDI ...
+
+Senator Huddleston. Could we have a situation where an agent might be both covert and overt?
+
+TOP SECRET
+WILL PAUL
+
+HW 50955 DocId:32423509 Page 119

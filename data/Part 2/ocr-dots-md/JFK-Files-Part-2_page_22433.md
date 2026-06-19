@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_22433.png
+
+Convert to MarkdownSECRET
+
+11
+
+purposes other than recruitment?
+
+2 A. Well--
+
+3 Q. For example, let me ask you this. Were any of these
+4 files on Cubans who were suspected or thought to be a possible
+5 internal security problem?
+
+6 A. No. No. They didn't keep those types of files. We
+7 would simply task them with through your sources what do you
+8 have on so and so. They would not be told the reason why we
+9 wanted the information on anybody.
+
+Q. Well, I guess with several million files or several
+10 million cards and tens of thousands of files it is difficult to
+11 make generalizations about the kind of information that is in
+12 those files?
+
+A. Well, that is right.
+
+14 Q. So I guess I won't ask you to do so, but I want to ask
+15 you this. I trust that there is the possibility that some of
+16 these files do contain what you in the trade refer to as deroga-
+17 tory information?
+
+18 A. I would assume so.
+
+20 Q And that so much of them may -- some of the subjects
+of those files may now be American citizens?
+
+21 A. Right.
+
+22 Q. And finally I take it that no effort has been made to
+study that particular situation?

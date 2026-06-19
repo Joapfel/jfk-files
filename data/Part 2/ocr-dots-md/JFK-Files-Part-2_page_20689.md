@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_20689.png
+
+Convert to MarkdownNEW-88321 DocId:32989546 Page 194
+
+<table><tr><td>Mr. Tolson</td></tr><tr><td>Mr. Felt</td></tr><tr><td>Campbell</td></tr><tr><td>Rosell</td></tr><tr><td>Mohr</td></tr><tr><td>Bishop</td></tr><tr><td>Miller, ES</td></tr><tr><td>Callahan</td></tr><tr><td>Casper</td></tr><tr><td>Conrad</td></tr><tr><td>Dabev</td></tr><tr><td>Cleveland</td></tr><tr><td>Pender</td></tr></table>
+
+<table><tbody><tr><td>Mr. Rates</td></tr><tr><td>Ikart</td></tr><tr><td>Walter</td></tr><tr><td>Svars</td></tr><tr><td>Tele. Room</td></tr><tr><td>Miss Holmes</td></tr><tr><td>Miss Gandy</td></tr></tbody></table>
+
+TO ACTING DIRECTOR
+CLEVELAND
+
+100-32715
+
+MAY 6 1972
+
+TELETYPE
+
+MARCH AND RALLY TO REPEAL ALL ANTI-ABORTION LAWS, SPONSORED BY MARGaret P. rates and HERBERT J. ikart.
+
+ABORTION PROJECT COALITION (APC), CLEVELAND, OHIO, MAY SIX, 1972
+
+IS-REVOLUTIONARY ACTIVITY.
+
+ON INSTANT DATE A SPECIAL AGENT OF THE FBI OBSERVED APPROXIMATELY ONE HUNDRED TWENTYFIVE INDIVIDUALS, INCLUDING MEMBERS AND SUPPORTERS OF THE APC, ASSEMBLE AT ELEVEN FORTYFIVE AM AT THE NEW FEDERAL BUILDING EAST NINTH ST., AND LAKESIDE, CLEVELAND, OHIO. OF THIS GROUP APPROXIMATELY SEVENTYFIVE PERCENT WERE FEMALES AND THE REMAINING TWENTYFIVE PERCENT WERE MALES. THIS GROUP FORMED A CIRCLE AND MARCHED IN FRONT OF THE FEDERAL BUILDING FOR APPROXIMATELY ONE HALF HOUR. MOST OF THE PARTICIPANTS CARRIED BANNERS WHICH READ "REPEAL ALL ANTI-ABORTION LAWS." FOLLOWING THIS ASSEMBLY AND MARCH, WHICH WAS AT APPROXIMATELY TWELVE FIFTEEN PM THE ENTIRE GROUP THEN PROCEEDED SOUTH ON EAST NINTH ST., TO END PAGE ONE.
+
+20 MAY 12 1972
+
+Included in summary to White House and Attorney General. Date 5/8/72
+
+60 MAT data deleted?

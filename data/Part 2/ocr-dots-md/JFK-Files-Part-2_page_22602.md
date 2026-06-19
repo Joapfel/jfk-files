@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_22602.png
+
+Convert to Markdown1 2 3 4 5 6 7 8
+
+Enigma, the blue prints of which were originally obtained by a Frenchman. And I might add that the Frenchman never received credit for it. And yet that perhaps was the most single important breakthrough of the entire war. And he had obtained it about eight to nine or ten years prior to the outbreak of war, when it was non-operative. And he had the prescience to know that the systems could only be one thing, that it would be operative in a time of war.
+
+I give this digression simply to point out that the fruits of that breakthrough would first go to the military and the military operations. And the counter intelligence use of it would be the bottom of the list of priorities, in one sense.
+
+But it would mean that a compromise of the material in any fashion to the Germans would destroy the military uses. And during the war or when the Germans went into the war, they brought it up from 10 percent recovery to about 100 percent.
+
+And I believe it was in the neighborhood of some 22,000 operational messages from the German high command. I know the Battle of Tobruk was fought on six intercepts.
+
+So our job was to make use of the counter intelligence for the purpose of playing back German agents to their high command. And this was an elaborate deception. And when the war ended I would say that 99 percent of all reporting agents
+
+HW 50955 DocId:32423393 Page 8
+
+TOP SECRET
+
+410 Post Street, S.E., Washington, D.C. 20003
+
+76909114100
+
+WARDA & PAUL

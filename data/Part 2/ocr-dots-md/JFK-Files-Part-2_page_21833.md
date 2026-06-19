@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_21833.png
+
+Convert to MarkdownOctober 16, 1975
+
+SENATE SELECT COMMITTEE - ASSASSINATION REPORT
+TABLE OF CONTENTS
+
+TAB A: Prologue
+
+TAB B: Introduction and Summary
+
+TAB C: Covert Action as Vehicle for Foreign Policy Implementation
+
+TAB D: Cuba
+
+1. Introduction
+
+2. At What Level Were the Castro Plots Authorized or Known About Within the CIA
+
+3. The Question of Authorization Outside the Central Intelligence Agency in the Eisenhower Administration
+
+4. The Question of Authorization During the Kennedy Administration, Pre-Bay of Pigs
+
+5. The Question of Authorization During the Kennedy Administration, Post-Bay of Pigs
+
+6. The Question of Authorization for the 1963 Assassination Plot
+
+7. The Question of Authorization in the Johnson Administration
+
+TAB E: Congo
+
+TAB F: Executive Action Capability
+
+TAB G: Dominican Republic
+
+TAB H: Chile
+
+TAB I: South Vietnam
+
+TAB J: Findings and Conclusions
+
+TAB K: Recommendations
+
+TAB L: Epilogue
+
+HW 50955 DocId:32202487 Page 3

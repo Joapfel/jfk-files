@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_22597.png
+
+Convert to MarkdownPage (Area 207) 544-4088
+
+TESTIMONY OF
+James Angleton
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+CONTENTS
+
+PAGE
+2
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+7600011435
+
+WARD & PAUL
+
+Ward 75000 11-15
+
+Phone (Area 207) 544-4088
+
+WW 50955 DocID:52423393 Page 3

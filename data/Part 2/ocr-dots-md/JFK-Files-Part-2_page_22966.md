@@ -1,0 +1,58 @@
+# JFK-Files-Part-2_page_22966.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+TOP SECRET
+
+Mr. Baron. Where was this? What was the forum in which the presentation was made.
+
+Mr. Halley. This was a meeting with President Kennedy and other members of the then-Cabinet were present at that particular meeting.
+
+Mr. Baron. Was that a Cabinet meeting or was it a Special Group meeting as a sub-unit of the National Security Council?
+
+Mr. Halley. You know, that happened in 1962. This is 1975. I do not recall then with precision as to whether it was a meeting of the Cabinet or whether it was a meeting of the National Security Council, or whether it was a meeting of the Special Group.
+
+Mr. Baron. That is perfectly understandable. Do you recall which Cabinet members were present at that meeting?
+
+Mr. Halley. Yes. My recollection of that was that Mr. McNamara was present, Mr. Rusk was present, Mr. Kennedy, the Attorney General, was present. You know, I am just vague now at this particular point. Those are the ones that stick out in my memory as being present.
+
+Mr. Baron. Was the DCI present?
+
+Mr. Halley. Yes, the DCI was present, and he gave a portion of the presentation. As I recall, Mr. FitzGerald gave the other portion of the presentation.
+
+Mr. Baron. Who at that point replaced William Harvey as Chief of Task Force W?
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+7600WARD & PAUL
+7003
+
+HIT

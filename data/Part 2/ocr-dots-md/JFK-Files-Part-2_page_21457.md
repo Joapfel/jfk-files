@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_21457.png
+
+Convert to MarkdownAgency Information
+
+AGENCY : FBI
+RECORD NUMBER : 124-90146-10108
+RECORD SERIES : HQ
+AGENCY FILE NUMBER : 105-93072-128 THRU 131
+
+Released under the John F. Kennedy
+Assassination Records Collection Act of
+1992 (44 USC 2107 Note). Case#: NW
+88296 Date: 2025
+
+Document Information
+
+ORIGINATOR : FBI
+FROM : NY
+TO : HQ
+
+TITLE :
+
+DATE : 06/28/1965
+PAGES : 21
+
+SUBJECTS :
+RICHARD THOMAS GIBSON
+
+DOCUMENT TYPE : PAPER, TEXTUAL DOCUMENT
+CLASSIFICATION : Top Secret
+RESTRICTIONS : Not Assassination Related
+CURRENT STATUS : Withhold
+DATE OF LAST REVIEW : 12/09/1998
+
+OPENING CRITERIA : INDEFINITE
+
+COMMENTS : INC 4 MEMO, LHM

@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_21938.png
+
+Convert to Markdownfact, we feel that the transfer of arms would serve very little purpose and expose the United States to great danger of association with assassination attempt."
+
+The cable, as revised by Goodwin and approved by President Kennedy, was sent to Dearborn on May 29, 1961. (State Dept. to Dearborn cable, 5/29/61)
+
+## VII. May 30, 1961 and Immediately Thereafter:
+
+### A. Trujillo Assassinated
+
+Late in the evening of May 30, 1961, Trujillo was ambushed and assassinated near San Cristobal, Dominican Republic. The assassination closely paralleled the plan disclosed by the action group to American representatives in the Dominican Republic and passed on to officials in Washington at both the CIA and the State Department. (Dearborn cable to State, 5/30/61) The assassination was conducted by members of the action group, to whom the American carbines had been passed, and such sketchy information as is available indicates that one or more of the carbines were in the possession of the assassination group when Trujillo was killed. (I. G. Report, pp. 60-61). This evidence indicates however, that the actual assassination was accomplished by handguns and shotguns. (I.G. Report, p.61)
+
+### B. Cables to Washington
+
+After receiving the May 29 cable from Washington, both Consul General Dearborn and Station Chief [Owen] sent replies. According to Dearborn's testimony, he did not regard the May 29 cable as a change in U.S. policy concerning support for assassinations. (Dearborn 7/29/75, p. 74).
+
+HW 50955 DocId:32202487 Page 108

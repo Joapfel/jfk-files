@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_23472.png
+
+Convert to Markdown28 April 1960
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Minutes of Special Group Meeting, 2& April 1960
+
+PRESENT: Messrs. Hare, Gray, Dulles
+
+Mr. Joseph Scott of the Department of State sat in as an observer.
+
+✓ 8. Cuba
+
+Mr. Gray said that he had discussed with his associates the organizational entities within the U.S. Government which have been established to deal with the Cuban situation. He noted that a number of different groups and committees, with varying interests and objectives, are concerning themselves with this situation and that there seemed to him to be no "chief of staff" to whom all could look as a central point,
+
+He said that the opinion had been expressed to him that Mr. Dillon should assume this function, but that in Dillon's absence, Mr. Hare should take on the responsibility and should inform himself of the general outlines of what has been going on in the Government. Mr. Gray said that it had been felt essential to have such an official available over the coming weekend, because of the expected May Day troubles, and that since this official should be of such a stature as to permit access to the highest levels, Mr. Hare had been decided upon, pending Mr. Dillon's availability.
+
+In this connection it was agreed that Mr. Dillon should be brought up to date at an appropriate time on the status of covert operations with respect to Cuba.
+
+Inter alia, Mr. Gray expressed concern and some surprise at statements and actions by UAR officials with regard to Cuba. Mr. Hare explained at some length his conviction that Deputy Foreign Minister Sabri (older brother of Ali Sabri) is largely responsible for this kind of thing, and that it does not represent the feelings of Nasser or Ali Sabri. He traced the brother's background and described him as a "twisted personality."
+
+PROPERT'Y OF
+THE WHITE HO
+
+HW 50955 DocId:32423488 Page 45

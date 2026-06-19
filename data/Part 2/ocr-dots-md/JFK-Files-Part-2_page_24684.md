@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_24684.png
+
+Convert to MarkdownThis message itself was deemed too sensitive to be retained
+at the station: "this dispatch should be reduced to cryptic
+necessary notes and destroyed after the first reading." (CIA
+Dispatch, AUDW-147, 11/2/60.)
+
+QJWIN arrived in Leopoldville on November 21, 1960 (CIA Cable IN 49486, 11/29/60) and returned to Europe in late December 1960 (CIA Cable OUT 54710, Director to Leopoldville, 12/9/60).
+
+The CIA Inspector General's Report said that QJWIN
+
+had been recruited earlier by Arnold Silver
+for use in a special operation in the Congo
+[the assassination of Patrice Lumumba] to be
+run by Justin O'Donnell. (I.G. Report, p. 38.)
+
+However, both O'Donnell and Bissell testified that O'Donnell re-
+fused to be associated with an assassination operation.* Instead,
+O'Donnell said he went to the Congo to attempt to snatch Lumumba
+from the protective custody of the U.N. guard and place him in
+the hands of the Congolese army. (O'Donnell, 6/9/75, pp. 13-14,
+37.)
+
+According to O'Donnell, QJWIN was a man who was capable of
+undertaking an assassination mission:
+
+O'Donnell: ... I would say that he would not
+be a man of many scruples.
+
+Q: So he was a man capable of doing anything?
+
+O'Donnell: I would think so, yes.
+
+Q: And that would include assassination?
+
+O'Donnell: I would think so.
+
+(O'Donnell, 9/11/75, pp. 35-36.)
+
+\* See Sections 5(a)(ii) and 5(a)(iii) above.

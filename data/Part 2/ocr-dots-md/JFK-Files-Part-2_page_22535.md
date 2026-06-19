@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_22535.png
+
+Convert to Markdownsuggested I see him. Copp offered to take taped material
+from me. My only other contact was a phone talk with him
+in March 1965.
+
+"While in Taiwan I was told by Col. Caithness of the U.S.M.A.A.G. office that Copp had directly attributed information to another MAAG officer who had briefed him. When the story was printed (by North American Newspaper Alliance?), the officer was in trouble. Caithness indicated that he thought it was an honest breakdown in communication between the officer and Copp and that it was not deliberate. During my March phone conversation with Copp I told him about Caithness' disclosure to me (he had agreed that I tell Copp about the situation). Copp seemed quite surprised.
+
+"On March 16 I had dinner with John Lewis in New York. Lewis is handling radio programs for ASC (out of the Washington office). He also produces shows for NBC radio (including a farm program). I've also had several phone conversations with Lewis in Washington.
+
+On 29 December 1965, Wiley called Morse Allen, gave information concerning a forthcoming Esquire article on espionage; and brought up the idea of moving to Washington. Apparently Allen arranged to have Wiley call Cecil Tighe, SRS, the following Monday and for Tighe to advise Wiley to come to Washington in the near future to discuss the matter with Tighe and Gaynor. Apparently, Allen was removing himself from contact with Wiley at about this time.
+
+Apparently on 14 January 1966 Gaynor and Tighe met with Wiley discussing his possible move to Washington, his lecture tour and use of vouchers for travel expenses. A notation dated only 1966 states to the effect that Wiley's company, World News Analysis, is known on the "Hill" because of the relationship between Filipello (sic) and Congressman Daddario. "Numerous persons know Wiley is CIA, other than perhaps a half-dozen of his own friends. These include Eugene Lyons, Jay Kennedy, Elsa Bernaut, Hede Massing, etc. (Note: McCord is not aware of the first two names above, and this possibly would have some bearing on any assignment McCord may have been considering.)"
+
+RECEIVED FROM
+
+SEP 30 1975
+
+CIA
+
+SCHMITT
+
+NW 50955 DocId:32203889 Page 43

@@ -1,0 +1,102 @@
+# JFK-Files-Part-2_page_19179.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>
+     Mr. Telson.
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Mr. DeLoach.
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Mr. Mohr.
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Mr. Bishop.
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Mr. Casper.
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Mr. Callahan.
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Mr. Conrad
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Mr. Felt.
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Mr. Gale .
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Mr. Rosen.
+    </td>
+   </tr>
+  </table>
+
+DEC 7 1967
+
+ENCIPHERED
+
+FBI WASH D C ---4---
+
+244PM DEFERRED 12-7-67 SMS
+
+TO DIRECTOR & WFO
+
+WFO VIA WASHINGTON
+
+FROM LOS ANGELES (100-70701) (P)
+
+DEMONSTRATION PROTESTING UNITED STATES POLICY IN VIETNAM,
+
+WASHINGTON, D. C., JANUARY EIGHT NEXT INFORMATION
+
+CONCERNING (INTERNAL SECURITY) 99: WFO
+
+REBUAIRTEL DECEMBER FIVE LAST CAPTIONED AS ABOVE REGARDING
+PROPOSED JENNETTE RANKIN BRIGADE (JRB) SPONSORSHIP OF INSTANT DEMON-
+STRATION.
+
+RELIABLE SOURCE INDICATES THAT DECEMBER SIXTY-SEVEN ISSUE
+OF "LA WISP", MONTHLY NEWSLETTER OF THE SOUTHERN CALIFORNIA COUNCIL
+OF THE WOMEN STRIKE FOR PEACE (WSP), WHICH IS BEING MAILED TODAY
+(DECEMBERSEVEN) TO ENTIRE MAILING LIST CONTAINS ON PAGE ONE "A CALL
+TO ALL AMERICAN WOMEN" TO PARTICIPATE IN ABOVE DESCRIBED BRIGADE
+JANUARY EIGHT NEXT.
+
+WSP IS ALSO CIRCULATING COPIES OF REPRINT FROM SAN FRAN-
+CISCO CHRONICLE DATED MAY TWENTY LAST CONCERNING MISS RANKIN'S
+OPPOSITION TO WARS, AND IS COORDINATING LOCAL ACTIVITY TO FORM
+
+END PAGE ONE
+
+TWO COPIES TO WFO
+
+8 DEC 11 1967
+
+3 XEROX Mr. Dugan cc - Kleenau
+Mr Enlow
+
+DEC-1987
+
+NWI 88321 pdcld:32989544 Page 60

@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_19956.png
+
+Convert to MarkdownBRIGADE FORMED TO CONFRONT CONGRESS
+
+Helena, Montana
+November 27, 1967
+
+To all American Women:
+
+I am proud of the fact that my first vote cast in Congress was a vote against war. It was the first opportunity for a woman to vote, because I was the first woman to be elected to Congress.
+
+I believed then, as I do today, that women are the ones that must be concerned with the needs and development of the human race. I have always fought for the dignity of all human beings - for those of the present as well as those of future generations.
+
+I will continue to struggle as long as I live. I hope all women will respond to the following call and join me in Washington on January 8, 1968, the opening day of Congress.
+
+Jeannette Rankin
+
+A CALL TO ALL AMERICAN WOMEN who are outraged by the ruthless slaughter in Vietnam and the persistent neglect of human needs at home TO COME TO WASHINGTON ON JANUARY 8
+
+AMERICAN WOMEN represent 51% of the voting population of our country. AMERICAN WOMEN have the power to achieve peace and a decent life for every American. This is woman power!
+
+Demonstrate it to the Congress of the United States! Come to Washington on January 8 as Congress opens in joint session. Support Jeannette Rankin as she leads a representative delegation of American women to the Capitol to demand that:
+
+* Congress, as its first order of business, resolve to end the war in Vietnam and immediately arrange for the withdrawal of all American troops.
+
+* Congress use its power to make reparations for the ravaged land we leave behind in Vietnam.
+
+* Congress listen to what the American people are saying and refuse the insatiable demands of the military-industrial complex.
+
+WOMEN OF AMERICA, our power is unlimited. On January 8, American women will:
+
+* PETITION the United States Congress
+
+* CONVENE a Congress of American Women that afternoon to develop programs to meet the crisis in America - programs which will express our political power, reason and conscience.
+
+For further information about the Brigade, contact your nearest WSP group or write to the Jeannette Rankin Brigade, 133 W. 72 St., N.Y. 10023
+
+Dc.
+
+L
+
+NW 88321 DocId:32989545 Page 240

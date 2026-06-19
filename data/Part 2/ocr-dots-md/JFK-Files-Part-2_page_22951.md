@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_22951.png
+
+Convert to MarkdownTOP SECRET
+
+49
+
+100
+
+objection, I have a brief statement that I intend to make to
+the Press which will simply re-emphasize to them what I think
+I have said a number of times this morning about my view of
+the role of President Kennedy and Attorney General Kennedy.
+The Chairman. I leave that up to you. I certainly would
+not want to interpose any objection.
+
+Thank you very much.
+
+(Whereupon, at 12:42 o'clock p.m., the Committee recessed.)
+
+TOP SECRET
+
+76000010
+MAY 20 1973 12:55AM
+THE PRESIDENT'S OFFICE
+LINCOLN ROOM, FIRST FLOOR

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_24606.png
+
+Convert to MarkdownSince Helms did not claim any higher specific authorization for or knowledge of the AM/LASH assassination plot, however, the additional issue posed by that testimony does not really arise.
+
+(continued)
+
+of normalizing relations with Castro. (Rusk, 7/10/75, p. 85). Similarly, Bundy testified he "absolutely" did not believe President Kennedy would have authorized or permitted an assassination device to have been passed at the same time a possible rapprochment with Castro was being pursued. (Bundy, 7/11/75, p. 151).
+
+On the other hand, when the possibility of exploring better relations with Castro was initially raised (but before any talks were begun) Bundy indicated that it could be explored on a "separate track" while other proposed actions, such as sabotage, were going on. (Agenda for Special Group meeting of 4/29/63, p. 2.)
+
+TOP SECRET
+
+HW 50955 DocId:32423539 Page 236

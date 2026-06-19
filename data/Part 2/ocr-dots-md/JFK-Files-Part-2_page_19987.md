@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_19987.png
+
+Convert to Markdown1 - Mr. Rozamus
+
+12/21/67
+
+1 - Mr. R.H. Horner
+
+airtel
+
+To: SACs, Philadelphia (100-49497)
+WFO
+
+From: Director, FBI (100-448475)
+
+DEMONSTRATION PROTESTING UNITED STATES POLICY IN VIETNAM
+WASHINGTON, D. C., 1/15/68
+
+INFORMATION CONCERNING
+(INTERNAL SECURITY)
+
+RePHtel 12/19/67.
+
+For your information the date of the captioned demonstration has been changed from 1/3/68 to 1/15/68 to coincide with the reconvening of Congress.
+
+Authority is granted for INFORMANT to attend this demonstration. The source should be instructed to maintain contact with the Washington Field Office during the period of the demonstration for the purpose of promptly furnishing any pertinent data that may be developed.
+
+Upon return to your area, the informant should be promptly debriefed and a communication suitable for dissemination submitted to the Bureau and interested offices.
+
+<table><tr><td>MAILED 8 DEC 20 1967</td></tr></table>
+
+Washington Field Office should immediately advise the Philadelphia Office of the name of the Agent and the telephone number which the informant should use in contacting that office during the course of the demonstration.Philadelphia Office advise Washington Field Office the code name PH 475-S
+
+RMI:jes will use in contacting that office.
+(7)
+
+NOTE:
+
+INFORMANT has been an informant since May, 1956.
+
+PM by rotel advised the informant was in contact with the sponsoring committee of the captioned demonstration and requested authorization for source to make the trip.
+
+54 DEC 28 1967
+
+Mail Room [MAIL ROOM] Telefax UNIT [ ]
+
+NW 88321 Docid:32989545 Page 2/1

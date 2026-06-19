@@ -1,0 +1,64 @@
+# JFK-Files-Part-2_page_21551.png
+
+Convert to Markdown1 pills?
+
+2 Mr. O'Connell. The man that created them is Dr. Raymond
+
+3 Trichler.
+
+4 Mr. Schwarz. Did he hand the pills to you?
+
+5 Mr. O'Connell. Yes.
+
+6 Mr. Schwarz. Did he know what the pills were for?
+
+7 Mr. O'Connell. I don't think so.
+
+8 Mr. Schwarz. But he knew they were illegal?
+
+9 Mr. O'Connell. He knew they were illegal.
+
+10 Mr. Schwarz. And were the pills not tried out on some
+experimental subjects in the U.S.?
+
+11 Mr. O'Connell. Yes.
+
+12 Mr. Schwarz. And proven to be lethal?
+
+13 Mr. O'Connell. Well, to the extent -- I will tell you
+that, we used them on hamsters.
+
+14
+15
+16 Mr. Schwarz. And also monkeys?
+
+17 Mr. O'Connell. No, as far as I know, just the hamsters.
+
+18 Mr. Schwarz. But anyway, you knew they were lethal.
+
+19 Mr. O'Connell. Yes.
+
+20 Mr. Schwarz. And you handed them over to Rosselli?
+
+21 Mr. O'Connell. Yes.
+
+22 Mr. Schwarz. And had the Technical Services made poison
+pills before as far as you know?
+
+23 Mr. O'Connell. As far as I know. I have no idea.
+
+24 This was my first experience with that sort of thing.
+
+25
+
+TOP SECRET
+
+43
+
+TOP SECRET
+
+43
+
+410 First Street, S.E., Washington, D.C. 20003
+
+HAW 50955 DocId:32281988 Page 4

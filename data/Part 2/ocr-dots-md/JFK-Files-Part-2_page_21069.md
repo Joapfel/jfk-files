@@ -1,0 +1,84 @@
+# JFK-Files-Part-2_page_21069.png
+
+Convert to Markdown<table><thead><tr><td>DATE</td></tr></thead><tbody><tr><td>5/10/67</td></tr></tbody></table>
+
+APPROPRIATE AGENCIES AND FIRM OFFICES ADVISORY BOARD SLIP(S) OF CLASS DATE
+
+FBI SECRET
+
+Date: 7/10/67
+
+Transmit the following in
+
+(Type in plaintext or code)
+
+Via AIRTEL
+
+(Priority)
+
+GIA HAS NO ORIENTATION ON THIS DOCUMENT. IT IS TO BE DECLASSIFIED BY ORDER OF THE PRESIDENT.
+
+RELEASE OF GIA INFORMATION IN THIS REGIMENT, EXCEPT FOR THE BRACELETS ON PGS. 2 AND 8.
+
+ALL INFORMATION CONTAINED HEREIN IS NOT CLASSIFIED, BUT MAY BE SHOWN OTHERWISE.
+
+TO: DIRECTOR, FBI
+
+FROM: SAC, MIAMI (105-12062) (P)
+
+SUBJECT: JORGE RAUL ROBLEJO LORIE INTERNAL SECURITY - CUBA
+
+OO: Miami
+
+Re Miami airtel dated 6/21/67, captioned COMITE PRO-LIBERACION DE LOS CIEN (CPLLC) (COMMITTEE FOR THE LIBERATION OF THE ONE HUNDRED), IS - CUBA.
+
+On 7/5/67, SERGIO OSWALDO BETANCOURT COLLAZO, 35 West 9th Street, Apartment 4, Hialeah, Florida, telephone 887-7218, voluntarily furnished the following information:
+
+CLASSIFIED BY 5668 SD HSR
+DECLASSIFY ON 25% HSD
+
+(8) Bureau (RM)
+(1 - 105-147458) (CPLLC)
+(2 - Legat, Mexico) (Info.)
+(1 - 105-4947) (CPLLC)
+(2 - Legat, Ottawa) (Info.)
+(1 - 105-3083) (CPLLC)
+
+2 - New York (Info.) (RM)
+(1 - 105-77103) (CPLLC)
+
+2 - San Juan (Info.) (RM)
+(1 - 105-9215) (CPLLC)
+
+3 - Miami
+(1 - 134-New) (Betancourt Collazo EX-103)
+(1 - 105-9977) (CPLLC)
+
+JDH:jhk
+(15)
+
+2cc ottawa + 2cc mexico
+7/17/67 m.d.
+ copies made
+2/9/78 T S G
+L M Rey
+for review at Fbi by HSCA re 12/16/77 requests
+[(See Buffer #92-112290)]
+
+SECRET!
+
+Approved: FF / JHK
+
+Special Agent on Charge
+
+Sent __________ Per __________
+
+UNRECORDED COPY FILLED NII
+
+HI HN! 2-5 2-6
+
+JUN 14 1967 AM 9:19:19 PM
+
+E-mail: [DocId:32309658](https://docs.google.com/document/d/1v3IWd1rjgZuRmzj5xviQhYfM4nDq0SsUeLxXsHw/view?usp=sharing) Page 2
+
+HW 50953 DocId:32309658 Page 2

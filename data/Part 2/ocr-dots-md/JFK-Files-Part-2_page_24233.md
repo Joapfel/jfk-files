@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_24233.png
+
+Convert to Markdownto collect the proceeds from the sale of Agency proprietary entities and to refund such proceeds to the Agency. At December 31, 1973, its total assets were $650,220 and its total liabilities were $633,897.
+
+Total stockholders equity was $16,323. It has no employees. As of December 31, 1974, it had invested $400,000 in a convertible subordinated debenture from the sale of a company and $45,440 in notes receivable. Another company in this TACTIC complex is LPGLITTER.
+
+It is a Panamanian company which was used as an investment vehicle for funds reserved for new commercial operations requiring Agency investments. The investment project was terminated and all funds were returned to the Agency. The company has no employees. As of December 31, 1973, it had invested $246,757 in a Security Note of PepsiCo Corporation, N.V.
+
+IUQUEST was part of the air support complex of the Agency proprie-
+
+taries. Substantial assets of it were sold and the entity dissolved.
+
+As of December 31, 1974, it had invested $215,000 in a certificate of deposit.
+
+LPPANDA/LPMET is part of the management and accounting complex.
+
+As of December 31, 1974, it had $470,000 invested in time deposits.

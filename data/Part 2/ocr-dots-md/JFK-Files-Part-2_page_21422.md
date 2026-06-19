@@ -1,0 +1,121 @@
+# JFK-Files-Part-2_page_21422.png
+
+Convert to MarkdownSECRET
+
+1 - Mr. Cassidy
+1 - Mr. Ryan
+
+May 5, 1970
+
+RICHARD GIBSON
+
+Reference is made to your memorandum dated April 20,
+1970, your reference I-216, requesting the source of an article
+from the February, 1970, edition of the London publication,
+"Synic," relating to subject, which was forwarded to you by
+routing slip dated April 4, 1970.(S)
+
+This article was obtained by our Legal Attache,
+London, presumably from a review of the public press.
+
+It is noted in December, 1969, Leibel Bergman, the
+theoretical leader of the militant Maoist San Francisco-based
+Revolutionary Union, according to a source who has furnished
+reliable information in the past, indicated shortly after
+meeting Gibson he distrusted him because of Gibson's reputed
+affiliation with the Central Intelligence Agency. At this
+time, Davida Fineman, also a member of the Revolutionary Union
+(and the former paramour of Gibson), defended Gibson, repeatedly
+stating the charges against him were unfounded and the "same
+old stuff." Nevertheless, Bergman at the time persisted in
+his suspicion of Gibson.(S)
+
+As a matter of additional interest, in February,
+1970, Bergman commented that during his travel the previous
+month abroad, he had met with Gibson in London and stayed
+overnight at the Gibson residence. At this time, Bergman
+stated he found Gibson to be charming, likable, sophisticated,
+intelligent, but hung-up on a feeling of self-importance.
+Bergman described Gibson as doing "good work," but stated
+Gibson is not as important as he believes.(S)
+
+From the above it would appear Bergman, who may be
+described as an astute tactical Marxist-Leninist, now accepts
+Richard Gibson. Any additional pertinent information believed
+to be of interest to you regarding the activities of Richard
+Gibson will be promptly made available(S)
+
+MJE-19
+
+SEE NOTE: PAGE TWO
+
+<table>
+   <tr>
+    <td>
+     105-93072
+    </td>
+   </tr>
+   <tr>
+    <td>
+     1 - 100-442715 (AHC)
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Original &amp; l to CIA
+    </td>
+   </tr>
+   <tr>
+    <td>
+     DR:sfw
+    </td>
+   </tr>
+   <tr>
+    <td>
+     (6) 2/17/95
+    </td>
+   </tr>
+  </table>
+
+SECRET
+
+<table>
+  <tbody>
+    <tr>
+      <td>GROUP</td>
+    </tr>
+    <tr>
+      <td>Excluded from automatic downgrading and declassification</td>
+    </tr>
+    <tr>
+      <td>Classified by A.C.S.</td>
+    </tr>
+    <tr>
+      <td>Downgrading and declassification Classified by JCS</td>
+    </tr>
+    <tr>
+      <td>(6) SP8 MACGAT</td>
+    </tr>
+    <tr>
+      <td>OASIS ODR</td>
+    </tr>
+  </tbody>
+</table>
+
+HW 50953 DocId:32339240 Page 46
+
+60 MAY 20 1970
+
+DELETE TYPE UNIT ☐
+
+EXEMPT FROM GDS Category 2/3
+
+Date of Declassification Indefinite
+
+UNRECORDED COPY FILED IN
+
+JCS M.J. 11-141-0071
+
+3/10/79 FEB 19
+
+FEB 21/79 JCS m.

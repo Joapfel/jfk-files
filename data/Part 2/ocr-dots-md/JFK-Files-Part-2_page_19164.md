@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_19164.png
+
+Convert to MarkdownRE: JEANNETTE RANKIN'S BRIGADE
+
+CONFIDENTIAL
+
+Mrs. WILSON went on to relate the State Department would like to get her passport, but she is determined to go where she pleases. Following her talk, she answered questions. A collection from the crowd of some 175 people present netted about $146.00, according to an announcement.
+
+On November 21, 1967, the "Seattle Times" published the results of an interview with Mrs. WILSON, which was conducted prior to the meeting at the AFSC Hall. A reproduction of the article is attached.
+
+The "Seattle Times" is a daily newspaper published at Seattle, Washington.
+
+CONFIDENTIAL
+
+- 4 -

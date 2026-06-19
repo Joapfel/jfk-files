@@ -1,0 +1,71 @@
+# JFK-Files-Part-2_page_21724.png
+
+Convert to Markdowngsh
+
+TOP SECRET
+
+1 unit or branch as it appeared in the PP staff following the
+2 merger, that had the same function and the same personnel as
+3 let's say whatever PB enumerated or numerical designations.
+4 So it's just a question of terminology. I can see that for
+5 chronological purposes you are interested in how I recall it,
+6 whether I recall it by a PB numercial designation or by --
+7 But since I never knew what the Pash-~~Lazarus~~ unit was designated,
+8 whether it was designated by a word or by a number, it
+9 doesn't help me at all. And for that reason I can't be
+10 of more assistance to you.
+
+Just go see Colonel Pash. He's in such and such an office
+down there.
+
+Mr. Baron. Off the record for a second.
+
+(Discussion off the record)
+
+Mr. Baron. For the record now, while we were off the
+record we agreed to continue this session a while to get into
+one or two other areas. But I have a couple of questions to
+tag on to the end of this one.
+
+First of all, [revealed] Lazarus, in his testimony to the
+Committee, said that he had no recollection of a conversation
+with you where he was present, and you discussed assassination
+of a double agent, or the planning for such a mission with
+Colonel Pash and himself.
+
+Do you, even having heard his testimony, still have a
+clear recollection that [revealed] Lazarus was present when you
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32202418 Page 29
+
+TOP SECRET

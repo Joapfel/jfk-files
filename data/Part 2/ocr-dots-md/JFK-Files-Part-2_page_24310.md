@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_24310.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+HHB 230-1
+
+PLANS, PROGRAMS, AND PROJECTS
+
+4e
+
+e. ACCOUNTING IN AGENCY RECORDS
+
+The Office of Finance is authorized to accept the financial statements referred to in paragraph d above, for appropriate recording in the Agency's system of accounts.
+
+f. PROTECTION OF U.S. GOVERNMENT INTEREST
+
+(1) In the case of a stock-issuing instrumentality, all purely nominal stockholders (as specifically differentiated from Agency-controlled holding companies or non-Agency connected beneficial shareholders) either will endorse in blank at time of issue the stock certificates issued in their names or execute an irrevocable stock power covering the stock issued.
+
+(2) In the case of a nonstock-issuing instrumentality, control documents protecting the equity or other interests of the Agency will be executed. Those documents may be overt or classified, and will be prepared by the Office of the General Counsel. The classified documents will be executed on behalf of the Agency by the Special Contracting Officer, Office of Personnel.
+
+(3) The executed stock certificates, irrevocable stock powers, declarations of trust, memoranda of understanding or other control documents evidencing Agency equity or interest in instrumentalities will be forwarded promptly to the Proprietary Systems Branch, Office of Finance, for recording and custody. When such documents need to be retained by an instrumentality, the reasons that necessitate such retention will be reported to the Proprietary Systems Branch, Office of Finance, by the Operating Official responsible for the project. This report will detail the documentation retained and the location and type of safekeeping facility in which it is held, and include a signed statement of the custodian acknowledging responsibility for the documents. When possible, copies of the documents will accompany this report.
+
+g. PERSONNEL POLICY
+
+(1) Unless covered in the project outline, certain personnel data must be included in the Administrative Plan. This should set forth a table of organization, salary scales, benefits and allowances to be provided, and a statement of key personnel selection procedures. Such data will be reviewed and approved by the Director of Personnel.
+
+OCT 9A 1975
+
+Revised: 29 October 1974
+
+HW 50955 DocId:32428532 Page 204
+
+S-F-C-R-F-T
+
+17

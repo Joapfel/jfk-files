@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_23921.png
+
+Convert to Markdown# I. Background
+
+Rafael Trujillo came to power in the Dominican Republic in 1930. For most of his tenure, the United States government supported him and he was regarded throughout much of the Caribbean and Latin America as a protégé of the United States.
+
+Trujillo's rule, always harsh and dictatorial, became more arbitrary during the 1950's. As a result, the United States' image was increasingly tarnished in the eyes of many Latin Americans.
+
+Increasing American awareness of Trujillo's brutality and fear that it would lead to a Castro-type revolution caused U.S. officials to consider various plans to hasten his abdication or downfall.
+
+As early as February 1960 the Eisenhower administration gave high level consideration to a program of covert aid to Dominican dissidents. (Special Group minutes, 2/10/60).
+
+In April 1960 President Eisenhower approved a contingency plan for the Dominican Republic which provided, in part, that if the situation deteriorated still further:
+
+> "...the United States would immediately take political action to remove Trujillo from the Dominican Republic as soon as a suitable successor regime can be induced to take over with the assurance of U.S. political, economic, and -- if necessary -- military support." (Memo from Secretary of State Herter to the President, 4/14/60; Presidential approval indicated in Herter letter to Secretary of Defense Gates, 4/21/60.)
+
+Simultaneously, the United States was trying to organize hemispheric opposition to the Castro regime in Cuba. Latin-

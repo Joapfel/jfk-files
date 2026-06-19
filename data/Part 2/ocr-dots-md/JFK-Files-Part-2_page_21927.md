@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_21927.png
+
+Convert to Markdownhave asked us for a few sandwiches, hardly more, and we are not prepared to make them available. Last week we were asked to furnish three or four pineapples for a party in the near future, but I could remember nothing in my instructions that would have allowed me to contribute this ingredient. Don't think I wasn't tempted. I have rather specific guidelines to the effect that salad ingredients will be delivered outside the picnic grounds and will be brought to the area by another club.
+
+(Dearborn letter to Devine, 3/16/61)
+
+After reviewing his "picnic" letter, together with the requests in the March 14 and 15 cables discussed above, Dearborn concluded during his testimony before the Committee that the "pineapples" were probably the requested fragmentation grenades and the restriction on delivering salad ingredients outside of the picnic grounds was, almost certainly, meant to refer to the requirements of the January 12 Special Group order that arms be delivered outside the Dominican Republic.
+
+(Dearborn 7/29, pp. 25-27)
+
+## 2. The Passage of Pistols
+
+### a. Pouching to the Dominican Republic
+
+In a March 15, 1961 cable, [Chief of Station Owen] reported that Dearborn had asked for three .38 caliber pistols for issue to several dissidents. In reply, Headquarters cabled: "Regret no authorization exists to suspend pouch regulations against shipment of arms" and indicated that their reply had been coordinated with State. (HQS to Station cable, 3/17/61) The Station Chief then asked Headquarters to seek the necessary authorization and noted that at his last two posts, he had received pistols via the pouch for "worthy purposes" and,
+
+Chad

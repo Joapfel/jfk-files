@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_22138.png
+
+Convert to MarkdownCIA HAS NO OBJECTION TO
+DECLASSIFICATION AND/OR
+RELEASE OF THIS DOCUMENT
+AS SANITIZED
+
+PERSONS/ENTITIES:
+
+<table><tr><td>MCCONE</td><td>FITZGERALD</td></tr><tr><td>BUNDY</td><td>PAPICH</td></tr><tr><td>JESSUP</td><td>RFK</td></tr><tr><td>STEAKLEY</td><td>JMVAVE</td></tr><tr><td>JMVAVE</td><td>VANCE</td></tr></table>
+
+HUGHES ✓
+BOSCH, JOSE
+
+DATES:
+
+<table><tbody><tr><td>8/19/64</td></tr><tr><td>7/30/64</td></tr><tr><td>(6/10/64)</td></tr></tbody></table>
+
+CATEGORIES:
+
+SGA
+MONGODB
+CASTRO
+
+TOP SECRET
+
+OCCURRENCE: According to the minutes of the 303 Committee on 7/30/64, "It was agreed that MR. FITZGERALD would contact SAM PAPICH of the FBI in regard to the earlier report of an alleged plot with Mafia overtones to assassinate Castro and which the AG agreed to handle as a matter of law enforcement." (116)" The reference is clearly to a 6/10/64 memorandum information report from the DDP to the Director," (116) which was disseminated to the Spec. Asst. to the Pres.-for Natl. Security Affrs.; ASst. Sect. for Inter-American Affairs, Dept. of State; Dir. of Intell. and Research, State Dept.; Director, DIA; The AG; the Director, FBI; DDCI and the DCI. The 6/10/74 report"related a proposal for the assassination of Castro that was made to prominent Cuban exiles. The Mafia appeared to be involved in the scheme." The asking price was $150,000.--JOSE MARIO PEPIN BOSCH, Preso of Bacardi Rum would contribute $50,000. BOSCH approached the Chief of Station, JMVAVE, and suggested the U.S. government also contribute. This was rejected. The record indicates CIA's only involvement was to report information of its existence."
+
+SOURCE: Last record of incident found by IG Rept. is memo from McCone to Bundy, 8/19/64, reporting the results of FBI intvws with the alleged participants. "Obviously nothing came of the plot."(117)
+
+FILE:
+
+IG REPORT 1967
+
+DATE:
+Baron, 7/1/75
+
+STAFF
+
+Page 48
+
+14-4-94
+
+(1)(a)

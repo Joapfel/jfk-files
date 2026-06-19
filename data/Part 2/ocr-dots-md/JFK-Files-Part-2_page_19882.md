@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_19882.png
+
+Convert to MarkdownNR001 NY CODE
+
+947AM URGENT 5-7-72 EAD
+
+TO ACTING DIRECTOR
+
+ATT DOMESTIC INTELLIGENCE DIVISION
+
+FROM NEW YORK 100-174481 2P
+
+WOMENS NATIONAL ABORTION ACTION COALITION (WONAAC), IS
+DASH NEW LEFT.
+
+AT TWELVE THIRTY PM, FIVE SIX SEVENTY TWO, A MARCH
+SPONSORED BY THE WOMENS NATIONAL ABORTION ACTION COALITION
+(WONAAC), COMMENCED AT FIRST AVENUE AND TWENTY SEVENTH STREET,
+NYC, ENROUTE HERALD SQUARE AND UNION SQUARE, NYC, WHERE A
+RALLY WITH APPROXIMATELY TWO THOUSAND PARTICIPANTS BEGAN.
+THE CENTRAL THEME OF THE SPEAKERS WAS THE REPEAL OF ALL ANTI-
+ABORTION LAWS. REC-21
+
+WONAAC IS A SOCIALIST WORKERS PARTY DOMINATED ORGANIZATION
+WHICH IS PROMOTING A NATIONALLY COORDINATED ABORTION LAW
+REPEAL CAMPAIGN.
+
+18 MAY 15 1972
+
+SOCIALIST WORKERS PARTY (SWP) HAS BEEN DESIGNATED BY
+THE ATTORNEY GENERAL PURSUANT TO EXECUTIVE ORDER ONE ZERO FOUR
+FIVE ZERO SPEAKING AT THE RALLY WERE JOANNA MISNICK, MATILDA
+
+END PAGE ONE
+
+60 MAY 16 1972
+
+cc to D
+Adm. data deleted
+
+ec: Homer
+
+NEW VEL
+
+<table><tr><td>Mr. Tolson</td></tr><tr><td>Mr. Fazekas</td></tr><tr><td>Mr. Caglarok</td></tr><tr><td>Mr. Rosen</td></tr><tr><td>Mr. Mohr</td></tr><tr><td>Mr. Pomeroy</td></tr><tr><td>Mr. Miller, Ph.D.</td></tr><tr><td>Mr. Callahan</td></tr><tr><td>Mr. Casper</td></tr><tr><td>Mr. Conrad</td></tr><tr><td>Mr. Dalrym</td></tr><tr><td>Mr. Cleveland</td></tr><tr><td>Mr. Ponder</td></tr><tr><td>Mr. Bates</td></tr><tr><td>Mr. Walkart</td></tr><tr><td>Mr. Writers</td></tr><tr><td>Mr. Soyars</td></tr><tr><td>Tele. Room</td></tr><tr><td>Miss Holmes</td></tr><tr><td>Miss Gandy</td></tr></table>

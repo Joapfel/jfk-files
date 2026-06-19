@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_23025.png
+
+Convert to Markdown# TOP SECRET
+
+of this lead, I was surprised with the speed with which we got a response back on this man and the details run down that we got on him in terms of who he was and where he worked and so forth, and I think I concluded at that time that somebody knew this fellow very well and somewhere in the whole labrynth, either Justice or we or somebody had access to somebody who could give us a great deal of insight into people who had been involved with the gambling establishment in Cuba.
+
+Those are the only two things that I can say to you that I knew at the time. Obviously I have since read the papers and I have put together in my own mind by deduction that the John that I was aware of that Harvey was in touch with must be John Roselli, but I cannot provide to you --
+
+Mr. Baron. Would this person with contacts with gambling interests in Havana have been Santos Trafficante?
+
+Mr. Halley. I would have no way of knowing. I know who Santos Trafficante is.
+
+Mr. Baron. How do you know this?
+
+Mr. Halley. This is like asking me whether I knew where 7th Street is in downtown Miami. Santos Trafficante is a name that constantly was discussed among Cuban exiles and he was a well-known figure. You could not possibly be involved...
+
+Mr. Baron. Did you know of any involvement that he had in Cuban operations that were connected in any way to the CIA?
+
+Mr. Halley. None that I know of. To the best of my
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+HW
+
+7683070113
+WARD & PAUL
+
+Phone (Area 202) 544-6000

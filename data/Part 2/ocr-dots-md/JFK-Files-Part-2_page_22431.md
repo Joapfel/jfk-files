@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_22431.png
+
+Convert to MarkdownSECRET
+
+A. Yes.
+
+Q. For each Cuban refugee?
+
+A. No. Not for each Cuban refugee. I think, as I recall, those card files were up in the milli-ns and I forgot, we had I guess the manilla files, probably went into the tens of thousands, I would think.
+
+Q. Now, is there any way to determine from those files which of those exiles have become United States citizens?
+
+A. No way..
+
+Q. Has there been any effort to make such a determination?
+
+A. We made an effort at one time but this -- you can become nationalized out in California and your record of nationalization wouldn't be reflected here in Washington for two years. That is how far they are behind.
+
+Q. So I take it --
+
+A. So there is no central index you can go to. There is a central index you can go to but it is not current.
+
+Q. I take it, then, that there is a possibility that CIA has some files in Miami or here in Langley on Cubans who are now American citizens?
+
+A. Absolutely true.
+
+Q. Now, are any of those files likely to contain derogatory information about the individuals involved?
+
+A. Well, no. One of the things these people do, of
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+HW 50955 DocId:32203851 Page 69

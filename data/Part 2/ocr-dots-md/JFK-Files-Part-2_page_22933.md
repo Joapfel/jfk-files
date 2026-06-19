@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_22933.png
+
+Convert to Markdown148
+
+TOP SECRET
+
+51
+
+Mr. Kelley. Mr. Crimmins was in the State Department and he was a foreign service officer?
+
+Mr. Bundy. That is right.
+
+Mr. Kelley. The Cuban Task Force, what was that?
+
+Mr. Bundy. Well, it was the successor to the MONGODB group, but much less oriented toward secret operations than MONGODB, and the review of secret operations then came back under the complete control of the Special Group, by now, I think, called the 303 Committee, which was a lineal successor of 5412.
+
+Mr. Kelley. I call your attention now to Mr. Denney's memorandum, which is at Tab A in Book 2, and it is true, is it not that the memorandum is to Mr. Crimmins?
+
+Mr. Bundy. Right.
+
+Senator Tower. Do you have any independent recollection of this memorandum?
+
+Mr. Bundy. I have no knowledge that I ever saw it, and I did not find it familiar when I looked at it the other day.
+
+Mr. Kelley. It is true, is it not, that Mr. Chase's memo to you summarizes this much longer memorandum by Mr. Denney?
+
+Mr. Bundy. Is that what it is?
+
+Mr. Schwarz. Does it do that, Mr. Kelley, because Chase memorandum starts by saying, here is a summary of Paul Sakwa's
+
+Mr. Kelley. I think that is an error in Mr. Chase's memo, because it is clear that what is being summarized here is Mr.
+
+TOP SECRET
+
+760030500 WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+MN 50933 DocId:32423406 Page 151

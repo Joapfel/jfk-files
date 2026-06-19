@@ -1,0 +1,57 @@
+# JFK-Files-Part-2_page_22727.png
+
+Convert to MarkdownWAND & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+it was subsequently proved that he was a Soviet spy.
+
+Mr. Angleton. Now, that individual had performed four separate missions for Soviet intelligence since about 1938 or '39. One, he had been dropped in by the Soviets into Germany on a mission with the WT set, to be captured in order to be played back and to penetrate the German intelligence.
+
+Second, he had moved from that into the penetration of the Vassilov movement, which were the captured Russians in the German -- in the Vassilov Army.
+
+Third, he had penetrated the anti-Soviet forces in Germany and then he was taken on by us in 1948 or '51 is when they sent to renew his inks.
+
+So he was with us from '51 to around '60.
+
+Well, when the defection occurred, it was '62.
+
+Mr. Johnson. And Mr. Angleton, you used a term that is unfamiliar to us: his inks.
+
+Mr. Miler. Secret inks.
+
+Mr. Angleton. Secret inks. In other words, the Germans had captured a Soviet agent who had the same kind of inks, and so therefore the inks were compromised, so they laid on a large operation in Berlin and trained him in highly sophisticated inks. And he is now residing not too far distant from us.
+
+But I might add that it is very important to note that while we maintained that he is a Soviet agent, and the Bureau disagreed
+
+TOP SECRET
+
+HW
+
+Page 21
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

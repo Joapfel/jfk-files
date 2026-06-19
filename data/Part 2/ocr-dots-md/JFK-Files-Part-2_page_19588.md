@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_19588.png
+
+Convert to MarkdownOPTIONAL FORM NO. 10
+MAY 1982 EDITION
+GSA FPMR (41 CFR) 101-11.6
+
+UNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : DIRECTOR, FBI (100-448326)
+
+FROM : SAC, WFO (100-47173) (C)
+
+SUBJECT: DEMONSTRATION PROTESTING
+UNITED STATES POLICY IN
+VIETNAM, WASHINGTON, D. C.,
+1/15/68
+INFORMATION CONCERNING
+(INTERNAL SECURITY)
+
+DATE: 6/3/68
+
+Re Burouting slip, 5/16/68.
+
+All pertinent information in captioned matter has been disseminated and no further action is necessary.
+
+No further action is being taken by WFO.
+
+REC 102
+
+② Bureau
+1-WFO
+
+JRP:mam
+(3)
+
+22 JUN 4 1968
+
+XEROX
+
+JUN 21 1968
+
+UNRECORDED COPY FILED IN
+7-091
+W-238474 - 7/22/68
+
+INT'L SEC.

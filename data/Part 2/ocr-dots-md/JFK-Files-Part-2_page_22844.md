@@ -1,0 +1,91 @@
+# JFK-Files-Part-2_page_22844.png
+
+Convert to Markdown1
+
+Phone (Area 202) 548-6000
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+7600070501
+
+5
+
+TOP SECRET
+
+1
+
+White House Staff showed me the documents.
+
+2
+
+Mr. Smothers. The White House Staff showed you the documents?
+
+3
+
+Mr. Bundy. Yes.
+
+4
+
+Mr. Smothers. Under what circumstance did the White House Staff provide these documents to you? Was it at your request, or their request?
+
+5
+
+Mr. Bundy. My request.
+
+6
+
+Mr. Smothers. When did it occur?
+
+7
+
+Mr. Bundy. At the time of the Rockefeller hearings.
+
+8
+
+Mr. Smothers. At the time of the Rockefeller hearings?
+
+9
+
+Mr. Bundy. Yes.
+
+10
+
+Mr. Smothers. And prior to your testimony?
+
+11
+
+Mr. Bundy. Yes.
+
+12
+
+Mr. Smothers. Who provided these documents to you?
+
+13
+
+Mr. Bundy. I never have testified on -- this is not a serious matter, because there is no secret about it. But I have always taken the position that White House decisions are for the White House to discuss, and I prefer to hold to that position now.
+
+14
+
+Mr. Smothers. Are you saying that you do not feel at liberty —
+
+15
+
+Mr. Bundy. No, I am not saying, I am saying that I would request the committee to address that question with the White House.
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+TOP SECRET
+
+HW 50955 DocID:52425406 Page 62

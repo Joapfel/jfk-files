@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_24285.png
+
+Convert to MarkdownTABLE II
+
+ACTIVE MAJOR HEADQUARTERS CONTROLLED PROPRIETARIES
+FINANCIAL CONDITION AND SUMMARY OF FUNDING, INCOME
+AND EXPENSES FOR TWELVE MONTH PERIODS SHOWN BELOW:
+PER AGENCY RECORDS 30 JUNE 1975
+
+<table><thead><tr><th rowspan="2"></th><th colspan="4">(PDPORTAL)</th><th colspan="5">PDDYNAMIC</th></tr><tr><th>LPBERRY/B</th><th>LPROE/LPPIKE</th><th>PDBASTE</th><th>PDBASIC</th><th>PDLEDCER</th><th>POTENURE</th><th>PDTERRACE</th><th>VWCADENZA</th><th>MISCUND</th><th>KJAACU</th></tr></thead><tbody><tr><td>ASSETS</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Cash</td><td>$ 26,190</td><td>$ 34,674</td><td>$ 279,887</td><td>$ 319,660</td><td>$ 104,068</td><td>$ 49,555</td><td>$ 26,288</td><td>$ 621</td><td>$ 517,969</td><td>$ 141,418</td></tr><tr><td>Investments</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td>153,735</td></tr><tr><td>Other Assets</td><td>9,182</td><td>13,043</td><td>6,063</td><td>36,159</td><td>17,385</td><td>6,209</td><td>42,575</td><td>42,575</td><td>1,011,609</td><td>1,011,609</td></tr><tr><td>Fixed Assets</td><td>1,108</td><td>6,503</td><td>7,113</td><td>14,828</td><td>10,286</td><td>5,783</td><td>13,908</td><td>1,056</td><td>13,908</td><td>41,549</td></tr><tr><td>Total Assets</td><td>$ 37,080</td><td>$ 54,220</td><td>$ 293,063</td><td>$ 370,647</td><td>$ 132,415</td><td>$ 61,552</td><td>$ 26,288</td><td>$ 1,677</td><td>$ 574,752</td><td>$ 303,821</td></tr><tr><td>LIABILITIES</td><td>$ 923</td><td>$ 131</td><td>$ 142</td><td>$ 60,063</td><td>$ 41,010</td><td>$ 1,934</td><td>-0-</td><td>$ 174</td><td>$ 1,220</td><td>$ 1.818</td></tr><tr><td>NET WORTH</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Investment</td><td>$383,699</td><td>$218,464</td><td>$6,039,344</td><td>$4,35

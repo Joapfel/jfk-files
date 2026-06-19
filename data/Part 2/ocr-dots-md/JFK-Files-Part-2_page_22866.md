@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_22866.png
+
+Convert to Markdown1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+ although you correctly point out that the President was the one who wanted to know. My impression here is that whatever concern we have, General Taylor or I, in the frame of this language, it was precisely to insulate the President from any false inference that what he was asking about was assassination. It is easy to confuse the question. What are things going to be like after Castro, with the other question, and we were trying to focus attention on the information he obviously wanted, which is, what would happen if we did do this sort of thing, and not get one into the frame of mind of thinking that he was considering doing it. That is the distinction, I think.
+
+Mr. Schwarz. Do you have any further recollection of discussion of this matter in this fall of 1961? And by this matter I mean either the broader inquiry into what it would be like if Castro disappeared, or a scenario arising of the specific subject of assassination.
+
+Mr. Bundy. No, I don't.
+
+Mr. Schwarz. Had you ever heard before I asked you about the last night about a conversation, an alleged conversation, between the President and the Journalist Theodore Schwartz, and or Mr. Goodwin in this timeframe?
+
+Mr. Bundy? I saw that in the newspapers.
+
+Mr. Schwarz. Or in Esquire magazine?
+
+Mr. Bundy. Wherever I saw it, I saw it in print.
+
+TOP SECRET
+
+HW 50933 Dated: 3/24/1990 Page 84

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_22921.png
+
+Convert to MarkdownTOP SECRET
+
+136
+
+Mr. Schwarz. As Bundy 6-F, the memorandum for Mr. Bundy,
+Subject, Cuba Policy, dated April 23, 1963.
+
+(The document referred
+to was marked Bundy
+Exhibit 6-F for
+identification.)

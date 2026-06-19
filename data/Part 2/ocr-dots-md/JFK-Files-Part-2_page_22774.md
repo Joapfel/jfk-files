@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_22774.png
+
+Convert to Markdown1964
+
+TOP SECRET
+
+Mr. Angleton. Well, I think, no question, it's the
+Soviet bloc services that represent the major threat because
+they are really a small, they are directly subordinated to the
+central committee and to the basic objectives, as I've seen them
+all my life to the change and balance of military power.
+
+Further, that practically all intelligence operations more
+and more have political objectives, and I think it is the fact
+that since '59 they have elevated the Cuban intelligence and
+all of the other bloc services to a very high degree of
+efficiency, that they are coordinated and they work as equals.
+
+And I think that is the major threat, that is the
+inability of the FBI by lack of personnel and manpower to be
+able to cover these people. There isn't the minimal coverage.
+The people they cover are people who have been "identified,"
+and I defy anyone to have a list of identified agents in this
+country.
+
+Now that is the legal side of it. Now the larger part
+of it is the illegal, where there's been little or no success.
+The only one that has really come out is the Abel case, which
+we handled through Hahannan. And then there was one or two
+minor ones.
+
+But that is a whole program of bloc activity, and
+according to one of the best sources we had, his view was that
+the illegals would be placed primarily in airports, docks,
+factories, and they give a whole listing. And these are the
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Ward & Paul
+
+760011334
+
+HW
+
+Page 88

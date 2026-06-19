@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_21440.png
+
+Convert to MarkdownSF 100-61281
+BW/cmp
+
+SECRET
+
+In view of this latest development, it is most strongly
+urged that the Bureau, through liaison, have CIA interview "SUGAR"
+specifically concerning the following points:
+
+(1) Any and all knowledge "SUGAR" has concerning activities and contacts of HOWARD BRUCE FRANKLIN while the latter was in France.
+
+(2) Any and all knowledge of DAVIDA FINEMAN. In this connection, it is suggested that CIA be requested to encourage correspondence between "SUGAR" and FINEMAN.
+
+(3) "SUGAR" furnish CIA with all correspondence to and from the RU and that "SUGAR" be directed in a logical way to encourage such correspondence with the RU.
+
+In view of LEIBEL BERGMAN's admitted difficulties over communications with Red China and lack of knowledge of current events in that country, it is believed that if "SUGAR" can favorably establish himself with the RU as a contact in Europe he will be able to furnish valuable information on any other contacts the RU may attempt to establish on the Continent and might even be utilized as a cutout by BERGMAN for the RU.
+
+In view of the delicate nature of the information contained in the LHM, the Bureau may wish to restrict dissenination to CIA only.
+
+In referring the above requests to CIA, the Bureau should insure the bona fides of "SUGAR" as a CIA operative and his reliability lest SF 3169-S be compromised.
+
+San Francisco will continue to follow this matter with SF 3169-S.
+
+SECRET
+
+HW 50953 DocId:32339240 Page 64

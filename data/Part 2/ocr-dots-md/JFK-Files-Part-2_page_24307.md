@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_24307.png
+
+Convert to MarkdownPLANS, PROGRAMS, AND PROJECTS
+
+HIB 230-1
+4b
+
+(b) Proposed Expenditures
+
+Clear identification of all proposed expenditures requiring cash, broken down in sufficient detail to separate
+
+(1) fixed expenses (overhead); and
+
+(2) operating expense.
+
+(c) Estimated Cash Balance at the End of the Fiscal Year
+
+(2) Preparation
+
+(a) Operating budgets are to be prepared annually for each approved project, with a detailed breakdown for each instrumentality. The budget will cover the past year (estimated obligations), the current year (proposed), and a forecast for at least the next year's operations in agreement with the limitations contained in the relevant operational program. The categories of expense will be consistent for all years and will follow the general classification of accounts in its prescribed accounting reports, to facilitate comparison and justify increases or decreases (overhead vs. operational; stateside vs. overseas; salaries, travel, etc., as applicable).
+
+(b) Scheduling of approvals of operating budgets will conform with the schedules established by the appropriate Deputy Director for annual project renewals.
+
+(c) The Office of the Comptroller is to be provided a copy of the approved operating budget for the project immediately following formal approval by the appropriate Deputy Director. This requirement also pertains to any subsequently approved revision of the project operating budget.
+
+b. FUNDING
+
+(1) Instrumentalities generally should be provided with cash not in excess of three months' normal operating cash requirements. Further funding of any instrumentality should be deferred whenever available funds exceed this limitation. If substantial amounts above this limitation are on hand, the instrumentality should be required to return the excess to the Agency.
+
+Revised: 29 October 1974
+
+3
+
+E2 IMPDET
+
+S-E-C-R-E-T CL BY: 059687
+
+HW 50955 DocId:32423532 Page 201
+
+CIA
+
+9月30日 1975

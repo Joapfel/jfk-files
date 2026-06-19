@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_23198.png
+
+Convert to Markdown# TOP SECRET
+
+2
+
+Senator Mondale. Do you swear the testimony you are about to give will be the truth, the whole truth, and nothing but the truth, so help you God?
+
+Mr. Tweedy. I do.
+
+Mr. Baron. Mr. Tweedy, are you aware that you have the right to counsel here today?
+
+Mr. Tweedy. I am.
+
+Mr. Baron. And are you appearing voluntarily here today without counsel?
+
+Mr. Tweedy. I am.
+
+(At this point, the hearing was removed to Room 608, Carroll Arms Hotel.)
+
+Mr. Baron. Are you also aware that all of your Constitutional rights are intact before the Committee, including your Fifth Amendment rights?
+
+Mr. Tweedy. I am.
+
+Mr. Baron. Mr. Tweedy, are you aware that you have the right to cease answering questions at any time and consult with an attorney?
+
+Mr. Tweedy. Yes. I gather that was implicit in what you said in the Senator's office.
+
+Mr. Baron. It was.
+
+Now, that we are no longer in the Senator's presence I would like to make it clear to you that you are under no obligation to continue testifying, although the Committee
+
+TOP SECRET

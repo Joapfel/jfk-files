@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_21771.png
+
+Convert to MarkdownTESTIMONY OF
+
+Alfred J. Sarno
+
+TOP SECRET
+
+CONTENTS
+
+A
+
+PAGE
+
+3
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+HW 50955 DocId:32202440 Page 3
+
+TOP SECRET
+
+TOP SECRET

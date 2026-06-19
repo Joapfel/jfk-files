@@ -1,0 +1,75 @@
+# JFK-Files-Part-2_page_21705.png
+
+Convert to Markdown1. gsh
+
+2.
+
+3.
+
+4.
+
+5.
+
+6.
+
+7.
+
+8.
+
+9.
+
+10.
+
+11.
+
+12.
+
+13.
+
+14.
+
+15.
+
+16.
+
+17.
+
+18.
+
+19.
+
+20.
+
+21.
+
+22.
+
+23.
+
+24.
+
+25.
+
+# TOP SECRET
+
+Colonel Pash with the idea in mind of seeing if an assassination or a kidnapping couldn't be arranged?
+
+Mr. Hunt. The then Chief of Foreign Intelligence and Counter-Intelligence for the Division. And I think now that that was Charlie English, Charles English. I think he wore both hats. He had both foreign intelligence responsibility and the counter-intelligence responsibility. And I might have told the division chief about it, although it was not, it had not achieved such stature at that point that I would have necessarily talked to the Division Chief, who I believe at that time was John Richardson of later Vietnam fame.
+
+It's also possible that the Division Chief in that era was John Baker, now deceased, who left that division to become Chief of the PP staff, and that would have been a normal follow through for me if I had discussed it with John Baker, my direct Chief, and then to have discussed it with him when he was my staff chief in the overall political and psychological staff.
+
+Mr. Baron. Anyone else who would have known about your approach to Colonel Pash or about -- Mr. Hunt. Or his function.
+
+Mr. Baron. Yes, that Colonel Pash was considered to have assassinations as one of his functions.
+
+Mr. Hunt. We had a Colonel Buffington who at that time was a member of the PP staff, the overall PP staff, and I think
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32202418 Page 10
+
+TOP SECRET
+
+16

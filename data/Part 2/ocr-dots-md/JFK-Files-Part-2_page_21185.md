@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_21185.png
+
+Convert to MarkdownTOP SECRET
+
+He stated that [GARCIA] was also present and presumably was intimate with SVETLANA. He related that he and [ZWANG] had also met three Russian girls in SARWAT's apartment but were not intimate with them. (This is inconsistent with data set forth on page 198 of the CIA paper.)
+
+[MORONE] admitted exchanging currency with PIETRO CECHI but claimed that these exchanges did not exceed $200 or $300.
+
+Thus, contrary to the CIA paper, NOSENKO is aware of [MORONE]'s sexual involvements and the East German girl was involved with [MORONE]. NOSENKO'S information seems adequate for a supervisor.
+
+TOP SECRET

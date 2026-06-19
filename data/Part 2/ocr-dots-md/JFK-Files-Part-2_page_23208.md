@@ -1,0 +1,94 @@
+# JFK-Files-Part-2_page_23208.png
+
+Convert to Markdown1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+WASD BASS
+
+21
+
+22
+
+23
+
+24
+
+25
+
+26
+
+27
+
+28
+
+29
+
+30
+
+31
+
+32
+
+TOP SECRET
+
+posed the threat in the Congo beyond the mere threat of
+political instability because of his closeness to the Soviets
+or his willingness to accept aid from the Soviets?
+
+Mr. Tweedy. It made the cheese more binding but I don't think we had any information indicating there was any close umbilicus between the Soviets and Lumumba but it was potentially there.
+
+Mr. Baron. And that potential --
+
+Mr. Tweedy. This increased one's nervousness about the situation.
+
+Mr. Baron. In your capacity as Chief of the African Division to whom did you report and from whom did you receive orders?
+
+Mr. Tweedy. Well, the normal chain of command was through DDD, Dick Bissell and --
+Mr. Baron. Would you meet regularly with Richard Bissell during this period of time?
+
+Mr. Tweedy. Regularly would be a big word. Not necessarily that often. We might talk on the phone. To say that I saw him all the time, how often I don't know. It would go in fits and starts, undoubtedly but--
+
+Mr. Baron. In formulating actions to be taken in the Congo, would you consult with Bissell before you undertook any major operation.
+
+Mr. Tweedy. Well, depending on what you mean by
+
+TOP SECRET
+
+12

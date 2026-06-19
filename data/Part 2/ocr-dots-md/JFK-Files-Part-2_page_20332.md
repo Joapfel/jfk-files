@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_20332.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DEMONSTRATION PROTESTING
+UNITED STATES POLICY IN
+VIETNAM, WASHINGTON, D.C.
+
+JANUARY 15, 1968
+
+4. Congress shall listen to what the American people are saying and refuse the insatiable demands of the military industrial complex
+
+We herewith declare our intention to return to our communities and mobilize women on all levels of activity and to exercise their political power to reshape American society and restore our country to a position of honor in the Community of Nations
+
+The Jeannette Rankin Brigade
+January 15, 1968"
+
+A third source, who has furnished reliable information in the past, on January 15, 1968, advised that she had arrived in Washington, D.C., on the train from New York City at approximately 11:40 a.m. She stated that included in her group were six members of the Socialist Workers Party and one member of the Young Socialist Alliance.
+
+The Socialist Workers Party has been designated pursuant to Executive Order 10450.
+
+Young Socialist Alliance is described in the appendix.
+
+Special Agents of the Federal Bureau of Investigation observed the participants in the above march enter buses in the vicinity of Union Square and travel to the Shoreham Hotel, 2500 Calvert Street, N.W., Washington,D.C., where they arrived at approximately 2:20 p.m. They then assembled in the Regency Room and the Ambassador Room of that hotel where a program began at approximately 2:30 p.m.
+
+CONFIDENTIAL
+
+- 5 -

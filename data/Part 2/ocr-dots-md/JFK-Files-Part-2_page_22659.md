@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_22659.png
+
+Convert to Markdown10 Full Street, S.C., Washington, D.C. 20003
+
+# TOP SECRET
+
+he had decided to defect many years prior to December of 1961, if the opportunity ever arrived. And therefore he used those many years breaking down the compartmentalization of the KGB in order to acquire the kind of information which would be most valuable to the US, and to our allies.
+
+Therefore he refused many assignments abroad, but tried to always remain in headquarters and get himself appointed to investigative commissions and other things of this sort which would get into everybody else's business. Among other things, he spent many years in the training schools for people who came back for six weeks from different parts of the world to brag about their achievements. And he absorbed all of this information.
+
+And among other things, he stated that he gave the cryptograms and circumstantial evidence of penetrations throughout the West.
+
+And then the Soviets rapidly transferred 300 of their people after his defection. And as is normal in a case of this kind, the big problem is to write a damage report, which means the whole service would come to a standstill. And the objective would be to review all paper files and everything that showed his initials. And you usually would have three categories of information: you would have information which he definitely had knowledge of, and information which he did not have knowledge of, and information which you are not
+
+# TOP SECRET

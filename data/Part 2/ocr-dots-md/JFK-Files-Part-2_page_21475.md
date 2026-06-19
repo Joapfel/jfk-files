@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_21475.png
+
+Convert to Markdown# SECRET
+
+Richard Thomas Gibson
+
+## 1. APPENDIX
+FAIR PLAY FOR CUBA COMMITTEE
+
+The April 6, 1960, edition of "The New York Times" newspaper contained a full-page advertisement captioned "What Is Really Happening In Cuba," placed by the Fair Play for Cuba Committee (FPCC). This advertisement announced the formation of the FPCC in New York City and declared the FPCC intended to promulgate "the truth about revolutionary Cuba" to neutralize the distorted American press.
+
+"The New York Times" edition of January 11, 1961, reported that at a hearing conducted before the United States Senate Internal Security Subcommittee on January 10, 1961, Dr. CHARLES A. SANTOS-BUCH identified himself and ROBERT TABER as organizers of the FPCC. He also testified he and TABER obtained funds from the Cuban Government which were applied toward the cost of the aforementioned advertisement.
+
+On May 16, 1963, a source advised that during the first two years of the FPCC's existence there was a struggle between Communist Party (CP) and Socialist Workers Party (SWP) elements to exert their power within the FPCC and thereby influence FPCC policy. This source added that during the past year there had been a successful effort by FPCC leadership to minimize the role of these and other organizations in the FPCC so that their influence as of May, 1963, was negligible.
+
+The SWP has been designated pursuant to Executive Order 10450.
+
+On May 20, 1963, a second source advised that VINCENT "TED" LEE, FPCC National Office Director, was then formulating FPCC policy and had indicated that he had no intention of permitting FPCC policy to be determined by any other organization. This source stated that LEE believed that the FPCC should advocate resumption of diplomatic relations between Cuba and the United States and should support the right of Cubans to manage their revolution without interference from other nations. LEE did not advocate supporting the Cuban revolution per se.
+
+SECRET
+
+NWW 88296 DocId:32339276 Page 19

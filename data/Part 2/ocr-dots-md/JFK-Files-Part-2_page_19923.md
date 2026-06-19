@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_19923.png
+
+Convert to MarkdownIn Reply, Please Refer to
+File No.
+
+November 17, 1967
+
+JEANNETTE RANKIN BRIGADE
+
+A source advised on November 15, 1967, that an organization captioned as above has been organized for the purpose of protesting the Vietnam War. The source stated that it is the objective of this organization to induce women by the thousands to travel to the White House, Washington, D.C., on January 8, 1968 for a demonstration to end "this dishonorable war".
+
+The source stated that the person who is acting as executive secretary for this organization in the San Francisco Bay Area is Vivian Hallinan and that she is being assisted by Elizabeth Meredith.
+
+Re: Vivian Hallinan:
+
+Terence Hallinan, the son of Vivian Hallinan, stated in October, 1962 that his mother would be willing to join the Communist Party (CP) if her husband, Vincent Hallinan would also join.
+
+The most recent CP activity on the part of Terence was on October 14, 1967, when he attended a meeting of the Northern California District CP Committee held at San Francisco.
+
+Vivian Hallinan was arrested on a civil rights sit-in demonstration at Auto Row in San Francisco, in April, 1964. Sergeant William Davis, San Francisco County Jail Number 2, San Bruno, California, advised on August 22, 1966, that Vivian Hallinan served a month in the County Jail from July 5, 1966 to August 2, 1966 having been found guilty on a sit-in charge.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
+
+XEROX
+
+FEB 7 1968
+
+ENCLOSURE
+
+448326 - |

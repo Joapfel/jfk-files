@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_23577.png
+
+Convert to MarkdownEYES ONLY FOR THE PRESIDENT
+
+- 2 -
+
+(2) His role should be told to only a few people at the very top with most of the contact work in carrying out his decisions being left to his deputy. If that deputy is someone already closely identified with the conduct of Cuban affairs then it would appear as if normal channels are being followed except that decisive attention would be given to the decisions which came through those channels. There are probably three or four people who could fulfill this criterion.
+
+This still leaves a substantial danger of identifying the Attorney General as the fellow in charge. This danger must be weighed against the increased effectiveness of an operation under his command.
+
+Richard N. Goodwin
+
+EYES ONLY FOR THE PRESIDENT
+
+TOP SECRET
+
+HW 50955 DocId:32423505 Page 55

@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_22745.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+WARD & PAUL
+
+1 current DDO, was station security and liaison.
+
+2 Mr. Kirbow. Can you see this getting any better with
+3 your new selectee who is coming from the outside world?
+
+4 Probably knows the term counterintelligence, but knows nothing
+5 about the intelligence community basically?
+
+6 Mr. Miler. I don't -- quite frankly, I couldn't comment
+7 on Mr. Bush at all, but if Mr. Bush is going to have to rely
+8 on the current management and the current management of counter-
+9 intelligence in the CIA, it is my view that he will get
+10 completely erroneous information and not have the advantage
+11 of understanding counterintelligence, and would be forced to
+12 make decisions which ultimately will be tragic to this
+13 country as far as counterintelligence is concerned, from
+14 ignorance.
+
+15 Senator Hart of Colorado. What kind of erroneous
+16 information?
+
+17 Mr. Miler. What counterintelligence is, how it should
+18 be organized, what the threat to the nation is that can be
+19 hopefully countered by an effective counterintelligence organi-
+20 zation which is integrated between the CIA, the FBI, the
+21 military services, the Department of State, and all other
+22 agencies concerned.
+
+23 You are going to have to have a perception of the real
+24 problems and what is involved in counterintelligence in order
+25 to organize or reorganize the CIA's counterintelligence efforts,
+
+TOP SECRET
+
+HW

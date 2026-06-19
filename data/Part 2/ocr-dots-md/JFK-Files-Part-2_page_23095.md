@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_23095.png
+
+Convert to Markdownbello Moreno (agente de la CIA, Luis David Rodríguez González, Ricardo Olmedo-Moreno, José A. López Rodríguez, Juan - Lucio Morales Sosa y otros.
+
+Simultáneamente al atentado proyectaron ataques a locales de los Comités de Defensa de la Revolución y Milicias Nacionales Revolucionarias.
+
+ballo Moreno CIA agent), Luis David Rodríguez González, Ricardo Olmedo Moreno,José A. López Rodríguez, Juan Lucio Morales -- Sosa and others.
+
+Simultaneously with this plot, attacks to the Committees of Defense of the Revolution and the National Revolutionary Military sites, were planned to be carried out.
+
+76:0117

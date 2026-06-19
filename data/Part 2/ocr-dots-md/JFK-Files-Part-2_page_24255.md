@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_24255.png
+
+Convert to Markdownequity in the corporation and 60 percent of the equity was osten-
+sibly owned by the Chinese, who gave deeds of trust to the Agency
+for their shares. This overt arrangement demonstrated for purposes
+of international law that the company was majority-owned and con-
+trolled by Chinese. The Chinese continued to press the company
+to get into the international common carriage field. The company
+had several DC-4's and began modest operations between Hong Kong,
+Taipei and Tokyo. They graduated to DC-6's, and it was at this time
+that the Agency first got into the question of competition with U.S.
+industry. Northwest was then flying to Tokyo and Seoul and to
+Manila, and was trying to obtain rights into Hong Kong. Don Nyrop
+had noted the Agency's interest in this area when he had been
+Chairman of the Civil Aeronautics Board in the late 1940's and the
+early 1950's. Houston told the Committee:
+
+He (Nyrop) became head of Northwest, a very tight manager, a very capable fellow, and he used to complain that we were interfering, we were taking passengers off his airline, and we would go to him and say, we have to keep the airline in this business because the Chinese say they need an international airline. They're not ready to start their own yet. And it is necessary to its overall cover status as a going commercial concern.
+
+By 1959 Mr. Nyrop was complaining that the Agency was doing too much.
+Finally Nyrop decided to complain to the Civil Aeronautics Board and
+the Agency agreed to place it before that Agency for a decision.
+A meeting was held with the entire Board, at which time Nyrop was
+able to make his case "for the fact that he was a private industry,
+he should not be interfered with by government competition."

@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_24800.png
+
+Convert to MarkdownHe interpreted the May 29 cable as saying:
+
+"...we don't care if the Dominicans assassinate Trujillo, that is all right. But we don't want anything to pin this on us, because we aren't doing it, it is the Dominicans who are doing it:" (Dearborn, 7/29, p. 104)
+
+Dearborn testified that this accorded with what he said had always been his personal belief; that the U.S. should not be involved in an assassination and that if an assassination occurred it would be strictly a Dominican affair. (Dearborn 7/29, pp. 100, 101)
+
+In contrast the CIA Station Chief, Owen, did regard the cable as manifesting a change in U.S. policy, particularly on the question of supplying arms. (Owen p. 120) He believed the May 29 cable was the final word in U.S. policy on this matter and consequently felt that the government had retreated from its prior position, of offering material support to the dissidents, and had adopted a new position of withholding such support.
+
+Owen's responsive cable to Headquarters stated:
+
+"HQS aware extent to which U.S. government already associated with assassination. If we are to at least cover up tracks, CIA personnel directly involved in assassination preparation must be withdrawn."
+
+(Station to HQS cable, 5/30/61)

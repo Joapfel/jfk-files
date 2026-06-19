@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_23035.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+1. Mr. Halley. I do not recall that kind of a conversation taking place with FitzGerald in this timeframe that we are talking about.
+2.
+3.
+4. Mr. Baron. Do you recall any such conversation at any point?
+5.
+6. Mr. Halley. No, I do not, in the timeframe that we are talking about.
+7.
+8. Mr. Baron. When I say at any point, I mean at any point since 1962.
+9.
+10. Mr. Halley. Well, you know, in the period 1972-73, I did look at some of the files, I did read some of the files. I am familiar that such conversations took place and that there were a series of meetings. You know, I know who the case officer was and so forth.
+11.
+12.
+13.
+14.
+15. Mr. Baron. You never discussed the subject directly with FitzGerald?
+16.
+17. Mr. Halley. With FitzGerald, no. I can only say that my knowledge of that is secondhand from having subsequently read the files.
+18.
+19.
+20. Mr. Baron. Was it your impression at that time that one of the objectives of the contact with AMLASH-1 was the assassination of Fidel Castro or other high Cuban leaders?
+21.
+22.
+23. Mr. Halley. No. I never had the impression that assassination was a thrust of the activity. In other words, we were working across-the-board, both in the context that Desmond
+24.
+25.
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+76503 WARD & PAUL
+
+# TOP SECRET

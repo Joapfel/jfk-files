@@ -1,0 +1,57 @@
+# JFK-Files-Part-2_page_19073.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+# Memorandum
+
+TO : DIRECTOR, FBI (105-28333)
+
+FROM : SAC, WFO (105-8906) (P)
+
+SUBJECT:
+
+DATE: 12/19/68
+
+CONF. INFT.
+
+(00:WFO)
+
+ReWFOlet 11/6/68 requesting NY to forward copies of all pertinent serials which will assist in evaluating the captioned subject's relationship with the Soviets. ReNYlet 12/10/68 which furnished serials pertaining to the initial development of the source and copies of evaluation letters and memoranda since that time. - C -
+
+WFO does not consider the material furnished by NY adequate for evaluation of this source. The attention of NY is directed to information furnished by which indicated that the subject was recruited by the KGB and subsequently was considered to be a valuable agent who was used to acquire information on individuals in whom KGB was interested. It is also noted that the subject was expelled from Moscow after it was known to the KGB that he was to be replaced and a visa had been issued to his replacement. Subject's expulsion could well have been arranged to make it appear that subject had not cooperated with the KGB. -C-
+
+The material submitted by NY indicated that subject reported to NY concerning the recruitment approach made to him but apparently did not admit furnishing information or assisting KGB. It is requested, therefore, that NY forward to WFO the complete results of contacts between subject and the NY office since the subject's initial travel to the USSR. WFO desires to review this material in detail before making contact with the subject and decide whether or not to use him as a source against Soviets assigned to the Embassy in Washington, D. C. - C-
+
+Please expedite.
+
+REC-10
+
+② Bureau
+2 - New York (134-3315) (RM)
+1 - WFO
+
+54 DEC 27 1968
+
+ETT:pab (5)
+
+1st DEC 19 1968
+
+Classified by Exempt from GDS, Category Date of Declassification Indefinite
+
+SOVIET RECTION
+
+NW 88-26 DocId:32989704 Page 357 Savings Bonds Regularly on the Payroll Savings Plan
+
+EXTRAIT
+
+EPOHSTAN
+
+PUBLISHED
+
+10/6/1968
+
+NOT FOR DISTRIBUTION
+
+RECIPIENT LIST FOR THE NOTARY PUBLIC
+
+BUREAU DE LE either side shall be entitled to receive the whole or any part of such document and to give its decision thereon without further ado. If any person contrary thereto has already stated his intention to transmit the document by mail or by telegraph, he shall be deemed to have advised the other person to do so. In case of transmission by mail the person thus designated shall have no right to receive the document.

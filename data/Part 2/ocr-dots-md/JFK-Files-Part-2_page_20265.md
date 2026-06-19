@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_20265.png
+
+Convert to MarkdownUNITEO STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Seattle, Washington
+
+January 10, 1968
+
+In Reply, Please Refer to
+File No.
+
+CONFIDENTIAL
+
+RE: DEMONSTRATION PROTESTING UNITED STATES POLICY IN VIETNAM, WASHINGTON, D.C., JANUARY 15, 1968 INFORMATION CONCERNING
+
+On January 9, 1968, a confidential source, who has furnished reliable information in the past, stated the Jeannette Rankin Brigade demonstration originally scheduled for January 8, 1968, at Washington, D.C., had been postponed until January 15, 1968, when Congress reconvenes. The source made available a leaflet concerning the event. A reproduction is attached.
+
+On January 9, 1968, a second source, who has furnished reliable information in the past, reported TAIMI HALONEN and possibly others planned to go to Washington, D.C., for the demonstration and would probably travel via United Air Lines.
+
+ TAIMI HALONEN was reported by the first
+source in December, 1967, as being a mem-
+ber of the Communist Party (CP) at that
+time.
+
+On January 9, 1968, WENDELL C. WOODARD, Reservations Manager, United Air Lines, Seattle, made available information indicating TAIMI HALONEN and Mrs. J. WARE had reservations on United Flight 42 departing 9:15 a.m., January 13, 1968, and will fly nonstop to Friendship Airport, Baltimore, Maryland, arriving at 4:35 p.m., Eastern Standard Time. They are scheduled to return to Seattle on United Flight 41 leaving Friendship Airport at 6:00 p.m. and arriving at Seattle-Tacoma Airport, Seattle, at 8:25 p.m., Pacific Standard Time, January 18, 1968.
+
+JERLINE WARE, nee/ABAIR, aka Mrs. JOHNNY WARE, was reported in August, 1952, by a third source who has furnished reliable information in the past as being under transfer from the Communist Party of California to Seattle, Washington, as of that time.
+
+COPIES DESTROYED
+27 MAY 13 1971
+
+THIS DOCUMENT CONTAINS NEITHER
+RECOMMENDATIONS NOR CONCLUSIONS
+OF THE FBI. IT IS THE PROPERTY
+OF THE FBI AND IS LOANED TO YOUR
+AGENCY; IT AND ITS CONTENTS ARE
+NOT TO BE DISTRIBUTED OUTSIDE
+
+CONFIDENTIAL
+Group 1
+Excluded from automatic
+downgrading and
+declassification
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
+
+NW 88321 Doc ID:32989545 Page 549

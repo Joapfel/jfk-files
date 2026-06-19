@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_23367.png
+
+Convert to MarkdownAll sorts of things were coming up from the field. I had commented on it here; in the end, I say, do not be discouraged because you do not see the probable channel we will use. I assume the colleague was Sid Gottlieb, because I guess he was still there.
+
+Mr. Baron. The first time he had not arrived, but you had already cabled that his arrival was imminent?
+
+Mr. Tweedy. I assume that that is the colleague. I do not think he would have talked to anybody else on it. That is all it means.
+
+It is, if you like, a technique of management.
+
+Mr. Baron. Moving on to a document that we will mark Exhibit 4, the next cable, is from Allen W. Dullas of September 24, 1960 and your pseudonym is also listed as one of the senders of the cable to the Chief of Station.
+
+(The document referred to was marked Tweedy Exhibit No. 4 for identification.)
+
+TOP SECRET
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+
+HW
+
+TOP SECRET

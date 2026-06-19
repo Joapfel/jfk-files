@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_21563.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+1 Little cocktail party for him, I think it was in San Francisco.
+2 And we had that gal, we got in touch with her again, and she did
+3 attend the party. But it was a social affair, and there was
+4 no operation involved in this.
+
+Mr. Madigan. Did Maheu set that up?
+
+Mr. O'Connell. Yes.
+
+Mr. Madigan. Both the original contact and the later party
+in San Francisco?
+
+Mr. O'Connell. Yes.
+
+Mr. Madigan. And were those the only two times now that
+he was involved in the operations field?
+
+Mr. O'Connell. Oh, no. He did a lot of other things.
+
+Mr. Madigan. Let me ask you this question.
+
+When Maheu was having his problems with the authorities,
+was there any reference back to his involvement in those kind of
+activities, or was the only discussion about his role in
+the so-called assassination plot?
+
+Mr. O'Connell. Well, I am not even so sure that they got
+into that aspect of it. It was just that he was involved
+to the extent that he had set up the operation against Rowan,
+or he was the one that got in touch with DuBois to do it.
+
+Mr. Wides. When did you come back from overseas?
+
+Mr. O'Connell. July of 1965.
+
+Mr. Wides. After you came back did you learn of a time,
+either after you came back or very shortly before you came
+
+410 First Street, S.E., Washington, D.C. 20003
+
+# TOP SECRET
+
+150
+
+HW 50955 DocId:32281988 Page 16

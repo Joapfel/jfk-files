@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_24014.png
+
+Convert to MarkdownAlthough it was not immediately clear to CIA observers, the Station's prediction of October 9 that the shooting of Schneider (as a result of an abduction attempt) would "rally the Army firmly behind the flag of constitutionalism" was correct. (Santiago 495, 9 October) On October 24 Dr. Allende was confirmed by the Chilean Congress. General Schneider died the next day.
+
+TOP SECRET
+
+HW 50955 DocId:32423525 Page 117

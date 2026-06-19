@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_22579.png
+
+Convert to MarkdownSECRET
+
+and may assume that such advice and acknowledgement on our part would be Agency approval for his activities. While such is not the case, it is believed that we should formalize this part of our contract with him so that he knows that his personal activities, regardless of area, are not construed as an extension of Agency plans or programs. At the same time, Subject can be assured of our continuing interest in him as a "standby" asset.
+
+"Should you have any questions concerning this subject, I would be pleased to discuss them further."
+
+Attached to this blind memorandum is a Memorandum of Understanding, dated 29 April, signed by Wiley, with an indicated copy given to Wiley, stating:
+
+"In order to avoid any possible misunderstanding in the future and in recognition of my many personal and official activities, I agree that any assignments given to me by my associates in Washington will be made a matter of written record. As security permits and when convenient and possible, I will be shown a copy of any such assignment and will initial same showing the date the assignment was received.
+
+"My acknowledgement of this arrangement does not in any way change or abrogate the nature of my association with my employer. I understand that this procedure is solely for the purpose of providing some evidence and a record of those assignments I have officially received."
+
+RECEIVED FROM
+SEP 20 1975
+CIA
+
+SECRET!

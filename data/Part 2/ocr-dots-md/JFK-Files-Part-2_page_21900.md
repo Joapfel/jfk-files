@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_21900.png
+
+Convert to Markdownspecific, highly sensitive operational purpose which has been completed" (Memorandum for Finance Division from William K. Harvey, 1/11/61). (O'Donnell) explained Harvey's reference to the fact that QJWIN's mission had been "completed" by saying that once Lumumba was in the hands of the Congolese authorities "the reason for the mounting of the project ... had become moot" (O'Donnell), 9/11/75, p. 35). When asked if he and QJWIN were responsible for Lumumba's departure from UN custody and subsequent capture, (O'Donnell) said: "Absolutely not" (O'Donnell, 9/11/75, p. 35). Harvey did not recall the meaning of the memorandum, but he assumed that (O'Donnell)'s return from the Congo constituted the "completion" of QJWIN's mission (Harvey, affidavit, p. ).
+
+Despite the indication in the Inspector General's Report that
+QJWIN may have been recruited initially for an assassination mission
+and the suggestive language of the cables at the end of November,
+there is no clear evidence that QJWIN was actually involved in any
+assassination plan or attempt. The CIA officers who were involved
+in or knowledgeable of an assassination plot against Lumumba gave
+no testimony that tended to show that QJWIN was related to that plot.
+
+The Chief of Station had a "vague recollection" that QJWIN
+was in the Congo working for (Justin O'Donnell). (Hedgman, 8/21/75,
+p. 95.) But Hedgman did not recall why QJWIN was in the Congo.
+(Hedgman, 8/21/75, p. 95.) QJWIN was not a major operative of
+Hedgman's. (Hedgman, 8/21/75, p. 95.) Richard Bissell and Bronson
+Tweedy did not recall anything about QJWIN's mission in the Congo
+
+N.W. 50955 DocID:32202487 Page 70

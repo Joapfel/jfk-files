@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_21468.png
+
+Convert to MarkdownSECRET
+
+Richard Thomas Gibson
+
+The records of the Bureau of Special Services and the Bureau of Criminal Identification, New York City Police Department, were searched on May 31, 1965, and no record identifiable with Frances Kelly could be located.
+
+The files of the Credit Bureau of Greater New York were reviewed on May 19, 1965, and no record identifiable with Frances Kelly could be located.
+
+Concerning Richard Thomas Gibson, NY T-3, who has furnished reliable information in the past, has advised that Gibson was the former Acting Executive Secretary of the Fair Play for Cuba Committee. In September, 1962, Gibson left the United States and went to Algeria where he remained until April, 1963. The March 19, 1963 issue of "Monthly Review" identifies Gibson as the English Language Editor of "Revolution Africaine", a new weekly created by the Political Bureau of the Algerian Government.
+
+A characterization of the Fair Play for Cuba Committee is contained in the appendix hereto.
+
+SECRET
+
+3

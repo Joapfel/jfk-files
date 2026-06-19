@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_24144.png
+
+Convert to Markdown54. Stock Account #3
+
+A Delaware corporation with an address in Baltimore which purchases arms, ammunition, and police related equipment in a manner which cannot be traced to the United States Government; the company has no employees and is managed by Headquarters officials in alias.
+
+Cover Support
+WUDIRK Complex
+
+The below five entities located in New York comprise a Foreign Resources Division activity which provides commercial cover for certain personnel assigned to the New York Base of FR Division; no commercial activities are undertaken by the companies in the complex, and all revenue comes from Agency sources; two of the entities are in the process of dissolution, and two recently established entities will replace the ones in dissolution.
+
+55. WUBODKIN
+
+A New York corporation with offices in midtown Manhattan which is styled as a management consulting firm; the entity will be dissolved in the near future as soon as other cover facilities are available for the individuals presently covered by the entity; used by New York Base personnel for employment attribution and office space.
+
+56. WUCURULE
+
+A New York corporation with offices in mid-town Manhattan which is styled as a management consulting firm; the entity will be dissolved in the near future as soon as other cover facilities are available for the individuals presently covered by the entity; used by New York Base personnel for employment attribution and office space.
+
+57. WUXIPHOID
+
+A New York corporation with offices in mid-town Manhattan which is styled as a management consulting firm; the entity will continue to provide cover support to the New York Base; used by New York Base personnel for employment attribution and office space.
+
+NOV 6 1975
+CIA
+
+-10-

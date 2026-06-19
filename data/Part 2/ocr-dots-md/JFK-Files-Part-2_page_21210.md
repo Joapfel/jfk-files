@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_21210.png
+
+Convert to MarkdownTOP SECRET
+
+This suspicious behavior was somehow connected with [DAVID MARK] who had worked in Moscow and who was known as an active intelligence officer. KGB decided SHAKHOV must be an agent or contact of [MARKS]. In addition, SHAKHOV was close to one (S) [EPSTEIN] (possibly [WILLIAM EPSTEIN, Canadian] (S)) employed by the United Nations) who was suspected of connection with American, British, and Israeli Intelligence and was also at one time connected with Soviet Intelligence. Investigation of SHAKHOV had been initiated before 1962, possibly 1960 or 1961. After NOSENKO's 1962 report regarding coverage in Geneva, PETR IVANOVICH MASSYA was later sent to Geneva with a delegation and also checked SHAKHOV negatively.
+
+NOSENKO commented that, although the file was closed, any KGB officer who would be present at any conference attended by SHAKHOV would be told to keep an eye on him. Also SHAKHOV would never be trusted.
+
+~~168~~ TOP SECRET

@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_22118.png
+
+Convert to MarkdownCIA HAS NO OBJECTION TO
+DECLASSIFICATION AND/OR
+RELEASE OF THIS DOCUMENT
+AS SANITIZED
+
+11-4-94
+
+G)(B)
+
+PERSONS/ENTITIES:
+
+HARVEY ✓
+K. G. WIN
+
+DATES:
+
+Jan.26, 1961
+
+CATEGORIES:
+
+EXECUTIVE ACTION
+
+TOP SECRET
+
+OCCURRENCE:
+
+Harvey's handwritten notes entitled Project Zrriffle state "4. Operational Assets: (1) personnel: K.G. Win is under written contact as a principal agent, with the primary task of spotting agent candidates. K.G. Win was first contacted in 1958 to the Chief of the Luxembourgis by the chief of station, Luxembourg , in connection with illegal narcotics operation into the United States.- For a period of a year and a half he was contacted sporadically by COS, Luxembourg, in behalf of the Bureau of Narcotics. Files of this Bureau reflect an excellent performance by K. G. Win. In October 1960: K. G. Win annual salary $7,200 Hire of safe houses and other Travel and OBS expenses for K. G. Win and automobile expenses $1,000 other agents and agent candidates $2,000 Total $14,700 Fees for services by and standby of agents and agent candidates $2,000 Travel of staff employees engaged in Zrriffle $2,000 SOURCE:
+(Harvey Exhibit 1, pages 1 - 3)
+
+STAFF:
+
+DATE: Rhea
+6/30/75
+
+FILE: Harvey 6/27/75
+
+6/30/75

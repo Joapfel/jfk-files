@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_24719.png
+
+Convert to MarkdownEisenhower which was employed to preserve "plausible deniability" by the President of discussion of covert operations memorialized in Special Group Minutes (Gray, 7/9/75, p. 27; Parrott, 7/10/75, pp. 8-9).
+
+The four living participants at the meeting have all stated that they do not recall any discussion of or planning for the assassination of Lumumba (Merchant affidavit, 9/8/75, p. 1; Irwin affidavit, 9/22/75, pp. 1-2; Gray, 7/9/75, pp. 27, 32; Parrott, 7/10/75, pp. 25-26). Gray said that he did not consider the President's desire for "very straightforward action" to include "any thought in his mind of assassination" (Gray, 7/9/75, p. 32). Parrott testified to the same effect, maintaining that he would have recorded a discussion of assassination in explicit terms in the Special Group Minutes if such a discussion had taken place (Parrott, 7/10/75, pp. 26-27).
+
+John N. Irwin II acknowledged, however, that while he did not have "any direct recollection of the substance of that meeting", the reference in the minutes to the planning for "getting rid of Lumumba" was "broad enough to cover a discussion of assassination" (Irwin affidavit, 9/22/75, p. 2).
+
+Irwin's interpretation is shared by Douglas Dillon and Richard Bissell--two high government officials who were not participants at this Special Group meeting but who were involved in the planning and policymaking for covert operations in the Congo during this period.

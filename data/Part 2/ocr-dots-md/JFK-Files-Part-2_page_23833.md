@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_23833.png
+
+Convert to Markdown1. report to the oversight committee as well as such independent
+2. GAO audits as the committee shall direct. As part of its
+3. annual report to the oversight Committee" -- "As part of its
+4. report to the oversight Committee, the CIA shall report," and
+5. then the rest of the sentence, "all its intercessions on
+6. behalf of its proprietaries."
+
+7. Mr. Aaron. May I just make a quick editorial fix? "The
+8. Committee recommends the oversight Committee conduct an annual
+9. review of all proprietaries consisting of an internal CIA
+10. audit and report to the oversight Committee."
+
+11. Mr. Kirbow. No, the Committee cannot conduct a GAO
+12. audit. They can insist that that's part of the report that is
+13. presented to it.
+
+14. Mr. Aaron. That's it, consisting of a report to the over-
+15. sight Committee of an internal CIA audit, is that right?
+
+16. Mr. Kirbow. What you are trying to do is to require
+17. the CIA to reveiw it, to conduct a CIA audit, and to report
+18. fully all of the review entailed.
+
+19. Mr. diGenova. Not just the audit themselves. There are
+20. certain operational details you are going to want to know about
+21. also, not just financial security.
+
+22. Mr. Kirbow. Mr. Chairman, let us rewrite that one. We
+23. will include it.
+
+24. Senator Huddleston. Well, you see, you could combine
+25. 1 and 2 together, since we are just going to use one sentence,
+
+TOP SECRET
+
+HW 50955 DocId:32423513 Page 58

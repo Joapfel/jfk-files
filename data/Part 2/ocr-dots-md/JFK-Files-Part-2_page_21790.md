@@ -1,0 +1,82 @@
+# JFK-Files-Part-2_page_21790.png
+
+Convert to Markdown# TOP SECRET
+
+30
+
+1. Mr. Wides. There were some new people coming in?
+
+2. Mr. Sarno. Yes. Some of the people would move, they got a job that paid them more, but there were very few that came in after the original, say about 1964 I would say it was well established and very few dropped out or were taken aboard thereafter.
+
+3.
+4
+5
+6
+
+7. Mr. Wides. They all got what you referred to earlier as basic tradecraft training?
+
+8.
+
+9.
+
+10.
+
+11. Mr. Sarno. No, not all of them.
+
+Mr. Wides. How many?
+
+12.
+13.
+14.
+15.
+
+16.
+
+17.
+
+18.
+
+19.
+20.
+
+21.
+
+22.
+23.
+24.
+
+25.
+
+Mr. Sarno. There were very few of them in the original group. I never had them trained in basic tradecraft. The original group which I took over which, if I am not mistaken, was about eighteen of them, and I understand that prior to the Bay of Pigs -- 
+
+25
+
+Mr. Wides. Eighteen in ~~AMUTS~~ or eighteen in training?
+
+Mr. Sarno. Eighteen in ~~AMUTS~~ all told.
+
+21
+
+I understood that prior to the Bay of Pigs these ~~AMUTS~~ had been given basic tradecraft training. I never once sent them out to receive basic tradecraft training.
+
+23
+
+Mr. Wides. After you came -- when you came there were eighteen ~~AMUTS~~ and eventually we're talking about 150, roughly, or more?
+
+24.
+
+25.
+
+Mr. Sarno. Yes, sir.
+
+Mr. Wides. And you never knew of any of the people who
+
+TOD SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+HW 50955 DocId:32202440 Page 22

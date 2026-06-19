@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_20504.png
+
+Convert to MarkdownIn Reply, Please Refer to
+File No.
+
+UNED STATES DEPARTMENT OF JOTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Washington, D. C. 20535
+
+CONFIDENTIAL
+
+NOV 2 1971
+
+WOMEN'S NATIONAL ABORTION ACTION COALITION (WONAAC)
+SPONSORED DEMONSTRATION NOVEMBER 20, 1971
+WASHINGTON, D. C.
+
+On September 29, 1971, a source, who has furnished reliable information in the past, advised that WONAAC sent a letter to its supporters, which stated the following:
+
+"To: Women and women's organizations throughout the world
+
+"Dear Sisters,
+
+Throughout history few things have been more universal or known fewer national boundaries than the suffering of women from the denial of our right to control our own lives, our own bodies. Decades ago the suffragists of the United States took inspiration from their British sisters and went on to build part of the international movement through which women won the right to vote.
+
+"Today, in every corner of the earth, laws deny women the right to abortion, the right to decide whether or not to have children. Now a new generation of women has begun to stand up for our rights. The struggle for the right to abortion is rapidly crossing boundaries of nations and continents, of language and background. We have inspired one another and learned from one another.
+
+"In the United States women from many backgrounds are uniting in this fight. On November 20, we will march in massive numbers on Washington, D. C., and San Francisco, to demand the repeal of all anti-abortion laws, with no forced sterilization and the repeal of all restrictive
+
+CONFIDENTIAL
+
+GROUP I
+Excluded from automatic
+downgrading and
+declassification
+
+NW 88321 DocId:32989546 Page 9

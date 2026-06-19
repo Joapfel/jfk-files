@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_24214.png
+
+Convert to Markdownand Services of the CIA, was presented in court. In the affidavit Mr. Brownman delineated the relationship between CIA and SAT and the authorities for purchasing and later selling the capital stock of SAT. He also defined the employment status of the plaintiffs as not being government employees and not being CIA employees and therefore not being eligible for participation in the CIA Retirement and Disability System.
+
+In the Order Granting Motion for Summary Judgment, the court found that the sale of SAT capital stock to Mr. Williams was not in violation of law; the plaintiffs claim to be U.S. Government employees and entitled to CIA retirement benefits invalid; and that the SAT employees were not deprived of any civil right under any state law. As a result, the action was dismissed with prejudice as to the plaintiff. Although this suit did cause the relationship between the Agency and SAT to be officially made public, it did establish, in a court of law, two points favorable to the Agency:
+
+a. The sale of SAT to Stanley Williams violated no laws and was within the authority of the DCI; and
+
+b. The directly hired employees of CIA-owned proprietary firms such as SAT do not necessarily enjoy the status of U.S. Government employees.
+
+## CONFLICT OF INTEREST
+
+In the SAT divestiture, the Agency took precautions to avoid conflict of interest. Mr. George A. Doole, Jr., retired Staff Agent and retired Managing Director of Air America, Inc., made
+
+M/W 50955 DocId:32423532 Page 108

@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_23536.png
+
+Convert to MarkdownSECRET
+
+- 5 -
+
+We should assist these parties -- financially and technically -- to develop progressive political movements (in some cases revolutionary movements, especially in the less progressive countries) through helping them in techniques of organization down to the village level, ideological warfare, etc.
+
+U. S. government help should be divert.
+
+**Second,** the Alianza para el progreso. This program with its emphasis on social and economic advance is the real hope of preventing a communist takeover. The Alianza is proceeding about as rapidly as possible given present organization of effort, and the magnitude of available funds. Both of these elements are unsatisfactory.
+
+A. Funds: Present plans provide for the allocation of 250-350 million dollars worth of economic assistance to Latin America in fiscal 1962. This is out of a total of 2.4 billion. (This sum does not include the social development fund). One hundred million of this will go to Brazil to get them over their current financial crisis. I am not clear that any substantial allocation could be made given the enormous needs in Asia (especially in India and Pakistan) -- although I believe there can be some increase. However, those funds are probably not sufficient to make a real and effective start in economic development.
+
+B. Organization: If communist takeover comes in Latin America it probably will not come through guerrilla warfare, but through the capture of
+
+SECRET
+
+HW 50955 DocId:32423505 Page 14.

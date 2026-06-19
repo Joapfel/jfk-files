@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_24085.png
+
+Convert to Markdownassassination to have been authorized. Although those officials were remiss in not seeking express authorization for their activities, their superiors were also at fault for giving vague instructions and for not explicitly ruling out assassination. No written order prohibiting assassination was issued until 1972, and that order was an internal CIA directive issued by Director Helms.
+
+## Schneider
+
+As explained above, there is no evidence that assassination was ever proposed as a method of carrying out the Presidential order to prevent Allende from assuming office. The Committee believes, however, that the granting of carte blanche authority to the CIA by the Executive in this case may have contributed to the tragic and unintended death of General Schneider. This was also partially due to impositing an impractical task to be accomplished within an unreasonably short time. Apart from the question of whether any intervention was justified under the circumstances of this case, the committee believes that the Executive in any event should have defined the limits of permissible action.
+
+## Lumumba
+
+We are unable to make a finding that President Eisenhower intentionally authorized an assassination effort against Lumumba because of the lack of absolute certainty in the evidence. However, it appears that the

@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_20578.png
+
+Convert to MarkdownSF 157-0
+JAC:sl
+
+Source stated that letter on 11/13/71, an individual by the name of HAGANAM (LNU) also contacted ERICKA HUGGINS at BPP National Headquarters regarding this same matter and also wanted to know if the BPP had decided to endorse the 11/20/71 demonstration by the Women's National Abortion Coalition. HUGGINS said she did not know what position the Party would take in this regard.
+
+Source also advised that subsequently HUGGINS was in contact with LESLIE JOHNSON, secretary to BPP Chairman BOEBY SEALE, wanted to know if JOHNSON had as yet been able to talk to Chairman about her possible appearance in Washington. JOHNSON told HUGGINS that she has been unable to do so inasmuch as SEALE was on a speaking tour in North Carolina, but she promised to discuss the matter with SEALE when she next hears from him.
+
+No additional information has been received from source with respect to this matter to indicate a positive commitment for an appearance by HUGGINS as indicated.
+
+Washington Field identify the captioned group and contact sources regarding the noted demonstration scheduled for Washington and furnish appropriate information to the bureau and logical law enforcement agencies.
+
+San Francisco will advise of any information developed indicating possible travel to Washington by ERICKA HUGGINS or any other BPP personality for this demonstration.

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_22558.png
+
+Convert to MarkdownThe contact list is set out as follows:
+
+**CIA Covert Source** - Long-time SRS consultant whom Mr. Wiley met through Mr. McCord. CIA Covert Sources has furnished an entree for Mr. Wiley to several individuals whom he otherwise could not have seen.
+
+**CIA Covert Source** - Former OSS agent and a current SRS source whom Mr. Wiley also met through Mr. McCord.
+
+**CIA Covert Source** - During World War II he worked under CIA Covert Source and in recent years Source has performed specific assignments for this office. Introduced by Mr. McCord to Mr. Wiley, CIA Covert knows Wiley as a fellow journalist.
+
+Source
+
+**Donald Sweaney** - Mr. Wiley became aware of our use of him when Mr. Wiley's articles on Communism were published in the organ of the American Legion.
+
+**Donald Ingles** - Another cousin of Mr. Wiley.
+
+**Lee Pennington** - Mr. McCord used Mr. Pennington as a confidential source when the latter was a member of the Americanism Committee of the American Legion. In turn, Mr. Pennington acted as liaison for Mr. McCord in funding Mr. Wiley.
+
+**CIA Covert Source** - These SRS sources used on occasion were introduced to Mr. Wiley in connection with a particular assignment of his.
+
+**CIA Covert Source** - Mr. Wiley met this source of Mr. McCord's in connection with his debriefing on his (Wiley's) Cuban "sojourn."
+
+**William Gardiner** - A long time friend of Mr. Wiley whose hobby is photography, and Mr. Wiley uses him in this capacity as the need arises.
+
+**George Hoyle** - A long time friend and Mr. Wiley's insurance agent."
+
+SEP 30 1975
+
+SECRET!

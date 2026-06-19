@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_22775.png
+
+Convert to MarkdownHW
+
+410 First Street, S.E., Washington, D.C. 20003
+
+# TOP SECRET
+
+65
+
+ areas where you have sabotage, you have explosions you can't identify, et cetera.
+
+Now the illegal directorate represents a very major part of Soviet intelligence and bloc intelligence and we just -- there are not successes. It's just happenstance.
+
+Mr. Epstein. It's disruption of our defense effort? Is that what you're speaking of now? Their goal being disruption of this country's defense effort?
+
+Mr. Angleton. Well, they have many assignments. But the point is they have also the sabotage-assassination part, which is totally apart from the body politic of the KGB, and it raises questions in everybody's mind when there is sabotage and all other kinds of activities and you cannot find the culprits.
+
+One defector stated that he believed that the computer fire they had in the Pentagon several years ago was KGB. He was KGB. But he stated in effect that he thought that was one of their operations.
+
+Scotty?
+
+Mr. Hiler. The major threat to the U.S., I think, is based on the fact, as we referred to earlier, as this should affect counter-intelligence, the national counter-intelligence effort, is to have your national counter-intelligence focused on the fact that the Soviets and the Soviet blocs, since May of 1959 have rededicated themselves to the principles of
+
+# TOP SECRET
+
+76503115:5
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+HW 08993 DocId:32425594 Page 69

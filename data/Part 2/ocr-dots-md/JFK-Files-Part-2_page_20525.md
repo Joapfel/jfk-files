@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_20525.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+Washington, D.C. 20535
+
+CONFIDENTIAL
+
+In Reply, Please Refer to
+
+November 12, 1971
+
+File No.
+
+WOMAN'S NATIONAL ABORTION ACTION COALITION
+
+On November 10, 1971, Inspector Robert E. Krahling, United States Capitol Police, advised that a letter had been received by his office, which contained the following message composed of words of assorted size clipped from newspapers and/or magazines... The message read:
+
+WOMAN'S ABORTION: designated pursuant to
+bomb Nov 20 3 27
+
+At the bottom of the letter was affixed a label from a can of Bumble Bee Brand Fancy White Meat Tuna Fish.
+
+It is noted that November 20, 1971, is the date of a publicly announced march and rally by the Woman's National Abortion Action Coalition culminating in a rally at 2:00 p.m., on the west steps of the United States Capitol. In a Washington Post Daily Newspaper article of October 15, 1971, Dr. Barbara Roberts, National Project Director of the coalition stated that the march would attack abortion laws which degraded, mutilated and murdered women. She stated the coalition was comprised of about 30 women's groups which would demonstrate against the forced sterilization and restrictive contraception laws and also plan to hold national abortion hearings in Washington, D.C., before the march. Roberts estimated between 10,000 and 20,000 women would engage in this march and rally.
+
+On October 15, 1971, a source who has furnished reliable information in the past advised that the November 20, 1971, WONAC March is largely the creator of the Young Socialist Alliance (YSA) Socialist Workers Party (SWP) and as such has not received the endorsement of more radical,
+
+CONFIDENTIAL
+
+GROUP 1
+
+Excluded from automatic downgrading and declassification
+
+NW 88321 DocId:32989546 Page 30

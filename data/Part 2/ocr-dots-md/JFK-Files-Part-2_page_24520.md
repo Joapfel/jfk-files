@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_24520.png
+
+Convert to Markdown2. Lansdale's Theory and Objective for Mongoose
+
+In the fall of 1961, Lansdale had been asked by President Kennedy to examine the Administration's Cuba policy and to make recommen- dations. Lansdale testified that, in reporting his recommendations to President Kennedy, he emphasized that "Castro ... had aroused con- siderable affection for himself personally with the Cuban population...." (Lansdale, p. 4), and that the U.S. "should take a very different course" from the "harassment" operations that had been directed against Castro up to that time. (Lansdale, p. 3). These prior U.S. operations were conceived and led by Americans, Lansdale informed the President. (Lans- dale, p. 5). In contrast, Lansdale proposed that the U.S. work with all exiles, particularly professionals who had opposed Batista and then became disillusioned by Castro. (Lansdale, pp. 4, 10-11). Lansdale's ultimate objective was to have "the people themselves overthrow the Castro regime rather than U.S. engineered efforts from outside Cuba." (Lansdale, p. 41).
+
+Hence, after his appointment as Chief of Operations, Lansdale's concept for the MONGOOSE project emphasized as a first step the develop- ment of leadership elements, and "a very necessary political basis" among the Cubans opposed to Castro, before any large actions began. (Lansdale, p. 11). At the same time, Lansdale sought to develop "means to infiltrate Cuba successfully" and to organize "cells and activities inside Cuba ... who could work secretly and safely." (Lansdale, p. 11).
+
+Lansdale's plan was designed so as not to "arouse premature actions, not to bring great reprisals on the people, and abort any eventual success." (Lansdale, p. 11).
+
+*/ As Lansdale described his "concept of operation" for Mongoose in a memorandum to the President on January 18, 1962, it was to "help the Cubans from within Cuba" to overthrow the Castro regime through a "revolt of the Cuban people." (Lansdale Ex. 3, p. 2).

@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_21201.png
+
+Convert to MarkdownTOP SECRET
+
+**COMMENT:**
+
+This has not been clarified but as indicated above, NOSENKO stated that VOLKOV and YEFREMOV may have had contacts with Americans without advising him. On July 27, 1968, (N-212), [ZUBON'S] name was included in a list displayed to NOSENKO. He failed to recognize it.
+
+4. MARINA RYTOVA [U]
+
+On page 268 it is stated that NOSENKO claims that he was officially registered as the case officer of MARINA RYTOVA until his defection in 1964 although she had obtained a job at the Communist Party Central Committee school and had ceased all agent work.
+
+**COMMENT:** On September 2, 1968, (N-218), NOSENKO stated that although RYTOVA was no longer being used, her file had not been retired and he was still considered the case officer until his defection.
+
+TOP SECRET

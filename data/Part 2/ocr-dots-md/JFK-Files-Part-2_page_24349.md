@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_24349.png
+
+Convert to MarkdownEQUITY SALES TO DATE
+
+| Quantity through 1973 | No. of Shares | Date of Purchase | Date of Sale | Purchase Price | Sales Price | Gain or (Loss) on Sale |
+|---|---|---|---|---|---|---|
+| Comedia | 5,610 | 8/72 | 7/74 | 37-1/2 | 5-7/8 | $786,051.77 |
+| Ocean Shield Devel. Co. | 7,500 | 4/74 | 10/74 | 1/4 | 13/16 | (176,996.04) |
+| Metals |  |  |  |  |  | 4,200.00 |
+|  |  |  |  |  |  | $613,255.73 |
+
+RECEIVED FROM
+NOV 10 1975
+CIA

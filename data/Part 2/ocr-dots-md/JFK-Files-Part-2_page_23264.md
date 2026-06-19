@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_23264.png
+
+Convert to MarkdownTOP SECRET
+
+Mr. Baron. -- example of free wheeling by an operative?
+
+Mr. Tweedy. It is the sort of thing that can happen.
+
+What you want to do is put a stop to it. But no great problem.
+The problem must have lasted 30 minutes.
+
+Mr. Baron. Have you ever discussed events in the Congo
+with Sidney Gottlieb?
+
+Mr. Tweedy. Have I ever discussed events in the
+Congo with [illegible] Sidney Gottlieb?
+
+I can only assume I must have seen Sid during this
+period, during this period, but I don't recall any discussions.
+In fact, if there had been any discussions with Sidney-Gott-
+lieb on the Congo it would have been at that time.
+
+Mr. Baron. Why would that be so?
+
+Mr. Tweedy. Otherwise Sidney Gottlieb would have had
+no interest in the Congo.
+
+Mr. Baron. So you mean if there had been any dis-
+cussions between yourself and Sidney Gottlieb it probably
+would have--
+
+Mr. Tweedy. It would have surrounded these events.
+
+Mr. Baron. The development of lethal biological sub-
+stances in his laboratory?
+
+Mr. Tweedy. Yes, sir. Not necessarily that, because
+I think that would have been Sidney Gottlieb's business as to
+what he developed in his laboratory. My only interest pre-
+sumably would have been was there anything in his inventory
+
+TOP SECRET

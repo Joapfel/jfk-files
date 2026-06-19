@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_22640.png
+
+Convert to MarkdownHW 50955 DocId:32423393 Page 46
+
+TOP SECRET
+
+I left there -- and I think this is a very important point --
+first, I will have to explain we went to the restaurant, he
+invited us to the restaurant, he was insistent on it. And we
+went there. And here in the restaurant the entire discussion
+was a recapitulation by him, in a restaurant that was fairly
+full of people. Hersh was a person who had requested a secret
+meeting in Wells' house, and then proceeded in a restaurant to
+regurgitate this entire matter.
+
+Senator Tower. Which restaurant was it?
+
+Mr. Angleton. It was the Sea Catch.
+
+Senator Baker. Did you ever have any impression that
+it might be recorded, is that what you are driving at?
+
+Mr. Angleton. I don't know. The thought crossed my
+mind. I looked at him, and he sort of -- he could hide a lot
+of things.
+
+And so we got back to Wells' house. And it was very
+late. And he tried to get me to come back to his place. And
+I told him I just wouldn't do it. And that is how the thing
+broke up.
+
+Mr. Kirbow. Mr. Angleton, in your long relationship and
+position with the Agency, did you ever express your concern to
+anyone out there that you thought this might have been a
+setup by a foreign source, or from internally?
+
+Mr. Angleton. What might be a setup?
+
+Mr. Kirbow. That this whole Szulc interview, story and
+
+TOP SECRET
+
+7600011413
+WARD & PAUL
+410 First Street, S.E., Washington, D.C. 20003

@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_21894.png
+
+Convert to Markdown(v) (O'Donnell) Planned to "Neutralize" Lumumba by Turning Him Over to Congolese Authorities and Requested the Assignment of Agent OJWIN to Leopoldville as His Alter Ego
+
+After (Justin O'Donnell) arrived in the Congo, he formulated a plan for "neutralizing" Lumumba by drawing him away from the custody of the UN force which was guarding his residence:
+
+(O'Donnell): [W]hat I wanted to do was to get him out, to trick him out, if I could, and then turn him over ... to the legal authorities and let him stand trial. Because he had atrocity attributed to him for which he could very well stand trial.
+
+Q: And for which he could very well have received capital punishment?
+
+(O'Donnell): Yes. And I am not opposed to capital punishment. (O'Donnell), 9/11/75, pp. 20-21.)
+
+To implement his plan, (O'Donnell) made arrangements to rent "an observation post over the palace in which Lumumba was safely ensconced"
+
+* According to an earlier report from the (Chief of) Station, it was the view of the Special Representative of the Secretary General of the United Nations that arrest by Congolese authorities was "JUST A TRICK TO ASSASSINATE LUMUMBA" (CIA Cable Leop of) Station to Director, 10/11/60). The (Chief of) Station proceeded to recommend Lumumba's arrest in the same cable:
+
+STATION HAS CONSISTENTLY URGED [CONGOLESE] LEADERS ARREST LUMUMBA IN BELIEF LUMUMBA WILL CONTINUE BE THREAT TO STABILITY CONGO UNTIL REMOVED FROM SCENE (CIA Cable, 10/11/60).

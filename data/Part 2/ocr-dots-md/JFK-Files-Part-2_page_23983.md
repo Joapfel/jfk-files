@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_23983.png
+
+Convert to MarkdownII activities in Chile were undertaken in response to President Nixon's September 15 order and were directed towards actively promoting and encouraging the Chilean military to move against Allende. In his testimony before the Committee, Kissinger stressed the links between Tracks I and II:
+
+> ...There was work by all of the agencies to try to prevent Allende from being seated, and there was work by all of the agencies on the so-called Track I to encourage the military to move against Allende ...the difference between the September 15th meeting and what was being done in general within the government was that President Nixon was encouraging a more direct role for the CIA in actually organizing such a coup. (Kissinger testimony, p. 13)
+
+Tracks I and II did, in fact, move together in the month after September 15. The authorization to Ambassador Korry, who was formally excluded from Track II, to encourage a military coup became broader and broader. In the 40 Committee meeting on September 14, he and other "appropriate members of the Embassy Mission" were authorized to intensify their contacts with Chilean military officers to assess their willingness to support the "Frei gambit"—a voluntary turn-over of power to the military by Frei, who would then have been eligible to run for President in new elections. (Memorandum/Policy Decisions Related to Our Covert Action Involvement in the September 1970 Chilean Presidential Election, 9 October 1970)
+
+In a situation report to Dr. Kissinger and Assistant Secretary Charles Meyer on September 21, Ambassador Korry indicated that in order to make the Frei gambit work, "if necessary, General Schneider would
+
+DocId:32423525 Page 86

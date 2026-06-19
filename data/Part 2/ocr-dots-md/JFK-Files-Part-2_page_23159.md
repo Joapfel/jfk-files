@@ -1,0 +1,73 @@
+# JFK-Files-Part-2_page_23159.png
+
+Convert to Markdown# TOP SECRET
+
+compromised by coming into a camp next to where some exiled Cubans were already working.
+
+Mr. Johnston. And did he -- let me back up. First, have you participated in the Agency's response to the Committee's written inquiry about this?
+
+Mr. Halley. Well, to this extent, somebody in the Agency called me and said the Committee had a request in for some data on a Customs officer. Nobody could remember his name, I happened to remember his name. I said Caesar DeZatado was the guy's name. I don't remember how to spell it. Phonetically I think it is as follows, and try to find a file on it. And so to that extent, yes, I am aware that there was some sort of a response being prepared. I did not see the response. I don't know what it says.
+
+Mr. Johnston. Do you know whether he was asked either by you or by anybody in WAVE to contact Cuban exiles after the assassination to see what knowledge they might have?
+
+Mr. Halley. Well, let me try to clarify that. I was not his contact point. In other words, I was a manager of a large operation.
+
+Mr. Johnston. I understand that. So did anybody under your control contact him?
+
+Mr. Halley. His point of contact was in Key West. Periodically he would either come to Miami or meet with one of our people, and once every three months or something like that.
+
+TOP SECRET
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+26
+
+NWI: 05510 DocID: 32423435

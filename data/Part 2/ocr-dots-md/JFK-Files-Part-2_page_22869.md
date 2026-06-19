@@ -1,0 +1,70 @@
+# JFK-Files-Part-2_page_22869.png
+
+Convert to Markdown1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+TOP SECRET
+
+TOP SECRET
+
+NAN 0909
+DocID: 52425006 Page 87
+
+7 5 0 0 0 6 13 0 5 2 6
+
+WARD & PAUL
+
+A10 First Street, S.E., Washington, D.C. 20003
+
+cb 30
+
+Phone (Area 202) 544-6000
+
+Mr. Bundy. As far as I recollect.
+
+Mr. Smothers. And by your documents, I mean documents signed by you?
+
+Mr. Bundy. They wouldn't be all signed by me, not every NSMA was signed by me. But they would all be documents for which I had responsibility.
+
+Mr. Smothers. And the timeframe was--
+
+Mr. Bundy. Sufficiently before and after to give me a picture of the political context of August 1962 in relation to Cuba.
+
+Mr. Smothers. And do you recall when you saw this file?
+
+Mr. Bundy. Well, as I say, it was in the context of my appearance before the Rockeferrer Commission. And that would be early this year. I don't have the dates, and I don't want to make a mistake on it.
+
+Mr. Smothers. I am not trying to pin the date down. It would be helpful if you remember. But we can ask.
+
+Mr. Schwarz.
+
+Mr. Schwarz. I want to make sure that we have what we have done so for accurately summarized, and that you agree with it.
+
+Can I use discussion of an assassination, will you accept that?
+
+Mr. Bundy. It implies more seriousness and more sustained argument than I recollect.
+
+TOP SECRET

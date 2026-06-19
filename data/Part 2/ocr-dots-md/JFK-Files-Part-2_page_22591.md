@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_22591.png
+
+Convert to MarkdownSECRET
+
+A memorandum, dated 13 January 1971 captioned "Charles Wiley" states: "Says CIA Covert Agent has stated that he now wants to leave in some material (Mexico) that earlier McCord suggested not be included." (Apparently material for book CIA Cover was writing with Wiley's assistance.)
+
+A memorandum, dated 5 February 1971, captioned "Charles Wiley (records problem Wiley reported having with CIA Covert Agent states: "Wiley thinks that perhaps Jim McCord could reason with him if matters don't improve. says McCord isn't with us any more, but Wiley says still has high regard for McCord and might listen. Wiley believes he, Wiley, may be able to settle the problem, but if not, thinks we ought to have McCord talk to "
+
+A similar memorandum, dated 9 February 1971, further outlines Wiley's problem with CIA Cover Agent and states: "Wiley suggested it's time to see what McCord can do with If we bring McCord back in, he ought to discuss the case with Wiley before he has contact with CIA Covert Agent
+
+Another memorandum, dated 12 February 1971 reflects: called McCord. Details of discussion unknown; however, gather that Jim impressed with fact that any mention of the company or personnel by in his book would be at least potentially damaging to activities that are of interest currently."
+
+In a memorandum, dated 19 February 1971, it is reflected that Vasaly "had brief telephone conversation with Wiley this p.m. He understood from CIA Covert Agent that had conversed with Jim McCord recently but did not know the essence of the conversation nor any future plans for contact between them. Advised Wiley that it was our understanding that McCord had again emphasized the need for to leave his Agency contact and any identification of Agency people out of the book's chapter on his 'Mexican Phase' and that apparently CIA had agreed." Covert Agent
+
+In a memorandum, dated 23 February 1971, captioned "Charles Wiley," the problem with reportedly continues: said McCord had in effect okayed what wanted to include in his chapter on Mexican Operations"... . 
+
+SEP 10 1975
+
+CIA.
+
+SECRET
+
+HW 50955 DocId:32203889 Page 99

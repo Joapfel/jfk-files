@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_20668.png
+
+Convert to MarkdownENCLOSURE
+
+NEW LETTER TO CSG.
+LEAFLET 932D
+EAGLES, CHG. 3 and 4
+
+APPROVED:
+DATE FORW: 2/29/72
+NOW FORW: R/S/
+BY: SSC Chan
+
+N/W 88321 Doc Id: 32989546 Page 372

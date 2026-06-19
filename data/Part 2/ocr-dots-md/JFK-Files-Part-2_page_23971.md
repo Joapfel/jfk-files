@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_23971.png
+
+Convert to MarkdownIn practice, this meant that the CIA was to keep the President's Assis-
+tant for National Security Affairs, Henry Kissinger, informed of its
+activities.
+
+Between October 5 and October 20, 1970, the CIA made 21 contacts with key military and Carabinero (police) officials in Chile. Those Chileans who were inclined to stage a coup were given assurances of strong support at the highest levels of the U.S. Government, both before and after a coup.
+
+One of the major obstacles faced by all the military conspirators in Chile was the strong opposition to a coup by the Commander-in-Chief of the Army, General Rene Schneider, who insisted the constitutional process be followed. As a result of his strong constitutional stand, the removal of General Schneider became a necessary ingredient in the coup plans of all the Chilean conspirators. Unable to have General Schneider retired or reassigned, the conspirators decided to kidnap him. An unsuccessful abduction attempt was made on October 19, 1970, by a group of Chilean military officers whom the CIA was actively supporting. A second kidnap attempt was made the following day, again unsuccessfully. In the early morning hours of October 22, 1970, machine guns and ammunition were passed by the CIA to the group that had failed on October 19. That same day General Schneider was mortally wounded in an attempted kidnap on his way to work. The attempted kidnap and the shooting was apparently conducted by conspirators other than those to whom the CIA had provided weapons earlier in the day.

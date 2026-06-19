@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_22012.png
+
+Convert to Markdown# TOP SECRET
+
+FILE:
+
+-- Prepared a daily briefing for the White House on Cuban intelligence.
+
+-- Preparing review of books such as "The Invisible Government" and damage reports (i.e., reports setting forth what sensitive information exposed by book).
+
+P.D. stressed that he was "out of touch with the day-to-day operations of Task Force W". However, he believes that Harvey kept Helms fully briefed.
+
+Harvey, in P.D.'s own words, was "not an ordinary man", . . . "egocentric", "bombastic", "one of the strongest proponents of compartmentalization and need to know". In addition, Harvey had a law degree and a successful FBI stint prior to joining the Agency.
+
+Harvey had a thyroid problem. As one of the "CIA's most interesting characters", Harvey was often talked about; P.D. has difficulty separating personal experience from rumors. Describing Harvey as a "four martini man at lunch" . . . which, coupled with Harvey's thyroid medicine, caused Harvey to be sleepy, etc., after lunch. In fact, P.D. told us that this was the "last straw" in McCone's eyes; i.e., apparently when McCone called Harvey into to "discuss" the Kennedys' complaints about Harvey's utterings, it was immediately after lunch and Harvey either fell asleep or failed to pay attention. ("McCone did not have an audience.") P.D. added that there was general "bad chemistry" between McCone and Harvey.
+
+P.D. noted Harvey's intense loyalty to "his people" (including Helms and Harvey). However, P.D. is sure that even with these people, Harvey was likely to have been extremely close-mouthed.

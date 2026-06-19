@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_20551.png
+
+Convert to MarkdownFBI
+
+Date: 11/25/71
+
+(Type in plain text or code)
+
+TO : DIRECTOR, FBI
+
+FROM: G.W. SNYDER, BOSTON (100-43509) (P)
+
+SUBJECT: WOMEN'S NATIONAL ABORTION ACTION COALITION (NONAC), SPONSORED DEMONSTRATION, 11/20/71, WASHINGTON, D. C., AND SAN FRANCISCO, CALIFORNIA IS - NEW LEFT
+
+Re Boston letter to Philadelphia, 9/30/71 (10), captioned "JUDITH KLEINBERG, SM - SWF" and San Francisco airtel and LHM, 11/12/71 (no copy Philadelphia).
+
+Enclosed for San Francisco is a copy of Boston summary report concerning former Boston subject JUDITH KLEINBERG who it is believed is identical with the JUDY KLEINBERG mentioned in re airtel and LHM.
+
+4 - Bureau (SM)
+(2 - 100-468540) (JUDITH KLEINBERG)
+
+2 - Philadelphia (RM)
+(JUDITH KLEINBERG)
+
+4 - San Francisco (Inc. 1) (RM)
+(2 - 100-71464)
+(2 - JUDY KLEINBERG)
+
+4 - Boston (2 - 100-43509)
+(2 - 100-43175) (JUDITH KLEINBERG)
+
+AVS:mej... 22 NOV 22 1971
+(14)
+
+Approved:
+
+Sent: M Per:
+
+Special Agent V. Garvey
+
+NW 88321 DocId:32989546 Page 56

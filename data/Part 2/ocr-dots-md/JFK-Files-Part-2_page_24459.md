@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_24459.png
+
+Convert to Markdownthe existence of the assassination plots. Helms was Harvey's
+immediate superior and the person to whom he reported about
+the Castro plot activities.
+
+Harvey testified that in the spring of
+1962, when he was preparing to contact Roselli, he briefed
+Helms on the assassination plot. (Harvey, 6/25/75, p. 65)
+
+Harvey said:
+
+. . . I briefed Helms generally on the take-
+over of Roselli, on the doubts about the
+operation, on the possible . . . future of
+it, and to the extent it had then been possible,
+the assessment of Roselli and the cutting out
+of various individuals.*
+
+Harvey testified that when he briefed Helms on the assassina-
+tion plot operation, they decided that it would not be appro-
+priate at that point to brief John McCone.
+
+There was a fairly detailed discussion be-
+tween myself and Helms as to whether or not
+the Director should at that time be briefed
+concerning this. For a variety of reasons
+
+*Harvey testified that when he took over the Roselli opera-
+tion, he had "cut out" both Maheu and Giancana because "regard-
+less of what I may have thought of their trustworthiness, . . .
+they were surplus" to the operation. (Harvey, 6/25/75, p. 65)

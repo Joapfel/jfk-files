@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_19291.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DEMONSTRATION PROTESTING U.S.
+POLICY IN VIETNAM, WASHINGTON, D.C.,
+JANUARY 15, 1968
+
+chairman included Clara Auerbach.
+
+CONFIDENTIAL
+
+2
+
+NW 88321 DocId:32989544 Page 172

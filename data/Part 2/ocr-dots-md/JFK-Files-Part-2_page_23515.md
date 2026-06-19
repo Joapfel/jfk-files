@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_23515.png
+
+Convert to Markdowncontrol over this entire effort, it was determined that Division D, which is in closest touch with NSA on procurement requirements, could best conduct the activity. The spotting activity has now advanced far enough to justify removing from the OOA category.
+
+4. Operational Assets :
+
+(1) Personnel: QJWIN is under written contract as a principal agent, with the primary task of spotting agent candidates. QJWIN was first contacted in 1958 through the Chief of the Luxembourg I.S. by the Chief of Station, Luxembourg, in connection with an illegal narcotics operation into the United States. For a period of a year and a half he was contacted sporadically by COS, Luxembourg, in behalf of the Bureau of Narcotics. Files of this Bureau reflect an excellent performance by QJWIN. In October 1960,
+
+SECRET
+
+RECEIVED FROM
+JUN 24 1975
+CIA
+
+HW 50955 DocId:32423497 Page 14

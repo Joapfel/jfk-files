@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_23781.png
+
+Convert to Markdown1
+
+## PROCEEDINGS
+
+2. Senator Huddleston. I call the Committee to order.
+
+3. Mr. Aaron. I believe Bill Bader had the temerity to summarize where we stand.
+
+4.
+
+5. Mr. Bader. Mr. Chairman, where I think we are at the moment is taking the three major issues before the Subcommittee in the order they were presented, and discussed this morning, the first being the academic issue, and as I heard the Subcommittee this morning, then I will have another go at the options, give enough options in the option paper and bring it back before the Committee for a further look before we go on.
+
+6.
+7.
+8.
+9.
+10
+11
+
+12. Senator Huddleston. By Friday.
+
+13. Mr. Bader. By Friday, without question.
+
+14. I think by this time we will all have -- we will try to include a positive option, that is to say, to approve if not applaud the expanded efforts of FRD to undertake these activities, or at least to endorse them.
+
+15.
+16.
+17
+
+18. Now, going to the second was the covert use of books and publishing houses. We discussed two recommendations: one which I believe here the Committee has agreed to, and that is a prohibition on the distribution or subsidy of any books, magazines or other publications not attributed to the CIA inside the United States.
+
+19.
+20.
+21.
+22
+23
+
+24. Senator Huddleston. I think we can all accept that, can't we.
+
+25. we.

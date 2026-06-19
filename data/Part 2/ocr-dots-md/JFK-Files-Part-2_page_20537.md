@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_20537.png
+
+Convert to MarkdownMemorandum to Mr. E. S. Miller
+
+RE: DEMONSTRATIONS, WASHINGTON, D. C., AND SAN FRANCISCO, CALIFORNIA, NOVEMBER 20, 1971, SPONSORED BY THE WOMEN'S NATIONAL ABORTION ACTION COALITION.
+
+Speakers will include Billy Jean King, a professional tennis player, Dr. Barbara Roberts, a doctor at the National Institute of Health and a national director of the Coalition, and Linda Jenness, the 1972 SWP Presidential candidate. Though not confirmed, Congresswomen Bella Abzug and Shirley Chisholm are reported to be invited as speakers.
+
+We have included all pertinent information concerning this march in our summary teletype to The White House, the Vice President, Secret Service, the Attorney General, and military intelligence agencies.
+
+There have been no traffic restrictions placed in effect by the Metropolitan Police Department to date. However, this would be a later consideration as the date of the march approaches.
+
+It appears that the route of march will definitely affect traffic on Saturday morning.
+
+ACTION:
+
+None. For information.

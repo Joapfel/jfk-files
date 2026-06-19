@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_20000.png
+
+Convert to Markdown"10,000 women have set back and let theirSELVE be killed in Vietnam. If we had 10,000 women willing to go to jail, if necessary, we could stop the war. You cannot have wars without women."
+
+Jeannette Rankin made the above statement in May of this year, when the country was told that 10,000 American boys had died in Vietnam. Fifty years ago as the first woman elected to Congress in the United States she said, "I want to stand by my country but I cannot vote for war."
+
+Miss Rankin was a militant fighter for women's suffrage, and has been a vehement and consistent voice against war. Still a strong feminist, Miss Rankin is now building a self supporting women's cooperative homestead in Georgia. At 86 she is as courageous and vigorous as ever, holding staunchly to her beliefs that war is immoral. This May, after her statement against the war in Vietnam, Miss Rankin was deluged with letters from women across the nation who applauded her position. Miss Rankin was enthusiastic when asked to transform her words into a demonstrative effort, and thus the Jeannette Rankin Brigade was born. We are seeking the sponsorship of women of stature and prestige who represent the many facets of our national life. This accomplished we feel sure that thousands of women who have never been moved to action will find their place with the Brigade. This will be a single effort, and will be joined by women individually, and through organizational affiliations, we are trying to provide the framework in which
+
+-2-
+
+CONFIDENTIAL
+
+NW 88321 DocID:32989545 Page 284

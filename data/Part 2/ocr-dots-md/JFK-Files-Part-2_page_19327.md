@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_19327.png
+
+Convert to MarkdownSF 100-59802
+
+GOW/jr
+
+Fourth Source SF 2955-S
+Fifth Source SF 2585-S
+Sixth Source CSSF 2960-S
+
+LHM is classified confidential inasmuch as it contains data which could reasonably result in the identification of confidential informants of continuing value and compromise future effectiveness thereof.
+
+San Francisco will continue to follow and report any pertinent information received concerning this matter.

@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_21246.png
+
+Convert to MarkdownTOP SECRET
+
+for this agent was PAVEL FEDEROVICH PANKRATOV who introduced
+the agent to NOSENKO because NOSENKO was considering the
+possibility of using her against correspondent [KENNETH
+BRODNEY]. He and PANKRATOV had a short meeting with her on
+the street and NOSENKO was introduced to her by PANKRATOV
+as his KGB colleague. She had been an agent for some time
+and used on a "neutral base," (occasionally when there was
+a need on a particular target). PANKRATOV told NOSENKO it
+would be easy for her to agree to have "close relations"
+(intimate relations) with a foreigner and NOSENKO said he
+did not use her against [BRODNEY] but later saw her file when
+it was in possession of KOVSHUK.
+
+NOSENKO said that he had met this agent with
+PANKRATOV in 1954 and it would have been before mid-1954
+when PANKRATOV was transferred from the 1st Department. On
+April 16, 1968, (N-181), NOSENKO said that KOVSHUK had the
+file on FIAKSEL in 1960 or 1961 but he did not know why
+KOVSHUK was holding the file and did not know if KOVSHUK had
+taken the file over from PANKRATOV in mid-1954. At the time
+KOVSHUK had the file it was reported that she was coming back
+to Russia (from the U. S.).
+
+TOP SECRET
+
+235
+
+HW 50953 DocId:32318825 Page 132

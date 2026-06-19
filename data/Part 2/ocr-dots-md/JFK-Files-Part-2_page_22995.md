@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_22995.png
+
+Convert to MarkdownTOP SECRET
+
+41
+
+1 people who were not knowledgeable necessarily of whom they
+2 worked for or where the cover offices were located and so forth.
+3 Let us say, in the maritime part of the operation we might have
+4 had at any one point in time, you know, up to five hundred
+5 people involved in maritime activities, you know?
+
+6 Again, if you pick a date, I am sure we can research it.
+7 The records are still available and you know how many people
+8 we had, but let us take these five hundred. What am I talking
+9 about? These would be essentially Cubans who were the captains
+10 of the vessels that were used in infiltration operations to
+11 put people on the shore of Cuba, and there were a variety of
+12 techniques. In other words, you might start on with the mother
+13 ship, which would be an LCI -- I am not sure how familiar you
+14 are with various kinds of vessels.
+
+15 Mr. Baron. What is an LCI?
+16
+
+Mr. Halley. Landing craft kind of vessel, or a patrol
+17 craft, a PC, 110-foot vessel, that would be a mother ship.
+18 This is the kind of ship that would take fuel supplies and
+19 water, so that other smaller vessels could be serviced by it.
+20 So you might start with an operation of a mother ship towing a
+21 smaller boat, or having it on its decks and going down to
+22 fifteen or twenty miles from Cuba, putting the smaller boat
+23 over the side, which was a faster boat, lower silhouette, less
+24 likely to be picked up by Cuban coastal radar, and then that
+25 would take the team in close to the shore where we might finally
+
+TOP SECRET
+
+HW 50955 DocId:32423434 Page 44
+
+7 6 7 WARD & PAUL
+410 First Street, S.E., Washington, D.C. 20003

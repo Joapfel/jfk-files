@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_24523.png
+
+Convert to Markdown-17-
+
+Helms stated that those words reflected the "kind of atmosphere" on which he relied for his perception that assassination was implicitly authorized. (Helms, 7/17, p. 60-61.) McManus, who wrote the memorandum, agreed that Robert Kennedy "was very vehement in his speech" and "really wanted action" but McManus disagreed with Helms perception, stating that "it never occurred to me" that the words quoted above from Robert Kennedy included permission to assassinate Castro. (McManus, p. 9.) Nor did the spirit of the meeting as a whole give McManus any idea that assassination was either contemplated or authorized. (Tr., p. 9-10.)
+
+5. General Lansdale's Mongoose Planning Tasks
+
+On January 18, 1962, Lansdale assigned 32 planning tasks to the agencies participating in Mongoose. (Lansdale Ex. 3, Program Review of the Cuba Project.) In a memorandum to the working group members, Lansdale emphasized that "it is our job to put the American genius to work on this project, quickly and effectively. This demands a change from the business as usual and a hard facing of the fact that we are in a combat situation--where we have been given full command." (Lansdale memorandum, 1/20/62, p. 1.)
+
+The 32 tasks comprised a variety of activities, ranging from intelligence collection to planning for "use of U. S. military force to support the Cuban popular
+
+*/ With respect to the question of priorities and emphasis in the Kennedy Administration, there was a great deal of proof showing that Cuba indeed had a high priority and the very existence of a high level group like the Special Group Augmented further demonstrates its importance. MacNamara, for example, stated that. "we were hysterical about Castro at the time of the Bay of Pigs and thereafter." (In the same context, MacNamara stated "I don't believe we contemplated assassination.") (MacNamara, p. 93). Similarly, General Lansdale informed the members of his inter-agency committee that Mongoose "demands a change from business-as-usual and a hard facing of the fact that you're in a combat situation where we have been given full command." , Ex. , Memorandum, January 20, 1962, from Lansdale).
+
+On the other hand, Sorensen testified that "there were lots of top priorities, and it was the job of some of /_us_/' to continually tell various agencies their particular subject was the top priority" and although Cuba was "important" it was "fairly well down on the list of the President's agenda." (Sorensen, p. 12). For example, when told that his first letter to Khruschev in the secret correspondence that lasted two or three years would be "the single most important document you will write during your Presidency," President Kennedy said, "Yes, we get these every day over here." (Sorensen, p. 12).

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_21216.png
+
+Convert to Markdownpreviously failed to acknowledge that he knew some of these individuals. NOSENKO's current reactions to their names or photographs are set forth below
+
+A.A. LEBEDEV
+
+On December 2, 1967, (N-52), NOSENKO was shown a list of names which included A.A. LEBEDEV. He said he knew LEV LEBEDEV who was a Deputy to the Chief of the Special Section, SCD but he did not know A.A. LEBEDEV.
+
+V.A. ZAYTSEV
+
+On February 15, 1968, (N-135); NOSENKO said he knew of some ZAYTESEVs but did not know this one whose photograph was shown.
+
+N.P. KULEBYAKIN
+
+On April 26, 1968, (N-186), NOSENKO said KULEBYAKIN was well known but he did not know him personally.
+
+(FIRST NAME UNKNOWN)
+
+NOSENKO made no comment when this name was mentioned to him on November 14; (N-23), and December 2, 1967, (N-51).
+
+TOP SECRET

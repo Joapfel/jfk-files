@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_23583.png
+
+Convert to MarkdownNovember 22, 1963
+
+Bob--
+
+If you approve this (it is based on a brief memo from
+General Lansdale) I will send it on its way. In addition
+you should have a meeting -- as soon as possible --
+with Lansdale and the senior representatives of State,
+Defense and CIA. If you want to call me on this after
+you have read the memo I will suggest a procedure for
+getting them together.
+
+Richard N. Goodwin
+
+TOP SECRET - EYES ONLY

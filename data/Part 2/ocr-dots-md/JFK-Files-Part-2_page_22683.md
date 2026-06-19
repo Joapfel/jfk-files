@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_22683.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+WARD & PAUL
+
+10 First Street, S.E., Washington, D.C. 20003
+
+760001147:
+
+TOP SECRET
+
+29
+
+thought it was Bill. And they were checking with Papich what to do.
+
+Mr. Schwarz. That was Mr. Roselli, was it?
+
+Mr. Angleton. I think it was.
+
+Mr. Kirbow. And the Bill you speak of here is Bill Harvey?
+
+Mr. Angleton. Bill Harvey:
+
+So I could get the gist of Bill's questions to them. And I told him -- I made a motion to put his hand over the phone and not to let them discuss it. And I said, tell them not to do anything until they hear from you.
+
+And that is what he told them, he said, stand down on this and I will be back in touch.
+
+And then Bill told me the whole story in detail of how he had gone over from California and followed him in this thing, and how Harvey had put him in his car and he went off.
+
+Mr. Schwarz. That was in 1973 shortly before Mr. Harvey went to Rome?
+
+Mr. Angleton. It wasn't shortly before, it was, I think quite a long time before.
+
+So then I told Sam, I said, look, let's go very easy on this -- because I didn't know anything about Bill's connection with the Mafia and all that, but I did know him well enough to know that he was not a frivolous man, and that this thing happened, and keep in mind that ex-FBI men, contrary to public opinion, were not very much liked by Mr. Hoover when they left
+
+TOP SECRET

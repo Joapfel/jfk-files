@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_23959.png
+
+Convert to Markdown"3. We would be encouraging the action, supplying the weapons, effecting the delivery, and then turning over only the final execution to (unskilled) local triggermen.
+
+"4. So far we have seen no real evidence of action capability. Should we entrust ourselves and our reputation to this extent in the absence thereof?
+
+"7. Can we afford a precedent which may convince the world that our diplomatic pouches are used to deliver assassination weapons?" (Document from State Department files bearing No. 313)
+
+The other points raised in document No. 313 related to the likelihood that any such involvement by the U.S. would ultimately be revealed.
+
+On May 15, 1961, Acting Assistant Secretary Coerr sent to Under Secretary Bowles a document entitled "Covert Action Programs Authorized With Respect to the Dominican Republic". That document outlined the existing Special Group approvals for covert assistance to Dominican dissidents and, while making no recommendation as to further policy, suggested that the Special Group review the outstanding approvals and communicate to interested agencies the status of such authorizations. (State Dept. document from Coerr to Bowles, 5/15/61)
+
+During this period a document dated May 13, 1961, was
+
+TOP SECRET

@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_22673.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+18
+
+TOP SECRET
+
+77
+
+the Italians in 1923, Constatinople, and cases on diplomatic issues, the complete thing was fabricated, and so on. And there is no way of testing them, the security is such that they can't be tested.
+
+So we are not under any illusions of expecting them to state that he went through the 13 Department, which asked him the following questions.
+
+Mr. Schwarz. So you say that as far as that matter goes there is no possibility that anybody on the Warren Commission was fooled?
+
+Mr. Angleton. I mean, I don't think anybody was. I didn't follow the Warren Commission, Rocha followed it, and he was running over there all the time, and so on.
+
+Mr. Kirbow. Let me ask you. There would have been no reason why anyone on the Warren Commission would have known that as a matter of everyday business that they did in fact run every defector through Department 13?
+
+Mr. Angleton. I don't think we ever told them. But you see, Allen Dulles -- that is what I am coming to -- I used to see Allen Dulles regularly, and I was an advisor officially to him on a lot of headaches, and I did a lot of leg work for him. And I regarded him as a very personal friend. And I am Executor of his papers, among other things.
+
+But the point I am coming to is, to try to give him guidance of what the jungle is around here in terms of the
+
+TOP SECRET
+
+HW 30955
+
+Page 00

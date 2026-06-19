@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_20934.png
+
+Convert to Markdown# Memorandum
+
+TO : ACTING DIRECTOR, FBI
+
+FROM : SAC, CINCINNATI (100-20519) (RUC)
+
+SUBJECT: "FURIES" Newspaper Womens Liberation Movement Publication Washington, D.C. IS-REVOLUTIONARY ACTIVITIES (OO: WFO)
+
+DATE: 6/22/72
+
+Re WFO letter to Cincinnati dated 3/22/72, and WFO letter to the Bureau dated 5/31/72.
+
+For information, referenced WFO letter to Cincinnati dated 3/22/72, requested registration check on three 1971 Ohio license plates and it should be noted that in the last paragraph the license plate number is listed as J3862 and that the lead reads JE862.
+
+The following investigation was conducted by SC W. JAMES GRETZ at Columbus, Ohio:
+
+## Bureau of Motor Vehicles
+
+On 4/4/72, Mrs. JEAN SMEDLEY, Record Clerk, License Plate Index, advised the following information with regard to the listed 71 plates:
+
+1971 Ohio license plate W5487 was issued to JANET L. BUCHANAN, 2254 Lucile Drive, Lancaster, Ohio, on a 1965 Volkswagen bearing VIN 115144097.
+
+1971 Ohio license plate T4612 is registered to HOWARD D. MC ARTOR, Rural Route 2, Granville, Ohio, on a 1967 VW bearing VIN 117288826.
+
+2-Bureau (RM)
+2-WFO (100-55290) (RM)
+1-Cincinnati
+
+RMM:cm
+(5)
+
+JUL 10 1972
+
+MCT-37
+
+REC-36 100-472144-
+
+JUN 28 1972
+
+LEX Rev. Act. Sect.
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+5010-108-02
+
+NW 88321 DocId:32989546 Page 439

@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_23178.png
+
+Convert to Markdown# TOP SECRET
+
+I a number of occasions. You know, if you asked me what your impression, I don't know, maybe three, four.
+
+Mr. Johnston. Do you recall anyone from headquarters coming down to visit with you in December 1963? Again, this is shortly after the assassination of President Kennedy.
+
+Mr. Halley. Do you have the chronology? Was Harvey still --
+
+
+
+Mr. Johnston. No, it was Fitzgerald.
+
+Mr. Halley. Okay. No, I don't, because Harvey periodically when he was in used to come down at the time of the Orange Bowl game. I do remember going to our Orange Bowl game with Harvey. So I would have to say so. I don't.
+
+But look again --
+
+
+
+Mr. Johnston. Well, let me just brux up.
+
+Do you know -- did you have any discussions with anyone from the headquarter's staff about the effect of the assassination of President Kennedy on Cuban operations?
+
+Mr. Halley. Now, It seems to me political that there may have been some soft or discussion at that time, but I don't recall it. You know, you have to put such things in this kind of a text. It was a steady stream of people coming from Washington to visit. I came to Washington on a regular basis. There were times when I would come up six to eight days a week. Some would be later and some wouldn't. I wouldn't be up here for six weeks, during this was a very active period. I was working 14, 15, 16 hours.
+
+# TOP SECRET

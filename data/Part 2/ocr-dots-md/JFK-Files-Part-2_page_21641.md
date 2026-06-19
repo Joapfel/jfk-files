@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_21641.png
+
+Convert to MarkdownIUP SECRET
+
+121
+
+here -- is the fact that it was actually drafted by someone
+else that was working in my shop, Mr. Pionzio, or someone
+else, that went in and talked to Broe. Maybe I was doing some-
+thing else, and they came to me with a typed thing and said,
+here, I cleared this with Broe, and so he signed both things.
+So I really can't remember.
+
+Mr. Schwarz. Under either assumption, either that Broe
+spoke to you directly or that someone on your staff
+spoke to Broe, you had Broe around at the time this cable goes
+out?
+
+Mr. Phillips. Yes.
+
+Mr. Schwarz. Then why wouldn't he sign it?
+
+Mr. Phillips. Here is one thing. At the time the cable
+went out -- I can't remember well enough if it was late at
+night.
+
+Mr. Schwarz. Does the time up above indicate 11:59?
+
+Mr. Phillips. Where do you see that?
+
+Mr. Schwarz. In the upper lefthand corner. It has
+a date 14 October 17, and right above that is 11:59 --
+Mr. Phillips. Right.
+
+Mr. Schwarz. -- in the customary place for the time.
+
+Mr. Phillips. I don't see that on this copy.
+
+The point I am trying to make is, if Mr. Broe were
+leaving the office and we had gone through this exchange, and
+he had done it with someone else in my office, he might well
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+HW 50955 DocId:32282005 Page 31

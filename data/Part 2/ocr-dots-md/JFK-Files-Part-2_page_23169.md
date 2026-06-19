@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_23169.png
+
+Convert to MarkdownTOP SECRET
+
+my stewardship of the station.
+
+Senator Schweiker. There is a vast difference of recollec-
+
+tion between the two on what happened. She very strongly
+recollects that in addition to the thing that you described,
+which is a matter of record, by the way, with the Senate
+Committee, it is a matter of Committee record, in addition to
+that, that this is in it also.
+
+Rather than read the whole thing, you might read the
+paragraphs I have outlined. She feels very strongly about it.
+She has called me several times about it. She is absolutely
+certain of her information, and her Cuban source doesn't want
+to talk for fear of his life.
+
+(The Witness reads the document.)
+
+Mr. Malley. No, that doesn't ring any bells. I cannot
+put that in any context.
+
+Let me go back to this Paulley business. I think at one
+time, one other thing that Paulley did for us, I think he
+provided an opportunity for us to pick up some cargo in the
+Dominican Republic to provide cover for one of our vessels that
+we were using at that time for infiltration operations in the
+area but those are the only things that I can remember off to
+top of my head.
+
+Senator Schweiker. You see, where he says here that in
+contact with a group, the story goes on to say that this
+group supplied a tape and pictures of that contact, and then
+
+26
+
+TOP SECRET
+
+NWI: 55510
+
+Doctd: 32425435

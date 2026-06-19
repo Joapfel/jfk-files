@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_24382.png
+
+Convert to MarkdownTOP SECRET
+
+D. Summary of Findings and Conclusions
+
+1. The Questions Presented
+
+The Committee sought to answer four broad questions:
+
+ASSASSINATION PLOTS. Did U.S. officials instigate, attempt, aid and abet, or acquiesce in plots designed to assassinate foreign leaders?
+
+INVOLVEMENT IN OTHER KILLINGS. Did U.S. officials assist foreign dissidents in a way which significantly contributed to the killing of foreign leaders?
+
+AUTHORIZATION. Where there was involvement by U.S. officials in assassination plots or other killings, were such activities ordered and if so, at what levels of our Government?
+
+COMMUNICATION AND CONTROL. Even if not authorized, were the assassination activities perceived to be within the scope of agency authority, and was adequate control exercised over its activities.
+
+2. Summary of Findings and Conclusions on the Plots
+
+The Seven Allegations. The Committee investigated alleged U.S. involvement in assassination plots in five foreign countries.* They
+
+were:
+
+Country
+Cuba
+Congo (Zaire)
+
+Individual Involved**
+Fidel Castro
+Patrice Lumumba
+
+* Insert Footnote on Sukarno and Duvalier.
+
+** Insert re Raul and Che and Ngo Dinh Nhu.

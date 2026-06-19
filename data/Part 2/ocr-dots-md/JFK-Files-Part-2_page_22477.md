@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_22477.png
+
+Convert to MarkdownSECRET
+
+Phone (Area 202) 544-6000
+
+A Sure.
+
+Q I am sorry we had to take so much of your time.
+
+A That is all right.
+
+Q Thank you again.
+
+(Whereupon, at 3:35 o'clock p.m., the taking of the
+deposition was concluded.)
+
+SECRET
+
+HW 50955 DocId:32203851 Page 115
+
+410 First Street, S.E., Washington, D.C. 20003
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

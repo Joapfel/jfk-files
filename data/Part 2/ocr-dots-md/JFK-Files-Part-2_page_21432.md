@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_21432.png
+
+Convert to MarkdownSECRET
+
+1-19-70
+
+CONFIDENTIAL
+
+DIRECTOR, FBI
+
+LEGAT, PARIS
+
+INTERNATIONAL CONFERENCE TO
+SUPPORT PALESTINIAN PEOPLES
+ARMED STRUGGLE (ICSP), ALGIERS 12/26-28/69
+IS - MIDDLE EAST
+PARfile 105-5778 (P)
+
+DAVIDA FINEMAN
+SM - RU
+Bufile 100-446389
+PARfile 100-2479 (RUC)
+
+RICHARD THOMAS GIBSON
+IS - CU
+Bufile 105 93072
+PARfile 105-1270 (RUC)
+
+All information contained
+HEREIN IS UNCLASSIFIED EXCEPT
+WHERE SHOWN OTHERWISE.
+
+RePARlet 1-19 70 captioned "International Conference
+to Support Palestinian Peoples Armed Struggle (ICSP), Algiers
+12/26-28/69, IS - Middle East: JEFFERSON, IS - CH."
+
+On 1-15-70 the Renseignements Generaux (General Investigative Section), Police Nationale (RSFN), France advised that captioned individuals together with one DONALD WRIGHT, a Negro born 3-9 36 at Chicago, are presently in Paris. They reportedly arrived on 1-6-70 from Algiers where they participated on 12-26-69 in the International Conference to Support the Palestinian Peoples Armed Struggle. (S)
+
+The RSFN stated that upon their arrival in Paris these three individuals were met by JULIA WRIGHT HERVE, who is known to the Bureau. They were lodged at the Centre International Protestant du Parc Montsouris (International Protestant Center of Parc Montsouris), 8 villa du Parc Montsouris, Paris 14. Paris files show that the office of "Afrique-Continent," which is headed by HENRY HERVE, the husband of JULIA WRIGHT HERVE, is located on the fourth floor of the Centre International Protestant du Parc Montsouris.
+
+Bureau
+(1 - Liaison Section) SECRET
+# - Paris
+(1 - 105-4464, JULIA WRIGHT HERVE)
+
+NOT RECORDED
+191 JAN 23 1970
+
+59 FEB 9
+
+CONFIDENTIAL
+
+HW 50953 DocId:32339240 Page 56

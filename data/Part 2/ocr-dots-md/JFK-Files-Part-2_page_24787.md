@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_24787.png
+
+Convert to Markdownadditional support, coupled with fact ref. C items [the carbines] already made available to them for personal defense; station authorized pass ref. A items [the machine guns] to opposition member for their additional protection on their proposed endeavor." (Draft of HQS to Station cable, 5/2/61).
+
+The cable was never sent.
+
+In his testimony before the Committee, Bissell characterized his reasoning for recommending release of the machine guns
+
+as:
+
+" . . . having made already a considerable investment in this dissident group and its plans that we might as well make the additional investment." (Bissell, 7/22, p.127)
+
+The following day, May 3, 1961, Ray Herbert, Deputy Chief of the Western Hemisphere Division of CIA, who frequently acted as liaison with the State Department in matters concerning covert operations in the Dominican Republic, met with Adolph Berle, Chairman of the State Department's Interagency Task Force on Latin America.
+
+A Berle memorandum of the meeting states that Herbert informed Berle that a local group in the Dominican Republic wished to overthrow Trujillo and sought arms for that purpose.
+
+The memorandum continued:
+
+"On cross examination it developed that the real plan was to assassinate Trujillo and they wanted guns for that purpose. Herbert wanted to know what the policy should be.
+
+"I told him I could not care less for Trujillo and that this was the general sentiment. But we did not wish to have any thing to do with any assassination plots anywhere, any time. Herbert said he felt the same way." (Berle, Memo of Conversation, 5/3/61)

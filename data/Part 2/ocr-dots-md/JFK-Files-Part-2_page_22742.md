@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_22742.png
+
+Convert to MarkdownTOP SECRET
+
+1. You have to understand the enemy intelligence service before you're going to penetrate it, and you have to be secure from penetration yourself, and you then have to run that penetration very securely and on a very compartmented basis.
+
+2.
+3.
+4.
+
+5. Mr. Angleton. And there is one added proviso, then, that
+6. you can only run a first rate double agent if you have a
+7. source superior to him that he is unaware of. In the war,
+8. when we broke the German code, it was no problem to run German
+9. double agents because we could read their messages back to
+10. their headquarters, re-enciphered, and the headquarters message
+11. back to the control, back to our double. So questions of
+12. danger signals, questions of alerting him that he was under
+13. control and so on was taken care of because of communications
+14. intelligence.
+
+15.
+
+When you don't have communications intelligence, then
+the only other source that is superior is penetration, that is,
+somebody who can read back from their headquarters how they are,
+in fact, absorbing the thrust of that double agent. And those
+conditions do not exist for the Bureau or for ourselves.
+
+16.
+17.
+18.
+19.
+
+Mr. Miler. Or for the military services, to run a lot
+of double agents.
+
+20.
+21.
+
+Mr. Angleton. I mean, they do not have the superior
+source of control over double agents.
+
+22.
+23.
+
+Senator Hart of Colorado. Why is that?
+
+24.
+
+Mr. Angleton. Because they are one, not breaking codes, or
+
+25.
+
+TOP SECRET

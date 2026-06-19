@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_20919.png
+
+Convert to MarkdownNY 100-172487
+
+Sources utilized in this LHM are as follows:
+
+First source
+NY-11370-S
+
+Second Source
+Unknown-to-New-York-Office; contained in files
+of Minneapolis
+
+Third source
+Vice-President MILTON L. SNYDER
+Security Office
+First National Bank
+Minneapolis, Minnesota
+
+Fourth source
+NY-11558-S
+
+Fifth source
+NY 1107-S
+
+LEAD
+
+NEW YORK
+
+AT NEW YORK, NEW YORK. Inasmuch as the Women's Bail Fund has had several contacts with Weatherman subjects, New York will continue efforts to determine activities and structure of the Fund.

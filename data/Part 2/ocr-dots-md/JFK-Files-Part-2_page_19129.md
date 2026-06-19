@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_19129.png
+
+Convert to MarkdownLEADS (CONT'D)
+
+2. Will submit under separate communication NYO recommendation to interview Informant former PSI of NYO.
+
+3. Will follow activities of the Women's Bail Fund.
+
+CLASSIFICATION:
+
+Enclosed LHM is classified, "Confidential" because it contains information from sources of continuing value, disclosure of which might reveal their identity and thus be prejudicial to the national defense interests of the US.

@@ -1,0 +1,61 @@
+# JFK-Files-Part-2_page_22815.png
+
+Convert to Markdown1 matters. He had a great interest at different points in
+
+2 1961, 1962, in doing more about Cuba. And part of the more he
+
+3 wanted to do was covert. And he would say so to me. And
+
+4 I would say so to somebody else.
+
+5 Senator Baker. Can you give us examples of that?
+
+6 Mr. Bundy. No, I can't. I can only say that the kind
+
+7 of things he was talking about was, why do all these raids not
+
+8 get us anywhere? They say they can do something about the oil
+
+9 refineries, why don't they? These are purely hypothetical,
+
+10 Senator Baker, but they would be in a category, subversion
+
+11 and sabotage.
+
+12 Senator Baker. Was it Harvey that was spoken of as our
+
+13 007?
+
+14 Mr. Schwarz. Once yesterday.
+
+15 Senator Baker. Do you remember when Mr. Harvey was
+
+16 brought to see the President at the Oval Office?
+
+17 Mr. Bundy. I have been told about that, but I
+
+18 am afraid that is non-refreshed recollection. I don't know
+
+19 anything about it.
+
+20 Senator Baker. Would that have been the character of
+
+21 the things that the President was interested in, 007?
+
+22 Mr. Bundy. I am not going to try to repair the record
+
+23 at this late stage and say that the President never read
+
+24 Ian Fleming.
+
+25 Senator Baker. Or ever seen Ian Fleming?
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32423406 Page 33
+
+10

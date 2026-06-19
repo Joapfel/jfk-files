@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_20969.png
+
+Convert to MarkdownWFO 100-55290
+
+On January 13, 1972, WF T-2 provided a copy of the
+January, 1972 issue of the "Furies" Newspaper.
+
+A review of this issue revealed the following
+self description:
+
+"The Furies is a new lesbian-feminist newspaper for every woman who has ever been raped, physically, economically or psychologically. We take the name FURIES, Now Goddesses of Vengeance and protectors of woman, as we want to build a movement in this country, and in the world which can effectively stop the violent, sick, oppressive acts of male supremacy."
+
+The paper includes letters, articles, fiction, poetry,
+news, and graphics, as well as information about various
+literature for women."
+
+The initial issue of the "Furies" Newspaper indicated that "this paper is printed by the Sojourner Truth Press collective in Atlanta, Georgia."
+
+It was noted that the "Furies" is located at 219 11th Street, S.E., Washington, D.C., and a further review of the initial issue reflected the following staff members:
+
+SUSAN BAKER          GINNY BERSON
+JOAN BIREN            RITA MAE BROWN
+CHARLOTTE BUNCH      SHARON DEEVY
+HELAINES HARRIS       SUSAN HATHAWAY
+NANCY MYRON          TASH PETERSON
+COLETTA REID         LEE SCHWING
+ANN SILVER           JENNIFER WOODUF
+
+II. ACTIVITIES
+
+On March 20, 1972, WF T-3 advised that the "Furies"
+is a gay newspaper for women in which the political line is
+the fight against racism and repression by men. Source advised
+that the members of the "Furies" believe that if you do not
+follow these general programs you are not a feminist.

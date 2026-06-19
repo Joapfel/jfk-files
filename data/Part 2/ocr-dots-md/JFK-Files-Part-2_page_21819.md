@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_21819.png
+
+Convert to Markdown# TOP SECRET
+
+no cover. I went in as a tourist, a tourist can wear thin so I had to scrounge around in different ways. When a brother-in-law who was a professional gambler. died. He taught me a little about gambling, so I used to go to the black jack tables and I would win money here, there and the other place.
+
+Mr. DeMarco. Is this the hotel black jack tables predominantly?
+
+Mr. Sarno. No, they had black jack, roulette, they had baccarat. I would go in there, I would make myself seen, they would see that I was wearing good clothes and I was winning money at the gambling tables and that's it.
+
+I am not to be tied into any Syndicate or anything like it. I didn't know a single soul.
+
+Mr. DeMarco. You knew no one?
+
+Mr. Sarno. Nobody.
+
+Mr. DeMarco. And your task then, which you learned on arriving there, was to set up a network?
+
+Mr. Sarno. To set up a network of agents in Cuba, yes.
+
+Mr. DeMarco. So you started meeting people to do that?
+
+Mr. Sarno. No.
+
+We never meet people to do that.
+
+Mr. DeMarco. Describe to me how you did it.
+
+Mr. Sarno. People were spotted by other individuals and they're checked out, and once they're checked out and their
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+59
+
+TOP SECRET
+
+HW 50955 DocId:32202440 Page 51
+
+N
+W
+F
+T

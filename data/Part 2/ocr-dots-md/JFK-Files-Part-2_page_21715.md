@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_21715.png
+
+Convert to MarkdownHW 50955 DocId:32202418 Page 20
+
+TOP SECRET
+
+Mr. Hunt. No.
+
+Mr. Baron. Did you ever discuss this matter with anyone other than Colonel Pash?
+
+Mr. Hunt. In that context?
+
+Mr. Baron. In the context of assassinations or kidnapping.
+
+Mr. Hunt. Well, I wasn't involved in plotting or planning any kidnappings. Again, I would suggest that I might very well have gone back to Blanfarb, who was the most interested individual, because he was responsible at the branch level for King Zog as an operational tool, whereas, I had an overall political responsibility for King Zog. And I have described the background of that, the rubric under which I became interested in the Albanian problem in the first place, and then having talked to Pash, it would have been only natural for me to have said to Blanfarb, look, I've talked with Pash and he says it will have to be approved by higher authority. Now have you gotten, we don't have a body yet, but when you get a name to put on the target, at that point you will have to carry the ball and take it on up the line.
+
+Mr. Baron. And you never heard anything further about it?
+
+Mr. Hunt. No, probably because I went within, I think, a comparatively few weeks off to the Guatemala operation.
+
+Mr. Baron. Did anyone ever mention it to you, say did Article Lazarus ever mention it to you again?
+
+Mr. Hunt. No. I next saw Article Lazarus in Taipei in
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+TOP SECRET

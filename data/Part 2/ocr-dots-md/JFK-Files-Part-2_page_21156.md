@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_21156.png
+
+Convert to MarkdownTOP SECRET
+
+case as described by NOSENKO actually related to EDWARD MC GOWAN, a CIA tourist agent who was detected by KGB mailing an operational letter in Minsk in August, 1958; however, one ROBERT ALAN MC GUIRE visited the Soviet Union in April-May, 1959, and was the target of KGB provocations although he had no intelligence connections. It was stated that interrogation did not resolve how NOSENKO knew the name [MC GUIRE], but not the background of his case and knew the background of [MC GOWAN]'s case but not his name.
+
+The CIA paper also relates that the KGB agent GEORGE BLAKE furnished to KGB in 1959 a 19 page document covering a conference held in London between British and CIA representatives outlining British and American use of tourists for intelligence purposes. The KGB was therefore fully aware of the use of tourists and it was stated that the substance of this information, if not the document itself, would have been brought to the attention of the Deputy Chief of the American-British Commonwealth Section.
+
+TOP SECRET

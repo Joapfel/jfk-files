@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_20038.png
+
+Convert to Markdown# DEMONSTRATION PROTESTING UNITED STATES POLICY IN VIETNAM, WASHINGTON, D.C.,
+
+JANUARY 15, 1968
+INFORMATION CONCERNING (INTERNAL SECURITY)
+
+Women's International League for Peace and Freedom
+
+Americans for Democratic Action
+
+Fellowship of Reconciliation
+
+National Council of Jewish Women
+
+Student Non-Violent Coordinating Committee
+
+Congress on Racial Equality
+
+W. E. B. Du Bois Clubs of America (See appendix)
+
+National New Politics
+
+Committee for a Sane Nuclear Policy
+
+Source one reported that at the meeting of the JRB on December 27, 1967, it was reported the following women would attend the demonstration protesting United States policy in Vietnam, Washington, D.C., on January 15, 1968:
+
+Joyce Angus
+Leslie Parrish
+Sheila Sloane
+Mary Clarke
+Mary Pearson
+
+Two or more women representing the black community would also go depending upon the amount of money raised by the JRB to finance their trip to Washington, D.C.
+
+Source one advised that all the above named individuals are members of Women Strike for Peace (WSP) (See Appendix).

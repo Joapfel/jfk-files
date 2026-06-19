@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_22590.png
+
+Convert to MarkdownOn 6 June 1969, Tighe recorded that Jim McCord advised him on that date that he, McCord, had visited Wiley in New York City on the 4th and 5th of June 1969. McCord gave Tighe photographs from Wiley which had been "entrusted" to Wiley "many years ago" by Morse Allen. The photograph had the following names on the back: Vianamin Belitsky, Fred Borodin, Michel Reschal, and Deak Zoltan.
+
+Memorandum, dated 12 March 1970 by CIA Cover Employee states: "Wiley apparently had telephoned Jim McCord and at the end of their discussion, Wiley, or McCord, had the call transferred to our number."
+
+Memorandum, dated 6 April 1970 by CIA Cover Employee to Chief, SRS states: "I received the attached vouchers and an accounting from Wiley on Saturday. I note that among other things, he spent over $120.00 on film. Should this part of the accounting be referred to McCord, or do we accept it as presented? It is not clear that it meets Agency requirements, as all expenses are not matched up by necessary receipts."
+
+A memorandum, dated 14 April 1970, captioned "Charles Wiley" states: "Subject telephoned today after having talked with Mr. McCord and advised that he had unfortunately lost the race to be a Congressional candidate from his district."
+
+McCord may also have been in contact with Wiley during 1970-71 concerning the monitoring of a book to be written by CIA Covert Agent an ex-Communist and CIA source, who had been involved in certain operations for this Agency (not mentioned in the file) in Mexico. The Agency was rather concerned whether CIA Covert Agent could expose his working for CIA and assigned Wiley to help edit the book. The following excerpts from the file tend to support the above contention:
+
+A memorandum, dated 30 June 1970, captioned "Contact Report, Charles Wiley," states: "Wiley further suggested that, along with Jim McCord, he continue to handle CIA Covert Agent and would brief Agent so as to keep him content until he, Wiley, returns from his European trip." (This very probably refers to CIA Covert Agent)
+
+SEP 30 1975
+
+CIA
+
+SECRET
+
+NW 50955 DocId:32203889 Page 98

@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_21852.png
+
+Convert to MarkdownHedgman: There was no doubt in my mind that this was one of the way[s], and probably what they thought was the only way that would work (Hedgman, 8/21/75, p. 25).
+
+Hedgman explained (Gottlieb) provided him with poisons as a means of assassination:
+
+Q: And what did he tell you with regard to how that might be accomplished?
+
+Hedgman: ... He brought some biological agents. I assume that that's the correct word. But in any case, poisonous agent with him, which he passed to me....
+
+Q: These were lethal biological substances?
+
+Hedgman: Yes. That was my understanding as a non-expert. (Hedgman, 8/21/75, pp. 18-19.)
+
+Hedgman testified that he received "rubber gloves, a mask, and a syringe" along with the poisons and that (Gottlieb) instructed him in their use (Hedgman, 8/21/75, pp. 20-21). Hedgman indicated that this paraphernalia was for administering the poisons to Lumumba:
+
+Q: [W]hen he (Gottlieb) came to the Congo to give you lethal biological agents for the assassination of Lumumba, was it clear at that time that the means for administering those biological agents was to inject them into a substance that was to be ingested by Lumumba, whether it be food, or drink, or toothpaste or any other substance that was to be ingested?
+
+Hedgman: That's my recollection, yes. (Hedgman, 8/21/75, p. 82; accord. p. 24.)
+
+Hedgman said that the means of assassination was not restricted to use of the poisons provided by (Gottlieb):
+
+This was not a sine qua non that I employ this. If there were another method, another way, it would have been acceptable. (Hedgman, 8/21/75, p. 19.)

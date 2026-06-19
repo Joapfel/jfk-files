@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_22204.png
+
+Convert to MarkdownHW 50955
+
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>SPECIAL GROUP AUGMENTED, MONGOOSE, LANSDALE, TAYLOR, JOHNSON, GILPATRICK, MCCONE, RFK, LEMNITZER</td><td>July 11, 1962</td><td>Special Group Augmented MONGODB</td></tr></tbody></table>
+
+**OCCURRENCE:** Notice to Special Group that operational representatives are preparing assessments of Operation MONGODB. These will cover among other things "factors worth considering in deciding on a future course of action (We have a working definition of four possible future courses of action)." Memo quotes NSA summary on intelligence problems which notes that Intelligence has been obtained of Soviet participation in Cuban tactical air training, Cuban air defense performance, and the presence of Soviet-type air-defense equipment.
+
+**SOURCE:** Memorandum for the Special Group Augmented from Lansdale re: Progress OPERATION MONGODB 11 July 1962 (00428-00430)
+
+**FILE:**
+
+**STAFF:**
+**DATE:** di Genova
+July 2, 1975

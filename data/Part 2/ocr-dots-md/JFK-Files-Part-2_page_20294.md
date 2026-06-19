@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_20294.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+Atlanta, Georgia
+
+January 12, 1968
+
+DEMONSTRATION PROTESTING U.S. POLICY IN
+VIETNAM, WASHINGTON, D.C., JANUARY 15-16,
+1968, INFORMATION CONCERNING (INTERNAL SECURITY)
+
+Mrs. Nancy Collinson of the American Friends Service Committee Office in Atlanta, Georgia, advised on January 12, 1968, that a Greyhound bus had been chartered by individuals from Atlanta who were due to take part in the Jeannette X Rankin Brigade in Washington, D.C., on January 15, 1968, and she would accompany this group.
+
+W. Earl Perry, Charter Manager, Southeastern Greyhound Lines, advised on January 12, 1968, that a 38-passenger bus had been chartered by Mrs. Nancy Collinson, and the bus is scheduled to leave the Atlanta Greyhound Bus Depot at 7:30 p.m. on January 14, 1968, and due to arrive at the Union Station in Washington, D.C., at 10:00 a.m. on January 15, 1968. On the return trip from Washington to Atlanta, the passengers are to be picked up at 6:00 p.m. on January 15, 1968, at the Shorham Hotel, and the bus is due to arrive in Atlanta at 8:00 a.m. on January 16, 1968.
+
+The following individuals were advised of the above on January 12, 1968:
+
+Lieutenant Robert Shattles, Atlanta Police Department;
+
+Special Agent Phillip Perry, Georgia Bureau of Investigation, Atlanta, Georgia;
+
+Hoyt West, Special Agent, 111th Military Intelligence Group, Region V, Fort McPherson, Georgia;
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
+
+COPIES DESTROYED
+
+27 MAY 12 1974
+
+ENCLOSURED
+
+NW 88321 DocId:32989545 Page 578

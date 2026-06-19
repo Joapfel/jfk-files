@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_20228.png
+
+Convert to MarkdownU.S. DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Kansas City, Missouri
+
+In Reply, Please Refer to
+File No.
+
+October 27, 1971
+
+WOMEN'S NATIONAL ABORTION
+ACTION COALITION (WONAAC)
+DEMONSTRATION,
+NOVEMBER 20, 1971
+WASHINGTON, D.C.
+
+On October 1, 1971, KC T-1, who has furnished reliable information in the past, advised that Sarah Schmidtlein, nee Copowycz, a Young Socialist Alliance (YSA) member and Kansas City women's National Abortion Action Coalition (WONAAC) head, is attempting to stimulate interest in various women's groups to get together a Kansas City women's delegation to attend the WONAAC demonstration on November 20, 1971, at Washington, D.C. KC T-1 advised that the Washington demonstration is to demonstrate against the abortion law repeal alleged to be voted on in Congress at that time. KC T-1 said at the present time plans are to send one busload and more if tickets to be sold.
+
+As the youth organization of the Socialist Workers Party (SWP), the Young Socialist Alliance (YSA) serves as the main source of recruitment into that organization. The YSA is described in the masthead of its official publication, "The Young Socialist Organizer," as "A multinational revolutionary socialist youth organization."
+
+The SWP has been designated pursuant to Executive Order 10150.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is not to be used or shared without prior written permission from the FBI.
+are not to be distributed outside your agency.
+
+468406
+
+1*

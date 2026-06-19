@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_22634.png
+
+Convert to MarkdownHW 50955 DocId:32423393 Page 40
+
+TOP SECRET
+
+Mr. Angleton. They were consistent, but they weren't stated in that fashion. They were stated in the fashion that Dr. Mann is a person who fits within the Philby, etcetera, complex in a false story of this sort, which comes to the British, who pull out a file on Mann, and they read down and go back into the fact of Mann's association with me, Mann's association with Philby, all this stuff of my actions with the Israelis and all that, regardless of what the U.S. Government tells the British or the French, or the Canadians, or the Australians, or the New Zealanders, all of whom have fundamentally the basic information -- it would be a confirmation to them, based on very high level secret information, that the story was true.
+
+Senator Tower. Let me pursue just about three questions here.
+
+Did Szulc specifically ask you whether or not, during the early sixties,issionable material, along with nuclear technology and technological assistance, was passed to the Israelis?
+
+Did he ask you to confirm or deny that?
+
+Mr. Angleton. I can't remember it with precisely that type of precision. The story that he gave was a very lucid, straightforward story without any if's, and's and but's.
+
+Senator Twoer. Did you deny only in part the validity of the question that he asked?
+
+TOP SECRET
+
+7600611-413:
+WARD & PAUL
+410 First Street, S.E., Washington, D.C. 20003

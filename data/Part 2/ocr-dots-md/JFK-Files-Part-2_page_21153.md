@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_21153.png
+
+Convert to MarkdownTOP SECRET
+
+role of a case officer and [BURCHI's] description
+confirms NOSENKO'S account.
+
+Four other cases cited in the CIA paper
+support NOSENKO's contention that he was a case
+officer. The subjects confirmed NOSENKO'S accounts
+of their recruitments (u)
+
+[GIZELLA HARRIS] (page 128) identified NOSENKO
+as one of the two men involved in her recruitment
+and said he "was definitely the man in charge"
+while the other "was merely present and listened." [c]
+
+[GEORGE DREW] (pages 130-131) identified NOSENKO's
+photograph as his interrogator and said it was
+clear that he was the man in charge. #JK
+
+[DAVID TAYLOR] (132-133) identified NOSENKO
+as the "Colonel SERGEYEV" who recruited him and
+said the mere sight of NOSENKO's photograph
+"sent shivers down his back."
+
+[GERARD MERTENS] stated the photograph of
+NOSENKO might be the "GEORGE PETERSON" who
+recruited him.
+
+75c
+
+TOP SECRET

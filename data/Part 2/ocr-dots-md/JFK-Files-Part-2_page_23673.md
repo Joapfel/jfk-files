@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_23673.png
+
+Convert to MarkdownNow the next section refers to the Central Intelligence
+Agency in general. Now because so much of our inquiry is
+focused on the Central Intelligence Agency, we have a rather
+long series of recommendations regarding it.
+
+Now the sections are briefly these -- those dealing with
+the charter for the Agency. for its conduct of espionage,
+counter-intelligence and covert action, and the question of
+covert action itself, how it might be conducted and what limitation
+might specifically. or rules and regulations might apply to
+it.
+
+The production of intelligence which is on its way, but
+it's not in here, there is another section. Then the impact on
+the domestic world of these activities both intelligence
+collection and covert action and I believe you had a good
+discussion of that longer paper prepared by Mr. Bader the
+other day.
+
+And then finally, some discussions of the inspection
+system, the general counsel, the inspector general and so forth.
+and some recommendations in regard to that.
+
+Those are the central parts of it. It included of course,
+such matters as proprietorship, cover and so forth.
+
+Now if we could turn to the first set of recommendations,
+let me just make sure that there are not disagreements in the
+text that need to be brought to your attention.
+
+Mr. Hazzall. I think there are. There are things; that
+
+TOP SECRET
+
+VIRGIL A. PAUL
+
+HW 50955 DocId:32423509 Page 47

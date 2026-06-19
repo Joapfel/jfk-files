@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_22182.png
+
+Convert to MarkdownCIA HAS NO OBJECTION TO
+DECLASSIFICATION AND/OR
+RELEASE OF THIS DOCUMENT
+AS SANITIZED
+
+| PERSONS/ENTITIES: | DATES: | CATEGORIES: |
+|---|---|---|
+| PRESIDENT KENNEDY BUNDY <br> ROBERT KENNEDY <br> HELMS <br> RUSK <br> MCNAMARA | Nov. 12, 1963 | MONGODB<br>PRESIDENTIAL APPROVAL |
+
+OCCURRENCE:
+
+On November 12, 1963 a meeting on "Cuban Operations" was held with "Higher Authority" (President Kennedy). Present were Mr. RUSK, Mr. MCNAMARA, Mr. ROBERT KENNEDY, Mr. BUNDY, Mr. MCCONE, Mr. JOHNSON, Mr. KILPAGRICK, Mr. VA NCE, Mr.HELMS, Mr. FITZGERALD, [REDACTED] Mr. STEAKLEY. Mr. MCCONE gave a brief summary of recent developments inside Cuba and Mr. Fitzgerald reported on Cuban operations under six main headings. (Mr. FITZGERALD's discussions of these headings is contained in separate cards.)
+
+TOP SECRET
+
+SOURCE:
+
+Memorandum for the record dated Nov. 12, 1963
+
+FILE: "Cuban Operations"
+
+STAFF:
+
+DATE: Kelley
+6/28/75

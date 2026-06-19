@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_23079.png
+
+Convert to MarkdownSECRET- EYES ONLY
+
+delivery either to Maceo, to Varona, or to Varona's con-in-law.
+Evidently Harvey and Roselli had not yet come to trust each other.
+Perhaps fearing a double-cross, each set about independently to
+assure himself that the equipment reached the proper hands. After
+parking the truck, Harvey and Shackley kept the parking lot under
+surveillance until the pass was completed. Roselli, accompanied by
+O'Connell, did the same. Neither pair knew that the other was
+watching. Eventually the truck was picked up and driven away. It
+was returned later, empty, and with the keys under the seat as
+prearranged. Harvey returned it to the rental agency. Harvey says
+that Shackley never knew to whom delivery was made nor for what
+purpose. Shackley was merely called upon to furnish support for a
+headquarters operation from which he was otherwise excluded.
+
+May 1962
+
+Harvey and Roselli arranged a system of telephone communication,
+by which Harvey was kept posted on any developments. Harvey, using a
+pay phone, could call Roselli at the Friars Club in Los Angeles at 1600
+hours, Los Angeles time. Roselli could phone Harvey at Harvey's home
+in the evening. Roselli reported that the pills were in Cuba and at
+the restaurant reportedly used regularly by Castro.

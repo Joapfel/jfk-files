@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_24504.png
+
+Convert to Markdown"Q. Was it your intent to circumlocutiously or otherwise, to advise the Attorney General that you were in the process of trying to kill Castro?
+
+Mr. Bissell: [U]nless I remembered the conversation at the time, which I don't, I don't have any recollection as to whether that was my intent or not." (Bissell, 7/22/75, p. 56).
+
+Bissell proceeded to speculate that a "proper" briefing might not
+have included any reference to the assassination plot. (Bissell, 7/22/75,
+p. 59). He gave two reasons for this speculation: (i) even if he had
+"thoroughly briefed" the Attorney General he would have chosen "circumlocutious"
+language to tell him about the activity involving Giancana. (Bissell, 7/22/75,
+pp. 53-56); and (ii) the assassination effort had been "stood down by then."
+(Bissell, 7/22/75, p. 59). Bissell concluded by reiterating that he had "no
+knowledge" that the Attorney General was "specifically advised" of the
+assassination plot against Castro (Bissell, 7/22/75, p. 62).*
+
+e. CONVERSATION BETWEEN PRESIDENT KENNEDY AND GEORGE SMATHERS
+
+George Smathers, former U.S. Senator from Florida, testified that the
+subject of the possible assassination of Castro arose in a conversation between
+Smathers and President Kennedy on the White House lawn in 1961.** Smathers
+
+* If the FBI quotation of Edwards is to be accorded significant weight, then it is important to note that another section of it contradicts Bissell's assumption that Presidents Eisenhower and Kennedy had been circumlocutiously advised by Dulles of the assassination plot. Edwards told the FBI that "Allen Dulles was completely unaware of Edwards' contact with Maheu" in connection with Cuban operations.
+
+Bissell's explanation for Edwards' statement was that Edwards was being "protective" of the DCI. (Bissell, 7/17/75, p. 20). But this testimony must be reconciled with Bissell's previous testimony that Dulles knew of the operation and probably would have told the President about it.
+
+** Smathers' testimony about this conversation referred to the transcript of an Oral HIstory interview, conducted on March 31, 1964, in which his testimony was based gives an indication that the conversation transpired in 1961, before the Bay of Pigs invasion in mid-April.
+
+It appears from the White House logs of Presidential meetings that there were
+only two occasions in 1961 when Senator Smathers met with the President alone for
+as much as twenty minutes. Both of those meetings took place in March. (Supra,
+p. ).

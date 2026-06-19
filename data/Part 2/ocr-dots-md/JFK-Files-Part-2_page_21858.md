@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_21858.png
+
+Convert to MarkdownHowever, his cables indicate that he was planning to continue to implement the operation and sought the resources to do it successfully. He urged headquarters to send him an alternate operative for the assassination mission in the event that they found his first choice unacceptable:
+
+IF HQS BELIEVE [AGENT'S CIRCUMSTANCES] BAR HIS PARTICIPATION, WISH STRESS NECESSITY PROVIDE STATION WITH QUALIFIED THIRD COUNTRY NATIONAL. (CIA Cable IN 24171, Leopoldville to Tweedy, 10/7/60.)
+
+Tweedy cabled the Chief of Station the same day that he "HAD GOOD DISCUSSION YOUR COLLEAGUE 7 OCT" -- presumably referring to a de-briefing of Gottlieb upon his return to the United States. (CIA Cable OUT 78336), Tweedy to Leopoldville, 10/7/60.) Tweedy indicated that he was
+
+CONSIDERING DISPATCHING THIRD COUNTRY NATIONAL OPERATOR WHO, WHEN HE ARRIVES, SHOULD THEN BE ASSESSED BY YOU OVER PERIOD TO SEE WHETHER HE MIGHT PLAY ACTIVE OR CUTOUT ROLE ON FULL TIME BASIS. (CIA Cable OUT 78336, Tweedy to Chief of Station, 10/7/60.)
+
+This expression of support for the operation was followed by an extraordinary pair of cables from headquarters on October 15, 1960. One of these cables was issued by a desk officer in CIA's Africa Division and released under Bronson Tweedy's signature, as Division Chief, and sent to Leopoldville through standard CIA channels, which would allow for distribution of the message to

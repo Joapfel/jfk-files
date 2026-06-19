@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_24095.png
+
+Convert to MarkdownTOP SECRET
+
+the doctrine to the internal decision-making process of
+the Government is absurd. Any theory which, as a matter
+of doctrine, places elected officials on the periphery of
+the decision-making process is an invitation to error, an
+abdication of responsibility, and a perversion of democratic
+government.
+
+(b) The Dangers of Using "Circumlocution" and "Euphemism"
+
+According to Richard Bissell, the extension of plausible denial to internal decisionmaking required the use of circumlocution and euphemism in speaking with Presidents and other senior officials.
+
+Explaining this concept only heightens its absurdity.
+On the one hand, it assumes that senior officials should be
+shielded from the truth to enable them to deny knowledge if
+the truth comes out. On the other hand, the concept assumes
+that senior officials must be told enough, by way of double
+talk, to grasp the subject. As a consequence, the theory
+fails to accomplish its objective and only increases the
+risk of misunderstanding. Subordinate officials should des-
+cribe their proposals in clear, precise, and brutally frank
+language; busy superiors are entitled to and should demand
+no less.
+
+Euphemism may actually have been preferred--not because

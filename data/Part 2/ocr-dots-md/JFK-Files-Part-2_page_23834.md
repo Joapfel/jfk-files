@@ -1,0 +1,87 @@
+# JFK-Files-Part-2_page_23834.png
+
+Convert to Markdown1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+the first sentence in No. 1, and after we say the external
+and internal controls, the oversight committee should require an
+annual report of all proprietaries by the CIA, including an
+internal CIA audit and all intercessions that the CIA may have
+made on behalf of proprietaries.
+
+Mr. diGenova! That's it, that's all in one sentence. We
+can fix that.
+
+Mr. Aaron. All right. We'll take Joe's fix.
+
+Mr. Kirbow. In three I am not sure what you mean, "In the
+DCI's budget presentation." That almost has a word of art
+connotation in the Senate. A budget presentation is that
+thing which the Secretary of Defense and the Director of the
+CIA makes to the Appropriations Committee.
+
+Mr. diGenova. We are talking about an authorization,
+aren't we, an annual authorization here?
+
+Mr. Inderfurth. Look on page 26 and you'll see the
+definition of that under (b). The DCI shall have responsibility
+for preparing the budget of the national intelligence program
+for presentation to the President and the Congress. This
+is the budget presentation that's being referred to under
+this.
+
+Mr. Kirbow. Well, now you come to the real question,
+proprietaries being listed in the DCI's budget presentation.
+Most of his proprietaries neither use any money up nor make
+any money or anything. They are just shelf items.
+
+TOP SECRET
+
+HW 50955 DocId:32423513 Page 59

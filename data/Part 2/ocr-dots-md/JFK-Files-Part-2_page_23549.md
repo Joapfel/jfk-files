@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_23549.png
+
+Convert to MarkdownDRAFT RECORD OF ACTIONS
+
+483rd NSC Meeting
+(5/5/61)
+
+## 1. U. S. POLICY TOWARD IRAN
+
+Agreed that a Task Force should be established under the Assistant Secretary of State for Near Eastern Affairs to prepare and circulate a report on the subject by May 15 for discussion by the Council on May 19.
+
+## 2. U. S. POLICY TOWARD KOREA
+
+Agreed that a Task Force under the Assistant Secretary of State for Far Eastern Affairs should be established to prepare and circulate a report on the subject by May 15 for discussion by the Council on May 19.
+
+## 3. U. S. POLICY TOWARD CUBA
+(NSC Action No. 2413-c; Memo for NSC, same subject, dated May 4, 1961)
+
+a. Agreed that U. S. policy toward Cuba should aim at the downfall of Castro, and that since the measures agreed below are not likely to achieve this end, the matter should be reviewed at intervals with a view to further action.
+
+b. Agreed that the United States should not undertake military intervention in Cuba now, but should do nothing that would foreclose the possibility of military intervention in the future.
+
+- 1 -
+
+TOP SECRET

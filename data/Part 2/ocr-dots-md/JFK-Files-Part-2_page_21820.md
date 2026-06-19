@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_21820.png
+
+Convert to MarkdownTOP SECRET
+
+60
+
+1 clearance is obtained on them, they are delivered to me for
+2 me to handle and train and what have you.
+
+3 Mr. DeMarco. I see.
+
+4 Were any of those Americans?
+
+5 Mr. Sarno. No, I never spotted any Americans. There
+6 were two Americans over there who were already working, and they
+7 were given to me to use as, to handle some of the other ones
+8 that were involved.
+
+9 Mr. DeMarco. Were they also involved in the same type of
+10 cover you were, gambling?
+
+11 Mr. Sarno. No. They were not in the same cover. As I
+12 say, it was a cover provided by the Agency. It was a cover I
+13 just naturally stumbled into since I was going to the
+14 different casinos and I was winning money there and I could
+15 pass myself off as a tourist-gambler.
+
+16 Mr. DeMarco. These other two Americans you were talking
+17 about, can you name them?
+
+18 Mr. Sarno. Well, I'll give you the name. One I would
+19 name, because I was not involved with the other one very long.
+20 One's name is Emelio Rodriquez, but he is dead now.
+
+21 Mr. DeMarco. He was an American?
+
+22 Mr. Sarno. Yes, he died of a heart attack. And the
+23 other was Julian.
+
+24 Mr. DeMarco. Julian?
+
+25 Mr. Sarno. Julian. I don't recall the last name, but he
+
+TOD SECRET
+
+HW 50955 DocId:32202440 Page 52

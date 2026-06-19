@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_21309.png
+
+Convert to MarkdownMC 97-71
+
+SECRET
+
+Police put a surveillance on WERBELL and SMITH, which apparently was rather obvious. The police also monitored their telephone conversations. Subsequently, the Judicial Police advised CIA that SMITH had made one telephone call to MARIO GARCIA KOHLY in Washington, D.C., and another to a man by the name of DIGGS or BRIGGS in Washington, D.C. He also made a telephone call to Handy of Jones and Handy, Marine Architects, Miami, Florida. SMITH received a telephone call which was reported as having been from ARNOLD in Washington but TAYLOR stated that CIA believes it was from FRANK AUSTIN, who he said is connected with MARIO GARCIA KOHLY in Washington.
+
+WERBELL tried to make telephonic contact with FRANK MARSHALL, Minister of Public Security of Costa Rica.
+
+In telephone calls made just prior to 8-20-62 mention was made of meeting someone referred to only as "the general" at the Hotel El Salvador, San Salvador, El Salvador. According to TAYLOR, CIA does not believe the meeting took place in San Salvador as planned. TAYLOR had previously mentioned on 8-13-62 that when WERBELL and SMITH first contacted MIGUELITO YDIGORAS during early August, 1962, they stated they were waiting for PINEIRO and seemed to think PINEIRO was someone YDIGORAS would know. They stated they would contact him as soon as PINEIRO arrived. TAYLOR advised on 9-10-62 that it had been ascertained that Colonel JOSE PINEIRO PAEZ was apparently the one they were expecting.
+
+TAYLOR stated that the telephone conversation between SMITH, WERBELL and the individuals they were talking to were apparently cryptic and the Judicial Police obtained little more than the identities of the individuals making the calls.
+
+SECRET
+
+SECRET

@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_24099.png
+
+Convert to MarkdownApproved by
+Drafting
+Subcommittee
+
+10/8/75
+
+(with possible reservation
+as to language of statute)
+
+V. RECOMMENDATIONS
+
+During our long investigation of assassination, a number of vital issues came into sharp focus.
+
+Above all, stood the question of assassination. Our recommendations on other issues should await the completion of our continuing investigations and our final report. But we need no more information to convince us that a flat ban against assassination should be written into law.
+
+We condemn assassination and reject it as an instrument of American policy. Surprisingly, at present there is no statute making it a crime to assassinate a foreign official outside the United States. Hence, for the reasons set forth below, the Committee recommends the prompt enactment of a statute making it a Federal crime to commit or attempt an assassination, or to conspire to do so.
+
+A. General agreement that the United States must not engage in assassination. Our view that assassination has no place in America's arsenal is shared by the Administration.
+
+President Ford, in the same statement in which he asked this Committee to deal with the assassination issue, stated:
+
+> I am opposed to political assassination. This administration has not and will not use such means as instruments of national policy. Presidential Press Conference, June 9, 1975, Weekly Compilation of Presidential Documents, Vol. II, No. 24, p. 611.
+
+The witnesses we examined uniformly condemned assassination. They denounced it as immoral, described it as impractical, and reminded us that an open society, most of all, runs the risk of the assassination of its own leaders. As President Kennedy was reported to have said: "we can't get into that kind of thing, or we would all be targets." (Goodwin 7/18/75, p. 4)
+
+The current CIA Director and his two predecessors testified emphatically that assassination should be banned. Thus, Colby said:

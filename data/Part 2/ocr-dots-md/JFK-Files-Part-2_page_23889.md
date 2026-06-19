@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_23889.png
+
+Convert to Markdown1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+
+12
+13
+14
+
+15
+16
+17
+18
+19
+
+20
+21
+
+22
+23
+24
+25
+
+Senator Tower. What if we got a freelancer for Time Magazine who is indeed a foreign national? Does he come under this prohibition?
+
+Senator Huddleston. If he has some regular association with Time he would be.
+
+Mr. Aaron. Under the Agency's current regulations and own prohibitions, a foreign journalist working for Time Magazine oversees would be prohibited from being used by them for operational purposes. That is their own position today. This would extend that prohibition to someone who is, what in the trade jargon is a stringer, or --
+ Senator Tower. This would include a stringer?
+ Senator Schweiker. It wouldn't cover Reuters or some other foreign news service.
+
+Mr. Aaron. It would also apply to a foreigner who was, for example, if there were such a thing as an editor in the Paris Bureau of Time Magazine. I don't think they work that way, but say there were such a person, it would apply to him as well.
+
+Senator Tower. What about the Paris Trib? What about that?
+
+Mr. Aaron. A U.S. media organization.
+
+Mr. Kirbow. It is excluded.
+
+Senator Schweiker. That is a subsidiary of an American company.
+
+TOP SECRET
+
+WARD & PAUL
+
+HW 50955 DocId:32423521 Page 34

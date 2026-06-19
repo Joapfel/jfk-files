@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_22860.png
+
+Convert to Markdown410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+7690130517
+
+Phone (Area 202) 544-6000
+
+TOP SECRET
+
+Mr. Schwarz. Would you give a copy of the other document,
+the Parrott document, to all the Senators too?
+
+And finally, as Bundy Exhibit 3B a memorandum which we
+have retyped from an indistinct original dated October 5,
+1961 For the Record, Subject: Cuba, signed by Mr. Parrott.
+And the indistinct original is attached.
+
+ Document referred to is marked as
+Bundy Exhibit No. 3B for identification)
+
+TOP SECRET
+
+HWP 50933 DocuID:52423400 Page 70

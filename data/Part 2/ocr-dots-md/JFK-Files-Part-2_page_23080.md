@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_23080.png
+
+Convert to MarkdownLa Agencia Central de Inteligencia(CIA) de Estados Unidos, ha jugado el papel principal en la historia de las agresiones contra Cuba, promoviendo, organizando, financiando y en muchos casos dirigiendo acciones vandálicas, no sólo contra el territorio cubano sino también contra nuestras representaciones e intereses en países extranjeros o en aquas-internacionales.
+
+En esta amplia gama de actividades desplegadas por la CIA, y demás órganos subversivos de Estados Unidos contra nuestro país, se destacan por su peligrosidad, los reiterados planes dirigidos a la eliminación física de los principales dirigentes de la Revolución y, en especial, contra la figura de nuestro Primer Ministro.
+
+Las pruebas que aportamos evidencian -- que, desde 1959, éste ha sido uno de sus objetivos principales, mediante el em-pleo de los más variados métodos técnicos de precisión. En los casos de agentes radicados en el exterior, les han facilitado medios de traslación y comunicación.
+
+The United States Central Intelligence Agency (CIA) has played the leading role in the history of the agressions against Cuba, promoting, organizing, financing, and, in many cases,--- directing vandalic actions, not only against the Cuban territory, but also against our --- representations and interest in foreign countries, or in international waters.
+
+In this wide variety of activities carried out by the CIA and by other United States --- subversive bodies against our country, the --- reiterated plans toward the physical elimination, of the principal leaders of the Revolu- tion, and specially, against our Primer Minis-ter, stand out because of their dangerousness.
+
+The proofs we provide, evidence that, since - 1959, this has been one of its major aims, by using the most varied technical precision --- methods. In the case of agents living abroad, they have been given means of transportation-and communication.

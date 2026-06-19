@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_21271.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+NOFORN/CONTINUED CONTROL
+
+- 5 -
+
+CS-3/416,495
+
+open rebellion in Pinar del Rio under Luis LARA Crespo, a former corporal of the BATISTA army. Among the leaders of the group was one Fernando PRUNA Blanco, who was said to be held in the Castillo Prison at the time. [PRUNA Blanco] (fnu) may be a relative of or identical with Fernando PRUNA Blanco.
+
+8. Identified by Source as the brother of Angel NAVARRO, previously reported as co-ordinator of a group of counter-revolutionaries in Miami.
+
+9. On 22 September 1959 source reported that this army drop had been scheduled between 8 and 10 p.m. on 25 September 1959.
+
+10. Source did not know the size of any of the groups.
+
+11. This probably refers to Dr. Francisco RODRIGUEZ Couceiro, reported by a usually reliable source in July 1959 to be a leader, together with one Jose Luis PUJOL, of a Cuban counter-revolutionary movement. [RODRIGUEZ Couceiro] (s) was reported by the same source to be a first cousin of Francisco RODRIGUEZ Tamayo, aka "El Mejicano" (the Mexican). The Habana telephone directory lists a Dr. Francisco RODRIGUEZ Couceiro, a lawyer, at Pasco No. 652, Habana.
+
+12. Morgan and GUTIERREZ are two Cuban Rebel Army majors who penetrated the conspiracy that was smashed in August 1959.
+
+13. The Habana telephone directory lists a Union Club at San Lazaro No. 12, Habana.
+
+14. This is possibly a reference to Dr. Valentin ARENAS Arminan, reported in July 1949 by a usually reliable source as the notary handling the purchase of the Banco Ultramar for Spanish pro-Franco interests. The Banco Ultramar was later absorbed by the Banco Continental Americano, now known as the Banco Continental Cubano.
+
+15. The Habana telephone directory lists a Jose I. RASCO at Avenida 31 No. 7406, Marianso.
+
+16. The Habana telephone directory lists a Banco Trust Company of Cuba with main offices at Obispo No. 257, Habana.
+
+17. This is possibly a reference to Enrique LLACA Orbiz, reported in the Habana press on 18 June 1959 as an executive of the Julio LOBO organization and former newspaper business manager who was released by Cuban Government authorities on 16 June. [LLACA] and his son, Dr. Enrique LLACA, Jr. had been held on charges of conspiracy. A United Press report dated 24 July 1959 at Santiago, Chile, said that Enrique LLACA Orbiz, a lawyer and one-time economic editor of Diario de la Marina, had arrived in Chile as an exile.
+
+18. This is possibly a reference to Guillermo BELT, former Cuban Ambassador to the United States under BATISTA.
+
+19. Wealthy Cuban businessman with large sugar interests.
+
+20. Wealthy Cuban businessman with large-sugar-interests.
+
+S-E-C-R-E-T
+
+NOFORN/CONTINUED CONTROL
+
+HW 50953 DocId:32325941 Page 5

@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_24286.png
+
+Convert to MarkdownTABLE II
+
+ACTIVE MAJOR HEADQUARTERS CONTROLLED PROPRIETARIES
+FINANCIAL CONDITION AND SUMMARY OF FUNDING, INCOME
+AND EXPENSES FOR TWELVE MONTH PERIODS SHOWN BELOW
+PER AGENCY RECORDS 30 JUNE 1975
+
+<table><thead><tr><th rowspan="2"></th><th colspan="4">WUDIRK</th><th>LPBYSAS/15</th><th colspan="2">LPPANDA</th><th>(Consolidated)</th></tr><tr><th>QRMYSTIC/<br/>QRCYNIC</th><th>WUXIPHOID</th><th>WURACH</th><th>WUKNOX</th><th>LPHCCUS</th><th>LPCAIR/A</th><th>LPREMEDY</th><th>MUTUAL</th><th>LESGUAR</th></tr></thead><tbody><tr><td>ASSETS</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Cash</td><td>$ 3,974</td><td>$ 17,757</td><td>$50,525</td><td>$50,000</td><td>$ 7,000</td><td>$ 7,954</td><td>$ 2,770</td><td>$ 7,518</td><td>$ 177,158</td></tr><tr><td>Investments</td><td></td><td></td><td></td><td></td><td></td><td>385,984</td><td></td><td></td><td>29,577,012</td></tr><tr><td>Other Assets</td><td>500</td><td>2,296</td><td></td><td></td><td>24,348</td><td>37,581</td><td></td><td>13,172</td><td>1,531,515</td></tr><tr><td>Fixed Assets</td><td>627</td><td>11,074</td><td></td><td></td><td></td><td>1,636</td><td></td><td>1,826</td><td>60,453</td></tr><tr><td>Total Assets</td><td>$ 5,101</td><td>$ 31,127</td><td>$50,525</td><td>$50,000</td><td>$31,100</td><td>$33,155</td><td>$ 2,770</td><td>$ 22,546</td><td>$31,355,435</td></tr><tr><td>LIABILITIES</td><td>$ 11</td><td>$ -0-</td><td>$ -0-</td><td>$ -0-</td><td>$ 2,700</td><td>$ 3,766</td><td>$ -0-</td><td>$ 10,831</td><td>$17,243,754</td></tr><tr><td>NET WORTH</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Investments</td><td>$79,657</td><td>$296,000</td><td>$50,525</td><td>$50,000</td><td>$945,000</td><td>$112,832</td><td>$376,345</td><td>$116,081</td><td>$ (xx)</td></tr><tr><td>Gains &amp; (Losses)</td><td>(74,567)</td><td>(264,873)</td><td></td><td></td><td>(9

@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_19451.png
+
+Convert to MarkdownFBI
+
+Date: 1/16/68
+
+Transmit the following in
+(Type in plaintext or code)
+
+Via AIRTEL AIR MAIL
+(Priority)
+
+<table><tr><td>TO :</td><td>DIRECTOR, FBI</td></tr><tr><td>FROM:</td><td>SAC, KANSAS CITY (100-12409) RUC DEMONSTRATION PROTESTING UNITED STATES POLICY IN VIETNAM, WASHINGTON, D. C.</td></tr><tr><td colspan="2">1/8/68 INFORMATION CONCERNING (INTERNAL SECURITY)</td></tr><tr><td colspan="2">Re Kansas City tel 1/15/68.</td></tr><tr><td colspan="2">Enclosed for the Bureau are eleven copies of letterhead memo concerning captioned demonstration.</td></tr><tr><td colspan="2">Two copies are furnished Philadelphia, office of origin of WILPF and two copies furnished to WFO.</td></tr><tr><td colspan="2">Indices of the Kansas City Division contain no references for the names appearing in letterhead memo.</td></tr></table>
+
+3 - Bureau (Encs. 11)(RM)
+2 - WFO (Encs. 2)(RM)
+2 - Philadelphia (Encs. 2)(1-100-9882)(RM)
+1 - Kansas City
+
+GAA:pe
+(8) U. C. Bishop
+
+AGENCY: G-2, ONI, OSI, SEC. SER., 1/7/6
+
+RAO (ISD, CRD, CO)
+
+DATE FORW: 1-17-68
+HOW FORW: 1-20-68
+BY: 1/24/68 H/L
+
+Approved: ________ Sent: ________ M Per: ________
+
+3 JAN 22 1968
+
+Special Agent in Charge
+
+NW 88321 DocId:32989544 Page 332

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_23256.png
+
+Convert to Markdown# TOP SECRET
+
+Mr. Baron. Would it have been proper for the Chief of Staff D to arrange an operation in the Congo directly without going through the African Division although keeping the African Chief informed?
+
+Mr. Tweedy. Well, the two are mutually exclusive. You can't have one without the other. To answer your first question, it would be quite improper and wouldn't have occurred that the Chief of Staff D was operating in an African Station without the African Division being informed. This, however, makes it amply clear that that was not the case, the African Division was informed. In what depth in terms of terms of headquarters purposes I don't know but it would have been sufficient for Harvey to have done what he did and coordinate this with the Division and if the Division had perceived any objection or saw any problems they would have raised it before the dispatch went out.
+
+Also I noticed Dakar is also invited to find problems with this, if it did, and say so.
+
+Mr. Baron. What kind of missions generally would Staff D have been carrying out in Africa at this time?
+
+Mr. Tweedy. Well, you know what the role of Staff D was.
+
+Mr. Baron. This would be obtaining codes by surreptitious entry.
+
+Mr. Tweedy. This is in effect the obtaining of signals
+
+TOP SECRET
+
+HW 5095

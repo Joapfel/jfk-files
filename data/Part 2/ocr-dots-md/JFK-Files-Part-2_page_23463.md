@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_23463.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+12 August 1960
+
+MEMORANDUM FOR THE RECORD
+
+SUBJECT: Minutes of Special Group Meeting - 11 August 1960
+
+PRESENT: Messrs. Merchant, Gray, Dulles, and Bissell
+
+2. Budget for Cuban Operations: Mr. Bissell summarized the budget which had been prepared as a basis for seeking a release from the Reserve to finance Cuban operations for the balance of the fiscal year. The budget for the year totals approximately thirteen and a quarter million dollars, not including provision for the replacement of material with an estimated value of 1.6 million dollars to be withdrawn from Agency inventory. Since 2.5 million dollars of budgeted and Reserve funds have been made available for this program by an earlier action, the balance required is about ten and three-quarters million dollars. Mr. Dulles stated that a release of ten million would be requested at this time since there is inevitably a wide margin of uncertainty as to what the actual costs will turn out to be. Mr. Bissell stated the amounts required by major sub-headings as follows:
+
+Political Action $ 960,000.00
+Propaganda 2,152,120.00
+Paramilitary 8,055,753.00
+Intelligence Collection 833,200.00
+Counter Intelligence 325,400.00
+Communications Support 229,420.00
+Support 731,718.00
+$ 13,287,611.00 Total
+
+THIS DOCUMENT IS
+A SOURCE OF INFORMATION
+IN CODE.
+PAPER NO. 220
+
+EYES ONLY
+
+SECRET
+
+PROPRIETARY
+THE WHITE HOUSE OFFICE
+
+HW 50955 DocId:32423488 Page 36

@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_21249.png
+
+Convert to Markdown~~TOP SECRET~~
+
+personnel. He described [SHAFFER] as head of the Sergeants at American House who was spying on the Russian agents in American House and giving KGB trouble. The KGB, therefore, used some "medicine" against him to make him leave. This was done by placing the "medicine" in his bed. This caused an illness which the doctors did not diagnose. NOSENKO thought [SHAFFER] left Moscow in 1960. The case officer working against him was VLADIMIR DEMKIN.
+
+FBI files indicate that [SHAFFER's U. S. Army Attache] and security files were reviewed on May 6, 1963. They disclosed that he arrived in Moscow May 8, 1958, and was assigned duties as manager of American House. He was scheduled to leave Moscow May 7, 1960, but got an extended tour for another year. However, he left April 10, 1961, before the year was up as he was suffering from erysipelas with severe skin rash, swelling about the face and a temperature. It was noted that [SHAFFER] had excellent efficiency ratings and had been commended for his assistance to the exhibit manager of the American National Exhibition in Moscow.
+
+This also is considered as significant indication that NOSENKO is furnishing information from personal knowledge and not from KGB briefing.
+
+~~TOP SECRET~~
+
+241
+
+HW 50953 DocId:32318825 Page 135

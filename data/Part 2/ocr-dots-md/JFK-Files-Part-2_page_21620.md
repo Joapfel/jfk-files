@@ -1,0 +1,61 @@
+# JFK-Files-Part-2_page_21620.png
+
+Convert to Markdown1. Mr. Phillips. There is no question that I could understand why anyone concerned with world affairs, looking at Chile and what was happening there, would be concerned.
+
+2
+
+3
+
+4
+Salvadore Allende made his first statement saying that he was a Socialist and wanted to change the order some 32 years before he was elected.
+
+5
+
+6
+
+7
+Over the years he made it quite clear that he was an ardent socialist. Before this decision was made I believe that we had a visit from a man who had the code name of *Ariel*, he was a Cuban intelligence officer. The Cubans were moving in rapidly. The influence was great. I think that they saw a lot at stake, another Cuba in Latin America type of thing, the same thing perhaps that motivated President Johnson to send 22,000 rather than 400.
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+So, I can understand why they thought this was going, in the long strategic sense, in the long range against our interests. But that is an assumption.
+
+16
+
+17
+
+18
+It is true that Allende very definitely made it clear that he wanted to turn Chile into a Marxist state. The difference was that Allende refused to take Fidel Castro's advice and use violence. As I understand it, Fidel Castro went to Chile and said, if you want your revolution to last you are going to have to use violence.
+
+19
+
+20
+
+21
+
+22
+
+23
+
+I found it interesting to read in this morning's paper where someone from Portugal came back from Cuba and said,
+
+24
+
+25
+
+TOP SECRET
+
+HW 50955 DocId:32282005 Page 10

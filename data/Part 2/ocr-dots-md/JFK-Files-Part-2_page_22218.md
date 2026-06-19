@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_22218.png
+
+Convert to Markdown**PERSONS/ENTITIES:**
+
+WALT ELDER, RFK, GENERAL LANSDALE
+MCGEORGE BUNDY, BRUCE CHREVER (CIA)
+
+**DATES:**
+9/14/62
+
+**CATEGORIES:**
+MONGOOSE
+Special Group Augmented
+
+## OCCURRENCE:
+
+This memorandum reports that the ATTORNEY GENERAL "expressed concern that activities by certain Cuban exiles are reaching the point where the government may be forced to take action against them rather than to simply state that "we are investigating." The agency is requested to see what it can do to help the noise level of these activities.
+
+TOP SECRET
+
+**SOURCE:**
+Memorandum for the record on MONGODB meeting. 14 Sept 1962
+Walt Elder (00818)
+FILE: Cage
+
+**STAFF:**
+PGW
+DATE:
+
+June 30, 1975
+
+---

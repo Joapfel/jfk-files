@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_23062.png
+
+Convert to Markdown# TOP SECRET
+
+1 were connected with CIA is news to you?
+
+2 Mr. Halley. Well, no, I would not say that. If you had
+3 Gutierrez Menoyo sitting here and if he were to say in 1962 I
+4 attempted to shoot Fidel Castro, that is Gutierrez Menoyo did
+5 this, I would have no reason to doubt. I would have no basis
+6 for proving it, either.
+
+7 Mr. Baron. You have never heard of these alleged assassina-
+tion attempts before?
+
+8 
+
+9 Mr. Halley. No.
+10 
+
+Morgan's name I would have to do a file trace to get myself
+11 back up to date. Morgan did get himself in trouble with Fidel
+12 over some issue, as I recall was in prison. I do not recall,
+13 remember if he was executed, although this says he was executed.
+
+14 Mr. Baron. What about the last name on the list,
+
+15 Antonio Veciana?
+16 
+
+Mr. Halley. That is a name that rings a bell with me, but
+17 I do not attach anything to it. In other words, it is a name
+18 I have probably read in various and sundry kinds of reports.
+19 I remember no operational relationship with him between the Miami-
+20 Station and this man during my tenure in Miami.
+
+21 Mr. Baron. During your tenure, would you have been in a
+22 position to know that these people had led assassination
+23 attempts against Castro, if that were indeed the fact?
+
+24 Mr. Halley. Not necessarily. I would say that the odds
+25 would have been high that we would have, particularly, say
+
+TOP SECRET

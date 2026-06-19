@@ -1,0 +1,68 @@
+# JFK-Files-Part-2_page_21816.png
+
+Convert to MarkdownTOP SECRET
+
+1 Mr. Sarno. Never.
+
+2 Mr. Wides. No discussion in those reports--
+
+3 Mr. Sarno. Never once did they write up about Puerto
+Rican political affairs. I never once saw a report.
+
+4
+
+5 Mr. Wides. Did you ever have any discussion with San
+Jenits or anyone involved in the Puerto Rican Cuban community about
+Puerto Rican affairs?
+
+6
+7
+
+8 Mr. Sarno. Never.
+
+9 Mr. Wides. Was there a station operating at that time for the Caribbean in Puerto Rico?
+
+10
+
+11 Mr. Sarno. No, sir.
+
+12 Mr. Wides. During the entire period, '61 til about '67?
+
+13 Mr. Sarno. To my knowledge, there wasn't. There was not a station.
+
+14
+
+15 Mr. Wides. Do you want to go ahead?
+
+16 Mr. DeMarco. Just a couple.
+
+17 You mentioned, or it was touched upon earlier, the
+period of time you were actually in Cuba, 1961.
+
+18
+
+19 Mr. Sarno. '60 and '61.
+
+20 Mr. DeMarco. What requirements were levied upon you when
+you left to go to Cuba?
+
+21
+
+Mr. Sarno. None.
+
+22 Mr. DeMarco. Well, you'd better explain that. I don't
+understand that answer at all. You just went on a vacation?
+
+23
+
+24 Mr. Sarno. I was transferred from a foreign country to
+
+25
+
+Ward & Paul
+
+410 First Street, S.E., Washington, D.C. 20003
+
+HW 50955 DocId:32202440 Page 48
+
+TOP SECRET

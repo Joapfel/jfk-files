@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_23243.png
+
+Convert to Markdown# TOP SECRET
+
+47
+
+existing conditions this should be a high priority of out
+covert action, close quotes, -- is that consistent with the
+policy towards Lumumba as you recall it?
+
+In other words,that Lumumba's removal was a prime objec-
+tive of the covert actions of the Agency.
+
+Mr. Tweedy. We would have given our eye teeth to have
+Lumumba not the head of the Congolese state, certainly I would
+agree with that.
+
+Mr. Baron. As Exhibit 2, let's turn to a cable dated
+September 16, 1960.
+
+(The document referred to was
+marked Tweedy Exhibit No. 2
+for identification.)
+
+TOP SECRET

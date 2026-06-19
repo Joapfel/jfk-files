@@ -1,0 +1,57 @@
+# JFK-Files-Part-2_page_23212.png
+
+Convert to Markdown1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+Mr. Dawson. I know that you have indicated you won't be able to put a precise date to this conversation with Bissell or conversations with Bissell, but maybe we can narrow it down a little bit.
+
+Would you assume that it would be after the proclamation of the Congolese independence on June 30, 1960?
+
+Mr. Tweedy. Oh, yes.
+
+Mr. Dawson. Would you assume it would be before Lumumba's being put into U.N. protective custody on September 15, 1960?
+
+Mr. Tweedy. I think it must have been, yes. I didn't realize he had gone into custody that early.
+
+Mr. Baron. So then it would be sometime during the summer or early fall of '60?
+
+Mr. Tweedy. What happened to Lumumba after that?
+
+Mr. Baron. He was in protective custody at the United Nations force from mid-September until late November and it was in late November that he left to go traveling towards Stanleyville and he was captured by Mobutu's troops at that point in very early December and from early December until mid-January he was in the custody of the Congolese in prison and then it was in mid-January 1961 that he was flown from a prison in Tysville to Katanga where his death was announced shortly thereafter.
+
+Mr. Tweedy. That I recall. I have got to assume it
+
+TOP SECRET
+
+16
+
+TOP SECRET

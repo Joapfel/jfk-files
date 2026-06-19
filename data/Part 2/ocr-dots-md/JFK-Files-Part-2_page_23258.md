@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_23258.png
+
+Convert to Markdown# TOP SECRET
+
+What would these assets have been used for, what was the search for assets all about?
+
+Mr. Tweedy. I just do not know.
+
+Mr. Baron. Let's turn now to a document that we will mark Exhibit 6, dated January 11, 1961, which is a memo for the FN Division from William K. Harvey, Chief of FI Division D.
+
+In this memo I will direct your attention to the sentence that says in that cable COS Luxembourg was told to TA/A all OJWIN expenses to headquarters since OJWIN was being used for FID purposes."
+
+Do you know what FID purposes OJWIN was being used for?
+
+Mr. Tweedy. I don't know.
+
+Mr. Baron. The memo goes on to say that:
+
+"OJWIN was sent on this trip for a specifically sensitive operational purpose which has been completed".
+
+Were you informed by William Harvey that OJWIN's mission was completed?
+
+Mr. Tweedy. I don't recall that at all and don't recall any aspect of the mission or its completion.
+
+Mr. Baron. Okay.
+
+Did you know of an asset of the Chief of Station in the Congo known as WIROGUE, who was sent to the Congo after receiving plastic surgery so that he wouldn't be recognized by
+
+TOP SECRET
+
+LW 505

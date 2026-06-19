@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_23492.png
+
+Convert to MarkdownMEMORANDUM
+
+TOP SECRET
+
+TO: Files
+
+FROM: Frederick Baron
+
+DATE: July 5, 1975
+
+SUBJECT: SUMMARY OF INTERVIEW WITH GORDON GRAY
+
+GENERAL BACKGROUND
+
+1. Staff Responsibilities Under Eisenhower:
+
+Gray said that the structural chain of command ran directly from the DCI to the President during the Eisenhower administration. Allen Dulles was able to approach Eisenhower directly, rather than through Gray.
+
+Andrew Goodpaster staffed President Eisenhower on many of the same subjects that Gray worked on. Gray was responsible for long-range planning; Goodpaster was responsible for spot work. Gray said that Goodpaster and he kept each other "intimately informed". However, Gray said that any covert action program would go through him and not Goodpaster. "Although I would tell Goodpaster about anything I discussed with the President." Some covert action programs were extremely tightly held, for example, on the U-2 incident only the following people were knowledgeable: Eisenhower, Goodpaster, and John Eisenhower.
+
+"I didn't live with Eisenhower 24 hours a day. I don't know everything that he did. But I do think I knew every major decision, approval, or action of Eisenhower's."
+
+2. Special Group Function
+
+At the 54/12 committee, Gray said, "I represented the President's interest, that was my role."

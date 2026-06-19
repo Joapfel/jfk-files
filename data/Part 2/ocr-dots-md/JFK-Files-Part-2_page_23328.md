@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_23328.png
+
+Convert to MarkdownTOP SECRET
+
+55
+
+1. hadn't been passed and the assassination occurred.
+
+2. Now, after that review, were any steps taken to make, as
+a matter of more general, governmental policy, the policy which
+3.
+4. is expressed in the telegram you drafted at President Kennedy's
+ instruction?
+
+5. Mr. Goodwin. Not to my knowledge.
+
+6. (A brief recess was taken.)
+
+7. The Chairman. Do you have any more questions?
+
+8. Mr. Schwarz. I don't have any more questions.
+
+9. The Chairman. Do you have any other matters that you
+10. can tell us about the Trujillo assassination for our enlighten-
+ment?
+
+11.
+12.
+13. Mr. Goodwin. On the assassination?
+
+14. The Chairman. On the assassination.
+
+15. Mr. Goodwin. I don't think so, but let me read through
+16. all of this, and when I come back the next time, I might have
+17. something else, if I can find anything else in there -- I do
+18. think this is pretty complete.
+
+19. The Chairman. We will expect to hear you again early next
+20. week, on the Cuban phase of your testimony.
+
+21. Mr. Goodwin. And Duvallier.
+
+22. The Chairman. Mr. Dennin, they've been up all night,
+would like to ask two questions.
+
+23.
+24. Mr. Dennin. Well, when you said there were no more
+questions, I just raised the possibility and you discussed it
+
+TOP SECRET
+
+765041300011440001

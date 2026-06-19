@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_24417.png
+
+Convert to Markdown** Harvey said that he took over a "going operation" from Edwards (I.G., p. 42; Harvey, 6/25, p. 67) and emphasized that:
+
+> "I would like to make as clear as I can that there was no phase 1, phase 2 in this. This is an ongoing matter which I injected into . . . (Harvey, 6/25, p. 90).
+
+Continuity was provided by retaining O'Connell as the case officer for the project well into May 1962. During interviews for the Inspector General's Report, O'Connell recalled that there was "something going on" between the Bay of Pigs and Harvey's assumption of control, (I.G., p. 43). When testifying before the Committee, O'Connell firmly recalled several trips to Miami in the Fall of 1961, and "right up to the time I turned it over to Harvey I was in and out of Miami" (O'Connell, pp. 89-90).
+
+** Harvey had a long background in clandestine activities. He had conceived and carried out the Berlin tunnel operation (Harvey, 6/25, pp. 8-9), and served as Chief of the division, which was responsible for the surreptitious acquisition of code information (Harvey, 6/25, pp. 8-9).

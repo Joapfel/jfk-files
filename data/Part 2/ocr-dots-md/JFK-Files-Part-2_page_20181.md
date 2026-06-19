@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_20181.png
+
+Convert to MarkdownPH 100-53818
+
+Therefore, it is recommended that this investigation be discontinued. In this regard, it is noted that continued investigation of the SWP and/or the YSA should produce the desired data regarding their activities without taking the risk of embarrassment inherent in a continued investigation of WONAC,
+
+UACB, Philadelphia is RUC'ing this matter.

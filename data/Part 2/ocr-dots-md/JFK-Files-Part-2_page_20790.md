@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_20790.png
+
+Convert to MarkdownNY 100-174481
+
+"There were many members of the SWP and YSA at the conference, and SWPers and YSAers are among those who have worked most consistently for abortion repeal and to build the abortion conference...."
+
+NY T-5 advised on November 12, 1971, that a NY Planning Meeting of WONAAAC was held at LOEB Student Center, NY University, NY, on November 11, 1971, to lay plans for a scheduled November 20, 1971 demonstration in Washington, DC. According to this source, this meeting was completely dominated and controlled by members of the SWP.
+
+NY T-6 related on November 16, 1971, that the Upper West Side Branch of the YSA planned to send a contingent of its members to Washington, DC, on November 20, 1971; in order to participate in the planned demonstration there on that date.
+
+NY T-6 stated that practically all the members of the uptown branch of the YSA, NY, were expected to participate in this activity.
+
+NY T-5 related on January 20, 1972, that the scheduled November 20, 1971 march in Washington was "crucial" to all SWP and YSA branches in that it afforded an opportunity for selling of "The Militant" and other SWP/YSA literature, and also afforded an opportunity for "intervening " in the action via distribution of SWP Election Campaign literature.
+
+NY T-8 on February 11, 1972, and NY T-9 and NY T-10 on February 14, 1972, provided information that a WONAAAC convention was held February 11, 1972, to February 13, 1972, at Hayden Hall, Boston University, Boston, Massachusetts. The general theme of this convention was "How to Win Abortion Law Repeal". NY T-8 stated that approximately 30 members of the YSA or SWP Boston Chapters were observed in attendance at this convention.
+
+NY T-7 related on February 14, 1972, that because of the de-escalation of the Vietnam War by the NIXON Administration, the YSA-New York Local (NYL), while continuing on with anti-war work through the NY Student Mobilization

@@ -1,0 +1,101 @@
+# JFK-Files-Part-2_page_22817.png
+
+Convert to Markdown1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+# TOP SECRET
+
+## Senator Baker. Which documents?
+
+Mr. Bundy. Documents which the Committee staff has provided.
+
+Mr. Schwarz. We have them.
+
+Senator Baker. Tell me what they are.
+
+Mr. Schwarz. November 30, 1961, Tab -- is that Tab H or Tab 4 about the November 30, 1961, which authorizes MONGODB?
+
+Mr. Kelley. Tab 4.
+
+Mr. Schwarz. May 5, '62, Lansdale Tab 21.
+
+Senator Baker. Let's stop there, if I may.
+
+Do you have a copy of this memorandum, Mr. Bundy?
+
+Mr. Kelley. He will have it in a moment.
+
+Mr. Bundy. One place these documents did not go is into the memorabilia of former members.
+
+Mr. Kelley. We are talking about Tab 4.
+
+Senator Baker. Mine says, see Lansdale Tab 4.
+
+Mr. Kelley. Yes. November 30, 1961.
+
+Senator Baker. I would really prefer if someone gave Mr. Bundy a copy of the same material I am working on.
+
+Mr. Kelley. All right, that is the chronology.
+
+Mr. Bundy. November 30, 1961?
+
+Senator Baker. Yes, sir. It is on page 3, the third item.
+
+Mr. Bundy. I have it.
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+76500354174
+
+HW 50955 Docum:52423106 Page 33

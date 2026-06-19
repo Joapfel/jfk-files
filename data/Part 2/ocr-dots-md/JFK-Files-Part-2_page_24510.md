@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_24510.png
+
+Convert to Markdownoral instructions conveyed to Assistant Secretary of State Woodward*, a plan is
+desired for the indicated contingency."
+
+Related documents indicate that the subject matter of the contingency
+referred to in NSAM 100 was the "possible removal of Castro from the Cuban scene".
+
+(Bundy Ex 3A, Minutes of Special Group Meeting, October 6, 1961, p. 1.)
+
+The Minutes of the Special Group meeting on October 6, 1961, (the day after
+the issuance of NSAM 100) state that the Group was told that in addition to an overall
+plan for Cuban covert operations," a contingency plan in connection with the pos-
+sible removal of Castro from the Cuban scene" was in preparation. (Bundy, Ex 3A,
+Memorandum for the Record of Special Group meeting, October 6, 1961, p. 1.)
+
+In addition, a Memorandum for the Record by Parrott on October 5, 1961,
+states that Parrott informed Assistant Secretary Woodward's Deputy that "what was
+wanted was a plan against the contingency that Castro would in some way or other
+be removed from the Cuban scene". (Bundy, Ex 3B, p. 1.) Parrott's memorandum
+further stated that in preparing the plan, "the presence and positions of Raul
+(Castro) and Che Guevara must be taken into account", and that General Taylor had
+told Parrott he preferred "the President's interest in the matter not be mentioned"
+toト Woodward. (Bundy, Ex 3B.) Parrott's memorandum also stated that "on the
+covert side, I talked to Tracy Barnes in CIA and asked that an up-to-date report
+be furnished as soon as possible on what is going on and what is being planned".
+
+(Bundy, Ex 3B, p. 1.)
+
+*Woodward at that time was Assistant Secretary of State for Latin American Affairs.

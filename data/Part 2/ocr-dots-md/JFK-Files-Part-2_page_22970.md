@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_22970.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+TOP SECRET
+
+16
+
+have the date because the Agency has been researching all sorts
+of material for you. I feel that you would just have to get
+those dates for the record.
+
+Mr. Baron. We can do that.
+
+Would you say that every major operation that you undertook
+at JMWAVE would have been approved by the Special Group or at
+least they would have been put on notice of the nature of any
+major operation that you were planning?
+
+Mr. Halley. Why do you not define for me what you consider
+to be a major operation so we do not get into, you know, a
+problem? If you feel that you cannot do that, .. .
+
+Mr. Baron. Perhaps we can turn it around and say, could
+you characterize the kinds of operations generally that you
+would refer to this three-man group initially, in the Special
+Group later, for their approval, or at least to put them on
+notice, .. the kinds that you might not refer and instead proceed
+unilaterally?
+
+Mr. Halley. Initially, the three-man group was seized
+with the problem of conducting the survey of what could be
+done against Cuba. As soon as that was more or less agreed
+upon, my understanding of this, as I told you, the three-man
+group was disbanded or atrophied or went on to other things
+and then the formal mechanism came in for approval, that is,
+the Special Group. As procedures became more formalized, we
+had to submit a monthly schedule of the kind of operations that
+
+TOP SECRET
+
+7 6 Ω WARD & PAUL 7 8 0 9 3
+
+410 First Street, S.E., Washington, D.C. 20003
+
+H

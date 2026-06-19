@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_24148.png
+
+Convert to Markdown74. LPBANGO
+
+A Liechtenstein foundation used to give ostensible grants-in-aid to field agents as a source of their livelihood; assets of $165; no employees.
+
+75. LPABBEY
+
+A Liechtenstein foundation presently inactive; assets $3,202; no employees.
+
+76. LPKITTY
+
+A Liechtenstein foundation presently inactive; assets $3,205; no employees.
+
+77. LPALONE
+
+A Liechtenstein foundation presently inactive; assets $633; no employees.
+
+78. LPDOUBLE
+
+A Liechtenstein company used as a funding channel for a cover placement, assets $2,853; no employees.
+
+79. LPRAISIN
+
+A Liechtenstein anstalt export/import firm formed to provide additional status and prestige to an employee operating in alias; assets $7,942; no employees.
+
+80. LPBRAID
+
+A Panamanian company used as a note holder in the sale of an Agency proprietary entity; assets $1,818; no employees.
+
+81. LPADVANCE
+
+A Panamanian company currently inactive; assets $3,589; no employees.
+
+RECEIVED FROM
+
+NOV 6 1975
+
+CIA
+
+SECRET
+
+-14-

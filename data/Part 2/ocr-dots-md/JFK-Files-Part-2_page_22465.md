@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_22465.png
+
+Convert to MarkdownSECRET
+
+100
+
+Beach where any convention activities were to take place,
+employees of catering services, limosine service, employees
+in -- what do they call it, the Civic Center in Miami. It
+is a big auditorium down there. I forget what they call it.
+Foreign news people and media, television, radio people.
+
+Q Were these people on whom name traces were requested.
+all foreign nationals?
+
+A All foreign nationals.
+
+Q Was there any check made to determine whether
+any of them were American citizens?
+
+A We levied on the Secret Service as a requirement
+that they have identified these people by nationality before
+we would run a name trace. Inadvertently, at one time
+they did submit a list, a rather long list of American citizens
+which we promptly sent back to them and told them we could
+not trace.
+
+Q And this practice was followed both in 1968 and
+1972?
+
+A That is right.
+
+Q And where were these names traced?
+
+A They were traced back here and also in Miami. The
+Miami Station did their name check and we did our name check
+here. In the case of Cubans, probably the Miami Station had
+more information on the Cubans than we would have back here.
+
+Q But the names were traced through Agency files?

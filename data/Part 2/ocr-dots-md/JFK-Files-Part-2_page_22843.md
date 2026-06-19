@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_22843.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+WARD & PAUL
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+the fact that he had been mentioned, because it seemed to me
+that in my recollection that must be wrong, and he would be
+interested in getting it straightened out.
+
+Mr. Smothers. Can we go to your conversation with Mr.
+Goodwin. Did you call him or did he call you?
+
+Mr. Bundy. I called him.
+
+Mr. Smothers. And the nature of that conversation?
+
+Mr. Bundy. That conversation was about the Dominican Republic, because of my complete failure of recollection as to who or what the White House line of action, responsibility and concern was with respect to the Dominican Republic in 1961. And I called him, and I called Dungan, and I called Schlesinger, because they were the the who had been very much involved in things like the Alliance for Progress, and new appointments to embassies in Latin America, and Latin American Policy generally, except for the Bay of Pigs. And I wanted to see if they had recollections about events in that spring that were more extensive than mine. I didn't learn very much, but that was the purpose of the call.
+
+Mr. Smothers. And it it your testimony that your first exposure to the documentary evidence beyond these recollections was when either the Rockefeller Commission staff or this staff showed you documents pertaining to this inquiry.
+
+Mr. Bundy. I want to be precise about the Rockefeller Commission staff. They did not show me the documents, the
+
+TOP SECRET
+
+HW 50955 DocId:32423406 Page 61

@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_23487.png
+
+Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>MR. GRAY, PRESIDENT EISENHOWER</td><td>July 28, 1960</td><td>CASTRO<br>TRUJILLO<br>MONGOOSE</td></tr></tbody></table>
+
+<table><caption>OCCURRENCE: On July 28, 1960 at a National Security Council meeting President Eisenhower said: "Until Trujillo is eliminated, we cannot get Latin American friends to reach a proper level of indignation in dealing with Castro." It was noted that Venezuela was trying to separate the Cuban and Dominican Republic problems in OAS forms. On this matter, "The President said if we attempted to take any action with respect to Cuba before settling the Trujillo situation, we would be the loser."</caption><tr><td>SOURCE:</td><td>Presidential Papers of Dwight Eisenhower (Whitman File) (NSC meeting series, meeting of July 28, 1960)</td><td>STAFF:</td><td>Kelley</td></tr><tr><td>FILE:</td><td>Abilene</td><td>DATE:</td><td>July 6, 1975</td></tr></table>
+
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>PRESIDENT EISENHOWER, MAURICE STANS, MR. GRAY</td><td>Aug. 25, 1960</td><td>LUMUMBA</td></tr></tbody></table>
+
+<table><caption>OCCURRENCE: On August 25, 1960 the minutes of the National Security Council meeting that day state: "The President suggested the United Nations might recognize Katanga. Mr. Stans suggested that we might base ourselves on Tshombe and Kasavubu and throw out Lumumba by peaceful means." (page 15)</caption><tr><td>SOURCE:</td><td>Presidential Papers of Dwight Eisenhower (Whitman File) (NSC meeting series, meeting of August 29, 1960 - Abilene)</td><td>STAFF:</td><td>Kelley</td></tr><tr><td>FILE:</td><td>Abilene</td><td>DATE:</td><td>July 6, 1975</td></tr></table>
+
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>PRESIDENT EISENHOWER, GORDON GRAY,</td><td>Sept. 21, 1960</td><td>LUMUMBA</td></tr></tbody></table>
+
+<table><caption>OCCURRENCE: On September 21, 1960, at a National Security meeting, Mr. Dulles said: "A recent attempt to assassinate Mobutu had failed. ***Mobutu appeared to be the effective power in the Congo for the moment, but Lumumba was not disposed of and remained a great danger as long as he was not disposed of."</caption><tr><td>SOURCE:</td><td>Presidential Papers of Dwight Eisenhower (Whitman File) (NSC meeting series, meeting of Sept. 21, 1960)</td><td>STAFF:</td><td>Kelley</td></tr><tr><td>FILE:</td><td>Abilene</td><td>DATE:</td><td>July 6, 1975</td></tr></table>
+
+HW 50955 DocId:32423488 Page 60

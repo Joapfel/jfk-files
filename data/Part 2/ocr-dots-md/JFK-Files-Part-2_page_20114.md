@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_20114.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+In Reply, Please Refer to
+File No. Burfile 100-468406
+NYfile 100-174481
+
+New York, New York
+
+The Women's National Abortion Action Coalition
+
+Confidential sources one, two and three, all of whom have furnished reliable information in the past, advised on July 18, 19, and 20, 1972, respectively, that a Women's National Abortion Action Coalition (WONAC) Conference was held at Hunter College, Park Avenue and 69th Street, on July 15 and 16, 1972.
+
+Confidential source number one advised that New York City was picked for the site of this convention because this city is considered to be the center of the most powerful anti-abortion effort so far.
+
+The WONAC Conference was open to all women who supported the Abortion Law Repeal Movement. Registration was $3.00 per person. Housing and child care facilities were available. There were approximately 800 women in attendance at this conference.
+
+Discussions held at this conference centered on plans for (one)-future activity in the campaign to repeal all anti-abortion and contraception laws and (two)to end forced sterilization.
+
+A discussion was held concerning the attacks being made by the Catholic Church Hierarchy and other anti-abortion groups against women's rights to their own bodies.
+
+WONAAC is aware of the fact that progress for these matters will not come easy, that it will be fought by various groups step by step all the way, therefore, this conference was called to discuss all the different approaches and to decide on the major direction for WONAAC to take..
+
+This document contains neither recommendations nor conclusions of the FPI. It is the property of the FPI and is learned to your agency; if any its contents are not to be distributed outside your agency.
+
+CONFIDENTIAL
+EXCLUSIVE GROUP 1
+Extremely Sensitive
+07/06/72 Q.J. 1-4
+Group #1
+Group Name: WONAAC
+Date: 1/17/72
+Form: Standard
+
+ENCRYPTION
+
+NW 88321 DocId:32989545 Page 398
+
+ENCOURAGE

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_20239.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+In Reply, Please Refer to
+File No.
+
+San Francisco, California
+January 5, 1968
+
+Title DEMONSTRATION PROTESTING U. S.
+POLICY IN VIETNAM
+WASHINGTON, D. C.
+JANUARY 15, 1968
+
+Reference San Francisco memorandum dated as above.
+
+All sources (except any listed below) whose identities are concealed in referenced communication have furnished reliable information in the past.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

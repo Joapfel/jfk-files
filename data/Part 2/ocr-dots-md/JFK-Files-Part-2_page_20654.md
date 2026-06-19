@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_20654.png
+
+Convert to MarkdownWFO 100-55420
+
+ADMINISTRATIVE - NON-SYMBOL SOURCE
+WFO report 3/21/72.
+
+WF T-2 is
+5th Avenue, New York City, New York.
+
+150
+
+THIS PAGE IS TO BE MAINTAINED IN HEADQUARTERS CITY AT ALL TIMES.

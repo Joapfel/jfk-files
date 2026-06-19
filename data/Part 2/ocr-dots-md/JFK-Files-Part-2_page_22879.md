@@ -1,0 +1,65 @@
+# JFK-Files-Part-2_page_22879.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+TOP SECRET
+
+HW 50955 DocID:32423406 Page 97
+
+1 Mr. Schwarz. Do you have that in front of you, Mr.
+
+2 Bundy?
+
+3 Mr. Bundy. Yes, I have.
+
+4 Mr. Schwarz. This reflects a number of options or
+
+5 study that the President called for in the light of the
+
+6 evidence of new block activities in Cuba. Was that evidence
+
+7 connected with the missiles?
+
+8 Mr. Bundy. Well, there was quite a buildup reported
+
+9 in the press and in the intelligence initially of Soviet
+
+10 military personnel, of Soviet surface-to-air missiles. And
+
+11 the crucial question was, what for and what is coming. And
+
+12 the Director of Central Intelligence -- who was proved in
+
+13 the end to be right -- was almost alone in his belief that
+
+14 this was going to lead to a nuclear capability in Cuba that
+
+15 could hit the U.S. And he raised these questions in the
+
+16 month of August in a number of different ways. And the
+
+17 National Security meeting from which this memorandum emerged
+
+18 reviewed those problems, and as the memorandum itself shows,
+
+19 the heavy emphasis of the President's concern and of the
+
+20 Group's concern on the likelihood that developed and what
+
+21 should be done about it, or in preparation for it, in August.
+
+22 Mr. Schwarz. The memorandum has quite a range of matters
+
+23 to be considered. And they range from, if I can use the
+
+24 characterization, on the soft side, Item 1, which was consider-
+
+25 ation of the U.S. pulling its missiles near the Soviet Union out
+
+TOP SECRET
+
+760053CK06

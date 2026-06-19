@@ -1,0 +1,57 @@
+# JFK-Files-Part-2_page_19649.png
+
+Convert to MarkdownFBI
+
+Date: 5/18/71
+
+Transmit the following in:
+
+Via AIRTEL
+(Priority)
+
+TO: DIRECTOR, FBI
+
+FROM: SAG, CLEVELAND (100-31570) (C)
+
+SUBJECT: WOMEN'S NATIONAL MARCH ON THE PENTAGON
+4/10/71
+IS - MISC
+
+Enclosed for the Bureau are ten copies, of an LHM concerning captioned activity. One copy each of LHM is enclosed for designated offices for informational purposes.
+
+Source CV T-1 and CV T-3 used in LHM are INFORMANT.
+Source CV T-2 is INFORMANT.
+
+Due to the fact that most of the information contained in enclosed LHM was supplied by INFORMANT it has been assigned two symbols..
+
+Enclosed LHM is classified "CONFIDENTIAL" because the unauthorized disclosure of information furnished by the above sources could reveal their identity and be injurious to the national security of the US.
+
+3 - Bureau (Enc. 10) (RM)
+(1 - 105-138315)
+
+1 - Albany (Enc. 1) (Info) (RM)
+
+1 - Alexandria (Enc. 1) (Info) (RM)
+
+1 - Boston (Enc. 1) (Info) (RM) REG-38
+
+1 - Cincinnati (Enc. 1) (Info) (RM)
+
+1 - Detroit (Enc. 1) (Info) (RM)
+
+1 - New York (100-172646) (Enc. 1) (Info) (RM)
+
+1 - WFO (Enc. 1) (Info) (RM)
+
+2 - Cleveland
+(1 - 100-27247 VIDE)
+
+GMP:mab
+
+MAY 21 1971
+
+51 JUN 12 1971
+
+NW 88321 DecId:32989544 Page 630
+
+Sent : M Per : EEF

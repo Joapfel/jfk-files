@@ -1,0 +1,78 @@
+# JFK-Files-Part-2_page_22720.png
+
+Convert to MarkdownTOP SECRET
+
+10
+
+In a case of that sort, the instruction was agreed upon by all concerned, and the Director's instruction was that the Division was not to be informed, the Division where this individual came from, the Bloc area, should not be informed; that the Bureau, only two or three people in the Bureau, by name, should be informed, and that we would run the operation and bury the individual at the end.
+
+Now, it went along --
+Mr. Johnson. Did you say "bury the individual"?
+
+Mr. Angleton. I'm not using it in your Committee terms.
+
+Mr. Kirbow. You'd better clear that up for the record.
+
+Mr. Miler. We would integrate him into the American society in such a way that he would be non-identifiable.
+
+Mr. Angleton. He would be buried.
+
+Mr. Miler. May I just add here also that the authorities, the approval are very specific in terms of the agents' and the CIA's responsibility to advise and get the approval of the Attorney General in bringing someone like this into the United States.
+
+The Director got this approval. It was a formal letter to the Attorney General, a formal reply. There was a formal but very limited advice to the Immigration. All of the legal requirements required by the Attorney General, Immigration, all other agencies, were done. However, in this instance, they were done on a very narrow, select basis, directly to Attorney
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+HW
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25

@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_20920.png
+
+Convert to MarkdownIn Reply, Please Refer to
+File No.
+
+# Women's Bail Fund
+
+A first confidential source advised that Beverly Sterner, Channel 13 News, 304 West 58th Street, New York, New York, is affiliated with the Women's Bail Fund (WBF).
+
+An article appeared in the March, 1972 issue of the "Liberated Guardian", captioned "Women's Bail Fund; Organizing Our Anger", written by five unidentified members of the Women's Bail Fund Collective.
+
+The article relates "The Women's Bail Fund is a group of about 35 women in New York City that bails women out of jail (150 so far). They have been organized for over a year and a half and did their first bailout on December 20, 1970. They have been active in supporting other groups involved in the prison struggle. They do legal follow-up for bailed-out sisters who want it and have been talking with people about the prison struggle, why jails exist, who the real enemies are, etcetera."
+
+The article is introduced by the following statement:
+
+"For this article we wanted to talk about ourselves. So five of us volunteered to collect different thoughts from as many women as possible in our group and then pooled these reflections in this article, using the words from their raps."
+
+The article, being reflections of the various members of the group, is a series of quotes by unidentified members concerning the WBF.
+
+CONFIDENTIAL
+GROUP I
+Excluded from automatic downgrading and declassification
+
+This document contains neither recommendations nor conclusions of the Federal Bureau of Investigation (FBI). It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

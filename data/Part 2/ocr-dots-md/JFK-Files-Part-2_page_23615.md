@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_23615.png
+
+Convert to MarkdownFOR DEARBORN FROM STATE
+
+1. President has now approved contingency plans discussed during your stay here with one major exception: You are not to request a pre-signed request for help from Dominican dissident groups.
+
+2. We consider it essential that you continue to work to strengthen pro-U.S. sentiment among dissident groups. Your work along this line has been invaluable. However, we must not run risk of U.S. association with political assassination, unless this last principle is overriding and must prevail in doubtful situation. However, there is much you can do to protect U.S. interests within this framework of policy; including most of the measures in which you are now engaged. Specific instructions follow.
+
+3. Continue to inform dissident elements of U.S. support for their position. In case ofmination or overthrow of Trujillo--whether or not initiated by pro-U.S. group--the pro-U.S. group should promptly make every effort to constitute itself as reasonable and plausible provisional government. It should immediately declare itself such and request assistance from U.S., Venezuela, Colombia and OAS. If advance discussions
+
+TOP SECRET
+
+HW 50955 DocId:32423505 Page 93

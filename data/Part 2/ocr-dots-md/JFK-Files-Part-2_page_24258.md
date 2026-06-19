@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_24258.png
+
+Convert to Markdownnegotiation, had it not been subject to the exemption. "So the question was what to do about it. And finally, we made a voluntary repayment against part of the profit on that contract to the Air Force."
+
+As noted previously, the commercial airline aspect of the operation was not making a profit and in fact operated mostly at a loss. Indeed, there were periods of time when the C-46's and C-47's cargo carriers were very busy on either CIA contracts, the Korean War, Diem Bien Phu, and other paramilitary aspects. There would be periods in between these activities when there was nothing for the airlines to do. Nonetheless, the airline was still saddled with expenses such as crews' salaries and maintenance of the aircraft which sat on the ground.
+
+So George posed, and we finally organized, the stand-by contract, which was an apparent military entity on Okinawa. It was our entity, but it had a military designation. I can't remember the name for it. And that entity contracted with Air America for so many hours of cargo stand-by to be available any time on call, and that they would pay so much for that capability being maintained. . . so that is how we kept the subsidy going to maintain them during periods when there was not profitable flying.
+
+Another area of concern was the question of the relationship with the Internal Revenue Service. From the very start, the company management was informed that they would be required to pay the appropriate U. S. taxes, and while there were the usual business arguments about whether certain items were appropriate for taxation and whether certain deductions should have been granted, the rela-

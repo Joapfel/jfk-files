@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_20293.png
+
+Convert to MarkdownFBI
+
+Date: 1/12/68
+
+Transmit the following in
+
+(Type in plaintext or code)
+
+Via
+
+AIRTEL
+
+AIRMAIL
+(Priority)
+
+<table><tr><td>TO:</td><td>DIRECTOR, FBI</td></tr><tr><td>FROM:</td><td>SAC, ATLANTA (100-7300) (P)</td></tr><tr><td>SUBJECT:</td><td>DEMONSTRATION PROTESTING U.S. POLICY IN VIETNAM, WASHINGTON, D.C., JANUARY 15-16, 1968<br>INFORMATION CONCERNING (INTERNAL SECURITY) (OO: WFO)</td></tr></table>
+
+Re Buairtel to Albany, 12/5/67, and Atlanta tele-type, 1/12/68, to Bureau.
+
+Enclosed herewith for the Bureau are 11 copies, for WFO 2 copies, and for San Francisco 2 copies, of an LHM captioned as above, prepared at Atlanta, Georgia, on 1/12/68, and suitable for dissemination.
+
+Copies of the enclosed LHM are being furnished to 111th MIG, Region V, Ft. McPherson, Ga.; U.S. Secret Service, Atlanta, Ga.; NIS, Charleston, S.C.; OSI, Robins AFB, Ga.; and USA, Atlanta, for their information.
+
+③ - Bureau (Enc. 11) (RM)
+2 - WFO (Enc. 2) (RM)
+2 - San Francisco (Enc. 2) (RM)
+6 - Atlanta
+(2 - 100-7300)
+(1 - 100-6730)
+(1 - 100-3128)
+(1 - 100-7253)
+(1 - 100-New Dead)
+
+REC-69 10A--11AM 73
+
+(RICHARD PARRY) JAN 15 1968
+
+CTH:met
+(13)
+
+AGENCY: G-2, ONI, OSI
+RADIO: 519
+DATE: 1/15/68
+HOW FORM: R/S
+BY: C.F. OFFICER
+Approved: H.J.
+Sent: Copy and 93M Per:
+
+Special Agent in Charge
+
+NW 88321 DocId:32989545 Page 577
+
+55JAN221968 Special Agent in Charge

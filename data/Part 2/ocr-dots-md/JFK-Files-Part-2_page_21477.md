@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_21477.png
+
+Convert to MarkdownSECRET
+
+Richard Thomas Gibson
+
+MONTHLY REVIEW
+
+A source advised on March 24, 1953, that Monthly Review, Inc., was incorporated in the State of New York on October 19, 1951, and the corporation papers reflected it succeeded the individual business of LEO HUBERMAN at 66 Barrow Street, New York, New York, which operated since 1949 under the title, Monthly Review Press.
+
+The publication is "An Independent Socialist Magazine" with editorial and business offices at 333 Sixth Avenue, New York 14, New York, and mailing address at 66 Barrow Street, New York, New York, according to the March, 1961, issue of "Monthly Review." Its editors are listed as LEO HUBERMAN and PAUL M. SWEEZY.
+
+LOUIS F. BUDENZ, former editor of the "Daily Worker," an East Coast Communist newspaper which suspended publication on January 13, 1958, advised on June 23, 1950, that LEO HUBERMAN was a member of the CP in 1945.
+
+Another source advised on November 2, 1954, that PAUL M. SWEEZY was known as a Marxist, but not as a Communist Party (CP) member. The same source stated that the CP hard core had been critical of SWEEZY because of his independent application of Marxist theory. According to the source, SWEEZY was used to advantage in many CP front activities in the 1930's.
+
+The CP has been designated by the Attorney General of the United States pursuant to Executive Order 10450.
+
+SECRET
+
+6

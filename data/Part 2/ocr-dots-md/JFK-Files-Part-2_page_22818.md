@@ -1,0 +1,63 @@
+# JFK-Files-Part-2_page_22818.png
+
+Convert to MarkdownTOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area 202) 544-6000
+
+WARD & PAUL
+
+## TOP SECRET
+
+1
+
+Senator Baker. President Kennedy's decision to begin MONGODB. Is it clear, Mr. Bundy, that President Kennedy made the decision to initiate the MONGODB program?
+
+2
+3
+
+Mr. Bundy. No question.
+
+4
+
+Senator Baker. I notice in the staff interpretation under the column "Issues and Questions" that they alleged that you recall probably writing this memorandum.
+
+5
+6
+7
+
+Mr. Bundy. That is really a logical inference. The President would not himself have written a long memorandum of instructions of this kind. It is possible that General Taylor wrote it. But I think it is more likely that I did. But in any event, whichever of us did so was doing it as a staff officer for the President's convenience in recording his decision.
+
+8
+9
+10
+11
+12
+13
+14
+
+Senator Baker. So at least to this extent there is no question about the chain of command, or the chance to control it, the President authorized it?
+
+15
+16
+17
+
+Mr. Bundy. Just to underline that point, as I recall the paper which was shown to me, it is one from Mrs. Lincoln to General Taylor saying, the President wants you to have this as a description of the decisions.
+
+18
+19
+20
+21
+
+Senator Baker. Would you repeat that?
+
+22
+
+Mr. Bundy. I think the covering memorandum on that document is from Mrs. Lincoln to General Taylor, and it says, the President wants you to have this as a record of his
+
+23
+24
+25
+
+HW 50955 DocId:32423400 Page 36

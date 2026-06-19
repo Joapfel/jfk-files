@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_19781.png
+
+Convert to MarkdownCONFIDENTIAL
+
+WOMEN'S NATIONAL ABORTION
+ACTION COALITION (WONAC)
+SPONSORED DEMONSTRATION,
+NOVEMBER 20, 1971,
+WASHINGTON D.C., AND
+SAN FRANCISCO, CALIFORNIA
+
+On September 22, 1971, a source advised that HELEN MEYERS, Socialist Workers Party (SWP) organizer in Los Angeles, California, transferred to the SWP in Berkeley, California, effective August 31, 1971.
+
+The SWP has been designated pursuant
+to Executive Order 10450.
+
+3*
+
+CONFIDENTIAL

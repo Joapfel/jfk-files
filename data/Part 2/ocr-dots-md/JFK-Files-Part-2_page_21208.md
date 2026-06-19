@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_21208.png
+
+Convert to MarkdownTOP SECRET
+
+and that she had spent a week with [BRAUNS] in Moscow during which the recruitment attempt was made by KGB.
+
+**COMMENT:** On September 2, 1968, (N-218), NOSENKO stated that he did not know about the girl friend of [BRAUNS]. He said this was probably known to KRUPNOV, his subordinate, who was the case officer. Considering NOSENKO's limited participation in the case, his lack of knowledge of the girl friend does not seem unusual.
+
+[10. PAVEL FEDOROVICH SHAKHOV](u)
+
+On page 291 it is concluded that NOSENKO did not direct the investigation of PAVEL FEDOROVICH SHAKHOV in Geneva in 1962. The SHAKHOV case is discussed on pages 276-278 and it is noted therein that NOSENKO claimed SHAKHOV was not and never had been a KGB officer. It was stated that RASTVOROV had identified him as a KGB officer, PETROV and DERYABIN reported that his photograph was familiar, BOURBON identified him as an "employee" of KGB, an FBI source said he was a pure diplomat and [SHAMROCK] said he was still under suspicion.
+
+TOP SECRET
+
+HW 50953 DocId:32318825 Page 94

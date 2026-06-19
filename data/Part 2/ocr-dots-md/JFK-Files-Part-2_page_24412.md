@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_24412.png
+
+Convert to Markdown(4) Poison Pills Are Prepared and Delivered
+---
+
+to Cuba
+
+The Inspector General's Report described conversations among Bissell, Edwards, and Cornelius Roosevelt, Chief of the Technical Services Division (TSD), concerning the most effective method of poisoning Castro (I.G., pp. 23-24). There is some evidence that Giancana or Roselli originated the idea of depositing a poison pill in Castro's drink to give the "asset" a chance to escape (I.G., p. 25). O'Connell recalled Roselli's request for something "nice and clean, without getting into any kind of out and out ambushings", preferably a poison that would disappear without a trace (O'Connell, p. 116).
+
+The Inspector General's Report cited O'Connell as stating that the Agency had first considered a "gangland-style killing" in which Castro would be gunned down. Giancana reportedly opposed the idea because it would be difficult to recruit someone for such a dangerous operation, and suggested instead the use of poison. (I.G., p. 25)
+
+Edwards rejected the first batch of pills prepared by TSD because they would not dissolve in water. A second batch, containing botulinum toxin, "did the job expected of them" when tested on monkeys. (I.G., pp. 25-26; O'Connell, p. 43) O'Connell received the pills from TSD, probably in February 1961, with reassurances that they were lethal,* and
+
+* Records of the TSD still extant in 1967 indicate that the pills were tested on February 10 and delivered to O'Connell sometime thereafter.

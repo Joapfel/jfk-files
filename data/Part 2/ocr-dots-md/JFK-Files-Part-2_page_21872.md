@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_21872.png
+
+Convert to MarkdownWhen asked his opinion about the truth of the testimony received by the Committee that poisons were delivered to the Congo by (Gottlieb), who carried instructions that they were to be used in the assassination of Lumumba, Tweedy replied:
+
+> There is nothing in my experience with the Agency which would really bear on that point whatsoever.. (Tweedy, 9/9, pp. 39-39)
+
+Tweedy added that if (Gottlieb) went to the Congo as a courier, "I will bet I knew it, but I don't recall it" (Tweedy, 9/9, p. 35). Tweedy testified that it was "perfectly possible" for lethal biological substances to have been sent to the Congo, "but I don't recall it" (Tweedy, 9/9, p. 30).
+
+In response to a question about whether he knew about a cable from headquarters informing Hedgman that a messenger was to come to the Congo with instructions for him, Tweedy said that he would be "very surprised if I didn't [know], but I certainly have no recollection of it whatsoever (Tweedy, 9/9, p. 31).
+
+Tweedy said that he "was not going to gainsay" the testimony of the (Chief of) Station that a cable was sent to headquarters through a special channel requesting confirmation that the instructions were to be carried out but he did not recall it (Tweedy, 9/9, pp. 32-33).
+
+Tweedy commented that rather than questioning the truth of the testimony of the (Chief of) Station,* the discrepancies in their
+
+* Tweedy expressed a high regard for the general credibility of the (Chief of) Station. Tweedy said that he never had occasion to doubt Hedgman's veracity or integrity, adding, "I would trust his memory and I certainly trust his integrity." (Tweedy, 9/9, p. 36)

@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_23057.png
+
+Convert to MarkdownTOP SECRET
+
+104
+
+what you have said is a concern of not only yourself in terms of
+realizing that it was a possibility but of people like Dean
+Rusk and Mr. McCone, who also said, you have to realize then
+once these agents are in another country and are supplied that
+there is little if anything we can do to control those weapons
+after they receive them. It would be safe to say that that, of
+course, was understood that there was a lack of control, and
+to the extent that it was a problem, it existed and had to be
+tolerated because of the nature of the operation, would that
+be correct?
+
+Mr. Halley. I do not know whether I want to phrase it
+exactly as you have in terms of this lack of control. Our
+mission in dealing with these groups was to first, to put them
+in areas where we did not have other intelligence covers. Their
+first task was to collect intelligence.
+
+The second task was to organize a resistance which would
+take armed action if we ever got a total package put together
+that gave us an opportunity -- that was the first and secondary
+missions. Once we issued the weapons to the team leader, if
+you will, he had freedom to recruit from among the peasants
+anybody he wanted to. If he gave the peasant a weapon, there
+was no guarantee either by the team leader or by us that that
+peasant would not do something that we did not want him to do.
+To even shoot a militiaman, you could have an argument, you
+know, over a woman. Any number of things.
+
+TOP SECRET
+
+HW 50955 DocId:32423434 Page 106

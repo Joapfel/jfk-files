@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_22010.png
+
+Convert to MarkdownINTERVIEW WITH: Paul David (alias)
+
+REGARDING: Assassination Inquiry
+
+438-12
+10246
+
+DATE-TIME-LOCATION: July 25, 1975; 608 Carroll Arms
+
+PRESENT: Messrs. WALLACH and DiGenova
+
+HAS OR SHOULD BE DIGESTED:
+
+FOLLOW UP REQUIRED:
+
+MATERIAL SUBMITTED BY INTERVIEWEE(S):
+
+EXECUTIVE SESSION: ~~X~~ YES No

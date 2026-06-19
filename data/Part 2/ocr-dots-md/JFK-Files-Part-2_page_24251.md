@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_24251.png
+
+Convert to MarkdownSpring of 1950 under this arrangement and Chennault and Willauer "came in the Summer of 1950 and said again they were in desperate straits for funds." Once again a series of meetings was held at which the prognosis was that the operations in the Far East would have a continuing need for secure airlift and also, there was a general estimate that the loss of this airlift to the Chinese Communists would give them a considerably greater advantage than then possessed because they had almost no airlift of their own at that time. "The Agency then made the decision that they would exercise the option given there was no objection otherwise."
+
+The Agency felt that it was necessary to get the concurrence of the Department of State. Frank G. Wisner, at that time the Head of the Office of Policy Coordination (OPC) which was responsible for conduct of covert actions as opposed to clandestine intelligence, and Mr. Houston visited Mr. Livingston Merchant, who was Assistant Secretary of State for the Far East.
+
+He and I went to see Mr. Merchant and explained the situation. And Mr. Merchant reminded us that it was basic U.S. policy not to get the government in competition with U.S. private industry. But under the particular circumstances, in particular as there was really no U.S. private industry involved in the area, and they agreed it was important to divide the assets to the Red Chinese. State would go along on the understanding that we would divest ourselves of the private enterprise as soon as such a divestment was feasible, and all of the circumstances that might obtain.
+
+Of course, the divestiture of these entities did not actually occur until 1975. And, indeed, some of the entities still as yet have not been divested. Mr. Houston noted, however, that:

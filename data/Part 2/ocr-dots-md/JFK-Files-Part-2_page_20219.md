@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_20219.png
+
+Convert to MarkdownWOMEN'S NATIONAL ABORTION ACTION COALITION (WONAAC) CONFIDENTIAL
+
+...Coordinators of the event said they hope for a turnout of about 20,000 women who would stage the first national female march on the Capitol since women won the right to vote in 1920.
+
+"The coalition, which comprises about 30 women's groups, will also demonstrate against forced sterilization and restrictive contraception laws and plans to hold national abortion hearings in Washington before the march."
+
+First source advised on October 15, 1971, that the November 20, 1971, rally has received mixed support from various Washington, D. C., women's liberation groups. Several radical women's groups refused to endorse the November 20, 1971, action because they view it as a Young Socialist Alliance (YSA)/Socialist Workers Party (SWP) Front which will use these rallies to further its own recruitment drive. Furthermore, they considered YSA/SWP to be "non-feminist". Main support for the November 20, 1971, demonstration will come from the WSA Women's Fraction Group.
+
+Important endorsements thus far are coming from Betty Freidan, noted author in Women's Liberation Movement, New York Congress women, Bella Abzug and Dr. Milan M. Vuitich, a Washington, D. C., doctor involved in the abortion controversy. Lynda Jenness, the SWP presidential candidate is scheduled to be one of the speakers.
+
+## Young Socialist Alliance
+
+As the youth organization of the Socialist Workers Party (SWP), the Young Socialist Alliance (YSA) serves as the main source of
+
+CONFIDENTIAL

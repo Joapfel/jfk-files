@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_19080.png
+
+Convert to MarkdownCONFIDENTIAL
+
+All of the above information came forth as was expressing his inability to understand why ABC had recalled him from Hong Kong. It was not possible to explore in depth the associations and activities of during his assignment in Hong Kong due to the short duration of the interview. However, this former informant expressed a continued willingness to cooperate with the Bureau to furnish information on a confidential basis.
+
+On 9/17/68, telephonically advised that he would, in all probability, be assigned in WDC and that he would be going there during the latter part of that week. He also advised that while previously in WDC during the week of 9/9/68, he telephonically contacted OLEG KALUGIN (KGB employee) and VLADIMIR BOGACHEV (GRU employee), both of whom are Soviets of interest to WFO.
+
+Depending upon the location at which is eventually assigned, it is believed that he should be further interviewed for the purpose of obtaining information of interest to the Bureau developed by him during the course of his assignment in Hong Kong, as well as for the purpose of evaluating his informant potential on a current basis. The Bureau and WFO will be advised when informant's new assignment becomes known. However, should WFO become aware of informant's presence in WDC and they desire to establish contact with him, this should be done UACB.
+
+CONFIDENTIAL
+
+NW 88326 DocId:32989704 Page 374

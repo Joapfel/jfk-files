@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_23772.png
+
+Convert to MarkdownI around and preaching all over the world about our high ethical standards and then when we are shown that we don't live up to our own standards, that's what brings us the retribution.
+
+But I still think that we ought to notwithstanding that this is an opportunity for some linkage with the Constitution. But I don't press the point. I just offer it.
+
+Senator Huddleston. Well, I think this is something we should all give some thought to in the next few hours.
+
+Mr. Kirbow. If we are going to do that, may I suggest that here we talk about support for police or internal security forces.
+
+The remainder of that sentence shouldn't be applied at so that it is the policy of the country involved? Otherwise you're talking about aid in a covert manner, governed by maybe an inadvertent, without authority type series of exposures of torture and whatnot, and you cut off the aid to a country.
+
+Mr. Aaron. Can I speak to that point?
+
+I think that Charley raises an interesting example and we have sort of that kind of situation today in Brazil where it is difficult to ascertain whether it is the policy of the government or whether the internal security forces which are very fragmented among the military and the states and what have you, whether these internal security forces act or vice versa, just on their own.
+
+Mr. Dillenova. Should it matter?
+
+TOP SECRET
+
+V. N. A. PAUL.
+
+HW 50955 DocId:32423509 Page 146

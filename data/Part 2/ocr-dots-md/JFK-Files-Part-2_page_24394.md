@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_24394.png
+
+Convert to Markdown"Plausible deniability" raises a number of other issues which the Committee has had to confront. Differing interpretations of the practice of plausible denial has affected the extent to which sensitive matters were raised or considered. The evidence discussed below revealed that very serious problems of assessing and insuring accountability and control can arise out of plausible deniability.

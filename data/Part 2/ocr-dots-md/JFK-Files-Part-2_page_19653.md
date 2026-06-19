@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_19653.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+# Memorandum
+
+TO : DIRECTOR, FBI
+
+DATE: 5/28/71
+
+FROM : SAC, INDIANAPOLIS (100-22551) (RUC)
+
+SUBJECT: WOMEN'S NATIONAL MARCH
+ON THE PENTAGON, APRIL 10, 1971
+IS - MISCELLANEOUS
+
+Re If let, 4/14/71.
+
+Contact with sources, Indianapolis Division, failed to reflect
+any additional information re captioned march.
+
+2 - Bureau (RI)
+2 - Alexandria (RI)
+2 - Washington Field Office (RI)
+1 - Indianapolis
+
+JIB/dlc
+(7)
+
+EX 101 REC- 36
+
+22 JUN 4 1971
+
+6 JUN .7 1977'

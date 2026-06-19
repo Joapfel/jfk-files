@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_24688.png
+
+Convert to Markdown(Bissell, 9/10/75, pp. 54-57; Tweedy, 9/9/75, pp. 54, 61).
+
+* William Harvey, from whose division QJWIN was on loan for his Congo assignment, had no specific knowledge of WIN's activities in the Congo:
+
+I was kept informed of the arrangements for QJWIN's trip to the Congo and, subsequently, of his presence in the Congo. I do not know specifically what QJWIN did in the Congo. I do not think that I ever had such knowledge.... If QJWIN were to be used on an assassination mission, it would have been cleared with me. I was never informed that he was to be used for such a mission. (Harvey affidavit, p. )
+
+He stated that Arnold Silver probably wrote the memoranda concerning QJWIN and submitted them for HARVEY's signature (Harvey affidavit, p. ).
+
+(c) QJWIN's Connection to Project ZRRIFLE
+
+After leaving the Congo in early 1961, QJWIN was used by CIA officer William Harvey as the principal asset in Project ZRRIFLE, a project which included research into a capability to assassinate foreign leaders.* QJWIN's role in Project ZRRIFLE was to "SPOT" figures of the European underworld who could be utilized as agents by the CIA if required. Harvey stated that before the formation of Project ZRRIFLE:
+
+* For a full treatment of Project ZRRIFLE, see Section infra, on the "Executive Action Capability."

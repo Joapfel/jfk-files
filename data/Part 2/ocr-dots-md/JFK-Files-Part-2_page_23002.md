@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_23002.png
+
+Convert to MarkdownTOP SECRET
+
+48
+
+butcher or something but had a radio set in which they could
+communicate with us, through which they could communicate to us.
+
+Then there was the Paramilitary Branch. This was the
+group that ran the commando operations. This was the group that
+ran, and put people back into Cuba, into resistance groups, or
+established contact with resistance groups. This was a group
+that also worked in putting in caches that would supply people,
+either paramilitary forces in Cuba or agents that were being
+run by the Foreign Intelligence Group.
+
+All right. Then there was a Covert Action, people who dealt with exiled refugee groups that were involved in radio activities, publications, that kind of thing. Then there is a whole panoply of -- then there was Maritime, in terms of finance, and so on. Security was a branch. Obviously, under that kind of system, no executive, whether he is president of a corporation or a Station Chief, can see every single piece of paper that comes in or out, but clearly there was a review procedure whereby program reviews were conducted, individual operational reviews were conducted.
+
+Mr. Baron. By yourself?
+
+Mr. Halley. By myself. I do not want to leave you with the impression that I knew every single thing that was going on every minute and could account for the activities of three hundred employees on a daily basis.
+
+Mr. Baron. In talking about the personnel affiliated
+
+TOP SECRET
+
+HW 50955 DocId:32423434 Page 51
+
+76 AWD 70125
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area 202) 544-6000

@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_21750.png
+
+Convert to Markdown# STATEMENT BY E. HOWARD HUNT
+
+A year ago when Congress established the Church Committee, Senator Baker was quoted as saying that I would be an early witness. I was then free on Appeal and readily available to testify concerning CIA involvement in allegedly illegal activities. Moreover, I viewed testifying before the opportunity Committee as a further/to testify under oath concerning my total non - involvement with Messrs Oswald, Bremer and Sirhan, persons with whom my name has been slanderously and libelously linked in press and electronic media. Although I had been interviewed previously by the FBI and the Rockefeller Commission with regard to these allegations a host of assassination buffs and media advocates continued irresponsibly to associate me with the deaths of the Kennedy brothers and the crippling of Governor Wallace.
+
+My Appeal denied, I re-entered prison in April,1975. Three weeks later US Marshals escorted me to Washington DC for what turned out to be a three-hour interview with a new Watergate Assistant Special Prosecutor. For a 9-day period I was lodged at the Leesburg, Va., jail, and finally returned via Detroit and Tallahassee where I was imprisoned in the isolation area before being driven on May 26 to Eglin Federal Prison Camp. On May 27, Assistant Committee Counsel Michael Madigan telephoned me to say that the Church Committee wanted to interview me "within the next two weeks". I apprised Mr. M_digan of Public Law 93-209, Title 18. Sec.4082(c) Para. 1 (amended) which authorises minimum security prisoners such as myself to be furloughed for up to 30 days for purposes of testifying. Counsel Madigan agreed to my testifying on this furlough basis.
+
+Over the summer, however, I heard nothing further from Mr. Madigan or his Committee associates. Then in mid-September a Washington POST story alleged that I had been assigned by a White House superior to assassinate columnist Jack Anderson. Senator Church was thereupon quoted as saying that his Committee would investigate the charges. I welcomed this apparent
+
+Exhibit I

@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_24536.png
+
+Convert to MarkdownAs Sorensen (a member of the Executive Committee established to deal with the Missile Crisis) testified, even though Cuba was the "No. 1 priority" during the Missile Crisis, and "all alternatives, plans, possibilities were exhaustively surveyed" during that time, the subject of assassination was never raised in the high-level National Security Council Executive Committee (of which Helms was not a member) that was formed to deal with the Missile Crisis.
+
+(Sorensen, 7/21, p. 11.)***
+
+*** There are references in the Special Group Augmented records to attacks on Soviet personnel in Cuba. The record of the SGA meeting on September 9, 1962, states:
+
+> "It was suggested that the matter of attacking and harassing of Soviet personnel within Cuba should be considered." (SGA Minutes, 9/9/62, p. ).
+
+Earlier, on August 31, 1962, Lansdale had included a task "to provoke incidents between Cubans and Bloc personnel to exacerbate tensions," in a proposed projection of actions for Phase II of Mongoose. (Memorandum to SGA, 8/31/62, from Lansdale, Action No. 47). The Special Group thereafter decided, as a means of "emphasizing such activity" to replace that task with one to "cause actions by Cubans against Bloc personnel," and to note that "consideration will be given to provoking and conducting physical attacks on Bloc personnel." (Memorandum to Taylor, Rusk, and MacNamara, 9/12/62, from Lansdale, pp. 1-2).

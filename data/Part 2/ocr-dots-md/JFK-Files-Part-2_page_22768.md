@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_22768.png
+
+Convert to MarkdownHW
+
+TOP SECRET
+
+1 can go to a diplomat who has a weak cipher system and you
+2 yourself can tell that diplomat in great confidence a whole
+3 series of things. You know the Soviets are going to break the
+4 code and read that message.
+
+5 That would be one way of doing it. There are other ways
+6 of having, telling . . . friendly foreign service whom you
+7 know is penetrated.
+
+8 I mean it's all case by case. But once you are given the
+9 task, that's when you begin to look at all of your assets and
+10 you begin to do the creative side of running a double, or how
+11 are you going to put this across. And there are many ways of
+12 doing it without bringing many people in.
+
+13 Mr. diGenova. I'd like to change the subject matter just
+14 briefly. Part of the responsibility of the CI research personnel
+15 is to produce reports on various subjects which include current
+16 analyses on proprietary companies used by foreign intelligence
+17 services.
+
+18 I would like to know whether or not either of you could
+19 shed any light on the question of whether or not we have any
+20 evidence that foreign intelligence services have established
+21 and used proprietary companies in the United States?
+
+22 Mr. Angleton. Well, there's one case that comes to mind.
+23 I can't remember the details but I think that as a result of
+24 it, one of our deputy directors had a big project with this
+25 company and they dropped it because the Foreign Intelligence
+
+TOP SECRET
+
+gsh 10
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+76 c c 11713
+
+HW
+
+Page 02
+
+58

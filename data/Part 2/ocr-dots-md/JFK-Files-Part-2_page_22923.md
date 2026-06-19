@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_22923.png
+
+Convert to MarkdownWard & Paul
+
+410 First Street, S.E., Washington, D.C. 20003
+
+76900130530
+
+Phone (Area 202) 544-6000
+
+Mr. Schwarz. 6-H, the memorandum for members of the
+Standing Group dated May 2, 1963.
+
+(The document referred
+to was marked Bundy
+Exhibit 6-H for
+identification.)
+
+TOP SECRET
+
+HW 30-309 Social: 92123400 Page 111

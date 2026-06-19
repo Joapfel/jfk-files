@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_21664.png
+
+Convert to MarkdownSECRET
+
+SUBJECT: Robert Maheu • Foreign Head of State
+
+1. In connection with the official State visit of a foreign Head of State in 1959, the Office of Security was requested to render special support during the Los Angeles and New York phases of the tour. According to HEA personnel, the foreign official has especially desired to female companionship during his Los Angeles visit and it was requested that appropriate arrangements be made through a controlled source of the Office in order to assure a satisfied visit.
+
+2. On 3 April 1959 Mr. Robert Maheu, a cleared Office of Security contact, was asked to accompany him on the tour from Los Angeles, California. This was done by Mr. Maheu's personal secretary, Mrs. Jeanette Eubal, who is现居于一 présumé安全区。Visitors will be met at the airport by a Division officer. By the time he arrives, during the course of his stay in the United States, the foreign official will be able to see all those he wants to see, including the actress and her stage co-actress, both of whom are expected by a certain star. Who will be authorized to see them? The division cannot yet confirm this. Watch the actress' and her partner's reactions to the actress' and her partner's reactions as they come into view. Will the actress stay in New York City from 14 through 20 April 1959?
+
+3. On 13 April 1959 arrangements were made to rent the home of an Office of Security source, at Long Beach, Long Island, for the period 14 through 13 April 1959. The home was to be used as a confidential meeting place for the actress and the foreign-official. At the same time the actress was registered at the Hotel Barclay, 111 East 13th Street, New York City, under an assumed name. The publicity touching on the relationship has become more pointed since some publicity mention had been made of the Jewish background of the actress. On 14 April 1959 a CIA employee and the actress were transported to the home on Long Island which was taken over as
+
+APPROVED FOR RELEASE 1993
+CIA HISTORICAL-REVIEW PROGRAM
+AS SANITIZED
+
+HW 50955 DocID:722021
+
+01469
+
+PROPERTY OF
+THE WHITE HOUSE OFFICE
+
+CONFIDENTIAL-REVIEW PROGRAM
+
+SECRET
+
+# APPROVED FOR RELEASE 1993
+CIA HISTORICAL-REVIEW PROGRAM
+AS SANITIZED
+
+HW 50955 DocID:722021

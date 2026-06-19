@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_21924.png
+
+Convert to MarkdownZR/RIFLE. Harvey testified that QJ/WIN's function after the advent of Project ZR/RIFLE in 1961 was restricted to the "spotting" of potential assets for "multi-purpose" covert use.
+
+However, in the Fall of 1960--before Harvey was assigned to create Project ZR/RIFLE by Richard Bissell--agent QJ/WIN had been dispatched to the Congo by Arnold Silver, his supervising CIA case officer in Europe. William Harvey, as the Chief of the CIA Foreign Intelligence staff on which Silver worked, had ordered QJ/WIN's mission to the Congo (CIA Dispatch AUDW-147, 11/2/60) and arranged the financial accounting for the mission afterward (Memorandum to Finance Division from William K. Harvey, 1/11/61). [QJ/WIN's activities in the Congo are treated in detail in the discussion of the Lumumba case; see Section ___, supra.]
+
+There are two factors which may raise a question as to whether QJ/WIN was being used in an ad hoc capacity to develop an assassination capability before ZR/RIFLE was formally initiated.
+
+First, there is a similarity in the cast of characters: Harvey, QJ/WIN, Silver, and Gottlieb were connected with the Lumumba matter and reappear in connection with the subsequent development of ZR/RIFLE. Second, Bissell informed Harvey that the development of an assassination capability had already been discussed with Silver and Gottlieb before Harvey's assignment to ZR/RIFLE (Harvey, 6/25/75 p. 52; I.G. Report, pp. 37-38).
+
+Nevertheless, there does not appear to be any firm evidence of a connection between QJ/WIN and the plot to assassinate Lumumba.

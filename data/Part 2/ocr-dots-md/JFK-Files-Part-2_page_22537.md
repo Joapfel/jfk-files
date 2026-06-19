@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_22537.png
+
+Convert to MarkdownSECRET
+
+In April 1966, Wiley prepared a report concerning George Freyman of Bellingham, Washington; and concurrently a report captioned, "Tourists Going to the USSR and Iron Curtain in Summer of 1966," specifically mentioning Stephen Talbott and Richard Bocklet.
+
+In April 1966, Wiley prepared a report concerning Geoffrey Aldridge, USAF, Information Office of the Alaskan Air Command, Elmendorf Air Force Base; and Lt. General Raymond J. Reeves, Commander-in-Chief, Alaska, who Wiley had apparently met in the area of Kotzebue on 8 April 1966.
+
+Circa 6 June 1966, Wiley prepared two reports concerning John Riley, member of the Veterans of OSS.
+
+On 28 July 1966, Wiley submitted a short report on Camera Press Pix, a British corporation engaged in world wide distribution of photos taken of the Vietnam war in and around Hanoi.
+
+A report concerning Col. Esteban Venture Nova, dated 5 August 1966 was forwarded. Nova supplied certain information about Trujillo and Herb Romerstein, an MCUA investigation, sat in on the interview.
+
+Wiley, on 2 September 1966, submitted information about the Queens Chapter (Long Island, New York) Women Strike for Peace.
+
+On 21 October 1966, Wiley submitted a report concerning Michael Struenlins (Streulens) based on information he had received from John Lewis, American Security Council, Washington, D. C. on 22 September 1966. Concurrently, Wiley submitted a report on Ray McConnon as received from Herb Romerstein.
+
+On 5 August 1966, Wiley prepared a report dealing with a potential trip to South Africa extended by Ghemus J. J. Geldenhuys, Public Affairs Officer, Information Service of South Africa, N. Y. Wiley again submitted a report on this topic on 21 October 1966.
+
+RECEIVED FROM
+SEP 30 1975
+CIA
+
+HW 50955 DocId:32203889 Page 45

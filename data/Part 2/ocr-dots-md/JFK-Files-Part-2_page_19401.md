@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_19401.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DEMONSTRATION PROTESTING
+UNITED STATES POLICY IN VIETNAM
+
+The St. Louis group will endeavor to obtain reservations on Trans World Airlines flight leaving Washington, D. C., January 16, 1968, at 5:05 PM.
+
+An article appearing in the September 20, 1967 issue of "The St. Louis Post-Dispatch" on Page 3C read as follows:
+
+"A Peace Information Center will be opened at 6217 Delmar Boulevard with ceremonies at 8:00 p.m. today. The Center will contain literature on foreign affairs, economics and social problems. Information concerning alternatives under the Selective Service Act and individual counseling for young men will be provided by appointment."
+
+All sources in this memorandum have furnished reliable information in the past.

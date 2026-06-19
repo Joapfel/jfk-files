@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_23485.png
+
+Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>PRESIDENT EISENHOWER, DOUGLAS DILLON, GENERAL GOODPASTER</td><td>July 5, 1960</td><td>TRUJILLO</td></tr></table>
+
+<table><thead><tr><th>OCCURRENCE:</th><th colspan="2">On July 5, 1960 President Eisenhower met with Secretary of State Herter, Secretary of the Treasury Dillon. Also present were Gen. Goodpaster and General Persons. The memorandum of the conference stated: "With regard to the Dominican Republic, Mr. Herter said there are various things being done which could result in a provisional government being set up. The President said if such a government were set up we should recognize it quickly. We could then move in with troops on their request if need should arise. In so far as the question is one of internal intervention, we must use the CIA in order to avoid attribution. The President thought we should knock out of any documents on file any reference to starting a revolution."</th></tr></thead></table>
+
+<table><tr><td>SOURCE:</td><td>Presidential Papers of Dwight Eisenhower (Whitman File) (DDE DIARY SERIES)</td><td>STAFF:</td><td>Kelley</td></tr><tr><td>FILE:</td><td>Ablene</td><td>DATE:</td><td>July 6, 1975</td></tr></table>
+
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>VICE PRESIDENT NIXON, MR. GRAY, DOUGLAS DILLON</td><td>March 14, 1960</td><td>CASTRO MONGOOSE</td></tr></table>
+
+<table><tr><td>OCCURRENCE:</td><td>At a National Security Council meeting on March 14, 1960 Mr. Dillon said: "Our objective is to bring another government to power in Cuba...there is no apparent alternative to the present government in the event Castro disappears. Indeed the result of Castro's disappearance might be a Communist takeover."</td></tr><tr><td>Mr. Dulles reported that a plan to affect the situation in Cuba was being worked on. Admiral Burke suggested that any plan for the removal of Cuban leaders should be package deal, since many of the leaders around Castro were even worse than Castro."</td></tr></table>
+
+<table><tr><td>SOURCE:</td><td>Presidential Papers of Dwight Eisenhower (Whitman File) (NSC meeting series) 436th NSC meeting, March 10, 1960 - Ablene</td><td>STAFF:</td><td>Kelley</td></tr><tr><td>FILE:</td><td></td><td>DATE:</td><td>July 6, 1975</td></tr></table>
+
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>VICE PRESIDENT NIXON, DOUGLAS DILLON, H. SHELDON (CIA), MR. LAY</td><td>April 14, 1960</td><td>TRUJILLO</td></tr></table>
+
+<table><tr><td>OCCURRENCE:</td><td>AT a National Security Council meeting on April 14, 1960, Vice President Nixon presiding, ":</td><td>"Mr. Dulles reported..Trujillo's position continued to weaken and was now quite precarious...(he)-thought further attempts will be made to-kill or oust Trujillo."</td></tr><tr><td>"Mr. Dillon said there was one favorable aspect...(if Trujillo could be removed from power in the Dominican Republic while pro-Castro elements were prevented from seizing power in that country,-our anti-Castro campaign throughout Latin America would receive a great boost." The Vice President agreed that getting rid of Trujillo would be a favorable development for us."</td></tr></table>
+
+<table><tr><td>SOURCE:</td><td>Presidential Papers of Dwight Eisenhower (Whitman File) (NSC meeting series, 441st meeting, April 14, 1960) - Ablene</td><td>STAFF:</td><td>Kelley</td></tr><tr><td>FILE:</td><td></td><td>DATE:</td><td

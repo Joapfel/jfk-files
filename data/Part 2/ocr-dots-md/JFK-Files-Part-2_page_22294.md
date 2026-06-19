@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_22294.png
+
+Convert to MarkdownTOP SECRET
+
+National Security Council --
+Senator Huddleston. Of the United States?
+Mr. Maheu. -- of the United States, and within a matter,
+I believe, of forty-eight hours, our State Department
+denounced the agreement. It was the first time that anyone
+had actually seen what this meant, and frankly, there was an
+innate fear that with the initial $17 million, then there would
+be no way of stopping, I mean, he might go to Venezuela and
+do the same thing, and there were also other inputs about the
+background of Mr. Onassis that I would just as soon not make
+a matter of record, but they were not too favorable, that we
+presented to the National Security Council verbally but not
+in writing.
+
+Mr. Madigan. Who made the presentation?
+
+Senator Schweiker. What subsequently happened then with
+the Security Council denunciation, et cetera?
+
+Mr. Madigan. The State Department denounced the agreement
+and that same evening we were told that two of the top CIA
+officials were on their way to Saudi Arabia.
+
+Then I proceeded to dig up the gentleman by the name of
+Carl Twitchell by virtue of reading about the country, because
+I'm not about ready to go there and not know about the customs
+and the formation of the country. I dug up a man by the name
+of Carl Twitchell who was living in Connecticut who turned out
+to be the first American who had ever really been accepted by
+
+20
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+HW 50955 DocId:32203816 Page 4
+
+TOP SECRET

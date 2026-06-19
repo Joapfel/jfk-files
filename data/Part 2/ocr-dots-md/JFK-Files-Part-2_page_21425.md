@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_21425.png
+
+Convert to MarkdownHW 50953 DocId:32339240 Page 49
+
+DANGER - AMERICAN AGENT AT WORK....
+
+Many people on the left tend to get a little paranoid about the C.I.A., and to suspect absolutely everyone. There is, however, one person who moves around in the British left who should be avoided - it is just a little more than coincidental that so many people and organizations abroad seem to think that he is working for the Americans.
+
+His name: RICHARD GIBSON. He is a Black American, and he works for NEGRO PRESS INTERNATIONAL, itself not totally above suspicion. Gibson speaks in Marxist-Leninist-Maoist terminology, and pretends to be no more than this. He produces a monthly bulletin, called 'RICHARD GIBSON reports,' which carries a lot of information about those Southern African movements which are not fighting, like the PAC of South Africa, and ZANU of Rhodesia. He also carries, in this bulletin, smears about other movements, suggesting that they are lackeys of Israel, or terrorists or not revolutionary.
+
+Gibson is believed to be a CIA agent by most of the Southern African groups, by the Black Panthers, by the Palestinians, et. al. He used to work with a magazine in Algiers, but he was sacked, and the magazine printed an explanation saying he was CIA. Similarly, he lost his tie with 'Jeune Afrique' after they found him having contacts with US embassy officials. Even Jordanian diplomats, who are not unknown for their US links, have been known to volunteer the information that Gibson is CIA.
+
+He works from Britain : SYNIC suggests that he should be watched with care. And his associates here should not be forgotten either. SYNIC will be covering a couple of them in future issues.
+
+DANGER - AMERICAN AGENT AT WORK is the first in a series of SYNIC PUBLIC SERVICE SECTIONS.
+
+TRUST
+EVIDENCE
+PLEASE
+ANSWER
+
+SYNIC No. 14. late February 1970.
+Contributors: Phil Kelly, Peter Hellyer
+Chris Dunyan, Guy Thornton,
+Edited and Published by Dave Page and
+Tony Carey.
+Graphics: David Austin, Nicos Papazancteaus.
+Subscriptions (£1 per year), diary dates.
+etc to: SYNIC, c/o Dave Page, 14, Hanley Rd
+London, N.4
+
+INCLOSURE
+
+HW 50953 DocId:32339240 Page 49

@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_19535.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+Milwaukee, Wisconsin
+
+January 23, 1968
+
+In Reply, Please Refer to
+File No.
+
+Demonstration Protesting United States
+Policy in Vietnam,
+Washington, D.C.
+January 8, 1968
+
+The "Capital Times", local daily newspaper published at Madison, Wisconsin in its issue of January 15, 1968 carried an article which reflected that Mrs. Lee Zeldin, 5705 Forsythia Place, Madison, Wisconsin and Mrs. Robert Franz, Oregon, Wisconsin were in Washington, D.C. that day partici-pating with the Jeannette Rankin Brigade March on Congress. This article states that Mrs. Zeldin has been in peace demonstrations in Madison, Wisconsin and was a registered peace lobbyist in the State of Wisconsin.
+
+The article also discloses that Mrs. Franz is an observer and delegate from the Madison Womens' International League for Peace and Freedom.
+
+The "Milwaukee Sentinel", local daily morning publication, Milwaukee, Wisconsin in its issue of January 16, 1968 disclosed that Milwaukee Alderman Fred E. Milwaukee Common Council Member, Mrs. Vel R. Phillips; Mrs. Bertha Rubin, 3948 North Murray Avenue, Shorewood, Wisconsin and Mrs. Leon Gilman, 3822 North 67th Street, Milwaukee, Wisconsin had participated in the Jeannette Rankin Brigade March on Congress in Washington, D.C. on January 15, 1968.
+
+The "Milwaukee Journal", local daily evening publication, Milwaukee, Wisconsin in its issue January 16, 1968 also identified the aforementioned three individuals from the greater Milwaukee area as having attended the demonstration in Washington on January 15, 1968. In addition, its article on the matter identified Robin and Peggy Muelver, sisters, 2506 South 29th Street, Milwaukee as two additional Milwaukee participants.
+
+"This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency."
+
+COPIES DESTROYED
+
+27 MAY 13 1971
+
+NW 88321 DocId:32989544 Page 416

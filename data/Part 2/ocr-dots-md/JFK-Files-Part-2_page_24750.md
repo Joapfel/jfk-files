@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_24750.png
+
+Convert to Markdownit [the contact] unless there was some possibility of reactivating that operation" (Bissell, 6/11/75, p. 19). Bissell stated that because the assassination plot against Castro involving the syndicate
+
+had been stood down after the Bay of Pigs ... and there was no authorization to pursue it actively ... the responsibility that was given to him [Harvey] was that of taking over an inactive contact." (Bissell, 7/17/75, p. 14)
+
+Bissell said that he had, in effect, asked Harvey to stand watch over the contact in case any action should be required and further testified that it was never required.
+
+The Inspector General's Report stated: "After Harvey took over the Castro operation, he ran it as one aspect of ZRRIFLE." (I.G., p. 40). Harvey recalled that during a discussion with Bissell of the creation of an executive action capability, Bissell advised him of "a then going operation" involving the names of Maheu and possibly Roselli and Giancana, "which was a part of the Agency's effort to develop ... a capability for executive action." (Harvey, 7/11/75, pp. 55, 61). Harvey said that at the time of this discussion, the operation had been "in train" for "approximately two years or perhaps 18 months." (Harvey, 7/11/75, p. 54).
+
+Although his "net impression" was that both the "exploratory project" and the "specific operation" were "fully authorized and approved", Harvey said he could not testify that "specific White House authority for this given operation was implied or stated". (Harvey, 7/11/75, p. 54.) Bissell does not recall telling anyone in the White House that something had been done to

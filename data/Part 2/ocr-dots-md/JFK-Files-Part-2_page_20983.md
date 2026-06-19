@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_20983.png
+
+Convert to MarkdownSECRET/SCOPE(S)
+
+Memorandum to Mr. W. R. Wannall
+
+Re: Senstudy 75
+
+furnish Israeli intelligence information on Arab moves in the Middle East crisis. During a meet in October, 1969, "Michael" was surveilled to the Israeli Consulate where he met Paul Korem, IIS representative. The informant subsequently received instructions that in the event of an emergency he should call a specific telephone number and ask for "Paul." This telephone number was identified as being a private line located at the Israeli Consulate. (S)
+
+Neither of the above-described operations is currently active at New York. (S)
+
+Korem, during his assignment at the Israeli Consulate in New York, initiated liaison contact with the New York Office of the FBI. (S)
+
+FBIHQ currently has liaison with Menachem Navoth, IIS representative at the Embassy of Israel, Washington, D. C. During July, 1956, through December, 1956, while attending American University, Washington, D. C., and employed part time as a guard at the Embassy of Israel, Navoth was engaged in intel- ligence activities in the United States. Navoth met with an FBI double agent who was an employee of the U. S. State Department on several occasions and paid the double agent $250.00 for cooperating with the Israelis. (S)
+
+New York currently has liaison with the Israeli Consulate. (S)
+
+FBI files also reflect that IIS representatives have periodically conducted operations in the United States similar to those described herein since 1948. (S)
+
+SECRET/SCOPE(S)
+
+- 4 -

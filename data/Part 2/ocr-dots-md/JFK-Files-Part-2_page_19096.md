@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_19096.png
+
+Convert to MarkdownIn Reply, Please Refer to
+File No.
+
+CONFIDENTIAL
+
+Washington, D. C. 20535
+
+January 25, 1966
+
+OLEG D. KALugin
+INTERNAL SECURITY - R
+
+On January 16, 1966, a confidential source, who has furnished reliable information in the past, learned that Sam Jaffe of the American Broadcasting Company (ABC) was in contact with Oleg D. Kalugin. According to the source, Jaffe related that he spent the weekend in Washington, D. C., having come down from New York City for a breakfast engagement with Secretary of State Dean Rusk. Jaffe said that Rusk was away and he was, therefore, represented by Under Secretary of State George Ball. C-
+
+Jaffe advised Kalugin that he would return to New York City on January 17, 1966, but that he would return to Washington, D. C., on either Wednesday, January 19, 1966, or Thursday, January 20, 1966, indicating he would pass through on his way to California. Kalugin suggested they get together for lunch at that time, and Jaffe said he would let Kalugin know when he is available. C-
+
+The source advised that Jaffe inquired as to the chances of ABC getting back there, which the source interpreted as referring to the Soviets issuing a visa to an ABC correspondent, and Kalugin replied that they would discuss it at the luncheon engagement. -C-
+
+The November, 1965, issue of the "Diplomatic List," published by the United States Department of State (USDS), lists Oleg D. Kalugin as a Second Secretary (Press), Embassy of the Union of Soviet Socialist Republics in Washington, D. C. V-
+
+CONFIDENTIAL
+
+GROUP I
+Excluded from automatic
+downgrading and
+declassification
+
+ENCLOSURE
+
+Classified by 6/30/66
+Exem- from GRS, Category A+3
+Date: Declassification Indentite
+
+NW 88326 DocId:32989704 Page 390

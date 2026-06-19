@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_21752.png
+
+Convert to MarkdownExhibits 3
+
+Handwritten note drawing the organizational structure of a European military unit, likely a division or similar level. The notes show that Baker + Richardson, a known military family, are behind the diagram.
+
+The diagram itself is a basic organizational chart with units at different levels: C/PP/SE (Division), C/SE (Child Division), CI/FI/SE (Sub-Division), DC/SE (Department).
+
+From this, we can see that:
+
+1. C/PP/SE and C/SE are main Divisions.
+2. D/C/SE has two sub-divisions, ALBANIA and RUNMANIA.
+3. R/UN/MANIA has its own sub-division, BULGARIA.
+4. BULGARIA has one base (Pone) and one sub-division (PACO/S).
+
+5. W. GERMAN UNIT has its own sub-division, BASE.
+
+This organization likely represents a cross-section of the European military hierarchy at the time. It shows a chain of command from top to bottom, with individual units at each level. The use of vertical lines (lines within boxes) indicates a hierarchical structure, while horizontal lines (lines between boxes) suggest a functional or operational relationship. This type of organizational chart is common in military circles and was used to manage and coordinate forces during World War II.

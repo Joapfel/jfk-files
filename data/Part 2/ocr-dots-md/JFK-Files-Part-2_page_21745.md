@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_21745.png
+
+Convert to MarkdownTOP SECRET
+
+Phone (Area 202) 544-6000
+
+410 First Street, S.E., Washington, D.C. 20003
+
+6 other words, there was never any face to face contact.
+
+2 Mr. Baron. Aside from dealing through publishing houses
+3 that you had established contact with, did you deal individually
+4 with authors who were non-CIA employees?
+
+5 Mr. Hunt. I did not. I don't think DOD did. I think that
+6 Far East Division did.
+
+7 Mr. Baron. Do you know with whom?
+8 
+9 Well, they dealt also, the Soviet Russia division dealt with
+10 Frank Gribney on the Penkoski case. In fact, I had lunch with
+11 Frank while he was doing the Penkoski Papers. So that was,
+12 an example.
+
+13 Mr. Baron. Did they have a regular program?
+14 Mr. Hunt. Yes, I think so.
+15 Mr. Baron. Both of those two divisions?
+16 Mr. Hunt. Yes.
+
+17 Mr. Baron. Is there anything else that you think we would
+18 need in order to have a fairly clear, complete picture of the
+19 relations to the media or the publishing industry?
+
+20 Mr. Hunt. Well, I think you could get probably a good
+21 deal more information from Cord Myer, who had a lot of that
+22 directly under him when he was Chief of the International
+23 Organizations Division, and of course, he served as Deputy
+24 Chief of Clandestine Services for quite a while. He would
+25 probably have as panoramic knowledge as anybody. I guess he's
+
+TOP SECRET
+
+HW 50955 DocId:32202418 Page 50

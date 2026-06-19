@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_19104.png
+
+Convert to MarkdownLetter to SJC, New York
+
+RE: IRVING KAHN
+
+CONFIDENTIAL
+
+In August, 1964, Kahn told Kazakevich that Sterling Spero probably would not meet him in Moscow. Spero had a heart attack in Berlin and planned to return to New York. Kahn indicated that Phil Baum had told him that he had enjoyed his visit with Kazakevich. In November, 1964, Kahn informed Kazakavich that he had visited Sterling; Spero in the hospital in Berlin. Spero was then better and back in New York. -C-
+
+During the contact in June, 1964, subject wanted to know whether Kazakevich ever saw his cousin, Sam Jaffee, representative of AIG-Paramount. In August, 1964, subject mentioned his cousin, Sam Jaffee, again stating that Jaffee represented WACC in Moscow. He wished that Kazakevich could visit Jaffee. Kahn told Kazakevich that Jaffee is married to a young girl from New Zealand and resides in Moscow. -C-
+
+San Jaffee is undoubtedly identical with Samuel Jaffee, subject of urfile 134-3315. -C-
+
+During a contact in August, 1964, Kahn answered what was believed to be a previous inquiry from Kazakevich regarding an unidentified individual. Kahn told Kazakevich that he did not know "him" but believed that he was then in charge of the International Affairs Committee in Haarlem's (not further identified) office. -C-
+
+In November, 1964, Kahn reported to Kazakevich regarding the trip he and his wife, Ruth, had to Europe with a group of financial analysts. They flew to London, Brussels, Dusseldorf, Berlin, Frankfurt, Vienna, Madrid, Paris, and Amsterdam and spent about a month visiting corporate managements and meeting with bankers. -C-
+
+Kahn told Kazakevich in June, 1964, that American impressions of Russia were improving but the Russians would get good out of a large exchange of visitors. In August, 1964, Kahn urged the Russians to let the Soviets travel to the US. He thought such travel would result in obtaining good will and the visitors could persuade influential Americans that the U.S.S.R. does not want to widen their borders or to make other countries accept communism. -C-
+
+Kahn assured Kazakevich that the Soviets could call upon the U.S. to repeat the material help and military aid given during World War II if they needed help against aggressor Eastern nations. Kahn indicated that he had "long felt" that the U.S.S.R. had no plans for military conquest. -C-
+
+CONFIDENTIAL
+
+-- 2 --

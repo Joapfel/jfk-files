@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_23234.png
+
+Convert to Markdown# TOP SECRET
+
+to proceed without reference to anybody else he would presumably go ahead and do so.
+
+Mr. Baron. But, because the feasibility of this assassination of Lumumba had been discussed, this was not such a tightly held subject that the DDP would have been circumvented?
+
+Mr. Tweedy. DDP as far as I was concerned was the person with whom the division first discussed the matter entirely. I don't recall ever having discussed it with Allen Dulles. I am sure when I say I am sure I assume Bissell discussed it with Allen Dulles but, this was never a matter which was between the DCI's office and the Leopoldville station insofar as I was aware, and to this day I don't believe it ever was.
+
+Mr. Baron. Just to clarify something we talked about earlier when I think we were jumbling two questions together, it is your expert opinion, expert in the sense of your knowledge of the Agency, and your opinion as a participant at that time that the testimony, the basic testimony we have received about poisons being delivered to the Congo by Dr. Gottlieb with instructions to use them in the assassination of Lumumba, if possible, would be true testimony?
+
+Mr. Tweedy. Only way I can answer that question, Mr. Baron, is to say I see not the slightest reason and do not believe that you would have been lied to on this point.
+
+# TOP SECRET
+
+1963 ARS 2071 544-4000
+10/28/80
+
+10/28/80
+
+H

@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_24633.png
+
+Convert to MarkdownOn September 24, Allen Dulles personally issued a cable to Leopoldville expressing in absolute terms his desire to "eliminate"
+
+Lumumba:
+
+WE WISH GIVE EVERY POSSIBLE SUPPORT IN ELIMINATING LUMUMBA FROM ANY POSSIBILITY RESUMING GOVERNMENTAL POSITION OR IF HE FAILS IN LEOP[OLDVILLE], SETTING HIMSELF IN STANLEYVILLE OR ELSEWHERE. (CIA Cable, OUT 73573, Dulles to Leopoldville, 9/24/60.)
+
+Dulles had expressed a similar view three days before in the presence of the President at an NSC meeting, stating:
+
+Mobutu appeared to be the effective power in the Congo for the moment but Lumumba was not yet disposed of and remained a grave danger as long as he was not disposed of. (NSC Minutes, 9/21/60)
+
+(b) Gottlieb Delivers Lethal Substances to the Chief of Station in the Congo for the Assassination of Lumumba
+
+The Chief of Station reported through the PROP channel to Bronson Tweedy that he had made contact with the man dispatched to Leopoldville with a highly sensitive assignment on September 26. (CIA Cable IN 18989, Leopoldville to Tweedy, 9/27/60) This was the same week in which Dulles cabled about the "elimination" of Lumumba and made his statement to the NSC about the "grave danger" that existed as long as Lumumba was not "disposed of".
+
+Hedgman testified about the identity of "SID" -- the messenger referred to in the first cable through the PROP channel:
+
+Q: Who was the messenger who arrived?
+
+Hedgman: Mr. Sidney Gottlieb
+
+NW 50955 DocId:32423539 Page 263

@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_23479.png
+
+Convert to MarkdownSECRET - ENDS ONLY
+
+notice before any OAS committee actually visited Guatemala and that it might be possible even then to avoid actual investigation on the spot. Mr. Bissell said that if we do have a week, evacuation could be carried out by Agency aircraft; if more speed is required DOD assistance might be necessary. Mr. Douglas, with Mr. Dulles and Mr. Bissell concurring, felt that the possibility of emergency evacuation to Florida under the guise of ordinary refugees should be kept in mind.)
+
+Mr. Dulles suggested that questions on Cuba might be asked at the next Presidential press conference and that we should be prepared with a statement along the lines that we do not entirely discourage revolutionary activity. Mr. Merchant said he would arrange to have a draft prepared along these lines. In this connection, Mr. Parrott reported the request from Assistant Attorney General Yeagley for guidance as to possible action against an alleged collaborator of General Pedraza. (Note: Mr. Yeagley was later told that we have no operational interest and no objection to the Department of Justice's pursuing the case. Mr. Yeagley said that they would proceed with investigation, but that it is by no means certain the case will ever come to trial.)
+
+Mr. Gray then outlined his understanding of his friends' desires with respect to organization of the anti-Castro effort. He said that the principal need foreseen was for an individual to serve as a focal point for diverse interests in this situation, and to be available to meet with Mr. Gray's friends at any time. In addition, someone should be available to deal with the FRD and to talk to other Latin American governments.
+
+After a considerable amount of discussion, the consensus of the Group was as follows: Probably two men will be required, one to handle the overt and the other the covert aspects. They would work together on a daily basis and both would have the entire picture in mind, but responsibility for the execution of covert operations would have to rest with CIA. The overt man should ideally be a government official, preferably someone senior in the Foreign Service or the Department of State. There should be a sort of "board of directors" to oversee all aspects of the operation. This should be the Special Group plus Secretary Anderson when matters of major policy are considered. (Mr. Gray was not entirely sure that his friends would accept the two-man concept but Mr. Dulles and Mr. Merchant emphasized that whether
+
+PROPRIETATE DE
+THE WHITE HOUSE OFFICE
+
+2
+
+SECRET - ENDS ONLY
+
+HW 50955 DocId:32423488 Page 52

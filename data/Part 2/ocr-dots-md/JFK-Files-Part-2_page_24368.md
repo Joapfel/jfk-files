@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_24368.png
+
+Convert to MarkdownMEMORANDUM
+
+SUBJECT: Project MUTUAL
+
+Project MUTUAL will be operated in conformance with appropriate legal restrictions. Arrangements are being made for the briefing of the appropriate Congressional committees. Particular attention will be given to avoiding any possible conflict of interest situations with firms with which the Agency has contracts. Particular concern will also be exhibited over possible improper influence on the stock market or stock dealings through the investments involved in MUTUAL.
+
+RECEIVED FROM
+JUN 25 1975.
+CIA
+
+SECRET-EYES ONLY
+
+HW 50955 DocId:32423532 Page 262
+
+3, 2021 2:38 PM

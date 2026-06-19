@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_21154.png
+
+Convert to MarkdownTOP SECRET
+
+have had access to information concerning all of them
+while Deputy Chief of the Section in 1958-59. [FISK] was there in 1959; [GINSBERG] was there in 1956 but had subsequent trips; [KANTOR] is believed to have visited relatives (As indicated above, such cases would probably not have come to NOSENKO's attention);
+[KARLOV] was a [Swede] rather than American (NOSENKO'S section may have had an interest if he was a part of the [Yale Chorus]). [PECHTER] was there in late 1959;
+[PRESSMAN] was there in 1957 but did not go as a tourist
+[SEVERN] probably did not visit the Soviet Union as a tourist; [SHATTAUR] had previously been recruited in Poland in 1946-47 and was re-recruited in 1962; [TARASKA] also visited relatives. References to all of these cases could, of course, have been in the 7th Department files reviewed by NOSENKO when he became Deputy Chief of the Department. Three of them [RUFE, SHATTAUR and KANTOR] were in notes prepared for the BOBKOV list referred to above. Therefore, it does not
+
+79.
+
+TOP SECRET

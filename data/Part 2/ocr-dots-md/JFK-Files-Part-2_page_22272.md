@@ -1,0 +1,70 @@
+# JFK-Files-Part-2_page_22272.png
+
+Convert to Markdowndn2
+
+TOP SECRET
+
+and this record, which is a record we have obtained from the Agency, may be unfair to you. But do you not agree that on this record it appears that on the item of the passing of the weapons which were the weapons that were in fact used, it appears that the Agency elected to keep the State Department uninformed on that item?
+
+Mr. Bissell. No, sir, it does not quite appear that way. It appears -- if I put these two together --
+Mr. Schwarz. By these two you mean your cable of March 24 and the cable of May 1 relating to certain matters is not to be discussed with the State Department?
+Mr. Bissell. Yes. The earlier cable of those refers to machine guns.
+Mr. Schwarz. And to the pouching of revolvers?
+Mr. Bissell. And the pouching of revolvers. And I believe that what eventually passed to the dissidents were three rifles, not the revolvers. And, therefore, neither of these cables in fact refers to the passage to the dissidents out of U.K.'s control.
+This cable states the conditional willingness at some time in the future to pass machine guns. That permission was never granted and they were never passed.
+
+It refers to pouching revolvers. And I don't know whether there was a record that those were ever passed, or even intended to be passed, to the dissidents. And it would
+
+TOP SECRET
+
+HW 50955 DocId:32203786 Page 14
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25

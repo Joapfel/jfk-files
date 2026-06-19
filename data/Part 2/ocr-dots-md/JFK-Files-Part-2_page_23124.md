@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_23124.png
+
+Convert to MarkdownTOP SECRET
+
+but that didn't impact on my life at that particular time.
+
+Senator Schweiker. All right.
+
+Mr. Johnston. Moving to the time of the Kennedy assassination, were you Chief of Station and in Miami when the President was assassinated?
+
+Mr. Halley. Yes, I was the Chief of Station and I was in Miami.
+
+Mr. Johnston. You were physically in Miami on November 22nd,
+
+Mr. Halley. Yes, I was.
+
+Mr. Johnston. Did you receive any orders through CIA channels to conduct an investigation into the assassination of the President?
+
+Mr. Halley. Well, my recollection of that was that we had requested for name traces at the time that Oswald was arrested, and that was our contribution to the investigation.
+
+Mr. Johnston. Did you receive any order in the form of a cable or any other fashion to conduct an investigation?
+
+Mr. Halley. I don't recall receiving one, but if you showed me a cable, I would have to comment on it. In other words this was in 1963. This is 1978, and as you know from our records, I've been in an awful lot of high volume projects since that time, and I don't think it is likely that I would return a specific cable, you know, on a particular day. I mean, I have been in Berlin, Laos, Vietnam. My life has been active,
+
+TOP SECRET
+
+NWI: 55010 Decid: 32423455

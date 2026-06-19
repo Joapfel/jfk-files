@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_23052.png
+
+Convert to MarkdownTOP SECRET
+
+1. interested in so that there would not be a cross of problems
+2. with these jurisdictions and therefore a liaison was opened on
+3. that basis, a multiplicity of approaches.
+4. Mr. Baron. The article discusses the fact that regular
+5. commando raids were run out of JMWAVE Station to the shore of
+6. Cuba, and that those commandos were equipped with all kinds of
+7. explosives and armaments.
+8. Is that generally a fair statement, that we were running on
+9. a regular basis commando raids to Cuba?
+10. Mr. Halley. Yes. There were a series of commando raids
+11. run from the Miami Station against targets in Cuba.
+12. Mr. Baron. Were assassination weapons, that is, high-powered
+13. rifles with low muzzle velocity and telescopic sights, supplied
+14. to those commando teams as a matter of course?
+15. Mr. Halley. No, they were not. For most of those
+16. commando teams, you were looking for a different kind of a
+17. weapon. You are looking for a weapon with a high range of fire
+18. power over a short distance to deal with an emergency situation
+19. rather than the kind of, you know, weapon that we are talking
+20. about.
+21. In other words, you would find that type of a group armed
+22. with a submachine gun, as for example.
+23. Mr. Baron. If an assassination weapon as we have
+24. described it was supplied to a commando team, they would have
+25. to have a specific purpose in mind for its use?
+
+TOP SECRET
+
+7 6 5 P U B C H . 7 0 1 - 7 3 .
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area 202) 544-6000
+
+HW 50955 DocId:32423434 Page 101 .

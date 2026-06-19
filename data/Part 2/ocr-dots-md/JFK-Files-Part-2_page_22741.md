@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_22741.png
+
+Convert to MarkdownTOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARS & PAUL
+
+Phone (Area 302) 549-4000
+
+You've got to be able to satisfy the questionnaires, and you can go all the way on down the line. This ties up thousands of man-hours.
+
+Mr. Johnson. Could you explain that "satisfy the questionnaires?"
+
+What does that phrase mean, "satisfy the questionnaires?"
+
+Mr. Angleton. The opposition wants to know, find out from your sources the following questions.
+
+Mr. Miler. In other words, the requirements they put on the agent.
+
+Mr. Angleton. Now, that agent is allegedly in the CIA and there is a penetration, then you are just going through games, and they will play such an operation. They could have a very senior penetration into the Agency and play along on a double in order to lead you to believe that they do not have a penetration. And they can tie up your manpower and put doubles underneath him and another agent, and they can give him a radio set, and with the radio set they can give him crystals, and he needs other crystals, and it involves more and more of your own personnel and manpower. And you can tie up NSA monitoring all the links.
+
+And so this idea that has all of a sudden been novel and newly discovered in the Agency that Counterintelligence must be aggressive is in my view a joke. It's a joke.
+
+Mr. Miler. You have to know what you're dealing with.
+
+TOP SECRET

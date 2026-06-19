@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_21678.png
+
+Convert to MarkdownTOP SECRET
+
+20
+
+1 that I recall were going on out there. And I think one of the
+2 Thai police might have been involved.
+
+3 Mr. Wides. I don't know if it refreshes your recol-
+4 lection, but I believe a Colonel Rack was a local official
+5 who had some knowledge of it.
+6
+7 this together and talked to Allen Dulles who was much concerned
+8 about it. He said, I think we ought to report that to
+9 Justice.
+10
+And I said, there is no particular problem, because
+11 there is nothing we can do about it because there is no crime
+12 against the U.S. that I can find in this situation, it is a
+13 crime against the Thai sovereignty.
+14
+And Allen said, that well may be. But I still think
+15 that I want to report this to Justice.
+16
+And he asked me to prepare a detailed report on a
+17 classified basis. I have forgotten the nature of the classi-
+18 fication. I suppose the relations with CAT at that time were
+19 still basically top secret.
+20
+So, I did prepare a report and delivered it to -- I
+21 can't remember-- probably to the Assistant Attorney General,
+22 Criminal Division, who ever it was.
+23
+They said to the effect, thank you, that is it. There
+24 is nothing we can do.
+25 Mr. Wides. Was there any discussion of the possibility
+
+TOP SECRET
+
+HW 50955 DocId:32202415 Page 4

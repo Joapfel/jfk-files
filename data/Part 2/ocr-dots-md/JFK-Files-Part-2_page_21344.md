@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_21344.png
+
+Convert to Markdown1 To SAC, New York
+
+Re: NY 3186-PSJ (c)
+
+CONTINUANCE OF NOTE:
+
+[he has made available copies of] incoming and outgoing manifests of Cubana flights between New York and Havana. New York has pointed out that [PSI] has not furnished data of unusual value; but because of his position, has a good potential. CIA advised Liaison Agent Papich it would not contact [PSI] until it had received authority to do so from Bureau. Before allowing CIA to make contact with [PSI], it is believed it would be best for our interests to determine if [PSI] can actually assist CIA. If he is in position to assist that Agency, we will then consider what stand to take in this matter.
+
+CONFIDENTIAL
+
+- 2 -

@@ -1,0 +1,67 @@
+# JFK-Files-Part-2_page_19136.png
+
+Convert to MarkdownFBI
+
+Date: 8/28/72
+
+Transmit the following in
+
+(Via AIRTEL
+
+(Priority)
+
+<table>
+   <tr>
+    <td>TO:</td>
+    <td>ACTING DIRECTOR, FBI</td>
+   </tr>
+   <tr>
+    <td>FROM:</td>
+    <td>SAC, NEW YORK (100-172487)</td>
+   </tr>
+   <tr>
+    <td>SUBJECT:</td>
+    <td>WOMEN'S BAIL FUND<br/>IS - REVACT<br/>(OO:NY)</td>
+   </tr>
+  </table>
+
+Enclosed for the Bureau are ten copies of an
+LHM regarding the Women's Bail Fund.
+
+LHM is classified "Confidential" inasmuch as in-
+formation received from sources of continuing value, if
+disclosed could impair their future effectiveness and
+therefore be prejudicial to the national defense interests.
+Indices of the NYO are negative concerning individuals
+mentioned in the LHM as being members of the Women's Bail
+Fund with the exception of AMY LOBENSTINE.
+
+New York Office files reflect AMY LOBENSTINE
+is a member of the Women's Liberation Movement and, in 1969,
+was a member of the "People Against Racism", an umbrella-type
+organization financed by church groups working exclusively
+in White communities in opposition to the supremacy of
+White culture. LOBENSTINE is the wife of FARNSWORTH ELLIOT
+LOBENSTINE, subject of case captioned, "FARNSWORTH ELLIOT
+LOBENSTINE; SM - REVACT (VB); (New York file 100-165762,
+Bureau file 100-459419).
+
+(2) Bureau (Encls. 10) (RM)
+1 - New York (105-108560) (AMY LOBENSTINE)
+1 - New York
+AJO:lab
+(5)
+
+ST-106
+
+DEC 16
+
+NO AUG 30 1972
+
+Approved: 70 SEP 2.1.1972
+
+Sent M Per
+
+Rev Act Sect.
+
+NW 88321 DocId:32989544 Page 17

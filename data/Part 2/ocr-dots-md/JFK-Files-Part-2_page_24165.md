@@ -1,0 +1,60 @@
+# JFK-Files-Part-2_page_24165.png
+
+Convert to MarkdownSECRET
+SENSITIVE - 54 -
+
+| PROJECT/ ENTITY | HIGHEST NET EQUITY BALANCE ON AGENCY RECORDS 1952-1974 | NET WORTH BALANCE 31 DEC 74 |
+|---|---|---|
+| QRLEDGER | $ 165,500 | $ 91,400 |
+| QRMASTER | 538,600 |  |
+| QRMOSAIC |  |  |
+| QRHAWKBIT | 106,000 | 94,500(a) |
+| QRMYSTIC |  |  |
+| QRCYNIC | 9,200 | 2,700 |
+| QRTRIG | 100 |  |
+| QRTROW (*) | 775,700 |  |
+| RIPCORD | 200,000 |  |
+| RIPSNOTER | 457,300 |  |
+| ROCKOIL | 3,879,000 |  |
+| RONDURE | 29,500 |  |
+| SEASONAL | 39,900 |  |
+| SERING | 10,500 |  |
+| SGSUMMON | 62,100 |  |
+| SILVER/A | 1,250 |  |
+| SIP'ZZLE | 32,000 |  |
+| SL. | 35,000 | 4,900 |
+| SOPRANO | 15,000 |  |
+| SORTIE | 16,000 |  |
+| STFANWEED | 28,000 |  |
+| STSKI | 11,600 |  |
+| TENACIOUS | 21,000 |  |
+| TETARCH | 243,800 |  |
+| TGVIVID | 23,700 |  |
+| THADMIRE | 42,000 |  |
+| THOPUS | 25,000 |  |
+| TPFOCUS | 1,764,000 |  |
+| TPFOUMART | 97,500 |  |
+| TPGLARE | 525,000 |  |
+| TPGULLET | 70,000 |  |
+| TPHERSEY | 326,700 |  |
+| TPMANJACK | 62,600 |  |
+| TPPELLENT | 635,000 |  |
+| TPSAUCER | 210,000 |  |
+| TPTONIC(same as FJINDULGE) | 34,260,000 |  |
+| TURBINE | 17,000 |  |
+| TUXEDO | 25,000 |  |
+
+(a) In process of liquidation.
+
+RECEIVED FROM
+
+NOV 4 1975
+
+CIA
+
+SECRET
+SENSITIVE
+
+-9- 28
+SECRET
+SENSITIVE

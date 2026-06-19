@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_22701.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+WARD & PAUL
+
+760001151!
+
+310 First Street, S.E., Washington, D.C. 20003
+
+that you have not then identified. We know what they passed
+or some of the stuff which was passed.
+
+Senator Mathias. Assuming a file was set up on that
+lunch two years ago--
+
+Mr. Angleton. The file wouldn't be set up there on the
+fact -- with your name on it, it would be the Soviets, and
+you would be buried in the file, which would probably be that
+thick, of that Soviet activity in the US. And there would be
+the fact that he was here, and that he went to New York, and
+he did this or that.
+
+Senator Mathias. So that wouldn't show up in Mathias'
+file, that would show up in an Arbatov file?
+
+Mr. Angleton. That is right. That is the way it is
+supposed to be. And the only time where I can see a file
+would be opened on an American Congressman or Senator would
+be where there was a substantial basis for opening up that
+file. But that wouldn't be at the initiative of the CIA, it
+would be a matter that would go to the FBI and the Attorney
+General, and then there would be somebody in the Senate or
+the Congress who would be contacted and notified, and so on.
+And I think Mr. Hoover's practice was that he would learn
+through his own sources that a person who is not good was
+going to have lunch with a Congressman or was cultivating him,
+and he would pick up the money -- or this is what they say.
+And I think this is the way he handled it -- he would simply
+
+TOP SECRET
+
+TOP SECRET

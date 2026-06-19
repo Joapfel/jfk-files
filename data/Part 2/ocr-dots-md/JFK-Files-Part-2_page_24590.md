@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_24590.png
+
+Convert to Markdownlives of millions of Americans _with_ Soviet Missiles...but I can say I never did receive any order from President Kennedy or from Robert Kennedy about taking action against Castro personally." (Lansdale, pp.61-62). Lansdale further testified that he told O'Leary that he did take orders from Robert Kennedy, but made clear that "it was on a very wide-ranging type of thing." (Lansdale, p.62). Lansdale testified as follows concerning his statement to the Star following the O'Leary report:
+
+"After the story appeared, the... Washington Star asked me what wide-ranging things were you talking about?
+
+"I said there were economic matters and military matters and military things and they were very wide-ranging things. I said perhaps all O'Leary was thinking of was assassination. I was thinking of far wider than that." (Lansdale, pp.62-63)
+
+O'Leary's report makes clear that Lansdale did not state that Robert Kennedy instructed Lansdale to develop an assassination plan. The O'Leary report states:
+
+"Lansdale said he is certain Robert Kennedy's instructions to him did not include the word "assassination." He said the attorney general, as best he could recall, spoke in more general terms of exploring all feasible means and practicalities of doing something "to get rid of" Castro.
+
+In view of the above, it appears that although he may have been imprecise in his conversations with O'Leary and Martin, Lansdale nevertheless did not tell them that he was ordered to develop an assassination plan by Robert Kennedy or the President. As discussed above (see p. __), Lansdale testified that he never discussed a Castro assassination with President Kennedy or with Robert Kennedy. Lansdale's reported statements that he was ordered to plan to "get rid of Castro by all feasible means" is also consistent with Lansdale's testimony, as well as that of the other witnesses, with respect to the objective of the Mongoose operation. As
+
+HW 50955 DocId:32423539 Page 220

@@ -1,0 +1,83 @@
+# JFK-Files-Part-2_page_21717.png
+
+Convert to Markdown1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+my assumption at that time was that authorization by Frank Wisner would have been all that would have been required to proceed with the project had it ever materialized. That is the Chief of the Clandestine Services.
+
+Now whether Frank would have been required to go to Allen Dulles, I rather doubt it. I think it is something that he would have been able to authorize himself.
+
+Mr. Baron. All right. Let me ask you now before we get into Colonel Pash's version of the story, which we will, whether it is possible that you are confusing the time periods here?
+
+So as not to hold anything back from you, Colonel Pash has said that the time period has to be off because he retired from the Agency, or left the Agency in probably late '51. It's possible that it went into 1952. But he wasn't with the Agency in any capacity after '52. And in fact, his status was that of a military officer who had been detailed to the Agency from approximately 1948 to '52.
+
+Now does that affect your recollection in any way of the period '54 to '55 as the period when your conversation with Boris Pash took place?
+
+Mr. Hunt. Well, from 1950 to 1953, I was in Mexico as Chief of the OPC station.
+
+Mr. Baron. And where were you from the time that you joined the Agency until you went to Mexico?
+
+HW 50955 DocId:32202418 Page 22
+
+TOP SECRET
+
+43
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+HW 50955 DocId:32202418 Page 22
+
+TOP SECRET

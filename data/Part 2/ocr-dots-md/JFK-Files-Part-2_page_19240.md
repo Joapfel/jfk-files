@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_19240.png
+
+Convert to Markdown- CONFIDENTIAL -
+
+DEMONSTRATION PROTESTING U.S. POLICY
+IN VIETNAM, WASHINGTON, D.C., JANUARY
+15, 1968
+
+DEMONSIRATION PROTESTING U.S. E.C.L.I.C.T.
+IN VIETNAM, PORTLAND, OREGON, JANUARY
+15, 1968
+
+Corporal Lyle F. Mitchesl, Intelligence Section, Oregon State Police, Milwaukee Station, at 10:00 a.m.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
+
+- CONFIDENTIAL -

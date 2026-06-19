@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_21237.png
+
+Convert to MarkdownTOP SECRET
+
+YURI V. ZAITSEV, Attache, Soviet Embassy in Washington in
+1955; became employed by State Department in 1958; was
+detached to USIA in 1959 and assigned to the American
+National Exhibition in Moscow; and is currently a State
+Department employee. The connections of both [LUBIN](s) and
+[BURTIN](s) with USIA and the fact that they were both of interest
+to CIA are completely consistent with NOSENKO's comments
+regarding the type of cases handled by the 2nd Section and
+with PETROV's interest in establishing coverage. The same
+would apply to [WALTER BURGESS SMITH, II](s), if he traveled to
+the USSR in 1961. However, it cannot be stated with certainty
+that these are the cases PETROV had in mind or, if so, whether
+they were the only cases in which he was interested at that
+time.
+
+~~2. (FNU) HOFFMAN~~ (s)
+
+On November 27, 1967 (N-43), when shown a list of
+American Embassy personnel which included the name ~~JEROME~~
+DAVID HOFFMAN, NOSENKO stated there was a military officer
+who was in Russia for a short period in 1962 who was of
+interest to the 1st Section of the 1st Department which
+
+TOP SECRET
+
+HW 50953 DocId:32318825 Page 123

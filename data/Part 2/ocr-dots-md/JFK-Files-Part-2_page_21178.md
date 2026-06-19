@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_21178.png
+
+Convert to Markdownthat she had no Austrian passport and asked her for her passport. She left and never returned to American House. It was stated that NOSENKO described this incident in connection with KGB attempts to entrap [JOSEPH MORONE] in 1960, not [ZUJUS] in 1962; that interrogation of NOSENKO never resolved how he knew of this incident.
+
+Also with regard to the [ZUJUS] case, it is stated that NOSENKO identified ELLA UMANETS as a KGB agent employed at American House but never related her to [ZUJUS].
+
+**COMMENT:**
+
+On March 20, 1968, (N-167), NOSENKO related that in 1960 GRYAZNOV had gone to East Germany and brought to Moscow two girls who were to be targeted against American House. One of these girls, possibly known as "HANNAH", described by NOSENKO as a fat blonde in her mid thirties, posed as a correspondent from West Germany. This girl was introduced into American House with the help of [PREISFREUND]. NOSENKO stated that another woman had been documented as an Austrian but had not been successful.
+
+TOP SECRET
+
+TOP SECRET
+
+HW 50953 DocId:32318825 Page 64

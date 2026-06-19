@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_19747.png
+
+Convert to MarkdownCV T-1 is a confidential source, who is in a position to have information of this type
+
+CV T-2 is CV 694-S
+
+CV T-3 is CV 1098-PSI:
+
+CV T-4 is NY 4253-S
+
+Cleveland will continue to follow and report developments.
+
+LHM classified CONFIDENTIAL as data reported from
+CV T-1 thru CV T-4 could reasonably result in identification
+of confidential informants of continuing value and compromise
+effectiveness thereof.

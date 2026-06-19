@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_24494.png
+
+Convert to MarkdownCuban affairs during this period leading up to the Bay of Pigs received active high-level attention. Bissell said that, in a continuation of the kind of intense weekly scrutiny the Eisenhower Administration had given the invasion plans (Bissell, 6/9/75, p. 13).
+
+"...almost from the beginning of the Kennedy Administration, the President himself and a number of Cabinet members and other senior officials took a very active interest in the operation(s) concerning Cuba." (Bissell, 6/9/75, p. 16).
+
+Bissell "almost invariably" was present at meetings in which the President and other senior officials took an "active interest" in Cuba (Bissell, 6/9/75, p. 17). Bissell testified that he did not inform any of them of the assassination plot. (Bissell, 6/9/75, p. 39).
+
+### C. KENNEDY ADMINISTRATION OFFICIALS DENIED KNOWLEDGE OF ASSASSINATION EFFORTS AND GAVE OPINION THAT PRESIDENT KENNEDY WAS NOT INFORMED
+
+Testimony was taken by the Committee from all living officials high in the Kennedy Administration who dealt with Cuban affairs.* The theme of their testimony -- which is set forth in detail below -- was that they had no knowledge of any assassination plan or attempt by the U.S. government before or after the Bay of Pigs invasion.
+
+As with the Eisenhower Administration officials, members of the Kennedy Administration also said they did not believe the President's character or style of operating would be consistent with approval of such a matter.
+(McNamara, p. 4; Bundy, p. 98; Taylor, pp. 45,51).
+
+* Most of the testimony from officials high in the Kennedy Administration dealt with the period after the Bay of Pigs invasion, involving Operation Mongoose and related activities. (See Section 3, infra.) It was during this period that most of the high officials in the White House, State Department, Defense Department, and the CIA were drawn into the detailed planning of Cuban operations. During this period, an extraordinary amount of decision making memoranda and other documents were generated in response to the Cuban situation.

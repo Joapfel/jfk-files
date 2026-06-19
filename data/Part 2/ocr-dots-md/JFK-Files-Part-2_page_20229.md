@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_20229.png
+
+Convert to MarkdownTHE JEANNETTE RANKIN BRIGADE
+
+Vol II
+
+10/15/75 &nbsp;&nbsp; SSC
+
+NWW 88321 DocID:32989545 Page 513

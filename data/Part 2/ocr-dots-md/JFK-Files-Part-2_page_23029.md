@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_23029.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+TOP SECRET
+
+76
+
+1 of names that do ring bells with me. I really would have to
+2 have back-up material to clarify why they ring a bell. This is
+3 one that happens to ring a bell with me, but I have no way of
+4 linking it to anything, and certainly I do not link it in any
+5 way in my memory to Mr. Harvey.
+6
+7 Mr. Baron. Do you remember ever hearing of a Cuban contact
+of William Harvey's who went by the name of Maceo?
+8 Mr. Halley. No, I do not.
+9 Mr. Baron. He also used the name of Garcia Gomez and
+the name Godoy:
+10
+11 Mr. Halley. The only name that rings any bell with me
+12 in Cuban contacts is Arturo Godoy. Is this the same man?
+13 Mr. Baron. We do not have the first name of that alias.
+14 In what connection had you heard of Arturo Godoy?
+15 Mr. Halley. My recollection is I've known Arturo Godoy
+16 is that he was the fellow who was active in the Cuban immigre
+17 community in Miami. That is all I can tell you at this point.
+18 I would have to go back.
+19 Mr. Baron. You do not remember what group he was connected
+with?
+20
+21 Mr. Halley. No, I do not. But it was a name that
+22 obviously, you know, frequently referred to in reports. You
+23 know at one time we did monitor the Cuban community as to what
+24 was going on in terms of these various groups and what they
+25 had been doing. For some reason, Arturo Godoy rings a bell with
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+760 WARD BRADY 7:01 PM
+
+Hm

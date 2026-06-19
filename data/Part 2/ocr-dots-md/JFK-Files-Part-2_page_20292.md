@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_20292.png
+
+Convert to MarkdownTeletype to SAC, St. Louis
+RE: DEMONSTRATIONS PROTESTING U.S.
+POLICY IN VIETNAM
+100-448475
+
+NOTE:
+
+has been an informant since 7/53.
+
+She is currently authorized payments of up to $235 per month for services and up to $20 per month for expenses. Source would be able to furnish valuable information concerning Brty efforts during this demonstration. The demonstration in Washington, D. C., on 1/15/68 is sponsored by the Jeannette Rankin Brigade composed of women from various peace organizations. Teletype being used in view-of necessity for infomant to make travel arrangements.
+
+Information Identifies Informant
+
+NH 15 Jan 1968 12
+
+SEPT 30 1968 10:21 AM
+
+- 2 -

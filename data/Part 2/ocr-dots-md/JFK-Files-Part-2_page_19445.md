@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_19445.png
+
+Convert to MarkdownDemonstration Protesting United
+States Policy in Vietnam,
+Washington, D.C., January 15, 1968
+
+Mr. John Martin, Passenger Representative, Pennsylvania Railroad advised that the special train would arrive Washington, D.C. at Union Station approximately 11:15 AM. Martin stated the first two cars of the special train were empty to accommodate additional women to be picked up in Newark, New Jersey. Martin indicated a group of women had come from New Haven, Connecticut via two buses and had boarded the JRB train.
+
+SAS of the FBI observed a bus from the Academy Charter Service of New Jersey containing approximately 50 women identified as participating with JRB depart from 31st Street between 8th and 9th Avenue, New York City, at 7:30 AM. Two other chartered buses were available at this location, but were not used.
+
+After 7:30 AM announcements were made within Pennsylvania Station that women participating with JRB, who had missed the special train, should board the regular Pennsylvania Railroad Train "The President" bound for Washington, D.C. SAS of the FBI observed approximately 200 women, who had congregated in vicinity of the special JRB ticket table, board "The President" which departed at 8:00 AM. This train was scheduled to arrive at Union Station, Washington, D.C. at 11:50 AM.
+
+SAS of the FBI observed women wearing buttons bearing "Women's Vote For Peace", "Jeannette Rankin Brigade", and buttons supporting Senator Eugene McCarthy. Normal Spector was observed selling tickets at the special JRB table. Lorraine Gordon was observed being interviewed by members of the Press in connection with JRB activities.
+
+CONFIDENTIAL
+
+-2-

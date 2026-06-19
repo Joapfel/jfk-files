@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_24532.png
+
+Convert to MarkdownBundy, speaking to the Group,
+
+"... made it clear that this did not constitute a blanket approval of every item in the paper and that sensitive ones such as sabotage, for example, will have to be presented in more detail on a case by case basis." (Memo of Special Group Augmented meeting, September 14, 1962, p. ).
+
+Helms and the members of the Special Group Augmented differed on whether or not these control requirements were consistent with Helms' perception that assassination was permissible without a direct order. We discuss that testimony below at ________.
+
+7. The Pattern of Mongoose Action. The documentary evidence and the testimony reveal that the Kennedy Administration pressed the MongOOSE opera- tion with vigorous language and although the collection of intelligence information was the central objective of MONGOOSE up until August 1962, sabotage and para military actions were conducted.* Thus, there was a major sabotage operation aimed at a large Cuban copper mine, and other sabotage operations. As Lansdale described them in his testimony, the sabotage acts involved "blowing up bridges to stop communications and blowing up certain production plants" (Lansdale, p. 36). And during the Missile Crisis in the fall of 1962, sabotage was increasingly urged.
+
+*/ In early March, 1962, the SGA recognized the need to begin "preliminary actions ... involving such things as spotting, assessing and training action-type agents" but the Group agreed that it must "keep its hand tightly" on these actions. The Group saw, however, that such control might not be completely effective and recognized "that many of the agents infiltrated would be of an all-purpose type; that is, they would be trained in paramilitary skills, as well as those of exclusively intelligence concern. It was noted that once the agents are within the country, they cannot be effectively controlled from the U.S., although every effort will be made to attempt such control." (Minutes of Special Group meeting, March 5, 1962).

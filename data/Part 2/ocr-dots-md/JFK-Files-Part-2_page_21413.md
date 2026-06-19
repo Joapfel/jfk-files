@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_21413.png
+
+Convert to MarkdownRichard Gibson Reports
+International news & features
+
+32, Hartswood Road
+Stamford Brook
+London, W12 9NA
+
+19 September 1970
+
+CONFIDENTIAL
+
+Dear Herb and Comrades,
+
+Just a hasty note to let you know that René and Gilbert have recently returned from Amman with news about the desperately critical situation there. Nevertheless, we believe the situation is excellent for the revolutionary forces, despite the seemingly crushing weight of the reactionary, imperialist forces.
+
+Throughout Europe, initiatives are being made by comrades, especially in regard to Arab embassies, needling them or coaxing them to show solidarity with the Palestinians or demonstrating against the most reactionary (e.g. the Jordan Embassy here was occupied by students yesterday). Cables, letters and personal calls are being made to Arab governments and their diplomats throughout Europe, and the Iraqi and Syrians shamed for their inactivity, despite all their past verbal support of the Palestinian Revolution. It would be especially useful for you comrades in the States to inform René and me of any activity that you are engaged in on Palestine and please send us for republication texts of any statements, cables, etc.
+
+Manu and Diane send you fraternal greetings. They are now married, by the way, and await reinforcement in the revolutionary ranks in December!
+
+There is a possibility I might make it to the States sometime this fall. If so, I will try to come to Chicago to give you a first-hand report on the situation in these parts, as well as the Middle East.
+
+Classified by SPO#80 Larry
+Declassify on: OADR
+
+All information on THIS PAGE IS CLASSIFIED (C) UNLESS INDICATED OTHERWISE
+
+ENCLOSURE
+
+CONFIDENTIAL
+
+HW 50953 DocId:32339240 Page 37

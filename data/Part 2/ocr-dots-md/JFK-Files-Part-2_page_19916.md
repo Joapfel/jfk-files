@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_19916.png
+
+Convert to MarkdownBS 100-43809
+
+Boston SWP and YSA-B members active in BOWAAC were distributing in January, 1972, a "Housing Fact Sheet" in an effort to locate housing accommodations for individuals visiting the Boston area to attend the above scheduled conference at Boston University.
+
+BS T-1
+
+January 12, 1972
+
+The opening session of the WONAC Conference, held at Boston University, February 11-13, 1972, began on the evening of February 11 and was in the nature of a rally in Hayden Hall with approximately 600 individuals present. Of this number approximately 50 were males but it is noted that this was the only conference session to which males were invited.
+
+The general theme of the rally was "How to Win Abortion Law Repeal" and MATILDE MILES, mentioned previously, was one of the two rally moderators.
+
+Approximately 30 members of the YSA-B and/or the SWP, Boston, were in attendance at the rally.
+
+The Saturday and Sunday, February 12-13, 1972 sessions, open to women only, were scheduled to include workshops on such topics as national and local legislative projects, court action, forced sterilization, abortion referral and clinics, campus and high school work and the building of the Abortion Law Repeal Movement.
+
+BS T-1
+
+February 13, 1972

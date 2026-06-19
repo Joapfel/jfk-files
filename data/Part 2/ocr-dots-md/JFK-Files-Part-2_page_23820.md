@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_23820.png
+
+Convert to MarkdownTOP SECRET
+
+kind of action which unfortunately led to the death of Dick
+Welch. There again we are ascribing something to the death of
+Dick Welch which nobody knows yet, you know, what terrorists
+killed him or why; at least our record doesn't show.
+
+Mr. diGenova. These statements here, Senator, this is a direct quote from Eric Eisenstead's memo. Do you think that we should maybe in the findings and recommendations shorten this and maybe--
+
+Mr. Kirbow. I think the part of the record which is an unknown fact is why Dick Welch was killed, and we should stay away from any quotes or other pronouncements in our paper which attribute his death to any particular thing unless we know something.
+
+Mr. Aaron. I think that is a good point. We might put in here a statement which says the Committee has no information as to the reasons, purposes or cause, specific cause, of his death. The point is to get at the question of cover, to step out to the question of cover in the report, as we do, I think, appropriately, but not have talked about the one case where this all came out in public, rightly or wrongly.
+
+Mr. Kirbow. Why don't we use the cover for the gentleman in London, then, where as the tour buses go by, of course, you know this is the home of the CIA chief, and he hasn't been killed yet or anything like that. If we want to use that kind instead of using this death example, which, by the way,
+
+TOP SECRET

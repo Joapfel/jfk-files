@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_24702.png
+
+Convert to Markdown[T]he impression that was left was . . . very bad, that this was an individual whom it was impossible to deal with. And the feelings of the Government as a result of this sharpened very considerably at that time . . . We [had] hoped to see him and see what we could do to come to better understanding with him. (Dillon, 9/2/75, pp. 23-24.)
+
+Dillon testified that shortly after Lumumba's visit to Washington, in late July or August, he attended a meeting at the Pentagon where representatives of the State Department, Defense Department, Joint Chiefs of Staff, and the CIA were present (Dillon, 9/2/75, pp. 17-20, 25-26).*
+
+According to Dillon, "a question regarding the possibility of an assassination attempt against Lumumba was briefly raised" at the meeting (Dillon, 9/2/75, p. 15; see also 17, 25). Dillon did not recall anything about the language used in raising the question (Dillon, 9/2/75, p. 30). Dillon assumed that when the subject of Lumumba's assassination was raised, "it was turned off by the CIA" (Dillon, 9/2/75, p. 30). Dillon said that "the CIA people, whoever they were, were negative to any such action" (Dillon, 9/2/75, p. 18). This opposition "wasn't moral," according to Dillon, but rather an objection on the grounds that it was "not a possible thing" (Dillon, 9/2/75, p. 18). Dillon said the CIA reaction "might have been" made out of the feeling that the group was too large for such a sensitive
+
+* Dillon was unable to recall the precise date of this meeting (Dillon, 9/2/75, pp. 25-26).

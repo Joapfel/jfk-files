@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_22454.png
+
+Convert to MarkdownSECRET
+
+Phone (Area 202) 544-6000
+
+A. Yes.
+
+Q -- at the moment. Is it possible that he was with
+Domestic Operations Division in the field of proprietary
+engaged--
+
+A. I guess you are right, yes. I believe he was there.
+
+Q Did you personally know Howard Hunt?
+
+A. No.
+
+Q Never met him?
+
+A. I met him. That is all. I can't say I know him.
+
+Q You would not have known anything about his where-
+abouts on any particular day, then. Is that true?
+
+A. Can we go off the record?
+
+(Off the record discussion.)
+
+THE WITNESS: Let's go back on the record.
+
+BY MR. OLSEN:
+
+Q I would like to have it on the record.
+
+A Do you have a particular day?
+
+Q No. I am just asking you if your acquaintance with
+Hunt was such that you would have known of his whereabouts on
+any particular day.
+
+A. No.
+
+Q Was it very infrequently that you ever saw him?
+
+A. Oh, I would see him in the halls, this type of thing,
+but -- bump into him perhaps downtown on the street.
+
+Q But you would have no occasion for knowing from one
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32203851 Page 92

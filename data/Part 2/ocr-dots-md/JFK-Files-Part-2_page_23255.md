@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_23255.png
+
+.
+
+Mr. Baron. That was the way Mr. O'Donnell described it, although in this lengthy memo which apparently precedes the dispatch of QJWIN to the Congo there is no mention of Mr. O'Donnell.
+
+Mr. Tweedy. This I don't think necessarily has anything to do with O'Donnell's mission whatsoever. This, I think, is generic mission, seems to indicate that he is going to muck around with Corsicans. I don't recall Corsicans, I know O'Donnell in the Congo at all.
+
+Mr. Baron. Would this kind of dispatch have been written by the Chief of Staff D without consultation with the Chief of the African Division?
+
+Mr. Tweedy. He did consult, that is to say, he wrote the dispatch. I haven't read the whole thing but I gather from this -- you see there is also a reference here. I don't know what the reference is about. But I gather that Dakar is brought into this activity because they wanted to act in a support capacity to this headquarters activity.
+
+Mr. Baron. You don't have any recollection of a mission in Dakar Senegal about this time that headquarters was concerned with?
+
+Mr. Tweedy. No, I surely don't. On the contrary.
+
+TOP SECRET
+
+HW 50935-6

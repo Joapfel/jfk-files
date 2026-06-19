@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_22965.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+WARD & PAUL
+
+760 DAD 70031
+
+410 First Street, S.E., Washington, D.C. 20003
+
+# TOP SECRET
+
+1 really talking about parallel lines. In other words, this
+2 three-man group was meeting. Mr. Helms was both a member of
+3 that particular group and the DDP. Therefore, when he came back
+4 from one of these meetings and issued instructions to Mr. Harvey,
+5 it was, you know, tantamount to these things coming through two
+6 channels simultaneously, one coming from this three-man task
+7 force and the other instruction simultaneously coming from Mr.
+8 Helms who was the DDP.
+
+9 Mr. Baron. As far as Mr. Harvey was concerned, an assign-
+10 ment or order from Richard Helms was an order to be taken at
+11 face value? Harvey did not have to question whether it had the
+12 stamp of approval from the DCI or not? Would that have been
+13 your operating understanding?
+
+14 Mr. Halley. That would have been my understanding, yes.
+15 Certainly an instruction received from Mr. Helms was a valid
+16 Agency instruction.
+
+17 Mr. Baron. The DCI at this point was John McCone.
+
+18 Mr. Halley. That is correct.
+
+19 Mr. Baron. Do you have any knowledge of the relationship
+20 between this three-man group and John McCone at that point?
+
+21 Mr. Halley. Not on a day to day basis. Once I went to
+22 Miami, I came back on a regular basis to review operational
+23 plans and programs. On one occasion I accompanied Mr. McCone
+24 to the White House to give a presentation or sit in while the
+25 presentation was being made.
+
+TOP SECRET

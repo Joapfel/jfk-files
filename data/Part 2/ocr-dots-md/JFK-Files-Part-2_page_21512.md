@@ -1,0 +1,58 @@
+# JFK-Files-Part-2_page_21512.png
+
+Convert to Markdown# TOP SECRET
+
+1. remove Castro and his regime.
+
+2. Mr. Schwarz. And did you talk about tactics at all in that meeting, or was it just a general discussion about getting organized.
+
+3.
+4.
+
+5. Mr. Halpern. Just a general discussion as to what we would do, how we would proceed, and what we would need. And at that point I had no idea how many people were left on the staff in the branch only having been on the job a day or a day and a half.
+
+6.
+7.
+8.
+9.
+
+Mr. Schwarz. Shortly after that time did you get put in contact with a general?
+
+10.
+11.
+
+12. Mr. Halpern. Yes, sir. General Lansdale.
+
+13. Mr. Schwarz. And what was his function when you were introduced to him?
+
+14.
+
+15. Mr. Halpern. Both [Mr. Zogbey] and I were introduced to him as the new chief of Operations for a government-wide effort to accomplish the removal of Castro and the Castro regime. This effort was to include not only CIA but the Department of State and the Department of Defense. And General Lansdale was to be the Chief of Operations for that outfit.
+
+16.
+17.
+18.
+19.
+20.
+21.
+
+Mr. Schwarz. And did you brief him about Cuba or did he brief you about the operation, or what was the nature of that?
+
+22.
+
+23.
+
+Mr. Halpern. No, we briefed him first in the old Situation Room, what used to called the Ibell Building, which
+
+24.
+25.
+
+TOP SECRET
+
+410 Ft Street,S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+HW 50955 DocId:32281927 Page 5

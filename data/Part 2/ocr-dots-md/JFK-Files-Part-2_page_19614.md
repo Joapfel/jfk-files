@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_19614.png
+
+Convert to MarkdownIn Reply, Please Refer to
+File No. NYfile (100-172646)
+
+CONFIDENTIAL
+
+UNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+New York, New York
+
+April 5, 1971
+
+Women's National March On
+The Pentagon, April 10, 1971
+
+Reference is made to New York (NY) memorandum dated March 31, 1971.
+
+On March 30, 1971, a source, who has furnished reliable information in the past, furnished a leaflet distributed on March 27, 1971, entitled, "April 10 Women's March On The Pentagon," which contained the sentence "Fresh Wind Blows Against the Empire" in the form of a rainbow. The leaflet, described by the source as a Weatherman leaflet, is quoted in part as follows:
+
+"...the rainbow is a sign of that which is in all things.
+
+"It is a sign of the union of all the peoples like one big family.
+
+"Seek the vision. Become a warrior of the rainbow!
+
+"Let it grow! Let it grow!
+
+"We are creating reality out of what we once held locked up in our imaginations. We are coming out from separate cities and roles, channeling our life force into a revolution which will free not only women, but all people. We can't be free until everybody is free. In marching on the Pentagon, we are pointing out the source of our oppression
+
+C O N F I D E N T I A L
+
+**GROUP I**
+Excluded from automatic downgrading and declassification
+
+This document contains neither recommendations nor conclusions of the Federal Bureau of Investigation (FBI). It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
+
+ENCLOSURE
+
+NW 88321 DocId:32989544 Page 495
+
+10-147
+
+147

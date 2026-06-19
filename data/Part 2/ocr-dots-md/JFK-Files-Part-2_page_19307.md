@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_19307.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DEMONSTRATION PROTESTING
+UNITED STATES POLICY IN VIET NAM,
+WASHINGTON, D.C., JANUARY 15 - 16, 1968
+
+Margaret Burroughs
+
+Margaret Burroughs is known to have been a member of the CP of Illinois in 1955 - 1957.
+
+(CG T-2, November, 1961)
+
+During 1964, Margaret Burroughs met with CP members at Chicago to discuss establishment of a teachers group of the CP.
+
+(CG T-1, November, 1964)
+
+Margaret Burroughs attended a meeting at Chicago, Illinois, May 15, 1967, for the purpose of reorganizing and reactivating the Chicago Council of American Soviet Relations (CCASR). This meeting was held at the direction of the National Committee, CP, USA.
+
+(CG T-3, May, 1967)
+
+A characterization of the CCASR is attached.
+
+Florence Criley
+
+As of February, 1959, Florence Criley was a member of a CP club at Chicago, Illinois, and on July 30, 1961, attended a reception sponsored by the CP of Illinois at Chicago.
+
+(CG T-4, February 11, 1959,
+September 1, 1961)
+
+Florence Criley is not currently known as a CP member but was a member in the late 1940's and attended some CP affairs during 1960.
+
+(CG T-5, January - May, 1960,
+December 28, 1967)
+
+CONFIDENTIAL
+
+NWW 88321 DocId:32989544 Page 188

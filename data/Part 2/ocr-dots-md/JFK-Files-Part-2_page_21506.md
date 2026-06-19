@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_21506.png
+
+Convert to MarkdownHW 50955 DocId:32281896 Page 4
+
+(One other 8200 are presumably under military or other non-State official cover). Originally the use of State Department cover for CIA personnel was supposed to be strictly limited and temporary. The Bullo-Correa-Jackeen report stated in 1948, "The CIA should not use outside Department cover as a simple answer to all its problems, but should proceed to develop its own outside cover and eventually in this way and through increased efficiency of its overseas personnel, find a way to compensate its demands upon the State Department." None-the-less CIA has steadily increased its regulations for official cover.
+
+There are several reasons why CIA has abandoned its original intent of developing systems of private cover. It is easier to arrange cover through State; it is less expensive; it is quicker; it facilitates the security of operations as well as of communications; it insures a greater element of safety for the CIA people. But the effect is to further the CIA encroachment on the traditional functions of State.
+
+In some missions, I understand, CAS personnel cutnumbers regular State Department personnel. [15] In the American Embassy in Vienna, out of 20 persons listed in the October 1960 Foreign Service List, 20 being in the Political Section, 16 are CAS personnel of the 31 affiliates. Noted as engaging in supporting activities, over half are CAS. Of the 13 affiliates noted in the Political Section in our Embassy in Chile, [16] one CAS. On the day of President Kennedy's Inauguration 47 percent of the political officers serving in United States Embassies were (AS) Sometimes the CIA mission chief has been in the country longer, has more money at his disposal, whereas more influence (and is often) than the Ambassador. Often he has direct access to the local Prime Minister. Sometimes (as during a critical period [in Latin]) he possesses a different policy from that of the Ambassador. Also he is generally well known locally as the CIA representative.
+
+In the Paris Embassy today, there are 123 CIA people. CIA人员在 Paris 沿街 has long since begun to move into areas of political reporting normally occupied by State. The CIA men doing overt internal political reporting number those in the Embassy's political section by 10-2. CIA have been sought to monopolize contact with certain French political personalities, among them the President of the National Assembly. CIA occupies the top floor of the Paris Embassy, a fact well known locally; and an
+
+DEPARTMENT OF STATE
+☐ Retain class 'n' ☐ Change /classify 16
+☐ With concurrence of _______________
+☐ Declassify ☐ In part and excise - as shown
+S.O. 1935b, S.v. Hatai (DCC)
+FPC/HDR by FJC 7/26/93

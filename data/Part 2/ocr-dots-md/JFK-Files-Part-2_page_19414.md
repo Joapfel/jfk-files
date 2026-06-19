@@ -1,0 +1,82 @@
+# JFK-Files-Part-2_page_19414.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>Mr. Tolson</td>
+   </tr>
+   <tr>
+    <td>Mr. DeLoach</td>
+   </tr>
+   <tr>
+    <td>Mr. Mohr</td>
+   </tr>
+   <tr>
+    <td>Mr. Bishop</td>
+   </tr>
+   <tr>
+    <td>Mr. Casper</td>
+   </tr>
+   <tr>
+    <td>Mr. Callahan</td>
+   </tr>
+   <tr>
+    <td>Mr. Conra l</td>
+   </tr>
+   <tr>
+    <td>Mr. Felt</td>
+   </tr>
+   <tr>
+    <td>Mr. Gale</td>
+   </tr>
+   <tr>
+    <td>Mr. Roca n</td>
+   </tr>
+   <tr>
+    <td>Mr. Sullivan</td>
+   </tr>
+   <tr>
+    <td>Mr. Tavel</td>
+   </tr>
+   <tr>
+    <td>Mr. Trotter</td>
+   </tr>
+   <tr>
+    <td>Tele. Room</td>
+   </tr>
+   <tr>
+    <td>Miss Holmes</td>
+   </tr>
+   <tr>
+    <td>Miss Gandy</td>
+   </tr>
+  </table>
+
+FBI WASH DC
+
+FBI CINCINTI
+
+4:26 PM URGENT 1/13/68 PAR
+TO DIRECTOR AND WFO
+FROM CINCINNATI (100-17137) 2P
+
+DEMONSTRATION PROTESTING UNITED STATES POLICY IN VIETNAM, WASHINGTON,
+D.C., JANUARY EIGHT SIXTY EIGHT INFORMATION CONCERNING (INTERNAL
+SECURITY)
+
+ON JANUARY TWELVE LAST, A CONFIDENTIAL SOURCE WHO IS IN A POSITION TO FURNISH RELIABLE INFORMATION ADVISED THAT ANN PERRY, YELLOW SPRINGS OHIO, HAS ORGANIZED APPROXIMATELY FORTY WOMEN TO TRAVEL TO WASHINGTON, D.C. FOR CAPTIONED DEMONSTRATION NOW SCHEDULED FOR JANUARY FIFTEEN NEXT.
+
+THESE WOMEN WHO WILL BE FROM DAYTON, YELLOW SPRINGS, AND SURROUNDING AREAS IN OHIO WILL DEPART FROM THE ANTIOCH COLLEGE UNION, YELLOW SPRINGS, OHIO, SEVEN FIFTEEN PM, JANUARY FOURTEEN NEXT AND ANTICIPATE ARRIVING WASHINGTON, D.C. APPROXIMATELY SEVEN AM JANUARY FIFTEEN NEXT WHERE THEY WILL UNLOAD AT THE UNION STATION. DRESSED IN BLACK, THEY WILL MEET WITH DEMONSTRATORS FROM OTHER AREAS OF THE UNITED STATES AND PROCEED IN SILENCE TO THE CAPITOL. EX 101 REC 30
+
+JAN 16 1968
+
+SOURCE STATED THIS GROUP WILL MEET AT SEVEN THIRTY PM, JANUARY
+
+END, PAGE ONE
+
+JAN 16 JUN 1968
+
+TWO COPIES WFO
+
+16 JAN 16 1968
+
+JANUARY

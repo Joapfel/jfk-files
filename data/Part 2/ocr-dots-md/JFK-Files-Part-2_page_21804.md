@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_21804.png
+
+Convert to Markdown# TOP SECRET
+
+1. Mr. Wides. Chicago?
+2. Mr. Sarno. No, sir.
+3. Mr. Wides. Anyplace on the West Coast or the Southwest?
+4. Mr. Sarno. No, sir.
+5. Mr. Wides. Boston?
+6. Mr. Sarno. No, sir.
+7. Mr. Wides. So you only recall persons who had been in
+8. AMUTS telling -- why don't we refer to him as San Jenis?
+9. that they were going to another city as being New York and
+10. San Juan?
+11. Mr. Sarno. New York and San Juan are the only two I ever
+12. recall they ever had any AMUTS or ex-AMUTS or people that had
+13. been in the organization went.
+14. Mr. Wides. Now when they went and they recruited other
+15. people, was that San Jenis' suggestion or under his supervision?
+16. Mr. Sarno. They usually collected a group around people
+17. that they trusted.
+18. Mr. Wides. Was that up to San Jenis' supervision and
+19. direction?
+20. Mr. Sarno. He directed them to do it, yes. I didn't even
+21. know the individual, I never met him. It's one individual.
+22. Mr. Wides. Did he speak to you about the fact that he
+23. was going to do this, Mr. San Jenis?
+24. Did he consult with you on it?
+25. Mr. Sarno. Well, I believe it came up -- I knew the fellow
+
+HW 50955 DocId:32202440 Page 36
+
+TOP SECRET

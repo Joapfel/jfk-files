@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_21879.png
+
+Convert to MarkdownTweedy might have been unaware of the true purpose of (Gottlieb)'s visit (Bissell, 9/10, pp. 20-22).
+
+Bissell did not recall cables concerning the dispatch of a messenger and subsequently confirming that his instructions were to be followed, but he said "This sounds highly likely. . . I would expect, given the background, that the confirmation would have been forthcoming" (Bissell, 9/10, p. 43).
+
+It was "very probable," according to Bissell, that he discussed the assassination of Lumumba with (Sidney Gottlieb), who was then [his Science Advisor] (Bissell, 9/10, p. 14). Bissell said that on a number of occasions he discussed with (Gottlieb) "the availability of means of incapacitation, including assassination" (Bissell, 9/10, p. 60).
+
+Although he had no "specific recollection," Bissell assumed that, if (Gottlieb) went to the Congo, he had approved the mission, (which "might very well" have dealt with the assassination of Lumumba) (Bissell, 9/10, pp. 18, 20, 44). Despite his absence of specific recollection of these events, Bissell said, "There is nothing in mind that I remember that would be in conflict" with the testimony of the (Chief of) Station that (Gottlieb) carried poisons to the Congo (Bissell, 9/10, p. 35).
+
+Bissell testified that it would not have been against CIA policy in the fall of 1960 to send poisons to the Congo (Bissell, 9/10, p. 35).

@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_22917.png
+
+Convert to Markdown410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+7600030574
+
+35 Mr. Schwarz. As Bundy 6-B, the Special Group minutes of
+April 11, 1963.
+
+(The document referred to
+was marked Bundy Exhibit
+No. 6-B for identification.)
+
+TOP SECRET
+
+HW 50955 DocId:32423406 Page 155

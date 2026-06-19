@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_24141.png
+
+Convert to Markdown33. MHLUMEN
+
+A Liberian company which serves as owner of MHFETCH (see below) and as the source of an operational loan; no employees.
+
+34. MHFETCH
+
+A Bahamian company which serves as owner of MHKOALA and MHWHIFF (see below); an investment vehicle and manager of non-staff pension plan; no employees.
+
+35. MHKOALA
+
+A Liberian company currently inactive and slated for dis-solution; no employees.
+
+36. MHWHIFF
+
+A Bermuda company which is a reinsurance vehicle for all types of casualty and property insurance for Agency proprietaries and for life and annuity coverages for non-staff personnel; no employees.
+
+37. MHMOLAR
+
+Liechtenstein anstalt which serves as the beneficial owner of MHBOMBE (see below); no employees.
+
+38. MHBOMBE
+
+A Bahamian company which serves as a holding company for MHTWANG and MHONSET (see below) and as an investment vehicle; no employees.
+
+39. MHONSET
+
+A Delaware corporation which serves as an investment vehicle and quarantor of a mortgage on a former Agency activity; no em-ployees.
+
+40. MHTWANG
+
+A Cayman Island corporation which handles certain annuities, escrow, term life insurance, a pension plan and funding of MHPIQUE (see below); no employees.
+
+RECEIVED
+NOV 6 1975
+CIA
+
+SECRET -7-

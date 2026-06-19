@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_22327.png
+
+Convert to MarkdownCOMMISSION ON CIA ACTIVITIES WITHIN THE UNITED STATES
+
+Washington, DC 20500
+
+February 20, 1975
+
+SECRET/SENSITIVE
+
+MEMORANDUM FOR: FILE
+FROM: JAMES N. ROETHE
+SUBJECT: Summary of an Interview with George R. Brewer, Conducted on Tuesday, February 18, 1975, in the Offices of the Commission by James N. Roethe and Robert Olsen
+
+The interview commenced at approximately 4:00 pm on February 18, 1975, and ended at approximately 8:30 pm on the same date. Mr. Brewer appeared voluntarily at the request of the Commission staff.
+
+## Background of Mr. Brewer
+
+Mr. Brewer is a graduate of the University of Maryland. He has been with the CIA for over twenty years and is presently Chief of the Director's Security Staff. The interview concerned itself primarily with the activities of the Washington Field Office of the Office of Security. Mr. Brewer first worked in that office from January 1955 to February 1956. From February 1956 to April 1959 he was on Director Dulles' personal security staff. He served with the Headquarters Field Office (now defunct) from April 1959 to August 1960 and again served with the Washington Field Office from August 1960 to July 1973, when he obtained his present position.
+
+## Activities at the Washington Field Office
+
+The Washington Field Office is made up of 35-40 agents. Clericals bring the total of employees to about 100. It is by far the largest security field office. The majority of the agents are designated as field agents, whose primary activity is investigating applicants for employment with the Agency and some covert investigations (investigations under cover, such as investigations of contractor's employees or individuals planning to be sent overseas under cover). The remaining agents are designated as support agents (about 8 men) who provide a broad range of support to the field agents. In 1966 Mr. Brewer, a support agent, was designated as the Washington Field Office's liaison with the local police (including the Metropolitan Police Department, most suburban police departments, and the Virginia and Maryland State Police).
+
+In November of 1968, Mr. Brewer was placed in charge of a newly created "Surveillance and Technical Unit" of the Support Squad. He remained in both positions until he left the Office in July of 1973. Mr. Brewer emphasized that no activity was undertaken by the field office without the approval of headquarters. Requests for action in Mr. Brewer's areas of interest would be received by headquarters security, generally from the Operations Directorate. The "Security Support Branch" at headquarters would pass the request on to the
+
+SECRET/SENSITIVE
+
+NW 50955 DocId:32203834 Page 6

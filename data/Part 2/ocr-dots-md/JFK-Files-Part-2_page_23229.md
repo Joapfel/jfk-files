@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_23229.png
+
+Convert to MarkdownTOP SECRET
+
+in the land to order me to do what he so ordered, which got another cable back through the specially slugged cable saying yes, what he told you is correct.
+
+Mr. Tweedy. I don't recall that, which surprises me, because once again I would be very surprised, I wouldn't have been privy to those.
+
+Mr. Baron. If a request such as the plan Mr. Dawson outlined had been sent from the Congo to headquarters and it were in more narrow cryptic terms, for instance, if it had said simply I have seen your messenger and received instructions and request confirmation that I am to carry them out, would that refresh your recollection as to whether you had seen such a cable?
+
+Mr. Tweedy. I can't be at all sure it will refresh my recollection but if you and Hedgman say that such a cable was sent, I am not going to gainsay it.
+
+Mr. Baron. Would that be the manner in which confirmation for such a sensitive operation would be requested?
+
+Mr. Tweedy. I don't know because I never saw one before or since but it sounds highly reasonable to me. This is the way, this would be the way I should have thought any two sensible people would confer on sensitive matters when each knew that the other knew exactly what he was talking about and, of course, you don't have to use unnecessary words but beyond the likelihood of this I can't say that is what
+
+TOP SECRET

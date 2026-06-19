@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_20855.png
+
+Convert to MarkdownFBI
+
+Date: 4/5/71
+
+Transmit the following in _______________
+
+(Type in plaintext or code)
+
+Via AIRTEL
+
+(Priority)
+
+TO: DIRECTOR, FBI
+
+FROM: SAC, NEW YORK (100-172646) (P)
+
+SUBJECT: WOMEN'S NATIONAL MARCH ON THE PENTAGON, 4/10/71 IS-MISC
+
+ReNYat and LHM to Bu, 3/31/71; WFOTel, 3/31/71 and NYtel, 4/5/71.
+
+Enclosed for the Bureau are 6 copies of an LHM re captioned activity. Two copies each are enclosed for AX, PH & WFO.
+
+Source utilized in LHM is NY-6474-S.
+
+LHM is classified, "Confidential" because the unauthorized disclosure of information furnished by the above source could reveal the identity of this source of continuing value and could be injurious to the national security of the US.
+
+NY files contain no information identifiable with ABBEY KAPLAN, who was also referred to in reWFOTel, as well as this LHM.
+
+ReWFOtel stated that SYLVIA WARREN & DANA BIEBERMAN are responsible for marshals being provided for the 4/10/71
+
+2-Bureau (Encs. 6) (RM)
+2-Alexandria (Encs. 2) (RM)
+2-Philadelphia (Encs. 2) (RM)
+2-Washington Field (Encs. 2) (RM)
+1-New York (100-170605) (WEATHERMAN) (47)
+1-New York (100-164665) (WOMENS LIBERATION MOVEMENT)
+1-New York
+WHB: 9/20 1971
+(12)
+
+7 APR 6 1971
+
+AGENCY ACS/ONI-5-8-5B
+RES.: ANR/150 10GAR CRIM
+DATE: 9-8-71
+HOW TO: N/S
+BY - Sent Rawlston M Per
+
+Approved:
+
+Special Agent in Charge
+
+NW 88321 DocId:32989546 Page 960

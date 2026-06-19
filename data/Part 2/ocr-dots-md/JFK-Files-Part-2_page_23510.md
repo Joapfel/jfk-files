@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_23510.png
+
+Convert to MarkdownSECRET
+EYES ONLY
+
+14 May 1962
+
+INVENTORIED:
+
+ON MAR 3. 1977
+
+BY
+
+MEMORANDUM FOR THE RECORD:
+
+SUBJECT: John Rosselli
+
+1. In early April Mr. William Harvey asked me to arrange a contact with Subject. The meeting in New York City was arranged for 9 April. I explained to Mr. Harvey that the undersigned would take no part in future operations proposed for Subject.
+
+2. In the interim I have kept Mr. Harvey fully informed reference to my briefing of The Attorney General on the former project and cautioned him that I felt that any future projects of this nature should have the tacit approval of the Director of Central Intelligence.
+
+3. On this date Mr. Harvey called me and indicated that he was dropping any plans for the use of Subject for the future.
+
+Sheffield Edwards
+Director of Security
+
+EYES ONLY
+
+SECRET
+
+HW 50955 DocId:32423497 Page 9

@@ -1,0 +1,60 @@
+# JFK-Files-Part-2_page_21460.png
+
+Convert to Markdown4-22 (Rev. 1-22-60)
+
+Federal Bureau of Investigation
+Records Branch
+
+, 19
+
+Name Searching Unit - Room 6527
+
+Service Unit - Room 6524
+
+Forward to File Review
+
+Attention Nasa
+
+Return to Mullens 303R.B
+
+Supervisor
+
+Room Ext.
+
+Type of References Requested:
+
+Regular Request (Analytical Search)
+
+All References (Subversive & Nonsubversive)
+
+Subversive References Only
+
+Nonsubversive References Only
+
+Main References Only
+
+Type of Search Requested:
+
+Restricted to Locality of ____
+
+Exact Name Only (On the Nose)
+
+Buildup Variations
+
+Subject Daniel Watts
+
+Birthdate & Place
+
+Address
+
+Localities
+
+R# Date 11-26 Searcher Initials mb
+
+Prod.
+
+FILE NUMBER SERIAL
+
+NWA ✓ 105-96316
+
+ NW 88296 DocId:32339276 Page 4

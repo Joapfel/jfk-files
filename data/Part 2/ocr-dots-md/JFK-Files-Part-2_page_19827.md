@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_19827.png
+
+Convert to MarkdownMINNESOTA WOMEN'S ABORTION
+ACTION COALITION
+
+The MWAAC chartered two 39-passenger buses for travel to Washington, D. C., to depart Minneapolis, Minnesota, at 9:00 a.m., Friday, November 19, 1971. The Minneapolis group of some 54 persons departed from Minneapolis utilizing two Volt Bus Company vehicles on the early morning of November 19, 1971.
+
+John Thomsen, Dispatcher
+Dickinson Lines, Inc.
+Anoka, Minnesota
+November 18, and 19, 1971
+
+On November 23, 1971, at a meeting of the YSA-TCG held in November, 1971, Rebecca Ann Finch presented a report on women's activities, during which she announced that the WONAACT demonstration on Washington, D. C., on November 20, 1971, drew only half the number of persons expected and as a result, there was a large debt incurred by the national organization. Rebecca Ann Finch in November, 1971, was an active member of the YSA-TCG.
+
+**MP T-1 on**
+
+December 1, 1971
+
+Rebecca Ann Finch is a current member of the TCB-SWP.
+
+**MP T-2 on**
+
+February 4, 1972
+
+The MWAAC group has not been active in the Twin Cities area subsequent to the November 20, 1971, march on Washington, D. C.
+
+**MP T-3 on**
+
+February 8, 1972
+
+SWP INFLUENCE
+
+The MWAAC is not a committee of the TCB-SWP nor is it a part of the YSA-TCG. Women's liberation is a topic of...

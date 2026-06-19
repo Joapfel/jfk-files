@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_20352.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">FBI</th></tr><tr><td>Date:</td><td>1/16/68</td></tr><tr><td colspan="2">Transmit the following in _________________________</td></tr><tr><td colspan="2">(Type in plaintext or code)</td></tr><tr><td>Via _______________</td><td>(Priority) ____________</td></tr><tr><td colspan="2"></td></tr></thead><tbody><tr><td>TO : DIRECTOR, FBI (100-448475)</td><td></td></tr><tr><td>FROM : SAC, NEW YORK (100-161601) (P)</td><td></td></tr><tr><td>SUBJECT: DEMONSTRATION PROTESTING<br/>UNITED STATES POLICY IN<br/>VIETNAM, WASHINGTON, D.C.<br/><u>1/15/68</u><br/>INFORMATION CONCERNING (IS)<br/>(OO:WFO)</td><td></td></tr><tr><td colspan="2">ReNYairtel to Bureau, 1/12/68.</td></tr><tr><td colspan="2">Enclosed herewith for Bureau are 11 copies of a<br/>LHM regarding departure from NYC of women participating in<br/>captioned demonstration. Enclosed for WFO are two copies of<br/>the LHM. Enclosed for Atlanta, Los Angeles, Newark, New<br/>Haven, and Philadelphia on one information copy of the LHM.</td></tr><tr><td colspan="2">3 - Bureau (Enc. 11) (RM)<br/>1 - Atlanta (Enc. 1) (RM)<br/>1 - Los Angeles (Enc. 1) (RM)<br/>1 - Newark (Enc. 1) (RM)<br/>1 - New Haven (Enc. 1) (RM)<br/>1 - Philadelphia (Enc. 1) (RM)<br/>2 - Washington Field (100-47173) (Enc. 2) (RM)<br/>1 - New York<br/>EX 109<br/>REC-21<br/>1- JAN 17 1968</td></tr><tr><td colspan="2">HPB:smv<br/>(12)</td></tr><tr><td colspan="2">AGENCY: G-2, ONI, OSI, SEC. SER.,<br/>RAO (ISO, CMB, OD)</td></tr><tr><td colspan="2">DATE FORW:<br/>HOW FORW:<br/>BY:</td></tr><tr><td>Approved: _________</td><td colspan="2">Special Agent in Charge</td></tr><tr><td>Sent _________</td><td colspan="2">M Per _________</td></tr></tbody></table>
+
+NW 88321 Doctd:32989545 Page 636
+
+5 JAN 25 1968
+Approved:
+Sent
+Per
+Special Agent in Charge

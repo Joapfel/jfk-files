@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_23738.png
+
+Convert to MarkdownIn other governments this same function is done. for example, in Britain it's done by the board of trade because a lot of the information is technical, economic, or scientific in nature, which is also true for the DCD. as a matter of fact.
+
+And so the question that is presented to the Committee is do we want to leave the DCD where it is in the Director of Clandestine Operations? Do we want to have the clandestine service, if you will, have a quasi-overt arm within the United States widely spread out throughout the United States? Would we want to confine the clandestine activities to the clandestine service and the overt activities to some overt organization, be that back in the directorate of intelligence in the Agency or moved out to the State Department or some other organization which does operate openly as a matter of course?
+
+Mr. Inderfurth. What would that mean in terms of numbers? How large is the DCD?
+
+Mr. Aaron. I believe It is about 150 or 200.
+
+Mr. Bader. There are 38 offices.
+
+Mr. Aaron. And they are about two or three man offices.
+
+A lot of the personnel in the DCD are in fact succended from the military services or EROA. You know there are different areas of the country that have different kinds.. you know, or agriculture. For example, if they're interested in agricultural intelligence or lot of these agencies come out of
+
+TOP SECRET
+
+WARRIS PAUL
+
+HW 50955 DocId:32423509 Page 112

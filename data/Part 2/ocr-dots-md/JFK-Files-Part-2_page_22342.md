@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_22342.png
+
+Convert to MarkdownTOP SECRET
+
+5.
+
+10. Counter-Audio Sweeps
+
+At the request of other departments and agencies, including Congres-
+sional Committees, the Office of Security conducts "counter-audio
+sweeps" of their offices to protect against telephone taps, hidd-n
+microphones, and other intercepts of audible communications.
+
+HW 50955 DocId:32203846 Page 6
+
+TOP SECRET

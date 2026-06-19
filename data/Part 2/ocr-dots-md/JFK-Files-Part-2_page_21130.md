@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_21130.png
+
+Convert to MarkdownTOP SECRET
+
+furnished the name of one as "SHNIREV." (NIKOLAY VASILYEVICH SHNYRYEV). NOSENKO was not specifically questioned concerning VOLODYA and GROMAKOVA's connections with [RICHARDS]().()
+
+HOWARD I. FELCHLIN
+
+Pages 90-93 of the paper relate to Assistant Army Attache [HOWARD I. FELCHLIN]. It was indicated that NOSENKO correctly identified [FELCHLIN] but knew nothing of his background, did not recall names of agents specifically targeted against him, did not recall a newspaper article in March, 1954, falsely accusing [FELCHLIN] and his companion, did not recall any unusual circumstances involving the expulsion of [FELCHLIN] and [MC KINNEY] in 1954 and when told that the expulsion took place in that year stated this was not the correct date. It was also indicated NOSENKO did not recognize the name of [FELCHLIN]'s maid, FEDEROVA.
+
+COMMENT: On April 18, 1968, (N-182), NOSENKO stated that he had a file on [FELCHLIN] and utilized a chambermaid NEFEDOVA against him as well as
+
+TOP SECRET
+
+HW 50953 DocId:32318825 Page 16

@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_20909.png
+
+Convert to MarkdownNY 100-172487
+
+NON-SYMBOL INFORMANT ADMINISTRATIVE PAGE
+
+4th source
+ALAN CROAK, Assistant Secretary,
+Manufacturer's Hanover Trust
+Co., 40 Wall St., NY, NY
+
+5th source
+Confidential Mailbox
+
+7th source
+Mrs. PAT BUTLER, Postal
+Inspector's Office, General
+Post Office, NY, NY
+
+CAUTION: NOT TO BE DISSEMINATED TO RESIDENT AGENTS, DETACH.

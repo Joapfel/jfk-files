@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_23751.png
+
+Convert to Markdown# TOP SECRET
+
+HW 50955. DocId:32423509 Page 125
+
+TOP SECRET
+
+JAMES PAUL
+
+I do think here again, as we suggested earlier we should remove the words during the next year because if they do everything that we have recommended, they won't have time to do to lunch the other things are going. We don't see any reason that the oversight committee should consider this? I think that

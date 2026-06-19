@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_20356.png
+
+Convert to Markdown1. APPENDIX
+EMMA LAZARUS FEDERATION
+OF JEWISH WOMEN'S CLUBS
+
+"The Jewish Fraternalist" dated October, 1947, self-
+identified as the official publication of the Jewish
+People's Fraternal Order (JPFO) of the International Workers
+Order (IWO), Page 6, contained an article which reflected
+that the Emma Lazarus Division (ELD) of the JPFO was to
+hold its first national convention in New York City on
+November 15 and 16, 1947, after having been first established
+at a National Women's Conference called three years previously
+by the JPFO.
+
+"The Morning Freiheit" (MF) on January 25, 1951,
+contained a report of the National Convention of the ELD of
+the JPFO which took place in New York City on January 20
+and 21, 1951. At this convention, it was noted that the ELD
+changed its name to Emma Lazarus Federation of Jewish
+Women's Clubs (ELF) and adopted a new constitution.
+
+On May 4, 1966, a source advised that the ELF was
+recognized by the Communist Party (CP) United States of America
+(USA) as an important national organization of women whose
+leadership was primarily made up of Communists. The source.
+stated the ELF was dedicated to peace, in protecting the rights
+of foreign born, and against bomb testing, Negro discrimination
+and the rearignment of West Germany.
+
+The source also stated the ELF renders support to and
+receives support from the MF and other Jewish progressive
+organizations.
+
+The ELF National Office was moved and is now located
+at 150 Fifth Avenue, Room 632, New York, New York.
+
+The IWO and JPFO have been designated
+pursuant to Executive Order 10450.
+
+The "Guide to Subversive Organizations and Publications"
+revised and published as of December 1, 1961, to supersede
+Guide published on January 2, 1957, prepared and released by
+the Committee on Un-American Activities, United States House
+of Representatives, Washington, D.C., contains the
+following concerning the "Morning Freiheit":
+
+CONFIDENTIAL

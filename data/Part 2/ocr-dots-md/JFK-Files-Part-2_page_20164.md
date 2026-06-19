@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_20164.png
+
+Convert to MarkdownNY 100-174481
+
+SWP and YSA. These women attach more importance to their political movement than to the Women's Liberation Movement. And when 77% of the women in this country are for reform of abortion laws, there is fertile soil for a political party to build itself on. The SWP/YSA realizes this and is taking advantage of it."
+
+On August 5, 1971, a leaflet captioned "F.O.C.A.S." revealed in part as follows:
+
+"A nucleus of about eight feminists have formed FOCAS, Feminist Organization for Communication, Action and Service. FOCAS evolved from the Women's Strike Coalition (WSC), which the Socialist Workers Party abruptly abandoned on May 25th in order to form the committee for WONAC. Since that time a nucleus of women from WSC together with like-minded feminists preserved the WSC in order to main-tain and expand a multi-issue action-oriented Women's Libera-tion coalition in the NYC area. Assisted by loans from supporting feminists, the new WSC paid back nearly a thousand of the three thousand dollars of debts incurred by the SWP women who had controlled the old WSC.
+
+The "Militant" issue of August 6, 1971, page five, in an article entitled, "Abortion Campaign Counters Red-Baiting", revealed in part, with respect to the founding WONAC conference in July, 1971:
+
+"The Militant" is a weekly news-paper of the SWP.

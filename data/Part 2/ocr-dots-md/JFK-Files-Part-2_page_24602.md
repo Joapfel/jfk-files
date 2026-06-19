@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_24602.png
+
+Convert to Markdowncommunications with the United States. Thereafter Howard served as an intermediary in arranging Atwood's meetings with the Cubans. (Atwood, pp. 4, 18)).
+
+Atwood also testified that he arranged for a French journalist, Jean Daniel, to visit the White House prior to Daniel's scheduled trip to see Castro. (Atwood, p. 19.) (According to an article by Daniel in December, 1963, Daniel met with President Kennedy on October 24, 1963. They discussed the prospects for reestablishing U.S.-Cuba relations and President Kennedy asked Daniel to report back to him after seeing Castro.)
+
+Atwood's efforts reached their high point on November 18, 1963, when Atwood spoke by telephone with a member of Castro's staff in Cuba. (Atwood, p. 8). Pursuant to White House instructions, Atwood informed Castro's staff member that the U.S. favored preliminary negotiations at the U.N. (rather than in Cuba as proposed by the Cubans), and that the U.S. desired to work out an agenda for these talks. (Atwood, pp. 8-9). After receiving Atwood's report on this conversation, Bundy told Atwood that after the Cuban agenda was received, President Kennedy wanted to see Atwood to "decide what to say and
+
+*/ Daniel, *Unofficial Envoy: A Historic Report from Two Capitals*, (New Republic, December 14, 1963). Daniel was with Castro when Castro received the report of President Kennedy's assassination. Daniel, When Castro Heard the News, (New Republic, December 7, 1963).
+
+TOP SECRET
+
+HW 50955 DocId:32423539 Page 232

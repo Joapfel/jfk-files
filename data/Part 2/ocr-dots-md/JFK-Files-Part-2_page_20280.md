@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_20280.png
+
+Convert to MarkdownCONFIDENTIAL
+
+<table><thead><tr><th colspan="2">We Want 10,000 Women In WASHINGTON JAN. 15</th></tr><tr><td colspan="2">The Jeannette Rankin Brigade, Led By The 1st US Congresswoman, Demands That Congress</td></tr></thead><tbody><tr><td>1.</td><td>Bring the Boys Back From Vietnam</td></tr><tr><td>2.</td><td>Act On Neglected Human Needs At Home</td></tr><tr><td colspan="2">The broadest coalition of American women in history—women young and old, from church, political, peace and minority groups, from the arts, professions and public affairs—will speak with a single voice the day Congress opens. We women, representing 51% of the voting population, will demand that as its first order of business, Congress withdraw US troops and act to make a decent life for our 23 million black people and all citizens.</td></tr><tr><td colspan="2">We will convene our own Congress of American Women, following our Petition at the Capitol. We will declare our intention to mobilize on all levels in our communities to reshape our society. Start the New Year with a day off from home or job to work for peace with the Jeannette Rankin Brigade.</td></tr><tr><td colspan="2">Make Womanpower Political Power</td></tr><tr><td colspan="2">Jeannette Rankin Brigade 133 W. 72 St. NYC 10023<br/>Tel: 212 (799-6520)</td></tr><tr><td colspan="2">I will contribute $</td></tr><tr><td colspan="2">I will be at Union St'n Washington 11:30 am</td></tr><tr><td colspan="2">Send me ...train tix (round trip NY/Wash.) @$7.50 each.<br/>Lv. Pa. St'n Monday Jan. 15 7:30 am; ret. NY 11 pm. Bring lunch<br/>bus fare Capitol to Woman's Congress. Wear black or somber dress.</td></tr><tr><td>Name</td><td></td></tr><tr><td>Adress</td><td>Tel.</td></tr></tbody></table>
+
+The above advertisement appeared in "The Village Voice", on January 4, 1968, page 21.
+
+5*
+
+CONFIDENTIAL

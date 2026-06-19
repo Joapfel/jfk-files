@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_24224.png
+
+Convert to Markdownfor cover reasons, cannot be refused. Over the past few years,
+this has involved badging operations for private companies, i.e.
+airlines, schools, etc. The company has never made a true profit.
+To maintain its image among its competitors, however, its books
+reflect a small profit on which Federal and state taxes are paid.
+The office presently employes four staff agents, five contract
+agents and fourteen proprietary employees. During Fiscal Year
+1974, the project expended 2.9% of the OS budget ($551,000 vs.
+$19,026,530).
+
+MHBOUND, as noted, has provided support to the Office of
+Security and Agency operators on sensitive covert operations
+and investigative matters, CI/CE support for components of the
+Agency, custodial support, courier support on truly covert activ-
+ity, guard support, special non-government and sensitive inquiries
+(CI/CE probes through STPROBE), technical and physical support
+in surveillances and Agency proprietary support. Its commercial
+capabilities have included: confidential consultants, internal
+security management, security surveys, counter-audio measures and
+inspections, development, installation and maintenance of security
+protective equipment and devices, classified material storage equip-
+ment, secure destruction of classified waste, incinerator equipment
+sales, polygraph examination, investigations (personnel), and
+industrial undercover activities.
+
+A unique example of its Agency security function was project
+STPROBE, which utilized both security probes and security pene-

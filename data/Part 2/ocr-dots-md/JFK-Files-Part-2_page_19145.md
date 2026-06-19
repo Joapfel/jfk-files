@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_19145.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+TO : ACTING DIRECTOR, FBI
+
+FROM : SAC, NEW YORK (100-172487) (C)
+
+SUBJECT: WOMEN'S BAIL FUND IS - REVACT (OO:NY)
+
+DATE: 11/30/72
+
+Re New York airtel and LHM, 8/28/72, and captioned as above.
+
+On 11/28/72, INFORMANT advised the Women's Bail Fund (WBF) is not a leading element and lacks any influence in the movement in New York City.
+
+A review of the subject file discloses there is no structure to the WBF and that it is a coalition of women who belong to various groups in the New York City area, whose main purpose is to raise funds for selected women in jail.
+
+It is noted that Weatherman subjects have contacted those involved in the bail fund. However, have decryed the lack of political direction of the WBF and would like to turn it into a defense committee because of a lack of any other direction. There is no indication, that this has occurred, and the bail fund still remains a loose coalition of like-minded individuals from various groups seeking to raise funds for various purposes. Because of its lack of common political direction, it has had no influence and presently is ineffective in the movement.
+
+In view of the above, the NYO is discontinuing investigation in this matter to be reopened upon receipt of pertinent information from sources that the bail fund is being redirected as a structured group for a common political and ideological purpose.
+
+2 Bureau (RM)
+1 - New York
+
+AJO:jss
+
+(3)
+
+ST-113
+DEC 70
+
+23 DEC 4 1972
+
+5 9 DEC 12 1972
+
+Rev. Secr.

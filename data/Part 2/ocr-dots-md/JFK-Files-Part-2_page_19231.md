@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_19231.png
+
+Convert to MarkdownPD 100-10983
+
+Enclosed for the Bureau are twelve copies, for San Francisco two copies and 120 copies of a Letterhead Memorandum (LMM) suitable for dissemination concerning proposed anti-aircraft defense. 12/15/68. Portland, Oregon, in support of Defense. Requesting Air Force policy in Salem, Washington, D.C. 1/15/58. Sources utilized in this LMM, who have furnished reliable information in the past, are as follows:
+
+First Source
+Second Source
+Third Source
+
+<table><tr><td>PD 395-$</td></tr><tr><td>Am 208J-$</td></tr><tr><td>PD 305-$</td></tr></table>
+
+The LMM is classified "confidential" because data reported from informants could reasonably result in identification of confidential informants of continuing value and compromise future effectiveness thereof.
+
+Copies of LMM disseminated to USA, Secret Service, MI, OSI, and VIC, all Portland.
+
+Formerly, information sent to LMM was not submitted to the Bureau by teletype inasmuch as a lengthy advance notice was received concerning the demonstration.
+
+Portland will continue to follow this matter current to Bureau instructions.

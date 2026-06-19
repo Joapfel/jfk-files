@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_24314.png
+
+Convert to MarkdownHHB 230-1
+40
+
+S-E-C-R-F-T
+
+PLANS, PROGRAMS, AND PROJECTS
+
+(i) Any other financial reports required by the Office of Finance and concurred in by the Agency component responsible for the project.
+
+(4) The statements will be certified as true and correct by the principal agent of the instrumentality. The statements will clearly reflect Agency funding for the period covered, or such funds will be identified in a covering memorandum signed by the appropriate Agency approving officer transmitting the statements to the Office of Finance, including specific identification of the manner in which the funding is recorded on the books of the instrumentality. In addition, the covering memorandum will identify all fictitious accounts and amounts included in asset, liability, capital, income, or expense accounts, the balances of which are distorted to cover present or anticipated Agency funding or interproject transfers of funds or equipment. If overt records must be deceptive for cover purposes, supplemental reporting should give complete and accurate information for internal Agency records.
+
+### o. BORROWING, LENDING, AND PLEDGING OF ASSETS
+
+The prior concurrence of the Director of Finance and approval of the Deputy Director having jurisdiction over the instrumentality are required for borrowing or lending funds or pledging any asset by an instrumentality. Bank overdraft privileges will be considered as borrowings and require the same concurrence and approval as stated above. Notional borrowing or lending in order to pass Agency funds between instrumentalities for approved funding purposes does not require the above concurrence and approval.
+
+### p. INVESTMENT POLICY
+
+(1) When an Operating Official wishes to invest funds that have been approved for retention in accordance with paragraph 4b(2) above or funds that are a portion of the three months normal operating cash requirements, he will forward to the Director of Finance for his approval a memorandum recommending the investment of funds. The memorandum recommending the investment of funds will provide the following data:
+
+(a) Reason for the investment.
+
+(b) Types of investment recommended, restricted to the following:
+
+(1) U.S. Government securities.
+
+(2) Interest-bearing accounts or Certificates of Deposit in member banks of the Federal Reserve System only.
+
+OCT 30 1975
+
+CIA
+
+Revised: 29 October 1974
+
+HW 50955 DocId:32103532 Page 208

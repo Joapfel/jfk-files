@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_22694.png
+
+Convert to Markdown7600011531
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area 202) 544-8000
+
+TOP SECRET
+
+Mr. Angleton. Interrogated, or processed.
+
+Senator Mathias. And that the implication certainly of
+this was that Oswald was an ex-Marine, and had been through
+this process, and that therefore at least that he might have
+been acting within the context of the Soviet plan, is that
+right?
+
+Mr. Angleton. That is the thrust of what he was trying
+to say. His English is such that it is very difficult.
+
+Senator Mathias. I understand. But then some years
+later -- my recollection is that you said it was in 1967 or
+1969 -- you learned that the KGB had spent six month of
+employment of their top operators in the investigation of the
+Kennedy assassination, and wouldn't this fact in your mind
+negate the implication of the original Golitzen call or that
+they were involved?
+
+Mr. Angleton. I want to congratulate you, because that
+man is a man who is also a suspect of Nosenko.
+
+Senator Mathias. You mean in 1967?
+
+Mr. Angleton. Just to show you the ground you are
+treading on, Golitzen gave us information regarding the
+penetration of our own organization. And we worked down to an
+identity. And the FBI disagreed with us. And I am talking
+about not a few minutes, but several weeks and months of work.
+And the Bureau's attitude was, you have got the wrong man, and
+the allegation therefore does not affect the CIA, and we
+
+TOP SECRET

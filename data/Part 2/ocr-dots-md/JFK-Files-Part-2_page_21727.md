@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_21727.png
+
+Convert to Markdown1. Mr. Baron. It appears to me that the Bandoeng Conference took place, according to Article Lazarus's testimony, in 1955 and that the incident he was describing was either in '55 or late in '54.
+2. Mr. Hunt. I had no recollection of it whatever. Article is not suggesting that some basis for personal animosity, I trust.
+3. Mr. Baron. No. He did say, though, that you might have had knowledge of that suggestion, although he wasn't sure of it. He said you were involved at that time in a place where you might have seen cable traffic like that.
+4. Mr. Hunt. That's quite right, but I never saw that traffic.
+5. Mr. Baron. Let me pick up one last general question for the moment at least on assassinations.
+6. Do you have any knowledge of even the consideration of assassinations at high levels of the American government?
+7. In other words, we have been using the term higher authority and I would like to use it for the moment now to refer to the level of the DCI or the National Security Council, the President, his close White House advisors, Cabinet officials, and the DCI.
+8. Do you have any knowledge of any people at that level seriously considering assassination planning?
+9. Mr. Hunt. No, none. I think you have to bear in mind
+
+TOP SECRET
+
+HW 50955 DocId:32202418 Page 32
+
+TOP SECRET

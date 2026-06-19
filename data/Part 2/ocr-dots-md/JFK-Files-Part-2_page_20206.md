@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_20206.png
+
+Convert to MarkdownNR 010 WF CODED
+
+NOV 17 1971
+
+5:07 PM NITEL 11-17-71 ASW
+
+TELETYP
+
+TO DIRECTOR (ATTENTION: DOMESTIC INTELLIGECE)
+
+CLEVELAND (100-27031)
+NEW YORK (100-174481)
+
+FROM WASHINGTON FIELD (100-54927)
+
+<table><tr><td>Mr. Tolson</td></tr><tr><td>Mr. Felt</td></tr><tr><td>Mr. Hatcher</td></tr><tr><td>Mr. Bishop</td></tr><tr><td>Mr. Miller, E.S.</td></tr><tr><td>Mr. Callahan</td></tr><tr><td>Mr. Corr</td></tr><tr><td>Mr. Conrad</td></tr><tr><td>Mr. Dalbey</td></tr><tr><td>Mr. Cleveland</td></tr><tr><td>Mr. Ponder</td></tr><tr><td>Mrs. D.ros</td></tr><tr><td>Mr.avel</td></tr><tr><td>Mr. Walters</td></tr><tr><td>Mr. Soyars</td></tr><tr><td>Tele. Room</td></tr><tr><td>Mrs. Holmes</td></tr><tr><td>Liss Gandy</td></tr></table>
+
+WOMEN'S NATIONAL ABORTION ACTION COALITION (WONAC)
+
+SPONSORED DEMONSTRATION, NOVEMBER TWENTY, NINETEEN SEVENTY ONE, WASHINGTON, D.C., IS - NEW LEFT.
+
+CLEVELAND AND NEW YORK AND ADVISED TO HAVE INFORMANTS ATTENDING CAPTIONED DEMONSTRATION REPORT INFORMATION TO WFO BE CALLING SIX TWO EIGHT DASH TWO EIGHT THREE SEVEN OR SIX TWO EIGHT DASH TWO EIGHT TWO SIX AND SPEAK WITH PERSON ANSWERING.
+
+CLEVELAND AND NEW YORK WILL ADVISE WFO OF CODE NAMES TO BE USED BY RESPECTIVE INFORMANTS.
+
+ADMINISTRATIVE : REC-59
+
+RE NEW YORK TEL TO BUREAU NOVEMBER SEVENTEEN, LAST AND BUREAU AIRTEL TO CLEVELAND NOVEMBER SIXTEEN LAST CAPTIONED STUDENTS FOR A DEMOCRATIC SOCIETY (SDS), IS - NEW LEFT.
+
+END
+
+MRF FBI WA DC
+
+57NOV26 1971
+
+NOV 26 1971

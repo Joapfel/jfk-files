@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_22511.png
+
+Convert to MarkdownOn 18 May 1959, Morse Allen wrote a memo to the Chief, SRS that Wiley is now a newspaperman and a magazine writer, accredited under the auspices of the North American Newspaper Alliance, the Spades Syndicate, The Indianapolis Star, The Richmond Times Dispatch and probably several other publications. Wiley is a member of an anti-Communist group privately sponsored who will attend the Vienna Youth Festival and will make themselves known during the Festival. Wiley will probably cover the Festival for the Newhouse Newspaper Chain, National Review and U.S. News and World Report. He has received $500 in private subscriptions to cover the cost of his transportation to the WYF. The cost of his proposed itinerary amounts to $1,056.70 for transportation. Allen recommended the Office of Security pay the additional cost of $556.70 with the understanding that any remuneration received from his writings be offset on an equitable basis.
+
+On 19 May 1959, James McCord noted to Allen, "Ok, see me," referring to the request to approve the additional cost and possible later offset. There is a 16 June report from Wiley acknowledging receipt of $556.70.
+
+The *New York Times* reported on 3 August 1959 that Charles Wiley, his wife, and Joanne Mellor, a British subject living in New York City, were "roughed up" when they attempted to join a parade of Eastern Bloc delegates to the WYF. Wiley and company waited until the parade had started and then unfolded their banners with such slogans as "Remember Hungary," "Remember Tibet," and "What About Soviet Imperialism?" That incident got much press coverage, particularly because Wiley's wife was obviously pregnant.
+
+A 14 September 1959 memo for the record from Wiley reflects that in a meeting with staff members of the HCUA, Wiley was instrumental in talking HCUA out of holding hearings which would be intended partially to expose the alleged inept, but expensive, effort made by CIA to infiltrate the WYF with a large group under cover of the Independent Service Committee. The Director of Security memoranda concerning the foregoing was forwarded to the Legislative Counsel on the 16th and 25th of September 1959 and the 27th of October 1959. They were also forwarded to the Office of the DCI.
+
+SEP 20 1975
+
+CIA
+
+SECRET
+
+SECRET
+
+NW 50955 DocId:32203889 Page 19

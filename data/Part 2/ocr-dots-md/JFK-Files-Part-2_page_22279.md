@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_22279.png
+
+Convert to Markdown1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+Ward & Paul
+
+410 First Street, S.E., Washington, D.C. 20003
+
+FBi for instance, and a couple of other things. I gradually endeavored to open up the Israeli account to a better relationship with our other year Eastern activities. We debated this over many months and on several occasions. We could never really agree to it because he insisted on the importance of retaining it where it was.
+
+Mr. Angleton had done a very good job of establishing that liaison years ago, and knew a lot of the senior Israeli who were involved in it.
+
+I believed there was inadequate coordination in the Areas. (h)
+
+Also, I believed that there was a undue degree of compartmentation of that staff, that it needed more interchange with our other divisions. We debated this and discussed it and I set as my time limit for this discussion the end of December because there were some very substantial retirement benefits that people would loose if they stayed after that point. Then unfortunately the Seymour Hirsh article of December 22nd came to our attention before it was actually published, and so I brought Mr. Angleton up and said that I was going to make two basic decisions. I was going to move the Israeli account from his control and I was going to put some successor leadership into the Head of the Counterintelligence Staff. I said I would offer him a post of tying together some counterintelligence doctrine, he could stay working with us. He did not have to
+
+TOP SECRET
+
+HW 50955 DocId:32203792 Page 7

@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_19429.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DEMONSTRATION PROTESTING
+UNITED STATES POLICY IN
+VIETNAM, WASHINGTON, D.C.
+
+JANUARY 15, 1968
+
+She stated that the men had gotten us into this war and had made a complete mess of it. She stated that there is a need to end the war so that we may tend to the needs of people in urban ghetto areas. Injustice in our society must be taken care of and she described the present challenges as "militarism, racism and wantonism." She stated there can be no justice at home until there is no war in the world. She concluded by reading a poem entitled "Life Ain't Been No Crystal Stair."
+
+Jeannette Rankin was the next speaker and she welcomed everyone expressing great joy that so many women had gathered together for peace. She stated that our forefathers wrote the constitution in such a way so that the military could not take over control of this Government. She was apparently implying that the military system is running the United States. She stated that the women must see that the military system is destroyed. She demanded that women have a secret ballot in the election as well as a choice in selecting candidates. She concluded by recommending that women everywhere become candidates for political offices.
+
+The next speaker was Katherine Camp from Pennsylvania described as the President of the Women's International League for Peace and Freedom. Mrs. Camp described the activities of the fifteen women delegation that went to Congress on this date. She stated that they presented a petition to Speaker of the House McCormick and that he had assured them that it would be acted on as any other petition presented to Congress. Camp stated that the Speaker left then as he was called by a bell to the floor of the Congress. Camp stated that following this, Mrs. Rankin, her sister Edna McKinon, and niece Mrs. Dorothy Brown, visited Senator Mike Mansfield and presented him with a petition.
+
+CONFIDENTIAL
+
+- 7 -

@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_20482.png
+
+Convert to MarkdownCONFIDENTIAL
+
+JEANNETTE RANKIN BRIGADE
+
+Communist Party because of her present
+religion "Jag" and because she did not
+attend Communist Party meetings regularly
+when visiting Palo Alto during the Summers.
+
+The source further advised on August
+28, 1962, that Isobel and Edwin H. Cerney
+were then out of the Communist Party, al-
+though the $25.00 received for their cur-
+rent dues was to be retained by the Party.
+
+CONFIDENTIAL
+
+2*

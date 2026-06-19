@@ -1,0 +1,79 @@
+# JFK-Files-Part-2_page_23176.png
+
+Convert to Markdown1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+ Senator Schweiker. And it was a project where two American pilots were killed. The group conducted some para-military operation.
+
+Mr. Halley: That doesn't ring a bell, but the Celula Pantasma is a name that I've heard. I can't put it into any broader context for you. It certainly was not one of our operations.
+
+Senator Schweiker. That was really my question.
+
+Do you recall -- was there anyone using the name or cryptonym of Bishop for you at any point in time in terms of the Cuban operations, either Morris Bishop or some other Bishop?
+
+At Mr. Halley, that name doesn't mean anything to me.
+
+Senator Schweiker. Here is a sketch of a person. Does this sketch look like anyone that might have been associated with the Cuban operations, either pro-Castro or anti-Castro?
+
+(The witness looks at a sketch.)
+
+Mr. Halley... do, it doesn't. I mean, there is something about the face chart in his uniform, but I can't put a name to it and it doesn't ring any bells with me in relationship to the Cuban operations.
+
+Senator Schweiker. Well, ask Seymour.
+
+Seymour, how about you, any cooperation?
+
+Mr. Bolton. Is it supposed to be Cuban or an American?
+
+Senator Schweiker. I think an American, but I'm not certain.
+
+TOP SECRET
+
+NWI:55510 DocId:32423435

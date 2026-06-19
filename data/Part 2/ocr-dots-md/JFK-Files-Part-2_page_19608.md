@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_19608.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Women's National March on
+the Pentagon, April 10, 1971
+
+ourselves not only as your supporters, but as sisters in a
+revolutionary struggle for the liberation of all people.
+
+"We are becoming women of the revolution, working
+in our own way to stop the bombs from dropping in your land,
+at the same time that we work to build day care centers, health
+clinics, and a whole culture that will come from and respond
+to the needs of all the people, not just the rich and the
+powerful. The enormous anger and energy of sisters together
+is a force that confuses and terrifies the rulers of Amerika.
+
+"It's so incredibly hard for us to write what
+we're feeling, to express to you and our Vietnamese sisters
+and brothers the depth and strength of our love and solidarity.
+
+"Tidings of revolutionary joy from sisters inside
+Amerika,
+
+"In love and respect,
+"April 10th Women's Committee"
+
+C O N F I D E N T I A L
+
+- 3* -

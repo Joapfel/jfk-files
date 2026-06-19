@@ -1,0 +1,79 @@
+# JFK-Files-Part-2_page_22697.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+WARD & PAUL
+
+10 First Street, S.E., Washington, D.C. 20003
+
+ relate to the third part of the damage part on Golitzen -- what did Golitzen know that they did not know he knew? What agents in the West could be under our control as a result of Golitzen's disclosures regarding those things?
+
+And you can see the tremendous quality this man had of almost getting from our man those four or five crytonyms, which would have told them what they wanted to know, because there are cases they are not sure whether he knows or doesn't know, and so on. And these are officials, and so on.
+
+So he wasn't given that. He was given stuff that was sort of medium low level stuff, you couldn't call it chicken feed -- but we never told him we disbelieved in him. And he said, if you do those things for me, I have an opportunity, because of my mother and so on, to become Head of the American Department of the KGB.
+
+And the other thing he wanted, was, we took him to the Soviet Agency and we came out later for contacts, and he stated there was a telegram there, and he had been requested to acquire all the information possible on the whereabouts of Golitzen and Nosenko. And I was actually in Wisconsin. And I called my Deputy long distance and I said, if there is any proposal put up by that individual that would expose -- and I use the crytonym name of Golitzen -- don't.
+
+A week later is when he got to Moscow and he sent a cable to tell us that he can give them word on everything on
+
+TOP SECRET
+
+TOP SECRET
+
+76000115J7
+
+25
+
+24
+
+23
+
+22
+
+21
+
+20
+
+19
+
+18
+
+17
+
+16
+
+15
+
+14
+
+13
+
+12
+
+11
+
+10
+
+9
+
+8
+
+7
+
+6
+
+5
+
+4
+
+3
+
+2
+
+1
+
+102
+
+43
+
+10955 DocID:32423393 Page 104 NW

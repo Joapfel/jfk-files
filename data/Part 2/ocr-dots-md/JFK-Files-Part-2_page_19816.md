@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_19816.png
+
+Convert to MarkdownSECOND WOMEN'S NATION-IL
+ABORTION ACTION CONFERENCE
+
+The confidential source advised that during this
+rally, approximately 50 individuals representing the Progressive
+Labor Party (PLP) attempted to disrupt the proceedings, but-
+were contained by the Conference Marshals. The source stated
+that PLP was protesting the dominance of influence by SWP and
+the Young Socialist Alliance (YSA) in WONAC.
+
+9:00 The PLP was founded in 1962 by individuals who were expelled from the Communist party, USA, for working-class principles following the Chinese communist line. Its initial宗旨 objective is the establishment of a militant working-class movement based on Marxism-Leninism and Mao Tse-tung thought, the Soviet approach. It was founded in 1974 as a branch of the Chinese Communist Party in Taiwan. As the youth organization of the SWP, the YSA serves as the main source of recruitment into that organization. The YSA is now under the leadership of a group of Marxists who are described in the masthead of its official website. In 1987, it was reorganized to focus on promoting "The Young Socialist Organization" to the conference as a multi-national revolutionary socialist youth organization."
+
+The source advised that the afternoon session between 2:30 p.m. and 5:00 p.m. Source advised that the February 12 session of the conference began at approximately 10:30 a.m. at Marsh Chapel on the campus of Boston University with approximately 500 women in attendance. The chairwoman for this general assembly was Delphine Welch, a national staff member of WOAAAC and the National Women's Liberation Director of the YSA from New York City.
+
+CONFIDENTIAL
+
+Saturday, February 12, 1972
+
+11:00 to 1:30 p.m.: General Workshops
+
+1:30 to 2:30 p.m.: Movement in Lunch S
+
+2:30 to 5:00 p.m.: Project and Constituency Reparation Control Versus Workshops might be proposed
+
+CONFIDENTIAL

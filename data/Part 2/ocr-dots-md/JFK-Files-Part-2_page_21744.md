@@ -1,0 +1,76 @@
+# JFK-Files-Part-2_page_21744.png
+
+Convert to Markdown1
+2
+3
+4
+5
+6
+
+10
+11
+12
+13
+14
+
+15
+16
+17
+18
+19
+
+20
+21
+22
+23
+24
+25
+
+Ward & Paul
+
+10
+11
+12
+13
+14
+
+15
+16
+17
+18
+19
+
+20
+21
+22
+23
+24
+25
+
+HW 50955 DocId:32202418 Page 49
+
+TOP SECRET
+
+77
+
+kept a list, for example, and maintained a very good list of KGB officers abroad, and when one would show up at Luanda, for example, they would make sure that the local press got the man's dossier, or at least a blind handout so that they would know who the fellow was, much as the Butz counterspy operation is doing today against the CIA.
+
+Mr. Baron. Did you make arrangements, or did you know of arrangements being made for non-CIA authors to write pieces that were favorable to the CIA?
+
+Mr. Hunt. No.
+
+Mr. Baron. There was no funding of that kind of opera-
+
+ton?
+
+Mr. Hunt. You mean sort of flackery, the favorable publicity for the Agency, is that what you imply?
+
+Mr. Baron. Right.
+
+Mr. Hunt. No.
+
+Mr. Baron. What about subsidizing non-CIA authors to write stories of any sort, or books of any sort that the CIA was interested in having published?
+
+Mr. Hunt. I would say this in a qualified sense. Where in the past we had given Praeger a commitment to buy X copies of his book on the Himalayas, Himalayan problem, obviously we were subsidizing the author of that book because it was our money that Praeger was ultimately passing to the individual, but that was Praeger doing it rather than us. In
+
+TOP SECRET

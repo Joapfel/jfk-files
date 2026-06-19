@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_19069.png
+
+Convert to MarkdownCONFIDENTIAL
+
+34. Memo of SA EDWARD F. GAMBER, dated 3/15/61, at NY captioned "IS - R".
+
+35. Memo of SA EDWARD F. GAMBER, dated 4/3/61, at NY captioned "IS - R".
+
+36. NY airtel and LHM to Bureau, dated 3/23/61, captioned "IS - R".
+
+37. Memo of SA EDWARD F. GAMBER, dated 4/20/61, at NY captioned "."
+
+38. Memo of SA EDWARD F. GAMBER, dated 4/26/61, at NY captioned "IS - R."
+
+39. Memo of SA EDWARD F. GAMBER, dated 5/4/61, at NY captioned "IS - R".
+
+40. Memo of SA EDWARD F. GAMBER, dated 5/11/61, at NY captioned "IS - R".
+
+41. Memo of SA EDWARD F. GAMBER, dated 6/12/61, at NY captioned "IS - R".
+
+42. Memo of SA EDWARD F. GAMBER, dated 6/27/61, at NY captioned "IS - DOMINICAN REPUBLIC".
+
+43. Memo of SA EDWARD F. GAMBER, dated 6/30/61, at NY captioned "IS - R".
+
+44. Memo of SA EDWARD F. GAMBER, dated 7/10/61, at NY captioned "IS - R".
+
+45. Memo of SA JOHN G. WILLIS, dated 7/13/61, at NY captioned "IS - R".
+
+46. Memo of SA EDWARD F. GAMBER, dated 7/13/61, at NY captioned "IS - HU".
+
+47. Memo of SA EDWARD F. GAMBER, dated 8/4/61, at NY captioned "IS - DOMINICAN REPUBLIC".
+
+CONFIDENTIAL.
+
+NW 88326 DocId:32989704 Page 363
+
+-4-

@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_21591.png
+
+Convert to MarkdownFILE:
+
+To understand decisions in 1966 or 1970 it is necessary to go back to World War II, according to Papich. President Roosevelt got the FBI into the foreign intelligence field in World War II. Overnight the FBI had to generate the capability to move into Latin America against the German espionage operation which included business covers, radio networks, and influence in Latin American governments. The FBI had no precedent or guidance. Assistant FBI Director Hugh Klegg conferred with the British in London for assistance. FBI agents went into Latin America first under business covers, then in the embassies, which was thin cover. The legal attaches established official liaison with local authorities. The FBI's role was primarily counterintelligence but some positive information was gathered about the stability of governments. FBI agents learned on the job. Most training came from headquarters was ridiculous until all experiences were reported back.
+
+The OSS ran operations in Europe and Asia as well as Latin America. Donovan also ran undercover operations in the United States. See the book by Donald Downs. OSS had a very close relationship with MI 5 and MI 6. The British also ran operations in the United States in 1939-41. No one knows how many. They saw the FBI as neophytes knowing little about the business. The British developed closer relations to OSS than to FBI.
+
+At first, Donovan and Hoover were friendly but Hoover received complaints of OSS operations in the United States, for example, the OSS bugging of the Spanish Embassy in Madrid. Other complaints came from Latin America. The friction between Hoover and Donovan is important background for Hoover's view of the CIA. Donovan would recruit persons regardless of their background if he thought they had the capability to penetrate the access. The OSS use of Communists "shook the hell" out of Hoover, as did OSS discussions in Moscow of cooperation with the NKVD. Hoover would never work with Communists. Hoover saw CIA roots in OSS. Papich stressed that OSS had some great people, extremely capable and dedicated, but OSS had an element that Hoover would never buy.
+
+SECRET
+
+HW 50955 DocId:32281992 Page 4
+
+SECRET 19

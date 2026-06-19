@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_23329.png
+
+Convert to MarkdownTOP SECRET
+
+1 about meetings held after the assassination back in Washington
+2 when Mr. Dearborn came back as well as those meetings held
+3 after the assassination before he came back, at which the
+4 whole matter was discussed, initially with Vice President
+5 Johnson presiding and ultimately, the last one, with President
+6 Kennedy.
+
+7 Mr. Goodwin. That's right. We had, of course, a series
+8 of emergencies. We had an emergency meeting, and cabled the
+9 President who was in Paris, and the first matter on our mind
+10 was how to keep Ramfes Trujillo, who was the son of Trujillo,
+11 from taking over, and we didn't know where he was, at first,
+12 it took us awhile to find out that he was in Paris, which at
+13 least indicated, Senator, that if they were planning it, it
+14 wasn't done in a very comprehensive fashion, and we found he
+15 was in Paris and we wanted to stop him from returning, to
+16 detain him, but it was too late. By the time we found out, he
+17 had already chartered an Air France jet and was on his way to
+18 Cuidad Trujillo, and I believe there was some effort made to
+19 bluff him off by sending messages to the plane in flight,
+20 diverting it to some American airport, but he didn't do that.
+21 and he landed and took over. And I think the principal aim of
+22 our policy from that point on was how to get him and his uncle,
+23 Hector -- and I forget the other fellow's name -- out of there
+24 so that the kind of moderate government that we wanted could
+25 be installed.
+
+TOP SECRET
+
+NY
+
+7 6 5 4 3 2 1
+
+410 First Street, S. F., Washington, D.C. 20003

@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_23638.png
+
+Convert to Markdownelements to be included within a national intelligence budget -- In other words, what parts of the community would fit into that. where you draw the line between technical and national intelli- gence, between departmental and national intelligence.
+
+This definition would be established by the Congress in consultation with the Executive Branch.
+
+It further points out that he should be involved early in the process of preparing budgets in the budget cycle, and then it makes someortatory kind of statements about how he should try to consider trade-offs between programs and between collections and production and so forth.
+
+Senator Huddleston. I would suggest there that we use another word besides trade-off. While it is common for us to use it up here in committee work. I don't think it conveys the best connotation to the public.
+
+What we're saying is that he balances out or apportions resources, whatever.
+
+Mr. Aaron. Now I think the final sentence is this important one, and the Senators should note this. The proposal and perhaps this ought to be made somewhat more clear than it is now as to who will do this, but the authority -- I'm sorry, it is clear. But the authority of the DCI to reprogram funds within the intelligence budget should be limited by stenops. The President. The Executive Order gives to the Committee on Foreign Intelligence not only the authority to provide the
+
+TOP SECRET
+
+HW 50955 DocId:32423509 Page 12

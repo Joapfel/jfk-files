@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_22924.png
+
+Convert to MarkdownTOP SECRET
+
+139
+
+Mr. Schwarz. Finally, as Bundy 6-I, the Central Intelligence Agency, Office of National Estimates, May 13th, 1963, draft memorandum, Subject: Developments in Cuba and Possible U.S. Actions in the Event of Castro's Death.
+
+(The document referred to was marked as Bundy Exhibit 6-I for identification.)
+
+7600030591
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+TOP SECRET
+
+HW 30935 DocId:52423406 Page 142

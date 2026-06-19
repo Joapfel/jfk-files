@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_20019.png
+
+Convert to MarkdownPD 100-10983
+
+Enclosed for the Bureau are twelve copies, for San Francisco two copies and WFO two copies of a Letterhead Memorandum (LIM) suitable for dissemination concerning proposed anti-war demonstration Monday, 1/15/68, Portland, Oregon, in support of Demonstration Protesting U.S. Policy in Vietnam, Washington, D.C. 1/15/58. Sources utilized in this LIM, who have furnished reliable information in the past, are as follows:
+
+First Source
+Second Source
+Third Source
+
+The LIM is classified "confidential" because data reported from informants could reasonably result in identification of confidential informants or continuing value and compromise future effectiveness thereof.
+
+Copies of LIM disseminated to USA, Secret Service, WI, OSI, and NIC, all Portland.
+
+Summary of information contained in LIM was not submitted to the Bureau by telefax inasmuch as a lengthy advance notice was received concerning the demonstration.
+
+Portland will continue to follow this matter until told to Bureau instructions.

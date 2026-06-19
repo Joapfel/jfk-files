@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_24053.png
+
+Convert to MarkdownCoups involve varying degrees of risk of assassination. The possibility of assassination in coup attempts raises questions concerning the propriety of United States involvement in coups, particularly in those where the assassination of a foreign leader is a likely prospect.
+
+This country was created by violent revolt against a regime believed to be tyrannous, and our founding fathers (the local dissidents of that era) received aid from foreign countries. Given that history, we should not today rule out support for dissident groups seeking to overthrow tyrants. But passing beyond that principle, there remain serious questions: for example, whether the national interest of the United States is genuinely involved; whether any such support should be overt rather than covert; what tactics should be used; and how such actions should be authorized and controlled by the coordinate branches of government. The Committee believes that its recommendation on the question of covert actions in support of coups must await the Committee's final report which will be issued after a full review of covert action in general.

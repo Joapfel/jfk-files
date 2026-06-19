@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_21920.png
+
+Convert to MarkdownO'Donnell, this assignment" (Bissell, 9/10/75, p. 50). But he said that this specific assignment was made in the context that an assassination mission against Lumumba already had authorization above the level of DDP (Bissell, 9/10/75, p. 50; see also pp. 32-33, 47-48, 60-62).

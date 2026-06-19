@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_24513.png
+
+Convert to MarkdownThe CIA's Intelligence Estimate
+
+The CIA study in connection with the consideration of Castro's removal was an intelligence estimate prepared by the CIA's Board of National Estimates (which was not part of the CIA's covert action directorate), entitled "The Situation and Prospects in Cuba"*. The CIA Estimate was pessimistic regarding the chances for success of a Cuban internal revolt, and further found that a Castro assassination would likely strengthen the Communist position in Cuba.
+
+After a general review of the economic, military, and political situation in Cuba, the CIA estimate concluded that the Castro regime had sufficient popular and repressive capabilities to cope with any internal threat. The concluding paragraph of the estimate was entitled "If Castro were to Die". It noted that:
+
+> "His (Castro's) loss now, by assassination or by natural causes, would have an unsettling effect, but would almost certainly not prove fatal to the regime...(I)ts principal surviving leaders would probably rally together in the face of a common danger." (Estimate, p. 9.)
+
+The CIA study further predicted that should Castro die, "some sort of power struggle would almost certainly develop eventually," but that whatever the outcome of such a struggle, the Communist Party's influence would be "significantly" increased.
+(Estimate, p. 9.)
+
+*The IG Report apparently refers to an earlier draft of this intelligence estimate. (IG, p. 4.) The IG Report, in reporting that many CIA officers interviewed in the IG investigation stressed the point that "elimination of the dominant figures in a government...will not necessarily cause the downfall of the government," stated:
+
+> "This point was stressed with respect to Castro and Cuba in an internal CIA draft paper of October 1961, which was initiated in response to General Maxwell Taylor's desire for a contingency plan. The paper took the position that the demise of Fidel Castro, from whatever cause, would offer little opportunity for the liberation of Cuba from Communist and Soviet Bloc control." (IG, p. 4.) The CIA was unable to locate the draft paper referred to in the IG Report.
+
+**A cover memorandum by Lansdale transmitting the CIA estimate to Robert Kennedy stated that the estimate "seems to be the major evidence to be used to oppose your program" (referring to the proposed overall Mongoose operation). Lansdale's memorandum criticized the estimate's assessment that "it is highly improbable that an extensive popular uprising could be fomented" against Castro as a "conclusion of fact quite outside the area of intelligence." (Lansdale Memorandum to Robert Kennedy, 11/62, p.1) As discussed in detail at pp. ___ below, Lansdale's basic concept for the Mongoose program was to overthrow Castro through an internal revolt of the Cuban people.

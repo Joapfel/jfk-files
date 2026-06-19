@@ -1,0 +1,65 @@
+# JFK-Files-Part-2_page_20979.png
+
+Convert to MarkdownDECLASSIFIED BY SP-24MM/16
+
+UNITED STATES GOVERNMENT
+Memorandum
+
+OPTIONAL FORM NO. 10
+MAY 1962 EDITION
+GSA GEN. REQ. NO. 27
+
+5010-106
+
+SECRET/SCOPE [7] (5)
+
+TO: Mr. W. R. Wannall
+
+FROM: F. S. Putman (F/S SM)
+
+SUBJECT: SENSTUDY 75
+
+1 - Mr. J. B. Adams
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+
+DATE: 7/15/75
+
+JUNE
+
+1 - Mr. F. S. Putman
+1 - Mr. W. A. Branigan
+1 - Mr. L. F. Schwartz
+1 - Mr. M. R. L'Allier
+
+Reference is made to memorandum W. O. Cregar to Mr. W. R. Wannall, dated 6/26/75, captioned "Senstudy 75."
+
+## SYNOPSIS:
+
+The purpose of this memorandum is to summarize information in FBI files concerning Israeli intelligence collection capabilities in the United States. James J. Angleton, former Chief, Counterintelligence Operations, Central Intelligence Agency (CIA), advised the FBI on 3/26/75 that he appeared before the Senate Select Committee (SSC) and in response to questions advised SSC he only had secondhand and fragmentary information concerning Israeli capabilities to conduct intelligence collection in the United States, including nuclear information. He advised the SSC that questions concerning this matter might more properly be directed to the FBI. Sensitive technical source coverage by the FBI of the Israeli Embassy, Washington, D. C., between February, 1969, and October, 1972, developed information showing that Angleton, during this period in his official capacity at CIA, had frequent personal liaison contacts with the Embassy of Israel, Israeli Intelligence Service (IIS) representatives involving the exchange of extremely sensitive information. Currently the FBI has no pending investigation involving Israeli intelligence collection capabilities in the United States. The most current information in FBI files concerning this matter involved the investigation based on CIA information dated 11/14/68 concerning the establishment at the Embassy of Israel, Washington, D. C., of an Israeli technical intelligence network. Also under investigation during this period at New York City was an IIS attempt to penetrate United Nations and official Arab establishments by the use of live sources. FBI files also reflect that IIS representatives periodically have operated in the United States since 1943.
+
+1 - [65-58700 (IIS)] (5)
+MRL:med
+(9)
+
+REC-88
+
+CONTINUED - OVER (5)
+
+9 JUL 22 1975
+
+DETAILS - PAGE 2
+
+SECRET/SCOPE [75]
+
+Classified by 7005:
+Exempt from GDS, Categories 2 and 3
+Date of Declassification Indefinite
+
+SPEC. MAIL/RM
+
+6 JUL 22 1975
+
+ROUTE IN ENVELOPE
+
+UNCLASSIFIED TO DATE UNCLASSIFIED ON 25X / 1-8-6 / 4/26 / 75 / CLASSIFIED BY SP-24MM/16 / DECLASSIFY ON: 25X / \*LAMRMC/SM/CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \*LAM'S P.O.B./CSM/16\* \

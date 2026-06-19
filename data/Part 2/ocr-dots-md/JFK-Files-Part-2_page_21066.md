@@ -1,0 +1,104 @@
+# JFK-Files-Part-2_page_21066.png
+
+Convert to MarkdownSECRET
+
+CIA HAS NO OBJECTION TO DECLASSIFY AND/OR RELEASE OF CIA INFORMATION IN THIS DOCUMENT.
+
+Transmit the following in (type or plaintext or code)
+
+VIA AIRTEL 5668 SLD/MED12/6/97 GFK REGISTERED MAIL
+REGISTERED MAIL
+DECLASSIFY ON: 25X(1)(6) (Priority)
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED, EXCEPT WHISKER SHOWN OTHERWISE.
+
+TO: DIRECTOR, FBI (105-147458)
+
+FROM: SAC, MIAMI (105-9977) (P)
+
+SUBJECT: COMITE PRO-LIBERACION DE LOS CIEN (CPLLC - COMMITTEE FOR THE LIBERATION OF THE ONE HUNDRED) IS - CUBA
+
+Re Miami airtels 7-10-67, captioned "JORGE RAUL ROBLEJO LORIE, IS - CUBA" and "SERGIO OSWALDO BETANCOURT COLLAZO, aka - PSI, IS - CUBA".
+
+Enclosed herewith for the Bureau are 14 copies of a LHM dated and captioned as above. Extra copies of this LHM are being furnished for transmittal to Legats, Ottawa (2) and Mexico City (1).
+
+It is to be noted limited dissemination has been made concerning this matter and the enclosed LHM due to the sensitivity of the information concerning the
+
+Date 7-20-67 By VWH/teh
+
+By R/S For Info
+
+5-Bureau (Enc.14) (RM)
+(1-Legat, Mexico City 105-4967)
+(1-Legat, Ottawa 105-3083)
+1-New York (info) (105-77103) (Enc. 1) (RM)
+1-San Juan (info) (105-9215) (Enc. 1) (RM)
+1-Washington Field (info) (105-69372) (Enc. 1) (RM)
+3-Miami
+(1-105-9977)
+(1-105-12062) (Roblejo) 7/8/87 ysg4 Re: M. Ray
+(1-134-1433-Sub-A) for review at FBHQ by [HSCA] 7/12/67 7/7 REQUEST N/A
+JDH/al
+
+REC 82 05-141958-52
+
+ST-103
+
+11 JUL 19 1967
+
+LATAMAMERICAN
+
+UNREC COPY AND COPY OF ENGT FILED 7-20-67
+
+62 AUG 4 1967 SECRET
+
+State/CIA/COLOMBIA/RAO/LNS
+
+Army/Navy/Air Force/DIA/COLOMBIA
+Coordinator of Cuban Affairs, State
+
+SECRET
+
+HNW 50953 DocId:32309646 Page 2
+
+APPROPRIATE AGENTS
+AND TO BE USING
+DATE 5/14/67
+
+SUB(S) OF COPIES
+SLIP(S) OF COPY
+FILED 7-20-67
+
+Handwritten notes: 
+* Handwritten note on the left side of the top portion of the document indicates that it should be classified as Top Secret.
+* Handwritten note on the right side of the document indicates that it should be classified as Top秘密.
+
+Handwritten note:
+Handwritten note on the left side of the document indicates that it should be classified as Top Secret.
+
+Handwritten note:
+Handwritten note on the right side of the document indicates that it should be classified as Top秘密.
+
+Handwritten note:
+Handwritten note on the right side of the document indicates that it should be classified as Top秘密.
+
+Handwritten note:
+Handwritten note on the right side of the document indicates that it should be classified as Top秘密.
+
+Handwritten note:
+Handwritten note on the right side of the document indicates that it should be classified as Top秘密.
+
+Handwritten note:
+Handwritten note on the right side of the document indicates that it should be classified as Top秘密.
+
+Handwritten note:
+Handwritten note on the right side of the document indicates that it should be classified as Top秘密.
+
+Handwritten note:
+Handwritten note on the right side of the document indicates that it should be classified as Top秘密.
+
+Handwritten note:
+Handwritten note on the right side of the document indicates that it should be classified as Top秘密.
+
+Handwritten note:
+Handwritten note on

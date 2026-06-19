@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_20252.png
+
+Convert to MarkdownTeletype to SAC, Seattle
+
+RE: DEMONSTRATION PROTESTING U. S. POLICY
+IN VIETNAM, WASHINGTON, D. C.,
+JANUARY 15, 1968
+100-448475
+
+NOTE CONTINUED:
+
+Seattle Office has been attempting to reactivate the informant in CP work. She has been invited to attend the demonstration by one of the CP members of the area and her attendance will enhance her status with the Party and facilitate her reactivation. As her husband is an airline employee, the cost of the transportation will be minimal.
+
+Teletype is being used to afford informant opportunity to make arrangements for the trip.

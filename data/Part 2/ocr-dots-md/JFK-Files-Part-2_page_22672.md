@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_22672.png
+
+Convert to MarkdownTOP SECRET
+
+7630011431
+
+MARD & PAUL
+
+Phone (Area 202) 344-6000
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+public.
+
+Mr. Schwarz. But was nevertheless provided to the Commission?
+
+Mr. Angleton. It was made known to them in some fashion.
+
+Mr. Schwarz. Was it made known to them at the same time that at least certain experts withing the Agency thought it was false information?
+
+Mr. Angleton. I think, as I understand it now, that in spite of our feelings, either Helms or McCone made a presentation of it.
+
+Mr. Schwarz. But without mentioning your feelings, certain experts thought that it was false?
+
+Mr. Angleton. I can't respond to that. I don't know.
+
+Mr. Schwarz. What about the information derived from Golitzen, which indicated in your expert opinion that the documents provided by the Soviet Union were, I think you put it, funny, or strange, or misleading, because they did not include any reference to debriefing by Department 13, was that information provided to the Warren Commission?
+
+Mr. Angleton. I don't know. I don't think so. But all I can say there is this, to be realistic. No one would expect the Soviet Government, regardless, to provide documents, secret documents, on Oswald, whether he was or was not their agent. And I say, I can go all the way back through history, the way they falsified the official record, they had it with
+
+TOP SECRET

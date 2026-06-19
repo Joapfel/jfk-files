@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_19933.png
+
+Convert to MarkdownFBI
+
+Date: November 27, 1967
+
+Transmit the following in
+(Type in plaintext or code)
+
+Via
+
+AIRTEL AIRMAIL
+
+(Priority)
+
+TO : DIRECTOR, FBI
+
+FROM : SAC, SEATTLE (100-29048) (P)
+
+SUBJECT: "CHANGED" JEANNETTE RANKIN'S BRIGADE INFORMATION CONCERNING (INTERNAL SECURITY)
+
+Title marked "Changed" to add one more "N" in JEANNETTE as obtained from the Congressional Directory.
+
+RE: Seattle teletype to the Bureau, dated
+
+11/22/67.
+
+Enclosed for the Bureau are ten (10) copies and for WFO two (2) copies of an LHM concerning matter. Copies were sent locally to NIG, M G, OSI, Secret Service and the USA; Seattle.
+
+The Seattle Office has an active COMINFIL case on SWAP. A preliminary inquiry was conducted regarding MAD-FAD without developing evidence of CP domination or control. The AFSC is not under investigation, but a dead file is maintained so investigation can be instituted if sufficient CP infiltration develops, pursuant to Section 87E, M of I.
+
+The LHM is classified CONFIDENTIAL because information furnished by the sources used, if disclosed, might compromise these regular informants of continuing value. The first source is ; the second is 
+
+3 - Bureau (Enc.10) (REG)
+2 - WFO (Enc.2) (REG)
+4 - Seattle (1 - 100-29048)
+RBC/cjw (1 - 100-20040) (MAD-FAD)
+
+(1 - 100-27547) (VIDEM)
+
+AGENCY: G-2 ONI, OSI, SEC. SER.
+DATE EORW:
+HOW FORM:
+BY:
+RAO (ISD, GRD=CD)
+
+Approved.
+Sent
+Per
+
+NW 88321 DocID:32989545 Page 217
+Special Agent in Charge

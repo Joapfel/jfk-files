@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_24747.png
+
+Convert to MarkdownGoodpaster and Gray: The responsibility for national security affairs during the latter part of the Eisenhower Administration was borne by Andrew Goodpaster and Gordon Gray. However, there was no evidence which raised the name of either man in connection with the development of an executive action capability. Both Goodpaster and Gray testified to having no knowledge of it. (Goodpaster, p. 11; Gray, p. 56.)
+
+(c) Authorization or Knowledge of Executive Action Project by DCI
+
+Richard Bissell said he was "quite certain" that Allen Dulles had full knowledge of the executive action project for two reasons: first, it "would have come to the DCI's attention" at the time of the transfer of William Harvey between components of the Agency to work on Cuban operations;* and second, Bissell "would imagine" it was mentioned to Dulles at the initiation of the project (Bissell, 7/22/75, p. 35). Bissell and Harvey briefed Richard Helms on Project ZRRIFLE when he became DDP (Bissell, 6/11/75, p. 53; Harvey, 7/11/75, p. 63). But Bissell did not recall briefing John McCone about the project when McCone took over as DCI (Bissell, 7/17/75, p. 11). McCone testified that he had no knowledge of such a project (McCone, p. 43).
+
+William Harvey said it was assumed that the project was within the parameters permitted by the DCI. But Harvey testified that officially advising the DCI of the existence of the project
+
+* Harvey's transfer to Cuban operations was not completed until late in 1961.

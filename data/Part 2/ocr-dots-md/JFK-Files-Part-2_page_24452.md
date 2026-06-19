@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_24452.png
+
+Convert to MarkdownBissell was also asked about the minutes of the November 3 meeting. After reading the reference to "direct positive action," Bissell said "I find it difficult to understand" (Bissell Tr. 7/17, p. 18). He was then asked
+
+"Q: Do you, in light of the November 3 minutes) remain firm that Cabell was knowledgeable (of the assassination plots)?"
+
+"A: It casts some doubt on that in my mind."
+
+When asked if it cast "some significant doubt in light of (Cabell's) character", Bissell answered "yes" (Bissell, 7/17, pp. 22-23).

@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_23544.png
+
+Convert to MarkdownDRAFT
+
+TOP SECRET
+
+U. S. POLICY TOWARD CUBA
+
+(NSC Action No. 2413-c; Name for NSC, same subject, dated May 4, 1961)
+
+a. Agreed that the political objective of U. S. policy toward Cuba is to bring about the downfall of the Castro regime.
+
+b. Agreed that the United States should not undertake military intervention in Cuba now, but should do nothing that would foreclose the possibility of military intervention in the future.
+
+c. Agreed that the Cuban situation should be kept under constant review, in the light of the possibility that actions by Castro would prompt a reconsideration of the decision not to intervene.
+
+d. Agreed that the United States should not impose a naval or air blockade against Cuba at this time.
+
+e. Noted the importance the President attaches to obtaining timely and adequate intelligence as to Cuban military capabilities, especially the enhancement of such capabilities by Sino-Soviet bloc military assistance, taking into account the possibility of U. S. intervention at a future date.
+
+- 2 -
+
+TOP SECRET
+
+HW 50955 DocId:32423505 Page 22

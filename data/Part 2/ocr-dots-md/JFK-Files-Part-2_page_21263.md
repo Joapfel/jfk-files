@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_21263.png
+
+Convert to MarkdownWARNING NOTICE
+
+SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED
+
+6. KASSEL's draft report to his Soviet contact in Bogota is a single-spaced nine-page paper entitled "Composición Política de la Emigración Cubana en Miami, Florida." It covers those groups with which KASSEL has become most familiar: the PRP, the MIRC, Alfa 66, and several other minor groups. Following are highlights of that report.
+
+A. In response to a specific requirement from KASSEL's Soviet contact to determine if U.S. Government agencies, including specifically the CIA, support any of these groups, KASSEL makes emphatically clear in his report that none of the exile groups have the support of the U.S. Government, although some groups falsely claim to have such support. He points out that the U.S. Government not only ignores the political exiles, but places high priority on its relations with the USSR and is "disposed" to lift the blockade of Cuba and reestablish relations with Havana. In connection with the latter point, KASSEL reports on his interview with Dr. Alberto DIAZ Masvidal, Director of the Spanish edition of Miami Herald, who told KASSEL that reestablishment of U.S. - Cuban relations is now imminent.
+
+B. Regarding on-island operations of Cuban exile groups, KASSEL concludes that none of them have any operational contacts in Cuba.
+
+C. Regarding terrorism, KASSEL reports that Dr. Orlando BOSCH, a fugitive from the U.S. who now lives in Venezuela under an assumed identity, and Antonio VECIANA, a founding member of the PRP who is now in prison, have a plan of attack against Cuban embassies and consulates and against Soviet Bloc missions in Latin America, to be put into effect when Venezuela, Costa Rica, and other unidentified countries reestablish relations with Cuba. He also singles out Jose de Jesus QINCAUMA, a Cuban political gangster who last year planned an attack against a Soviet family in Venezuela, and the Frente Unido de Liberacion, which was formed this month in Miami and which announced the launching of a terrorist campaign against Cuban and Soviet Bloc diplomatic installations in the entire Western Hemisphere.
+
+SECRET
+SENSITIVE
+
+HW 50953 DocId:32319484 Page 5

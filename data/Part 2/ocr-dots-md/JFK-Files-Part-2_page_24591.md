@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_24591.png
+
+Convert to Markdowndiscussed above in section ______, however, it was the testimony of all witnesses except Helms that such statements did not include assassination.
+
+Lansdale's statements to O'Leary and Martin appear consistent with his sworn testimony that it was his own idea to request an assassination plan from Harvey and that he did not discuss this idea with anyone except Harvey.
+
+(see p. ____ above). With respect to this latter point, however, it is a fact that Lansdale's request for an assassination plan followed almost immediately after the August 10 meeting, where the question of a Castro assassination was raised. Hence, it is not unreasonable to conclude that the raising of the question of a Castro assassination at the August 10 meeting prompted Lansdale to request an assassination plan (although it was the finding of the IG Report as well as the testimony of Harvey that the August 10 meeting had no relation to the question of authorization for the 1962 assassination plot).

@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_22598.png
+
+Convert to MarkdownTOP SECRET
+
+# EXECUTIVE SESSION
+
+Thursday, June 19, 1975
+
+United States Senate,
+Select Committee to Study Government.
+Operations with Respect to
+Intelligence Activities,
+
+Washington, D. C.
+
+The Committee met, pursuant to notice, at 2:20 p.m., in Room S.123, The Capitol, Senator John G. Tower, presiding.
+
+Present: Senators Tower (presiding), Baker and Mathias. Also present: William Miller, Staff Director; Frederick A. O. Schwarz, Jr., Chief Counsel; Charles Kirbow and David Aaron, Professional Staff Members.
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+7600011436
+
+TOP SECRET
+
+NW 30933 Document:52423393 Page 4

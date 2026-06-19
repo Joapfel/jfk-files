@@ -1,0 +1,83 @@
+# JFK-Files-Part-2_page_21828.png
+
+Convert to MarkdownTOP SECRET
+
+68
+
+Mr. Sarno. It would come out of the Cuban branch.
+
+2
+
+Mr. Wides. Cuban Operations Task?
+
+3
+
+Who would come down? Just a member of the staff?
+
+4
+
+Mr. Sarno. Come down? They usually came in a cable.
+
+5
+
+It said, you know, we understand such and such a person is
+living at such and such an address and they worked at such and
+
+6
+
+such, suggest send an AMOUNT out to debrief.
+
+7
+
+8
+
+Mr. Wides. Did you have a particular point of contact or several people who were particular points of contact for you that would tend to be the ones sending you cables?
+
+9
+
+10
+
+Mr. Sarno. No, I wasn't the Station Chief. The cables
+come into the station, the Station Chief would pass it to me
+or to the Branch Chief, and that would be it.
+
+11
+
+12
+
+13
+
+14
+
+Mr. Wides. Okay.
+
+15
+
+I think that's all the questions we have, and I want
+to thank you for your patience, it's been a long morning.
+
+16
+
+(Whereupon, at 12:42 o'clock p.m., the hearing recessed.)
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+HW 50955 DocId:32202440 Page 60
+
+TOP SECRET

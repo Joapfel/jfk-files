@@ -1,0 +1,61 @@
+# JFK-Files-Part-2_page_19825.png
+
+Convert to Markdown**MINNESOTA WOMEN'S ABORTION**
+**ACTION COALITION**
+
+CONFIDENTIAL
+
+The Young Socialist Alliance - Twin Cities Group
+is the Youth Branch of the Twin Cities Branch -
+Socialist Workers Party (TCB-SWP), an affiliate of
+the Socialist Workers Party (SWP).
+
+As the youth organization of the Socialist
+Workers Party (SWP), the Young Socialist Alliance
+(YSA) serves as the main source of recruitment into
+that organization. The YSA is described in the
+GOV: masthead of its official publication, "The Young
+Socialist Organizer," as "A multinational revolu-
+tionary socialist youth organization."
+
+The MWAAC is not an organization as such which would
+have a staff of officers, elected or appointed.
+
+At a meeting of the TWA on April 19, 1971,
+Mary Hillery reported that where
+participants in the annual conference on
+January 26, 1972,
+MP T-3 on
+February 8, 1972
+
+MEMBERSHIP (May 9, 1971)
+
+The MWAAC is a non-membership feminist movement
+of individuals interested in promoting the repeal of all
+abortion laws and other aims which have to do with principles
+of women's liberation.
+
+In order to raise awareness about the needs of
+from this cause to participate in a
+demonstration, it was announced that on
+January 26, 1972,
+MP T-2 on
+February 4, 1972
+from Minneapolis, Minnesota, at a
+and among those individuals who
+approximately ten thousand were
+SKP.
+MP T-1 on
+January 26, 1972:
+MP T-3 on
+February 8, 1972:
+
+GENERAL ACTIVITIES
+
+In the spring of 1971, members of the YSA-TCG were
+urged to make telephone calls to local radio stations in order
+to build public sympathy for a march on the state capitol to
+
+-4-
+
+CONFIDENTIAL

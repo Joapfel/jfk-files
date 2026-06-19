@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_23157.png
+
+Convert to Markdown# TOP SECRET
+
+N#: 55510 PocId: 32423435
+
+Mr. Wallach. December 1, '63 --
+Mr. Halley. December 1, '63 to when?
+Mr. Wallach. September of '64.
+Mr. Halley. No. No.
+Mr. Wallach. Do you have any reason today to believe
+that there was Cuban involvement in the assassination of
+President Kennedy?
+
+Mr. Halley. I have no hard information on that.
+Mr. Wallach. Do you have any hearsay information?
+Mr. Halley. No. I mean, hearsay information, what
+constitutes hearsay? Brief wrote an article in the Washington
+Post, you know, suggesting that there is some -- is that
+hearsay evidence? I mean, I don't happen to believe his thesis.
+
+Mr. Wallach. I am asking you if you have any belief as an expert?
+
+Mr. Halley. As an expert I only deal in facts, in other words not - what I consider hard intelligence, I don't have any hard intelligence.
+
+Mr. Johnston. Other than the FBI, did you have a liaison with other investigative agencies?
+
+Mr. Halley. Yes, I did.
+
+Mr. Johnston. Did you have an investigative relationship
+with the D.C. Customs Department, specifically a Customs
+agent who was on detail to GIA?
+
+Mr. Halley. Yes, we had a relationship with a Customs agent who was on detail to CIA.

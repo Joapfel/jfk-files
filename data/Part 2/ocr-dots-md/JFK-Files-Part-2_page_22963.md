@@ -1,0 +1,83 @@
+# JFK-Files-Part-2_page_22963.png
+
+Convert to Markdown1. matters pertaining to that survey to the team who was then in charge of the operational activity in Miami. That team was essentially headed by Mr. Al Cox, who has since died.
+
+2
+
+3
+
+4. Mr. Baron. Was that team the equivalent of JMWAVE station?
+
+5
+
+6. Mr. Halley. Yes. Mr. Cox was the head, then, of what would be the equivalent of the JMWAVE Station.
+
+7
+
+8. Mr. Baron. Was he the head of JMWAVE until the point when you replaced him, or until the point you became Chief of the JMWAVE Station?
+
+9
+
+10. Mr. Halley. That is correct. He was the head of that unit until such time as I replaced him.
+
+11
+
+12. Mr. Baron. Were you aware during this survey that you were conducting of any link between Task Force W and the so-called Special Group in the White House which was part of the National Security Council structure and used the project named MONGODB for anti-Cuban operations?
+
+13
+
+14
+
+15
+
+16
+
+17. Mr. Halley. My understanding at the time that I conducted this survey was that there was a three-man group in existence which was headed by Mr. Robert Kennedy that was conducting a survey to see what kind of activities could be conducted against Cuba. The other members of that particular group were General Lansdale and Mr. Helms.
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23. This three-man group had subordinate to it for all practical purposes the task force unit which was managed by Mr. Harvey. I am not familiar, however, with the other terminology that you
+
+24
+
+25
+
+# TOP SECRET
+
+Phone (Area 202) 544-6000
+
+7
+6
+5
+4
+3
+2
+1
+0
+N
+o
+p
+e
+n
+a
+r
+d
+U
+A
+N
+P
+A
+R
+F
+
+410 First Street, S.E., Washington, D.C. 20003
+
+# TOP SECRET

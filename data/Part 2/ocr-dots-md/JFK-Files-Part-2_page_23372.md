@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_23372.png
+
+Convert to Markdown# TOP SECRET
+
+1. best answer to our problem.
+
+2. Mr. Baron. Does he not indicate in this cable though that he would proceed to implement these plans unless he were instructed to the contrary? In other words, this very cable might constitute his request for a confirmation.
+
+3.
+4.
+5.
+6. Mr. Tweedy. I disagree. I think these various possibilities still need further exploration is what he was suggesting
+7. to Headquarters he concentrate on, that is the best possible use
+8.
+9. of [redacted] on this including further operational intelligence
+10. on the situation which might lead to an agreement that we would
+11. use this man, and then all these others, but it does not in any
+12. sense, as far as I am concerned, it is not in any sense the
+13. Chief of Station saying, if A looks terribly good I shall just
+14. go ahead and finish the job without further reference. Not at
+15. all.
+
+16. Mr. Baron. I do not understand how you can read the phrase "unless instructed to the contrary" in that way.
+
+17. Mr. Tweedy. Because there are other possibilities here.
+I am sorry, but I am afraid looking at it fifteen years later
+18. in the subject that you are engaged in, I think you would look
+19. at it entirely differently than I would, working on a day-to-day
+20. matter with the Chief of Station. There is absolutely nothing
+21. in this cable which says that they have the answer to
+22. [redacted] use.
+
+23. Mr. Baron. Does paragraph A indicate that [redacted] would:
+
+TOP SECRET
+
+SISR

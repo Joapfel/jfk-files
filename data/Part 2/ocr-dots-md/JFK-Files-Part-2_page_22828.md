@@ -1,0 +1,63 @@
+# JFK-Files-Part-2_page_22828.png
+
+Convert to Markdown43
+
+1 impractical because it was going to kill a large group of people in a headquarters mess, or something of that sort.
+
+2
+
+3 Senator Baker. Do you remember whether the plan was declared non-feasible or infeasible by the Department of Defense?
+
+4
+
+5
+
+6 Mr. Bundy. No, I have no such recollection.
+
+7
+
+8 Senator Baker. Do you remember anything about a hypodermic syringe to carry poisons in a ballpoint pen?
+
+9
+
+10 Mr. Bundy. That is the sort of thing that I was asked the other day, and I said I remember it, and then it seems to me about ten seconds later was that what I was remembering was murder mysteries and nothing related to Cuba. I have no recollection of connecting anything like that to Cuba.
+
+11
+
+12
+
+13
+
+14 Senator Baker. I have another question, but I will wait, if you have something else.
+
+15
+
+16 The Chairman. Go ahead, sir.
+
+17
+
+18 Senator Baker. Do you feel that you have a good insight into the relationship between the President and his brother Robert Kennedy in this respect, that is, having to do with Cuba operations, and Robert Kennedy and Richard Helms?
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25 Mr. Bundy. I have a pretty good picture of the relationship between President Kennedy and Robert Kennedy on Cuba, and on many other things. It is a recollection which grows stronger as the administration goes on, because I got to know them better, and, of course, they got to know me better,
+
+TOP SECRET
+
+40 First Street, S.E., Washington, D.C. 20003
+
+765000030795
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000

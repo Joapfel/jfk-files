@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_23032.png
+
+Convert to MarkdownTOP SECRET
+
+Phone (Area 202) 544-6000
+
+Mr. Baron. We have just gone off the record to straighten out the fact that we are both talking about the same Cuban high military officer who was known to the CIA by the cryptonym of AMLASH.
+
+Correct me if I am wrong, Mr. Halley, that you and I agree that we are referring to the same person that we have identified off the record?
+
+Mr. Halley. Yes, we have.
+
+Mr. Baron. Were you aware of contacts between AMLASH-1, as he was known, and Artime?
+
+Mr. Halley. I think at the time that this was going on, I do not know whether I was or I was not. -- I was aware that the CIA was in touch with AMLASH.
+
+Mr. Baron. Did you deal directly with the case officers who ran AMLASH?
+
+Mr. Halley. I did not. My recollection of this AMLASH case is as follows. At some point in time; I had a conversation with Desmond FitzGerald in Washington during one of my periodic visits to Washington from Miami. We discussed at that meeting the nature of our approach to the military establishment in Cuba. In the context of that conversation, Mr. FitzGerald asked me if I thought whether it would be a good idea for him to meet one of these Cuban military personalities, and he subsequently identified to me the personality he was talking about was AMLASH-1.
+
+7 6 N WARD & PAUL 7 0 1 1 3
+
+410 First Street, S.E., Washington, D.C. 20003
+
+# TOP SECRET
+
+HWP
+
+Page 01/08

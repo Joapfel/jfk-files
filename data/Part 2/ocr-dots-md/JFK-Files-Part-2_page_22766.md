@@ -1,0 +1,59 @@
+# JFK-Files-Part-2_page_22766.png
+
+Convert to Markdown1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+TOP SECRET
+
+ intelligence function of any responsibility or significance in Vietnam. That was a tragic failure on the part of CIA and it goes back to the basic problem of the present management, to answer your earlier question, the present management because the present management of the CIA was involved in the decisions which prohibited a good counter-intelligence effort in Vietnam.
+
+Mr. Shea. In that paper that is before Dr. Kissinger, are there any proposed control mechanisms that would act as a filter so that the misinformation in a sense could not flow back into the policy circles within the United States?
+
+Mr. Angleton. Well, there wouldn't be. The kind of channels used, there wouldn't be any of that happening. This would be information given to an agent who was reporting, say to the KGB back, say it would never hit the light of day.
+
+Mr. Shea. So the process of misinformation as it normally relates to the intelligence field is totally separate in terms of the active process of misinformation as it goes on in counter-intelligence?
+
+Mr. Angleton. We are not dealing in overt. There may be some overt things put out that support a document that was given to a double who would pass it to KGB. But if the man is regarded to be an agent of the KGB, the KGB is not going to publicize that document without having blown the alleged agent.
+
+Mr. Shea. But they could work on it in their process of disinformation to come back, and you would be caught.
+
+TOP SECRET
+
+NW
+
+Phone (Area Code) 544-6000
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+76001 1715
+
+6 sh
+
+8
+
+10 h

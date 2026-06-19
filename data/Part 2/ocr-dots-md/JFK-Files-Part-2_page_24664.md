@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_24664.png
+
+Convert to MarkdownTweedy. No. Planning, yes, but nothing that
+ever got anywhere. (Tweedy, 9/9, p. 19)
+
+It is difficult to reconcile the cable traffic with Tweedy's testimony that no action plans were launched and that no authorization for implementing the assassination operation, authorization for Hedgman's approach to his agent to explore access to Lumumba's entourage is in accord with Tweedy's description of his inquiries about gaining access to Lumumba.
+
+However, the fact that Tweedy was personally informed that the Chief of Station "PLANS CONTINUE TRY IMPLEMENT OP" (CIA Cable IN 24171, Chief of Station to Tweedy, 10/7/60) is harder to reconcile with his statements that a "go ahead" on the operation was never imminent, especially in light of Tweedy's PROP cable the next week which told the Chief of Station that Lumumba's
+
+DISPOSITION SPONTANEOUSLY BECOMES NUMBER ONE
+CONSIDERATION... THIS CHANNEL REMAINS FOR
+SPECIFIC PURPOSE YOU DISCUSSED WITH COLLEAGUE
+AND ALSO REMAINS HIGHEST PRIORITY (CIA Cable
+OUT 81396, Tweedy to Chief of Station, 10/15/60)
+
+(iii) Bissell Testified That He Did Not Recall Whether The Assassination Operation Had Moved From Planning To Implementation But It Was Not Against Agency Policy to Send Poisons to The Congo
+
+Richard Bissell testified that he did not remember discussing
+the feasibility of assassinating Lumumba with Bronson Tweedy, but it
+seemed "entirely probable" to him that such discussions took place
+(Bissell, 9/10, pp. 3-4).

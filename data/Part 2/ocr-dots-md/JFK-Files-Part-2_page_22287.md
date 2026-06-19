@@ -1,0 +1,73 @@
+# JFK-Files-Part-2_page_22287.png
+
+Convert to Markdown# TOP SECRET
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+Chairman Church. Before you do, would you just explain exactly what the relationship between CIA and Giancana and Maheu was because that is not clear in my mind.
+
+Would you develop for the Committee that whole relationship?
+
+Mr. Breckinridge. Robert Maheu used to work for the FBI and he resigned from the FBI and opened a private investigative firm here in Washington and CIA used him from time to time for certain kinds of support activities.
+
+Chairman Church. What kind of support activities?
+
+Mr. Breckinridge. On one occasion he obtained a female companion for an important foreign leader.
+
+Chairman Church. What other kind of support?
+
+Mr. Breckinridge. In the early days -- and this becomes an embarrassment. As nearly as I can reconstruct, the people who knew him decided to put him on a retainer in the Office of Security, which they did for awhile, until he was so successful he said he no longer needed the retainer, which he didn't do much to earn. He later got involved representing one of the Greek shipping interests and we were given the results of some of the information that he obtained from that where there was a fight between Niarchos and Onassis. We think he may have had some involvement in another foreign leader's companionship when he was in this country. I don't have the details. I think we can probably reconstruct it for you.
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+HW 50955 DocId:32203792 Page 15

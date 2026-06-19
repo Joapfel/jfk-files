@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_20699.png
+
+Convert to MarkdownIt is felt that the activities of these SLP-WONAC members can best be followed through their individual case files rather than under a WONAAC caption. This case is being closed by the NYO.
+
+Coalition (WOMAC)
+
+INFORMANTS:
+
+| Identity of Source | Location |
+|---|---|
+| NY T-1. is <br> Informant | NY 134-19305A-12 |
+| NY T-2 is <br> Informant | NY 100-174481-81 |
+
+The SAs who observed the women entering NY Governor ROCHEFFELLER's office on 4/13/72 were SAs JOHN J. SYRON and JOSEPH DERTINGER, JR.
+
+The SAs who observed the demonstration on 4/16/72, were SAs JOHN J. SYRON and JOSEPH E. FURRER.
+
+The SAs who observed the march on 5/6/72, were SAs JOHN J. SYRON and JAMES F. REILLY.
+
+"Appeal of Anti-Amendment Laws" at Governor Rockerfeller's Office in New York City.

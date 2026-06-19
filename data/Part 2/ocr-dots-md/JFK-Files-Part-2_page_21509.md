@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_21509.png
+
+Convert to Markdown# JFK ASSASSINATION SYSTEM
+
+## IDENTIFICATION FORM
+
+COMMENTS :
+
+Box 245
+Folder 9
+
+Date:09/30/93
+Page:2
+
+[R] - ITEM IS RESTRICTED
+
+NW 50955 DocId:32281927 Page 2

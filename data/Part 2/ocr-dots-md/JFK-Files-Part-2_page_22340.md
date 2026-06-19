@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_22340.png
+
+Convert to Markdown# TOP SECRET
+
+- 3 -
+
+employees are paid additional compensation to act as informers and to report to the Office of Security on any potential security problems which they observe among their fellow employees at the Agency.
+
+A few outside employees, i. e., non-employees of the Agency, are also retained for the same purpose. This would include employees of the telephone company and construction workers engaged in the construction of Agency buildings. In all instances, however, the purpose is to maintain security among CIA employees and those working for CIA contractors.
+
+Two proprietary companies, called Anderson Security Associates, and Geospatial Personnel Investigations, bothubs would do the rest, create investigations of the personnel of a large number of people who work for the CIs.
+
+## b. Outside the Agency
+
+In 1967 and 1968 the Office of Security arranged for Anderson Security Associates to have its employees attend meetings and other functions of various organizations thought to represent potential threats to CIA personnel or installations and to report on such threats. A list of organizations to be checked for indications of such threats was provided to Anderson Security Associates, which in turn provided regular reports to the Office of Security on the activities of the organization monitored.
+
+There was also coordination between the Office of Security and local police departments to cover the same activity. An effort was made to determine the size of anticipated demonstrations and to anticipate what security forces would be necessary to cope with them.
+
+In 1967 and 1968 the Office of Security directed the field offices to solicit or report information on anti-war and dissident elements. The CIA was concerned about the safety of its personnel, such as recruiters on college campuses, and its offices around the country. The field offices were directed at about that time to establish a clipping service on campus and other newspapers to report on organizations and individuals who might represent threats to CIA personnel or offices.
+
+As a result of the information fed into the Office of Security relating to organizations and individuals who may represent such threats, a substantial number of files were accumulated on individuals and organizations.
+
+TOP SECRET
+
+HW 50955 DocId:32203846 Page 4

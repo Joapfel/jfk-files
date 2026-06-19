@@ -1,0 +1,74 @@
+# JFK-Files-Part-2_page_23693.png
+
+Convert to Markdown1
+
+2
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+Senator Huddleston. My thinking now is that we would meet probably at 10:00.
+
+Mr. Bader. We could certainly do it in an hour's time.
+
+Senator Huddleston. I would like to attend that session.
+
+Mr. Bader. So we'll start at 9:00 promptly:
+
+Senator Huddleston. Senator Mathias had the suggestion that in view of the fact that there is specific legislation relating to that subject and that's in the Immigration Act -- Mr. Bader. I've asked them to be prepared to speak to their interpretation of the provisions and restrictions in the Immigration Act.
+
+Senator Huddleston. But our recommendation is that we would review the act and the practices.
+
+Mr. Bader. If we have this room, as I hope we do, we would take the testimony right here and if need be, move it to another room.
+
+Senator Mathias. In the event that I should not be able to be here, and I hope I will, I think we ought to look at this thing pretty closely.
+
+As Senator Huddleston said earlier, you don't recruit these people just out of the blue unless there's some reason for them to sign up, and I don't think we want to be too critical of recruiting procedures: to revert to the phrase that we used yesterday, these are consenting adults,
+
+TOP SECRET
+
+JAMES & PAUL
+
+HW 50955 DocId:32423509 Page 67

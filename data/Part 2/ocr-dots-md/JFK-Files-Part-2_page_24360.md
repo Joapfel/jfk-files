@@ -1,0 +1,63 @@
+# JFK-Files-Part-2_page_24360.png
+
+Convert to MarkdownSECRET
+
+DOMESTIC REAL PROPERTY LISTING
+
+| Location | Street Address | Personnel | Purpose |
+|---|---|---|---|
+| New York | | | |
+
+**B. Official Cover Properties**
+
+1 Location
+1 Location
+1 Location
+30 Foreign intelligence collection
+22 Field investigation office
+2 Photo procurement, foreign persons
+
+**C. Safehouses**
+
+23 Locations
+
+N.A. Covert meetings
+
+**D. Non-Official Properties**
+
+1 Location
+2 Locations
+2 Locations
+3 Locations
+1 Location
+9 Foreign newspaper service
+11 Foreign intelligence collection
+7 Proprietary management services
+28 Overseas book distribution
+2 Contractor's Liaison
+
+North Carolina
+
+1 Official Cover Installation
+
+24 Field training facility
+
+Ohio
+
+**A. Overt & Nominal Properties**
+
+Cleveland, Oh      Fed. Bldg., 1240 E 9th St. (EOP)
+Cincinnati, Oh    Fed. Bldg., 553 Main St. (EOP)
+
+3 U.S. resident contact
+3 U.S. resident contact
+
+**B. Official Cover Properties**
+
+1 Location
+
+5 Foreign intelligence collection
+
+SECRET
+
+E2 CL By 029557

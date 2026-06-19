@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_24120.png
+
+Convert to Markdownaccount on which Agency officers in alias have signatory power. Arrangements are made with cleared and witting businessmen to provide a domiciliary address for these entities at a law office or telephone answering service. These entities, like the proprietary corporation administered by Agency Headquarters specialists, provide cover, payrolling, and tax attribution for Agency personnel and are similarly administered.
+
+Another type of entity used by the Agency and a proprietary only in the sense of being Agency-owned and administered is exemplified by some 215 notional companies which are not legally registered but have names and bank accounts controlled by the Agency. The Agency arranges with cleared and witting attorneys or proprietors of telephone answering services to provide a domiciliary address and to refer any queries to the Agency specialists concerned. These notional entities are used to provide status and operational cover for Agency personnel involved in all types of high-risk intelligence operations. They are also used as ostensible clients for purposes of funding Agency proprietary or bona fide American companies which provide cover and payrolling of Agency personnel.
+
+## II. STATUTORY AUTHORITY FOR PROPRIETARIES
+
+The Agency's statutory authority to spend money for proprietary corporations in support of Agency operations derives from Section 8(b) of the CIA Act of 1949. This Act states:
+
+"The sums made available to the Agency may be expended without regard to the provisions of law and regulations relating to the expenditure of Government funds; and for objects of a confidential, extraordinary, or emergency nature, such expenditures to be accounted for solely on the certificate of the Director and every such certificate shall be deemed a sufficient voucher for the amount therein certified."

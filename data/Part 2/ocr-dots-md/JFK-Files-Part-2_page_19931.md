@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_19931.png
+
+Convert to MarkdownWOMEN'S INTERNATIONAL LEAGUE FOR PEACE AND FREEDOM (CWI)
+
+In a leaflet dated January, 1962, WILPF described
+itself as follows:
+
+# What is the WILPF?
+
+"It is the Women's International League for Peace and Freedom, an international, inter-racial organization striving for peace and freedom by non-violent democratic methods. It was founded in 1915, during the first World War, and its first president was JANE ADDAMS, the first American woman to win the Nobel Peace Prize.
+
+## How Does it Work?
+
+"It keeps its membership informed on current problems through its legislative office in Washington. It issues its own pamphlets, study kits, fact sheets, and cooperates with like-minded organizations. WILPF has consultative status at the United Nations on a national and international level."
+
+# What Does it Do?
+
+"WILPF, through its local branches, sponsors public discussion on such topics as disarmament and world law, nuclear testing, civil defense, Berlin, civil rights, etc. Through its Peace Action Committee, WILPF initiates peace walks, vigils, and meetings, as an organization and with other peace groups. Peace education for children is a special concern of WILPF."
+
+# How Is it Set Up?
+
+"The Women's International League for Peace and Freedom has its national headquarters at JANE ADDAMS House, 2006 Walnut Street, Philadelphia 3, Pa., where its monthly paper, FOUR LIGHTS, is published. Its legislative office is at 120 Maryland Avenue, N.E., Washington 2, D. C. International headquarters are in Geneva. The International meets every three years. It conducts summer schools, peace congresses and publishes its magazine, PAX."

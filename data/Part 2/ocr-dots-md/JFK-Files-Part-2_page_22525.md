@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_22525.png
+
+Convert to MarkdownSECRET
+
+that it would be impossible to bring a big group to Algiers and would in fact be dangerous because of the attitude of the Moroccan government. Wiley believes that it would be best to have a small team of 3 to 6 trained individuals who could proceed to the Youth Festival at Algiers and who would be directed not at disruption or propaganda, but would aim at intelligence gathering. Wiley himself stated that he would again volunteer to go to Algiers at this time, not ostensibly connected with the aforementioned group, and only as a free lance newspaperman. Wiley pointed out that undoubtedly he is now the top news authority in the U.S. on CP Youth Festivals. Wiley states that he believes he can arrange financing from private organizations and individuals for the 3 to 6 individuals mentioned above and possibly enough for travel by himself although this may not be obtainable. Wiley requests a study of this matter and advice.
+
+Ethel Mendoza, SRS, received a phone call from Wiley on 30 March 1965, wherein Wiley advised he had mailed material to Mendoza she had requested. Wiley further advised he was then on a lecture tour of the United States. Wiley also discussed a previously proposed trip to Algiers to cover the World Youth Festival and requested information as to whether he would be allowed to cover the festival. Paul F. Gaynor recorded that the Director of Security gave his approval on 31 March 1965, but that Wiley's activity at the festival should be as a passive observer only.
+
+A note dated 12 April 1965 to Chief, SRS from Ethel Mendoza regarding a 9 April 1965 phone conversation with Wiley states that in view of Wiley's plan to attend the Youth Festival in August, she suggested that he not repay the $1,000 advance for the China trip, but keep it until he is assured of complete outside financing for the Algiers trip. He would, as in the past, utilize this fund to cover any deficit for his own travel costs; not for any of the group which he supervises at the festival. Wiley also inquired as to extending his travel in August to include 4-6 weeks in South America. Also, regarding Algiers financing, Mendoza said she learned only very recently that the anticipated funding in some part will come from the backers of the American Security Council.
+
+RECEIVED FROM
+SEP 30 1975
+CIA
+
+SECRET
+
+NW 50955 DocId:32203889 Page 33
+
+SECRET
+
+SECRET

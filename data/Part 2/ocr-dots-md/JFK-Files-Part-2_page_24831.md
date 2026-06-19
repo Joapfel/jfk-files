@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_24831.png
+
+Convert to MarkdownCIA officials maintain that they acted faithfully in transmitting messages to Generals Bennett and/or Philpott and in never sending a message without proper authorization. Mr. Karamessines was particularly forceful in this regard:
+
+> ...I can recall no instance in my experience at the Central Intelligence Agency in which a message was received for an individual, an officer of the government anywhere, in whatever department, which was not faithfully, directly, promptly and fully and accurately delivered to that officer, or to his duly authorized representative.
+
+(Karamessines testimony, p. 79)
+
+We may have played tricks overseas, but it stopped at the water's edge, and we didn't play tricks among ourselves or among our colleagues within the Agency or in other agencies.
+
+(Karamessines testimony, p. 79)
+
+We could not remain in business for a day...if this had been the practice of the Agency. It would have been no time at all before we would have been found out, a single instance of the kind of thing you are suggesting might have taken place would have put us out of business.
+
+(Karamessines testimony, p. 80)
+
+Dr. Kissinger denied he was ever informed of the Army Attache's role or that he authorized any messages to be sent to the Army Attache.
+
+(Kissinger testimony, p. 22)
+
+The investigation to date has not resolved the conflict between the statements of the senior CIA, DIA and White House officials. There are four possibilities that could explain the conflict. First, Generals Bennett and Philpott were cognizant of Track II and communicated their general instructions to the Army Attache. This possibility would be contrary to their sworn testimony. Second, General Bennett was not aware of Track II but General Philpott was and communicated general instructions to the Army Attache. This possibility is supported by Roth's testimony but would be contrary to Philpott's sworn testimony and his duty to keep General Bennett informed. Third, the CIA acted on its own, and, after receiving initial authority from General Philpott, co-opted and ordered

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_20589.png
+
+Convert to MarkdownWOMEN'S NATIONAL ABORTION
+ACTION COALITION (WONAAC)
+
+On November 28, 1971, and November 29, 1971,
+sources one and two advised that LAWAAC, an
+affiliate of WONAAC, is dominated and con-
+controlled by members of the LAL - SWP and
+the LAB - YSA.
+
+This document contains neither recommendations
+nor conclusions of the FBI. It is the property of the
+FBI and is loaned to your agency; it and its contents
+are not to be distributed outside your agency.
+
+CONFIDENTIAL
+
+NW 88321 DocId:32989546 Page 94
+
+CONFIDENTIAL

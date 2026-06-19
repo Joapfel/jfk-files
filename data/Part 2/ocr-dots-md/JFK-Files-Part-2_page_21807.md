@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_21807.png
+
+Convert to MarkdownTOP SECRET
+
+1 or would it be in some other file?
+2 Mr. Sarno. I don't think that they maintain a chrono on
+3 AMUTS: It was voluminous. Once they were processed by the
+4 Agency and put into our communications channel, be it by
+5 dispatch or by cable, I don't think they retained all of those
+6 tons of files.
+7 Mr. Wides. Do you recall who the FI Branch Chief was at
+8 the time?
+9 Mr. Sarno. No, sir.
+10 If you give me a date that I know --
+11 Mr. Wides. I believe it was '64.
+12 Mr. Sarno. If it was early 1964, then Mr. Shackley was
+13 there. If it was late 1964 when Dimmer came, then there was
+14 another branch, so there were two branch chiefs.
+15 Mr. Wides. Now did you relay this information, did you
+16 say, to Washington, or directly to New York?
+17 Mr. Sarno. Sir, I never handled communications.
+18 Mr. Wides. Well, I didn't mean you --
+19 Mr. Sarno. If I write it up, I give it to my branch chief,
+20 and my branch chief in turn sends it out. But to me, it would
+21 seem logical, knowing communications, that we would send the
+22 cable directly to New York with info to Washington.
+23 Mr. Wides. Were you ever told that communications had
+24 been made to New York? You said before --
+25 Mr. Sarno. Yes, I was told, because I think there may have
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32202440 Page 39
+
+TOP SECRET

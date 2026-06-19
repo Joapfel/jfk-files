@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_23831.png
+
+Convert to Markdown1. there, giving the Committee authority to establish guidelines,
+2. to establish for large proprietaries, should they become
+3. necessary.
+
+4. You could also make the statement there that the Committee may call for a GAO audit periodically.
+5.
+6. Mr. diGenova. So we will rewrite 2 to eliminate the statute
+7. Senator Huddleston. Independent GAO audit.
+8. Mr. Aaron. No. 2 is rewritten so it is not required by
+9. statute that there be an audit, internal audit?
+10. Mr. Kirbow. No GAO audit.
+11. Senator Huddleston. The only thing I had in mind of
+12. taking out of 2 was just the independent GAO audit being
+13. required by statute, and leave that to the discretion of
+14. the Committee, but leave the rest of the review, right?
+15. Mr. Maxwell. You amend it by statute that an annual
+16. review of all proprietaries?
+17. Senator Huddleston. An internal CIA audit.
+18. Mr. Maxwell. Or would it recommend that, I'm not sure
+19. which.
+20. Mr. diGenova. I'm wondering whether it should be done
+21. by statute. Maybe we should recommend to the oversight
+22. committee that there should be an annual review consisting of
+23. internal CIA audit.
+24. Mr. Maxwell. An annual report to the oversight committee
+25. and such GAO audits as the Committee --
+TOP SECRET
+
+HW 50955 DocId:32423513 Page 56

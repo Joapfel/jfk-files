@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_21932.png
+
+Convert to Markdown3. Requests For and Pouching of the Machine Guns
+
+a. ~~Owen's~~ 03 Requests Machine Guns (for Use in Assassination)
+
+The Station Chief suggested that Headquarters consider pouching an M3 machine gun on February 10, 1961 (Owen pp. 63,64; Station to HQS cable, 3/15/61). The request was raised again in March but no action was taken. On March 20, 1961, Owen cabled a dissident request for five M3 or comparable machine guns specifying their wish that the arms be sent via the diplomatic pouch or similar means. The dissidents were said to feel that delivery by air drop or transfer at sea would overly-tax their resources. (Station to HQS cable, 3/20/61)
+
+The machine guns sought by the dissidents were clearly identified, in Owen's cable, as being sought for use in connection with an attempt to assassinate Trujillo. This plan was to kill Trujillo in the apartment of his mistress and, according to Owen's cable:
+
+"4. To do they need five M3 or comparable machine-guns. and 1500 rounds ammo for personal defense in event fire fight. Will use quiet weapons for basic job." (Id.)
+
+In essence, CIA's response was that the timing for an assassination was wrong. 03 was told that precipitious or uncoordinated action could lead to the emergence of a leftist, Castro-type regime and the "mere disposal of Trujillo may create more problems than solutions." It was Headquarters' position that:
+
+"...we should attempt to avoid precipitous action by the internal dissidents until opposition group and HQS are better prepared to support /assassination/, effect a change in the regime, and cope with the aftermath." (HQS to Station cable, 3/24/61)
+
+* Word supplied by CIA in previously sanitized cable.

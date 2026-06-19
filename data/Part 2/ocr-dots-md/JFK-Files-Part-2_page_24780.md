@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_24780.png
+
+Convert to MarkdownSpecial Group decision to provide arms to anti-Trujillo elements. Assistant Secretary for Inter-American Affairs, Thomas Mann; Deputy Assistant Secretary William Coerr; and Special Assistant Frank Devine continued in their respective positions throughout the transition period. The Committee has been furnished no documents indicating that Secretary Rusk or Under Secretary Bowles were specifically advised as to the intentions of the Dominican dissidents to kill Trujillo; intentions of which the Bureau of Inter-American Affairs certainly had knowledge. Indeed, Secretary Rusk testified that he was not personally so advised. (Rusk, 7/10, pp. 41,42)
+
+On February 17, 1961, Richard Bissell sent a briefing paper on the Dominican Republic to McGeorge Bundy, President Kennedy's National Security Advisor. The paper made note of the out-standing Special Group approval for the provision of arms and equipment to Dominican dissidents and stated that the dissidents had been informed that the U.S. was prepared to provide such arms and equipment as soon as they developed the capability to receive them.
+
+The briefing paper also indicated that dissident leaders had informed CIA of "their plan of action" which they felt could be implemented if they were provided with arms for 300 men, explosives, and remote control detonation devices." Various witnesses have testified, however, that supplying arms for 300 men would, standing alone, indicate a "non-targeted" use for the

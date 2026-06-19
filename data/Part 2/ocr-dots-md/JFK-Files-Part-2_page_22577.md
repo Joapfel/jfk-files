@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_22577.png
+
+Convert to MarkdownSECRET
+
+phase out of this activity at the end
+of the month. They'll turn it over to
+the wives. They are running out of
+money and have enough to last until
+end of month. They'll put this activity
+on shelf for a few months. They have had
+'unbelievable backing' from #2 man in
+New York State. Wants to hold off a
+week or so on status report on this.
+In coordination with Pentagon, they
+merely advise of what they plan and
+tell Pentagon to object in writing if
+they do. Discussion with Wiley relayed
+to P.G. I suggested that during next
+meeting with Wiley, he be told that
+while we do no disapprove of his
+actions in this respect, we can
+not approve, sponsor, or imply
+approval in any way. P.G. said
+OK tell him."
+
+A blind memorandum regarding Wiley was prepared by
+CIA Covert Employee SRS, on 14 April 1970, being directed to
+Paul F. Gaynor, who noted his concurrence. In total, the
+memorandum states:
+
+"Subject (Wiley) telephoned today after having talked with Mr. McCord and advised that he had unfortunately lost the race to be a Congressional candidate from his district. I extended sympathy but personally felt this resolved a problem that could have resulted in his termination should he have been elected a candidate.
+
+"Subject asked whether there were any questions concerning his income tax form, and I advised him, after consulting with the Head of the Covert Tax Committee, that there did not appear to be any significant questions. Subject
+
+FROM
+
+SEP 30 1975
+
+CIA
+
+SECRET!

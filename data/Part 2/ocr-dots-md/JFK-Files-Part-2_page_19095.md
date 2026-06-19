@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_19095.png
+
+Convert to MarkdownWFO 105-35316
+
+WFO is requested to consider the advisability of contacting [redacted] when available for any information concerning the projected meeting mentioned in the LIM on 1/13/68 or 1/20/68. If such interview is deemed advisable, discretion should be exercised in any contact with [redacted] to avoid divulging the identity of [redacted].
+
+The first confidential source mentioned in the enclosed LIM is [redacted] -C-
+
+The second confidential source mentioned in the LIM is [redacted]. -C-
+
+The LIM is classified "Confidential" because it contains information reflecting an investigative interest in a representative of a foreign diplomatic establishment and information from [redacted], an informant of continuing value. It is also so classified because it contains information from [redacted], a confidential source, the unauthorized disclosure of whom would be detrimental to the best interests of the national defense. -C-

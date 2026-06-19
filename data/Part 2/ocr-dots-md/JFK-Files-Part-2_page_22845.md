@@ -1,0 +1,59 @@
+# JFK-Files-Part-2_page_22845.png
+
+Convert to MarkdownTOP SECRET
+
+The Chairman. What is the question?
+
+Mr. Smothers. The question is who in the White House provided Mr. Bundy with documents relevant to this investigation. And I believe his position is that he would prefer not to disclose that matter, or that that is a matter for the Committee's determination.
+
+Mr. Bundy. Let me explain, Mr. Chairman, because you were out of the room, that I have always taken the position that decisions of the White House are for the White House to discuss. I always asked permission to see documentation and permission was given. I looked at the document, but I would rather not discuss it, because I think it is for the White House to discuss it.
+
+The Chairman. What is the document?
+
+Mr. Bundy. I just described it, it is National Security Action Memorandum No. 1, we showed us the National Security Action file, which I believe your staff has.
+
+Mr. Schwarz. We have it here.
+
+Mr. Smothers. My question was, who had the request been made to, and showed him the document?
+
+Mr. Bundy. My point is that I have tried historically not to discuss this kind of question when it is something that concerns the White House, but to leave it to the White House to discuss it, and I would prefer to hold to that position.
+
+TOP SECRET
+
+HW 50935 P0C1D:52425400 Page 85
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+763003M30503:
+
+Phone (Area 202) 544-6000
+
+60

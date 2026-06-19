@@ -1,0 +1,60 @@
+# JFK-Files-Part-2_page_21411.png
+
+Convert to MarkdownFBI
+
+Date: 9/22/70
+
+Transmit the following in _________________
+
+(Type in plaintext or code)
+
+Via AIRTEL
+EXCEPT WHERE SHOWN
+CONFIDENTIAL
+
+(Priority)
+
+OTHERWISE
+
+TO : DIRECTOR, FBI (100-442715) [Signature]
+
+FROM : SAC, CHICAGO (100-41353) [Signature]
+
+SUBJECT: AD HOC COMMITTEE FOR A MARXIST-LENINIST PARTY, USA (AHC) IS - CH (RESEARCH SECTION)
+
+NO MENTION OF AD HOC COMMITTEE SHOULD BE MADE IN REPORTS OR COMMUNICATIONS FOR DISSEMINATION TO OUTSIDE AGENCIES. IF DEEMED APPROPRIATE, THE AHC CAN BE MENTIONED IN THE ADMINISTRATIVE PAGES OF SUCH REPORTS OR COMMUNICATIONS.
+
+Re Buairtel to Chicago dated 9/17/70, re RICHARD GIBSON.
+
+On 9/22/70, CG 6547-S made available the enclosed letter from RICHARD GIBSON advising that he will visit in Chicago and soliciting information about what the left in the U.S. is doing in regard to Palestine Liberation. Two xerox copies enclosed for Bureau. [c]
+
+Chicago is preparing a communication of solidarity to be mailed to RENE RAINDORF concerning Palestine Liberation.
+
+Also enclosed for Bureau is a booklet entitled "Resistance Palestinienne" written in French possibly sent to Ad Hoc by RENE RAINDORF. CG 6547-S made this available on 9/22/70. If Bureau deems advisable, Chicago would appreciate a translation of the article. [C]
+
+3 - Bureau (Encs. 3) (RM)
+(1 - 105-97302) 93072
+2 - Chicago
+(1 - 105-10280)
+
+SEP 24 1970
+
+NOT RECORDED
+
+192 SEP 30 1970
+
+Appropriation # 1970
+
+Sent: M Per:
+
+Special Agent in Charge SECRET
+
+ENCLOSURE
+
+RESEARCH
+
+ORIGINAL FILED IN
+
+CONFIDENTIAL
+
+NW 50953 DocId:32339240 Page 35

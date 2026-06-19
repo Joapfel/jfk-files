@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_23643.png
+
+Convert to Markdownso far would have legislative authority over. So we're really just recommending here that in this statute they provide the framework under which these kinds of reprogramming can be done in view of the fact that we are extending the DCI from his own little bailiwick to the entire intelligence community.
+
+Mr. Kirbow. If that's the intent of the committee, I have no reservations about it.
+
+Senator Huddleston. I don't think the military people would object to that kind of language. They'd like to have some definite framework for a man to reach into his budget.
+
+Mr. Kirbow. I think all the various agencies would like to have that kind of protection.
+
+Senator Huddleston. Okay.
+
+Mr. Davis. Number C, the DCI should have responsibility to review all intelligence activities and intelligence resource allocations, including tactical military intelligence in order to carry out his more general responsibilities.
+
+We've used the word "review" very carefully here. This is not a responsibility to direct those operations but simply to be able to look at the whole in order to sort of balance it out.
+
+We're not saying that he's taking over responsibility from the military commander. If you read the Executive Order the language is different and it says that the OCI and the DCI will not have responsibility for tactical military
+
+TOP SECRET
+
+V. N. A. PAUL
+
+HW 50955 DocId:32423509 Page 17

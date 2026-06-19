@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_23265.png
+
+Convert to MarkdownTOP SECRET
+
+that could possibly be used if we ever wanted to use something.
+
+Mr. Baron. You might have had at least an exploratory conversation with him on that subject?
+
+Mr. Tweedy. I would be surprised if I didn't.
+
+Or perhaps Bussell had a conversation with him and then I
+followed it up, something like that. I would suspect that
+probably the first conversation would undoubtedly have been
+held between Dick Bissell and Sidney Gottlieb but this is merely
+what I would suspect was the way it occurred.
+
+I don't say that that is the way it occurred. But
+other than that no conversation with Sidney Gottlieb on the Con-
+go at all.
+
+Mr. Baron. I am at the end of my questions on specific
+facts concerning the Congo during this period of time leading
+up to Lumumba's death which, as you know, is the narrow
+subject of our inquiry right now, and first of all I want
+to say that I appreciate tremendously and know that the
+Committee is appreciative and grateful for your testimony
+here today. It is a difficult subject. It is only one
+narrow aspect of what the Committee is undertaking, and un-
+pleasant, but unnecessary aspect to assemble.
+
+I wonder if you have any facts that you would like to add
+to the record that you think are necessary to put our dis-
+cussion today into context?
+
+Mr. Tweedy. I think the strongest recollection about
+
+TOP SECRET
